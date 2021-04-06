@@ -1,21 +1,13 @@
 > ## **本文件最后更新于2020-02-13 16:19** 
 
 
-
 -----
 
 ####  JC_AR  
 ##### 15001#       发表于 2010-3-10 23:02
 
 
-
-
 現在覺得最大的伏筆是能力者不能游泳這點啊，最終BOSS肯定是和路飛拼的兩敗俱傷趴在地上然後被騙人布扔到海里！絕對是！
-
-
-
-
-
 
 
 -----
@@ -24,16 +16,9 @@
 ##### 15002#       发表于 2010-3-10 23:40
 
 
-
-
 振振果实其实不就等同于地震果实嘛
 
 日本这国家不就怕地震…说其是最牛B的果实合情合理额
-
-
-
-
-
 
 
 -----
@@ -42,20 +27,13 @@
 ##### 15003#       发表于 2010-3-11 02:59
 
 
-
 [http://bbs.opbbs.net/viewthread.php?tid=16195&amp;extra=page%3D1](http://bbs.opbbs.net/viewthread.php?tid=16195&amp;extra=page%3D1)
-
-
-
-
-
 
 
 -----
 
 ####  zerock  
 ##### 15004#       发表于 2010-3-11 05:21
-
 
 
  本帖最后由 zerock 于 2010-3-11 06:05 编辑 
@@ -75,32 +53,19 @@
 我很想吐槽，不过是不是又会有人说“不爽你就圆润离开去看火影”<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  heavy_d  
 ##### 15005#       发表于 2010-3-11 06:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/66.gif" referrerpolicy="no-referrer">黑胡子太酷了，这个BOSS塑造的很很成功
-
-
-
-
-
 
 
 -----
 
 ####  龙意识  
 ##### 15006#       发表于 2010-3-11 08:50
-
-
 
 
 特殊体质（两个身体？）
@@ -115,25 +80,13 @@
 不过再看以前的确实WT也埋了几个伏笔，不要妄图揣测WT大神<img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ldsdlg  
 ##### 15007#       发表于 2010-3-11 08:54
 
 
-
-
 终极boss已经打造完毕了吧
-
-
-
-
-
 
 
 -----
@@ -142,16 +95,9 @@
 ##### 15008#       发表于 2010-3-11 09:06
 
 
-
-
 现在到底哪里反映出黑胡子是因为体质而不是黑暗果实能用两种能力的？
 
 怎么一堆人说黑胡子体质特殊。
-
-
-
-
-
 
 
 -----
@@ -160,14 +106,7 @@
 ##### 15009#       发表于 2010-3-11 09:15
 
 
-
-
 雷利老爷子外援可能性排除
-
-
-
-
-
 
 
 -----
@@ -176,14 +115,7 @@
 ##### 15010#       发表于 2010-3-11 09:17
 
 
-
-
 黑胡子能同时使用2种能力
-
-
-
-
-
 
 
 -----
@@ -192,21 +124,14 @@
 ##### 15011#       发表于 2010-3-11 09:18
 
 
-
 <blockquote>现在到底哪里反映出黑胡子是因为体质而不是黑暗果实能用两种能力的？
 
 怎么一堆人说黑胡子体质特殊。
 燃夜郎君 发表于 2010-3-11 09:06 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
-
-
-
-
 01.jpg
 (372 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -215,31 +140,13 @@
 2010-3-11 09:18 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/1003110918b7e7f6831f628f3c.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  kangbaiyin  
 ##### 15012#       发表于 2010-3-11 09:20
-
 
 
 <blockquote>黑胡子的海贼旗是三个骷髅头？也许他的身体构造能同时容纳三种能力，一个自然+一个超人+一个动物系。
@@ -257,32 +164,19 @@ zerock 发表于 2010-3-11 05:21 <[img src="http://bbs.saraba1st.com/2b/images/c
 如果，马可的幻兽种还不是动物系里顶级的话，也许没危险
 
 
-
-
-
-
-
 -----
 
 ####  olorreh  
 ##### 15013#       发表于 2010-3-11 09:38
 
 
-
-
 其实黑胡子已经有三个果实在身上了？？第三个就是能延长寿命之类的
-
-
-
-
-
 
 
 -----
 
 ####  流浪的翅膀  
 ##### 15014#       发表于 2010-3-11 09:55
-
 
 
 <blockquote>其实黑胡子已经有三个果实在身上了？？第三个就是能延长寿命之类的
@@ -294,17 +188,10 @@ olorreh 发表于 2010-3-11 09:38 <[img src="http://bbs.saraba1st.com/2b/images/
 这样使他拥有超越常人的恢复力，承受他人攻击时能很NB得挺过来。黑暗果实的副作用就消除了~
 
 
-
-
-
-
-
 -----
 
 ####  ruler  
 ##### 15015#       发表于 2010-3-11 10:04
-
-
 
 
 黑胡子下的这盘棋真赞。最终BOSS诞生了。
@@ -313,17 +200,10 @@ olorreh 发表于 2010-3-11 09:38 <[img src="http://bbs.saraba1st.com/2b/images/
 坚定的忍耐力，在白胡子的船上甘心当路人。当发现梦想的果实出现时，不惜杀死伙伴夺取果实。通过抓住艾斯或路飞当上75海，进监狱招揽传说中的海盗，最后坐享渔翁之利夺取白胡子的能力成为最强的男人。白胡子和艾斯都成了他的棋子，不愧为一代枭雄。
 
 
-
-
-
-
-
 -----
 
 ####  龙意识  
 ##### 15016#       发表于 2010-3-11 10:06
-
-
 
 
 577中文版出了[http://acg.178.com/mh/h/haizeiwang.shtml](http://acg.178.com/mh/h/haizeiwang.shtml)
@@ -334,17 +214,10 @@ olorreh 发表于 2010-3-11 09:38 <[img src="http://bbs.saraba1st.com/2b/images/
 “对白胡子有了男人的友情，请带上我们，敬爱的巴基船长！”<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15017#       发表于 2010-3-11 10:14
-
-
 
 
 尾田是不可猜透的。
@@ -354,17 +227,10 @@ olorreh 发表于 2010-3-11 09:38 <[img src="http://bbs.saraba1st.com/2b/images/
 五老峰背后不可能没有能镇压世界的战力啊，CP0还没出现呢。
 
 
-
-
-
-
-
 -----
 
 ####  jk0823  
 ##### 15018#       发表于 2010-3-11 10:16
-
-
 
 
 57卷首周销量169万，从56卷开始销量大爆发啊
@@ -387,25 +253,13 @@ olorreh 发表于 2010-3-11 09:38 <[img src="http://bbs.saraba1st.com/2b/images/
 57卷首周4天，销量1,690,932
 
 
-
-
-
-
-
 -----
 
 ####  thez  
 ##### 15019#       发表于 2010-3-11 10:23
 
 
-
-
 吉贝尔不死肯定上船了
-
-
-
-
-
 
 
 -----
@@ -414,14 +268,7 @@ olorreh 发表于 2010-3-11 09:38 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15020#       发表于 2010-3-11 10:47
 
 
-
-
 子龙在黑胡子进了黑布之后说了句“失败的话我们就解散”，看来这应该是黑胡子第一次吸收他人的能力
-
-
-
-
-
 
 
 -----
@@ -430,17 +277,10 @@ olorreh 发表于 2010-3-11 09:38 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15021#       发表于 2010-3-11 11:00
 
 
-
-
 我到觉得黑胡子之前要能证明自己能双开，不然子龙凭什么相信？证明方式最好的就是身上已经有两个果实能力。
 
 
 只是吸收能力有风险。
-
-
-
-
-
 
 
 -----
@@ -449,21 +289,13 @@ olorreh 发表于 2010-3-11 09:38 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15022#       发表于 2010-3-11 11:03
 
 
-
-
 雷利真帅。
-
-
-
-
-
 
 
 -----
 
 ####  jk0823  
 ##### 15023#       发表于 2010-3-11 11:16
-
 
 
 <blockquote>我到觉得黑胡子之前要能证明自己能双开，不然子龙凭什么相信？证明方式最好的就是身上已经有两个果实能力。
@@ -476,32 +308,19 @@ olorreh 发表于 2010-3-11 11:00 <[img src="http://bbs.saraba1st.com/2b/images/
 而且如果以前成功过的话，这次子龙就不会怀疑了
 
 
-
-
-
-
-
 -----
 
 ####  lenin  
 ##### 15024#       发表于 2010-3-11 11:18
 
 
-
-
 其实黑胡子不得已要杀掉队友是因为他只能在死后夺取 其实他队友已经吃下了暗暗果实？
-
-
-
-
-
 
 
 -----
 
 ####  红胡子海盗  
 ##### 15025#       发表于 2010-3-11 11:22
-
 
 
 <blockquote>http://h-art.sakura.ne.jp/sblo_files/cogitoergosum/image/op_kurohige_d.jpg
@@ -511,25 +330,13 @@ olorreh 发表于 2010-3-11 11:00 <[img src="http://bbs.saraba1st.com/2b/images/
 啊，我明白了！其实这个状况和Rance6里的状况一样，其实黑胡子才是白胡子的爸爸！因为魔人是不会变老的！！！<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  寒蝉  
 ##### 15026#       发表于 2010-3-11 11:32
 
 
-
-
 D的意思难道真的是DOUBLE？
-
-
-
-
-
 
 
 -----
@@ -538,14 +345,7 @@ D的意思难道真的是DOUBLE？
 ##### 15027#       发表于 2010-3-11 11:42
 
 
-
-
 原来如此，黑胡子不止是在等黑暗果实，更是在等地震果实啊！
-
-
-
-
-
 
 
 -----
@@ -554,14 +354,7 @@ D的意思难道真的是DOUBLE？
 ##### 15028#       发表于 2010-3-11 12:19
 
 
-
-
 关于振振果实为什么会被评价为最强的果实，其实很好理解吧，就算你自然系的再牛逼也不能把一块大陆彻底摧毁，但是发动一场地震可以把你海军本部整个沉入海底··在一个海洋面积远超大陆面积的世界里，在战略意义上我认为没有比摧毁陆地更牛逼的能力了
-
-
-
-
-
 
 
 -----
@@ -570,16 +363,9 @@ D的意思难道真的是DOUBLE？
 ##### 15029#       发表于 2010-3-11 12:34
 
 
-
-
 难道白胡子之所以为最强是由于拥有最强果实的缘故！？
 
 这个不能接受！  <img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -588,22 +374,15 @@ D的意思难道真的是DOUBLE？
 ##### 15030#       发表于 2010-3-11 12:37
 
 
-
 <blockquote>关于振振果实为什么会被评价为最强的果实，其实很好理解吧，就算你自然系的再牛逼也不能把一块大陆彻底摧毁，但是发动一场地震可以把你海军本部整个沉入海底··在一个海洋面积远超大陆面积的世界里，在战略意义上我 ...
 寒蝉 发表于 2010-3-11 12:19 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 青鸡的果实能力发挥到一定强度能把全世界的海洋都冻上，赤犬能把大陆整个当成岩石融掉，是不是可以这么理解？
-
-
-
-
-
 
 
 -----
 
 ####  kangbaiyin  
 ##### 15031#       发表于 2010-3-11 12:40
-
 
 
  本帖最后由 kangbaiyin 于 2010-3-11 12:42 编辑 
@@ -620,17 +399,10 @@ D的意思难道真的是DOUBLE？
 本身人格魅力、性格什么的也加成吧
 
 
-
-
-
-
-
 -----
 
 ####  春猫  
 ##### 15032#       发表于 2010-3-11 12:49
-
-
 
 
 OP黑鬍子的全名是Marshall D. Teach，
@@ -658,33 +430,19 @@ OP黑鬍子的全名是Marshall D. Teach，
 應該不會再吞別的能力了
 
 
-
-
-
-
-
 -----
 
 ####  jk0823  
 ##### 15033#       发表于 2010-3-11 12:52
 
 
-
-
 漫画已经出来了啊，根本就没说震震果实是最强果实
-
-
-
-
-
 
 
 -----
 
 ####  PATLABOR  
 ##### 15034#       发表于 2010-3-11 12:53
-
-
 
 
 接着海军会吃鳖么？
@@ -694,25 +452,13 @@ OP黑鬍子的全名是Marshall D. Teach，
 可是如果不吃，又该怎么安排黑胡子全身而退呢？
 
 
-
-
-
-
-
 -----
 
 ####  PATLABOR  
 ##### 15035#       发表于 2010-3-11 12:53
 
 
-
-
 他大爷的，又三联了……
-
-
-
-
-
 
 
 -----
@@ -721,15 +467,9 @@ OP黑鬍子的全名是Marshall D. Teach，
 ##### 15036#       发表于 2010-3-11 12:53
 
 
-
  本帖最后由 PATLABOR 于 2010-3-11 12:54 编辑 
 
 编辑掉。
-
-
-
-
-
 
 
 -----
@@ -738,17 +478,10 @@ OP黑鬍子的全名是Marshall D. Teach，
 ##### 15037#       发表于 2010-3-11 12:56
 
 
-
-
 路飞也是特殊体质啊....
 
 
 平常要3天时间才能解的毒,那猴子20小时就解决了,这不是特殊体质是什么?
-
-
-
-
-
 
 
 -----
@@ -757,14 +490,7 @@ OP黑鬍子的全名是Marshall D. Teach，
 ##### 15038#       发表于 2010-3-11 12:58
 
 
-
-
 紫龙的话说明吞食能力风险极高
-
-
-
-
-
 
 
 -----
@@ -773,16 +499,9 @@ OP黑鬍子的全名是Marshall D. Teach，
 ##### 15039#       发表于 2010-3-11 13:00
 
 
-
-
 难以理解的是,在黑胡子进入黑幕之后,海军居然连一点行动也没有,就这样让他完成\"吸收\"....
 
 <img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -791,16 +510,10 @@ OP黑鬍子的全名是Marshall D. Teach，
 ##### 15040#       发表于 2010-3-11 13:03
 
 
-
 <blockquote>难以理解的是,在黑胡子进入黑幕之后,海军居然连一点行动也没有,就这样让他完成\"吸收\"....
 <img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 海军根本不知道黑胡子在干嘛，而且旁边一群高手护驾，海军也动不了，自然就先把注意力集中在路飞和白胡子一伙人上了，2个大将都去打路飞了
-
-
-
-
-
 
 
 -----
@@ -809,14 +522,7 @@ kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15041#       发表于 2010-3-11 13:04
 
 
-
-
 谁敢上？
-
-
-
-
-
 
 
 -----
@@ -825,23 +531,15 @@ kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15042#       发表于 2010-3-11 13:04
 
 
-
-
 和一个死尸在一起能干什么，谁能想到果实会被吸收
 
 况且其他船员不是在外面护着呢么
-
-
-
-
-
 
 
 -----
 
 ####  红胡子海盗  
 ##### 15043#       发表于 2010-3-11 13:05
-
 
 
 <blockquote>难以理解的是,在黑胡子进入黑幕之后,海军居然连一点行动也没有,就这样让他完成\"吸收\"....
@@ -851,16 +549,10 @@ kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/com
 黑胡子海盗团那么多传说级的高大全在给他护法呢，更不用说主力都去拦路飞去了<img src="https://static.saraba1st.com/image/smiley/face/131.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  我爱喵喵  
 ##### 15044#       发表于 2010-3-11 13:06
-
 
 
 <strong> [15104#](http://bbs.saraba1st.com/2b/redirect.php?goto=findpost&amp;pid=11340179&amp;ptid=98922) kvkv </strong>
@@ -869,25 +561,13 @@ kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/com
 黑胡子团其他成员在旁边守着不让人靠近啊，大将似乎只有黄猿在打酱油，青鸡和赤犬都忙着别的事呢
 
 
-
-
-
-
-
 -----
 
 ####  TCTF  
 ##### 15045#       发表于 2010-3-11 13:13
 
 
-
-
 结果龙又再一次让我失望了……其实我觉得黑胡子不是唯一一个拥有两种能力的人。
-
-
-
-
-
 
 
 -----
@@ -896,18 +576,10 @@ kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15046#       发表于 2010-3-11 13:17
 
 
-
-
 追杀穷寇比阻止有可能导致己方全灭的新威胁更重要?
 
 
-
 \"智将赤丸\"也不过如是罢了....
-
-
-
-
-
 
 
 -----
@@ -916,24 +588,16 @@ kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15047#       发表于 2010-3-11 13:31
 
 
-
-
 那边都不知道干嘛，而且大部队不动，赤犬自然是追杀去了
 
 
 不过，最后一页特地给赤犬一个特写，这是要准备让他对黑胡子吗
 
 
-
-
-
-
-
 -----
 
 ####  molilanmao  
 ##### 15048#       发表于 2010-3-11 13:31
-
 
 
  本帖最后由 molilanmao 于 2010-3-11 13:35 编辑 
@@ -952,17 +616,10 @@ kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/com
 振振果实的效果是不是就可以直接等同于给自己施加 攻击不会被防御住 这样的属性？
 
 
-
-
-
-
-
 -----
 
 ####  sef  
 ##### 15049#       发表于 2010-3-11 13:32
-
-
 
 
 1。艾斯之死是铁定了的事实，黑胡子会将海军本部几乎毁灭，同时杀死一个大将。但其吸收2个恶魔果实也有副作用，使用过度会使2种能力都消失一段时间，并且将承受巨大的痛苦。
@@ -977,25 +634,13 @@ kvkv 发表于 2010-3-11 13:00 <[img src="http://bbs.saraba1st.com/2b/images/com
 nga上看来的
 
 
-
-
-
-
-
 -----
 
 ####  zionfan  
 ##### 15050#       发表于 2010-3-11 13:34
 
 
-
-
 智将也想不到有人会能双果实，只有WT才知道
-
-
-
-
-
 
 
 -----
@@ -1004,21 +649,13 @@ nga上看来的
 ##### 15051#       发表于 2010-3-11 13:36
 
 
-
-
 海军总部不是被黑胡子一震已经成那鸟样了么。。。。。。。。。。。。。。。。
-
-
-
-
-
 
 
 -----
 
 ####  suika  
 ##### 15052#       发表于 2010-3-11 13:36
-
 
 
 <blockquote>没有人觉得振振果实很奇怪吗
@@ -1030,20 +667,13 @@ molilanmao 发表于 2010-3-11 13:31 <[img src="http://bbs.saraba1st.com/2b/imag
 3大将曾经合力挡住过一次，应该是类似冲击波这样的
 
 
-
-
-
-
-
 -----
 
 ####  taichiY  
 ##### 15053#       发表于 2010-3-11 13:46
 
 
-
 <blockquote>追杀穷寇比阻止有可能导致己方全灭的新威胁更重要?
-
 
 
 \"智将赤丸\"也不过如是罢了....
@@ -1051,16 +681,10 @@ kvkv 发表于 2010-3-11 13:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 海军那里有卡普，怕啥？
 
 
-
-
-
-
-
 -----
 
 ####  taichiY  
 ##### 15054#       发表于 2010-3-11 13:51
-
 
 
 <blockquote>没有人觉得振振果实很奇怪吗
@@ -1072,32 +696,19 @@ molilanmao 发表于 2010-3-11 13:31 <[img src="http://bbs.saraba1st.com/2b/imag
 轰雷果实什么时候成为最强的？<img src="https://static.saraba1st.com/image/smiley/face/168.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kangbaiyin  
 ##### 15055#       发表于 2010-3-11 13:56
 
 
-
-
 也许指的是雷迎
-
-
-
-
-
 
 
 -----
 
 ####  saverok  
 ##### 15056#       发表于 2010-3-11 13:56
-
 
 
 <blockquote>1。艾斯之死是铁定了的事实，黑胡子会将海军本部几乎毁灭，同时杀死一个大将。但其吸收2个恶魔果实也有副作用，使用过度会使2种能力都消失一段时间，并且将承受巨大的痛苦。
@@ -1109,21 +720,14 @@ sef 发表于 2010-3-11 13:32 <[img src="http://bbs.saraba1st.com/2b/images/comm
 黑历史的正体是拉达姆吗<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wingchau  
 ##### 15057#       发表于 2010-3-11 14:00
 
 
-
  本帖最后由 wingchau 于 2010-3-11 14:01 编辑 
 <blockquote>追杀穷寇比阻止有可能导致己方全灭的新威胁更重要?
-
 
 
 \"智将赤丸\"也不过如是罢了....
@@ -1133,16 +737,10 @@ kvkv 发表于 2010-3-11 13:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 眼看白胡子余党快要全军覆没了,放虎归山更不是什么明智的决定,况且其中还有路飞这么一个继承血脉与意志的超级不安定因素.
 
 
-
-
-
-
-
 -----
 
 ####  i20001381  
 ##### 15058#       发表于 2010-3-11 14:10
-
 
 
  本帖最后由 i20001381 于 2010-3-11 14:14 编辑 
@@ -1156,16 +754,10 @@ molilanmao 发表于 2010-3-11 13:31 <[img src="http://bbs.saraba1st.com/2b/imag
 其实之前就有过一个超人系了，狐狸海贼团的那个慢慢果实，发射慢慢光线，倒是也可以算作隔空发动~~~
 
 
-
-
-
-
-
 -----
 
 ####  molilanmao  
 ##### 15059#       发表于 2010-3-11 14:15
-
 
 
 <blockquote>3大将曾经合力挡住过一次，应该是类似冲击波这样的
@@ -1181,18 +773,9 @@ suika 发表于 2010-3-11 13:36 <[img src="http://bbs.saraba1st.com/2b/images/co
 2010-3-11 14:16 上传
 
 
-
-
-
-
 这跟挡住还是有点区别的
 
 不过这个姿势有点莫名其妙..........海贼王版雅典娜之叹息？
-
-
-
-
-
 
 
 -----
@@ -1201,22 +784,13 @@ suika 发表于 2010-3-11 13:36 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15060#       发表于 2010-3-11 14:35
 
 
-
-
 关于白胡子和震动果实的争论从战斗一开始就有了啊。。。
-
-
-
-
-
 
 
 -----
 
 ####  Nuriko  
 ##### 15061#       发表于 2010-3-11 15:31
-
-
 
 
 无责任猜测
@@ -1226,25 +800,13 @@ suika 发表于 2010-3-11 13:36 <[img src="http://bbs.saraba1st.com/2b/images/co
 吸收的果实能力大概不能再加以强化，原主把果实能力练就到什么程度，吸收之后也就什么程度，所以选当世最强的白胡子。（不然换我我肯定倾向于吸艾斯啊……
 
 
-
-
-
-
-
 -----
 
 ####  雅格特  
 ##### 15062#       发表于 2010-3-11 15:54
 
 
-
-
 别的不说，战国是真吃大鳖了。。招安黑胡子这种引狼入室。。。。。。。。。。
-
-
-
-
-
 
 
 -----
@@ -1253,14 +815,7 @@ suika 发表于 2010-3-11 13:36 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15063#       发表于 2010-3-11 16:00
 
 
-
-
 黑胡子这下得有赏金了吧 得有了吧
-
-
-
-
-
 
 
 -----
@@ -1269,14 +824,7 @@ suika 发表于 2010-3-11 13:36 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15064#       发表于 2010-3-11 16:02
 
 
-
-
 赏金你得看他逃不逃啊。。。
-
-
-
-
-
 
 
 -----
@@ -1285,14 +833,7 @@ suika 发表于 2010-3-11 13:36 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15065#       发表于 2010-3-11 16:48
 
 
-
-
 什么时候雷果实成为公认最强了？
-
-
-
-
-
 
 
 -----
@@ -1301,23 +842,15 @@ suika 发表于 2010-3-11 13:36 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15066#       发表于 2010-3-11 16:52
 
 
-
 <blockquote>什么时候雷果实成为公认最强了？
 鬼嘲风 发表于 2010-3-11 16:48 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 最强几个“之一”，罗宾说的
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15067#       发表于 2010-3-11 17:05
-
-
 
 
 基本只要是自然系就可以非常强了。
@@ -1333,16 +866,10 @@ suika 发表于 2010-3-11 13:36 <[img src="http://bbs.saraba1st.com/2b/images/co
 因为其实这两个才是胡克的，结果都当了大将，只能期待他们之间内斗了。
 
 
-
-
-
-
-
 -----
 
 ####  zdh  
 ##### 15068#       发表于 2010-3-11 17:23
-
 
 
 <blockquote>无责任猜测
@@ -1354,16 +881,10 @@ Nuriko 发表于 2010-3-11 15:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 如果推测正确，OP最终打倒黑胡子可能是某人硬将自己的能力塞给他，让他承受不了爆了，最好是路飞，这样黑胡子挂了，路飞也没了能力，大结局完美
 
 
-
-
-
-
-
 -----
 
 ####  wingchau  
 ##### 15069#       发表于 2010-3-11 17:27
-
 
 
 <blockquote>基本只要是自然系就可以非常强了。
@@ -1381,16 +902,10 @@ Nuriko 发表于 2010-3-11 15:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 黄猴子不止会放激光还会光速射球啊,不好反.
 
 
-
-
-
-
-
 -----
 
 ####  molilanmao  
 ##### 15070#       发表于 2010-3-11 17:31
-
 
 
 <blockquote>什么时候雷果实成为公认最强了？
@@ -1408,29 +923,13 @@ Nuriko 发表于 2010-3-11 15:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 2010-3-11 17:31 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  洛伦兹变换  
 ##### 15071#       发表于 2010-3-11 17:38
 
 
-
-
 是之一 还不是最强
-
-
-
-
-
 
 
 -----
@@ -1439,14 +938,7 @@ Nuriko 发表于 2010-3-11 15:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15072#       发表于 2010-3-11 18:31
 
 
-
-
 只是说“雷之力”是自然系能力里最强的之一，并非说这个果实啊
-
-
-
-
-
 
 
 -----
@@ -1455,14 +947,7 @@ Nuriko 发表于 2010-3-11 15:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15073#       发表于 2010-3-11 18:36
 
 
-
-
 黑胡子到底怎么个特殊法 可以拥有2个果实能力. wt这次真不厚道。
-
-
-
-
-
 
 
 -----
@@ -1471,14 +956,7 @@ Nuriko 发表于 2010-3-11 15:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15074#       发表于 2010-3-11 19:37
 
 
-
-
 话说这次白胡子死了，旁边有个大框 【死亡】。 貌似Ace死的时候没有哎。 当然我不反对luffy把Ace的果实也吸收了。。
-
-
-
-
-
 
 
 -----
@@ -1487,15 +965,9 @@ Nuriko 发表于 2010-3-11 15:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15075#       发表于 2010-3-11 19:46
 
 
-
 <blockquote>如果推测正确，OP最终打倒黑胡子可能是某人硬将自己的能力塞给他，让他承受不了爆了，最好是路飞，这样黑胡子挂了，路飞也没了能力，大结局完美 ...
 zdh 发表于 2010-3-11 17:23 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 尾田不会去看风云第二部吧……
-
-
-
-
-
 
 
 -----
@@ -1504,16 +976,10 @@ zdh 发表于 2010-3-11 17:23 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15076#       发表于 2010-3-11 19:48
 
 
-
 <blockquote>话说这次白胡子死了，旁边有个大框 【死亡】。 貌似Ace死的时候没有哎。 当然我不反对luffy把Ace的果实也吸收了。。
 kirua 发表于 2010-3-11 19:37 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 带火属性的主角 故事正式开始
-
-
-
-
-
 
 
 -----
@@ -1522,14 +988,7 @@ kirua 发表于 2010-3-11 19:37 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15077#       发表于 2010-3-11 19:57
 
 
-
-
 靠，雷利居然在一旁喝酒看转播......<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1538,24 +997,16 @@ kirua 发表于 2010-3-11 19:37 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15078#       发表于 2010-3-11 20:05
 
 
-
 <strong> [15141#](http://bbs.saraba1st.com/2b/redirect.php?goto=findpost&amp;pid=11343762&amp;ptid=98922) cloudhp7777 </strong>
 
 
-
 那别多猜了，加入的第10人肯定是吃了翅膀果实的猫。爱！
-
-
-
-
-
 
 
 -----
 
 ####  AD  
 ##### 15079#       发表于 2010-3-11 20:21
-
 
 
 <blockquote>OP黑鬍子的全名是Marshall D. Teach，
@@ -1575,25 +1026,13 @@ kirua 发表于 2010-3-11 19:37 <[img src="http://bbs.saraba1st.com/2b/images/co
 这段考据GJ
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 15080#       发表于 2010-3-11 21:01
 
 
-
-
 尾田早就说了，白胡子和黑胡子的名字取自历史上的黑胡子——他最喜欢的海盗
-
-
-
-
-
 
 
 -----
@@ -1602,20 +1041,13 @@ kirua 发表于 2010-3-11 19:37 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15081#       发表于 2010-3-11 21:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">海军有点危险了啊……关键海军没有退路，如果在这里被打败了的话，不就等于世界政府被推翻了么。
-
-
-
-
-
 
 
 -----
 
 ####  heavy_d  
 ##### 15082#       发表于 2010-3-11 21:35
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">海军有点危险了啊……关键海军没有退路，如果在这里被打败了的话，不就等于世界政府被推翻了么。
@@ -1630,32 +1062,19 @@ kirua 发表于 2010-3-11 19:37 <[img src="http://bbs.saraba1st.com/2b/images/co
 现在黑胡子明显有终极BOSS相，不知道尾田怎么处理，让三方势力从大事件中全身而退。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15083#       发表于 2010-3-11 21:38
 
 
-
-
 世界政府还有陆军和空军（陆军肯定有，空军未证实），还有cp0——cp8，亲卫队，等等等。
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15084#       发表于 2010-3-11 21:46
-
 
 
 <blockquote>世界政府还有陆军和空军（陆军肯定有，空军未证实），还有cp0——cp8，亲卫队，等等等。
@@ -1666,25 +1085,13 @@ kirua 发表于 2010-3-11 19:37 <[img src="http://bbs.saraba1st.com/2b/images/co
 cp系列我记得是类似间谍组织什么的吧，战斗实力应该不会太强
 
 
-
-
-
-
-
 -----
 
 ####  thez  
 ##### 15085#       发表于 2010-3-11 21:55
 
 
-
-
 我相信MR2趁黑胡子袭击监狱逃了出来，然后上船
-
-
-
-
-
 
 
 -----
@@ -1693,14 +1100,7 @@ cp系列我记得是类似间谍组织什么的吧，战斗实力应该不会太
 ##### 15086#       发表于 2010-3-11 21:55
 
 
-
-
 战国从头到尾都是个SB，纯的，刻画完全失败
-
-
-
-
-
 
 
 -----
@@ -1709,14 +1109,7 @@ cp系列我记得是类似间谍组织什么的吧，战斗实力应该不会太
 ##### 15087#       发表于 2010-3-11 21:58
 
 
-
-
 话说马林繁多毁成这样，以后海军上哪办公……
-
-
-
-
-
 
 
 -----
@@ -1725,22 +1118,15 @@ cp系列我记得是类似间谍组织什么的吧，战斗实力应该不会太
 ##### 15088#       发表于 2010-3-11 22:35
 
 
-
 <blockquote>战国从头到尾都是个SB，纯的，刻画完全失败
 thez 发表于 2010-3-11 21:55 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 一开始全都算中的，就是喜欢流汗怎么了
-
-
-
-
-
 
 
 -----
 
 ####  flll  
 ##### 15089#       发表于 2010-3-11 22:42
-
 
 
 <blockquote>话说马林繁多毁成这样，以后海军上哪办公……
@@ -1752,25 +1138,13 @@ Nuriko 发表于 2010-3-11 21:58 <[img src="http://bbs.saraba1st.com/2b/images/c
 当然现在大事件还没完，海军还需不需要一个常驻办公室还不确定吧
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15090#       发表于 2010-3-11 22:50
 
 
-
-
 其实山贼这么不成器，会不会是因为陆军极为强大？
-
-
-
-
-
 
 
 -----
@@ -1779,14 +1153,7 @@ Nuriko 发表于 2010-3-11 21:58 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15091#       发表于 2010-3-11 22:51
 
 
-
-
 吸收了也好，实际上在之后的剧情中会由黑胡子运用果实能力来不停提醒读者白胡子的存在感，虽然未必这是他的本意
-
-
-
-
-
 
 
 -----
@@ -1795,15 +1162,9 @@ Nuriko 发表于 2010-3-11 21:58 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15092#       发表于 2010-3-11 22:52
 
 
-
 <blockquote>我相信MR2趁黑胡子袭击监狱逃了出来，然后上船
 thez 发表于 2010-3-11 21:55 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 就冲着cv，她也上不了船了
-
-
-
-
-
 
 
 -----
@@ -1812,16 +1173,10 @@ thez 发表于 2010-3-11 21:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15093#       发表于 2010-3-11 22:57
 
 
-
 <blockquote>其实山贼这么不成器，会不会是因为陆军极为强大？
 燃夜郎君 发表于 2010-3-11 22:50 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 我一直觉得正好相反，目前除了圣地没有任何关于红土大陆的描写，我怀疑上面不是不能住人就是被天龙人独占了。
-
-
-
-
-
 
 
 -----
@@ -1830,14 +1185,7 @@ thez 发表于 2010-3-11 21:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15094#       发表于 2010-3-11 22:57
 
 
-
-
 我说..果实本身可能会受到携带者意志的感染么?
-
-
-
-
-
 
 
 -----
@@ -1846,14 +1194,7 @@ thez 发表于 2010-3-11 21:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15095#       发表于 2010-3-11 22:58
 
 
-
-
 怎么看都是响雷果实最强，他打得到你，你打不到他
-
-
-
-
-
 
 
 -----
@@ -1862,16 +1203,10 @@ thez 发表于 2010-3-11 21:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15096#       发表于 2010-3-11 23:13
 
 
-
 <blockquote>我说..果实本身可能会受到携带者意志的感染么?
 柏露伯德 发表于 2010-3-11 22:57 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 如果真那样的话，那黑胡子毋庸置疑会成为各种意义上的“最强”了
-
-
-
-
-
 
 
 -----
@@ -1880,13 +1215,7 @@ thez 发表于 2010-3-11 21:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15097#       发表于 2010-3-11 23:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/20.gif" referrerpolicy="no-referrer">没想到这么多年过去了，艾尼路厨还在孜孜不倦地布教
-
-
-
-
-
 
 
 -----
@@ -1895,15 +1224,9 @@ thez 发表于 2010-3-11 21:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15098#       发表于 2010-3-11 23:52
 
 
-
 <blockquote>如果真那样的话，那黑胡子毋庸置疑会成为各种意义上的“最强”了
 wolfjw 发表于 2010-3-11 23:13 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 如果那样黑胡子估计会被反噬吧,那毕竟是老爹的意志
-
-
-
-
-
 
 
 -----
@@ -1912,22 +1235,15 @@ wolfjw 发表于 2010-3-11 23:13 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15099#       发表于 2010-3-12 05:52
 
 
-
  本帖最后由 市杵宍姫命 于 2010-3-12 06:55 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face/179.gif" referrerpolicy="no-referrer">怎麼這樣都覺得算是吃了2個果實,這是黑暗果實能力之一吧,團長得到那麼多念能力都好像沒什麽人說
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15100#       发表于 2010-3-12 06:07
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/179.gif" referrerpolicy="no-referrer">怎麼這樣都覺得酸是吃了2個果實,這是黑暗果實能力之一吧,團長得到那麼多念能力都好像沒什麽人說
@@ -1944,16 +1260,10 @@ wolfjw 发表于 2010-3-11 23:13 <[img src="http://bbs.saraba1st.com/2b/images/c
 一个人只能吃一个果实是尾田一贯的设定，但尾田没有设定过一个人只能用一种能力。
 
 
-
-
-
-
-
 -----
 
 ####  AD  
 ##### 15101#       发表于 2010-3-12 07:47
-
 
 
 <blockquote>尾田早就说了，白胡子和黑胡子的名字取自历史上的黑胡子——他最喜欢的海盗
@@ -1962,25 +1272,13 @@ ScarletMoon 发表于 2010-3-11 21:01 <[img src="http://bbs.saraba1st.com/2b/ima
 看明白了，那段考据在把WT这次的安排合理化。现在只要等WT解释黑胡子的体质和吸收果实的原理。
 
 
-
-
-
-
-
 -----
 
 ####  kirua  
 ##### 15102#       发表于 2010-3-12 08:39
 
 
-
-
 我说，你们不能因为东海的山贼打不过红发就说他弱吧。。
-
-
-
-
-
 
 
 -----
@@ -1989,16 +1287,9 @@ ScarletMoon 发表于 2010-3-11 21:01 <[img src="http://bbs.saraba1st.com/2b/ima
 ##### 15103#       发表于 2010-3-12 09:02
 
 
-
-
 看了这话
 
 甚平上船的几率一下子增加了吧....
-
-
-
-
-
 
 
 -----
@@ -2007,15 +1298,9 @@ ScarletMoon 发表于 2010-3-11 21:01 <[img src="http://bbs.saraba1st.com/2b/ima
 ##### 15104#       发表于 2010-3-12 09:12
 
 
-
 <blockquote>我说，你们不能因为东海的山贼打不过红发就说他弱吧。。
 kirua 发表于 2010-3-12 08:39 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 +1，一个普通山贼就能连累一个四皇丢掉只胳膊，可见山贼的能耐远强过海贼。
-
-
-
-
-
 
 
 -----
@@ -2024,16 +1309,10 @@ kirua 发表于 2010-3-12 08:39 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15105#       发表于 2010-3-12 09:27
 
 
-
 <blockquote>+1，一个普通山贼就能连累一个四皇丢掉只胳膊，可见山贼的能耐远强过海贼。
 qweqweqwe 发表于 2010-3-12 09:12 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 红发丢胳膊与山贼无关~
-
-
-
-
-
 
 
 -----
@@ -2042,18 +1321,10 @@ qweqweqwe 发表于 2010-3-12 09:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15106#       发表于 2010-3-12 10:00
 
 
-
-
 有点关系  没有山贼路飞也不会吃恶魔果实，也不会掉水了 更不会遇到海王类
 
 
-
 黑胡子：小老弟 你耍个阴谋害害红毛 我来照顾你的家人<img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2062,17 +1333,10 @@ qweqweqwe 发表于 2010-3-12 09:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15107#       发表于 2010-3-12 10:01
 
 
-
-
 也不能那么说
 
 
 倒过来还可以说 没有红发 山贼就不会逃跑 也不会把路飞带海里去 路飞还没危险呢 红发因为不在 就不可能断胳膊了
-
-
-
-
-
 
 
 -----
@@ -2081,22 +1345,13 @@ qweqweqwe 发表于 2010-3-12 09:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15108#       发表于 2010-3-12 10:47
 
 
-
-
 现在路飞他们乘坐的船已经给冻上了，如果没有其他途径离开或是青稚放水，恐怕比较难了……同时，黑胡子当前，如果有一个大将非得便不可当的话，不放水的青稚就危险了……
-
-
-
-
-
 
 
 -----
 
 ####  狮子歌歌  
 ##### 15109#       发表于 2010-3-12 10:54
-
-
 
 
 艾尼路的轰雷果实真是个好例子
@@ -2108,26 +1363,15 @@ qweqweqwe 发表于 2010-3-12 09:12 <[img src="http://bbs.saraba1st.com/2b/image
 黑胡子要是吸收烧烧果实才是没脑子
 
 
-
-
-
-
-
 -----
 
 ####  GLARE  
 ##### 15110#       发表于 2010-3-12 11:34
 
 
-
 <blockquote>+1，一个普通山贼就能连累一个四皇丢掉只胳膊，可见山贼的能耐远强过海贼。
 qweqweqwe 发表于 2010-3-12 09:12 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 过于牵强
-
-
-
-
-
 
 
 -----
@@ -2136,17 +1380,10 @@ qweqweqwe 发表于 2010-3-12 09:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15111#       发表于 2010-3-12 12:55
 
 
-
-
 有没有人觉得会是大将全灭，老一辈全灭
 
 
 真正迎来一群新人向黑胡子发起冲击的“新时代”？
-
-
-
-
-
 
 
 -----
@@ -2155,21 +1392,13 @@ qweqweqwe 发表于 2010-3-12 09:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15112#       发表于 2010-3-12 12:57
 
 
-
-
 我只想知道战国的真实战斗能力……
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15113#       发表于 2010-3-12 13:07
-
 
 
 <blockquote>有没有人觉得会是大将全灭，老一辈全灭
@@ -2182,16 +1411,10 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 凭现在的黑胡子能全灭大将?    <img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  点数不足  
 ##### 15114#       发表于 2010-3-12 13:14
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/85.gif" referrerpolicy="no-referrer">能不能全灭不知道 但是又能化解又能攻击的确很赞
@@ -2199,16 +1422,10 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 只有霸气可以降服他了
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15115#       发表于 2010-3-12 13:19
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/85.gif" referrerpolicy="no-referrer">能不能全灭不知道 但是又能化解又能攻击的确很赞
@@ -2223,16 +1440,10 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 纯体术就可以了.....
 
 
-
-
-
-
-
 -----
 
 ####  犀利  
 ##### 15116#       发表于 2010-3-12 13:24
-
 
 
  本帖最后由 犀利 于 2010-3-12 13:29 编辑 
@@ -2243,25 +1454,13 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 黑胡子别在下一话立刻吃瘪就好。
 
 
-
-
-
-
-
 -----
 
 ####  Febird  
 ##### 15117#       发表于 2010-3-12 13:29
 
 
-
-
 卡普，战国一直没认真过啊
-
-
-
-
-
 
 
 -----
@@ -2270,14 +1469,7 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15118#       发表于 2010-3-12 13:31
 
 
-
-
 黑胡子靠的纯能力 又不会武功 整一傻X 很快就吃瘪的
-
-
-
-
-
 
 
 -----
@@ -2286,21 +1478,13 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15119#       发表于 2010-3-12 13:38
 
 
-
-
 吉：原来如此，一个傻x把红发抓瞎了。是啊是啊，红发连鲨鱼都打不过~
-
-
-
-
-
 
 
 -----
 
 ####  yellowboat  
 ##### 15120#       发表于 2010-3-12 13:46
-
 
 
 <blockquote>艾尼路的轰雷果实真是个好例子
@@ -2314,16 +1498,10 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 我记得那个雷迎没有砸到岛就失败了。
 
 
-
-
-
-
-
 -----
 
 ####  lxaihlj  
 ##### 15121#       发表于 2010-3-12 14:00
-
 
 
 <blockquote>黑胡子靠的纯能力 又不会武功 整一傻X 很快就吃瘪的
@@ -2333,25 +1511,13 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 那他怎么伤到红发的,还是没有恶魔果实能力之前
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15122#       发表于 2010-3-12 14:04
 
 
-
-
 白胡子还被枪干掉呢，我就不懂红发被鲨鱼咬断手有什么奇怪的。
-
-
-
-
-
 
 
 -----
@@ -2360,22 +1526,13 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15123#       发表于 2010-3-12 14:26
 
 
-
-
 结局是海军+海贼VS最终BOSS黑胡子<img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 15124#       发表于 2010-3-12 14:29
-
-
 
 
 黑胡子就算不能全灭海军，起码也能重创啊
@@ -2387,32 +1544,19 @@ LichEnd 发表于 2010-3-12 12:55 <[img src="http://bbs.saraba1st.com/2b/images/
 OP第二部才缓缓拉开帷幕……
 
 
-
-
-
-
-
 -----
 
 ####  suika  
 ##### 15125#       发表于 2010-3-12 14:32
 
 
-
-
 只要WT愿意，立马给黑胡子一个海楼石手铐，看他再牛逼
-
-
-
-
-
 
 
 -----
 
 ####  市杵宍姫命  
 ##### 15126#       发表于 2010-3-12 15:20
-
 
 
  本帖最后由 市杵宍姫命 于 2010-3-12 15:22 编辑 
@@ -2423,16 +1567,10 @@ OP第二部才缓缓拉开帷幕……
 其實卡普用拳打炸彈那招用來搞應該也很那啥,如果能發揮正常破壞力
 
 
-
-
-
-
-
 -----
 
 ####  奇牙  
 ##### 15127#       发表于 2010-3-12 15:20
-
 
 
 <blockquote>看了这话
@@ -2442,17 +1580,10 @@ OP第二部才缓缓拉开帷幕……
 甚平便当的几率一下子增加了……
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15128#       发表于 2010-3-12 16:37
-
-
 
 
 甚平现在没必要死吧。这个角色虽然刻画得还可以，可是在这种场合死掉的话，很难给读者带来感情上的波动。
@@ -2464,16 +1595,10 @@ OP第二部才缓缓拉开帷幕……
 PS：甚平是最不装13的的BOSS没有之一
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15129#       发表于 2010-3-12 16:41
-
 
 
 <blockquote>看了这话
@@ -2485,16 +1610,10 @@ PS：甚平是最不装13的的BOSS没有之一
 增加了至少10个百分点。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15130#       发表于 2010-3-12 16:46
-
 
 
  本帖最后由 不败之狼 于 2010-3-12 16:49 编辑 
@@ -2502,15 +1621,10 @@ PS：甚平是最不装13的的BOSS没有之一
 下这周动画时候看到的<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
 
-
-
-
 其实一直都不想说，不过确实银魂会在下一周迎来最后一话。
 
 
 4月1日（周4）下午的番组会改放送其他动画，好象是部萝卜片。
-
-
 
 
 数数这么些年完结的长篇也不下数10部了，因为也并非最终完结，
@@ -2522,28 +1636,16 @@ PS：甚平是最不装13的的BOSS没有之一
 所以不必太悲伤、沮丧。
 
 
-
-
 本周夹带了月历一份，另外新ED的EAC也已经流出，有兴趣的朋友
 
 
 可以搜索一下。
 
 
-
-
 3.12.10    LAC
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 我进错楼了……
-
-
-
-
-
 
 
 -----
@@ -2552,17 +1654,10 @@ PS：甚平是最不装13的的BOSS没有之一
 ##### 15131#       发表于 2010-3-12 17:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">LS，我还认真看完了。。
 
 
-
 也许路飞一行趁海军和黑胡子交战逃跑，然后来第二部，虽然有点憋屈。。。
-
-
-
-
-
 
 
 -----
@@ -2571,14 +1666,7 @@ PS：甚平是最不装13的的BOSS没有之一
 ##### 15132#       发表于 2010-3-12 17:48
 
 
-
-
 这也能进错棚,233max
-
-
-
-
-
 
 
 -----
@@ -2587,22 +1675,15 @@ PS：甚平是最不装13的的BOSS没有之一
 ##### 15133#       发表于 2010-3-12 17:55
 
 
-
 <blockquote>我记得那个雷迎没有砸到岛就失败了。
 yellowboat 发表于 2010-3-12 13:46 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 砸到了，大地晃动了几下就没事了，然后路人纷纷感叹土地的伟大并对以前的战争进行了反思。
-
-
-
-
-
 
 
 -----
 
 ####  项少龙  
 ##### 15134#       发表于 2010-3-12 18:23
-
 
 
 <blockquote>砸到了，大地晃动了几下就没事了，然后路人纷纷感叹土地的伟大并对以前的战争进行了反思。
@@ -2612,16 +1693,10 @@ HSSS 发表于 2010-3-12 17:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 本来把雷引到地上就没威力了，艾尼路没见识过避雷针
 
 
-
-
-
-
-
 -----
 
 ####  我爱喵喵  
 ##### 15135#       发表于 2010-3-12 19:12
-
 
 
 <blockquote>本来把雷引到地上就没威力了，艾尼路没见识过避雷针
@@ -2629,16 +1704,10 @@ HSSS 发表于 2010-3-12 17:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 这话由你来说有种莫名的喜感233
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15136#       发表于 2010-3-12 21:19
-
 
 
 <blockquote>砸到了，大地晃动了几下就没事了，然后路人纷纷感叹土地的伟大并对以前的战争进行了反思。
@@ -2649,25 +1718,13 @@ HSSS 发表于 2010-3-12 17:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 最后那个大雷迎不是被路飞的黄金蛋搞没了么
 
 
-
-
-
-
-
 -----
 
 ####  g272y  
 ##### 15137#       发表于 2010-3-12 22:36
 
 
-
-
 海军怕地震果实是因为可以引起海啸把岛都给淹了吧 OP世界里好像几乎都是岛来着
-
-
-
-
-
 
 
 -----
@@ -2676,15 +1733,9 @@ HSSS 发表于 2010-3-12 17:55 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15138#       发表于 2010-3-12 23:13
 
 
-
 <blockquote>凭现在的黑胡子能全灭大将?    <img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 kvkv 发表于 2010-3-12 13:07 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 全灭不行，不过青雉挂掉的可能还是很高的
-
-
-
-
-
 
 
 -----
@@ -2693,15 +1744,9 @@ kvkv 发表于 2010-3-12 13:07 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15139#       发表于 2010-3-12 23:14
 
 
-
 <blockquote>全灭不行，不过青雉挂掉的可能还是很高的
 TCTF 发表于 2010-3-12 23:13 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 青雉有死亡flag了？
-
-
-
-
-
 
 
 -----
@@ -2710,21 +1755,13 @@ TCTF 发表于 2010-3-12 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15140#       发表于 2010-3-12 23:30
 
 
-
-
 青鸡要挂起码罗宾要在场吧
-
-
-
-
-
 
 
 -----
 
 ####  白河亜紀  
 ##### 15141#       发表于 2010-3-12 23:37
-
 
 
 <blockquote>青鸡要挂起码罗宾要在场吧
@@ -2734,24 +1771,13 @@ hagane 发表于 2010-3-12 23:30 <[img src="http://bbs.saraba1st.com/2b/images/c
 子安你可不能死啊！鹰眼你赶紧削黑胡子阿！
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 15142#       发表于 2010-3-12 23:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/156.jpg" referrerpolicy="no-referrer">现在没任何消息说其他成员有看到直播哟
-
-
-
-
-
 
 
 -----
@@ -2760,21 +1786,13 @@ hagane 发表于 2010-3-12 23:30 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15143#       发表于 2010-3-12 23:44
 
 
-
-
 新时代到来的话，卡普会不会顺便死一死？？？
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15144#       发表于 2010-3-12 23:47
-
 
 
 <blockquote>全灭不行，不过青雉挂掉的可能还是很高的
@@ -2786,13 +1804,7 @@ TCTF 发表于 2010-3-12 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 他不是去追杀白胡子海贼团了么.....
 
 
-
 为什么要\"特指\"青雉?
-
-
-
-
-
 
 
 -----
@@ -2801,15 +1813,9 @@ TCTF 发表于 2010-3-12 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15145#       发表于 2010-3-12 23:47
 
 
-
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/156.jpg" referrerpolicy="no-referrer">现在没任何消息说其他成员有看到直播哟
 hagane 发表于 2010-3-12 23:40 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 也可以看重播嘛<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2818,23 +1824,15 @@ hagane 发表于 2010-3-12 23:40 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15146#       发表于 2010-3-13 00:31
 
 
-
-
 现在没人关注封面了咩？
 
 乔巴和索隆那个算汇合不？如此一来会不会饱受打击的路飞逃离之后根本就没有一个找同伴的过程而是和已经集结好的其他人直接汇合？
-
-
-
-
-
 
 
 -----
 
 ####  ScarletMoon  
 ##### 15147#       发表于 2010-3-13 00:32
-
 
 
 <blockquote>现在没人关注封面了咩？
@@ -2844,17 +1842,10 @@ GAKI 发表于 2010-3-13 00:31 <[img src="http://bbs.saraba1st.com/2b/images/com
 最近的扉页都是无剧情的
 
 
-
-
-
-
-
 -----
 
 ####  PATLABOR  
 ##### 15148#       发表于 2010-3-13 01:11
-
-
 
 
 不知道鹰眼一刀能将黑胡子分尸么。
@@ -2862,16 +1853,10 @@ GAKI 发表于 2010-3-13 00:31 <[img src="http://bbs.saraba1st.com/2b/images/com
 话说回来，为什么白胡子那一刀没把黑胡子削了？难道这厮的身体真的如此结构独特？！ <img src="https://static.saraba1st.com/image/smiley/face/155.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kidthief  
 ##### 15149#       发表于 2010-3-13 01:31
-
 
 
 <blockquote>不知道鹰眼一刀能将黑胡子分尸么。
@@ -2883,25 +1868,13 @@ PATLABOR 发表于 2010-3-13 01:11 <[img src="http://bbs.saraba1st.com/2b/images
 路飞，双果实，你也行的！
 
 
-
-
-
-
-
 -----
 
 ####  音速贵公子  
 ##### 15150#       发表于 2010-3-13 04:13
 
 
-
-
 蓝鸡可不能死啊，黄猴也不尽力打的样子估计也死不了，不如让红狗去死死吧
-
-
-
-
-
 
 
 -----
@@ -2910,21 +1883,13 @@ PATLABOR 发表于 2010-3-13 01:11 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15151#       发表于 2010-3-13 10:40
 
 
-
-
 黑胡子现在真的是自然系克星了，封印住能力再震一下
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15152#       发表于 2010-3-13 12:45
-
 
 
 <blockquote>现在没人关注封面了咩？
@@ -2936,17 +1901,10 @@ GAKI 发表于 2010-3-13 00:31 <[img src="http://bbs.saraba1st.com/2b/images/com
 扉页不带小字的都不能算作剧情.....
 
 
-
-
-
-
-
 -----
 
 ####  dewey  
 ##### 15153#       发表于 2010-3-13 13:02
-
-
 
 
 夺取了白胡子的能力后，黑胡子终于归位了 
@@ -2960,16 +1918,10 @@ GAKI 发表于 2010-3-13 00:31 <[img src="http://bbs.saraba1st.com/2b/images/com
 觉得下次或者下下次的扉页会以麦哲伦、汉尼拔等为主角
 
 
-
-
-
-
-
 -----
 
 ####  heavy_d  
 ##### 15154#       发表于 2010-3-13 18:04
-
 
 
 <blockquote>应该是因为没有余力了
@@ -2980,26 +1932,15 @@ kidthief 发表于 2010-3-13 01:31 <[img src="http://bbs.saraba1st.com/2b/images
 如果路飞也双果实的话，有点那啥了。。。。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  TCTF  
 ##### 15155#       发表于 2010-3-13 18:06
 
 
-
 <blockquote>青雉有死亡flag了？
 zealotssas 发表于 2010-3-12 23:14 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 三大将不死一个好意思说是大事件？要不你让卡普战国死？想来想去，也就青雉命背，好人不长命啊
-
-
-
-
-
 
 
 -----
@@ -3008,14 +1949,7 @@ zealotssas 发表于 2010-3-12 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15156#       发表于 2010-3-13 18:18
 
 
-
-
 青雉不死怎么开船 海都冰着呢
-
-
-
-
-
 
 
 -----
@@ -3024,16 +1958,9 @@ zealotssas 发表于 2010-3-12 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15157#       发表于 2010-3-13 18:22
 
 
-
-
 唐吉歌德倒戈控制红狗化冰,海贼顺利逃脱
 
 这是不是很狗血
-
-
-
-
-
 
 
 -----
@@ -3042,16 +1969,9 @@ zealotssas 发表于 2010-3-12 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15158#       发表于 2010-3-13 18:29
 
 
-
-
 唐控制红狗的话应该也只能几秒左右吧…
 
 海贼逃跑对他有什么好处吗？他跑不了的话就会被<img src="https://static.saraba1st.com/image/smiley/face/156.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3060,15 +1980,9 @@ zealotssas 发表于 2010-3-12 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15159#       发表于 2010-3-13 18:41
 
 
-
 <blockquote>三大将不死一个好意思说是大事件？要不你让卡普战国死？想来想去，也就青雉命背，好人不长命啊
 TCTF 发表于 2010-3-13 18:06 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 总感觉青鸡上船的几率大于便当的几率
-
-
-
-
-
 
 
 -----
@@ -3077,14 +1991,7 @@ TCTF 发表于 2010-3-13 18:06 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15160#       发表于 2010-3-13 18:42
 
 
-
-
 七武海应该会更加努力地打酱油.
-
-
-
-
-
 
 
 -----
@@ -3093,21 +2000,13 @@ TCTF 发表于 2010-3-13 18:06 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15161#       发表于 2010-3-13 18:52
 
 
-
-
 堂吉诃德的线能控制没有实体的自然系？
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15162#       发表于 2010-3-13 19:00
-
 
 
 <blockquote>三大将不死一个好意思说是大事件？要不你让卡普战国死？想来想去，也就青雉命背，好人不长命啊
@@ -3117,20 +2016,13 @@ TCTF 发表于 2010-3-13 18:06 <[img src="http://bbs.saraba1st.com/2b/images/com
 ORZ,大事件是由你来\"定义\"的?
 
 
-
 单白胡子战死就已经是绝对的大事件了好不?
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15163#       发表于 2010-3-13 19:02
-
 
 
 <blockquote>青雉不死怎么开船 海都冰着呢
@@ -3143,25 +2035,13 @@ ORZ,大事件是由你来\"定义\"的?
 海水的冰冻状态又不必青雉的能力来\"维持\"的......
 
 
-
-
-
-
-
 -----
 
 ####  kirua  
 ##### 15164#       发表于 2010-3-13 19:13
 
 
-
-
 接着ls的推理，也就是说要么Ace活过来要么有人吞了Ace的能力来帮大海解冻，否则就逃不走了
-
-
-
-
-
 
 
 -----
@@ -3170,40 +2050,13 @@ ORZ,大事件是由你来\"定义\"的?
 ##### 15165#       发表于 2010-3-13 19:16
 
 
-
 <blockquote>接着ls的推理，也就是说要么Ace活过来要么有人吞了Ace的能力来帮大海解冻，否则就逃不走了
 kirua 发表于 2010-3-13 19:13 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 接你的推理,初见青雉时,青雉放的那条冰冻大道也要青雉死掉才解冻了?
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 破冰船不是一早就已经出现了么............................
-
-
-
-
-
 
 
 -----
@@ -3212,14 +2065,7 @@ kirua 发表于 2010-3-13 19:13 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15166#       发表于 2010-3-13 19:16
 
 
-
-
 冰之魔女是干甚么吃的
-
-
-
-
-
 
 
 -----
@@ -3228,11 +2074,7 @@ kirua 发表于 2010-3-13 19:13 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15167#       发表于 2010-3-13 19:23
 
 
-
-
 很难明白有些家伙为什么会认为青雉的冰封大海是无法破解的....这是什么心理啊....
-
-
 
 
 别说破冰船什么的,
@@ -3244,20 +2086,13 @@ kirua 发表于 2010-3-13 19:13 <[img src="http://bbs.saraba1st.com/2b/images/co
 三队长随便一挖也能挖出个大窟窿....
 
 
-
 大海冰冻真的很难破解么,真的么?
-
-
-
-
-
 
 
 -----
 
 ####  kirua  
 ##### 15168#       发表于 2010-3-13 19:28
-
 
 
 <blockquote>接你的推理,初见青雉时,青雉放的那条冰冻大道也要青雉死掉才解冻了?
@@ -3274,25 +2109,13 @@ kvkv 发表于 2010-3-13 19:16 <[img src="http://bbs.saraba1st.com/2b/images/com
 你要说鹰眼可以一刀批了冰山，那要是有人说冰山下面全是冰，整块都冻结了，没水了，开不了，怎么样呢？你又可以接着说一刀劈得深点劈刀地底岩浆出来化冰就好了，这样的来回可以很久很久。。。  歇歇吧
 
 
-
-
-
-
-
 -----
 
 ####  ikusgca  
 ##### 15169#       发表于 2010-3-13 19:28
 
 
-
-
 黑胡子就能把冰震碎了
-
-
-
-
-
 
 
 -----
@@ -3301,21 +2124,13 @@ kvkv 发表于 2010-3-13 19:16 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15170#       发表于 2010-3-13 19:33
 
 
-
-
 btw 其实我是觉得青稚死了就会化冰的  不过什么让队长来挖冰也太好笑了点 你以为扫雪么……
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15171#       发表于 2010-3-13 19:34
-
 
 
 <blockquote>我只是基于我ls的推理，你要是基于他也基于我就不会得出要也要青雉死掉才能解决，因为我ls的说了青稚不是在维持冰，这跟他的死没关系。 所以请看清楚再说罗。
@@ -3328,17 +2143,10 @@ kirua 发表于 2010-3-13 19:28 <[img src="http://bbs.saraba1st.com/2b/images/co
 你LS正是我,谢谢
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15172#       发表于 2010-3-13 19:38
-
-
 
 
 有青鸡在边上
@@ -3346,16 +2154,10 @@ kirua 发表于 2010-3-13 19:28 <[img src="http://bbs.saraba1st.com/2b/images/co
 是破冰快还是结冰快？
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15173#       发表于 2010-3-13 19:41
-
 
 
 <blockquote>btw 其实我是觉得青稚死了就会化冰的  不过什么让队长来挖冰也太好笑了点 你以为扫雪么……
@@ -3366,26 +2168,16 @@ kirua 发表于 2010-3-13 19:33 <[img src="http://bbs.saraba1st.com/2b/images/co
 难道白胡子死了,他震坏的海军本部就直接复原了?
 
 
-
-
-
-
 我举队长,只是想说明一下\"冰冻\"并没有你们想象的那么不可破解
 
 
 不过就是冰罢了,又不是叹息之墙.....
 
 
-
-
-
-
-
 -----
 
 ####  洛伦兹变换  
 ##### 15174#       发表于 2010-3-13 20:02
-
 
 
 <blockquote>有青鸡在边上
@@ -3395,16 +2187,10 @@ loushifang 发表于 2010-3-13 19:38 <[img src="http://bbs.saraba1st.com/2b/imag
 如果没人干扰青雉的话应该是结冰快吧
 
 
-
-
-
-
-
 -----
 
 ####  beanbeam  
 ##### 15175#       发表于 2010-3-13 20:04
-
 
 
 <blockquote>应该是因为没有余力了
@@ -3415,32 +2201,19 @@ kidthief 发表于 2010-3-13 01:31 <[img src="http://bbs.saraba1st.com/2b/images
 D的意思是Double?<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15176#       发表于 2010-3-13 20:24
 
 
-
-
 黑胡子即使吸收2个果实 但实力摆在那 果实能力除了开地图跑打杂兵对霸气使用者来说基本没什么意义 能不能赢爷爷和战国连手还是一回事 那几个劳改犯以前被活抓过一次 现在再抓一次也没什么大不了的
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15177#       发表于 2010-3-13 20:44
-
 
 
 <blockquote>有青鸡在边上
@@ -3454,21 +2227,9 @@ loushifang 发表于 2010-3-13 19:38 <[img src="http://bbs.saraba1st.com/2b/imag
 青雉连续冰冰冰冰得海贼们完全无法动弹
 
 
-
-
-
-
-
-
-
 老爹连续震震震震得海军全灭
 
 赤丸连续烧烧烧烧得海贼成灰
-
-
-
-
-
 
 
 -----
@@ -3477,14 +2238,7 @@ loushifang 发表于 2010-3-13 19:38 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15178#       发表于 2010-3-13 23:03
 
 
-
-
 D的意志不是什么double，是党的意志啊！<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3493,21 +2247,13 @@ D的意志不是什么double，是党的意志啊！<img src="https://static.sar
 ##### 15179#       发表于 2010-3-13 23:24
 
 
-
-
 白胡子和ace都挂了，不能接受啊
-
-
-
-
-
 
 
 -----
 
 ####  ikusgca  
 ##### 15180#       发表于 2010-3-14 08:44
-
 
 
  本帖最后由 ikusgca 于 2010-3-14 08:46 编辑 
@@ -3523,16 +2269,10 @@ D的意志不是什么double，是党的意志啊！<img src="https://static.sar
 黑胡子的海贼旗，3个骷髅头
 
 
-
-
-
-
-
 -----
 
 ####  光系植物人  
 ##### 15181#       发表于 2010-3-14 08:55
-
 
 
 <blockquote>http://www.dm5.com/Comic/MH4/Comics-4784_cf90e5d7_page-92.htm
@@ -3552,27 +2292,15 @@ ikusgca 发表于 2010-3-14 08:44 AM <[img src="http://bbs.saraba1st.com/2b/imag
 以前嫌黑胡子长得不行，都没注意他旗子长啥样儿，原来真是3个骷髅头诶
 
 
-
-
-
-
-
 -----
 
 ####  vigilgt  
 ##### 15182#       发表于 2010-3-14 09:25
 
 
-
-
 黑胡子不是一個家伙..
 
 難道他和結界師裡的扇兄弟一樣用了肉體改造然後融合成一人?
-
-
-
-
-
 
 
 -----
@@ -3581,17 +2309,10 @@ ikusgca 发表于 2010-3-14 08:44 AM <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15183#       发表于 2010-3-14 09:36
 
 
-
-
 那个高呼“人的梦想是不会终结的” 的豪爽家伙怎么看也不像现在这个被老爹摁倒在地后就求饶的流氓啊！
 
 
 难道尾田也要玩多重人格么？  <img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3600,21 +2321,13 @@ ikusgca 发表于 2010-3-14 08:44 AM <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15184#       发表于 2010-3-14 10:06
 
 
-
-
 艾斯用最后一口气把冰化了
-
-
-
-
-
 
 
 -----
 
 ####  65535  
 ##### 15185#       发表于 2010-3-14 10:43
-
 
 
 <blockquote>那个高呼“人的梦想是不会终结的” 的豪爽家伙怎么看也不像现在这个被老爹摁倒在地后就求饶的流氓啊！
@@ -3627,16 +2340,10 @@ PATLABOR 发表于 2010-3-14 09:36 <[img src="http://bbs.saraba1st.com/2b/images
 要是命都没了还谈什么梦想
 
 
-
-
-
-
-
 -----
 
 ####  zealotssas  
 ##### 15186#       发表于 2010-3-14 11:01
-
 
 
 <blockquote>现在再倒回去看发现真的很有喜感，我又在后面那段笑喷了....
@@ -3650,17 +2357,10 @@ PATLABOR 发表于 2010-3-14 09:36 <[img src="http://bbs.saraba1st.com/2b/images
 白胡子的震震果实和四队长的黑暗果实归属黑胡子，应该完成合体了吧
 
 
-
-
-
-
-
 -----
 
 ####  努达拉  
 ##### 15187#       发表于 2010-3-14 11:12
-
-
 
 
 黑胡子漫画里分三人?!
@@ -3670,25 +2370,13 @@ PATLABOR 发表于 2010-3-14 09:36 <[img src="http://bbs.saraba1st.com/2b/images
 （我到现在还在幻想艾斯活着这是病吧……？）
 
 
-
-
-
-
-
 -----
 
 ####  flll  
 ##### 15188#       发表于 2010-3-14 11:51
 
 
-
-
 三个骷髅头啊，貌似奥兹也有那标志来着
-
-
-
-
-
 
 
 -----
@@ -3697,14 +2385,7 @@ PATLABOR 发表于 2010-3-14 09:36 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15189#       发表于 2010-3-14 12:05
 
 
-
-
 其实黑胡子早已经死了，现在是占用了黑胡子身体的4队长。
-
-
-
-
-
 
 
 -----
@@ -3713,16 +2394,10 @@ PATLABOR 发表于 2010-3-14 09:36 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15190#       发表于 2010-3-14 12:19
 
 
-
 <blockquote>三个骷髅头啊，貌似奥兹也有那标志来着
 flll 发表于 2010-3-14 11:51 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 奥兹的3个骷髅头和黑胡子的级别不同
-
-
-
-
-
 
 
 -----
@@ -3731,21 +2406,13 @@ flll 发表于 2010-3-14 11:51 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15191#       发表于 2010-3-14 12:21
 
 
-
-
 那三個骷髏頭似乎是西海的東西，黑鬍子出生于西海。奥兹也是
-
-
-
-
-
 
 
 -----
 
 ####  mouse  
 ##### 15192#       发表于 2010-3-14 16:46
-
 
 
 <blockquote>能屈能伸才是真男人
@@ -3759,16 +2426,10 @@ flll 发表于 2010-3-14 11:51 <[img src="http://bbs.saraba1st.com/2b/images/com
 到现在，黑胡子已经和枭雄，魅力反派之类的词无缘了，只是个诡计多端的恶人   除非后面再说出他的什么悲惨过去之类的
 
 
-
-
-
-
-
 -----
 
 ####  mykitty  
 ##### 15193#       发表于 2010-3-14 17:56
-
 
 
 <blockquote>这种不叫能屈能伸，只算跪地求饶
@@ -3784,17 +2445,10 @@ mouse 发表于 2010-3-14 16:46 <[img src="http://bbs.saraba1st.com/2b/images/co
 和之前那个 纵然 不但没有追上路飞还把船弄沉了 但依然哈哈大笑的黑胡子 判若两人……
 
 
-
-
-
-
-
 -----
 
 ####  jk0823  
 ##### 15194#       发表于 2010-3-14 18:07
-
-
 
 
 黑胡子求饶的原因早就交代过，至于怎么想就看个人了
@@ -3802,16 +2456,10 @@ mouse 发表于 2010-3-14 16:46 <[img src="http://bbs.saraba1st.com/2b/images/co
 <img src="http://i40.tinypic.com/rgwmmw.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  BartholemewKuma  
 ##### 15195#       发表于 2010-3-15 14:16
-
 
 
 ......
@@ -3821,33 +2469,19 @@ mouse 发表于 2010-3-14 16:46 <[img src="http://bbs.saraba1st.com/2b/images/co
 尾田，旅行的话，你想去哪里？
 
 
-
-
-
-
-
 -----
 
 ####  kangbaiyin  
 ##### 15196#       发表于 2010-3-15 14:21
 
 
-
-
 LS都量产了，还折腾什么啊
-
-
-
-
-
 
 
 -----
 
 ####  鬼嘲风  
 ##### 15197#       发表于 2010-3-15 14:52
-
-
 
 
 待验证情报：
@@ -3867,21 +2501,13 @@ LS都量产了，还折腾什么啊
 海军：那丫的是谁啊？
 
 
-
 龙终于来了么。。
-
-
-
-
-
 
 
 -----
 
 ####  鬼嘲风  
 ##### 15198#       发表于 2010-3-15 14:52
-
-
 
 
 きたー！！
@@ -3912,27 +2538,15 @@ LS都量产了，还折腾什么啊
 海兵「あいつは・・・！」で终わり
 
 
-
-
-
-
-
 -----
 
 ####  叉和圈的ELF  
 ##### 15199#       发表于 2010-3-15 15:00
 
 
-
-
 龙真的来了？
 
 那人妖王还算没白越狱
-
-
-
-
-
 
 
 -----
@@ -3941,15 +2555,9 @@ LS都量产了，还折腾什么啊
 ##### 15200#       发表于 2010-3-15 15:01
 
 
-
  本帖最后由 芍药 于 2010-3-15 15:03 编辑 
 
 真是龙的话，看到老豆和儿子都被日了感觉如何<img src="https://static.saraba1st.com/image/smiley/face/155.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3958,14 +2566,7 @@ LS都量产了，还折腾什么啊
 ##### 15201#       发表于 2010-3-15 15:05
 
 
-
-
 あいつ的人选就不好说了
-
-
-
-
-
 
 
 -----
@@ -3974,14 +2575,7 @@ LS都量产了，还折腾什么啊
 ##### 15202#       发表于 2010-3-15 15:05
 
 
-
-
 为啥我现在一看到有龙出现的情报就本能的觉得这是假情报呢<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3990,14 +2584,8 @@ LS都量产了，还折腾什么啊
 ##### 15203#       发表于 2010-3-15 16:05
 
 
-
 <blockquote>为啥我现在一看到有龙出现的情报就本能的觉得这是假情报呢<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 65535 发表于 2010-3-15 15:05 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
-
-
-
-
-
 
 
 -----
@@ -4006,15 +2594,9 @@ LS都量产了，还折腾什么啊
 ##### 15204#       发表于 2010-3-15 16:14
 
 
-
 <blockquote>为啥我现在一看到有龙出现的情报就本能的觉得这是假情报呢<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 65535 发表于 2010-3-15 15:05 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 ＋1
-
-
-
-
-
 
 
 -----
@@ -4023,14 +2605,7 @@ LS都量产了，还折腾什么啊
 ##### 15205#       发表于 2010-3-15 16:14
 
 
-
-
 龙来了是不是说黑胡子的第三个果实也来了
-
-
-
-
-
 
 
 -----
@@ -4039,15 +2614,9 @@ LS都量产了，还折腾什么啊
 ##### 15206#       发表于 2010-3-15 16:15
 
 
-
 <blockquote>为啥我现在一看到有龙出现的情报就本能的觉得这是假情报呢<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 65535 发表于 2010-3-15 15:05 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 +1 因为前面太多假情报里都说龙来了
-
-
-
-
-
 
 
 -----
@@ -4056,14 +2625,7 @@ LS都量产了，还折腾什么啊
 ##### 15207#       发表于 2010-3-15 16:21
 
 
-
-
 龙来了已经接近于狼来了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4072,14 +2634,7 @@ LS都量产了，还折腾什么啊
 ##### 15208#       发表于 2010-3-15 16:21
 
 
-
-
 又到了假情报满天飞舞的时候了
-
-
-
-
-
 
 
 -----
@@ -4088,22 +2643,13 @@ LS都量产了，还折腾什么啊
 ##### 15209#       发表于 2010-3-15 16:22
 
 
-
-
 我要看更多的假情报
-
-
-
-
-
 
 
 -----
 
 ####  kangbaiyin  
 ##### 15210#       发表于 2010-3-15 16:52
-
-
 
 
 战国能力发动。一人对黑胡子11人。。嗯。。黑胡子方有11人么。这个也没数过也。
@@ -4122,25 +2668,13 @@ LS都量产了，还折腾什么啊
 完。。
 
 
-
-
-
-
-
 -----
 
 ####  taichiY  
 ##### 15211#       发表于 2010-3-15 17:28
 
 
-
-
 赤犬被暴菊？求详细
-
-
-
-
-
 
 
 -----
@@ -4149,14 +2683,7 @@ LS都量产了，还折腾什么啊
 ##### 15212#       发表于 2010-3-15 17:54
 
 
-
-
 龙带着罗宾登场吗<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4165,14 +2692,7 @@ LS都量产了，还折腾什么啊
 ##### 15213#       发表于 2010-3-15 18:02
 
 
-
-
 到底要派多少人去对付黑胡子团才行啊……
-
-
-
-
-
 
 
 -----
@@ -4181,21 +2701,13 @@ LS都量产了，还折腾什么啊
 ##### 15214#       发表于 2010-3-15 18:45
 
 
-
-
 就没有yy红发救场的么
-
-
-
-
-
 
 
 -----
 
 ####  yellowboat  
 ##### 15215#       发表于 2010-3-15 20:32
-
 
 
 <blockquote>就没有yy红发救场的么
@@ -4206,16 +2718,10 @@ gooas 发表于 2010-3-13 20:24 <[img src="http://bbs.saraba1st.com/2b/images/co
 一个一个抓进去和全部一起上还是有分别的。
 
 
-
-
-
-
-
 -----
 
 ####  dine740  
 ##### 15216#       发表于 2010-3-15 22:08
-
 
 
  本帖最后由 dine740 于 2010-3-15 22:24 编辑 
@@ -4227,8 +2733,6 @@ gooas 发表于 2010-3-13 20:24 <[img src="http://bbs.saraba1st.com/2b/images/co
  N克洛克达尔说「不会再让海军为所欲为了」然后在空中抓住巴基。
 
 这个时候海中出现一艘船、登场的是特拉法尔加·罗，他说:「把他交给我」
-
-
 
 
 战国和黑胡子海贼团撞上 从战国手中放出冲击波就一击让黑胡子海贼团的人吐血 战国优势
@@ -4245,16 +2749,10 @@ gooas 发表于 2010-3-13 20:24 <[img src="http://bbs.saraba1st.com/2b/images/co
 把草帽当家的给我吧 我是医生:
 
 
-
-
-
-
-
 -----
 
 ####  65535  
 ##### 15217#       发表于 2010-3-15 22:26
-
 
 
 <blockquote>战国的能力发动、黑胡子海贼团VS战国、战国一人稍稍被黑胡子海贼团压制。9 U/ A4 |* O6 u&amp; t\" T&amp; j
@@ -4267,16 +2765,10 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 可为啥罗会出现在这儿？
 
 
-
-
-
-
-
 -----
 
 ####  maydayl  
 ##### 15218#       发表于 2010-3-15 22:47
-
 
 
 <blockquote>战国的能力发动、黑胡子海贼团VS战国、战国一人稍稍被黑胡子海贼团压制。9 U/ A4 |* O6 u&amp; t\" T&amp; j
@@ -4286,33 +2778,19 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 那个新星来了？
 
 
-
-
-
-
-
 -----
 
 ####  红胡子海盗  
 ##### 15219#       发表于 2010-3-15 22:48
 
 
-
-
 特拉法尔加·罗这浓浓的基情...还有救世者巴基...<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  SayaRin  
 ##### 15220#       发表于 2010-3-15 22:52
-
-
 
 
 上一話本來已經大罵草泥馬並掀了無數次桌的我，本話因為羅的出現又對這部爛作抱持了一點點希望。
@@ -4324,32 +2802,19 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 真是瑪麗隔壁啊！！！
 
 
-
-
-
-
-
 -----
 
 ####  SayaRin  
 ##### 15221#       发表于 2010-3-15 22:52
 
 
-
-
 堅決擁護草帽和羅攪基！！
-
-
-
-
-
 
 
 -----
 
 ####  FCS-31  
 ##### 15222#       发表于 2010-3-15 23:01
-
 
 
  本帖最后由 FCS-31 于 2010-3-15 23:06 编辑 
@@ -4360,16 +2825,10 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 之前在干啥啊<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  糊盐乱雨  
 ##### 15223#       发表于 2010-3-15 23:13
-
 
 
  本帖最后由 糊盐乱雨 于 2010-3-15 23:15 编辑 
@@ -4401,13 +2860,7 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 完
 
 
-
 罗的船居然是潜水艇，这情节摆明了是让他们两人搅基啊~
-
-
-
-
-
 
 
 -----
@@ -4416,14 +2869,7 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15224#       发表于 2010-3-15 23:14
 
 
-
-
 早就说一切都在战国掌握之中
-
-
-
-
-
 
 
 -----
@@ -4432,14 +2878,7 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15225#       发表于 2010-3-15 23:14
 
 
-
-
 现在出的情报不可靠吧
-
-
-
-
-
 
 
 -----
@@ -4448,14 +2887,7 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15226#       发表于 2010-3-15 23:15
 
 
-
-
 本周提前
-
-
-
-
-
 
 
 -----
@@ -4464,14 +2896,7 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15227#       发表于 2010-3-15 23:19
 
 
-
-
 很好,战国终于加入战团了,卡普也不远了吧.20多年后再来一次并肩作战.
-
-
-
-
-
 
 
 -----
@@ -4480,15 +2905,9 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15228#       发表于 2010-3-15 23:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 元帅发威的有点晚…………
-
-
-
-
-
 
 
 -----
@@ -4497,16 +2916,10 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15229#       发表于 2010-3-15 23:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">纳尼，罗可以把甚平和艾斯的心脏对换么
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer"> 其实是觉得甚平实在没有主角像啊
-
-
-
-
-
 
 
 -----
@@ -4515,17 +2928,10 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15230#       发表于 2010-3-15 23:47
 
 
-
-
 太好了，这是我最想看到的！
 
 
 上一个时代有白胡子罗杰和金狮子惺惺相惜，这个时代现在有特拉法尔加来和路飞搅了，话说基德迟早也会加入吧！
-
-
-
-
-
 
 
 -----
@@ -4534,16 +2940,9 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15231#       发表于 2010-3-15 23:53
 
 
-
-
 罗怎么忽然来了，沙姐这么拼命做啥……
 
 元帅终于要发威了
-
-
-
-
-
 
 
 -----
@@ -4552,14 +2951,7 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15232#       发表于 2010-3-16 00:09
 
 
-
-
 雖然覺得  羅來救場實在是不夠分量   但想想劇情還是不能完全靠老一輩啊  多讓新人出場也是應該
-
-
-
-
-
 
 
 -----
@@ -4568,25 +2960,16 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15233#       发表于 2010-3-16 00:16
 
 
-
-
 既然罗能那么飞速的赶来，那他的基友也不远矣。
 
 
 说的就是你，基德，快现身吧。
 
 
-
-
-
-
-
 -----
 
 ####  chengli  
 ##### 15234#       发表于 2010-3-16 00:18
-
-
 
 
 白胡子出场时那个图
@@ -4596,25 +2979,13 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 而且胸口上有长长的刀疤
 
 
-
-
-
-
-
 -----
 
 ####  oh_nogo  
 ##### 15235#       发表于 2010-3-16 00:31
 
 
-
-
 罗的标志是小唐的那个吧
-
-
-
-
-
 
 
 -----
@@ -4623,21 +2994,13 @@ dine740 发表于 2010-3-15 22:08 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15236#       发表于 2010-3-16 01:37
 
 
-
-
 原来565他要出发是来这里啊
-
-
-
-
-
 
 
 -----
 
 ####  hie  
 ##### 15237#       发表于 2010-3-16 01:39
-
 
 
 <blockquote>白胡子出场时那个图
@@ -4651,17 +3014,10 @@ chengli 发表于 2010-3-16 00:18 <[img src="http://bbs.saraba1st.com/2b/images/
 难道罗是做医疗器械的
 
 
-
-
-
-
-
 -----
 
 ####  鬼嘲风  
 ##### 15238#       发表于 2010-3-16 01:46
-
-
 
 
 对比了一下，是不一样的。和唐的也不一样。
@@ -4669,16 +3025,10 @@ chengli 发表于 2010-3-16 00:18 <[img src="http://bbs.saraba1st.com/2b/images/
 <img src="http://hiphotos.baidu.com/%D0%DC%C3%A8%D2%EB%D6%C6%D7%E9/pic/item/acc717168b590a0a962b4356.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lillianjr  
 ##### 15239#       发表于 2010-3-16 06:28
-
 
 
 <blockquote>来个真相
@@ -4691,17 +3041,10 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 难怪他能买得起潜艇，上面应该还带着核弹头吧。
 
 
-
-
-
-
-
 -----
 
 ####  sunhydralisk  
 ##### 15240#       发表于 2010-3-16 08:08
-
-
 
 
 罗来了？
@@ -4710,24 +3053,13 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 真不枉俺在众多超新星中唯独看好你哦！
 
 
-
-
-
-
-
 -----
 
 ####  AD  
 ##### 15241#       发表于 2010-3-16 08:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">战国你这次一定要争口气啊，瞧你之前那熊样
-
-
-
-
-
 
 
 -----
@@ -4736,24 +3068,15 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15242#       发表于 2010-3-16 09:21
 
 
-
-
 换心有没可能换成两个？
 
 这样不就有可能双果实？
-
-
-
-
-
 
 
 -----
 
 ####  kangbaiyin  
 ##### 15243#       发表于 2010-3-16 09:53
-
-
 
 
 超展开啊
@@ -4765,25 +3088,13 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 战国发力竟然挡的住一干妖孽，难得
 
 
-
-
-
-
-
 -----
 
 ####  kangbaiyin  
 ##### 15244#       发表于 2010-3-16 09:59
 
 
-
-
 突然想到，女帝应该要戏份加大了，不然男人就被人抢掉了<img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4792,14 +3103,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15245#       发表于 2010-3-16 10:08
 
 
-
-
 战国忽然就能打了。
-
-
-
-
-
 
 
 -----
@@ -4808,14 +3112,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15246#       发表于 2010-3-16 10:09
 
 
-
-
 战国你之前都是在给你的基友卡普面子嘛……
-
-
-
-
-
 
 
 -----
@@ -4824,14 +3121,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15247#       发表于 2010-3-16 10:10
 
 
-
-
 看这样子是要把艾斯做成路飞的背后灵啊，既然黑胡子能够双果实的话，给路飞也搭一个火焰果实
-
-
-
-
-
 
 
 -----
@@ -4840,14 +3130,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15248#       发表于 2010-3-16 10:12
 
 
-
-
 战国竟然能发冲击波  既然有佛果实  那有没有孙悟空果实  太上老君果实 上帝果实？？
-
-
-
-
-
 
 
 -----
@@ -4856,16 +3139,9 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15249#       发表于 2010-3-16 10:14
 
 
-
-
 火焰+橡胶
 
 变成毒气果实么
-
-
-
-
-
 
 
 -----
@@ -4874,17 +3150,10 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15250#       发表于 2010-3-16 10:18
 
 
-
-
 战国果实到底是啥还不明啊
 
 
 突然能打没什么，但突然能打一船妖孽就比较奇怪了
-
-
-
-
-
 
 
 -----
@@ -4893,14 +3162,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15251#       发表于 2010-3-16 10:20
 
 
-
-
 路飞双果实不太可能吧…
-
-
-
-
-
 
 
 -----
@@ -4909,14 +3171,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15252#       发表于 2010-3-16 10:24
 
 
-
-
 新星们的船之前都没有出现过，尾田在这里可以设定其中任何一个出现，但是为什么偏偏是罗？？罗的能力看样子会对整个世界的走向有大大的影响，加速搅基吧！<img src="https://static.saraba1st.com/image/smiley/face/19.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4925,14 +3180,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15253#       发表于 2010-3-16 12:01
 
 
-
-
 觉得这样子就合理了，新星们不一定要挡住谁，只要能带着路飞跑了就完成任务了
-
-
-
-
-
 
 
 -----
@@ -4941,24 +3189,16 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15254#       发表于 2010-3-16 12:24
 
 
-
 <blockquote>新星们的船之前都没有出现过，尾田在这里可以设定其中任何一个出现，但是为什么偏偏是罗？？罗的能力看样子会对整个世界的走向有大大的影响，加速搅基吧！<img src="https://static.saraba1st.com/image/smiley/face/19.gif" referrerpolicy="no-referrer"> ...
 糊盐乱雨 发表于 2010-3-16 10:24 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 \"死亡外科医生\"这个称号应该有他的作用.....
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 15255#       发表于 2010-3-16 12:47
-
-
 
 
 我觉得老爹要是身体没事，一人就可以救出艾斯。。
@@ -4987,25 +3227,13 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 女帝啊！你在哪里啊！在做什么呢！！快趁乱把路飞抢走啊！
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15256#       发表于 2010-3-16 13:33
 
 
-
-
 火烈鸟 就一看戏的 根本没什么野心
-
-
-
-
-
 
 
 -----
@@ -5014,24 +3242,15 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15257#       发表于 2010-3-16 13:41
 
 
-
-
 人妖王和剪刀男都要挂了么……？白胡子的其他队员难道也凶多吉少？老沙也自身难保？
 
 看这情报，感觉现在的局势就象海军在收割一样……
-
-
-
-
-
 
 
 -----
 
 ####  点数不足  
 ##### 15258#       发表于 2010-3-16 13:55
-
-
 
 
 海军本来就是请君入瓮而且是集合全部战力
@@ -5041,33 +3260,19 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 我担心的是这仗以后还有没有更燃的……
 
 
-
-
-
-
-
 -----
 
 ####  zionfan  
 ##### 15259#       发表于 2010-3-16 14:33
 
 
-
-
 新星就来了这么一个？？？？？？？？？？太不过瘾了！
-
-
-
-
-
 
 
 -----
 
 ####  萌之试炼  
 ##### 15260#       发表于 2010-3-16 15:06
-
-
 
 
 战国的佛光普照真NB！
@@ -5080,17 +3285,10 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 原来是慕基前来吗~
 
 
-
-
-
-
-
 -----
 
 ####  flll  
 ##### 15261#       发表于 2010-3-16 15:10
-
-
 
 
 来了一个，就可能有第二个，但也不可能全来吧
@@ -5098,17 +3296,10 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 话说草帽团还是没消息啊
 
 
-
-
-
-
-
 -----
 
 ####  kangbaiyin  
 ##### 15262#       发表于 2010-3-16 15:20
-
-
 
 
 哎呦
@@ -5120,27 +3311,15 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 绝对后面还有全屏超杀
 
 
-
-
-
-
-
 -----
 
 ####  点数不足  
 ##### 15263#       发表于 2010-3-16 15:35
 
 
-
-
 忽然想到了……罗不是可以替换部件么？
 
 难道艾斯是用白胡子的器官替换复活的？
-
-
-
-
-
 
 
 -----
@@ -5149,16 +3328,9 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15264#       发表于 2010-3-16 15:37
 
 
-
-
 老爹尸体又不在
 
 怎么替换啊
-
-
-
-
-
 
 
 -----
@@ -5167,13 +3339,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15265#       发表于 2010-3-16 15:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">艾斯你还死不死了
-
-
-
-
-
 
 
 -----
@@ -5182,22 +3348,13 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15266#       发表于 2010-3-16 15:38
 
 
-
-
 老爹和艾斯的尸体都在海军那边儿呢，指望罗的还是先冷静下吧，当然，要是罗的room范围够远的话，没准儿还有戏。
-
-
-
-
-
 
 
 -----
 
 ####  kangbaiyin  
 ##### 15267#       发表于 2010-3-16 15:39
-
-
 
 
 尸体还挺在那边
@@ -5209,25 +3366,13 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 而且，为什么都在讲ACE必活这事呢
 
 
-
-
-
-
-
 -----
 
 ####  点数不足  
 ##### 15268#       发表于 2010-3-16 15:40
 
 
-
-
 因为尾田特意给我们看了那个纸片的小角
-
-
-
-
-
 
 
 -----
@@ -5236,14 +3381,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15269#       发表于 2010-3-16 15:40
 
 
-
-
 坚决支持艾斯死透了，可别再活了。
-
-
-
-
-
 
 
 -----
@@ -5252,16 +3390,10 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15270#       发表于 2010-3-16 15:40
 
 
-
 <blockquote>因为尾田特意给我们看了那个纸片的小角
 点数不足 发表于 2010-3-16 15:40 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 没有小角吧，烧成灰儿了。
-
-
-
-
-
 
 
 -----
@@ -5270,16 +3402,10 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15271#       发表于 2010-3-16 15:42
 
 
-
 <blockquote>因为尾田特意给我们看了那个纸片的小角
 点数不足 发表于 2010-3-16 15:40 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 被狗穿透后有过特写？
-
-
-
-
-
 
 
 -----
@@ -5288,13 +3414,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15272#       发表于 2010-3-16 15:43
 
 
-
 <img src="http://hiphotos.baidu.com/lllysl/pic/item/5656a0fadd1932256c22eb37.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5303,14 +3423,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15273#       发表于 2010-3-16 15:44
 
 
-
-
 我回去补课了一下……的确是烧光了
-
-
-
-
-
 
 
 -----
@@ -5319,16 +3432,9 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15274#       发表于 2010-3-16 15:48
 
 
-
-
 最近刚看了个叫科学怪人的电影。。。
 
 觉得没啥不可能吧~~~
-
-
-
-
-
 
 
 -----
@@ -5337,14 +3443,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15275#       发表于 2010-3-16 15:50
 
 
-
-
 旁友，拜托，拿别的作品的世界观套太没意义了，还没准儿下一话就大家都幻觉了呢。
-
-
-
-
-
 
 
 -----
@@ -5353,21 +3452,13 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15276#       发表于 2010-3-16 15:56
 
 
-
-
 甚平这特写
 
 
 红狗，何必呢
 
 
-
 另，战国这持续发力只要不被打断，应该还有点看头<img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5376,16 +3467,9 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15277#       发表于 2010-3-16 15:58
 
 
-
-
 唉，还是让艾斯安心地死去吧
 
 以后以回忆形式存在就够了
-
-
-
-
-
 
 
 -----
@@ -5394,14 +3478,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15278#       发表于 2010-3-16 15:58
 
 
-
-
 战国阵亡，红狗下任元帅
-
-
-
-
-
 
 
 -----
@@ -5410,14 +3487,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15279#       发表于 2010-3-16 15:59
 
 
-
-
 战国阵亡，红狗会有命做下任吗
-
-
-
-
-
 
 
 -----
@@ -5426,21 +3496,13 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15280#       发表于 2010-3-16 16:02
 
 
-
-
 如来神掌<img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  犀利  
 ##### 15281#       发表于 2010-3-16 16:06
-
 
 
  本帖最后由 犀利 于 2010-3-16 16:16 编辑 
@@ -5450,25 +3512,13 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 赤犬一人独对全体海贼而毫无惧意，也是个霸气爆棚的主
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15282#       发表于 2010-3-16 16:12
 
 
-
-
 赤犬这战斗力太强大了 一路开无双过来什么白胡子队长 革命军干部 7武海统统被秒
-
-
-
-
-
 
 
 -----
@@ -5477,14 +3527,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15283#       发表于 2010-3-16 16:17
 
 
-
-
 那好吧，既然青雉人气这么高，就让黑胡子吸了红狗，顺道融冰吧……
-
-
-
-
-
 
 
 -----
@@ -5493,14 +3536,7 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15284#       发表于 2010-3-16 16:20
 
 
-
-
 如果路飞是这代的王的话，那基德就是世界最强的男人把？
-
-
-
-
-
 
 
 -----
@@ -5509,15 +3545,9 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15285#       发表于 2010-3-16 16:25
 
 
-
 <blockquote>如果路飞是这代的王的话，那基德就是世界最强的男人把？
 日向超 发表于 2010-3-16 16:20 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 明明是 最强·船长巴基
-
-
-
-
-
 
 
 -----
@@ -5526,15 +3556,9 @@ MD卖药的，卖医疗器械的，那奏是个暴利集团。
 ##### 15286#       发表于 2010-3-16 16:28
 
 
-
 <blockquote>明明是 最强·船长巴基
 Nidhogg 发表于 2010-3-16 16:25 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 白胡子可不是虚名。。
-
-
-
-
-
 
 
 -----
@@ -5543,22 +3567,13 @@ Nidhogg 发表于 2010-3-16 16:25 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15287#       发表于 2010-3-16 16:32
 
 
-
-
 伟大的巴基船长从上个时代活到现在难道靠的是虚名么！？可笑！！！
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 15288#       发表于 2010-3-16 16:35
-
-
 
 
 其实。。。赤犬嘛。。上个马队长去不就好了。。。
@@ -5576,16 +3591,10 @@ Nidhogg 发表于 2010-3-16 16:25 <[img src="http://bbs.saraba1st.com/2b/images/
 是不是梅萨罗已经把你驼到路飞身边了？
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15289#       发表于 2010-3-16 16:40
-
 
 
 <blockquote>其实。。。赤犬嘛。。上个马队长去不就好了。。。
@@ -5597,16 +3606,10 @@ DGIL 发表于 2010-3-16 16:35 <[img src="http://bbs.saraba1st.com/2b/images/com
 火焰果实的ACE被他烧死了 不死鸟上去还不一个下场
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 15290#       发表于 2010-3-16 16:42
-
 
 
  本帖最后由 DGIL 于 2010-3-16 16:50 编辑 
@@ -5616,17 +3619,11 @@ DGIL 发表于 2010-3-16 16:35 <[img src="http://bbs.saraba1st.com/2b/images/com
 凤凰涅槃！ 对火属性应该还特强吧。
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer"> 。。老爹的接班人目前还看不出来。。。
 
 巴基。。。还是别和老爹比吧。。。就算他混到最强的名声。。
 
 巴基得到最强名号没什么。。但是。。还是别和老爹放在一起吧。
-
-
-
-
-
 
 
 -----
@@ -5635,23 +3632,15 @@ DGIL 发表于 2010-3-16 16:35 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15291#       发表于 2010-3-16 16:43
 
 
-
-
 我艹...战国这是如来神掌第几式...
 
 这些世界顶级战力一个二个都是地图炮.
-
-
-
-
-
 
 
 -----
 
 ####  gooas  
 ##### 15292#       发表于 2010-3-16 16:48
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">可是马队长强就强在能原地满血满状态复活。。。打穿还是烧成灰都无所谓。。
@@ -5662,25 +3651,13 @@ DGIL 发表于 2010-3-16 16:42 <[img src="http://bbs.saraba1st.com/2b/images/com
 赤犬：不死鸟也是分强弱的 别以为自己是不死鸟 劳资就烧不死你
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15293#       发表于 2010-3-16 16:51
 
 
-
-
 草帽团里谁最有希望练成地图炮？娜美么
-
-
-
-
-
 
 
 -----
@@ -5689,12 +3666,10 @@ DGIL 发表于 2010-3-16 16:42 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15294#       发表于 2010-3-16 16:52
 
 
-
  本帖最后由 DGIL 于 2010-3-16 16:57 编辑 
 <blockquote>赤犬：不死鸟也是分强弱的 别以为自己是不死鸟 劳资就烧不死你
 gooas 发表于 2010-3-16 16:48 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/80.gif" referrerpolicy="no-referrer"> 这~我想到了不死鸟已经死了这句话。。。
-
 
 
 佛朗奇现在就是地图炮只是消耗太大了，加强后专职地图炮算了。
@@ -5709,16 +3684,10 @@ gooas 发表于 2010-3-16 16:48 <[img src="http://bbs.saraba1st.com/2b/images/co
 不过黑胡子队也有几个比较水的。。就是黑胡子的原队员，3个打不过艾斯一个这样看来，可以分给草帽团里较弱的几位。
 
 
-
-
-
-
-
 -----
 
 ####  taehw  
 ##### 15295#       发表于 2010-3-16 16:53
-
 
 
 <blockquote>最近刚看了个叫科学怪人的电影。。。
@@ -5730,25 +3699,13 @@ gooas 发表于 2010-3-16 16:48 <[img src="http://bbs.saraba1st.com/2b/images/co
 你应该举熊的例子，毕竟是改造人
 
 
-
-
-
-
-
 -----
 
 ####  查内姆  
 ##### 15296#       发表于 2010-3-16 16:57
 
 
-
-
 艾斯的便当其实可以吐一吐，另外希望能把白胡子的尸体抢回来
-
-
-
-
-
 
 
 -----
@@ -5757,17 +3714,10 @@ gooas 发表于 2010-3-16 16:48 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15297#       发表于 2010-3-16 16:58
 
 
-
-
 ACE被穿说明自然系也不是完全攻击能被闪
 
 
 但无法说明马队长会被必中
-
-
-
-
-
 
 
 -----
@@ -5776,14 +3726,7 @@ ACE被穿说明自然系也不是完全攻击能被闪
 ##### 15298#       发表于 2010-3-16 17:31
 
 
-
-
 路飞的草帽掉了！
-
-
-
-
-
 
 
 -----
@@ -5792,14 +3735,7 @@ ACE被穿说明自然系也不是完全攻击能被闪
 ##### 15299#       发表于 2010-3-16 17:32
 
 
-
-
 我有种战国一下洗白了的感觉。。。
-
-
-
-
-
 
 
 -----
@@ -5808,15 +3744,9 @@ ACE被穿说明自然系也不是完全攻击能被闪
 ##### 15300#       发表于 2010-3-16 17:41
 
 
-
  本帖最后由 肩上的乌鸦 于 2010-3-16 18:10 编辑 
 
 其实罗是来接走老大七武海堂吉诃德的吧……救路飞只是刚好顺带而已……
-
-
-
-
-
 
 
 -----
@@ -5825,14 +3755,7 @@ ACE被穿说明自然系也不是完全攻击能被闪
 ##### 15301#       发表于 2010-3-16 17:53
 
 
-
-
 仔细看，其中有张图，路飞的草帽被遗留在红狗那里了……
-
-
-
-
-
 
 
 -----
@@ -5841,21 +3764,13 @@ ACE被穿说明自然系也不是完全攻击能被闪
 ##### 15302#       发表于 2010-3-16 18:00
 
 
-
-
 那岂不是红发要出来了-___,-
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 15303#       发表于 2010-3-16 18:34
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/66.gif" referrerpolicy="no-referrer">WT！草帽必须让女帝捡到！！！这是个非常好的伏笔啊！！
@@ -5866,16 +3781,10 @@ ACE被穿说明自然系也不是完全攻击能被闪
 。。难道路飞要像悟空那样转型。。
 
 
-
-
-
-
-
 -----
 
 ####  mouse  
 ##### 15304#       发表于 2010-3-16 18:39
-
 
 
  本帖最后由 mouse 于 2010-3-16 18:41 编辑 
@@ -5886,26 +3795,15 @@ ACE被穿说明自然系也不是完全攻击能被闪
 救世主称号获得
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15305#       发表于 2010-3-16 18:44
 
 
-
 <blockquote>仔细看，其中有张图，路飞的草帽被遗留在红狗那里了……
 肩上的乌鸦 发表于 2010-3-16 17:53 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 红狗的FLAG束起来了！哈哈哈哈！
-
-
-
-
-
 
 
 -----
@@ -5914,21 +3812,13 @@ ACE被穿说明自然系也不是完全攻击能被闪
 ##### 15306#       发表于 2010-3-16 18:45
 
 
-
-
 巴基好帅。空中接力<img src="https://static.saraba1st.com/image/smiley/face/164.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 15307#       发表于 2010-3-16 19:07
-
 
 
  本帖最后由 DGIL 于 2010-3-16 19:10 编辑 
@@ -5950,17 +3840,10 @@ ACE被穿说明自然系也不是完全攻击能被闪
 对罗好感度又增加了！恩！呵呵以后你会不会抢索隆风头啊？
 
 
-
-
-
-
-
 -----
 
 ####  outrage  
 ##### 15308#       发表于 2010-3-16 19:08
-
-
 
 
 情报好早。。。<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
@@ -5970,17 +3853,10 @@ ACE被穿说明自然系也不是完全攻击能被闪
 当家的 居然来了 好小子有前途 潜艇。。。<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  双鱼玫瑰  
 ##### 15309#       发表于 2010-3-16 19:22
-
-
 
 
 我++，赤犬也太尽力了吧。话说现在局势来看，明显黑胡子一伙对海军来说更是威胁吧？
@@ -5988,17 +3864,10 @@ ACE被穿说明自然系也不是完全攻击能被闪
 杀艾斯和白胡子的任务都完成了。他还这么尽力追杀路飞干嘛，应该先去帮战国对付黑胡子啊<img src="https://static.saraba1st.com/image/smiley/face/23.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15310#       发表于 2010-3-16 19:31
-
-
 
 
 没杀路飞的话，就白杀ACE了
@@ -6009,16 +3878,10 @@ ACE被穿说明自然系也不是完全攻击能被闪
 再说，赤犬可能根本没注意到黑胡子。他被白胡子打地下去，上集才出来，出来之后一直在追甚平。
 
 
-
 赤犬最近的表现完全可以盖过之前吃的小鳖。秒杀甚平，一人面对白胡子海贼团+克洛克达尔……
 
 
 为什么我感觉这场战争中赤犬的气场比老爹还要盛啊！
-
-
-
-
-
 
 
 -----
@@ -6027,21 +3890,13 @@ ACE被穿说明自然系也不是完全攻击能被闪
 ##### 15311#       发表于 2010-3-16 19:32
 
 
-
-
 马队跟红狗对过招，而且没像艾斯一样被打飞。一个人跟红狗打一会还是没问题的。其他的队长不算五队，还真有可能被红狗团灭...话说小马哥和黄猿怎么又失踪了
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 15312#       发表于 2010-3-16 19:32
-
 
 
 <blockquote>我++，赤犬也太尽力了吧。话说现在局势来看，明显黑胡子一伙对海军来说更是威胁吧？
@@ -6052,16 +3907,10 @@ ACE被穿说明自然系也不是完全攻击能被闪
 <img src="https://static.saraba1st.com/image/smiley/face/90.gif" referrerpolicy="no-referrer"> 还有两位大将在原地待机嘛。。。75海也还在虽然都是打酱油的。。
 
 
-
-
-
-
-
 -----
 
 ####  wolfjw  
 ##### 15313#       发表于 2010-3-16 19:33
-
 
 
 <blockquote>我觉得接下来可能搞事情的也就黑胡子和多弗朗明哥两拨人马。这只阴险的火烈鸟最近几话都没怎么露脸，不知道在搞什么飞机。说不准和特拉法尔加去会合了也有可能~
@@ -6070,16 +3919,10 @@ wolfjw 发表于 2010-1-25 09:22 <[img src="http://bbs.saraba1st.com/2b/images/c
 额……不是我翻老帖证预言，我想说明的是这场事件中水很深的绝对不止黑胡子，火烈鸟下一话绝对会有特写镜头表情~
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 15314#       发表于 2010-3-16 19:34
-
 
 
 <blockquote>我++，赤犬也太尽力了吧。话说现在局势来看，明显黑胡子一伙对海军来说更是威胁吧？
@@ -6091,16 +3934,10 @@ wolfjw 发表于 2010-1-25 09:22 <[img src="http://bbs.saraba1st.com/2b/images/c
 下一个画面就是他和战国两人板着个扑克脸
 
 
-
-
-
-
-
 -----
 
 ####  wolfjw  
 ##### 15315#       发表于 2010-3-16 19:34
-
 
 
 <blockquote>战国竟然能发冲击波  既然有佛果实  那有没有孙悟空果实  太上老君果实 上帝果实？？
@@ -6112,27 +3949,15 @@ wolfjw 发表于 2010-1-25 09:22 <[img src="http://bbs.saraba1st.com/2b/images/c
 ——参见周星驰《功夫》
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 15316#       发表于 2010-3-16 20:21
 
 
-
-
 我、我居然觉得赤犬变得伟岸起来了，是构图的原因么？（揉眼睛）
 
 沙姐，你酱油终于打完了……接下来你还有多少出场的机会呢<img src="https://static.saraba1st.com/image/smiley/face/39.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6141,24 +3966,16 @@ wolfjw 发表于 2010-1-25 09:22 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15317#       发表于 2010-3-16 20:25
 
 
-
-
 看明白了
 
 
 丫的红狗就是一超级赛亚人,被老爹打濒死后攻击力暴升....
 
 
-
-
-
-
-
 -----
 
 ####  fakeking  
 ##### 15318#       发表于 2010-3-16 20:31
-
 
 
  本帖最后由 fakeking 于 2010-3-16 20:40 编辑 
@@ -6176,25 +3993,13 @@ wolfjw 发表于 2010-1-25 09:22 <[img src="http://bbs.saraba1st.com/2b/images/c
 红狗进行了一次三杀~
 
 
-
-
-
-
-
 -----
 
 ####  stevenzero  
 ##### 15319#       发表于 2010-3-16 20:35
 
 
-
-
 WT你别把基德忘了，怎么也是和路飞罗一起并肩战过而且还是站中间的人。
-
-
-
-
-
 
 
 -----
@@ -6203,20 +4008,13 @@ WT你别把基德忘了，怎么也是和路飞罗一起并肩战过而且还是
 ##### 15320#       发表于 2010-3-16 20:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/185.gif" referrerpolicy="no-referrer">佛祖的能力看来很强大…………
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15321#       发表于 2010-3-16 20:40
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
@@ -6232,27 +4030,15 @@ fakeking 发表于 2010-3-16 20:31 <[img src="http://bbs.saraba1st.com/2b/images
 红狗还让老爹吃了一次鳖。
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15322#       发表于 2010-3-16 20:43
 
 
-
-
 老爹也算死在红狗手上的吧
 
 先用计捅一刀，然后打掉半个脑袋……
-
-
-
-
-
 
 
 -----
@@ -6261,22 +4047,15 @@ fakeking 发表于 2010-3-16 20:31 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15323#       发表于 2010-3-16 20:45
 
 
-
 <blockquote>红狗还让老爹吃了一次鳖。
 不败之狼 发表于 2010-3-16 20:40 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 那是助攻
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15324#       发表于 2010-3-16 20:52
-
 
 
 <blockquote>老爹也算死在红狗手上的吧
@@ -6291,16 +4070,10 @@ loushifang 发表于 2010-3-16 20:43 <[img src="http://bbs.saraba1st.com/2b/imag
 红狗只是助攻....
 
 
-
-
-
-
-
 -----
 
 ####  Freesil  
 ##### 15325#       发表于 2010-3-16 20:54
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
@@ -6318,17 +4091,10 @@ fakeking 发表于 2010-3-16 20:31 <[img src="http://bbs.saraba1st.com/2b/images
 海军赤狗，三国马忠 <img src="https://static.saraba1st.com/image/smiley/face/132.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15326#       发表于 2010-3-16 20:55
-
-
 
 
 红狗用计算计了老爹一次
@@ -6340,25 +4106,13 @@ fakeking 发表于 2010-3-16 20:31 <[img src="http://bbs.saraba1st.com/2b/images
 不然老爹可能在后来被一群海军小兵围攻？
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 15327#       发表于 2010-3-16 20:55
 
 
-
-
 下个星期就是超新星集体登场!
-
-
-
-
-
 
 
 -----
@@ -6367,16 +4121,9 @@ fakeking 发表于 2010-3-16 20:31 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15328#       发表于 2010-3-16 20:57
 
 
-
-
 战国之前不出手会不会是因为他的能力攻击范围太大而有所顾虑
 
 现在总部已经被拆了，也就无所谓了
-
-
-
-
-
 
 
 -----
@@ -6385,14 +4132,7 @@ fakeking 发表于 2010-3-16 20:31 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15329#       发表于 2010-3-16 20:57
 
 
-
-
 老爹是把红狗打跑了不当心红血的时候被小兵围杀了
-
-
-
-
-
 
 
 -----
@@ -6401,21 +4141,13 @@ fakeking 发表于 2010-3-16 20:31 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15330#       发表于 2010-3-16 21:04
 
 
-
-
 为啥你们都说特拉法尔加是火烈鸟的人，logo明明不一样，难道就是因为相似的构图么？
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15331#       发表于 2010-3-16 21:06
-
 
 
 <blockquote>老爹是把红狗打跑了不当心红血的时候被小兵围杀了
@@ -6425,48 +4157,12 @@ fakeking 发表于 2010-3-16 20:57 <[img src="http://bbs.saraba1st.com/2b/images
 黑胡子团可不是小兵啊啊啊~~~
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 只是野怪罢了...
-
-
-
-
-
 
 
 呃,好吧
 
 或者,也许...是ROSHAN.....
-
-
-
-
-
 
 
 -----
@@ -6475,14 +4171,7 @@ fakeking 发表于 2010-3-16 20:57 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15332#       发表于 2010-3-16 21:08
 
 
-
-
 我说的是白胡子被海军围攻过一次，挨了不少刀
-
-
-
-
-
 
 
 -----
@@ -6491,21 +4180,13 @@ fakeking 发表于 2010-3-16 20:57 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15333#       发表于 2010-3-16 21:17
 
 
-
-
 乡里大辅去世...所以动画制作方找到尾田老师请求他也速速发个便当...
-
-
-
-
-
 
 
 -----
 
 ####  wingchau  
 ##### 15334#       发表于 2010-3-16 21:18
-
 
 
 <blockquote>老爹也算死在红狗手上的吧
@@ -6515,25 +4196,13 @@ loushifang 发表于 2010-3-16 20:43 <[img src="http://bbs.saraba1st.com/2b/imag
 老爹病发的时候还来了个红狗偷心.
 
 
-
-
-
-
-
 -----
 
 ####  lordquest  
 ##### 15335#       发表于 2010-3-16 21:47
 
 
-
-
 主角已经连续打酱油多少回了？还真是史无前例啊
-
-
-
-
-
 
 
 -----
@@ -6542,14 +4211,7 @@ loushifang 发表于 2010-3-16 20:43 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15336#       发表于 2010-3-16 21:57
 
 
-
-
 先三杀再大杀特杀的
-
-
-
-
-
 
 
 -----
@@ -6558,23 +4220,16 @@ loushifang 发表于 2010-3-16 20:43 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15337#       发表于 2010-3-16 23:54
 
 
-
 <blockquote>主角已经连续打酱油多少回了？还真是史无前例啊
 lordquest 发表于 2010-3-16 21:47 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 跟死神比比...
 
 
-
-
-
-
-
 -----
 
 ####  flll  
 ##### 15338#       发表于 2010-3-17 00:01
-
 
 
 <blockquote>乡里大辅去世...所以动画制作方找到尾田老师请求他也速速发个便当...
@@ -6584,16 +4239,10 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 以上都是都是废话
 
 
-
-
-
-
-
 -----
 
 ####  lordquest  
 ##### 15339#       发表于 2010-3-17 00:03
-
 
 
 <blockquote>op什么时候落到和死神相比的地步了？死神从很久以前开始就懒得看了，记得开始玩假面的时候
@@ -6603,16 +4252,10 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 恍惚 发表于 2010-3-16 23:54 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  molilanmao  
 ##### 15340#       发表于 2010-3-17 02:39
-
 
 
 [http://tieba.baidu.com/f?z=730523875&amp;amp](http://tieba.baidu.com/f?z=730523875&amp;amp);ct=335544320&amp;lm=0&amp;sc=0&amp;rn=30&amp;tn=baiduPostBrowser&amp;word=%BA%A3%D4%F4%CD%F5&amp;pn=0
@@ -6625,10 +4268,6 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 下载附件
 
 2010-3-17 02:39 上传
-
-
-
-
 
 
 439的标题是第3人与第7人
@@ -6666,7 +4305,6 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 第511话 扛大斧战桃丸                 （敌方活跃）
 
 
-
 第516话 海贼女帝 波雅.汉库克         
 
 第528话 海侠甚平
@@ -6694,25 +4332,13 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 第562话 海贼大涡蜘蛛史库亚多       （反面角色活跃）
 
 
-
-
-
-
-
 -----
 
 ####  zerock  
 ##### 15341#       发表于 2010-3-17 07:13
 
 
-
-
 海贼王标题学么...看着都累<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6721,21 +4347,13 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15342#       发表于 2010-3-17 07:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">。。。。。。。。。wt阿 这剧情就是猜不透阿，怎么发展成这样了呢
-
-
-
-
-
 
 
 -----
 
 ####  dawn34  
 ##### 15343#       发表于 2010-3-17 09:28
-
-
 
 
 啊哈哈哈哈，草帽果然留在那了
@@ -6753,25 +4371,13 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 而且最后还直接跟白胡子海贼团站到一块了，你果然还是前代2队长吧
 
 
-
-
-
-
-
 -----
 
 ####  奇牙  
 ##### 15344#       发表于 2010-3-17 10:01
 
 
-
-
 我说甚平的便当几率增加了吧
-
-
-
-
-
 
 
 -----
@@ -6780,22 +4386,13 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15345#       发表于 2010-3-17 10:02
 
 
-
-
 啥2队长，就是白胡子的私生子吧，脸上那道疤就是为了不留白胡子把皮都挖掉后留下的吧
-
-
-
-
-
 
 
 -----
 
 ####  wswddtchca  
 ##### 15346#       发表于 2010-3-17 10:17
-
-
 
 
 我艹，草帽到现在也还没醒过来
@@ -6806,33 +4403,19 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 [s:174]人家明明很期待的说
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 15347#       发表于 2010-3-17 11:59
 
 
-
-
 罗和火烈鸟有什么关系？
-
-
-
-
-
 
 
 -----
 
 ####  点数不足  
 ##### 15348#       发表于 2010-3-17 12:25
-
-
 
 
 大将能力都爆棚了么……
@@ -6844,33 +4427,18 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 对手可是海军全部战力啊
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15349#       发表于 2010-3-17 12:32
 
 
-
-
 海军的战斗力爆表了
-
-
-
 
 
 白胡团还是托大了啊...
 
 如果不是路飞跑来搅局的话,白胡子就要团灭了啊啊啊~~
-
-
-
-
-
 
 
 -----
@@ -6879,15 +4447,9 @@ aris 发表于 2010-3-16 21:17 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15350#       发表于 2010-3-17 13:05
 
 
-
 <blockquote>如果不是路飞跑来搅局的话,白胡子就要团灭了啊啊啊~~
 kvkv 发表于 2010-3-17 12:32 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 啥？
-
-
-
-
-
 
 
 -----
@@ -6896,14 +4458,7 @@ kvkv 发表于 2010-3-17 12:32 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15351#       发表于 2010-3-17 13:09
 
 
-
-
 红狗往那儿一站，这气势就对得起大将两个字！这才叫爷们，不管再坏再凶，执行命令严格就是男人！七武海也要分三六九等的，鱼，鲨只能算末流而已，鹰的水平我认为绝对不在大将之下。战国身为元帅，当大将的时候联手卡普拿下了当时第一人金狮子，战力应该是超强吧，至少应强过大将。终于出手了，我很欣慰。路飞再好好锻炼下吧，目前的你离世界最高水平还相差得太远太远太远了，人家不是玩不过你，是根本不想跟你玩而已。
-
-
-
-
-
 
 
 -----
@@ -6912,16 +4467,10 @@ kvkv 发表于 2010-3-17 12:32 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15352#       发表于 2010-3-17 14:19
 
 
-
 <blockquote>红狗往那儿一站，这气势就对得起大将两个字！这才叫爷们，不管再坏再凶，执行命令严格就是男人！七武海也要分三六九等的，鱼，鲨只能算末流而已，鹰的水平我认为绝对不在大将之下。战国身为元帅，当大将的时候联手卡 ...
 guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 路飞不是自己就打掉了金狮子么<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6930,15 +4479,9 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15353#       发表于 2010-3-17 14:21
 
 
-
 <blockquote>路飞不是自己就打掉了金狮子么<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
 迪特 发表于 2010-3-17 14:19 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer"> 剧场版、、BOSS再凶狠。。来头再大。。也秒掉给你看！
-
-
-
-
-
 
 
 -----
@@ -6947,14 +4490,7 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15354#       发表于 2010-3-17 14:23
 
 
-
-
 金狮子泪流满面 20年啊。。。
-
-
-
-
-
 
 
 -----
@@ -6963,14 +4499,7 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15355#       发表于 2010-3-17 14:41
 
 
-
-
 金狮子：娘的……作者让防水都不行了！改放大坝了！路飞！用力！
-
-
-
-
-
 
 
 -----
@@ -6979,14 +4508,7 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15356#       发表于 2010-3-17 14:54
 
 
-
-
 哎，剧场版就是发生在平行世界中的故事啊。照这个势头来看，三大将联手全力发挥的话，加上元帅，黑白胡子应该是团灭的下场。
-
-
-
-
-
 
 
 -----
@@ -6995,14 +4517,7 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15357#       发表于 2010-3-17 14:57
 
 
-
-
 从漫画上看，超新星团最强的二个人联手，才能貌似对付一下伪大熊而已。而猴子一人就可以双手揣兜且横扫四个超新星。
-
-
-
-
-
 
 
 -----
@@ -7011,14 +4526,7 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15358#       发表于 2010-3-17 15:00
 
 
-
-
 等剧场版等了很久，现在忽然完全没有期待了
-
-
-
-
-
 
 
 -----
@@ -7027,15 +4535,9 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15359#       发表于 2010-3-17 15:01
 
 
-
 <blockquote>从漫画上看，超新星团最强的二个人联手，才能貌似对付一下伪大熊而已。而猴子一人就可以双手揣兜且横扫四个超新星。
 guanliang 发表于 2010-3-17 14:57 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 对付熊的时候外科医生怎么不直接熊替换掉 还有基德的能力好象是磁力吧？他用能力直接把熊拆了不就好了吗
-
-
-
-
-
 
 
 -----
@@ -7044,15 +4546,9 @@ guanliang 发表于 2010-3-17 14:57 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15360#       发表于 2010-3-17 15:37
 
 
-
 <blockquote>对付熊的时候外科医生怎么不直接熊替换掉 还有基德的能力好象是磁力吧？他用能力直接把熊拆了不就好了吗
 gooas 发表于 2010-3-17 15:01 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 熊那不是鐡。。。。
-
-
-
-
-
 
 
 -----
@@ -7061,16 +4557,10 @@ gooas 发表于 2010-3-17 15:01 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15361#       发表于 2010-3-17 16:07
 
 
-
 <blockquote>七武海也要分三六九等的，鱼，鲨只能算末流而已
 guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 您是用哪只狗眼看出来的？
-
-
-
-
-
 
 
 -----
@@ -7079,14 +4569,7 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15362#       发表于 2010-3-17 16:19
 
 
-
-
 傲娇沙以前绝对是白胡子的女人，绝对！！<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7095,14 +4578,7 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15363#       发表于 2010-3-17 16:25
 
 
-
-
 这还用狗眼吗？屁眼就看出来了，这两个就是废物一样。
-
-
-
-
-
 
 
 -----
@@ -7111,21 +4587,13 @@ guanliang 发表于 2010-3-17 13:09 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15364#       发表于 2010-3-17 16:26
 
 
-
-
 傲娇沙是伊万科夫给变过来的？
-
-
-
-
-
 
 
 -----
 
 ####  鬼嘲风  
 ##### 15365#       发表于 2010-3-17 17:01
-
 
 
 <blockquote>这还用狗眼吗？屁眼就看出来了，这两个就是废物一样。
@@ -7137,24 +4605,13 @@ guanliang 发表于 2010-3-17 16:25 <[img src="http://bbs.saraba1st.com/2b/image
 而红发除了四皇的名号之外唯一已知的战绩就是和白胡子拼了一刀，灭了一伙山贼，传说中和鹰眼战了个平手，哦对，还有被一只不太能打的海王类咬断手臂，也未见得比甚平和沙鳄强多少。
 
 
-
-
-
-
-
 -----
 
 ####  米兰猫  
 ##### 15366#       发表于 2010-3-17 17:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/138.gif" referrerpolicy="no-referrer">按这样推算路飞他老爸不过是刮了一次屁风的传说革命家
-
-
-
-
-
 
 
 -----
@@ -7163,16 +4620,10 @@ guanliang 发表于 2010-3-17 16:25 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15367#       发表于 2010-3-17 17:09
 
 
-
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/138.gif" referrerpolicy="no-referrer">按这样推算路飞他老爸不过是刮了一次屁风的传说革命家
 米兰猫 发表于 2010-3-17 17:05 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 既然王下七武海都能被看出末流一说，那么只露面一次的龙也完全可以不过是个传说中的革命家罢了。
-
-
-
-
-
 
 
 -----
@@ -7181,21 +4632,13 @@ guanliang 发表于 2010-3-17 16:25 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15368#       发表于 2010-3-17 17:19
 
 
-
-
 白胡子狂怒之下的2拳也要不了红狗的命，红狗半残了还秒了鱼+人妖+阴阳脸，外带单挑鲨和白胡子全体，那白胡子是不是更丢人？鹰眼用把指甲刀完胜索隆，索隆靠领悟密技算是秒了MR1，MR1和MR0的等级相差多少？很大很大吗？路飞拼下蛮力连档都不开就胜了鲨，可能后来海军心想你七武海就这水平？赶紧找个黑胡子来代替吧。照鲨当时的水平，海军出个CP9足够了秒他了。关了几年监狱出来就升段了？虽然对鲨印象不错，但说到底充其量一个中将水平而已。大熊一人轻松加愉快抽飞草帽团全体人员，好象比吃饭还轻松； 火鸡动动手指就秒了小巨人，这次大战看得出来只有莫胖子勉强算是比较尽力的，其它能拍着胸脯说尽力了？鱼？连ACE都可以单挑他，完全不够看。另外凭红发的水平，三大将随便出一个也差不多很大，红狗单挑白胡子有落丝毫落下风吗？那两个大将尽力了吗？卡普还被孙子一拳揍翻在地呢，他也弱？
-
-
-
-
-
 
 
 -----
 
 ####  65535  
 ##### 15369#       发表于 2010-3-17 17:21
-
 
 
  本帖最后由 65535 于 2010-3-17 17:24 编辑 
@@ -7207,17 +4650,10 @@ guanliang 发表于 2010-3-17 16:25 <[img src="http://bbs.saraba1st.com/2b/image
 另外，艾斯很弱么？别因为人家吃了便当就把人家当废物了
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15370#       发表于 2010-3-17 17:22
-
-
 
 
 鳄鱼入狱前说他是末流还可以。
@@ -7234,16 +4670,10 @@ guanliang 发表于 2010-3-17 16:25 <[img src="http://bbs.saraba1st.com/2b/image
 这三个人介于两个时代之间，吃的又几乎是最强的果实。实在是逆天啊。
 
 
-
-
-
-
-
 -----
 
 ####  克洛克达尔  
 ##### 15371#       发表于 2010-3-17 17:32
-
 
 
 <blockquote>MR1和MR0的等级相差多少？很大很大吗？路飞拼下蛮力连档都不开就胜了鲨，可能后来海军心想你七武海就这水平？赶紧找个黑胡子来代替吧。照鲨当时的水平，海军出个CP9足够了秒他了。关了几年监狱出来就升段了？虽然对鲨印象不错，但说到底充其量<strong><strong>一个中将水平</strong></strong>而已。
@@ -7254,16 +4684,10 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 和草帽小子一战，我的确是过于轻敌了。没想到他居然能从流沙和人干的必死状况下活过来……如果再次交手的话，他可就不会有这么好的运气了。
 
 
-
-
-
-
-
 -----
 
 ####  鬼嘲风  
 ##### 15372#       发表于 2010-3-17 17:34
-
 
 
 <blockquote>白胡子狂怒之下的2拳也要不了红狗的命，<strong>红狗半残了还秒了鱼+人妖+阴阳脸，外带单挑鲨和白胡子全体</strong>，那白胡子是不是更丢人？鹰眼用把指甲刀完胜索隆，索隆靠领悟密技算是秒了MR1，MR1和MR0的等级相差多少？很大很大吗？路飞拼下蛮力连档都不开就胜了鲨，可能后来海军心想你七武海就这水平？赶紧找个黑胡子来代替吧。照鲨当时的水平，海军出个CP9足够了秒他了。关了几年监狱出来就升段了？虽然对鲨印象不错，但说到底充其量一个中将水平而已。大熊一人轻松加愉快抽飞草帽团全体人员，好象比吃饭还轻松；火鸡动动手指就秒了小巨人，这次大战看得出来只有莫胖子勉强算是比较尽力的，其它能拍着胸脯说尽力了？鱼？连ACE都可以单挑他，完全不够看。另外凭红发的水平，三大将随便出一个也差不多很大，红狗单挑白胡子有落丝毫落下风吗？那两个大将尽力了吗？卡普还被孙子一拳揍翻在地呢，他也弱？
@@ -7275,16 +4699,10 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 红发的水平？红发目前显露过一丁点儿可信的战斗力么？就别费劲拿红发来说事儿了。红狗单挑白胡子还没有落下风？两拳就不知道死哪去了，照着您这种思维方式，我一样可以脑补出来要不是白胡子伤了，要不是白胡子死了，红狗根本嘛达嘛达不够看。
 
 
-
-
-
-
-
 -----
 
 ####  BartholemewKuma  
 ##### 15373#       发表于 2010-3-17 17:36
-
 
 
 <blockquote>大熊一人轻松加愉快抽飞草帽团全体人员，好象比吃饭还轻松；...
@@ -7292,16 +4710,10 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 这事不能说的太细……
 
 
-
-
-
-
-
 -----
 
 ####  wolfjw  
 ##### 15374#       发表于 2010-3-17 17:37
-
 
 
 <blockquote>白胡子狂怒之下的2拳也要不了红狗的命，红狗半残了还秒了鱼+人妖+阴阳脸，外带单挑鲨和白胡子全体，那白胡子是不是更丢人？鹰眼用把指甲刀完胜索隆，索隆靠领悟密技算是秒了MR1，MR1和MR0的等级相差多少？很大很大吗？路飞拼下蛮力连档都不开就胜了鲨，可能后来海军心想你七武海就这水平？赶紧找个黑胡子来代替吧。照鲨当时的水平，海军出个CP9足够了秒他了。关了几年监狱出来就升段了？虽然对鲨印象不错，但说到底充其量一个中将水平而已。大熊一人轻松加愉快抽飞草帽团全体人员，好象比吃饭还轻松； 火鸡动动手指就秒了小巨人，这次大战看得出来只有莫胖子勉强算是比较尽力的，其它能拍着胸脯说尽力了？鱼？连ACE都可以单挑他，完全不够看。另外凭红发的水平，三大将随便出一个也差不多很大，红狗单挑白胡子有落丝毫落下风吗？那两个大将尽力了吗？卡普还被孙子一拳揍翻在地呢，他也弱？
@@ -7325,16 +4737,10 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 7 你最后那句话自己都醒悟到这点了，然后回上去看你前面的话，自己感觉矛盾没有~简直像说了一堆废话……
 
 
-
-
-
-
-
 -----
 
 ####  米兰猫  
 ##### 15375#       发表于 2010-3-17 17:40
-
 
 
 <blockquote>虽然我不在意别人对我的看法，不过敢这么小瞧我的人，你还是第一个。
@@ -7345,32 +4751,19 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 你这遇水就变废材的体质敢在海上横行么<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Genku  
 ##### 15376#       发表于 2010-3-17 17:51
 
 
-
-
 看OP就不要那么执着拉，既然双能力人都出来了，就乖乖等着尾田画下去吧。
-
-
-
-
-
 
 
 -----
 
 ####  ScarletMoon  
 ##### 15377#       发表于 2010-3-17 17:58
-
 
 
 <blockquote>鹰眼到目前所做的无非是砍了个索隆削了座冰山还有传说中和红发战了个平手。
@@ -7383,16 +4776,10 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 这么说来四皇也分三六九等
 
 
-
-
-
-
-
 -----
 
 ####  犀利  
 ##### 15378#       发表于 2010-3-17 18:01
-
 
 
  本帖最后由 犀利 于 2010-3-17 18:07 编辑 
@@ -7410,16 +4797,10 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 578赤犬一人面对所有海贼毫无惧意实在是太TM的帅了。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15379#       发表于 2010-3-17 18:03
-
 
 
 <blockquote>红发还被没能力的黑胡子破相
@@ -7432,17 +4813,10 @@ ScarletMoon 发表于 2010-3-17 17:58 <[img src="http://bbs.saraba1st.com/2b/ima
 红发和黑胡子交手最早可能可以追溯到22年前啊
 
 
-
-
-
-
-
 -----
 
 ####  superbia  
 ##### 15380#       发表于 2010-3-17 18:05
-
-
 
 
 说真的,如果黄猿和青雉打从一开始就像赤犬般火力全开而非在打酱油
@@ -7450,16 +4824,10 @@ ScarletMoon 发表于 2010-3-17 17:58 <[img src="http://bbs.saraba1st.com/2b/ima
 我看海贼早就全灭了...<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  superbia  
 ##### 15381#       发表于 2010-3-17 18:16
-
 
 
  本帖最后由 superbia 于 2010-3-17 18:17 编辑 
@@ -7475,33 +4843,19 @@ LS各位,赤犬此战是很好很强大,但说老爹和大将打会两败俱伤�
 其实最逆天的还是青雉,因为他基本上是一名不惧海水的能力者...<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rtyclear  
 ##### 15382#       发表于 2010-3-17 18:41
 
 
-
-
 期待黑胡子吸星大法VS 红发独孤九剑
-
-
-
-
-
 
 
 -----
 
 ####  guanliang  
 ##### 15383#       发表于 2010-3-17 18:59
-
-
 
 
 回15441
@@ -7527,16 +4881,10 @@ LS各位,赤犬此战是很好很强大,但说老爹和大将打会两败俱伤�
 10。OP不是好人就能不死的，不败的，WT是神，实力不济，再热血也没用。
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15384#       发表于 2010-3-17 18:59
-
 
 
 <blockquote>白胡子狂怒之下的2拳也要不了红狗的命，红狗半残了还秒了鱼+人妖+阴阳脸，外带单挑鲨和白胡子全体，那白胡子是不是更丢人？鹰眼用把指甲刀完胜索隆，索隆靠领悟密技算是秒了MR1，MR1和MR0的等级相差多少？很大很大吗 ...
@@ -7544,16 +4892,10 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 这满篇的吐槽点…只能说你太有才了。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15385#       发表于 2010-3-17 19:08
-
 
 
  本帖最后由 不败之狼 于 2010-3-17 19:36 编辑 
@@ -7571,21 +4913,13 @@ guanliang 发表于 2010-3-17 17:19 <[img src="http://bbs.saraba1st.com/2b/image
 个人觉得佐罗在超新星中肯定不是垫底，因为部下的赏金和船长赏金的计算方式是不一样的。
 
 
-
-
 再提一句，无论是大事件里还是大监狱里，路飞这方面都不是为了打架来的，而是救人+逃跑。马尔高上去单挑战国有什么意义,白胡子单挑大将有什么意义
-
-
-
-
-
 
 
 -----
 
 ####  囧神  
 ##### 15386#       发表于 2010-3-17 19:08
-
 
 
  本帖最后由 囧神 于 2010-3-17 19:10 编辑 
@@ -7601,25 +4935,13 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 沙漠篇的沙鳄远比你觉得的要强…主角光环护身的路飞也在他手下“死”了两次，最后还是因为主角光环再加上沙鳄轻敌才险胜。
 
 
-
-
-
-
-
 -----
 
 ####  guanliang  
 ##### 15387#       发表于 2010-3-17 19:15
 
 
-
-
 还是LSS对，自己自得其乐就行了。算了，反正ACE也死了，白胡子也死了，路飞也疯了，海军这边基地也毁了，看WT怎么画下去吧。红狗，看好你啊。带着杀气活下去吧。
-
-
-
-
-
 
 
 -----
@@ -7628,22 +4950,15 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15388#       发表于 2010-3-17 19:53
 
 
-
 <blockquote>Zoro的成长性被你无视那这漫画你也可以别看下去了。
 wolfjw 发表于 2010-3-17 17:37 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 ZORO的成长其实比路飞还强一点点的 用没任何果实加乘的肉体一瞬间完全承受住路飞的所有的疼痛 还能保持知觉 路飞在有果实的情况下早已经昏迷了
-
-
-
-
-
 
 
 -----
 
 ####  yario  
 ##### 15389#       发表于 2010-3-17 20:01
-
 
 
 <blockquote>又来这满满的吐槽点了…
@@ -7655,25 +4970,13 @@ ZORO的成长其实比路飞还强一点点的 用没任何果实加乘的肉体
 我觉得是沙鳄懵了，路飞为了打赢他干脆用血和他死拼了，这小子的气势不够了。。。最后杯具。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15390#       发表于 2010-3-17 20:02
 
 
-
-
 没人讨论草帽吗？2个大大的特写啊。。。
-
-
-
-
-
 
 
 -----
@@ -7682,17 +4985,10 @@ ZORO的成长其实比路飞还强一点点的 用没任何果实加乘的肉体
 ##### 15391#       发表于 2010-3-17 20:17
 
 
-
-
 已经渐渐地开始替赤犬正名了么
 
 
 嘛，不管怎么说赤犬也算是OP里能让我感兴趣的第二个男性角色
-
-
-
-
-
 
 
 -----
@@ -7701,14 +4997,7 @@ ZORO的成长其实比路飞还强一点点的 用没任何果实加乘的肉体
 ##### 15392#       发表于 2010-3-17 20:27
 
 
-
-
 赤犬秒掉抱住路飞的甚平有什么话好说?作为海军最高战力,他的实力本来就是最高位之一. 被他打败就等于二流了?可笑
-
-
-
-
-
 
 
 -----
@@ -7717,21 +5006,14 @@ ZORO的成长其实比路飞还强一点点的 用没任何果实加乘的肉体
 ##### 15393#       发表于 2010-3-17 20:56
 
 
-
 <blockquote>我觉得是沙鳄懵了，路飞为了打赢他干脆用血和他死拼了，这小子的气势不够了。。。最后杯具。
 yario 发表于 2010-3-17 20:01 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>因为前两次都是压倒性日翻路飞，所以轻敌了，然后被路飞揍了几拳，被气势震了。然后路飞中毒那里主角光环亮啊亮，死活不倒，沙鳄就懵了…然后就说出了“为什么你还能动”这种FLAG了。要是当时他没被主角光环震到，头脑清醒的和路飞打消耗战，路飞十条命都不够赔…
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15394#       发表于 2010-3-17 21:15
-
 
 
  本帖最后由 不败之狼 于 2010-3-17 21:16 编辑 
@@ -7742,17 +5024,10 @@ yario 发表于 2010-3-17 20:01 <[img src="http://bbs.saraba1st.com/2b/images/co
 如果是认真交手的话，只要不在水上，腐蚀轮回用过之后有了人造沙漠鳄鱼就几乎无敌了嘛
 
 
-
-
-
-
-
 -----
 
 ####  kangbaiyin  
 ##### 15395#       发表于 2010-3-17 21:37
-
-
 
 
 赤犬和队长之争也就算了
@@ -7764,16 +5039,10 @@ yario 发表于 2010-3-17 20:01 <[img src="http://bbs.saraba1st.com/2b/images/co
 该说是青赤犬还是黑赤犬啊
 
 
-
-
-
-
-
 -----
 
 ####  WaterSeven  
 ##### 15396#       发表于 2010-3-17 21:40
-
 
 
 <blockquote>回15441
@@ -7790,17 +5059,10 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 刺老白，斗钻石，战小唐，救艾斯，挡鹰眼，斩赤犬，护路飞。要不是他，大家都还留在LV6，小冯也不用牺牲，路飞也不用变SB了。
 
 
-
-
-
-
-
 -----
 
 ####  vigilgt  
 ##### 15397#       发表于 2010-3-17 22:05
-
-
 
 
 少年漫畫總要執著於強弱麼..
@@ -7808,16 +5070,10 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 只有我在看海一般胸襟的冒險精神麼..
 
 
-
-
-
-
-
 -----
 
 ####  65535  
 ##### 15398#       发表于 2010-3-17 22:11
-
 
 
 <blockquote>少年漫畫總要執著於強弱麼..
@@ -7827,16 +5083,10 @@ vigilgt 发表于 2010-3-17 22:05 <[img src="http://bbs.saraba1st.com/2b/images/
 所以上面某人被喷了个半死。。。
 
 
-
-
-
-
-
 -----
 
 ####  wolfjw  
 ##### 15399#       发表于 2010-3-17 22:56
-
 
 
 <blockquote>回15441
@@ -7848,32 +5098,19 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 除了万能表情我无以言对……我不玩了你们继续~
 
 
-
-
-
-
-
 -----
 
 ####  日向超  
 ##### 15400#       发表于 2010-3-17 23:07
 
 
-
-
 不管你们上面几个怎么喷，CP9还是很强的，尤其是路奇，你们不要黑好吗<img src="https://static.saraba1st.com/image/smiley/face/171.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白河亜紀  
 ##### 15401#       发表于 2010-3-17 23:19
-
 
 
 <blockquote>不管你们上面几个怎么喷，CP9还是很强的，尤其是路奇，你们不要黑好吗<img src="https://static.saraba1st.com/image/smiley/face/171.gif" referrerpolicy="no-referrer">
@@ -7885,25 +5122,13 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 [s:163]
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15402#       发表于 2010-3-17 23:26
 
 
-
-
 大将都自然，6式全精通，那也太逆天了
-
-
-
-
-
 
 
 -----
@@ -7912,14 +5137,7 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15403#       发表于 2010-3-17 23:31
 
 
-
-
 少年漫画不执着于强弱，路飞还升什么级啊，凭广阔的胸襟去冒险好了吧。没实力，看看救不了ACE吧。
-
-
-
-
-
 
 
 -----
@@ -7928,21 +5146,13 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15404#       发表于 2010-3-17 23:34
 
 
-
-
 猴子说过：没实力，你什么也干不了啊。好好升下级吧路飞，前方还有很多困难等着你呢。在OP的世界里，胸襟是和实力挂勾的。
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 15405#       发表于 2010-3-18 00:55
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/167.gif" referrerpolicy="no-referrer">大将会6式一点不奇怪。。嘛。。我觉得
@@ -7954,17 +5164,10 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 当然我觉得最少学个月步比较好。。
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15406#       发表于 2010-3-18 01:29
-
-
 
 
 6式是必备技能
@@ -7980,10 +5183,6 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 
 
 最后才是六王统那样的 奥义
-
-
-
-
 
 
 这次大事件我也要吐糟 
@@ -8019,7 +5218,6 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 至少也算路飞的对手
 
 
-
 这次倒好了　甚平从海底监狱开始　就是最卖力的人　
 
 
@@ -8038,16 +5236,10 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 但是这理由我都不觉得能说服自己
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 15407#       发表于 2010-3-18 01:44
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">其他我就不吐槽了
@@ -8057,17 +5249,10 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 <img src="https://static.saraba1st.com/image/smiley/face/75.gif" referrerpolicy="no-referrer"> WT！你敢再让女帝多出现一些么！
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15408#       发表于 2010-3-18 03:29
-
-
 
 
 看第0话 
@@ -8085,29 +5270,17 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 会的话为啥不用 不会的话你也太不长进了 还真不如沙姐
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 15409#       发表于 2010-3-18 04:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/182.jpg" referrerpolicy="no-referrer">这下你们满意了吧
-
-
-
-
 
 
 se.jpg
 (150 KB, 下载次数: 5)
-
-
 
 
 下载附件
@@ -8116,31 +5289,13 @@ se.jpg
 2010-3-18 04:05 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/1003180405057316177ec1b493.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  jsyyyz  
 ##### 15410#       发表于 2010-3-18 04:11
-
 
 
 <blockquote>回15441
@@ -8218,7 +5373,6 @@ guanliang 发表于 2010-3-17 18:59 <[img src="http://bbs.saraba1st.com/2b/image
 WT你能给我解释 这是个什么逻辑
 
 
-
 7 莫里亚也没被打败 只是他的僵尸被封印了 影箱 影蝙蝠又没被封印 
 
 
@@ -8264,16 +5418,10 @@ WT你能给我解释 这是个什么逻辑
 为什么不去堵那个防护网的漏洞？
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 15411#       发表于 2010-3-18 04:22
-
 
 
 <blockquote>1 其实最大的问题是 你说新世界船长他们各自为战就算了 他们可能彼此不熟 也没法太短时间之内达成默契 
@@ -8288,16 +5436,10 @@ jsyyyz 发表于 2010-3-18 04:11 <[img src="http://bbs.saraba1st.com/2b/images/c
 <img src="https://static.saraba1st.com/image/smiley/face/75.gif" referrerpolicy="no-referrer"> GJ！一次吐个够本！赞！
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15412#       发表于 2010-3-18 04:36
-
 
 
  本帖最后由 jsyyyz 于 2010-3-18 04:39 编辑 
@@ -8326,7 +5468,6 @@ jsyyyz 发表于 2010-3-18 04:11 <[img src="http://bbs.saraba1st.com/2b/images/c
 结果变成什么都不说 就突然说黑胡子来夺取能力了 然后就双能力了
 
 
-
 这个就和喷神当初喷游戏时候所说的 没啥价值的叙述 
 
 
@@ -8343,8 +5484,6 @@ jsyyyz 发表于 2010-3-18 04:11 <[img src="http://bbs.saraba1st.com/2b/images/c
 
 
 我cao 这就是最终boss? 为啥不早说？
-
-
 
 
 黑胡子的身体也是这个道理
@@ -8365,7 +5504,6 @@ jsyyyz 发表于 2010-3-18 04:11 <[img src="http://bbs.saraba1st.com/2b/images/c
 也怪不得他能承受黑暗果实的副作用
 
 
-
 结果事情就变成相反的了 怎么相反对比上面看就知道
 
 
@@ -8375,17 +5513,10 @@ jsyyyz 发表于 2010-3-18 04:11 <[img src="http://bbs.saraba1st.com/2b/images/c
 结果 第二点先说了 第一点和第三点同时告诉你 这逻辑是谁都很难短时间内接受吧
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15413#       发表于 2010-3-18 04:45
-
-
 
 
 所以我总结就是 
@@ -8412,17 +5543,10 @@ jsyyyz 发表于 2010-3-18 04:11 <[img src="http://bbs.saraba1st.com/2b/images/c
 然后各个细节的铺垫不够 除了那个包围网
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15414#       发表于 2010-3-18 05:07
-
-
 
 
 当初沙漠的时候好看是道理很多的
@@ -8521,25 +5645,13 @@ Mr.7和 他的助手是狙击手，一直就等在大钟那里负责伏击发现
 但是这次大事件缺的就是这个 分工太不明确了
 
 
-
-
-
-
-
 -----
 
 ####  ★草泥马★  
 ##### 15415#       发表于 2010-3-18 07:11
 
 
-
-
 我还是不明白为啥岩浆能烧死人，火烧不死人
-
-
-
-
-
 
 
 -----
@@ -8548,21 +5660,13 @@ Mr.7和 他的助手是狙击手，一直就等在大钟那里负责伏击发现
 ##### 15416#       发表于 2010-3-18 07:19
 
 
-
-
 鳄鱼，我果然没看错你！不上船就说不过去了
-
-
-
-
-
 
 
 -----
 
 ####  zerock  
 ##### 15417#       发表于 2010-3-18 07:26
-
 
 
  本帖最后由 zerock 于 2010-3-18 07:29 编辑 
@@ -8587,17 +5691,10 @@ Mr.7和 他的助手是狙击手，一直就等在大钟那里负责伏击发现
 战国就更不用说了，整场比赛一直在流汗害怕，补时阶段却能满场放地图炮，你让读者怎么评价他的实力……
 
 
-
-
-
-
-
 -----
 
 ####  Chao  
 ##### 15418#       发表于 2010-3-18 07:26
-
-
 
 
 奇怪，这集战国怎么把“仁义”和“正义”相提并论，难道以后要联合起来打黑胡子
@@ -8606,16 +5703,10 @@ Mr.7和 他的助手是狙击手，一直就等在大钟那里负责伏击发现
 PS.没人想过赤犬会上船？
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15419#       发表于 2010-3-18 07:33
-
 
 
 <blockquote>1 其实最大的问题是 你说新世界船长他们各自为战就算了 他们可能彼此不熟 也没法太短时间之内达成默契 
@@ -8629,16 +5720,10 @@ jsyyyz 发表于 2010-3-18 04:11 <[img src="http://bbs.saraba1st.com/2b/images/c
 你这说的很多东西都不能实现的…没有人能预测到下一秒会出现什么状况。还有，战场上不只有大将75和队长，那些中将什么的也是需要清的。
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15420#       发表于 2010-3-18 07:36
-
 
 
 <blockquote>大事件的刻画确实有问题
@@ -8655,16 +5740,10 @@ zerock 发表于 2010-3-18 07:26 <[img src="http://bbs.saraba1st.com/2b/images/c
 白胡子实力很好的体现出来的吧？OP世界的最上级的单体战力根本就相差不远…如果秒人才算实力那你当我什么都没说吧。
 
 
-
-
-
-
-
 -----
 
 ####  zerock  
 ##### 15421#       发表于 2010-3-18 07:43
-
 
 
 <blockquote>原帖由 狮子歌歌 于 2010-3-16 21:11 发表 <[img src="http://club.tgfc.com/images/common/back.gif" referrerpolicy="no-referrer">
@@ -8677,16 +5756,10 @@ zerock 发表于 2010-3-18 07:26 <[img src="http://bbs.saraba1st.com/2b/images/c
 难道那个WT助手的剧透是真的<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zerock  
 ##### 15422#       发表于 2010-3-18 08:03
-
 
 
  本帖最后由 zerock 于 2010-3-18 08:08 编辑 
@@ -8699,17 +5772,10 @@ zerock 发表于 2010-3-18 07:26 <[img src="http://bbs.saraba1st.com/2b/images/c
 白胡子刚出场引发的地震海啸确实NB，但是OP里背景和人物的伤害计算明显有双重标准，Mr.1能轻易劈开楼房却劈不开Zoro，Zoro可以一招劈开火车头却很难伤到防御力“接近铁块”的长颈鹿男，沙鳄在阿尔巴尼斯坦准备的强力炸弹几乎能毁掉一座城，却连提着炸弹的鸟人贝尔都炸不死……所以说，对背景的破坏再大也没用，和对人伤害完全不是一套计算公式……白胡子身为世界最强，到死为止也只干掉了几个龙套，跟他交过手的NB人物要么无伤要么还在虐别人，你觉得这种剧情安排合理么？
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15423#       发表于 2010-3-18 08:09
-
-
 
 
 全都是吐糟点
@@ -8724,33 +5790,19 @@ zerock 发表于 2010-3-18 07:26 <[img src="http://bbs.saraba1st.com/2b/images/c
 之后白胡子自己闭上眼睛 那就好接受的多
 
 
-
-
-
-
-
 -----
 
 ####  醉饮黄龙  
 ##### 15424#       发表于 2010-3-18 08:24
 
 
-
-
 都这样还没体现出白胡子的实力。。。那还要怎么体现啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  囧神  
 ##### 15425#       发表于 2010-3-18 08:33
-
-
 
 
 傻！弱化补丁被你无视，行动力被你无视，黑胡子的事现在什么都搞不清楚你就拿出来说事。前面也是，拿读者的上帝视角来评价角色，你还能再纱布点吗？
@@ -8760,31 +5812,19 @@ zerock 发表于 2010-3-18 07:26 <[img src="http://bbs.saraba1st.com/2b/images/c
 白胡子是最强但他不是神，我不想再说第二次。
 
 
-
-
-
-
-
 -----
 
 ####  米兰猫  
 ##### 15426#       发表于 2010-3-18 08:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">黄猴子偷懒了几话了？
-
-
-
-
-
 
 
 -----
 
 ####  jsyyyz  
 ##### 15427#       发表于 2010-3-18 08:50
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">不过我确实觉得白胡子出来就是放map的 
@@ -8802,33 +5842,19 @@ zerock 发表于 2010-3-18 07:26 <[img src="http://bbs.saraba1st.com/2b/images/c
 但是世界第一男这一点真找不出特别的证据来证明了
 
 
-
-
-
-
-
 -----
 
 ####  醉饮黄龙  
 ##### 15428#       发表于 2010-3-18 09:04
 
 
-
-
 世界第一只是说他1对1时候可以赢任何人，又不是说一个人就能扫平海军总部了
-
-
-
-
-
 
 
 -----
 
 ####  magicled  
 ##### 15429#       发表于 2010-3-18 09:19
-
-
 
 
 这么说的话
@@ -8841,32 +5867,19 @@ zerock 发表于 2010-3-18 07:26 <[img src="http://bbs.saraba1st.com/2b/images/c
 白胡子一直在压制战国啊
 
 
-
-
-
-
-
 -----
 
 ####  taichiY  
 ##### 15430#       发表于 2010-3-18 09:37
 
 
-
-
 为了棒红狗，用得着这样踩白胡子么？
-
-
-
-
-
 
 
 -----
 
 ####  kidthief  
 ##### 15431#       发表于 2010-3-18 09:58
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">不过我确实觉得白胡子出来就是放map的 
@@ -8894,32 +5907,19 @@ jsyyyz 发表于 2010-3-18 08:50 <[img src="http://bbs.saraba1st.com/2b/images/c
 话说，红狗是不是有挖洞的嗜好<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  taichiY  
 ##### 15432#       发表于 2010-3-18 10:11
 
 
-
-
 再说没救艾斯之前，老爹还有顾虑没能全力。
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 15433#       发表于 2010-3-18 10:12
-
 
 
 <blockquote>我还是不明白为啥岩浆能烧死人，火烧不死人
@@ -8929,26 +5929,15 @@ jsyyyz 发表于 2010-3-18 08:50 <[img src="http://bbs.saraba1st.com/2b/images/c
 艾斯战力太弱了。。。
 
 
-
-
-
-
-
 -----
 
 ####  lenin  
 ##### 15434#       发表于 2010-3-18 10:20
 
 
-
  本帖最后由 lenin 于 2010-3-18 10:23 编辑 
 
 红狗打鱼的时候打偏了   他自己都说了
-
-
-
-
-
 
 
 -----
@@ -8957,24 +5946,15 @@ jsyyyz 发表于 2010-3-18 08:50 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15435#       发表于 2010-3-18 10:29
 
 
-
-
 中文版已经出了，说甚平末流，红狗随便秒的自己再去看看吧
 
 正面与红狗对拳，但红狗目标是怀里的路飞，所以转身护住路飞，自己被贯穿
-
-
-
-
-
 
 
 -----
 
 ####  点数不足  
 ##### 15436#       发表于 2010-3-18 11:53
-
-
 
 
 甚平我艹一定会上船的
@@ -8984,17 +5964,10 @@ jsyyyz 发表于 2010-3-18 08:50 <[img src="http://bbs.saraba1st.com/2b/images/c
 小沙沙日后就全体奔来了！
 
 
-
-
-
-
-
 -----
 
 ####  克洛克达尔  
 ##### 15437#       发表于 2010-3-18 12:22
-
-
 
 
 既然说过要保护，那就好好的保护啊！
@@ -9006,17 +5979,10 @@ jsyyyz 发表于 2010-3-18 08:50 <[img src="http://bbs.saraba1st.com/2b/images/c
 别再让海军那些人为所欲为了！！
 
 
-
-
-
-
-
 -----
 
 ####  vigilgt  
 ##### 15438#       发表于 2010-3-18 12:27
-
-
 
 
 那個說黑胡子身體特殊沒鋪墊的
@@ -9038,27 +6004,15 @@ jsyyyz 发表于 2010-3-18 08:50 <[img src="http://bbs.saraba1st.com/2b/images/c
 誰找找那張圖?
 
 
-
-
-
-
-
 -----
 
 ####  superbia  
 ##### 15439#       发表于 2010-3-18 12:42
 
 
-
-
 谁说没铺垫?
 
 由ACE对上黑胡子时说他活的时间比一般人长一倍时,我们就知道黑胡子这家伙的身体有问题/有特殊能力对吧?
-
-
-
-
-
 
 
 -----
@@ -9067,14 +6021,10 @@ jsyyyz 发表于 2010-3-18 08:50 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15440#       发表于 2010-3-18 12:43
 
 
-
-
 赞同某几楼的说法
 
 
 大事件的刻画的确很有问题,君不见大事件以来,我们讨论得最多的就是\"酱油\"两个字么?
-
-
 
 
 WT对某几个人刻画得很好,比如沙姐,白胡子,红狗,甚平,甚至巴基,
@@ -9091,23 +6041,16 @@ WT对某几个人刻画得很好,比如沙姐,白胡子,红狗,甚平,甚至巴�
 还有,钻石呢?小唐呢?鹰眼呢?他们各自与老沙对一招就\"打酱油\"去了?
 
 
-
 所以说,如果依照WT的思路来看这次大事件的话,有足够的好看,足够的燃
 
 
 可是,如果开上帝视角从上空俯瞰这个战场的话......<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  括号  
 ##### 15441#       发表于 2010-3-18 12:46
-
 
 
 <blockquote>那個說黑胡子身體特殊沒鋪墊的
@@ -9127,32 +6070,19 @@ WT对某几个人刻画得很好,比如沙姐,白胡子,红狗,甚平,甚至巴�
 vigilgt 发表于 2010-3-18 12:27 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote><img src="http://i39.tinypic.com/214blea.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ruler  
 ##### 15442#       发表于 2010-3-18 12:58
 
 
-
-
 觉得其他人在打酱油的可以去看死神嘛，死神每个队长﹑副队长都有1到5 6 7 8 9 10话的solo。
-
-
-
-
-
 
 
 -----
 
 ####  迪特  
 ##### 15443#       发表于 2010-3-18 12:59
-
 
 
 <blockquote>http://i39.tinypic.com/214blea.jpg
@@ -9162,25 +6092,13 @@ vigilgt 发表于 2010-3-18 12:27 <[img src="http://bbs.saraba1st.com/2b/images/
 这伏笔…………
 
 
-
-
-
-
-
 -----
 
 ####  ruler  
 ##### 15444#       发表于 2010-3-18 13:02
 
 
-
-
 老白一开始就被傻儿子捅了一刀要害，战力下降一半不止，你们还想他怎样？
-
-
-
-
-
 
 
 -----
@@ -9189,22 +6107,15 @@ vigilgt 发表于 2010-3-18 12:27 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15445#       发表于 2010-3-18 13:07
 
 
-
 <blockquote>http://i39.tinypic.com/214blea.jpg
 括号 发表于 2010-3-18 12:46 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 这个只是单纯说明路飞和索隆察觉到黑胡子还有同伴吧？
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15446#       发表于 2010-3-18 13:15
-
 
 
 <blockquote>觉得其他人在打酱油的可以去看死神嘛，死神每个队长﹑副队长都有1到5 6 7 8 9 10话的solo。
@@ -9217,9 +6128,6 @@ ruler 发表于 2010-3-18 12:58 <[img src="http://bbs.saraba1st.com/2b/images/co
 除了OP模式就只能死神模式?   <img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer"> 
 
 
-
-
-
 其实处理方法很简单,直接让双方打酱油的家伙们1V1就行了,不用5678910话,只要每对战友给一张图就行了....
 
 这样我们就知道\"哦,原来他们正在与某某家伙PK\"
@@ -9228,8 +6136,6 @@ ruler 发表于 2010-3-18 12:58 <[img src="http://bbs.saraba1st.com/2b/images/co
 可是WT没这样做,他为了突出老沙(我举老沙这个例子,因为他太典型了),而让他出现在每个危险地方去救险,洗白得一干二净
 
 可WT你让\"那个时候\"正在与老沙PK的钻石,小唐,鹰眼们颜面何存啊.......
-
-
 
 
 所以说,WT突出了个人的性格,而把战场的整体给忽视了.....整个战场给我的感觉非常的乱,而且不实在...
@@ -9242,16 +6148,10 @@ ruler 发表于 2010-3-18 12:58 <[img src="http://bbs.saraba1st.com/2b/images/co
 但,这却是一定有缺陷的......
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15447#       发表于 2010-3-18 13:19
-
 
 
 <blockquote>谁说没铺垫?
@@ -9265,25 +6165,13 @@ superbia 发表于 2010-3-18 12:42 <[img src="http://bbs.saraba1st.com/2b/images
 但是说真的很难联想到现在来
 
 
-
-
-
-
-
 -----
 
 ####  努达拉  
 ##### 15448#       发表于 2010-3-18 13:23
 
 
-
-
 看这架势……下一个加入会是甚平？
-
-
-
-
-
 
 
 -----
@@ -9292,15 +6180,9 @@ superbia 发表于 2010-3-18 12:42 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15449#       发表于 2010-3-18 13:23
 
 
-
 <blockquote>http://i39.tinypic.com/214blea.jpg
 括号 发表于 2010-3-18 12:46 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 我当初看到这个地方的理解，是路飞因为抢馅饼，知道对方有伙伴，才说那些家伙们。现在太久了，忘记了。
-
-
-
-
-
 
 
 -----
@@ -9309,16 +6191,9 @@ superbia 发表于 2010-3-18 12:42 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15450#       发表于 2010-3-18 13:25
 
 
-
-
 赞同LSS上的，这一战，清楚的让路飞看到了与世界级战力的差距而已。强若老爹这样的男人都战死在这一战，旧时代结束了，新时代开启了。
 
 另外问一下青稚是不是照松田优作的样子画的，昨天玩鬼武者一下觉得好像。
-
-
-
-
-
 
 
 -----
@@ -9327,14 +6202,7 @@ superbia 发表于 2010-3-18 12:42 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15451#       发表于 2010-3-18 13:26
 
 
-
-
 堪平陆地上拼不过红狗不是很正常么，有种下海来打啊…………
-
-
-
-
-
 
 
 -----
@@ -9343,22 +6211,13 @@ superbia 发表于 2010-3-18 12:42 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15452#       发表于 2010-3-18 13:27
 
 
-
-
 另外从漫画最先对鳄鱼的描写来看，老沙不是那么勇于出风头上窜下跳的人啊，WT一定有阴谋，一定有阴谋。
-
-
-
-
-
 
 
 -----
 
 ####  jsyyyz  
 ##### 15453#       发表于 2010-3-18 13:33
-
-
 
 
 那个省略号的那个太牵强了。。。
@@ -9368,7 +6227,6 @@ superbia 发表于 2010-3-18 12:42 <[img src="http://bbs.saraba1st.com/2b/images
 
 
 和他的身体特殊没什么必然联系 
-
 
 
 另外我可能说的不够清楚
@@ -9393,7 +6251,6 @@ superbia 发表于 2010-3-18 12:42 <[img src="http://bbs.saraba1st.com/2b/images
 
 
 再拿黑胡子的身体进行对比 
-
 
 
 黑胡子这个人 我要是问别人 最能想起他什么
@@ -9444,16 +6301,10 @@ superbia 发表于 2010-3-18 12:42 <[img src="http://bbs.saraba1st.com/2b/images
 也就是侧重不够吧
 
 
-
-
-
-
-
 -----
 
 ####  superbia  
 ##### 15454#       发表于 2010-3-18 13:41
-
 
 
 <blockquote>也只能得出前面那个结论来吧
@@ -9464,32 +6315,19 @@ jsyyyz 发表于 2010-3-18 13:19 <[img src="http://bbs.saraba1st.com/2b/images/c
 当我看到一队说黑胡子的身体是\"异形\"时,我就想起ACE那话,事实是WT早就暗示了黑胡子不是常人,我们一早就知道黑胡子这家伙要麽身体有特异处,要麽有特殊能力,那就是伏笔,说WT没挖这坑是不公道的
 
 
-
-
-
-
-
 -----
 
 ####  yousong1221  
 ##### 15455#       发表于 2010-3-18 13:42
 
 
-
-
 我觉得嘛，WT一定也看BBS的，也知道哪里读者普遍接受不能，要怪只能怪JUMP给的篇幅太少了，要画和交代的东西太多了，不知道单行本会不会多几个新图来补完。
-
-
-
-
-
 
 
 -----
 
 ####  jsyyyz  
 ##### 15456#       发表于 2010-3-18 13:52
-
 
 
 <blockquote>当我看到一队说黑胡子的身体是\"异形\"时,我就想起ACE那话,事实是WT早就暗示了黑胡子不是常人,我们一早就知道黑胡子这家伙要麽身体有特异处,要麽有特殊能力,那就是伏笔,说WT没挖这坑是不公道的 ...
@@ -9506,27 +6344,15 @@ superbia 发表于 2010-3-18 13:41 <[img src="http://bbs.saraba1st.com/2b/images
 就知道了
 
 
-
-
-
-
-
 -----
 
 ####  jxz  
 ##### 15457#       发表于 2010-3-18 13:59
 
 
-
-
 我觉得wt有这么些暗示足矣，又不是推理漫，线索不画出来算是阴读者。
 
 我当时看黑暗果实的能力就觉得奇怪，似乎不值得黑胡子处心积虑这么多年。
-
-
-
-
-
 
 
 -----
@@ -9535,23 +6361,16 @@ superbia 发表于 2010-3-18 13:41 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15458#       发表于 2010-3-18 14:18
 
 
-
 <blockquote>http://i39.tinypic.com/214blea.jpg
 括号 发表于 2010-3-18 12:46 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 这伏笔……我一开始以为是指黑胡子的队员……现在再看……
 
 
-
-
-
-
-
 -----
 
 ####  vigilgt  
 ##### 15459#       发表于 2010-3-18 14:26
-
 
 
 <blockquote>这个只是单纯说明路飞和索隆察觉到黑胡子还有同伴吧？
@@ -9566,16 +6385,10 @@ WT甚至通過娜美的口直接給出\"同伴\"這一解釋
 陰謀啊!
 
 
-
-
-
-
-
 -----
 
 ####  superbia  
 ##### 15460#       发表于 2010-3-18 14:47
-
 
 
 <blockquote>这个一个人真没啥说服力
@@ -9592,17 +6405,10 @@ jsyyyz 发表于 2010-3-18 13:52 <[img src="http://bbs.saraba1st.com/2b/images/c
 我想起了ACE的话不是重点,重点是WT的确是一早就在N话前於\"黑胡子有特异之处\"这点挖了坑,一队的话只是进一步把这坑挖深,我针对的是\"WT没在黑胡子的问题上铺垫\"这点,坑是一早就被挖了,至於是否想起ACE的话完全是个人问题
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15461#       发表于 2010-3-18 14:49
-
-
 
 
 我只是觉得　挖了坑的想法　这个目前来说只能说是因人而异　
@@ -9620,16 +6426,10 @@ jsyyyz 发表于 2010-3-18 13:52 <[img src="http://bbs.saraba1st.com/2b/images/c
 那想不到就是想不到　没什么好解释的
 
 
-
-
-
-
-
 -----
 
 ####  superbia  
 ##### 15462#       发表于 2010-3-18 15:11
-
 
 
 <blockquote>我只是觉得　挖了坑的想法　这个目前来说只能说是因人而异　
@@ -9651,16 +6451,10 @@ jsyyyz 发表于 2010-3-18 14:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 如果你眼中的\"坑\"是指作者一定要直接说出XXX,那我只好<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 了
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15463#       发表于 2010-3-18 15:12
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/96.gif" referrerpolicy="no-referrer">算了
@@ -9678,17 +6472,10 @@ jsyyyz 发表于 2010-3-18 14:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 现在这里连看第3次的想法都没了
 
 
-
-
-
-
-
 -----
 
 ####  龙意识  
 ##### 15464#       发表于 2010-3-18 15:17
-
-
 
 
 有些坑不一定要挖的那么明显......
@@ -9697,17 +6484,10 @@ jsyyyz 发表于 2010-3-18 14:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 [http://bbs.ikunlun.net/topic.php ... ge=2&amp;class_id=0](http://bbs.ikunlun.net/topic.php?topic_id=190082&amp;forum_id=27&amp;forum_page=2&amp;class_id=0)
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15465#       发表于 2010-3-18 15:23
-
-
 
 
 233 
@@ -9718,32 +6498,19 @@ jsyyyz 发表于 2010-3-18 14:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 当时他也没觉出艾斯的话的作用来
 
 
-
-
-
-
-
 -----
 
 ####  拜拜  
 ##### 15466#       发表于 2010-3-18 15:30
 
 
-
-
 红狗怎么吃了白胡子一拳一点事都没有啊，son of bitch
-
-
-
-
-
 
 
 -----
 
 ####  龙意识  
 ##### 15467#       发表于 2010-3-18 15:45
-
 
 
 <blockquote>233 
@@ -9759,16 +6526,10 @@ jsyyyz 发表于 2010-3-18 15:23 <[img src="http://bbs.saraba1st.com/2b/images/c
 虽然老鹰看的是“好几倍”这个版本的翻译，不过他也有注意到好不好。
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15468#       发表于 2010-3-18 15:51
-
 
 
 <blockquote>“首先是艾斯话中，“走过的人生是常人的好几倍”这句话让人很是在意，不太确定真实的含义，是指黑胡子的年龄很大还是特指什么经历，总之这是与其过去信息有关的暗示，很可惜作者没给任何延伸。”
@@ -9781,16 +6542,10 @@ jsyyyz 发表于 2010-3-18 15:23 <[img src="http://bbs.saraba1st.com/2b/images/c
 更何况我也没他迷这个那么厉害
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15469#       发表于 2010-3-18 16:17
-
 
 
  本帖最后由 囧神 于 2010-3-18 16:22 编辑 
@@ -9801,24 +6556,13 @@ jxz 发表于 2010-3-18 13:59 <[img src="http://bbs.saraba1st.com/2b/images/comm
 的确…当初我觉得这果实很渣，能封能力肉搏但又有副作用，地图炮的话各种果实都有，何必吃这个，当时黑胡子的抗打击能力让我觉得这果实挺配他的，但是只有这样的表现又太过牵强。现在才知道，这果实跟本就是为他而造的。黑胡子为了这果实做的一切都说得通了。
 
 
-
-
-
-
-
 -----
 
 ####  BartholemewKuma  
 ##### 15470#       发表于 2010-3-18 16:22
 
 
-
 安波里奥·伊万科夫……旅行的话，你想去哪里？
-
-
-
-
-
 
 
 -----
@@ -9827,17 +6571,10 @@ jxz 发表于 2010-3-18 13:59 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15471#       发表于 2010-3-18 16:47
 
 
-
-
 别纠结伏笔了，尾田又不是没挖坑，谁都没注意罢了，他妈的这是少年漫又不是推理漫。
 
 
 当初拉布又有谁把它当回事儿了，最后骷髅头出来还不都我操我操我操这大坑真牛逼一片一片的。
-
-
-
-
-
 
 
 -----
@@ -9846,14 +6583,7 @@ jxz 发表于 2010-3-18 13:59 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15472#       发表于 2010-3-18 16:56
 
 
-
-
 我猜黑胡子是穿越者
-
-
-
-
-
 
 
 -----
@@ -9862,16 +6592,10 @@ jxz 发表于 2010-3-18 13:59 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15473#       发表于 2010-3-18 17:26
 
 
-
 <blockquote>我猜黑胡子是穿越者
 ramielbilly 发表于 2010-3-18 16:56 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 他变成猫的话怎么样才能萌的起来……
-
-
-
-
-
 
 
 -----
@@ -9880,21 +6604,13 @@ ramielbilly 发表于 2010-3-18 16:56 <[img src="http://bbs.saraba1st.com/2b/ima
 ##### 15474#       发表于 2010-3-18 17:42
 
 
-
-
 说到伏笔这次大事件中埋下的 也不少。。。。
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 15475#       发表于 2010-3-18 19:00
-
 
 
  本帖最后由 kvkv 于 2010-3-18 19:01 编辑 
@@ -9907,15 +6623,9 @@ ramielbilly 发表于 2010-3-18 16:56 <[img src="http://bbs.saraba1st.com/2b/ima
 就看WT想不想用以及用得自然不自然罢了
 
 
-
 生命纸那个就自然得很
 
 黑胡子那个明显有点不那么的自然
-
-
-
-
-
 
 
 -----
@@ -9924,15 +6634,9 @@ ramielbilly 发表于 2010-3-18 16:56 <[img src="http://bbs.saraba1st.com/2b/ima
 ##### 15476#       发表于 2010-3-18 19:36
 
 
-
 <blockquote>堪平陆地上拼不过红狗不是很正常么，有种下海来打啊…………
 DeniumMKII 发表于 2010-3-18 13:26 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 青薙太贱了，每次都是关键时候冻住海面.......<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9941,22 +6645,13 @@ DeniumMKII 发表于 2010-3-18 13:26 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15477#       发表于 2010-3-18 20:47
 
 
-
-
 老沙往队长们中间一站还真是一点违和感没有
-
-
-
-
-
 
 
 -----
 
 ####  ff1982  
 ##### 15478#       发表于 2010-3-18 22:26
-
-
 
 
 可能性来排
@@ -9967,25 +6662,13 @@ DeniumMKII 发表于 2010-3-18 13:26 <[img src="http://bbs.saraba1st.com/2b/imag
 - -
 
 
-
-
-
-
-
 -----
 
 ####  迪奧  
 ##### 15479#       发表于 2010-3-18 22:39
 
 
-
-
 沙鳄从行为上看　绝对和艾斯当年一样　想证明自己　肯丁在老爹船上干过
-
-
-
-
-
 
 
 -----
@@ -9994,17 +6677,10 @@ DeniumMKII 发表于 2010-3-18 13:26 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15480#       发表于 2010-3-18 23:47
 
 
-
-
 哎。。争论实力可以说我觉得谁很强。。。。但是tmd非要咬着个谁一定很弱说事看上去就很欠打了。。。。某些sb就是那种死神秒人的逻辑。。。
 
 
 难怪死神这种sb玩意人气还那么高。。不得不说真是越来越觉得有优越感了。。。
-
-
-
-
-
 
 
 -----
@@ -10013,22 +6689,15 @@ DeniumMKII 发表于 2010-3-18 13:26 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15481#       发表于 2010-3-19 00:20
 
 
-
 <blockquote>青薙太贱了，每次都是关键时候冻住海面.......<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 DJC 发表于 2010-3-18 19:36 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 大将意识好啊，团战时控场总是放得那么到位，红狗的切入也很犀利，只有黄猴打酱油
-
-
-
-
-
 
 
 -----
 
 ####  胡桃夹子  
 ##### 15482#       发表于 2010-3-19 00:20
-
 
 
 <blockquote> 
@@ -10046,25 +6715,13 @@ ps:为什么大家认定大将一定是能力者?
 预言帝……
 
 
-
-
-
-
-
 -----
 
 ####  Nuriko  
 ##### 15483#       发表于 2010-3-19 00:31
 
 
-
-
 w kao,,,05年的预言帝出没在S1。。
-
-
-
-
-
 
 
 -----
@@ -10073,7 +6730,6 @@ w kao,,,05年的预言帝出没在S1。。
 ##### 15484#       发表于 2010-3-19 00:46
 
 《傲娇异闻录》——大事件背后的奸情
-
 
 
 花1200分做个专题吧
@@ -10094,10 +6750,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer"> ：本来以为回到自由世界也没什么意思，不过他就是我的全世界
 
 
@@ -10109,10 +6761,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer"> ：草泥马，就你这人妖多事
@@ -10128,10 +6776,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/186.gif" referrerpolicy="no-referrer"> ：整装待发，亲爱的我来了
 
 
@@ -10145,10 +6789,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/10031900468e46ab5f420ca99d.jpg" referrerpolicy="no-referrer">
 
 
@@ -10157,10 +6797,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer"> ：原来是你小子
@@ -10176,10 +6812,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer"> 身无彩凤双飞翼，化作细沙落身旁
 
 
@@ -10191,10 +6823,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer"> ：草泥马！胖子你找死啊！
@@ -10210,10 +6838,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer"> ：又tm来个打酱油的，你们烦不烦啊
 
 
@@ -10225,10 +6849,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer"> ：腿毛男快滚，你以为你玩得很转么？
@@ -10244,10 +6864,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer"> ：你让别人插也不让我插……
 
 
@@ -10259,11 +6875,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
-
 
 
 [s:163] ：来世再让你插
@@ -10279,10 +6890,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/1003190046c32e34a0b97b46bf.jpg" referrerpolicy="no-referrer">
 
 
@@ -10291,10 +6898,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer"> ：哥玩无间道不是一天两天了，山羊胡子
@@ -10310,10 +6913,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/10.gif" referrerpolicy="no-referrer"> ：我不会和任何人合作的，因为……
 
 
@@ -10325,11 +6924,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
-
 
 
 ……
@@ -10345,10 +6939,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/100319004653e06569292b20b8.jpg" referrerpolicy="no-referrer">
 
 
@@ -10357,11 +6947,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
-
 
 
 （这里翻译有误，原文是“boss有指令，暂时与海军为敌）
@@ -10377,10 +6962,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer"> ：你连我小弟都敢动？（翻译有误，原文意为我现在正好心情不好别惹我）
 
 
@@ -10394,10 +6975,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/100319004648e28099c09e0e4d.jpg" referrerpolicy="no-referrer">
 
 
@@ -10406,11 +6983,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
-
 
 
 ↑落寞的眼神
@@ -10426,10 +6998,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer"> ：为了一、两个伙伴而死掉，值得么？？？
 
 
@@ -10441,10 +7009,6 @@ w kao,,,05年的预言帝出没在S1。。
 下载附件
 
 2010-3-19 00:46 上传
-
-
-
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer"> ：我劈死你……
@@ -10460,10 +7024,6 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/150.gif" referrerpolicy="no-referrer"> ：人总是在失去后才懂得珍惜
 
 
@@ -10477,17 +7037,7 @@ w kao,,,05年的预言帝出没在S1。。
 2010-3-19 00:46 上传
 
 
-
-
-
-
-
 未完待续——实时更新
-
-
-
-
-
 
 
 -----
@@ -10496,14 +7046,7 @@ w kao,,,05年的预言帝出没在S1。。
 ##### 15485#       发表于 2010-3-19 02:51
 
 
-
-
 神作！你辛苦了！
-
-
-
-
-
 
 
 -----
@@ -10512,14 +7055,7 @@ w kao,,,05年的预言帝出没在S1。。
 ##### 15486#       发表于 2010-3-19 03:12
 
 
-
-
 沙鳄鱼确实是个很不错的帮手阿
-
-
-
-
-
 
 
 -----
@@ -10528,14 +7064,7 @@ w kao,,,05年的预言帝出没在S1。。
 ##### 15487#       发表于 2010-3-19 04:43
 
 
-
-
 巴基怎么搞了个海军披风披着 想伪装成海军逃走么<img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10544,15 +7073,9 @@ w kao,,,05年的预言帝出没在S1。。
 ##### 15488#       发表于 2010-3-19 08:15
 
 
-
 <blockquote>巴基怎么搞了个海军披风披着 想伪装成海军逃走么<img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">
 玛丽·居里 发表于 2010-3-19 04:43 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 巴基大人拯救世界<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10561,24 +7084,16 @@ w kao,,,05年的预言帝出没在S1。。
 ##### 15489#       发表于 2010-3-19 09:34
 
 
-
-
 接下来会不会这样展开：
 
 
 路飞被救，战场的描写也就终了。路飞成功脱离后画面一转XXXX天之后，满街的报纸报道着大事件的结果：战国战死啊大奖嗝屁啊队长被杀啊之类的，这时候稍微被治好点有了意识的甚平指引着潜水艇把路飞送到了鱼人岛。。。。和之前的剧情又接上了<img src="https://static.saraba1st.com/image/smiley/face/10.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lenin  
 ##### 15490#       发表于 2010-3-19 09:50
-
 
 
 <blockquote>w kao,,,05年的预言帝出没在S1。。
@@ -10595,21 +7110,13 @@ OP大概不会出现无敌这样的设定,如神般强大都绝想不到会有�
 红蜘蛛 发表于 2005-12-18 19:34 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
-
 这才叫预言帝啊
-
-
-
-
-
 
 
 -----
 
 ####  点数不足  
 ##### 15491#       发表于 2010-3-19 11:36
-
-
 
 
 下一话元帅战国质问黄猴子为什么打酱油
@@ -10621,17 +7128,10 @@ OP大概不会出现无敌这样的设定,如神般强大都绝想不到会有�
 好黑好暗好狭小！
 
 
-
-
-
-
-
 -----
 
 ####  ff1982  
 ##### 15492#       发表于 2010-3-19 12:00
-
-
 
 
 女帝呢
@@ -10639,16 +7139,10 @@ OP大概不会出现无敌这样的设定,如神般强大都绝想不到会有�
 没道理路飞都要挂了还酱油啊
 
 
-
-
-
-
-
 -----
 
 ####  查内姆  
 ##### 15493#       发表于 2010-3-19 12:01
-
 
 
  本帖最后由 查内姆 于 2010-3-19 12:02 编辑 
@@ -10666,26 +7160,15 @@ OP大概不会出现无敌这样的设定,如神般强大都绝想不到会有�
 决定和众队长一起守护老爹的“遗产”
 
 
-
-
-
-
-
 -----
 
 ####  BartholemewKuma  
 ##### 15494#       发表于 2010-3-19 13:54
 
 
-
 <img src="http://bbs.saraba1st.com/2b/attachment.php?aid=112021&amp;k=baa5a00b917baf0dc519eaab380ba02e&amp;t=1268976939&amp;noupdate=yes&amp;sid=49dedJHWRFs%2FiBW%2B7vcQo0RPs6TRa5ptiU4dELd7AGBCNIc" id="aimg_jptO6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 无名小卒成为了我的继任者
-
-
-
-
-
 
 
 -----
@@ -10694,21 +7177,13 @@ OP大概不会出现无敌这样的设定,如神般强大都绝想不到会有�
 ##### 15495#       发表于 2010-3-19 13:57
 
 
-
-
 女帝呢<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  xtiger  
 ##### 15496#       发表于 2010-3-19 14:25
-
 
 
 <blockquote>http://bbs.saraba1st.com/2b/attachment.php?aid=112021&amp;k=baa5a00b917baf0dc519eaab380ba02e&amp;t=1268976939&amp;noupdate=yes&amp;sid=49dedJHWRFs%2FiBW%2B7vcQo0RPs6TRa5ptiU4dELd7AGBCNIc
@@ -10719,36 +7194,22 @@ BartholemewKuma 发表于 2010-3-19 13:54 <[img src="http://bbs.saraba1st.com/2b
 这个是指继任了七武海的位置吧
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 15497#       发表于 2010-3-19 16:57
 
 
-
-
 奇怪了。。。为啥我老觉得战国的map是霸气呢？因为不够白胡子霸，所以一直没放。。但是黑胡子惹到战国的了。。所以战国怒max了。。。
 
 
-
 战国是大佛果实拥有者，已经确定了没？我不太记得了？
-
-
-
-
-
 
 
 -----
 
 ####  Nuriko  
 ##### 15498#       发表于 2010-3-19 17:31
-
 
 
 <blockquote>这才叫预言帝啊
@@ -10758,25 +7219,13 @@ lenin 发表于 2010-3-19 09:50 <[img src="http://bbs.saraba1st.com/2b/images/co
 仔细看，我们说的是同一个人啊！！考，真·语言帝！！
 
 
-
-
-
-
-
 -----
 
 ####  迪奧  
 ##### 15499#       发表于 2010-3-19 17:55
 
 
-
-
 楼主你穿越了
-
-
-
-
-
 
 
 -----
@@ -10785,14 +7234,7 @@ lenin 发表于 2010-3-19 09:50 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15500#       发表于 2010-3-19 18:25
 
 
-
-
 我好想看女人版的鳄鱼
-
-
-
-
-
 
 
 -----
@@ -10801,15 +7243,9 @@ lenin 发表于 2010-3-19 09:50 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15501#       发表于 2010-3-19 18:25
 
 
-
 <blockquote>楼主你穿越了
 迪奧 发表于 2010-3-19 17:55 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 穿越的是你吧
-
-
-
-
-
 
 
 -----
@@ -10818,14 +7254,7 @@ lenin 发表于 2010-3-19 09:50 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15502#       发表于 2010-3-19 18:32
 
 
-
-
 我在想，白胡子说的一个心脏是不是和黑胡子特殊体质有关？一个心脏一个恶魔果实？
-
-
-
-
-
 
 
 -----
@@ -10834,14 +7263,7 @@ lenin 发表于 2010-3-19 09:50 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15503#       发表于 2010-3-19 18:46
 
 
-
-
 我想问，3月24出DVD的传言是不是真的？
-
-
-
-
-
 
 
 -----
@@ -10850,15 +7272,9 @@ lenin 发表于 2010-3-19 09:50 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15504#       发表于 2010-3-19 18:50
 
 
-
 <blockquote>大将意识好啊，团战时控场总是放得那么到位，红狗的切入也很犀利，只有黄猴打酱油
 sandro 发表于 2010-3-19 00:20 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 青鸡是冰法啊...恍然大悟...
-
-
-
-
-
 
 
 -----
@@ -10867,15 +7283,9 @@ sandro 发表于 2010-3-19 00:20 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15505#       发表于 2010-3-19 18:55
 
 
-
 <blockquote>楼主你穿越了
 迪奧 发表于 2010-3-19 17:55 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 233333333
-
-
-
-
-
 
 
 -----
@@ -10884,21 +7294,13 @@ sandro 发表于 2010-3-19 00:20 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15506#       发表于 2010-3-19 20:02
 
 
-
-
 红叔要封神了，也不知道丫还上不上s1了。
-
-
-
-
-
 
 
 -----
 
 ####  zerock  
 ##### 15507#       发表于 2010-3-20 02:31
-
 
 
  本帖最后由 zerock 于 2010-3-20 02:35 编辑 
@@ -10910,16 +7312,10 @@ opbbs和贴吧的讨论风气已经妖魔化了，OP任何剧情发展都被冠�
 op里没有普通剧情只有伏笔<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 15508#       发表于 2010-3-20 02:49
-
 
 
 <blockquote>opbbs和贴吧的讨论风气已经妖魔化了，OP任何剧情发展都被冠名以“伏笔”
@@ -10929,32 +7325,19 @@ zerock 发表于 2010-3-20 02:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 女帝和路飞在船上度过的那些天是超级大伏笔！
 
 
-
-
-
-
-
 -----
 
 ####  市杵宍姫命  
 ##### 15509#       发表于 2010-3-20 02:52
 
 
-
-
 救世主穿上海軍衣服了啊- -
-
-
-
-
-
 
 
 -----
 
 ####  游公子  
 ##### 15510#       发表于 2010-3-20 05:48
-
 
 
 <blockquote>女帝和路飞在船上度过的那些天是超级大伏笔！
@@ -10969,16 +7352,10 @@ DGIL 发表于 2010-3-20 02:49 <[img src="http://bbs.saraba1st.com/2b/images/com
 请看，尾田与FJ合著，《全职海贼》！
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15511#       发表于 2010-3-20 06:23
-
 
 
 <blockquote>救世主穿上海軍衣服了啊- -
@@ -10986,16 +7363,10 @@ DGIL 发表于 2010-3-20 02:49 <[img src="http://bbs.saraba1st.com/2b/images/com
 那也是超级大伏笔
 
 
-
-
-
-
-
 -----
 
 ####  红胡子海盗  
 ##### 15512#       发表于 2010-3-20 08:50
-
 
 
 <blockquote>没错，画面一转15年后，一个戴着草帽的孩子出海找爸爸，身边还带着一条蛇。
@@ -11006,32 +7377,19 @@ DGIL 发表于 2010-3-20 02:49 <[img src="http://bbs.saraba1st.com/2b/images/com
 看了以后我居然期待了起来<img src="https://static.saraba1st.com/image/smiley/face/157.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####   天使的画笔 该用户已被删除 
 ##### 15513#       发表于 2010-3-20 08:53
 
 
-
-
 怎么5老星还不出来，海军总部都被破坏成这样了，这么把持的住吗
-
-
-
-
-
 
 
 -----
 
 ####  pei1019  
 ##### 15514#       发表于 2010-3-20 09:41
-
 
 
 <blockquote>我好想看女人版的鳄鱼
@@ -11047,16 +7405,7 @@ DGIL 发表于 2010-3-20 02:49 <[img src="http://bbs.saraba1st.com/2b/images/com
 2010-3-20 09:41 上传
 
 
-
-
-
-
 沙姐真是好妹子啊（咦？！）
-
-
-
-
-
 
 
 -----
@@ -11065,20 +7414,13 @@ DGIL 发表于 2010-3-20 02:49 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15515#       发表于 2010-3-20 09:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">沙总你好销魂啊
-
-
-
-
-
 
 
 -----
 
 ####  taichiY  
 ##### 15516#       发表于 2010-3-20 10:23
-
 
 
 <blockquote>没错，画面一转15年后，一个戴着草帽的女孩子出海找爸爸，身边还带着一条蛇。
@@ -11089,16 +7431,10 @@ DGIL 发表于 2010-3-20 02:49 <[img src="http://bbs.saraba1st.com/2b/images/com
 这个可以有，真的<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 15517#       发表于 2010-3-20 10:26
-
 
 
 <blockquote>没错，画面一转15年后，一个戴着草帽的萝太出海找爸爸，身边还带着一条蛇。
@@ -11109,25 +7445,13 @@ DGIL 发表于 2010-3-20 02:49 <[img src="http://bbs.saraba1st.com/2b/images/com
 |我、我怎么觉得会是这样的呢……OTL||||
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15518#       发表于 2010-3-20 10:34
 
 
-
-
 为啥要4把刀orz
-
-
-
-
-
 
 
 -----
@@ -11136,15 +7460,9 @@ DGIL 发表于 2010-3-20 02:49 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15519#       发表于 2010-3-20 10:35
 
 
-
 |<blockquote>我、我怎么觉得会是这样的呢……OTL||||
 pei1019 发表于 2010-3-20 10:26 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 主角是萝太,还有个骷髅管家跟着..
-
-
-
-
-
 
 
 -----
@@ -11153,21 +7471,13 @@ pei1019 发表于 2010-3-20 10:26 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15520#       发表于 2010-3-20 10:57
 
 
-
-
 我都期待起来了啊！
-
-
-
-
-
 
 
 -----
 
 ####  sunhydralisk  
 ##### 15521#       发表于 2010-3-20 11:06
-
 
 
 <blockquote>opbbs和贴吧的讨论风气已经妖魔化了，OP任何剧情发展都被冠名以“伏笔”
@@ -11194,16 +7504,10 @@ WT也是人，在这么长篇恢宏的漫画中
 就像红发断臂这事，俺一直觉得是个bug
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15522#       发表于 2010-3-20 12:09
-
 
 
 <blockquote>怎么5老星还不出来，海军总部都被破坏成这样了，这么把持的住吗
@@ -11213,25 +7517,13 @@ WT也是人，在这么长篇恢宏的漫画中
 五老星要镇守政府总部的吧.....<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  叉和圈的ELF  
 ##### 15523#       发表于 2010-3-20 12:12
 
 
-
-
 WT直接15年后吧~
-
-
-
-
-
 
 
 -----
@@ -11240,14 +7532,7 @@ WT直接15年后吧~
 ##### 15524#       发表于 2010-3-20 12:14
 
 
-
-
 为什么是15不是16-___,-
-
-
-
-
-
 
 
 -----
@@ -11256,14 +7541,7 @@ WT直接15年后吧~
 ##### 15525#       发表于 2010-3-20 13:31
 
 
-
-
 沙姐<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11272,14 +7550,7 @@ WT直接15年后吧~
 ##### 15526#       发表于 2010-3-20 15:53
 
 
-
-
 哎，我说啊，那个3月24出DVD的消息是不是真的？
-
-
-
-
-
 
 
 -----
@@ -11288,17 +7559,10 @@ WT直接15年后吧~
 ##### 15527#       发表于 2010-3-20 17:07
 
 
-
-
 赤狗 真有点凶悍的，不过白胡子团要拼不过他就真有失颜面……
 
 
 新医生……会不会是新伙伴啊
-
-
-
-
-
 
 
 -----
@@ -11307,14 +7571,7 @@ WT直接15年后吧~
 ##### 15528#       发表于 2010-3-20 17:39
 
 
-
-
 自然系对上霸气不够强的没有相克属性的对手，再多都是秒。
-
-
-
-
-
 
 
 -----
@@ -11323,16 +7580,9 @@ WT直接15年后吧~
 ##### 15529#       发表于 2010-3-20 17:42
 
 
-
-
 插楼问下
 
 动画版CP9篇是从那一集到那一集？
-
-
-
-
-
 
 
 -----
@@ -11341,14 +7591,7 @@ WT直接15年后吧~
 ##### 15530#       发表于 2010-3-20 18:02
 
 
-
-
 突然有个疑问，“王下七武海”的“王”指的是什么？好像一直没看到过解释，求指点。
-
-
-
-
-
 
 
 -----
@@ -11357,16 +7600,10 @@ WT直接15年后吧~
 ##### 15531#       发表于 2010-3-20 19:08
 
 
-
 <blockquote>为啥要4把刀orz
 loushifang 发表于 2010-3-20 10:34 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 还有一把刀是海军眼镜妹的
-
-
-
-
-
 
 
 -----
@@ -11375,15 +7612,9 @@ loushifang 发表于 2010-3-20 10:34 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15532#       发表于 2010-3-20 19:16
 
 
-
 <blockquote>为啥要4把刀orz
 loushifang 发表于 2010-3-20 10:34 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 两只手两张嘴 四把刀
-
-
-
-
-
 
 
 -----
@@ -11392,15 +7623,9 @@ loushifang 发表于 2010-3-20 10:34 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15533#       发表于 2010-3-20 19:17
 
 
-
 <blockquote>新医生……会不会是新伙伴啊
 星欣我心 发表于 2010-3-20 17:07 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 估计不是
-
-
-
-
-
 
 
 -----
@@ -11409,14 +7634,7 @@ loushifang 发表于 2010-3-20 10:34 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15534#       发表于 2010-3-20 19:23
 
 
-
-
 这次的劫法场的确弄得有点乱，没驾驭好。每次看的时候，我总在想，那个谁谁谁去哪了？那个谁谁谁刚才是不是露了下脸？那个谁谁谁怎么又出来了？从哪冒出来的？<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11425,23 +7643,16 @@ loushifang 发表于 2010-3-20 10:34 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15535#       发表于 2010-3-20 19:30
 
 
-
 <blockquote>两只手两张嘴 四把刀
 gordon47 发表于 2010-3-20 19:16 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 <img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  PATLABOR  
 ##### 15536#       发表于 2010-3-20 19:35
-
 
 
 <blockquote>两只手两张嘴 四把刀
@@ -11451,16 +7662,10 @@ gordon47 发表于 2010-3-20 19:16 <[img src="http://bbs.saraba1st.com/2b/images
 妖怪好可怕   <img src="https://static.saraba1st.com/image/smiley/face/165.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiaolw  
 ##### 15537#       发表于 2010-3-20 19:39
-
 
 
 <blockquote>好可怕   <img src="https://static.saraba1st.com/image/smiley/face/165.gif" referrerpolicy="no-referrer">
@@ -11468,16 +7673,10 @@ PATLABOR 发表于 2010-3-20 19:35 <[img src="http://bbs.saraba1st.com/2b/images
 不这样的才是妖怪<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ikusgca  
 ##### 15538#       发表于 2010-3-20 20:11
-
 
 
 <blockquote>插楼问下
@@ -11488,23 +7687,15 @@ cwlo 发表于 2010-3-20 17:42 <[img src="http://bbs.saraba1st.com/2b/images/com
 我只记得结束是325左右
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15539#       发表于 2010-3-20 20:50
 
 
-
-
 只有我觉得大事件处理得不错么。
 
 让我几乎一直燃了半年多。
-
 
 
 说处理得不好的，至少我是没见过对大规模战争处理得更好的，因为这毕竟是战争，不是1V1V1V1V1V1V1V1V1捉对厮杀
@@ -11519,24 +7710,16 @@ cwlo 发表于 2010-3-20 17:42 <[img src="http://bbs.saraba1st.com/2b/images/com
 希望动画能给其他人多谢镜头——虽然我不看
 
 
-
 最后，75海本来就是来打酱油的，各怀鬼胎。如果真上去拼命才奇了怪了。黄猴子大部分时间在和马尔高耗着，去抓路飞还被一群队长缠住。青鸡被白胡子还有马尔高还有三队长欺负了好几次……
 
 
 剩下的队长，估计实力不会比中将强太多，算是互相拖住了吧。
 
 
-
-
-
-
-
 -----
 
 ####  birthdayll  
 ##### 15540#       发表于 2010-3-20 20:57
-
-
 
 
 大事件太乱了+1
@@ -11546,16 +7729,10 @@ cwlo 发表于 2010-3-20 17:42 <[img src="http://bbs.saraba1st.com/2b/images/com
 这一点富奸就做的很好，同样是boss群战，把需要刻画的人物减到最小，这样角色戏份就安排的很合情合理，没有打酱油的情况
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 15541#       发表于 2010-3-20 20:57
-
 
 
 <blockquote>突然有个疑问，“王下七武海”的“王”指的是什么？好像一直没看到过解释，求指点。
@@ -11563,17 +7740,10 @@ kitano 发表于 2010-3-20 18:02 <[img src="http://bbs.saraba1st.com/2b/images/c
 世界政府吧，还能是啥，天龙人？
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15542#       发表于 2010-3-20 21:01
-
-
 
 
 再者，这场战斗中有很多大人物会是以后的敌人，堂吉诃德之类的，现在描写那么细干什么。
@@ -11597,24 +7767,15 @@ kitano 发表于 2010-3-20 18:02 <[img src="http://bbs.saraba1st.com/2b/images/c
 剩下的……还有谁需要塑造？月光是过时的75海了，鹰眼堂吉诃德以后肯定要大写特写，现在留点神秘感。
 
 
-
-
-
 如果说有缺点的话，ACE的便当太突然——相对于尾田对这个角色的精心刻画来看。身世相貌人气能力都是一等一的。希望路飞能继承他的能力
 
 白胡子我也不太满意，虽然不能说徒有虚名，但是相对于战国所说的那个“毁灭世界的男人”来看，应该有更精彩的表现才对啊，实际上吸收了振振果实的黑胡子都比老爹露脸得多
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15543#       发表于 2010-3-20 21:05
-
 
 
  本帖最后由 不败之狼 于 2010-3-20 21:07 编辑 
@@ -11626,7 +7787,6 @@ kitano 发表于 2010-3-20 18:02 <[img src="http://bbs.saraba1st.com/2b/images/c
 2 能吃双果实，也许是有两个人格两颗心脏之类的
 
 
-
 而之前对路飞的伏笔：
 
 1 一直在减寿命。二档三档，疗毒折寿，肾上腺激素连打……
@@ -11634,13 +7794,7 @@ kitano 发表于 2010-3-20 18:02 <[img src="http://bbs.saraba1st.com/2b/images/c
 2 虽然路飞不是依赖能力的人，但是橡胶果实可以开发的余地实在是不多了。再者面对毒龙，岩浆之类的能力时，路飞就比较无从下手
 
 
-
 这么说的话，路飞吃第二颗果实，特别是ACE的果实的可能性相当大啊
-
-
-
-
-
 
 
 -----
@@ -11649,11 +7803,9 @@ kitano 发表于 2010-3-20 18:02 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15544#       发表于 2010-3-20 21:12
 
 
-
 <blockquote>只有我觉得大事件处理得不错么。
 
 让我几乎一直燃了半年多。
-
 
 
 说处理得不好的，至少我是没见过对大规模战争处理得更好的，因为这毕竟是战争，不是1V1V1V1V1V1V1V1V1捉对厮杀
@@ -11673,9 +7825,6 @@ kitano 发表于 2010-3-20 18:02 <[img src="http://bbs.saraba1st.com/2b/images/c
 这完全可以放在以后来画的吧.....
 
 
-
-
-
 大事件里最混乱的是空间感吧,
 
 除了WT努力刻画的几个之外,随便问一个什么人物在什么地方在干什么,我们只能说\"哦,丫又打酱油去了\"
@@ -11685,16 +7834,10 @@ kitano 发表于 2010-3-20 18:02 <[img src="http://bbs.saraba1st.com/2b/images/c
 这才是最大的缺陷啊
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15545#       发表于 2010-3-20 21:32
-
 
 
  本帖最后由 不败之狼 于 2010-3-20 21:34 编辑 
@@ -11709,16 +7852,10 @@ kitano 发表于 2010-3-20 18:02 <[img src="http://bbs.saraba1st.com/2b/images/c
 再说乱 ！=  不好嘛
 
 
-
-
-
-
-
 -----
 
 ####  cwlo  
 ##### 15546#       发表于 2010-3-20 22:19
-
 
 
 <blockquote>我只记得结束是325左右
@@ -11727,17 +7864,10 @@ ikusgca 发表于 2010-3-20 20:11 <[img src="http://bbs.saraba1st.com/2b/images/
  = =我查百度百科查到了。
 
 
-
-
-
-
-
 -----
 
 ####  superbia  
 ##### 15547#       发表于 2010-3-20 23:26
-
-
 
 
 大事件的败笔就是那数名酱油党
@@ -11754,16 +7884,10 @@ ikusgca 发表于 2010-3-20 20:11 <[img src="http://bbs.saraba1st.com/2b/images/
 WT吐槽自己画大事件画的差还真不是无道理的...<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  醉饮黄龙  
 ##### 15548#       发表于 2010-3-20 23:59
-
 
 
 <blockquote>大事件太乱了+1
@@ -11774,25 +7898,13 @@ birthdayll 发表于 2010-3-20 20:57 <[img src="http://bbs.saraba1st.com/2b/imag
 这个没有可比性啊。。。。
 
 
-
-
-
-
-
 -----
 
 ####  akira1917  
 ##### 15549#       发表于 2010-3-21 00:09
 
 
-
-
 算算漫画史上至少很少有这样的大场面，虽然不够完美，不过已经不错了。
-
-
-
-
-
 
 
 -----
@@ -11801,14 +7913,7 @@ birthdayll 发表于 2010-3-20 20:57 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15550#       发表于 2010-3-21 00:12
 
 
-
-
 漫画本身也不太适合表现大场面
-
-
-
-
-
 
 
 -----
@@ -11817,14 +7922,7 @@ birthdayll 发表于 2010-3-20 20:57 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15551#       发表于 2010-3-21 00:44
 
 
-
-
 我现在比较想知道后半段的冒险将要怎么画，不会还像前面的旅程一样了吧
-
-
-
-
-
 
 
 -----
@@ -11833,18 +7931,11 @@ birthdayll 发表于 2010-3-20 20:57 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15552#       发表于 2010-3-21 00:54
 
 
-
 <blockquote>我现在比较想知道后半段的冒险将要怎么画，不会还像前面的旅程一样了吧
 dab23 发表于 2010-3-21 00:44 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
-
 连续两个便当，这个气氛完全变了。接下来的走向很难预测啊   <img src="https://static.saraba1st.com/image/smiley/face/132.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11853,17 +7944,10 @@ dab23 发表于 2010-3-21 00:44 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15553#       发表于 2010-3-21 01:28
 
 
-
-
 我也觉得大事件的场面不错了，至少主线把握住了，且剧情的进度也没有拖慢，个人以为这就很难得了，这样庞大的场面，让剧情依然按照节奏走下去，大概不是容易事吧。
 
 
 至于15614楼说的，我认为后面赤犬燃烧地面又回来已经足够解释了，被老爹打到地底了么。
-
-
-
-
-
 
 
 -----
@@ -11872,22 +7956,13 @@ dab23 发表于 2010-3-21 00:44 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15554#       发表于 2010-3-21 01:33
 
 
-
-
 大事件人太多了
-
-
-
-
-
 
 
 -----
 
 ####  zerock  
 ##### 15555#       发表于 2010-3-21 01:52
-
-
 
 
 A:请问WT先生是怎么创作新的故事呢?就是如何循序渐进的安排故事流程,由浅入深的?我一直以来都分不清哪个故事该在前哪个故事该在后面,我不太清楚读者的胃口呢,WT先生有研究读者的胃口么?
@@ -11899,25 +7974,13 @@ W:说不研究不可能拉,我们漫画家如果没有读者那么再好的故�
 伏笔的创作方式
 
 
-
-
-
-
-
 -----
 
 ####  鬼嘲风  
 ##### 15556#       发表于 2010-3-21 01:55
 
 
-
-
 我阴暗卑怯的认为，尾田大神和岸本那个傻逼对话实在太鸡巴丢人了！！！！
-
-
-
-
-
 
 
 -----
@@ -11926,17 +7989,10 @@ W:说不研究不可能拉,我们漫画家如果没有读者那么再好的故�
 ##### 15557#       发表于 2010-3-21 08:53
 
 
-
-
 那个对话据说是假的，找不到日文原文
 
 
 WT在56卷SBS里刚说过剧情都是自己一个人做的，不允许编辑参与，跟LSS那段红字明显矛盾
-
-
-
-
-
 
 
 -----
@@ -11945,14 +8001,7 @@ WT在56卷SBS里刚说过剧情都是自己一个人做的，不允许编辑参�
 ##### 15558#       发表于 2010-3-21 08:59
 
 
-
-
 我觉得那个对话是黑ab的
-
-
-
-
-
 
 
 -----
@@ -11961,22 +8010,13 @@ WT在56卷SBS里刚说过剧情都是自己一个人做的，不允许编辑参�
 ##### 15559#       发表于 2010-3-21 09:45
 
 
-
-
 WT和AB有仇么？
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15560#       发表于 2010-3-21 09:51
-
-
 
 
 而且路飞以后航海的目的可能要加入“复仇”了
@@ -11986,17 +8026,10 @@ WT和AB有仇么？
 向黑胡子
 
 
-
-
-
-
-
 -----
 
 ####  kidthief  
 ##### 15561#       发表于 2010-3-21 10:16
-
-
 
 
 漫画的整体风格走向可能要黑化了
@@ -12015,17 +8048,10 @@ WT和AB有仇么？
 由冒险漫画变成复仇漫？（我靠，这不是火影么）
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15562#       发表于 2010-3-21 10:21
-
-
 
 
 关键是ACE没留下啥遗志啊，他又不想当海贼王
@@ -12034,17 +8060,10 @@ WT和AB有仇么？
 以前那种漫无目的的轻松冒险可能再也没有了……
 
 
-
-
-
-
-
 -----
 
 ####  kidthief  
 ##### 15563#       发表于 2010-3-21 10:30
-
-
 
 
 ACE的愿望是白胡子成为海贼王，白胡子也便当了，路飞只有自己去当海贼王了
@@ -12054,16 +8073,10 @@ ACE的愿望是白胡子成为海贼王，白胡子也便当了，路飞只有�
 哥哥为了保护自己死去，为了哥哥活下去（靠，怎么又是火影）<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15564#       发表于 2010-3-21 12:21
-
 
 
  本帖最后由 kvkv 于 2010-3-21 12:32 编辑 
@@ -12076,32 +8089,20 @@ WT让路飞参加大事件的最主要原因就是让他完成性格转变吧...
 然后顺便吸收魅力什么的.....
 
 
-
-
-
-
-
 -----
 
 ####  zhaxiawa  
 ##### 15565#       发表于 2010-3-21 12:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">路飞扭曲黑化误入歧途
 <img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">后来遇到以前的同伴们，然后被同伴抽醒……
-
-
-
-
-
 
 
 -----
 
 ####  红色猎鹰  
 ##### 15566#       发表于 2010-3-21 13:28
-
 
 
 <blockquote>没错，画面一转15年后，一个戴着草帽的孩子出海找爸爸，身边还带着一条蛇。
@@ -12112,16 +8113,10 @@ WT让路飞参加大事件的最主要原因就是让他完成性格转变吧...
 其实我们一直在看前传是吧?是吧!
 
 
-
-
-
-
-
 -----
 
 ####  lordquest  
 ##### 15567#       发表于 2010-3-21 14:34
-
 
 
 <blockquote>你误解了吧
@@ -12141,16 +8136,10 @@ kvkv 发表于 2010-3-20 21:12 <[img src="http://bbs.saraba1st.com/2b/images/com
 确实，上一话看到路飞还霸气秒了二个杂兵，下话就看到其一一个杂兵起来变成mr3成了救ace的关键人物就囧了。
 
 
-
-
-
-
-
 -----
 
 ####  molilanmao  
 ##### 15568#       发表于 2010-3-21 15:10
-
 
 
 <blockquote>漫画的整体风格走向可能要黑化了
@@ -12166,25 +8155,13 @@ kidthief 发表于 2010-3-21 10:16 <[img src="http://bbs.saraba1st.com/2b/images
 大事件明显是主线中的主线
 
 
-
-
-
-
-
 -----
 
 ####  heavy_d  
 ##### 15569#       发表于 2010-3-21 17:43
 
 
-
-
 大事件主要是要引出黑胡子的双果实吧
-
-
-
-
-
 
 
 -----
@@ -12193,14 +8170,7 @@ kidthief 发表于 2010-3-21 10:16 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15570#       发表于 2010-3-21 18:22
 
 
-
-
 动画这集一直在强调老沙不可告人的过去..........沙姐姐我信你啊
-
-
-
-
-
 
 
 -----
@@ -12209,14 +8179,7 @@ kidthief 发表于 2010-3-21 10:16 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15571#       发表于 2010-3-21 19:18
 
 
-
-
 动画这集看下来很明显摆明鳄鱼以前是女人了的样子…
-
-
-
-
-
 
 
 -----
@@ -12225,23 +8188,15 @@ kidthief 发表于 2010-3-21 10:16 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15572#       发表于 2010-3-21 19:52
 
 
-
 <blockquote>动画这集看下来很明显摆明鳄鱼以前是女人了的样子…
 luokobe 发表于 2010-3-21 19:18 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 ……沙姐果然棒<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  superbia  
 ##### 15573#       发表于 2010-3-21 20:09
-
-
 
 
 回15620L:
@@ -12251,25 +8206,13 @@ luokobe 发表于 2010-3-21 19:18 <[img src="http://bbs.saraba1st.com/2b/images/
 我指的那幕是他一拳轰向老爹胸膛后就不知所踪...<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gordon47  
 ##### 15574#       发表于 2010-3-21 22:00
 
 
-
-
 沙姐<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12278,14 +8221,7 @@ luokobe 发表于 2010-3-21 19:18 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15575#       发表于 2010-3-22 17:14
 
 
-
-
 拿尼？动画要爆沙姐的黑历史了？？<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12294,14 +8230,7 @@ luokobe 发表于 2010-3-21 19:18 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15576#       发表于 2010-3-22 19:28
 
 
-
-
 据说青稚反水和红狗战起来了？可能性多大？
-
-
-
-
-
 
 
 -----
@@ -12310,14 +8239,7 @@ luokobe 发表于 2010-3-21 19:18 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15577#       发表于 2010-3-22 19:30
 
 
-
-
 这个先看着玩就是了
-
-
-
-
-
 
 
 -----
@@ -12326,14 +8248,7 @@ luokobe 发表于 2010-3-21 19:18 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15578#       发表于 2010-3-22 19:30
 
 
-
-
 青雉和赤犬打的话太假了吧，上一话还坑了鱼人呢。
-
-
-
-
-
 
 
 -----
@@ -12342,22 +8257,15 @@ luokobe 发表于 2010-3-21 19:18 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15579#       发表于 2010-3-22 19:35
 
 
-
 <blockquote>据说青稚反水和红狗战起来了？可能性多大？
 judgement_0 发表于 2010-3-22 19:28 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 除非赤犬对罗宾出手
-
-
-
-
-
 
 
 -----
 
 ####  FCS-31  
 ##### 15580#       发表于 2010-3-22 20:57
-
 
 
  本帖最后由 FCS-31 于 2010-3-22 21:00 编辑 
@@ -12372,27 +8280,15 @@ cp9那的事情全是青鸡幕后策划的，那个时候可是除了自己没�
 他对自己的立场也是坚定的，不是那种说反就反的幼稚层次。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15581#       发表于 2010-3-22 21:11
 
 
-
-
 +1
 
 青基是好人，但不是烂好人
-
-
-
-
-
 
 
 -----
@@ -12401,14 +8297,7 @@ cp9那的事情全是青鸡幕后策划的，那个时候可是除了自己没�
 ##### 15582#       发表于 2010-3-22 21:50
 
 
-
-
 海军内讧不太可能吧
-
-
-
-
-
 
 
 -----
@@ -12417,14 +8306,7 @@ cp9那的事情全是青鸡幕后策划的，那个时候可是除了自己没�
 ##### 15583#       发表于 2010-3-23 01:21
 
 
-
-
 不信。青鸡怎么说也是曾经给卡普揍出来的小鬼，你看路飞，艾斯立场都坚定，就连新入的两个爱哭鬼也还好，身为大将不是说反就反的吧。话说那两小子逃跑了吧。
-
-
-
-
-
 
 
 -----
@@ -12433,24 +8315,16 @@ cp9那的事情全是青鸡幕后策划的，那个时候可是除了自己没�
 ##### 15584#       发表于 2010-3-23 01:34
 
 
-
 <strong> [15650#](http://bbs.saraba1st.com/2b/redirect.php?goto=findpost&amp;pid=11443236&amp;ptid=98922) yousong1221 </strong>
 
 
-
 克比他们是被霸气放倒了吧
-
-
-
-
-
 
 
 -----
 
 ####  gooas  
 ##### 15585#       发表于 2010-3-23 03:09
-
 
 
 <blockquote>cp9那的事情全是青鸡幕后策划的，那个时候可是除了自己没出手之外毫不留情。
@@ -12465,17 +8339,10 @@ FCS-31 发表于 2010-3-22 20:57 <[img src="http://bbs.saraba1st.com/2b/images/c
 CP9那事真是青鸡策划的？ 看他次次调戏罗宾然后再放水 原来青鸡比赤犬还恶劣啊
 
 
-
-
-
-
-
 -----
 
 ####  sd4245640  
 ##### 15586#       发表于 2010-3-23 13:02
-
-
 
 
 貌似情报出来了
@@ -12484,24 +8351,13 @@ CP9那事真是青鸡策划的？ 看他次次调戏罗宾然后再放水 原来
 这个看着比较靠谱
 
 
-
-
-
-
-
 -----
 
 ####  点数不足  
 ##### 15587#       发表于 2010-3-23 13:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">这话情报不爽ING！
-
-
-
-
-
 
 
 -----
@@ -12510,16 +8366,10 @@ CP9那事真是青鸡策划的？ 看他次次调戏罗宾然后再放水 原来
 ##### 15588#       发表于 2010-3-23 13:43
 
 
-
 <blockquote>其实我们一直在看前传是吧?是吧!
 红色猎鹰 发表于 2010-3-21 13:28 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 我们正在看倚天屠龙海贼传第一卷~
-
-
-
-
-
 
 
 -----
@@ -12528,14 +8378,7 @@ CP9那事真是青鸡策划的？ 看他次次调戏罗宾然后再放水 原来
 ##### 15589#       发表于 2010-3-23 13:46
 
 
-
-
 爷爷快将红狗轰成渣！！
-
-
-
-
-
 
 
 -----
@@ -12544,16 +8387,9 @@ CP9那事真是青鸡策划的？ 看他次次调戏罗宾然后再放水 原来
 ##### 15590#       发表于 2010-3-23 13:59
 
 
-
-
 黑胡子耍帅之后跑了，路飞巴基被救，爷爷按住红狗，龙不在现场
 
 黑胡子不能这样就走吧，不再杀几个大人物？
-
-
-
-
-
 
 
 -----
@@ -12562,21 +8398,13 @@ CP9那事真是青鸡策划的？ 看他次次调戏罗宾然后再放水 原来
 ##### 15591#       发表于 2010-3-23 14:10
 
 
-
-
 本来对上战国就挺吃力了，黑胡子再不走就要吃爱的铁拳了。黑暗果实？照样打飞。
-
-
-
-
-
 
 
 -----
 
 ####  yellowboat  
 ##### 15592#       发表于 2010-3-23 14:15
-
 
 
  本帖最后由 yellowboat 于 2010-3-23 14:18 编辑 
@@ -12589,16 +8417,10 @@ taichiY 发表于 2010-3-23 13:46 <[img src="http://bbs.saraba1st.com/2b/images/
 儿子是反抗军头领，两个孙子是高赏金海盗...之前有没有说过卡普一直留在海军的原因是什么？
 
 
-
-
-
-
-
 -----
 
 ####  鬼嘲风  
 ##### 15593#       发表于 2010-3-23 14:28
-
 
 
 <blockquote>卡普要杀赤犬，战国肯定不让的呀，最多卡普和战国僵持住。
@@ -12610,17 +8432,10 @@ yellowboat 发表于 2010-3-23 14:15 <[img src="http://bbs.saraba1st.com/2b/imag
 萌。
 
 
-
-
-
-
-
 -----
 
 ####  hie  
 ##### 15594#       发表于 2010-3-23 17:51
-
-
 
 
 则个太假了
@@ -12634,25 +8449,13 @@ yellowboat 发表于 2010-3-23 14:15 <[img src="http://bbs.saraba1st.com/2b/imag
 现在来也是被秒的货
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15595#       发表于 2010-3-23 17:58
 
 
-
-
 红狗牛逼大了啊！不过有帽子FLAG在，迟早得吃大瘪…
-
-
-
-
-
 
 
 -----
@@ -12661,14 +8464,7 @@ yellowboat 发表于 2010-3-23 14:15 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15596#       发表于 2010-3-23 18:00
 
 
-
-
 赤犬威武！沙姐威武！
-
-
-
-
-
 
 
 -----
@@ -12677,21 +8473,13 @@ yellowboat 发表于 2010-3-23 14:15 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15597#       发表于 2010-3-23 18:03
 
 
-
-
 15661的太假了，二队长这种民间谣言揉的也太差劲了。
-
-
-
-
-
 
 
 -----
 
 ####  WaterSeven  
 ##### 15598#       发表于 2010-3-23 18:04
-
 
 
 <blockquote>则个太假了
@@ -12707,16 +8495,10 @@ hie 发表于 2010-3-23 17:51 <[img src="http://bbs.saraba1st.com/2b/images/comm
 可惜OPBBS被公司墙了，如果是OPBBS上管理员发的情报的话可信度就比较高，不知道这条是不是那里的。
 
 
-
-
-
-
-
 -----
 
 ####  hie  
 ##### 15599#       发表于 2010-3-23 18:12
-
 
 
 <blockquote>可惜OPBBS被公司墙了，如果是OPBBS上管理员发的情报的话可信度就比较高，不知道这条是不是那里的。
@@ -12728,16 +8510,10 @@ WaterSeven 发表于 2010-3-23 18:04 <[img src="http://bbs.saraba1st.com/2b/imag
 大概昨天晚上= =
 
 
-
-
-
-
-
 -----
 
 ####  dawn34  
 ##### 15600#       发表于 2010-3-23 18:18
-
 
 
 <blockquote>卡普要杀赤犬，战国肯定不让的呀，最多卡普和战国僵持住。
@@ -12748,16 +8524,10 @@ yellowboat 发表于 2010-3-23 14:15 <[img src="http://bbs.saraba1st.com/2b/imag
 卡普是真正为了正义吧
 
 
-
-
-
-
-
 -----
 
 ####  WaterSeven  
 ##### 15601#       发表于 2010-3-23 18:19
-
 
 
 <blockquote>这个不是哪里发的- -
@@ -12771,25 +8541,13 @@ hie 发表于 2010-3-23 18:12 <[img src="http://bbs.saraba1st.com/2b/images/comm
 昆仑也被墙了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer"> 不过昆仑上有几个ID 发的情报可信度也很高，比如火死海。
 
 
-
-
-
-
-
 -----
 
 ####  hie  
 ##### 15602#       发表于 2010-3-23 18:20
 
 
-
-
 你那里好悲惨怎么哪都被墙- -
-
-
-
-
-
 
 
 -----
@@ -12798,15 +8556,9 @@ hie 发表于 2010-3-23 18:12 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15603#       发表于 2010-3-23 18:32
 
 
-
 <blockquote>你那里好悲惨怎么哪都被墙- -
 hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 前段时间公司网络升级，除了各大门户的新闻版块，博客，视频，音乐，招聘，娱乐网站，各种BBS都被墙，其实我一直很好奇S1到底是怎么幸存下来的，群里朋友的说法是 因为有2B<img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12815,13 +8567,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15604#       发表于 2010-3-23 18:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">因为有2b。。。
-
-
-
-
-
 
 
 -----
@@ -12830,14 +8576,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15605#       发表于 2010-3-23 19:40
 
 
-
-
 红发终于出来了。。。。难道他也要挂在这吗
-
-
-
-
-
 
 
 -----
@@ -12846,13 +8585,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15606#       发表于 2010-3-23 19:41
 
 
-
 <strong>红~~~~~~·发~~~~~~~·！！！！</strong>
-
-
-
-
-
 
 
 -----
@@ -12861,14 +8594,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15607#       发表于 2010-3-23 19:43
 
 
-
-
 草你大爷图看不到啊！！！
-
-
-
-
-
 
 
 -----
@@ -12877,17 +8603,10 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15608#       发表于 2010-3-23 19:43
 
 
-
-
 老子就说红发要来的 就说红发要来的<img src="https://static.saraba1st.com/image/smiley/face/186.gif" referrerpolicy="no-referrer">
 
 
 燃啊！！！
-
-
-
-
-
 
 
 -----
@@ -12896,23 +8615,15 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15609#       发表于 2010-3-23 19:43
 
 
-
-
 红……红发？<img src="https://static.saraba1st.com/image/smiley/face/132.gif" referrerpolicy="no-referrer">
 
 这么说之前的情报没一个是真的了？
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15610#       发表于 2010-3-23 19:45
-
 
 
 [http://tieba.baidu.com/f?kz=734480254](http://tieba.baidu.com/f?kz=734480254)
@@ -12923,27 +8634,15 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 超展开了啊！白胡子海贼团，海军，75海，后来来了路飞，黑胡子，新星，现在又来了红发！
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 15611#       发表于 2010-3-23 19:45
 
 
-
-
 啊...恩，算了。
 
 <img src="https://static.saraba1st.com/image/smiley/face/183.gif" referrerpolicy="no-referrer">也不枉那么多人喊了那么久了。
-
-
-
-
-
 
 
 -----
@@ -12952,13 +8651,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15612#       发表于 2010-3-23 19:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/20.gif" referrerpolicy="no-referrer">看到情報圖了，果然路飛的草帽被紅髮撿起來了
-
-
-
-
-
 
 
 -----
@@ -12967,21 +8660,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15613#       发表于 2010-3-23 19:47
 
 
-
-
 我操，这赤狗不会连红发都杀了吧！！！！！
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15614#       发表于 2010-3-23 19:48
-
 
 
  本帖最后由 不败之狼 于 2010-3-23 19:51 编辑 
@@ -12992,16 +8677,10 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 说到杀红发的话，估计也只有黑胡子能做到
 
 
-
-
-
-
-
 -----
 
 ####  cather18  
 ##### 15615#       发表于 2010-3-23 19:50
-
 
 
  本帖最后由 cather18 于 2010-3-23 19:52 编辑 
@@ -13014,25 +8693,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 好爽！！
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 15616#       发表于 2010-3-23 19:51
 
 
-
-
 许久不见的黄猿也出来了。
-
-
-
-
-
 
 
 -----
@@ -13041,14 +8708,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15617#       发表于 2010-3-23 19:51
 
 
-
-
 红发对上赤犬啦，替马尔高挡下了红狗的攻击，想起上次红白会面红发还说要马尔高跟他混，现在这情况，白胡子海贼团剩下的人可能就真加入红发的海贼团了呢。
-
-
-
-
-
 
 
 -----
@@ -13057,17 +8717,10 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15618#       发表于 2010-3-23 19:52
 
 
-
-
 这么看来路飞的戏是彻底没有了。应该会昏迷到大事件结束。因为见到红发的时候就是还帽子的时候。
 
 
 红发顺便把ACE的尸体带出啊嘛
-
-
-
-
-
 
 
 -----
@@ -13076,13 +8729,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15619#       发表于 2010-3-23 19:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">等这个傻逼登场等了10年啊 一定要好好开次无双啊！！
-
-
-
-
-
 
 
 -----
@@ -13091,14 +8738,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15620#       发表于 2010-3-23 19:54
 
 
-
-
 死光了才来,红发你可以的
-
-
-
-
-
 
 
 -----
@@ -13107,13 +8747,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15621#       发表于 2010-3-23 19:55
 
 
-
 <strong>红发你丫个傻逼怎么才来！</strong>
-
-
-
-
-
 
 
 -----
@@ -13122,14 +8756,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15622#       发表于 2010-3-23 19:56
 
 
-
-
 难道路飞的帽子可以召唤红发，你怎么不早点扔帽子呢
-
-
-
-
-
 
 
 -----
@@ -13138,14 +8765,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15623#       发表于 2010-3-23 19:56
 
 
-
-
 我操！红发终于出来 了…………
-
-
-
-
-
 
 
 -----
@@ -13154,21 +8774,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15624#       发表于 2010-3-23 19:59
 
 
-
-
 唉哟卧操！红发！
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15625#       发表于 2010-3-23 20:02
-
 
 
  本帖最后由 不败之狼 于 2010-3-23 20:04 编辑 
@@ -13196,21 +8808,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 大事件结束后再把马尔高一班人收编，红头发海贼团战斗力*2！！
 
 
-
-
-
-
-
-
-
-
-
 玩笑
-
-
-
-
-
 
 
 -----
@@ -13219,14 +8817,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15626#       发表于 2010-3-23 20:03
 
 
-
-
 我来小人下：红发太腹黑了，等白胡子死了才出来。<img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13235,22 +8826,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15627#       发表于 2010-3-23 20:05
 
 
-
-
 巴基呢 这风头怎么可以被红发抢了 快点联合赤犬做掉他
-
-
-
-
-
 
 
 -----
 
 ####  chengli  
 ##### 15628#       发表于 2010-3-23 20:10
-
-
 
 
 红发和白胡子见过面
@@ -13264,17 +8846,10 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 白胡子也不会让他插手的
 
 
-
-
-
-
-
 -----
 
 ####  cwlo  
 ##### 15629#       发表于 2010-3-23 20:12
-
-
 
 
 579話　勇気ある数秒 
@@ -13320,34 +8895,20 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 求翻译
 
 
-
-
-
-
-
 -----
 
 ####  ajkkdcry  
 ##### 15630#       发表于 2010-3-23 20:13
 
 
-
-
 = =情報圖全出了，文字不需要吧
 [http://2cat.or.tp/~tedc21thc/new/pixmicat.php?res=132970](http://2cat.or.tp/~tedc21thc/new/pixmicat.php?res=132970)
-
-
-
-
-
 
 
 -----
 
 ####  WaterSeven  
 ##### 15631#       发表于 2010-3-23 20:15
-
-
 
 
 ルフィとジンベエがローに預けられる。 
@@ -13367,25 +8928,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 不是吧，罗还没什么表现就要躺了？
 
 
-
-
-
-
-
 -----
 
 ####  犀利  
 ##### 15632#       发表于 2010-3-23 20:22
 
 
-
-
 谁都可以，赶紧让这事情告一段落吧。
-
-
-
-
-
 
 
 -----
@@ -13394,16 +8943,9 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15633#       发表于 2010-3-23 20:27
 
 
-
-
 红发！！红发你终于来了！！！
 
 给我砍了那只狗！
-
-
-
-
-
 
 
 -----
@@ -13412,22 +8954,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15634#       发表于 2010-3-23 20:28
 
 
-
-
 卡普这就挂了么
-
-
-
-
-
 
 
 -----
 
 ####  superbia  
 ##### 15635#       发表于 2010-3-23 20:28
-
-
 
 
 令人欣慰的是黄猿终於上线了<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">  <blockquote>不可能。反过来还差不多。
@@ -13438,25 +8971,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 黑胡子对非能力者时就不是半无敌之躯了
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15636#       发表于 2010-3-23 20:30
 
 
-
-
 谁把卡谱打伤的? 眼镜妹子也出场了
-
-
-
-
-
 
 
 -----
@@ -13465,23 +8986,15 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15637#       发表于 2010-3-23 20:30
 
 
-
  本帖最后由 loushifang 于 2010-3-23 20:31 编辑 
 
 发终于来了，快秒了那只死狗
-
-
-
-
-
 
 
 -----
 
 ####  WaterSeven  
 ##### 15638#       发表于 2010-3-23 20:31
-
-
 
 
 感谢【漫游动漫&amp;鼠绘汉化】罗沙的辛苦翻译
@@ -13519,25 +9032,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 红发捡起草帽：我是来终结这场战争的。完
 
 
-
-
-
-
-
 -----
 
 ####  chengli  
 ##### 15639#       发表于 2010-3-23 20:31
 
 
-
-
 将校：特拉法尔加·罗！！   骚动的海军，犹豫的巴基   黑胡子 谁也阻止不了我了   黑胡子用暗水吸战国，拳头   战国被打飞   和白胡子一样，卡普被欧卡和拳击冠军围攻   卡普死亡？   鹤和鼯鼠没有行动   路飞和吉贝尔在罗的船上   黄猿用射线追击   黄猿的射线贯穿了罗   黑胡子无人可挡   红发的船登场   耶稣布击中黑胡子的头部   红发用剑挡住赤犬，救了克比   红发捡起草帽：我是来终结这场战争的。完
-
-
-
-
-
 
 
 -----
@@ -13546,14 +9047,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15640#       发表于 2010-3-23 20:32
 
 
-
-
 霸极船长的把兄弟来救场了
-
-
-
-
-
 
 
 -----
@@ -13562,16 +9056,9 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15641#       发表于 2010-3-23 20:37
 
 
-
-
 红发救了克比？
 
 红狗杀红眼了连自己海军的人也杀？
-
-
-
-
-
 
 
 -----
@@ -13580,16 +9067,9 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15642#       发表于 2010-3-23 20:40
 
 
-
-
 太牛逼了！！！
 
 <strong>燃·到·飞·起！！！</strong>
-
-
-
-
-
 
 
 -----
@@ -13598,14 +9078,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15643#       发表于 2010-3-23 20:43
 
 
-
-
 龙再登场的话就全了
-
-
-
-
-
 
 
 -----
@@ -13614,14 +9087,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15644#       发表于 2010-3-23 20:43
 
 
-
-
 终结者·红发 ？
-
-
-
-
-
 
 
 -----
@@ -13630,14 +9096,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15645#       发表于 2010-3-23 20:44
 
 
-
-
 女帝呢？女帝呢？？怎么路飞如此危险都不出场...<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13646,22 +9105,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15646#       发表于 2010-3-23 20:48
 
 
-
-
 13年后红发和路飞终于又见面了。。<img src="https://static.saraba1st.com/image/smiley/face/17.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  flll  
 ##### 15647#       发表于 2010-3-23 20:50
-
-
 
 
 红发！！！就靠你了，话说凯多呢？
@@ -13671,25 +9121,13 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 黄猿你这辈子就只会欺负新人吗？！
 
 
-
-
-
-
-
 -----
 
 ####  yangxu  
 ##### 15648#       发表于 2010-3-23 20:53
 
 
-
-
 卡普被秒了？这太悲剧了
-
-
-
-
-
 
 
 -----
@@ -13698,14 +9136,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15649#       发表于 2010-3-23 21:05
 
 
-
-
 燃到爆...
-
-
-
-
-
 
 
 -----
@@ -13714,14 +9145,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15650#       发表于 2010-3-23 21:12
 
 
-
-
 红发明显是看到直播 见到了多年的基友 然后赶不急就过来了啊。救LUFFY只是顺带而已
-
-
-
-
-
 
 
 -----
@@ -13730,14 +9154,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15651#       发表于 2010-3-23 21:15
 
 
-
-
 卡普不可能这么简单就被秒的，海军英雄又不是吹出来的，估计是睡着了
-
-
-
-
-
 
 
 -----
@@ -13746,14 +9163,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15652#       发表于 2010-3-23 21:17
 
 
-
-
 卡普怎可能轻易倒下！！    <img src="https://static.saraba1st.com/image/smiley/face/45.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13762,14 +9172,7 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15653#       发表于 2010-3-23 21:27
 
 
-
-
 在这种情况下，就算蓝染吃瘪了卡普也不可能吃瘪<img src="https://static.saraba1st.com/image/smiley/face/45.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13778,15 +9181,9 @@ hie 发表于 2010-3-23 18:20 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 15654#       发表于 2010-3-23 21:30
 
 
-
 <blockquote>红发明显是看到直播 见到了多年的基友 然后赶不急就过来了啊。救LUFFY只是顺带而已
 www151007 发表于 2010-3-23 21:12 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 能赶到应该就是摆平了凯多，不过若是看到直播再赶来，对比下雷利真是太那啥了.....<img src="https://static.saraba1st.com/image/smiley/face/180.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13795,14 +9192,7 @@ www151007 发表于 2010-3-23 21:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15655#       发表于 2010-3-23 21:32
 
 
-
-
 路飞跟红发的约定还没达成，这次看来是没他醒来的事了。
-
-
-
-
-
 
 
 -----
@@ -13811,14 +9201,7 @@ www151007 发表于 2010-3-23 21:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15656#       发表于 2010-3-23 21:32
 
 
-
-
 也不能这么苛求雷利，毕竟人家是个退役的老兵，再跑来这儿他以后的日子得咋过
-
-
-
-
-
 
 
 -----
@@ -13827,16 +9210,9 @@ www151007 发表于 2010-3-23 21:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15657#       发表于 2010-3-23 21:33
 
 
-
-
 雷利没有任何理由帮白胡子的嘛。
 
 看看那些大海贼，都是看戏的态度。
-
-
-
-
-
 
 
 -----
@@ -13845,16 +9221,9 @@ www151007 发表于 2010-3-23 21:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15658#       发表于 2010-3-23 21:36
 
 
-
-
 其实，四皇应该还有一个人没登场吧
 
 是谁呢。。。
-
-
-
-
-
 
 
 -----
@@ -13863,14 +9232,7 @@ www151007 发表于 2010-3-23 21:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15659#       发表于 2010-3-23 21:37
 
 
-
-
 雷利在看船吧，别给人偷了……
-
-
-
-
-
 
 
 -----
@@ -13879,14 +9241,7 @@ www151007 发表于 2010-3-23 21:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15660#       发表于 2010-3-23 21:39
 
 
-
-
 雷利都已经退出江湖了，当初插一手管路飞他们就已经够豁的了。
-
-
-
-
-
 
 
 -----
@@ -13895,15 +9250,9 @@ www151007 发表于 2010-3-23 21:12 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15661#       发表于 2010-3-23 21:40
 
 
-
 <blockquote>在这种情况下，就算蓝染吃瘪了卡普也不可能吃瘪<img src="https://static.saraba1st.com/image/smiley/face/45.gif" referrerpolicy="no-referrer">
 yujiacyl 发表于 2010-3-23 21:27 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 即使路飞死了，蓝染也不会吃憋的<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13912,14 +9261,7 @@ yujiacyl 发表于 2010-3-23 21:27 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15662#       发表于 2010-3-23 21:43
 
 
-
-
 这剧情太扭曲了，科比你真棒<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13928,21 +9270,13 @@ yujiacyl 发表于 2010-3-23 21:27 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15663#       发表于 2010-3-23 21:47
 
 
-
-
 红发,你丫给我往死里艹红狗,不然老子发你红宝石战神卡<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  yellowboat  
 ##### 15664#       发表于 2010-3-23 21:49
-
 
 
  本帖最后由 yellowboat 于 2010-3-23 21:53 编辑 
@@ -13956,25 +9290,13 @@ zealotssas 发表于 2010-3-23 21:36 <[img src="http://bbs.saraba1st.com/2b/imag
 之前以为是罗拉的生命纸做这个铺垫的，结果罗拉的母亲在劫法场时已经出现了。
 
 
-
-
-
-
-
 -----
 
 ####  verhoffin  
 ##### 15665#       发表于 2010-3-23 21:50
 
 
-
-
 千里送便当？
-
-
-
-
-
 
 
 -----
@@ -13983,16 +9305,10 @@ zealotssas 发表于 2010-3-23 21:36 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15666#       发表于 2010-3-23 21:52
 
 
-
 <blockquote>之前出现一个四人的剪影，有个四皇看上去长得一副小丑般狰狞的脸。我一直在想，把佩罗娜留下来还让她救了佐罗是不是为这个四皇的剧情做铺垫。
 yellowboat 发表于 2010-3-23 21:49 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 另一个显然是伟大的巴基船长，必须是。
-
-
-
-
-
 
 
 -----
@@ -14001,14 +9317,7 @@ yellowboat 发表于 2010-3-23 21:49 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15667#       发表于 2010-3-23 21:53
 
 
-
-
 赤犬要是现在的状态还能反日红发那就真的逆天了......<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14017,15 +9326,9 @@ yellowboat 发表于 2010-3-23 21:49 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15668#       发表于 2010-3-23 21:58
 
 
-
 <blockquote>我操，这赤狗不会连红发都杀了吧！！！！！
 akira1917 发表于 2010-3-23 19:47 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 相反，红发重创赤犬，日文情报的说法是赤犬“气绝”，，就算不是死掉，最起码也是被打昏了。
-
-
-
-
-
 
 
 -----
@@ -14034,14 +9337,7 @@ akira1917 发表于 2010-3-23 19:47 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15669#       发表于 2010-3-23 22:11
 
 
-
-
 路飞早就被用了避难权杖，WT也觉得该对红狗用了，不然他死定了
-
-
-
-
-
 
 
 -----
@@ -14050,16 +9346,10 @@ akira1917 发表于 2010-3-23 19:47 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15670#       发表于 2010-3-23 22:26
 
 
-
 <blockquote>相反，红发重创赤犬，日文情报的说法是赤犬“气绝”，，就算不是死掉，最起码也是被打昏了。
 胡桃夹子 发表于 2010-3-23 21:58 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 哪里说了
-
-
-
-
-
 
 
 -----
@@ -14068,21 +9358,13 @@ akira1917 发表于 2010-3-23 19:47 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15671#       发表于 2010-3-23 22:30
 
 
-
-
 话说红发出现在这里，是不是说明凯多已经被干掉了？<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kircheis  
 ##### 15672#       发表于 2010-3-23 22:33
-
 
 
 <blockquote>之前出现一个四人的剪影，有个四皇看上去长得一副小丑般狰狞的脸。我一直在想，把佩罗娜留下来还让她救了佐罗是不是为这个四皇的剧情做铺垫。
@@ -14093,16 +9375,10 @@ yellowboat 发表于 2010-3-23 21:49 <[img src="http://bbs.saraba1st.com/2b/imag
 漫画没看仔细 求张罗拉老妈的截图
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 15673#       发表于 2010-3-23 22:50
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">这剧情
@@ -14111,25 +9387,13 @@ yellowboat 发表于 2010-3-23 21:49 <[img src="http://bbs.saraba1st.com/2b/imag
 红发你这么着急出来
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 15674#       发表于 2010-3-23 23:04
 
 
-
-
 草帽！草帽终于被捡起来了！果然只有红发捡这顶帽子才让人真真正正地觉得：这才是海贼王啊！！！！！！！<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">尾田你可以啊！！！！！！！
-
-
-
-
-
 
 
 -----
@@ -14138,22 +9402,13 @@ yellowboat 发表于 2010-3-23 21:49 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15675#       发表于 2010-3-23 23:05
 
 
-
-
 黑胡子两个手下就能秒掉卡普?怎么可能啊!<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  birthdayll  
 ##### 15676#       发表于 2010-3-23 23:07
-
-
 
 
 其实这一切都是红发的阴谋。
@@ -14164,16 +9419,10 @@ yellowboat 发表于 2010-3-23 21:49 <[img src="http://bbs.saraba1st.com/2b/imag
 到了大事件，红发先是在一旁按兵不动，直到白胡子归西，海军元气大伤，这时候他出山再合适不过，既沉重打击了自己心里的三大患（白胡子，皈依白胡子的艾斯还有海军），又救了龙的儿子以及一群虾兵蟹将，四处提升好感度，借机拉拢势力，这些不仅在和其余两个四黄在竞争中取得有利位置，而且顺利登上海贼王第一候补的位置（黑胡子？尚缺一点火候，仍不足为虑），论实力论计谋当属当今天下第一。
 
 
-
-
-
-
-
 -----
 
 ####  kaiko_one  
 ##### 15677#       发表于 2010-3-23 23:10
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer"><blockquote>其实这一切都是红发的阴谋。
@@ -14183,16 +9432,10 @@ yellowboat 发表于 2010-3-23 21:49 <[img src="http://bbs.saraba1st.com/2b/imag
 birthdayll 发表于 2010-3-23 23:07 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>就知道会有你这种人出现，你没事儿吧你
 
 
-
-
-
-
-
 -----
 
 ####  mono  
 ##### 15678#       发表于 2010-3-23 23:13
-
 
 
 <blockquote>其实这一切都是红发的阴谋。
@@ -14203,26 +9446,15 @@ birthdayll 发表于 2010-3-23 23:07 <[img src="http://bbs.saraba1st.com/2b/imag
 其实最后那一皇真的是巴其，还记得潜入骗人布那个村子的船长吧..
 
 
-
-
-
-
-
 -----
 
 ####  白河亜紀  
 ##### 15679#       发表于 2010-3-23 23:15
 
 
-
 <blockquote>其实最后那一皇真的是巴其，还记得潜入骗人布那个村子的船长吧..
 mono 发表于 2010-3-23 23:13 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 那他的悬赏金也太低了
-
-
-
-
-
 
 
 -----
@@ -14231,14 +9463,7 @@ mono 发表于 2010-3-23 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15680#       发表于 2010-3-23 23:20
 
 
-
-
 鹰眼兴奋了吗？
-
-
-
-
-
 
 
 -----
@@ -14247,24 +9472,16 @@ mono 发表于 2010-3-23 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15681#       发表于 2010-3-23 23:29
 
 
-
 <blockquote>那他的悬赏金也太低了
 白河亜紀 发表于 2010-3-23 23:15 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 到现在还拿悬赏金评论实力吗！？幼稚！！伟大的巴基船长在这次大事件中表现的还不够么！！你们不要忘了正是伟大的巴基船长让全世界亲眼目睹大事件！！
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15682#       发表于 2010-3-23 23:37
-
-
 
 
 赤犬大將趕快操翻紅髮一眾!!! <img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
@@ -14276,25 +9493,13 @@ mono 发表于 2010-3-23 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 快操翻島上所有人, 把漫畫改名叫&lt;海軍王&gt;! <img src="https://static.saraba1st.com/image/smiley/face/111.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  迪奧  
 ##### 15683#       发表于 2010-3-23 23:39
 
 
-
-
 军犬 军鸡 军猿
-
-
-
-
-
 
 
 -----
@@ -14303,23 +9508,15 @@ mono 发表于 2010-3-23 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15684#       发表于 2010-3-24 00:00
 
 
-
-
 红发阴谋论都推出来了
 
 太有才了
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 15685#       发表于 2010-3-24 00:10
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer"> 麻痹不能来早点吗？
@@ -14333,25 +9530,13 @@ mono 发表于 2010-3-23 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 还有！女帝呢！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
 
 
-
-
-
-
-
 -----
 
 ####  AD  
 ##### 15686#       发表于 2010-3-24 00:21
 
 
-
-
 倒数第二张图太小了，看不清克比说了什么
-
-
-
-
-
 
 
 -----
@@ -14360,20 +9545,13 @@ mono 发表于 2010-3-23 23:13 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15687#       发表于 2010-3-24 00:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">红发出现了啊  这大事件收尾怎么收？ 海贼实力大增。。。海军。。。那边怎么搞。。。
-
-
-
-
-
 
 
 -----
 
 ####  胡桃夹子  
 ##### 15688#       发表于 2010-3-24 00:33
-
 
 
 <blockquote>哪里说了
@@ -14393,25 +9571,13 @@ No.133041  
 赤犬、気絶するコビーの前で麦藁をひろい、「この戦争を終わらせに来た！」です。
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 15689#       发表于 2010-3-24 00:35
 
 
-
-
 妈的我想知道你们都哪里看的漫画说红发日凯多去了？
-
-
-
-
-
 
 
 -----
@@ -14420,16 +9586,9 @@ No.133041  
 ##### 15690#       发表于 2010-3-24 00:37
 
 
-
-
 情报图里没看到卡普受压制的啊，
 
 还有我眼花，一开始把眼睛娘看成罗宾了
-
-
-
-
-
 
 
 -----
@@ -14438,16 +9597,10 @@ No.133041  
 ##### 15691#       发表于 2010-3-24 00:37
 
 
-
 <blockquote>妈的我想知道你们都哪里看的漫画说红发日凯多去了？
 羲和 发表于 2010-3-24 00:35 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 女帝离开大监狱踏上海军的船时，有人报告鼯鼠中将，4皇凯多要攻击白胡子被红发阻止了。
-
-
-
-
-
 
 
 -----
@@ -14456,21 +9609,13 @@ No.133041  
 ##### 15692#       发表于 2010-3-24 00:39
 
 
-
-
 红发来了！！！伟大的巴基船长的兄弟来拯救世界了！
-
-
-
-
-
 
 
 -----
 
 ####  狮子歌歌  
 ##### 15693#       发表于 2010-3-24 01:42
-
 
 
 <blockquote>[http://2cat.or.tp/~tedc21thc/new/pixmicat.php?res=132970](http://2cat.or.tp/~tedc21thc/new/pixmicat.php?res=132970)
@@ -14482,35 +9627,16 @@ No.133041  
 在赤犬和昏过去的科比面前拾起草帽
 
 
-
-
-
-
-
 -----
 
 ####  65535  
 ##### 15694#       发表于 2010-3-24 08:26
 
 
-
-
 尾田你要是敢让红发在这里领便当，我。。。我就不看海贼王了！<img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 好吧，艾斯没死之前这话我也说过<img src="https://static.saraba1st.com/image/smiley/face/111.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14519,21 +9645,13 @@ No.133041  
 ##### 15695#       发表于 2010-3-24 09:06
 
 
-
-
 不是说剧场版片尾出现的三个人就是艾斯、白胡子和红发么，难道红发也来领便当了？<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  乔.弈璇  
 ##### 15696#       发表于 2010-3-24 09:30
-
 
 
 <blockquote>情报图里没看到卡普受压制的啊，
@@ -14543,25 +9661,13 @@ flll 发表于 2010-3-24 00:37 <[img src="http://bbs.saraba1st.com/2b/images/com
 <img src="https://static.saraba1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer"> 原来我眼也花了 白高兴了
 
 
-
-
-
-
-
 -----
 
 ####  狂神  
 ##### 15697#       发表于 2010-3-24 09:52
 
 
-
-
 泪流满面，红发终于出来了啊啊啊啊
-
-
-
-
-
 
 
 -----
@@ -14570,14 +9676,7 @@ flll 发表于 2010-3-24 00:37 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15698#       发表于 2010-3-24 10:20
 
 
-
-
 鹰眼！还不速速出来跟你基友表态！~ <img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14586,14 +9685,7 @@ flll 发表于 2010-3-24 00:37 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15699#       发表于 2010-3-24 10:20
 
 
-
-
 红发如果是刚解决凯多赶过来，不会也是半残带伤状态吧？那不是跟白胡子来时不在状态一样？
-
-
-
-
-
 
 
 -----
@@ -14602,15 +9694,9 @@ flll 发表于 2010-3-24 00:37 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15700#       发表于 2010-3-24 10:30
 
 
-
 <img src="http://imgsrc.baidu.com/baike/abpic/item/91ae68c607c2193a9d163df4.jpg" referrerpolicy="no-referrer">
 
 杰克·香克斯……
-
-
-
-
-
 
 
 -----
@@ -14619,15 +9705,9 @@ flll 发表于 2010-3-24 00:37 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15701#       发表于 2010-3-24 10:38
 
 
-
 <blockquote>不是说剧场版片尾出现的三个人就是艾斯、白胡子和红发么，难道红发也来领便当了？<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">
 jk0823 发表于 2010-3-24 09:06 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 艹，不能这样的啊啊啊<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14636,21 +9716,13 @@ jk0823 发表于 2010-3-24 09:06 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15702#       发表于 2010-3-24 10:40
 
 
-
-
 能不能别老贴不能外链就算点地址过去都还看不到的图片啊！
-
-
-
-
-
 
 
 -----
 
 ####  X6Sander  
 ##### 15703#       发表于 2010-3-24 10:47
-
 
 
 <blockquote>[http://2cat.or.tp/~tedc21thc/new/pixmicat.php?res=132970](http://2cat.or.tp/~tedc21thc/new/pixmicat.php?res=132970)
@@ -14662,16 +9734,10 @@ No.133041  
 噗
 
 
-
-
-
-
-
 -----
 
 ####  WaterSeven  
 ##### 15704#       发表于 2010-3-24 10:52
-
 
 
 <blockquote>红发阴谋论都推出来了
@@ -14681,25 +9747,13 @@ g511297573 发表于 2010-3-24 00:00 <[img src="http://bbs.saraba1st.com/2b/imag
 以前我还在NGA上看到过白胡子阴谋论呢，真想抽他丫的
 
 
-
-
-
-
-
 -----
 
 ####  needawife  
 ##### 15705#       发表于 2010-3-24 11:03
 
 
-
-
 这nm不会红发再领个便当吧...
-
-
-
-
-
 
 
 -----
@@ -14708,14 +9762,7 @@ g511297573 发表于 2010-3-24 00:00 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15706#       发表于 2010-3-24 11:06
 
 
-
-
 便当的话至少要干掉赤犬 我觉得即使便当也是黑胡子干的
-
-
-
-
-
 
 
 -----
@@ -14724,21 +9771,13 @@ g511297573 发表于 2010-3-24 00:00 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15707#       发表于 2010-3-24 11:43
 
 
-
-
 大乱斗
-
-
-
-
-
 
 
 -----
 
 ####  taehw  
 ##### 15708#       发表于 2010-3-24 11:44
-
 
 
 <blockquote>便当的话至少要干掉赤犬 我觉得即使便当也是黑胡子干的
@@ -14750,17 +9789,10 @@ g511297573 发表于 2010-3-24 00:00 <[img src="http://bbs.saraba1st.com/2b/imag
 要不然太没意义了
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15709#       发表于 2010-3-24 11:49
-
-
 
 
 红发干掉赤狗重伤，黑胡子团海军两败俱伤
@@ -14768,16 +9800,10 @@ g511297573 发表于 2010-3-24 00:00 <[img src="http://bbs.saraba1st.com/2b/imag
 龙来打扫战场……
 
 
-
-
-
-
-
 -----
 
 ####  sunhydralisk  
 ##### 15710#       发表于 2010-3-24 11:54
-
 
 
 <blockquote>其实这一切都是红发的阴谋。
@@ -14792,25 +9818,13 @@ WT要是真这么编
 那OP就比剑风还阴暗了。。。
 
 
-
-
-
-
-
 -----
 
 ####  九月的雪花  
 ##### 15711#       发表于 2010-3-24 11:56
 
 
-
-
 最后还是巴基大人拯救世界的剧情啊。支持
-
-
-
-
-
 
 
 -----
@@ -14819,14 +9833,7 @@ WT要是真这么编
 ##### 15712#       发表于 2010-3-24 12:01
 
 
-
-
 革命军何在？
-
-
-
-
-
 
 
 -----
@@ -14835,14 +9842,7 @@ WT要是真这么编
 ##### 15713#       发表于 2010-3-24 12:15
 
 
-
-
 巴基，那巴，潘凤，辰己。
-
-
-
-
-
 
 
 -----
@@ -14851,16 +9851,9 @@ WT要是真这么编
 ##### 15714#       发表于 2010-3-24 12:39
 
 
-
-
 能写出这些那些阴毛论的哥们
 
 你们都是看火影的吧？
-
-
-
-
-
 
 
 -----
@@ -14869,14 +9862,7 @@ WT要是真这么编
 ##### 15715#       发表于 2010-3-24 12:45
 
 
-
-
 巴基会成为台面上的海贼王吧，就像撒旦是台面上的救世主那样。
-
-
-
-
-
 
 
 -----
@@ -14885,14 +9871,7 @@ WT要是真这么编
 ##### 15716#       发表于 2010-3-24 12:47
 
 
-
-
 科比纯爷们啊<img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14901,17 +9880,10 @@ WT要是真这么编
 ##### 15717#       发表于 2010-3-24 13:30
 
 
-
-
 巴基必将成为海贼世界最伟大的传说，就连白胡子和罗杰也无法望其项背。
 
 
 话说，巴基是不是尾田向鸟山致敬的人物啊！
-
-
-
-
-
 
 
 -----
@@ -14920,21 +9892,13 @@ WT要是真这么编
 ##### 15718#       发表于 2010-3-24 14:57
 
 
-
-
 巴基是不是基巴
-
-
-
-
-
 
 
 -----
 
 ####  犀利  
 ##### 15719#       发表于 2010-3-24 15:26
-
 
 
  本帖最后由 犀利 于 2010-3-24 16:09 编辑 
@@ -14955,16 +9919,10 @@ WT要是真这么编
 这种行动是有眼光同时极具胆识的，怎么能说是毫无意义呢。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15720#       发表于 2010-3-24 15:47
-
 
 
  本帖最后由 yario 于 2010-3-24 15:54 编辑 
@@ -14978,33 +9936,19 @@ WT要是真这么编
 在加上一句，当年奥哈拉的历史学家是“有罪”，凭什么要杀掉逃难的奥哈拉岛的普通居民？！
 
 
-
-
-
-
-
 -----
 
 ####  guanliang  
 ##### 15721#       发表于 2010-3-24 15:48
 
 
-
-
 赞LS一个！红狗就是一忠臣良将，有实力有原则有担当，冲在第一线，面对最强敌人，执行任务毫不手软，不就是弄死个正太而已，那么多人希望他领便当，不过话说回来，以红狗目前HP状态，红发打平都算输。
-
-
-
-
-
 
 
 -----
 
 ####  点数不足  
 ##### 15722#       发表于 2010-3-24 15:50
-
-
 
 
 红发实力到底如何不知道WT舍不舍得给我们个交待
@@ -15014,26 +9958,15 @@ WT要是真这么编
 改偃旗息鼓一下了
 
 
-
-
-
-
-
 -----
 
 ####  kangbaiyin  
 ##### 15723#       发表于 2010-3-24 16:02
 
 
-
  本帖最后由 kangbaiyin 于 2010-3-24 16:04 编辑 
 
 红狗已经赢了<img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15042,17 +9975,10 @@ WT要是真这么编
 ##### 15724#       发表于 2010-3-24 16:05
 
 
-
-
 这话就体现了一点，海军不是铁板一块，每个人都有自己的正义！
 
 
 和之前尾田的描写一致。
-
-
-
-
-
 
 
 -----
@@ -15061,14 +9987,7 @@ WT要是真这么编
 ##### 15725#       发表于 2010-3-24 16:17
 
 
-
-
 不能再让海军这些家伙继续猖狂了
-
-
-
-
-
 
 
 -----
@@ -15077,14 +9996,7 @@ WT要是真这么编
 ##### 15726#       发表于 2010-3-24 16:33
 
 
-
-
 池田总帅已经不打算继续配海贼王了么.....
-
-
-
-
-
 
 
 -----
@@ -15093,23 +10005,16 @@ WT要是真这么编
 ##### 15727#       发表于 2010-3-24 16:51
 
 
-
 <blockquote>池田总帅已经不打算继续配海贼王了么.....
 aris 发表于 2010-3-24 16:33 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 真的？
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15728#       发表于 2010-3-24 21:43
-
 
 
 <blockquote>革命军何在？
@@ -15121,25 +10026,13 @@ M.Manara 发表于 2010-3-24 12:01 <[img src="http://bbs.saraba1st.com/2b/images
 作壁上观才是正道啊....
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15729#       发表于 2010-3-24 21:55
 
 
-
-
 革命军正在其他地方趁火打劫呢
-
-
-
-
-
 
 
 -----
@@ -15148,21 +10041,13 @@ M.Manara 发表于 2010-3-24 12:01 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15730#       发表于 2010-3-25 06:46
 
 
-
-
 那么红狗跟队长和沙鳄的战斗又莫名其妙结束了？
-
-
-
-
-
 
 
 -----
 
 ####  ldsdlg  
 ##### 15731#       发表于 2010-3-25 08:45
-
 
 
  本帖最后由 ldsdlg 于 2010-3-25 10:44 编辑 
@@ -15178,26 +10063,16 @@ M.Manara 发表于 2010-3-24 12:01 <[img src="http://bbs.saraba1st.com/2b/images
 2010-3-25 10:44 上传
 
 
-
-
-
-
 579里让黄猿不许动的那位是副船长吧！黄猿还真老实乖乖的就举起手来了
 <img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 期待艾索普，还有那个胖子的表演呀
 
 
-
-
-
-
-
 -----
 
 ####  vigilgt  
 ##### 15732#       发表于 2010-3-25 09:10
-
 
 
  本帖最后由 vigilgt 于 2010-3-25 09:16 编辑 
@@ -15219,25 +10094,13 @@ wt單行本時這大戰要大修吧..
 每話最後兩頁搞登場..
 
 
-
-
-
-
-
 -----
 
 ####  thez  
 ##### 15733#       发表于 2010-3-25 09:37
 
 
-
-
 路飞估计没戏份了
-
-
-
-
-
 
 
 -----
@@ -15246,21 +10109,13 @@ wt單行本時這大戰要大修吧..
 ##### 15734#       发表于 2010-3-25 09:53
 
 
-
-
 那个谁说罗拉的老妈出现过了？在哪里，没注意，请提醒下
-
-
-
-
-
 
 
 -----
 
 ####  bill910  
 ##### 15735#       发表于 2010-3-25 10:04
-
 
 
 <blockquote>579里让黄猿不许动的那位是副船长吧！黄猿还真老实乖乖的就举起手来了
@@ -15271,16 +10126,10 @@ ldsdlg 发表于 2010-3-25 08:45 AM <[img src="http://bbs.saraba1st.com/2b/image
 海楼石做成子弹？
 
 
-
-
-
-
-
 -----
 
 ####  hie  
 ##### 15736#       发表于 2010-3-25 10:52
-
 
 
  本帖最后由 hie 于 2010-3-25 11:04 编辑 
@@ -15296,14 +10145,8 @@ ldsdlg 发表于 2010-3-25 08:45 <[img src="http://bbs.saraba1st.com/2b/images/c
 他的枪是这么用的
 
 
-
-
-
-
 597_7b7a1.jpg
 (128 KB, 下载次数: 8)
-
-
 
 
 下载附件
@@ -15312,31 +10155,13 @@ ldsdlg 发表于 2010-3-25 08:45 <[img src="http://bbs.saraba1st.com/2b/images/c
 2010-3-25 11:04 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/1003251104d7281f1fb8683fc4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  小可怜  
 ##### 15737#       发表于 2010-3-25 10:56
-
 
 
 <blockquote>113212
@@ -15349,27 +10174,15 @@ ldsdlg 发表于 2010-3-25 08:45 <[img src="http://bbs.saraba1st.com/2b/images/c
 这...头发全白了？
 
 
-
-
-
-
-
 -----
 
 ####  ldsdlg  
 ##### 15738#       发表于 2010-3-25 11:03
 
 
-
-
 贴吧有一个动漫之家的快翻版
 
 可以先看着玩
-
-
-
-
-
 
 
 -----
@@ -15378,23 +10191,15 @@ ldsdlg 发表于 2010-3-25 08:45 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15739#       发表于 2010-3-25 11:15
 
 
-
-
 红发威武，科比昏倒是因为红发的霸气吧？
 
 “举起手来，不许动！”黄猿真听话<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ldsdlg  
 ##### 15740#       发表于 2010-3-25 11:25
-
 
 
 <blockquote>你们被骗了枪只是个摆设
@@ -15405,26 +10210,15 @@ hie 发表于 2010-3-25 10:52 <[img src="http://bbs.saraba1st.com/2b/images/comm
 怎么战斗无所谓，我现在期待的是红发海贼团的战斗力呀
 
 
-
-
-
-
-
 -----
 
 ####  hie  
 ##### 15741#       发表于 2010-3-25 11:30
 
 
-
 <blockquote>怎么战斗无所谓，我现在期待的是红发海贼团的战斗力呀
 ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 哈哈笑话一下嘛(～ o ～)~zZ
-
-
-
-
-
 
 
 -----
@@ -15433,14 +10227,7 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15742#       发表于 2010-3-25 12:02
 
 
-
-
 副船长老了很多啊,头发居然全白了...
-
-
-
-
-
 
 
 -----
@@ -15449,22 +10236,13 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15743#       发表于 2010-3-25 12:11
 
 
-
-
 尾田如果不能把沙鱷巴基羅鷹眼堂吉訶德等等人或者幫忙或者放水的原因扯明白了，這“大事件”還就真成了一場大雜燴了，角色崩壞這麼多。
-
-
-
-
-
 
 
 -----
 
 ####  FCS-31  
 ##### 15744#       发表于 2010-3-25 12:25
-
-
 
 
 一开始的情报不正确的地方不少
@@ -15480,17 +10258,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 都是眼拙的产物。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15745#       发表于 2010-3-25 12:28
-
-
 
 
 黑胡子被枪击
@@ -15508,26 +10279,16 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 这些……
 
 
-
-
-
 都是怎么YY出来的啊啊啊啊
 
 
 以前只是一些假得不能再假的情报而已，现在这种在真情报里夹杂私货的做法我不能接受啊
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15746#       发表于 2010-3-25 12:30
-
-
 
 
 老沙肯定要解释的
@@ -15541,16 +10302,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 老堂摆明了有自己的阴谋
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 15747#       发表于 2010-3-25 12:33
-
 
 
  本帖最后由 FCS-31 于 2010-3-25 12:35 编辑 
@@ -15566,17 +10321,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 算了，至少卡普战国vs黑胡子那场还没断。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15748#       发表于 2010-3-25 12:36
-
-
 
 
 黄猿乖乖举手有三种可能，一个是海楼石子弹，一个是大副能在子弹上围绕霸气。
@@ -15589,16 +10337,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 所谓穷寇莫追这句古话可不是胡掰出来的。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15749#       发表于 2010-3-25 12:38
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">为什么马尔高在一开始能对抗黄猴子不落下风，又几次袭击青鸡成功，但是面对赤犬的时候却一筹莫展？难道三大将之间的实力差距这么大么！
@@ -15607,17 +10349,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 老鼠副船长的气场好强好强……
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15750#       发表于 2010-3-25 12:40
-
-
 
 
 黄猴子喜欢装13
@@ -15625,16 +10360,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 弄不好举了玩玩的
 
 
-
-
-
-
-
 -----
 
 ####  犀利  
 ##### 15751#       发表于 2010-3-25 12:41
-
 
 
  本帖最后由 犀利 于 2010-3-25 12:44 编辑 
@@ -15657,25 +10386,13 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 科比听到“声音”，这不是罗杰么。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15752#       发表于 2010-3-25 12:42
 
 
-
-
 可比这次成了海军的罪人。本来这几秒钟，黄猴子可以干掉路飞和罗，红狗可以再秒一个队长的。
-
-
-
-
-
 
 
 -----
@@ -15684,21 +10401,13 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15753#       发表于 2010-3-25 12:42
 
 
-
-
 科比能听到“声音”？
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 15754#       发表于 2010-3-25 12:48
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/182.jpg" referrerpolicy="no-referrer">
@@ -15708,16 +10417,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 不过那么多莫名奇妙的消失和打酱油。。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15755#       发表于 2010-3-25 12:52
-
 
 
 <blockquote>科比能听到“声音”？
@@ -15743,16 +10446,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 现在用极大代价干掉了在场的所有海贼（就当他们办得到吧），以后怎么办？
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15756#       发表于 2010-3-25 12:54
-
 
 
 <blockquote>可比这次成了海军的罪人。本来这几秒钟，黄猴子可以干掉路飞和罗，红狗可以再秒一个队长的。
@@ -15762,17 +10459,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 随便栽赃可不是好习惯。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15757#       发表于 2010-3-25 12:56
-
-
 
 
 75海们的酱油完全不用解释。我凭什么给海军卖命？过来随便砍两刀面子上说得过去就足够了。
@@ -15781,16 +10471,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 感觉海军现在的指挥系统非常混乱。战国根本压不住局面，都不知道是谁在下命令。三大将各自为战，卡普更是游侠一个。和平主义者没人指挥，连中将都不统一行动。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15758#       发表于 2010-3-25 12:58
-
 
 
 <blockquote>之前那么多秒怎么没干掉？
@@ -15804,32 +10488,19 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 [http://www.dm5.com/Comic/MH71/Comics-71650_6855d387_page-12.htm](http://www.dm5.com/Comic/MH71/Comics-71650_6855d387_page-12.htm)
 
 
-
-
-
-
-
 -----
 
 ####  vaonon  
 ##### 15759#       发表于 2010-3-25 12:58
 
 
-
-
 罗。。。会不会是履行他治疗白胡子的义务过来的呢。。。医药费付多了现在还没有偿还完毕。所以过来治疗下。不过主人公船员完全跟大事件脱节啊。。。。
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15760#       发表于 2010-3-25 13:00
-
 
 
 <blockquote>75海们的酱油完全不用解释。我凭什么给海军卖命？过来随便砍两刀面子上说得过去就足够了。
@@ -15844,17 +10515,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 以一个军人来说，赤犬还是当打手好点。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15761#       发表于 2010-3-25 13:03
-
-
 
 
 赤犬的行为直到上周还是无可挑剔的。现在路飞被转移，赤犬还咬着队长们不放那完全就是杀红眼睛了。
@@ -15863,16 +10527,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 战国使用能力后就放弃元帅的指责了，这种时刻如果海军有一个人来给三大将指派任务，然后再让卡普出点力气的话，海军战斗力立刻比现在强上一个层次。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15762#       发表于 2010-3-25 13:03
-
 
 
 <blockquote>懒得截图，可比喊之前，黄猴的激光炮对准了罗。
@@ -15893,16 +10551,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 就算是支持海军的，你们敢说黑胡子一家独大会比路飞与黑胡子相互克制更好吗？
 
 
-
-
-
-
-
 -----
 
 ####  犀利  
 ##### 15763#       发表于 2010-3-25 13:03
-
 
 
  本帖最后由 犀利 于 2010-3-25 13:06 编辑 
@@ -15918,16 +10570,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 如果说赤犬是打手，那么可以说全海军所有的成就都是这个打手打出来的，没有这个打手海军是在是没有拿得出手的表现了。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15764#       发表于 2010-3-25 13:04
-
 
 
  本帖最后由 不败之狼 于 2010-3-25 13:07 编辑 
@@ -15944,25 +10590,13 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 所以说在红发看来应该不是海军VS海贼 这么简单。
 
 
-
-
-
-
-
 -----
 
 ####  jxz  
 ##### 15765#       发表于 2010-3-25 13:15
 
 
-
-
 我倒是觉得这几秒改变世界的命运指的不是时间，内容更重要。
-
-
-
-
-
 
 
 -----
@@ -15971,19 +10605,11 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15766#       发表于 2010-3-25 13:17
 
 
-
-
 罗的那只熊太萌了！！！
-
-
-
-
 
 
 看熊！.jpg
 (63 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -15992,31 +10618,13 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 2010-3-25 13:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/10032513177655132b125bf2ba.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15767#       发表于 2010-3-25 13:17
-
 
 
 <blockquote>黑胡子已经万夫所指，世界上除了他自己很难再有任何支持者，威胁重大也就是在现在，更何况老一辈都在那边。
@@ -16044,16 +10652,10 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 路飞的确是潜在的巨大威胁，黑胡子可是实实在在从现在到将来的核弹级别威胁！
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15768#       发表于 2010-3-25 13:21
-
 
 
  本帖最后由 不败之狼 于 2010-3-25 13:29 编辑 
@@ -16067,15 +10669,7 @@ ldsdlg 发表于 2010-3-25 11:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 可比的话也有问题，的确海军的目的达成了，可是现在是黑胡子主动进攻啊，不追白胡子还可以理解，停止战斗算什么？！
 
 
-
 不过也可以理解，这么大的事件，这么乱的战场，能专心面对眼前的敌人就不错了，哪还有时间考虑什么大局。
-
-
-
-
-
-
-
 
 
 PS:提到泡泡岛也算是伏笔吧，那里里海军总部这么近，雷利的船也应该弄好了。接下来只要看大事件以什么方式结束，路飞的伙伴如何聚集以及路飞的世界观有什么改变而已
@@ -16084,20 +10678,7 @@ PS:提到泡泡岛也算是伏笔吧，那里里海军总部这么近，雷利�
 关于大事件的收尾，我猜是红发驱逐黑胡子之后，主动撤退。大事件平息
 
 
-
-
-
-
-
-
-
-
 再PS，对战国的刻画类似SD的藤真，不上场是教练，上场之后就只是一个球员
-
-
-
-
-
 
 
 -----
@@ -16106,14 +10687,7 @@ PS:提到泡泡岛也算是伏笔吧，那里里海军总部这么近，雷利�
 ##### 15769#       发表于 2010-3-25 13:22
 
 
-
-
 曬衣服的鶴姐姐是我看漏了還是作者忘了?
-
-
-
-
-
 
 
 -----
@@ -16122,14 +10696,7 @@ PS:提到泡泡岛也算是伏笔吧，那里里海军总部这么近，雷利�
 ##### 15770#       发表于 2010-3-25 13:26
 
 
-
-
 那段广播的任务布置是谁发布的？
-
-
-
-
-
 
 
 -----
@@ -16138,20 +10705,12 @@ PS:提到泡泡岛也算是伏笔吧，那里里海军总部这么近，雷利�
 ##### 15771#       发表于 2010-3-25 13:40
 
 
-
-
 战国是计划设定者,类似张良
 
 赤丸是临场指挥者,类似韩信
 
 
-
 海军参谋鹤?她是谁?有人认识么?
-
-
-
-
-
 
 
 -----
@@ -16160,14 +10719,7 @@ PS:提到泡泡岛也算是伏笔吧，那里里海军总部这么近，雷利�
 ##### 15772#       发表于 2010-3-25 13:41
 
 
-
-
 主角退场了那要以谁的视角来完成故事的结尾
-
-
-
-
-
 
 
 -----
@@ -16176,21 +10728,14 @@ PS:提到泡泡岛也算是伏笔吧，那里里海军总部这么近，雷利�
 ##### 15773#       发表于 2010-3-25 13:49
 
 
-
 <blockquote>战国是计划设定者,类似张良
 
 赤丸是临场指挥者,类似韩信
 
 
-
 海军参谋鹤?她是谁?有人认识么?
 kvkv 发表于 2010-3-25 13:40 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 萧何呢？<img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16199,13 +10744,7 @@ kvkv 发表于 2010-3-25 13:40 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15774#       发表于 2010-3-25 13:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">红发太帅了啊！！！！
-
-
-
-
-
 
 
 -----
@@ -16214,11 +10753,9 @@ kvkv 发表于 2010-3-25 13:40 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15775#       发表于 2010-3-25 14:07
 
 
-
 <blockquote>战国是计划设定者,类似张良
 
 赤丸是临场指挥者,类似韩信
-
 
 
 海军参谋鹤?她是谁?有人认识么?
@@ -16230,32 +10767,19 @@ kvkv 发表于 2010-3-25 13:40 <[img src="http://bbs.saraba1st.com/2b/images/com
 海军现在看来根本就是有组织无纪律
 
 
-
-
-
-
-
 -----
 
 ####  lihauran  
 ##### 15776#       发表于 2010-3-25 14:29
 
 
-
-
 四皇来扫地了，之前的七武海怎么存在感这么弱<img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  南宮太平  
 ##### 15777#       发表于 2010-3-25 14:49
-
 
 
  本帖最后由 南宮太平 于 2010-3-25 14:53 编辑 
@@ -16274,17 +10798,10 @@ loushifang 发表于 2010-3-25 14:07 <[img src="http://bbs.saraba1st.com/2b/imag
 另外, 克比那種在戰埸上胡亂沖突上司的人應該要去死一死......
 
 
-
-
-
-
-
 -----
 
 ####  水千秋  
 ##### 15778#       发表于 2010-3-25 15:01
-
-
 
 
 好吧，有谁想到过- -红发会来结束这场战争呢- -
@@ -16293,16 +10810,10 @@ loushifang 发表于 2010-3-25 14:07 <[img src="http://bbs.saraba1st.com/2b/imag
 基友鹰眼会和他一起么
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15779#       发表于 2010-3-25 15:01
-
 
 
 <blockquote>整套op有出現過有紀律的人嗎? <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer"> 
@@ -16318,16 +10829,10 @@ loushifang 发表于 2010-3-25 14:07 <[img src="http://bbs.saraba1st.com/2b/imag
 人家当土匪的纪律不可以和海军比的……<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  犀利  
 ##### 15780#       发表于 2010-3-25 15:07
-
 
 
  本帖最后由 犀利 于 2010-3-25 15:17 编辑 
@@ -16346,25 +10851,13 @@ loushifang 发表于 2010-3-25 14:07 <[img src="http://bbs.saraba1st.com/2b/imag
 倒数第二张图潜水艇已经下潜，路飞没事了。
 
 
-
-
-
-
-
 -----
 
 ####  ramielbilly  
 ##### 15781#       发表于 2010-3-25 15:10
 
 
-
-
 赤犬：不怕神一般的对手，就怕猪一般的队友
-
-
-
-
-
 
 
 -----
@@ -16373,21 +10866,13 @@ loushifang 发表于 2010-3-25 14:07 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 15782#       发表于 2010-3-25 15:13
 
 
-
-
 李逵这个比喻不恰当啊 赤犬的心眼和吴用一样多
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15783#       发表于 2010-3-25 15:16
-
 
 
  本帖最后由 不败之狼 于 2010-3-25 15:19 编辑 
@@ -16397,27 +10882,16 @@ loushifang 发表于 2010-3-25 14:07 <[img src="http://bbs.saraba1st.com/2b/imag
 上能顶白胡子（虽然白胡子状态不佳），中间能压制马尔高，下秒ACE，甚平，白胡子队长。
 
 
-
-
 之前我觉得大将虽然在75海之上，但是应该是95VS80，战个几十回合才能分胜负……
 
 
-
-
 再PS：照红发来清场的气势来看，鹰眼其实可以更有作为的，至少战平大将问题不大。这么说来这家伙就是来打酱油的。如果75海实力全开的话，白胡子海贼团就算满血满状态，恐怕也要处于劣势。
-
-
-
-
-
 
 
 -----
 
 ####  安菲尔德  
 ##### 15784#       发表于 2010-3-25 15:18
-
-
 
 
 打酱油没啥吧
@@ -16429,16 +10903,10 @@ loushifang 发表于 2010-3-25 14:07 <[img src="http://bbs.saraba1st.com/2b/imag
 都上去了等着被人背刺啊
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15785#       发表于 2010-3-25 15:18
-
 
 
 <blockquote>赤犬：不怕神一般的对手，就怕猪一般的队友
@@ -16458,32 +10926,19 @@ ramielbilly 发表于 2010-3-25 15:10 <[img src="http://bbs.saraba1st.com/2b/ima
 要追究責任, 那四個人都該拉去勞改......
 
 
-
-
-
-
-
 -----
 
 ####  mouse  
 ##### 15786#       发表于 2010-3-25 15:42
 
 
-
-
 连最大的威胁都意识不到，分兵失败
-
-
-
-
-
 
 
 -----
 
 ####  loushifang  
 ##### 15787#       发表于 2010-3-25 15:44
-
 
 
 <blockquote>李逵这个比喻不恰当啊 赤犬的心眼和吴用一样多
@@ -16493,16 +10948,10 @@ ramielbilly 发表于 2010-3-25 15:10 <[img src="http://bbs.saraba1st.com/2b/ima
 智勇双全啊……
 
 
-
-
-
-
-
 -----
 
 ####  安菲尔德  
 ##### 15788#       发表于 2010-3-25 15:50
-
 
 
 <blockquote>连最大的威胁都意识不到，分兵失败
@@ -16518,23 +10967,15 @@ mouse 发表于 2010-3-25 15:42 <[img src="http://bbs.saraba1st.com/2b/images/co
 可惜只要海军在都是第一个打海军的.....................................
 
 
-
-
-
-
-
 -----
 
 ####  j.nelson  
 ##### 15789#       发表于 2010-3-25 15:51
 
 
-
 <blockquote>赤犬这一刻灵魂附体了已经。远远超过了一般人对大将实力的估计。
 
 上能顶白胡子（虽然白胡子状态不佳），中间能压制马尔高，下秒ACE，甚平，白胡子队长。
-
-
 
 
 之前我觉得大将虽然在75海之上，但是应该是95VS80，战个几 ...
@@ -16544,26 +10985,15 @@ mouse 发表于 2010-3-25 15:42 <[img src="http://bbs.saraba1st.com/2b/images/co
 狗叔满塞<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yujiacyl  
 ##### 15790#       发表于 2010-3-25 15:53
 
 
-
  本帖最后由 yujiacyl 于 2010-3-25 15:54 编辑 
 
 这话卡普根本就没出现。。。我也很欣赏赤犬，不管立场怎么样，他是个名副其实的强者
-
-
-
-
-
 
 
 -----
@@ -16572,16 +11002,10 @@ mouse 发表于 2010-3-25 15:42 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15791#       发表于 2010-3-25 15:58
 
 
-
 <blockquote>这话卡普根本就没出现。。。我也很欣赏赤犬，不管立场怎么样，他是个名副其实的强者
 yujiacyl 发表于 2010-3-25 15:53 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 卡普有一小格：科比！！
-
-
-
-
-
 
 
 -----
@@ -16590,21 +11014,13 @@ yujiacyl 发表于 2010-3-25 15:53 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 15792#       发表于 2010-3-25 16:01
 
 
-
-
 出现的
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 15793#       发表于 2010-3-25 16:01
-
 
 
 <blockquote>簡單來說, 整埸的形勢:
@@ -16624,16 +11040,10 @@ yujiacyl 发表于 2010-3-25 15:53 <[img src="http://bbs.saraba1st.com/2b/images
 青鸡在截人后路，做得很不错了
 
 
-
-
-
-
-
 -----
 
 ####  taehw  
 ##### 15794#       发表于 2010-3-25 16:36
-
 
 
 <blockquote>卡普有一小格：科比！！
@@ -16642,17 +11052,10 @@ Nuriko 发表于 2010-3-25 15:58 <[img src="http://bbs.saraba1st.com/2b/images/c
 还和战国一起面对黑胡子
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15795#       发表于 2010-3-25 17:20
-
-
 
 
 喷高比的显然没有认识清楚海军真正的目的和实力
@@ -16667,17 +11070,10 @@ Nuriko 发表于 2010-3-25 15:58 <[img src="http://bbs.saraba1st.com/2b/images/c
 p.s.潜艇上会不会有路飞团成员
 
 
-
-
-
-
-
 -----
 
 ####  双鱼玫瑰  
 ##### 15796#       发表于 2010-3-25 17:21
-
-
 
 
 我也觉得三大将不去帮忙对付黑胡子而只管追杀路飞也太扯了
@@ -16690,32 +11086,19 @@ p.s.潜艇上会不会有路飞团成员
 现在三大将居然放着在拆总部的黑胡子不管，还是说很信任战国能一人灭黑胡子一团？<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  迪奧  
 ##### 15797#       发表于 2010-3-25 17:25
 
 
-
-
 战国的体形就是铁人28
-
-
-
-
-
 
 
 -----
 
 ####  loushifang  
 ##### 15798#       发表于 2010-3-25 17:37
-
 
 
 <blockquote>我也觉得三大将不去帮忙对付黑胡子而只管追杀路飞也太扯了
@@ -16730,32 +11113,19 @@ p.s.潜艇上会不会有路飞团成员
 战国不死我怎么当元帅……
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15799#       发表于 2010-3-25 18:03
 
 
-
-
 仔细看了这话的先行版，可比很可能拥有类似心网的能力
-
-
-
-
-
 
 
 -----
 
 ####  南宮太平  
 ##### 15800#       发表于 2010-3-25 18:11
-
 
 
 <blockquote>喷高比的显然没有认识清楚海军真正的目的和实力
@@ -16771,17 +11141,10 @@ p.s.潜艇上会不会有路飞团成员
 再說, 都知道傷疲交迫, 傻比還跳出來亂叫減自己士氣算什麼? 想死早一點嗎? 那種情況就是靠一口氣支撐著, 沒了那口氣便隨時由勝利轉敗陣
 
 
-
-
-
-
-
 -----
 
 ####  xiv  
 ##### 15801#       发表于 2010-3-25 18:26
-
-
 
 
 追杀草帽的理由其实说的很明确了
@@ -16793,16 +11156,10 @@ p.s.潜艇上会不会有路飞团成员
 也不是不可以理解
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15802#       发表于 2010-3-25 18:27
-
 
 
  本帖最后由 风听雨 于 2010-3-25 18:30 编辑 
@@ -16825,16 +11182,10 @@ p.s.潜艇上会不会有路飞团成员
 海军的士气难道不是要靠大将们吗
 
 
-
-
-
-
-
 -----
 
 ####  054A  
 ##### 15803#       发表于 2010-3-25 18:31
-
 
 
  本帖最后由 054A 于 2010-3-25 18:38 编辑 
@@ -16857,17 +11208,10 @@ p.s.潜艇上会不会有路飞团成员
 但现在潜水艇已经跑走，“大患”已经板上钉钉，看下话的进展了，继续追杀白胡子团的紧迫性已经没那么大了。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15804#       发表于 2010-3-25 18:37
-
-
 
 
 那么多战友没人管，现在的军心本来就有问题。
@@ -16876,17 +11220,10 @@ p.s.潜艇上会不会有路飞团成员
 赤犬就是当年那个单手斧上校的进化版，克比和这种人死磕到底也是应该的。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15805#       发表于 2010-3-25 18:40
-
-
 
 
 至于保护路飞的理由，完全就是身份的关系。
@@ -16894,16 +11231,10 @@ p.s.潜艇上会不会有路飞团成员
 不是艾斯弟弟你看白胡子那群人谁理他。
 
 
-
-
-
-
-
 -----
 
 ####  054A  
 ##### 15806#       发表于 2010-3-25 18:40
-
 
 
  本帖最后由 054A 于 2010-3-25 18:41 编辑 
@@ -16913,16 +11244,10 @@ p.s.潜艇上会不会有路飞团成员
 赤犬还真看不出是那种人，要说斧手年轻的时候还与赤犬有相似之处。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15807#       发表于 2010-3-25 18:41
-
 
 
 <blockquote>就是因為還有那麼多敵人才應該在這裡全歼白胡子團.......
@@ -16934,16 +11259,10 @@ p.s.潜艇上会不会有路飞团成员
 人家已经逃了 还以强弩之末的姿态继续打，背后还在被黑胡子爆菊，还嫌自己损失不够大？要知道7武海只是暂时归附，万一海军损失太大，谁能保证压得住他们？
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15808#       发表于 2010-3-25 18:41
-
 
 
 <blockquote>打成歼灭战白胡子的地盘海军就能守住了？那为什么一开始不去随便挑个打打
@@ -16966,16 +11285,10 @@ p.s.潜艇上会不会有路飞团成员
 至於士氣......ls說, 我懶得說 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15809#       发表于 2010-3-25 18:41
-
 
 
 <blockquote>人家已经逃了 还以强弩之末的姿态继续打，背后还在被黑胡子爆菊，还嫌自己损失不够大？要知道7武海只是暂时归附，万一海军损失太大，谁能保证压得住他们？ ...
@@ -16983,16 +11296,10 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 他们大概把七武海当自己人了。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15810#       发表于 2010-3-25 18:42
-
 
 
  本帖最后由 燃夜郎君 于 2010-3-25 18:44 编辑 
@@ -17016,16 +11323,10 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 光是场上就有四个反水的七武海了，好险其中的女帝还比较收敛，甚平又倒地不起了。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15811#       发表于 2010-3-25 18:43
-
 
 
 <blockquote>斧手那种渎职无脑的腐化官员。
@@ -17036,33 +11337,19 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 从奥哈拉屠杀平民就可看出，他只是个杀人工具而已，刽子手罢了。这种人存在难道不是革命军反抗的理由？
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15812#       发表于 2010-3-25 18:45
 
 
-
-
 现在要是七武海全部反水，红发又在场，黑胡子又势不可挡，今天把海军灭个七七八八也不是不可能。
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15813#       发表于 2010-3-25 18:45
-
-
 
 
 白胡子海贼团显然不可能和黑胡子联合。
@@ -17074,16 +11361,10 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 路飞的确有潜质，但是现在的路飞的威胁会比黑胡子更大？
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15814#       发表于 2010-3-25 18:46
-
 
 
 <blockquote>白胡子海贼团显然不可能和黑胡子联合。
@@ -17099,17 +11380,10 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 路飞就算找到了黑科技的兵器也不可能拿来用的，黑胡子可是随便用的。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15815#       发表于 2010-3-25 18:49
-
-
 
 
 现在这么多人说路飞威胁性比黑胡子大，你们真敢保证将来日翻世界政府的不是黑胡子？
@@ -17117,17 +11391,10 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 不要随便揣测WT。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15816#       发表于 2010-3-25 18:49
-
-
 
 
 所以说海军最近实在脑残
@@ -17141,16 +11408,10 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 赤犬自己穷追不舍也就罢了，黄猴子也来掺和一脚。海军本部不要啦？战国被黑胡子杀了也可以？
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15817#       发表于 2010-3-25 18:51
-
 
 
  本帖最后由 南宮太平 于 2010-3-25 18:53 编辑 
@@ -17171,16 +11432,10 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 你都說了, 埸上除了鷹眼外還有那個七武海沒反水, 所以說七武海反水了怎麼辦? 就像現在這麼辦就行了......
 
 
-
-
-
-
-
 -----
 
 ####  054A  
 ##### 15818#       发表于 2010-3-25 18:55
-
 
 
  本帖最后由 054A 于 2010-3-25 19:00 编辑 
@@ -17200,17 +11455,10 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 七武海现在打酱油就是最佳选择。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15819#       发表于 2010-3-25 18:56
-
-
 
 
 熊是需要调整才能改变模式的，你以为七武海会给海军调整人造熊的机会？
@@ -17223,32 +11471,19 @@ yario 发表于 2010-3-25 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 等等，他们不可能干的掉的。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15820#       发表于 2010-3-25 18:57
 
 
-
-
 杂兵没用？这么大的世界这么多的岛，这次集中了多少来自各地的精英海军，真的打赢了，消灭了白胡子整团，自己损失多少？还怎么维护治安？还怎么维护世界的和平和稳定？一个大将能在全世界范围天天轮转的维护治安？5老星自己要郁闷了吧。
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15821#       发表于 2010-3-25 18:58
-
 
 
 <blockquote>杂兵没用？这么大的世界这么多的岛，这次集中了多少来自各地的精英海军，真的打赢了，消灭了白胡子整团，自己损失多少？还怎么维护治安？还怎么维护世界的和平和稳定？一个大将能在全世界范围天天轮转的维护治安？5 ...
@@ -17258,16 +11493,10 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 却不知道白胡子镇下了多少准备大闹的海贼，这些海贼马上要开始翻云覆雨了。
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15822#       发表于 2010-3-25 19:01
-
 
 
 <blockquote>克比那一吼可不止赤犬听见了，远处的卡普都听见，你想想有多少人听见了，对错不论这就是彻彻底底的扰乱军心，当场处决再正常不过了。
@@ -17291,16 +11520,10 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 白胡子团和别的团最大区别就是家庭式，最重要的人到下之后水平就会下降很多。而相比之下战国那边已经快顶不住了。用他们当诱饵引起海贼内讧的处理明显要比一股脑吃光更容易避免之后直接受到攻击。就算白胡子团要报仇，失去白胡子的他们又能造成什么效果？
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15823#       发表于 2010-3-25 19:01
-
 
 
 <blockquote>先不说七武海自己能不能意见一致。
@@ -17330,17 +11553,10 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 七武海和海军根本是相互利用貌合神离，你以为是海军给了七武海什么东西吗？
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15824#       发表于 2010-3-25 19:03
-
-
 
 
 我觉得这楼里以为世界就是围着路飞转的，没有路飞就天下太平了。
@@ -17348,17 +11564,10 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 不错没了路飞海贼王就完结了，可是不代表那个世界就清净了。
 
 
-
-
-
-
-
 -----
 
 ####  054A  
 ##### 15825#       发表于 2010-3-25 19:03
-
-
 
 
 要我说，七武海只有在黑胡子胜局已定的情况下才会采取行动。
@@ -17369,32 +11578,19 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 而且现在黑胡子可不能说处于优势，撑死是风头正盛而已。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15826#       发表于 2010-3-25 19:05
 
 
-
-
 综上，赤狗没有一点点大局观，他不配做元帅，他只是个杀人工具、刽子手。
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15827#       发表于 2010-3-25 19:05
-
 
 
 <blockquote>要我说，七武海只有在黑胡子胜局已定的情况下才会采取行动。
@@ -17413,16 +11609,10 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 特别是现在白胡子是死在海贼手上的，世界其他海贼听了只会更疯狂。
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15828#       发表于 2010-3-25 19:05
-
 
 
 <blockquote>........你認為你現在不打那班海賊會從良嗎? 說會的倒還罷了,
@@ -17444,16 +11634,10 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 确实战意已经快没了，但是红狗却非要追击路飞而引起他们的战意，真是功德无量啊
 
 
-
-
-
-
-
 -----
 
 ####  054A  
 ##### 15829#       发表于 2010-3-25 19:08
-
 
 
 <blockquote>你的意思是海军应该把命运堵在七武海不会意见一致所以不会反水上面？
@@ -17476,16 +11660,10 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 你到底对路飞艾斯什么态度啊。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15830#       发表于 2010-3-25 19:11
-
 
 
 <blockquote>黑胡子不能按常理判断，这也是为什么他能够震惊世界。
@@ -17504,32 +11682,19 @@ yario 发表于 2010-3-25 18:57 <[img src="http://bbs.saraba1st.com/2b/images/co
 世界第一剑客本来就和红发关系暧昧，堂吉诃德更是一直在找机会。可以说的剩下的七武海也就莫利亚没啥出息了。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15831#       发表于 2010-3-25 19:13
 
 
-
-
 莫利亚只是没等到机会，当年败于凯多，这次战场上这么多尸体。。。不详的预感。。。。
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15832#       发表于 2010-3-25 19:14
-
 
 
 <blockquote>莫利亚只是没等到机会，当年败于凯多，这次战场上这么多尸体。。。不详的预感。。。。
@@ -17539,16 +11704,10 @@ yario 发表于 2010-3-25 19:13 <[img src="http://bbs.saraba1st.com/2b/images/co
 醒了之后当然更加危险了。
 
 
-
-
-
-
-
 -----
 
 ####  yellowboat  
 ##### 15833#       发表于 2010-3-25 19:16
-
 
 
 <blockquote>感觉海军现在的指挥系统非常混乱。战国根本压不住局面，都不知道是谁在下命令。三大将各自为战，卡普更是游侠一个。和平主义者没人指挥，连中将都不统一行动。
@@ -17556,16 +11715,10 @@ yario 发表于 2010-3-25 19:13 <[img src="http://bbs.saraba1st.com/2b/images/co
 所以说这哪是军队...完全是两群街头流氓在打群架，逮到谁打谁...
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 15834#       发表于 2010-3-25 19:21
-
 
 
  本帖最后由 FCS-31 于 2010-3-25 19:26 编辑 
@@ -17587,16 +11740,10 @@ yario 发表于 2010-3-25 19:13 <[img src="http://bbs.saraba1st.com/2b/images/co
 看下一话如何发展了。
 
 
-
-
-
-
-
 -----
 
 ####  054A  
 ##### 15835#       发表于 2010-3-25 19:27
-
 
 
  本帖最后由 054A 于 2010-3-25 19:31 编辑 
@@ -17615,16 +11762,10 @@ FCS-31 发表于 2010-3-25 19:21 <[img src="http://bbs.saraba1st.com/2b/images/c
 下一话海军高层要再是群体一致继续分兵，那就说不过去了。
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15836#       发表于 2010-3-25 19:29
-
 
 
  本帖最后由 南宮太平 于 2010-3-25 19:37 编辑 
@@ -17648,16 +11789,10 @@ FCS-31 发表于 2010-3-25 19:21 <[img src="http://bbs.saraba1st.com/2b/images/c
 我想說什麼自己想想 <img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15837#       发表于 2010-3-25 19:37
-
 
 
 <blockquote>我只看到大將靠草帽這個阻礙物一口氣幹了艾斯加人魚, 戰意什麼的倒沒看到 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
@@ -17668,25 +11803,13 @@ FCS-31 发表于 2010-3-25 19:21 <[img src="http://bbs.saraba1st.com/2b/images/c
 哦对我忘算红狗把沙姐真相都给逼出来了，好人那红狗
 
 
-
-
-
-
-
 -----
 
 ####  realwow  
 ##### 15838#       发表于 2010-3-25 19:38
 
 
-
-
 这几话让我感觉WT对这场战争也是失去控制了~~
-
-
-
-
-
 
 
 -----
@@ -17695,25 +11818,16 @@ FCS-31 发表于 2010-3-25 19:21 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15839#       发表于 2010-3-25 19:39
 
 
-
-
 是在本方基地被打剩一半HP而且还在被继续攻击的情况下下
 
 
 赤丸还在死命地去追杀一个三级的幻影刺客.....
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15840#       发表于 2010-3-25 19:41
-
-
 
 
 战国就布置了海军唯一的战术海上包围圈加和平主义者，已经把白胡子打的七零八落，然后就没有再下过命令。
@@ -17723,17 +11837,10 @@ FCS-31 发表于 2010-3-25 19:21 <[img src="http://bbs.saraba1st.com/2b/images/c
 为什么还说海军是流氓打架？
 
 
-
-
-
-
-
 -----
 
 ####  双鱼玫瑰  
 ##### 15841#       发表于 2010-3-25 19:44
-
-
 
 
 不开上帝视角的话完全解释不了三大将的行为
@@ -17746,16 +11853,10 @@ FCS-31 发表于 2010-3-25 19:21 <[img src="http://bbs.saraba1st.com/2b/images/c
 而黑胡子都摆明要拆了海军总部了，居然还没一个大将去帮战国和卡普<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 15842#       发表于 2010-3-25 19:47
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">女帝确实是偶尔出来玩，其他什么都不管，但是不许你们说她没出息哦。。。
@@ -17766,16 +11867,10 @@ FCS-31 发表于 2010-3-25 19:21 <[img src="http://bbs.saraba1st.com/2b/images/c
 和海军合作。。。海军是选择和监督7武海而已吧。。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15843#       发表于 2010-3-25 19:50
-
 
 
 <blockquote>战国就布置了海军唯一的战术海上包围圈加和平主义者，已经把白胡子打的七零八落，然后就没有再下过命令。
@@ -17790,16 +11885,10 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 中将就不是将啦？
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15844#       发表于 2010-3-25 19:53
-
 
 
 <blockquote>我只看到大將靠草帽這個阻礙物一口氣幹了艾斯加人魚, 戰意什麼的倒沒看到 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
@@ -17819,16 +11908,10 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 现在只要海军收缩实力不是用力在拼命，就不怕背后被人刺
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15845#       发表于 2010-3-25 19:56
-
 
 
 <blockquote>首先7武反水只是威胁的一方面
@@ -17840,25 +11923,13 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 海軍的最高戰力除了赤犬大將受了傷外, 另外兩人連毛也沒少一條, 戰國跟卡普也就剛投入戰埸, 這就叫拼命? <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  guanliang  
 ##### 15846#       发表于 2010-3-25 19:57
 
 
-
-
 路飞有冲劲，有干劲，有人缘，我们都喜欢，但说那么多大人物保证他，实话实说，应该还是他的家庭背景在起作用吧？爷爷，爸爸，兄弟，基友......
-
-
-
-
-
 
 
 -----
@@ -17867,13 +11938,7 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15847#       发表于 2010-3-25 19:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">这话白给了那么多垂死挣扎没人管的海军伤兵的特写了么
-
-
-
-
-
 
 
 -----
@@ -17882,21 +11947,13 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15848#       发表于 2010-3-25 19:59
 
 
-
-
 路飞团的酱油得打到什么时候啊<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  HSSS  
 ##### 15849#       发表于 2010-3-25 20:01
-
 
 
 <blockquote>杂兵就不是兵啦？
@@ -17917,32 +11974,19 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 <img src="https://static.saraba1st.com/image/smiley/face/180.gif" referrerpolicy="no-referrer"> 总之 战国是不会错的
 
 
-
-
-
-
-
 -----
 
 ####  ★草泥马★  
 ##### 15850#       发表于 2010-3-25 20:05
 
 
-
-
 麻痹啊，看到红发了，太激动了，太帅了<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  风听雨  
 ##### 15851#       发表于 2010-3-25 20:12
-
 
 
  本帖最后由 风听雨 于 2010-3-25 20:15 编辑 
@@ -17959,16 +12003,10 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 拼命还是偏指红狗那段，不管大量的减员，不管现存的威胁，不管潜在的威胁，只去要自损八百伤人一个，还不叫拼命？
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15852#       发表于 2010-3-25 20:14
-
 
 
 <blockquote>海軍的最高戰力除了赤犬大將受了傷外, 另外兩人連毛也沒少一條, 戰國跟卡普也就剛投入戰埸, 這就叫拼命? <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
@@ -17976,16 +12014,10 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 倒下的中将和杂兵们情何以堪…
 
 
-
-
-
-
-
 -----
 
 ####  安菲尔德  
 ##### 15853#       发表于 2010-3-25 20:18
-
 
 
 <blockquote>战国就布置了海军唯一的战术海上包围圈加和平主义者，已经把白胡子打的七零八落，然后就没有再下过命令。
@@ -18005,17 +12037,10 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 这种状况下要是在冒点别的东西出来情况会怎么样你考虑过吧
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15854#       发表于 2010-3-25 20:20
-
-
 
 
 战国和卡普连金狮子都按倒了，还能打不过黑胡子？
@@ -18023,16 +12048,10 @@ HSSS 发表于 2010-3-25 19:41 <[img src="http://bbs.saraba1st.com/2b/images/com
 现在就是觉得旧时代的人死的死，退休的退休，走都的太干净了，最起码留个战国发发神威啊wt！
 
 
-
-
-
-
-
 -----
 
 ####  安菲尔德  
 ##### 15855#       发表于 2010-3-25 20:25
-
 
 
 <blockquote>战国和卡普连金狮子都按倒了，还能打不过黑胡子？
@@ -18046,17 +12065,10 @@ HSSS 发表于 2010-3-25 20:20 <[img src="http://bbs.saraba1st.com/2b/images/com
 话说黑胡子的年纪和辈分就算算不上旧时代也不应该排在新时代里吧
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 15856#       发表于 2010-3-25 20:26
-
-
 
 
 看个漫画看出一大堆将帅之才来。。。
@@ -18065,32 +12077,19 @@ HSSS 发表于 2010-3-25 20:20 <[img src="http://bbs.saraba1st.com/2b/images/com
 你们去把日本岛搞沉吧
 
 
-
-
-
-
-
 -----
 
 ####  ★草泥马★  
 ##### 15857#       发表于 2010-3-25 20:29
 
 
-
-
 我就是认为看OP还这么理性的分析的人就是蛋疼
-
-
-
-
-
 
 
 -----
 
 ####  囧神  
 ##### 15858#       发表于 2010-3-25 20:33
-
 
 
 <blockquote>看个漫画看出一大堆将帅之才来。。。
@@ -18104,17 +12103,10 @@ HSSS 发表于 2010-3-25 20:20 <[img src="http://bbs.saraba1st.com/2b/images/com
 反正我觉得这样的讨论氛围挺好的。
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15859#       发表于 2010-3-25 20:35
-
-
 
 
 战场失控的只是被黑胡子弄的天翻地覆的场地 
@@ -18128,16 +12120,10 @@ HSSS 发表于 2010-3-25 20:20 <[img src="http://bbs.saraba1st.com/2b/images/com
 赤犬没能马上秒掉他 是赤犬阅历的一大污点
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15860#       发表于 2010-3-25 20:45
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">这话白给了那么多垂死挣扎没人管的海军伤兵的特写了么
@@ -18145,16 +12131,10 @@ zhaxiawa 发表于 2010-3-25 19:58 <[img src="http://bbs.saraba1st.com/2b/images
 呵呵，尾田该泪流满面了。
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15861#       发表于 2010-3-25 20:47
-
 
 
 <blockquote>战场失控的只是被黑胡子弄的天翻地覆的场地 
@@ -18172,17 +12152,10 @@ gooas 发表于 2010-3-25 20:35 <[img src="http://bbs.saraba1st.com/2b/images/co
 不管怎么说，wt绝对不会看不起高比，他对高比是有寄托的。你这种黑法很可笑
 
 
-
-
-
-
-
 -----
 
 ####  安菲尔德  
 ##### 15862#       发表于 2010-3-25 20:50
-
-
 
 
 突然想到
@@ -18202,17 +12175,10 @@ gooas 发表于 2010-3-25 20:35 <[img src="http://bbs.saraba1st.com/2b/images/co
 沉了接下去你来画？就算你画了我们也不认得
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15863#       发表于 2010-3-25 20:53
-
-
 
 
 垂死挣扎没人管的海军无非就是WT为了突出可以影响战局的主要角色的实力而进行的侧面刻画。
@@ -18222,17 +12188,10 @@ gooas 发表于 2010-3-25 20:35 <[img src="http://bbs.saraba1st.com/2b/images/co
 漫画里的胜败，说实话还就是那几个最高战力来决定的。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15864#       发表于 2010-3-25 20:53
-
-
 
 
 所以说，某人的父亲才是真的强者，他自己只是个富二代。
@@ -18252,16 +12211,10 @@ gooas 发表于 2010-3-25 20:35 <[img src="http://bbs.saraba1st.com/2b/images/co
 就算以南宫你说的情况，除非故事由你来写，否则也根本说不准会往什么方向发展。
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15865#       发表于 2010-3-25 20:59
-
 
 
 <blockquote>垂死挣扎没人管的海军无非就是WT为了突出可以影响战局的主要角色的实力而进行的侧面刻画。
@@ -18269,16 +12222,10 @@ HSSS 发表于 2010-3-25 20:53 <[img src="http://bbs.saraba1st.com/2b/images/com
 这结论哪来的？逻辑太奇怪了…
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15866#       发表于 2010-3-25 20:59
-
 
 
  本帖最后由 南宮太平 于 2010-3-25 21:03 编辑 
@@ -18298,16 +12245,10 @@ HSSS 发表于 2010-3-25 20:53 <[img src="http://bbs.saraba1st.com/2b/images/com
 真學某些人放他們出海, 自己硬拚黑胡子, 結局就是在海上跟紅髮會合重新編組的紅白髮胡兵團當了大黃雀.....
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15867#       发表于 2010-3-25 21:00
-
 
 
 <blockquote>雜兵在強者的世界本來就只是用來維持秩序, 戰力? 艾斯早期一拳便滅了五船海軍, 真指望靠他們當戰力世界便絕望了 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer"> 
@@ -18319,16 +12260,10 @@ HSSS 发表于 2010-3-25 20:53 <[img src="http://bbs.saraba1st.com/2b/images/com
 而且白胡子搞不好就能拿下战国加卡普。
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15868#       发表于 2010-3-25 21:07
-
 
 
 <blockquote>雜兵在強者的世界本來就只是用來維持秩序, 戰力? 艾斯早期一拳便滅了五船海軍, 真指望靠他們當戰力世界便絕望了 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer"> 
@@ -18338,16 +12273,10 @@ HSSS 发表于 2010-3-25 20:53 <[img src="http://bbs.saraba1st.com/2b/images/com
 原来中将不是强者啊？前面不是说过了么？来到这战场的都是精英。再说了，他们倒下不算倒下？他们伤亡不算伤亡？
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15869#       发表于 2010-3-25 21:07
-
 
 
 <blockquote>这结论哪来的？逻辑太奇怪了…
@@ -18363,16 +12292,10 @@ HSSS 发表于 2010-3-25 20:53 <[img src="http://bbs.saraba1st.com/2b/images/com
 路人角色毕竟跟主要角色实力差太远，而不是真的跟现实中一样小兵也能开枪打死将军。
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15870#       发表于 2010-3-25 21:08
-
 
 
 <blockquote>既然承认战场失控就好。现在的对应本来就是黑胡子出现之后该做的改变
@@ -18389,17 +12312,10 @@ HSSS 发表于 2010-3-25 20:53 <[img src="http://bbs.saraba1st.com/2b/images/com
 产生的威慑起码让海贼安分个几十年 就算海军全灭也值 反正世界政府可以马上重组海军
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15871#       发表于 2010-3-25 21:09
-
-
 
 
 海军怎么没本钱？现在明明是海贼输的一塌糊涂好不好。。
@@ -18409,16 +12325,10 @@ HSSS 发表于 2010-3-25 20:53 <[img src="http://bbs.saraba1st.com/2b/images/com
 海军有死的觉悟，海军凭什么不能有？来到这战场的都是精英谁需要谁的保护？
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15872#       发表于 2010-3-25 21:13
-
 
 
 <blockquote>黑胡子杀了多少海军，战国一样可以扳回来。
@@ -18432,16 +12342,10 @@ HSSS 发表于 2010-3-25 21:07 <[img src="http://bbs.saraba1st.com/2b/images/com
 一个？两个？
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15873#       发表于 2010-3-25 21:15
-
 
 
 <blockquote>海军怎么没本钱？现在明明是海贼输的一塌糊涂好不好。。
@@ -18453,16 +12357,10 @@ HSSS 发表于 2010-3-25 21:09 <[img src="http://bbs.saraba1st.com/2b/images/com
 ……你都听不懂我们说的是民众需要保护那我们还谈什么？
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15874#       发表于 2010-3-25 21:16
-
 
 
 <blockquote>哦，那你说说战国能杀多少黑胡子的人？
@@ -18472,16 +12370,10 @@ HSSS 发表于 2010-3-25 21:09 <[img src="http://bbs.saraba1st.com/2b/images/com
 黑胡子才几个人啊 黑胡子现在被操的满脸是血也伤不了战国分毫着就够了 战国现在这么努力不就是在保护大家吗
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15875#       发表于 2010-3-25 21:16
-
 
 
 <blockquote>场地失控跟人员失控还是有很大区别的吧 海军的目的是消灭白胡子海贼团 
@@ -18493,16 +12385,10 @@ gooas 发表于 2010-3-25 21:08 <[img src="http://bbs.saraba1st.com/2b/images/co
 所有隐患？那句话没听过，“这个世界上只败给白胡子的银牌选手数不胜数”，海底大监狱被黑胡子这么一搞，带来的只是他需要的人，其他的呢？6层里如此多的高手，都逃走的话，以现在海军的损失能震住？何况还有3个四皇，红发已经到了，没到的呢？新世界高手还有多少？单单白胡子伞下就47个，其他的呢？暴走的时代，香克斯的断言，原因呢？白胡子团重创，海军大损，世界平衡崩坏，群魔乱舞。不过反正头痛的是五老星，我们就看看热闹就行了。
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15876#       发表于 2010-3-25 21:18
-
 
 
 <blockquote>哦，那你说说战国能杀多少黑胡子的人？
@@ -18518,16 +12404,10 @@ gooas 发表于 2010-3-25 21:08 <[img src="http://bbs.saraba1st.com/2b/images/co
 并不是LS一直有人说的流氓打架。。
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15877#       发表于 2010-3-25 21:19
-
 
 
 <blockquote>……你都听不懂我们说的是民众需要保护那我们还谈什么？
@@ -18539,32 +12419,19 @@ gooas 发表于 2010-3-25 21:08 <[img src="http://bbs.saraba1st.com/2b/images/co
 ......老實說, 我不是尾田, 不敢像某人一樣腦補<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15878#       发表于 2010-3-25 21:20
 
 
-
-
 看出来了 上述有几位以为大将以上可以二十四小时周游全世界到处扑火，维护和平稳定，民众不受伤害。V5
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15879#       发表于 2010-3-25 21:20
-
 
 
 <blockquote>黑胡子才几个人啊 黑胡子现在被操的满脸是血也伤不了战国分毫着就够了 战国现在这么努力不就是在保护大家吗
@@ -18576,17 +12443,10 @@ gooas 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 还是你觉得战国只要保海军就对了，民众什么的去死？
 
 
-
-
-
-
-
 -----
 
 ####  molilanmao  
 ##### 15880#       发表于 2010-3-25 21:20
-
-
 
 
 我不理解为什么你们要纠结七武海反水不反水的问题
@@ -18603,16 +12463,10 @@ gooas 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 就算海军全灭，七武海干嘛要丢掉这些白送的福利？
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15881#       发表于 2010-3-25 21:21
-
 
 
 <blockquote>看出来了 上述有几位以为大将以上可以二十四小时周游全世界到处扑火，维护和平稳定，民众不受伤害。V5
@@ -18622,16 +12476,10 @@ yario 发表于 2010-3-25 21:20 <[img src="http://bbs.saraba1st.com/2b/images/co
 讓這班大海賊逃了, 那些雜兵就算活著也保護不了民眾
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15882#       发表于 2010-3-25 21:22
-
 
 
 <blockquote>……你都听不懂我们说的是民众需要保护那我们还谈什么？
@@ -18642,16 +12490,10 @@ yario 发表于 2010-3-25 21:20 <[img src="http://bbs.saraba1st.com/2b/images/co
 放虎归山知道什么意思吧。。
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15883#       发表于 2010-3-25 21:22
-
 
 
  本帖最后由 风听雨 于 2010-3-25 21:25 编辑 
@@ -18667,22 +12509,15 @@ gooas 发表于 2010-3-25 21:08 <[img src="http://bbs.saraba1st.com/2b/images/co
 三皇，7武，革命军纷纷发来贺电，表示自己看见海军全灭之后会好好的安分守己
 
 
-
 全灭了之后还拿p来威慑？5个最高战力可以搞定全世界？那早干嘛去了。全盛时期尚且只能保持平衡，实力大损之后反而获得胜利，什么逻辑
 
 斯莫格才什么位置？全书到现在有几个斯莫格？要是随时都能征募战力，海贼早就都被荡平了
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15884#       发表于 2010-3-25 21:24
-
 
 
 <blockquote>對對, 海軍為了保護民眾, 便一個人也不能死, 所以不能打海賊呀! 因為打海賊會死海軍, 海軍死了便保護不了民眾!!!<img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer"> 
@@ -18700,16 +12535,10 @@ gooas 发表于 2010-3-25 21:08 <[img src="http://bbs.saraba1st.com/2b/images/co
 你有一丁点逻辑吗？
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15885#       发表于 2010-3-25 21:25
-
 
 
 <blockquote>是啊，海贼都到门口被重创了，你不杀等他们再去骚扰民众的时候再过去保护？
@@ -18719,17 +12548,10 @@ HSSS 发表于 2010-3-25 21:22 <[img src="http://bbs.saraba1st.com/2b/images/com
 那你就说说为什么要妥协搞出七武海来吧。
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 15886#       发表于 2010-3-25 21:25
-
-
 
 
 唉，看到这疯狂的景象，忽然想到了阿拉巴斯坦。
@@ -18738,26 +12560,15 @@ HSSS 发表于 2010-3-25 21:22 <[img src="http://bbs.saraba1st.com/2b/images/com
 一场雨浇醒了那时的人们，现在，什么来叫醒大家呢？红发么？不知道
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15887#       发表于 2010-3-25 21:25
 
 
-
 <blockquote>所有隐患？那句话没听过，“这个世界上只败给白胡子的银牌选手数不胜数”，海底大监狱被黑胡子这么一搞，带来的只是他需要的人，其他的呢？6层里如此多的高手，都逃走的话，以现在海军的损失能震住？何况还有3个四 ...
 yario 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 银牌选手如果有的话也就不会这么默默无名了 大监狱那帮根本就是些没任何影响的家伙 不然早被砍了也不会留者 白胡子和黑胡子那些就不要算进来了除非这些海军不再继续拼下去 剩下的那些无名之辈世界政府可以瞬间让海军恢复原状 再慢慢一个个灭
-
-
-
-
-
 
 
 -----
@@ -18766,23 +12577,15 @@ yario 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15888#       发表于 2010-3-25 21:27
 
 
-
-
 甚平说是白胡子镇住了无数乱来的海盗，这里很多人大概当他是傻瓜吧。
 
 反正有几个大将就行了。
-
-
-
-
-
 
 
 -----
 
 ####  gooas  
 ##### 15889#       发表于 2010-3-25 21:29
-
 
 
 <blockquote>保护大家？
@@ -18794,17 +12597,10 @@ yario 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 因为战斗引起海啸 所以战国有错罗 好象战国不反抗就不会海啸似的
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15890#       发表于 2010-3-25 21:30
-
-
 
 
 小评论下，OP的不足之一就是主角太完美了，三观坚定无改变，性格善良勇敢气质好……
@@ -18819,16 +12615,10 @@ yario 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 也许，新时代能代表海军正义的人会是可比。
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15891#       发表于 2010-3-25 21:31
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/75.gif" referrerpolicy="no-referrer">白胡子那一帮子人那么多，你说他们是为了替天行道锄强扶弱我都不信。
@@ -18840,33 +12630,19 @@ yario 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 一帮有七武海实力的队长放出去又群龙无首，保管后患无穷啊后患无穷。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15892#       发表于 2010-3-25 21:32
 
 
-
-
 所以黑胡子必须先搞死，最高3大战力必须过来。他才是“现在”最大的威胁！
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15893#       发表于 2010-3-25 21:35
-
-
 
 
 白胡子就一典型家族黑社会嘛。讲义气重感情。
@@ -18879,16 +12655,10 @@ yario 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 不过接下来会牵着到正义之类的，没有意义了。海贼就是看得伙伴和梦想嘛。
 
 
-
-
-
-
-
 -----
 
 ####  why3000  
 ##### 15894#       发表于 2010-3-25 21:40
-
 
 
 <blockquote>白胡子就一典型家族黑社会嘛。讲义气重感情。
@@ -18904,17 +12674,10 @@ yario 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 <strong>因为这叫漫画。</strong>
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 15895#       发表于 2010-3-25 21:44
-
-
 
 
 那为什么那个世界里海贼还存在而且肆虐？明显是海军实力不够
@@ -18924,16 +12687,10 @@ yario 发表于 2010-3-25 21:16 <[img src="http://bbs.saraba1st.com/2b/images/co
 海军是应该灭海贼，但现在这个情况下应该有谋略
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15896#       发表于 2010-3-25 21:47
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/75.gif" referrerpolicy="no-referrer">白胡子那一帮子人那么多，你说他们是为了替天行道锄强扶弱我都不信。
@@ -18952,32 +12709,19 @@ HSSS 发表于 2010-3-25 21:31 <[img src="http://bbs.saraba1st.com/2b/images/com
 你见路飞大爷吃过米饭么?<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 15897#       发表于 2010-3-25 21:47
 
 
-
-
 灭海贼是必须的，应该的，但是盲目的拼命就是脑残。
-
-
-
-
-
 
 
 -----
 
 ####  南宮太平  
 ##### 15898#       发表于 2010-3-25 21:50
-
 
 
 <blockquote>随便砍个海王类都足够一船人吃上一两个月了......<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 
@@ -18990,32 +12734,19 @@ kvkv 发表于 2010-3-25 21:47 <[img src="http://bbs.saraba1st.com/2b/images/com
 對對, 衣服一定也是打海王類掉的!!! <img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 15899#       发表于 2010-3-25 21:51
 
 
-
-
 某些人又开始肆无忌惮的脑补了，哦，我说的就是 燃 夜郎 君。
-
-
-
-
-
 
 
 -----
 
 ####  gooas  
 ##### 15900#       发表于 2010-3-25 21:53
-
 
 
 <blockquote>安分个几十年？！我不争气的笑了
@@ -19033,17 +12764,10 @@ kvkv 发表于 2010-3-25 21:47 <[img src="http://bbs.saraba1st.com/2b/images/com
 用海军全灭做掉白胡子这种知道世界政府秘密的人和一个有可能继承反抗军领导位置的人 有什么不值的
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 15901#       发表于 2010-3-25 21:54
-
-
 
 
 基地里战国+卡普松松打翻黑胡子吧
@@ -19060,16 +12784,10 @@ kvkv 发表于 2010-3-25 21:47 <[img src="http://bbs.saraba1st.com/2b/images/com
 杀了个老顽固断了两个种，这种斩草除根的战况海军战斗力简直掀棚了。。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15902#       发表于 2010-3-25 21:54
-
 
 
  本帖最后由 燃夜郎君 于 2010-3-25 21:56 编辑 
@@ -19082,28 +12800,16 @@ kvkv 发表于 2010-3-25 21:47 <[img src="http://bbs.saraba1st.com/2b/images/com
 但是我没有精力和这个傻逼喷子战，所以我就坐等他被封了，现在先让他猖狂吧。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15903#       发表于 2010-3-25 21:55
 
 
-
 <strong> [15968#](http://bbs.saraba1st.com/2b/redirect.php?goto=findpost&amp;pid=11471823&amp;ptid=98922) 嘲风 </strong>
 
 
-
 7……6天之后还能在楼里看见扭喷么<img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer"> 突然一阵莫名的伤感。
-
-
-
-
-
 
 
 -----
@@ -19112,10 +12818,8 @@ kvkv 发表于 2010-3-25 21:47 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15904#       发表于 2010-3-25 21:56
 
 
-
  本帖最后由 燃夜郎君 于 2010-3-25 21:58 编辑 
 <blockquote> 15968# 嘲风 
-
 
 
 7……6天之后还能在楼里看见扭喷么<img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer"> 突然一阵莫名的伤感。
@@ -19125,16 +12829,10 @@ kvkv 发表于 2010-3-25 21:47 <[img src="http://bbs.saraba1st.com/2b/images/com
 这种SB就和鞋底的口香糖一样，怎么踩都踩不掉的。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15905#       发表于 2010-3-25 21:59
-
 
 
 <blockquote>基地里战国+卡普松松打翻黑胡子吧
@@ -19157,16 +12855,10 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 是去追红血的DK重要还是回家防守马上要被拆掉的老家重要啊？
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15906#       发表于 2010-3-25 22:04
-
 
 
 <blockquote>不过以他的无限精力和无限脑补能力，他会厚颜无耻的用马甲的。
@@ -19176,16 +12868,10 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 该消停了…要开骂去外野自己发个战帖去…
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 15907#       发表于 2010-3-25 22:04
-
 
 
 <blockquote>某些人都快被封了，我说的就是嘲讽。
@@ -19204,16 +12890,10 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 这最近三四页里被一群人轮着抽还能这么淡定，真佩服您，简直太对得起阁下id中的“夜郎”二字了。
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 15908#       发表于 2010-3-25 22:05
-
 
 
 <blockquote>黑胡子不是一个人啊。那些杂七杂八的不说，紫龙估计战平战国问题都不大。而现在的黑胡子的实力到底有多强，能不能赶上金狮子白胡子都是未知。就算和卡普平手，那些传说海贼不能吃素吧？
@@ -19226,25 +12906,13 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 紫龍是誰? 黑胡子之前的實力也就是被一個毒毒果實打到團滅.......
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15909#       发表于 2010-3-25 22:07
 
 
-
-
 紫龙战平战国不太可能，再加一个老家伙的话应该可以…
-
-
-
-
-
 
 
 -----
@@ -19253,12 +12921,10 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15910#       发表于 2010-3-25 22:07
 
 
-
 <blockquote>對對, 衣服一定也是打海王類掉的!!! <img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
 南宮太平 发表于 2010-3-25 21:50 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 较真么?
-
 
 
 海洋那么丰富的资源,随便弄一些到陆地上去卖就可以了......
@@ -19266,16 +12932,10 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 非要脑补成抢的么?
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15911#       发表于 2010-3-25 22:10
-
 
 
  本帖最后由 不败之狼 于 2010-3-25 22:13 编辑 
@@ -19292,8 +12952,6 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 说道黑胡子被秒，WT给出完美的解释了啊，白胡子：“你的缺点就是太自负了”之类的……
 
 
-
-
 以下为脑部：
 
 战国很强，非常强，但是我觉得他应该比不上三大将。不然为什么后者被成为“海军最高战力”。
@@ -19303,16 +12961,10 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 就现在而言，如果紫龙真的拥有战平展现出强劲实力的麦哲伦的水平的话，我觉得他可能等于甚至大于75海。
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 15912#       发表于 2010-3-25 22:11
-
 
 
 <blockquote>不过以他的无限精力和无限脑补能力，他会厚颜无耻的用马甲的。
@@ -19329,26 +12981,15 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 您真的不用一再证明您那强大的脑补能力了，大家都知道。
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15913#       发表于 2010-3-25 22:11
 
 
-
 <blockquote>紫龙战平战国不太可能，再加一个老家伙的话应该可以…
 囧神 发表于 2010-3-25 22:07 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 再加一个也不太可能 现在完好无损的海军很多 把黑胡子团一群人弄的满脸是血的战国就是一个
-
-
-
-
-
 
 
 -----
@@ -19357,16 +12998,10 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15914#       发表于 2010-3-25 22:12
 
 
-
 <blockquote>该消停了…要开骂去外野自己发个战帖去…
 囧神 发表于 2010-3-25 22:04 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 你问问他敢么，上次被抽的一遍又一遍的回“这帖不回了”。
-
-
-
-
-
 
 
 -----
@@ -19375,15 +13010,9 @@ HSSS 发表于 2010-3-25 21:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15915#       发表于 2010-3-25 22:14
 
 
-
 <blockquote>再加一个也不太可能 现在完好无损的海军很多 把黑胡子团一群人弄的满脸是血的战国就是一个
 gooas 发表于 2010-3-25 22:11 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 海军里战国级别的不会剩多少了。
-
-
-
-
-
 
 
 -----
@@ -19392,15 +13021,9 @@ gooas 发表于 2010-3-25 22:11 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15916#       发表于 2010-3-25 22:15
 
 
-
 <blockquote>再加一个也不太可能 现在完好无损的海军很多 把黑胡子团一群人弄的满脸是血的战国就是一个
 gooas 发表于 2010-3-25 22:11 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 偷袭+大范围攻击弄得满脸是血很正常啊。无法证明战国实力。或者说克洛克达尔如果偷袭使用腐蚀轮回+沙漠宝刀的话，打伤黑胡子全员也是可能的。
-
-
-
-
-
 
 
 -----
@@ -19409,23 +13032,15 @@ gooas 发表于 2010-3-25 22:11 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15917#       发表于 2010-3-25 22:18
 
 
-
 <blockquote>偷袭+大范围攻击弄得满脸是血很正常啊。无法证明战国实力。或者说克洛克达尔如果偷袭使用腐蚀轮回+沙漠宝刀的话，打伤黑胡子全员也是可能的。
 不败之狼 发表于 2010-3-25 22:15 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 那个可是堂堂正正的在他们面前变身再攻击的啊 只是他们闪不开而已 而且这一话爷爷也加入了战局 应该已经过过几招了
-
-
-
-
-
 
 
 -----
 
 ####  lillianjr  
 ##### 15918#       发表于 2010-3-25 22:20
-
-
 
 
 既然路飞撤退了那下面该开科比视角看战争如何结束吧
@@ -19435,16 +13050,10 @@ gooas 发表于 2010-3-25 22:11 <[img src="http://bbs.saraba1st.com/2b/images/co
 好歹也是第一话出现了的里男主角啊。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15919#       发表于 2010-3-25 22:20
-
 
 
 <blockquote>那个可是堂堂正正的在他们面前变身再攻击的啊 只是他们闪不开而已 而且这一话爷爷也加入了战局 应该已经过过几招了
@@ -19458,16 +13067,10 @@ gooas 发表于 2010-3-25 22:18 <[img src="http://bbs.saraba1st.com/2b/images/co
 再说连格斗冠军这种等级的家伙都没啥事，未必能证明战国很强么。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15920#       发表于 2010-3-25 22:21
-
 
 
 <blockquote>既然路飞撤退了那下面该开科比视角看战争如何结束吧
@@ -19479,16 +13082,10 @@ lillianjr 发表于 2010-3-25 22:20 <[img src="http://bbs.saraba1st.com/2b/image
 这个角度其实挺好，但是克比的觉悟不够，短时间醒来的可能性……我不太看好。
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15921#       发表于 2010-3-25 22:22
-
 
 
 <blockquote>再加一个也不太可能 现在完好无损的海军很多 把黑胡子团一群人弄的满脸是血的战国就是一个
@@ -19499,16 +13096,10 @@ gooas 发表于 2010-3-25 22:11 <[img src="http://bbs.saraba1st.com/2b/images/co
 如果紫龙的实力和老麦同级的话，又再加一个老家伙，我觉得战平战国不难…
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15922#       发表于 2010-3-25 22:23
-
 
 
 <blockquote>现在被压制那是因为大意，由于黑胡子吸果实成功太放松了。这压制时间长不了的。
@@ -19521,16 +13112,10 @@ gooas 发表于 2010-3-25 22:11 <[img src="http://bbs.saraba1st.com/2b/images/co
 虽然果实要看锻炼程度如何，但是强的果实的确占优，现在黑胡子已经在验证这种理论了。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 15923#       发表于 2010-3-25 22:23
-
 
 
  本帖最后由 不败之狼 于 2010-3-25 22:31 编辑 
@@ -19538,30 +13123,19 @@ gooas 发表于 2010-3-25 22:11 <[img src="http://bbs.saraba1st.com/2b/images/co
 个人以为两个LV6的话，至少应该有两个克洛克的水平吧，打到战国也不是没可能
 
 
-
 顺便，紫龙和毒男同等级，不是在监狱里就说过了吗<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 再说你也不知道紫龙是什么果实。如果真是雨之果实的话那可牛逼大了啊
-
-
 
 
 不要低估LV6！现在LV6的上限是金狮子，下限是克洛克和甚平……
 
 
-
-
 PS：翻回去发现甚平不会霸气？当年怎么战平ACE的啊。
-
-
-
-
-
 
 
 -----
 
 ####  安菲尔德  
 ##### 15924#       发表于 2010-3-25 22:28
-
 
 
 <blockquote>银牌选手如果有的话也就不会这么默默无名了 大监狱那帮根本就是些没任何影响的家伙 不然早被砍了也不会留者 白胡子和黑胡子那些就不要算进来了除非这些海军不再继续拼下去 剩下的那些无名之辈世界政府可以瞬间让海 ...
@@ -19572,26 +13146,15 @@ gooas 发表于 2010-3-25 21:25 <[img src="http://bbs.saraba1st.com/2b/images/co
 海军吃饱了没事做留着活人把他们的存在抹杀掉了啊
 
 
-
-
-
-
-
 -----
 
 ####  安菲尔德  
 ##### 15925#       发表于 2010-3-25 22:32
 
 
-
 <blockquote>所以黑胡子必须先搞死，最高3大战力必须过来。他才是“现在”最大的威胁！
 yario 发表于 2010-3-25 21:32 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 战国，卡普+3大将全赶去打黑胡子把路飞放跑这种失误可是比3大将全去打路飞的失误还大哦
-
-
-
-
-
 
 
 -----
@@ -19600,22 +13163,13 @@ yario 发表于 2010-3-25 21:32 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15926#       发表于 2010-3-25 22:36
 
 
-
-
 很难想像砂鳄和甚平是下限，LV6不是一堆被麦哲伦一毒就闭嘴的家伙吗。
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 15927#       发表于 2010-3-25 22:38
-
-
 
 
 那不是LV5吗？记不太清了。
@@ -19627,16 +13181,10 @@ yario 发表于 2010-3-25 21:32 <[img src="http://bbs.saraba1st.com/2b/images/co
 再说我说的下限是“目前为止”
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 15928#       发表于 2010-3-25 23:09
-
 
 
 <blockquote>那不是LV5吗？记不太清了。
@@ -19650,16 +13198,10 @@ yario 发表于 2010-3-25 21:32 <[img src="http://bbs.saraba1st.com/2b/images/co
 黑胡子那情况还能叫么？话说老麦能力太逆天了，特别是毒龙…而且老麦的抗揍能力还挺不错的…
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 15929#       发表于 2010-3-25 23:40
-
 
 
 <blockquote>转
@@ -19668,25 +13210,13 @@ winmy 发表于 2010-3-25 23:12 <[img src="http://bbs.saraba1st.com/2b/images/co
 这个分析太深刻了。。。
 
 
-
-
-
-
-
 -----
 
 ####  hispeed  
 ##### 15930#       发表于 2010-3-25 23:58
 
 
-
-
 没人讨论贝克曼居然就是副船长么？
-
-
-
-
-
 
 
 -----
@@ -19695,15 +13225,9 @@ winmy 发表于 2010-3-25 23:12 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 15931#       发表于 2010-3-26 00:02
 
 
-
 <blockquote>没人讨论贝克曼居然就是副船长么？
 hispeed 发表于 2010-3-25 23:58 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 ……他本来就是大副吧……
-
-
-
-
-
 
 
 -----
@@ -19712,18 +13236,11 @@ hispeed 发表于 2010-3-25 23:58 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15932#       发表于 2010-3-26 00:02
 
 
-
 <blockquote>为什么LV6会有那么多伊娃的death wink都可以搞定的废柴
 SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
-
 果实能力者的话，被海楼石手铐扣着能吃上一记death wink而没事的恐怕不多……
-
-
-
-
-
 
 
 -----
@@ -19732,15 +13249,9 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15933#       发表于 2010-3-26 00:15
 
 
-
 <blockquote>對對, 衣服一定也是打海王類掉的!!! <img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
 南宮太平 发表于 2010-3-25 21:50 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 鉆牛角尖真沒什麽意思，草帽海賊團的女性上島第一件事情就是買衣服
-
-
-
-
-
 
 
 -----
@@ -19749,14 +13260,7 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15934#       发表于 2010-3-26 00:19
 
 
-
-
 九蛇的生活费都是女帝出去出卖色相赚回来的 实实在在做生意就火鸡一个人
-
-
-
-
-
 
 
 -----
@@ -19765,14 +13269,7 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15935#       发表于 2010-3-26 01:15
 
 
-
-
 哎，你们晚上通宵讨论就好了，我看得很起劲呀
-
-
-
-
-
 
 
 -----
@@ -19781,14 +13278,7 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15936#       发表于 2010-3-26 01:16
 
 
-
-
 哎哟卧槽。。这楼爬得太快了。。。。。我顶不住了。。。。
-
-
-
-
-
 
 
 -----
@@ -19797,13 +13287,7 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15937#       发表于 2010-3-26 01:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">LV6的下限是七武海级
-
-
-
-
-
 
 
 -----
@@ -19812,22 +13296,15 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15938#       发表于 2010-3-26 01:58
 
 
-
  本帖最后由 heavy_d 于 2010-3-26 02:05 编辑 
 
 额 漫画里LV6哪些人登场过？
-
-
-
-
-
 
 
 -----
 
 ####  玛丽·居里  
 ##### 15939#       发表于 2010-3-26 03:33
-
 
 
  本帖最后由 玛丽·居里 于 2010-3-26 03:43 编辑 
@@ -19839,25 +13316,13 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 之后老爹的两次攻击却都让赤犬实体化并流血了……
 
 
-
-
-
-
-
 -----
 
 ####  lillianjr  
 ##### 15940#       发表于 2010-3-26 03:42
 
 
-
-
 满眼的LV6害我以为跑错楼，炮妹威武啊不对沙姐威武<img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19866,21 +13331,13 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15941#       发表于 2010-3-26 04:04
 
 
-
-
 香克斯出来清场了<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">斩斩斩！
-
-
-
-
-
 
 
 -----
 
 ####  zerock  
 ##### 15942#       发表于 2010-3-26 04:26
-
 
 
  本帖最后由 zerock 于 2010-3-26 04:30 编辑 
@@ -19892,25 +13349,13 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 漫画里正式画出来能跟大将打持久战的海贼无非就是白胡子雷利马尔高这三个人，再加上个刚露面的红发。子龙打得过这四个人里的哪一个？
 
 
-
-
-
-
-
 -----
 
 ####  vaonon  
 ##### 15943#       发表于 2010-3-26 08:00
 
 
-
-
 提出一个问题，果实能力者死掉以后果实再现的条件是什么？形式又是什么？再变出来一个恶魔果实的几率有多大？还是随机的转生？克比好像没有前面铺垫说吃过果实，是否可以认定果实脱离人体以后满处飞，然后寻找到一个寄宿体入住？既然这样，黑胡子的那个果实能力再加上大斗篷罩住就可以解释了，他防止果实飞跑，同时使用吸吸把果实能力强行吸入体内。这样看有点道理吧？
-
-
-
-
-
 
 
 -----
@@ -19919,14 +13364,7 @@ SHADOW 发表于 2010-3-25 23:49 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15944#       发表于 2010-3-26 08:37
 
 
-
-
 LV6的下限是能被 人妖王死亡之眼秒的人吧
-
-
-
-
-
 
 
 -----
@@ -19935,22 +13373,15 @@ LV6的下限是能被 人妖王死亡之眼秒的人吧
 ##### 15945#       发表于 2010-3-26 08:57
 
 
-
  本帖最后由 AD 于 2010-3-26 08:58 编辑 
 
 我现在最想看的是红发和黑胡子的对话，红发的旗子上都带着黑胡子挠的三道疤，真正的刻骨铭心啊……
-
-
-
-
-
 
 
 -----
 
 ####  小可怜  
 ##### 15946#       发表于 2010-3-26 09:10
-
 
 
 <blockquote>提出一个问题，果实能力者死掉以后果实再现的条件是什么？形式又是什么？再变出来一个恶魔果实的几率有多大？还是随机的转生？克比好像没有前面铺垫说吃过果实，是否可以认定果实脱离人体以后满处飞，然后寻找到一个 ...
@@ -19965,26 +13396,15 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 恶魔果实不是果实的形状么...应该是结成一个一模一样的果实的吧....恶魔果实图鉴就证明了这点....
 
 
-
-
-
-
-
 -----
 
 ####  叉和圈的ELF  
 ##### 15947#       发表于 2010-3-26 09:13
 
 
-
 <blockquote>偷袭+大范围攻击弄得满脸是血很正常啊。无法证明战国实力。或者说克洛克达尔如果偷袭使用腐蚀轮回+沙漠宝刀的话，打伤黑胡子全员也是可能的。
 不败之狼 发表于 2010-3-25 22:15 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 至少可以证明瞬间输出的攻击力够高了
-
-
-
-
-
 
 
 -----
@@ -19993,14 +13413,7 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15948#       发表于 2010-3-26 10:30
 
 
-
-
 我觉得红发应该提出与海军停战，然后合力做掉黑胡子在撤退
-
-
-
-
-
 
 
 -----
@@ -20009,14 +13422,7 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15949#       发表于 2010-3-26 10:42
 
 
-
-
 我觉得红发的主要作用是解决路飞因艾斯之死而产生的心理问题……
-
-
-
-
-
 
 
 -----
@@ -20025,22 +13431,13 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15950#       发表于 2010-3-26 10:46
 
 
-
-
 海贼们平时都不生产，他们的经济来源是什么？抢抢抢？
-
-
-
-
-
 
 
 -----
 
 ####  安菲尔德  
 ##### 15951#       发表于 2010-3-26 11:04
-
-
 
 
 4皇，海军，七武海都相互牵制了
@@ -20050,17 +13447,10 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 象政府那样收税也不是不可能啊
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 15952#       发表于 2010-3-26 11:25
-
-
 
 
 海贼可以找到失落的财宝，打赢了其他海盗的船后也有大量的进账，捕获了海王类后也算不无小补……
@@ -20069,32 +13459,19 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 当然了，按照历史，最大的收益还是来自商船。
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 15953#       发表于 2010-3-26 11:40
 
 
-
-
 还有老堂那样做买卖的……
-
-
-
-
-
 
 
 -----
 
 ####  taehw  
 ##### 15954#       发表于 2010-3-26 11:45
-
 
 
 <blockquote>海贼可以找到失落的财宝，打赢了其他海盗的船后也有大量的进账，捕获了海王类后也算不无小补……
@@ -20114,17 +13491,10 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 不记得有没有别的了
 
 
-
-
-
-
-
 -----
 
 ####  Nuriko  
 ##### 15955#       发表于 2010-3-26 11:53
-
-
 
 
 没记错的话抢商船这个事在漫画最初阶段提到过，大概是遇到娜美的时候。
@@ -20133,25 +13503,13 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 海贼里肯定有很大一部分行径十分恶劣，这是毋庸置疑的。
 
 
-
-
-
-
-
 -----
 
 ####  yujiacyl  
 ##### 15956#       发表于 2010-3-26 11:53
 
 
-
-
 一天到晚在海上漂着，只会打架抢地盘，就跟B社会一样<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20160,27 +13518,19 @@ vaonon 发表于 2010-3-26 08:00 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15957#       发表于 2010-3-26 12:07
 
 
-
 <blockquote>海贼们平时都不生产，他们的经济来源是什么？抢抢抢？
 yujiacyl 发表于 2010-3-26 10:46 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 大部分是抢抢抢
 
 
-
 但白胡子团必然除外
-
-
-
-
-
 
 
 -----
 
 ####  点数不足  
 ##### 15958#       发表于 2010-3-26 12:09
-
 
 
  本帖最后由 点数不足 于 2010-3-26 12:12 编辑 
@@ -20204,30 +13554,18 @@ yujiacyl 发表于 2010-3-26 10:46 <[img src="http://bbs.saraba1st.com/2b/images
 7.当公务员，还能保一方平安（七武海，女帝）
 
 
-
-
-
-
-
 -----
 
 ####  叉和圈的ELF  
 ##### 15959#       发表于 2010-3-26 12:13
 
 
-
 <blockquote>大部分是抢抢抢
-
 
 
 但白胡子团必然除外
 kvkv 发表于 2010-3-26 12:07 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
  白胡子靠乔兹的鼻屎过活么？
-
-
-
-
-
 
 
 -----
@@ -20236,17 +13574,10 @@ kvkv 发表于 2010-3-26 12:07 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15960#       发表于 2010-3-26 12:19
 
 
-
 <blockquote> 白胡子靠乔兹的鼻屎过活么？
 叉和圈的ELF 发表于 2010-3-26 12:13 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 对,路飞团也是靠山治的眼屎过活的,是吧?
-
-
-
-
-
-
 
 
 别的懒得说了,就说两点:
@@ -20256,21 +13587,13 @@ kvkv 发表于 2010-3-26 12:07 <[img src="http://bbs.saraba1st.com/2b/images/com
 二,甚平敬佩白胡子
 
 
-
 如果你还认为白胡子团是靠打家劫舍过活的话,那我没话说
-
-
-
-
-
 
 
 -----
 
 ####  叉和圈的ELF  
 ##### 15961#       发表于 2010-3-26 12:31
-
-
 
 
 仁义不能说明什么吧
@@ -20281,16 +13604,10 @@ kvkv 发表于 2010-3-26 12:07 <[img src="http://bbs.saraba1st.com/2b/images/com
 但是不还是照样收保护费
 
 
-
-
-
-
-
 -----
 
 ####  luokobe  
 ##### 15962#       发表于 2010-3-26 12:31
-
 
 
  本帖最后由 luokobe 于 2010-3-26 12:35 编辑 
@@ -20304,25 +13621,13 @@ kvkv 发表于 2010-3-26 12:07 <[img src="http://bbs.saraba1st.com/2b/images/com
 这才是真正的三方牵制，所以谁也不敢动谁~<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  X6Sander  
 ##### 15963#       发表于 2010-3-26 12:34
 
 
-
-
 黑社会有义，仁可就不见得了
-
-
-
-
-
 
 
 -----
@@ -20331,15 +13636,8 @@ kvkv 发表于 2010-3-26 12:07 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15964#       发表于 2010-3-26 12:34
 
 
-
  本帖最后由 南宮太平 于 2010-3-26 12:36 编辑 
 <blockquote>对,路飞团也是靠山治的眼屎过活的,是吧?
-
-
-
-
-
-
 
 
 别的懒得说了,就说两点:
@@ -20347,7 +13645,6 @@ kvkv 发表于 2010-3-26 12:07 <[img src="http://bbs.saraba1st.com/2b/images/com
 一,海侠甚平以仁义扬名
 
 二,甚平敬佩白胡子
-
 
 
 如果你还认为白胡子团是靠打家劫舍过活的话,那我没话说 ...
@@ -20360,17 +13657,10 @@ kvkv 发表于 2010-3-26 12:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 當然, 你要腦補沒關係, 可是當羅傑也有劫船的情況, 你還是躲一角自己腦補, 不要跑出來大叫.....
 
 
-
-
-
-
-
 -----
 
 ####  kangbaiyin  
 ##### 15965#       发表于 2010-3-26 12:36
-
-
 
 
 白胡子大概是能除外
@@ -20379,16 +13669,10 @@ kvkv 发表于 2010-3-26 12:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 因为其他人可能会自动进贡
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15966#       发表于 2010-3-26 12:37
-
 
 
 <blockquote>仁义不能说明什么吧
@@ -20404,8 +13688,6 @@ kvkv 发表于 2010-3-26 12:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 古惑仔系列看多了?
 
 
-
-
 再说一点吧
 
 
@@ -20416,23 +13698,15 @@ kvkv 发表于 2010-3-26 12:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 你觉得那个地方有多少商船与港口能供给那么一大群的海贼来抢?
 
 
-
-
-
-
-
 -----
 
 ####  ScarletMoon  
 ##### 15967#       发表于 2010-3-26 12:41
 
 
-
 <blockquote>黑社会什么时候有“仁”了?
 
 古惑仔系列看多了?
-
-
 
 
 再说一点吧
@@ -20449,16 +13723,10 @@ kvkv 发表于 2010-3-26 12:37 <[img src="http://bbs.saraba1st.com/2b/images/com
 仁侠
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15968#       发表于 2010-3-26 12:46
-
 
 
 <blockquote>日本极道就崇尚2个字
@@ -20469,13 +13737,7 @@ ScarletMoon 发表于 2010-3-26 12:41 <[img src="http://bbs.saraba1st.com/2b/ima
 别拿别的\"仁\"来套在OP里面的\"仁\"上面,OK?
 
 
-
 至少在OP里面,WT对白胡子与甚平的描写,基本上全是正面的,这还不够么?
-
-
-
-
-
 
 
 -----
@@ -20484,14 +13746,7 @@ ScarletMoon 发表于 2010-3-26 12:41 <[img src="http://bbs.saraba1st.com/2b/ima
 ##### 15969#       发表于 2010-3-26 12:56
 
 
-
-
 特拉法尔加·罗眼眶含泪脸庞左倾45°对甚平说：对不起，我不是兽医“
-
-
-
-
-
 
 
 -----
@@ -20500,22 +13755,13 @@ ScarletMoon 发表于 2010-3-26 12:41 <[img src="http://bbs.saraba1st.com/2b/ima
 ##### 15970#       发表于 2010-3-26 13:20
 
 
-
-
 冷
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 15971#       发表于 2010-3-26 13:25
-
-
 
 
 包拯海瑞号称清官，该收的税还不是照样收。
@@ -20525,16 +13771,10 @@ ScarletMoon 发表于 2010-3-26 12:41 <[img src="http://bbs.saraba1st.com/2b/ima
 白胡子这种人顶多也就不去打劫无辜小民了，遇到富商至少也会抽成。
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 15972#       发表于 2010-3-26 13:34
-
 
 
 <blockquote>包拯海瑞号称清官，该收的税还不是照样收。
@@ -20550,17 +13790,11 @@ ScarletMoon 发表于 2010-3-26 12:41 <[img src="http://bbs.saraba1st.com/2b/ima
 用脑子好好想想吧,新世界这个遍地海贼的地方,哪来的富商?
 
 
-
 OP里面写得好明白,
 
 \"白胡子压制了无数暴 动的海贼\"
 
 这不是很明显的黑吃黑么....
-
-
-
-
-
 
 
 -----
@@ -20569,11 +13803,9 @@ OP里面写得好明白,
 ##### 15973#       发表于 2010-3-26 13:42
 
 
-
 <blockquote>打劫个毛~
 
 用脑子好好想想吧,新世界这个遍地海贼的地方,哪来的富商?
-
 
 
 OP里面写得好明白,
@@ -20587,32 +13819,19 @@ kvkv 发表于 2010-3-26 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 白胡子确实称的上是有情有义，但是你要说他的手是没涉及过普通民众完全干净的话恐怕太过了吧
 
 
-
-
-
-
-
 -----
 
 ####  fmchar  
 ##### 15974#       发表于 2010-3-26 13:54
 
 
-
-
 白胡子估计像教父一样有自己的黑道产业。。。
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 15975#       发表于 2010-3-26 13:59
-
 
 
  本帖最后由 DGIL 于 2010-3-26 14:01 编辑 
@@ -20631,25 +13850,13 @@ kvkv 发表于 2010-3-26 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 太强大的人不是被传为神就是被传为鬼的
 
 
-
-
-
-
-
 -----
 
 ####  ikusgca  
 ##### 15976#       发表于 2010-3-26 14:27
 
 
-
-
 有钻石果实一辈子也不用愁吃的<img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20658,14 +13865,7 @@ kvkv 发表于 2010-3-26 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15977#       发表于 2010-3-26 14:55
 
 
-
-
 山治就是因为工作的船被劫才遇到红脚老爹的，当然老爹既然不抢食物，那也更加不会随便杀人了。不过打劫也是货真价实的。
-
-
-
-
-
 
 
 -----
@@ -20674,16 +13874,10 @@ kvkv 发表于 2010-3-26 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 15978#       发表于 2010-3-26 15:05
 
 
-
 <blockquote>有钻石果实一辈子也不用愁吃的<img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">
 ikusgca 发表于 2010-3-26 14:27 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 钻石每天撸管子养活大家<img src="https://static.saraba1st.com/image/smiley/face/58.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20692,14 +13886,7 @@ ikusgca 发表于 2010-3-26 14:27 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15979#       发表于 2010-3-26 16:37
 
 
-
-
 路飞他们很多时候都是靠钓鱼解决问题的，白胡子一船也钓鱼吗。。
-
-
-
-
-
 
 
 -----
@@ -20708,23 +13895,15 @@ ikusgca 发表于 2010-3-26 14:27 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 15980#       发表于 2010-3-26 16:41
 
 
-
 <blockquote>路飞他们很多时候都是靠钓鱼解决问题的，白胡子一船也钓鱼吗。。
 水清君 发表于 2010-3-26 16:37 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 钓鱼会被塞抹布的！&lt;—脑子里第一个念头<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  loli猫saki  
 ##### 15981#       发表于 2010-3-26 16:44
-
-
 
 
 侠者，以武犯禁者也
@@ -20744,16 +13923,10 @@ PS:如果海贼里的设定和既有的认识不同，那就白说了
 老爹必须是精神处女么233
 
 
-
-
-
-
-
 -----
 
 ####  yujiacyl  
 ##### 15982#       发表于 2010-3-26 16:47
-
 
 
 <blockquote>路飞他们很多时候都是靠钓鱼解决问题的，白胡子一船也钓鱼吗。。
@@ -20761,16 +13934,10 @@ PS:如果海贼里的设定和既有的认识不同，那就白说了
 白胡子那群人明显是炸鱼<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 15983#       发表于 2010-3-26 16:49
-
 
 
  本帖最后由 loli猫saki 于 2010-3-26 16:51 编辑 
@@ -20782,16 +13949,10 @@ PS:如果海贼里的设定和既有的认识不同，那就白说了
 是不是也有人撕书邮寄给作者表示不能接受呢<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 15984#       发表于 2010-3-26 16:55
-
 
 
 <blockquote>如果有天WT也画出白胡子以前干过海贼的勾当
@@ -20803,17 +13964,10 @@ loli猫saki 发表于 2010-3-26 16:49 <[img src="http://bbs.saraba1st.com/2b/ima
 他们会说，白胡子这么干是有苦衷的是不得已的，WT一定还有伏笔呢……<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 15985#       发表于 2010-3-26 17:03
-
-
 
 
 这算讨论材米油盐酱醋茶么
@@ -20821,16 +13975,10 @@ loli猫saki 发表于 2010-3-26 16:49 <[img src="http://bbs.saraba1st.com/2b/ima
 为什么我想到了陆川那S B。。
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 15986#       发表于 2010-3-26 17:05
-
 
 
 <blockquote>我觉得吧，大将的终极实力大于等于除白胡子外的三皇的任一一皇，OP的世界里没有那三大将所为之害怕的单一生物存在
@@ -20842,16 +13990,10 @@ luokobe 发表于 2010-3-26 12:31 <[img src="http://bbs.saraba1st.com/2b/images/
 事实是赤犬带着帮手下就干掉白胡子等一群跟班了
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 15987#       发表于 2010-3-26 17:25
-
 
 
 <blockquote>先是船长：MONKEY·D·LUFFY
@@ -20872,7 +14014,6 @@ luokobe 发表于 2010-3-26 12:31 <[img src="http://bbs.saraba1st.com/2b/images/
 1.“我要成为世界第一的大剑豪，让自己的名字响彻天堂！”：650话之前，克洛克达尔加入草帽海贼团之前，鹰眼会与索隆第二次交手，是平手。鹰眼在战后会说一句类似“三刀流吗？曾经见过使用两把刀的剑豪啊，那是令人怀念的时代！”之后会回忆他坐上小船的原因——寻找曾经击败他的双刀流剑客，也就是索隆的父亲LESLIE·ZORO。当然这件事一开始没有点透，会在八百话之后遇见传教士艾利克斯后说明。)  
 
 
-
 2.三刀流：龙会指导索隆真正的发挥修罗的概念，将思维多重化（类似弹钢琴），可以将三把刀完全没有关联的使用（也算间接的提高了智商）。
 
 
@@ -20889,7 +14030,6 @@ luokobe 发表于 2010-3-26 12:31 <[img src="http://bbs.saraba1st.com/2b/images/
 
 
 3.橘子在后面会有意想不到的作用，下面说。
-
 
 
 狙击手：USOPP
@@ -20910,7 +14050,6 @@ luokobe 发表于 2010-3-26 12:31 <[img src="http://bbs.saraba1st.com/2b/images/
 
 
 2.SANJI的父母也是不得了的人物，但因为拥有果实图鉴被盯上，将图鉴送交ZF后制造全家遭灭口的假象避过其他海贼的追寻。蒂奇曾经在特殊的情况下看过果实图鉴，因为他曾是SANJI父母的旧部，之后将SANJI 父母拥有果实图鉴的事向世界ZF告密，却被CP9的前几代追杀，通过整容避过危险，最后投入白胡子海贼团寻找暗暗果实。
-
 
 
 3.仅有几个知晓“D”的意志真相的人，和龙、罗杰、马丁罗宾一样寻找传说中的ONEPIECE。
@@ -20938,7 +14077,6 @@ luokobe 发表于 2010-3-26 12:31 <[img src="http://bbs.saraba1st.com/2b/images/
 3.了解了古战争武器的真相，因为极度信任草帽团的成员，于是想道出武器的事，准备帮助路飞去协助龙，却被路飞拒绝。
 
 
-
 船工：CUTTER·FRANKY
 
 
@@ -20963,19 +14101,16 @@ luokobe 发表于 2010-3-26 12:31 <[img src="http://bbs.saraba1st.com/2b/images/
 3. 和五老星之中的剑客是旧交。
 
 
-
 裁缝：SIR·CROCODILE (第十人)
 
 
 1.布鲁克所在国家的公主，因为国家交不出ZF需要的东西，整个国家被“屠魔令”，是五老星之中的用剑的那位前大将亲自发动。之后变成男人希望得到毁灭一切的力量毁灭幸福的人。
 
 
-
 2. 和布鲁克一样，宫廷服饰的穿着，左手并没有残废，而是因为不想希望使用尺子量衣服的手被血玷污而带上钩子。回忆中曾有在宫廷里做衣服的场景。
 
 
 3. 遇到传教士艾利克斯后被“净化”还原成女人的样子
-
 
 
 科学家：MATTHEW    （第十一人）
@@ -20991,7 +14126,6 @@ luokobe 发表于 2010-3-26 12:31 <[img src="http://bbs.saraba1st.com/2b/images/
 
 
 4.果实能力者( D)
-
 
 
 传教士：ALEX（女第十二人）
@@ -21026,9 +14160,7 @@ luokobe 发表于 2010-3-26 12:31 <[img src="http://bbs.saraba1st.com/2b/images/
 超十一新星在新世界被灭掉 80%，只剩下特罗法尔加和路飞索隆。CP9将会在马丁罗宾的船上出现。
 
 
-
 卡普和龙的不和是因为龙觉得卡普没有继承D的意志，而三大将最后只剩下库赞，战国元帅在海军一战后失踪。库赞会投靠龙对抗世界ZF所谓的正义。斯摩卡会在1000话进入ONEPIECE之前成为第十四人，他其实超级崇拜罗杰但不希望其他的人玷污“海贼王”的称号而成为海军，一开始认为路飞只是孩子，一直追路飞到空岛，见到老画家去世后决定加入草帽海贼团。
-
 
 
 黑胡子的能力是吸收释放但不能吸收能力。红发的出场救出艾斯和白胡子，海军战力和复制熊还有红发导致黑胡子败走。
@@ -21053,32 +14185,19 @@ ONEPIECE的所在是海底。而四个海原来是一整个海，是海地的部
 【转】好吧，我LAG很久了
 
 
-
-
-
-
-
 -----
 
 ####  akira1917  
 ##### 15988#       发表于 2010-3-26 17:30
 
 
-
-
 楼上这是啥！！！！
-
-
-
-
-
 
 
 -----
 
 ####  kfc汉堡  
 ##### 15989#       发表于 2010-3-26 17:37
-
 
 
 <blockquote>楼上这是啥！！！！
@@ -21089,26 +14208,15 @@ akira1917 发表于 2010-3-26 17:30 <[img src="http://bbs.saraba1st.com/2b/image
 随着每次尾田有新一话出来修修补补之后再贴一遍的剧透。
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 15990#       发表于 2010-3-26 17:37
 
 
-
  本帖最后由 hagane 于 2010-3-26 18:03 编辑 
 
 不明出处的99无脑YY OP剧情
-
-
-
-
-
 
 
 -----
@@ -21117,14 +14225,7 @@ akira1917 发表于 2010-3-26 17:30 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15991#       发表于 2010-3-26 17:50
 
 
-
-
 太扭臂了吧
-
-
-
-
-
 
 
 -----
@@ -21133,14 +14234,7 @@ akira1917 发表于 2010-3-26 17:30 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15992#       发表于 2010-3-26 17:50
 
 
-
-
 擦……这火影模式非得套到OP上来的人蛋碎了几个了？
-
-
-
-
-
 
 
 -----
@@ -21149,15 +14243,9 @@ akira1917 发表于 2010-3-26 17:30 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 15993#       发表于 2010-3-26 18:26
 
 
-
 <blockquote>【转】好吧，我LAG很久了
 hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 这个有看点吗？有的话标注一下吧，懒的看全文了
-
-
-
-
-
 
 
 -----
@@ -21166,14 +14254,7 @@ hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15994#       发表于 2010-3-26 18:33
 
 
-
-
 233海贼打劫那不是天经地义么?
-
-
-
-
-
 
 
 -----
@@ -21182,14 +14263,7 @@ hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15995#       发表于 2010-3-26 18:42
 
 
-
-
 难道那么多页都是在讨论海贼打劫的问题？
-
-
-
-
-
 
 
 -----
@@ -21198,14 +14272,7 @@ hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15996#       发表于 2010-3-26 18:56
 
 
-
-
 我觉得会打劫，但是不可能以打劫为主要收入来源…毕竟不稳定，而且遇上强人也容易吃亏。
-
-
-
-
-
 
 
 -----
@@ -21214,14 +14281,7 @@ hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15997#       发表于 2010-3-26 18:57
 
 
-
-
 换个话题吧：这次登场的红发特写是不是有鸭子的味道？看到有别的论坛这么说。
-
-
-
-
-
 
 
 -----
@@ -21230,14 +14290,7 @@ hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15998#       发表于 2010-3-26 18:58
 
 
-
-
 海贼不打劫，海军怎么收保护费啊
-
-
-
-
-
 
 
 -----
@@ -21246,21 +14299,13 @@ hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 15999#       发表于 2010-3-26 19:35
 
 
-
-
 黑胡子和红发到底是怎么进入战场的?<img src="https://static.saraba1st.com/image/smiley/face/15.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 16000#       发表于 2010-3-26 19:36
-
 
 
  本帖最后由 不败之狼 于 2010-3-26 19:39 编辑 
@@ -21277,26 +14322,14 @@ hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 这有什么不能接受的！
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16001#       发表于 2010-3-26 19:38
 
 
-
  本帖最后由 不败之狼 于 2010-3-26 19:40 编辑 
 <blockquote>对,路飞团也是靠山治的眼屎过活的,是吧?
-
-
-
-
-
-
 
 
 别的懒得说了,就说两点:
@@ -21304,7 +14337,6 @@ hagane 发表于 2010-3-26 17:25 <[img src="http://bbs.saraba1st.com/2b/images/c
 一,海侠甚平以仁义扬名
 
 二,甚平敬佩白胡子
-
 
 
 如果你还认为白胡子团是靠打家劫舍过活的话,那我没话说 ...
@@ -21321,27 +14353,15 @@ kvkv 发表于 2010-3-26 12:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer"> 楼下GJ！还真有不少人是这么认为的。哈哈哈
 
 
-
-
-
-
-
 -----
 
 ####  qweqweqwe  
 ##### 16002#       发表于 2010-3-26 19:39
 
 
-
-
 海军收入来源：(像东海鱼人团那样)抢劫老百姓。
 
 白胡子团收入来源：帮助老百姓打退海军的抢劫后，得到一点儿老百姓自愿赠与的感谢费。
-
-
-
-
-
 
 
 -----
@@ -21350,21 +14370,13 @@ kvkv 发表于 2010-3-26 12:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16003#       发表于 2010-3-26 19:52
 
 
-
-
 海侠王 这样就好了
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16004#       发表于 2010-3-26 19:53
-
 
 
 <blockquote>宋江仁不仁义？（当然了，如果你是反宋江党的，可以替换为108中任何一人）
@@ -21385,16 +14397,10 @@ kvkv 发表于 2010-3-26 12:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 我佩服得五体投地
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16005#       发表于 2010-3-26 19:55
-
 
 
 <blockquote>兄弟义气和是否打劫老百姓有什么联系么？
@@ -21408,22 +14414,13 @@ kvkv 发表于 2010-3-26 12:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 对,白胡子振臂一呼\"鱼人岛以后归我管了\"时也是兄弟义气,对不?
 
 
-
-
-
 啊,终于被你发现了白胡子是鱼人的真相了.....
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16006#       发表于 2010-3-26 19:56
-
 
 
 <blockquote>如果有天WT也画出白胡子以前干过海贼的勾当
@@ -21440,16 +14437,10 @@ loli猫saki 发表于 2010-3-26 16:49 <[img src="http://bbs.saraba1st.com/2b/ima
 是不是也有人撕书邮寄给作者表示不能接受呢
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16007#       发表于 2010-3-26 19:56
-
 
 
  本帖最后由 不败之狼 于 2010-3-26 19:59 编辑 
@@ -21466,25 +14457,13 @@ loli猫saki 发表于 2010-3-26 16:49 <[img src="http://bbs.saraba1st.com/2b/ima
 或者你想说梁山是假仁义白胡子才是真仁义<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  风听雨  
 ##### 16008#       发表于 2010-3-26 20:01
 
 
-
-
 你们纠缠这个问题就太EP了
-
-
-
-
-
 
 
 -----
@@ -21493,9 +14472,7 @@ loli猫saki 发表于 2010-3-26 16:49 <[img src="http://bbs.saraba1st.com/2b/ima
 ##### 16009#       发表于 2010-3-26 20:08
 
 
-
 <blockquote>别拿别的\"仁\"来套在OP里面的\"仁\"上面,OK?
-
 
 
 至少在OP里面,WT对白胡子与甚平的描写,基本上全是正面的,这还不够么?
@@ -21510,16 +14487,10 @@ kvkv 发表于 2010-3-26 12:46 <[img src="http://bbs.saraba1st.com/2b/images/com
 什么时候变成我套用了？
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16010#       发表于 2010-3-26 20:09
-
 
 
  本帖最后由 kvkv 于 2010-3-26 20:10 编辑 
@@ -21543,9 +14514,6 @@ WT不是施耐庵,
 此仁义非彼仁义也
 
 
-
-
-
 最简单的做法
 
 你从OP里能找出哪怕是一丁点描写过\"白胡子打家劫舍\"的字眼来吗?如果没有,那很抱歉,
@@ -21553,16 +14521,10 @@ WT不是施耐庵,
 那就是说WT到目前为止,对白胡子的定位都是正面人物
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16011#       发表于 2010-3-26 20:13
-
 
 
  本帖最后由 不败之狼 于 2010-3-26 20:29 编辑 
@@ -21587,16 +14549,10 @@ kvkv 发表于 2010-3-26 20:09 <[img src="http://bbs.saraba1st.com/2b/images/com
 …………再吐槽一句吧，正面人物就不抢劫了吗？
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16012#       发表于 2010-3-26 20:30
-
 
 
 <blockquote>你从OP里能找出哪怕是一丁点体现过\"白胡子从来没有打家劫舍\"的字眼来吗?
@@ -21626,9 +14582,6 @@ kvkv 发表于 2010-3-26 20:09 <[img src="http://bbs.saraba1st.com/2b/images/com
 ......
 
 
-
-
-
 看漫画,我们只能\"作者画什么就是什么\",这是必然的吧?
 
 WT对白胡子的描写都是正面的吧?
@@ -21637,16 +14590,10 @@ WT对白胡子的描写都是正面的吧?
 唉,懒得说了,很巨大的无力感...
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16013#       发表于 2010-3-26 20:38
-
 
 
  本帖最后由 不败之狼 于 2010-3-26 20:44 编辑 
@@ -21655,8 +14602,6 @@ WT对白胡子的描写都是正面的吧?
 
 
 如果尾田强调过好海贼不打劫我一定这么认为而不管什么现实。
-
-
 
 
 但是我对尾田的理解就是有一种不羁的风格，首先选择了“海贼”这个职业就比选择忍者死神救世主这些传统职业就显得张狂，自由。
@@ -21671,15 +14616,10 @@ WT对白胡子的描写都是正面的吧?
 算了，理解不同。你无力我也很无力……
 
 
-
-
-
-
 再补充一下，我也认为白胡子不会亲自去打劫，就好像宋江不可能自己去抢。他有足够的手下，足够的领地。再说四皇白胡子的财报应该用也用不完，不需要去抢。
 
 
 而不是因为白胡子心地善良……
-
 
 
 最后，我的理解
@@ -21688,32 +14628,19 @@ WT对白胡子的描写都是正面的吧?
 之所以不叫航海王而是海贼王就说明了尾田的态度，海贼不是旅行家。海贼王不是航海王
 
 
-
-
-
-
-
 -----
 
 ####  guanliang  
 ##### 16014#       发表于 2010-3-26 20:40
 
 
-
-
 实现梦想满足生活有很多方法，但冠上海贼两个字，再怎么正面描写，现实中老百姓都认为这个职业都是黑社会而已，而每行每业都有仁义之说，只是针对标准不一样而已。当海贼没关系，但当海贼如果一直不去抢劫下，未免有点不太专业，哦不，不太敬业了。
-
-
-
-
-
 
 
 -----
 
 ####  hie  
 ##### 16015#       发表于 2010-3-26 21:00
-
 
 
  本帖最后由 hie 于 2010-3-26 21:04 编辑 
@@ -21727,14 +14654,8 @@ WT对白胡子的描写都是正面的吧?
 海军也好海贼也好都是奉行这自己心中的仁义
 
 
-
-
-
-
 邪恶.jpg
 (150 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -21743,60 +14664,26 @@ WT对白胡子的描写都是正面的吧?
 2010-3-26 21:00 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/1003262100cdb8cf470f0ad2df.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 78_220328_1.jpg
 (798 KB, 下载次数: 1)
 
 
-
-
 下载附件
 
 
 2010-3-26 21:00 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/10032621005e96998969600324.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16016#       发表于 2010-3-26 21:04
-
 
 
 <blockquote>实现梦想满足生活有很多方法，但冠上海贼两个字，再怎么正面描写，现实中老百姓都认为这个职业都是黑社会而已，而每行每业都有仁义之说，只是针对标准不一样而已。当海贼没关系，但当海贼如果一直不去抢劫下，未免有点不太专业，哦不，不太敬业了。
@@ -21808,14 +14695,8 @@ guanliang 发表于 2010-3-26 20:40 <[img src="http://bbs.saraba1st.com/2b/image
 (你楼上最后的那句的懒得引了,反正他那句的意思与你的意思差不多....)
 
 
-
 原来这漫画不叫海贼王,而叫旅行王..........
 <img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21824,13 +14705,10 @@ guanliang 发表于 2010-3-26 20:40 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16017#       发表于 2010-3-26 21:06
 
 
-
 <strong> [16085#](http://bbs.saraba1st.com/2b/redirect.php?goto=findpost&amp;pid=11480600&amp;ptid=98922) hie </strong>
 
 
-
 感谢你的这句话
-
 
 
 为什么要把一般海贼的标准套在白胡子身上呢.....
@@ -21838,19 +14716,12 @@ guanliang 发表于 2010-3-26 20:40 <[img src="http://bbs.saraba1st.com/2b/image
 各人有各人的海贼之路
 
 
-
 路飞以冒险为目的
 
 白胡子以家人为目的
 
 
-
 海贼就一定是要打劫的么?
-
-
-
-
-
 
 
 -----
@@ -21859,13 +14730,7 @@ guanliang 发表于 2010-3-26 20:40 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16018#       发表于 2010-3-26 21:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">草帽打过劫的好不?在空岛.
-
-
-
-
-
 
 
 -----
@@ -21874,21 +14739,13 @@ guanliang 发表于 2010-3-26 20:40 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16019#       发表于 2010-3-26 21:10
 
 
-
-
 从理论上说，海盗就是要打劫的，要不这样吧，路飞他们可以叫海侠（霞），呵呵。或者，就叫冒险王。
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 16020#       发表于 2010-3-26 21:11
-
 
 
  本帖最后由 不败之狼 于 2010-3-26 21:13 编辑 
@@ -21902,9 +14759,7 @@ guanliang 发表于 2010-3-26 20:40 <[img src="http://bbs.saraba1st.com/2b/image
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">为什么我反而觉得自己支持了你的观点
 
 
-
 好吧好吧我真的错了……
-
 
 
 忍不住再说一句，我从来没说白胡子一定要打劫，但是我认为他不是什么和蔼大叔。
@@ -21916,15 +14771,9 @@ guanliang 发表于 2010-3-26 20:40 <[img src="http://bbs.saraba1st.com/2b/image
 并且被海军追捕的海贼，包括路飞从没表现出不满。
 
 
-
 海贼!=邪恶，打劫也！=邪恶。
 
 海贼都是违法者。确定无疑。
-
-
-
-
-
 
 
 -----
@@ -21933,25 +14782,17 @@ guanliang 发表于 2010-3-26 20:40 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16021#       发表于 2010-3-26 21:12
 
 
-
 <blockquote>从理论上说，海盗就是要打劫的，要不这样吧，路飞他们可以叫海侠（霞），呵呵。或者，就叫冒险王。
 guanliang 发表于 2010-3-26 21:10 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
-
 热血少年漫讨论个JB的现实理论啊   <img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ejsbs  
 ##### 16022#       发表于 2010-3-26 21:12
-
 
 
 <blockquote>之所以不叫航海王而是海贼王就说明了尾田的态度</blockquote>
@@ -21965,17 +14806,10 @@ ONE PIECE（ 天下出版社）
 航海王（ 浙江人民美术出版社）
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16023#       发表于 2010-3-26 21:15
-
-
 
 
 你以为我是凭空想出“航海王”三个字的么。
@@ -21984,27 +14818,15 @@ ONE PIECE（ 天下出版社）
 本来就是吐槽这个名字的。那么书里一个海贼都没有，全是航海家？
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 16024#       发表于 2010-3-26 21:17
 
 
-
-
 这也能战
 
 你们战斗力破表了
-
-
-
-
-
 
 
 -----
@@ -22013,21 +14835,13 @@ ONE PIECE（ 天下出版社）
 ##### 16025#       发表于 2010-3-26 21:18
 
 
-
-
 本·贝克曼   是四皇 么？？？
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16026#       发表于 2010-3-26 21:18
-
 
 
 <blockquote>忍不住再说一句，我从来没说白胡子一定要打劫，但是我认为他不是什么和蔼大叔。
@@ -22044,17 +14858,11 @@ ONE PIECE（ 天下出版社）
 黑吃黑是白胡子最可能的作风
 
 
-
 自立旗帜为海贼,不服ZF管制,这就已经是犯罪了吧
 
 就OP里面来说
 
 而且以海军方面来说,白胡子的确是罪大恶极吧(\"这岛以后归我管了\",这不是摆明的犯罪么...)
-
-
-
-
-
 
 
 -----
@@ -22063,17 +14871,10 @@ ONE PIECE（ 天下出版社）
 ##### 16027#       发表于 2010-3-26 21:20
 
 
-
-
 如果白胡子只是单纯的黑吃黑不伤害任何平民不破坏社会良好秩序的话，那么他们应该叫“政府军”；如果如果白胡子只是单纯的黑吃黑不伤害任何平民不何破会社会良好秩序并且不加入现有政府的话，那么他们应该叫“革命军”；为什么白胡子偏偏叫“海贼”呢？
 
 当然，我只是按照现有社会的规律来总结的，不要过少年漫画嘛，当然可以无视任何规则<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 白胡子要是知道自己被当作正义的标兵恐怕他自己也会吐吧
-
-
-
-
-
 
 
 -----
@@ -22082,24 +14883,16 @@ ONE PIECE（ 天下出版社）
 ##### 16028#       发表于 2010-3-26 21:20
 
 
-
-
 其实都是我们蛋痛，因为WT一开始设定宝藏是海盗王留下的，OP真正意义上还是冒险漫画，海洋只是载体而已，路飞一般都是进行到一座岛一座城进行实地冒险，他的体质由于后天原因不能下水，可惜了。海贼王不能怀抱大海，哎，可能WT也没想到吧，看以后怎么圆吧。探讨吃饭生活也没意义，好玩而已。不过我站在海军这一边，绝对的正义，红狗太酷了，大事件中立场最为坚定，行动最为坚决的人，死了都够本了。
 
 
 PS：安安静静等东立57卷上市中
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16029#       发表于 2010-3-26 21:20
-
 
 
 <blockquote>正式译名 ONE PIECE 海贼王（ 大然文化）
@@ -22115,20 +14908,13 @@ ejsbs 发表于 2010-3-26 21:12 <[img src="http://bbs.saraba1st.com/2b/images/co
 航海王.....<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer"> 
 
 
-
 路飞不是竖旗当海贼了么,航海王个P啊....
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 16030#       发表于 2010-3-26 21:22
-
 
 
 <blockquote>我也不认为白胡子是和蔼大叔,
@@ -22142,16 +14928,10 @@ kvkv 发表于 2010-3-26 21:18 <[img src="http://bbs.saraba1st.com/2b/images/com
 意见一致，over。
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16031#       发表于 2010-3-26 21:24
-
 
 
 <blockquote>如果白胡子只是单纯的黑吃黑不伤害任何平民不破坏社会良好秩序的话，那么他们应该叫“政府军”；如果如果白胡子只是单纯的黑吃黑不伤害任何平民不何破会社会良好秩序并且不加入现有政府的话，那么他们应该叫“革命军”；为什么白胡子偏偏叫“海贼”呢？
@@ -22168,15 +14948,9 @@ pei1019 发表于 2010-3-26 21:20 <[img src="http://bbs.saraba1st.com/2b/images/
 于是不能当海军不能当革命军不能当普通平民的白胡子只能去当海贼了...
 
 
-
 白胡子什么时候被当成正义标兵了?
 
 他不黑不白,只是一个灰色人物罢了...
-
-
-
-
-
 
 
 -----
@@ -22185,14 +14959,7 @@ pei1019 发表于 2010-3-26 21:20 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16032#       发表于 2010-3-26 21:28
 
 
-
-
 水浒传标准依然适用。如果宋江占领几座城池封疆割据当老大之后就再也不用打劫了。
-
-
-
-
-
 
 
 -----
@@ -22201,11 +14968,9 @@ pei1019 发表于 2010-3-26 21:20 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16033#       发表于 2010-3-26 21:49
 
 
-
 <blockquote>可惜白胡子是黑吃黑,不伤害平民,破坏\"那个社会\"的秩序不加入\"那个政府\"但又不会主动去推翻政府的人
 
 于是不能当海军不能当革命军不能当普通平民的白胡子只能去当海贼了...
-
 
 
 白胡子什么时候被当成正义标兵了?
@@ -22215,26 +14980,15 @@ kvkv 发表于 2010-3-26 21:24 <[img src="http://bbs.saraba1st.com/2b/images/com
 …………………………………………………………不行了，白胡子不仅被当成精神处男还被归到灰一类，太赞了这个<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 16034#       发表于 2010-3-26 21:53
 
 
-
 <blockquote>本·贝克曼   是四皇 么？？？
 星欣我心 发表于 2010-3-26 21:18 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 红发的副船长
-
-
-
-
-
 
 
 -----
@@ -22243,16 +14997,10 @@ kvkv 发表于 2010-3-26 21:24 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16035#       发表于 2010-3-26 21:56
 
 
-
 <blockquote>本·贝克曼   是四皇 么？？？
 星欣我心 发表于 2010-3-26 21:18 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 那是红发的副船长啊。就副船长这位置红发团比较像罗杰。
-
-
-
-
-
 
 
 -----
@@ -22261,21 +15009,13 @@ kvkv 发表于 2010-3-26 21:24 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16036#       发表于 2010-3-26 21:58
 
 
-
-
 红发的副船长是最聪明的人~
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 16037#       发表于 2010-3-26 21:58
-
 
 
  本帖最后由 不败之狼 于 2010-3-26 22:04 编辑 
@@ -22291,25 +15031,13 @@ kvkv 发表于 2010-3-26 21:24 <[img src="http://bbs.saraba1st.com/2b/images/com
 楼上，副船长是最聪明的人的时候，很多人都没露脸吧。不过进前3问题不大.
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 16038#       发表于 2010-3-26 22:04
 
 
-
-
 结合第一话来看,副船长是射格双修.<img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22318,24 +15046,16 @@ kvkv 发表于 2010-3-26 21:24 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16039#       发表于 2010-3-26 22:11
 
 
-
-
 豪爽船长+精明船副是标配
 
 
 不过红发打酱油气好重，WT大事件里需要铺垫说明的东西太多了。。。。
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16040#       发表于 2010-3-26 22:16
-
 
 
 <blockquote>我也觉得很没有意义
@@ -22379,17 +15099,10 @@ kvkv 发表于 2010-3-26 20:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 白胡子自己动手就不能接受么233
 
 
-
-
-
-
-
 -----
 
 ####  白河亜紀  
 ##### 16041#       发表于 2010-3-26 22:19
-
-
 
 
 海盗不抢劫的话，还叫啥海盗阿？！
@@ -22397,17 +15110,10 @@ kvkv 发表于 2010-3-26 20:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 路飞你跟本就是只觉得挂海盗旗很帅是吧
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16042#       发表于 2010-3-26 22:21
-
-
 
 
 这个大事件虽然作者后来刻画的有些乱了
@@ -22425,16 +15131,10 @@ kvkv 发表于 2010-3-26 20:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 红发你把赤犬干掉啊啊啊
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16043#       发表于 2010-3-26 22:22
-
 
 
 <blockquote>…………………………………………………………不行了，白胡子不仅被当成精神处男还被归到灰一类，太赞了这个<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
@@ -22449,16 +15149,10 @@ pei1019 发表于 2010-3-26 21:49 <[img src="http://bbs.saraba1st.com/2b/images/
 这有问题么?<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16044#       发表于 2010-3-26 22:23
-
 
 
  本帖最后由 不败之狼 于 2010-3-26 22:24 编辑 
@@ -22484,17 +15178,10 @@ pei1019 发表于 2010-3-26 21:49 <[img src="http://bbs.saraba1st.com/2b/images/
 不是道德或者正义或者什么问题，是身份问题啊！
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16045#       发表于 2010-3-26 22:24
-
-
 
 
 嗯
@@ -22504,22 +15191,15 @@ pei1019 发表于 2010-3-26 21:49 <[img src="http://bbs.saraba1st.com/2b/images/
 其中有几个就是精神处男<img src="https://static.saraba1st.com/image/smiley/face/10.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16046#       发表于 2010-3-26 22:25
 
 
-
  本帖最后由 不败之狼 于 2010-3-26 22:29 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">还是吐槽我吗？理解不能……
-
 
 
 楼下，回忆一下人们有多恨ACE就知道人们有多恨海贼了。
@@ -22528,16 +15208,10 @@ pei1019 发表于 2010-3-26 21:49 <[img src="http://bbs.saraba1st.com/2b/images/
 不谈正义，即使在OP里，海贼也是被人民所讨厌的。
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16047#       发表于 2010-3-26 22:27
-
 
 
 <blockquote>海盗不抢劫的话，还叫啥海盗阿？！
@@ -22553,16 +15227,10 @@ pei1019 发表于 2010-3-26 21:49 <[img src="http://bbs.saraba1st.com/2b/images/
 OP里面,大多数平民对一般的海贼都没有特别的\"害怕\"感吧,
 
 
-
-
-
-
-
 -----
 
 ####  白河亜紀  
 ##### 16048#       发表于 2010-3-26 22:33
-
 
 
 <blockquote>不是的
@@ -22577,17 +15245,10 @@ op和现实的海贼是不一样，毕竟现实中的海盗不能靠捕捉海王
 但是你看前期包括中期，平民看到海贼还是很害怕的。毕竟海贼还是要靠抢夺的，而路飞的海贼行为则是对海贼的另一种定义。~~
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16049#       发表于 2010-3-26 22:34
-
-
 
 
 不只是害怕这么简单，路飞每次报上海贼两个字的时候遭到多少白眼。
@@ -22599,16 +15260,10 @@ ACE被成为恶魔的儿子……
 在大部分人眼里海贼还是恐怖的
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 16050#       发表于 2010-3-26 22:35
-
 
 
 <blockquote>吐槽到我了吗？咱俩意见差不多啊。
@@ -22622,20 +15277,13 @@ ACE被成为恶魔的儿子……
 維京人表示這樣作的才是老大 <img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16051#       发表于 2010-3-26 22:35
 
 
-
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">还是吐槽我吗？理解不能……
-
 
 
 楼下，回忆一下人们有多恨ACE就知道人们有多恨海贼了。
@@ -22666,25 +15314,13 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 啊哈哈
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 16052#       发表于 2010-3-26 22:37
 
 
-
-
 索马里人民也不会怕海贼吧
-
-
-
-
-
 
 
 -----
@@ -22693,17 +15329,10 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 ##### 16053#       发表于 2010-3-26 22:41
 
 
-
-
 转移话题
 <img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">现在回到571~574看见ACE得救，然后给白胡子磕头那里，虽然老爹便当预定了，可是形式还是一片大好。本以为会是老爹重创海军，证明世界最强，然后荣誉的死掉，路飞和ACE开始新的生活这样的剧情……
 
 现在，恍如隔世啊……
-
-
-
-
-
 
 
 -----
@@ -22712,17 +15341,10 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 ##### 16054#       发表于 2010-3-26 22:43
 
 
-
-
 从“不想要财宝？那你为什么要当海贼啊”是从谁口里说出的话，就大致知道了。
 
 
 没抢过的话怎么还能呆在船上。
-
-
-
-
-
 
 
 -----
@@ -22731,23 +15353,15 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 ##### 16055#       发表于 2010-3-26 22:43
 
 
-
-
 \"海贼白胡子比鬼还可怕\"
 
 550话小孩子唱的儿歌
-
-
-
-
-
 
 
 -----
 
 ####  loli猫saki  
 ##### 16056#       发表于 2010-3-26 22:43
-
 
 
 <blockquote>維京人表示這樣作的才是老大 <img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
@@ -22769,16 +15383,10 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 这不是要求他当精神处男么。。。
 
 
-
-
-
-
-
 -----
 
 ####  lillianjr  
 ##### 16057#       发表于 2010-3-26 22:45
-
 
 
  本帖最后由 lillianjr 于 2010-3-26 22:48 编辑 
@@ -22788,16 +15396,10 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 去看《血酬定律》啦！即使有属地外的打劫那也和属地内“仁义施政”根本不矛盾。为这个战P啊
 
 
-
-
-
-
-
 -----
 
 ####  kangbaiyin  
 ##### 16058#       发表于 2010-3-26 22:45
-
 
 
 <blockquote>转移话题
@@ -22818,32 +15420,19 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 目前最大的酱油党就是巨大战舰了
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 16059#       发表于 2010-3-26 22:46
 
 
-
-
 虽然我觉得白胡子早年也会去抢劫，但他可不是旅团那种会去杀婴儿的畜生。
-
-
-
-
-
 
 
 -----
 
 ####  Ленин  
 ##### 16060#       发表于 2010-3-26 22:49
-
 
 
  本帖最后由 Ленин 于 2010-3-26 22:50 编辑 
@@ -22854,17 +15443,10 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 [http://ja.wikipedia.org/wiki/%E4%BB%BB%E4%BE%A0](http://ja.wikipedia.org/wiki/%E4%BB%BB%E4%BE%A0)
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16061#       发表于 2010-3-26 22:55
-
-
 
 
 大事件最大的收获就是本来没啥存在感的赤犬（因为根本没出来过）一下子变得性格丰满了。。。
@@ -22880,17 +15462,10 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 送赤犬个便当吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16062#       发表于 2010-3-26 22:57
-
-
 
 
 这个仇得路飞亲自报
@@ -22899,16 +15474,10 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 所以赤犬肯定死不了，目前
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16063#       发表于 2010-3-26 23:06
-
 
 
 <blockquote>这个仇得路飞亲自报
@@ -22927,17 +15496,10 @@ OP虽然架空的，但是很大程度上仍然参考了现实
 赤犬：<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qilang  
 ##### 16064#       发表于 2010-3-26 23:13
-
-
 
 
 ONE PIECE从来没有叫过海贼王吧，日版漫画、动画都叫ONE PIECE，日版和海贼王这3个字没有一点关系，都是汉化版（不管香港还是台湾的正版翻译都算汉化）自己加上去的，日本人都是叫ONE PIECE
@@ -22946,25 +15508,13 @@ ONE PIECE从来没有叫过海贼王吧，日版漫画、动画都叫ONE PIECE�
 纠结海贼王还是航海王很无聊，和作者本来的意图没有一点关系，作者只想叫ONE PIECE
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 16065#       发表于 2010-3-26 23:14
 
 
-
-
 那路飞同学一天到晚喊的什么啊……
-
-
-
-
-
 
 
 -----
@@ -22973,15 +15523,9 @@ ONE PIECE从来没有叫过海贼王吧，日版漫画、动画都叫ONE PIECE�
 ##### 16066#       发表于 2010-3-26 23:22
 
 
-
 <blockquote>那路飞同学一天到晚喊的什么啊……
 loushifang 发表于 2010-3-26 23:14 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 俺はワンピース王になる男だ！
-
-
-
-
-
 
 
 -----
@@ -22990,14 +15534,7 @@ loushifang 发表于 2010-3-26 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16067#       发表于 2010-3-26 23:58
 
 
-
-
 看不懂
-
-
-
-
-
 
 
 -----
@@ -23006,21 +15543,13 @@ loushifang 发表于 2010-3-26 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16068#       发表于 2010-3-27 00:02
 
 
-
-
 印象里我在动画里听过很多次路飞喊\"海贼王\"这词
-
-
-
-
-
 
 
 -----
 
 ####  =D_BOY=Damned  
 ##### 16069#       发表于 2010-3-27 00:08
-
 
 
 <blockquote>你从OP里能找出哪怕是一丁点体现过\"白胡子从来没有打家劫舍\"的字眼来吗?
@@ -23043,17 +15572,10 @@ loushifang 发表于 2010-3-26 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 因为从来没有白胡子没有干过这种勾当的说明就要拉上被告席？把顺序搞清楚先
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16070#       发表于 2010-3-27 00:21
-
-
 
 
 漫画的东西终归还是要到漫画里面要说,扯上现实就实在太蛋疼了
@@ -23061,8 +15583,6 @@ loushifang 发表于 2010-3-26 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 \"现实中的海贼是一定会抢劫平民的,所以白胡子也一定要去抢劫平民\"
 
 类似的言论我懒得回了,拿现实去印证漫画,真JB蛋疼
-
-
 
 
 回不败之狼:
@@ -23084,16 +15604,10 @@ loushifang 发表于 2010-3-26 23:14 <[img src="http://bbs.saraba1st.com/2b/imag
 (当然,你要说白胡子的见习时代,那你当我没说过话吧)
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16071#       发表于 2010-3-27 00:23
-
 
 
 <blockquote>从“不想要财宝？那你为什么要当海贼啊”是从谁口里说出的话，就大致知道了。
@@ -23108,25 +15622,14 @@ FCS-31 发表于 2010-3-26 22:43 <[img src="http://bbs.saraba1st.com/2b/images/c
 正因为白胡子\"不想要财宝\",所以他不会为了财宝去打劫平民,这不是正常的推理么.....
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 16072#       发表于 2010-3-27 00:26
 
 
-
 <blockquote>\"不想要财宝\",所以他不会为了财宝去打劫平民</blockquote>
 这也太中二了.
-
-
-
-
-
 
 
 -----
@@ -23135,14 +15638,7 @@ FCS-31 发表于 2010-3-26 22:43 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16073#       发表于 2010-3-27 00:31
 
 
-
-
 喂喂，说白胡子不会打家劫舍（不一定是亲自干可以手下干）的都没看过 教父 么……
-
-
-
-
-
 
 
 -----
@@ -23151,23 +15647,15 @@ FCS-31 发表于 2010-3-26 22:43 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16074#       发表于 2010-3-27 00:33
 
 
-
-
 就是嘛.
 
 和第一代教父是挺像的.
-
-
-
-
-
 
 
 -----
 
 ####  HSSS  
 ##### 16075#       发表于 2010-3-27 00:54
-
 
 
  本帖最后由 HSSS 于 2010-3-27 00:56 编辑 
@@ -23180,33 +15668,19 @@ FCS-31 发表于 2010-3-26 22:43 <[img src="http://bbs.saraba1st.com/2b/images/c
 而且从他的梦想就看出来，白胡子感情细腻到躲被窝里边玩clannad边哭。。
 
 
-
-
-
-
-
 -----
 
 ####  frontier0025  
 ##### 16076#       发表于 2010-3-27 00:55
 
 
-
-
 教父起码是有正经买卖的
-
-
-
-
-
 
 
 -----
 
 ####  双鱼玫瑰  
 ##### 16077#       发表于 2010-3-27 00:56
-
-
 
 
 几十楼前，你们在战海军是否是正义的
@@ -23217,17 +15691,10 @@ FCS-31 发表于 2010-3-26 22:43 <[img src="http://bbs.saraba1st.com/2b/images/c
 轮回啊<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  frontier0025  
 ##### 16078#       发表于 2010-3-27 01:04
-
-
 
 
 我个人认为在OP的世界社会还是有比较黑暗的一面的...海贼完全可以以那些有大量不法所得的富商为主要目标过活,而且也比抢劫平民更有效率
@@ -23242,16 +15709,10 @@ FCS-31 发表于 2010-3-26 22:43 <[img src="http://bbs.saraba1st.com/2b/images/c
 大海贼时代的起因可以说明大部分海贼的动机还是秘宝与探险,武装的主要目的还是抵御海军
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16079#       发表于 2010-3-27 01:10
-
 
 
 <blockquote>这走向也太二了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
@@ -23265,25 +15726,13 @@ HSSS 发表于 2010-3-27 00:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 这种\"不当马加爵就只能当活雷锋,不当正义一方就只能当邪恶一方\"的傻X论调我都懒得回了...
 
 
-
-
-
-
-
 -----
 
 ####  frontier0025  
 ##### 16080#       发表于 2010-3-27 01:15
 
 
-
-
 我的认识是,世界政府为了掩盖一些事情不准进行和平的环球航海,想要这么做就只有武装反抗,这样的人就是所谓的\"海贼\"
-
-
-
-
-
 
 
 -----
@@ -23292,23 +15741,15 @@ HSSS 发表于 2010-3-27 00:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16081#       发表于 2010-3-27 01:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">喂喂，看不出我在kuso么，那么认真干吗。
 
 海贼本来就不是什么利国利民的好职业，非要把形象搞得那么高大全，白胡子看了估计都会流下羞愧的泪水。
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16082#       发表于 2010-3-27 01:21
-
-
 
 
 漫画的东西终归还是要到漫画里面要说,扯上现实就实在太蛋疼了
@@ -23318,8 +15759,6 @@ HSSS 发表于 2010-3-27 00:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 类似的言论我懒得回了,
 
 拿现实去印证漫画,拿别的作品去印证OP,真JB蛋疼
-
-
 
 
 为什么白胡子会给我\"不去抢平民百姓\"的感觉呢?
@@ -23337,16 +15776,10 @@ HSSS 发表于 2010-3-27 00:54 <[img src="http://bbs.saraba1st.com/2b/images/com
 你们要说白胡子打劫为生,至少也要从漫画里找出哪怕是一丁点的证据出来吧.....
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16083#       发表于 2010-3-27 01:24
-
 
 
  本帖最后由 kvkv 于 2010-3-27 01:27 编辑 
@@ -23361,9 +15794,7 @@ HSSS 发表于 2010-3-27 01:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 全世界人民泪流满面,原本我们都高大全了,老子又不姓高....
 
 
-
 真是无敌的标准
-
 
 
 ----------------
@@ -23377,16 +15808,10 @@ HSSS 发表于 2010-3-27 01:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 我从头到尾没说过一句\"白胡子是正义的\",到你口中就变成\"XXXXXXXXX\"了,这什么JB讨论?
 
 
-
-
-
-
-
 -----
 
 ####  HSSS  
 ##### 16084#       发表于 2010-3-27 01:29
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我们亲爱的主人公还偷了东西就溜号呢。
@@ -23400,17 +15825,10 @@ HSSS 发表于 2010-3-27 01:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 常理是海贼会打劫证明常理需要证据还是证明一件不是常理的东西更需要证据？
 
 
-
-
-
-
-
 -----
 
 ####  水清君  
 ##### 16085#       发表于 2010-3-27 02:52
-
-
 
 
 就算是OP世界里 海贼还真不是冒险队伍，真不是只是对付海军的。 
@@ -23428,17 +15846,10 @@ HSSS 发表于 2010-3-27 01:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 但无论白胡子以前做过还是没做过，都无法影响现在对他的评价。
 
 
-
-
-
-
-
 -----
 
 ####  Ленин  
 ##### 16086#       发表于 2010-3-27 02:57
-
-
 
 
 嘛  我其实某楼也贴了  日本的仁侠和中文里还真不是一回事
@@ -23449,16 +15860,7 @@ HSSS 发表于 2010-3-27 01:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 如果眼前看到不平 他们是想要为其出头的  当然这更加接近于一种面子和力量的证明。
 
 
-
-
-
-
 某些楼如果是用中国的仁来为白胡子辩解的  那当我没说过<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23467,10 +15869,7 @@ HSSS 发表于 2010-3-27 01:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16087#       发表于 2010-3-27 03:03
 
 
-
 <blockquote>期待路飞开挂却没用，黑胡子神兵天降震惊世界，白胡子死在黑胡子手上，红发晚了一程掩护路飞和白胡子余党撤走的剧情~ 
-
-
 
 
      话说这么编的话就不是尾田了。。。 ...
@@ -23479,17 +15878,10 @@ HSSS 发表于 2010-3-27 01:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 爬楼发现其实预言帝还是很多的啊……<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 16088#       发表于 2010-3-27 04:01
-
-
 
 
 你们都忘了主角队那群人背景干净的没几个
@@ -23505,16 +15897,10 @@ NAMI偷抢来的东西就有一亿
 骷髅跟着以前的船长一路到处杀人打砸抢烧 然后欢歌起舞
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16089#       发表于 2010-3-27 07:23
-
 
 
  本帖最后由 不败之狼 于 2010-3-27 07:30 编辑 
@@ -23549,13 +15935,7 @@ kvkv 发表于 2010-3-27 00:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 <strong><strong>如果白胡子真的是不打劫的人，甚平应该说“虽然他是海贼之王，但是人们对他的误解是错误的！”</strong></strong>
 
 
-
 电影里经常出现黑帮老大说，这片地方以后我罩着了！然后杂七杂八的小势力都不敢来了，按照你的逻辑，这么说可以推测黑帮老大的性格很好，从来不抢劫？？！！
-
-
-
-
-
 
 
 -----
@@ -23564,22 +15944,13 @@ kvkv 发表于 2010-3-27 00:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16090#       发表于 2010-3-27 07:32
 
 
-
-
 看你们纠结这个还不如看满屏的“好棒啊神作啊尾田我就估你不到啊”呢……
-
-
-
-
-
 
 
 -----
 
 ####  loli猫saki  
 ##### 16091#       发表于 2010-3-27 08:12
-
-
 
 
 天，我以为已经取得共识了呢
@@ -23605,17 +15976,10 @@ kvkv 发表于 2010-3-27 00:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 白胡子绝不是个至善的人，有些人不就是接受不了白胡子有恶的属性参杂在里面么？
 
 
-
-
-
-
-
 -----
 
 ####  vigilgt  
 ##### 16092#       发表于 2010-3-27 08:56
-
-
 
 
 論實力
@@ -23630,16 +15994,10 @@ kvkv 发表于 2010-3-27 00:21 <[img src="http://bbs.saraba1st.com/2b/images/com
 <img src="https://static.saraba1st.com/image/smiley/face/180.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16093#       发表于 2010-3-27 09:00
-
 
 
 <blockquote>論實力
@@ -23656,24 +16014,13 @@ vigilgt 发表于 2010-3-27 08:56 <[img src="http://bbs.saraba1st.com/2b/images/
 那进来应该讨论啥才算成熟？。。。
 
 
-
-
-
-
-
 -----
 
 ####  米兰猫  
 ##### 16094#       发表于 2010-3-27 09:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">打劫可耻么？不见得有人黑梁山108基佬
-
-
-
-
-
 
 
 -----
@@ -23682,14 +16029,7 @@ vigilgt 发表于 2010-3-27 08:56 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16095#       发表于 2010-3-27 09:13
 
 
-
-
 我看是没什么可讨论的才成天扯j8正义<img src="https://static.saraba1st.com/image/smiley/face/14.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23698,16 +16038,10 @@ vigilgt 发表于 2010-3-27 08:56 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16096#       发表于 2010-3-27 09:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">海贼肯定是声名狼藉的，你看路人对待路飞他们开始的态度就知道了
 
 
 说白胡子像恶鬼更多是对他力量的敬畏而不是对他行为的恐惧吧。四皇七武海海军都是在海上各自管理自己的地盘的，靠产业或者收保护费过活都是可能的
-
-
-
-
-
 
 
 -----
@@ -23716,21 +16050,13 @@ vigilgt 发表于 2010-3-27 08:56 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16097#       发表于 2010-3-27 11:11
 
 
-
-
 反正我是觉得抢是要抢的，但是不可能只靠抢过活啊，根本不稳定…
-
-
-
-
-
 
 
 -----
 
 ####  育儿版版主  
 ##### 16098#       发表于 2010-3-27 11:39
-
 
 
  本帖最后由 育儿版版主 于 2010-3-27 11:43 编辑 
@@ -23747,25 +16073,13 @@ vigilgt 发表于 2010-3-27 08:56 <[img src="http://bbs.saraba1st.com/2b/images/
 去过稳定的生活喽
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 16099#       发表于 2010-3-27 11:51
 
 
-
-
 你们还在战打不打劫啊……
-
-
-
-
-
 
 
 -----
@@ -23774,22 +16088,13 @@ vigilgt 发表于 2010-3-27 08:56 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16100#       发表于 2010-3-27 11:53
 
 
-
-
 我意思是说你根本不知道你能抢到多少东西，说不定你遇到一个强人，抢不到怎么办？海上牛X的人这么多，抢不到不说，还可能要吐出来呢。
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16101#       发表于 2010-3-27 12:09
-
-
 
 
 TO不败之狼：
@@ -23799,7 +16104,6 @@ TO不败之狼：
 为什么有\"天下人\"三个字?白胡子打劫全天下人了?
 
 很明显,这\"天下人\"是被ZF宣传\"白胡子是恶魔\"的吧.....
-
 
 
 TO那些说歌谣的
@@ -23820,8 +16124,6 @@ TO那些拿现实来论证漫画的
 日本黑道仁义你妹,山口组仁义你妹,与OP有一毛钱关系么?  
 
 
-
-
 TO那个LOLI猫的
 
 不是接受不了\"白胡子打劫维生\",
@@ -23831,10 +16133,6 @@ TO那个LOLI猫的
 退一步来说,就算万一有一天WT写道\"白胡子打劫维生\",我也没觉得什么大不了的
 
 漫画人物而已,作者怎样写就怎样看,有什么\"接受得了接受不了\"的,我又不是宅.....
-
-
-
-
 
 
 TO所有人
@@ -23847,21 +16145,13 @@ TO所有人
 老是扯谈什么\"现实海贼\",\"山口组\"什么的有个屁用啊....
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16102#       发表于 2010-3-27 12:10
 
 
-
-
 顺便再说一句
-
 
 
 我讨论的是\"白胡子团是不是打劫维生\"
@@ -23870,16 +16160,10 @@ TO所有人
 那些执着于\"白胡子曾经打过劫\"\"白胡子是精神处女\"之类的人可以退散了
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16103#       发表于 2010-3-27 12:11
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">白胡子现在当然不用主动去抢，但是就凭着所谓的“仁”一步步的做到四皇的位置我是不信的。
@@ -23889,17 +16173,10 @@ HSSS 发表于 2010-3-27 01:29 <[img src="http://bbs.saraba1st.com/2b/images/com
 那如果路飞凭着\"不打劫\"而一步步做到海贼王,那你是不是又不相信啊.....<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 16104#       发表于 2010-3-27 12:13
-
-
 
 
 海贼也有各自的目的好不好
@@ -23911,26 +16188,15 @@ HSSS 发表于 2010-3-27 01:29 <[img src="http://bbs.saraba1st.com/2b/images/com
 白胡子到底有没打劫过根本没人知道吧，不过至少不会学阿龙那样欺压弱者
 
 
-
-
-
-
-
 -----
 
 ####  Eris  
 ##### 16105#       发表于 2010-3-27 12:14
 
 
-
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">打劫可耻么？不见得有人黑梁山108基佬
 米兰猫 发表于 2010-3-27 09:11 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 你确定是108基佬？黑梁山的人多了去了
-
-
-
-
-
 
 
 -----
@@ -23939,21 +16205,13 @@ HSSS 发表于 2010-3-27 01:29 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16106#       发表于 2010-3-27 12:15
 
 
-
-
 讨论这种问题真是蛋疼的可以。。。
-
-
-
-
-
 
 
 -----
 
 ####  南宮太平  
 ##### 16107#       发表于 2010-3-27 12:27
-
 
 
 <blockquote>那如果路飞凭着\"不打劫\"而一步步做到海贼王,那你是不是又不相信啊.....<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
@@ -23963,32 +16221,19 @@ kvkv 发表于 2010-3-27 12:11 <[img src="http://bbs.saraba1st.com/2b/images/com
 我真的不相信 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  左慈  
 ##### 16108#       发表于 2010-3-27 12:29
 
 
-
-
 话说哪有新汉化看啊？
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16109#       发表于 2010-3-27 12:31
-
 
 
 <blockquote>如果魯夫手下有47船海賊, 他卻不偷不搶不收保護費便能養得起他們.........
@@ -23999,23 +16244,15 @@ kvkv 发表于 2010-3-27 12:11 <[img src="http://bbs.saraba1st.com/2b/images/com
 47船海贼只是附属关系吧.....
 
 
-
-
 如果你能相信新世界这么一个小地方的平民能供养得起那无数的大海贼,
 
 那为什么你不能相信白胡子不打劫就能养得起自己的一团人?
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 16110#       发表于 2010-3-27 12:35
-
 
 
  本帖最后由 不败之狼 于 2010-3-27 13:06 编辑 
@@ -24028,7 +16265,6 @@ kvkv 发表于 2010-3-27 12:11 <[img src="http://bbs.saraba1st.com/2b/images/com
 很明显,这\"天下人\"是被ZF宣传\"白胡子是恶魔\"的吧.....
 
 
-
 kvkv 发表于 2010-3-27 12:09 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 ===========================================================================
@@ -24039,7 +16275,6 @@ kvkv 发表于 2010-3-27 12:09 <[img src="http://bbs.saraba1st.com/2b/images/com
 
 
 白胡子在民众眼中是恶魔，无可质疑.
-
 
 
 我整理一下。
@@ -24056,11 +16291,8 @@ kvkv 发表于 2010-3-27 12:09 <[img src="http://bbs.saraba1st.com/2b/images/com
 现在需要你继续证明“异常”，否则就是正常。
 
 
-
-
 再看看这个，图就不贴了。
 [http://www.dm5.com/Comic/MH64/Comics-64040_a2887b12_page-12.htm](http://www.dm5.com/Comic/MH64/Comics-64040_a2887b12_page-12.htm)
-
 
 
 即使是路飞这样善良的海贼，也会认为：民众关我P事啊？哥哥，伙伴，梦想这些要更重要！
@@ -24085,25 +16317,13 @@ kvkv 发表于 2010-3-27 12:09 <[img src="http://bbs.saraba1st.com/2b/images/com
 你当然也可以反驳1：海贼抢劫不正常
 
 
-
-
-
-
-
 -----
 
 ####  arcturus  
 ##### 16111#       发表于 2010-3-27 12:47
 
 
-
-
 楼上关于希特勒的话题你不要代表我行不行啊？
-
-
-
-
-
 
 
 -----
@@ -24112,23 +16332,15 @@ kvkv 发表于 2010-3-27 12:09 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16112#       发表于 2010-3-27 12:51
 
 
-
 <blockquote>那如果路飞凭着\"不打劫\"而一步步做到海贼王,那你是不是又不相信啊.....<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 kvkv 发表于 2010-3-27 12:11 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 路飞已经打过劫了…虽然空岛的人民不这样想。
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16113#       发表于 2010-3-27 13:00
-
-
 
 
 TO不败之狼
@@ -24145,8 +16357,6 @@ TO不败之狼
 希特勒的例子没有作用啊......
 
 OP里的政府是反面角色,现实的...你再怎样说也不会是OP里面的那个吧....
-
-
 
 
 白胡子的异常?
@@ -24167,23 +16377,16 @@ OP里的政府是反面角色,现实的...你再怎样说也不会是OP里面的
 这意思不是差不多么,没有主动攻击ZF以\"救万民于水火之中\",但也看不出一丁点\"会攻击平民\"的意思啊....
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16114#       发表于 2010-3-27 13:02
 
 
-
  本帖最后由 不败之狼 于 2010-3-27 13:11 编辑 
 <blockquote>楼上关于希特勒的话题你不要代表我行不行啊？
 arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 看来真得普及语文4，6级考试了……你就这么希望被我代表么。
-
 
 
 好吧好吧好吧，愿意怎么想就怎么想吧，我也是现实中压力太大了才上网跟人侃侃的。没这么多时间瞎掰。
@@ -24200,15 +16403,9 @@ arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images
 我们的观点有重合的部分，那求同存异好了。成名后的白胡子几乎不可能去亲自抢劫老百姓，不论是什么理由年轻的白胡子也经历过打家劫舍的见习海贼的生活。
 
 
-
 顺便，不喜欢财宝的确是异常，可是也反而说明了白胡子身边的人有抢劫行为。而和他们一起的白胡子会洁身自好么。这个问题推到中间为止。你说的也有道理，但我不会改变观点。
 
 所以没有继续的意义。OVER。
-
-
-
-
-
 
 
 -----
@@ -24217,9 +16414,7 @@ arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16115#       发表于 2010-3-27 13:05
 
 
-
 <blockquote>看来真得普及语文4，6级考试了……
-
 
 
 好吧好吧好吧，愿意怎么想就怎么想吧，我也是现实中压力太大了才上网跟人侃侃的。没这么多时间瞎掰。
@@ -24231,16 +16426,10 @@ arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images
 那么你有白胡子打家劫舍的证据了？
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16116#       发表于 2010-3-27 13:06
-
 
 
  本帖最后由 不败之狼 于 2010-3-27 13:12 编辑 
@@ -24248,13 +16437,7 @@ arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images
 我不发表新观点了，看上面红字。
 
 
-
 改成人参公鸡了么……
-
-
-
-
-
 
 
 -----
@@ -24263,14 +16446,7 @@ arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16117#       发表于 2010-3-27 13:09
 
 
-
-
 噗嗤，原来意淫式的推理也可以作为证据，成熟一点行不？
-
-
-
-
-
 
 
 -----
@@ -24279,14 +16455,7 @@ arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16118#       发表于 2010-3-27 13:12
 
 
-
-
 拿着虚无缥缈的东西战个什么劲儿嘛<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24295,21 +16464,13 @@ arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16119#       发表于 2010-3-27 13:14
 
 
-
-
 真都是蛋痛的可以。你们的都是中二年纪学生么，非要让对方承认你说的对才过瘾？
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16120#       发表于 2010-3-27 13:15
-
 
 
 <blockquote>拿着虚无缥缈的东西战个什么劲儿嘛<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -24319,16 +16480,10 @@ arcturus 发表于 2010-3-27 12:47 <[img src="http://bbs.saraba1st.com/2b/images
 拿着虚无缥缈的东西看个什么劲儿嘛
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16121#       发表于 2010-3-27 13:15
-
 
 
 <blockquote>===========================================================================
@@ -24348,16 +16503,10 @@ KVKV你是认为白胡子是WT刻画的一个彻彻底底的正面人物
 以上两点有不对请指出
 
 
-
-
-
-
-
 -----
 
 ####  =D_BOY=Damned  
 ##### 16122#       发表于 2010-3-27 13:19
-
 
 
 <blockquote>真都是蛋痛的可以。你们的都是中二年纪学生么，非要让对方承认你说的对才过瘾？
@@ -24366,16 +16515,10 @@ KVKV你是认为白胡子是WT刻画的一个彻彻底底的正面人物
 爬了6年的楼一共也没在楼道里出来说过几句话，有人在楼道里非得拽着人碰瓷才跳出来的
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16123#       发表于 2010-3-27 13:22
-
 
 
  本帖最后由 kvkv 于 2010-3-27 13:23 编辑 
@@ -24416,16 +16559,10 @@ loli猫saki 发表于 2010-3-27 13:15 <[img src="http://bbs.saraba1st.com/2b/ima
 OK?
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16124#       发表于 2010-3-27 13:23
-
 
 
 <blockquote>真都是蛋痛的可以。你们的都是中二年纪学生么，非要让对方承认你说的对才过瘾？
@@ -24443,16 +16580,10 @@ OK?
 海贼之王就不是海贼了么？
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16125#       发表于 2010-3-27 13:29
-
 
 
  本帖最后由 loli猫saki 于 2010-3-27 13:30 编辑 
@@ -24476,16 +16607,10 @@ kvkv 发表于 2010-3-27 13:22 <[img src="http://bbs.saraba1st.com/2b/images/com
 请明确观点
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16126#       发表于 2010-3-27 13:30
-
 
 
 <blockquote>第一，上班没事干
@@ -24512,14 +16637,11 @@ loli猫saki 发表于 2010-3-27 13:23 <[img src="http://bbs.saraba1st.com/2b/ima
 无数因为OP而出海的人,还算不算海贼啊?
 
 
-
-
 在WT画的这部OP里,海贼的定义已经与现实的海贼的定义有所不同了吧....
 
 因为OP里面,出海的只有三类人,海军,商人,海贼,
 
 没有\"冒险家\"与\"旅行者\"这些职业啊......
-
 
 
 以目前来看,
@@ -24529,16 +16651,10 @@ loli猫saki 发表于 2010-3-27 13:23 <[img src="http://bbs.saraba1st.com/2b/ima
 这才是OP里面的政府对海贼的定义吧....
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16127#       发表于 2010-3-27 13:30
-
 
 
  本帖最后由 不败之狼 于 2010-3-27 13:38 编辑 
@@ -24560,16 +16676,10 @@ loli猫saki 发表于 2010-3-27 13:23 <[img src="http://bbs.saraba1st.com/2b/ima
 然后某楼，你到底多喜欢碰瓷啊<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  醉饮黄龙  
 ##### 16128#       发表于 2010-3-27 13:31
-
 
 
 <blockquote>拿着虚无缥缈的东西看个什么劲儿嘛
@@ -24582,16 +16692,10 @@ op的剧情是实打实的精彩，你觉得虚无缥缈是你感受不到。
 你们战的东西洋洋洒洒几十页，回过头作者随便一格或者一句话就毫无意义
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 16129#       发表于 2010-3-27 13:33
-
 
 
 <blockquote>莫非你认为在OP里,海贼的定义就是\"打家劫舍\"?
@@ -24610,16 +16714,10 @@ kvkv 发表于 2010-3-27 13:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 羅傑表示他是個會打劫的稱職海賊 <img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16130#       发表于 2010-3-27 13:34
-
 
 
 <blockquote>1、问题恰恰是咱们在讨论WT描写之外的事
@@ -24637,7 +16735,6 @@ loli猫saki 发表于 2010-3-27 13:29 <[img src="http://bbs.saraba1st.com/2b/ima
 但我们讨论的是\"白胡子是不是靠打劫平民维生\",而不是\"白胡子有没有打过劫\"  <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 
 
 
-
 2,打劫对于海贼的确是正常的事,但也不代表\"海贼认为打劫不是伤天害理\"啊...
 
    最简单的例子,
@@ -24647,16 +16744,10 @@ loli猫saki 发表于 2010-3-27 13:29 <[img src="http://bbs.saraba1st.com/2b/ima
    换句话说,我们会买D版,不代表我们认为D版是合法的啊....
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16131#       发表于 2010-3-27 13:34
-
 
 
 <blockquote>你这说的就不对了
@@ -24676,16 +16767,10 @@ KVKV的意思是说
 是这意思吧？
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16132#       发表于 2010-3-27 13:35
-
 
 
 <blockquote>你这说的就不对了
@@ -24702,16 +16787,10 @@ op的剧情是实打实的精彩，你觉得虚无缥缈是你感受不到。
 在讨论的过程中比较开心就行了
 
 
-
-
-
-
-
 -----
 
 ####  kvkv  
 ##### 16133#       发表于 2010-3-27 13:38
-
 
 
 <blockquote>KVKV的意思是说
@@ -24732,7 +16811,6 @@ loli猫saki 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/ima
 \"就算漫画与讨论都是虚无缥缈的,只要我们看得快乐,讨论得开心,那这两者就已经不是虚无缥缈的了\"
 
 
-
 不讨论了,睡觉去
 
 有空再聊吧
@@ -24740,16 +16818,10 @@ loli猫saki 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/ima
 好久没这样长时间的打字了...<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16134#       发表于 2010-3-27 13:39
-
 
 
  本帖最后由 不败之狼 于 2010-3-27 13:48 编辑 
@@ -24765,16 +16837,10 @@ loli猫saki 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/ima
 你看，下面这就开始搅了。乱入党们其实只是喜欢看搅吧！
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16135#       发表于 2010-3-27 13:46
-
 
 
  本帖最后由 loli猫saki 于 2010-3-27 13:54 编辑 
@@ -24782,7 +16848,6 @@ loli猫saki 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/ima
 
 
 但我们讨论的是\"白胡子是不是靠打劫平民维生\",而不是\"白胡子有没有打过劫\"  <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 
-
 
 
 2,打劫对于海贼的确是正常的事,但也不代表\"海贼认为打劫不是伤天害理\"啊...
@@ -24816,16 +16881,10 @@ kvkv 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 主角一行在传统意义上说是80%航海家20%海贼也不为过吧。
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16136#       发表于 2010-3-27 13:55
-
 
 
 <blockquote>争论的起因不想去找了，但是KVKV同学说白胡子打渔为生有点那个啥（囧），我们打劫派也有过激的言论。现在双方的观点都改变了一些，就到此为止吧。
@@ -24841,31 +16900,19 @@ kvkv 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 我还3小时下班啊，今天又没新番，上午把化物语看完了，下午断粮了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16137#       发表于 2010-3-27 14:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">周六还上班……
-
-
-
-
-
 
 
 -----
 
 ####  loli猫saki  
 ##### 16138#       发表于 2010-3-27 14:07
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">周六还上班……
@@ -24885,32 +16932,19 @@ kvkv 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 来公司上网老婆就不用唠叨了。。。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16139#       发表于 2010-3-27 14:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">你莫不是程序猿猫叔？
-
-
-
-
-
 
 
 -----
 
 ####  loli猫saki  
 ##### 16140#       发表于 2010-3-27 14:16
-
-
 
 
 不是不是，我只是个s1新人而已
@@ -24920,31 +16954,19 @@ kvkv 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 而且很累
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16141#       发表于 2010-3-27 14:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">不要说得这么直白好吗……
-
-
-
-
-
 
 
 -----
 
 ####  loli猫saki  
 ##### 16142#       发表于 2010-3-27 14:21
-
 
 
  本帖最后由 loli猫saki 于 2010-3-27 14:22 编辑 
@@ -24959,25 +16981,13 @@ kvkv 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 另外：拿专楼聊这个不太好吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  qweqweqwe  
 ##### 16143#       发表于 2010-3-28 08:23
 
 
-
-
 可比那个“声音一个个消失”，不会是罗杰的倾听万物之声吧？
-
-
-
-
-
 
 
 -----
@@ -24986,15 +16996,9 @@ kvkv 发表于 2010-3-27 13:34 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16144#       发表于 2010-3-28 09:16
 
 
-
 <blockquote>可比那个“声音一个个消失”，不会是罗杰的倾听万物之声吧？
 qweqweqwe 发表于 2010-3-28 08:23 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 首先想到的不该是心网吗？
-
-
-
-
-
 
 
 -----
@@ -25003,14 +17007,7 @@ qweqweqwe 发表于 2010-3-28 08:23 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16145#       发表于 2010-3-28 09:18
 
 
-
-
 目前看来很像是…
-
-
-
-
-
 
 
 -----
@@ -25019,16 +17016,9 @@ qweqweqwe 发表于 2010-3-28 08:23 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16146#       发表于 2010-3-28 09:35
 
 
-
-
 也可能是纯粹耳朵好
 
 都是在身边打着呢……
-
-
-
-
-
 
 
 -----
@@ -25037,15 +17027,9 @@ qweqweqwe 发表于 2010-3-28 08:23 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16147#       发表于 2010-3-28 09:57
 
 
-
 <blockquote>首先想到的不该是心网吗？
 lb0windy 发表于 2010-3-28 09:16 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 也有可能是NT
-
-
-
-
-
 
 
 -----
@@ -25054,14 +17038,7 @@ lb0windy 发表于 2010-3-28 09:16 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16148#       发表于 2010-3-28 10:19
 
 
-
-
 卡普是林有德么?<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25070,15 +17047,9 @@ lb0windy 发表于 2010-3-28 09:16 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16149#       发表于 2010-3-28 10:29
 
 
-
 <blockquote>也有可能是NT
 白河亜紀 发表于 2010-3-28 09:57 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 以后科比会开着涂成红色，有着巨大撞角的军舰，嘲笑自己年轻时犯下了放走路飞的错误？
-
-
-
-
-
 
 
 -----
@@ -25087,15 +17058,9 @@ lb0windy 发表于 2010-3-28 09:16 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16150#       发表于 2010-3-28 10:32
 
 
-
 <blockquote>以后科比会开着涂成红色，有着巨大撞角的军舰，嘲笑自己年轻时犯下了放走路飞的错误？
 查内姆 发表于 2010-3-28 10:29 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 已经有人染着红发来终结这场战争了~
-
-
-
-
-
 
 
 -----
@@ -25104,16 +17069,9 @@ lb0windy 发表于 2010-3-28 09:16 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16151#       发表于 2010-3-28 10:38
 
 
-
-
 心網不是艾尼路利用自己的果實能力通過電磁波實現的么……
 
 最近重看，發現空島之前的OP是冒險故事，之後的就變打鬥升級漫了……
-
-
-
-
-
 
 
 -----
@@ -25122,21 +17080,13 @@ lb0windy 发表于 2010-3-28 09:16 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16152#       发表于 2010-3-28 10:39
 
 
-
-
 \"心网\"是空岛人的特技吧.
-
-
-
-
-
 
 
 -----
 
 ####  TCTF  
 ##### 16153#       发表于 2010-3-28 10:51
-
 
 
 <blockquote>心網不是艾尼路利用自己的果實能力通過電磁波實現的么……
@@ -25146,16 +17096,10 @@ JC_AR 发表于 2010-3-28 10:38 <[img src="http://bbs.saraba1st.com/2b/images/co
 我觉得僵尸岛那块儿的冒险戏份很足啊……不过很多人都觉得不咋地，只有大熊来了后才好看……
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 16154#       发表于 2010-3-28 11:08
-
 
 
 <blockquote>\"心网\"是空岛人的特技吧.
@@ -25164,26 +17108,15 @@ rubicon 发表于 2010-3-28 10:39 <[img src="http://bbs.saraba1st.com/2b/images/
 现在有种认识是 心网是霸气的一种表现形式，具体参见汉库克的2妹
 
 
-
-
-
-
-
 -----
 
 ####  flll  
 ##### 16155#       发表于 2010-3-28 11:14
 
 
-
 <blockquote>现在有种认识是 心网是霸气的一种表现形式，具体参见汉库克的2妹
 yario 发表于 2010-3-28 11:08 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 我倒是觉得心网和霸气是同一等级的，它们分别是某种能力的一种表现形式
-
-
-
-
-
 
 
 -----
@@ -25192,15 +17125,9 @@ yario 发表于 2010-3-28 11:08 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16156#       发表于 2010-3-28 11:33
 
 
-
 <blockquote>现在有种认识是 心网是霸气的一种表现形式，具体参见汉库克的2妹
 yario 发表于 2010-3-28 11:08 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">如果是这样的话, 我终于可以理解路飞为什么能打到能变成雷的艾尼路了...天然呆艾尼路用霸气把自己给实体化了让路飞打.
-
-
-
-
-
 
 
 -----
@@ -25209,15 +17136,9 @@ yario 发表于 2010-3-28 11:08 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16157#       发表于 2010-3-28 12:39
 
 
-
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">如果是这样的话, 我终于可以理解路飞为什么能打到能变成雷的艾尼路了...天然呆艾尼路用霸气把自己给实体化了让路飞打.
 rubicon 发表于 2010-3-28 11:33 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 按你这么说自然系学了霸气后就都等着完蛋了？<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25226,22 +17147,15 @@ rubicon 发表于 2010-3-28 11:33 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16158#       发表于 2010-3-28 12:44
 
 
-
 <blockquote>按你这么说自然系学了霸气后就都等着完蛋了？<img src="https://static.saraba1st.com/image/smiley/face/187.gif" referrerpolicy="no-referrer">
 65535 发表于 2010-3-28 12:39 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 ...我就是对路飞为什么能打中雷这点弄不懂.你是橡胶最多电不死你,但是橡胶怎么能打到雷呢?
-
-
-
-
-
 
 
 -----
 
 ####  szrxs  
 ##### 16159#       发表于 2010-3-28 13:01
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">霸气不是让对手实体化么，怎么变自己实体化了
@@ -25253,16 +17167,10 @@ rubicon 发表于 2010-3-28 11:33 <[img src="http://bbs.saraba1st.com/2b/images/
 艾尼路能让自己变成雷还是只能放电啊，我忘了<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  洛伦兹变换  
 ##### 16160#       发表于 2010-3-28 13:12
-
 
 
 <blockquote>\"心网\"是空岛人的特技吧.
@@ -25270,16 +17178,10 @@ rubicon 发表于 2010-3-28 10:39 <[img src="http://bbs.saraba1st.com/2b/images/
 九蛇岛人也会
 
 
-
-
-
-
-
 -----
 
 ####  洛伦兹变换  
 ##### 16161#       发表于 2010-3-28 13:13
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">霸气不是让对手实体化么，怎么变自己实体化了
@@ -25293,27 +17195,15 @@ szrxs 发表于 2010-3-28 13:01 <[img src="http://bbs.saraba1st.com/2b/images/co
 霸气只是能打到对方吧
 
 
-
-
-
-
-
 -----
 
 ####  洛伦兹变换  
 ##### 16162#       发表于 2010-3-28 13:21
 
 
-
-
 没有甚平不懂霸气的证据 当然也没有懂的证据
 
 霸气只是能攻击到自然系 既不加攻击或闪避速度 也不加防御力  该被烧还是被烧  该被冰还是被冰  该被电还是被电
-
-
-
-
-
 
 
 -----
@@ -25322,17 +17212,10 @@ szrxs 发表于 2010-3-28 13:01 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16163#       发表于 2010-3-28 13:32
 
 
-
-
 霸气明显不止那点用处。。
 
 
 红发上白胡子船那一段明显体现出来了。。
-
-
-
-
-
 
 
 -----
@@ -25341,23 +17224,15 @@ szrxs 发表于 2010-3-28 13:01 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16164#       发表于 2010-3-28 13:33
 
 
-
-
 霸气加攻击的
 
 蛇岛上不是提到了么，弓箭的威力
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 16165#       发表于 2010-3-28 13:33
-
 
 
 <blockquote>...我就是对路飞为什么能打中雷这点弄不懂.你是橡胶最多电不死你,但是橡胶怎么能打到雷呢?
@@ -25367,25 +17242,13 @@ rubicon 发表于 2010-3-28 12:44 <[img src="http://bbs.saraba1st.com/2b/images/
 但要解释起来也很简单，这就是大自然相生相克的神奇啊。
 
 
-
-
-
-
-
 -----
 
 ####  65535  
 ##### 16166#       发表于 2010-3-28 13:33
 
 
-
-
 甚平应该是懂的，不然很难想象当年怎么才能和ACE打那么多天
-
-
-
-
-
 
 
 -----
@@ -25394,21 +17257,13 @@ rubicon 发表于 2010-3-28 12:44 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16167#       发表于 2010-3-28 13:44
 
 
-
-
 其实路飞打自然系都靠的是霸气-___,-只是没有点明
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 16168#       发表于 2010-3-28 13:46
-
 
 
  本帖最后由 DGIL 于 2010-3-28 13:48 编辑 
@@ -25420,16 +17275,10 @@ rubicon 发表于 2010-3-28 12:44 <[img src="http://bbs.saraba1st.com/2b/images/
 她一人肩负九蛇的荣光。。。
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 16169#       发表于 2010-3-28 13:50
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/152.gif" referrerpolicy="no-referrer">在一个霸气出产国，一个新手路飞就把女帝之外的都搅了
@@ -25441,32 +17290,19 @@ DGIL 发表于 2010-3-28 13:46 <[img src="http://bbs.saraba1st.com/2b/images/com
 ……不知道你怎么看的,九蛇一堆毫不受影响的强者。
 
 
-
-
-
-
-
 -----
 
 ####  edlose  
 ##### 16170#       发表于 2010-3-28 13:58
 
 
-
-
 为什么你们都在纠结甚平的霸气...难道他不是和没吃果实的ACE打平么？
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 16171#       发表于 2010-3-28 14:00
-
 
 
 <blockquote>为什么你们都在纠结甚平的霸气...难道他不是和没吃果实的ACE打平么？
@@ -25476,16 +17312,10 @@ edlose 发表于 2010-3-28 13:58 <[img src="http://bbs.saraba1st.com/2b/images/c
 ACE闯出名号的时候就吃了果实了。
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 16172#       发表于 2010-3-28 14:02
-
 
 
  本帖最后由 DGIL 于 2010-3-28 14:17 编辑 
@@ -25502,33 +17332,19 @@ ACE闯出名号的时候就吃了果实了。
 不知道想说什么了。。。<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer"> 去午休睡觉了
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 16173#       发表于 2010-3-28 14:25
 
 
-
-
 我以前也说过了，九蛇岛可怕的是量产足以伤害果实能力者的杂兵，一阵附有霸气的齐射足以让任何高手吃瘪。
-
-
-
-
-
 
 
 -----
 
 ####  cwlo  
 ##### 16174#       发表于 2010-3-28 14:30
-
-
 
 
 最近重看了下空岛篇
@@ -25538,16 +17354,10 @@ ACE闯出名号的时候就吃了果实了。
 电就不流通了所以打到了<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  查内姆  
 ##### 16175#       发表于 2010-3-28 14:34
-
 
 
 <blockquote>最近重看了下空岛篇
@@ -25559,17 +17369,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 其实那木头棍子绑上石头做的武器，就能干翻艾尼路了吧
 
 
-
-
-
-
-
 -----
 
 ####  元素  
 ##### 16176#       发表于 2010-3-28 14:50
-
-
 
 
 昆仑上看到的:
@@ -25588,20 +17391,13 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 然后是凯多 很凶悍的外表 跟紫龙的样子有点类似
 
 
-
 个人感觉可信度不高
-
-
-
-
-
 
 
 -----
 
 ####  羲和  
 ##### 16177#       发表于 2010-3-28 14:51
-
 
 
 <blockquote>其实那木头棍子绑上石头做的武器，就能干翻艾尼路了吧
@@ -25611,16 +17407,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 这楼的中二多得实在让人惨不忍睹了都。。。
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 16178#       发表于 2010-3-28 14:52
-
 
 
 <blockquote>“核弹头——巴斯勒”“战神——迪瓦约”\"金色轰炸机——德罗巴”“外星人——罗比尼奥”“大鲨鱼——布莱恩特”“花蝴蝶——坎波斯”“黑豹——尤西比奥”“水母——阴姬”</blockquote>
@@ -25629,16 +17419,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 副船长是隔壁BL EACH里穿越过来的吧...
 
 
-
-
-
-
-
 -----
 
 ####  Tantalos  
 ##### 16179#       发表于 2010-3-28 15:03
-
 
 
 <blockquote>昆仑上看到的:
@@ -25657,24 +17441,13 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 水母——阴姬..楚留香人呢。
 
 
-
-
-
-
-
 -----
 
 ####  sandrock  
 ##### 16180#       发表于 2010-3-28 15:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">都是体育明星啊 编的像一点啊
-
-
-
-
-
 
 
 -----
@@ -25683,14 +17456,7 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16181#       发表于 2010-3-28 15:11
 
 
-
-
 什么穿越都有啊 平子也来串场啊
-
-
-
-
-
 
 
 -----
@@ -25699,21 +17465,13 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16182#       发表于 2010-3-28 15:14
 
 
-
-
 终于不讨论海贼打劫不打劫了。
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 16183#       发表于 2010-3-28 15:26
-
 
 
 <blockquote>其实那木头棍子绑上石头做的武器，就能干翻艾尼路了吧
@@ -25723,16 +17481,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 只是艾尼路自己给自己做心脏起搏又复活了，可这条路是可行的。
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 16184#       发表于 2010-3-28 15:49
-
 
 
 <blockquote>昆仑上看到的:
@@ -25751,16 +17503,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 隔壁平子来串门了么
 
 
-
-
-
-
-
 -----
 
 ####  suregoose  
 ##### 16185#       发表于 2010-3-28 16:05
-
 
 
 <blockquote>不就是战翻了吗？
@@ -25772,16 +17518,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 顺，之后卓罗想去捡那块海楼石的时候被神艹了
 
 
-
-
-
-
-
 -----
 
 ####  查内姆  
 ##### 16186#       发表于 2010-3-28 16:07
-
 
 
  本帖最后由 查内姆 于 2010-3-28 16:09 编辑 
@@ -25790,16 +17530,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 一点幽默感都没有
 
 
-
-
-
-
-
 -----
 
 ####  查内姆  
 ##### 16187#       发表于 2010-3-28 16:08
-
 
 
 <blockquote>昆仑上看到的:
@@ -25818,16 +17552,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 然后是凯多 很凶悍的外表 跟紫龙的样子有点类似
 
 
-
 个人感觉可信度不高 
 
 元素 发表于 2010-3-28 14:50 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 足球明星占了大多数
-
-
-
-
-
 
 
 -----
@@ -25836,16 +17564,10 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16188#       发表于 2010-3-28 16:09
 
 
-
 <blockquote>一点幽默感都没有的2b
 查内姆 发表于 2010-3-28 16:07 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 多么中二式的找场面。。。啊 对不起中二大爷 我是没有幽默感的2b
-
-
-
-
-
 
 
 -----
@@ -25854,14 +17576,7 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16189#       发表于 2010-3-28 16:10
 
 
-
-
 哇哇哇 还编辑 我都无话可说了。。。
-
-
-
-
-
 
 
 -----
@@ -25870,23 +17585,15 @@ cwlo 发表于 2010-3-28 14:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16190#       发表于 2010-3-28 16:12
 
 
-
-
 甚平被打前打了红狗一拳,肯定带霸气的.
 
 高手出招基本都FM着霸气打过去的了.
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 16191#       发表于 2010-3-28 16:22
-
 
 
 <blockquote>又一个没看仔细的，那是那家伙从某途径蓝海得到海楼石，用海楼石压着神使用排击才得以伤害神
@@ -25898,16 +17605,10 @@ suregoose 发表于 2010-3-28 16:05 <[img src="http://bbs.saraba1st.com/2b/image
 还真以为别人没看仔细了。
 
 
-
-
-
-
-
 -----
 
 ####  查内姆  
 ##### 16192#       发表于 2010-3-28 16:25
-
 
 
 <blockquote>多么中二式的找场面。。。啊 对不起中二大爷 我是没有幽默感的2b
@@ -25915,16 +17616,10 @@ suregoose 发表于 2010-3-28 16:05 <[img src="http://bbs.saraba1st.com/2b/image
 我怎么觉得你这话说得这么的中二，小中二，你妈妈喊你回家吃饭，别出来丢人现眼了
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 16193#       发表于 2010-3-28 16:29
-
 
 
 <blockquote>我怎么觉得你这话说得这么的中二，小中二，你妈妈喊你回家吃饭，别出来丢人现眼了
@@ -25935,31 +17630,19 @@ suregoose 发表于 2010-3-28 16:05 <[img src="http://bbs.saraba1st.com/2b/image
 我终于理解嘲讽怎么在这楼里跟人开战的了
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 16194#       发表于 2010-3-28 16:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/167.gif" referrerpolicy="no-referrer">有些设定看红黄蓝本或者SBS就可以补完了
-
-
-
-
-
 
 
 -----
 
 ####  查内姆  
 ##### 16195#       发表于 2010-3-28 16:38
-
 
 
 <blockquote>卧槽这冷笑话。。。
@@ -25970,16 +17653,10 @@ suregoose 发表于 2010-3-28 16:05 <[img src="http://bbs.saraba1st.com/2b/image
 因为有你这样的2b？
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 16196#       发表于 2010-3-28 16:58
-
 
 
 <blockquote>因为有你这样的2b？
@@ -25988,32 +17665,19 @@ suregoose 发表于 2010-3-28 16:05 <[img src="http://bbs.saraba1st.com/2b/image
 我觉得您说那位一点儿都不二逼。
 
 
-
-
-
-
-
 -----
 
 ####  yellowboat  
 ##### 16197#       发表于 2010-3-28 17:38
 
 
-
-
 感觉越来越乱了，前面一直都不知道在哪的克比突然冒出来喊一句话，然后被突然冒出来的红发给救了。所有人的行动几乎都可以用“突然冒出来然后消失再冒出来”来形容...完全不知道之前都在干嘛。
-
-
-
-
-
 
 
 -----
 
 ####  ★草泥马★  
 ##### 16198#       发表于 2010-3-28 17:53
-
 
 
 <blockquote>感觉越来越乱了，前面一直都不知道在哪的克比突然冒出来喊一句话，然后被突然冒出来的红发给救了。所有人的行动几乎都可以用“突然冒出来然后消失再冒出来”来形容...完全不知道之前都在干嘛。 ...
@@ -26023,25 +17687,13 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 然也
 
 
-
-
-
-
-
 -----
 
 ####  TCTF  
 ##### 16199#       发表于 2010-3-28 18:01
 
 
-
-
 说起来作为隐藏主角的科比……是不是也能习得霸气
-
-
-
-
-
 
 
 -----
@@ -26050,15 +17702,9 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16200#       发表于 2010-3-28 18:36
 
 
-
 <blockquote>感觉越来越乱了，前面一直都不知道在哪的克比突然冒出来喊一句话，然后被突然冒出来的红发给救了。所有人的行动几乎都可以用“突然冒出来然后消失再冒出来”来形容...完全不知道之前都在干嘛。 ...
 yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 这就是我一直认为尾田这小子应该写小说 不该画漫画的原因，漫画的篇幅啊。。。。太限制他了。
-
-
-
-
-
 
 
 -----
@@ -26067,23 +17713,15 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16201#       发表于 2010-3-28 18:44
 
 
-
-
 我记得橡胶打雷有明显穿过去的镜头啊
 
 最后难道不是靠那一大坨黄金的导电性才日翻艾尼路的吗
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 16202#       发表于 2010-3-28 19:30
-
 
 
 <blockquote>我记得橡胶打雷有明显穿过去的镜头啊
@@ -26095,25 +17733,13 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 同理，砂鳄也能避过带水的攻击，当时才轻松日翻罗宾。
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 16203#       发表于 2010-3-28 20:21
 
 
-
-
 哎哟，大爷们你们要吵架能不能去外野开个楼啊…争论OP相关的也就算了，单纯的互喷另外开楼好吗？
-
-
-
-
-
 
 
 -----
@@ -26122,22 +17748,15 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16204#       发表于 2010-3-28 20:23
 
 
-
 <blockquote>感觉越来越乱了，前面一直都不知道在哪的克比突然冒出来喊一句话，然后被突然冒出来的红发给救了。所有人的行动几乎都可以用“突然冒出来然后消失再冒出来”来形容...完全不知道之前都在干嘛。 ...
 yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 克比学的那两式是什么了？快速移动可以的吧？红发闪出来这个也不用深究吧。
-
-
-
-
-
 
 
 -----
 
 ####  狮子歌歌  
 ##### 16205#       发表于 2010-3-28 21:15
-
 
 
 <blockquote>这是艾尼路在被打到前就先把自己化作了雷电。
@@ -26153,16 +17772,10 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 路飞能在最后一招日翻艾尼路是靠着手上巨大黄金的导电性才赢的 破坏雷迎也是靠着黄金的导电性
 
 
-
-
-
-
-
 -----
 
 ####  hie  
 ##### 16206#       发表于 2010-3-28 21:31
-
 
 
  本帖最后由 hie 于 2010-3-28 21:33 编辑 
@@ -26172,32 +17785,19 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 居然也不交代一下雷利在附近偷看
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 16207#       发表于 2010-3-28 21:37
 
 
-
-
 那么大动静不回来看看可能吗？
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 16208#       发表于 2010-3-28 21:50
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">霸气不是让对手实体化么，怎么变自己实体化了
@@ -26211,32 +17811,19 @@ szrxs 发表于 2010-3-28 13:01 <[img src="http://bbs.saraba1st.com/2b/images/co
 霸气
 
 
-
-
-
-
-
 -----
 
 ####  迪奧  
 ##### 16209#       发表于 2010-3-28 22:48
 
 
-
-
 空想科学么 红狗发动能力以后衣服早就没了吧 哀思也是 两个基裸战才对啊
-
-
-
-
-
 
 
 -----
 
 ####  cwlo  
 ##### 16210#       发表于 2010-3-29 04:19
-
 
 
 <blockquote>在被打到前不化作雷电就打不到了？肉体挨上还不是一样
@@ -26249,16 +17836,10 @@ szrxs 发表于 2010-3-28 13:01 <[img src="http://bbs.saraba1st.com/2b/images/co
 但是路飞在没金在手的时候也打呕血了艾尼路啊
 
 
-
-
-
-
-
 -----
 
 ####  kidthief  
 ##### 16211#       发表于 2010-3-29 04:45
-
 
 
 <blockquote>但是路飞在没金在手的时候也打呕血了艾尼路啊
@@ -26266,16 +17847,10 @@ cwlo 发表于 2010-3-29 04:19 <[img src="http://bbs.saraba1st.com/2b/images/com
 我觉得吧，就别太抠细节了，因为都是BUG
 
 
-
-
-
-
-
 -----
 
 ####  浪子龙飞z  
 ##### 16212#       发表于 2010-3-29 05:27
-
 
 
 <blockquote>感觉越来越乱了，前面一直都不知道在哪的克比突然冒出来喊一句话，然后被突然冒出来的红发给救了。所有人的行动几乎都可以用“突然冒出来然后消失再冒出来”来形容...完全不知道之前都在干嘛。 ...
@@ -26285,16 +17860,10 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 然后醒了之后看见一番惨景，这算突然出现消失？
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 16213#       发表于 2010-3-29 05:38
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">达丝琪没挡住路飞之后 就一直不知道在哪打酱油
@@ -26303,25 +17872,13 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 这次出来了还有人把她当罗宾 悲剧啊
 
 
-
-
-
-
-
 -----
 
 ####  拜拜  
 ##### 16214#       发表于 2010-3-29 08:03
 
 
-
-
 红发太自信了吧，估计黑胡子会让他吃瘪
-
-
-
-
-
 
 
 -----
@@ -26330,21 +17887,13 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16215#       发表于 2010-3-29 08:10
 
 
-
-
 科比是不会学会学会心网了啊，声音消失那段跟空岛那个有点像耶
-
-
-
-
-
 
 
 -----
 
 ####  点数不足  
 ##### 16216#       发表于 2010-3-29 12:58
-
 
 
 <img src="http://pic2.52pk.com/files/allimg/080809/1243300.jpg" referrerpolicy="no-referrer">
@@ -26357,27 +17906,15 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 绝对的纯洁才让人讨厌
 
 
-
-
-
-
-
 -----
 
 ####  hhxc  
 ##### 16217#       发表于 2010-3-29 13:15
 
 
-
-
 哦哦哦哦 楼上的彩图好燃 
 
 艾斯<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26386,15 +17923,9 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16218#       发表于 2010-3-29 15:56
 
 
-
 动画里黑胡子一伙到推进城了，希留也被放出来了。
 
 最重要的。。。下集人妖王伊万科夫女版要出现了。（大雾）
-
-
-
-
-
 
 
 -----
@@ -26403,14 +17934,7 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16219#       发表于 2010-3-29 16:12
 
 
-
-
 麦泽伦怎么样了 也不交代下
-
-
-
-
-
 
 
 -----
@@ -26419,21 +17943,13 @@ yellowboat 发表于 2010-3-28 17:38 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16220#       发表于 2010-3-29 17:00
 
 
-
-
 大事件完了之后会交待的吧…
-
-
-
-
-
 
 
 -----
 
 ####  hispeed  
 ##### 16221#       发表于 2010-3-29 17:02
-
 
 
 <blockquote>动画里黑胡子一伙到推进城了，希留也被放出来了。
@@ -26445,16 +17961,10 @@ BartholemewKuma 发表于 2010-3-29 15:56 <[img src="http://bbs.saraba1st.com/2b
 山治现在最大的弱点是啥？不能打女人！！！山治的骑士道精神不允许他打女人，但是如果他变成女人（或者人妖）那就另当别论了
 
 
-
-
-
-
-
 -----
 
 ####  BartholemewKuma  
 ##### 16222#       发表于 2010-3-29 17:39
-
 
 
 <blockquote>麦泽伦怎么样了 也不交代下
@@ -26462,16 +17972,10 @@ heavy_d 发表于 2010-3-29 16:12 <[img src="http://bbs.saraba1st.com/2b/images/
 漫画里黑胡子登场的时候和战国交代过一下，意思大概是“我们出现在这里，你应该知道麦哲伦已经怎么样了吧。”
 
 
-
-
-
-
-
 -----
 
 ####  BartholemewKuma  
 ##### 16223#       发表于 2010-3-29 17:40
-
 
 
 <blockquote>我突然明白了山治为什么要去人妖岛了！
@@ -26481,17 +17985,10 @@ hispeed 发表于 2010-3-29 17:02 <[img src="http://bbs.saraba1st.com/2b/images/
 伊万科夫变女体和小萨迪交手，是为山治君挖坑。（无雾）
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 16224#       发表于 2010-3-29 22:23
-
-
 
 
 海吧有潜力神貼出現。。http://tieba.baidu.com/f?z=737701182&amp;ct=335544320&amp;lm=0&amp;sc=0&amp;rn=30&amp;tn=baiduPostBrowser&amp;word=%BA%A3%D4%F4%CD%F5&amp;pn=0
@@ -26500,16 +17997,10 @@ hispeed 发表于 2010-3-29 17:02 <[img src="http://bbs.saraba1st.com/2b/images/
 大圖見http://bbs.ikunlun.net/topic.php?forum_id=27&amp;topic_id=274253&amp;page=1&amp;forum_page=1&amp;class_id=0#reply36218611
 
 
-
-
-
-
-
 -----
 
 ####  芍药  
 ##### 16225#       发表于 2010-3-29 22:40
-
 
 
 <blockquote>海吧有潜力神貼出現。。[http://tieba.baidu.com/f?z=73770 ... 4%F4%CD%F5&amp;pn=0](http://tieba.baidu.com/f?z=737701182&amp;ct=335544320&amp;lm=0&amp;sc=0&amp;rn=30&amp;tn=baiduPostBrowser&amp;word=%BA%A3%D4%F4%CD%F5&amp;pn=0)
@@ -26521,25 +18012,13 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 大笑三声，女帝上船预定
 
 
-
-
-
-
-
 -----
 
 ####  ナミ  
 ##### 16226#       发表于 2010-3-29 22:55
 
 
-
-
 只是款式比较接近而已，而且就算是被撞衫了也没啥好大惊小怪的啊……<img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26548,14 +18027,7 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16227#       发表于 2010-3-29 22:58
 
 
-
-
 动画版的都不作数的。
-
-
-
-
-
 
 
 -----
@@ -26564,15 +18036,8 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16228#       发表于 2010-3-29 23:04
 
 
-
-
 漫画有...
 <img src="http://j.imagehost.org/0500/1_36.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26581,23 +18046,15 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16229#       发表于 2010-3-29 23:23
 
 
-
  本帖最后由 白河亜紀 于 2010-3-29 23:28 编辑 
 
 鹰眼不是七武海<img src="https://static.saraba1st.com/image/smiley/face/05.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 16230#       发表于 2010-3-29 23:39
-
-
 
 
 看来女帝真的是第十人了……幸福得满地打滚……
@@ -26609,25 +18066,13 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 一起上船吧，
 
 
-
-
-
-
-
 -----
 
 ####  wingchau  
 ##### 16231#       发表于 2010-3-29 23:42
 
 
-
-
 太TM神了...<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26636,14 +18081,7 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16232#       发表于 2010-3-29 23:47
 
 
-
-
 我不相信WT的伏笔能埋得这么深....
-
-
-
-
-
 
 
 -----
@@ -26652,13 +18090,7 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16233#       发表于 2010-3-29 23:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">罗格镇这时候好像乔巴都还没加入？，尾田这伏笔也太厉害了……
-
-
-
-
-
 
 
 -----
@@ -26667,21 +18099,13 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16234#       发表于 2010-3-29 23:50
 
 
-
-
 不得不承认这位是洞察帝<img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 16235#       发表于 2010-3-29 23:53
-
 
 
 <blockquote>我不相信WT的伏笔能埋得这么深....
@@ -26691,27 +18115,15 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 至少七武海，四皇的身份都是先想好了的，看名字都能看出来。
 
 
-
-
-
-
-
 -----
 
 ####  叉和圈的ELF  
 ##### 16236#       发表于 2010-3-30 00:05
 
 
-
-
 四皇的名字都有相对应的历史人物么?
 
 求解
-
-
-
-
-
 
 
 -----
@@ -26720,23 +18132,15 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16237#       发表于 2010-3-30 00:06
 
 
-
-
 也可以解释为wt为将来的登场人物试造型。
 
 至少我觉得用来做女帝上船的证据还太薄弱了
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 16238#       发表于 2010-3-30 00:37
-
 
 
  本帖最后由 DGIL 于 2010-3-30 00:40 编辑 
@@ -26746,17 +18150,11 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 <img src="https://static.saraba1st.com/image/smiley/face/170.gif" referrerpolicy="no-referrer"> 有些洞察帝真是强悍得不可思议啊
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/118.gif" referrerpolicy="no-referrer">也许大家会反对，但是我觉得女帝上船最大的问题是，她会压制草帽全团的光芒
 
 特别是上船后，必定有一系列的强化人物的故事篇章。。。各场大战她也会作为主攻手登场
 
 到那时。。。可以叫汉库克海贼团了。。
-
-
-
-
-
 
 
 -----
@@ -26765,17 +18163,10 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16239#       发表于 2010-3-30 00:44
 
 
-
-
 我觉得是很普通的旗袍+围领的款式啊...倒是右边那个造型加个牛仔帽就很想罗宾刚出场的造型了。
 
 
 古人的错别字是通假字，各位同学请整理好后都背下来，考试要考<img src="https://static.saraba1st.com/image/smiley/face/170.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26784,14 +18175,7 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16240#       发表于 2010-3-30 00:44
 
 
-
-
 直接跳过中间的无聊争论是正确的，这料爆得不错啊~~~~乱期待一把
-
-
-
-
-
 
 
 -----
@@ -26800,22 +18184,13 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16241#       发表于 2010-3-30 01:11
 
 
-
-
 OP厨已经接近邪教徒了
-
-
-
-
-
 
 
 -----
 
 ####  molilanmao  
 ##### 16242#       发表于 2010-3-30 01:19
-
-
 
 
 四皇一开始不见得想好了 毕竟红发……
@@ -26825,26 +18200,15 @@ OP厨已经接近邪教徒了
 鹰眼什么时候登场的……
 
 
-
-
-
-
-
 -----
 
 ####  oxhhxf  
 ##### 16243#       发表于 2010-3-30 01:20
 
 
-
  本帖最后由 oxhhxf 于 2010-3-30 01:21 编辑 
 
 哦，感觉好牵强。
-
-
-
-
-
 
 
 -----
@@ -26853,22 +18217,13 @@ OP厨已经接近邪教徒了
 ##### 16244#       发表于 2010-3-30 01:51
 
 
-
-
 情报三则：
-
-
-
-
-
 
 
 -----
 
 ####  嘲风  
 ##### 16245#       发表于 2010-3-30 01:51
-
-
 
 
 情报一
@@ -26933,17 +18288,10 @@ OP厨已经接近邪教徒了
 龙？？？？？？？？？？？
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 16246#       发表于 2010-3-30 01:51
-
-
 
 
 情报二
@@ -26993,17 +18341,10 @@ OP厨已经接近邪教徒了
 说着身体开始出现变化（即将现出真正的实力？大佛的真面目！）
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 16247#       发表于 2010-3-30 01:51
-
-
 
 
 情报三
@@ -27068,25 +18409,13 @@ OP厨已经接近邪教徒了
 话面一转，雷利盯着屏幕，微笑：香克斯…你果然忍不住来了
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 16248#       发表于 2010-3-30 01:53
 
 
-
-
 第三则情报里的这句话“众囚犯：啊！巴基船长…居然和四皇红发称兄道弟！我们果然跟对人了！”，好他妈真！
-
-
-
-
-
 
 
 -----
@@ -27095,13 +18424,7 @@ OP厨已经接近邪教徒了
 ##### 16249#       发表于 2010-3-30 01:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">这3个完全不相干的情报真扭曲
-
-
-
-
-
 
 
 -----
@@ -27110,15 +18433,9 @@ OP厨已经接近邪教徒了
 ##### 16250#       发表于 2010-3-30 06:34
 
 
-
  本帖最后由 psoxblee 于 2010-3-30 06:37 编辑 
 
 580快来吧，红发发威吧，女帝看来是必定加入了
-
-
-
-
-
 
 
 -----
@@ -27127,14 +18444,7 @@ OP厨已经接近邪教徒了
 ##### 16251#       发表于 2010-3-30 07:51
 
 
-
-
 囧...难道不是尾田单纯的比较喜欢那两件衣服的款式么....<img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27143,14 +18453,7 @@ OP厨已经接近邪教徒了
 ##### 16252#       发表于 2010-3-30 09:12
 
 
-
-
 关键第一种款式代表人物罗宾已经加入
-
-
-
-
-
 
 
 -----
@@ -27159,14 +18462,7 @@ OP厨已经接近邪教徒了
 ##### 16253#       发表于 2010-3-30 09:17
 
 
-
-
 這也說明不了什麽。。。
-
-
-
-
-
 
 
 -----
@@ -27175,14 +18471,7 @@ OP厨已经接近邪教徒了
 ##### 16254#       发表于 2010-3-30 09:21
 
 
-
-
 情报二看上去更像一点点
-
-
-
-
-
 
 
 -----
@@ -27191,20 +18480,13 @@ OP厨已经接近邪教徒了
 ##### 16255#       发表于 2010-3-30 12:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">尾田稀饭这俩衣服而且画的顺手觉得有特色顺带给后面的妹子挨个穿上吧……
-
-
-
-
-
 
 
 -----
 
 ####  circles  
 ##### 16256#       发表于 2010-3-30 12:28
-
 
 
 <blockquote>海吧有潜力神貼出現。。[http://tieba.baidu.com/f?z=73770 ... 4%F4%CD%F5&amp;pn=0](http://tieba.baidu.com/f?z=737701182&amp;ct=335544320&amp;lm=0&amp;sc=0&amp;rn=30&amp;tn=baiduPostBrowser&amp;word=%BA%A3%D4%F4%CD%F5&amp;pn=0)
@@ -27215,24 +18497,13 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 有搞头,有搞头啊
 
 
-
-
-
-
-
 -----
 
 ####  Archie  
 ##### 16257#       发表于 2010-3-30 13:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">情报三 ～难道ACE还能吐便当？
-
-
-
-
-
 
 
 -----
@@ -27241,14 +18512,7 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16258#       发表于 2010-3-30 13:22
 
 
-
-
 关于巴基的情报我都觉得是真的，怎么办
-
-
-
-
-
 
 
 -----
@@ -27257,15 +18521,9 @@ yario 发表于 2010-3-29 22:23 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16259#       发表于 2010-3-30 13:32
 
 
-
 <blockquote>关于巴基的情报我都觉得是真的，怎么办
 zionfan 发表于 2010-3-30 13:22 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 也许就只有巴基的部分是真的。因为太好猜了。
-
-
-
-
-
 
 
 -----
@@ -27274,22 +18532,13 @@ zionfan 发表于 2010-3-30 13:22 <[img src="http://bbs.saraba1st.com/2b/images/
 ##### 16260#       发表于 2010-3-30 13:47
 
 
-
-
 比较看好第3个情报.
-
-
-
-
-
 
 
 -----
 
 ####  柏露伯德  
 ##### 16261#       发表于 2010-3-30 13:56
-
-
 
 
 感谢芭比熊冒死透露
@@ -27313,8 +18562,6 @@ zionfan 发表于 2010-3-30 13:22 <[img src="http://bbs.saraba1st.com/2b/images/
 その後、Ziと非常に凶暴な外観Kaitokeややに似ています
 
 
-
-
 贝克曼的能力“镜面果实”可以颠倒攻击的上下左右前后 使得敌人无法防御
 
 之后是红发的讲述 他和凯多的战斗
@@ -27331,32 +18578,19 @@ zionfan 发表于 2010-3-30 13:22 <[img src="http://bbs.saraba1st.com/2b/images/
 ZT
 
 
-
-
-
-
-
 -----
 
 ####  flll  
 ##### 16262#       发表于 2010-3-30 14:01
 
 
-
-
 这个转过了吧
-
-
-
-
-
 
 
 -----
 
 ####  迪特  
 ##### 16263#       发表于 2010-3-30 14:11
-
 
 
 <blockquote>感谢芭比熊冒死透露
@@ -27375,25 +18609,13 @@ ZT
 一眼看去就知道是假的就别转了吧……<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 16264#       发表于 2010-3-30 14:48
 
 
-
-
 还没有靠谱的情报出来吗？
-
-
-
-
-
 
 
 -----
@@ -27402,22 +18624,13 @@ ZT
 ##### 16265#       发表于 2010-3-30 15:22
 
 
-
-
 才周二，嘛
-
-
-
-
-
 
 
 -----
 
 ####  Evanjjy  
 ##### 16266#       发表于 2010-3-30 20:35
-
-
 
 
 翻译by【海吧鼠绘汉化】银时 
@@ -27485,33 +18698,19 @@ ZT
 下回休刊
 
 
-
-
-
-
-
 -----
 
 ####  sd4245640  
 ##### 16267#       发表于 2010-3-30 21:05
 
 
-
-
 纳泥~~休刊<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  狮子歌歌  
 ##### 16268#       发表于 2010-3-30 21:08
-
-
 
 
 在一小部分的海军中飞来一只箭 
@@ -27524,25 +18723,13 @@ ZT
 噗！
 
 
-
-
-
-
-
 -----
 
 ####  loushifang  
 ##### 16269#       发表于 2010-3-30 21:25
 
 
-
-
 就这么结束了么？
-
-
-
-
-
 
 
 -----
@@ -27551,28 +18738,10 @@ ZT
 ##### 16270#       发表于 2010-3-30 22:01
 
 
-
-
 女帝党表示头顶青天 狂喜乱舞
 
 
-
-
-
-
-
-
-
-
-
-
-
 等等，真这样山治怎么办？一天24小时里有20小时是石化状态么？
-
-
-
-
-
 
 
 -----
@@ -27581,21 +18750,13 @@ ZT
 ##### 16271#       发表于 2010-3-30 22:03
 
 
-
 休            刊？？！！？？！！？？！！？？！！
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 16272#       发表于 2010-3-30 22:04
-
-
 
 
 我想 首页是罗宾 
@@ -27658,7 +18819,6 @@ ZT
 下回休刊
 
 
-
 追加
 
 
@@ -27682,25 +18842,13 @@ ZT
 好像是叫马尔高冷静一下的
 
 
-
-
-
-
-
 -----
 
 ####  PATLABOR  
 ##### 16273#       发表于 2010-3-30 22:20
 
 
-
-
 海军还是没有信心连战一双四皇么。
-
-
-
-
-
 
 
 -----
@@ -27709,15 +18857,9 @@ ZT
 ##### 16274#       发表于 2010-3-30 23:13
 
 
-
 <blockquote>海军还是没有信心连战一双四皇么。
 PATLABOR 发表于 2010-3-30 22:20 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 这是三方大混战，别忘了黑胡子。
-
-
-
-
-
 
 
 -----
@@ -27726,14 +18868,7 @@ PATLABOR 发表于 2010-3-30 22:20 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16275#       发表于 2010-3-30 23:26
 
 
-
-
 下回休刊  &lt;-------瓦擦！！这是啥！这是啥啊啊啊啊啊！！WT！谁说要赶完大事件的！！竟然……休刊？！
-
-
-
-
-
 
 
 -----
@@ -27742,21 +18877,13 @@ PATLABOR 发表于 2010-3-30 22:20 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16276#       发表于 2010-3-30 23:39
 
 
-
-
 休刊后就会有重大事件或转折？！草帽团也该结束扉页的短工了吧
-
-
-
-
-
 
 
 -----
 
 ####  Reingia  
 ##### 16277#       发表于 2010-3-30 23:58
-
 
 
  本帖最后由 Reingia 于 2010-3-31 00:00 编辑 
@@ -27770,16 +18897,10 @@ PATLABOR 发表于 2010-3-30 22:20 <[img src="http://bbs.saraba1st.com/2b/images
 山治已经人妖化了……就算要恢复也需要一个美女来激发呀，你说除了汉库克还能谁更胜任这任务？
 
 
-
-
-
-
-
 -----
 
 ####  lillianjr  
 ##### 16278#       发表于 2010-3-31 00:48
-
 
 
  本帖最后由 lillianjr 于 2010-3-31 00:51 编辑 
@@ -27795,16 +18916,10 @@ PATLABOR 发表于 2010-3-30 22:20 <[img src="http://bbs.saraba1st.com/2b/images
 而且7武海的设定在这个名词出现的已经完成了。尾田他不是在进入伟大航路前应编辑部的要求还画过一个“未来的敌人”的图嘛。其中就有女帝的背影，黄色带大花纹的旗袍，一条大蛇，头发是浅紫色的。
 
 
-
-
-
-
-
 -----
 
 ####  lillianjr  
 ##### 16279#       发表于 2010-3-31 00:49
-
 
 
 <blockquote>+6535
@@ -27814,16 +18929,10 @@ Reingia 发表于 2010-3-30 23:58 <[img src="http://bbs.saraba1st.com/2b/images/
 有娜美和罗宾就够了。
 
 
-
-
-
-
-
 -----
 
 ####  黑骑汉化组  
 ##### 16280#       发表于 2010-3-31 01:41
-
 
 
 <blockquote>女帝厨们这是又怎么了？怎么老莫名其妙的<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
@@ -27839,44 +18948,16 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 求图
 
 
-
-
-
-
-
 -----
 
 ####  Ленин  
 ##### 16281#       发表于 2010-3-31 09:00
 
 
-
-
 女帝要上船？
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 先让伊娃把她变成他就好了<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27885,14 +18966,7 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16282#       发表于 2010-3-31 09:05
 
 
-
-
 最强·船长巴基的名声已经达到顶峰了哪……<img src="https://static.saraba1st.com/image/smiley/face/134.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27901,21 +18975,13 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16283#       发表于 2010-3-31 09:16
 
 
-
-
 又休刊。。shit
-
-
-
-
-
 
 
 -----
 
 ####  犀利  
 ##### 16284#       发表于 2010-3-31 10:58
-
 
 
  本帖最后由 犀利 于 2010-3-31 14:00 编辑 
@@ -27926,25 +18992,13 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 赤犬这也算是浑身插满flag仍屹立不到的典型了。
 
 
-
-
-
-
-
 -----
 
 ####  Zcjy023  
 ##### 16285#       发表于 2010-3-31 11:53
 
 
-
-
 总算结束了~~~女帝赶快追路飞去<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27953,14 +19007,7 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16286#       发表于 2010-3-31 13:02
 
 
-
-
 红发的手下都挺帅的
-
-
-
-
-
 
 
 -----
@@ -27969,23 +19016,15 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16287#       发表于 2010-3-31 13:37
 
 
-
 <strong> [16356#](http://bbs.saraba1st.com/2b/redirect.php?goto=findpost&amp;pid=11518001&amp;ptid=98922) just4fan </strong>
 
 乌索普的老爹也在里面，看起来比他儿子猛多了啊
-
-
-
-
-
 
 
 -----
 
 ####  云狼  
 ##### 16288#       发表于 2010-3-31 15:34
-
-
 
 
 支持女帝不上床，因为新船员从来都是路飞钦点的，团长觉得没必要那就没戏；
@@ -27997,16 +19036,10 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 大事件的描写持续了这么长时间，高潮不断也混乱不断，不过书表两端，革命军和其他四皇和新星甚至其他海贼却一直是“按兵未动”，新世界不是银牌选手如云么，除去路飞罗以及白胡子残部一方，期待新的格局形成~
 
 
-
-
-
-
-
 -----
 
 ####  suika  
 ##### 16289#       发表于 2010-3-31 15:37
-
 
 
 <blockquote>支持女帝不上床，因为新船员从来都是路飞钦点的，团长觉得没必要那就没戏；
@@ -28017,25 +19050,13 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 我也觉得不会上“床”
 
 
-
-
-
-
-
 -----
 
 ####  sef  
 ##### 16290#       发表于 2010-3-31 15:37
 
 
-
-
 网上还传d是dream的意思，虽然俗了点
-
-
-
-
-
 
 
 -----
@@ -28044,16 +19065,9 @@ lillianjr 发表于 2010-3-31 00:48 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16291#       发表于 2010-3-31 15:42
 
 
-
-
 d是恶魔吧？
 
 毕竟果实叫做恶魔果实怎么想都不会是偶然。
-
-
-
-
-
 
 
 -----
@@ -28062,14 +19076,7 @@ d是恶魔吧？
 ##### 16292#       发表于 2010-3-31 15:42
 
 
-
-
 女帝！！！快点来一个16年后啦！！！<img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -28078,14 +19085,7 @@ d是恶魔吧？
 ##### 16293#       发表于 2010-3-31 15:54
 
 
-
-
 580情报图粗来了
-
-
-
-
-
 
 
 -----
@@ -28094,14 +19094,7 @@ d是恶魔吧？
 ##### 16294#       发表于 2010-3-31 16:00
 
 
-
-
 白胡子全名爱德华·纽杰特，没有D。
-
-
-
-
-
 
 
 -----
@@ -28110,14 +19103,7 @@ d是恶魔吧？
 ##### 16295#       发表于 2010-3-31 17:15
 
 
-
-
 图已经出来了，这次算是三方都收手了，大事件中赤犬基本一战成名。不过恶名也背上了。白胡子团损失船长和第二队长，黑胡子团实力暴增，海军除了基地被毁其它没死什么人。红发船上的家伙看起来比较凶悍，希望以后不要是软脚虾。路飞，好好磨炼自己吧，拥有广阔的胸襟没有实力是不行的！
-
-
-
-
-
 
 
 -----
@@ -28126,14 +19112,7 @@ d是恶魔吧？
 ##### 16296#       发表于 2010-3-31 17:56
 
 
-
-
 哪里有图？
-
-
-
-
-
 
 
 -----
@@ -28142,14 +19121,7 @@ d是恶魔吧？
 ##### 16297#       发表于 2010-3-31 18:08
 
 
-
-
 海贼王吧
-
-
-
-
-
 
 
 -----
@@ -28158,16 +19130,9 @@ d是恶魔吧？
 ##### 16298#       发表于 2010-3-31 18:17
 
 
-
-
 本周一共就15页
 
 下周休刊
-
-
-
-
-
 
 
 -----
@@ -28176,22 +19141,13 @@ d是恶魔吧？
 ##### 16299#       发表于 2010-3-31 18:23
 
 
-
-
 这期扉页，海军王的传说正式开始了吗？
-
-
-
-
-
 
 
 -----
 
 ####  エリ  
 ##### 16300#       发表于 2010-3-31 19:31
-
-
 
 
 红发海贼团里左2那个为什么头上的海贼旗不是红发海贼团的标志呢……
@@ -28203,16 +19159,10 @@ d是恶魔吧？
 看来红发海贼团精英众多啊
 
 
-
-
-
-
-
 -----
 
 ####  流缨  
 ##### 16301#       发表于 2010-3-31 19:40
-
 
 
 [http://acg.178.com/mh/h/haizeiwang/5177.shtml?p=1](http://acg.178.com/mh/h/haizeiwang/5177.shtml?p=1)
@@ -28222,25 +19172,13 @@ d是恶魔吧？
 果然每周OP情报战比尾田画的还精彩啊……女帝倒的确是“劫”了艘船跑去追潜水艇了
 
 
-
-
-
-
-
 -----
 
 ####  guanliang  
 ##### 16302#       发表于 2010-3-31 19:46
 
 
-
-
 红发团亮相确实很帅，但想当初CP9全员集合也帅，白胡子手下一干队长刚露面也帅，黑胡子刚招至麾下的大海贼一亮相个个都有终极BOSS的风范，可惜...... 还是那句话，莫装B，装B被雷劈。红发团估计和白胡子力实力半斤八两，所以撤退是几方面最好的结果。另外大事件结束后，某些七武海的称号也会被剥夺了吧，不过不在乎，这些都是虚名而已：）
-
-
-
-
-
 
 
 -----
@@ -28249,21 +19187,13 @@ d是恶魔吧？
 ##### 16303#       发表于 2010-3-31 19:50
 
 
-
-
 看起来副船长拿黄猿也没什么办法啊
-
-
-
-
-
 
 
 -----
 
 ####  燃夜郎君  
 ##### 16304#       发表于 2010-3-31 20:24
-
 
 
 <blockquote>红发团亮相确实很帅，但想当初CP9全员集合也帅，白胡子手下一干队长刚露面也帅，黑胡子刚招至麾下的大海贼一亮相个个都有终极BOSS的风范，可惜...... 还是那句话，莫装B，装B被雷劈。红发团估计和白胡子力实力半斤八 ...
@@ -28275,25 +19205,13 @@ guanliang 发表于 2010-3-31 19:46 <[img src="http://bbs.saraba1st.com/2b/image
 海军小兵：喂，这样是不是有点不妙啊？
 
 
-
-
-
-
-
 -----
 
 ####  luffyplus  
 ##### 16305#       发表于 2010-3-31 20:41
 
 
-
-
 看见休刊..我就蛋疼..
-
-
-
-
-
 
 
 -----
@@ -28302,24 +19220,16 @@ guanliang 发表于 2010-3-31 19:46 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16306#       发表于 2010-3-31 20:45
 
 
-
-
 这就完了呀？结果就个赤犬发了发神威。。。
 
 
 继续杀呀！战国卡普都没动呢
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 16307#       发表于 2010-3-31 20:58
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">女帝大人太有爱了！终于终于又出来了！
@@ -28353,27 +19263,15 @@ guanliang 发表于 2010-3-31 19:46 <[img src="http://bbs.saraba1st.com/2b/image
 休刊？！我艹。。。
 
 
-
-
-
-
-
 -----
 
 ####  thez  
 ##### 16308#       发表于 2010-4-1 08:18
 
 
-
-
 结束的有些草率啊，黑胡子就这么大摇大摆地全身而退了…
 
 海军起码应该趁这机会和黑胡子拼一下啊
-
-
-
-
-
 
 
 -----
@@ -28382,21 +19280,13 @@ guanliang 发表于 2010-3-31 19:46 <[img src="http://bbs.saraba1st.com/2b/image
 ##### 16309#       发表于 2010-4-1 09:10
 
 
-
-
 我要是战国，就说服红发一起联手战黑胡子
-
-
-
-
-
 
 
 -----
 
 ####  taehw  
 ##### 16310#       发表于 2010-4-1 09:28
-
 
 
 <blockquote>红发团亮相确实很帅，但想当初CP9全员集合也帅，白胡子手下一干队长刚露面也帅，黑胡子刚招至麾下的大海贼一亮相个个都有终极BOSS的风范，可惜...... 还是那句话，莫装B，装B被雷劈。红发团估计和白胡子力实力半斤八两，所以撤退是几方面最好的结果。另外大事件结束后，某些七武海的称号也会被剥夺了吧，不过不在乎，这些都是虚名而已：）
@@ -28413,26 +19303,15 @@ guanliang 发表于 2010-3-31 19:46 <[img src="http://bbs.saraba1st.com/2b/image
 估计只要黑胡子不宣言，大概还会默认他的身份吧
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 16311#       发表于 2010-4-1 09:29
 
 
-
 <blockquote>我要是战国，就说服红发一起联手战黑胡子
 thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 红发不是七武海。
-
-
-
-
-
 
 
 -----
@@ -28441,14 +19320,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16312#       发表于 2010-4-1 10:27
 
 
-
-
 照常理来说黑胡子肯定是剥夺了，这个罪行不是一般严重，女帝睁只眼闭只眼算了，鱼人感觉红狗很给面子了，基本一直说道理，实在不听才下重手。看后续发展吧，红发确实很聪明，他来只起缓冲作用，交战几方都给个面子，他也不明显帮那一方，不过整体上讲，海军还是实力略强，基本没死什么人，从画面上看好象连被白胡子丢翻的巨人中将都没什么事吧？不过白胡子被暗算在前，可惜了。路飞这次挫折太大，看怎么通过同伴振作起来吧。
-
-
-
-
-
 
 
 -----
@@ -28457,13 +19329,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16313#       发表于 2010-4-1 11:01
 
 
-
 [http://tieba.baidu.com/f?kz=739381005](http://tieba.baidu.com/f?kz=739381005)，熊猫汉化已出
-
-
-
-
-
 
 
 -----
@@ -28472,14 +19338,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16314#       发表于 2010-4-1 11:09
 
 
-
-
 海军战力不行啊 被迫停战不追击了
-
-
-
-
-
 
 
 -----
@@ -28488,17 +19347,10 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16315#       发表于 2010-4-1 11:11
 
 
-
-
 等下话吧
 
 
 不过，女帝这借口好赞
-
-
-
-
-
 
 
 -----
@@ -28507,14 +19359,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16316#       发表于 2010-4-1 11:15
 
 
-
-
 女帝 和中将速度完全不能行啊 巴基都来回潜水艇两次了 你们站旁边连边都沾不到
-
-
-
-
-
 
 
 -----
@@ -28523,14 +19368,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16317#       发表于 2010-4-1 11:16
 
 
-
-
 名曰终战，根本没战，我想看红发和海军对掐啊！
-
-
-
-
-
 
 
 -----
@@ -28539,14 +19377,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16318#       发表于 2010-4-1 11:18
 
 
-
-
 红发面子真大
-
-
-
-
-
 
 
 -----
@@ -28555,23 +19386,15 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16319#       发表于 2010-4-1 11:23
 
 
-
 <blockquote>红发面子真大
 ★草泥马★ 发表于 2010-4-1 11:18 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 无损搞定凯多，说是向两方要面子其实是给面子还赢了名声，现在红发已经名正言顺的代替死去的白胡子成为了世界最强的男人，之后在伟大航路上恐怕只有黑胡子可以与之一较高下了<img src="https://static.saraba1st.com/image/smiley/face/157.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  aosng007  
 ##### 16320#       发表于 2010-4-1 11:23
-
-
 
 
 红发果然没开无双....
@@ -28582,26 +19405,15 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 巴基，我跟定你了！
 
 
-
-
-
-
-
 -----
 
 ####  zealotssas  
 ##### 16321#       发表于 2010-4-1 11:25
 
 
-
 <blockquote>名曰终战，根本没战，我想看红发和海军对掐啊！
 嘉神慎之介 发表于 2010-4-1 11:16 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 终是终结的意思
-
-
-
-
-
 
 
 -----
@@ -28610,16 +19422,9 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16322#       发表于 2010-4-1 11:27
 
 
-
-
 红犬这时候怎么不咬了？
 
 绝对的正义呢？
-
-
-
-
-
 
 
 -----
@@ -28628,14 +19433,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16323#       发表于 2010-4-1 11:29
 
 
-
-
 战国下令了，侧面反映出红狗完全是严谨的军人作风，呵呵。猴子和稚你们最后是不是故意放水啊？
-
-
-
-
-
 
 
 -----
@@ -28644,14 +19442,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16324#       发表于 2010-4-1 11:29
 
 
-
-
 战国下令了，侧面反映出红狗完全是严谨的军人作风，呵呵。猴子和稚你们最后是不是故意放水啊？
-
-
-
-
-
 
 
 -----
@@ -28660,14 +19451,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16325#       发表于 2010-4-1 11:42
 
 
-
-
 巴基又牛x了一回
-
-
-
-
-
 
 
 -----
@@ -28676,22 +19460,13 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16326#       发表于 2010-4-1 12:04
 
 
-
-
 莫利亞的上一個鏡頭時隔多久了
-
-
-
-
-
 
 
 -----
 
 ####  FCS-31  
 ##### 16327#       发表于 2010-4-1 12:07
-
-
 
 
 脱力
@@ -28703,26 +19478,15 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 爱咋样咋样，这大事件真不咋地。
 
 
-
-
-
-
-
 -----
 
 ####  点数不足  
 ##### 16328#       发表于 2010-4-1 12:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/133.gif" referrerpolicy="no-referrer">红发太牛了
 
 出来打个酱油战争就结束了
-
-
-
-
-
 
 
 -----
@@ -28731,14 +19495,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16329#       发表于 2010-4-1 14:23
 
 
-
-
 没看见乌索普的老爸啊
-
-
-
-
-
 
 
 -----
@@ -28747,14 +19504,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16330#       发表于 2010-4-1 14:34
 
 
-
-
 白胡子有没有霸气?帮同学问.
-
-
-
-
-
 
 
 -----
@@ -28763,15 +19513,9 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16331#       发表于 2010-4-1 14:42
 
 
-
 <blockquote>白胡子有没有霸气?帮同学问.
 314156 发表于 2010-4-1 14:34 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 没有。帮同学回答。
-
-
-
-
-
 
 
 -----
@@ -28780,14 +19524,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16332#       发表于 2010-4-1 14:45
 
 
-
-
 有。帮自己回答。
-
-
-
-
-
 
 
 -----
@@ -28796,14 +19533,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16333#       发表于 2010-4-1 14:53
 
 
-
-
 他老爸没有长鼻子 乌索普他妈是长鼻子
-
-
-
-
-
 
 
 -----
@@ -28812,14 +19542,7 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16334#       发表于 2010-4-1 15:08
 
 
-
-
 红发说句给我个面子面子还真来了，牛逼过头了吧=\'\'=
-
-
-
-
-
 
 
 -----
@@ -28828,17 +19551,10 @@ thez 发表于 2010-4-1 09:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16335#       发表于 2010-4-1 15:19
 
 
-
-
 战国很可能欠红发的人情
 
 
 OP里放水都多少了 青鸡放罗宾 青鸡放路飞 大熊放草帽团......
-
-
-
-
-
 
 
 -----
@@ -28847,24 +19563,16 @@ OP里放水都多少了 青鸡放罗宾 青鸡放路飞 大熊放草帽团......
 ##### 16336#       发表于 2010-4-1 15:22
 
 
-
-
 大。。。大事件就这样完了。。。 黑胡子就这样被放走了。。。  啊？ 下周休刊。。
 
 
 WT休刊之后要让艾斯活过来么<img src="https://static.saraba1st.com/image/smiley/face/170.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kaiko_one  
 ##### 16337#       发表于 2010-4-1 15:30
-
 
 
 <blockquote>没看见乌索普的老爸啊
@@ -28880,15 +19588,7 @@ LichEnd 发表于 2010-4-1 14:23 <[img src="http://bbs.saraba1st.com/2b/images/c
 2010-4-1 15:30 上传
 
 
-
-
-
 这个后面背着枪的不就是么
-
-
-
-
-
 
 
 -----
@@ -28897,14 +19597,7 @@ LichEnd 发表于 2010-4-1 14:23 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16338#       发表于 2010-4-1 16:15
 
 
-
-
 少漫果然还是跑不出血统这个怪圈.连乌索普都有个牛B老爸...
-
-
-
-
-
 
 
 -----
@@ -28913,15 +19606,9 @@ LichEnd 发表于 2010-4-1 14:23 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16339#       发表于 2010-4-1 16:18
 
 
-
 <blockquote>少漫果然还是跑不出血统这个怪圈.连乌索普都有个牛B老爸...
 aris 发表于 2010-4-1 16:15 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 他不就是因为老爸才会想去当牛逼的海上战士么
-
-
-
-
-
 
 
 -----
@@ -28930,14 +19617,7 @@ aris 发表于 2010-4-1 16:15 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16340#       发表于 2010-4-1 16:21
 
 
-
-
 都是生了孩子甩给他妈 自己一屁股跑去海上风流的混蛋 龙和耶稣布
-
-
-
-
-
 
 
 -----
@@ -28946,13 +19626,7 @@ aris 发表于 2010-4-1 16:15 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16341#       发表于 2010-4-1 16:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/131.gif" referrerpolicy="no-referrer">这乌索普的设定都给忘了咩
-
-
-
-
-
 
 
 -----
@@ -28961,14 +19635,7 @@ aris 发表于 2010-4-1 16:15 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16342#       发表于 2010-4-1 16:24
 
 
-
-
 乌索普是愚人节生日吧
-
-
-
-
-
 
 
 -----
@@ -28977,21 +19644,13 @@ aris 发表于 2010-4-1 16:15 <[img src="http://bbs.saraba1st.com/2b/images/comm
 ##### 16343#       发表于 2010-4-1 16:28
 
 
-
 [http://bbs.saraba1st.com/2b/thread-561887-1-1.html](http://bbs.saraba1st.com/2b/thread-561887-1-1.html)<img src="https://static.saraba1st.com/image/smiley/face/85.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  loli猫saki  
 ##### 16344#       发表于 2010-4-1 16:55
-
-
 
 
 红发才是真正意义的黑白两道通吃啊
@@ -29003,16 +19662,10 @@ aris 发表于 2010-4-1 16:15 <[img src="http://bbs.saraba1st.com/2b/images/comm
 战国还表明了“是你才给面子”。。。
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 16345#       发表于 2010-4-1 17:10
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">鹰眼。。。都不知道你为什么要加入75海。。。
@@ -29025,16 +19678,10 @@ aris 发表于 2010-4-1 16:15 <[img src="http://bbs.saraba1st.com/2b/images/comm
 真是。。难怪人家说你不是75海
 
 
-
-
-
-
-
 -----
 
 ####  南宮太平  
 ##### 16346#       发表于 2010-4-1 17:22
-
 
 
  本帖最后由 南宮太平 于 2010-4-1 17:50 编辑 
@@ -29054,25 +19701,13 @@ pei1019 发表于 2010-4-1 15:08 <[img src="http://bbs.saraba1st.com/2b/images/c
 草帽, 哥哥被殺, 自己被打到半死, 表面目標失敗, 但成功刷出人脈并害死新世代最大的競爭對手, 大大勝 <img src="https://static.saraba1st.com/image/smiley/face/129.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  迪奧  
 ##### 16347#       发表于 2010-4-1 17:42
 
 
-
-
 还收了情妇 收买了前敌人入团
-
-
-
-
-
 
 
 -----
@@ -29081,14 +19716,7 @@ pei1019 发表于 2010-4-1 15:08 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16348#       发表于 2010-4-1 18:25
 
 
-
-
 还收了白胡子团当靠山， 四皇里就有两座靠山了
-
-
-
-
-
 
 
 -----
@@ -29097,21 +19725,13 @@ pei1019 发表于 2010-4-1 15:08 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16349#       发表于 2010-4-1 18:32
 
 
-
-
 现在路飞的靠山已经强到他的敌人威胁不到他了，这可不是好现象。
-
-
-
-
-
 
 
 -----
 
 ####  囧神  
 ##### 16350#       发表于 2010-4-1 18:37
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">鹰眼。。。都不知道你为什么要加入75海。。。
@@ -29128,33 +19748,19 @@ DGIL 发表于 2010-4-1 17:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 话说…鹰眼真的卖力了？从来没有过吧？
 
 
-
-
-
-
-
 -----
 
 ####  ★草泥马★  
 ##### 16351#       发表于 2010-4-1 18:40
 
 
-
-
 明显红发团比第一卷帅多了.......红发你这么NB为什么会被一只小海怪咬掉胳膊<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  羲和  
 ##### 16352#       发表于 2010-4-1 18:40
-
-
 
 
 有而可畏谓之威
@@ -29166,16 +19772,10 @@ DGIL 发表于 2010-4-1 17:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 红发威武
 
 
-
-
-
-
-
 -----
 
 ####  wolfjw  
 ##### 16353#       发表于 2010-4-1 18:41
-
 
 
 <blockquote>紅髮: he is my father <img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer"> 
@@ -29197,32 +19797,19 @@ DGIL 发表于 2010-4-1 17:10 <[img src="http://bbs.saraba1st.com/2b/images/comm
 话说谁来告诉我哪一话提到红发和凯多在战，一直没印象看到过~
 
 
-
-
-
-
-
 -----
 
 ####  Cy114  
 ##### 16354#       发表于 2010-4-1 18:43
 
 
-
-
 我想看麦哲伦和凯多的情况啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wolfjw  
 ##### 16355#       发表于 2010-4-1 18:48
-
 
 
 <blockquote>我想看麦哲伦和凯多的情况啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -29242,25 +19829,13 @@ Cy114 发表于 2010-4-1 18:43 <[img src="http://bbs.saraba1st.com/2b/images/com
 大事件尾田自己都画得累了吧
 
 
-
-
-
-
-
 -----
 
 ####  wolfjw  
 ##### 16356#       发表于 2010-4-1 18:52
 
 
-
-
 顺便我想到个很好玩的比喻。玩过梦幻模拟战的知道每代都有最终超难隐藏关吧~大事件感觉就像是各势力出场混战级别都在接近99，然后主角就是个靠选关秘技跑进去游走战场靠技能博出位的40级指挥官……
-
-
-
-
-
 
 
 -----
@@ -29269,16 +19844,9 @@ Cy114 发表于 2010-4-1 18:43 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16357#       发表于 2010-4-1 19:02
 
 
-
-
 这个大事件结束的不能让我满意。。。。
 
 红发你早点变黑发吧
-
-
-
-
-
 
 
 -----
@@ -29287,22 +19855,14 @@ Cy114 发表于 2010-4-1 18:43 <[img src="http://bbs.saraba1st.com/2b/images/com
 ##### 16358#       发表于 2010-4-1 19:05
 
 
-
-
 組曲『ONE PIECE』，湿了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 [http://www.nicovideo.jp/watch/sm10219015](http://www.nicovideo.jp/watch/sm10219015)
-
-
-
-
-
 
 
 -----
 
 ####  stevenzero  
 ##### 16359#       发表于 2010-4-1 19:30
-
 
 
  本帖最后由 stevenzero 于 2010-4-1 19:36 编辑 
@@ -29316,17 +19876,10 @@ wolfjw 发表于 2010-4-1 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 [http://www.dm5.com/Comic/MH61/Comics-61575_b897ec26_page-3.htm](http://www.dm5.com/Comic/MH61/Comics-61575_b897ec26_page-3.htm)
 
 
-
-
-
-
-
 -----
 
 ####  qweqweqwe  
 ##### 16360#       发表于 2010-4-1 19:53
-
-
 
 
 胜负在白胡子被捅那一刻就确定了。这条计才是关键。
@@ -29338,16 +19891,10 @@ wolfjw 发表于 2010-4-1 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 海军没有胆子和一个无伤的四皇打，所以缩了。
 
 
-
-
-
-
-
 -----
 
 ####  heavy_d  
 ##### 16361#       发表于 2010-4-1 20:29
-
 
 
 <blockquote>明显红发团比第一卷帅多了.......红发你这么NB为什么会被一只小海怪咬掉胳膊<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
@@ -29357,16 +19904,10 @@ wolfjw 发表于 2010-4-1 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 杨过也是断手之后才开始猛的
 
 
-
-
-
-
-
 -----
 
 ####  yangxu  
 ##### 16362#       发表于 2010-4-1 20:32
-
 
 
 <blockquote>还收了情妇 收买了前敌人入团
@@ -29375,25 +19916,13 @@ wolfjw 发表于 2010-4-1 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 还得到了基友罗的鼎力相助
 
 
-
-
-
-
-
 -----
 
 ####  云狼  
 ##### 16363#       发表于 2010-4-1 23:32
 
 
-
-
 同意16417L~  八基才是路飞君将来最大的竞争对手
-
-
-
-
-
 
 
 -----
@@ -29402,14 +19931,7 @@ wolfjw 发表于 2010-4-1 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16364#       发表于 2010-4-2 00:34
 
 
-
-
 熊猫的汉化太傻逼了，装逼用繁体字然后还写错别字。
-
-
-
-
-
 
 
 -----
@@ -29418,14 +19940,7 @@ wolfjw 发表于 2010-4-1 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16365#       发表于 2010-4-2 00:46
 
 
-
-
 下周在WJ20上继续连载是什么意思？
-
-
-
-
-
 
 
 -----
@@ -29434,17 +19949,10 @@ wolfjw 发表于 2010-4-1 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16366#       发表于 2010-4-2 01:00
 
 
-
-
 巴基和红发都搅上了。。还和路飞搅啥哟。。。。
 
 
 另，红发对巴基真是温馨得很啊。。。哎。。。我感受到了男人的友情啊。。。
-
-
-
-
-
 
 
 -----
@@ -29453,15 +19961,9 @@ wolfjw 发表于 2010-4-1 18:41 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16367#       发表于 2010-4-2 01:07
 
 
-
 <blockquote>下周在WJ20上继续连载是什么意思？
 萌之试炼 发表于 2010-4-2 00:46 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 WEEK JUMP第20期?
-
-
-
-
-
 
 
 -----
@@ -29470,16 +19972,9 @@ WEEK JUMP第20期?
 ##### 16368#       发表于 2010-4-2 01:46
 
 
-
-
 现在编情报的素质真低，脑补就脑补干嘛发出来呢。
 
 巴基船长果然是最终的胜利者啊！
-
-
-
-
-
 
 
 -----
@@ -29488,16 +19983,10 @@ WEEK JUMP第20期?
 ##### 16369#       发表于 2010-4-2 02:28
 
 
-
 <blockquote>組曲『ONE PIECE』，湿了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 [http://www.nicovideo.jp/watch/sm10219015](http://www.nicovideo.jp/watch/sm10219015)
 芍药 发表于 2010-4-1 19:05 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 呜哇啾  汽车无双神了
-
-
-
-
-
 
 
 -----
@@ -29506,15 +19995,9 @@ WEEK JUMP第20期?
 ##### 16370#       发表于 2010-4-2 03:13
 
 
-
 <blockquote>明显红发团比第一卷帅多了.......红发你这么NB为什么会被一只小海怪咬掉胳膊<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 ★草泥马★ 发表于 2010-4-1 18:40 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 一直觉得这是个BUG，尾田那个时候还没想好，先不说实力什么的，那个海王类虽然不算最大的，但也是个海王类啊，个头不小啊，咬掉一个小小人类的一只手？ 就像一头狮子去咬掉一只蚊子的腿，那还真是个技术活，不好办到的啊！
-
-
-
-
-
 
 
 -----
@@ -29523,21 +20006,13 @@ WEEK JUMP第20期?
 ##### 16371#       发表于 2010-4-2 03:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">怎么又开始讨论胳膊和海王类的纠葛了
-
-
-
-
-
 
 
 -----
 
 ####  molilanmao  
 ##### 16372#       发表于 2010-4-2 04:20
-
-
 
 
 话说这下四皇的平衡确实被打破了啊
@@ -29551,16 +20026,10 @@ WEEK JUMP第20期?
 会不会变成众矢之的
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16373#       发表于 2010-4-2 08:04
-
 
 
 <blockquote>话说这下四皇的平衡确实被打破了啊
@@ -29578,26 +20047,15 @@ molilanmao 发表于 2010-4-2 04:20 <[img src="http://bbs.saraba1st.com/2b/image
 有人来打，红发会说：“给我个面子。。。”233
 
 
-
-
-
-
-
 -----
 
 ####  suika  
 ##### 16374#       发表于 2010-4-2 09:19
 
 
-
 <blockquote>顺便我想到个很好玩的比喻。玩过梦幻模拟战的知道每代都有最终超难隐藏关吧~大事件感觉就像是各势力出场混战级别都在接近99，然后主角就是个靠选关秘技跑进去游走战场靠技能博出位的40级指挥官…… ...
 wolfjw 发表于 2010-4-1 18:52 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 这个比喻赞，主角只能打打杂兵，对主将一点办法也没有……
-
-
-
-
-
 
 
 -----
@@ -29606,23 +20064,15 @@ wolfjw 发表于 2010-4-1 18:52 <[img src="http://bbs.saraba1st.com/2b/images/co
 ##### 16375#       发表于 2010-4-2 10:12
 
 
-
-
 跟红发混果然倍儿有面子
 
 大事件就这么结束，尾田你要学富奸吗？而且还休刊...
-
-
-
-
-
 
 
 -----
 
 ####  kaede1864  
 ##### 16376#       发表于 2010-4-2 10:31
-
 
 
  本帖最后由 kaede1864 于 2010-4-2 10:33 编辑 
@@ -29633,16 +20083,10 @@ wolfjw 发表于 2010-4-1 18:52 <[img src="http://bbs.saraba1st.com/2b/images/co
 更大规模的火并现在还不是时候啊
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16377#       发表于 2010-4-2 10:46
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">之前那些包袱抖的够精彩，战的很乱套了， 需要一个人直接给所有人浇个冷水。 红发本回的“给面子”没啥问题-V-，都在这里打完了以后还有戏唱么=V=
@@ -29663,25 +20107,13 @@ kaede1864 发表于 2010-4-2 10:31 <[img src="http://bbs.saraba1st.com/2b/images
 战国对红发早已是英雄相惜？
 
 
-
-
-
-
-
 -----
 
 ####  kaede1864  
 ##### 16378#       发表于 2010-4-2 10:54
 
 
-
-
 往简单里想就是红发黑白通吃人脉了得，往复杂里想就是这是一个未来的伏笔/坑，以后可以在合适的时候抖出什么料来的
-
-
-
-
-
 
 
 -----
@@ -29690,14 +20122,7 @@ kaede1864 发表于 2010-4-2 10:31 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16379#       发表于 2010-4-2 10:56
 
 
-
-
 从这个意义上讲跟着吧唧混还真是有面子~
-
-
-
-
-
 
 
 -----
@@ -29706,21 +20131,13 @@ kaede1864 发表于 2010-4-2 10:31 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16380#       发表于 2010-4-2 11:32
 
 
-
-
 新4皇， 吧唧船长<img src="https://static.saraba1st.com/image/smiley/face/98.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  南宮太平  
 ##### 16381#       发表于 2010-4-2 11:40
-
 
 
 <blockquote>红白的“给我个面子”让我一瞬间联想起了n多黑道电影
@@ -29738,26 +20155,15 @@ loli猫saki 发表于 2010-4-2 10:46 <[img src="http://bbs.saraba1st.com/2b/imag
 戰國: 你的話......<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  BartholemewKuma  
 ##### 16382#       发表于 2010-4-2 11:49
 
 
-
 在红狗身上，我似乎看到了一点我当年的影子。
 
 暴君，似乎是个很久远的回忆了……（翻开手中的圣经）
-
-
-
-
-
 
 
 -----
@@ -29766,17 +20172,10 @@ loli猫saki 发表于 2010-4-2 10:46 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16383#       发表于 2010-4-2 11:50
 
 
-
-
 吧唧这次结束后的赏金应该是绝对飙升。。。但是地位和名号就很难说了。。现在7五海空出来2个。。四皇空出来1个。。。不知道能不能轮到吧唧来填其中之一。。。。本次事件最后他明显在帮路飞。。。封7五海不太可能。。。但是要说封四皇，他战斗中的表现远远不合格。。。
 
 
 估计多半也就是赏金了
-
-
-
-
-
 
 
 -----
@@ -29785,22 +20184,15 @@ loli猫saki 发表于 2010-4-2 10:46 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16384#       发表于 2010-4-2 11:52
 
 
-
  本帖最后由 taichiY 于 2010-4-2 12:05 编辑 
 
 LSSS的自重
-
-
-
-
-
 
 
 -----
 
 ####  kangbaiyin  
 ##### 16385#       发表于 2010-4-2 11:53
-
 
 
 <blockquote>往简单里想就是红发黑白通吃人脉了得，往复杂里想就是这是一个未来的伏笔/坑，以后可以在合适的时候抖出什么料来的
@@ -29813,32 +20205,19 @@ kaede1864 发表于 2010-4-2 10:54 <[img src="http://bbs.saraba1st.com/2b/images
 3、红发手上有罗杰留的大杀器
 
 
-
-
-
-
-
 -----
 
 ####  TCTF  
 ##### 16386#       发表于 2010-4-2 13:21
 
 
-
-
 嗯，理论上大战结束该开始爆料了吧……说起来这次大战的篇幅不是很长啊……
-
-
-
-
-
 
 
 -----
 
 ####  叉和圈的ELF  
 ##### 16387#       发表于 2010-4-2 13:24
-
 
 
 <blockquote>在红狗身上，我似乎看到了一点我当年的影子。
@@ -29850,17 +20229,10 @@ BartholemewKuma 发表于 2010-4-2 11:49 <[img src="http://bbs.saraba1st.com/2b/
 是不是回复后重回革命军？
 
 
-
-
-
-
-
 -----
 
 ####  314156  
 ##### 16388#       发表于 2010-4-2 14:31
-
-
 
 
 经调查
@@ -29897,25 +20269,13 @@ BartholemewKuma 发表于 2010-4-2 11:49 <[img src="http://bbs.saraba1st.com/2b/
 据说还有热热果实
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 16389#       发表于 2010-4-2 14:37
 
 
-
-
 ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -29924,14 +20284,7 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16390#       发表于 2010-4-2 15:11
 
 
-
-
 新四皇肯定是几把了
-
-
-
-
-
 
 
 -----
@@ -29940,15 +20293,9 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16391#       发表于 2010-4-2 15:20
 
 
-
  本帖最后由 モトロ 于 2010-4-2 15:21 编辑 
 
 白胡子打青雉的时候就用过霸气了，570话还说明是霸王色
-
-
-
-
-
 
 
 -----
@@ -29957,21 +20304,13 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16392#       发表于 2010-4-2 15:31
 
 
-
-
 红发的意思就是路飞现在还 马达马达达捏……
-
-
-
-
-
 
 
 -----
 
 ####  革新  
 ##### 16393#       发表于 2010-4-2 16:24
-
 
 
  本帖最后由 革新 于 2010-4-2 16:25 编辑 
@@ -29988,27 +20327,15 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 哦对还有巴基这家伙应该和黑胡子差不多都是最得利的人。
 
 
-
-
-
-
-
 -----
 
 ####  JC_AR  
 ##### 16394#       发表于 2010-4-2 17:27
 
 
-
-
 做一回预言帝
 
 路飞失忆
-
-
-
-
-
 
 
 -----
@@ -30017,21 +20344,13 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16395#       发表于 2010-4-2 17:43
 
 
-
-
 因为激素的副作用什么的？
-
-
-
-
-
 
 
 -----
 
 ####  南宮太平  
 ##### 16396#       发表于 2010-4-2 17:43
-
 
 
  本帖最后由 南宮太平 于 2010-4-2 17:45 编辑 
@@ -30083,16 +20402,10 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 擋著路飛成為海賊王的只剩下兩個: 恩師. 紅髮及 生父. 龍!
 
 
-
-
-
-
-
 -----
 
 ####  红胡子海盗  
 ##### 16397#       发表于 2010-4-2 17:47
-
 
 
 <blockquote>再說一次, 表面上路飛被人打, 救不了哥哥, 看起來是個大輸家,
@@ -30109,16 +20422,10 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 原来说到底op就是披着日式少年漫的外皮的正统港漫口牙！！！<img src="https://static.saraba1st.com/image/smiley/face/157.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  洛伦兹变换  
 ##### 16398#       发表于 2010-4-2 18:02
-
 
 
  本帖最后由 洛伦兹变换 于 2010-4-2 18:03 编辑 
@@ -30128,16 +20435,10 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 看上去白插中他了其实白并没有插中他
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 16399#       发表于 2010-4-2 18:48
-
 
 
 <blockquote>既然聲望跟人脈已經得到, 白胡子跟艾斯還有活著的理由嗎?
@@ -30160,16 +20461,10 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 最让我印象深刻的，就是他第二次和砂姐打的时候，故意朝天空连喷数个水球，然后被吸干甩落在地，此时水球落下，救了他一命。
 
 
-
-
-
-
-
 -----
 
 ####  布伦希尔德  
 ##### 16400#       发表于 2010-4-2 19:48
-
 
 
 <blockquote>我们从路飞本人的性格，智力上来看看他会不会这么干。
@@ -30183,25 +20478,13 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 不是故意朝天喷的吧  是被沙姐抓住的时候想喷沙姐被躲开了   吸干落地水球掉下来复活完全是主角光坏了
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 16401#       发表于 2010-4-2 20:13
 
 
-
-
 跟着吧唧船长混,倍儿有面子!<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30210,14 +20493,7 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16402#       发表于 2010-4-2 20:13
 
 
-
-
 红发再强无伤战翻凯多和赶到海军总部这速度也太快了，和凯多冲突这事是烟雾弹吧
-
-
-
-
-
 
 
 -----
@@ -30226,14 +20502,7 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16403#       发表于 2010-4-2 20:31
 
 
-
-
 也许和凯多说了一样的话... <blockquote>这一次,就给我一个面子吧.</blockquote>
-
-
-
-
-
 
 
 -----
@@ -30242,21 +20511,13 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16404#       发表于 2010-4-2 20:48
 
 
-
-
 楼上说得对啊！如果真的象所有OP绝顶高手都罩着路飞的话，那他就没有发展的空间了，其实也是我们不愿意看到的。一个太子党成功有什么值得追捧的呢？
-
-
-
-
-
 
 
 -----
 
 ####  taichiY  
 ##### 16405#       发表于 2010-4-2 21:13
-
 
 
 <blockquote>再說一次, 表面上路飛被人打, 救不了哥哥, 看起來是個大輸家,
@@ -30270,16 +20531,10 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 这段描述怎么越看越像你的经历的....<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  燃夜郎君  
 ##### 16406#       发表于 2010-4-2 21:57
-
 
 
 <blockquote>不是故意朝天喷的吧  是被沙姐抓住的时候想喷沙姐被躲开了   吸干落地水球掉下来复活完全是主角光坏了
@@ -30291,16 +20546,10 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 被砂姐掐着脖子呢。
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16407#       发表于 2010-4-2 22:00
-
 
 
  本帖最后由 不败之狼 于 2010-4-2 22:10 编辑 
@@ -30317,32 +20566,19 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 不过我更倾向垂死挣扎。路飞怎么会知道克洛克当时要使出人干？没记错的话路飞当时还没见过这招，除了什么三日月斩
 
 
-
-
-
-
-
 -----
 
 ####  囧神  
 ##### 16408#       发表于 2010-4-2 22:03
 
 
-
-
 怎么看都是路飞的垂死挣扎…
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 16409#       发表于 2010-4-2 22:26
-
 
 
  本帖最后由 不败之狼 于 2010-4-2 22:27 编辑 
@@ -30374,27 +20610,15 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 主角光环这四个字先不用提了吧。
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 16410#       发表于 2010-4-2 22:30
 
 
-
-
 光环护体&amp;小强体质
 
 二者有一那便是主角呀<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30403,22 +20627,15 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16411#       发表于 2010-4-2 22:35
 
 
-
 <blockquote>在地下，克洛克如果使出上述几招中的任何一招，路飞根本没有胜算。流沙无处可躲
 不败之狼 发表于 2010-4-2 22:26 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 没用 克洛克根本没办法接近满身是血的人 路飞用带血的橡皮机关铳就能把变成沙子克洛克轰成猪头
-
-
-
-
-
 
 
 -----
 
 ####  不败之狼  
 ##### 16412#       发表于 2010-4-2 22:39
-
 
 
  本帖最后由 不败之狼 于 2010-4-2 22:49 编辑 
@@ -30431,25 +20648,13 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 再说克洛克可以学青鸡，自然化躲开攻击（而不是让攻击穿过自己），实际上在动画里克洛克也是这么做的。
 
 
-
-
-
-
-
 -----
 
 ####  ikusgca  
 ##### 16413#       发表于 2010-4-2 22:58
 
 
-
-
 吧唧的新赏金3亿<img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -30458,19 +20663,11 @@ ls说的怎么完全看不懂<img src="https://static.saraba1st.com/image/smiley
 ##### 16414#       发表于 2010-4-2 23:21
 
 
-
-
 就是沙姐在正上方抓着他脖子   垂死一击
-
-
-
-
 
 
 sj.jpg
 (24 KB, 下载次数: 4)
-
-
 
 
 下载附件
@@ -30479,24 +20676,7 @@ sj.jpg
 2010-4-2 23:21 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/pw/forumid_6/1004022321ef2405639d4101ae.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -30505,16 +20685,9 @@ sj.jpg
 ##### 16415#       发表于 2010-4-2 23:27
 
 
-
-
 老沙当时脑子晕了…
 
 说到底也还是主角光环…前面都“死”了两次了…
-
-
-
-
-
 
 
 -----
@@ -30523,14 +20696,7 @@ sj.jpg
 ##### 16416#       发表于 2010-4-3 00:25
 
 
-
-
 白胡子和艾斯的后事有红发办,小奥兹呢!!!就这么被忘了啊,明明还给了个镜头的
-
-
-
-
-
 
 
 -----
@@ -30539,14 +20705,7 @@ sj.jpg
 ##### 16417#       发表于 2010-4-3 00:26
 
 
-
-
 莫利亚正看着呢.
-
-
-
-
-
 
 
 -----
@@ -30555,21 +20714,13 @@ sj.jpg
 ##### 16418#       发表于 2010-4-3 02:05
 
 
-
-
 个人觉得莫里亚已经是过眼云烟了。。。接下来的戏份不多了。。
-
-
-
-
-
 
 
 -----
 
 ####  阿炜  
 ##### 16419#       发表于 2010-4-3 02:37
-
 
 
  本帖最后由 阿炜 于 2010-4-3 02:39 编辑 
@@ -30585,16 +20736,10 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 我比较关心的是白胡子海贼团留下的那些人怎么办
 
 
-
-
-
-
-
 -----
 
 ####  loli猫saki  
 ##### 16420#       发表于 2010-4-3 08:19
-
 
 
 <blockquote>也许和凯多说了一样的话...这一次,就给我一个面子吧.
@@ -30605,25 +20750,13 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 比起霸气，还是面子好用啊<img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zerock  
 ##### 16421#       发表于 2010-4-3 17:40
 
 
-
-
 白胡子海贼团船长二队三队（差不多）四队全挂了，还被海军日到要红发来解围，在新世界的威望-65535啊
-
-
-
-
-
 
 
 -----
@@ -30632,14 +20765,7 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16422#       发表于 2010-4-3 17:43
 
 
-
-
 莫里亚大概会成为第三个巴基，沦为一个搞笑角色
-
-
-
-
-
 
 
 -----
@@ -30648,14 +20774,7 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16423#       发表于 2010-4-3 18:20
 
 
-
-
 面子王 香克斯
-
-
-
-
-
 
 
 -----
@@ -30664,17 +20783,10 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16424#       发表于 2010-4-3 18:25
 
 
-
-
 因为红发和别人冲突的可能最小。
 
 
 不想当海贼王，只是为了旅行而当海贼。所以大家才卖他面子吧。当然实力还是最主要因素
-
-
-
-
-
 
 
 -----
@@ -30683,14 +20795,7 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16425#       发表于 2010-4-3 19:05
 
 
-
-
 真想看红发一只手怎么打，可惜啊可惜
-
-
-
-
-
 
 
 -----
@@ -30699,14 +20804,7 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16426#       发表于 2010-4-4 18:53
 
 
-
-
 红发用黯然销魂刀
-
-
-
-
-
 
 
 -----
@@ -30715,14 +20813,7 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16427#       发表于 2010-4-4 19:27
 
 
-
-
 红发的招数你们应该从他的裤子上看出来
-
-
-
-
-
 
 
 -----
@@ -30731,21 +20822,13 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16428#       发表于 2010-4-5 12:12
 
 
-
-
 刮腿毛？
-
-
-
-
-
 
 
 -----
 
 ####  水清君  
 ##### 16429#       发表于 2010-4-5 12:44
-
 
 
  本帖最后由 水清君 于 2010-4-5 12:46 编辑 
@@ -30759,25 +20842,13 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 至于说他不在乎善恶，顶多是不嫉恶如仇而已，而且这个和善良与否关系不大，因为嫉恶如仇的人不一定善良。
 
 
-
-
-
-
-
 -----
 
 ####  雅格特  
 ##### 16430#       发表于 2010-4-5 12:45
 
 
-
-
 红发的招数尾田还没想好。。。
-
-
-
-
-
 
 
 -----
@@ -30786,21 +20857,13 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ##### 16431#       发表于 2010-4-5 13:05
 
 
-
-
 出来混,面子都是别人给的....发哥的清凉装很不错啊
-
-
-
-
-
 
 
 -----
 
 ####  南宮太平  
 ##### 16432#       发表于 2010-4-5 16:15
-
 
 
 <blockquote>红发的招数尾田还没想好。。。
@@ -30810,17 +20873,10 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 這就是跟申公豹的\"道友請留步\" 齊名的絕招呀!
 
 
-
-
-
-
-
 -----
 
 ####  叉和圈的ELF  
 ##### 16433#       发表于 2010-4-5 16:34
-
-
 
 
 这种动画最后的汉尼拔好帅
@@ -30828,16 +20884,10 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 期待下周汉尼拔的表现
 
 
-
-
-
-
-
 -----
 
 ####  查内姆  
 ##### 16434#       发表于 2010-4-5 16:37
-
 
 
 <blockquote>不就是\"給我一個面子\" ?
@@ -30850,32 +20900,19 @@ rubicon 发表于 2010-4-2 20:31 <[img src="http://bbs.saraba1st.com/2b/images/c
 ps 不过红发之前和白胡子见面，让白胡子把艾斯招回来的时候，有没有说“给我一个面子”
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 16435#       发表于 2010-4-5 16:44
 
 
-
-
 很可惜,没有...
-
-
-
-
-
 
 
 -----
 
 ####  D.dragon  
 ##### 16436#       发表于 2010-4-5 17:05
-
 
 
 <blockquote>这么强的绝技，中了\"道友請留步\" 大法的，好像一个活下来的都没有
@@ -30886,33 +20923,19 @@ ps 不过红发之前和白胡子见面，让白胡子把艾斯招回来的时�
 这个怎么可能有，白胡子见他的时候已经说了红发只是罗杰船上一个小喽罗，红发也知道自己在他面前其实没有什么地位，怎么会说给我一个面子？
 
 
-
-
-
-
-
 -----
 
 ####  wolfjw  
 ##### 16437#       发表于 2010-4-5 19:25
 
 
-
-
 面子是高等级技能，用过一次要蓄力蓄半年的好伐？你们以为面子这种大招随便放放的啊~
-
-
-
-
-
 
 
 -----
 
 ####  碧梨  
 ##### 16438#       发表于 2010-4-5 20:52
-
-
 
 
 汉库克：<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">路飞……请让妾身上你的船
@@ -30926,16 +20949,10 @@ ps 不过红发之前和白胡子见面，让白胡子把艾斯招回来的时�
 路飞：<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">啊！原来是乌索普的姐姐啊，好吧！
 
 
-
-
-
-
-
 -----
 
 ####  迪奧  
 ##### 16439#       发表于 2010-4-5 22:54
-
 
 
 <blockquote>汉库克：<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">路飞……请让妾身上你的船
@@ -30950,25 +20967,13 @@ ps 不过红发之前和白胡子见面，让白胡子把艾斯招回来的时�
 碧梨 发表于 2010-4-5 20:52 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  雅格特  
 ##### 16440#       发表于 2010-4-6 00:25
 
 
-
-
 动画的人妖王挺失望的。。变丑了且声音居然没变。。。。体型也很违和。。。哎
-
-
-
-
-
 
 
 -----
@@ -30977,20 +20982,13 @@ ps 不过红发之前和白胡子见面，让白胡子把艾斯招回来的时�
 ##### 16441#       发表于 2010-4-6 12:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/46.gif" referrerpolicy="no-referrer">路飞的善良值都开始怀疑了……这个诡异又莫名的世界啊
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 16442#       发表于 2010-4-6 13:36
-
 
 
 <blockquote>迪奧 发表于 2010-4-5 22:54 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
@@ -31001,25 +20999,13 @@ ps 不过红发之前和白胡子见面，让白胡子把艾斯招回来的时�
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 剧情看来，目前有两个分支。。一是女帝追不上路飞然后一直追。。二就是追上了然后。。~
 
 
-
-
-
-
-
 -----
 
 ####  onizuka0929  
 ##### 16443#       发表于 2010-4-6 14:21
 
 
-
-
 我很欣慰自己所在的汉化组对女帝很有爱，基本上女帝的本子都做了
-
-
-
-
-
 
 
 -----
@@ -31028,15 +21014,9 @@ ps 不过红发之前和白胡子见面，让白胡子把艾斯招回来的时�
 ##### 16444#       发表于 2010-4-6 14:22
 
 
-
 <blockquote>我很欣慰自己所在的汉化组对女帝很有爱，基本上女帝的本子都做了
 onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 ……求下载……
-
-
-
-
-
 
 
 -----
@@ -31045,21 +21025,13 @@ onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16445#       发表于 2010-4-6 14:58
 
 
-
-
 万吨铜球
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 16446#       发表于 2010-4-6 16:23
-
 
 
  本帖最后由 DGIL 于 2010-4-6 17:35 编辑 
@@ -31070,26 +21042,15 @@ onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/imag
 另外~问下大家。。见过这本吗?
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 16447#       发表于 2010-4-6 16:47
 
 
-
 <blockquote>我很欣慰自己所在的汉化组对女帝很有爱，基本上女帝的本子都做了
 onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 求。。。求下载<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31098,14 +21059,7 @@ onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16448#       发表于 2010-4-6 18:23
 
 
-
-
 铜球MKII
-
-
-
-
-
 
 
 -----
@@ -31114,14 +21068,7 @@ onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16449#       发表于 2010-4-6 18:55
 
 
-
-
 给个关键字也行
-
-
-
-
-
 
 
 -----
@@ -31130,14 +21077,7 @@ onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16450#       发表于 2010-4-6 19:00
 
 
-
-
 铜球女帝福利<img src="https://static.saraba1st.com/image/smiley/face/104.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31146,14 +21086,7 @@ onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16451#       发表于 2010-4-6 20:23
 
 
-
-
 铜球女帝福利~
-
-
-
-
-
 
 
 -----
@@ -31162,21 +21095,13 @@ onizuka0929 发表于 2010-4-6 14:21 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16452#       发表于 2010-4-6 20:38
 
 
-
-
 求汉库克福利...目前只有一本
-
-
-
-
-
 
 
 -----
 
 ####  onizuka0929  
 ##### 16453#       发表于 2010-4-6 21:04
-
 
 
 <blockquote>排队球下载
@@ -31192,32 +21117,19 @@ DGIL 发表于 2010-4-6 16:23 <[img src="http://bbs.saraba1st.com/2b/images/comm
 汉化组对外的名字是第三帝国
 
 
-
-
-
-
-
 -----
 
 ####  萍踪已逝  
 ##### 16454#       发表于 2010-4-6 21:49
 
 
-
-
 铜球女帝福利~
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 16455#       发表于 2010-4-6 22:43
-
 
 
  本帖最后由 DGIL 于 2010-4-7 01:10 编辑 
@@ -31236,25 +21148,13 @@ onizuka0929 发表于 2010-4-6 21:04 <[img src="http://bbs.saraba1st.com/2b/imag
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 没找到呢。。。继续等福利
 
 
-
-
-
-
-
 -----
 
 ####  arcturus  
 ##### 16456#       发表于 2010-4-9 16:58
 
 
-
-
 论坛终于好了……
-
-
-
-
-
 
 
 -----
@@ -31263,22 +21163,13 @@ onizuka0929 发表于 2010-4-6 21:04 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16457#       发表于 2010-4-9 18:58
 
 
-
-
 木有OP的日子真寂寞。。。瞬间把火影死神猎人秒了。。。
-
-
-
-
-
 
 
 -----
 
 ####  鱼熊皆得  
 ##### 16458#       发表于 2010-4-9 21:09
-
-
 
 
 更新得  我开始关注美剧了·
@@ -31288,33 +21179,19 @@ onizuka0929 发表于 2010-4-6 21:04 <[img src="http://bbs.saraba1st.com/2b/imag
 后续有得搞·
 
 
-
-
-
-
-
 -----
 
 ####  =D_BOY=Damned  
 ##### 16459#       发表于 2010-4-9 21:38
 
 
-
-
 话说，金狮子的DVD/BD版什么时候出来？
-
-
-
-
-
 
 
 -----
 
 ####  カルト  
 ##### 16460#       发表于 2010-4-10 16:22
-
-
 
 
 23号でワンピがルフィ少年編終了巻頭41ページらしい。 $ `, 
@@ -31330,25 +21207,13 @@ onizuka0929 发表于 2010-4-6 21:04 <[img src="http://bbs.saraba1st.com/2b/imag
 <img src="http://image161.poco.cn/mypoco/myphoto/20100407/19/5347459520100407194731071.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 16461#       发表于 2010-4-10 16:30
 
 
-
-
 ！！！　什么真的假得？　　青年篇？　　草帽和女帝要有结果了，，
-
-
-
-
-
 
 
 -----
@@ -31357,22 +21222,13 @@ onizuka0929 发表于 2010-4-6 21:04 <[img src="http://bbs.saraba1st.com/2b/imag
 ##### 16462#       发表于 2010-4-10 16:32
 
 
-
-
 ONE PIECE Z
-
-
-
-
-
 
 
 -----
 
 ####  hallyse  
 ##### 16463#       发表于 2010-4-10 16:33
-
-
 
 
 。。。。。。。。。。。
@@ -31382,25 +21238,13 @@ ONE PIECE Z
 这青年篇是不是意味着要跳过好几年？
 
 
-
-
-
-
-
 -----
 
 ####  www151007  
 ##### 16464#       发表于 2010-4-10 16:36
 
 
-
-
 青年篇 巴基一下子从撒旦类角色边成 很正经的实力派四皇之一吗？
-
-
-
-
-
 
 
 -----
@@ -31409,22 +21253,13 @@ ONE PIECE Z
 ##### 16465#       发表于 2010-4-10 16:44
 
 
-
-
 希望这是假情报.......
-
-
-
-
-
 
 
 -----
 
 ####  長瀨香夏子  
 ##### 16466#       发表于 2010-4-10 16:46
-
-
 
 
 惊到了
@@ -31434,25 +21269,13 @@ ONE PIECE Z
 于是来个时间跳跃了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16467#       发表于 2010-4-10 16:50
 
 
-
-
 希望青年篇突入
-
-
-
-
-
 
 
 -----
@@ -31461,14 +21284,7 @@ ONE PIECE Z
 ##### 16468#       发表于 2010-4-10 16:52
 
 
-
-
 星期五昆仑有人说的。
-
-
-
-
-
 
 
 -----
@@ -31477,14 +21293,7 @@ ONE PIECE Z
 ##### 16469#       发表于 2010-4-10 17:02
 
 
-
-
 这是要OPZ了么，路飞和女帝要生小路飞了么
-
-
-
-
-
 
 
 -----
@@ -31493,14 +21302,7 @@ ONE PIECE Z
 ##### 16470#       发表于 2010-4-10 17:07
 
 
-
-
 龙珠Z发来贺电~~~我等着看路飞儿子长啥样
-
-
-
-
-
 
 
 -----
@@ -31509,14 +21311,7 @@ ONE PIECE Z
 ##### 16471#       发表于 2010-4-10 17:33
 
 
-
-
 休4周…………尾田你别爬山啊~~~~
-
-
-
-
-
 
 
 -----
@@ -31525,16 +21320,9 @@ ONE PIECE Z
 ##### 16472#       发表于 2010-4-10 17:37
 
 
-
-
 休4周飞4年...?
 
 希望时间跨度别这么大...
-
-
-
-
-
 
 
 -----
@@ -31543,14 +21331,7 @@ ONE PIECE Z
 ##### 16473#       发表于 2010-4-10 18:13
 
 
-
-
 OP继续神展开么。。。
-
-
-
-
-
 
 
 -----
@@ -31559,14 +21340,7 @@ OP继续神展开么。。。
 ##### 16474#       发表于 2010-4-10 18:14
 
 
-
-
 哎呦……这……这，zoro这下能过上有时三次有时两次的生活，sanji看样也能过上吧……日本的青年是20岁吧，4年太长了，2年可以接受……
-
-
-
-
-
 
 
 -----
@@ -31575,21 +21349,13 @@ OP继续神展开么。。。
 ##### 16475#       发表于 2010-4-10 18:22
 
 
-
-
 真是17岁最后一次？？大家猜哈下次出来时路飞几岁？？<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  onizuka0929  
 ##### 16476#       发表于 2010-4-10 18:26
-
 
 
 <blockquote><img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer"> 谢过。。去找找关键字的福利看看
@@ -31605,26 +21371,15 @@ DGIL 发表于 2010-4-6 22:43 <[img src="http://bbs.saraba1st.com/2b/images/comm
 你说的那本我也只是在虎之穴看到的。。。没看到有人扫。汉化本的话，老大不让外传。第三帝国的本子可以去2DJ找
 
 
-
-
-
-
-
 -----
 
 ####  pei1019  
 ##### 16477#       发表于 2010-4-10 18:27
 
 
-
 <blockquote>真是17岁最后一次？？大家猜哈下次出来时路飞几岁？？<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images/common/back.gif" referrerpolicy="no-referrer"></blockquote>
 我猜22！<img src="https://static.saraba1st.com/image/smiley/face/27.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31633,14 +21388,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16478#       发表于 2010-4-10 18:30
 
 
-
-
 铜球女帝本<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -31649,14 +21397,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16479#       发表于 2010-4-10 18:41
 
 
-
-
 我了个草这太神了！就说路飞不到20就拿到one piece的话让混新世界混了几十年的老油棍情何以堪
-
-
-
-
-
 
 
 -----
@@ -31665,14 +21406,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16480#       发表于 2010-4-10 18:45
 
 
-
-
 过了几年,就应该是革命军和世界政府打的火热的时代了.
-
-
-
-
-
 
 
 -----
@@ -31681,13 +21415,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16481#       发表于 2010-4-10 18:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">nb大了...等看OPZ
-
-
-
-
-
 
 
 -----
@@ -31696,14 +21424,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16482#       发表于 2010-4-10 19:08
 
 
-
-
 我靠！！！！！！！！！！！！！这下有搞头……
-
-
-
-
-
 
 
 -----
@@ -31712,14 +21433,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16483#       发表于 2010-4-10 19:37
 
 
-
-
 少年篇画了N年，青年篇得画多久。。。
-
-
-
-
-
 
 
 -----
@@ -31728,17 +21442,10 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16484#       发表于 2010-4-10 19:40
 
 
-
 <strong> [16555#](http://bbs.saraba1st.com/2b/redirect.php?goto=findpost&amp;pid=11587223&amp;ptid=98922) daddyno321 </strong>
 
 
-
 怎么也得二十年.
-
-
-
-
-
 
 
 -----
@@ -31747,14 +21454,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16485#       发表于 2010-4-10 20:01
 
 
-
-
 画20年更好,这漫画我能看一辈子
-
-
-
-
-
 
 
 -----
@@ -31763,14 +21463,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16486#       发表于 2010-4-10 20:22
 
 
-
-
 休刊四周变青年…草帽队会聚集还是在青年篇慢慢找？
-
-
-
-
-
 
 
 -----
@@ -31779,14 +21472,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16487#       发表于 2010-4-10 20:24
 
 
-
-
 我艹 神展开
-
-
-
-
-
 
 
 -----
@@ -31795,14 +21481,7 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16488#       发表于 2010-4-10 20:33
 
 
-
-
 真出青年篇我就攒三个月的连载再开始看
-
-
-
-
-
 
 
 -----
@@ -31811,21 +21490,13 @@ notromeo 发表于 2010-4-10 18:22 <[img src="http://bbs.saraba1st.com/2b/images
 ##### 16489#       发表于 2010-4-10 20:50
 
 
-
-
 是不是要和女帝生个叫艾斯的儿子？
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 16490#       发表于 2010-4-11 00:12
-
 
 
 <blockquote>你说的那本我也只是在虎之穴看到的。。。没看到有人扫。汉化本的话，老大不让外传。第三帝国的本子可以去2DJ找
@@ -31850,25 +21521,13 @@ onizuka0929 发表于 2010-4-10 18:26 <[img src="http://bbs.saraba1st.com/2b/ima
 然后一起出海么？
 
 
-
-
-
-
-
 -----
 
 ####  mouse  
 ##### 16491#       发表于 2010-4-11 00:24
 
 
-
-
 十八岁或者二十岁得了，鸣人跳了几年出来的？
-
-
-
-
-
 
 
 -----
@@ -31877,21 +21536,13 @@ onizuka0929 发表于 2010-4-10 18:26 <[img src="http://bbs.saraba1st.com/2b/ima
 ##### 16492#       发表于 2010-4-11 00:28
 
 
-
-
 太子忍跟着好色仙人练了两年半.
-
-
-
-
-
 
 
 -----
 
 ####  kvkv  
 ##### 16493#       发表于 2010-4-11 00:30
-
 
 
 <blockquote>休刊四周变青年…草帽队会聚集还是在青年篇慢慢找？
@@ -31904,32 +21555,19 @@ onizuka0929 发表于 2010-4-10 18:26 <[img src="http://bbs.saraba1st.com/2b/ima
 又不是个个都是路痴,找香波地岛能有多难啊?
 
 
-
-
-
-
-
 -----
 
 ####  xtiger  
 ##### 16494#       发表于 2010-4-11 00:33
 
 
-
-
 不是吧 这跳跃的 尾田我便是估不到你呀！
-
-
-
-
-
 
 
 -----
 
 ####  hagane  
 ##### 16495#       发表于 2010-4-11 00:46
-
 
 
 <blockquote>都以年来作计量单位了,为什么还不聚集?
@@ -31940,32 +21578,19 @@ kvkv 发表于 2010-4-11 00:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 熊猫那边都开赌局了...
 
 
-
-
-
-
-
 -----
 
 ####  dongch007  
 ##### 16496#       发表于 2010-4-11 00:59
 
 
-
-
 我整个人都惊悚了.....
-
-
-
-
-
 
 
 -----
 
 ####  xiv  
 ##### 16497#       发表于 2010-4-11 02:29
-
 
 
 <blockquote>都以年来作计量单位了,为什么还不聚集?
@@ -31985,16 +21610,10 @@ kvkv 发表于 2010-4-11 00:30 <[img src="http://bbs.saraba1st.com/2b/images/com
 希望第一回的末尾女王默默看着路飞一个人再次出航，同时手抚腹部XD
 
 
-
-
-
-
-
 -----
 
 ####  gooas  
 ##### 16498#       发表于 2010-4-11 04:37
-
 
 
 <blockquote>如果真的开新章，
@@ -32016,16 +21635,10 @@ xiv 发表于 2010-4-11 02:29 <[img src="http://bbs.saraba1st.com/2b/images/comm
 骗人布和大小姐的孩子<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  taichiY  
 ##### 16499#       发表于 2010-4-11 08:39
-
 
 
 <blockquote>硬要说的话，可能是大事件后对草帽团的搜捕加紧了
@@ -32040,17 +21653,10 @@ xiv 发表于 2010-4-11 02:29 <[img src="http://bbs.saraba1st.com/2b/images/comm
 这个必须有!
 
 
-
-
-
-
-
 -----
 
 ####  不败之狼  
 ##### 16500#       发表于 2010-4-11 09:15
-
-
 
 
 船上老少集合挺好的。
@@ -32060,8 +21666,5 @@ xiv 发表于 2010-4-11 02:29 <[img src="http://bbs.saraba1st.com/2b/images/comm
 
 
 顺便路飞终于要长个儿了……
-
-
-
 
 

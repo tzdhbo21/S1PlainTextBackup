@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2021-01-04 11:16** 
 
 
-
 -----
 
 ####  ビィ  
 ##### 1#       楼主       发表于 2015-9-26 23:32
-
 
 
  本帖最后由 captoon 于 2020-4-17 00:26 编辑 
@@ -80,8 +78,6 @@ Director：福原哲也
 [原专楼，已废弃](http://bbs.saraba1st.com/2b/thread-1005694-1-1.html)
 
 
-
-
 -------------------------------------------游戏分割------------------------------------------
 目前版本除了只存在于理论的极限队伍(没有人能做到),最强装备基本是不需要氪金的(召唤需要)
 
@@ -90,7 +86,6 @@ Director：福原哲也
 新人入坑自选推荐(新ID在7天之内可以获得一次3000yen购买10连+自选除了部分召唤兽以外的任何SSR,没买的话日后会复刻)
 
 <img src="http://i250.photobucket.com/albums/gg275/tony23123/QQ20150921112537_zpsudzsytrg.jpg" referrerpolicy="no-referrer">当然只是一个推荐,真正选谁请遵从自己的感性(误
-
 
 
 新人入坑优先将主线进行至8章开启赌场,赌场内每个月可以交换100个1/2AP药,200个BP豆
@@ -103,10 +98,7 @@ Director：福原哲也
 非活动期间/活动非multi时候BP留着蹭名字为xxxxxxx・マグナ的BOSS(6种属性各一个)掉落的SSR武器暂时是用一辈子的
 
 
-
-
 -----------------------------------------------------------------
-
 
 
 赌场攻略
@@ -121,7 +113,6 @@ Director：福原哲也
 赌场有3种项目,poker slot bingo,一项一项来说
 
 
-
 poker:
 
 GBF赌场poker使用的是fullhouse规则,这是第一次进赌场的你累计初始筹码的唯一手段
@@ -133,21 +124,13 @@ poker分2个玩法和3个等级,,玩法分为1CARD和2ARD,目前只说2card,1car
 2CARD的初中高级分别为基本赌注1/10/100,收获上限为500/5000/50000(超过此额度将无法double)
 
 
-
 捡取散落的筹码后身上大约有数百的筹码,首先进入初级积累原始资本,当筹码超过1000后就可以进入中级,中级将筹码增加到1-2万后则有了高级的原始资本
-
 
 
 以下为具体规则:
 
 
-
-
-
 游戏开始后,玩家将获得5张随机扑克,玩家可以选择0-5张扑克保留,未被保留的扑克将会被交换,交换完毕后根据手上5张扑克的牌型决定胜负,胜利后进入double阶段
-
-
-
 
 
 扑克的牌型:
@@ -191,15 +174,9 @@ royal straight flush:皇家**,由10 J Q K A组成的**,WIN 倍率200
 double将在你胜利到赌注超过最大数值后自动终止,以及double的次数超过10次时终止.你也可以在任意胜利或者平局选择不继续double以拿到目前的赌注
 
 
-
 poker的另一个规则one card前半部分完全相同,只是在double阶段只有一张暗卡,此时如果选择up.卡片数字大于8时候胜利,选DOWN,卡片数字小于7时候胜利,卡片为JOKER时候强制输,A则是强制胜利
 
 1card的double次数不设上限
-
-
-
-
-
 
 
 slot:
@@ -209,12 +186,6 @@ slot:
 100筹码场中的777出现时获得jackpot,将获得1000万+alpha的筹码(具体数字在赌场背景点击右边会出现,当有人中了后奖池就会被清至1000万,然后会慢慢增加直到下一个中jackpot的玩家)
 
 此项目入不敷出,除了想拿称号以外并不推荐
-
-
-
-
-
-
 
 
 bingo:
@@ -253,118 +224,49 @@ bingo时将按房间内玩家bingo的顺序获得筹码,1位10万,2位5万,3位2
 获得筹码后可以去景品交换换取对游戏非常有用的道具,等着再写
 
 
-
 说了这么多,以上其实全是废话,赌场百战百胜秘笈请进群获取
 
 
-
-
-
-
-
-
-
-
-
-
-
-
  *本主题由 System 于 2020-8-26 10:00 解除限时高亮* 
-
-
-
-
-
 
 
 QQ图片20170523221731.jpg
 (109.46 KB, 下载次数: 318)
 
 
-
-
 下载附件
 
 
 2017-5-23 21:18 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201705/23/211801iody5eb7epfgq5nn.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 6f357c1c.png
 (22.06 KB, 下载次数: 301)
 
 
-
-
 下载附件
 
 
 2017-5-23 21:18 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201705/23/211803nzvvlcziahtt9d79.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 c62d1332.png
 (17.08 KB, 下载次数: 311)
 
 
-
-
 下载附件
 
 
 2017-5-23 21:18 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201705/23/211805w8b9tcfm99q4kb99.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -373,14 +275,7 @@ c62d1332.png
 ##### 2#       发表于 2015-9-26 23:39
 
 
-
-
 沙发
-
-
-
-
-
 
 
 -----
@@ -389,13 +284,7 @@ c62d1332.png
 ##### 3#       发表于 2015-9-26 23:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -404,14 +293,7 @@ c62d1332.png
 ##### 4#       发表于 2015-9-26 23:40
 
 
-
-
 板凳<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -420,14 +302,7 @@ c62d1332.png
 ##### 5#       发表于 2015-9-26 23:41
 
 
-
-
 现在有终解人物UP，赶快来为世界第一可爱的本大爷课金啦
-
-
-
-
-
 
 
 -----
@@ -436,13 +311,7 @@ c62d1332.png
 ##### 6#       发表于 2015-9-26 23:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">前排
-
-
-
-
-
 
 
 -----
@@ -451,16 +320,10 @@ c62d1332.png
 ##### 7#       发表于 2015-9-26 23:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30276730&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-9-26 23:41</a>
 
 现在有终解人物UP，赶快来为世界第一可爱的本大爷课金啦</blockquote>
 已经在你身上花了6w嫖资了，连个手都不给摸简直差评
-
-
-
-
-
 
 
 -----
@@ -471,21 +334,13 @@ c62d1332.png
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ウーナ  
 ##### 9#       发表于 2015-9-27 00:00
 
 
-
-
 明明是人气第三，我的SSR却连个影子都看不到。
-
-
-
-
-
 
 
 -----
@@ -496,12 +351,10 @@ c62d1332.png
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ビィ  
 ##### 11#         楼主| 发表于 2015-9-27 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30276954&amp;ptid=1158205" target="_blank">ウーナ 发表于 2015-9-27 00:00</a>
@@ -510,32 +363,19 @@ c62d1332.png
 @春田康一　又到了丢锅时间了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 12#       发表于 2015-9-27 00:10
 
 
-
-
 前排留名。
-
-
-
-
-
 
 
 -----
 
 ####  ビィ  
 ##### 13#         楼主| 发表于 2015-9-27 00:24
-
 
 
  本帖最后由 ビィ 于 2015-9-27 01:49 编辑 
@@ -563,28 +403,15 @@ TGS情报：公众日活动无直播，各种来源说法不一，最重要的�
 今后版本的主题将是霸空战争
 
 
-
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 14#       发表于 2015-9-27 02:15
 
 
-
-
 这个ビィ好正经    没有魔性好不习惯
 
 休闲玩家参上
-
-
-
-
-
 
 
 -----
@@ -593,24 +420,16 @@ TGS情报：公众日活动无直播，各种来源说法不一，最重要的�
 ##### 15#       发表于 2015-9-27 02:36
 
 
-
-
 据说过几天又有6%？
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 16#       发表于 2015-9-27 06:56
-
 
 
  本帖最后由 センコウ 于 2015-9-27 06:58 编辑 
@@ -623,25 +442,13 @@ TGS情报：公众日活动无直播，各种来源说法不一，最重要的�
 +1确认到28号结束,活动gacha要30号晚上才会开
 
 
-
-
-
-
-
 -----
 
 ####  silens  
 ##### 17#       发表于 2015-9-27 08:32
 
 
-
-
 哇，开新楼了
-
-
-
-
-
 
 
 -----
@@ -650,20 +457,13 @@ TGS情报：公众日活动无直播，各种来源说法不一，最重要的�
 ##### 18#       发表于 2015-9-27 08:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">那么求问下新入坑的话，这次活动和我有关系吗
-
-
-
-
-
 
 
 -----
 
 ####  himtom  
 ##### 19#       发表于 2015-9-27 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30278622&amp;ptid=1158205" target="_blank">烂菊花 发表于 2015-9-27 08:53</a>
@@ -679,16 +479,10 @@ TGS情报：公众日活动无直播，各种来源说法不一，最重要的�
 说到底，GBF活动处于开个不停的状态，入坑的时候是什么活动根本无所谓
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 20#         楼主| 发表于 2015-9-27 10:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30278622&amp;ptid=1158205" target="_blank">烂菊花 发表于 2015-9-27 08:53</a>
@@ -700,17 +494,10 @@ TGS情报：公众日活动无直播，各种来源说法不一，最重要的�
 30日又到了剧情活动时间，作为gbf早期伏线悬而未决至今的一名骑士和一名王子之间错综的基情史，如今终于迎来其应得的诉说，敬请期待<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 21#       发表于 2015-9-27 11:11
-
-
 
 
 gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧情印象最深的就是王子那边给光骑补完的部分，总觉得有点九井谅子的味道
@@ -723,25 +510,13 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 以前可以解释说是以己为负罪之身。身心负伤未尽全力啥的，但是现在要英雄再起了也还是SR，还要被迫改属性，万恶的资本和HRT啊！
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 22#       发表于 2015-9-27 12:01
 
 
-
-
 啥都好快点5破雅典娜吧，脸都被哪咤打肿了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -750,23 +525,16 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 ##### 23#       发表于 2015-9-27 13:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/42.gif" referrerpolicy="no-referrer"> 
 
 
 魔性ビィ
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 24#         楼主| 发表于 2015-9-27 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30277798&amp;ptid=1158205" target="_blank">鱼缸 发表于 2015-9-27 02:15</a>
@@ -779,17 +547,10 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 其实真正的爱好是面对虚空思考种种哲学命题
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 25#       发表于 2015-9-27 15:09
-
-
 
 
 這次星戰到29號，下次重開新的，那沒抽到10天武器會重置？那不是至少得抽出一把才不虧。。。。
@@ -798,17 +559,10 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 順便那個gacha模擬器是什麼鬼。。。。
 
 
-
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 26#       发表于 2015-9-27 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30281183&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-9-27 15:09</a>
@@ -822,25 +576,13 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 不过这次如果不幸没能满破 下次还可以选同样的武器接着抽
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 27#       发表于 2015-9-27 16:57
 
 
-
-
 新楼打卡，顶楼的扭蛋模拟器不科学，真按照上面的结果出荷的话我早破产了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -849,7 +591,6 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 ##### 28#       发表于 2015-9-27 16:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30279092&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-9-27 10:13</a>
 
 每天进活动页面领下药，有多余的bp就摸摸那些眼啊牛什么的，蹭点战货抽一下，其他的目前不用管了
@@ -857,11 +598,6 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 
 30日又 ...</blockquote>
 然而这个月的最终解放是没什么人期待的アーミラ而不是王子，天诛FKHR
-
-
-
-
-
 
 
 -----
@@ -870,7 +606,6 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 ##### 29#       发表于 2015-9-27 16:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30279092&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-9-27 10:13</a>
 
 每天进活动页面领下药，有多余的bp就摸摸那些眼啊牛什么的，蹭点战货抽一下，其他的目前不用管了
@@ -880,32 +615,19 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 然而这个月的最终解放是没什么人期待的アーミラ而不是王子，天诛FKHR
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 30#       发表于 2015-9-27 17:00
 
 
-
-
 不用男人的就我一个？<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  cowgp01  
 ##### 31#       发表于 2015-9-27 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30281635&amp;ptid=1158205" target="_blank">vazoe 发表于 2015-9-27 16:16</a>
@@ -915,25 +637,13 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 爱多撸皮肤是买CD送的，羊的皮肤大概没了
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 32#       发表于 2015-9-27 17:05
 
 
-
-
 羊皮也许和羊一起再开个一次,然后再抽不到的话请等12年以后
-
-
-
-
-
 
 
 -----
@@ -942,16 +652,9 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 ##### 33#       发表于 2015-9-27 17:06
 
 
-
-
 前排留名（滚啦）
 
 千年农场GBF，现在开始了哟~
-
-
-
-
-
 
 
 -----
@@ -960,14 +663,7 @@ gacha抽到的第一个SSR人物是王子，那时候手头上的角色个人剧
 ##### 34#       发表于 2015-9-27 17:55
 
 
-
-
 GBF要完成回避男人很难啦，就像这次上了炎帝基本就是把牛吊起来打，不愧是可以用钱买到的十天，强到我这种黑逢坂的也厨了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -976,16 +672,9 @@ GBF要完成回避男人很难啦，就像这次上了炎帝基本就是把牛�
 ##### 35#       发表于 2015-9-27 19:16
 
 
-
-
 炎帝鸟人军师
 
 BY 蛇
-
-
-
-
-
 
 
 -----
@@ -994,16 +683,9 @@ BY 蛇
 ##### 36#       发表于 2015-9-27 19:17
 
 
-
-
 不过说起来，我觉得这游戏里基佬算个性很鲜明的了，用起来没有什么抵触
 
 鸟人五破剧情特别感动
-
-
-
-
-
 
 
 -----
@@ -1012,14 +694,7 @@ BY 蛇
 ##### 37#       发表于 2015-9-27 20:21
 
 
-
-
 GBF的男人塑造不错，牛头巨汉就不用说，池面大部分都很阳光，极少娘炮，装逼男，当然SIDEM过来就不知道会怎样了
-
-
-
-
-
 
 
 -----
@@ -1028,13 +703,7 @@ GBF的男人塑造不错，牛头巨汉就不用说，池面大部分都很阳�
 ##### 38#         楼主| 发表于 2015-9-27 20:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">白石和技安中之人配的那种基佬别的游戏哪里找嘛
-
-
-
-
-
 
 
 -----
@@ -1043,23 +712,15 @@ GBF的男人塑造不错，牛头巨汉就不用说，池面大部分都很阳�
 ##### 39#       发表于 2015-9-27 23:03
 
 
-
-
 黑逢坂但是厨炎帝+1
 
 gbf男角色里特别招人讨厌的也就娘炮ELT和セイラン吧，我个人觉得sidem的柏木翼声音还可以接受但是放到这边来可能会被喷到飞起<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ビィ  
 ##### 40#         楼主| 发表于 2015-9-27 23:15
-
 
 
  本帖最后由 ビィ 于 2015-9-27 23:20 编辑 
@@ -1074,16 +735,10 @@ gbf男角色里特别招人讨厌的也就娘炮ELT和セイラン吧，我个�
 GBF史上新高峰，ACSG最后的挽歌
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 41#       发表于 2015-9-27 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30284554&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-9-27 23:15</a>
@@ -1094,16 +749,10 @@ GBF史上新高峰，ACSG最后的挽歌
 这不是大花火vsエアコン吗。。
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 42#         楼主| 发表于 2015-9-28 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30284613&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-27 23:40</a>
@@ -1112,16 +761,10 @@ GBF史上新高峰，ACSG最后的挽歌
 Air Complex Second Generation简称ACSG
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 43#         楼主| 发表于 2015-9-28 00:50
-
 
 
  本帖最后由 ビィ 于 2015-10-9 00:11 编辑 
@@ -1162,7 +805,6 @@ Cygames特供GBF现场音乐会
 cy动画事业部与project No.9共同制作的宣传动画短片（并非正式动画化的pv)，描述猩猩与病娇士官学校时代的过往
 
 
-
 新闻：
 [アニメ化や新イベントなど新情報満載の『グランブルーファンタジー』――同作プロデューサー・春田康一氏にTGS会場で直撃【TGS2015】](http://www.famitsu.com/news/201509/18088906.html)
 
@@ -1189,18 +831,10 @@ Secret Stage发布的角色歌第二弹「ソラのミチシルベ」
 tgs最终日secret stage/动画化座谈会的repo
 
 
-
-
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 44#         楼主| 发表于 2015-9-28 02:26
-
 
 
  本帖最后由 ビィ 于 2015-9-28 19:33 编辑 
@@ -1317,35 +951,19 @@ EX技能也会因应奥义槽的状态变化；
 11月多人战实装lv Unknown的Rose Queen/星晶兽状态的湿布BBA。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  zechin  
 ##### 45#       发表于 2015-9-28 02:37
 
 
-
-
 哔什么时候突然那么勤劳了
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 46#       发表于 2015-9-28 03:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30281969&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-9-27 17:00</a>
@@ -1355,16 +973,10 @@ EX技能也会因应奥义槽的状态变化；
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">虽然不能说这游戏的战斗力是男人撑起来的   但是没男人用的话只能去吃土了
 
 
-
-
-
-
-
 -----
 
 ####  gunbird  
 ##### 47#       发表于 2015-9-28 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30285893&amp;ptid=1158205" target="_blank">鱼缸 发表于 2015-9-28 03:11</a>
@@ -1375,32 +987,19 @@ EX技能也会因应奥义槽的状态变化；
 我觉得，暗属性还是能把男人都T掉的！
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 48#       发表于 2015-9-28 10:12
 
 
-
-
 这不是我认识的哔！
-
-
-
-
-
 
 
 -----
 
 ####  ビィ  
 ##### 49#         楼主| 发表于 2015-9-28 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30285717&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-9-28 02:26</a>
@@ -1421,17 +1020,10 @@ EX技能也会因应奥义槽的状态变化；
 有点想给HRT生孩子怎么办！
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 50#       发表于 2015-9-28 12:20
-
-
 
 
 那4职业感觉就是剑圣会强，其他玩感太重，目前来说用不上，当然可能以后的超大型BOSS有奇效。
@@ -1443,16 +1035,10 @@ Defend Order就是岛上出现紧急任务，然后做任务刷BUFF，打超大�
 反正总结起来就是一个字，肝！！！
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 51#         楼主| 发表于 2015-9-28 12:22
-
 
 
 [http://prtimes.jp/main/html/rd/p/000000296.000005593.html](http://prtimes.jp/main/html/rd/p/000000296.000005593.html)
@@ -1476,17 +1062,10 @@ Defend Order就是岛上出现紧急任务，然后做任务刷BUFF，打超大�
 实际性能大概要看spitfire到底啥效果和有啥被动了
 
 
-
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 52#         楼主| 发表于 2015-9-28 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289118&amp;ptid=1158205" target="_blank">cowgp01 发表于 2015-9-28 12:20</a>
@@ -1497,16 +1076,10 @@ Defend Order ...</blockquote>
 tgs限定活动的刷buff机制是考虑到新人玩家尤其是现场入坑的人也能充分体验活动的乐趣才加入的，Defend Order实装后大概不会保留，毕竟还是要撕逼和貌似有ranking啥的
 
 
-
-
-
-
-
 -----
 
 ####  ウーナ  
 ##### 53#       发表于 2015-9-28 13:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289135&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-9-28 12:22</a>
@@ -1517,16 +1090,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 拉卡姆大叔没有自爆有些奇怪呢
 
 
-
-
-
-
-
 -----
 
 ####  330103  
 ##### 54#       发表于 2015-9-28 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289692&amp;ptid=1158205" target="_blank">ウーナ 发表于 2015-9-28 13:07</a>
@@ -1535,16 +1102,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 说不定スピットファイア叠到一定层数就ラカムゥゥゥ了
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 55#       发表于 2015-9-28 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30287631&amp;ptid=1158205" target="_blank">gunbird 发表于 2015-9-28 10:08</a>
@@ -1557,16 +1118,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 男人好搞  大巴难啊
 
 
-
-
-
-
-
 -----
 
 ####  gunbird  
 ##### 56#       发表于 2015-9-28 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30291835&amp;ptid=1158205" target="_blank">鱼缸 发表于 2015-9-28 16:32</a>
@@ -1579,16 +1134,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 鱼缸你嘲讽我抽不到路霸杂！绝交！<img src="https://static.saraba1st.com/image/smiley/goose/d.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 57#         楼主| 发表于 2015-9-28 17:45
-
 
 
  本帖最后由 ビィ 于 2015-9-28 17:47 编辑 
@@ -1598,25 +1147,13 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 <img src="http://ww3.sinaimg.cn/large/005Tohs2gw1ewib3541zij30hs0ae784.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 58#       发表于 2015-9-28 18:05
 
 
-
-
 6%之前放姐姐的情报，到底是良心还是残忍<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1625,16 +1162,9 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 ##### 59#       发表于 2015-9-28 18:17
 
 
-
-
 按照皆叶的性癖学，原住民的エルーン裸全背，城市住民的エルーン裸少点露侧乳，
 
 那么牧歌小国的公主果然就要穿一身物理上实现不能的半裸护甲，从背裸到臀<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1645,13 +1175,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hecas  
 ##### 61#       发表于 2015-9-28 18:57
-
-
 
 
 痴女颜值改变人生
@@ -1661,16 +1188,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 ----发送自 [Meizu m1 note,Android 5.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 62#       发表于 2015-9-28 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30285717&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-9-28 02:26</a>
@@ -1681,16 +1202,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 25号的广播说了刺客的武器是短剑~一堆人摩拳擦掌去打四天刃<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 63#       发表于 2015-9-28 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30285893&amp;ptid=1158205" target="_blank">鱼缸 发表于 2015-9-28 04:11</a>
@@ -1701,16 +1216,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 嘛 刚打到30几章也没什么目标  如果all女性团不好凑的话到时候再说了
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 64#         楼主| 发表于 2015-9-28 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30293368&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-28 19:25</a>
@@ -1719,25 +1228,13 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 哦哦哦广播没听也没去看まとめ，3Q
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 65#       发表于 2015-9-28 19:34
 
 
-
-
 六个属性里能称为该属性必需角色的男角就水的眼镜和火的炎帝？风的话鸟人国王勉强算（主要用来开最大伤害），土没有必需角色，光和暗的必需角色贞德和ヴァンピィ又是女角，不过gbf的SSR男角色的确是能打的占绝大多数（不能打的恒常SSR角就火的秃头和闇猿吧）
-
-
-
-
-
 
 
 -----
@@ -1746,14 +1243,7 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 ##### 66#       发表于 2015-9-28 19:42
 
 
-
-
 手机玩这游戏卡的要死，但是看样子又不像是需要代理的……？
-
-
-
-
-
 
 
 -----
@@ -1764,12 +1254,10 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  浮矢瞬  
 ##### 68#       发表于 2015-9-28 19:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30293497&amp;ptid=1158205" target="_blank">露娜玛利亚 发表于 2015-9-28 19:42</a>
@@ -1780,25 +1268,13 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 安卓大部分机型没人权，苹果5s或以上开safari能顺畅地刷，挂个vpn效果更好
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 69#       发表于 2015-9-28 19:46
 
 
-
-
 土有了3更需要剑圣
-
-
-
-
-
 
 
 -----
@@ -1807,20 +1283,13 @@ http://prtimes.jp/main/html/rd/p/000000296.000005593.html
 ##### 70#       发表于 2015-9-28 19:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">王子姐姐吼吼看啊！要移情别恋了
-
-
-
-
-
 
 
 -----
 
 ####  露娜玛利亚  
 ##### 71#       发表于 2015-9-28 19:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30293516&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-28 19:44</a>
@@ -1833,11 +1302,6 @@ LG G3
 游戏进去没啥问题，但是迷之卡
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -1846,12 +1310,10 @@ LG G3
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  浮矢瞬  
 ##### 73#       发表于 2015-9-28 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30293513&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2015-9-28 19:44</a>
@@ -1862,11 +1324,6 @@ LG G3
 游戏现在记录里打出最大伤害的队伍是贝雷+鸟王+Nio+Petora啊，其实也真不一定非要带剑王（我这几个都没有就是了233）
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -1875,12 +1332,10 @@ LG G3
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ビィ  
 ##### 75#         楼主| 发表于 2015-9-28 19:58
-
 
 
  本帖最后由 ビィ 于 2015-9-28 20:01 编辑 
@@ -1900,16 +1355,10 @@ LG G3
 国内某专用登录器大概很快就要公测，有兴趣的话到时候可以关注一下
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 76#         楼主| 发表于 2015-9-28 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30293561&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2015-9-28 19:49</a>
@@ -1918,32 +1367,19 @@ LG G3
 可以让明夫来子承父业
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 77#       发表于 2015-9-28 21:01
 
 
-
-
 GUNP老师是有多爱伊东老师啊 每次出货了都去撩菜<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  露娜玛利亚  
 ##### 78#       发表于 2015-9-28 21:40
-
 
 
  本帖最后由 露娜玛利亚 于 2015-9-28 21:44 编辑 
@@ -1958,16 +1394,10 @@ PC端要怎么玩呢，我进网页没看到PC端选项？
 chrome我倒是有，插件直接上官网就可以下么？
 
 
-
-
-
-
-
 -----
 
 ####  ウーナ  
 ##### 79#       发表于 2015-9-28 21:56
-
 
 
  本帖最后由 ウーナ 于 2015-9-28 21:58 编辑 
@@ -1981,16 +1411,10 @@ chrome我倒是有，插件直接上官网就可以下么？
 官网download那里有教程，或者直接F12模拟手机网页，输入网址gbf.game.mbga.jp直接玩
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 80#       发表于 2015-9-28 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30293430&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-28 19:34</a>
@@ -2008,16 +1432,10 @@ chrome我倒是有，插件直接上官网就可以下么？
 最主要是世界第一可爱，难道称不上是必需角色吗<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zechin  
 ##### 81#       发表于 2015-9-28 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30293594&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2015-9-28 19:54</a>
@@ -2028,16 +1446,10 @@ chrome我倒是有，插件直接上官网就可以下么？
 暗猴子的技能最大有人打出过1000多W
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 82#       发表于 2015-9-28 23:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30294991&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-9-28 22:47</a>
@@ -2059,25 +1471,13 @@ HP的数值多分点给攻击力的话绝对是必需角色啊<img src="https://
 我很期待下个月万圣节能看见你和ヴァイト穿南瓜裤<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  miku01  
 ##### 83#       发表于 2015-9-28 23:14
 
 
-
-
 沒想到水晶石5抽出了两个SSR角色，世界第一可爱和剧情那个SSR水大叔，新人想问下那个SSR水大叔实力如何
-
-
-
-
-
 
 
 -----
@@ -2088,28 +1488,19 @@ HP的数值多分点给攻击力的话绝对是必需角色啊<img src="https://
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  浮矢瞬  
 ##### 85#       发表于 2015-9-28 23:35
 
 
-
-
 水队SSR一水的俊男美女哪来的大叔，把ラカム认错成水属性了？
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 86#       发表于 2015-9-28 23:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30295104&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-28 23:01</a>
@@ -2123,27 +1514,15 @@ HP的数值多分点给攻击力的话绝对是必需角色啊<img src="https://
 再加上还能复活一次，起来直接背水最大伤害<img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 87#       发表于 2015-9-29 00:14
 
 
-
-
 chrome插件看起来真高大上
 
 那么问题来了，有没有首抽呢？
-
-
-
-
-
 
 
 -----
@@ -2152,13 +1531,7 @@ chrome插件看起来真高大上
 ##### 88#       发表于 2015-9-29 00:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">不……我是说有没有什么造型好看好用的妹子人需要首抽一下的
-
-
-
-
-
 
 
 -----
@@ -2167,16 +1540,10 @@ chrome插件看起来真高大上
 ##### 89#       发表于 2015-9-29 00:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30295896&amp;ptid=1158205" target="_blank">露娜玛利亚 发表于 2015-9-29 00:21</a>
 
 不……我是说有没有什么造型好看好用的妹子人需要首抽一下的 ...</blockquote>
 直接3000日元买个新手超得，能自由选一个账号注册时卡池中的任意角色，还送一个十连
-
-
-
-
-
 
 
 -----
@@ -2185,16 +1552,10 @@ chrome插件看起来真高大上
 ##### 90#       发表于 2015-9-29 00:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30295896&amp;ptid=1158205" target="_blank">露娜玛利亚 发表于 2015-9-29 00:21</a>
 
 不……我是说有没有什么造型好看好用的妹子人需要首抽一下的 ...</blockquote>
 30号北京时间17:59之前入坑买3000円的スタダ换悠木碧的アニラ，年内不拿到手要等12年后
-
-
-
-
-
 
 
 -----
@@ -2205,21 +1566,13 @@ chrome插件看起来真高大上
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  330103  
 ##### 92#       发表于 2015-9-29 00:33
 
 
-
-
 内年只要6%就会出现，估计还会出现1，2次吧
-
-
-
-
-
 
 
 -----
@@ -2230,12 +1583,10 @@ chrome插件看起来真高大上
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  330103  
 ##### 94#       发表于 2015-9-29 00:42
-
 
 
  本帖最后由 330103 于 2015-9-29 00:44 编辑 
@@ -2243,11 +1594,6 @@ chrome插件看起来真高大上
 羊其实除了种族劣势以外配合巨星的话是非常强力的，奥义加速能力堪比军师，巴哈武器导致的人权问题官方说也有注意了，要是这次巴哈武器强化能解决一下这个问题的话追求刷速最大化还是要上羊
 
 最主要是羊年限定，要是巴哈武器真改了你想要都没机会了，而リミテッド系列每次6%必出，本身6%也是课金的好时机，真想要SSR卡特以后有的是机会
-
-
-
-
-
 
 
 -----
@@ -2258,21 +1604,13 @@ chrome插件看起来真高大上
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cowgp01  
 ##### 96#       发表于 2015-9-29 00:49
 
 
-
-
 如果不是规定要妹子绝对托军师的，一定妹子好像没有谁可以初期撑起整个队伍，而如果又不想选羊。那就就选クラリス吧，打下次活动，3技随机伤害对手血越多伤害越大最大70W，可以靠运气打打贡献
-
-
-
-
-
 
 
 -----
@@ -2281,13 +1619,7 @@ chrome插件看起来真高大上
 ##### 97#       发表于 2015-9-29 00:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">等等你们说的抽人是在哪儿，我怎么抽出来一堆武器？
-
-
-
-
-
 
 
 -----
@@ -2296,22 +1628,15 @@ chrome插件看起来真高大上
 ##### 98#       发表于 2015-9-29 01:06
 
 
-
  本帖最后由 330103 于 2015-9-29 01:07 编辑 
 
 人物是特定武器附带的，没人物加入就说明抽到的武器不带人物，另外听说最开始的免费十连肯定不出SSR 要刷初始是用给的单抽票刷，不知道是不是真的
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 99#       发表于 2015-9-29 02:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30296203&amp;ptid=1158205" target="_blank">330103 发表于 2015-9-29 01:06</a>
@@ -2325,24 +1650,13 @@ chrome插件看起来真高大上
 想想以前这个送的十连还能出SSR，几率还挺高，直接被喷锁了
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 100#       发表于 2015-9-29 09:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">出了个SR的兔耳朵法师男，问题是我要妹子啊！
-
-
-
-
-
 
 
 -----
@@ -2351,24 +1665,16 @@ chrome插件看起来真高大上
 ##### 101#       发表于 2015-9-29 10:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30296116&amp;ptid=1158205" target="_blank">cowgp01 发表于 2015-9-29 00:49</a>
 
 如果不是规定要妹子绝对托军师的，一定妹子好像没有谁可以初期撑起整个队伍，而如果又不想选羊。那就就选ク ...</blockquote>
 サラ酱啊，虽然我现在都没抽到……
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 102#       发表于 2015-9-29 15:16
-
-
 
 
 玩了一個星期多點了，總覺得這遊戲好複雜啊，求指點一二
@@ -2381,26 +1687,15 @@ chrome插件看起来真高大上
 順便求菊苣們點評下昨天更新的ラカムゥゥゥ(笑)，本來想玩土隊，結果沒有甘道夫和土蘿，目前只有火系湊了一隊ssr，下個活動說boss是風，就想湊活玩一下
 
 
-
-
-
-
-
 -----
 
 ####  海洋  
 ##### 103#       发表于 2015-9-29 15:55
 
 
-
  本帖最后由 海洋 于 2015-9-29 16:03 编辑 
 
 初期不用强求所有武器纯色，上攻击高的就行，主手Ssr武器，赌场换玉刚，把伤害1800的普通攻刃Sr武器满破，然后再舔一部分Sr方阵，逐渐替换杂色武器，
-
-
-
-
-
 
 
 -----
@@ -2411,7 +1706,6 @@ chrome插件看起来真高大上
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  路德维嘉  
@@ -2420,12 +1714,10 @@ chrome插件看起来真高大上
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  浮矢瞬  
 ##### 106#       发表于 2015-9-29 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30301281&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-9-29 15:16</a>
@@ -2439,25 +1731,13 @@ chrome插件看起来真高大上
 以上来自2ch专楼
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 107#       发表于 2015-9-29 17:37
 
 
-
-
 拉卡母玩感太重，过于浪费时间等于撕逼无力，当然也不是废柴，只是不会是一线火队员。感觉是用来试验贤者的奥义当魔法槽的，
-
-
-
-
-
 
 
 -----
@@ -2466,14 +1746,7 @@ chrome插件看起来真高大上
 ##### 108#       发表于 2015-9-29 18:20
 
 
-
-
 建小号会不会有封号什么的？
-
-
-
-
-
 
 
 -----
@@ -2482,16 +1755,10 @@ chrome插件看起来真高大上
 ##### 109#       发表于 2015-9-29 19:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30303269&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-9-29 18:20</a>
 
 建小号会不会有封号什么的？</blockquote>
 只要不是建3个小号天天和大号一起打共闘应该不怕吧……这么做过的人被ban过一次
-
-
-
-
-
 
 
 -----
@@ -2500,21 +1767,13 @@ chrome插件看起来真高大上
 ##### 110#       发表于 2015-9-29 21:03
 
 
-
-
 这赌场很黑很黑很黑，真的能赚钱吗？输到扑街啦。
-
-
-
-
-
 
 
 -----
 
 ####  submarine406  
 ##### 111#       发表于 2015-9-29 21:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30304642&amp;ptid=1158205" target="_blank">kod 发表于 2015-9-29 21:03</a>
@@ -2527,11 +1786,6 @@ bingo 10人50w进场赌1w,连输20场停
 这么玩不太可能输光本的吧...
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -2540,12 +1794,10 @@ bingo 10人50w进场赌1w,连输20场停
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  剑布衣  
 ##### 113#       发表于 2015-9-29 23:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30301893&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2015-9-29 16:12</a>
@@ -2557,16 +1809,10 @@ bingo 10人50w进场赌1w,连输20场停
 要是早期攻略做的好的話估計就直接買個帶大巴或者路西法的號來玩，現在只有流口水....不過慢慢玩好了，遊戲很有趣，就是有毒，我本來是衝著人設BGM和聲優劇情來的，一個星期玩下來變成刷子了   特別最後兩天發現這活動能舔牛，也不是新人就不能參與的，於是肝肝肝....
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 114#       发表于 2015-9-29 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30302220&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-29 16:40</a>
@@ -2578,16 +1824,10 @@ bingo 10人50w进场赌1w,连输20场停
 目前隊伍是炎帝+蹲B香菜+湊數的拉卡姆....現在最難的是如何克制自己的氪金慾望orz
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 115#         楼主| 发表于 2015-9-30 00:49
-
 
 
  本帖最后由 ビィ 于 2015-9-30 00:51 编辑 
@@ -2605,16 +1845,10 @@ bingo 10人50w进场赌1w,连输20场停
 论GBF的真·最强职业，之前鼓吹主妇最强论的我实在是太浅陋了，各种意义上来说真·最强职业都必须是码农<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 116#       发表于 2015-9-30 03:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30291999&amp;ptid=1158205" target="_blank">gunbird 发表于 2015-9-28 16:47</a>
@@ -2625,16 +1859,10 @@ bingo 10人50w进场赌1w,连输20场停
 何况我自己氪多少钱就吃多少屎   想嘲讽也没那个立场！（
 
 
-
-
-
-
-
 -----
 
 ####  gunbird  
 ##### 117#       发表于 2015-9-30 10:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30306778&amp;ptid=1158205" target="_blank">鱼缸 发表于 2015-9-30 03:58</a>
@@ -2643,11 +1871,6 @@ bingo 10人50w进场赌1w,连输20场停
 
 何况我自己氪多少钱就吃多少屎   想嘲讽也没那个立场！（ ...</blockquote>
 哇哈哈，终于叫我吃屎吃出路西法了！<img src="https://static.saraba1st.com/image/smiley/normal/083.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2656,7 +1879,6 @@ bingo 10人50w进场赌1w,连输20场停
 ##### 118#       发表于 2015-9-30 10:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30306778&amp;ptid=1158205" target="_blank">鱼缸 发表于 2015-9-30 03:58</a>
 
 我也没有路霸杂啊  
@@ -2665,16 +1887,10 @@ bingo 10人50w进场赌1w,连输20场停
 哇哈哈，终于叫我吃屎吃出路西法了！<img src="https://static.saraba1st.com/image/smiley/normal/083.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 119#       发表于 2015-9-30 12:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30308877&amp;ptid=1158205" target="_blank">gunbird 发表于 2015-9-30 10:41</a>
@@ -2683,16 +1899,10 @@ bingo 10人50w进场赌1w,连输20场停
 <img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">法克鱿  欺骗我的感情！！
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 120#         楼主| 发表于 2015-9-30 12:26
-
 
 
  本帖最后由 ビィ 于 2015-9-30 12:31 编辑 
@@ -2705,17 +1915,10 @@ bingo 10人50w进场赌1w,连输20场停
 三技能和被动肯定能翻盘
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 121#       发表于 2015-9-30 12:47
-
-
 
 
 クイックレイド：敵に1.5～2倍火属性ダメージ
@@ -2730,11 +1933,6 @@ bingo 10人50w进场赌1w,连输20场停
 1技有没有搞错，倍率那么低居然不是全体攻击，而且倍率比カルメリーナ还低，也没有追加效果，2技不说了，3技又是HRT过大评价的counter还消费奥义槽，王子姐姐本身种族还是エルーン而不是人类，很危险吧这…………
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -2743,21 +1941,13 @@ bingo 10人50w进场赌1w,连输20场停
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cowgp01  
 ##### 123#       发表于 2015-9-30 12:56
 
 
-
-
 那扑面而来的产废感，好歹要有个技能有用啊，CY你和挖个雷造型的人物有什么仇，不过还是要坚持萌豚本位不动摇，抽了<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2766,14 +1956,7 @@ bingo 10人50w进场赌1w,连输20场停
 ##### 124#       发表于 2015-9-30 13:03
 
 
-
-
 火队现在的恒常SSR里技能种族和火力都兼备只剩下库拉丽丝和帕西瓦尔了吧，弱SSR好多的感觉，秃头不用说，王子姐姐、香菜、玛姬莎、妖狐这几个也不是特别的…………呃
-
-
-
-
-
 
 
 -----
@@ -2782,16 +1965,9 @@ bingo 10人50w进场赌1w,连输20场停
 ##### 125#       发表于 2015-9-30 13:07
 
 
-
-
 1技直接就是拿弟弟的来用连名字都不带改的。。。。。
 
 只能希望3技的覆盖率够高和被动能救了
-
-
-
-
-
 
 
 -----
@@ -2800,14 +1976,7 @@ bingo 10人50w进场赌1w,连输20场停
 ##### 126#       发表于 2015-9-30 13:17
 
 
-
-
 赌场怎么判断离场时机啊、、、、
-
-
-
-
-
 
 
 -----
@@ -2816,16 +1985,10 @@ bingo 10人50w进场赌1w,连输20场停
 ##### 127#       发表于 2015-9-30 13:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30310602&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-30 13:03</a>
 
 火队现在的恒常SSR里技能种族和火力都兼备只剩下库拉丽丝和帕西瓦尔了吧，弱SSR好多的感觉，秃头不用说，王 ...</blockquote>
 大奶魔女很强！非常客观<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2836,12 +1999,10 @@ bingo 10人50w进场赌1w,连输20场停
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  yuxiao86  
 ##### 129#       发表于 2015-9-30 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30310886&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2015-9-30 13:27</a>
@@ -2854,16 +2015,10 @@ bingo 10人50w进场赌1w,连输20场停
 一开始的阶段就是纯看脸么？还是有诀窍的啊？
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 130#       发表于 2015-9-30 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30310406&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-30 12:47</a>
@@ -2884,11 +2039,6 @@ bingo 10人50w进场赌1w,连输20场停
 被动带1.2奥义的话3技就算不错,不带的话就是mypage专用角色了
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -2897,12 +2047,10 @@ bingo 10人50w进场赌1w,连输20场停
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  浮矢瞬  
 ##### 132#       发表于 2015-9-30 13:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30310971&amp;ptid=1158205" target="_blank">センコウ 发表于 2015-9-30 13:35</a>
@@ -2913,16 +2061,10 @@ bingo 10人50w进场赌1w,连输20场停
 求教一下“被动带1.2奥义”是什么意思<img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 133#       发表于 2015-9-30 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30311159&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-30 13:49</a>
@@ -2931,16 +2073,10 @@ bingo 10人50w进场赌1w,连输20场停
 获得奥义量120%,打一下12奥义,军师那样的
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 134#       发表于 2015-9-30 13:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30310865&amp;ptid=1158205" target="_blank">Laie 发表于 2015-9-30 13:25</a>
@@ -2949,16 +2085,10 @@ bingo 10人50w进场赌1w,连输20场停
 1技效果量和上限低得感人<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">3技和4技要配套用还带自伤简直只能用泪流满面来形容了，而且这次古战场用下来没感受到她火力有被帕西瓦尔高orz不过我喜欢她的性格
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 135#       发表于 2015-9-30 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30311185&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-30 13:52</a>
@@ -2972,16 +2102,10 @@ bingo 10人50w进场赌1w,连输20场停
 另外怪物ai平A倾向于攻击血量较低的角色，大奶的自身dot+防御x2算是半个T，稳定血线作用还是有的
 
 
-
-
-
-
-
 -----
 
 ####  gunbird  
 ##### 136#       发表于 2015-9-30 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30310971&amp;ptid=1158205" target="_blank">センコウ 发表于 2015-9-30 13:35</a>
@@ -3000,26 +2124,15 @@ bingo 10人50w进场赌1w,连输20场停
 至少输出并不会差吧
 
 
-
-
-
-
-
 -----
 
 ####  gunbird  
 ##### 137#       发表于 2015-9-30 14:58
 
 
-
  本帖最后由 gunbird 于 2015-9-30 14:59 编辑 
 
 也许被动是兄弟两人一起，クイックレイド提升伤害倍率并施展时奥义槽+10<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3028,16 +2141,10 @@ bingo 10人50w进场赌1w,连输20场停
 ##### 138#       发表于 2015-9-30 17:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30303806&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-29 20:21</a>
 
 只要不是建3个小号天天和大号一起打共闘应该不怕吧……这么做过的人被ban过一次 ...</blockquote>
 我确实是想打共斗<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3046,14 +2153,7 @@ bingo 10人50w进场赌1w,连输20场停
 ##### 139#       发表于 2015-9-30 18:16
 
 
-
-
 王姐简直废出新高度，王姐近卫队会成为索菲亚邪教之后的新梗么
-
-
-
-
-
 
 
 -----
@@ -3062,14 +2162,7 @@ bingo 10人50w进场赌1w,连输20场停
 ##### 140#       发表于 2015-9-30 18:26
 
 
-
-
 似乎3技3回合TA,CT8,有点救
-
-
-
-
-
 
 
 -----
@@ -3080,13 +2173,10 @@ bingo 10人50w进场赌1w,连输20场停
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Laie  
 ##### 142#       发表于 2015-9-30 18:34
-
-
 
 
 皆叶尽力了，福原猪队友<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
@@ -3095,17 +2185,10 @@ bingo 10人50w进场赌1w,连输20场停
 下次人气投票给姐姐刷多几票看能混个终解或者特别版不<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  センコウ  
 ##### 143#       发表于 2015-9-30 18:36
-
-
 
 
 目前没兔子报告
@@ -3114,17 +2197,10 @@ bingo 10人50w进场赌1w,连输20场停
 新入坑新手不建议参加本次活动,召唤废,武器废.拿一下诺修就可以了,多余的体力不如干别的
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 144#       发表于 2015-9-30 19:15
-
-
 
 
 ヘルエス　まとめ 
@@ -3147,17 +2223,10 @@ bingo 10人50w进场赌1w,连输20场停
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 145#       发表于 2015-9-30 19:28
-
-
 
 
 花瓶角色，不过2技能让我想起天国的矮子团长..
@@ -3166,16 +2235,10 @@ bingo 10人50w进场赌1w,连输20场停
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 146#         楼主| 发表于 2015-9-30 20:02
-
 
 
 <img src="http://ww3.sinaimg.cn/mw690/005Tohs2gw1ewkqamg8exj30bd07kaaw.jpg" referrerpolicy="no-referrer">
@@ -3184,17 +2247,10 @@ bingo 10人50w进场赌1w,连输20场停
 血泪抽回来妹子都被炎帝拱了的感觉，FKHR盈满的恶意
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 147#       发表于 2015-9-30 20:15
-
-
 
 
 顶一下男神炎帝
@@ -3205,16 +2261,10 @@ bingo 10人50w进场赌1w,连输20场停
 <img src="http://i13.tietuku.com/e021c71aaf25ccda.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 148#       发表于 2015-9-30 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30313958&amp;ptid=1158205" target="_blank">センコウ 发表于 2015-9-30 18:36</a>
@@ -3224,11 +2274,6 @@ bingo 10人50w进场赌1w,连输20场停
 
 新入坑新手不建议参加本次活动,召唤废,武器废.拿一下诺修就可以了,多余的体力不如干别的 ...</blockquote>
 LOLI龍贊！我要舔，你們不要攔我！！！！
-
-
-
-
-
 
 
 -----
@@ -3237,7 +2282,6 @@ LOLI龍贊！我要舔，你們不要攔我！！！！
 ##### 149#       发表于 2015-9-30 20:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30313958&amp;ptid=1158205" target="_blank">センコウ 发表于 2015-9-30 18:36</a>
 
 目前没兔子报告
@@ -3247,16 +2291,10 @@ LOLI龍贊！我要舔，你們不要攔我！！！！
 LOLI龍贊！我要舔，你們不要攔我！！！！
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 150#       发表于 2015-9-30 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30314670&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-9-30 20:02</a>
@@ -3265,16 +2303,10 @@ LOLI龍贊！我要舔，你們不要攔我！！！！
 没事帕西瓦尔的真爱是兰酱<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 151#       发表于 2015-9-30 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30315151&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-9-30 20:54</a>
@@ -3283,32 +2315,19 @@ LOLI龍贊！我要舔，你們不要攔我！！！！
 騎士團太老亂了！
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 152#       发表于 2015-10-1 01:14
 
 
-
-
 所以这次古傲天和姬傲天又拐走了一个国家的第一骑士，两个王族，还有守护龙，你们不是要重建国家么，怎么跑去骑空团闲逛了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  KOBI  
 ##### 153#       发表于 2015-10-1 03:28
-
 
 
  本帖最后由 KOBI 于 2015-10-1 04:27 编辑 
@@ -3320,32 +2339,19 @@ LOLI龍贊！我要舔，你們不要攔我！！！！
 反而比较在意那帮中途就没影了的流氓....做着就忘了还是坑呢
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 154#       发表于 2015-10-1 04:32
 
 
-
-
 其实主角一行是空域第一猎头组织<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  浮矢瞬  
 ##### 155#       发表于 2015-10-1 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30314794&amp;ptid=1158205" target="_blank">Fuero 发表于 2015-9-30 20:15</a>
@@ -3356,16 +2362,10 @@ LOLI龍贊！我要舔，你們不要攔我！！！！
 安娜的奥义美！
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 156#       发表于 2015-10-1 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30317587&amp;ptid=1158205" target="_blank">KOBI 发表于 2015-10-1 03:28</a>
@@ -3381,16 +2381,10 @@ LOLI龍贊！我要舔，你們不要攔我！！！！
 顺便有萝莉BBA龙化身人形又跑去城下町溜达的语音，感觉以后都合地瞎忽悠一下又能出个课金角了，种族还能强行来个不明！
 
 
-
-
-
-
-
 -----
 
 ####  KOBI  
 ##### 157#       发表于 2015-10-1 14:00
-
 
 
  本帖最后由 KOBI 于 2015-10-1 15:04 编辑 
@@ -3402,17 +2396,10 @@ LOLI龍贊！我要舔，你們不要攔我！！！！
 BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 
 
-
-
-
-
-
 -----
 
 ####  ウーナ  
 ##### 158#       发表于 2015-10-1 15:41
-
-
 
 
 这！不！公！平！
@@ -3421,16 +2408,10 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 后面这恋爱的酸臭味无法直视<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 159#       发表于 2015-10-1 16:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30320862&amp;ptid=1158205" target="_blank">ウーナ 发表于 2015-10-1 15:41</a>
@@ -3442,33 +2423,19 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 本来朱丽叶之后你的归来应该要提上日程了，结果突然蹦出来这么一个强劲对手，信者们要分流不少哦！<img src="https://static.saraba1st.com/image/smiley/face/170.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  尘剑一  
 ##### 160#       发表于 2015-10-1 17:02
 
 
-
-
 居然要出动画
-
-
-
-
-
 
 
 -----
 
 ####  ビィ  
 ##### 161#         楼主| 发表于 2015-10-2 12:30
-
-
 
 
 该来的总是要来的，那么，风UK大的可能性是多少呢
@@ -3479,25 +2446,13 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 <img src="http://image.gamer.ne.jp/news/2015/20151002/00324415c0993c8cdc50061b42247a10329c/o/5.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 162#       发表于 2015-10-2 14:02
 
 
-
-
 为什么不是木星啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3506,17 +2461,10 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 ##### 163#       发表于 2015-10-2 14:53
 
 
-
-
 太给了...
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -3525,14 +2473,7 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 ##### 164#       发表于 2015-10-2 15:06
 
 
-
-
 果然风盾这种东西不是那么容易出的么.......
-
-
-
-
-
 
 
 -----
@@ -3541,22 +2482,13 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 ##### 165#       发表于 2015-10-2 15:21
 
 
-
-
 偶像大师灰姑娘大多都好用，凛和川岛配上卡特琳娜堪称无课的水队救星，而光属的卯月也很好用，希望偶像男人们能像话点。
-
-
-
-
-
 
 
 -----
 
 ####  贱蛇Lie  
 ##### 166#       发表于 2015-10-2 19:41
-
-
 
 
 偶像也不过是奥义速度快了一点而已...
@@ -3566,25 +2498,13 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 需要一些莫名其妙的配合
 
 
-
-
-
-
-
 -----
 
 ####  17cc  
 ##### 167#       发表于 2015-10-2 20:21
 
 
-
-
 偶像最强还是miku 简直无懈可击的技能组
-
-
-
-
-
 
 
 -----
@@ -3593,14 +2513,7 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 ##### 168#       发表于 2015-10-2 23:19
 
 
-
-
 联动角色没有伪娘组不开心
-
-
-
-
-
 
 
 -----
@@ -3609,16 +2522,10 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 ##### 169#       发表于 2015-10-3 00:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30330587&amp;ptid=1158205" target="_blank">Fuero 发表于 2015-10-2 23:19</a>
 
 联动角色没有伪娘组不开心</blockquote>
 伪娘组没有声优啊，12月的时候公布咲和卷绪他们组的声优可能性倒还是有，不过有没有第二弹联动就难说了。。。。
-
-
-
-
-
 
 
 -----
@@ -3627,17 +2534,10 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 ##### 170#       发表于 2015-10-3 14:29
 
 
-
-
 萌新来报个到，以后要常来逛逛
 
 
 ----发送自 [HUAWEI HUAWEI MT7-TL10,Android 4.4.2](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -3646,21 +2546,13 @@ BBA龙就算不是不明是风エルーン的话也不至于死得太难看吧
 ##### 171#       发表于 2015-10-3 18:58
 
 
-
-
 说起来APP版没有一次性下载之类的选项吗？简直卡爆了……
-
-
-
-
-
 
 
 -----
 
 ####  hecas  
 ##### 172#       发表于 2015-10-3 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30336658&amp;ptid=1158205" target="_blank">xiaocheng 发表于 2015-10-3 18:58</a>
@@ -3673,24 +2565,13 @@ app不太好用
 主力还是主楼提到的chrome+模拟插件
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 173#       发表于 2015-10-3 23:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">等等，主角居然能换性别？而且换出来的还是个金发妹子？那我还刷个蛋的首抽啊！
-
-
-
-
-
 
 
 -----
@@ -3699,14 +2580,7 @@ app不太好用
 ##### 174#       发表于 2015-10-4 00:53
 
 
-
-
 讲道理，姬塔是gbf最强最萌
-
-
-
-
-
 
 
 -----
@@ -3715,23 +2589,15 @@ app不太好用
 ##### 175#       发表于 2015-10-4 02:11
 
 
-
-
 刷了个有几个R妹子的号，拿着开了
 
 然后突然莫名其妙给我了个SR的金闪闪战士，说让我刷750好感就可以永久用，这该怎么打？
-
-
-
-
-
 
 
 -----
 
 ####  剑布衣  
 ##### 176#       发表于 2015-10-4 08:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30339686&amp;ptid=1158205" target="_blank">露娜玛利亚 发表于 2015-10-4 02:11</a>
@@ -3742,16 +2608,10 @@ app不太好用
 放進隊里，隊里沒有sr的話直接拿來用就是，覺得不想用就丟後備隊，刷刷刷就成，很快的，我當天晚上就刷完了
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 177#         楼主| 发表于 2015-10-4 09:03
-
 
 
  本帖最后由 ビィ 于 2015-10-4 09:07 编辑 
@@ -3766,32 +2626,19 @@ app不太好用
 于是让我们继续回到偷偷翻传在线文档的时代吧！
 
 
-
-
-
-
-
 -----
 
 ####  xiaocheng  
 ##### 178#       发表于 2015-10-4 12:34
 
 
-
-
 说起来那堆n武器有啥用呀，当狗粮吗？还有蹭boss掉的sr强化素材呢？
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 179#       发表于 2015-10-4 12:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30341925&amp;ptid=1158205" target="_blank">xiaocheng 发表于 2015-10-4 12:34</a>
@@ -3803,16 +2650,10 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 后期在箱子里的一堆N武器可以选择让他们自行蒸发
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 180#       发表于 2015-10-4 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30339686&amp;ptid=1158205" target="_blank">露娜玛利亚 发表于 2015-10-4 02:11</a>
@@ -3823,16 +2664,10 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 楼下说得很清楚了~另外建议把这个角色拿下，打风属性boss的时候非常有用，不打算重氪的话估计一直到后期刷团战或者120级ティアマグナ的时候都用得上，毕竟火属性的damage cut角色除了现在的诺修之外就剩下夏季泳装的限定版IO
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 181#       发表于 2015-10-4 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30339686&amp;ptid=1158205" target="_blank">露娜玛利亚 发表于 2015-10-4 02:11</a>
@@ -3843,25 +2678,13 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 750好感就是带着他打合计750AP的任务，自己可以计算一下
 
 
-
-
-
-
-
 -----
 
 ####  xiaocheng  
 ##### 182#       发表于 2015-10-4 16:58
 
 
-
-
 剧情白送的女骑士我知道要练，那个火属大叔呢？好歹是个sr，不会不如r吧……
-
-
-
-
-
 
 
 -----
@@ -3870,15 +2693,9 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 ##### 183#       发表于 2015-10-4 17:19
 
 
-
 <blockquote>xiaocheng 发表于 2015-10-4 16:58
 剧情白送的女骑士我知道要练，那个火属大叔呢？好歹是个sr，不会不如r吧…… ...</blockquote>
 板凳，而且感觉也没人气，当然初期没能用的还是凑合吧
-
-
-
-
-
 
 
 -----
@@ -3887,14 +2704,7 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 ##### 184#       发表于 2015-10-4 17:26
 
 
-
-
 作为gbf第一梗角色的拉卡姆怎会没有人气呢，至于主线人物也就欧根和猩猩比较强，不如用活动送的角色
-
-
-
-
-
 
 
 -----
@@ -3903,14 +2713,7 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 ##### 185#       发表于 2015-10-4 20:27
 
 
-
-
 第一个职业20级了，是不是再换个职业练到满？
-
-
-
-
-
 
 
 -----
@@ -3919,16 +2722,10 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 ##### 186#       发表于 2015-10-4 21:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30345444&amp;ptid=1158205" target="_blank">xiaocheng 发表于 2015-10-4 20:27</a>
 
 第一个职业20级了，是不是再换个职业练到满？</blockquote>
 新人朝着黑骑士练吧
-
-
-
-
-
 
 
 -----
@@ -3937,14 +2734,7 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 ##### 187#       发表于 2015-10-5 00:35
 
 
-
-
 抽战货出了个ssr召唤兽，可以练吗？
-
-
-
-
-
 
 
 -----
@@ -3953,15 +2743,9 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 ##### 188#       发表于 2015-10-5 00:43
 
 
-
 <blockquote>xiaocheng 发表于 2015-10-5 00:35
 抽战货出了个ssr召唤兽，可以练吗？</blockquote>
 因为赌场里面有风80召唤阿娜特，所以活动风召唤算是最没有价值的召唤
-
-
-
-
-
 
 
 -----
@@ -3970,22 +2754,15 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 ##### 189#       发表于 2015-10-5 08:49
 
 
-
 <blockquote>cowgp01 发表于 2015-10-5 00:43
 因为赌场里面有风80召唤阿娜特，所以活动风召唤算是最没有价值的召唤</blockquote>
 那商店里那两只风的sr岂不是一样没用……
-
-
-
-
-
 
 
 -----
 
 ####  Fuero  
 ##### 190#       发表于 2015-10-5 09:27
-
 
 
  本帖最后由 Fuero 于 2015-10-5 09:28 编辑 
@@ -3995,16 +2772,10 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 风小马（宝石兽）？小马系列是sr召唤最后的良心了，满破主动是50%属性攻击&amp;防御UP，抽到其他颜色的千万不要吃了或者分解，可遇不可求
 
 
-
-
-
-
-
 -----
 
 ####  xiaocheng  
 ##### 191#       发表于 2015-10-5 09:37
-
 
 
 <blockquote>Fuero 发表于 2015-10-5 09:27
@@ -4012,16 +2783,10 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 目前有白送的风小马和抽到的暗小马，也就是说商店里那个风小马可以换，而第一个岛的boss是渣渣吗……
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 192#       发表于 2015-10-5 09:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30349282&amp;ptid=1158205" target="_blank">xiaocheng 发表于 2015-10-5 09:37</a>
@@ -4032,16 +2797,10 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 第一个岛的boss是指小提吗？那个以后用SSR版的
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 193#       发表于 2015-10-5 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30349239&amp;ptid=1158205" target="_blank">Fuero 发表于 2015-10-5 09:27</a>
@@ -4054,16 +2813,10 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 要留2个的话,这边就去换月光晶3突手里的
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 194#       发表于 2015-10-5 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30351662&amp;ptid=1158205" target="_blank">submarine406 发表于 2015-10-5 15:12</a>
@@ -4078,16 +2831,10 @@ N武器可以直接当狗粮，或者卖了，写着强化素材的都是拿来�
 然后看自己抽的如何再决定月光晶怎么分配
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 195#         楼主| 发表于 2015-10-5 23:30
-
 
 
  本帖最后由 ビィ 于 2015-10-5 23:35 编辑 
@@ -4105,18 +2852,10 @@ hrt说去年夏天就开始动画化的企划，比想象中要早很多。
 年内可能有更多动画化的情报公布
 
 
-
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 196#       发表于 2015-10-6 15:59
-
-
 
 
 平田說想要四格的劇場版，ラカムゥゥゥ還挺樂在其中wwww
@@ -4125,25 +2864,13 @@ hrt说去年夏天就开始动画化的企划，比想象中要早很多。
 不過四格倒是可以做個正片完了之後幾秒小彩蛋也是很好的。感覺上看這個樣子會有原創部分啊，嘛個人倒是挺歡迎
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 197#       发表于 2015-10-6 16:11
 
 
-
-
 只要不要主线部分占大半篇幅就好，反正主角队也没几个人气角色，还不如TV化活动剧情和收人的剧情多拉点氪金角色出来
-
-
-
-
-
 
 
 -----
@@ -4152,22 +2879,13 @@ hrt说去年夏天就开始动画化的企划，比想象中要早很多。
 ##### 198#       发表于 2015-10-6 18:13
 
 
-
-
 现在这主线要做24话都要大幅压缩，基本上支线很难做进去了，虽然这第一部的剧情感觉连新手村都没出<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 199#       发表于 2015-10-7 12:39
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201510/07/123912snmcvnmrjdtetonm.jpg" referrerpolicy="no-referrer">
@@ -4180,17 +2898,7 @@ hrt说去年夏天就开始动画化的企划，比想象中要早很多。
 2015-10-7 12:39 上传
 
 
-
-
-
-
-
 必得又要来了喔，土UP那天快来抽本大爷吧
-
-
-
-
-
 
 
 -----
@@ -4199,17 +2907,10 @@ hrt说去年夏天就开始动画化的企划，比想象中要早很多。
 ##### 200#       发表于 2015-10-7 13:42
 
 
-
-
 今晚。。。群里必然又是血雨腥风
 
 
 ----发送自 [HUAWEI HUAWEI MT7-TL10,Android 4.4.2](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -4218,14 +2919,7 @@ hrt说去年夏天就开始动画化的企划，比想象中要早很多。
 ##### 201#       发表于 2015-10-7 13:59
 
 
-
-
 新人求教下，想玩暗队，暗系SSR只有个斑比，如果新手超得复刻，选哪个角色会比较好？
-
-
-
-
-
 
 
 -----
@@ -4234,16 +2928,10 @@ hrt说去年夏天就开始动画化的企划，比想象中要早很多。
 ##### 202#         楼主| 发表于 2015-10-7 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30369490&amp;ptid=1158205" target="_blank">syuki 发表于 2015-10-7 13:59</a>
 
 新人求教下，想玩暗队，暗系SSR只有个斑比，如果新手超得复刻，选哪个角色会比较好？ ...</blockquote>
 lady grey/gray，你值得拥有
-
-
-
-
-
 
 
 -----
@@ -4252,16 +2940,10 @@ lady grey/gray，你值得拥有
 ##### 203#       发表于 2015-10-7 14:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30369517&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-10-7 14:02</a>
 
 lady grey/gray，你值得拥有</blockquote>
 感谢，然后暗攻刃除了课金之外，似乎只有暗方阵掉落的SSR了，有没有必要用带暗攻刃的R武器升一下技能过渡呢？
-
-
-
-
-
 
 
 -----
@@ -4270,16 +2952,10 @@ lady grey/gray，你值得拥有</blockquote>
 ##### 204#       发表于 2015-10-7 14:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30369649&amp;ptid=1158205" target="_blank">syuki 发表于 2015-10-7 14:17</a>
 
 感谢，然后暗攻刃除了课金之外，似乎只有暗方阵掉落的SSR了，有没有必要用带暗攻刃的R武器升一下技能过渡 ...</blockquote>
 沒必要吧，R都是狗糧，帶技能的技狗留著，其他先拿著攻高的SSR或者SR武器喂，墊高了數據再做下一步打算
-
-
-
-
-
 
 
 -----
@@ -4288,15 +2964,9 @@ lady grey/gray，你值得拥有</blockquote>
 ##### 205#       发表于 2015-10-7 14:51
 
 
-
 <blockquote>syuki 发表于 2015-10-7 14:17
 感谢，然后暗攻刃除了课金之外，似乎只有暗方阵掉落的SSR了，有没有必要用带暗攻刃的R武器升一下技能过渡 ...</blockquote>
 呃，冒昧问一下有大巴吗，或者准备重氪金吗？两者都是否的话建议不要暗队起步
-
-
-
-
-
 
 
 -----
@@ -4305,23 +2975,16 @@ lady grey/gray，你值得拥有</blockquote>
 ##### 206#       发表于 2015-10-7 15:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30369928&amp;ptid=1158205" target="_blank">海洋 发表于 2015-10-7 14:51</a>
 
 呃，冒昧问一下有大巴吗，或者准备重氪金吗？两者都是否的话建议不要暗队起步 ...</blockquote>
 之前的6%有抽到巴哈姆特，氪金倒是只打算买买必得和超得...
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 207#         楼主| 发表于 2015-10-7 15:21
-
 
 
  本帖最后由 ビィ 于 2015-10-7 15:23 编辑 
@@ -4338,17 +3001,10 @@ lady grey/gray，你值得拥有</blockquote>
 一般攻刃今后反而是次要的，就算不靠课金，打打狗妹之类的、做做数字武器转属性都能凑够推荐配置所需的份额（1-3把）了，何况还能凑把攻血的巴哈武器充数
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 208#         楼主| 发表于 2015-10-7 17:13
-
-
 
 
 突然想起来设定集的电子版没丢楼里，ebj自购自破，欢迎自取，请勿用于商业用途<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
@@ -4359,17 +3015,10 @@ GRANBLUE FANTASY グランブルーファンタジー GRAPHIC ARCHIVE
 链接: [http://pan.baidu.com/s/1i3jgv5N](http://pan.baidu.com/s/1i3jgv5N) 密码: 4j6x
 
 
-
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 209#       发表于 2015-10-7 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30370190&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-10-7 15:21</a>
@@ -4381,11 +3030,6 @@ GRANBLUE FANTASY グランブルーファンタジー GRAPHIC ARCHIVE
 于是减半狂欢立马就来了...
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -4394,13 +3038,10 @@ GRANBLUE FANTASY グランブルーファンタジー GRAPHIC ARCHIVE
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  KOBI  
 ##### 211#       发表于 2015-10-7 18:22
-
-
 
 
 水基学谁不好去学索菲亚。。。。。。
@@ -4408,17 +3049,10 @@ GRANBLUE FANTASY グランブルーファンタジー GRAPHIC ARCHIVE
 风和火感觉倒还行，虽然都要看3技的实际战力- -
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 212#       发表于 2015-10-7 18:51
-
-
 
 
 变给幻想，
@@ -4428,25 +3062,13 @@ GRANBLUE FANTASY グランブルーファンタジー GRAPHIC ARCHIVE
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 213#       发表于 2015-10-8 08:59
 
 
-
-
 这三给都好像不强啊，也就火给看起来比较好
-
-
-
-
-
 
 
 -----
@@ -4455,24 +3077,16 @@ GRANBLUE FANTASY グランブルーファンタジー GRAPHIC ARCHIVE
 ##### 214#       发表于 2015-10-8 11:36
 
 
-
-
 兑换材料的金青蛙怎么拿。。是不是必须三图以后。。
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 215#       发表于 2015-10-8 12:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30378403&amp;ptid=1158205" target="_blank">烂菊花 发表于 2015-10-8 11:36</a>
@@ -4484,25 +3098,13 @@ GRANBLUE FANTASY グランブルーファンタジー GRAPHIC ARCHIVE
 打VH青蛙应该是少量掉落，EX大量
 
 
-
-
-
-
-
 -----
 
 ####  yuxiao86  
 ##### 216#       发表于 2015-10-8 23:18
 
 
-
-
 EX青蛙比较推荐用什么职业去打？每次都被蓄气满了开大砸死
-
-
-
-
-
 
 
 -----
@@ -4511,14 +3113,7 @@ EX青蛙比较推荐用什么职业去打？每次都被蓄气满了开大砸死
 ##### 217#       发表于 2015-10-9 00:13
 
 
-
-
 vh青蛙都打不过，是不是打打h蝌蚪换个水给算了……
-
-
-
-
-
 
 
 -----
@@ -4529,12 +3124,10 @@ vh青蛙都打不过，是不是打打h蝌蚪换个水给算了……
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ビィ  
 ##### 219#         楼主| 发表于 2015-10-9 00:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30385094&amp;ptid=1158205" target="_blank">yuxiao86 发表于 2015-10-8 23:18</a>
@@ -4543,33 +3136,19 @@ EX青蛙比较推荐用什么职业去打？每次都被蓄气满了开大砸死
 用Dark Fencer都打不过的话就量力而为了，武器和召唤还有上升空间的话可以出门左转剧情活动抽战货提升一下
 
 
-
-
-
-
-
 -----
 
 ####  yuxiao86  
 ##### 220#       发表于 2015-10-9 08:00
 
 
-
-
 完了，现在job没往那个方向发展。。。
-
-
-
-
-
 
 
 -----
 
 ####  hecas  
 ##### 221#       发表于 2015-10-9 08:56
-
-
 
 
 磕药打vh练起来.？
@@ -4579,32 +3158,19 @@ EX青蛙比较推荐用什么职业去打？每次都被蓄气满了开大砸死
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  时髦神  
 ##### 222#       发表于 2015-10-9 14:40
 
 
-
-
 活动的银色青蛙哪里掉得多？感觉这个最缺
-
-
-
-
-
 
 
 -----
 
 ####  ビィ  
 ##### 223#         楼主| 发表于 2015-10-9 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30390541&amp;ptid=1158205" target="_blank">时髦神 发表于 2015-10-9 14:40</a>
@@ -4617,25 +3183,13 @@ EX青蛙比较推荐用什么职业去打？每次都被蓄气满了开大砸死
 所以打得过的话大概还是EX
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 224#       发表于 2015-10-9 23:00
 
 
-
-
 hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都推荐出了ss后再打hell?
-
-
-
-
-
 
 
 -----
@@ -4644,14 +3198,7 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 ##### 225#       发表于 2015-10-9 23:33
 
 
-
-
 雖然這次青蛙不難打，但是戰力不夠，還是需要點點點打個3~5回合才能打死一隻EX，刷起來還是挺煩，特別臉黑.....這次風系蛙琴大概刷個幾把凸滿比較好？準備主打光系隊伍，雖然方陣也是刷的想死.....
-
-
-
-
-
 
 
 -----
@@ -4662,12 +3209,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  カリオストロ  
 ##### 227#       发表于 2015-10-9 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30395414&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-10-9 23:33</a>
@@ -4680,32 +3225,19 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 如果想要玩大公队伍的话则需要4把
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 228#       发表于 2015-10-10 00:03
 
 
-
-
 打一个ukn琴比打一个风拳容易多了，风拳不出的时候真是打足一个月自发mvp都不掉一个<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  剑布衣  
 ##### 229#       发表于 2015-10-10 00:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30395590&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-10-9 23:53</a>
@@ -4716,25 +3248,13 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 4把.......我還是先滾一把好了等光UK吧，反正路隊也可以用，雖然暫時還沒有DPS.....
 
 
-
-
-
-
-
 -----
 
 ####  gunbird  
 ##### 230#       发表于 2015-10-10 08:53
 
 
-
-
 问题是，M侧我完全我不想去玩，怎么办！
-
-
-
-
-
 
 
 -----
@@ -4743,15 +3263,9 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 ##### 231#       发表于 2015-10-10 12:14
 
 
-
  本帖最后由 cowgp01 于 2015-10-10 12:16 编辑 
 
 不玩sideM也没有所谓啦，因为最强的火基是信任送的。最近CY拿SR和R做了不少有趣的实验，这次火基的一点集中，安娜的AOE变单体，光头猫厨的冰刃，每一个放到主角身上都会爆炸<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4760,14 +3274,7 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 ##### 232#       发表于 2015-10-10 12:36
 
 
-
-
 翼的攻击力20%buff、clear和土属性耐性20%up还算好用吧，属性又是人类，不需要的话不跑sidem就是啦
-
-
-
-
-
 
 
 -----
@@ -4776,23 +3283,15 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 ##### 233#       发表于 2015-10-10 15:44
 
 
-
-
 广播说到某人气角色有万圣节限定版
 
 不用说大概也知道了<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hecas  
 ##### 234#       发表于 2015-10-10 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30401863&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-10-10 15:44</a>
@@ -4803,16 +3302,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 精神加鹅
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 235#         楼主| 发表于 2015-10-10 16:02
-
 
 
  本帖最后由 ビィ 于 2015-10-10 16:05 编辑 
@@ -4830,16 +3323,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 万魔殿第四层和新职业还要等一段时间
 
 
-
-
-
-
-
 -----
 
 ####  春田康一  
 ##### 236#       发表于 2015-10-10 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30401863&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-10-10 15:44</a>
@@ -4850,16 +3337,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 这个戏服，我给满分<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 237#       发表于 2015-10-10 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30402138&amp;ptid=1158205" target="_blank">春田康一 发表于 2015-10-10 16:08</a>
@@ -4870,32 +3351,19 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 做好觉悟吧！！
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 238#       发表于 2015-10-10 17:08
 
 
-
-
 这游戏的人物召唤石武器都是一个卡池吗，自己试着刷了半天初始只见了俩个ssr武器，并没有看见萌妹子....
-
-
-
-
-
 
 
 -----
 
 ####  海洋  
 ##### 239#       发表于 2015-10-10 17:43
-
 
 
 <blockquote>ビィ 发表于 2015-10-10 16:02
@@ -4907,11 +3375,6 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 我嚓，可以不用肝肝肝了，点击就换？
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -4920,12 +3383,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  submarine406  
 ##### 241#       发表于 2015-10-10 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30403227&amp;ptid=1158205" target="_blank">海洋 发表于 2015-10-10 17:43</a>
@@ -4936,16 +3397,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 如果按贡献度给pt,比如完全solo一个ex给50pt,换1个ssr需要1000pt的话,也就略微拯救下一个月连1把ssr方阵都不出的非洲人...
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 242#       发表于 2015-10-10 18:30
-
 
 
  本帖最后由 浮矢瞬 于 2015-10-10 18:34 编辑 
@@ -4957,16 +3412,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 头像怎么能不用这张<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 243#       发表于 2015-10-10 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30402857&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-10 17:08</a>
@@ -4988,23 +3437,13 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 2015-10-10 18:44 上传
 
 
-
-
-
-
 这根烤串的话，就能入手本大爷啦
-
-
-
-
-
 
 
 -----
 
 ####  海洋  
 ##### 244#       发表于 2015-10-10 19:41
-
 
 
 <blockquote>submarine406 发表于 2015-10-10 18:05
@@ -5015,16 +3454,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 换光铳暗斧
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 245#       发表于 2015-10-10 21:31
-
 
 
  本帖最后由 tbchyu001 于 2015-10-10 21:33 编辑 
@@ -5037,16 +3470,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 哦哦，打算明天氪个超得，超得是可以自己选个ssr角+召唤石吗？还是二选一，顺便问下暗属性ssr哪个比较好用，钉宫和今井麻美那个都比较喜欢（个人属于比较休闲的那种玩家，活动偶尔肝一下
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 246#       发表于 2015-10-10 21:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30405124&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-10 21:31</a>
@@ -5069,9 +3496,6 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 2015-10-10 21:44 上传
 
 
-
-
-
 <img src="http://img.saraba1st.com/forum/201510/10/214413t7recrff77ho9l42.jpg" referrerpolicy="no-referrer">
 
 
@@ -5082,19 +3506,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 2015-10-10 21:44 上传
 
 
-
-
-
-
 一般都先选这2个，今井麻美可以作为暗队三人类的第三人，优先度并不高
 
 
 不过到最后还是建议选自己喜欢的
-
-
-
-
-
 
 
 -----
@@ -5103,15 +3518,9 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 ##### 247#       发表于 2015-10-10 21:58
 
 
-
  本帖最后由 ウーナ 于 2015-10-10 22:01 编辑 
 
 我认识一个姐姐，自选是SR人物
-
-
-
-
-
 
 
 -----
@@ -5120,21 +3529,13 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 ##### 248#       发表于 2015-10-10 22:06
 
 
-
-
 100只马格纳换1把光暗也是赚<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  tbchyu001  
 ##### 249#       发表于 2015-10-10 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30405255&amp;amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-10-10 21:45</a>
@@ -5144,16 +3545,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 好的，换钉宫好了
 
 
-
-
-
-
-
 -----
 
 ####  黄昏的祈祷  
 ##### 250#       发表于 2015-10-10 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30405389&amp;ptid=1158205" target="_blank">ウーナ 发表于 2015-10-10 21:58</a>
@@ -5162,17 +3557,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 我想选你
 
 
-
-
-
-
-
 -----
 
 ####  kiraabu  
 ##### 251#       发表于 2015-10-11 10:56
-
-
 
 
 新手求助，mx5一直卡在yomikomi是什么情况，电脑能流畅上应该不是网络问题
@@ -5182,16 +3570,10 @@ hell的青蛙感觉比方阵王的弱体耐性还高点,是不是偶像联动都
 ----发送自 [Meizu MX5,Android 5.0.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 252#       发表于 2015-10-11 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30408725&amp;ptid=1158205" target="_blank">kiraabu 发表于 2015-10-11 10:56</a>
@@ -5209,16 +3591,10 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 起手的话争议挺大的，要实用的话就是军师アルタイル，最强盾サラ，奶的话就是レナ
 
 
-
-
-
-
-
 -----
 
 ####  kiraabu  
 ##### 253#       发表于 2015-10-11 19:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30409405&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-10-11 12:22</a>
@@ -5233,16 +3609,10 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 顺便问下顶楼说的登录器是什么，晚上网速有点不给力<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kiraabu  
 ##### 254#       发表于 2015-10-11 19:52
-
 
 
  本帖最后由 kiraabu 于 2015-10-11 19:53 编辑 
@@ -5250,16 +3620,10 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 风怒
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 255#       发表于 2015-10-11 20:19
-
 
 
  本帖最后由 tbchyu001 于 2015-10-11 20:24 编辑 
@@ -5271,16 +3635,10 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 顺便问一下金蛙哪里掉，必须打very hard的青蛙才有吗
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 256#       发表于 2015-10-11 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30413591&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-11 20:19</a>
@@ -5293,16 +3651,10 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 活动的召唤一般都是SSR的，然后有SSR的武器和2个SR武器
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 257#       发表于 2015-10-11 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30413880&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-10-11 20:45</a>
@@ -5313,25 +3665,13 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 惹，打不过青蛙王子，基本上一两下就敲死一个队友
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 258#       发表于 2015-10-12 10:14
 
 
-
-
 新人继续提问，告示板左下角那个xx设置是怎么做的，就差这个了好像可以拿只小马...火属有什么免费的召唤石拿吗，现在还在用一开始送的巴哈
-
-
-
-
-
 
 
 -----
@@ -5340,16 +3680,10 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 ##### 259#       发表于 2015-10-12 11:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30417748&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-12 10:14</a>
 
 新人继续提问，告示板左下角那个xx设置是怎么做的，就差这个了好像可以拿只小马...火属有什么免费的召唤石 ...</blockquote>
 赌场有火和暗25%的SR召唤   这几天没召唤活动就拿那个先凑合吧
-
-
-
-
-
 
 
 -----
@@ -5358,16 +3692,10 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 ##### 260#       发表于 2015-10-12 11:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30417748&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-12 10:14</a>
 
 新人继续提问，告示板左下角那个xx设置是怎么做的，就差这个了好像可以拿只小马...火属有什么免费的召唤石 ...</blockquote>
 我记得赌场有个SR，舔五个豆的火属性BOSS有几率掉SSR
-
-
-
-
-
 
 
 -----
@@ -5376,14 +3704,7 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 ##### 261#       发表于 2015-10-12 12:12
 
 
-
-
 暂时先用着赌场召唤吧，然后等伊夫里特复刻。SSR铁巨人对新人没用的，它是火方阵效果提升100，没有方阵武器没有用
-
-
-
-
-
 
 
 -----
@@ -5392,14 +3713,7 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 ##### 262#       发表于 2015-10-12 14:16
 
 
-
-
 青蛙活动的ssr召唤石是什么效果呢，看起来挺漂亮的（发现金蛙hard也会掉，只是概率比较低，boss中间那个蝌蚪如果掉了2个金箱有一个大概率是金蛙，现在打了6个，活动结束前大概可以换到
-
-
-
-
-
 
 
 -----
@@ -5410,28 +3724,19 @@ GBF刷初始很慢而且没认证的号好像起手只有1抽还是2抽
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  xiaocheng  
 ##### 264#       发表于 2015-10-12 17:54
 
 
-
-
 vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性……
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 265#       发表于 2015-10-12 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30422365&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2015-10-12 17:47</a>
@@ -5442,25 +3747,13 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 白丝男是没满破全体+6%奥义，满破了全体+10%奥义
 
 
-
-
-
-
-
 -----
 
 ####  Iyx  
 ##### 266#       发表于 2015-10-12 18:17
 
 
-
-
 入坑到现在唯一一次不想抽的给up开始了
-
-
-
-
-
 
 
 -----
@@ -5469,15 +3762,9 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 267#       发表于 2015-10-12 18:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30422548&amp;amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-10-12 18:08</a>
 白丝男是没满破全体+6%奥义，满破了全体+10%奥义</blockquote>
 惹，那个居然是个gay，太伤害我了，果然妹纸只能抽抽抽吗
-
-
-
-
-
 
 
 -----
@@ -5488,21 +3775,13 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cowgp01  
 ##### 269#       发表于 2015-10-12 19:31
 
 
-
-
 14号的光巨人复刻可以拿个最强无敌可爱吵得要死的肉松，GBF氪金的漂亮的妹子召唤不少，然而大多数没有什么卵用，最强也就艹龙的妹子格兰德<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5511,14 +3790,7 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 270#       发表于 2015-10-12 20:45
 
 
-
-
 救命，为什么我换了台电脑用原来的**帐号玩变成重新开始了<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5527,16 +3799,10 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 271#       发表于 2015-10-12 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30422773&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-12 18:32</a>
 
 惹，那个居然是个gay，太伤害我了，果然妹纸只能抽抽抽吗</blockquote>
 你要是赶上了灰姑娘联动的话，一下子送你10个妹子角色+4个妹子召唤
-
-
-
-
-
 
 
 -----
@@ -5545,16 +3811,10 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 272#       发表于 2015-10-12 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30423878&amp;ptid=1158205" target="_blank">kiraabu 发表于 2015-10-12 20:45</a>
 
 救命，为什么我换了台电脑用原来的**帐号玩变成重新开始了</blockquote>
 你之前用的简单登录吧？要正式登录才行的
-
-
-
-
-
 
 
 -----
@@ -5563,16 +3823,10 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 273#       发表于 2015-10-12 21:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30424230&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-10-12 21:30</a>
 
 你之前用的简单登录吧？要正式登录才行的</blockquote>
 我按那个贴吧教程用yahoo帐号登录的，这个也算简单登录吗，怎么才能在第二台电脑换回原来的号<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5581,14 +3835,7 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 274#       发表于 2015-10-12 22:39
 
 
-
-
 遇到野生原型巴哈姆特 然后都死绝了该怎么办<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5597,16 +3844,10 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 275#       发表于 2015-10-12 22:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30424813&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-10-12 22:39</a>
 
 遇到野生原型巴哈姆特 然后都死绝了该怎么办</blockquote>
 节哀
-
-
-
-
-
 
 
 -----
@@ -5617,21 +3858,13 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kitagawa  
 ##### 277#       发表于 2015-10-12 22:52
 
 
-
-
 原来如此 确实有几个人还在打 mvp 准mvp看戏状态w不过战斗bgm真是燃啊 要不是我太弱了只能浑水摸鱼我也恢复去打了<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5640,13 +3873,7 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 278#       发表于 2015-10-14 14:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">菲娜真的变成SSR了……我更希望小提琴能变成SSR啊五破又有什么用
-
-
-
-
-
 
 
 -----
@@ -5655,14 +3882,7 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 279#       发表于 2015-10-14 19:42
 
 
-
-
 菲娜那个破甲60s，很微妙啊，其他都很强就是最重要的破甲……
-
-
-
-
-
 
 
 -----
@@ -5671,13 +3891,7 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 280#       发表于 2015-10-15 10:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">强力debuff都是60s，只有某人是20s...
-
-
-
-
-
 
 
 -----
@@ -5686,13 +3900,7 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 281#       发表于 2015-10-15 13:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">攒够了第一次10连，出了那个新的风sr，第三个技能是什么意思？1技放火属性怪物经常无效是怎么回事呢
-
-
-
-
-
 
 
 -----
@@ -5701,14 +3909,7 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 282#       发表于 2015-10-15 13:23
 
 
-
-
 迷你哥布林3技是随机上DEBUFF，血越少出强力DEBUFF的几率越高，对非克制属性敌人DEBUFF很难上是正常的事，你是显示NO EFFECT还是MISS？NO EFFECT是你的怪身上已经有同系列更高级的DEBUFF了
-
-
-
-
-
 
 
 -----
@@ -5717,14 +3918,7 @@ vh青蛙还是要复活一次才能打过，随手换了个ssr乐器撑属性…
 ##### 283#       发表于 2015-10-15 14:05
 
 
-
-
 noeffect比较多，昨天刚把黑剑点出来了
-
-
-
-
-
 
 
 -----
@@ -5733,16 +3927,10 @@ noeffect比较多，昨天刚把黑剑点出来了
 ##### 284#       发表于 2015-10-15 18:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30451158&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-15 14:05</a>
 
 noeffect比较多，昨天刚把黑剑点出来了</blockquote>
 你用黑剑放雾，迷你哥布林再用效果量没那么高的雾当然no effect啊~
-
-
-
-
-
 
 
 -----
@@ -5751,14 +3939,7 @@ noeffect比较多，昨天刚把黑剑点出来了</blockquote>
 ##### 285#       发表于 2015-10-15 19:37
 
 
-
-
 万圣团长马上复刻了，dokidoki
-
-
-
-
-
 
 
 -----
@@ -5767,14 +3948,7 @@ noeffect比较多，昨天刚把黑剑点出来了</blockquote>
 ##### 286#       发表于 2015-10-15 21:34
 
 
-
-
 青蛙琴居然只能换3个，然而我还打不过ex，看来满破没指望了
-
-
-
-
-
 
 
 -----
@@ -5783,16 +3957,10 @@ noeffect比较多，昨天刚把黑剑点出来了</blockquote>
 ##### 287#       发表于 2015-10-16 11:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30455508&amp;ptid=1158205" target="_blank">时髦神 发表于 2015-10-15 21:34</a>
 
 青蛙琴居然只能换3个，然而我还打不过ex，看来满破没指望了</blockquote>
 等复刻呗
-
-
-
-
-
 
 
 -----
@@ -5801,16 +3969,10 @@ noeffect比较多，昨天刚把黑剑点出来了</blockquote>
 ##### 288#       发表于 2015-10-16 12:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30459958&amp;ptid=1158205" target="_blank">fananaf 发表于 2015-10-16 11:24</a>
 
 等复刻呗</blockquote>
 论有第二弹的可能性有多大……<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5819,16 +3981,10 @@ noeffect比较多，昨天刚把黑剑点出来了</blockquote>
 ##### 289#       发表于 2015-10-16 12:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30460469&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-10-16 12:12</a>
 
 论有第二弹的可能性有多大……</blockquote>
 hrt被刚过一次不介意被刚第二次的
-
-
-
-
-
 
 
 -----
@@ -5837,13 +3993,7 @@ hrt被刚过一次不介意被刚第二次的
 ##### 290#         楼主| 发表于 2015-10-16 18:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">待望的BP溢出回复机制终于要来了，大家是不是很期待下一次的马格纳狂欢呢
-
-
-
-
-
 
 
 -----
@@ -5852,14 +4002,7 @@ hrt被刚过一次不介意被刚第二次的
 ##### 291#       发表于 2015-10-16 21:29
 
 
-
-
 红药水变成不论体力上限多少一律恢复100AP，难道现在的AP上限是100？
-
-
-
-
-
 
 
 -----
@@ -5868,16 +4011,10 @@ hrt被刚过一次不介意被刚第二次的
 ##### 292#       发表于 2015-10-16 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30466029&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-10-16 21:29</a>
 
 红药水变成不论体力上限多少一律恢复100AP，难道现在的AP上限是100？</blockquote>
 130+等级，ap会超过100.
-
-
-
-
-
 
 
 -----
@@ -5888,19 +4025,11 @@ hrt被刚过一次不介意被刚第二次的
 无
 
 
-
 超过还是加的了
 有说的
 
 
-
-
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -5909,21 +4038,13 @@ hrt被刚过一次不介意被刚第二次的
 ##### 294#       发表于 2015-10-17 10:00
 
 
-
-
 讨伐战boss掉的金珠有什么用？ex还没打，据说ex会掉本体和ssr武器？魅惑效果是怎样的
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 295#       发表于 2015-10-17 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30469061&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-17 10:00</a>
@@ -5936,27 +4057,15 @@ hrt被刚过一次不介意被刚第二次的
 魅惑的话就是发动时boss不会行动但是行动槽接着加   总之发动就赚到了
 
 
-
-
-
-
-
 -----
 
 ####  gameseve  
 ##### 296#       发表于 2015-10-19 02:20
 
 
-
-
 这个游戏没法在手机上玩吗？
 
 是不是必须需要VPN才能玩？
-
-
-
-
-
 
 
 -----
@@ -5967,22 +4076,15 @@ hrt被刚过一次不介意被刚第二次的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Fuero  
 ##### 298#       发表于 2015-10-19 08:49
 
 
-
  本帖最后由 Fuero 于 2015-10-19 08:52 编辑 
 
 傻逼岛风go支持gbf了，严重怀疑服务器能不能撑过团战乃至日常<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5991,17 +4093,10 @@ hrt被刚过一次不介意被刚第二次的
 ##### 299#       发表于 2015-10-19 10:57
 
 
-
-
 囧，刚买了一年的ss
 
 
 ----发送自 [Meizu MX5,Android 5.0.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -6010,14 +4105,7 @@ hrt被刚过一次不介意被刚第二次的
 ##### 300#       发表于 2015-10-19 11:07
 
 
-
-
 讨论这游戏需不需要vpn首先要确定你是联通还是电信 用联通啥都不要 手机也随便玩
-
-
-
-
-
 
 
 -----
@@ -6026,22 +4114,13 @@ hrt被刚过一次不介意被刚第二次的
 ##### 301#       发表于 2015-10-19 18:32
 
 
-
-
 明天会有新活动吗
-
-
-
-
-
 
 
 -----
 
 ####  hecas  
 ##### 302#       发表于 2015-10-19 18:58
-
-
 
 
 应该没有，看了下计划
@@ -6052,17 +4131,10 @@ hrt被刚过一次不介意被刚第二次的
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  冰原狼  
 ##### 303#       发表于 2015-10-20 05:09
-
-
 
 
 现在除了初心者超得是不是还有一个超得活动？入坑的话没必要两个都买吧？
@@ -6070,16 +4142,10 @@ hrt被刚过一次不介意被刚第二次的
 还有求推荐自选人物，要求1汉子2萌
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 304#       发表于 2015-10-20 09:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30495755&amp;ptid=1158205" target="_blank">冰原狼 发表于 2015-10-20 05:09</a>
@@ -6097,12 +4163,6 @@ hrt被刚过一次不介意被刚第二次的
 人物突破也是各种缺素材
 
 
-
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -6111,22 +4171,13 @@ hrt被刚过一次不介意被刚第二次的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Fuero  
 ##### 306#       发表于 2015-10-20 19:21
 
 
-
-
 2014-2015年EVENT PV
-
-
-
-
-
-
 
 
 -----
@@ -6135,14 +4186,7 @@ hrt被刚过一次不介意被刚第二次的
 ##### 307#       发表于 2015-10-20 19:23
 
 
-
-
 万圣限定是卡里奥斯特罗，要死要死要死<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6151,21 +4195,13 @@ hrt被刚过一次不介意被刚第二次的
 ##### 308#       发表于 2015-10-20 21:20
 
 
-
-
 万圣节カリおっさん太可爱了，不是想着说不定会有圣诞诺亚肯定抽抽抽<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 309#       发表于 2015-10-20 23:00
-
 
 
  本帖最后由 カリオストロ 于 2015-10-21 00:02 编辑 
@@ -6181,15 +4217,7 @@ hrt被刚过一次不介意被刚第二次的
 2015-10-20 23:00 上传
 
 
-
-
-
 要来了喔☆大家准备好魔法卡了没
-
-
-
-
-
 
 
 -----
@@ -6198,21 +4226,13 @@ hrt被刚过一次不介意被刚第二次的
 ##### 310#       发表于 2015-10-21 09:28
 
 
-
-
 新出的种族限定任务能用种族不明的凑数不?看了看手里精灵矮人够,侏儒就俩...
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 311#       发表于 2015-10-21 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30506717&amp;ptid=1158205" target="_blank">submarine406 发表于 2015-10-21 09:28</a>
@@ -6225,16 +4245,10 @@ hrt被刚过一次不介意被刚第二次的
 你没发现公牛最大只吗
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 312#       发表于 2015-10-21 14:45
-
 
 
  本帖最后由 submarine406 于 2015-10-21 15:07 编辑 
@@ -6255,16 +4269,10 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么...
 话说主要问的是这几个种族限定任务能不能用种族不明的凑数啊...
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 313#       发表于 2015-10-21 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30510487&amp;ptid=1158205" target="_blank">submarine406 发表于 2015-10-21 14:45</a>
@@ -6277,25 +4285,13 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 做任务的时候让系统自动编成一下战斗队员不就能知道行不行了吗<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yuxiao86  
 ##### 314#       发表于 2015-10-21 23:22
 
 
-
-
 求问新人超得是只能买一次还是经常会复刻的？
-
-
-
-
-
 
 
 -----
@@ -6304,16 +4300,10 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 315#       发表于 2015-10-22 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30515277&amp;ptid=1158205" target="_blank">yuxiao86 发表于 2015-10-21 23:22</a>
 
 求问新人超得是只能买一次还是经常会复刻的？</blockquote>
 只能买一次，没买到消失了之后看心情出来
-
-
-
-
-
 
 
 -----
@@ -6322,23 +4312,15 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 316#       发表于 2015-10-22 15:09
 
 
-
-
 600W了
 
 最革命性的改动是  非好友召唤加护貌似是永久的…
-
-
-
-
-
 
 
 -----
 
 ####  KOBI  
 ##### 317#       发表于 2015-10-22 16:09
-
 
 
  本帖最后由 KOBI 于 2015-10-22 16:14 编辑 
@@ -6350,25 +4332,13 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 这次好像没十连卷了？
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 318#       发表于 2015-10-22 16:23
 
 
-
-
 加护确认是永久的了
-
-
-
-
-
 
 
 -----
@@ -6377,21 +4347,13 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 319#       发表于 2015-10-22 16:56
 
 
-
-
 加护永久是什么概念……
-
-
-
-
-
 
 
 -----
 
 ####  Fuero  
 ##### 320#       发表于 2015-10-22 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30522645&amp;ptid=1158205" target="_blank">xiaocheng 发表于 2015-10-22 16:56</a>
@@ -6403,32 +4365,19 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 这个改动是永久的
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 321#       发表于 2015-10-22 17:10
 
 
-
-
 这样改动的话好友加来没意义啊，好友发出的救援也不会特别标注，傻傻分不清
-
-
-
-
-
 
 
 -----
 
 ####  Fuero  
 ##### 322#       发表于 2015-10-22 17:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30522809&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-10-22 17:10</a>
@@ -6441,16 +4390,10 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 说不定以后开电子鸡以后就有区别了
 
 
-
-
-
-
-
 -----
 
 ####  yuxiao86  
 ##### 323#       发表于 2015-10-22 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30515781&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-10-22 00:41</a>
@@ -6459,16 +4402,10 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 那还是等队伍再成型再买好了。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 324#       发表于 2015-10-22 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30523390&amp;ptid=1158205" target="_blank">yuxiao86 发表于 2015-10-22 18:09</a>
@@ -6477,16 +4414,10 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 超得的卡池是固定的，什么时候出来就是到那期为止的卡池，后面几次出来都是第一次的卡池
 
 
-
-
-
-
-
 -----
 
 ####  yuxiao86  
 ##### 325#       发表于 2015-10-22 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30523462&amp;ptid=1158205" target="_blank">Fuero 发表于 2015-10-22 18:18</a>
@@ -6495,26 +4426,15 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 怪不得我发现我的卡池少了几个人。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 326#       发表于 2015-10-22 19:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30523462&amp;amp;ptid=1158205" target="_blank">Fuero 发表于 2015-10-22 18:18</a>
 超得的卡池是固定的，什么时候出来就是到那期为止的卡池，后面几次出来都是第一次的卡池 ...</blockquote>
 惹，那么即使羊妹复刻也不能超得换嗝？好悲伤
-
-
-
-
-
 
 
 -----
@@ -6523,14 +4443,7 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 327#       发表于 2015-10-22 20:23
 
 
-
-
 非好友石也能加護這個一定程度上消除了人種歧視問題wwwwwwwwwww
-
-
-
-
-
 
 
 -----
@@ -6539,22 +4452,15 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 328#       发表于 2015-10-23 07:28
 
 
-
 <blockquote>Fuero 发表于 2015-10-22 18:18
 超得的卡池是固定的，什么时候出来就是到那期为止的卡池，后面几次出来都是第一次的卡池 ...</blockquote>
 纠正一下，新手超得的卡池是固定为开号时的卡池，包括限定人物，但不包括贵族召唤；活动超得的卡池为开超得的时候已出过的卡，但不包括限定和贵族召唤
-
-
-
-
-
 
 
 -----
 
 ####  submarine406  
 ##### 329#       发表于 2015-10-23 07:36
-
 
 
  本帖最后由 submarine406 于 2015-10-23 07:37 编辑 
@@ -6567,16 +4473,10 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 比如9月底那次6%入坑的话,新手超得池子除了羊妹外,还有ssrカタリナ和ラカム
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 330#       发表于 2015-10-23 08:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30527205&amp;ptid=1158205" target="_blank">海洋 发表于 2015-10-23 07:28</a>
@@ -6585,16 +4485,10 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 你再仔细看看，说的是我楼上的新手自选啊，贵族召唤也从来不能选不是
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 331#       发表于 2015-10-23 10:34
-
 
 
  本帖最后由 Fuero 于 2015-10-23 11:45 编辑 
@@ -6617,25 +4511,13 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 5.エリクシール 3個 
 
 
-
-
-
-
-
 -----
 
 ####  dlboy1981  
 ##### 332#       发表于 2015-10-23 11:58
 
 
-
-
 不升级ssr怎么卖皮肤
-
-
-
-
-
 
 
 -----
@@ -6644,14 +4526,7 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 333#       发表于 2015-10-23 14:22
 
 
-
-
 千万不要惹老王
-
-
-
-
-
 
 
 -----
@@ -6660,14 +4535,7 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 334#       发表于 2015-10-23 18:45
 
 
-
-
 古战场武器设定错了可以换吗，点的光刃可是我并没有一个光队员
-
-
-
-
-
 
 
 -----
@@ -6676,16 +4544,10 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 335#       发表于 2015-10-23 18:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30534175&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-23 18:45</a>
 
 古战场武器设定错了可以换吗，点的光刃可是我并没有一个光队员</blockquote>
 古战场武器全都是光系的啊。。。。
-
-
-
-
-
 
 
 -----
@@ -6694,22 +4556,15 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 ##### 336#       发表于 2015-10-23 19:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30534185&amp;amp;ptid=1158205" target="_blank">yuxiao86 发表于 2015-10-23 18:47</a>
 古战场武器全都是光系的啊。。。。</blockquote>
 现在主力队员是左伧和炎帝，不过木有什么可用的武器和召唤石，这次活动蹭蹭贡献就可以了吗
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 337#       发表于 2015-10-23 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30534300&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-10-23 19:02</a>
@@ -6731,25 +4586,13 @@ halfling/elf/dwarf这仨常用的释义不就是侏儒/精灵/矮人么. ...</bl
 PS：如果还是决定不了做哪个的话，可以从琴（攻刃琴稀少，升级成真后回血特效，偶像系职业才能拿）剑（属性不错，泛用性高）铳（属性最高）里面选择
 
 
-
-
-
-
-
 -----
 
 ####  xiaocheng  
 ##### 338#       发表于 2015-10-23 22:14
 
 
-
-
 傻逼用了十连卷，结果只有一个sr土召唤两个sr风角色……
-
-
-
-
-
 
 
 -----
@@ -6758,14 +4601,7 @@ PS：如果还是决定不了做哪个的话，可以从琴（攻刃琴稀少，
 ##### 339#       发表于 2015-10-23 22:26
 
 
-
-
 20抽拿了绿川和萌王 我好开心
-
-
-
-
-
 
 
 -----
@@ -6774,21 +4610,13 @@ PS：如果还是决定不了做哪个的话，可以从琴（攻刃琴稀少，
 ##### 340#       发表于 2015-10-24 07:52
 
 
-
-
 我去，早上一发ds出了カリオストロ，这波不亏。
-
-
-
-
-
 
 
 -----
 
 ####  ビィ  
 ##### 341#         楼主| 发表于 2015-10-24 12:07
-
 
 
 [http://www.famitsu.com/news/201510/23091338.html](http://www.famitsu.com/news/201510/23091338.html)
@@ -6809,25 +4637,13 @@ tgs后fami给hrt做的新访谈，前半主要是扯tgs出展的事情，后半�
 5.HRT表示之前的年内实装10个职业的公约实际应该从发布的时间，也就是今年3月算起到明年3月，剩下未公布的四个新职业预定一周年的时候正式发表
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 342#       发表于 2015-10-24 13:15
 
 
-
-
 新编队太良心
-
-
-
-
-
 
 
 -----
@@ -6836,20 +4652,13 @@ tgs后fami给hrt做的新访谈，前半主要是扯tgs出展的事情，后半�
 ##### 343#       发表于 2015-10-24 13:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">4单下来没抽到万圣萌王，群里各种单抽出货……这游戏好难玩
-
-
-
-
-
 
 
 -----
 
 ####  浮矢瞬  
 ##### 344#       发表于 2015-10-25 00:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30539510&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-10-24 12:07</a>
@@ -6859,16 +4668,10 @@ tgs后fami给hrt做的新访谈，前半主要是扯tgs出展的事情，后半�
 就知道会从今年改口成本年度<img src="https://static.saraba1st.com/image/smiley/face/171.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  海洋  
 ##### 345#       发表于 2015-10-25 02:33
-
 
 
  本帖最后由 海洋 于 2015-10-25 02:38 编辑 
@@ -6879,16 +4682,10 @@ http://www.famitsu.com/news/201510/23091338.html
 队伍扩编是好消息，没谈塔罗牌和新方阵的事情？
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 346#       发表于 2015-10-25 02:56
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">新编队   蹲逼大量出现警告   
@@ -6896,16 +4693,10 @@ http://www.famitsu.com/news/201510/23091338.html
 看来以后想出货只能心机后再丢出来了
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 347#         楼主| 发表于 2015-10-25 12:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30546498&amp;ptid=1158205" target="_blank">海洋 发表于 2015-10-25 02:33</a>
@@ -6919,16 +4710,10 @@ hrt：10月31日还是10月！
 塔罗的话感觉下个月也不一定有戏
 
 
-
-
-
-
-
 -----
 
 ####  海洋  
 ##### 348#       发表于 2015-10-25 12:31
-
 
 
  本帖最后由 海洋 于 2015-10-25 12:33 编辑 
@@ -6939,16 +4724,10 @@ hrt：10月31日还是10月！
 需要心机的只有巴哈和四象吧，出货还是很看脸，巴哈有的时候双红也不一定有角，四象改版以后还好点，改版前真是呵呵
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 349#       发表于 2015-10-25 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30548636&amp;ptid=1158205" target="_blank">海洋 发表于 2015-10-25 12:31</a>
@@ -6957,16 +4736,10 @@ hrt：10月31日还是10月！
 巴哈基本就是看实力平A了，蓝帽是跟不上速度的
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 350#         楼主| 发表于 2015-10-25 15:31
-
 
 
  本帖最后由 ビィ 于 2015-10-25 15:40 编辑 
@@ -6990,25 +4763,13 @@ hrt：10月31日还是10月！
 应该是指部分人物会有类似生日那样的万圣节特殊语音
 
 
-
-
-
-
-
 -----
 
 ####  海洋  
 ##### 351#       发表于 2015-10-25 16:23
 
 
-
-
 阿波罗终于要被拯救了？本月竟然没SSR人物最终解放，以及光属性的4突武器被吃了吗
-
-
-
-
-
 
 
 -----
@@ -7017,14 +4778,7 @@ hrt：10月31日还是10月！
 ##### 352#       发表于 2015-10-25 21:59
 
 
-
-
 被拯救或是跌入深渊……
-
-
-
-
-
 
 
 -----
@@ -7033,14 +4787,7 @@ hrt：10月31日还是10月！
 ##### 353#       发表于 2015-10-26 14:09
 
 
-
-
 有老路在，菠萝很难被救。
-
-
-
-
-
 
 
 -----
@@ -7049,15 +4796,8 @@ hrt：10月31日还是10月！
 ##### 354#       发表于 2015-10-26 17:53
 
 
-
-
 参考暗天，HRT如果心情比较好的话，应该会变成“特定的武器比例要求下，稍强于100，但还是不如120”的非洲人救星
 不然80/20真是一点用都没有，连骑都比不上。。
-
-
-
-
-
 
 
 -----
@@ -7066,15 +4806,9 @@ hrt：10月31日还是10月！
 ##### 355#       发表于 2015-10-27 01:55
 
 
-
 <blockquote>17cc 发表于 2015-10-26 17:53
 参考暗天，HRT如果心情比较好的话，应该会变成“特定的武器比例要求下，稍强于100，但还是不如120”的非洲 ...</blockquote>
 求教暗天的武器一般是怎么配的？配合方阵/大巴/满破大巴
-
-
-
-
-
 
 
 -----
@@ -7083,14 +4817,7 @@ hrt：10月31日还是10月！
 ##### 356#       发表于 2015-10-28 00:23
 
 
-
-
 阿波罗4破后从一个辣鸡成长为一个立派的辣鸡
-
-
-
-
-
 
 
 -----
@@ -7099,14 +4826,7 @@ hrt：10月31日还是10月！
 ##### 357#       发表于 2015-10-29 17:40
 
 
-
-
 8箱畢業，明天可以安心回國了，不知道半小時后有沒有6%能抽抽
-
-
-
-
-
 
 
 -----
@@ -7115,16 +4835,10 @@ hrt：10月31日还是10月！
 ##### 358#       发表于 2015-10-29 18:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30591970&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-10-29 17:40</a>
 
 8箱畢業，明天可以安心回國了，不知道半小時后有沒有6%能抽抽</blockquote>
 6%会有特别注明吗
-
-
-
-
-
 
 
 -----
@@ -7133,14 +4847,7 @@ hrt：10月31日还是10月！
 ##### 359#       发表于 2015-10-29 19:07
 
 
-
-
 600万ban号祭，求认怂信样本
-
-
-
-
-
 
 
 -----
@@ -7149,14 +4856,7 @@ hrt：10月31日还是10月！
 ##### 360#       发表于 2015-10-30 11:53
 
 
-
-
 600w死亡率超高
-
-
-
-
-
 
 
 -----
@@ -7167,21 +4867,13 @@ hrt：10月31日还是10月！
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  カリオストロ  
 ##### 362#       发表于 2015-10-30 14:10
 
 
-
-
 不开5%UP开了个6%BAN，HRT你可以的
-
-
-
-
-
 
 
 -----
@@ -7190,14 +4882,7 @@ hrt：10月31日还是10月！
 ##### 363#       发表于 2015-10-30 14:29
 
 
-
-
 cy真行，搞了个100人的招待还不让人刷，到底什么人能给你拉来100个能一直玩下去的人。
-
-
-
-
-
 
 
 -----
@@ -7206,16 +4891,9 @@ cy真行，搞了个100人的招待还不让人刷，到底什么人能给你拉
 ##### 364#       发表于 2015-10-30 14:32
 
 
-
-
 ban祭清掉一波有生力量后,明天开100+的多人boss...
 
 代币有周上限差评,不过想想不设上限的漏洞,还是设个上限算了...
-
-
-
-
-
 
 
 -----
@@ -7224,14 +4902,7 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 365#       发表于 2015-10-30 15:45
 
 
-
-
 明天还要开6%抽抽抽
-
-
-
-
-
 
 
 -----
@@ -7240,14 +4911,7 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 366#         楼主| 发表于 2015-10-31 17:25
 
 
-
-
 这一波大赦天下，一堆还在戒断反应的就这么放出来，这次6%又是一片腥风血雨啊
-
-
-
-
-
 
 
 -----
@@ -7256,14 +4920,7 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 367#       发表于 2015-10-31 18:35
 
 
-
-
 一切尽在不言中<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7272,17 +4929,10 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 368#       发表于 2015-10-31 20:41
 
 
-
-
 还好没去搞复数帐号...
 
 
 在哪看ban了多少人？
-
-
-
-
-
 
 
 -----
@@ -7291,14 +4941,7 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 369#       发表于 2015-10-31 21:45
 
 
-
-
 6%氪了40抽1SSR，服气
-
-
-
-
-
 
 
 -----
@@ -7307,15 +4950,9 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 370#       发表于 2015-10-31 23:07
 
 
-
  本帖最后由 cowgp01 于 2015-10-31 23:10 编辑 
 
 这哪咤的难度要开交流软件分配好职业才可能打过，我TM是在打山口山？开组哪咤有炎帝的来加<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7324,14 +4961,7 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 371#       发表于 2015-10-31 23:41
 
 
-
-
 那么谁去开发个dps测试软件<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7340,14 +4970,7 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 372#       发表于 2015-11-1 09:51
 
 
-
-
 这正义点数勇气点数每周上限的，看着真是熟悉。
-
-
-
-
-
 
 
 -----
@@ -7356,14 +4979,7 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 373#       发表于 2015-11-2 02:11
 
 
-
-
 从今天开始要做个立派的ナルメア厨
-
-
-
-
-
 
 
 -----
@@ -7372,16 +4988,10 @@ ban祭清掉一波有生力量后,明天开100+的多人boss...
 ##### 374#       发表于 2015-11-2 02:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30621924&amp;ptid=1158205" target="_blank">Laie 发表于 2015-11-2 02:11</a>
 
 从今天开始要做个立派的ナルメア厨</blockquote>
 gacha不要停
-
-
-
-
-
 
 
 -----
@@ -7397,25 +5007,13 @@ Title
 解决了 谢谢大家
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 376#       发表于 2015-11-2 18:34
 
 
-
-
 诶 头一次打共斗 建了个无限制的房瞬间满员 我就懂了。。。运营好像对bot用户睁一只眼闭一只眼？
-
-
-
-
-
 
 
 -----
@@ -7424,16 +5022,10 @@ Title
 ##### 377#       发表于 2015-11-2 19:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30628834&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-11-2 18:34</a>
 
 诶 头一次打共斗 建了个无限制的房瞬间满员 我就懂了。。。运营好像对bot用户睁一只眼闭一只眼？ ...</blockquote>
 蹭房不用ap就能刷，当然有一堆人守着
-
-
-
-
-
 
 
 -----
@@ -7442,21 +5034,13 @@ Title
 ##### 378#       发表于 2015-11-2 21:36
 
 
-
-
 看看日拍那些卖成品半成品号的都附送共逗bot。。。。。
-
-
-
-
-
 
 
 -----
 
 ####  春田康一  
 ##### 379#       发表于 2015-11-3 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30628834&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-11-2 18:34</a>
@@ -7470,16 +5054,10 @@ Title
 是的，其实我都知道哦<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ビィ  
 ##### 380#         楼主| 发表于 2015-11-3 00:44
-
 
 
 [https://twitter.com/jyudo01/status/661039545119453184](https://twitter.com/jyudo01/status/661039545119453184)
@@ -7498,16 +5076,10 @@ HRT本人作为足控很兹瓷二次创作
 火SSR光头活跃的机会马上就会到来
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 381#       发表于 2015-11-3 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30631700&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-11-3 00:44</a>
@@ -7518,25 +5090,13 @@ https://twitter.com/jyudo01/status/661039545119453184
 看这次实装的boss就知道运营高估100级以上的人的实力了
 
 
-
-
-
-
-
 -----
 
 ####  furui3132  
 ##### 382#       发表于 2015-11-3 11:14
 
 
-
-
 hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7545,14 +5105,7 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 383#       发表于 2015-11-3 12:09
 
 
-
-
 也就是说mao那伤害还是在hrt的可控范围内么？你别以后要削就行了
-
-
-
-
-
 
 
 -----
@@ -7561,14 +5114,7 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 384#       发表于 2015-11-6 01:34
 
 
-
-
 这世界比TGS的时候削弱了不少啊
-
-
-
-
-
 
 
 -----
@@ -7577,16 +5123,10 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 385#       发表于 2015-11-6 08:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30660211&amp;ptid=1158205" target="_blank">cowgp01 发表于 2015-11-6 01:34</a>
 
 这世界比TGS的时候削弱了不少啊</blockquote>
 因为打共斗堆不了BUFF了
-
-
-
-
-
 
 
 -----
@@ -7595,14 +5135,7 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 386#       发表于 2015-11-6 11:08
 
 
-
-
 世界这玩意是不是只能撑属性用，加护完全莫明其妙……
-
-
-
-
-
 
 
 -----
@@ -7611,14 +5144,7 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 387#       发表于 2015-11-6 11:50
 
 
-
-
 目前不清楚，只能推测世界可能是塔罗的锈武，放着等塔罗召唤出吧
-
-
-
-
-
 
 
 -----
@@ -7627,14 +5153,7 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 388#       发表于 2015-11-6 13:55
 
 
-
-
 总之将世界先凸好吧。虽然要等抽签，但能靠抱大腿过。
-
-
-
-
-
 
 
 -----
@@ -7643,14 +5162,7 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 389#       发表于 2015-11-7 14:42
 
 
-
-
 给把暗属性的剑还是三凸好的 这么良心！
-
-
-
-
-
 
 
 -----
@@ -7659,16 +5171,10 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 390#       发表于 2015-11-7 15:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30671937&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-11-7 14:42</a>
 
 给把暗属性的剑还是三凸好的 这么良心！</blockquote>
 可是那把剑并没有攻刃
-
-
-
-
-
 
 
 -----
@@ -7677,22 +5183,13 @@ hrt: <img src="https://static.saraba1st.com/image/smiley/face/144.gif" referrerp
 ##### 391#       发表于 2015-11-9 17:48
 
 
-
-
 隆，春丽，沙加特，维加，肯哭晕在厕所。话说春丽的脸画得有点幼
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 392#       发表于 2015-11-10 15:34
-
-
 
 
 今天广播主要内容：
@@ -7719,25 +5216,13 @@ SSR召唤-奥丁
 某阿波罗泪目，没活多久就要
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 393#       发表于 2015-11-10 16:58
 
 
-
-
 奥丁不知道是不是加血呢
-
-
-
-
-
 
 
 -----
@@ -7746,16 +5231,9 @@ SSR召唤-奥丁
 ##### 394#       发表于 2015-11-10 18:08
 
 
-
-
 那撒加特和维嘉难道只是背景么。。。还是说是街机模式奖品。。。
 
 奥丁怎么看都一副75攻25血的路数。。。
-
-
-
-
-
 
 
 -----
@@ -7764,14 +5242,7 @@ SSR召唤-奥丁
 ##### 395#       发表于 2015-11-10 21:02
 
 
-
-
 阿波罗终突的价值不是给队伍一个额外的ct9弱体盾么,奥丁终突总不见得把这都给抢了吧...
-
-
-
-
-
 
 
 -----
@@ -7780,22 +5251,13 @@ SSR召唤-奥丁
 ##### 396#       发表于 2015-11-11 21:21
 
 
-
-
 昨天第一次打掉ミスラ的时候真是开心 一点点地试它放デフラグ的时机 中间debuff真是来不急消 借助再生效果用圣剑顶过去了 估计是笨办法 不过不看攻略的乐趣塞高<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ビィ  
 ##### 397#         楼主| 发表于 2015-11-13 19:55
-
-
 
 
 街霸4联动正式开始，隆信赖度加入，春丽材料兑换，SSR水UK拳套自带街霸皮肤。
@@ -7813,16 +5275,10 @@ SSR召唤-奥丁
 <img src="http://ww1.sinaimg.cn/mw690/005Tohs2gw1exzksw8h5wj30pr08vdim.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  17cc  
 ##### 398#       发表于 2015-11-13 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30733105&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-11-13 19:55</a>
@@ -7845,10 +5301,6 @@ SSR召唤-奥丁
 2015-11-13 21:09 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201511/13/210959wzuayjyfhyuh6ylu.png" referrerpolicy="no-referrer">
 
 
@@ -7859,32 +5311,13 @@ SSR召唤-奥丁
 2015-11-13 21:09 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 399#       发表于 2015-11-13 21:37
 
 
-
-
 原来之前运营说的火光头活跃的场合就是只能让拳套得意众上场的10连战么...
-
-
-
-
-
 
 
 -----
@@ -7893,14 +5326,7 @@ SSR召唤-奥丁
 ##### 400#       发表于 2015-11-15 20:00
 
 
-
-
 隆出波动拳还会有几率变成灼热波动拳，街霸2的梗么，真是迷之认真.....
-
-
-
-
-
 
 
 -----
@@ -7909,17 +5335,10 @@ SSR召唤-奥丁
 ##### 401#       发表于 2015-11-16 00:30
 
 
-
-
 这活动真是一个接一个的 街霸还没打完 明天副科活动又要来了 ....
 
 
 春麗ジータ好棒<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7928,14 +5347,7 @@ SSR召唤-奥丁
 ##### 402#       发表于 2015-11-16 02:50
 
 
-
-
 复刻的终突居然只给个背水小,还是拿去当技能狗粮吧...
-
-
-
-
-
 
 
 -----
@@ -7944,14 +5356,7 @@ SSR召唤-奥丁
 ##### 403#       发表于 2015-11-16 09:37
 
 
-
-
 春丽基塔能舔10年
-
-
-
-
-
 
 
 -----
@@ -7960,14 +5365,7 @@ SSR召唤-奥丁
 ##### 404#       发表于 2015-11-16 12:16
 
 
-
-
 刚入坑，问一下安卓版怎么课金，是直接googleplay 还是梦宝谷账号充值
-
-
-
-
-
 
 
 -----
@@ -7976,14 +5374,7 @@ SSR召唤-奥丁
 ##### 405#       发表于 2015-11-16 14:35
 
 
-
-
 新人入坑，求问我用的是IOS APP版本，当时没有注册账号用的普通账号进去的，在后面找不到地方绑定邮箱了。请指点一下，谢谢。
-
-
-
-
-
 
 
 -----
@@ -7992,16 +5383,10 @@ SSR召唤-奥丁
 ##### 406#         楼主| 发表于 2015-11-16 14:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30755691&amp;ptid=1158205" target="_blank">lili1990218 发表于 2015-11-16 12:16</a>
 
 刚入坑，问一下安卓版怎么课金，是直接googleplay 还是梦宝谷账号充值</blockquote>
 都可以，mobage课金的代币是mc，以前gp也是直接买mc，最近改版成了跟ios一样专用的gc了
-
-
-
-
-
 
 
 -----
@@ -8010,23 +5395,16 @@ SSR召唤-奥丁
 ##### 407#         楼主| 发表于 2015-11-16 14:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30757133&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2015-11-16 14:35</a>
 
 新人入坑，求问我用的是IOS APP版本，当时没有注册账号用的普通账号进去的，在后面找不到地方绑定邮箱了。 ...</blockquote>
 很久以前绑的不太记得了，讲道理的话应该是App里头进到top，左下角mobage，进到app专用的mobage页面后左下dashboard，接着拖到最下面各种设定那里变更邮箱之类的
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 408#       发表于 2015-11-16 15:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30757223&amp;ptid=1158205" target="_blank">ビィ 发表于 2015-11-16 14:45</a>
@@ -8037,25 +5415,13 @@ SSR召唤-奥丁
 谢谢
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 409#       发表于 2015-11-17 20:57
 
 
-
-
 这复刻ex半血后设计真的没问题么...10个debuff还有50%减伤是什么鬼...
-
-
-
-
-
 
 
 -----
@@ -8064,14 +5430,7 @@ SSR召唤-奥丁
 ##### 410#       发表于 2015-11-17 22:14
 
 
-
-
 修正了，cy习惯性数值设置手滑<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8080,14 +5439,7 @@ SSR召唤-奥丁
 ##### 411#       发表于 2015-11-17 23:30
 
 
-
-
 还是很硬，蝴蝶妹苦练一年学会了古兰森的扭曲空间来殴打你们
-
-
-
-
-
 
 
 -----
@@ -8096,14 +5448,7 @@ SSR召唤-奥丁
 ##### 412#       发表于 2015-11-18 02:39
 
 
-
-
 特殊技不消debuff至少能让后半血全程基本90%免伤变成全程50-60%免伤,dps好歹也翻了3-4倍,算是能打了...
-
-
-
-
-
 
 
 -----
@@ -8112,15 +5457,8 @@ SSR召唤-奥丁
 ##### 413#       发表于 2015-11-18 13:02
 
 
-
-
 asanagi说要出萌王纯爱。。。
 我卜相信
-
-
-
-
-
 
 
 -----
@@ -8129,17 +5467,10 @@ asanagi说要出萌王纯爱。。。
 ##### 414#       发表于 2015-11-18 16:08
 
 
-
-
 看了眼成就 我之前居然打掉了hell的蝴蝶,到底发生了什么...
 
 
 街霸活动 水拳必须打街机模式才掉吗? 30打了一百多把,没掉......
-
-
-
-
-
 
 
 -----
@@ -8148,14 +5479,7 @@ asanagi说要出萌王纯爱。。。
 ##### 415#       发表于 2015-11-18 16:30
 
 
-
-
 不用一定打街机，都是靠脸
-
-
-
-
-
 
 
 -----
@@ -8164,22 +5488,13 @@ asanagi说要出萌王纯爱。。。
 ##### 416#       发表于 2015-11-18 17:25
 
 
-
-
 hard掉了一个....另外トレハン多少级能靠铺？5，6级好像和以往没什么太大变化
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 417#       发表于 2015-11-18 20:49
-
-
 
 
 街霸终于毕业了……
@@ -8189,24 +5504,13 @@ hard掉了一个....另外トレハン多少级能靠铺？5，6级好像和以�
 换完厕纸开始慢慢滚起来……
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 418#       发表于 2015-11-19 13:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 有骑空团可以加入么，新人很不友好啊！
-
-
-
-
-
 
 
 -----
@@ -8215,16 +5519,10 @@ hard掉了一个....另外トレハン多少级能靠铺？5，6级好像和以�
 ##### 419#       发表于 2015-11-19 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30787745&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2015-11-19 13:51</a>
 
 有骑空团可以加入么，新人很不友好啊！</blockquote>
 主楼那个群，马上开6团了
-
-
-
-
-
 
 
 -----
@@ -8233,14 +5531,7 @@ hard掉了一个....另外トレハン多少级能靠铺？5，6级好像和以�
 ##### 420#       发表于 2015-11-19 16:37
 
 
-
-
 萌新想换春丽是不是只能刷hard啊。两个金箱子素材掉率好低啊
-
-
-
-
-
 
 
 -----
@@ -8249,9 +5540,7 @@ hard掉了一个....另外トレハン多少级能靠铺？5，6级好像和以�
 ##### 421#       发表于 2015-11-19 17:21
 
 
-
  本帖最后由 Iyx 于 2015-11-19 17:27 编辑 
-
 
 
 <img src="http://img.saraba1st.com/forum/201511/19/172652htvtvw55gs4bwnb2.jpg" referrerpolicy="no-referrer">
@@ -8264,16 +5553,7 @@ hard掉了一个....另外トレハン多少级能靠铺？5，6级好像和以�
 2015-11-19 17:26 上传
 
 
-
-
-
-
 fami图透，炸裂联动
-
-
-
-
-
 
 
 -----
@@ -8282,14 +5562,7 @@ fami图透，炸裂联动
 ##### 422#       发表于 2015-11-19 20:06
 
 
-
-
 千叶老师的性能大概和银相当，不过感觉不适合长期战，hrt你说的种族平衡就是给非人种族加厨角么？下次就到兽耳了吧
-
-
-
-
-
 
 
 -----
@@ -8298,16 +5571,9 @@ fami图透，炸裂联动
 ##### 423#       发表于 2015-11-20 08:18
 
 
-
-
 兽耳。。。
 王姐脸一黑
 如果还有兽耳厨角的话 大概是轮到土了？AKI能不能喝点汤呢
-
-
-
-
-
 
 
 -----
@@ -8316,14 +5582,7 @@ fami图透，炸裂联动
 ##### 424#       发表于 2015-11-20 13:57
 
 
-
-
 妈的，营运真白痴，在这次活动搞了个恶心的扭曲结界搞到死蝴蝶那么难干，还将平常讨伐和活动讨伐分开。虽然这更新用意好，但这次活动是复刻，这么一搞，还哪会有老手帮忙打？全都去干普通讨伐去，根本就完死新手和中层。只见许多人挂着蝴蝶等时间过失败，真恶心。
-
-
-
-
-
 
 
 -----
@@ -8332,14 +5591,7 @@ fami图透，炸裂联动
 ##### 425#       发表于 2015-11-20 13:58
 
 
-
-
 妈的，营运真白痴，在这次活动搞了个恶心的扭曲结界搞到死蝴蝶那么难干，还将平常讨伐和活动讨伐分开。虽然这更新用意好，但这次活动是复刻，这么一搞，还哪会有老手帮忙打？全都去干普通讨伐去，根本就完死新手和中层。只见许多人挂着蝴蝶等时间过失败，真恶心。
-
-
-
-
-
 
 
 -----
@@ -8348,14 +5600,7 @@ fami图透，炸裂联动
 ##### 426#       发表于 2015-11-20 15:30
 
 
-
-
 嘛 的确升级之后援救明显少了 等下晚上AT时间段看看情况如何
-
-
-
-
-
 
 
 -----
@@ -8364,16 +5609,10 @@ fami图透，炸裂联动
 ##### 427#       发表于 2015-11-20 16:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30798863&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-11-20 15:30</a>
 
 嘛 的确升级之后援救明显少了 等下晚上AT时间段看看情况如何</blockquote>
 其实复刻不该搞到这么恶心，少了扭曲结界肯帮忙的人一定会多，至少新手和中层能合作打死蝴蝶，不像现在就算能单条magna版的boss都干不掉蝴蝶。
-
-
-
-
-
 
 
 -----
@@ -8382,14 +5621,7 @@ fami图透，炸裂联动
 ##### 428#       发表于 2015-11-21 00:35
 
 
-
-
 没本事solo火方阵，但ex蝴蝶还是可以靠耗上40+回合solo的...
-
-
-
-
-
 
 
 -----
@@ -8398,14 +5630,7 @@ fami图透，炸裂联动
 ##### 429#       发表于 2015-11-21 19:50
 
 
-
-
 总算赶在结束前打完300万贡献了 最后几天人少 2,3个人6,70级坚持打完真是不容易<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -8414,23 +5639,16 @@ fami图透，炸裂联动
 ##### 430#       发表于 2015-11-21 19:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30809274&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-11-21 19:50</a>
 
 总算赶在结束前打完300万贡献了 最后几天人少 2,3个人6,70级坚持打完真是不容易  ...</blockquote>
 这活动召唤不好武器不好BOSS又恶心，打个100W意思意思一下就够了。。后面那个续篇还能期待一下
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 431#       发表于 2015-11-21 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30809325&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-11-21 19:58</a>
@@ -8442,16 +5660,10 @@ fami图透，炸裂联动
 话说续篇还期待炎帝在剧情里的出场呢
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 432#       发表于 2015-11-22 13:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30809325&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-11-21 20:58</a>
@@ -8460,16 +5672,10 @@ fami图透，炸裂联动
 我现在是什么属性的武器都需要的阶段<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 433#       发表于 2015-11-22 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30810949&amp;ptid=1158205" target="_blank">submarine406 发表于 2015-11-22 00:35</a>
@@ -8481,33 +5687,19 @@ fami图透，炸裂联动
 相反 因为战力不高金章反而比贡献值收集的快....
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 434#       发表于 2015-11-24 18:45
 
 
-
-
 傻逼hrt，召唤加护写清楚点会死啊，还要玩家自己去验证
-
-
-
-
-
 
 
 -----
 
 ####  Laie  
 ##### 435#       发表于 2015-11-25 10:36
-
-
 
 
 看hrt推特问答连人物属性种族都记不清的鸟样我好慌，虽然fkhr的锅终究还是hrt的<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
@@ -8518,25 +5710,13 @@ fami图透，炸裂联动
 一个无用的情报是hrt对猫过敏...
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 436#       发表于 2015-11-25 18:41
 
 
-
-
 下次活动怎么又是他们2.....<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8545,14 +5725,7 @@ fami图透，炸裂联动
 ##### 437#       发表于 2015-11-27 14:44
 
 
-
-
 这活动公告直接拿去做bl抓马海报都可以了嘛……
-
-
-
-
-
 
 
 -----
@@ -8561,15 +5734,9 @@ fami图透，炸裂联动
 ##### 438#         楼主| 发表于 2015-11-27 17:34
 
 
-
  本帖最后由 ビィ 于 2015-11-27 17:37 编辑 
 
 这次活动这么给我都不好意思更主楼了，总之等圣诞限定光IO的情报吧！
-
-
-
-
-
 
 
 -----
@@ -8578,16 +5745,10 @@ fami图透，炸裂联动
 ##### 439#       发表于 2015-11-27 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30846903&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-11-25 18:41</a>
 
 下次活动怎么又是他们2.....</blockquote>
 看介绍应该是炎帝和兰酱当主角，不是Vane和兰酱
-
-
-
-
-
 
 
 -----
@@ -8596,16 +5757,10 @@ fami图透，炸裂联动
 ##### 440#       发表于 2015-11-27 18:30
 
 
-
 <img src="http://i.imgur.com/nt3PAsp.jpg" referrerpolicy="no-referrer">
 
 
 好眼熟啊 这不是冰火里大美人布蕾妮吗<img src="https://static.saraba1st.com/image/smiley/nq/002.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8614,16 +5769,9 @@ fami图透，炸裂联动
 ##### 441#       发表于 2015-11-27 19:47
 
 
-
-
 合着兰酱去sideM联动一波后回来就亡国了...
 
 好像兰酱还是gbf首个降格角色?
-
-
-
-
-
 
 
 -----
@@ -8632,14 +5780,7 @@ fami图透，炸裂联动
 ##### 442#       发表于 2015-11-29 22:05
 
 
-
-
 那么超得在哪里<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8648,14 +5789,7 @@ fami图透，炸裂联动
 ##### 443#       发表于 2015-11-29 22:25
 
 
-
-
 那么这个月的6%呢<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8664,16 +5798,10 @@ fami图透，炸裂联动
 ##### 444#       发表于 2015-11-30 09:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30866593&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-11-27 18:30</a>
 
 好眼熟啊 这不是冰火里大美人布蕾妮吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">大妞哪有这么俏
-
-
-
-
-
 
 
 -----
@@ -8682,14 +5810,7 @@ fami图透，炸裂联动
 ##### 445#       发表于 2015-11-30 19:05
 
 
-
-
 刚才好像回档了....サプチケ啥时候能再来一次。。。。
-
-
-
-
-
 
 
 -----
@@ -8698,13 +5819,7 @@ fami图透，炸裂联动
 ##### 446#       发表于 2015-11-30 20:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">傻逼HRT快开自选让我选我头像啊
-
-
-
-
-
 
 
 -----
@@ -8713,14 +5828,7 @@ fami图透，炸裂联动
 ##### 447#       发表于 2015-11-30 21:41
 
 
-
-
 6%27发全灭一下回到解放前了……
-
-
-
-
-
 
 
 -----
@@ -8729,14 +5837,7 @@ fami图透，炸裂联动
 ##### 448#       发表于 2015-12-1 02:14
 
 
-
-
 这次剧情齐格飞一个人打退一整支军队.....GBF还真是个超高武世界，然而在这样的高武世界强盗还是会不长眼打劫那些一看起来就吊炸天的人物<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8745,16 +5846,10 @@ fami图透，炸裂联动
 ##### 449#       发表于 2015-12-1 08:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30893602&amp;ptid=1158205" target="_blank">cowgp01 发表于 2015-12-1 02:14</a>
 
 这次剧情齐格飞一个人打退一整支军队.....GBF还真是个超高武世界，然而在这样的高武世界强盗还是会不长眼打 ...</blockquote>
 然而姬日天古傲天还是一下子被流氓抓去挖煤了！
-
-
-
-
-
 
 
 -----
@@ -8763,16 +5858,10 @@ fami图透，炸裂联动
 ##### 450#       发表于 2015-12-1 10:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30894514&amp;ptid=1158205" target="_blank">Laie 发表于 2015-12-1 08:51</a>
 
 然而姬日天古傲天还是一下子被流氓抓去挖煤了！</blockquote>
 姬日天古傲天和东山一心同体，被挖矿那一次是东山染病，大大影响了傲天的战斗力，但那次却让藤原叔展现出他不是善类的一面，倒是满好的。
-
-
-
-
-
 
 
 -----
@@ -8781,15 +5870,9 @@ fami图透，炸裂联动
 ##### 451#       发表于 2015-12-1 17:37
 
 
-
  本帖最后由 kitagawa 于 2015-12-6 14:41 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/normal/026.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8798,14 +5881,7 @@ fami图透，炸裂联动
 ##### 452#       发表于 2015-12-1 21:09
 
 
-
-
 请问ジ・オーダー・グランデ的加护 “バトルメンバー(控えではなく戦闘中の4名)の属性が3種類以上の時に攻撃力100％UP” 到底需要3种还是4种？可能我装备差，试了几次好像没太大差距。
-
-
-
-
-
 
 
 -----
@@ -8814,14 +5890,7 @@ fami图透，炸裂联动
 ##### 453#       发表于 2015-12-1 23:04
 
 
-
-
 三种 
-
-
-
-
-
 
 
 -----
@@ -8830,14 +5899,7 @@ fami图透，炸裂联动
 ##### 454#       发表于 2015-12-2 10:11
 
 
-
-
 3種以上啊，就是說4種也行的，肯定沒有差距啊...
-
-
-
-
-
 
 
 -----
@@ -8846,15 +5908,9 @@ fami图透，炸裂联动
 ##### 455#       发表于 2015-12-2 10:41
 
 
-
  本帖最后由 kitagawa 于 2015-12-6 14:41 编辑 
 
 贴和贴之间文化差异太大了 怪不得这贴没人气
-
-
-
-
-
 
 
 -----
@@ -8863,23 +5919,16 @@ fami图透，炸裂联动
 ##### 456#       发表于 2015-12-2 22:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30906151&amp;ptid=1158205" target="_blank">kitagawa 发表于 2015-12-2 10:41</a>
 
 今天的90元</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 457#       发表于 2015-12-3 09:40
-
 
 
 <blockquote>引用第454楼kitagawa于2015-12-02 10:41发表的  :
@@ -8893,17 +5942,10 @@ fami图透，炸裂联动
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 458#       发表于 2015-12-3 11:38
-
-
 
 
 之前广播里是不是说过要开新任务缓和虹星晶的取得量？就惦记着这个任务了，做十天还差300多个，又心疼药水<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
@@ -8911,16 +5953,10 @@ fami图透，炸裂联动
 能能弄个像古代布的free quest「誰がために」那样的就好了
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 459#       发表于 2015-12-3 12:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30914498&amp;ptid=1158205" target="_blank">hecas 发表于 2015-12-3 10:40</a>
@@ -8934,33 +5970,19 @@ fami图透，炸裂联动
 玩笑的 90元坚持一天一次很久了 估计是6%之前攒下的人品
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 460#       发表于 2015-12-3 18:02
 
 
-
-
 这新广告本太搞笑了，索菲亚：我负责复活！结果只有5000多血第一个被打死<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  mark421  
 ##### 461#       发表于 2015-12-3 23:54
-
-
 
 
 前几周瞎逛虎穴买了俩本子后觉得还是得玩下游戏了解下背景故事....
@@ -8970,25 +5992,13 @@ fami图透，炸裂联动
 [http://gbf.game.mbga.jp/#profile/6452421](http://gbf.game.mbga.jp/#profile/6452421)
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 462#       发表于 2015-12-4 17:16
 
 
-
-
 double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8997,15 +6007,9 @@ double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image
 ##### 463#       发表于 2015-12-4 18:17
 
 
-
  本帖最后由 kitagawa 于 2015-12-6 14:42 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/normal/026.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9014,16 +6018,10 @@ double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image
 ##### 464#       发表于 2015-12-4 19:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30915747&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-12-3 11:38</a>
 
 之前广播里是不是说过要开新任务缓和虹星晶的取得量？就惦记着这个任务了，做十天还差300多个，又心疼药水[ ...</blockquote>
 古代布不是那關刷的吧....現在ap減半趕緊刷，至於虹星晶我覺得不用想了，暫時看上去沒戲
-
-
-
-
-
 
 
 -----
@@ -9032,14 +6030,7 @@ double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image
 ##### 465#       发表于 2015-12-4 20:10
 
 
-
-
 狗妹匕首4破了，有哈总的现在刷满6把马上起飞
-
-
-
-
-
 
 
 -----
@@ -9048,16 +6039,10 @@ double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image
 ##### 466#       发表于 2015-12-5 00:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30928754&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-12-4 19:50</a>
 
 古代布不是那關刷的吧....現在ap減半趕緊刷，至於虹星晶我覺得不用想了，暫時看上去沒戲 ...</blockquote>
 古代布的话非减半时期几个free quest里那个最好刷啊（个人体验），不过我已经收集完古代布素材里只差虹星晶、anima和日绯色金了-▽-我都没有发现又减半了……
-
-
-
-
-
 
 
 -----
@@ -9066,16 +6051,10 @@ double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image
 ##### 467#       发表于 2015-12-5 00:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30930656&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-12-5 00:04</a>
 
 古代布的话非减半时期几个free quest里那个最好刷啊（个人体验），不过我已经收集完古代布素材里只差虹星 ...</blockquote>
 不...主要是你說的那關不掉古代布...
-
-
-
-
-
 
 
 -----
@@ -9084,16 +6063,10 @@ double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image
 ##### 468#       发表于 2015-12-5 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30930850&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-12-5 00:36</a>
 
 不...主要是你說的那關不掉古代布...</blockquote>
 翻了下wiki发现记岔了，是33章的変えたくないもの才对<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9102,14 +6075,7 @@ double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image
 ##### 469#       发表于 2015-12-6 09:56
 
 
-
-
 晒晒晒 晒你mb晒
-
-
-
-
-
 
 
 -----
@@ -9118,23 +6084,16 @@ double必得不出我头像就弃坑<img src="https://static.saraba1st.com/image
 ##### 470#       发表于 2015-12-8 17:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30927491&amp;ptid=1158205" target="_blank">Laie 发表于 2015-12-4 17:16</a>
 
 double必得不出我头像就弃坑</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">弃了没
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 471#       发表于 2015-12-9 02:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30961790&amp;ptid=1158205" target="_blank">LichEnd 发表于 2015-12-8 17:03</a>
@@ -9149,16 +6108,10 @@ double必得不出我头像就弃坑</blockquote>
 辣鸡游戏
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 472#       发表于 2015-12-9 08:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30966540&amp;ptid=1158205" target="_blank">鱼缸 发表于 2015-12-9 02:41</a>
@@ -9179,33 +6132,19 @@ double必得不出我头像就弃坑</blockquote>
 谁骗我这游戏有超得的……
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 473#       发表于 2015-12-9 10:37
 
 
-
-
 忍一忍，等surprise ticket 来才课吧。
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 474#       发表于 2015-12-9 12:25
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201512/09/122450b5eaqyiuaywaie0k.jpg" referrerpolicy="no-referrer">
@@ -9218,26 +6157,16 @@ double必得不出我头像就弃坑</blockquote>
 2015-12-9 12:24 上传
 
 
-
-
-
-
 不愧是本大爷的后代，勉强算个第二可爱的吧
 
 
 钱包准备好了吗
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 475#       发表于 2015-12-9 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30970140&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-12-9 12:25</a>
@@ -9252,16 +6181,10 @@ double必得不出我头像就弃坑</blockquote>
 大叔你誰啊
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 476#       发表于 2015-12-9 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30970140&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-12-9 12:25</a>
@@ -9273,16 +6196,10 @@ double必得不出我头像就弃坑</blockquote>
 最kawa酱是忘记穿裙子就跑出来了吗
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 477#       发表于 2015-12-9 16:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30970140&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-12-9 12:25</a>
@@ -9294,16 +6211,10 @@ double必得不出我头像就弃坑</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">太太太....太爷爷看见自己的曾曾曾....曾孙女穿的这么风尘不会担心嘛？
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 478#       发表于 2015-12-9 16:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30970140&amp;amp;ptid=1158205" target="_blank">カリオストロ 发表于 2015-12-9 12:25</a>
@@ -9314,25 +6225,13 @@ double必得不出我头像就弃坑</blockquote>
 那么是大爷您和哪位小女子一夜风流后开花结果了？
 
 
-
-
-
-
-
 -----
 
 ####  カーリアン  
 ##### 479#       发表于 2015-12-9 16:48
 
 
-
-
 CY终于想起莉莉故事设定里是冰雪精灵这事，把她的人类种族给去掉了
-
-
-
-
-
 
 
 -----
@@ -9341,23 +6240,16 @@ CY终于想起莉莉故事设定里是冰雪精灵这事，把她的人类种族
 ##### 480#       发表于 2015-12-9 17:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">水系被狠狠奶了一波，只有我狐没人理…
 
 
 ----发送自 [Sony D5503,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 481#       发表于 2015-12-9 21:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30973026&amp;ptid=1158205" target="_blank">furui3132 发表于 2015-12-9 17:19</a>
@@ -9372,16 +6264,10 @@ CY终于想起莉莉故事设定里是冰雪精灵这事，把她的人类种族
 不過莉莉現在不明了，可以組SSR水狐狸隊了嘛，當然4比較難拿....
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 482#       发表于 2015-12-9 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30974801&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-12-9 21:09</a>
@@ -9395,17 +6281,10 @@ CY终于想起莉莉故事设定里是冰雪精灵这事，把她的人类种族
 目指四破
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 483#       发表于 2015-12-10 16:02
-
-
 
 
 今天广播内容：
@@ -9419,25 +6298,13 @@ CY终于想起莉莉故事设定里是冰雪精灵这事，把她的人类种族
 圣诞节角色2个人
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 484#       发表于 2015-12-10 16:15
 
 
-
-
 HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9446,13 +6313,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 485#       发表于 2015-12-10 16:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">久违的自选！
-
-
-
-
-
 
 
 -----
@@ -9461,23 +6322,16 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 486#       发表于 2015-12-10 17:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30972608&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-12-9 16:35</a>
 
 那么是大爷您和哪位小女子一夜风流后开花结果了？</blockquote>
 最kawa酱是おっさん妹妹的后代啦，从fate episode剧情来看おっさん应该是没留下后代就挂了的少年<img src="https://static.saraba1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kuglv  
 ##### 487#       发表于 2015-12-10 17:14
-
 
 
  本帖最后由 kuglv 于 2015-12-10 19:31 编辑 
@@ -9488,16 +6342,10 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 遵从了下半身的欲望还是选了佐仓，不过她攻击时扔出来的奇妙棒状物是什么<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 488#       发表于 2015-12-10 17:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30974801&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-12-9 21:09</a>
@@ -9509,25 +6357,13 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 这三个加上黑剑可以组个绝对不让敌人发奥义队，特殊行动也可以用莉莉来挡，就是要另外打巴哈武器比较烦，最方便快捷的方法是不要考虑用水狐狸…………我有4我也直接让他混进人类队而不是和那两个组<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 489#       发表于 2015-12-12 10:51
 
 
-
-
 竟然要15块钢换一个绯绯！再加上玄武斧就是4天肝20w
-
-
-
-
-
 
 
 -----
@@ -9536,16 +6372,10 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 490#       发表于 2015-12-12 12:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30982703&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-12-10 17:17</a>
 
 这三个加上黑剑可以组个绝对不让敌人发奥义队，特殊行动也可以用莉莉来挡，就是要另外打巴哈武器比较烦， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">打巴哈的时候不小心滚了一个狐狸枪成品
-
-
-
-
-
 
 
 -----
@@ -9554,16 +6384,10 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 491#       发表于 2015-12-12 17:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31003215&amp;ptid=1158205" target="_blank">cowgp01 发表于 2015-12-12 10:51</a>
 
 竟然要15块钢换一个绯绯！再加上玄武斧就是4天肝20w</blockquote>
 去看了看商店,第一个绯绯还是10个啊...
-
-
-
-
-
 
 
 -----
@@ -9572,14 +6396,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 492#       发表于 2015-12-13 01:59
 
 
-
-
 第一个10，第二个15，还差6个，这次挺好打的
-
-
-
-
-
 
 
 -----
@@ -9588,14 +6405,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 493#       发表于 2015-12-13 12:02
 
 
-
-
 今日的90出了佐仓的琴，感觉很不爽...
-
-
-
-
-
 
 
 -----
@@ -9604,14 +6414,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 494#       发表于 2015-12-13 13:32
 
 
-
-
 大地的宝珠哪里刷比较多呀，老男人5破要50个好缺<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9620,16 +6423,10 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 495#       发表于 2015-12-15 09:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31012327&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-12-13 13:32</a>
 
 大地的宝珠哪里刷比较多呀，老男人5破要50个好缺</blockquote>
 今天的宝珠任务、土属性试炼任务都可以刷啊
-
-
-
-
-
 
 
 -----
@@ -9638,16 +6435,10 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 496#       发表于 2015-12-15 14:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31028238&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-12-15 09:39</a>
 
 今天的宝珠任务、土属性试炼任务都可以刷啊</blockquote>
 嗯，已经嗑药刷够了，宝珠本掉率好捉鸡呀，不过老男人五破立绘确实好棒<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9656,16 +6447,10 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 497#       发表于 2015-12-15 14:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31031086&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-12-15 14:09</a>
 
 嗯，已经嗑药刷够了，宝珠本掉率好捉鸡呀，不过老男人五破立绘确实好棒 ...</blockquote>
 话说这老男人说的是カリオストロ还是ソリッズ<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9674,16 +6459,10 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 498#       发表于 2015-12-15 14:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31031117&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2015-12-15 14:12</a>
 
 话说这老男人说的是カリオストロ还是ソリッズ</blockquote>
 カリオストロ大爷啦
-
-
-
-
-
 
 
 -----
@@ -9692,14 +6471,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 499#       发表于 2015-12-15 15:42
 
 
-
-
 ソリッズ也很帅呀，老兵未老的感觉。
-
-
-
-
-
 
 
 -----
@@ -9708,14 +6480,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 500#       发表于 2015-12-15 15:56
 
 
-
-
 居然已经700万了，看通知似乎700万活动会跟圣诞一起
-
-
-
-
-
 
 
 -----
@@ -9724,14 +6489,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 501#       发表于 2015-12-15 23:40
 
 
-
-
 剑圣和枪手都感觉是托无人氪金武器啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9740,14 +6498,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 502#       发表于 2015-12-16 10:02
 
 
-
-
 我就这么点SSR今天居然就出了个重复的<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9756,14 +6507,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 503#       发表于 2015-12-16 18:11
 
 
-
-
 十雷狼的弹槽很好，七星剑和八命切的剑神解放效果就一般了
-
-
-
-
-
 
 
 -----
@@ -9772,14 +6516,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 504#       发表于 2015-12-17 08:24
 
 
-
-
 共斗ui改得对找房的来说更难受了
-
-
-
-
-
 
 
 -----
@@ -9788,17 +6525,10 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 505#       发表于 2015-12-17 08:35
 
 
-
-
 之前没打共斗，现在打就很烦
 
 
 剑神效果还要看解放之后平砍附带的效果，总之这次玩出花了。。。光是子弹就很多搭配了
-
-
-
-
-
 
 
 -----
@@ -9807,14 +6537,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 506#       发表于 2015-12-17 08:42
 
 
-
-
 八命切最主要是被打会反击一次但是是消耗最高的4剑气，一下子剑气就被消耗光了
-
-
-
-
-
 
 
 -----
@@ -9823,14 +6546,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 507#       发表于 2015-12-18 13:28
 
 
-
-
 佐仓还学会场地魔法了，搞得这么复杂希望效果厉害一点，还有你们的技术原来已经干涉到原子的啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9839,14 +6555,7 @@ HRT是我爹<img src="https://static.saraba1st.com/image/smiley/face/159.jpg" re
 ##### 508#       发表于 2015-12-18 15:39
 
 
-
-
 Cygame 会不会玩脱呀。土属性原爆佐仓，一般会用来打大招为海啸的雷文丁，土属性4人chain burst的地震。。。
-
-
-
-
-
 
 
 -----
@@ -9855,14 +6564,7 @@ Cygame 会不会玩脱呀。土属性原爆佐仓，一般会用来打大招为�
 ##### 509#       发表于 2015-12-18 16:59
 
 
-
-
 之前水老頭我覺得已經玩脫了...有時候想在共斗房間寫老師與狗不得入內
-
-
-
-
-
 
 
 -----
@@ -9871,24 +6573,16 @@ Cygame 会不会玩脱呀。土属性原爆佐仓，一般会用来打大招为�
 ##### 510#       发表于 2015-12-18 17:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31058432&amp;ptid=1158205" target="_blank">剑布衣 发表于 2015-12-18 16:59</a>
 
 之前水老頭我覺得已經玩脫了...有時候想在共斗房間寫老師與狗不得入內</blockquote>
 福岛第一核电站事故敏感多吧
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 511#       发表于 2015-12-18 22:06
-
-
 
 
 话说这边能求职不?
@@ -9898,25 +6592,13 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 id 5364792
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 512#       发表于 2015-12-19 17:19
 
 
-
-
 原子崩坏果然是全场上限提升，不过是场地效果所以总会有人上的有没有都没所谓，最重要是表示CY以后要推出各种场地了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9925,14 +6607,7 @@ id 5364792
 ##### 513#       发表于 2015-12-19 18:38
 
 
-
-
 买皮肤和超得剩的十连两次就抽到佐仓了哈哈哈哈哈哈哈，圣诞节好开心啊<img src="https://static.saraba1st.com/image/smiley/face/153.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9941,14 +6616,7 @@ id 5364792
 ##### 514#       发表于 2015-12-19 19:05
 
 
-
-
 之前一直说应该脑洞更多类型的战斗资源，不要死磕着奥义条不放，结果这个月一下子就加了2.5种<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9957,23 +6625,16 @@ id 5364792
 ##### 515#       发表于 2015-12-20 11:37
 
 
-
 <img src="http://ww2.sinaimg.cn/mw1024/49332ccagw1ez5wo87rk5j20c60hejvp.jpg" referrerpolicy="no-referrer">
 
 
 萌新今天单抽偶得，想问问……KJHO*&amp;(TGPBHOPIHJBG^&amp;*T
 
 
-
-
-
-
-
 -----
 
 ####  Iyx  
 ##### 516#       发表于 2015-12-20 17:30
-
 
 
 <blockquote>submarine406 发表于 2015-12-18 22:06
@@ -9986,16 +6647,10 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 群号码：433071863
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 517#       发表于 2015-12-21 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31073828&amp;ptid=1158205" target="_blank">Iyx 发表于 2015-12-20 17:30</a>
@@ -10004,17 +6659,10 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 好意心领,不过已入他团,谢谢
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 518#       发表于 2015-12-21 19:25
-
-
 
 
 鼠叔这个不错 很好舔 能力也强
@@ -10023,25 +6671,13 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  kyogngn  
 ##### 519#       发表于 2015-12-22 10:50
 
 
-
-
 初入这个坑 是不是还要买个日本VPN才能愉快的玩耍<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10050,16 +6686,10 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 ##### 520#       发表于 2015-12-22 13:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31089410&amp;ptid=1158205" target="_blank">kyogngn 发表于 2015-12-22 10:50</a>
 
 初入这个坑 是不是还要买个日本VPN才能愉快的玩耍</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">确实是最好买个代理……如果你网不够流畅的话
-
-
-
-
-
 
 
 -----
@@ -10068,16 +6698,10 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 ##### 521#       发表于 2015-12-22 13:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31090909&amp;ptid=1158205" target="_blank">LichEnd 发表于 2015-12-22 13:05</a>
 
 确实是最好买个代理……如果你网不够流畅的话</blockquote>
 那么能不能PM一下代理的名字？
-
-
-
-
-
 
 
 -----
@@ -10086,14 +6710,7 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 ##### 522#       发表于 2015-12-22 13:52
 
 
-
-
 700这数字也没啥特别的啊，运营咋又大方了...
-
-
-
-
-
 
 
 -----
@@ -10102,16 +6719,10 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 ##### 523#       发表于 2015-12-22 13:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31091367&amp;ptid=1158205" target="_blank">submarine406 发表于 2015-12-22 13:52</a>
 
 700这数字也没啥特别的啊，运营咋又大方了...</blockquote>
 哪里大方了，500万送了5500石+10连。。。
-
-
-
-
-
 
 
 -----
@@ -10120,23 +6731,16 @@ rank 86的咸鱼一条,土队无攻buff防-25%下20min solo古战ex的程度,找
 ##### 524#       发表于 2015-12-22 13:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31090909&amp;ptid=1158205" target="_blank">LichEnd 发表于 2015-12-22 13:05</a>
 
 确实是最好买个代理……如果你网不够流畅的话</blockquote>
 同求PM
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 525#       发表于 2015-12-23 00:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31091068&amp;ptid=1158205" target="_blank">老贝 发表于 2015-12-22 13:21</a>
@@ -10147,16 +6751,10 @@ ShadowSocks 或者 迅达
 我目前是在用迅达，比较流畅，很少抽风
 
 
-
-
-
-
-
 -----
 
 ####  kyogngn  
 ##### 526#       发表于 2015-12-23 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31097455&amp;ptid=1158205" target="_blank">LichEnd 发表于 2015-12-23 00:01</a>
@@ -10167,16 +6765,10 @@ ShadowSocks 或者 迅达
 <img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">电脑还好 手机玩各种突然抽风还要自己重连
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 527#       发表于 2015-12-23 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31107539&amp;ptid=1158205" target="_blank">kyogngn 发表于 2015-12-23 13:27</a>
@@ -10187,25 +6779,13 @@ ShadowSocks 或者 迅达
 反正我是不用手机玩的……就算网不卡打起来也不流畅……
 
 
-
-
-
-
-
 -----
 
 ####  Laie  
 ##### 528#       发表于 2015-12-24 15:28
 
 
-
-
 有预感猴妹又要变成我一年份的gacha地狱了
-
-
-
-
-
 
 
 -----
@@ -10214,14 +6794,7 @@ ShadowSocks 或者 迅达
 ##### 529#       发表于 2015-12-24 15:28
 
 
-
-
 有预感猴妹又要变成我一年份的gacha地狱了
-
-
-
-
-
 
 
 -----
@@ -10230,14 +6803,7 @@ ShadowSocks 或者 迅达
 ##### 530#       发表于 2015-12-24 16:26
 
 
-
-
 可以把猴子设计得那么可爱，设计那位的真是个出色的变态呢<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10246,21 +6812,13 @@ ShadowSocks 或者 迅达
 ##### 531#       发表于 2015-12-25 11:03
 
 
-
-
 前幾天90出了佐倉，群里有小夥伴就咒我說我要是出了猴妹他就直播切JJ，雖然我對猴妹和男人的JJ沒有興趣，不過這麼喜慶的事情，我要不要先來個200抽呢....
-
-
-
-
-
 
 
 -----
 
 ####  gfgf54zc  
 ##### 532#       发表于 2015-12-25 14:30
-
 
 
  本帖最后由 gfgf54zc 于 2015-12-25 14:33 编辑 
@@ -10274,25 +6832,13 @@ ShadowSocks 或者 迅达
 刷H 感觉很不靠谱....
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 533#       发表于 2015-12-25 22:16
 
 
-
-
 送羊了送羊了
-
-
-
-
-
 
 
 -----
@@ -10301,13 +6847,7 @@ ShadowSocks 或者 迅达
 ##### 534#       发表于 2015-12-25 22:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">皮民大欢喜
-
-
-
-
-
 
 
 -----
@@ -10316,14 +6856,7 @@ ShadowSocks 或者 迅达
 ##### 535#       发表于 2015-12-25 22:51
 
 
-
-
 但从今以后没得抽SSR羊。
-
-
-
-
-
 
 
 -----
@@ -10332,21 +6865,13 @@ ShadowSocks 或者 迅达
 ##### 536#       发表于 2015-12-26 04:38
 
 
-
-
 香菜的上司是兽耳，大概就是最后的一个种族厨角了，至于香菜的原同事，应该性能和香菜差不多，反正怎么花瓶你们还是会抽的<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 537#       发表于 2015-12-26 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31130579&amp;ptid=1158205" target="_blank">gfgf54zc 发表于 2015-12-25 14:30</a>
@@ -10360,17 +6885,10 @@ H经验就够了
 而且掉5k块的素材，比ex划算
 
 
-
-
-
-
-
 -----
 
 ####  17cc  
 ##### 538#       发表于 2015-12-26 10:33
-
-
 
 
 香菜怎么说呢
@@ -10382,17 +6900,10 @@ H经验就够了
 毕竟HL的要求越来越诡异了
 
 
-
-
-
-
-
 -----
 
 ####  琴酒  
 ##### 539#       发表于 2015-12-26 11:29
-
-
 
 
 新人问下 和偶像大师 等3个mobage游戏联动
@@ -10402,33 +6913,19 @@ H经验就够了
 chrome不能联动只能APP吗
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 540#       发表于 2015-12-26 11:57
 
 
-
-
 三联动是每天登录一次获得一个点数，达到一定点数获得相应奖励，到日期重置一次
-
-
-
-
-
 
 
 -----
 
 ####  琴酒  
 ##### 541#       发表于 2015-12-26 12:27
-
-
 
 
 campaign 的 推特前面那2个是不是一次性的
@@ -10440,17 +6937,10 @@ campaign 的 推特前面那2个是不是一次性的
 三排中间那个就是你说的点数？
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 542#       发表于 2015-12-26 15:34
-
-
 
 
 分两种吧  一种是手机认证后 app联动送一千石头 一次性的  还有一个是半个月一轮回 点签到的  一次有两张券 分别是十号和二十五号重置
@@ -10459,17 +6949,10 @@ campaign 的 推特前面那2个是不是一次性的
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  琴酒  
 ##### 543#       发表于 2015-12-26 17:18
-
-
 
 
 是不是能 raid了 就蹭别人升级了前面进别人本 掉了个这个
@@ -10485,22 +6968,10 @@ campaign 的 推特前面那2个是不是一次性的
 2015-12-26 17:18 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 544#       发表于 2015-12-26 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31140714&amp;ptid=1158205" target="_blank">琴酒 发表于 2015-12-26 17:18</a>
@@ -10509,25 +6980,13 @@ campaign 的 推特前面那2个是不是一次性的
 你想raid随时都能啊   这个满破之后可以拿去分解或者拿去卖点小钱
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 545#       发表于 2015-12-27 18:34
 
 
-
-
 秀逗参战人物，莉娜，高里，白蛇。一月开活动
-
-
-
-
-
 
 
 -----
@@ -10538,13 +6997,10 @@ campaign 的 推特前面那2个是不是一次性的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gfgf54zc  
 ##### 547#       发表于 2015-12-29 08:57
-
-
 
 
 实在不知道天人们的N把满破方阵怎么肝出来的....打了1000豆才出2把...
@@ -10553,33 +7009,19 @@ campaign 的 推特前面那2个是不是一次性的
 是不是无凸方阵平铺几把 也可以先配合マグナ召唤先用着?
 
 
-
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 548#       发表于 2015-12-29 10:05
 
 
-
-
 当你可以把每个马打一半血的时候，每天打完全部马格纳，除了光暗还不算太坑，方阵先搞个平铺再满突，你满突的提升远没有10技平铺大
-
-
-
-
-
 
 
 -----
 
 ####  Iyx  
 ##### 549#       发表于 2015-12-29 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31162615&amp;ptid=1158205" target="_blank">gfgf54zc 发表于 2015-12-29 08:57</a>
@@ -10594,16 +7036,10 @@ campaign 的 推特前面那2个是不是一次性的
 不要赶在减半时期刷方阵，去刷十天素材吧……
 
 
-
-
-
-
-
 -----
 
 ####  gfgf54zc  
 ##### 550#       发表于 2015-12-29 10:27
-
 
 
  本帖最后由 gfgf54zc 于 2015-12-29 10:29 编辑 
@@ -10616,16 +7052,10 @@ campaign 的 推特前面那2个是不是一次性的
 刷了一年方阵,每种颜色各满破了1~2把   Orz
 
 
-
-
-
-
-
 -----
 
 ####  gfgf54zc  
 ##### 551#       发表于 2015-12-29 10:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31163305&amp;ptid=1158205" target="_blank">Iyx 发表于 2015-12-29 10:17</a>
@@ -10637,25 +7067,13 @@ campaign 的 推特前面那2个是不是一次性的
 GET 正好没豆了 Orz
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 552#       发表于 2015-12-29 10:30
 
 
-
-
 mvp确定流啦，没有mvp出货几率非常低的，全部打够一半血放出去
-
-
-
-
-
 
 
 -----
@@ -10664,22 +7082,15 @@ mvp确定流啦，没有mvp出货几率非常低的，全部打够一半血放�
 ##### 553#       发表于 2015-12-29 11:47
 
 
-
  本帖最后由 kuglv 于 2015-12-29 11:49 编辑 
 
 这段时间蹭了100+豆也大概掉了有4-5把方阵吧，虽然大多都是守护背水之类的..
-
-
-
-
-
 
 
 -----
 
 ####  浮矢瞬  
 ##### 554#       发表于 2015-12-29 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31163391&amp;ptid=1158205" target="_blank">gfgf54zc 发表于 2015-12-29 10:27</a>
@@ -10691,25 +7102,13 @@ mvp确定流啦，没有mvp出货几率非常低的，全部打够一半血放�
 我玩了十个月收集得算慢的了（因为70级才开始收集magna武器），也没你这么少啊。。。。
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 555#       发表于 2015-12-29 12:24
 
 
-
-
 树婊一把晶剑都不肯滚，太可恶了，好不容易滚一下都特么的匕首.....那么什么时候可以在奸商那里用武勋点换土方武器呢
-
-
-
-
-
 
 
 -----
@@ -10718,21 +7117,13 @@ mvp确定流啦，没有mvp出货几率非常低的，全部打够一半血放�
 ##### 556#       发表于 2015-12-29 12:55
 
 
-
-
 你们好歹还掉升技用狗粮,这边已经花钱回收了20+虹星晶了...
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 557#       发表于 2015-12-29 15:29
-
 
 
  本帖最后由 カリオストロ 于 2015-12-29 16:09 编辑 
@@ -10748,20 +7139,11 @@ mvp确定流啦，没有mvp出货几率非常低的，全部打够一半血放�
 2015-12-29 15:28 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer"> 钱包的哀嚎
-
-
-
-
 
 
 QQ图片20151229170818.jpg
 (46.03 KB, 下载次数: 25)
-
-
 
 
 下载附件
@@ -10770,24 +7152,7 @@ QQ图片20151229170818.jpg
 2015-12-29 16:09 上传
 
 
-
-
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201512/29/160911slz87rl42wzzw2g4.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10796,15 +7161,9 @@ QQ图片20151229170818.jpg
 ##### 558#       发表于 2015-12-29 18:26
 
 
-
  本帖最后由 kuglv 于 2015-12-29 18:42 编辑 
 
 30连就出了个团长剑和这次的新蔷薇...这奥义消耗也太厉害了吧，而且感觉效果好低...
-
-
-
-
-
 
 
 -----
@@ -10813,17 +7172,10 @@ QQ图片20151229170818.jpg
 ##### 559#       发表于 2015-12-29 18:56
 
 
-
-
 大概结界是保护作用吧 我没抽到不了解
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -10832,22 +7184,13 @@ QQ图片20151229170818.jpg
 ##### 560#       发表于 2015-12-29 19:13
 
 
-
-
 连击提升和伤害提升，目前看到的情报是很屌
-
-
-
-
-
 
 
 -----
 
 ####  kuglv  
 ##### 561#       发表于 2015-12-29 19:57
-
-
 
 
 结界攒到2层之后感觉伤害提升有点明显了，大概15%左右的伤害提升，但是维持很困难，为了附带的强化效果要手动关结界，但是开关都要消耗5奥义，1层每回合消耗20奥义，之后每多一层多10消耗，基本敌人没有打她就要强制关结界，目前我还没有成功地在3层以上手动关结界，不知道后期会不会减少消耗...一回合只能提升一层，多个敌人同时攻击她也无法一回合提升多层结界
@@ -10857,32 +7200,19 @@ QQ图片20151229170818.jpg
 至于技能2说是会让全队人攻击时附加固定伤害，但是我用了好像没有作用<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 562#       发表于 2015-12-29 22:23
 
 
-
-
 新年要出的召唤辉夜是背水连击，然后带一个提半血6提铳，主角剑圣带薄绿，队员猴子，BBA，9，超级风队就完成了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  KOBI  
 ##### 563#       发表于 2015-12-30 01:06
-
 
 
  本帖最后由 KOBI 于 2015-12-30 01:08 编辑 
@@ -10892,16 +7222,10 @@ QQ图片20151229170818.jpg
 看到WIKI那边有人提4UN5方阵1巴哈感觉蒙了。。。
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 564#       发表于 2015-12-30 02:49
-
 
 
  本帖最后由 カリオストロ 于 2015-12-30 02:52 编辑 
@@ -10934,16 +7258,10 @@ QQ图片20151229170818.jpg
 当然有时候方阵UK的数值比氪金武器差太多的话，组合会有微妙的变化
 
 
-
-
-
-
-
 -----
 
 ####  KOBI  
 ##### 565#       发表于 2015-12-30 03:56
-
 
 
  本帖最后由 KOBI 于 2015-12-30 03:58 编辑 
@@ -10953,16 +7271,10 @@ QQ图片20151229170818.jpg
 被WIKI那页给绕晕了。。
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 566#       发表于 2015-12-30 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31164630&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2015-12-29 12:24</a>
@@ -10971,16 +7283,10 @@ QQ图片20151229170818.jpg
 1月更新水HL，土要等到2月吧
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 567#       发表于 2015-12-30 13:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31167978&amp;ptid=1158205" target="_blank">kuglv 发表于 2015-12-29 18:26</a>
@@ -10989,25 +7295,13 @@ QQ图片20151229170818.jpg
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">不过还好出了羊……
 
 
-
-
-
-
-
 -----
 
 ####  xiaocheng  
 ##### 568#       发表于 2015-12-30 14:48
 
 
-
-
 30连只有一个火小马的就看看ls各位脸帝。两个月70抽一个ssr都没有。
-
-
-
-
-
 
 
 -----
@@ -11016,14 +7310,7 @@ QQ图片20151229170818.jpg
 ##### 569#       发表于 2015-12-30 16:16
 
 
-
-
 2发10连1个光小马1个高文,等高文3技出来就可以solo土方了
-
-
-
-
-
 
 
 -----
@@ -11034,21 +7321,13 @@ QQ图片20151229170818.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kitagawa  
 ##### 571#       发表于 2015-12-30 21:30
 
 
-
-
 3单=1伊东...嗯 我最近很熟悉汇率 _(：3」∠)_
-
-
-
-
-
 
 
 -----
@@ -11057,14 +7336,7 @@ QQ图片20151229170818.jpg
 ##### 572#       发表于 2015-12-30 22:11
 
 
-
-
 アニラ换了团长选的衣服后变成了SR<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11073,14 +7345,7 @@ QQ图片20151229170818.jpg
 ##### 573#       发表于 2015-12-31 23:42
 
 
-
-
 去年是风雷神，今年玩哼哈二将么
-
-
-
-
-
 
 
 -----
@@ -11089,14 +7354,7 @@ QQ图片20151229170818.jpg
 ##### 574#       发表于 2016-1-1 01:20
 
 
-
-
 秀逗活动是团战，光之剑要团战出，已经可以预计是多么惨烈了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11105,14 +7363,7 @@ QQ图片20151229170818.jpg
 ##### 575#       发表于 2016-1-1 13:26
 
 
-
-
 连着2个月古战之前接四象，而且又是5天...
-
-
-
-
-
 
 
 -----
@@ -11121,23 +7372,16 @@ QQ图片20151229170818.jpg
 ##### 576#       发表于 2016-1-1 14:30
 
 
-
 <img src="http://i4.tietuku.com/7f216c0ba01a3d2a.png" referrerpolicy="no-referrer">
 
 
 打算入坑的求教下   下载+更新完后弹出这个  是什么受限吗? 需要做什么?
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 577#       发表于 2016-1-1 14:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31192312&amp;ptid=1158205" target="_blank">妹控使徒 发表于 2016-1-1 14:30</a>
@@ -11148,16 +7392,10 @@ QQ图片20151229170818.jpg
 这个MOBAGE号是你的吗，还是从别人那里入手的
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 578#       发表于 2016-1-1 14:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31192453&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-1 14:54</a>
@@ -11168,16 +7406,10 @@ QQ图片20151229170818.jpg
 应该是我的   大概3个月前下过一次 试着弄了下  好像是上去过的  但之后就没再碰多少    
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 579#       发表于 2016-1-1 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31192469&amp;ptid=1158205" target="_blank">妹控使徒 发表于 2016-1-1 14:58</a>
@@ -11188,32 +7420,19 @@ QQ图片20151229170818.jpg
 搞起来可能还比较麻烦，如果号不是很重要重新弄个号吧
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 580#       发表于 2016-1-1 15:05
 
 
-
-
 现在开号还可以自选价值70w的猴子
-
-
-
-
-
 
 
 -----
 
 ####  妹控使徒  
 ##### 581#       发表于 2016-1-1 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31192484&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-1 15:00</a>
@@ -11227,16 +7446,10 @@ QQ图片20151229170818.jpg
 那么需要日本**邮箱等?
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 582#       发表于 2016-1-1 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31192532&amp;ptid=1158205" target="_blank">妹控使徒 发表于 2016-1-1 15:09</a>
@@ -11249,11 +7462,6 @@ QQ图片20151229170818.jpg
 
 
 邮箱的有gmail hotmail之类的就OK了
-
-
-
-
-
 
 
 -----
@@ -11262,7 +7470,6 @@ QQ图片20151229170818.jpg
 ##### 583#       发表于 2016-1-1 15:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31192532&amp;ptid=1158205" target="_blank">妹控使徒 发表于 2016-1-1 15:09</a>
 
 于是求教下如何弄?  主要是不太熟日文和这个界面    应该是先退出号再重新注册  
@@ -11275,16 +7482,10 @@ QQ图片20151229170818.jpg
 邮箱的有gmail hotmail之类的就OK了
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 584#       发表于 2016-1-1 22:14
-
 
 
  本帖最后由 LichEnd 于 2016-1-2 09:00 编辑 
@@ -11294,25 +7495,13 @@ QQ图片20151229170818.jpg
 这是要肝出人命啊……
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 585#       发表于 2016-1-2 08:31
 
 
-
-
 2400线要突破1.5亿的赶脚
-
-
-
-
-
 
 
 -----
@@ -11321,14 +7510,7 @@ QQ图片20151229170818.jpg
 ##### 586#       发表于 2016-1-2 14:02
 
 
-
-
 中井的快充DEBUFF好像可以消去，这样的话就是花费20—30奥义获得奥义伤害加180，奥义上限加120<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11337,16 +7519,9 @@ QQ图片20151229170818.jpg
 ##### 587#       发表于 2016-1-3 09:06
 
 
-
-
 临睡前中个小奖
 
 ttp://i.imgur.com/L2HsFxV.jpg
-
-
-
-
-
 
 
 -----
@@ -11355,14 +7530,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 588#       发表于 2016-1-3 10:54
 
 
-
-
 田中理恵看来也很沉迷啊 羊猴都堵出来了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11371,14 +7539,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 589#       发表于 2016-1-3 12:15
 
 
-
-
 求教下有没比较详细介绍游戏系统和各项资源 属性的帖子?
-
-
-
-
-
 
 
 -----
@@ -11387,14 +7548,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 590#       发表于 2016-1-3 12:40
 
 
-
-
 前面的帖子有人写了武器计算公式，巴哈上面好像也有一些资料（我没去看过，再详细的就只有WIKI和验证厨的推了，说真的GBF现在变得挺复杂的了
-
-
-
-
-
 
 
 -----
@@ -11403,15 +7557,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 591#       发表于 2016-1-3 13:31
 
 
-
-
 入坑几天玩到RANK 28，看了些资料大致知道方阵是什么东西了，那么现在就是AP推图打日常，有BP就去蹭除光暗外的○○・マグナ，然后碰运气拿掉落的方阵武器和召唤兽吗？
-
-
-
-
-
-
 
 
 -----
@@ -11420,14 +7566,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 592#       发表于 2016-1-3 14:48
 
 
-
-
 上次星战UK 到现在 就没进过本战<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11436,16 +7575,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 593#       发表于 2016-1-3 15:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31205424&amp;ptid=1158205" target="_blank">ixtli 发表于 2016-1-3 13:31</a>
 
 入坑几天玩到RANK 28，看了些资料大致知道方阵是什么东西了，那么现在就是AP推图打日常，有BP就去蹭除光暗 ...</blockquote>
 还有活动的时候AP拿去打活动，比如现在的剧情活动的召唤不错，战斗力不足就放出来让别人打，靠战货抽拼一下，接下来的讨灭战也是福利不错的。初期先以堆战力为主，攻刃方阵什么的不用太在意
-
-
-
-
-
 
 
 -----
@@ -11454,15 +7587,9 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 594#       发表于 2016-1-3 19:07
 
 
-
  本帖最后由 hello0607 于 2016-1-3 19:23 编辑 
 
 我知错了  我不跳了
-
-
-
-
-
 
 
 -----
@@ -11471,16 +7598,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 595#       发表于 2016-1-3 20:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31198726&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-1-2 14:02</a>
 
 中井的快充DEBUFF好像可以消去，这样的话就是花费20—30奥义获得奥义伤害加180，奥义上限加120 ...</blockquote>
 这是土magna80就可以做到还是必须グランデ，我猜应该是后者……
-
-
-
-
-
 
 
 -----
@@ -11489,16 +7610,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 596#       发表于 2016-1-3 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31204259&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-1-3 10:54</a>
 
 田中理恵看来也很沉迷啊 羊猴都堵出来了</blockquote>
 她就是个托，放了张十连截图说抽到JK之后停下来没点。再点了就出来SSR召唤石超开心，但是她那个召唤石是第三个出来的，跟在JK后面出来的是酋长<img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11507,14 +7622,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 597#       发表于 2016-1-3 20:49
 
 
-
-
 普通奥义可以打到80W左右中井就可以打出上限了吧，靠背水和满BUFF不需要杂<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11523,16 +7631,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 598#       发表于 2016-1-4 00:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31208701&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-1-3 20:49</a>
 
 普通奥义可以打到80W左右中井就可以打出上限了吧，靠背水和满BUFF不需要杂 ...</blockquote>
 谢谢解答疑问，考虑下不需要かばう角色的时候和アレ爺一起用，或者换掉アレ爺<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11541,14 +7643,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 599#       发表于 2016-1-4 03:28
 
 
-
-
 想看看哪位大佬有羊妹卡池的超得号…想收一个
-
-
-
-
-
 
 
 -----
@@ -11557,14 +7652,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 600#       发表于 2016-1-4 08:09
 
 
-
-
 中井是和100级萌王捆绑的，消不掉短路debuff的中井很弱，没有100级那只能自己带ex或者巴力了。还有传说这货之前还想虽然脆也是高攻高连，结果出3连后反而会变弱，不是bug那就没救了
-
-
-
-
-
 
 
 -----
@@ -11573,14 +7661,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 601#       发表于 2016-1-4 08:15
 
 
-
-
 中井毫无疑问本期大奖了。综合能力稳定进main的大概只有他了，不过缺点是必须绑定100级萌王…
-
-
-
-
-
 
 
 -----
@@ -11589,18 +7670,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 602#       发表于 2016-1-4 15:00
 
 
-
-
 手机上已进行了简单注册并进行了游戏    是不绑定邮箱后 就可以用邮箱帐号登录chrome?
 
 
-
 总之求教下如何绑定邮箱
-
-
-
-
-
 
 
 -----
@@ -11609,23 +7682,15 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 603#       发表于 2016-1-4 17:19
 
 
-
 <img src="http://i4.tietuku.com/ae86d32888a69a14.jpg" referrerpolicy="no-referrer">
 
 实力嘲讽<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 604#       发表于 2016-1-4 22:08
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201601/04/220757nvgq22oviniietqv.jpg" referrerpolicy="no-referrer">
@@ -11638,16 +7703,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 2016-1-4 22:07 上传
 
 
-
-
-
-
 发一张简单易懂的伤害计算图
-
-
-
-
-
 
 
 -----
@@ -11656,16 +7712,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 605#       发表于 2016-1-4 22:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31218687&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-4 22:08</a>
 
 发一张简单易懂的伤害计算图</blockquote>
 喷了<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11674,14 +7724,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 606#       发表于 2016-1-5 13:29
 
 
-
-
 四属性的普刃加护石120+属性80，怎么算都比不上方阵100+属性80，难道就是扔sub的命？
-
-
-
-
-
 
 
 -----
@@ -11690,14 +7733,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 607#       发表于 2016-1-5 13:33
 
 
-
-
 你算算二技能和4破，举个例子吧，狼斧4破的二手加成是一个7%，普通带4个才会有28%然而你有一个触手的情况就是一个接近15%，带4把你就有60%的基础连击<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11706,16 +7742,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 608#       发表于 2016-1-5 13:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31223541&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-1-5 13:33</a>
 
 你算算二技能和4破，举个例子吧，狼斧4破的二手加成是一个7%，普通带4个才会有28%然而你有一个触手的情况就 ...</blockquote>
 这个倒是没考虑过...算了算这样倒是挺不错的了，但是感觉要有背水或者二手收益才会比较大，纯攻刃不如方阵+属性，然而我抽到的是风那个...
-
-
-
-
-
 
 
 -----
@@ -11724,14 +7754,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 609#       发表于 2016-1-5 14:00
 
 
-
-
 那么，杂是怎么个算法
-
-
-
-
-
 
 
 -----
@@ -11740,14 +7763,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 610#       发表于 2016-1-5 15:40
 
 
-
-
 杂是普刃加成，在第4行加算
-
-
-
-
-
 
 
 -----
@@ -11756,14 +7772,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 611#       发表于 2016-1-5 16:57
 
 
-
-
 问下风方5拳1铳算是底子齐可以开突了吧?
-
-
-
-
-
 
 
 -----
@@ -11772,14 +7781,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 612#       发表于 2016-1-5 17:32
 
 
-
-
 风最终是全换提铳啊，6风铳被打伤一点也比拳强
-
-
-
-
-
 
 
 -----
@@ -11788,14 +7790,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 613#       发表于 2016-1-5 18:32
 
 
-
-
 铳背水是百分之多少血给3%攻来着?
-
-
-
-
-
 
 
 -----
@@ -11804,21 +7799,13 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 614#       发表于 2016-1-5 23:19
 
 
-
-
 具体计算就算了，就这样说吧，6风铳在85%血的时候攻击超过6拳
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 615#       发表于 2016-1-6 00:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31223492&amp;ptid=1158205" target="_blank">kuglv 发表于 2016-1-5 13:29</a>
@@ -11837,16 +7824,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 尤其是风，新出的马格纳风铳吊打四属性之余，还把氪金武器婊了一番，所以狗男女暂时没什么前途
 
 
-
-
-
-
-
 -----
 
 ####  kuglv  
 ##### 616#       发表于 2016-1-6 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31229266&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-6 00:52</a>
@@ -11859,32 +7840,19 @@ ttp://i.imgur.com/L2HsFxV.jpg
 不过狼斧要6把才必定DA吧？
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 617#       发表于 2016-1-6 10:52
 
 
-
-
 不需要必定da，ss作为现在的最强职业最主要是3技提升70da,如果基础有60—70da就不需要用ss了，例如用剑圣带氪金水无人剑解放后得到10回合攻大，然后就是无脑点攻击就是
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 618#       发表于 2016-1-6 13:27
-
 
 
  本帖最后由 カリオストロ 于 2016-1-6 13:30 编辑 
@@ -11910,20 +7878,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 2016-1-6 13:28 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  kuglv  
 ##### 619#       发表于 2016-1-6 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31233511&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-6 13:27</a>
@@ -11934,25 +7892,13 @@ ttp://i.imgur.com/L2HsFxV.jpg
 巴武不如氪金方阵加成这个我知道，所以我才说不能上巴武
 
 
-
-
-
-
-
 -----
 
 ####  FYMODE  
 ##### 620#       发表于 2016-1-6 14:36
 
 
-
-
 完了一阵子抽卡太坑，现在朋友说有两个号一个有左仓还能新手超得羊妹，另一个有MAO然后是泳装的超得，我用哪个砍掉重练比较好？
-
-
-
-
-
 
 
 -----
@@ -11961,16 +7907,10 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 621#       发表于 2016-1-6 15:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31234122&amp;ptid=1158205" target="_blank">FYMODE 发表于 2016-1-6 14:36</a>
 
 完了一阵子抽卡太坑，现在朋友说有两个号一个有左仓还能新手超得羊妹，另一个有MAO然后是泳装的超得，我用 ...</blockquote>
 前面的号可以搞火队，后面的号泳装选土维拉能暗队土队两边开，看你想发展哪个属性，可以先去看看这三个属性里有哪个对胃口的角色比较多<img src="https://static.saraba1st.com/image/smiley/face/19.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11979,14 +7919,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 622#       发表于 2016-1-6 16:02
 
 
-
-
 准备长期玩准备课的话就选羊吧 泳装版夏天应该还有 暗牛可以自选没难度
-
-
-
-
-
 
 
 -----
@@ -11995,21 +7928,13 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 623#       发表于 2016-1-6 17:53
 
 
-
-
 传说修正后总算到可以用的程度了，虽然设定上她没了剑连路人也打不过，也不能像之前那么废啊
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 624#       发表于 2016-1-6 22:45
-
 
 
  本帖最后由 LichEnd 于 2016-1-6 22:47 编辑 
@@ -12021,25 +7946,13 @@ ttp://i.imgur.com/L2HsFxV.jpg
 另外就是面板，4破课金武器可以达到可怕的3200+面板，而高贵冷艳的3破马格纳火杖只有1k9……
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 625#       发表于 2016-1-7 13:54
 
 
-
-
 怎么这次自选这么快 不是说3月还是4月吗 根本没想好换谁<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12048,14 +7961,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 626#       发表于 2016-1-7 14:42
 
 
-
-
 猴子那事的降火自选啊，无良黑心企业cy，hrt飞妈！（交上3000
-
-
-
-
-
 
 
 -----
@@ -12064,14 +7970,7 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 627#       发表于 2016-1-7 15:00
 
 
-
-
 消费者厅似乎要介入调查新年扭蛋的事了，调查没所谓但是2ch专楼一副要通报到cygames倒闭gbf结束运营的疯样看得我怕怕的<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12080,22 +7979,13 @@ ttp://i.imgur.com/L2HsFxV.jpg
 ##### 628#       发表于 2016-1-7 15:44
 
 
-
-
 cy干这缺德事不是一两次了，闹死倒是没啥可能，闹闹让他记得教训也好，虽然也不太可能
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 629#       发表于 2016-1-7 19:31
-
-
 
 
 这次猴子的出现率确实是比上次羊还要过分
@@ -12107,25 +7997,13 @@ cy干这缺德事不是一两次了，闹死倒是没啥可能，闹闹让他记
 不过也是希望闹大点，让CY吃点苦头，不然这么搞以后就难过了
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 630#       发表于 2016-1-7 21:51
 
 
-
-
 说到猴子,昨天早上新年券在右侧抽出了哉叔,理论上700万的10连和新年券在之前这几天都是能出猴的吧...
-
-
-
-
-
 
 
 -----
@@ -12134,16 +8012,10 @@ cy干这缺德事不是一两次了，闹死倒是没啥可能，闹闹让他记
 ##### 631#       发表于 2016-1-7 22:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31247297&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-1-7 21:51</a>
 
 说到猴子,昨天早上新年券在右侧抽出了哉叔,理论上700万的10连和新年券在之前这几天都是能出猴的吧... ...</blockquote>
 当然可以
-
-
-
-
-
 
 
 -----
@@ -12152,15 +8024,9 @@ cy干这缺德事不是一两次了，闹死倒是没啥可能，闹闹让他记
 ##### 632#       发表于 2016-1-7 23:37
 
 
-
  本帖最后由 kitagawa 于 2016-1-8 00:39 编辑 
 
 最后还是换了银姐....半吊子队伍不过总算可以开始安心收集方阵武了。。。。再来6%我也不抽了
-
-
-
-
-
 
 
 -----
@@ -12169,14 +8035,7 @@ cy干这缺德事不是一两次了，闹死倒是没啥可能，闹闹让他记
 ##### 633#       发表于 2016-1-8 01:53
 
 
-
-
 新年能出猴子 我小号就出了
-
-
-
-
-
 
 
 -----
@@ -12185,17 +8044,10 @@ cy干这缺德事不是一两次了，闹死倒是没啥可能，闹闹让他记
 ##### 634#       发表于 2016-1-8 08:13
 
 
-
-
 换银妹不亏，让人轻松享受到大佬风格的人物
 
 
 ssr除了少数几个，拿了都不亏，主要看下半身的选择啦，我这次光队3ssr都去选贞德了
-
-
-
-
-
 
 
 -----
@@ -12204,14 +8056,7 @@ ssr除了少数几个，拿了都不亏，主要看下半身的选择啦，我�
 ##### 635#       发表于 2016-1-8 09:30
 
 
-
-
 想问问风的能登能用吗？现在风队有神弓姐妹花和SR神父。
-
-
-
-
-
 
 
 -----
@@ -12220,14 +8065,7 @@ ssr除了少数几个，拿了都不亏，主要看下半身的选择啦，我�
 ##### 636#       发表于 2016-1-8 09:54
 
 
-
-
 能登是个专业称职的奶，然而gbf是个攻击的游戏。初期很有用，然后到hl美杜莎会想起她的好
-
-
-
-
-
 
 
 -----
@@ -12236,16 +8074,10 @@ ssr除了少数几个，拿了都不亏，主要看下半身的选择啦，我�
 ##### 637#       发表于 2016-1-8 10:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31250539&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-1-8 09:54</a>
 
 能登是个专业称职的奶，然而gbf是个攻击的游戏。初期很有用，然后到hl美杜莎会想起她的好 ...</blockquote>
 我风队火力不够，存活力也有限，看来这次选能登没错。
-
-
-
-
-
 
 
 -----
@@ -12254,14 +8086,7 @@ ssr除了少数几个，拿了都不亏，主要看下半身的选择啦，我�
 ##### 638#       发表于 2016-1-8 13:52
 
 
-
-
 看了下最新的超德推荐，水矮人尽然是神抽。单纯因为有个挑薪外加闪壁么，抽了这个，是不是对萌新来说，最近的活动怪HELL都能过？？
-
-
-
-
-
 
 
 -----
@@ -12270,14 +8095,7 @@ ssr除了少数几个，拿了都不亏，主要看下半身的选择啦，我�
 ##### 639#       发表于 2016-1-8 14:05
 
 
-
-
 推荐水老头是因为他可以不需要装备打出100w固定伤害，对新手度过前期非常有用
-
-
-
-
-
 
 
 -----
@@ -12286,16 +8104,10 @@ ssr除了少数几个，拿了都不亏，主要看下半身的选择啦，我�
 ##### 640#       发表于 2016-1-8 14:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31252711&amp;ptid=1158205" target="_blank">kiraabu 发表于 2016-1-8 14:05</a>
 
 推荐水老头是因为他可以不需要装备打出100w固定伤害，对新手度过前期非常有用 ...</blockquote>
 What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA状态，满减防，对土 ，4个人一起上。这不要装备打出100W固定伤害太可怕了。我现在水属性只有希露瓦，值得在超一个矮子么？
-
-
-
-
-
 
 
 -----
@@ -12304,16 +8116,9 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 641#       发表于 2016-1-8 14:23
 
 
-
-
 个人认为水老头最大作用在于共斗练级，无论什么时候换都值得
 
 如果你还没到需要疯狂练级的阶段就先换其他主力属性的核心吧
-
-
-
-
-
 
 
 -----
@@ -12322,14 +8127,7 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 642#       发表于 2016-1-8 14:48
 
 
-
-
 对新人来说尤达大师意味着可以快过各种h，可以轻松打各种讨伐，然而当你越来越强会萎的尤达重要性就变低了
-
-
-
-
-
 
 
 -----
@@ -12338,16 +8136,9 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 643#       发表于 2016-1-8 18:09
 
 
-
-
 ...火枪终突这素材量
 
 为了逼人去打HL真是啥都用上了啊。。。。。
-
-
-
-
-
 
 
 -----
@@ -12356,14 +8147,7 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 644#       发表于 2016-1-8 19:11
 
 
-
-
 然而大多数人选择不破了也不想去打黑皮
-
-
-
-
-
 
 
 -----
@@ -12372,14 +8156,7 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 645#       发表于 2016-1-8 19:11
 
 
-
-
 然而大多数人选择不破了也不想去打黑皮
-
-
-
-
-
 
 
 -----
@@ -12388,16 +8165,9 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 646#       发表于 2016-1-8 20:25
 
 
-
-
 开始以为搞这么一出是因为讨灭HELL能滚个香炉什么的，结果开了打了一会发现还是HRT脑抽了
 
 猴子那事加上这讨灭4破，他们是多想惹人厌
-
-
-
-
-
 
 
 -----
@@ -12406,14 +8176,7 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 647#       发表于 2016-1-8 21:02
 
 
-
-
 好了 档机了 .....<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12422,22 +8185,13 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 648#       发表于 2016-1-8 21:20
 
 
-
-
 火枪要芙拉姆的素材？但是想要4破通常攻刃的人是因为想运用艾古尼斯而不是magna吧，打芙拉姆的人则是为了解放magna武器，是不是矛盾了……
-
-
-
-
-
 
 
 -----
 
 ####  Fict_vE  
 ##### 649#       发表于 2016-1-8 23:12
-
-
 
 
 这两天的事情总结：
@@ -12517,25 +8271,13 @@ SSR武器-&gt;32
 另另外现在能出猴子的是真脸帝，要么你的账号就是被选中直接能出猴子，以调研你后续的氪金情况来帮助他们制定运营计划（我认真的
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 650#       发表于 2016-1-9 00:04
 
 
-
-
 那么我一定是被设计成不会出路巴杂了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12544,16 +8286,9 @@ SSR武器-&gt;32
 ##### 651#       发表于 2016-1-9 00:06
 
 
-
-
 作为12月底才入坑现在才30多级的新人开始害怕
 
 我在3号下午掉率提升结束前的两小时用3000石头抽到了猴子是不是已经把今年运气用完了？
-
-
-
-
-
 
 
 -----
@@ -12562,16 +8297,9 @@ SSR武器-&gt;32
 ##### 652#       发表于 2016-1-9 02:06
 
 
-
-
 「cy有坑钱营运机制，包括针对不同氪金玩家设置不同的出卡率」
 
 没跟楼的时候还出现了这种事情<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">这个要怎么验证出来哦
-
-
-
-
-
 
 
 -----
@@ -12580,14 +8308,7 @@ SSR武器-&gt;32
 ##### 653#       发表于 2016-1-9 09:07
 
 
-
-
 那么我一定被设计成抽不出巴路杂了<img src="https://static.saraba1st.com/image/smiley/normal/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12596,14 +8317,7 @@ SSR武器-&gt;32
 ##### 654#       发表于 2016-1-9 10:02
 
 
-
-
 大炎上，yahoo top都有新闻了
-
-
-
-
-
 
 
 -----
@@ -12612,21 +8326,13 @@ SSR武器-&gt;32
 ##### 655#       发表于 2016-1-9 13:11
 
 
-
-
 前前后后在数次6%抽了5+4+3wmc和积累的免费石头 没有羊 果然是cy的错 而且没有一次概率过5%
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 656#       发表于 2016-1-9 15:44
-
 
 
  本帖最后由 LichEnd 于 2016-1-9 15:47 编辑 
@@ -12636,16 +8342,10 @@ SSR武器-&gt;32
 我的节日限定运就极好……然而基本抽不到召唤
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 657#       发表于 2016-1-9 15:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31252608&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-1-8 13:52</a>
@@ -12654,16 +8354,10 @@ SSR武器-&gt;32
 有水老头的话，简单很多
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 658#       发表于 2016-1-9 15:50
-
 
 
  本帖最后由 LichEnd 于 2016-1-9 15:51 编辑 
@@ -12673,25 +8367,13 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 有就赚，没有也不推荐去超得……还是去超得自己喜欢又能打的妹子吧……
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 659#       发表于 2016-1-9 16:29
 
 
-
-
 说真的幸好限定性能都不强，都是用来舔的，抽不到就抽不到了。这算是GBF最后的良心了，很难想象把MAO放限定会是什么惨况
-
-
-
-
-
 
 
 -----
@@ -12700,16 +8382,9 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 660#       发表于 2016-1-9 17:10
 
 
-
-
 有水矮子是会很容易入门，但是想轻松打hell你还是太年轻。。。
 
 有些机制不是你有个攻击手就能搞掂的
-
-
-
-
-
 
 
 -----
@@ -12718,16 +8393,9 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 661#       发表于 2016-1-9 17:31
 
 
-
-
 各种限定前前后后出了一年，真正的前中后期万能插件难道不是军师炎帝<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 猴子这事也能闹得这么大我简直惊呆了，不是很懂非洲皇帝们的世界，今天单抽出了王姐舔一下就让她仓管去了
-
-
-
-
-
 
 
 -----
@@ -12736,14 +8404,7 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 662#       发表于 2016-1-9 17:48
 
 
-
-
 同样是轰100万，我觉得银妹好多了，长得美，人类，又不怕会像老师一样三两下就跪了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12752,14 +8413,7 @@ What!! 10倍水伤害这么夸张？我现在要打100W还要鸟人全BUFF，BA�
 ##### 663#       发表于 2016-1-9 17:49
 
 
-
-
 CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，最近玩的人也变多了，各种因素综合的结果吧。王姐的话你要有个杂，这可比限定难抽多了（所以有人说朝凪这货非洲，可是他有杂啊，比什么限定好多啦<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12768,16 +8422,9 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 ##### 664#       发表于 2016-1-9 18:11
 
 
-
-
 大号最后一天嗑药打任务凑了3000抽到了猴子...小号前一天用正月券也抽到了一只...
 
 不过还是没有路巴杂<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12786,14 +8433,7 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 ##### 665#       发表于 2016-1-9 18:12
 
 
-
-
 路霸杂一个没有，光暗天残地缺水队倒是集齐银妹军师兰酱了，顺便请教下楼里的大佬我要是集中精力凸方阵应该继续增强水队还是带他们磕光暗补强这两个属性
-
-
-
-
-
 
 
 -----
@@ -12802,14 +8442,7 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 ##### 666#       发表于 2016-1-9 18:24
 
 
-
-
 麻痹脸帝有这么多？我除了第一个月6%30抽出3ssr自以为脸以外，之后80抽硬是一个ssr都没有。
-
-
-
-
-
 
 
 -----
@@ -12818,14 +8451,7 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 ##### 667#       发表于 2016-1-9 18:27
 
 
-
-
 光暗的方阵掉落率你最好要有心理准备<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12834,16 +8460,10 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 ##### 668#       发表于 2016-1-9 19:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31263583&amp;ptid=1158205" target="_blank">fornoby 发表于 2016-1-9 18:12</a>
 
 路霸杂一个没有，光暗天残地缺水队倒是集齐银妹军师兰酱了，顺便请教下楼里的大佬我要是集中精力凸方阵应该 ...</blockquote>
 你都没有路霸杂了为什么还学人玩光暗队……除非你打算超得拿奥汀，但是武器也很成问题啊，直接练风队还比较快
-
-
-
-
-
 
 
 -----
@@ -12852,23 +8472,16 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 ##### 669#       发表于 2016-1-9 19:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31264191&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2016-1-9 19:26</a>
 
 你都没有路霸杂了为什么还学人玩光暗队……除非你打算超得拿奥汀，但是武器也很成问题啊，直接练风队还比 ...</blockquote>
 谢谢指点，我就以为光暗还能蹭个方阵之类的+强迫症发作，我回去farm老四系了
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 670#       发表于 2016-1-9 23:42
-
 
 
 <blockquote>fornoby 发表于 2016-1-9 19:40
@@ -12880,16 +8493,10 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 实际上决定方阵积累速度的一个是你能否拿mvp的红箱子，再一个就是球。
 
 
-
-
-
-
-
 -----
 
 ####  fornoby  
 ##### 671#       发表于 2016-1-9 23:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31266657&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-1-9 23:42</a>
@@ -12898,16 +8505,10 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 好的，谢谢，刚好这次超得换了鸟人
 
 
-
-
-
-
-
 -----
 
 ####  ixtli  
 ##### 672#       发表于 2016-1-10 13:59
-
 
 
  本帖最后由 ixtli 于 2016-1-10 14:08 编辑 
@@ -12918,26 +8519,13 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 其余两个只能打HARD的有必要去肝HARD把SSR召唤兽换一个出来吗？
 
 
-
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 673#       发表于 2016-1-10 14:45
 
 
-
-
 没有召唤就最好先搞一个召唤吧，人马的话可以不用换，因为赌场里有更好的
-
-
-
-
-
 
 
 -----
@@ -12946,16 +8534,10 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 ##### 674#       发表于 2016-1-10 15:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31271123&amp;ptid=1158205" target="_blank">ixtli 发表于 2016-1-10 13:59</a>
 
 新手提问，这次讨伐战只能打伊夫利特的VERY HARD，那么是应该尽力肝，以换满其中一个SSR为目标呢，还是SSR ...</blockquote>
 没相应召唤的话，能肝就全肝出来
-
-
-
-
-
 
 
 -----
@@ -12964,21 +8546,13 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 ##### 675#       发表于 2016-1-10 18:56
 
 
-
-
 ８００万了 マグナ1/2半价会有吗　虽然刚结束<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">　
-
-
-
-
-
 
 
 -----
 
 ####  KOBI  
 ##### 676#       发表于 2016-1-10 19:21
-
 
 
  本帖最后由 KOBI 于 2016-1-10 19:52 编辑 
@@ -12990,17 +8564,10 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 难道800W要被拿来退火了？
 
 
-
-
-
-
-
 -----
 
 ####  ixtli  
 ##### 677#       发表于 2016-1-10 20:44
-
-
 
 
 感谢指点，姑且再努力肝个光召唤吧……
@@ -13009,16 +8576,10 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 话说赌场那个风召唤250W一个，平时还看有一堆满破的人，这到底是肝了多久<img src="https://static.saraba1st.com/image/smiley/face/185.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 678#       发表于 2016-1-10 21:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31274582&amp;ptid=1158205" target="_blank">ixtli 发表于 2016-1-10 20:44</a>
@@ -13030,17 +8591,10 @@ CY限定一直有暗桩这是的确的，而且这次比羊那次还要过分，
 都是挂出来的……
 
 
-
-
-
-
-
 -----
 
 ####  KOBI  
 ##### 679#       发表于 2016-1-10 21:08
-
-
 
 
 这东西看人看脸的
@@ -13054,24 +8608,13 @@ SB一发流的也是有的吧
 靠挂的也是有的
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 680#       发表于 2016-1-10 21:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/normal/018.gif" referrerpolicy="no-referrer">手机咸鱼党至今换不起风80，最多攒了200w筹码换刚玉突破巴剑用了，每天珠子都没钱换只能拿点豆和ap药
-
-
-
-
-
 
 
 -----
@@ -13080,17 +8623,10 @@ SB一发流的也是有的吧
 ##### 681#       发表于 2016-1-10 22:33
 
 
-
-
 手动党又没太多时间泡赌场,第一个风50就耗了一个月
 
 
 现在风队已经转方阵石了,第二个风50都还没攒出来...
-
-
-
-
-
 
 
 -----
@@ -13099,14 +8635,7 @@ SB一发流的也是有的吧
 ##### 682#       发表于 2016-1-11 00:59
 
 
-
-
 对自己好点，这游戏有没赌场哔-是2个游戏
-
-
-
-
-
 
 
 -----
@@ -13115,14 +8644,7 @@ SB一发流的也是有的吧
 ##### 683#       发表于 2016-1-11 01:28
 
 
-
-
 这次火60就只能换一个么，我看库存1，剩下的得打EX？
-
-
-
-
-
 
 
 -----
@@ -13131,17 +8653,9 @@ SB一发流的也是有的吧
 ##### 684#       发表于 2016-1-11 01:35
 
 
-
-
 能换4个，价格会越来越高，换完一个之后开放下一个的兑换，刚好能满破，4破需要其他材料
 
 当然vh以上难度也会随机掉落，理论上是难度越高概率越高
-
-
-
-
-
-
 
 
 -----
@@ -13150,17 +8664,10 @@ SB一发流的也是有的吧
 ##### 685#       发表于 2016-1-11 09:07
 
 
-
-
 召唤很不错，就是需要的材料多了点，能肝就肝出来
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -13169,22 +8676,14 @@ SB一发流的也是有的吧
 ##### 686#       发表于 2016-1-11 09:19
 
 
-
-
 现在入坑是不是抽有交换卷那两个?
 新号7日和到15号的有区别吗?可以两个都抽吗
-
-
-
-
-
 
 
 -----
 
 ####  gyfsgm  
 ##### 687#       发表于 2016-1-11 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31274582&amp;ptid=1158205" target="_blank">ixtli 发表于 2016-1-10 20:44</a>
@@ -13198,16 +8697,10 @@ SB一发流的也是有的吧
 赌场也是看脸的.....最近玩BINGO都快输光了。
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 688#       发表于 2016-1-11 09:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31274999&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2016-1-10 21:37</a>
@@ -13216,16 +8709,10 @@ SB一发流的也是有的吧
 巴武真的不用刚玉，太浪费了。你抽一周 每天打一小时星号本，我保证三天就能满破3~5把武器，一周基本就能出。
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 689#       发表于 2016-1-11 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=31277926&amp;amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-1-11 09:22</a>
@@ -13233,16 +8720,10 @@ SB一发流的也是有的吧
 <img src="https://static.saraba1st.com/image/smiley/normal/018.gif" referrerpolicy="no-referrer">现在没减半活动也舔不到巴，有腐朽武器也没用，老老实实打活动攒点药看看四象和联动能不能肝点好东西
 
 
-
-
-
-
-
 -----
 
 ####  天命  
 ##### 690#       发表于 2016-1-11 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31277890&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-11 09:19</a>
@@ -13260,25 +8741,13 @@ SB一发流的也是有的吧
 两个可以都买
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 691#       发表于 2016-1-11 17:40
 
 
-
-
 现在可以开个无课的号熟悉一下游戏 等下次可以选猴妹了再开个正式的号选猴妹好好玩
-
-
-
-
-
 
 
 -----
@@ -13287,23 +8756,16 @@ SB一发流的也是有的吧
 ##### 692#       发表于 2016-1-11 18:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=31282921&amp;amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-1-11 17:40</a>
 现在可以开个无课的号熟悉一下游戏 等下次可以选猴妹了再开个正式的号选猴妹好好玩 ...</blockquote>
 之前就听说这张卡概率有问题
 这卡有什么特殊的，开局超简单吗？
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 693#       发表于 2016-1-11 18:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31283241&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-11 19:22</a>
@@ -13320,25 +8782,13 @@ SB一发流的也是有的吧
 新手第一个自选 还是换你最喜欢的ssr比较好 本来就是为了舔妹玩这游戏的
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 694#       发表于 2016-1-11 19:05
 
 
-
-
 gbf的限定都是舔的，强者都在普池
-
-
-
-
-
 
 
 -----
@@ -13347,24 +8797,16 @@ gbf的限定都是舔的，强者都在普池
 ##### 695#       发表于 2016-1-11 19:08
 
 
-
-
 快继续闹啊，再来个超的我就原谅hrt了
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 696#       发表于 2016-1-11 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31283581&amp;ptid=1158205" target="_blank">hecas 发表于 2016-1-11 19:08</a>
@@ -13378,25 +8820,13 @@ gbf的限定都是舔的，强者都在普池
 然而都被认为是拿来灭春节这事的火才特地提起来
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 697#       发表于 2016-1-11 19:18
 
 
-
-
 下一个自选... 萌王 最可爱 阿米拉 三选一 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -13405,24 +8835,16 @@ gbf的限定都是舔的，强者都在普池
 ##### 698#       发表于 2016-1-11 20:42
 
 
-
-
 这游戏下好几个月一直懒得玩
 为什么突然有动力玩，现在想想很可能是看了朝凪的本子突然有了兴趣
 
 lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 699#       发表于 2016-1-11 22:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31284428&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-11 20:42</a>
@@ -13433,16 +8855,10 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 <img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer">我也是看了朝凪的本子之后回来买了个佐仓大法，因为新手超得选的炎帝，我感觉我也没救了
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 700#       发表于 2016-1-11 22:31
-
 
 
  本帖最后由 tbchyu001 于 2016-1-11 22:32 编辑 
@@ -13452,16 +8868,10 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">和我入坑时惊人的相似，不过佐仓是自己刷出来的，其实买初始的话比较建议三个不能超得贵族召唤巴路杂
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 701#       发表于 2016-1-12 00:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31285428&amp;ptid=1158205" target="_blank">tbchyu001 发表于 2016-1-11 22:31</a>
@@ -13470,25 +8880,13 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 <img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer">不，我是这期超得了个佐仓，新手超得选了炎帝，彻底没救了
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 702#       发表于 2016-1-12 08:29
 
 
-
-
 老实说，这样开局的火系已经很强了，恐怖+佐仓破甲跟消buff，火队能很好的去打之后的青龙。。。
-
-
-
-
-
 
 
 -----
@@ -13497,15 +8895,8 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 ##### 703#       发表于 2016-1-12 10:09
 
 
-
-
 大巴 路西法很强吗
 单ssr的初始就好贵了
-
-
-
-
-
 
 
 -----
@@ -13514,15 +8905,9 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 ##### 704#       发表于 2016-1-12 10:18
 
 
-
  本帖最后由 边界循环 于 2016-1-12 11:29 编辑 
 
 新手入坑想收个初始 一直收不到合适 这里有大佬肯出一个给我吗。。。200左右的就好了
-
-
-
-
-
 
 
 -----
@@ -13531,21 +8916,13 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 ##### 705#       发表于 2016-1-12 11:25
 
 
-
-
 火队最主要就是炎帝佐仓了，不过佐仓也就要她的大破甲，攻击力在火队的常见三主力（佐仓，炎帝，终破大奶魔女）中算最弱的（剧情里那改变地形的攻击呢，人形核弹呢，连炎帝一把剑也不如<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lesson  
 ##### 706#       发表于 2016-1-12 14:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31288352&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-12 10:09</a>
@@ -13556,16 +8933,10 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 大巴-路西法-大公-奥丁=朋友
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 707#       发表于 2016-1-12 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31288352&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-12 10:09</a>
@@ -13580,16 +8951,10 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 虽然说4破奥丁在某种特定配置上可以追上大巴，但是大巴和路西法还没4破，还有强化的空间
 
 
-
-
-
-
-
 -----
 
 ####  lesson  
 ##### 708#       发表于 2016-1-12 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31289317&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-1-12 11:25</a>
@@ -13598,16 +8963,10 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 如果是刚起步，还是趁这次超得入水老头，奥义固定99万伤害很划算，佐仓的驱散面对HP最多的巴哈也就75万和老头对比有点划不来。
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 709#       发表于 2016-1-12 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31291350&amp;ptid=1158205" target="_blank">lesson 发表于 2016-1-12 14:49</a>
@@ -13618,16 +8977,10 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 左仓最重要的是破甲，削OD也挺不错，3技CD长但是在各方面也帮的上，是火队居家旅行的好选择
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 710#       发表于 2016-1-12 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31291350&amp;ptid=1158205" target="_blank">lesson 发表于 2016-1-12 14:49</a>
@@ -13644,25 +8997,13 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 毕竟四象短剑和可能的终突风攻刃2武器对新人来说都是适合靠1bp蹭出来的
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 711#       发表于 2016-1-12 16:23
 
 
-
-
 火大奶跟香菜哪个比较好
-
-
-
-
-
 
 
 -----
@@ -13671,14 +9012,7 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 ##### 712#       发表于 2016-1-12 17:11
 
 
-
-
 综合来说是火大奶，有异常盾，可以召唤魔神后更是火队第一输出手
-
-
-
-
-
 
 
 -----
@@ -13687,13 +9021,7 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 ##### 713#       发表于 2016-1-12 18:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">我狐彻底沦为洗脚婢了…
-
-
-
-
-
 
 
 -----
@@ -13702,24 +9030,16 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 ##### 714#       发表于 2016-1-12 18:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31293280&amp;ptid=1158205" target="_blank">furui3132 发表于 2016-1-12 18:33</a>
 
 我狐彻底沦为洗脚婢了…</blockquote>
 你狐马上就要5破了，立绘上秒杀其他人
 
 
-
-
-
-
-
 -----
 
 ####  KOBI  
 ##### 715#       发表于 2016-1-12 18:52
-
-
 
 
 果然是火狐啊
@@ -13729,16 +9049,10 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 火狐应该不至于会像夫人一样被喂屎算是可以安心的点。。。
 
 
-
-
-
-
-
 -----
 
 ####  furui3132  
 ##### 716#       发表于 2016-1-12 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31293404&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-12 18:50</a>
@@ -13747,27 +9061,15 @@ lovelive 舰娘 灰姑娘都是看了本子入坑的，感觉已经没救了
 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">破的是火狐！所以才说水狐变洗脚嘛…
 
 
-
-
-
-
-
 -----
 
 ####  17cc  
 ##### 717#       发表于 2016-1-12 19:07
 
 
-
-
 水狐狸打黑皮算是很有用的单位。。。
 
 HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如之前冷板凳很久很久的土占卜
-
-
-
-
-
 
 
 -----
@@ -13776,14 +9078,7 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
 ##### 718#       发表于 2016-1-12 19:09
 
 
-
-
 不过说回来雷霆鸡四破到底真的假的
-
-
-
-
-
 
 
 -----
@@ -13792,14 +9087,7 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
 ##### 719#       发表于 2016-1-12 20:00
 
 
-
-
 狐狸5破把连击up变全体的话，妥妥的主力
-
-
-
-
-
 
 
 -----
@@ -13808,17 +9096,10 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
 ##### 720#       发表于 2016-1-12 21:39
 
 
-
-
 火奶有奶罩 香菜只会蹲...求推大车マギサ本！！！
 
 
 火狐终凸后和皇姐 炮姐组成艾伦队可行不 终于有借口踢走臭屁炎帝了
-
-
-
-
-
 
 
 -----
@@ -13827,17 +9108,10 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
 ##### 721#       发表于 2016-1-12 21:47
 
 
-
-
 火狐的2 3技很难改哎,怕是90强化要鸡肋了
 
 
 要是1技到100后还不能变全体da up的话,感觉会荣登最废5破...
-
-
-
-
-
 
 
 -----
@@ -13846,21 +9120,13 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
 ##### 722#       发表于 2016-1-12 21:59
 
 
-
-
 ユエル现在的最大问题是无论magna队还是grande队又或者是agunis队她都撑不起主力啊……
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 723#       发表于 2016-1-12 23:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31294779&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2016-1-12 21:59</a>
@@ -13871,16 +9137,10 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
 不过姑且还是看看CY怎么BUFF吧，目前5破的人物基本都还是有用武之地的
 
 
-
-
-
-
-
 -----
 
 ####  lesson  
 ##### 724#       发表于 2016-1-13 01:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31291920&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-1-12 15:54</a>
@@ -13891,24 +9151,13 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
  佐仓的驱散是看当前HP血量和BOSS自身BUFF来计算伤害的……所以根本没什么用……，老头固定99万谁用谁知道，3回合就能把奥义蓄满。如果你有安装插件，开99FPS，谁抢得过你……
 
 
-
-
-
-
-
 -----
 
 ####  lesson  
 ##### 725#       发表于 2016-1-13 01:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/14.gif" referrerpolicy="no-referrer">这么强的怪物不可能是SR吧
-
-
-
-
-
 
 
 -----
@@ -13917,16 +9166,10 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
 ##### 726#       发表于 2016-1-13 01:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31296193&amp;ptid=1158205" target="_blank">lesson 发表于 2016-1-13 01:17</a>
 
 话说下个星期的联动，莉娜会作为限定SSR还是免费SR啊……这么强的怪物不可能是SR吧 ...</blockquote>
 广播说了是SR
-
-
-
-
-
 
 
 -----
@@ -13935,24 +9178,16 @@ HL的数据太过奇葩，导致生存向的角色变成了第一要义，比如
 ##### 727#       发表于 2016-1-13 01:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31296244&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2016-1-13 01:32</a>
 
 广播说了是SR</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/185.gif" referrerpolicy="no-referrer">那真是太遗憾了……
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 728#       发表于 2016-1-13 02:08
-
-
 
 
 <img src="http://i24.photobucket.com/albums/c47/kitagawaRTA/20160113021104_zpst9g60qxz.jpg" referrerpolicy="no-referrer">
@@ -13967,16 +9202,10 @@ HELL人马 反杀成功！！！皇姐我爱死你了！！！
 HELL人马今晚估计很郁闷ww
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 729#       发表于 2016-1-13 03:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31296179&amp;ptid=1158205" target="_blank">lesson 发表于 2016-1-13 01:14</a>
@@ -13994,16 +9223,10 @@ hell 3bp时就已经有15+乃至20+人的场子比比皆是
 哪儿来的第3回合?
 
 
-
-
-
-
-
 -----
 
 ####  301个斯巴达  
 ##### 730#       发表于 2016-1-13 04:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31296193&amp;ptid=1158205" target="_blank">lesson 发表于 2016-1-13 01:17</a>
@@ -14012,17 +9235,10 @@ hell 3bp时就已经有15+乃至20+人的场子比比皆是
 联动人物都是SR，之前隆和春丽还有CG的一票不都是
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 731#       发表于 2016-1-13 08:19
-
-
 
 
 讲真，街霸联动数据虽然差，但是有特效很吊的
@@ -14033,16 +9249,10 @@ hell 3bp时就已经有15+乃至20+人的场子比比皆是
 sr也有好货色的，而且这次光uk。。。我去，好几个大佬发货要肝到死了。。。
 
 
-
-
-
-
-
 -----
 
 ####  lesson  
 ##### 732#       发表于 2016-1-13 08:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31296523&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-1-13 03:32</a>
@@ -14053,32 +9263,19 @@ fps有p用,multi看的是通信状况...
 那是VPN问题吧，我99FPS很少跳处理前一回合
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 733#       发表于 2016-1-13 09:02
 
 
-
-
 光之剑也不一定是光吧，毕竟设定是异界魔王的武器，暗也有可能
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 734#       发表于 2016-1-13 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31299233&amp;ptid=1158205" target="_blank">vazoe 发表于 2016-1-13 12:12</a>
@@ -14089,24 +9286,13 @@ fps有p用,multi看的是通信状况...
 全暗牛队其实并不好用，只是MAO实力太出格了，所以配个斑比比较好，剩下那个是带多只牛还是格雷就看你是SOLO还是抢分了
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 735#       发表于 2016-1-13 13:43
 
 
-
 <img src="http://i.imgur.com/NlYx8cd.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14115,21 +9301,13 @@ fps有p用,multi看的是通信状况...
 ##### 736#       发表于 2016-1-13 13:55
 
 
-
-
 输验证码是不是还有奖励，我输完出去看到包里有个几百金币的画像协力
-
-
-
-
-
 
 
 -----
 
 ####  KOBI  
 ##### 737#       发表于 2016-1-13 14:17
-
 
 
  本帖最后由 KOBI 于 2016-1-13 14:18 编辑 
@@ -14139,25 +9317,13 @@ fps有p用,multi看的是通信状况...
 求问下这图是哪来的？？
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 738#       发表于 2016-1-13 14:25
 
 
-
-
 痴女？同人。。。风格很接近10天之2
-
-
-
-
-
 
 
 -----
@@ -14166,14 +9332,7 @@ fps有p用,multi看的是通信状况...
 ##### 739#       发表于 2016-1-13 14:52
 
 
-
-
 这是同人，可以看看那刘海，和2很像
-
-
-
-
-
 
 
 -----
@@ -14184,13 +9343,10 @@ fps有p用,multi看的是通信状况...
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hecas  
 ##### 741#       发表于 2016-1-13 18:55
-
-
 
 
 羡慕
@@ -14199,16 +9355,10 @@ fps有p用,multi看的是通信状况...
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 742#       发表于 2016-1-14 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31294710&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-1-12 21:47</a>
@@ -14220,25 +9370,13 @@ fps有p用,multi看的是通信状况...
 怎么都有grey垫底，安心啦
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 743#       发表于 2016-1-14 17:17
 
 
-
-
 今天没有狐狸5破，青龙枪数值辣鸡，没劲……
-
-
-
-
-
 
 
 -----
@@ -14247,14 +9385,7 @@ fps有p用,multi看的是通信状况...
 ##### 744#       发表于 2016-1-14 17:18
 
 
-
-
 今天没有狐狸5破，青龙枪数值辣鸡，没劲……
-
-
-
-
-
 
 
 -----
@@ -14263,14 +9394,7 @@ fps有p用,multi看的是通信状况...
 ##### 745#       发表于 2016-1-14 17:47
 
 
-
-
 四象只有4天...哪怕是和别的活动并行 有1周就好了
-
-
-
-
-
 
 
 -----
@@ -14279,16 +9403,9 @@ fps有p用,multi看的是通信状况...
 ##### 746#       发表于 2016-1-14 18:46
 
 
-
-
 虽然不甘 但是全程都得靠炎帝的恐怖在打....
 
 ttp://i.imgur.com/KughuKy.jpg
-
-
-
-
-
 
 
 -----
@@ -14297,14 +9414,7 @@ ttp://i.imgur.com/KughuKy.jpg
 ##### 747#       发表于 2016-1-14 19:24
 
 
-
-
 没办法，gbf的男人就是强到变态，大概就是光暗队可以避得开了
-
-
-
-
-
 
 
 -----
@@ -14313,14 +9423,7 @@ ttp://i.imgur.com/KughuKy.jpg
 ##### 748#       发表于 2016-1-14 19:24
 
 
-
-
 没办法，gbf的男人就是强到变态，大概就是光暗队可以避得开了
-
-
-
-
-
 
 
 -----
@@ -14329,24 +9432,16 @@ ttp://i.imgur.com/KughuKy.jpg
 ##### 749#       发表于 2016-1-14 20:30
 
 
-
-
 兰酱这么可爱的可以有<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
 现在火是瓦格雷队 没佐仓大法打得也挺顺手 皇姐3技奥义槽增长速度比主角还快 <img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 750#       发表于 2016-1-14 23:19
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">看了萌王的本子入坑以来第一次遇到佐仓大发神威的活动了......火队也逐渐成型中
@@ -14356,25 +9451,13 @@ ttp://i.imgur.com/KughuKy.jpg
 这游戏肝得不行啊<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 751#       发表于 2016-1-14 23:50
 
 
-
-
 1晚才20多枚金章?大量吃粉抢1bp ex+,金章上升很快的啊...
-
-
-
-
-
 
 
 -----
@@ -14383,21 +9466,13 @@ ttp://i.imgur.com/KughuKy.jpg
 ##### 752#       发表于 2016-1-14 23:52
 
 
-
-
 这次天人们变得太强了，狗男女简直是被虐杀
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 753#       发表于 2016-1-15 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31315074&amp;ptid=1158205" target="_blank">posion 发表于 2016-1-14 23:19</a>
@@ -14412,11 +9487,6 @@ ttp://i.imgur.com/KughuKy.jpg
 如果有实力打MVP和准MVP就打5豆的，大概能有2000-30000的点数
 
 
-
-
-
-
-
 -----
 
 ####  麻仓桃  
@@ -14425,21 +9495,13 @@ ttp://i.imgur.com/KughuKy.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  上坂莲华  
 ##### 755#       发表于 2016-1-15 10:24
 
 
-
-
 炎帝+佐仓抢分确实不错，但是一群天人在那手撕，要什么样的实力才能打到准VIP啊……
-
-
-
-
-
 
 
 -----
@@ -14448,23 +9510,15 @@ ttp://i.imgur.com/KughuKy.jpg
 ##### 756#       发表于 2016-1-15 10:47
 
 
-
-
 这游戏抽卡SSR双倍次数多吗
 
 新手组光队好吗
-
-
-
-
-
 
 
 -----
 
 ####  tbchyu001  
 ##### 757#       发表于 2016-1-15 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=31318070&amp;amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-15 10:47</a>
@@ -14474,16 +9528,10 @@ ttp://i.imgur.com/KughuKy.jpg
 一般都是月底出6%，光队方阵武器掉率感人，不过有古战场武器用，成型算比较慢的
 
 
-
-
-
-
-
 -----
 
 ####  301个斯巴达  
 ##### 758#       发表于 2016-1-15 11:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31318070&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-15 10:47</a>
@@ -14494,16 +9542,10 @@ ttp://i.imgur.com/KughuKy.jpg
 风水两个属性是最适合新人的
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 759#       发表于 2016-1-15 12:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=31315759&amp;amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-15 00:54</a>
@@ -14512,11 +9554,6 @@ ttp://i.imgur.com/KughuKy.jpg
 金章数量有保证，也有300左右的点 ...</blockquote>
 点20%的进去后还有机会出手么....
 点满血的进虽然多一点BP但还能抢个准MVP
-
-
-
-
-
 
 
 -----
@@ -14525,7 +9562,6 @@ ttp://i.imgur.com/KughuKy.jpg
 ##### 760#       发表于 2016-1-15 12:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=31315759&amp;amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-15 00:54</a>
 只想要金章的话，只打1BP的EX+，就是血量大概在20%的时候进去只需要1BP
 
@@ -14534,24 +9570,13 @@ ttp://i.imgur.com/KughuKy.jpg
 点满血的进虽然多一点BP但还能抢个准MVP
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 761#       发表于 2016-1-15 14:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">这个月又是恶心的风队，你看我们新人自身都是风。我现在人均攻击力28000左右，神射，鸟人桑岛高云在工会强化时才能打一半血。太硬了。。。。这DEBUFF不好上啊。全MISS，还有什么更好的输出方案呢？
-
-
-
-
-
 
 
 -----
@@ -14560,21 +9585,13 @@ ttp://i.imgur.com/KughuKy.jpg
 ##### 762#       发表于 2016-1-15 14:47
 
 
-
-
 如果你真没有克制队伍，你就试试把主手换成克制属性，用主角上好debuff，让其他三个打吧
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 763#       发表于 2016-1-15 15:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31318985&amp;ptid=1158205" target="_blank">posion 发表于 2016-1-15 12:20</a>
@@ -14587,16 +9604,10 @@ ttp://i.imgur.com/KughuKy.jpg
 1豆的话进去可以用技能轰，比如左仓3技还能打个70W，这样300还是有保证的
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 764#       发表于 2016-1-15 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31317823&amp;ptid=1158205" target="_blank">上坂莲华 发表于 2016-1-15 10:24</a>
@@ -14605,16 +9616,10 @@ ttp://i.imgur.com/KughuKy.jpg
 抢不抢得到的关键在于和什么人抢而已，运气好碰到没有天上人在的情况的话抢mvp都是有可能的
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 765#       发表于 2016-1-15 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31319989&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-1-15 14:05</a>
@@ -14623,25 +9628,13 @@ ttp://i.imgur.com/KughuKy.jpg
 gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https://static.saraba1st.com/image/smiley/face/152.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kiraabu  
 ##### 766#       发表于 2016-1-15 17:41
 
 
-
-
 并不是同人，是新角色<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14652,13 +9645,10 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  カリオストロ  
 ##### 768#       发表于 2016-1-15 17:51
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201601/15/175058s4hs3luk1twuw741.png" referrerpolicy="no-referrer">
@@ -14671,9 +9661,6 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 2016-1-15 17:50 上传
 
 
-
-
-
 <img src="http://img.saraba1st.com/forum/201601/15/175101yb8thtswl8lrghee.png" referrerpolicy="no-referrer">
 
 
@@ -14682,9 +9669,6 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 下载附件
 
 2016-1-15 17:51 上传
-
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201601/15/175103k82oco24r8om8c8u.png" referrerpolicy="no-referrer">
@@ -14697,9 +9681,6 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 2016-1-15 17:51 上传
 
 
-
-
-
 <img src="http://img.saraba1st.com/forum/201601/15/175104j2gn2i13r69m1am5.png" referrerpolicy="no-referrer">
 
 
@@ -14710,20 +9691,10 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 2016-1-15 17:51 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 769#       发表于 2016-1-15 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31321921&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-1-15 17:43</a>
@@ -14736,11 +9707,6 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 火痴女的3技看清楚点，不是破别人防，是自己防御DOWN
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -14749,21 +9715,13 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cowgp01  
 ##### 771#       发表于 2016-1-15 20:01
 
 
-
-
 火痴女在充能状态下等于有最大6连击了，虽然比不上mao已经非常强了，如果狐狸连击加全体那就爆炸啦
-
-
-
-
-
 
 
 -----
@@ -14772,14 +9730,7 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 ##### 772#       发表于 2016-1-15 20:22
 
 
-
-
 痴女被掰弯了 突然好兴奋......不过怎么又是火....
-
-
-
-
-
 
 
 -----
@@ -14788,14 +9739,7 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 ##### 773#       发表于 2016-1-15 20:27
 
 
-
-
 新出的火姐妹组合搭配黑剑和火狐似乎可以在要求很低的条件下单吃风ex的样子,算是给新人推火兽耳队么...
-
-
-
-
-
 
 
 -----
@@ -14804,14 +9748,7 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 ##### 774#       发表于 2016-1-15 21:00
 
 
-
-
 我很兴奋
-
-
-
-
-
 
 
 -----
@@ -14820,21 +9757,13 @@ gbf本来就是同属性难上debuff到连黑剑都无法放心<img src="https:/
 ##### 775#       发表于 2016-1-16 08:36
 
 
-
-
 cy强化属性就直接出对应的新人
 
 
 很多群友看了下自己下半身就能确定痴女性能惊人
 
 
-
 我才不会告诉你们我抽都抽不出！
-
-
-
-
-
 
 
 -----
@@ -14843,23 +9772,15 @@ cy强化属性就直接出对应的新人
 ##### 776#       发表于 2016-1-16 12:03
 
 
-
-
 火隊為什麼又要奶一波狐狸<img src="https://static.saraba1st.com/image/smiley/face/53.gif" referrerpolicy="no-referrer">雖然我是準備做10妹
 
 不過看著羊放不進人類對又放不進狐狸隊感覺好不爽
-
-
-
-
-
 
 
 -----
 
 ####  hecas  
 ##### 777#       发表于 2016-1-16 13:22
-
 
 
 <blockquote>引用第775楼LichEnd于2016-01-16 12:03发表的  :
@@ -14873,25 +9794,13 @@ cy强化属性就直接出对应的新人
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  oldq  
 ##### 778#       发表于 2016-1-16 13:30
 
 
-
-
 可以用牛队嘛，他只是想晒羊而已
-
-
-
-
-
 
 
 -----
@@ -14900,23 +9809,16 @@ cy强化属性就直接出对应的新人
 ##### 779#       发表于 2016-1-16 13:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31328408&amp;ptid=1158205" target="_blank">oldq 发表于 2016-1-16 13:30</a>
 
 可以用牛队嘛，他只是想晒羊而已</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">鬼才要用火牛隊啊
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 780#       发表于 2016-1-16 15:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31316299&amp;ptid=1158205" target="_blank">麻仓桃 发表于 2016-1-15 05:25</a>
@@ -14928,27 +9830,15 @@ cy强化属性就直接出对应的新人
 话说现在s1已经有5个团了？这么猛
 
 
-
-
-
-
-
 -----
 
 ####  最后之作  
 ##### 781#       发表于 2016-1-16 15:23
 
 
-
-
 电脑和板子都能玩，但是手机打开就显示エラーB-001-34001 ……说是通信错误，然后就一直黑屏Loading的样子
 
 求救_(:3」∠)_
-
-
-
-
-
 
 
 -----
@@ -14959,12 +9849,10 @@ cy强化属性就直接出对应的新人
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kitagawa  
 ##### 783#       发表于 2016-1-16 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31330033&amp;ptid=1158205" target="_blank">麻仓桃 发表于 2016-1-16 18:00</a>
@@ -14973,16 +9861,10 @@ wwww   带我飞舔下巴哈  好像已经9个团了。。。。</blockquote
 友团的隔壁大佬团也许是s1的团 蹭巴哈的时候看到过你的ID www<img src="https://static.saraba1st.com/image/smiley/flash/132.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 784#       发表于 2016-1-16 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31329228&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-1-16 15:05</a>
@@ -14994,11 +9876,6 @@ wwww   带我飞舔下巴哈  好像已经9个团了。。。。</blockquote
 s1和nga的人都有，目前已经9个团了……
 
 
-
-
-
-
-
 -----
 
 ####  麻仓桃  
@@ -15007,12 +9884,10 @@ s1和nga的人都有，目前已经9个团了……
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kitagawa  
 ##### 786#       发表于 2016-1-16 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31330125&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-1-16 18:10</a>
@@ -15021,16 +9896,10 @@ s1和nga的人都有，目前已经9个团了……</blockquote>
 9个团....动画之后我看还会继续暴涨www
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 787#       发表于 2016-1-16 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31330273&amp;ptid=1158205" target="_blank">麻仓桃 发表于 2016-1-16 18:27</a>
@@ -15041,25 +9910,13 @@ s1和nga的人都有，目前已经9个团了……</blockquote>
 ID就是签名里的 yhkyou
 
 
-
-
-
-
-
 -----
 
 ####  LMBS  
 ##### 788#       发表于 2016-1-16 23:04
 
 
-
-
 入坑几天，四象之辉打了5K左右，用来换什么比较好
-
-
-
-
-
 
 
 -----
@@ -15068,14 +9925,7 @@ ID就是签名里的 yhkyou
 ##### 789#       发表于 2016-1-17 00:15
 
 
-
-
 战力不足要换绯绯金和武器都很难，如果真不行就先换药吧。下次再肝其他，反正青龙枪数值是傻逼
-
-
-
-
-
 
 
 -----
@@ -15086,12 +9936,10 @@ ID就是签名里的 yhkyou
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  カリオストロ  
 ##### 791#       发表于 2016-1-17 02:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31334373&amp;ptid=1158205" target="_blank">oyss1225 发表于 2016-1-17 01:56</a>
@@ -15100,32 +9948,19 @@ ID就是签名里的 yhkyou
 174729428
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 792#       发表于 2016-1-17 15:56
 
 
-
-
 姉様还是很好用的，用了エーテリアルシール后就算插了巴哈短剑也能打出超过佐仓的伤害，ユエル最终解放后不能达到这个程度的话才叫死<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  琴酒  
 ##### 793#       发表于 2016-1-17 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31333246&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-16 23:04</a>
@@ -15138,11 +9973,6 @@ AP BP药能换2轮
 之后还能肝的 3W青龙矛 1W5青龙符
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -15151,12 +9981,10 @@ AP BP药能换2轮
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  カリオストロ  
 ##### 795#       发表于 2016-1-17 21:09
-
 
 
  本帖最后由 カリオストロ 于 2016-1-17 21:13 编辑 
@@ -15166,14 +9994,8 @@ AP BP药能换2轮
 群里的图，感受一下
 
 
-
-
-
-
 QQ图片20160117213553.jpg
 (33.35 KB, 下载次数: 16)
-
-
 
 
 下载附件
@@ -15182,24 +10004,7 @@ QQ图片20160117213553.jpg
 2016-1-17 21:09 上传
 
 
-
-
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201601/17/210926fs0srrsrpq2qqxzj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -15208,14 +10013,7 @@ QQ图片20160117213553.jpg
 ##### 796#       发表于 2016-1-17 22:34
 
 
-
-
 JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15224,14 +10022,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 797#       发表于 2016-1-17 23:05
 
 
-
-
 风隊换枪还是拳好?
-
-
-
-
-
 
 
 -----
@@ -15240,16 +10031,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 798#       发表于 2016-1-17 23:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31341113&amp;ptid=1158205" target="_blank">zacxs2 发表于 2016-1-17 23:05</a>
 
 风隊换枪还是拳好?</blockquote>
 最终还是铳好的，而且需要6把
-
-
-
-
-
 
 
 -----
@@ -15258,16 +10043,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 799#       发表于 2016-1-17 23:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31341113&amp;ptid=1158205" target="_blank">zacxs2 发表于 2016-1-17 23:05</a>
 
 风隊换枪还是拳好?</blockquote>
 最终还是铳好的，而且需要6把
-
-
-
-
-
 
 
 -----
@@ -15276,14 +10055,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 800#       发表于 2016-1-18 19:48
 
 
-
-
 莉娜有个无咏唱的皮肤，果然龙破斩演出太长了么
-
-
-
-
-
 
 
 -----
@@ -15292,14 +10064,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 801#       发表于 2016-1-19 14:01
 
 
-
-
 皮肤是给主角用的还是给莉娜自己用的？？
-
-
-
-
-
 
 
 -----
@@ -15308,14 +10073,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 802#       发表于 2016-1-19 14:07
 
 
-
-
 自己，等于petoraSSR版换个R皮，奥义和直前短很多
-
-
-
-
-
 
 
 -----
@@ -15324,21 +10082,13 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 803#       发表于 2016-1-19 15:17
 
 
-
-
 刚入坑的话这次活动是不是只能打酱油了
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 804#       发表于 2016-1-19 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31356456&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-1-19 15:17</a>
@@ -15351,26 +10101,15 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 上次的团战联动是用10勋章换人物的，这次不清楚是不是这样
 
 
-
-
-
-
-
 -----
 
 ####  nimravus  
 ##### 805#       发表于 2016-1-19 20:25
 
 
-
  本帖最后由 nimravus 于 2016-1-19 20:29 编辑 
 
 入坑13天平铺风方阵了可是没有人物还是只能心机土婊....
-
-
-
-
-
 
 
 -----
@@ -15379,13 +10118,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 806#       发表于 2016-1-20 10:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">楼上天人都平铺SSR方陈了么！！
-
-
-
-
-
 
 
 -----
@@ -15394,16 +10127,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 807#       发表于 2016-1-20 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31359315&amp;ptid=1158205" target="_blank">nimravus 发表于 2016-1-19 20:25</a>
 
 入坑13天平铺风方阵了可是没有人物还是只能心机土婊....</blockquote>
 天人两周平铺SSR方阵，我等数月一个方阵还没凑齐
-
-
-
-
-
 
 
 -----
@@ -15412,15 +10139,8 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 808#       发表于 2016-1-21 01:23
 
 
-
-
 原本就只有一个ssr，必得还能重复获得
 这脸真是不适合玩卡牌游戏
-
-
-
-
-
 
 
 -----
@@ -15429,25 +10149,16 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 809#       发表于 2016-1-21 07:56
 
 
-
-
 这次团战预选会激烈到不得了。。。
 
 
 而且只有入本站才能拿到另外一个人
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 810#       发表于 2016-1-21 08:54
-
-
 
 
 必得就是这样喂屎的。。。
@@ -15457,16 +10168,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 811#       发表于 2016-1-21 09:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31367594&amp;ptid=1158205" target="_blank">上坂莲华 发表于 2016-1-20 18:24</a>
@@ -15479,16 +10184,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 天人太可怕了.....
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 812#       发表于 2016-1-21 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31371510&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-1-21 07:56</a>
@@ -15500,32 +10199,19 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 那个叫ナーガ的画得那么丑，难道不是绝大部分人拿完莉娜就够了吗<img src="https://static.saraba1st.com/image/smiley/face/180.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Benighted  
 ##### 813#       发表于 2016-1-21 10:06
 
 
-
-
 又吃了口必得屎  团里还有两个跟我抽到同一个重复武器的<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  d.adam  
 ##### 814#       发表于 2016-1-21 11:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31372359&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2016-1-21 10:05</a>
@@ -15537,16 +10223,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 何况奶大就是正义
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 815#       发表于 2016-1-21 15:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31371510&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-1-21 07:56</a>
@@ -15560,25 +10240,13 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 没有说是团战胜利，可能是个普通战斗之类的？
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 816#       发表于 2016-1-21 15:53
 
 
-
-
 估计就是团内的hell战
-
-
-
-
-
 
 
 -----
@@ -15587,14 +10255,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 817#       发表于 2016-1-21 16:31
 
 
-
-
 之前偶像是10徽章拿一个人，如果援引的话，倒也是不错的做法
-
-
-
-
-
 
 
 -----
@@ -15603,15 +10264,9 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 818#       发表于 2016-1-21 20:00
 
 
-
  本帖最后由 fresh123 于 2016-1-22 02:09 编辑 
 
 帐号被ban了，求julao们给个认怂信样本<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15620,13 +10275,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 819#       发表于 2016-1-21 20:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">这2周掉了12把统，风队可以起飞了
-
-
-
-
-
 
 
 -----
@@ -15635,16 +10284,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 820#       发表于 2016-1-21 21:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31378143&amp;ptid=1158205" target="_blank">lesson 发表于 2016-1-21 20:53</a>
 
 这2周掉了12把统，风队可以起飞了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">2周12把铳什么鬼！
-
-
-
-
-
 
 
 -----
@@ -15653,14 +10296,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 821#       发表于 2016-1-21 22:25
 
 
-
-
 819确定掉的不是SR？SR也有风铳啊
-
-
-
-
-
 
 
 -----
@@ -15669,16 +10305,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 822#       发表于 2016-1-21 23:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31378629&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-1-21 21:57</a>
 
 2周12把铳什么鬼！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">空团的JULAO们天天打一半风婊丢团里面，所以蹭得很爽……
-
-
-
-
-
 
 
 -----
@@ -15687,17 +10317,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 823#       发表于 2016-1-22 08:14
 
 
-
-
 没赤还12把铳...
 
 欧皇受我一拜...
 换非洲人就是斧枪连发了
-
-
-
-
-
 
 
 -----
@@ -15706,16 +10329,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 824#       发表于 2016-1-22 08:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31379295&amp;ptid=1158205" target="_blank">lesson 发表于 2016-1-21 23:29</a>
 
 空团的JULAO们天天打一半风婊丢团里面，所以蹭得很爽……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">是sr吧？是sr吧？一定是sr吧？
-
-
-
-
-
 
 
 -----
@@ -15724,16 +10341,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 825#       发表于 2016-1-22 09:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31380840&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-1-22 08:45</a>
 
 光靠蹭能蹭出12把……是sr吧？是sr吧？一定是sr吧？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">SR的攻击中，有背水<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15742,16 +10353,9 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 826#       发表于 2016-1-22 09:22
 
 
-
-
 我的眼睛啊 我的眼睛都瞎了啊！！蹭蹭能出12把SR不算啥，我一周没蹭就出了12把地剑。
 
 这12把SSR只花了二周就蹭到了，我相信你这个天人，就像帖吧一周出天人！
-
-
-
-
-
 
 
 -----
@@ -15760,14 +10364,7 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 827#       发表于 2016-1-22 09:37
 
 
-
-
 麻痹，自己打一半都从来没出过铳，简直吃屎……
-
-
-
-
-
 
 
 -----
@@ -15776,16 +10373,10 @@ JK5层释放....这一波吓人啊<img src="https://static.saraba1st.com/image/s
 ##### 828#       发表于 2016-1-22 10:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31381102&amp;ptid=1158205" target="_blank">lesson 发表于 2016-1-22 09:17</a>
 
 SR的攻击中，有背水</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/58.gif" referrerpolicy="no-referrer">欧皇摸摸我的号好不好？
-
-
-
-
-
 
 
 -----
@@ -15794,14 +10385,7 @@ SR的攻击中，有背水</blockquote>
 ##### 829#       发表于 2016-1-22 10:59
 
 
-
-
 ５天是怎么出天人的？碧空结晶我记得就要打很久
-
-
-
-
-
 
 
 -----
@@ -15810,16 +10394,10 @@ SR的攻击中，有背水</blockquote>
 ##### 830#       发表于 2016-1-22 11:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31381807&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-1-22 10:34</a>
 
 欧皇摸摸我的号好不好？</blockquote>
 都是烧时间耗出来的，入坑的时候是500万，不过玩了一会一时无法接受好多设定就放置PLAY了大半时间，每天就登录&amp;联动+1或者挂挂赌场买点药，久而久之麦丽素就有好多，所以花了2周才耗完<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15828,14 +10406,7 @@ SR的攻击中，有背水</blockquote>
 ##### 831#       发表于 2016-1-22 17:31
 
 
-
-
 傻逼hrt强行把斩妖剑变水了，敢再出一把光uk么
-
-
-
-
-
 
 
 -----
@@ -15844,14 +10415,7 @@ SR的攻击中，有背水</blockquote>
 ##### 832#       发表于 2016-1-22 18:09
 
 
-
-
 光之剑居然是暗uk...
-
-
-
-
-
 
 
 -----
@@ -15860,14 +10424,7 @@ SR的攻击中，有背水</blockquote>
 ##### 833#       发表于 2016-1-22 18:38
 
 
-
-
 光之剑是暗太特么蠢了…………
-
-
-
-
-
 
 
 -----
@@ -15876,14 +10433,8 @@ SR的攻击中，有背水</blockquote>
 ##### 834#       发表于 2016-1-22 18:41
 
 
-
 <img src="http://i4.tietuku.com/240aa21a6b76bff2.gif" referrerpolicy="no-referrer">
 <img src="http://i4.tietuku.com/32fa99fb8f7e4317.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15892,13 +10443,7 @@ SR的攻击中，有背水</blockquote>
 ##### 835#       发表于 2016-1-22 18:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">佐仓3技能这是BUG了吧，砸啥玩意儿怎么都是MISS
-
-
-
-
-
 
 
 -----
@@ -15907,17 +10452,10 @@ SR的攻击中，有背水</blockquote>
 ##### 836#       发表于 2016-1-22 18:53
 
 
-
-
 光之剑原作就是暗，看过原作的不会觉得奇怪。
 
 
 这次boss的风对策太恶心人了
-
-
-
-
-
 
 
 -----
@@ -15926,21 +10464,13 @@ SR的攻击中，有背水</blockquote>
 ##### 837#       发表于 2016-1-22 19:04
 
 
-
-
 服务器爆炸了……
-
-
-
-
-
 
 
 -----
 
 ####  submarine406  
 ##### 838#       发表于 2016-1-22 19:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31386329&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-1-22 18:53</a>
@@ -15955,25 +10485,13 @@ SR的攻击中，有背水</blockquote>
 ex血就那点，能打出1-2发特殊技就不错了.何况没火攻up下多段火攻特殊技的伤害其实还好...
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 839#       发表于 2016-1-22 19:46
 
 
-
-
 什么风对策？<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15984,21 +10502,13 @@ ex血就那点，能打出1-2发特殊技就不错了.何况没火攻up下多段
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  風見一姫  
 ##### 841#       发表于 2016-1-22 21:00
 
 
-
-
 草，傻逼cy，莉娜领了找不到
-
-
-
-
-
 
 
 -----
@@ -16007,13 +10517,7 @@ ex血就那点，能打出1-2发特殊技就不错了.何况没火攻up下多段
 ##### 842#       发表于 2016-1-22 22:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">目测平胸比巨乳好用？
-
-
-
-
-
 
 
 -----
@@ -16022,14 +10526,7 @@ ex血就那点，能打出1-2发特殊技就不错了.何况没火攻up下多段
 ##### 843#       发表于 2016-1-22 23:37
 
 
-
-
 平胸有无属性能打罐头，话说CY又把服务器艹爆了……玩家氪金那么多他们就没多加个服务器吗……
-
-
-
-
-
 
 
 -----
@@ -16038,21 +10535,13 @@ ex血就那点，能打出1-2发特殊技就不错了.何况没火攻up下多段
 ##### 844#       发表于 2016-1-22 23:43
 
 
-
-
 莉娜那技能设置屌屌的，可惜是SR，如果是SSR会非常爆炸
-
-
-
-
-
 
 
 -----
 
 ####  浮矢瞬  
 ##### 845#       发表于 2016-1-23 00:21
-
 
 
  本帖最后由 浮矢瞬 于 2016-1-23 00:23 编辑 
@@ -16064,16 +10553,10 @@ HRT「課金サイファー要2个亿，动画要2个亿，每个月打广告和
 <img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer">不瞎扯，上次灰姑娘团战能顺利进行是因为借了巴哈和灰姑娘的服务器来用，这次没借就出事了，既然プリコネ要结束运营了为什么不把他们的服务器抢过来
 
 
-
-
-
-
-
 -----
 
 ####  lesson  
 ##### 846#       发表于 2016-1-23 00:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31388378&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2016-1-23 00:21</a>
@@ -16085,32 +10568,19 @@ HRT「課金サイファー要2个亿，动画要2个亿，每个月打广告和
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">居然还借服务器，这也太羞耻了，明明赚的钱比舰娘多……
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 847#       发表于 2016-1-23 04:43
 
 
-
-
 龙破斩要整整吟唱30秒，决对是大爱。就是声音轻了点，能不能来个5破莉娜，把龙破斩升成重破斩！？
-
-
-
-
-
 
 
 -----
 
 ####  submarine406  
 ##### 848#       发表于 2016-1-23 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31388378&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2016-1-23 00:21</a>
@@ -16122,16 +10592,10 @@ HRT「課金サイファー要2个亿，动画要2个亿，每个月打广告和
 プリコネ不是ameba的么...
 
 
-
-
-
-
-
 -----
 
 ####  浮矢瞬  
 ##### 849#       发表于 2016-1-23 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31391737&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-1-23 14:25</a>
@@ -16140,16 +10604,10 @@ HRT「課金サイファー要2个亿，动画要2个亿，每个月打广告和
 ameba和cygames母公司都是cyber agent啊，不然プリコネ单方面联动gbf，玩プリコネ可以在游戏内拿姬塔这个是怎么来的
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 850#       发表于 2016-1-23 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31391749&amp;ptid=1158205" target="_blank">浮矢瞬 发表于 2016-1-23 14:28</a>
@@ -16160,25 +10618,13 @@ ameba和cygames母公司都是cyber agent啊，不然プリコネ单方面联动
 去cygames主页上看了才发觉プリコネ也在他们的制作事例里...
 
 
-
-
-
-
-
 -----
 
 ####  若菜  
 ##### 851#       发表于 2016-1-23 15:46
 
 
-
-
 FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16187,14 +10633,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 852#       发表于 2016-1-23 16:03
 
 
-
-
 半年了才知道蹲B香菜的正确用法 蹲B能蹲出100w我也是学习到了<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -16205,21 +10644,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  d.adam  
 ##### 854#       发表于 2016-1-23 16:31
 
 
-
-
 欧洲人滚！
-
-
-
-
-
 
 
 -----
@@ -16228,14 +10659,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 855#       发表于 2016-1-23 16:54
 
 
-
-
 七给
-
-
-
-
-
 
 
 -----
@@ -16244,15 +10668,8 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 856#       发表于 2016-1-23 17:31
 
 
-
-
 想问问手贱选了naga之后还能换rina吗？
 想去炸罐子……
-
-
-
-
-
 
 
 -----
@@ -16261,21 +10678,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 857#       发表于 2016-1-23 17:51
 
 
-
-
 可惜没Gourry.
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 858#       发表于 2016-1-23 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31392879&amp;ptid=1158205" target="_blank">yuuliry 发表于 2016-1-23 17:31</a>
@@ -16286,26 +10695,15 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 后面有办法拿第二个，但是还没告诉你怎么拿
 
 
-
-
-
-
-
 -----
 
 ####  yuuliry  
 ##### 859#       发表于 2016-1-24 05:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=31394058&amp;amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-23 20:45</a>
 后面有办法拿第二个，但是还没告诉你怎么拿</blockquote>
 这回那么好？？？谢谢世界一番可爱炼金术师的答疑<img src="https://static.saraba1st.com/image/smiley/normal/025.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16314,14 +10712,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 860#       发表于 2016-1-24 20:46
 
 
-
-
 刚入坑问问秀逗这活动刷信赖有时效吗？是到今晚24点正？
-
-
-
-
-
 
 
 -----
@@ -16330,14 +10721,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 861#       发表于 2016-1-24 20:53
 
 
-
-
 萌新球加团 id 8363653
-
-
-
-
-
 
 
 -----
@@ -16346,24 +10730,16 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 862#       发表于 2016-1-24 22:03
 
 
-
-
 吐血蛋池完全抽穿才抽到古战场武器……
 
 
 ——发送自[S1 Pluto](https://itunes.apple.com/cn/app/s1-pluto/id889820003?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  星の旅人  
 ##### 863#       发表于 2016-1-24 22:04
-
 
 
 <blockquote>Siegfried82 发表于 1 小时前<[img src="static/image/common/back.gif" referrerpolicy="no-referrer">
@@ -16375,25 +10751,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ——发送自[S1 Pluto](https://itunes.apple.com/cn/app/s1-pluto/id889820003?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  fornoby  
 ##### 864#       发表于 2016-1-24 22:19
 
 
-
-
 咸鱼新人终于满破了十狼雷<img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">可惜之后的三箱就全废了，拿到娜迦之后准备老老实实肝材料，下次古战场祈愿七星剑
-
-
-
-
-
 
 
 -----
@@ -16402,21 +10766,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 865#       发表于 2016-1-25 13:12
 
 
-
-
 我这战5渣+垃圾网本来就没打算参加这次活动，收个人物就算了，谁知CY的服务器更渣，等了半天啥都load不出来.....
-
-
-
-
-
 
 
 -----
 
 ####  Niu  
 ##### 866#       发表于 2016-1-25 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31392413&amp;ptid=1158205" target="_blank">麻仓桃 发表于 2016-1-23 00:17</a>
@@ -16427,17 +10783,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 那是啥?
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 867#       发表于 2016-1-25 17:45
-
-
 
 
 本周广播情报
@@ -16450,27 +10799,15 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 不过以前剧情给光sr的活动从来不给暗石,不知道这次能不能期待活动暗50...
 
 
-
-
-
-
-
 -----
 
 ####  褪色的雪花  
 ##### 868#       发表于 2016-1-25 18:24
 
 
-
-
 如何查看彩虹小马的新手任务界面 我点了一圈也进不去
 
 还有如何使用留言板
-
-
-
-
-
 
 
 -----
@@ -16479,14 +10816,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 869#       发表于 2016-1-25 18:27
 
 
-
-
 给佬hrt，狐狸5破呢，你要拖到下个月么！
-
-
-
-
-
 
 
 -----
@@ -16497,7 +10827,6 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  麻仓桃  
@@ -16506,12 +10835,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Niu  
 ##### 872#       发表于 2016-1-26 02:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31409804&amp;ptid=1158205" target="_blank">麻仓桃 发表于 2016-1-25 05:49</a>
@@ -16520,25 +10847,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 水砲女? 蹲B這稱號怎麼來的?
 
 
-
-
-
-
-
 -----
 
 ####  feisola  
 ##### 873#       发表于 2016-1-26 02:20
 
 
-
-
 他的技能有bk伤害加成，攒好奥义等别人破了bk一波秒，故称蹲逼
-
-
-
-
-
 
 
 -----
@@ -16547,14 +10862,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 874#       发表于 2016-1-26 02:23
 
 
-
-
 鹰眼说的是主角职业，就是带贝雷帽一身蓝的那个
-
-
-
-
-
 
 
 -----
@@ -16563,21 +10871,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 875#       发表于 2016-1-26 02:58
 
 
-
-
 原來是只用ブレアサ搶MVP...
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 876#       发表于 2016-1-26 03:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31408305&amp;ptid=1158205" target="_blank">褪色的雪花 发表于 2016-1-25 18:24</a>
@@ -16590,24 +10890,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 留言板是去到别人的页面里自然有个位置让你输入留言，无法在自己的留言板里留言
 
 
-
-
-
-
-
 -----
 
 ####  lesson  
 ##### 877#       发表于 2016-1-26 13:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">这暗牛比风牛弱得多了
-
-
-
-
-
 
 
 -----
@@ -16616,14 +10905,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 878#       发表于 2016-1-26 15:29
 
 
-
-
 这次能7星剑能满了，正好想问下十天人的问题。我是要把光属性的真7星剑加上风属性的朽之剑，重新合成风属性的剑是么？
-
-
-
-
-
 
 
 -----
@@ -16632,16 +10914,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 879#       发表于 2016-1-26 16:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31416007&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-1-26 15:29</a>
 
 这次能7星剑能满了，正好想问下十天人的问题。我是要把光属性的真7星剑加上风属性的朽之剑，重新合成风属性 ...</blockquote>
 做十天人只要做到武器觉醒就行。你依代什么属性都不影响
-
-
-
-
-
 
 
 -----
@@ -16650,13 +10926,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 880#       发表于 2016-1-26 17:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">光之剑打一亿三就滚了一把，这游戏怎么玩
-
-
-
-
-
 
 
 -----
@@ -16665,15 +10935,9 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 881#       发表于 2016-1-26 23:39
 
 
-
  本帖最后由 kitagawa 于 2016-1-27 11:04 编辑 
 
 平均3e3kw一把的看着楼上
-
-
-
-
-
 
 
 -----
@@ -16682,16 +10946,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 882#       发表于 2016-1-26 23:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31419460&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-1-26 23:39</a>
 
 平均3e一把的看着楼上</blockquote>
 今天结束个人榜第一才5.79e,这平均3e一把是怎么做到的...
-
-
-
-
-
 
 
 -----
@@ -16702,21 +10960,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gyfsgm  
 ##### 884#       发表于 2016-1-27 01:03
 
 
-
-
 1500W伤害才掉了一把光之剑，这游戏没法玩了。这妥妥不能满破了。我可进不了10000名个人榜
-
-
-
-
-
 
 
 -----
@@ -16725,14 +10975,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 885#       发表于 2016-1-27 01:45
 
 
-
-
 傻逼HRT，难道就没有让人愉快地拿一把满破，想玩杂的人自己再去肝的选项么
-
-
-
-
-
 
 
 -----
@@ -16743,22 +10986,15 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  d.adam  
 ##### 887#       发表于 2016-1-27 08:29
 
 
-
  本帖最后由 d.adam 于 2016-1-27 08:30 编辑 
 
 不是那么好滚，本来金箱子就包括白厕纸回滚，结果还有数字武器，然后还有水剑暗剑分开。。。你要狙击一把可是，。。。
-
-
-
-
-
 
 
 -----
@@ -16767,23 +11003,16 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 888#       发表于 2016-1-27 10:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31419595&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-1-27 00:59</a>
 
 今天结束个人榜第一才5.79e,这平均3e一把是怎么做到的...</blockquote>
 抱歉 多算了一位数
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 889#       发表于 2016-1-27 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31420629&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-1-27 07:50</a>
@@ -16796,11 +11025,6 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 神啊，开始赐给我水剑吧!!
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -16809,12 +11033,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  褪色的雪花  
 ##### 891#       发表于 2016-1-27 22:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31411465&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-1-26 03:21</a>
@@ -16825,27 +11047,15 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">居然在这种地方 多谢
 
 
-
-
-
-
-
 -----
 
 ####  最后之作  
 ##### 892#       发表于 2016-1-27 22:45
 
 
-
-
 自己刷路西法初始的时候出了堆别的SSR初始，包括一个大公初始。
 
 要的带价站短_(:3」∠)_ 扔了可惜，我又不是号贩，现在还在新手超得期内，有人要的话球个处理。
-
-
-
-
-
 
 
 -----
@@ -16854,17 +11064,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 893#       发表于 2016-1-28 17:12
 
 
-
-
 谁告诉我拿了白蛇怎么再拿丽娜
 
 
 ----发送自 [HUAWEI PE-TL10,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -16873,21 +11076,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 894#       发表于 2016-1-29 12:40
 
 
-
-
 今晚6%哦、虽然没什么想要的角色了。。。
-
-
-
-
-
 
 
 -----
 
 ####  d.adam  
 ##### 895#       发表于 2016-1-29 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31434859&amp;ptid=1158205" target="_blank">褪色的雪花 发表于 2016-1-28 17:12</a>
@@ -16902,25 +11097,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 我是这样拿白蛇的
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 896#       发表于 2016-1-29 16:22
 
 
-
-
 狐狸5破总算来了，看技能那是要日天
-
-
-
-
-
 
 
 -----
@@ -16929,14 +11112,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 897#       发表于 2016-1-29 16:36
 
 
-
-
 我要做炮姐然后组成长耳朵队<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16945,17 +11121,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 898#       发表于 2016-1-29 18:29
 
 
-
-
 火狐刚开终突,这头6%就入手了...
 
 
 不过这终突强化好微妙...
-
-
-
-
-
 
 
 -----
@@ -16964,13 +11133,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 899#       发表于 2016-1-29 19:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">2亿突破，什么鬼都没有CY到底想啥
-
-
-
-
-
 
 
 -----
@@ -16979,17 +11142,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 900#       发表于 2016-1-29 20:09
 
 
-
-
 吃了口大屎，2e3没有光之剑，hrt飞妈
 
 
 ----发送自 [Meizu MX5,Android 5.0.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -16998,14 +11154,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 901#       发表于 2016-1-29 20:33
 
 
-
-
 3E路过
-
-
-
-
-
 
 
 -----
@@ -17016,21 +11165,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Sir_Nelson  
 ##### 903#       发表于 2016-1-29 23:07
 
 
-
-
 刚入坑的新手问下，ssr的泽城姐跟田中理惠值得超得换么？不太想拿军师鸟人炎帝三个基佬..老头同理否决...
-
-
-
-
-
 
 
 -----
@@ -17039,16 +11180,10 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 904#       发表于 2016-1-29 23:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31446134&amp;ptid=1158205" target="_blank">Sir_Nelson 发表于 2016-1-29 23:07</a>
 
 刚入坑的新手问下，ssr的泽城姐跟田中理惠值得超得换么？不太想拿军师鸟人炎帝三个基佬..老头同理否决... ...</blockquote>
 值得，個人覺得新手换カタリナ較好
-
-
-
-
-
 
 
 -----
@@ -17057,14 +11192,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 905#       发表于 2016-1-30 02:48
 
 
-
-
 2E，1光4水，这是要我满2把水的节奏么。
-
-
-
-
-
 
 
 -----
@@ -17073,14 +11201,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 906#       发表于 2016-1-30 11:20
 
 
-
-
 2e 4光2水 当初的目标已经完成了 在想打不打个人榜。。。<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17091,23 +11212,15 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kiraabu  
 ##### 908#       发表于 2016-1-30 20:09
 
 
-
-
 3E 0暗5水，完美结束
 
 吃屎啦HRT
-
-
-
-
-
 
 
 -----
@@ -17116,13 +11229,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 909#       发表于 2016-1-30 20:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">只能靠排位送多1把光剑了，真是狗屎
-
-
-
-
-
 
 
 -----
@@ -17133,23 +11240,15 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  submarine406  
 ##### 911#       发表于 2016-1-30 23:10
 
 
-
-
 光3水0
 
 实力和库存都不够打排名,斩妖只能躺仓库了
-
-
-
-
-
 
 
 -----
@@ -17158,22 +11257,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 912#       发表于 2016-1-30 23:16
 
 
-
-
 3E2没有光之剑，战你娘亲HRT
-
-
-
-
-
 
 
 -----
 
 ####  vazoe  
 ##### 913#       发表于 2016-1-30 23:20
-
-
 
 
 3k6 1水2光
@@ -17183,24 +11273,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 没法满凸的UK是单作狗粮，还是凸了留着<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">等复刻
 
 
-
-
-
-
-
 -----
 
 ####  lesson  
 ##### 914#       发表于 2016-1-30 23:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">2E8没光剑，草
-
-
-
-
-
 
 
 -----
@@ -17211,29 +11290,19 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kitagawa  
 ##### 916#       发表于 2016-1-31 00:17
 
 
-
-
 我不知道是哪个群 有位欧皇2.7亿三凸了好几把<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kiraabu  
 ##### 917#       发表于 2016-1-31 00:48
-
-
 
 
 心累，水3uk了却没人没召唤，准备好金刚想玩奥丁光之剑却一把都满破不了
@@ -17243,25 +11312,13 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ----发送自 [Meizu MX5,Android 5.0.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 918#       发表于 2016-1-31 20:01
 
 
-
-
 新出那个中二腐女看起来用途很广啊，打宝之类的
-
-
-
-
-
 
 
 -----
@@ -17270,14 +11327,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 919#       发表于 2016-1-31 20:44
 
 
-
-
 金剛用在那好?
-
-
-
-
-
 
 
 -----
@@ -17286,14 +11336,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 920#       发表于 2016-1-31 21:47
 
 
-
-
 媽呀，一直覺得今天該是光給了，結果出了菲莉，団戰完才決心當無課玩家，這又逼我上梁山<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17302,14 +11345,7 @@ FULL 以下省略 无咏唱， 三种模式，<img src="https://static.saraba1st
 ##### 921#       发表于 2016-1-31 22:25
 
 
-
-
 CY太坏了 6%第三天放出ssr菲莉。。。 但是CY你榨不到我 我已经干了_(：3」∠)_
-
-
-
-
-
 
 
 -----
@@ -17320,12 +11356,10 @@ CY太坏了 6%第三天放出ssr菲莉。。。 但是CY你榨不到我 我已�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kitagawa  
 ##### 923#       发表于 2016-2-1 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31463533&amp;ptid=1158205" target="_blank">oyss1225 发表于 2016-2-1 12:37</a>
@@ -17342,16 +11376,10 @@ sr和r角色练级队伍有4，5号位有空余的话带上一起练 没空余�
 以后需要用“武勲"换方阵ssr的时候 每周会有各500额外的bonus奖励 需要用sr和r角色打multi 一周总上限是3000点 5000点换一把方阵ssr 所以中后期sr和r角色也会有用途
 
 
-
-
-
-
-
 -----
 
 ####  vazoe  
 ##### 924#       发表于 2016-2-1 15:16
-
 
 
  本帖最后由 vazoe 于 2016-2-1 18:24 编辑 
@@ -17362,27 +11390,16 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 减半结束后第一回就出了<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 925#       发表于 2016-2-1 15:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31465658&amp;ptid=1158205" target="_blank">vazoe 发表于 2016-2-1 15:16</a>
 
 e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等下次减半了吗 ...</blockquote>
 这俩地方还是掉信念的,只是你选了脸黑的时间去了而已...
-
-
-
-
-
 
 
 -----
@@ -17393,21 +11410,13 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  rxrx  
 ##### 927#       发表于 2016-2-2 01:20
 
 
-
-
 这次的BGM三汉字唱得够热血，很赞，但活动故事满搞就是。一个小姑娘在船上很危险吧。
-
-
-
-
-
 
 
 -----
@@ -17416,17 +11425,10 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 928#       发表于 2016-2-2 08:49
 
 
-
-
 这次剧情让我联想起那个远洋渔船杀人案
 
 
 还有吉他酱你哪时候变得这么傻白甜了，这不是我认识的那个劫法场勇救黑骑士、大战秩序骑空团、吊打毛二力的吉他酱啊
-
-
-
-
-
 
 
 -----
@@ -17435,14 +11437,7 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 929#       发表于 2016-2-2 09:55
 
 
-
-
 4光0水。结果算上结算6光也只有一把能满破，这是从11月20号入坑第一次活动满破的武器。
-
-
-
-
-
 
 
 -----
@@ -17451,16 +11446,10 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 930#       发表于 2016-2-2 10:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31446412&amp;ptid=1158205" target="_blank">zacxs2 发表于 2016-1-29 23:55</a>
 
 值得，個人覺得新手换カタリナ較好</blockquote>
 明明新人换水剑圣老头更好，限定有没有都无所谓
-
-
-
-
-
 
 
 -----
@@ -17469,16 +11458,10 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 931#       发表于 2016-2-2 10:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31470050&amp;ptid=1158205" target="_blank">rxrx 发表于 2016-2-2 01:20</a>
 
 这次的BGM三汉字唱得够热血，很赞，但活动故事满搞就是。一个小姑娘在船上很危险吧。 ...</blockquote>
 污！
-
-
-
-
-
 
 
 -----
@@ -17487,21 +11470,13 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 932#       发表于 2016-2-2 10:39
 
 
-
-
 共斗毒瘤，其心可诛
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 933#       发表于 2016-2-2 18:06
-
 
 
 <img src="http://i.imgur.com/V4v544x.jpg" referrerpolicy="no-referrer">
@@ -17512,25 +11487,13 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 果然傲娇都喜欢这个姿势<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  信长的呕吐  
 ##### 934#       发表于 2016-2-2 18:22
 
 
-
-
 刚玩了三个月的萌新求个团 id 4534356
-
-
-
-
-
 
 
 -----
@@ -17541,12 +11504,10 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  index  
 ##### 936#       发表于 2016-2-3 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31483462&amp;ptid=1158205" target="_blank">oyss1225 发表于 2016-2-3 15:28</a>
@@ -17557,26 +11518,15 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 可以用道具破的
 
 
-
-
-
-
-
 -----
 
 ####  tbchyu001  
 ##### 937#       发表于 2016-2-3 17:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=31483658&amp;amp;ptid=1158205" target="_blank">index 发表于 2016-2-3 15:54</a>
 可以用道具破的</blockquote>
 你们真坏！<img src="https://static.saraba1st.com/image/smiley/normal/027.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17585,21 +11535,13 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 938#       发表于 2016-2-3 17:13
 
 
-
-
 上次古战场hell我还想如果能掉落一块狒狒钢就拿来凸攻刃2武器......然而只掉落玉钢并没有什么卵用<img src="https://static.saraba1st.com/image/smiley/face/14.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ぜかまし  
 ##### 939#       发表于 2016-2-3 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31483462&amp;ptid=1158205" target="_blank">oyss1225 发表于 2016-2-3 15:28</a>
@@ -17609,25 +11551,13 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 事实上，当你脸黑的时候，轻轻松松就4破(一把你不想要的)了
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 940#       发表于 2016-2-3 18:17
 
 
-
-
 这次的剧情，我们武功盖世屠手杀星精的团长又被卫兵抓，我怎么说又呢？
-
-
-
-
-
 
 
 -----
@@ -17636,14 +11566,7 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 941#       发表于 2016-2-3 20:54
 
 
-
-
 这次活动挺良心的 boss也没那么恶心 天数也够 一天打一点 低消耗就可以打满300万
-
-
-
-
-
 
 
 -----
@@ -17652,16 +11575,9 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 942#       发表于 2016-2-3 20:59
 
 
-
-
 然而感觉贡献还是涨太慢了<img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">
 
 一只ex给10w多好<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17670,17 +11586,10 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 943#       发表于 2016-2-3 22:59
 
 
-
-
 以前剧情活动的ex也是solo一个8w+贡献啊...
 
 
 不过不知道是不是错觉,这次的ex放出来5分内基本都会干掉,不像之前经常会有残血没人进的情况...
-
-
-
-
-
 
 
 -----
@@ -17689,24 +11598,16 @@ e1-3 1-5不掉信念？...快3小时，鶏9，各色箱子都不是，只能等�
 ##### 944#       发表于 2016-2-4 08:59
 
 
-
-
 bgm蛮好听的，下来做铃声好了Y(^o^)Y
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  lqn870727  
 ##### 945#       发表于 2016-2-4 09:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31487049&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-2-3 22:59</a>
@@ -17719,17 +11620,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 —— 来自 Sony E6883, Android 5.1.1
 
 
-
-
-
-
-
 -----
 
 ####  rockroxas  
 ##### 946#       发表于 2016-2-4 20:40
-
-
 
 
 5分被干掉是因为刷这个的天人大佬多吧，他们需要的是暗碎片，毕竟卡池召唤里暗SR只有一个小马……
@@ -17737,16 +11631,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 武器反正大家主力都是方阵
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 947#       发表于 2016-2-4 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31494350&amp;ptid=1158205" target="_blank">rockroxas 发表于 2016-2-4 20:40</a>
@@ -17762,31 +11650,19 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 只是对这次群众参与救援的热情普遍高涨有点意外...
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 948#       发表于 2016-2-4 22:04
 
 
-
 分解人气第一リッチ老师
-
-
-
-
-
 
 
 -----
 
 ####  rockroxas  
 ##### 949#       发表于 2016-2-4 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31494709&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-2-4 21:38</a>
@@ -17800,16 +11676,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 我进的螃蟹都是1分钟就消失了的
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 950#       发表于 2016-2-5 09:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31484975&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-2-3 18:17</a>
@@ -17820,25 +11690,13 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 一定是因为主角迷上了被抓进去后开乱交趴的感觉<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 951#       发表于 2016-2-5 10:47
 
 
-
-
 暗蟹钳真恶心啊！不掉落的话只有3把，不够满破啊。泪
-
-
-
-
-
 
 
 -----
@@ -17847,16 +11705,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 952#       发表于 2016-2-5 10:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31497966&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-2-5 10:47</a>
 
 暗蟹钳真恶心啊！不掉落的话只有3把，不够满破啊。泪</blockquote>
 300W贡献3个，300金章1个，合计4个
-
-
-
-
-
 
 
 -----
@@ -17865,16 +11717,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 953#       发表于 2016-2-5 11:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31498014&amp;ptid=1158205" target="_blank">kuglv 发表于 2016-2-5 10:53</a>
 
 300W贡献3个，300金章1个，合计4个</blockquote>
 才看到300金章还有一个，贡献没问题 应该够。金章这个真看运气了，道具不一定能支持到300
-
-
-
-
-
 
 
 -----
@@ -17883,23 +11729,16 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 954#       发表于 2016-2-5 13:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31484975&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-2-3 18:17</a>
 
 这次的剧情，我们武功盖世屠手杀星精的团长又被卫兵抓，我怎么说又呢？</blockquote>
 大家老实人，先被逮捕在看看情况。上次是因为老婆病重，出不到全力。
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 955#       发表于 2016-2-5 14:17
-
 
 
  本帖最后由 LichEnd 于 2016-2-5 14:23 编辑 
@@ -17909,16 +11748,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 不过200光婊80%是mvp才2铳1琴，真的不是在玩我吗<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">我暗方都7枪4斧了……
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 956#       发表于 2016-2-5 15:18
-
 
 
  本帖最后由 cowgp01 于 2016-2-5 15:20 编辑 
@@ -17928,16 +11761,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 团长被抓后不是应该开魔鬼背肌，用手刀把牢房大门切开跑出来么<img src="https://static.saraba1st.com/image/smiley/normal/053.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 957#       发表于 2016-2-5 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31499698&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-2-5 14:17</a>
@@ -17948,16 +11775,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 什么，欧皇来晒掉落的？哼哼！！
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 958#       发表于 2016-2-5 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31500556&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-2-5 16:24</a>
@@ -17966,11 +11787,6 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">真的不是想晒，我光方是最难出的（其他属性最起码都8把了，只有光方还是3把，玩了3个多月了）
 
 结果出个路感觉像是直男去大保健发现js是个带把的一样<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17979,7 +11795,6 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 959#       发表于 2016-2-5 22:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31500556&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-2-5 16:24</a>
 
 什么，欧皇来晒掉落的？哼哼！！</blockquote>
@@ -17988,32 +11803,19 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 结果出个路感觉像是直男去大保健发现js是个带把的一样<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  posion  
 ##### 960#       发表于 2016-2-5 23:11
 
 
-
-
 我知道什么时候抽石头了，刷刷任务，如果连续掉超稀有金箱，就...<img src="https://static.saraba1st.com/image/smiley/nq/008.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gyfsgm  
 ##### 961#       发表于 2016-2-6 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31503273&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-2-5 22:35</a>
@@ -18026,32 +11828,19 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 欧皇你好
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 962#       发表于 2016-2-6 09:56
 
 
-
-
 三个月这样有点黑呢，最好想办法试试mvp确定
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 963#       发表于 2016-2-6 09:57
-
 
 
  本帖最后由 LichEnd 于 2016-2-6 10:03 编辑 
@@ -18066,17 +11855,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 光婊保守估计至少320+的红箱子，800+的金箱子，3个光方，2个照片？欧吗？我真不觉得。
 
 
-
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 964#       发表于 2016-2-6 10:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31505685&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-2-6 09:57</a>
@@ -18088,32 +11870,19 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 暗的我大概舔了400只。MVP就不指望了，但是风的MVP现在我能保证40%的机率吧。土的MVP会高不少，必尽新人风队会稍稍克一点。
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 965#       发表于 2016-2-6 11:03
 
 
-
-
 一开始最好就是搞个差不多的风队去打土，因为土是最弱的<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 966#       发表于 2016-2-6 14:23
-
 
 
  本帖最后由 LichEnd 于 2016-2-6 14:33 编辑 
@@ -18136,16 +11905,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 我见过最快10月份入坑的3个月就已经100级并且风方阵毕业了，现在好像4凸都毕业了。养了5个放怪小号，每天6系十几个怪在吃mvp。
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 967#       发表于 2016-2-6 14:29
-
 
 
  本帖最后由 kitagawa 于 2016-2-6 15:30 编辑 
@@ -18157,32 +11920,19 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 以上不是必须 但有的话肯定好打一些
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 968#       发表于 2016-2-6 16:31
 
 
-
-
 运动完了才想起来 水队有莉莉 高达也好打
-
-
-
-
-
 
 
 -----
 
 ####  gyfsgm  
 ##### 969#       发表于 2016-2-6 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31507543&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-2-6 14:23</a>
@@ -18195,25 +11945,13 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 不过我技术都不高，风枪风拳只有5，SR攻刃差不多2~3过渡。是技能还不够么？？
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 970#       发表于 2016-2-6 22:08
 
 
-
-
 船的话因为攻防up会给你加雾两回合，所以要一个会回复的，要会净化的，攻防up3个cd大概是5左右的人物，那么只要够恒心怎么也打得到一半血，最好是背水队去打
-
-
-
-
-
 
 
 -----
@@ -18222,21 +11960,13 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 971#       发表于 2016-2-6 23:28
 
 
-
-
 喷了，三个月3w战斗力
-
-
-
-
-
 
 
 -----
 
 ####  submarine406  
 ##### 972#       发表于 2016-2-6 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31507543&amp;ptid=1158205" target="_blank">LichEnd 发表于 2016-2-6 14:23</a>
@@ -18249,16 +11979,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 你把3个月乘个6再看看这等效毕业周期多久...
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 973#       发表于 2016-2-7 02:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31511110&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-2-6 23:39</a>
@@ -18269,27 +11993,16 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">是很久啊，刚入坑的时候都说这游戏是半年起的
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 974#       发表于 2016-2-7 15:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31511022&amp;ptid=1158205" target="_blank">osore 发表于 2016-2-6 23:28</a>
 
 喷了，三个月3w战斗力</blockquote>
 没办法 前二个月基本都是划水，就最近3，4个活动肝得利害点。战力是差了点。但不掉武器也没办法啊
-
-
-
-
-
 
 
 -----
@@ -18298,16 +12011,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 975#       发表于 2016-2-7 15:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31511022&amp;ptid=1158205" target="_blank">osore 发表于 2016-2-6 23:28</a>
 
 喷了，三个月3w战斗力</blockquote>
 没办法 前二个月基本都是划水，就最近3，4个活动肝得利害点。战力是差了点。但不掉武器也没办法啊
-
-
-
-
-
 
 
 -----
@@ -18316,16 +12023,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 976#       发表于 2016-2-8 04:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31515054&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-2-7 15:59</a>
 
 没办法 前二个月基本都是划水，就最近3，4个活动肝得利害点。战力是差了点。但不掉武器也没办法啊 ...</blockquote>
 么事，慢慢来，sr武器先用起来
-
-
-
-
-
 
 
 -----
@@ -18334,14 +12035,7 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 977#       发表于 2016-2-8 08:21
 
 
-
-
 魔都电信飞起来了，精品网直连比挂SS快一倍，和玩单机的反应速度差不多
-
-
-
-
-
 
 
 -----
@@ -18350,14 +12044,7 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 978#       发表于 2016-2-8 19:59
 
 
-
-
 骑剑一出光就被洗牌了，目前我还是先看清楚下个月塔罗的风向再打吧，毕竟球也没有了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18366,13 +12053,7 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 979#       发表于 2016-2-9 01:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">下个月搞不好暗UK也淘汰了，究竟为了什么才氪药打联动团战....
-
-
-
-
-
 
 
 -----
@@ -18381,15 +12062,9 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 980#       发表于 2016-2-9 07:31
 
 
-
  本帖最后由 屈江鸟 于 2016-2-9 07:33 编辑 
 
 8点就出门去外地探亲了，起床先来个90円黄跳虹来了个兰斯洛特，感觉运气来了就把800W券用了来了个奶枪......爽，可以安心出门了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18398,16 +12073,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 981#       发表于 2016-2-9 12:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31528037&amp;ptid=1158205" target="_blank">屈江鸟 发表于 2016-2-9 07:31</a>
 
 8点就出门去外地探亲了，起床先来个90円黄跳虹来了个兰斯洛特，感觉运气来了就把800W券用了来了个奶枪..... ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">你这门出的真的安心吗
-
-
-
-
-
 
 
 -----
@@ -18416,17 +12085,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 982#       发表于 2016-2-10 15:26
 
 
-
-
 光剑真棒真棒 改写游戏的一步
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -18435,14 +12097,7 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 983#       发表于 2016-2-10 18:53
 
 
-
-
 刺客那暗器真是，变强的秘诀就是氪金道具！！
-
-
-
-
-
 
 
 -----
@@ -18451,14 +12106,7 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 984#       发表于 2016-2-11 10:43
 
 
-
-
 刺客的暗器材料不是氪金來的吧,,,
-
-
-
-
-
 
 
 -----
@@ -18469,28 +12117,19 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kitagawa  
 ##### 986#       发表于 2016-2-11 21:14
 
 
-
-
 升工人等级９９％也能强化失败 我是真日了poi了( <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Niu  
 ##### 987#       发表于 2016-2-12 11:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31547234&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-2-11 04:43</a>
@@ -18506,16 +12145,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 除非是那種每天打個好幾場HL的廢人 不會不夠用啊
 
 
-
-
-
-
-
 -----
 
 ####  Cityrat  
 ##### 988#       发表于 2016-2-12 15:11
-
 
 
 <img src="http://ww4.sinaimg.cn/large/49332ccagw1f0wkgrbur6j20930fvmzv.jpg" referrerpolicy="no-referrer">
@@ -18534,27 +12167,15 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 聊以安慰
 
 
-
-
-
-
-
 -----
 
 ####  Niu  
 ##### 989#       发表于 2016-2-12 15:48
 
 
-
-
 緋緋色金!?
 
 羨慕忌妒恨啊!!
-
-
-
-
-
 
 
 -----
@@ -18563,14 +12184,7 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 990#       发表于 2016-2-12 16:09
 
 
-
-
 我问问有时会掉落一些sr的武器但是攻击都是1的，有价值吗？不课金是不是抽不到SSR的人物？
-
-
-
-
-
 
 
 -----
@@ -18579,14 +12193,7 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 991#       发表于 2016-2-12 16:10
 
 
-
-
 我问问有时会掉落一些sr的武器但是攻击都是1的，有价值吗？不课金是不是抽不到SSR的人物？
-
-
-
-
-
 
 
 -----
@@ -18595,21 +12202,13 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ##### 992#       发表于 2016-2-12 17:25
 
 
-
-
 10连保底出了个菲利，说好的土up呢....
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 993#       发表于 2016-2-12 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31552419&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-2-12 17:10</a>
@@ -18621,16 +12220,10 @@ bgm蛮好听的，下来做铃声好了Y(^o^)Y
 ssr看脸 课金只是提高尝试次数
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 994#       发表于 2016-2-12 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31553233&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-2-12 18:07</a>
@@ -18642,16 +12235,10 @@ ssr看脸 课金只是提高尝试次数
 不氪金的宝晶石的来源除了任务第一次和每天登陆，4页游联动登陆外还有什么来源吗<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 995#       发表于 2016-2-12 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31553658&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-2-12 20:12</a>
@@ -18666,27 +12253,15 @@ ssr看脸 课金只是提高尝试次数
 每次大小活动会有些完成一些击杀或打多少多少只怪 给一个称号的同时奖励一些宝石
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 996#       发表于 2016-2-13 06:27
 
 
-
-
 刚刚入坑，在准备用VISA卡充值的时候告诉我3D保护认证失败了……
 
 这是为什么……以前买东西从来没遇过这种事情
-
-
-
-
-
 
 
 -----
@@ -18695,24 +12270,16 @@ ssr看脸 课金只是提高尝试次数
 ##### 997#       发表于 2016-2-13 09:06
 
 
-
-
 好像认证出问题了，先淘宝买webmoney吧。。
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 998#       发表于 2016-2-13 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31552041&amp;ptid=1158205" target="_blank">Cityrat 发表于 2016-2-12 15:11</a>
@@ -18725,16 +12292,10 @@ ssr看脸 课金只是提高尝试次数
 ？！！！！！！太欧了
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 999#       发表于 2016-2-13 18:07
-
 
 
 <blockquote>引用第986楼Cityrat于2016-02-12 15:11发表的  :
@@ -18748,17 +12309,10 @@ ssr看脸 课金只是提高尝试次数
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  LMBS  
 ##### 1000#       发表于 2016-2-13 18:16
-
-
 
 
 玩了一个月，有几个问题
@@ -18767,16 +12321,10 @@ ssr看脸 课金只是提高尝试次数
 终突阿米拉差38煌光宝珠和8万，哪里打好
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1001#       发表于 2016-2-13 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31561045&amp;ptid=1158205" target="_blank">hecas 发表于 2016-2-13 19:07</a>
@@ -18787,31 +12335,19 @@ ssr看脸 课金只是提高尝试次数
 鼠叔在隔壁一向是欧 我信了w
 
 
-
-
-
-
-
 -----
 
 ####  萨尤克  
 ##### 1002#       发表于 2016-2-13 20:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">滚狒狒的欧皇
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1003#       发表于 2016-2-13 21:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31561105&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-2-13 18:16</a>
@@ -18828,16 +12364,10 @@ ssr看脸 课金只是提高尝试次数
 金币就打共斗卖素材，宝珠就打曜日本或者分解武器
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 1004#       发表于 2016-2-14 09:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31561105&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-2-13 18:16</a>
@@ -18852,25 +12382,13 @@ ssr看脸 课金只是提高尝试次数
 我从11月20号入坑，舔到现在有风3，光1，暗1，土2 这么多召唤兽，外加SSR武器2把。还要算上自已放的，必掉一红箱的这种。
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1005#       发表于 2016-2-14 11:09
 
 
-
-
 姬塔把买来的巧克力说是手制的全部男人送了一次，可怕的女人，果真是成大事之人<img src="https://static.saraba1st.com/image/smiley/normal/122.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18879,14 +12397,7 @@ ssr看脸 课金只是提高尝试次数
 ##### 1006#       发表于 2016-2-14 18:56
 
 
-
-
 只加14点的劣质巧克力。别的妹子送的起码也是700多的
-
-
-
-
-
 
 
 -----
@@ -18895,14 +12406,7 @@ ssr看脸 课金只是提高尝试次数
 ##### 1007#       发表于 2016-2-15 18:24
 
 
-
-
 下个月3个人终突,这是又要有活动sr终突的意思么...
-
-
-
-
-
 
 
 -----
@@ -18911,21 +12415,13 @@ ssr看脸 课金只是提高尝试次数
 ##### 1008#       发表于 2016-2-15 18:38
 
 
-
-
 光剑：“不是针对你，我是说在座的各位都是辣鸡”
-
-
-
-
-
 
 
 -----
 
 ####  submarine406  
 ##### 1009#       发表于 2016-2-15 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31577369&amp;ptid=1158205" target="_blank">kiraabu 发表于 2016-2-15 18:38</a>
@@ -18937,16 +12433,10 @@ ssr看脸 课金只是提高尝试次数
 毒奶请受我一拜
 
 
-
-
-
-
-
 -----
 
 ####  蹭得累  
 ##### 1010#       发表于 2016-2-15 19:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31577764&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-2-15 19:34</a>
@@ -18958,25 +12448,13 @@ ssr看脸 课金只是提高尝试次数
 而且改成总共只能换4把了
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1011#       发表于 2016-2-15 21:27
 
 
-
-
 hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥问题，但TM很不爽
-
-
-
-
-
 
 
 -----
@@ -18985,14 +12463,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1012#       发表于 2016-2-15 21:54
 
 
-
-
 擦，炸了
-
-
-
-
-
 
 
 -----
@@ -19001,14 +12472,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1013#       发表于 2016-2-15 21:54
 
 
-
-
 紧急来咯
-
-
-
-
-
 
 
 -----
@@ -19017,14 +12481,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1014#       发表于 2016-2-16 00:22
 
 
-
-
 900万退坑祭，已经看见好几个拆路西法的了，cy这一手玩得太炸裂，是得了百万不搞个大新闻会死的病么
-
-
-
-
-
 
 
 -----
@@ -19033,14 +12490,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1015#       发表于 2016-2-16 07:39
 
 
-
-
 傻屌cy，这个月不课了
-
-
-
-
-
 
 
 -----
@@ -19049,14 +12499,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1016#       发表于 2016-2-16 09:04
 
 
-
-
 神威只要用计算器一计就知道有多大问题了，这设计的数值干什么吃的
-
-
-
-
-
 
 
 -----
@@ -19065,16 +12508,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1017#       发表于 2016-2-16 16:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31581364&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-2-16 09:04</a>
 
 神威只要用计算器一计就知道有多大问题了，这设计的数值干什么吃的</blockquote>
 最开始设计公式的人说不定都已经走了<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">至于FKHR，还能指望他会算数？
-
-
-
-
-
 
 
 -----
@@ -19083,14 +12520,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1018#       发表于 2016-2-16 23:18
 
 
-
-
 光剑炎上今天又来个撤销出货榜，果真是亲爱的玩家我是你爹
-
-
-
-
-
 
 
 -----
@@ -19099,14 +12529,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1019#       发表于 2016-2-17 20:51
 
 
-
-
 看了下剧情 比上次那个给佬船强太多了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19115,21 +12538,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1020#       发表于 2016-2-17 22:09
 
 
-
-
 我不要給佬了啊啊啊啊啊給我小提琴給我種田大法給我蘿蔔米，你就是要來基佬你來個喲翰也好啊啊啊啊啊啊
-
-
-
-
-
 
 
 -----
 
 ####  301个斯巴达  
 ##### 1021#       发表于 2016-2-18 03:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31596536&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-2-17 20:51</a>
@@ -19141,16 +12556,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 上次那个活动有啥不好的
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 1022#       发表于 2016-2-18 03:56
-
 
 
  本帖最后由 鱼缸 于 2016-2-18 03:58 编辑 
@@ -19165,16 +12574,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 加了妹子的剧情就是超强超棒  这位提督的思路真是富有代表性
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1023#       发表于 2016-2-18 08:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31598599&amp;ptid=1158205" target="_blank">鱼缸 发表于 2016-2-18 04:56</a>
@@ -19185,25 +12588,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 有妹子的活动可以舔给好评 有问题？我又不喜欢给佬
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 1024#       发表于 2016-2-18 10:44
 
 
-
-
 这次这活动，只有4个召唤兽加一堆技能口粮和一堆JP我有点心动 不用像肝SSR武器拿样了
-
-
-
-
-
 
 
 -----
@@ -19212,14 +12603,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1025#       发表于 2016-2-18 11:04
 
 
-
-
 下次复刻大概就到种田了，如果没有再插队的话
-
-
-
-
-
 
 
 -----
@@ -19228,21 +12612,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1026#       发表于 2016-2-18 13:25
 
 
-
-
 有真萌新群吗？<img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">  
-
-
-
-
-
 
 
 -----
 
 ####  gyfsgm  
 ##### 1027#       发表于 2016-2-18 16:15
-
 
 
  本帖最后由 gyfsgm 于 2016-2-18 16:52 编辑 
@@ -19262,25 +12638,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 然后趁着机会扔扔大招，抢抢MVP或是准MVP。反正就是谁的贡献高谁就多拿箱子。MVP或准MVP掉落SSR的机会比普通的机会高至少10倍。
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1028#       发表于 2016-2-18 16:40
 
 
-
-
 900W大爆肝
-
-
-
-
-
 
 
 -----
@@ -19289,14 +12653,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1029#       发表于 2016-2-18 16:49
 
 
-
-
 哦哦 主线任务ap半减 正好要做设备扩张<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19305,14 +12662,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1030#       发表于 2016-2-18 17:44
 
 
-
-
 新土兽耳感觉不是很强啊，就是个有条件限制选择多点的蹲逼，要看诱惑效果，话说名字叫凯萨琳的兽耳啊....<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19321,14 +12671,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1031#       发表于 2016-2-18 18:33
 
 
-
-
 900W各种减半，肝到疯
-
-
-
-
-
 
 
 -----
@@ -19339,7 +12682,6 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  麻仓桃  
@@ -19348,20 +12690,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  furui3132  
 ##### 1034#       发表于 2016-2-18 20:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">新土虽然是个蹲逼，但是感觉并不好蹲，诱惑很容易就会被别人消耗掉吧
-
-
-
-
-
 
 
 -----
@@ -19370,14 +12705,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1035#       发表于 2016-2-18 23:34
 
 
-
-
 诱惑的发动率非常高，诱惑可以和魅惑叠加，好吧看来这不是个蹲逼，而是魅惑版的炎帝<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19386,14 +12714,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1036#       发表于 2016-2-19 06:15
 
 
-
-
 事实证明,这个月即便没古战,运营也会变着法儿让你在下旬烧水粉...
-
-
-
-
-
 
 
 -----
@@ -19402,16 +12723,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1037#       发表于 2016-2-19 13:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31600599&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-2-18 11:04</a>
 
 下次复刻大概就到种田了，如果没有再插队的话</blockquote>
 有详细顺序么？什么时候才到生天目那个深海巨大鱼啊，我想要泳装和生天目啊<img src="https://static.saraba1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19420,18 +12735,12 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1038#       发表于 2016-2-19 13:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31611050&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-2-19 13:14</a>
 
 有详细顺序么？什么时候才到生天目那个深海巨大鱼啊，我想要泳装和生天目啊 ...</blockquote>
 登场角**是泳装   所以至少得等到夏天了  而且已经复刻过了 所以不知道今年还会不会有
 
 总之弄了个氪金版在卡池
-
-
-
-
-
 
 
 -----
@@ -19440,7 +12749,6 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1039#       发表于 2016-2-19 13:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31611050&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-2-19 13:14</a>
 
 有详细顺序么？什么时候才到生天目那个深海巨大鱼啊，我想要泳装和生天目啊 ...</blockquote>
@@ -19449,25 +12757,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 总之弄了个氪金版在卡池
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1040#       发表于 2016-2-19 13:26
 
 
-
-
 那只能看脸了<img src="https://static.saraba1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19476,14 +12772,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1041#       发表于 2016-2-19 14:50
 
 
-
-
 生天目不是有个氪金版在卡池么，虽然我觉得氪金版没有活动版好看啦
-
-
-
-
-
 
 
 -----
@@ -19492,14 +12781,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1042#       发表于 2016-2-20 16:24
 
 
-
-
 主线现在只到58章？这剧情大概多久更新一次？
-
-
-
-
-
 
 
 -----
@@ -19508,16 +12790,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1043#       发表于 2016-2-20 17:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31620335&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-2-20 16:24</a>
 
 主线现在只到58章？这剧情大概多久更新一次？</blockquote>
 后天将会更新，一般1个月更2章吧
-
-
-
-
-
 
 
 -----
@@ -19526,14 +12802,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1044#       发表于 2016-2-20 18:18
 
 
-
-
 第一篇帝国新手村下个月完结，动画大概也就到这里了，扯了3年看起来就是个新手村
-
-
-
-
-
 
 
 -----
@@ -19542,16 +12811,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1045#       发表于 2016-2-20 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31620954&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-2-20 17:50</a>
 
 后天将会更新，一般1个月更2章吧</blockquote>
 原来如此，看来我是踏入了个巨坑啊，居然是连载式的<img src="https://static.saraba1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19560,17 +12823,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1046#       发表于 2016-2-20 18:35
 
 
-
-
 然后出了新手村就是外域啦
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -19579,18 +12835,12 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1047#       发表于 2016-2-20 21:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31621201&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-2-20 18:24</a>
 
 原来如此，看来我是踏入了个巨坑啊，居然是连载式的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/79.gif" referrerpolicy="no-referrer">啥手游都是不定时增加剧情啦，不然只靠系统和抽卡吸引人吗
 
 有剧情给你加算不错了
-
-
-
-
-
 
 
 -----
@@ -19599,7 +12849,6 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1048#       发表于 2016-2-20 21:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31621201&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-2-20 18:24</a>
 
 原来如此，看来我是踏入了个巨坑啊，居然是连载式的</blockquote>
@@ -19608,16 +12857,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 有剧情给你加算不错了
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1049#       发表于 2016-2-20 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31622394&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-2-20 21:06</a>
@@ -19628,25 +12871,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 第一次玩手游啊，我以为像网友那样一年半载出个资料篇什么的<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1050#       发表于 2016-2-20 21:54
 
 
-
-
 对主线的最大印象就是三瓶配得真好，三瓶好像是第一次配这种角色呢<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19655,14 +12886,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1051#       发表于 2016-2-20 22:10
 
 
-
-
 黑骑士好棒啊，我就是喜欢这种穿一身重甲不露真容，底下是个大波美女的设定啊<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19671,16 +12895,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1052#       发表于 2016-2-21 11:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31622816&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-2-20 22:10</a>
 
 黑骑士好棒啊，我就是喜欢这种穿一身重甲不露真容，底下是个大波美女的设定啊 ...</blockquote>
 后面就全脱了，色情的一比
-
-
-
-
-
 
 
 -----
@@ -19689,14 +12907,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1053#       发表于 2016-2-21 12:55
 
 
-
-
 我平常打的少,900w这马格纳出货率是不是有点高啊,这2天每天基本都是4攻刃左右
-
-
-
-
-
 
 
 -----
@@ -19707,7 +12918,6 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  麻仓桃  
@@ -19716,13 +12926,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hecas  
 ##### 1056#       发表于 2016-2-21 18:37
-
-
 
 
 可怕的天人
@@ -19731,16 +12938,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1057#       发表于 2016-2-22 09:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31628806&amp;ptid=1158205" target="_blank">麻仓桃 发表于 2016-2-21 18:03</a>
@@ -19752,33 +12953,19 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 哦，对了，防御破了100%cut的话也是显示miss的，是不是开白骑士盾或者其他50%以上的盾+火小马或者莉莉+雅典娜了，不过这样也只能防一次，而且你是风队，那么只能是幻影召唤兽了+桑岛了
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1058#       发表于 2016-2-22 11:16
 
 
-
-
 群体幻影实打实的 不光高达 各种boss广泛运用
-
-
-
-
-
 
 
 -----
 
 ####  小君  
 ##### 1059#       发表于 2016-2-24 01:41
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201602/24/014043f8743uz38kk3c2g2.jpg" referrerpolicy="no-referrer">
@@ -19791,15 +12978,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 2016-2-24 01:40 上传
 
 
-
-
-
 看到彩色的时候心跳了一下，看到两个彩色的时候心噗通乱跳，看到出来的东西……直接凉了……<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19808,16 +12987,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1060#       发表于 2016-2-24 09:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31649964&amp;ptid=1158205" target="_blank">小君 发表于 2016-2-24 01:41</a>
 
 看到彩色的时候心跳了一下，看到两个彩色的时候心噗通乱跳，看到出来的东西……直接凉了…… ...</blockquote>
 不错的分解材料<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19826,15 +12999,9 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1061#       发表于 2016-2-24 13:26
 
 
-
  本帖最后由 kitagawa 于 2016-2-24 14:30 编辑 
 
 20个虹晶...好羡慕<img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer"> 做10天还少230个虹晶 这要打到哪年哪月去啊
-
-
-
-
-
 
 
 -----
@@ -19843,14 +13010,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1062#       发表于 2016-2-25 00:16
 
 
-
-
 打老虎活动好像没啥人打啊，经常等了半个小时才有大腿进来打<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19859,16 +13019,9 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1063#       发表于 2016-2-25 08:56
 
 
-
-
 四象活动有个效果，根据怪物hp量决定buff以及。。。进入战斗需要的bp（俗称豆）的数量，也就是100%血5豆，50%血3豆%，25血1豆
 
 从效率来说舔1豆拿低保箱子是赚的，所以你满血放出去的白虎（只是白虎，泰坦因为时间长容易赚分，也会有大佬满血抢入）没几个人瞧的。。。。
-
-
-
-
-
 
 
 -----
@@ -19877,17 +13030,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1064#       发表于 2016-2-25 09:04
 
 
-
-
 还有就是现在马古那半减，根本打不动四象了
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -19896,14 +13042,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1065#       发表于 2016-2-25 11:14
 
 
-
-
 生放送。。。简直。。。过年氪金70w的返还70w等值石头。。。沃槽，会死人的
-
-
-
-
-
 
 
 -----
@@ -19912,22 +13051,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1066#       发表于 2016-2-25 11:58
 
 
-
-
 这一拳拳打在CY脸上好痛快啊
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1067#       发表于 2016-2-25 12:00
-
-
 
 
 关于今天生放送的二周年相关更新
@@ -19959,25 +13089,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 12.2个新职业登场
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1068#       发表于 2016-2-25 12:21
 
 
-
-
 我进过小黑屋，不给赔有人重复就再见了，他差别了一次难保以后还会不会继续差别，这样玩下去没有意思
-
-
-
-
-
 
 
 -----
@@ -19986,14 +13104,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1069#       发表于 2016-2-25 13:56
 
 
-
-
 石头似乎是没得赔了，其他要等3月10
-
-
-
-
-
 
 
 -----
@@ -20002,14 +13113,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1070#       发表于 2016-2-25 15:09
 
 
-
-
 下血本了，不过8号入的坑，和我多大没关系
-
-
-
-
-
 
 
 -----
@@ -20020,7 +13124,6 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  麻仓桃  
@@ -20029,20 +13132,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Cityrat  
 ##### 1073#       发表于 2016-2-25 15:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">上线一看，元旦的年终奖都回来了啊，怒抽5发，香菜，贞德，菲力酱到手，这下大狸子就差火痴女和土的new了（然后还债了5发……）
-
-
-
-
-
 
 
 -----
@@ -20051,24 +13147,16 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1074#       发表于 2016-2-25 16:49
 
 
-
-
 &gt;&gt;1.增加氪金天井，累积300次gacha后可以在任意武器里选一把
 
 
 这个累计有期限还是无期限？
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1075#       发表于 2016-2-25 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31663897&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-2-25 16:49</a>
@@ -20080,16 +13168,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 虽然是开发中的图，后来仔细看了一下，是一次活动期间内要累积300次
 
 
-
-
-
-
-
 -----
 
 ####  hello0607  
 ##### 1076#       发表于 2016-2-25 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31663897&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-2-25 16:49</a>
@@ -20101,31 +13183,19 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 肯定是一次的 对穷人和欧洲人没什么卵用 就是给重氪非洲人的保底
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 1077#       发表于 2016-2-25 17:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">没抽猴子，之前抽BBA的才哭呢，你妹根本不在赔偿范围啊！！！
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1078#       发表于 2016-2-25 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31664401&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-2-25 17:57</a>
@@ -20136,33 +13206,19 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 不过一般都会在猴子的时候全部投入，毕竟也是6%
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1079#       发表于 2016-2-25 18:18
 
 
-
-
 谢谢回复 原来是期间限定...不知道夏天泳装还会不会复课了 嘛 可以开始攒钱了<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1080#       发表于 2016-2-25 19:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31664496&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-2-25 18:18</a>
@@ -20174,32 +13230,19 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 放心吧，除了十二支，限定角色全部都会复刻的（说不定HRT怂了羊也会复刻）
 
 
-
-
-
-
-
 -----
 
 ####  小君  
 ##### 1081#       发表于 2016-2-28 17:06
 
 
-
-
 3周年活动看上去有点坑……是不是以后就没超得了？
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1082#       发表于 2016-2-28 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31687945&amp;ptid=1158205" target="_blank">小君 发表于 2016-2-28 17:06</a>
@@ -20210,17 +13253,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 二周年活动还没出来呢，前几天公布的是二周年和以后的一些更新
 
 
-
-
-
-
-
 -----
 
 ####  LMBS  
 ##### 1083#       发表于 2016-2-28 22:10
-
-
 
 
 这游戏普通脸和肝一个月什么程度
@@ -20230,17 +13266,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 玩了一个多月的光，感觉距离光暗确保MVP都差好远
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1084#       发表于 2016-2-29 00:20
-
-
 
 
 风土和光暗难度能比吗
@@ -20250,16 +13279,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 路巴杂全齐的也不比其他人能打
 
 
-
-
-
-
-
 -----
 
 ####  LichEnd  
 ##### 1085#       发表于 2016-2-29 04:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31691661&amp;ptid=1158205" target="_blank">osore 发表于 2016-2-29 00:20</a>
@@ -20272,16 +13295,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 暗4w战斗力就能心机，并没有多难，然后就是看脸了。有个鸟人蹲bk会轻松很多。
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1086#       发表于 2016-2-29 04:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31690469&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-2-28 22:10</a>
@@ -20309,11 +13326,6 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 然后赌场里又有4属里最容易拿到的80召唤，所以一般就推荐从风队开始上手
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -20322,13 +13334,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  LMBS  
 ##### 1088#       发表于 2016-2-29 09:39
-
-
 
 
 现在打除光属性方阵，如果两个降甲都命中的话还是有机会能拿到MVP的
@@ -20343,16 +13352,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 用编队里的攻击力重视选择武器，是不是算上技能后的最大伤害
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 1089#       发表于 2016-2-29 12:14
-
 
 
  本帖最后由 submarine406 于 2016-2-29 12:17 编辑 
@@ -20369,16 +13372,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 不过他们的脸和肝根本谈不上普通,几个走光暗的1个月连换带滚能铺出6ssr方阵,rank80前就已有2个以上巴角...
 
 
-
-
-
-
-
 -----
 
 ####  小君  
 ##### 1090#       发表于 2016-2-29 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31695402&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-2-29 12:14</a>
@@ -20390,25 +13387,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 额……我rank70已经可以有7个角了……<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1091#       发表于 2016-2-29 19:23
 
 
-
-
 这新活动，5个妹子我都不想要我就想要那个祭司啊<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20417,14 +13402,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1092#       发表于 2016-2-29 21:39
 
 
-
-
 这次的活动，选完初始的召唤妹子之后发现在背包里找不到啊，我直接懵逼了，难道是物品丢失的bug么，求救各位dalao们该怎么办？
-
-
-
-
-
 
 
 -----
@@ -20433,14 +13411,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1093#       发表于 2016-3-1 00:27
 
 
-
-
 你都知道是召唤妹子了，去召唤石那里找
-
-
-
-
-
 
 
 -----
@@ -20449,14 +13420,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1094#       发表于 2016-3-1 00:44
 
 
-
-
 剧情看完了 给好评！！！ 战斗BGM和演出也很精彩！！！而且还有百合 我已经没有什么不满意的地方了<img src="https://static.saraba1st.com/image/smiley/face/13.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20465,14 +13429,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1095#       发表于 2016-3-1 09:01
 
 
-
-
 这个唱歌buff和超时空要塞一样扯 4层能叠100%攻刃的感觉，虽然只有一回合，但是是独立于其他攻刃buff的
-
-
-
-
-
 
 
 -----
@@ -20481,14 +13438,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1096#       发表于 2016-3-1 09:31
 
 
-
-
 可惜巫女石双维太低，buff的等级也不稳定，但却也足够让我用火队solo。没想到火狐、牛爸和香菜这三个不大配合的团体会这么强。
-
-
-
-
-
 
 
 -----
@@ -20497,16 +13447,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1097#       发表于 2016-3-1 09:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31702887&amp;ptid=1158205" target="_blank">rxrx 发表于 2016-3-1 09:31</a>
 
 可惜巫女石双维太低，buff的等级也不稳定，但却也足够让我用火队solo。没想到火狐、牛爸和香菜这三个不大配 ...</blockquote>
 牛爸和香菜我用了一辈子呢
-
-
-
-
-
 
 
 -----
@@ -20515,14 +13459,7 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1098#       发表于 2016-3-1 10:06
 
 
-
-
 你需要新出的骑空rock给佬，平A伤害比主角高一倍不是问题
-
-
-
-
-
 
 
 -----
@@ -20531,16 +13468,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1099#       发表于 2016-3-1 12:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31703117&amp;ptid=1158205" target="_blank">hecas 发表于 2016-3-1 09:56</a>
 
 牛爸和香菜我用了一辈子呢</blockquote>
 有些时候会出现牛爸红血，对方Break状态。这是牛爸的第三技配合第二技可做出大伤害，再加香菜的第二第一技配合，来个奥义四重天不得不说爽快。
-
-
-
-
-
 
 
 -----
@@ -20549,24 +13480,16 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1100#       发表于 2016-3-1 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31700031&amp;ptid=1158205" target="_blank">Sir_Nelson 发表于 2016-2-29 21:39</a>
 
 这次的活动，选完初始的召唤妹子之后发现在背包里找不到啊，我直接懵逼了，难道是物品丢失的bug么，求救各 ...</blockquote>
 只有在编成选SUB召唤里才能看到
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 1101#       发表于 2016-3-1 13:55
-
-
 
 
 是啊是啊
@@ -20576,17 +13499,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 1102#       发表于 2016-3-2 02:41
-
-
 
 
 赌bingo又破产了，350W开打，加上中间回的输了600+W吧，9次super bingo差一个，感觉老板娘离我越来越远了。最后只1000多赌扑克也是一直输到个位数，惨到买了200枚筹码打10元场扑克才慢慢回血。
@@ -20595,16 +13511,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 问下你们挂赌场怎么挂的，我刚刚刷本金的时候出现验证码了，出现之后是不是有段安全时间随便挂?
 
 
-
-
-
-
-
 -----
 
 ####  小君  
 ##### 1103#       发表于 2016-3-2 12:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31711216&amp;ptid=1158205" target="_blank">屈江鸟 发表于 2016-3-2 02:41</a>
@@ -20616,16 +13526,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 验证码这个貌似输入之后有一段时间是不出的，但是团里有大佬连续半小时碰到刷了两次验证<img src="https://static.saraba1st.com/image/smiley/face/08.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 1104#       发表于 2016-3-2 13:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31711216&amp;ptid=1158205" target="_blank">屈江鸟 发表于 2016-3-2 02:41</a>
@@ -20639,11 +13543,6 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 连本人手动党也要留1w本金回扑克以防万一
 
 
-
-
-
-
-
 -----
 
 ####  麻仓桃  
@@ -20652,22 +13551,15 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dlboy1981  
 ##### 1106#       发表于 2016-3-2 14:12
 
 
-
  本帖最后由 dlboy1981 于 2016-3-2 14:17 编辑 
 
 妈呀，两个月这么多99，就这又肝又豪的劲，玩暗队早爆炸了。
-
-
-
-
-
 
 
 -----
@@ -20676,16 +13568,9 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1107#       发表于 2016-3-2 14:22
 
 
-
-
 99课+1不就是了,这明摆着就是重课啊
 
 1月还有+1确+换トレシャー,重课换点材料还方便终突/十天进度啥的...
-
-
-
-
-
 
 
 -----
@@ -20694,23 +13579,15 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1108#       发表于 2016-3-2 15:35
 
 
-
-
 1102楼的 壕成这样了，2个月光天人的材料要花多少钱买体力才够啊！
 
 还这么多99，这不是纯肝可以的。大哥，能抱个大腿么！！
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 1109#       发表于 2016-3-2 16:16
-
 
 
  本帖最后由 kitagawa 于 2016-3-2 17:23 编辑 
@@ -20721,24 +13598,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 啊 还少个uk
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 1110#       发表于 2016-3-2 16:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">这肝（ke）度直接玩光暗也不是问题吧
-
-
-
-
-
 
 
 -----
@@ -20747,21 +13613,13 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ##### 1111#       发表于 2016-3-2 16:46
 
 
-
-
 这次活动的五个小姐姐唱歌不是不好听，但之前三大叔钓螃蟹的歌太有魄力，总觉得有些不足。
-
-
-
-
-
 
 
 -----
 
 ####  hecas  
 ##### 1112#       发表于 2016-3-2 18:56
-
 
 
 <blockquote>引用第1108楼ceng于2016-03-02 18:14发表的  :
@@ -20775,16 +13633,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1113#       发表于 2016-3-2 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31717709&amp;ptid=1158205" target="_blank">ceng 发表于 2016-3-2 18:14</a>
@@ -20795,32 +13647,19 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 最好的体验是用电脑玩，chorme扩展程序搜グランブルーファンタジー，或者直接上官网找（这是mobage游戏）
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 1114#       发表于 2016-3-2 21:41
 
 
-
-
 這月是不復刻之前愛馬仕前四彈的節奏了？<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1115#       发表于 2016-3-2 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31719352&amp;ptid=1158205" target="_blank">剑布衣 发表于 2016-3-2 21:41</a>
@@ -20831,16 +13670,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 应该跟以前节奏一样，前面几天先开以前的妇科给你刷刷，然后后面几天再开新的
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 1116#       发表于 2016-3-3 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31720111&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-2 23:26</a>
@@ -20851,32 +13684,19 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 我看了wiki的記錄，之前的復刻是前面幾天純復刻，後面10天會加上新活動，這次一共就10天，更重要的是之前復刻的話預告會寫...SO...有點擔心...嘛，但願是我想太多，聽說要聯動灰姑娘，跑去補完動畫和演唱會，感覺良好，為了順利拿到角色，遊戲也開始玩了，這可千萬別沒復刻啊...不然我要把HRTの頭をヘゴチーン<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1117#       发表于 2016-3-3 00:23
 
 
-
-
 前几天的直播明确说了就是cg吧
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1118#       发表于 2016-3-3 02:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31720457&amp;ptid=1158205" target="_blank">剑布衣 发表于 2016-3-3 00:19</a>
@@ -20887,16 +13707,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 而且。。上次的是团战，所以会长点
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 1119#       发表于 2016-3-3 02:17
-
 
 
  本帖最后由 剑布衣 于 2016-3-3 02:20 编辑 
@@ -20911,16 +13725,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 上次的団戰比較特殊，団戰和復刻是分開的，復刻完了才來的団戰，和之前的不同，實際団戰還比較短一點，所以我跳過了，參考的是去年5月，那時候前2彈同時復刻是3號~22號，復刻了整整20天，而那期新活動是11號~22號，前三彈也都是10天的長度，所以有復刻最低也要同時進行，不然懸了...
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1120#       发表于 2016-3-3 02:19
-
 
 
  本帖最后由 cowgp01 于 2016-3-3 02:24 编辑 
@@ -20928,16 +13736,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 这次CG来的是爱梨和大家都喜爱的幸子<img src="https://static.saraba1st.com/image/smiley/face/10.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1121#       发表于 2016-3-3 02:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31720975&amp;ptid=1158205" target="_blank">剑布衣 发表于 2016-3-3 02:17</a>
@@ -20951,17 +13753,10 @@ hrt这次改光剑的对应水平依然是那么屎呢，虽然想想也没啥�
 CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入坑有帮助
 
 
-
-
-
-
-
 -----
 
 ####  天命  
 ##### 1122#       发表于 2016-3-3 11:33
-
-
 
 
 时间短点问题也不大，cg现在带攻刃的就3个uk，土系是攻中hp小，很多人不喜欢。猫剑是现在普遍唱衰的火系，水匕首又刚出了斩妖剑。
@@ -20971,25 +13766,13 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 角色的入手也非常容易，观望新活动出什么属性的uk就好。
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 1123#       发表于 2016-3-3 12:23
 
 
-
-
 比较好奇这次幸子会是自称啥...
-
-
-
-
-
 
 
 -----
@@ -20998,13 +13781,7 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 ##### 1124#       发表于 2016-3-3 12:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我就想要个凛，这都不能满足我么
-
-
-
-
-
 
 
 -----
@@ -21013,16 +13790,10 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 ##### 1125#       发表于 2016-3-3 13:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31724551&amp;ptid=1158205" target="_blank">上坂莲华 发表于 2016-3-3 12:43</a>
 
 我就想要个凛，这都不能满足我么</blockquote>
 灰姑娘新的会一起妇科以前的，据说三巨头可能还会五破
-
-
-
-
-
 
 
 -----
@@ -21031,14 +13802,7 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 ##### 1126#       发表于 2016-3-3 16:03
 
 
-
-
 狂赌两天bingo，现在有1000W了…但是777还是没影
-
-
-
-
-
 
 
 -----
@@ -21047,14 +13811,7 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 ##### 1127#       发表于 2016-3-4 12:25
 
 
-
-
 对了求问下大佬，土队是带5剑，还是6剑？
-
-
-
-
-
 
 
 -----
@@ -21063,14 +13820,7 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 ##### 1128#       发表于 2016-3-4 16:38
 
 
-
-
 果然沒復刻，不過折中了一下，這第5彈是第1彈的別視角，大約算個1.5，能拿2個新角色+三巨頭（也許還有其他），這個...嘛，這次炸彈就省下了...
-
-
-
-
-
 
 
 -----
@@ -21079,17 +13829,10 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 ##### 1129#       发表于 2016-3-4 17:13
 
 
-
-
 能拿凛就好，其他随便啦<img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">
 
 
 问问还有骑空团位置吗？想蹭蹭buff<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21098,16 +13841,9 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 ##### 1130#       发表于 2016-3-4 17:58
 
 
-
-
 是不是挂赌场验证码出来了
 没留意让浏览器刷新几次就很大几率被ban
 昨天挂着赌场忘了，好方
-
-
-
-
-
 
 
 -----
@@ -21116,17 +13852,10 @@ CG这一路过来都会复刻的，毕竟版权在自己手上，对拉新人入
 ##### 1131#       发表于 2016-3-4 18:53
 
 
-
-
 好像没美嘉姐...<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
 
 
 UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
-
-
-
-
-
 
 
 -----
@@ -21135,21 +13864,13 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 ##### 1132#       发表于 2016-3-4 20:29
 
 
-
-
 看剪影，为什么不猜是光UK<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  剑布衣  
 ##### 1133#       发表于 2016-3-4 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31736502&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-4 17:13</a>
@@ -21161,25 +13882,13 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 最近好像開了12団了，你可以先進群里問問
 
 
-
-
-
-
-
 -----
 
 ####  妹控使徒  
 ##### 1134#       发表于 2016-3-5 16:31
 
 
-
-
 复刻的几个角色要拿似乎要玩cg 问下具体要玩到什么程度？
-
-
-
-
-
 
 
 -----
@@ -21188,14 +13897,7 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 ##### 1135#       发表于 2016-3-5 16:31
 
 
-
-
 复刻的几个角色要拿似乎要玩cg 问下具体要玩到什么程度？
-
-
-
-
-
 
 
 -----
@@ -21204,23 +13906,16 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 ##### 1136#       发表于 2016-3-5 18:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31744143&amp;ptid=1158205" target="_blank">妹控使徒 发表于 2016-3-5 16:31</a>
 
 复刻的几个角色要拿似乎要玩cg 问下具体要玩到什么程度？</blockquote>
 这次毕竟不是完全的妇科，还不清楚条件是不是一样，感觉不外乎是等级到xx，完成第x张拼图这种比较简单的，实际可能也就几小时，不玩cg的话不如等开了再搞
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1137#       发表于 2016-3-6 00:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31744144&amp;ptid=1158205" target="_blank">妹控使徒 发表于 2016-3-5 16:31</a>
@@ -21231,16 +13926,10 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 如楼上说这次妇科不完整，所以可以练到20看看情况，反正也不难的
 
 
-
-
-
-
-
 -----
 
 ####  缎带  
 ##### 1138#       发表于 2016-3-6 01:51
-
 
 
  本帖最后由 缎带 于 2016-3-6 02:14 编辑 
@@ -21257,22 +13946,10 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 70天留念，没路没巴杂开局光暗还是能玩的
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1139#       发表于 2016-3-6 02:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31747863&amp;ptid=1158205" target="_blank">缎带 发表于 2016-3-6 01:51</a>
@@ -21281,16 +13958,10 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 <img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">十天众70天以内确实是能做出来，但是是怎么有限定泳装的
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1140#       发表于 2016-3-6 05:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31737930&amp;ptid=1158205" target="_blank">vazoe 发表于 2016-3-4 21:29</a>
@@ -21299,16 +13970,10 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 上次是暗了 这次感觉不会是光了吧....当然cy如果大方的话最好w
 
 
-
-
-
-
-
 -----
 
 ####  缎带  
 ##### 1141#       发表于 2016-3-6 07:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31748032&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-6 02:52</a>
@@ -21317,16 +13982,10 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 60块买的bili+泳装初始
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 1142#       发表于 2016-3-6 13:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31747863&amp;ptid=1158205" target="_blank">缎带 发表于 2016-3-6 01:51</a>
@@ -21337,32 +13996,19 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 一次古战7九界,光剑居然没满突也真是...
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1143#       发表于 2016-3-6 13:28
 
 
-
-
 不是很懂你们2个月天人<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  缎带  
 ##### 1144#       发表于 2016-3-6 14:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31750726&amp;ptid=1158205" target="_blank">submarine406 发表于 2016-3-6 13:18</a>
@@ -21373,24 +14019,13 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 脸黑，第八箱抽了80%没出
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 1145#       发表于 2016-3-6 22:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">玩的不是一个游戏系列
-
-
-
-
-
 
 
 -----
@@ -21399,17 +14034,10 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 ##### 1146#       发表于 2016-3-7 01:15
 
 
-
-
 不是很懂你们萌新。。
 
 
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -21418,14 +14046,7 @@ UK是新UK还是复课呢 嘛 火风土随便给一个就行了...
 ##### 1147#       发表于 2016-3-7 11:22
 
 
-
-
 为了爱马仕联动入了坑，刚拿完偶像召唤石和那个SSR风剑，这游戏是不是不课就完全没法玩？现在打到13章已经感觉很吃力了
-
-
-
-
-
 
 
 -----
@@ -21443,27 +14064,15 @@ dui
 不肝没法玩，肝无课全R队吊打只课不肝的全SSR队
 
 
-
-
-
-
-
 -----
 
 ####  zzy4987  
 ##### 1149#       发表于 2016-3-7 11:36
 
 
-
-
 新手超得和两周年超得什么关系？
 
 前一礼拜入坑的时候迷迷糊糊超得了一次，傻傻分不清楚（
-
-
-
-
-
 
 
 -----
@@ -21472,14 +14081,7 @@ dui
 ##### 1150#       发表于 2016-3-7 11:59
 
 
-
-
 完全不课的表示主线打芬里尔第二次的时候才感觉不吃一个春药完全没法打下去，前面都挺简单的<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21488,21 +14090,13 @@ dui
 ##### 1151#       发表于 2016-3-7 12:16
 
 
-
-
 反正只要老老实实打活动，药会有很多，该用就用。另外，虽然会很慢，但以水队来说，只要你早入坑，免费的沢城、凛和川岛的组合可是很强的。
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1152#       发表于 2016-3-7 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31758735&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-7 11:22</a>
@@ -21513,16 +14107,10 @@ dui
 然后要做的是把手上的SSR SR之流练满，堆堆属性，然后打点素材把手上的人物破一次开个3技之类的
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1153#       发表于 2016-3-7 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31758884&amp;ptid=1158205" target="_blank">zzy4987 发表于 2016-3-7 11:36</a>
@@ -21539,16 +14127,10 @@ dui
 普通的超得就是能选超得期间所有的东西（除了几个召唤）,这个看CY心情出不出
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 1154#       发表于 2016-3-7 13:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31758735&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-7 11:22</a>
@@ -21559,32 +14141,19 @@ dui
 不课前期累一点，课前期简单一点，不肝除非重氪+脸帝否则没法玩，肝+有爱的话怎么样都能玩
 
 
-
-
-
-
-
 -----
 
 ####  Benighted  
 ##### 1155#       发表于 2016-3-7 18:39
 
 
-
-
 没有在日亲友的话去淘宝上买手机认证靠谱不？有没有因此被盗号的？
-
-
-
-
-
 
 
 -----
 
 ####  zzy4987  
 ##### 1156#       发表于 2016-3-7 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31759410&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-7 12:28</a>
@@ -21595,17 +14164,10 @@ dui
 十分感谢~ 
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1157#       发表于 2016-3-8 08:10
-
-
 
 
 手机认证目前基本没听过盗号，自己看着办吧。
@@ -21614,25 +14176,13 @@ dui
 快结束啊，这次五花肉拿了偶像我就停手了，总贡献才30w多点。。。
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 1158#       发表于 2016-3-8 11:53
 
 
-
-
 第三箱还剩15%左右终于把剑抽出来了，战货只剩180，好险<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21641,15 +14191,8 @@ dui
 ##### 1159#       发表于 2016-3-8 12:11
 
 
-
-
 6%抽了十单，一页ssr都不够，还连一个暗角**没有，今天90抽出了斑比
 非洲人玩卡牌游戏好惨
-
-
-
-
-
 
 
 -----
@@ -21658,23 +14201,16 @@ dui
 ##### 1160#       发表于 2016-3-8 12:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31759379&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-7 12:24</a>
 
 通常刚入坑的来说第一个活动都建议放弃，能弄出召唤和当期SSR武器已经很厉害了，这次召唤也很简单，出来 ...</blockquote>
 我现在就暂停打主线去打进化材料么，另外听说爱马仕联动需要去玩那个页游？不是玩CGSS？
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1161#       发表于 2016-3-8 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31769266&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-8 12:49</a>
@@ -21693,25 +14229,13 @@ dui
 GBF里能拿到GACHA券，宝晶石，大红等
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 1162#       发表于 2016-3-8 20:56
 
 
-
-
 怎麼這麼搞笑，這期fami通一出，CY這一下子又被批判，不要又炎上了wwwwwwwwwwwww
-
-
-
-
-
 
 
 -----
@@ -21720,14 +14244,7 @@ GBF里能拿到GACHA券，宝晶石，大红等
 ##### 1163#       发表于 2016-3-8 22:56
 
 
-
-
 早就想到路霸杂交换要很多，想不到要这么多<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">，而且那些100一把的神兵是啥回事，拿到手可以秒天秒地了么
-
-
-
-
-
 
 
 -----
@@ -21736,21 +14253,13 @@ GBF里能拿到GACHA券，宝晶石，大红等
 ##### 1164#       发表于 2016-3-9 00:57
 
 
-
-
 对了，有没有老玩家说说这次炎上什么东西，严重到连与灰姑娘合作的图案也消失了。
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1165#       发表于 2016-3-9 03:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31775437&amp;ptid=1158205" target="_blank">rxrx 发表于 2016-3-9 00:57</a>
@@ -21761,16 +14270,10 @@ GBF里能拿到GACHA券，宝晶石，大红等
 灰姑娘合作的图哪里消失了，游戏里官网里还有杂志图里都有
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 1166#       发表于 2016-3-9 09:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31775896&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-9 03:16</a>
@@ -21781,25 +14284,13 @@ GBF里能拿到GACHA券，宝晶石，大红等
 昨天晚上游戏内消失，今天又变回来了。我个人认为除了风牛妹外其他角色也真的是强化，恶劣的是日本玩家口中的课金天井吧。
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1167#       发表于 2016-3-9 10:20
 
 
-
-
 杂还换了个立绘站一堆人物中，我觉得hrt朝作死的道路一路狂奔
-
-
-
-
-
 
 
 -----
@@ -21808,14 +14299,7 @@ GBF里能拿到GACHA券，宝晶石，大红等
 ##### 1168#       发表于 2016-3-9 12:18
 
 
-
-
 听说这次联动活动要那个页游到50级<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">超无聊的，能换成CGSS么
-
-
-
-
-
 
 
 -----
@@ -21824,21 +14308,13 @@ GBF里能拿到GACHA券，宝晶石，大红等
 ##### 1169#       发表于 2016-3-9 12:21
 
 
-
-
 还好玩页游的的是卵用，我凛只要信赖度，一本满足了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1170#       发表于 2016-3-9 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31776939&amp;ptid=1158205" target="_blank">rxrx 发表于 2016-3-9 09:37</a>
@@ -21851,16 +14327,10 @@ BANNER定时失踪很正常的（
 然而那杂志图下面写了这数字只是暂定的，后来会修改，可能是放出来看下你们的反应如何？
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 1171#       发表于 2016-3-9 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31778509&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-9 12:21</a>
@@ -21869,16 +14339,10 @@ BANNER定时失踪很正常的（
 如果你玩光奥义队，卯月可不是卵用，能跟稳定地跟得上村姑和绿川可是很赞，到现在我还在用。
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1172#       发表于 2016-3-9 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31778509&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-9 12:21</a>
@@ -21889,17 +14353,10 @@ BANNER定时失踪很正常的（
 顺带一提幸子也是要玩CG，而且要求会更高
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1173#       发表于 2016-3-9 17:36
-
-
 
 
 不花时间还是可以搞一搞，我对那个页游没啥概念啊，入坑一个月来都是只登不玩<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
@@ -21908,16 +14365,10 @@ BANNER定时失踪很正常的（
 隔壁的神击和荣耀骑士试了下都不好玩<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  天天座理世  
 ##### 1174#       发表于 2016-3-9 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31781688&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-9 17:08</a>
@@ -21928,16 +14379,10 @@ BANNER定时失踪很正常的（
 幸子是道具交换，爱梨是玩cg吧
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 1175#       发表于 2016-3-9 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31781641&amp;ptid=1158205" target="_blank">rxrx 发表于 2016-3-9 17:05</a>
@@ -21950,27 +14395,16 @@ BANNER定时失踪很正常的（
 cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1176#       发表于 2016-3-9 20:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31782153&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-3-9 17:57</a>
 
 幸子是道具交换，爱梨是玩cg吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/37.gif" referrerpolicy="no-referrer">记反了
-
-
-
-
-
 
 
 -----
@@ -21979,16 +14413,10 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1177#       发表于 2016-3-9 20:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31782153&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-3-9 17:57</a>
 
 幸子是道具交换，爱梨是玩cg吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/37.gif" referrerpolicy="no-referrer">记反了
-
-
-
-
-
 
 
 -----
@@ -21997,14 +14425,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1178#       发表于 2016-3-10 00:14
 
 
-
-
 看訪談的意思，英雄武器解鎖新職業，無論任何武器最後要單挑的都是同一人的樣子，加上最近CY推大公（漫畫志上封底了，目前上過的是主線新角色，當期活動相關，當期終凸角色相關，簡而言之就是當期CY推的角色），我估計是要和大公單挑？
-
-
-
-
-
 
 
 -----
@@ -22013,14 +14434,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1179#       发表于 2016-3-10 01:16
 
 
-
-
 我是希望杂那张新立绘是对战前的对话用的啦，毕竟真做成人物杂的设定简直比其他人超出一个层次，不做成LG说不过去的程度，还不想GBF这么快进入LG的时代<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22029,16 +14443,10 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1180#       发表于 2016-3-10 07:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31785449&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-3-10 01:16</a>
 
 我是希望杂那张新立绘是对战前的对话用的啦，毕竟真做成人物杂的设定简直比其他人超出一个层次，不做成LG说 ...</blockquote>
 一个星晶兽而已，船上不稀奇
-
-
-
-
-
 
 
 -----
@@ -22047,17 +14455,10 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1181#       发表于 2016-3-10 08:24
 
 
-
-
 你们是不是忘记拉卡姆的基友都是星兽。。。还有4格鲁利亚随身携带的撒旦，上船不是问题了。。。
 
 
 但是杂入队。。。强度如何定位就很难说
-
-
-
-
-
 
 
 -----
@@ -22066,14 +14467,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1182#       发表于 2016-3-10 08:55
 
 
-
-
 新活动想的下体角色在偶像联动里ORZ<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22082,14 +14476,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1183#       发表于 2016-3-10 08:57
 
 
-
-
 不是普通的星精啊，世界有人破坏平衡時杂就会现身，明显世界防御意志级别的存在了，bba,洛亚一下子变成土包子lowb逼
-
-
-
-
-
 
 
 -----
@@ -22098,16 +14485,9 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1184#       发表于 2016-3-10 10:58
 
 
-
-
 当初的朝日“你cy坏cy骗钱你cy就是不好我要写报告告发你”
 
 现在的朝日“cy爸比好cy爸比赞cy爸比朝日酱给你上最大规模的广告啦cy爸比再多拿点零花钱嘛~”
-
-
-
-
-
 
 
 -----
@@ -22116,16 +14496,10 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1185#       发表于 2016-3-10 11:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31786434&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-3-10 08:57</a>
 
 不是普通的星精啊，世界有人破坏平衡時杂就会现身，明显世界防御意志级别的存在了，bba,洛亚一下子变成土包 ...</blockquote>
 还不是全都被星之民玩到腻后扔弃的玩具。
-
-
-
-
-
 
 
 -----
@@ -22134,14 +14508,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1186#       发表于 2016-3-10 11:26
 
 
-
-
 担心的是属于贵族人物，出一次就会出第二次
-
-
-
-
-
 
 
 -----
@@ -22150,13 +14517,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1187#       发表于 2016-3-10 12:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/20.gif" referrerpolicy="no-referrer">如果杂人物是杂终破的时候附送那就233了
-
-
-
-
-
 
 
 -----
@@ -22165,22 +14526,13 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1188#       发表于 2016-3-10 12:45
 
 
-
-
 如果人物也是150换，终破送反而有良心了
-
-
-
-
-
 
 
 -----
 
 ####  小君  
 ##### 1189#       发表于 2016-3-10 15:14
-
-
 
 
 1超2必4皮肤
@@ -22197,29 +14549,13 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 2016-3-10 15:14 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 1190#       发表于 2016-3-10 16:01
 
 
-
-
 重氪玩家新福利，發送音樂會招待卷了，CY這一手666666666
-
-
-
-
-
 
 
 -----
@@ -22228,14 +14564,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1191#       发表于 2016-3-10 16:24
 
 
-
-
 既然没有提到，那是不是可以认为SSR藤原大叔亦可透过超得换取？
-
-
-
-
-
 
 
 -----
@@ -22246,21 +14575,13 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  rxrx  
 ##### 1193#       发表于 2016-3-10 16:44
 
 
-
-
 之前没有会说明，这次只是说不会出XXX类型的召唤石。
-
-
-
-
-
 
 
 -----
@@ -22269,14 +14590,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1194#       发表于 2016-3-10 17:28
 
 
-
-
 今天整了个网页版的玩装好了打开发现没有声音，设置里都开了，背景bgm语音的什么都没有，但是战斗里时不时会飙出一两句语音是怎么回事？
-
-
-
-
-
 
 
 -----
@@ -22285,17 +14599,10 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1195#       发表于 2016-3-10 17:38
 
 
-
-
 头一次打算课这个的金，结果这课金额度就是不给整数……太狠毒了吧
 
 
 另外这个必得是买了之后必须在这期间抽么？过后会消失？感觉自己一向脸黑想留到那个6%UP再抽
-
-
-
-
-
 
 
 -----
@@ -22304,14 +14611,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1196#       发表于 2016-3-10 17:50
 
 
-
-
 对于只课超的来说御印基本攒不到300,不知道御印变辉石会不会降档次...
-
-
-
-
-
 
 
 -----
@@ -22320,14 +14620,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1197#       发表于 2016-3-10 18:07
 
 
-
-
 500w以下都是微氪金
-
-
-
-
-
 
 
 -----
@@ -22338,21 +14631,13 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黄昏的祈祷  
 ##### 1199#       发表于 2016-3-10 19:01
 
 
-
-
 天啊这是什么游戏？
-
-
-
-
-
 
 
 -----
@@ -22361,14 +14646,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1200#       发表于 2016-3-10 19:03
 
 
-
-
 ……直接吓愣了，这tm是贵族游戏吧
-
-
-
-
-
 
 
 -----
@@ -22379,23 +14657,15 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  屈江鸟  
 ##### 1202#       发表于 2016-3-10 19:19
 
 
-
-
 淦，必得给了个アンリエット 
 
 现在风队三个SSR，鸟人超得的，然后唯二的废角大奶和安莉都通过必得给我了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22404,14 +14674,7 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1203#       发表于 2016-3-10 19:20
 
 
-
-
 这 金 银 铜，兑换比 简直就象lenegd不出R一样<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22422,23 +14685,15 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  submarine406  
 ##### 1205#       发表于 2016-3-10 19:48
 
 
-
-
 辉石果然是1月那次+1的试水产物...
 
 不过用于做十天时补书似乎不错的样子...
-
-
-
-
-
 
 
 -----
@@ -22447,21 +14702,13 @@ cg众追伤异属,基础奥义倍率又低,奥义队真不太合适...
 ##### 1206#       发表于 2016-3-10 20:47
 
 
-
-
 hrt真是大爷呢，恶即斩么，我不侍候你大爷了
-
-
-
-
-
 
 
 -----
 
 ####  剑布衣  
 ##### 1207#       发表于 2016-3-10 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31792260&amp;ptid=1158205" target="_blank">屈江鸟 发表于 2016-3-10 19:19</a>
@@ -22472,16 +14719,10 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了
 誰跟你說風琴弱了，不要別人說什麼就信。自己去試過才知道，風琴在有7和後備撕逼的狀況下取代鳥人進隊伍完全沒問題，前期單刷土婊也是好用的不行
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 1208#       发表于 2016-3-10 21:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31792962&amp;ptid=1158205" target="_blank">cowgp01 发表于 2016-3-10 20:47</a>
@@ -22490,25 +14731,13 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 不是有公告说是moon给错后暂封,等回收后解封么...
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1209#       发表于 2016-3-10 22:04
 
 
-
-
 不说了，退坑，我还是最开始玩那批人呢，傻逼CY
-
-
-
-
-
 
 
 -----
@@ -22517,16 +14746,9 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 ##### 1210#       发表于 2016-3-10 22:26
 
 
-
-
 呵呵CY真是大爷啊
 
 老子花钱玩不是为了伺候你 傻逼
-
-
-
-
-
 
 
 -----
@@ -22535,14 +14757,7 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 ##### 1211#       发表于 2016-3-10 22:43
 
 
-
-
 要看CYD有不是只有GBF一个游戏，尼尔2之类的不也是，要听植松也有大把地方，为何我还要玩这傻逼游戏
-
-
-
-
-
 
 
 -----
@@ -22551,16 +14766,10 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 ##### 1212#       发表于 2016-3-10 23:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">不会弃坑，但是绝不会再氪，感情劳资花钱买回来的东西你说拿走就拿走？
 
 
 ----发送自 [Sony D5503,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -22569,20 +14778,13 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 ##### 1213#       发表于 2016-3-11 00:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">必得中了个牛爹，火队算是搞定了，超得玩什么队好呢
-
-
-
-
-
 
 
 -----
 
 ####  屈江鸟  
 ##### 1214#       发表于 2016-3-11 01:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31793048&amp;ptid=1158205" target="_blank">剑布衣 发表于 2016-3-10 20:59</a>
@@ -22593,29 +14795,16 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 不过现在SSR方阵平铺都还没铺满呢，大奶也好风琴也好都得上
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1215#       发表于 2016-3-11 08:38
 
 
-
-
 这次我们团死了一半，我原本想回家氪金1w日元直接超得+2必得的，还好加班直接吞回去了
 
 
-
 关键是，这样搞，只要你犯过错，我啥都可以收回，就算你氪金出的路霸杂一样回收，你还敢氪金玩么
-
-
-
-
-
 
 
 -----
@@ -22624,21 +14813,13 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 ##### 1216#       发表于 2016-3-11 08:54
 
 
-
-
 说这么多没用，有被回收moon的玩家发起签名抗议咩？有算我一个
-
-
-
-
-
 
 
 -----
 
 ####  gyfsgm  
 ##### 1217#       发表于 2016-3-11 12:14
-
 
 
  本帖最后由 gyfsgm 于 2016-3-11 12:27 编辑 
@@ -22648,16 +14829,10 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 看了下帖吧，被封的都是600W刷招待的，我是600W后进来的 不知道当时啥情况，听说拿回月亮就会放出来。
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1218#       发表于 2016-3-11 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31797725&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-3-11 12:14</a>
@@ -22672,16 +14847,10 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 结果手抖又发了，然后又收回来，逗你玩儿
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1219#       发表于 2016-3-11 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31792401&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-3-10 20:37</a>
@@ -22692,33 +14861,19 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 什么情况 可以具体说一下吗？
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1220#       发表于 2016-3-11 15:09
 
 
-
-
 然后有dalao团过了HL巴哈了吗？....(越来越有种wow的感觉了)
-
-
-
-
-
 
 
 -----
 
 ####  gyfsgm  
 ##### 1221#       发表于 2016-3-11 15:25
-
-
 
 
 刚才台湾看到这个
@@ -22734,18 +14889,12 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 这真的假的？？
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 1222#       发表于 2016-3-11 15:54
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -22756,12 +14905,10 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gyfsgm  
 ##### 1224#       发表于 2016-3-11 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31799864&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-3-11 15:54</a>
@@ -22770,25 +14917,13 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 求属性样子图！！
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 1225#       发表于 2016-3-11 18:04
 
 
-
-
 大意了，居然要求39級這麼高，雖說之前的40級能拿完全部獎勵
-
-
-
-
-
 
 
 -----
@@ -22797,14 +14932,7 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 ##### 1226#       发表于 2016-3-11 18:45
 
 
-
-
 页游玩到40级要多久啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22815,21 +14943,13 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  RP城的老B样  
 ##### 1228#       发表于 2016-3-12 00:19
 
 
-
-
 喷了，这个黑色的皮喵居然是武内P，太有病了
-
-
-
-
-
 
 
 -----
@@ -22838,14 +14958,7 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 ##### 1229#       发表于 2016-3-12 00:49
 
 
-
-
 天啊，幸子有个道具只能打maniac难度？我连黑色那只的extreme都打不过啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22854,16 +14967,9 @@ hrt真是大爷呢，恶即斩么，我不侍候你大爷了</blockquote>
 ##### 1230#       发表于 2016-3-12 02:56
 
 
-
-
 VH道中会出宝箱怪，那个会掉幸子需要的道具的
 
 可能的话借个好友的稀有怪出现率上升石。
-
-
-
-
-
 
 
 -----
@@ -22872,14 +14978,7 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1231#       发表于 2016-3-12 11:52
 
 
-
-
 没碰过联动的cg，升到40算容易还是难？活动期内能达到么？
-
-
-
-
-
 
 
 -----
@@ -22888,16 +14987,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1232#       发表于 2016-3-12 12:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31806022&amp;ptid=1158205" target="_blank">屈江鸟 发表于 2016-3-12 11:52</a>
 
 没碰过联动的cg，升到40算容易还是难？活动期内能达到么？</blockquote>
 容易，升级全都加行动力就行
-
-
-
-
-
 
 
 -----
@@ -22906,23 +14999,15 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1233#       发表于 2016-3-12 12:37
 
 
-
-
 为什么我都十五级了，外面那个LV6的奖励还是拿不到……里面的倒是领到了
 
 难道是因为不懂日语的错玩错游戏了……？
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1234#       发表于 2016-3-12 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31806388&amp;ptid=1158205" target="_blank">pzk 发表于 2016-3-12 12:37</a>
@@ -22937,32 +15022,19 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 主页最上方第二个有个叫ぶちデレラ的，那个挂着训练练到6级就可以
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1235#       发表于 2016-3-12 12:49
 
 
-
-
 卵用已经拿到了，冲刺爱莉中。幸子只能随缘了。。。。。
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1236#       发表于 2016-3-12 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31806476&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-12 12:48</a>
@@ -22975,26 +15047,15 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">多谢
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 1237#       发表于 2016-3-12 14:58
 
 
-
 <blockquote>露娜玛利亚 发表于 2016-3-12 12:10
 容易，升级全都加行动力就行</blockquote>
 开玩了，升了几级，去哪点啊...找不到
-
-
-
-
-
 
 
 -----
@@ -23003,16 +15064,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1238#       发表于 2016-3-12 15:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31807515&amp;ptid=1158205" target="_blank">屈江鸟 发表于 2016-3-12 14:58</a>
 
 开玩了，升了几级，去哪点啊...找不到</blockquote>
 你到主界面看你的等级，边上那个圈就是你的点数，点一下就能进去点了，记得第二次确认的时候把勾打上
-
-
-
-
-
 
 
 -----
@@ -23021,14 +15076,7 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1239#       发表于 2016-3-12 16:31
 
 
-
-
 之前时不时登录攒石头抽着玩没正经打过，现在各属性自动编成战力在19000～20000之间，活动结束前有没有拿到幸子的可能，可能性低的话就不浪费那个时间了
-
-
-
-
-
 
 
 -----
@@ -23037,15 +15085,9 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1240#       发表于 2016-3-12 16:32
 
 
-
 <blockquote>露娜玛利亚 发表于 2016-3-12 15:26
 你到主界面看你的等级，边上那个圈就是你的点数，点一下就能进去点了，记得第二次确认的时候把勾打上 ...</blockquote>
 哦哦哦，找到了，谢谢
-
-
-
-
-
 
 
 -----
@@ -23054,14 +15096,7 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1241#       发表于 2016-3-12 18:30
 
 
-
-
 召唤石抽的时候看到两个彩还兴奋了一把，结果又特么给了个サラ<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">召唤石抽到的是傻蛋，我现在是不是直接走土队比较好了？群里人让我超得换了个卡里奥斯特罗。
-
-
-
-
-
 
 
 -----
@@ -23070,14 +15105,7 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1242#       发表于 2016-3-12 19:31
 
 
-
-
 150只黑猫了一把斧子没滚，这UK掉落有前置条件吗？
-
-
-
-
-
 
 
 -----
@@ -23086,14 +15114,7 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1243#       发表于 2016-3-12 20:49
 
 
-
-
 幸子的五角星只有黑猫图里的箱子才掉吗 
-
-
-
-
-
 
 
 -----
@@ -23104,7 +15125,6 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  路德维嘉  
@@ -23113,21 +15133,13 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cowgp01  
 ##### 1246#       发表于 2016-3-12 21:01
 
 
-
-
 这杂的BGM还真像妖星乱舞<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23136,22 +15148,13 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1247#       发表于 2016-3-13 04:45
 
 
-
-
 本來以為巴武4破起碼1、2個月後的事情，結果一晚上就刷出來5角了，還在yy這個要怎麼組隊的時候，卻聽說巴武之間還是能疊....CY...說好的克服種族歧視呢....<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Niu  
 ##### 1248#       发表于 2016-3-13 05:25
-
-
 
 
 巴武最終進化能同時支持兩種種族 調整的好可以混入不少種族
@@ -23162,16 +15165,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 為了我的人類矮人並存的水隊我在拼命刷材料製作銃啊
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1249#       发表于 2016-3-13 05:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31809165&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-12 18:30</a>
@@ -23186,17 +15183,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 跟莎拉，土占卜是土队长期战的铁三角
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1250#       发表于 2016-3-13 08:21
-
-
 
 
 占卜地位堪忧啊喂
@@ -23211,17 +15201,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 主要看脸，连打几十把总会滚的
 
 
-
-
-
-
-
 -----
 
 ####  褪色的雪花  
 ##### 1251#       发表于 2016-3-13 12:08
-
-
 
 
 快改吧 这黑猫我刚入坑没多久完全是靠水老头打
@@ -23230,32 +15213,19 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ----发送自 [HUAWEI PE-TL10,Android 6.0](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1252#       发表于 2016-3-13 13:04
 
 
-
-
 进活动页面老是重播一个剧情是什么情况？
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 1253#       发表于 2016-3-13 13:58
-
 
 
  本帖最后由 kitagawa 于 2016-3-13 15:02 编辑 
@@ -23267,16 +15237,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 在おっさん、阿米拉、凯萨琳、莉莉之间苦思了2天...最后选了火属美黛拉(哈？.... 这样下个四象我就能组成狐耳火队了
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1254#       发表于 2016-3-13 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31814432&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-13 13:04</a>
@@ -23285,17 +15249,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 同样遇到这个问题= =
 
 
-
-
-
-
-
 -----
 
 ####  琴酒  
 ##### 1255#       发表于 2016-3-13 14:03
-
-
 
 
 应该是bug cy懒得修 MD
@@ -23303,16 +15260,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 120+黑猫EX 就掉了1把UK 
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1256#       发表于 2016-3-13 14:07
-
 
 
  本帖最后由 pzk 于 2016-3-13 14:09 编辑 
@@ -23326,25 +15277,13 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 算是什么水平，怎么感觉有点坑坑的……
 
 
-
-
-
-
-
 -----
 
 ####  RP城的老B样  
 ##### 1257#       发表于 2016-3-13 14:09
 
 
-
-
 打武内P喵的最低要求至少是多少？去试了一次，根本没法打……我才3000出头的血量，对面绿皮喵打我一下被克属性都是上千
-
-
-
-
-
 
 
 -----
@@ -23353,14 +15292,7 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1258#       发表于 2016-3-13 14:17
 
 
-
-
 这HL巴哈，要么是5属宇宙人，要不就是逼你现在肝光队。
-
-
-
-
-
 
 
 -----
@@ -23369,16 +15301,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1259#       发表于 2016-3-13 14:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31814944&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-13 14:09</a>
 
 打武内P喵的最低要求至少是多少？去试了一次，根本没法打……我才3000出头的血量，对面绿皮喵打我一下被克 ...</blockquote>
 我30000出头战力全土队过不了ex但是打veryhard还是挺轻松的
-
-
-
-
-
 
 
 -----
@@ -23387,16 +15313,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1260#       发表于 2016-3-13 14:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31815178&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-13 14:40</a>
 
 我30000出头战力全土队过不了ex但是打veryhard还是挺轻松的</blockquote>
 我32000火队都能打，换几个姿势试试
-
-
-
-
-
 
 
 -----
@@ -23405,15 +15325,9 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1261#       发表于 2016-3-13 15:14
 
 
-
 <blockquote>露娜玛利亚 发表于 2016-3-13 14:55
 我32000火队都能打，换几个姿势试试</blockquote>
 被前面两拨小怪虐出翔，第二波有只根本打不出伤害ex武内喵还没见到就滚蛋了
-
-
-
-
-
 
 
 -----
@@ -23424,22 +15338,15 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Siegfried82  
 ##### 1263#       发表于 2016-3-13 15:57
 
 
-
 <blockquote>路德维嘉 发表于 2016-3-13 15:18
 金猫请用无视防御的伤害类型打，比如召唤，比如无属性伤害，否则你十万战力也是挠痒痒 ...</blockquote>
 因为打史莱姆是1，打金猫是几百我就没想到是无属性，回头再去试试
-
-
-
-
-
 
 
 -----
@@ -23450,22 +15357,15 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kitagawa  
 ##### 1265#       发表于 2016-3-13 16:10
 
 
-
  本帖最后由 kitagawa 于 2016-3-13 18:03 编辑 
 
 滚完了 果然还得是碉堡7才有机会滚 碉堡6没见过出货的
-
-
-
-
-
 
 
 -----
@@ -23474,21 +15374,13 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1266#       发表于 2016-3-13 16:33
 
 
-
-
 四十只武内皮把斧子滚了，再换第三把就能刷真扎去了
-
-
-
-
-
 
 
 -----
 
 ####  褪色的雪花  
 ##### 1267#       发表于 2016-3-13 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31814905&amp;ptid=1158205" target="_blank">琴酒 发表于 2016-3-13 14:03</a>
@@ -23499,25 +15391,13 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 目测上掉宝buff能有效提高出货率 我10把ex出了俩
 
 
-
-
-
-
-
 -----
 
 ####  琴酒  
 ##### 1268#       发表于 2016-3-13 17:58
 
 
-
-
 点了弱体了 掉宝上到5 之后就很难上了 一直miss XD
-
-
-
-
-
 
 
 -----
@@ -23526,21 +15406,13 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 ##### 1269#       发表于 2016-3-13 19:22
 
 
-
-
 掉宝？小号0掉宝20体3滚，大号5层以上92体2滚
-
-
-
-
-
 
 
 -----
 
 ####  RP城的老B样  
 ##### 1270#       发表于 2016-3-13 21:52
-
 
 
  本帖最后由 RP城的老B样 于 2016-3-13 21:53 编辑 
@@ -23551,16 +15423,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 另外活动提到15号还会加新本，是多人合作本么？
 
 
-
-
-
-
-
 -----
 
 ####  fornoby  
 ##### 1271#       发表于 2016-3-13 23:56
-
 
 
  本帖最后由 fornoby 于 2016-3-14 00:10 编辑 
@@ -23570,17 +15436,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 回复完这条下一把EX就滚UK了，流石你坛
 
 
-
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 1272#       发表于 2016-3-14 00:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31818698&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-13 21:52</a>
@@ -23589,16 +15448,10 @@ VH道中会出宝箱怪，那个会掉幸子需要的道具的
 VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还是不要去刷，那个箱子比BOSS还恶心
 
 
-
-
-
-
-
 -----
 
 ####  RP城的老B样  
 ##### 1273#       发表于 2016-3-14 00:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31819944&amp;ptid=1158205" target="_blank">露娜玛利亚 发表于 2016-3-14 00:27</a>
@@ -23607,17 +15460,10 @@ VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还�
 我战力才1w6不到，サラ和カリオストロ都没升等级上限，还在猛刷爱马仕页游等着爱梨加入才勉强有可能用土系打得过……现在都是用大公好友在刷，没有就直接去赌场打牌了
 
 
-
-
-
-
-
 -----
 
 ####  剑布衣  
 ##### 1274#       发表于 2016-3-14 01:11
-
-
 
 
 媽呀，終於4把畢業了，雖然現在藥不值錢，但是用著也心疼<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
@@ -23626,26 +15472,14 @@ VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还�
 不過這算是我打過的UK裡面掉率最高的了，刷了就有掉，還只掉一種，趕緊刷4把，等雜升到200就可以玩新玩具了<img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  LMBS  
 ##### 1275#       发表于 2016-3-14 01:39
 
 
-
-
 兰子的两个召唤是不是都没有掉落
 只能靠交换和使用次数的称号获得
-
-
-
-
-
 
 
 -----
@@ -23654,22 +15488,15 @@ VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还�
 ##### 1276#       发表于 2016-3-14 02:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/dym/149.gif" referrerpolicy="no-referrer">2W的土队打最低难度的武内P都要复活一次
 
 是不是基本告别幸子了
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1277#       发表于 2016-3-14 02:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31820250&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-3-14 01:39</a>
@@ -23683,16 +15510,10 @@ VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还�
 第二个兰子则是只能用使用次数来弄
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1278#       发表于 2016-3-14 05:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31820250&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-3-14 01:39</a>
@@ -23703,17 +15524,10 @@ VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还�
 顺带一提到奸商的页面-道具交换-活动，找到CG1的页面后，可以用从0开始的价格换到兰子的召唤
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1279#       发表于 2016-3-14 08:19
-
-
 
 
 兰子已经满破，属性蛮好的
@@ -23722,17 +15536,10 @@ VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还�
 武内猫都会有机会出宝箱吧，但是ex出的掉星星可能多点
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1280#       发表于 2016-3-14 08:25
-
-
 
 
 兰子掉的，应该是绿猫
@@ -23740,16 +15547,10 @@ VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还�
 群里很多人有掉落报告
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1281#       发表于 2016-3-14 09:02
-
 
 
  本帖最后由 kitagawa 于 2016-3-14 10:04 编辑 
@@ -23761,28 +15562,16 @@ VH白送的啊，道中箱子也好打的多，EX你勉强能打的话最好还�
 EX确定掉落PS 我说的是黑猫
 
 
-
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 1282#       发表于 2016-3-14 10:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31815178&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-13 14:40</a>
 
 我30000出头战力全土队过不了ex但是打veryhard还是挺轻松的</blockquote>
 ....我3W1的土队过不了EX，但是3W3的风队随便过....主要靠黑剑扣珠和高云硬抗一轮。不知道为什么
-
-
-
-
-
 
 
 -----
@@ -23793,13 +15582,10 @@ EX确定掉落PS 我说的是黑猫
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  d.adam  
 ##### 1284#       发表于 2016-3-14 10:46
-
-
 
 
 武器技能lv很关键，平铺属性武器也是，这么说吧
@@ -23810,16 +15596,10 @@ EX确定掉落PS 我说的是黑猫
 而且你忘记特殊行动，一般都是灭在特殊，然则高文有盾墙，难度就下降的，土盾墙不多，有没有sara根本就是两个世界，最强的bi之幼女，没有人可以贯穿那一层！
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 1285#       发表于 2016-3-14 11:45
-
 
 
  本帖最后由 上坂莲华 于 2016-3-14 11:46 编辑 
@@ -23831,25 +15611,13 @@ EX确定掉落PS 我说的是黑猫
 第二个好像没有掉落，第一个打30AP的绿猫，很快你就能凑一堆，群里还有过打底下那个带卵用凛未央出货的宇宙人
 
 
-
-
-
-
-
 -----
 
 ####  vazoe  
 ##### 1286#       发表于 2016-3-14 12:46
 
 
-
-
 今天，有比请假条exp还高的玩意吗<img src="https://static.saraba1st.com/image/smiley/face/44.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23858,15 +15626,9 @@ EX确定掉落PS 我说的是黑猫
 ##### 1287#       发表于 2016-3-14 13:04
 
 
-
  本帖最后由 剑布衣 于 2016-3-14 13:06 编辑 
 
 妈呀请假条1314笑死我了，这白色情人节还有拉面真是喷了
-
-
-
-
-
 
 
 -----
@@ -23875,14 +15637,7 @@ EX确定掉落PS 我说的是黑猫
 ##### 1288#       发表于 2016-3-14 13:41
 
 
-
-
 这二天在EX小黑这里 又是掉兰子召唤，又是掉斧头，感决掉落不错。
-
-
-
-
-
 
 
 -----
@@ -23891,21 +15646,13 @@ EX确定掉落PS 我说的是黑猫
 ##### 1289#       发表于 2016-3-14 14:36
 
 
-
-
 卡等级突破素材了怎么办，突破需要的素材要打高难度本，然而等级无法提升打不过……
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1290#       发表于 2016-3-14 14:44
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">是白色情人节了啊
@@ -23915,16 +15662,10 @@ EX确定掉落PS 我说的是黑猫
 然而还是个连黑猫最低难度都打不过的咸鱼……
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 1291#       发表于 2016-3-14 14:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31824485&amp;ptid=1158205" target="_blank">pzk 发表于 2016-3-14 14:44</a>
@@ -23937,16 +15678,10 @@ EX确定掉落PS 我说的是黑猫
 才1个月.....你又不是欧皇，否则就蹭别人的一周SSR平铺 你现在一定能推。。。。
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1292#       发表于 2016-3-14 15:01
-
 
 
  本帖最后由 kitagawa 于 2016-3-14 16:02 编辑 
@@ -23960,27 +15695,15 @@ EX确定掉落PS 我说的是黑猫
 宝珠的话周1周2打打朱绯的试连
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1293#       发表于 2016-3-14 15:30
 
 
-
-
 幸子入手，现在差2斧头
 
 兰子的使用次数不限于活动期内吧？
-
-
-
-
-
 
 
 -----
@@ -23989,14 +15712,7 @@ EX确定掉落PS 我说的是黑猫
 ##### 1294#       发表于 2016-3-14 18:22
 
 
-
-
 战斗力2w黑猫刷起来费劲，请问现在超那个角色能刷的轻松一点？
-
-
-
-
-
 
 
 -----
@@ -24005,15 +15721,9 @@ EX确定掉落PS 我说的是黑猫
 ##### 1295#       发表于 2016-3-14 19:27
 
 
-
 <blockquote>艾达 发表于 2016-3-14 18:22
 战斗力2w黑猫刷起来费劲，请问现在超那个角色能刷的轻松一点？</blockquote>
 老头呗，一个奥义下去大半血没了。
-
-
-
-
-
 
 
 -----
@@ -24022,14 +15732,7 @@ EX确定掉落PS 我说的是黑猫
 ##### 1296#       发表于 2016-3-14 23:31
 
 
-
-
 战力一万出头，现在卡突破素材了，请问怎么连各种技能比较快？
-
-
-
-
-
 
 
 -----
@@ -24038,16 +15741,10 @@ EX确定掉落PS 我说的是黑猫
 ##### 1297#       发表于 2016-3-15 01:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31829015&amp;ptid=1158205" target="_blank">zhaoyanggolden 发表于 2016-3-14 23:31</a>
 
 战力一万出头，现在卡突破素材了，请问怎么连各种技能比较快？</blockquote>
 技能没办法的，只能靠平时打马格纳或者HARD BOSS掉的SR武器来积累
-
-
-
-
-
 
 
 -----
@@ -24056,22 +15753,15 @@ EX确定掉落PS 我说的是黑猫
 ##### 1298#       发表于 2016-3-15 01:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">终于能不嗑药打过最低难度黑猫了
 
 每回合恢复的召唤石真是新人助手！
-
-
-
-
-
 
 
 -----
 
 ####  d.adam  
 ##### 1299#       发表于 2016-3-15 08:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31824932&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-14 15:30</a>
@@ -24082,25 +15772,13 @@ EX确定掉落PS 我说的是黑猫
 不限制，好友（现在非好友的不知道行不行）的兰子都计算，慢慢用，666才满破
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1300#       发表于 2016-3-15 09:48
 
 
-
-
 wiki上的攻击力计算器 大概综合攻击力多少才能solo团战EX+boss？
-
-
-
-
-
 
 
 -----
@@ -24109,16 +15787,10 @@ wiki上的攻击力计算器 大概综合攻击力多少才能solo团战EX+boss�
 ##### 1301#       发表于 2016-3-15 10:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31831234&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-15 09:48</a>
 
 wiki上的攻击力计算器 大概综合攻击力多少才能solo团战EX+boss？</blockquote>
 solo团战EX+要的是组合，攻击力只是打的快与慢罢了
-
-
-
-
-
 
 
 -----
@@ -24127,23 +15799,16 @@ solo团战EX+要的是组合，攻击力只是打的快与慢罢了
 ##### 1302#       发表于 2016-3-15 12:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31831448&amp;ptid=1158205" target="_blank">301个斯巴达 发表于 2016-3-15 11:07</a>
 
 solo团战EX+要的是组合，攻击力只是打的快与慢罢了</blockquote>
 组合是指队伍构成？我大概理解你的意思了 3q
 
 
-
-
-
-
-
 -----
 
 ####  301个斯巴达  
 ##### 1303#       发表于 2016-3-15 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31832842&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-15 12:21</a>
@@ -24158,11 +15823,6 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 真力以后牛伤害DA会增加，所以你25%以下不能2-3回合打掉不如就和团里的人一起打好了，一般2-3人组个小队效率会高一些，DEBUFF和BUFF还全
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -24171,20 +15831,13 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  301个斯巴达  
 ##### 1305#       发表于 2016-3-15 13:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">会来这里问SOLO EX+需要多少战力的也不会遇到需要爆发刷分的情况吧……
-
-
-
-
-
 
 
 -----
@@ -24193,17 +15846,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 ##### 1306#       发表于 2016-3-15 15:27
 
 
-
-
 纯新人似乎刷不到幸子 看那个风火ssr武器和兰子倒是可以一战 有必要都刷了么？ 现在是风队(
 
 
 ----发送自 [HUAWEI H60-L02,Android 5.1.1](http://stage1.5j4m.com/?1.19)
-
-
-
-
-
 
 
 -----
@@ -24212,14 +15858,7 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 ##### 1307#       发表于 2016-3-15 15:38
 
 
-
-
 刷火武器别刷风 暗水SR 也能刷2把满破用用
-
-
-
-
-
 
 
 -----
@@ -24228,14 +15867,7 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 ##### 1308#       发表于 2016-3-15 15:40
 
 
-
-
 有没有比较好的武器和技能扫盲文？手头上一堆武器不知那些该升哪些该留哪些该分解
-
-
-
-
-
 
 
 -----
@@ -24246,21 +15878,13 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Siegfried82  
 ##### 1310#       发表于 2016-3-15 16:14
 
 
-
-
 喷了第二个挑战任务我把幸子放在2线第二位导致前面2个吃了武内p2个9999999999冲拳，笑死我了<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24269,14 +15893,7 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 ##### 1311#       发表于 2016-3-15 20:15
 
 
-
-
 幸子和斧子换好了，剩下中二兰差一堆皇冠和衣服，有必要换满么？
-
-
-
-
-
 
 
 -----
@@ -24285,14 +15902,7 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 ##### 1312#       发表于 2016-3-15 21:08
 
 
-
-
 问个问题，方阵武器那些守护的是不是都可以拿来喂了？
-
-
-
-
-
 
 
 -----
@@ -24301,23 +15911,16 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 ##### 1313#       发表于 2016-3-15 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31837173&amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-15 21:08</a>
 
 问个问题，方阵武器那些守护的是不是都可以拿来喂了？</blockquote>
 一直知道方阵武器这个名字，但是不知道具体是怎么做出来的。请问方阵武器是具体指代那些啊？<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1314#       发表于 2016-3-15 21:38
-
 
 
  本帖最后由 Siegfried82 于 2016-3-15 21:42 编辑 
@@ -24329,16 +15932,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 兰子本身感觉意义不大，换不满就不满吧，慢慢用把觉醒魔王凸满比较实用
 
 
-
-
-
-
-
 -----
 
 ####  ヴィーラ  
 ##### 1315#       发表于 2016-3-15 22:19
-
 
 
  本帖最后由 ヴィーラ 于 2016-3-15 22:25 编辑 
@@ -24350,16 +15947,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 其中光暗的掉落几率，非常，非常低，自己开大概。。。30~50一把？蹭的话这个就不提了，估计百分之一都没有吧。。
 
 
-
-
-
-
-
 -----
 
 ####  海洋  
 ##### 1316#       发表于 2016-3-16 02:12
-
 
 
 <blockquote>路德维嘉 发表于 2016-3-15 15:44
@@ -24367,16 +15958,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 不刷火猫，银猫球的获得太痛苦了。。
 
 
-
-
-
-
-
 -----
 
 ####  天天座理世  
 ##### 1317#       发表于 2016-3-16 07:42
-
 
 
  本帖最后由 天天座理世 于 2016-3-16 07:57 编辑 
@@ -24386,16 +15971,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 枪神回合里的DATA，是消耗一颗子弹还是对应2-3颗子弹。假如是消耗多个子弹，那么剩下一个时候发动了DATA会怎么样？看wiki上枪神的类型是攻击，但我看游戏是特殊，是不是最近改了？
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 1318#       发表于 2016-3-16 09:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31839676&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-3-16 07:42</a>
@@ -24410,16 +15989,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 至于类型,记得从出来就一直是特殊吧...
 
 
-
-
-
-
-
 -----
 
 ####  琴酒  
 ##### 1319#       发表于 2016-3-16 09:32
-
 
 
  本帖最后由 琴酒 于 2016-3-16 09:36 编辑 
@@ -24437,17 +16010,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 2周年还更新的很多新武器 没研究过 等别的大佬来说
 
 
-
-
-
-
-
 -----
 
 ####  LMBS  
 ##### 1320#       发表于 2016-3-16 14:40
-
-
 
 
 纠结这要超菲利还是MAO
@@ -24464,17 +16030,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 超得买太早了，如果拖到最后一天买说不定能拖动6%抽几个十连后再超
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1321#       发表于 2016-3-16 15:28
-
-
 
 
 问你下体啊
@@ -24482,16 +16041,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 有路没巴怎么玩暗队
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1322#       发表于 2016-3-16 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31843564&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-3-16 14:40</a>
@@ -24504,17 +16057,10 @@ EX+难点无非就是OD奥义的高伤害+DEBUFF，还有50%血的特殊行动�
 建议菲力，菲力可以在各队伍做一个加BUFF的辅助
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1323#       发表于 2016-3-17 09:25
-
-
 
 
 菲丽的话，2技加的伤害跟伤害上限很不错，3技启动要求就有点高（需要全队的100%奥义，相当于用fc来启动），短路效果需要净化（虽然现在带净化的话，也不是没用，但是boss一般debuff不太多，一定需要解的更是少）。
@@ -24525,33 +16071,19 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 我个人是倾向超mao，今晚不超就过期了。。。
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 1324#       发表于 2016-3-17 10:15
 
 
-
-
 有欧洲人做好了十天众么，求问拿些用来扩展的R武器，是不是掉落非常低？？我这二天一直在打第一个R本，到现在一样武器都没有掉，这情况正常么？？
-
-
-
-
-
 
 
 -----
 
 ####  ヴィーラ  
 ##### 1325#       发表于 2016-3-17 10:31
-
-
 
 
 没路霸玩光暗肯定的，怎么说呢。。。。你懂得。
@@ -24563,20 +16095,13 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 但是，你必须要面对，极低极低的方阵掉率，提升非常慢的现实。还有虚无缥缈的巴。。。。
 
 
-
 不过。。。。就算这么多缺点，为了下体选暗，实在太容易prpr了啊。
-
-
-
-
-
 
 
 -----
 
 ####  hecas  
 ##### 1326#       发表于 2016-3-17 10:33
-
 
 
 <blockquote>引用第1321楼gyfsgm于2016-03-17 10:15发表的  :
@@ -24591,16 +16116,10 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1327#       发表于 2016-3-17 10:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31850119&amp;ptid=1158205" target="_blank">gyfsgm 发表于 2016-3-17 11:15</a>
@@ -24609,25 +16128,13 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 参照wiki主线任务 等主线ap半减再去收集 基本都是一个下午的事情
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1328#       发表于 2016-3-17 11:24
 
 
-
-
 召唤兰子的那个成就是两种兰子都算还是只算未觉醒的？
-
-
-
-
-
 
 
 -----
@@ -24636,16 +16143,10 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 ##### 1329#       发表于 2016-3-17 14:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31850408&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-17 10:42</a>
 
 参照wiki主线任务 等主线ap半减再去收集 基本都是一个下午的事情</blockquote>
 我记得有个罐子，带了双贝壳都很难碰到，而且掉率奇低，1/2刷了一个下午也没刷出来
-
-
-
-
-
 
 
 -----
@@ -24654,22 +16155,15 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 ##### 1330#       发表于 2016-3-17 18:04
 
 
-
  本帖最后由 RP城的老B样 于 2016-3-17 18:30 编辑 
 
 赌场从30万输到7万不到，连打牌都输，还全是给45赌大，结果隔壁给个2，给QK赌小，结果隔壁给个A这种情况，难不成这游戏也有玄学时间的<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">现在看到赌场都心烦了
-
-
-
-
-
 
 
 -----
 
 ####  osore  
 ##### 1331#       发表于 2016-3-17 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31854904&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-17 18:04</a>
@@ -24680,16 +16174,10 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 两小时一百万不是梦
 
 
-
-
-
-
-
 -----
 
 ####  Siegfried82  
 ##### 1332#       发表于 2016-3-17 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31854904&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-17 18:04</a>
@@ -24698,25 +16186,13 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 一样，给k出a给2出1经常发生，心好累，非洲人已经不敢进赌场
 
 
-
-
-
-
-
 -----
 
 ####  00lop00  
 ##### 1333#       发表于 2016-3-17 22:44
 
 
-
-
 2W战力出头只能刷VH黑猫，有时碰不到大腿召唤脸黑还翻船，算算幸子箱子15%出现率，要刷70次左右才能换...求赌场插件..给个日亚链接也行。
-
-
-
-
-
 
 
 -----
@@ -24725,16 +16201,10 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 ##### 1334#       发表于 2016-3-18 03:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31849632&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-3-17 09:25</a>
 
 菲丽的话，2技加的伤害跟伤害上限很不错，3技启动要求就有点高（需要全队的100%奥义，相当于用fc来启动）， ...</blockquote>
 不太赞同你对菲力的评价。事实上，光队现在有没有菲力，真的完全不同，23技基本都是神一般的存在，后备越好越能感受到这一点。可以这么说，光队不超个菲力，和咸鱼有什么区别？
-
-
-
-
-
 
 
 -----
@@ -24743,23 +16213,16 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 ##### 1335#       发表于 2016-3-18 03:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31850859&amp;ptid=1158205" target="_blank">pzk 发表于 2016-3-17 11:24</a>
 
 召唤兰子的那个成就是两种兰子都算还是只算未觉醒的？</blockquote>
 两种都算
 
 
-
-
-
-
-
 -----
 
 ####  submarine406  
 ##### 1336#       发表于 2016-3-18 05:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31858446&amp;ptid=1158205" target="_blank">yang6451 发表于 2016-3-18 03:35</a>
@@ -24770,16 +16233,10 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 但是长期战多异常的场合,菲利也是头一个会被王子换下去的...
 
 
-
-
-
-
-
 -----
 
 ####  301个斯巴达  
 ##### 1337#       发表于 2016-3-18 07:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31858446&amp;ptid=1158205" target="_blank">yang6451 发表于 2016-3-18 03:35</a>
@@ -24788,16 +16245,10 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 菲力强的前提是你队伍强，你队伍不强的话感觉不到菲力有多强的，光队超得优先级贞德阿米拉绿川比菲力高多了
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1338#       发表于 2016-3-18 08:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31858446&amp;ptid=1158205" target="_blank">yang6451 发表于 2016-3-18 03:35</a>
@@ -24812,16 +16263,10 @@ mao的话，则是本体脆弱，容易被扁死，但是单体追伤相对较�
 at时间主角带净化当然飞一样，但是不是at时间的话，就会有点麻烦，30奥义起手的话，还是需要好几个回合，尤其主角黑剑更甚，总的来说，很强，但是不是个体解决局面问题的强，而是锦上添花的强
 
 
-
-
-
-
-
 -----
 
 ####  给风祈祷  
 ##### 1339#       发表于 2016-3-18 10:19
-
 
 
  本帖最后由 给风祈祷 于 2016-3-18 10:49 编辑 
@@ -24858,17 +16303,10 @@ at时间主角带净化当然飞一样，但是不是at时间的话，就会有�
 需要的光队其实只要有特定角色就能打下40%的血就够了。我得队伍是的是贞德，萨尔南，光io，能10多分钟能打下40血，主角用祭祀，带慘雾。召唤需要有3个攻击up，打法非常单纯但是需要计算不能分身。开场硬吃两下到满豆，然后两绿水补满缺血，接下来就无脑雾循环中间穿插深渊雾给的暗抗加暗小马加萨尔南达成三回合无伤，转cd，期间看血量净化加血，猴子也能玩，暗船会在3左右无视骗雾，这个时候就可以放出去等一堆兄贵了，但是十分机械，其他方阵都没打的这么累，索性就每个月换暗方了。
 
 
-
-
-
-
-
 -----
 
 ####  给风祈祷  
 ##### 1340#       发表于 2016-3-18 12:35
-
-
 
 
 很闲就顺便把其他五属性的新人攻略写写好了。先给六属方阵排个强弱好了，从强到弱分别是真骑士（光），黑船姐（暗），高达（火，明明完全不像高达），泥鳅（水），树妹（土），地母（风）。这里可以看出为什么说新手风起手是最简单的。
@@ -24906,11 +16344,6 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 推荐买这次发霉桶的特典，400日元五只劣化小马还是很值的。发展就选一两系就好，最好是对应的，比如火风，水土这样的，等一个系起来了就打对应的方阵，给另外一个系刷毕业就可以不用那么辛苦了。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -24919,21 +16352,13 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gyfsgm  
 ##### 1342#       发表于 2016-3-18 12:58
 
 
-
-
 终于，1200体力把的呢扩展武器打全了。
-
-
-
-
-
 
 
 -----
@@ -24942,14 +16367,7 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 ##### 1343#       发表于 2016-3-18 13:00
 
 
-
-
 哈哈，限定，以后是全部ssr都是限定么，果真傻逼
-
-
-
-
-
 
 
 -----
@@ -24958,21 +16376,13 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 ##### 1344#       发表于 2016-3-18 13:04
 
 
-
-
 我倒是也想玩暗队，然而只有Mao跟传说，也没巴，下次是继续下体阿米拉还是超个斑比/奥丁？
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1345#       发表于 2016-3-18 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31858931&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-3-18 08:24</a>
@@ -24987,27 +16397,16 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 尤其有了阿米拉，或者你用一个带连击职业的话，3技那要求不在话下
 
 
-
-
-
-
-
 -----
 
 ####  萨尤克  
 ##### 1346#       发表于 2016-3-18 16:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31861742&amp;ptid=1158205" target="_blank">上坂莲华 发表于 2016-3-18 13:04</a>
 
 我倒是也想玩暗队，然而只有Mao跟传说，也没巴，下次是继续下体阿米拉还是超个斑比/奥丁？ ...</blockquote>
 暗队真没脸要巴的话可以玩暗光杂，召唤用满破奥丁，队员MAO传说+阿米拉/菲利，不过暗队建议还是先超个斑比，太有用
-
-
-
-
-
 
 
 -----
@@ -25018,12 +16417,10 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  yang6451  
 ##### 1348#       发表于 2016-3-18 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31858931&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-3-18 08:24</a>
@@ -25035,17 +16432,10 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 认识的一些dalao在撕HL的时候，只要是光队基本是清一色的菲力，应该也能说明一些问题。
 
 
-
-
-
-
-
-
 -----
 
 ####  yang6451  
 ##### 1349#       发表于 2016-3-18 21:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31858813&amp;ptid=1158205" target="_blank">301个斯巴达 发表于 2016-3-18 07:58</a>
@@ -25054,32 +16444,19 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 从超得的角度上讲，初期光队的确是贞德阿米拉更优先，不过楼上那位dalao貌似已经有了。至于十倍……感觉有点微妙，中后期太乏力了，那位dalao已经玩了两个月的光队了，感觉超十倍的话用不了多久的样子。
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1350#       发表于 2016-3-18 23:01
 
 
-
-
 政委真是辣鸡中的战斗鸡，设计的都没有玩过游戏么，不过总比塞个超强的到限定好
-
-
-
-
-
 
 
 -----
 
 ####  301个斯巴达  
 ##### 1351#       发表于 2016-3-19 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31866009&amp;ptid=1158205" target="_blank">yang6451 发表于 2016-3-18 21:06</a>
@@ -25091,25 +16468,13 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 现在没哪个HL非得有菲力，但是有绿川就会好打一些
 
 
-
-
-
-
-
 -----
 
 ####  小君  
 ##### 1352#       发表于 2016-3-19 00:12
 
 
-
-
 这政委说削就削 真是牛逼
-
-
-
-
-
 
 
 -----
@@ -25118,14 +16483,7 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 ##### 1353#       发表于 2016-3-19 00:26
 
 
-
-
 我这上play store超级慢呀，哪里有apk和数据包下载呢
-
-
-
-
-
 
 
 -----
@@ -25134,21 +16492,13 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 ##### 1354#       发表于 2016-3-19 00:37
 
 
-
-
 看了推上的情况大概就想到是什么事了，没削之前其实也不比中井之类的强，简单概括就是配合CY出限定商法下的悲剧产物<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1355#       发表于 2016-3-19 03:41
-
 
 
  本帖最后由 pzk 于 2016-3-20 02:21 编辑 
@@ -25158,17 +16508,10 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">爱梨三技能的学习条件是什么（问题已解决……感觉自己智商被吃了
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1356#       发表于 2016-3-19 08:14
-
-
 
 
 亏炸，昨天打算抽的，结果出门吃饭，白嫖失败。。。
@@ -25180,25 +16523,13 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 索菲亚啊，还真忘记这个ssr了，我没啥召唤运气。。。光召唤目前只是百手巨人，电视机我都没拿。。。休闲休没掉了，这次还是在蝴蝶跟菲丽之间犹豫。。。
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 1357#       发表于 2016-3-19 09:01
 
 
-
-
 我擦，起床一个90黄转虹，政委get…
-
-
-
-
-
 
 
 -----
@@ -25207,22 +16538,15 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 ##### 1358#       发表于 2016-3-19 10:28
 
 
-
  本帖最后由 cowgp01 于 2016-3-19 10:59 编辑 
 
 网上那视频误导性太大了。没有护卫的情况下一下子都没有被打，要想被打后攻击只剩下10分之1还要重新积累，撕逼被打一下等于整个战术都废了，对付现在的主要敌人如杂和冰煌之类的妨碍要素要多少有多少打HL巴哈那就更加不可能，也就欺负一下水龙这种了
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 1359#       发表于 2016-3-19 13:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31867302&amp;ptid=1158205" target="_blank">301个斯巴达 发表于 2016-3-19 01:00</a>
@@ -25234,16 +16558,10 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 要是bili大叔的吃豆能稳定点就好了
 
 
-
-
-
-
-
 -----
 
 ####  301个斯巴达  
 ##### 1360#       发表于 2016-3-19 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31870532&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-19 13:34</a>
@@ -25252,32 +16570,19 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 一般来说有SS的2技DEBUFF的话命中率很稳定的
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1361#       发表于 2016-3-19 13:48
 
 
-
-
 不愧偶像幻想，有偶像啥都有可能。。。
-
-
-
-
-
 
 
 -----
 
 ####  Niu  
 ##### 1362#       发表于 2016-3-19 13:53
-
 
 
  本帖最后由 Niu 于 2016-3-18 21:55 编辑 
@@ -25296,16 +16601,10 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 我收到老師前跟老師後簡直兩個世界
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1363#       发表于 2016-3-19 13:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31870594&amp;ptid=1158205" target="_blank">301个斯巴达 发表于 2016-3-19 14:42</a>
@@ -25317,32 +16616,19 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 另外听说这次团战是水有利 有人知道消息源是哪来的吗....
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1364#       发表于 2016-3-19 13:57
 
 
-
-
 上上次2400线大概在1.2亿 这次可以用铜月换半水了 我看这2400线会继续水涨船高吧<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  301个斯巴达  
 ##### 1365#       发表于 2016-3-19 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31870719&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-19 13:55</a>
@@ -25354,16 +16640,10 @@ sr的构成思路卡姐是必须的，剩下需要一个盾，一个治疗相对
 SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中都是直接放野撕野人的
 
 
-
-
-
-
-
 -----
 
 ####  301个斯巴达  
 ##### 1366#       发表于 2016-3-19 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31870737&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-19 13:57</a>
@@ -25372,25 +16652,13 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 上次线高是因为大家都在拼命刷UK……
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1367#       发表于 2016-3-19 15:11
 
 
-
-
 上次因为是难得的水暗uk，还是秀逗的剧情，不滚只能吃屎，而且是双uk几率相当于减半的，分数自然高
-
-
-
-
-
 
 
 -----
@@ -25401,7 +16669,6 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  路德维嘉  
@@ -25410,12 +16677,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  天天座理世  
 ##### 1370#       发表于 2016-3-20 02:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31868481&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-3-19 08:14</a>
@@ -25427,11 +16692,6 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 刚出的时候也没有你说的超强，单看角色也就一般水平了。再看土属，其实也就这样了。
 
 只不过削弱之后就变成只能舔的产废
-
-
-
-
-
 
 
 -----
@@ -25440,7 +16700,6 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1371#       发表于 2016-3-20 02:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31868481&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-3-19 08:14</a>
 
 亏炸，昨天打算抽的，结果出门吃饭，白嫖失败。。。
@@ -25452,16 +16711,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 只不过削弱之后就变成只能舔的产废
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1372#       发表于 2016-3-20 04:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31876018&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-3-20 02:40</a>
@@ -25477,25 +16730,13 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 更不要说要是BOSS被麻痹后那更是happy hour了
 
 
-
-
-
-
-
 -----
 
 ####  cowgp01  
 ##### 1373#       发表于 2016-3-20 04:57
 
 
-
-
 说到底也就这样罢了，完全为一个人服务然后8回合不被打单回合输出150W左右？有比BBA达成单回合千万伤害的条件简单多少。和同样性质的勇者王比都是差远了
-
-
-
-
-
 
 
 -----
@@ -25504,16 +16745,9 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1374#       发表于 2016-3-20 08:27
 
 
-
-
 拿裝備已整好的光隊相比
 
 這產廢就算是削弱前也沒比光菲莉好用
-
-
-
-
-
 
 
 -----
@@ -25522,14 +16756,7 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1375#       发表于 2016-3-20 09:25
 
 
-
-
 看了nico的两个视频，未修正妥妥的暴打神狼的级别。初始攻击高提升倍率太快上限太高。被攻击到也就是萎一回合，下个回合又能开始暴力输出。平砍6w的土队从12w开始三四回合砍上30～40w。
-
-
-
-
-
 
 
 -----
@@ -25538,14 +16765,7 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1376#       发表于 2016-3-20 13:05
 
 
-
-
 和菲利比更加不可能了，普通毕业的光队（非光剑），低条件四回合接近千万伤害而且灵活得要命
-
-
-
-
-
 
 
 -----
@@ -25554,14 +16774,7 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1377#       发表于 2016-3-20 13:56
 
 
-
-
 问下，称号里的魔王兰子必须在活动期内完成才有么？还是结束后也能继续完成？
-
-
-
-
-
 
 
 -----
@@ -25570,14 +16783,7 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1378#       发表于 2016-3-20 14:20
 
 
-
-
 现在这3天一轮的讨伐战是长期的还是有限的？
-
-
-
-
-
 
 
 -----
@@ -25586,15 +16792,9 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1379#       发表于 2016-3-20 14:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=31879207&amp;amp;ptid=1158205" target="_blank">Siegfried82 发表于 2016-3-20 14:20</a>
 现在这3天一轮的讨伐战是长期的还是有限的？</blockquote>
 长期的
-
-
-
-
-
 
 
 -----
@@ -25603,15 +16803,9 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1380#       发表于 2016-3-20 14:39
 
 
-
 <blockquote>屈江鸟 发表于 2016-3-20 13:56
 问下，称号里的魔王兰子必须在活动期内完成才有么？还是结束后也能继续完成？ ...</blockquote>
 不需要活动中 我知道有人平时刷出666的成就了
-
-
-
-
-
 
 
 -----
@@ -25620,24 +16814,16 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1381#       发表于 2016-3-20 14:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31879356&amp;ptid=1158205" target="_blank">要嗝屁了 发表于 2016-3-20 14:39</a>
 
 不需要活动中 我知道有人平时刷出666的成就了</blockquote>
 好的，谢谢<img src="https://static.saraba1st.com/image/smiley/face/56.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  LMBS  
 ##### 1382#       发表于 2016-3-20 23:29
-
-
 
 
 40章第三个任务卡了我一个多月，每次都是快输的时候选择撤退
@@ -25647,16 +16833,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 然后神奇的发现这战是可以输的<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1383#       发表于 2016-3-21 07:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31876018&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-3-20 02:40</a>
@@ -25667,20 +16847,13 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 不是这么说的，狮子王是10天，10天都是规格外好么，你拿10天来比已经说明问题了，你不如说7的fc强化比银妹屌多了，所以银妹一般般，2的全debuff比黑剑的雾屌，所以黑剑也是一般般。。。solo小王子第一个不服啊
 
 
-
 保护是不容易，但是你看你7都保了，还差个政委？暖机之后30奥义不算啥，一回合给你打回来，sara作为常驻土盾，也是救命，事实上比想象的容易点
-
-
-
-
-
 
 
 -----
 
 ####  天天座理世  
 ##### 1384#       发表于 2016-3-21 12:25
-
 
 
  本帖最后由 天天座理世 于 2016-3-21 12:36 编辑 
@@ -25695,17 +16868,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 保7的风队两回合能打1000W+伤害，你保政委能打多少，有这种爱的土天人还不如做38。土队的现状不是你一个政委就能拯救
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1385#       发表于 2016-3-21 13:36
-
-
 
 
 啊。。。引用出错。。。
@@ -25717,25 +16883,13 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 只是说，当初为毛的改政委而已，事实上刚出来的时候的确比肩于6的（6才是狮子王吧），6一开始也是弱，但是结果1.3技能叠加之后就是3+1.5的倍率，配2连是以前的9倍才一下子飞天
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1386#       发表于 2016-3-21 14:20
 
 
-
-
 土队请来个unk攻刃大的活动！！！
-
-
-
-
-
 
 
 -----
@@ -25744,14 +16898,7 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1387#       发表于 2016-3-21 14:27
 
 
-
-
 这星之古战场活动是不是游兵散勇新人之流可以专心去玩别的了？
-
-
-
-
-
 
 
 -----
@@ -25760,16 +16907,9 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1388#       发表于 2016-3-21 15:24
 
 
-
-
 不是
 
 新人可以只刷眼球 抽战货 抽一开始设置10天武器
-
-
-
-
-
 
 
 -----
@@ -25778,16 +16918,9 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1389#       发表于 2016-3-21 18:01
 
 
-
-
 大家是不是忘记政委还是个期间限定的角色
 
 不知道是在限定个什么鬼（冷漠<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25796,14 +16929,7 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1390#       发表于 2016-3-21 18:20
 
 
-
-
 方阵武器掉落是只跟宝箱种类有关系还是跟输出分数也有关
-
-
-
-
-
 
 
 -----
@@ -25812,23 +16938,16 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1391#       发表于 2016-3-21 18:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31893445&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-3-21 18:20</a>
 
 方阵武器掉落是只跟宝箱种类有关系还是跟输出分数也有关</blockquote>
 感觉无关就是运气问题当然能抢到1,2位能多个红箱子。
 
 
-
-
-
-
-
 -----
 
 ####  hecas  
 ##### 1392#       发表于 2016-3-21 19:21
-
 
 
 <blockquote>引用第1387楼LMBS于2016-03-21 18:20发表的  :
@@ -25843,16 +16962,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ----发送自 [Xiaomi Mi-4c,Android 5.1.1](http://stage1.5j4m.com/?1.19) 
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 1393#       发表于 2016-3-21 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31893445&amp;ptid=1158205" target="_blank">LMBS 发表于 2016-3-21 18:20</a>
@@ -25861,16 +16974,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 全看脸，原来我也以为起码也得打些贡献，或者红箱子或者4个以上的金箱子，直到昨天蹭风婊，舔了一下，三个金箱子，出了风铳<img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  给风祈祷  
 ##### 1394#       发表于 2016-3-23 02:14
-
 
 
  本帖最后由 给风祈祷 于 2016-3-23 02:16 编辑 
@@ -25892,16 +16999,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 银姐可能在完全没有装备的时候，输出比老头差一点，但是只要有一点装备，就能随便打到上限，还能增加fc伤害，并且更加安定。
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1395#       发表于 2016-3-23 15:25
-
 
 
  本帖最后由 pzk 于 2016-3-23 15:30 编辑 
@@ -25911,16 +17012,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 好吧估计是可以的，我刚刚遇到了把break状态boss打醒，没加上debuff的情况……
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1396#       发表于 2016-3-23 16:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31909370&amp;ptid=1158205" target="_blank">给风祈祷 发表于 2016-3-23 02:14</a>
@@ -25939,26 +17034,15 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 不用怕老头被秒，老头能用出那99W附加就已经是赚了
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 1397#       发表于 2016-3-23 18:18
 
 
-
  本帖最后由 屈江鸟 于 2016-3-23 18:25 编辑 
 
 啊…必完才发现火UP……双虹，光头+炎帝，妈的应该留到水UP的
-
-
-
-
-
 
 
 -----
@@ -25969,7 +17053,6 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  路德维嘉  
@@ -25978,12 +17061,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  カリオストロ  
 ##### 1400#       发表于 2016-3-23 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31916816&amp;ptid=1158205" target="_blank">oyss1225 发表于 2016-3-23 19:23</a>
@@ -25997,16 +17078,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 实在不行就放野，最后拿战货去抽箱子
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1401#       发表于 2016-3-24 08:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31916816&amp;ptid=1158205" target="_blank">oyss1225 发表于 2016-3-23 19:23</a>
@@ -26027,19 +17102,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 我反而觉得首先先看你们团能不能入预选。。。页面有写的，排名2400以内就入选，确定不能入的话就专心打眼球。。。抽战货
 
 
-
-
-
-
-
-
-
 -----
 
 ####  zmxlegend  
 ##### 1402#       发表于 2016-3-24 09:21
-
-
 
 
 水老头除了对新手的帮助外，贯穿整个游戏时期都是有他独有的作用的。
@@ -26050,17 +17116,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 另一个大作用就是刷共斗了。95级以上的人物经验，130级以上的rank经验，做专武需要的大量的信念，这些通过正常游戏是需要很漫长的时间才能获得的。一个捷径就是弄个小号刷宫斗，小号开大号打。为了省时间，老头的作用就体现出来了。扔满奥义药（当然也要扔满经验书羽毛什么的），进门点一下攻击刷新收箱子。可以做到的包括H2-1罐子，H4-5火球，以及EX1-3（想要信念基本速刷这个最好）。后两者大约120W血，带老头的话基本没什么装备要求，同样可以带兔子碉堡杖什么的。
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1403#       发表于 2016-3-24 11:26
-
-
 
 
 对新人来说的确是快速追上大部队的人物，但是你拿着他就很长时间的提升体感都很差。。。而且不依赖装备的另一个意思就是，有装备他差别也不大
@@ -26069,16 +17128,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 3技补buff是可以的，但是这样的结果就是早泄，几乎没得打持久战，对于养成靠靠老头啥都行的人来说，一旦进入这种情况，老头靠不住了！结果就是很难处理。
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 1404#       发表于 2016-3-24 11:40
-
 
 
  本帖最后由 Fuero 于 2016-3-24 11:46 编辑 
@@ -26090,16 +17143,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 其实有些人不喜欢他只是因为他不是妹子而已，改成母牛loli口径就统一了
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 1405#       发表于 2016-3-24 12:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31922220&amp;ptid=1158205" target="_blank">Fuero 发表于 2016-3-24 11:40</a>
@@ -26108,11 +17155,6 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 其实老头子也就算了，关健又不帅，又不霸气....
 
 真的不想用啊~~
-
-
-
-
-
 
 
 -----
@@ -26121,18 +17163,12 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1406#       发表于 2016-3-24 14:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31922220&amp;ptid=1158205" target="_blank">Fuero 发表于 2016-3-24 11:40</a>
 
 水老头对新手来说就是神，体验上的提升太太太太太太太太太太太大了，空档期还能靠被动和2技3技灵活调整，这 ...</blockquote>
 其实老头子也就算了，关健又不帅，又不霸气....
 
 真的不想用啊~~
-
-
-
-
-
 
 
 -----
@@ -26143,7 +17179,6 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  路德维嘉  
@@ -26152,12 +17187,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  カリオストロ  
 ##### 1409#       发表于 2016-3-24 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31925831&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-3-24 18:05</a>
@@ -26172,11 +17205,6 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 3妹再怎么说也是个十天众之一，拿来跟个超得就能拿到的角色比就不对了。而且现在土队的低迷，还有无垢剑圣等固伤的出现，本来十天里就算不上强势的3妹不是十天里的好选择了。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -26185,12 +17213,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  カリオストロ  
 ##### 1411#       发表于 2016-3-24 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31926017&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-3-24 18:35</a>
@@ -26208,16 +17234,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 开始也是讨论新手超得老头其实是最有优势的，中后期代替品固然多，但是老头可以一路用下去
 
 
-
-
-
-
-
 -----
 
 ####  天天座理世  
 ##### 1412#       发表于 2016-3-24 20:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31925918&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-24 18:20</a>
@@ -26228,16 +17248,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 兰斯奥义之后的1技能在后备成形之后是能打出100W的伤害。而且他自身的高连击和被动带来全队的连击up，自己去试试感受下。
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1413#       发表于 2016-3-24 20:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31926689&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-3-24 20:08</a>
@@ -26254,32 +17268,19 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 而且现在水队真的只能拿来打高达了，要么就抽个鱿鱼走氪金武器路线
 
 
-
-
-
-
-
 -----
 
 ####  RP城的老B样  
 ##### 1414#       发表于 2016-3-24 22:11
 
 
-
-
 看你们这么说都不知道该怎么继续往下走了……现在只有土和水能玩
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1415#       发表于 2016-3-24 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31927613&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-24 22:11</a>
@@ -26292,27 +17293,15 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 当然还是最推荐从风队入门，武器努力舔好，风80开始又能赌场换，后面做个7剑就很能打了
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1416#       发表于 2016-3-25 00:33
 
 
-
-
 疯特了
 
 最后半小时本战线涨了有没有3KW？
-
-
-
-
-
 
 
 -----
@@ -26321,21 +17310,13 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 ##### 1417#       发表于 2016-3-25 02:21
 
 
-
-
 1.9几⇒2.23 几乎3kw... 最后30分钟真是手忙脚乱<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  zmxlegend  
 ##### 1418#       发表于 2016-3-25 03:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31925831&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-3-24 18:05</a>
@@ -26351,25 +17332,13 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 不是说没水老头就没法玩，而是说他在这方面的确是最好的。
 
 
-
-
-
-
-
 -----
 
 ####  301个斯巴达  
 ##### 1419#       发表于 2016-3-25 04:41
 
 
-
-
 共斗炸罐子明明最好用的是左仓啊，一发二技就能秒罐子还不用开奥义药
-
-
-
-
-
 
 
 -----
@@ -26380,13 +17349,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  zmxlegend  
 ##### 1421#       发表于 2016-3-25 09:49
-
-
 
 
 进本自带三幕3
@@ -26395,16 +17361,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 吃奥义药。ex1-3防御挺高，小号没什么好的召唤，大号这边要用兔子，主手还要拿碉堡铳，不扔debuff的话真不是随便送走的
 
 
-
-
-
-
-
 -----
 
 ####  Niu  
 ##### 1422#       发表于 2016-3-25 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31926689&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-3-24 04:08</a>
@@ -26429,16 +17389,10 @@ SS打船那得有战力才行……我SS 6万战力打船要是2的麻痹不中�
 而百萬傷害的最大價值除了初期刷怪外 就是最終盤碰上奧義上限時能穩定的突破上限
 
 
-
-
-
-
-
 -----
 
 ####  Fuero  
 ##### 1423#       发表于 2016-3-25 10:01
-
 
 
  本帖最后由 Fuero 于 2016-3-25 10:40 编辑 
@@ -26479,11 +17433,6 @@ ex1-3  120W HP
 六属50级的岛主 4个100W，1个126W，1个155W 
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -26492,12 +17441,10 @@ ex1-3  120W HP
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  erlic  
 ##### 1425#       发表于 2016-3-25 10:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31930899&amp;ptid=1158205" target="_blank">路德维嘉 发表于 2016-3-25 10:22</a>
@@ -26508,32 +17455,19 @@ ex1-3  120W HP
 先不管别的 ，风一般都是升铳。。
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1426#       发表于 2016-3-25 11:08
 
 
-
-
 反正本群用过水老头的都变成水老头形状了，follow your heart<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  d.adam  
 ##### 1427#       发表于 2016-3-25 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31924600&amp;ptid=1158205" target="_blank">oyss1225 发表于 2016-3-24 15:42</a>
@@ -26551,25 +17485,13 @@ ex1-3  120W HP
 顺带一提，游戏最亲儿子的是风属性，最贵族的则是光暗，实在太难打的话，甚至可以考虑风队干火boss的。。。
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1428#       发表于 2016-3-25 12:32
 
 
-
-
 这次风队平铺了就打得过EX了
-
-
-
-
-
 
 
 -----
@@ -26578,21 +17500,13 @@ ex1-3  120W HP
 ##### 1429#       发表于 2016-3-25 14:05
 
 
-
-
 一个都是萌妹子的游戏，为什么要去玩一个给，还是个矮子更是个老头！？<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 1430#       发表于 2016-3-25 15:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31933406&amp;ptid=1158205" target="_blank">小君 发表于 2016-3-25 14:05</a>
@@ -26603,16 +17517,10 @@ ex1-3  120W HP
 怎么现在一个个大老爷们用个男角色就好像鸡巴被掰弯了 直肠里长出了处女膜然后一点鼠标就被这个角色破了处一样
 
 
-
-
-
-
-
 -----
 
 ####  Niu  
 ##### 1431#       发表于 2016-3-25 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31933406&amp;ptid=1158205" target="_blank">小君 发表于 2016-3-24 22:05</a>
@@ -26625,16 +17533,10 @@ ex1-3  120W HP
 認真刷怪打團戰的也大有人在
 
 
-
-
-
-
-
 -----
 
 ####  小君  
 ##### 1432#       发表于 2016-3-25 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31933982&amp;ptid=1158205" target="_blank">鱼缸 发表于 2016-3-25 15:07</a>
@@ -26648,33 +17550,19 @@ ex1-3  120W HP
 不想和你打嘴炮，你强！水老头棒极了！<img src="https://static.saraba1st.com/image/smiley/face/52.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xiaocheng  
 ##### 1433#       发表于 2016-3-25 15:36
 
 
-
-
 水老头超强好不好，用过的都知道。颜值其实也不算很差，好歹是个帅老头。
-
-
-
-
-
 
 
 -----
 
 ####  kitagawa  
 ##### 1434#       发表于 2016-3-25 16:18
-
-
 
 
 @鱼缸
@@ -26690,24 +17578,13 @@ ex1-3  120W HP
 比如我现在就在组火兽耳女队 4月8号就能完成了<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer"> 如果你有大公 那是可以组个全女角队的 
 
 
-
-
-
-
-
 -----
 
 ####  furui3132  
 ##### 1435#       发表于 2016-3-25 16:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">玩个社交游戏也要精神洁癖...被给队打爆别哭哭哦
-
-
-
-
-
 
 
 -----
@@ -26716,21 +17593,13 @@ ex1-3  120W HP
 ##### 1436#       发表于 2016-3-25 22:25
 
 
-
-
 不就是个老头吗....水队这个现状你不是玩老王的话到最后其实用不用老头也没多大差啦....
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 1437#       发表于 2016-3-26 05:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31934663&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-25 16:18</a>
@@ -26752,17 +17621,10 @@ ex1-3  120W HP
 谢谢提醒 不过不打算改 抱歉啦<img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1438#       发表于 2016-3-26 16:51
-
-
 
 
 求本战有经验的鉴定一下 
@@ -26774,16 +17636,10 @@ ex1-3  120W HP
 我们团平均只有80级左右 有2-3个人不打的 现在比分2.5亿 vs 2千3百万 我们at肯定爆不过他们....他们这算是放弃了还是准备最后2小时按死我们？  
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1439#       发表于 2016-3-26 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31942992&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-26 16:51</a>
@@ -26795,11 +17651,6 @@ ex1-3  120W HP
 放心吧，这分差他们现在也不追点分的话，AT2个小时肯定打不到2亿那么多
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -26808,12 +17659,10 @@ ex1-3  120W HP
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  艾达  
 ##### 1441#       发表于 2016-3-26 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31934297&amp;ptid=1158205" target="_blank">xiaocheng 发表于 2016-3-25 15:36</a>
@@ -26822,16 +17671,10 @@ ex1-3  120W HP
 说水老头超强我没意见，说他帅已经是水老头上脑了吧？<img src="https://static.saraba1st.com/image/smiley/dym/151.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1442#       发表于 2016-3-26 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31943100&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-26 18:07</a>
@@ -26840,16 +17683,10 @@ ex1-3  120W HP
 谢谢指点 7点多对面来试探了一波...被我们按回去了 看来是死心了....因为我们明天后天都躺的 今天打多少都无所谓了。。。
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1443#       发表于 2016-3-26 21:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31944601&amp;ptid=1158205" target="_blank">kitagawa 发表于 2016-3-26 20:35</a>
@@ -26858,25 +17695,13 @@ ex1-3  120W HP
 刚刚才知道30肉放的hell打掉后有合计1亿的贡献，虽然2亿还是安全，以后多注意一下吧
 
 
-
-
-
-
-
 -----
 
 ####  gyfsgm  
 ##### 1444#       发表于 2016-3-27 02:19
 
 
-
-
 今天从一早上打 我们只是个5个100以上的团。结果对面不知道啥图案 打出火来了，全天都咬的很死！结果6.5亿对6.9亿输了，泪奔。好羡慕楼上只要打2亿的团
-
-
-
-
-
 
 
 -----
@@ -26887,21 +17712,13 @@ ex1-3  120W HP
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  给风祈祷  
 ##### 1446#       发表于 2016-3-27 12:05
 
 
-
-
 一个人一早上6e贡献，是挂B无误吧？
-
-
-
-
-
 
 
 -----
@@ -26910,21 +17727,13 @@ ex1-3  120W HP
 ##### 1447#       发表于 2016-3-27 13:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer">羡慕有团打的
-
-
-
-
-
 
 
 -----
 
 ####  沧君  
 ##### 1448#       发表于 2016-3-29 11:39
-
-
 
 
 第一天碰到天团，输了。
@@ -26934,16 +17743,10 @@ ex1-3  120W HP
 第三天对手平均70+，打了100万就开始躺尸，我们打了1亿也开始躺尸。结果最后一小时对面暴起打了2亿，我们团基本没人在线，又输了。
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 1449#       发表于 2016-3-29 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31949225&amp;ptid=1158205" target="_blank">给风祈祷 发表于 2016-3-27 12:05</a>
@@ -26952,25 +17755,13 @@ ex1-3  120W HP
 无业游民游戏废人吧。
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 1450#       发表于 2016-3-29 12:30
 
 
-
-
 NND，这次太豪华了吧。
-
-
-
-
-
 
 
 -----
@@ -26981,21 +17772,13 @@ NND，这次太豪华了吧。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  爱宕  
 ##### 1452#       发表于 2016-3-29 12:38
 
 
-
-
 要钱要命 我实在肝不动了( •̩̩̩̩＿•̩̩̩̩ )
-
-
-
-
-
 
 
 -----
@@ -27004,14 +17787,7 @@ NND，这次太豪华了吧。
 ##### 1453#       发表于 2016-3-29 12:39
 
 
-
-
 刚好进坑几天来个这么豪华的..我是不是多开几个号抽看哪个厉害好..
-
-
-
-
-
 
 
 -----
@@ -27020,14 +17796,7 @@ NND，这次太豪华了吧。
 ##### 1454#       发表于 2016-3-29 12:42
 
 
-
-
 这次真是大手笔，惊了
-
-
-
-
-
 
 
 -----
@@ -27036,14 +17805,7 @@ NND，这次太豪华了吧。
 ##### 1455#       发表于 2016-3-29 13:53
 
 
-
-
 多开小号
-
-
-
-
-
 
 
 -----
@@ -27052,23 +17814,15 @@ NND，这次太豪华了吧。
 ##### 1456#       发表于 2016-3-29 15:21
 
 
-
-
 望着养猪场小号里一千多光暗珠子
 
 臣妾这次真的是肝不动了
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1457#       发表于 2016-3-29 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31978975&amp;ptid=1158205" target="_blank">沧君 发表于 2016-3-29 11:39</a>
@@ -27081,16 +17835,10 @@ NND，这次太豪华了吧。
 当一次教训吧，现在有1亿的hell牛在打1亿就躺真的太轻敌了
 
 
-
-
-
-
-
 -----
 
 ####  301个斯巴达  
 ##### 1458#       发表于 2016-3-29 17:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31978975&amp;ptid=1158205" target="_blank">沧君 发表于 2016-3-29 11:39</a>
@@ -27103,25 +17851,13 @@ NND，这次太豪华了吧。
 这个游戏的RANK只是参考并不能做为衡量战力的标准，毕竟没有COST限制这种东西80+ RANK脸好点或者课的多点比无课轻课RANK 100左右能打很正常
 
 
-
-
-
-
-
 -----
 
 ####  屈江鸟  
 ##### 1459#       发表于 2016-3-29 18:17
 
 
-
-
 7个单抽券+2个10连券+免费10连，萌王学妹高文，恩，还不错
-
-
-
-
-
 
 
 -----
@@ -27130,14 +17866,7 @@ NND，这次太豪华了吧。
 ##### 1460#       发表于 2016-3-29 19:26
 
 
-
-
 9R+保底SR...被诅咒了
-
-
-
-
-
 
 
 -----
@@ -27146,14 +17875,7 @@ NND，这次太豪华了吧。
 ##### 1461#       发表于 2016-3-29 19:29
 
 
-
-
 两次票十连三次石头十连结果就4个SSR……角色出了セルエル和齐格弗里德还有个カルメリーナ，召唤石就一个雅典娜，现在我土队可以把爱梨换下去上齐格弗里德了么
-
-
-
-
-
 
 
 -----
@@ -27162,14 +17884,7 @@ NND，这次太豪华了吧。
 ##### 1462#       发表于 2016-3-29 21:27
 
 
-
-
 恩，刚刚抽了送的10抽，中了藤原大叔，现在土队已组成剑圣、藤原叔和莎菈，后排还有爱生和力也叔，算完整了吧。
-
-
-
-
-
 
 
 -----
@@ -27178,16 +17893,9 @@ NND，这次太豪华了吧。
 ##### 1463#       发表于 2016-3-29 22:53
 
 
-
-
 234抽出了7角色1召唤，10金月
 
 一共就没几个角色，怎么能这么多重复
-
-
-
-
-
 
 
 -----
@@ -27196,16 +17904,9 @@ NND，这次太豪华了吧。
 ##### 1464#       发表于 2016-3-29 22:56
 
 
-
-
 40抽就一个格拉尼。
 
 泳装抽以来最黑的一次，不过也无所谓了。
-
-
-
-
-
 
 
 -----
@@ -27214,22 +17915,13 @@ NND，这次太豪华了吧。
 ##### 1465#       发表于 2016-3-29 23:02
 
 
-
-
 47抽5ssr，感觉还行，尤其是有了ssr卡姐
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1466#       发表于 2016-3-30 02:07
-
-
 
 
 30抽就一个SSR……
@@ -27239,16 +17931,10 @@ NND，这次太豪华了吧。
 请问这个是不是配合混搭队来用的？
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1467#       发表于 2016-3-30 02:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31985958&amp;ptid=1158205" target="_blank">pzk 发表于 2016-3-30 02:07</a>
@@ -27261,16 +17947,10 @@ NND，这次太豪华了吧。
 村姑是哪位？莎拉吗
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1468#       发表于 2016-3-30 03:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31985976&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-30 02:17</a>
@@ -27281,25 +17961,13 @@ NND，这次太豪华了吧。
 技能是单体两回合幻影，四属性aoe和四属性攻击提升
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1469#       发表于 2016-3-30 04:19
 
 
-
-
 哇又出了个ソシエ，这个技能感觉和黑剑士好像……
-
-
-
-
-
 
 
 -----
@@ -27308,14 +17976,7 @@ NND，这次太豪华了吧。
 ##### 1470#       发表于 2016-3-30 08:13
 
 
-
-
 41抽3SSR,平均概率吧,我要是等这波70连过去再买初始入坑好了...
-
-
-
-
-
 
 
 -----
@@ -27324,23 +17985,15 @@ NND，这次太豪华了吧。
 ##### 1471#       发表于 2016-3-30 08:15
 
 
-
-
 土loli最强盾？
 
 一般是叫sara，你说那个是佐仓吧
-
-
-
-
-
 
 
 -----
 
 ####  d.adam  
 ##### 1472#       发表于 2016-3-30 08:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31986165&amp;ptid=1158205" target="_blank">pzk 发表于 2016-3-30 04:19</a>
@@ -27352,16 +18005,10 @@ NND，这次太豪华了吧。
 包括水狐狸，南半球什么的，不过后来都
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1473#       发表于 2016-3-30 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31986542&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-3-30 08:15</a>
@@ -27372,17 +18019,10 @@ NND，这次太豪华了吧。
 不不不，是风系的，有个四属性aoe，被动是每回合群体回血
 
 
-
-
-
-
-
 -----
 
 ####  d.adam  
 ##### 1474#       发表于 2016-3-30 09:19
-
-
 
 
 哦。。桑岛配音的那个。。。
@@ -27391,25 +18031,13 @@ NND，这次太豪华了吧。
 好像一直直接喊桑岛了，这简称还真是，容易把人搞混
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1475#       发表于 2016-3-30 09:48
 
 
-
-
 桑岛超强啊，确实可以搭除了光暗以外的杂用
-
-
-
-
-
 
 
 -----
@@ -27420,20 +18048,13 @@ NND，这次太豪华了吧。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gyfsgm  
 ##### 1477#       发表于 2016-3-30 15:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">40连毛也没有掉!6%真是惊人，以前最多3个10连一定能出了。
-
-
-
-
-
 
 
 -----
@@ -27442,21 +18063,13 @@ NND，这次太豪华了吧。
 ##### 1478#       发表于 2016-3-30 16:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">被CY吞了十连，现在悲痛欲绝中
-
-
-
-
-
 
 
 -----
 
 ####  RP城的老B样  
 ##### 1479#       发表于 2016-3-30 16:50
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201603/30/164836zp5k1rt15t8egkcb.png" referrerpolicy="no-referrer">
@@ -27469,9 +18082,6 @@ NND，这次太豪华了吧。
 2016-3-30 16:48 上传
 
 
-
-
-
 <img src="http://img.saraba1st.com/forum/201603/30/164838eyyh7h4wafzfnzfv.png" referrerpolicy="no-referrer">
 
 
@@ -27480,9 +18090,6 @@ NND，这次太豪华了吧。
 下载附件
 
 2016-3-30 16:48 上传
-
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201603/30/164839h7r6ro1qrsqq1yyq.png" referrerpolicy="no-referrer">
@@ -27495,17 +18102,7 @@ NND，这次太豪华了吧。
 2016-3-30 16:48 上传
 
 
-
-
-
-
-
 昨天抽完总共60连的结果……同期玩的人昨天过后基本都是十多个SSR角色了，有的连路西法都有了，我这号还有得救么……还是直接扔了重买个巴路杂开
-
-
-
-
-
 
 
 -----
@@ -27514,17 +18111,10 @@ NND，这次太豪华了吧。
 ##### 1480#       发表于 2016-3-30 17:52
 
 
-
-
 这两天每天发10连，多开几个号，刷刷再说。
 
 
 而且之后的号肯定价格下降的
-
-
-
-
-
 
 
 -----
@@ -27533,23 +18123,16 @@ NND，这次太豪华了吧。
 ##### 1481#       发表于 2016-3-30 18:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31992162&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-30 16:50</a>
 
 昨天抽完总共60连的结果……同期玩的人昨天过后基本都是十多个SSR角色了，有的连路西法都有了，我这号还 ...</blockquote>
 没路巴杂一样玩的，不过你这土队开局我建议还是买个初始重开现在路巴杂其一初始好像也就100块了
 
 
-
-
-
-
-
 -----
 
 ####  RP城的老B样  
 ##### 1482#       发表于 2016-3-30 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31992763&amp;ptid=1158205" target="_blank">天天座理世 发表于 2016-3-30 18:07</a>
@@ -27560,16 +18143,10 @@ NND，这次太豪华了吧。
 看样子是真没救了，等这段时间的十连抽完看看好了<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1483#       发表于 2016-3-30 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31992935&amp;ptid=1158205" target="_blank">RP城的老B样 发表于 2016-3-30 18:28</a>
@@ -27578,25 +18155,13 @@ NND，这次太豪华了吧。
 花点钱买个初始号总比玩久了想要某几个人和召唤然后抽不出的好
 
 
-
-
-
-
-
 -----
 
 ####  Junchoon  
 ##### 1484#       发表于 2016-3-30 22:21
 
 
-
-
 请问这游戏IOS端和页游端数据共享吗？谢谢
-
-
-
-
-
 
 
 -----
@@ -27605,16 +18170,10 @@ NND，这次太豪华了吧。
 ##### 1485#       发表于 2016-3-30 22:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31995080&amp;ptid=1158205" target="_blank">Junchoon 发表于 2016-3-30 22:21</a>
 
 请问这游戏IOS端和页游端数据共享吗？谢谢</blockquote>
 当然，跟着mobage帐号走的
-
-
-
-
-
 
 
 -----
@@ -27625,29 +18184,19 @@ NND，这次太豪华了吧。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  屈江鸟  
 ##### 1487#       发表于 2016-3-30 23:52
 
 
-
-
 这次活动彻底咸鱼，不过武器抽满了，下次进个稍微好点的团试试进本战吧
-
-
-
-
-
 
 
 -----
 
 ####  Junchoon  
 ##### 1488#       发表于 2016-3-30 23:56
-
-
 
 
 好吧，我原本以为隔壁舰娘已经是11区程序猿的下限了，今天才是真正开眼......试了三种方式，居然还是直接网页页面好用......
@@ -27657,27 +18206,15 @@ NND，这次太豪华了吧。
 PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩！
 
 
-
-
-
-
-
 -----
 
 ####  kitagawa  
 ##### 1489#       发表于 2016-3-31 00:10
 
 
-
-
 各位古战场乙 这次也算是一个新里程碑了吧？以往各种数据基本失效
 
 预选2.23亿 个人榜3.1亿 出了新的100级hell<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -27686,16 +18223,10 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 ##### 1490#       发表于 2016-3-31 00:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31996007&amp;ptid=1158205" target="_blank">Junchoon 发表于 2016-3-30 23:56</a>
 
 好吧，我原本以为隔壁舰娘已经是11区程序猿的下限了，今天才是真正开眼......试了三种方式，居然还是直接网 ...</blockquote>
 露莉亚笔记，主界面右边正中间Town之后下面右边那个
-
-
-
-
-
 
 
 -----
@@ -27704,16 +18235,9 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 ##### 1491#       发表于 2016-3-31 00:43
 
 
-
-
 请问有什么快速赚金币的方法吗？
 
 抽完之后噼里啪啦一通强化，结果没钱了……！
-
-
-
-
-
 
 
 -----
@@ -27722,14 +18246,7 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 ##### 1492#       发表于 2016-3-31 01:05
 
 
-
-
 宫斗材料
-
-
-
-
-
 
 
 -----
@@ -27738,21 +18255,13 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 ##### 1493#       发表于 2016-3-31 01:07
 
 
-
-
 宫斗刷金色边的物品，古铜，珊瑚，风羽什么的，5000一个
-
-
-
-
-
 
 
 -----
 
 ####  pzk  
 ##### 1494#       发表于 2016-3-31 02:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31996652&amp;ptid=1158205" target="_blank">d.adam 发表于 2016-3-31 01:07</a>
@@ -27763,16 +18272,10 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 我还以为是攒着换其他东西的呢
 
 
-
-
-
-
-
 -----
 
 ####  カリオストロ  
 ##### 1495#       发表于 2016-3-31 03:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31996447&amp;ptid=1158205" target="_blank">pzk 发表于 2016-3-31 00:43</a>
@@ -27783,16 +18286,10 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 卖共斗材料，抽团战箱子，四象活动花点数买，这些都是比较快赚钱的方法
 
 
-
-
-
-
-
 -----
 
 ####  pzk  
 ##### 1496#       发表于 2016-3-31 03:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31997248&amp;ptid=1158205" target="_blank">カリオストロ 发表于 2016-3-31 03:35</a>
@@ -27801,25 +18298,13 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 多谢，主要是之前从来没参加过共斗所以对这个完全不了解
 
 
-
-
-
-
-
 -----
 
 ####  fornoby  
 ##### 1497#       发表于 2016-3-31 04:03
 
 
-
-
 连续3天十连没SSR【包括重复的】，出了个小马还是已经满破的属性，不信这里有人比我非
-
-
-
-
-
 
 
 -----
@@ -27828,23 +18313,15 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 ##### 1498#       发表于 2016-3-31 05:51
 
 
-
-
 今天抽到一个暗属性的灰（or格蕾？）夫人，一看到三技能是个毒……
 
 是不是很没用啊……
-
-
-
-
-
 
 
 -----
 
 ####  カリオストロ  
 ##### 1499#       发表于 2016-3-31 06:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31997397&amp;ptid=1158205" target="_blank">pzk 发表于 2016-3-31 05:51</a>
@@ -27857,16 +18334,10 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 是游戏里为数不多的30%单面大破甲，终解后更是能当SLOW用
 
 
-
-
-
-
-
 -----
 
 ####  osore  
 ##### 1500#       发表于 2016-3-31 08:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=31995939&amp;ptid=1158205" target="_blank">oyss1225 发表于 2016-3-30 23:50</a>
@@ -27878,8 +18349,5 @@ PS：网页注册能用hotmail，但移动端无法使用，你简直逗我玩�
 据说会算属性的攻刃，但不算巴武
 
 自动装备的基础上手动微调一下就好
-
-
-
 
 

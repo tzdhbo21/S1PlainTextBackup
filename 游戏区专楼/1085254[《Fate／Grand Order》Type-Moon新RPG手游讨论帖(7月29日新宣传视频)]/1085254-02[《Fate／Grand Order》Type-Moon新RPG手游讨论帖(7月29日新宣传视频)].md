@@ -1,23 +1,15 @@
 > ## **本文件最后更新于2021-01-04 16:24** 
 
 
-
 -----
 
 ####  gugu135  
 ##### 1501#       发表于 2015-8-22 16:49
 
 
-
-
 遇到强敌枪狗每次都是活到最后的，日天跪了他都站着，蓄满了兴许还能来下即死
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
@@ -26,13 +18,7 @@
 ##### 1502#       发表于 2015-8-22 16:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">冲着汪酱玩的结果现在也没看见汪酱
-
-
-
-
-
 
 
 -----
@@ -41,13 +27,7 @@
 ##### 1503#       发表于 2015-8-22 18:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">萌新 求大腿刷狗粮
-
-
-
-
-
 
 
 -----
@@ -56,13 +36,7 @@
 ##### 1504#       发表于 2015-8-22 18:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">盾女怎么才能突破？ 剧情吗？
-
-
-
-
-
 
 
 -----
@@ -71,14 +45,7 @@
 ##### 1505#       发表于 2015-8-22 18:59
 
 
-
-
 今天好容易把黑水桶肝到60，看了眼突破材料整个人都陷入了无可名状的恐惧之中。
-
-
-
-
-
 
 
 -----
@@ -87,24 +54,16 @@
 ##### 1506#       发表于 2015-8-22 19:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29935833&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-8-22 18:43</a>
 
 盾女怎么才能突破？ 剧情吗？</blockquote>
 对，第二章过后会一破，和等级应该无关
 
 
-
-
-
-
-
 -----
 
 ####  saber614  
 ##### 1507#       发表于 2015-8-22 22:09
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201508/22/220816k91jc8f1xx3ctc8j.jpg" referrerpolicy="no-referrer">
@@ -117,16 +76,7 @@
 2015-8-22 22:08 上传
 
 
-
-
-
-
 真想把这圣洁的笑容给……
-
-
-
-
-
 
 
 -----
@@ -135,17 +85,10 @@
 ##### 1508#       发表于 2015-8-22 22:35
 
 
-
-
 我现在的FGO已经成了基佬大队：穿刺公飞哥大狗大帝小次郎<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
 女性servant？好像没实装呢<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -154,23 +97,16 @@
 ##### 1509#       发表于 2015-8-23 02:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29935070&amp;ptid=1085254" target="_blank">ulir 发表于 2015-8-22 16:59</a>
 
 冲着汪酱玩的结果现在也没看见汪酱</blockquote>
 序章过了不就送一只汪酱？虽然毛色不同
 
 
-
-
-
-
-
 -----
 
 ####  zmxlegend  
 ##### 1510#       发表于 2015-8-23 05:43
-
 
 
  本帖最后由 zmxlegend 于 2015-8-23 06:06 编辑 
@@ -189,16 +125,10 @@
 这个我觉得是bug吧。。有没有日文好的大大考虑给官方反映下。。
 
 
-
-
-
-
-
 -----
 
 ####  zmxlegend  
 ##### 1511#       发表于 2015-8-23 05:46
-
 
 
 [http://blogs.nrvnqsr.com/entry.php/3308-Attribute-Relationship](http://blogs.nrvnqsr.com/entry.php/3308-Attribute-Relationship)
@@ -243,16 +173,10 @@ Star        Romulus, Wolfgang Amadeus Mozart, Jeanne d'Arc
 这也是为什么很多人黑呆毛攻击低，为什么B叔攻击高的另一个原因。。
 
 
-
-
-
-
-
 -----
 
 ####  zmxlegend  
 ##### 1512#       发表于 2015-8-23 05:48
-
 
 
  本帖最后由 zmxlegend 于 2015-8-23 05:50 编辑 
@@ -272,32 +196,19 @@ Star        Romulus, Wolfgang Amadeus Mozart, Jeanne d'Arc
 星和NP的获得
 
 
-
-
-
-
-
 -----
 
 ####  -v-  
 ##### 1513#       发表于 2015-8-23 07:11
 
 
-
-
 诶那意思是说我的黑呆毛和呆毛莉莉一点都派不上用场咯<img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
 
 ####  影后喵酱  
 ##### 1514#       发表于 2015-8-23 07:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29939369&amp;ptid=1085254" target="_blank">-v- 发表于 2015-8-23 07:11</a>
@@ -308,16 +219,10 @@ Star        Romulus, Wolfgang Amadeus Mozart, Jeanne d'Arc
 莉莉嘛，这作就是个吉祥物的位置了
 
 
-
-
-
-
-
 -----
 
 ####  星空寂  
 ##### 1515#       发表于 2015-8-23 08:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29939297&amp;ptid=1085254" target="_blank">zmxlegend 发表于 2015-8-23 05:46</a>
@@ -331,25 +236,13 @@ Attacker / Defender        Man        Sky        Earth        St
 按这名单看之后迦尔纳阿周那这些人估计也是天之英灵
 
 
-
-
-
-
-
 -----
 
 ####  zmxlegend  
 ##### 1516#       发表于 2015-8-23 08:03
 
 
-
-
 呆毛和莉莉是地，黑呆毛是人（不要问我为什么
-
-
-
-
-
 
 
 -----
@@ -358,24 +251,16 @@ Attacker / Defender        Man        Sky        Earth        St
 ##### 1517#       发表于 2015-8-23 08:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29939497&amp;ptid=1085254" target="_blank">zmxlegend 发表于 2015-8-23 08:03</a>
 
 呆毛和莉莉是地，黑呆毛是人（不要问我为什么</blockquote>
 最好笑不是莫扎特还是星吗
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1518#       发表于 2015-8-23 09:59
-
-
 
 
 按蘑菇当年划分的，“星”在“神”之上。公主就是“星”。但这俩“星”是不是一个含义就另当别论了。
@@ -387,17 +272,10 @@ Attacker / Defender        Man        Sky        Earth        St
 而且好像红茶在剧情里介绍莫扎特是人...不知道为啥划分成星。
 
 
-
-
-
-
-
 -----
 
 ####  at逆风  
 ##### 1519#       发表于 2015-8-23 10:28
-
-
 
 
 这破游戏的系统真是极尽折腾之能......
@@ -406,25 +284,13 @@ Attacker / Defender        Man        Sky        Earth        St
 能总结出公式的也是神人啊......
 
 
-
-
-
-
-
 -----
 
 ####  03026829  
 ##### 1520#       发表于 2015-8-23 10:34
 
 
-
-
 三章以降：S兰斯，黑皮弓，二姐，阿提密斯，师匠，小恩，布伦希尔德，伪娘，埃及王，小玉，达芬奇，博士，开膛手杰克
-
-
-
-
-
 
 
 -----
@@ -433,22 +299,13 @@ Attacker / Defender        Man        Sky        Earth        St
 ##### 1521#       发表于 2015-8-23 11:17
 
 
-
-
 这蛇之宝玉掉率到底多低，人物从67升到77还是一个到看不到
-
-
-
-
-
 
 
 -----
 
 ####  manafox  
 ##### 1522#       发表于 2015-8-23 11:27
-
-
 
 
 然而地的怪物 Dragon Tooth Soldier, Wyvern, Dragon, Lamia, Centaur, Chimera, Werewolf, Werejaguar, Goblin
@@ -461,17 +318,10 @@ Attacker / Defender        Man        Sky        Earth        St
 强度来看地》天》人，所以地的英灵pve反而不错呢
 
 
-
-
-
-
-
 -----
 
 ####  erlic  
 ##### 1523#       发表于 2015-8-23 11:49
-
-
 
 
 archer灵基再临的素材是哪里刷的
@@ -480,17 +330,10 @@ archer灵基再临的素材是哪里刷的
 这游戏有wiki吗<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1524#       发表于 2015-8-23 12:15
-
-
 
 
 哦艹，真的吞AP<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
@@ -499,16 +342,10 @@ archer灵基再临的素材是哪里刷的
 选了援助的队友后进去卡住黑屏重连，出来就扣了双倍的AP...
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1525#       发表于 2015-8-23 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29939298&amp;ptid=1085254" target="_blank">zmxlegend 发表于 2015-8-23 05:48</a>
@@ -520,16 +357,10 @@ http://blogs.nrvnqsr.com/entry.php/3309-How-is-damage-calculated
 。。。看不懂英文，有没有人转载翻译一下！
 
 
-
-
-
-
-
 -----
 
 ####  蒼い咎跡  
 ##### 1526#       发表于 2015-8-23 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29940995&amp;ptid=1085254" target="_blank">erlic 发表于 2015-8-23 11:49</a>
@@ -541,16 +372,10 @@ archer灵基再临的素材是哪里刷的
 种子的话刷第一章freeワインで乾杯
 
 
-
-
-
-
-
 -----
 
 ####  星空寂  
 ##### 1527#       发表于 2015-8-23 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29940072&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-8-23 09:59</a>
@@ -562,16 +387,10 @@ archer灵基再临的素材是哪里刷的
 公主那个“星”是指星球意志的代行者，和八大UO同样的属性，和星之英灵两回事了
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1528#       发表于 2015-8-23 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29941820&amp;ptid=1085254" target="_blank">星空寂 发表于 2015-8-23 13:42</a>
@@ -583,16 +402,10 @@ FE里面不是也有Berserker职介公主么？
 估计要划分也肯定是星。
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 1529#       发表于 2015-8-23 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29940280&amp;ptid=1085254" target="_blank">at逆风 发表于 2015-8-23 10:28</a>
@@ -604,16 +417,10 @@ FE里面不是也有Berserker职介公主么？
 公式应该都是拆包看代码看出来的。
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 1530#       发表于 2015-8-23 14:18
-
 
 
  本帖最后由 vleev 于 2015-9-21 01:18 编辑 
@@ -621,16 +428,10 @@ FE里面不是也有Berserker职介公主么？
 [fategowiki](http://www9.atwiki.jp/f_go/) 贴吧看到的
 
 
-
-
-
-
-
 -----
 
 ####  星空寂  
 ##### 1531#       发表于 2015-8-23 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29941851&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-8-23 13:46</a>
@@ -642,32 +443,19 @@ FE里面不是也有Berserker职介公主么？
 FE里面因为因为Master理解错误的关系从星降了一级变成神，导致没法发挥本来的机能233
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 1532#       发表于 2015-8-23 15:05
 
 
-
-
 哦草又被吞掉20AP……
-
-
-
-
-
 
 
 -----
 
 ####  erlic  
 ##### 1533#       发表于 2015-8-23 15:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29941525&amp;ptid=1085254" target="_blank">蒼い咎跡 发表于 2015-8-23 12:58</a>
@@ -679,16 +467,10 @@ FE里面因为因为Master理解错误的关系从星降了一级变成神，导
 总之，先去刷刷看
 
 
-
-
-
-
-
 -----
 
 ####  erlic  
 ##### 1534#       发表于 2015-8-23 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29942088&amp;ptid=1085254" target="_blank">vleev 发表于 2015-8-23 14:18</a>
@@ -700,33 +482,19 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 现在可以慢慢看了。。
 
 
-
-
-
-
-
 -----
 
 ####  岸波白野  
 ##### 1535#       发表于 2015-8-23 23:08
 
 
-
-
 疯了，从下午开始肝硬砸了好几个石头经验本就掉一个蛇眼
-
-
-
-
-
 
 
 -----
 
 ####  wangandh  
 ##### 1536#       发表于 2015-8-24 02:06
-
-
 
 
 淦，呆毛的宝具升级任务圣剑觉醒……
@@ -736,16 +504,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 之前吃卡升过级的岂不是果断亏了
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1537#       发表于 2015-8-24 04:55
-
 
 
  本帖最后由 ulir 于 2015-8-24 04:57 编辑 
@@ -757,16 +519,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 7连友情抽居然出了2个银狗粮
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1538#       发表于 2015-8-24 08:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29947809&amp;ptid=1085254" target="_blank">ulir 发表于 2015-8-24 04:55</a>
@@ -776,18 +532,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 <img src="http://i108.photobucket.com/albums/n36/gamenpc/Screenshot_2015-08-18-12-56-17_zpsvcoiingz.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1539#       发表于 2015-8-24 09:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29948377&amp;ptid=1085254" target="_blank">gulant 发表于 2015-8-24 08:58</a>
@@ -798,16 +546,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 一般技能是持续3回合的所以通常单一技能只能叠4个？旧枪这个也太屌……
 
 
-
-
-
-
-
 -----
 
 ####  williamgdd  
 ##### 1540#       发表于 2015-8-24 09:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29947809&amp;ptid=1085254" target="_blank">ulir 发表于 2015-8-24 04:55</a>
@@ -822,16 +564,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 都是出了两个弓兵。。
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1541#       发表于 2015-8-24 09:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29948503&amp;ptid=1085254" target="_blank">ulir 发表于 2015-8-24 09:12</a>
@@ -842,16 +578,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 好像是上个星期其中某一天任务有可以打到金闪闪那个吧，忘记了orz
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 1542#       发表于 2015-8-24 11:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29948377&amp;ptid=1085254" target="_blank">gulant 发表于 2015-8-24 08:58</a>
@@ -860,25 +590,13 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 脸黑一直战斗续行/加回避然后活活把你耗死,我有打海格和大狗都碰上过了
 
 
-
-
-
-
-
 -----
 
 ####  275957048  
 ##### 1543#       发表于 2015-8-24 11:50
 
 
-
-
 攻击buff看敌人的好像最多也不会超过4个。。
-
-
-
-
-
 
 
 -----
@@ -887,23 +605,15 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1544#       发表于 2015-8-24 13:16
 
 
-
-
 狗粮根本不够用啊，早上打了4个20体只有一个金狗粮<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 2个五星升起来好吃力
-
-
-
-
-
 
 
 -----
 
 ####  eilot  
 ##### 1545#       发表于 2015-8-24 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29949689&amp;ptid=1085254" target="_blank">枫紫 发表于 2015-8-24 11:00</a>
@@ -915,24 +625,13 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 不過感覺上不像效果累加，而是維持回合能數永不間隔...
 
 
-
-
-
-
-
 -----
 
 ####  jy02819746  
 ##### 1546#       发表于 2015-8-24 20:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer"> 黑无毛那个绊任务不知道有那么多龙随便选了个caster被活活日死
-
-
-
-
-
 
 
 -----
@@ -941,23 +640,16 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1547#       发表于 2015-8-24 20:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29955323&amp;ptid=1085254" target="_blank">jy02819746 发表于 2015-8-24 20:05</a>
 
 黑无毛那个绊任务不知道有那么多龙随便选了个caster被活活日死</blockquote>
 15ap 那个拌任务怎么解锁？
 
 
-
-
-
-
-
 -----
 
 ####  黑沢逢世  
 ##### 1548#       发表于 2015-8-24 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29955693&amp;ptid=1085254" target="_blank">shanajiang 发表于 2015-8-24 20:46</a>
@@ -972,16 +664,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 3.英灵的绊满
 
 
-
-
-
-
-
 -----
 
 ####  shanajiang  
 ##### 1549#       发表于 2015-8-24 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29955728&amp;ptid=1085254" target="_blank">黑沢逢世 发表于 2015-8-24 20:49</a>
@@ -994,25 +680,13 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 我之前一破解锁一个10ap的任务...打通后又出来个15ap的...
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 1550#       发表于 2015-8-24 22:07
 
 
-
-
 这龙牙该去哪里刷比较好 打了三把大空洞毛都见不到<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1021,23 +695,16 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1551#       发表于 2015-8-24 22:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29955802&amp;ptid=1085254" target="_blank">shanajiang 发表于 2015-8-24 20:58</a>
 
 我之前一破解锁一个10ap的任务...打通后又出来个15ap的...</blockquote>
 那估计就是二破了嘛……
 
 
-
-
-
-
-
 -----
 
 ####  kaji  
 ##### 1552#       发表于 2015-8-24 22:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29956440&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-8-24 22:07</a>
@@ -1048,16 +715,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 之后的混沌爪才是问题……
 
 
-
-
-
-
-
 -----
 
 ####  岸波白野  
 ##### 1553#       发表于 2015-8-24 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29956440&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-8-24 22:07</a>
@@ -1066,16 +727,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 这游戏素材掉率就是这么感人，龙牙这种还算好了free就能出，还有一堆现在只有日常本才出的更恶心
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 1554#       发表于 2015-8-24 22:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29956440&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-8-24 22:07</a>
@@ -1084,25 +739,13 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 才三把就像见到？ 你想多了。
 
 
-
-
-
-
-
 -----
 
 ####  ixtli  
 ##### 1555#       发表于 2015-8-24 23:59
 
 
-
-
 金棋子是刷20AP本好还是40AP本好？
-
-
-
-
-
 
 
 -----
@@ -1111,14 +754,7 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1556#       发表于 2015-8-25 08:26
 
 
-
-
 贞德第二个技能是不是花瓶，未曾成功过<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1127,16 +763,9 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1557#       发表于 2015-8-25 08:42
 
 
-
-
 4星刺客的寶具是搞笑嗎?男性機率即死...但未成功過
 
 打一般怪物如綠龍、紅龍、金錢門等又是未成功過
-
-
-
-
-
 
 
 -----
@@ -1145,15 +774,9 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1558#       发表于 2015-8-25 08:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29957388&amp;ptid=1085254" target="_blank">ixtli 发表于 2015-8-24 23:59</a>
 金棋子是刷20AP本好还是40AP本好？</blockquote>
 能刷40的就刷40的
-
-
-
-
-
 
 
 -----
@@ -1162,15 +785,9 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1559#       发表于 2015-8-25 09:30
 
 
-
 <blockquote>gulant 发表于 2015-8-25 08:26
 贞德第二个技能是不是花瓶，未曾成功过</blockquote>
 限定对servant用，你该不会对杂兵用了吧
-
-
-
-
-
 
 
 -----
@@ -1179,16 +796,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1560#       发表于 2015-8-25 09:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29959209&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-8-25 09:30</a>
 
 限定对servant用，你该不会对杂兵用了吧</blockquote>
 好像是……<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1197,21 +808,13 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 ##### 1561#       发表于 2015-8-25 10:17
 
 
-
-
 现在登录不送石头了？连续两天显示有但没拿到了。。。
-
-
-
-
-
 
 
 -----
 
 ####  月千一夜  
 ##### 1562#       发表于 2015-8-25 11:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29959728&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-8-25 10:17</a>
@@ -1223,16 +826,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 大概这样吧
 
 
-
-
-
-
-
 -----
 
 ####  warachia  
 ##### 1563#       发表于 2015-8-25 11:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29958774&amp;ptid=1085254" target="_blank">eilot 发表于 2015-8-25 08:42</a>
@@ -1243,16 +840,10 @@ http://www9.atwiki.jp/f_go/pages/172.html 贴吧看到的</blockquote>
 boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对男性的即死对于性别不明的敌人无效。
 
 
-
-
-
-
-
 -----
 
 ####  yuugi  
 ##### 1564#       发表于 2015-8-25 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29959728&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-8-25 10:17</a>
@@ -1267,16 +858,10 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 还有总的连续登录奖励，如第20天是4个
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 1565#       发表于 2015-8-25 12:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29960866&amp;ptid=1085254" target="_blank">warachia 发表于 2015-8-25 11:57</a>
@@ -1296,32 +881,19 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 突破後給多一招魅了，又不是必中...
 
 
-
-
-
-
-
 -----
 
 ####  千手丸  
 ##### 1566#       发表于 2015-8-25 14:34
 
 
-
-
 话说打三骑士对决遇上了无限心眼or避矢的红A或大狗怎么破<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  雪基百科  
 ##### 1567#       发表于 2015-8-25 15:18
-
 
 
 <blockquote>月千一夜 发表于 2015-8-25 11:32
@@ -1333,16 +905,10 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 好惨。。。。不磕金就没有未来的感觉
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1568#       发表于 2015-8-25 15:20
-
 
 
 <blockquote>yuugi 发表于 2015-8-25 12:32
@@ -1354,17 +920,10 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 原来如此。。谢谢
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1569#       发表于 2015-8-25 15:25
-
-
 
 
 安徒生绊3有说到黑幕什么的，有人推测得出来是啥么
@@ -1373,16 +932,10 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 　「愛も恋も人の欠陥にして最大の特殊スキルだが、今回の話は少し違うな。黒幕とやらは、さぞ愛のない獣に違いない。そのくせ夢ばかりは人一倍だ。」
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 1570#       发表于 2015-8-25 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29962497&amp;ptid=1085254" target="_blank">千手丸 发表于 2015-8-25 14:34</a>
@@ -1395,16 +948,10 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 之前打1星小次郎也被他連續開了4次偽心眼，直接S/L重打
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1571#       发表于 2015-8-25 17:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29962497&amp;ptid=1085254" target="_blank">千手丸 发表于 2015-8-25 14:34</a>
@@ -1413,27 +960,15 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 不会无限吧，最多也就持续好多回合，当然能不能和对方耗也是一个问题。
 
 
-
-
-
-
-
 -----
 
 ####  千手丸  
 ##### 1572#       发表于 2015-8-25 17:48
 
 
-
-
 看来以后遇到要第一回合就先手秒了他
 
 遇到过一个连续6个回合无敌的红A，耗得差点让他开出两次UBW，要是没大腿贞德全防就灭了<img src="https://static.saraba1st.com/image/smiley/face/104.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1442,16 +977,10 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 ##### 1573#       发表于 2015-8-25 18:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29959728&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-8-25 10:17</a>
 
 现在登录不送石头了？连续两天显示有但没拿到了。。。</blockquote>
 貌似是连续一周送两个
-
-
-
-
-
 
 
 -----
@@ -1460,16 +989,9 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 ##### 1574#       发表于 2015-8-25 18:45
 
 
-
-
 这进化素材的本掉率到底有多低。
 
 2把40AP的只掉了2个银旗子。。。
-
-
-
-
-
 
 
 -----
@@ -1478,16 +1000,10 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 ##### 1575#       发表于 2015-8-25 18:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29962497&amp;ptid=1085254" target="_blank">千手丸 发表于 2015-8-25 14:34</a>
 
 话说打三骑士对决遇上了无限心眼or避矢的红A或大狗怎么破</blockquote>
 认命喷体力吧
-
-
-
-
-
 
 
 -----
@@ -1496,16 +1012,10 @@ boss级别敌人即死抗性高，就算是100%即死也不容易成功。针对
 ##### 1576#       发表于 2015-8-25 19:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29962497&amp;ptid=1085254" target="_blank">千手丸 发表于 2015-8-25 14:34</a>
 
 话说打三骑士对决遇上了无限心眼or避矢的红A或大狗怎么破</blockquote>
 S/L
-
-
-
-
-
 
 
 -----
@@ -1516,12 +1026,10 @@ S/L
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  椿美絵  
 ##### 1578#       发表于 2015-8-26 02:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29962999&amp;ptid=1085254" target="_blank">ulir 发表于 2015-8-25 15:25</a>
@@ -1533,26 +1041,14 @@ S/L
 剧情讨论推荐k岛tm版
 
 
-
-
-
-
-
 -----
 
 ####  月千一夜  
 ##### 1579#       发表于 2015-8-26 08:05
 
 
-
-
 对决本材料掉率太感人了
 希望有对决本消耗减半的活动吧
-
-
-
-
-
 
 
 -----
@@ -1561,14 +1057,7 @@ S/L
 ##### 1580#       发表于 2015-8-26 09:04
 
 
-
-
 抽到贞德的概率是不是5星从者中最高的？
-
-
-
-
-
 
 
 -----
@@ -1577,14 +1066,7 @@ S/L
 ##### 1581#       发表于 2015-8-26 12:12
 
 
-
-
 今天维护送4石
-
-
-
-
-
 
 
 -----
@@ -1593,15 +1075,9 @@ S/L
 ##### 1582#       发表于 2015-8-26 13:09
 
 
-
 <blockquote>gulant 发表于 2015-8-26 09:04
 抽到贞德的概率是不是5星从者中最高的？</blockquote>
 村夫和大公吧
-
-
-
-
-
 
 
 -----
@@ -1610,17 +1086,10 @@ S/L
 ##### 1583#       发表于 2015-8-26 13:11
 
 
-
-
 还差1点AP刷高级本遇维护<img src="https://static.saraba1st.com/image/smiley/face/169.jpg" referrerpolicy="no-referrer">
 
 
 ----发送自 [OnePlus A0001,Android 5.0.2](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -1629,16 +1098,10 @@ S/L
 ##### 1584#       发表于 2015-8-26 14:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29949689&amp;ptid=1085254" target="_blank">枫紫 发表于 2015-8-24 11:00</a>
 
 脸黑一直战斗续行/加回避然后活活把你耗死,我有打海格和大狗都碰上过了</blockquote>
 三破小次郎有无视闪避的技能
-
-
-
-
-
 
 
 -----
@@ -1649,12 +1112,10 @@ S/L
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 1586#       发表于 2015-8-26 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29972948&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-8-26 13:09</a>
@@ -1666,16 +1127,10 @@ S/L
 男人比女人好抽？
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1587#       发表于 2015-8-26 18:03
-
 
 
 <blockquote>brunestud 发表于 2015-8-26 18:00
@@ -1688,16 +1143,10 @@ S/L
 呆毛，贞德，阿提拉，村夫，大公
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1588#       发表于 2015-8-26 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976115&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-8-26 18:03</a>
@@ -1711,16 +1160,10 @@ S/L
 好吧，非洲人没有呆毛，想当然了。
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 1589#       发表于 2015-8-26 18:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976242&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-8-26 18:19</a>
@@ -1732,16 +1175,10 @@ S/L
 呆毛4星怎么和诸多月厨交代,人家可是人气第一啊
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 1590#       发表于 2015-8-26 18:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29973691&amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-8-26 14:23</a>
@@ -1750,16 +1187,10 @@ S/L
 但不是所有人都有3破小次郎的
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1591#       发表于 2015-8-26 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976264&amp;ptid=1085254" target="_blank">枫紫 发表于 2015-8-26 18:22</a>
@@ -1768,16 +1199,10 @@ S/L
 红A人气第二四星，但闪闪肯定5星啊..论人气大公也排不到五星啊。
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 1592#       发表于 2015-8-26 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976297&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-8-26 18:26</a>
@@ -1789,16 +1214,10 @@ S/L
 其他5星未必按人气排,但呆毛肯定按人气来啊
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 1593#       发表于 2015-8-26 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976297&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-8-26 18:26</a>
@@ -1809,32 +1228,19 @@ S/L
 論人氣她們都不差
 
 
-
-
-
-
-
 -----
 
 ####  jy02819746  
 ##### 1594#       发表于 2015-8-26 19:17
 
 
-
-
 下周能抽闪闪了
-
-
-
-
-
 
 
 -----
 
 ####  gulant  
 ##### 1595#       发表于 2015-8-26 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976670&amp;ptid=1085254" target="_blank">eilot 发表于 2015-8-26 19:08</a>
@@ -1848,17 +1254,10 @@ S/L
 旧剑应该5星吧……能进首批增加的5星队列么？
 
 
-
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1596#       发表于 2015-8-26 19:27
-
 
 
  本帖最后由 brunestud 于 2015-8-26 19:31 编辑 
@@ -1878,17 +1277,10 @@ S/L
 我现在只对大狗的老师感兴趣。
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 1597#       发表于 2015-8-26 19:32
-
-
 
 
 AP恢复5分钟1点
@@ -1898,16 +1290,10 @@ AP恢复5分钟1点
 傻逼运营终于想通了么<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  caliburn  
 ##### 1598#       发表于 2015-8-26 19:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976880&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-8-26 19:32</a>
@@ -1920,25 +1306,13 @@ AP恢复5分钟1点
 …………能不能保个四星英灵（贪心不足
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 1599#       发表于 2015-8-26 19:55
 
 
-
-
 期间限定金闪闪，运营你别的不会骗石头的技术倒是不错……
-
-
-
-
-
 
 
 -----
@@ -1947,14 +1321,7 @@ AP恢复5分钟1点
 ##### 1600#       发表于 2015-8-26 20:00
 
 
-
-
 限时建造。。。这。。。
-
-
-
-
-
 
 
 -----
@@ -1963,14 +1330,7 @@ AP恢复5分钟1点
 ##### 1601#       发表于 2015-8-26 20:08
 
 
-
-
 可以预见金闪闪开放之后用户（初始号）数量会突破500w
-
-
-
-
-
 
 
 -----
@@ -1981,12 +1341,10 @@ AP恢复5分钟1点
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  鱼缸  
 ##### 1603#       发表于 2015-8-26 20:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976942&amp;ptid=1085254" target="_blank">caliburn 发表于 2015-8-26 19:38</a>
@@ -1997,17 +1355,10 @@ AP恢复5分钟1点
 perfect
 
 
-
-
-
-
-
 -----
 
 ####  williamgdd  
 ##### 1604#       发表于 2015-8-26 20:28
-
-
 
 
 闪闪要出了，应该是最强AOE伤害了。
@@ -2022,27 +1373,15 @@ perfect
 最好红A，需要蓝卡，贞德宝具对刷狗粮没用。
 
 
-
-
-
-
-
 -----
 
 ####  BloodWingS  
 ##### 1605#       发表于 2015-8-26 21:10
 
 
-
-
 还是要感叹下这游戏登录数涨的真是快，一下就300W了
 
 这次的活动和改动还算是说明运营知错就改了，还能继续玩下去
-
-
-
-
-
 
 
 -----
@@ -2053,12 +1392,10 @@ perfect
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  乙山法純  
 ##### 1607#       发表于 2015-8-26 22:02
-
 
 
  本帖最后由 乙山法純 于 2015-8-26 22:09 编辑 
@@ -2069,17 +1406,10 @@ perfect
 三星全卖换攻HP卡，4星屯着等开双倍
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1608#       发表于 2015-8-26 22:15
-
-
 
 
 想要旧剑
@@ -2087,16 +1417,10 @@ perfect
 在意大狗师傅
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 1609#       发表于 2015-8-26 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29976942&amp;ptid=1085254" target="_blank">caliburn 发表于 2015-8-26 19:38</a>
@@ -2109,16 +1433,10 @@ perfect
 真是開玩笑
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 1610#       发表于 2015-8-26 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29977369&amp;ptid=1085254" target="_blank">鱼缸 发表于 2015-8-26 20:23</a>
@@ -2131,16 +1449,10 @@ perfect</blockquote>
 完美無霞
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1611#       发表于 2015-8-27 10:41
-
 
 
 <blockquote>williamgdd 发表于 2015-8-26 20:28
@@ -2163,13 +1475,7 @@ perfect</blockquote>
 拼地图炮，从者怪或许他强些，但是非从者怪轮不到他
 
 
-
 p.s.50级之前，群攻输出第一应当是自爆弓兵阿拉什，50级以后另说
-
-
-
-
-
 
 
 -----
@@ -2178,13 +1484,7 @@ p.s.50级之前，群攻输出第一应当是自爆弓兵阿拉什，50级以后
 ##### 1612#       发表于 2015-8-27 11:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">尼玛，刷了一上午就2个鸟毛
-
-
-
-
-
 
 
 -----
@@ -2193,21 +1493,13 @@ p.s.50级之前，群攻输出第一应当是自爆弓兵阿拉什，50级以后
 ##### 1613#       发表于 2015-8-27 13:58
 
 
-
-
 鸟毛的金箱敢不敢不出技能石头，谁要那垃圾石头啊<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  rodineye  
 ##### 1614#       发表于 2015-8-27 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29977361&amp;ptid=1085254" target="_blank">msx008 发表于 2015-8-26 20:22</a>
@@ -2218,16 +1510,10 @@ p.s.50级之前，群攻输出第一应当是自爆弓兵阿拉什，50级以后
 re，只有早上9点上班前和晚上10点到家后有空刷，本来觉得体力回的慢简直棒
 
 
-
-
-
-
-
 -----
 
 ####  williamgdd  
 ##### 1615#       发表于 2015-8-27 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29982125&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-8-27 10:41</a>
@@ -2251,16 +1537,10 @@ re，只有早上9点上班前和晚上10点到家后有空刷，本来觉得体
 现在对大多数人主力卡在70左右，90的比例很低。这个级别黑saber应该是最强的。
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1616#       发表于 2015-8-27 15:12
-
 
 
  本帖最后由 wangandh 于 2015-8-27 15:14 编辑 
@@ -2281,16 +1561,10 @@ re，只有早上9点上班前和晚上10点到家后有空刷，本来觉得体
 oc加攻击也是加额外攻击，效率不如加倍率
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1617#       发表于 2015-8-27 15:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29985187&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-8-27 15:12</a>
@@ -2304,16 +1578,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 看着FGO的贴吧里天天吵这个<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cube  
 ##### 1618#       发表于 2015-8-27 15:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29985374&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-8-27 15:25</a>
@@ -2328,17 +1596,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 大公初期要稍微艰难一点。
 
 
-
-
-
-
-
 -----
 
 ####  風卷豹  
 ##### 1619#       发表于 2015-8-27 15:48
-
-
 
 
 大公初期数值感人，然而连B叔都没有的我只能练狐狸
@@ -2346,16 +1607,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 啥时才出C阶的狐狸啊<img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1620#       发表于 2015-8-27 16:01
-
 
 
 <blockquote>brunestud 发表于 2015-8-27 15:25
@@ -2370,25 +1625,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 当然这也是相对而言……并不是说大公打不了boss或者海叔不适合清小兵之类的
 
 
-
-
-
-
-
 -----
 
 ####  cloudztj  
 ##### 1621#       发表于 2015-8-27 16:14
 
 
-
-
 能力上升的东西有次数限制吗，涨幅多少？
-
-
-
-
-
 
 
 -----
@@ -2397,16 +1640,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1622#       发表于 2015-8-27 16:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29985991&amp;ptid=1085254" target="_blank">cloudztj 发表于 2015-8-27 16:14</a>
 
 能力上升的东西有次数限制吗，涨幅多少？</blockquote>
 有上限，每个英灵最多每样吃20张。
-
-
-
-
-
 
 
 -----
@@ -2415,23 +1652,16 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1623#       发表于 2015-8-27 16:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29986026&amp;ptid=1085254" target="_blank">cube 发表于 2015-8-27 16:17</a>
 
 有上限，每个英灵最多每样吃20张。</blockquote>
 谢告知
 
 
-
-
-
-
-
 -----
 
 ####  williamgdd  
 ##### 1624#       发表于 2015-8-27 16:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29985187&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-8-27 15:12</a>
@@ -2442,11 +1672,6 @@ oc加攻击也是加额外攻击，效率不如加倍率
 30W绝对不如LV5宝具黑无毛。。
 
 
-
-
-
-
-
 -----
 
 ####  Fermata  
@@ -2455,12 +1680,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  千手丸  
 ##### 1626#       发表于 2015-8-27 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29986811&amp;ptid=1085254" target="_blank">Fermata 发表于 2015-8-27 17:17</a>
@@ -2474,18 +1697,12 @@ oc加攻击也是加额外攻击，效率不如加倍率
 也可以稍微等几天，下周金闪闪要出来了，估计一出来贞德这些就立刻不值钱了
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 1627#       发表于 2015-8-27 17:21
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -2496,7 +1713,6 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  路德维嘉  
@@ -2505,23 +1721,15 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  eilot  
 ##### 1630#       发表于 2015-8-27 18:30
 
 
-
-
 雙５星另一問題是COST嚴重不足，要花長時間在星期天打MASTER曜日
 
 而且不是能帶兩個就算，禮裝都要COST，4星5星的禮裝都要可高的COST
-
-
-
-
-
 
 
 -----
@@ -2530,15 +1738,8 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1631#       发表于 2015-8-27 19:06
 
 
-
-
 同意看爱…要买初始的话一开始先想好要什么人物的初始（别买单初始，要多人物的），4星5星都可以，3星就算了…
 现在楼里有贞德的很多，不是非要有贞德的初始也行
-
-
-
-
-
 
 
 -----
@@ -2547,16 +1748,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1632#       发表于 2015-8-27 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29941525&amp;ptid=1085254" target="_blank">蒼い咎跡 发表于 2015-8-23 12:58</a>
 
 种子的话刷第一章freeワインで乾杯</blockquote>
 刷了两天，掉率好低，真能出吗<img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2565,23 +1760,16 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1633#       发表于 2015-8-27 20:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29988845&amp;ptid=1085254" target="_blank">erlic 发表于 2015-8-27 20:37</a>
 
 刷了两天，掉率好低，真能出吗</blockquote>
 素材太看脸，有时候半天不出，有时候一下出2个
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 1634#       发表于 2015-8-27 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29986854&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-8-27 17:21</a>
@@ -2592,25 +1780,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 我见过的最猛的是一个好友的5级宝具枪兵库夫林
 
 
-
-
-
-
-
 -----
 
 ####  千手丸  
 ##### 1635#       发表于 2015-8-27 21:10
 
 
-
-
 为什么连一二三星从者的突破素材都那么难刷，四五星素材稀有就算了，想给汪酱突破一把看到三个混沌爪。。
-
-
-
-
-
 
 
 -----
@@ -2621,21 +1797,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  asdghjkm  
 ##### 1637#       发表于 2015-8-27 23:10
 
 
-
-
 你们都说npc，为什么我一次都没见过……
-
-
-
-
-
 
 
 -----
@@ -2644,16 +1812,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1638#       发表于 2015-8-27 23:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29989137&amp;ptid=1085254" target="_blank">千手丸 发表于 2015-8-27 21:10</a>
 
 为什么连一二三星从者的突破素材都那么难刷，四五星素材稀有就算了，想给汪酱突破一把看到三个混沌爪。。 ...</blockquote>
 一级自爆弓都要四个双晶呢，凯撒那本都快给我刷成平地了也不见一个
-
-
-
-
-
 
 
 -----
@@ -2662,23 +1824,16 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1639#       发表于 2015-8-28 00:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29990409&amp;ptid=1085254" target="_blank">岸波白野 发表于 2015-8-27 23:27</a>
 
 一级自爆弓都要四个双晶呢，凯撒那本都快给我刷成平地了也不见一个</blockquote>
 凯撒和大流士换着刷……
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 1640#       发表于 2015-8-28 18:12
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">石头吃光了   只有一个奇美拉的爪子
@@ -2690,25 +1845,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 吃饭睡觉咒庄司
 
 
-
-
-
-
-
 -----
 
 ####  蒼い咎跡  
 ##### 1641#       发表于 2015-8-28 18:20
 
 
-
-
 逆鳞掉率太感人，还是等送吧
-
-
-
-
-
 
 
 -----
@@ -2717,14 +1860,7 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1642#       发表于 2015-8-28 18:48
 
 
-
-
 干脆把 稀有素材（银色箱子及以上） 也加入卡池吧（（（
-
-
-
-
-
 
 
 -----
@@ -2733,14 +1869,7 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1643#       发表于 2015-8-28 20:57
 
 
-
-
 这素材的掉率我是服了
-
-
-
-
-
 
 
 -----
@@ -2749,14 +1878,7 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1644#       发表于 2015-8-28 23:24
 
 
-
-
 慢慢刷半价本，材料等改掉率或者活动
-
-
-
-
-
 
 
 -----
@@ -2767,13 +1889,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gulant  
 ##### 1646#       发表于 2015-8-29 17:13
-
-
 
 
 角色一破后的不能选回原来的造型么？<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -2782,16 +1901,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 一破后应该能让玩家自由选择用现在的还是之前的造型多好。
 
 
-
-
-
-
-
 -----
 
 ####  高等黑暗  
 ##### 1647#       发表于 2015-8-29 21:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30007186&amp;ptid=1085254" target="_blank">gulant 发表于 2015-8-29 17:13</a>
@@ -2801,11 +1914,6 @@ oc加攻击也是加额外攻击，效率不如加倍率
 
 一破后应该能让玩家自由选择用现在的还是之前的造型多好。 ...</blockquote>
 能的，在灵基一览界面，看卡，然后点着卡片右拖就可以回到以前的图了
-
-
-
-
-
 
 
 -----
@@ -2814,7 +1922,6 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1648#       发表于 2015-8-29 21:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30007186&amp;ptid=1085254" target="_blank">gulant 发表于 2015-8-29 17:13</a>
 
 角色一破后的不能选回原来的造型么？
@@ -2824,24 +1931,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 能的，在灵基一览界面，看卡，然后点着卡片右拖就可以回到以前的图了
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 1649#       发表于 2015-8-29 22:59
 
 
-
 <img src="http://ww2.sinaimg.cn/large/690a356djw1evjvm0k3rdj20zk0k0ap3.jpg" referrerpolicy="no-referrer"> 怎么还有90万血的怪……这是要怎么打
-
-
-
-
-
 
 
 -----
@@ -2850,16 +1946,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1650#       发表于 2015-8-29 23:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30009974&amp;ptid=1085254" target="_blank">v22325 发表于 2015-8-29 22:59</a>
 
 怎么还有90万血的怪……这是要怎么打</blockquote>
 刷即死宝具，或者贞德/安徒生宝具磨磨磨
-
-
-
-
-
 
 
 -----
@@ -2868,24 +1958,16 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1651#       发表于 2015-8-30 00:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30009225&amp;ptid=1085254" target="_blank">高等黑暗 发表于 2015-8-29 21:34</a>
 
 能的，在灵基一览界面，看卡，然后点着卡片右拖就可以回到以前的图了</blockquote>
 我说的是动画小人哦，不是卡片图。
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 1652#       发表于 2015-8-30 11:32
-
-
 
 
 临时メンテナンスのお知らせ（8/31 AM2:00実施）ご利用いただきありがとうございます。
@@ -2995,25 +2077,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ご利用のお客様には、ご迷惑をおかけいたしますことをお诧び申し上げます。
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 1653#       发表于 2015-8-30 11:33
 
 
-
-
 各种掉率增加。当然包括礼装<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3022,14 +2092,7 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1654#       发表于 2015-8-30 11:36
 
 
-
-
 感谢玩家帮忙测试游戏，我们终于在8月31日完成了游戏的正式版？
-
-
-
-
-
 
 
 -----
@@ -3038,24 +2101,16 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1655#       发表于 2015-8-30 11:51
 
 
-
-
 说到暴击星星这东西，大帝在场的情况下星星都会优先往他那里跑，不知道什么情况
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 1656#       发表于 2015-8-30 12:00
-
 
 
 <blockquote>ulir 发表于 2015-8-30 11:51
@@ -3066,17 +2121,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 各职介有吸星率的差异 R阶最高 B阶最低
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 1657#       发表于 2015-8-30 12:08
-
-
 
 
 新从者新礼装追
@@ -3104,25 +2152,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 氪金召唤将会提供详细的数据
 
 
-
-
-
-
-
 -----
 
 ####  蒼い咎跡  
 ##### 1658#       发表于 2015-8-30 12:12
 
 
-
-
 就知道QP要调整，最近都没打
-
-
-
-
-
 
 
 -----
@@ -3131,16 +2167,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1659#       发表于 2015-8-30 13:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30010558&amp;ptid=1085254" target="_blank">gulant 发表于 2015-8-30 00:11</a>
 
 我说的是动画小人哦，不是卡片图。</blockquote>
 小人在第三栏啊，三个阶段可以选啊
-
-
-
-
-
 
 
 -----
@@ -3149,15 +2179,9 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1660#       发表于 2015-8-30 13:55
 
 
-
 <blockquote>eyeego 发表于 2015-8-30 12:00
 各职介有吸星率的差异 R阶最高 B阶最低</blockquote>
 有没有详细的介绍？
-
-
-
-
-
 
 
 -----
@@ -3166,16 +2190,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1661#       发表于 2015-8-30 16:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30013809&amp;ptid=1085254" target="_blank">高等黑暗 发表于 2015-8-30 13:28</a>
 
 小人在第三栏啊，三个阶段可以选啊</blockquote>
 抱歉没把话说清楚，我的意思是一破后能让玩家自由选择角色的外貌（动画小人），能在战斗中表现出来，而非在菜单图鉴中观看。
-
-
-
-
-
 
 
 -----
@@ -3184,14 +2202,7 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1662#       发表于 2015-8-30 17:03
 
 
-
-
 没有素材，再多的钱粮也是摆设
-
-
-
-
-
 
 
 -----
@@ -3200,13 +2211,7 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1663#       发表于 2015-8-30 20:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">我今天刷了一天20AP的吗死他本。。。。一个灯笼都没掉。。再多狗粮和钱有什么用。。
-
-
-
-
-
 
 
 -----
@@ -3215,23 +2220,15 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1664#       发表于 2015-8-30 20:32
 
 
-
-
 一次性这么大的调整，官方也算自己抽自己了
 
 不过我喜欢
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 1665#       发表于 2015-8-30 23:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30015183&amp;ptid=1085254" target="_blank">gulant 发表于 2015-8-30 16:38</a>
@@ -3242,11 +2239,6 @@ oc加攻击也是加额外攻击，效率不如加倍率
 好吧还是不行<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -3255,21 +2247,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  wangandh  
 ##### 1667#       发表于 2015-8-31 00:21
 
 
-
-
 蛮神心脏掉率太感人……我肝到了满级愣是没给我掉（上几个星期掉了俩）
-
-
-
-
-
 
 
 -----
@@ -3278,23 +2262,15 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1668#       发表于 2015-8-31 01:07
 
 
-
-
 庄司：你们之前氪石头刷狗粮刷钱的都是傻逼
 
 这样
-
-
-
-
-
 
 
 -----
 
 ####  zmxlegend  
 ##### 1669#       发表于 2015-8-31 01:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30014044&amp;ptid=1085254" target="_blank">wsqxz 发表于 2015-8-30 13:55</a>
@@ -3305,24 +2281,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 不过新更新要改
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1670#       发表于 2015-8-31 05:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">闪闪发福利毫不手软，还以为礼物数量显示有问题
-
-
-
-
-
 
 
 -----
@@ -3333,13 +2298,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 1672#       发表于 2015-8-31 06:34
-
-
 
 
 淦，什么鬼，我抽了几次单发，结果石头好像被吞了，强化的时候用几张三星狗粮卡也一直显示error，不存在的卡……
@@ -3347,11 +2309,6 @@ oc加攻击也是加额外攻击，效率不如加倍率
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -3362,23 +2319,16 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  jy02819746  
 ##### 1674#       发表于 2015-8-31 06:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30019594&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-8-31 06:34</a>
 
 淦，什么鬼，我抽了几次单发，结果石头好像被吞了，强化的时候用几张三星狗粮卡也一直显示error，不存在的 ...</blockquote>
 同,刚才用石头护符抽, 抽到是抽到,再登录全被回档了.呵呵呵呵呵呵
-
-
-
-
-
 
 
 -----
@@ -3389,13 +2339,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 1676#       发表于 2015-8-31 06:47
-
-
 
 
 重开三次游戏总算是出现了……
@@ -3405,25 +2352,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1677#       发表于 2015-8-31 06:50
 
 
-
-
 人生第一张五星。。。当然是礼装。。。还是没啥鸟用的
-
-
-
-
-
 
 
 -----
@@ -3432,14 +2367,7 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1678#       发表于 2015-8-31 06:58
 
 
-
-
 护符三张抽到个那archer妹子, 喂到26之后突然被回档, 经验卡都他妈还在,就是抽到的卡全呵呵了,当然还有石头和护符.,
-
-
-
-
-
 
 
 -----
@@ -3448,14 +2376,7 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1679#       发表于 2015-8-31 07:00
 
 
-
-
 手贱重启了下游戏，回档了。。。连礼包送的东西都没了。。。重新登录5次还是这样
-
-
-
-
-
 
 
 -----
@@ -3464,21 +2385,13 @@ oc加攻击也是加额外攻击，效率不如加倍率
 ##### 1680#       发表于 2015-8-31 07:00
 
 
-
-
 课了一波抽到了金闪闪和兰斯洛特
-
-
-
-
-
 
 
 -----
 
 ####  gulant  
 ##### 1681#       发表于 2015-8-31 07:31
-
 
 
  本帖最后由 gulant 于 2015-8-31 07:38 编辑 
@@ -3489,16 +2402,10 @@ oc加攻击也是加额外攻击，效率不如加倍率
 借问一句，角色能吃加atk和hp的卡，是最多能吃20张（加50和加5）还是最多上限1000？
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1682#       发表于 2015-8-31 07:46
-
 
 
  本帖最后由 gulant 于 2015-8-31 08:49 编辑 
@@ -3509,25 +2416,13 @@ tmd，出现bug，重新登陆后刚刚抽的礼装消失没有了，今天登�
 更新，重新登陆多次都回来了。
 
 
-
-
-
-
-
 -----
 
 ####  lili1990218  
 ##### 1683#       发表于 2015-8-31 08:11
 
 
-
-
 又要送一波石头了？不过我大号出了二逼闪，贞德小号出了B叔别给我回档啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3536,14 +2431,7 @@ tmd，出现bug，重新登陆后刚刚抽的礼装消失没有了，今天登�
 ##### 1684#       发表于 2015-8-31 08:15
 
 
-
-
 有bug，狗粮没了，喂过的新卡又成了1级
-
-
-
-
-
 
 
 -----
@@ -3554,21 +2442,13 @@ tmd，出现bug，重新登陆后刚刚抽的礼装消失没有了，今天登�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  eyeego  
 ##### 1686#       发表于 2015-8-31 08:30
 
 
-
-
 运营又炸了 这技术力真是吊炸天
-
-
-
-
-
 
 
 -----
@@ -3577,14 +2457,7 @@ tmd，出现bug，重新登陆后刚刚抽的礼装消失没有了，今天登�
 ##### 1687#       发表于 2015-8-31 08:49
 
 
-
-
 我还是暂时不升级等赔偿公告出了再说好了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3593,17 +2466,10 @@ tmd，出现bug，重新登陆后刚刚抽的礼装消失没有了，今天登�
 ##### 1688#       发表于 2015-8-31 09:03
 
 
-
-
 大号11抽，小号8抽…………
 
 
 合计3星从者*4，4星礼装*4，剩余全部3星礼装<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3612,19 +2478,11 @@ tmd，出现bug，重新登陆后刚刚抽的礼装消失没有了，今天登�
 ##### 1689#       发表于 2015-8-31 09:15
 
 
-
-
 我不是针对你，我是说在坐的各位都是非洲人。
-
-
-
-
 
 
 QQ图片20150831091452.jpg
 (194.45 KB, 下载次数: 9)
-
-
 
 
 下载附件
@@ -3633,24 +2491,7 @@ QQ图片20150831091452.jpg
 2015-8-31 09:15 上传
 
 
-
-
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201508/31/091506mbi3buxm93p5i827.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -3659,17 +2500,10 @@ QQ图片20150831091452.jpg
 ##### 1690#       发表于 2015-8-31 09:17
 
 
-
-
 ……来人啊把这个欧洲人拖出去……
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -3678,14 +2512,7 @@ QQ图片20150831091452.jpg
 ##### 1691#       发表于 2015-8-31 09:28
 
 
-
-
 3个送的呼符直接三礼装，不敢10连了
-
-
-
-
-
 
 
 -----
@@ -3694,17 +2521,10 @@ QQ图片20150831091452.jpg
 ##### 1692#       发表于 2015-8-31 10:03
 
 
-
-
 typemoon.com/news/2015/hbywy8
 
 
 小霸王又被刷爆，编个队阿塔没了
-
-
-
-
-
 
 
 -----
@@ -3713,16 +2533,9 @@ typemoon.com/news/2015/hbywy8
 ##### 1693#       发表于 2015-8-31 10:14
 
 
-
-
 连接错误屌丝券都吞了，这水平还搞什么活动，你游药丸
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
@@ -3731,14 +2544,7 @@ typemoon.com/news/2015/hbywy8
 ##### 1694#       发表于 2015-8-31 10:19
 
 
-
-
 10连x1，单抽x5，前者旧狗+布狄卡，后者俩C妈一个小玉，这爆率还10连个毛线（总算有4星卡了
-
-
-
-
-
 
 
 -----
@@ -3747,20 +2553,13 @@ typemoon.com/news/2015/hbywy8
 ##### 1695#       发表于 2015-8-31 10:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">护符抽到了孔明。。
-
-
-
-
-
 
 
 -----
 
 ####  枫紫  
 ##### 1696#       发表于 2015-8-31 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30013015&amp;ptid=1085254" target="_blank">ulir 发表于 2015-8-30 11:51</a>
@@ -3772,24 +2571,13 @@ typemoon.com/news/2015/hbywy8
 R系会吸星,然后还有一说,幸运也影响吸星
 
 
-
-
-
-
-
 -----
 
 ####  badchris  
 ##### 1697#       发表于 2015-8-31 10:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我算算，6个10抽只出了一个大公和四星Archer妹子……楼上的欧洲人应该拖出去砍了
-
-
-
-
-
 
 
 -----
@@ -3798,14 +2586,7 @@ R系会吸星,然后还有一说,幸运也影响吸星
 ##### 1698#       发表于 2015-8-31 11:59
 
 
-
-
 3張卷都是出3星經驗石，要來何用...
-
-
-
-
-
 
 
 -----
@@ -3814,14 +2595,7 @@ R系会吸星,然后还有一说,幸运也影响吸星
 ##### 1699#       发表于 2015-8-31 12:23
 
 
-
-
 10连4个4星礼装，其中3个是一样的
-
-
-
-
-
 
 
 -----
@@ -3830,14 +2604,7 @@ R系会吸星,然后还有一说,幸运也影响吸星
 ##### 1700#       发表于 2015-8-31 12:23
 
 
-
-
 怎么狗粮打出来全没了？
-
-
-
-
-
 
 
 -----
@@ -3846,15 +2613,8 @@ R系会吸星,然后还有一说,幸运也影响吸星
 ##### 1701#       发表于 2015-8-31 12:33
 
 
-
-
 bug得不要不要的。
 狗粮呼符连带着护符抽出来的幼大帝都吞了，神一样的技术力……
-
-
-
-
-
 
 
 -----
@@ -3863,17 +2623,10 @@ bug得不要不要的。
 ##### 1702#       发表于 2015-8-31 12:34
 
 
-
-
 打出来抽出来东西没了的同学，按官方公告，等半个小时大概就能看到了www
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -3882,21 +2635,13 @@ bug得不要不要的。
 ##### 1703#       发表于 2015-8-31 13:05
 
 
-
-
 黑森林奇美拉变12W血了，然而还是不掉爪子
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 1704#       发表于 2015-8-31 13:21
-
 
 
  本帖最后由 ulir 于 2015-8-31 13:26 编辑 
@@ -3906,17 +2651,10 @@ C妈、凯撒、一回合闪避的礼装orz
 初级的自爆弓一回合连着两次技能，看他把图标堆成四个然后下回合变成八个……可惜中级完全不用技能最后放完宝具自己也死了= =
 
 
-
-
-
-
-
 -----
 
 ####  gote  
 ##### 1705#       发表于 2015-8-31 14:30
-
-
 
 
 由于这段时间都在打其他游戏的活动，加上fgo运营一直爆炸，还停留在建了一些初始抽十连玩<img src="https://static.saraba1st.com/image/smiley/face/181.gif" referrerpolicy="no-referrer">
@@ -3926,16 +2664,10 @@ C妈、凯撒、一回合闪避的礼装orz
 贞德 呆毛 玛丽、贞德 大公 玛丽、金闪闪 呆毛 红A
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 1706#       发表于 2015-8-31 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30023460&amp;ptid=1085254" target="_blank">gote 发表于 2015-8-31 14:30</a>
@@ -3946,25 +2678,13 @@ C妈、凯撒、一回合闪避的礼装orz
 有贞德的都可以。带大公的后期舒服。
 
 
-
-
-
-
-
 -----
 
 ####  克瓦特罗大尉  
 ##### 1707#       发表于 2015-8-31 14:46
 
 
-
-
 好像这次更新把普通本的材料掉落都取消了？
-
-
-
-
-
 
 
 -----
@@ -3973,21 +2693,13 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1708#       发表于 2015-8-31 14:57
 
 
-
-
 就不该手贱抽的...唯一收获是新的4星礼装...
-
-
-
-
-
 
 
 -----
 
 ####  北都病  
 ##### 1709#       发表于 2015-8-31 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30023460&amp;ptid=1085254" target="_blank">gote 发表于 2015-8-31 14:30</a>
@@ -4009,25 +2721,13 @@ C妈、凯撒、一回合闪避的礼装orz
 要舔的话除外
 
 
-
-
-
-
-
 -----
 
 ####  trb315  
 ##### 1710#       发表于 2015-8-31 16:21
 
 
-
-
 抽到金光闪闪的弓兵还以为是闪闪，翻过来一看是阿塔<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4038,7 +2738,6 @@ C妈、凯撒、一回合闪避的礼装orz
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  fantuanhtr  
@@ -4047,13 +2746,10 @@ C妈、凯撒、一回合闪避的礼装orz
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gulant  
 ##### 1713#       发表于 2015-8-31 17:13
-
-
 
 
 现在欧洲血统要多少个5星英灵？
@@ -4062,17 +2758,10 @@ C妈、凯撒、一回合闪避的礼装orz
 说好的单抽大法好呢？单抽了6次全部礼装。然后我只想收割c妈做后宫。<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 1714#       发表于 2015-8-31 18:01
-
-
 
 
 今天的自爆弓本掉不掉弓兵棋子？
@@ -4080,16 +2769,10 @@ C妈、凯撒、一回合闪避的礼装orz
 我三个打完啥都没掉啊……
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1715#       发表于 2015-8-31 18:18
-
 
 
  本帖最后由 wangandh 于 2015-8-31 18:19 编辑 
@@ -4103,11 +2786,6 @@ C妈、凯撒、一回合闪避的礼装orz
 会掉……我打30ap掉了个金
 
 
-
-
-
-
-
  <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30025110&amp;ptid=1085254" target="_blank">gulant 发表于 2015-8-31 17:13</a>
 
 现在欧洲血统要多少个5星英灵？
@@ -4117,25 +2795,13 @@ C妈、凯撒、一回合闪避的礼装orz
 现在十连比单抽好一些
 
 
-
-
-
-
-
 -----
 
 ####  silvle  
 ##### 1716#       发表于 2015-8-31 20:56
 
 
-
-
 今天5发单抽+送的单抽出了彩虹剑和长江……还有个五星礼装和卡莲礼装……成功偷渡到亚洲= w=~
-
-
-
-
-
 
 
 -----
@@ -4144,13 +2810,7 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1717#       发表于 2015-8-31 22:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">10连跪了，然后一起玩的都单抽五星了...这游戏好难啊
-
-
-
-
-
 
 
 -----
@@ -4161,29 +2821,19 @@ C妈、凯撒、一回合闪避的礼装orz
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  西人  
 ##### 1719#       发表于 2015-8-31 23:14
 
 
-
-
 全卡在破二素材，想死
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 1720#       发表于 2015-8-31 23:45
-
-
 
 
 10连出了阿塔和旧枪
@@ -4194,25 +2844,13 @@ C妈、凯撒、一回合闪避的礼装orz
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1721#       发表于 2015-9-1 00:46
 
 
-
-
 回档回得人精神污染。。。
-
-
-
-
-
 
 
 -----
@@ -4221,14 +2859,7 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1722#       发表于 2015-9-1 02:07
 
 
-
-
 请问下这回的闪闪是永久入奖池还是限时抽的？
-
-
-
-
-
 
 
 -----
@@ -4237,16 +2868,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1723#       发表于 2015-9-1 02:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30028668&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-1 02:07</a>
 
 请问下这回的闪闪是永久入奖池还是限时抽的？</blockquote>
 目前是限时，不过官方后面有一句“以后会再登场”
-
-
-
-
-
 
 
 -----
@@ -4255,22 +2880,13 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1724#       发表于 2015-9-1 02:55
 
 
-
-
 10连出了黑saber加两个旧枪，这个号总算有一个四星，算是到北非了？
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 1725#       发表于 2015-9-1 07:29
-
-
 
 
 十连四个英灵然而出了弓妹子和…………齐格非orz
@@ -4280,25 +2896,13 @@ C妈、凯撒、一回合闪避的礼装orz
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1726#       发表于 2015-9-1 08:20
 
 
-
-
 英灵怎么一个银箱子给5个棋子啊？这改动不错。。。
-
-
-
-
-
 
 
 -----
@@ -4307,14 +2911,7 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1727#       发表于 2015-9-1 09:17
 
 
-
-
 请问IOS能用Gift Card 课金吗？
-
-
-
-
-
 
 
 -----
@@ -4323,15 +2920,9 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1728#       发表于 2015-9-1 10:00
 
 
-
 <blockquote>雪基百科 发表于 2015-9-1 08:20
 英灵怎么一个银箱子给5个棋子啊？这改动不错。。。</blockquote>
 那是主线吧……现在支线哪有掉五个的
-
-
-
-
-
 
 
 -----
@@ -4340,17 +2931,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1729#       发表于 2015-9-1 10:07
 
 
-
-
 三个券加送的石头加上自身石头一共十一抽左右全部都是黑键
 
 
 各位部族兄弟我回来拥抱你们了
-
-
-
-
-
 
 
 -----
@@ -4359,14 +2943,7 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1730#       发表于 2015-9-1 10:32
 
 
-
-
 三单抽两四星然而是红A和龙娘 并没有什么（略）
-
-
-
-
-
 
 
 -----
@@ -4375,14 +2952,7 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1731#       发表于 2015-9-1 10:34
 
 
-
-
 10连新礼装基本全了，C妈加旧狗，四星还是没有
-
-
-
-
-
 
 
 -----
@@ -4391,17 +2961,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1732#       发表于 2015-9-1 10:36
 
 
-
-
 谁能告诉我三骑上级怎么打 最后直接被闪闪教作人……
 
 
 话说这游戏能不能不要再这样明明有四个格但是第三格就忽然放宝具了……
-
-
-
-
-
 
 
 -----
@@ -4410,22 +2973,15 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1733#       发表于 2015-9-1 11:28
 
 
-
 <blockquote>wangandh 发表于 2015-9-1 10:00
 那是主线吧……现在支线哪有掉五个的</blockquote>
 原来如此。。之前打主线都没注意。
-
-
-
-
-
 
 
 -----
 
 ####  雪基百科  
 ##### 1734#       发表于 2015-9-1 11:32
-
 
 
 <blockquote>siebten 发表于 2015-9-1 10:36
@@ -4439,16 +2995,10 @@ C妈、凯撒、一回合闪避的礼装orz
 格子在闪动的时候，对面就有可能放宝具的。。。他放了就直接退游戏S/L啊
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1735#       发表于 2015-9-1 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30030641&amp;ptid=1085254" target="_blank">siebten 发表于 2015-9-1 10:36</a>
@@ -4460,25 +3010,13 @@ C妈、凯撒、一回合闪避的礼装orz
 加个大腿贞德，自己有个输出不错基本稳过。
 
 
-
-
-
-
-
 -----
 
 ####  kaji  
 ##### 1736#       发表于 2015-9-1 11:50
 
 
-
-
 依然挣扎在棋子与材料的深渊中（第二周）
-
-
-
-
-
 
 
 -----
@@ -4487,16 +3025,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1737#       发表于 2015-9-1 11:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30031249&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-1 11:35</a>
 
 加个大腿贞德，自己有个输出不错基本稳过。</blockquote>
 我自己就有贞德 然而阿提拉的宝具只打了闪闪6k伤害……
-
-
-
-
-
 
 
 -----
@@ -4505,16 +3037,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1738#       发表于 2015-9-1 11:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30031445&amp;ptid=1085254" target="_blank">siebten 发表于 2015-9-1 11:52</a>
 
 我自己就有贞德 然而阿提拉的宝具只打了闪闪6k伤害……</blockquote>
 谁让你用saber打archer<img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4523,16 +3049,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1739#       发表于 2015-9-1 11:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30031445&amp;ptid=1085254" target="_blank">siebten 发表于 2015-9-1 11:52</a>
 
 我自己就有贞德 然而阿提拉的宝具只打了闪闪6k伤害……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/normal/051.gif" referrerpolicy="no-referrer">archer克制saber的。。。请找个枪兵大腿
-
-
-
-
-
 
 
 -----
@@ -4541,16 +3061,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1740#       发表于 2015-9-1 12:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30031445&amp;ptid=1085254" target="_blank">siebten 发表于 2015-9-1 11:52</a>
 
 我自己就有贞德 然而阿提拉的宝具只打了闪闪6k伤害……</blockquote>
 弓克剑啊.....
-
-
-
-
-
 
 
 -----
@@ -4559,16 +3073,9 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1741#       发表于 2015-9-1 12:04
 
 
-
-
 我是黑人，10連抽有5張是黑人...
 
 2張黑鍵、1張偽臣之書，1張巴姐，1張經驗
-
-
-
-
-
 
 
 -----
@@ -4577,24 +3084,16 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1742#       发表于 2015-9-1 12:17
 
 
-
-
 这次的弓从者活动部真奇葩，boss是自爆弓.....
 
 
 就算打不过，只要熬到他放完宝具，就赢了....
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 1743#       发表于 2015-9-1 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30031688&amp;ptid=1085254" target="_blank">at逆风 发表于 2015-9-1 12:17</a>
@@ -4606,17 +3105,10 @@ C妈、凯撒、一回合闪避的礼装orz
 5星没枪到有两个剑，这是照顾一下玩家
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 1744#       发表于 2015-9-1 12:29
-
-
 
 
 发了10石头又去作死，2个4星礼装1个5星礼装<img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">
@@ -4625,17 +3117,10 @@ C妈、凯撒、一回合闪避的礼装orz
 已经连续5次10连没抽到4星英灵了啊啊啊啊
 
 
-
-
-
-
-
 -----
 
 ####  siebten  
 ##### 1745#       发表于 2015-9-1 12:37
-
-
 
 
 三骑最后一波是随机的 所以找相克也不一定就能相克
@@ -4643,16 +3128,10 @@ C妈、凯撒、一回合闪避的礼装orz
 查了查说中级也掉モニュメント？是的话我就不费劲打上级了……
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 1746#       发表于 2015-9-1 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30031882&amp;ptid=1085254" target="_blank">siebten 发表于 2015-9-1 12:37</a>
@@ -4667,16 +3146,10 @@ C妈、凯撒、一回合闪避的礼装orz
 最简单的就是抱个高级大公的大腿。60级左右随便三连就秒了金皮卡
 
 
-
-
-
-
-
 -----
 
 ####  cube  
 ##### 1747#       发表于 2015-9-1 13:23
-
 
 
  本帖最后由 cube 于 2015-9-1 13:27 编辑 
@@ -4697,16 +3170,10 @@ C妈、凯撒、一回合闪避的礼装orz
 如果有带着宝石翁的黑B叔好友，果断抱大腿，基本上最终战一套3连直接秒，保险起见，可以带一个AOE型宝具的辅助英灵，第二战清场保证B的生存。
 
 
-
-
-
-
-
 -----
 
 ####  ixtli  
 ##### 1748#       发表于 2015-9-1 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30031882&amp;ptid=1085254" target="_blank">siebten 发表于 2015-9-1 12:37</a>
@@ -4720,24 +3187,13 @@ C妈、凯撒、一回合闪避的礼装orz
 中级boss有时候只掉个种火，连宝箱都不出，上级至少是银宝箱打底，当然金宝箱同样看脸
 
 
-
-
-
-
-
 -----
 
 ####  克瓦特罗大尉  
 ##### 1749#       发表于 2015-9-1 13:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">刷了半天，一个金剑棋子都没，也是最了
-
-
-
-
-
 
 
 -----
@@ -4746,20 +3202,13 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1750#       发表于 2015-9-1 13:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">从者都满级了。。。刷不到材料突破。。还一个劲送升技能的材料。。。运营脑袋里果然装的是X？
-
-
-
-
-
 
 
 -----
 
 ####  EMIYARIN  
 ##### 1751#       发表于 2015-9-1 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30032584&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-1 13:59</a>
@@ -4770,16 +3219,10 @@ C妈、凯撒、一回合闪避的礼装orz
 我猜9.4号的活动就是开放石头换突破材料
 
 
-
-
-
-
-
 -----
 
 ####  Emilia  
 ##### 1752#       发表于 2015-9-1 14:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30032769&amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-9-1 14:24</a>
@@ -4790,17 +3233,10 @@ C妈、凯撒、一回合闪避的礼装orz
 这样的话不如直接卖满级满坡角色得了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  siebten  
 ##### 1753#       发表于 2015-9-1 14:44
-
-
 
 
 主要是上级40ap 打一次如果就掉一个普通棋子或者是粉末就太亏了……
@@ -4809,16 +3245,10 @@ C妈、凯撒、一回合闪避的礼装orz
 想了想还是趁着1/2去刷种火好了 顺便喂喂刚抽到的阿塔兰忒
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 1754#       发表于 2015-9-1 16:03
-
 
 
 <blockquote>引用第1742楼deviljz于2015-09-01 12:29发表的  :
@@ -4830,31 +3260,19 @@ C妈、凯撒、一回合闪避的礼装orz
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  badchris  
 ##### 1755#       发表于 2015-9-1 16:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">昨天课了3万yen就出了两个大公一个阿塔，结果今天单抽出了AUO……
-
-
-
-
-
 
 
 -----
 
 ####  wangandh  
 ##### 1756#       发表于 2015-9-1 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30031222&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-1 11:32</a>
@@ -4866,25 +3284,13 @@ C妈、凯撒、一回合闪避的礼装orz
 带狂战并且保证狂战不死和攒满宝具（推荐配宝石翁）
 
 
-
-
-
-
-
 -----
 
 ####  jy02819746  
 ##### 1757#       发表于 2015-9-1 20:13
 
 
-
-
 擦,你们别骗我, 上级我没出过粉末普通棋子之外的东西<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4893,16 +3299,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1758#       发表于 2015-9-1 20:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30036131&amp;ptid=1085254" target="_blank">jy02819746 发表于 2015-9-1 20:13</a>
 
 擦,你们别骗我, 上级我没出过粉末普通棋子之外的东西</blockquote>
 今天打上级还出了个Rider的金棋子呢
-
-
-
-
-
 
 
 -----
@@ -4911,17 +3311,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1759#       发表于 2015-9-1 21:23
 
 
-
-
 ・アイテムの所持数の上限を999,999,999個まで増加
 
 
 改神跳槽了？<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4930,21 +3323,13 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1760#       发表于 2015-9-1 22:17
 
 
-
-
 非洲人3卷+10连只出了个长江，不过总算有4星B阶了，不管强不强总要练起来
-
-
-
-
-
 
 
 -----
 
 ####  cube  
 ##### 1761#       发表于 2015-9-2 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30037104&amp;ptid=1085254" target="_blank">gugu135 发表于 2015-9-1 22:17</a>
@@ -4955,25 +3340,13 @@ C妈、凯撒、一回合闪避的礼装orz
 唯一的问题是长江前两个技能都是输出向，需要考虑生存。
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 1762#       发表于 2015-9-2 09:04
 
 
-
-
 算是理解进化素材是多么难刷了…40AP换个银棋子什么的……
-
-
-
-
-
 
 
 -----
@@ -4982,14 +3355,7 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1763#       发表于 2015-9-2 09:27
 
 
-
-
 我觉得40ap换个银的也不亏了<img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4998,14 +3364,7 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1764#       发表于 2015-9-2 10:43
 
 
-
-
 银必出吧。金箱子经常是灰。。
-
-
-
-
-
 
 
 -----
@@ -5014,14 +3373,7 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1765#       发表于 2015-9-2 10:43
 
 
-
-
 银必出吧。金箱子经常是灰。。
-
-
-
-
-
 
 
 -----
@@ -5032,14 +3384,12 @@ C妈、凯撒、一回合闪避的礼装orz
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  魔兽世界  
 ##### 1767#       发表于 2015-9-2 10:53
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -5050,21 +3400,13 @@ C妈、凯撒、一回合闪避的礼装orz
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  EMIYARIN  
 ##### 1769#       发表于 2015-9-2 11:12
 
 
-
-
 开荒的时候都在求贞德，伐木的时候贞德看都不看一眼了
-
-
-
-
-
 
 
 -----
@@ -5073,17 +3415,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1770#       发表于 2015-9-2 11:14
 
 
-
-
 我刷法师棋子然而只给我狂战简直难受…好友里的土豪把闪闪练到三阶了，后面两个都是加暴击星星的技能…
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -5092,17 +3427,10 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1771#       发表于 2015-9-2 11:25
 
 
-
-
 我要刷狂战和刺客的棋子……结果丫在那儿给我掉狗粮！
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -5113,28 +3441,19 @@ C妈、凯撒、一回合闪避的礼装orz
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  wudifeiji  
 ##### 1773#       发表于 2015-9-2 13:02
 
 
-
-
 这游戏不开材料交换能玩?要棋子掉了一堆虚尘
-
-
-
-
-
 
 
 -----
 
 ####  wangandh  
 ##### 1774#       发表于 2015-9-2 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30041071&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-2 11:14</a>
@@ -5153,16 +3472,10 @@ C妈、凯撒、一回合闪避的礼装orz
 但实质上并没有加星星的技能
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1775#       发表于 2015-9-2 13:39
-
 
 
 <blockquote>引用第1772楼wangandh于2015-09-01 19:21发表的  :
@@ -5174,27 +3487,15 @@ C妈、凯撒、一回合闪避的礼装orz
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  舞园さやか  
 ##### 1776#       发表于 2015-9-2 14:29
 
 
-
-
 这游戏突破素材掉落简直低到了一个境界，日天三破棋子氪钻连刷了快8个小时还不够，玩了那么多手游以来真是第一次碰到..
 
 掉率低消耗还那么高，算是在现在主线不足蛋池又浅的情况下强行延长游戏时间和骗氪的一种手段么
-
-
-
-
-
 
 
 -----
@@ -5203,21 +3504,13 @@ C妈、凯撒、一回合闪避的礼装orz
 ##### 1777#       发表于 2015-9-2 14:45
 
 
-
-
 奇美拉爪到现在还差一个，真是……
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 1778#       发表于 2015-9-2 15:01
-
 
 
  本帖最后由 brunestud 于 2015-9-2 15:04 编辑 
@@ -5230,11 +3523,6 @@ C妈、凯撒、一回合闪避的礼装orz
 开荒的时候本来贞德就是最合适的，能抗能打有问题吗？
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
@@ -5243,13 +3531,10 @@ C妈、凯撒、一回合闪避的礼装orz
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  千手丸  
 ##### 1780#       发表于 2015-9-2 15:25
-
-
 
 
 现在ap减半活动为什么不去刷钱刷狗粮<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -5257,16 +3542,10 @@ C妈、凯撒、一回合闪避的礼装orz
 材料什么的以后肯定会开放购买和掉率up的
 
 
-
-
-
-
-
 -----
 
 ####  赛奇  
 ##### 1781#       发表于 2015-9-2 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30043461&amp;ptid=1085254" target="_blank">poegeek 发表于 2015-9-2 15:13</a>
@@ -5278,16 +3557,10 @@ C妈、凯撒、一回合闪避的礼装orz
 我过第二大章的时候除了抱着的大腿之外一个三星以上都没有，1破Lancer库丘林打头，抱了一个红A，Caster库丘林首发，后续带着罗宾和小大帝以及盾娘……硬生生还有一点血的时候过了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 1782#       发表于 2015-9-2 15:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30043577&amp;ptid=1085254" target="_blank">千手丸 发表于 2015-9-2 15:25</a>
@@ -5303,16 +3576,10 @@ C妈、凯撒、一回合闪避的礼装orz
 今天半天过去了。。B金旗0。。A金旗0。。掉率真是感人
 
 
-
-
-
-
-
 -----
 
 ####  神前夕哉  
 ##### 1783#       发表于 2015-9-2 15:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30040833&amp;ptid=1085254" target="_blank">魔兽世界 发表于 2015-9-2 10:51</a>
@@ -5323,16 +3590,10 @@ ID:998717051   ...</blockquote>
 已加，卡在黑贞德那过不去，终于看到希望了
 
 
-
-
-
-
-
 -----
 
 ####  cube  
 ##### 1784#       发表于 2015-9-2 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30043692&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-2 15:35</a>
@@ -5343,17 +3604,10 @@ ID:998717051   ...</blockquote>
 仓库还是要用石头扩充一下的，50级后的英灵不用5金卡喂根本喂不起来。
 
 
-
-
-
-
-
 -----
 
 ####  樹洞  
 ##### 1785#       发表于 2015-9-2 16:12
-
-
 
 
 给那么多石头，仓库好歹扩一下啊。
@@ -5362,16 +3616,10 @@ ID:998717051   ...</blockquote>
 我发觉自从金闪闪登场后，现在1/2的狗粮本里，金卡掉落率明显UP了。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 1786#       发表于 2015-9-2 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30043825&amp;ptid=1085254" target="_blank">cube 发表于 2015-9-2 15:51</a>
@@ -5383,16 +3631,10 @@ ID:998717051   ...</blockquote>
 现在卡突破材料 仓库才会爆
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1787#       发表于 2015-9-2 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30043461&amp;ptid=1085254" target="_blank">poegeek 发表于 2015-9-2 15:13</a>
@@ -5407,11 +3649,6 @@ ID:998717051   ...</blockquote>
 玩？你全一星也能玩啊，关键是好玩吗？既然开荒都开的蛋疼别人为啥要玩下去？
 
 
-
-
-
-
-
 -----
 
 ####  魔兽世界  
@@ -5420,12 +3657,10 @@ ID:998717051   ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  eyeego  
 ##### 1789#       发表于 2015-9-2 17:11
-
 
 
 <blockquote>樹洞 发表于 2015-9-2 16:12
@@ -5436,16 +3671,10 @@ ID:998717051   ...</blockquote>
 狗粮本跟钱本都调过了 掉率翻倍
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 1790#       发表于 2015-9-2 17:20
-
 
 
 <blockquote>alucardcz 发表于 2015-9-2 15:35
@@ -5457,26 +3686,14 @@ ID:998717051   ...</blockquote>
 没人喂卖了换方块啊
 
 
-
-
-
-
-
 -----
 
 ####  月千一夜  
 ##### 1791#       发表于 2015-9-2 17:45
 
 
-
-
 材料本掉狗粮也不能理解
 尼玛在逗我呢？？
-
-
-
-
-
 
 
 -----
@@ -5487,12 +3704,10 @@ ID:998717051   ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  神前夕哉  
 ##### 1793#       发表于 2015-9-2 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30044506&amp;ptid=1085254" target="_blank">魔兽世界 发表于 2015-9-2 17:07</a>
@@ -5501,16 +3716,10 @@ ID:998717051   ...</blockquote>
 已加，名字神前夕哉
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 1794#       发表于 2015-9-2 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30044859&amp;ptid=1085254" target="_blank">月千一夜 发表于 2015-9-2 17:45</a>
@@ -5521,16 +3730,10 @@ ID:998717051   ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer">而且还是1星的。。还是40AP本里掉的。。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 1795#       发表于 2015-9-2 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30044633&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-9-2 17:20</a>
@@ -5539,25 +3742,13 @@ ID:998717051   ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">卖了啊。。留了10张金的 已经不打狗粮本了
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 1796#       发表于 2015-9-2 18:44
 
 
-
-
 今天更新后的兰斯洛特好像有点屌?
-
-
-
-
-
 
 
 -----
@@ -5566,17 +3757,10 @@ ID:998717051   ...</blockquote>
 ##### 1797#       发表于 2015-9-2 19:03
 
 
-
-
 煞笔游戏针对我
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -5585,24 +3769,16 @@ ID:998717051   ...</blockquote>
 ##### 1798#       发表于 2015-9-2 19:17
 
 
-
-
 闪闪一套连招爆了20个星，然而下回合没有他的卡<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1799#       发表于 2015-9-2 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30044890&amp;ptid=1085254" target="_blank">poegeek 发表于 2015-9-2 17:50</a>
@@ -5622,11 +3798,6 @@ ID:998717051   ...</blockquote>
 这甩锅技巧我打85分<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
@@ -5635,12 +3806,10 @@ ID:998717051   ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 1801#       发表于 2015-9-2 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30045783&amp;ptid=1085254" target="_blank">poegeek 发表于 2015-9-2 19:40</a>
@@ -5660,18 +3829,12 @@ ID:998717051   ...</blockquote>
 我这转进和逻辑哪比的上您老啊？
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
 ##### 1802#       发表于 2015-9-2 20:18
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -5682,12 +3845,10 @@ ID:998717051   ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 1804#       发表于 2015-9-2 20:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30046059&amp;ptid=1085254" target="_blank">poegeek 发表于 2015-9-2 20:18</a>
@@ -5707,11 +3868,6 @@ ID:998717051   ...</blockquote>
 至于贵圈是那个圈，我还真不知道呢<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  poegeek  
@@ -5720,23 +3876,15 @@ ID:998717051   ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  衛宫切嗣  
 ##### 1806#       发表于 2015-9-2 21:54
 
 
-
-
 909787374求各种大腿
 
 目前贞德+金闪闪+长江，求各种肥腿
-
-
-
-
-
 
 
 -----
@@ -5747,13 +3895,10 @@ ID:998717051   ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  赛奇  
 ##### 1808#       发表于 2015-9-2 22:44
-
-
 
 
 为了抽金闪闪弄了几个小号，抽了一批之后还出了几个可以用的初始，现在送人
@@ -5773,17 +3918,10 @@ ID:998717051   ...</blockquote>
 要的回帖我私信你引继码和密码……还有个贞德+大公的号让我想想……
 
 
-
-
-
-
-
 -----
 
 ####  日莲宗  
 ##### 1809#       发表于 2015-9-2 23:09
-
-
 
 
 大公，贞德的号能否赞助给非酋
@@ -5793,16 +3931,10 @@ ID:998717051   ...</blockquote>
 ----发送自 [Xiaomi 2014821,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  赛奇  
 ##### 1810#       发表于 2015-9-2 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30047337&amp;ptid=1085254" target="_blank">日莲宗 发表于 2015-9-2 23:09</a>
@@ -5813,17 +3945,10 @@ ID:998717051   ...</blockquote>
 这个不是抽的，是买的……但是因为有个小号出了闪闪和兰斯，在犹豫要不要肝三个号，等我想想
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1811#       发表于 2015-9-3 04:27
-
-
 
 
 长江那个宝具啊…虽然是绿卡，但配上B阶的高攻击力以及伤害补正，还TM是群攻多段攻击，突突突下来对面都成渣了还拿到一堆星，刷本超好用<img src="https://static.saraba1st.com/image/smiley/face/85.gif" referrerpolicy="no-referrer">
@@ -5832,16 +3957,10 @@ ID:998717051   ...</blockquote>
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  nisino  
 ##### 1812#       发表于 2015-9-3 05:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30047150&amp;amp;ptid=1085254" target="_blank">赛奇 发表于 2015-9-2 22:44</a>
@@ -5852,16 +3971,10 @@ ID:998717051   ...</blockquote>
 求第5个号，万分感谢
 
 
-
-
-
-
-
 -----
 
 ####  syuu  
 ##### 1813#       发表于 2015-9-3 08:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30048705&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-3 04:27</a>
@@ -5870,16 +3983,10 @@ ID:998717051   ...</blockquote>
 宝具属性伤害加成和普通攻击相反，b加成最少，q加成最多。
 
 
-
-
-
-
-
 -----
 
 ####  赛奇  
 ##### 1814#       发表于 2015-9-3 09:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30048779&amp;ptid=1085254" target="_blank">nisino 发表于 2015-9-3 05:40</a>
@@ -5888,17 +3995,10 @@ ID:998717051   ...</blockquote>
 发给你了
 
 
-
-
-
-
-
 -----
 
 ####  blastoderm00  
 ##### 1815#       发表于 2015-9-3 12:30
-
-
 
 
 到阅兵为止。。。已经12单没闪闪了~~人生如此艰难。。。
@@ -5909,16 +4009,10 @@ ID:998717051   ...</blockquote>
 阿塔出了8,9个。。。。。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1816#       发表于 2015-9-3 13:23
-
 
 
  本帖最后由 brunestud 于 2015-9-3 16:18 编辑 
@@ -5940,17 +4034,10 @@ ID:998717051   ...</blockquote>
 至于黄油，你一说我还真想起来了，fate当年什么出身啊？<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 1817#       发表于 2015-9-3 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30052388&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-3 13:23</a>
@@ -5959,16 +4046,10 @@ ID:998717051   ...</blockquote>
 总算让我见识到什么叫转进如风了。<img src="https://static.saraba1st.com/image/smiley/face/163.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1818#       发表于 2015-9-3 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30053004&amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-9-3 15:22</a>
@@ -5983,25 +4064,13 @@ ID:998717051   ...</blockquote>
 这话我楞是没看懂和我们争论的东西有一毛钱的关系？
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1819#       发表于 2015-9-3 22:21
 
 
-
-
 这卡池也是蛮蛋疼的，连着单抽五发都是从者，最后出了个大公。。。
-
-
-
-
-
 
 
 -----
@@ -6010,23 +4079,16 @@ ID:998717051   ...</blockquote>
 ##### 1820#       发表于 2015-9-3 23:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30055692&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-3 22:21</a>
 
 这卡池也是蛮蛋疼的，连着单抽五发都是从者，最后出了个大公。。。</blockquote>
 说话就不能好好说吗，比如 我抽了5发出了个大公，我很高兴
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1821#       发表于 2015-9-3 23:59
-
 
 
 <blockquote>manafox 发表于 2015-9-3 23:40
@@ -6037,16 +4099,10 @@ ID:998717051   ...</blockquote>
 B阶只打算练清姬。。。
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 1822#       发表于 2015-9-4 00:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30056440&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-3 23:59</a>
@@ -6059,11 +4115,6 @@ B阶只 ...</blockquote>
 —— 来自 OPPO X9007, Android 4.3
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -6072,12 +4123,10 @@ B阶只 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  BloodWingS  
 ##### 1824#       发表于 2015-9-4 03:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30053185&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-3 16:16</a>
@@ -6089,25 +4138,13 @@ B阶只 ...</blockquote>
 起手给你扣一个快餐一键A玩家的帽子，然后自己就立于不败之地了，全是套路，颇有外野风范
 
 
-
-
-
-
-
 -----
 
 ####  erlic  
 ##### 1825#       发表于 2015-9-4 10:24
 
 
-
-
 saber archer lancer的金棋子要去哪里刷，贞德3阶素材差好多<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6116,14 +4153,7 @@ saber archer lancer的金棋子要去哪里刷，贞德3阶素材差好多<img s
 ##### 1826#       发表于 2015-9-4 11:56
 
 
-
-
 抽了2单没闪闪 长江红A出来了
-
-
-
-
-
 
 
 -----
@@ -6132,16 +4162,9 @@ saber archer lancer的金棋子要去哪里刷，贞德3阶素材差好多<img s
 ##### 1827#       发表于 2015-9-4 12:33
 
 
-
-
 一发十连下去，两张三星英灵，其他全是礼装，其中三张四星重复，还是没毛用的那种……
 
 四星以上只有一张贞德的表示输出堪忧orz……
-
-
-
-
-
 
 
 -----
@@ -6150,24 +4173,16 @@ saber archer lancer的金棋子要去哪里刷，贞德3阶素材差好多<img s
 ##### 1828#       发表于 2015-9-4 12:47
 
 
-
-
 反正日常抱B阶大腿呗，高等级大公和长江基本都是一棍子一个的…
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1829#       发表于 2015-9-4 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30059353&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-4 12:33</a>
@@ -6181,33 +4196,19 @@ saber archer lancer的金棋子要去哪里刷，贞德3阶素材差好多<img s
 然而对于非洲人并没有什么卵用，我单抽三星差不多齐了。
 
 
-
-
-
-
-
 -----
 
 ####  西人  
 ##### 1830#       发表于 2015-9-4 17:16
 
 
-
-
 心力绞碎，肝不动了，这素材不调掉率怎么玩
-
-
-
-
-
 
 
 -----
 
 ####  v22325  
 ##### 1831#       发表于 2015-9-4 17:29
-
-
 
 
 开仓送英灵了！！！<strong>◆プレゼントコードの入力場所◆</strong>
@@ -6257,25 +4258,13 @@ saber archer lancer的金棋子要去哪里刷，贞德3阶素材差好多<img s
 （クラス：ライダー）
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 1832#       发表于 2015-9-4 17:51
 
 
-
-
 真的是疯了，竟然送4星英灵，莫非是想透过这方法挽回客户？
-
-
-
-
-
 
 
 -----
@@ -6284,17 +4273,10 @@ saber archer lancer的金棋子要去哪里刷，贞德3阶素材差好多<img s
 ##### 1833#       发表于 2015-9-4 18:04
 
 
-
-
 性价比最高的还是B阶吧，手头有B叔弓妹和齐格非了，完全想不出选谁好…
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -6303,16 +4285,9 @@ saber archer lancer的金棋子要去哪里刷，贞德3阶素材差好多<img s
 ##### 1834#       发表于 2015-9-4 18:19
 
 
-
-
 哦哦哦，天降的宝牌！
 
 B叔一择
-
-
-
-
-
 
 
 -----
@@ -6321,14 +4296,7 @@ B叔一择
 ##### 1835#       发表于 2015-9-4 18:19
 
 
-
-
 要是送黑saber就好了（
-
-
-
-
-
 
 
 -----
@@ -6337,14 +4305,7 @@ B叔一择
 ##### 1836#       发表于 2015-9-4 18:53
 
 
-
-
 喷了，闪闪和长江是打包点击就送的吗？然而我想要贞日天
-
-
-
-
-
 
 
 -----
@@ -6353,14 +4314,7 @@ B叔一择
 ##### 1837#       发表于 2015-9-4 19:06
 
 
-
-
 现实意义上B叔一择，但因为红A和齐格飞前期太差几乎没见过反而挺好奇，这俩后期也很废么
-
-
-
-
-
 
 
 -----
@@ -6369,14 +4323,7 @@ B叔一择
 ##### 1838#       发表于 2015-9-4 19:10
 
 
-
-
 具体怎么个送法
-
-
-
-
-
 
 
 -----
@@ -6385,21 +4332,13 @@ B叔一择
 ##### 1839#       发表于 2015-9-4 19:25
 
 
-
-
 按官方的意思是说，红黑两个SABER因为是章节解锁的，所以不怎么好送，就不送了……
-
-
-
-
-
 
 
 -----
 
 ####  eyeego  
 ##### 1840#       发表于 2015-9-4 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30062236&amp;ptid=1085254" target="_blank">cyberdark 发表于 2015-9-4 19:06</a>
@@ -6410,31 +4349,19 @@ B叔一择
 至于飞哥 你一个剑士屠什么龙<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 1841#       发表于 2015-9-4 19:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホムンクルスベビー了。。WIKI都查不到哪里有掉。。。。。。。这还怎么玩
-
-
-
-
-
 
 
 -----
 
 ####  wangandh  
 ##### 1842#       发表于 2015-9-4 20:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30062461&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-4 19:37</a>
@@ -6448,17 +4375,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 简单来说，卡死了，升不了
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 1843#       发表于 2015-9-4 21:03
-
-
 
 
 出了张阿塔能用吗？这游戏弓就这么几个，闪闪指望不上，剩下就只有自爆弓了...
@@ -6466,16 +4386,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 —— 来自 OPPO X9007, Android 4.3
 
 
-
-
-
-
-
 -----
 
 ####  cyberdark  
 ##### 1844#       发表于 2015-9-4 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30062435&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-9-4 19:33</a>
@@ -6486,16 +4400,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 原来如此，求解现在一个贞德+小玉，新的里面领谁相对比较好？
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1845#       发表于 2015-9-4 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063155&amp;ptid=1085254" target="_blank">cyberdark 发表于 2015-9-4 21:07</a>
@@ -6504,16 +4412,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具后的“行动不能”
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1846#       发表于 2015-9-4 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063197&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-4 21:13</a>
@@ -6522,32 +4424,19 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 同样有贞德和小玉，本来想舔龙圣女的，看了君一席话，犹豫了<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  saintsimpler  
 ##### 1847#       发表于 2015-9-4 21:30
 
 
-
-
 缺个高阶B，小玉和B叔哪个好？
-
-
-
-
-
 
 
 -----
 
 ####  handing  
 ##### 1848#       发表于 2015-9-4 21:30
-
 
 
  本帖最后由 handing 于 2015-9-4 21:50 编辑 
@@ -6564,32 +4453,19 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 哦忘记了她还有异性魅惑
 
 
-
-
-
-
-
 -----
 
 ####  cyberdark  
 ##### 1849#       发表于 2015-9-4 21:35
 
 
-
-
 谢上面推荐，看来还是像金闪闪说的那样多考虑下再选好了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 1850#       发表于 2015-9-4 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063028&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-9-4 20:50</a>
@@ -6601,24 +4477,13 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 太坑了。。就出了这么2个4星 突破都要这玩意。。。哎
 
 
-
-
-
-
-
 -----
 
 ####  sayuri55  
 ##### 1851#       发表于 2015-9-4 21:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">有生之年可以得到第二张四星了呢...要不选个小玉好了（其实我只想要个黑无毛
-
-
-
-
-
 
 
 -----
@@ -6627,16 +4492,10 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 ##### 1852#       发表于 2015-9-4 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063307&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-4 21:27</a>
 
 同样有贞德和小玉，本来想舔龙圣女的，看了君一席话，犹豫了</blockquote>
 继续舔龙女啊。。 3宝具一起放太梦幻。你确定小玉能活到那时候吗。。。。
-
-
-
-
-
 
 
 -----
@@ -6645,14 +4504,7 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 ##### 1853#       发表于 2015-9-4 21:39
 
 
-
-
 红A和B叔好纠结
-
-
-
-
-
 
 
 -----
@@ -6661,16 +4513,10 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 ##### 1854#       发表于 2015-9-4 21:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063316&amp;ptid=1085254" target="_blank">saintsimpler 发表于 2015-9-4 21:30</a>
 
 缺个高阶B，小玉和B叔哪个好？</blockquote>
 都很强，想舔选小玉，更注重实战选B叔
-
-
-
-
-
 
 
 -----
@@ -6679,20 +4525,13 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 ##### 1855#       发表于 2015-9-4 22:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">其实我自己只有一张红A，感觉凑卡组的话配个玛丽再拉个caster不错。。有C妈的话还能清BOSS的BUFF
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 1856#       发表于 2015-9-4 22:05
-
 
 
  本帖最后由 brunestud 于 2015-9-4 22:08 编辑 
@@ -6708,16 +4547,10 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 但技能好像很一般，据说后期较疲软。而且阿塔绿牌加成厉害，但绿牌现在有待开发。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 1857#       发表于 2015-9-4 22:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063506&amp;ptid=1085254" target="_blank">cyberdark 发表于 2015-9-4 21:51</a>
@@ -6729,16 +4562,10 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 不过能舔就行了。。性能是什么鬼。。然而我选龙娘
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1858#       发表于 2015-9-4 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063318&amp;ptid=1085254" target="_blank">handing 发表于 2015-9-4 21:30</a>
@@ -6753,17 +4580,10 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 确实半斤八两，不过我记得玛丽前期成长高很多。。。现在辅助系的都只能打打酱油。。。
 
 
-
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 1859#       发表于 2015-9-4 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063764&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-4 22:21</a>
@@ -6778,32 +4598,19 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 而且玛塔三蓝也和日天配合不错。还有群体奶，还是个少见的高星Rider。只能说优点和缺点同样明显吧。
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1860#       发表于 2015-9-4 23:02
 
 
-
-
 话说这游戏能查看已经加了的好友的ID么？没找到啊。。。
-
-
-
-
-
 
 
 -----
 
 ####  rxrx  
 ##### 1861#       发表于 2015-9-4 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063851&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-4 22:32</a>
@@ -6815,16 +4622,10 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 玛塔配贞德和B狐很好，能解决出完宝具后不能行动的问题，但圣乔治配B叔与长江骑士也很强，只要配上麻婆神父，又不是对上Berserker或Assassin的话，圣乔治的技能足够让两个B大发神威。
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1862#       发表于 2015-9-4 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30063395&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-4 21:38</a>
@@ -6833,16 +4634,10 @@ Rider玛丽皇后吧。。。宝具放最后，可以解除前两位放完宝具
 loli没兴趣，圣女够sao，现在没啥高难度敌人还是选择个能舔的，大胸就是正义！
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1863#       发表于 2015-9-4 23:39
-
 
 
 <blockquote>引用第1839楼alucardcz于2015-09-04 01:37发表的  :
@@ -6854,16 +4649,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 1864#       发表于 2015-9-5 00:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30064362&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-4 23:39</a>
@@ -6875,27 +4664,15 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 一个有什么用。。。。。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 1865#       发表于 2015-9-5 01:16
 
 
-
-
 有特典礼装的大腿好友还没满吗?
 
 求加好友
-
-
-
-
-
 
 
 -----
@@ -6904,17 +4681,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 ##### 1866#       发表于 2015-9-5 04:59
 
 
-
-
 看了半天选了枪兵（这个也是龙娘……），双B战术可以上攻防自身攻击力也不低，要扛的时候换圣乔治就行，B叔宝具我自己都没看过几次，要么敌人死了要么自己死了…
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -6925,13 +4695,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ulir  
 ##### 1868#       发表于 2015-9-5 07:27
-
-
 
 
 我是B叔+大帝，然后拉一个B阶好友，80%NP打到第三轮了也没蓄满挺常见的，主要还是她能上攻防而且火力也不低
@@ -6942,11 +4709,6 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -6955,12 +4717,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  handing  
 ##### 1870#       发表于 2015-9-5 10:04
-
 
 
  本帖最后由 handing 于 2015-9-5 10:21 编辑 
@@ -6979,16 +4739,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 什么你说双B叔疯狂输出3回合boss还没死？那还是换大狗上来刷即死吧<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 1871#       发表于 2015-9-5 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30066387&amp;ptid=1085254" target="_blank">handing 发表于 2015-9-5 10:04</a>
@@ -7000,16 +4754,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 伪娘个人任务的BOSS的血量，我觉得给我3个B叔都打不过…
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1872#       发表于 2015-9-5 10:38
-
 
 
 <blockquote>引用第1874楼handing于2015-09-04 16:04发表的  :
@@ -7022,16 +4770,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 1873#       发表于 2015-9-5 10:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30066582&amp;ptid=1085254" target="_blank">卡蓮 发表于 2015-9-5 10:36</a>
@@ -7043,16 +4785,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">这个92万还是刷即死吧，听说蛮好刷的
 
 
-
-
-
-
-
 -----
 
 ####  lichend2b  
 ##### 1874#       发表于 2015-9-5 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30066621&amp;ptid=1085254" target="_blank">handing 发表于 2015-9-5 10:41</a>
@@ -7063,32 +4799,19 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 严重怀疑程序猿打错数字了。
 
 
-
-
-
-
-
 -----
 
 ####  fyjh  
 ##### 1875#       发表于 2015-9-5 15:47
 
 
-
-
 问下，十选一的英灵要怎么领啊
-
-
-
-
-
 
 
 -----
 
 ####  wangandh  
 ##### 1876#       发表于 2015-9-5 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30067049&amp;ptid=1085254" target="_blank">lichend2b 发表于 2015-9-5 11:35</a>
@@ -7106,11 +4829,6 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 三个人慢慢磨……磨上30-45分钟就能过去了
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -7119,12 +4837,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guiltyspark  
 ##### 1878#       发表于 2015-9-5 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30068834&amp;ptid=1085254" target="_blank">fyjh 发表于 2015-9-5 15:47</a>
@@ -7133,17 +4849,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 过几天官推公布代码
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1879#       发表于 2015-9-5 18:16
-
-
 
 
 其实哈桑宝具也是即死而且是高几率，但不知实际效果有没有汪酱那么高
@@ -7152,32 +4861,19 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  sayuri55  
 ##### 1880#       发表于 2015-9-5 19:21
 
 
-
-
 我刷过两次大狗的即死，都是刷了半小时放弃了（一次B叔一次巨龙）<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lichend2b  
 ##### 1881#       发表于 2015-9-5 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30069094&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-9-5 16:26</a>
@@ -7189,16 +4885,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我带了B叔都打了20分钟，带这叁不打上1个小时才有鬼……
 
 
-
-
-
-
-
 -----
 
 ####  cube  
 ##### 1882#       发表于 2015-9-5 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30069809&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-5 18:16</a>
@@ -7210,16 +4900,10 @@ GG.....我现在想刷都没的刷了。。小玉和卡米拉突破都卡ホム�
 哈桑的宝具即死概率是明显比汪酱高的。
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1883#       发表于 2015-9-5 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30070399&amp;ptid=1085254" target="_blank">lichend2b 发表于 2015-9-5 19:48</a>
@@ -7230,16 +4914,10 @@ CASTER对幽灵（ASSASSIN）伤害加倍的……
 孔明等级高点 的话，半个小时也不是打不完
 
 
-
-
-
-
-
 -----
 
 ####  lichend2b  
 ##### 1884#       发表于 2015-9-6 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30071937&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-9-5 23:40</a>
@@ -7252,16 +4930,10 @@ CASTER对幽灵（ASSASSIN）伤害加倍的……
 高级孔明……那种东西真的存在吗……<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1885#       发表于 2015-9-6 00:14
-
 
 
 <blockquote>lichend2b 发表于 2015-9-6 00:10
@@ -7271,16 +4943,10 @@ CASTER对幽灵（ASSASSIN）伤害加倍的……
 好友等级最高的就是一个68级孔明，。。。虽然用不到。。。
 
 
-
-
-
-
-
 -----
 
 ####  evilzero  
 ##### 1886#       发表于 2015-9-6 02:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30070227&amp;ptid=1085254" target="_blank">sayuri55 发表于 2015-9-5 19:21</a>
@@ -7289,16 +4955,10 @@ CASTER对幽灵（ASSASSIN）伤害加倍的……
 每次进入战斗都有固定的乱数，不做点其他行动打乱乱数SL结果是不会变的…
 
 
-
-
-
-
-
 -----
 
 ####  岚绯  
 ##### 1887#       发表于 2015-9-6 09:40
-
 
 
  本帖最后由 岚绯 于 2015-9-6 09:42 编辑 
@@ -7310,27 +4970,15 @@ CASTER对幽灵（ASSASSIN）伤害加倍的……
 啊 没准只是我脸黑而已
 
 
-
-
-
-
-
 -----
 
 ####  培乐多  
 ##### 1888#       发表于 2015-9-6 11:37
 
 
-
-
 宝具连锁会提升副效果
 
 简单来说就是2连或者3连宝具更容易出即死
-
-
-
-
-
 
 
 -----
@@ -7339,14 +4987,7 @@ CASTER对幽灵（ASSASSIN）伤害加倍的……
 ##### 1889#       发表于 2015-9-6 17:57
 
 
-
-
 B本打完拿呼符，理所当然出礼装……
-
-
-
-
-
 
 
 -----
@@ -7355,14 +4996,7 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1890#       发表于 2015-9-6 18:03
 
 
-
-
 现在有个日天70级攒金棋子中，配盾娘或未满级的孔明，有点缺输出，其他也没什么好卡了，只能选B叔或B狐吗？
-
-
-
-
-
 
 
 -----
@@ -7371,16 +5005,10 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1891#       发表于 2015-9-6 18:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30072636&amp;ptid=1085254" target="_blank">evilzero 发表于 2015-9-6 02:02</a>
 
 每次进入战斗都有固定的乱数，不做点其他行动打乱乱数SL结果是不会变的… ...</blockquote>
 那每次load回来用一次Maser的治愈行不行？
-
-
-
-
-
 
 
 -----
@@ -7389,14 +5017,7 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1892#       发表于 2015-9-6 19:29
 
 
-
-
 ..这吃屎游戏挂着两星半都在榜上排第四了，月厨太可怕
-
-
-
-
-
 
 
 -----
@@ -7405,14 +5026,7 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1893#       发表于 2015-9-6 20:03
 
 
-
-
 刷了一天中级master本…一个灯笼的影子都没有！
-
-
-
-
-
 
 
 -----
@@ -7421,14 +5035,7 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1894#       发表于 2015-9-6 20:30
 
 
-
-
 刷了一天上级master本，4个蛇眼1个心脏，这金闪闪破不动了。。。
-
-
-
-
-
 
 
 -----
@@ -7437,16 +5044,9 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1895#       发表于 2015-9-6 20:40
 
 
-
-
 楼里的是没加群嘛
 
 现在刷日常本不要太轻松
-
-
-
-
-
 
 
 -----
@@ -7455,14 +5055,7 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1896#       发表于 2015-9-6 21:35
 
 
-
-
 今天被吞了4次40AP。。。
-
-
-
-
-
 
 
 -----
@@ -7471,16 +5064,10 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1897#       发表于 2015-9-6 21:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30078113&amp;ptid=1085254" target="_blank">heyfly 发表于 2015-9-6 18:03</a>
 
 现在有个日天70级攒金棋子中，配盾娘或未满级的孔明，有点缺输出，其他也没什么好卡了，只能选B叔或B狐吗？ ...</blockquote>
 别选B狐，只能用来刷日常，性能还不如同类型的兰斯洛特，而且目前卡素材在60
-
-
-
-
-
 
 
 -----
@@ -7489,16 +5076,9 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1898#       发表于 2015-9-6 21:57
 
 
-
-
 刷了一天羁绊本，一个龙鳞的影子都没有！
 
 出了4个龙牙两个秘石口胡去死啦
-
-
-
-
-
 
 
 -----
@@ -7507,16 +5087,10 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1899#       发表于 2015-9-6 23:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30078492&amp;ptid=1085254" target="_blank">sayuri55 发表于 2015-9-6 18:57</a>
 
 那每次load回来用一次Maser的治愈行不行？</blockquote>
 用治愈/不用治愈会改变乱数，但是用治愈的对象不影响乱数
-
-
-
-
-
 
 
 -----
@@ -7525,14 +5099,7 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1900#       发表于 2015-9-6 23:06
 
 
-
-
 今天呼符一发入魂来了个村姑，第一次见5星从者有点小激动，目前4星有lily傻巴、卡米拉、龙娘和飞哥，明天送4星要红茶还是B叔呢？
-
-
-
-
-
 
 
 -----
@@ -7541,23 +5108,16 @@ B本打完拿呼符，理所当然出礼装……
 ##### 1901#       发表于 2015-9-6 23:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30080865&amp;ptid=1085254" target="_blank">黑钢 发表于 2015-9-6 23:06</a>
 
 今天呼符一发入魂来了个村姑，第一次见5星从者有点小激动，目前4星有lily傻巴、卡米拉、龙娘和飞哥，明天送 ...</blockquote>
 建议B叔。dps高推本快。红茶也是高级才输出高，低级没啥卵用。
 
 
-
-
-
-
-
 -----
 
 ####  zzy4987  
 ##### 1902#       发表于 2015-9-7 00:34
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer"> afk两周回来接着吃这口翔 求有空位的大大加好友抱大腿 由于一直afk 等级不太够
@@ -7568,17 +5128,10 @@ B本打完拿呼符，理所当然出礼装……
 id 526822267 
 
 
-
-
-
-
-
 -----
 
 ####  cyberdark  
 ##### 1903#       发表于 2015-9-7 00:46
-
-
 
 
 刚刚单抽出了早见阿茶，升格动画还期待会不会是闪闪，果然是想多了。
@@ -7588,25 +5141,13 @@ id 526822267
 本来因为没有阿茶准备选红A，现在安心B叔一择了。
 
 
-
-
-
-
-
 -----
 
 ####  岚绯  
 ##### 1904#       发表于 2015-9-7 09:38
 
 
-
-
 至今只有一四星伪娘骑士。。。对未来感到不安 第三章一上来就40+的话怎么打
-
-
-
-
-
 
 
 -----
@@ -7615,16 +5156,9 @@ id 526822267
 ##### 1905#       发表于 2015-9-7 10:54
 
 
-
-
 有长江了总觉得选B叔有点浪费，真想舔小玉啊...
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
@@ -7633,14 +5167,7 @@ id 526822267
 ##### 1906#       发表于 2015-9-7 11:22
 
 
-
-
 B叔用大腿的就好，我就选龙娘吧，能舔才是玩下去的动力啊XD
-
-
-
-
-
 
 
 -----
@@ -7649,14 +5176,7 @@ B叔用大腿的就好，我就选龙娘吧，能舔才是玩下去的动力啊X
 ##### 1907#       发表于 2015-9-7 12:08
 
 
-
-
 龙娘+1 还能打得动A阶。其他光炮团横着走。
-
-
-
-
-
 
 
 -----
@@ -7665,14 +5185,7 @@ B叔用大腿的就好，我就选龙娘吧，能舔才是玩下去的动力啊X
 ##### 1908#       发表于 2015-9-7 12:28
 
 
-
-
 50个好友10个日天13个B阶12个S阶，就一个80级的龙娘，还经常换，我觉得挂个高级枪混友情不是不可以
-
-
-
-
-
 
 
 -----
@@ -7681,22 +5194,13 @@ B叔用大腿的就好，我就选龙娘吧，能舔才是玩下去的动力啊X
 ##### 1909#       发表于 2015-9-7 12:31
 
 
-
-
 对了，抹大拉的抹布虽然是四星，但是只加400血，大家怎么看
-
-
-
-
-
 
 
 -----
 
 ####  defer  
 ##### 1910#       发表于 2015-9-7 13:25
-
-
 
 
 入坑四天无氪咸鱼，打完序章偷渡欧洲抽了闪闪和贞德，活动派送目前的意见多建议选b叔或龙娘。
@@ -7708,16 +5212,10 @@ b叔似乎无氪休闲2破无望？宝石翁什么的也没有。
 —— 来自 Sony D5833, Android 4.4.4
 
 
-
-
-
-
-
 -----
 
 ####  heyfly  
 ##### 1911#       发表于 2015-9-7 13:45
-
 
 
 <blockquote>引用第1895楼handing于2015-09-06 21:50发表的  :
@@ -7728,13 +5226,7 @@ b叔似乎无氪休闲2破无望？宝石翁什么的也没有。
 其实想选龙娘，个人倾向地图炮一点……<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
 
 
-
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17) 
-
-
-
-
-
 
 
 -----
@@ -7743,14 +5235,7 @@ b叔似乎无氪休闲2破无望？宝石翁什么的也没有。
 ##### 1912#       发表于 2015-9-7 14:05
 
 
-
-
 龙娘地图炮伤害只能说聊胜于无。
-
-
-
-
-
 
 
 -----
@@ -7759,14 +5244,7 @@ b叔似乎无氪休闲2破无望？宝石翁什么的也没有。
 ##### 1913#       发表于 2015-9-7 14:10
 
 
-
-
 官网已更新，但是看不懂
-
-
-
-
-
 
 
 -----
@@ -7775,22 +5253,13 @@ b叔似乎无氪休闲2破无望？宝石翁什么的也没有。
 ##### 1914#       发表于 2015-9-7 14:17
 
 
-
-
 typemoon.com/news/2015/atwifz
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 1915#       发表于 2015-9-7 14:24
-
-
 
 
 活动具体信息，FGO贴吧里转自巴哈的：
@@ -7861,17 +5330,10 @@ typemoon.com/news/2015/atwifz
 公式
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1916#       发表于 2015-9-7 14:25
-
-
 
 
 B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石巨人的八连双晶，但因为是早熟型，50级开始就疲软了，用了20级宝石翁的60级B叔好友是8300 ATK，攻击力和宝具都不如长江
@@ -7880,25 +5342,13 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 当然如果你带两个B阶做日常，那速度还是非常爽的，然而总觉得和同等级小玉比起来，不知道是不是小玉HIT数多的关系，感觉输出也略逊色于小玉
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1917#       发表于 2015-9-7 14:33
 
 
-
-
 官网和游戏双双爆炸。。。
-
-
-
-
-
 
 
 -----
@@ -7907,24 +5357,15 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1918#       发表于 2015-9-7 14:35
 
 
-
-
 单抽出了张长江，果然单抽比十连靠谱吗……
 
 有长江了那有没有B叔应该无所谓了吧
-
-
-
-
-
 
 
 -----
 
 ####  jackyhuang  
 ##### 1919#       发表于 2015-9-7 14:38
-
-
 
 
 第一行输入十位引继码
@@ -8035,13 +5476,7 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ⇒マルタをゲットする！
 
 
-
 转自贴吧
-
-
-
-
-
 
 
 -----
@@ -8050,20 +5485,13 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1920#       发表于 2015-9-7 14:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">进去还好好的，设置完继承密码就一直断开了，官网点了交换码的地址也没反应了。这服务器是有多差啊。
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 1921#       发表于 2015-9-7 14:39
-
 
 
 <blockquote>引用第1916楼jackyhuang于2015-09-07 14:35发表的  :
@@ -8075,17 +5503,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  Iyx  
 ##### 1922#       发表于 2015-9-7 14:40
-
-
 
 
 领4星要引继码，好吧
@@ -8103,27 +5524,15 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 这特么神技术力了
 
 
-
-
-
-
-
 -----
 
 ####  saintsimpler  
 ##### 1923#       发表于 2015-9-7 14:47
 
 
-
-
 刚开就换了但是现在上不去了
 
 — from SHARP 402SH, Android 4.4.4
-
-
-
-
-
 
 
 -----
@@ -8132,14 +5541,7 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1924#       发表于 2015-9-7 14:48
 
 
-
-
 刚刚领好东西。服务器就炸了
-
-
-
-
-
 
 
 -----
@@ -8148,17 +5550,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1925#       发表于 2015-9-7 14:49
 
 
-
-
 我发帖的时候就上不去了，试了几次速度很慢就老实待着了，反正服务器爆炸也不是第一次
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -8167,14 +5562,7 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1926#       发表于 2015-9-7 14:51
 
 
-
-
 又爆炸了，这技术力也是服的不能行<img src="https://static.saraba1st.com/image/smiley/face/03.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8183,14 +5571,7 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1927#       发表于 2015-9-7 15:43
 
 
-
-
 服务器好了几分钟。又爆炸了。。强强强 这技术力不得不佩服
-
-
-
-
-
 
 
 -----
@@ -8199,14 +5580,7 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1928#       发表于 2015-9-7 15:54
 
 
-
-
 引继码输入拿了英灵这引继码还有效吗？还是需要再重新引继一次？
-
-
-
-
-
 
 
 -----
@@ -8215,17 +5589,11 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1929#       发表于 2015-9-7 16:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30086982&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-7 15:54</a>
 引继码输入拿了英灵这引继码还有效吗？还是需要再重新引继一次？</blockquote>
 不用,不清游戏内账户
 
 — from SHARP 402SH, Android 4.4.4
-
-
-
-
-
 
 
 -----
@@ -8234,17 +5602,11 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1930#       发表于 2015-9-7 16:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30086982&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-7 15:54</a>
 引继码输入拿了英灵这引继码还有效吗？还是需要再重新引继一次？</blockquote>
 不用,不清游戏内账户
 
 — from SHARP 402SH, Android 4.4.4
-
-
-
-
-
 
 
 -----
@@ -8253,17 +5615,11 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1931#       发表于 2015-9-7 16:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30086982&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-7 15:54</a>
 引继码输入拿了英灵这引继码还有效吗？还是需要再重新引继一次？</blockquote>
 不用,不清游戏内账户
 
 — from SHARP 402SH, Android 4.4.4
-
-
-
-
-
 
 
 -----
@@ -8272,17 +5628,11 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1932#       发表于 2015-9-7 16:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30086982&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-7 15:54</a>
 引继码输入拿了英灵这引继码还有效吗？还是需要再重新引继一次？</blockquote>
 不用,不清游戏内账户
 
 — from SHARP 402SH, Android 4.4.4
-
-
-
-
-
 
 
 -----
@@ -8291,17 +5641,11 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1933#       发表于 2015-9-7 16:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30086982&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-7 15:54</a>
 引继码输入拿了英灵这引继码还有效吗？还是需要再重新引继一次？</blockquote>
 不用,不清游戏内账户
 
 — from SHARP 402SH, Android 4.4.4
-
-
-
-
-
 
 
 -----
@@ -8310,13 +5654,7 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1934#       发表于 2015-9-7 17:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">就缺一个剑但一看齐格飞2阶要15个龙牙，还是红A吧
-
-
-
-
-
 
 
 -----
@@ -8325,16 +5663,9 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1935#       发表于 2015-9-7 17:41
 
 
-
-
 龙娘领回家了，舔舔舔！
 
 有点后悔狗粮AP减半那几天AFK了，不然现在狗粮够一口气喂上去的……
-
-
-
-
-
 
 
 -----
@@ -8343,14 +5674,7 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1936#       发表于 2015-9-8 12:03
 
 
-
-
 今天的三骑士本是不是有点良心，出金棋子的概率高了？
-
-
-
-
-
 
 
 -----
@@ -8359,24 +5683,16 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1937#       发表于 2015-9-8 13:50
 
 
-
-
 今天刷四局只给一金狗粮
 
 
 ----发送自 [OnePlus A0001,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 1938#       发表于 2015-9-8 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30096085&amp;ptid=1085254" target="_blank">こう 发表于 2015-9-8 13:50</a>
@@ -8388,33 +5704,19 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 +1 昨天5盘只出了一个 是不是又调过了
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1939#       发表于 2015-9-8 16:33
 
 
-
-
 狗粮稳定多了啊，平均下来一把一个
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 1940#       发表于 2015-9-8 20:13
-
-
 
 
 大赦又来啰
@@ -8429,32 +5731,19 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 然而第三章和某些英灵的灵基材料还是没有着落
 
 
-
-
-
-
-
 -----
 
 ####  conseil  
 ##### 1941#       发表于 2015-9-8 20:28
 
 
-
-
 狗粮本三局一金，感觉很不妙啊<img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">有什么玄学没？
-
-
-
-
-
 
 
 -----
 
 ####  wangandh  
 ##### 1942#       发表于 2015-9-8 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30099366&amp;ptid=1085254" target="_blank">conseil 发表于 2015-9-8 20:28</a>
@@ -8465,16 +5754,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 红A大狗这种幸运E赶紧下课
 
 
-
-
-
-
-
 -----
 
 ####  yla  
 ##### 1943#       发表于 2015-9-8 23:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30099379&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-9-8 20:30</a>
@@ -8485,25 +5768,13 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 <img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">所以我不出金狗粮一定是R姐清姬大狗+支援红A这4个幸运E的锅！
 
 
-
-
-
-
-
 -----
 
 ####  西人  
 ##### 1944#       发表于 2015-9-8 23:52
 
 
-
-
 没灵基素材救济这yc
-
-
-
-
-
 
 
 -----
@@ -8512,22 +5783,13 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1945#       发表于 2015-9-8 23:52
 
 
-
-
 这有什么用，等级全卡着
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 1946#       发表于 2015-9-9 03:41
-
-
 
 
 弓和法师普通棋子特别难出…人家可是带着幸运A+的大帝呢<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
@@ -8538,25 +5800,13 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1947#       发表于 2015-9-9 11:22
 
 
-
-
 20AP居然会出金棋子。。。对面大公给力啊
-
-
-
-
-
 
 
 -----
@@ -8565,14 +5815,7 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1948#       发表于 2015-9-9 12:46
 
 
-
-
 有两个多石初始，一个抽出金闪闪和阿塔兰忒，一个抽出贞德、卡米拉和龙女，哪个更有发展潜力？
-
-
-
-
-
 
 
 -----
@@ -8581,15 +5824,9 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1949#       发表于 2015-9-9 13:38
 
 
-
 <blockquote>zhyh1992 发表于 2015-9-9 12:46
 有两个多石初始，一个抽出金闪闪和阿塔兰忒，一个抽出贞德、卡米拉和龙女，哪个更有发展潜力？ ...</blockquote>
 贞德和龙娘优，抱个b阶大腿基本就没问题了；闪闪和阿塔重复了，战斗抢星星和养成抢资源，不太好
-
-
-
-
-
 
 
 -----
@@ -8598,16 +5835,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1950#       发表于 2015-9-9 13:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30105717&amp;ptid=1085254" target="_blank">千手丸 发表于 2015-9-9 13:38</a>
 
 贞德和龙娘优，抱个b阶大腿基本就没问题了；闪闪和阿塔重复了，战斗抢星星和养成抢资源，不太好 ...</blockquote>
 直接换个B叔不就得了<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8616,17 +5847,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1951#       发表于 2015-9-9 17:33
 
 
-
-
 请问 TYPE-MOONエース Fate/Grand Orde 一书内的特典码现在还有效吗？
 
 
 手痒想在淘宝入一个（单码没书60，<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
@@ -8635,21 +5859,13 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 ##### 1952#       发表于 2015-9-9 17:45
 
 
-
-
 到明年9/1过期吧，还早呢
-
-
-
-
-
 
 
 -----
 
 ####  gulant  
 ##### 1953#       发表于 2015-9-9 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30108183&amp;ptid=1085254" target="_blank">衛宫切嗣 发表于 2015-9-9 17:45</a>
@@ -8661,16 +5877,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 领取不到是不是被骗或者码失效？<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zhyh1992  
 ##### 1954#       发表于 2015-9-9 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30105918&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-9 13:58</a>
@@ -8679,16 +5889,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 可作为北欧神话的粉丝我已经换了齐格飞了
 
 
-
-
-
-
-
 -----
 
 ####  衛宫切嗣  
 ##### 1955#       发表于 2015-9-9 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30108639&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-9 18:33</a>
@@ -8702,16 +5906,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 用ID和key来领的，这页面也显示失败应该是key是假的了吧
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 1956#       发表于 2015-9-9 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30108827&amp;ptid=1085254" target="_blank">衛宫切嗣 发表于 2015-9-9 18:57</a>
@@ -8723,16 +5921,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 另外淘宝好像只有一个卖码的，其他都是卖书而且n天后才有。
 
 
-
-
-
-
-
 -----
 
 ####  衛宫切嗣  
 ##### 1957#       发表于 2015-9-9 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30109509&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-9 20:35</a>
@@ -8744,17 +5936,10 @@ B叔怎么说呢，如果你缺DPS可以考虑一下，2破有点麻烦要刷石
 amazon断货了，9/26才补货啊
 
 
-
-
-
-
-
 -----
 
 ####  evangelina  
 ##### 1958#       发表于 2015-9-9 23:38
-
-
 
 
 AP减半！
@@ -8764,17 +5949,10 @@ AP减半！
 不管了，先把卡都喂起来！
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1959#       发表于 2015-9-10 03:29
-
-
 
 
 只考虑练到50级左右的程度，自爆弓/罗宾汉/阿塔谁当候补队员比较好？只有NP30%的卡
@@ -8783,27 +5961,15 @@ AP减半！
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  gxliv  
 ##### 1960#       发表于 2015-9-10 04:13
 
 
-
-
 自爆弓要50级必须3突，罗宾汉要2突
 
 阿塔只要突破一次，而且成长类型是早熟，考虑到精力的花费还是选阿塔吧
-
-
-
-
-
 
 
 -----
@@ -8814,27 +5980,19 @@ AP减半！
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  白光之翼  
 ##### 1962#       发表于 2015-9-10 10:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">这运营不能更恶意，队伍里一堆一破练满准备二破的卡素材和棋子，结果继续开狗粮半减是闹哪样
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 1963#       发表于 2015-9-10 10:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30112153&amp;ptid=1085254" target="_blank">gxliv 发表于 2015-9-10 04:13</a>
@@ -8845,16 +6003,10 @@ AP减半！
 不过阿塔的战斗力在50级的时候远不如自爆弓和罗宾汉。。。。
 
 
-
-
-
-
-
 -----
 
 ####  erlic  
 ##### 1964#       发表于 2015-9-10 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30108070&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-9 17:33</a>
@@ -8866,17 +6018,10 @@ AP减半！
 哪里有单卖码的
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 1965#       发表于 2015-9-10 14:31
-
-
 
 
 下次活动肯定是棋子AP减半
@@ -8885,16 +6030,10 @@ AP减半！
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  千手丸  
 ##### 1966#       发表于 2015-9-10 16:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30116414&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-10 14:31</a>
@@ -8908,31 +6047,19 @@ AP减半！
 坑爹掉率在那
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 1967#       发表于 2015-9-10 17:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/201.gif" referrerpolicy="no-referrer">小玉卡米拉表示能掉不错了。 看我们的素材连刷的机会都没
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 1968#       发表于 2015-9-10 17:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30116414&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-10 14:31</a>
@@ -8944,25 +6071,13 @@ AP减半！
 情愿是掉率加倍<img src="https://static.saraba1st.com/image/smiley/face/179.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 1969#       发表于 2015-9-10 17:34
 
 
-
-
 炸裂，没石头了，最后20AP掉了5个金狗粮
-
-
-
-
-
 
 
 -----
@@ -8971,14 +6086,7 @@ AP减半！
 ##### 1970#       发表于 2015-9-10 17:34
 
 
-
-
 炸裂，没石头了，最后20AP掉了5个金狗粮
-
-
-
-
-
 
 
 -----
@@ -8987,13 +6095,7 @@ AP减半！
 ##### 1971#       发表于 2015-9-10 17:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer"> 更希望下次是素材活动……逆鳞这也太难刷了
-
-
-
-
-
 
 
 -----
@@ -9002,21 +6104,13 @@ AP减半！
 ##### 1972#       发表于 2015-9-10 18:58
 
 
-
-
 问下各位玩安卓版的朋友，有啥安卓教程吗？
-
-
-
-
-
 
 
 -----
 
 ####  gulant  
 ##### 1973#       发表于 2015-9-10 21:00
-
 
 
  本帖最后由 gulant 于 2015-9-10 21:02 编辑 
@@ -9030,16 +6124,10 @@ AP减半！
 <img src="http://i108.photobucket.com/albums/n36/gamenpc/Screenshot_2015-09-10-20-01-01_zps0kln836e.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  erlic  
 ##### 1974#       发表于 2015-9-10 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30120059&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-10 21:00</a>
@@ -9050,16 +6138,10 @@ AP减半！
 加你了我也是长期挂贞德，没有别的5星卡<img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lackmind  
 ##### 1975#       发表于 2015-9-10 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30120059&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-10 21:00</a>
@@ -9070,32 +6152,19 @@ AP减半！
 加了,ID南风凛,刚入坑的萌新求不嫌弃<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 1976#       发表于 2015-9-10 21:58
 
 
-
-
 我早就30+的金狗粮存着了，狗粮和qp不是问题，材料才是_(:з」∠)_
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 1977#       发表于 2015-9-10 22:08
-
 
 
 <blockquote>引用第1970楼shanajiang于2015-09-10 00:58发表的  :
@@ -9107,32 +6176,19 @@ AP减半！
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 1978#       发表于 2015-9-10 22:21
 
 
-
-
 贴吧看到过一帖，国外网友做的，三张低清图，前三图每一战的材料掉落，用图片标示在旁边，有人有图或者帖子地址么
-
-
-
-
-
 
 
 -----
 
 ####  -v-  
 ##### 1979#       发表于 2015-9-10 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30120734&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-10 22:21</a>
@@ -9144,27 +6200,15 @@ AP减半！
 只有两张,wiki上的,要不<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 1980#       发表于 2015-9-10 23:23
 
 
-
-
 一天下来，10个石头，出了两根羽毛，操蛋
 
 呆毛四破还剩下6个羽毛，我还要花30石？！
-
-
-
-
-
 
 
 -----
@@ -9173,23 +6217,16 @@ AP减半！
 ##### 1981#       发表于 2015-9-11 00:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30120734&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-10 22:21</a>
 
 贴吧看到过一帖，国外网友做的，三张低清图，前三图每一战的材料掉落，用图片标示在旁边，有人有图或者帖子 ...</blockquote>
 [http://www.fategothai.com/index.php/how-to-play/item-drop/](http://www.fategothai.com/index.php/how-to-play/item-drop/)
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 1982#       发表于 2015-9-11 07:27
-
 
 
 <blockquote>-v- 发表于 2015-9-10 22:36
@@ -9200,16 +6237,10 @@ http://fate-go.gamerch.com/%E3%83%89%E3%83%AD%E3%83%83%E3%83%97%E3%83%AA%E3%82%B
 多谢，下面的更全
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 1983#       发表于 2015-9-11 07:28
-
 
 
 <blockquote>lackmind 发表于 2015-9-11 00:35
@@ -9217,16 +6248,10 @@ http://www.fategothai.com/index.php/how-to-play/item-drop/</blockquote>
 就是它，悲剧的发现没有弓兵棋子
 
 
-
-
-
-
-
 -----
 
 ####  shanajiang  
 ##### 1984#       发表于 2015-9-11 07:43
-
 
 
 <blockquote>ulir 发表于 2015-9-10 22:08
@@ -9237,16 +6262,10 @@ http://www.fategothai.com/index.php/how-to-play/item-drop/</blockquote>
 手机，按完了，黑屏进不去…需要挂那啥？还是缺谷歌框架？
 
 
-
-
-
-
-
 -----
 
 ####  defer  
 ##### 1985#       发表于 2015-9-11 07:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30122809&amp;ptid=1085254" target="_blank">shanajiang 发表于 2015-9-11 07:43</a>
@@ -9256,16 +6275,10 @@ play三宝必须有。
 —— 来自 Sony D5833, Android 4.4.4
 
 
-
-
-
-
-
 -----
 
 ####  shanajiang  
 ##### 1986#       发表于 2015-9-11 08:19
-
 
 
 <blockquote>defer 发表于 2015-9-11 07:54
@@ -9276,25 +6289,13 @@ play三宝必须有。
 求个下载安装教程…必须用代理吗？
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 1987#       发表于 2015-9-11 10:06
 
 
-
-
 这个周四和周五的素材本真的掉升技以外的道具的么...我就没见过掉进化素材的
-
-
-
-
-
 
 
 -----
@@ -9303,16 +6304,10 @@ play三宝必须有。
 ##### 1988#       发表于 2015-9-11 10:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30124019&amp;ptid=1085254" target="_blank">枫紫 发表于 2015-9-11 10:06</a>
 
 这个周四和周五的素材本真的掉升技以外的道具的么...我就没见过掉进化素材的 ...</blockquote>
 我掉过蛇之宝玉，灵魂灯笼之类的，只是没出逆鳞..........
-
-
-
-
-
 
 
 -----
@@ -9321,21 +6316,13 @@ play三宝必须有。
 ##### 1989#       发表于 2015-9-11 10:52
 
 
-
-
 跟着活动走，不死命肝了
-
-
-
-
-
 
 
 -----
 
 ####  defer  
 ##### 1990#       发表于 2015-9-11 14:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30122999&amp;ptid=1085254" target="_blank">shanajiang 发表于 2015-9-11 08:19</a>
@@ -9347,27 +6334,15 @@ play三宝必须有。
 游戏本身不需要代理，好像有个辅助工具可以下载apk，忘记叫什么了，你爬爬楼，里面应该有。
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 1991#       发表于 2015-9-11 14:34
 
 
-
-
 754656723
 
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">继续求刷初始的dalao招待
-
-
-
-
-
 
 
 -----
@@ -9376,14 +6351,7 @@ play三宝必须有。
 ##### 1992#       发表于 2015-9-11 18:10
 
 
-
-
 这个游戏  运营给的素材掉落设定有点丧心病狂
-
-
-
-
-
 
 
 -----
@@ -9392,14 +6360,7 @@ play三宝必须有。
 ##### 1993#       发表于 2015-9-12 10:29
 
 
-
-
 我想问下现在首抽能不能出贞德的，刷了一天首抽背景那堆都见过了，但是之外的倒是一个都没看到，是不是至少要到二抽才有机会出贞德来着。。
-
-
-
-
-
 
 
 -----
@@ -9408,15 +6369,9 @@ play三宝必须有。
 ##### 1994#       发表于 2015-9-12 10:35
 
 
-
 <blockquote>forzen 发表于 2015-9-12 10:29
 我想问下现在首抽能不能出贞德的，刷了一天首抽背景那堆都见过了，但是之外的倒是一个都没看到，是不是至少 ...</blockquote>
 首抽最高只出四星。。。刷初始还是淘宝买石头号吧，2-3r一个，80石头
-
-
-
-
-
 
 
 -----
@@ -9427,12 +6382,10 @@ play三宝必须有。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  forzen  
 ##### 1996#       发表于 2015-9-12 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30135781&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-12 10:51</a>
@@ -9443,11 +6396,6 @@ play三宝必须有。
 这样的话确实没啥好刷的了，不过现在80石头要4.5r。。另外顺便问下，石头号的石头是怎么来的，是很早之前开号然后各种维护送的么，毕竟就算抽不到贞德至少也想要个idol龙娘舔。。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -9456,12 +6404,10 @@ play三宝必须有。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 1998#       发表于 2015-9-12 11:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30135781&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-12 10:51</a>
@@ -9472,16 +6418,10 @@ play三宝必须有。
 你抽完系统强制的那一次后面再打一关还有一次抽的机会，那次抽才算真正意义上的首抽，能出5星的。
 
 
-
-
-
-
-
 -----
 
 ####  forzen  
 ##### 1999#       发表于 2015-9-12 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30136384&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-12 11:55</a>
@@ -9490,16 +6430,10 @@ play三宝必须有。
 那关还要打两次，从时间来说估计10分钟才能抽一个，感觉有点蛋疼。。
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2000#       发表于 2015-9-12 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30136463&amp;ptid=1085254" target="_blank">forzen 发表于 2015-9-12 12:05</a>
@@ -9517,16 +6451,10 @@ play三宝必须有。
 而且现在还送四星。刷个贞德换个海叔。基本前期就横着走了。
 
 
-
-
-
-
-
 -----
 
 ####  forzen  
 ##### 2001#       发表于 2015-9-12 12:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30136647&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-12 12:28</a>
@@ -9538,16 +6466,10 @@ play三宝必须有。
 现在还送4星么，不是已经过时间了么。。
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2002#       发表于 2015-9-12 13:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30136712&amp;ptid=1085254" target="_blank">forzen 发表于 2015-9-12 12:34</a>
@@ -9561,16 +6483,10 @@ play三宝必须有。
 IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<img src="https://static.saraba1st.com/image/smiley/flash/133.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  forzen  
 ##### 2003#       发表于 2015-9-12 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30137065&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-12 13:17</a>
@@ -9581,16 +6497,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 居然有贞德+龙娘么！不过比较可惜的是我是安卓<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2004#       发表于 2015-9-12 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30137091&amp;ptid=1085254" target="_blank">forzen 发表于 2015-9-12 13:20</a>
@@ -9599,16 +6509,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 继承码通用的啊。。。不分设备的==
 
 
-
-
-
-
-
 -----
 
 ####  forzen  
 ##### 2005#       发表于 2015-9-12 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30137175&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-12 13:29</a>
@@ -9617,16 +6521,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 咦，不分的么，那果断跪求！<img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2006#       发表于 2015-9-12 13:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30137211&amp;ptid=1085254" target="_blank">forzen 发表于 2015-9-12 13:32</a>
@@ -9635,25 +6533,13 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 见私信。。。
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 2007#       发表于 2015-9-12 14:20
 
 
-
-
 单发出了二世孔明……但是不怎么高兴……想要黑无毛……
-
-
-
-
-
 
 
 -----
@@ -9662,14 +6548,7 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2008#       发表于 2015-9-12 14:53
 
 
-
-
 2天刷了四个银剑六个龙牙，终于破了，刚20张金狗粮3次大成功，也算没白辛苦
-
-
-
-
-
 
 
 -----
@@ -9678,24 +6557,16 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2009#       发表于 2015-9-13 11:16
 
 
-
-
 想要蛇眼可根本不出啊，还有A阶的银棋哪刷最快呢
 
 
 ----发送自 [OnePlus A0001,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2010#       发表于 2015-9-13 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30144684&amp;ptid=1085254" target="_blank">こう 发表于 2015-9-13 11:16</a>
@@ -9707,25 +6578,13 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 刚打经验本出了一个蛇眼 然而这几率吗 还是等素材掉落UP的活动吧<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  forzen  
 ##### 2011#       发表于 2015-9-13 14:36
 
 
-
-
 我想问下其实羁绊有啥用的。。
-
-
-
-
-
 
 
 -----
@@ -9734,16 +6593,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2012#       发表于 2015-9-13 14:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30146273&amp;ptid=1085254" target="_blank">forzen 发表于 2015-9-13 14:36</a>
 
 我想问下其实羁绊有啥用的。。</blockquote>
 没啥用，开幕间物语（从者个别任务），追加语音
-
-
-
-
-
 
 
 -----
@@ -9752,15 +6605,9 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2013#       发表于 2015-9-13 14:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30146273&amp;amp;ptid=1085254" target="_blank">forzen 发表于 2015-9-13 14:36</a>
 我想问下其实羁绊有啥用的。。</blockquote>
 开从者专用本剧情。还有设定。
-
-
-
-
-
 
 
 -----
@@ -9769,14 +6616,8 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2014#       发表于 2015-9-13 22:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">真的有鬼灯笼这种道具么...刷了好几管AP完全没见过，今天换master本也没有...
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">我的小玉二破遥遥无期
-
-
-
-
-
 
 
 -----
@@ -9785,14 +6626,8 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2015#       发表于 2015-9-13 22:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">真的有鬼灯笼这种道具么...刷了好几管AP完全没见过，今天换master本也没有...
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">我的小玉二破遥遥无期
-
-
-
-
-
 
 
 -----
@@ -9801,16 +6636,9 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2016#       发表于 2015-9-13 22:16
 
 
-
-
 灯笼一般是在第二章的火山刷吧
 
 然而并没什么用，下一阶段需要的ホムンクルスベビー根本没地方刷www
-
-
-
-
-
 
 
 -----
@@ -9819,14 +6647,7 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2017#       发表于 2015-9-13 22:40
 
 
-
-
 邮局港剧，我觉得比起材料掉率，五星从者的抽卡率好像也不是那么低了<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9835,23 +6656,16 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2018#       发表于 2015-9-13 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30150006&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-13 22:40</a>
 
 邮局港剧，我觉得比起材料掉率，五星从者的抽卡率好像也不是那么低了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">材料能送   五星从者会送吗！
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2019#       发表于 2015-9-13 23:09
-
 
 
 <blockquote>引用第2015楼brunestud于2015-09-13 22:40发表的  :
@@ -9863,16 +6677,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2020#       发表于 2015-9-14 09:27
-
 
 
  本帖最后由 gulant 于 2015-9-14 16:22 编辑 
@@ -9887,27 +6695,15 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 然而一堆3星2星卡在二破的路上，素材坑爹！
 
 
-
-
-
-
-
-
 -----
 
 ####  猫又股宗  
 ##### 2021#       发表于 2015-9-14 14:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30152898&amp;amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-14 09:27</a>
 同感，除了第一次10连出了小玉，一次单抽贞德后从未抽到4星和5星，包括礼装！ ...</blockquote>
 我到现在出过一个大公仨阿塔，然并卵
-
-
-
-
-
 
 
 -----
@@ -9916,17 +6712,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2022#       发表于 2015-9-14 16:05
 
 
-
-
 这游戏5星从者是1%，4星从者是3%，所以理论上100抽以内有1个5星3个4星的都不算非洲人
 
 
 我现在大概50抽已经完成这个目标了，再抽到什么就当是赚的吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9935,14 +6724,7 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2023#       发表于 2015-9-14 19:59
 
 
-
-
 凑过40石10连了一把，说好的冬木up一个都没有，倒是出来个安多瓦内特。
-
-
-
-
-
 
 
 -----
@@ -9953,12 +6735,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  卡蓮  
 ##### 2025#       发表于 2015-9-14 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30159281&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-14 20:12</a>
@@ -9971,25 +6751,13 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 能刷的自己磕石头去刷啦（庄司大胜利
 
 
-
-
-
-
-
 -----
 
 ####  defer  
 ##### 2026#       发表于 2015-9-14 20:55
 
 
-
-
 这个礼装能舔！
-
-
-
-
-
 
 
 -----
@@ -9998,17 +6766,11 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2027#       发表于 2015-9-14 20:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30159281&amp;amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-14 20:12</a>
 要开活动了，尼禄祭，换5星礼装和几种进化素材
 
 然而。。现在缺的主要素材比如双晶灯笼啥的并不能换 ...</blockquote>
 宝石老头能换了?那抽五星礼装有蛋用啊…
-
-
-
-
-
 
 
 -----
@@ -10019,28 +6781,20 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  sayuri55  
 ##### 2029#       发表于 2015-9-14 21:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">我的红A看来能三破了...
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">然而小玉的贵灯笼仍然遥遥无期
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 2030#       发表于 2015-9-14 22:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30159632&amp;ptid=1085254" target="_blank">卡蓮 发表于 2015-9-14 20:49</a>
@@ -10057,25 +6811,13 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 庄司：计划通<img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 2031#       发表于 2015-9-15 10:02
 
 
-
-
 不送逆鳞,大公2破遥遥无期
-
-
-
-
-
 
 
 -----
@@ -10084,23 +6826,15 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ##### 2032#       发表于 2015-9-15 11:39
 
 
-
-
 圣乔治本终于刷出个逆鳞。。。
 
 因为大龙模型的关系，那个箱子这么小。。。
-
-
-
-
-
 
 
 -----
 
 ####  西条拓巳  
 ##### 2033#       发表于 2015-9-15 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30164553&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-15 11:39</a>
@@ -10111,17 +6845,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 打了多少次？从昨天到今天一直没出
 
 
-
-
-
-
-
 -----
 
 ####  玉米大炮  
 ##### 2034#       发表于 2015-9-15 13:57
-
-
 
 
 上级棋子本怎么刷比较稳定？运气不好大腿60级呆毛被集火都可能一回合跪
@@ -10130,16 +6857,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ----发送自 [Sony C6603,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2035#       发表于 2015-9-15 14:00
-
 
 
 <blockquote>引用第2032楼玉米大炮于2015-09-15 13:57发表的  :
@@ -10153,16 +6874,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2036#       发表于 2015-9-15 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30165900&amp;ptid=1085254" target="_blank">玉米大炮 发表于 2015-9-15 13:57</a>
@@ -10175,16 +6890,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 —— 来自 OPPO X9007, Android 4.3
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2037#       发表于 2015-9-15 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30165900&amp;ptid=1085254" target="_blank">玉米大炮 发表于 2015-9-15 13:57</a>
@@ -10202,17 +6911,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 这本不算难吧...
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2038#       发表于 2015-9-15 14:36
-
-
 
 
 高等级B叔小玉红卡一般一次一个，大公蓝卡也差不多一次一个，长江好像介于两者之间，再带个加群攻能补刀的，开打前稍微算一下攻击力就差不多了，被暴击属于没办法的事
@@ -10221,16 +6923,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2039#       发表于 2015-9-15 14:53
-
 
 
 <blockquote>西条拓巳 发表于 2015-9-15 13:45
@@ -10240,16 +6936,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 大龙血厚，连着打容易暴躁。。。
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2040#       发表于 2015-9-15 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30166472&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-15 14:53</a>
@@ -10260,17 +6950,10 @@ IOS小号切换太麻烦，懒得搞，，，之前还弄丢了一个闪闪号<i
 原来如此<img src="https://static.saraba1st.com/image/smiley/animal/145.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2041#       发表于 2015-9-15 18:31
-
-
 
 
 转自FGO吧
@@ -10307,11 +6990,6 @@ QP100000无限次，10金
 尼禄祭期间尼禄几率up。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -10320,21 +6998,13 @@ QP100000无限次，10金
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 2043#       发表于 2015-9-15 19:49
 
 
-
-
 哦，这次活动开超级本，不知道难度怎样
-
-
-
-
-
 
 
 -----
@@ -10343,22 +7013,13 @@ QP100000无限次，10金
 ##### 2044#       发表于 2015-9-15 19:57
 
 
-
-
 活动期间尼禄可以初始刷了。。。
-
-
-
-
-
 
 
 -----
 
 ####  西条拓巳  
 ##### 2045#       发表于 2015-9-15 20:00
-
-
 
 
 ▼バトルキャラ选択机能の実装
@@ -10368,16 +7029,10 @@ QP100000无限次，10金
 以后可以任意选择战斗时的形态了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2046#       发表于 2015-9-15 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30169550&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-15 20:00</a>
@@ -10388,16 +7043,10 @@ QP100000无限次，10金
 <img src="https://static.saraba1st.com/image/smiley/face/201.gif" referrerpolicy="no-referrer">早就该有了。小玉第1套衣服多好看。。。什么围裙难看死了
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2047#       发表于 2015-9-15 23:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30165900&amp;ptid=1085254" target="_blank">玉米大炮 发表于 2015-9-15 13:57</a>
@@ -10415,11 +7064,6 @@ QP100000无限次，10金
 其实都是大腿的问题,有个60级穿刺公就很轻松了,礼装龙脉或者伊莉雅都行
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -10428,29 +7072,19 @@ QP100000无限次，10金
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  syuu  
 ##### 2049#       发表于 2015-9-16 00:20
 
 
-
-
 不知道为啥ipad的FGO突然没声音了，重启ipad甚至重装游戏都没用，但是带着耳机又有声音。并且就算不带耳机，开别的软件比如b站客户端也一样有声音。现在正在郁闷的重新下载数据包<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  jackyhuang  
 ##### 2050#       发表于 2015-9-16 09:14
-
-
 
 
 プロデューサーレター
@@ -10470,7 +7104,6 @@ QP100000无限次，10金
 
 
 こちらのキャンペーンは2015年9月30日(水)23:59迄の期间限定実施となっておりますので、まだお受け取りいただけていない皆様は、どうぞお早めにお受取りいただければ幸いです。
-
 
 
 ご挨拶が长くなりましたが、今回のプロデューサーレターでは、9月下旬に予定しております、アプリ更新を伴うゲームアップデートについてご案内させていただきます。
@@ -10525,8 +7158,6 @@ QP100000无限次，10金
 これらのアップデートは次回アプリ更新から反映されます。9月下旬のアプリ更新の実施まで、今しばらくお待ちください。
 
 
-
-
 ■今后のゲームアップデートについて
 
 ここまで次回のゲームアップデートで実施する主な改修项目についてご案内させていただきましたが、ここに间に合わなかった项目につきましても、引き続き改修を続け、翌以降のアップデートにて顺次対応を行ってまいります。
@@ -10558,9 +7189,7 @@ QP100000无限次，10金
 代表的なものは以上となりますが、勿论、これら以外にも様々な追加要素や改善を随时行ってまいります。
 
 
-
 なお、アクセス集中により繋がり难い状态が度々発生する状况の打破に向け、サーバの増设とチューニングにつきましては、専门の対策チームを编成し、ゲームアップデートに因らず、随时対応を行っております。状况は日々进捗しておりますが、明らかな改善までには今しばらくお时间をいただく见込みです。ご不便をお挂けしており申し訳ございませんが、今しばらくお待ちいただけますようお愿いいたします。
-
 
 
 さて、明日からはいよいよ、待望の本格イベント「ネロ祭 ～胜ち抜け激闘コロシアム～」の开幕です。
@@ -10578,7 +7207,6 @@ QP100000无限次，10金
 今后とも「Fate/Grand Order」をよろしくお愿いいたします。
 
 
-
 Fate/Grand Order プロデューサー
 
 
@@ -10587,21 +7215,13 @@ Fate/Grand Order プロデューサー
 代表取缔役　庄司顕仁
 
 
-
 有种到现在为止还在公测的感觉……
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2051#       发表于 2015-9-16 09:44
-
-
 
 
 这种很正常的啦，经常出了之后才大改的，不过感觉战斗翻牌那里也细化得太照顾弱智了吧…
@@ -10612,17 +7232,10 @@ Fate/Grand Order プロデューサー
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 2052#       发表于 2015-9-16 09:48
-
-
 
 
 手机游戏就是这样的。
@@ -10630,17 +7243,10 @@ Fate/Grand Order プロデューサー
 不好的地方知道改就算有诚意了。
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 2053#       发表于 2015-9-16 12:49
-
-
 
 
 戰鬥高速化會如何
@@ -10650,32 +7256,19 @@ Fate/Grand Order プロデューサー
 後者對硬件不好的手機就是福音
 
 
-
-
-
-
-
 -----
 
 ####  qrlfafner  
 ##### 2054#       发表于 2015-9-16 14:39
 
 
-
-
 刚入坑，抱着舔几个女性角色的目的来的话，是去买个石头号抽抽抽还是直接买初始比较好
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2055#       发表于 2015-9-16 14:52
-
 
 
 <blockquote>引用第2052楼qrlfafner于2015-09-16 14:39发表的  :
@@ -10687,25 +7280,13 @@ Fate/Grand Order プロデューサー
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  樹洞  
 ##### 2056#       发表于 2015-9-16 15:01
 
 
-
-
 希望尽快开放第三章，FREE剧情都快打完了。
-
-
-
-
-
 
 
 -----
@@ -10714,14 +7295,7 @@ Fate/Grand Order プロデューサー
 ##### 2057#       发表于 2015-9-16 15:13
 
 
-
-
 送了一大波素材x5
-
-
-
-
-
 
 
 -----
@@ -10730,17 +7304,10 @@ Fate/Grand Order プロデューサー
 ##### 2058#       发表于 2015-9-16 15:25
 
 
-
-
 完全进不去orz……
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -10749,14 +7316,7 @@ Fate/Grand Order プロデューサー
 ##### 2059#       发表于 2015-9-16 15:27
 
 
-
-
 喷了，这活动简直良心的过分，20AP都能掉礼装，金银奖牌掉率不低，再临素材一大把，运营突然想通了么<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10765,16 +7325,9 @@ Fate/Grand Order プロデューサー
 ##### 2060#       发表于 2015-9-16 15:28
 
 
-
-
 金币随机掉……一次能保证5枚应该就比较好了
 
 慢慢刷吧，经验还可以
-
-
-
-
-
 
 
 -----
@@ -10783,14 +7336,7 @@ Fate/Grand Order プロデューサー
 ##### 2061#       发表于 2015-9-16 15:34
 
 
-
-
 美声的歌姬+1 龙娘这是到哪都要被吐槽音痴ww
-
-
-
-
-
 
 
 -----
@@ -10799,14 +7345,7 @@ Fate/Grand Order プロデューサー
 ##### 2062#       发表于 2015-9-16 15:40
 
 
-
-
 超级本50级确实差不多，三个主力就够了。。。
-
-
-
-
-
 
 
 -----
@@ -10815,24 +7354,16 @@ Fate/Grand Order プロデューサー
 ##### 2063#       发表于 2015-9-16 15:44
 
 
-
-
 超级本打了一把，金牌9个，2W经验，真不错
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2064#       发表于 2015-9-16 15:44
-
 
 
 <blockquote>引用第2059楼cyberdark于2015-09-16 15:27发表的  :
@@ -10844,11 +7375,6 @@ Fate/Grand Order プロデューサー
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -10857,12 +7383,10 @@ Fate/Grand Order プロデューサー
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  saintsimpler  
 ##### 2066#       发表于 2015-9-16 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30177275&amp;amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-16 15:44</a>
@@ -10873,24 +7397,13 @@ Fate/Grand Order プロデューサー
 有的。。我也一把30AP掉了一个
 
 
-
-
-
-
-
 -----
 
 ####  badchris  
 ##### 2067#       发表于 2015-9-16 16:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">300铜，400银，后面基本全金了……得磕几个石头
-
-
-
-
-
 
 
 -----
@@ -10899,22 +7412,13 @@ Fate/Grand Order プロデューサー
 ##### 2068#       发表于 2015-9-16 16:09
 
 
-
-
 不过这礼装……除了贞德真没想到其他的适合人选
-
-
-
-
-
 
 
 -----
 
 ####  EMIYARIN  
 ##### 2069#       发表于 2015-9-16 16:30
-
-
 
 
 ネロ祭予选初级　禁断の页
@@ -10947,17 +7451,10 @@ Fate/Grand Order プロデューサー
 ネロ祭フィナーレー　伝承结晶
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2070#       发表于 2015-9-16 16:34
-
-
 
 
 这营运神经病
@@ -10971,25 +7468,13 @@ Fate/Grand Order プロデューサー
 就连初级都可以一次送5张禁断页,银牌再换10张穿刺公可以灵基4了
 
 
-
-
-
-
-
 -----
 
 ####  cyberdark  
 ##### 2071#       发表于 2015-9-16 16:36
 
 
-
-
 但什么时候送金棋子啊
-
-
-
-
-
 
 
 -----
@@ -10998,14 +7483,7 @@ Fate/Grand Order プロデューサー
 ##### 2072#       发表于 2015-9-16 16:36
 
 
-
-
 那个白色奇美拉。。8次里掉了两个混沌之爪了。。
-
-
-
-
-
 
 
 -----
@@ -11014,14 +7492,7 @@ Fate/Grand Order プロデューサー
 ##### 2073#       发表于 2015-9-16 16:40
 
 
-
-
 龙娘MYROOM追加了活动相关语音，好像就一句
-
-
-
-
-
 
 
 -----
@@ -11030,13 +7501,7 @@ Fate/Grand Order プロデューサー
 ##### 2074#       发表于 2015-9-16 17:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">果然良心的活动。希望下次能出棋子活动。
-
-
-
-
-
 
 
 -----
@@ -11047,7 +7512,6 @@ Fate/Grand Order プロデューサー
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  路德维嘉  
@@ -11056,21 +7520,13 @@ Fate/Grand Order プロデューサー
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  广野纮  
 ##### 2077#       发表于 2015-9-16 17:39
 
 
-
-
 早这样不就好了，也就是课石头刷材料的比较杯具
-
-
-
-
-
 
 
 -----
@@ -11079,14 +7535,7 @@ Fate/Grand Order プロデューサー
 ##### 2078#       发表于 2015-9-16 17:44
 
 
-
-
 礼装5AP也出。 铜牌要200个先打满再说，后面只管打需要的材料关
-
-
-
-
-
 
 
 -----
@@ -11095,14 +7544,7 @@ Fate/Grand Order プロデューサー
 ##### 2079#       发表于 2015-9-16 17:45
 
 
-
-
 活动本会掉棋子吗？
-
-
-
-
-
 
 
 -----
@@ -11113,12 +7555,10 @@ Fate/Grand Order プロデューサー
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  天使折翼  
 ##### 2081#       发表于 2015-9-16 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30178702&amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-9-16 17:44</a>
@@ -11127,16 +7567,10 @@ Fate/Grand Order プロデューサー
 真的假的？ 5ap能出礼装？
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2082#       发表于 2015-9-16 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30177888&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-16 16:36</a>
@@ -11147,17 +7581,10 @@ Fate/Grand Order プロデューサー
 再也不用打黑森林了<img src="https://static.saraba1st.com/image/smiley/zdl/161.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2083#       发表于 2015-9-16 18:16
-
-
 
 
 这次的掉率估计也是用来衡量数值的，素材掉率良心死了…
@@ -11166,27 +7593,16 @@ Fate/Grand Order プロデューサー
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2084#       发表于 2015-9-16 18:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30178798&amp;ptid=1085254" target="_blank">天使折翼 发表于 2015-9-16 17:52</a>
 
 真的假的？ 5ap能出礼装？</blockquote>
 出，
-
-
-
-
-
 
 
 -----
@@ -11197,21 +7613,13 @@ Fate/Grand Order プロデューサー
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  催永元  
 ##### 2086#       发表于 2015-9-16 18:50
 
 
-
-
 礼装是活动里直接掉落？打来的牌子去哪换礼装啊
-
-
-
-
-
 
 
 -----
@@ -11222,12 +7630,10 @@ Fate/Grand Order プロデューサー
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gulant  
 ##### 2088#       发表于 2015-9-16 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30178716&amp;ptid=1085254" target="_blank">黯之痕 发表于 2015-9-16 17:45</a>
@@ -11236,25 +7642,13 @@ Fate/Grand Order プロデューサー
 活动本出金棋子，拿了一个狂战的。
 
 
-
-
-
-
-
 -----
 
 ####  badchris  
 ##### 2089#       发表于 2015-9-16 19:22
 
 
-
-
 20AP的出龙之牙，反正掉率比FREE本强多了
-
-
-
-
-
 
 
 -----
@@ -11263,21 +7657,13 @@ Fate/Grand Order プロデューサー
 ##### 2090#       发表于 2015-9-16 19:47
 
 
-
-
 活动30ap的本出礼装吗？打了两个石头都是金牌和棋子。
-
-
-
-
-
 
 
 -----
 
 ####  雪基百科  
 ##### 2091#       发表于 2015-9-16 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30179816&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-16 19:47</a>
@@ -11288,25 +7674,13 @@ Fate/Grand Order プロデューサー
 servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 
 
-
-
-
-
-
 -----
 
 ####  zhyh1992  
 ##### 2092#       发表于 2015-9-16 20:35
 
 
-
-
 紧急维护了，估计是活动礼装掉率太高要调低，幸好我20ap一把就出了
-
-
-
-
-
 
 
 -----
@@ -11315,23 +7689,15 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 ##### 2093#       发表于 2015-9-16 20:37
 
 
-
-
 官方说是修正教学的问题,看你们信不信了
 
 反正我是吃了一颗石再打了3场超级,没爪子<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2094#       发表于 2015-9-16 20:37
-
 
 
  本帖最后由 黑上シグマ 于 2015-9-16 20:38 编辑 
@@ -11352,18 +7718,12 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 太技术了…………
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 2095#       发表于 2015-9-16 20:37
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -11374,12 +7734,10 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 2097#       发表于 2015-9-16 20:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30180186&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-16 20:37</a>
@@ -11390,27 +7748,15 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 放心，你不是一个人
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2098#       发表于 2015-9-16 20:41
 
 
-
-
 没见过礼装
 
 反正银牌也能换,性能一般,突不满也不可惜
-
-
-
-
-
 
 
 -----
@@ -11419,14 +7765,7 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 ##### 2099#       发表于 2015-9-16 20:55
 
 
-
-
 我的2个号也都没出礼装，出不出吧没什么意思···
-
-
-
-
-
 
 
 -----
@@ -11435,16 +7774,9 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 ##### 2100#       发表于 2015-9-16 21:01
 
 
-
-
 同样没有素材，只要金银牌和棋子。
 
 然后维护后是不是根据不用看了，还是留石头算了。<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11455,21 +7787,13 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  jackyhuang  
 ##### 2102#       发表于 2015-9-16 21:19
 
 
-
-
 据测试尼禄礼装对自爆弓有效，恭喜一发男变两发男
-
-
-
-
-
 
 
 -----
@@ -11478,16 +7802,10 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 ##### 2103#       发表于 2015-9-16 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30180523&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2015-9-16 21:19</a>
 
 据测试尼禄礼装对自爆弓有效，恭喜一发男变两发男</blockquote>
 毫无人性，不让人自爆。<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11496,17 +7814,10 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 ##### 2104#       发表于 2015-9-17 00:37
 
 
-
-
 我有一个问题：请问闪闪的地图炮是不是最华而不实的地图炮<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
 说好的对从者特效呢？
-
-
-
-
-
 
 
 -----
@@ -11515,24 +7826,16 @@ servent 掉光球 的就是 礼装，掉箱子就是奖牌/棋子
 ##### 2105#       发表于 2015-9-17 01:00
 
 
-
-
 新入坑，打完了第一章
 
 
 现在是一边打剧情一边刷活动本升级回AP吗？
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2106#       发表于 2015-9-17 01:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30181986&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-17 00:37</a>
@@ -11546,16 +7849,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 对从者特攻不知道伤害计算方式,希望不会像神性那样直接加固定百位数伤害
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2107#       发表于 2015-9-17 01:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182110&amp;ptid=1085254" target="_blank">少女人形 发表于 2015-9-17 01:00</a>
@@ -11574,16 +7871,10 @@ exp/AP高得接近星期天的经验本了,还送奖牌和素材
 注意不要一次升两级就好,升级之前把AP打光
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2108#       发表于 2015-9-17 01:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182110&amp;ptid=1085254" target="_blank">少女人形 发表于 2015-9-17 01:00</a>
@@ -11595,16 +7886,10 @@ exp/AP高得接近星期天的经验本了,还送奖牌和素材
 直接刷活动本就行，现在没必要刷普通本。活动本尽量打够200铜，300银，1100金...估计金的有点难，那就尽量打够200铜，100银，100金。材料是很难入手的，特别对于刚入坑的新人，错过了前两次送材料的机会很吃亏。这次的币可以换材料还是很不错的。5ap：EXP : 1100；10ap：EXP : 2770；20ap：EXP :7630；30ap：EXP：20380，自己把握好经验别浪费了。当然，5ap的活动本经验都溢出的话可以刷剧情。
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2109#       发表于 2015-9-17 01:28
-
 
 
  本帖最后由 brunestud 于 2015-9-17 01:31 编辑 
@@ -11616,11 +7901,6 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 我体感伤害是黑Saber》蓝Saber》闪闪=红Saber=虹Saber》lilySaber<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -11629,12 +7909,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  saintsimpler  
 ##### 2111#       发表于 2015-9-17 01:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30182226&amp;amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-17 01:28</a>
@@ -11642,16 +7920,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 呆毛打了宝具提升本吧？阿提拉和闪闪的宝具提升本还没开放，三个从者的宝具倍率应该是一样的
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2112#       发表于 2015-9-17 01:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182230&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-17 01:30</a>
@@ -11665,33 +7937,19 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 序章就不太好说了。
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2113#       发表于 2015-9-17 01:45
 
 
-
-
 看了下应该是序章...10AP的能打，20AP的还没试过...
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2114#       发表于 2015-9-17 01:51
-
-
 
 
 上级前面只是一堆龙
@@ -11708,16 +7966,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 仍旧超值
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2115#       发表于 2015-9-17 01:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182230&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-17 01:30</a>
@@ -11730,11 +7982,6 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 前面的都不是人肯定不会掉旗子。。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -11743,12 +7990,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 2117#       发表于 2015-9-17 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182309&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-17 01:59</a>
@@ -11759,16 +8004,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 据说前面的奇美拉掉爪子，反正我没见过。但20ap的龙牙我倒是打到过。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2118#       发表于 2015-9-17 02:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182309&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-17 01:59</a>
@@ -11782,27 +8021,15 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 但是后面的3人应该只掉硬币 。。。
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2119#       发表于 2015-9-17 02:07
 
 
-
-
 爪子是一定有...只是那掉率...
 
 棋子不会有吧?现在我感觉官方要把金棋定位回最稀有素材了
-
-
-
-
-
 
 
 -----
@@ -11813,13 +8040,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ulir  
 ##### 2121#       发表于 2015-9-17 03:00
-
-
 
 
 拿剑盾的罗马士兵掉过英雄之证，棋子没确定暂时不敢说，升级技能的那种宝石（？）确定是有的
@@ -11828,16 +8052,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2122#       发表于 2015-9-17 03:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182416&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-17 03:00</a>
@@ -11852,17 +8070,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 拿剑盾的只是小怪。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2123#       发表于 2015-9-17 05:03
-
-
 
 
 哦我只是说一下自己的掉落情况，刚才白穷奇出爪子了&gt;&lt;小穷奇金箱子只给了银狗粮
@@ -11872,17 +8083,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 2124#       发表于 2015-9-17 05:52
-
-
 
 
 别和呆毛系比AOE，有了魔力放出这个神技目前没人的AOE比呆毛系的强，一级就加30%红卡伤害满级可以加50%的红卡伤害太imba。黑无毛目前比蓝呆毛强是因为她中期提升最大，70级左右atk就基本满级了。80多级之后的蓝呆毛伤害会比黑无毛高
@@ -11891,17 +8095,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2125#       发表于 2015-9-17 07:05
-
-
 
 
 队友的虹saber攻击1w1，玩家加攻和技能加宝具伤害后开场放地图炮，吕布还剩7000血，荆轲剩2w多<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -11914,25 +8111,13 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  qrlfafner  
 ##### 2126#       发表于 2015-9-17 08:09
 
 
-
-
 日系手游玩得少不知道引继码只能用一次，弄丢了个双五星的初始，有办法找回么
-
-
-
-
-
 
 
 -----
@@ -11941,16 +8126,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ##### 2127#       发表于 2015-9-17 08:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182882&amp;ptid=1085254" target="_blank">qrlfafner 发表于 2015-9-17 08:09</a>
 
 日系手游玩得少不知道引继码只能用一次，弄丢了个双五星的初始，有办法找回么 ...</blockquote>
 找会日语的帮你申诉就行了。
-
-
-
-
-
 
 
 -----
@@ -11959,14 +8138,7 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ##### 2128#       发表于 2015-9-17 09:40
 
 
-
-
 打了一天30ap本一个素材都没有，改打20ap每一局掉素材，然而礼装还是影都没有<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11975,14 +8147,7 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ##### 2129#       发表于 2015-9-17 09:43
 
 
-
-
 5AP出礼装的路过，掉率和难度似乎不挂钩……
-
-
-
-
-
 
 
 -----
@@ -11991,16 +8156,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ##### 2130#       发表于 2015-9-17 10:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30182320&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-17 02:04</a>
 
 据说前面的奇美拉掉爪子，反正我没见过。但20ap的龙牙我倒是打到过。</blockquote>
 奇美拉我也掉爪子了,但是我并没有掉礼装
-
-
-
-
-
 
 
 -----
@@ -12009,21 +8168,13 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ##### 2131#       发表于 2015-9-17 10:59
 
 
-
-
 30ap出了5个银牌3个金牌,那么还有没有更黑的??
-
-
-
-
-
 
 
 -----
 
 ####  vleev  
 ##### 2132#       发表于 2015-9-17 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30181986&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-17 00:37</a>
@@ -12035,25 +8186,13 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 你这样讲话,置红a于何处
 
 
-
-
-
-
-
 -----
 
 ####  yongze  
 ##### 2133#       发表于 2015-9-17 11:16
 
 
-
-
 礼装上午出了在20AP的偶像组合那里，干掉玛丽出的不是宝箱而是一团火就是礼装了，所以看到关底从者掉火种恭喜你了
-
-
-
-
-
 
 
 -----
@@ -12062,23 +8201,15 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ##### 2134#       发表于 2015-9-17 11:43
 
 
-
-
 红A打完宝具本还是可以看的<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 打到现在还没掉过礼装……
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2135#       发表于 2015-9-17 15:24
-
 
 
  本帖最后由 ulir 于 2015-9-17 15:29 编辑 
@@ -12091,17 +8222,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 总觉得龙娘打奇美拉（穷奇）有伤害加成，B卡攻击好高……
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2136#       发表于 2015-9-17 15:58
-
-
 
 
 目前金牌126个，没见过礼装orz
@@ -12110,16 +8234,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2137#       发表于 2015-9-17 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30187704&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-17 15:24</a>
@@ -12130,18 +8248,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 龙娘人属性，奇美拉地属性，人克地1.1的倍率<img src="http://a.imgef.com/QzhpO0w.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2138#       发表于 2015-9-17 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30188295&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-17 16:24</a>
@@ -12152,16 +8262,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 才1.1？B卡打下去感觉跟比多她2000ATK的B叔就差那么一点而已
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2139#       发表于 2015-9-17 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30188295&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-17 16:24</a>
@@ -12175,16 +8279,10 @@ EA按wiki资料至少也和蓝saber虹saber威力同级
 Archer打人似乎是0.9系数，Lancer是1.05。
 
 
-
-
-
-
-
 -----
 
 ####  quanlix  
 ##### 2140#       发表于 2015-9-17 16:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30188401&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-17 16:33</a>
@@ -12193,27 +8291,16 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 因为B阶对B阶只有1.5倍伤害，其他阶级对B阶是2倍伤害
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2141#       发表于 2015-9-17 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30188513&amp;ptid=1085254" target="_blank">quanlix 发表于 2015-9-17 16:44</a>
 
 因为B阶对B阶只有1.5倍伤害，其他阶级对B阶是2倍伤害</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">對哦，乾脆先把B叔換下去減少損失
-
-
-
-
-
 
 
 -----
@@ -12224,12 +8311,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 2143#       发表于 2015-9-17 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30188933&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-17 17:29</a>
@@ -12240,25 +8325,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 爪子难掉，但其实龙牙出率还行的，我觉得比大空洞和奥尔良那几个图高多了。
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2144#       发表于 2015-9-17 18:15
 
 
-
-
 东边不亮西边亮我也还没打出过礼装，原本想要虚数试探着抽了一下结果第一下就是日天
-
-
-
-
-
 
 
 -----
@@ -12267,14 +8340,7 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2145#       发表于 2015-9-17 20:43
 
 
-
-
 现在手里有小玉、玛丽和贞昊，先喂哪个比较好？狗粮感觉太少不够用
-
-
-
-
-
 
 
 -----
@@ -12283,15 +8349,9 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2146#       发表于 2015-9-17 20:59
 
 
-
 <blockquote>少女人形 发表于 2015-9-17 20:43
 现在手里有小玉、玛丽和贞昊，先喂哪个比较好？狗粮感觉太少不够用</blockquote>
 小玉
-
-
-
-
-
 
 
 -----
@@ -12300,14 +8360,7 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2147#       发表于 2015-9-18 09:41
 
 
-
-
 问问大家，要银牌打哪一个难度最为划算？
-
-
-
-
-
 
 
 -----
@@ -12316,15 +8369,9 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2148#       发表于 2015-9-18 10:30
 
 
-
  本帖最后由 yla 于 2015-9-18 10:32 编辑 
 
 = = 似乎回错贴了
-
-
-
-
-
 
 
 -----
@@ -12333,14 +8380,7 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2149#       发表于 2015-9-18 10:36
 
 
-
-
 请问一下谁还有多的事前登录码，想要个LILY，谢谢
-
-
-
-
-
 
 
 -----
@@ -12349,24 +8389,15 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2150#       发表于 2015-9-18 10:42
 
 
-
-
 打铜牌好麻烦，不能开个兑换吗，1金换几银之类。
 
 —— 来自 Sony D5833, Android 4.4.4
-
-
-
-
-
 
 
 -----
 
 ####  日莲宗  
 ##### 2151#       发表于 2015-9-18 11:02
-
-
 
 
 20和30的各出了一个礼装…
@@ -12377,25 +8408,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ----发送自 [Xiaomi MI 3C,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 2152#       发表于 2015-9-18 11:27
 
 
-
-
 终于出了个礼装 然而我感觉这玩意没什么用啊
-
-
-
-
-
 
 
 -----
@@ -12404,21 +8423,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2153#       发表于 2015-9-18 11:38
 
 
-
-
 小玉这宝具一放就掉线到底是我网烂还是这游戏服务器烂..........
-
-
-
-
-
 
 
 -----
 
 ####  高等黑暗  
 ##### 2154#       发表于 2015-9-18 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30195382&amp;ptid=1085254" target="_blank">少女人形 发表于 2015-9-18 11:38</a>
@@ -12429,16 +8440,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 一括下载完之后理论上战斗中不需要下载任何数据，如果还掉线说明你的手机有问题。。。
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2155#       发表于 2015-9-18 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30195556&amp;ptid=1085254" target="_blank">高等黑暗 发表于 2015-9-18 11:54</a>
@@ -12452,16 +8457,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 好想回家啊....
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2156#       发表于 2015-9-18 12:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30195227&amp;ptid=1085254" target="_blank">任天索尼子 发表于 2015-9-18 11:27</a>
@@ -12472,25 +8471,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 其实最主要的是不用浪费你的金牌去换了...
 
 
-
-
-
-
-
 -----
 
 ####  千手丸  
 ##### 2157#       发表于 2015-9-18 12:40
 
 
-
-
 礼装如果出一个就省下至少200牌子了，收藏意义远大于实际意义，不追求满破的真爱手里一个就行了
-
-
-
-
-
 
 
 -----
@@ -12499,22 +8486,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2158#       发表于 2015-9-18 12:40
 
 
-
-
 礼装满破需要5张，换只能换3张，自己有必要打2张出来
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 2159#       发表于 2015-9-18 13:35
-
-
 
 
 充值卡死游戏再也进不去了。
@@ -12524,16 +8502,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 这次活动是不是注定咸鱼了<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 2160#       发表于 2015-9-18 13:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30196497&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2015-9-18 13:35</a>
@@ -12554,16 +8526,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 当然我这个账号无课，仅供参考
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2161#       发表于 2015-9-18 14:39
-
 
 
 <blockquote>newfaceryo 发表于 2015-9-18 13:35
@@ -12575,16 +8541,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 开vpn，能进谷歌商店就可以进进游戏了！
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2162#       发表于 2015-9-18 14:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30193987&amp;ptid=1085254" target="_blank">rxrx 发表于 2015-9-18 09:41</a>
@@ -12597,17 +8557,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 从经验角度来说也是30性价比最高。。。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2163#       发表于 2015-9-18 15:09
-
-
 
 
 然而我还是没出礼装
@@ -12617,16 +8570,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 2164#       发表于 2015-9-18 15:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30197199&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-18 14:55</a>
@@ -12637,16 +8584,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 30 打得勉强呀，还是乖乖去干三位姑娘好了。
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 2165#       发表于 2015-9-18 15:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30196717&amp;ptid=1085254" target="_blank">handing 发表于 2015-9-18 13:59</a>
@@ -12658,16 +8599,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 有vpn，能进谷歌商店，不能进游戏。
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 2166#       发表于 2015-9-18 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30196717&amp;ptid=1085254" target="_blank">handing 发表于 2015-9-18 13:59</a>
@@ -12677,11 +8612,6 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 
 时间的话我的经验是8/13给运营发 ...</blockquote>
 大法的机器root很困难。即使能root也要刷新记忆，机器上的数据应该是找不回来了。
-
-
-
-
-
 
 
 -----
@@ -12690,7 +8620,6 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2167#       发表于 2015-9-18 15:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30196717&amp;ptid=1085254" target="_blank">handing 发表于 2015-9-18 13:59</a>
 
 你root了的话先用这贴的方法试试:http://tieba.baidu.com/p/3950353627
@@ -12700,27 +8629,15 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 大法的机器root很困难。即使能root也要刷新记忆，机器上的数据应该是找不回来了。
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2168#       发表于 2015-9-18 16:24
 
 
-
-
 215金币打出4个爪子1个礼装是什么水平？
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
@@ -12731,13 +8648,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guiltyspark  
 ##### 2170#       发表于 2015-9-18 16:51
-
-
 
 
 266金牌4爪
@@ -12745,16 +8659,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 还差3根...
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2171#       发表于 2015-9-18 17:19
-
 
 
 <blockquote>引用第2166楼gugu135于2015-09-18 16:24发表的  :
@@ -12766,25 +8674,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2172#       发表于 2015-9-18 17:30
 
 
-
-
 206个金币若干狂之魔石一个狂之秘石，一个礼装六个爪子，还有若干狗粮。你们打了三四百个的都磕石头了么？
-
-
-
-
-
 
 
 -----
@@ -12793,25 +8689,16 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2173#       发表于 2015-9-18 17:33
 
 
-
-
 看来我是非洲之主……
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2174#       发表于 2015-9-18 17:58
-
-
 
 
 126金5爪1秘石0礼装，在打歌姬本混素材…反正凑够8个给B叔了，我要金棋子……
@@ -12822,17 +8709,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  key6429  
 ##### 2175#       发表于 2015-9-18 18:17
-
-
 
 
 238金0礼装0爪子<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -12840,16 +8720,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 就当刷经验本了
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2176#       发表于 2015-9-18 18:33
-
 
 
  本帖最后由 雪基百科 于 2015-9-18 18:35 编辑 
@@ -12861,16 +8735,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 就第二战白穷奇要注意下，速战速决，别被三连秒掉
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2177#       发表于 2015-9-18 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30198871&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-18 17:33</a>
@@ -12885,16 +8753,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 假如真抽记得半夜抽。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2178#       发表于 2015-9-18 19:31
-
 
 
 <blockquote>引用第2175楼brunestud于2015-09-18 19:14发表的  :
@@ -12907,27 +8769,15 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 2179#       发表于 2015-9-18 20:42
 
 
-
-
 账号已找回。果然还是要氪过的才能有人权。
 
 真要等半个月估计就弃了。
-
-
-
-
-
 
 
 -----
@@ -12936,14 +8786,7 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2180#       发表于 2015-9-18 23:31
 
 
-
-
 205金11爪，我觉得直到活动结束我都不会掉礼装了……<img src="https://static.saraba1st.com/image/smiley/face/17.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12954,28 +8797,19 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  少女人形  
 ##### 2182#       发表于 2015-9-19 00:33
 
 
-
-
 副本最后团灭如果选了撤退的话，经验和掉落怎么算呢？
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 2183#       发表于 2015-9-19 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30202235&amp;ptid=1085254" target="_blank">少女人形 发表于 2015-9-19 00:33</a>
@@ -12987,16 +8821,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 中间好像是可以SL的。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2184#       发表于 2015-9-19 01:07
-
 
 
 <blockquote>引用第2178楼kurechan于2015-09-18 23:31发表的  :
@@ -13008,17 +8836,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2185#       发表于 2015-9-19 01:18
-
-
 
 
 礼装就算打不到也能换3张
@@ -13030,16 +8851,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 205金11爪已经是法老级了
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2186#       发表于 2015-9-19 01:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30202385&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-19 01:04</a>
@@ -13051,25 +8866,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 那还是不打30AP的了...运气好可以打过，运气不好就要吃石头
 
 
-
-
-
-
-
 -----
 
 ####  镜hinata  
 ##### 2187#       发表于 2015-9-19 01:49
 
 
-
-
 快200金了0礼装1爪......<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13078,23 +8881,16 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2188#       发表于 2015-9-19 01:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30202550&amp;ptid=1085254" target="_blank">少女人形 发表于 2015-9-19 01:41</a>
 
 那还是不打30AP的了...运气好可以打过，运气不好就要吃石头</blockquote>
 至少要打过一次把奖励的5个爪子拿了，即使花一个石头打过去也值。
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2189#       发表于 2015-9-19 02:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30202613&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-19 01:56</a>
@@ -13106,17 +8902,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 第一次打运气好，令咒都没交就过了...
 
 
-
-
-
-
-
 -----
 
 ####  defer  
 ##### 2190#       发表于 2015-9-19 08:37
-
-
 
 
 目前一个石头没吃打了344/156/181。
@@ -13127,25 +8916,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 希望能不吃石头打够数量。
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 2191#       发表于 2015-9-19 08:58
 
 
-
-
 刚开始玩两天，人物等级还没上去，打不过20AP的，有什么快速提升英灵等级的方法吗
-
-
-
-
-
 
 
 -----
@@ -13154,14 +8931,7 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2192#       发表于 2015-9-19 09:09
 
 
-
-
 你们至少还有素材，打到现在才一个爪子，礼装已经不敢奢望了。这样的概率更加不想用石头刷（恶性循环）<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13170,23 +8940,15 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2193#       发表于 2015-9-19 09:34
 
 
-
-
 0爪 掉了四次金箱子全是技能石
 
 累觉不爱 总算龙牙还有点收入
-
-
-
-
-
 
 
 -----
 
 ####  eyeego  
 ##### 2194#       发表于 2015-9-19 09:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30203437&amp;ptid=1085254" target="_blank">zhaoyanggolden 发表于 2015-9-19 08:58</a>
@@ -13199,11 +8961,6 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 或者抱个强力大腿
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -13212,23 +8969,15 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guiltyspark  
 ##### 2196#       发表于 2015-9-19 13:10
 
 
-
-
 心脏只送3个
 
 官方有种不要缩<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13237,16 +8986,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2197#       发表于 2015-9-19 13:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30204675&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-19 11:56</a>
 
 说起来官方有没有说牌子兑换什么时候开。。？</blockquote>
 |没记错的话，要全部活动结束。。-。-||。。。|
-
-
-
-
-
 
 
 -----
@@ -13257,12 +9000,10 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 2199#       发表于 2015-9-19 14:08
-
 
 
  本帖最后由 brunestud 于 2015-9-19 14:24 编辑 
@@ -13272,25 +9013,13 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 这次的30ap本挺好打的，抱个光炮大腿就能过。
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2200#       发表于 2015-9-19 14:31
 
 
-
-
 30ap最后3个servant,S阶一个地图炮就清光,简单方便
-
-
-
-
-
 
 
 -----
@@ -13299,23 +9028,15 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 ##### 2201#       发表于 2015-9-19 14:53
 
 
-
-
 宝具攻击居然还有MISS
 
 刚才龙娘的多段攻击其中一次出了个MISS
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 2202#       发表于 2015-9-19 15:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30205929&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-19 14:53</a>
@@ -13326,27 +9047,15 @@ Archer打人似乎是0.9系数，Lancer是1.05。
 buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss的。
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2203#       发表于 2015-9-19 15:54
 
 
-
-
 啊这次30AP真是良心！
 
 抱了个光炮大腿直接默秒全
-
-
-
-
-
 
 
 -----
@@ -13355,16 +9064,9 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2204#       发表于 2015-9-19 16:56
 
 
-
-
 30本掉八连双晶啦！！
 
 然而礼装还是（ry
-
-
-
-
-
 
 
 -----
@@ -13373,14 +9075,7 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2205#       发表于 2015-9-19 17:44
 
 
-
-
 金牌快300了没见过礼装<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13389,16 +9084,9 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2206#       发表于 2015-9-19 18:01
 
 
-
-
 下午打10ap终于掉了一个礼装
 
 然而鸟毛和双晶都没掉<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">幸运值果然是被爪子吸干了吗
-
-
-
-
-
 
 
 -----
@@ -13407,21 +9095,13 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2207#       发表于 2015-9-19 19:25
 
 
-
-
 新的30ap好刷快哭了，无脑发爆菊，简直良心。<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  日莲宗  
 ##### 2208#       发表于 2015-9-19 20:09
-
 
 
  本帖最后由 日莲宗 于 2015-9-19 20:13 编辑 
@@ -13433,25 +9113,13 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
  （ 话说  图片怎么本地上传413.。。）
 
 
-
-
-
-
-
 -----
 
 ####  こう  
 ##### 2209#       发表于 2015-9-19 20:24
 
 
-
-
 尼玛刷400金了别说礼装，连爪子都没见到。下次能做个蛇眼的活动么
-
-
-
-
-
 
 
 -----
@@ -13460,21 +9128,13 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2210#       发表于 2015-9-19 21:13
 
 
-
-
 话说现在是刷八连划算还是羽毛划算？
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2211#       发表于 2015-9-19 21:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30208316&amp;ptid=1085254" target="_blank">こう 发表于 2015-9-19 20:24</a>
@@ -13485,16 +9145,10 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 虽然我觉得会是恶魔和大龙一起来让玩家苦恼要刷心脏还是逆鳞
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2212#       发表于 2015-9-19 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30208736&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-19 21:13</a>
@@ -13505,16 +9159,10 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 两种都暂时用不着,就刷好出的那种了
 
 
-
-
-
-
-
 -----
 
 ####  天使折翼  
 ##### 2213#       发表于 2015-9-19 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30208769&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-19 21:17</a>
@@ -13525,16 +9173,10 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 都用不着 当然刷经验多的牌子多的咯
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2214#       发表于 2015-9-19 22:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30208935&amp;ptid=1085254" target="_blank">天使折翼 发表于 2015-9-19 21:38</a>
@@ -13547,16 +9189,10 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 牌子...铜牌确实不够,刷初级去
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2215#       发表于 2015-9-19 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30209301&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-19 22:14</a>
@@ -13567,11 +9203,6 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 
 牌子...铜牌确实不够,刷初级去 ...</blockquote>
 其实中级刷牌子最划算，但Master经验和羁绊经验少了点
-
-
-
-
-
 
 
 -----
@@ -13580,7 +9211,6 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2216#       发表于 2015-9-19 22:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30209301&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-19 22:14</a>
 
 等级快满了
@@ -13591,16 +9221,10 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 其实中级刷牌子最划算，但Master经验和羁绊经验少了点
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2217#       发表于 2015-9-19 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30209385&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-19 22:24</a>
@@ -13611,17 +9235,10 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 打光AP了事
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2218#       发表于 2015-9-20 01:27
-
-
 
 
 八连双晶在中级绊场也可以刷（顺便刷绊），没吃石头出了三个，羽毛没需求不太清楚掉落率…
@@ -13630,25 +9247,13 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  zzy4987  
 ##### 2219#       发表于 2015-9-20 02:41
 
 
-
-
 526822267 求好友啦 常年挂大公 求各路朋友大腿~
-
-
-
-
-
 
 
 -----
@@ -13657,14 +9262,7 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2220#       发表于 2015-9-20 04:15
 
 
-
-
 玩脱了，以为自己存了引继码，结果没存上，除了重来还有别的方法吗
-
-
-
-
-
 
 
 -----
@@ -13673,14 +9271,7 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2221#       发表于 2015-9-20 08:07
 
 
-
-
 刷了500金牌 4个八连双晶 然而没有我要的礼装 读心游戏
-
-
-
-
-
 
 
 -----
@@ -13689,15 +9280,9 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2222#       发表于 2015-9-20 08:36
 
 
-
 <blockquote>无雨中 发表于 2015-9-20 04:15
 玩脱了，以为自己存了引继码，结果没存上，除了重来还有别的方法吗</blockquote>
 申诉啊，
-
-
-
-
-
 
 
 -----
@@ -13706,14 +9291,7 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2223#       发表于 2015-9-20 09:42
 
 
-
-
 出了两个礼装了 虽然感觉破玩意没什么用 不过姑且也算是欧洲证明？
-
-
-
-
-
 
 
 -----
@@ -13722,17 +9300,10 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2224#       发表于 2015-9-20 12:56
 
 
-
-
 本选30AP本用黑傻巴一棒子下去就都秒了，简直酸爽
 
 
 ----发送自 [samsung SM-G9200,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -13741,21 +9312,13 @@ buffmiss或者对面开了闪避吧...除了这俩我是真没见过攻击miss�
 ##### 2225#       发表于 2015-9-20 15:50
 
 
-
-
 据说第三章的英灵出来了？
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 2226#       发表于 2015-9-20 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30215166&amp;ptid=1085254" target="_blank">少女人形 发表于 2015-9-20 15:50</a>
@@ -13788,16 +9351,10 @@ berserker: 弗兰肯斯坦、坂田金时
 不过我记得当年看过一张图说三章出剑阶长江的，所以这个也不一定准确。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2227#       发表于 2015-9-20 17:40
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">礼装就算了，那么多石头人只有第一组那个深色的掉过一次金箱子
@@ -13806,25 +9363,13 @@ berserker: 弗兰肯斯坦、坂田金时
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2228#       发表于 2015-9-20 18:43
 
 
-
-
 怎么又维护了
-
-
-
-
-
 
 
 -----
@@ -13833,23 +9378,15 @@ berserker: 弗兰肯斯坦、坂田金时
 ##### 2229#       发表于 2015-9-20 19:11
 
 
-
-
 好像没什么信息提及技能强化的样子，有没有各职阶特别值得强化的技能推荐？
 
 —— 来自 Sony D5833, Android 4.4.4
-
-
-
-
-
 
 
 -----
 
 ####  鱼缸  
 ##### 2230#       发表于 2015-9-20 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30216616&amp;ptid=1085254" target="_blank">defer 发表于 2015-9-20 19:11</a>
@@ -13861,32 +9398,19 @@ berserker: 弗兰肯斯坦、坂田金时
 皇帝特权 直感  魔力放出 怪力 勇猛  魔眼  caster那些咏唱等……翻翻wiki就能看到性价比了
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2231#       发表于 2015-9-20 20:13
 
 
-
-
 小玉固定掉铜箱子么,四星还不如后面三星rider掉落给力
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 2232#       发表于 2015-9-20 20:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30217015&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-20 20:13</a>
@@ -13898,17 +9422,10 @@ berserker: 弗兰肯斯坦、坂田金时
 20Ap好刷就在于他三个种类的币都掉，不像10和5基本没金的，30基本没铜的。
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 2233#       发表于 2015-9-21 09:52
-
-
 
 
 尼禄礼装已满破
@@ -13918,16 +9435,10 @@ berserker: 弗兰肯斯坦、坂田金时
 不过这一轮一个材料都没打出来
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2234#       发表于 2015-9-21 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30220580&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2015-9-21 09:52</a>
@@ -13940,32 +9451,19 @@ berserker: 弗兰肯斯坦、坂田金时
 打到现在没出过一个的仰望欧洲人
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2235#       发表于 2015-9-21 12:38
 
 
-
-
 给楼上这欧洲气场跪下了
-
-
-
-
-
 
 
 -----
 
 ####  gulant  
 ##### 2236#       发表于 2015-9-21 12:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30220580&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2015-9-21 09:52</a>
@@ -13981,16 +9479,10 @@ berserker: 弗兰肯斯坦、坂田金时
 都300就来400金一个都没有，可恶！
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2237#       发表于 2015-9-21 12:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30217163&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-20 20:35</a>
@@ -14002,11 +9494,6 @@ berserker: 弗兰肯斯坦、坂田金时
 可是我打2个20ap收益不如一个30+5+5,而且30ap本感觉更容易掉素材,打了几十把20ap就掉了一个羽毛一个果实一个秘石
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -14015,12 +9502,10 @@ berserker: 弗兰肯斯坦、坂田金时
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  deviljz  
 ##### 2239#       发表于 2015-9-21 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30222665&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-21 13:23</a>
@@ -14033,16 +9518,10 @@ berserker: 弗兰肯斯坦、坂田金时
 公告说9月底会修正这个
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2240#       发表于 2015-9-21 13:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30222390&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-21 12:56</a>
@@ -14055,16 +9534,10 @@ berserker: 弗兰肯斯坦、坂田金时
 几十把...我刷了到第一次结束，大概2天半？也就刷了6个爪子。
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2241#       发表于 2015-9-21 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30222665&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-21 13:23</a>
@@ -14103,11 +9576,6 @@ berserker: 弗兰肯斯坦、坂田金时
 摘自贴吧。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -14116,21 +9584,13 @@ berserker: 弗兰肯斯坦、坂田金时
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Muarim  
 ##### 2243#       发表于 2015-9-21 15:14
 
 
-
-
 求改下内存占用。。。
-
-
-
-
-
 
 
 -----
@@ -14139,24 +9599,16 @@ berserker: 弗兰肯斯坦、坂田金时
 ##### 2244#       发表于 2015-9-21 15:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30222390&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-21 12:56</a>
 
 可是我打2个20ap收益不如一个30+5+5,而且30ap本感觉更容易掉素材,打了几十把20ap就掉了一个羽毛一个果实 ...</blockquote>
 基本只打30本的从第一天打到现在只出了一个双晶，你帮我讲30本容易掉素材？
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2245#       发表于 2015-9-21 15:51
-
-
 
 
 目前525金牌，又出了1礼装5晶
@@ -14166,16 +9618,10 @@ berserker: 弗兰肯斯坦、坂田金时
 —— 来自 OPPO X9007, Android 4.3
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2246#       发表于 2015-9-21 16:34
-
 
 
  本帖最后由 vleev 于 2015-9-21 16:37 编辑 
@@ -14184,16 +9630,10 @@ berserker: 弗兰肯斯坦、坂田金时
 <img src="http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg" referrerpolicy="no-referrer">抱怨完了掉落就趋向正常了,上局掉了一个羽毛和一个辉石,这局掉了一个种子和一个秘石
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2247#       发表于 2015-9-21 16:34
-
 
 
 <blockquote>黑上シグマ 发表于 2015-9-21 15:14
@@ -14201,16 +9641,10 @@ berserker: 弗兰肯斯坦、坂田金时
 http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 
 
-
-
-
-
-
 -----
 
 ####  天使折翼  
 ##### 2248#       发表于 2015-9-21 16:49
-
 
 
  本帖最后由 天使折翼 于 2015-9-21 16:54 编辑 
@@ -14222,11 +9656,6 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 我只想说礼装真TM难出，我想刷羽毛去了都
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -14235,21 +9664,13 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  zhaoyanggolden  
 ##### 2250#       发表于 2015-9-21 19:57
 
 
-
-
 话说FGO的脚本是蘑菇自己写的吗，前两章读完感觉剧情过于简陋了，不过气氛倒是不错。
-
-
-
-
-
 
 
 -----
@@ -14258,14 +9679,7 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2251#       发表于 2015-9-21 20:13
 
 
-
-
 看着不像是蘑菇写的...漫区有人说第一章是东出
-
-
-
-
-
 
 
 -----
@@ -14274,21 +9688,13 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2252#       发表于 2015-9-21 20:28
 
 
-
-
 终于出了一个礼装，可以告别非洲了。羽毛暂时0，爪子到时有6、7个
-
-
-
-
-
 
 
 -----
 
 ####  handing  
 ##### 2253#       发表于 2015-9-21 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30226117&amp;ptid=1085254" target="_blank">zhaoyanggolden 发表于 2015-9-21 19:57</a>
@@ -14302,17 +9708,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 第二章大概也是他
 
 
-
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2254#       发表于 2015-9-21 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30226117&amp;ptid=1085254" target="_blank">zhaoyanggolden 发表于 2015-9-21 19:57</a>
@@ -14321,16 +9720,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 序章蘑菇，一章东出，二章樱井
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2255#       发表于 2015-9-21 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30226359&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-21 20:28</a>
@@ -14341,16 +9734,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 我果然是非洲之主…………
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2256#       发表于 2015-9-21 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30226597&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-21 21:01</a>
@@ -14361,16 +9748,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 没事，我也没出。我就当打材料了。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2257#       发表于 2015-9-21 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30226961&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-21 21:44</a>
@@ -14379,17 +9760,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 我连材料都不出………………
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2258#       发表于 2015-9-22 02:30
-
-
 
 
 带两只剑职和大公
@@ -14399,17 +9773,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 然后第三回合就出金皮卡了<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 2259#       发表于 2015-9-22 09:46
-
-
 
 
 下午一点维护
@@ -14426,7 +9793,6 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ・ネロ祭決勝、敵が落とす報酬の追加
 
 ラミアが「術の輝石」を一定確率で落とすようになります。
-
 
 
 ▼ゲーム機能の改修
@@ -14464,7 +9830,6 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 　・プレゼントボックスで、一度に受け取れるアイテムの上限を10件から20件に変更
 
 　・「幕間の物語」の開放条件を、サーヴァントごとに明示するよう表示を変更
-
 
 
 ▼不具合の修正
@@ -14516,13 +9881,7 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 2015年9月24日(木)AM4:00より順次プレゼントボックスに配布いたします。
 
 
-
 送10个石头
-
-
-
-
-
 
 
 -----
@@ -14531,14 +9890,7 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2260#       发表于 2015-9-22 09:49
 
 
-
-
 今天是22号
-
-
-
-
-
 
 
 -----
@@ -14547,14 +9899,7 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2261#       发表于 2015-9-22 10:17
 
 
-
-
 单体宝具必打第一个原来是bug
-
-
-
-
-
 
 
 -----
@@ -14563,16 +9908,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2262#       发表于 2015-9-22 10:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30227154&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-21 22:04</a>
 
 我连材料都不出………………</blockquote>
 再见了朋友！20AP一筋刚刚终于出礼装了
-
-
-
-
-
 
 
 -----
@@ -14581,21 +9920,13 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2263#       发表于 2015-9-22 11:18
 
 
-
-
 黑影英灵还是打第一个？不过也没啥关系，大不了再S/L一下
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 2264#       发表于 2015-9-22 11:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30229893&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2015-9-22 09:46</a>
@@ -14608,16 +9939,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">是明天
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2265#       发表于 2015-9-22 11:46
-
 
 
 <blockquote>引用第2260楼sayuri55于2015-09-22 10:33发表的  :
@@ -14629,25 +9954,13 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2266#       发表于 2015-9-22 13:07
 
 
-
-
 30ap,87000+的枪兵,还是条龙,可以考虑带三个saber
-
-
-
-
-
 
 
 -----
@@ -14656,17 +9969,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2267#       发表于 2015-9-22 13:24
 
 
-
-
 单体打第一个不是挺好的么，回避本来就鸡肋
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -14675,16 +9981,10 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2268#       发表于 2015-9-22 13:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30231937&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-22 13:07</a>
 
 30ap,87000+的枪兵,还是条龙,可以考虑带三个saber</blockquote>
 话说飞哥这带着屠龙buff一刀下去能剁多少？<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14693,21 +9993,13 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 ##### 2269#       发表于 2015-9-22 13:35
 
 
-
-
 尽量刷大龙吧，平时没那么简单的
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2270#       发表于 2015-9-22 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30231937&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-22 13:07</a>
@@ -14720,25 +10012,13 @@ http://ww2.sinaimg.cn/large/0062f7Gsjw1ewa5nmgnxaj31hc0u07tx.jpg
 生怕玩家刷的不愉快
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2271#       发表于 2015-9-22 15:57
 
 
-
-
 S阶只有傻吧莉莉和元帅还没喂..........
-
-
-
-
-
 
 
 -----
@@ -14747,13 +10027,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2272#       发表于 2015-9-22 16:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">蓝傻吧终于可以破到90了，就差11个金棋子了，下周开刷
-
-
-
-
-
 
 
 -----
@@ -14762,16 +10036,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2273#       发表于 2015-9-22 16:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30232202&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-22 13:34</a>
 
 话说飞哥这带着屠龙buff一刀下去能剁多少？</blockquote>
 我没有,好友里也没见过,至今no.6依然空白
-
-
-
-
-
 
 
 -----
@@ -14780,14 +10048,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2274#       发表于 2015-9-22 16:36
 
 
-
-
 话说金棋子除了周2的本有其他地方掉落吗 剑兵
-
-
-
-
-
 
 
 -----
@@ -14796,16 +10057,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2275#       发表于 2015-9-22 17:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30234017&amp;ptid=1085254" target="_blank">克瓦特罗大尉 发表于 2015-9-22 16:36</a>
 
 话说金棋子除了周2的本有其他地方掉落吗 剑兵</blockquote>
 大空洞。
-
-
-
-
-
 
 
 -----
@@ -14814,24 +10069,16 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2276#       发表于 2015-9-22 17:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30234289&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-22 17:01</a>
 
 大空洞。</blockquote>
 那个不是银棋子吗...会掉金？
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2277#       发表于 2015-9-22 17:14
-
-
 
 
 没仔细看带着圣乔治和小次狼两位勇者去斗恶龙……
@@ -14843,16 +10090,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 结局当然是靠贞德单刷过关。<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2278#       发表于 2015-9-22 17:29
-
 
 
  本帖最后由 guiltyspark 于 2015-9-22 17:34 编辑 
@@ -14869,16 +10110,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 没有三骑的日子...就看尼禄祭终曲看看会不会掉金棋了
 
 
-
-
-
-
-
 -----
 
 ####  克瓦特罗大尉  
 ##### 2279#       发表于 2015-9-22 17:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30234435&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-22 17:14</a>
@@ -14890,16 +10125,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 拍一下不是才300多<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  克瓦特罗大尉  
 ##### 2280#       发表于 2015-9-22 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30234596&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-22 17:29</a>
@@ -14912,17 +10141,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 <img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">上周刷了一天3骑就一个煎饼金棋子
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2281#       发表于 2015-9-22 18:05
-
-
 
 
 纯白板的40级一破齐格非，攻击4800，屠龙lv1的红卡一刀下去7200还是7800，第几格倒是忘了
@@ -14931,16 +10153,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2282#       发表于 2015-9-22 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30234743&amp;ptid=1085254" target="_blank">克瓦特罗大尉 发表于 2015-9-22 17:42</a>
@@ -14949,16 +10165,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 20（lv）出头就去屠龙，这才配得起勇者之名。
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2283#       发表于 2015-9-22 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30234596&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-22 17:29</a>
@@ -14971,32 +10181,19 @@ S阶只有傻吧莉莉和元帅还没喂..........
 大空洞那里不是个金剑阶么？不掉金的？我去wiki上看看。
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2284#       发表于 2015-9-22 20:11
 
 
-
-
 这大龙打起来舒服，又是个逆鳞，掉狗粮也是金色的<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2285#       发表于 2015-9-22 20:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30235789&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-22 19:48</a>
@@ -15009,16 +10206,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 现在改成38就不给金棋了...
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2286#       发表于 2015-9-22 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30235789&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-22 19:48</a>
@@ -15027,32 +10218,19 @@ S阶只有傻吧莉莉和元帅还没喂..........
 大空洞金箱子我只见过掉灰<img src="https://static.saraba1st.com/image/smiley/face/136.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  こう  
 ##### 2287#       发表于 2015-9-22 20:53
 
 
-
-
 刷了一天棋子本，BOSS大多是SABER一个A阶金棋都没。还好明天有10石头补偿不然真亏啊<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kaji  
 ##### 2288#       发表于 2015-9-22 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30232202&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-22 13:34</a>
@@ -15063,16 +10241,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 只开lv4屠龙buff一个宝具100%砸下去89308。
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 2289#       发表于 2015-9-22 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30236522&amp;ptid=1085254" target="_blank">kaji 发表于 2015-9-22 21:14</a>
@@ -15085,16 +10257,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 有队友buff和御主buff没？
 
 
-
-
-
-
-
 -----
 
 ####  kaji  
 ##### 2290#       发表于 2015-9-22 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30236531&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-9-22 21:15</a>
@@ -15105,16 +10271,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 只有4级屠龙buff，其他什么都没。卡片排序也是排第一格BAA放弃chain的。
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2291#       发表于 2015-9-22 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30236531&amp;ptid=1085254" target="_blank">wangandh 发表于 2015-9-22 21:15</a>
@@ -15125,17 +10285,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 满破宝具啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 2292#       发表于 2015-9-22 23:04
-
-
 
 
 狗逼庄司灵车漂移骨灰拌饭   七十三抽才抽到尼禄   我还没抽到过罗马神祖  全他妈肥猪瘤凯撒
@@ -15144,16 +10297,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 2293#       发表于 2015-9-23 01:04
-
 
 
  本帖最后由 wangandh 于 2015-9-23 01:13 编辑 
@@ -15173,16 +10320,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 也算是不错了
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2294#       发表于 2015-9-23 01:17
-
 
 
  本帖最后由 guiltyspark 于 2015-9-23 01:19 编辑 
@@ -15192,27 +10333,15 @@ S阶只有傻吧莉莉和元帅还没喂..........
 就一个枪兵种火
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2295#       发表于 2015-9-23 09:08
 
 
-
-
 好消息——目前为止龙一个箱子没掉过，铜的都没_(:з」∠)_
 
 用了好友70级100%宝石翁的的阿提拉，进去只加了呆毛三回合攻击buff，她一套就把龙秒了。嗯，大概土豪2个100%宝石翁再拉个100%好友，三个saber的话2回合就能解决30AP本。或者飞哥/阿提拉宝具砍龙，黑saber宝具砍罗马三逗比，2个就能2回合？
-
-
-
-
-
 
 
 -----
@@ -15221,16 +10350,9 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2296#       发表于 2015-9-23 09:08
 
 
-
-
 好消息——目前为止龙一个箱子没掉过，铜的都没_(:з」∠)_
 
 用了好友70级100%宝石翁的的阿提拉，进去只加了呆毛三回合攻击buff，她一套就把龙秒了。嗯，大概土豪2个100%宝石翁再拉个100%好友，三个saber的话2回合就能解决30AP本。或者飞哥/阿提拉宝具砍龙，黑saber宝具砍罗马三逗比，2个就能2回合？
-
-
-
-
-
 
 
 -----
@@ -15239,14 +10361,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2297#       发表于 2015-9-23 09:20
 
 
-
-
 礼装3破了，龙鳞没见到，这波不给力啊
-
-
-
-
-
 
 
 -----
@@ -15255,14 +10370,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2298#       发表于 2015-9-23 09:44
 
 
-
-
 有没有掉过龙鳞的？从昨天刷到现在一个都没
-
-
-
-
-
 
 
 -----
@@ -15271,14 +10379,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2299#       发表于 2015-9-23 10:18
 
 
-
-
 第二把就掉了个龙鳞....
-
-
-
-
-
 
 
 -----
@@ -15287,21 +10388,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2300#       发表于 2015-9-23 12:28
 
 
-
-
 快600金了不见礼装...
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2301#       发表于 2015-9-23 13:20
-
 
 
 <blockquote>引用第2298楼枫紫于2015-09-23 12:28发表的  :
@@ -15313,17 +10406,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2302#       发表于 2015-9-23 13:35
-
-
 
 
 礼装其实不值钱啊，一张就够了，可以换。  
@@ -15331,16 +10417,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 材料才是欧洲人的东西啊。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2303#       发表于 2015-9-23 13:41
-
 
 
 <blockquote>引用第2300楼EMIYARIN于2015-09-23 13:35发表的  :
@@ -15353,16 +10433,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2304#       发表于 2015-9-23 16:07
-
 
 
  本帖最后由 西条拓巳 于 2015-9-23 16:09 编辑 
@@ -15389,26 +10463,15 @@ S阶只有傻吧莉莉和元帅还没喂..........
 不错防御无视这回要修复了
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2305#       发表于 2015-9-23 16:08
 
 
-
  本帖最后由 少女人形 于 2015-9-23 16:12 编辑 
 
 编辑掉
-
-
-
-
-
 
 
 -----
@@ -15417,23 +10480,15 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2306#       发表于 2015-9-23 16:18
 
 
-
-
 果然又延长了<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">多送两个石头
 
 让玩家一次凑齐三个黑键吗
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2307#       发表于 2015-9-23 16:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30244939&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-23 16:07</a>
@@ -15448,16 +10503,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 嗯?玩家从者也有防御力差别的可能性?
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 2308#       发表于 2015-9-23 16:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30243113&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-23 13:20</a>
@@ -15469,16 +10518,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 共勉
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 2309#       发表于 2015-9-23 16:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30245241&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-23 16:35</a>
@@ -15489,11 +10532,6 @@ S阶只有傻吧莉莉和元帅还没喂..........
 之前打孔明的时候他上了两个防御buff后盾娘打上去都不掉血,所以应该是有防御力设定的
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -15502,28 +10540,19 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 2311#       发表于 2015-9-23 17:06
 
 
-
-
 好像现在的盾都是直接减伤的，石头人一个buff减伤50%，俩buff自然减伤就是100%
-
-
-
-
-
 
 
 -----
 
 ####  少女人形  
 ##### 2312#       发表于 2015-9-23 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30245515&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-23 17:00</a>
@@ -15535,25 +10564,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 那个盾应该是加算的，不过怪物的技能没有CD所以经常出现2个盾一起上的情况，然后就砍不动了
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 2313#       发表于 2015-9-23 18:02
 
 
-
-
 维护再延期，到北京时间晚上7点
-
-
-
-
-
 
 
 -----
@@ -15562,14 +10579,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2314#       发表于 2015-9-23 18:04
 
 
-
-
 日了狗了，连续延期，我都一整天没打了。
-
-
-
-
-
 
 
 -----
@@ -15578,14 +10588,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2315#       发表于 2015-9-23 18:05
 
 
-
-
 只多送一个石头，真小气<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15594,14 +10597,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2316#       发表于 2015-9-23 18:06
 
 
-
-
 刚想上去清AP。。。继续下去送个十连的石头吧
-
-
-
-
-
 
 
 -----
@@ -15610,14 +10606,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2317#       发表于 2015-9-23 18:14
 
 
-
-
 7点还修不好的话我看高速战斗等新系统要延期到下次更新了<img src="https://static.saraba1st.com/image/smiley/normal/051.gif" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -15626,14 +10615,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2318#       发表于 2015-9-23 18:18
 
 
-
-
 请继续延期，一小时一个石头划算。<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15642,14 +10624,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2319#       发表于 2015-9-23 19:18
 
 
-
-
 60级40ap本。。。
-
-
-
-
-
 
 
 -----
@@ -15658,21 +10633,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2320#       发表于 2015-9-23 19:24
 
 
-
-
 40本求小白鼠
-
-
-
-
-
 
 
 -----
 
 ####  saraphine  
 ##### 2321#       发表于 2015-9-23 19:32
-
 
 
  本帖最后由 saraphine 于 2015-9-23 19:38 编辑 
@@ -15682,27 +10649,15 @@ S阶只有傻吧莉莉和元帅还没喂..........
 没掉金棋，全是硬币
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2322#       发表于 2015-9-23 19:38
 
 
-
-
 其实也不难。主要第1次打不知道有替补被坑了
 
 留宝具就简单了。。。。我第1次打被金闪闪的宝具A死了3主力。。
-
-
-
-
-
 
 
 -----
@@ -15711,14 +10666,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2323#       发表于 2015-9-23 19:41
 
 
-
-
 40ap本交令咒莽过去，应该没有刷第二次的价值
-
-
-
-
-
 
 
 -----
@@ -15729,13 +10677,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guiltyspark  
 ##### 2325#       发表于 2015-9-23 19:45
-
-
 
 
 这战斗加速的英灵台词ww
@@ -15746,25 +10691,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 逆鳞掉率太坑,明天再刷
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2326#       发表于 2015-9-23 19:49
 
 
-
-
 40AP不可能掉旗子..谁告诉你会掉旗子的......
-
-
-
-
-
 
 
 -----
@@ -15775,21 +10708,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  卡蓮  
 ##### 2328#       发表于 2015-9-23 19:58
 
 
-
-
 40AP交了令咒都打不过去，放弃了<img src="https://static.saraba1st.com/image/smiley/face/52.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15800,12 +10725,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 2330#       发表于 2015-9-23 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30246994&amp;ptid=1085254" target="_blank">卡蓮 发表于 2015-9-23 19:58</a>
@@ -15814,27 +10737,15 @@ S阶只有傻吧莉莉和元帅还没喂..........
 留宝具 秒金闪闪和尼禄.....其他人没什么杀伤力
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2331#       发表于 2015-9-23 20:13
 
 
-
-
 这次更新后一个坏处就是……
 
 敌方的单体宝具也不是只打第一个人了，不好防了orz
-
-
-
-
-
 
 
 -----
@@ -15845,23 +10756,15 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  风祭雅  
 ##### 2333#       发表于 2015-9-23 20:16
 
 
-
-
 40本难度感人... 建议开场上两个进攻型的+贞德... 后备放弓兵...  优先杀金闪闪  至于最后的尼禄只能祈祷别一直连皇帝特权了
 
 刚刚一个宝具打过去这货下一轮3连皇帝特权把血回满了而且硬成了狗<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15870,14 +10773,7 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2334#       发表于 2015-9-23 20:18
 
 
-
-
 替换存档文件是替换authsave和singupsave文件吗？替换后游戏黑屏了。。。
-
-
-
-
-
 
 
 -----
@@ -15888,13 +10784,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  jackyhuang  
 ##### 2336#       发表于 2015-9-23 20:25
-
-
 
 
 卡米拉一下三次吸血直接NP槽满了，下了我一大跳
@@ -15906,17 +10799,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 感觉还蛮轻松的
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2337#       发表于 2015-9-23 20:37
-
-
 
 
 忍不住又去打了次龙
@@ -15926,25 +10812,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 掉出来的明明是金箱,按menu看却是金种火...
 
 
-
-
-
-
-
 -----
 
 ####  shanajiang  
 ##### 2338#       发表于 2015-9-23 20:39
 
 
-
-
 谁有安卓新版apk？能直接安装吗？之前没看继承码啊，能丢存档吗？
-
-
-
-
-
 
 
 -----
@@ -15953,23 +10827,16 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2339#       发表于 2015-9-23 20:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30247190&amp;ptid=1085254" target="_blank">wudifeiji 发表于 2015-9-23 20:18</a>
 
 替换存档文件是替换authsave和singupsave文件吗？替换后游戏黑屏了。。。</blockquote>
 缺了authsave2.dat
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2340#       发表于 2015-9-23 20:41
-
 
 
 <blockquote>guiltyspark 发表于 2015-9-23 20:37
@@ -15981,16 +10848,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 现在掉落都是箱子，狗粮也是箱子。。棋子本掉了好多铜箱子了。。。
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 2341#       发表于 2015-9-23 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30247364&amp;ptid=1085254" target="_blank">shanajiang 发表于 2015-9-23 20:39</a>
@@ -16004,16 +10865,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 一般这种更新不会清存档吧，就是缓存要去重新下一次
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2342#       发表于 2015-9-23 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30247374&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-23 20:41</a>
@@ -16030,25 +10885,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 不是bug我就只能认为营运脑子又回到浸水状态了
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2343#       发表于 2015-9-23 20:54
 
 
-
-
 我以为更新了那么多东西是运营吃核桃了,结果发现我错了,还是脑残,换东西一次只能换一个,慢慢点吧
-
-
-
-
-
 
 
 -----
@@ -16059,12 +10902,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  shanajiang  
 ##### 2345#       发表于 2015-9-23 21:01
-
 
 
 <blockquote>jackyhuang 发表于 2015-9-23 20:41
@@ -16076,17 +10917,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 谢，我回头试试，上次下缓存下了好久好久…还得从来啊…
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2346#       发表于 2015-9-23 21:05
-
-
 
 
 我靠，最后的活动本很刺激很带感！
@@ -16100,27 +10934,15 @@ S阶只有傻吧莉莉和元帅还没喂..........
 结论：40活动本并非悠闲玩家、非洲土著、部分亚洲发展中国家劳动人民所打<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 2347#       发表于 2015-9-23 21:25
 
 
-
-
 贴吧报告说尼禄有攻击无效的BUG<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 打尼禄前留个活口，比如幼帝，能有效占用掉尼禄的行动次数
-
-
-
-
-
 
 
 -----
@@ -16129,23 +10951,15 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2348#       发表于 2015-9-23 21:28
 
 
-
-
 プレゼントボックスの演出スキップ机能を追加
 
 反正这功能我是没找到
-
-
-
-
-
 
 
 -----
 
 ####  handing  
 ##### 2349#       发表于 2015-9-23 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30247796&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-23 21:28</a>
@@ -16156,11 +10970,6 @@ S阶只有傻吧莉莉和元帅还没喂..........
 你现在可以点一下跳过演出，以前是必须完整看完动画连跳过都不行
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -16169,21 +10978,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  乙山法純  
 ##### 2351#       发表于 2015-9-23 21:32
 
 
-
-
 缓存重下这酷炫的设定还没改掉，小号挤的早10分钟搞定，大号20分钟10%
-
-
-
-
-
 
 
 -----
@@ -16192,21 +10993,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2352#       发表于 2015-9-23 21:41
 
 
-
-
 尼禄咋这么硬呢<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2353#       发表于 2015-9-23 21:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30247820&amp;ptid=1085254" target="_blank">handing 发表于 2015-9-23 21:31</a>
@@ -16217,25 +11010,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 感谢解惑
 
 
-
-
-
-
-
 -----
 
 ####  天使折翼  
 ##### 2354#       发表于 2015-9-23 22:12
 
 
-
-
 本地下载完全下不动
-
-
-
-
-
 
 
 -----
@@ -16244,21 +11025,13 @@ S阶只有傻吧莉莉和元帅还没喂..........
 ##### 2355#       发表于 2015-9-23 22:38
 
 
-
-
 服务器是不是坏了，战斗结束连不上去了
-
-
-
-
-
 
 
 -----
 
 ####  西条拓巳  
 ##### 2356#       发表于 2015-9-23 22:38
-
 
 
  本帖最后由 西条拓巳 于 2015-9-23 22:45 编辑 
@@ -16270,16 +11043,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 你的技能介绍里完全没有提概率的事，这不是欺诈吗，运营一定福岛水喝多了
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 2357#       发表于 2015-9-23 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30247485&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-23 20:54</a>
@@ -16290,16 +11057,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 要再去礼品盒领，而领狗粮还要每一个都要看一遍那个动画╮(╯_╰)╭
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2358#       发表于 2015-9-23 23:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30248261&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-23 22:38</a>
@@ -16312,16 +11073,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 官方把减防列入对魔力/弱体耐性的生效对象了?
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2359#       发表于 2015-9-23 23:39
-
 
 
 [http://tieba.baidu.com/p/3974981369?pn=27](http://tieba.baidu.com/p/3974981369?pn=27)
@@ -16331,27 +11086,16 @@ S阶只有傻吧莉莉和元帅还没喂..........
 手上有一两个四五星的还打不过的话，找找自己的问题？
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2360#       发表于 2015-9-23 23:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30248616&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-23 23:25</a>
 
 官方把减防列入对魔力/弱体耐性的生效对象了?</blockquote>
 今天的40AP本在对尼禄使用时MISS了，贴吧也有人反映
-
-
-
-
-
 
 
 -----
@@ -16362,12 +11106,10 @@ S阶只有傻吧莉莉和元帅还没喂..........
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  wuuuuuud  
 ##### 2362#       发表于 2015-9-23 23:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30248737&amp;amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-9-23 23:39</a>
@@ -16379,25 +11121,13 @@ http://tieba.baidu.com/p/3974981369?pn=27
 没过吧
 
 
-
-
-
-
-
 -----
 
 ####  こう  
 ##### 2363#       发表于 2015-9-24 00:03
 
 
-
-
 用C妈破尼禄，闪闪虐之<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16406,14 +11136,7 @@ http://tieba.baidu.com/p/3974981369?pn=27
 ##### 2364#       发表于 2015-9-24 00:13
 
 
-
-
 之前说过改成可以选择第1、2阶段的样子进入战斗 结果是无实装还是啥 我没研究出应该怎么做
-
-
-
-
-
 
 
 -----
@@ -16422,14 +11145,7 @@ http://tieba.baidu.com/p/3974981369?pn=27
 ##### 2365#       发表于 2015-9-24 00:16
 
 
-
-
 维护完的10抽温暖人心,3星礼装礼包真是够了
-
-
-
-
-
 
 
 -----
@@ -16438,14 +11154,7 @@ http://tieba.baidu.com/p/3974981369?pn=27
 ##### 2366#       发表于 2015-9-24 00:55
 
 
-
-
 迷之技术力。。。自己英灵一死替补上来就卡死在那画面了。。
-
-
-
-
-
 
 
 -----
@@ -16454,24 +11163,16 @@ http://tieba.baidu.com/p/3974981369?pn=27
 ##### 2367#       发表于 2015-9-24 01:08
 
 
-
-
 好友系统也改了，我想要光炮大腿的时候给了一排日天<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
 日了狗。
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2368#       发表于 2015-9-24 01:25
-
 
 
 <blockquote>brunestud 发表于 2015-9-24 01:08
@@ -16484,16 +11185,10 @@ http://tieba.baidu.com/p/3974981369?pn=27
 不过感觉现在好友在支援列表数目也少了。。。。一排陌生人
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2369#       发表于 2015-9-24 02:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30249403&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-24 01:25</a>
@@ -16506,16 +11201,10 @@ http://tieba.baidu.com/p/3974981369?pn=27
 不过会随时间变化了
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2370#       发表于 2015-9-24 02:21
-
 
 
  本帖最后由 ulir 于 2015-9-24 02:31 编辑 
@@ -16536,25 +11225,13 @@ B叔的宝具可以用圣乔治拉走，C妈宝具还有R姐魔眼应该都能�
 好友现在只能刷到6个，以前差不多10个吧，非队友只有5个可选，现在这样换不知道是不是防止抱大腿对策
 
 
-
-
-
-
-
 -----
 
 ####  Muarim  
 ##### 2371#       发表于 2015-9-24 05:03
 
 
-
-
 好像好友是随机抓6个  傻逼死了。 
-
-
-
-
-
 
 
 -----
@@ -16563,16 +11240,10 @@ B叔的宝具可以用圣乔治拉走，C妈宝具还有R姐魔眼应该都能�
 ##### 2372#       发表于 2015-9-24 05:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30248919&amp;ptid=1085254" target="_blank">wuuuuuud 发表于 2015-9-23 23:59</a>
 
 没过吧</blockquote>
 没过也差不多了。一二星都可以打成那样了，带了四五星还打不过？
-
-
-
-
-
 
 
 -----
@@ -16581,16 +11252,10 @@ B叔的宝具可以用圣乔治拉走，C妈宝具还有R姐魔眼应该都能�
 ##### 2373#       发表于 2015-9-24 07:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30249840&amp;ptid=1085254" target="_blank">Muarim 发表于 2015-9-24 05:03</a>
 
 好像好友是随机抓6个  傻逼死了。</blockquote>
 那是昨天刚刚更新，好友都没上过线。
-
-
-
-
-
 
 
 -----
@@ -16599,22 +11264,13 @@ B叔的宝具可以用圣乔治拉走，C妈宝具还有R姐魔眼应该都能�
 ##### 2374#       发表于 2015-9-24 07:36
 
 
-
-
 怎么回事？ 减防现在会MISS了？ 我确定我没眼花
-
-
-
-
-
 
 
 -----
 
 ####  无形伏击客  
 ##### 2375#       发表于 2015-9-24 07:51
-
-
 
 
 侥幸不交令咒过了尼禄本
@@ -16626,26 +11282,15 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 回复上有贞德安徒生保证主力输出不要死就行
 
 
-
-
-
-
-
 -----
 
 ####  wuuuuuud  
 ##### 2376#       发表于 2015-9-24 08:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30249895&amp;amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-9-24 05:59</a>
 没过也差不多了。一二星都可以打成那样了，带了四五星还打不过？</blockquote>
 初见不过很正常嘛，何必火气那么大
-
-
-
-
-
 
 
 -----
@@ -16654,22 +11299,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2377#       发表于 2015-9-24 11:26
 
 
-
-
 20AP本蛇眼掉率不错，缺的可以去那刷。
-
-
-
-
-
 
 
 -----
 
 ####  枫紫  
 ##### 2378#       发表于 2015-9-24 11:41
-
-
 
 
 大公组贞德不交令咒过了
@@ -16684,25 +11320,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 基本上有点靠运气,金闪闪和海格都是3红卡一波带走的,然后R姐和贞德的拘束用在了大帝上,然后控血在同一回合用大公的宝具+普攻同时收掉大帝和旧狗,之后3个一起打尼禄
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2379#       发表于 2015-9-24 12:20
 
 
-
-
 发了一次引继码。。。然后数据全部要重下。。我真是服了
-
-
-
-
-
 
 
 -----
@@ -16713,13 +11337,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  EMIYARIN  
 ##### 2381#       发表于 2015-9-24 12:28
-
-
 
 
 这次活动，出了三爪子，一羽毛。
@@ -16727,17 +11348,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 龙鳞蛇眼没见过。龙牙也没见过
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2382#       发表于 2015-9-24 12:48
-
-
 
 
 地图全清光了。。。。活动也差不多毕业了
@@ -16747,17 +11361,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">完全不知道还能做什么了。。
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2383#       发表于 2015-9-24 12:50
-
-
 
 
 龙鳞没见过，蛇眼我那个小号至少出了8个....
@@ -16766,16 +11373,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 现在金箱子居然会掉种火，我真是日了狗了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">这是不是说明所有金箱子都有几率掉种火了？
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2384#       发表于 2015-9-24 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253090&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-24 12:50</a>
@@ -16787,25 +11388,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 是所有种火都变成箱子样子的掉落了
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2385#       发表于 2015-9-24 13:02
 
 
-
-
 尼禄还真是恶心...吃了3话令咒一个石头才打掉
-
-
-
-
-
 
 
 -----
@@ -16814,21 +11403,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2386#       发表于 2015-9-24 13:12
 
 
-
-
 礼装掉满破了，金牌不用打了，可逆鳞没掉啊，这如何是好<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 2387#       发表于 2015-9-24 13:28
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer">自己玩的号就3个60的4星从者 小玉 卡米拉 龙娘 活动没缺席过..材料也一堆.. 虽然没金棋子
@@ -16839,11 +11420,6 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 我是不是应该直接把我自己玩的号撕了换他这个号?
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -16852,12 +11428,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 2389#       发表于 2015-9-24 13:40
-
 
 
 <blockquote>引用第2385楼alucardcz于2015-09-24 13:28发表的  :
@@ -16870,16 +11444,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2390#       发表于 2015-9-24 13:41
-
 
 
  本帖最后由 alucardcz 于 2015-9-24 13:45 编辑 
@@ -16893,16 +11461,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 然而我还没决定换不换 真换了我一定会继续找你的1s
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2391#       发表于 2015-9-24 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253474&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-24 13:28</a>
@@ -16913,16 +11475,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 还是去买个有日天的号吧，这个游戏一分钱不花光刷脸那真的是难为自己<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2392#       发表于 2015-9-24 13:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253606&amp;ptid=1085254" target="_blank">gugu135 发表于 2015-9-24 13:42</a>
@@ -16931,16 +11487,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 日天? 有什么用.  前期没起来的时候需要日天..现在日天拖节奏
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2393#       发表于 2015-9-24 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253543&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-24 13:36</a>
@@ -16953,11 +11503,6 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 <img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">但是轻松吊打我自己玩了那么久的号...
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -16966,12 +11511,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 2395#       发表于 2015-9-24 13:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253631&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-24 13:48</a>
@@ -16982,16 +11525,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 <img src="https://static.saraba1st.com/image/smiley/face/45.gif" referrerpolicy="no-referrer">孔明换成黑傻吧或者阿拉提就好了! 
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2396#       发表于 2015-9-24 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253621&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-24 13:46</a>
@@ -17003,11 +11540,6 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 打手根据情况要换，你自己不可能全部搞定，抱大腿是唯一的出路
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -17016,13 +11548,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  西条拓巳  
 ##### 2398#       发表于 2015-9-24 13:55
-
-
 
 
 强？哪天一脑抽说不定又下方修正了，这运营什么事干不出来。
@@ -17030,16 +11559,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 而且如果从给新卡让路的角度来考虑的话几率还是不小的，因为这个运营根本不知道什么是各有所长，他们从来只知道用最简单粗暴的办法来解决平衡问题
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2399#       发表于 2015-9-24 14:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253688&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-24 13:53</a>
@@ -17055,16 +11578,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 话说黑呆毛为什么这么强..一个宝具A到3人就是20-30W...
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2400#       发表于 2015-9-24 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253655&amp;ptid=1085254" target="_blank">gugu135 发表于 2015-9-24 13:50</a>
@@ -17076,16 +11593,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 这没什么好讨论的..玩法不同而已
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2401#       发表于 2015-9-24 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253708&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-24 13:55</a>
@@ -17096,17 +11607,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 <img src="https://static.saraba1st.com/image/smiley/face/180.gif" referrerpolicy="no-referrer">这次版本更新.降防会MISS了..我完全看不懂运营在想什么
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2402#       发表于 2015-9-24 14:10
-
-
 
 
 后面还有贞德A
@@ -17118,11 +11622,6 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 4星还比较好抽一点,虽然应该不会放在首抽池里
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -17131,21 +11630,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  DARKGRAY  
 ##### 2404#       发表于 2015-9-24 14:24
 
 
-
-
 要不是懒得重打，早就换掉这非洲号了<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17154,16 +11645,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2405#       发表于 2015-9-24 14:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253964&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2015-9-24 14:24</a>
 
 要不是懒得重打，早就换掉这非洲号了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">比我的号非吗
-
-
-
-
-
 
 
 -----
@@ -17172,16 +11657,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2406#       发表于 2015-9-24 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254010&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-24 14:29</a>
 
 比我的号非吗</blockquote>
 差不多，莉莉能当主力<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17190,17 +11669,11 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2407#       发表于 2015-9-24 14:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30253631&amp;amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-24 13:48</a>
 其实我手里有个贞德+孔明+龙女+B叔+玛丽+卡米拉的号，材料只有一点点
 
 朋友都A了送不出去有人想玩吗 ...</blockquote>
 你这号⋯肝要疼死吧。不过我大公＋长江＋B叔让我看不到希望啊…B阶还不送棋子。大龙都不敢打…唯一的优点是推图巨快。
-
-
-
-
-
 
 
 -----
@@ -17211,13 +11684,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 2409#       发表于 2015-9-24 15:27
-
-
 
 
 4星以上只有贞德和马路塔，没有宝石翁
@@ -17227,16 +11697,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2410#       发表于 2015-9-24 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253829&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-24 14:10</a>
@@ -17252,16 +11716,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 估计她以后会成为光炮团的中坚力量。毕竟尺子不存在克制问题。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2411#       发表于 2015-9-24 15:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254597&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-24 15:27</a>
@@ -17272,25 +11730,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">欧洲人你好 我连5星都没有 非吗
 
 
-
-
-
-
-
 -----
 
 ####  anakin-x  
 ##### 2412#       发表于 2015-9-24 15:55
 
 
-
-
 换号直接数据重新下啊，这太SB了啊
-
-
-
-
-
 
 
 -----
@@ -17299,16 +11745,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2413#       发表于 2015-9-24 16:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254850&amp;ptid=1085254" target="_blank">anakin-x 发表于 2015-9-24 15:55</a>
 
 换号直接数据重新下啊，这太SB了啊</blockquote>
 正确来说是发引继码就要重新下载 换不换号都要重下...
-
-
-
-
-
 
 
 -----
@@ -17317,16 +11757,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2414#       发表于 2015-9-24 16:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254900&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-24 16:00</a>
 
 正确来说是发引继码就要重新下载 换不换号都要重下...</blockquote>
 我靠 这太坑爹了啊
-
-
-
-
-
 
 
 -----
@@ -17335,22 +11769,14 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2415#       发表于 2015-9-24 16:32
 
 
-
-
 出BUG报告了
 <img src="http://s1.postimg.org/4hjn6hpod/6d83dad7912397ddf5fc99b05f82b2b7d1a2873c.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2416#       发表于 2015-9-24 16:44
-
 
 
  本帖最后由 guiltyspark 于 2015-9-24 16:49 编辑 
@@ -17386,16 +11812,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 导致大部分时间都是日天A比日天好用
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2417#       发表于 2015-9-24 16:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254597&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-24 15:27</a>
@@ -17410,16 +11830,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 运气差的时候100以内
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2418#       发表于 2015-9-24 17:01
-
 
 
 <blockquote>guiltyspark 发表于 2015-9-24 16:52
@@ -17431,25 +11845,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 我连龙脉都只有一张 虚数宝石更是见都没见过
 
 
-
-
-
-
-
 -----
 
 ####  kurechan  
 ##### 2419#       发表于 2015-9-24 17:18
 
 
-
-
 从者的害羞表情是不是被修掉了<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17458,20 +11860,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2420#       发表于 2015-9-24 17:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">新活动改换棋子了，不过只有弓/骑/杀
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2421#       发表于 2015-9-24 17:23
-
 
 
 <blockquote>引用第2415楼guiltyspark于2015-09-24 16:52发表的  :
@@ -17483,17 +11878,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2422#       发表于 2015-9-24 17:32
-
-
 
 
 我就B叔主力+龙娘上攻防，阿塔和齐格非都是摆设一，55级B叔，另外3个40级，剩下全部30出头
@@ -17503,25 +11891,13 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 顺便虽然抽到旧枪了但依旧没看见5战汪酱<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2423#       发表于 2015-9-24 17:43
 
 
-
-
 看了下新礼装新从者完全没兴趣···
-
-
-
-
-
 
 
 -----
@@ -17530,14 +11906,7 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2424#       发表于 2015-9-24 17:45
 
 
-
-
 所以这次还是不抽，那个新礼装看看新脚本然后开始刷棋子狗粮和梅林算了
-
-
-
-
-
 
 
 -----
@@ -17546,14 +11915,7 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2425#       发表于 2015-9-24 17:45
 
 
-
-
 半弃坑状态，大公现在能用了吗
-
-
-
-
-
 
 
 -----
@@ -17564,13 +11926,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guiltyspark  
 ##### 2427#       发表于 2015-9-24 17:49
-
-
 
 
 巨乳5星archer
@@ -17580,16 +11939,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 抽卡5星礼装每回合回500血
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2428#       发表于 2015-9-24 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255926&amp;ptid=1085254" target="_blank">trb315 发表于 2015-9-24 17:45</a>
@@ -17600,28 +11953,16 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 在金时出来之前都是攻击力最高,宝具NP最容易蓄的berserker
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2429#       发表于 2015-9-24 17:53
 
 
-
-
 ...我小号攒的石头还是今晚试试能不能出idol吧...新从者和up的看起来还不如现在这俩呢...
 
 
 说好的马上出3章呢？
-
-
-
-
-
 
 
 -----
@@ -17632,23 +11973,15 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 2431#       发表于 2015-9-24 18:28
 
 
-
-
 新从者可舔
 
 然而我并不可能抽到
-
-
-
-
-
 
 
 -----
@@ -17657,16 +11990,9 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 ##### 2432#       发表于 2015-9-24 18:49
 
 
-
-
 终于能刷棋子了，虽然只有三阶。
 
 新阿茶看上去好像挺强的。
-
-
-
-
-
 
 
 -----
@@ -17677,12 +12003,10 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  西条拓巳  
 ##### 2434#       发表于 2015-9-24 19:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256443&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-24 18:49</a>
@@ -17695,27 +12019,16 @@ MAIN 贞德 阿提拉 黑无毛  SUPPORT 安徒生 阿塔 C妈
 魔放的时代，没有魔放的地图炮也是<img src="https://static.saraba1st.com/image/smiley/zdl/161.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2435#       发表于 2015-9-24 19:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256619&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-24 19:13</a>
 
 魔放的时代，没有魔放的地图炮也是</blockquote>
 有句刚句，长江的地图炮还是不错的，特别在打弓兵的时候。
-
-
-
-
-
 
 
 -----
@@ -17731,27 +12044,16 @@ Title
 今天试着向三个70+等级的servant的帐号申请好友，都有空位。运营怎么想的我不清楚，但是减少好友增加非好友，为了愉快玩耍只能清掉好友里等级低无战力那些，多加高等级的。
 
 
-
-
-
-
-
 -----
 
 ####  wudifeiji  
 ##### 2437#       发表于 2015-9-24 19:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256786&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-24 19:36</a>
 
 今天试着向三个70+等级的servant的帐号申请好友，都有空位。运营怎么想的我不清楚，但是减少好友增加非好友 ...</blockquote>
 那个是bug，应该修复了吧
-
-
-
-
-
 
 
 -----
@@ -17768,25 +12070,13 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 我也不知道都算什么，反正我觉得该改的多了，现在除了盾娘全部绊满，每次打完还要大眼瞪小眼瞅半天，也没法按过去，TM血统的半成品╮(╯﹏╰)╭
 
 
-
-
-
-
-
 -----
 
 ####  sayuri55  
 ##### 2439#       发表于 2015-9-24 20:56
 
 
-
-
 突然发现就算想要拿完素材我也还差70金牌...弃疗了
-
-
-
-
-
 
 
 -----
@@ -17795,16 +12085,9 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 ##### 2440#       发表于 2015-9-24 21:26
 
 
-
-
 新活动除了能给闪闪换几个棋子也没啥好玩的。。。<img src="https://static.saraba1st.com/image/smiley/face/14.gif" referrerpolicy="no-referrer">
 
 啥时候再来AP减半，狗粮喂光了，40狗粮本总觉得打起来太亏了
-
-
-
-
-
 
 
 -----
@@ -17813,13 +12096,7 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 ##### 2441#       发表于 2015-9-24 23:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">太好了我唯一的主力红A可以三破了，话说宝具修正后好像伤害稍微能看了点...大概
-
-
-
-
-
 
 
 -----
@@ -17828,14 +12105,7 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 ##### 2442#       发表于 2015-9-24 23:21
 
 
-
-
 升技要求的素材是不是变多了,我记得我大公4升5之前明明没有要求过混沌爪的
-
-
-
-
-
 
 
 -----
@@ -17844,14 +12114,7 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 ##### 2443#       发表于 2015-9-25 00:09
 
 
-
-
 新活动送点狗粮也是好的，老实说这游戏底子其实还不错，但是运营为何这么蠢.....
-
-
-
-
-
 
 
 -----
@@ -17860,24 +12123,16 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 ##### 2444#       发表于 2015-9-25 00:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30258535&amp;ptid=1085254" target="_blank">枫紫 发表于 2015-9-24 23:21</a>
 
 升技要求的素材是不是变多了,我记得我大公4升5之前明明没有要求过混沌爪的 ...</blockquote>
 一直都要，只是之前你石头不够的时候不显示第二个
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 2445#       发表于 2015-9-25 00:13
-
-
 
 
 ■日時
@@ -17938,16 +12193,10 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 幼帝的魅惑无效原来是BUG，我想怎么脸那么好，最终战的就没中过……<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 2446#       发表于 2015-9-25 00:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30258987&amp;ptid=1085254" target="_blank">himtom 发表于 2015-9-25 00:10</a>
@@ -17956,16 +12205,10 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 <img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">这啥坑爹式样
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2447#       发表于 2015-9-25 00:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30258999&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2015-9-25 00:13</a>
@@ -17981,16 +12224,10 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 还有卡米拉这种降防的技能会MISS难道不是BUG....
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2448#       发表于 2015-9-25 01:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30259161&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-25 00:37</a>
@@ -18004,16 +12241,10 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 然而敌方可以0CD放到你中为止 我方不能这么玩<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2449#       发表于 2015-9-25 01:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30259449&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-9-25 01:51</a>
@@ -18026,16 +12257,10 @@ RE: 《Fate/Grand Order》Type-Moon新作RPG手游转型讨论帖(顶楼附S1群
 看来以后哪天群体加攻也要MISS了吗
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2450#       发表于 2015-9-25 02:02
-
 
 
 <blockquote>alucardcz 发表于 2015-9-25 01:57
@@ -18047,17 +12272,10 @@ buff本身就会有miss的啊 比如皇帝特权
 领导力应该不会
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2451#       发表于 2015-9-25 02:41
-
-
 
 
 buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今降防被抵消真是太麻烦了
@@ -18066,25 +12284,13 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2452#       发表于 2015-9-25 09:12
 
 
-
-
 贞日天的定人也MISS了。。。。。。。。。。。。<img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18093,16 +12299,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ##### 2453#       发表于 2015-9-25 09:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30260526&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-25 09:12</a>
 
 贞日天的定人也MISS了。。。。。。。。。。。。</blockquote>
 贞德定大姐二姐从未成功过！
-
-
-
-
-
 
 
 -----
@@ -18111,22 +12311,13 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ##### 2454#       发表于 2015-9-25 10:50
 
 
-
-
 200银换了个礼装,总算我也是有礼装的人了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">金全拿去换素材了,不破了
-
-
-
-
-
 
 
 -----
 
 ####  无心骑士  
 ##### 2455#       发表于 2015-9-25 11:35
-
-
 
 
 送几个号，不知道谁要？
@@ -18141,18 +12332,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 小玉*3
 
 
-
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2456#       发表于 2015-9-25 11:45
-
-
 
 
 于是我打到活动结束也没出过礼装
@@ -18160,16 +12343,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 以后你们可以叫我MASTER AFRICA了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2457#       发表于 2015-9-25 11:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30262223&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-25 11:45</a>
@@ -18180,16 +12357,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">我昨天才开始打的小号都出了
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2458#       发表于 2015-9-25 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30262362&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-25 11:57</a>
@@ -18198,16 +12369,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 …………跟我到中山公园来一趟
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2459#       发表于 2015-9-25 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30262417&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-25 12:01</a>
@@ -18216,16 +12381,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">不要慌 我从昨天刷10AP刷到现在只掉了3个龙牙
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2460#       发表于 2015-9-25 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30262436&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-25 12:03</a>
@@ -18236,16 +12395,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 少废话，中山公园来一趟
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2461#       发表于 2015-9-25 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30262445&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-25 12:04</a>
@@ -18256,25 +12409,13 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 <img src="https://static.saraba1st.com/image/smiley/face/182.jpg" referrerpolicy="no-referrer">还有55分钟 你还有机会！
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2462#       发表于 2015-9-25 12:08
 
 
-
-
 今天运气不错，友情出了安徒生和旧枪，c妈估计不远了<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18283,14 +12424,7 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ##### 2463#       发表于 2015-9-25 12:22
 
 
-
-
 我就是没掉逆鳞，其他情况还好，礼装已溢出<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18299,17 +12433,11 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ##### 2464#       发表于 2015-9-25 12:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30262445&amp;amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-25 12:04</a>
 我TM就没掉过
 
 少废话，中山公园来一趟</blockquote>
 小号满破，大号换的唯一一个，感受一下。
-
-
-
-
-
 
 
 -----
@@ -18320,12 +12448,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 2466#       发表于 2015-9-25 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30262858&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-25 12:47</a>
@@ -18336,16 +12462,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">没见过宝石翁和虚数的表示你说这个谁懂啊
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2467#       发表于 2015-9-25 13:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30262967&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-25 12:55</a>
@@ -18354,16 +12474,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">我昨天手抖不小心把虚数突破了。。。浪费了。。。
 
 
-
-
-
-
-
 -----
 
 ####  williamgdd  
 ##### 2468#       发表于 2015-9-25 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30262858&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-25 12:47</a>
@@ -18381,11 +12495,6 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 这次活动没爆礼装，银牌换了个。。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -18394,21 +12503,13 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ulir  
 ##### 2470#       发表于 2015-9-25 14:26
 
 
-
-
 唯一一个五星礼装是太太的宝具+30%，有五张土狼然而并没有主力蓝卡英灵
-
-
-
-
-
 
 
 -----
@@ -18417,14 +12518,7 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ##### 2471#       发表于 2015-9-25 17:15
 
 
-
-
 全换需要要好多团子啊。。。
-
-
-
-
-
 
 
 -----
@@ -18435,21 +12529,13 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  西条拓巳  
 ##### 2473#       发表于 2015-9-25 17:17
 
 
-
-
 为什么只有初级？
-
-
-
-
-
 
 
 -----
@@ -18460,13 +12546,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guiltyspark  
 ##### 2475#       发表于 2015-9-25 17:20
-
-
 
 
 上线抽了3发
@@ -18485,11 +12568,6 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 交换的礼装第一张要500丸子,第二张2000,第三张5000
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -18498,21 +12576,13 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  卡蓮  
 ##### 2477#       发表于 2015-9-25 17:28
 
 
-
-
 第一段剧情就自爆了啊アルテミス！
-
-
-
-
-
 
 
 -----
@@ -18521,14 +12591,7 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ##### 2478#       发表于 2015-9-25 17:29
 
 
-
-
 俩召唤界面？我也是醉了...
-
-
-
-
-
 
 
 -----
@@ -18537,14 +12600,7 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ##### 2479#       发表于 2015-9-25 17:30
 
 
-
-
 关键是她声线太卧槽了……蓝卡居然还是撞人……
-
-
-
-
-
 
 
 -----
@@ -18553,23 +12609,15 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 ##### 2480#       发表于 2015-9-25 17:43
 
 
-
-
 好歹都是新动作
 
 不过extra很偷懒直接就是把红卡射蓝卡撞绿卡跳射重复一次
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2481#       发表于 2015-9-25 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30265771&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-25 17:29</a>
@@ -18582,25 +12630,13 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 不然以后有孔明up都没人敢抽
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2482#       发表于 2015-9-25 17:47
 
 
-
-
 这+1的礼装装在替补身上有效果吗 还是一定要上场的
-
-
-
-
-
 
 
 -----
@@ -18611,13 +12647,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  卡蓮  
 ##### 2484#       发表于 2015-9-25 17:50
-
-
 
 
 应该是替补身上有效
@@ -18626,16 +12659,10 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 我发现那个金丸子虽然有掉落，但是兑换页面没他的兑换…
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2485#       发表于 2015-9-25 17:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30265913&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-25 17:45</a>
@@ -18651,32 +12678,19 @@ buff和DEBUFF什么的本身就说过随机，好像只有魅惑没写，如今�
 nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 2486#       发表于 2015-9-25 17:51
 
 
-
-
 还在刷尼禄祭，10体7银牌换一个多的大狗粮，简直赞
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 2487#       发表于 2015-9-25 17:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30265962&amp;ptid=1085254" target="_blank">卡蓮 发表于 2015-9-25 17:50</a>
@@ -18691,32 +12705,19 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 不过也有可能只是为了开任务。。。。。。。。。。。。。那就太那啥了
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2488#       发表于 2015-9-25 17:55
 
 
-
-
 我把目光注视到新英灵的胸前<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2489#       发表于 2015-9-25 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30265962&amp;ptid=1085254" target="_blank">卡蓮 发表于 2015-9-25 17:50</a>
@@ -18730,25 +12731,13 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 普通丸子才是兑换用的
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2490#       发表于 2015-9-25 18:11
 
 
-
-
 网不好，还在卡更新
-
-
-
-
-
 
 
 -----
@@ -18759,21 +12748,13 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  jackyhuang  
 ##### 2492#       发表于 2015-9-25 18:36
 
 
-
-
 贴吧说这次依旧打本有礼装掉落
-
-
-
-
-
 
 
 -----
@@ -18782,16 +12763,10 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 ##### 2493#       发表于 2015-9-25 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30266342&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2015-9-25 18:36</a>
 
 贴吧说这次依旧打本有礼装掉落</blockquote>
 于是我敢肯定我这次依然能保持一张不出……
-
-
-
-
-
 
 
 -----
@@ -18802,21 +12777,13 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 2495#       发表于 2015-9-25 18:46
 
 
-
-
 哈哈哈哈哈剧情里还吐槽屠龙勇者小次郎wwww
-
-
-
-
-
 
 
 -----
@@ -18827,21 +12794,13 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  zhaoyanggolden  
 ##### 2497#       发表于 2015-9-25 19:10
 
 
-
-
 7500个白团子……这得刷到哪辈子啊
-
-
-
-
-
 
 
 -----
@@ -18850,15 +12809,9 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 ##### 2498#       发表于 2015-9-25 19:11
 
 
-
  本帖最后由 eyeego 于 2015-9-25 19:12 编辑 
 
 我这一进战斗就断是什么鬼 明明其他操作都没问题的<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18867,16 +12820,10 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 ##### 2499#       发表于 2015-9-25 19:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30266614&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-9-25 19:11</a>
 
 我这一进战斗就断是什么鬼 明明其他操作都没问题的</blockquote>
 我也有是这样。。。换个支援的就好了。。。
-
-
-
-
-
 
 
 -----
@@ -18885,16 +12832,9 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 ##### 2500#       发表于 2015-9-25 19:19
 
 
-
-
 这5AP的金箱子掉率真高啊<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 要你何用，素材咋没见这么高
-
-
-
-
-
 
 
 -----
@@ -18903,16 +12843,10 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 ##### 2501#       发表于 2015-9-25 19:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30266607&amp;ptid=1085254" target="_blank">zhaoyanggolden 发表于 2015-9-25 19:10</a>
 
 7500个白团子……这得刷到哪辈子啊</blockquote>
 这次活动就是想愉快的刷请课金抽礼装…………
-
-
-
-
-
 
 
 -----
@@ -18921,14 +12855,7 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 ##### 2502#       发表于 2015-9-25 19:26
 
 
-
-
 这段时间攒的石头又抽完了...又是啥都没<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18937,14 +12864,7 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 ##### 2503#       发表于 2015-9-25 19:30
 
 
-
-
 似乎队伍里有两个以上和团子有关系的礼装就容易出问题，要么进不了本，要么结算出错……<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18953,24 +12873,16 @@ nm刚刚刷完又刷刷刷，我真是...有点无语的感觉。
 ##### 2504#       发表于 2015-9-25 19:38
 
 
-
-
 BATTLE_DIALOG_RESULT_ERROR_TITLE
 
 BATTLE_DIALOG_RESULT_ERROR_CONF
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2505#       发表于 2015-9-25 19:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30266836&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-25 19:38</a>
@@ -18981,17 +12893,10 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">直接关了。。重开。。无限重复点了还是这样
 
 
-
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2506#       发表于 2015-9-25 19:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30266842&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-25 19:39</a>
@@ -19000,15 +12905,9 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 恩。。解决了。。
 
 
-
 另外感觉是好友的问题？
 
 用团子礼装的好友没问题，想找个团子礼装的非好友试试就各种BUG
-
-
-
-
-
 
 
 -----
@@ -19017,14 +12916,7 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2507#       发表于 2015-9-25 19:45
 
 
-
-
 月神谁配音的啊太难听来，这周活动闪闪终于能三破了<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19033,14 +12925,7 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2508#       发表于 2015-9-25 19:56
 
 
-
-
 剧本太有趣了wwww
-
-
-
-
-
 
 
 -----
@@ -19049,16 +12934,10 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2509#       发表于 2015-9-25 19:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30266886&amp;ptid=1085254" target="_blank">こう 发表于 2015-9-25 19:45</a>
 
 月神谁配音的啊太难听来，这周活动闪闪终于能三破了</blockquote>
 泽城
-
-
-
-
-
 
 
 -----
@@ -19067,23 +12946,16 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2510#       发表于 2015-9-25 19:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30266886&amp;ptid=1085254" target="_blank">こう 发表于 2015-9-25 19:45</a>
 
 月神谁配音的啊太难听来，这周活动闪闪终于能三破了</blockquote>
 据说是神奈延年（对没错就是那只熊）和泽城美雪。
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 2511#       发表于 2015-9-25 20:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30266948&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-25 19:57</a>
@@ -19096,25 +12968,13 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 还好卡池是另外开的
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2512#       发表于 2015-9-25 20:23
 
 
-
-
 团子本打完必定掉线是什么鬼...
-
-
-
-
-
 
 
 -----
@@ -19123,21 +12983,13 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2513#       发表于 2015-9-25 20:33
 
 
-
-
 结果效率上是5AP的最好吗？但是5AP的理论上不会掉礼装吧…
-
-
-
-
-
 
 
 -----
 
 ####  jackyhuang  
 ##### 2514#       发表于 2015-9-25 20:35
-
 
 
  本帖最后由 jackyhuang 于 2015-9-25 20:36 编辑 
@@ -19149,24 +13001,13 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 所以上满加数量的拼命刷5ap就行了吧
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2515#       发表于 2015-9-25 20:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我恨欧洲人
-
-
-
-
-
 
 
 -----
@@ -19177,21 +13018,13 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  少女人形  
 ##### 2517#       发表于 2015-9-25 21:07
 
 
-
-
 据说是叠加的
-
-
-
-
-
 
 
 -----
@@ -19200,23 +13033,15 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2518#       发表于 2015-9-25 21:08
 
 
-
-
 看见各种晒呼符一发中的
 
 哈哈哈呼符抽下去又是苇之海<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2519#       发表于 2015-9-25 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30267471&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-25 21:08</a>
@@ -19227,11 +13052,6 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 我抽下去是两张黑键…………
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -19240,21 +13060,13 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  jackyhuang  
 ##### 2521#       发表于 2015-9-25 21:26
 
 
-
-
 根本不用急着抽啊，看现在这到处报错估计还要维护送石头的，攒一起抽啊
-
-
-
-
-
 
 
 -----
@@ -19263,14 +13075,7 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2522#       发表于 2015-9-25 21:39
 
 
-
-
 40ap活动本有个25W血的弓兵月色。。进本前请注意<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19279,14 +13084,7 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2523#       发表于 2015-9-25 21:47
 
 
-
-
 倍卡没抽到，倒是把月女神抽来了
-
-
-
-
-
 
 
 -----
@@ -19295,17 +13093,10 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2524#       发表于 2015-9-25 21:52
 
 
-
-
 两个符咒一个3星礼装一个变态子安。然后妄想一发中月神结果给了我一个幼帝（已经lv3）了。
 
 
 还有17个石头，谁给我解解毒<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19316,13 +13107,10 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  卡蓮  
 ##### 2526#       发表于 2015-9-25 22:12
-
-
 
 
 22:04:13
@@ -19346,27 +13134,15 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 还真不是咱脑残粉  实在是其他人不给力
 
 
-
-
-
-
-
 -----
 
 ####  风祭雅  
 ##### 2527#       发表于 2015-9-25 22:22
 
 
-
-
 抽了2次十连 什么也没有 两个4星老礼装保底...
 
 现在好想死.........
-
-
-
-
-
 
 
 -----
@@ -19375,16 +13151,9 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2528#       发表于 2015-9-25 22:32
 
 
-
-
 抽不到大奶……
 
 认真想了想我那么多archer其实也不需要这个，果断停手了。
-
-
-
-
-
 
 
 -----
@@ -19395,7 +13164,6 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  路德维嘉  
@@ -19404,21 +13172,13 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  乙山法純  
 ##### 2531#       发表于 2015-9-25 22:41
 
 
-
-
 40ap不掉金团子，我感觉到深深的恶意
-
-
-
-
-
 
 
 -----
@@ -19427,14 +13187,7 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2532#       发表于 2015-9-25 22:52
 
 
-
-
 小号抽到了月神，2绿2蓝的配置，蓝卡宝具。不论是技能还是宝具效果都是生存系，可以说是完全的磨队定位。有孔明贞德的话还可以抽一个玩玩，没得话量力而行吧。
-
-
-
-
-
 
 
 -----
@@ -19443,14 +13196,7 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2533#       发表于 2015-9-25 22:52
 
 
-
-
 我相信金团子以后还有用处，不过这个“你们先刷着我们还没想好奖励是什么”大概也是绝无仅有了
-
-
-
-
-
 
 
 -----
@@ -19459,14 +13205,7 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 ##### 2534#       发表于 2015-9-25 22:58
 
 
-
-
 我赌运营最多出个金团子能换银团子（这个是有良心的选项）或者金团子换QP
-
-
-
-
-
 
 
 -----
@@ -19477,12 +13216,10 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑沢逢世  
 ##### 2536#       发表于 2015-9-25 23:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30268142&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-25 22:34</a>
@@ -19495,16 +13232,10 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 我觉得只要策划不是飞了三四个妈后面应该会开放金团子兑换 可能是1个金团子=3-5个普通团子 
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2537#       发表于 2015-9-25 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30268656&amp;ptid=1085254" target="_blank">黑沢逢世 发表于 2015-9-25 23:23</a>
@@ -19513,27 +13244,15 @@ BATTLE_DIALOG_RESULT_ERROR_CONF</blockquote>
 想的美，绝对是只能换QP
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2538#       发表于 2015-9-25 23:38
 
 
-
-
 ap打光也才138个团子
 
 第一张礼装遥遥无期
-
-
-
-
-
 
 
 -----
@@ -19542,14 +13261,7 @@ ap打光也才138个团子
 ##### 2539#       发表于 2015-9-25 23:41
 
 
-
-
 什么鬼。。。用WIFI打开游戏就黑屏，用流量倒是可以打。。。
-
-
-
-
-
 
 
 -----
@@ -19558,16 +13270,10 @@ ap打光也才138个团子
 ##### 2540#       发表于 2015-9-25 23:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30268656&amp;ptid=1085254" target="_blank">黑沢逢世 发表于 2015-9-25 23:23</a>
 
 我觉得只要策划不是飞了三四个妈后面应该会开放金团子兑换 可能是1个金团子=3-5个普通团子  ...</blockquote>
 是什么让你产生了策划没有飞三四个妈的幻觉，三四十个都飞出去了
-
-
-
-
-
 
 
 -----
@@ -19576,14 +13282,7 @@ ap打光也才138个团子
 ##### 2541#       发表于 2015-9-26 00:10
 
 
-
-
 随便刷刷吧，拿几个急需的金棋子就行了，不是重氪的不要难为自己
-
-
-
-
-
 
 
 -----
@@ -19594,24 +13293,16 @@ ap打光也才138个团子
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  axiayu  
 ##### 2543#       发表于 2015-9-26 00:19
 
 
-
-
 刷5ap插了+6效率略高于 单倍卡刷40ap
 
 
 ----发送自 [HUAWEI HONOR H30-L02,Android 4.4.2](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -19622,21 +13313,13 @@ ap打光也才138个团子
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  brunestud  
 ##### 2545#       发表于 2015-9-26 00:28
 
 
-
-
 打5ap真是蛋疼...我觉得按这个刷法即使只刷满棋子肝都要爆的...
-
-
-
-
-
 
 
 -----
@@ -19645,24 +13328,16 @@ ap打光也才138个团子
 ##### 2546#       发表于 2015-9-26 00:28
 
 
-
-
 5ap 银团子的期望是1.5 金的期望是2.5 也就是平均下来3个里面能出一个银箱子 那么期望效率就是(1.5+x)/5了
 
 
 ----发送自 [HUAWEI HONOR H30-L02,Android 4.4.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  ネロ  
 ##### 2547#       发表于 2015-9-26 01:05
-
 
 
  本帖最后由 ネロ 于 2015-9-26 01:25 编辑 
@@ -19676,33 +13351,19 @@ ap打光也才138个团子
 试了下别的，正常完成，就团子第1话不行<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 2548#       发表于 2015-9-26 01:20
 
 
-
-
 昨天4次10连出了2个尼禄，今天2次10连出了2个玛丽，就是不出SSR<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2549#       发表于 2015-9-26 03:59
-
-
 
 
 普通10连
@@ -19712,16 +13373,10 @@ ap打光也才138个团子
 这是什么弓兵BUFF<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2550#       发表于 2015-9-26 05:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30269081&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 00:23</a>
@@ -19730,25 +13385,13 @@ ap打光也才138个团子
 <img src="https://static.saraba1st.com/image/smiley/face/128.gif" referrerpolicy="no-referrer">为什么我10AP几乎把把是银 不掉金。。。我想顺便刷点龙牙。。。结果金都不掉 剧情都开不了。。。
 
 
-
-
-
-
-
 -----
 
 ####  洛雪  
 ##### 2551#       发表于 2015-9-26 09:32
 
 
-
-
 手动8连就出了个新的凛的礼装，脸还是一如既往的黑啊……
-
-
-
-
-
 
 
 -----
@@ -19757,20 +13400,11 @@ ap打光也才138个团子
 ##### 2552#       发表于 2015-9-26 10:59
 
 
-
-
 5倍卡+支援倍卡打40AP大概是这么个效果
-
-
-
-
-
 
 
 QQ图片20150926115828.jpg
 (83.59 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -19779,24 +13413,7 @@ QQ图片20150926115828.jpg
 2015-9-26 10:59 上传
 
 
-
-
-
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201509/26/105941fdjot6y8yi26zyoj.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -19805,16 +13422,9 @@ QQ图片20150926115828.jpg
 ##### 2553#       发表于 2015-9-26 12:01
 
 
-
-
 效率不如插着一堆+3的5AP本吧。。。
 
 而且主力一堆B阶级打得提心吊胆的。。。勉强通过S/L一次后就不像碰了<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19825,13 +13435,10 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kurechan  
 ##### 2555#       发表于 2015-9-26 12:12
-
-
 
 
 这次活动简直是逼人对金箱子精神过敏……恶意满满
@@ -19839,16 +13446,10 @@ QQ图片20150926115828.jpg
 昨天掉了两张礼装后今天真是黑的不行，连钱都不掉了<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2556#       发表于 2015-9-26 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30271715&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-26 12:01</a>
@@ -19865,24 +13466,13 @@ QQ图片20150926115828.jpg
 不过说了这么多我还是去打5ap了...
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2557#       发表于 2015-9-26 12:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">你们真不试试10AP吗 我现在200金都没到。。。银已经800多了。。。
-
-
-
-
-
 
 
 -----
@@ -19891,14 +13481,7 @@ QQ图片20150926115828.jpg
 ##### 2558#       发表于 2015-9-26 12:36
 
 
-
-
 依然绝好调不掉礼装中
-
-
-
-
-
 
 
 -----
@@ -19909,12 +13492,10 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 2560#       发表于 2015-9-26 12:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272005&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 12:36</a>
@@ -19923,16 +13504,10 @@ QQ图片20150926115828.jpg
 你信那家伙要吃药的……
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2561#       发表于 2015-9-26 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272005&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 12:36</a>
@@ -19943,16 +13518,10 @@ QQ图片20150926115828.jpg
 倒是龙牙刷到现在只出了2个。。。
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 2562#       发表于 2015-9-26 12:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30267976&amp;ptid=1085254" target="_blank">卡蓮 发表于 2015-9-25 22:12</a>
@@ -19965,11 +13534,6 @@ QQ图片20150926115828.jpg
 蘑菇太会写fans向的搞笑剧本，知道什么是笑点，还愿意自黑
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -19978,21 +13542,13 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  asdghjkm  
 ##### 2564#       发表于 2015-9-26 12:54
 
 
-
-
 想太多，如果金能换银，何必设置金的掉率递减，之前刷银的还不炸了，除非十换一。话说一开始就用银的开剧情，金的换东西不就不违和了吗……
-
-
-
-
-
 
 
 -----
@@ -20001,16 +13557,10 @@ QQ图片20150926115828.jpg
 ##### 2565#       发表于 2015-9-26 12:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272157&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 12:53</a>
 
 我已经快1000金了，只有不到600银，现在看到金箱子就浑身哆嗦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">只有刷40AP才能拯救你了
-
-
-
-
-
 
 
 -----
@@ -20019,16 +13569,9 @@ QQ图片20150926115828.jpg
 ##### 2566#       发表于 2015-9-26 13:01
 
 
-
-
 不算40AP打的200银。。。
 
 700银700金，强行五五开<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20039,21 +13582,13 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  asdghjkm  
 ##### 2568#       发表于 2015-9-26 13:09
 
 
-
-
 不知道是不是玄学，带了两个幸运e后，5ap两次出了5个银团
-
-
-
-
-
 
 
 -----
@@ -20062,13 +13597,7 @@ QQ图片20150926115828.jpg
 ##### 2569#       发表于 2015-9-26 13:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">马丽和红A优先练哪个比较好
-
-
-
-
-
 
 
 -----
@@ -20077,16 +13606,10 @@ QQ图片20150926115828.jpg
 ##### 2570#       发表于 2015-9-26 13:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272282&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-26 13:09</a>
 
 马丽和红A优先练哪个比较好</blockquote>
 强肯定红A强，不过要等50级左右。。。3破之后3蓝卡爆炸<img src="https://static.saraba1st.com/image/smiley/zdl/158.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20095,14 +13618,7 @@ QQ图片20150926115828.jpg
 ##### 2571#       发表于 2015-9-26 13:17
 
 
-
-
 目前1000+金，普通团子247个，算上之前换了棋子和狗粮的可能有1000左右（勉强1:1
-
-
-
-
-
 
 
 -----
@@ -20113,28 +13629,19 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  syuu  
 ##### 2573#       发表于 2015-9-26 13:26
 
 
-
-
 有人知道奥利奥吃不吃即死？蓝狗凹了好久都没中过……
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 2574#       发表于 2015-9-26 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272241&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 13:04</a>
@@ -20145,11 +13652,6 @@ QQ图片20150926115828.jpg
 你连大狗都没？友情都能出啊（虽然我没出过）。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -20158,12 +13660,10 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 2576#       发表于 2015-9-26 13:31
-
 
 
  本帖最后由 alucardcz 于 2015-9-26 13:37 编辑 
@@ -20178,33 +13678,19 @@ QQ图片20150926115828.jpg
 另外这个活动剧情能再看吗。。最后一段赶时间直接跳过了。。
 
 
-
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2577#       发表于 2015-9-26 13:46
 
 
-
-
 其实我现在倒觉得没必要把所有角色的技能都做成战斗类型的，比如黄金律，相比于NP加成难道不是QP加成更合适么...
-
-
-
-
-
 
 
 -----
 
 ####  eyeego  
 ##### 2578#       发表于 2015-9-26 14:05
-
 
 
 <blockquote>brunestud 发表于 2015-9-26 13:26
@@ -20214,16 +13700,10 @@ QQ图片20150926115828.jpg
 我抽到现在大概有10w了只见过一张R姐跟吕布
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2579#       发表于 2015-9-26 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272452&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-26 13:31</a>
@@ -20237,16 +13717,10 @@ QQ图片20150926115828.jpg
 目前无法再看剧情的。。。
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2580#       发表于 2015-9-26 14:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272707&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-9-26 14:05</a>
@@ -20260,24 +13734,13 @@ QQ图片20150926115828.jpg
 原来抽不出5星这才是原因啊<img src="https://static.saraba1st.com/image/smiley/nq/002.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cyberdark  
 ##### 2581#       发表于 2015-9-26 14:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">俩金团子换一个普通的，5ap继续刷起走啦
-
-
-
-
-
 
 
 -----
@@ -20288,29 +13751,19 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  lili1990218  
 ##### 2583#       发表于 2015-9-26 14:32
 
 
-
-
 运营真是又蠢又贪，继续走在喂氪金吃屎的最前端
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2584#       发表于 2015-9-26 14:45
-
-
 
 
 2:1还算有点良心...
@@ -20320,16 +13773,10 @@ QQ图片20150926115828.jpg
 还是解决不了只有一张+1礼装急需换一张+3礼装的燃眉之急
 
 
-
-
-
-
-
 -----
 
 ####  sinmean  
 ##### 2585#       发表于 2015-9-26 14:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272934&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-9-26 14:45</a>
@@ -20346,16 +13793,10 @@ QQ图片20150926115828.jpg
 虽然裸刷3个才会导致溢出就是了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2586#       发表于 2015-9-26 14:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272844&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 14:30</a>
@@ -20368,11 +13809,6 @@ QQ图片20150926115828.jpg
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">一次换一个 怒点几千次 稳。。。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -20381,12 +13817,10 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guiltyspark  
 ##### 2588#       发表于 2015-9-26 15:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30272966&amp;ptid=1085254" target="_blank">sinmean 发表于 2015-9-26 14:51</a>
@@ -20401,16 +13835,10 @@ QQ图片20150926115828.jpg
 毕竟玩家需要装5张
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2589#       发表于 2015-9-26 15:15
-
 
 
 <blockquote>guiltyspark 发表于 2015-9-26 15:02
@@ -20420,24 +13848,13 @@ QQ图片20150926115828.jpg
 对欧洲人而言5张跟10张没有任何区别╮(╯▽╰)╭
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2590#       发表于 2015-9-26 15:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">不知道怎么回事，7职狗粮本狂掉金狗粮，大部分一场2-4个
-
-
-
-
-
 
 
 -----
@@ -20446,16 +13863,10 @@ QQ图片20150926115828.jpg
 ##### 2591#       发表于 2015-9-26 15:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30273122&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-9-26 15:15</a>
 
 对欧洲人而言5张跟10张没有任何区别╮(╯▽╰)╭</blockquote>
 说的也是<img src="https://static.saraba1st.com/image/smiley/dym/155.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20464,14 +13875,8 @@ QQ图片20150926115828.jpg
 ##### 2592#       发表于 2015-9-26 15:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我突然不想打这活动了……打得太累……
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">其实像我这种非洲之主又没钱课金的是不是可以删游戏了……
-
-
-
-
-
 
 
 -----
@@ -20480,14 +13885,7 @@ QQ图片20150926115828.jpg
 ##### 2593#       发表于 2015-9-26 15:51
 
 
-
-
 为了这破活动，氪了两单全进钱塘江了。
-
-
-
-
-
 
 
 -----
@@ -20496,14 +13894,7 @@ QQ图片20150926115828.jpg
 ##### 2594#       发表于 2015-9-26 15:51
 
 
-
-
 结果还是要搬砖打5AP。。。肝痛啊。。。
-
-
-
-
-
 
 
 -----
@@ -20512,14 +13903,7 @@ QQ图片20150926115828.jpg
 ##### 2595#       发表于 2015-9-26 16:01
 
 
-
-
 喂课金玩家食屎，fgo运营算是无出其右了吧
-
-
-
-
-
 
 
 -----
@@ -20528,14 +13912,7 @@ QQ图片20150926115828.jpg
 ##### 2596#       发表于 2015-9-26 16:11
 
 
-
-
 那个敌从者技能连发是不打算修复了？
-
-
-
-
-
 
 
 -----
@@ -20544,23 +13921,16 @@ QQ图片20150926115828.jpg
 ##### 2597#       发表于 2015-9-26 17:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30273441&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-9-26 16:11</a>
 
 那个敌从者技能连发是不打算修复了？</blockquote>
 这是游戏的一环不爽不要玩（
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2598#       发表于 2015-9-26 17:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30273318&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-26 15:49</a>
@@ -20577,16 +13947,10 @@ QQ图片20150926115828.jpg
 这样看下来是不是觉得肝好点<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2599#       发表于 2015-9-26 17:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30273832&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-26 17:10</a>
@@ -20598,25 +13962,13 @@ QQ图片20150926115828.jpg
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">完全不觉得，我连第一张礼装的丸子都还没打够呢
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 2600#       发表于 2015-9-26 17:15
 
 
-
-
 我就当狗粮本打了，不刷，能打几个是几个
-
-
-
-
-
 
 
 -----
@@ -20625,14 +13977,7 @@ QQ图片20150926115828.jpg
 ##### 2601#       发表于 2015-9-26 17:18
 
 
-
-
 好歹不用看见金箱子像看见shi一样了。。。
-
-
-
-
-
 
 
 -----
@@ -20641,17 +13986,10 @@ QQ图片20150926115828.jpg
 ##### 2602#       发表于 2015-9-26 17:51
 
 
-
-
 这次枪狗挺猛的，在没有日天，光炮团熄火的状况下单挑险胜
 
 
 不过自己没倍卡收益也就那样了，乖乖回去刷5ap吧
-
-
-
-
-
 
 
 -----
@@ -20660,15 +13998,9 @@ QQ图片20150926115828.jpg
 ##### 2603#       发表于 2015-9-26 18:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30273217&amp;amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-26 15:33</a>
 不知道怎么回事，7职狗粮本狂掉金狗粮，大部分一场2-4个</blockquote>
 不带你这样的啊，反正我不会试
-
-
-
-
-
 
 
 -----
@@ -20677,14 +14009,7 @@ QQ图片20150926115828.jpg
 ##### 2604#       发表于 2015-9-26 18:17
 
 
-
-
 用坎坷的条件换几个低几率道具，不行了，这次活动放弃，一个石头都不刷，上线活动清理完ap算，至于换的道具也随性想要啥换啥，妈的太累了。
-
-
-
-
-
 
 
 -----
@@ -20693,16 +14018,10 @@ QQ图片20150926115828.jpg
 ##### 2605#       发表于 2015-9-26 18:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30274159&amp;ptid=1085254" target="_blank">asdghjkm 发表于 2015-9-26 18:01</a>
 
 不带你这样的啊，反正我不会试</blockquote>
 某人推荐的10AP本处刑人固定掉金箱，20AP也就5～12个丸子，过了这个村就没有这个（黑）店了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20711,23 +14030,15 @@ QQ图片20150926115828.jpg
 ##### 2606#       发表于 2015-9-26 18:33
 
 
-
-
 这次5发呼符出了小玉R姐龙娘跟两张黑键
 
 说好的出率UP呢<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2607#       发表于 2015-9-26 18:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30274359&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-9-26 18:33</a>
@@ -20741,14 +14052,7 @@ QQ图片20150926115828.jpg
 于是我四星以上还是只有一张贞德和一张输码拿的马路塔……
 
 
-
-
 我果然还是删号比较好？
-
-
-
-
-
 
 
 -----
@@ -20757,23 +14061,15 @@ QQ图片20150926115828.jpg
 ##### 2608#       发表于 2015-9-26 18:48
 
 
-
-
 呼符嘛，开心就好
 
 两黑键三个三星狗粮礼装的路过<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gugu135  
 ##### 2609#       发表于 2015-9-26 18:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30274391&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-26 18:39</a>
@@ -20788,11 +14084,6 @@ QQ图片20150926115828.jpg
 不重氪的话期望值不能太高，随便刷刷就好
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -20801,27 +14092,19 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 2611#       发表于 2015-9-26 19:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">一张5星都没的非洲土著就看看
-
-
-
-
-
 
 
 -----
 
 ####  gugu135  
 ##### 2612#       发表于 2015-9-26 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30274590&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 19:11</a>
@@ -20832,17 +14115,10 @@ QQ图片20150926115828.jpg
 这游戏各阶至少都要练一个，资源就这么点没有5星就必须投资到4星甚至3星上了，总觉得不值得
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2613#       发表于 2015-9-26 19:54
-
-
 
 
 四星大部分还是有投资价值的，除了某个卖萌的。
@@ -20854,17 +14130,10 @@ QQ图片20150926115828.jpg
 其实说到底还是爱，比如我情愿培养哈桑也不愿意培养荆轲<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2614#       发表于 2015-9-26 19:55
-
-
 
 
 看开不抽这波了
@@ -20876,15 +14145,9 @@ QQ图片20150926115828.jpg
 已经抽了两张垃圾,剩下3张呼符和石头收起来等斯卡哈/C孤或者其他从者UP
 
 
-
 5星多了放着不突也爽
 
 总比3星不知道该不该喂该不该突强得多
-
-
-
-
-
 
 
 -----
@@ -20895,12 +14158,10 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 2616#       发表于 2015-9-26 19:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30274877&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-26 19:54</a>
@@ -20912,16 +14173,10 @@ QQ图片20150926115828.jpg
 问题在于这低星的进化素材也是坑。。这素材掉落几率不改 没人愿意浪费资源在低星身上。。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2617#       发表于 2015-9-26 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30274897&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 19:56</a>
@@ -20936,16 +14191,10 @@ QQ图片20150926115828.jpg
 还只是一个1星。。。。。。。想想就觉得不值
 
 
-
-
-
-
-
 -----
 
 ####  任学家  
 ##### 2618#       发表于 2015-9-26 20:24
-
 
 
 <blockquote>黑上シグマ 发表于 2015-9-26 18:39
@@ -20956,27 +14205,15 @@ QQ图片20150926115828.jpg
 我除了砸160石砸出的贞日天和十选一的红A外再没抽过4星以上从者（Lily是三星谢谢），我不是迷信，但觉得这游戏确实不对劲，有些人真的是氪了几万都始终脸黑，怀疑不同帐号出高星从者的几率随机，非洲人的号就是黑到死
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2619#       发表于 2015-9-26 20:28
 
 
-
-
 想想还是闪闪好废话不多说喜欢的领走，哪像后面这些婆婆妈妈的娘们又是看脸礼装，又是刷刷刷累死人
 
 你要说掉落是纯粹的概率的话也算可事实上很多人掷的很可能就是外野说过的那枚1亿次的硬币<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20985,14 +14222,7 @@ QQ图片20150926115828.jpg
 ##### 2620#       发表于 2015-9-26 20:37
 
 
-
-
 这次活动的数值策划根本没有脑子，开了金团子换银团子以后，5ap本的ap效率直接翻倍，插满+3的队伍刷5ap的ap效率远高于插满倍卡刷40ap的ap效率
-
-
-
-
-
 
 
 -----
@@ -21001,16 +14231,10 @@ QQ图片20150926115828.jpg
 ##### 2621#       发表于 2015-9-26 20:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275244&amp;ptid=1085254" target="_blank">axiayu 发表于 2015-9-26 20:37</a>
 
 这次活动的数值策划根本没有脑子，开了金团子换银团子以后，5ap本的ap效率直接翻倍，插满+3的队伍刷5ap的ap ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">然而我到现在都还没有一张+3礼装……
-
-
-
-
-
 
 
 -----
@@ -21019,23 +14243,16 @@ QQ图片20150926115828.jpg
 ##### 2622#       发表于 2015-9-26 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275258&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-26 20:39</a>
 
 然而我到现在都还没有一张+3礼装……</blockquote>
 500个换就行了，然后蹭队友的+3，这样就至少有+7了，ap效率就高达3.4了，大概等于你有3张倍卡去刷40ap
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2623#       发表于 2015-9-26 20:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275273&amp;ptid=1085254" target="_blank">axiayu 发表于 2015-9-26 20:42</a>
@@ -21046,16 +14263,10 @@ QQ图片20150926115828.jpg
 打5ap出的全是金的…………
 
 
-
-
-
-
-
 -----
 
 ####  axiayu  
 ##### 2624#       发表于 2015-9-26 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275297&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-26 20:44</a>
@@ -21066,11 +14277,6 @@ QQ图片20150926115828.jpg
 那么还有个策略就是先去刷高级本，因为高级本金掉率低，虽然ap效率不会太高，但是这样可以保证稳定获得银，然后刷够500个去换个+3，然后去刷5ap就行了
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -21079,13 +14285,10 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  defer  
 ##### 2626#       发表于 2015-9-26 21:00
-
-
 
 
 丸子换的礼装感觉很适合闪闪，是这样吗？
@@ -21093,16 +14296,10 @@ QQ图片20150926115828.jpg
 —— 来自 Sony D5833, Android 4.4.4
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2627#       发表于 2015-9-26 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275367&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 20:51</a>
@@ -21117,16 +14314,10 @@ QQ图片20150926115828.jpg
 等到极限了直接弃坑，换什么号
 
 
-
-
-
-
-
 -----
 
 ####  DARKGRAY  
 ##### 2628#       发表于 2015-9-26 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275367&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 20:51</a>
@@ -21139,26 +14330,15 @@ QQ图片20150926115828.jpg
 想换个成品号但失败了的飘过<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  lili1990218  
 ##### 2629#       发表于 2015-9-26 21:07
 
 
-
  本帖最后由 lili1990218 于 2015-9-26 21:14 编辑 
 
 玩这游戏如果是冲着英灵去的话，就老老实实的多开几个号领石。昨天二十多个号十抽只出了3个五星英灵。等哪天大号非洲了就换个玩玩。抽卡机制不改改的话真心只有脸帝和土豪才能抽
-
-
-
-
-
 
 
 -----
@@ -21169,12 +14349,10 @@ QQ图片20150926115828.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  DARKGRAY  
 ##### 2631#       发表于 2015-9-26 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275492&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 21:11</a>
@@ -21183,16 +14361,10 @@ QQ图片20150926115828.jpg
 有倒是有，但对方开不了淘宝连接，算了<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2632#       发表于 2015-9-26 21:23
-
 
 
  本帖最后由 brunestud 于 2015-9-26 21:36 编辑 
@@ -21208,17 +14380,10 @@ QQ图片20150926115828.jpg
 运营难道在测试玩家的忍耐力么？
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2633#       发表于 2015-9-26 21:35
-
-
 
 
 终于换到第一张+3......
@@ -21226,16 +14391,10 @@ QQ图片20150926115828.jpg
 以这种进度下去只换金棋,攻芙和猛火应该不成问题...
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2634#       发表于 2015-9-26 21:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275582&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-26 21:23</a>
@@ -21249,33 +14408,19 @@ QQ图片20150926115828.jpg
 狼人那点血乱按一通了事
 
 
-
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 2635#       发表于 2015-9-26 22:08
 
 
-
-
 40AP过了，原计划交令咒的，狗叔太给力，一个人单挑打掉剩下7万多血……<img src="https://static.saraba1st.com/image/smiley/face/34.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2636#       发表于 2015-9-26 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275932&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2015-9-26 22:08</a>
@@ -21286,25 +14431,13 @@ QQ图片20150926115828.jpg
 SL了几次，可算没用令咒…………
 
 
-
-
-
-
-
 -----
 
 ####  黯之痕  
 ##### 2637#       发表于 2015-9-26 22:45
 
 
-
-
 更新好之后我好几次在人物放技能的途中卡住，有人遇到这种情况吗
-
-
-
-
-
 
 
 -----
@@ -21313,16 +14446,10 @@ SL了几次，可算没用令咒…………
 ##### 2638#       发表于 2015-9-26 22:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30276256&amp;ptid=1085254" target="_blank">黯之痕 发表于 2015-9-26 22:45</a>
 
 更新好之后我好几次在人物放技能的途中卡住，有人遇到这种情况吗</blockquote>
 更新好以后呢，你需要重新去下一次完整数据……
-
-
-
-
-
 
 
 -----
@@ -21331,23 +14458,16 @@ SL了几次，可算没用令咒…………
 ##### 2639#       发表于 2015-9-26 23:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30276315&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-26 22:52</a>
 
 更新好以后呢，你需要重新去下一次完整数据……</blockquote>
 下好完整数据的
 
 
-
-
-
-
-
 -----
 
 ####  sayuri55  
 ##### 2640#       发表于 2015-9-27 01:19
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">我抱着自己第一次10连抽到的红A玩到现在了...后来免费拿了个小玉，莉莉感觉还没凯撒好用，活动尽可能刷下好了，反正这游戏是不打算氪了
@@ -21357,24 +14477,13 @@ SL了几次，可算没用令咒…………
 PS：其实我更新后才注意到还有个技能升级的大坑...
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2641#       发表于 2015-9-27 03:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">心好累,除了狼人的第一次3银,所有丸子本必定掉1金,中级和初级都好几次3金我还特意去看看礼装是不是只加特选丸子的……
-
-
-
-
-
 
 
 -----
@@ -21383,23 +14492,15 @@ PS：其实我更新后才注意到还有个技能升级的大坑...
 ##### 2642#       发表于 2015-9-27 04:30
 
 
-
-
 5张DS卷只出了个团子+2的礼装和伪娘，算上自己+3和+1的礼装还有好友+3
 
 平均一场5ap能有20个团子，本身120ap加自然回复再吃几个石头，基本能拿到大部分奖励了
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 2643#       发表于 2015-9-27 06:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30276019&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-26 22:18</a>
@@ -21410,16 +14511,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">40AP贞德能单刷。。我试过。。其他全部死光  每次攻击都是3蓝卡 她出宝具 贞德正好也能出宝具抵消。。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2644#       发表于 2015-9-27 06:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30275367&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-26 20:51</a>
@@ -21435,16 +14530,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 结果到现在30个龙牙只刷到13个。。。因为错过活动还要刷6个八連双晶。。。这游戏真的好难玩。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2645#       发表于 2015-9-27 06:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30278175&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-27 06:12</a>
@@ -21456,16 +14545,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">你以为换号真是那么容易的事，除非是单纯收集英灵来舔，不然材料也打得你爽歪歪
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2646#       发表于 2015-9-27 07:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30278203&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-27 06:35</a>
@@ -21477,25 +14560,13 @@ SL了几次，可算没用令咒………… ...</blockquote>
 小号那天还单抽出了张宝石翁..所以我怒换了
 
 
-
-
-
-
-
 -----
 
 ####  DARKGRAY  
 ##### 2647#       发表于 2015-9-27 09:01
 
 
-
-
 所以本人才想换个练得差不多的号，懒得重新刷了<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21504,17 +14575,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2648#       发表于 2015-9-27 10:48
 
 
-
-
 这游戏刷材料才是地狱，井盖刷了一天都没29个<img src="https://static.saraba1st.com/image/smiley/face/54.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [OnePlus A0001,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -21523,14 +14587,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2649#       发表于 2015-9-27 11:32
 
 
-
-
 请问一下苏菲破i5用哪个安卓模拟器不卡？
-
-
-
-
-
 
 
 -----
@@ -21539,21 +14596,13 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2650#       发表于 2015-9-27 12:23
 
 
-
-
 这运营一直送一星狗粮我也是看不懂了
-
-
-
-
-
 
 
 -----
 
 ####  蓝莲安  
 ##### 2651#       发表于 2015-9-27 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30279283&amp;ptid=1085254" target="_blank">こう 发表于 2015-9-27 10:48</a>
@@ -21565,27 +14614,15 @@ SL了几次，可算没用令咒………… ...</blockquote>
 打什么本能掉井盖？
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2652#       发表于 2015-9-27 14:49
 
 
-
-
 话说5ap有人刷出礼装吗？
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
@@ -21596,12 +14633,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  eyeego  
 ##### 2654#       发表于 2015-9-27 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30281012&amp;ptid=1085254" target="_blank">gugu135 发表于 2015-9-27 14:49</a>
@@ -21615,27 +14650,15 @@ SL了几次，可算没用令咒………… ...</blockquote>
 大概在500+白团左右
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2655#       发表于 2015-9-27 15:08
 
 
-
-
 刷出一张每局就多3个团子，脸黑不能怨社会啊<img src="https://static.saraba1st.com/image/smiley/nq/003.gif" referrerpolicy="no-referrer">
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
@@ -21644,17 +14667,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2656#       发表于 2015-9-27 15:10
 
 
-
-
 对自己的RP有着绝对的自信：我绝对打不出礼装来
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -21663,23 +14679,16 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2657#       发表于 2015-9-27 15:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30279959&amp;ptid=1085254" target="_blank">Alexgrave 发表于 2015-9-27 12:23</a>
 
 这运营一直送一星狗粮我也是看不懂了</blockquote>
 嘲讽的意味<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sinmean  
 ##### 2658#       发表于 2015-9-27 15:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30281169&amp;ptid=1085254" target="_blank">gugu135 发表于 2015-9-27 15:08</a>
@@ -21691,27 +14700,15 @@ SL了几次，可算没用令咒………… ...</blockquote>
 多9个团子吧。要加不是全加么
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2659#       发表于 2015-9-27 15:39
 
 
-
-
 别在意细节<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
@@ -21720,23 +14717,16 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2660#       发表于 2015-9-27 15:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30280752&amp;ptid=1085254" target="_blank">蓝莲安 发表于 2015-9-27 14:13</a>
 
 打什么本能掉井盖？</blockquote>
 花之都 地中海爆率不高
 
 
-
-
-
-
-
 -----
 
 ####  蓝莲安  
 ##### 2661#       发表于 2015-9-27 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30281012&amp;ptid=1085254" target="_blank">gugu135 发表于 2015-9-27 14:49</a>
@@ -21748,16 +14738,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 我5ap那个本剧情过了以后打第二次就出礼装了，我还以为是针对这个活动默认第二次就掉落白送的
 
 
-
-
-
-
-
 -----
 
 ####  蓝莲安  
 ##### 2662#       发表于 2015-9-27 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30281466&amp;ptid=1085254" target="_blank">こう 发表于 2015-9-27 15:51</a>
@@ -21766,24 +14750,13 @@ SL了几次，可算没用令咒………… ...</blockquote>
 掉率珍是肥肠坑爹
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2663#       发表于 2015-9-27 16:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">30个龙牙简直要刷到天荒地老.............这掉率还能在低一点吗
-
-
-
-
-
 
 
 -----
@@ -21794,12 +14767,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 2665#       发表于 2015-9-27 16:42
-
 
 
  本帖最后由 alucardcz 于 2015-9-27 16:44 编辑 
@@ -21818,25 +14789,13 @@ SL了几次，可算没用令咒………… ...</blockquote>
 不过现在一直打活动也没机会清..
 
 
-
-
-
-
-
 -----
 
 ####  神前夕哉  
 ##### 2666#       发表于 2015-9-27 17:31
 
 
-
-
 40ap的月神居然20w血，还好大狗给力自己打了12w
-
-
-
-
-
 
 
 -----
@@ -21845,14 +14804,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2667#       发表于 2015-9-27 20:57
 
 
-
-
 今天打了一天5AP，金团子的数量半端ないわ…………
-
-
-
-
-
 
 
 -----
@@ -21861,14 +14813,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2668#       发表于 2015-9-27 21:58
 
 
-
-
 团子在活动结束后会消失,尼禄的牌子没有提这茬,所以为了照顾新人等原因,以后尼禄祭还有再开的可能??
-
-
-
-
-
 
 
 -----
@@ -21877,14 +14822,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2669#       发表于 2015-9-27 22:33
 
 
-
-
 小号掉了个礼装，但小号并没有急需突破的Archer、rider或者assassin...
-
-
-
-
-
 
 
 -----
@@ -21893,16 +14831,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2670#       发表于 2015-9-27 22:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30284059&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-27 21:58</a>
 
 团子在活动结束后会消失,尼禄的牌子没有提这茬,所以为了照顾新人等原因,以后尼禄祭还有再开的可能?? ...</blockquote>
 比起尼禄祭，群众更想要闪闪降临放号……
-
-
-
-
-
 
 
 -----
@@ -21911,16 +14843,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2671#       发表于 2015-9-27 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30284287&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-27 22:40</a>
 
 比起尼禄祭，群众更想要闪闪降临放号……</blockquote>
 想氪的氪，不氪的等打赏就行，金闪闪活动最好了<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21929,15 +14855,9 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2672#       发表于 2015-9-27 22:46
 
 
-
 <blockquote>alucardcz 发表于 2015-9-27 16:11
 30个龙牙简直要刷到天荒地老.............这掉率还能在低一点吗</blockquote>
 今天氪了50个石头刷来俩片龙鳞，副产物30多龙牙，我发誓再也不刷龙鳞了
-
-
-
-
-
 
 
 -----
@@ -21946,14 +14866,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2673#       发表于 2015-9-28 03:08
 
 
-
-
 闪闪放号有什么用？没有尼禄祭，现在多少人在卡突破吃灰呢？
-
-
-
-
-
 
 
 -----
@@ -21964,21 +14877,13 @@ SL了几次，可算没用令咒………… ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  EMIYARIN  
 ##### 2675#       发表于 2015-9-28 05:22
 
 
-
-
 说的好像没闪闪就没卡了一样，初始有几个不刷的？一二星不是卡？一堆小次郎，安徒生，自爆弓等着突，没有五星的人太少了
-
-
-
-
-
 
 
 -----
@@ -21987,14 +14892,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2676#       发表于 2015-9-28 05:23
 
 
-
-
 尼禄祭的那些材料吊打金皮卡的四星
-
-
-
-
-
 
 
 -----
@@ -22003,20 +14901,13 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2677#       发表于 2015-9-28 05:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">各种本不停出2金，出1金都成了奢望
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2678#       发表于 2015-9-28 07:57
-
 
 
 <blockquote>引用第2671楼EMIYARIN于2015-09-28 05:22发表的  :
@@ -22030,11 +14921,6 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  fantuanhtr  
@@ -22043,12 +14929,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  卡蓮  
 ##### 2680#       发表于 2015-9-28 08:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30286670&amp;ptid=1085254" target="_blank">fantuanhtr 发表于 2015-9-28 08:16</a>
@@ -22057,16 +14941,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 活动后金团子2：1换普通团子
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2681#       发表于 2015-9-28 08:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30286670&amp;ptid=1085254" target="_blank">fantuanhtr 发表于 2015-9-28 08:16</a>
@@ -22075,25 +14953,13 @@ SL了几次，可算没用令咒………… ...</blockquote>
 金团子以后可以2：1换成白团子
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2682#       发表于 2015-9-28 08:50
 
 
-
-
 5AP虽然简单，还是快刷吐了，精神污染。。
-
-
-
-
-
 
 
 -----
@@ -22102,22 +14968,15 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2683#       发表于 2015-9-28 08:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">说的好象每个人都非要刷初始一样  我就没刷 怎么了？
 
 我现在还是一张5星都没怎么了？  不是金闪闪活动送4星我就一张小玉 材料有个什么用
-
-
-
-
-
 
 
 -----
 
 ####  EMIYARIN  
 ##### 2684#       发表于 2015-9-28 09:06
-
 
 
 <blockquote>黑上シグマ 发表于 2015-9-28 07:57
@@ -22127,16 +14986,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 一二星没用？三星总该有了吧？别告诉我你黑成屎连三星都没？
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2685#       发表于 2015-9-28 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30286883&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-28 08:50</a>
@@ -22145,25 +14998,13 @@ SL了几次，可算没用令咒………… ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">还是之前那活动30AP好。刷3把休息。。。30AP和这个5AP打一把的时间都差不多。。。
 
 
-
-
-
-
-
 -----
 
 ####  lili1990218  
 ##### 2686#       发表于 2015-9-28 09:44
 
 
-
-
 鼓吹低星大法好的人，能不能先把手上4星，5星喂了再来吹。大部分手游都有平民攻略，别整天拿出来说事，搞的好像fgo很良心一样<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22172,16 +15013,9 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2687#       发表于 2015-9-28 10:04
 
 
-
-
 你坛欧洲人鼓励非洲人用1、2星推图的场景真是感人泪下<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
@@ -22190,14 +15024,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2688#       发表于 2015-9-28 10:10
 
 
-
-
 我是没鼓励别人用低星，只是在表示尼禄祭的材料比四星卡值钱，材料氪了还要肝才会出，四星卡不会氪吗？
-
-
-
-
-
 
 
 -----
@@ -22206,14 +15033,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2689#       发表于 2015-9-28 10:12
 
 
-
-
 不知道你们愿意拿几十个石头刷材料爽，还是拿去抽卡爽？
-
-
-
-
-
 
 
 -----
@@ -22222,14 +15042,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2690#       发表于 2015-9-28 10:12
 
 
-
-
 不知道你们愿意拿几十个石头刷材料爽，还是拿去抽卡爽？
-
-
-
-
-
 
 
 -----
@@ -22238,14 +15051,7 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2691#       发表于 2015-9-28 10:14
 
 
-
-
 让然后是不是要说我鼓励你们氪了？运营送上百石了吧…
-
-
-
-
-
 
 
 -----
@@ -22254,15 +15060,9 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2692#       发表于 2015-9-28 10:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/104.gif" referrerpolicy="no-referrer">跪了。。。这理解能力。。。。材料慢慢刷就会有  为什么非要用石头？4/5星你倒是不用石头出一个给我看看
 
 不用石头就会出和用了石头也不一定出。这2者有可比性吗？这是本质上的区别
-
-
-
-
-
 
 
 -----
@@ -22271,25 +15071,16 @@ SL了几次，可算没用令咒………… ...</blockquote>
 ##### 2693#       发表于 2015-9-28 10:35
 
 
-
-
 只有欧洲人才想着用石头一发入魂<img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
 
 
 石头当然是拿来刷的，你看我等级已经刷到96了，一颗石头可以刷1个多小时的5AP，不要太爽啊<img src="https://static.saraba1st.com/image/smiley/normal/041.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2694#       发表于 2015-9-28 10:55
-
-
 
 
 慢慢刷？刷到关服？一个金棋要刷多少次？40AP，一天能刷多少次？ 
@@ -22299,16 +15090,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 满破多两技能，而高星卡只有双维高。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2695#       发表于 2015-9-28 10:59
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">欧洲人的4星卡2破居然都要金棋子。。。。。。。3星卡满破居然不要金棋子。。。。
@@ -22316,17 +15101,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 玩的游戏怎么不一样呢。。。你开心就好
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2696#       发表于 2015-9-28 11:03
-
-
 
 
 满破只多一个技能，一破一般会+一个技能。最后一个技能一般在三破解锁。
@@ -22338,16 +15116,10 @@ SL了几次，可算没用令咒………… ...</blockquote>
 sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2697#       发表于 2015-9-28 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30288274&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-9-28 11:03</a>
@@ -22363,17 +15135,10 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 然后就不用说了。。什么3星满破 4星只能1破。。呵呵
 
 
-
-
-
-
-
 -----
 
 ####  sinmean  
 ##### 2698#       发表于 2015-9-28 11:24
-
-
 
 
 欧洲人的嘴脸
@@ -22381,17 +15146,10 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 拿完闲闪穷
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2699#       发表于 2015-9-28 11:26
-
-
 
 
 所以呢？活动不送棋子？材料？龙鳞40AP一次，刷个上百次出两三个。
@@ -22405,17 +15163,10 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 我拿着送的材料和棋子满破去了。
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2700#       发表于 2015-9-28 11:32
-
-
 
 
 还是看到现在还没看明白？
@@ -22431,17 +15182,10 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 我选后者。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2701#       发表于 2015-9-28 11:39
-
-
 
 
 然后呢？谁管你要材料要什么啊？其他群众想要送卡需要你来一堆废话举着低星卡来洗地开嘲讽？
@@ -22450,17 +15194,10 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2702#       发表于 2015-9-28 11:46
-
-
 
 
 现在材料那么难刷，如果已经抽了一堆4、5星了，区区1张4星当然比不了给5星突破用的材料来的有用
@@ -22469,17 +15206,10 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 欧洲人的想法不难理解，但非洲人自然是无法接受的，有些话说出来即使对你自己是合理的但别人看起来就是在炫耀<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2703#       发表于 2015-9-28 12:10
-
-
 
 
 是谁先说的材料活动垃圾不如金皮卡送卡呢？
@@ -22489,29 +15219,15 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 是谁嘲讽呢？
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2704#       发表于 2015-9-28 12:12
 
 
-
-
 对于材料而言如果不是抱着我今天必须打多少的想法去的话也不是那么难出
 
 在尼禄活动前我的7个混沌抓都是在1个半月的时间里在黑森林打到的而且是利用剩余AP去打并没有刻意去刷
-
-
-
-
-
-
-
 
 
 -----
@@ -22520,14 +15236,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2705#       发表于 2015-9-28 12:14
 
 
-
-
 要不是尼禄，我吕布卡40级要卡几年？
-
-
-
-
-
 
 
 -----
@@ -22536,14 +15245,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2706#       发表于 2015-9-28 12:21
 
 
-
-
 马蹄铁，书页，齿轮呢？你打个看看
-
-
-
-
-
 
 
 -----
@@ -22552,16 +15254,9 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2707#       发表于 2015-9-28 12:24
 
 
-
-
 喷了，卡吕布不是运营自己二逼吗。马蹄铁连个掉落的地方都没有，喂你一口事再喂你一口糖到你这反而变良心了。
 
 还有玩手游追求高稀有度的卡有什么错？你自己前面几楼不也晒的很开心吗。有本事就把4星，5星吃了，否则就闭嘴
-
-
-
-
-
 
 
 -----
@@ -22570,14 +15265,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2708#       发表于 2015-9-28 12:31
 
 
-
-
 所以呢？追求高星关我什么事呢？送四星卡就比送材料好？说的好像高星卡就不要用材料一样。
-
-
-
-
-
 
 
 -----
@@ -22586,14 +15274,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2709#       发表于 2015-9-28 12:33
 
 
-
-
 都卡材料的话，那不当然是送高星好么<img src="https://static.saraba1st.com/image/smiley/face/03.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22602,16 +15283,9 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2710#       发表于 2015-9-28 12:34
 
 
-
-
 还有我为什么要把高星卡喂了？给个理由？
 
 要不你把活动给的材料和棋子卖了，我把金皮卡送的那张卡卖了也行。不过材料卖不了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22620,14 +15294,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2711#       发表于 2015-9-28 12:40
 
 
-
-
 当然不关你事，所以你整天吹低星卡是啥意思。让非洲人认命，安心看你晒？
-
-
-
-
-
 
 
 -----
@@ -22636,21 +15303,13 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2712#       发表于 2015-9-28 12:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">你们真闲 居然还在跟他讨论这个。  官方先送4星在开送材料活动已经说明了一切。。有空还不如上线多刷几把。。
-
-
-
-
-
 
 
 -----
 
 ####  EMIYARIN  
 ##### 2713#       发表于 2015-9-28 12:44
-
-
 
 
 我吹了？不是你们先说材料活动垃圾不如金皮卡送卡好吗？我反驳还不行了？你们不是说有材料没卡用吗？低星卡不是卡？
@@ -22662,25 +15321,13 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 帽子扣的好。
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2714#       发表于 2015-9-28 12:48
 
 
-
-
 不好意思，最先的活动是狗粮和QP消耗减半活动,不是什么送卡活动。 别当狗粮和QP不是材料。 当初哭天喊地的QP掉落太低了，不够用，狗粮全是铜升不了级的是哪些人呢？
-
-
-
-
-
 
 
 -----
@@ -22689,14 +15336,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2715#       发表于 2015-9-28 12:49
 
 
-
-
 求問，之前不是說新增高速戰鬥?在那能設定?
-
-
-
-
-
 
 
 -----
@@ -22705,14 +15345,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2716#       发表于 2015-9-28 12:49
 
 
-
-
 哦，是运营的错，是吧。 你没有高星也是运营的错。谁叫运营礼装和从者混一起，几率还那么低呢？
-
-
-
-
-
 
 
 -----
@@ -22721,13 +15354,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2717#       发表于 2015-9-28 12:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">材料送得不够多，c妈卡1张书页满坡。
-
-
-
-
-
 
 
 -----
@@ -22736,14 +15363,7 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2718#       发表于 2015-9-28 12:50
 
 
-
-
 这活动效率还行，但是这礼装每次都要拼RP掉落真是……白团子肝到2000再不出一张礼装就不肝了，后面也不换了，全换材料了事
-
-
-
-
-
 
 
 -----
@@ -22752,16 +15372,10 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2719#       发表于 2015-9-28 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289468&amp;ptid=1085254" target="_blank">eilot 发表于 2015-9-28 12:49</a>
 
 求問，之前不是說新增高速戰鬥?在那能設定?</blockquote>
 选卡的时候右上角有个播放键一样标志，点一下就行了
-
-
-
-
-
 
 
 -----
@@ -22770,23 +15384,16 @@ sb40人引继一次就要下一次数据包，呵呵，活该被喷。
 ##### 2720#       发表于 2015-9-28 12:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289468&amp;ptid=1085254" target="_blank">eilot 发表于 2015-9-28 12:49</a>
 
 求問，之前不是說新增高速戰鬥?在那能設定?</blockquote>
 點開attack以後右上角有加速按鈕
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 2721#       发表于 2015-9-28 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289489&amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-9-28 12:51</a>
@@ -22797,27 +15404,15 @@ THX ，看到了
 動作高速化，還以為是直接顯示傷害數字
 
 
-
-
-
-
-
 -----
 
 ####  lili1990218  
 ##### 2722#       发表于 2015-9-28 12:58
 
 
-
-
 别人不爱用又关你啥事，别人难道不知道低星卡好用，要你来多嘴？
 
 你可能觉得自己是好心，但别人感觉你就是在嘲讽，你是在吹。因为第一低星通关贴不是你做的，第二你不缺高稀有度的卡
-
-
-
-
-
 
 
 -----
@@ -22826,16 +15421,9 @@ THX ，看到了
 ##### 2723#       发表于 2015-9-28 13:01
 
 
-
-
 他爱不爱用关我屁事，我什么时候管过他用什么卡了？
 
 而且我也不是好心，我只是在反驳那些只知道喷低星卡不能玩的人<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22844,15 +15432,9 @@ THX ，看到了
 ##### 2724#       发表于 2015-9-28 13:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">照这气氛下去估计下一次的争论就是金旗子的掉率了吧
 
 不过普通棋子我也差很多……
-
-
-
-
-
 
 
 -----
@@ -22861,21 +15443,13 @@ THX ，看到了
 ##### 2725#       发表于 2015-9-28 13:05
 
 
-
-
 其实非洲人连低星卡都很偏很少的，友情抽10连垃圾狗粮超过一半，剩下的全垃圾礼装都不稀奇<img src="https://static.saraba1st.com/image/smiley/face/31.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2726#       发表于 2015-9-28 13:08
-
 
 
 <blockquote>引用第2709楼EMIYARIN于2015-09-28 12:44发表的  :
@@ -22888,16 +15462,10 @@ THX ，看到了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2727#       发表于 2015-9-28 13:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289611&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-28 13:01</a>
@@ -22915,16 +15483,10 @@ THX ，看到了
 不过指望FGO的运营改。。我觉得没啥戏。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2728#       发表于 2015-9-28 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289650&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2015-9-28 13:05</a>
@@ -22933,17 +15495,10 @@ THX ，看到了
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">萌新实测1W友情没有一张3星卡 
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2729#       发表于 2015-9-28 13:16
-
-
 
 
 银棋子掉率还好，但现在有很多掉不了，比如弓棋子。
@@ -22952,25 +15507,13 @@ THX ，看到了
 其实40ap降到20ap也主要是为了那些4、5星多的人降的，都用2、3星的话即使一破用银狗粮喂也够了，用不到金狗粮的。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2730#       发表于 2015-9-28 13:17
 
 
-
-
 银棋子只有弓不掉。其他都有地图本能刷
-
-
-
-
-
 
 
 -----
@@ -22979,23 +15522,16 @@ THX ，看到了
 ##### 2731#       发表于 2015-9-28 13:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289755&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-28 13:12</a>
 
 萌新实测1W友情没有一张3星卡</blockquote>
 认真想了想，貌似手头上的大部分3星卡都是石头那边来的<img src="https://static.saraba1st.com/image/smiley/face/35.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2732#       发表于 2015-9-28 13:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289698&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-9-28 13:08</a>
@@ -23010,17 +15546,10 @@ THX ，看到了
 我才反驳说有卡没材料突破还不是要刷刷刷
 
 
-
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2733#       发表于 2015-9-28 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289724&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-28 13:10</a>
@@ -23034,11 +15563,6 @@ THX ，看到了
 1W也就50抽吧，脸差一点抽不到3星也正常
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -23047,13 +15571,10 @@ THX ，看到了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  西条拓巳  
 ##### 2735#       发表于 2015-9-28 13:53
-
-
 
 
 这是某人想搞一言堂？人和人的情况不一样，你喜欢的别人就一定也的喜欢？
@@ -23063,16 +15584,10 @@ THX ，看到了
 不能突破暂时放置练其他的不就完了，来日方长
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2736#       发表于 2015-9-28 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30290037&amp;ptid=1085254" target="_blank">ulir 发表于 2015-9-28 13:42</a>
@@ -23089,16 +15604,10 @@ THX ，看到了
 虽然我觉得这不现实。。
 
 
-
-
-
-
-
 -----
 
 ####  DARKGRAY  
 ##### 2737#       发表于 2015-9-28 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30290399&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-28 14:20</a>
@@ -23109,17 +15618,10 @@ THX ，看到了
 一开始以为ALL那一天真的是出那种ALL狗粮，谁知是全部随机<img src="https://static.saraba1st.com/image/smiley/face/11.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2738#       发表于 2015-9-28 15:50
-
-
 
 
 总之人生不如意之事十有八九
@@ -23133,16 +15635,10 @@ THX ，看到了
 教练我想要saber的金棋子
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2739#       发表于 2015-9-28 16:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30290753&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2015-9-28 14:56</a>
@@ -23151,33 +15647,20 @@ THX ，看到了
 哪有那么好的事情……
 
 
-
-
-
-
-
 -----
 
 ####  conseil  
 ##### 2740#       发表于 2015-9-28 20:17
 
 
-
-
 运营重新定义了金箱，很好<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 望着两千金团子想起兑换，欲哭无泪
-
-
-
-
-
 
 
 -----
 
 ####  wangandh  
 ##### 2741#       发表于 2015-9-28 20:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30289755&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-28 13:12</a>
@@ -23188,25 +15671,14 @@ THX ，看到了
 个人感觉友情出三星和石头出5星的概率差不多……
 
 
-
-
-
-
-
 -----
 
 ####  sayuri55  
 ##### 2742#       发表于 2015-9-28 22:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">我好像是友情抽了几张saber加属性的...难道我要全部拿去喂lily...
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">看着我唯一自己抽的一张四星红A变成点击就送还个个都升的和我一样高，我的心情好复杂...
-
-
-
-
-
 
 
 -----
@@ -23215,17 +15687,10 @@ THX ，看到了
 ##### 2743#       发表于 2015-9-28 22:52
 
 
-
-
 黑贞德掉银弓棋子啊。。。
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -23234,14 +15699,7 @@ THX ，看到了
 ##### 2744#       发表于 2015-9-29 07:44
 
 
-
-
 这游戏有离线的数据包么，在游戏里下每次到一半就报错，简直了
-
-
-
-
-
 
 
 -----
@@ -23250,14 +15708,7 @@ THX ，看到了
 ##### 2745#       发表于 2015-9-29 09:09
 
 
-
-
 贴吧里有
-
-
-
-
-
 
 
 -----
@@ -23266,16 +15717,9 @@ THX ，看到了
 ##### 2746#       发表于 2015-9-29 10:26
 
 
-
-
 4000金团子了，没见过礼装掉落。。。<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 刷到6000金团子应该可以把材料都换出来了，就洗洗睡
-
-
-
-
-
 
 
 -----
@@ -23284,13 +15728,7 @@ THX ，看到了
 ##### 2747#       发表于 2015-9-29 11:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">你们说的闪闪送卡是什么活动？我怎么从来没见过。。。。。。
-
-
-
-
-
 
 
 -----
@@ -23299,16 +15737,10 @@ THX ，看到了
 ##### 2748#       发表于 2015-9-29 11:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30299051&amp;ptid=1085254" target="_blank">275957048 发表于 2015-9-29 11:21</a>
 
 你们说的闪闪送卡是什么活动？我怎么从来没见过。。。。。。</blockquote>
 早期4星卡10选1，要到官网去拿，现在还没结束。
-
-
-
-
-
 
 
 -----
@@ -23317,14 +15749,7 @@ THX ，看到了
 ##### 2749#       发表于 2015-9-29 13:03
 
 
-
-
 改打超级本了，至少前面三个保底掉一个旗子，偶尔还会掉金的，5AP本按9个来算效率差不多，虽然可能要SL两三次不过总比精神污染要来得舒心<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23335,12 +15760,10 @@ THX ，看到了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  sinmean  
 ##### 2751#       发表于 2015-9-29 14:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30299051&amp;ptid=1085254" target="_blank">275957048 发表于 2015-9-29 11:21</a>
@@ -23349,16 +15772,10 @@ THX ，看到了
 要拿抓紧了，9月30好像就结束了
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2752#       发表于 2015-9-29 17:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30300324&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-29 13:25</a>
@@ -23367,16 +15784,10 @@ THX ，看到了
 为什么我只得一个+1的礼装？系统出的？需要打到多少团子送？
 
 
-
-
-
-
-
 -----
 
 ####  defer  
 ##### 2753#       发表于 2015-9-29 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30302535&amp;ptid=1085254" target="_blank">gulant 发表于 2015-9-29 17:07</a>
@@ -23388,11 +15799,6 @@ THX ，看到了
 —— 来自 Sony D5833, Android 4.4.4
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -23401,12 +15807,10 @@ THX ，看到了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gulant  
 ##### 2755#       发表于 2015-9-29 17:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30302596&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-9-29 17:11</a>
@@ -23415,25 +15819,13 @@ THX ，看到了
 哦，明白，原来另外一个+1是偷渡失败证，我就奇怪为什么有两个+1。手上换了一个+3和打出一个+3的，另外两个太高估计肝不起了……感谢解惑。
 
 
-
-
-
-
-
 -----
 
 ####  yla  
 ##### 2756#       发表于 2015-9-29 17:26
 
 
-
-
 金团子有什么用,开完剧情还在出,手上2000多金团子不知道干嘛
-
-
-
-
-
 
 
 -----
@@ -23442,14 +15834,7 @@ THX ，看到了
 ##### 2757#       发表于 2015-9-29 17:27
 
 
-
-
 2000+团子不见礼装，已经放弃了
-
-
-
-
-
 
 
 -----
@@ -23460,12 +15845,10 @@ THX ，看到了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  雪基百科  
 ##### 2759#       发表于 2015-9-29 18:08
-
 
 
  本帖最后由 雪基百科 于 2015-9-29 18:19 编辑 
@@ -23480,25 +15863,13 @@ THX ，看到了
 我有种官方又变良心的错觉<img src="https://static.saraba1st.com/image/smiley/nq/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ネロ  
 ##### 2760#       发表于 2015-9-29 18:14
 
 
-
-
 打完活动剧情，攒的呼符给了一堆3星口粮，这脸好黑啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23507,20 +15878,13 @@ THX ，看到了
 ##### 2761#       发表于 2015-9-29 18:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">棋子本减半来了。。但是为什么不是直接换的  其他4职业都是后妈养的？
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 2762#       发表于 2015-9-29 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30303180&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-29 18:08</a>
@@ -23536,17 +15900,10 @@ THX ，看到了
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">然而并没有猫用
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 2763#       发表于 2015-9-29 18:33
-
-
 
 
 30号-16号
@@ -23564,16 +15921,10 @@ THX ，看到了
 新礼装：黑太太（宝具威力+60%，每回合倒扣500血），第一太刀（必中状态，quick性能8%），卢文石（弱体耐性5%，星星集中度100%up）
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2764#       发表于 2015-9-29 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30303325&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-9-29 18:27</a>
@@ -23584,16 +15935,10 @@ THX ，看到了
 这次月神5AP太精神污染了。。。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2765#       发表于 2015-9-29 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30303393&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-29 18:36</a>
@@ -23606,11 +15951,6 @@ THX ，看到了
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">我早就不刷了。这3种棋子没需求。。
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -23619,23 +15959,15 @@ THX ，看到了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  EMIYARIN  
 ##### 2767#       发表于 2015-9-29 18:45
 
 
-
-
 老虎的必中不知道是什么效果，系统又加了什么东西了？
 
 还是老虎可以切心眼和闪避了？
-
-
-
-
-
 
 
 -----
@@ -23644,14 +15976,7 @@ THX ，看到了
 ##### 2768#       发表于 2015-9-29 18:45
 
 
-
-
 所以第三章还是see u soon的节奏？
-
-
-
-
-
 
 
 -----
@@ -23660,21 +15985,13 @@ THX ，看到了
 ##### 2769#       发表于 2015-9-29 18:47
 
 
-
-
 老虎的必中是什么？无视闪避和心眼？
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2770#       发表于 2015-9-29 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30303180&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-9-29 18:08</a>
@@ -23694,16 +16011,10 @@ THX ，看到了
 金时12712ATK...大公的陨落<img src="https://static.saraba1st.com/image/smiley/dym/150.gif" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2771#       发表于 2015-9-29 18:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30303367&amp;ptid=1085254" target="_blank">卡蓮 发表于 2015-9-29 18:33</a>
@@ -23720,16 +16031,10 @@ THX ，看到了
 反正B职1000血和8000血区别不大
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2772#       发表于 2015-9-29 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30303499&amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-9-29 18:47</a>
@@ -23738,25 +16043,13 @@ THX ，看到了
 那无敌和闪避终于有区别了
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2773#       发表于 2015-9-29 21:17
 
 
-
-
 刚算了算,我要不瞎换,现在2000那张卡都能够了<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23765,16 +16058,10 @@ THX ，看到了
 ##### 2774#       发表于 2015-9-29 22:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30304751&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-29 21:17</a>
 
 刚算了算,我要不瞎换,现在2000那张卡都能够了</blockquote>
 可惜1张和2张差别不大 5张满破才有质变
-
-
-
-
-
 
 
 -----
@@ -23783,25 +16070,16 @@ THX ，看到了
 ##### 2775#       发表于 2015-9-29 23:27
 
 
-
-
 必中是无视闪避，屠龙剑圣三破的技能
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2776#       发表于 2015-9-29 23:29
-
-
 
 
 突满了也只涨两个5%
@@ -23815,27 +16093,15 @@ THX ，看到了
 出星公式一天不改,攻击次数少的爆击流英雄都没出路...绿卡的问题也已经讲到烂了官方还是没有反应
 
 
-
-
-
-
-
 -----
 
 ####  wangandh  
 ##### 2777#       发表于 2015-9-30 02:00
 
 
-
-
 终于刷毕业了……
 
 剩下10000金留着换最后一张礼装
-
-
-
-
-
 
 
 -----
@@ -23844,21 +16110,13 @@ THX ，看到了
 ##### 2778#       发表于 2015-9-30 09:46
 
 
-
-
 眼瞅着要毕业了 又出了张礼装 我这是继续刷呢还是继续刷呢还是继续刷呢
-
-
-
-
-
 
 
 -----
 
 ####  vleev  
 ##### 2779#       发表于 2015-9-30 14:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30305473&amp;ptid=1085254" target="_blank">sinmean 发表于 2015-9-29 22:49</a>
@@ -23871,16 +16129,10 @@ THX ，看到了
 合了才是浪费资源,满不满破我才不在乎,就算在乎也等活动结束再说
 
 
-
-
-
-
-
 -----
 
 ####  sinmean  
 ##### 2780#       发表于 2015-9-30 14:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30311643&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-30 14:41</a>
@@ -23893,27 +16145,15 @@ THX ，看到了
 这1650点ap 价值15个石头，如果你不需要额外的这张礼装本身的话，这买卖有极大可能到最后收不回成本
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 2781#       发表于 2015-9-30 15:41
 
 
-
-
 4呼符：黑键 布提卡 卢文石 虚数魔术
 
 10连：绿茶 龙脉 弑师剑 海藻頭 魔术矿石 牛肉丸 龙种 咒弹 emiya 是在下输了
-
-
-
-
-
 
 
 -----
@@ -23922,17 +16162,10 @@ THX ，看到了
 ##### 2782#       发表于 2015-9-30 16:05
 
 
-
-
 达芬奇工房多了不少好东西
 
 
 吃1星2星英灵经验增加
-
-
-
-
-
 
 
 -----
@@ -23941,23 +16174,15 @@ THX ，看到了
 ##### 2783#       发表于 2015-9-30 16:06
 
 
-
-
 4DS券得到：黑键，荆轲，剑阶吉尔和龙脉……
 
 安定感……
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2784#       发表于 2015-9-30 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30311643&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-30 14:41</a>
@@ -23970,16 +16195,10 @@ THX ，看到了
 你不换第二张可以比较早毕业
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2785#       发表于 2015-9-30 16:09
-
 
 
  本帖最后由 ulir 于 2015-9-30 16:24 编辑 
@@ -23989,26 +16208,15 @@ THX ，看到了
 凛礼装/龙圣女/大流士/龙种
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2786#       发表于 2015-9-30 16:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/105.gif" referrerpolicy="no-referrer">4DS卷全礼装  3张3星 一张老虎
 
 以后银狗粮在也不能喂了。。必须卖。。
-
-
-
-
-
 
 
 -----
@@ -24017,22 +16225,13 @@ THX ，看到了
 ##### 2787#       发表于 2015-9-30 16:23
 
 
-
-
 四张券一张五星凛，两个三星礼装，一个三星从者。。。不过都有了。。。
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2788#       发表于 2015-9-30 16:24
-
-
 
 
 礼包里面的小芙貌似是ATK/HP +10和+20
@@ -24042,25 +16241,13 @@ THX ，看到了
 强迫症患者慎吃
 
 
-
-
-
-
-
 -----
 
 ####  oscarma  
 ##### 2789#       发表于 2015-9-30 16:31
 
 
-
-
 4张券：一发黑saber,然后.....留在下次用
-
-
-
-
-
 
 
 -----
@@ -24069,24 +16256,15 @@ THX ，看到了
 ##### 2790#       发表于 2015-9-30 16:34
 
 
-
-
 黑无毛有了，金时没兴趣，留着以后抽师匠吧
 
 —— 来自 OPPO X9007, Android 4.3
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2791#       发表于 2015-9-30 16:40
-
-
 
 
 金时怪力A+一回合30%伤害<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
@@ -24096,17 +16274,10 @@ THX ，看到了
 秒天秒地一回合秒女神的"对单体boss版黑傻"终于姗姗来迟了
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2792#       发表于 2015-9-30 16:44
-
-
 
 
 剩下来的时间是打减半四骑本还是继续刷团子呢？
@@ -24115,16 +16286,10 @@ THX ，看到了
 看贴吧5ap都出银棋……
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2793#       发表于 2015-9-30 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30311783&amp;ptid=1085254" target="_blank">sinmean 发表于 2015-9-30 14:55</a>
@@ -24139,26 +16304,15 @@ THX ，看到了
 以前拼命打,结果稀里哗啦把级别升上来了,东西也没拿到多少,现在运营跟我说:我们不用很麻烦很累就能拿到材料.<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">受伤了,以后再不平时刷了,不出活动不出力,我宁愿把这些AP浪费在活动里面
 
 
-
-
-
-
-
 -----
 
 ####  雪基百科  
 ##### 2794#       发表于 2015-9-30 16:49
 
 
-
  本帖最后由 雪基百科 于 2015-9-30 16:51 编辑 
 
 日了狗，模拟器上基本不玩的小号6个呼符出了两个金时。。。
-
-
-
-
-
 
 
 -----
@@ -24169,12 +16323,10 @@ THX ，看到了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  sinmean  
 ##### 2796#       发表于 2015-9-30 16:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30312887&amp;ptid=1085254" target="_blank">vleev 发表于 2015-9-30 16:46</a>
@@ -24190,17 +16342,10 @@ THX ，看到了
 要做智者，不要莽夫。。。
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2797#       发表于 2015-9-30 17:28
-
-
 
 
 曾今为了一枚金棋子刷了6盘，在那以后没活动我就不刷了
@@ -24209,33 +16354,19 @@ THX ，看到了
 反正我也没那么多卡急着升<img src="https://static.saraba1st.com/image/smiley/normal/035.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2798#       发表于 2015-9-30 18:42
 
 
-
-
 四发屌丝卷偷渡失败<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  风祭雅  
 ##### 2799#       发表于 2015-9-30 18:53
-
-
 
 
 4个屌丝卷1个黑圣杯1个宝石翁还有1个月神活动的4星凛。
@@ -24245,25 +16376,13 @@ THX ，看到了
 再也不抽十连了...<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 2800#       发表于 2015-9-30 23:54
 
 
-
-
 五星凛、虚数、天使诗、时臣*2，三星大狗，十连伤不起啊
-
-
-
-
-
 
 
 -----
@@ -24272,14 +16391,7 @@ THX ，看到了
 ##### 2801#       发表于 2015-10-1 00:53
 
 
-
-
 五个屌丝卷 出了一个呆毛  无saber屌丝泪流满面
-
-
-
-
-
 
 
 -----
@@ -24288,16 +16400,10 @@ THX ，看到了
 ##### 2802#       发表于 2015-10-1 01:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30316621&amp;ptid=1085254" target="_blank">zhaoyanggolden 发表于 2015-9-30 23:54</a>
 
 五星凛、虚数、天使诗、时臣*2，三星大狗，十连伤不起啊</blockquote>
 五星凛和虚数算不错了吧
-
-
-
-
-
 
 
 -----
@@ -24306,14 +16412,7 @@ THX ，看到了
 ##### 2803#       发表于 2015-10-1 06:31
 
 
-
-
 黑圣杯没有光炮的话是不是没卵用，看着手里的贞德大公红A哭了
-
-
-
-
-
 
 
 -----
@@ -24322,14 +16421,7 @@ THX ，看到了
 ##### 2804#       发表于 2015-10-1 07:54
 
 
-
-
 4个屌丝卷1个龙种1个凜宝石1个慎二1个大公
-
-
-
-
-
 
 
 -----
@@ -24338,16 +16430,10 @@ THX ，看到了
 ##### 2805#       发表于 2015-10-1 08:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30317922&amp;ptid=1085254" target="_blank">莱昂内尔·梅西 发表于 2015-10-1 06:31</a>
 
 黑圣杯没有光炮的话是不是没卵用，看着手里的贞德大公红A哭了</blockquote>
 光炮肯定宝石翁 带什么黑圣杯。。。宝具都放不出来伤害在高有什么用。。
-
-
-
-
-
 
 
 -----
@@ -24356,23 +16442,15 @@ THX ，看到了
 ##### 2806#       发表于 2015-10-1 10:31
 
 
-
-
 根据拆包的数据 以后令咒会有直接100np的选项
 
 现在就只能给c妈插小刀玩了
-
-
-
-
-
 
 
 -----
 
 ####  sinmean  
 ##### 2807#       发表于 2015-10-1 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30318868&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-10-1 10:31</a>
@@ -24383,17 +16461,10 @@ THX ，看到了
 喔 倒也算是符合设定？
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 2808#       发表于 2015-10-1 10:55
-
-
 
 
 好吧，系統獎勵，4星狗糧
@@ -24405,16 +16476,10 @@ THX ，看到了
 還有一大堆角色寶具必殺都是一用即死機，400w dl 獎勵真是非常好...
 
 
-
-
-
-
-
 -----
 
 ####  千手丸  
 ##### 2809#       发表于 2015-10-1 11:26
-
 
 
 <blockquote>alucardcz 发表于 2015-10-1 08:20
@@ -24422,16 +16487,10 @@ THX ，看到了
 光炮那几只S蹭队友蓝卡还是攒得起的，我带宝石打平阶单体5w不到，带黑太太可以打出8w
 
 
-
-
-
-
-
 -----
 
 ####  玉米大炮  
 ##### 2810#       发表于 2015-10-1 11:43
-
 
 
 <blockquote>引用第2804楼eilot于2015-10-01 10:55发表的  :
@@ -24446,16 +16505,10 @@ THX ，看到了
 ----发送自 [Sony C6603,Android 5.0.2](http://stage1.5j4m.com/?1.17) 
 
 
-
-
-
-
-
 -----
 
 ####  玉米大炮  
 ##### 2811#       发表于 2015-10-1 12:18
-
 
 
 <blockquote>引用第2804楼eilot于2015-10-01 10:55发表的  :
@@ -24469,25 +16522,13 @@ THX ，看到了
 ----发送自 [Sony C6603,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2812#       发表于 2015-10-1 13:24
 
 
-
-
 四个符咒，3个礼装(其中一个5星土狼)和一个4星蛋糕酱。
-
-
-
-
-
 
 
 -----
@@ -24496,20 +16537,13 @@ THX ，看到了
 ##### 2813#       发表于 2015-10-1 17:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">一边低头摸鱼一边按5AP本，结果抬头发现丸子数量不对仔细一看掉了个礼装，可怜没见到掉落现场，还顺便掉了个世界树种子
-
-
-
-
-
 
 
 -----
 
 ####  cyberdark  
 ##### 2814#       发表于 2015-10-1 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30314106&amp;ptid=1085254" target="_blank">风祭雅 发表于 2015-9-30 18:53</a>
@@ -24520,25 +16554,13 @@ THX ，看到了
 今天单抽运气好的可怕，然而10连和前两次一样保底礼装，对部分玩家来说，这游戏不适合10连
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 2815#       发表于 2015-10-1 17:40
 
 
-
-
 4+1符只抽到一個黑之聖女，其他都是狗糧...
-
-
-
-
-
 
 
 -----
@@ -24547,21 +16569,13 @@ THX ，看到了
 ##### 2816#       发表于 2015-10-1 17:59
 
 
-
-
 40狗粮本好爽，都是金色的。。<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  风祭雅  
 ##### 2817#       发表于 2015-10-1 18:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30321531&amp;ptid=1085254" target="_blank">cyberdark 发表于 2015-10-1 17:27</a>
@@ -24572,25 +16586,13 @@ THX ，看到了
 最近不知道怎么回事月神刚开的时候用攒的石头两次十连..2个保底4星礼装 这次有3个保底4星礼装..
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2818#       发表于 2015-10-1 21:28
 
 
-
-
 全礼装的非洲难民默默的看着楼上装B<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24599,14 +16601,7 @@ THX ，看到了
 ##### 2819#       发表于 2015-10-1 21:39
 
 
-
-
 团子总算刷够了（还有两个礼装不换了），可以停下来打点狗粮了
-
-
-
-
-
 
 
 -----
@@ -24617,21 +16612,13 @@ THX ，看到了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  千手丸  
 ##### 2821#       发表于 2015-10-1 23:20
 
 
-
-
 刚刚十连偷渡了，一黑毛一金时一五星土狼
-
-
-
-
-
 
 
 -----
@@ -24640,20 +16627,13 @@ THX ，看到了
 ##### 2822#       发表于 2015-10-2 07:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/77.gif" referrerpolicy="no-referrer">欧洲人的话果然不能信！一发10连一张马路塔。。。。。。。。。。。我想要张5星从者啊。。。这样下去4星从者我都快全了。。。
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 2823#       发表于 2015-10-2 10:04
-
 
 
 <blockquote>引用第2812楼雪基百科于2015-10-01 17:59发表的  :
@@ -24665,26 +16645,15 @@ THX ，看到了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  sayuri55  
 ##### 2824#       发表于 2015-10-2 10:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">10连加屌丝全部抽完...还不如我友情10连给个R姐...
 
 我决定石头拿来扩上限，红A小玉用到死算了
-
-
-
-
-
 
 
 -----
@@ -24693,21 +16662,13 @@ THX ，看到了
 ##### 2825#       发表于 2015-10-2 10:31
 
 
-
-
 现在入坑是不是太晚了？用送的石头抽了几下出了几个3星的
-
-
-
-
-
 
 
 -----
 
 ####  雪基百科  
 ##### 2826#       发表于 2015-10-2 10:52
-
 
 
 <blockquote>黑上シグマ 发表于 2015-10-2 10:04
@@ -24718,16 +16679,10 @@ THX ，看到了
 安心，非洲人的极限应该是两金。。。
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2827#       发表于 2015-10-2 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30325940&amp;ptid=1085254" target="_blank">yg100t31505 发表于 2015-10-2 10:31</a>
@@ -24742,16 +16697,10 @@ THX ，看到了
 如果你不在意初始没五星的话现在也可以玩。400万纪念会送20来个石头，初期登陆七天也会送大概28个石头？还会送10个护符，所以玩肯定是没问题的。
 
 
-
-
-
-
-
 -----
 
 ####  风神少女  
 ##### 2828#       发表于 2015-10-2 11:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30325940&amp;ptid=1085254" target="_blank">yg100t31505 发表于 2015-10-2 10:31</a>
@@ -24762,32 +16711,19 @@ THX ，看到了
 我能说除了刷初始的时候刷了两个五星英灵开局，之后所有的十连单抽呼符都没出过三星以上的角色么，不是欧洲人还是刷个初始比较爽
 
 
-
-
-
-
-
 -----
 
 ####  vleev  
 ##### 2829#       发表于 2015-10-2 12:41
 
 
-
-
 问个问题，2个金团子换1个银的，万一，我说万一，和现在一样2个换1个，你们还换么
-
-
-
-
-
 
 
 -----
 
 ####  eyeego  
 ##### 2830#       发表于 2015-10-2 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30326819&amp;ptid=1085254" target="_blank">vleev 发表于 2015-10-2 12:41</a>
@@ -24798,16 +16734,10 @@ THX ，看到了
 只不过开服以来见过的奇葩事太多了<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2831#       发表于 2015-10-2 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30325867&amp;ptid=1085254" target="_blank">sayuri55 发表于 2015-10-2 10:17</a>
@@ -24820,16 +16750,10 @@ THX ，看到了
 要冷静 相信自己有欧的一天！
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2832#       发表于 2015-10-2 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30326819&amp;ptid=1085254" target="_blank">vleev 发表于 2015-10-2 12:41</a>
@@ -24841,17 +16765,10 @@ THX ，看到了
 虽然我觉得不会有这么逗的事情发生。。。。不过这运营不是我们能看懂的
 
 
-
-
-
-
-
 -----
 
 ####  DARKGRAY  
 ##### 2833#       发表于 2015-10-2 13:02
-
-
 
 
 敢这么做的话庄司可以滚了吧<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
@@ -24860,25 +16777,13 @@ THX ，看到了
 好了一丁点<img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  conseil  
 ##### 2834#       发表于 2015-10-2 13:06
 
 
-
-
 哦哦哦！运营智商又上线了！
-
-
-
-
-
 
 
 -----
@@ -24887,13 +16792,7 @@ THX ，看到了
 ##### 2835#       发表于 2015-10-2 13:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">居然有500个一换  1000个一换  这还是我认识的40人吗
-
-
-
-
-
 
 
 -----
@@ -24902,16 +16801,9 @@ THX ，看到了
 ##### 2836#       发表于 2015-10-2 13:23
 
 
-
-
 居然用这种最笨的方法
 
 真是心疼11区的程序员<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24920,14 +16812,7 @@ THX ，看到了
 ##### 2837#       发表于 2015-10-2 13:28
 
 
-
-
 那么这一堆东西除了金棋子还有什么值得换的吗
-
-
-
-
-
 
 
 -----
@@ -24936,16 +16821,10 @@ THX ，看到了
 ##### 2838#       发表于 2015-10-2 13:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30327186&amp;ptid=1085254" target="_blank">少女人形 发表于 2015-10-2 13:28</a>
 
 那么这一堆东西除了金棋子还有什么值得换的吗</blockquote>
 淫兽
-
-
-
-
-
 
 
 -----
@@ -24954,16 +16833,10 @@ THX ，看到了
 ##### 2839#       发表于 2015-10-2 14:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30327186&amp;ptid=1085254" target="_blank">少女人形 发表于 2015-10-2 13:28</a>
 
 那么这一堆东西除了金棋子还有什么值得换的吗</blockquote>
 金棋子——+hp和+atk的卡片——银棋子——其余卡片或礼装。
-
-
-
-
-
 
 
 -----
@@ -24972,14 +16845,7 @@ THX ，看到了
 ##### 2840#       发表于 2015-10-3 09:45
 
 
-
-
 材料太难刷了。。
-
-
-
-
-
 
 
 -----
@@ -24988,14 +16854,7 @@ THX ，看到了
 ##### 2841#       发表于 2015-10-3 10:13
 
 
-
-
 没刷初始 玩了一天  目前还是几个10级的3星卡 倒是抱到个80级的アルテラ 把主线过完了 然后序章也清完了 接下来该怎么玩？
-
-
-
-
-
 
 
 -----
@@ -25004,16 +16863,10 @@ THX ，看到了
 ##### 2842#       发表于 2015-10-3 10:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30333004&amp;ptid=1085254" target="_blank">yg100t31505 发表于 2015-10-3 10:13</a>
 
 没刷初始 玩了一天  目前还是几个10级的3星卡 倒是抱到个80级的アルテラ 把主线过完了 然后序章也清完了 接 ...</blockquote>
 换个号或者大力氪
-
-
-
-
-
 
 
 -----
@@ -25022,16 +16875,10 @@ THX ，看到了
 ##### 2843#       发表于 2015-10-3 10:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30333004&amp;ptid=1085254" target="_blank">yg100t31505 发表于 2015-10-3 10:13</a>
 
 没刷初始 玩了一天  目前还是几个10级的3星卡 倒是抱到个80级的アルテラ 把主线过完了 然后序章也清完了 接 ...</blockquote>
 刷狗粮刷材料啊……然后突破，攒石头慢慢玩……或者换个有5星的号
-
-
-
-
-
 
 
 -----
@@ -25040,14 +16887,7 @@ THX ，看到了
 ##### 2844#       发表于 2015-10-3 11:42
 
 
-
-
 今天10连又出两个黑圣杯……喂我要大公啊！
-
-
-
-
-
 
 
 -----
@@ -25056,14 +16896,7 @@ THX ，看到了
 ##### 2845#       发表于 2015-10-3 12:07
 
 
-
-
 银时怪力等级由C变成A+了...海叔UCCU<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25072,13 +16905,7 @@ THX ，看到了
 ##### 2846#       发表于 2015-10-3 12:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">老虎太刀礼装怎么个用法，打狗之类的？
-
-
-
-
-
 
 
 -----
@@ -25087,16 +16914,10 @@ THX ，看到了
 ##### 2847#       发表于 2015-10-3 12:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30334185&amp;ptid=1085254" target="_blank">ulir 发表于 2015-10-3 12:44</a>
 
 老虎太刀礼装怎么个用法，打狗之类的？</blockquote>
 平时棋子本都是抢先打死的问题不大，以后如果有个26万血大狗的再说吧
-
-
-
-
-
 
 
 -----
@@ -25105,14 +16926,7 @@ THX ，看到了
 ##### 2848#       发表于 2015-10-3 14:52
 
 
-
-
 贴吧疯了，一堆壕斗气直播喂卡。。。
-
-
-
-
-
 
 
 -----
@@ -25121,22 +16935,15 @@ THX ，看到了
 ##### 2849#       发表于 2015-10-3 18:06
 
 
-
 <blockquote>EMIYARIN 发表于 2015-10-3 14:52
 贴吧疯了，一堆壕斗气直播喂卡。。。</blockquote>
 求详细
-
-
-
-
-
 
 
 -----
 
 ####  EMIYARIN  
 ##### 2850#       发表于 2015-10-3 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30336278&amp;ptid=1085254" target="_blank">第五秋 发表于 2015-10-3 18:06</a>
@@ -25149,16 +16956,10 @@ THX ，看到了
 红茶吃金皮卡，金皮卡吃红茶
 
 
-
-
-
-
-
 -----
 
 ####  第五秋  
 ##### 2851#       发表于 2015-10-3 18:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30336536&amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-10-3 18:41</a>
@@ -25171,32 +16972,19 @@ THX ，看到了
 ……………………闲得慌，开心就好，23333
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2852#       发表于 2015-10-3 18:48
 
 
-
-
 主线AP减半可以慢慢推主线了，不过这写的还真是没啥劲啊...
-
-
-
-
-
 
 
 -----
 
 ####  sinmean  
 ##### 2853#       发表于 2015-10-3 19:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30336536&amp;ptid=1085254" target="_blank">EMIYARIN 发表于 2015-10-3 18:41</a>
@@ -25209,16 +16997,10 @@ THX ，看到了
 千金难买装个大逼
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2854#       发表于 2015-10-3 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30336551&amp;ptid=1085254" target="_blank">第五秋 发表于 2015-10-3 18:43</a>
@@ -25229,17 +17011,10 @@ THX ，看到了
 然后清姬党和小玉党直接开喂了。
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2855#       发表于 2015-10-3 19:08
-
-
 
 
 长江被遗忘了。。。不过当初刚刚开服的时候清姬和吕布也撕过一段时间。
@@ -25247,17 +17022,10 @@ THX ，看到了
 B阶果然爱撕逼
 
 
-
-
-
-
-
 -----
 
 ####  gugu135  
 ##### 2856#       发表于 2015-10-3 19:15
-
-
 
 
 欧洲人出货多，宝具已经满了，留着也没用自然当狗粮
@@ -25269,25 +17037,13 @@ B阶果然爱撕逼
 当然缺素材那是欧洲人的烦恼，非洲人还是先抽出点什么再说吧
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 2857#       发表于 2015-10-3 20:30
 
 
-
-
 有些图片看着不像喂了的，找替代的狗粮喂了吧。直播个视频我就相信，当然不排除有真壕喂卡，疯了的欧洲人。
-
-
-
-
-
 
 
 -----
@@ -25296,14 +17052,7 @@ B阶果然爱撕逼
 ##### 2858#       发表于 2015-10-3 22:59
 
 
-
-
 贴吧貌似那撕逼都好几波了，反正大公B叔金时我都在养，什么时候再送一波B阶金棋啊
-
-
-
-
-
 
 
 -----
@@ -25312,14 +17061,7 @@ B阶果然爱撕逼
 ##### 2859#       发表于 2015-10-4 00:27
 
 
-
-
 萌新表示这游戏的难度设定好坑爹，刚去打完圣女的幕间物语2，圣女明明是个骑兵却硬上一群刺客职业的幽灵，带减np技能带行动不能技能，最后boss又来个二十多万血的法师恶魔……拉了大腿的80级亚瑟王也是被揍死两遍，中间只好吃了石头
-
-
-
-
-
 
 
 -----
@@ -25328,14 +17070,7 @@ B阶果然爱撕逼
 ##### 2860#       发表于 2015-10-4 03:29
 
 
-
-
 这游戏难度诈欺最严重的就是幕间了……
-
-
-
-
-
 
 
 -----
@@ -25344,14 +17079,7 @@ B阶果然爱撕逼
 ##### 2861#       发表于 2015-10-4 07:29
 
 
-
-
 长江是不是天生续NP能力低下？感觉蓝卡续得也没别人多（没研究过系统单纯靠体感
-
-
-
-
-
 
 
 -----
@@ -25360,15 +17088,9 @@ B阶果然爱撕逼
 ##### 2862#       发表于 2015-10-4 07:46
 
 
-
 <blockquote>ulir 发表于 2015-10-4 07:29
 长江是不是天生续NP能力低下？感觉蓝卡续得也没别人多（没研究过系统单纯靠体感 ...</blockquote>
 对，还有大公。天生只有正常角色的一半。
-
-
-
-
-
 
 
 -----
@@ -25377,16 +17099,10 @@ B阶果然爱撕逼
 ##### 2863#       发表于 2015-10-4 11:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30340243&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-10-4 07:46</a>
 
 对，还有大公。天生只有正常角色的一半。</blockquote>
 大公好歹2张蓝卡还有吸血，长江那真是只能靠队友拼脸……
-
-
-
-
-
 
 
 -----
@@ -25395,16 +17111,10 @@ B阶果然爱撕逼
 ##### 2864#       发表于 2015-10-4 13:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30339102&amp;ptid=1085254" target="_blank">罗斯 发表于 2015-10-4 00:27</a>
 
 萌新表示这游戏的难度设定好坑爹，刚去打完圣女的幕间物语2，圣女明明是个骑兵却硬上一群刺客职业的幽灵， ...</blockquote>
 幕间2我带着好友的80级B叔，花掉三条令咒补血才打过去orz……
-
-
-
-
-
 
 
 -----
@@ -25413,14 +17123,7 @@ B阶果然爱撕逼
 ##### 2865#       发表于 2015-10-4 13:54
 
 
-
-
 B阶银棋子去哪里刷好，第一章那个什么刃之街打了半天屁都没有
-
-
-
-
-
 
 
 -----
@@ -25429,15 +17132,9 @@ B阶银棋子去哪里刷好，第一章那个什么刃之街打了半天屁都�
 ##### 2866#       发表于 2015-10-4 14:01
 
 
-
 <blockquote>少女人形 发表于 2015-10-4 13:54
 B阶银棋子去哪里刷好，第一章那个什么刃之街打了半天屁都没有</blockquote>
 理论上 没有比这个更好的了 还能顺带刷刷龙牙 但脸黑的时候不出就是不出
-
-
-
-
-
 
 
 -----
@@ -25446,16 +17143,10 @@ B阶银棋子去哪里刷好，第一章那个什么刃之街打了半天屁都�
 ##### 2867#       发表于 2015-10-4 14:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30342561&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-10-4 14:01</a>
 
 理论上 没有比这个更好的了 还能顺带刷刷龙牙 但脸黑的时候不出就是不出 ...</blockquote>
 龙牙啥的出了一堆了...不愧是重新定义了金箱子的游戏...
-
-
-
-
-
 
 
 -----
@@ -25466,20 +17157,13 @@ B阶银棋子去哪里刷好，第一章那个什么刃之街打了半天屁都�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 2869#       发表于 2015-10-4 14:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">中级羁绊本刷了1天 双晶0。。。。。
-
-
-
-
-
 
 
 -----
@@ -25488,14 +17172,7 @@ B阶银棋子去哪里刷好，第一章那个什么刃之街打了半天屁都�
 ##### 2870#       发表于 2015-10-4 15:08
 
 
-
-
 刷棋子不去活动本刷？至少有低保
-
-
-
-
-
 
 
 -----
@@ -25506,28 +17183,19 @@ B阶银棋子去哪里刷好，第一章那个什么刃之街打了半天屁都�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  EMIYARIN  
 ##### 2872#       发表于 2015-10-4 15:49
 
 
-
-
 日常本呗。
-
-
-
-
-
 
 
 -----
 
 ####  guiltyspark  
 ##### 2873#       发表于 2015-10-4 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30341646&amp;ptid=1085254" target="_blank">ulir 发表于 2015-10-4 11:52</a>
@@ -25538,17 +17206,10 @@ B阶银棋子去哪里刷好，第一章那个什么刃之街打了半天屁都�
 B叔那蓝卡的NP性能可能有长江的3,4倍...
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2874#       发表于 2015-10-4 16:57
-
-
 
 
 B阶银棋子我在绊中级刷石头人，有时候会有B阶乱入，顺便刷八连双晶，不过活动本之后没打过了不知道掉率如何，刚才在上级出了个逆鳞…
@@ -25559,16 +17220,10 @@ B阶银棋子我在绊中级刷石头人，有时候会有B阶乱入，顺便刷
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2875#       发表于 2015-10-4 17:03
-
 
 
 <blockquote>引用第2865楼alucardcz于2015-10-03 20:20发表的  :
@@ -25580,16 +17235,10 @@ B阶银棋子我在绊中级刷石头人，有时候会有B阶乱入，顺便刷
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2876#       发表于 2015-10-4 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30343813&amp;ptid=1085254" target="_blank">ulir 发表于 2015-10-4 17:03</a>
@@ -25606,16 +17255,10 @@ B阶银棋子我在绊中级刷石头人，有时候会有B阶乱入，顺便刷
 <img src="https://static.saraba1st.com/image/smiley/face/125.gif" referrerpolicy="no-referrer">怎么玩
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2877#       发表于 2015-10-4 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30344001&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-10-4 17:26</a>
@@ -25631,25 +17274,13 @@ B阶银棋子我在绊中级刷石头人，有时候会有B阶乱入，顺便刷
 我B叔3破卡金棋子卡了半个月……想想好友里的壕闪闪抽到的第三还是第四天左右就3破了，简直惊为天人
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2878#       发表于 2015-10-4 17:58
 
 
-
-
 闪闪，红A是保送的啊。 所有材料一路保送到满破。不愧是亲儿子，缺什么送什么。  金棋还有其他4个职业的不知道在哪呢。
-
-
-
-
-
 
 
 -----
@@ -25658,24 +17289,16 @@ B阶银棋子我在绊中级刷石头人，有时候会有B阶乱入，顺便刷
 ##### 2879#       发表于 2015-10-4 18:07
 
 
-
-
 哪来的保送，他是闪闪活动刚开始就满破了，在那之前挂了好久的满破呆毛，现在是挂着满破月女神那个礼装
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2880#       发表于 2015-10-4 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30344190&amp;ptid=1085254" target="_blank">ulir 发表于 2015-10-4 17:52</a>
@@ -25694,24 +17317,13 @@ B叔。。看来没希望了  我要去喂小玉。。。。
 然后这龙娘的素材和黑无毛冲突。。。我无能为力了。。。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2881#       发表于 2015-10-4 22:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">感动上天。。今天最后一把20AP羁绊出了2个双晶。。。然而还差4个。。
-
-
-
-
-
 
 
 -----
@@ -25720,20 +17332,13 @@ B叔。。看来没希望了  我要去喂小玉。。。。
 ##### 2882#       发表于 2015-10-5 09:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">没活动了以后我抱着个红A开始了0友情收入的日子...
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 2883#       发表于 2015-10-5 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30349269&amp;ptid=1085254" target="_blank">sayuri55 发表于 2015-10-5 09:33</a>
@@ -25745,16 +17350,10 @@ B叔。。看来没希望了  我要去喂小玉。。。。
 但是友情有什么用。。。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  yla  
 ##### 2884#       发表于 2015-10-5 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30349554&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-10-5 10:21</a>
@@ -25766,33 +17365,20 @@ B叔。。看来没希望了  我要去喂小玉。。。。
 <img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">我昨天抽了3万友情,一共就出货1张荆轲,全特么1星2星的我都快笑死了
 
 
-
-
-
-
-
 -----
 
 ####  第五秋  
 ##### 2885#       发表于 2015-10-5 10:52
 
 
-
-
 为啥0收入？我65级大舅子一天至少700，最多有1000+诶……
 <img src="http://ww2.sinaimg.cn/bmiddle/9f792f83gw1ewq1y6zvz3j20ls09lwkg.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  雪基百科  
 ##### 2886#       发表于 2015-10-5 10:56
-
 
 
 <blockquote>alucardcz 发表于 2015-10-5 10:21
@@ -25806,16 +17392,10 @@ B叔。。看来没希望了  我要去喂小玉。。。。
 三星及以下还有大狗和C元帅没抽出来（
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2887#       发表于 2015-10-5 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30349817&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-10-5 10:56</a>
@@ -25827,16 +17407,10 @@ B叔。。看来没希望了  我要去喂小玉。。。。
 C元帅我都卖掉了...精神污染。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2888#       发表于 2015-10-5 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30349817&amp;ptid=1085254" target="_blank">雪基百科 发表于 2015-10-5 10:56</a>
@@ -25851,17 +17425,10 @@ C元帅我都卖掉了...精神污染。
 然‘而我就没见过加数值的狗粮。。。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2889#       发表于 2015-10-5 12:30
-
-
 
 
 无料刚出了牛肉丸，强化用的狗粮最近没怎么见了，日常基本还是atk取胜，8000前后攻击的B阶多少还是有市场的
@@ -25871,16 +17438,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2890#       发表于 2015-10-5 12:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30350446&amp;ptid=1085254" target="_blank">ulir 发表于 2015-10-5 12:30</a>
@@ -25889,17 +17450,10 @@ C元帅我都卖掉了...精神污染。
 <img src="https://static.saraba1st.com/image/smiley/face/159.jpg" referrerpolicy="no-referrer">井盖天天送。。。双晶经过数天努力终于出了。。。2。。个。。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  heyfly  
 ##### 2891#       发表于 2015-10-5 13:55
-
-
 
 
 想要黑无毛，抽到一个圣女一个卡米拉，两个金时，真tm想把金时当狗粮喂了<img src="https://static.saraba1st.com/image/smiley/face/114.gif" referrerpolicy="no-referrer">
@@ -25908,17 +17462,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2892#       发表于 2015-10-5 14:02
-
-
 
 
 关于物品掉落这种方法有可行性吗？ <blockquote>1.ストアでパケット解析って検索して適当なアプリを入れる 
@@ -25938,11 +17485,6 @@ C元帅我都卖掉了...精神污染。
 これで出来るはず</blockquote>
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -25951,12 +17493,10 @@ C元帅我都卖掉了...精神污染。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guiltyspark  
 ##### 2894#       发表于 2015-10-5 15:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30349786&amp;ptid=1085254" target="_blank">第五秋 发表于 2015-10-5 10:52</a>
@@ -25972,16 +17512,10 @@ C元帅我都卖掉了...精神污染。
 现在每天两三百不到...
 
 
-
-
-
-
-
 -----
 
 ####  第五秋  
 ##### 2895#       发表于 2015-10-5 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30351825&amp;ptid=1085254" target="_blank">guiltyspark 发表于 2015-10-5 15:35</a>
@@ -25997,16 +17531,10 @@ C元帅我都卖掉了...精神污染。
 我少说也十连了十多次……
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2896#       发表于 2015-10-5 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30352141&amp;ptid=1085254" target="_blank">第五秋 发表于 2015-10-5 16:20</a>
@@ -26020,17 +17548,10 @@ C元帅我都卖掉了...精神污染。
 赤黑键也有个10%,也算能用?虽然ATK偏低
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2897#       发表于 2015-10-5 16:40
-
-
 
 
 日常的话挂个B阶可能好点，我20级黑键的B叔也有几百收入，主要还是效率的问题吧，B阶不用看职阶揍谁都一样痛
@@ -26039,28 +17560,16 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2898#       发表于 2015-10-5 16:45
 
 
-
-
 昨天朋友帮抽了两张护符出了黑无毛和大公……现在在犹豫养谁……
 
 
 ----发送自 [Sony D6603,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -26071,7 +17580,6 @@ C元帅我都卖掉了...精神污染。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  morment  
@@ -26080,12 +17588,10 @@ C元帅我都卖掉了...精神污染。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  badchris  
 ##### 2901#       发表于 2015-10-5 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30351138&amp;ptid=1085254" target="_blank">西条拓巳 发表于 2015-10-5 14:02</a>
@@ -26096,16 +17602,10 @@ C元帅我都卖掉了...精神污染。
 不过这么折腾还是不能改，也就是花了时间省AP吧，实际效果就那样
 
 
-
-
-
-
-
 -----
 
 ####  guiltyspark  
 ##### 2902#       发表于 2015-10-5 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30352759&amp;ptid=1085254" target="_blank">morment 发表于 2015-10-5 17:43</a>
@@ -26118,17 +17618,10 @@ C元帅我都卖掉了...精神污染。
 正好现在金时黑傻up
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2903#       发表于 2015-10-5 18:17
-
-
 
 
 2星的话有奶妈安徒生，职业拉怪圣乔治，B阶的大舅子好像也挺受欢迎的，还有自爆弓
@@ -26137,16 +17630,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2904#       发表于 2015-10-5 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30352794&amp;ptid=1085254" target="_blank">badchris 发表于 2015-10-5 17:46</a>
@@ -26160,25 +17647,13 @@ C元帅我都卖掉了...精神污染。
 一般的本这么折腾确实不值得，有那时间早打完了。省不了AP最多是难度高的本看见没东西直接撤退
 
 
-
-
-
-
-
 -----
 
 ####  罗斯  
 ##### 2905#       发表于 2015-10-5 22:13
 
 
-
-
 挂着六十多级的贞德，感觉一天有个外来的几十点友情不错了……剩下有50级的长江和61级的圣女挂谁比较好吸友情？
-
-
-
-
-
 
 
 -----
@@ -26189,12 +17664,10 @@ C元帅我都卖掉了...精神污染。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  猫又股宗  
 ##### 2907#       发表于 2015-10-5 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30355150&amp;amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-10-5 22:15</a>
@@ -26204,25 +17677,13 @@ C元帅我都卖掉了...精神污染。
 圣女打Ass还是有用。不过友情还是长江好。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2908#       发表于 2015-10-5 22:23
 
 
-
-
 说起来，我到现在都没见过安徒生orz…………
-
-
-
-
-
 
 
 -----
@@ -26231,16 +17692,10 @@ C元帅我都卖掉了...精神污染。
 ##### 2909#       发表于 2015-10-5 23:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30355201&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-10-5 22:23</a>
 
 说起来，我到现在都没见过安徒生orz…………</blockquote>
 我的安徒生宝具都5级了…在考虑要不要二破
-
-
-
-
-
 
 
 -----
@@ -26249,14 +17704,7 @@ C元帅我都卖掉了...精神污染。
 ##### 2910#       发表于 2015-10-6 01:06
 
 
-
-
 今天的15AP棋子本3管体力就出了一个金的...简直没法玩...
-
-
-
-
-
 
 
 -----
@@ -26265,22 +17713,13 @@ C元帅我都卖掉了...精神污染。
 ##### 2911#       发表于 2015-10-6 02:24
 
 
-
-
 把友情點抽光了還是沒有綠茶…轉向抽心抽了10+1還是沒有綠茶……
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2912#       发表于 2015-10-6 04:18
-
-
 
 
 幻影尘的掉落感觉比较尴尬，和棋子一样是金箱，掉率又高
@@ -26291,17 +17730,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2913#       发表于 2015-10-6 07:02
-
-
 
 
 棋子本拼命给我掉弓兵金棋子……谁要啊给我枪兵的啊……
@@ -26310,17 +17742,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  manafox  
 ##### 2914#       发表于 2015-10-6 07:16
-
-
 
 
 赚友情主要是两种   一是挂友情礼装的高级狂战士   二是宝石呆毛，黑无毛    我一般每天收入1万有的
@@ -26332,28 +17757,14 @@ C元帅我都卖掉了...精神污染。
 满破宝石长江是可以的，没有满破宝石的不用，这厮3回合都未必能收20np
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  sayuri55  
 ##### 2915#       发表于 2015-10-6 09:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我小玉缺金银棋子，这年头狗粮反正也好刷...话说今天整个金皮卡地狱...
 <img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">然后道中的从者也都是弓阶掉银箱...
-
-
-
-
-
 
 
 -----
@@ -26362,14 +17773,7 @@ C元帅我都卖掉了...精神污染。
 ##### 2916#       发表于 2015-10-6 09:59
 
 
-
-
 昨晚到现在两管体力刷了8个金棋子，同时拿了12个灰尘……这灰尘明明是铜色素材为毛装的是金箱……太坑人了，不过贞德马上快三破了好开心
-
-
-
-
-
 
 
 -----
@@ -26378,14 +17782,7 @@ C元帅我都卖掉了...精神污染。
 ##### 2917#       发表于 2015-10-6 10:18
 
 
-
-
 其实无所谓，现在我都挑有友情的。。。自从高级狗粮本出来，自己从者就够打了。。。不过不知为何之前加的友情礼装不少都换成宝石翁了
-
-
-
-
-
 
 
 -----
@@ -26394,17 +17791,10 @@ C元帅我都卖掉了...精神污染。
 ##### 2918#       发表于 2015-10-6 10:21
 
 
-
-
 贞德已三破，今天刷狗粮，明天刷俩B阶金棋子就能满破了
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -26413,23 +17803,15 @@ C元帅我都卖掉了...精神污染。
 ##### 2919#       发表于 2015-10-6 10:32
 
 
-
-
 被读心了 尽出金弓棋子 碰上军刀就掉银箱子
 
 下一次换棋子活动什么时候来啊
-
-
-
-
-
 
 
 -----
 
 ####  vleev  
 ##### 2920#       发表于 2015-10-6 11:01
-
 
 
 <img src="http://ww1.sinaimg.cn/large/0062f7Gsgw1ewr7yta741j31hc0u04qp.jpg" referrerpolicy="no-referrer">
@@ -26443,32 +17825,19 @@ C元帅我都卖掉了...精神污染。
 还有就是，死一个五分钟一场和不死人15分钟一场，一天打几场的和一天几十场的对这两个的选择是不一样的。对于刷子来说，辅助是没有选择的选择
 
 
-
-
-
-
-
 -----
 
 ####  蒼い咎跡  
 ##### 2921#       发表于 2015-10-6 11:04
 
 
-
-
 棋子本打了快10次呆毛了，只掉1个金棋，太不懂人心了
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 2922#       发表于 2015-10-6 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30358195&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-10-6 10:32</a>
@@ -26479,13 +17848,7 @@ C元帅我都卖掉了...精神污染。
 我只想刷2个金剑。。。途中掉了5个金弓 3个金枪。。。。。。特别是个金弓我都几十个了。。谁要啊。。。
 
 
-
 还好总算3破了。。可惜4破还要10个金剑<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26494,14 +17857,7 @@ C元帅我都卖掉了...精神污染。
 ##### 2923#       发表于 2015-10-6 11:26
 
 
-
-
 还差2个saber金旗无论如何就是不出来，这绝对是被读心了吧<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26510,14 +17866,7 @@ C元帅我都卖掉了...精神污染。
 ##### 2924#       发表于 2015-10-6 11:51
 
 
-
-
 感觉见到傻吧的概率是有点低，见到金闪闪超多，不过最后多出来的居然是枪兵棋子，剑兵金棋子基本都是靠黑影掉的
-
-
-
-
-
 
 
 -----
@@ -26526,16 +17875,10 @@ C元帅我都卖掉了...精神污染。
 ##### 2925#       发表于 2015-10-6 11:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30358940&amp;ptid=1085254" target="_blank">罗斯 发表于 2015-10-6 11:51</a>
 
 感觉见到傻吧的概率是有点低，见到金闪闪超多，不过最后多出来的居然是枪兵棋子，剑兵金棋子基本都是靠黑影 ...</blockquote>
 黑影金箱茫茫多  然而现实是残酷的。全是尘
-
-
-
-
-
 
 
 -----
@@ -26544,14 +17887,7 @@ C元帅我都卖掉了...精神污染。
 ##### 2926#       发表于 2015-10-6 11:59
 
 
-
-
 三骑本还好，就三个职业而且人数其实不是很多，四骑本<img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26560,23 +17896,16 @@ C元帅我都卖掉了...精神污染。
 ##### 2927#       发表于 2015-10-6 12:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30359005&amp;ptid=1085254" target="_blank">ulir 发表于 2015-10-6 11:59</a>
 
 三骑本还好，就三个职业而且人数其实不是很多，四骑本</blockquote>
 运营什么时候才能开单独棋子本。。。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2928#       发表于 2015-10-6 12:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30359028&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-10-6 12:02</a>
@@ -26587,25 +17916,13 @@ C元帅我都卖掉了...精神污染。
 要么就像狗粮本这样过渡到超级本并且降低AP
 
 
-
-
-
-
-
 -----
 
 ####  罗斯  
 ##### 2929#       发表于 2015-10-6 12:15
 
 
-
-
 人物满破的话会有第四张卡面吗？
-
-
-
-
-
 
 
 -----
@@ -26614,16 +17931,10 @@ C元帅我都卖掉了...精神污染。
 ##### 2930#       发表于 2015-10-6 15:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30359156&amp;ptid=1085254" target="_blank">罗斯 发表于 2015-10-6 12:15</a>
 人物满破的话会有第四张卡面吗？</blockquote>
 满破满级会变成最终卡面……吧
 应该不会错
-
-
-
-
-
 
 
 -----
@@ -26632,24 +17943,16 @@ C元帅我都卖掉了...精神污染。
 ##### 2931#       发表于 2015-10-6 16:17
 
 
-
-
 大家在哪刷逆鳞呢，闪闪还缺一个四破
 
 
 ----发送自 [OnePlus A0001,Android 5.1.1](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2932#       发表于 2015-10-6 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30361063&amp;ptid=1085254" target="_blank">月千一夜 发表于 2015-10-6 15:49</a>
@@ -26662,16 +17965,10 @@ C元帅我都卖掉了...精神污染。
 我这有个好友80级B叔卡图似乎并没变啊？
 
 
-
-
-
-
-
 -----
 
 ####  handing  
 ##### 2933#       发表于 2015-10-6 16:24
-
 
 
 <blockquote>引用第2928楼黑上シグマ于2015-10-06 16:21发表的  :
@@ -26683,16 +17980,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2934#       发表于 2015-10-6 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30361319&amp;ptid=1085254" target="_blank">handing 发表于 2015-10-6 16:24</a>
@@ -26704,17 +17995,10 @@ C元帅我都卖掉了...精神污染。
 只能自己看……这设定也太蠢了……
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2935#       发表于 2015-10-6 16:27
-
-
 
 
 据说是要喂圣杯？说来记得预定更新里有和圣杯有关的
@@ -26723,16 +18007,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2936#       发表于 2015-10-6 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30361297&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-10-6 16:21</a>
@@ -26743,18 +18021,12 @@ C元帅我都卖掉了...精神污染。
 因为其他人是看不见的。只有本人才能看到
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
 ##### 2937#       发表于 2015-10-6 16:53
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -26765,23 +18037,15 @@ C元帅我都卖掉了...精神污染。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  第五秋  
 ##### 2939#       发表于 2015-10-6 17:25
 
 
-
-
 2管5金剑4金L不计其数的A……
 
 看来对我来说今天是金棋幸运日。
-
-
-
-
-
 
 
 -----
@@ -26790,14 +18054,7 @@ C元帅我都卖掉了...精神污染。
 ##### 2940#       发表于 2015-10-6 17:30
 
 
-
-
 再出了第15个银剑后终于突破了读心出了第二个金
-
-
-
-
-
 
 
 -----
@@ -26806,21 +18063,13 @@ C元帅我都卖掉了...精神污染。
 ##### 2941#       发表于 2015-10-6 17:56
 
 
-
-
 缺30个金剑棋子。今天才刷出6个、、
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2942#       发表于 2015-10-6 18:04
-
 
 
 <blockquote>引用第2934楼路德维嘉于2015-10-05 23:14发表的  :
@@ -26834,16 +18083,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2943#       发表于 2015-10-6 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30361688&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-10-6 17:14</a>
@@ -26854,32 +18097,19 @@ C元帅我都卖掉了...精神污染。
 我刚刚也只有2个好友。。。。。。。。。这是什么情况
 
 
-
-
-
-
-
 -----
 
 ####  少女人形  
 ##### 2944#       发表于 2015-10-6 19:53
 
 
-
-
 一大堆一级小号涌入
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 2945#       发表于 2015-10-7 04:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30357195&amp;ptid=1085254" target="_blank">manafox 发表于 2015-10-6 07:16</a>
@@ -26891,33 +18121,19 @@ C元帅我都卖掉了...精神污染。
 骗谁？长江和别人三蓝也好，被揍几下也好，很快就有20np了好不
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2946#       发表于 2015-10-7 05:10
 
 
-
-
 打超級本还真未必有20NP，当然以那攻击力直接敲死也不会慢多少，以B阶的推怪速度大公都不一定有机会三蓝呢……
-
-
-
-
-
 
 
 -----
 
 ####  2434  
 ##### 2947#       发表于 2015-10-7 09:44
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201510/07/094354czu585wh2uhehcwg.jpg" referrerpolicy="no-referrer">
@@ -26930,23 +18146,13 @@ C元帅我都卖掉了...精神污染。
 2015-10-7 09:43 上传
 
 
-
-
-
-
 引继码生成失败，这个问题怎么解决。
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 2948#       发表于 2015-10-7 10:03
-
 
 
 <blockquote>引用第2943楼2434于2015-10-06 15:44发表的  :
@@ -26958,16 +18164,10 @@ C元帅我都卖掉了...精神污染。
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  2434  
 ##### 2949#       发表于 2015-10-7 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30367508&amp;ptid=1085254" target="_blank">ulir 发表于 2015-10-7 10:03</a>
@@ -26979,16 +18179,10 @@ C元帅我都卖掉了...精神污染。
 应该是完成了，但第一次找队友打，完成后提示是否加好友开始出错，然后好友都加不上，然后引继码生成不了，不知道是不是这样。
 
 
-
-
-
-
-
 -----
 
 ####  eyeego  
 ##### 2950#       发表于 2015-10-7 10:48
-
 
 
 <blockquote>欧阳明 发表于 2015-10-7 04:29
@@ -26998,25 +18192,13 @@ C元帅我都卖掉了...精神污染。
 被揍大概需要四下 以现在超级本的强度不套盾连暴击都不需要 伤害浮动系数稍微高一点就能扑街
 
 
-
-
-
-
-
 -----
 
 ####  罗斯  
 ##### 2951#       发表于 2015-10-7 10:50
 
 
-
-
 我好友列表里的最近登录时间从昨天下午就没再更新过了，打本时拉好友的最近登录时间才是正确的
-
-
-
-
-
 
 
 -----
@@ -27025,21 +18207,13 @@ C元帅我都卖掉了...精神污染。
 ##### 2952#       发表于 2015-10-7 10:58
 
 
-
-
 今天小号刷初始，5呼符出了一个呆毛王，我满足了，就是不能加好友和引继什么的，坑死人了。
-
-
-
-
-
 
 
 -----
 
 ####  欧阳明  
 ##### 2953#       发表于 2015-10-7 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30367935&amp;ptid=1085254" target="_blank">eyeego 发表于 2015-10-7 10:48</a>
@@ -27050,17 +18224,10 @@ C元帅我都卖掉了...精神污染。
 差得了多少
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2954#       发表于 2015-10-7 12:54
-
-
 
 
 UBW怎么感觉打了宝具本以后伤害依旧感人<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -27069,16 +18236,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人<img src="https://static.s
 吉尔酱我错了，我不该黑你的。
 
 
-
-
-
-
-
 -----
 
 ####  西条拓巳  
 ##### 2955#       发表于 2015-10-7 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30368993&amp;ptid=1085254" target="_blank">brunestud 发表于 2015-10-7 12:54</a>
@@ -27094,16 +18255,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 [http://www.tudou.com/programs/view/Zq2vTtmeuTo/](http://www.tudou.com/programs/view/Zq2vTtmeuTo/)
 
 
-
-
-
-
-
 -----
 
 ####  manafox  
 ##### 2956#       发表于 2015-10-7 16:10
-
 
 
 <blockquote>欧阳明 发表于 2015-10-7 04:29
@@ -27111,17 +18266,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 你的回答不正替我说明了长江回np一塌糊涂吗，其他金卡b都是不需要三蓝也不需要被打就能三回合内得到20的，换句话说，概率100%
 
 
-
-
-
-
-
 -----
 
 ####  春猫  
 ##### 2957#       发表于 2015-10-7 18:25
-
-
 
 
 宝具威力不受全红卡加成，第一张领卡加成，顺序加成影响。只看卡自身的倍率
@@ -27147,11 +18295,6 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 这样看就非常可观
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -27160,13 +18303,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  handing  
 ##### 2959#       发表于 2015-10-7 18:38
-
-
 
 
 红茶的宝具是用来和千里眼配合打星星的，然后第二回合配合魔术c-打三蓝暴击速出第二次宝具用，另外还附带个无视防御可能中后期有优势。宝具伤害不能看的。
@@ -27175,16 +18315,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.19)
 
 
-
-
-
-
-
 -----
 
 ####  manafox  
 ##### 2960#       发表于 2015-10-7 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30371965&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-10-7 18:31</a>
@@ -27197,16 +18331,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 金石不要宝石，满破龙脉都能用，甚至麒麟臂，天之杯都能玩
 
 
-
-
-
-
-
 -----
 
 ####  manafox  
 ##### 2961#       发表于 2015-10-7 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30371904&amp;ptid=1085254" target="_blank">春猫 发表于 2015-10-7 18:25</a>
@@ -27218,16 +18346,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 对，宝具就是强者通吃，宝具弱到一定程度像大公就直接放弃宝具用加普攻的礼装好了，比宝石翁好用
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 2962#       发表于 2015-10-7 20:33
-
 
 
  本帖最后由 黑上シグマ 于 2015-10-7 21:10 编辑 
@@ -27237,16 +18359,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 我再一次感觉到了希望
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2963#       发表于 2015-10-7 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30371965&amp;ptid=1085254" target="_blank">路德维嘉 发表于 2015-10-7 18:31</a>
@@ -27262,32 +18378,19 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 2直接放大，3直接3连暴击收工。简单粗暴，但对宝石老头要求很高。
 
 
-
-
-
-
-
 -----
 
 ####  黯之痕  
 ##### 2964#       发表于 2015-10-8 00:06
 
 
-
-
 差17根羽毛看着就绝望了
-
-
-
-
-
 
 
 -----
 
 ####  manafox  
 ##### 2965#       发表于 2015-10-8 07:27
-
 
 
 <blockquote>brunestud 发表于 2015-10-7 22:41
@@ -27298,25 +18401,13 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 出乎你的意料，其实不管光炮，平砍甚至打星都是毛系列强力，三个毛一起领导力瞬间就爆发48%全体三回合攻击力，47星，简单粗暴有效精确，毛的打星是当回和，cd只有5
 
 
-
-
-
-
-
 -----
 
 ####  罗斯  
 ##### 2966#       发表于 2015-10-8 09:19
 
 
-
-
 2级宝具的长江和1级宝具的大公，优先练哪个比较实惠？月神强度如何？
-
-
-
-
-
 
 
 -----
@@ -27325,14 +18416,7 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ##### 2967#       发表于 2015-10-8 09:33
 
 
-
-
 有满破宝石翁就长江
-
-
-
-
-
 
 
 -----
@@ -27341,14 +18425,7 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ##### 2968#       发表于 2015-10-8 09:37
 
 
-
-
 月神对男性单点专杀，目前感觉只是用来舔的卡
-
-
-
-
-
 
 
 -----
@@ -27357,22 +18434,13 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ##### 2969#       发表于 2015-10-8 09:50
 
 
-
-
 10张金狗粮才升了1级。。。。。。。
-
-
-
-
-
 
 
 -----
 
 ####  defer  
 ##### 2970#       发表于 2015-10-8 10:40
-
-
 
 
 上次月神手里没有L阶，交了令咒打了月神。
@@ -27383,32 +18451,19 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 怎么办，转头练龙娘？
 
 
-
-
-
-
-
 -----
 
 ####  EMIYARIN  
 ##### 2971#       发表于 2015-10-8 10:45
 
 
-
-
 大狗二破能用了，反正后面属性涨的慢
-
-
-
-
-
 
 
 -----
 
 ####  月千一夜  
 ##### 2972#       发表于 2015-10-8 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30377002&amp;ptid=1085254" target="_blank">罗斯 发表于 2015-10-8 09:19</a>
@@ -27420,16 +18475,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 肯定优先大公啊
 
 
-
-
-
-
-
 -----
 
 ####  罗斯  
 ##### 2973#       发表于 2015-10-8 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30377862&amp;ptid=1085254" target="_blank">月千一夜 发表于 2015-10-8 10:46</a>
@@ -27441,16 +18490,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 我看有评论说大公的宝具太废，长江倒是个AOE实际用起来效果还不错，大公的宝具作为单体伤害确实有点低，另外我所不知道的是这两货的满破难度如何？
 
 
-
-
-
-
-
 -----
 
 ####  罗斯  
 ##### 2974#       发表于 2015-10-8 11:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30377279&amp;ptid=1085254" target="_blank">alucardcz 发表于 2015-10-8 09:50</a>
@@ -27459,16 +18502,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 昨晚吃石头肝满破贞德，感觉过了78级后10张金狗粮都不能升一级
 
 
-
-
-
-
-
 -----
 
 ####  brunestud  
 ##### 2975#       发表于 2015-10-8 11:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30378117&amp;ptid=1085254" target="_blank">罗斯 发表于 2015-10-8 11:11</a>
@@ -27477,16 +18514,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 大公和长江都是晚熟型，3破基本就是顶属性了。
 
 
-
-
-
-
-
 -----
 
 ####  月千一夜  
 ##### 2976#       发表于 2015-10-8 11:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30378117&amp;ptid=1085254" target="_blank">罗斯 发表于 2015-10-8 11:11</a>
@@ -27502,16 +18533,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 至于长江这货，有余裕再说吧……
 
 
-
-
-
-
-
 -----
 
 ####  罗斯  
 ##### 2977#       发表于 2015-10-8 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30378328&amp;ptid=1085254" target="_blank">月千一夜 发表于 2015-10-8 11:30</a>
@@ -27524,27 +18549,15 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 多谢，明白了，虚数有一张0破的，还有两张满破龙脉+1张0破龙脉，宝石不去想了
 
 
-
-
-
-
-
 -----
 
 ####  春猫  
 ##### 2978#       发表于 2015-10-8 11:52
 
 
-
-
 穿刺公要70级后才能体现出他生存能力的优势
 
 建议没有宝石翁先练穿刺公，有的话可以练兰斯洛特
-
-
-
-
-
 
 
 -----
@@ -27553,17 +18566,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ##### 2979#       发表于 2015-10-8 11:57
 
 
-
-
 长江也是晚熟，而且技能又叫人捉急，宝具又蓄不起来
 
 
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -27572,14 +18578,7 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ##### 2980#       发表于 2015-10-8 14:34
 
 
-
-
 长江我带着不夜丢最后救场去了
-
-
-
-
-
 
 
 -----
@@ -27588,14 +18587,7 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ##### 2981#       发表于 2015-10-8 16:17
 
 
-
-
 大公对礼装要求不高，适应性或者说泛用性很强，生存能力得三破开战斗续行，但在那之前一个变化+本身血量足其实挺能站场，宝具单体伤害不算低外加能攒星，最重要的是大公再临素材之前尼禄都送过只需要刷棋子
-
-
-
-
-
 
 
 -----
@@ -27604,23 +18596,15 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ##### 2982#       发表于 2015-10-8 17:58
 
 
-
-
 现在换号还要重下数据吗？
 
 我想换小号抽抽抽了。。。
-
-
-
-
-
 
 
 -----
 
 ####  LichEnd  
 ##### 2983#       发表于 2015-10-8 18:35
-
 
 
  本帖最后由 LichEnd 于 2015-10-8 18:48 编辑 
@@ -27632,11 +18616,6 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 属性不是一直很高么……一直比同等级B叔和小玉高
 
 
-
-
-
-
-
 -----
 
 ####  路德维嘉  
@@ -27645,12 +18624,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  sinmean  
 ##### 2985#       发表于 2015-10-8 21:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30382689&amp;ptid=1085254" target="_blank">LichEnd 发表于 2015-10-8 18:35</a>
@@ -27666,16 +18643,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 反倒是早熟型，最后10级成长惊人，反之如果只在第三阶段，就会面板低很多。实质上是晚熟
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2986#       发表于 2015-10-8 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30384322&amp;ptid=1085254" target="_blank">sinmean 发表于 2015-10-8 21:48</a>
@@ -27688,17 +18659,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 反而早熟的小玉什么的60的时候那双围根本不能看
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 2987#       发表于 2015-10-8 22:05
-
-
 
 
 早熟晚熟是相对整体而言的，你们还记得开服早期被嫌弃的红A吗<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
@@ -27708,32 +18672,19 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 ----发送自 [LGE Nexus 5,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 2988#       发表于 2015-10-8 22:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">萌新的B叔依然是50级。。。。。。。。双晶掉率感人。
-
-
-
-
-
 
 
 -----
 
 ####  EMIYARIN  
 ##### 2989#       发表于 2015-10-8 22:26
-
-
 
 
 以前的早期是一二破之间，现在的早期是四破之前。
@@ -27743,17 +18694,10 @@ UBW怎么感觉打了宝具本以后伤害依旧感人
 刚刚开服的时候没狗粮没钱，没材料。
 
 
-
-
-
-
-
 -----
 
 ####  月千一夜  
 ##### 2990#       发表于 2015-10-8 22:36
-
-
 
 
 你们说早熟晚熟的……楼里不是早就贴数据了？
@@ -27772,32 +18716,19 @@ S型：开始成长低，中期成长飞快，后期基本没成长
 按记忆写的，可能不准确，具体自己爬楼吧
 
 
-
-
-
-
-
 -----
 
 ####  呀书吾人  
 ##### 2991#       发表于 2015-10-9 00:40
 
 
-
-
 一直黑屏，重新下了一遍，突然发现引继码忘了…是不是没救了
-
-
-
-
-
 
 
 -----
 
 ####  brunestud  
 ##### 2992#       发表于 2015-10-9 01:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30385683&amp;ptid=1085254" target="_blank">呀书吾人 发表于 2015-10-9 00:40</a>
@@ -27809,25 +18740,13 @@ S型：开始成长低，中期成长飞快，后期基本没成长
 假如ID都忘了那就连申诉都不用了，直接重玩吧<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ryusei  
 ##### 2993#       发表于 2015-10-9 02:25
 
 
-
-
 目前小玉喵三破了，三姐妹大姐三破了，目前找不到去哪刷材料了。日常打小怪兽本掉的全是技能石，快绝望了
-
-
-
-
-
 
 
 -----
@@ -27836,16 +18755,9 @@ S型：开始成长低，中期成长飞快，后期基本没成长
 ##### 2994#       发表于 2015-10-9 08:07
 
 
-
-
 モンスター狩り＜四騎編＞ 中級 根本刷不到混沌爪，不是银箱就是木箱。次数22+
 
 有没有刷到的？好给个继续刷的理由
-
-
-
-
-
 
 
 -----
@@ -27854,21 +18766,13 @@ S型：开始成长低，中期成长飞快，后期基本没成长
 ##### 2995#       发表于 2015-10-9 08:36
 
 
-
-
 引继码如果参加过英雄王10选1活动的话，浏览器里说不定有保留
-
-
-
-
-
 
 
 -----
 
 ####  gugu135  
 ##### 2996#       发表于 2015-10-9 08:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30386568&amp;ptid=1085254" target="_blank">yagami0079 发表于 2015-10-9 08:07</a>
@@ -27880,16 +18784,10 @@ S型：开始成长低，中期成长飞快，后期基本没成长
 —— 来自 OPPO X9007, Android 4.3
 
 
-
-
-
-
-
 -----
 
 ####  sayuri55  
 ##### 2997#       发表于 2015-10-9 08:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30373109&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2015-10-7 20:33</a>
@@ -27900,32 +18798,19 @@ S型：开始成长低，中期成长飞快，后期基本没成长
 叛徒！！！
 
 
-
-
-
-
-
 -----
 
 ####  yagami0079  
 ##### 2998#       发表于 2015-10-9 09:01
 
 
-
-
 急需3个爪子3破。。。
-
-
-
-
-
 
 
 -----
 
 ####  cyberdark  
 ##### 2999#       发表于 2015-10-9 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30386568&amp;ptid=1085254" target="_blank">yagami0079 发表于 2015-10-9 08:07</a>
@@ -27936,22 +18821,12 @@ S型：开始成长低，中期成长飞快，后期基本没成长
 今天早上一管体力出了两个，但我是去刷双晶的，目前还是零<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  animalbe  
 ##### 3000#       发表于 2015-10-9 09:49
 
 
-
-
 所以爪子和龙鳞到底哪个好刷点？我好决定是练彩色圆珠笔还是呆毛<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
 
 

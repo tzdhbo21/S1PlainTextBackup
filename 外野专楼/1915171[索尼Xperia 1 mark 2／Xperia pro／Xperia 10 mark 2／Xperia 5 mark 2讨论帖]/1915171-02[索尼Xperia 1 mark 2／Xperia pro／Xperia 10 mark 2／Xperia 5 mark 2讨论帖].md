@@ -1,29 +1,19 @@
 > ## **本文件最后更新于2021-04-03 08:43** 
 
 
-
 -----
 
 ####  黑爪爪  
 ##### 1501#       发表于 2020-10-16 23:02
 
 
-
-
 确认下。五兔港版日版国行的外观是完全一样吧？没有a地的手机壳b地不能用的问题吧？
-
-
-
-
-
 
 
 -----
 
 ####  垃圾网站上  
 ##### 1502#       发表于 2020-10-16 23:25
-
-
 
 
 才发现索尼在上古年代就一直搞这些幺蛾子
@@ -39,9 +29,6 @@
 2020-10-16 23:22 上传
 
 
-
-
-
  HDMI接口
 
 
@@ -53,9 +40,6 @@
 下载附件
 
 2020-10-16 23:23 上传
-
-
-
 
 
  两段式相机快门键
@@ -71,9 +55,6 @@
 2020-10-16 23:23 上传
 
 
-
-
-
  追焦的小绿框
 
 
@@ -87,22 +68,10 @@
 2020-10-16 23:24 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 1503#         楼主| 发表于 2020-10-17 00:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49071223&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-16 23:25:19</a>
@@ -111,17 +80,10 @@
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1504#       发表于 2020-10-17 01:47
-
-
 
 
 24期已经刷新了哦
@@ -130,16 +92,10 @@
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  提挈天地  
 ##### 1505#       发表于 2020-10-17 07:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49072153&amp;ptid=1915171" target="_blank">ut0 发表于 2020-10-17 04:34</a>
@@ -151,17 +107,10 @@
 —— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1506#       发表于 2020-10-17 11:28
-
-
 
 
 买的X52（港澳版）粉终于到了，这个粉色比我想象得更暗啊，甚至有点紫色的味道了
@@ -182,21 +131,10 @@ HS模式能有效改变3分钟真男人时间，不过这个时间最多也就�
 2020-10-17 11:27 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1507#       发表于 2020-10-17 11:39
-
 
 
 <blockquote>MixRadio 发表于 2020-10-16 22:39
@@ -204,16 +142,10 @@ HS模式能有效改变3分钟真男人时间，不过这个时间最多也就�
 台湾已经有12G版了，香港大概也会？
 
 
-
-
-
-
-
 -----
 
 ####  kaiki_aiolos  
 ##### 1508#       发表于 2020-10-17 11:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49070865&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-16 22:45</a>
@@ -228,16 +160,10 @@ HS模式能有效改变3分钟真男人时间，不过这个时间最多也就�
 我买的国行XZ3倒是到手了就刷港版rom，要不然没办法用GMS
 
 
-
-
-
-
-
 -----
 
 ####  ivly  
 ##### 1509#       发表于 2020-10-17 11:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49073115&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-17 11:28</a>
@@ -250,16 +176,10 @@ HS模式能有效改变3分钟真男人时间，不过这个时间最多也就�
 —— 来自 realme RMX2121, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1510#       发表于 2020-10-17 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49073293&amp;ptid=1915171" target="_blank">ivly 发表于 2020-10-17 11:52</a>
@@ -271,26 +191,15 @@ HS模式能有效改变3分钟真男人时间，不过这个时间最多也就�
 装个app就能实现的功能为什么要把锅推给原生？不想买也要换个好点的理由<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  利物浦  
 ##### 1511#       发表于 2020-10-17 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49066020&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-16 13:19</a>
 夜砚黑是磨砂黑，青山绿是镜面的</blockquote>
 这颜色，梦回z3/z3c<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -299,9 +208,7 @@ HS模式能有效改变3分钟真男人时间，不过这个时间最多也就�
 ##### 1512#       发表于 2020-10-17 14:08
 
 
-
  本帖最后由 我很费纸 于 2020-10-17 14:53 编辑 
-
 
 
 用了一早上确实感觉到了传说中的“大面积石墨均热板”——一直中高
@@ -312,17 +219,10 @@ Soc温度墙还是老样子，可怜的60度，幸亏散热能力提高了，不
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  绚烂航迹云  
 ##### 1513#       发表于 2020-10-17 15:11
-
-
 
 
 所谓的店里200优惠，是这个链接，去店里，店员发给我的
@@ -332,17 +232,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1514#       发表于 2020-10-17 15:30
-
-
 
 
 跑店里看了下，1.2没照片那么好看，5.2也没照片那么丑……
@@ -352,25 +245,13 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 5的灰色从背后看挺好看的，但是一转到侧面就马上low穿地心……
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1515#       发表于 2020-10-17 16:01
 
 
-
-
 话说5.2这预售就跟路上捡来的孩子似的，也不知道双十一能不能蹭上些什么优惠……
-
-
-
-
-
 
 
 -----
@@ -379,23 +260,15 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ##### 1516#         楼主| 发表于 2020-10-17 16:22
 
 
-
-
 你们都是去直营店看的真机吗？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  月神侠  
 ##### 1517#       发表于 2020-10-17 16:32
-
 
 
  本帖最后由 月神侠 于 2020-10-17 16:36 编辑 
@@ -423,37 +296,19 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 2020-10-17 16:36 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1518#       发表于 2020-10-17 16:32
 
 
-
-
 挣扎了半天最后还是紫色，现在有合适的膜和壳推荐吗
-
-
-
-
-
 
 
 -----
 
 ####  ivly  
 ##### 1519#       发表于 2020-10-17 16:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49074356&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-17 13:56</a>
@@ -464,16 +319,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 realme RMX2121, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1520#       发表于 2020-10-17 17:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49075700&amp;ptid=1915171" target="_blank">ivly 发表于 2020-10-17 16:39</a>
@@ -484,17 +333,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 通话录音我用ACR，app暗色小窗这些我没用就没研究
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1521#       发表于 2020-10-17 17:16
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/17/171246np7fcs3o9q5ycs3o.jpg" referrerpolicy="no-referrer">
@@ -507,10 +349,6 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 2020-10-17 17:12 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/17/171246ax663horc3pr6nnr.jpg" referrerpolicy="no-referrer">
 
 
@@ -521,26 +359,13 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 2020-10-17 17:12 上传
 
 
-
-
-
-
 港版也要出1M2国际版高配版，绿色版本叫镜湖绿，HKD8999<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  cleaner  
 ##### 1522#       发表于 2020-10-17 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49073293&amp;ptid=1915171" target="_blank">ivly 发表于 2020-10-17 11:52</a>
@@ -552,16 +377,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1523#       发表于 2020-10-17 19:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49072153&amp;ptid=1915171" target="_blank">ut0 发表于 2020-10-17 04:34</a>
@@ -573,17 +392,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 你要是存了15号的页面就可以直接点 不需要等时间。。<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1524#       发表于 2020-10-17 19:21
-
-
 
 
 现在港版那个XQ-AT52就是8g内存的
@@ -595,16 +407,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 两者应该是不能通刷。
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1525#       发表于 2020-10-17 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49074465&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-17 14:08</a>
@@ -615,16 +421,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">壳子买的哪家的
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1526#       发表于 2020-10-17 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49077248&amp;ptid=1915171" target="_blank">Cray 发表于 2020-10-17 19:23</a>
@@ -634,31 +434,19 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Benthic  
 ##### 1527#       发表于 2020-10-17 19:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">那就又等等港版升级款好了
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 1528#       发表于 2020-10-17 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49077259&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-17 19:24</a>
@@ -670,16 +458,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 那我还是去经常买的那家买好了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 1大了点 买5了
 
 
-
-
-
-
-
 -----
 
 ####  逆袭的黑月  
 ##### 1529#       发表于 2020-10-17 22:24
-
 
 
  本帖最后由 逆袭的黑月 于 2020-10-17 22:44 编辑 
@@ -689,32 +471,19 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 毕竟完全没有性能之类的需求就买个壳子了,5年没换手机多2000也不觉得太心疼.只要能用GooglePlay就行了,上代有支持应该不至于这代又搞事
 
 
-
-
-
-
-
 -----
 
 ####  艾尔特翔  
 ##### 1530#       发表于 2020-10-18 00:32
 
 
-
-
 想买5m2,但是看了真机后,真你妈丑,还是1m2好看,可是1太贵了,这是要逼我买隔壁苹果阿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wizardasd  
 ##### 1531#       发表于 2020-10-18 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49081246&amp;ptid=1915171" target="_blank">ut0 发表于 2020-10-18 10:20</a>
@@ -726,16 +495,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 是的，那就是张图，点不了
 
 
-
-
-
-
-
 -----
 
 ####  final007  
 ##### 1532#       发表于 2020-10-18 10:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49069782&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-16 20:27</a>
@@ -747,22 +510,15 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 有点厉害啊，怎么进群啊求指路<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1533#       发表于 2020-10-18 20:15
 
 
-
  本帖最后由 Cray 于 2020-10-18 20:51 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">2台机器电池果然是一样的型号啊  主板那密度 5Ⅱ砍tof像是故意的算了下还真放不下了 
-
 
 
 无线充电肯定是故意的
@@ -778,21 +534,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 2020-10-18 20:39 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1534#       发表于 2020-10-18 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49078142&amp;ptid=1915171" target="_blank">Cray 发表于 2020-10-17 20:54</a>
@@ -801,17 +546,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 求推荐壳子<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  垃圾网站上  
 ##### 1535#       发表于 2020-10-18 20:25
-
-
 
 
 现在想了解的信息就两个：
@@ -821,16 +559,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 2. 怎么搞NFC模拟门禁和公交卡
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1536#       发表于 2020-10-18 20:53
-
 
 
  本帖最后由 Cray 于 2020-10-18 20:57 编辑 
@@ -842,20 +574,13 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 然后等官方或者香蕉壳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
 看来官方还是想推1Ⅱ啊  又是券又送壳子的。。5Ⅱ啥都没有//<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wizardasd  
 ##### 1537#       发表于 2020-10-18 21:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49083139&amp;ptid=1915171" target="_blank">Cray 发表于 2020-10-18 20:53</a>
@@ -873,16 +598,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 不过也可能是本来打算11月上，现在提前了，所以渠道没跟上？
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1538#       发表于 2020-10-18 21:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49083139&amp;ptid=1915171" target="_blank">Cray 发表于 2020-10-18 20:53</a>
@@ -896,16 +615,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  loveconankid  
 ##### 1539#       发表于 2020-10-18 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49082871&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-18 20:25</a>
@@ -919,17 +632,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1540#       发表于 2020-10-18 22:00
-
-
 
 
 老实说在想要不要像当初xz2c一样给X5M2写个评测……这算是有史以来索尼令我最满意的一台机器了（除了边框实在太圆润和取消硬件侧感差评）
@@ -941,16 +647,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  艾尔特翔  
 ##### 1541#       发表于 2020-10-18 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49083781&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-18 22:00</a>
@@ -959,16 +659,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 实不相瞒,我就是看到5M2那个侧面,就被劝退了
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1542#       发表于 2020-10-18 22:13
-
 
 
 <blockquote>我很费纸 发表于 2020-10-18 22:00
@@ -978,17 +672,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 我也不明白为什么 5 II 不用和 1 II 一样的边框风格呢
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1543#       发表于 2020-10-18 22:25
-
-
 
 
 5.2别的颜色就算了
@@ -998,16 +685,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 如果不是在直营店里看到的，我一定会以为是假的sony……
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1544#       发表于 2020-10-18 22:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49083898&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-18 22:13</a>
@@ -1027,16 +708,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1545#       发表于 2020-10-18 23:24
-
 
 
 <blockquote>引用第1539楼wizardasd于2020-10-18 21:05发表的  :
@@ -1048,16 +723,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1546#       发表于 2020-10-18 23:26
-
 
 
 <blockquote>引用第1544楼leystage于2020-10-18 22:13发表的  :
@@ -1069,17 +738,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1547#       发表于 2020-10-19 00:16
-
-
 
 
 顺便 …5Ⅱ那个屏幕保护膜是当初准备上刘海屏就做好的吧
@@ -1091,16 +753,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 1548#       发表于 2020-10-19 08:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49084114&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-18 22:38</a>
@@ -1112,17 +768,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 毕竟3860mah的大电池，再不好就不像话了
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 1549#       发表于 2020-10-19 08:22
-
-
 
 
 去实体店摸了摸，1 mk2绿色实在太一般了，以旧换新的价格也是耍猴，基本上估计不会更换手里的港版了。
@@ -1131,27 +780,15 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1550#       发表于 2020-10-19 09:52
 
 
-
-
 在绿和紫之间犹豫挣扎了好久，最后还是回归本心选了紫
 
 在狗东买的说是送了个紫色的壳子，有点期待是啥样的，不会是大法官网那个要卖199带支架的壳子吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1160,23 +797,15 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 ##### 1551#       发表于 2020-10-19 10:45
 
 
-
-
 大家有没啥比较推荐的壳子或者壳子图案?
 
 今天5M2到手了
-
-
-
-
-
 
 
 -----
 
 ####  MuAmUa  
 ##### 1552#       发表于 2020-10-19 11:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49086736&amp;ptid=1915171" target="_blank">dllplayer 发表于 2020-10-19 10:45</a>
@@ -1188,17 +817,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  tsounaiq  
 ##### 1553#       发表于 2020-10-19 11:56
-
-
 
 
 大法淮海路店的销售说5.2不支持移动5G，是反贼吧
@@ -1206,16 +828,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 — from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  asakura20005  
 ##### 1554#       发表于 2020-10-19 12:26
-
 
 
  本帖最后由 asakura20005 于 2020-10-19 12:31 编辑 
@@ -1228,16 +844,10 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  tsounaiq  
 ##### 1555#       发表于 2020-10-19 13:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49087777&amp;ptid=1915171" target="_blank">asakura20005 发表于 2020-10-19 12:26</a>
@@ -1251,32 +861,19 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持一个移动 NSA 5G，移动 SA 5G 及另外两家 5G 都可以正常使用。
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 1556#       发表于 2020-10-19 13:52
 
 
-
-
 之前索粉头子说的那个1 II会通过ota升级推送120hz是真的吗
-
-
-
-
-
 
 
 -----
 
 ####  dllplayer  
 ##### 1557#       发表于 2020-10-19 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49086927&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-10-19 11:09</a>
@@ -1290,16 +887,10 @@ Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持�
 有把镜头和灯分开挖孔的版本么
 
 
-
-
-
-
-
 -----
 
 ####  黑糖花园  
 ##### 1558#       发表于 2020-10-19 14:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49082871&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-18 20:25</a>
@@ -1314,16 +905,10 @@ Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1559#       发表于 2020-10-19 14:50
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
@@ -1339,10 +924,6 @@ Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持�
 2020-10-19 14:50 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/19/145012ty5yyq2eyyysma5t.jpg" referrerpolicy="no-referrer">
 
 
@@ -1353,25 +934,10 @@ Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持�
 2020-10-19 14:50 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  asakura20005  
 ##### 1560#       发表于 2020-10-19 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49088460&amp;ptid=1915171" target="_blank">tsounaiq 发表于 2020-10-19 13:29</a>
@@ -1383,16 +949,10 @@ Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持�
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  asakura20005  
 ##### 1561#       发表于 2020-10-19 15:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49089273&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-10-19 14:39</a>
@@ -1403,16 +963,10 @@ xda上说解锁会失去奈飞4k支持，视频增强功能，但是没提算法
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 1562#       发表于 2020-10-19 15:47
-
 
 
  本帖最后由 dllplayer 于 2020-10-23 09:50 编辑 
@@ -1420,7 +974,6 @@ xda上说解锁会失去奈飞4k支持，视频增强功能，但是没提算法
 问个蠢问题..如何在抽屉里创建文件夹..
 
 稍微移动一下就变成放到桌面
-
 
 
 好了..知道了.右上 重新排序
@@ -1431,16 +984,10 @@ xda上说解锁会失去奈飞4k支持，视频增强功能，但是没提算法
 哪位知道该用啥APP来管邮件么...难道直接用那个GMAIL?
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1563#       发表于 2020-10-19 17:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49090078&amp;ptid=1915171" target="_blank">dllplayer 发表于 2020-10-19 15:47</a>
@@ -1453,18 +1000,10 @@ xda上说解锁会失去奈飞4k支持，视频增强功能，但是没提算法
 不是office，就是一个单独的邮件app
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1564#       发表于 2020-10-19 17:15
-
-
-
 
 
 日前外网流传出一张更新时间图，大概可以看出
@@ -1480,16 +1019,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 国行 Xperia 1 II 采用 12GB LPDDR5 双通道内存配置，来自三星，10nm 制程。
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 1565#       发表于 2020-10-19 18:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49089273&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-10-19 14:39</a>
@@ -1500,16 +1033,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 9.0之后我记得是不丢相机算法，但是丢失视频增强。
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1566#       发表于 2020-10-19 19:15
-
 
 
 <blockquote>引用第1552楼飞翔的兔子于2020-10-19 09:52发表的  :
@@ -1521,25 +1048,13 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 1567#       发表于 2020-10-19 21:35
 
 
-
-
 额...求助一下....5M2 岛风GO间歇性无效...是为啥啊..哪位有遇到的类似问题的么
-
-
-
-
-
 
 
 -----
@@ -1548,23 +1063,16 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1568#       发表于 2020-10-19 21:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49089425&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-19 14:50</a></blockquote>
 为啥你这粉色拍出来比我的**好多……
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1569#       发表于 2020-10-19 21:47
-
 
 
  本帖最后由 我很费纸 于 2020-10-20 01:11 编辑 
@@ -1575,16 +1083,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 1570#       发表于 2020-10-19 21:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49094806&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-19 21:47</a>
@@ -1600,16 +1102,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 停止了重新初始化也不能生效
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1571#       发表于 2020-10-20 01:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49094920&amp;ptid=1915171" target="_blank">dllplayer 发表于 2020-10-19 21:59</a>
@@ -1623,17 +1119,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 1572#       发表于 2020-10-20 02:47
-
-
 
 
 出差无聊经过索尼店 一摸到黑色马上射了 这简直是pro下放版的设计啊
@@ -1645,25 +1134,13 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 马上绿色换黑色 完美
 
 
-
-
-
-
-
 -----
 
 ####  maverickhunter  
 ##### 1573#       发表于 2020-10-20 08:41
 
 
-
-
 我的X10-2更新最新的系统推送之后老是重启是啥问题，还有间歇式失去网络<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1672,23 +1149,15 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1574#       发表于 2020-10-20 09:19
 
 
-
-
 明年换mkiii好了，一年一换有点奢侈<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  月神侠  
 ##### 1575#       发表于 2020-10-20 09:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49097023&amp;ptid=1915171" target="_blank">淡定君 发表于 2020-10-20 02:47</a>
@@ -1700,26 +1169,15 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 店里的机模是塑料背壳，实机是玻璃的哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  有口皆悲  
 ##### 1576#       发表于 2020-10-20 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49098391&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-20 09:38</a>
 店里的机模是塑料背壳，实机是玻璃的哦</blockquote>
 等等，不是黑色有个磨砂质感的吗？难道是磨砂玻璃？
-
-
-
-
-
 
 
 -----
@@ -1728,16 +1186,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1577#       发表于 2020-10-20 10:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49098539&amp;ptid=1915171" target="_blank">有口皆悲 发表于 2020-10-20 09:53</a>
 
 等等，不是黑色有个磨砂质感的吗？难道是磨砂玻璃？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">是的哦亲
-
-
-
-
-
 
 
 -----
@@ -1746,25 +1198,16 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1578#       发表于 2020-10-20 10:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49099068&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-20 10:35</a>
 
 是的哦亲</blockquote>
 牛逼牛逼，周末去店里摸摸。
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1579#       发表于 2020-10-20 10:47
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/20/104639gskjdbdljub13dr8.jpg" referrerpolicy="no-referrer">
@@ -1777,15 +1220,7 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 2020-10-20 10:46 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">今天可以发货了
-
-
-
-
-
 
 
 -----
@@ -1794,17 +1229,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1580#       发表于 2020-10-20 10:48
 
 
-
-
 一直都是磨砂玻璃啊 …怎么传谣言变塑料了 …
 
 
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -1813,17 +1241,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1581#       发表于 2020-10-20 10:57
 
 
-
-
 不是早就说21号发货了么，明天下班去淮海路拿机
 
 
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -1832,23 +1253,16 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1582#       发表于 2020-10-20 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49098391&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-20 09:38</a>
 
 店里的机模是塑料背壳，实机是玻璃的哦</blockquote>
 ？？？磨砂黑背板是玻璃？不是金属吗
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1583#       发表于 2020-10-20 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49099221&amp;ptid=1915171" target="_blank">Cray 发表于 2020-10-20 10:48</a>
@@ -1860,16 +1274,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 因为机模背壳用的是塑料<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1584#       发表于 2020-10-20 11:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49099348&amp;ptid=1915171" target="_blank">绚烂航迹云 发表于 2020-10-20 10:57</a>
@@ -1881,17 +1289,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 索尼规定不能早于21号激活，但是手机今天就到店里了，有的门店为了完成任务会等到21号开机激活了再发货，这就是拆封机，大概能9折买到，不要票不要赠品还能更便宜
 
 
-
-
-
-
-
 -----
 
 ####  Vicarious  
 ##### 1585#       发表于 2020-10-20 14:49
-
-
 
 
 话说双十一有机会拿到4500左右的x5 ll吗。。。
@@ -1902,16 +1303,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 —— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 1586#       发表于 2020-10-20 15:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49098391&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-20 09:38</a>
@@ -1926,17 +1321,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 机器是正常通电能用的 如果是玻璃做到这个质感也是没谁了 加分！
 
 
-
-
-
-
-
-
 -----
 
 ####  li__god  
 ##### 1587#       发表于 2020-10-20 15:13
-
 
 
  本帖最后由 li__god 于 2020-10-20 16:22 编辑 
@@ -1946,17 +1334,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 <img src="https://wx4.sinaimg.cn/mw1024/3c6986bbly1gjscumtg5cj22xc3wgu10.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  绚烂航迹云  
 ##### 1588#       发表于 2020-10-20 15:17
-
-
 
 
 黑色是不是玻璃不知道，反正店里摸了非黑色的，直接劝退，就黑色了
@@ -1965,25 +1346,13 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  垃圾网站上  
 ##### 1589#       发表于 2020-10-20 15:44
 
 
-
-
 除了黑色都是指纹收集器无误，反光下十分难看，我是准备贴背膜了
-
-
-
-
-
 
 
 -----
@@ -1992,13 +1361,7 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1590#       发表于 2020-10-20 16:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">第一批都开始发货了，我的机机还在路上
-
-
-
-
-
 
 
 -----
@@ -2007,21 +1370,13 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1591#       发表于 2020-10-20 17:04
 
 
-
-
 首发还是缩了，等你们先上车，我观望观望再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  绚烂航迹云  
 ##### 1592#       发表于 2020-10-20 17:05
-
 
 
 <blockquote>引用第1593楼无印凉粉于2020-10-20 17:04发表的  :
@@ -2035,16 +1390,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1593#       发表于 2020-10-20 17:33
-
 
 
 <blockquote>淡定君 发表于 2020-10-20 02:47
@@ -2055,16 +1404,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 淡定君你倒是淡定一些啊 XD
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1594#       发表于 2020-10-20 17:44
-
 
 
 <blockquote>绚烂航迹云 发表于 2020-10-20 17:05
@@ -2087,27 +1430,15 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 - 国行系统对国产软件的耐性如何（我是港版，除了微信外没有装国产软件，用港版系统依然非常省电。微信是目前唯一有 bug 的软件，每周大约一次会彻底死机，要下拉通知栏进入设定页面再回到主页面然后上滑关闭微信重启解决）。
 
 
-
-
-
-
-
 -----
 
 ####  rahicis  
 ##### 1595#       发表于 2020-10-20 17:46
 
 
-
-
 比较担心5II边框会掉漆，退了灰改成蓝。
 
 犹豫晚上要不要付款中。
-
-
-
-
-
 
 
 -----
@@ -2116,21 +1447,13 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 ##### 1596#       发表于 2020-10-20 19:51
 
 
-
-
 所以现在有没有1m2的手机壳推荐？摄像头突出来感觉还是要套一个壳子
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 1597#       发表于 2020-10-20 20:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49103953&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-20 17:44</a>
@@ -2141,16 +1464,10 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 Audiopro！ 4.4！
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1598#       发表于 2020-10-20 21:33
-
 
 
 <blockquote>Cray 发表于 2020-10-20 20:31
@@ -2160,25 +1477,13 @@ Audiopro！ 4.4！</blockquote>
 是模拟 Walkman 硬件设备里的 Walkman 软件应用来体验好像真的在用 Walkman 听歌的体验吗！ XD
 
 
-
-
-
-
-
 -----
 
 ####  绚烂航迹云  
 ##### 1599#       发表于 2020-10-20 22:13
 
 
-
-
 有没有无线充电器推荐的？
-
-
-
-
-
 
 
 -----
@@ -2187,22 +1492,15 @@ Audiopro！ 4.4！</blockquote>
 ##### 1600#       发表于 2020-10-20 23:01
 
 
-
 <blockquote>绚烂航迹云 发表于 2020-10-20 22:13
 有没有无线充电器推荐的？</blockquote>
 提醒一句不要淘索尼自己之前为 XZ2/3 设计的那款立式的，感应位置不太一样，很难充上
-
-
-
-
-
 
 
 -----
 
 ####  8400gs  
 ##### 1601#       发表于 2020-10-20 23:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49106534&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-20 23:01</a>
@@ -2214,16 +1512,10 @@ Audiopro！ 4.4！</blockquote>
 我就在用这个充电器
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1602#       发表于 2020-10-20 23:15
-
 
 
 <blockquote>8400gs 发表于 2020-10-20 23:04
@@ -2234,16 +1526,10 @@ Audiopro！ 4.4！</blockquote>
 我经常刚放上去的时候能识别，但随机一段时间后就显示位置不对…要重新摆一下… 1m2。 难道是个体差异么
 
 
-
-
-
-
-
 -----
 
 ####  8400gs  
 ##### 1603#       发表于 2020-10-20 23:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49106577&amp;ptid=1915171" target="_blank">8400gs 发表于 2020-10-20 23:04</a>
@@ -2261,16 +1547,10 @@ Audiopro！ 4.4！</blockquote>
 总觉得875都快出来了x1m2价格也没有太明显下降……
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1604#       发表于 2020-10-20 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49105956&amp;ptid=1915171" target="_blank">绚烂航迹云 发表于 2020-10-20 22:13</a>
@@ -2280,17 +1560,10 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1605#       发表于 2020-10-21 00:51
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/21/004902ei5v5hlvdl7q5h58.jpg" referrerpolicy="no-referrer">
@@ -2303,23 +1576,13 @@ Audiopro！ 4.4！</blockquote>
 2020-10-21 00:49 上传
 
 
-
-
-
-
 雾草<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  绚烂航迹云  
 ##### 1606#       发表于 2020-10-21 01:24
-
 
 
  本帖最后由 绚烂航迹云 于 2020-10-21 01:37 编辑 
@@ -2334,14 +1597,7 @@ Audiopro！ 4.4！</blockquote>
 编辑：查了下，似乎手机最高支持11W，所以充电器更好也没必要吧
 
 
-
-
 ----发送自 [Sony F8332,Android 8.0.0](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -2350,15 +1606,9 @@ Audiopro！ 4.4！</blockquote>
 ##### 1607#       发表于 2020-10-21 02:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">刚在天猫补完款，想起如果在京东买不是明天就直接到货了，这天猫买的不知道得过几天才能到
 
 —— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -2367,22 +1617,15 @@ Audiopro！ 4.4！</blockquote>
 ##### 1608#       发表于 2020-10-21 02:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我草，这个双11提前购保价是个什么操作。
 
 —— 来自 HUAWEI EVA-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 1609#       发表于 2020-10-21 05:00
-
 
 
  本帖最后由 Cray 于 2020-10-21 05:03 编辑 
@@ -2397,21 +1640,13 @@ Audiopro！ 4.4！</blockquote>
 早就说过了
 
 
-
 平台券平台给不给我就不知道了。（天猫肯定油红包
-
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 1610#       发表于 2020-10-21 07:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49107990&amp;ptid=1915171" target="_blank">绚烂航迹云 发表于 2020-10-21 01:24</a>
@@ -2424,16 +1659,10 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1611#       发表于 2020-10-21 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49107059&amp;ptid=1915171" target="_blank">mhss 发表于 2020-10-20 23:52</a>
@@ -2455,37 +1684,19 @@ Audiopro！ 4.4！</blockquote>
 2020-10-21 09:31 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 1612#       发表于 2020-10-21 10:09
 
 
-
-
 有人发货了吗，我后来改到招行掌上生活貌似没有动静
-
-
-
-
-
 
 
 -----
 
 ####  月神侠  
 ##### 1613#       发表于 2020-10-21 10:12
-
 
 
  本帖最后由 月神侠 于 2020-10-21 10:14 编辑 
@@ -2505,11 +1716,6 @@ Audiopro！ 4.4！</blockquote>
 2020-10-21 10:12 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/21/101227yf5fttke5jdddkte.jpg" referrerpolicy="no-referrer">
 
 
@@ -2518,11 +1724,6 @@ Audiopro！ 4.4！</blockquote>
 下载附件
 
 2020-10-21 10:12 上传
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/21/101227naxdknlii82vvdlz.jpg" referrerpolicy="no-referrer">
@@ -2535,11 +1736,6 @@ Audiopro！ 4.4！</blockquote>
 2020-10-21 10:12 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/21/101227qg5cmhmg56464u38.jpg" referrerpolicy="no-referrer">
 
 
@@ -2550,26 +1746,13 @@ Audiopro！ 4.4！</blockquote>
 2020-10-21 10:12 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">啊啊啊！一库一库！
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  iceprince10  
 ##### 1614#       发表于 2020-10-21 10:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49110054&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-21 10:12</a>
@@ -2580,25 +1763,13 @@ Audiopro！ 4.4！</blockquote>
 这是京东吗
 
 
-
-
-
-
-
 -----
 
 ####  jzsgtx  
 ##### 1615#       发表于 2020-10-21 10:30
 
 
-
-
 草，这黑色也太好看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2607,14 +1778,7 @@ Audiopro！ 4.4！</blockquote>
 ##### 1616#       发表于 2020-10-21 10:33
 
 
-
-
 要知道买黑色了……预定的青色瞬间不香了
-
-
-
-
-
 
 
 -----
@@ -2623,23 +1787,15 @@ Audiopro！ 4.4！</blockquote>
 ##### 1617#       发表于 2020-10-21 10:58
 
 
-
-
 1Ⅱ和5Ⅱ屏幕什么调光有知道的吗？
 
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1618#       发表于 2020-10-21 10:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49110620&amp;ptid=1915171" target="_blank">提挈天地 发表于 2020-10-21 10:58</a>
@@ -2651,16 +1807,10 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  サクラ  
 ##### 1619#       发表于 2020-10-21 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49107691&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-21 00:51</a>
@@ -2671,16 +1821,10 @@ Audiopro！ 4.4！</blockquote>
 这7？99不会还是7999吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">估计买了之后把鬼灭set出掉算了
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1620#       发表于 2020-10-21 11:27
-
 
 
 <blockquote>引用第1616楼iceprince10于2020-10-21 10:23发表的  :
@@ -2692,16 +1836,10 @@ Audiopro！ 4.4！</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1621#       发表于 2020-10-21 11:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49109588&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-21 09:31</a>
@@ -2711,27 +1849,15 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  szzyf7  
 ##### 1622#       发表于 2020-10-21 11:35
 
 
-
-
 今天付尾款了，24期免息外居然还送了个减60券，东哥我再也不黑你辣
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2740,23 +1866,15 @@ Audiopro！ 4.4！</blockquote>
 ##### 1623#       发表于 2020-10-21 11:44
 
 
-
-
 官壳好好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">为什么5II没送…淘宝一看要300多呜
 
 —— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  飞翔的兔子  
 ##### 1624#       发表于 2020-10-21 14:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49113411&amp;ptid=1915171" target="_blank">ut0 发表于 2020-10-21 14:31</a>
@@ -2768,32 +1886,19 @@ Audiopro！ 4.4！</blockquote>
 两款机型的所有颜色里只有1 II是黑色磨砂玻璃材质。
 
 
-
-
-
-
-
 -----
 
 ####  rahicis  
 ##### 1625#       发表于 2020-10-21 15:06
 
 
-
-
 5 II的蓝色是磨砂就完美了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  物哀  
 ##### 1626#       发表于 2020-10-21 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49110635&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-21 10:59</a>
@@ -2803,16 +1908,10 @@ Audiopro！ 4.4！</blockquote>
 上代x1用的还是全程低频pwm调光，这代就换成高频了？ 我不信，你最好上张相机屏摄图看看
 
 
-
-
-
-
-
 -----
 
 ####  8400gs  
 ##### 1627#       发表于 2020-10-21 16:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49110620&amp;ptid=1915171" target="_blank">提挈天地 发表于 2020-10-21 10:58</a>
@@ -2824,16 +1923,10 @@ Audiopro！ 4.4！</blockquote>
 5 ii不知道，notebookcheck测的1 ii还是240hz的pwm
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1628#       发表于 2020-10-21 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49113901&amp;ptid=1915171" target="_blank">物哀 发表于 2020-10-21 15:11</a>
@@ -2845,25 +1938,13 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1629#       发表于 2020-10-21 18:36
 
 
-
-
 这52双十一会有活动吗？
-
-
-
-
-
 
 
 -----
@@ -2872,21 +1953,13 @@ Audiopro！ 4.4！</blockquote>
 ##### 1630#       发表于 2020-10-21 18:39
 
 
-
-
 提示顺丰发货了，预计明后天能拿到了
-
-
-
-
-
 
 
 -----
 
 ####  垃圾网站上  
 ##### 1631#       发表于 2020-10-21 18:54
-
 
 
  本帖最后由 垃圾网站上 于 2020-10-21 19:30 编辑 
@@ -2922,14 +1995,8 @@ Audiopro！ 4.4！</blockquote>
 此外预装app有微博，QQ音乐，百度地图
 
 
-
-
-
-
 蜂蜜浏览器_IMG_20201021_182851.png
 (784.96 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -2938,60 +2005,26 @@ Audiopro！ 4.4！</blockquote>
 2020-10-21 18:50 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/21/185031pfxyz6ftjjqojm86.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 蜂蜜浏览器_IMG_20201021_182831.png
 (825.03 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-10-21 18:50 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/21/185018cwluvd91wnrrpfld.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  垃圾网站上  
 ##### 1632#       发表于 2020-10-21 19:18
-
 
 
  本帖最后由 垃圾网站上 于 2020-10-21 19:36 编辑 
@@ -3001,16 +2034,10 @@ Audiopro！ 4.4！</blockquote>
 而且自带应用还是原生老material design那套，全面屏手势和Drawer严重冲突
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 1633#         楼主| 发表于 2020-10-21 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49116982&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-21 18:54:46</a>
@@ -3024,17 +2051,10 @@ Audiopro！ 4.4！</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  szzyf7  
 ##### 1634#       发表于 2020-10-21 20:21
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/21/202009kj228fax87274466.jpg" referrerpolicy="no-referrer">
@@ -3047,19 +2067,9 @@ Audiopro！ 4.4！</blockquote>
 2020-10-21 20:20 上传
 
 
-
-
-
-
-
 来了来了，为破处区第一高楼添砖加瓦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 现在我只想知道这破论坛到底给占了索移多少报表
-
-
-
-
-
 
 
 -----
@@ -3068,22 +2078,15 @@ Audiopro！ 4.4！</blockquote>
 ##### 1635#       发表于 2020-10-21 22:07
 
 
-
  本帖最后由 绚烂航迹云 于 2020-10-21 22:16 编辑 
 
 所以怎么在国行上搞google play全家桶？
-
-
-
-
-
 
 
 -----
 
 ####  auraria  
 ##### 1636#       发表于 2020-10-21 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49116982&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-21 18:54</a>
@@ -3096,16 +2099,10 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  loveconankid  
 ##### 1637#       发表于 2020-10-21 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49120127&amp;ptid=1915171" target="_blank">绚烂航迹云 发表于 2020-10-21 22:07</a>
@@ -3115,16 +2112,10 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 OPPO PCCM00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1638#       发表于 2020-10-21 22:38
-
 
 
 <blockquote>引用第1637楼szzyf7于2020-10-21 20:21发表的  :
@@ -3136,17 +2127,10 @@ Audiopro！ 4.4！</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 1639#       发表于 2020-10-21 23:01
-
-
 
 
 机器当天就送到了 黑色表现符合预期 给一些不懂手机的人摸着都觉得价格不菲
@@ -3155,16 +2139,10 @@ Audiopro！ 4.4！</blockquote>
 第一时间开大师模式+D65+降低残影 这么多年过去了，索尼终于给我一个满意的屏幕
 
 
-
-
-
-
-
 -----
 
 ####  kaiki_aiolos  
 ##### 1640#       发表于 2020-10-21 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49106534&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-20 23:01</a>
@@ -3173,26 +2151,15 @@ Audiopro！ 4.4！</blockquote>
 擦，我也在用
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1641#       发表于 2020-10-22 00:06
 
 
-
 <blockquote>kaiki_aiolos 发表于 2020-10-21 23:07
 擦，我也在用</blockquote>
 我现在把它横置过来，然后机身顶部那头往外侧多偏一点，好像能稳定充电，就是每次摆的时候要多一两秒，不能随心对准了放
-
-
-
-
-
 
 
 -----
@@ -3201,14 +2168,7 @@ Audiopro！ 4.4！</blockquote>
 ##### 1642#       发表于 2020-10-22 00:40
 
 
-
-
 试了一下 小米的30w立式无线充电宝可以座充，不过当充电宝的时候手机比充电宝长了一指
-
-
-
-
-
 
 
 -----
@@ -3217,23 +2177,15 @@ Audiopro！ 4.4！</blockquote>
 ##### 1643#       发表于 2020-10-22 08:03
 
 
-
-
 鬼灭手机壳怎么不单卖
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  Benthic  
 ##### 1644#       发表于 2020-10-22 12:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49120476&amp;ptid=1915171" target="_blank">loveconankid 发表于 2020-10-21 14:30</a>
@@ -3245,33 +2197,19 @@ Audiopro！ 4.4！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">想问下开机可以直接还原谷歌备份吗？谷歌框架是完整带Google Location History的吗？（搓手手.jpg
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 1645#       发表于 2020-10-22 13:09
 
 
-
-
 息屏时钟可以设定吗，我除了解锁好像没法看时间啊
-
-
-
-
-
 
 
 -----
 
 ####  asakura20005  
 ##### 1646#       发表于 2020-10-22 13:55
-
-
 
 
 灰色5m2到货了，中午稍微玩了下，分享一下google套件的情况：
@@ -3287,17 +2225,10 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  final007  
 ##### 1647#       发表于 2020-10-22 14:40
-
-
 
 
 本来定的绿色，店里摸了下果断换黑色。
@@ -3306,16 +2237,10 @@ Audiopro！ 4.4！</blockquote>
 另外贴膜会影响侧感吗？<img src="https://p.sda1.dev/0/a5caf31d29f66da6b4040912691a32d2/IMG_CMP_18355677.jpeg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不知情的人  
 ##### 1648#       发表于 2020-10-22 16:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49127709&amp;ptid=1915171" target="_blank">final007 发表于 2020-10-22 14:40</a>
@@ -3328,32 +2253,19 @@ Audiopro！ 4.4！</blockquote>
 不是这么舒服的磨砂手感，你还要带壳不就浪费了吗？
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 1649#       发表于 2020-10-22 17:59
 
 
-
-
 用了半天，其他都满意，但是自动亮度简直是傻逼嘛，少有环境变动就乱跳，只能关了了事
-
-
-
-
-
 
 
 -----
 
 ####  leystage  
 ##### 1650#       发表于 2020-10-22 18:29
-
 
 
 <blockquote>asakura20005 发表于 2020-10-22 13:55
@@ -3363,17 +2275,10 @@ Audiopro！ 4.4！</blockquote>
 话说我的手机一插 Sim 卡就不显示 feed 了，以前的禁止拿电话权限的做法好像不起效。你居然没有这个问题吗，有没有什么特殊操作？
 
 
-
-
-
-
-
 -----
 
 ####  黑糖花园  
 ##### 1651#       发表于 2020-10-22 18:32
-
-
 
 
 国行后盖没有那个垃圾桶标志吗
@@ -3383,16 +2288,10 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  asakura20005  
 ##### 1652#       发表于 2020-10-22 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49130618&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-22 18:29</a>
@@ -3402,16 +2301,10 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  サクラ  
 ##### 1653#       发表于 2020-10-22 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49123323&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-10-22 08:03</a>
@@ -3423,16 +2316,10 @@ Audiopro！ 4.4！</blockquote>
 估计咸鱼会有单出的，你要的话我之后买了也可以出你
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1654#       发表于 2020-10-22 20:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49127709&amp;ptid=1915171" target="_blank">final007 发表于 2020-10-22 14:40</a>
@@ -3446,25 +2333,13 @@ Audiopro！ 4.4！</blockquote>
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 1655#       发表于 2020-10-22 21:28
 
 
-
-
 请教下，玩游戏的时候如果开着声音会有莫名的震动这是怎么回事
-
-
-
-
-
 
 
 -----
@@ -3473,14 +2348,7 @@ Audiopro！ 4.4！</blockquote>
 ##### 1656#       发表于 2020-10-22 22:04
 
 
-
-
 这是神马骚操作，刚京东的直播可以领5II 减500的券，这原价买今天才拿到手的我情何以堪，背刺来得也太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3489,14 +2357,7 @@ Audiopro！ 4.4！</blockquote>
 ##### 1657#       发表于 2020-10-22 22:34
 
 
-
-
 什么直播？
-
-
-
-
-
 
 
 -----
@@ -3505,17 +2366,11 @@ Audiopro！ 4.4！</blockquote>
 ##### 1658#       发表于 2020-10-22 22:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49132637&amp;ptid=1915171" target="_blank">iceprince10 发表于 2020-10-22 21:28</a>
 请教下，玩游戏的时候如果开着声音会有莫名的震动这是怎么回事</blockquote>
 开了动态震动吧
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -3533,14 +2388,7 @@ Audiopro！ 4.4！</blockquote>
 CE 垃圾桶 都有
 
 
-
-
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -3549,23 +2397,16 @@ CE 垃圾桶 都有
 ##### 1660#       发表于 2020-10-23 00:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49132637&amp;ptid=1915171" target="_blank">iceprince10 发表于 2020-10-22 21:28</a>
 
 请教下，玩游戏的时候如果开着声音会有莫名的震动这是怎么回事</blockquote>
 不用怀疑，无论有没有开音频震动，只要外放声量开大手机都震
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1661#       发表于 2020-10-23 01:49
-
 
 
  本帖最后由 Cray 于 2020-10-23 01:56 编辑 
@@ -3575,24 +2416,16 @@ CE 垃圾桶 都有
 昨天19：00-21：00 直接就减500
 
 
-
 我到手就亏<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
 
 
 这样 就完全可以遇见 双11  5m2就5499了  能等的直接等吧
 
 
-
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1662#       发表于 2020-10-23 02:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49135471&amp;ptid=1915171" target="_blank">ut0 发表于 2020-10-23 02:07</a>
@@ -3603,16 +2436,10 @@ CE 垃圾桶 都有
 早就没了啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1663#       发表于 2020-10-23 06:40
-
 
 
  本帖最后由 Cray 于 2020-10-23 06:52 编辑 
@@ -3625,23 +2452,13 @@ CE 垃圾桶 都有
 有毛病得活动 坑死我们这些预定首发的   想着双11还有20多天才能做到这个价的，结果首发第二天就来。<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
-
-
 反正你们想买5m2的 能等的 就等吧  11月后价格就5400
-
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1664#       发表于 2020-10-23 08:33
-
-
 
 
 看完发布会转头就买了港版的我已经无所谓了
@@ -3651,16 +2468,10 @@ CE 垃圾桶 都有
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1665#       发表于 2020-10-23 08:42
-
 
 
 <blockquote>Cray 发表于 2020-10-23 06:40
@@ -3674,17 +2485,10 @@ CE 垃圾桶 都有
 那我等十一月以后再买 5 II…
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 1666#       发表于 2020-10-23 08:56
-
-
 
 
 突然觉得自己20号晚上退订英明无比23333
@@ -3694,16 +2498,10 @@ CE 垃圾桶 都有
 看看昨晚mate40的价格，5M2越来越香
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 1667#       发表于 2020-10-23 09:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49133464&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-10-22 22:35</a>
@@ -3715,16 +2513,10 @@ CE 垃圾桶 都有
 这个在哪里关？
 
 
-
-
-
-
-
 -----
 
 ####  zatsuza  
 ##### 1668#       发表于 2020-10-23 09:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49135821&amp;ptid=1915171" target="_blank">Cray 发表于 2020-10-23 06:40</a>
@@ -3737,16 +2529,10 @@ CE 垃圾桶 都有
 —— 来自 Realme RMX1901, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 1669#       发表于 2020-10-23 09:50
-
 
 
 <blockquote>引用第1673楼iceprince10于2020-10-23 09:02发表的  :
@@ -3760,16 +2546,10 @@ CE 垃圾桶 都有
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1670#       发表于 2020-10-23 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49137052&amp;ptid=1915171" target="_blank">zatsuza 发表于 2020-10-23 09:47</a>
@@ -3781,17 +2561,10 @@ CE 垃圾桶 都有
 <img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  狂风DKC  
 ##### 1671#       发表于 2020-10-23 12:04
-
-
 
 
 说起来帝都有没有索尼的店可以摸摸实机？三线城市正好出差过来想摸一摸死了换机的心<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
@@ -3799,17 +2572,10 @@ CE 垃圾桶 都有
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 1672#       发表于 2020-10-23 12:10
-
-
 
 
 @无与无限
@@ -3820,16 +2586,10 @@ CE 垃圾桶 都有
 太草台了，有收到的检查下内存吧
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1673#       发表于 2020-10-23 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49138843&amp;ptid=1915171" target="_blank">Tochika 发表于 2020-10-23 12:10</a>
@@ -3840,16 +2600,10 @@ CE 垃圾桶 都有
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">…………还有这种事？要怎么查看？
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1674#       发表于 2020-10-23 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49139014&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-23 12:23</a>
@@ -3859,16 +2613,10 @@ CE 垃圾桶 都有
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  MixRadio  
 ##### 1675#       发表于 2020-10-23 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49139014&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-23 12:23</a>
@@ -3877,17 +2625,10 @@ CE 垃圾桶 都有
 AIDA64就可以
 
 
-
-
-
-
-
 -----
 
 ####  绚烂航迹云  
 ##### 1676#       发表于 2020-10-23 12:29
-
-
 
 
 有点…草台
@@ -3897,17 +2638,10 @@ AIDA64就可以
 ----发送自 [Sony XQ-AT72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  MuAmUa  
 ##### 1677#       发表于 2020-10-23 12:31
-
-
 
 
 太草台了吧
@@ -3915,16 +2649,10 @@ AIDA64就可以
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1678#       发表于 2020-10-23 12:45
-
 
 
 <blockquote>狂风DKC 发表于 2020-10-23 12:04
@@ -3935,16 +2663,10 @@ AIDA64就可以
 有的，北上广成都南京好像还有个什么城市都有。具体地址搜一下索尼直营店，索尼中国的官网应该也有页面
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1679#       发表于 2020-10-23 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49138778&amp;ptid=1915171" target="_blank">狂风DKC 发表于 2020-10-23 12:04</a>
@@ -3955,27 +2677,15 @@ AIDA64就可以
 就在王府井站出来
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1680#       发表于 2020-10-23 14:02
 
 
-
-
 查了一下，是12G的没错……
 
 居然有点失望<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3984,14 +2694,7 @@ AIDA64就可以
 ##### 1681#       发表于 2020-10-23 15:09
 
 
-
-
 这个USB自动检测啥的是什么鬼，usb怎么插拔都连不上电脑
-
-
-
-
-
 
 
 -----
@@ -4000,23 +2703,15 @@ AIDA64就可以
 ##### 1682#       发表于 2020-10-23 15:17
 
 
-
-
 去实体店摸了一圈，夜砚黑的手感是真的好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  mhss  
 ##### 1683#       发表于 2020-10-23 15:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49140844&amp;ptid=1915171" target="_blank">jbjgd 发表于 2020-10-23 15:09</a>
@@ -4026,16 +2721,10 @@ AIDA64就可以
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  jbjgd  
 ##### 1684#       发表于 2020-10-23 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49140980&amp;ptid=1915171" target="_blank">mhss 发表于 2020-10-23 15:19</a>
@@ -4047,16 +2736,10 @@ AIDA64就可以
 我刚买的手机怎么可能舍得下水<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">充的进电但是连不上电脑
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1685#       发表于 2020-10-23 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49141092&amp;ptid=1915171" target="_blank">jbjgd 发表于 2020-10-23 15:27</a>
@@ -4065,16 +2748,10 @@ AIDA64就可以
 不看时间的话，说的就是我之前那台的XZP……
 
 
-
-
-
-
-
 -----
 
 ####  绚烂航迹云  
 ##### 1686#       发表于 2020-10-23 17:14
-
 
 
 <blockquote>引用第1691楼jbjgd于2020-10-23 15:27发表的  :
@@ -4088,16 +2765,10 @@ AIDA64就可以
 ----发送自 [Sony XQ-AT72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  垃圾网站上  
 ##### 1687#       发表于 2020-10-23 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49140844&amp;ptid=1915171" target="_blank">jbjgd 发表于 2020-10-23 15:09</a>
@@ -4106,17 +2777,10 @@ AIDA64就可以
 就是挑线，我用9.9两条的线没法传文件，换了条一加原装的没问题
 
 
-
-
-
-
-
 -----
 
 ####  szzyf7  
 ##### 1688#       发表于 2020-10-23 18:31
-
-
 
 
 稍微用了下，这代最强的还是拍照吧，看来是真把阿花部门的人拉来定制了，连拍一开居然有点A9的FEEL，而且我手里只是5二，1二是有一颗额外TOF的，应该更加强
@@ -4127,16 +2791,10 @@ AIDA64就可以
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1689#       发表于 2020-10-23 18:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49143338&amp;ptid=1915171" target="_blank">szzyf7 发表于 2020-10-23 18:31</a>
@@ -4145,17 +2803,10 @@ AIDA64就可以
 其实也没有全家桶，除了百度输入法是绑定的话，其他都能删光光（微博只能停用）
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1690#       发表于 2020-10-23 18:51
-
-
 
 
 想问一下用1 II的各位，电量使用起来怎么样
@@ -4164,16 +2815,10 @@ AIDA64就可以
 感觉不是很耐用啊，玩点什么看点什么一会电量就掉不少
 
 
-
-
-
-
-
 -----
 
 ####  rahicis  
 ##### 1691#       发表于 2020-10-23 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49143497&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-23 18:50</a>
@@ -4181,16 +2826,10 @@ AIDA64就可以
 百毒输入法删不掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  auraria  
 ##### 1692#       发表于 2020-10-23 18:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49140042&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-23 14:02</a>
@@ -4202,16 +2841,10 @@ AIDA64就可以
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  垃圾网站上  
 ##### 1693#       发表于 2020-10-23 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49143528&amp;ptid=1915171" target="_blank">rahicis 发表于 2020-10-23 18:53</a>
@@ -4220,17 +2853,10 @@ AIDA64就可以
 应用宝和百度输入法能停用，其它都能删，而且停用和删了也没啥区别了
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1694#       发表于 2020-10-23 19:22
-
-
 
 
 难道5m2会有12g ？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -4239,16 +2865,10 @@ AIDA64就可以
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1695#       发表于 2020-10-23 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49143511&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-23 18:51</a>
@@ -4263,16 +2883,10 @@ AIDA64就可以
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  逆袭的黑月  
 ##### 1696#       发表于 2020-10-23 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49139083&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-23 12:28</a>
@@ -4284,26 +2898,15 @@ AIDA64就可以
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我的国行设置里都没有开发者选项....
 
 
-
-
-
-
-
 -----
 
 ####  利物浦  
 ##### 1697#       发表于 2020-10-23 21:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49145153&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2020-10-23 21:29</a>
 我的国行设置里都没有开发者选项....</blockquote>
 版本号连点7下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4312,16 +2915,10 @@ AIDA64就可以
 ##### 1698#       发表于 2020-10-23 21:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49145225&amp;ptid=1915171" target="_blank">利物浦 发表于 2020-10-23 21:36</a>
 
 版本号连点7下</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谢谢了,多年不换感觉像麻瓜
-
-
-
-
-
 
 
 -----
@@ -4330,13 +2927,7 @@ AIDA64就可以
 ##### 1699#       发表于 2020-10-23 21:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又有新的神秘问题,为什么我GooglePlay上唯独chrome安装不了
-
-
-
-
-
 
 
 -----
@@ -4345,22 +2936,15 @@ AIDA64就可以
 ##### 1700#       发表于 2020-10-23 21:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49145287&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2020-10-23 21:42</a>
 又有新的神秘问题,为什么我GooglePlay上唯独chrome安装不了</blockquote>
 印象里大法手机早就抛弃自家浏览器了，直接用的chrome，所以是指不能更新么？
-
-
-
-
-
 
 
 -----
 
 ####  逆袭的黑月  
 ##### 1701#       发表于 2020-10-23 21:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49145326&amp;ptid=1915171" target="_blank">利物浦 发表于 2020-10-23 21:45</a>
@@ -4371,16 +2955,10 @@ AIDA64就可以
 我在play上点击chrome的安装按钮后完全没反应.
 
 
-
-
-
-
-
 -----
 
 ####  Benthic  
 ##### 1702#       发表于 2020-10-23 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49145287&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2020-10-23 13:42</a>
@@ -4390,25 +2968,13 @@ AIDA64就可以
 —— 来自 Google Pixel 3 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1703#       发表于 2020-10-24 01:40
 
 
-
-
 京东评价一堆差评减500的  店铺客服还回应了  我也去差评好了 看最后怎么收尾<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4417,26 +2983,17 @@ AIDA64就可以
 ##### 1704#       发表于 2020-10-24 02:28
 
 
-
-
 ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋友还是想用回索尼相册，这里分享一个可以用的索尼相册，下载：网页链接
 值得注意的是这个版本安装之后会提示有更新版下载，请不要更新，直接用就行了．https://zack.cowtransfer.com/s/21cfe78ded8d49
 
 
-
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1705#       发表于 2020-10-24 02:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49148350&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-10-24 02:28</a>
@@ -4446,27 +3003,15 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Betalo  
 ##### 1706#       发表于 2020-10-24 03:37
 
 
-
-
 啊这，我的绿色是12GB<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -4477,12 +3022,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  oskneo  
 ##### 1708#       发表于 2020-10-24 06:03
-
 
 
  本帖最后由 oskneo 于 2020-10-24 06:31 编辑 
@@ -4497,25 +3040,13 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 截图好像在PICTURE/SCREENSHOT
 
 
-
-
-
-
-
 -----
 
 ####  黑爪爪  
 ##### 1709#       发表于 2020-10-24 07:26
 
 
-
-
 国内旗舰店能摆出5兔了吗？
-
-
-
-
-
 
 
 -----
@@ -4524,14 +3055,7 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1710#       发表于 2020-10-24 08:17
 
 
-
-
 问下，现在5ii就只有京东有吗？这手机没啥送的吗？优惠有没有？双11会不会降价？
-
-
-
-
-
 
 
 -----
@@ -4540,16 +3064,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1711#       发表于 2020-10-24 08:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49148959&amp;ptid=1915171" target="_blank">wyjbnb 发表于 2020-10-24 08:17</a>
 
 问下，现在5ii就只有京东有吗？这手机没啥送的吗？优惠有没有？双11会不会降价？ ...</blockquote>
 官网也有，送的LJ东西可忽略不计，前几天有直播可减500，建议等双十一再看还有什么骚操作<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4558,21 +3076,13 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1712#       发表于 2020-10-24 08:53
 
 
-
-
 忍住了没开封，7天内要是等到500的券就去保价，不然就退货等双11。
-
-
-
-
-
 
 
 -----
 
 ####  垃圾网站上  
 ##### 1713#       发表于 2020-10-24 09:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49145394&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2020-10-23 21:52</a>
@@ -4583,27 +3093,15 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 谷歌的问题，把Android Webview更新到最新就能安装了
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1714#       发表于 2020-10-24 10:19
 
 
-
-
 52直接降价5499好了，双十一再做活动到4999
 
 现在这些后妈操作，根本就不想让人买啊
-
-
-
-
-
 
 
 -----
@@ -4612,14 +3110,7 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1715#       发表于 2020-10-24 10:32
 
 
-
-
 习惯就好，以前索尼手机可是3个月就价格腰斩的，早买早享受，迟买有折扣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4628,17 +3119,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1716#       发表于 2020-10-24 11:06
 
 
-
-
 在南京水游城 大法店员说5ii实际上已经可以买了 只是网上还不行 线下交钱就行 也不知真假
 
 
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -4647,24 +3131,16 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1717#       发表于 2020-10-24 16:37
 
 
-
-
 求助一下，电池养护马克兔我只找到自动和安排时间慢充 找不到始终限制充电80%
 
 
 是不是5马克才有的选项？
 
 
-
-
-
-
-
 -----
 
 ####  jbjgd  
 ##### 1718#       发表于 2020-10-24 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49143511&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-23 18:51</a>
@@ -4676,16 +3152,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 这么巧，我也是，感觉要一天两充
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1719#       发表于 2020-10-24 17:06
-
 
 
 <blockquote>淡定君 发表于 2020-10-24 16:37
@@ -4696,16 +3166,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 好像是的，5m2 有，1m2 没有。神奇的设定…
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1720#       发表于 2020-10-24 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49153766&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-24 17:06</a>
@@ -4717,25 +3181,13 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1721#       发表于 2020-10-24 19:48
 
 
-
-
 咕咕相册的确丝滑。。 手势有点不习惯
-
-
-
-
-
 
 
 -----
@@ -4744,22 +3196,14 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1722#       发表于 2020-10-24 20:12
 
 
-
-
 线下摸了下，感觉俩大小差不多，，，不过5ii的120确实爽
 可能是我的手被半斤给玩坏了，摸啥机子都感觉轻薄
-
-
-
-
-
 
 
 -----
 
 ####  淡定君  
 ##### 1723#       发表于 2020-10-24 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49155085&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-24 19:11</a>
@@ -4774,17 +3218,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 毕竟宁德的电池 怕寿命和三星的差不多
 
 
-
-
-
-
-
 -----
 
 ####  黑糖花园  
 ##### 1724#       发表于 2020-10-24 21:30
-
-
 
 
 折腾了一天似乎什么都没做到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -4793,16 +3230,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1725#       发表于 2020-10-24 21:33
-
 
 
 <blockquote>我很费纸 发表于 2020-10-24 19:11
@@ -4813,17 +3244,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 销…销量高了就有钱请程序员快点修bug了 XD
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1726#       发表于 2020-10-24 23:09
-
-
 
 
 国行首摔~不是我<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
@@ -4838,9 +3262,6 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 2020-10-24 23:07 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/24/230710dc842vbfmvbb67mv.jpg" referrerpolicy="no-referrer">
 
 
@@ -4849,12 +3270,6 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 下载附件
 
 2020-10-24 23:07 上传
-
-
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/24/230710zm5c2q5bq5szd9sc.jpg" referrerpolicy="no-referrer">
@@ -4867,11 +3282,6 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 2020-10-24 23:07 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/24/230711citrn9gxdb9tffd6.jpg" referrerpolicy="no-referrer">
 
 
@@ -4882,25 +3292,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 2020-10-24 23:07 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1727#       发表于 2020-10-24 23:18
-
-
 
 
 这是摔车了吧 …
@@ -4909,27 +3304,15 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Betalo  
 ##### 1728#       发表于 2020-10-24 23:23
 
 
-
-
 哇日，我XZP砸过几次都没爆玻璃，不知道马克兔1相比XZP抗摔能力会弱多少
 
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -4938,17 +3321,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1729#       发表于 2020-10-25 01:43
 
 
-
-
 这是在马路上蹭的吧
 当初我x1骑车时从兜里掉出来也只是磕坏了边框一角
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -4957,23 +3333,15 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1730#       发表于 2020-10-25 01:49
 
 
-
-
 前天装了Google全家桶后负一屏出来了但只有个搜索栏，查了一下启动Google feed挺麻烦的就没搞，谁知刚重启后直接给我推内容了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  jzsgtx  
 ##### 1731#       发表于 2020-10-25 07:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49159629&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-25 01:49</a>
@@ -4983,17 +3351,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 1732#       发表于 2020-10-25 13:28
-
-
 
 
 负一屏和feed昨天还好好的，今天睡一觉起来就登录状态异常了。<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">干脆把Google卸了，反正也不是太必须
@@ -5001,16 +3362,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  黑糖花园  
 ##### 1733#       发表于 2020-10-25 13:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49160265&amp;ptid=1915171" target="_blank">ut0 发表于 2020-10-25 04:27</a>
@@ -5020,16 +3375,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1734#       发表于 2020-10-25 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49159629&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-25 01:49</a>
@@ -5041,16 +3390,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  垃圾网站上  
 ##### 1735#       发表于 2020-10-25 14:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49163918&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-25 14:31</a>
@@ -5062,16 +3405,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 我插着一张移动一张电信自己冒出来的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">，搞不好哪天又没了，不过有没有影响不大，我在其它机器上就没怎么用过负一屏~
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1736#       发表于 2020-10-25 14:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49163973&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-25 14:38</a>
@@ -5081,27 +3418,15 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  序曲  
 ##### 1737#       发表于 2020-10-25 15:12
 
 
-
-
 插卡用feed是个迷，基本上来说非国行很难做到，除非root
 
 国行反而可以插卡用feed，因为不是内置app，我手头的一加跟三棒都可以，甚至都不需要什么特别设置
-
-
-
-
-
 
 
 -----
@@ -5110,14 +3435,7 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1738#       发表于 2020-10-25 15:39
 
 
-
-
 国行商城那个7?99点进去是7999，还会低吗，想下单了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5126,14 +3444,7 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1739#       发表于 2020-10-25 16:27
 
 
-
-
 国行默认不带“Google”这个App，自己安装的话默认不给电话权限，所以读不到运营商信息，能用国内SIM卡，目前看来是这样
-
-
-
-
-
 
 
 -----
@@ -5142,15 +3453,9 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1740#       发表于 2020-10-25 16:53
 
 
-
 <blockquote>onemoment 发表于 2020-10-25 15:39
 国行商城那个7?99点进去是7999，还会低吗，想下单了</blockquote>
 前面楼里看到说好像就是7799，跟现在老用户官网发-200券其实是一样的？ 不过也难保索尼中国会不会搞出什么奇葩操作…
-
-
-
-
-
 
 
 -----
@@ -5159,16 +3464,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1741#       发表于 2020-10-25 17:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49165158&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-25 16:53</a>
 
 前面楼里看到说好像就是7799，跟现在老用户官网发-200券其实是一样的？ 不过也难保索尼中国会不会搞出什 ...</blockquote>
 谢谢，往前面翻领到了卷，已下单了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5177,14 +3476,7 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1742#       发表于 2020-10-26 00:40
 
 
-
-
 1马克兔还是买那个磨砂黑吧 是真的好看
-
-
-
-
-
 
 
 -----
@@ -5193,16 +3485,9 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1743#       发表于 2020-10-26 01:39
 
 
-
-
 能不能单买个磨砂后盖，我想给港版换上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -5211,16 +3496,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1744#       发表于 2020-10-26 06:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49164418&amp;ptid=1915171" target="_blank">onemoment 发表于 2020-10-25 15:39</a>
 
 国行商城那个7?99点进去是7999，还会低吗，想下单了</blockquote>
 淘宝一堆卖国行的都只要9折左右甚至还更便宜<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5229,21 +3508,13 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1745#       发表于 2020-10-26 09:23
 
 
-
-
 请教下x1m2双卡的话切换运营商网络怎么切，打电话好像只能默认卡1，要拨出后才能在界面切卡2
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1746#       发表于 2020-10-26 10:09
-
 
 
  本帖最后由 我很费纸 于 2020-10-26 23:32 编辑 
@@ -5255,16 +3526,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 1747#       发表于 2020-10-26 11:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49106781&amp;ptid=1915171" target="_blank">8400gs 发表于 2020-10-20 23:22</a>
@@ -5276,17 +3541,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 我是XZ2在年初港版入的1m2，但是你这时间节点……确实很尴尬。
 
 
-
-
-
-
-
 -----
 
 ####  lolozp  
 ##### 1748#       发表于 2020-10-26 11:58
-
-
 
 
 我的xperia1 24免息分期买的= =哈哈哈哈
@@ -5295,16 +3553,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 然后买了一周就跌破屏幕了，再等一年吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1749#       发表于 2020-10-26 15:20
-
 
 
 <img src="http://wx2.sinaimg.cn/large/5c92654cgy1gk2r3hychmj248w2e04qs.jpg" referrerpolicy="no-referrer">
@@ -5312,16 +3564,10 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">终于收到了！月砚黑真是太美了！我心中的2020年最佳手机！特指月砚黑！
 
 
-
-
-
-
-
 -----
 
 ####  韭菜  
 ##### 1750#       发表于 2020-10-26 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49177374&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-10-26 15:20</a>
@@ -5333,25 +3579,13 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 1751#       发表于 2020-10-26 16:54
 
 
-
-
 黑的好像也是指纹收集器，我买的绿的也是。心累，背膜买了两家的都不怎么行
-
-
-
-
-
 
 
 -----
@@ -5360,15 +3594,9 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1752#       发表于 2020-10-26 19:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这马达的调教，真是废物的可以，从pixel转回来真的接受不了
 
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -5377,23 +3605,16 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ##### 1753#       发表于 2020-10-26 22:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">想问一下国行的1M2和5M2除了屏幕尺寸、分辨率、ram、itof、无线充电之外，还有啥区别吗？1M2目前还没有120Hz吧
 
 
 还有就是想问索尼现在这种类原生的系统，不root、不装类似黑域这种app的情况下，能管理好各种国产app自启动、互相唤醒啥的吗？
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1754#       发表于 2020-10-26 23:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49182872&amp;ptid=1915171" target="_blank">ljwlwd 发表于 2020-10-26 22:54</a>
@@ -5405,16 +3626,10 @@ Android 10自带的杀后台能力不差（需要长按app，进入软件详情�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1755#       发表于 2020-10-26 23:44
-
 
 
 <blockquote>引用第1762楼ljwlwd于2020-10-26 22:54发表的  :
@@ -5426,16 +3641,10 @@ Android 10自带的杀后台能力不差（需要长按app，进入软件详情�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1756#       发表于 2020-10-26 23:51
-
 
 
 <blockquote>ljwlwd 发表于 2020-10-26 22:54
@@ -5462,25 +3671,13 @@ Android 10自带的杀后台能力不差（需要长按app，进入软件详情�
 这次用了不爽可以路转黑，等五年假如索尼还做手机再来试试嘛（笑）
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1757#       发表于 2020-10-27 00:19
 
 
-
-
 回错帖子了还行
-
-
-
-
-
 
 
 -----
@@ -5489,24 +3686,16 @@ Android 10自带的杀后台能力不差（需要长按app，进入软件详情�
 ##### 1758#       发表于 2020-10-27 08:26
 
 
-
-
 各位老铁，我的国行5ii为啥在部分app里看视频时候媒体音量没法调啊，音量条能拖动，但是声音总是一样大，直到拖到静音就真静音了。
 
 
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1759#       发表于 2020-10-27 09:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49185400&amp;ptid=1915171" target="_blank">hgvghv7tr7 发表于 2020-10-27 08:26</a>
@@ -5516,25 +3705,13 @@ Android 10自带的杀后台能力不差（需要长按app，进入软件详情�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  maverickhunter  
 ##### 1760#       发表于 2020-10-27 09:01
 
 
-
-
 港版X10-2这个月更新了之后频繁重启可怎么办啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5543,16 +3720,10 @@ Android 10自带的杀后台能力不差（需要长按app，进入软件详情�
 ##### 1761#       发表于 2020-10-27 09:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49185686&amp;ptid=1915171" target="_blank">maverickhunter 发表于 2020-10-27 09:01</a>
 
 港版X10-2这个月更新了之后频繁重启可怎么办啊</blockquote>
 Xperia Companion修复试试，现在的Xperia Companion好像可以不删除用户数据修复系统了
-
-
-
-
-
 
 
 -----
@@ -5561,16 +3732,9 @@ Xperia Companion修复试试，现在的Xperia Companion好像可以不删除用
 ##### 1762#       发表于 2020-10-27 09:50
 
 
-
-
 看了一圈晒图，磨砂的夜砚黑真好看啊，没有人权的美版用户表示羡慕
 
 — from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -5579,21 +3743,13 @@ Xperia Companion修复试试，现在的Xperia Companion好像可以不删除用
 ##### 1763#       发表于 2020-10-27 09:57
 
 
-
-
 请问5 II的960fps还是被阉割的吗?
-
-
-
-
-
 
 
 -----
 
 ####  ljwlwd  
 ##### 1764#       发表于 2020-10-27 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49183543&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-26 23:51</a>
@@ -5606,16 +3762,10 @@ Xperia Companion修复试试，现在的Xperia Companion好像可以不删除用
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">这么看下来1m2贵那一千多对我完全没吸引力啊。。。软件还滞后
 
 
-
-
-
-
-
 -----
 
 ####  maverickhunter  
 ##### 1765#       发表于 2020-10-27 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49186177&amp;ptid=1915171" target="_blank">jzsgtx 发表于 2020-10-27 09:48</a>
@@ -5624,17 +3774,10 @@ Xperia Companion修复试试，现在的Xperia Companion好像可以不删除用
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hgvghv7tr7  
 ##### 1766#       发表于 2020-10-27 10:32
-
-
 
 
 小众的，aniapps（动画聚合），海星模拟器。
@@ -5643,16 +3786,10 @@ Xperia Companion修复试试，现在的Xperia Companion好像可以不删除用
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1767#       发表于 2020-10-27 10:53
-
 
 
 <blockquote>ljwlwd 发表于 2020-10-27 10:10
@@ -5666,17 +3803,10 @@ Xperia Companion修复试试，现在的Xperia Companion好像可以不删除用
 索尼在小城市售后不行的情况估计没变，甚至在上海，这几年售后也差了很多。1m2 楼里也提到，网上港版有听说会掉漆？我白色用了五个月还没遇到，不知道是不是和颜色有关
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1768#       发表于 2020-10-27 12:16
-
-
 
 
 请教一下各位，有没有轻巧一点的天气App和记事本APP？
@@ -5688,16 +3818,10 @@ Xperia Companion修复试试，现在的Xperia Companion好像可以不删除用
 另外，请教一下I 马克吐怎么修改短信提醒**？我修改了通知**，但是每次短信进来已让是系统的提示音……
 
 
-
-
-
-
-
 -----
 
 ####  绚烂航迹云  
 ##### 1769#       发表于 2020-10-27 12:21
-
 
 
 <blockquote>引用第1777楼飞翔的兔子于2020-10-27 12:16发表的  :
@@ -5712,25 +3836,13 @@ google play有，开发商是sony mobile communication
 ----发送自 [Sony XQ-AT72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  用户名已注册  
 ##### 1770#       发表于 2020-10-27 12:22
 
 
-
-
 1 ii的黑色很漂亮，就是贵了点~
-
-
-
-
-
 
 
 -----
@@ -5739,21 +3851,13 @@ google play有，开发商是sony mobile communication
 ##### 1771#       发表于 2020-10-27 12:40
 
 
-
-
 突发奇想曲线解决了没有通话录音的问题<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，虽然我是从来不用啦
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1772#       发表于 2020-10-27 12:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49186287&amp;ptid=1915171" target="_blank">Lisylfn 发表于 2020-10-27 09:57</a>
@@ -5763,25 +3867,13 @@ google play有，开发商是sony mobile communication
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1773#       发表于 2020-10-27 13:46
 
 
-
-
 12GB 内存识别错误确认是软件的问题，物理硬件是 12GB 没有任何问题，索尼这边已经确认过了，因此各位不需要再去查硬件，相关说明会在近期查清楚之后发出。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5790,23 +3882,15 @@ google play有，开发商是sony mobile communication
 ##### 1774#       发表于 2020-10-27 14:03
 
 
-
-
 诸君那到底是买1m2合适还是5m2合适？国行还是港版？还是等等党……感觉我这xzp坚持不了多久了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  leystage  
 ##### 1775#       发表于 2020-10-27 14:25
-
 
 
 <blockquote>飞翔的兔子 发表于 2020-10-27 12:16
@@ -5821,16 +3905,10 @@ google play有，开发商是sony mobile communication
 只有几百k大小，绝对不流氓，启动，打字，关闭自动保存
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1776#       发表于 2020-10-27 14:28
-
 
 
 <blockquote>Diamond-Princes 发表于 2020-10-27 14:03
@@ -5852,17 +3930,10 @@ google play有，开发商是sony mobile communication
 等等肯定会更便宜，看你能等多久了。
 
 
-
-
-
-
-
 -----
 
 ####  Betalo  
 ##### 1777#       发表于 2020-10-27 14:55
-
-
 
 
 高刷对我个人来说是噱头，一有主机和PC、不玩手游；二是不写写画画，真要的话有iPad Pro，所以没有严格的动态场景需求，我选择60Hz人眼补帧换1m2<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
@@ -5870,16 +3941,10 @@ google play有，开发商是sony mobile communication
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 1778#       发表于 2020-10-27 15:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49190346&amp;ptid=1915171" target="_blank">Betalo 发表于 2020-10-27 14:55</a>
@@ -5890,16 +3955,10 @@ OLED高刷对眼睛好，和什么游戏动态场面无关。
 眼睛敏感的人看OLED的高刷会舒服很多，低刷就不成。一般人会好一些，但是看久了也会有不适。
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1779#       发表于 2020-10-27 15:19
-
 
 
 <blockquote>EFSF 发表于 2020-10-27 15:08
@@ -5911,16 +3970,10 @@ OLED高刷对眼睛好，和什么游戏动态场面无关。
 一个是画面变化的刷新率，一个是画面显示的刷新率？
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1780#       发表于 2020-10-27 15:45
-
 
 
 <blockquote>引用第1781楼我很费纸于2020-10-27 12:51发表的  :
@@ -5934,16 +3987,10 @@ OLED高刷对眼睛好，和什么游戏动态场面无关。
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 1781#       发表于 2020-10-27 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49190772&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-27 15:19</a>
@@ -5954,16 +4001,10 @@ OLED高刷对眼睛好，和什么游戏动态场面无关。
 一个是画面的帧率，一个是背光的频闪频率
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1782#       发表于 2020-10-27 16:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49188100&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-27 12:16</a>
@@ -5976,16 +4017,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1783#       发表于 2020-10-27 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49191666&amp;ptid=1915171" target="_blank">mhss 发表于 2020-10-27 16:09</a>
@@ -5997,16 +4032,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  8400gs  
 ##### 1784#       发表于 2020-10-27 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49182872&amp;ptid=1915171" target="_blank">ljwlwd 发表于 2020-10-26 22:54</a>
@@ -6018,16 +4047,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 所以正常情况下是不要想了
 
 
-
-
-
-
-
 -----
 
 ####  mhss  
 ##### 1785#       发表于 2020-10-27 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49191710&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-27 16:11</a>
@@ -6039,16 +4062,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 —— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1786#       发表于 2020-10-27 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49189901&amp;ptid=1915171" target="_blank">leystage 发表于 2020-10-27 14:28</a>
@@ -6064,32 +4081,19 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 1787#       发表于 2020-10-27 16:54
 
 
-
-
 那个....关于NFC门禁卡复制之类的..大家有没啥解决方案?
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1788#       发表于 2020-10-27 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49192381&amp;ptid=1915171" target="_blank">dllplayer 发表于 2020-10-27 16:54</a>
@@ -6099,32 +4103,19 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 1789#       发表于 2020-10-27 21:24
 
 
-
-
 我买了小米手环NFC版，结果门卡加密的也没法用<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1790#       发表于 2020-10-27 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49196035&amp;ptid=1915171" target="_blank">Tochika 发表于 2020-10-27 21:24</a>
@@ -6134,16 +4125,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 1791#       发表于 2020-10-27 23:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49197093&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-27 22:47</a>
@@ -6155,16 +4140,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 是的，所以意思就是这个功能还得看卡能不能复制<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  ivly  
 ##### 1792#       发表于 2020-10-27 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49188410&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-27 12:40</a>
@@ -6174,16 +4153,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 —— 来自 realme RMX2121, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  好多大象啊  
 ##### 1793#       发表于 2020-10-28 00:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49196035&amp;ptid=1915171" target="_blank">Tochika 发表于 2020-10-27 21:24</a>
@@ -6191,16 +4164,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 加密卡可以考虑 nfc读取非加密扇区然后写入，挺多门禁识别根本不处理加密部分的
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1794#       发表于 2020-10-28 00:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49197669&amp;ptid=1915171" target="_blank">ivly 发表于 2020-10-27 23:45</a>
@@ -6212,16 +4179,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 大概是游戏控制器
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1795#       发表于 2020-10-28 06:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49197669&amp;ptid=1915171" target="_blank">ivly 发表于 2020-10-27 23:45</a>
@@ -6233,16 +4194,10 @@ pure天气挺不错的，后续好像加了广告，我目前用的还是7.2.2�
 ACR
 
 
-
-
-
-
-
 -----
 
 ####  黑城舞夏  
 ##### 1796#       发表于 2020-10-28 08:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49197093&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-10-27 22:47</a>
@@ -6250,16 +4205,10 @@ ACR
 看情况的，我门卡原先不能复制，某次手机系统更新之后就可以了，绿厂手机
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 1797#       发表于 2020-10-28 13:22
-
 
 
  本帖最后由 dllplayer 于 2020-10-28 13:23 编辑 
@@ -6272,22 +4221,15 @@ ACR
 额..意思就是现在的5m2是没戏的?
 
 
-
 那么还有个事情...哪位能提取一下1M2的黑色的动态壁纸啊..
 
 5M2的黑色根本是挂羊头卖狗肉啊
-
-
-
-
-
 
 
 -----
 
 ####  dllplayer  
 ##### 1798#       发表于 2020-10-28 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49188169&amp;ptid=1915171" target="_blank">绚烂航迹云 发表于 2020-10-27 12:21</a>
@@ -6300,16 +4242,10 @@ google play有，开发商是sony mobile communication</blockquote>
 5M2 港行 索尼自家天气不支持了
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1799#       发表于 2020-10-28 22:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49199738&amp;ptid=1915171" target="_blank">黑城舞夏 发表于 2020-10-28 08:49</a>
@@ -6321,16 +4257,10 @@ google play有，开发商是sony mobile communication</blockquote>
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1800#       发表于 2020-10-28 22:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49202935&amp;ptid=1915171" target="_blank">dllplayer 发表于 2020-10-28 13:22</a>
@@ -6340,17 +4270,10 @@ google play有，开发商是sony mobile communication</blockquote>
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  asakura20005  
 ##### 1801#       发表于 2020-10-29 17:02
-
-
 
 
 因为5m2直播优惠券的事前几天在京东留了个差评，刚才京东来电说会补偿300元京豆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -6358,16 +4281,10 @@ google play有，开发商是sony mobile communication</blockquote>
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1802#       发表于 2020-10-29 17:15
-
 
 
  本帖最后由 月神侠 于 2020-10-29 17:18 编辑 
@@ -6385,10 +4302,6 @@ google play有，开发商是sony mobile communication</blockquote>
 2020-10-29 17:16 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202010/29/171445q6gqdtdksnhxm6dt.jpg" referrerpolicy="no-referrer">
 
 
@@ -6397,10 +4310,6 @@ google play有，开发商是sony mobile communication</blockquote>
 下载附件
 
 2020-10-29 17:14 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202010/29/171444bwadbn9oiolrrbm9.jpg" referrerpolicy="no-referrer">
@@ -6413,22 +4322,10 @@ google play有，开发商是sony mobile communication</blockquote>
 2020-10-29 17:14 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  rahicis  
 ##### 1803#       发表于 2020-10-29 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49218503&amp;ptid=1915171" target="_blank">asakura20005 发表于 2020-10-29 17:02</a>
@@ -6438,16 +4335,10 @@ google play有，开发商是sony mobile communication</blockquote>
 我忍不下这口气，直接退货了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  序曲  
 ##### 1804#       发表于 2020-10-29 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49188100&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-27 12:16</a>
@@ -6461,16 +4352,10 @@ accuweather，缺点微件比较西特，优点功能全，通知栏常驻比较
 google keep，牛批
 
 
-
-
-
-
-
 -----
 
 ####  szzyf7  
 ##### 1805#       发表于 2020-10-29 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49218503&amp;ptid=1915171" target="_blank">asakura20005 发表于 2020-10-29 17:02:42</a>
@@ -6479,16 +4364,10 @@ google keep，牛批
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 1806#       发表于 2020-10-29 22:21
-
 
 
  本帖最后由 淡定君 于 2020-10-29 22:26 编辑 
@@ -6508,17 +4387,10 @@ X1实际日常是类似2k的状态下跑，未来有没有90HZ120HZ不知道 60h
 认为手机应该自己管，受够国产私货和各种死亡开关搞事，自己做上帝的用户，可以买。
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1807#       发表于 2020-10-30 06:29
-
-
 
 
 5兔的壳 重新买了个超薄透明的 还行 19块
@@ -6529,27 +4401,15 @@ X1实际日常是类似2k的状态下跑，未来有没有90HZ120HZ不知道 60h
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1808#       发表于 2020-10-30 11:00
 
 
-
-
 看到一家买1兔的透明壳，好象是目前看到唯一一个对镜头有完整保护的
 
 只是会让镜头部分额外突出一点点……
-
-
-
-
-
 
 
 -----
@@ -6558,24 +4418,16 @@ X1实际日常是类似2k的状态下跑，未来有没有90HZ120HZ不知道 60h
 ##### 1809#       发表于 2020-10-30 22:52
 
 
-
-
 各位有好的壁纸软件或者网址分享吗
 
 
 ----发送自 [Sony XQ-AT72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 1810#       发表于 2020-10-30 23:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49235725&amp;ptid=1915171" target="_blank">iceprince10 发表于 2020-10-30 22:52</a>
@@ -6587,25 +4439,13 @@ X1实际日常是类似2k的状态下跑，未来有没有90HZ120HZ不知道 60h
 微软的必应壁纸系列 或者直接换微软桌面
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1811#       发表于 2020-10-31 16:35
 
 
-
-
 5兔的贴膜有推荐的嘛  现在的贴膜包不到边 。。割手<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6614,17 +4454,10 @@ X1实际日常是类似2k的状态下跑，未来有没有90HZ120HZ不知道 60h
 ##### 1812#       发表于 2020-10-31 20:58
 
 
-
-
 x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装谷歌套件的步骤还是和x1一样吗？
 
 
 ----发送自 [Sony J9110,Android 10](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -6633,21 +4466,13 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ##### 1813#       发表于 2020-10-31 21:03
 
 
-
-
 一冲动买了台1 ii，明天到货看看，如果不喜欢就二手区~
-
-
-
-
-
 
 
 -----
 
 ####  flymop  
 ##### 1814#       发表于 2020-10-31 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49188100&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-27 12:16</a>
@@ -6659,32 +4484,19 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 记事本：有google 框架的上KEEP，没的上微软to do
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1815#       发表于 2020-10-31 23:47
 
 
-
-
 天气直接用老索尼的天气就可以了啊
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 1816#       发表于 2020-10-31 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49243415&amp;ptid=1915171" target="_blank">みかこし 发表于 2020-10-31 20:58</a>
@@ -6699,17 +4511,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 就少个商店app  自己装个就好。。
 
 
-
-
-
-
-
 -----
 
 ####  moesuika!!  
 ##### 1817#       发表于 2020-11-1 09:52
-
-
 
 
 国行1ii的夜砚黑也太好看了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
@@ -6718,26 +4523,15 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 —— 来自 Sony G8441, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 1818#       发表于 2020-11-1 12:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这就7699了，天猫是要怎么价保啊
 
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -6746,14 +4540,7 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ##### 1819#       发表于 2020-11-1 13:17
 
 
-
-
 52降价了吗？
-
-
-
-
-
 
 
 -----
@@ -6762,24 +4549,16 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ##### 1820#       发表于 2020-11-1 19:15
 
 
-
-
 国行和港行系统除了支付、google和NFC还有别的区别吗?
 我记得国行系统能支持google play和框架吧，预装软件有什么恶心的地方吗?
 
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Betalo  
 ##### 1821#       发表于 2020-11-1 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49251985&amp;ptid=1915171" target="_blank">Rafale 发表于 2020-11-1 19:15</a>
@@ -6792,17 +4571,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 内置Google Play services，预装软件很少且可卸载可禁用，干净得一比。
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1822#       发表于 2020-11-1 23:31
-
-
 
 
 其实吧  还是不是很干净 
@@ -6818,16 +4590,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  Rafale  
 ##### 1823#       发表于 2020-11-1 23:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49254285&amp;ptid=1915171" target="_blank">Cray 发表于 2020-11-1 23:31</a>
@@ -6839,16 +4605,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 —— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1824#       发表于 2020-11-1 23:45
-
 
 
 <blockquote>引用第1832楼Rafale于2020-11-01 23:32发表的  :
@@ -6866,16 +4626,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  Betalo  
 ##### 1825#       发表于 2020-11-2 02:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49254285&amp;ptid=1915171" target="_blank">Cray 发表于 2020-11-1 23:31</a>
@@ -6888,16 +4642,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 1826#       发表于 2020-11-2 02:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49254285&amp;ptid=1915171" target="_blank">Cray 发表于 2020-11-1 23:31</a>
@@ -6915,16 +4663,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 头几天机器内有气泡 按一下就消失了，挺好
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1827#       发表于 2020-11-2 07:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49255205&amp;ptid=1915171" target="_blank">Betalo 发表于 2020-11-2 02:39</a>
@@ -6943,26 +4685,13 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 2020-11-2 07:18 上传
 
 
-
-
-
-
-
 就这个破东西。。。。没想到最新的还有。。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1828#       发表于 2020-11-2 07:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49251985&amp;ptid=1915171" target="_blank">Rafale 发表于 2020-11-1 19:15</a>
@@ -6973,16 +4702,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1829#       发表于 2020-11-2 07:57
-
 
 
 <blockquote>Rafale 发表于 2020-11-1 23:32
@@ -6995,16 +4718,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 港版系统也在不知道哪里藏了个百度…
 
 
-
-
-
-
-
 -----
 
 ####  用户名已注册  
 ##### 1830#       发表于 2020-11-2 09:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49243449&amp;ptid=1915171" target="_blank">用户名已注册 发表于 2020-10-31 21:03</a>
@@ -7013,33 +4730,19 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 已挂二手区
 
 
-
-
-
-
-
 -----
 
 ####  jbjgd  
 ##### 1831#       发表于 2020-11-2 09:23
 
 
-
-
 有人在国行1ii上成功运行过ps4 remote吗
-
-
-
-
-
 
 
 -----
 
 ####  飞翔的兔子  
 ##### 1832#       发表于 2020-11-2 10:29
-
-
 
 
 求助求助：
@@ -7052,24 +4755,13 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 头疼
 
 
-
-
-
-
-
 -----
 
 ####  逆袭的黑月  
 ##### 1833#       发表于 2020-11-2 11:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">天猫索尼客服说1 ii降300没保价，我他妈服了索尼了
-
-
-
-
-
 
 
 -----
@@ -7078,23 +4770,15 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ##### 1834#       发表于 2020-11-2 15:02
 
 
-
-
 1ii港版支付宝不能指纹吧
 
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  MuAmUa  
 ##### 1835#       发表于 2020-11-2 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49259608&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-11-2 15:02</a>
@@ -7106,16 +4790,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 1836#         楼主| 发表于 2020-11-3 00:09
-
 
 
  本帖最后由 被雨困住的城市 于 2020-11-3 00:10 编辑 
@@ -7127,25 +4805,13 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1837#       发表于 2020-11-3 00:26
 
 
-
-
 北京券哪里领？
-
-
-
-
-
 
 
 -----
@@ -7154,23 +4820,16 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ##### 1838#       发表于 2020-11-3 02:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49264902&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-11-3 00:09</a>
 
 喷啦，1ii和5ii可以用北京券</blockquote>
 开卖的时候就可以用的。。就是减400块钱
 
 
-
-
-
-
-
 -----
 
 ####  net13p  
 ##### 1839#       发表于 2020-11-3 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49260027&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-11-2 15:41</a>
@@ -7182,16 +4841,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 啥?居然支持微信指纹支付了?大法工程师被从路灯上放下来了?
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 1840#       发表于 2020-11-3 10:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49267463&amp;ptid=1915171" target="_blank">net13p 发表于 2020-11-3 10:48</a>
@@ -7202,16 +4855,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 “那边还有空位的路灯是给即将入职的诸位准备的”
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1841#       发表于 2020-11-3 11:38
-
 
 
 <blockquote>net13p 发表于 2020-11-3 10:48
@@ -7229,16 +4876,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 这不是索尼的工程师技术水平不行，写了什么bug，才不支持微信支付宝指纹。一边是兼容非标指纹增加销量，一边是坚持标准指纹不要销量，索尼的决策层之前一直选了后者罢了
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1842#       发表于 2020-11-3 11:42
-
 
 
 <blockquote>leystage 发表于 2020-11-3 11:38
@@ -7248,17 +4889,10 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 这是站在工程师角度的推测。假如内幕其实是腾讯只向对它支付指纹识别授权费的硬件才启用指纹支付功能，这类更加与技术无关的原因，好像也不是完全不可能。。。类似于过路费了，想让用户可以用你的手机指纹支付微信，就要打钱。
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 1843#       发表于 2020-11-3 15:04
-
-
 
 
 问两个问题..求助
@@ -7268,26 +4902,15 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 另一个问题是...怎么设置黑屏时指纹是按电源键后检测而不是触摸后检测..Z5和XZ1的时候是先亮屏后检测..感觉很OK...5M2改成直接检测了..误触导致30秒无法解锁的问题非常严重
 
 
-
-
-
-
-
 -----
 
 ####  Nanachi  
 ##### 1844#       发表于 2020-11-3 19:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明年双十一我再来看看
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -7296,14 +4919,7 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ##### 1845#       发表于 2020-11-3 21:00
 
 
-
-
 700收了个xepria10 体验一下21：9看看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 不知道你索明年有没有机会出16或18：9的compact
-
-
-
-
-
 
 
 -----
@@ -7312,23 +4928,15 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ##### 1846#       发表于 2020-11-3 21:22
 
 
-
-
 有个好消息 1m2的twrp好像已经做好了
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  MuAmUa  
 ##### 1847#       发表于 2020-11-3 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49273903&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-11-3 21:22</a>
@@ -7340,24 +4948,13 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  wyjbnb  
 ##### 1848#       发表于 2020-11-3 23:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都什么时候了？来个x5ii的免息啊！我咬咬牙就买了，结果到现在一点优惠都没
-
-
-
-
-
 
 
 -----
@@ -7366,22 +4963,15 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 ##### 1849#       发表于 2020-11-4 03:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">索尼的天猫客服太摸了,平均两小时回一句 四五句换个人。折腾一天半终于给我退了300差价
 
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  黑之月  
 ##### 1850#       发表于 2020-11-4 03:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49256128&amp;ptid=1915171" target="_blank">jbjgd 发表于 2020-11-2 09:23</a>
@@ -7392,16 +4982,10 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  好多大象啊  
 ##### 1851#       发表于 2020-11-4 09:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49268075&amp;ptid=1915171" target="_blank">leystage 发表于 2020-11-3 11:42</a>
@@ -7412,16 +4996,10 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 国内at独大，就只用自己的api，包括推送，切换程序，生物认证。手机厂也没办法。
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1852#       发表于 2020-11-4 09:17
-
 
 
 <blockquote>好多大象啊 发表于 2020-11-4 09:05
@@ -7431,16 +5009,10 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 不过感谢补充说明，我前面的说法确实不确切。
 
 
-
-
-
-
-
 -----
 
 ####  不知情的人  
 ##### 1853#       发表于 2020-11-4 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49264902&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-11-3 00:09</a>
@@ -7449,16 +5021,10 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 为啥我用不了
 
 
-
-
-
-
-
 -----
 
 ####  allenz2  
 ##### 1854#       发表于 2020-11-4 12:40
-
 
 
 [https://www.bilibili.com/video/BV1Sp4y1k7mY](https://www.bilibili.com/video/BV1Sp4y1k7mY)
@@ -7467,25 +5033,13 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 5ii是480hz的pwm调光，比一般的OLED手机强点
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1855#       发表于 2020-11-6 03:15
 
 
-
-
 哦对了。。摄影大师那个点击对焦要开af-s才可以。 af-c是不行的
-
-
-
-
-
 
 
 -----
@@ -7494,16 +5048,9 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 ##### 1856#       发表于 2020-11-6 08:19
 
 
-
-
 摔了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -7512,23 +5059,16 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 ##### 1857#         楼主| 发表于 2020-11-6 09:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49294751&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-11-06 08:19:37</a>
 摔了 v2.4.3</blockquote>摸摸你
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  allenz2  
 ##### 1858#       发表于 2020-11-6 09:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49294751&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-11-6 08:19</a>
@@ -7540,31 +5080,19 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 默哀
 
 
-
-
-
-
-
 -----
 
 ####  狂风DKC  
 ##### 1859#       发表于 2020-11-6 10:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> X1用户借地问问，昨天开始突然指纹解锁不见了是怎么肥死，就手指按上去啥反应都没，在设置里也找不到指纹设置，懵了
-
-
-
-
-
 
 
 -----
 
 ####  jbjgd  
 ##### 1860#       发表于 2020-11-6 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49294751&amp;ptid=1915171" target="_blank">黑糖花园 发表于 2020-11-6 08:19</a>
@@ -7576,16 +5104,10 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 噔噔咚
 
 
-
-
-
-
-
 -----
 
 ####  oskneo  
 ##### 1861#       发表于 2020-11-6 13:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49260027&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-11-2 15:41</a>
@@ -7597,16 +5119,10 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1862#       发表于 2020-11-6 13:44
-
 
 
 <blockquote>oskneo 发表于 2020-11-6 13:26
@@ -7617,16 +5133,10 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 Play 版好像还不支持微信指纹支付
 
 
-
-
-
-
-
 -----
 
 ####  allenz2  
 ##### 1863#       发表于 2020-11-6 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49298380&amp;ptid=1915171" target="_blank">leystage 发表于 2020-11-6 13:44</a>
@@ -7635,17 +5145,10 @@ Play 版好像还不支持微信指纹支付</blockquote>
 我就下的play版，可以
 
 
-
-
-
-
-
 -----
 
 ####  黑糖花园  
 ##### 1864#       发表于 2020-11-6 18:15
-
-
 
 
 这时候就想到挂绳孔的好了，z5p那会儿有个挂件无名指正好能穿过去
@@ -7653,17 +5156,10 @@ Play 版好像还不支持微信指纹支付</blockquote>
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1865#       发表于 2020-11-6 23:13
-
-
 
 
 搞个带洞的手机壳吧。
@@ -7674,26 +5170,15 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1866#       发表于 2020-11-6 23:17
 
 
-
 <blockquote>allenz2 发表于 2020-11-6 16:20
 我就下的play版，可以</blockquote>
 神奇… 难道不同语言还不一样… 我的微信界面语言不是中文
-
-
-
-
-
 
 
 -----
@@ -7702,21 +5187,13 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ##### 1867#       发表于 2020-11-6 23:17
 
 
-
-
 话说 Docomo 给 5 II 出了一个紫色来着
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 1868#       发表于 2020-11-7 00:27
-
 
 
 <blockquote>引用第1876楼leystage于2020-11-06 23:17发表的  :
@@ -7728,25 +5205,13 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 1869#       发表于 2020-11-7 00:47
 
 
-
-
 瞬间不想看双十一5II优惠了，等紫色<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7755,17 +5220,10 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ##### 1870#       发表于 2020-11-7 15:28
 
 
-
-
 这次最大的负优化是短信了，多了一个完全没意义的快捷回复，不小心点到了还会发送出去
 
 
 没验证码自动复制就算了，还加了这么麻烦的玩意，屏幕本来就是细长，点中的几率不注意还是挺高的
-
-
-
-
-
 
 
 -----
@@ -7774,16 +5232,9 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ##### 1871#       发表于 2020-11-7 19:26
 
 
-
-
 5ii有办法微信分身吗？
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -7792,23 +5243,15 @@ Play 版好像还不支持微信指纹支付</blockquote>
 ##### 1872#       发表于 2020-11-7 20:21
 
 
-
-
 马克兔人1目前距离感应器有个很难受的问题：接电话时，屏幕一直莫名其妙地亮了又暗、暗了又亮循环。。。
 
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1873#       发表于 2020-11-7 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49311939&amp;ptid=1915171" target="_blank">后会无期 发表于 2020-11-7 19:26</a>
@@ -7820,16 +5263,10 @@ Play 版好像还不支持微信指纹支付</blockquote>
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  后会无期  
 ##### 1874#       发表于 2020-11-7 22:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314368&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-7 22:57</a>
@@ -7841,16 +5278,10 @@ Play 版好像还不支持微信指纹支付</blockquote>
 这软件安全吗，读取第二个微信信息可能性大不大。。
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1875#       发表于 2020-11-7 23:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314383&amp;ptid=1915171" target="_blank">后会无期 发表于 2020-11-7 22:58</a>
@@ -7860,16 +5291,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  后会无期  
 ##### 1876#       发表于 2020-11-7 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314485&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-07 23:08:36</a>
@@ -7878,16 +5303,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 1877#         楼主| 发表于 2020-11-7 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314485&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-07 23:08:36</a>
@@ -7896,16 +5315,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1878#       发表于 2020-11-8 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314807&amp;ptid=1915171" target="_blank">后会无期 发表于 2020-11-7 23:39</a>
@@ -7917,16 +5330,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1879#       发表于 2020-11-8 00:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49314839&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-11-7 23:42</a>
@@ -7938,17 +5345,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  LabiosDelCielo  
 ##### 1880#       发表于 2020-11-8 16:59
-
-
 
 
 去摸了摸两款新机差点没气死，比起我手上的xperia1简直吊打…
@@ -7956,16 +5356,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1881#       发表于 2020-11-8 17:17
-
 
 
 <blockquote>LabiosDelCielo 发表于 2020-11-8 16:59
@@ -7994,17 +5388,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 我觉得 1 II 算是打下了索尼之后两年旗舰的基准。
 
 
-
-
-
-
-
 -----
 
 ####  happyliuhao  
 ##### 1882#       发表于 2020-11-8 17:29
-
-
 
 
 试了试好像华为的充电器没法给52充电？
@@ -8013,32 +5400,19 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ----发送自 [HUAWEI TAS-AN00,Android 10](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  红茶提督  
 ##### 1883#       发表于 2020-11-8 18:27
 
 
-
-
 双11上哪家买比较好？还是等等党明年再买？
-
-
-
-
-
 
 
 -----
 
 ####  tsounaiq  
 ##### 1884#       发表于 2020-11-8 20:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49321839&amp;ptid=1915171" target="_blank">happyliuhao 发表于 2020-11-8 17:29</a>
@@ -8051,16 +5425,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 — from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1885#       发表于 2020-11-8 22:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49321735&amp;ptid=1915171" target="_blank">leystage 发表于 2020-11-8 17:17</a>
@@ -8073,16 +5441,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1886#       发表于 2020-11-8 23:53
-
 
 
 <blockquote>引用第1894楼我很费纸于2020-11-08 22:01发表的  :
@@ -8096,17 +5458,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1887#       发表于 2020-11-9 06:05
-
-
 
 
 哈哈哈 5兔好像有12G版
@@ -8116,16 +5471,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 1888#         楼主| 发表于 2020-11-9 07:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49329324&amp;ptid=1915171" target="_blank">Cray 发表于 2020-11-09 06:05:11</a>
@@ -8134,16 +5483,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1889#       发表于 2020-11-9 09:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49329324&amp;ptid=1915171" target="_blank">Cray 发表于 2020-11-9 06:05</a>
@@ -8152,16 +5495,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ？？？
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1890#       发表于 2020-11-9 09:12
-
 
 
 <blockquote>Cray 发表于 2020-11-8 23:53
@@ -8174,16 +5511,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 7寸是 Ultra 回归？
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 1891#       发表于 2020-11-9 10:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49330184&amp;ptid=1915171" target="_blank">leystage 发表于 2020-11-9 09:12</a>
@@ -8195,25 +5526,13 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 1892#       发表于 2020-11-9 10:21
 
 
-
-
 你们是常开4k分辨率吗，说实话我用了微软桌面，然后梯子常驻后台，开阿里系的有点卡啊。。
-
-
-
-
-
 
 
 -----
@@ -8222,14 +5541,7 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ##### 1893#       发表于 2020-11-9 13:20
 
 
-
-
 终于等到大屏了吗<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8238,22 +5550,15 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 ##### 1894#       发表于 2020-11-9 14:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49329324&amp;ptid=1915171" target="_blank">Cray 发表于 2020-11-9 06:05</a>
 哈哈哈 5兔好像有12G版</blockquote>
 5兔12G貌似只有日版有？
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 1895#       发表于 2020-11-9 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49329423&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-11-9 07:08</a>
@@ -8265,17 +5570,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 被家里人拿去了， 他拿去拍猫了。<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hippias  
 ##### 1896#       发表于 2020-11-10 12:08
-
-
 
 
 刚刚系统更新了，有人知道更新什么了吗？
@@ -8283,16 +5581,10 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 1897#       发表于 2020-11-10 12:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49345177&amp;ptid=1915171" target="_blank">hippias 发表于 2020-11-10 12:08</a>
@@ -8309,25 +5601,13 @@ ZACKBUKS
 大概是这个吧
 
 
-
-
-
-
-
 -----
 
 ####  Betalo  
 ##### 1898#       发表于 2020-11-10 12:51
 
 
-
-
 我吐了，还好看了眼更新说明，不然没解除禁用百度输入法不就人傻了
-
-
-
-
-
 
 
 -----
@@ -8336,16 +5616,9 @@ ZACKBUKS
 ##### 1899#       发表于 2020-11-10 15:59
 
 
-
-
 草，还好我低头看了眼更新信息。赶紧断网把百度输入法打开。
 
 什么毛病更新个系统还非要打开预装的百度输入法。
-
-
-
-
-
 
 
 -----
@@ -8354,16 +5627,9 @@ ZACKBUKS
 ##### 1900#       发表于 2020-11-10 16:42
 
 
-
-
 犹豫症买前最后一问，双sim卡使用如何？能清晰分辨和调整来电、短信、上网是哪个卡吗？
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8372,23 +5638,15 @@ ZACKBUKS
 ##### 1901#       发表于 2020-11-10 17:34
 
 
-
-
 更新后感觉指纹识别度严重下降<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">....
 
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1902#       发表于 2020-11-10 20:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49348290&amp;ptid=1915171" target="_blank">后会无期 发表于 2020-11-10 16:42</a>
@@ -8400,16 +5658,10 @@ ZACKBUKS
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  后会无期  
 ##### 1903#       发表于 2020-11-10 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49350650&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-11-10 20:18:23</a>
@@ -8418,17 +5670,10 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1904#       发表于 2020-11-10 21:27
-
-
 
 
 哈哈  5兔保价了 ……当初何必呢 …
@@ -8437,32 +5682,19 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1905#       发表于 2020-11-10 21:50
 
 
-
-
 1兔双十一直降500，5兔双十一直降300，之前买的可以申请保价<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1906#       发表于 2020-11-11 02:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49351396&amp;ptid=1915171" target="_blank">后会无期 发表于 2020-11-10 21:14</a>
@@ -8476,16 +5708,10 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  scstriker  
 ##### 1907#       发表于 2020-11-11 10:38
-
 
 
  本帖最后由 scstriker 于 2020-11-11 13:03 编辑 
@@ -8493,14 +5719,8 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 解决了
 
 
-
-
-
-
 微信图片_20201111103705.png
 (83.82 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -8509,27 +5729,11 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 2020-11-11 10:37 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/11/103736emmdyioain5c1xdw.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 微信图片_20201111103705.png
 (83.82 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -8538,24 +5742,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 2020-11-11 10:38 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202011/11/103803acit3ibs3q7qsa7r.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -8564,25 +5751,16 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1908#       发表于 2020-11-13 10:10
 
 
-
-
 5m2 有人和我一样自动勿扰后不会自动解除的么
 
 
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  用户名已注册  
 ##### 1909#       发表于 2020-11-13 10:56
-
-
 
 
 看了下5 ii有点动心，说续航好像还不错的样子，iOS正好有点用腻了，1 ii体验过还是太大了，夜砚黑质感很好就是太滑。
@@ -8592,27 +5770,15 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 不打手机游戏不拍照（说不定真买了5 ii会偶尔拍拍照和视频，不然大师软件浪费了不是，反正也闲着没啥事）。
 
 
-
-
-
-
-
 -----
 
 ####  后会无期  
 ##### 1910#       发表于 2020-11-13 15:06
 
 
-
-
 有没有5兔会莫名其妙进飞行模式？是误触的原因吗？
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8621,21 +5787,14 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1911#       发表于 2020-11-13 15:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">在无码兔和一码兔之间犹豫不定，这回真是不错~~
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">一码兔的话国行和港版也是要取舍一下
-
-
-
-
-
 
 
 -----
 
 ####  后会无期  
 ##### 1912#       发表于 2020-11-13 15:41
-
 
 
  本帖最后由 后会无期 于 2020-11-14 19:15 编辑 
@@ -8645,25 +5804,13 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  wenze  
 ##### 1913#       发表于 2020-11-14 22:51
 
 
-
-
 你们有出现过1马克兔开启杜比音效后，音量开到四分之三起播放低音时就开始破音吗
-
-
-
-
-
 
 
 -----
@@ -8672,14 +5819,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1914#       发表于 2020-11-15 03:44
 
 
-
-
 开到四分之三耳朵还要不要了
-
-
-
-
-
 
 
 -----
@@ -8688,21 +5828,13 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1915#       发表于 2020-11-15 06:48
 
 
-
-
 搭车出个港行马克图吧，戴套贴膜，7月在绅士买的，4500左右有人有意么？对了，港行用不了5g
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1916#       发表于 2020-11-15 09:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49382252&amp;ptid=1915171" target="_blank">后会无期 发表于 2020-11-13 15:41</a>
@@ -8712,17 +5844,10 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  アーチェ  
 ##### 1917#       发表于 2020-11-15 09:47
-
-
 
 
 5兔国行还是只能京东买么？有希望降价么？
@@ -8731,26 +5856,15 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ----发送自 [HUAWEI PCT-AL10,Android 10](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  wenze  
 ##### 1918#       发表于 2020-11-15 12:34
 
 
-
 <blockquote>黑糖花园 发表于 2020-11-15 03:44
 开到四分之三耳朵还要不要了</blockquote>
 我还以为只有我这个手机调大音量时声音特别大并且破音，毕竟网上各种讨论都没提到这个问题。。。
-
-
-
-
-
 
 
 -----
@@ -8759,16 +5873,10 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1919#       发表于 2020-11-15 21:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49399269&amp;ptid=1915171" target="_blank">wenze 发表于 2020-11-15 12:34</a>
 
 我还以为只有我这个手机调大音量时声音特别大并且破音，毕竟网上各种讨论都没提到这个问题。。。 ...</blockquote>
 你放自带的那个hires音乐看看。。不然也比较不了啊。。
-
-
-
-
-
 
 
 -----
@@ -8777,15 +5885,9 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1920#       发表于 2020-11-15 21:34
 
 
-
 <blockquote>Cray 发表于 2020-11-15 21:21
 你放自带的那个hires音乐看看。。不然也比较不了啊。。</blockquote>
 我刚刚测了一下，我发现无论开关杜比音效都有那个滋滋声，包括自带的那首hires也有这也问题。。。然后开关动态震动时也会有这样滋~的一声
-
-
-
-
-
 
 
 -----
@@ -8794,15 +5896,9 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1921#       发表于 2020-11-15 21:35
 
 
-
 <blockquote>Cray 发表于 2020-11-15 21:21
 你放自带的那个hires音乐看看。。不然也比较不了啊。。</blockquote>
 我刚刚测了一下，我发现无论开关杜比音效都有那个滋滋声，包括自带的那首hires也有这也问题。。。然后开关动态震动时也会有这样滋~的一声
-
-
-
-
-
 
 
 -----
@@ -8811,16 +5907,9 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1922#       发表于 2020-11-15 22:16
 
 
-
-
 话说5m2是不是没法添加Nx1的桌面小部件啊
 
 很多放上去时占一行，然后瞬间就变2行了，显得空荡荡的，我都要崩溃了……
-
-
-
-
-
 
 
 -----
@@ -8829,14 +5918,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1923#       发表于 2020-11-16 13:59
 
 
-
-
 闲鱼上有号称京东备机的5.2，标价5099，靠谱么？
-
-
-
-
-
 
 
 -----
@@ -8845,16 +5927,10 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1924#       发表于 2020-11-16 14:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49410247&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2020-11-16 13:59</a>
 闲鱼上有号称京东备机的5.2，标价5099，靠谱么？</blockquote>
 下午在咸鱼上搜到过个4900的，发际线堪忧的强迫症老哥（会是泥潭潭友么）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/0/62250f686aaf358d7f51d01df8c2bcf8/IMG_CMP_128488651.jpeg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8863,16 +5939,10 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1925#       发表于 2020-11-16 15:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49397397&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-11-15 06:48</a>
 
 搭车出个港行马克图吧，戴套贴膜，7月在绅士买的，4500左右有人有意么？对了，港行用不了5g ...</blockquote>
 港版也可以5G，我刷了国行的ROM，就可以双卡5G了
-
-
-
-
-
 
 
 -----
@@ -8881,14 +5951,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1926#       发表于 2020-11-16 15:55
 
 
-
-
 话说有没有人推荐一下5（非5兔）的手机壳，之前看微博上那个官方索吹Z什么的，推荐过什么撸背壳（似乎是这个名字），看着挺不错的，不知道有没有适用于X5（非兔）的，或者大家有什么好的推荐嘛
-
-
-
-
-
 
 
 -----
@@ -8897,15 +5960,9 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1927#       发表于 2020-11-16 16:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49411362&amp;ptid=1915171" target="_blank">封印之矢 发表于 2020-11-16 15:55</a>
 话说有没有人推荐一下5（非5兔）的手机壳，之前看微博上那个官方索吹Z什么的，推荐过什么撸背壳（似乎是这 ...</blockquote>
 做了1没做5，做了5ii没做1ii，也是拧巴得很<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8914,16 +5971,10 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1928#       发表于 2020-11-16 16:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49411469&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-11-16 16:04</a>
 
 做了1没做5，做了5ii没做1ii，也是拧巴得很</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">好吧，那5没什么好的壳推荐么
-
-
-
-
-
 
 
 -----
@@ -8932,23 +5983,16 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1929#       发表于 2020-11-16 20:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49404102&amp;ptid=1915171" target="_blank">wenze 发表于 2020-11-15 21:35</a>
 
 我刚刚测了一下，我发现无论开关杜比音效都有那个滋滋声，包括自带的那首hires也有这也问题。。。然后开 ...</blockquote>
 我的好像没有 但是。。3/4的音量我耳朵已经要炸了。。。破音什么的就破吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  后会无期  
 ##### 1930#       发表于 2020-11-17 20:31
-
 
 
  本帖最后由 后会无期 于 2020-11-17 20:33 编辑 
@@ -8958,25 +6002,13 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  用户名已注册  
 ##### 1931#       发表于 2020-11-18 11:24
 
 
-
-
 5 ii国行一直没货么...咸鱼上找了个现货全新未开封带票便宜300就先买了...
-
-
-
-
-
 
 
 -----
@@ -8985,14 +6017,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1932#       发表于 2020-11-18 11:37
 
 
-
-
 话说我发现了微信在 1 II 上假死的契机了…  网络环境发生变化时如果打开微信，就有不小概率微信假死。解决方法是下拉通知栏点击齿轮进入设置，再上滑打开最近程序列表，关闭微信，重新启动
-
-
-
-
-
 
 
 -----
@@ -9001,14 +6026,7 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 ##### 1933#       发表于 2020-11-19 22:55
 
 
-
-
 ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小瓶旗舰啊，要是价格再下来点就想把手上的xr换了
-
-
-
-
-
 
 
 -----
@@ -9017,14 +6035,7 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1934#       发表于 2020-11-20 08:17
 
 
-
-
 为什么咸鱼上卖1的比5的多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9033,14 +6044,7 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1935#       发表于 2020-11-25 16:29
 
 
-
-
 尝试用island炼妖壶双开微信，能进界面但是输完密码登录后就黑屏闪退，有人有处理经验吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9049,21 +6053,13 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1936#       发表于 2020-11-25 18:38
 
 
-
-
 索尼这个命名真的是。。。这几天挑手机老是记不住哪个是新款
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 1937#       发表于 2020-11-25 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49515606&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-11-25 16:29</a>
@@ -9073,13 +6069,9 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -9089,12 +6081,7 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 | leyenda| + 2|成功了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -9103,16 +6090,9 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1938#         楼主| 发表于 2020-11-25 19:01
 
 
-
-
 闲鱼上又有1ii和5ii的退货机啦，6300块和5000块
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9121,23 +6101,15 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1939#       发表于 2020-11-26 10:14
 
 
-
-
 收到更新推送了，才200兆 
 
 版本58.0.A.28.17  不知道更新了啥
-
-
-
-
-
 
 
 -----
 
 ####  leystage  
 ##### 1940#       发表于 2020-11-26 11:24
-
 
 
 <blockquote>噗哩噗 发表于 2020-11-25 18:38
@@ -9152,16 +6124,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 目前值得买的只有今年的第二代，也就是高端的 1 II 和次高端的 5 II
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 1941#       发表于 2020-11-26 11:25
-
 
 
 <blockquote>楠芽吹 发表于 2020-11-26 10:14
@@ -9171,27 +6137,15 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 索尼的更新主要是错误修正和性能优化，就跟 Windows 自动更新一样，所以其实不太需要关心更新了啥，不会有什么功能上的增加
 
 
-
-
-
-
-
 -----
 
 ####  Nanachi  
 ##### 1942#       发表于 2020-11-26 11:43
 
 
-
-
 退货机还行，5ii的二手降价到4000了吗
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -9200,21 +6154,13 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1943#       发表于 2020-11-26 14:56
 
 
-
-
 咸鱼有没有比较靠谱的分辨方法或者卖家，？确实蛮多的。。退货机的话有心动的
-
-
-
-
-
 
 
 -----
 
 ####  噗哩噗  
 ##### 1944#       发表于 2020-11-26 15:50
-
 
 
 <blockquote>leystage 发表于 2020-11-26 11:24
@@ -9228,25 +6174,13 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 那我也等等看III
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 1945#       发表于 2020-11-26 15:53
 
 
-
-
 今年等Ⅲ，明年等Ⅳ，永远都在等<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9255,16 +6189,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1946#       发表于 2020-11-26 16:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49526701&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-11-26 15:53</a>
 
 今年等Ⅲ，明年等Ⅳ，永远都在等</blockquote>
 手持XZ1C除了容量太小其他都还在正常运作啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9273,14 +6201,7 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1947#       发表于 2020-11-26 17:01
 
 
-
-
 话说XZ2C升安卓10以后有没有打开volte的办法？
-
-
-
-
-
 
 
 -----
@@ -9289,15 +6210,9 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1948#       发表于 2020-11-26 17:34
 
 
-
 <blockquote>噗哩噗 发表于 2020-11-26 16:51
 手持XZ1C除了容量太小其他都还在正常运作啊</blockquote>
 没事儿，等等党会笑到最后。就算每年 III 索尼脑子被门夹了给搞砸了，也能实惠价格入 II，亏不了
-
-
-
-
-
 
 
 -----
@@ -9306,21 +6221,13 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1949#       发表于 2020-11-27 00:29
 
 
-
-
 我就是从xz1c转5m2的，感觉还是太大了，拿不住，还是xz1c拿着舒服……
-
-
-
-
-
 
 
 -----
 
 ####  lc122448  
 ##### 1950#       发表于 2020-11-27 00:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49532238&amp;ptid=1915171" target="_blank">wizardasd 发表于 2020-11-27 00:29</a>
@@ -9333,16 +6240,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 —— 来自 vivo V1829A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
-
-
-
-
-
 -----
 
 ####  噗哩噗  
 ##### 1951#       发表于 2020-11-27 00:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49532238&amp;ptid=1915171" target="_blank">wizardasd 发表于 2020-11-27 00:29</a>
@@ -9353,25 +6254,13 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 之前有消息说明年又有c了？
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1952#       发表于 2020-11-27 01:41
 
 
-
-
 想问一下马克兔有没有比较推荐的贴膜呢？3d全覆盖什么的一堆。。不知道咋买。。
-
-
-
-
-
 
 
 -----
@@ -9380,15 +6269,9 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1953#       发表于 2020-11-27 05:38
 
 
-
  本帖最后由 噗哩噗 于 2020-11-27 07:28 编辑 
 
 英亚原来折到599了，欧版系统和港版有什么不同吗
-
-
-
-
-
 
 
 -----
@@ -9397,16 +6280,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1954#       发表于 2020-11-27 14:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49532719&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-27 01:41</a>
 
 想问一下马克兔有没有比较推荐的贴膜呢？3d全覆盖什么的一堆。。不知道咋买。。 ...</blockquote>
 小小鱼雷的玻璃前膜，尺寸挺完美的
-
-
-
-
-
 
 
 -----
@@ -9415,16 +6292,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1955#       发表于 2020-11-28 01:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49537950&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-11-27 14:41</a>
 
 小小鱼雷的玻璃前膜，尺寸挺完美的</blockquote>
 黑边膜，屏幕会小一点点
-
-
-
-
-
 
 
 -----
@@ -9433,16 +6304,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1956#         楼主| 发表于 2020-11-28 01:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49525936&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-26 14:56:01</a>
 咸鱼有没有比较靠谱的分辨方法或者卖家，？确实蛮多的。。退货机的话有心动的 ...</blockquote>退货机就那么几家卖的啊……
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9451,23 +6316,16 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 ##### 1957#       发表于 2020-11-28 01:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49544723&amp;ptid=1915171" target="_blank">月神侠 发表于 2020-11-28 01:19</a>
 
 黑边膜，屏幕会小一点点</blockquote>
 我前天刚贴，100块的做的很准，没贴歪的话一点不遮
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1958#       发表于 2020-11-28 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49544727&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-11-28 01:20</a>
@@ -9479,16 +6337,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 买了5888的
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1959#       发表于 2020-11-28 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49544738&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-11-28 01:22</a>
@@ -9499,16 +6351,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 自己贴感觉手残。。有那个贴膜神器会不会好一点？
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 1960#       发表于 2020-11-28 12:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49546556&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-28 11:24</a>
@@ -9519,16 +6365,10 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 买了没用实际操作很容易中途位移，反正就主要怕灰，去尘少的浴室慢慢对准再压实就好
 
 
-
-
-
-
-
 -----
 
 ####  失眠的考拉  
 ##### 1961#       发表于 2020-11-28 22:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49546549&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-28 11:23</a>
@@ -9537,32 +6377,19 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 猛士，看了半天不敢下手，等回馈
 
 
-
-
-
-
-
 -----
 
 ####  圣斗士美羽  
 ##### 1962#       发表于 2020-11-28 23:04
 
 
-
-
 SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83元含税直邮
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 1963#       发表于 2020-11-28 23:50
-
 
 
  本帖最后由 DGIL 于 2020-11-28 23:51 编辑 
@@ -9580,16 +6407,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 。也不是什么热门机。。
 
 
-
-
-
-
-
 -----
 
 ####  失眠的考拉  
 ##### 1964#       发表于 2020-11-29 10:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49552599&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-11-28 23:50</a>
@@ -9602,26 +6423,15 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 劝你百度下关键词，我感觉是不靠谱，还不如再等等
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1965#       发表于 2020-11-29 12:23
 
 
-
 <blockquote>失眠的考拉 发表于 2020-11-29 10:15
 劝你百度下关键词，我感觉是不靠谱，还不如再等等</blockquote>
 能私一下关键词看看么。。谢谢
-
-
-
-
-
 
 
 -----
@@ -9630,14 +6440,7 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1966#       发表于 2020-11-29 17:21
 
 
-
-
 手持G8142 XZP的来问一下，这港版X1 II支持移动5G不？
-
-
-
-
-
 
 
 -----
@@ -9646,15 +6449,9 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1967#       发表于 2020-11-29 19:49
 
 
-
 <blockquote>DGIL 发表于 2020-11-29 12:23
 能私一下关键词看看么。。谢谢</blockquote>
 咸鱼+京东七日，反正都说水深
-
-
-
-
-
 
 
 -----
@@ -9663,17 +6460,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1968#       发表于 2020-11-30 20:54
 
 
-
-
 话说x5m2没有自带的日历应用吗？
 今天发现更新了个“中国节假日”的功能，但是没日历不知道要怎么用啊……
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -9682,21 +6472,13 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1969#       发表于 2020-12-1 00:01
 
 
-
-
 上一台索尼还是xz1c，那个确实没法用。。问下国行的话，能锁住后台吗？微信在后台列表里杀掉了能收到消息吗？各种需要软件支持的手环手表，能稳定使用么
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 1970#       发表于 2020-12-1 00:15
-
 
 
 <blockquote>引用第1975楼法皇干政于2020-11-29 17:21发表的  :
@@ -9708,16 +6490,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1971#       发表于 2020-12-1 00:18
-
 
 
 <blockquote>引用第1978楼9-11-2001于2020-12-01 00:01发表的  :
@@ -9732,16 +6508,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  9-11-2001  
 ##### 1972#       发表于 2020-12-1 00:24
-
 
 
 <blockquote>Cray 发表于 2020-12-1 00:18
@@ -9751,17 +6521,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 换句话说国行的话微信就是系统级白名单，启动了就能收到消息是吧。。。手环类软件可以通过后台列表锁住，然后电池之类的设置一番达到稳定后台的是吗？
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1973#       发表于 2020-12-1 00:37
-
-
 
 
 所以这个“中国节假日”功能更新的截图里这个日历到底是什么应用？
@@ -9771,16 +6534,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1974#       发表于 2020-12-1 00:39
-
 
 
 <blockquote>引用第1981楼9-11-2001于2020-12-01 00:24发表的  :
@@ -9792,16 +6549,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  逆袭的黑月  
 ##### 1975#       发表于 2020-12-1 01:20
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用了段时间了,感觉就3个问题
@@ -9816,16 +6567,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 另外转手机时候好像那个红外检测显示时间的功能频繁触发时可能会导致屏幕偶尔闪一下 
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 1976#       发表于 2020-12-1 07:53
-
 
 
 <blockquote>引用第1984楼逆袭的黑月于2020-12-01 01:20发表的  :
@@ -9839,24 +6584,13 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  失眠的考拉  
 ##### 1977#       发表于 2020-12-1 10:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天叠加天龙人券京东7099，看来月底进6500不是梦
-
-
-
-
-
 
 
 -----
@@ -9865,14 +6599,7 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1978#       发表于 2020-12-1 11:00
 
 
-
-
 这个日历app在哪里下<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9881,16 +6608,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1979#       发表于 2020-12-1 12:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49574169&amp;ptid=1915171" target="_blank">allenz2 发表于 2020-12-1 11:00</a>
 
 这个日历app在哪里下</blockquote>
 谷歌市场里有。。
-
-
-
-
-
 
 
 -----
@@ -9899,14 +6620,7 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1980#       发表于 2020-12-1 12:21
 
 
-
-
 这代最迷惑的是计算器没了，市场里也找不到，不知道在干嘛
-
-
-
-
-
 
 
 -----
@@ -9915,16 +6629,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1981#       发表于 2020-12-1 12:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575095&amp;ptid=1915171" target="_blank">roydimus 发表于 2020-12-1 12:20</a>
 
 谷歌市场里有。。</blockquote>
 没找到，只有一个不让你装的天气
-
-
-
-
-
 
 
 -----
@@ -9933,23 +6641,16 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1982#       发表于 2020-12-1 13:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575107&amp;ptid=1915171" target="_blank">roydimus 发表于 2020-12-1 12:21</a>
 
 这代最迷惑的是计算器没了，市场里也找不到，不知道在干嘛</blockquote>
 我的一兔自带有计算器啊
 
 
-
-
-
-
-
 -----
 
 ####  roydimus  
 ##### 1983#       发表于 2020-12-1 14:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575356&amp;ptid=1915171" target="_blank">allenz2 发表于 2020-12-1 12:43</a>
@@ -9960,16 +6661,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 天气好像可以用网页版硬装进去
 
 
-
-
-
-
-
 -----
 
 ####  roydimus  
 ##### 1984#       发表于 2020-12-1 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49575948&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2020-12-1 13:49</a>
@@ -9978,16 +6673,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">版本问题？我这没有，市场里也找不到xzp自带的那个索尼的。。
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 1985#       发表于 2020-12-1 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49576124&amp;ptid=1915171" target="_blank">roydimus 发表于 2020-12-1 14:06</a>
@@ -9998,17 +6687,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 不是应用市场也不是谷歌市场
 
 
-
-
-
-
-
 -----
 
 ####  runningch  
 ##### 1986#       发表于 2020-12-1 16:24
-
-
 
 
 人在东南亚，经历了漫长的国际转运，我终于也拿到港版一马兔了。但是买的时候是56xx，等运到手的时候已经变成54xx了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">。摄影大师和电影大师再慢慢摸索吧。另外，外放也比预想中的要出色得多。
@@ -10017,16 +6699,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1987#       发表于 2020-12-1 19:31
-
 
 
  本帖最后由 DGIL 于 2020-12-1 19:33 编辑 
@@ -10039,25 +6715,13 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 顺便请教一下，有什么是不是有什么调教方法能用得更舒服？
 
 
-
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1988#       发表于 2020-12-1 19:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没玩过单反。。摄影大师和拍照不会弄，自动都要找一找。。
-
-
-
-
-
 
 
 -----
@@ -10066,21 +6730,13 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1989#       发表于 2020-12-1 20:28
 
 
-
-
 我手残党遇到贴膜懵逼了，大家是出去找帮贴膜的店解决的吗。。？
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 1990#       发表于 2020-12-1 23:37
-
 
 
 <blockquote>引用第1997楼DGIL于2020-12-01 19:33发表的  :
@@ -10095,16 +6751,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  失眠的考拉  
 ##### 1991#       发表于 2020-12-2 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49579166&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-12-1 19:33</a>
@@ -10113,16 +6763,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 成色怎么样有坑不，你b站搜摄瘾研究所，虽然是x1的电影大师评测不过我觉得可以参考
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1992#       发表于 2020-12-2 00:43
-
 
 
  本帖最后由 DGIL 于 2020-12-2 00:46 编辑 
@@ -10131,16 +6775,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 可能运气好，外观成色新得让人感动，大概试了一下各种功能，没啥异常，目前还没插电话卡投入实用，明天打算吧贴膜整好正常使用试试，点进摄影大师各种不会用
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1993#       发表于 2020-12-2 00:46
-
 
 
 <blockquote>Cray 发表于 2020-12-1 23:37
@@ -10151,16 +6789,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 好的，谢谢，没弄过，看到那么多参数一脸懵逼
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 1994#       发表于 2020-12-2 10:31
-
 
 
  本帖最后由 DGIL 于 2020-12-2 14:56 编辑 
@@ -10174,19 +6806,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 我决定买这个！不成功则成仁。日本贴膜这个，用包装盒固定贴膜的方法，比什么贴膜神器靠谱多了应该可以救命[https://www.youtube.com/watch?v=v_mnwLttTME](https://www.youtube.com/watch?v=v_mnwLttTME)
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 1995#       发表于 2020-12-2 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49583763&amp;ptid=1915171" target="_blank">DGIL 发表于 2020-12-2 10:31</a>
@@ -10195,25 +6818,13 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 贴歪不可怕随便揭开调整，最重要的还是无尘环境<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 1996#       发表于 2020-12-2 15:10
 
 
-
-
 现在就没有全透明的全屏膜么……看了几个评价说不错的全屏膜，都有一圈黑色的边<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10222,23 +6833,16 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 1997#       发表于 2020-12-2 15:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586714&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-12-2 15:10</a>
 
 现在就没有全透明的全屏膜么……看了几个评价说不错的全屏膜，都有一圈黑色的边 ...</blockquote>
 你手机四周本来就有黑边，能做到不额外覆盖有黑边又有啥关系，根本看不出来
 
 
-
-
-
-
-
 -----
 
 ####  oskneo  
 ##### 1998#       发表于 2020-12-2 16:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587153&amp;ptid=1915171" target="_blank">leyenda 发表于 2020-12-2 15:55</a>
@@ -10248,16 +6852,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 —— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 1999#       发表于 2020-12-2 16:37
-
 
 
 <img src="http://wx2.sinaimg.cn/mw1024/53c8408fgy1gl9lk4oj5kj20go0j0gmw.jpg" referrerpolicy="no-referrer">
@@ -10265,16 +6863,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 5ii刚到手，插了tf卡顶上一直有这个显示可以关吗，1都没有的
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2000#       发表于 2020-12-2 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587623&amp;ptid=1915171" target="_blank">oskneo 发表于 2020-12-2 16:36</a>
@@ -10286,16 +6878,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 全透明不可能有，2.5D侧边要能全贴合那工艺要求比做原装屏幕都高了，黑边就是掩盖了这部分瑕疵
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 2001#         楼主| 发表于 2020-12-2 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49586714&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-12-02 15:10:39</a>
@@ -10306,17 +6892,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  WTfffff!!!  
 ##### 2002#       发表于 2020-12-2 19:54
-
-
 
 
 发现港版TB都不到5400了，准备下单
@@ -10326,16 +6905,10 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 而且买了就解锁root，能躲过去掉5G的升级么？
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2003#       发表于 2020-12-3 07:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49587635&amp;ptid=1915171" target="_blank">Tochika 发表于 2020-12-2 16:37</a>
@@ -10345,25 +6918,13 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  义亦死吾亦死  
 ##### 2004#       发表于 2020-12-3 08:08
 
 
-
-
 问问看，5400的港版是只有8G内存的嘛？
-
-
-
-
-
 
 
 -----
@@ -10372,14 +6933,7 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 2005#       发表于 2020-12-3 09:19
 
 
-
-
 发现一个长期关注的闲鱼卖家有大量国行拆封X1 II，四千九值得买吗...
-
-
-
-
-
 
 
 -----
@@ -10388,23 +6942,16 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 ##### 2006#       发表于 2020-12-3 10:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49593658&amp;ptid=1915171" target="_blank">9-11-2001 发表于 2020-12-3 09:19</a>
 
 发现一个长期关注的闲鱼卖家有大量国行拆封X1 II，四千九值得买吗...</blockquote>
 咨询确认下，是国行12g的那应该是做慈善吧
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 2007#       发表于 2020-12-3 11:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49588774&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2020-12-2 18:21</a>
@@ -10416,33 +6963,20 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 这家之前有搜到过，看评价不太敢买
 
 
-
-
-
-
-
 -----
 
 ####  黑爪爪  
 ##### 2008#       发表于 2020-12-3 11:57
 
 
-
-
 国行五兔入手后，发现短信没了多选后标为已读的功能，只能删，好烦
 有啥解决方案吗
-
-
-
-
-
 
 
 -----
 
 ####  Tochika  
 ##### 2009#       发表于 2020-12-3 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49592985&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-12-3 07:48</a>
@@ -10454,16 +6988,10 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 我一直都是静音的，那个图标是提示插入了SD卡，应该没有关联的吧
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2010#       发表于 2020-12-3 14:05
-
 
 
  本帖最后由 我很费纸 于 2020-12-3 14:10 编辑 
@@ -10478,16 +7006,10 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 2011#       发表于 2020-12-3 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49596722&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-12-3 14:05</a>
@@ -10496,32 +7018,19 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 我点了静音后显示从左边跳到了右边，然后发现下面有个最小化，点了就没了，谢了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  onemoment  
 ##### 2012#       发表于 2020-12-5 04:44
 
 
-
-
 双十一提前购活动买的马克兔，说是保价，结果双十一降价我申请保价成功，然后拖了一个月没给退差价，今天问了说是不给保价，10月30-11月11日期间才可以<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2013#       发表于 2020-12-5 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49615416&amp;ptid=1915171" target="_blank">onemoment 发表于 2020-12-5 04:44</a>
@@ -10533,16 +7042,10 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  onemoment  
 ##### 2014#       发表于 2020-12-5 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49617378&amp;ptid=1915171" target="_blank">我很费纸 发表于 2020-12-5 12:23</a>
@@ -10551,25 +7054,13 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 索尼自己的商城，准备收集证据找一波了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2015#       发表于 2020-12-10 08:56
 
 
-
-
 5.2双十二官网优惠200外送充电宝
-
-
-
-
-
 
 
 -----
@@ -10578,14 +7069,7 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 ##### 2016#       发表于 2020-12-14 18:39
 
 
-
-
 5ii的港版刷国行rom是不是就和国行没区别了
-
-
-
-
-
 
 
 -----
@@ -10594,14 +7078,7 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 ##### 2017#       发表于 2020-12-14 20:15
 
 
-
-
 镜头膜有必要贴吗？贴上会不会影响拍照呀,好怕一不小心就把镜头划了
-
-
-
-
-
 
 
 -----
@@ -10610,20 +7087,13 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 ##### 2018#       发表于 2020-12-15 00:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">求助大佬们 XZP要怎么刷小米系统 顺便问下刷了小米系统能装谷歌套件吗
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 2019#       发表于 2020-12-15 00:12
-
 
 
 <blockquote>引用第2025楼Milkyway于2020-12-14 18:39发表的  :
@@ -10635,25 +7105,13 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  红茶提督  
 ##### 2020#       发表于 2020-12-15 15:52
 
 
-
-
 island多开搞不起了 还有啥软件能用啊
-
-
-
-
-
 
 
 -----
@@ -10662,17 +7120,10 @@ island多开搞不起了 还有啥软件能用啊
 ##### 2021#       发表于 2020-12-15 17:46
 
 
-
-
 话说X51代有没有可能装摄影大师？
 
 
 ----发送自 [Sony J9210,Android 10](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -10681,22 +7132,13 @@ island多开搞不起了 还有啥软件能用啊
 ##### 2022#       发表于 2020-12-16 20:44
 
 
-
-
 大佬预计一下，下次降价什么时候？
-
-
-
-
-
 
 
 -----
 
 ####  月神侠  
 ##### 2023#       发表于 2020-12-21 17:38
-
-
 
 
 Xperia 1 Ⅱ (XQ-AT72) 国行固件 58.0.A.4.520 链接：[https://pan.baidu.com/s/1oOYm-HJVr7GXVf54nro03A](https://pan.baidu.com/s/1oOYm-HJVr7GXVf54nro03A) 提取码：qt3y
@@ -10708,17 +7150,10 @@ Xperia 1 (J9110) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1El
 Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1GpK8A7Y9sjVvjk_wVOIw](https://pan.baidu.com/s/1B1GpK8A7Y9sjVvjk_wVOIw) 提取码：t9kn
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2024#       发表于 2020-12-21 21:21
-
-
 
 
 可以  把app提取出来<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
@@ -10727,27 +7162,15 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Heero_Z  
 ##### 2025#       发表于 2020-12-22 02:21
 
 
-
-
 马克兔更新了安卓11后动画似乎更流畅了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -10756,13 +7179,7 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2026#       发表于 2020-12-22 08:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">悬浮球求个推荐 谷歌搜的几个不好用
-
-
-
-
-
 
 
 -----
@@ -10771,15 +7188,9 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2027#       发表于 2020-12-22 08:50
 
 
-
  本帖最后由 wizardasd 于 2020-12-22 09:39 编辑 
 
 5兔的安卓11，国行啥时候会更新啊？
-
-
-
-
-
 
 
 -----
@@ -10788,15 +7199,9 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2028#       发表于 2020-12-22 09:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803159&amp;ptid=1915171" target="_blank">Heero_Z 发表于 2020-12-22 02:21</a>
  马克兔更新了安卓11后动画似乎更流畅了  —— 来自 Sony XQ-AT51, Android 11上的 S1Next-鹅版 v2.4 ...</blockquote>
 更新了11后有高刷么
-
-
-
-
-
 
 
 -----
@@ -10805,15 +7210,9 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2029#       发表于 2020-12-22 10:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803796&amp;ptid=1915171" target="_blank">13街的居住民 发表于 2020-12-22 08:33</a>
 悬浮球求个推荐 谷歌搜的几个不好用</blockquote>
 悬浮菜单
-
-
-
-
-
 
 
 -----
@@ -10822,14 +7221,7 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2030#       发表于 2020-12-22 11:10
 
 
-
-
 想问下买5m2的机友们，你们的机子发热严重不，我这台看b站要不了多久就开始烫手
-
-
-
-
-
 
 
 -----
@@ -10838,23 +7230,16 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2031#       发表于 2020-12-22 11:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49803796&amp;ptid=1915171" target="_blank">13街的居住民 发表于 2020-12-22 08:33</a>
 
 悬浮球求个推荐 谷歌搜的几个不好用</blockquote>
 大部分功能用手势+侧感完美取代了，我用的fv悬浮球主要用它的截图文字提取功能
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2032#       发表于 2020-12-22 11:30
-
 
 
 <blockquote>damacy 发表于 2020-12-22 11:10
@@ -10873,25 +7258,13 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 试试看排查一下？
 
 
-
-
-
-
-
 -----
 
 ####  zatsuza  
 ##### 2033#       发表于 2020-12-22 12:18
 
 
-
-
 你们5M2用来下触摸手感怎样？还有X5那种轻飘飘容易误触的感觉么
-
-
-
-
-
 
 
 -----
@@ -10900,23 +7273,15 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2034#       发表于 2020-12-22 12:22
 
 
-
-
 在想是不是能找个手表补充水货缺失的支付/交通卡功能
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
 
 ####  Heero_Z  
 ##### 2035#       发表于 2020-12-22 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49804131&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-12-22 09:19</a>
@@ -10926,16 +7291,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2036#       发表于 2020-12-22 19:14
-
 
 
 <blockquote>引用第2039楼damacy于2020-12-22 11:10发表的  :
@@ -10949,16 +7308,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  MuAmUa  
 ##### 2037#       发表于 2020-12-22 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810024&amp;ptid=1915171" target="_blank">Heero_Z 发表于 2020-12-22 18:38</a>
@@ -10966,16 +7319,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 水果不是才60的刷新么
 
 
-
-
-
-
-
 -----
 
 ####  Heero_Z  
 ##### 2038#       发表于 2020-12-23 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49811993&amp;ptid=1915171" target="_blank">MuAmUa 发表于 2020-12-22 21:50</a>
@@ -10985,16 +7332,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2039#       发表于 2020-12-23 08:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49805295&amp;ptid=1915171" target="_blank">damacy 发表于 2020-12-22 11:10</a>
@@ -11006,32 +7347,19 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2040#       发表于 2020-12-23 08:31
 
 
-
-
 据说国行新版本升级后连网络通信功能都有 bug… 国行用户可以晚点更新。索尼中国啊真的是
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 2041#       发表于 2020-12-23 10:05
-
 
 
 <blockquote>引用第2049楼leystage于2020-12-23 08:31发表的  :
@@ -11043,16 +7371,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2042#       发表于 2020-12-23 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49806079&amp;ptid=1915171" target="_blank">bxcds 发表于 2020-12-22 12:22</a>
@@ -11064,32 +7386,19 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  ssklas  
 ##### 2043#       发表于 2020-12-27 15:36
 
 
-
-
 刚入手的国行1马克兔 发现谷歌框架是有的但找不到google play商店…从自带的应用宝里面没法打开，重新从酷安上下一个也安装失败了 请问这是正常的吗？如果国行本来就是这样的话，要怎么才能在这台设备上正常使用play商店？
-
-
-
-
-
 
 
 -----
 
 ####  alvarez  
 ##### 2044#       发表于 2020-12-27 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49859342&amp;ptid=1915171" target="_blank">ssklas 发表于 2020-12-27 15:36</a>
@@ -11099,16 +7408,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 OnePlus HD1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  ssklas  
 ##### 2045#       发表于 2020-12-27 17:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49859427&amp;ptid=1915171" target="_blank">alvarez 发表于 2020-12-27 15:51</a>
@@ -11120,27 +7423,16 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 一开始下了个go安装器把谷歌套件重装了一次没什么效果，现在换了一个安装器更新了一下play服务和商店应用后就能用了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感谢
 
 
-
-
-
-
-
 -----
 
 ####  chujunhan  
 ##### 2046#       发表于 2020-12-27 18:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49859342&amp;ptid=1915171" target="_blank">ssklas 发表于 2020-12-27 15:36</a>
 
 刚入手的国行1马克兔 发现谷歌框架是有的但找不到google play商店…从自带的应用宝里面没法打开，重新从酷 ...</blockquote>
 下个Google play store的apk
-
-
-
-
-
 
 
 -----
@@ -11151,19 +7443,11 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 …
 
 
-
 其实根本不用下  把应用宝停用就自动走play了 
 5兔的直接就在程序里面
 
 
-
-
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
-
-
-
-
-
 
 
 -----
@@ -11172,14 +7456,7 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2048#       发表于 2021-1-4 12:47
 
 
-
-
 闲鱼捡了一个号称99新的国行5M2，到手看看怎么样。
-
-
-
-
-
 
 
 -----
@@ -11188,15 +7465,9 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2049#       发表于 2021-1-4 17:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大法不知道能不能压住888，今年要换手机了
 
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -11205,22 +7476,15 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2050#       发表于 2021-1-4 17:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">闲鱼国行5m2已经4000了，3000就买！
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  BlackRock  
 ##### 2051#       发表于 2021-1-4 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49935993&amp;ptid=1915171" target="_blank">暗铁 发表于 2021-1-4 17:08</a>
@@ -11232,16 +7496,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2052#       发表于 2021-1-5 09:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49935993&amp;ptid=1915171" target="_blank">暗铁 发表于 2021-1-4 17:08</a>
@@ -11255,31 +7513,19 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  拍不到脑袋  
 ##### 2053#       发表于 2021-1-5 09:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在是不是入手5m2的最佳时机？本来想等1m3的但是这888……来自: iPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  无印凉粉  
 ##### 2054#       发表于 2021-1-5 09:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941253&amp;ptid=1915171" target="_blank">拍不到脑袋 发表于 2021-1-5 09:18</a>
@@ -11290,16 +7536,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 侧边指纹太棒了。
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2055#       发表于 2021-1-5 09:54
-
 
 
  本帖最后由 我很费纸 于 2021-1-5 11:39 编辑 
@@ -11312,16 +7552,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2056#       发表于 2021-1-5 10:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941596&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-5 09:54</a>
@@ -11330,17 +7564,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 有没有自带的百度安装包？我不小心删了。
 
 
-
-
-
-
-
 -----
 
 ####  jzsgtx  
 ##### 2057#       发表于 2021-1-5 11:04
-
-
 
 
 888这。。。想等mk3来着<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
@@ -11348,16 +7575,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2058#       发表于 2021-1-5 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941930&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-1-5 10:29</a>
@@ -11367,16 +7588,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  zhongjie  
 ##### 2059#       发表于 2021-1-5 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49941596&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-5 09:54</a>
@@ -11384,16 +7599,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 我还是等等1m3，毕竟期待4k 120hz屏幕。lg的新手机就是，可惜不出国行
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2060#       发表于 2021-1-5 12:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49942760&amp;ptid=1915171" target="_blank">zhongjie 发表于 2021-1-5 11:40</a>
@@ -11405,16 +7614,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  zhongjie  
 ##### 2061#       发表于 2021-1-5 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49943005&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-5 12:01</a>
@@ -11426,16 +7629,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 这一代不行就等下一代，现在用的find x2的屏幕估计到明年都还能打
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2062#       发表于 2021-1-5 17:08
-
 
 
 <blockquote>引用第2069楼我很费纸于2021-01-05 12:01发表的  :
@@ -11447,16 +7644,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2063#       发表于 2021-1-6 00:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49945915&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-5 17:08</a>
@@ -11469,17 +7660,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  里少  
 ##### 2064#       发表于 2021-1-6 05:39
-
-
 
 
 这888翻了，等等党大失败。
@@ -11487,16 +7671,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 还有一个担心的就是贴膜了，一张100+也太不值得了，有没有性价比高点的啊?
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2065#       发表于 2021-1-6 07:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951095&amp;ptid=1915171" target="_blank">里少 发表于 2021-1-6 05:39</a>
@@ -11509,26 +7687,15 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 找闲鱼啊
 
 
-
-
-
-
-
 -----
 
 ####  拍不到脑袋  
 ##### 2066#       发表于 2021-1-6 10:20
 
 
-
  本帖最后由 拍不到脑袋 于 2021-1-6 10:21 编辑 
 
 那么，5m2买什么型号呢，国行还是港刷国行？一是谷歌套件打游戏，二是国行那个耗电优化也挺想要的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">能中度使用一天一充就行，我使用量还蛮低的，移动过程中都是听歌。
-
-
-
-
-
 
 
 -----
@@ -11537,14 +7704,7 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2067#       发表于 2021-1-6 10:55
 
 
-
-
 一直想找X51代的壳子，就是没有比较心水的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11553,23 +7713,16 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ##### 2068#       发表于 2021-1-6 11:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952516&amp;ptid=1915171" target="_blank">拍不到脑袋 发表于 2021-1-6 10:20</a>
 
 那么，5m2买什么型号呢，国行还是港刷国行？一是谷歌套件打游戏，二是国行那个耗电优化也挺想要的能 ...</blockquote>
 直接买国行，激活谷歌就可以了。
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2069#       发表于 2021-1-6 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952516&amp;ptid=1915171" target="_blank">拍不到脑袋 发表于 2021-1-6 10:20</a>
@@ -11579,16 +7732,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  bxcds  
 ##### 2070#       发表于 2021-1-6 11:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951095&amp;ptid=1915171" target="_blank">里少 发表于 2021-1-6 05:39</a>
@@ -11600,16 +7747,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2071#       发表于 2021-1-6 11:24
-
 
 
 <blockquote>引用第2075楼拍不到脑袋于2021-01-06 10:20发表的  :
@@ -11621,16 +7762,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  狂风DKC  
 ##### 2072#       发表于 2021-1-6 16:12
-
 
 
  本帖最后由 狂风DKC 于 2021-1-6 16:36 编辑 
@@ -11648,32 +7783,19 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 草闲鱼上看到一个卖冲新二手的，号称都是国行退货机几乎全新只要5599，我的手快压不住了
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2073#       发表于 2021-1-6 17:07
 
 
-
-
 正好家里妹妹要换手机，问她1m2和5m2看中哪个，说是1m2镜紫，理由是好看，现在用的 XZ3 所以也不觉得大。 于是可以体验一下这次国行的软件做得如何了 XD
-
-
-
-
-
 
 
 -----
 
 ####  狂风DKC  
 ##### 2074#       发表于 2021-1-6 17:49
-
 
 
  本帖最后由 狂风DKC 于 2021-1-6 23:14 编辑 
@@ -11685,16 +7807,10 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 编辑下，顺便问问现在X1和X1ii传输文件用啥APP比较好？
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2075#       发表于 2021-1-7 09:46
-
 
 
 <blockquote>狂风DKC 发表于 2021-1-6 17:49
@@ -11709,16 +7825,10 @@ SD 卡？我的音乐视频大文件都是直接换卡换机的…
 其他的都在网盘里，不用传输…
 
 
-
-
-
-
-
 -----
 
 ####  狂风DKC  
 ##### 2076#       发表于 2021-1-7 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49962663&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-7 09:46</a>
@@ -11730,16 +7840,10 @@ SD 卡？我的音乐视频大文件都是直接换卡换机的…
 微信历史、APP之类的……视频和照片我也都是在卡里
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2077#       发表于 2021-1-7 12:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49963073&amp;ptid=1915171" target="_blank">狂风DKC 发表于 2021-1-7 10:31</a>
@@ -11751,25 +7855,13 @@ app数据我全部手动一个一个软件内备份，然后穿过去再一个�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Tochika  
 ##### 2078#       发表于 2021-1-7 14:29
 
 
-
-
 5ii自带相机对人脸可以眼部对焦，对动物识别不了，打开摄影大师人脸和动物都可以，这个正常吗？还是说要打开什么选项
-
-
-
-
-
 
 
 -----
@@ -11778,14 +7870,7 @@ app数据我全部手动一个一个软件内备份，然后穿过去再一个�
 ##### 2079#       发表于 2021-1-7 15:31
 
 
-
-
 有没有5M2能用的索尼相册app啊，谷歌相册实在用不习惯
-
-
-
-
-
 
 
 -----
@@ -11794,23 +7879,15 @@ app数据我全部手动一个一个软件内备份，然后穿过去再一个�
 ##### 2080#       发表于 2021-1-14 17:58
 
 
-
-
 入手了鬼灭套装，这个手机壳手感还不错啊。
 初始应用又没微信也没支付宝，但又有微博，直接开始迷惑。
 系统更新不支持断点传输，梦回2010（
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 2081#       发表于 2021-1-14 19:17
-
 
 
 <blockquote>引用第2087楼Tochika于2021-01-07 14:29发表的  :
@@ -11827,13 +7904,9 @@ app数据我全部手动一个一个软件内备份，然后穿过去再一个�
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -11843,19 +7916,13 @@ app数据我全部手动一个一个软件内备份，然后穿过去再一个�
 | Tochika| + 1|学习了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  leystage  
 ##### 2082#       发表于 2021-1-14 19:20
-
 
 
 <blockquote>里少 发表于 2021-1-14 17:58
@@ -11869,16 +7936,10 @@ app数据我全部手动一个一个软件内备份，然后穿过去再一个�
 之前更新服务器在海外，据说速度极慢经常断开。我走代理倒是几分钟几百兆更新包就好了无压力，但国内网络用户就怨声载道…
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2083#       发表于 2021-1-14 19:26
-
 
 
 <blockquote>引用第2091楼leystage于2021-01-14 19:20发表的  :
@@ -11890,16 +7951,10 @@ app数据我全部手动一个一个软件内备份，然后穿过去再一个�
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  里少  
 ##### 2084#       发表于 2021-1-14 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50035544&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-14 19:20</a>
@@ -11909,16 +7964,10 @@ app数据我全部手动一个一个软件内备份，然后穿过去再一个�
 我是电信，更新速度快跑满了
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2085#       发表于 2021-1-15 04:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49321735&amp;ptid=1915171" target="_blank">leystage 发表于 2020-11-8 17:17</a>
@@ -11936,17 +7985,10 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 但是震动质感依旧稀烂，高刷缺席，这两个问题还是无法忽视的。以及，希望下一代，支付宝也能用指纹支付，还有快冲也希望尽可能的给力
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2086#       发表于 2021-1-15 04:36
-
-
 
 
 888既然这代这个样子，那么也没必要着急上MK2吧。
@@ -11961,16 +8003,10 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 现在就换MK2真的感觉挺亏的
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2087#       发表于 2021-1-15 08:49
-
 
 
  本帖最后由 我很费纸 于 2021-1-15 08:54 编辑 
@@ -11988,16 +8024,10 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2088#       发表于 2021-1-15 08:56
-
 
 
 <blockquote>wqm2008 发表于 2021-1-15 04:36
@@ -12010,25 +8040,13 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 不过新 CEO 思路还蛮清晰，又有把 alpha 做成了的经验，不说销量，只说能做出让（一小撮）用户喜欢的产品这一点，还是可以相信的
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2089#       发表于 2021-1-15 14:08
 
 
-
-
 我有个问题，为什么微信的图片和视频保存下来，时间自动变成1970-1-1了？用微信直接拍的视频和照片也是这样。
-
-
-
-
-
 
 
 -----
@@ -12037,14 +8055,7 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 ##### 2090#       发表于 2021-1-15 19:27
 
 
-
-
 5II 你们有没有会在打开支付宝健康码，微信小程序这些应用时候，奇卡无比，要缓个几秒才能加载出来？
-
-
-
-
-
 
 
 -----
@@ -12053,22 +8064,15 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 ##### 2091#       发表于 2021-1-15 22:12
 
 
-
 <blockquote>zzzeven 发表于 2021-1-15 19:27
 5II 你们有没有会在打开支付宝健康码，微信小程序这些应用时候，奇卡无比，要缓个几秒才能加载出来？ ...</blockquote>
 有个其他的问题，我发现我的马克兔微信随申办的实名认证每周都会过期要重新扫人脸识别，感觉是 bug 啊…
-
-
-
-
-
 
 
 -----
 
 ####  oskneo  
 ##### 2092#       发表于 2021-1-16 07:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046293&amp;ptid=1915171" target="_blank">zzzeven 发表于 2021-1-15 19:27</a>
@@ -12081,16 +8085,10 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 不过如果想先编辑的话必须得等10秒。
 
 
-
-
-
-
-
 -----
 
 ####  oskneo  
 ##### 2093#       发表于 2021-1-16 07:46
-
 
 
  本帖最后由 oskneo 于 2021-1-16 07:47 编辑 
@@ -12107,17 +8105,10 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 不知道会否出半年改进款，像以前那801，805啥的，这样还可能有救。
 
 
-
-
-
-
-
-
 -----
 
 ####  zzzeven  
 ##### 2094#       发表于 2021-1-16 14:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50049507&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-1-16 07:45</a>
@@ -12127,16 +8118,10 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 看来有些app卡顿不是我一个人问题，我以为是个案呢
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2095#       发表于 2021-1-16 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50046293&amp;ptid=1915171" target="_blank">zzzeven 发表于 2021-1-15 19:27</a>
@@ -12145,25 +8130,13 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 我是在打开QQ小程序，比如查看编辑共享文档的时候，奇慢无比
 
 
-
-
-
-
-
 -----
 
 ####  没有未来的未来  
 ##### 2096#       发表于 2021-1-16 18:56
 
 
-
-
 我xzp也这样…
-
-
-
-
-
 
 
 -----
@@ -12172,14 +8145,7 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 ##### 2097#       发表于 2021-1-16 20:21
 
 
-
-
 妹妹收到了 1m2，从 XZ3 升级上来。对外形和灰紫色镜面赞不绝口。对性能和相机满意。对大容量满意，之前手机64G存储常年被微信空间占满没法新安装程序很烦。对主界面功能全没了甚至不能抽屉中快速合并文件夹不满，在我建议下换了微软桌面，比较满意。对索尼相册缺失不满，但对 Google 相册有回收站满意。总体来讲很满足。
-
-
-
-
-
 
 
 -----
@@ -12188,21 +8154,13 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 ##### 2098#       发表于 2021-1-17 02:16
 
 
-
-
 马克兔最高支持多少w的快充？还是PD协议吗？网上搜了一下，好像没有很清晰的说法，想再买一个第三方的充电器
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2099#       发表于 2021-1-17 08:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50058828&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-1-17 02:16</a>
@@ -12212,32 +8170,19 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  Betalo  
 ##### 2100#       发表于 2021-1-17 14:50
 
 
-
-
 有朋友的国行1马克兔前阵子OTA了吗？我OTA完后，发现NFC残了，之前能用微信qq读公交卡的。更重要的是：GPS无法导航了，地图软件定位正常，但一旦进入导航10秒以上，就提示GPS信号弱了。这是不是该系统版本的问题，现在恢复出厂无法解决问题，我还找不到国行初版固件。。。
-
-
-
-
-
 
 
 -----
 
 ####  oskneo  
 ##### 2101#       发表于 2021-1-17 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50054562&amp;ptid=1915171" target="_blank">没有未来的未来 发表于 2021-1-16 18:56</a>
@@ -12247,16 +8192,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2102#       发表于 2021-1-17 19:09
-
 
 
 <blockquote>引用第2111楼oskneo于2021-01-17 18:48发表的  :
@@ -12268,16 +8207,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2103#       发表于 2021-1-18 09:00
-
 
 
 <blockquote>引用第2110楼Betalo于2021-01-17 14:50发表的  :
@@ -12289,17 +8222,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  闪光的萝蕾娜  
 ##### 2104#       发表于 2021-1-21 10:51
-
-
 
 
 问一下，上下扬声器里面脏该怎么清理
@@ -12307,16 +8233,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2105#       发表于 2021-1-21 11:06
-
 
 
 <blockquote>闪光的萝蕾娜 发表于 2021-1-21 10:51
@@ -12327,16 +8247,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 我用的是多年前买显示器时商家送的扁平的软刷，正好可以扫各种缝隙
 
 
-
-
-
-
-
 -----
 
 ####  没有未来的未来  
 ##### 2106#       发表于 2021-1-22 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50064922&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-1-17 18:48</a>
@@ -12346,25 +8260,13 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 都是流氓软件的错<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  jaord  
 ##### 2107#       发表于 2021-1-22 15:31
 
 
-
-
 买了1马克兔，看了下评论，官方那个手机壳不支持无线充电，那么有支持无线充电的手机壳推荐么？
-
-
-
-
-
 
 
 -----
@@ -12373,13 +8275,11 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 ##### 2108#       发表于 2021-1-22 21:42
 
 
-
  本帖最后由 Cray 于 2021-1-22 21:48 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50113314&amp;ptid=1915171" target="_blank">jaord 发表于 2021-1-22 15:31</a>
 
 买了1马克兔，看了下评论，官方那个手机壳不支持无线充电，那么有支持无线充电的手机壳推荐么？ ...</blockquote>
 是个塑料的就支持啊
-
 
 
 评论那个8成线圈没对准。。
@@ -12391,17 +8291,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 再说线圈贴歪了就会有点问题。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2109#       发表于 2021-1-22 22:10
-
-
 
 
 想给5兔买个充电器放办公室用，有啥推荐的么？
@@ -12409,16 +8302,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2110#       发表于 2021-1-23 14:25
-
 
 
 <blockquote>引用第2119楼wizardasd于2021-01-22 22:10发表的  :
@@ -12437,16 +8324,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2111#       发表于 2021-1-23 15:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50122856&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-23 14:25</a>
@@ -12464,16 +8345,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 虽说单口20w也能用，不过还要插拔线就有点麻烦了……
 
 
-
-
-
-
-
 -----
 
 ####  oskneo  
 ##### 2112#       发表于 2021-1-23 16:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50110025&amp;ptid=1915171" target="_blank">没有未来的未来 发表于 2021-1-22 10:22</a>
@@ -12484,17 +8359,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  Milkyway  
 ##### 2113#       发表于 2021-1-24 19:48
-
-
 
 
 入手5m2了，求推壳膜
@@ -12502,16 +8370,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 顺便问下底部的搜索栏怎么移除啊？
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2114#       发表于 2021-1-24 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50049507&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-1-16 07:45</a>
@@ -12522,16 +8384,10 @@ xzp末期简直了，所有第三方app，开程序都要1分钟以上，除了�
 5ii没有 我试了下 丝般顺滑
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2115#       发表于 2021-1-24 21:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50133286&amp;ptid=1915171" target="_blank">Milkyway 发表于 2021-1-24 19:48</a>
@@ -12545,13 +8401,9 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 百度？停用就好
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -12561,19 +8413,13 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 | Milkyway| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  leystage  
 ##### 2116#       发表于 2021-1-24 21:02
-
 
 
 <blockquote>Milkyway 发表于 2021-1-24 19:48
@@ -12583,13 +8429,9 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 长按主屏幕空处，在设置里有一个选项可以关闭
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -12599,19 +8441,13 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 | Milkyway| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  无印凉粉  
 ##### 2117#       发表于 2021-1-25 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50133918&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-24 21:02</a>
@@ -12623,17 +8459,10 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 有没有好用的背膜推荐？不想戴套但是玻璃还是挺容易花的啊。
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2118#       发表于 2021-1-25 17:14
-
-
 
 
 想起来我百度直接给删了  难怪找不到 …
@@ -12642,16 +8471,10 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2119#       发表于 2021-1-25 17:16
-
 
 
 <blockquote>引用第2127楼无印凉粉于2021-01-25 10:46发表的  :
@@ -12663,16 +8486,10 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2120#       发表于 2021-1-25 20:15
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">话说你们用有没有那种信号显示卡死，没法上网打电话的情况。每次都要开关飞行模式来解决。
@@ -12681,16 +8498,10 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  li__god  
 ##### 2121#       发表于 2021-1-26 01:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50143608&amp;ptid=1915171" target="_blank">黑之月 发表于 2021-1-25 20:15</a>
@@ -12701,16 +8512,10 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2122#       发表于 2021-1-26 08:02
-
 
 
 <blockquote>黑之月 发表于 2021-1-25 20:15
@@ -12723,25 +8528,13 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 国行系统总是各种毛病的样子，唉
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 2123#       发表于 2021-1-26 09:02
 
 
-
-
 5G信号很弱的时候偶尔有  我关掉5g后就没这种情况
-
-
-
-
-
 
 
 -----
@@ -12750,21 +8543,13 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 ##### 2124#       发表于 2021-1-26 09:49
 
 
-
-
 大法问题就借帖子问问大家，我自己的XZ1最近有点问题，充电线连着座充头充电是完全没问题，但是连着电脑的USB，不论是前还是后USB接口都完全没有反应，既连不上电脑，也不能用电脑充电，这个啥情况，何解？
-
-
-
-
-
 
 
 -----
 
 ####  黑之月  
 ##### 2125#       发表于 2021-1-26 11:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50146265&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 08:02</a>
@@ -12777,16 +8562,10 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2126#       发表于 2021-1-26 11:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50146879&amp;ptid=1915171" target="_blank">艾尔特翔 发表于 2021-1-26 09:49</a>
@@ -12796,16 +8575,10 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  艾尔特翔  
 ##### 2127#       发表于 2021-1-26 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50147874&amp;ptid=1915171" target="_blank">黑之月 发表于 2021-1-26 11:39</a>
@@ -12817,25 +8590,13 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 同一根线也试过，不同线也试过，原装的和第三方的都试过，然后不同电脑也试过了
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2128#       发表于 2021-1-26 15:00
 
 
-
-
 港版Android 11来咯
-
-
-
-
-
 
 
 -----
@@ -12844,22 +8605,13 @@ cawa的膜边缘做了弧度   壳就买渣渣出的那个撸背壳吧，厚�
 ##### 2129#       发表于 2021-1-26 15:10
 
 
-
-
 港版 Android 11 收到更新推送了，1.1GB大小，魔都 CN2 网络3分钟下载完成
-
-
-
-
-
 
 
 -----
 
 ####  leystage  
 ##### 2130#       发表于 2021-1-26 15:57
-
-
 
 
 除了 Android 11 本身对权限控制和隐私保护等方面的增强以及安全补丁外，
@@ -12883,24 +8635,13 @@ Photography Pro 新增照片纵横比快捷设置按钮、MR 模式，及连拍�
 长按电源键的界面等细节也跟随 Android 11 改变。
 
 
-
-
-
-
-
 -----
 
 ####  楠芽吹  
 ##### 2131#       发表于 2021-1-26 16:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">用不惯安卓11，截图之后还会弹悬浮窗也太**了吧
-
-
-
-
-
 
 
 -----
@@ -12909,23 +8650,16 @@ Photography Pro 新增照片纵横比快捷设置按钮、MR 模式，及连拍�
 ##### 2132#       发表于 2021-1-26 16:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50150651&amp;ptid=1915171" target="_blank">楠芽吹 发表于 2021-1-26 16:31</a>
 
 用不惯安卓11，截图之后还会弹悬浮窗也太**了吧</blockquote>
 闹钟也花Q,隔一段时间发提示声说闹钟很快响了
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 2133#       发表于 2021-1-26 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50150299&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 15:57</a>
@@ -12938,16 +8672,10 @@ Cinematograp ...</blockquote>
 屏幕录制没找到，这个从哪里调出来？
 
 
-
-
-
-
-
 -----
 
 ####  hippias  
 ##### 2134#       发表于 2021-1-26 17:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50150299&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 15:57</a>
@@ -12961,16 +8689,10 @@ Cinematograp ...</blockquote>
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2135#       发表于 2021-1-26 17:20
-
 
 
 <blockquote>EFSF 发表于 2021-1-26 16:53
@@ -12978,16 +8700,10 @@ Cinematograp ...</blockquote>
 通知栏快捷方式里可以添加
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2136#       发表于 2021-1-26 17:20
-
 
 
 <blockquote>hippias 发表于 2021-1-26 17:05
@@ -12998,26 +8714,15 @@ Cinematograp ...</blockquote>
 不把，就是视频输出，在设置里有个选项可以开启
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2137#       发表于 2021-1-26 17:21
 
 
-
 <blockquote>楠芽吹 发表于 2021-1-26 16:31
 用不惯安卓11，截图之后还会弹悬浮窗也太**了吧</blockquote>
 确实，还少了删除功能。。 
-
-
-
-
-
 
 
 -----
@@ -13026,16 +8731,10 @@ Cinematograp ...</blockquote>
 ##### 2138#       发表于 2021-1-26 17:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50151190&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 17:20</a>
 
 通知栏快捷方式里可以添加</blockquote>
 谢谢谢谢，居然在那里。
-
-
-
-
-
 
 
 -----
@@ -13044,23 +8743,15 @@ Cinematograp ...</blockquote>
 ##### 2139#       发表于 2021-1-26 19:27
 
 
-
-
 xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港行基本没啥问题？是的话就港行青山绿了
 
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  wqm2008  
 ##### 2140#       发表于 2021-1-26 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50152405&amp;ptid=1915171" target="_blank">SplashCrBy 发表于 2021-1-26 19:27</a>
@@ -13072,16 +8763,10 @@ xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港�
 港行少4G内存，微信不能用指纹支付
 
 
-
-
-
-
-
 -----
 
 ####  SplashCrBy  
 ##### 2141#       发表于 2021-1-26 19:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50152486&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-1-26 19:34</a>
@@ -13091,16 +8776,10 @@ xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港�
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2142#       发表于 2021-1-26 19:48
-
 
 
 <blockquote>wqm2008 发表于 2021-1-26 19:34
@@ -13110,25 +8789,13 @@ xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港�
 指纹不是说微信支付也支持了吗，但我不确定。反正那么多年我都是输密码的，也就两秒
 
 
-
-
-
-
-
 -----
 
 ####  Shabadadoo  
 ##### 2143#       发表于 2021-1-26 20:33
 
 
-
-
 手机坏了，想换个1ii或者5ii，之前没关注过，请问那个好点啊？现在港版5000这个价怎么样？
-
-
-
-
-
 
 
 -----
@@ -13137,16 +8804,10 @@ xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港�
 ##### 2144#       发表于 2021-1-26 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50153027&amp;ptid=1915171" target="_blank">Shabadadoo 发表于 2021-1-26 20:33</a>
 
 手机坏了，想换个1ii或者5ii，之前没关注过，请问那个好点啊？现在港版5000这个价怎么样？ ...</blockquote>
 5M2的话贵，1M2的话不如国行。
-
-
-
-
-
 
 
 -----
@@ -13155,23 +8816,15 @@ xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港�
 ##### 2145#       发表于 2021-1-26 21:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50153081&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-1-26 20:42</a>
 5M2的话贵，1M2的话不如国行。</blockquote>
 请问1ii是哪里不如国行，因为本身打算买港版的用全家桶
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2146#       发表于 2021-1-26 21:14
-
-
 
 
 港行用户表示如果你对谷歌全家桶高度依赖……那还是买港好点
@@ -13183,16 +8836,10 @@ xzp顶不住了想换一码兔，看楼上国行系统堪忧啊，是不是港�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 2147#       发表于 2021-1-26 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50153230&amp;ptid=1915171" target="_blank">Shabadadoo 发表于 2021-1-26 21:00</a>
@@ -13202,26 +8849,15 @@ ram少4个G，但是港行我记得原本去年年底说要发国行同等配置
 — from Sony XQ-AT52, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2148#       发表于 2021-1-26 22:43
 
 
-
 <blockquote>Shabadadoo 发表于 2021-1-26 21:00
 请问1ii是哪里不如国行，因为本身打算买港版的用全家桶</blockquote>
 全家桶请买港版，国行可能会有奇怪的小毛病。国行优点是对大陆5G支持好、内置类似于黑域的防流氓功能，还有全都是12G内存。但是贵
-
-
-
-
-
 
 
 -----
@@ -13230,17 +8866,10 @@ ram少4个G，但是港行我记得原本去年年底说要发国行同等配置
 ##### 2149#       发表于 2021-1-27 00:43
 
 
-
-
 Pro终于要发售，算不算1？
 这个壳真的是完美，可惜洋垃圾可能也捡不到吧…
 
 —— 来自 粗粮 K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -13249,13 +8878,7 @@ Pro终于要发售，算不算1？
 ##### 2150#       发表于 2021-1-27 01:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国行都舍得上12G，pro反而不上，也是很奇妙
-
-
-
-
-
 
 
 -----
@@ -13264,22 +8887,15 @@ Pro终于要发售，算不算1？
 ##### 2151#       发表于 2021-1-27 07:37
 
 
-
 <blockquote>暗铁 发表于 2021-1-27 01:09
 国行都舍得上12G，pro反而不上，也是很奇妙</blockquote>
 这几年国行内存都比国际版大呀，毕竟国内生态要更恶劣一点…也可能是天真的以为内存大一点国内销量就会上去吧…
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2152#       发表于 2021-1-27 08:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50155278&amp;ptid=1915171" target="_blank">暗铁 发表于 2021-1-27 01:09</a>
@@ -13291,17 +8907,10 @@ pro是12G吧？
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2153#       发表于 2021-1-27 08:41
-
-
 
 
 其实pro完全可以考虑吧摄像头阉到只剩一个主摄扫码，然后电池再大500mah吧……质感帅是帅，就是对比1M2升级还是有限了。
@@ -13313,16 +8922,10 @@ pro是12G吧？
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2154#       发表于 2021-1-27 11:23
-
 
 
 <img src="https://p.sda1.dev/1/b5425f950342a7e2949f894939fe8613/IMG_CMP_253585467.png" referrerpolicy="no-referrer">
@@ -13330,17 +8933,10 @@ pro是12G吧？
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2155#       发表于 2021-1-27 12:34
-
-
 
 
 翔移更新后这是什么奇怪的调度……跑分旗舰大核几乎不动……
@@ -13350,16 +8946,10 @@ pro是12G吧？
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  暗铁  
 ##### 2156#       发表于 2021-1-27 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50158718&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-27 12:34</a>
@@ -13369,16 +8959,10 @@ pro是12G吧？
 —— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2157#       发表于 2021-1-27 12:54
-
 
 
  本帖最后由 我很费纸 于 2021-1-27 13:59 编辑 
@@ -13399,16 +8983,10 @@ CNM，傻逼玩意儿<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2158#       发表于 2021-1-27 14:09
-
 
 
 <blockquote>我很费纸 发表于 2021-1-27 12:54
@@ -13423,16 +9001,10 @@ CNM，重启以后连3个中核都给我锁了，现在变成4核A55了</blockqu
 也许是大版本升级后后台有些处理？
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2159#       发表于 2021-1-27 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50159664&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-27 14:09</a>
@@ -13448,27 +9020,15 @@ CNM，重启以后连3个中核都给我锁了，现在变成4核A55了</blockqu
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2160#       发表于 2021-1-27 20:19
 
 
-
-
 好家伙……这个版本的大核调度绝对有问题……索移不会真的特么把888的调度下放给865了吧在，绝了，大部分时间大核锁844mhz，不动如山<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -13477,16 +9037,9 @@ CNM，重启以后连3个中核都给我锁了，现在变成4核A55了</blockqu
 ##### 2161#       发表于 2021-1-27 20:30
 
 
-
-
 日版xz1c硬干bl锁成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony G8441, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -13495,21 +9048,13 @@ CNM，重启以后连3个中核都给我锁了，现在变成4核A55了</blockqu
 ##### 2162#       发表于 2021-1-27 21:51
 
 
-
-
 DxOMark 把 1m2 的相机评分改成 112 了 XD
-
-
-
-
-
 
 
 -----
 
 ####  SplashCrBy  
 ##### 2163#       发表于 2021-1-27 23:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50164367&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-27 21:51</a>
@@ -13519,17 +9064,10 @@ DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
 —— 来自 Sony G8142, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  天妇罗  
 ##### 2164#       发表于 2021-1-28 09:25
-
-
 
 
 2500刀的手机 X
@@ -13540,25 +9078,13 @@ DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
 可惜500刀监视器该有的功能它都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mir123  
 ##### 2165#       发表于 2021-1-28 11:15
 
 
-
-
 国行刚推的更新是安卓11？
-
-
-
-
-
 
 
 -----
@@ -13567,21 +9093,13 @@ DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
 ##### 2166#       发表于 2021-1-28 11:24
 
 
-
-
 我也收到了，977M，感觉像是大更新吧。等一个坛友试毒
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 2167#       发表于 2021-1-28 12:54
-
 
 
 <blockquote>引用第2173楼SplashCrBy于2021-01-27 23:23发表的  :
@@ -13593,25 +9111,13 @@ DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  hguawolo  
 ##### 2168#       发表于 2021-1-28 12:57
 
 
-
-
 真·板砖<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13620,14 +9126,7 @@ DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
 ##### 2169#       发表于 2021-1-28 13:44
 
 
-
-
 我吐了，国行更新后把浏览器给换了，所有书签和浏览记录都没了
-
-
-
-
-
 
 
 -----
@@ -13636,21 +9135,13 @@ DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
 ##### 2170#       发表于 2021-1-28 15:03
 
 
-
-
 我单方面宣布（目前的）安卓10是最适合5M2的系统！
-
-
-
-
-
 
 
 -----
 
 ####  mickoo  
 ##### 2171#       发表于 2021-1-28 15:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50163565&amp;ptid=1915171" target="_blank">ziyo 发表于 2021-1-27 20:30</a>
@@ -13662,16 +9153,10 @@ DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
 怎么弄得？我手上有台XZ1，do版，强刷了国行9.0，不过很费电，想root刷其他系统看看
 
 
-
-
-
-
-
 -----
 
 ####  ziyo  
 ##### 2172#       发表于 2021-1-28 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171252&amp;ptid=1915171" target="_blank">mickoo 发表于 2021-1-28 15:14</a>
@@ -13680,16 +9165,10 @@ DxOMark 把 1m2 的相机评分改成 112 了 XD</blockquote>
 Google 20欧  淘宝200块
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2173#       发表于 2021-1-28 16:29
-
 
 
  本帖最后由 我很费纸 于 2021-1-28 16:31 编辑 
@@ -13703,16 +9182,10 @@ Google 20欧  淘宝200块
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  mickoo  
 ##### 2174#       发表于 2021-1-28 16:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50171334&amp;ptid=1915171" target="_blank">ziyo 发表于 2021-1-28 15:22</a>
@@ -13721,17 +9194,10 @@ Google 20欧  淘宝200块</blockquote>
 200太贵了，这机器要退役了
 
 
-
-
-
-
-
 -----
 
 ####  里少  
 ##### 2175#       发表于 2021-1-28 16:56
-
-
 
 
 国行更新了安卓11
@@ -13741,16 +9207,10 @@ Google 20欧  淘宝200块</blockquote>
 依然不支持支付宝指纹
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2176#       发表于 2021-1-28 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172450&amp;ptid=1915171" target="_blank">里少 发表于 2021-1-28 16:56</a>
@@ -13763,32 +9223,19 @@ Google 20欧  淘宝200块</blockquote>
 直接卸载了事
 
 
-
-
-
-
-
 -----
 
 ####  猫空  
 ##### 2177#       发表于 2021-1-28 18:06
 
 
-
-
 借楼求问国行5M2的cpu调度如何，看楼上老哥说的港行安卓11系统锁核心有点不太敢更新国行的
-
-
-
-
-
 
 
 -----
 
 ####  leystage  
 ##### 2178#       发表于 2021-1-28 18:09
-
 
 
 <blockquote>里少 发表于 2021-1-28 16:56
@@ -13801,16 +9248,10 @@ Google 20欧  淘宝200块</blockquote>
 这就是支持微信指纹支付的代价吗。。。
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2179#       发表于 2021-1-28 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50172450&amp;ptid=1915171" target="_blank">里少 发表于 2021-1-28 16:56</a>
@@ -13821,16 +9262,10 @@ Google 20欧  淘宝200块</blockquote>
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2180#       发表于 2021-1-28 18:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50173122&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-28 18:09</a>
@@ -13842,27 +9277,15 @@ Google 20欧  淘宝200块</blockquote>
 安卓10不升级也支持微信指纹支付啊
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2181#       发表于 2021-1-28 19:14
 
 
-
-
 em..原来在抽屉里
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -13871,14 +9294,7 @@ em..原来在抽屉里
 ##### 2182#       发表于 2021-1-28 20:23
 
 
-
-
 X1更新完环境屏上的时间不显示了怎么搞<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">现在拿起来就显示个电量
-
-
-
-
-
 
 
 -----
@@ -13887,16 +9303,9 @@ X1更新完环境屏上的时间不显示了怎么搞<img src="https://static.sa
 ##### 2183#       发表于 2021-1-28 20:51
 
 
-
-
 反向升级，所以说什么本地化维持现状就好了
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -13905,15 +9314,9 @@ X1更新完环境屏上的时间不显示了怎么搞<img src="https://static.sa
 ##### 2184#       发表于 2021-1-28 20:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">妈的，国行更新完。连车上蓝牙疯狂卡顿和杂音。没法听
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -13922,16 +9325,9 @@ X1更新完环境屏上的时间不显示了怎么搞<img src="https://static.sa
 ##### 2185#       发表于 2021-1-28 20:56
 
 
-
-
 可怕，那我不更新了
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -13940,14 +9336,7 @@ X1更新完环境屏上的时间不显示了怎么搞<img src="https://static.sa
 ##### 2186#       发表于 2021-1-28 21:01
 
 
-
-
 这还更个P，等下一版，没解决问题的话怕不是要一直停在Android10了
-
-
-
-
-
 
 
 -----
@@ -13956,24 +9345,15 @@ X1更新完环境屏上的时间不显示了怎么搞<img src="https://static.sa
 ##### 2187#       发表于 2021-1-28 21:19
 
 
-
-
 我国行1m2升级后蓝牙倒是没啥问题
 连索尼降噪豆和xm3头戴没啥变化
 总体感觉跟上个版本没啥特别大使用上的变化
-
-
-
-
-
 
 
 -----
 
 ####  黑之月  
 ##### 2188#       发表于 2021-1-28 22:18
-
-
 
 
 回家试了下连狗圈和漫步者的音箱蓝牙很正常..
@@ -13983,16 +9363,10 @@ X1更新完环境屏上的时间不显示了怎么搞<img src="https://static.sa
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  何でやねん  
 ##### 2189#       发表于 2021-1-28 22:36
-
 
 
  本帖最后由 何でやねん 于 2021-1-28 23:02 编辑 
@@ -14002,26 +9376,15 @@ X1更新完指纹解锁没了？
 重启一下又好了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2190#       发表于 2021-1-28 22:48
 
 
-
 <blockquote>无印凉粉 发表于 2021-1-28 18:36
 安卓10不升级也支持微信指纹支付啊</blockquote>
 我指的是商店，感觉是加了腾讯一堆广告？
-
-
-
-
-
 
 
 -----
@@ -14030,14 +9393,7 @@ X1更新完指纹解锁没了？
 ##### 2191#       发表于 2021-1-28 22:56
 
 
-
-
 Android/data无法写入，烦死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14046,14 +9402,7 @@ Android/data无法写入，烦死了<img src="https://static.saraba1st.com/image
 ##### 2192#       发表于 2021-1-28 23:11
 
 
-
-
 看你们说得这么可怕不敢更新了。。。然后又有了个新的问题，这系统更新的通知在通知栏里消不掉，有什么办法吗？
-
-
-
-
-
 
 
 -----
@@ -14062,14 +9411,7 @@ Android/data无法写入，烦死了<img src="https://static.saraba1st.com/image
 ##### 2193#       发表于 2021-1-28 23:17
 
 
-
-
 更新完软件全都不识别图片了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14078,16 +9420,9 @@ Android/data无法写入，烦死了<img src="https://static.saraba1st.com/image
 ##### 2194#       发表于 2021-1-28 23:57
 
 
-
-
 Android Auto没法用了，有人有类似现象吗
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -14096,17 +9431,10 @@ Android Auto没法用了，有人有类似现象吗
 ##### 2195#       发表于 2021-1-29 00:06
 
 
-
-
 大版本就重置看看 
 
 
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.37)
-
-
-
-
-
 
 
 -----
@@ -14115,23 +9443,16 @@ Android Auto没法用了，有人有类似现象吗
 ##### 2196#       发表于 2021-1-29 01:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50175825&amp;ptid=1915171" target="_blank">みかこし 发表于 2021-1-28 23:11</a>
 
 看你们说得这么可怕不敢更新了。。。然后又有了个新的问题，这系统更新的通知在通知栏里消不掉，有什么办法 ...</blockquote>
 向下滑开挨个消
 
 
-
-
-
-
-
 -----
 
 ####  hippias  
 ##### 2197#       发表于 2021-1-29 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50151199&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-26 17:20</a>
@@ -14141,17 +9462,10 @@ Android Auto没法用了，有人有类似现象吗
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2198#       发表于 2021-1-29 09:45
-
-
 
 
 啊，是不是可以开个 索尼 Xperia 1 III 讨论帖了 XD 
@@ -14159,16 +9473,10 @@ Android Auto没法用了，有人有类似现象吗
 长度更短，比 5 II 更窄，额外功能键，潜望镜光变镜头
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2199#       发表于 2021-1-29 09:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178407&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-29 09:45</a>
@@ -14182,16 +9490,10 @@ Android Auto没法用了，有人有类似现象吗
 作为每次都第一时间冲大版本的人，这次是我这几年最失望的一次了，更新完bug是真的多。蛋疼。现在更新完还把Android data obb文件夹的修改权限锁了，炼妖壶里的微信用不了小程序了，影响极大，蛋疼
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 2200#         楼主| 发表于 2021-1-29 09:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178407&amp;ptid=1915171" target="_blank">leystage 发表于 2021-01-29 09:45:36</a>
@@ -14202,16 +9504,10 @@ Android Auto没法用了，有人有类似现象吗
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2201#       发表于 2021-1-29 10:04
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">上班路上连车蓝牙中途不知道什么时候好了，到公司停车场才注意到
@@ -14219,16 +9515,10 @@ Android Auto没法用了，有人有类似现象吗
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 2202#       发表于 2021-1-29 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178407&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-29 09:45</a>
@@ -14239,18 +9529,10 @@ Android Auto没法用了，有人有类似现象吗
 额外功能键引起严重不适，直接把整台机器的设计破坏掉的感觉
 
 
-
-
-
-
-
-
 -----
 
 ####  拍不到脑袋  
 ##### 2203#       发表于 2021-1-29 10:25
-
-
 
 
 电脑主板没有typec接口……
@@ -14259,16 +9541,10 @@ Android Auto没法用了，有人有类似现象吗
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2204#       发表于 2021-1-29 10:48
-
 
 
 <blockquote>淡定君 发表于 2021-1-29 10:05
@@ -14276,16 +9552,10 @@ Android Auto没法用了，有人有类似现象吗
 嗯，如果不支持自定义就更不好了。支持自定义我还能接受。但 5 II 上居然不行，太奇怪了
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2205#       发表于 2021-1-29 10:49
-
 
 
 <blockquote>被雨困住的城市 发表于 2021-1-29 09:56
@@ -14296,16 +9566,10 @@ Android Auto没法用了，有人有类似现象吗
 哈哈哈，那我去占个位先。虽然热度肯定还是会在这楼
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2206#       发表于 2021-1-29 10:50
-
 
 
 <blockquote>我很费纸 发表于 2021-1-29 09:51
@@ -14316,20 +9580,13 @@ Android Auto没法用了，有人有类似现象吗
 是啊，我看大家的反馈，简直了。。。
 
 
-
 感觉索尼就在不断重复自己曾经犯过的错误。其实上一次小版本更新好像就有各种问题了，让人怀疑他们的开发体制是否存在根本性的问题。也许你之后可以多等几天，如果不是为了做小白鼠的话。。。
-
-
-
-
-
 
 
 -----
 
 ####  bxcds  
 ##### 2207#       发表于 2021-1-29 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178489&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 09:51</a>
@@ -14342,16 +9599,10 @@ Android Auto没法用了，有人有类似现象吗
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2208#       发表于 2021-1-29 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179162&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-29 10:50</a>
@@ -14363,16 +9614,10 @@ Android Auto没法用了，有人有类似现象吗
 把翔移工程师吊路灯吧，我是被这拉跨的调度气疯了。日常用还好，游戏体验明显下降。
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2209#       发表于 2021-1-29 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179321&amp;ptid=1915171" target="_blank">bxcds 发表于 2021-1-29 11:05</a>
@@ -14387,16 +9632,10 @@ Android Auto没法用了，有人有类似现象吗
 往年更新大版本，多多少少有点小bug，我也能接受。大部分都是兼容性的问题。这次硬件调度的问题是真的糟心，印象中是头一遭，865缩肛成855甚至765给我用，这就很蛋疼了。
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2210#       发表于 2021-1-29 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178546&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-1-29 09:56</a>
@@ -14411,16 +9650,10 @@ Android Auto没法用了，有人有类似现象吗
 拢共2台机器也能讨论一整年的也就是翔移了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2211#       发表于 2021-1-29 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179580&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 11:24</a>
@@ -14432,16 +9665,10 @@ Android Auto没法用了，有人有类似现象吗
 国行5M2的更新我到现在都没收到，估计在紧急修复bug
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2212#       发表于 2021-1-29 12:06
-
 
 
 <blockquote>我很费纸 发表于 2021-1-29 11:25
@@ -14455,16 +9682,10 @@ Android Auto没法用了，有人有类似现象吗
 Pro 看起来也不会有什么热度的样子，不知道专业人士会不会买帐。看宣传片似乎在一些场合能帮助提高的生产力，但会有多少市场呢
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 2213#         楼主| 发表于 2021-1-29 12:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179607&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-01-29 11:25:52</a>
@@ -14485,17 +9706,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2214#       发表于 2021-1-29 15:08
-
-
 
 
 安卓11有个新功能，就是限制了/Android/data文件夹的读写，这就造成很多下载的东西找不到
@@ -14505,16 +9719,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 用自带的可以
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2215#       发表于 2021-1-29 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50178489&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 09:51</a>
@@ -14526,16 +9734,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 刚去测试了下金拱门小程序，好像没得问题
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2216#       发表于 2021-1-29 16:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50181912&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-1-29 15:13</a>
@@ -14545,32 +9747,19 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2217#       发表于 2021-1-29 17:14
 
 
-
-
 还有个问题，微博打开闪退，最新版也一样，清空数据重装都不行，后来把微博的定位权限去掉就可以了
-
-
-
-
-
 
 
 -----
 
 ####  无印凉粉  
 ##### 2218#       发表于 2021-1-29 17:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179607&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 11:25</a>
@@ -14584,16 +9773,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 看看那个一年一机的魅族
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2219#       发表于 2021-1-29 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50180178&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-1-29 12:11</a>
@@ -14605,16 +9788,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2220#       发表于 2021-1-29 18:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50183310&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-1-29 17:35</a>
@@ -14631,16 +9808,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  みかこし  
 ##### 2221#       发表于 2021-1-29 18:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50177004&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2021-1-29 01:56</a>
@@ -14649,16 +9820,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 不行，软件更新的通知无法消除以及关闭
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2222#       发表于 2021-1-29 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50179133&amp;ptid=1915171" target="_blank">leystage 发表于 2021-1-29 10:48</a>
@@ -14667,16 +9832,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 可以自定义 用软件
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2223#       发表于 2021-1-29 19:14
-
 
 
  本帖最后由 Cray 于 2021-1-29 20:28 编辑 
@@ -14689,16 +9848,10 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 play版的新微信就是打不开小程序的 一起骂张小龙
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2224#       发表于 2021-1-29 19:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184100&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-29 19:14</a>
@@ -14710,27 +9863,15 @@ play版的新微信就是打不开小程序的 你去骂张小龙</blockquote>
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Heero_Z  
 ##### 2225#       发表于 2021-1-29 19:59
 
 
-
-
 国内有人升11后全面屏手势会无法切换应用管理的那个界面么，国际版经常有这bug<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -14739,22 +9880,14 @@ play版的新微信就是打不开小程序的 你去骂张小龙</blockquote>
 ##### 2226#       发表于 2021-1-29 20:00
 
 
-
-
 安卓11可以养猫了，看这篇文章：
 [https://sspai.com/post/61957](https://sspai.com/post/61957)
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 2227#       发表于 2021-1-29 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184371&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-1-29 19:43</a>
@@ -14766,16 +9899,10 @@ play版的新微信就是打不开小程序的 你去骂张小龙</blockquote>
 我那个安卓9的xz2play的新微信就开不了  应用宝的就好了  还是得骂张小龙<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2228#       发表于 2021-1-29 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184564&amp;ptid=1915171" target="_blank">Cray 发表于 2021-1-29 20:10</a>
@@ -14787,32 +9914,19 @@ Android 11收紧权限则是另一个蛋疼的问题--这勉强算个bug，愁�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  逆袭的黑月  
 ##### 2229#       发表于 2021-1-29 22:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的，和车载蓝牙的间断断连这个问题绝了。。。要卡个3-10分钟就完全畅通播放了，每天开车还要先暖下蓝牙
-
-
-
-
-
 
 
 -----
 
 ####  cleaner  
 ##### 2230#       发表于 2021-1-30 02:38
-
-
 
 
 Android10的时候我用炼妖壶（island）的设备管理员模式去管理Appos和冰箱，同时还能双开
@@ -14822,25 +9936,13 @@ Android10的时候我用炼妖壶（island）的设备管理员模式去管理Ap
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  喵喵叫的猫  
 ##### 2231#       发表于 2021-1-30 12:14
 
 
-
-
 Xperia 1 II 港版8g 升级后， 环境显示（始终显示）那个时间会有延迟，比如现在12点拿起来会显示11点什么的，再锁屏再开就会恢复。不知道有人也这样吗？ 不过我play版的微信小程序到完全没问题
-
-
-
-
-
 
 
 -----
@@ -14849,14 +9951,7 @@ Xperia 1 II 港版8g 升级后， 环境显示（始终显示）那个时间会�
 ##### 2232#       发表于 2021-1-30 17:50
 
 
-
-
 之前没注意，换了个底部有字的壁纸才发现被强制放大了，就为了下拉通知栏的时候能有个缩放效果，还取消不了，安卓11的开发人员多少带点<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14865,22 +9960,13 @@ Xperia 1 II 港版8g 升级后， 环境显示（始终显示）那个时间会�
 ##### 2233#       发表于 2021-1-30 23:33
 
 
-
-
 我的国行52也收不到推送，估计是在紧急改bug？
-
-
-
-
-
 
 
 -----
 
 ####  cleaner  
 ##### 2234#       发表于 2021-1-30 23:55
-
-
 
 
 翻了下好像没人提
@@ -14894,16 +9980,10 @@ Xperia 1 II 港版8g 升级后， 环境显示（始终显示）那个时间会�
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  御坂14084  
 ##### 2235#       发表于 2021-1-31 08:26
-
 
 
 <blockquote>被雨困住的城市 发表于 2021-1-29 12:11
@@ -14914,16 +9994,10 @@ Xperia 1 II 港版8g 升级后， 环境显示（始终显示）那个时间会�
 达利特用户不在乎隐私换效率
 
 
-
-
-
-
-
 -----
 
 ####  御坂14084  
 ##### 2236#       发表于 2021-1-31 08:29
-
 
 
 <blockquote>cleaner 发表于 2021-1-30 02:38
@@ -14934,16 +10008,10 @@ Android10的时候我用炼妖壶（island）的设备管理员模式去管理Ap
 用Shizuku激活APPOPS和冰箱 支持ADB ROOT
 
 
-
-
-
-
-
 -----
 
 ####  cleaner  
 ##### 2237#       发表于 2021-1-31 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50195680&amp;ptid=1915171" target="_blank">御坂14084 发表于 2021-1-31 08:29</a>
@@ -14955,16 +10023,10 @@ Android10的时候我用炼妖壶（island）的设备管理员模式去管理Ap
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 2238#         楼主| 发表于 2021-1-31 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50195671&amp;ptid=1915171" target="_blank">御坂14084 发表于 2021-01-31 08:26:47</a>
@@ -14973,32 +10035,19 @@ Android10的时候我用炼妖壶（island）的设备管理员模式去管理Ap
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  YoumuChan  
 ##### 2239#       发表于 2021-1-31 11:49
 
 
-
-
 Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然还带上了5 ii
-
-
-
-
-
 
 
 -----
 
 ####  aiooia  
 ##### 2240#       发表于 2021-1-31 17:22
-
 
 
  本帖最后由 aiooia 于 2021-1-31 20:59 编辑 
@@ -15015,31 +10064,13 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 2021-1-31 17:21 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2241#       发表于 2021-1-31 18:52
 
 
-
-
 不能<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15048,23 +10079,15 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 ##### 2242#       发表于 2021-1-31 20:37
 
 
-
-
 手势有没有办法改啊，左右边划都是返回上一层，但安卓侧边栏都是左划啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  yygundam  
 ##### 2243#       发表于 2021-2-1 00:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50200737&amp;ptid=1915171" target="_blank">SplashCrBy 发表于 2021-1-31 20:37</a>
@@ -15079,16 +10102,10 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 现在手势操作下拉出侧边栏有两个办法：1.在屏幕左边摁住，直到侧边栏弹出一点点，然后拉出；2.沿着斜方向从左往右上或者右下滑动拉出（体感这个操作比1要难做
 
 
-
-
-
-
-
 -----
 
 ####  SplashCrBy  
 ##### 2244#       发表于 2021-2-1 01:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50202706&amp;ptid=1915171" target="_blank">yygundam 发表于 2021-2-1 00:23</a>
@@ -15101,17 +10118,10 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  allenz2  
 ##### 2245#       发表于 2021-2-1 02:17
-
-
 
 
 不用全面屏手势不就行了，索尼有侧感
@@ -15119,16 +10129,10 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2246#       发表于 2021-2-1 08:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50203034&amp;ptid=1915171" target="_blank">SplashCrBy 发表于 2021-2-1 01:12</a>
@@ -15140,16 +10144,10 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  SplashCrBy  
 ##### 2247#       发表于 2021-2-1 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50203808&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-2-1 08:12</a>
@@ -15161,16 +10159,10 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2248#       发表于 2021-2-1 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50206539&amp;ptid=1915171" target="_blank">SplashCrBy 发表于 2021-2-1 13:14</a>
@@ -15184,25 +10176,13 @@ Linus居然接了sony广告...内容有电视，音箱，耳机，最后居然�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2249#       发表于 2021-2-1 15:40
 
 
-
-
 你们哪些软件需要拉侧屏的，我试了半天好像就鹅球可拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15221,14 +10201,7 @@ B站呀   云音乐呀
 其实就是个速度问题  都可以自己改
 
 
-
-
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
-
-
-
-
-
 
 
 -----
@@ -15237,16 +10210,9 @@ B站呀   云音乐呀
 ##### 2251#       发表于 2021-2-1 17:08
 
 
-
-
 前几天想起来看了下EHV，才发现侧拉返回和EHV的右侧出保存搜索冲突了。之前左拉的都还觉得没什么影响，因为至少都还有个头像可以点出侧拉
 
 琢磨了一下，改回三大金刚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15255,20 +10221,13 @@ B站呀   云音乐呀
 ##### 2252#       发表于 2021-2-1 17:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">手势用了一天受不了还是改回三大金刚了，返回键真好啊真好
-
-
-
-
-
 
 
 -----
 
 ####  hoyice  
 ##### 2253#       发表于 2021-2-1 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50208809&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2021-2-1 17:08</a>
@@ -15278,32 +10237,19 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 2254#       发表于 2021-2-2 19:11
 
 
-
-
 更新了11之后，全面手势导航怎么都拉不出应用切换界面………………试了N次都拉不出来；云音乐有问题，明明还在后台但是会自己暂停……烦躁
-
-
-
-
-
 
 
 -----
 
 ####  飞翔的兔子  
 ##### 2255#       发表于 2021-2-2 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50184486&amp;ptid=1915171" target="_blank">Heero_Z 发表于 2021-1-29 19:59</a>
@@ -15315,16 +10261,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 完全拉不出来…………被迫切回三按键……可是我刚刚才习惯全屏手势啊
 
 
-
-
-
-
-
 -----
 
 ####  Heero_Z  
 ##### 2256#       发表于 2021-2-2 19:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50219689&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2021-2-2 19:12</a>
@@ -15334,16 +10274,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2257#       发表于 2021-2-2 20:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50219679&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2021-2-2 19:11</a>
@@ -15352,33 +10286,20 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 云音乐你看是不是加入电池管理器/节电优能了
 
 
-
-
-
-
-
 -----
 
 ####  Youszsh  
 ##### 2258#       发表于 2021-2-2 20:52
 
 
-
-
 看了看无码兔的硬件被种草了啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 就是这个系统大家用下来体验怎么样，类原生压得住国内这群流氓吗<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  猫空  
 ##### 2259#       发表于 2021-2-2 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50220427&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-2 20:52</a>
@@ -15389,16 +10310,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2260#       发表于 2021-2-3 04:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50221127&amp;ptid=1915171" target="_blank">猫空 发表于 2021-2-2 22:28</a>
@@ -15410,16 +10325,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 但是跟黑阈比起来，黑阈狠一点
 
 
-
-
-
-
-
 -----
 
 ####  飞翔的兔子  
 ##### 2261#       发表于 2021-2-3 15:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50220350&amp;ptid=1915171" target="_blank">Cray 发表于 2021-2-2 20:42</a>
@@ -15431,24 +10340,13 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 可是之前10的时候就没这个问题啊
 
 
-
-
-
-
-
 -----
 
 ####  狂风DKC  
 ##### 2262#       发表于 2021-2-3 17:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说我B站和网抑云在播放或者暂停时候，锁屏界面和抬头里的简易播放器不见了，这个要怎么调出来？
-
-
-
-
-
 
 
 -----
@@ -15457,25 +10355,16 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 ##### 2263#       发表于 2021-2-5 17:22
 
 
-
-
 升了安卓11之后感觉多任务手势明显没以前好用啊，经常呼不出来
 
 
 ----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2264#       发表于 2021-2-5 20:47
-
-
 
 
 话说，5m2的闹钟总是提前一两个小时给我弹通知，这么弱智的功能怎么关掉？
@@ -15485,16 +10374,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2265#       发表于 2021-2-5 20:52
-
 
 
 <blockquote>wizardasd 发表于 2021-2-5 20:47
@@ -15509,16 +10392,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 把闹钟的通知给关了试试？
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2266#       发表于 2021-2-5 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50250804&amp;ptid=1915171" target="_blank">leystage 发表于 2021-2-5 20:52</a>
@@ -15538,16 +10415,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2267#       发表于 2021-2-5 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50150897&amp;ptid=1915171" target="_blank">淡定君 发表于 2021-1-26 16:51</a>
@@ -15559,17 +10430,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  烁影  
 ##### 2268#       发表于 2021-2-5 23:00
-
-
 
 
 升级了11怎么感觉用电如尿崩
@@ -15577,16 +10441,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2269#       发表于 2021-2-6 01:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50251638&amp;ptid=1915171" target="_blank">wizardasd 发表于 2021-2-5 22:24</a>
@@ -15602,17 +10460,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 索性弹通知我直接就关闭了。
 
 
-
-
-
-
-
 -----
 
 ####  Heero_Z  
 ##### 2270#       发表于 2021-2-6 06:30
-
-
 
 
 国际版推送了11后的首个补丁，用了几天貌似是修复了全面手势拉不出应用管理的问题，其他提升不明。距11更新时隔一个半月供国行用户参考下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -15620,16 +10471,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2271#       发表于 2021-2-6 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50250804&amp;ptid=1915171" target="_blank">leystage 发表于 2021-2-5 20:52</a>
@@ -15650,16 +10495,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 我现在真想骂人了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 2272#         楼主| 发表于 2021-2-6 19:18
-
 
 
  本帖最后由 被雨困住的城市 于 2021-2-6 19:19 编辑 
@@ -15669,16 +10508,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2273#       发表于 2021-2-6 21:03
-
 
 
 <blockquote>引用第2281楼wizardasd于2021-02-06 19:08发表的  :
@@ -15690,16 +10523,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2274#       发表于 2021-2-6 21:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50259573&amp;ptid=1915171" target="_blank">Cray 发表于 2021-2-6 21:03</a>
@@ -15725,26 +10552,15 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 搜了下，这个问题历史悠久，好几年前就有，而且不限索尼……
 
 
-
-
-
-
-
 -----
 
 ####  Youszsh  
 ##### 2275#       发表于 2021-2-7 01:50
 
 
-
  本帖最后由 Youszsh 于 2021-2-12 14:24 编辑 
 
 算了，买别怂
-
-
-
-
-
 
 
 -----
@@ -15753,14 +10569,7 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 ##### 2276#       发表于 2021-2-7 02:48
 
 
-
-
 请问这手机修长的屏幕用来看漫画合适吗？
-
-
-
-
-
 
 
 -----
@@ -15769,16 +10578,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 ##### 2277#       发表于 2021-2-7 03:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261847&amp;ptid=1915171" target="_blank">z.s 发表于 2021-2-7 02:48</a>
 
 请问这手机修长的屏幕用来看漫画合适吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">极度不适合，太窄了
-
-
-
-
-
 
 
 -----
@@ -15787,16 +10590,9 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 ##### 2278#       发表于 2021-2-8 16:03
 
 
-
-
 问个傻逼问题，不小心把摄像大师删除了怎么恢复<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 暂时上不了谷歌商店，只能去xda么？
 
  -- 傲娇地来自 Stage1未知客户端
-
-
-
-
-
 
 
 -----
@@ -15805,15 +10601,9 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 ##### 2279#       发表于 2021-2-8 16:42
 
 
-
 <blockquote>z.s 发表于 2021-2-7 02:48
 请问这手机修长的屏幕用来看漫画合适吗？</blockquote>
 适、适合看条漫！
-
-
-
-
-
 
 
 -----
@@ -15822,23 +10612,15 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 ##### 2280#       发表于 2021-2-8 16:47
 
 
-
-
 国行X1马克兔到手了，把Xperia 中文键盘和日文键盘折腾好用起来终于舒服了！
 
 把play商店装好我觉得和我以前用Z5P港版没差多少，更新游戏也方便
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 2281#       发表于 2021-2-9 03:41
-
 
 
 <blockquote>引用第2288楼利物浦于2021-02-08 16:03发表的  :
@@ -15850,32 +10632,19 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2282#       发表于 2021-2-9 16:15
 
 
-
-
 安卓11的手势判定区域是不是调高了，贴近边缘的ui经常被遮挡按不出来，感觉要换回三大金刚了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Cray  
 ##### 2283#       发表于 2021-2-11 02:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50278970&amp;ptid=1915171" target="_blank">利物浦 发表于 2021-2-8 16:03</a>
@@ -15890,16 +10659,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 可以收藏一下
 
 
-
-
-
-
-
 -----
 
 ####  oskneo  
 ##### 2284#       发表于 2021-2-11 08:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261847&amp;ptid=1915171" target="_blank">z.s 发表于 2021-2-7 02:48</a>
@@ -15909,16 +10672,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2285#       发表于 2021-2-11 14:44
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">昨天又遇到个连接蓝牙后照样手机播放的问题，开车三个小时可给我折磨坏了。晚上重启了一下手机就好了。
@@ -15926,16 +10683,10 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  里少  
 ##### 2286#       发表于 2021-2-11 15:34
-
 
 
  本帖最后由 里少 于 2021-2-11 15:35 编辑 
@@ -15948,16 +10699,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 尼潭铃 声竟然是屏蔽词，什么原理啊？
 
 
-
-
-
-
-
 -----
 
 ####  利物浦  
 ##### 2287#       发表于 2021-2-12 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50301878&amp;ptid=1915171" target="_blank">Cray 发表于 2021-2-11 02:24</a>
@@ -15965,17 +10710,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 我那天也在apkmirror上找到，不知是不是这个，但安装好后无法打开，后来索性重置了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Youszsh  
 ##### 2288#       发表于 2021-2-12 14:29
-
-
 
 
 无码兔到手了，感觉问题有点多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -15985,16 +10723,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  猫空  
 ##### 2289#       发表于 2021-2-12 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315637&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 14:29</a>
@@ -16006,16 +10738,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  KayoAiko  
 ##### 2290#       发表于 2021-2-12 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315637&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 14:29</a>
@@ -16028,16 +10754,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 你索这原生系统是不带状态栏显示网速的
 
 
-
-
-
-
-
 -----
 
 ####  Youszsh  
 ##### 2291#       发表于 2021-2-12 21:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50318252&amp;ptid=1915171" target="_blank">猫空 发表于 2021-2-12 20:52</a>
@@ -16049,17 +10769,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  cleaner  
 ##### 2292#       发表于 2021-2-12 22:23
-
-
 
 
 我是1，刚更新的时候没在意，现在越用越觉得电池崩了，续航**降低，告诉我，我不是一个人……
@@ -16067,16 +10780,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  skaar  
 ##### 2293#       发表于 2021-2-12 22:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50315637&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 14:29</a>
@@ -16090,16 +10797,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  丈育  
 ##### 2294#       发表于 2021-2-12 23:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50318729&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-12 21:46</a>
@@ -16111,16 +10812,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 把原来的那个停用，默认相册就自动变成完全版的那个了
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2295#       发表于 2021-2-13 01:33
-
 
 
  本帖最后由 月神侠 于 2021-2-13 01:47 编辑 
@@ -16135,17 +10830,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 不能识别号码是安卓的老问题了，找个老年机去设置里面sim号码编辑就有了
 
 
-
-
-
-
-
-
 -----
 
 ####  duo_wolf  
 ##### 2296#       发表于 2021-2-13 10:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50258523&amp;ptid=1915171" target="_blank">wizardasd 发表于 2021-2-6 19:08</a>
@@ -16159,27 +10847,15 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 — from Sony J9110, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Youszsh  
 ##### 2297#       发表于 2021-2-13 15:59
 
 
-
-
 各位求推荐一下无码兔的手机壳和保护膜<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -16188,15 +10864,9 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 ##### 2298#       发表于 2021-2-13 15:59
 
 
-
  本帖最后由 Youszsh 于 2021-2-13 16:02 编辑 
 
 风怒了<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16205,22 +10875,15 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 ##### 2299#       发表于 2021-2-13 16:01
 
 
-
  本帖最后由 Youszsh 于 2021-2-13 16:02 编辑 
 
 风怒了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  andychen  
 ##### 2300#       发表于 2021-2-13 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50324700&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-13 15:59</a>
@@ -16233,16 +10896,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2301#       发表于 2021-2-13 17:41
-
 
 
 <blockquote>Youszsh 发表于 2021-2-12 14:29
@@ -16256,16 +10913,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 网速从来就不能在通知栏显示，没有开关…
 
 
-
-
-
-
-
 -----
 
 ####  Youszsh  
 ##### 2302#       发表于 2021-2-13 22:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50325392&amp;ptid=1915171" target="_blank">andychen 发表于 2021-2-13 17:27</a>
@@ -16276,16 +10927,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2303#       发表于 2021-2-13 22:24
-
 
 
 <blockquote>Youszsh 发表于 2021-2-13 22:07
@@ -16298,17 +10943,10 @@ one sony<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" re
 我妹一周摔几次，好几台手机屏幕被她摔碎，都是第一天就装保护壳…
 
 
-
-
-
-
-
 -----
 
 ####  zjf  
 ##### 2304#       发表于 2021-2-16 13:36
-
-
 
 
 问下国行5m2能解锁bootloader吗？
@@ -16319,16 +10957,10 @@ twrp+magisk+google全家桶强需求
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  zjf  
 ##### 2305#       发表于 2021-2-16 13:53
-
 
 
  本帖最后由 zjf 于 2021-2-16 15:25 编辑 
@@ -16342,17 +10974,10 @@ twrp+magisk+google全家桶强需求
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2306#       发表于 2021-2-16 18:05
-
-
 
 
 国行X1MKⅡ更新QQ签名会卡死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -16361,16 +10986,10 @@ twrp+magisk+google全家桶强需求
 桌面icon有的时候会消失<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2307#       发表于 2021-2-16 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50345412&amp;ptid=1915171" target="_blank">zjf 发表于 2021-2-16 13:53</a>
@@ -16382,16 +11001,10 @@ twrp+magisk+google全家桶强需求
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  zjf  
 ##### 2308#       发表于 2021-2-16 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50347733&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-2-16 19:52</a>
@@ -16403,16 +11016,10 @@ twrp+magisk+google全家桶强需求
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  zjf  
 ##### 2309#       发表于 2021-2-16 20:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50347733&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-2-16 19:52</a>
@@ -16426,17 +11033,10 @@ ps 请问是移动的手机号吗
 —— 来自 OnePlus ONEPLUS A6000, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  淡定君  
 ##### 2310#       发表于 2021-2-17 04:13
-
-
 
 
 今天想把马克兔的hdr视频推到索尼电视
@@ -16446,16 +11046,10 @@ ps 请问是移动的手机号吗
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2311#       发表于 2021-2-17 08:34
-
 
 
  本帖最后由 我很费纸 于 2021-2-17 08:35 编辑 
@@ -16470,16 +11064,10 @@ ps 请问是移动的手机号吗
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  KayoAiko  
 ##### 2312#       发表于 2021-2-17 09:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50345412&amp;ptid=1915171" target="_blank">zjf 发表于 2021-2-16 13:53</a>
@@ -16493,17 +11081,10 @@ ps 请问是移动的手机号吗
 另外国行自带的APP很多阉割过的，如果谷歌全家桶依赖大建议还是买港行吧
 
 
-
-
-
-
-
 -----
 
 ####  Youszsh  
 ##### 2313#       发表于 2021-2-19 12:53
-
-
 
 
 请问下上下扬声器这里空着一大块是正常的吗，都能直接看见里面了。按理来说是不是该有张防尘网啊<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
@@ -16513,16 +11094,10 @@ ps 请问是移动的手机号吗
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2314#       发表于 2021-2-19 13:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376156&amp;ptid=1915171" target="_blank">Youszsh 发表于 2021-2-19 12:53</a>
@@ -16531,16 +11106,10 @@ ps 请问是移动的手机号吗
 前几代就这种膜？了，有灰水一冲就好，防尘网才是真积灰
 
 
-
-
-
-
-
 -----
 
 ####  Youszsh  
 ##### 2315#       发表于 2021-2-19 14:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376520&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-2-19 13:27</a>
@@ -16550,27 +11119,15 @@ ps 请问是移动的手机号吗
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2316#       发表于 2021-2-20 10:12
 
 
-
-
 用国行的各位最近还有信号卡死问题吗，感觉春节后好像就没遇到过了。不过因为老家5g信号太差我把5g给关了，不知道是哪边因素
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -16579,16 +11136,9 @@ ps 请问是移动的手机号吗
 ##### 2317#       发表于 2021-2-20 14:27
 
 
-
-
 无码兔在开着黑阈的情况下，开司马阿里系的软件依然会很卡。不root折腾的话有什么解决办法吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -16597,19 +11147,11 @@ ps 请问是移动的手机号吗
 ##### 2318#       发表于 2021-2-20 15:14
 
 
-
-
 自从X1ii升级到11后总是时不时会有充电充不进的现象，要关机充一下看见电量开始上涨了才敢重新开机充，很谜。
-
-
-
-
 
 
 InkedScreenshot_20210207-084022_LI.jpg
 (212.51 KB, 下载次数: 2)
-
-
 
 
 下载附件
@@ -16618,32 +11160,13 @@ InkedScreenshot_20210207-084022_LI.jpg
 2021-2-20 15:14 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202102/20/151420ryba4u098xob0yz1.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  zjf  
 ##### 2319#       发表于 2021-2-21 08:26
-
-
 
 
 到手了，说说情况
@@ -16655,26 +11178,15 @@ ps 打开相机的时候会发出咔的一声正常吗？<img src="https://stati
 —— 来自 Sony XQ-AS52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 2320#       发表于 2021-2-22 01:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50376520&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-2-19 13:27</a>
 前几代就这种膜？了，有灰水一冲就好，防尘网才是真积灰</blockquote>
 這個位置可以直接用水沖？？？？
-
-
-
-
-
 
 
 -----
@@ -16683,23 +11195,16 @@ ps 打开相机的时候会发出咔的一声正常吗？<img src="https://stati
 ##### 2321#       发表于 2021-2-22 01:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50400564&amp;ptid=1915171" target="_blank">gary76 发表于 2021-2-22 01:04</a>
 
 這個位置可以直接用水沖？？？？</blockquote>
 ip68对付普通水流没问题的
 
 
-
-
-
-
-
 -----
 
 ####  zjf  
 ##### 2322#       发表于 2021-2-22 07:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50399537&amp;ptid=1915171" target="_blank">ut0 发表于 2021-2-21 22:42</a>
@@ -16713,32 +11218,19 @@ ip68对付普通水流没问题的
 —— 来自 Sony XQ-AS52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2323#       发表于 2021-2-22 09:08
 
 
-
-
 国行5.2到现在还没收到11的OTA，问题不小啊
-
-
-
-
-
 
 
 -----
 
 ####  无印凉粉  
 ##### 2324#       发表于 2021-2-22 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50401179&amp;ptid=1915171" target="_blank">zjf 发表于 2021-2-22 07:04</a>
@@ -16751,24 +11243,13 @@ ip68对付普通水流没问题的
 这个主要影响视频增强，不过问题真得不大
 
 
-
-
-
-
-
 -----
 
 ####  Benthic  
 ##### 2325#       发表于 2021-2-22 15:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">1II升到11之后息屏显示微信来新消息不会有图标，一定到点亮屏幕到锁屏界面后才会有图标出现，只有微信有这个问题，好嗨烦，有遇到相同问题的朋友吗
-
-
-
-
-
 
 
 -----
@@ -16777,16 +11258,10 @@ ip68对付普通水流没问题的
 ##### 2326#       发表于 2021-2-22 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50400762&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-2-22 01:44</a>
 
 ip68对付普通水流没问题的</blockquote>
  真的不會進水我就把我的Xperia 1的拿去洗塵了
-
-
-
-
-
 
 
 -----
@@ -16795,14 +11270,7 @@ ip68对付普通水流没问题的</blockquote>
 ##### 2327#       发表于 2021-2-22 16:19
 
 
-
-
 5马克兔上面的听筒/扬声器积灰是真的厉害啊，可以直接用水冲吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16811,16 +11279,10 @@ ip68对付普通水流没问题的</blockquote>
 ##### 2328#       发表于 2021-2-22 16:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406289&amp;ptid=1915171" target="_blank">gary76 发表于 2021-2-22 16:16</a>
 
 真的不會進水我就把我的Xperia 1的拿去洗塵了</blockquote>
 下水前最好看一下气密有没有问题（开工程模式，打开气压计测试，略用力按一下屏幕，看数值变动），用了一阵之后防水性能是有可能下降的。
-
-
-
-
-
 
 
 -----
@@ -16829,23 +11291,16 @@ ip68对付普通水流没问题的</blockquote>
 ##### 2329#       发表于 2021-2-22 16:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406289&amp;ptid=1915171" target="_blank">gary76 发表于 2021-2-22 16:16</a>
 
 真的不會進水我就把我的Xperia 1的拿去洗塵了</blockquote>
 我反正差不多一周一洗，对别人那只能建议洗别怂，怂别洗，真进水反正不保修<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zjf  
 ##### 2330#       发表于 2021-2-22 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406812&amp;ptid=1915171" target="_blank">ut0 发表于 2021-2-22 16:58</a>
@@ -16857,16 +11312,10 @@ ip68对付普通水流没问题的</blockquote>
 嗯，10可以正常root。11估计得等magisk更新了
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2331#       发表于 2021-2-22 20:01
-
 
 
 <blockquote>引用第2327楼majiyabakunei于2021-02-20 14:27发表的  :
@@ -16880,16 +11329,10 @@ ip68对付普通水流没问题的</blockquote>
 ----发送自 [Sony XQ-AS72,Android 10](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  gary76  
 ##### 2332#       发表于 2021-2-23 01:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406397&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-2-22 16:25</a>
@@ -16897,16 +11340,10 @@ ip68对付普通水流没问题的</blockquote>
 壓力測試數字會變動就應該是氣密性ok吧
 
 
-
-
-
-
-
 -----
 
 ####  oskneo  
 ##### 2333#       发表于 2021-2-23 03:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406397&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-2-22 16:25</a>
@@ -16916,16 +11353,10 @@ ip68对付普通水流没问题的</blockquote>
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  auraria  
 ##### 2334#       发表于 2021-2-23 06:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50384279&amp;ptid=1915171" target="_blank">黑之月 发表于 2021-2-20 10:12</a>
@@ -16935,32 +11366,19 @@ ip68对付普通水流没问题的</blockquote>
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  naonao827  
 ##### 2335#       发表于 2021-2-23 08:24
 
 
-
-
 索尼这些天价手机真的有人买账吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  KayoAiko  
 ##### 2336#       发表于 2021-2-23 08:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50411742&amp;ptid=1915171" target="_blank">auraria 发表于 2021-2-23 06:21</a>
@@ -16970,16 +11388,10 @@ ip68对付普通水流没问题的</blockquote>
 — from Sony XQ-AT72, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2337#       发表于 2021-2-23 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50411291&amp;ptid=1915171" target="_blank">gary76 发表于 2021-2-23 01:14</a>
@@ -16988,32 +11400,19 @@ ip68对付普通水流没问题的</blockquote>
 是 按压屏幕会增大几个单位
 
 
-
-
-
-
-
 -----
 
 ####  Milkyway  
 ##### 2338#       发表于 2021-2-23 10:18
 
 
-
-
 电信5g也是同样问题，关了5g就没事儿了
-
-
-
-
-
 
 
 -----
 
 ####  黑之月  
 ##### 2339#       发表于 2021-2-23 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50406289&amp;ptid=1915171" target="_blank">gary76 发表于 2021-2-22 16:16</a>
@@ -17023,17 +11422,10 @@ ip68对付普通水流没问题的</blockquote>
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2340#       发表于 2021-3-1 09:28
-
-
 
 
 5马克2有人能说下怎么样不，另外淘宝上销量最高的卖索索机子的店靠谱不，话说为啥京东上索尼机子一下子没了，搜港版日版都搜不到，只有价格看了就不想买的那种
@@ -17041,16 +11433,10 @@ ip68对付普通水流没问题的</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2341#       发表于 2021-3-1 09:51
-
 
 
 <blockquote>naonao827 发表于 2021-2-23 08:24
@@ -17060,16 +11446,10 @@ ip68对付普通水流没问题的</blockquote>
 当然很多消费者不知道索尼卖手机，也不认为它和那些六七八九千的竞品可以放一起比较，这是另一个问题…
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2342#       发表于 2021-3-1 09:55
-
 
 
 <blockquote>yuikonnu 发表于 2021-3-1 09:28
@@ -17080,16 +11460,10 @@ ip68对付普通水流没问题的</blockquote>
 https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;highlight=5%2BII&amp;mobile=2
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2343#       发表于 2021-3-1 10:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50472656&amp;ptid=1915171" target="_blank">leystage 发表于 2021-03-01 09:55:35</a>
@@ -17101,16 +11475,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2344#       发表于 2021-3-1 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50473089&amp;ptid=1915171" target="_blank">yuikonnu 发表于 2021-3-1 10:35</a>
@@ -17122,16 +11490,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2345#       发表于 2021-3-1 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50473694&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-1 11:24</a>
@@ -17143,17 +11505,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 至少目前为止的我国行还没收到安卓11的推送
 
 
-
-
-
-
-
 -----
 
 ####  绚烂航迹云  
 ##### 2346#       发表于 2021-3-1 18:52
-
-
 
 
 国行1 ii，已经推送11了呀，升完58.1.A.1.208
@@ -17162,32 +11517,19 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 ----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  猫空  
 ##### 2347#       发表于 2021-3-1 19:56
 
 
-
-
 国行5 ii未收到11推送
-
-
-
-
-
 
 
 -----
 
 ####  leystage  
 ##### 2348#       发表于 2021-3-1 20:40
-
 
 
 <blockquote>我很费纸 发表于 2021-3-1 11:24
@@ -17198,27 +11540,15 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 国行好像还没推，我的1m2还没收到。可能是被投诉爆了哈哈
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2349#       发表于 2021-3-1 22:37
 
 
-
-
 估计是第一波推完紧急撤回了
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -17227,14 +11557,7 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 ##### 2350#       发表于 2021-3-1 22:49
 
 
-
-
 话说你们港版的型号。Google play上任天堂的手游比如龙约feh能被支持吗。as72任地狱所有东西都不支持，感觉超级小心眼。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17243,16 +11566,9 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 ##### 2351#       发表于 2021-3-2 00:35
 
 
-
-
 无码兔现在有渠道是12期免息吗
 
 —— 来自 Xiaomi MI CC 9 Meitu Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -17261,16 +11577,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 ##### 2352#       发表于 2021-3-2 00:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480554&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-1 22:49</a>
 
 话说你们港版的型号。Google play上任天堂的手游比如龙约feh能被支持吗。as72任地狱所有东西都不支持，感觉 ...</blockquote>
 我1ii没问题 安装更新下play游戏试试
-
-
-
-
-
 
 
 -----
@@ -17279,22 +11589,15 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 ##### 2353#       发表于 2021-3-2 00:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50481467&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-3-2 00:35</a>
 我1ii没问题 安装更新下play游戏试试</blockquote>
 网页版里面显示不支持，难怪更新不了。
-
-
-
-
-
 
 
 -----
 
 ####  东云静马  
 ##### 2354#       发表于 2021-3-2 07:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50481461&amp;ptid=1915171" target="_blank">jenchaosit 发表于 2021-3-2 00:35</a>
@@ -17304,16 +11607,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 官网24期
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2355#       发表于 2021-3-2 08:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477659&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-3-1 17:52</a>
@@ -17324,16 +11621,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  猫空  
 ##### 2356#       发表于 2021-3-2 08:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480554&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-1 22:49</a>
@@ -17343,17 +11634,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  fpp1992  
 ##### 2357#       发表于 2021-3-2 08:35
-
-
 
 
 各位升级了Android11的有没有坑？也想升
@@ -17361,16 +11645,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 —— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2358#       发表于 2021-3-2 09:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50482595&amp;ptid=1915171" target="_blank">fpp1992 发表于 2021-3-2 08:35</a>
@@ -17383,16 +11661,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  猫空  
 ##### 2359#       发表于 2021-3-2 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50482977&amp;ptid=1915171" target="_blank">wizardasd 发表于 2021-3-2 09:15</a>
@@ -17403,16 +11675,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2360#       发表于 2021-3-2 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50483549&amp;ptid=1915171" target="_blank">猫空 发表于 2021-3-2 10:05</a>
@@ -17426,32 +11692,19 @@ https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1971535&amp;hig ..
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  奈叶魔王控  
 ##### 2361#       发表于 2021-3-2 10:39
 
 
-
-
 XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，一天不充电居然到晚上可以坚持到70%
-
-
-
-
-
 
 
 -----
 
 ####  无印凉粉  
 ##### 2362#       发表于 2021-3-2 10:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50483572&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-2 10:07</a>
@@ -17463,16 +11716,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 只能说国行码农太过于拉胯，交给马少跟蛋丁的话说不定都出了3次小更新了，还能加进去DC调光<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2363#       发表于 2021-3-2 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50484129&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-3-2 10:58</a>
@@ -17482,25 +11729,13 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  逆袭的黑月  
 ##### 2364#       发表于 2021-3-2 11:41
 
 
-
-
 马克兔又推了一个更新，不知道有没有解决之前11的问题。。。下午当勇士试试
-
-
-
-
-
 
 
 -----
@@ -17509,15 +11744,9 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2365#       发表于 2021-3-2 11:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">话说你们mk2都用的啥手机壳/套，我买得是青山绿所有想要一个背面透光率高些的套子，结果买了两个商品介绍里都说是高透的，结果背面不是磨砂就是带格纹。
 
 所以有没有透光率高些的套子……MK1摔碎过屏幕所以不敢裸奔
-
-
-
-
-
 
 
 -----
@@ -17526,16 +11755,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2366#       发表于 2021-3-2 11:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50484746&amp;ptid=1915171" target="_blank">狂风DKC 发表于 2021-3-2 11:48</a>
 
 话说你们mk2都用的啥手机壳/套，我买得是青山绿所有想要一个背面透光率高些的套子，结果买了两个商 ...</blockquote>
 估计就只能金属框+背膜了，高透的沾指纹，还不如磨砂
-
-
-
-
-
 
 
 -----
@@ -17544,23 +11767,15 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2367#       发表于 2021-3-2 13:44
 
 
-
-
 更完了，目前只看出全面屏手势修复了，晚上下班看看蓝牙问题修没修
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  jenchaosit  
 ##### 2368#       发表于 2021-3-2 14:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50482399&amp;ptid=1915171" target="_blank">东云静马 发表于 2021-3-2 07:59</a>
@@ -17570,33 +11785,19 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 —— 来自 Xiaomi MI CC 9 Meitu Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2369#       发表于 2021-3-2 14:43
 
 
-
-
 马克兔更新 58.1.A.3.100，更新后微博可以开定位权限了，之前有些app开定位权限会闪退
-
-
-
-
-
 
 
 -----
 
 ####  月神侠  
 ##### 2370#       发表于 2021-3-2 14:52
-
-
 
 
 软件版本：
@@ -17612,32 +11813,19 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 3. 5G网络连接性能改进.
 
 
-
-
-
-
-
 -----
 
 ####  2002126  
 ##### 2371#       发表于 2021-3-2 15:14
 
 
-
-
 更新完长按电源键还是黑屏，技术的索尼
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2372#       发表于 2021-3-2 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486807&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-2 15:14</a>
@@ -17647,16 +11835,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2373#       发表于 2021-3-2 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50484746&amp;ptid=1915171" target="_blank">狂风DKC 发表于 2021-3-2 11:48</a>
@@ -17665,16 +11847,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 可以买香蕉壳 当然价格感人
 
 
-
-
-
-
-
 -----
 
 ####  flymop  
 ##### 2374#       发表于 2021-3-2 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486807&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-2 15:14</a>
@@ -17683,16 +11859,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">sony传统艺能，正版手机的标志
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2375#       发表于 2021-3-2 15:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50482567&amp;ptid=1915171" target="_blank">猫空 发表于 2021-3-2 08:31</a>
@@ -17712,25 +11882,13 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 2021-3-2 15:49 上传
 
 
-
-
-
-
-
 难道是日区有毒？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  猫空  
 ##### 2376#       发表于 2021-3-2 16:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50487236&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-2 15:50</a>
@@ -17741,16 +11899,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 我也是日区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  2002126  
 ##### 2377#       发表于 2021-3-2 16:51
-
 
 
 <blockquote>我很费纸 发表于 2021-3-2 15:22
@@ -17761,16 +11913,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 我说的是长按电源键弹出的菜单
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2378#       发表于 2021-3-2 16:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50487962&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-2 16:51</a>
@@ -17779,16 +11925,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 那就没事了，继续吊翔移工程师路灯就完事了
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2379#       发表于 2021-3-2 17:14
-
 
 
 <blockquote>引用第2375楼猫空于2021-03-02 16:45发表的  :
@@ -17800,16 +11940,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2380#       发表于 2021-3-2 17:18
-
 
 
 <blockquote>引用第2377楼我很费纸于2021-03-02 16:56发表的  :
@@ -17821,33 +11955,19 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  zxc786  
 ##### 2381#       发表于 2021-3-2 19:20
 
 
-
-
 为什么我的xperia1 ii 卡得一比，有时候解锁都卡顿。比mate20还卡…
-
-
-
-
-
 
 
 -----
 
 ####  逆袭的黑月  
 ##### 2382#       发表于 2021-3-2 19:27
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/02/192528yl8scyrdbz0wc1c5.png" referrerpolicy="no-referrer">
@@ -17860,16 +11980,7 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 2021-3-2 19:25 上传
 
 
-
-
-
-
 看你们在那说，我也去看了看。。。我那个华为老手机上明明是下载玩过的
-
-
-
-
-
 
 
 -----
@@ -17878,27 +11989,19 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2383#       发表于 2021-3-2 19:33
 
 
-
 <blockquote>引用第2380楼zxc786于2021-03-02 19:20发表的  :
 
 为什么我的xperia1 ii 卡得一比，有时候解锁都卡顿。比mate20还卡…</blockquote>
 你开省电模式了吧   那个STAmina
 
 
-
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
-
-
-
-
-
 
 
 -----
 
 ####  zxc786  
 ##### 2384#       发表于 2021-3-2 19:38
-
 
 
  本帖最后由 zxc786 于 2021-3-2 19:43 编辑 
@@ -17910,17 +12013,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 没有开，低电量模式开stamina，和普通状态没啥区别。
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2385#       发表于 2021-3-2 19:52
-
-
 
 
 害，连我车上蓝牙的间歇断连还是没修
@@ -17928,16 +12024,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2386#       发表于 2021-3-3 09:24
-
 
 
 <blockquote>zxc786 发表于 2021-3-2 19:20
@@ -17949,16 +12039,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 试试把所有程序都加入节电优能？
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2387#       发表于 2021-3-3 09:26
-
 
 
 <blockquote>黑之月 发表于 2021-3-2 19:52
@@ -17971,16 +12055,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 我倒是从来没有间歇断连过，但在升级前就一直是如果一段时间没连汽车，启动汽车后就不会自动连接并播放音乐，必须打开屏幕进入音乐 App 才行。就好像蓝牙功能被休眠了要手动启动
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2388#       发表于 2021-3-3 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50493341&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-3 09:26</a>
@@ -17992,16 +12070,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  2002126  
 ##### 2389#       发表于 2021-3-3 10:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50488244&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-2 17:18</a>
@@ -18013,16 +12085,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 - -没有智能设备的路过
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2390#       发表于 2021-3-3 11:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486807&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-2 15:14</a>
@@ -18042,21 +12108,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 2021-3-3 11:02 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  2002126  
 ##### 2391#       发表于 2021-3-3 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494543&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-3-3 11:02</a>
@@ -18067,16 +12122,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 就是安卓11的设备控制器，用来控制智能家居这种
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2392#       发表于 2021-3-3 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494559&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-3 11:03</a>
@@ -18085,16 +12134,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 这个不就是长按电源键的菜单吗？我家没有智能家居，没法直观感受你的问题。
 
 
-
-
-
-
-
 -----
 
 ####  2002126  
 ##### 2393#       发表于 2021-3-3 11:07
-
 
 
 <blockquote>无印凉粉 发表于 2021-3-3 11:05
@@ -18111,29 +12154,14 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 2021-3-3 11:07 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2394#       发表于 2021-3-3 11:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494618&amp;ptid=1915171" target="_blank">2002126 发表于 2021-3-3 11:07</a></blockquote>
 不好意思我还真是第一次见这样的关机界面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18142,14 +12170,7 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2395#       发表于 2021-3-3 11:29
 
 
-
-
 想起来去外网搜了下“android 11 bluetooth keeps stopping” 这问题的人还挺多了。按一些帖子里提到的清掉了蓝牙应用的缓存和用户数据，晚上回家再试试
-
-
-
-
-
 
 
 -----
@@ -18158,15 +12179,9 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2396#       发表于 2021-3-3 12:05
 
 
-
 <blockquote>无印凉粉 发表于 2021-3-3 11:16
 不好意思我还真是第一次见这样的关机界面</blockquote>
 如果连接了 Google Home 的话这里会显示各类智能家居的开关。国内看有没有人适配吧，我看悬
-
-
-
-
-
 
 
 -----
@@ -18175,16 +12190,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2397#       发表于 2021-3-3 15:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494736&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-3-3 11:16</a>
 
 不好意思我还真是第一次见这样的关机界面</blockquote>
 这可是原生安卓11的醍醐味<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18193,15 +12202,9 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2398#       发表于 2021-3-3 15:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50489428&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2021-3-2 19:27</a>
 看你们在那说，我也去看了看。。。我那个华为老手机上明明是下载玩过的 ...</blockquote>
 看来马克兔也不行啊，。那就是任地狱故意的了。<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18210,16 +12213,9 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2399#       发表于 2021-3-3 16:59
 
 
-
-
 美版也终于推送安卓11了<img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">看了楼里决定先不更
 
 — from Sony XQ-AT51, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -18228,16 +12224,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2400#       发表于 2021-3-3 17:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50489365&amp;ptid=1915171" target="_blank">zxc786 发表于 2021-3-2 19:20</a>
 
 为什么我的xperia1 ii 卡得一比，有时候解锁都卡顿。比mate20还卡…</blockquote>
 是长时间没有关机吗？之前我一个半月没关机之后某天连后台都拉不出来了，关机再开机就好了。希望对你有帮助<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18246,14 +12236,7 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2401#       发表于 2021-3-3 17:22
 
 
-
-
 新的更新，终于解决了手势的问题了～～～<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18262,23 +12245,16 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 ##### 2402#       发表于 2021-3-3 20:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50499456&amp;ptid=1915171" target="_blank">他言無用 发表于 2021-3-3 17:11</a>
 
 是长时间没有关机吗？之前我一个半月没关机之后某天连后台都拉不出来了，关机再开机就好了。希望对你有帮 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">解决了，重启一下就复活了，不知道什么原因。
 
 
-
-
-
-
-
 -----
 
 ####  zxc786  
 ##### 2403#       发表于 2021-3-3 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50493320&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-3 09:24</a>
@@ -18291,16 +12267,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">重启一下解决了。
 
 
-
-
-
-
-
 -----
 
 ####  黑之月  
 ##### 2404#       发表于 2021-3-3 21:12
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">实测删除蓝牙用户数据不能解决卡顿问题...好烦啊
@@ -18308,16 +12278,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 2405#       发表于 2021-3-3 22:16
-
 
 
  本帖最后由 EFSF 于 2021-3-4 10:11 编辑 
@@ -18331,16 +12295,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 — from Sony XQ-AT52, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.0-play
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 2406#         楼主| 发表于 2021-3-3 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502525&amp;ptid=1915171" target="_blank">EFSF 发表于 2021-3-3 22:16</a>
@@ -18349,16 +12307,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 拨号界面按*#*#4636#*#*，您看看能不能设置5g？
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 2407#       发表于 2021-3-3 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502585&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-3-3 22:23</a>
@@ -18373,17 +12325,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 技术的索尼，太技术了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sin.yugi  
 ##### 2408#       发表于 2021-3-4 06:59
-
-
 
 
 母亲的马克兔今天升级了推送的系统升级后重启卡在android logo处，继续重启也是这样。。。求大家解答啊
@@ -18391,17 +12336,10 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 — from OnePlus GM1917, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  EFSF  
 ##### 2409#       发表于 2021-3-4 11:06
-
-
 
 
 昨晚在[@被雨困住的城市](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=491627) 的提示下进入手机信息界面，重新拿回了5G状态，这里说一下方法，以后大家也可以参照一下。
@@ -18418,16 +12356,10 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 当然这跟我之前一样，只是显示我目前选择的是5G NR/LTE/GSM/WCDM，打开选项是没有这个选项的。不过好歹能把这个首选网络制式找回来。
 
 
-
-
-
-
-
 -----
 
 ####  藤原亮政  
 ##### 2410#       发表于 2021-3-5 19:28
-
 
 
  本帖最后由 藤原亮政 于 2021-3-5 19:29 编辑 
@@ -18447,32 +12379,19 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 只能希望快點修復
 
 
-
-
-
-
-
 -----
 
 ####  ドロロ  
 ##### 2411#       发表于 2021-3-5 22:59
 
 
-
-
 **咧，怎摸解决微信视频美颜啊
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2412#       发表于 2021-3-5 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50524408&amp;ptid=1915171" target="_blank">藤原亮政 发表于 2021-3-5 19:28</a>
@@ -18488,16 +12407,10 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2413#       发表于 2021-3-6 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504391&amp;ptid=1915171" target="_blank">sin.yugi 发表于 2021-3-4 06:59</a>
@@ -18509,16 +12422,10 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 是不是之前开了谷歌服务？
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2414#       发表于 2021-3-6 20:36
-
 
 
 <blockquote>我很费纸 发表于 2021-3-5 23:11
@@ -18529,16 +12436,10 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 索尼这次更新简直了，各种受害者，口碑爆炸，m3 还想不想卖了
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2415#       发表于 2021-3-6 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50534423&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-6 20:36</a>
@@ -18548,25 +12449,13 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  维阿  
 ##### 2416#       发表于 2021-3-6 22:23
 
 
-
-
 爬完了楼层 已经不买想买sony了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18575,14 +12464,7 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 ##### 2417#       发表于 2021-3-6 22:29
 
 
-
-
 不想买+1
-
-
-
-
-
 
 
 -----
@@ -18591,16 +12473,9 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 ##### 2418#       发表于 2021-3-6 23:15
 
 
-
-
 看完楼，很庆幸没买索尼而是买了三星
 
 —— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -18609,16 +12484,9 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 ##### 2419#       发表于 2021-3-6 23:41
 
 
-
-
 所以没事不要更新，一点问题没有
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -18627,21 +12495,13 @@ sim1 联通手机卡，sim2 一张micro SD卡。
 ##### 2420#       发表于 2021-3-6 23:54
 
 
-
-
 把xperia当成xbox看待就好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  lbzlxx  
 ##### 2421#       发表于 2021-3-10 16:58
-
 
 
  本帖最后由 lbzlxx 于 2021-3-10 17:01 编辑 
@@ -18652,25 +12512,13 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 而且神奇的是1已经比5便宜了，都是48xx，咸鱼还是4100左右，
 
 
-
-
-
-
-
 -----
 
 ####  他言無用  
 ##### 2422#       发表于 2021-3-10 17:20
 
 
-
-
 脑子一抽买了官网那个199的壳，现在陷入了思考……膜大家都是用的哪家呢？
-
-
-
-
-
 
 
 -----
@@ -18679,16 +12527,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 ##### 2423#       发表于 2021-3-10 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50534423&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-6 20:36</a>
 
 索尼这次更新简直了，各种受害者，口碑爆炸，m3 还想不想卖了</blockquote>
 我这次果断入国行简直再明智不过。
-
-
-
-
-
 
 
 -----
@@ -18697,23 +12539,16 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 ##### 2424#       发表于 2021-3-10 17:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50578357&amp;ptid=1915171" target="_blank">他言無用 发表于 2021-3-10 17:20</a>
 
 脑子一抽买了官网那个199的壳，现在陷入了思考……膜大家都是用的哪家呢？ ...</blockquote>
 官壳除了厚点都挺不错的，不过闲鱼应该只要一百出头。膜用小小鱼雷一百块的，值
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2425#       发表于 2021-3-10 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50578357&amp;ptid=1915171" target="_blank">他言無用 发表于 2021-3-10 17:20</a>
@@ -18723,17 +12558,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Vicarious  
 ##### 2426#       发表于 2021-3-10 20:42
-
-
 
 
 目前在纠结x1.ii，note20u
@@ -18750,16 +12578,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  zhongjie  
 ##### 2427#       发表于 2021-3-10 21:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50580781&amp;ptid=1915171" target="_blank">Vicarious 发表于 2021-3-10 20:42</a>
@@ -18771,17 +12593,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 —— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2428#       发表于 2021-3-11 09:28
-
-
 
 
 悲报<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -18793,16 +12608,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 还好我有先见之明把屏幕锁定解除了，现在亮屏只能利用相机键打开相机再呼出多任务关闭相机，想闭屏只能等待15秒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2429#       发表于 2021-3-11 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50584707&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-3-11 09:28</a>
@@ -18817,16 +12626,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 熄屏可以用这楼后面推荐的应付[https://bbs.saraba1st.com/2b/thread-1954049-1-1.html](https://bbs.saraba1st.com/2b/thread-1954049-1-1.html)
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2430#       发表于 2021-3-11 12:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50585229&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-3-11 10:14</a>
@@ -18844,16 +12647,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 我是没想到阿索家的机器品控问题会出在我头上<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 2431#         楼主| 发表于 2021-3-11 13:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50586667&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-03-11 12:12:57</a>
@@ -18865,16 +12662,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2432#       发表于 2021-3-11 22:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587598&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-3-11 13:30</a>
@@ -18886,17 +12677,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 黑龙江，我用自带的索尼中国查到了，哈尔滨有一家特约维修站。发票和盒子忘记放在哪里了，下周打算直接去看看
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2433#       发表于 2021-3-12 00:20
-
-
 
 
 新问题
@@ -18908,25 +12692,13 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 还有啊，微信步数也失灵了，跟我一起行动的朋友微信步数7500，我只有两千出头，全天行动都在一起的
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2434#       发表于 2021-3-12 00:21
 
 
-
-
 阿索的用机体验，前三个月永远是最强的
-
-
-
-
-
 
 
 -----
@@ -18935,16 +12707,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 ##### 2435#       发表于 2021-3-12 09:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50578678&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-3-10 17:47</a>
 
 官壳除了厚点都挺不错的，不过闲鱼应该只要一百出头。膜用小小鱼雷一百块的，值 ...</blockquote>
 感谢这位老哥的推荐，但我还是忍不住思考我为什么要买这么贵的壳<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18953,14 +12719,7 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 ##### 2436#       发表于 2021-3-12 12:00
 
 
-
-
 港版更新了，不知道bug修复了没有
-
-
-
-
-
 
 
 -----
@@ -18969,22 +12728,13 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 ##### 2437#       发表于 2021-3-12 12:12
 
 
-
-
 港版从 A.1 更新到 A.3，感觉应该是包含了一些修复吧，正在更新中
-
-
-
-
-
 
 
 -----
 
 ####  leyenda  
 ##### 2438#       发表于 2021-3-12 16:45
-
-
 
 
 58.1.A.3.87  已知修復內容&amp;更新內容
@@ -18996,16 +12746,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 ★修正 工程模式RGBC-IR SENSOR數值異常問題
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2439#       发表于 2021-3-12 18:16
-
 
 
 <blockquote>leyenda 发表于 2021-3-12 16:45
@@ -19017,16 +12761,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 啊，快让我很废纸同学试试他的 5m2 XD
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2440#       发表于 2021-3-12 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603152&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-12 18:16</a>
@@ -19038,16 +12776,10 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  cleaner  
 ##### 2441#       发表于 2021-3-13 02:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605386&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-12 22:10</a>
@@ -19059,17 +12791,10 @@ win10掌机体验如何？有推荐吗
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  藤原亮政  
 ##### 2442#       发表于 2021-3-13 02:34
-
-
 
 
 1m2港版早上更新了
@@ -19078,16 +12803,10 @@ win10掌机体验如何？有推荐吗
 —— 來自 Sony XQ-AT52, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2443#       发表于 2021-3-13 02:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607190&amp;ptid=1915171" target="_blank">cleaner 发表于 2021-3-13 02:13</a>
@@ -19111,27 +12830,15 @@ gx1 pro，超低压牙膏（虽然可以解锁至20W，但依旧不如楼上）�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2444#       发表于 2021-3-13 20:29
 
 
-
-
 所以国行52什么时候更新没有问题的11啊？
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -19140,16 +12847,9 @@ gx1 pro，超低压牙膏（虽然可以解锁至20W，但依旧不如楼上）�
 ##### 2445#       发表于 2021-3-14 14:09
 
 
-
-
 完全没收到修复性能的新版11更新，果然港版又被抛弃了
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -19158,21 +12858,13 @@ gx1 pro，超低压牙膏（虽然可以解锁至20W，但依旧不如楼上）�
 ##### 2446#       发表于 2021-3-14 18:55
 
 
-
-
 pro那个均热板加散热垫有点厉害啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  斑驳的阴影  
 ##### 2447#       发表于 2021-3-15 06:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50587598&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-3-11 13:30</a>
@@ -19184,17 +12876,10 @@ pro那个均热板加散热垫有点厉害啊<img src="https://static.saraba1st.
 搜了下本省最近的服务站在隔壁市，近200km<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">这品控着实劝退
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2448#       发表于 2021-3-15 12:11
-
-
 
 
 X5M2的港版更新了，然而并没有修复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -19204,16 +12889,10 @@ X5M2的港版更新了，然而并没有修复<img src="https://static.saraba1st
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  oskneo  
 ##### 2449#       发表于 2021-3-15 12:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50629764&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-15 12:11</a>
@@ -19223,16 +12902,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2450#       发表于 2021-3-15 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50630291&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-3-15 12:54</a>
@@ -19246,16 +12919,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2451#       发表于 2021-3-16 02:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50629764&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-15 12:11</a>
@@ -19264,16 +12931,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 你把Geekbench丢到游戏管理器里面再看看？
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2452#       发表于 2021-3-16 07:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50637447&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-16 02:54</a>
@@ -19285,16 +12946,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2453#       发表于 2021-3-16 08:03
-
 
 
  本帖最后由 我很费纸 于 2021-3-16 13:14 编辑 
@@ -19307,16 +12962,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  藤原亮政  
 ##### 2454#       发表于 2021-3-16 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50637800&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-16 08:03</a>
@@ -19327,25 +12976,13 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 更新完放兩個小時然後關機-再開機就正常了手遊也不卡了
 
 
-
-
-
-
-
 -----
 
 ####  没有未来的未来  
 ##### 2455#       发表于 2021-3-16 08:55
 
 
-
-
 感谢各位，不想换手机了<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19354,21 +12991,13 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 ##### 2456#       发表于 2021-3-16 10:32
 
 
-
-
 上周港版更新后，我升到安卓11后掉电稀快的毛病解决了
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2457#       发表于 2021-3-16 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50638010&amp;ptid=1915171" target="_blank">藤原亮政 发表于 2021-3-16 08:47</a>
@@ -19384,17 +13013,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Vicarious  
 ##### 2458#       发表于 2021-3-16 21:50
-
-
 
 
 刚刚还是下单了港版8G的X1马克兔
@@ -19410,16 +13032,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2459#       发表于 2021-3-16 23:44
-
 
 
 <blockquote>引用第2452楼我很费纸于2021-03-16 08:03发表的  :
@@ -19431,16 +13047,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  newtypelv2  
 ##### 2460#       发表于 2021-3-17 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50641053&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-16 13:14</a>
@@ -19452,16 +13062,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 喷了,我更新完也发现了这个问题
 
 
-
-
-
-
-
 -----
 
 ####  newtypelv2  
 ##### 2461#       发表于 2021-3-17 11:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50641053&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-16 13:14</a>
@@ -19473,16 +13077,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 去5ch搜了一圈 发现也有这个问题,然后解决方式是完全关机再开机,我试了下是可以的.
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2462#       发表于 2021-3-17 12:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50647488&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-16 23:44</a>
@@ -19495,16 +13093,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2463#       发表于 2021-3-17 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50650881&amp;ptid=1915171" target="_blank">newtypelv2 发表于 2021-3-17 11:21</a>
@@ -19514,17 +13106,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  被雨困住的城市  
 ##### 2464#         楼主| 发表于 2021-3-17 13:58
-
-
 
 
 昨天差点冲动3750买下一台二手5ii
@@ -19532,16 +13117,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2465#       发表于 2021-3-17 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50651404&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-17 12:04</a>
@@ -19553,16 +13132,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 有种说法是11更容易触发省电功能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  newtypelv2  
 ##### 2466#       发表于 2021-3-17 19:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50652017&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-17 13:03</a>
@@ -19574,16 +13147,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 我又仔细看了眼，确实大核一般就打开应用的时候动一下
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2467#       发表于 2021-3-18 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50653782&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-17 15:54</a>
@@ -19596,25 +13163,13 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  SplashCrBy  
 ##### 2468#       发表于 2021-3-18 10:33
 
 
-
-
 贴吧说港版不会支持SA 5G
-
-
-
-
-
 
 
 -----
@@ -19623,22 +13178,13 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 ##### 2469#       发表于 2021-3-18 13:21
 
 
-
-
 港版的5 ii 新的11版本，终于解决了5G之下不能GPS的bug，翔移的工程师真牛逼
-
-
-
-
-
 
 
 -----
 
 ####  Vicarious  
 ##### 2470#       发表于 2021-3-18 17:18
-
-
 
 
 今天机子到手了
@@ -19650,16 +13196,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2471#       发表于 2021-3-18 17:21
-
 
 
 <blockquote>引用第2466楼我很费纸于2021-03-18 09:35发表的  :
@@ -19671,17 +13211,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  adslnet0519  
 ##### 2472#       发表于 2021-3-19 08:13
-
-
 
 
 国行x5ii我发现绿色守护不能被island调用起来，于是刷了港版的安卓11，root后体验良好，和之前用的xz2c相比，除了长了一节和背面没有弧度不够如xz2c贴手，其他基本上一毛一样<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
@@ -19689,16 +13222,10 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2473#       发表于 2021-3-19 09:42
-
 
 
 <blockquote>Vicarious 发表于 2021-3-18 17:18
@@ -19714,27 +13241,15 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 我妹觉得文件夹图标圆形的空隙太大，第一天就换了微软桌面了，看着还行。
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2474#       发表于 2021-3-19 11:02
 
 
-
-
 一直在用微软桌面，都忘了原生桌面啥样了……
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -19743,14 +13258,7 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 ##### 2475#       发表于 2021-3-19 11:34
 
 
-
-
 国行 5M2 推送58.1.A.3.112
-
-
-
-
-
 
 
 -----
@@ -19759,24 +13267,15 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 ##### 2476#       发表于 2021-3-19 12:22
 
 
-
-
 900多m，我还是等小白鼠吧。
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  月神侠  
 ##### 2477#       发表于 2021-3-19 12:23
-
-
 
 
 Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反馈：
@@ -19803,17 +13302,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 目前使用下来没有明显的 bug，但是，更新安装过程中后手机会发热，这是正常情况，等更新进程结束后发热量就会降下来了，推荐更新。
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2478#       发表于 2021-3-19 12:44
-
-
 
 
 等国行5M2的朋友更新完来个geekbench跑分看看到底是真修复还是假修复<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
@@ -19821,17 +13313,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  wizardasd  
 ##### 2479#       发表于 2021-3-19 12:51
-
-
 
 
 换成应用宝了有点讨厌啊
@@ -19841,25 +13326,13 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2480#       发表于 2021-3-19 13:43
 
 
-
-
 等小白鼠体验之后再决定是否更新
-
-
-
-
-
 
 
 -----
@@ -19868,14 +13341,7 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 ##### 2481#       发表于 2021-3-19 14:43
 
 
-
-
 对手游需求不是很高，我来当小白鼠啦
-
-
-
-
-
 
 
 -----
@@ -19884,23 +13350,15 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 ##### 2482#       发表于 2021-3-19 15:06
 
 
-
-
 已更新，目前发现的问题是，三大金刚没法隐藏了，其余都没啥问题，动画流畅了一丢丢
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  猫空  
 ##### 2483#       发表于 2021-3-19 15:27
-
 
 
  本帖最后由 猫空 于 2021-3-19 15:35 编辑 
@@ -19911,17 +13369,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  majiyabakunei  
 ##### 2484#       发表于 2021-3-19 15:39
-
-
 
 
 多任务的屏幕截图有办法关掉吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -19929,16 +13380,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  Vicarious  
 ##### 2485#       发表于 2021-3-19 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50672102&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-19 09:42</a>
@@ -19952,16 +13397,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2486#       发表于 2021-3-19 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50676004&amp;ptid=1915171" target="_blank">majiyabakunei 发表于 2021-3-19 15:39</a>
@@ -19973,16 +13412,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 那个其实就是用来取代之前的长按开关截屏的，习惯了还挺方便
 
 
-
-
-
-
-
 -----
 
 ####  majiyabakunei  
 ##### 2487#       发表于 2021-3-19 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677176&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-3-19 17:43</a>
@@ -19992,16 +13425,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  leyenda  
 ##### 2488#       发表于 2021-3-19 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677349&amp;ptid=1915171" target="_blank">majiyabakunei 发表于 2021-3-19 18:01</a>
@@ -20015,16 +13442,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 判定区域很小的，我倒是从桌面拿起的时候经常误触侧感，人和人的体质不同<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2489#       发表于 2021-3-19 18:12
-
 
 
 <blockquote>Vicarious 发表于 2021-3-19 16:20
@@ -20036,16 +13457,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 是啊，不知道索尼移动内部发生了什么，可能就是 cost saving 太厉害了
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2490#       发表于 2021-3-19 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677446&amp;ptid=1915171" target="_blank">leystage 发表于 2021-3-19 18:12</a>
@@ -20053,17 +13468,10 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 交给东京来管理了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  andychen  
 ##### 2491#       发表于 2021-3-19 19:16
-
-
 
 
 国行刚更新了，升完第一时间吧应用宝卸载了
@@ -20073,25 +13481,13 @@ launcher的动画过渡效果多了很多
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  囧面超人  
 ##### 2492#       发表于 2021-3-19 20:51
 
 
-
-
 无码兔国行升级了11，geekbench5跑分不能看，单核700+多核1900+
-
-
-
-
-
 
 
 -----
@@ -20100,24 +13496,16 @@ launcher的动画过渡效果多了很多
 ##### 2493#       发表于 2021-3-20 00:57
 
 
-
-
 应用宝太恶心了
 怎么能把之前那个阉割版市场弄回来啊……
 
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wenze  
 ##### 2494#       发表于 2021-3-20 02:03
-
 
 
 <blockquote>wizardasd 发表于 2021-3-20 00:57
@@ -20128,16 +13516,10 @@ launcher的动画过渡效果多了很多
 问问看有没有人备份了安装包吧，之前1马克兔更新时就有人备份
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2495#       发表于 2021-3-20 10:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50678890&amp;ptid=1915171" target="_blank">囧面超人 发表于 2021-3-19 20:51</a>
@@ -20147,16 +13529,10 @@ launcher的动画过渡效果多了很多
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2496#       发表于 2021-3-20 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677982&amp;ptid=1915171" target="_blank">andychen 发表于 2021-3-19 19:16</a>
@@ -20170,26 +13546,15 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  zzzeven  
 ##### 2497#       发表于 2021-3-20 11:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50678890&amp;ptid=1915171" target="_blank">囧面超人 发表于 2021-3-19 20:51</a>
 无码兔国行升级了11，geekbench5跑分不能看，单核700+多核1900+</blockquote>
 翔移好差。。。
-
-
-
-
-
 
 
 -----
@@ -20198,14 +13563,7 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2498#       发表于 2021-3-20 11:39
 
 
-
-
 目前看来我观望果然没错啊
-
-
-
-
-
 
 
 -----
@@ -20214,16 +13572,9 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2499#       发表于 2021-3-20 18:54
 
 
-
-
 看來我沒升級11是對的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 — from Sony XQ-AT72, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -20232,21 +13583,13 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2500#       发表于 2021-3-20 19:11
 
 
-
-
 我也想要个阉割版的应用宝
-
-
-
-
-
 
 
 -----
 
 ####  leyenda  
 ##### 2501#       发表于 2021-3-20 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685686&amp;ptid=1915171" target="_blank">KayoAiko 发表于 2021-3-20 18:54</a>
@@ -20258,17 +13601,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 1ii没这问题，不过也没啥必须升的优点
 
 
-
-
-
-
-
 -----
 
 ####  sdanss  
 ##### 2502#       发表于 2021-3-22 08:08
-
-
 
 
 有啥手感好点的5 ii的前膜和壳子。
@@ -20276,17 +13612,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 这次5 ii感觉好脆弱，不敢裸奔了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2503#       发表于 2021-3-22 17:44
-
-
 
 
 软件版本：
@@ -20312,17 +13641,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 4. 相册问题改进.
 
 
-
-
-
-
-
 -----
 
 ####  Vicarious  
 ##### 2504#       发表于 2021-3-23 02:20
-
-
 
 
 上手好几天了
@@ -20337,17 +13659,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  みかこし  
 ##### 2505#       发表于 2021-3-23 08:57
-
-
 
 
 1ii，不知道是新版本的bug还是以前就有，用多窗口打开的app有几率之后打开时会崩溃，并且不清除数据就再也无法打开，怀疑可能是分辨率相关的bug？
@@ -20356,16 +13671,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2506#       发表于 2021-3-23 09:24
-
 
 
 <blockquote>月神侠 发表于 2021-3-22 17:44
@@ -20378,16 +13687,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 国行1用了半天还成，但第一件事就是卸载新增的流氓商店和流氓浏览器…
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2507#       发表于 2021-3-23 09:25
-
 
 
 <blockquote>Vicarious 发表于 2021-3-23 02:20
@@ -20399,26 +13702,15 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 是，这次 1 II 索尼对耳机口专门做过优化，比之前 USB 音频的噪音减少9九成
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2508#       发表于 2021-3-23 09:26
 
 
-
 <blockquote>みかこし 发表于 2021-3-23 08:57
 1ii，不知道是新版本的bug还是以前就有，用多窗口打开的app有几率之后打开时会崩溃，并且不清除数据就再也 ...</blockquote>
 多窗口很多时候要看程序本身写的是否完备，有些程序本身就没考虑很多，就容易各种问题…
-
-
-
-
-
 
 
 -----
@@ -20427,15 +13719,9 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2509#       发表于 2021-3-23 09:41
 
 
-
 <blockquote>leystage 发表于 2021-3-23 09:24
 国行1用了半天还成，但第一件事就是卸载新增的流氓商店和流氓浏览器…</blockquote>
 招行掌上生活在 Android 11 无法启动 Orz
-
-
-
-
-
 
 
 -----
@@ -20444,24 +13730,16 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2510#       发表于 2021-3-23 09:45
 
 
-
-
 今天不知道怎么回事，滴滴和京东还有贴吧都无故闪退，play和应用商店下载的都不行
 
 
 ----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  leystage  
 ##### 2511#       发表于 2021-3-23 09:48
-
 
 
 <blockquote>leystage 发表于 2021-3-23 09:41
@@ -20471,32 +13749,19 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 唉… 掌上生活属于比较流氓的软件之一，各种权限和后台和无意义的安全措施…
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 2512#       发表于 2021-3-23 09:55
 
 
-
-
 重新下载了一遍之后还是闪退。明明我第一时间升级的11之前没问题啊，不过11确实没10好用
-
-
-
-
-
 
 
 -----
 
 ####  月神侠  
 ##### 2513#       发表于 2021-3-23 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706803&amp;ptid=1915171" target="_blank">iceprince10 发表于 2021-3-23 09:45</a>
@@ -20508,27 +13773,16 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 上面几个安卓11闪退的几个app你们试试关闭位置权限，刚更新11的时候是要这样才能进，不过最新版的11已经可以开位置权限了
 
 
-
-
-
-
-
 -----
 
 ####  iceprince10  
 ##### 2514#       发表于 2021-3-23 10:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707118&amp;ptid=1915171" target="_blank">月神侠 发表于 2021-3-23 10:14</a>
 
 上面几个安卓11闪退的几个app你们试试关闭位置权限，刚更新11的时候是要这样才能进，不过最新版的11已经 ...</blockquote>
 跟这个应该没关系，我是第一时间就升级的11，没出问题，今天突然出的问题
-
-
-
-
-
 
 
 -----
@@ -20537,16 +13791,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2515#       发表于 2021-3-23 10:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707118&amp;ptid=1915171" target="_blank">月神侠 发表于 2021-3-23 10:14</a>
 
 上面几个安卓11闪退的几个app你们试试关闭位置权限，刚更新11的时候是要这样才能进，不过最新版的11已经 ...</blockquote>
 跟这个应该没关系，我是第一时间就升级的11，没出问题，今天突然出的问题
-
-
-
-
-
 
 
 -----
@@ -20555,16 +13803,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2516#       发表于 2021-3-23 10:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707144&amp;ptid=1915171" target="_blank">iceprince10 发表于 2021-3-23 10:16</a>
 
 跟这个应该没关系，我是第一时间就升级的11，没出问题，今天突然出的问题 ...</blockquote>
 然后早上还好的鹅球和nga开发版现在也开始点击一条信息就退回主界面。。
-
-
-
-
-
 
 
 -----
@@ -20573,14 +13815,7 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2517#       发表于 2021-3-23 10:21
 
 
-
-
 节电优能升级11后要重新优化，全部关闭之后重新打开
-
-
-
-
-
 
 
 -----
@@ -20589,16 +13824,9 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2518#       发表于 2021-3-23 10:42
 
 
-
-
 删除app-chrome里面的updates试试，目前这版的android webview好像有问题。
 
 -Xperia XZ1 用户
-
-
-
-
-
 
 
 -----
@@ -20607,14 +13835,7 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2519#       发表于 2021-3-23 11:07
 
 
-
-
 如果是微博、酷安等闪退，把Android Webview更新卸载就可以了
-
-
-
-
-
 
 
 -----
@@ -20623,17 +13844,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2520#       发表于 2021-3-23 12:54
 
 
-
-
 找到凶手了，是3月12号更新的这版android webview,卸载更新就好了，给索尼多窗口道歉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
-
-
-
-
-
 
 
 -----
@@ -20642,14 +13856,7 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2521#       发表于 2021-3-23 14:38
 
 
-
-
 或者更新最新的Android Webview 89.0.4389.105，也可以
-
-
-
-
-
 
 
 -----
@@ -20658,22 +13865,13 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2522#       发表于 2021-3-23 16:45
 
 
-
-
 因为很久以前我这边某个手游就会因为webview版本导致跳出，我早就把webview自动更新给关了。看来还是明智的（
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2523#       发表于 2021-3-23 16:48
-
-
 
 
 今天 Android Webview 大翻车，遇到 app 闪退的朋友，去更新一下 Android Webview 即可解决。 ​​​
@@ -20683,27 +13881,15 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  みさ  
 ##### 2524#       发表于 2021-3-23 16:53
 
 
-
-
 有没有国行1升级了安卓11的分享一下使用体验，微博看了一圈问题有点多不是很敢
 
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -20712,21 +13898,13 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 ##### 2525#       发表于 2021-3-23 16:55
 
 
-
-
 5ii升级后自定义铃声好像有点问题
-
-
-
-
-
 
 
 -----
 
 ####  majiyabakunei  
 ##### 2526#       发表于 2021-3-23 16:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711060&amp;ptid=1915171" target="_blank">Milkyway 发表于 2021-3-23 16:55</a>
@@ -20736,32 +13914,19 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  wenze  
 ##### 2527#       发表于 2021-3-23 21:01
 
 
-
-
 你们有感觉更新安卓11后掉电变快了一些吗？
-
-
-
-
-
 
 
 -----
 
 ####  yygundam  
 ##### 2528#       发表于 2021-3-24 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50711049&amp;ptid=1915171" target="_blank">みさ 发表于 2021-3-23 16:53</a>
@@ -20773,16 +13938,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  みさ  
 ##### 2529#       发表于 2021-3-24 01:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715100&amp;ptid=1915171" target="_blank">yygundam 发表于 2021-3-24 01:24</a>
@@ -20791,16 +13950,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 我更新了，主要是你不更新的话那个通知图标就一直在，根本不能隐藏，很烦
 
 
-
-
-
-
-
 -----
 
 ####  yygundam  
 ##### 2530#       发表于 2021-3-24 07:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715140&amp;ptid=1915171" target="_blank">みさ 发表于 2021-3-24 01:35</a>
@@ -20809,16 +13962,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 我早就把自动检查更新关了，只要我不去手动检查就没有提示（
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2531#       发表于 2021-3-24 09:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715140&amp;ptid=1915171" target="_blank">みさ 发表于 2021-3-24 01:35</a>
@@ -20827,16 +13974,10 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 如果不更新的话可以长按更新停止运行
 
 
-
-
-
-
-
 -----
 
 ####  代号锤子  
 ##### 2532#       发表于 2021-3-24 09:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715100&amp;ptid=1915171" target="_blank">yygundam 发表于 2021-3-24 01:24</a>
@@ -20847,16 +13988,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2533#       发表于 2021-3-24 15:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50716526&amp;ptid=1915171" target="_blank">代号锤子 发表于 2021-3-24 09:44</a>
@@ -20872,16 +14007,10 @@ xz2倒是最近跳了几次  相对来说手机存储越少越容易出现，�
 这种大概率重置手机就好。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  代号锤子  
 ##### 2534#       发表于 2021-3-24 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50720023&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-24 15:29</a>
@@ -20893,25 +14022,13 @@ xz2倒是最近跳了几次  相对来说手机存储越少越容易出现，�
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  霜天冰华  
 ##### 2535#       发表于 2021-3-24 19:31
 
 
-
-
 决定要买5马克兔了，问一下现在买港版应该和国行没什么区别吧？以前索尼的机子都是买港版的
-
-
-
-
-
 
 
 -----
@@ -20920,16 +14037,10 @@ xz2倒是最近跳了几次  相对来说手机存储越少越容易出现，�
 ##### 2536#         楼主| 发表于 2021-3-24 19:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722746&amp;ptid=1915171" target="_blank">霜天冰华 发表于 2021-03-24 19:31:49</a>
 决定要买5马克兔了，问一下现在买港版应该和国行没什么区别吧？以前索尼的机子都是买港版的 ...</blockquote>区别大啦啊，记得港版不支持移动5g吧
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20938,23 +14049,16 @@ xz2倒是最近跳了几次  相对来说手机存储越少越容易出现，�
 ##### 2537#       发表于 2021-3-24 19:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722746&amp;ptid=1915171" target="_blank">霜天冰华 发表于 2021-3-24 19:31</a>
 
 决定要买5马克兔了，问一下现在买港版应该和国行没什么区别吧？以前索尼的机子都是买港版的 ...</blockquote>
 不用移动卡5G的话那就没区别……如果要用移动卡5G还是选买国行吧
 
 
-
-
-
-
-
 -----
 
 ####  霜天冰华  
 ##### 2538#       发表于 2021-3-24 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722841&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-3-24 19:41</a>
@@ -20966,16 +14070,10 @@ xz2倒是最近跳了几次  相对来说手机存储越少越容易出现，�
 了解，我还是4G卡，对5G也没啥需求，那就港版了
 
 
-
-
-
-
-
 -----
 
 ####  霜天冰华  
 ##### 2539#       发表于 2021-3-24 20:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50722940&amp;ptid=1915171" target="_blank">KayoAiko 发表于 2021-3-24 19:51</a>
@@ -20984,16 +14082,10 @@ xz2倒是最近跳了几次  相对来说手机存储越少越容易出现，�
 好的谢谢
 
 
-
-
-
-
-
 -----
 
 ####  没有未来的未来  
 ##### 2540#       发表于 2021-3-25 07:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50716526&amp;ptid=1915171" target="_blank">代号锤子 发表于 2021-3-24 09:44</a>
@@ -21002,16 +14094,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 原来不是只有我遇到这个问题
 
 
-
-
-
-
-
 -----
 
 ####  代号锤子  
 ##### 2541#       发表于 2021-3-25 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50726606&amp;ptid=1915171" target="_blank">没有未来的未来 发表于 2021-3-25 07:59</a>
@@ -21021,16 +14107,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  没有未来的未来  
 ##### 2542#       发表于 2021-3-25 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50727167&amp;ptid=1915171" target="_blank">代号锤子 发表于 2021-3-25 09:19</a>
@@ -21040,32 +14120,19 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 我是最后清除相机用户数据才解决。。
 
 
-
-
-
-
-
 -----
 
 ####  鹰富士茄子  
 ##### 2543#       发表于 2021-3-25 12:12
 
 
-
-
 都快四月了，索尼是不是该发布新机子了？
-
-
-
-
-
 
 
 -----
 
 ####  huangzh  
 ##### 2544#       发表于 2021-3-25 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50728880&amp;ptid=1915171" target="_blank">鹰富士茄子 发表于 2021-3-25 12:12</a>
@@ -21075,32 +14142,19 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  みさ  
 ##### 2545#       发表于 2021-3-26 13:42
 
 
-
-
 我的1升了安卓11之后音乐播放器播放不了本地音乐了，大家有类似的问题吗
-
-
-
-
-
 
 
 -----
 
 ####  wqm2008  
 ##### 2546#       发表于 2021-3-29 03:40
-
 
 
  本帖最后由 wqm2008 于 2021-3-29 10:15 编辑 
@@ -21147,17 +14201,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 打算清明ipad到了就去跑售后了。
 
 
-
-
-
-
-
 -----
 
 ####  みさ  
 ##### 2547#       发表于 2021-3-29 04:40
-
-
 
 
 我后悔升级了，有刷回10的教程吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -21165,16 +14212,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2548#       发表于 2021-3-29 07:20
-
 
 
  本帖最后由 Cray 于 2021-3-29 07:21 编辑 
@@ -21190,27 +14231,16 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 2021-3-29 07:21 上传
 
 
-
-
-
-
-
 感觉是根本懒得动起来啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 ----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2549#       发表于 2021-3-29 08:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763360&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-29 07:20</a>
@@ -21223,26 +14253,15 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  没有未来的未来  
 ##### 2550#       发表于 2021-3-29 10:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763144&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-3-29 03:40</a>
 决定清明ipad到了以后去跑趟售后，其实本来不更新11还好，更新了之后遇到很多大问题，更新之前最多就是打电 ...</blockquote>
 大部分问题我都在xzp和z2上遇到过…感觉sony是不是一点长进都没有啊…
-
-
-
-
-
 
 
 -----
@@ -21251,16 +14270,9 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ##### 2551#       发表于 2021-3-29 11:29
 
 
-
-
 11的截图之后出来的小窗口能改回以前的通知栏吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
-
-
-
-
-
 
 
 -----
@@ -21269,23 +14281,16 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ##### 2552#       发表于 2021-3-29 12:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50727219&amp;ptid=1915171" target="_blank">没有未来的未来 发表于 2021-3-25 09:25</a>
 
 我是最后清除相机用户数据才解决。。</blockquote>
 诶,和你们比起来,看来我的原生相机只有第1次打开出错,第2次开始就正常还算不错了?
 
 
-
-
-
-
-
 -----
 
 ####  代号锤子  
 ##### 2553#       发表于 2021-3-29 13:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50766555&amp;ptid=1915171" target="_blank">net13p 发表于 2021-3-29 12:30</a>
@@ -21295,16 +14300,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2554#       发表于 2021-3-29 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50763581&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-3-29 08:14</a>
@@ -21316,25 +14315,13 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 没有加白名单<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  猫空  
 ##### 2555#       发表于 2021-3-29 21:25
 
 
-
-
 刚才试了一下，我的5ii的前置也是糊成一团，还不如米6的前置，这个问题能通过自己解决吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21343,24 +14330,16 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ##### 2556#       发表于 2021-3-30 00:26
 
 
-
-
 指纹他…指纹他…他…他…他竟然好使了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
 
 
 问题来了，我还有必要去售后吗？
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2557#       发表于 2021-3-30 00:28
-
 
 
 <blockquote>引用第2554楼猫空于2021-03-29 21:25发表的  :
@@ -21372,16 +14351,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2558#       发表于 2021-3-30 18:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50771609&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-29 20:49</a>
@@ -21393,25 +14366,13 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2559#       发表于 2021-4-1 20:30
 
 
-
-
 最后还是买了1 ii，本来以为能像xz系列一样完全无缝数据转移，结果只能转某些数据...好烦啊
-
-
-
-
-
 
 
 -----
@@ -21420,22 +14381,15 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ##### 2560#       发表于 2021-4-1 23:09
 
 
-
  本帖最后由 yuikonnu 于 2021-4-1 23:17 编辑 
 
 桌面图标大小能改嘛,找了一圈没找到另外求问冲电一定要用官方的线不,官网指南说一定要用设备随附的线,xz系列的充电线用了会有影响不?
-
-
-
-
-
 
 
 -----
 
 ####  我很费纸  
 ##### 2561#       发表于 2021-4-1 23:48
-
 
 
  本帖最后由 我很费纸 于 2021-4-1 23:49 编辑 
@@ -21450,16 +14404,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2562#       发表于 2021-4-2 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805708&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-1 23:48</a>
@@ -21473,16 +14421,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 另外伴随了大法机子n个岁月的索尼相册居然不让用了..我还是挺喜欢那个相册风格的
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2563#       发表于 2021-4-2 07:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805916&amp;ptid=1915171" target="_blank">yuikonnu 发表于 2021-4-2 00:17</a>
@@ -21492,16 +14434,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2564#       发表于 2021-4-2 08:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50806798&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-2 07:43</a>
@@ -21513,27 +14449,15 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2565#       发表于 2021-4-2 08:41
 
 
-
-
 图标大小在显示里改了，现在又有个问题就是播放视频手机背会震动，触感挺不好的，不是动态的那个,动态关了还是会震动，这个怎么解决
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -21542,14 +14466,7 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ##### 2566#       发表于 2021-4-2 13:46
 
 
-
-
 遇到个很致命的问题，为啥新下的图片日期默认是什么1970 1/1 相册里直接找不到，不管是推特的图还是手机截图都是...
-
-
-
-
-
 
 
 -----
@@ -21558,14 +14475,7 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ##### 2567#       发表于 2021-4-2 14:17
 
 
-
-
 那个是unix时间，下载工具不认windows系统的exif图像信息吧，ns也是pc传过去的图片一律1970
-
-
-
-
-
 
 
 -----
@@ -21574,16 +14484,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ##### 2568#       发表于 2021-4-2 14:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50810649&amp;ptid=1915171" target="_blank">Geminize 发表于 2021-4-2 14:17</a>
 
 那个是unix时间，下载工具不认windows系统的exif图像信息吧，ns也是pc传过去的图片一律1970 ...</blockquote>
 有解决办法不，我看了一圈都说要恢复出厂设置，别吧...
-
-
-
-
-
 
 
 -----
@@ -21592,18 +14496,12 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ##### 2569#       发表于 2021-4-2 14:27
 
 
-
-
 恢复也没用，这个看原始文件，如果原文件服务器对应的时间参数不兼容unix/linux，下载后的文件可能不带unix时间戳，本地系统默认写0，就是unix时间起始日1970年1月1日
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -21613,19 +14511,13 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 | yuikonnu| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  yuikonnu  
 ##### 2570#       发表于 2021-4-2 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50810773&amp;ptid=1915171" target="_blank">Geminize 发表于 2021-4-2 14:27</a>
@@ -21636,16 +14528,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 谢了，至少有个头绪了
 
 
-
-
-
-
-
 -----
 
 ####  Geminize  
 ##### 2571#       发表于 2021-4-2 14:37
-
 
 
  本帖最后由 Geminize 于 2021-4-2 14:39 编辑 
@@ -21653,16 +14539,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 但按理说本机自己的截图不会出这问题啊，你进应用管理把相册和媒体存储的数据清除了试试
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2572#       发表于 2021-4-2 14:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50810895&amp;ptid=1915171" target="_blank">Geminize 发表于 2021-4-2 14:37</a>
@@ -21675,32 +14555,19 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 真有你的，索尼！
 
 
-
-
-
-
-
 -----
 
 ####  无印凉粉  
 ##### 2573#       发表于 2021-4-2 17:53
 
 
-
-
 怎么样把更新提示给关掉啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  allenz2  
 ##### 2574#       发表于 2021-4-2 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50813120&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-4-2 17:53</a>
@@ -21710,16 +14577,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2575#       发表于 2021-4-2 20:23
-
 
 
 <blockquote>引用第2557楼我很费纸于2021-03-30 18:08发表的  :
@@ -21731,16 +14592,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  wqm2008  
 ##### 2576#       发表于 2021-4-3 01:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50773727&amp;ptid=1915171" target="_blank">Cray 发表于 2021-3-30 00:28</a>
@@ -21752,16 +14607,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 没道理贴完膜直到现在前置摄像头才出问题吧，我去换个钢化，解决不了真去售后了
 
 
-
-
-
-
-
 -----
 
 ####  我很费纸  
 ##### 2577#       发表于 2021-4-3 02:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50811108&amp;ptid=1915171" target="_blank">yuikonnu 发表于 2021-4-2 14:55</a>
@@ -21775,17 +14624,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2578#       发表于 2021-4-3 15:23
-
-
 
 
 看视频手机背会有震动这个问题怎么破，声音越大震动的越明显，不是动态那个，关了还是给我震，拿手上太难受了
@@ -21793,16 +14635,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 — from Sony XQ-AT52, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Cray  
 ##### 2579#       发表于 2021-4-3 16:12
-
 
 
 <blockquote>引用第2577楼yuikonnu于2021-04-03 15:23发表的  :
@@ -21814,16 +14650,10 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  yuikonnu  
 ##### 2580#       发表于 2021-4-3 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50821090&amp;ptid=1915171" target="_blank">Cray 发表于 2021-4-3 16:12</a>
@@ -21835,25 +14665,15 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ...这样拿在手里不会很膈应嘛，老xz系列关了动态一点不震啊，难道震才是受欢迎的口味？
 
 
-
-
-
-
-
 -----
 
 ####  月神侠  
 ##### 2581#       发表于 2021-4-3 16:41
 
 
-
-
 新手机嘛，新UI跟新APP适应一下就好了，我现在用手势控制、新主页跟谷歌相册一段时间已经习惯了
 
 如果你实在改不过来的话，升级到最新版本的安卓11，可以使用旧版的主页跟索尼相册的
-
-
-
 
 
              

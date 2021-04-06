@@ -1,21 +1,13 @@
 > ## **本文件最后更新于2021-01-04 16:09** 
 
 
-
 -----
 
 ####  rxrx  
 ##### 37501#       发表于 2017-11-22 22:25
 
 
-
-
 出人王或罗曼复活的话会考虑出账删游戏。
-
-
-
-
-
 
 
 -----
@@ -24,21 +16,13 @@
 ##### 37502#       发表于 2017-11-22 22:29
 
 
-
-
 唉，歪了个小太阳两宝了，想要老王啊
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 37503#       发表于 2017-11-22 22:31
-
 
 
  本帖最后由 黑上シグマ 于 2017-11-22 22:34 编辑 
@@ -51,25 +35,13 @@
 盐川你快出几个smdrr的五星，我好省点钱
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 37504#       发表于 2017-11-23 00:02
 
 
-
-
 总共3单就歪了个孔明…还有芬恩和阿福的new，好想把这两个换成金方块啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -78,17 +50,10 @@
 ##### 37505#       发表于 2017-11-23 00:10
 
 
-
-
 安定的15连雪山樱
 
 
 虽然有点缺杀，我还是攒钱等等看154的女装爱手艺或者圣诞好了，毕竟现在五星全是男人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -97,14 +62,7 @@
 ##### 37506#       发表于 2017-11-23 00:42
 
 
-
-
 9单2宝，中间还歪了拉二，出了无数个金杀，卡米拉顺利满宝，望月小姐姐4宝，真特么刺激
-
-
-
-
-
 
 
 -----
@@ -113,21 +71,13 @@
 ##### 37507#       发表于 2017-11-23 00:53
 
 
-
-
 40连一个ceo一个对不起，已破ha产san
-
-
-
-
-
 
 
 -----
 
 ####  alaya  
 ##### 37508#       发表于 2017-11-23 00:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37802857&amp;ptid=1085254" target="_blank">结标淡希 发表于 2017-11-22 18:34</a>
@@ -137,25 +87,13 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 37509#       发表于 2017-11-23 01:06
 
 
-
-
 用送的30石头直接镀金出了老王
-
-
-
-
-
 
 
 -----
@@ -164,14 +102,7 @@
 ##### 37510#       发表于 2017-11-23 01:29
 
 
-
-
 话说今年就差复仇和枪没出五星了吧 会不会
-
-
-
-
-
 
 
 -----
@@ -180,16 +111,10 @@
 ##### 37511#       发表于 2017-11-23 01:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37805656&amp;ptid=1085254" target="_blank">bwjx88 发表于 2017-11-23 01:29</a>
 
 话说今年就差复仇和枪没出五星了吧 会不会</blockquote>
 你得到他了
-
-
-
-
-
 
 
 -----
@@ -198,14 +123,7 @@
 ##### 37512#       发表于 2017-11-23 07:28
 
 
-
-
 才发现，学妹野餐李庄妇科了啊
-
-
-
-
-
 
 
 -----
@@ -214,15 +132,9 @@
 ##### 37513#       发表于 2017-11-23 09:09
 
 
-
 <blockquote>dreamd 发表于 2017-11-22 22:16
 2单出爷爷了，那个十连第一张金杀翻过来是大姐时我的表情一定很精彩，彩色羽毛飘起那刻真是觉得人生 ...</blockquote>
 我觉得闪电镀金比金圈更刺激啊
-
-
-
-
-
 
 
 -----
@@ -231,24 +143,15 @@
 ##### 37514#       发表于 2017-11-23 09:21
 
 
-
-
 泥潭国服群搜不到啊
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  红丽  
 ##### 37515#       发表于 2017-11-23 09:38
-
-
 
 
 一单半下去剑兰+1&amp;宝藏院+1
@@ -258,16 +161,10 @@
 月胜满破了……王哈桑不爱我啊，55555555555555算了，下次UP见<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37516#       发表于 2017-11-23 09:51
-
 
 
 <blockquote>引用第37514楼sheep0081于2017-11-23 09:21发表的  :
@@ -279,25 +176,13 @@
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 37517#       发表于 2017-11-23 11:08
 
 
-
-
 凛池子10连+6呼符下去，终于有红A了！
-
-
-
-
-
 
 
 -----
@@ -306,14 +191,7 @@
 ##### 37518#       发表于 2017-11-23 11:54
 
 
-
-
 手贱一发来了骑双子……好吧正好qp见底了……
-
-
-
-
-
 
 
 -----
@@ -322,14 +200,7 @@
 ##### 37519#       发表于 2017-11-23 12:31
 
 
-
-
 还是楼上几位温暖人心，我反正送的石头和符都全灭了，礼装都没有，忍住了没氪，等154的萝莉再看看......
-
-
-
-
-
 
 
 -----
@@ -338,14 +209,7 @@
 ##### 37520#       发表于 2017-11-23 12:44
 
 
-
-
 10连出来个狼王
-
-
-
-
-
 
 
 -----
@@ -354,15 +218,9 @@
 ##### 37521#       发表于 2017-11-23 14:01
 
 
-
  本帖最后由 dante888 于 2017-11-23 14:02 编辑 
 
 老王池子意外的没什么海豹呢
-
-
-
-
-
 
 
 -----
@@ -371,22 +229,15 @@
 ##### 37522#       发表于 2017-11-23 15:52
 
 
-
 <blockquote>dante888 发表于 2017-11-23 14:01
 老王池子意外的没什么海豹呢</blockquote>
 10连2030和老王算不算呢？
-
-
-
-
-
 
 
 -----
 
 ####  xunit  
 ##### 37523#       发表于 2017-11-23 16:05
-
 
 
  本帖最后由 xunit 于 2017-11-23 16:06 编辑 
@@ -398,25 +249,13 @@
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  heemoon  
 ##### 37524#       发表于 2017-11-23 16:26
 
 
-
-
 10池不掉李庄没心情抽，154小萝莉也没兴趣，等今年圣诞了。。。
-
-
-
-
-
 
 
 -----
@@ -425,15 +264,9 @@
 ##### 37525#       发表于 2017-11-23 17:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37809561&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-23 14:01</a>
 老王池子意外的没什么海豹呢</blockquote>
 感觉你这么一说，海豹们就要出来了<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -442,14 +275,7 @@
 ##### 37526#       发表于 2017-11-23 17:17
 
 
-
-
 商店搬空池子抽空还是没掉礼装，我就只想满破第二张圣夜啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -458,16 +284,9 @@
 ##### 37527#       发表于 2017-11-23 17:34
 
 
-
-
 看来礼装掉落还真是因人而异啊，我本以为还挺好出的<img src="https://static.saraba1st.com/image/smiley/carton2017/066.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -476,14 +295,7 @@
 ##### 37528#       发表于 2017-11-23 18:47
 
 
-
-
 抽了一池才发现原来抽光十池并不是10×400..药丸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -492,14 +304,7 @@
 ##### 37529#       发表于 2017-11-23 19:00
 
 
-
-
 现在满加成+8三回合袜子本感觉还来得及氪几个苹果抽完
-
-
-
-
-
 
 
 -----
@@ -508,14 +313,7 @@
 ##### 37530#       发表于 2017-11-23 20:37
 
 
-
-
 礼装去年掉5张，今年只掉了1张orz
-
-
-
-
-
 
 
 -----
@@ -524,14 +322,7 @@
 ##### 37531#       发表于 2017-11-23 20:40
 
 
-
-
 翻页时间
-
-
-
-
-
 
 
 -----
@@ -540,14 +331,7 @@
 ##### 37532#       发表于 2017-11-23 20:42
 
 
-
-
 翻页（
-
-
-
-
-
 
 
 -----
@@ -558,23 +342,16 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dante888  
 ##### 37534#       发表于 2017-11-23 21:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37813197&amp;ptid=1085254" target="_blank">hyuy 发表于 2017-11-23 21:15</a>
 
 流年不利  日服国服这次都只掉了1张</blockquote>
 你国服太咸了，还是等圣诞三期猛刷吧，这才是重头
-
-
-
-
-
 
 
 -----
@@ -585,23 +362,15 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kiralzb  
 ##### 37536#       发表于 2017-11-23 22:03
 
 
-
-
 为了30石终于开位了，打gay提亚操作失误懒得再打就碎了1石，结果护符和石全丢老王池，什么都没发生<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 值得一提就是卡很久的菩萨终于凸满，卡米拉3宝和红A、武则天开图鉴了
-
-
-
-
-
 
 
 -----
@@ -610,16 +379,10 @@
 ##### 37537#       发表于 2017-11-23 23:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37813197&amp;ptid=1085254" target="_blank">hyuy 发表于 2017-11-23 21:15</a>
 
 流年不利  日服国服这次都只掉了1张</blockquote>
 去年掉4张今年掉0张的看着你
-
-
-
-
-
 
 
 -----
@@ -628,16 +391,9 @@
 ##### 37538#       发表于 2017-11-24 09:23
 
 
-
-
 不死心又去补了半单依旧无事发生
 
 王哈桑不爱我啊……QAQ
-
-
-
-
-
 
 
 -----
@@ -648,21 +404,13 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  heemoon  
 ##### 37540#       发表于 2017-11-24 11:59
 
 
-
-
 最后1小时终于掉李庄了。。。
-
-
-
-
-
 
 
 -----
@@ -671,24 +419,16 @@
 ##### 37541#       发表于 2017-11-24 12:11
 
 
-
-
 哦草我忘记12点结束了，虽说池子是抽光了，但还想着打点水果蛋糕的……
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37542#       发表于 2017-11-24 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37816214&amp;ptid=1085254" target="_blank">红丽 发表于 2017-11-24 09:23</a>
@@ -699,16 +439,10 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不要慌 你还有最后10发白嫖纹
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 37543#       发表于 2017-11-24 12:20
-
 
 
  本帖最后由 gpx234mqx 于 2017-11-24 12:22 编辑 
@@ -717,26 +451,13 @@
 <img src="https://www.overpic.net/viewer.php?file=xgzj895mnhm55x1lm8yza.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 37544#       发表于 2017-11-24 12:56
 
 
-
-
 3E QP，不想点技能<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -745,16 +466,10 @@
 ##### 37545#       发表于 2017-11-24 14:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37818498&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-11-24 12:56</a>
 
 3E QP，不想点技能</blockquote>
 点下去啊，感受下3亿一下用完的快感<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -763,16 +478,10 @@
 ##### 37546#       发表于 2017-11-24 14:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37819208&amp;ptid=1085254" target="_blank">dreamd 发表于 2017-11-24 14:25</a>
 
 点下去啊，感受下3亿一下用完的快感</blockquote>
 松鼠症是这样的，我现在点1级到2级都磨磨蹭蹭半天<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -781,16 +490,10 @@
 ##### 37547#       发表于 2017-11-24 14:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37818498&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-11-24 12:56</a>
 
 3E QP，不想点技能</blockquote>
 真好，我只有3KW
-
-
-
-
-
 
 
 -----
@@ -799,16 +502,10 @@
 ##### 37548#       发表于 2017-11-24 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37819295&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-11-24 14:35</a>
 
 真好，我只有3KW</blockquote>
 没区别，都不够用
-
-
-
-
-
 
 
 -----
@@ -817,14 +514,7 @@
 ##### 37549#       发表于 2017-11-24 14:49
 
 
-
-
 老王技能6106用得只剩下1.3亿了，不敢再用
-
-
-
-
-
 
 
 -----
@@ -835,12 +525,10 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  里村紅葉  
 ##### 37551#       发表于 2017-11-24 15:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37819559&amp;ptid=1085254" target="_blank">hyuy 发表于 2017-11-24 15:01</a>
@@ -849,26 +537,15 @@
 治不了了，我煤气开了，帮我点火<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37552#       发表于 2017-11-24 16:05
 
 
-
 <blockquote>里村紅葉 发表于 2017-11-24 15:14
 治不了了，我煤气开了，帮我点火</blockquote>
 赶紧把你的孔老师310，否则都没有嫖的欲望了
-
-
-
-
-
 
 
 -----
@@ -877,16 +554,10 @@
 ##### 37553#       发表于 2017-11-24 16:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37820166&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-24 16:05</a>
 
 赶紧把你的孔老师310，否则都没有嫖的欲望了</blockquote>
 其实这孔明平常我自己都不用的，我都是嫖别人的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -895,14 +566,7 @@
 ##### 37554#       发表于 2017-11-24 17:41
 
 
-
-
 又变回一有石头就抽掉的状态了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -911,13 +575,7 @@
 ##### 37555#       发表于 2017-11-24 18:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">需要赶紧来新的五星或者厨四星来消耗狗粮
-
-
-
-
-
 
 
 -----
@@ -926,13 +584,7 @@
 ##### 37556#       发表于 2017-11-24 18:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">狗粮不够用，手上还有一堆的四星还是1级（
-
-
-
-
-
 
 
 -----
@@ -941,14 +593,7 @@
 ##### 37557#       发表于 2017-11-24 18:26
 
 
-
-
 我还有好几个五星没练满的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -957,14 +602,7 @@
 ##### 37558#       发表于 2017-11-24 19:01
 
 
-
-
 我5星只有3.5分卡没喂狗粮了，一点动力都没有<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -973,14 +611,7 @@
 ##### 37559#       发表于 2017-11-24 20:28
 
 
-
-
 非洲咸鱼只有各种完全上不了场的没练了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -989,13 +620,7 @@
 ##### 37560#       发表于 2017-11-24 20:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">真非萌表示金银铜全部喂满了。再不出新卡狗粮就要彻底变废物了
-
-
-
-
-
 
 
 -----
@@ -1004,14 +629,7 @@
 ##### 37561#       发表于 2017-11-24 20:44
 
 
-
-
 趁着双倍UP赶紧搓丸子啊~
-
-
-
-
-
 
 
 -----
@@ -1020,14 +638,7 @@
 ##### 37562#       发表于 2017-11-24 21:12
 
 
-
-
 我连唐长老和女海盗芬恩这种歪出来的很讨厌的五星四星都喂到了满破<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1036,14 +647,7 @@
 ##### 37563#       发表于 2017-11-24 22:43
 
 
-
-
 萌新表示超缺狂银棋，还得去刷13个才能把奶光喂起来
-
-
-
-
-
 
 
 -----
@@ -1052,14 +656,7 @@
 ##### 37564#       发表于 2017-11-25 01:44
 
 
-
-
 老王的任务竟然要拿到圣晶石才能算通关一次<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1068,16 +665,10 @@
 ##### 37565#       发表于 2017-11-25 02:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37824257&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-11-25 01:44</a>
 
 老王的任务竟然要拿到圣晶石才能算通关一次</blockquote>
 是的，9月初开首通减半的时候才推到第六章，我到现在羁绊圣地大神殿都还没通<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1086,14 +677,7 @@
 ##### 37566#       发表于 2017-11-25 21:52
 
 
-
-
 “丘”打哪啊？
-
-
-
-
-
 
 
 -----
@@ -1102,21 +686,13 @@
 ##### 37567#       发表于 2017-11-25 22:49
 
 
-
-
 总算把奶光满破了，这大浪费2倍绝逼是假的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 37568#       发表于 2017-11-25 22:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37829746&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2017-11-25 21:52</a>
@@ -1128,25 +704,13 @@
 26楼的图应该是最优解
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 37569#       发表于 2017-11-26 00:18
 
 
-
-
 打狼王打了我22个回合，B盾梅稳是稳，就是浪费时间，而且狼王这家伙每次宝具都带即死，真是一不小心就断了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1155,14 +719,7 @@
 ##### 37570#       发表于 2017-11-26 00:41
 
 
-
-
 好不容易3令咒全加成过了望月千代女，准备过几天回好再过奶光酒吞完美通关美滋滋，结果一看后面全体攻击大幽灵<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1171,14 +728,7 @@
 ##### 37571#       发表于 2017-11-26 00:58
 
 
-
-
 终于第二次搞掂了，MB狼王攻击力太高了，学妹的宝具一失效狼王的攻击力非常疼，而且打到第二条血马上来个弱体解除接着攻击，一不小心学妹死了之后就断了。
-
-
-
-
-
 
 
 -----
@@ -1187,23 +737,15 @@
 ##### 37572#       发表于 2017-11-26 01:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37830756&amp;ptid=1085254" target="_blank">poor 发表于 2017-11-26 00:41</a>
 好不容易3令咒全加成过了望月千代女，准备过几天回好再过奶光酒吞完美通关美滋滋，结果一看后面全体攻击大 ...</blockquote>
 我是眼看打不过就撤退了，反正就10多点体力，浪费就浪费了，还可以假装在开荒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alaya  
 ##### 37573#       发表于 2017-11-26 05:37
-
-
 
 
 巴御前实在打不过，交复活了
@@ -1213,17 +755,10 @@
 金色相簿组输出上不来，脸接光炮的机会只有一次实在打不过去，又不想交石头，这几天长草慢慢试吧
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 37574#       发表于 2017-11-26 09:08
-
-
 
 
 153不追求全加成应该不难，这加成真是恶心，明明剑豪胜负对面BOSS怎么那么多杀啊骑啊法的，要不加成好歹给我上EX啊<img src="https://static.saraba1st.com/image/smiley/face2017/150.png" referrerpolicy="no-referrer">
@@ -1232,17 +767,10 @@
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 37575#       发表于 2017-11-26 11:41
-
-
 
 
 MD气死我啦！打奶光酒吞本来稳得一比，那个飞哥！np一套居然打不够20！酒吞宝具居然还有封技能的！吓得我三次操作失误结果翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -1252,16 +780,10 @@ MD气死我啦！打奶光酒吞本来稳得一比，那个飞哥！np一套居�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  閻魔愛  
 ##### 37576#       发表于 2017-11-26 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37832551&amp;ptid=1085254" target="_blank">poor 发表于 2017-11-26 11:41</a>
@@ -1271,32 +793,19 @@ MD气死我啦！打奶光酒吞本来稳得一比，那个飞哥！np一套居�
 我是直接用奶光上来快速先把酒吞打掉再慢慢打骑奶光的。压力会小不少。
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 37577#       发表于 2017-11-26 12:28
 
 
-
-
 1.5.1搞掂了，最终Boss反而比想象中简单，整个1.5.1最难得就是狼王那几场，第一场不断减HP，梅林奶不回来，第二、三场攻击力高得离谱，盾娘的盾跟不上来的话很容易全灭。
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 37578#       发表于 2017-11-26 14:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37830128&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-25 22:52</a>
@@ -1311,16 +820,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 打6章死之荒野，能同时完成炎上和荒野2个地形，也就不需要打序章了
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37579#       发表于 2017-11-26 14:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37833775&amp;ptid=1085254" target="_blank">シャル 发表于 2017-11-26 14:19</a>
@@ -1332,16 +835,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 你不考虑AP?
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37580#       发表于 2017-11-26 14:31
-
 
 
  本帖最后由 黑上シグマ 于 2017-11-26 14:32 编辑 
@@ -1356,16 +853,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 人家那帖子标题就是最省AP完成点
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 37581#       发表于 2017-11-26 18:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37832599&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-11-26 11:47:16</a>
@@ -1380,16 +871,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 37582#       发表于 2017-11-26 19:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37835384&amp;ptid=1085254" target="_blank">poor 发表于 2017-11-26 18:55</a>
@@ -1401,16 +886,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 这只天草纯水枪，一炮打bb半血不到吧，用二姐柳生这种降降攻就更惨了，疯狂打针无脑过的。
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 37583#       发表于 2017-11-26 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37835491&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-11-26 19:11</a>
@@ -1422,16 +901,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 这个天草我还以为可以上我刚喂好的戈耳工调戏了，结果一看居然免疫精神异常……明明是个仇<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 37584#       发表于 2017-11-26 19:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37835583&amp;ptid=1085254" target="_blank">poor 发表于 2017-11-26 19:25</a>
@@ -1445,16 +918,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 上二姐其实挺好的，宝具7万左右还有20%降攻，就是老头跟天草都免疫精神异常明显是官方针对别动队啊XD
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 37585#       发表于 2017-11-26 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37833862&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-11-26 14:31</a>
@@ -1465,16 +932,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 也要看效率啊，一次打完比打二次也就多7AP，为了省7AP多打一次不是很没效率嘛
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37586#       发表于 2017-11-26 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37836039&amp;ptid=1085254" target="_blank">シャル 发表于 2017-11-26 20:33</a>
@@ -1483,16 +944,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 你觉得没效率，我觉得省了AP就是好，再说冬木那本打打才多久，也没多费什么功夫
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 37587#       发表于 2017-11-26 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37835704&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-11-26 19:42</a>
@@ -1501,16 +956,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 脸黑起来鬼知道什么时候能攒好NP，不过二姐能用的话要不就不带BB试试全加成好了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 37588#       发表于 2017-11-26 21:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37836442&amp;ptid=1085254" target="_blank">poor 发表于 2017-11-26 21:28</a>
@@ -1518,17 +967,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 今早我用b梅梅9回合就过了，天草宝具连梅林都打不死<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  moody032  
 ##### 37589#       发表于 2017-11-26 23:54
-
-
 
 
 终于把1.5.3给通了，基本1.5我都是趁着减半才打的
@@ -1546,17 +988,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 37590#       发表于 2017-11-27 00:31
-
-
 
 
 猛兽，死灵，枪阶，术阶
@@ -1565,32 +1000,19 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1
 
 
-
-
-
-
-
 -----
 
 ####  yueyut  
 ##### 37591#       发表于 2017-11-27 02:03
 
 
-
-
 周常出来了，caster从者、lancer从者、死灵、猛兽。可以猜一猜1.54的敌人了。
-
-
-
-
-
 
 
 -----
 
 ####  狂徒lucifer  
 ##### 37592#       发表于 2017-11-27 05:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37836039&amp;ptid=1085254" target="_blank">シャル 发表于 2017-11-26 20:33</a>
@@ -1601,24 +1023,13 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 7AP也是AP，比你所谓的“效率”重要得多
 
 
-
-
-
-
-
 -----
 
 ####  C.Ronaldo  
 ##### 37593#       发表于 2017-11-27 10:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">AP常年溢出。根本用不完
-
-
-
-
-
 
 
 -----
@@ -1629,12 +1040,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  newfaceryo  
 ##### 37595#       发表于 2017-11-27 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37835384&amp;ptid=1085254" target="_blank">poor 发表于 2017-11-26 18:55</a>
@@ -1648,16 +1057,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 脸接两个宝具完全没压力的。
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 37596#       发表于 2017-11-27 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37844140&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2017-11-27 16:21</a>
@@ -1668,24 +1071,13 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 没有柳生啊，难道要上小牛么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 37597#       发表于 2017-11-27 16:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明天就是生放送了，等卫星落地。女帝奶不死的！
-
-
-
-
-
 
 
 -----
@@ -1694,22 +1086,15 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37598#       发表于 2017-11-27 16:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37844104&amp;ptid=1085254" target="_blank">由比ケ浜結衣 发表于 2017-11-27 16:16</a>
 问一下1100dl的任务的那个城是打哪张图啊</blockquote>
 第一章的 オルレアン：運命の砦 ，可以看appmedia的攻略  https://appmedia.jp/fategrandorder/1232319
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 37599#       发表于 2017-11-27 17:21
-
 
 
  本帖最后由 newfaceryo 于 2017-11-27 17:23 编辑 
@@ -1723,11 +1108,6 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 另外b明湖好像是可以做到让天草放不出宝具的
 
 
-
-
-
-
-
 -----
 
 ####  hyuy  
@@ -1736,12 +1116,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dante888  
 ##### 37601#       发表于 2017-11-27 19:29
-
 
 
 <blockquote>hyuy 发表于 2017-11-27 19:25
@@ -1751,16 +1129,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 按之前的尿性，肯定有两个池子，王哈池子氪伤了，需要回回血了
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37602#       发表于 2017-11-27 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37845827&amp;ptid=1085254" target="_blank">hyuy 发表于 2017-11-27 19:25</a>
@@ -1771,17 +1143,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 盐川这货什么事干不出
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 37603#       发表于 2017-11-27 20:25
-
-
 
 
 节奏榜长草期日常搞事，四星榜大调整
@@ -1789,16 +1154,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37604#       发表于 2017-11-27 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37846231&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2017-11-27 20:25</a>
@@ -1810,16 +1169,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 看隔壁论坛云玩家大战那叫一个舒服
 
 
-
-
-
-
-
 -----
 
 ####  绫魂h  
 ##### 37605#       发表于 2017-11-27 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37846361&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-27 20:45</a>
@@ -1828,26 +1181,15 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 隔壁一个帖子看到后面成了尼托和童谣的大战，标准还是第一次尼禄再临的百杀，看到后面我都以为我在看别的帖子了
 
 
-
-
-
-
-
 -----
 
 ####  閻魔愛  
 ##### 37606#       发表于 2017-11-27 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37844215&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-11-27 16:29</a>
 明天就是生放送了，等卫星落地。女帝奶不死的！</blockquote>
 真绿拐，真实落地<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1856,16 +1198,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37607#       发表于 2017-11-27 21:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37846458&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-11-27 20:58</a>
 
 真绿拐，真实落地</blockquote>
 盐川：我们一年只出一个绿拐，请等明年再奶<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1874,16 +1210,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37608#       发表于 2017-11-27 21:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37846504&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-11-27 21:04</a>
 
 盐川：我们一年只出一个绿拐，请等明年再奶</blockquote>
 我觉得女帝比绿拐现实点
-
-
-
-
-
 
 
 -----
@@ -1892,16 +1222,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37609#       发表于 2017-11-27 21:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37846600&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-27 21:17</a>
 
 我觉得女帝比绿拐现实点</blockquote>
 现实多了，我猜绿拐已经死了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1912,21 +1236,13 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  heemoon  
 ##### 37611#       发表于 2017-11-27 21:40
 
 
-
-
 柳生老爷子这么强？刚才刷助战刷了5分钟想用一下试试看愣是没刷出来。。。
-
-
-
-
-
 
 
 -----
@@ -1935,14 +1251,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37612#       发表于 2017-11-27 21:59
 
 
-
-
 今年还没有五星avenger呢，苦大仇深的小萝莉什么的……感觉很带感啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1951,14 +1260,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37613#       发表于 2017-11-27 22:47
 
 
-
-
 都154了还是只送12个石头啊，只能期待明天生放多送几个苹果了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1967,21 +1269,13 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37614#       发表于 2017-11-27 22:56
 
 
-
-
 这年头卖号去哪里操作比较好？贴吧？闲鱼？手上玩了一年多的10来个5星双拐小号玩不过来了，想出了。
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 37615#       发表于 2017-11-27 23:00
-
 
 
 <blockquote>引用第37613楼dante888于2017-11-27 22:47发表的  :
@@ -1993,16 +1287,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.29)
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 37616#       发表于 2017-11-27 23:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37844800&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2017-11-27 17:21</a>
@@ -2015,16 +1303,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 你说这几个我只有BB<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 37617#       发表于 2017-11-27 23:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37846765&amp;ptid=1085254" target="_blank">heemoon 发表于 2017-11-27 21:40</a>
@@ -2033,24 +1315,13 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 和剑蓝是蓝卡双壁啊，一个减防一个减攻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37618#       发表于 2017-11-27 23:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">长草好无聊啊....明天生放送结束后会不会直接开新主线了
-
-
-
-
-
 
 
 -----
@@ -2059,16 +1330,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37619#       发表于 2017-11-27 23:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37847724&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-11-27 23:38</a>
 
 长草好无聊啊....明天生放送结束后会不会直接开新主线了</blockquote>
 现在看着我咋觉得会是29号开，毕竟1100W是29号中午结束……
-
-
-
-
-
 
 
 -----
@@ -2077,16 +1342,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37620#       发表于 2017-11-27 23:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37847755&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-11-27 23:44</a>
 
 现在看着我咋觉得会是29号开，毕竟1100W是29号中午结束……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">要抱有希望啊....上次剑豪就是晚上直接就开了
-
-
-
-
-
 
 
 -----
@@ -2095,14 +1354,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37621#       发表于 2017-11-27 23:59
 
 
-
-
 又卡楼了……
-
-
-
-
-
 
 
 -----
@@ -2111,14 +1363,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37622#       发表于 2017-11-28 00:01
 
 
-
-
 于是翻页
-
-
-
-
-
 
 
 -----
@@ -2127,14 +1372,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37623#       发表于 2017-11-28 00:27
 
 
-
-
 我也觉得是周三开，毕竟10发逆天改命符要周三才到账
-
-
-
-
-
 
 
 -----
@@ -2143,16 +1381,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37624#       发表于 2017-11-28 03:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37847980&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-28 00:27</a>
 
 我也觉得是周三开，毕竟10发逆天改命符要周三才到账</blockquote>
 周二沉船、周三改命不是更浪漫么！
-
-
-
-
-
 
 
 -----
@@ -2161,13 +1393,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37625#       发表于 2017-11-28 07:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我觉得开新章至少会更新一下客户端吧，153是提前几天找借口更新了一次，154这段时间还没更新过客户端呢
-
-
-
-
-
 
 
 -----
@@ -2176,15 +1402,9 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37626#       发表于 2017-11-28 08:37
 
 
-
 <blockquote>阿提拉 发表于 2017-11-28 07:55
 我觉得开新章至少会更新一下客户端吧，153是提前几天找借口更新了一次，154这段时间还没更新过客户 ...</blockquote>
 之前有预告11月下旬要更新的，实装那个喂狗粮改动，感觉很稳
-
-
-
-
-
 
 
 -----
@@ -2193,16 +1413,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37627#       发表于 2017-11-28 08:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37848995&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-28 08:37</a>
 
 之前有预告11月下旬要更新的，实装那个喂狗粮改动，感觉很稳</blockquote>
 我也觉得该是与那次预告提到的更新一起实装154，不过按理说维护应该提前一天预告的.看看下午会不会有预告吧
-
-
-
-
-
 
 
 -----
@@ -2211,17 +1425,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37628#       发表于 2017-11-28 12:48
 
 
-
-
 发现送30个石头，猛肝了几天，今天上午开位了
 
 
 魔神王的难度真是丢人。。
-
-
-
-
-
 
 
 -----
@@ -2230,14 +1437,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37629#       发表于 2017-11-28 17:27
 
 
-
-
 通关第七章会给30石头？
-
-
-
-
-
 
 
 -----
@@ -2246,15 +1446,9 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37630#       发表于 2017-11-28 17:55
 
 
-
  本帖最后由 khxooo 于 2017-11-28 17:57 编辑 
 
 1.5.2搞掂了，没有用令咒，本来打算用令咒的B叔+哥伦布反而一次过，卡得最多的反而是黑皮+一大堆小怪那场，足足打了3次，最后一次都准备用3令咒了，幸好羽蛇神充能CD完，自充一个宝具带走黑皮。那场真的是完全体现自己的BOX多贫乏，黑皮你等着，看我国服到时候轮死你<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">，1.5.3就等着吧，二姐没有练起来，等新圣诞养起来后再慢慢打吧，柳生老爷子估计要交5个石头吧。
-
-
-
-
-
 
 
 -----
@@ -2263,16 +1457,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37631#       发表于 2017-11-28 18:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37853951&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-11-28 17:55</a>
 
 1.5.2搞掂了，没有用令咒，本来打算用令咒的B叔+哥伦布反而一次过，卡得最多的反而是黑皮+一大堆小怪那场， ...</blockquote>
 我用70级的阿周那和80级的月神，技能全部111都打过了，不难的，只要你有梅林和高练度学妹<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2281,22 +1469,13 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37632#       发表于 2017-11-28 18:31
 
 
-
-
 楼里可有用x玩的
-
-
-
-
-
 
 
 -----
 
 ####  poor  
 ##### 37633#       发表于 2017-11-28 18:42
-
-
 
 
 最后两战打完，天草果然挺菜的，上二姐跟弓呆抱个梅林对面半天放不出宝具，不小心让他最后一条血的时候才放出来，只好让梅林去死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -2306,26 +1485,15 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  閻魔愛  
 ##### 37634#       发表于 2017-11-28 19:53
 
 
-
  本帖最后由 閻魔愛 于 2017-11-28 19:55 编辑 
 
 看错了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -2334,16 +1502,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37635#       发表于 2017-11-28 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37854738&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-11-28 19:53</a>
 
 自从绊10后就不怎么拿出来用了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我猜大老说的是爱疯x
-
-
-
-
-
 
 
 -----
@@ -2352,16 +1514,10 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37636#       发表于 2017-11-28 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37854738&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-11-28 19:53</a>
 
 自从绊10后就不怎么拿出来用了</blockquote>
 我猜他说的是苹果X，你说的是X毛
-
-
-
-
-
 
 
 -----
@@ -2370,14 +1526,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37637#       发表于 2017-11-28 19:55
 
 
-
-
 不愧是盐十石XD
-
-
-
-
-
 
 
 -----
@@ -2386,15 +1535,9 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37638#       发表于 2017-11-28 19:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37854750&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-11-28 19:55</a>
 我猜大老说的是爱疯x</blockquote>
 你们反应真是快<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2403,14 +1546,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37639#       发表于 2017-11-28 19:57
 
 
-
-
 似的似的,似水果叉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2419,14 +1555,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37640#       发表于 2017-11-28 19:57
 
 
-
-
 蘑菇的价值就只有10石了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2435,16 +1564,9 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37641#       发表于 2017-11-28 20:16
 
 
-
-
 时限式开放……
 
 职介不明……
-
-
-
-
-
 
 
 -----
@@ -2453,15 +1575,9 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37642#       发表于 2017-11-28 20:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真蠢啊 还搞时限防止秃头一口气打通
 
 但是这有什么意义。。晚几天打通和一口气打通有区别吗
-
-
-
-
-
 
 
 -----
@@ -2470,14 +1586,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37643#       发表于 2017-11-28 20:20
 
 
-
-
 哪吒！
-
-
-
-
-
 
 
 -----
@@ -2486,14 +1595,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37644#       发表于 2017-11-28 20:20
 
 
-
-
 哪吒实装！
-
-
-
-
-
 
 
 -----
@@ -2502,14 +1604,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37645#       发表于 2017-11-28 20:20
 
 
-
-
 哪吒在这里落地<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2518,13 +1613,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37646#       发表于 2017-11-28 20:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哪吒居然落地了
-
-
-
-
-
 
 
 -----
@@ -2533,14 +1622,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37647#       发表于 2017-11-28 20:21
 
 
-
-
 苍月的哪吒<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2549,14 +1631,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37648#       发表于 2017-11-28 20:22
 
 
-
-
 四星lancer哪吒，俄刻阿诺斯的caster宝具动画喷了
-
-
-
-
-
 
 
 -----
@@ -2565,14 +1640,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37649#       发表于 2017-11-28 20:22
 
 
-
-
 喷了这宝具不清真
-
-
-
-
-
 
 
 -----
@@ -2581,14 +1649,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37650#       发表于 2017-11-28 20:22
 
 
-
-
 是不是LGA又有一堆人要飞苍月妈了？
-
-
-
-
-
 
 
 -----
@@ -2597,13 +1658,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37651#       发表于 2017-11-28 20:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">什么 居然要维护？ 这不yc啊
-
-
-
-
-
 
 
 -----
@@ -2612,16 +1667,9 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37652#       发表于 2017-11-28 20:24
 
 
-
-
 来了！他又来了！
 
 传说中的双4星up他又来了！
-
-
-
-
-
 
 
 -----
@@ -2630,14 +1678,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37653#       发表于 2017-11-28 20:24
 
 
-
-
 五星真名还是猜不到，别是爱手艺吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2646,14 +1687,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37654#       发表于 2017-11-28 20:24
 
 
-
-
 再一次没有五星up池……
-
-
-
-
-
 
 
 -----
@@ -2662,14 +1696,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37655#       发表于 2017-11-28 20:25
 
 
-
-
 玛修好萌啊
-
-
-
-
-
 
 
 -----
@@ -2678,14 +1705,7 @@ http://bbs.ngacn.cc/read.php?tid=12904810&amp;page=2
 ##### 37656#       发表于 2017-11-28 20:26
 
 
-
-
 caster肯定是喀耳刻了
-
-
-
-
-
 
 
 -----
@@ -2694,14 +1714,7 @@ caster肯定是喀耳刻了
 ##### 37657#       发表于 2017-11-28 20:30
 
 
-
-
 我的内心毫无波动<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2710,14 +1723,7 @@ caster肯定是喀耳刻了
 ##### 37658#       发表于 2017-11-28 20:31
 
 
-
-
 今天留存的体力可以用来清狗粮了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2726,14 +1732,7 @@ caster肯定是喀耳刻了
 ##### 37659#       发表于 2017-11-28 20:34
 
 
-
-
 喀耳刻也是老卫星了啊，肯定跟1.5.3一样还有隐藏欧证吧
-
-
-
-
-
 
 
 -----
@@ -2742,14 +1741,7 @@ caster肯定是喀耳刻了
 ##### 37660#       发表于 2017-11-28 20:35
 
 
-
-
 哦哦哦主题和头像<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2758,14 +1750,7 @@ caster肯定是喀耳刻了
 ##### 37661#       发表于 2017-11-28 20:35
 
 
-
-
 PS4主题和头像，搞起
-
-
-
-
-
 
 
 -----
@@ -2774,14 +1759,7 @@ PS4主题和头像，搞起
 ##### 37662#       发表于 2017-11-28 20:36
 
 
-
-
 卧槽，主题和头像，爽到
-
-
-
-
-
 
 
 -----
@@ -2790,14 +1768,7 @@ PS4主题和头像，搞起
 ##### 37663#       发表于 2017-11-28 20:36
 
 
-
-
 毕竟盐十石,还是这个味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2806,21 +1777,13 @@ PS4主题和头像，搞起
 ##### 37664#       发表于 2017-11-28 20:37
 
 
-
-
 哇。。双4星up之后居然还有纯礼装up？！
-
-
-
-
-
 
 
 -----
 
 ####  白夜羽  
 ##### 37665#       发表于 2017-11-28 20:47
-
 
 
  本帖最后由 白夜羽 于 2017-11-28 20:49 编辑 
@@ -2830,25 +1793,13 @@ PS4主题和头像，搞起
 话说社长这是中了什么邪,最近这么敬业的
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37666#       发表于 2017-11-28 20:52
 
 
-
-
 尾田卖手办喷了
-
-
-
-
-
 
 
 -----
@@ -2857,14 +1808,7 @@ PS4主题和头像，搞起
 ##### 37667#       发表于 2017-11-28 20:58
 
 
-
-
 所以今年圣诞是艾蕾还是罗曼?<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2873,14 +1817,7 @@ PS4主题和头像，搞起
 ##### 37668#       发表于 2017-11-28 20:59
 
 
-
-
 盐川被无视了哈哈哈哈哈哈哈哈哈哈哈哈哈哈
-
-
-
-
-
 
 
 -----
@@ -2889,21 +1826,13 @@ PS4主题和头像，搞起
 ##### 37669#       发表于 2017-11-28 20:59
 
 
-
-
 gay提亚 alter santa lily感觉不错
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 37670#       发表于 2017-11-28 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855130&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-28 20:52</a>
@@ -2914,27 +1843,15 @@ gay提亚 alter santa lily感觉不错
 以前已经有过一个了
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 37671#       发表于 2017-11-28 21:03
 
 
-
-
 确定是双四星up吗，那那个小萝莉到底什么时候实装啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2943,14 +1860,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37672#       发表于 2017-11-28 21:03
 
 
-
-
 那坨比农药里的可爱一点
-
-
-
-
-
 
 
 -----
@@ -2959,21 +1869,13 @@ gay提亚 alter santa lily感觉不错
 ##### 37673#       发表于 2017-11-28 21:04
 
 
-
-
 五星萝莉是阿比盖尔？
-
-
-
-
-
 
 
 -----
 
 ####  茛菪  
 ##### 37674#       发表于 2017-11-28 21:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855188&amp;ptid=1085254" target="_blank">丘萤之光 发表于 2017-11-28 21:03</a>
@@ -2985,25 +1887,13 @@ gay提亚 alter santa lily感觉不错
 确定了。剧情是锁时间的，估计是等主线明朗了再开二期池子吧。
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 37675#       发表于 2017-11-28 21:05
 
 
-
-
 也就是说这次生放送除了拿石头，又是和我一点关系都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3012,16 +1902,10 @@ gay提亚 alter santa lily感觉不错
 ##### 37676#       发表于 2017-11-28 21:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855203&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-11-28 21:04:52</a>
 确定了。剧情是锁时间的，估计是等主线明朗了再开二期池子吧。</blockquote>怎么盐川又来这种骚操作，就不能一口气出两个五星吗<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3030,15 +1914,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37677#       发表于 2017-11-28 21:06
 
 
-
-
 盐川他妈真要死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -3047,14 +1923,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37678#       发表于 2017-11-28 21:06
 
 
-
-
 这生放送太水了，都没啥新消息
-
-
-
-
-
 
 
 -----
@@ -3065,23 +1934,15 @@ gay提亚 alter santa lily感觉不错
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  丘萤之光  
 ##### 37680#       发表于 2017-11-28 21:09
 
 
-
-
 这次圣诞出艾蕾应该稳了吧，都要求一部通关了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -3090,14 +1951,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37681#       发表于 2017-11-28 21:10
 
 
-
-
 这次生放最大的看点不是盐川被无视吗wwwwwwww
-
-
-
-
-
 
 
 -----
@@ -3106,23 +1960,16 @@ gay提亚 alter santa lily感觉不错
 ##### 37682#       发表于 2017-11-28 21:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855218&amp;ptid=1085254" target="_blank">dreamd 发表于 2017-11-28 21:06</a>
 
 这生放送太水了，都没啥新消息</blockquote>
 给钱包回血挺好的，还顺便卖关子，圣诞肯定是巨型卫星了
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 37683#       发表于 2017-11-28 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855212&amp;ptid=1085254" target="_blank">丘萤之光 发表于 2017-11-28 21:06</a>
@@ -3134,32 +1981,19 @@ gay提亚 alter santa lily感觉不错
 其实我觉得锁时间防剧透这种可能是作者（星空流星？）那边的要求吧，盐川应该不在乎这些。
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 37684#       发表于 2017-11-28 21:15
 
 
-
-
 圣诞开位要求，肯定艾蕾酱的，奶不死的<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 37685#       发表于 2017-11-28 21:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37854165&amp;ptid=1085254" target="_blank">缘一 发表于 2017-11-28 18:27</a>
@@ -3171,11 +2005,6 @@ gay提亚 alter santa lily感觉不错
 慢慢来吧，1.5.4那个限时是主线限定时间开放还是整个1.5.4限时啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hyuy  
@@ -3184,12 +2013,10 @@ gay提亚 alter santa lily感觉不错
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 37687#       发表于 2017-11-28 21:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855274&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-11-28 21:17</a>
@@ -3211,17 +2038,10 @@ gay提亚 alter santa lily感觉不错
 我等3号在开始打154就是了 当作无事发生
 
 
-
-
-
-
-
 -----
 
 ####  ネロ  
 ##### 37688#       发表于 2017-11-28 21:24
-
-
 
 
 一号池就喀尔刻和哪吒两个四星up？
@@ -3231,16 +2051,10 @@ gay提亚 alter santa lily感觉不错
 这盐川总是想些怪操作
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37689#       发表于 2017-11-28 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855326&amp;ptid=1085254" target="_blank">ネロ 发表于 2017-11-28 21:24</a>
@@ -3253,16 +2067,10 @@ gay提亚 alter santa lily感觉不错
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">还有一个连4星up都没有的纯礼装池给你抽 不要怕不要慌
 
 
-
-
-
-
-
 -----
 
 ####  閻魔愛  
 ##### 37690#       发表于 2017-11-28 21:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855239&amp;ptid=1085254" target="_blank">丘萤之光 发表于 2017-11-28 21:09</a>
@@ -3272,16 +2080,10 @@ gay提亚 alter santa lily感觉不错
 盐川后来说了，没什么特别的原因，就是加了个通1部的条件。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37691#       发表于 2017-11-28 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855260&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-11-28 21:15</a>
@@ -3290,27 +2092,15 @@ gay提亚 alter santa lily感觉不错
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">醒醒 延川之前就说了 以后所有活动一律都要开位 没有什么特别的理由
 
 
-
-
-
-
-
 -----
 
 ####  木消灭  
 ##### 37692#       发表于 2017-11-28 21:27
 
 
-
-
 哪吒和弓塚さつき有点像啊
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3319,16 +2109,10 @@ gay提亚 alter santa lily感觉不错
 ##### 37693#       发表于 2017-11-28 21:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855341&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-11-28 21:25</a>
 
 盐川后来说了，没什么特别的原因，就是加了个通1部的条件。</blockquote>
 我咋听到的是说没理由是不会加这么个条件的，难道我听错了……
-
-
-
-
-
 
 
 -----
@@ -3337,21 +2121,13 @@ gay提亚 alter santa lily感觉不错
 ##### 37694#       发表于 2017-11-28 21:32
 
 
-
-
 双四星pu还抽怕不是石乐志
-
-
-
-
-
 
 
 -----
 
 ####  枫紫  
 ##### 37695#       发表于 2017-11-28 21:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855361&amp;ptid=1085254" target="_blank">木消灭 发表于 2017-11-28 21:27</a>
@@ -3363,16 +2139,10 @@ gay提亚 alter santa lily感觉不错
 就差一个学姐，月姬女主角们就齐了
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 37696#       发表于 2017-11-28 21:36
-
 
 
  本帖最后由 khxooo 于 2017-11-28 21:38 编辑 
@@ -3382,16 +2152,10 @@ gay提亚 alter santa lily感觉不错
 我认为不会一律开位，如果这样的话对新人很不友好，毕竟活动才是材料和狗粮最大入手处，将新人从一开始就拒绝在外不是好的做法。这一次圣诞肯定是涉及到冠位神殿的剧情才会要求开位的。
 
 
-
-
-
-
-
 -----
 
 ####  zuzi  
 ##### 37697#       发表于 2017-11-28 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855348&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-11-28 21:26</a>
@@ -3400,16 +2164,10 @@ gay提亚 alter santa lily感觉不错
 微博上那位后来不是又发PO说他理解有误么
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37698#       发表于 2017-11-28 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855422&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-11-28 21:36</a>
@@ -3418,16 +2176,10 @@ gay提亚 alter santa lily感觉不错
 年轻人醒醒，这是10号的公告里写明的事情
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37699#       发表于 2017-11-28 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855422&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-11-28 21:36</a>
@@ -3436,16 +2188,10 @@ gay提亚 alter santa lily感觉不错
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你认为没用啊  官方公告说了 以后新活动一律开位 没有请退群
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37700#       发表于 2017-11-28 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855456&amp;ptid=1085254" target="_blank">zuzi 发表于 2017-11-28 21:41</a>
@@ -3456,16 +2202,10 @@ gay提亚 alter santa lily感觉不错
 我只看官方公告。。官方名言以后一律开位起
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 37701#       发表于 2017-11-28 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855457&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-11-28 21:41</a>
@@ -3474,17 +2214,10 @@ gay提亚 alter santa lily感觉不错
 如果这样的话，就真是越晚入坑越难追赶进度了。
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 37702#       发表于 2017-11-28 21:45
-
-
 
 
 还是跟之前1.5.3一样双up接日替单up啦。
@@ -3492,16 +2225,10 @@ gay提亚 alter santa lily感觉不错
 有点想要喀耳刻……精灵耳朵在fgo算稀有属性呢……
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37703#       发表于 2017-11-28 21:45
-
 
 
  本帖最后由 黑上シグマ 于 2017-11-28 21:47 编辑 
@@ -3518,16 +2245,10 @@ gay提亚 alter santa lily感觉不错
 瘪三你竟然编辑！
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37704#       发表于 2017-11-28 21:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855496&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-11-28 21:45</a>
@@ -3540,32 +2261,19 @@ gay提亚 alter santa lily感觉不错
 我是以之前那公告为基准说的  
 
 
-
-
-
-
-
 -----
 
 ####  yiraer  
 ##### 37705#       发表于 2017-11-28 21:48
 
 
-
-
 结合前面的剧透，莫不是原定今年年底出的圣诞节活动，其中有一个CG是○○背刺了○○○，然后○○○变成了○○？背刺伊斯塔然后变成了艾蕾？莫不是用撸撸不累卡背刺的……
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 37706#       发表于 2017-11-28 21:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855476&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-11-28 21:43</a>
@@ -3576,25 +2284,13 @@ gay提亚 alter santa lily感觉不错
 至于剧情反正可以以后回顾 跳了加快速度
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 37707#       发表于 2017-11-28 21:54
 
 
-
-
 哦，这么说这个萝莉不是女装爱手艺了？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3603,14 +2299,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37708#       发表于 2017-11-28 21:57
 
 
-
-
 之前有看到那个舅舅的微信截图说是旧剑背刺爱歌，一众fp卫星上天/落地……感觉有点跳跃……
-
-
-
-
-
 
 
 -----
@@ -3619,15 +2308,9 @@ gay提亚 alter santa lily感觉不错
 ##### 37709#       发表于 2017-11-28 22:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855368&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-11-28 21:28</a>
 我咋听到的是说没理由是不会加这么个条件的，难道我听错了……</blockquote>
 光头和信长一方面是打个圆场，一方面是想给盐川个台阶下的。没想到真的没有啥理由就限定了活动条件。所以后来盐川也挺没底气地只能让大家多担待了。
-
-
-
-
-
 
 
 -----
@@ -3636,14 +2319,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37710#       发表于 2017-11-28 22:27
 
 
-
-
 不过也不排除盐川藏着掖着什么就是了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3652,22 +2328,13 @@ gay提亚 alter santa lily感觉不错
 ##### 37711#       发表于 2017-11-28 22:32
 
 
-
-
-
 哪吒真是丑啊真是丑<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">中国的英灵就没一个好看的  啥时候把赵云英灵了  看型月还敢这么搞不
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 37712#       发表于 2017-11-28 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855786&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-11-28 22:26</a>
@@ -3678,16 +2345,10 @@ gay提亚 alter santa lily感觉不错
 说的就是没理由是不会加这个条件的
 
 
-
-
-
-
-
 -----
 
 ####  閻魔愛  
 ##### 37713#       发表于 2017-11-28 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855859&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-11-28 22:34</a>
@@ -3697,25 +2358,13 @@ gay提亚 alter santa lily感觉不错
 那就是我会错意了吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zxlmk2  
 ##### 37714#       发表于 2017-11-28 22:37
 
 
-
-
 五星果然是这个小LOLI，又省钱了。日本人果然是LOLI控的国度，这游戏的LOLI角色好多...
-
-
-
-
-
 
 
 -----
@@ -3724,16 +2373,10 @@ gay提亚 alter santa lily感觉不错
 ##### 37715#       发表于 2017-11-28 22:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855476&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-11-28 21:43</a>
 
 如果这样的话，就真是越晚入坑越难追赶进度了。</blockquote>
 真想赶进度的话，3天开位都可以的
-
-
-
-
-
 
 
 -----
@@ -3742,15 +2385,9 @@ gay提亚 alter santa lily感觉不错
 ##### 37716#       发表于 2017-11-28 22:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855841&amp;ptid=1085254" target="_blank">临界点 发表于 2017-11-28 22:32</a>
 哪吒真是丑啊真是丑中国的英灵就没一个好看的  啥时候把赵云英灵了  看型月还敢这么搞不 ...</blockquote>
 李大师挺帅的
-
-
-
-
-
 
 
 -----
@@ -3759,23 +2396,16 @@ gay提亚 alter santa lily感觉不错
 ##### 37717#       发表于 2017-11-28 22:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855841&amp;ptid=1085254" target="_blank">临界点 发表于 2017-11-28 22:32</a>
 
 哪吒真是丑啊真是丑中国的英灵就没一个好看的  啥时候把赵云英灵了  看型月还敢这么搞不 ...</blockquote>
 燕青在日本跟鬼佬那里都是超高人气啊（个人也觉得挺帅的……
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 37718#       发表于 2017-11-28 22:54
-
 
 
  本帖最后由 alaya 于 2017-11-28 23:03 编辑 
@@ -3786,16 +2416,10 @@ gay提亚 alter santa lily感觉不错
 哪吒的大白腿还是可以的，但是苍月的满破图我有点慌啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 37719#       发表于 2017-11-28 22:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855841&amp;ptid=1085254" target="_blank">临界点 发表于 2017-11-28 22:32</a>
@@ -3804,26 +2428,15 @@ gay提亚 alter santa lily感觉不错
 燕青还是挺有人气的，不过中国女英灵就没几个
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 37720#       发表于 2017-11-28 22:59
 
 
-
  本帖最后由 alaya 于 2017-11-28 23:00 编辑 
 
 第五势
-
-
-
-
-
 
 
 -----
@@ -3832,14 +2445,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37721#       发表于 2017-11-28 23:04
 
 
-
-
 喀耳刻真是好看啊，恋爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3848,16 +2454,10 @@ gay提亚 alter santa lily感觉不错
 ##### 37722#       发表于 2017-11-28 23:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855841&amp;ptid=1085254" target="_blank">临界点 发表于 2017-11-28 22:32</a>
 
 哪吒真是丑啊真是丑中国的英灵就没一个好看的  啥时候把赵云英灵了  看型月还敢这么搞不 ...</blockquote>
 燕青感觉自己受到了冒犯
-
-
-
-
-
 
 
 -----
@@ -3866,23 +2466,15 @@ gay提亚 alter santa lily感觉不错
 ##### 37723#       发表于 2017-11-28 23:17
 
 
-
-
 话说喀耳刻这宝具怎么看都是蓝卡才对啊，又不是变猪（物理）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 结果现在蓝卡术单体还是c妈独苗……ycfm
-
-
-
-
-
 
 
 -----
 
 ####  临界点  
 ##### 37724#       发表于 2017-11-28 23:24
-
 
 
  本帖最后由 临界点 于 2017-11-28 23:26 编辑 
@@ -3892,25 +2484,13 @@ gay提亚 alter santa lily感觉不错
 李大师最多算正常水准而已   燕青也一样    
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 37725#       发表于 2017-11-28 23:33
 
 
-
-
 说起来哪吒居然没有对龙特攻
-
-
-
-
-
 
 
 -----
@@ -3919,14 +2499,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37726#       发表于 2017-11-28 23:46
 
 
-
-
 哪吒的特攻与其说是对龙还不如说对神
-
-
-
-
-
 
 
 -----
@@ -3935,16 +2508,9 @@ gay提亚 alter santa lily感觉不错
 ##### 37727#       发表于 2017-11-28 23:52
 
 
-
-
 燕青满破图WTMSB
 
 然而小乙哥的几个表情基本不能看...
-
-
-
-
-
 
 
 -----
@@ -3953,14 +2519,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37728#       发表于 2017-11-28 23:52
 
 
-
-
 全术阶队伍已组成，就等着嫖大佬们的打手大腿过154了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3969,17 +2528,10 @@ gay提亚 alter santa lily感觉不错
 ##### 37729#       发表于 2017-11-29 00:05
 
 
-
-
 你不如说哪吒应该有个宝具对自身即死的特效……毕竟是自杀过的男人
 
 
 哪吒：大英雄你的宝具最没用啦
-
-
-
-
-
 
 
 -----
@@ -3990,7 +2542,6 @@ gay提亚 alter santa lily感觉不错
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ceng1  
@@ -3999,12 +2550,10 @@ gay提亚 alter santa lily感觉不错
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ネロ  
 ##### 37732#       发表于 2017-11-29 02:42
-
 
 
  本帖最后由 ネロ 于 2017-11-29 02:44 编辑 
@@ -4016,33 +2565,19 @@ gay提亚 alter santa lily感觉不错
 加上哪吒也不是今天才出来的，也不用想着有修正了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  任天索尼子  
 ##### 37733#       发表于 2017-11-29 03:36
 
 
-
-
 十符和一发十连只有一张四星礼装 王哈走好
-
-
-
-
-
 
 
 -----
 
 ####  阿提拉  
 ##### 37734#       发表于 2017-11-29 07:34
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201711/29/073335t2v0hhvk4fcqg2hq.jpg" referrerpolicy="no-referrer">
@@ -4055,17 +2590,7 @@ gay提亚 alter santa lily感觉不错
 2017-11-29 07:33 上传
 
 
-
-
-
-
-
 七章应该不止哪吒他们几个，我先想想谁的名字是0000还有情人的...
-
-
-
-
-
 
 
 -----
@@ -4074,15 +2599,9 @@ gay提亚 alter santa lily感觉不错
 ##### 37735#       发表于 2017-11-29 08:05
 
 
-
 <blockquote>阿提拉 发表于 2017-11-29 07:34
 七章应该不止哪吒他们几个，我先想想谁的名字是0000还有情人的...</blockquote>
 为什么你们找舅舅都这么熟练啊
-
-
-
-
-
 
 
 -----
@@ -4091,14 +2610,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37736#       发表于 2017-11-29 08:07
 
 
-
-
 什么时候才能up个五星男人啊！！！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4107,23 +2619,16 @@ gay提亚 alter santa lily感觉不错
 ##### 37737#       发表于 2017-11-29 08:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37857761&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-11-29 07:34:14</a>
 七章应该不止哪吒他们几个，我先想想谁的名字是0000还有情人的...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">所罗门王
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 37738#       发表于 2017-11-29 08:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37857867&amp;ptid=1085254" target="_blank">avensabyss 发表于 2017-11-29 08:10</a>
@@ -4135,16 +2640,10 @@ gay提亚 alter santa lily感觉不错
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">希巴女王吗，忘了之前解包里有没有她了
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 37739#       发表于 2017-11-29 08:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37857856&amp;ptid=1085254" target="_blank">缘一 发表于 2017-11-29 08:07</a>
@@ -4153,16 +2652,10 @@ gay提亚 alter santa lily感觉不错
 现在不是正在up吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 37740#       发表于 2017-11-29 08:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37857921&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-11-29 08:21</a>
@@ -4171,25 +2664,13 @@ gay提亚 alter santa lily感觉不错
 怕不是得知自己男人炸了以后变成复仇阶了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 37741#       发表于 2017-11-29 09:22
 
 
-
-
 盐川对作家众是千依百顺，至少证明他也知道卖点在剧本，所以不排除限制和锁时是作家们的要求
-
-
-
-
-
 
 
 -----
@@ -4198,14 +2679,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37742#       发表于 2017-11-29 09:24
 
 
-
-
 翻页
-
-
-
-
-
 
 
 -----
@@ -4214,14 +2688,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37743#       发表于 2017-11-29 09:35
 
 
-
-
 开位这事本来也没多想，看他们这么遮遮掩掩，怕不是某人要复活了
-
-
-
-
-
 
 
 -----
@@ -4230,14 +2697,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37744#       发表于 2017-11-29 09:43
 
 
-
-
 变猪的魔女是喀耳刻基本八九不离十了，奥德修斯的情人，舅舅后面说的什么人偶就看不明白了
-
-
-
-
-
 
 
 -----
@@ -4246,21 +2706,13 @@ gay提亚 alter santa lily感觉不错
 ##### 37745#       发表于 2017-11-29 09:50
 
 
-
-
 最后一发白嫖纹居然出了个小太阳。。。。萌新获得了首次震歪的成就。。。。
-
-
-
-
-
 
 
 -----
 
 ####  阿提拉  
 ##### 37746#       发表于 2017-11-29 09:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37858578&amp;ptid=1085254" target="_blank">sakaki59 发表于 2017-11-29 09:43</a>
@@ -4272,25 +2724,13 @@ gay提亚 alter santa lily感觉不错
 三行应该是指代三个从者，“希腊”神话中的魔女，“美狄亚”的师姐；“中国”神代的机关人偶哪吒；拥有与0000比肩智慧的女王，这个不好说，我是觉得不大可能会是希巴女王；异邦人的女孩大概指的就是五星loli吧...
 
 
-
-
-
-
-
 -----
 
 ####  失落之翼  
 ##### 37747#       发表于 2017-11-29 10:14
 
 
-
-
 人偶师哪吒吧，毕竟用藕重做的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4299,15 +2739,9 @@ gay提亚 alter santa lily感觉不错
 ##### 37748#       发表于 2017-11-29 10:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37858920&amp;ptid=1085254" target="_blank">失落之翼 发表于 2017-11-29 10:14</a>
 人偶师哪吒吧，毕竟用藕重做的</blockquote>
 人偶师<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4316,16 +2750,10 @@ gay提亚 alter santa lily感觉不错
 ##### 37749#       发表于 2017-11-29 11:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37859133&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-11-29 10:36</a>
 
 人偶师</blockquote>
 那就是卫星太2真人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4334,13 +2762,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37750#       发表于 2017-11-29 13:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">刚才就哪吒的设计问题和鬼佬争论起来了，颇有种英国人和日本死宅争论亚瑟王形象的感觉……不过武内的人设好多了行不行
-
-
-
-
-
 
 
 -----
@@ -4349,15 +2771,9 @@ gay提亚 alter santa lily感觉不错
 ##### 37751#       发表于 2017-11-29 13:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37860511&amp;ptid=1085254" target="_blank">6x6z6w 发表于 2017-11-29 13:07</a>
 刚才就哪吒的设计问题和鬼佬争论起来了，颇有种英国人和日本死宅争论亚瑟王形象的感觉……不过武内 ...</blockquote>
 中国月厨不都是至少拿着西游记和封神演义原文去讨论的么。鬼佬……说难听点有几个懂亚洲文化？那几个印度神话来的英灵感觉他们也不怎么关注出处。
-
-
-
-
-
 
 
 -----
@@ -4366,16 +2782,10 @@ gay提亚 alter santa lily感觉不错
 ##### 37752#       发表于 2017-11-29 14:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37860683&amp;ptid=1085254" target="_blank">圈量子 发表于 2017-11-29 13:30</a>
 
 中国月厨不都是至少拿着西游记和封神演义原文去讨论的么。鬼佬……说难听点有几个懂亚洲文化？那几个印度 ...</blockquote>
 你跟他们扯旗袍网袜这种设计问题他们表示都不在乎的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还会拿闪闪人设举例跟你怼，只能从画风下手，但实际上不少鬼佬都不讨厌苍月这种画风
-
-
-
-
-
 
 
 -----
@@ -4384,14 +2794,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37753#       发表于 2017-11-29 14:18
 
 
-
-
 艳后还穿牛仔裤呢，阿虚.jpg
-
-
-
-
-
 
 
 -----
@@ -4400,14 +2803,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37754#       发表于 2017-11-29 14:21
 
 
-
-
 设计什么的不要紧，关键问题是丑啊....
-
-
-
-
-
 
 
 -----
@@ -4416,14 +2812,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37755#       发表于 2017-11-29 14:26
 
 
-
-
 除了隔壁论坛和贴吧谁还吃饱了没事去怼画师，天天给自己加戏
-
-
-
-
-
 
 
 -----
@@ -4432,14 +2821,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37756#       发表于 2017-11-29 15:04
 
 
-
-
 主楼竟然更新了，得有快一年没更新过了吧。。。
-
-
-
-
-
 
 
 -----
@@ -4448,14 +2830,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37757#       发表于 2017-11-29 15:09
 
 
-
-
 不如等开第二部的时候拜托楼主另起一楼<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4466,23 +2841,15 @@ gay提亚 alter santa lily感觉不错
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  真红眼教授  
 ##### 37759#       发表于 2017-11-29 15:16
 
 
-
-
 想想吓了一跳，如果是0000的妻子落地来捞人，那么就很有意思很合理了
 
 要知道加勒底的系统就叫“示巴”，正是用那位命名的
-
-
-
-
-
 
 
 -----
@@ -4491,14 +2858,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37760#       发表于 2017-11-29 17:09
 
 
-
-
 喷了，哪吒是小仓唯
-
-
-
-
-
 
 
 -----
@@ -4507,15 +2867,9 @@ gay提亚 alter santa lily感觉不错
 ##### 37761#       发表于 2017-11-29 17:11
 
 
-
 <blockquote>阿提拉 发表于 2017-11-29 17:09
 喷了，哪吒是小仓唯</blockquote>
 开服了？
-
-
-
-
-
 
 
 -----
@@ -4524,22 +2878,13 @@ gay提亚 alter santa lily感觉不错
 ##### 37762#       发表于 2017-11-29 17:22
 
 
-
-
 喀耳刻好看啊，等一个满破卡面
-
-
-
-
-
 
 
 -----
 
 ####  阿提拉  
 ##### 37763#       发表于 2017-11-29 17:22
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201711/29/172243blcofwtqconf87y7.jpg" referrerpolicy="no-referrer">
@@ -4552,17 +2897,7 @@ gay提亚 alter santa lily感觉不错
 2017-11-29 17:22 上传
 
 
-
-
-
-
-
 稳了！
-
-
-
-
-
 
 
 -----
@@ -4571,14 +2906,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37764#       发表于 2017-11-29 17:25
 
 
-
-
 日了，喀耳刻又是跟刑部一样弯腰驼背的，是DW拿个阿福的模型在无限复用吗<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4587,14 +2915,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37765#       发表于 2017-11-29 17:27
 
 
-
-
 黑皮是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4603,13 +2924,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37766#       发表于 2017-11-29 17:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">激情年代
-
-
-
-
-
 
 
 -----
@@ -4618,14 +2933,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37767#       发表于 2017-11-29 17:34
 
 
-
-
 想要哪吒娘的歪了个孔明………………<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4634,14 +2942,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37768#       发表于 2017-11-29 17:34
 
 
-
-
 黑皮有点好看啊
-
-
-
-
-
 
 
 -----
@@ -4650,14 +2951,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37769#       发表于 2017-11-29 17:35
 
 
-
-
 这个黑皮比152黑皮好看啊……
-
-
-
-
-
 
 
 -----
@@ -4666,14 +2960,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37770#       发表于 2017-11-29 17:37
 
 
-
-
 这黑皮比火腿好多了（
-
-
-
-
-
 
 
 -----
@@ -4682,14 +2969,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37771#       发表于 2017-11-29 17:56
 
 
-
-
 那坨的满破卡面社保啊，技能感觉也有点实力
-
-
-
-
-
 
 
 -----
@@ -4698,14 +2978,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37772#       发表于 2017-11-29 17:57
 
 
-
-
 翻页
-
-
-
-
-
 
 
 -----
@@ -4714,13 +2987,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37773#       发表于 2017-11-29 17:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">好看太多了  明显不是一个级别的
-
-
-
-
-
 
 
 -----
@@ -4729,14 +2996,7 @@ gay提亚 alter santa lily感觉不错
 ##### 37774#       发表于 2017-11-29 18:00
 
 
-
-
 我觉得1001比较好看<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4747,21 +3007,13 @@ gay提亚 alter santa lily感觉不错
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  真红眼教授  
 ##### 37776#       发表于 2017-11-29 18:09
 
 
-
-
 这个黑皮是扮演的示巴女王，考虑到剧透加勒底马上要来个新所长，卫星已经稳了
-
-
-
-
-
 
 
 -----
@@ -4770,17 +3022,10 @@ gay提亚 alter santa lily感觉不错
 ##### 37777#       发表于 2017-11-29 18:37
 
 
-
-
 9符歪了个ufo爱好者和新3星战神。
 
 
 继续修仙囤水
-
-
-
-
-
 
 
 -----
@@ -4789,22 +3034,13 @@ gay提亚 alter santa lily感觉不错
 ##### 37778#       发表于 2017-11-29 18:57
 
 
-
-
 更新完完全无法登陆，开了VPN也是<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  高木なつめ  
 ##### 37779#       发表于 2017-11-29 19:08
-
-
 
 
 一眼看到哪吒，舔爆，两单下去，喀尔刻满宝了，哪吒没影
@@ -4819,25 +3055,13 @@ ummm
 我CNM，小仓唯
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 37780#       发表于 2017-11-29 19:20
 
 
-
-
 苍月+小仓唯的搭配真是一级棒,只是为毛这卡不是欧证啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4846,16 +3070,10 @@ ummm
 ##### 37781#       发表于 2017-11-29 19:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37863601&amp;ptid=1085254" target="_blank">霖星 发表于 2017-11-29 18:57</a>
 
 更新完完全无法登陆，开了VPN也是</blockquote>
 请用手机4G，秒更新
-
-
-
-
-
 
 
 -----
@@ -4864,14 +3082,7 @@ ummm
 ##### 37782#       发表于 2017-11-29 19:37
 
 
-
-
 协会要强行关门迦勒底，该给他们点颜色看看了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4880,21 +3091,13 @@ ummm
 ##### 37783#       发表于 2017-11-29 19:47
 
 
-
-
 协会已经没指望了，毕竟联合国直属，五大流氓就这样给协会骑到头上？
-
-
-
-
-
 
 
 -----
 
 ####  霖星  
 ##### 37784#       发表于 2017-11-29 20:12
-
 
 
  本帖最后由 霖星 于 2017-11-29 20:27 编辑 
@@ -4904,18 +3107,10 @@ ummm
 就是不太想用手机玩，之前一直正常的，不知道为啥这次更新完登陆就提示网络连接失败。去贴吧看了下发现原因了，安卓4.4版本的全部无法登陆了
 
 
-
-
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 37785#       发表于 2017-11-29 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37863960&amp;ptid=1085254" target="_blank">シャル 发表于 2017-11-29 19:47</a>
@@ -4924,27 +3119,15 @@ ummm
 之前的设定不是外面世界全烧毁了么，整个地球就剩下个旮旯底
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 37786#       发表于 2017-11-29 20:40
 
 
-
-
 人理早就恢复了啊，不然第一部不是白忙了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 话说这三个贞德一台戏太神经病了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4953,16 +3136,10 @@ ummm
 ##### 37787#       发表于 2017-11-29 20:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37864240&amp;ptid=1085254" target="_blank">霖星 发表于 2017-11-29 20:26</a>
 
 之前的设定不是外面世界全烧毁了么，整个地球就剩下个旮旯底</blockquote>
 已经修复了，协会歇了1年开始动手了
-
-
-
-
-
 
 
 -----
@@ -4971,24 +3148,16 @@ ummm
 ##### 37788#       发表于 2017-11-29 20:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37864384&amp;ptid=1085254" target="_blank">シャル 发表于 2017-11-29 20:46</a>
 
 已经修复了，协会歇了1年开始动手了</blockquote>
 原来这修复还带时光逆转功能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  轮太  
 ##### 37789#       发表于 2017-11-29 20:51
-
-
 
 
 堂堂加勒底
@@ -4998,16 +3167,10 @@ ummm
 我看这新所长呀，
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 37790#       发表于 2017-11-29 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37864418&amp;ptid=1085254" target="_blank">霖星 发表于 2017-11-29 20:49</a>
@@ -5016,16 +3179,10 @@ ummm
 不逆转你人理救回来然后从0开始建设吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 37791#       发表于 2017-11-29 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37864418&amp;ptid=1085254" target="_blank">霖星 发表于 2017-11-29 20:49</a>
@@ -5037,27 +3194,15 @@ ummm
 人理毁灭的一年时间跳过去了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  34789  
 ##### 37792#       发表于 2017-11-29 21:46
 
 
-
-
 新黑皮有兽耳……
 
 怕不是黑玉哦……
-
-
-
-
-
 
 
 -----
@@ -5066,14 +3211,7 @@ ummm
 ##### 37793#       发表于 2017-11-29 22:08
 
 
-
-
 都154了，这怪还掉1星2星狗粮是什么鬼
-
-
-
-
-
 
 
 -----
@@ -5082,14 +3220,7 @@ ummm
 ##### 37794#       发表于 2017-11-29 22:09
 
 
-
-
 三个贞德这一段演的是三只小猪吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5098,16 +3229,9 @@ ummm
 ##### 37795#       发表于 2017-11-29 22:48
 
 
-
-
 Circe的猪化怎么打影从者都是no effect……那岂不只是超劣化版的眩晕<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 黑皮居然是术阶暴击手……好谜啊
-
-
-
-
-
 
 
 -----
@@ -5116,17 +3240,10 @@ Circe的猪化怎么打影从者都是no effect……那岂不只是超劣化版
 ##### 37796#       发表于 2017-11-30 01:00
 
 
-
-
 10连，茨木，茨木真的爱我，3个号都有了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
 看了看敌人的配置，貌似不是很难，试一下开荒吧。
-
-
-
-
-
 
 
 -----
@@ -5135,20 +3252,13 @@ Circe的猪化怎么打影从者都是no effect……那岂不只是超劣化版
 ##### 37797#       发表于 2017-11-30 01:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打到中断点了....这黑皮是英灵的话怎么还会被绞首刑弄死....尸体还被当成无脑僵尸复活...真惨
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 37798#       发表于 2017-11-30 01:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37864434&amp;ptid=1085254" target="_blank">轮太 发表于 2017-11-29 20:51</a>
@@ -5161,16 +3271,10 @@ Circe的猪化怎么打影从者都是no effect……那岂不只是超劣化版
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也不一定....这次主线咕哒带着一堆英灵被一个新上任的州知事代理都搞的够呛
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 37799#       发表于 2017-11-30 01:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37866140&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-11-30 01:00</a>
@@ -5179,16 +3283,10 @@ Circe的猪化怎么打影从者都是no effect……那岂不只是超劣化版
 Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限吗。不过黑皮这样认真去演这个仆人角色很诡异，而且几乎肯定要进二期卡池的从者就这种戏份说不过去，可能还有神展开……
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37800#       发表于 2017-11-30 01:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37866326&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-11-30 01:41</a>
@@ -5200,17 +3298,10 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 退一步讲就算受肉了后能被用常规手法杀死.....死了后不应该是回英灵座吗....和活人一样留下尸体被埋在坟墓里还被当成僵尸复活是什么鬼
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37801#       发表于 2017-11-30 01:57
-
-
 
 
 ランドルフ・カーター（Randolph Carter）は、ハワード・フィリップス・ラヴクラフトによる クトゥルフ神話に登場する架空の学者
@@ -5233,32 +3324,19 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 转几段东西....不知道有没有火星
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37802#       发表于 2017-11-30 01:58
 
 
-
-
 翻页
-
-
-
-
-
 
 
 -----
 
 ####  茛菪  
 ##### 37803#       发表于 2017-11-30 02:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37866362&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-11-30 01:52</a>
@@ -5270,27 +3348,15 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 应该是影响了所有的从者吧，属于场地debuff……而且一起来的从者如果不是Circe把驻地工房化了都无法灵体化，至少死后短期会留下尸体感觉也还合理。不过现在剧情给我的感觉就是黑幕搭了台子然后搞了一堆合适不合适的人都来演salem女巫审判这个戏，黑皮也只是作为演员退场了……（其实黑皮之后肯定还有戏份的啊，毕竟真名只是被玩家猜出来的，剧情还没解明）
 
 
-
-
-
-
-
 -----
 
 ####  耳朵  
 ##### 37804#       发表于 2017-11-30 02:48
 
 
-
-
 看到三匹贞德好出戏啊！<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5299,14 +3365,7 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 ##### 37805#       发表于 2017-11-30 03:44
 
 
-
-
 你游怎么又维护！刚想抽十连就卡了
-
-
-
-
-
 
 
 -----
@@ -5315,14 +3374,7 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 ##### 37806#       发表于 2017-11-30 03:50
 
 
-
-
 突然维护……
-
-
-
-
-
 
 
 -----
@@ -5331,21 +3383,13 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 ##### 37807#       发表于 2017-11-30 03:51
 
 
-
-
 据说loli是新职阶Foreigner（
-
-
-
-
-
 
 
 -----
 
 ####  alaya  
 ##### 37808#       发表于 2017-11-30 04:46
-
 
 
  本帖最后由 alaya 于 2017-11-30 04:48 编辑 
@@ -5359,25 +3403,13 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 女帝这颗卫星这么绿，肯定是（
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 37809#       发表于 2017-11-30 04:48
 
 
-
-
 新职阶的话，攻击克上三，然后防御和AE互相克制？
-
-
-
-
-
 
 
 -----
@@ -5386,14 +3418,7 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 ##### 37810#       发表于 2017-11-30 05:43
 
 
-
-
 三只母猪喷了
-
-
-
-
-
 
 
 -----
@@ -5402,21 +3427,13 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 ##### 37811#       发表于 2017-11-30 05:55
 
 
-
-
 攒了30石准备再试一次王蛤多宝结果真出了正准备截图就死机了，召唤死机是什么神奇技术，技术你游<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 37812#       发表于 2017-11-30 07:50
-
 
 
 <blockquote>茛菪 发表于 2017-11-30 02:41
@@ -5427,26 +3444,15 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 我觉得这个和1001的宝具很相似，不说明根本看不出来是宝具
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 37813#       发表于 2017-11-30 07:55
 
 
-
 <blockquote>森兰丸 发表于 2017-11-30 01:08
 也不一定....这次主线咕哒带着一堆英灵被一个新上任的州知事代理都搞的够呛 ...</blockquote>
 又不能炸平镇子逼魔神柱出来
-
-
-
-
-
 
 
 -----
@@ -5455,16 +3461,9 @@ Circe不是说从者来到这里之后都会是近似受肉的状态魔力受限
 ##### 37814#       发表于 2017-11-30 08:28
 
 
-
-
 reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后看到别人回复今天是第一次知道哈桑们和那啥教有关系<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 美国人，美国人.jpg
-
-
-
-
-
 
 
 -----
@@ -5473,16 +3472,10 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37815#       发表于 2017-11-30 09:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37867019&amp;ptid=1085254" target="_blank">圈量子 发表于 2017-11-30 08:28</a>
 
 reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后看到别人回复今天是第一次知道哈桑们和那啥教有关 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">哈桑这个算是比较大众的常识了吧...
-
-
-
-
-
 
 
 -----
@@ -5491,15 +3484,9 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37816#       发表于 2017-11-30 09:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37867290&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-11-30 09:07</a>
 哈桑这个算是比较大众的常识了吧...</blockquote>
 出于历史原因和教育、文化影响，感觉一般东方人对西方世界还是了解得比较多的，而鬼佬对非西方文化基本没什么高水平认知，就算有兴趣很多时候也只是猎奇心理<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5508,21 +3495,13 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37817#       发表于 2017-11-30 09:28
 
 
-
-
 想了想这次问题很大啊，芙芙不见了
-
-
-
-
-
 
 
 -----
 
 ####  丘萤之光  
 ##### 37818#       发表于 2017-11-30 09:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37867019&amp;ptid=1085254" target="_blank">圈量子 发表于 2017-11-30 02:28</a>
@@ -5532,25 +3511,13 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 —— 来自 nubia NX531J, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.0-play
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 37819#       发表于 2017-11-30 11:45
 
 
-
-
 在贴吧看到了解包的新职介技能图标，感觉现在到处都传开了这个foreigner的说法啊
-
-
-
-
-
 
 
 -----
@@ -5559,14 +3526,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37820#       发表于 2017-11-30 11:52
 
 
-
-
 歪国人
-
-
-
-
-
 
 
 -----
@@ -5575,13 +3535,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37821#       发表于 2017-11-30 12:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">卑鄙的外乡人？
-
-
-
-
-
 
 
 -----
@@ -5590,14 +3544,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37822#       发表于 2017-11-30 12:10
 
 
-
-
 イアイア....这是在召唤章鱼？
-
-
-
-
-
 
 
 -----
@@ -5606,14 +3553,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37823#       发表于 2017-11-30 13:00
 
 
-
-
 可恶的外乡人<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5622,16 +3562,9 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37824#       发表于 2017-11-30 13:14
 
 
-
-
 暗示该梦回亚楠了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -5640,16 +3573,9 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37825#       发表于 2017-11-30 14:21
 
 
-
-
 新职阶硬盘<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5658,22 +3584,13 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37826#       发表于 2017-11-30 14:27
 
 
-
-
 外乡人还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白金口袋  
 ##### 37827#       发表于 2017-11-30 14:43
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201711/30/004219wrjcqwlr1j7eq3cy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -5686,18 +3603,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 2017-11-30 14:42 上传
 
 
-
-
-
 这团意外地能跑哎<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
 
 
 -----
@@ -5706,15 +3612,9 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37828#       发表于 2017-11-30 14:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37870459&amp;ptid=1085254" target="_blank">白金口袋 发表于 2017-11-30 14:43:38</a></blockquote>这剧情本来就是在跑团吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5723,13 +3623,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37829#       发表于 2017-11-30 16:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卑鄙的硬盘？
-
-
-
-
-
 
 
 -----
@@ -5738,13 +3632,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37830#       发表于 2017-11-30 16:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">据说杉田剧透了?
-
-
-
-
-
 
 
 -----
@@ -5753,14 +3641,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37831#       发表于 2017-11-30 17:10
 
 
-
-
 12月送髓液，赞美盐川<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5769,16 +3650,9 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37832#       发表于 2017-11-30 17:19
 
 
-
-
 马上又换素材了，可我还没攒够王哈要的毒针<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5787,14 +3661,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37833#       发表于 2017-11-30 18:55
 
 
-
-
 下一个外乡人怕不是关玉明<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5803,14 +3670,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37834#       发表于 2017-11-30 20:07
 
 
-
-
 卧槽，12月交换券这3选1也太纠结了，只能先等圣诞池子里有啥再做决定了
-
-
-
-
-
 
 
 -----
@@ -5819,13 +3679,7 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37835#       发表于 2017-11-30 20:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">髓液送一个月也不够老爷子点一个技能..
-
-
-
-
-
 
 
 -----
@@ -5834,21 +3688,13 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 ##### 37836#       发表于 2017-11-30 21:31
 
 
-
-
 看了下时间今晚就开第四节，我明明在哪里看到说明天晚上再开的，这样就好了，周六晚上解锁，周日可以打完了
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 37837#       发表于 2017-11-30 23:03
-
 
 
  本帖最后由 dante888 于 2017-11-30 23:08 编辑 
@@ -5858,16 +3704,10 @@ reddit上看鬼佬发静谧亲小猪的帖子，底下有人吐槽不清真后�
 MD错怪盐川了，都没注意到已经12月了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37838#       发表于 2017-11-30 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37874694&amp;ptid=1085254" target="_blank">dante888 发表于 2017-11-30 23:03</a>
@@ -5880,25 +3720,13 @@ MD错怪盐川了，都没注意到已经12月了
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">醒醒 你没有错怪他  3号还有次更新呢
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37839#       发表于 2017-11-30 23:11
 
 
-
-
 5发白嫖又沉了，100绿方块换来9个绿方块
-
-
-
-
-
 
 
 -----
@@ -5907,17 +3735,10 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37840#       发表于 2017-11-30 23:21
 
 
-
-
 据说灵基一览多了一个格子
 但是我还在更新……
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5926,17 +3747,10 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37841#       发表于 2017-11-30 23:38
 
 
-
-
 探员玛塔被吊死了（
 
 
 怕是要团灭
-
-
-
-
-
 
 
 -----
@@ -5945,21 +3759,13 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37842#       发表于 2017-11-30 23:39
 
 
-
-
 哦哦哦黑皮小姐姐复活了
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 37843#       发表于 2017-11-30 23:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37874799&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2017-11-30 23:21</a>
@@ -5970,25 +3776,13 @@ MD错怪盐川了，都没注意到已经12月了
 我没有喀尔刻，哪吒是193，192和194都是空着的，应该是多了个格子
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37844#       发表于 2017-11-30 23:45
 
 
-
-
 黑皮确认是示巴女王，某人不会真要奶活了？
-
-
-
-
-
 
 
 -----
@@ -5997,22 +3791,13 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37845#       发表于 2017-12-1 00:03
 
 
-
-
 圣诞送个某人santa，奶不死的
-
-
-
-
-
 
 
 -----
 
 ####  sheep0081  
 ##### 37846#       发表于 2017-12-1 00:07
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201712/01/000517r9dh2bgk1oa199ph.jpg" referrerpolicy="no-referrer">
@@ -6025,10 +3810,6 @@ MD错怪盐川了，都没注意到已经12月了
 2017-12-1 00:05 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201712/01/000519tau8i9ji89u1kzg3.jpg" referrerpolicy="no-referrer">
 
 
@@ -6037,10 +3818,6 @@ MD错怪盐川了，都没注意到已经12月了
 下载附件
 
 2017-12-1 00:05 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201712/01/000658f1sdrg51z6qesxph.jpg" referrerpolicy="no-referrer">
@@ -6053,19 +3830,9 @@ MD错怪盐川了，都没注意到已经12月了
 2017-12-1 00:06 上传
 
 
-
-
-
-
 医生你老婆真棒
 
 旮旯底相簿~
-
-
-
-
-
-
 
 
 -----
@@ -6074,14 +3841,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37847#       发表于 2017-12-1 00:13
 
 
-
-
 又是安定的100换5<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6090,14 +3850,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37848#       发表于 2017-12-1 00:27
 
 
-
-
 30连来了第5和第6张村正，然而抽不到王哈根本用不了这卡
-
-
-
-
-
 
 
 -----
@@ -6106,14 +3859,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37849#       发表于 2017-12-1 00:31
 
 
-
-
 哇哈哈哈，梦想成真，王蛤2宝了<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">，赞美护符！！
-
-
-
-
-
 
 
 -----
@@ -6122,14 +3868,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37850#       发表于 2017-12-1 00:58
 
 
-
-
 爱....爱手艺出现了。
-
-
-
-
-
 
 
 -----
@@ -6138,16 +3877,9 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37851#       发表于 2017-12-1 00:58
 
 
-
-
 认真讲医生就算回来那也要是主线重点剧情，变成节庆活动配布鯖这事蘑菇应该还没那么不要脸。
 
 另外黑皮感觉宝具伤害好低……是用水泥用出错觉了吗orz
-
-
-
-
-
 
 
 -----
@@ -6156,14 +3888,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37852#       发表于 2017-12-1 01:25
 
 
-
-
 因为黑皮助战那次是等级减半（
-
-
-
-
-
 
 
 -----
@@ -6172,14 +3897,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37853#       发表于 2017-12-1 01:38
 
 
-
-
 所有人都一样减半啊……嘛的确是错觉吧看解包倍率是正常的……你游总算有没被砍过的蓝卡单体术了……
-
-
-
-
-
 
 
 -----
@@ -6188,20 +3906,13 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37854#       发表于 2017-12-1 01:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这桑松是脑子进水了吧.....不管咕哒一个人自说自话的行动了
-
-
-
-
-
 
 
 -----
 
 ####  白金口袋  
 ##### 37855#       发表于 2017-12-1 02:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37875545&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-11-30 11:54</a>
@@ -6216,25 +3927,13 @@ MD错怪盐川了，都没注意到已经12月了
 不断遇关键事件扔骰子san check<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yueyut  
 ##### 37856#       发表于 2017-12-1 03:06
 
 
-
-
 我在想154到底有多长。先开1-3，然后是4-6，最后是7-最后。但是前面3个1.5章都有16-18章之多，如果1.54也有16章左右的长度的话，其实1-6章基本上也没说多少内容？
-
-
-
-
-
 
 
 -----
@@ -6243,16 +3942,9 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37857#       发表于 2017-12-1 05:21
 
 
-
-
 锁剧情的好处就是不怕剧透
 
 坏处就是不能一口气看完我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6261,14 +3953,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37858#       发表于 2017-12-1 07:41
 
 
-
-
 新加的敌人真是很克苏鲁啊
-
-
-
-
-
 
 
 -----
@@ -6277,14 +3962,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37859#       发表于 2017-12-1 07:49
 
 
-
-
 这章克鲁苏元素太过明显，有预感这根柱子又要悲剧...怕不是比桀派还惨
-
-
-
-
-
 
 
 -----
@@ -6295,22 +3973,15 @@ MD错怪盐川了，都没注意到已经12月了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gpx234mqx  
 ##### 37861#       发表于 2017-12-1 08:15
 
 
-
 <blockquote>阿提拉 发表于 2017-12-1 07:49
 这章克鲁苏元素太过明显，有预感这根柱子又要悲剧...怕不是比桀派还惨</blockquote>
 柱子和克苏鲁邪神合体呢
-
-
-
-
-
 
 
 -----
@@ -6319,15 +3990,9 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37862#       发表于 2017-12-1 08:24
 
 
-
 <blockquote>yueyut 发表于 2017-12-1 03:06
 我在想154到底有多长。先开1-3，然后是4-6，最后是7-最后。但是前面3个1.5章都有16-18章之多，如果1.54也有 ...</blockquote>
 谁说第三次是七到最后？官方有消息了？
-
-
-
-
-
 
 
 -----
@@ -6336,14 +4001,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37863#       发表于 2017-12-1 08:26
 
 
-
-
 154公布的第一天就这么说了
-
-
-
-
-
 
 
 -----
@@ -6352,20 +4010,12 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37864#       发表于 2017-12-1 08:30
 
 
-
  本帖最后由 gunbird 于 2017-12-1 08:38 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">所以很可能不是故事风格偏克苏鲁，而是本来就在进行一场“COC跑团”，只是参与者身在其中不知道罢了
 
 
-
-
 大概是某种邪物附着在KP身上，借助魔神柱的力量构建一个舞台，所有人不过是扮演故事中的角色，而伴随故事推进，最终从而真的降临。
-
-
-
-
-
 
 
 -----
@@ -6374,13 +4024,7 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37865#       发表于 2017-12-1 08:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">黑皮真是医生老婆，迦勒底白学。
-
-
-
-
-
 
 
 -----
@@ -6389,24 +4033,16 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37866#       发表于 2017-12-1 08:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37876127&amp;ptid=1085254" target="_blank">snakeling 发表于 2017-12-1 08:41</a>
 
 黑皮真是医生老婆，迦勒底白学。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">CV不是真绫太太都是白瞎（
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 37867#       发表于 2017-12-1 08:57
-
-
 
 
 仔细想了一下医生的性癖
@@ -6424,17 +4060,10 @@ MD错怪盐川了，都没注意到已经12月了
 妈耶，医生是个深柜判明！
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 37868#       发表于 2017-12-1 08:58
-
-
 
 
 示巴知不知道她男人已经炸了（
@@ -6442,16 +4071,10 @@ MD错怪盐川了，都没注意到已经12月了
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 37869#       发表于 2017-12-1 09:11
-
 
 
 <blockquote>里村紅葉 发表于 2017-12-1 08:58
@@ -6462,26 +4085,15 @@ MD错怪盐川了，都没注意到已经12月了
 当然知道的，有千里眼嘛
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 37870#       发表于 2017-12-1 09:13
 
 
-
 <blockquote>gunbird 发表于 2017-12-1 08:30
 所以很可能不是故事风格偏克苏鲁，而是本来就在进行一场“COC跑团”，只是参与者身在其中不知道罢了 ...</blockquote>
 不是都感觉这次不是魔神柱搞鬼了，妈耶，一开始就撤上泡泡，魔神柱抵抗不了然后拖咕哒下水不是吗？
-
-
-
-
-
 
 
 -----
@@ -6490,23 +4102,15 @@ MD错怪盐川了，都没注意到已经12月了
 ##### 37871#       发表于 2017-12-1 09:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 我王哈桑已经3单0五星了，2个四星一把死灵魔术，慢破2张还有的找<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ramiel  
 ##### 37872#       发表于 2017-12-1 09:29
-
-
 
 
 说起来…月球世界里面对克苏鲁一系的定位是啥？
@@ -6516,32 +4120,19 @@ MD错怪盐川了，都没注意到已经12月了
 克苏鲁这种现代传奇性质的东西能当真么
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 37873#       发表于 2017-12-1 09:31
 
 
-
-
 示巴女王的普攻动画这奶子摇的。。。我遭不住了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  里村紅葉  
 ##### 37874#       发表于 2017-12-1 09:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37876353&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2017-12-1 09:11</a>
@@ -6551,16 +4142,10 @@ MD错怪盐川了，都没注意到已经12月了
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37875#       发表于 2017-12-1 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37876474&amp;ptid=1085254" target="_blank">红丽 发表于 2017-12-1 09:27</a>
@@ -6569,16 +4154,10 @@ MD错怪盐川了，都没注意到已经12月了
 多正常，我是第四单的最后两发十连才出的（
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 37876#       发表于 2017-12-1 09:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37876486&amp;ptid=1085254" target="_blank">ramiel 发表于 2017-12-1 09:29</a>
@@ -6593,32 +4172,19 @@ TM世界里任何的传奇都有可能是现实。
 那么是真实世界的古代传奇还是现代传奇就并不重要
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 37877#       发表于 2017-12-1 09:38
 
 
-
-
 星空这算是被蘑菇包养这么久第一次出手吧，存货真多.....要是能一次全放出来就好了
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 37878#       发表于 2017-12-1 09:38
-
 
 
 <blockquote>ramiel 发表于 2017-12-1 09:29
@@ -6633,16 +4199,10 @@ TM世界里任何的传奇都有可能是现实。
 而且这次提到我大清有崇拜邪神的教团，海底的龙神
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 37879#       发表于 2017-12-1 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37876530&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-1 09:33</a>
@@ -6653,25 +4213,13 @@ TM世界里任何的传奇都有可能是现实。
 不继续追了……下次见<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 37880#       发表于 2017-12-1 09:41
 
 
-
-
 大清有肿胀之女吗？
-
-
-
-
-
 
 
 -----
@@ -6680,14 +4228,7 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37881#       发表于 2017-12-1 10:04
 
 
-
-
 真性恶魔[事项] 就算是在EXTRA的世界，恶魔的概念也仍然被当成人类最大的障碍。 神是全知全能的话，那么恶魔就是人知无能的存在。 "虽然在伸手可及的范围，但绝对无法理解的深渊"。 在stay night恶魔只有伪物存在，真正的——受肉的恶魔是人所无法应对的。 [*驱逐了受肉的恶魔的例子只有被记录到一件，但这是别话了] 恶魔据说是会依附在人心之中、想藉由人体受肉活动， 但作为苗床的人类的精神无法负荷，到最后在周围散播魔性然后自我崩坏是常态。 其中也有因为自己的所为而脱离了人类的范围、 最后被划入恶魔的分类中的人类也存在着， 但这仅是被称为魔人化的生物，并非是真性恶魔。 不管是被恶魔依附、或者是自己转化而成的， 诞生出真性恶魔的现象在2030年的现在，一个成功的例子也没有。 虽然名为恶魔、魔人化，那个存在方式其实和不同的文明圈、 不同的惑星所居住的高次元生命体并无差异。 不管怎么说以这个认知宇宙来说已经不是"人"了的关系。 那个存在方式十分接近在二十世纪所流行过的、某个创作神话中的邪神。 在CCC真实路线转生了的某个人物虽然到达了这个领域， 却因为一些非常细微的MISS而从神之座上坠落了    转自隔壁
-
-
-
-
-
 
 
 -----
@@ -6696,15 +4237,9 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37882#       发表于 2017-12-1 10:15
 
 
-
 <blockquote>黑上シグマ 发表于 2017-12-1 09:33
 多正常，我是第四单的最后两发十连才出的（</blockquote>
 比我9单2宝爷爷还是强一些
-
-
-
-
-
 
 
 -----
@@ -6713,14 +4248,7 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37883#       发表于 2017-12-1 10:20
 
 
-
-
 盐川还是懂运营，这次搞一下大家的热度又起来了。怕是1.5也要来个终章送走什么人
-
-
-
-
-
 
 
 -----
@@ -6729,16 +4257,10 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37884#       发表于 2017-12-1 10:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37876912&amp;ptid=1085254" target="_blank">yukinosarai 发表于 2017-12-1 10:20</a>
 
 盐川还是懂运营，这次搞一下大家的热度又起来了。怕是1.5也要来个终章送走什么人 ...</blockquote>
 别啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，再送走谁不怕日服炎上？
-
-
-
-
-
 
 
 -----
@@ -6747,14 +4269,7 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37885#       发表于 2017-12-1 10:45
 
 
-
-
 其实有人推测这次是魔神柱抑制着想召唤外神的黑幕，但发现自己能力不足，于是故意制造特异点招来主角一行来帮忙解决外神
-
-
-
-
-
 
 
 -----
@@ -6763,15 +4278,9 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37886#       发表于 2017-12-1 14:02
 
 
-
 <blockquote>rxrx 发表于 2017-12-1 10:45
 其实有人推测这次是魔神柱抑制着想召唤外神的黑幕，但发现自己能力不足，于是故意制造特异点招来主角一行来 ...</blockquote>
 …听上去这魔神柱怎么一个比一个丢人
-
-
-
-
-
 
 
 -----
@@ -6780,16 +4289,10 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37887#       发表于 2017-12-1 14:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37876568&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-1 09:38</a>
 
 星空这算是被蘑菇包养这么久第一次出手吧，存货真多.....要是能一次全放出来就好了 ...</blockquote>
 有人根据咕哒的自称判断西游应该也是星空写的
-
-
-
-
-
 
 
 -----
@@ -6798,21 +4301,13 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37888#       发表于 2017-12-1 15:13
 
 
-
-
 才发现远古食尸鬼的宝具效果不是诅咒是诅咒量up啊，实装诅咒拐稳了。
-
-
-
-
-
 
 
 -----
 
 ####  里村紅葉  
 ##### 37889#       发表于 2017-12-1 15:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37879730&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-12-1 15:13</a>
@@ -6822,16 +4317,10 @@ TM世界里任何的传奇都有可能是现实。
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 37890#       发表于 2017-12-1 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37879055&amp;ptid=1085254" target="_blank">ramiel 发表于 2017-12-1 14:02</a>
@@ -6840,25 +4329,13 @@ TM世界里任何的传奇都有可能是现实。
 最丢人的是自作聪明磨消杀生院良心，最后被轮到崩溃的那柱吧
 
 
-
-
-
-
-
 -----
 
 ####  耳朵  
 ##### 37891#       发表于 2017-12-1 16:13
 
 
-
-
 看主线时大魔女声音一直脑补的黑子~然后跑去看视频好不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/199.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6867,14 +4344,7 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37892#       发表于 2017-12-1 16:18
 
 
-
-
 我只关心明晚有没有新五星抽
-
-
-
-
-
 
 
 -----
@@ -6883,16 +4353,10 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37893#       发表于 2017-12-1 16:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37880297&amp;ptid=1085254" target="_blank">蓮華 发表于 2017-12-1 16:18</a>
 
 我只关心明晚有没有新五星抽</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说不定今天5点就开个限定纪念池给你抽（
-
-
-
-
-
 
 
 -----
@@ -6901,14 +4365,7 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37894#       发表于 2017-12-1 16:46
 
 
-
-
 盐川看着你们一个个迫不及待要抽卡肯定乐开花了
-
-
-
-
-
 
 
 -----
@@ -6917,21 +4374,13 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37895#       发表于 2017-12-1 16:57
 
 
-
-
 最后来个外星邪神爱上我的话我一定会笑爆
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 37896#       发表于 2017-12-1 17:10
-
 
 
  本帖最后由 alucardcz 于 2017-12-1 17:12 编辑 
@@ -6942,17 +4391,10 @@ TM世界里任何的传奇都有可能是现实。
 再次强调了下なお今後、期間限定イベントや期間限定キャンペーンにおいて、メインクエスト第1部クリアが開放条件となるものを予定しております。
 
 
-
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37897#       发表于 2017-12-1 17:14
-
 
 
  本帖最后由 alucardcz 于 2017-12-1 17:16 编辑 
@@ -6960,16 +4402,10 @@ TM世界里任何的传奇都有可能是现实。
 风怒
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 37898#       发表于 2017-12-1 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37880736&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-1 17:10</a>
@@ -6981,16 +4417,10 @@ TM世界里任何的传奇都有可能是现实。
 生放送盐川就说了今年圣诞必须完成第一部
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37899#       发表于 2017-12-1 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37880789&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-1 17:16</a>
@@ -6999,16 +4429,10 @@ TM世界里任何的传奇都有可能是现实。
 なお今後
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 37900#       发表于 2017-12-1 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37880820&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-1 17:19</a>
@@ -7017,16 +4441,10 @@ TM世界里任何的传奇都有可能是现实。
 这锅是蘑菇的吧，毕竟TM话事权很大，盐川基本上是照指示工作
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37901#       发表于 2017-12-1 17:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37880871&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-1 17:25</a>
@@ -7042,16 +4460,10 @@ TM世界里任何的传奇都有可能是现实。
 至于生放送那谁说的不奇怪 因为早预告说了必须开位起了
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 37902#       发表于 2017-12-1 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37880884&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-1 17:27</a>
@@ -7064,16 +4476,10 @@ TM世界里任何的传奇都有可能是现实。
 搞错了，抱歉。但DW和TM还真敢做这种赶新客的行动
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 37903#       发表于 2017-12-1 17:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37879992&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-1 15:40</a>
@@ -7082,16 +4488,10 @@ TM世界里任何的传奇都有可能是现实。
 还是投给被做成煎饼的那位吧
 
 
-
-
-
-
-
 -----
 
 ####  habita  
 ##### 37904#       发表于 2017-12-1 23:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37880899&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-1 17:29</a>
@@ -7100,32 +4500,19 @@ TM世界里任何的传奇都有可能是现实。
 就fgo时不时鞭尸医生的习惯，新活动不开位本身也接不上吧，不这么搞的结果就是今年的复刻盛世了
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 37905#       发表于 2017-12-2 00:18
 
 
-
-
 你们都在打154的时候我还在推152<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">我就问个问题，你们154打到现在有没有和前三章一样的颜艺担当
-
-
-
-
-
 
 
 -----
 
 ####  大气水平运动  
 ##### 37906#       发表于 2017-12-2 02:14
-
 
 
  本帖最后由 大气水平运动 于 2017-12-2 02:15 编辑 
@@ -7135,16 +4522,10 @@ TM世界里任何的传奇都有可能是现实。
 真有人冲着你游这参差不平不如碧X十分之一的卡面来吗
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37907#       发表于 2017-12-2 02:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37883917&amp;ptid=1085254" target="_blank">大气水平运动 发表于 2017-12-2 02:14</a>
@@ -7155,16 +4536,10 @@ TM世界里任何的传奇都有可能是现实。
 不如碧X十分之一还行
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 37908#       发表于 2017-12-2 03:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37883450&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-2 00:18</a>
@@ -7173,17 +4548,10 @@ TM世界里任何的传奇都有可能是现实。
 没有。目前整个氛围是比较冷的。
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 37909#       发表于 2017-12-2 04:20
-
-
 
 
 感觉会有来迦勒底打工的魔神柱了（食堂的那个不算
@@ -7192,17 +4560,10 @@ TM世界里任何的传奇都有可能是现实。
 医生你老婆真棒，我TM氪爆
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 37910#       发表于 2017-12-2 04:28
-
-
 
 
 另外我觉得克苏鲁要素是个噱头，突然就把三柱神搬出来战斗力也膨胀太快了
@@ -7211,25 +4572,13 @@ TM世界里任何的传奇都有可能是现实。
 很可能前面六节的东西都是叙述诡计，之前也提到进入塞勒姆的时候很可能都被替换了
 
 
-
-
-
-
-
 -----
 
 ####  purdre  
 ##### 37911#       发表于 2017-12-2 07:15
 
 
-
-
 我也觉得克苏鲁要素噱头比较重，真不要脸耍厨战力膨胀手撕外神了我也差不多可以卖号了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 如果是星空我心里觉得应该还是不至于只有这个程度的。
-
-
-
-
-
 
 
 -----
@@ -7238,21 +4587,13 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37912#       发表于 2017-12-2 08:39
 
 
-
-
 被狗咬死的邪神儿子，被船撞没的邪神有什么战斗力啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  purdre  
 ##### 37913#       发表于 2017-12-2 09:56
-
 
 
  本帖最后由 purdre 于 2017-12-2 12:29 编辑 
@@ -7262,16 +4603,10 @@ TM世界里任何的传奇都有可能是现实。
 被狗咬死那个弱鸡你也知道是邪神儿子不是外神本人，yog本来就喜欢到处撒种，不同外形不同战力的子孙一篮子，其中一个儿子弱鸡和老子没啥关系，另外被船撞的那个是旧日支配者，和外神不一样，并且我希望各位还是去看看原作，明明是人家睡意重没跟一艘船一般见识，懒得理那艘船自己回去睡觉去了，怎么一堆人拿这个故事歪出人类最强光宗耀祖击败邪神这种结论来的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 37914#       发表于 2017-12-2 10:39
-
 
 
  本帖最后由 シャル 于 2017-12-2 10:42 编辑 
@@ -7288,16 +4623,10 @@ TM世界里任何的传奇都有可能是现实。
 改名迦勒底基金会<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  大气水平运动  
 ##### 37915#       发表于 2017-12-2 12:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37883966&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-2 02:36</a>
@@ -7308,17 +4637,10 @@ TM世界里任何的传奇都有可能是现实。
 —— 来自 HUAWEI MT7-TL10, Android 6.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 37916#       发表于 2017-12-2 12:12
-
-
 
 
 像我这种反感塞私货又对克鲁苏不感兴趣的真搞克鲁苏也要和这游戏说再见了
@@ -7326,16 +4648,10 @@ TM世界里任何的传奇都有可能是现实。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 37917#       发表于 2017-12-2 12:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37885865&amp;ptid=1085254" target="_blank">ranapocket 发表于 2017-12-2 12:12</a>
@@ -7345,28 +4661,16 @@ TM世界里任何的传奇都有可能是现实。
 总感觉这次coc要素是障眼法
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37918#       发表于 2017-12-2 12:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这楼怎么混进了个奇怪的朋友
 
 
-
 话说今天晚上不知道会有啥猛料 苹果准备好了 等全开一口气通了154
-
-
-
-
-
 
 
 -----
@@ -7375,23 +4679,16 @@ TM世界里任何的传奇都有可能是现实。
 ##### 37919#       发表于 2017-12-2 12:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37885883&amp;ptid=1085254" target="_blank">sandro 发表于 2017-12-2 12:15</a>
 
 总感觉这次coc要素是障眼法</blockquote>
 梅菲斯特都说了这次是看猴戏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37920#       发表于 2017-12-2 13:33
-
 
 
 <blockquote>大气水平运动 发表于 2017-12-2 12:07
@@ -7402,25 +4699,13 @@ TM世界里任何的传奇都有可能是现实。
 那麻烦去隔壁的专楼，跑这里来干嘛
 
 
-
-
-
-
-
 -----
 
 ####  zhaoyanggolden  
 ##### 37921#       发表于 2017-12-2 13:46
 
 
-
-
 fz的时候就搞克苏鲁了，现在抱怨什么啊
-
-
-
-
-
 
 
 -----
@@ -7429,14 +4714,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊
 ##### 37922#       发表于 2017-12-2 13:59
 
 
-
-
 翻页（
-
-
-
-
-
 
 
 -----
@@ -7445,23 +4723,16 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊
 ##### 37923#       发表于 2017-12-2 14:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37886532&amp;ptid=1085254" target="_blank">zhaoyanggolden 发表于 2017-12-2 13:46</a>
 
 fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 你没看到他说的是克 鲁 苏么，这楼KY浓度绝赞上升中
 
 
-
-
-
-
-
 -----
 
 ####  大气水平运动  
 ##### 37924#       发表于 2017-12-2 14:21
-
 
 
  本帖最后由 大气水平运动 于 2017-12-2 14:24 编辑 
@@ -7472,16 +4743,10 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 —— 来自 HUAWEI MT7-TL10, Android 6.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 37925#       发表于 2017-12-2 14:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37886690&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-02 14:06:00</a>
@@ -7491,16 +4756,10 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 37926#       发表于 2017-12-2 15:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37885865&amp;ptid=1085254" target="_blank">ranapocket 发表于 2017-12-2 12:12</a>
@@ -7512,16 +4771,10 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 37927#       发表于 2017-12-2 15:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37886867&amp;ptid=1085254" target="_blank">ranapocket 发表于 2017-12-2 14:30</a>
@@ -7532,17 +4785,10 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  耳朵  
 ##### 37928#       发表于 2017-12-2 17:27
-
-
 
 
 这回分批开放挺好~正好到周末不需要精致睡眠!
@@ -7551,26 +4797,15 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 另外总觉得最后还是能看到颜艺(
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37929#       发表于 2017-12-2 18:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">没必要这么敏感吧....FATE的本质不就是古今中外各种神话怪力大乱斗吗
 
 就算觉得有拉低克苏鲁逼格也就这一章的事....以后应该也不大可能会再出现了
-
-
-
-
-
 
 
 -----
@@ -7579,14 +4814,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37930#       发表于 2017-12-2 19:07
 
 
-
-
 这楼每次争起来的话题都怪了吧唧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7595,13 +4823,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37931#       发表于 2017-12-2 19:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这也能吵架
-
-
-
-
-
 
 
 -----
@@ -7610,13 +4832,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37932#       发表于 2017-12-2 19:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不是很懂月球人，期待新角色的颜艺
-
-
-
-
-
 
 
 -----
@@ -7625,20 +4841,13 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37933#       发表于 2017-12-2 20:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">难道不是因为月球神圣不可侵犯 
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 37934#       发表于 2017-12-2 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37885865&amp;ptid=1085254" target="_blank">ranapocket 发表于 2017-12-2 12:12</a>
@@ -7652,11 +4861,6 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 那阁下之前是对希腊神话北欧神话南美传说凯尔特神话日本怪谈欧洲民间传说全部都了如指掌如数家珍咯？
 
 
-
-
-
-
-
 -----
 
 ####  hyuy  
@@ -7665,23 +4869,15 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ネロ  
 ##### 37936#       发表于 2017-12-2 22:14
 
 
-
-
 为什么你们总能撕逼一些乱七八糟的问题
 
 一定是盐川限制开放剧情的错<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7690,14 +4886,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37937#       发表于 2017-12-2 23:03
 
 
-
-
 果然有更新，安定的操作
-
-
-
-
-
 
 
 -----
@@ -7706,14 +4895,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37938#       发表于 2017-12-2 23:04
 
 
-
-
 依旧没新池，吊足胃口然后骗一波氪，可以看到盐川数钱到手抽筋的嘴脸
-
-
-
-
-
 
 
 -----
@@ -7722,14 +4904,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37939#       发表于 2017-12-2 23:04
 
 
-
-
 今天下得比前天快多了，开打开打
-
-
-
-
-
 
 
 -----
@@ -7738,14 +4913,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37940#       发表于 2017-12-2 23:06
 
 
-
-
 哦草，这剧本文字量是不是太大了，看的头疼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7754,16 +4922,9 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37941#       发表于 2017-12-2 23:08
 
 
-
-
 似李 王国之心
 
 键刃小魔女（
-
-
-
-
-
 
 
 -----
@@ -7772,16 +4933,9 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37942#       发表于 2017-12-2 23:10
 
 
-
-
 喷了，第一个对B的伤害减半的职业出现了
 
 ？职阶的陷阱，遇事不决上狂战是吧
-
-
-
-
-
 
 
 -----
@@ -7790,13 +4944,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37943#       发表于 2017-12-2 23:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">我大狂战居然打出了蓝字。。亡。。。亡了！
-
-
-
-
-
 
 
 -----
@@ -7805,22 +4953,13 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37944#       发表于 2017-12-2 23:12
 
 
-
-
 打ae阶resist
-
-
-
-
-
 
 
 -----
 
 ####  ネロ  
 ##### 37945#       发表于 2017-12-2 23:15
-
-
 
 
 被AE克制
@@ -7831,25 +4970,13 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 另外，可以说是非常克苏鲁了
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37946#       发表于 2017-12-2 23:16
 
 
-
-
 干，我上的全术阶羁绊队
-
-
-
-
-
 
 
 -----
@@ -7858,14 +4985,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37947#       发表于 2017-12-2 23:30
 
 
-
-
 真的是foreigner
-
-
-
-
-
 
 
 -----
@@ -7874,14 +4994,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37948#       发表于 2017-12-2 23:34
 
 
-
-
 倒是快开卡池啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7890,17 +5003,10 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37949#       发表于 2017-12-2 23:37
 
 
-
-
 打完第一条血结束，奶光梅林孔明哪怕克制也是随便打……
 
 
 杉田的这招剧透法厉害的，我服气的（你们看看杉田推特的版图就知道了……
-
-
-
-
-
 
 
 -----
@@ -7909,14 +5015,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37950#       发表于 2017-12-2 23:38
 
 
-
-
 外国人就是厉害。。
-
-
-
-
-
 
 
 -----
@@ -7925,14 +5024,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37951#       发表于 2017-12-2 23:40
 
 
-
-
 双持键刃，似李，罗克萨斯（
-
-
-
-
-
 
 
 -----
@@ -7941,14 +5033,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37952#       发表于 2017-12-2 23:45
 
 
-
-
 组长还真的剧透了啊，嘛虽然本来就够可疑的就是了……
-
-
-
-
-
 
 
 -----
@@ -7957,14 +5042,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37953#       发表于 2017-12-2 23:47
 
 
-
-
 新職階還行,口口李放過我的錢包吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7973,13 +5051,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37954#       发表于 2017-12-2 23:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">气不打一处来.....这谁写的SB剧情啊啊啊啊？灭天灭地的咕哒被几个暴民骑在身下.....不用令咒命令英灵屠光这些暴民还在等什么？？？
-
-
-
-
-
 
 
 -----
@@ -7990,21 +5062,13 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 37956#       发表于 2017-12-2 23:54
 
 
-
-
 犹格·索托斯？
-
-
-
-
-
 
 
 -----
@@ -8013,14 +5077,7 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37957#       发表于 2017-12-2 23:56
 
 
-
-
 卧槽，贴吧已经打完了，第8节就结束了
-
-
-
-
-
 
 
 -----
@@ -8029,23 +5086,15 @@ fz的时候就搞克苏鲁了，现在抱怨什么啊</blockquote>
 ##### 37958#       发表于 2017-12-2 23:59
 
 
-
  本帖最后由 poor 于 2017-12-3 00:01 编辑 
 
 虽然现在才问，153的圣杯到底哪来的？
-
-
-
-
-
 
 
 -----
 
 ####  斯卡哈  
 ##### 37959#       发表于 2017-12-3 00:07
-
-
 
 
 Foreigner阿比盖尔，QAAAB，ATK/HP＝12100/13770
@@ -8075,16 +5124,10 @@ Foreigner克制Berserker(2.0/0.5)，被Alterego克制(0.5/2.0)，与Foreigner互
 敌方单体强化解除＋超强力攻击＋暴击发生率下降
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 37960#       发表于 2017-12-3 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37889038&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2017-12-02 20:12:07</a>
@@ -8095,17 +5138,10 @@ Foreigner克制Berserker(2.0/0.5)，被Alterego克制(0.5/2.0)，与Foreigner互
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  斯卡哈  
 ##### 37961#       发表于 2017-12-3 00:11
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201712/03/001022xbniiibckhnmiu8u.jpg" referrerpolicy="no-referrer">
@@ -8118,11 +5154,6 @@ Foreigner克制Berserker(2.0/0.5)，被Alterego克制(0.5/2.0)，与Foreigner互
 2017-12-3 00:10 上传
 
 
-
-
-
-
-
 满破图不错
 
 
@@ -8133,25 +5164,13 @@ Foreigner克制Berserker(2.0/0.5)，被Alterego克制(0.5/2.0)，与Foreigner互
 己方全体红、蓝卡性能提升10%~20%（3回合）＋获得10星星
 
 
-
-
-
-
-
 -----
 
 ####  源頼光  
 ##### 37962#       发表于 2017-12-3 00:11
 
 
-
-
 不给抽，没劲
-
-
-
-
-
 
 
 -----
@@ -8160,15 +5179,8 @@ Foreigner克制Berserker(2.0/0.5)，被Alterego克制(0.5/2.0)，与Foreigner互
 ##### 37963#       发表于 2017-12-3 00:12
 
 
-
-
 又是三藍紅寶具<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 鹽式配卡真浪費這atk
-
-
-
-
-
 
 
 -----
@@ -8179,21 +5191,13 @@ Foreigner克制Berserker(2.0/0.5)，被Alterego克制(0.5/2.0)，与Foreigner互
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dante888  
 ##### 37965#       发表于 2017-12-3 00:25
 
 
-
-
 杀阶魔神柱真是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8202,16 +5206,9 @@ Foreigner克制Berserker(2.0/0.5)，被Alterego克制(0.5/2.0)，与Foreigner互
 ##### 37966#       发表于 2017-12-3 00:31
 
 
-
-
 痛楚方为救赎
 
 这位魔神柱同学，天道佩恩是你的小号吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8220,14 +5217,7 @@ Foreigner克制Berserker(2.0/0.5)，被Alterego克制(0.5/2.0)，与Foreigner互
 ##### 37967#       发表于 2017-12-3 00:40
 
 
-
-
 AE能克这新职介
-
-
-
-
-
 
 
 -----
@@ -8238,21 +5228,13 @@ AE能克这新职介
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  霖星  
 ##### 37969#       发表于 2017-12-3 00:49
 
 
-
-
 打完boss发现周常的猛兽敌人还差一只，请问去哪补比较好
-
-
-
-
-
 
 
 -----
@@ -8261,23 +5243,15 @@ AE能克这新职介
 ##### 37970#       发表于 2017-12-3 00:52
 
 
-
-
 听说loli（？）不吃杰克特攻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 37971#       发表于 2017-12-3 00:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37890878&amp;ptid=1085254" target="_blank">霖星 发表于 2017-12-3 00:49</a>
@@ -8288,27 +5262,15 @@ AE能克这新职介
 或者去巴比伦刷核桃也成
 
 
-
-
-
-
-
 -----
 
 ####  大气水平运动  
 ##### 37972#       发表于 2017-12-3 00:54
 
 
-
-
 怎么无限复活的
 
 哦，多打几次就好了
-
-
-
-
-
 
 
 -----
@@ -8317,14 +5279,7 @@ AE能克这新职介
 ##### 37973#       发表于 2017-12-3 00:54
 
 
-
-
 沙耶你好
-
-
-
-
-
 
 
 -----
@@ -8333,21 +5288,13 @@ AE能克这新职介
 ##### 37974#       发表于 2017-12-3 00:55
 
 
-
-
 醉了，怎么真的coc了
-
-
-
-
-
 
 
 -----
 
 ####  霖星  
 ##### 37975#       发表于 2017-12-3 00:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37890905&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-3 00:54</a>
@@ -8358,25 +5305,13 @@ AE能克这新职介
 谢谢
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 37976#       发表于 2017-12-3 01:35
 
 
-
-
 萝莉的技能组果然又很微妙，看来就是用来打B阶了
-
-
-
-
-
 
 
 -----
@@ -8385,14 +5320,7 @@ AE能克这新职介
 ##### 37977#       发表于 2017-12-3 01:40
 
 
-
-
 一万四千年的梗又被翻出来了，硬盘大王卫星待机中<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8401,14 +5329,7 @@ AE能克这新职介
 ##### 37978#       发表于 2017-12-3 01:41
 
 
-
-
 月之里侧……
-
-
-
-
-
 
 
 -----
@@ -8417,21 +5338,13 @@ AE能克这新职介
 ##### 37979#       发表于 2017-12-3 01:46
 
 
-
-
 又是一个先强化解除再攻击的宝具搞得差点翻车，还好剩下最后一个AE龙娘提前310单挑过了，剧情方面实在是不怎么感冒，应该是四章里我最不喜欢的一章了，觉得白化病小萝莉都比主角阿比盖尔塑造的要好。。。
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 37980#       发表于 2017-12-3 01:47
-
 
 
  本帖最后由 森兰丸 于 2017-12-3 01:49 编辑 
@@ -8442,25 +5355,13 @@ AE能克这新职介
 克苏鲁最后还是只存在于背景里并没有被召唤出来.....还有谁能告诉我这桑松自己去送死有什么意义
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37981#       发表于 2017-12-3 01:49
 
 
-
-
 翻页
-
-
-
-
-
 
 
 -----
@@ -8469,14 +5370,7 @@ AE能克这新职介
 ##### 37982#       发表于 2017-12-3 01:50
 
 
-
-
 再翻页
-
-
-
-
-
 
 
 -----
@@ -8485,16 +5379,9 @@ AE能克这新职介
 ##### 37983#       发表于 2017-12-3 01:55
 
 
-
-
 有点低于期待吧，原本以为会有根本上的叙述诡计……不过这种不拖泥带水的节奏倒是很喜欢（现在看来的确不锁时间不行呢，不然随便跳一跳剧情瞬间就打完了XD）
 
 黑皮三技能果然没有集星啊，不过有出星也凑合能用的感觉……还算半个拐
-
-
-
-
-
 
 
 -----
@@ -8503,17 +5390,10 @@ AE能克这新职介
 ##### 37984#       发表于 2017-12-3 02:02
 
 
-
-
 打完，剧情真没劲……
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -8522,16 +5402,9 @@ AE能克这新职介
 ##### 37985#       发表于 2017-12-3 02:03
 
 
-
  本帖最后由 alucardcz 于 2017-12-3 02:06 编辑 
 
 键刃loli解包出了。。 这技能组。。。降防降攻减气异常状态。。在加个宝具威力up和全体每回合10np
-
-
-
-
-
-
 
 
 -----
@@ -8540,16 +5413,10 @@ AE能克这新职介
 ##### 37986#       发表于 2017-12-3 02:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37890919&amp;ptid=1085254" target="_blank">霖星 发表于 2017-12-3 00:57</a>
 
 谢谢</blockquote>
 竟然还有番外，配置有野兽，我这7AP浪费了
-
-
-
-
-
 
 
 -----
@@ -8558,25 +5425,16 @@ AE能克这新职介
 ##### 37987#       发表于 2017-12-3 02:19
 
 
-
-
 看来一致都认为这次剧情很差....所以到底是谁写的
 
 
 LOLI这技能组如果是蓝卡的话能一战啊
 
 
-
-
-
-
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 37988#       发表于 2017-12-3 02:21
-
-
 
 
 感觉雷声大雨点小……
@@ -8586,16 +5444,10 @@ LOLI这技能组如果是蓝卡的话能一战啊
 ----发送自 [Sony E6883,Android 7.1.1](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37989#       发表于 2017-12-3 02:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891271&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-3 02:19</a>
@@ -8607,17 +5459,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">然后我就是要给你们红卡宝具 惊不惊喜 开不开心
 
 
-
-
-
-
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 37990#       发表于 2017-12-3 02:24
-
-
 
 
 啥全体充电？孔明你有接班人了
@@ -8626,16 +5471,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ----发送自 [Sony E6883,Android 7.1.1](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37991#       发表于 2017-12-3 02:26
-
 
 
  本帖最后由 森兰丸 于 2017-12-3 02:28 编辑 
@@ -8645,16 +5484,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">没事塞个梅林进去一样用....看攻击动画HIT数也挺高的....只要NP率别残废就行
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37992#       发表于 2017-12-3 02:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891297&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-3 02:26</a>
@@ -8663,16 +5496,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">那为什么不用3红打手呢
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 37993#       发表于 2017-12-3 02:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37890681&amp;ptid=1085254" target="_blank">ranapocket 发表于 2017-12-3 00:10</a>
@@ -8681,16 +5508,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 讲讲除了创作年份不同还有什么不同。
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37994#       发表于 2017-12-3 02:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891304&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-3 02:27</a>
@@ -8699,17 +5520,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">因为对面有一堆10-20几万血的3上阶LOLI正好能克全部？(新职阶是克3上阶没错吧
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 37995#       发表于 2017-12-3 02:40
-
-
 
 
 应该就是星空流星吧，完全不像其他人啊。
@@ -8717,16 +5531,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 虽然说低于预期但并不觉得很差，非要说的话跟新宿差不多高于剑豪篇……可以说是雷声大雨点小或者说形式大于实质吧，个人趣味层面完全不讨厌这种，但也能理解显然是会有对这种不满的读者啦
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37996#       发表于 2017-12-3 02:40
-
 
 
  本帖最后由 alucardcz 于 2017-12-3 02:43 编辑 
@@ -8736,16 +5544,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">错了 只克狂  
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 37997#       发表于 2017-12-3 02:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891350&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-3 02:40</a>
@@ -8754,16 +5556,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">..........真的？那有卵用啊
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 37998#       发表于 2017-12-3 02:53
-
 
 
  本帖最后由 alucardcz 于 2017-12-3 02:56 编辑 
@@ -8776,32 +5572,19 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 另外蓝卡0.25% 6hit
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 37999#       发表于 2017-12-3 02:55
 
 
-
-
 看贴吧的月球人大战狂教徒很有趣的
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 38000#       发表于 2017-12-3 02:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891349&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-12-3 02:40</a>
@@ -8812,16 +5595,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我怎么觉得和新宿差好多....黑贞和黑呆换装还有失忆的教授和福尔摩斯差不多全程都在耍宝.....就算剑豪角色塑造也比这章好多了.....这章除了3只小猪和C子叫喀耳刻叔母之外就没给我留下什么印象深刻的场景
 
 
-
-
-
-
-
 -----
 
 ####  101kl  
 ##### 38001#       发表于 2017-12-3 02:58
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我通星空的腐姬的时候就感觉吊着一口气，虽然体验还不错，但并不尽兴，另一个有类似体验的是口三才这位大爷的c+c……
@@ -8829,17 +5606,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 而且我果然不是很能享受这类剧本，我还是喜欢燃泪爽都一气呵成的剧情，所以蘑菇本身写作风格就还挺对我口味的
 
 
-
-
-
-
-
 -----
 
 ####  purdre  
 ##### 38002#       发表于 2017-12-3 03:08
-
-
 
 
 打完了，怎么感觉就是…不完全燃烧。
@@ -8849,17 +5619,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 不过还好外神大本体没真的出现保住了一些节操<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 38003#       发表于 2017-12-3 03:12
-
-
 
 
 真·爱手艺其实是Doctor吧？！
@@ -8869,16 +5632,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 I'm a mad man without the blue box<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 38004#       发表于 2017-12-3 03:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891417&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-3 02:56</a>
@@ -8889,16 +5646,10 @@ I'm a mad man without the blue box<img src="https://static.saraba1st.com/image/s
 阿比盖尔的塑造的确差了点，这章印象最深刻的人物除了拉文娜其实是狠狠耍了主角一把的霍普金斯
 
 
-
-
-
-
-
 -----
 
 ####  耳朵  
 ##### 38005#       发表于 2017-12-3 04:32
-
 
 
  本帖最后由 耳朵 于 2017-12-3 04:36 编辑 
@@ -8908,32 +5659,19 @@ I'm a mad man without the blue box<img src="https://static.saraba1st.com/image/s
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  空虚澄璃色  
 ##### 38006#       发表于 2017-12-3 04:44
 
 
-
-
 剧中剧写的都不错啊，而且感觉想描述古达子（玩家）被无以名状的恐怖压倒了而慢慢接近精神失常状态的感觉吧，不过手撕gay提亚的人形兵器会对这点点小风雨这么大动作吗？所以结论其实是这个小镇是构柱在5w人魔力之上的固有结界？
-
-
-
-
-
 
 
 -----
 
 ####  狂徒lucifer  
 ##### 38007#       发表于 2017-12-3 06:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891271&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-3 02:19</a>
@@ -8948,26 +5686,15 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 作者里只有星空是COC跑团爱好者，相关知识不是爱好者写不出来的
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38008#       发表于 2017-12-3 07:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">四天王有五个人是常识，结果逃掉的魔神柱果然还是有5个
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -8976,14 +5703,7 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ##### 38009#       发表于 2017-12-3 08:13
 
 
-
-
 事实证明想把COC跑团带进fgo环境是个非常蠢的行为，为了制造弱小无力感强行带一堆强度有限的英灵还要xjb搞个受肉，最后也就这么一回事
-
-
-
-
-
 
 
 -----
@@ -8992,24 +5712,16 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ##### 38010#       发表于 2017-12-3 08:33
 
 
-
-
 昨晚打完之后第一反应就是“这tm就结束了？”，在型月设定的角度来说的不满就是引入克苏鲁体系，又一次改变了战斗力系谱，（设定上的）武力膨胀和并没有解决什么实际的问题一对比就让人说不出的难受。
 剧情角度来说1是内容不足，太短了，和之前生放送里吹的剧情最长完全不搭。2是虎头蛇尾。直到昨晚之前我对这剧情还是抱着挺大希望的，至少悬疑部分的气氛很不错，结果解密篇太平铺直述了，连一点trick都看不出来，“我真的是魔神柱”“她真的能召唤克苏鲁”，噼里啪啦揍一顿，这就没了？？无趣，太无趣了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 38011#       发表于 2017-12-3 08:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891317&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2017-12-03 02:30:20</a>
@@ -9019,25 +5731,13 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  heemoon  
 ##### 38012#       发表于 2017-12-3 08:54
 
 
-
-
 突发奇想这次塞勒姆带杀生院去会不会更好些，反过来能把柱子玩弄于鼓掌之中送上绞刑架吧。。。正好职阶也克制boss
-
-
-
-
-
 
 
 -----
@@ -9046,14 +5746,7 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ##### 38013#       发表于 2017-12-3 09:03
 
 
-
-
 要算上西游那谜一般的剧情星空主笔的部分看来也可以当成雷要绕着走了，一路看下来非蘑菇作家群里现在表现得分最好的还是东出……
-
-
-
-
-
 
 
 -----
@@ -9062,24 +5755,16 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ##### 38014#       发表于 2017-12-3 09:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">剧情分节放在营造气氛上还做的不错，但是到最后揭露真相的时候就是虎头蛇尾感觉对不起之前的期待了
 
 
 不说154了还是赶紧出新卡池然后开圣诞活动吧（
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 38015#       发表于 2017-12-3 09:32
-
-
 
 
 先声明，我不了解星空这作者，所以不是护航
@@ -9093,11 +5778,6 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 当然了解这作者的dalao要是表示“他就这水平”，那当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hyuy  
@@ -9106,23 +5786,15 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  風卷豹  
 ##### 38017#       发表于 2017-12-3 09:50
 
 
-
-
 这章前半还行，后面愈发的水。
 一开始还是个蛮正经的跑团（？），后面疯狂打脸，简直就是在说“你这么强干嘛不踢门，让你迁就npc”
 最后的食尸鬼公审居然让我感觉到了搞笑的气氛，完全不懂有啥好崩溃的……
-
-
-
-
-
 
 
 -----
@@ -9131,21 +5803,13 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ##### 38018#       发表于 2017-12-3 09:51
 
 
-
-
 蘑菇：你们又想让我写fgo保证质量又想看魔夜2和月姬R，老子也很为难啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  habita  
 ##### 38019#       发表于 2017-12-3 09:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37892088&amp;ptid=1085254" target="_blank">白金口袋 发表于 2017-12-3 09:32</a>
@@ -9160,17 +5824,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 外力因素肯定有，但最重要的必然是星空自己完不成，摸鱼能力比菌哥哥不知道高到哪里去了
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38020#       发表于 2017-12-3 10:33
-
-
 
 
 话说幼女没实装的话，那二期卡池不会有了吧，总不至于一个四星在那里UP吧……
@@ -9180,25 +5837,13 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 38021#       发表于 2017-12-3 10:33
 
 
-
-
 阿比加入的话，你协会封印穿越就没屁用了
-
-
-
-
-
 
 
 -----
@@ -9207,15 +5852,9 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ##### 38022#       发表于 2017-12-3 10:38
 
 
-
 <blockquote>heemoon 发表于 2017-12-3 01:46
 又是一个先强化解除再攻击的宝具搞得差点翻车，还好剩下最后一个AE龙娘提前310单挑过了，剧情方面实在是不 ...</blockquote>
 村正莉普一路3红平A，这是到目前为止最弱的章节Boss了
-
-
-
-
-
 
 
 -----
@@ -9224,21 +5863,13 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ##### 38023#       发表于 2017-12-3 10:40
 
 
-
-
 示巴预言穿越沙漠就是绿洲，看来协会要来喂屎了
-
-
-
-
-
 
 
 -----
 
 ####  Kokichi  
 ##### 38024#       发表于 2017-12-3 10:47
-
 
 
 <blockquote>白金口袋 发表于 2017-12-3 09:32
@@ -9252,17 +5883,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 这次的锅他本人的写作速度肯定要背一部分，但是1.5和2正式立项是什么时候我不太清楚。时间不够的话，星空肯定写不好。退骗子社之前的七桥就是明证。
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 38025#       发表于 2017-12-3 10:48
-
-
 
 
 阿比绘师是黑星红白吧
@@ -9271,32 +5895,19 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 不要慌，梅林这种理论上不能在现代召唤的不也进卡池了吗
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 38026#       发表于 2017-12-3 11:45
 
 
-
-
 打完了，这一次就打了AE龙娘值班莉莉丝的脸，最后那一战完全就是莉莉丝的个人秀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 38027#       发表于 2017-12-3 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891724&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-3 07:11</a>
@@ -9308,16 +5919,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 估计就是明治维新那条吧。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38028#       发表于 2017-12-3 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37893006&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-12-3 11:48</a>
@@ -9326,26 +5931,15 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 剧情里说了啊，逃出去半路挂了的，就是明治维新里那尸体（
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 38029#       发表于 2017-12-3 12:15
 
 
-
  本帖最后由 alaya 于 2017-12-3 12:26 编辑 
 
 机龙娘带一个嫖一个，一套宝具三连一管血安定得很啊，当然我没有莉莉丝
-
-
-
-
-
 
 
 -----
@@ -9356,12 +5950,10 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  霖星  
 ##### 38031#       发表于 2017-12-3 12:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37892982&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-12-3 11:45</a>
@@ -9370,25 +5962,13 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 相反，我用AE龙娘，上个梅林buff，宝具一条血，红卡暴击+EX又是一条血
 
 
-
-
-
-
-
 -----
 
 ####  heemoon  
 ##### 38032#       发表于 2017-12-3 12:46
 
 
-
-
 那我再补上一刀吧，助战一开始放莉莉丝没人嫖，换成AE龙娘后瞬间300py点数，在梅林大环境下这简直是必然的啊。。。
-
-
-
-
-
 
 
 -----
@@ -9397,14 +5977,7 @@ LOLI这技能组如果是蓝卡的话能一战啊 ...</blockquote>
 ##### 38033#       发表于 2017-12-3 12:48
 
 
-
-
 emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9415,21 +5988,13 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  yueyut  
 ##### 38035#       发表于 2017-12-3 13:03
 
 
-
-
 萝莉几时出？抽爆！抽爆！抽爆！
-
-
-
-
-
 
 
 -----
@@ -9438,16 +6003,10 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38036#       发表于 2017-12-3 13:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891223&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-3 02:04</a>
 
 竟然还有番外，配置有野兽，我这7AP浪费了</blockquote>
 好像要通教堂的free才出，无所谓了，反正我清free没那么积极
-
-
-
-
-
 
 
 -----
@@ -9456,13 +6015,7 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38037#       发表于 2017-12-3 13:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这1.5还是挺失望的 152直接论外不谈了. 153主要看的爽评价相对高 综合还是151最好  154 0分 给你1分我都怕你骄傲
-
-
-
-
-
 
 
 -----
@@ -9471,14 +6024,7 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38038#       发表于 2017-12-3 13:29
 
 
-
-
 话说有谁听出来阿比的cv是谁了么
-
-
-
-
-
 
 
 -----
@@ -9487,16 +6033,9 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38039#       发表于 2017-12-3 13:41
 
 
-
-
 星空这个第四部还是有些想法的，结尾可惜了。整个1.5里我认为可以排第二，期待他以后的剧本
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9505,16 +6044,9 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38040#       发表于 2017-12-3 13:45
 
 
-
-
 没有叙述性诡计，那分章的意义是…？
 
 你月养了那么多作家群，结果还是除了蘑菇没一个能打的，星空めてお都凉了，着实让人担忧啊…
-
-
-
-
-
 
 
 -----
@@ -9523,14 +6055,7 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38041#       发表于 2017-12-3 15:49
 
 
-
-
 我这个skip党，就觉得1.5.3那几场对决之前和之后的语音特别有气势<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其他都没感觉
-
-
-
-
-
 
 
 -----
@@ -9539,14 +6064,7 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38042#       发表于 2017-12-3 15:50
 
 
-
-
 接下来要一路长草到圣诞，好无聊（
-
-
-
-
-
 
 
 -----
@@ -9555,21 +6073,13 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38043#       发表于 2017-12-3 16:11
 
 
-
-
 这次故事就像克系神话宅约了只玩惯D&amp;D的朋友来跑CoC团，但对方一点知识都没有，全部创出了干架的硬角色，又不会被神话知识误导，靠跑D&amp;D团的经验一力降十会，硬是打出good end
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 38044#       发表于 2017-12-3 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37891904&amp;ptid=1085254" target="_blank">ranapocket 发表于 2017-12-3 08:47</a>
@@ -9581,16 +6091,10 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 退几步说，亚瑟王传奇，查理曼十二勇士这些按照作者的喜好或吹或黑的玩意和你说的娱乐作品，到底有啥区别？弗兰肯斯坦呢？双面博士呢？
 
 
-
-
-
-
-
 -----
 
 ####  purdre  
 ##### 38045#       发表于 2017-12-3 16:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37894658&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-3 16:11</a>
@@ -9599,16 +6103,10 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 你这么一说我又想起了跳跃团，神tm直接ge了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不垃圾屌丝  
 ##### 38046#       发表于 2017-12-3 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37894672&amp;ptid=1085254" target="_blank">purdre 发表于 2017-12-03 16:14:21</a>
@@ -9617,27 +6115,15 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  缘一  
 ##### 38047#       发表于 2017-12-3 16:50
 
 
-
-
 154对我来说最大的收获就是小萝莉的宝具语音真好听<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 整个1.5相关，果然还是最喜欢151，自己打完一遍才清楚153也就是中规中矩的燃，剧情发展就是七剑豪全打一遍最后打幕后黑手，怎样发展都猜到了……151就没这毛病。当然对于人物的刻画这两章差不多。152就是一坨屎，除了社保的黑皮外毫无是处，154的黑皮就没有那种社保感，1001真好看<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9646,14 +6132,7 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38048#       发表于 2017-12-3 16:54
 
 
-
-
 这次打完公会堂的free会有额外的西游记章节，看来西游活动是星空写的没有问题。
-
-
-
-
-
 
 
 -----
@@ -9662,23 +6141,15 @@ emmmm，看来我是个异类了<img src="https://static.saraba1st.com/image/smi
 ##### 38049#       发表于 2017-12-3 17:08
 
 
-
-
 FGO1:菌哥哥还是你菌哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 FGO1.5+CCC：菌哥哥还是你菌哥哥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ranapocket  
 ##### 38050#       发表于 2017-12-3 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37894663&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2017-12-03 16:12:29</a>
@@ -9690,27 +6161,15 @@ FGO1.5+CCC：菌哥哥还是你菌哥哥<img src="https://static.saraba1st.com/i
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 38051#       发表于 2017-12-3 17:19
 
 
-
-
 讲真我觉得真爱好者不该问我这种外行人这问题的，你们自己一套吹的高大上什么渺小的人类了就别把我们普通人类的神话放一起了谢谢，自己玩自己的去，塞私货没问题啊，你这私货写的好看吗？前面有人提fz，我知道老虚喜欢克苏鲁那套，fz里的克苏鲁元素影响整体剧情很影响观感了吗？没有吧
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9719,14 +6178,7 @@ FGO1.5+CCC：菌哥哥还是你菌哥哥<img src="https://static.saraba1st.com/i
 ##### 38052#       发表于 2017-12-3 17:19
 
 
-
-
 虽然没有打1.5.3，但是也大概知道内容，个人评价是1&gt;4&gt;3&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;&gt;2，虽然4有点虎头蛇尾，但是不得不说前期吊胃口吊得可以，3虽然描写的不错，但是有点太王道，没有什么太多的波澜。
-
-
-
-
-
 
 
 -----
@@ -9735,14 +6187,7 @@ FGO1.5+CCC：菌哥哥还是你菌哥哥<img src="https://static.saraba1st.com/i
 ##### 38053#       发表于 2017-12-3 18:13
 
 
-
-
 我的话3124，153演出效果是真的好，剧情过关。151黑贞黑呆私服我他妈射爆，剧情也不赖。152都说最差但我现在想不起原因了。。。我个人有很大一部分是因为1001的人设。154噱头搞得很足，还被期待承担过渡到2部的作用，结果完全萎了导致刚打通后观感极差。话说4章的看板只有武藏是友方，其他5星全都站到过对面。。。
-
-
-
-
-
 
 
 -----
@@ -9753,12 +6198,10 @@ FGO1.5+CCC：菌哥哥还是你菌哥哥<img src="https://static.saraba1st.com/i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gunbird  
 ##### 38055#       发表于 2017-12-3 18:32
-
 
 
  本帖最后由 gunbird 于 2017-12-3 18:57 编辑 
@@ -9775,16 +6218,10 @@ FGO1.5+CCC：菌哥哥还是你菌哥哥<img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">1.54实际上的问题就在于玩噱头让人觉得真的是要走解谜路线了，然后又强行收线回归踢门团本色。期待全落空，自然让玩家觉得别扭。就当是外传，扩展世界观好了，而且看卡特的话大概以后故事也最多卡在神性生物串场骗人课金的水平了(就怕不是
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 38056#       发表于 2017-12-3 19:30
-
 
 
  本帖最后由 newfaceryo 于 2017-12-3 19:31 编辑 
@@ -9795,7 +6232,6 @@ FGO1.5+CCC：菌哥哥还是你菌哥哥<img src="https://static.saraba1st.com/i
 
   --  ...</blockquote>
 说我岔开话题，你别再这里搞笑了。仔细看看我第一句里面说了些什么包不包括我上面说的那两句。
-
 
 
 我想表达的意思很简单，你一直不明白我就挑开说了，
@@ -9814,17 +6250,10 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 到现在一本也没有看完
 
 
-
-
-
-
-
-
 -----
 
 ####  nxmonitor  
 ##### 38057#       发表于 2017-12-3 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37894693&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2017-12-3 16:19</a>
@@ -9836,32 +6265,19 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 但是联系迦勒底当时的局面不行啊，这次灵子转移就是最后一次了，之后还要穿越时空不让萝莉觉醒解决不了的……
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 38058#       发表于 2017-12-3 19:33
 
 
-
-
 通关了，第一感想是如果不是我的桑松满破了我肯定请他去商店
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 38059#       发表于 2017-12-3 19:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37895823&amp;ptid=1085254" target="_blank">nxmonitor 发表于 2017-12-3 19:30</a>
@@ -9873,17 +6289,10 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 谁鸟这些废物，咕哒自己就有时空门，还不算单独显现能力<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不垃圾屌丝  
 ##### 38060#       发表于 2017-12-3 20:13
-
-
 
 
 对了，这次fq有地方刷鸟毛了，神话生物怕是要绝种
@@ -9891,16 +6300,10 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38061#       发表于 2017-12-3 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37896119&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2017-12-3 20:13</a>
@@ -9912,16 +6315,10 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 鸟毛152就能刷了啊，具体谁更优还得等效率剧场
 
 
-
-
-
-
-
 -----
 
 ####  缘一  
 ##### 38062#       发表于 2017-12-3 21:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37895343&amp;ptid=1085254" target="_blank">ceng1 发表于 2017-12-3 18:18</a>
@@ -9944,26 +6341,14 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 来自b站空耳，不一定正确，而且我也看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38063#       发表于 2017-12-3 21:16
 
 
-
-
 真是绝了,前面铺垫那么多结果我裤子都脱了就给我看这个..假装要玩解密,最后还不是要一脚把门踢开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 再加上说话一股子智力不够用的味道完全不明白硬塞进来到底有毛用还他妈硬搞成个女的的丑货那坨和自说自话就撇开主人的桑松..<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9972,21 +6357,13 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 ##### 38064#       发表于 2017-12-3 21:44
 
 
-
-
 前面气氛渲染我给10分！后面的...感觉就是明天截稿但现在才写了2/3，没时间渲染气氛也没时间搞叙述诡计，平铺直叙尽量多埋几个坑就交上去吧……不过，虽然最后确实不怎么样，但也算不上烂，只是前面把胃口吊太高而已。总之想说的就一句：血书跪求实装拉维尼亚
-
-
-
-
-
 
 
 -----
 
 ####  cwj101010  
 ##### 38065#       发表于 2017-12-3 22:03
-
 
 
  本帖最后由 cwj101010 于 2017-12-3 22:05 编辑 
@@ -9999,26 +6376,14 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 顺便我不觉得这章是抄袭，因为直接抄袭的话完全可以避免大多数低级的基础常识错误。
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38066#       发表于 2017-12-3 22:05
 
 
-
-
 打完1.5.4引继到了新手机上,打开一看,这大黑边真是绝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="http://wx4.sinaimg.cn/large/9fdd319fgy1fm3xf0mzzpj21kw0qadue.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10027,16 +6392,10 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 ##### 38067#       发表于 2017-12-3 22:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37894658&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-3 16:11</a>
 
 这次故事就像克系神话宅约了只玩惯D&amp;D的朋友来跑CoC团，但对方一点知识都没有，全部创出了干架的硬角色，又 ...</blockquote>
 就尼玛开了个d20 coc团，结果硬被pc玩成了d20 modern，惨的一笔
-
-
-
-
-
 
 
 -----
@@ -10045,23 +6404,16 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 ##### 38068#       发表于 2017-12-3 22:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37896890&amp;ptid=1085254" target="_blank">白夜羽 发表于 2017-12-3 22:05</a>
 
 打完1.5.4引继到了新手机上,打开一看,这大黑边真是绝了</blockquote>
 果X么。。。。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38069#       发表于 2017-12-3 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37896890&amp;ptid=1085254" target="_blank">白夜羽 发表于 2017-12-3 22:05</a>
@@ -10073,31 +6425,19 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 也不知道啥技术力。。到现在连ipad都没有完全适配 只是把黑边变成了蓝条 。。
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 38070#       发表于 2017-12-3 22:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37895821&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2017-12-03 19:30:42</a>
 说我岔开话题，你别再这里搞笑了。仔细看看我第一句里面说了些什么包不包括我上面说的那两句。
-
 
 
 我想表 ...</blockquote>神话哪里是普通民间创造，刚就说了对当时的人来说是信仰，影响力深入文化的方方面面，就算现在你不信神了这些节日祭典语言习俗等等还保留着。你就是把神话当成故事看才能觉得和现代个人编写的体系等同。克苏鲁神话本质就是娱乐产物，克苏鲁神话里的内容对人们现实生活造成实际影响了吗，哦，我倒是挺想知道每年能有多少粉丝因为信里面的内容精神失常呢。
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -10106,16 +6446,9 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 ##### 38071#       发表于 2017-12-3 22:36
 
 
-
-
 番外篇西游记挺好玩的，应该也是前期写的吧？结果因为太长被割到番外篇去
 
 感觉确实是到后期要截稿时间不够就开始用脚写了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10124,24 +6457,15 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 ##### 38072#       发表于 2017-12-3 22:39
 
 
-
-
 这贴我一开始就说是个人不喜欢作者夹那么多私货和克苏鲁真出不想玩，非要有楼管跳出来ky浓度上升（是哦，还有个批fgo卡面的不如gbf的，人家又没说错，你游下限那么多水平参差不齐的，gbf稳定多了），还来个人问是不是神话都懂才，笑死，跟我回的内容有关系吗？本来就是很私人的问题，一开始就强调过，我有没有打算继续玩不需要楼上某几位操心，先出来酸人的是你们，真恶心
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  红丽  
 ##### 38073#       发表于 2017-12-3 22:42
-
-
 
 
 這次好簡單⋯⋯我好幾次都帶了狂結果也過了，最噁心的是殺階魔神豬，完全不知道，帶了2光炮痛苦的一比
@@ -10151,26 +6475,15 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38074#       发表于 2017-12-3 22:48
 
 
-
 <blockquote>ranapocket 发表于 2017-12-3 22:39
 这贴我一开始就说是个人不喜欢作者夹那么多私货和克苏鲁真出不想玩，非要有楼管跳出来ky浓度上升（是哦，还 ...</blockquote>
 喷了，原来碧蓝航线是gbf，每次都能学到新知识呢
-
-
-
-
-
 
 
 -----
@@ -10179,16 +6492,10 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 ##### 38075#       发表于 2017-12-3 22:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37897170&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-3 22:48</a>
 
 喷了，原来碧蓝航线是gbf，每次都能学到新知识呢</blockquote>
 等等，那人还真没说到底是碧蓝航线还是碧蓝幻想（
-
-
-
-
-
 
 
 -----
@@ -10197,21 +6504,13 @@ fate系列本来就从各种元素之中吸取养分诞生的，那么用到克�
 ##### 38076#       发表于 2017-12-3 23:00
 
 
-
-
 为什么还不开萝莉卡池，萌新缺绿方块啊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 38077#       发表于 2017-12-3 23:04
-
 
 
  本帖最后由 newfaceryo 于 2017-12-3 23:09 编辑 
@@ -10230,18 +6529,10 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 到此为止吧，不会再回这个问题了。
 
 
-
-
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38078#       发表于 2017-12-3 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37897228&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-3 22:56</a>
@@ -10253,17 +6544,10 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 新周常是开狩猎4的征兆么
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38079#       发表于 2017-12-3 23:22
-
-
 
 
 发现能抽喀尔刻了，一发十连彩圈小太阳，第二发十连喀尔刻雪山樱<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
@@ -10271,16 +6555,10 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 之前小太阳单UP追二宝沉船算是找回来了
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38080#       发表于 2017-12-3 23:54
-
 
 
 <blockquote>引用第38078楼dante888于2017-12-03 23:07发表的  :
@@ -10292,33 +6570,19 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  purdre  
 ##### 38081#       发表于 2017-12-4 07:45
 
 
-
-
 我看到个说法为啥硬盘强狂弱alterego，是因为比狂气的话硬盘能胜过berserker但是却输给倒金字塔姬路城<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  花枝鱿鱼面  
 ##### 38082#       发表于 2017-12-4 08:05
-
-
 
 
 说起来1.54在四月底，ccc活动在五月来着……
@@ -10328,16 +6592,10 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 ----发送自 [Sony E6883,Android 7.1.1](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38083#       发表于 2017-12-4 08:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37898513&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2017-12-4 08:05</a>
@@ -10348,25 +6606,13 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">如果CCC和154调换一下顺序的话，那么154里桀派的发言还算有点逼格.现在嘛.....桀派你还是退群吧（
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 38084#       发表于 2017-12-4 09:12
 
 
-
-
 反正克戏教徒大多键盘侠，刚好TM少了能杀但由不会得罪人的神，所以章鱼众最合适。不爽就去Allah Akbar TM.
-
-
-
-
-
 
 
 -----
@@ -10375,14 +6621,7 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 ##### 38085#       发表于 2017-12-4 09:54
 
 
-
-
 抽喀尔克，结果杰克3宝了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10391,13 +6630,7 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 ##### 38086#       发表于 2017-12-4 13:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽姑妈 几个呼符下去 突然金卡 caster！  C狐？？？
-
-
-
-
-
 
 
 -----
@@ -10406,14 +6639,7 @@ fate这个系列引入一个元素本来就并不是因为有人信仰，这个�
 ##### 38087#       发表于 2017-12-4 15:08
 
 
-
-
 yc什么时候活动送个满宝5星啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10422,16 +6648,10 @@ yc什么时候活动送个满宝5星啊<img src="https://static.saraba1st.com/im
 ##### 38088#       发表于 2017-12-4 15:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37902235&amp;ptid=1085254" target="_blank">rooarr 发表于 2017-12-4 15:08</a>
 
 yc什么时候活动送个满宝5星啊</blockquote>
 等到关服都等不到的
-
-
-
-
-
 
 
 -----
@@ -10440,16 +6660,10 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38089#       发表于 2017-12-4 16:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37902376&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-4 15:22</a>
 
 等到关服都等不到的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我 盾娘 第2部 一定 5星 满宝
-
-
-
-
-
 
 
 -----
@@ -10458,15 +6672,9 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38090#       发表于 2017-12-4 16:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37902376&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-4 15:22</a>
 等到关服都等不到的</blockquote>
 活动送这么多满宝4星，盾娘作为主角5星满宝不过分，我给自己带盐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10475,14 +6683,7 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38091#       发表于 2017-12-4 16:52
 
 
-
-
 60连没有C姑，届不到届不到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10491,15 +6692,9 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38092#       发表于 2017-12-4 17:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37902376&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-4 15:22</a>
 等到关服都等不到的</blockquote>
 我一定要有这个梦想<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10508,16 +6703,10 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38093#       发表于 2017-12-4 17:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37903232&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-4 16:52</a>
 
 60连没有C姑，届不到届不到</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">60届不到就120！120还届不到就240！ 不要怕！
-
-
-
-
-
 
 
 -----
@@ -10526,14 +6715,7 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38094#       发表于 2017-12-4 17:52
 
 
-
-
 说到ae就想到杀生院，什么时候再up，我想抽满宝
-
-
-
-
-
 
 
 -----
@@ -10542,23 +6724,15 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38095#       发表于 2017-12-4 17:57
 
 
-
-
 现在微博和p站好多沉迷脑交的御主……
 
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
 
 ####  大气水平运动  
 ##### 38096#       发表于 2017-12-4 18:06
-
 
 
  本帖最后由 大气水平运动 于 2017-12-4 18:09 编辑 
@@ -10568,16 +6742,10 @@ yc什么时候活动送个满宝5星啊</blockquote>
 碧蓝航线没听说过
 
 
-
-
-
-
-
 -----
 
 ####  绫魂h  
 ##### 38097#       发表于 2017-12-4 18:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37902235&amp;ptid=1085254" target="_blank">rooarr 发表于 2017-12-4 15:08</a>
@@ -10586,16 +6754,10 @@ yc什么时候活动送个满宝5星啊</blockquote>
 要是能像任选四星一样，来个任选常驻五星就满足了，满宝不奢求了
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38098#       发表于 2017-12-4 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37903962&amp;ptid=1085254" target="_blank">大气水平运动 发表于 2017-12-4 18:06</a>
@@ -10607,16 +6769,10 @@ yc什么时候活动送个满宝5星啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哟呵，刚还是你游不至于到舰B的地步呢，这会儿已经变成没听说过了，这记忆丧失的快的
 
 
-
-
-
-
-
 -----
 
 ####  大气水平运动  
 ##### 38099#       发表于 2017-12-4 18:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37904239&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-4 18:46</a>
@@ -10625,16 +6781,10 @@ yc什么时候活动送个满宝5星啊</blockquote>
 讽刺都看不懂？这句话的意思是“舰B是什么鬼玩意没听说过”
 
 
-
-
-
-
-
 -----
 
 ####  大气水平运动  
 ##### 38100#       发表于 2017-12-4 18:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37904239&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-4 18:46</a>
@@ -10643,16 +6793,10 @@ yc什么时候活动送个满宝5星啊</blockquote>
 还有，舰B什么时候配得上流水线的评价了
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38101#       发表于 2017-12-4 18:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37904267&amp;ptid=1085254" target="_blank">大气水平运动 发表于 2017-12-4 18:51</a>
@@ -10663,24 +6807,13 @@ yc什么时候活动送个满宝5星啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你自个儿慢慢玩，反正我是再也看不到你了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38102#       发表于 2017-12-4 18:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">机智翻页
-
-
-
-
-
 
 
 -----
@@ -10689,14 +6822,7 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38103#       发表于 2017-12-4 19:10
 
 
-
-
 小萝莉模型的胖次居然是透明的……有必要做到这种程度嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">……只是平添了麻烦吧
-
-
-
-
-
 
 
 -----
@@ -10705,21 +6831,13 @@ yc什么时候活动送个满宝5星啊</blockquote>
 ##### 38104#       发表于 2017-12-4 19:17
 
 
-
-
 被喀尔刻满破卡面骗氪了，这深V啊。。。10护肤下去1南丁1喀尔刻，等医生老婆了
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 38105#       发表于 2017-12-4 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37904399&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-12-4 19:10</a>
@@ -10731,26 +6849,15 @@ boss灵基形态和加入我方是不同的
 你看杀生院和戈尔工<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38106#       发表于 2017-12-4 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37904464&amp;ptid=1085254" target="_blank">heemoon 发表于 2017-12-4 19:17</a>
 被喀尔刻满破卡面骗氪了，这深V啊。。。10护肤下去1南丁1喀尔刻，等医生老婆了 ...</blockquote>
 出货的算什么骗课！<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10759,23 +6866,16 @@ boss灵基形态和加入我方是不同的
 ##### 38107#       发表于 2017-12-4 20:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37904464&amp;ptid=1085254" target="_blank">heemoon 发表于 2017-12-4 19:17</a>
 
 被喀尔刻满破卡面骗氪了，这深V啊。。。10护肤下去1南丁1喀尔刻，等医生老婆了 ...</blockquote>
 10呼符……这不没课吗！
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 38108#       发表于 2017-12-4 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37904876&amp;ptid=1085254" target="_blank">シャル 发表于 2017-12-4 20:27</a>
@@ -10789,16 +6889,10 @@ boss灵基形态和加入我方是不同的
 嘛到时候再说吧，至少那几根完成度极低的触手给改好看点……
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 38109#       发表于 2017-12-4 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37904913&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-04 20:34:57</a>
@@ -10807,16 +6901,10 @@ boss灵基形态和加入我方是不同的
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 38110#       发表于 2017-12-5 06:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37897170&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-03 22:48:14</a>
@@ -10825,17 +6913,10 @@ boss灵基形态和加入我方是不同的
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 38111#       发表于 2017-12-5 07:11
-
-
 
 
 某楼管追着我不放真是无语了，你怎么看待的真的和我没关系，我一开始也就没打算说服谁，这些是我自己的想法，也别把你那套套用在我身上一定要我认同你的想法，谢谢。
@@ -10845,16 +6926,10 @@ boss灵基形态和加入我方是不同的
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 38112#       发表于 2017-12-5 08:29
-
 
 
  本帖最后由 alaya 于 2017-12-5 08:42 编辑 
@@ -10865,16 +6940,10 @@ boss灵基形态和加入我方是不同的
 不过我很好奇美服打算怎么给她穿衣服，还是打算就这样然后根据抽卡记录挨个查水表<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 38113#       发表于 2017-12-5 08:47
-
 
 
  本帖最后由 圈量子 于 2017-12-5 08:49 编辑 
@@ -10887,25 +6956,13 @@ boss灵基形态和加入我方是不同的
 杰克目前倒是没被和谐，不过我两个号的好友里都有选披风遮住模型的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yueyut  
 ##### 38114#       发表于 2017-12-5 09:19
 
 
-
-
 没有阿比我要死了，今天下午能出消息不？
-
-
-
-
-
 
 
 -----
@@ -10914,16 +6971,10 @@ boss灵基形态和加入我方是不同的
 ##### 38115#       发表于 2017-12-5 10:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37907239&amp;ptid=1085254" target="_blank">圈量子 发表于 2017-12-5 08:47</a>
 
 杰克目前倒是没被和谐，不过我两个号的好友里都有选披风遮住模型的 ...</blockquote>
 我也更喜欢一破，单纯觉得整体设计明明是偏帅气的但是下半身的内裤不够帅不协调，还是一破的披风帅。黑贞我也一样，后面长发披肩太没意思了，还是短发毛领披风帅气。要说脱了之后造型好看的这次的脑洞就不错，够帅气整体也协调。
-
-
-
-
-
 
 
 -----
@@ -10932,13 +6983,7 @@ boss灵基形态和加入我方是不同的
 ##### 38116#       发表于 2017-12-5 10:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天怕是不会有消息，等明天王哈池子结束了怎么地也会有一个池子补充的，反正不是塞勒姆二期就是FA二期，loli和女帝奶不死的（
-
-
-
-
-
 
 
 -----
@@ -10947,21 +6992,13 @@ boss灵基形态和加入我方是不同的
 ##### 38117#       发表于 2017-12-5 10:19
 
 
-
-
 新卡池一般没预告的，到了周三傍晚自然会开的......
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 38118#       发表于 2017-12-5 10:22
-
 
 
 <blockquote>引用第38112楼alaya于2017-12-04 14:29发表的  :
@@ -10973,25 +7010,13 @@ boss灵基形态和加入我方是不同的
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  wang1309495  
 ##### 38119#       发表于 2017-12-5 10:27
 
 
-
-
 圣诞快到了，卫星也该下来个了吧？
-
-
-
-
-
 
 
 -----
@@ -11000,16 +7025,10 @@ boss灵基形态和加入我方是不同的
 ##### 38120#       发表于 2017-12-5 10:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37906932&amp;ptid=1085254" target="_blank">ranapocket 发表于 2017-12-5 07:11</a>
 
 某楼管追着我不放真是无语了，你怎么看待的真的和我没关系，我一开始也就没打算说服谁，这些是我自己的想法 ...</blockquote>
 那你直播删号啊，给大家看你把所有五星都喂掉了啊
-
-
-
-
-
 
 
 -----
@@ -11018,15 +7037,9 @@ boss灵基形态和加入我方是不同的
 ##### 38121#       发表于 2017-12-5 10:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37907817&amp;ptid=1085254" target="_blank">purdre 发表于 2017-12-5 10:01</a>
 我也更喜欢一破，单纯觉得整体设计明明是偏帅气的但是下半身的内裤不够帅不协调，还是一破的披风帅。黑贞 ...</blockquote>
 我的黑贞也是选短发模型，因为武内的那个长发画得太不自然了像是硬生生接上去的一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11035,16 +7048,10 @@ boss灵基形态和加入我方是不同的
 ##### 38122#       发表于 2017-12-5 10:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37908041&amp;ptid=1085254" target="_blank">wang1309495 发表于 2017-12-5 10:27</a>
 
 圣诞快到了，卫星也该下来个了吧？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">据说本来是预定艾蕾酱落地的....根据埃及魔术之前透露的，今年不是alter了，可以猜一下会是什么属性的卫星落地
-
-
-
-
-
 
 
 -----
@@ -11053,14 +7060,7 @@ boss灵基形态和加入我方是不同的
 ##### 38123#       发表于 2017-12-5 11:42
 
 
-
-
 所以说大家为什么非要吵这种无聊的事情嘛，一切来愉快的艹黑皮女王和锁孔萝莉不好吗
-
-
-
-
-
 
 
 -----
@@ -11069,15 +7069,9 @@ boss灵基形态和加入我方是不同的
 ##### 38124#       发表于 2017-12-5 11:50
 
 
-
 <blockquote>蕾丝 发表于 2017-12-5 11:42
 所以说大家为什么非要吵这种无聊的事情嘛，一切来愉快的艹黑皮女王和锁孔萝莉不好吗 ...</blockquote>
 那也要盐川开池子啊，奶一口明天开狩猎，尼禄祭刷的500多锁链竟然全部吃完了，没有凶骨锁链毒针龙牙刷我要死了
-
-
-
-
-
 
 
 -----
@@ -11086,17 +7080,10 @@ boss灵基形态和加入我方是不同的
 ##### 38125#       发表于 2017-12-5 11:57
 
 
-
-
 幼女毫无兴趣，给我女王就好（
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -11105,14 +7092,7 @@ boss灵基形态和加入我方是不同的
 ##### 38126#       发表于 2017-12-5 12:01
 
 
-
-
 明天要是开新池子顺带开个狩猎倒是真不错，好几个月没开过了，凶骨龙牙髓液什么的太缺了
-
-
-
-
-
 
 
 -----
@@ -11121,14 +7101,7 @@ boss灵基形态和加入我方是不同的
 ##### 38127#       发表于 2017-12-5 12:26
 
 
-
-
 邮局港剧虽然我一直黑1001，但都是黑皮论满破图战斗力1001还是要比示巴女王不知道高到哪里去了，当然1001我没抽，这次示巴是肯定要抽的。。。
-
-
-
-
-
 
 
 -----
@@ -11137,14 +7110,7 @@ boss灵基形态和加入我方是不同的
 ##### 38128#       发表于 2017-12-5 13:28
 
 
-
-
 期待下午搞个大新闻
-
-
-
-
-
 
 
 -----
@@ -11153,13 +7119,7 @@ boss灵基形态和加入我方是不同的
 ##### 38129#       发表于 2017-12-5 13:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">回顾一下今年的剧情还好有个CCC活动，不然你狗2017还真是 丢人退群吧.jpg
-
-
-
-
-
 
 
 -----
@@ -11168,16 +7128,10 @@ boss灵基形态和加入我方是不同的
 ##### 38130#       发表于 2017-12-5 14:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37910029&amp;ptid=1085254" target="_blank">warachia 发表于 2017-12-5 13:49</a>
 
 回顾一下今年的剧情还好有个CCC活动，不然你狗2017还真是 丢人退群吧.jpg ...</blockquote>
 回头看看15年，当时你们的要求多低啊...
-
-
-
-
-
 
 
 -----
@@ -11186,14 +7140,7 @@ boss灵基形态和加入我方是不同的
 ##### 38131#       发表于 2017-12-5 16:11
 
 
-
-
 啊，C姑届到了，可能是我萌豚力足够了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11202,14 +7149,7 @@ boss灵基形态和加入我方是不同的
 ##### 38132#       发表于 2017-12-5 16:12
 
 
-
-
 翻起
-
-
-
-
-
 
 
 -----
@@ -11218,13 +7158,7 @@ boss灵基形态和加入我方是不同的
 ##### 38133#       发表于 2017-12-5 16:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">今年还没有新的五星枪，艾蕾酱圣诞实装不可避（
-
-
-
-
-
 
 
 -----
@@ -11233,15 +7167,9 @@ boss灵基形态和加入我方是不同的
 ##### 38134#       发表于 2017-12-5 16:40
 
 
-
 <blockquote>阿提拉 发表于 2017-12-5 16:37
 今年还没有新的五星枪，艾蕾酱圣诞实装不可避（</blockquote>
 万一艾蕾酱不是枪阶怎么办
-
-
-
-
-
 
 
 -----
@@ -11250,14 +7178,7 @@ boss灵基形态和加入我方是不同的
 ##### 38135#       发表于 2017-12-5 16:43
 
 
-
-
 我一直想知道艾蕾是枪阶这消息是从哪来的...
-
-
-
-
-
 
 
 -----
@@ -11268,12 +7189,10 @@ boss灵基形态和加入我方是不同的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  eyeego  
 ##### 38137#       发表于 2017-12-5 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37911821&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-5 16:43</a>
@@ -11282,25 +7201,13 @@ boss灵基形态和加入我方是不同的
 虽然你游都已经出现拿着剑的枪兵了 武器根本做不得数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 38138#       发表于 2017-12-5 16:52
 
 
-
-
 绿拐的女帝今年会出吧
-
-
-
-
-
 
 
 -----
@@ -11309,23 +7216,16 @@ boss灵基形态和加入我方是不同的
 ##### 38139#       发表于 2017-12-5 16:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37911911&amp;ptid=1085254" target="_blank">hellgate11 发表于 2017-12-5 16:50</a>
 
 手里拿了杆枪吧</blockquote>
 黑狗：<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 38140#       发表于 2017-12-5 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37911919&amp;ptid=1085254" target="_blank">eyeego 发表于 2017-12-5 16:50</a>
@@ -11336,16 +7236,10 @@ boss灵基形态和加入我方是不同的
 还有拿着枪（薙刀）的弓兵呢。。。
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 38141#       发表于 2017-12-5 17:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37911821&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-05 16:43:20</a>
@@ -11354,32 +7248,19 @@ boss灵基形态和加入我方是不同的
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38142#       发表于 2017-12-5 17:09
 
 
-
-
 看来今天又是无事发生，等看明天有没有大新闻了
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 38143#       发表于 2017-12-5 17:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37912053&amp;ptid=1085254" target="_blank">卡蓮 发表于 2017-12-5 17:01</a>
@@ -11391,32 +7272,19 @@ boss灵基形态和加入我方是不同的
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">可曾记得那时候的黑贞
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38144#       发表于 2017-12-5 17:16
 
 
-
-
 是什么职阶重要吗,只要是艾蕾不就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 38145#       发表于 2017-12-5 17:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37912053&amp;ptid=1085254" target="_blank">卡蓮 发表于 2017-12-5 17:01</a>
@@ -11428,25 +7296,13 @@ boss灵基形态和加入我方是不同的
 老福还曾经是术阶呢（
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38146#       发表于 2017-12-5 20:38
 
 
-
-
 手机上明明有下一页却翻不了页是什么情况
-
-
-
-
-
 
 
 -----
@@ -11455,14 +7311,7 @@ boss灵基形态和加入我方是不同的
 ##### 38147#       发表于 2017-12-5 23:05
 
 
-
-
 现在黑灰掉率最高的free还是夏落特吗。。
-
-
-
-
-
 
 
 -----
@@ -11471,15 +7320,9 @@ boss灵基形态和加入我方是不同的
 ##### 38148#       发表于 2017-12-5 23:45
 
 
-
 <blockquote>dante888 发表于 2017-12-5 17:09
 看来今天又是无事发生，等看明天有没有大新闻了</blockquote>
 长草一周？
-
-
-
-
-
 
 
 -----
@@ -11488,13 +7331,7 @@ boss灵基形态和加入我方是不同的
 ##### 38149#       发表于 2017-12-6 07:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都周三了，今天就不奶了，100%出公告！
-
-
-
-
-
 
 
 -----
@@ -11503,14 +7340,7 @@ boss灵基形态和加入我方是不同的
 ##### 38150#       发表于 2017-12-6 09:33
 
 
-
-
 奶一口长草，开一堆幕间然后开个幕间相关up卡池不是美滋滋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11519,16 +7349,9 @@ boss灵基形态和加入我方是不同的
 ##### 38151#       发表于 2017-12-6 11:37
 
 
-
-
 今天也依旧没有王哈桑<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 届不到届不到
-
-
-
-
-
 
 
 -----
@@ -11537,14 +7360,7 @@ boss灵基形态和加入我方是不同的
 ##### 38152#       发表于 2017-12-6 11:49
 
 
-
-
 最近这个长草期也太长了，差不多该有个什么活动了吧，狩猎也行啊
-
-
-
-
-
 
 
 -----
@@ -11553,14 +7369,7 @@ boss灵基形态和加入我方是不同的
 ##### 38153#       发表于 2017-12-6 13:04
 
 
-
-
 来一波减半吧
-
-
-
-
-
 
 
 -----
@@ -11569,14 +7378,7 @@ boss灵基形态和加入我方是不同的
 ##### 38154#       发表于 2017-12-6 13:07
 
 
-
-
 奶奶奶，全都奶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11585,14 +7387,7 @@ boss灵基形态和加入我方是不同的
 ##### 38155#       发表于 2017-12-6 13:31
 
 
-
-
 只要你们能把艾蕾赶紧奶出来就行<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11601,14 +7396,7 @@ boss灵基形态和加入我方是不同的
 ##### 38156#       发表于 2017-12-6 13:38
 
 
-
-
 已经有欧洲人从剧情池抽出来医生老婆了？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11617,16 +7405,10 @@ boss灵基形态和加入我方是不同的
 ##### 38157#       发表于 2017-12-6 16:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37917040&amp;ptid=1085254" target="_blank">alaya 发表于 2017-12-6 13:38</a>
 
 已经有欧洲人从剧情池抽出来医生老婆了？</blockquote>
 欧证而已，强氪还是能出的
-
-
-
-
-
 
 
 -----
@@ -11635,14 +7417,7 @@ boss灵基形态和加入我方是不同的
 ##### 38158#       发表于 2017-12-6 17:05
 
 
-
-
 阿比来了……
-
-
-
-
-
 
 
 -----
@@ -11651,14 +7426,7 @@ boss灵基形态和加入我方是不同的
 ##### 38159#       发表于 2017-12-6 17:06
 
 
-
-
 大家氪大家氪
-
-
-
-
-
 
 
 -----
@@ -11667,14 +7435,7 @@ boss灵基形态和加入我方是不同的
 ##### 38160#       发表于 2017-12-6 17:07
 
 
-
-
 白嫖30连，1个恩奇都，2个阿比 梦回巅峰<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">可惜没出示巴。
-
-
-
-
-
 
 
 -----
@@ -11683,14 +7444,7 @@ boss灵基形态和加入我方是不同的
 ##### 38161#       发表于 2017-12-6 17:08
 
 
-
-
 10连2示巴女王1阿比，等圣诞了
-
-
-
-
-
 
 
 -----
@@ -11699,14 +7453,7 @@ boss灵基形态和加入我方是不同的
 ##### 38162#       发表于 2017-12-6 17:09
 
 
-
-
 10连黑皮到手，任务完成
-
-
-
-
-
 
 
 -----
@@ -11715,14 +7462,7 @@ boss灵基形态和加入我方是不同的
 ##### 38163#       发表于 2017-12-6 17:10
 
 
-
-
 前方海豹预警
-
-
-
-
-
 
 
 -----
@@ -11731,13 +7471,7 @@ boss灵基形态和加入我方是不同的
 ##### 38164#       发表于 2017-12-6 17:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">10护符黑皮到手，任务完成
-
-
-
-
-
 
 
 -----
@@ -11746,16 +7480,9 @@ boss灵基形态和加入我方是不同的
 ##### 38165#       发表于 2017-12-6 17:23
 
 
-
-
 10连1黑皮1……村姑二宝<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -11764,16 +7491,9 @@ boss灵基形态和加入我方是不同的
 ##### 38166#       发表于 2017-12-6 17:24
 
 
-
-
 今天的托有点多啊
 
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -11782,14 +7502,7 @@ boss灵基形态和加入我方是不同的
 ##### 38167#       发表于 2017-12-6 17:25
 
 
-
-
 哦哦哦哦！五十连最后终于出外国人了
-
-
-
-
-
 
 
 -----
@@ -11798,13 +7511,7 @@ boss灵基形态和加入我方是不同的
 ##### 38168#       发表于 2017-12-6 17:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">对LOLI和黑皮都没爱....继续存石等大新闻
-
-
-
-
-
 
 
 -----
@@ -11813,15 +7520,9 @@ boss灵基形态和加入我方是不同的
 ##### 38169#       发表于 2017-12-6 17:36
 
 
-
  本帖最后由 SanX 于 2017-12-6 17:37 编辑 
 
 六十石六呼符一黑皮一黑杯
-
-
-
-
-
 
 
 -----
@@ -11830,13 +7531,7 @@ boss灵基形态和加入我方是不同的
 ##### 38170#       发表于 2017-12-6 17:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">我来打破你们的幻想，20连1个迪昂，别被海豹们骗了
-
-
-
-
-
 
 
 -----
@@ -11847,30 +7542,20 @@ boss灵基形态和加入我方是不同的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  轮太  
 ##### 38172#       发表于 2017-12-6 17:58
 
 
-
-
 这卡背不就是老福吗……
 你丫还真是外国人啊
-
-
-
-
-
 
 
 -----
 
 ####  花枝鱿鱼面  
 ##### 38173#       发表于 2017-12-6 17:58
-
-
 
 
 三十连屁都没有
@@ -11880,27 +7565,15 @@ boss灵基形态和加入我方是不同的
 ----发送自 [Sony E6883,Android 7.1.1](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38174#       发表于 2017-12-6 18:06
 
 
-
-
 呼符出黑皮了，石头全部保底<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 满破第三张虚数了，感觉用不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11909,14 +7582,7 @@ boss灵基形态和加入我方是不同的
 ##### 38175#       发表于 2017-12-6 18:10
 
 
-
-
 又一波海豹即将上岸<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11925,14 +7591,7 @@ boss灵基形态和加入我方是不同的
 ##### 38176#       发表于 2017-12-6 18:22
 
 
-
-
 一单加17抽。。黑皮贝奥。。gg
-
-
-
-
-
 
 
 -----
@@ -11941,15 +7600,9 @@ boss灵基形态和加入我方是不同的
 ##### 38177#       发表于 2017-12-6 18:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">600石才终于抽到
 
 存石抽光圣诞真来艾蕾我就可以去死了
-
-
-
-
-
 
 
 -----
@@ -11958,14 +7611,7 @@ boss灵基形态和加入我方是不同的
 ##### 38178#       发表于 2017-12-6 18:29
 
 
-
-
 海豹都来了？那我也来，5发呼符白嫖阿比，两发10连示巴
-
-
-
-
-
 
 
 -----
@@ -11976,7 +7622,6 @@ boss灵基形态和加入我方是不同的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  不知道叫什么  
@@ -11985,21 +7630,13 @@ boss灵基形态和加入我方是不同的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  khxooo  
 ##### 38181#       发表于 2017-12-6 18:33
 
 
-
-
 10连迪昂NEW<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12008,14 +7645,7 @@ boss灵基形态和加入我方是不同的
 ##### 38182#       发表于 2017-12-6 18:33
 
 
-
-
 卧槽。评论里阿比的NP性能是垃圾？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12024,21 +7654,13 @@ boss灵基形态和加入我方是不同的
 ##### 38183#       发表于 2017-12-6 18:34
 
 
-
-
 用的人说说啊，这NP效率咋样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 38184#       发表于 2017-12-6 18:36
-
 
 
  本帖最后由 rooarr 于 2017-12-6 18:38 编辑 
@@ -12048,26 +7670,15 @@ boss灵基形态和加入我方是不同的
 小萝莉你咋能吃羽毛呢<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">养不起养不起，羽毛缺口100＋了
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 38185#       发表于 2017-12-6 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37918817&amp;ptid=1085254" target="_blank">シャル 发表于 2017-12-6 18:34</a>
 用的人说说啊，这NP效率咋样</blockquote>
 1号位蓝卡7np，2号位蓝卡10np，可以算一般？
-
-
-
-
-
 
 
 -----
@@ -12076,22 +7687,15 @@ boss灵基形态和加入我方是不同的
 ##### 38186#       发表于 2017-12-6 18:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37918817&amp;ptid=1085254" target="_blank">シャル 发表于 2017-12-6 18:34</a>
 用的人说说啊，这NP效率咋样</blockquote>
 解包早有了啊 看着蛮糟糕的
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 38187#       发表于 2017-12-6 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37918885&amp;ptid=1085254" target="_blank">rooarr 发表于 2017-12-6 18:42</a>
@@ -12103,16 +7707,10 @@ boss灵基形态和加入我方是不同的
 60石头下去没影子，放弃算了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 38188#       发表于 2017-12-6 18:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37918921&amp;ptid=1085254" target="_blank">シャル 发表于 2017-12-6 18:45</a>
@@ -12123,25 +7721,13 @@ boss灵基形态和加入我方是不同的
 主要是配卡3蓝，这np我觉得就还可以了，看看大公<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  xunit  
 ##### 38189#       发表于 2017-12-6 18:50
 
 
-
-
 15呼符+10发十连啥都没有，和这个池子相性不和，告辞告辞
-
-
-
-
-
 
 
 -----
@@ -12152,7 +7738,6 @@ boss灵基形态和加入我方是不同的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  不知道叫什么  
@@ -12161,21 +7746,13 @@ boss灵基形态和加入我方是不同的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 38192#       发表于 2017-12-6 19:03
 
 
-
-
 哦……女王再临要24个新素材……幸好我把free本都清光了，手上有26个……
-
-
-
-
-
 
 
 -----
@@ -12186,7 +7763,6 @@ boss灵基形态和加入我方是不同的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  不知道叫什么  
@@ -12195,29 +7771,19 @@ boss灵基形态和加入我方是不同的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dreamd  
 ##### 38195#       发表于 2017-12-6 19:16
 
 
-
-
 三发单抽出了黑皮女王，外地人萝莉就算了，等圣诞的大新闻
-
-
-
-
-
 
 
 -----
 
 ####  alaya  
 ##### 38196#       发表于 2017-12-6 19:23
-
-
 
 
 噫，好了，我中了
@@ -12229,26 +7795,15 @@ boss灵基形态和加入我方是不同的
 圣诞不抽了，安心等福袋
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38197#       发表于 2017-12-6 19:27
 
 
-
 <blockquote>黑上シグマ 发表于 2017-12-6 19:03
 哦……女王再临要24个新素材……幸好我把free本都清光了，手上有26个……</blockquote>
 看了效率剧场，新素材31ap一个，稳定的和髓液黑灰一样
-
-
-
-
-
 
 
 -----
@@ -12257,14 +7812,7 @@ boss灵基形态和加入我方是不同的
 ##### 38198#       发表于 2017-12-6 19:35
 
 
-
-
 10连+几个护符 2宝外乡人，弥补了些最近沉15单的痛<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12273,22 +7821,15 @@ boss灵基形态和加入我方是不同的
 ##### 38199#       发表于 2017-12-6 19:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37919316&amp;ptid=1085254" target="_blank">高坂麗奈 发表于 2017-12-6 19:35</a>
 10连+几个护符 2宝外乡人，弥补了些最近沉15单的痛</blockquote>
 抽卡守恒定律<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ulir  
 ##### 38200#       发表于 2017-12-6 19:40
-
 
 
 <blockquote>引用第38182楼シャル于2017-12-06 00:33发表的  :
@@ -12300,17 +7841,10 @@ boss灵基形态和加入我方是不同的
 ----发送自 [LGE Nexus 5,Android 6.0.1](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 38201#       发表于 2017-12-6 19:41
-
-
 
 
 10连芬恩…一定是我上次说拐齐了的错，后来查查还有这货跟杀尼托，然后我就有强烈预感这货要来了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
@@ -12320,16 +7854,10 @@ boss灵基形态和加入我方是不同的
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 38202#       发表于 2017-12-6 19:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37919347&amp;ptid=1085254" target="_blank">poor 发表于 2017-12-06 19:41:18</a>
@@ -12338,17 +7866,10 @@ boss灵基形态和加入我方是不同的
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 38203#       发表于 2017-12-6 19:56
-
-
 
 
 泥潭真是神了，刚说完就来了黑皮，还附赠一只塔喵，麒麟臂也能满破了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
@@ -12358,25 +7879,13 @@ boss灵基形态和加入我方是不同的
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38204#       发表于 2017-12-6 19:58
 
 
-
-
 有点想抽满示巴女王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12385,14 +7894,7 @@ boss灵基形态和加入我方是不同的
 ##### 38205#       发表于 2017-12-6 19:59
 
 
-
-
 180石頭+16呼符，阿比+示巴，比预期的好，剩下来的石头留着等圣诞了，逼急了就和去年那样提前把福袋给课了
-
-
-
-
-
 
 
 -----
@@ -12401,16 +7903,9 @@ boss灵基形态和加入我方是不同的
 ##### 38206#       发表于 2017-12-6 20:07
 
 
-
-
 11月初白嫖出双NEW的武藏和奶光果然把运气用完了
 
 3单没王哈，5单异乡人1宝+黑皮7宝……荷包有点伤只能放弃圣诞了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12419,13 +7914,7 @@ boss灵基形态和加入我方是不同的
 ##### 38207#       发表于 2017-12-6 20:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我就静静的看你们晒....等圣诞了
-
-
-
-
-
 
 
 -----
@@ -12434,14 +7923,7 @@ boss灵基形态和加入我方是不同的
 ##### 38208#       发表于 2017-12-6 20:11
 
 
-
-
 妈的，阿比没有，雪山布妈跳出来了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12450,14 +7932,7 @@ boss灵基形态和加入我方是不同的
 ##### 38209#       发表于 2017-12-6 20:21
 
 
-
-
 老王送的呼符刚好足够让我召出亚比
-
-
-
-
-
 
 
 -----
@@ -12466,23 +7941,15 @@ boss灵基形态和加入我方是不同的
 ##### 38210#       发表于 2017-12-6 20:52
 
 
-
-
 得不到外国人啊……
 
 这游戏真读心……从泳装2宝水泥沉肯娘以来没一张第一目标的金卡能抽出来的……
-
-
-
-
-
 
 
 -----
 
 ####  閻魔愛  
 ##### 38211#       发表于 2017-12-6 21:28
-
 
 
  本帖最后由 閻魔愛 于 2017-12-6 21:35 编辑 
@@ -12492,32 +7959,19 @@ boss灵基形态和加入我方是不同的
 卑鄙的外乡人<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 38212#       发表于 2017-12-6 21:54
 
 
-
-
 修仙几个月囤积137+30符全部打水漂，可以的，继续修仙<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 38213#       发表于 2017-12-6 22:09
-
 
 
  本帖最后由 シャル 于 2017-12-6 22:11 编辑 
@@ -12532,32 +7986,19 @@ boss灵基形态和加入我方是不同的
 得上C狐和梅林双拐<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  heyfly  
 ##### 38214#       发表于 2017-12-6 22:27
 
 
-
-
 出货十连：萝莉、示巴、巴御前、茨木<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  KOBI  
 ##### 38215#       发表于 2017-12-6 22:27
-
 
 
  本帖最后由 KOBI 于 2017-12-6 22:28 编辑 
@@ -12567,25 +8008,13 @@ boss灵基形态和加入我方是不同的
 咕嗒从154带回去的难道真的是银匙啊喂。。。
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38216#       发表于 2017-12-6 22:31
 
 
-
-
 女王喂满了，攻好低……
-
-
-
-
-
 
 
 -----
@@ -12594,13 +8023,7 @@ boss灵基形态和加入我方是不同的
 ##### 38217#       发表于 2017-12-6 22:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">天呐 那个生日快乐歌太他妈可爱了
-
-
-
-
-
 
 
 -----
@@ -12609,14 +8032,7 @@ boss灵基形态和加入我方是不同的
 ##### 38218#       发表于 2017-12-6 22:37
 
 
-
-
 四星术都差不多那水平吧，尼托就是atk最高的了然而也没啥区别……
-
-
-
-
-
 
 
 -----
@@ -12625,16 +8041,10 @@ boss灵基形态和加入我方是不同的
 ##### 38219#       发表于 2017-12-6 22:47
 
 
-
 [https://www.douyu.com/DCDC](https://www.douyu.com/DCDC)
 
 
 DC老师直播抽萝莉
-
-
-
-
-
 
 
 -----
@@ -12643,14 +8053,7 @@ DC老师直播抽萝莉
 ##### 38220#       发表于 2017-12-6 22:58
 
 
-
-
 直播效果爆炸，念咒之后彩圈歪三藏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12659,14 +8062,7 @@ DC老师直播抽萝莉
 ##### 38221#       发表于 2017-12-6 23:05
 
 
-
-
 念咒就崩盘，道歉就出货，这操作很6
-
-
-
-
-
 
 
 -----
@@ -12675,14 +8071,7 @@ DC老师直播抽萝莉
 ##### 38222#       发表于 2017-12-6 23:05
 
 
-
-
 这萝莉的生日歌最后一句怎么这么渗人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12691,13 +8080,7 @@ DC老师直播抽萝莉
 ##### 38223#       发表于 2017-12-6 23:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">泥潭海豹就是屌，我来平衡下，40连连jb女王都没
-
-
-
-
-
 
 
 -----
@@ -12706,14 +8089,7 @@ DC老师直播抽萝莉
 ##### 38224#       发表于 2017-12-6 23:09
 
 
-
-
 大腿里已经有大佬挂出满级幼女了，这满破图看着咋那么诡异……
-
-
-
-
-
 
 
 -----
@@ -12722,23 +8098,16 @@ DC老师直播抽萝莉
 ##### 38225#       发表于 2017-12-6 23:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37920730&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-6 23:08</a>
 
 泥潭海豹就是屌，我来平衡下，40连连jb女王都没</blockquote>
 5星礼装和4星从者呢？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 38226#       发表于 2017-12-6 23:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37920739&amp;ptid=1085254" target="_blank">シャル 发表于 2017-12-6 23:10</a>
@@ -12752,25 +8121,13 @@ DC老师直播抽萝莉
 这垃圾村正礼装光这个月就出了4张，但我依然只有1张伊斯塔和0张雪山，可以说是非常狗日
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38227#       发表于 2017-12-6 23:17
 
 
-
-
 MD是DC是狗啊，刚说示巴满宝就交盘子走人结果双黄
-
-
-
-
-
 
 
 -----
@@ -12779,16 +8136,10 @@ MD是DC是狗啊，刚说示巴满宝就交盘子走人结果双黄
 ##### 38228#       发表于 2017-12-6 23:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37920786&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-6 23:17</a>
 
 MD是DC是狗啊，刚说示巴满宝就交盘子走人结果双黄</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而这里并没有人关心（
-
-
-
-
-
 
 
 -----
@@ -12797,14 +8148,7 @@ MD是DC是狗啊，刚说示巴满宝就交盘子走人结果双黄</blockquote>
 ##### 38229#       发表于 2017-12-6 23:20
 
 
-
-
 六单下去，示巴女王抽满，然后new了c狐、护士和三藏，立派的读心游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12813,16 +8157,10 @@ MD是DC是狗啊，刚说示巴满宝就交盘子走人结果双黄</blockquote>
 ##### 38230#       发表于 2017-12-6 23:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37920799&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-6 23:19</a>
 
 然而这里并没有人关心（</blockquote>
 是么，之前泳装二期这边讨论得也很乐呵
-
-
-
-
-
 
 
 -----
@@ -12831,14 +8169,7 @@ MD是DC是狗啊，刚说示巴满宝就交盘子走人结果双黄</blockquote>
 ##### 38231#       发表于 2017-12-6 23:27
 
 
-
-
 DC这次这么晚播
-
-
-
-
-
 
 
 -----
@@ -12847,14 +8178,7 @@ DC这次这么晚播
 ##### 38232#       发表于 2017-12-6 23:55
 
 
-
-
 攒了一单石头抽到了阿比，+上前两天1里抽到了姑妈，这次满足满足
-
-
-
-
-
 
 
 -----
@@ -12863,17 +8187,10 @@ DC这次这么晚播
 ##### 38233#       发表于 2017-12-7 01:05
 
 
-
-
 免费100石10呼符屁都没有，一充钱3个10连就出双黄萝莉和示巴2宝，我看盐川这骗氪手法已经臻于化境
 
 
 现在除了开服玄学和微博玄学我啥都不信了
-
-
-
-
-
 
 
 -----
@@ -12882,22 +8199,13 @@ DC这次这么晚播
 ##### 38234#       发表于 2017-12-7 01:14
 
 
-
-
 7个十连萝莉加黑皮，外加一个金方块，给泥潭拖后腿了，用的1点抽卡玄学
-
-
-
-
-
 
 
 -----
 
 ####  白金口袋  
 ##### 38235#       发表于 2017-12-7 01:29
-
-
 
 
 我来温暖一下人心
@@ -12907,25 +8215,13 @@ DC这次这么晚播
 GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 38236#       发表于 2017-12-7 07:25
 
 
-
-
 4星倒数第二的爱娜出了，该死
-
-
-
-
-
 
 
 -----
@@ -12934,21 +8230,13 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38237#       发表于 2017-12-7 08:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">看了一下重播，dc这直播效果爆炸啊，念咒出三藏，说交盘子就满宝
-
-
-
-
-
 
 
 -----
 
 ####  蕾丝  
 ##### 38238#       发表于 2017-12-7 08:53
-
-
 
 
 用攒的300个石头和10个呼符抽了
@@ -12963,25 +8251,13 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 然后现在绝赞卡书页中。。。。。
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38239#       发表于 2017-12-7 09:01
 
 
-
-
 什么,弟媳这次这么晚播的么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12990,14 +8266,7 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38240#       发表于 2017-12-7 09:18
 
 
-
-
 看了下wiki，外乡人职阶和复仇阶一样都是有攻击加成的？而且吸星率也和弓阶持平？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13006,14 +8275,7 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38241#       发表于 2017-12-7 09:18
 
 
-
-
 6个十连，一萝莉俩黑皮，外加个巴御前妈妈一宝变两宝，还可以...手里还150多石头，留30给福袋，多出来的抽圣诞，今年就这样了
-
-
-
-
-
 
 
 -----
@@ -13022,14 +8284,7 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38242#       发表于 2017-12-7 09:20
 
 
-
-
 顺便问一下没有活动的情况下日服刷书页还是水晶宫么？
-
-
-
-
-
 
 
 -----
@@ -13038,15 +8293,9 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38243#       发表于 2017-12-7 09:24
 
 
-
 <blockquote>蕾丝 发表于 2017-12-7 09:20
 顺便问一下没有活动的情况下日服刷书页还是水晶宫么？</blockquote>
 现在是新宿二丁目效率更高一点点
-
-
-
-
-
 
 
 -----
@@ -13055,15 +8304,9 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38244#       发表于 2017-12-7 10:17
 
 
-
 <blockquote>閻魔愛 发表于 2017-12-7 09:18
 看了下wiki，外乡人职阶和复仇阶一样都是有攻击加成的？而且吸星率也和弓阶持平？ ...</blockquote>
 不是1.0么，集星倒是弓阶的集星
-
-
-
-
-
 
 
 -----
@@ -13072,14 +8315,7 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38245#       发表于 2017-12-7 10:24
 
 
-
-
 5单没见up了，心灰意冷，怀疑人参<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13088,16 +8324,10 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38246#       发表于 2017-12-7 10:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37922492&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-12-7 09:18</a>
 
 看了下wiki，外乡人职阶和复仇阶一样都是有攻击加成的？而且吸星率也和弓阶持平？ ...</blockquote>
 吸星基本是弓阶水平，不过好像没有攻击加成..
-
-
-
-
-
 
 
 -----
@@ -13106,15 +8336,9 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38247#       发表于 2017-12-7 10:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37923025&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-7 10:17</a>
 不是1.0么，集星倒是弓阶的集星</blockquote>
 原来如此，还以为和仇阶一样有1.1加成<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13125,12 +8349,10 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  閻魔愛  
 ##### 38249#       发表于 2017-12-7 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37923393&amp;ptid=1085254" target="_blank">阿鼻屎 发表于 2017-12-7 10:49</a>
@@ -13140,16 +8362,10 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 五宝大佬，还有好友位能加个好友吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38250#       发表于 2017-12-7 10:57
-
 
 
 <blockquote>阿鼻屎 发表于 2017-12-7 10:49
@@ -13160,25 +8376,13 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 给大佬递茶
 
 
-
-
-
-
-
 -----
 
 ####  heemoon  
 ##### 38251#       发表于 2017-12-7 11:24
 
 
-
-
 阿比满破卡面太惊悚了，好好的萌萝莉瘦成那样真让人心疼啊，偏偏脸又充满邪气而且攻击动作也精污得不行。。。
-
-
-
-
-
 
 
 -----
@@ -13187,14 +8391,7 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38252#       发表于 2017-12-7 11:27
 
 
-
-
 还好没看到DC直播，1290石8个五星，引起极大不适<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13203,15 +8400,9 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38253#       发表于 2017-12-7 11:41
 
 
-
 <blockquote>閻魔愛 发表于 2017-12-7 10:32
 原来如此，还以为和仇阶一样有1.1加成</blockquote>
 所以没有泛用性，比杀生院还不好用
-
-
-
-
-
 
 
 -----
@@ -13220,16 +8411,10 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38254#       发表于 2017-12-7 11:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37923809&amp;ptid=1085254" target="_blank">heemoon 发表于 2017-12-7 11:24</a>
 
 阿比满破卡面太惊悚了，好好的萌萝莉瘦成那样真让人心疼啊，偏偏脸又充满邪气而且攻击动作也精污得不行。。 ...</blockquote>
 就是要那样的效果啊，san值逐渐降低...
-
-
-
-
-
 
 
 -----
@@ -13238,15 +8423,9 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38255#       发表于 2017-12-7 11:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37924062&amp;ptid=1085254" target="_blank">dreamd 发表于 2017-12-7 11:50</a>
 就是要那样的效果啊，san值逐渐降低...</blockquote>
 说得不错，所以个人感觉满破图还挺不错的，一股邪气<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13255,14 +8434,7 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38256#       发表于 2017-12-7 12:09
 
 
-
-
 看了一下重播,这好狗啊,一上来就出货<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13271,14 +8443,7 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38257#       发表于 2017-12-7 12:18
 
 
-
-
 骚还是DC骚，念咒之后被佛教徒和基督徒上门除妖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13287,14 +8452,7 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38258#       发表于 2017-12-7 12:33
 
 
-
-
 矮油念咒这个实在太智障了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13303,15 +8461,9 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38259#       发表于 2017-12-7 13:06
 
 
-
 <blockquote>ネロ 发表于 2017-12-7 12:18
 骚还是DC骚，念咒之后被佛教徒和基督徒上门除妖</blockquote>
 然而他还是很欧
-
-
-
-
-
 
 
 -----
@@ -13320,22 +8472,15 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 ##### 38260#       发表于 2017-12-7 13:12
 
 
-
  本帖最后由 乙山法純 于 2017-12-7 13:14 编辑 
 
 上个月彩圈歪黑皮，昨天一发歪拉二，-1+1这波不亏，继续做签到咸鱼
-
-
-
-
-
 
 
 -----
 
 ####  goiler_0  
 ##### 38261#       发表于 2017-12-7 13:35
-
 
 
  本帖最后由 goiler_0 于 2017-12-7 13:38 编辑 
@@ -13368,16 +8513,10 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 再比如有个礼装：赋予自身伤害增加800状态， 这个800是什么时候开始加， 常驻吗？ 常驻的话和直接加攻击力白值有什么区别？ 
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38262#       发表于 2017-12-7 13:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37924962&amp;ptid=1085254" target="_blank">goiler_0 发表于 2017-12-7 13:35</a>
@@ -13399,31 +8538,19 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 礼装基本都是上场就触发效果，所以3回合限制的基本都没什么用；固定伤害礼装是每张指令卡单独附加固定伤害
 
 
-
-
-
-
-
 -----
 
 ####  Chronicless  
 ##### 38263#       发表于 2017-12-7 13:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  乙山法純  
 ##### 38264#       发表于 2017-12-7 13:59
-
 
 
  本帖最后由 乙山法純 于 2017-12-7 14:23 编辑 
@@ -13439,16 +8566,10 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 5.被动激活，1回=1次，1turn=敌我出牌结束，常驻，看计算公式
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38265#       发表于 2017-12-7 14:20
-
 
 
 <blockquote>goiler_0 发表于 2017-12-7 13:35
@@ -13459,32 +8580,19 @@ GG<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrer
 建议去nga废狗版看下置顶，可以解决很多问题
 
 
-
-
-
-
-
 -----
 
 ####  anakin-x  
 ##### 38266#       发表于 2017-12-7 14:29
 
 
-
-
 mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2030，小萝莉影子都没有
-
-
-
-
-
 
 
 -----
 
 ####  goiler_0  
 ##### 38267#       发表于 2017-12-7 15:11
-
 
 
  本帖最后由 goiler_0 于 2017-12-7 15:13 编辑 
@@ -13504,17 +8612,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 也就是蓝卡hit多的残疾， 只能蓝蓝蓝， 蓝卡没什么hit， 绿卡hit多的， 就容易用蓝绿绿骗星的同时骗NP？
 
 
-
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38268#       发表于 2017-12-7 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37925807&amp;ptid=1085254" target="_blank">goiler_0 发表于 2017-12-7 15:11</a>
@@ -13528,16 +8629,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 基本上是这个道理，不过现在NP不流行手打就是了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  斯卡哈  
 ##### 38269#       发表于 2017-12-7 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37925807&amp;ptid=1085254" target="_blank">goiler_0 发表于 2017-12-7 15:11</a>
@@ -13552,16 +8647,10 @@ hit数不影响伤害，固定伤害顾名思义在每一张卡造成的伤害�
 NP套路比较多，蓝chain是通用的，蓝红红攒NP想了一下好像只有师酱这种奇葩。杰克冲田这种攒NP就适用于蓝绿绿，还有月神这种NP率与配卡稀烂的。蓝卡多hit不一定要蓝chain，可以红卡开头蓝卡最后一位务求尽早打死然后鞭尸
 
 
-
-
-
-
-
 -----
 
 ####  goiler_0  
 ##### 38270#       发表于 2017-12-7 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37925853&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-7 15:17</a>
@@ -13572,11 +8661,6 @@ NP套路比较多，蓝chain是通用的，蓝红红攒NP想了一下好像只�
 不手打怎么打呢？宝具打吗？
 
 
-
-
-
-
-
 -----
 
 ####  云归无处  
@@ -13585,12 +8669,10 @@ NP套路比较多，蓝chain是通用的，蓝红红攒NP想了一下好像只�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  里村紅葉  
 ##### 38272#       发表于 2017-12-7 15:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37926121&amp;ptid=1085254" target="_blank">goiler_0 发表于 2017-12-7 15:48</a>
@@ -13601,16 +8683,10 @@ NP套路比较多，蓝chain是通用的，蓝红红攒NP想了一下好像只�
 这游戏八成时间是在速刷周回本，所以配合初始NP礼装开充电技能快速放宝具清场是最效率的套路
 
 
-
-
-
-
-
 -----
 
 ####  goiler_0  
 ##### 38273#       发表于 2017-12-7 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37926164&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-7 15:54</a>
@@ -13621,17 +8697,10 @@ NP套路比较多，蓝chain是通用的，蓝红红攒NP想了一下好像只�
 没有练度打目前的活动本好累， 每个回合都要算打10来个回合起码， 我现在就是抱着朋友的黑狗大腿， 自己用学妹上BUFF一个一个平砍过去。其它的都是杂鱼给黑狗挡伤害的。
 
 
-
-
-
-
-
-
 -----
 
 ####  斯卡哈  
 ##### 38274#       发表于 2017-12-7 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37926121&amp;ptid=1085254" target="_blank">goiler_0 发表于 2017-12-7 15:48</a>
@@ -13643,16 +8712,10 @@ NP套路比较多，蓝chain是通用的，蓝红红攒NP想了一下好像只�
 至于周回速刷？初始NP礼装+充能+自充，放三次宝具就完了
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38275#       发表于 2017-12-7 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37926257&amp;ptid=1085254" target="_blank">goiler_0 发表于 2017-12-7 16:01</a>
@@ -13661,25 +8724,13 @@ NP套路比较多，蓝chain是通用的，蓝红红攒NP想了一下好像只�
 BOX没起来之前是这样的，你现在丢个小号给我去练我也只能这么打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38276#       发表于 2017-12-7 17:08
 
 
-
-
 突然开幕间4了
-
-
-
-
-
 
 
 -----
@@ -13688,14 +8739,7 @@ BOX没起来之前是这样的，你现在丢个小号给我去练我也只能�
 ##### 38277#       发表于 2017-12-7 17:13
 
 
-
-
 更新了幕间物语
-
-
-
-
-
 
 
 -----
@@ -13704,14 +8748,7 @@ BOX没起来之前是这样的，你现在丢个小号给我去练我也只能�
 ##### 38278#       发表于 2017-12-7 17:15
 
 
-
-
 哪吒女王幕间开好快啊喂
-
-
-
-
-
 
 
 -----
@@ -13720,14 +8757,7 @@ BOX没起来之前是这样的，你现在丢个小号给我去练我也只能�
 ##### 38279#       发表于 2017-12-7 17:30
 
 
-
-
 R子录另，AVR强化了群体充能
-
-
-
-
-
 
 
 -----
@@ -13736,14 +8766,7 @@ R子录另，AVR强化了群体充能
 ##### 38280#       发表于 2017-12-7 17:39
 
 
-
-
 戈尔工和爱娜终于强化宝具了
-
-
-
-
-
 
 
 -----
@@ -13752,14 +8775,7 @@ R子录另，AVR强化了群体充能
 ##### 38281#       发表于 2017-12-7 17:42
 
 
-
-
 戈尔工NP+15，爱娜绿卡耐性下降，很盐川啊
-
-
-
-
-
 
 
 -----
@@ -13768,16 +8784,9 @@ R子录另，AVR强化了群体充能
 ##### 38282#       发表于 2017-12-7 17:52
 
 
-
-
 这就开幕间了，也太快
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13786,16 +8795,9 @@ R子录另，AVR强化了群体充能
 ##### 38283#       发表于 2017-12-7 17:55
 
 
-
-
 就不能实装的时候直接带上吗…
 
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -13804,16 +8806,10 @@ R子录另，AVR强化了群体充能
 ##### 38284#       发表于 2017-12-7 17:58
 
 
-
  本帖最后由 khxooo 于 2017-12-7 17:59 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37925421&amp;ptid=1085254" target="_blank">anakin-x 发表于 2017-12-7 14:29</a>
 
 mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2030，小萝莉影子都没有 ...</blockquote>我一发十连只有个仓管伪娘和吉娜的4星礼装，你比我好多了好不。
-
-
-
-
-
 
 
 -----
@@ -13822,14 +8818,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38285#       发表于 2017-12-7 17:59
 
 
-
-
 非洲人也有新幕间打了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13838,14 +8827,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38286#       发表于 2017-12-7 18:08
 
 
-
-
 大卫王你够了。。。话说月世界里女王和所罗门的交集只有154剧中剧演的那一次么？
-
-
-
-
-
 
 
 -----
@@ -13854,16 +8836,9 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38287#       发表于 2017-12-7 18:11
 
 
-
-
 这算不算扒灰……
 
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -13872,14 +8847,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38288#       发表于 2017-12-7 21:08
 
 
-
-
 老福你也加入了假面系列了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13888,13 +8856,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38289#       发表于 2017-12-7 21:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">福尔摩斯这全程一本正经的在搞笑的样子你今早真的没嗑药吗
-
-
-
-
-
 
 
 -----
@@ -13903,14 +8865,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38290#       发表于 2017-12-7 21:58
 
 
-
-
 更新后清狗粮闪退<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13919,18 +8874,13 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38291#       发表于 2017-12-7 22:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 <img src="http://ww4.sinaimg.cn/large/8252a54egy1fm8kgpnrz3j21hc0u0hdu.jpg" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -13940,12 +8890,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 | 伊波感| + 1|学妹我喜欢你啊|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -13954,14 +8899,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38292#       发表于 2017-12-7 22:57
 
 
-
-
 为啥现在宝具放完之后要加载数据…难道只有我一个<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13970,24 +8908,15 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38293#       发表于 2017-12-8 02:11
 
 
-
-
-
 诸君，154的爱奇艺，有宝具演出了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  回音室人  
 ##### 38294#       发表于 2017-12-8 02:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930055&amp;ptid=1085254" target="_blank">回音室人 发表于 2017-12-08 02:11:48</a></blockquote>*爱手艺
@@ -13997,27 +8926,15 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38295#       发表于 2017-12-8 02:56
 
 
-
-
 强烈要求斯巴达和阿塔的宝具改成街机形式
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14026,14 +8943,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38296#       发表于 2017-12-8 07:22
 
 
-
-
 6单下去没有阿比，现在能有个结论了吗，阿比强度到底如何，如果非常一般的话，这第7单我就不克了。已经快影响到我12月生活费了
-
-
-
-
-
 
 
 -----
@@ -14042,15 +8952,9 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38297#       发表于 2017-12-8 07:37
 
 
-
 <blockquote>elven119 发表于 2017-12-8 07:22
 6单下去没有阿比，现在能有个结论了吗，阿比强度到底如何，如果非常一般的话，这第7单我就不克了。已经快影 ...</blockquote>
 中下水平，np残疾，必须狐狸梅林双拐
-
-
-
-
-
 
 
 -----
@@ -14059,23 +8963,16 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38298#       发表于 2017-12-8 07:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930466&amp;ptid=1085254" target="_blank">elven119 发表于 2017-12-8 07:22</a>
 
 6单下去没有阿比，现在能有个结论了吗，阿比强度到底如何，如果非常一般的话，这第7单我就不克了。已经快影 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">目前来看一般，没有那么厨，但也不差。技能一3回合30%宝具加成甩军略三条街还带30NP，技能2相当于一个领导力，总的来说还行但对一般关卡来说影响不大
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 38299#       发表于 2017-12-8 07:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930466&amp;ptid=1085254" target="_blank">elven119 发表于 2017-12-8 07:22</a>
@@ -14088,16 +8985,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 但谁知道会不会是下一个天草 只能自己掂量了
 
 
-
-
-
-
-
 -----
 
 ####  elven119  
 ##### 38300#       发表于 2017-12-8 07:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930525&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2017-12-8 07:37</a>
@@ -14106,16 +8997,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 这么说来基本算是花瓶咯？感谢解毒。而且我知道这第七单下去也不一定会出的。每次克上头了就这样，11单无奶光的噩梦啊
 
 
-
-
-
-
-
 -----
 
 ####  elven119  
 ##### 38301#       发表于 2017-12-8 07:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930533&amp;ptid=1085254" target="_blank">鱼缸 发表于 2017-12-8 07:41</a>
@@ -14126,16 +9011,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 我抽是这样的，前5-6单是纯粹为了角色。如果5-6单都还没出，就要考虑实用性了。实用性差的话就不继续抽了。比如奶子光那次，我抽了11单，虽然最后没出，但也基本是按照这个法则来的。
 
 
-
-
-
-
-
 -----
 
 ####  鱼缸  
 ##### 38302#       发表于 2017-12-8 07:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930548&amp;ptid=1085254" target="_blank">elven119 发表于 2017-12-8 07:45</a>
@@ -14148,25 +9027,13 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 等最后几天看看圣诞有没有新限定咯 没有再回来抽也行的
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38303#       发表于 2017-12-8 07:56
 
 
-
-
 街机版10选1会不会当英灵肖像送呢
-
-
-
-
-
 
 
 -----
@@ -14175,16 +9042,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38304#       发表于 2017-12-8 07:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930548&amp;ptid=1085254" target="_blank">elven119 发表于 2017-12-8 07:45</a>
 
 我抽是这样的，前5-6单是纯粹为了角色。如果5-6单都还没出，就要考虑实用性了。实用性差的话就不继续抽了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这算很有克制力了，152的时候我11单下去只是因为图鉴里缺个武则天......
-
-
-
-
-
 
 
 -----
@@ -14193,16 +9054,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38305#       发表于 2017-12-8 08:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930466&amp;ptid=1085254" target="_blank">elven119 发表于 2017-12-8 07:22</a>
 
 6单下去没有阿比，现在能有个结论了吗，阿比强度到底如何，如果非常一般的话，这第7单我就不克了。已经快影 ...</blockquote>
 现在又没高难本可打下结论也是云啊，阿比手打np跟cd都劣势但其实我觉得放在贞梅体系里挺全面的，攻防驱散蓝chain管够只被ae克制（看cd长就上狐狸有点重点不明，阿比说到底就一个好技能）……估计池子关闭之前会开圣诞活动吧，先等等呗
-
-
-
-
-
 
 
 -----
@@ -14211,15 +9066,9 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38306#       发表于 2017-12-8 08:13
 
 
-
 <blockquote>茛菪 发表于 2017-12-8 08:10
 现在又没高难本可打下结论也是云啊，阿比手打np跟cd都劣势但其实我觉得放在贞梅体系里挺全面的，攻防驱散 ...</blockquote>
 狂的高难本其他人都能打啊，上阿比完全看不出重要性
-
-
-
-
-
 
 
 -----
@@ -14228,15 +9077,9 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38307#       发表于 2017-12-8 08:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930590&amp;ptid=1085254" target="_blank">斯卡哈 发表于 2017-12-8 07:56</a>
 你这算很有克制力了，152的时候我11单下去只是因为图鉴里缺个武则天...... ...</blockquote>
 你这都好意思说<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14245,14 +9088,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38308#       发表于 2017-12-8 08:21
 
 
-
-
 你们当初也是这么看不起天草的<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14261,15 +9097,9 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38309#       发表于 2017-12-8 08:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930641&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-12-8 08:10</a>
 现在又没高难本可打下结论也是云啊，阿比手打np跟cd都劣势但其实我觉得放在贞梅体系里挺全面的，攻防驱散 ...</blockquote>
 上狐狸除了减CD当然还能为阿比补充NP。以及配合阿比一起减气。可以说是挺不错的搭档了。再配个梅林扶着。生存率和攻击面都有保障。
-
-
-
-
-
 
 
 -----
@@ -14278,16 +9108,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38310#       发表于 2017-12-8 08:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930687&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-12-8 08:20</a>
 
 你这都好意思说</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这是深刻的反省
-
-
-
-
-
 
 
 -----
@@ -14296,16 +9120,10 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38311#       发表于 2017-12-8 08:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930655&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2017-12-8 08:13</a>
 
 狂的高难本其他人都能打啊，上阿比完全看不出重要性</blockquote>
 所有的高难本现在的角色都能打而且是吊打，照这么说新角色都不用抽了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">（虽然好像的确有人怎么想而且也的确有点道理……）个人是觉得能上场发挥明显作用就合格了……比如圣鹿行进这种程度的本，贞梅+天草怎么打阿比一样无脑打就是了，肯定打不多快但强化解除+30%降爆可以安逸的想睡觉……
-
-
-
-
-
 
 
 -----
@@ -14314,19 +9132,12 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38312#       发表于 2017-12-8 08:46
 
 
-
 <blockquote>閻魔愛 发表于 2017-12-8 08:25
 上狐狸除了减CD当然还能为阿比补充NP。以及配合阿比一起减气。可以说是挺不错的搭档了。再配个梅林扶着。 ...</blockquote>
 就是，必须的湖梅双拐
 
 
-
 如果阿比像BB一样np爆炸就好了
-
-
-
-
-
 
 
 -----
@@ -14335,14 +9146,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38313#       发表于 2017-12-8 08:55
 
 
-
-
 豹人对红a很严格，必须把晒黑的皮肤变回来；爱娜和姐姐们很幸福
-
-
-
-
-
 
 
 -----
@@ -14351,14 +9155,7 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38314#       发表于 2017-12-8 08:57
 
 
-
-
 打完戈尔工幕间再打爱娜的幕间感觉很温馨啊
-
-
-
-
-
 
 
 -----
@@ -14367,23 +9164,16 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38315#       发表于 2017-12-8 09:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930714&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-12-8 08:25</a>
 
 上狐狸除了减CD当然还能为阿比补充NP。以及配合阿比一起减气。可以说是挺不错的搭档了。再配个梅林扶着。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那技一的“全体”宝具威力UP就毫无意义了（
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 38316#       发表于 2017-12-8 09:38
-
 
 
 <blockquote>斯卡哈 发表于 2017-12-8 09:18
@@ -14394,26 +9184,15 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 阿比的技能实在太盐川了
 
 
-
-
-
-
-
 -----
 
 ####  閻魔愛  
 ##### 38317#       发表于 2017-12-8 10:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37930960&amp;ptid=1085254" target="_blank">斯卡哈 发表于 2017-12-8 09:18</a>
 那技一的“全体”宝具威力UP就毫无意义了（</blockquote>
 你要完全发挥阿比技能的话那只能把阿比定位在副攻手+辅助的位子上，那你不会把狐狸换成一个红卡宝具主攻手吗？<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14422,15 +9201,9 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38318#       发表于 2017-12-8 10:18
 
 
-
 <blockquote>斯卡哈 发表于 2017-12-8 08:30
 这是深刻的反省</blockquote>
 常驻四星可以等歪，这是深刻的教训，欧证除外
-
-
-
-
-
 
 
 -----
@@ -14439,20 +9212,13 @@ mb全tmd是海豹，非洲人两发十连只出了黑皮+卡米拉 外加一张2
 ##### 38319#       发表于 2017-12-8 10:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">虽然语音里说是大日如来，但幕间里碰到狐狸的话，哪吒还是会把她当做妲己的
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 38320#       发表于 2017-12-8 10:46
-
 
 
  本帖最后由 黑上シグマ 于 2017-12-8 10:53 编辑 
@@ -14465,18 +9231,12 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  不知道叫什么  
 ##### 38321#       发表于 2017-12-8 11:03
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -14487,12 +9247,10 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  斯卡哈  
 ##### 38323#       发表于 2017-12-8 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37931562&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-8 10:46</a>
@@ -14504,25 +9262,13 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 <img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">早两天多好，刚抽完loli池子
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38324#       发表于 2017-12-8 11:33
 
 
-
-
 扣的一笔，2W只返3000<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14531,18 +9277,11 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 ##### 38325#       发表于 2017-12-8 11:47
 
 
-
-
 做了一个关于奶子统计的调查
 
 有兴趣的朋友们可以进来填一下
 
 [https://wj.qq.com/s/1745221/39bd](https://wj.qq.com/s/1745221/39bd)
-
-
-
-
-
 
 
 -----
@@ -14553,12 +9292,10 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  里村紅葉  
 ##### 38327#       发表于 2017-12-8 18:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37932399&amp;ptid=1085254" target="_blank">守望A黑夜 发表于 2017-12-8 11:47</a>
@@ -14569,16 +9306,10 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 不瞒你说，大部分从者的奶子大小我根本没概念<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38328#       发表于 2017-12-8 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37932399&amp;ptid=1085254" target="_blank">守望A黑夜 发表于 2017-12-8 11:47</a>
@@ -14591,24 +9322,13 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 靠，谁管你BGO咋样（
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38329#       发表于 2017-12-8 18:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">什么时候开活动啊 萌新急缺大量黑灰啊 
-
-
-
-
-
 
 
 -----
@@ -14617,15 +9337,9 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 ##### 38330#       发表于 2017-12-8 19:04
 
 
-
 <blockquote>alucardcz 发表于 2017-12-8 18:46
 什么时候开活动啊 萌新急缺大量黑灰啊</blockquote>
 大概率下周三，不知道这两天的线下活动会不会有情报，再拖怕是凉了
-
-
-
-
-
 
 
 -----
@@ -14634,16 +9348,9 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 ##### 38331#       发表于 2017-12-8 21:27
 
 
-
-
 周二凌晨临时维护，周三开活动稳了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14652,14 +9359,7 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 ##### 38332#       发表于 2017-12-8 21:50
 
 
-
-
 我觉得可以奶这次无限池给啥材料了
-
-
-
-
-
 
 
 -----
@@ -14668,16 +9368,10 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 ##### 38333#       发表于 2017-12-8 22:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37937356&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-8 21:50</a>
 
 我觉得可以奶这次无限池给啥材料了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">1.5的全部新材料
-
-
-
-
-
 
 
 -----
@@ -14686,13 +9380,7 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 ##### 38334#       发表于 2017-12-8 22:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">yc：说的好 那么这次圣诞我们就不做无限池了
-
-
-
-
-
 
 
 -----
@@ -14701,16 +9389,10 @@ google play日服返点活动又来了，用日元卡课的可以行动了
 ##### 38335#       发表于 2017-12-9 00:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37937467&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-8 22:07</a>
 
 yc：说的好 那么这次圣诞我们就不做无限池了</blockquote>
 你别说，毕竟尼禄祭来了个无限池，而且还是技能石的池子，以他的尿性还真有可能取消无限池<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14719,14 +9401,7 @@ yc：说的好 那么这次圣诞我们就不做无限池了</blockquote>
 ##### 38336#       发表于 2017-12-9 05:07
 
 
-
-
 [f:004不无限就不无限吧，最近母猪化了，除了抽卡其他都提不起劲。
-
-
-
-
-
 
 
 -----
@@ -14735,14 +9410,7 @@ yc：说的好 那么这次圣诞我们就不做无限池了</blockquote>
 ##### 38337#       发表于 2017-12-9 09:25
 
 
-
-
 早上起来氪了一单 两发十连 开锁成功 第三发十连两宝大失败
-
-
-
-
-
 
 
 -----
@@ -14751,17 +9419,10 @@ yc：说的好 那么这次圣诞我们就不做无限池了</blockquote>
 ##### 38338#       发表于 2017-12-9 13:43
 
 
-
-
 毒针和海螺都没了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
 根本不够用啊，老王太吃毒针了，泳装用的海螺也不够
-
-
-
-
-
 
 
 -----
@@ -14770,14 +9431,7 @@ yc：说的好 那么这次圣诞我们就不做无限池了</blockquote>
 ##### 38339#       发表于 2017-12-9 19:06
 
 
-
-
 庄主来了，稳了
-
-
-
-
-
 
 
 -----
@@ -14786,13 +9440,7 @@ yc：说的好 那么这次圣诞我们就不做无限池了</blockquote>
 ##### 38340#       发表于 2017-12-9 19:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">圣诞服庄主突然出现！艾蕾酱稳了！
-
-
-
-
-
 
 
 -----
@@ -14801,14 +9449,7 @@ yc：说的好 那么这次圣诞我们就不做无限池了</blockquote>
 ##### 38341#       发表于 2017-12-9 19:41
 
 
-
-
 那么是送艾蕾单体枪稳了吗？不知道我的二宝小恩会不会被值班......
-
-
-
-
-
 
 
 -----
@@ -14817,14 +9458,7 @@ yc：说的好 那么这次圣诞我们就不做无限池了</blockquote>
 ##### 38342#       发表于 2017-12-9 19:44
 
 
-
-
 UFO做冰室还行
-
-
-
-
-
 
 
 -----
@@ -14833,13 +9467,7 @@ UFO做冰室还行
 ##### 38343#       发表于 2017-12-9 19:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">这是年末补刀顺便忌日扫墓吗
-
-
-
-
-
 
 
 -----
@@ -14848,13 +9476,7 @@ UFO做冰室还行
 ##### 38344#       发表于 2017-12-9 19:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">一提到逆光我首先想到的是战国香蕉3的主题曲啊
-
-
-
-
-
 
 
 -----
@@ -14863,14 +9485,7 @@ UFO做冰室还行
 ##### 38345#       发表于 2017-12-9 19:51
 
 
-
-
 盐桌之王登场，然后还在推VR
-
-
-
-
-
 
 
 -----
@@ -14879,14 +9494,7 @@ UFO做冰室还行
 ##### 38346#       发表于 2017-12-9 19:57
 
 
-
-
 艾蕾酱奶活了！！！！！！！！！
-
-
-
-
-
 
 
 -----
@@ -14895,14 +9503,7 @@ UFO做冰室还行
 ##### 38347#       发表于 2017-12-9 19:58
 
 
-
-
 ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14911,14 +9512,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38348#       发表于 2017-12-9 19:58
 
 
-
-
 艾蕾酱五星，果然还是Lancer
-
-
-
-
-
 
 
 -----
@@ -14927,14 +9521,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38349#       发表于 2017-12-9 19:59
 
 
-
-
 好的，我可以省钱了
-
-
-
-
-
 
 
 -----
@@ -14943,14 +9530,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38350#       发表于 2017-12-9 20:03
 
 
-
-
 可以省钱了+1，这次返点跟我没关系了
-
-
-
-
-
 
 
 -----
@@ -14959,14 +9539,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38351#       发表于 2017-12-9 20:04
 
 
-
-
 月球历的中旬....太缥缈
-
-
-
-
-
 
 
 -----
@@ -14975,14 +9548,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38352#       发表于 2017-12-9 20:05
 
 
-
-
 卫星已落地，不知道剧情模型会不会改
-
-
-
-
-
 
 
 -----
@@ -14991,14 +9557,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38353#       发表于 2017-12-9 20:06
 
 
-
-
 果然，10石
-
-
-
-
-
 
 
 -----
@@ -15007,14 +9566,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38354#       发表于 2017-12-9 20:07
 
 
-
-
 安定的盐十石（
-
-
-
-
-
 
 
 -----
@@ -15023,14 +9575,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38355#       发表于 2017-12-9 20:07
 
 
-
-
 这期倍卡除了左下那个我居然都有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15039,16 +9584,9 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38356#       发表于 2017-12-9 20:10
 
 
-
-
 倍卡除了R姐lily以外都有，然而恩奇都和术闪都是1级（
 
 稍微喂一下算了……
-
-
-
-
-
 
 
 -----
@@ -15057,15 +9595,9 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38357#       发表于 2017-12-9 20:14
 
 
-
  本帖最后由 阿提拉 于 2017-12-9 20:21 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">从来都是只喂五星....好歹这次喂了个炎头加上以前的R无毛，基本能打
-
-
-
-
-
 
 
 -----
@@ -15074,14 +9606,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38358#       发表于 2017-12-9 20:19
 
 
-
-
 倍卡好迷啊，茨木天草巴御前不说，羽蛇神跟王哈呢……
-
-
-
-
-
 
 
 -----
@@ -15092,20 +9617,13 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  枫紫  
 ##### 38360#       发表于 2017-12-9 20:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以这就是帕尔瓦蒂4星的原因咯
-
-
-
-
-
 
 
 -----
@@ -15114,13 +9632,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38361#       发表于 2017-12-9 20:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">也不求艾蕾酱技能多屌了，跟伊斯塔完全一样就行（
-
-
-
-
-
 
 
 -----
@@ -15129,14 +9641,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38362#       发表于 2017-12-9 20:28
 
 
-
-
 动画二期与其拍主线不如做活动专辑，幻想嘉年华第二指日可待<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15145,14 +9650,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38363#       发表于 2017-12-9 20:29
 
 
-
-
 哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈哈
-
-
-
-
-
 
 
 -----
@@ -15161,14 +9659,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38364#       发表于 2017-12-9 20:31
 
 
-
-
 两个凛都是五星，反观某路人女主。。
-
-
-
-
-
 
 
 -----
@@ -15177,21 +9668,13 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38365#       发表于 2017-12-9 20:31
 
 
-
-
 圣诞小抽一下，新年日替估计还会up
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 38366#       发表于 2017-12-9 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943558&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-9 20:25</a>
@@ -15203,16 +9686,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 不存在的
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 38367#       发表于 2017-12-9 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943601&amp;ptid=1085254" target="_blank">wang1309495 发表于 2017-12-9 20:31</a>
@@ -15221,16 +9698,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 人数比你多，樱战队5人+BB+雪山<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 38368#       发表于 2017-12-9 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943606&amp;ptid=1085254" target="_blank">シャル 发表于 2017-12-9 20:32</a>
@@ -15242,25 +9713,13 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 不存在的，就算存在肯定又会被苍月画崩
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38369#       发表于 2017-12-9 20:36
 
 
-
-
 兜里的19个杯子终于又有用啦<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15269,16 +9728,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38370#       发表于 2017-12-9 20:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943601&amp;ptid=1085254" target="_blank">wang1309495 发表于 2017-12-9 20:31</a>
 
 两个凛都是五星，反观某路人女主。。</blockquote>
 泳装凛几星？
-
-
-
-
-
 
 
 -----
@@ -15287,14 +9740,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38371#       发表于 2017-12-9 20:39
 
 
-
-
 靠，free刷的石乐制，都忘记有生放了
-
-
-
-
-
 
 
 -----
@@ -15303,14 +9749,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38372#       发表于 2017-12-9 20:40
 
 
-
-
 哟西，翻个页
-
-
-
-
-
 
 
 -----
@@ -15319,16 +9758,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38373#       发表于 2017-12-9 20:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943601&amp;ptid=1085254" target="_blank">wang1309495 发表于 2017-12-9 20:31</a>
 
 两个凛都是五星，反观某路人女主。。</blockquote>
 而且说不定两个都限定
-
-
-
-
-
 
 
 -----
@@ -15337,20 +9770,13 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38374#       发表于 2017-12-9 20:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">艾蕾酱不是泥潭一群人日日盼夜夜等着落地吗....怎么一出来都说省钱了
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 38375#       发表于 2017-12-9 20:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943693&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-9 20:50</a>
@@ -15361,16 +9787,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 我从没有哪怕一次期待过（
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 38376#       发表于 2017-12-9 20:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943693&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-9 20:50</a>
@@ -15379,16 +9799,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 能够抽就代表别人也能得到，失去了唯一性，又不能再闹出艾蕾，所以就能说省钱了
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38377#       发表于 2017-12-9 20:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943663&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-9 20:43</a>
@@ -15397,16 +9811,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 艾蕾是限定啊，宣传图都写了
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38378#       发表于 2017-12-9 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943693&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-9 20:50</a>
@@ -15415,16 +9823,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 这个月无论礼品卡还是汇率都是低位，我选择安心当母猪
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38379#       发表于 2017-12-9 20:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943727&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-9 20:54</a>
@@ -15433,16 +9835,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 照你这么说每落地一个卫星都可以说省钱了.....
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 38380#       发表于 2017-12-9 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943753&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-9 20:59</a>
@@ -15451,16 +9847,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 愉快犯不就是这样。等真出了又会吵太弱或太op了
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38381#       发表于 2017-12-9 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943693&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-9 20:50</a>
@@ -15469,16 +9859,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我可是奶了半年这次连女帝都顾不得奶了，肯定抽爆啊（
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 38382#       发表于 2017-12-9 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943739&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-9 20:56</a>
@@ -15487,16 +9871,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 看到了，可以说是非常呵呵的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">4星恒常和5星限定的差
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38383#       发表于 2017-12-9 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943693&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-9 20:50</a>
@@ -15505,32 +9883,19 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 反正不管别人,艾蕾落地我可是盼了一年了,这次这氪金母猪和这个月的盐卫兵我是当定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  绫魂h  
 ##### 38384#       发表于 2017-12-9 21:04
 
 
-
-
 总感觉第三期送的的活动从者大王LILY没可能了
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 38385#       发表于 2017-12-9 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943801&amp;ptid=1085254" target="_blank">绫魂h 发表于 2017-12-9 21:04</a>
@@ -15541,25 +9906,13 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 不知道这个靠谱不靠谱
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 38386#       发表于 2017-12-9 21:27
 
 
-
-
 终于奶活了，可惜日服无缘，艾蕾酱，我国服再接你回来<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15568,21 +9921,13 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38387#       发表于 2017-12-9 21:37
 
 
-
-
 如果主谋是艾蕾，那送的可能是羽蛇神，毕竟夏天破了伊丝塔的阴谋
-
-
-
-
-
 
 
 -----
 
 ####  阿提拉  
 ##### 38388#       发表于 2017-12-9 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943988&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-9 21:37</a>
@@ -15594,16 +9939,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 还是奶送提妈Lily好了，UMB唱歌贼好听（
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 38389#       发表于 2017-12-9 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37944113&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-9 21:54</a>
@@ -15615,26 +9954,15 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ”我很寂寞，主角快下来“ 导致热病的话羽蛇神会很乐意教训艾蕾的，而且送过劳死闪闪机会可能更大
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38390#       发表于 2017-12-9 22:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37943988&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-9 21:37</a>
 如果主谋是艾蕾，那送的可能是羽蛇神，毕竟夏天破了伊丝塔的阴谋</blockquote>
 什么,艾蕾酱会搞事?不可能的啦,天下第一可爱的艾蕾酱怎么会搞事呢..艾蕾酱搞事,那能叫搞事吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15643,15 +9971,9 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38391#       发表于 2017-12-9 22:01
 
 
-
 <blockquote>森兰丸 发表于 2017-12-9 20:50
 艾蕾酱不是泥潭一群人日日盼夜夜等着落地吗....怎么一出来都说省钱了 ...</blockquote>
 哈哈哈我就是，盼星星盼月亮等落地，签名一直是艾蕾快实装没改过，但是真出了还是觉得省钱了。。。主要就是穷
-
-
-
-
-
 
 
 -----
@@ -15660,14 +9982,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38392#       发表于 2017-12-9 22:04
 
 
-
-
 羽蛇神这人气当不了配布从者吧……闪闪要不是已经有几个同素异形体了倒是很有可能
-
-
-
-
-
 
 
 -----
@@ -15676,13 +9991,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38393#       发表于 2017-12-9 22:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在一想，天草第一定律果然名不虚传，钥匙孔艾蕾连续骗氪，月底估计还有一波
-
-
-
-
-
 
 
 -----
@@ -15693,21 +10002,13 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  扎比子  
 ##### 38395#       发表于 2017-12-9 22:14
 
 
-
-
 对我来说是真省钱了，现在希望新年落地千子村正，继续省钱一波
-
-
-
-
-
 
 
 -----
@@ -15716,16 +10017,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38396#       发表于 2017-12-9 22:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37944152&amp;ptid=1085254" target="_blank">heemoon 发表于 2017-12-9 22:01</a>
 
 哈哈哈我就是，盼星星盼月亮等落地，签名一直是艾蕾快实装没改过，但是真出了还是觉得省钱了。。。主要就 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">要相信自己对艾蕾酱的爱一定能让自己白嫖到啊
-
-
-
-
-
 
 
 -----
@@ -15734,14 +10029,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38397#       发表于 2017-12-9 23:13
 
 
-
-
 圣诞奶一下尼禄，毕竟你游第一亲女儿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15750,14 +10038,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38398#       发表于 2017-12-9 23:23
 
 
-
-
 记得盐川之前说过不是要开位的吗就？怎么又变了？
-
-
-
-
-
 
 
 -----
@@ -15766,23 +10047,16 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38399#       发表于 2017-12-9 23:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37855239&amp;ptid=1085254" target="_blank">丘萤之光 发表于 2017-11-28 21:09:52</a>
 这次圣诞出艾蕾应该稳了吧，都要求一部通关了</blockquote>哈哈我居然奶中了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 38400#       发表于 2017-12-9 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37944113&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-9 21:54</a>
@@ -15799,25 +10073,13 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 你说会不会搞事
 
 
-
-
-
-
-
 -----
 
 ####  yueyut  
 ##### 38401#       发表于 2017-12-10 00:02
 
 
-
-
 圣诞无限池的话，艾蕾必抽啊，不算别的也要为了加成礼装去抽
-
-
-
-
-
 
 
 -----
@@ -15826,14 +10088,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38402#       发表于 2017-12-10 00:03
 
 
-
-
 圣诞无限池的话，艾蕾必抽啊，不算别的也要为了加成礼装去抽
-
-
-
-
-
 
 
 -----
@@ -15842,14 +10097,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38403#       发表于 2017-12-10 00:04
 
 
-
-
 圣诞无限池的话，艾蕾必抽啊，不算别的也要为了加成礼装去抽
-
-
-
-
-
 
 
 -----
@@ -15858,14 +10106,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38404#       发表于 2017-12-10 00:05
 
 
-
-
 圣诞无限池的话，艾蕾必抽啊，不算别的也要为了加成礼装去抽
-
-
-
-
-
 
 
 -----
@@ -15874,13 +10115,7 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38405#       发表于 2017-12-10 00:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">LS激动了
-
-
-
-
-
 
 
 -----
@@ -15889,16 +10124,9 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38406#       发表于 2017-12-10 00:45
 
 
-
-
 其实生放送里盐川的说法是今年也会有santa，但没有明说会送从者吧，说不定就是前代客串或者干脆只是剧情人物不实装，不然活动从者无加成太奇怪
 
 到时候你们ycfm他还可以说菌哥哥脚本就是这么写的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15907,16 +10135,10 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38407#       发表于 2017-12-10 00:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37945217&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-12-10 00:45</a>
 
 其实生放送里盐川的说法是今年也会有santa，但没有明说会送从者吧，说不定就是前代客串或者干脆只是剧情人 ...</blockquote>
 这个名单只是现有落地的，让你可以提前强化，艾蕾酱怎么可能不是加成从者，活动从者明显也是有的
-
-
-
-
-
 
 
 -----
@@ -15925,16 +10147,9 @@ ssr枪光炮艾蕾，好的省钱了<img src="https://static.saraba1st.com/image
 ##### 38408#       发表于 2017-12-10 00:55
 
 
-
-
 LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置啊，一发十连够你刷30管体力了
 
 另外按照以前无限池的玩法，池子加成礼装都是换4掉1死命刷的，氪金礼装在无限池的作用其实不怎么样
-
-
-
-
-
 
 
 -----
@@ -15943,14 +10158,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38409#       发表于 2017-12-10 01:27
 
 
-
-
 yc大爷目前已经靠凛预定走了我的17个杯子，请继续，谢谢，明年活动四星艾蕾酱好不好<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15959,16 +10167,10 @@ yc大爷目前已经靠凛预定走了我的17个杯子，请继续，谢谢，�
 ##### 38410#       发表于 2017-12-10 10:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37945217&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-12-10 00:45</a>
 
 其实生放送里盐川的说法是今年也会有santa，但没有明说会送从者吧，说不定就是前代客串或者干脆只是剧情人 ...</blockquote>
 说反了，是今年不一定有santa，也和往年一样没有明说会送从者
-
-
-
-
-
 
 
 -----
@@ -15977,20 +10179,13 @@ yc大爷目前已经靠凛预定走了我的17个杯子，请继续，谢谢，�
 ##### 38411#       发表于 2017-12-10 10:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/151.gif" referrerpolicy="no-referrer">不会这次真的要送男人吧。。。
-
-
-
-
-
 
 
 -----
 
 ####  里村紅葉  
 ##### 38412#       发表于 2017-12-10 10:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37945269&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-10 00:55</a>
@@ -16001,16 +10196,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 我的想法倒是相反的，因为无限池的袜子本不会掉其他材料，所以抽氪金礼装加快材料毕业速度可以腾出时间去刷无限池啊<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38413#       发表于 2017-12-10 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37946957&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-10 10:49</a>
@@ -16019,16 +10208,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">完全可以不刷材料嘛（
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38414#       发表于 2017-12-10 10:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37946979&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-10 10:52</a>
@@ -16040,16 +10223,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 当然这次无限池估计是送棋子了，不用刷很猛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cwj101010  
 ##### 38415#       发表于 2017-12-10 11:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37944248&amp;ptid=1085254" target="_blank">扎比子 发表于 2017-12-9 22:14</a>
@@ -16058,16 +10235,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 不能同意更多233
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38416#       发表于 2017-12-10 13:35
-
 
 
 <blockquote>里村紅葉 发表于 2017-12-10 10:54
@@ -16078,16 +10249,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 奶一口棋子饼干都送，做人要有梦想
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38417#       发表于 2017-12-10 13:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37948030&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-10 13:35</a>
@@ -16096,25 +10261,13 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">盐川：来，继续睡，这次连圣诞alter都没了所以没有无限池了，为了不让大家太闲我把兑换需要的掉落物设置为很多
 
 
-
-
-
-
-
 -----
 
 ####  sakaki59  
 ##### 38418#       发表于 2017-12-10 14:11
 
 
-
-
 今天发了10石，好像又能凑发十连出来了,希望能抽到，我还没五星枪光炮呢...
-
-
-
-
-
 
 
 -----
@@ -16123,14 +10276,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38419#       发表于 2017-12-10 14:59
 
 
-
-
 充了三单，一单给外地人2单留给艾蕾，结果不到一单就出了阿比<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16139,14 +10285,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38420#       发表于 2017-12-10 16:36
 
 
-
-
 打了豹人，黑皮和哪吒的幕间，给了好多材料，新幕间真的是好文明啊
-
-
-
-
-
 
 
 -----
@@ -16155,16 +10294,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38421#       发表于 2017-12-10 17:24
 
 
-
 <img src="https://wx3.sinaimg.cn/mw690/53017269ly1fmbbz81x2dj20k00k7adh.jpg" referrerpolicy="no-referrer">
 
 
 大家氪，大家氪
-
-
-
-
-
 
 
 -----
@@ -16173,14 +10306,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38422#       发表于 2017-12-10 21:32
 
 
-
-
 提醒下，晚上12点开始维护5小时
-
-
-
-
-
 
 
 -----
@@ -16189,14 +10315,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38423#       发表于 2017-12-10 21:58
 
 
-
-
 啊，终于我也有9阶五星可挂了
-
-
-
-
-
 
 
 -----
@@ -16205,14 +10324,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38424#       发表于 2017-12-11 01:03
 
 
-
-
 回错了编辑。。。
-
-
-
-
-
 
 
 -----
@@ -16221,13 +10333,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38425#       发表于 2017-12-11 01:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">输了  在打猛汗回头一看已经维护了.体力凉了!
-
-
-
-
-
 
 
 -----
@@ -16236,13 +10342,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38426#       发表于 2017-12-11 02:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">维护结束后就开圣诞吧
-
-
-
-
-
 
 
 -----
@@ -16251,14 +10351,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38427#       发表于 2017-12-11 10:09
 
 
-
-
 能不能带着恩奇都一起up啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16267,17 +10360,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38428#       发表于 2017-12-11 10:25
 
 
-
-
 没有饼干我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 只出棋子我也要刷啊，现在满级的只有大英雄<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16286,16 +10372,9 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38429#       发表于 2017-12-11 11:16
 
 
-
-
 这种池子主up是不会变的吧，也就是说就算up恩奇都也是双up……
 
 要是开个恩奇都+贤王闪的副池子就赞美盐川<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16304,14 +10383,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38430#       发表于 2017-12-11 11:26
 
 
-
-
 伊斯坦有送骑阶，艾蕾要不要奶一下以后活动送4星呢？
-
-
-
-
-
 
 
 -----
@@ -16320,14 +10392,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38431#       发表于 2017-12-11 11:35
 
 
-
-
 没传承结晶了，感觉刷啥都没用了......玩这游戏太博爱也不太好......
-
-
-
-
-
 
 
 -----
@@ -16336,23 +10401,15 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38432#       发表于 2017-12-11 14:34
 
 
-
-
 30连抽硬盘萝莉，成果是孔明x1、C闪x1、芬恩x1、马大x1<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">迫真歪国人池
 
 为什么每次古狗返点前我都歪的一塌糊涂<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 38433#       发表于 2017-12-11 14:57
-
 
 
 <blockquote>里村紅葉 发表于 2017-12-11 14:34
@@ -16362,16 +10419,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 能把你的孔明分我1宝么
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38434#       发表于 2017-12-11 14:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37956778&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-11 14:57</a>
@@ -16380,31 +10431,19 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 如果可以的话我也想啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  C.Ronaldo  
 ##### 38435#       发表于 2017-12-11 15:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这游戏对非洲人太不友好了！
-
-
-
-
-
 
 
 -----
 
 ####  斯卡哈  
 ##### 38436#       发表于 2017-12-11 15:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37956530&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-11 14:34</a>
@@ -16415,16 +10454,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你这孔明什么时候把一技能再升2级啊
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38437#       发表于 2017-12-11 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37956896&amp;ptid=1085254" target="_blank">斯卡哈 发表于 2017-12-11 15:06</a>
@@ -16433,16 +10466,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 圣诞给毛就去升<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  静静的古墓  
 ##### 38438#       发表于 2017-12-11 15:26
-
 
 
  本帖最后由 静静的古墓 于 2017-12-11 15:28 编辑 
@@ -16454,16 +10481,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 孔明我已经歪到5宝了，不知道为什么一直出大军师。抽萝莉我歪了呆毛王，还是白光出的。
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 38439#       发表于 2017-12-11 16:32
-
 
 
 <blockquote>茛菪 发表于 2017-12-11 11:16
@@ -16473,16 +10494,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 不要啊，小恩就是用来污染卡池的
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38440#       发表于 2017-12-11 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37957140&amp;ptid=1085254" target="_blank">静静的古墓 发表于 2017-12-11 15:26</a>
@@ -16493,25 +10508,13 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真好啊，为什么我这边是船长歪到五宝（
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 38441#       发表于 2017-12-11 17:04
 
 
-
-
 美服没特意抽过的呆毛和大公都歪到五宝了（算福袋），我知道大公以后加强了是好打手，可呆毛王……算了狩猎活动时打一炮还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16520,23 +10523,16 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38442#       发表于 2017-12-11 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37957996&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-11 16:58</a>
 
 真好啊，为什么我这边是船长歪到五宝（</blockquote>
 五宝船长比大军师有意义得多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38443#       发表于 2017-12-11 17:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37957996&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-11 16:58</a>
@@ -16546,32 +10542,19 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38444#       发表于 2017-12-11 17:10
 
 
-
-
 然而我船长满绊以后再没拿出来用过（
-
-
-
-
-
 
 
 -----
 
 ####  里村紅葉  
 ##### 38445#       发表于 2017-12-11 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37958098&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-11 17:10</a>
@@ -16581,16 +10564,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38446#       发表于 2017-12-11 17:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37958130&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-11 17:13</a>
@@ -16602,24 +10579,13 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">孔明哪怕满绊了也得接着用啊，所以对我来说还是孔明满宝更好（然而现实是只有一宝
 
 
-
-
-
-
-
 -----
 
 ####  C.Ronaldo  
 ##### 38447#       发表于 2017-12-11 17:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看满宝大佬晒卡
-
-
-
-
-
 
 
 -----
@@ -16628,16 +10594,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38448#       发表于 2017-12-11 17:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37958172&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-11 17:17</a>
 
 孔明哪怕满绊了也得接着用啊，所以对我来说还是孔明满宝更好（然而现实是只有一宝 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">萌新孔明满绊扔仓库了 好久没拿出来用过了啊
-
-
-
-
-
 
 
 -----
@@ -16646,13 +10606,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38449#       发表于 2017-12-11 18:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">满绊大英雄和孔明的表示你们要给我加一辈子班....活动周回刷素材就算少点加成大英雄也是一定要上的
-
-
-
-
-
 
 
 -----
@@ -16663,21 +10617,13 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  heemoon  
 ##### 38451#       发表于 2017-12-11 19:15
 
 
-
-
 除了高难以外梅孔满绊后都很久没用过了，上宝石平时谁来扶这20np都一样。。。
-
-
-
-
-
 
 
 -----
@@ -16686,22 +10632,13 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38452#       发表于 2017-12-11 19:22
 
 
-
-
 我孔明没满绊也在吃灰了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有事直接嫖别人的更方便（
-
-
-
-
-
 
 
 -----
 
 ####  wang1309495  
 ##### 38453#       发表于 2017-12-11 19:43
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201712/11/194209wc5j28x8jlm592oi.jpg" referrerpolicy="no-referrer">
@@ -16714,15 +10651,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 2017-12-11 19:42 上传
 
 
-
-
-
 ，冥界圣诞节，冲田lily稳了。<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16731,14 +10660,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38454#       发表于 2017-12-12 03:52
 
 
-
-
 冥界圣诞，奶一口魔神冲田
-
-
-
-
-
 
 
 -----
@@ -16747,13 +10669,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38455#       发表于 2017-12-12 09:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">魔神总司说出来我自己都不信
-
-
-
-
-
 
 
 -----
@@ -16762,13 +10678,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38456#       发表于 2017-12-12 09:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然是提妈Lily啦，能登都有四星UMB也不能全是五星
-
-
-
-
-
 
 
 -----
@@ -16777,14 +10687,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38457#       发表于 2017-12-12 09:43
 
 
-
-
 没人奶男从者么，比如黑狗lily
-
-
-
-
-
 
 
 -----
@@ -16793,21 +10696,13 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38458#       发表于 2017-12-12 09:46
 
 
-
-
 你们为啥非要奶lily版的
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 38459#       发表于 2017-12-12 09:47
-
 
 
 <blockquote>引用第38457楼dante888于2017-12-12 09:43发表的  :
@@ -16819,11 +10714,6 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  不知道叫什么  
@@ -16832,21 +10722,13 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dreamd  
 ##### 38461#       发表于 2017-12-12 12:23
 
 
-
-
 下午该有新消息了吧
-
-
-
-
-
 
 
 -----
@@ -16855,14 +10737,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38462#       发表于 2017-12-12 12:26
 
 
-
-
 翻☆页
-
-
-
-
-
 
 
 -----
@@ -16871,14 +10746,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38463#       发表于 2017-12-12 16:07
 
 
-
-
 阿比终于2宝了，为了冥府凛预充了10单（怎么还不出5星清姬，本当气死咱了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
@@ -16887,14 +10755,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38464#       发表于 2017-12-12 16:12
 
 
-
-
 日服客户端是不是优化过啊 怎么感觉这次下载下来闪退少了
-
-
-
-
-
 
 
 -----
@@ -16903,13 +10764,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38465#       发表于 2017-12-12 16:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">菌鸽鸽写剧本，送的英灵卡面是武内没跑了！
-
-
-
-
-
 
 
 -----
@@ -16918,14 +10773,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38466#       发表于 2017-12-12 17:02
 
 
-
-
 无事发生，明天难道凉了？
-
-
-
-
-
 
 
 -----
@@ -16934,13 +10782,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38467#       发表于 2017-12-12 17:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">摸了，本周八成长草了
-
-
-
-
-
 
 
 -----
@@ -16949,14 +10791,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38468#       发表于 2017-12-12 17:35
 
 
-
-
 于是本周的任务还得去打材料本咯orz
-
-
-
-
-
 
 
 -----
@@ -16965,14 +10800,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38469#       发表于 2017-12-12 17:53
 
 
-
-
 长草好啊，可以将老本也拿出来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16981,14 +10809,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38470#       发表于 2017-12-12 18:26
 
 
-
-
 妈的中旬
-
-
-
-
-
 
 
 -----
@@ -16997,13 +10818,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38471#       发表于 2017-12-12 18:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活动都说了12月中旬开....月球历中旬是什么时候你们心里还没个底吗
-
-
-
-
-
 
 
 -----
@@ -17012,14 +10827,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38472#       发表于 2017-12-12 18:36
 
 
-
-
 系统公告都出了，不出意外就是明天了吧。
-
-
-
-
-
 
 
 -----
@@ -17028,16 +10836,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38473#       发表于 2017-12-12 19:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37967616&amp;ptid=1085254" target="_blank">香蜂草 发表于 2017-12-12 18:36:53</a>
 系统公告都出了，不出意外就是明天了吧。</blockquote>这不还是预告么……拖一周再出详细都有可能
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17046,14 +10848,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38474#       发表于 2017-12-12 22:38
 
 
-
-
 维护通知都没用<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17062,15 +10857,9 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38475#       发表于 2017-12-13 09:46
 
 
-
  本帖最后由 dreamd 于 2017-12-13 09:47 编辑 
 
 这s1改了版面进高楼还真有点不适应
-
-
-
-
-
 
 
 -----
@@ -17079,16 +10868,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38476#       发表于 2017-12-13 09:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37972109&amp;ptid=1085254" target="_blank">dreamd 发表于 2017-12-13 09:46</a>
 
 这s1改了版面进高楼还真有点不适应</blockquote>
 最上翻页。。。。
-
-
-
-
-
 
 
 -----
@@ -17097,14 +10880,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38477#       发表于 2017-12-13 10:04
 
 
-
-
 继续奶公告了
-
-
-
-
-
 
 
 -----
@@ -17113,14 +10889,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38478#       发表于 2017-12-13 11:27
 
 
-
-
 刚还在想新版能不能解决卡楼问题就改回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17129,15 +10898,9 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38479#       发表于 2017-12-13 11:38
 
 
-
 <blockquote>里村紅葉 发表于 2017-12-13 11:27
 刚还在想新版能不能解决卡楼问题就改回来了</blockquote>
 翻页挺好玩的
-
-
-
-
-
 
 
 -----
@@ -17146,16 +10909,10 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38480#       发表于 2017-12-13 11:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37973216&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-13 11:38</a>
 
 翻页挺好玩的</blockquote>
 翻不过去的那两楼基本得不到回复了，体验极差<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17164,13 +10921,7 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38481#       发表于 2017-12-13 11:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个池子
-
-
-
-
-
 
 
 -----
@@ -17179,15 +10930,9 @@ LS那位很激动的同学，为了加成礼装去抽池子其实是本末倒置
 ##### 38482#       发表于 2017-12-13 12:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37973328&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-13 11:49</a>
 VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个池子</blockquote>
 肯定是圣诞预热池啦,乌鲁克相簿绝赞up<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17196,14 +10941,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38483#       发表于 2017-12-13 14:26
 
 
-
-
 剑豪篇不就是无缝热更新的吗，要相信DW的技术力呀<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17212,16 +10950,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38484#       发表于 2017-12-13 14:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37974637&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-12-13 14:26</a>
 
 剑豪篇不就是无缝热更新的吗，要相信DW的技术力呀</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">但好歹有个详细点的预告先啊
-
-
-
-
-
 
 
 -----
@@ -17232,20 +10964,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  阿提拉  
 ##### 38486#       发表于 2017-12-13 17:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">鸽了，什么都没有
-
-
-
-
-
 
 
 -----
@@ -17254,15 +10979,9 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38487#       发表于 2017-12-13 17:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 一首凉凉
-
-
-
-
-
 
 
 -----
@@ -17271,14 +10990,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38488#       发表于 2017-12-13 17:03
 
 
-
-
 官网屁都没有，药丸啊
-
-
-
-
-
 
 
 -----
@@ -17287,14 +10999,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38489#       发表于 2017-12-13 17:03
 
 
-
-
 出公告了，15号
-
-
-
-
-
 
 
 -----
@@ -17303,14 +11008,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38490#       发表于 2017-12-13 17:04
 
 
-
-
 哈哈哈哈哈哈哈大王Lily
-
-
-
-
-
 
 
 -----
@@ -17319,14 +11017,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38491#       发表于 2017-12-13 17:05
 
 
-
-
 大王！！！
-
-
-
-
-
 
 
 -----
@@ -17335,14 +11026,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38492#       发表于 2017-12-13 17:05
 
 
-
-
 喷了,大王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17351,14 +11035,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38493#       发表于 2017-12-13 17:06
 
 
-
-
 大王lily和无限池，赞美yc
-
-
-
-
-
 
 
 -----
@@ -17367,14 +11044,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38494#       发表于 2017-12-13 17:07
 
 
-
-
 喷了大王莉<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17383,14 +11053,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38495#       发表于 2017-12-13 17:07
 
 
-
-
 所以假设你狗能再撑几年，后面真的会有黑狗lily吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17399,14 +11062,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38496#       发表于 2017-12-13 17:08
 
 
-
-
 大王lily
-
-
-
-
-
 
 
 -----
@@ -17415,16 +11071,9 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38497#       发表于 2017-12-13 17:08
 
 
-
-
 大王Lily还行
 
 —— 来自 Xiaomi Redmi Note 2, Android 5.0.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.2
-
-
-
-
-
 
 
 -----
@@ -17433,14 +11082,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38498#       发表于 2017-12-13 17:09
 
 
-
-
 艾蕾的atk是不是再刷枪阶新低<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17449,17 +11091,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38499#       发表于 2017-12-13 17:09
 
 
-
-
 这池子略毒啊，刚把大王满宝....千万别歪千万别歪
 
 
 艾蕾酱这个白值还是偏科了
-
-
-
-
-
 
 
 -----
@@ -17468,14 +11103,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38500#       发表于 2017-12-13 17:12
 
 
-
-
 决定了，不抽艾蕾了石头全部抽大王，人活着就是为了能登
-
-
-
-
-
 
 
 -----
@@ -17484,13 +11112,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38501#       发表于 2017-12-13 17:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这个大王是活动送的吧，不用抽
-
-
-
-
-
 
 
 -----
@@ -17499,14 +11121,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38502#       发表于 2017-12-13 17:14
 
 
-
-
 ..........居然..一个黑灰都不送......凉了!
-
-
-
-
-
 
 
 -----
@@ -17515,16 +11130,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38503#       发表于 2017-12-13 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976457&amp;ptid=1085254" target="_blank">闽明 发表于 2017-12-13 17:14</a>
 
 这个大王是活动送的吧，不用抽</blockquote>
 送的，但是池子里有五星大王啊。艾蕾酱的出率八成要受影响（
-
-
-
-
-
 
 
 -----
@@ -17533,13 +11142,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38504#       发表于 2017-12-13 17:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">艾蕾这16000的hp。。。。。。。。
-
-
-
-
-
 
 
 -----
@@ -17548,16 +11151,9 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38505#       发表于 2017-12-13 17:20
 
 
-
-
 盐川第一定律：高人气从者强度基本是弱鸡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -17566,14 +11162,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38506#       发表于 2017-12-13 17:20
 
 
-
-
 居然不能换羽毛，但愿有哪个本可以大量刷刷吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17582,13 +11171,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38507#       发表于 2017-12-13 17:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">这无限池的材料完全不想刷了。。。。安心做死鱼算了
-
-
-
-
-
 
 
 -----
@@ -17597,23 +11180,16 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38508#       发表于 2017-12-13 17:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">活动25号结束，怕是还要留点时间给那谁上香
 
 
 艾蕾酱宝具最后的效果不知道具体如何，要是能和第七章冥界的加护效果一样就好了（
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38509#       发表于 2017-12-13 17:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976532&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-13 17:20</a>
@@ -17625,16 +11201,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我来奶一口技能 其中一个功血逆转
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38510#       发表于 2017-12-13 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976570&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-13 17:23</a>
@@ -17646,16 +11216,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 醒醒 最后的效果是有冥界加护状态的人攻击up 不是给你冥界的加护。。。。
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38511#       发表于 2017-12-13 17:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976572&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-13 17:23</a>
@@ -17665,25 +11229,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 38512#       发表于 2017-12-13 17:28
 
 
-
-
 每个圣诞活动不是出现在礼装就是出现在卡池里的凛，今年X3<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17692,14 +11244,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38513#       发表于 2017-12-13 17:29
 
 
-
-
 卜要慌，艾蕾酱说不定是绿拐呢
-
-
-
-
-
 
 
 -----
@@ -17708,14 +11253,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38514#       发表于 2017-12-13 17:31
 
 
-
-
 光顾着看艾蕾没注意,这次的五星礼装好像还阔以..
-
-
-
-
-
 
 
 -----
@@ -17724,14 +11262,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38515#       发表于 2017-12-13 17:33
 
 
-
-
 送大王就是好文明<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17740,14 +11271,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38516#       发表于 2017-12-13 17:34
 
 
-
-
 艾蕾酱这跟村姑一样的攻血数据
-
-
-
-
-
 
 
 -----
@@ -17756,14 +11280,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38517#       发表于 2017-12-13 17:36
 
 
-
-
 大王并不是lily，就是圣诞老人版，不过名字挺怪的......
-
-
-
-
-
 
 
 -----
@@ -17772,16 +11289,9 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38518#       发表于 2017-12-13 17:38
 
 
-
-
 这后缀看着像the sun？
 
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -17790,14 +11300,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38519#       发表于 2017-12-13 17:41
 
 
-
-
 期待明年圣诞送伊阿宋hhhhh
-
-
-
-
-
 
 
 -----
@@ -17806,21 +11309,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38520#       发表于 2017-12-13 17:42
 
 
-
-
 艾蕾这白值有病吧？是不是有病啊？正好我不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 38521#       发表于 2017-12-13 17:43
-
 
 
  本帖最后由 angelooo 于 2017-12-13 17:56 编辑 
@@ -17832,27 +11327,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 这五星礼装真好看啊真好看<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38522#       发表于 2017-12-13 17:47
 
 
-
-
 翻页
-
-
-
-
-
 
 
 -----
@@ -17861,17 +11342,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38523#       发表于 2017-12-13 17:47
 
 
-
-
 这池子微妙…刷个50池，狗粮喂满新来那几个行了
 剩下这点石头纠结要不要抽外星萝莉算了…
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17880,14 +11354,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38524#       发表于 2017-12-13 17:49
 
 
-
-
 卜药慌，想想枪狐白值不也那样么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17896,16 +11363,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38525#       发表于 2017-12-13 17:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976754&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-13 17:42</a>
 
 艾蕾这白值有病吧？是不是有病啊？正好我不抽了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你怎么老是不抽呢 看我石头好久没超过3了
-
-
-
-
-
 
 
 -----
@@ -17914,14 +11375,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38526#       发表于 2017-12-13 17:50
 
 
-
-
 希望是单体弓，这样对上柳生老爷子就不需要碎那么多石头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17930,16 +11384,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38527#       发表于 2017-12-13 17:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976823&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-13 17:49</a>
 
 你怎么老是不抽呢 看我石头好久没超过3了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">因为非洲人不像萌新那样白嫖都能出一堆限定5星啊....当然要计划打算了
-
-
-
-
-
 
 
 -----
@@ -17948,16 +11396,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38528#       发表于 2017-12-13 17:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976866&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-13 17:53</a>
 
 因为非洲人不像萌新那样白嫖都能出一堆限定5星啊....当然要计划打算了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">万一集中抽爆死的话以后不是看不见你了！
-
-
-
-
-
 
 
 -----
@@ -17966,14 +11408,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38529#       发表于 2017-12-13 17:56
 
 
-
-
 氪金礼装不错，池子礼装真垃圾，艾蕾1宝收藏省钱了
-
-
-
-
-
 
 
 -----
@@ -17982,14 +11417,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38530#       发表于 2017-12-13 17:57
 
 
-
-
 池子还是要刷的，饼干永远不嫌多
-
-
-
-
-
 
 
 -----
@@ -17998,14 +11426,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38531#       发表于 2017-12-13 17:59
 
 
-
-
 这4星礼装上塔喵的胸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18014,14 +11435,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38532#       发表于 2017-12-13 18:15
 
 
-
-
 看了看演示动画，应该是单体弓了，好了，老爷子那场可以省几颗石头了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18030,16 +11444,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38533#       发表于 2017-12-13 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976881&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-13 17:55</a>
 
 万一集中抽爆死的话以后不是看不见你了！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">那就只能继续攒石等几个月后的下一次暴死...我们非洲人玩游戏是这样的
-
-
-
-
-
 
 
 -----
@@ -18048,14 +11456,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38534#       发表于 2017-12-13 18:20
 
 
-
-
 风怒了
-
-
-
-
-
 
 
 -----
@@ -18064,23 +11465,15 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38535#       发表于 2017-12-13 18:25
 
 
-
-
 要真是圣诞送的全是章节boss的话，那么后年是不是可以期待所罗门不对是盖缇亚圣诞ver？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 38536#       发表于 2017-12-13 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37977173&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-13 18:25</a>
@@ -18092,16 +11485,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 到时候实装人王啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38537#       发表于 2017-12-13 18:46
-
 
 
 <blockquote>阿提拉 发表于 2017-12-13 18:25
@@ -18112,16 +11499,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 特斯拉啦
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38538#       发表于 2017-12-13 18:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37977364&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-13 18:46</a>
@@ -18130,16 +11511,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">特斯拉又不是该章boss，乳上都比他（
 
 
-
-
-
-
-
 -----
 
 ####  sakaki59  
 ##### 38539#       发表于 2017-12-13 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37977173&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-13 18:25</a>
@@ -18151,16 +11526,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 真要活了七年，相信我，更夸张的玩意也肯定送了......
 
 
-
-
-
-
-
 -----
 
 ####  绫魂h  
 ##### 38540#       发表于 2017-12-13 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37977378&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-13 18:47</a>
@@ -18169,25 +11538,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 第四章送的黑枪呆版的话，第六章送白枪呆版？
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 38541#       发表于 2017-12-13 18:54
 
 
-
-
 喂喂，这阿提拉骑的不是羊啊，搞不好是祭祀长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18196,16 +11553,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38542#       发表于 2017-12-13 18:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37976934&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-13 17:59</a>
 
 这4星礼装上塔喵的胸</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">丰胸猪皮的效果真的太显著了
-
-
-
-
-
 
 
 -----
@@ -18214,16 +11565,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38543#       发表于 2017-12-13 20:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37977444&amp;ptid=1085254" target="_blank">シャル 发表于 2017-12-13 18:54</a>
 
 喂喂，这阿提拉骑的不是羊啊，搞不好是祭祀长</blockquote>
 也太猎奇了把，不愧是阿提拉SAN（ta）<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18232,14 +11577,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38544#       发表于 2017-12-13 20:59
 
 
-
-
 明年到2部之间的过渡反正是个关键点。
-
-
-
-
-
 
 
 -----
@@ -18248,21 +11586,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38545#       发表于 2017-12-13 21:58
 
 
-
-
 只有十天？肝疼<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 38546#       发表于 2017-12-13 22:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37978896&amp;ptid=1085254" target="_blank">alaya 发表于 2017-12-13 21:58</a>
@@ -18273,11 +11603,6 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 而且这次覆盖了2个周末，时间比去年好太多太多，唯一不如去年的就是无限池的4个素材了
 
 
-
-
-
-
-
 -----
 
 ####  阿鼻屎  
@@ -18286,28 +11611,19 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  habita  
 ##### 38548#       发表于 2017-12-13 22:21
 
 
-
-
 神tm改礼装卡面，真是气炸，看礼装说明怎么圆回来
-
-
-
-
-
 
 
 -----
 
 ####  枫紫  
 ##### 38549#       发表于 2017-12-13 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37977173&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-13 18:25</a>
@@ -18319,25 +11635,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 那么问题来了，3章的boss是123还是c妈
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 38550#       发表于 2017-12-13 22:39
 
 
-
-
 可是万圣那么咸的活动都有半个月啊
-
-
-
-
-
 
 
 -----
@@ -18346,16 +11650,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38551#       发表于 2017-12-13 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37979037&amp;ptid=1085254" target="_blank">habita 发表于 2017-12-13 22:21</a>
 
 神tm改礼装卡面，真是气炸，看礼装说明怎么圆回来</blockquote>
 啥？改啥了？
-
-
-
-
-
 
 
 -----
@@ -18364,16 +11662,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38552#       发表于 2017-12-13 22:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37979131&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-13 22:35</a>
 
 那么问题来了，3章的boss是123还是c妈</blockquote>
 是我杉田智和啦
-
-
-
-
-
 
 
 -----
@@ -18382,16 +11674,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38553#       发表于 2017-12-13 23:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37979211&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-13 22:45</a>
 
 啥？改啥了？</blockquote>
 5星课金礼装的瞳色,一下子从凛变成伊斯塔了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18400,16 +11686,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38554#       发表于 2017-12-13 23:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37979314&amp;ptid=1085254" target="_blank">白夜羽 发表于 2017-12-13 23:00</a>
 
 5星课金礼装的瞳色,一下子从凛变成伊斯塔了</blockquote>
 这个真是太有病了，我前面还在夸这礼装好看，这么搞是要干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18418,23 +11698,16 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38555#       发表于 2017-12-13 23:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37979211&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-13 22:45</a>
 
 啥？改啥了？</blockquote>
 瞳色变了，有蓝色变成红色了。
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38556#       发表于 2017-12-13 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37979158&amp;ptid=1085254" target="_blank">alaya 发表于 2017-12-13 22:39</a>
@@ -18445,25 +11718,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 就是抽卡截止时间是12月31号实在太恶意了，本来还想等新年大浪费再抽奖池的
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 38557#       发表于 2017-12-14 02:00
 
 
-
-
 不过说实在的这张画的本来就不够像凛，不论是本体还是伊斯塔用这种人畜无害二傻子一样的表情都略违和，单马尾也不是最有代表性的发型。换成日本背景自己百分百会认成牛肉丸。
-
-
-
-
-
 
 
 -----
@@ -18472,14 +11733,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38558#       发表于 2017-12-14 02:07
 
 
-
-
 我觉得这次圣诞节当天肯定要搞事。要不然好好地干嘛在24号急着把活动结了。帮某人过忌日吗？
-
-
-
-
-
 
 
 -----
@@ -18488,16 +11742,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38559#       发表于 2017-12-14 02:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37980194&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2017-12-14 02:07</a>
 
 我觉得这次圣诞节当天肯定要搞事。要不然好好地干嘛在24号急着把活动结了。帮某人过忌日吗？ ...</blockquote>
 看公告不是15号到25号吗？很正常啊……
-
-
-
-
-
 
 
 -----
@@ -18506,13 +11754,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38560#       发表于 2017-12-14 04:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">讲真我真的以为是牛肉丸，你们从哪看出是凛的
-
-
-
-
-
 
 
 -----
@@ -18521,15 +11763,9 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38561#       发表于 2017-12-14 05:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37980435&amp;ptid=1085254" target="_blank">yueyut 发表于 2017-12-14 04:48</a>
 讲真我真的以为是牛肉丸，你们从哪看出是凛的</blockquote>
 发型和背景不是很明显吗
-
-
-
-
-
 
 
 -----
@@ -18538,13 +11774,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38562#       发表于 2017-12-14 07:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这个只能等礼装文本出来以后再看了，说不定本来介绍的就是伊斯塔结果画错了.....不过感觉概率很低
-
-
-
-
-
 
 
 -----
@@ -18553,14 +11783,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38563#       发表于 2017-12-14 07:44
 
 
-
-
 美服赶时间弄成圣诞活动从12月1号到10号才叫好玩……
-
-
-
-
-
 
 
 -----
@@ -18569,14 +11792,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38564#       发表于 2017-12-14 08:34
 
 
-
-
 看了下泥潭的脑洞，大王骑的羊是机械脚，看起来和第七章的拉夫母的脚一模一样，说不定羊皮下面是。。。。hmmmmm
-
-
-
-
-
 
 
 -----
@@ -18585,14 +11801,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38565#       发表于 2017-12-14 09:01
 
 
-
-
 新年快点up个新男人吧，不要以为151出了四个新男人就觉得够了啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18601,14 +11810,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38566#       发表于 2017-12-14 09:11
 
 
-
-
 换成红眼不是因为太多ky坚持那是男主扮女装，所以干脆换眼睛？解释可以连接夏天时伊丝塔想环游世界，这次是主角带她到伦敦过圣诞。
-
-
-
-
-
 
 
 -----
@@ -18617,16 +11819,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38567#       发表于 2017-12-14 09:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37981165&amp;ptid=1085254" target="_blank">rxrx 发表于 2017-12-14 09:11</a>
 
 换成红眼不是因为太多ky坚持那是男主扮女装，所以干脆换眼睛？解释可以连接夏天时伊丝塔想环游世界，这次是 ...</blockquote>
 这理由超傻逼的...<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">盐川说好的不用在意玩家意见呢？
-
-
-
-
-
 
 
 -----
@@ -18635,14 +11831,7 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38568#       发表于 2017-12-14 09:13
 
 
-
-
 实在不明白为什么会看成牛肉丸<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18651,16 +11840,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38569#       发表于 2017-12-14 09:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37981178&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-14 09:13</a>
 
 这理由超傻逼的...盐川说好的不用在意玩家意见呢？</blockquote>
 本人非盐川兵，但他只是说不会玩家说什么就改什么而已，没有说不听意见
-
-
-
-
-
 
 
 -----
@@ -18669,23 +11852,15 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ##### 38570#       发表于 2017-12-14 09:16
 
 
-
  本帖最后由 阿提拉 于 2017-12-14 09:19 编辑 
 
 风怒.....卧槽怎么不能自删了
-
-
-
-
-
 
 
 -----
 
 ####  purdre  
 ##### 38571#       发表于 2017-12-14 09:29
-
-
 
 
 不管是发型和背景都在叫嚣这伦敦凛的图变成伊斯塔真是不知道在想什么，伊斯塔和时计塔有个一毛钱的关系。
@@ -18695,16 +11870,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 最大的可能性就是工作的时候不知道谁出了错把圣诞伊斯塔的单子下成圣诞凛的了，结果现在搞得很多凛厨和伊斯塔厨都不高兴，连我这种两个都无感的也觉得这错误犯得太低级图改得太儿戏<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38572#       发表于 2017-12-14 09:29
-
 
 
 <blockquote>引用第38570楼阿提拉于2017-12-14 09:16发表的  :
@@ -18716,16 +11885,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38573#       发表于 2017-12-14 09:52
-
 
 
 <blockquote>阿提拉 发表于 2017-12-14 09:16
@@ -18733,16 +11896,10 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 再自删翻页就更难了
 
 
-
-
-
-
-
 -----
 
 ####  烤脑花  
 ##### 38574#       发表于 2017-12-14 10:53
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">人畜无害的二傻子笑容 +1 
@@ -18752,25 +11909,13 @@ VR和塞勒姆一期都要结束了，按照盐川的尿性至少会追加一个
 rbq，rbq
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 38575#       发表于 2017-12-14 11:22
 
 
-
-
 被提醒后看了一下，背景真的不是伦敦而是多伦多<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">而且这个发型嘛只能看到左边所以说不定其实是双马尾（右边有一缕头发飘到前面了），已经不知道画师一开始接稿时是啥要求了
-
-
-
-
-
 
 
 -----
@@ -18779,16 +11924,9 @@ rbq，rbq
 ##### 38576#       发表于 2017-12-14 11:59
 
 
-
-
 惊了，还真是比起伦敦断然更像多伦多的钟楼，虽然周边建筑有微妙的差别吧
 
 我玩的到底是FGO还是逆转裁判orz
-
-
-
-
-
 
 
 -----
@@ -18797,22 +11935,13 @@ rbq，rbq
 ##### 38577#       发表于 2017-12-14 12:07
 
 
-
-
 和多伦多的钟楼也不一样，说实话我是不信画的是多伦多钟楼的。没画细节且外形和伦敦的多伦多的都不一样，你说是多伦多我宁愿信是绘师根本就没用心画钟楼的说服力还高一点。
-
-
-
-
-
 
 
 -----
 
 ####  茛菪  
 ##### 38578#       发表于 2017-12-14 12:25
-
-
 
 
 哪怕素描写生也不会纠结于展现所有细节，何况二次元卡图的背景建筑。
@@ -18822,33 +11951,19 @@ rbq，rbq
 猜测就是要画钟楼于是谷歌了一下参考了其中一个看的顺眼的吧，也很正常。虽然“谷歌一下”听着好low好不用心但现在本来就不是查个啥玩意都奔图书馆的时代了。
 
 
-
-
-
-
-
 -----
 
 ####  ulir  
 ##### 38579#       发表于 2017-12-14 12:38
 
 
-
-
 双马尾其实也挺好认出来的，这张主要的问题还是作为凛特征之一的发带没了
-
-
-
-
-
 
 
 -----
 
 ####  realgyf1985  
 ##### 38580#       发表于 2017-12-14 14:09
-
-
 
 
 前两天和朋友讨论FSN里面的B叔的十二试炼，尼禄祭的十二试炼没有原设定里“每死一次就免疫之前造成死亡的攻击”，如果把这个细节也还原，会怎么样呢，又该怎么攻略呢。
@@ -18873,27 +11988,15 @@ rbq，rbq
 这种条件的话，大家觉得能打过么……怎么组队？我算了算，6个人6种宝具，3种色卡，这是9条命。还有3条命就很难弄了……虽然还有3种DOT，但是想靠这玩意儿弄死人有点儿难啊。估计是很考验技巧的副本。
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38581#       发表于 2017-12-14 14:34
 
 
-
-
 蘑菇打补丁了，不是免疫而是增加耐性，就算排除一回合三条命，也总是能干死的
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -18902,14 +12005,7 @@ rbq，rbq
 ##### 38582#       发表于 2017-12-14 14:34
 
 
-
-
 自己发的回复怎么看不见了……？
-
-
-
-
-
 
 
 -----
@@ -18918,14 +12014,7 @@ rbq，rbq
 ##### 38583#       发表于 2017-12-14 15:20
 
 
-
-
 解包数据这次和尼禄祭一样是300一池，但是没看到公告里说得那个换50qp的道具，还是要等明天看了
-
-
-
-
-
 
 
 -----
@@ -18934,16 +12023,10 @@ rbq，rbq
 ##### 38584#       发表于 2017-12-14 15:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37984405&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-14 15:20</a>
 
 解包数据这次和尼禄祭一样是300一池，但是没看到公告里说得那个换50qp的道具，还是要等明天看了 ...</blockquote>
 公告截图里有啊，一个池子4个
-
-
-
-
-
 
 
 -----
@@ -18952,16 +12035,9 @@ rbq，rbq
 ##### 38585#       发表于 2017-12-14 15:27
 
 
-
-
 阿比盖尔语音听得咱要融化了。。。。。。。。。。。。。
 
 5宝不亏！
-
-
-
-
-
 
 
 -----
@@ -18970,16 +12046,9 @@ rbq，rbq
 ##### 38586#       发表于 2017-12-14 15:48
 
 
-
-
 说起来，154刚提到一万四千年前硬盘失败，然后圣诞马上就上大王了
 
 感觉有阴谋啊...
-
-
-
-
-
 
 
 -----
@@ -18988,14 +12057,7 @@ rbq，rbq
 ##### 38587#       发表于 2017-12-14 17:11
 
 
-
-
 明天12点维护
-
-
-
-
-
 
 
 -----
@@ -19004,16 +12066,10 @@ rbq，rbq
 ##### 38588#       发表于 2017-12-14 17:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37985670&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-14 17:11:54</a>
 明天12点维护</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">依然不写结束时间
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -19022,16 +12078,9 @@ rbq，rbq
 ##### 38589#       发表于 2017-12-14 17:46
 
 
-
  本帖最后由 alucardcz 于 2017-12-14 17:48 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">明天维护后ios10以下正式劝退 
-
-
-
-
-
-
 
 
 -----
@@ -19040,16 +12089,10 @@ rbq，rbq
 ##### 38590#       发表于 2017-12-14 18:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37983852&amp;ptid=1085254" target="_blank">realgyf1985 发表于 2017-12-14 14:09</a>
 
 前两天和朋友讨论FSN里面的B叔的十二试炼，尼禄祭的十二试炼没有原设定里“每死一次就免疫之前造成死亡的攻 ...</blockquote>
 不是还有EX攻击么，以及即死
-
-
-
-
-
 
 
 -----
@@ -19058,14 +12101,7 @@ rbq，rbq
 ##### 38591#       发表于 2017-12-14 20:00
 
 
-
-
 上周末不情愿的升了ios11<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19074,16 +12110,10 @@ rbq，rbq
 ##### 38592#       发表于 2017-12-15 00:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37984424&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-14 15:22</a>
 
 公告截图里有啊，一个池子4个</blockquote>
  才看到一池4个，总共300抽，就冲这QP效率也得肝
-
-
-
-
-
 
 
 -----
@@ -19094,21 +12124,13 @@ rbq，rbq
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cmg1987  
 ##### 38594#       发表于 2017-12-15 12:34
 
 
-
-
 打从者强化本把幽灵+死灵打完了，野兽也打了一半，打free本没啥意义
-
-
-
-
-
 
 
 -----
@@ -19117,16 +12139,9 @@ rbq，rbq
 ##### 38595#       发表于 2017-12-15 12:47
 
 
-
-
 枪凛的强度是否日天就看今天六点了<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -19135,14 +12150,7 @@ rbq，rbq
 ##### 38596#       发表于 2017-12-15 12:51
 
 
-
-
 无特攻红光炮能强到哪去……除非学机械龙自带黑杯
-
-
-
-
-
 
 
 -----
@@ -19153,22 +12161,15 @@ rbq，rbq
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  sakaki59  
 ##### 38598#       发表于 2017-12-15 13:03
 
 
-
 <blockquote>hyuy 发表于 2017-12-15 12:55
 这白值怎么日天  你当两围是白贞就有白贞的身板啊  看是不是个合适的辅助选手了  日天不敢想 ...</blockquote>
 日天还不简单，杰克总司性能绿卡，高速神言，三回合的群体魔放，等等等等
-
-
-
-
-
 
 
 -----
@@ -19177,14 +12178,7 @@ rbq，rbq
 ##### 38599#       发表于 2017-12-15 13:08
 
 
-
-
 你们居然对2017年的ssr在性能上还有期待，这种白值这种宝具效果肯定是奇葩的技能组<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19193,14 +12187,7 @@ rbq，rbq
 ##### 38600#       发表于 2017-12-15 13:09
 
 
-
-
 高人气角色的性能你们心里还没点数吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19209,15 +12196,9 @@ rbq，rbq
 ##### 38601#       发表于 2017-12-15 13:30
 
 
-
 <blockquote>里村紅葉 发表于 2017-12-15 13:09
 高人气角色的性能你们心里还没点数吗</blockquote>
 有数，但卡还是要抽啊
-
-
-
-
-
 
 
 -----
@@ -19226,16 +12207,10 @@ rbq，rbq
 ##### 38602#       发表于 2017-12-15 13:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37992098&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-15 13:30</a>
 
 有数，但卡还是要抽啊</blockquote>
 反正我不喜欢艾蕾的，太好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19244,16 +12219,10 @@ rbq，rbq
 ##### 38603#       发表于 2017-12-15 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37991928&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-15 13:09</a>
 
 高人气角色的性能你们心里还没点数吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">不服，武藏也是今年实装的高人气角色（
-
-
-
-
-
 
 
 -----
@@ -19262,16 +12231,10 @@ rbq，rbq
 ##### 38604#       发表于 2017-12-15 14:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37992176&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-15 13:40</a>
 
 不服，武藏也是今年实装的高人气角色（</blockquote>
 武藏是实装以后才有高人气吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19280,23 +12243,16 @@ rbq，rbq
 ##### 38605#       发表于 2017-12-15 14:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37991928&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-15 13:09</a>
 
 高人气角色的性能你们心里还没点数吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你说那2个为所欲为没人气我是不信的.....
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38606#       发表于 2017-12-15 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37992536&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-15 14:24</a>
@@ -19307,25 +12263,13 @@ rbq，rbq
 梅林是恶意聚合体，论外吧
 
 
-
-
-
-
-
 -----
 
 ####  漆黑之花  
 ##### 38607#       发表于 2017-12-15 15:00
 
 
-
-
 皇哈也是今年的
-
-
-
-
-
 
 
 -----
@@ -19336,12 +12280,10 @@ rbq，rbq
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  里村紅葉  
 ##### 38609#       发表于 2017-12-15 15:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37992858&amp;ptid=1085254" target="_blank">漆黑之花 发表于 2017-12-15 15:00</a>
@@ -19350,25 +12292,13 @@ rbq，rbq
 王哈去年就放给你支援用了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38610#       发表于 2017-12-15 17:01
 
 
-
-
 居然准时开服
-
-
-
-
-
 
 
 -----
@@ -19377,14 +12307,7 @@ rbq，rbq
 ##### 38611#       发表于 2017-12-15 17:08
 
 
-
-
 艾蕾技能有了，无敌图标的随机效果，魔放a+，冥界加护
-
-
-
-
-
 
 
 -----
@@ -19393,14 +12316,7 @@ rbq，rbq
 ##### 38612#       发表于 2017-12-15 17:08
 
 
-
-
 3发十连艾蕾酱2宝，够了
-
-
-
-
-
 
 
 -----
@@ -19409,17 +12325,10 @@ rbq，rbq
 ##### 38613#       发表于 2017-12-15 17:16
 
 
-
-
 泥潭海豹速度是快
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -19428,14 +12337,7 @@ rbq，rbq
 ##### 38614#       发表于 2017-12-15 17:19
 
 
-
-
 感觉这技能组不错啊，要被yc打脸了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19444,14 +12346,7 @@ rbq，rbq
 ##### 38615#       发表于 2017-12-15 17:20
 
 
-
-
 十连!金枪!五星!光炮!.......是你!小 太 阳!
-
-
-
-
-
 
 
 -----
@@ -19460,16 +12355,9 @@ rbq，rbq
 ##### 38616#       发表于 2017-12-15 17:21
 
 
-
-
 苟史啊，大王绿宝具<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -19478,16 +12366,9 @@ rbq，rbq
 ##### 38617#       发表于 2017-12-15 17:23
 
 
-
-
 这冥界加护的效果文字多到快溢出技能栏了…
 
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -19496,14 +12377,7 @@ rbq，rbq
 ##### 38618#       发表于 2017-12-15 17:23
 
 
-
-
 还在上班，没法摸鱼更新，泥潭速度太快，我就静静看你们晒
-
-
-
-
-
 
 
 -----
@@ -19512,14 +12386,7 @@ rbq，rbq
 ##### 38619#       发表于 2017-12-15 17:24
 
 
-
-
 大王ex对界，是不是三靶级稳了
-
-
-
-
-
 
 
 -----
@@ -19528,14 +12395,7 @@ rbq，rbq
 ##### 38620#       发表于 2017-12-15 17:25
 
 
-
-
 她美、可爱、迷人<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">凛都是好文明
-
-
-
-
-
 
 
 -----
@@ -19544,13 +12404,7 @@ rbq，rbq
 ##### 38621#       发表于 2017-12-15 17:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">三破真好看 
-
-
-
-
-
 
 
 -----
@@ -19559,17 +12413,10 @@ rbq，rbq
 ##### 38622#       发表于 2017-12-15 17:26
 
 
-
-
 随便扔了点石头，不见五星礼装，罢了罢了
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
-
-
-
-
-
 
 
 -----
@@ -19578,14 +12425,7 @@ rbq，rbq
 ##### 38623#       发表于 2017-12-15 17:27
 
 
-
-
 看推特攻略组情报，技能二大概是自充50<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19594,14 +12434,7 @@ rbq，rbq
 ##### 38624#       发表于 2017-12-15 17:28
 
 
-
-
 六单满宝,还附赠个大王,收工!<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19610,14 +12443,7 @@ rbq，rbq
 ##### 38625#       发表于 2017-12-15 17:29
 
 
-
-
 十连两张5星李庄，等大王单up了，今天就不凑热闹了
-
-
-
-
-
 
 
 -----
@@ -19626,14 +12452,7 @@ rbq，rbq
 ##### 38626#       发表于 2017-12-15 17:32
 
 
-
-
 看了看满破图,她!真!迷!人!<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19642,16 +12461,9 @@ rbq，rbq
 ##### 38627#       发表于 2017-12-15 17:32
 
 
-
-
 文明浸食居然实装了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">剑阶大王也装一个好不好啊
 
 —— 来自 OnePlus ONEPLUS A3010, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -19660,15 +12472,9 @@ rbq，rbq
 ##### 38628#       发表于 2017-12-15 17:39
 
 
-
  本帖最后由 eden_hazard 于 2017-12-15 18:27 编辑 
 
 把攒的石头和留给福袋的都投进去差不多5单出了1个孔明6个C闪2个R妹，五星礼装都一打了就是没有艾蕾<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19677,14 +12483,7 @@ rbq，rbq
 ##### 38629#       发表于 2017-12-15 17:41
 
 
-
-
 唯一的十连出了两张本次的礼装<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19693,14 +12492,7 @@ rbq，rbq
 ##### 38630#       发表于 2017-12-15 17:53
 
 
-
-
 明年国服从打完154到抽艾蕾自然回体能打出216个钉子吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19709,16 +12501,9 @@ rbq，rbq
 ##### 38631#       发表于 2017-12-15 18:09
 
 
-
-
 所有的石头扔进去出了一堆礼装
 
 看来最近是不会有五星来了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19727,14 +12512,7 @@ rbq，rbq
 ##### 38632#       发表于 2017-12-15 18:09
 
 
-
-
 干你娘...本来这白值不想抽的一看技能还可以那就抽个1宝吧....500多石头20张护符就2个R姐和一堆活动礼装....连一个5星也没歪出来....什么毒池
-
-
-
-
-
 
 
 -----
@@ -19743,14 +12521,7 @@ rbq，rbq
 ##### 38633#       发表于 2017-12-15 18:19
 
 
-
-
 白枪呆：mmp
-
-
-
-
-
 
 
 -----
@@ -19759,14 +12530,7 @@ rbq，rbq
 ##### 38634#       发表于 2017-12-15 18:26
 
 
-
-
 57石，1五星礼装，1R子，1三星礼装，也不错了，艾蕾酱国服等我<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19775,14 +12539,7 @@ rbq，rbq
 ##### 38635#       发表于 2017-12-15 18:26
 
 
-
-
 节奏榜对艾蕾评价的唯一缺点就是216钉子和72勾玉
-
-
-
-
-
 
 
 -----
@@ -19791,16 +12548,10 @@ rbq，rbq
 ##### 38636#       发表于 2017-12-15 18:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37994519&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-15 18:09</a>
 
 干你娘...本来这白值不想抽的一看技能还可以那就抽个1宝吧....500多石头20张护符就2个R姐和一堆活动礼装... ...</blockquote>
 你看看你 存什么存 3石就抽现在都不会烦恼
-
-
-
-
-
 
 
 -----
@@ -19809,14 +12560,7 @@ rbq，rbq
 ##### 38637#       发表于 2017-12-15 18:29
 
 
-
-
 白枪呆这波节奏已经有了啊……大概雪山神女樱也会有人……
-
-
-
-
-
 
 
 -----
@@ -19825,14 +12569,8 @@ rbq，rbq
 ##### 38638#       发表于 2017-12-15 18:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哇 强化解除耐性  
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">听说你们先强化解除的宝具很强？呵呵
-
-
-
-
-
 
 
 -----
@@ -19841,14 +12579,7 @@ rbq，rbq
 ##### 38639#       发表于 2017-12-15 18:43
 
 
-
-
 信长已沉船，还歪出了周黑鸭
-
-
-
-
-
 
 
 -----
@@ -19857,14 +12588,7 @@ rbq，rbq
 ##### 38640#       发表于 2017-12-15 18:49
 
 
-
-
 娘的，10连出了月灵（满破完成）和2030（第4张了）
-
-
-
-
-
 
 
 -----
@@ -19873,16 +12597,10 @@ rbq，rbq
 ##### 38641#       发表于 2017-12-15 18:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37994659&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-15 18:28</a>
 
 你看看你 存什么存 3石就抽现在都不会烦恼</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">非洲人抽3石除了绿方块和礼装狗粮之外什么都不会出
-
-
-
-
-
 
 
 -----
@@ -19891,20 +12609,13 @@ rbq，rbq
 ##### 38642#       发表于 2017-12-15 18:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">翻页
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 38643#       发表于 2017-12-15 18:51
-
 
 
  本帖最后由 alucardcz 于 2017-12-15 18:54 编辑 
@@ -19914,16 +12625,10 @@ rbq，rbq
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不抽怎么知道呢！看我很少10连的 基本都是3石就狗（关键是我忍不住 
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38644#       发表于 2017-12-15 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37994848&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-15 18:51</a>
@@ -19934,26 +12639,15 @@ rbq，rbq
 <img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">非洲人和萌新（xian ding ou zhou lao）是不同的!
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38645#       发表于 2017-12-15 19:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37994920&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-15 19:01</a>
 非洲人和萌新（xian ding ou zhou lao）是不同的!</blockquote>
 攒石头沉船了多难受，不如三石党<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19962,16 +12656,10 @@ rbq，rbq
 ##### 38646#       发表于 2017-12-15 19:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37994778&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-15 18:43</a>
 
 信长已沉船，还歪出了周黑鸭</blockquote>
 刚更新了推4宝了
-
-
-
-
-
 
 
 -----
@@ -19980,16 +12668,9 @@ rbq，rbq
 ##### 38647#       发表于 2017-12-15 19:22
 
 
-
-
 满级技能：二技能50自充50魔放，三技能20防30黄金律3000血，一技能无敌+80%概率的弱体无效、即死无效、强化解除耐性。
 
 宝具倍率一宝300五宝500，OC自带魔放10到50。
-
-
-
-
-
 
 
 -----
@@ -19998,14 +12679,7 @@ rbq，rbq
 ##### 38648#       发表于 2017-12-15 19:25
 
 
-
-
 否极泰来，泳装活动后终于抽出了SSR<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20014,14 +12688,7 @@ rbq，rbq
 ##### 38649#       发表于 2017-12-15 19:29
 
 
-
-
 这个阿提拉lily 圣诞里带个括号好让人在意啊……是不是有什么伏笔
-
-
-
-
-
 
 
 -----
@@ -20030,13 +12697,7 @@ rbq，rbq
 ##### 38650#       发表于 2017-12-15 19:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">艾蕾酱这个技能真是炸裂，就是喂不起
-
-
-
-
-
 
 
 -----
@@ -20045,14 +12706,7 @@ rbq，rbq
 ##### 38651#       发表于 2017-12-15 19:30
 
 
-
-
 魔放幅度竟然没被砍..这还是我认识的盐三竖吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20061,16 +12715,10 @@ rbq，rbq
 ##### 38652#       发表于 2017-12-15 19:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995105&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-15 19:29</a>
 
 艾蕾酱这个技能真是炸裂，就是喂不起</blockquote>
 那你也要先抽到再说<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20079,15 +12727,9 @@ rbq，rbq
 ##### 38653#       发表于 2017-12-15 19:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995104&amp;ptid=1085254" target="_blank">v22325 发表于 2017-12-15 19:29</a>
 这个阿提拉lily 圣诞里带个括号好让人在意啊……是不是有什么伏笔</blockquote>
 大概是对应Altera the Hun的Altera the [Santa] 
-
-
-
-
-
 
 
 -----
@@ -20096,14 +12738,7 @@ rbq，rbq
 ##### 38654#       发表于 2017-12-15 19:33
 
 
-
-
 奶一口下个月开始送钉子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20112,16 +12747,10 @@ rbq，rbq
 ##### 38655#       发表于 2017-12-15 19:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995119&amp;ptid=1085254" target="_blank">シャル 发表于 2017-12-15 19:30</a>
 
 那你也要先抽到再说</blockquote>
 你没看到人家开服就海豹了么
-
-
-
-
-
 
 
 -----
@@ -20130,16 +12759,10 @@ rbq，rbq
 ##### 38656#       发表于 2017-12-15 19:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995132&amp;ptid=1085254" target="_blank">圈量子 发表于 2017-12-15 19:32</a>
 
 大概是对应Altera the Hun的Altera the [Santa]</blockquote>
 主要是小梅退场前说这个羊圣诞和之前的圣诞不一样……
-
-
-
-
-
 
 
 -----
@@ -20148,14 +12771,7 @@ rbq，rbq
 ##### 38657#       发表于 2017-12-15 19:41
 
 
-
-
 艾蕾好会吃啊..心脏神酒锁链勾玉铁钉,啥难搞挑啥吃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20164,15 +12780,9 @@ rbq，rbq
 ##### 38658#       发表于 2017-12-15 19:42
 
 
-
  本帖最后由 阿提拉 于 2017-12-15 19:45 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">艾蕾酱这0.54的NP率配上6hit的A卡...三技能还带黄金律
-
-
-
-
-
 
 
 -----
@@ -20181,13 +12791,7 @@ rbq，rbq
 ##### 38659#       发表于 2017-12-15 19:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">盐川你再不给白枪呆开个宝具本那就很尴尬了啊
-
-
-
-
-
 
 
 -----
@@ -20196,16 +12800,10 @@ rbq，rbq
 ##### 38660#       发表于 2017-12-15 19:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995165&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-15 19:35</a>
 
 你没看到人家开服就海豹了么</blockquote>
 该死的，继续下单课课课<img src="https://static.saraba1st.com/image/smiley/goose2017/005.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20214,16 +12812,10 @@ rbq，rbq
 ##### 38661#       发表于 2017-12-15 19:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995279&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-15 19:52</a>
 
 盐川你再不给白枪呆开个宝具本那就很尴尬了啊</blockquote>
 盐川你他妈就是针对阿尔托莉亚.jpg
-
-
-
-
-
 
 
 -----
@@ -20232,14 +12824,7 @@ rbq，rbq
 ##### 38662#       发表于 2017-12-15 20:16
 
 
-
-
 42度气温里连从者都躺一地的环境下，咕哒居然还能行走<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20248,14 +12833,7 @@ rbq，rbq
 ##### 38663#       发表于 2017-12-15 20:16
 
 
-
-
 宝具选卡语音都跟伊斯塔对应的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20264,14 +12842,7 @@ rbq，rbq
 ##### 38664#       发表于 2017-12-15 20:25
 
 
-
-
 6单7个C闪3个枪R然后<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20280,14 +12851,7 @@ rbq，rbq
 ##### 38665#       发表于 2017-12-15 20:47
 
 
-
-
 喷了,大王可真行,挑给安娜的都些啥玩意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20296,15 +12860,9 @@ rbq，rbq
 ##### 38666#       发表于 2017-12-15 20:48
 
 
-
  本帖最后由 eden_hazard 于 2017-12-15 20:49 编辑 
 
 7单9个C闪了<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20313,14 +12871,7 @@ rbq，rbq
 ##### 38667#       发表于 2017-12-15 20:53
 
 
-
-
 楼上哥们儿冷静啊，到止损线就放弃吧
-
-
-
-
-
 
 
 -----
@@ -20329,14 +12880,7 @@ rbq，rbq
 ##### 38668#       发表于 2017-12-15 21:00
 
 
-
-
 ..我为什么在艾蕾的宝具里看到了个王哈桑<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20345,16 +12889,10 @@ rbq，rbq
 ##### 38669#       发表于 2017-12-15 21:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995676&amp;ptid=1085254" target="_blank">白夜羽 发表于 2017-12-15 21:00</a>
 
 ..我为什么在艾蕾的宝具里看到了个王哈桑</blockquote>
 看截图还有泳装尼托<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20363,14 +12901,7 @@ rbq，rbq
 ##### 38670#       发表于 2017-12-15 21:16
 
 
-
-
 圣诞大王好软好可爱，性格和原来的大王也差太多了吧，没玩过extella，巨神大王也那么软的吗？
-
-
-
-
-
 
 
 -----
@@ -20379,16 +12910,9 @@ rbq，rbq
 ##### 38671#       发表于 2017-12-15 21:20
 
 
-
-
 这次恩奇都竟然舍得出来值班了
 
 来来来给我打！！！我要让我家所有抽他歪出来的五星一人抽他一百遍，让你丫的不来！王八蛋负心汉！
-
-
-
-
-
 
 
 -----
@@ -20397,14 +12921,7 @@ rbq，rbq
 ##### 38672#       发表于 2017-12-15 21:22
 
 
-
-
 翻页
-
-
-
-
-
 
 
 -----
@@ -20413,16 +12930,10 @@ rbq，rbq
 ##### 38673#       发表于 2017-12-15 21:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995779&amp;ptid=1085254" target="_blank">heemoon 发表于 2017-12-15 21:16</a>
 
 圣诞大王好软好可爱，性格和原来的大王也差太多了吧，没玩过extella，巨神大王也那么软的吗？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">巨神超软超萌超赞的
-
-
-
-
-
 
 
 -----
@@ -20431,16 +12942,10 @@ rbq，rbq
 ##### 38674#       发表于 2017-12-15 21:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995779&amp;ptid=1085254" target="_blank">heemoon 发表于 2017-12-15 21:16</a>
 
 圣诞大王好软好可爱，性格和原来的大王也差太多了吧，没玩过extella，巨神大王也那么软的吗？ ...</blockquote>
 一样软。
-
-
-
-
-
 
 
 -----
@@ -20449,14 +12954,7 @@ rbq，rbq
 ##### 38675#       发表于 2017-12-15 21:37
 
 
-
-
 NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
-
-
-
-
-
 
 
 -----
@@ -20465,22 +12963,13 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 ##### 38676#       发表于 2017-12-15 21:42
 
 
-
-
 这活动本都没法速刷，yc在搞什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  里村紅葉  
 ##### 38677#       发表于 2017-12-15 21:42
-
-
 
 
 结果大王是看着前两年的圣诞老人写的手册来实习的，还有某个金方块假面写的评语？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -20490,27 +12979,15 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 以后迦勒底的圣诞节会一年比一年惨烈了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  poor  
 ##### 38678#       发表于 2017-12-15 21:42
 
 
-
-
 为什么好几个满破雪人礼装的大佬都不给加雪人的带…牛肉丸都没有么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20519,16 +12996,10 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 ##### 38679#       发表于 2017-12-15 21:54
 
 
-
 <img src="https://wx1.sinaimg.cn/mw1024/8f2edc60gy1fmhsmcaebfj21hc0u0hdu.jpg" referrerpolicy="no-referrer">
 
 
 这特么是什么呀，这池子这么刺激的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20537,15 +13008,9 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 ##### 38680#       发表于 2017-12-15 22:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37995984&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-15 21:54</a>
 这特么是什么呀，这池子这么刺激的吗</blockquote>
 我好想要一个贞德啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20554,24 +13019,16 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 ##### 38681#       发表于 2017-12-15 22:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37996061&amp;ptid=1085254" target="_blank">rooarr 发表于 2017-12-15 22:08</a>
 
 我好想要一个贞德啊</blockquote>
 沉船的代价啊，目前还是0宝
 
 
-
-
-
-
-
 -----
 
 ####  eden_hazard  
 ##### 38682#       发表于 2017-12-15 22:47
-
-
 
 
 又充了两单，给大王喂狗粮喂到连续大成功然后第八单的第一个十连的第一发今天第四个金圈金枪终于出艾蕾了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
@@ -20581,25 +13038,13 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 今天发的工资花了一大半<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dreamd  
 ##### 38683#       发表于 2017-12-15 23:26
 
 
-
-
 这艾蕾技能组强的飞起啊，真是亲女儿的待遇
-
-
-
-
-
 
 
 -----
@@ -20608,21 +13053,13 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 ##### 38684#       发表于 2017-12-15 23:33
 
 
-
-
 “我不抽的都是战神”定律绝赞持续中<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 38685#       发表于 2017-12-15 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37996636&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-15 23:33</a>
@@ -20634,32 +13071,19 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 我是每次沉船的不说战神也起码是8分+能一用的
 
 
-
-
-
-
-
 -----
 
 ####  木消灭  
 ##### 38686#       发表于 2017-12-15 23:38
 
 
-
-
 …又歪个恩奇都是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 38687#       发表于 2017-12-15 23:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37996670&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-15 23:37</a>
@@ -20673,17 +13097,10 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 艾蕾那伤害。。你用用就知道能不能8分了。。我看悬
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 38688#       发表于 2017-12-15 23:59
-
-
 
 
 为啥说艾蕾强度爆炸啊？
@@ -20693,17 +13110,10 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 不过强解无效的确逼格很高
 
 
-
-
-
-
-
 -----
 
 ####  xunit  
 ##### 38689#       发表于 2017-12-16 00:13
-
-
 
 
 枪兵<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
@@ -20711,16 +13121,10 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 给个安娜也好啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38690#       发表于 2017-12-16 00:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37996677&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-15 23:39</a>
@@ -20734,16 +13138,10 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 至于艾蕾....一个技能包括50自充50魔放的你给我找第2个出来....蓝卡NP率爆炸....唯一缺点就是只有一张....三技能配合宝具又能加一次攻击....攻击力不会低....缺点就是白值太低
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38691#       发表于 2017-12-16 00:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37996798&amp;ptid=1085254" target="_blank">茛菪 发表于 2017-12-15 23:59</a>
@@ -20765,16 +13163,10 @@ NGA有人15单歪了2个1001，1大公，1呆毛，真心惨
 不过现在都看卡面模型抽卡了。强度什么的无所谓了。。该抽爆还是抽爆（等个维护石上天
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38692#       发表于 2017-12-16 00:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37996881&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-16 00:15</a>
@@ -20784,27 +13176,15 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">至于艾蕾你自己找个大腿用用看。别只看技能。。技能看上去是很美
 
 
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 38693#       发表于 2017-12-16 00:32
 
 
-
-
 艾蕾做成单体还有希望进8分，做成光炮就那白值，一炮下去比白枪伤害还水，白枪的宝具本都呼吁了一年了
 
 魔放还要绑定自充，看上去很美的技能组，用起来真心蛋疼
-
-
-
-
-
 
 
 -----
@@ -20813,14 +13193,7 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 ##### 38694#       发表于 2017-12-16 00:37
 
 
-
-
 艾蕾技能太花里胡哨了，nga一帮人是没见过破格从者落地还是被技能唬了啊，吹太过了。
-
-
-
-
-
 
 
 -----
@@ -20829,22 +13202,15 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 ##### 38695#       发表于 2017-12-16 00:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这节奏榜编辑也是挺搞笑的 直接来了一个9分预定 结果立马被喷的不成人样了。。然后迅速的抽了自己几个耳光改了回来
 
 我觉得最终应该不会超过小太阳的分。。和小太阳持平差不多了
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 38696#       发表于 2017-12-16 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37996895&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-16 00:19</a>
@@ -20856,25 +13222,13 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 艾蕾你首先要知道她是一个光炮....光炮最主要的作用是什么？刷狗粮和周回活动本。不如说废狗基本上90%以上的时间都在干这个.....那么刷狗粮和周回活动本什么最重要？当然是效率啊。艾蕾有自充50NP和魔放就已经奠定了地位.....你说就算她攻击再低可她也能秒活动本2面这不就够了....不然你还想用她干嘛
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 38697#       发表于 2017-12-16 00:42
 
 
-
-
 双英雄作成，梅林一个红卡暴击杰克没了一大半血，真不愧是冠位剑圣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20883,23 +13237,16 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 ##### 38698#       发表于 2017-12-16 00:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997001&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-16 00:40</a>
 
 这节奏榜编辑也是挺搞笑的 直接来了一个9分预定 结果立马被喷的不成人样了。。然后迅速的抽了自己几 ...</blockquote>
 我觉得肯定比不过小太阳的，就算比弓凛都要略输一点
 
 
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 38699#       发表于 2017-12-16 00:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997008&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-16 00:41</a>
@@ -20913,16 +13260,10 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 然而现在白枪的分数是4.5分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38700#       发表于 2017-12-16 00:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997008&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-16 00:41</a>
@@ -20936,32 +13277,19 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 去看了下。里里丝现在6.0 水泥现在6.5
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 38701#       发表于 2017-12-16 00:47
 
 
-
-
 没道理啊，第4个10连出了宅妹和大王....
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 38702#       发表于 2017-12-16 00:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997012&amp;ptid=1085254" target="_blank">霖星 发表于 2017-12-16 00:42</a>
@@ -20974,16 +13302,10 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 （然后再慢慢降下来
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38703#       发表于 2017-12-16 00:50
-
 
 
 <img src="http://wx1.sinaimg.cn/mw690/005xOB49gy1fmhxnvjst5j31kw16o1kx.jpg" referrerpolicy="no-referrer">
@@ -20993,16 +13315,10 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 抱好友的艾蕾刷了一次....技能才4级....芙芙也没吃....第3张红卡暴击了.....打非克制打成这样可以了吧
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38704#       发表于 2017-12-16 00:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997059&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-16 00:50</a>
@@ -21011,16 +13327,10 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 这哪里可以了？。。。。
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38705#       发表于 2017-12-16 00:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997068&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-16 00:52</a>
@@ -21029,16 +13339,10 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那马可是接近10万血啊
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38706#       发表于 2017-12-16 00:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997072&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-16 00:53</a>
@@ -21047,16 +13351,10 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 <img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">“才”10w啊。。。 而且还有buff还3红。还宝鸡。。。。
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38707#       发表于 2017-12-16 00:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997077&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-16 00:53</a>
@@ -21065,16 +13363,10 @@ C水尼那技能还不够爆炸吗....和艾蕾一样也是被白值和职介拖
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">拐就上了个孔明啊....其余都是自己的技能....暴击就一次
 
 
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 38708#       发表于 2017-12-16 00:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997059&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-16 00:50</a>
@@ -21087,16 +13379,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 高难艾蕾应该会更好用些，但是我想没几个人会拿个无特攻枪光炮打高难本
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 38709#       发表于 2017-12-16 01:16
-
 
 
  本帖最后由 rooarr 于 2017-12-16 01:18 编辑 
@@ -21105,32 +13391,19 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 都是水枪，相煎何太急<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38710#       发表于 2017-12-16 01:20
 
 
-
-
 真是咸吃萝卜淡操心<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 38711#       发表于 2017-12-16 01:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997112&amp;ptid=1085254" target="_blank">霖星 发表于 2017-12-16 00:59</a>
@@ -21141,25 +13414,13 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">等等...我从来没说过艾蕾比白枪强啊....我都已经说得很清楚了光炮的主要价值就在于速刷周回本...在我看来艾蕾和白枪都是合格的光炮啊
 
 
-
-
-
-
-
 -----
 
 ####  saintsimpler  
 ##### 38712#       发表于 2017-12-16 01:27
 
 
-
-
 强度不重要的 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21168,16 +13429,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38713#       发表于 2017-12-16 01:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997220&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-16 01:26</a>
 
 等等...我从来没说过艾蕾比白枪强啊....我都已经说得很清楚了光炮的主要价值就在于速刷周回本... ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">还有一个半小时你就会有5个石头了！ 相信自己 未来就在你的手里！
-
-
-
-
-
 
 
 -----
@@ -21186,16 +13441,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38714#       发表于 2017-12-16 01:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997240&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-16 01:29</a>
 
 还有一个半小时你就会有5个石头了！ 相信自己 未来就在你的手里！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">休想骗非洲人...我要攒石等下个大新闻
-
-
-
-
-
 
 
 -----
@@ -21204,16 +13453,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38715#       发表于 2017-12-16 01:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997249&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-16 01:32</a>
 
 休想骗非洲人...我要攒石等下个大新闻</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">现在加入我们3石党  你的未来将会充满希望！
-
-
-
-
-
 
 
 -----
@@ -21222,21 +13465,13 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38716#       发表于 2017-12-16 02:13
 
 
-
-
 刚发现抽池子速度大幅度加快了，好文明<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  茛菪  
 ##### 38717#       发表于 2017-12-16 02:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37996882&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-16 00:15</a>
@@ -21248,25 +13483,13 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 借大佬的用了下这动画做的真精致，而且ex攻击还保留了大幽灵的语音，可以说相当可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yueyut  
 ##### 38718#       发表于 2017-12-16 02:37
 
 
-
-
 宝红红10万是一宝么，如果1宝的话我个人就挺满意了，我用克制的大王都很难做到1T清2面。
-
-
-
-
-
 
 
 -----
@@ -21275,14 +13498,7 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38719#       发表于 2017-12-16 03:22
 
 
-
-
 十连默念出礼装就出货，换了个池子用刚刚领的石头出了示巴，接下来就是艾比盖尔了。今天加班到十点果然有回报啊！
-
-
-
-
-
 
 
 -----
@@ -21291,17 +13507,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38720#       发表于 2017-12-16 06:31
 
 
-
-
 我意识到一个肥肠严肃的问题，就算刷100池，也不过100个金饼干
 
 
 也就是两个角色的量<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21310,16 +13519,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38721#       发表于 2017-12-16 06:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997434&amp;ptid=1085254" target="_blank">yueyut 发表于 2017-12-16 02:37</a>
 
 宝红红10万是一宝么，如果1宝的话我个人就挺满意了，我用克制的大王都很难做到1T清2面。 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">看NP条，189NP，起码2宝起步
-
-
-
-
-
 
 
 -----
@@ -21330,7 +13533,6 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  morment  
@@ -21339,12 +13541,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  シャル  
 ##### 38724#       发表于 2017-12-16 08:40
-
 
 
  本帖最后由 シャル 于 2017-12-16 08:45 编辑 
@@ -21354,16 +13554,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 明明要等20号才up大王的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 38725#       发表于 2017-12-16 08:43
-
 
 
  本帖最后由 シャル 于 2017-12-16 08:46 编辑 
@@ -21376,16 +13570,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 又不是打周回用的
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 38726#       发表于 2017-12-16 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37997032&amp;ptid=1085254" target="_blank">霖星 发表于 2017-12-16 00:45</a>
@@ -21399,25 +13587,13 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 38727#       发表于 2017-12-16 09:34
 
 
-
-
 一百级满金芙芙倒是能让atk上13000……但是你游要是能撑到我喂满三个凛，怕不是又能多出几个亚种凛？
-
-
-
-
-
 
 
 -----
@@ -21426,14 +13602,7 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38728#       发表于 2017-12-16 11:13
 
 
-
-
 上脑6单沉得彻底，一张5星都没，礼装满破一堆<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21442,24 +13611,16 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38729#       发表于 2017-12-16 12:35
 
 
-
-
 没事干把四张礼装都换了
 
 
 那么现在开的40ap本的小恩会掉礼装嘛？
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38730#       发表于 2017-12-16 12:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37999373&amp;ptid=1085254" target="_blank">蕾丝 发表于 2017-12-16 12:35</a>
@@ -21471,25 +13632,13 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 应该会的，我已经看到有人满破了
 
 
-
-
-
-
-
 -----
 
 ####  heemoon  
 ##### 38731#       发表于 2017-12-16 12:56
 
 
-
-
 妈的平铺李庄打得太累了，还是上宝石3回合省事，关键这次无限池完全没动力刷，没钉子没骨头没灰。。。刷到20池就收工
-
-
-
-
-
 
 
 -----
@@ -21498,21 +13647,13 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38732#       发表于 2017-12-16 13:01
 
 
-
-
 看起来是卡翻页了
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 38733#       发表于 2017-12-16 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37999373&amp;ptid=1085254" target="_blank">蕾丝 发表于 2017-12-16 12:35</a>
@@ -21524,16 +13665,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 出的吧，我都看到有人满破了，但是大部分人应该都是在自然回体，现在这个本连雪人都不出啊
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 38734#       发表于 2017-12-16 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37999565&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-16 13:01</a>
@@ -21545,16 +13680,10 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 嘛，纯属无聊就是了
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38735#       发表于 2017-12-16 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37999673&amp;ptid=1085254" target="_blank">蕾丝 发表于 2017-12-16 13:14</a>
@@ -21566,25 +13695,13 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 我去wiki看了下，这个30AP本雪人掉率确实不错，我也准备刷600个先把礼装换了
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 38736#       发表于 2017-12-16 13:25
 
 
-
-
 我说这礼装根本不掉啊
-
-
-
-
-
 
 
 -----
@@ -21593,10 +13710,7 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 ##### 38737#       发表于 2017-12-16 13:43
 
 
-
-
 埃列许基伽勒
-
 
 
 【能力值】
@@ -21614,7 +13728,6 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 宝具：A
 
 
-
 【职阶技能】
 
 对魔力：D
@@ -21626,13 +13739,11 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 对魔力也因此显著下降。
 
 
-
 【固有技能】
 
 女神的神核：B
 
 阵地作成：A+
-
 
 
 秘藏大王冠：A
@@ -21642,13 +13753,11 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 尽管能够将天与地的女神、内外一体的伊许塔尔所拥有的各色权能归为己用，个中的效力却多少都变得颇为昏暗（阴气）。
 
 
-
 魔力放出（牢）：A+
 
 埃列许基伽勒乃是勤勉认真、并且略显阴沉的一位女神。
 
 平日得闲时便会将魔力存蓄在枪牢之中，并在战斗时进行使用。
-
 
 
 冥界的护佑：EX
@@ -21662,9 +13771,7 @@ NGA这帖白枪和艾蕾宝具伤害计算可以看看，看完就比较清楚�
 能够支援我方全体，并使得宝具性能有所变化。
 
 
-
 【宝具】
-
 
 
 『踏覆灵峰的冥府之鞴』
@@ -21692,9 +13799,7 @@ Kur Ki-Gal Ir-Kalla。
 （译注：Great Heaven与Great Below即是伊许塔尔宝具台词中的『大いなる天から、大いなる地に向けて』，也即是《伊南娜下冥界》的第一句话，An Gal-Ta Ki Gal-?e）
 
 
-
 【介绍】
-
 
 
 苏美尔神话中的冥界神。
@@ -21722,7 +13827,6 @@ Kur Ki-Gal Ir-Kalla。
 正可谓是冥界的（红色）天使。
 
 
-
 身高／体重：159cm·47kg
 
 出典：古美索不达米亚神话
@@ -21738,7 +13842,6 @@ Kur Ki-Gal Ir-Kalla。
 不过呢，要是你不论如何都想让我陪着的话，稍微以死为前提地陪陪你也不是不可以喔？」
 
 
-
 就美索不达米亚神话原典而言，
 
 她所司掌的乃是植物的成长与腐败，
@@ -21748,7 +13851,6 @@ Kur Ki-Gal Ir-Kalla。
 『天之女主人』伊许塔尔与『冥界女主人』埃列许基伽勒之间也有着对手关系。
 
 就神话学来说，丰收女神伊许塔尔（伊南娜）是象征人类之“生”的大地母神[Great Earth Mother]，象征人类之“死”的埃列许基伽勒则是Terrible Earth Mother。
-
 
 
 神话中，伊许塔尔曾奔赴冥界，
@@ -21766,7 +13868,6 @@ Kur Ki-Gal Ir-Kalla。
 两神乃是同一存在，
 
 抑或是从同一柱神中一分为二的神性也或未可知。
-
 
 
 性格被动而内向。
@@ -21792,7 +13893,6 @@ Kur Ki-Gal Ir-Kalla。
 并且也有更为自虐的情形。
 
 
-
 尽管不时也会有跟伊许塔尔如出一辙的言谈，
 
 话语之中不时流露出的却是典雅的公主口气。
@@ -21808,7 +13908,6 @@ Kur Ki-Gal Ir-Kalla。
 在言谈上反而是兢兢业业地在冥界履行职务的埃列许基伽勒更像是『深闺（不谙世事）的大小姐』。
 
 
-
 自神话时代起，自己受人嫌恶、见不得光的事实便一直引致着她的苦恼和憎恶。
 
 「我也想像伊许塔尔那样自由地过活的呀。我也想跟那种就算知道我是冥界的主宰也一样能够接受，能够不去在意冥界主宰的身份地看待我的人邂逅的呀」
@@ -21820,9 +13919,7 @@ Kur Ki-Gal Ir-Kalla。
 如此这般地在心里闹别扭的时候，目睹了降至美索不达米亚世界的终焉的她，便为了能够以自己的方式守护人类而加盟了三女神同盟，成为了乌鲁克的敌人。
 
 
-
 其后尽管由于方方面面的原因沉入了深渊，却又由于各种各样的缘故肯定了“现在的自己”，选择了在人理修复的道路上为迦勒底助阵的道路。
-
 
 
 手中握持的长枪乃是发热神殿梅斯拉姆台亚[Meslamtaea]。
@@ -21830,15 +13927,12 @@ Kur Ki-Gal Ir-Kalla。
 是仅止眼下这一灵基时方能得允，温煦地底的和暖光芒。
 
 
-
 羁绊礼装冥界花开
-
 
 
 即便如此。命运也好、职责也罢，
 
 到了最后都并没有什么大的分别。
-
 
 
 你仍是你、她仍是她，
@@ -21854,7 +13948,6 @@ Kur Ki-Gal Ir-Kalla。
 却仍会如若荆棘一般，在胸间留下灼灼的痛。
 
 
-
 即便葡萄树不会在冥界开花结果，
 
 在我而言，你也仍然是我的葡萄。
@@ -21864,7 +13957,6 @@ Kur Ki-Gal Ir-Kalla。
 就算在我消失之后，
 
 这份热度，也一定不会有所消却。
-
 
 
 到了神代告终、灵魂不再徘徊就地，
@@ -21882,24 +13974,16 @@ Kur Ki-Gal Ir-Kalla。
 如花飘散。
 
 
-
 礼装说明直接写成情书的…………
 
 
 顺便这次圣诞剧情里她还写一封信叫圣诞大王带给立香巴拉巴拉一大堆然而用一句话就可以形容整封信的内容：我想你了快来冥界见我，干的好啊我，连神都是真爱党成员了
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 38738#       发表于 2017-12-16 13:47
-
-
 
 
 吴克砸铁卖锅一发金光又来了个白贞，艾蕾再见，接下来最后几发肯定见不到您<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -21909,17 +13993,10 @@ Kur Ki-Gal Ir-Kalla。
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 38739#       发表于 2017-12-16 14:03
-
-
 
 
 送了5石，单点一发，没读条，心想凉了
@@ -21928,16 +14005,10 @@ Kur Ki-Gal Ir-Kalla。
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38740#       发表于 2017-12-16 14:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38000002&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2017-12-16 14:03</a>
@@ -21950,11 +14021,6 @@ Kur Ki-Gal Ir-Kalla。
 芬恩？
 
 
-
-
-
-
-
 -----
 
 ####  hyuy  
@@ -21963,12 +14029,10 @@ Kur Ki-Gal Ir-Kalla。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kiralzb  
 ##### 38742#       发表于 2017-12-16 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37999373&amp;ptid=1085254" target="_blank">蕾丝 发表于 2017-12-16 12:35:14</a>
@@ -21980,16 +14044,10 @@ Kur Ki-Gal Ir-Kalla。
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 38743#       发表于 2017-12-16 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38000111&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-16 14:18</a>
@@ -22000,16 +14058,10 @@ Kur Ki-Gal Ir-Kalla。
 看啊，这希望的影像<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 38744#       发表于 2017-12-16 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38000893&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2017-12-16 16:32</a>
@@ -22018,25 +14070,13 @@ Kur Ki-Gal Ir-Kalla。
 好棒<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">不来个两宝？
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38745#       发表于 2017-12-16 17:36
 
 
-
-
 喷了,新本全是骑,然鹅杀一个带加成的都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22047,13 +14087,10 @@ Kur Ki-Gal Ir-Kalla。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  阿提拉  
 ##### 38747#       发表于 2017-12-16 18:23
-
-
 
 
 新本这R姐有点不对劲，好像不吃杰克女性特攻的
@@ -22061,16 +14098,10 @@ Kur Ki-Gal Ir-Kalla。
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38748#       发表于 2017-12-16 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38001454&amp;ptid=1085254" target="_blank">hyuy 发表于 2017-12-16 18:12</a>
@@ -22081,27 +14112,15 @@ Kur Ki-Gal Ir-Kalla。
 大腿我来求抱了
 
 
-
-
-
-
-
 -----
 
 ####  木消灭  
 ##### 38749#       发表于 2017-12-16 18:44
 
 
-
-
 30ap本掉两张礼装了。准备上头再来一单拼爱蕾酱
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -22110,14 +14129,7 @@ Kur Ki-Gal Ir-Kalla。
 ##### 38750#       发表于 2017-12-16 18:48
 
 
-
-
 我去这90级大龙伤害有点高啊，第一次秒掉了没感觉，这次没秒掉直接两回合打得前排就剩一个艳后了……后面一堆1级加成酱油果断翻车……
-
-
-
-
-
 
 
 -----
@@ -22126,20 +14138,13 @@ Kur Ki-Gal Ir-Kalla。
 ##### 38751#       发表于 2017-12-16 18:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这本3回合速刷要上3个满羁绊的。。。。我好难受
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 38752#       发表于 2017-12-16 19:03
-
 
 
  本帖最后由 森兰丸 于 2017-12-16 19:04 编辑 
@@ -22150,25 +14155,13 @@ Kur Ki-Gal Ir-Kalla。
 YC说以后的活动都要通了第一部才能打莫不是要加强活动难度了....3回合速刷也会变得越来越难甚至做不到吧（先毒奶一口
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 38753#       发表于 2017-12-16 19:05
 
 
-
-
 全是1星狗粮，太抠门了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22177,14 +14170,7 @@ YC说以后的活动都要通了第一部才能打莫不是要加强活动难度
 ##### 38754#       发表于 2017-12-16 19:07
 
 
-
-
 dc最近这节奏不太对啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22193,14 +14179,7 @@ dc最近这节奏不太对啊<img src="https://static.saraba1st.com/image/smiley
 ##### 38755#       发表于 2017-12-16 19:07
 
 
-
-
 某过气dead game主播刷完勾玉一把10连...<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22209,21 +14188,13 @@ dc最近这节奏不太对啊<img src="https://static.saraba1st.com/image/smiley
 ##### 38756#       发表于 2017-12-16 19:37
 
 
-
-
 今天公司年会，没法看直播，只能等dc新年的12单试炼了
-
-
-
-
-
 
 
 -----
 
 ####  katun  
 ##### 38757#       发表于 2017-12-16 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38001508&amp;ptid=1085254" target="_blank">阿提拉 发表于 2017-12-16 18:23</a>
@@ -22235,27 +14206,15 @@ dc最近这节奏不太对啊<img src="https://static.saraba1st.com/image/smiley
 盐川的草台班子……R姐不吃女性特攻，龙不吃龙特攻
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 38758#       发表于 2017-12-16 20:14
 
 
-
-
 出货啦……
 
 结果还是没有恩奇都<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22264,17 +14223,10 @@ dc最近这节奏不太对啊<img src="https://static.saraba1st.com/image/smiley
 ##### 38759#       发表于 2017-12-16 20:25
 
 
-
-
 这本上全加成全TM靠盾盾苟<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，前面大龙还好，后面R姐伤害贼JB高，宝具两个卡美洛+一个雪花壁都防不住，必须有一个卡美洛得加个OC
 不过这本65，就是说后面还有5个本，基本就是金铜、铜、银、金、沙了，可以先刷别的等全银本，不可能比这个本更恶心了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22283,14 +14235,7 @@ dc最近这节奏不太对啊<img src="https://static.saraba1st.com/image/smiley
 ##### 38760#       发表于 2017-12-16 20:47
 
 
-
-
 新40AP还不如回头打30AP的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22299,16 +14244,10 @@ dc最近这节奏不太对啊<img src="https://static.saraba1st.com/image/smiley
 ##### 38761#       发表于 2017-12-16 21:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38001777&amp;ptid=1085254" target="_blank">白夜羽 发表于 2017-12-16 19:07</a>
 
 dc最近这节奏不太对啊</blockquote>
 昨天想去日服体验一下艾蕾，找了个1000石的初始号抽完了加上护肤才出了一个，和DC老师的剧本完全不一样啊。。。
-
-
-
-
-
 
 
 -----
@@ -22317,13 +14256,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38762#       发表于 2017-12-16 21:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">这游戏又不缺金苹果....何苦刷的这么辛苦....少点加成就少点加成了....看我用换人礼装自己上个孔明大英雄再抱个梅林3回合过关不是轻轻松松
-
-
-
-
-
 
 
 -----
@@ -22332,20 +14265,13 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38763#       发表于 2017-12-16 21:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">果然，不吃特攻是BUG，赶紧发石头啦
-
-
-
-
-
 
 
 -----
 
 ####  上坂莲华  
 ##### 38764#       发表于 2017-12-16 22:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38002108&amp;ptid=1085254" target="_blank">katun 发表于 2017-12-16 20:09</a>
@@ -22356,11 +14282,6 @@ dc最近这节奏不太对啊</blockquote>
 吃特攻的话这本还是很好打的，2面大龙艳后秒掉，3面杰克宝绿绿再补一轮结束就行了
 
 
-
-
-
-
-
 -----
 
 ####  不知道叫什么  
@@ -22369,20 +14290,13 @@ dc最近这节奏不太对啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  阿提拉  
 ##### 38766#       发表于 2017-12-16 23:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">官推110W粉丝，安定的十石
-
-
-
-
-
 
 
 -----
@@ -22391,14 +14305,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38767#       发表于 2017-12-16 23:59
 
 
-
-
 似李，盐十石<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22407,14 +14314,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38768#       发表于 2017-12-17 00:14
 
 
-
-
 又追加了一单，总计5单2宝，歪了呆毛贞德船长，算是挺满意了
-
-
-
-
-
 
 
 -----
@@ -22423,17 +14323,10 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38769#       发表于 2017-12-17 01:16
 
 
-
-
 出爱蕾酱了…！圆满了…
 话说这剧本有点《来自深渊》啊，是我的错觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -22442,24 +14335,16 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38770#       发表于 2017-12-17 01:26
 
 
-
-
 特攻bug，杰克对r姐女性特攻无效，确定是bug
 然而r姐给了我一张礼装<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38771#       发表于 2017-12-17 03:23
-
 
 
 <img src="http://wx3.sinaimg.cn/mw690/005xOB49gy1fmj7pdcgw5j31kw16ox1b.jpg" referrerpolicy="no-referrer">
@@ -22471,16 +14356,10 @@ dc最近这节奏不太对啊</blockquote>
 有病啊!!!!!!!!!!!!
 
 
-
-
-
-
-
 -----
 
 ####  绫魂h  
 ##### 38772#       发表于 2017-12-17 05:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38004352&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-17 03:23</a>
@@ -22489,16 +14368,10 @@ dc最近这节奏不太对啊</blockquote>
 我已经能看到白天某人要对你表示羡慕了
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 38773#       发表于 2017-12-17 08:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38004352&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-17 03:23:39</a>
@@ -22507,32 +14380,19 @@ dc最近这节奏不太对啊</blockquote>
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Kirihara  
 ##### 38774#       发表于 2017-12-17 10:39
 
 
-
-
 一天一个本，还差5个，刷的效率好低；去年是2个本等级差是10，今年的是5，到90级的高难还差5个；那么大概最后一个本应该是只掉冥界沙，今天下午的本应该是1、3掉落，3个本一轮，估计周四的下午才会开最后一个本，然而周四都已经到21号了，活动25号结束；这TM就很蛋疼，吃屎啦盐川。
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 38775#       发表于 2017-12-17 10:47
-
 
 
 <blockquote>引用第38773楼红丽于2017-12-17 08:45发表的  :
@@ -22544,25 +14404,13 @@ dc最近这节奏不太对啊</blockquote>
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  扎比子  
 ##### 38776#       发表于 2017-12-17 10:55
 
 
-
-
 趁着无限池送狗粮萌新把土方喂起来了，但是不知道怎么用，a了好久没有两神三脚，该带什么礼装好点orz
-
-
-
-
-
 
 
 -----
@@ -22571,14 +14419,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38777#       发表于 2017-12-17 11:01
 
 
-
-
 金圈<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22587,17 +14428,10 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38778#       发表于 2017-12-17 11:04
 
 
-
-
 亚马逊打骑本真好用，从0自充，自己解决二面，还能拐机龙娘打三面。从尼禄祭打到现在都快满绊了，有点后悔没喂杯子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 不过有一次居然没秒掉大龙，二宝9技能孔明加攻
-
-
-
-
-
 
 
 -----
@@ -22608,13 +14442,10 @@ dc最近这节奏不太对啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  蕾丝  
 ##### 38780#       发表于 2017-12-17 11:21
-
-
 
 
 这次刷本感觉到了机械龙娘尾蓝的强力
@@ -22623,25 +14454,13 @@ dc最近这节奏不太对啊</blockquote>
 甚至可以在有孔梅的情况下，基本保证机械龙娘带掉落礼装在一面从0开始打够np。、。。
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38781#       发表于 2017-12-17 11:25
 
 
-
-
 周末有时间结果没法开心刷本感觉真不爽,等下周把本开全了又该没时间了,还是尼禄祭那种形式好 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22650,21 +14469,13 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38782#       发表于 2017-12-17 11:25
 
 
-
-
 这第一个本真的掉骨么...
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 38783#       发表于 2017-12-17 12:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38004784&amp;ptid=1085254" target="_blank">红丽 发表于 2017-12-17 08:45</a>
@@ -22676,25 +14487,13 @@ dc最近这节奏不太对啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">你让YC开交易功能啊.....我肯定和你换
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38784#       发表于 2017-12-17 13:05
 
 
-
-
 礼装不掉啊不掉啊不掉啊……
-
-
-
-
-
 
 
 -----
@@ -22705,22 +14504,15 @@ dc最近这节奏不太对啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  圈量子  
 ##### 38786#       发表于 2017-12-17 13:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38006162&amp;ptid=1085254" target="_blank">holybloodmk2 发表于 2017-12-17 13:07</a>
 求教各们大佬们打过剧情冠位时间神殿所罗门要什么等级什么阵容啊？圣诞活动要过巴比伦才能参加。才打到北美 ...</blockquote>
 六七章基本可以靠大腿的雪B和黑狗，不过活动期间不一定能抱到合适的礼装
-
-
-
-
-
 
 
 -----
@@ -22729,16 +14521,10 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38787#       发表于 2017-12-17 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38005575&amp;ptid=1085254" target="_blank">hyuy 发表于 2017-12-17 11:18</a>
 
 本来就只有5天  为啥你说的这么咬牙切齿的</blockquote>
 咬牙切齿倒不至于，主要是现在的本不能让人好好刷，所以这两天算是浪费了啊；剧情一天一个无所谓啊，日常本一天开一个就略蛋疼；另外，不明白你说的本来就只有5天是什么意思。
-
-
-
-
-
 
 
 -----
@@ -22747,16 +14533,10 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38788#       发表于 2017-12-17 14:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38006459&amp;ptid=1085254" target="_blank">Kirihara 发表于 2017-12-17 14:02</a>
 
 咬牙切齿倒不至于，主要是现在的本不能让人好好刷，所以这两天算是浪费了啊；剧情一天一个无所谓啊，日常 ...</blockquote>
 3届圣诞以来，最高效的活动本本来就都是只能刷4天多点的
-
-
-
-
-
 
 
 -----
@@ -22765,14 +14545,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38789#       发表于 2017-12-17 14:24
 
 
-
-
 这几天自然回体算了，等最高效率本刷
-
-
-
-
-
 
 
 -----
@@ -22781,16 +14554,10 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38790#       发表于 2017-12-17 15:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38006162&amp;ptid=1085254" target="_blank">holybloodmk2 发表于 2017-12-17 13:07</a>
 
 求教各们大佬们打过剧情冠位时间神殿所罗门要什么等级什么阵容啊？圣诞活动要过巴比伦才能参加。才打到北美 ...</blockquote>
 六章完全够用，七章可能需要抱个杀阶，或者就狂阶推过去，时间神殿用雪城B叔就行了
-
-
-
-
-
 
 
 -----
@@ -22799,15 +14566,9 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38791#       发表于 2017-12-17 15:02
 
 
-
 <blockquote>holybloodmk2 发表于 2017-12-17 13:07
 求教各们大佬们打过剧情冠位时间神殿所罗门要什么等级什么阵容啊？圣诞活动要过巴比伦才能参加。才打到北美 ...</blockquote>
 我正在打第七章，相比之下还是第六章更恶心
-
-
-
-
-
 
 
 -----
@@ -22818,12 +14579,10 @@ dc最近这节奏不太对啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Kirihara  
 ##### 38793#       发表于 2017-12-17 16:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38006502&amp;ptid=1085254" target="_blank">霖星 发表于 2017-12-17 14:07</a>
@@ -22832,25 +14591,13 @@ dc最近这节奏不太对啊</blockquote>
 第一届圣夜级确实只剩4天才开放的，不过其余的已经都开放了；第二届的话第一天就已经开放了四张图，也就只剩下3张图，3张图除了掉落品种不一样外，其他总体掉落是差不多的；这次估计总共10张图，第一天也就开了4张图，现在共5张图，开到第二门，后面估计还有5张图，所以我才觉得开的有些慢。
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38794#       发表于 2017-12-17 17:27
 
 
-
-
 萌新到现在还是4张礼装，真狗屎，不会又要像尼禄祭那样20池之后才开张吧
-
-
-
-
-
 
 
 -----
@@ -22859,16 +14606,9 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38795#       发表于 2017-12-17 17:52
 
 
-
-
 今天的好打，我别的职阶不多，骑阶能组一支篮球队了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 而且冥界沙掉率也还行，来个十池先肝为敬了
-
-
-
-
-
 
 
 -----
@@ -22877,14 +14617,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38796#       发表于 2017-12-17 18:08
 
 
-
-
 魔法书，书页，好好，住在这里不走了
-
-
-
-
-
 
 
 -----
@@ -22893,14 +14626,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38797#       发表于 2017-12-17 18:45
 
 
-
-
 看到术阶敌人就果断把机械龙娘喂到90先，3技能点满，一套宝红红带走尼托，真是强<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22909,14 +14635,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38798#       发表于 2017-12-17 18:59
 
 
-
-
 70级本好刷，送的卡就能三回合
-
-
-
-
-
 
 
 -----
@@ -22927,12 +14646,10 @@ dc最近这节奏不太对啊</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  蕾丝  
 ##### 38800#       发表于 2017-12-17 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38008356&amp;ptid=1085254" target="_blank">hyuy 发表于 2017-12-17 19:12</a>
@@ -22941,16 +14658,10 @@ dc最近这节奏不太对啊</blockquote>
 因为是梅林复刻入坑，刚好错过尼禄祭啊w
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 38801#       发表于 2017-12-17 20:13
-
 
 
  本帖最后由 シャル 于 2017-12-17 20:15 编辑 
@@ -22964,25 +14675,13 @@ dc最近这节奏不太对啊</blockquote>
 看来没缘分了
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 38802#       发表于 2017-12-17 21:33
 
 
-
-
 蘑菇摸鱼时沉迷来自深渊？有点高兴自己补了这部（
-
-
-
-
-
 
 
 -----
@@ -22991,13 +14690,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38803#       发表于 2017-12-17 21:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">艾蕾失忆还在转让权能给别人？这回到底是谁在搞事
-
-
-
-
-
 
 
 -----
@@ -23006,14 +14699,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38804#       发表于 2017-12-17 22:27
 
 
-
-
 这次的本不好刷，估计30池都刷不到了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23022,16 +14708,10 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38805#       发表于 2017-12-17 22:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38009605&amp;ptid=1085254" target="_blank">rooarr 发表于 2017-12-17 22:27</a>
 
 这次的本不好刷，估计30池都刷不到了</blockquote>
 港真，今天这个本真的挺好刷的，和尼禄祭决赛差不多
-
-
-
-
-
 
 
 -----
@@ -23040,14 +14720,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38806#       发表于 2017-12-17 23:07
 
 
-
-
 这次礼装感觉很好掉啊，25箱已经掉了8张了，还碰到个bug体力一直卡在160不动，白刷了2盘不敢刷了
-
-
-
-
-
 
 
 -----
@@ -23056,16 +14729,10 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38807#       发表于 2017-12-17 23:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38009868&amp;ptid=1085254" target="_blank">yangun22 发表于 2017-12-17 23:07</a>
 
 这次礼装感觉很好掉啊，25箱已经掉了8张了，还碰到个bug体力一直卡在160不动，白刷了2盘不敢刷了 ...</blockquote>
 16池0张的非洲人望着你，能分我点么
-
-
-
-
-
 
 
 -----
@@ -23074,17 +14741,10 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38808#       发表于 2017-12-17 23:18
 
 
-
-
 10池掉两张礼装
 没有初始np还是挺烦
 
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -23093,13 +14753,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38809#       发表于 2017-12-17 23:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">30池掉1的在此，说好掉的你过来我给你加个英雄做成
-
-
-
-
-
 
 
 -----
@@ -23108,14 +14762,7 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38810#       发表于 2017-12-17 23:28
 
 
-
-
 礼装一张没掉的看着欧洲佬晒命
-
-
-
-
-
 
 
 -----
@@ -23124,22 +14771,15 @@ dc最近这节奏不太对啊</blockquote>
 ##### 38811#       发表于 2017-12-17 23:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38009780&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-17 22:53</a>
 港真，今天这个本真的挺好刷的，和尼禄祭决赛差不多</blockquote>
 今天的本我也没法3回合速刷<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">每次都要打6回合实在是不想动
-
-
-
-
-
 
 
 -----
 
 ####  霖星  
 ##### 38812#       发表于 2017-12-17 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38009994&amp;ptid=1085254" target="_blank">rooarr 发表于 2017-12-17 23:31</a>
@@ -23150,16 +14790,10 @@ R金R凛+大英雄+孔明，大英雄带满破虚数，剩下平铺静谧
 除非首轮2轮发牌员都不发R金卡，不然都能3T过图
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 38813#       发表于 2017-12-18 00:01
-
 
 
  本帖最后由 rooarr 于 2017-12-18 00:18 编辑 
@@ -23172,16 +14806,10 @@ R金R凛+大英雄+孔明，大英雄带满破虚数，剩下平铺静谧
 哦，要用好友的孔明加换人礼装
 
 
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 38814#       发表于 2017-12-18 00:47
-
 
 
  本帖最后由 霖星 于 2017-12-18 07:53 编辑 
@@ -23197,25 +14825,13 @@ R金R凛+大英雄+孔明，大英雄带满破虚数，剩下平铺静谧
 R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松的事情。双绿魔放BUFF下宝具伤害20W多，然后R凛因为两个鉴识眼的缘故，尾绿暴击都有10W伤害
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 38815#       发表于 2017-12-18 07:54
 
 
-
-
 麻痹的期盼感情，30连2张金枪，翻过来一看，爱娜
-
-
-
-
-
 
 
 -----
@@ -23224,14 +14840,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38816#       发表于 2017-12-18 07:58
 
 
-
-
 昨天上头沉了4单就歪了个阿周那，今天早上起床3石单抽竟然出艾蕾了！！！从今以后我就是单抽党了
-
-
-
-
-
 
 
 -----
@@ -23240,17 +14849,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38817#       发表于 2017-12-18 08:50
 
 
-
-
 梅林复刻入坑新人打法：机械龙娘孔明梅林抱个R凛大腿，平铺礼装
 
 
 一面平a攒np，2面R凛开1技能buff，孔明梅林buff全开，R凛宝具三连清场。三面机械龙娘（喂杯子到90,3技能10级）一发宝具+余下的两张卡的暴击基本可以带走。
-
-
-
-
-
 
 
 -----
@@ -23259,14 +14861,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38818#       发表于 2017-12-18 09:33
 
 
-
-
 20池了，还是0张
-
-
-
-
-
 
 
 -----
@@ -23275,14 +14870,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38819#       发表于 2017-12-18 09:44
 
 
-
-
 44池1礼装。这不对啊，难道不是1%掉率么。。。
-
-
-
-
-
 
 
 -----
@@ -23291,24 +14879,15 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38820#       发表于 2017-12-18 10:26
 
 
-
-
 剩了200个石头希望福袋能狗给我个恩奇都……
 
 不行只能等到三月十四了，真的有点想死<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  烤脑花  
 ##### 38821#       发表于 2017-12-18 11:34
-
-
 
 
 第一次用泳装小莫，连发真爽啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
@@ -23318,25 +14897,13 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 当然我觉得被熊孩子用滑板揍又被妹夫**的话是不会想掉礼装给我的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 38822#       发表于 2017-12-18 11:36
 
 
-
-
 翻页TIME
-
-
-
-
-
 
 
 -----
@@ -23345,14 +14912,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38823#       发表于 2017-12-18 13:17
 
 
-
-
 21池终于开张了，总算能+7了
-
-
-
-
-
 
 
 -----
@@ -23361,14 +14921,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38824#       发表于 2017-12-18 15:37
 
 
-
-
 十池一李庄，还可以
-
-
-
-
-
 
 
 -----
@@ -23377,14 +14930,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38825#       发表于 2017-12-18 17:24
 
 
-
-
 日了狗了，又一张金枪翻过来还是爱娜
-
-
-
-
-
 
 
 -----
@@ -23393,17 +14939,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38826#       发表于 2017-12-18 17:31
 
 
-
-
 今天这个狂本emmmmmmm
 还是回去术本吧
 
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -23412,14 +14951,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38827#       发表于 2017-12-18 17:36
 
 
-
-
 更新APP，修正特攻无效
-
-
-
-
-
 
 
 -----
@@ -23428,14 +14960,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38828#       发表于 2017-12-18 17:38
 
 
-
-
 喷了狂本<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">就住这了
-
-
-
-
-
 
 
 -----
@@ -23444,14 +14969,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38829#       发表于 2017-12-18 17:42
 
 
-
-
 神经病啊居然打班杨……怎么下得去手<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23460,14 +14978,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38830#       发表于 2017-12-18 17:43
 
 
-
-
 大型阿比酱体验本，狗盐川这波可以的
-
-
-
-
-
 
 
 -----
@@ -23476,16 +14987,9 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38831#       发表于 2017-12-18 18:07
 
 
-
-
 终于有单一掉落本了，刷起
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23494,13 +14998,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38832#       发表于 2017-12-18 18:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">拉二你怎么就变成艾蕾夫了
-
-
-
-
-
 
 
 -----
@@ -23511,12 +15009,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  森兰丸  
 ##### 38834#       发表于 2017-12-18 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38016417&amp;ptid=1085254" target="_blank">无敌のpeach 发表于 2017-12-18 18:09</a>
@@ -23525,16 +15021,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">那个不是イメージ映像吗
 
 
-
-
-
-
-
 -----
 
 ####  无敌のpeach  
 ##### 38835#       发表于 2017-12-18 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38016683&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-18 18:45</a>
@@ -23543,25 +15033,13 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">法闪对艾蕾小两口子的事熟的很，解说配上画面简直了！
 
 
-
-
-
-
-
 -----
 
 ####  木消灭  
 ##### 38836#       发表于 2017-12-18 19:04
 
 
-
-
 大和抚子喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23570,16 +15048,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38837#       发表于 2017-12-18 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38016031&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2017-12-18 17:24</a>
 
 日了狗了，又一张金枪翻过来还是爱娜</blockquote>
 爱娜到底是谁<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23588,14 +15060,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38838#       发表于 2017-12-18 20:23
 
 
-
-
 矮油这本好,艾蕾姐妹俩一起上刷的停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23604,13 +15069,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38839#       发表于 2017-12-18 20:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">又搞了6个石头随便抽抽 1金卡 枪兵！？ 安娜 第二抽 金卡？！！ 贤王
-
-
-
-
-
 
 
 -----
@@ -23619,17 +15078,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38840#       发表于 2017-12-18 20:57
 
 
-
-
 上周的广播局把我给笑出内伤
 
 
 大久保刘美和阿喀琉斯当嘉宾简直变成死宅聚会了
-
-
-
-
-
 
 
 -----
@@ -23638,14 +15090,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38841#       发表于 2017-12-18 21:28
 
 
-
-
 咸王你不要这样一本正经的讲单口相声，肚子吃不消<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23654,14 +15099,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38842#       发表于 2017-12-18 21:30
 
 
-
-
 刷了10多把，八连3个，精灵根0个，砂的堆数最高14堆，也不如尼托本，我到底来刷啥的
-
-
-
-
-
 
 
 -----
@@ -23670,16 +15108,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38843#       发表于 2017-12-18 21:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38017503&amp;ptid=1085254" target="_blank">v22325 发表于 2017-12-18 20:40</a>
 
 又搞了6个石头随便抽抽 1金卡 枪兵！？ 安娜 第二抽 金卡？！！ 贤王</blockquote>
 3张金枪卡翻过来安娜才真是把感情欺骗光了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23688,14 +15120,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38844#       发表于 2017-12-18 22:17
 
 
-
-
 卧槽已经有泥潭大佬满破2张了，瑟瑟发抖<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23704,16 +15129,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38845#       发表于 2017-12-18 22:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38018175&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-18 22:17</a>
 
 卧槽已经有泥潭大佬满破2张了，瑟瑟发抖</blockquote>
 3张满破的大佬都有了，真是又氪又肝又欧
-
-
-
-
-
 
 
 -----
@@ -23722,14 +15141,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38846#       发表于 2017-12-18 23:05
 
 
-
-
 故事的啊比要打几次啊，打了几次都复活了，真麻烦。
-
-
-
-
-
 
 
 -----
@@ -23738,16 +15150,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38847#       发表于 2017-12-18 23:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38018535&amp;ptid=1085254" target="_blank">gulant 发表于 2017-12-18 23:05</a>
 
 故事的啊比要打几次啊，打了几次都复活了，真麻烦。</blockquote>
 四次还是五次来着？
-
-
-
-
-
 
 
 -----
@@ -23756,16 +15162,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38848#       发表于 2017-12-18 23:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38018175&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-18 22:17</a>
 
 卧槽已经有泥潭大佬满破2张了，瑟瑟发抖</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一张都没掉的在这儿
-
-
-
-
-
 
 
 -----
@@ -23774,14 +15174,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38849#       发表于 2017-12-18 23:17
 
 
-
-
 一个晚上只刷了8池，效率堪忧啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23790,13 +15183,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38850#       发表于 2017-12-18 23:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">羡慕泥潭高效刷法，才3池的拖后腿了
-
-
-
-
-
 
 
 -----
@@ -23805,16 +15192,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38851#       发表于 2017-12-18 23:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38018612&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-18 23:14</a>
 
 一张都没掉的在这儿</blockquote>
 我也一张都没掉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23823,21 +15204,13 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38852#       发表于 2017-12-18 23:47
 
 
-
-
 翻页time
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 38853#       发表于 2017-12-19 01:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38018535&amp;ptid=1085254" target="_blank">gulant 发表于 2017-12-18 23:05</a>
@@ -23848,16 +15221,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 血多的那次要打4管血
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38854#       发表于 2017-12-19 06:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38018757&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-18 23:32</a>
@@ -23866,25 +15233,13 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">萌新也一张没掉
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38855#       发表于 2017-12-19 09:00
 
 
-
-
 礼装?不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23893,14 +15248,7 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38856#       发表于 2017-12-19 09:27
 
 
-
-
 萌新同不掉礼装，都要刷到139级了...
-
-
-
-
-
 
 
 -----
@@ -23909,23 +15257,15 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38857#       发表于 2017-12-19 09:46
 
 
-
-
 1张路过
 
 金古给的，3把就出，可是你给了我也要揍你啊，让你们不来！
-
-
-
-
-
 
 
 -----
 
 ####  圈量子  
 ##### 38858#       发表于 2017-12-19 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38020706&amp;ptid=1085254" target="_blank">红丽 发表于 2017-12-19 09:46</a>
@@ -23935,16 +15275,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 还好你在S1，没人会冲你这句话开始撕恩奇都和金古的问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 38859#       发表于 2017-12-19 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38020933&amp;ptid=1085254" target="_blank">圈量子 发表于 2017-12-19 10:10</a>
@@ -23953,16 +15287,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 没问题，他说了“你们”
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38860#       发表于 2017-12-19 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38020706&amp;ptid=1085254" target="_blank">红丽 发表于 2017-12-19 09:46</a>
@@ -23972,24 +15300,13 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 金古都没实装,你还要他来,那他只能臣妾做不到了
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38861#       发表于 2017-12-19 11:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">阿比池明天就结束了，盐川八成要再开一个法老UP池——然后下周圣诞活动结束实装村正（或者女帝
-
-
-
-
-
 
 
 -----
@@ -23998,16 +15315,10 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38862#       发表于 2017-12-19 11:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38019376&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2017-12-19 01:32</a>
 血少的那次要打5管血
 血多的那次要打4管血</blockquote>
 超难打，还会定住，死了会回全血，宝具破无敌。不碎水怎么打？
-
-
-
-
-
 
 
 -----
@@ -24016,21 +15327,13 @@ R金自充50，双孔明充40，所以需要前两面打出10NP，非常轻松�
 ##### 38863#       发表于 2017-12-19 11:47
 
 
-
-
 现在你们是埋头刷还是等最高掉落的时候刷啊？商店毕业了感觉刷本有点浪费苹果<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 38864#       发表于 2017-12-19 11:51
-
 
 
 <blockquote>引用第38862楼gulant于2017-12-19 11:43发表的  :
@@ -24042,16 +15345,10 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 38865#       发表于 2017-12-19 11:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38022043&amp;ptid=1085254" target="_blank">dreamd 发表于 2017-12-19 11:47</a>
@@ -24061,16 +15358,10 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 38866#       发表于 2017-12-19 11:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38021997&amp;ptid=1085254" target="_blank">gulant 发表于 2017-12-19 11:43</a>
@@ -24079,32 +15370,19 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 单体而已，学妹对不起<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 38867#       发表于 2017-12-19 12:00
 
 
-
-
 萌新才第6池，还在等效率铃铛本，术狂棋子都不够了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  茛菪  
 ##### 38868#       发表于 2017-12-19 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38021997&amp;ptid=1085254" target="_blank">gulant 发表于 2017-12-19 11:43</a>
@@ -24115,16 +15393,10 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 不那么极端用alterego普通的打也就那样……要接宝具也可以带盾娘乔老师这种拿来卖
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 38869#       发表于 2017-12-19 12:44
-
 
 
  本帖最后由 红丽 于 2017-12-19 12:55 编辑 
@@ -24141,25 +15413,14 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 至于粉丝想什么我不感兴趣，毕竟我本来就不是粉啊XDD
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 38870#       发表于 2017-12-19 12:45
 
 
-
  本帖最后由 红丽 于 2017-12-19 12:51 编辑 
 <blockquote>风怒</blockquote>
-
-
-
-
-
 
 
 -----
@@ -24168,21 +15429,14 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 ##### 38871#       发表于 2017-12-19 12:46
 
 
-
  本帖最后由 红丽 于 2017-12-19 12:48 编辑 
 <blockquote>风怒</blockquote>
-
-
-
-
-
 
 
 -----
 
 ####  圈量子  
 ##### 38872#       发表于 2017-12-19 13:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38022618&amp;ptid=1085254" target="_blank">红丽 发表于 2017-12-19 12:44</a>
@@ -24192,32 +15446,19 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 啊，这话放微博隔壁论坛姐妹论坛甚至贴吧都会被撕爆，真的只有S1无所谓<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38873#       发表于 2017-12-19 13:41
 
 
-
-
 第9500瓶沙子终于掉礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  红丽  
 ##### 38874#       发表于 2017-12-19 13:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38022983&amp;ptid=1085254" target="_blank">圈量子 发表于 2017-12-19 13:21</a>
@@ -24231,16 +15472,10 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 讲白了就是去姐妹论坛吵架我也不觉得我会输，我又不是没单枪匹马过去吵过（。
 
 
-
-
-
-
-
 -----
 
 ####  habita  
 ##### 38875#       发表于 2017-12-19 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38023273&amp;ptid=1085254" target="_blank">红丽 发表于 2017-12-19 13:50</a>
@@ -24253,16 +15488,10 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 至于后面吗……就是成田原教旨主义（脑补）恩粉和蘑菇修正主义恩奇都的冲突了
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 38876#       发表于 2017-12-19 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38023527&amp;ptid=1085254" target="_blank">habita 发表于 2017-12-19 14:13</a>
@@ -24274,16 +15503,10 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 不过只要不是主动惹我家伊斯塔和艾蕾的也懒得去怼那些极端粉
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 38877#       发表于 2017-12-19 14:42
-
 
 
  本帖最后由 红丽 于 2017-12-19 14:48 编辑 
@@ -24303,25 +15526,13 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 一定要说的话，实际上就跟呼啸山庄的希斯克利夫是一个道理，没人会觉得他移情别恋吧？这里也是一个道理啊，挚友离世了，不再存在于这个世上，所以一花一草一木都会令人想起他，更何况是尸体呢，实际上就是遗物啊……
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 38878#       发表于 2017-12-19 15:15
 
 
-
-
 说到底受众对“文艺作品”的消费除了质也需要量啦，对恩奇都粉来说就是能抽了这么一张卡然而游戏里其他方面基本就是空气了，别的稍有人气的角色哪怕被gag化了偶尔ooc了至少能不时出个场能有个谈资。既然官方不给戏份那粉丝自己多加点戏也可以理解吗，结果论而言是创造了可以热烈讨论的话题，应该也没有太妨碍到其他人……吧？
-
-
-
-
-
 
 
 -----
@@ -24330,14 +15541,7 @@ alterego刚正面啊，再放俩减气的拖时间，就算宝具放出来也就
 ##### 38879#       发表于 2017-12-19 17:07
 
 
-
-
 hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24346,14 +15550,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38880#       发表于 2017-12-19 17:09
 
 
-
-
 剧情支援的这个梅林才1个技能。。。
-
-
-
-
-
 
 
 -----
@@ -24362,16 +15559,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38881#       发表于 2017-12-19 17:36
 
 
-
-
 杀阶本，妈的我没有术阶光炮啊
 
 后面还有个弓阶本，赶快把我的艾蕾酱练起来！
-
-
-
-
-
 
 
 -----
@@ -24380,17 +15570,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38882#       发表于 2017-12-19 17:37
 
 
-
-
 杀本和弓本都不怎么友好……
 尼托我还是喜欢你
 
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -24399,14 +15582,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38883#       发表于 2017-12-19 17:43
 
 
-
-
 杀本有点烦人，弓本还是很好刷的
-
-
-
-
-
 
 
 -----
@@ -24415,14 +15591,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38884#       发表于 2017-12-19 17:45
 
 
-
-
 惊了,有勾玉和心脏<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24431,14 +15600,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38885#       发表于 2017-12-19 17:47
 
 
-
-
 卧槽，直接开了俩门，前两天还说新本开的慢了，结果今天就放了两个。。。
-
-
-
-
-
 
 
 -----
@@ -24447,14 +15609,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38886#       发表于 2017-12-19 17:49
 
 
-
-
 看到杀本我开心点掏出了30的1001，结果事实证明没有直充没有宝具本用个卵子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24463,13 +15618,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38887#       发表于 2017-12-19 17:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">有勾玉 手打np我也要住在杀本了
-
-
-
-
-
 
 
 -----
@@ -24478,14 +15627,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38888#       发表于 2017-12-19 17:58
 
 
-
-
 杀本直接上奶光了
-
-
-
-
-
 
 
 -----
@@ -24494,14 +15636,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38889#       发表于 2017-12-19 18:04
 
 
-
-
 杀本好啊，水泥可以用了
-
-
-
-
-
 
 
 -----
@@ -24510,14 +15645,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38890#       发表于 2017-12-19 18:14
 
 
-
-
 弓本是神酒和羽毛 感觉都需要（
-
-
-
-
-
 
 
 -----
@@ -24526,14 +15654,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38891#       发表于 2017-12-19 18:57
 
 
-
-
 祭祀长还帮忙演短剧的，难道她也来旮旯底了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24542,14 +15663,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38892#       发表于 2017-12-19 19:00
 
 
-
-
 杀本试了下喀耳刻，豚化还挺好用的，主力还是上术尼禄了
-
-
-
-
-
 
 
 -----
@@ -24558,14 +15672,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38893#       发表于 2017-12-19 19:26
 
 
-
-
 布姐宝具一枪捅了巴御前35W，难道吃特攻？！<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24574,14 +15681,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38894#       发表于 2017-12-19 19:34
 
 
-
-
 刚6池就掉李庄了，这次可以
-
-
-
-
-
 
 
 -----
@@ -24590,15 +15690,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38895#       发表于 2017-12-19 20:32
 
 
-
 <blockquote>里村紅葉 发表于 2017-12-19 19:26
 布姐宝具一枪捅了巴御前35W，难道吃特攻？！</blockquote>
 鲅鱼圈不是魔性么
-
-
-
-
-
 
 
 -----
@@ -24607,16 +15701,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38896#       发表于 2017-12-19 20:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38026958&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-19 20:32</a>
 
 鲅鱼圈不是魔性么</blockquote>
 也就是不吃特攻？光凭布姐和梅林再加个战斗服的buff能打出35W的吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24625,14 +15713,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38897#       发表于 2017-12-19 20:57
 
 
-
-
 单抽出了艾蕾了，本来想着双UP不可能出货的，但想着单UP我也不可能出货啊，于是就抽了，于是就出了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24641,14 +15722,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38898#       发表于 2017-12-19 21:16
 
 
-
-
 弓本就是加成和速刷不可兼得啊<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24657,15 +15731,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38899#       发表于 2017-12-19 21:24
 
 
-
 <blockquote>rooarr 发表于 2017-12-19 21:16
 弓本就是加成和速刷不可兼得啊低宝4星5星刷这种高血量的本各种伤害不足 ...</blockquote>
 伤害不足就算了，2面的大蛇几次逆克制暴击打死我抢阶。。。
-
-
-
-
-
 
 
 -----
@@ -24674,16 +15742,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38900#       发表于 2017-12-19 21:25
 
 
-
-
 我是恩奇都+艾雷+梅林
 
 基本稳定6回合左右，一个宝具，再快估计得换村夫了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24692,16 +15753,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38901#       发表于 2017-12-19 21:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027048&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-19 20:45</a>
 
 也就是不吃特攻？光凭布姐和梅林再加个战斗服的buff能打出35W的吗</blockquote>
 开了宝剧本的单体可不是这样吗<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24710,15 +15765,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38902#       发表于 2017-12-19 21:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027333&amp;ptid=1085254" target="_blank">heemoon 发表于 2017-12-19 21:24</a>
 伤害不足就算了，2面的大蛇几次逆克制暴击打死我抢阶。。。</blockquote>
 我已经放弃加成了，沙子＋5速刷，被这条蛇搞得没脾气<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24727,14 +15776,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38903#       发表于 2017-12-19 21:31
 
 
-
-
 杀阶本连续2把18箱砂子，我今天就住这里了
-
-
-
-
-
 
 
 -----
@@ -24743,16 +15785,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38904#       发表于 2017-12-19 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027132&amp;ptid=1085254" target="_blank">khxooo 发表于 2017-12-19 20:57</a>
 
 单抽出了艾蕾了，本来想着双UP不可能出货的，但想着单UP我也不可能出货啊，于是就抽了，于是就出了 ...</blockquote>
 恭喜恭喜，我也出了。3个月没来五星了，她真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24761,16 +15797,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38905#       发表于 2017-12-19 21:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38026186&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-19 18:57</a>
 
 祭祀长还帮忙演短剧的，难道她也来旮旯底了？</blockquote>
 没吧，都说了，画面只是想象而已。
-
-
-
-
-
 
 
 -----
@@ -24779,16 +15809,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38906#       发表于 2017-12-19 21:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027434&amp;ptid=1085254" target="_blank">w-pluto 发表于 2017-12-19 21:38</a>
 
 恭喜恭喜，我也出了。3个月没来五星了，她真可爱</blockquote>
 也恭喜你，她真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24797,14 +15821,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38907#       发表于 2017-12-19 22:08
 
 
-
-
 楼里大佬们纷纷满破了静谧礼装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24813,14 +15830,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38908#       发表于 2017-12-19 22:18
 
 
-
-
 然而我依然一张没掉（
-
-
-
-
-
 
 
 -----
@@ -24829,15 +15839,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38909#       发表于 2017-12-19 22:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027693&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-19 22:08</a>
 楼里大佬们纷纷满破了静谧礼装</blockquote>
 静谧不满破速刷更亏啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24846,14 +15850,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38910#       发表于 2017-12-19 22:28
 
 
-
-
 求提供今天两个本的速刷思路，自己有水泥和梅林
-
-
-
-
-
 
 
 -----
@@ -24862,16 +15859,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38911#       发表于 2017-12-19 22:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027774&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2017-12-19 22:18</a>
 
 然而我依然一张没掉（</blockquote>
 掉落礼装不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24880,21 +15871,13 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38912#       发表于 2017-12-19 22:37
 
 
-
-
 翻个页
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 38913#       发表于 2017-12-19 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027882&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-19 22:28</a>
@@ -24905,16 +15888,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 你可以试试，要3T就要亏加成，手打NP5T肯定能过了
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 38914#       发表于 2017-12-19 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027882&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-19 22:28</a>
@@ -24923,24 +15900,13 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 思路就是上奶光,第二面大怪和第三面boss全部吃特攻
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 38915#       发表于 2017-12-19 22:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">谢楼上两位，那看来好友必须带宝石翁赖光了
-
-
-
-
-
 
 
 -----
@@ -24949,17 +15915,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38916#       发表于 2017-12-19 22:46
 
 
-
-
 27池三张礼装
 然后我仍然住在术本
 
 —— 来自 HUAWEI BLN-AL40, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
-
-
-
-
-
 
 
 -----
@@ -24968,14 +15927,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38917#       发表于 2017-12-19 23:22
 
 
-
-
 卧槽，杀本那两个盯着机械龙娘来打，说好的先打梅林的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24984,21 +15936,13 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38918#       发表于 2017-12-19 23:41
 
 
-
-
 哎呀我就住在弓本算了，居然掉毛
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 38919#       发表于 2017-12-20 00:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027882&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-19 22:28</a>
@@ -25013,25 +15957,13 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 满宝大概就没这种问题了。
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38920#       发表于 2017-12-20 00:39
 
 
-
-
 今晚又是0张礼装，至今没法满破一张<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25040,14 +15972,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38921#       发表于 2017-12-20 00:50
 
 
-
-
 我不行了，又出了张大王，二宝了，艾雷呢？
-
-
-
-
-
 
 
 -----
@@ -25056,21 +15981,13 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38922#       发表于 2017-12-20 00:52
 
 
-
-
 2单3五星，3四星，没艾雷我觉得快要死了
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 38923#       发表于 2017-12-20 01:07
-
 
 
  本帖最后由 rooarr 于 2017-12-20 01:19 编辑 
@@ -25080,27 +15997,15 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 啊，31池的时候第3张出来，终于恢复到＋6了
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 38924#       发表于 2017-12-20 04:09
 
 
-
-
 弓本紫发女路人真好用……就是二面不打出brave chain清不了海德拉……
 
 话说才注意到这次三星只up了牛肉丸不up豹人这是何等的恶意……
-
-
-
-
-
 
 
 -----
@@ -25109,14 +16014,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38925#       发表于 2017-12-20 05:28
 
 
-
-
 8单一五星 奔溃了
-
-
-
-
-
 
 
 -----
@@ -25125,15 +16023,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38926#       发表于 2017-12-20 05:58
 
 
-
 <blockquote>gpx234mqx 发表于 2017-12-20 00:50
 我不行了，又出了张大王，二宝了，艾雷呢？</blockquote>
 看了眼公告，23号后面不是还有艾蕾的单up吗，干嘛现在抽双up。。
-
-
-
-
-
 
 
 -----
@@ -25142,22 +16034,15 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38927#       发表于 2017-12-20 07:21
 
 
-
 <blockquote>rain_xia 发表于 2017-12-20 05:58
 看了眼公告，23号后面不是还有艾蕾的单up吗，干嘛现在抽双up。。</blockquote>
 灵感来了单抽
-
-
-
-
-
 
 
 -----
 
 ####  eyeego  
 ##### 38928#       发表于 2017-12-20 07:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38027882&amp;ptid=1085254" target="_blank">枫紫 发表于 2017-12-19 22:28</a>
@@ -25168,25 +16053,13 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 哦忘了说了 一面大英雄
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38929#       发表于 2017-12-20 08:07
 
 
-
-
 大早起清体力，二十池第二张，可以，再来一张就满破
-
-
-
-
-
 
 
 -----
@@ -25195,17 +16068,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38930#       发表于 2017-12-20 08:35
 
 
-
-
 考虑再三，还是决定牺牲点加成换三回合速刷不精污了。。。
 
 
 速度真的快太多
-
-
-
-
-
 
 
 -----
@@ -25214,16 +16080,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38931#       发表于 2017-12-20 09:07
 
 
-
-
 巴姐果然对源家有内建仇恨吧
 
 盯着我家奶光疯狂输出<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25232,13 +16091,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38932#       发表于 2017-12-20 09:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">铃铛只有4个加成人物所以无论如何都只能带一个没加成的...
-
-
-
-
-
 
 
 -----
@@ -25247,14 +16100,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38933#       发表于 2017-12-20 09:34
 
 
-
-
 这次日服更新什么了？怎么才能进游戏？
-
-
-
-
-
 
 
 -----
@@ -25263,15 +16109,9 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38934#       发表于 2017-12-20 09:58
 
 
-
 <blockquote>阿提拉 发表于 2017-12-20 09:18
 铃铛只有4个加成人物所以无论如何都只能带一个没加成的...</blockquote>
 随便刷刷就溢出了啊，我加成就带个梅林
-
-
-
-
-
 
 
 -----
@@ -25280,14 +16120,7 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38935#       发表于 2017-12-20 10:15
 
 
-
-
 今天布姐捅巴姐的伤害已经突破40W大关了，目前来看还是第二面大蛇比较麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25296,22 +16129,13 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 ##### 38936#       发表于 2017-12-20 10:20
 
 
-
-
 看了效率剧场，弓本的砂子效率竟然还不如杀本
-
-
-
-
-
 
 
 -----
 
 ####  一色いろは  
 ##### 38937#       发表于 2017-12-20 10:27
-
-
 
 
 江湖救急
@@ -25321,16 +16145,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 653668441
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 38938#       发表于 2017-12-20 10:27
-
 
 
  本帖最后由 红丽 于 2017-12-20 10:28 编辑 
@@ -25352,16 +16170,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 我拿我几个大腿试了一下恩奇都，1技能满的情况下1宝要补一张红卡，2宝红卡打头宝具能过三十万<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38939#       发表于 2017-12-20 10:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38030199&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-20 09:58</a>
@@ -25370,16 +16182,10 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">个人强迫症而已...掉落倒是随便就够了，苹果留着刷沙子
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 38940#       发表于 2017-12-20 10:55
-
 
 
  本帖最后由 结标淡希 于 2017-12-20 11:02 编辑 
@@ -25390,25 +16196,13 @@ hahahahahahaha....笑死了....豹人好惨<img src="https://static.saraba1st.co
 wave1攒攒np后面就是宝具洗地了
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 38941#       发表于 2017-12-20 10:57
 
 
-
-
 又卡翻页了
-
-
-
-
-
 
 
 -----
@@ -25419,29 +16213,19 @@ wave1攒攒np后面就是宝具洗地了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  白金口袋  
 ##### 38943#       发表于 2017-12-20 11:34
 
 
-
-
 感谢巴姐，连着给掉了两张礼装<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  红丽  
 ##### 38944#       发表于 2017-12-20 11:38
-
-
 
 
 3宝恩奇都
@@ -25451,24 +16235,13 @@ wave1攒攒np后面就是宝具洗地了
 我不介意明年一年份的五星都歪恩奇都给我，我宁可要盘子<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 38945#       发表于 2017-12-20 11:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">3宝没啥意义，反正都是扔在保管室里吃灰，这次有加成才翻出来紧急升一下魔放凑活用
-
-
-
-
-
 
 
 -----
@@ -25477,15 +16250,9 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38946#       发表于 2017-12-20 12:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38031291&amp;ptid=1085254" target="_blank">结标淡希 发表于 2017-12-20 11:46</a>
 3宝没啥意义，反正都是扔在保管室里吃灰，这次有加成才翻出来紧急升一下魔放凑活用 ...</blockquote>
 你这紧急魔放才四级，有点咸啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25494,14 +16261,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38947#       发表于 2017-12-20 12:53
 
 
-
-
 我差不多也开始来刷弓本了，书页刷吐了（
-
-
-
-
-
 
 
 -----
@@ -25510,21 +16270,13 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38948#       发表于 2017-12-20 13:04
 
 
-
-
 终于能满破一张了，第8张等了好久<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 38949#       发表于 2017-12-20 13:14
-
 
 
 <blockquote>引用第38948楼dreamd于2017-12-20 13:04发表的  :
@@ -25536,26 +16288,15 @@ wave1攒攒np后面就是宝具洗地了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38950#       发表于 2017-12-20 13:22
 
 
-
  本帖最后由 dante888 于 2018-12-3 20:11 编辑 
 <blockquote>一色いろは 发表于 2017-12-20 10:27
 编辑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"></blockquote>
-
-
-
-
-
 
 
 -----
@@ -25564,23 +16305,16 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38951#       发表于 2017-12-20 13:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38031668&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2017-12-20 12:25</a>
 
 你这紧急魔放才四级，有点咸啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前忙着刷狗粮喂艾比攒储备留给艾蕾酱没刷QP，艾蕾酱一来蹭蹭就把QP吃光了，边刷边抽池子才有了一点QP升魔放
 
 
-
-
-
-
-
 -----
 
 ####  閻魔愛  
 ##### 38952#       发表于 2017-12-20 13:59
-
 
 
  本帖最后由 閻魔愛 于 2017-12-20 14:01 编辑 
@@ -25594,16 +16328,10 @@ wave1攒攒np后面就是宝具洗地了
 距离完美恩奇都还差2宝+300ATK+HP的金弗弗<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 38953#       发表于 2017-12-20 14:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38032466&amp;ptid=1085254" target="_blank">閻魔愛 发表于 2017-12-20 13:59</a>
@@ -25615,25 +16343,13 @@ wave1攒攒np后面就是宝具洗地了
 <img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">取向不同，你看看你厨的都是哪些英灵...赶紧攒石头准备天草去
 
 
-
-
-
-
-
 -----
 
 ####  fahsw  
 ##### 38954#       发表于 2017-12-20 14:33
 
 
-
-
 恩奇都这NP不太好攒……我都是带龙脉的- -反正COST吃紧，不过5宝恩奇都吃梅林魔放和衣服的军略，一发40-50万还是很爽的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25642,14 +16358,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38955#       发表于 2017-12-20 14:48
 
 
-
-
 你们这是鞭尸那个想抽小恩的同志么......我的两宝小恩都不好意思提了，虽然自己满魔放梅林满魔放加衣服大军略勉强可以秒巴御前妈妈吧......
-
-
-
-
-
 
 
 -----
@@ -25658,14 +16367,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38956#       发表于 2017-12-20 15:12
 
 
-
-
 就连这次活动我都没把三宝恩奇都拉出来用,就在圆角榜挂了两三天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25674,16 +16376,9 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38957#       发表于 2017-12-20 15:21
 
 
-
-
 楼上的坏人们就晒好了
 
 晒死你们！！！哼！！！
-
-
-
-
-
 
 
 -----
@@ -25692,16 +16387,10 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38958#       发表于 2017-12-20 15:37
 
 
-
 <img src="http://wx2.sinaimg.cn/mw690/005xOB49gy1fmn9tus8htj31kw16okhp.jpg" referrerpolicy="no-referrer">
 
 
 你们花样真多....泥潭大概就我最清流...稳定4回合过关
-
-
-
-
-
 
 
 -----
@@ -25710,14 +16399,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38959#       发表于 2017-12-20 15:51
 
 
-
-
 晒晒晒，该死的海豹
-
-
-
-
-
 
 
 -----
@@ -25726,14 +16408,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38960#       发表于 2017-12-20 16:00
 
 
-
-
 你们都这么亏加成的吗
-
-
-
-
-
 
 
 -----
@@ -25742,21 +16417,14 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38961#       发表于 2017-12-20 16:03
 
 
-
  本帖最后由 dante888 于 2018-12-3 20:12 编辑 
 <blockquote>编辑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"></blockquote>
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 38962#       发表于 2017-12-20 16:04
-
 
 
  本帖最后由 黑上シグマ 于 2017-12-20 16:05 编辑 
@@ -25767,16 +16435,10 @@ wave1攒攒np后面就是宝具洗地了
 不掉礼装的非洲佬如我只能这么打打……
 
 
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 38963#       发表于 2017-12-20 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38033597&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-20 16:03</a>
@@ -25787,11 +16449,6 @@ wave1攒攒np后面就是宝具洗地了
 又清了一个有了 求加
 
 
-
-
-
-
-
 -----
 
 ####  holybloodmk2  
@@ -25800,12 +16457,10 @@ wave1攒攒np后面就是宝具洗地了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dante888  
 ##### 38965#       发表于 2017-12-20 16:24
-
 
 
 <blockquote>一色いろは 发表于 2017-12-20 16:06
@@ -25813,11 +16468,6 @@ wave1攒攒np后面就是宝具洗地了
 
 又清了一个有了 求加</blockquote>
 加了，艾蕾卡锁链了，只能暂时点成这样了
-
-
-
-
-
 
 
 -----
@@ -25828,20 +16478,13 @@ wave1攒攒np后面就是宝具洗地了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  阿提拉  
 ##### 38967#       发表于 2017-12-20 16:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">才发现客户端又更新了
-
-
-
-
-
 
 
 -----
@@ -25850,14 +16493,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38968#       发表于 2017-12-20 16:39
 
 
-
-
 可能有的人觉得全助战全满破加成礼装之前不算掉礼装吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25866,16 +16502,10 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38969#       发表于 2017-12-20 16:40
 
 
-
  本帖最后由 dante888 于 2017-12-20 16:41 编辑 
 <blockquote>hyuy 发表于 2017-12-20 16:32
 你这叫不掉礼装?&gt;??</blockquote>
 他这个不是正常的么4张商店平铺，加一个满破好友，什么眼神啊你还不如吐槽他嘴上说不抽艾蕾，实际还是抽到了
-
-
-
-
-
 
 
 -----
@@ -25884,16 +16514,10 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38970#       发表于 2017-12-20 16:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38033877&amp;ptid=1085254" target="_blank">hyuy 发表于 2017-12-20 16:32</a>
 
 你这叫不掉礼装?&gt;??</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">换4缺1，很标准的脸黑没掉礼装啊
-
-
-
-
-
 
 
 -----
@@ -25902,16 +16526,10 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38971#       发表于 2017-12-20 16:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38033556&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-20 16:00</a>
 
 你们都这么亏加成的吗</blockquote>
 商店都搬空了，还贪啥加成，最大限度平铺灰就好。
-
-
-
-
-
 
 
 -----
@@ -25920,14 +16538,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38972#       发表于 2017-12-20 16:48
 
 
-
-
 突然更新客户端,盐某人这是又要打算干嘛
-
-
-
-
-
 
 
 -----
@@ -25936,16 +16547,10 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38973#       发表于 2017-12-20 16:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38033945&amp;ptid=1085254" target="_blank">dante888 发表于 2017-12-20 16:40</a>
 
 他这个不是正常的么4张商店平铺，加一个满破好友，什么眼神啊你还不如吐槽他嘴上说不抽艾蕾，实际还是抽到 ...</blockquote>
 我是不抽艾蕾啊，我是去抽礼装啊，不然这艾蕾会只有一宝吗？结果五星礼装一张都没抽到fuck
-
-
-
-
-
 
 
 -----
@@ -25956,7 +16561,6 @@ wave1攒攒np后面就是宝具洗地了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hyuy  
@@ -25965,21 +16569,13 @@ wave1攒攒np后面就是宝具洗地了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dreamd  
 ##### 38976#       发表于 2017-12-20 16:54
 
 
-
-
 明天会不会有新的up？突然来个卫星什么的
-
-
-
-
-
 
 
 -----
@@ -25988,14 +16584,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38977#       发表于 2017-12-20 16:58
 
 
-
-
 不会开新池子吧，谷歌商店更新了
-
-
-
-
-
 
 
 -----
@@ -26004,14 +16593,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38978#       发表于 2017-12-20 17:01
 
 
-
-
 几个小时前就更新了，修BUG
-
-
-
-
-
 
 
 -----
@@ -26020,21 +16602,13 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38979#       发表于 2017-12-20 17:19
 
 
-
-
 毒针兽毛，齿轮又被奶死了
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 38980#       发表于 2017-12-20 17:45
-
 
 
  本帖最后由 alucardcz 于 2017-12-20 17:58 编辑 
@@ -26045,32 +16619,19 @@ wave1攒攒np后面就是宝具洗地了
 另外这高难依然是低难。。咸鱼安心碾压
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 38981#       发表于 2017-12-20 17:48
 
 
-
-
 安定的低难本
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 38982#       发表于 2017-12-20 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38034468&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-20 17:45</a>
@@ -26081,16 +16642,10 @@ wave1攒攒np后面就是宝具洗地了
 鲍鱼圈是神马，听起来好**啊
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38983#       发表于 2017-12-20 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38034525&amp;ptid=1085254" target="_blank">sandro 发表于 2017-12-20 17:52</a>
@@ -26099,16 +16654,10 @@ wave1攒攒np后面就是宝具洗地了
 大概是巴御前（
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38984#       发表于 2017-12-20 17:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38034525&amp;ptid=1085254" target="_blank">sandro 发表于 2017-12-20 17:52</a>
@@ -26117,25 +16666,13 @@ wave1攒攒np后面就是宝具洗地了
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">手滑打错了  一切都是幻觉
 
 
-
-
-
-
-
 -----
 
 ####  yueyut  
 ##### 38985#       发表于 2017-12-20 18:01
 
 
-
-
 有点懵逼，这砂子本这么难刷。没闪闪感觉被制裁了。
-
-
-
-
-
 
 
 -----
@@ -26144,14 +16681,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38986#       发表于 2017-12-20 18:03
 
 
-
-
 夸一句枪好帅整个人就变闪亮亮,这女人真好糊弄<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26160,14 +16690,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38987#       发表于 2017-12-20 18:10
 
 
-
-
 为什么会有FEX的标题BGM<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26176,13 +16699,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38988#       发表于 2017-12-20 18:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">悲剧。。。最下面的本是5花环啊。。我还以为5ap。。。
-
-
-
-
-
 
 
 -----
@@ -26191,14 +16708,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38989#       发表于 2017-12-20 18:31
 
 
-
-
 矮油这高难,莫崽zaima<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26207,14 +16717,7 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38990#       发表于 2017-12-20 18:37
 
 
-
-
 内尔伽勒的恶意吃恶特攻啊…………实装希望<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26223,21 +16726,13 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38991#       发表于 2017-12-20 18:44
 
 
-
-
 这最终本 盐川能不能死个妈啊
-
-
-
-
-
 
 
 -----
 
 ####  森兰丸  
 ##### 38992#       发表于 2017-12-20 18:48
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没人水剧情吗....说实话很恶心啊....为了让玩家光明正大的泡艾蕾硬是把奈尔加尔设定成了恶役
@@ -26257,16 +16752,10 @@ wave1攒攒np后面就是宝具洗地了
 另外之前剧情还有管冥界死活这种选项....咕哒什么时候是这么不负责任的人了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 38993#       发表于 2017-12-20 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38034945&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-20 18:48</a>
@@ -26279,11 +16768,6 @@ wave1攒攒np后面就是宝具洗地了
 按照这趋势我估计以后主线都不用看了。。。
 
 
-
-
-
-
-
 -----
 
 ####  hyuy  
@@ -26292,21 +16776,13 @@ wave1攒攒np后面就是宝具洗地了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  ネロ  
 ##### 38995#       发表于 2017-12-20 18:57
 
 
-
-
 这恶灵让我回想起了对狒狒14的为数不多的记忆
-
-
-
-
-
 
 
 -----
@@ -26315,21 +16791,13 @@ wave1攒攒np后面就是宝具洗地了
 ##### 38996#       发表于 2017-12-20 19:04
 
 
-
-
 没有五星弓这沙本刷起来好难受
-
-
-
-
-
 
 
 -----
 
 ####  里村紅葉  
 ##### 38997#       发表于 2017-12-20 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38034945&amp;ptid=1085254" target="_blank">森兰丸 发表于 2017-12-20 18:48</a>
@@ -26340,16 +16808,10 @@ wave1攒攒np后面就是宝具洗地了
 这事情好像东出也干过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38998#       发表于 2017-12-20 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38034991&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-12-20 18:53</a>
@@ -26360,16 +16822,10 @@ wave1攒攒np后面就是宝具洗地了
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这破游除了剧情还剩啥....要说厨力放出那也是要通过剧情啊
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 38999#       发表于 2017-12-20 19:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=38035128&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2017-12-20 19:14</a>
@@ -26378,22 +16834,12 @@ wave1攒攒np后面就是宝具洗地了
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">比贞德要恶心多了....贞德好歹历史上没有伴侣....齐格也没有让贞德别做圣女了
 
 
-
-
-
-
-
 -----
 
 ####  heemoon  
 ##### 39000#       发表于 2017-12-20 19:29
 
 
-
-
 梅闪闪平铺李庄+7打剑本要8回合。。。没单体弓打得太累了。。。
-
-
-
 
 

@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2021-04-02 12:18** 
 
 
-
 -----
 
 ####  nowaki  
 ##### 1#       楼主       发表于 2021-3-25 15:17
-
 
 
  本帖最后由 nowaki 于 2021-3-26 00:24 编辑 
@@ -22,10 +20,6 @@
 2021-3-25 15:02 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/25/161245c22s92viuij9cgks.jpg" referrerpolicy="no-referrer">
 
 
@@ -36,16 +30,10 @@
 2021-3-25 16:12 上传
 
 
-
-
-
-
-
 圣嘉然教堂是神圣的祈祷之所，是朝拜圣嘉然和宣扬嘉然福音的神圣地方，进教堂者请注意，为了大家的健康，请患有杏病、精神疾病及不能控制自己发情者不要进入教堂。
 
 
 嘉然，圣嘉教的崇拜对象。按照《圣嘉经》记载，童贞女乐华受圣灵感孕，在枝江生下嘉然。她十八岁开始传教，宣扬福音。后被泥谭版务以流量商法控告，经泥路撒冷的威版版主亿·污污一审判，被钉死在十字架上。三天后复活，然后升天。圣嘉徒相信嘉然还要再来，使信徒得到救赎，三月七日这天嘉然果然降下神迹，圣嘉徒无不对嘉然更加虔诚。
-
 
 
 只要你诚心向嘉然祈祷，救赎之道，就在其中。嘉门
@@ -63,10 +51,6 @@
 2021-3-26 00:13 上传
 
 
-
-
-
-
 圣嘉教告解
 告解台词
 忏悔者XXX坐在神父面前，求神父降福，准我罪人告解....
@@ -76,17 +60,12 @@
 还有我省察不到或省察不清或别人因我所犯的罪，都求主教或神父一一宽恕
 
 
-
 告解完毕，圣嘉然便会宽恕你，得以重回圣嘉教，嘉门
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 10战斗力 +10
@@ -105,12 +84,7 @@
 | wiig| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -119,15 +93,9 @@
 ##### 2#       发表于 2021-3-25 15:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -136,14 +104,7 @@
 ##### 3#       发表于 2021-3-25 15:26
 
 
-
-
 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -152,13 +113,7 @@
 ##### 4#       发表于 2021-3-25 15:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -167,17 +122,10 @@
 ##### 5#       发表于 2021-3-25 15:33
 
 
-
-
 😇
 🙏🏻
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -186,14 +134,7 @@
 ##### 6#       发表于 2021-3-25 15:40
 
 
-
-
 嘉门🙏🏻
-
-
-
-
-
 
 
 -----
@@ -202,19 +143,11 @@
 ##### 7#       发表于 2021-3-25 16:10
 
 
-
-
 偷一张图，感觉很适合教堂
-
-
-
-
 
 
 54593bd162d9f2d3c96103a2beec8a136227ccbc.jpg
 (90.77 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -223,28 +156,12 @@
 2021-3-25 16:10 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/25/161018fxj3pxqtxnh53aii.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -254,12 +171,7 @@
 | nowaki| + 1|好偷|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -268,14 +180,7 @@
 ##### 8#       发表于 2021-3-25 16:37
 
 
-
-
 嘉门！
-
-
-
-
-
 
 
 -----
@@ -284,14 +189,7 @@
 ##### 9#       发表于 2021-3-25 22:47
 
 
-
-
 今天没发病,然然晚安
-
-
-
-
-
 
 
 -----
@@ -300,13 +198,7 @@
 ##### 10#         楼主| 发表于 2021-3-25 22:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今天也是沐浴在嘉然光辉下的一日，嘉门
-
-
-
-
-
 
 
 -----
@@ -315,14 +207,7 @@
 ##### 11#       发表于 2021-3-25 22:54
 
 
-
-
 嘉然小姐原谅我，我把我的目光从你的身上挪开转移到了其他女人的身上，我有罪 请宽恕我 嘉门
-
-
-
-
-
 
 
 -----
@@ -331,16 +216,9 @@
 ##### 12#       发表于 2021-3-25 22:54
 
 
-
-
 今天直播非常好，又是满足的一天，谢谢然然<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -349,14 +227,7 @@
 ##### 13#       发表于 2021-3-25 23:41
 
 
-
-
 珈门🙏🏻
-
-
-
-
-
 
 
 -----
@@ -365,14 +236,7 @@
 ##### 14#       发表于 2021-3-25 23:46
 
 
-
-
 嘉门！
-
-
-
-
-
 
 
 -----
@@ -381,14 +245,7 @@
 ##### 15#       发表于 2021-3-25 23:46
 
 
-
-
 好偷<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -397,22 +254,13 @@
 ##### 16#       发表于 2021-3-25 23:47
 
 
-
-
 珈门
-
-
-
-
-
 
 
 -----
 
 ####  凑君胖次真好闻  
 ##### 17#       发表于 2021-3-26 00:00
-
-
 
 
 发病了，小作文回的后遗症来了
@@ -423,17 +271,10 @@
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  凑君胖次真好闻  
 ##### 18#       发表于 2021-3-26 00:01
-
-
 
 
 说起来教堂发病是不是不太对，如果大家观感不好我就编辑掉<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
@@ -442,17 +283,10 @@
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  Y_Curiosity  
 ##### 19#       发表于 2021-3-26 00:03
-
-
 
 
 嘉门
@@ -460,16 +294,10 @@
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  nowaki  
 ##### 20#         楼主| 发表于 2021-3-26 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735023&amp;ptid=1994944" target="_blank">凑君胖次真好闻 发表于 2021-3-26 00:00</a>
@@ -484,25 +312,13 @@
 大家都是嘉人，嘉然会宽恕她的字民的罪的，嘉门
 
 
-
-
-
-
-
 -----
 
 ####  EnbuRiAs  
 ##### 21#       发表于 2021-3-26 00:05
 
 
-
-
 Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -511,21 +327,13 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 22#       发表于 2021-3-26 00:10
 
 
-
-
 嘉门🙏🏻🙏🏻🙏🏻🙏🏻🙏🏽🙏🏾🙏🏿
-
-
-
-
-
 
 
 -----
 
 ####  是谁的书画  
 ##### 23#       发表于 2021-3-26 00:20
-
 
 
  本帖最后由 是谁的书画 于 2021-3-26 00:21 编辑 
@@ -544,25 +352,13 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  沙华  
 ##### 24#       发表于 2021-3-26 00:22
 
 
-
-
 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -571,16 +367,9 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 25#       发表于 2021-3-26 00:26
 
 
-
-
 睡前一拜🙏
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -589,14 +378,7 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 26#       发表于 2021-3-26 01:02
 
 
-
-
 嘉门，要熬夜了。赦免我的罪吧。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -605,23 +387,15 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 27#       发表于 2021-3-26 01:37
 
 
-
-
 一个s1的v版两座教堂是吧，什么耶路撒冷
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  nowaki  
 ##### 28#         楼主| 发表于 2021-3-26 01:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735518&amp;ptid=1994944" target="_blank">虚无缥缈的光阴 发表于 2021-3-26 01:37</a>
@@ -633,32 +407,19 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 大天使只是嘉然的左手，圣嘉然传播福音的使者而已
 
 
-
-
-
-
-
 -----
 
 ####  lovcavil  
 ##### 29#       发表于 2021-3-26 02:22
 
 
-
 <[img src="https://i.loli.net/2021/03/26/xLqTB9WU3McpZjJ.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  抄袭炉石的垃圾  
 ##### 30#       发表于 2021-3-26 02:24
-
-
 
 
 嘉门
@@ -668,16 +429,10 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 🙏🏻
 
 
-
-
-
-
-
 -----
 
 ####  OldGlory  
 ##### 31#       发表于 2021-3-26 02:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735518&amp;ptid=1994944" target="_blank">虚无缥缈的光阴 发表于 2021-3-26 01:37</a>
@@ -689,32 +444,19 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 其实有三座
 
 
-
-
-
-
-
 -----
 
 ####  leachiman  
 ##### 32#       发表于 2021-3-26 04:02
 
 
-
-
 进餐的时候，圣嘉然说：你们当中有一人要出卖我<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  午餐女仆  
 ##### 33#       发表于 2021-3-26 05:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735801&amp;ptid=1994944" target="_blank">leachiman 发表于 2021-3-26 04:02</a>
@@ -724,32 +466,19 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 —— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Blaze626  
 ##### 34#       发表于 2021-3-26 06:15
 
 
-
-
 嘉门😇🙏
-
-
-
-
-
 
 
 -----
 
 ####  阿萨德飞过去  
 ##### 35#       发表于 2021-3-26 06:24
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
@@ -768,26 +497,13 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 嘉门
 
 
-
-
-
-
-
 -----
 
 ####  弈秋  
 ##### 36#       发表于 2021-3-26 08:13
 
 
-
-
-
 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -796,14 +512,7 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 37#       发表于 2021-3-26 08:19
 
 
-
-
 嘉门
-
-
-
-
-
 
 
 -----
@@ -812,14 +521,7 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 38#       发表于 2021-3-26 08:41
 
 
-
-
 嘉门
-
-
-
-
-
 
 
 -----
@@ -828,13 +530,7 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 39#       发表于 2021-3-26 08:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">嘉门
-
-
-
-
-
 
 
 -----
@@ -843,15 +539,7 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 40#       发表于 2021-3-26 08:58
 
 
-
-
-
 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -860,16 +548,9 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 41#       发表于 2021-3-26 08:59
 
 
-
-
 嘉门
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -878,16 +559,9 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 42#       发表于 2021-3-26 09:02
 
 
-
-
 嘉门
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -896,16 +570,9 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 43#       发表于 2021-3-26 09:08
 
 
-
-
 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -914,15 +581,9 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 44#       发表于 2021-3-26 09:10
 
 
-
  本帖最后由 依然荏苒 于 2021-3-29 03:18 编辑 
 
 嫉妒的原罪让我无法原谅自己，渴求您的救赎。
-
-
-
-
-
 
 
 -----
@@ -931,24 +592,15 @@ Diana，我愿尊你的名为圣，愿你的国降临<img src="https://static.sa
 ##### 45#       发表于 2021-3-26 09:13
 
 
-
-
 晨，嘉门🙏🏻
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
 
 ####  缺陷电气杨永信  
 ##### 46#       发表于 2021-3-26 09:20
-
-
 
 
 O quam sancta, quam serena,
@@ -959,27 +611,15 @@ O castitatis lilium.
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  不想闭嘴  
 ##### 47#       发表于 2021-3-26 09:55
 
 
-
-
 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
 
 <img src="https://ftp.bmp.ovh/imgs/2021/03/464135785dccb673.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -988,13 +628,7 @@ O castitatis lilium.
 ##### 48#       发表于 2021-3-26 10:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">一想到前两座教堂的主人，然然我的然然
-
-
-
-
-
 
 
 -----
@@ -1003,21 +637,13 @@ O castitatis lilium.
 ##### 49#       发表于 2021-3-26 10:17
 
 
-
-
 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  凑君胖次真好闻  
 ##### 50#       发表于 2021-3-26 21:15
-
 
 
  本帖最后由 凑君胖次真好闻 于 2021-3-26 21:16 编辑 
@@ -1027,27 +653,15 @@ O castitatis lilium.
 对不起，对不起，对不起，对不起，真的对不起啊。
 
 
-
-
-
-
-
 -----
 
 ####  凑君胖次真好闻  
 ##### 51#       发表于 2021-3-26 22:20
 
 
-
-
 病好了，然然跳舞真可爱。
 
 又是美好的一天，晚安然然<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1056,13 +670,7 @@ O castitatis lilium.
 ##### 52#       发表于 2021-3-26 22:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">嘉门
-
-
-
-
-
 
 
 -----
@@ -1071,13 +679,7 @@ O castitatis lilium.
 ##### 53#         楼主| 发表于 2021-3-26 22:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">今天也是充满嘉然的一天
-
-
-
-
-
 
 
 -----
@@ -1086,14 +688,7 @@ O castitatis lilium.
 ##### 54#       发表于 2021-3-26 22:39
 
 
-
-
 嘉然让nga A版复活了，嘉门！
-
-
-
-
-
 
 
 -----
@@ -1102,14 +697,7 @@ O castitatis lilium.
 ##### 55#       发表于 2021-3-26 22:46
 
 
-
-
 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1118,14 +706,7 @@ O castitatis lilium.
 ##### 56#       发表于 2021-3-26 23:12
 
 
-
-
 愿我在梦中能够一窥神的容颜 嘉门
-
-
-
-
-
 
 
 -----
@@ -1134,14 +715,7 @@ O castitatis lilium.
 ##### 57#       发表于 2021-3-26 23:17
 
 
-
-
 嘉门🙏🏻
-
-
-
-
-
 
 
 -----
@@ -1150,14 +724,7 @@ O castitatis lilium.
 ##### 58#       发表于 2021-3-27 00:13
 
 
-
-
 嘉门，今天被人用莫须有的罪名骂了，生气了，求嘉然小姐宽恕我，嘉门……
-
-
-
-
-
 
 
 -----
@@ -1166,16 +733,9 @@ O castitatis lilium.
 ##### 59#       发表于 2021-3-27 01:29
 
 
-
-
 圣嘉然，请你赐予我明天努力工作的力量，嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1184,16 +744,9 @@ O castitatis lilium.
 ##### 60#       发表于 2021-3-27 09:34
 
 
-
-
 🙏🏻
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -1202,14 +755,7 @@ O castitatis lilium.
 ##### 61#       发表于 2021-3-27 09:53
 
 
-
-
 最近都没什么干劲，愿圣嘉然能够赐予我活力，嘉门🙏🏻
-
-
-
-
-
 
 
 -----
@@ -1218,17 +764,10 @@ O castitatis lilium.
 ##### 62#       发表于 2021-3-27 09:53
 
 
-
-
 又有点精神不稳定了。
 请求得到你给我的爱。
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -1237,14 +776,7 @@ O castitatis lilium.
 ##### 63#       发表于 2021-3-27 22:14
 
 
-
-
 今天精神状态稳定，然然晚安。<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1253,14 +785,7 @@ O castitatis lilium.
 ##### 64#       发表于 2021-3-27 22:18
 
 
-
-
 圣嘉然在上，总有一天，我会撕裂这片虚假的星空，嘉门！
-
-
-
-
-
 
 
 -----
@@ -1269,14 +794,7 @@ O castitatis lilium.
 ##### 65#       发表于 2021-3-27 23:03
 
 
-
-
 嘉然小姐俯下腰肢，如夜晚拥抱了整座城市。她的怀抱是我心灵的海洋，灵魂的归处。 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1285,16 +803,9 @@ O castitatis lilium.
 ##### 66#       发表于 2021-3-28 08:07
 
 
-
-
 晨，嘉门
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -1303,14 +814,7 @@ O castitatis lilium.
 ##### 67#       发表于 2021-3-28 09:16
 
 
-
-
 天天都有好心情 嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1319,14 +823,7 @@ O castitatis lilium.
 ##### 68#       发表于 2021-3-28 10:01
 
 
-
-
 嘉门！
-
-
-
-
-
 
 
 -----
@@ -1335,13 +832,7 @@ O castitatis lilium.
 ##### 69#       发表于 2021-3-28 21:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">然然我的然然 带我走吧
-
-
-
-
-
 
 
 -----
@@ -1350,14 +841,7 @@ O castitatis lilium.
 ##### 70#       发表于 2021-3-28 22:39
 
 
-
-
 顶着想当嘉然小姐的狗的id打游戏输了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">我有罪 请原谅我嘉然小姐 嘉门
-
-
-
-
-
 
 
 -----
@@ -1366,16 +850,9 @@ O castitatis lilium.
 ##### 71#       发表于 2021-3-28 22:52
 
 
-
-
 然然晚安
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -1384,16 +861,9 @@ O castitatis lilium.
 ##### 72#       发表于 2021-3-29 08:17
 
 
-
-
 没有圣嘉然庇护的第二天，爱然信然等然，嘉门🙏🏻
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1402,13 +872,7 @@ O castitatis lilium.
 ##### 73#       发表于 2021-3-29 10:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1417,14 +881,7 @@ O castitatis lilium.
 ##### 74#       发表于 2021-3-29 10:14
 
 
-
-
 双重黑暗的周一<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1433,14 +890,7 @@ O castitatis lilium.
 ##### 75#       发表于 2021-3-29 10:28
 
 
-
-
 还挺得住<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1449,13 +899,7 @@ O castitatis lilium.
 ##### 76#         楼主| 发表于 2021-3-29 10:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">黑暗的两天
-
-
-
-
-
 
 
 -----
@@ -1464,15 +908,9 @@ O castitatis lilium.
 ##### 77#       发表于 2021-3-29 10:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -1481,14 +919,7 @@ O castitatis lilium.
 ##### 78#       发表于 2021-3-29 16:19
 
 
-
-
 愿每天都能睡个好梦，嘉门
-
-
-
-
-
 
 
 -----
@@ -1497,14 +928,7 @@ O castitatis lilium.
 ##### 79#       发表于 2021-3-29 16:35
 
 
-
-
 我已从地狱中解脱，愿圣嘉然宽恕我的罪，嘉门
-
-
-
-
-
 
 
 -----
@@ -1513,14 +937,7 @@ O castitatis lilium.
 ##### 80#       发表于 2021-3-29 21:42
 
 
-
-
 嘉门，嘉然请原谅我一时的亵渎<img src="https://static.saraba1st.com/image/smiley/goose2017/010.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1529,14 +946,7 @@ O castitatis lilium.
 ##### 81#       发表于 2021-3-29 21:43
 
 
-
-
 后天复试了，愿然然保佑我，嘉门！
-
-
-
-
-
 
 
 -----
@@ -1545,14 +955,7 @@ O castitatis lilium.
 ##### 82#       发表于 2021-3-29 23:44
 
 
-
-
 没有嘉然小姐看我已经要死了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1561,14 +964,7 @@ O castitatis lilium.
 ##### 83#       发表于 2021-3-30 19:34
 
 
-
-
 嘉然，你会在五分钟内降下qa吗
-
-
-
-
-
 
 
 -----
@@ -1577,14 +973,7 @@ O castitatis lilium.
 ##### 84#       发表于 2021-3-30 19:55
 
 
-
-
 圣嘉然保佑周四p事没有，纯属工具人整尬活
-
-
-
-
-
 
 
 -----
@@ -1593,16 +982,9 @@ O castitatis lilium.
 ##### 85#       发表于 2021-3-30 19:55
 
 
-
-
 然然我好害怕啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -1611,14 +993,7 @@ O castitatis lilium.
 ##### 86#       发表于 2021-3-30 20:56
 
 
-
-
 然然你带我走吧然然<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1627,15 +1002,9 @@ O castitatis lilium.
 ##### 87#       发表于 2021-3-31 08:39
 
 
-
 <blockquote>ypossible 发表于 2021-3-29 21:43
 后天复试了，愿然然保佑我，嘉门！</blockquote>
 马上复试了，然然保佑！
-
-
-
-
-
 
 
 -----
@@ -1644,14 +1013,7 @@ O castitatis lilium.
 ##### 88#       发表于 2021-3-31 09:38
 
 
-
-
 圣嘉然在上，我要更加努力
-
-
-
-
-
 
 
 -----
@@ -1660,16 +1022,9 @@ O castitatis lilium.
 ##### 89#       发表于 2021-4-1 07:51
 
 
-
-
 然然早上好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -1678,14 +1033,7 @@ O castitatis lilium.
 ##### 90#       发表于 2021-4-1 08:13
 
 
-
-
 然然早上好！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1694,15 +1042,7 @@ O castitatis lilium.
 ##### 91#       发表于 2021-4-2 09:17
 
 
-
-
-
 然然早上好！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1711,16 +1051,9 @@ O castitatis lilium.
 ##### 92#       发表于 2021-4-2 12:42
 
 
-
-
 😇😇😇😇😇😇😇灭门
 
 —— 来自 vivo V2025A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -1729,12 +1062,7 @@ O castitatis lilium.
 ##### 93#       发表于 2021-4-2 13:36
 
 
-
-
 至高无上的圣嘉然保佑我考公顺利
-
-
-
 
 
                                               

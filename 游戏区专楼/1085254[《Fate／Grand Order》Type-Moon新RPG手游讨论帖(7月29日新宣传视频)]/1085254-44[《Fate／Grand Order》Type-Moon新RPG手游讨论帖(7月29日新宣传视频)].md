@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2021-01-04 16:37** 
 
 
-
 -----
 
 ####  阿提拉  
 ##### 64501#       发表于 2019-2-27 23:07
-
-
 
 
 帝王花是目前为止唯一一个MY ROOM立绘和卡面立绘不一样的从者吧……
@@ -17,16 +14,10 @@
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 64502#       发表于 2019-2-27 23:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42746682&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-2-27 23:07</a>
@@ -38,25 +29,14 @@
 先抽5宝再喂，2宝可不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 64503#       发表于 2019-2-27 23:15
 
 
-
 [https://bbs.nga.cn/read.php?tid=16518630](https://bbs.nga.cn/read.php?tid=16518630)<blockquote>这样配合梅林体系，一面用帝王花平A攒NP加拖回合数，然后二面直接红卡光炮配合双梅林开炮，三面2技能解除然后再次连射，这难道不是一种很强的周回解法？由于梅林自己只有20充能，双梅林一共40，而红卡自身没有NP回收实质上导致红卡周回连发基本上就等同于需求从者拥有超过60的NP充能，而帝王花就符合这一条件，甚至不单是符合甚至是超过了，其带黑杯的情况下，第一面攒NP甚至只需要60NP加拖3回合时间，即可第二面双梅林直接充能开炮，然后第三面还可以直接100自冲连射。</blockquote>
 我的妈碰到千古奇才了，周回本1面平A拖回合数<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -65,14 +45,7 @@
 ##### 64504#       发表于 2019-2-27 23:19
 
 
-
-
 周回本拖回合数还行
-
-
-
-
-
 
 
 -----
@@ -81,14 +54,7 @@
 ##### 64505#       发表于 2019-2-27 23:23
 
 
-
-
 我经常这么干啊，有问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -97,14 +63,7 @@
 ##### 64506#       发表于 2019-2-27 23:39
 
 
-
-
 2单最后海底捞月 帝王花 
-
-
-
-
-
 
 
 -----
@@ -113,14 +72,7 @@
 ##### 64507#       发表于 2019-2-28 00:34
 
 
-
-
 周回本一二面平a有什么问题，我除了无限池之类的其他活动都是这么打的。
-
-
-
-
-
 
 
 -----
@@ -129,13 +81,7 @@
 ##### 64508#       发表于 2019-2-28 01:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">这霸王花给个嘲讽也好啊...光有HP没卵用
-
-
-
-
-
 
 
 -----
@@ -144,22 +90,15 @@
 ##### 64509#       发表于 2019-2-28 02:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">攒的都是没灵魂的石头吗
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 64510#       发表于 2019-2-28 05:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42745635&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-2-27 21:48</a>
@@ -169,16 +108,10 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说好的等cba呢
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 64511#       发表于 2019-2-28 06:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42748276&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-2-28 05:35</a>
@@ -192,16 +125,10 @@ ou 羡慕
 非洲人5星AE除了色情尼姑外都齐了.....论性能说实话抽出来真没多大用
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64512#       发表于 2019-2-28 06:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42748360&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-2-28 06:21</a>
@@ -214,16 +141,10 @@ ou 羡慕
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于性能 是什么能吃吗
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 64513#       发表于 2019-2-28 06:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42748381&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-2-28 06:37</a>
@@ -234,16 +155,10 @@ ou 羡慕
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新不会脸红的吗......非洲人今年到现在为止就白嫖了这么一个5星
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64514#       发表于 2019-2-28 06:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42748392&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-2-28 06:46</a>
@@ -252,16 +167,10 @@ ou 羡慕
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那是因为你不抽啊 你看萌新最近一直石不过3
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 64515#       发表于 2019-2-28 07:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42746713&amp;ptid=1085254" target="_blank">dante888 发表于 2019-2-27 23:09</a>
@@ -270,17 +179,10 @@ ou 羡慕
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">家里没矿，5不起
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 64516#       发表于 2019-2-28 07:41
-
-
 
 
 萌新四十连抽到两个拿破仑，还有高文老崔
@@ -288,16 +190,10 @@ ou 羡慕
 nmd wsm 你和CCC有个鸡毛关系啊
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64517#       发表于 2019-2-28 07:48
-
 
 
 <blockquote>引用第64514楼森兰丸于2019-02-28 06:46发表的  :
@@ -309,16 +205,10 @@ nmd wsm 你和CCC有个鸡毛关系啊
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64518#       发表于 2019-2-28 08:10
-
 
 
 <blockquote>dante888 发表于 2019-2-27 22:56
@@ -326,16 +216,10 @@ nmd wsm 你和CCC有个鸡毛关系啊
 垃ga可不就是这样吗🙄，又要酸日服玩家又要扣帽子拿了攻略又翻脸不认人
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64519#       发表于 2019-2-28 08:12
-
 
 
 <blockquote>Leona_Akari 发表于 2019-2-27 23:15
@@ -345,25 +229,13 @@ https://bbs.nga.cn/read.php?tid=16518630
 盐川早期屑分组副本还能这么玩玩，平时千里眼开的不要不要的关键时候就装瞎👊🐵
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64520#       发表于 2019-2-28 09:21
 
 
-
-
 帝王花光看技能不就已经凉了。。。怎么云成超强的。。。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -372,13 +244,7 @@ https://bbs.nga.cn/read.php?tid=16518630
 ##### 64521#       发表于 2019-2-28 09:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去看了看 现在风向已经是碾压黑狗了  一个小丑光炮也不知道怎么就突然又能碾压黑狗xjb打了
-
-
-
-
-
 
 
 -----
@@ -387,14 +253,7 @@ https://bbs.nga.cn/read.php?tid=16518630
 ##### 64522#       发表于 2019-2-28 09:29
 
 
-
-
 我没有红拐，巨樱吸引力不高<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -403,16 +262,10 @@ https://bbs.nga.cn/read.php?tid=16518630
 ##### 64523#       发表于 2019-2-28 09:56
 
 
-
  本帖最后由 gpx234mqx 于 2019-2-28 10:04 编辑 
 
 
 J加一单出货
-
-
-
-
-
 
 
 -----
@@ -421,21 +274,13 @@ J加一单出货
 ##### 64524#       发表于 2019-2-28 09:58
 
 
-
-
 杀生院呢？？？五宝的石头早都充好了，结果嘤嘤嘤？？？？
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 64525#       发表于 2019-2-28 10:05
-
 
 
  本帖最后由 gpx234mqx 于 2019-2-28 10:07 编辑 
@@ -446,25 +291,13 @@ J加一单出货
 呃，六等分的老婆？
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64526#       发表于 2019-2-28 10:29
 
 
-
-
 https://bbs.nga.cn/read.php?tid=16521105 
-
-
-
-
-
 
 
 -----
@@ -473,14 +306,7 @@ https://bbs.nga.cn/read.php?tid=16521105
 ##### 64527#       发表于 2019-2-28 10:30
 
 
-
-
 https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的方式逼氪，日服现在氪金体验不好导致微克玩家减少，所以拉长复刻时间以后玩家怕错过可能被迫氪到出？   ——草死我力🙄，点进去个人页面也是惊喜连连
-
-
-
-
-
 
 
 -----
@@ -489,14 +315,7 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64528#       发表于 2019-2-28 10:32
 
 
-
-
 垃圾a云玩家真是一打一打的，下游戏都省略了直接看开花张口就来，反正我云我有理，我黑日服我正义，你反驳你就是日服优越感，鉴不鉴呐，太鉴啦👏
-
-
-
-
-
 
 
 -----
@@ -505,15 +324,9 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64529#       发表于 2019-2-28 10:51
 
 
-
 <blockquote>ATEX 发表于 2019-2-28 09:58
 杀生院呢？？？五宝的石头早都充好了，结果嘤嘤嘤？？？？</blockquote>
 杀生院不是复刻过了嘛
-
-
-
-
-
 
 
 -----
@@ -522,16 +335,10 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64530#       发表于 2019-2-28 11:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42750378&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2019-2-28 10:51</a>
 
 杀生院不是复刻过了嘛</blockquote>
 上次沉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -542,12 +349,10 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 64532#       发表于 2019-2-28 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42750925&amp;ptid=1085254" target="_blank">auraria 发表于 2019-2-28 11:32</a>
@@ -556,24 +361,13 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这些本难道不是你盐哥哥的遗产 
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64533#       发表于 2019-2-28 11:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">任务还差一个打x的。。当初也不知道谁设计出这种任务的。。做个任务还要看脸 辣鸡游戏
-
-
-
-
-
 
 
 -----
@@ -582,15 +376,9 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64534#       发表于 2019-2-28 12:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42751258&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-2-28 11:59</a>
 任务还差一个打x的。。当初也不知道谁设计出这种任务的。。做个任务还要看脸 辣鸡游戏 ...</blockquote>
 我才40多个任务，你们怎么这么快啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -599,16 +387,10 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64535#       发表于 2019-2-28 12:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42751258&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-2-28 11:59</a>
 
 任务还差一个打x的。。当初也不知道谁设计出这种任务的。。做个任务还要看脸 辣鸡游戏 ...</blockquote>
 羽蛇神本20遍，请<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -617,16 +399,10 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64536#       发表于 2019-2-28 12:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42751281&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-2-28 12:01</a>
 
 羽蛇神本20遍，请</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羽蛇神本必出的？
-
-
-
-
-
 
 
 -----
@@ -635,16 +411,10 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64537#       发表于 2019-2-28 12:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42751301&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-2-28 12:02</a>
 
 羽蛇神本必出的？</blockquote>
 我记得是的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -653,16 +423,10 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64538#       发表于 2019-2-28 12:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42751309&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-2-28 12:03</a>
 
 我记得是的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还好发了一贴  不然要走多少冤枉路
-
-
-
-
-
 
 
 -----
@@ -671,13 +435,7 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64539#       发表于 2019-2-28 12:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">前面老李那任务做完 刷了3把没出x 血亏120体力  还好发现的早（
-
-
-
-
-
 
 
 -----
@@ -686,14 +444,7 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64540#       发表于 2019-2-28 14:20
 
 
-
-
 羽蛇神带金闪闪礼装必出2个吧，也是还好
-
-
-
-
-
 
 
 -----
@@ -702,15 +453,9 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64541#       发表于 2019-2-28 14:26
 
 
-
 <blockquote>ののワ 发表于 2019-2-28 14:20
 羽蛇神带金闪闪礼装必出2个吧，也是还好</blockquote>
 效率来讲，先刷中立的枪叔文好，刷到30再刷这个
-
-
-
-
-
 
 
 -----
@@ -719,14 +464,7 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64542#       发表于 2019-2-28 14:27
 
 
-
-
 现在只剩中立没做完了
-
-
-
-
-
 
 
 -----
@@ -735,21 +473,13 @@ https://bbs.nga.cn/read.php?tid=16521105  怀疑YLS通过拉长复刻时间的
 ##### 64543#       发表于 2019-2-28 14:31
 
 
-
-
 BB面还有3个中立，中立也不急的
-
-
-
-
-
 
 
 -----
 
 ####  ののワ  
 ##### 64544#       发表于 2019-2-28 14:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42752959&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-2-28 14:31</a>
@@ -760,16 +490,10 @@ BB面还有3个中立，中立也不急的</blockquote>
 大佬可以硬吃杀生院，萌新办不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 64545#       发表于 2019-2-28 14:43
-
 
 
 <blockquote>ののワ 发表于 2019-2-28 14:36
@@ -779,25 +503,13 @@ BB面还有3个中立，中立也不急的</blockquote>
 换几个重要的就好了，大部分可以不用换，硬杀
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64546#       发表于 2019-2-28 17:50
 
 
-
-
 https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不过他们抽不抽得到还不一定呢💪
-
-
-
-
-
 
 
 -----
@@ -806,14 +518,7 @@ https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不�
 ##### 64547#       发表于 2019-2-28 17:53
 
 
-
-
 你们真实nga真爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -822,23 +527,15 @@ https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不�
 ##### 64548#       发表于 2019-2-28 17:58
 
 
-
 <blockquote>Friede- 发表于 2019-2-28 17:53
 你们真实nga真爱啊</blockquote>
 82/100就长草了呀👊🐵
-
-
-
-
-
 
 
 -----
 
 ####  Kirihara  
 ##### 64549#       发表于 2019-2-28 19:19
-
-
 
 
 沙雕4连，[https://twitter.com/yoshinani/status/1100685925703536640](https://twitter.com/yoshinani/status/1100685925703536640)
@@ -851,27 +548,13 @@ https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不�
 <img src="https://i.imgur.com/ycAzrMg.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
 -----
 
 ####  LOLITA  
 ##### 64550#       发表于 2019-2-28 19:42
 
 
-
-
 一直想问NGAFGO区到底从哪里聚集来这么多沙雕的哈哈哈
-
-
-
-
-
 
 
 -----
@@ -880,16 +563,10 @@ https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不�
 ##### 64551#       发表于 2019-2-28 19:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42755498&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-2-28 17:50</a>
 
 https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不过他们抽不抽得到还不一定呢💪 ...</blockquote>
 云玩家真是的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -898,14 +575,7 @@ https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不�
 ##### 64552#       发表于 2019-2-28 23:07
 
 
-
-
 寻找失去的未来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -914,14 +584,7 @@ https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不�
 ##### 64553#       发表于 2019-2-28 23:18
 
 
-
-
 绿方块X5，结束了
-
-
-
-
-
 
 
 -----
@@ -930,14 +593,7 @@ https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不�
 ##### 64554#       发表于 2019-3-1 00:12
 
 
-
-
 儿子给我抽了崔哥X2<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -946,14 +602,7 @@ https://bbs.nga.cn/read.php?tid=16521816    草，新瓜，是真的闲，不�
 ##### 64555#       发表于 2019-3-1 00:18
 
 
-
-
 lip up 抽lip 开图鉴40连先出莉莉丝 然后来lip
-
-
-
-
-
 
 
 -----
@@ -962,13 +611,7 @@ lip up 抽lip 开图鉴40连先出莉莉丝 然后来lip
 ##### 64556#       发表于 2019-3-1 08:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">樱还是爱我的 3月的呼符终于出了帝王花 从上次泳装之后终于又出了一个五星
-
-
-
-
-
 
 
 -----
@@ -977,14 +620,7 @@ lip up 抽lip 开图鉴40连先出莉莉丝 然后来lip
 ##### 64557#       发表于 2019-3-1 10:25
 
 
-
-
 5护符出了帝王花和lip，昨天隔壁国服池子3个十连出了宝石和黑贞，这2天怕是把前几个月的霉运都用了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -993,22 +629,13 @@ lip up 抽lip 开图鉴40连先出莉莉丝 然后来lip
 ##### 64558#       发表于 2019-3-1 10:32
 
 
-
-
 CCC氪苹果换完道具打过了杀生院，还要回去爬塔。2边都是精污的要命<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  高木なつめ  
 ##### 64559#       发表于 2019-3-1 10:35
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/01/103454dy99ppoz6i9y9oyv.jpg" referrerpolicy="no-referrer">
@@ -1021,17 +648,7 @@ CCC氪苹果换完道具打过了杀生院，还要回去爬塔。2边都是精�
 2019-3-1 10:34 上传
 
 
-
-
-
-
-
 人生圆满了，帝王花没有放弃我。
-
-
-
-
-
 
 
 -----
@@ -1040,14 +657,7 @@ CCC氪苹果换完道具打过了杀生院，还要回去爬塔。2边都是精�
 ##### 64560#       发表于 2019-3-1 17:03
 
 
-
-
 ssy池子鸽了
-
-
-
-
-
 
 
 -----
@@ -1056,13 +666,7 @@ ssy池子鸽了
 ##### 64561#       发表于 2019-3-1 17:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我刚发现这骑狗蛋打白字都是40-50w一宝具的吗
-
-
-
-
-
 
 
 -----
@@ -1071,15 +675,9 @@ ssy池子鸽了
 ##### 64562#       发表于 2019-3-1 17:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42766129&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-1 17:11</a>
 我刚发现这骑狗蛋打白字都是40-50w一宝具的吗</blockquote>
 不然怎么值班bx<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1088,14 +686,7 @@ ssy池子鸽了
 ##### 64563#       发表于 2019-3-1 17:58
 
 
-
-
 BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得稳。
-
-
-
-
-
 
 
 -----
@@ -1104,13 +695,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64564#       发表于 2019-3-1 18:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">BB面三张票子安定的沉船，毫无梦想
-
-
-
-
-
 
 
 -----
@@ -1119,13 +704,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64565#       发表于 2019-3-1 18:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新明天签到能拿30石了 会出吗利利丝！
-
-
-
-
-
 
 
 -----
@@ -1134,16 +713,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64566#       发表于 2019-3-1 18:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42766926&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-1 18:34</a>
 
 萌新明天签到能拿30石了 会出吗利利丝！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不会
-
-
-
-
-
 
 
 -----
@@ -1152,16 +725,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64567#       发表于 2019-3-1 18:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42766951&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-1 18:36</a>
 
 不会</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看来要出了
-
-
-
-
-
 
 
 -----
@@ -1172,20 +739,13 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 64569#       发表于 2019-3-1 19:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">任务全做完了 214也砍掉了  回头发现商店居然还有那么多东西没搬。。
-
-
-
-
-
 
 
 -----
@@ -1194,14 +754,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64570#       发表于 2019-3-1 19:41
 
 
-
-
 萌新一单狂兰宝具+1，其他哪怕是4星UP都一个没出，暗示了，明天再来一单直接五宝
-
-
-
-
-
 
 
 -----
@@ -1210,14 +763,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64571#       发表于 2019-3-1 19:59
 
 
-
-
 萌新5张护符5个3星后追了一发十连，莉莉丝4宝了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1226,20 +772,13 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64572#       发表于 2019-3-1 21:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">帝王花平A大型怪物 比如龙啊什么的 和其他人普通体型一对比 真的很怪兽大战 
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 64573#       发表于 2019-3-1 21:32
-
 
 
  本帖最后由 gpx234mqx 于 2019-3-1 21:35 编辑 
@@ -1253,12 +792,6 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 1,2月2个五星3个四星把狗粮都用光了
 
 
-
-
-
-
-
-
 -----
 
 ####  auraria  
@@ -1267,12 +800,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gpx234mqx  
 ##### 64575#       发表于 2019-3-1 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42768741&amp;ptid=1085254" target="_blank">auraria 发表于 2019-3-1 21:46</a>
@@ -1281,25 +812,13 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 帝王花对提妈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 64576#       发表于 2019-3-2 00:47
 
 
-
-
 最近几天天天听完天楼霸断剑!就来听尬哦~不间断接受潘惠美洗脑<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1308,13 +827,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64577#       发表于 2019-3-2 07:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有灵魂的签到石 辣鸡游戏
-
-
-
-
-
 
 
 -----
@@ -1323,16 +836,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64578#       发表于 2019-3-2 09:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42767776&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-1 19:59</a>
 
 萌新5张护符5个3星后追了一发十连，莉莉丝4宝了。。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是想五宝吗
-
-
-
-
-
 
 
 -----
@@ -1341,16 +848,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64579#       发表于 2019-3-2 10:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42772022&amp;ptid=1085254" target="_blank">areklose 发表于 2019-3-2 09:51</a>
 
 你是想五宝吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你问我想不想那是当然想的啊
-
-
-
-
-
 
 
 -----
@@ -1359,16 +860,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64580#       发表于 2019-3-2 10:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42771298&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-2 07:00</a>
 
 没有灵魂的签到石 辣鸡游戏</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这才不是我认识的萌新....你到底是谁!
-
-
-
-
-
 
 
 -----
@@ -1377,16 +872,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64581#       发表于 2019-3-2 10:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42772556&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-2 10:55</a>
 
 这才不是我认识的萌新....你到底是谁!</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新一直很非的 是你（们）中了幻术
-
-
-
-
-
 
 
 -----
@@ -1395,14 +884,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64582#       发表于 2019-3-2 11:05
 
 
-
-
 难民已经弹尽粮绝用石头刷ccc了，复刻缩减时间太坑了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1411,13 +893,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64583#       发表于 2019-3-2 13:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">3护符出了个高文和武则天 
-
-
-
-
-
 
 
 -----
@@ -1426,16 +902,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64584#       发表于 2019-3-2 14:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42774066&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-2 13:51</a>
 
 3护符出了个高文和武则天</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧，羡慕，我这边只有礼装
-
-
-
-
-
 
 
 -----
@@ -1444,16 +914,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64585#       发表于 2019-3-2 14:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42774066&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-2 13:51</a>
 
 3护符出了个高文和武则天</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">萌新才2小时就曝露了
-
-
-
-
-
 
 
 -----
@@ -1462,14 +926,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64586#       发表于 2019-3-2 14:19
 
 
-
-
 话说这次复刻活动真的不准备出个BB/GO的简易灵衣吗
-
-
-
-
-
 
 
 -----
@@ -1478,16 +935,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64587#       发表于 2019-3-2 14:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42774247&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-2 14:18</a>
 
 萌新才2小时就曝露了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是萌新的世界中4星从来不算出货
-
-
-
-
-
 
 
 -----
@@ -1496,16 +947,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64588#       发表于 2019-3-2 15:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42774272&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-2 14:22</a>
 
 可是萌新的世界中4星从来不算出货</blockquote>
 萌新只配出五星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1514,14 +959,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64589#       发表于 2019-3-2 16:21
 
 
-
-
 该白情2.4了8
-
-
-
-
-
 
 
 -----
@@ -1530,16 +968,9 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64590#       发表于 2019-3-2 16:30
 
 
-
-
 白情不是要出教授的新衣服
 
 那会不会强化下教授呢。现在基本属于没救的呐喊总
-
-
-
-
-
 
 
 -----
@@ -1548,23 +979,15 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64591#       发表于 2019-3-2 19:48
 
 
-
-
 今天一单抽了一张满破星辰大海，顺带拉二宝具+1，一个十连5张活动礼装（四星五星）真是绝了
 
 明天再补，我就不信抽不到帝王花了
-
-
-
-
-
 
 
 -----
 
 ####  hylq2100  
 ##### 64592#       发表于 2019-3-2 21:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42776936&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-3-2 19:48</a>
@@ -1575,16 +998,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 莫上头啊
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 64593#       发表于 2019-3-2 21:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42776936&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-3-2 19:48</a>
@@ -1595,16 +1012,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 强氪暴死，最多2单<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 64594#       发表于 2019-3-2 22:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42777742&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2019-3-2 21:34</a>
@@ -1613,17 +1024,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 才氪了2单啊，我止损线是4单，而且拉二2宝也不算亏
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 64595#       发表于 2019-3-2 22:49
-
-
 
 
 最终还是给莉莉丝补了宝具，莉莉丝还是非常爱我的
@@ -1632,16 +1036,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 <img src="https://wx3.sinaimg.cn/mw1024/69623978gy1g0ou2swcguj21sz0u0121.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 64596#       发表于 2019-3-2 23:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42778359&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-03-02 22:49:10</a>
@@ -1652,25 +1050,13 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 64597#       发表于 2019-3-3 00:28
 
 
-
-
 2500石2宝帝王花，舅舅说后面还有新卡大礼包，你游怕不是真要关服跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1679,15 +1065,9 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64598#       发表于 2019-3-3 00:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42779179&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-3 00:28</a>
 2500石2宝帝王花，舅舅说后面还有新卡大礼包，你游怕不是真要关服跑路了 ...</blockquote>
 哪边舅舅的情报啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有详细吗
-
-
-
-
-
 
 
 -----
@@ -1696,20 +1076,13 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64599#       发表于 2019-3-3 00:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">2500石你别吓唬我啊，我就打算抽一宝跑路的
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 64600#       发表于 2019-3-3 00:37
-
 
 
  本帖最后由 khxooo 于 2019-3-3 00:38 编辑 
@@ -1719,16 +1092,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 如果是这样，白情那不是旧闪就是村子了。还有印度篇悉多也是时候落地了。还有第二期卡池是道满的机会很大。
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 64601#       发表于 2019-3-3 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42779260&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-3 00:37</a>
@@ -1737,16 +1104,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 村正还是省省吧，起码四周年前看不到这位爷落地的可能
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 64602#       发表于 2019-3-3 00:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42779224&amp;ptid=1085254" target="_blank">Friede- 发表于 2019-3-3 00:33</a>
@@ -1755,17 +1116,10 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 没详细，舅舅也不一定靠谱，以我个人经验来看是这样，有时候准有时候不准<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  缘一  
 ##### 64603#       发表于 2019-3-3 09:09
-
-
 
 
 除了村正，现在出现过立绘但还没落地的还有谁？
@@ -1775,25 +1129,13 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 你游是不愿意击落第三章出来的卫星吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  arrowshade  
 ##### 64604#       发表于 2019-3-3 09:49
 
 
-
-
 八华枪兵也快落地了吧
-
-
-
-
-
 
 
 -----
@@ -1802,15 +1144,8 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64605#       发表于 2019-3-3 13:11
 
 
-
-
 大佬们都已经开始讨论卫星了，咸鱼才刚从40任务冲锋到80多
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在感觉有点晕机
-
-
-
-
-
 
 
 -----
@@ -1819,14 +1154,7 @@ BB5宝搞掂，有圣诞羽蛇神简直毫无压力，比我国服还要打得�
 ##### 64606#       发表于 2019-3-3 13:19
 
 
-
-
 CBA牛逼，KP全买完的小SSY是随便3T的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1835,14 +1163,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的<img src="https://static.saraba1st
 ##### 64607#       发表于 2019-3-3 13:48
 
 
-
-
 ccc那些旋转的背景超晕的，我都是休息一阵再打一个
-
-
-
-
-
 
 
 -----
@@ -1851,16 +1172,10 @@ ccc那些旋转的背景超晕的，我都是休息一阵再打一个
 ##### 64608#       发表于 2019-3-3 15:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42782835&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-03-03 13:19:55</a>
 CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小ssy就是莉莉丝三脚的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1869,16 +1184,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64609#       发表于 2019-3-3 15:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42779224&amp;ptid=1085254" target="_blank">Friede- 发表于 2019-3-3 00:33</a>
 
 哪边舅舅的情报啊有详细吗</blockquote>
 突然发现大佬的头像和隔壁一个叫岭上花的ID一样，难道是一个人？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1887,16 +1196,9 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64610#       发表于 2019-3-3 16:16
 
 
-
-
 去buff的本来就好打。
 
 蓝卡弓呆闭着眼3宝具也就死了。
-
-
-
-
-
 
 
 -----
@@ -1905,14 +1207,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64611#       发表于 2019-3-3 16:27
 
 
-
-
 终于肝完任务了，那么哪个本3t硬币效率最高呢？
-
-
-
-
-
 
 
 -----
@@ -1921,14 +1216,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64612#       发表于 2019-3-3 17:02
 
 
-
-
 难民一共碎了6颗石头才过了霸王花，太精污了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1937,15 +1225,9 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64613#       发表于 2019-3-3 17:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784309&amp;ptid=1085254" target="_blank">sosgame67 发表于 2019-3-3 17:02</a>
 难民一共碎了6颗石头才过了霸王花，太精污了</blockquote>
 不是有例子可以单挑吗？楼里面找个dalao的蹭一下应该可以
-
-
-
-
-
 
 
 -----
@@ -1954,23 +1236,16 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64614#       发表于 2019-3-3 17:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784399&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-3 17:14</a>
 
 不是有例子可以单挑吗？楼里面找个dalao的蹭一下应该可以</blockquote>
 单个贞德或者秦始皇都不好操作吧..
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 64615#       发表于 2019-3-3 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784471&amp;ptid=1085254" target="_blank">sosgame67 发表于 2019-3-3 17:25</a>
@@ -1981,17 +1256,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 你啥组合啊死了六次
 
 
-
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64616#       发表于 2019-3-3 17:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784062&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2019-3-3 16:27</a>
@@ -2002,16 +1270,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 但是你不带增援礼装都不效率
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 64617#       发表于 2019-3-3 17:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784515&amp;ptid=1085254" target="_blank">v22325 发表于 2019-3-3 17:31</a>
@@ -2022,16 +1284,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 梅林bb学妹..不过除了学妹外技能全没点..
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64618#       发表于 2019-3-3 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784471&amp;ptid=1085254" target="_blank">sosgame67 发表于 2019-3-3 17:25</a>
@@ -2040,16 +1296,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单条现在只有恩奇都  其他的都不是真正意义上的单条
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 64619#       发表于 2019-3-3 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784554&amp;ptid=1085254" target="_blank">sosgame67 发表于 2019-3-3 17:36</a>
@@ -2064,17 +1314,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 一开始减回复量就是靠学妹宝具和技能撑 
 
 
-
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 64620#       发表于 2019-3-3 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784561&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-3 17:37</a>
@@ -2083,16 +1326,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 路人里高宝恩奇都还真是少..难民box惨的不行啥加上元旦转日服完美错过圣诞无限池..叶二世这无缝活动到底要到什么时候为止，好歹给个狗粮减半让我碎石把几个五星满级啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64621#       发表于 2019-3-3 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784599&amp;ptid=1085254" target="_blank">sosgame67 发表于 2019-3-3 17:41</a>
@@ -2101,16 +1338,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你可以找楼里大姥啊  不过你已经过了 晚了
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64622#       发表于 2019-3-3 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784580&amp;ptid=1085254" target="_blank">v22325 发表于 2019-3-3 17:39</a>
@@ -2121,16 +1352,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 白贞狐狸玛修过图的表示，狐狸被克也不怕啊，我打完的时候这仨基本都是满血……
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 64623#       发表于 2019-3-3 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784621&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-3 17:43</a>
@@ -2139,16 +1364,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">主要我那时候抱的是梅林 后来也没兴趣再去找个贞德配合C狐了 这本不能对梅林有幻想
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 64624#       发表于 2019-3-3 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784636&amp;ptid=1085254" target="_blank">v22325 发表于 2019-3-3 17:45</a>
@@ -2157,31 +1376,19 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">2个梅林就稳了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64625#       发表于 2019-3-3 17:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新用的政哥哥+双梅林   基本没什么压力 
-
-
-
-
-
 
 
 -----
 
 ####  sosgame67  
 ##### 64626#       发表于 2019-3-3 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42784580&amp;ptid=1085254" target="_blank">v22325 发表于 2019-3-3 17:39</a>
@@ -2192,17 +1399,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 已经太晚了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">头铁碎石过了，想想这几个石头也不可能出货，出货了也没狗粮素材来养233
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 64627#       发表于 2019-3-3 19:35
-
-
 
 
 探路直接双狐狸加贞德一次过的，就是吃了治愈down的亏死了一只狐狸。
@@ -2212,16 +1412,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 就是开始不知道200w血的机关打到50多回合才打死
 
 
-
-
-
-
-
 -----
 
 ####  Friede-  
 ##### 64628#       发表于 2019-3-3 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42783862&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-3 15:53</a>
@@ -2230,16 +1424,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 不是。。。
 
 
-
-
-
-
-
 -----
 
 ####  猎黑行者  
 ##### 64629#       发表于 2019-3-3 23:46
-
 
 
  本帖最后由 猎黑行者 于 2019-3-3 23:49 编辑 
@@ -2251,16 +1439,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 还是3T舒心。搜到个lga的帖点进去一群人建议10T平A，我也是醉了，就那么缺苹果么，难怪会有平A拖回合数的神论
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 64630#       发表于 2019-3-3 23:49
-
 
 
  本帖最后由 v22325 于 2019-3-3 23:50 编辑 
@@ -2274,16 +1456,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 我就是所谓平A的 角色都是用加成角色  礼装都是加成礼装 一面六七个角色平A攒NP 二面放一个宝具 三面莉莉丝一个宝具干死BOSS帝王花连开两次宝具 打的……也不是很烦 吃了几个苹果 前两天搬完了商店
 
 
-
-
-
-
-
 -----
 
 ####  猎黑行者  
 ##### 64631#       发表于 2019-3-4 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42787762&amp;ptid=1085254" target="_blank">v22325 发表于 2019-3-3 23:49</a>
@@ -2294,26 +1470,15 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我平A刷TypeX都吐了
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 64632#       发表于 2019-3-4 00:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我也是全加成10T刷X，已经刷到吐了
 
 懒得研究什么打法了，任务做完买完KP直接上黑杯BB虐杀SSY<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2322,14 +1487,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64633#       发表于 2019-3-4 11:06
 
 
-
-
 烦的不行开始无脑哈哈哈3T了 不优化FREE配置不减少兑换需求还缩短时间 活该氪金暴跌
-
-
-
-
-
 
 
 -----
@@ -2338,21 +1496,13 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64634#       发表于 2019-3-4 11:49
 
 
-
-
 全加成没做完任务就把商店搬空了，前后吃了差不多5个金苹果，哪有那么费劲
-
-
-
-
-
 
 
 -----
 
 ####  上坂莲华  
 ##### 64635#       发表于 2019-3-4 12:58
-
 
 
  本帖最后由 上坂莲华 于 2019-3-4 13:39 编辑 
@@ -2362,32 +1512,19 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 然后球都没有，太真实了，怕也是得1000石1宝
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 64636#       发表于 2019-3-4 15:15
 
 
-
-
 全加成打一趟下来就奔着10回合去了能不费劲吗
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 64637#       发表于 2019-3-4 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42792074&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-3-4 12:58</a>
@@ -2398,16 +1535,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">还好我一单没出就溜了，这次看来剧毒
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64638#       发表于 2019-3-4 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42793501&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-4 15:17</a>
@@ -2416,16 +1547,10 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在来亿单 一定会出 你很欧的
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64639#       发表于 2019-3-4 15:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42793629&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-4 15:30</a>
@@ -2434,25 +1559,13 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你给我滚
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 64640#       发表于 2019-3-4 16:14
 
 
-
-
 绝了，连半当中延长活动时间都复刻的
-
-
-
-
-
 
 
 -----
@@ -2461,14 +1574,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64641#       发表于 2019-3-4 16:21
 
 
-
-
 艹，还延长，都长草了。难道周三还有新卡池吗
-
-
-
-
-
 
 
 -----
@@ -2477,14 +1583,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64642#       发表于 2019-3-4 16:22
 
 
-
-
 狗屎，怎么还延长的老子的苹果吐给我
-
-
-
-
-
 
 
 -----
@@ -2493,14 +1592,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64643#       发表于 2019-3-4 16:26
 
 
-
-
 怂了怂了，4单1五星，抽满两张星辰大海还溢出3张，福袋有缘再见吧
-
-
-
-
-
 
 
 -----
@@ -2509,14 +1601,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64644#       发表于 2019-3-4 16:27
 
 
-
-
 早肝完连刀使巫女都快肝完了，我现在就想看看新的男角色都不给吗。
-
-
-
-
-
 
 
 -----
@@ -2525,20 +1610,12 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64645#       发表于 2019-3-4 16:31
 
 
-
-
 延长了这么多天？？
 
 今天萌新准备吃苹果把商店搬空的 还好白天没空
 
 
-
 然后这3石是不是有灵魂的呢 明天揭晓！
-
-
-
-
-
 
 
 -----
@@ -2547,14 +1624,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64646#       发表于 2019-3-4 16:42
 
 
-
-
 佛了,还好我一直都是不到最后不吃苹果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2563,14 +1633,7 @@ CBA牛逼，KP全买完的小SSY是随便3T的</blockquote>有了CBA以后，小
 ##### 64647#       发表于 2019-3-4 16:48
 
 
-
-
 nmdwsm
-
-
-
-
-
 
 
 -----
@@ -2579,14 +1642,7 @@ nmdwsm
 ##### 64648#       发表于 2019-3-4 16:50
 
 
-
-
 延长喷了
-
-
-
-
-
 
 
 -----
@@ -2595,16 +1651,9 @@ nmdwsm
 ##### 64649#       发表于 2019-3-4 16:59
 
 
-
-
 剑女人的活动不都是满加成角色组个队，每天3管自回体AUTO完就能毕业的游戏么
 
 上期我连挖矿抽斩受受花带肝进前5000才花了2天时间
-
-
-
-
-
 
 
 -----
@@ -2613,14 +1662,7 @@ nmdwsm
 ##### 64650#       发表于 2019-3-4 17:44
 
 
-
-
 狗屎，我周末10个金苹果就这么浪费了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2629,13 +1671,7 @@ nmdwsm
 ##### 64651#       发表于 2019-3-4 17:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周三是那个女人吧
-
-
-
-
-
 
 
 -----
@@ -2644,16 +1680,10 @@ nmdwsm
 ##### 64652#       发表于 2019-3-4 17:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42795045&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-4 17:44</a>
 
 狗屎，我周末10个金苹果就这么浪费了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就在补10个菜苹果啊
-
-
-
-
-
 
 
 -----
@@ -2662,15 +1692,9 @@ nmdwsm
 ##### 64653#       发表于 2019-3-4 18:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42795152&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-4 17:57</a>
 那就在补10个菜苹果啊</blockquote>
 还有什么彩的要补<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2679,16 +1703,10 @@ nmdwsm
 ##### 64654#       发表于 2019-3-4 18:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42795216&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-4 18:03</a>
 
 还有什么彩的要补</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再刷10个彩苹果为以后豹跳铺路啊  相信我
-
-
-
-
-
 
 
 -----
@@ -2697,15 +1715,9 @@ nmdwsm
 ##### 64655#       发表于 2019-3-4 18:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42795349&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-4 18:18</a>
 再刷10个彩苹果为以后豹跳铺路啊  相信我</blockquote>
 5单1个莉莉丝，请问海豹在哪，我也想学习变成海豹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2714,13 +1726,7 @@ nmdwsm
 ##### 64656#       发表于 2019-3-4 18:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">有种梦回中学好不容易通宵赶完作业第二天沙雕老师说今天不交的感觉
-
-
-
-
-
 
 
 -----
@@ -2729,15 +1735,9 @@ nmdwsm
 ##### 64657#       发表于 2019-3-4 18:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42795451&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-4 18:30</a>
 5单1个莉莉丝，请问海豹在哪，我也想学习变成海豹</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">刷完就能跳了呀
-
-
-
-
-
 
 
 -----
@@ -2746,14 +1746,7 @@ nmdwsm
 ##### 64658#       发表于 2019-3-4 18:53
 
 
-
-
 反正我自然回体已经完美毕业了，接下来也就每天继续被你们不齿的10t刷白门楼了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2762,17 +1755,10 @@ nmdwsm
 ##### 64659#       发表于 2019-3-4 18:54
 
 
-
-
 狗屎啊
 
 
 就是不开新活动
-
-
-
-
-
 
 
 -----
@@ -2781,15 +1767,9 @@ nmdwsm
 ##### 64660#       发表于 2019-3-4 19:00
 
 
-
  本帖最后由 bluna 于 2019-3-4 19:05 编辑 
 
 ....
-
-
-
-
-
 
 
 -----
@@ -2798,14 +1778,7 @@ nmdwsm
 ##### 64661#       发表于 2019-3-4 19:08
 
 
-
-
 本来今天打算吃果刷商店材料了，延得好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2814,14 +1787,7 @@ nmdwsm
 ##### 64662#       发表于 2019-3-4 19:26
 
 
-
-
 周末碎了快20石头把任务清完打完高难的自己像个傻子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2830,15 +1796,9 @@ nmdwsm
 ##### 64663#       发表于 2019-3-4 19:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42795569&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-4 18:43</a>
 刷完就能跳了呀</blockquote>
 你们都是恶魔吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2847,16 +1807,10 @@ nmdwsm
 ##### 64664#       发表于 2019-3-4 19:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42796038&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-4 19:31</a>
 
 你们都是恶魔吗我就20多彩苹果了消耗不起啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再来亿单  毕竟萌新也不是什么恶魔
-
-
-
-
-
 
 
 -----
@@ -2865,14 +1819,7 @@ nmdwsm
 ##### 64665#       发表于 2019-3-4 19:39
 
 
-
-
 吃完苹果看公告，mb<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2881,15 +1828,9 @@ nmdwsm
 ##### 64666#       发表于 2019-3-4 19:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42796072&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-4 19:36</a>
 再来亿单  毕竟萌新也不是什么恶魔</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新你不就是万恶之源吗
-
-
-
-
-
 
 
 -----
@@ -2898,16 +1839,10 @@ nmdwsm
 ##### 64667#       发表于 2019-3-4 20:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42796072&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-4 19:36</a>
 
 再来亿单  毕竟萌新也不是什么恶魔</blockquote>
 萌新这种没心没肺的，不是恶魔谁是恶魔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2916,16 +1851,10 @@ nmdwsm
 ##### 64668#       发表于 2019-3-4 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42796283&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-4 20:02</a>
 
 萌新这种没心没肺的，不是恶魔谁是恶魔</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没心的叫亚魔
-
-
-
-
-
 
 
 -----
@@ -2934,16 +1863,10 @@ nmdwsm
 ##### 64669#       发表于 2019-3-4 20:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42796631&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-4 20:42</a>
 
 没心的叫亚魔</blockquote>
 恶魔都是没心的，有心的才是亚魔（确信）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2952,14 +1875,7 @@ nmdwsm
 ##### 64670#       发表于 2019-3-4 21:09
 
 
-
-
 代充降价了想冲几单..想想自己只狼鬼泣v全境2还没预购..怂了怂了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2968,24 +1884,16 @@ nmdwsm
 ##### 64671#       发表于 2019-3-4 21:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42796806&amp;ptid=1085254" target="_blank">sosgame67 发表于 2019-3-4 21:09</a>
 
 代充降价了想冲几单..想想自己只狼鬼泣v全境2还没预购..怂了怂了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">只狼鬼泣都预购了，甚至还预购了闪轨4中文版，怕啥，冲鸭
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 64672#       发表于 2019-3-4 21:12
-
-
 
 
 老婆池太毒了吧
@@ -2997,16 +1905,10 @@ nmdwsm
 感觉又要打水漂了。。。
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 64673#       发表于 2019-3-4 21:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42796824&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-4 21:12</a>
@@ -3015,25 +1917,13 @@ nmdwsm
 你一说我才想起闪轨4还没预定233..这就去下单进入贤者时间好了
 
 
-
-
-
-
-
 -----
 
 ####  红丽  
 ##### 64674#       发表于 2019-3-4 21:26
 
 
-
-
 第二单也沉了。。。想说爱你不容易啊Orz
-
-
-
-
-
 
 
 -----
@@ -3042,14 +1932,7 @@ nmdwsm
 ##### 64675#       发表于 2019-3-5 14:32
 
 
-
-
 活动这是延期了一天？
-
-
-
-
-
 
 
 -----
@@ -3058,14 +1941,7 @@ nmdwsm
 ##### 64676#       发表于 2019-3-5 14:47
 
 
-
-
 游戏内还是显示只剩不到一天，这延长的只是搬商店和卡池的时间吧？
-
-
-
-
-
 
 
 -----
@@ -3074,14 +1950,7 @@ nmdwsm
 ##### 64677#       发表于 2019-3-5 15:13
 
 
-
-
 任务显示时间的bug昨天公告就有写了
-
-
-
-
-
 
 
 -----
@@ -3092,21 +1961,13 @@ nmdwsm
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 64679#       发表于 2019-3-5 16:09
 
 
-
-
 补偿不是已经发了3苹果3石
-
-
-
-
-
 
 
 -----
@@ -3117,20 +1978,13 @@ nmdwsm
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kulanyee  
 ##### 64681#       发表于 2019-3-5 17:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">5点无事发生，白情要鸽
-
-
-
-
-
 
 
 -----
@@ -3139,15 +1993,9 @@ nmdwsm
 ##### 64682#       发表于 2019-3-5 17:19
 
 
-
 <blockquote>kulanyee 发表于 2019-3-5 17:05
 5点无事发生，白情要鸽</blockquote>
 叶鸽鸽什么时候骗过你
-
-
-
-
-
 
 
 -----
@@ -3156,14 +2004,7 @@ nmdwsm
 ##### 64683#       发表于 2019-3-5 18:27
 
 
-
-
 会不会明天开ssy池 白情池下周再开
-
-
-
-
-
 
 
 -----
@@ -3172,23 +2013,15 @@ nmdwsm
 ##### 64684#       发表于 2019-3-5 19:51
 
 
-
-
 今天晚上不死心又追了一单，总算摸到老婆了
 
 3单1五星，巨亏无比。。。
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 64685#       发表于 2019-3-5 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42806539&amp;ptid=1085254" target="_blank">红丽 发表于 2019-3-5 19:51</a>
@@ -3199,25 +2032,13 @@ nmdwsm
 日常4单1五星的表示不知道你在说啥
 
 
-
-
-
-
-
 -----
 
 ####  龙娘777  
 ##### 64686#       发表于 2019-3-5 20:10
 
 
-
-
 喷了 日服这边新建的号 连续十来个ssr平均一单出货了 多的200多石一个 少的一个十连这种 fgo是不是有新号调高一段时间出货率机制？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3226,16 +2047,10 @@ nmdwsm
 ##### 64687#       发表于 2019-3-5 20:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42806743&amp;ptid=1085254" target="_blank">龙娘777 发表于 2019-3-5 20:10</a>
 
 喷了 日服这边新建的号 连续十来个ssr平均一单出货了 多的200多石一个 少的一个十连这种 fgo是不是有新号调 ...</blockquote>
 我感觉所有手游都有这种情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3244,15 +2059,9 @@ nmdwsm
 ##### 64688#       发表于 2019-3-5 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=42806790&amp;amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-5 20:15</a>
 我感觉所有手游都有这种情况</blockquote>
 果然是贿赂啊贿赂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3261,21 +2070,14 @@ nmdwsm
 ##### 64689#       发表于 2019-3-5 20:24
 
 
-
  本帖最后由 alucardcz 于 2019-3-5 20:32 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新也想要贿赂啊
 
 
-
 话说怎么有更新。。更新了啥
 
 (更新了6+118m
-
-
-
-
-
 
 
 -----
@@ -3284,15 +2086,9 @@ nmdwsm
 ##### 64690#       发表于 2019-3-5 20:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42806743&amp;ptid=1085254" target="_blank">龙娘777 发表于 2019-3-5 20:10</a>
 喷了 日服这边新建的号 连续十来个ssr平均一单出货了 多的200多石一个 少的一个十连这种 fgo是不是有新号调 ...</blockquote>
 还有这种好事，老用户又被歧视了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3301,16 +2097,10 @@ nmdwsm
 ##### 64691#       发表于 2019-3-5 20:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42806870&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-5 20:24</a>
 
 萌新也想要贿赂啊</blockquote>
 CCC延长的显示时间有问题，下午估计是把时间更新成对的了
-
-
-
-
-
 
 
 -----
@@ -3319,23 +2109,16 @@ CCC延长的显示时间有问题，下午估计是把时间更新成对的了
 ##### 64692#       发表于 2019-3-5 21:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42806647&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-03-05 20:01:52</a>
 日常4单1五星的表示不知道你在说啥</blockquote>您是土豪，我赚钱辛苦，不好比
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64693#       发表于 2019-3-5 21:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42807592&amp;ptid=1085254" target="_blank">红丽 发表于 2019-3-5 21:51</a>
@@ -3347,16 +2130,10 @@ CCC延长的显示时间有问题，下午估计是把时间更新成对的了
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我要是土豪我早就把莉莉丝和霸王花课出来了（
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 64694#       发表于 2019-3-5 22:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42807592&amp;ptid=1085254" target="_blank">红丽 发表于 2019-3-5 21:51</a>
@@ -3370,32 +2147,19 @@ CCC延长的显示时间有问题，下午估计是把时间更新成对的了
 0.7放在那，3单出就是正常概率，觉得亏那就别课<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 64695#       发表于 2019-3-5 22:09
 
 
-
-
 我最近一年的概率应该是6单一宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 64696#       发表于 2019-3-5 22:44
-
 
 
  本帖最后由 newfaceryo 于 2019-3-5 22:45 编辑 
@@ -3410,31 +2174,19 @@ newfaceryo 发表于 2015-12-19 00:06
 你们为什么不珍惜现在的幸福生活<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64697#       发表于 2019-3-5 23:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">某光头霸王花双黄
-
-
-
-
-
 
 
 -----
 
 ####  LOLITA  
 ##### 64698#       发表于 2019-3-6 02:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42806743&amp;ptid=1085254" target="_blank">龙娘777 发表于 2019-3-5 20:10</a>
@@ -3448,26 +2200,15 @@ newfaceryo 发表于 2015-12-19 00:06
 科学养猪。
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 64699#       发表于 2019-3-6 08:24
 
 
-
  本帖最后由 阿提拉 于 2019-3-6 09:12 编辑 
 
 今天不知道会不会开ssy池子...
-
-
-
-
-
 
 
 -----
@@ -3476,15 +2217,9 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64700#       发表于 2019-3-6 08:34
 
 
-
 <blockquote>里村紅葉 发表于 2019-3-5 22:09
 我最近一年的概率应该是6单一宝</blockquote>
 你都弱成啥了，我平均5单3五星
-
-
-
-
-
 
 
 -----
@@ -3493,13 +2228,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64701#       发表于 2019-3-6 12:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">突然更新
-
-
-
-
-
 
 
 -----
@@ -3508,14 +2237,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64702#       发表于 2019-3-6 12:27
 
 
-
-
 你游怎么又更新了..
-
-
-
-
-
 
 
 -----
@@ -3524,14 +2246,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64703#       发表于 2019-3-6 14:05
 
 
-
-
 所以到底更新了啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3540,14 +2255,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64704#       发表于 2019-3-6 15:28
 
 
-
-
 白情要来惹（错乱）
-
-
-
-
-
 
 
 -----
@@ -3556,14 +2264,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64705#       发表于 2019-3-6 16:16
 
 
-
-
 没注意，153咋多了一关？
-
-
-
-
-
 
 
 -----
@@ -3572,15 +2273,9 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64706#       发表于 2019-3-6 16:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42816261&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2019-3-6 16:16</a>
 没注意，153咋多了一关？</blockquote>
 刷镜子那个？
-
-
-
-
-
 
 
 -----
@@ -3589,13 +2284,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64707#       发表于 2019-3-6 17:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了 无事发生他来了
-
-
-
-
-
 
 
 -----
@@ -3604,13 +2293,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64708#       发表于 2019-3-6 17:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">本周无事发生
-
-
-
-
-
 
 
 -----
@@ -3619,14 +2302,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64709#       发表于 2019-3-6 17:04
 
 
-
-
 他便秘了
-
-
-
-
-
 
 
 -----
@@ -3635,13 +2311,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64710#       发表于 2019-3-6 17:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又摸了
-
-
-
-
-
 
 
 -----
@@ -3650,14 +2320,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64711#       发表于 2019-3-6 17:13
 
 
-
-
 叶2真是运营鬼才<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3666,14 +2329,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64712#       发表于 2019-3-6 17:41
 
 
-
-
 有事发生才奇怪吧，bug已经在修了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3682,14 +2338,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64713#       发表于 2019-3-6 18:20
 
 
-
-
 有事发生就不用延时啦<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3698,23 +2347,15 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64714#       发表于 2019-3-7 16:37
 
 
-
-
 刚才抽今天的友情10连，安某人3宝了……
 
 我这是损失了几个五星呢（
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 64715#       发表于 2019-3-7 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42828304&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-7 16:37</a>
@@ -3725,16 +2366,10 @@ newfaceryo 发表于 2015-12-19 00:06
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ooo 欧！羡慕！
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64716#       发表于 2019-3-7 16:55
-
 
 
 <blockquote>黑上シグマ 发表于 2019-3-7 16:37
@@ -3744,25 +2379,13 @@ newfaceryo 发表于 2015-12-19 00:06
 欧，羡慕，两年多了那栏还是未召唤天知道我经历了什么
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64717#       发表于 2019-3-8 13:38
 
 
-
-
 长草好戏多，一个日服上月营收没国服多又有猴戏看了👊🐵
-
-
-
-
-
 
 
 -----
@@ -3771,15 +2394,9 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64718#       发表于 2019-3-8 13:42
 
 
-
 <blockquote>Nozzy 发表于 2019-3-8 13:38
 长草好戏多，一个日服上月营收没国服多又有猴戏看了👊🐵</blockquote>
 不用和国服比，和日服去年同期比，1月2月课金量都大幅下滑，而新卡的数量还是去年的2倍，再sb的人都能看你游有大问题了，蘑菇那个访谈也是因素之一，尤其是去年泳装以后课金量就开始萎靡不振了，不过酸菜鱼论坛最搞笑的是就这个样子还有一堆帮叶弟弟和蘑菇说话的
-
-
-
-
-
 
 
 -----
@@ -3788,16 +2405,10 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64719#       发表于 2019-3-8 13:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42838259&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-8 13:42</a>
 
 不用和国服比，和日服去年同期比，1月2月课金量都大幅下滑，而新卡的数量还是去年的2倍，再sb的人都能看 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戈壁还有一个言论啊  那就是课金量低了全怪cba
-
-
-
-
-
 
 
 -----
@@ -3806,14 +2417,7 @@ newfaceryo 发表于 2015-12-19 00:06
 ##### 64720#       发表于 2019-3-8 14:13
 
 
-
-
 fgo也是时候开始走下坡路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3822,16 +2426,10 @@ fgo也是时候开始走下坡路了<img src="https://static.saraba1st.com/image
 ##### 64721#       发表于 2019-3-8 14:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42838549&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-8 14:13</a>
 
 fgo也是时候开始走下坡路了最好立刻关服省钱</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明一直都很省钱
-
-
-
-
-
 
 
 -----
@@ -3840,14 +2438,7 @@ fgo也是时候开始走下坡路了最好立刻关服省钱</blockquote>
 ##### 64722#       发表于 2019-3-8 14:19
 
 
-
-
 我也觉得叶哥哥很好啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3856,15 +2447,9 @@ fgo也是时候开始走下坡路了最好立刻关服省钱</blockquote>
 ##### 64723#       发表于 2019-3-8 14:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42838559&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-8 14:14</a>
 明明一直都很省钱</blockquote>
 没有福袋不是更省钱？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3873,15 +2458,9 @@ fgo也是时候开始走下坡路了最好立刻关服省钱</blockquote>
 ##### 64724#       发表于 2019-3-8 14:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42838611&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-8 14:19</a>
 我也觉得叶哥哥很好啊他到现在做的比炎哥哥好多了啊</blockquote>
 其实我很怀念庄司时代每周维护的石头<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3890,14 +2469,7 @@ fgo也是时候开始走下坡路了最好立刻关服省钱</blockquote>
 ##### 64725#       发表于 2019-3-8 15:01
 
 
-
-
 日本全体的手游氪金量都在下滑，巅峰期已过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3906,21 +2478,13 @@ fgo也是时候开始走下坡路了最好立刻关服省钱</blockquote>
 ##### 64726#       发表于 2019-3-8 15:18
 
 
-
-
 我大主机时代来临了？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 64727#       发表于 2019-3-8 15:44
-
 
 
  本帖最后由 newfaceryo 于 2019-3-8 15:47 编辑 
@@ -3933,16 +2497,10 @@ fsn终结黄油巅峰，fgo来终结手游巅峰吗？真实业界毒瘤<img src
 不过隔壁骑空士好像营收是在涨的
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64728#       发表于 2019-3-8 15:52
-
 
 
 <blockquote>newfaceryo 发表于 2019-3-8 15:44
@@ -3953,24 +2511,13 @@ fsn终结黄油巅峰，fgo来终结手游巅峰吗？真实业界毒瘤
 涨也不敢玩，打不过钢铁侠👋😂
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64729#       发表于 2019-3-8 16:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fsn什么时候成黄游巅峰了， 配吗
-
-
-
-
-
 
 
 -----
@@ -3979,23 +2526,16 @@ fsn终结黄油巅峰，fgo来终结手游巅峰吗？真实业界毒瘤
 ##### 64730#       发表于 2019-3-8 16:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42839682&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-8 16:03</a>
 
 fsn什么时候成黄游巅峰了， 配吗</blockquote>
 fha的时候大概是黄油（销量）巅峰
 
 
-
-
-
-
-
 -----
 
 ####  xunit  
 ##### 64731#       发表于 2019-3-8 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42839682&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-8 16:03</a>
@@ -4005,25 +2545,14 @@ fsn什么时候成黄游巅峰了， 配吗</blockquote>
 —— 来自 Meizu MX5, Android 5.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.1
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64732#       发表于 2019-3-8 17:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是无事发生的一天  
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然不可能有事发生。。
-
-
-
-
-
 
 
 -----
@@ -4032,14 +2561,7 @@ fsn什么时候成黄游巅峰了， 配吗</blockquote>
 ##### 64733#       发表于 2019-3-8 17:03
 
 
-
-
 ccc只是延期到星期一，这几天也该出简单预告了吧。
-
-
-
-
-
 
 
 -----
@@ -4048,16 +2570,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64734#       发表于 2019-3-8 17:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这NM线下活动还复刻的
 
 
 白情池子，没有新从者
-
-
-
-
-
 
 
 -----
@@ -4066,14 +2582,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64735#       发表于 2019-3-8 17:10
 
 
-
-
 教授技能本，真实全员恶人（
-
-
-
-
-
 
 
 -----
@@ -4082,14 +2591,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64736#       发表于 2019-3-8 17:13
 
 
-
-
 ？？？突然维护？
-
-
-
-
-
 
 
 -----
@@ -4098,14 +2600,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64737#       发表于 2019-3-8 17:13
 
 
-
-
 等等，为什么白情这活动是星期二（19号结束），这时间有点怪。
-
-
-
-
-
 
 
 -----
@@ -4114,13 +2609,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64738#       发表于 2019-3-8 17:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">什么 居然有事发生？ 
-
-
-
-
-
 
 
 -----
@@ -4129,14 +2618,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64739#       发表于 2019-3-8 17:15
 
 
-
-
 紧急维护。。。
-
-
-
-
-
 
 
 -----
@@ -4145,14 +2627,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64740#       发表于 2019-3-8 17:16
 
 
-
-
 破活动8天还要收集道具
-
-
-
-
-
 
 
 -----
@@ -4161,14 +2636,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64741#       发表于 2019-3-8 17:16
 
 
-
-
 不走程序了，叶良树这个傻逼什么时候滚啊，强化本都开的什么jb玩意
-
-
-
-
-
 
 
 -----
@@ -4177,20 +2645,13 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64742#       发表于 2019-3-8 17:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚刚难道刷的太早了。。忘记不是定点就更新了。该上游戏看（虽然紧急维护了
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 64743#       发表于 2019-3-8 17:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42840596&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-8 17:16</a>
@@ -4201,25 +2662,13 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 死刑确定本 o
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64744#       发表于 2019-3-8 17:20
 
 
-
-
 你叶哥哥又开始了😂
-
-
-
-
-
 
 
 -----
@@ -4228,15 +2677,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64745#       发表于 2019-3-8 17:21
 
 
-
 <blockquote>虎克别音 发表于 2019-3-8 17:13
 等等，为什么白情这活动是星期二（19号结束），这时间有点怪。</blockquote>
 暗示2.4
-
-
-
-
-
 
 
 -----
@@ -4245,16 +2688,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64746#       发表于 2019-3-8 17:21
 
 
-
-
 草泥马 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 我还想用金方块去换张2018的嘲讽礼装。结果。。换过的还不能再换
-
-
-
-
-
 
 
 -----
@@ -4263,13 +2699,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64747#       发表于 2019-3-8 17:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说真的我现在连开白情礼装图鉴都没啥兴致了...
-
-
-
-
-
 
 
 -----
@@ -4278,15 +2708,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64748#       发表于 2019-3-8 17:27
 
 
-
 <blockquote>阿提拉 发表于 2019-3-8 17:22
 说真的我现在连开白情礼装图鉴都没啥兴致了...</blockquote>
 快蝗个新游戏
-
-
-
-
-
 
 
 -----
@@ -4295,14 +2719,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64749#       发表于 2019-3-8 17:27
 
 
-
-
 真是弟弟
-
-
-
-
-
 
 
 -----
@@ -4311,14 +2728,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64750#       发表于 2019-3-8 17:34
 
 
-
-
 时间这么短还刷刷刷，像去年那样纯签到多好<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4327,14 +2737,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64751#       发表于 2019-3-8 17:39
 
 
-
-
 所以国服玩家暴动了那么多次，这氪金量不是在打自己的脸吗。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4343,15 +2746,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64752#       发表于 2019-3-8 17:46
 
 
-
 <blockquote>阿提拉 发表于 2019-3-8 17:22
 说真的我现在连开白情礼装图鉴都没啥兴致了...</blockquote>
 来玩舰b吧
-
-
-
-
-
 
 
 -----
@@ -4360,14 +2757,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64753#       发表于 2019-3-8 17:47
 
 
-
-
 骚老头这个强化我是真的看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4376,16 +2766,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64754#       发表于 2019-3-8 17:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42840659&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-8 17:22</a>
 
 说真的我现在连开白情礼装图鉴都没啥兴致了...</blockquote>
 舰B日服了解一下，ルルイエ欢迎你
-
-
-
-
-
 
 
 -----
@@ -4394,16 +2778,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64755#       发表于 2019-3-8 17:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42840934&amp;ptid=1085254" target="_blank">白夜羽 发表于 2019-3-8 17:47</a>
 
 骚老头这个强化我是真的看不懂</blockquote>
 专业黑吃黑<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4412,14 +2790,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64756#       发表于 2019-3-8 17:54
 
 
-
-
 什么破活动<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4428,16 +2799,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64757#       发表于 2019-3-8 17:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42840998&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-8 17:54</a>
 
 什么破活动能不能来点有趣的形式，审美疲劳了啊</blockquote>
 审美疲劳了？那百重塔again怎么样？
-
-
-
-
-
 
 
 -----
@@ -4446,23 +2811,16 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64758#       发表于 2019-3-8 17:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42841013&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-8 17:55</a>
 
 审美疲劳了？那百重塔again怎么样？</blockquote>
 吼啊，吼啊，我支持。<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64759#       发表于 2019-3-8 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42840941&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-8 17:48</a>
@@ -4473,16 +2831,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我推荐个时空猫挺不错
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 64760#       发表于 2019-3-8 18:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42841099&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-8 18:06</a>
@@ -4494,16 +2846,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你说那个明明是单机游戏肝度能完爆10个肝报废的那个吗
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64761#       发表于 2019-3-8 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42841154&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-8 18:13</a>
@@ -4514,16 +2860,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">除非。。除非你想不开要去搞钓鱼。。
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 64762#       发表于 2019-3-8 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42841179&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-8 18:15</a>
@@ -4538,16 +2878,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 当然是说那秘境装备啊.....当初通了1次秘境再看了一眼那需求材料后就默默的删除了游戏
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64763#       发表于 2019-3-8 18:19
-
 
 
  本帖最后由 alucardcz 于 2019-3-8 18:22 编辑 
@@ -4564,25 +2898,13 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 话说你居然能通vh秘境 怕不是高手中的高手
 
 
-
-
-
-
-
 -----
 
 ####  gpx234mqx  
 ##### 64764#       发表于 2019-3-8 18:21
 
 
-
-
 麻痹的，又出bug了，索尼真放心让
-
-
-
-
-
 
 
 -----
@@ -4591,23 +2913,16 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64765#       发表于 2019-3-8 18:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42840659&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-8 17:22</a>
 
 说真的我现在连开白情礼装图鉴都没啥兴致了...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">快来玩舰B（日服限定）吧
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 64766#       发表于 2019-3-8 18:28
-
 
 
  本帖最后由 森兰丸 于 2019-3-8 18:30 编辑 
@@ -4621,16 +2936,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 这秘境装备做出来后还要升级....粗略算了一下大概1年才能完美1件装备差不多
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64767#       发表于 2019-3-8 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42841272&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-8 18:28</a>
@@ -4654,16 +2963,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 然后钓鱼才是真的肝 我钓了1年还没到次元针！
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 64768#       发表于 2019-3-8 19:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42841345&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-8 18:37</a>
@@ -4679,26 +2982,15 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 当初火鸟钓鱼秘境这一套组合拳下来给我感觉就是运营的吃相越来越难看....4星基本没卵用.....没有特定5星就可以不用玩这游戏了.....点数迷宫也是加成越来越少。拿了5星火法后火鸟我记得还有个最高难度...当时死活都打不过去。
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64769#       发表于 2019-3-8 19:16
 
 
-
 <blockquote>fault 发表于 2019-3-8 17:39
 所以国服玩家暴动了那么多次，这氪金量不是在打自己的脸吗。</blockquote>
 垃圾a的孤儿又在自我为中心了，天天笑别人幼稚幼稚结果自己才是最弱智的，还什么日服玩家真是冥顽不灵太弱了不如国内玩家，我寻思着以前炎上批站不是特别喜欢登高吗，双标的飞起我已经不忍看了我再也不去惹😂👋
-
-
-
-
-
 
 
 -----
@@ -4707,14 +2999,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64770#       发表于 2019-3-8 19:28
 
 
-
-
 赶快来玩剑女人啊，再没大佬氪服务器就要倒闭了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4723,15 +3008,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64771#       发表于 2019-3-8 19:30
 
 
-
 <blockquote>上坂莲华 发表于 2019-3-8 19:28
 赶快来玩剑女人啊，再没大佬氪服务器就要倒闭了</blockquote>
 今天又上去看了下dena的网络优化还是卡瞎我，80级的大典太继续放着吧👋😂
-
-
-
-
-
 
 
 -----
@@ -4740,16 +3019,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64772#       发表于 2019-3-8 19:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42841811&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-8 19:30</a>
 
 今天又上去看了下dena的网络优化还是卡瞎我，80级的大典太继续放着吧👋😂 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我说的是刀使之巫女，天华百剑我也玩不来的
-
-
-
-
-
 
 
 -----
@@ -4758,15 +3031,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64773#       发表于 2019-3-8 19:59
 
 
-
 <blockquote>上坂莲华 发表于 2019-3-8 19:32
 我说的是刀使之巫女，天华百剑我也玩不来的</blockquote>
 以后还有个真剑少女，剑女人从此不再只是一家
-
-
-
-
-
 
 
 -----
@@ -4775,14 +3042,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64774#       发表于 2019-3-8 20:07
 
 
-
-
 未定是好文明争取在来个24小时 萌新就靠这最后一博梨梨丝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4791,16 +3051,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64775#       发表于 2019-3-8 20:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42842062&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-8 19:59</a>
 
 以后还有个真剑少女，剑女人从此不再只是一家</blockquote>
 这东西不是大咪咪一个已经关服很久了的页游吗
-
-
-
-
-
 
 
 -----
@@ -4809,16 +3063,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64776#       发表于 2019-3-8 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42842136&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-8 20:07</a>
 
 未定是好文明争取在来个24小时 萌新就靠这最后一博梨梨丝了</blockquote>
 想啥呢，已经开了
-
-
-
-
-
 
 
 -----
@@ -4827,16 +3075,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64777#       发表于 2019-3-8 20:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42842230&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-8 20:17</a>
 
 想啥呢，已经开了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1石也够抽一发！
-
-
-
-
-
 
 
 -----
@@ -4845,15 +3087,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64778#       发表于 2019-3-8 20:26
 
 
-
 <blockquote>森兰丸 发表于 2019-3-8 20:07
 这东西不是大咪咪一个已经关服很久了的页游吗</blockquote>
 变成手游版诈尸了，但是还在开发
-
-
-
-
-
 
 
 -----
@@ -4862,16 +3098,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64779#       发表于 2019-3-8 20:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42841793&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-3-8 19:28</a>
 
 赶快来玩剑女人啊，再没大佬氪服务器就要倒闭了</blockquote>
 助战随时能刷出满突当期4星角色的路人大佬，你跟我讲这游戏会倒闭？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4880,14 +3110,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64780#       发表于 2019-3-8 21:39
 
 
-
-
 教授这样强化不吃星了=3技能复活了
-
-
-
-
-
 
 
 -----
@@ -4896,15 +3119,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64781#       发表于 2019-3-8 21:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42842945&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2019-3-8 21:39</a>
 教授这样强化不吃星了=3技能复活了</blockquote>
 不是一样吃10星，多一个给队友恶属性吗？
-
-
-
-
-
 
 
 -----
@@ -4913,16 +3130,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64782#       发表于 2019-3-8 23:16
 
 
-
-
 果然是上杉谦信……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -4931,21 +3141,14 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64783#       发表于 2019-3-8 23:24
 
 
-
 <img src="http://wx1.sinaimg.cn/mw690/0070WDskly1g0vsuvil2yj30k00e4jsm.jpg" referrerpolicy="no-referrer">
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">感觉没有第一张社长帅了...这个挑染好吃角度
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 64784#       发表于 2019-3-9 00:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42843703&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2019-3-8 23:16</a>
@@ -4957,16 +3160,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 在七支刀这武器出来后就已经跑不了了。
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 64785#       发表于 2019-3-9 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42842352&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-8 20:30</a>
@@ -4975,24 +3172,13 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要不是这些人整天帮忙氪服务器游戏早都倒闭了啊
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 64786#       发表于 2019-3-9 19:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">金时的宝具BB双暴击竟然只打霸王花100w...是我太弱了么
-
-
-
-
-
 
 
 -----
@@ -5001,16 +3187,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64787#       发表于 2019-3-9 21:07
 
 
-
-
 64t磨掉了霸王花
 
 政哥哥梅哥哥村姑全程只让她出了一次伤害笑死我了
-
-
-
-
-
 
 
 -----
@@ -5019,15 +3198,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64788#       发表于 2019-3-9 21:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42850039&amp;ptid=1085254" target="_blank">枫紫 发表于 2019-3-9 19:04</a>
 金时的宝具BB双暴击竟然只打霸王花100w...是我太弱了么</blockquote>
 回合数没磨够吧，20+回合二宝李大爷一拳都有140w了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5036,16 +3209,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64789#       发表于 2019-3-9 22:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42851358&amp;ptid=1085254" target="_blank">fault 发表于 2019-3-9 21:39</a>
 
 回合数没磨够吧，20+回合二宝李大爷一拳都有140w了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">当然说的是一回合杀，没贞德不想磨
-
-
-
-
-
 
 
 -----
@@ -5054,15 +3221,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64790#       发表于 2019-3-9 22:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42851569&amp;ptid=1085254" target="_blank">枫紫 发表于 2019-3-9 22:03</a>
 当然说的是一回合杀，没贞德不想磨</blockquote>
 没带满破黑杯？
-
-
-
-
-
 
 
 -----
@@ -5071,16 +3232,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64791#       发表于 2019-3-9 22:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42851689&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-9 22:15</a>
 
 没带满破黑杯？</blockquote>
 没有满破黑杯
-
-
-
-
-
 
 
 -----
@@ -5089,16 +3244,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64792#       发表于 2019-3-9 22:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42851897&amp;ptid=1085254" target="_blank">枫紫 发表于 2019-3-9 22:39</a>
 
 没有满破黑杯</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红卡1回合不都是自信宝鸡3红带走的吗 不放宝具的
-
-
-
-
-
 
 
 -----
@@ -5107,16 +3256,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64793#       发表于 2019-3-9 22:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42851911&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-9 22:40</a>
 
 红卡1回合不都是自信宝鸡3红带走的吗 不放宝具的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">2红都刷掉20多个铜苹果，3红别提了
-
-
-
-
-
 
 
 -----
@@ -5125,14 +3268,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64794#       发表于 2019-3-10 17:22
 
 
-
-
 能不能开一开AP减半啊……
-
-
-
-
-
 
 
 -----
@@ -5141,16 +3277,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64795#       发表于 2019-3-10 17:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42858356&amp;ptid=1085254" target="_blank">ののワ 发表于 2019-3-10 17:22</a>
 
 能不能开一开AP减半啊……</blockquote>
 明天就开活动了，肯定没有啦<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5159,23 +3289,15 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64796#       发表于 2019-3-10 18:51
 
 
-
-
 大妈之家的官漫被版权了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 64797#       发表于 2019-3-10 19:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42859066&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2019-3-10 18:51</a>
@@ -5185,16 +3307,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 哪个官漫？混沌恶？
 
 
-
-
-
-
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 64798#       发表于 2019-3-10 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42859136&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-10 19:01</a>
@@ -5204,32 +3320,19 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  giddenslee  
 ##### 64799#       发表于 2019-3-11 00:28
 
 
-
-
 真没想到让我戒了FGO的是雀魂……CCC又没打，算了，本来也不是特别想打。
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 64800#       发表于 2019-3-11 01:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42860562&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2019-3-10 21:41</a>
@@ -5239,25 +3342,13 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 看来要引进<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Kirihara  
 ##### 64801#       发表于 2019-3-11 11:10
 
 
-
-
 完蛋，周末跑去雀魂了，渴爱重力圈一个没动，不知道最后不到1个小时的时间还能打几个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5266,15 +3357,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64802#       发表于 2019-3-11 11:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42865474&amp;ptid=1085254" target="_blank">Kirihara 发表于 2019-3-11 11:10</a>
 完蛋，周末跑去雀魂了，渴爱重力圈一个没动，不知道最后不到1个小时的时间还能打几个 ...</blockquote>
 以后等用金方块换吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5283,16 +3368,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64803#       发表于 2019-3-11 11:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42865661&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-11 11:21</a>
 
 以后等用金方块换吧</blockquote>
 其他的都打完了，就剩下那新加的10个高难了，问一下红叶lao这里有送别的东西么，我看维基上写的送材料以及圣杯
-
-
-
-
-
 
 
 -----
@@ -5301,14 +3380,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64804#       发表于 2019-3-11 11:51
 
 
-
-
 第5个了，看来可以撑到第6个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5317,15 +3389,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64805#       发表于 2019-3-11 12:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42865758&amp;ptid=1085254" target="_blank">Kirihara 发表于 2019-3-11 11:28</a>
 其他的都打完了，就剩下那新加的10个高难了，问一下红叶lao这里有送别的东西么，我看维基上写的送材料以 ...</blockquote>
 就是素材（好多黑灰）和圣杯<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5334,16 +3400,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64806#       发表于 2019-3-11 12:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42866289&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-11 12:03</a>
 
 就是素材（好多黑灰）和圣杯</blockquote>
 那还行，打完5个，进第6个的时候到点了，勉强不亏吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5352,17 +3412,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64807#       发表于 2019-3-11 13:04
 
 
-
-
 今天竟然不维护
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -5371,14 +3424,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64808#       发表于 2019-3-11 14:21
 
 
-
-
 好无聊啊我已经咸鱼大半个月了
-
-
-
-
-
 
 
 -----
@@ -5387,13 +3433,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64809#       发表于 2019-3-11 17:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开服了都没人爆跳  甚至发贴的人都没  你游已凉
-
-
-
-
-
 
 
 -----
@@ -5402,15 +3442,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64810#       发表于 2019-3-11 17:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870261&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 17:10</a>
 开服了都没人爆跳  甚至发贴的人都没  你游已凉</blockquote>
 萌新快跳一个<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5419,16 +3453,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64811#       发表于 2019-3-11 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870275&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-11 17:11</a>
 
 萌新快跳一个</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这垃圾卡池你叫萌新我怎么跳
-
-
-
-
-
 
 
 -----
@@ -5437,15 +3465,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64812#       发表于 2019-3-11 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870315&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 17:15</a>
 这垃圾卡池你叫萌新我怎么跳</blockquote>
 抽活动礼装<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5454,14 +3476,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64813#       发表于 2019-3-11 17:19
 
 
-
-
 这一年一度的李庄咋能不抽
-
-
-
-
-
 
 
 -----
@@ -5470,16 +3485,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64814#       发表于 2019-3-11 17:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870348&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-11 17:18</a>
 
 抽活动礼装</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼装不都是用苹果代替的吗
-
-
-
-
-
 
 
 -----
@@ -5488,14 +3497,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64815#       发表于 2019-3-11 17:20
 
 
-
-
 萌新豹一个
-
-
-
-
-
 
 
 -----
@@ -5504,14 +3506,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64816#       发表于 2019-3-11 17:24
 
 
-
-
 全是男人的卡池毫无兴趣
-
-
-
-
-
 
 
 -----
@@ -5520,15 +3515,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64817#       发表于 2019-3-11 17:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870361&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 17:19</a>
 礼装不都是用苹果代替的吗</blockquote>
 你还有多少苹果<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5537,16 +3526,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64818#       发表于 2019-3-11 17:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870443&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-11 17:26</a>
 
 你还有多少苹果算起来我只有250个金苹果，不想在这种活动浪费，急需一个满破活动礼装的萌新啊[f:0 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么萌新只有160个啊
-
-
-
-
-
 
 
 -----
@@ -5555,16 +3538,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64819#       发表于 2019-3-11 17:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870360&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2019-3-11 17:19</a>
 
 这一年一度的李庄咋能不抽</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">全是爷们谁要啊
-
-
-
-
-
 
 
 -----
@@ -5573,14 +3550,7 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64820#       发表于 2019-3-11 17:35
 
 
-
-
 教授灵衣这次也是有满破卡面的。旧剑你看看你 太丢人了
-
-
-
-
-
 
 
 -----
@@ -5589,15 +3559,9 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64821#       发表于 2019-3-11 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870498&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 17:30</a>
 为什么萌新只有160个啊</blockquote>
 因为我折算了银的和铜的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5606,16 +3570,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64822#       发表于 2019-3-11 17:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870572&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-11 17:39</a>
 
 因为我折算了银的和铜的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算上去可能是你的一倍还多了
-
-
-
-
-
 
 
 -----
@@ -5624,22 +3582,15 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 ##### 64823#       发表于 2019-3-11 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870619&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 17:43</a>
 这算上去可能是你的一倍还多了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么多这么多，我觉得多100个左右是正常的，我也没怎么浪费苹果啊
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 64824#       发表于 2019-3-11 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870634&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-11 17:45</a>
@@ -5650,16 +3601,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 你大概忘了我无限池都是50池收工的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 64825#       发表于 2019-3-11 17:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870653&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 17:47</a>
@@ -5669,16 +3614,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 我算了的，每个无限池我大概比你多用30个，我之前估计着也就多5个无限池的消耗，结果居然差了9个无限池<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64826#       发表于 2019-3-11 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870711&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-11 17:52</a>
@@ -5687,16 +3626,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概不止30？ 我浪费了也不少了 吃苹果刷过几百个灰 几百个骨头。。还刷过金狂饼干。刷过钢。等等等等
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 64827#       发表于 2019-3-11 18:22
-
 
 
 [https://bbs.nga.cn/read.php?tid=16623327](https://bbs.nga.cn/read.php?tid=16623327)
@@ -5704,16 +3637,10 @@ ccc只是延期到星期一，这几天也该出简单预告了吧。
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">又到了我最喜欢的围观LGA的时间，洋洋洒洒一大堆屁话说着傻子都知道的内容，还能高亮加分
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64828#       发表于 2019-3-11 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42870972&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-11 18:22</a>
@@ -5725,32 +3652,19 @@ https://bbs.nga.cn/read.php?tid=16623327
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对不起 我问下 这贴在说什么 我怎么看不懂
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 64829#       发表于 2019-3-11 18:26
 
 
-
-
 全是男人也不是不行,就是这男人池一个让人兴奋的点都没有<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 64830#       发表于 2019-3-11 18:26
-
 
 
  本帖最后由 Leona_Akari 于 2019-3-11 18:29 编辑 
@@ -5762,18 +3676,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不对，应该这样说，只有在有满破宝石的情况下wcba+孔明+50np从者才能三连？
 
 
-
-
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64831#       发表于 2019-3-11 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42871016&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-11 18:26</a>
@@ -5785,16 +3691,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不 甚至不需要w cba 
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 64832#       发表于 2019-3-11 18:34
-
 
 
 <blockquote>而且还我帮大多数人算完了，我觉得挺无脑的。</blockquote>
@@ -5803,25 +3703,13 @@ https://bbs.nga.cn/read.php?tid=16623327
 我觉得这种傻逼贴吧都不多见了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64833#       发表于 2019-3-11 18:37
 
 
-
-
 这次活动时间这么短，交换要求的道具量怎么感觉一点也不少……
-
-
-
-
-
 
 
 -----
@@ -5830,16 +3718,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64834#       发表于 2019-3-11 18:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42871139&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-11 18:37</a>
 
 这次活动时间这么短，交换要求的道具量怎么感觉一点也不少……</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼装赶快抽起来 我等着飘你的
-
-
-
-
-
 
 
 -----
@@ -5848,15 +3730,9 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64835#       发表于 2019-3-11 18:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42871150&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 18:38</a>
 礼装赶快抽起来 我等着飘你的</blockquote>
 我一堆好友都在签名写了这个活动不会有氪金礼装，我觉得是时候萌新你站出来了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5865,16 +3741,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64836#       发表于 2019-3-11 18:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42871150&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 18:38</a>
 
 礼装赶快抽起来 我等着飘你的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">做梦去吧
-
-
-
-
-
 
 
 -----
@@ -5883,16 +3753,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64837#       发表于 2019-3-11 18:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42871161&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-11 18:39</a>
 
 我一堆好友都在签名写了这个活动不会有氪金礼装，我觉得是时候萌新你站出来了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看我的cba不是已经挂着“氪金礼装”了！
-
-
-
-
-
 
 
 -----
@@ -5901,14 +3765,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64838#       发表于 2019-3-11 18:51
 
 
-
-
 咕哒男要做秧歌巨星？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5917,13 +3774,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64839#       发表于 2019-3-11 18:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看了几页那贴 戈壁的平民居然都是有满破宝石翁的 萌新看来是个难民中的难民
-
-
-
-
-
 
 
 -----
@@ -5932,13 +3783,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64840#       发表于 2019-3-11 18:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这次活动还有OP的 做的好骚啊
-
-
-
-
-
 
 
 -----
@@ -5947,16 +3792,9 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64841#       发表于 2019-3-11 18:57
 
 
-
-
 呼符打算捞个农具结果出了兰陵王，算豹吗？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -5965,13 +3803,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64842#       发表于 2019-3-11 21:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">什么ZZ卡池....一年就这么一次白情....随便落地个男性卫星都好啊
-
-
-
-
-
 
 
 -----
@@ -5980,13 +3812,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64843#       发表于 2019-3-11 21:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这个活动有什么是需要延迟一周开放的吗，连新英灵都没
-
-
-
-
-
 
 
 -----
@@ -5995,14 +3821,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64844#       发表于 2019-3-11 21:41
 
 
-
-
 这交换怎么连绿方块都没的
-
-
-
-
-
 
 
 -----
@@ -6011,16 +3830,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64845#       发表于 2019-3-11 21:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42872905&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-11 21:41</a>
 
 这交换怎么连绿方块都没的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">抽卡就有绿方块了 该上了
-
-
-
-
-
 
 
 -----
@@ -6029,16 +3842,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64846#       发表于 2019-3-11 22:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42873009&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-11 21:53</a>
 
 抽卡就有绿方块了 该上了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">萌新是时候该把教授5宝了
-
-
-
-
-
 
 
 -----
@@ -6047,16 +3854,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64847#       发表于 2019-3-11 22:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42873072&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-11 22:00</a>
 
 萌新是时候该把教授5宝了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">变成绿卡我就抽5宝（认真
-
-
-
-
-
 
 
 -----
@@ -6065,14 +3866,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64848#       发表于 2019-3-11 23:48
 
 
-
-
 我抽完了，你们呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6081,14 +3875,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64849#       发表于 2019-3-12 00:03
 
 
-
-
 喷了，这沙雕活动还要搬商店的吗，早知道换五星礼装了
-
-
-
-
-
 
 
 -----
@@ -6097,14 +3884,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64850#       发表于 2019-3-12 00:23
 
 
-
-
 一张礼装都不想换,反正哪一张都不可能满破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6113,14 +3893,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64851#       发表于 2019-3-12 00:29
 
 
-
-
 换个灵衣算了，全是男人的卡池碰都不会碰<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6129,23 +3902,15 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64852#       发表于 2019-3-12 05:54
 
 
-
-
 本来想抽个礼装开图鉴 
 
 欧了一把 抽礼装打活动 全身70石头 7个护符 new了 兰陵王 第一个10连 拿破仑 第二个10连教授 还new了 哥伦布
-
-
-
-
-
 
 
 -----
 
 ####  Nozzy  
 ##### 64853#       发表于 2019-3-12 08:51
-
 
 
 <blockquote>Leona_Akari 发表于 2019-3-11 18:22
@@ -6156,17 +3921,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 为什么绿卡连发条件图出了辣么久了他们还喜欢嚼剩饭米汤子……
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64854#       发表于 2019-3-12 09:11
-
-
 
 
 好友里有个大佬有两张满破五星礼装，结果挂在脚后跟和朕身上，不知道在想啥……
@@ -6175,16 +3933,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 64855#       发表于 2019-3-12 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42875925&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-12 08:51</a>
@@ -6193,32 +3945,19 @@ https://bbs.nga.cn/read.php?tid=16623327
 如果自high，也就算了，下面还那么多人捧臭脚还高亮，完全体现LGA的本质水平<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Jamaisvu  
 ##### 64856#       发表于 2019-3-12 10:22
 
 
-
-
 突然发现莫里亚提技能本不吃星星了，就是个条件要求。比想象中强了不少，虽然没发随时用还是不舒服。对比场景限定技能可以只发动一半效果
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 64857#       发表于 2019-3-12 11:21
-
 
 
  本帖最后由 alucardcz 于 2019-3-12 11:46 编辑 
@@ -6228,16 +3967,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 没注意要星发动但不吃了
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 64858#       发表于 2019-3-12 11:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42877743&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-12 11:21</a>
@@ -6250,16 +3983,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 这次强化后10星是条件，但是不吃了
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 64859#       发表于 2019-3-12 11:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42877743&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-12 11:21</a>
@@ -6270,16 +3997,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 必须要有10颗星才发动，但是发动后并不吃星了...
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 64860#       发表于 2019-3-12 11:32
-
 
 
 <blockquote>alucardcz 发表于 2019-3-12 11:21
@@ -6289,16 +4010,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 欧洲限定佬有老头好像也很正常
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64861#       发表于 2019-3-12 11:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42877875&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-12 11:30</a>
@@ -6307,16 +4022,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 没注意不吃了。但是有星才能发动还是那样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64862#       发表于 2019-3-12 11:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42877909&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-12 11:32</a>
@@ -6325,16 +4034,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很久以前票的啊
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 64863#       发表于 2019-3-12 11:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42877743&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-12 11:21</a>
@@ -6344,26 +4047,15 @@ https://bbs.nga.cn/read.php?tid=16623327
 您好，您的教授是萌新版本，请充100单升级到大佬版本以后就可以享受到正常机制了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 64864#       发表于 2019-3-12 11:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42877940&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-12 11:34</a>
 很久以前票的啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧！羡慕！
-
-
-
-
-
 
 
 -----
@@ -6372,16 +4064,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64865#       发表于 2019-3-12 11:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42878104&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-12 11:46</a>
 
 欧！羡慕！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也可以啊 现在甚至还能5宝
-
-
-
-
-
 
 
 -----
@@ -6390,15 +4076,9 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64866#       发表于 2019-3-12 12:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42878123&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-12 11:47</a>
 你也可以啊 现在甚至还能5宝</blockquote>
 一个10连抽了几个礼装，还不跑路等啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每年白情我都是抽几个礼装就撤，完全没兴趣抽卡池
-
-
-
-
-
 
 
 -----
@@ -6407,14 +4087,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64867#       发表于 2019-3-12 12:21
 
 
-
-
 之前福袋出的教授，这次可以安心跳过了
-
-
-
-
-
 
 
 -----
@@ -6423,14 +4096,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64868#       发表于 2019-3-12 17:31
 
 
-
-
 亚种圣杯战争<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6439,21 +4105,13 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64869#       发表于 2019-3-12 17:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">齐格拿出了菩提叶，柳丁同学你有什么要说的没有（
-
-
-
-
-
 
 
 -----
 
 ####  上坂莲华  
 ##### 64870#       发表于 2019-3-12 17:47
-
-
 
 
 该卡手还是卡手，昨天骚老头刷剑本都各种不爽
@@ -6463,24 +4121,13 @@ https://bbs.nga.cn/read.php?tid=16623327
 富岳三十六景！
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64871#       发表于 2019-3-12 17:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">此时一个只会哈哈哈的萌新路过
-
-
-
-
-
 
 
 -----
@@ -6489,14 +4136,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64872#       发表于 2019-3-12 18:05
 
 
-
-
 一个遇到狂本就上美海豹的咸鱼路过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6505,16 +4145,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64873#       发表于 2019-3-12 18:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42882375&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-12 18:05</a>
 
 一个遇到狂本就上美海豹的咸鱼路过</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次哈哈哈有哈哈哈哈哈所以能轻松哈哈哈了啊
-
-
-
-
-
 
 
 -----
@@ -6523,15 +4157,9 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64874#       发表于 2019-3-12 18:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42882388&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-12 18:06</a>
 这次哈哈哈有哈哈哈哈哈所以能轻松哈哈哈了啊</blockquote>
 美海豹的宝具声音不比那个整天哈哈哈的舒服多了？只要条件允许，我都拒绝使用哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6540,16 +4168,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64875#       发表于 2019-3-12 18:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42882429&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-12 18:11</a>
 
 美海豹的宝具声音不比那个整天哈哈哈的舒服多了？只要条件允许，我都拒绝使用哈哈哈 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">我打废狗基本不开声音的，嗯
-
-
-
-
-
 
 
 -----
@@ -6558,14 +4180,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64876#       发表于 2019-3-12 18:15
 
 
-
-
 萌新直接三光炮洗地。。。还能少按几个技能。。。
-
-
-
-
-
 
 
 -----
@@ -6574,16 +4189,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64877#       发表于 2019-3-12 18:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42882429&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-12 18:11</a>
 
 美海豹的宝具声音不比那个整天哈哈哈的舒服多了？只要条件允许，我都拒绝使用哈哈哈 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可我声音只开一格的   
-
-
-
-
-
 
 
 -----
@@ -6592,16 +4201,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64878#       发表于 2019-3-12 18:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42882429&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-12 18:11</a>
 
 美海豹的宝具声音不比那个整天哈哈哈的舒服多了？只要条件允许，我都拒绝使用哈哈哈 ...</blockquote>
 你居然不是静音指定，好逊哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6610,15 +4213,9 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64879#       发表于 2019-3-12 18:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42882621&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-12 18:32</a>
 你居然不是静音指定，好逊哦</blockquote>
 什么，你们居然都是静音打fgo的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6627,16 +4224,10 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64880#       发表于 2019-3-12 18:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42882685&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-12 18:40</a>
 
 什么，你们居然都是静音打fgo的吗我基本上都是靠声音来判断有没有搞错技能和宝具释放，同时操作多 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">上班摸鱼你还敢开声音的？
-
-
-
-
-
 
 
 -----
@@ -6645,15 +4236,9 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64881#       发表于 2019-3-12 18:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42882775&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-3-12 18:50</a>
 上班摸鱼你还敢开声音的？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只在休息时间打开游戏，上班时间哪敢摸鱼
-
-
-
-
-
 
 
 -----
@@ -6662,14 +4247,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64882#       发表于 2019-3-12 19:00
 
 
-
-
 羡慕能上班摸鱼的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6678,13 +4256,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64883#       发表于 2019-3-12 19:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">补了一单没出霸王花，累计近200抽，只有3个高文+满破了两张星辰大海...我不pay，不pay
-
-
-
-
-
 
 
 -----
@@ -6693,14 +4265,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64884#       发表于 2019-3-12 19:37
 
 
-
-
 趁着池子十连来了兰陵王……足够了，教授我本来就有没有新角色也实在没什么动力抽了
-
-
-
-
-
 
 
 -----
@@ -6709,13 +4274,7 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64885#       发表于 2019-3-12 19:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说北斋狂本怎么3t要什么配置 萌新想体验下
-
-
-
-
-
 
 
 -----
@@ -6724,15 +4283,9 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64886#       发表于 2019-3-12 19:43
 
 
-
 <blockquote>alucardcz 发表于 2019-3-12 19:41
 话说北斋狂本怎么3t要什么配置 萌新想体验下</blockquote>
 玉玉北
-
-
-
-
-
 
 
 -----
@@ -6741,15 +4294,9 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64887#       发表于 2019-3-12 19:45
 
 
-
 <blockquote>枫紫 发表于 2019-3-12 19:08
 补了一单没出霸王花，累计近200抽，只有3个高文+满破了两张星辰大海...我不pay，不pay ...</blockquote>
 才200，上次我300没4星美游
-
-
-
-
-
 
 
 -----
@@ -6758,22 +4305,15 @@ https://bbs.nga.cn/read.php?tid=16623327
 ##### 64888#       发表于 2019-3-12 19:47
 
 
-
 <blockquote>上坂莲华 发表于 2019-3-12 18:50
 上班摸鱼你还敢开声音的？</blockquote>
 摸鱼不戴无线耳机吗
-
-
-
-
-
 
 
 -----
 
 ####  上坂莲华  
 ##### 64889#       发表于 2019-3-12 19:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42883271&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2019-3-12 19:43</a>
@@ -6786,31 +4326,19 @@ https://bbs.nga.cn/read.php?tid=16623327
 3面斯巴达克斯人阵营，北斋靠特攻直接冲死就完了，顶多衣服给个军略
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64890#       发表于 2019-3-12 19:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我是和摸不摸鱼无关，常时静音，开着觉得烦
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 64891#       发表于 2019-3-12 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42883339&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-3-12 19:51</a>
@@ -6823,25 +4351,13 @@ https://bbs.nga.cn/read.php?tid=16623327
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一点都不富岳三十六景啊  才喊了一次
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 64892#       发表于 2019-3-12 21:10
 
 
-
-
 DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6850,14 +4366,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64893#       发表于 2019-3-12 21:15
 
 
-
-
 主角怎么这么快下回老家结婚的flag<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6866,14 +4375,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64894#       发表于 2019-3-12 21:21
 
 
-
-
 狂本尼托阿福cba我感觉已经是完美阵容了....
-
-
-
-
-
 
 
 -----
@@ -6882,16 +4384,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64895#       发表于 2019-3-12 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42883282&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2019-3-12 19:45</a>
 
 才200，上次我300没4星美游</blockquote>
 非洲人伙伴共勉了，联动新卡真的要命
-
-
-
-
-
 
 
 -----
@@ -6900,16 +4396,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64896#       发表于 2019-3-12 23:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42883455&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-12 20:05</a>
 
 这一点都不富岳三十六景啊  才喊了一次</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你想听两次可以一面大英雄炸，然后宝石翁双孔明清二三面，三次难度太高了
-
-
-
-
-
 
 
 -----
@@ -6918,23 +4408,15 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64897#       发表于 2019-3-13 03:29
 
 
-
-
 你们打周回都不考虑阿拉什嘛？超级好用啊，
 
 二三面我用双CBA狂兰，只要不是二面只有一个怪的情况基本上是万能阵容
-
-
-
-
-
 
 
 -----
 
 ####  猎黑行者  
 ##### 64898#       发表于 2019-3-13 06:22
-
 
 
  本帖最后由 猎黑行者 于 2019-3-13 06:24 编辑 
@@ -6948,32 +4430,19 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 占一个礼装加成位而已，毕竟前CBA时代一面通用解
 
 
-
-
-
-
-
 -----
 
 ####  DARKGRAY  
 ##### 64899#       发表于 2019-3-13 08:56
 
 
-
-
 挂掉换人会小卡一下，所以能不用都不用<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 64900#       发表于 2019-3-13 09:40
-
 
 
 <blockquote>上坂莲华 发表于 2019-3-12 19:51
@@ -6988,16 +4457,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 北斋一人打三面啊
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 64901#       发表于 2019-3-13 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42888227&amp;ptid=1085254" target="_blank">gpx234mqx 发表于 2019-3-13 09:40</a>
@@ -7009,16 +4472,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萌新没狐狸只能尼托打前两面了
 
 
-
-
-
-
-
 -----
 
 ####  kulanyee  
 ##### 64902#       发表于 2019-3-13 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42884074&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-12 21:10</a>
@@ -7027,26 +4484,15 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">哪里的消息我怎么没看到
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 64903#       发表于 2019-3-13 15:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42892394&amp;ptid=1085254" target="_blank">kulanyee 发表于 2019-3-13 14:52</a>
 哪里的消息我怎么没看到</blockquote>
 肯定是养鸡场的群，这位可是养鸡场的大佬。
-
-
-
-
-
 
 
 -----
@@ -7055,13 +4501,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64904#       发表于 2019-3-13 16:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我擦 感动上天 2019年终于要更新礼装拖动的功能了  
-
-
-
-
-
 
 
 -----
@@ -7070,15 +4510,9 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64905#       发表于 2019-3-13 16:56
 
 
-
 <blockquote>alucardcz 发表于 2019-3-13 16:54
 我擦 感动上天 2019年终于要更新礼装拖动的功能了</blockquote>
 这图做的还很讲究
-
-
-
-
-
 
 
 -----
@@ -7087,16 +4521,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64906#       发表于 2019-3-13 17:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42893841&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-13 16:56</a>
 
 这图做的还很讲究</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看上去像把你王的肚子切下来给别人做礼装
-
-
-
-
-
 
 
 -----
@@ -7105,23 +4533,16 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64907#       发表于 2019-3-13 17:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">终于有按礼装效果筛选和拖动礼装的功能了，上次优化都优化了些啥玩意，总算是来了点有用的
 
 
 于是基本确定本月更新2.4了吧，就看是24号还是27号了
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 64908#       发表于 2019-3-13 17:58
-
 
 
 <blockquote>阿提拉 发表于 2019-3-13 17:07
@@ -7132,25 +4553,13 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 新人终于可以抽阿三了😁
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 64909#       发表于 2019-3-13 18:49
 
 
-
-
 阿三兄弟该改模了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7159,13 +4568,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64910#       发表于 2019-3-13 18:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我大杰克什么时候也改改啊？太丢人了 
-
-
-
-
-
 
 
 -----
@@ -7174,14 +4577,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64911#       发表于 2019-3-13 19:13
 
 
-
-
 杰克的眼神都变了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7190,14 +4586,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64912#       发表于 2019-3-13 19:56
 
 
-
-
 教授原来是想破坏这次拍卖<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7206,15 +4595,9 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64913#       发表于 2019-3-13 21:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">街机已经实装小太阳了，是时候改模改宝具动画了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7223,13 +4606,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64914#       发表于 2019-3-13 23:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7238,14 +4615,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64915#       发表于 2019-3-13 23:07
 
 
-
-
 更新了，但是我无限混杂进不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7254,14 +4624,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64916#       发表于 2019-3-13 23:08
 
 
-
-
 更新个卡池为什么服务器还能爆炸，能不能行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7270,13 +4633,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64917#       发表于 2019-3-13 23:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">发生了什么，为什么不能上了
-
-
-
-
-
 
 
 -----
@@ -7285,14 +4642,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64918#       发表于 2019-3-13 23:25
 
 
-
-
 找借口送石不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7301,16 +4651,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64919#       发表于 2019-3-13 23:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42898091&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-13 23:25</a>
 
 找借口送石不好吗</blockquote>
 官推：你们人太多，等会儿再来啦，送石？没有的事
-
-
-
-
-
 
 
 -----
@@ -7319,14 +4663,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64920#       发表于 2019-3-13 23:38
 
 
-
-
 接下来up的是大公啊，为什么能炸服？
-
-
-
-
-
 
 
 -----
@@ -7335,14 +4672,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64921#       发表于 2019-3-13 23:40
 
 
-
-
 我感觉到了，是庄司的灵压！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7351,16 +4681,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64922#       发表于 2019-3-13 23:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42898129&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-13 23:29</a>
 
 官推：你们人太多，等会儿再来啦，送石？没有的事</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉会有!
-
-
-
-
-
 
 
 -----
@@ -7369,13 +4693,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64923#       发表于 2019-3-13 23:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">维护了 石头稳了！
-
-
-
-
-
 
 
 -----
@@ -7384,14 +4702,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64924#       发表于 2019-3-13 23:46
 
 
-
-
 维护，没有结束时间
-
-
-
-
-
 
 
 -----
@@ -7400,13 +4711,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64925#       发表于 2019-3-13 23:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">唐 突 维 护
-
-
-
-
-
 
 
 -----
@@ -7415,14 +4720,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64926#       发表于 2019-3-14 00:03
 
 
-
-
 突然就炸了，公告还和平时的不一样，搞得我还以为我炸了<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7431,21 +4729,13 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64927#       发表于 2019-3-14 00:22
 
 
-
-
 又有白嫖石了，上杉姐姐稳了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 64928#       发表于 2019-3-14 00:40
-
 
 
 <blockquote>引用第64928楼khxooo于2019-03-14 00:22发表的  :
@@ -7457,25 +4747,13 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 64929#       发表于 2019-3-14 01:03
 
 
-
-
 到底更新了啥啊，怎么还没好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7484,16 +4762,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64930#       发表于 2019-3-14 01:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42898948&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-14 01:03</a>
 
 到底更新了啥啊，怎么还没好</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紧急维护修正了你能出货的bug
-
-
-
-
-
 
 
 -----
@@ -7502,13 +4774,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64931#       发表于 2019-3-14 01:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么公告第一次见啊
-
-
-
-
-
 
 
 -----
@@ -7517,15 +4783,9 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64932#       发表于 2019-3-14 01:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42898977&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-14 01:08</a>
 紧急维护修正了你能出货的bug</blockquote>
 什么，我没石头了也能出货的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7534,14 +4794,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64933#       发表于 2019-3-14 01:45
 
 
-
-
 半夜睡不着抽了两发剧情池，new了萨列里还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7550,21 +4803,13 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64934#       发表于 2019-3-14 08:00
 
 
-
-
 白情池子就有萨列里，为啥要去抽剧情池？
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 64935#       发表于 2019-3-14 09:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42898800&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-14 00:40</a>
@@ -7575,24 +4820,13 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 那也好阿，可以省石头等2.6阿格实装，这样5宝的机会更大了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64936#       发表于 2019-3-14 15:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">输了 做为一个石不过3的萌新 这次石头要过3了
-
-
-
-
-
 
 
 -----
@@ -7601,14 +4835,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64937#       发表于 2019-3-14 17:43
 
 
-
-
 妈的，犯人就是教授吧
-
-
-
-
-
 
 
 -----
@@ -7617,21 +4844,13 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64938#       发表于 2019-3-14 17:44
 
 
-
-
 因为教授透了叶子，导致6方开始互相残杀
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 64939#       发表于 2019-3-14 22:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42896869&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-13 21:35</a>
@@ -7643,31 +4862,19 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 突然发现旧剑圆桌抽满了，这是抽了多少石头<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64940#       发表于 2019-3-14 23:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看到祖师爷就丢了张护符...没想到居然真2宝了  为什么梨梨丝没从0变1呢
-
-
-
-
-
 
 
 -----
 
 ####  gpx234mqx  
 ##### 64941#       发表于 2019-3-14 23:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42909496&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-14 23:21</a>
@@ -7678,16 +4885,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 豹跳如雷啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 64942#       发表于 2019-3-14 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42909496&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-14 23:21</a>
@@ -7697,16 +4898,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧!嫉妒!
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64943#       发表于 2019-3-14 23:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42909610&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-14 23:35</a>
@@ -7715,16 +4910,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">台词怎么变了!
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 64944#       发表于 2019-3-14 23:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42909614&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-14 23:36</a>
@@ -7732,17 +4921,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕已经不能形容我的感觉了
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 64945#       发表于 2019-3-14 23:45
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/14/234444r9523ppun5bgbp2s.jpg" referrerpolicy="no-referrer">
@@ -7755,11 +4937,6 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 2019-3-14 23:44 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/14/234504cdm8hk7dkk6jq967.jpg" referrerpolicy="no-referrer">
 
 
@@ -7770,24 +4947,13 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 2019-3-14 23:45 上传
 
 
-
-
-
-
-
 虽然比不上萌新，但是我已经很满意了，唯一的遗憾是本次白情无法满破五星礼装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 64946#       发表于 2019-3-14 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42909721&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-14 23:45</a>
@@ -7797,16 +4963,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 你们这些海豹都是这么厉害的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64947#       发表于 2019-3-14 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42909721&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-14 23:45</a>
@@ -7817,16 +4977,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可怕的双黄 欧 羡慕！
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 64948#       发表于 2019-3-14 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42909741&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-14 23:47</a>
@@ -7835,25 +4989,14 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 我用的是蓝色圣晶石修改器，不能和萌新比<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64949#       发表于 2019-3-14 23:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新今年的目标是飘到50张ssr （算上宝具等级  
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">福袋还有2张确定的 感觉离这目标不远了！
-
-
-
-
-
 
 
 -----
@@ -7862,13 +5005,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64950#       发表于 2019-3-15 00:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">非洲人玩这游戏到现在还没看到过一次双黄
-
-
-
-
-
 
 
 -----
@@ -7877,16 +5014,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64951#       发表于 2019-3-15 00:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42910136&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-15 00:38</a>
 
 非洲人玩这游戏到现在还没看到过一次双黄</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">福袋啊 萌新唯一一次双黄就是福袋
-
-
-
-
-
 
 
 -----
@@ -7895,16 +5026,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64952#       发表于 2019-3-15 00:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42910149&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-15 00:40</a>
 
 福袋啊 萌新唯一一次双黄就是福袋</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">除非福袋能自选不然以后1分钱也不会花在这游戏上了（不用叫醒我....正好差不多要去睡了
-
-
-
-
-
 
 
 -----
@@ -7913,13 +5038,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64953#       发表于 2019-3-15 13:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">开始存石，下个樱池之前只有清姬才能让我点击抽卡按钮了
-
-
-
-
-
 
 
 -----
@@ -7928,14 +5047,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64954#       发表于 2019-3-15 14:14
 
 
-
-
 中午想豹跳一下，15个呼符下去，loading3次，居然都是活动礼装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7944,16 +5056,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64955#       发表于 2019-3-15 14:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42915281&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-15 14:14</a>
 
 中午想豹跳一下，15个呼符下去，loading3次，居然都是活动礼装</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 但不羡慕
-
-
-
-
-
 
 
 -----
@@ -7962,15 +5068,9 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64956#       发表于 2019-3-15 14:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42915423&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-15 14:31</a>
 欧 但不羡慕</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新你这个海豹就不要出来跳了
-
-
-
-
-
 
 
 -----
@@ -7979,16 +5079,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64957#       发表于 2019-3-15 14:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42915486&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-15 14:36</a>
 
 萌新你这个海豹就不要出来跳了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">摸鱼时间不跳跳还能干什么!
-
-
-
-
-
 
 
 -----
@@ -7997,14 +5091,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64958#       发表于 2019-3-15 17:07
 
 
-
-
 无事发生，你妈的为什么😥
-
-
-
-
-
 
 
 -----
@@ -8013,14 +5100,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64959#       发表于 2019-3-15 17:26
 
 
-
-
 这还给圣杯倒是不错。就是竟然只有混合本了......还有下总国加了个free?
-
-
-
-
-
 
 
 -----
@@ -8029,13 +5109,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64960#       发表于 2019-3-15 17:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">低难老福单人...掏出了压仓底的黑贞脚打了过去
-
-
-
-
-
 
 
 -----
@@ -8044,16 +5118,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64961#       发表于 2019-3-15 17:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42917125&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2019-3-15 17:26</a>
 
 这还给圣杯倒是不错。就是竟然只有混合本了......还有下总国加了个free?</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">紫妈的时候就加了 醒醒
-
-
-
-
-
 
 
 -----
@@ -8062,16 +5130,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64962#       发表于 2019-3-15 17:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42917125&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2019-3-15 17:26</a>
 
 这还给圣杯倒是不错。就是竟然只有混合本了......还有下总国加了个free?</blockquote>
 下总国又加了个Free？
-
-
-
-
-
 
 
 -----
@@ -8080,15 +5142,9 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64963#       发表于 2019-3-15 17:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42917176&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-15 17:29</a>
 紫妈的时候就加了 醒醒</blockquote>
 我上周都断签了，最近咸的厉害<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -8097,16 +5153,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64964#       发表于 2019-3-15 17:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42917182&amp;ptid=1085254" target="_blank">TestPmGo 发表于 2019-3-15 17:30</a>
 
 下总国又加了个Free？</blockquote>
 是刷镜子的本吧，紫妈开始有的新材料
-
-
-
-
-
 
 
 -----
@@ -8115,16 +5165,10 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64965#       发表于 2019-3-15 17:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42917243&amp;ptid=1085254" target="_blank">angelooo 发表于 2019-3-15 17:35</a>
 
 是刷镜子的本吧，紫妈开始有的新材料</blockquote>
 就是上次就开了呗……
-
-
-
-
-
 
 
 -----
@@ -8133,13 +5177,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64966#       发表于 2019-3-15 17:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近这2个新活动都没纯掉落本是在想什么 虽然这次杂的不算厉害
-
-
-
-
-
 
 
 -----
@@ -8148,14 +5186,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64967#       发表于 2019-3-15 18:03
 
 
-
-
 没李庄，刷不了了
-
-
-
-
-
 
 
 -----
@@ -8164,16 +5195,9 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64968#       发表于 2019-3-15 18:06
 
 
-
-
 这低难难道是黑贞up的信号？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -8182,15 +5206,8 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64969#       发表于 2019-3-15 18:10
 
 
-
-
 这次高难终于用不了我的B狐梅了
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">于是掏出了仓管很久的黑贞
-
-
-
-
-
 
 
 -----
@@ -8199,14 +5216,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64970#       发表于 2019-3-15 18:28
 
 
-
-
 咸鱼屈辱的用了1令咒<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8215,14 +5225,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64971#       发表于 2019-3-15 18:46
 
 
-
-
 活动剧情好无聊。蘑菇找了个推理小说家进编剧组，就为了写些OOC的套皮推理剧？
-
-
-
-
-
 
 
 -----
@@ -8231,16 +5234,9 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64972#       发表于 2019-3-15 18:49
 
 
-
-
 老福宝具后逆克制一发照死了黑贞…还好后备了狂贞
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -8249,14 +5245,7 @@ DC霸王花血沉了，万幸合同到期了，已经远超水无毛的记录了
 ##### 64973#       发表于 2019-3-15 19:03
 
 
-
-
 MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8265,20 +5254,13 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64974#       发表于 2019-3-15 19:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">所以有没有熟悉福尔摩斯的来说说这次活动剧情到底是不是取自教授的往事
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 64975#       发表于 2019-3-15 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42917168&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-15 17:29</a>
@@ -8290,24 +5272,13 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 准备2只黑贞就能骑脸了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64976#       发表于 2019-3-15 21:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">话说这辣鸡活动就剩这么几天了。不吃苹果看来是不太行了。
-
-
-
-
-
 
 
 -----
@@ -8316,14 +5287,7 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64977#       发表于 2019-3-15 21:51
 
 
-
-
 才三月份，已经4个圣杯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8332,14 +5296,7 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64978#       发表于 2019-3-16 02:57
 
 
-
-
 所以グランドろくでなし的PU啥时候来啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8348,14 +5305,7 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64979#       发表于 2019-3-16 08:28
 
 
-
-
 喷了圣杯是蘑菇要加的.....
-
-
-
-
-
 
 
 -----
@@ -8364,14 +5314,7 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64980#       发表于 2019-3-16 10:40
 
 
-
-
 坚持了快1000天的连续登录要断了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8380,17 +5323,10 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64981#       发表于 2019-3-16 11:34
 
 
-
-
 奇文共赏系列：[https://bbs.nga.cn/read.php?tid=16666981](https://bbs.nga.cn/read.php?tid=16666981)
  <blockquote>所以用WCBA队其实根本不能无脑用，放技能必须慎之又慎，看准了再放，很考验眼力和手指的精确点击，不可以像孔梅队或三狂队一样一边看番一边刷，或者刷累了就眯眼睛瞎按，孔梅队放错技能也就是延迟几个回合过本，WCBA队却有相当的可能翻车！ </blockquote>
 <blockquote>我之前赝作的经验，大概刷个1池半到两池就会给错一到两次技能。dalao比我熟练，两池错一次，孔梅队错了能继续打，wcba基本只能撤退，这就差了接近10%吧 </blockquote>
 <blockquote>不可能吧，虽然我确实手有点残，但60池要刷300-400本，这点技能才错一次已经快是职业音游玩家的水准了吧。 </blockquote>
-
-
-
-
-
 
 
 -----
@@ -8399,14 +5335,7 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64982#       发表于 2019-3-16 11:56
 
 
-
-
 你们对LGA是真爱.jpg
-
-
-
-
-
 
 
 -----
@@ -8415,14 +5344,7 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64983#       发表于 2019-3-16 11:57
 
 
-
-
 套用一句LGA的话：请不要转发二手屎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8431,15 +5353,9 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64984#       发表于 2019-3-16 12:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42923655&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-16 11:34</a>
 奇文共赏系列：https://bbs.nga.cn/read.php?tid=16666981</blockquote>
 这个是国服还是日服玩家啊，fgo有那么难吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8448,15 +5364,9 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64985#       发表于 2019-3-16 12:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42923848&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-16 11:57</a>
 套用一句LGA的话：请不要转发二手屎</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">明明是大家一起乐呵，怎么能说是二手呢
-
-
-
-
-
 
 
 -----
@@ -8465,15 +5375,9 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64986#       发表于 2019-3-16 12:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42924033&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-16 12:21</a>
 明明是大家一起乐呵，怎么能说是二手呢</blockquote>
 问题是我觉得他说的没错啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8482,15 +5386,9 @@ MD这次的燕青我全程脑补的一方通行口气讲话<img src="https://sta
 ##### 64987#       发表于 2019-3-16 12:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42924078&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-16 12:27</a>
 问题是我觉得他说的没错啊我经常因为忘记开技能给WCBA交令咒啊 ...</blockquote>
 wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我经常开荒活动本估算失误np不够就开令咒连发
-
-
-
-
-
 
 
 -----
@@ -8499,23 +5397,15 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 ##### 64988#       发表于 2019-3-16 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42924078&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-16 12:27</a>
 问题是我觉得他说的没错啊我经常因为忘记开技能给WCBA交令咒啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不换人就是最大的优势了啊，孔梅队不也一大把还没上技能就把人换下去的
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 64989#       发表于 2019-3-16 14:42
-
-
 
 
 做为萌新我来说一句 我至今没有按错过一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -8525,16 +5415,10 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 最后就算第3波不够放宝具我也没翻过更没用过令咒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 64990#       发表于 2019-3-16 14:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42925131&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-16 14:42</a>
@@ -8545,27 +5429,16 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 因为你是萌新啊，当然不会翻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64991#       发表于 2019-3-16 14:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42925203&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-16 14:52</a>
 
 因为你是萌新啊，当然不会翻</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你后备放的1级的吗 哪这么容易翻
-
-
-
-
-
 
 
 -----
@@ -8576,12 +5449,10 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 64993#       发表于 2019-3-16 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42925246&amp;ptid=1085254" target="_blank">notmyproblem 发表于 2019-3-16 14:58</a>
@@ -8594,16 +5465,10 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 你不用就永远有效  用了就失效   简单来说就是没时间限制
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 64994#       发表于 2019-3-16 15:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42925220&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-16 14:55</a>
@@ -8615,16 +5480,10 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 是10级的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 64995#       发表于 2019-3-16 15:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42925302&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-16 15:05</a>
@@ -8636,16 +5495,10 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是萌新我所有人都是满级的啊
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 64996#       发表于 2019-3-16 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42925246&amp;ptid=1085254" target="_blank">notmyproblem 发表于 2019-3-16 14:58</a>
@@ -8656,11 +5509,6 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 然而你理解错了，说的是俩码直到你去用掉为止都是有效的
 
 
-
-
-
-
-
 -----
 
 ####  notmyproblem  
@@ -8669,21 +5517,13 @@ wcba的令咒消耗量确实比其他要高不少<img src="https://static.saraba
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dante888  
 ##### 64998#       发表于 2019-3-16 17:19
 
 
-
-
 lga的竞速大戏真好看，双标666
-
-
-
-
-
 
 
 -----
@@ -8692,16 +5532,10 @@ lga的竞速大戏真好看，双标666
 ##### 64999#       发表于 2019-3-16 17:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42926395&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-16 17:19</a>
 
 lga的竞速大戏真好看，双标666</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">连接都没有 你这是坏文明
-
-
-
-
-
 
 
 -----
@@ -8710,16 +5544,10 @@ lga的竞速大戏真好看，双标666</blockquote>
 ##### 65000#       发表于 2019-3-16 17:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42926528&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-16 17:33</a>
 
 连接都没有 你这是坏文明</blockquote>
 [https://bbs.nga.cn/read.php?tid=16669898](https://bbs.nga.cn/read.php?tid=16669898) <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8728,16 +5556,10 @@ lga的竞速大戏真好看，双标666</blockquote>
 ##### 65001#       发表于 2019-3-16 17:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42926607&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-16 17:42</a>
 
 https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看了第1行我就点了红叉 竞速什么时候变的不能sl的
-
-
-
-
-
 
 
 -----
@@ -8746,16 +5568,10 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65002#       发表于 2019-3-16 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42926617&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-16 17:44</a>
 
 看了第1行我就点了红叉 竞速什么时候变的不能sl的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然是只有我竞速组打的视频可以SL，其他人打的视频SL就是有作弊嫌疑啦
-
-
-
-
-
 
 
 -----
@@ -8764,16 +5580,10 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65003#       发表于 2019-3-16 17:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42926635&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-16 17:45</a>
 
 当然是只有我竞速组打的视频可以SL，其他人打的视频SL就是有作弊嫌疑啦 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很真实很精英
-
-
-
-
-
 
 
 -----
@@ -8782,14 +5592,7 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65004#       发表于 2019-3-16 17:52
 
 
-
-
 能不能抽到恩奇都啊今天。
-
-
-
-
-
 
 
 -----
@@ -8798,15 +5601,9 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65005#       发表于 2019-3-16 18:10
 
 
-
 <blockquote>可能是抢了红卡7T的“首杀”所以让人耿耿于怀吧</blockquote>
 
 这就是全貌吗！精彩！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8815,16 +5612,10 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65006#       发表于 2019-3-16 18:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42926869&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-16 18:10</a>
 
 这就是全貌吗！精彩！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当然啊，人想了好久准备一年后的BGO玩的没想到一个不知名up把首杀抢了还不急的跳脚
-
-
-
-
-
 
 
 -----
@@ -8833,21 +5624,13 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65007#       发表于 2019-3-16 18:29
 
 
-
-
 屎黄色论坛可别倒闭啊，不然垃圾外流可就不好了😗
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65008#       发表于 2019-3-16 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42927020&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-16 18:25</a>
@@ -8859,16 +5642,10 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 不过这贴里几个人真蠢拿不出任何证据就在那打滚 我没证据但是我就是觉得他不可能
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 65009#       发表于 2019-3-16 19:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42927206&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-16 18:41</a>
@@ -8882,16 +5659,10 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 “没错，就是嘴炮。”，人不要脸天下无敌的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65010#       发表于 2019-3-16 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42927428&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-16 19:02</a>
@@ -8902,26 +5673,15 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">完蛋了 难道我id暴露了
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 65011#       发表于 2019-3-16 19:10
 
 
-
 <blockquote>alucardcz 发表于 2019-3-16 19:09
 完蛋了 难道我id暴露了</blockquote>
 我告诉他的
-
-
-
-
-
 
 
 -----
@@ -8930,16 +5690,10 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65012#       发表于 2019-3-16 19:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42927499&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-16 19:09</a>
 
 完蛋了 难道我id暴露了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有人告诉我的
-
-
-
-
-
 
 
 -----
@@ -8948,14 +5702,7 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65013#       发表于 2019-3-16 19:11
 
 
-
-
 拿个最速记录叶良树又不会给他发奖，这群人比前段时间吵梅林贬值的还要闲的没事做<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8964,16 +5711,10 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65014#       发表于 2019-3-16 19:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42927507&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-16 19:10</a>
 
 我告诉他的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8982,14 +5723,8 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65015#       发表于 2019-3-16 19:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42927534&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-16 19:12</a></blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">现在，大家都知道你ID了
-
-
-
-
-
 
 
 -----
@@ -8998,16 +5733,10 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65016#       发表于 2019-3-16 19:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42927673&amp;ptid=1085254" target="_blank">我爱喵喵 发表于 2019-3-16 19:25</a>
 
 现在，大家都知道你ID了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不慌 我平时也不去飞狗区
-
-
-
-
-
 
 
 -----
@@ -9016,14 +5745,7 @@ https://bbs.nga.cn/read.php?tid=16669898</blockquote>
 ##### 65017#       发表于 2019-3-16 19:33
 
 
-
-
 CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9032,14 +5754,7 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65018#       发表于 2019-3-16 19:34
 
 
-
-
 我佛了,你们是真的闲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9048,14 +5763,7 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65019#       发表于 2019-3-16 19:45
 
 
-
-
 有一说一，那个黑狗7T首杀是真的可怕，不说隔壁算的2600亿分之一对不对，也是肉眼可见的近乎不可能，红卡首杀被冠位欧皇抢了确实很气吧
-
-
-
-
-
 
 
 -----
@@ -9064,16 +5772,9 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65020#       发表于 2019-3-16 20:10
 
 
-
-
 帖子锁了，没戏看了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -9082,21 +5783,13 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65021#       发表于 2019-3-16 20:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 戏结束了？
-
-
-
-
-
 
 
 -----
 
 ####  newfaceryo  
 ##### 65022#       发表于 2019-3-16 20:39
-
-
 
 
 无非是把竞速这层窗户纸撕下来了。
@@ -9115,16 +5808,10 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 单纯人肉趟随机数难道是什么特别高尚的事情吗？
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65023#       发表于 2019-3-16 20:40
-
 
 
 <blockquote>alucardcz 发表于 2019-3-16 19:28
@@ -9132,16 +5819,10 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 少去，那地方第一恶心算fgo区，第二就算俩碧蓝了，会被降智打击😓
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65024#       发表于 2019-3-16 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42928388&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2019-3-16 20:39</a>
@@ -9154,16 +5835,10 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">竞速不就是为了装13吗   在我看来sl100000次的竞速和sl1次的竞速没什么区别 都是闲的慌
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65025#       发表于 2019-3-16 20:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42928396&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-16 20:40</a>
@@ -9172,16 +5847,10 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">飞狗区我都是看你们说了有大戏才去的 
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 65026#       发表于 2019-3-16 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42928396&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-16 20:40</a>
@@ -9190,26 +5859,15 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 我最喜欢去废狗区了，各种猴戏，根本停不下来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65027#       发表于 2019-3-16 21:09
 
 
-
 <blockquote>khxooo 发表于 2019-3-16 21:00
 我最喜欢去废狗区了，各种猴戏，根本停不下来</blockquote>
 我已经不敢去了，里面还混的有踩一捧一的qks，双重智障太过辣眼🙄
-
-
-
-
-
 
 
 -----
@@ -9218,13 +5876,7 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65028#       发表于 2019-3-17 19:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太冷清了。没有新闻没有大戏 药丸
-
-
-
-
-
 
 
 -----
@@ -9233,14 +5885,7 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65029#       发表于 2019-3-17 20:03
 
 
-
-
 我擦，看这么多贴我还以为又有啥卫星落地了
-
-
-
-
-
 
 
 -----
@@ -9249,15 +5894,9 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65030#       发表于 2019-3-17 20:19
 
 
-
 <blockquote>alucardcz 发表于 2019-3-17 19:45
 太冷清了。没有新闻没有大戏 药丸</blockquote>
 只狼要来力（狂喜）
-
-
-
-
-
 
 
 -----
@@ -9266,16 +5905,10 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65031#       发表于 2019-3-17 20:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42938997&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-17 20:19</a>
 
 只狼要来力（狂喜）</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而并没有兴趣
-
-
-
-
-
 
 
 -----
@@ -9284,14 +5917,7 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65032#       发表于 2019-3-17 20:36
 
 
-
-
 机站t还行吧
-
-
-
-
-
 
 
 -----
@@ -9300,16 +5926,10 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65033#       发表于 2019-3-17 20:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42939208&amp;ptid=1085254" target="_blank">sandro 发表于 2019-3-17 20:36</a>
 
 机站t还行吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而为了等特典，还要20号才能开玩……
-
-
-
-
-
 
 
 -----
@@ -9318,14 +5938,7 @@ CNM，围观酸菜鱼忘记清体力了，都溢出了<img src="https://static.s
 ##### 65034#       发表于 2019-3-17 20:51
 
 
-
-
 MD我对这机战T毫无兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9334,13 +5947,7 @@ MD我对这机战T毫无兴趣<img src="https://static.saraba1st.com/image/smile
 ##### 65035#       发表于 2019-3-17 21:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">x刚发售的时候也有人这么说的  然后透心凉 这次不会在买了
-
-
-
-
-
 
 
 -----
@@ -9349,16 +5956,10 @@ MD我对这机战T毫无兴趣<img src="https://static.saraba1st.com/image/smile
 ##### 65036#       发表于 2019-3-17 21:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42939355&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-17 20:51</a>
 
 MD我对这机战T毫无兴趣</blockquote>
 东方老师出场，得卖个面子<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9367,16 +5968,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65037#       发表于 2019-3-17 21:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42939828&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-17 21:38</a>
 
 东方老师出场，得卖个面子</blockquote>
 我还真对G高达一点兴趣没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9385,16 +5980,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65038#       发表于 2019-3-17 21:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42939858&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-17 21:42</a>
 
 我还真对G高达一点兴趣没有</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没想到萌新和大佬也有共通点
-
-
-
-
-
 
 
 -----
@@ -9403,15 +5992,9 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65039#       发表于 2019-3-17 21:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我刚拿到X准备开玩（
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9420,14 +6003,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65040#       发表于 2019-3-18 08:25
 
 
-
-
 闪轨4还没打完，鬼泣买了还没碰，只狼马上要解锁了，机战T在路上，为什么3月那么多游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9436,21 +6012,13 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65041#       发表于 2019-3-18 10:05
 
 
-
-
 咸鱼还在肝王国之心，下一部准备开始女术士打桩机3
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 65042#       发表于 2019-3-18 14:54
-
 
 
 <blockquote>阿提拉 发表于 2019-3-17 21:46
@@ -9461,24 +6029,13 @@ MD我对这机战T毫无兴趣</blockquote>
 大佬也进鸡场玩了么，不加个好友么，我说怎么群里有人用麻将脸外加转s1的贴
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65043#       发表于 2019-3-18 16:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这辣鸡活动 不吃苹果还真不行了。。
-
-
-
-
-
 
 
 -----
@@ -9487,16 +6044,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65044#       发表于 2019-3-18 16:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42947489&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-18 14:54</a>
 
 大佬也进鸡场玩了么，不加个好友么，我说怎么群里有人用麻将脸外加转s1的贴 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我倒是一看ID就认出你了
-
-
-
-
-
 
 
 -----
@@ -9505,15 +6056,9 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65045#       发表于 2019-3-18 16:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42948434&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-18 16:22</a>
 我倒是一看ID就认出你了</blockquote>
 原来你说的X不是机战X吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9522,16 +6067,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65046#       发表于 2019-3-18 16:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42948475&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-18 16:25</a>
 
 原来你说的X不是机战X吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是机战X啊，晚上就打了3关，看着其他人洗牌同盟拳和师匠流下了羡慕的泪水
-
-
-
-
-
 
 
 -----
@@ -9540,16 +6079,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65047#       发表于 2019-3-18 16:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42948647&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-18 16:40</a>
 
 是机战X啊，晚上就打了3关，看着其他人洗牌同盟拳和师匠流下了羡慕的泪水 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议直接掰了 x真是玩的气死
-
-
-
-
-
 
 
 -----
@@ -9558,15 +6091,9 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65048#       发表于 2019-3-18 16:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42948647&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-18 16:40</a>
 是机战X啊，晚上就打了3关，看着其他人洗牌同盟拳和师匠流下了羡慕的泪水 ...</blockquote>
 直接t吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9575,15 +6102,9 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65049#       发表于 2019-3-18 17:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42948647&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-18 16:40</a>
 是机战X啊，晚上就打了3关，看着其他人洗牌同盟拳和师匠流下了羡慕的泪水 ...</blockquote>
 如果不是神龙斗士机战X我早就飞了……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9592,14 +6113,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65050#       发表于 2019-3-18 17:26
 
 
-
-
 闪2和机战X都玩的很开心的我一定不是正常人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9608,13 +6122,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65051#       发表于 2019-3-18 17:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">吃了5个苹果搬空了商店。。心在滴血
-
-
-
-
-
 
 
 -----
@@ -9623,16 +6131,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65052#       发表于 2019-3-18 18:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42949545&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-18 17:48</a>
 
 吃了5个苹果搬空了商店。。心在滴血</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么要搬空啊，除了芙芙啥的我就搬了心脏，黑灰和井盖
-
-
-
-
-
 
 
 -----
@@ -9641,16 +6143,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65053#       发表于 2019-3-18 18:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42949857&amp;ptid=1085254" target="_blank">Leona_Akari 发表于 2019-3-18 18:14</a>
 
 为什么要搬空啊，除了芙芙啥的我就搬了心脏，黑灰和井盖</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强迫症的世界你不懂的
-
-
-
-
-
 
 
 -----
@@ -9659,15 +6155,8 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65054#       发表于 2019-3-18 18:19
 
 
-
-
 手机拿去返厂备机给我拿了台617的烂货，放宝具先白10秒，宝具中再卡顿，换人再卡，干啥都慢半拍，要持续1周……
 <img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">还好这不是开箱子或者疯狂刷啥就是长草，不然我要死了
-
-
-
-
-
 
 
 -----
@@ -9676,14 +6165,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65055#       发表于 2019-3-18 20:07
 
 
-
-
 我这次连狗都不搬了，四星懒得喂，五星没得喂，礼物盒里还有大概6人份的狗
-
-
-
-
-
 
 
 -----
@@ -9692,14 +6174,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65056#       发表于 2019-3-18 20:28
 
 
-
-
 我大概需要8个苹果搬完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9708,14 +6183,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65057#       发表于 2019-3-18 20:51
 
 
-
-
 搬杀小,弟弟活动咸就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9724,14 +6192,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65058#       发表于 2019-3-18 21:07
 
 
-
-
 我在等楚霸王pickup
-
-
-
-
-
 
 
 -----
@@ -9740,14 +6201,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65059#       发表于 2019-3-18 22:35
 
 
-
-
 2.4还不来😢
-
-
-
-
-
 
 
 -----
@@ -9756,16 +6210,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65060#       发表于 2019-3-18 23:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42952680&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-18 22:35</a>
 
 2.4还不来😢</blockquote>
 肯定要周末AJ啊
-
-
-
-
-
 
 
 -----
@@ -9774,14 +6222,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65061#       发表于 2019-3-18 23:50
 
 
-
-
 鬼泣刚通dh开打sos，闪轨4还在第一部，机战t还在观望，这周五又有只狼<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9790,16 +6231,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65062#       发表于 2019-3-18 23:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42953515&amp;ptid=1085254" target="_blank">sosgame67 发表于 2019-3-18 23:50</a>
 
 鬼泣刚通dh开打sos，闪轨4还在第一部，机战t还在观望，这周五又有只狼难民如我还在搬棋子（）你们是 ...</blockquote>
 鬼泣没兴趣，闪轨4去年就打通了，机战T同观望，只狼还没发售，那可不是闲的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9808,16 +6243,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65063#       发表于 2019-3-18 23:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42953529&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-18 23:52</a>
 
 鬼泣没兴趣，闪轨4去年就打通了，机战T同观望，只狼还没发售，那可不是闲的吗 ...</blockquote>
 突然觉得云通关闪轨可以解放大量时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9826,14 +6255,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65064#       发表于 2019-3-19 00:11
 
 
-
-
 6符1个兰陵王<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9842,14 +6264,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65065#       发表于 2019-3-19 00:23
 
 
-
-
 礼物箱狗粮坚持到不足一天，最后还是卖掉了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9858,16 +6273,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65066#       发表于 2019-3-19 00:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42953727&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-19 00:11</a>
 
 6符1个兰陵王</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 不羡慕
-
-
-
-
-
 
 
 -----
@@ -9876,14 +6285,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65067#       发表于 2019-3-19 12:01
 
 
-
-
 数据更新 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9892,15 +6294,9 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65068#       发表于 2019-3-19 13:30
 
 
-
 <blockquote>圈量子 发表于 2019-3-19 12:01
 数据更新</blockquote>
 无事发生
-
-
-
-
-
 
 
 -----
@@ -9909,14 +6305,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65069#       发表于 2019-3-19 14:28
 
 
-
-
 好像5连肝还是6连肝？终于可以休息了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9925,16 +6314,10 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65070#       发表于 2019-3-19 15:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42960018&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-19 14:28</a>
 
 好像5连肝还是6连肝？终于可以休息了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">讲道理除了bb复课那本太恶心之外其他和长草也没什么大区别
-
-
-
-
-
 
 
 -----
@@ -9943,20 +6326,13 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65071#       发表于 2019-3-19 16:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">叶鸽鸽怎么会让你们长草，是时候来一波狩猎或者强化本了
-
-
-
-
-
 
 
 -----
 
 ####  阿提拉  
 ##### 65072#       发表于 2019-3-19 17:08
-
 
 
  本帖最后由 阿提拉 于 2019-3-19 17:09 编辑 
@@ -9966,25 +6342,13 @@ MD我对这机战T毫无兴趣</blockquote>
 不爬塔了，来100层迷宫你说好不好啊（
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 65073#       发表于 2019-3-19 17:08
 
 
-
-
 又来吹日本从者了，这次出谦信吧
-
-
-
-
-
 
 
 -----
@@ -9993,13 +6357,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65074#       发表于 2019-3-19 17:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好的 顺便2。4摸了
-
-
-
-
-
 
 
 -----
@@ -10008,14 +6366,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65075#       发表于 2019-3-19 17:09
 
 
-
-
 老乌龟要上了
-
-
-
-
-
 
 
 -----
@@ -10024,14 +6375,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65076#       发表于 2019-3-19 17:11
 
 
-
-
 长草一周
-
-
-
-
-
 
 
 -----
@@ -10040,14 +6384,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65077#       发表于 2019-3-19 17:13
 
 
-
-
 居然有事发生😳
-
-
-
-
-
 
 
 -----
@@ -10056,15 +6393,9 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65078#       发表于 2019-3-19 17:13
 
 
-
 <blockquote>alucardcz 发表于 2019-3-19 17:09
 好的 顺便2。4摸了</blockquote>
 24号生放送大概是给德川活动详细吧
-
-
-
-
-
 
 
 -----
@@ -10073,14 +6404,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65079#       发表于 2019-3-19 17:14
 
 
-
-
 事我最爱的无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10089,14 +6413,7 @@ MD我对这机战T毫无兴趣</blockquote>
 ##### 65080#       发表于 2019-3-19 17:16
 
 
-
-
 nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10105,14 +6422,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65081#       发表于 2019-3-19 17:16
 
 
-
-
 狗屎，居然不是五点准时发布<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10121,13 +6431,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65082#       发表于 2019-3-19 17:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">明天可是有维护的，看看会不会空降一个活动
-
-
-
-
-
 
 
 -----
@@ -10136,13 +6440,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65083#       发表于 2019-3-19 17:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道你坛就我一个人想着这个月就能摸到2。4了吗    现在全完了！
-
-
-
-
-
 
 
 -----
@@ -10151,16 +6449,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65084#       发表于 2019-3-19 17:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42961928&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-19 17:14</a>
 
 事我最爱的无事发生</blockquote>
 德川....村正...脑袋....
-
-
-
-
-
 
 
 -----
@@ -10169,14 +6461,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65085#       发表于 2019-3-19 17:23
 
 
-
-
 看起来就不是很轻松的活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我讨厌这种要求最新主线通关的
-
-
-
-
-
 
 
 -----
@@ -10185,16 +6470,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65086#       发表于 2019-3-19 17:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42962017&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-19 17:23</a>
 
 看起来就不是很轻松的活动我讨厌这种要求最新主线通关的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我先奶一口这活动就是新版本的百重塔
-
-
-
-
-
 
 
 -----
@@ -10203,13 +6482,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65087#       发表于 2019-3-19 17:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">德川？是不是要出村正啊
-
-
-
-
-
 
 
 -----
@@ -10218,15 +6491,9 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65088#       发表于 2019-3-19 17:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42962063&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-19 17:28</a>
 我先奶一口这活动就是新版本的百重塔</blockquote>
 那就是作死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10235,14 +6502,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65089#       发表于 2019-3-19 17:34
 
 
-
-
 上杉要落地的味道<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10251,23 +6511,16 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65090#       发表于 2019-3-19 17:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">我要长草啊...我要休息啊
 
 
 说好的你游养老游戏呢
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65091#       发表于 2019-3-19 17:39
-
 
 
 <blockquote>森兰丸 发表于 2019-3-19 17:35
@@ -10278,32 +6531,19 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 你去玩一圈gbf再玩fgo立马就养老了
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 65092#       发表于 2019-3-19 17:41
 
 
-
-
 后宫题材，怕不是咕哒后宫起火了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，估计女性英灵有攻击力加成。
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65093#       发表于 2019-3-19 17:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42962149&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-19 17:35</a>
@@ -10315,25 +6555,13 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除非那种很麻烦的任务制或者爬塔类的活动 不然和长草有什么区别啊
 
 
-
-
-
-
-
 -----
 
 ####  虎克别音  
 ##### 65094#       发表于 2019-3-19 17:45
 
 
-
-
 2.4要4月才开了
-
-
-
-
-
 
 
 -----
@@ -10342,16 +6570,9 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65095#       发表于 2019-3-19 17:47
 
 
-
-
 上杉JJ感觉会留给咕哒咕哒吧
 
 那么这次是哪个幸运儿会下半身不保呢
-
-
-
-
-
 
 
 -----
@@ -10360,21 +6581,13 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65096#       发表于 2019-3-19 17:52
 
 
-
-
 瞎奶一把这活动的加成从者都是已实装的历史上有名的夫人、后妃、小妾什么的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  虎克别音  
 ##### 65097#       发表于 2019-3-19 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42962272&amp;ptid=1085254" target="_blank">ネロ 发表于 2019-3-19 17:47</a>
@@ -10385,16 +6598,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 经验值那边还没有公布上杉的面板和技能，在fgo实装的话就成剧透了，以日本人防剧透的习性，上杉可以排除了。
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 65098#       发表于 2019-3-19 17:56
-
 
 
  本帖最后由 森兰丸 于 2019-3-19 17:58 编辑 
@@ -10404,16 +6611,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">所以无论别人怎么给我安利这辈子都不会去做骑空士
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 65099#       发表于 2019-3-19 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42962209&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-19 17:41</a>
@@ -10422,16 +6623,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">当然有区别.....虽然都是3T周回活动要看剧情啊
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65100#       发表于 2019-3-19 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42962366&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-19 17:57</a>
@@ -10440,26 +6635,15 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新早就不看活动剧情了
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 65101#       发表于 2019-3-19 18:56
 
 
-
 <blockquote>森兰丸 发表于 2019-3-19 17:56
 所以无论别人怎么给我安利这辈子都不会去做骑空士</blockquote>
 看怎么玩的。个人救经验无课悠闲了5年也是有自己的乐趣的
-
-
-
-
-
 
 
 -----
@@ -10470,12 +6654,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  黑上シグマ  
 ##### 65103#       发表于 2019-3-19 23:44
-
 
 
 <blockquote>引用第65103楼notmyproblem于2019-03-19 22:04发表的  :
@@ -10487,25 +6669,13 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  猎黑行者  
 ##### 65104#       发表于 2019-3-20 00:08
 
 
-
-
 我要求不高，清姬的灵衣落地就好了
-
-
-
-
-
 
 
 -----
@@ -10514,21 +6684,13 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65105#       发表于 2019-3-20 12:51
 
 
-
-
 这是要更新个啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 65106#       发表于 2019-3-20 13:24
-
 
 
 <blockquote>引用第65106楼fault于2019-03-20 12:51发表的  :
@@ -10540,33 +6702,20 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  序曲  
 ##### 65107#       发表于 2019-3-20 13:31
 
 
-
-
 5.フレンドポイント召喚の自動変還設定および霊基変還(売却)により、QPが所持上限を超える場合でも変還(売却)できるように改修
 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">终于有了，不怕QP爆了以后种火卖不出去
-
-
-
-
-
 
 
 -----
 
 ####  fault  
 ##### 65108#       发表于 2019-3-20 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42971001&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-20 13:24</a>
@@ -10577,16 +6726,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 萌新唯二的信息来源大概就是游戏内公告和s1了
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65109#       发表于 2019-3-20 13:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42971001&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-20 13:24</a>
@@ -10597,16 +6740,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 进不了游戏上哪看公告（正色）<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65110#       发表于 2019-3-20 13:36
-
 
 
  本帖最后由 黑上シグマ 于 2019-3-20 13:37 编辑 
@@ -10616,14 +6753,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -10632,15 +6762,9 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65111#       发表于 2019-3-20 15:15
 
 
-
 <blockquote>森兰丸 发表于 2019-3-19 17:56
 所以无论别人怎么给我安利这辈子都不会去做骑空士</blockquote>
 这玩意儿本身其实也并没有吹的那么好玩……
-
-
-
-
-
 
 
 -----
@@ -10649,13 +6773,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65112#       发表于 2019-3-20 16:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有3分钟 会不会来个什么dl纪念
-
-
-
-
-
 
 
 -----
@@ -10664,14 +6782,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65113#       发表于 2019-3-20 16:59
 
 
-
-
 期待一下大新闻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10680,15 +6791,9 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65114#       发表于 2019-3-20 17:01
 
 
-
  本帖最后由 阿提拉 于 2019-3-20 17:14 编辑 
 
 开幕间本，土方狼王宝具本，剩下的都是石头本
-
-
-
-
-
 
 
 -----
@@ -10697,14 +6802,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65115#       发表于 2019-3-20 17:03
 
 
-
-
 有事发生了  幕间，，
-
-
-
-
-
 
 
 -----
@@ -10713,16 +6811,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65116#       发表于 2019-3-20 17:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42973481&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-20 17:01</a>
 
 开幕间本，土方柳生宝具本，剩下的都是石头本</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是狗和土方宝具本
-
-
-
-
-
 
 
 -----
@@ -10731,14 +6823,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65117#       发表于 2019-3-20 17:07
 
 
-
-
 没劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10747,16 +6832,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65118#       发表于 2019-3-20 17:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42973535&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-20 17:07</a>
 
 没劲</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">的确辣鸡  对萌新太不好友 等于只送了2石
-
-
-
-
-
 
 
 -----
@@ -10765,15 +6844,9 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65119#       发表于 2019-3-20 17:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42973545&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-20 17:08</a>
 的确辣鸡  对萌新太不好友 等于只送了2石</blockquote>
 只有1个的我真是羡慕啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10782,16 +6855,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65120#       发表于 2019-3-20 17:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42973557&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-20 17:09</a>
 
 只有1个的我真是羡慕啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狼王难道是欧针？
-
-
-
-
-
 
 
 -----
@@ -10800,16 +6867,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65121#       发表于 2019-3-20 17:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42973520&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-20 17:06</a>
 
 是狗和土方宝具本</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">手滑，手滑
-
-
-
-
-
 
 
 -----
@@ -10818,14 +6879,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65122#       发表于 2019-3-20 17:15
 
 
-
-
 土方打帝王花，狗子打老福，前段时间都用过，然后你现在告诉我开宝具本了？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10834,16 +6888,9 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65123#       发表于 2019-3-20 17:17
 
 
-
-
 贝爷真惨<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -10852,14 +6899,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65124#       发表于 2019-3-20 17:26
 
 
-
-
 哟西全都有，可以打一会儿
-
-
-
-
-
 
 
 -----
@@ -10868,15 +6908,9 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65125#       发表于 2019-3-20 17:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太好了还是我熟悉的这个长草废狗
 
 还以为是今天无缝更新活动
-
-
-
-
-
 
 
 -----
@@ -10885,16 +6919,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65126#       发表于 2019-3-20 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42973766&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-20 17:26</a>
 
 哟西全都有，可以打一会儿</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
-
-
-
-
-
 
 
 -----
@@ -10903,14 +6931,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65127#       发表于 2019-3-20 17:29
 
 
-
-
 虞姬那幕间怎么来啊，总是说马修设定不对，问题是一进去任务连调都不准我调，出去将马修每个形态都设置过一次，还是不行，<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10919,19 +6940,11 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65128#       发表于 2019-3-20 17:32
 
 
-
-
 玛修站对面的....感觉骂死他的生涯失去了色彩
-
-
-
-
 
 
 微信图片_20190320173142.jpg
 (54.17 KB, 下载次数: 7)
-
-
 
 
 下载附件
@@ -10940,24 +6953,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 2019-3-20 17:32 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201903/20/173255v93mjmfcyf8oyi8s.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10966,14 +6962,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65129#       发表于 2019-3-20 17:37
 
 
-
-
 老虞竟然没强化
-
-
-
-
-
 
 
 -----
@@ -10982,14 +6971,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65130#       发表于 2019-3-20 17:39
 
 
-
-
 老虞的技能和宝具不强化就没法用
-
-
-
-
-
 
 
 -----
@@ -10998,14 +6980,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65131#       发表于 2019-3-20 17:40
 
 
-
-
 都忘记有首发这东西了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11014,24 +6989,16 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65132#       发表于 2019-3-20 18:25
 
 
-
-
 谢谢前辈送的九个铃铛<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 这两口子平时这么过日子感觉不太妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 65133#       发表于 2019-3-20 18:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42973798&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-20 17:29</a>
@@ -11041,16 +7008,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65134#       发表于 2019-3-20 18:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42973829&amp;ptid=1085254" target="_blank">日紫月银 发表于 2019-3-20 17:32</a>
@@ -11059,16 +7020,10 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 可以，老芥这次肥肠有牌面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65135#       发表于 2019-3-20 19:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42974394&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-20 18:34</a>
@@ -11077,14 +7032,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 妈的，三女神是故意为难红A<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
 别说3个没有记忆
-
-
-
-
-
-
 
 
 -----
@@ -11093,14 +7041,7 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65136#       发表于 2019-3-21 00:49
 
 
-
-
 暴躁老姐从一开始的知性美人到现在的残念系bba 人设绝赞大崩坏中<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11109,16 +7050,9 @@ nga可是阿塔pk闪闪了<img src="https://static.saraba1st.com/image/smiley/fa
 ##### 65137#       发表于 2019-3-21 01:31
 
 
-
-
 舰B死亡冲刺完开始打幕间，惊觉伯爵宝具白屏没有了，并且安卓进本时间减少了15秒左右
 
 YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11127,14 +7061,7 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 65138#       发表于 2019-3-21 03:35
 
 
-
-
 老芥至少开个幕间up池子来抽啊，真要我怼剧情池么
-
-
-
-
-
 
 
 -----
@@ -11143,23 +7070,15 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 65139#       发表于 2019-3-21 06:12
 
 
-
-
 被幕间骗去 脑抽氪了一单 抽项羽 彩狂 心想稳了 翻过来 黑狗...
 
 也不错至少是new
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 65140#       发表于 2019-3-21 07:48
-
 
 
 <blockquote>引用第65138楼dante888于2019-03-21 01:31发表的  :
@@ -11171,16 +7090,10 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 65141#       发表于 2019-3-21 10:09
-
 
 
  本帖最后由 newfaceryo 于 2019-3-21 10:10 编辑 
@@ -11191,16 +7104,10 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 为我们探讨真祖种族灭绝的成因提供了宝贵的第一手研究材料<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 65142#       发表于 2019-3-21 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42980935&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2019-3-21 10:09</a>
@@ -11212,17 +7119,10 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迫害芥奶奶的活动愈演愈烈，芥奶奶的谐星本质在暴露后已经被钉在谐星迫害的十字架上下不来了
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 65143#       发表于 2019-3-21 10:57
-
-
 
 
 あれは誰だ～　誰だ～　誰だ～
@@ -11271,25 +7171,13 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  deviljz  
 ##### 65144#       发表于 2019-3-21 12:41
 
 
-
-
 点进这帖子听说今天项羽pu，抽了个10连还真出了<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11298,21 +7186,14 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 ##### 65145#       发表于 2019-3-21 13:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新也想豹
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 65146#       发表于 2019-3-21 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42983805&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-21 13:11</a>
@@ -11322,16 +7203,10 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 项羽是常驻，而且一宝没用，萌新你要这样安慰自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65147#       发表于 2019-3-21 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42983817&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-21 13:12</a>
@@ -11340,25 +7215,13 @@ YLS是开眼了？<img src="https://static.saraba1st.com/image/smiley/face2017/0
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有用啊 开图鉴
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65148#       发表于 2019-3-22 17:27
 
 
-
-
 gbf打的真无聊，还不到24号
-
-
-
-
-
 
 
 -----
@@ -11367,14 +7230,7 @@ gbf打的真无聊，还不到24号
 ##### 65149#       发表于 2019-3-22 18:43
 
 
-
-
 成田终于摸鱼摸完了，下个月10号出FSF第5卷
-
-
-
-
-
 
 
 -----
@@ -11383,14 +7239,7 @@ gbf打的真无聊，还不到24号
 ##### 65150#       发表于 2019-3-22 20:05
 
 
-
-
 你游到现在连个扫荡都不肯出,导致我压根不想清体力<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11399,21 +7248,13 @@ gbf打的真无聊，还不到24号
 ##### 65151#       发表于 2019-3-22 20:23
 
 
-
-
 扫荡出了打狗粮和qp就方便多了
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 65152#       发表于 2019-3-23 06:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=42981672&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2019-3-21 10:57</a>
@@ -11425,25 +7266,13 @@ gbf打的真无聊，还不到24号
 我竟然唱出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65153#       发表于 2019-3-23 11:05
 
 
-
-
 FEXL的小大王DLC买了两个月还没放过宝具，今天放个一看这不月光蝶吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11452,14 +7281,7 @@ FEXL的小大王DLC买了两个月还没放过宝具，今天放个一看这不�
 ##### 65154#       发表于 2019-3-23 21:43
 
 
-
-
 明天就生放送了，不知道会不会也是当天就开活动。
-
-
-
-
-
 
 
 -----
@@ -11468,16 +7290,10 @@ FEXL的小大王DLC买了两个月还没放过宝具，今天放个一看这不�
 ##### 65155#       发表于 2019-3-23 22:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43013939&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-23 21:43</a>
 
 明天就生放送了，不知道会不会也是当天就开活动。</blockquote>
 醒醒，明天那展子不生放（
-
-
-
-
-
 
 
 -----
@@ -11486,16 +7302,10 @@ FEXL的小大王DLC买了两个月还没放过宝具，今天放个一看这不�
 ##### 65156#       发表于 2019-3-23 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43014612&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-23 22:43</a>
 
 醒醒，明天那展子不生放（</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放不放无所谓 关键是有没有10石啊
-
-
-
-
-
 
 
 -----
@@ -11504,15 +7314,9 @@ FEXL的小大王DLC买了两个月还没放过宝具，今天放个一看这不�
 ##### 65157#       发表于 2019-3-24 00:09
 
 
-
  本帖最后由 sosgame67 于 2019-3-24 00:32 编辑 
 
 专心只狼，体力都没动力清了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">（总算过了屑一郎，我的手柄lb都快按坏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">）
-
-
-
-
-
 
 
 -----
@@ -11521,16 +7325,10 @@ FEXL的小大王DLC买了两个月还没放过宝具，今天放个一看这不�
 ##### 65158#       发表于 2019-3-24 01:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43014612&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-23 22:43</a>
 
 醒醒，明天那展子不生放（</blockquote>
 24号的生放送有直播的，nico有，只是fgo官网自己公告没有写链接，可以在nico搜出来的。
-
-
-
-
-
 
 
 -----
@@ -11539,23 +7337,16 @@ FEXL的小大王DLC买了两个月还没放过宝具，今天放个一看这不�
 ##### 65159#       发表于 2019-3-24 09:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">周回ge出了周回特化角色然后说我们不喜欢这样
 
 
 dw的人确实是支离破碎的语言·思考
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65160#       发表于 2019-3-24 09:56
-
 
 
 <blockquote>引用第65159楼虎克别音于2019-03-24 01:16发表的  :
@@ -11568,16 +7359,10 @@ dw的人确实是支离破碎的语言·思考
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65161#       发表于 2019-3-24 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43017430&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-24 09:42</a>
@@ -11588,25 +7373,13 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 你看，马老板也说自己不喜欢钱<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65162#       发表于 2019-3-24 11:23
 
 
-
-
 新情报来了
-
-
-
-
-
 
 
 -----
@@ -11615,14 +7388,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65163#       发表于 2019-3-24 11:26
 
 
-
-
 杀生院终于再次在活动中出（gao）现（shi）了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11631,14 +7397,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65164#       发表于 2019-3-24 11:26
 
 
-
-
 怪不得CCC没PU杀生院，看来是放这次了……
-
-
-
-
-
 
 
 -----
@@ -11647,14 +7406,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65165#       发表于 2019-3-24 11:33
 
 
-
-
 周三
-
-
-
-
-
 
 
 -----
@@ -11663,14 +7415,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65166#       发表于 2019-3-24 11:38
 
 
-
-
 叶二真吝啬，这次没有免费从者，也只出一个新的从者，还是限定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11679,14 +7424,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65167#       发表于 2019-3-24 11:44
 
 
-
-
 素材大放送
-
-
-
-
-
 
 
 -----
@@ -11695,14 +7433,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65168#       发表于 2019-3-24 11:48
 
 
-
-
 事件簿联动！！！！！
-
-
-
-
-
 
 
 -----
@@ -11711,14 +7442,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65169#       发表于 2019-3-24 11:48
 
 
-
-
 事件簿联动……
-
-
-
-
-
 
 
 -----
@@ -11727,14 +7451,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65170#       发表于 2019-3-24 11:50
 
 
-
-
 事件簿联动...除了小灰还会有谁，柳丁吗
-
-
-
-
-
 
 
 -----
@@ -11743,14 +7460,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65171#       发表于 2019-3-24 11:52
 
 
-
-
 说不定是凯落地了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11759,14 +7469,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65172#       发表于 2019-3-24 11:54
 
 
-
-
 印度英灵放大奥还行
-
-
-
-
-
 
 
 -----
@@ -11775,15 +7478,9 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65173#       发表于 2019-3-24 11:56
 
 
-
  本帖最后由 虎克别音 于 2019-3-24 12:12 编辑 
 
 联动惯例黄金周，大奥活动预计到4月10，加上1600w，2.4看来是鸽了。
-
-
-
-
-
 
 
 -----
@@ -11792,14 +7489,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65174#       发表于 2019-3-24 12:00
 
 
-
-
 事件簿，点名枪该有了吧！
-
-
-
-
-
 
 
 -----
@@ -11808,14 +7498,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65175#       发表于 2019-3-24 12:11
 
 
-
-
 我还指望叶哥哥救我离开gbf这垃圾一般索然无味的六道活动，我想多了
-
-
-
-
-
 
 
 -----
@@ -11824,14 +7507,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65176#       发表于 2019-3-24 12:29
 
 
-
-
 攻击加成从者里没卫宫，一定是暗示，奶不死的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11840,21 +7516,13 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65177#       发表于 2019-3-24 12:43
 
 
-
-
 索然无味
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 65178#       发表于 2019-3-24 13:13
-
 
 
  本帖最后由 khxooo 于 2019-3-24 13:18 编辑 
@@ -11865,25 +7533,13 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 在看了一下，德川家光在野史貌似是基佬，然后刚好阿格讨厌女性，那么这次作为家光的扮演者再适合不过了（煤气已开，点火吧。）
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 65179#       发表于 2019-3-24 13:37
 
 
-
-
 活动CM居然是A-1做的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11892,14 +7548,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65180#       发表于 2019-3-24 14:04
 
 
-
-
 前几天全世界都在奶村正，看来是落空了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11908,14 +7557,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65181#       发表于 2019-3-24 14:12
 
 
-
-
 好像又是没啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11924,14 +7566,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65182#       发表于 2019-3-24 14:33
 
 
-
-
 有点恶心啊....一个爱欲神（有JJ的）抢了女性的身体来现界....一股逼良为娼的感觉....这什么恶趣味
-
-
-
-
-
 
 
 -----
@@ -11940,13 +7575,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65183#       发表于 2019-3-24 14:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无趣啊
-
-
-
-
-
 
 
 -----
@@ -11955,16 +7584,10 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65184#       发表于 2019-3-24 14:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43019716&amp;ptid=1085254" target="_blank">arrowshade 发表于 2019-3-24 14:04</a>
 前几天全世界都在奶村正，看来是落空了</blockquote>
 最后开门的就是村正啊
 一破改了发型的村正<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11973,16 +7596,9 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65185#       发表于 2019-3-24 15:08
 
 
-
-
 原来主线过关奖励这么寒酸的吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 黑灰不算掉落只给过10个<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11991,14 +7607,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65186#       发表于 2019-3-24 15:39
 
 
-
-
 上一个白给的四星已经是去年十二月的事了
-
-
-
-
-
 
 
 -----
@@ -12007,14 +7616,7 @@ dw的人确实是支离破碎的语言·思考</blockquote>
 ##### 65187#       发表于 2019-3-24 15:47
 
 
-
-
 CM一波分析看下来感觉这次活动有可能是CCC水平的大新闻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12023,14 +7625,7 @@ CM一波分析看下来感觉这次活动有可能是CCC水平的大新闻啊<im
 ##### 65188#       发表于 2019-3-24 15:50
 
 
-
-
 这个kama到底是啥神，怎么查不到？
-
-
-
-
-
 
 
 -----
@@ -12039,16 +7634,10 @@ CM一波分析看下来感觉这次活动有可能是CCC水平的大新闻啊<im
 ##### 65189#       发表于 2019-3-24 15:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43020576&amp;ptid=1085254" target="_blank">阿萨托斯 发表于 2019-3-24 15:50</a>
 
 这个kama到底是啥神，怎么查不到？</blockquote>
 搜伽摩
-
-
-
-
-
 
 
 -----
@@ -12057,14 +7646,7 @@ CM一波分析看下来感觉这次活动有可能是CCC水平的大新闻啊<im
 ##### 65190#       发表于 2019-3-24 16:12
 
 
-
-
 这个樱是谁画的？我怎么看着像しらび
-
-
-
-
-
 
 
 -----
@@ -12073,14 +7655,7 @@ CM一波分析看下来感觉这次活动有可能是CCC水平的大新闻啊<im
 ##### 65191#       发表于 2019-3-24 16:15
 
 
-
-
 这次估计有雪山樱的新灵衣？
-
-
-
-
-
 
 
 -----
@@ -12089,14 +7664,7 @@ CM一波分析看下来感觉这次活动有可能是CCC水平的大新闻啊<im
 ##### 65192#       发表于 2019-3-24 16:40
 
 
-
-
 一群人现在开始奶BEAST3 L了……
-
-
-
-
-
 
 
 -----
@@ -12105,16 +7673,10 @@ CM一波分析看下来感觉这次活动有可能是CCC水平的大新闻啊<im
 ##### 65193#       发表于 2019-3-24 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43019981&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-24 14:33</a>
 
 有点恶心啊....一个爱欲神（有JJ的）抢了女性的身体来现界....一股逼良为娼的感觉....这什么恶趣味 ...</blockquote>
 OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12123,21 +7685,13 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 ##### 65194#       发表于 2019-3-24 17:42
 
 
-
-
 霸王花刚暴死完就再来个樱，求求你别这样好不好奥
-
-
-
-
-
 
 
 -----
 
 ####  枫紫  
 ##### 65195#       发表于 2019-3-24 17:44
-
 
 
  本帖最后由 枫紫 于 2019-3-25 12:55 编辑 
@@ -12149,16 +7703,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 仔细看了下应该是万圣节礼装的人画的
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65196#       发表于 2019-3-24 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43020590&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2019-3-24 15:52</a>
@@ -12173,16 +7721,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 　『カーマスートラ』という性愛に関する偏執的なまでの分類書物が有名。これは４世紀ごろの著作。古来、インド人は法（ダルマ）、利（アルタ）、愛（カーマ）を人生の３大目的としてきた。『カーマスートラ』はこの内の「愛」に関する教えを説いたものである。
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65197#       发表于 2019-3-24 19:06
-
 
 
  本帖最后由 シャル 于 2019-3-24 19:11 编辑 
@@ -12193,7 +7735,6 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 
 
 伽摩和马拉是相对的，杀生院是马拉，那么相对的就是伽摩，三兽半身没错咯
-
 
 
 魔王　マーラ　《Mara》　　出身地：インド
@@ -12207,16 +7748,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 　日本では陽物の隠語として「マラ」という言葉があるが、これはこの悪魔を起源とするのだという。
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65198#       发表于 2019-3-24 19:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43019981&amp;ptid=1085254" target="_blank">森兰丸 发表于 2019-3-24 14:33</a>
@@ -12225,16 +7760,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 带把萝莉....你们不是最喜欢的吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 65199#       发表于 2019-3-24 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43022370&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-24 19:09</a>
@@ -12246,16 +7775,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 反正我是有点接受不了这种设定
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65200#       发表于 2019-3-24 19:19
-
 
 
  本帖最后由 シャル 于 2019-3-24 19:23 编辑 
@@ -12271,13 +7794,7 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 人家本职工作就是射射射，等本子
 
 
-
 马拉还有变美少女呢，伽摩变个萝莉有啥奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12286,14 +7803,7 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 ##### 65201#       发表于 2019-3-24 19:20
 
 
-
-
 话说当初帕尔瓦蒂的时候不是说黑樱会是咖喱的么，怎么变成了咖马
-
-
-
-
-
 
 
 -----
@@ -12302,16 +7812,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 ##### 65202#       发表于 2019-3-24 19:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43022370&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-24 19:09</a>
 
 带把萝莉....你们不是最喜欢的吗</blockquote>
 只有你喜欢，谢谢
-
-
-
-
-
 
 
 -----
@@ -12320,23 +7824,16 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 ##### 65203#       发表于 2019-3-24 19:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43022479&amp;ptid=1085254" target="_blank">枫紫 发表于 2019-3-24 19:20</a>
 
 话说当初帕尔瓦蒂的时候不是说黑樱会是咖喱的么，怎么变成了咖马</blockquote>
 所以是萝莉樱啊
 
 
-
-
-
-
-
 -----
 
 ####  森兰丸  
 ##### 65204#       发表于 2019-3-24 19:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43022469&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-24 19:19</a>
@@ -12348,16 +7845,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">突然想到如果伊修塔尔是用士郎的身体....雪山樱用2爷的身体来现界的话再加上伽摩那会是一副什么画面
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65205#       发表于 2019-3-24 19:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43022325&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-24 19:03</a>
@@ -12369,16 +7860,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 这不是梅洛尼那本胎教宝典吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65206#       发表于 2019-3-24 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43022568&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-24 19:28</a>
@@ -12387,16 +7872,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 好像就是那个啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65207#       发表于 2019-3-24 19:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43022623&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-24 19:33</a>
@@ -12405,16 +7884,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 刚刚特地去确认了一下，还真是这本<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65208#       发表于 2019-3-24 20:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43022684&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-24 19:40</a>
@@ -12423,25 +7896,13 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 真是的，到底在研究啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Kirihara  
 ##### 65209#       发表于 2019-3-24 21:23
 
 
-
-
 怎么突然发了这么多材料。。。
-
-
-
-
-
 
 
 -----
@@ -12450,16 +7911,10 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 ##### 65210#       发表于 2019-3-24 21:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43023762&amp;ptid=1085254" target="_blank">Kirihara 发表于 2019-3-24 21:23</a>
 
 怎么突然发了这么多材料。。。</blockquote>
 主线通关开始给素材了，所以这些是补给我们已经通关了的人
-
-
-
-
-
 
 
 -----
@@ -12468,21 +7923,13 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 ##### 65211#       发表于 2019-3-24 23:05
 
 
-
-
 这次涉及了除新宿以外各1.5都有参与的角色，日本章节出现了芦屋道满，而且会在2.4再出现，印度可能跟mc有关然后杀生院就在活动出了，搞不好这是衔接1.5和2.4的大坑，不然怎么让过主线2.3才能打
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65212#       发表于 2019-3-25 09:06
-
 
 
 <blockquote>Nozzy 发表于 2019-3-24 23:05
@@ -12493,27 +7940,15 @@ OKAMA<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" refer
 仿徨海剧情必须23以后
 
 
-
-
-
-
-
 -----
 
 ####  猎黑行者  
 ##### 65213#       发表于 2019-3-25 09:17
 
 
-
-
 新角色画师是redrop吧
 
 PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三号机L没跑了
-
-
-
-
-
 
 
 -----
@@ -12522,14 +7957,7 @@ PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三�
 ##### 65214#       发表于 2019-3-25 09:51
 
 
-
-
 这个杀生院应该不是ccc那个杀生院吧，大概是这边世界的？
-
-
-
-
-
 
 
 -----
@@ -12538,15 +7966,9 @@ PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三�
 ##### 65215#       发表于 2019-3-25 12:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43027986&amp;ptid=1085254" target="_blank">枫紫 发表于 2019-3-25 09:51</a>
 这个杀生院应该不是ccc那个杀生院吧，大概是这边世界的？</blockquote>
 应该是我方的杀生院吧，不是说只有一个英灵抵抗住那个力量吗，估计就是她了。
-
-
-
-
-
 
 
 -----
@@ -12555,23 +7977,16 @@ PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三�
 ##### 65216#       发表于 2019-3-25 12:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43030475&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-25 12:33</a>
 
 应该是我方的杀生院吧，不是说只有一个英灵抵抗住那个力量吗，估计就是她了。 ...</blockquote>
 好歹要接2.4的，应该不至于让杀生院这种人一开始就处于被召唤状态吧
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65217#       发表于 2019-3-25 15:17
-
 
 
 <blockquote>猎黑行者 发表于 2019-3-25 09:17
@@ -12581,16 +7996,10 @@ PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三�
 超下流李庄啊，看看画风就知道了
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65218#       发表于 2019-3-25 15:18
-
 
 
 <blockquote>枫紫 发表于 2019-3-25 12:40
@@ -12598,16 +8007,10 @@ PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三�
 会去单独显现的没有这种问题啊
 
 
-
-
-
-
-
 -----
 
 ####  卡蓮  
 ##### 65219#       发表于 2019-3-25 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43030585&amp;ptid=1085254" target="_blank">枫紫 发表于 2019-3-25 12:40</a>
@@ -12618,24 +8021,13 @@ PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三�
 况且这帮有单独显现的家伙都是假装自己是被召唤实际上都是想来就来想走就走的主
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 65220#       发表于 2019-3-25 15:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">忘了单独显现，的确是来去自如
-
-
-
-
-
 
 
 -----
@@ -12644,13 +8036,7 @@ PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三�
 ##### 65221#       发表于 2019-3-25 21:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">看了下PV，似乎这次村正也没法落地的？
-
-
-
-
-
 
 
 -----
@@ -12659,14 +8045,7 @@ PV里有出现III/颓废，设定集里的L也是三个字，这位应该是三�
 ##### 65222#       发表于 2019-3-25 23:17
 
 
-
-
 pv里快速闪过的文字里就把第三兽的信息透露了吧，还有伽梨
-
-
-
-
-
 
 
 -----
@@ -12675,17 +8054,10 @@ pv里快速闪过的文字里就把第三兽的信息透露了吧，还有伽梨
 ##### 65223#       发表于 2019-3-26 01:49
 
 
-
-
 有专门cm却不送四星的活动这是第一次吧
 cm有毒，循环着就出不去了……
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -12694,14 +8066,7 @@ cm有毒，循环着就出不去了……
 ##### 65224#       发表于 2019-3-26 08:32
 
 
-
-
 这第四异闻带真是有牌面<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">是菌哥哥亲自动笔吗
-
-
-
-
-
 
 
 -----
@@ -12710,16 +8075,10 @@ cm有毒，循环着就出不去了……
 ##### 65225#       发表于 2019-3-26 09:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43041080&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-26 08:32</a>
 
 这第四异闻带真是有牌面是菌哥哥亲自动笔吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">啥 有2。4的新情报了?
-
-
-
-
-
 
 
 -----
@@ -12728,15 +8087,9 @@ cm有毒，循环着就出不去了……
 ##### 65226#       发表于 2019-3-26 10:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43041816&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-26 09:42</a>
 啥 有2。4的新情报了?</blockquote>
 现在搞的不是（据说）都是给2.4挖坑呢么<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12745,16 +8098,10 @@ cm有毒，循环着就出不去了……
 ##### 65227#       发表于 2019-3-26 10:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43042356&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-26 10:20</a>
 
 现在搞的不是（据说）都是给2.4挖坑呢么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你别骗我看剧情 萌新好久没看过活动的剧情了
-
-
-
-
-
 
 
 -----
@@ -12763,23 +8110,16 @@ cm有毒，循环着就出不去了……
 ##### 65228#       发表于 2019-3-26 10:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43041080&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-26 08:32</a>
 
 这第四异闻带真是有牌面是菌哥哥亲自动笔吗</blockquote>
 很有可能是水濑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 65229#       发表于 2019-3-26 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43042397&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-26 10:23</a>
@@ -12790,16 +8130,10 @@ PV就快把BeastⅢ/L写在脸上了啊
 而且你看下出场的阵容，杀生院，1001，舞娘，爱神迦梨
 
 
-
-
-
-
-
 -----
 
 ####  虎克别音  
 ##### 65230#       发表于 2019-3-26 10:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43042356&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-26 10:20</a>
@@ -12808,16 +8142,10 @@ PV就快把BeastⅢ/L写在脸上了啊
 aj上叶良树原话就是和主线关联的活动。
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65231#       发表于 2019-3-26 10:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43042578&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2019-3-26 10:36</a>
@@ -12825,16 +8153,10 @@ aj上叶良树原话就是和主线关联的活动。
 我居然还有点期待<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 65232#       发表于 2019-3-26 10:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43042687&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-26 10:44</a>
@@ -12846,32 +8168,19 @@ aj上叶良树原话就是和主线关联的活动。
 到时候就能看隔壁PTSD患者表演了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 65233#       发表于 2019-3-26 17:40
 
 
-
-
 这还卖关子
-
-
-
-
-
 
 
 -----
 
 ####  Nozzy  
 ##### 65234#       发表于 2019-3-26 17:40
-
 
 
 <blockquote>真红眼教授 发表于 2019-3-26 10:45
@@ -12882,25 +8191,13 @@ aj上叶良树原话就是和主线关联的活动。
 那可不敢活动期间去隔壁咯😓
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65235#       发表于 2019-3-26 17:51
 
 
-
-
 宝具名称和演出会根据再临阶段变化……怎么感觉要搞点事……
-
-
-
-
-
 
 
 -----
@@ -12909,14 +8206,7 @@ aj上叶良树原话就是和主线关联的活动。
 ##### 65236#       发表于 2019-3-26 17:58
 
 
-
-
 官方jojo梗
-
-
-
-
-
 
 
 -----
@@ -12925,14 +8215,7 @@ aj上叶良树原话就是和主线关联的活动。
 ##### 65237#       发表于 2019-3-26 18:09
 
 
-
-
 PV最后那个变大的形态都有了，肯定有花头的
-
-
-
-
-
 
 
 -----
@@ -12941,14 +8224,7 @@ PV最后那个变大的形态都有了，肯定有花头的
 ##### 65238#       发表于 2019-3-26 18:14
 
 
-
-
 不知道这个在愚人节期间举办的活动有没有搞笑情节<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12957,13 +8233,7 @@ PV最后那个变大的形态都有了，肯定有花头的
 ##### 65239#       发表于 2019-3-26 19:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">戈壁舰b正好13图毕业了。明天可以安心迎接活动了。。。这次我就看看剧情。。你们别坑我
-
-
-
-
-
 
 
 -----
@@ -12972,14 +8242,7 @@ PV最后那个变大的形态都有了，肯定有花头的
 ##### 65240#       发表于 2019-3-26 19:48
 
 
-
-
 就一个池子到4.10，PickUp2大概率有而且是杀生院。说不定是分段活动，像FZ那样后半段送四星？（瞎奶）
-
-
-
-
-
 
 
 -----
@@ -12988,16 +8251,10 @@ PV最后那个变大的形态都有了，肯定有花头的
 ##### 65241#       发表于 2019-3-26 20:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43050007&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2019-3-26 19:48</a>
 
 就一个池子到4.10，PickUp2大概率有而且是杀生院。说不定是分段活动，像FZ那样后半段送四星？（瞎奶） ...</blockquote>
 岛崎帮我们问了，除非叶二撒谎，不然这次活动真的只有一个新的从者以及没有送的。吝啬死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13006,16 +8263,10 @@ PV最后那个变大的形态都有了，肯定有花头的
 ##### 65242#       发表于 2019-3-26 21:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43042673&amp;ptid=1085254" target="_blank">虎克别音 发表于 2019-3-26 10:43</a>
 
 aj上叶良树原话就是和主线关联的活动。</blockquote>
 隔壁讨论的结果是这次可能是冠位狂会有消息，用极致 的愤怒对抗色欲…………
-
-
-
-
-
 
 
 -----
@@ -13024,14 +8275,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65243#       发表于 2019-3-26 22:04
 
 
-
-
 难道不是极致的懒对抗色欲吗 坐上来自己动？行吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13040,14 +8284,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65244#       发表于 2019-3-26 22:54
 
 
-
-
 顶楼的日服群是不是被爆破了？搜了一下搜不到
-
-
-
-
-
 
 
 -----
@@ -13056,22 +8293,15 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65245#       发表于 2019-3-27 07:22
 
 
-
 <blockquote>丘萤之光 发表于 2019-3-26 22:54
 顶楼的日服群是不是被爆破了？搜了一下搜不到</blockquote>
 搜不到可能是隐藏搜索了不一定是爆破
-
-
-
-
-
 
 
 -----
 
 ####  quanlix  
 ##### 65246#       发表于 2019-3-27 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43052057&amp;ptid=1085254" target="_blank">丘萤之光 发表于 2019-3-26 22:54</a>
@@ -13088,17 +8318,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 2019-3-27 10:20 上传
 
 
-
-
-
-
-
 在的鸭
-
-
-
-
-
 
 
 -----
@@ -13107,14 +8327,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65247#       发表于 2019-3-27 11:22
 
 
-
-
 有没有人有叶哥哥微信的，问一下魔神总司还复不复刻了，不复刻我就拿攒的石头去抽迦梨了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13123,15 +8336,9 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65248#       发表于 2019-3-27 11:30
 
 
-
 <blockquote>上坂莲华 发表于 2019-3-27 11:22
 有没有人有叶哥哥微信的，问一下魔神总司还复不复刻了，不复刻我就拿攒的石头去抽迦梨了 ...</blockquote>
 哪里来的咖喱，是伽摩
-
-
-
-
-
 
 
 -----
@@ -13140,16 +8347,10 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65249#       发表于 2019-3-27 11:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43057026&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-27 11:30</a>
 
 哪里来的咖喱，是伽摩</blockquote>
 在月球历史中说不定是同一只
-
-
-
-
-
 
 
 -----
@@ -13158,14 +8359,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65250#       发表于 2019-3-27 16:26
 
 
-
-
 今天的新卡会有大新闻吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13174,14 +8368,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65251#       发表于 2019-3-27 17:07
 
 
-
-
 一秒十连，这次不抽了
-
-
-
-
-
 
 
 -----
@@ -13192,21 +8379,13 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  rooarr  
 ##### 65253#       发表于 2019-3-27 17:09
 
 
-
-
 一单歪了个拉二，4宝全是歪出来的<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13215,14 +8394,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65254#       发表于 2019-3-27 17:15
 
 
-
-
 这满破感觉还是不像黑樱，反而有点杀生院的味道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13231,16 +8403,9 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65255#       发表于 2019-3-27 17:15
 
 
-
-
 340 石头出了。。5星礼装就一个 雪山樱歪了3个满宝
 
 开头金杀 翻面是大姐。。。
-
-
-
-
-
 
 
 -----
@@ -13249,14 +8414,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65256#       发表于 2019-3-27 17:16
 
 
-
-
 15石+2呼符没出
-
-
-
-
-
 
 
 -----
@@ -13265,14 +8423,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65257#       发表于 2019-3-27 17:17
 
 
-
-
 50连把3宝的帕尔瓦蒂5宝了
-
-
-
-
-
 
 
 -----
@@ -13281,21 +8432,13 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65258#       发表于 2019-3-27 17:30
 
 
-
-
 50连 0 4*以上从者 活动礼装 5* 1 4* 3 3* 6....
-
-
-
-
-
 
 
 -----
 
 ####  白夜羽  
 ##### 65259#       发表于 2019-3-27 17:32
-
 
 
  本帖最后由 白夜羽 于 2019-3-27 18:30 编辑 
@@ -13308,17 +8451,10 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 说起来也怪,拉二之前块三年从来没歪到过,最近两次竟然连续歪到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
-
 -----
 
 ####  eden_hazard  
 ##### 65260#       发表于 2019-3-27 17:36
-
-
 
 
 8护符32个十连合计984石出货唯一五星，还是第32个十连最后一发出的，算是第四次千石惨案，雪山樱从无到有到满宝。
@@ -13327,32 +8463,19 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65261#       发表于 2019-3-27 17:38
 
 
-
-
 20连伽摩到手
-
-
-
-
-
 
 
 -----
 
 ####  真红眼教授  
 ##### 65262#       发表于 2019-3-27 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43061018&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-27 16:26</a>
@@ -13364,32 +8487,19 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 杰克：警觉
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65263#       发表于 2019-3-27 17:40
 
 
-
-
 很奇怪现在new的都没有抽卡读盘时间了
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 65264#       发表于 2019-3-27 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062012&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2019-3-27 17:39</a>
@@ -13400,24 +8510,13 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 很惊喜，就是我抽不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 65265#       发表于 2019-3-27 17:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">届不到，届不到，霸王花和黑樱都暴死，让我静静
-
-
-
-
-
 
 
 -----
@@ -13426,14 +8525,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65266#       发表于 2019-3-27 17:55
 
 
-
-
 新人两发十连没出伽摩，10张呼符抽到二宝了🤔
-
-
-
-
-
 
 
 -----
@@ -13442,14 +8534,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65267#       发表于 2019-3-27 17:55
 
 
-
-
 这手脚附魔黑丝 绝对参考兰斯3了吧 是魔王姬尔<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13458,13 +8543,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65268#       发表于 2019-3-27 17:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最终灵基的宝具最后一看就明显是樱系列 那个味道【 雪山樱什么东西 能不能换个4星UP
-
-
-
-
-
 
 
 -----
@@ -13473,13 +8552,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65269#       发表于 2019-3-27 18:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CBA后准备攒到黑樱了
-
-
-
-
-
 
 
 -----
@@ -13488,14 +8561,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65270#       发表于 2019-3-27 18:14
 
 
-
-
 两个十连没货，只能等北斋的11羁绊了。
-
-
-
-
-
 
 
 -----
@@ -13504,14 +8570,7 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65271#       发表于 2019-3-27 18:16
 
 
-
-
 妈诶，这雪山樱秒变苍月脸堪比恐怖片
-
-
-
-
-
 
 
 -----
@@ -13520,23 +8579,15 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 ##### 65272#       发表于 2019-3-27 18:18
 
 
-
-
 紫发女路人真是风评被害
 
 尽是被这种东西附身
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65273#       发表于 2019-3-27 18:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062012&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2019-3-27 17:39</a>
@@ -13551,16 +8602,10 @@ aj上叶良树原话就是和主线关联的活动。</blockquote>
 AE绝对杀woman<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65274#       发表于 2019-3-27 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062547&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-27 18:23</a>
@@ -13572,16 +8617,10 @@ AE绝对杀woman</blockquote>
 我寻思AE全是女性，杰克打起来应该也差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65275#       发表于 2019-3-27 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062592&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-27 18:26</a>
@@ -13592,16 +8631,10 @@ AE绝对杀woman</blockquote>
 我总觉得这卡现在放出来就是为了让你抽来2.4揍道满用……
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65276#       发表于 2019-3-27 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062607&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-27 18:27</a>
@@ -13610,16 +8643,10 @@ AE绝对杀woman</blockquote>
 说不定道满满破就变女人呢<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65277#       发表于 2019-3-27 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062607&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-27 18:27</a>
@@ -13632,26 +8659,15 @@ AE绝对杀woman</blockquote>
 男性不是二姐伺候吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 65278#       发表于 2019-3-27 18:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43055929&amp;ptid=1085254" target="_blank">quanlix 发表于 2019-3-27 04:21</a>
 在的鸭</blockquote>
 好的加了
-
-
-
-
-
 
 
 -----
@@ -13660,14 +8676,7 @@ AE绝对杀woman</blockquote>
 ##### 65279#       发表于 2019-3-27 18:38
 
 
-
-
 50自充还是太强了，纠结要不要抽2宝
-
-
-
-
-
 
 
 -----
@@ -13676,14 +8685,7 @@ AE绝对杀woman</blockquote>
 ##### 65280#       发表于 2019-3-27 18:49
 
 
-
-
 750石头4宝歪1个项羽，交盘跑路<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13692,16 +8694,10 @@ AE绝对杀woman</blockquote>
 ##### 65281#       发表于 2019-3-27 18:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062840&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-27 18:49</a>
 
 750石头4宝歪1个项羽，交盘跑路</blockquote>
 夫妻全了没<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13710,16 +8706,10 @@ AE绝对杀woman</blockquote>
 ##### 65282#       发表于 2019-3-27 19:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062904&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-27 18:56</a>
 
 夫妻全了没</blockquote>
 虞姬早满了，项羽4宝了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13728,23 +8718,15 @@ AE绝对杀woman</blockquote>
 ##### 65283#       发表于 2019-3-27 19:02
 
 
-
-
 最后一个出不来，放弃了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 65284#       发表于 2019-3-27 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43062968&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-3-27 19:02</a>
@@ -13756,25 +8738,13 @@ AE绝对杀woman</blockquote>
 开局双黄的人怎么能退缩呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65285#       发表于 2019-3-27 19:19
 
 
-
-
 抽了40连才发现是单体，亏大了，最近明明没什么预算了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13785,21 +8755,13 @@ AE绝对杀woman</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  rooarr  
 ##### 65287#       发表于 2019-3-27 19:38
 
 
-
-
 这活动1ap1ap的用，好烦躁啊
-
-
-
-
-
 
 
 -----
@@ -13808,14 +8770,7 @@ AE绝对杀woman</blockquote>
 ##### 65288#       发表于 2019-3-27 19:43
 
 
-
-
 已经310了，挂在了杀阶，可惜只有1张满破五星礼装，只能挂给CBA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13824,14 +8779,7 @@ AE绝对杀woman</blockquote>
 ##### 65289#       发表于 2019-3-27 19:53
 
 
-
-
 不让带后排又是哪个天才策划的主意
-
-
-
-
-
 
 
 -----
@@ -13840,14 +8788,7 @@ AE绝对杀woman</blockquote>
 ##### 65290#       发表于 2019-3-27 20:03
 
 
-
-
 我才发现这次活动居然魔伊的3张卡都不算日本英灵不是倍卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13856,16 +8797,10 @@ AE绝对杀woman</blockquote>
 ##### 65291#       发表于 2019-3-27 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43063626&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-27 20:03</a>
 
 我才发现这次活动居然魔伊的3张卡都不算日本英灵不是倍卡</blockquote>
 卫宫家，泳装，魔法少女不算
-
-
-
-
-
 
 
 -----
@@ -13874,16 +8809,10 @@ AE绝对杀woman</blockquote>
 ##### 65292#       发表于 2019-3-27 20:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43063540&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-27 19:53</a>
 
 不让带后排又是哪个天才策划的主意</blockquote>
 绊2倍啊，只能上2个，折算扯平了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13892,16 +8821,10 @@ AE绝对杀woman</blockquote>
 ##### 65293#       发表于 2019-3-27 20:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43063806&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-27 20:20</a>
 
 绊2倍啊，只能上2个，折算扯平了</blockquote>
  我算了算不是亏了25%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13910,16 +8833,10 @@ AE绝对杀woman</blockquote>
 ##### 65294#       发表于 2019-3-27 20:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43063423&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-27 19:43</a>
 
 已经310了，挂在了杀阶，可惜只有1张满破五星礼装，只能挂给CBA</blockquote>
 1技能有升级的必要？<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13928,13 +8845,7 @@ AE绝对杀woman</blockquote>
 ##### 65295#       发表于 2019-3-27 20:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">输了 三十连一个雪山樱 我大概是永远抽不到五星杀了
-
-
-
-
-
 
 
 -----
@@ -13943,14 +8854,7 @@ AE绝对杀woman</blockquote>
 ##### 65296#       发表于 2019-3-27 20:27
 
 
-
-
 石头限制了我的抽卡欲..只能自我安慰新卡没杰克能打了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13959,13 +8863,7 @@ AE绝对杀woman</blockquote>
 ##### 65297#       发表于 2019-3-27 20:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这用樱身体的春日局真是猪突猛进……要不是苍月画的就好了 
-
-
-
-
-
 
 
 -----
@@ -13974,23 +8872,16 @@ AE绝对杀woman</blockquote>
 ##### 65298#       发表于 2019-3-27 20:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43063019&amp;ptid=1085254" target="_blank">dante888 发表于 2019-03-27 19:07:37</a>
 开局双黄的人怎么能退缩呢</blockquote>运气败光了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65299#       发表于 2019-3-27 21:10
-
 
 
  本帖最后由 黑上シグマ 于 2019-3-27 21:12 编辑 
@@ -14001,17 +8892,10 @@ AE绝对杀woman</blockquote>
 说起来，旁边那条槽是干嘛的？我发现好像用master技能会增加
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65300#       发表于 2019-3-27 21:31
-
-
 
 
 伽摩是根据对象喜好变化灵基的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -14023,33 +8907,19 @@ AE绝对杀woman</blockquote>
 3破真棒<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  氤墨  
 ##### 65301#       发表于 2019-3-27 21:31
 
 
-
-
 千石一宝的事情终于发生在我身上了
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65302#       发表于 2019-3-27 21:55
-
-
 
 
 jojo
@@ -14059,16 +8929,10 @@ jojo
 <img src="https://img.overpic.net/images/e/j/u/xejudsjq7uppf176d8zwq.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65303#       发表于 2019-3-27 22:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43064920&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-27 21:55</a>
@@ -14080,25 +8944,13 @@ jojo</blockquote>
 昨天就有人做图了
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65304#       发表于 2019-3-27 22:28
 
 
-
-
 这句台词梗不是2年前就玩过了吗
-
-
-
-
-
 
 
 -----
@@ -14107,14 +8959,7 @@ jojo</blockquote>
 ##### 65305#       发表于 2019-3-27 22:42
 
 
-
-
 这1ap 5ap的好烦。。。
-
-
-
-
-
 
 
 -----
@@ -14123,13 +8968,7 @@ jojo</blockquote>
 ##### 65306#       发表于 2019-3-27 22:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这新活动是要我死吧，是不是只有运营觉得有趣啊。
-
-
-
-
-
 
 
 -----
@@ -14138,14 +8977,7 @@ jojo</blockquote>
 ##### 65307#       发表于 2019-3-27 22:52
 
 
-
-
 这错路到头来还是要打的。。。喵的。。还真有点变相爬塔
-
-
-
-
-
 
 
 -----
@@ -14154,14 +8986,7 @@ jojo</blockquote>
 ##### 65308#       发表于 2019-3-27 22:57
 
 
-
-
 老实说，第二灵基刚好。第三就不合个人审美观了。不是脱得越多就越性格的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14170,16 +8995,10 @@ jojo</blockquote>
 ##### 65309#       发表于 2019-3-27 23:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43065619&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-27 22:52</a>
 
 这错路到头来还是要打的。。。喵的。。还真有点变相爬塔</blockquote>
 所以选哪条路无所谓的意思吗？
-
-
-
-
-
 
 
 -----
@@ -14188,23 +9007,15 @@ jojo</blockquote>
 ##### 65310#       发表于 2019-3-27 23:06
 
 
-
-
 走一步路连一次服务器还要载入一次，跑狗地狱……<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 杰克终于要从五星杀头把交椅上下来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65311#       发表于 2019-3-27 23:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43065808&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2019-3-27 23:06</a>
@@ -14215,25 +9026,13 @@ jojo</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而并没有 
 
 
-
-
-
-
-
 -----
 
 ####  龙娘777  
 ##### 65312#       发表于 2019-3-27 23:09
 
 
-
-
 杰克的眼神都变了<img src="https://static.saraba1st.com/image/smiley/animal2017/012.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14242,23 +9041,16 @@ jojo</blockquote>
 ##### 65313#       发表于 2019-3-27 23:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43065729&amp;ptid=1085254" target="_blank">D．Va 发表于 2019-3-27 23:01</a>
 
 所以选哪条路无所谓的意思吗？</blockquote>
 打完一条路就会给你一个灯笼
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65314#       发表于 2019-3-27 23:49
-
 
 
 [https://tieba.baidu.com/p/6082103617](https://tieba.baidu.com/p/6082103617)
@@ -14270,32 +9062,19 @@ jojo</blockquote>
 我吐了。你们呢？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 65315#       发表于 2019-3-28 00:03
 
 
-
-
 这剧情也太长了，根本不是一个活动的量啊，你他妈就是2.4序章吧！
-
-
-
-
-
 
 
 -----
 
 ####  丘萤之光  
 ##### 65316#       发表于 2019-3-28 00:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43066323&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-27 17:49</a>
@@ -14307,25 +9086,13 @@ https://tieba.baidu.com/p/6082103617
 太精污了，爬塔我就没爬完，怀疑这个活动又要咸鱼了
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 65317#       发表于 2019-3-28 00:05
 
 
-
-
 走到死路也会有剧情看，结果还是要全部踏破嘛
-
-
-
-
-
 
 
 -----
@@ -14334,23 +9101,15 @@ https://tieba.baidu.com/p/6082103617
 ##### 65318#       发表于 2019-3-28 00:16
 
 
-
-
 哎呦妈呀前三单0宝第四单直接3宝了，人生第一次抽出3黄<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 一宝小杰克今后可以休假了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 65319#       发表于 2019-3-28 01:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43066323&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-27 23:49</a>
@@ -14362,17 +9121,10 @@ https://tieba.baidu.com/p/6082103617
 我很HIGH啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65320#       发表于 2019-3-28 01:36
-
-
 
 
 绝。。了。。
@@ -14380,16 +9132,10 @@ https://tieba.baidu.com/p/6082103617
 40ap的也强行锁定衣服。。。不能。。哈哈哈。。。了。。辣鸡游戏我服了
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65321#       发表于 2019-3-28 07:40
-
 
 
 <blockquote>LOLITA 发表于 2019-3-28 00:16
@@ -14399,25 +9145,13 @@ https://tieba.baidu.com/p/6082103617
 杰克的眼神变了
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65322#       发表于 2019-3-28 08:23
 
 
-
-
 这就是个还要刷free的垃圾爬塔活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14426,14 +9160,7 @@ https://tieba.baidu.com/p/6082103617
 ##### 65323#       发表于 2019-3-28 08:34
 
 
-
-
 经历了gbf的六道活动我觉得fgo是个活动都是香的🙄
-
-
-
-
-
 
 
 -----
@@ -14442,16 +9169,10 @@ https://tieba.baidu.com/p/6082103617
 ##### 65324#       发表于 2019-3-28 09:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43066472&amp;ptid=1085254" target="_blank">丘萤之光 发表于 2019-3-28 00:03</a>
 
 这剧情也太长了，根本不是一个活动的量啊，你他妈就是2.4序章吧！</blockquote>
 是的，搞不好分量比CCC还重。。。
-
-
-
-
-
 
 
 -----
@@ -14460,14 +9181,7 @@ https://tieba.baidu.com/p/6082103617
 ##### 65325#       发表于 2019-3-28 09:43
 
 
-
-
 早上花了1小时清体力，然后才用了60ap，搞得我舰b都只能收个菜
-
-
-
-
-
 
 
 -----
@@ -14476,16 +9190,10 @@ https://tieba.baidu.com/p/6082103617
 ##### 65326#       发表于 2019-3-28 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43068941&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-28 09:43</a>
 
 早上花了1小时清体力，然后才用了60ap，搞得我舰b都只能收个菜</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不慌 后面还有3张更大的
-
-
-
-
-
 
 
 -----
@@ -14494,21 +9202,13 @@ https://tieba.baidu.com/p/6082103617
 ##### 65327#       发表于 2019-3-28 09:56
 
 
-
-
 羡慕你们早上还能清体力的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  rxrx  
 ##### 65328#       发表于 2019-3-28 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43067194&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-28 01:36</a>
@@ -14519,25 +9219,13 @@ https://tieba.baidu.com/p/6082103617
 衣服的技能也不错的，高效率全体加攻击、stun一敌人和立刻送50星
 
 
-
-
-
-
-
 -----
 
 ####  yangun22  
 ##### 65329#       发表于 2019-3-28 10:39
 
 
-
-
 左边那条槽开地图会加，然后用印章技能也会加，但是到底有啥作用却不知道<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14546,24 +9234,16 @@ https://tieba.baidu.com/p/6082103617
 ##### 65330#       发表于 2019-3-28 11:19
 
 
-
-
 http://tieba.baidu.com/p/6082136733
 本次活动历史相关知识
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 65331#       发表于 2019-3-28 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43069601&amp;ptid=1085254" target="_blank">yangun22 发表于 2019-3-27 20:39</a>
@@ -14576,16 +9256,10 @@ http://tieba.baidu.com/p/6082136733
 结果最后槽积累的越高beast越硬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  DARKGRAY  
 ##### 65332#       发表于 2019-3-28 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43070195&amp;ptid=1085254" target="_blank">白金口袋 发表于 2019-3-28 11:19</a>
@@ -14598,24 +9272,13 @@ http://tieba.baidu.com/p/6082136733
 现在就怀疑是不是这样<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 65333#       发表于 2019-3-28 11:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不要吧 我还用的蛮爽的 全体麻痹和50星真好用 
-
-
-
-
-
 
 
 -----
@@ -14624,23 +9287,15 @@ http://tieba.baidu.com/p/6082136733
 ##### 65334#       发表于 2019-3-28 11:46
 
 
-
-
 商店还有一栏没开呢，八成是对应点数给东西<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 65335#       发表于 2019-3-28 11:54
-
 
 
 <blockquote>白金口袋 发表于 2019-3-28 11:19
@@ -14652,25 +9307,13 @@ http://tieba.baidu.com/p/6082136733
 你游都是脚打的本有区别？一般这种就是满了才让你打boss
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65336#       发表于 2019-3-28 13:01
 
 
-
-
 这个垃圾活动还有第二层？设计这个活动的人还是不要再搞了，什么玩意<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14679,16 +9322,10 @@ http://tieba.baidu.com/p/6082136733
 ##### 65337#       发表于 2019-3-28 13:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43071515&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-28 13:01</a>
 
 这个垃圾活动还有第二层？设计这个活动的人还是不要再搞了，什么玩意 ...</blockquote>
 总共四层，图还更大
-
-
-
-
-
 
 
 -----
@@ -14697,16 +9334,10 @@ http://tieba.baidu.com/p/6082136733
 ##### 65338#       发表于 2019-3-28 13:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43071515&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-28 13:01</a>
 
 这个垃圾活动还有第二层？设计这个活动的人还是不要再搞了，什么玩意 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看我前面发的连接啊  一共4层 一个比一个大 
-
-
-
-
-
 
 
 -----
@@ -14715,14 +9346,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65339#       发表于 2019-3-28 13:34
 
 
-
-
 讲道理，给材料还是香的
-
-
-
-
-
 
 
 -----
@@ -14731,14 +9355,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65340#       发表于 2019-3-28 13:44
 
 
-
-
 刷了一上午第一层还没走完，我干嘛手贱要看剧情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14747,16 +9364,9 @@ http://tieba.baidu.com/p/6082136733
 ##### 65341#       发表于 2019-3-28 14:11
 
 
-
-
 除了点一下地图跑半天狗以外目前还算可以接受
 
 伽摩3技能打ae是普通克制的两倍还是狂阶的1.5？
-
-
-
-
-
 
 
 -----
@@ -14765,15 +9375,9 @@ http://tieba.baidu.com/p/6082136733
 ##### 65342#       发表于 2019-3-28 14:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43071590&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-28 13:09</a>
 看我前面发的连接啊  一共4层 一个比一个大</blockquote>
 真是无聊，浪费玩家时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14782,16 +9386,9 @@ http://tieba.baidu.com/p/6082136733
 ##### 65343#       发表于 2019-3-28 14:23
 
 
-
-
 讲真，作为一个迷宫系列游戏的爱好者，等到了国服管它三七二十一都是要走满全地图的，光这一点对我来说就比百重塔强了
 
 目前最大的抱怨似乎是跑芙芙？
-
-
-
-
-
 
 
 -----
@@ -14800,16 +9397,10 @@ http://tieba.baidu.com/p/6082136733
 ##### 65344#       发表于 2019-3-28 14:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43072439&amp;ptid=1085254" target="_blank">angelooo 发表于 2019-3-28 14:23</a>
 
 讲真，作为一个迷宫系列游戏的爱好者，等到了国服管它三七二十一都是要走满全地图的，光这一点对我来说就比 ...</blockquote>
 必须走满..第1张图有个死路给金副副的...
-
-
-
-
-
 
 
 -----
@@ -14818,14 +9409,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65345#       发表于 2019-3-28 14:26
 
 
-
-
 点个点一句台词一次黑屏跑狗，一个过道就给你来这么两三回，真他娘的难受
-
-
-
-
-
 
 
 -----
@@ -14834,16 +9418,10 @@ http://tieba.baidu.com/p/6082136733
 ##### 65346#       发表于 2019-3-28 14:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43072439&amp;ptid=1085254" target="_blank">angelooo 发表于 2019-3-28 14:23</a>
 
 讲真，作为一个迷宫系列游戏的爱好者，等到了国服管它三七二十一都是要走满全地图的，光这一点对我来说就比 ...</blockquote>
 不管有没有剧情，点一下跑一次狗
-
-
-
-
-
 
 
 -----
@@ -14852,22 +9430,15 @@ http://tieba.baidu.com/p/6082136733
 ##### 65347#       发表于 2019-3-28 14:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43072439&amp;ptid=1085254" target="_blank">angelooo 发表于 2019-3-28 14:23</a>
 讲真，作为一个迷宫系列游戏的爱好者，等到了国服管它三七二十一都是要走满全地图的，光这一点对我来说就比 ...</blockquote>
 这位是国服玩家？先来跑完这个垃圾活动的第一层地图，你很快就会明白了
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 65348#       发表于 2019-3-28 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43072510&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-28 14:29</a>
@@ -14878,16 +9449,10 @@ http://tieba.baidu.com/p/6082136733
 像人人都喷的百重塔，我打之前也觉得慌的一比，结果前100层每10层还有剧情看推起来就舒服得多，阳炎的100层推起来就痛苦无比，等到了国服迷宫体验很差劲我自然会跳出来喷
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65349#       发表于 2019-3-28 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43072674&amp;ptid=1085254" target="_blank">angelooo 发表于 2019-3-28 14:42</a>
@@ -14898,16 +9463,10 @@ http://tieba.baidu.com/p/6082136733
 它真要是迷宫，就应该走到死路想回头的时候再加几步，才能回到分歧点来提高走错路线的成本；或者定时发放定量移动道具，走错路了今天就不够再走正确路线这样的挫败感。现在这样整个地图随便看，随便你点点点的，完全不限制的，也好意思叫迷宫？
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 65350#       发表于 2019-3-28 15:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43072472&amp;ptid=1085254" target="_blank">quanlix 发表于 2019-3-28 14:26</a>
@@ -14916,25 +9475,13 @@ http://tieba.baidu.com/p/6082136733
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实走一步给个场景说明蛮有TRPG风味的 就是太短
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 65351#       发表于 2019-3-28 15:50
 
 
-
-
 这破迷宫主要还是跑狗和黑屏太影响体验，玩法没什么特别好说的。
-
-
-
-
-
 
 
 -----
@@ -14943,14 +9490,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65352#       发表于 2019-3-28 15:52
 
 
-
-
 主要还是程序的锅，策划的构想和程序员的能力不挂钩<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14959,16 +9499,9 @@ http://tieba.baidu.com/p/6082136733
 ##### 65353#       发表于 2019-3-28 16:05
 
 
-
-
 要是不要点一次就黑屏一次刷新地图，倒是还有那么点迷宫味……
 
 每点一次就要loading一次不能更精污
-
-
-
-
-
 
 
 -----
@@ -14977,16 +9510,9 @@ http://tieba.baidu.com/p/6082136733
 ##### 65354#       发表于 2019-3-28 16:22
 
 
-
-
 探索到开打中间只点一次给提示我觉得就可以了，觉得推太快可以加AP消耗嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 不知道FGO活动设计是按什么流程来的，“我想了个活动机制，来看看能塞什么剧情”还是“XX的剧本终于摸完了，我们来想活动怎么做吧”<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14995,16 +9521,9 @@ http://tieba.baidu.com/p/6082136733
 ##### 65355#       发表于 2019-3-28 16:28
 
 
-
-
 不知道在11区要不要黑屏那么多次
 
 没有黑屏的话还能勉强算是迷宫探索
-
-
-
-
-
 
 
 -----
@@ -15013,14 +9532,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65356#       发表于 2019-3-28 16:37
 
 
-
-
 黑屏是肯定要黑的，就是跑狗时间的长短区别
-
-
-
-
-
 
 
 -----
@@ -15029,14 +9541,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65357#       发表于 2019-3-28 16:43
 
 
-
-
 听说那个条条不能乱涨涨满可能会有不好的事情发生🤔，只狼kana?
-
-
-
-
-
 
 
 -----
@@ -15045,14 +9550,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65358#       发表于 2019-3-28 16:56
 
 
-
-
 管他呢，礼装技能有空就用，就是要看看这计量表涨满了能咋地
-
-
-
-
-
 
 
 -----
@@ -15061,14 +9559,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65359#       发表于 2019-3-28 17:24
 
 
-
-
 算是迷宮嗎?無論你選了那個分支，之後都是一場沒體力，之後一場5體力(或連戰鬥都沒有)，再之後又給回一個燈籠，整個第一層就是這樣，留下一個給你去第2層
-
-
-
-
-
 
 
 -----
@@ -15077,14 +9568,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65360#       发表于 2019-3-28 17:30
 
 
-
-
 这迷宫特么就是变种百层塔吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15093,21 +9577,13 @@ http://tieba.baidu.com/p/6082136733
 ##### 65361#       发表于 2019-3-28 18:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">二层又捡到个印章 三个技能都比之前多了一个效果
-
-
-
-
-
 
 
 -----
 
 ####  花枝鱿鱼面  
 ##### 65362#       发表于 2019-3-28 18:34
-
-
 
 
 佛教五戒是指不杀生、不偷盗、不邪淫、不妄语、不饮酒。
@@ -15122,25 +9598,13 @@ http://tieba.baidu.com/p/6082136733
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  DARKGRAY  
 ##### 65363#       发表于 2019-3-28 18:49
 
 
-
-
 酒破不了，4个刚好一层一个<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15149,17 +9613,10 @@ http://tieba.baidu.com/p/6082136733
 ##### 65364#       发表于 2019-3-28 19:00
 
 
-
-
 走正确的路槽几乎不会涨，走到上楼处再回去走岔路也不会涨
 我有点慌了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -15168,14 +9625,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65365#       发表于 2019-3-28 19:51
 
 
-
-
 现在槽好像满第一条了，如果真是先到楼上再回去不会涨槽的话那么明天就要先走正确道路了，这个槽绝对是越高，Beast就越硬。
-
-
-
-
-
 
 
 -----
@@ -15184,14 +9634,7 @@ http://tieba.baidu.com/p/6082136733
 ##### 65366#       发表于 2019-3-28 20:00
 
 
-
-
 MD这一管体力能玩一天
-
-
-
-
-
 
 
 -----
@@ -15200,14 +9643,7 @@ MD这一管体力能玩一天
 ##### 65367#       发表于 2019-3-28 21:21
 
 
-
-
 突然发现御主礼装的技能是会变的，2技能突然变成了个日米和亲条约。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15216,16 +9652,10 @@ MD这一管体力能玩一天
 ##### 65368#       发表于 2019-3-28 21:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43069102&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-28 09:56</a>
 
 羡慕你们早上还能清体力的</blockquote>
 早上不能清体力的才是现充，社畜挤地铁没事做只能清体力了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15234,16 +9664,10 @@ MD这一管体力能玩一天
 ##### 65369#       发表于 2019-3-28 21:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43077674&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-28 21:34</a>
 
 早上不能清体力的才是现充，社畜挤地铁没事做只能清体力了</blockquote>
 走到单位10分钟，然后干活干到中午，你对现充的理解可能有问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15252,16 +9676,10 @@ MD这一管体力能玩一天
 ##### 65370#       发表于 2019-3-28 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43077836&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-3-28 21:52</a>
 
 走到单位10分钟，然后干活干到中午，你对现充的理解可能有问题</blockquote>
 早上不都是打两盘Free请体力的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15270,14 +9688,7 @@ MD这一管体力能玩一天
 ##### 65371#       发表于 2019-3-28 22:02
 
 
-
-
 2层终于跑完了……想吐……
-
-
-
-
-
 
 
 -----
@@ -15286,14 +9697,7 @@ MD这一管体力能玩一天
 ##### 65372#       发表于 2019-3-28 23:45
 
 
-
-
 所以花札的用途也是谜啊，止咳糖浆饼干
-
-
-
-
-
 
 
 -----
@@ -15302,14 +9706,7 @@ MD这一管体力能玩一天
 ##### 65373#       发表于 2019-3-29 06:30
 
 
-
-
 我还没跑完第一层……一点剧情都没看烦死了
-
-
-
-
-
 
 
 -----
@@ -15318,14 +9715,7 @@ MD这一管体力能玩一天
 ##### 65374#       发表于 2019-3-29 06:36
 
 
-
-
 左边那条东西到底啥用 到了第1个结点也无事发生啊
-
-
-
-
-
 
 
 -----
@@ -15334,20 +9724,13 @@ MD这一管体力能玩一天
 ##### 65375#       发表于 2019-3-29 06:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦.有变化..第3个技能变成出星+单人出星率up了（喵的变得要多点一下 简直是史诗级削弱
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 65376#       发表于 2019-3-29 08:04
-
 
 
 <blockquote>alucardcz 发表于 2019-3-29 06:48
@@ -15357,16 +9740,10 @@ MD这一管体力能玩一天
 3个技能都强化了，估计后面还能继续强化
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65377#       发表于 2019-3-29 08:17
-
 
 
 <blockquote>引用第65376楼alucardcz于2019-03-29 06:48发表的  :
@@ -15375,14 +9752,7 @@ MD这一管体力能玩一天
 技能变化和槽没关系，和你拿的印笼数量有关
 
 
-
-
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -15391,16 +9761,10 @@ MD这一管体力能玩一天
 ##### 65378#       发表于 2019-3-29 08:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43080838&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-29 08:17</a>
 
 技能变化和槽没关系，和你拿的印笼数量有关</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怪不得又多了个绿卡耐性down
-
-
-
-
-
 
 
 -----
@@ -15409,14 +9773,7 @@ MD这一管体力能玩一天
 ##### 65379#       发表于 2019-3-29 09:10
 
 
-
-
 两天了第一格差一点满，我还有救
-
-
-
-
-
 
 
 -----
@@ -15425,15 +9782,7 @@ MD这一管体力能玩一天
 ##### 65380#       发表于 2019-3-29 09:16
 
 
-
-
 这迷宫一半时间都是在黑屏跑狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -15442,14 +9791,7 @@ MD这一管体力能玩一天
 ##### 65381#       发表于 2019-3-29 09:19
 
 
-
-
 叶哥哥能不能好心给这衣服一个20NP效果啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15458,14 +9800,7 @@ MD这一管体力能玩一天
 ##### 65382#       发表于 2019-3-29 09:30
 
 
-
-
 如果活动最后的奖励是完全版的衣服，我觉得这个垃圾活动我也能忍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15474,16 +9809,10 @@ MD这一管体力能玩一天
 ##### 65383#       发表于 2019-3-29 09:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43081645&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-29 09:30</a>
 
 如果活动最后的奖励是完全版的衣服，我觉得这个垃圾活动我也能忍了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">需要我帮你开煤气吗
-
-
-
-
-
 
 
 -----
@@ -15492,15 +9821,9 @@ MD这一管体力能玩一天
 ##### 65384#       发表于 2019-3-29 09:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43081804&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-29 09:40</a>
 需要我帮你开煤气吗</blockquote>
 不，我只想要你教我怎么豹跳<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15509,16 +9832,10 @@ MD这一管体力能玩一天
 ##### 65385#       发表于 2019-3-29 09:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43081955&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-29 09:51</a>
 
 不，我只想要你教我怎么豹跳</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 萌新把所有石全丢下去了 没出东西啊
-
-
-
-
-
 
 
 -----
@@ -15527,15 +9844,9 @@ MD这一管体力能玩一天
 ##### 65386#       发表于 2019-3-29 10:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43082053&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-29 09:59</a>
 啥 萌新把所有石全丢下去了 没出东西啊</blockquote>
 下次跳的时候再告诉我就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15544,21 +9855,13 @@ MD这一管体力能玩一天
 ##### 65387#       发表于 2019-3-29 12:53
 
 
-
-
 上一次单抽出货已经一年前了，感谢萌新，豹跳一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 65388#       发表于 2019-3-29 12:58
-
 
 
 <blockquote>引用第65388楼rooarr于2019-03-29 12:53发表的  :
@@ -15570,16 +9873,10 @@ MD这一管体力能玩一天
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65389#       发表于 2019-3-29 13:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43084529&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-29 12:53</a>
@@ -15591,25 +9888,13 @@ MD这一管体力能玩一天
 另外出货不都是单抽的吗  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yangun22  
 ##### 65390#       发表于 2019-3-29 15:09
 
 
-
-
 日本人太闲了，在那里分析哪个房间是用了那个从者灵基，比如放水瓶的避猫房是用武则天做的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15618,15 +9903,9 @@ MD这一管体力能玩一天
 ##### 65391#       发表于 2019-3-29 15:17
 
 
-
 <blockquote>yangun22 发表于 2019-3-29 15:09
 日本人太闲了，在那里分析哪个房间是用了那个从者灵基，比如放水瓶的避猫房是用武则天做的 ...</blockquote>
 不止日本人，群里就有好几个在研究的
-
-
-
-
-
 
 
 -----
@@ -15635,22 +9914,13 @@ MD这一管体力能玩一天
 ##### 65392#       发表于 2019-3-29 15:20
 
 
-
-
 猪房间是姑姑，兽臭房间是狼王，招财猫房间是喵玉
-
-
-
-
-
 
 
 -----
 
 ####  阿提拉  
 ##### 65393#       发表于 2019-3-29 15:24
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201903/29/152258mh8g0110jy3wccn5.jpg" referrerpolicy="no-referrer">
@@ -15663,28 +9933,16 @@ MD这一管体力能玩一天
 2019-3-29 15:22 上传
 
 
-
-
-
-
-
 不只是房间，像这个八成就是绿茶（
 
 
 剪刀声那个是子安，章鱼壶那个估计应该是元帅
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 65394#       发表于 2019-3-29 15:24
-
-
 
 
 总觉得同样作为重量级的beast活动，大奥的剧情没有之前CCC的压迫感那么强
@@ -15702,16 +9960,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 期待第4层往后会反转一下？
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65395#       发表于 2019-3-29 15:33
-
 
 
 <blockquote>阿提拉 发表于 2019-3-29 15:24
@@ -15722,17 +9974,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 龙牙兵烧汤的房间呢
 
 
-
-
-
-
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 65396#       发表于 2019-3-29 15:49
-
-
 
 
 我觉得想太多了，柳生也就变一根柱子而已，而且没法对上的房间明显比较多
@@ -15741,16 +9986,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 65397#       发表于 2019-3-29 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43086738&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2019-3-29 15:49</a>
@@ -15761,24 +10000,13 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">凡是不能解释的统统是伽勒底职员&amp;其他无关人员（
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65398#       发表于 2019-3-29 17:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">准备上去跑迷宫 结果游戏都上不去  
-
-
-
-
-
 
 
 -----
@@ -15787,14 +10015,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65399#       发表于 2019-3-29 17:17
 
 
-
-
 突然更新?
-
-
-
-
-
 
 
 -----
@@ -15803,14 +10024,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65400#       发表于 2019-3-29 17:31
 
 
-
-
 所以正确的路线应该是破戒走吗还是不破戒
-
-
-
-
-
 
 
 -----
@@ -15819,15 +10033,9 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65401#       发表于 2019-3-29 17:40
 
 
-
 <blockquote>Nozzy 发表于 2019-3-29 17:31
 所以正确的路线应该是破戒走吗还是不破戒</blockquote>
 我现在一路顺着酒味走，记得先打死舞娘
-
-
-
-
-
 
 
 -----
@@ -15836,13 +10044,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65402#       发表于 2019-3-29 17:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">通信断了 看来后半故事要沉重起来了?
-
-
-
-
-
 
 
 -----
@@ -15851,16 +10053,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65403#       发表于 2019-3-29 17:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43088528&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-29 17:40</a>
 
 我现在一路顺着酒味走，记得先打死舞娘</blockquote>
 什么，舞娘竟然是酒？咕哒不是大人的事情要禁酒么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15869,15 +10065,9 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65404#       发表于 2019-3-29 17:58
 
 
-
 <blockquote>DARKGRAY 发表于 2019-3-29 17:50
 什么，舞娘竟然是酒？咕哒不是大人的事情要禁酒么</blockquote>
 减攻debuff过于凶残克制打上去100出头
-
-
-
-
-
 
 
 -----
@@ -15886,17 +10076,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65405#       发表于 2019-3-29 18:14
 
 
-
-
 光头60连2五星
 
 
 然而全是歪的www
-
-
-
-
-
 
 
 -----
@@ -15905,17 +10088,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65406#       发表于 2019-3-29 19:28
 
 
-
-
 感觉路线应该是往喝high的方向走
 脑补了下咕跶子喝醉的样子……我好了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -15924,23 +10100,15 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65407#       发表于 2019-3-29 19:30
 
 
-
-
 这层大幽灵一下子五十万血，差点翻车了，不得已丢了个印笼技能
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65408#       发表于 2019-3-29 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43090177&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2019-3-29 19:30</a>
@@ -15952,16 +10120,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 3个宝石翁<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65409#       发表于 2019-3-29 20:46
-
 
 
  本帖最后由 シャル 于 2019-3-29 20:51 编辑 
@@ -15976,24 +10138,16 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 就是说不能醉
 
 
-
 1层不杀生（不故意打女中），2层不打妄语（不假装自己是殿下），3层不喝酒（用宝具洗脑假装自己醉了）<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
 伽摩就是要让人破五戒啊，新所长犯了3戒，（大量破坏女中，假装自己是殿下，狂喝酒）
 
 
-
-
-
-
-
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 65410#       发表于 2019-3-29 20:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43090893&amp;ptid=1085254" target="_blank">シャル 发表于 2019-3-29 20:46</a>
@@ -16006,16 +10160,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65411#       发表于 2019-3-29 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43090940&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2019-3-29 20:50</a>
@@ -16033,25 +10181,13 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 这是钻了空子
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65412#       发表于 2019-3-29 21:09
 
 
-
-
 今天地图陡然复杂
-
-
-
-
-
 
 
 -----
@@ -16060,16 +10196,9 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65413#       发表于 2019-3-30 00:37
 
 
-
-
 想問印度愛神的寶具動畫是隨機嗎?
 
 4突後，只得第一次是開LASER，之後都是亂箭
-
-
-
-
-
 
 
 -----
@@ -16078,14 +10207,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65414#       发表于 2019-3-30 01:29
 
 
-
-
 不知道今年愚人节会是继续FGOGO还是搞点新的？
-
-
-
-
-
 
 
 -----
@@ -16094,23 +10216,15 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65415#       发表于 2019-3-30 18:18
 
 
-
-
 我擦。。。居然还有第5层。。。。。
 
 我服了
-
-
-
-
-
 
 
 -----
 
 ####  Nozzy  
 ##### 65416#       发表于 2019-3-30 18:34
-
 
 
 <blockquote>alucardcz 发表于 2019-3-30 18:18
@@ -16120,25 +10234,13 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 有五戒嘛，五戒有六层我都不奇怪😄
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 65417#       发表于 2019-3-30 19:06
 
 
-
-
 妈的，就算按照最短路线，那槽也是升得飞快，已经去到第二条满了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16147,14 +10249,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65418#       发表于 2019-3-30 19:53
 
 
-
-
 骑阶大幽灵翻车了，每个回合都放全体扣NP的机能，打掉第一条血全体清强化然后三发暴击带走全场，简直像安排好的一样……<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16163,16 +10258,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65419#       发表于 2019-3-30 20:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43101505&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2019-3-30 19:53</a>
 
 骑阶大幽灵翻车了，每个回合都放全体扣NP的机能，打掉第一条血全体清强化然后三发暴击带走全场，简直像安排 ...</blockquote>
 大幽灵最后用艳后单挑过的，艳后生存能力真的是没得说。
-
-
-
-
-
 
 
 -----
@@ -16181,16 +10270,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65420#       发表于 2019-3-30 20:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43101505&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2019-3-30 19:53</a>
 
 骑阶大幽灵翻车了，每个回合都放全体扣NP的机能，打掉第一条血全体清强化然后三发暴击带走全场，简直像安排 ...</blockquote>
 记得消暴击啊
-
-
-
-
-
 
 
 -----
@@ -16199,14 +10282,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65421#       发表于 2019-3-30 20:11
 
 
-
-
 骑阶大幽灵5宝夹馍半buff直接带走第1条 然后全buff在打走第2条。。轻松。愉快。。。
-
-
-
-
-
 
 
 -----
@@ -16215,17 +10291,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65422#       发表于 2019-3-30 20:11
 
 
-
-
 就不能一下子全开吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 一层打完就没意思了
-
-
-
-
-
 
 
 -----
@@ -16234,14 +10303,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65423#       发表于 2019-3-30 20:33
 
 
-
-
 长条有啥影响吗，我每次都会把地图跑干净再去下一层
-
-
-
-
-
 
 
 -----
@@ -16250,14 +10312,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65424#       发表于 2019-3-30 20:45
 
 
-
-
 感觉下一层主线要常驻倍伤礼装了，光靠活动加成伤害不太够了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16266,13 +10321,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65425#       发表于 2019-3-30 21:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">80抽了一个金卡从者没有 活动反正看不懂瞎鸡儿打 我都是全图全清的 有影响么
-
-
-
-
-
 
 
 -----
@@ -16281,14 +10330,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65426#       发表于 2019-3-30 21:24
 
 
-
-
 院院已经认出伽摩真身了，伽摩还没认出院院，果然是Beast觉醒与否的差距呢<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16297,16 +10339,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65427#       发表于 2019-3-30 21:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43101936&amp;ptid=1085254" target="_blank">yongze 发表于 2019-3-30 20:33</a>
 
 长条有啥影响吗，我每次都会把地图跑干净再去下一层</blockquote>
 目前怀疑条子越高，Beast3L越强<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16315,14 +10351,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65428#       发表于 2019-3-30 23:17
 
 
-
-
 我的条刚到一半兴许是有救了?现在黑花札还一个都没有这坑有点大
-
-
-
-
-
 
 
 -----
@@ -16331,14 +10360,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65429#       发表于 2019-3-30 23:42
 
 
-
-
 我刚发现我这周打从者的任务还没完成……明天要再没得打我还得去冬木刷几下free……
-
-
-
-
-
 
 
 -----
@@ -16347,23 +10369,16 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65430#       发表于 2019-3-31 00:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104089&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-30 23:42</a>
 
 我刚发现我这周打从者的任务还没完成……明天要再没得打我还得去冬木刷几下free…… ...</blockquote>
 都一样，不行就去趟夏洛特<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 65431#       发表于 2019-3-31 05:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104474&amp;ptid=1085254" target="_blank">dante888 发表于 2019-3-30 10:22</a>
@@ -16376,25 +10391,13 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 以为按惯例打活动就能在周末前做完谁知道这次活动目前全程就2场servant战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 65432#       发表于 2019-3-31 10:46
 
 
-
-
 终于掉礼装了，连伤害礼装都不能保证满破<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16403,16 +10406,10 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65433#       发表于 2019-3-31 10:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43107227&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-31 10:46</a>
 
 终于掉礼装了，连伤害礼装都不能保证满破</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 羡慕到爆炸  萌新也想满破啊
-
-
-
-
-
 
 
 -----
@@ -16421,16 +10418,9 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65434#       发表于 2019-3-31 11:26
 
 
-
-
 下个月勋章龙牙毒针
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -16439,14 +10429,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65435#       发表于 2019-3-31 11:52
 
 
-
-
 刷迷宫都没机会清free 礼装么得
-
-
-
-
-
 
 
 -----
@@ -16455,14 +10438,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65436#       发表于 2019-3-31 13:56
 
 
-
-
 没玩肝报废人也轻松精神好了，礼装掉落高了，心情也好了，感情这游戏是生活康复治疗?再来五层迷宫我都肝的下去……🤔
-
-
-
-
-
 
 
 -----
@@ -16471,14 +10447,7 @@ CCC那时候感觉剧情上真的是绝体绝命，联络不上本部，时间�
 ##### 65437#       发表于 2019-3-31 14:15
 
 
-
-
 http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服，修改之前标题是吊打日服😁
-
-
-
-
-
 
 
 -----
@@ -16487,16 +10456,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65438#       发表于 2019-3-31 14:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43109574&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-31 14:15</a>
 
 http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服，修改之前标题是吊打日服😁 ...</blockquote>
 又到了9102年我最喜欢的围观隔壁睿智的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16505,13 +10468,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65439#       发表于 2019-3-31 15:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是来晚了吗..怎么全改了
-
-
-
-
-
 
 
 -----
@@ -16520,15 +10477,9 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65440#       发表于 2019-3-31 16:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43109574&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-31 14:15</a>
 http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服，修改之前标题是吊打日服😁 ...</blockquote>
 难道国服站在日服的肩膀上，不应该比日服更好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16537,15 +10488,9 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65441#       发表于 2019-3-31 16:39
 
 
-
 <blockquote>rooarr 发表于 2019-3-31 16:28
 难道国服站在日服的肩膀上，不应该比日服更好吗</blockquote>
 还不快多谢睿鸽鸽😋
-
-
-
-
-
 
 
 -----
@@ -16554,14 +10499,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65442#       发表于 2019-3-31 16:44
 
 
-
-
 最后一天的迷宫要来了，到底会怎么样呢😛
-
-
-
-
-
 
 
 -----
@@ -16570,14 +10508,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65443#       发表于 2019-3-31 16:47
 
 
-
-
 打赌今天表面迷宫完了之后送多你5面里迷宫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16586,15 +10517,9 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65444#       发表于 2019-3-31 16:52
 
 
-
 <blockquote>rxrx 发表于 2019-3-31 16:47
 打赌今天表面迷宫完了之后送多你5面里迷宫</blockquote>
 有材料就行，我就是这么贱😛
-
-
-
-
-
 
 
 -----
@@ -16603,16 +10528,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65445#       发表于 2019-3-31 16:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43111225&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-3-31 16:52</a>
 
 有材料就行，我就是这么贱😛</blockquote>
 其实loading没有这么弱智的话这个探索满好玩的，回想起当年的gamebook
-
-
-
-
-
 
 
 -----
@@ -16621,13 +10540,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65446#       发表于 2019-3-31 17:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所长破戒为什么要剪掉呢（
-
-
-
-
-
 
 
 -----
@@ -16636,14 +10549,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65447#       发表于 2019-3-31 17:36
 
 
-
-
 第六层，实在是连我都受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16652,16 +10558,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65448#       发表于 2019-3-31 17:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43111751&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-31 17:36</a>
 
 第六层，实在是连我都受不了了</blockquote>
 还要爬啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16670,14 +10570,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65449#       发表于 2019-3-31 17:47
 
 
-
-
 果然是伽摩马拉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16686,14 +10579,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65450#       发表于 2019-3-31 18:16
 
 
-
-
 第6層，不停連戰，打到悶，每次關卡都要停一停
-
-
-
-
-
 
 
 -----
@@ -16702,13 +10588,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65451#       发表于 2019-3-31 19:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以是八戒还是十戒啦
-
-
-
-
-
 
 
 -----
@@ -16717,17 +10597,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65452#       发表于 2019-3-31 19:11
 
 
-
-
 这bgm也太。。丢人（？）了吧。。毫无感觉。。。
 
 
 然后又要等到4月2号。。。。哎
-
-
-
-
-
 
 
 -----
@@ -16736,14 +10609,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65453#       发表于 2019-3-31 19:34
 
 
-
-
 杀生院为掩护主角牺牲了自己？老实说我觉得之后她应该还有戏份。。。
-
-
-
-
-
 
 
 -----
@@ -16752,23 +10618,15 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65454#       发表于 2019-3-31 19:36
 
 
-
-
 90周回还是333配置，所以隔壁弟弟这个贴有这么多人点赞实在是好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [http://nga.178.com/read.php?tid=16806182](http://nga.178.com/read.php?tid=16806182)
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65455#       发表于 2019-3-31 19:42
-
 
 
  本帖最后由 alucardcz 于 2019-3-31 19:43 编辑 
@@ -16778,16 +10636,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这次萌新的确是哈不了了 不是因为什么223 而是因为少那20np
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65456#       发表于 2019-3-31 19:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43113288&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-31 19:42</a>
@@ -16798,16 +10650,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 马上就解放了，左边条满开完主线我估计就不锁衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 65457#       发表于 2019-3-31 19:52
-
 
 
  本帖最后由 dante888 于 2019-3-31 19:53 编辑 
@@ -16820,24 +10666,13 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 按照已经肝完的秃头的说法，有2到3个90周回不是333<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65458#       发表于 2019-3-31 20:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">礼装居然保送满破
-
-
-
-
-
 
 
 -----
@@ -16846,14 +10681,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65459#       发表于 2019-3-31 20:07
 
 
-
-
 咸鱼刚刚打完第二层<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16862,15 +10690,9 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65460#       发表于 2019-3-31 20:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43113550&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-3-31 20:03</a>
 礼装居然保送满破</blockquote>
 哪一层送？
-
-
-
-
-
 
 
 -----
@@ -16879,16 +10701,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65461#       发表于 2019-3-31 20:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43113651&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-3-31 20:10</a>
 
 哪一层送？</blockquote>
 5
-
-
-
-
-
 
 
 -----
@@ -16897,13 +10713,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65462#       发表于 2019-3-31 20:12
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16912,14 +10722,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65463#       发表于 2019-3-31 20:22
 
 
-
-
 登不进去了🤔
-
-
-
-
-
 
 
 -----
@@ -16928,14 +10731,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65464#       发表于 2019-3-31 20:25
 
 
-
-
 突然更新
-
-
-
-
-
 
 
 -----
@@ -16944,16 +10740,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65465#       发表于 2019-3-31 20:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43104089&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-3-30 23:42</a>
 
 我刚发现我这周打从者的任务还没完成……明天要再没得打我还得去冬木刷几下free…… ...</blockquote>
 没想到今天那么多从者<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16962,16 +10752,9 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65466#       发表于 2019-3-31 20:48
 
 
-
-
 打完第6層兩次愛神後，第8章免費再送多一燈石，而之後前5層都追加4關...第6層又多了一關LV90但未開放，見到都有好多關卡...
 
 何時才能完啊
-
-
-
-
-
 
 
 -----
@@ -16980,23 +10763,15 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65467#       发表于 2019-3-31 20:49
 
 
-
-
 这个杀生院洗得可真是净白
 
 院院粉们欢喜噜<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 65468#       发表于 2019-3-31 21:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43114148&amp;ptid=1085254" target="_blank">ネロ 发表于 2019-3-31 20:49</a>
@@ -17007,25 +10782,13 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 想想CCC，杀生院怕不是故意被吃，然后反杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，
 
 
-
-
-
-
-
 -----
 
 ####  jackyhuang  
 ##### 65469#       发表于 2019-3-31 21:06
 
 
-
-
 临死之前给主角提示，杀生院这次剧情还真的是花京院的定位啊
-
-
-
-
-
 
 
 -----
@@ -17034,14 +10797,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65470#       发表于 2019-3-31 21:21
 
 
-
-
 4层的秘密房间要星期二才开放，不过这次乱七八糟的材料真是多
-
-
-
-
-
 
 
 -----
@@ -17050,14 +10806,7 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65471#       发表于 2019-3-31 22:02
 
 
-
-
 对了这次兽伽摩有哪些能打出红字的，绊礼装小安肯定可以的，杀生院自己试过能打出来（可能AE全体都可以？），听说外国人也克制的
-
-
-
-
-
 
 
 -----
@@ -17066,16 +10815,10 @@ http://nga.178.com/read.php?tid=16811760      国服同期体验高于日服
 ##### 65472#       发表于 2019-3-31 22:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43115179&amp;ptid=1085254" target="_blank">jackyhuang 发表于 2019-3-31 22:02</a>
 
 对了这次兽伽摩有哪些能打出红字的，绊礼装小安肯定可以的，杀生院自己试过能打出来（可能AE全体都可以？） ...</blockquote>
 AE和外国人
-
-
-
-
-
 
 
 -----
@@ -17084,14 +10827,7 @@ AE和外国人
 ##### 65473#       发表于 2019-3-31 22:11
 
 
-
-
 看完剧情了，就这水平想超越杀生院想多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，CCC如果不是几个作弊因素一起加起来咕哒根本不是杀生院的对手
-
-
-
-
-
 
 
 -----
@@ -17100,14 +10836,7 @@ AE和外国人
 ##### 65474#       发表于 2019-3-31 22:25
 
 
-
-
 还有半小时，坐等萌新出货<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17116,14 +10845,7 @@ AE和外国人
 ##### 65475#       发表于 2019-3-31 22:52
 
 
-
-
 说起来2.4有说汝等即为恶，现在就把摩罗放出来了那不就是等于说后面要带着伽摩一起去印度🤔
-
-
-
-
-
 
 
 -----
@@ -17132,14 +10854,7 @@ AE和外国人
 ##### 65476#       发表于 2019-3-31 23:09
 
 
-
-
 废狗QUEST，下载！
-
-
-
-
-
 
 
 -----
@@ -17148,14 +10863,7 @@ AE和外国人
 ##### 65477#       发表于 2019-3-31 23:31
 
 
-
-
 我不管！真！鲜血英灵谭就是真的！
-
-
-
-
-
 
 
 -----
@@ -17164,14 +10872,7 @@ AE和外国人
 ##### 65478#       发表于 2019-3-31 23:31
 
 
-
-
 这次居然有两天时间打小游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17180,14 +10881,7 @@ AE和外国人
 ##### 65479#       发表于 2019-3-31 23:34
 
 
-
-
 MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？
-
-
-
-
-
 
 
 -----
@@ -17196,15 +10890,9 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？
 ##### 65480#       发表于 2019-3-31 23:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43116306&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-3-31 23:34</a>
 MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</blockquote>
 历史原因<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17213,14 +10901,7 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65481#       发表于 2019-3-31 23:41
 
 
-
-
 矮油,这个模型不错,能不能给个灵衣<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17229,14 +10910,7 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65482#       发表于 2019-3-31 23:44
 
 
-
-
 月厨激怒！只敢在今天放这种消息！
-
-
-
-
-
 
 
 -----
@@ -17245,14 +10919,7 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65483#       发表于 2019-3-31 23:44
 
 
-
-
 愚人节游戏那个全面屏！本体到底什么时候能改好orz
-
-
-
-
-
 
 
 -----
@@ -17261,14 +10928,7 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65484#       发表于 2019-4-1 00:33
 
 
-
-
 本月的护肤出货，从千石一郎变成千石二郎感受好多了
-
-
-
-
-
 
 
 -----
@@ -17277,14 +10937,7 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65485#       发表于 2019-4-1 00:45
 
 
-
-
 要不是德川庆喜，这段剧情看完肯定又一堆人奶村正吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17293,16 +10946,9 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65486#       发表于 2019-4-1 00:55
 
 
-
-
 春日局的跳反FLAG立起来了
 
 虽然跟当初猜测的迦摩=BB，春日局=杀生院的定位不一样，但看样子殊途同归，她最终还是要搞事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17311,14 +10957,7 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65487#       发表于 2019-4-1 01:37
 
 
-
-
 怎么小游戏不能输入名字
-
-
-
-
-
 
 
 -----
@@ -17327,16 +10966,10 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65488#       发表于 2019-4-1 02:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43117532&amp;ptid=1085254" target="_blank">猎黑行者 发表于 2019-4-1 01:37</a>
 
 怎么小游戏不能输入名字</blockquote>
 只能使用片假名/平假名
-
-
-
-
-
 
 
 -----
@@ -17345,16 +10978,10 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65489#       发表于 2019-4-1 02:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43117687&amp;ptid=1085254" target="_blank">xunit 发表于 2019-4-1 02:15</a>
 
 只能使用片假名/平假名</blockquote>
 好吧，没看提示XJB输入了
-
-
-
-
-
 
 
 -----
@@ -17363,21 +10990,13 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 ##### 65490#       发表于 2019-4-1 05:06
 
 
-
-
 本月月球魔术，彩圈出了个大王<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65491#       发表于 2019-4-1 05:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43117954&amp;ptid=1085254" target="_blank">ネロ 发表于 2019-4-1 05:06</a>
@@ -17388,25 +11007,13 @@ MD，小游戏这全屏不是做得很好嘛？本体为什么就做不了？</b
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新的月球魔术出了个红a  这是萌新第1个溢出的4星！
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65492#       发表于 2019-4-1 07:18
 
 
-
-
 fgo quest 启动
-
-
-
-
-
 
 
 -----
@@ -17415,15 +11022,9 @@ fgo quest 启动
 ##### 65493#       发表于 2019-4-1 07:44
 
 
-
 <blockquote>猎黑行者 发表于 2019-4-1 01:37
 怎么小游戏不能输入名字</blockquote>
 DQ系列没玩过吗
-
-
-
-
-
 
 
 -----
@@ -17432,22 +11033,15 @@ DQ系列没玩过吗
 ##### 65494#       发表于 2019-4-1 07:50
 
 
-
 <blockquote>jackyhuang 发表于 2019-3-31 21:06
 临死之前给主角提示，杀生院这次剧情还真的是花京院的定位啊</blockquote>
 这不就成花生院了嘛
-
-
-
-
-
 
 
 -----
 
 ####  猎黑行者  
 ##### 65495#       发表于 2019-4-1 07:54
-
 
 
  本帖最后由 猎黑行者 于 2019-4-1 08:08 编辑 
@@ -17459,26 +11053,15 @@ DQ系列没玩过吗</blockquote>
 你家初代DQ是拿触屏输入的么
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 65496#       发表于 2019-4-1 08:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">这次活动目前为止感觉雪山樱不怎么讨人喜欢啊……
 
 雪山女神这角色一直在被伽摩呛 印度这一堆破事 光活动来说伽摩这种死鱼状态反而比较喜欢
-
-
-
-
-
 
 
 -----
@@ -17487,13 +11070,7 @@ DQ系列没玩过吗</blockquote>
 ##### 65497#       发表于 2019-4-1 08:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">周常3石出了雪山樱 萌新终于有新卡能喂了
-
-
-
-
-
 
 
 -----
@@ -17502,14 +11079,7 @@ DQ系列没玩过吗</blockquote>
 ##### 65498#       发表于 2019-4-1 08:41
 
 
-
-
 pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸啊
-
-
-
-
-
 
 
 -----
@@ -17518,14 +11088,7 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65499#       发表于 2019-4-1 08:51
 
 
-
-
 4/1的游戏越做越复杂了，这个游戏今天一天感觉玩不玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17534,14 +11097,7 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65500#       发表于 2019-4-1 09:20
 
 
-
-
 今年的小游戏有点复杂，需要刷装备刷等级还只给一天时间<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17550,23 +11106,15 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65501#       发表于 2019-4-1 09:26
 
 
-
-
 小游戏有两天，到明天半夜
 
 但是根本没时间肝了，还要爬迷宫
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 65502#       发表于 2019-4-1 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43119164&amp;ptid=1085254" target="_blank">猎黑行者 发表于 2019-4-1 09:26</a>
@@ -17576,25 +11124,13 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 昨晚新公告，只到今晚…
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65503#       发表于 2019-4-1 09:43
 
 
-
-
 话说这迷宫爬完 商店已经搬的差不多了。。基本不需要刷了。。
-
-
-
-
-
 
 
 -----
@@ -17603,16 +11139,10 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65504#       发表于 2019-4-1 09:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43119238&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-1 09:31</a>
 
 昨晚新公告，只到今晚…</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玩什么小游戏 赶紧爆起来
-
-
-
-
-
 
 
 -----
@@ -17621,15 +11151,9 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65505#       发表于 2019-4-1 10:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43119394&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-1 09:44</a>
 玩什么小游戏 赶紧爆起来</blockquote>
 啊？呼符要留下一个卡池啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17638,16 +11162,9 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65506#       发表于 2019-4-1 10:17
 
 
-
-
 这游戏珍贵道具用过一次如果用错了直接就消失了，
 
 什么罗曼的杖，master之证，随手试了一下直接就没了，太坑了
-
-
-
-
-
 
 
 -----
@@ -17656,23 +11173,16 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65507#       发表于 2019-4-1 10:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43119827&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-1 10:17</a>
 
 啊？呼符要留下一个卡池啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹一个5宝啊
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65508#       发表于 2019-4-1 10:22
-
 
 
 <blockquote>猎黑行者 发表于 2019-4-1 07:54
@@ -17687,26 +11197,13 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 不能输入汉字明明是常识
 
 
-
-
-
-
-
-
 -----
 
 ####  閻魔愛  
 ##### 65509#       发表于 2019-4-1 10:22
 
 
-
-
 单抽2发，两个黑樱<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17715,15 +11212,9 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65510#       发表于 2019-4-1 10:23
 
 
-
 <blockquote>rooarr 发表于 2019-4-1 09:31
 昨晚新公告，只到今晚…</blockquote>
 魔王多少级啊
-
-
-
-
-
 
 
 -----
@@ -17732,15 +11223,9 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65511#       发表于 2019-4-1 10:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43119841&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-1 10:18</a>
 豹一个5宝啊</blockquote>
 我是做不到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17749,15 +11234,9 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65512#       发表于 2019-4-1 10:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43119930&amp;ptid=1085254" target="_blank">シャル 发表于 2019-4-1 10:23</a>
 魔王多少级啊</blockquote>
 不是今天下午5点才开？我还没拿齐各种道具，昨晚在地图各处逛，想找一个215<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17766,16 +11245,10 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65513#       发表于 2019-4-1 10:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43119957&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-1 10:25</a>
 
 我是做不到了不够楼下的海豹看起来非常有潜力</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你也行的
-
-
-
-
-
 
 
 -----
@@ -17784,14 +11257,7 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65514#       发表于 2019-4-1 11:16
 
 
-
-
 这个一天的小游戏居然还修bug的，fgo的bug怎么没见你们修这么勤<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17800,17 +11266,10 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65515#       发表于 2019-4-1 11:24
 
 
-
-
 这小游戏要素过多，掉落还带等级最高金箱虹光，我打BB掉了个LV5装备给所长装上贼强……
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
-
-
-
-
-
 
 
 -----
@@ -17819,14 +11278,7 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65516#       发表于 2019-4-1 11:25
 
 
-
-
 全假名看着真累，云了算了
-
-
-
-
-
 
 
 -----
@@ -17835,14 +11287,7 @@ pv里还有我（kari）的字眼，这活动里迦梨能不能出来露个脸�
 ##### 65517#       发表于 2019-4-1 11:38
 
 
-
-
 https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃瓜
-
-
-
-
-
 
 
 -----
@@ -17851,16 +11296,9 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65518#       发表于 2019-4-1 12:15
 
 
-
-
 这小游戏一天打不完啊，今天又不是休息日
 
 还是说只开1天本身是4.1日愚人节消息？
-
-
-
-
-
 
 
 -----
@@ -17869,21 +11307,13 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65519#       发表于 2019-4-1 12:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">掐了一下秒表，从地图上点灯笼到界面回到地图上，要15秒
-
-
-
-
-
 
 
 -----
 
 ####  （待定  
 ##### 65520#       发表于 2019-4-1 14:00
-
-
 
 
 给gd子配了个黑冲田剑+王哈铠甲+阿基琉斯盾+黑贞头盔 的暴击up组合套装，穿上去无敌了
@@ -17893,17 +11323,10 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 另外这游戏最牛逼的无疑是大魔法师奥尔加玛丽所长（
 
 
-
-
-
-
-
 -----
 
 ####  newfaceryo  
 ##### 65521#       发表于 2019-4-1 15:29
-
-
 
 
 带着master之证、太阳之石、雨云之杖三件宝物来到里姆鲁达鲁镇南方的神圣祠堂，和老人对话之后即可得到虹之水滴。
@@ -17916,25 +11339,13 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 最终攻略<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65522#       发表于 2019-4-1 17:01
 
 
-
-
 魔王是哪位啊
-
-
-
-
-
 
 
 -----
@@ -17943,15 +11354,9 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65523#       发表于 2019-4-1 17:35
 
 
-
 <blockquote>シャル 发表于 2019-4-1 17:01
 魔王是哪位啊</blockquote>
 微博发了，是阿提拉……
-
-
-
-
-
 
 
 -----
@@ -17960,14 +11365,7 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65524#       发表于 2019-4-1 18:13
 
 
-
-
 公主是海伦娜，以riyo的想法，魔王大概率是大王<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17976,14 +11374,7 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65525#       发表于 2019-4-1 19:02
 
 
-
-
 魔王超弱……
-
-
-
-
-
 
 
 -----
@@ -17992,14 +11383,7 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65526#       发表于 2019-4-1 22:22
 
 
-
-
 我的号怕不是被什么科技号抱了，就几个小时，拿了7K8的友情点
-
-
-
-
-
 
 
 -----
@@ -18008,14 +11392,7 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65527#       发表于 2019-4-1 23:01
 
 
-
-
 一天的小游戏时间结束了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又回到无聊的走迷宫
-
-
-
-
-
 
 
 -----
@@ -18024,13 +11401,7 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65528#       发表于 2019-4-2 06:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都没开始刷商店居然已经搬空了........ 好久没开声音发现杀生院宝具语音居然有新的
-
-
-
-
-
 
 
 -----
@@ -18039,14 +11410,7 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65529#       发表于 2019-4-2 07:48
 
 
-
-
 商店都空了我都开始打狗粮qp本了……😓
-
-
-
-
-
 
 
 -----
@@ -18055,21 +11419,13 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65530#       发表于 2019-4-2 09:29
 
 
-
-
 今天开后续，六点或者明天会有辣个男人吗，这可是条件最足的情况了😃
-
-
-
-
-
 
 
 -----
 
 ####  阿提拉  
 ##### 65531#       发表于 2019-4-2 09:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43133690&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-4-2 09:29</a>
@@ -18080,25 +11436,13 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">另外不知不觉你游的礼装数量已经破千了
 
 
-
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65532#       发表于 2019-4-2 09:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后开了个杀生院复课（
-
-
-
-
-
 
 
 -----
@@ -18107,15 +11451,9 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65533#       发表于 2019-4-2 10:48
 
 
-
 <blockquote>阿提拉 发表于 2019-4-2 09:33
 那就看你相不相信yls说的这次活动只有一个新英灵的说法了，虽然这次确实铺垫的这么足...不过我个 ...</blockquote>
 你的钱包不都菠萝菠萝哒了么
-
-
-
-
-
 
 
 -----
@@ -18124,16 +11462,10 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65534#       发表于 2019-4-2 11:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43134924&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-2 10:48</a>
 
 你的钱包不都菠萝菠萝哒了么</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">所以我支持一个月都是FA复刻（
-
-
-
-
-
 
 
 -----
@@ -18142,14 +11474,7 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65535#       发表于 2019-4-2 17:07
 
 
-
-
 白等了，没有辣个男人
-
-
-
-
-
 
 
 -----
@@ -18158,15 +11483,9 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65536#       发表于 2019-4-2 17:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43140963&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-4-2 17:07</a>
 白等了，没有辣个男人</blockquote>
 但是图鉴最后多出来一个格子
-
-
-
-
-
 
 
 -----
@@ -18175,16 +11494,10 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65537#       发表于 2019-4-2 17:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43141049&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-4-2 17:12</a>
 
 但是图鉴最后多出来一个格子</blockquote>
 3L的啊，你在想啥呢
-
-
-
-
-
 
 
 -----
@@ -18193,16 +11506,10 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65538#       发表于 2019-4-2 17:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43141049&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-4-2 17:12</a>
 
 但是图鉴最后多出来一个格子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想啥当然是b3l啊
-
-
-
-
-
 
 
 -----
@@ -18211,15 +11518,9 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65539#       发表于 2019-4-2 17:18
 
 
-
  本帖最后由 黑上シグマ 于 2019-4-2 17:19 编辑 
 
 结果那条破槽果然是德川化进度槽（
-
-
-
-
-
 
 
 -----
@@ -18228,14 +11529,7 @@ https://bbs.nga.cn/read.php?tid=16818481  来了来了，不打游戏可以吃
 ##### 65540#       发表于 2019-4-2 17:26
 
 
-
-
 beast3哪有隔壁节奏好看，现在和谐卡面都不用打招呼了，大家快去围观
-
-
-
-
-
 
 
 -----
@@ -18244,16 +11538,10 @@ beast3哪有隔壁节奏好看，现在和谐卡面都不用打招呼了，大�
 ##### 65541#       发表于 2019-4-2 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43141288&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-2 17:26</a>
 
 beast3哪有隔壁节奏好看，现在和谐卡面都不用打招呼了，大家快去围观</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在刷日服贴吧居然都能看到国服白枪和谐的消息 绝了
-
-
-
-
-
 
 
 -----
@@ -18262,20 +11550,13 @@ beast3哪有隔壁节奏好看，现在和谐卡面都不用打招呼了，大�
 ##### 65542#       发表于 2019-4-2 17:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这左边的条 果然是越多越不好啊。。搞了半天这花牌就是消条用的
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 65543#       发表于 2019-4-2 17:30
-
 
 
  本帖最后由 rooarr 于 2019-4-2 17:40 编辑 
@@ -18286,25 +11567,13 @@ beast3哪有隔壁节奏好看，现在和谐卡面都不用打招呼了，大�
 好像是改了白枪卡面然后没公告？有啥大不了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65544#       发表于 2019-4-2 17:36
 
 
-
-
 草白枪呆晚节不保
-
-
-
-
-
 
 
 -----
@@ -18313,21 +11582,13 @@ beast3哪有隔壁节奏好看，现在和谐卡面都不用打招呼了，大�
 ##### 65545#       发表于 2019-4-2 17:37
 
 
-
-
 lga在疯狂删帖，去微博看炎上啊😃
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65546#       发表于 2019-4-2 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43141359&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-2 17:30</a>
@@ -18339,16 +11600,10 @@ lga在疯狂删帖，去微博看炎上啊😃
 改也不好好改。。这改的像套了个钢铁肚兜。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65547#       发表于 2019-4-2 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43141498&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-2 17:39</a>
@@ -18359,25 +11614,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 不是有说奶光变好看了吗，白枪后面也会改好看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65548#       发表于 2019-4-2 17:49
 
 
-
-
 魔神柱，九周年，改卡面2.0，简直就把快去日服写脸上了
-
-
-
-
-
 
 
 -----
@@ -18386,21 +11629,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65549#       发表于 2019-4-2 17:50
 
 
-
-
 好像还有free的怪物血量错误，bgo是修改了什么神奇的配置，会有这种事情发生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 65550#       发表于 2019-4-2 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43141498&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-2 17:39</a>
@@ -18411,26 +11646,15 @@ https://tieba.baidu.com/p/6088171773?pn=1
 萌新你给我这个链接我想再打开一次就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65551#       发表于 2019-4-2 18:00
 
 
-
 <blockquote>rooarr 发表于 2019-4-2 17:51
 萌新你给我这个链接我想再打开一次就没了</blockquote>
 要恰饭的🐴
-
-
-
-
-
 
 
 -----
@@ -18439,16 +11663,10 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65552#       发表于 2019-4-2 18:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43141680&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-2 17:51</a>
 
 萌新你给我这个链接我想再打开一次就没了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太真实了
-
-
-
-
-
 
 
 -----
@@ -18457,15 +11675,9 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65553#       发表于 2019-4-2 18:12
 
 
-
 <blockquote>alucardcz 发表于 2019-4-2 17:28
 这左边的条 果然是越多越不好啊。。搞了半天这花牌就是消条用的</blockquote>
 之前不就说了嘛，条越高伽摩越强
-
-
-
-
-
 
 
 -----
@@ -18474,13 +11686,7 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65554#       发表于 2019-4-2 18:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还好能清 辣鸡看着满条的BOSS血量都尿了 打掉两条血果断滚蛋清掉了
-
-
-
-
-
 
 
 -----
@@ -18489,14 +11695,7 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65555#       发表于 2019-4-2 18:15
 
 
-
-
 你们的德川化都多少了？没有到4级...到顶吧
-
-
-
-
-
 
 
 -----
@@ -18505,16 +11704,10 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65556#       发表于 2019-4-2 18:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">打完了。。还有那么多天白费了（
 
 
 话说戈壁真是要笑死我了。。太逗了
-
-
-
-
-
 
 
 -----
@@ -18523,20 +11716,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65557#       发表于 2019-4-2 18:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这活动会不会有里面啊。。。。。。。。。。毕竟迷宫爬完商店就差不多了。。。还剩那么多天呢
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65558#       发表于 2019-4-2 18:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43142011&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-2 18:17</a>
@@ -18551,25 +11737,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 满条的话是10倍血<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65559#       发表于 2019-4-2 18:36
 
 
-
-
 上帝王花打伽摩好棒的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18578,16 +11752,9 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65560#       发表于 2019-4-2 18:43
 
 
-
-
 至少扑街时的表情差分比杀生院多……赢了！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -18596,21 +11763,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65561#       发表于 2019-4-2 18:46
 
 
-
-
 矮油,这个模型也不错,能给个灵衣么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65562#       发表于 2019-4-2 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43142352&amp;ptid=1085254" target="_blank">白夜羽 发表于 2019-4-2 18:46</a>
@@ -18622,25 +11781,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 院院只有1套<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 65563#       发表于 2019-4-2 19:00
 
 
-
-
 我没看错吧,这还会用升龙?
-
-
-
-
-
 
 
 -----
@@ -18649,14 +11796,7 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65564#       发表于 2019-4-2 19:06
 
 
-
-
 入局看到愛神你的血有150萬???當場退出再用花扎降到15萬才開戰...
-
-
-
-
-
 
 
 -----
@@ -18665,23 +11805,16 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65565#       发表于 2019-4-2 19:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43142602&amp;ptid=1085254" target="_blank">eilot 发表于 2019-4-2 19:06</a>
 
 入局看到愛神你的血有150萬???當場退出再用花扎降到15萬才開戰...</blockquote>
 只是第一条血，第234血条满德川更多<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eilot  
 ##### 65566#       发表于 2019-4-2 19:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43142689&amp;ptid=1085254" target="_blank">シャル 发表于 2019-4-2 19:12</a>
@@ -18692,16 +11825,10 @@ https://tieba.baidu.com/p/6088171773?pn=1
 通關後的再戰，只是像之前BB那個一樣，純挑戰用嗎?
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 65567#       发表于 2019-4-2 20:07
-
 
 
  本帖最后由 khxooo 于 2019-4-2 20:12 编辑 
@@ -18712,25 +11839,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 打完之后继续用衣服技能的话条还会涨，那么如果在满气槽的情况下再退还花扎，会不会再进一步强化呢？
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65568#       发表于 2019-4-2 20:09
 
 
-
-
 终于是在最后的最后提了点2.4相关……
-
-
-
-
-
 
 
 -----
@@ -18739,21 +11854,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65569#       发表于 2019-4-2 20:25
 
 
-
-
 打完了，好low，说不出话……
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65570#       发表于 2019-4-2 20:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43143458&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-2 20:09</a>
@@ -18765,16 +11872,10 @@ https://tieba.baidu.com/p/6088171773?pn=1
 阿三哪里不会印度神都死光了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65571#       发表于 2019-4-2 20:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43143097&amp;ptid=1085254" target="_blank">eilot 发表于 2019-4-2 19:44</a>
@@ -18785,24 +11886,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 挑战，没东西拿
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65572#       发表于 2019-4-2 20:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">明天出最后一个挑战本 打完估计就真结束了
-
-
-
-
-
 
 
 -----
@@ -18811,21 +11901,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65573#       发表于 2019-4-2 20:29
 
 
-
-
 打完以后伽摩追加了三条语音，一条估计是和杀生院的，我没得开……
-
-
-
-
-
 
 
 -----
 
 ####  DARKGRAY  
 ##### 65574#       发表于 2019-4-2 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43143660&amp;ptid=1085254" target="_blank">シャル 发表于 2019-4-2 20:26</a>
@@ -18837,16 +11919,10 @@ https://tieba.baidu.com/p/6088171773?pn=1
 既然那里不停轮回，信仰都不知道翻新多少次了，一搞不好来个原创/合体神什么的占主导地位都可以<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65575#       发表于 2019-4-2 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43143691&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-2 20:28</a>
@@ -18855,16 +11931,10 @@ https://tieba.baidu.com/p/6088171773?pn=1
 明天还有本的？我咋没看到哪里写……
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65576#       发表于 2019-4-2 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43144190&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-2 21:18</a>
@@ -18873,16 +11943,10 @@ https://tieba.baidu.com/p/6088171773?pn=1
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玄观
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 65577#       发表于 2019-4-2 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43144217&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-2 21:21</a>
@@ -18891,17 +11955,10 @@ https://tieba.baidu.com/p/6088171773?pn=1
 配置都有解包了，6个日本英灵车轮，让辣个男人哈哈哈过去就行了，因为有北斋，长江这次吃瘪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 65578#       发表于 2019-4-2 22:32
-
-
 
 
 估计杀生院吸入两次就结束了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
@@ -18910,25 +11967,13 @@ https://tieba.baidu.com/p/6088171773?pn=1
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65579#       发表于 2019-4-2 22:36
 
 
-
-
 你妈的，还剩7天商店都搬完了😂
-
-
-
-
-
 
 
 -----
@@ -18937,14 +11982,7 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65580#       发表于 2019-4-3 00:23
 
 
-
-
 这灵衣不装浪费了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18953,16 +11991,9 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65581#       发表于 2019-4-3 01:34
 
 
-
-
 德川BAR真是加得好快，清0後打完愛神，一直都是刷月下美人，沒用印籠，打了5次就1/4了...
 
 不過之前打最後一場愛神，德川BAR也不是全滿(之前所有關卡都清了，一直沒用印籠)，那時也沒有加得那麼快
-
-
-
-
-
 
 
 -----
@@ -18971,24 +12002,16 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ##### 65582#       发表于 2019-4-3 01:57
 
 
-
-
 作为反派来说既没有逼格也没有魅力，老实说还真有点不想相信这种程度是Beast
 
 
 由于过于丢人，打通剧情之后一不小心把抽到的伽摩给卖了，真是可惜了替她刷的几百个狗粮和点到666花掉的QP（
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65583#       发表于 2019-4-3 06:56
-
 
 
 <blockquote>引用第65583楼久井路路于2019-04-03 01:57发表的  :
@@ -19000,27 +12023,15 @@ https://tieba.baidu.com/p/6088171773?pn=1
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 65584#       发表于 2019-4-3 07:16
 
 
-
-
 beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，III自己的L和R的戏份都完全不平衡啊
 
 话说2020年关服的话怎么感觉beast好像出不完咧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19029,21 +12040,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65585#       发表于 2019-4-3 08:06
 
 
-
-
 你们又知道这次剧情不是蘑菇写的了？？？凡事蘑菇写的一定是好剧情，凡事low逼剧情那一定不是蘑菇写的
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 65586#       发表于 2019-4-3 08:07
-
 
 
 <blockquote>黑上シグマ 发表于 2019-4-3 06:56
@@ -19054,16 +12057,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 人家就是为了口嗨一下嘛
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65587#       发表于 2019-4-3 08:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43147018&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-3 06:56</a>
@@ -19075,25 +12072,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">按下解锁 然后再卖掉啊?
 
 
-
-
-
-
-
 -----
 
 ####  dhddhh  
 ##### 65588#       发表于 2019-4-3 08:37
 
 
-
-
 最后在掌中瑟瑟发抖的荚膜感觉弱爆了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19102,15 +12087,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65589#       发表于 2019-4-3 08:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43147291&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-3 08:06</a>
 你们又知道这次剧情不是蘑菇写的了？？？凡事蘑菇写的一定是好剧情，凡事low逼剧情那一定不是蘑菇写的 ...</blockquote>
 真要是蘑菇写的话我建议这游戏现在就关服…
-
-
-
-
-
 
 
 -----
@@ -19119,23 +12098,15 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65590#       发表于 2019-4-3 09:14
 
 
-
-
 要是蘑菇亲自写的，活动预告时就会开始吹了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 65591#       发表于 2019-4-3 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43147865&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2019-4-3 09:14</a>
@@ -19145,16 +12116,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 这个是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65592#       发表于 2019-4-3 09:52
-
 
 
 <blockquote>rooarr 发表于 2019-4-3 09:18
@@ -19162,17 +12127,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 不是访谈都说了最近都在打只狼🐴😂
 
 
-
-
-
-
-
 -----
 
 ####  SAGA0Arcueid  
 ##### 65593#       发表于 2019-4-3 09:54
-
-
 
 
 这次最后战斗的逻辑比较神经病是真的
@@ -19187,32 +12145,19 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 妈的小孩子斗嘴吗
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 65594#       发表于 2019-4-3 10:22
 
 
-
-
 一些人称小孩子斗嘴本来就是印度神话的特色，不爽你老几？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 65595#       发表于 2019-4-3 10:24
-
 
 
 <blockquote>花枝鱿鱼面 发表于 2019-4-3 09:14
@@ -19223,25 +12168,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 活动开始前就吹的无非是全部蘑菇执笔，你游更多时候是合作写剧情，菌类还说过核心人物的剧情都是他自己来写，和隔壁lga剧情写烂了甩锅给水瀨一样可笑
 
 
-
-
-
-
-
 -----
 
 ####  yangun22  
 ##### 65596#       发表于 2019-4-3 11:01
 
 
-
-
 印度神话本来就是概念胡扯，自身包含宇宙的根本不算回事
-
-
-
-
-
 
 
 -----
@@ -19252,23 +12185,15 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 65598#       发表于 2019-4-3 11:08
 
 
-
-
 紫苑，杀生院这种蘑菇怕是都不敢让别人写<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -19277,14 +12202,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65599#       发表于 2019-4-3 11:10
 
 
-
-
 设定集蘑菇设定的武藏打小次郎能赢还是剑道和纯剑技的差别呢，你看153那个一对无限薛定谔的比剑哪里有这意思了，没标明的不要期待参与度<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19293,14 +12211,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65600#       发表于 2019-4-3 13:30
 
 
-
-
 这beast太丢人了无论这剧情谁写的我以后都无脑黑<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19309,22 +12220,14 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65601#       发表于 2019-4-3 13:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">萌新吃饱没事把满条打了。。。。难度不存在的  就是浪费时间
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">阵容抄来的 熊莉亚+孔明+狐狸
-
-
-
-
-
 
 
 -----
 
 ####  ネロ  
 ##### 65602#       发表于 2019-4-3 13:48
-
-
 
 
 这活动真是劣化CCC<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
@@ -19345,16 +12248,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 己方从者→柳生
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65603#       发表于 2019-4-3 14:05
-
 
 
 <img src="http://wx1.sinaimg.cn/large/42a690bfgy1g1pet1oo16j20zk0qox6q.jpg" referrerpolicy="no-referrer">
@@ -19364,16 +12261,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后感谢挂熊莉亚的大佬
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65604#       发表于 2019-4-3 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43152233&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-3 14:05</a>
@@ -19383,16 +12274,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 刚想说你居然又有限定卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65605#       发表于 2019-4-3 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43152361&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-3 14:17</a>
@@ -19401,32 +12286,19 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新很非的 
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 65606#       发表于 2019-4-3 15:51
 
 
-
-
 看等下有没有ssy卡池吧，这次剧情还是加了我不少好感
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 65607#       发表于 2019-4-3 16:02
-
 
 
 <blockquote>alucardcz 发表于 2019-4-3 14:05
@@ -19436,16 +12308,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 赶紧去隔壁发个帖，云玩家看到氪氪说没过就开始吹难度了，另外紫衣bba更简单
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65608#       发表于 2019-4-3 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43153644&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-3 16:02</a>
@@ -19454,24 +12320,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我前面去回了几贴。。发贴就算了。。。
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 65609#       发表于 2019-4-3 16:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">高难它...咕咕了
-
-
-
-
-
 
 
 -----
@@ -19480,13 +12335,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65610#       发表于 2019-4-3 16:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">补偿石头吗
-
-
-
-
-
 
 
 -----
@@ -19495,14 +12344,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65611#       发表于 2019-4-3 16:37
 
 
-
-
 这活动后半段太咸鱼了啊
-
-
-
-
-
 
 
 -----
@@ -19511,14 +12353,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65612#       发表于 2019-4-3 16:40
 
 
-
-
 叶哥哥又做了个全力斗技prototype？然后发现蘑菇过不去比只狼还难又紧急削弱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19527,14 +12362,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65613#       发表于 2019-4-3 16:41
 
 
-
-
 咕咕咕😛还好我没令咒了
-
-
-
-
-
 
 
 -----
@@ -19543,14 +12371,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65614#       发表于 2019-4-3 16:48
 
 
-
-
 该开放令咒换石的功能了 1月不用3石就行！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19559,14 +12380,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65615#       发表于 2019-4-3 16:52
 
 
-
-
 六层第二次打爱神打不过去……
-
-
-
-
-
 
 
 -----
@@ -19575,14 +12389,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65616#       发表于 2019-4-3 17:02
 
 
-
-
 安定的杀生院池
-
-
-
-
-
 
 
 -----
@@ -19591,14 +12398,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65617#       发表于 2019-4-3 17:02
 
 
-
-
 没看到公告啊
-
-
-
-
-
 
 
 -----
@@ -19607,14 +12407,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65618#       发表于 2019-4-3 17:28
 
 
-
-
 看来只有周年才可能有那个男人的消息了
-
-
-
-
-
 
 
 -----
@@ -19623,14 +12416,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65619#       发表于 2019-4-3 17:51
 
 
-
-
 草，又是国日开一样的池子
-
-
-
-
-
 
 
 -----
@@ -19639,13 +12425,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65620#       发表于 2019-4-3 17:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">服务器怎么不爆炸啊  萌新急需维护石
-
-
-
-
-
 
 
 -----
@@ -19654,14 +12434,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65621#       发表于 2019-4-3 18:18
 
 
-
-
 感觉开头和结尾可能是蘑菇写的，中间肯定不是，杀生院所有和佛教相关的台词几乎都是照搬再临和战斗语音，只有“二次创作”才会这么写
-
-
-
-
-
 
 
 -----
@@ -19670,14 +12443,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65622#       发表于 2019-4-3 18:55
 
 
-
-
 杀生院累计有15单没有了 我不如买个有多宝杀生院的号得了。
-
-
-
-
-
 
 
 -----
@@ -19686,14 +12452,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65623#       发表于 2019-4-3 18:56
 
 
-
-
 杀生院典明成功获得了国日双服同时UP的壮举<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19702,13 +12461,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65624#       发表于 2019-4-3 20:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">院院20连屁没有
-
-
-
-
-
 
 
 -----
@@ -19717,15 +12470,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65625#       发表于 2019-4-3 20:39
 
 
-
 <blockquote>alucardcz 发表于 2019-4-3 17:58
 服务器怎么不爆炸啊  萌新急需维护石</blockquote>
 来一单😛
-
-
-
-
-
 
 
 -----
@@ -19734,16 +12481,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65626#       发表于 2019-4-3 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43157211&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-4-3 20:39</a>
 
 来一单😛</blockquote>
 你在对欧洲限定佬说什么呢？
-
-
-
-
-
 
 
 -----
@@ -19752,16 +12493,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65627#       发表于 2019-4-3 22:47
 
 
-
-
 搬战斗语音是惯例，大家都是这么干的。
 
 新年活动里麻雀在剧情里说战斗语音也不是一次两次了
-
-
-
-
-
 
 
 -----
@@ -19770,14 +12504,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65628#       发表于 2019-4-3 23:55
 
 
-
-
 月初护符玄学 一发白嫖 ssy
-
-
-
-
-
 
 
 -----
@@ -19786,14 +12513,8 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65629#       发表于 2019-4-3 23:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 <img src="https://wx2.sinaimg.cn/mw1024/007cKXqwgy1g1pubaz11dj30ux0gmwiv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19802,14 +12523,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65630#       发表于 2019-4-4 02:01
 
 
-
-
 补一单，野猪皮new，院院new，脚后跟new，柳但+2
-
-
-
-
-
 
 
 -----
@@ -19818,22 +12532,15 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65631#       发表于 2019-4-4 02:02
 
 
-
 <blockquote>黑上シグマ 发表于 2019-4-3 20:42
 你在对欧洲限定佬说什么呢？</blockquote>
 事实证明加一单就能出货
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65632#       发表于 2019-4-4 02:05
-
 
 
 <blockquote>manu88wh 发表于 2019-4-3 23:59
@@ -19844,25 +12551,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 通常爱神伽摩马拉比例是6:4，一旦比例反转变成4:6就会变成兽
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 65633#       发表于 2019-4-4 02:21
 
 
-
-
 日服真是友好，一单三宝伽摩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19871,14 +12566,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65634#       发表于 2019-4-4 08:28
 
 
-
-
 又恢复上线签到下线的快乐咸鱼每一天了,开森<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19887,16 +12575,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65635#       发表于 2019-4-4 09:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43160666&amp;ptid=1085254" target="_blank">シャル 发表于 2019-4-4 02:02</a>
 
 事实证明加一单就能出货</blockquote>
 哦，关我毛事
-
-
-
-
-
 
 
 -----
@@ -19905,14 +12587,8 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65636#       发表于 2019-4-4 09:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43159707&amp;ptid=1085254" target="_blank">manu88wh 发表于 2019-4-3 23:59</a></blockquote>
 社畜英灵太真实了，语音全是那种加班了一个月快要死掉的语气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19921,15 +12597,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65637#       发表于 2019-4-4 09:54
 
 
-
 <blockquote>黑上シグマ 发表于 2019-4-4 09:23
 哦，关我毛事</blockquote>
 看到一单出货我就知道他是谁了，不用搭理巨魔
-
-
-
-
-
 
 
 -----
@@ -19938,13 +12608,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65638#       发表于 2019-4-4 11:34
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无聊啊 没戏能看 没本能打 
-
-
-
-
-
 
 
 -----
@@ -19953,21 +12617,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65639#       发表于 2019-4-4 11:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">突然更新
-
-
-
-
-
 
 
 -----
 
 ####  Jamaisvu  
 ##### 65640#       发表于 2019-4-4 12:06
-
-
 
 
 也许是英灵出的太多了，有点审美疲劳？
@@ -19982,16 +12638,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 （其实写这些也是为了抑制住继续抽伽摩）
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65641#       发表于 2019-4-4 15:00
-
 
 
 <blockquote>dante888 发表于 2019-4-4 09:54
@@ -20006,16 +12656,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://img.overpic.net/images/1/f/8/x1f8em7x9cvs4rm65vevg.jpeg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  saintsimpler  
 ##### 65642#       发表于 2019-4-4 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43167048&amp;ptid=1085254" target="_blank">シャル 发表于 2019-4-4 15:00</a>
@@ -20025,16 +12669,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ...........
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65643#       发表于 2019-4-4 15:06
-
 
 
  本帖最后由 黑上シグマ 于 2019-4-4 15:08 编辑 
@@ -20048,24 +12686,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 我说的话完全不关你事的，你自己跳出来引用我在那里“加一单就能出货”，现在又“我出货关你们鸟事”，你没病吧？
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65644#       发表于 2019-4-4 15:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">豹豹楼上就算了 为什么还要挑战满宝巨佬
-
-
-
-
-
 
 
 -----
@@ -20074,22 +12701,15 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65645#       发表于 2019-4-4 15:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43167269&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-4 15:14</a>
 豹豹楼上就算了 为什么还要挑战满宝巨佬</blockquote>
 看到这种海豹我已经惊呆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  シャル  
 ##### 65646#       发表于 2019-4-4 15:23
-
 
 
 <blockquote>黑上シグマ 发表于 2019-4-4 15:06
@@ -20099,16 +12719,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 因为你引用上面楼层了啊，我后面说关你们屁事又没引用你，别乱针对好吧
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 65647#       发表于 2019-4-4 15:24
-
 
 
  本帖最后由 シャル 于 2019-4-4 15:26 编辑 
@@ -20119,16 +12733,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 我说的是dante888
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65648#       发表于 2019-4-4 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43167441&amp;ptid=1085254" target="_blank">シャル 发表于 2019-4-4 15:24</a>
@@ -20139,26 +12747,15 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说我的 咋了？
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65649#       发表于 2019-4-4 15:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43164203&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-4 11:34</a>
 无聊啊 没戏能看 没本能打</blockquote>
 你看看你说的没戏能看<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20167,16 +12764,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65650#       发表于 2019-4-4 15:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43167540&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-4-4 15:30</a>
 
 你看看你说的没戏能看</blockquote>
 可这戏也没啥好看的啊<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20185,15 +12776,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65651#       发表于 2019-4-4 15:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43167557&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-4 15:31</a>
 可这戏也没啥好看的啊</blockquote>
 好歹是戏啊<img src="https://static.saraba1st.com/image/smiley/bundam2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20202,16 +12787,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65652#       发表于 2019-4-4 15:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43167427&amp;ptid=1085254" target="_blank">シャル 发表于 2019-4-4 15:23</a>
 
 因为你引用上面楼层了啊，我后面说关你们屁事又没引用你，别乱针对好吧 ...</blockquote>
 哦，那我也能这样说啊：我引用上面楼层关你鸟事啊？要你跳出来引用我“加一单就能出货”？
-
-
-
-
-
 
 
 -----
@@ -20220,14 +12799,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65653#       发表于 2019-4-4 16:10
 
 
-
-
 说起来，现在谷歌似乎改规则了？我好像看现在很多人课美元卡都是只能50,50的课，100刀的直接充不进去
-
-
-
-
-
 
 
 -----
@@ -20236,15 +12808,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65654#       发表于 2019-4-4 16:14
 
 
-
 <blockquote>黑上シグマ 发表于 2019-4-4 16:10
 说起来，现在谷歌似乎改规则了？我好像看现在很多人课美元卡都是只能50,50的课，100刀的直接充不进去 ...</blockquote>
 我为了充舰b月卡课了100，不过发我的是2张50的，店主说现在只有50的，不过买卡还是直接买100的比2张50便宜
-
-
-
-
-
 
 
 -----
@@ -20253,16 +12819,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65655#       发表于 2019-4-4 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43168224&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-4 16:14</a>
 
 我为了充舰b月卡课了100，不过发我的是2张50的，店主说现在只有50的，不过买卡还是直接买100的比2张50便 ...</blockquote>
 我刚才找人问了问，说是现在检测语言，不是英语就不给充50以上
-
-
-
-
-
 
 
 -----
@@ -20271,14 +12831,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65656#       发表于 2019-4-4 16:59
 
 
-
-
 说是今天的更新提升了进本的读取速度？我咋没感觉到呢……
-
-
-
-
-
 
 
 -----
@@ -20287,16 +12840,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65657#       发表于 2019-4-4 17:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43168141&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-04-04 16:10:54</a>
 说起来，现在谷歌似乎改规则了？我好像看现在很多人课美元卡都是只能50,50的课，100刀的直接充不进去 ...</blockquote>100刀没法直接充，得另点开网址验证语言才行
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20305,13 +12852,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65658#       发表于 2019-4-4 17:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">全员ae！ 然而依然脚打（
-
-
-
-
-
 
 
 -----
@@ -20320,16 +12861,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65659#       发表于 2019-4-4 17:24
 
 
-
-
 全员ae还行<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -20338,13 +12872,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65660#       发表于 2019-4-4 17:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">主要有bug般的衣服 还有倍卡。 哈哈哈是无敌的
-
-
-
-
-
 
 
 -----
@@ -20353,14 +12881,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65661#       发表于 2019-4-4 17:39
 
 
-
-
 高难光妈轰炸完毕
-
-
-
-
-
 
 
 -----
@@ -20369,13 +12890,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65662#       发表于 2019-4-4 17:46
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">暴死完现在开始爬大奥...这读条跑迷宫真烦
-
-
-
-
-
 
 
 -----
@@ -20384,16 +12899,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65663#       发表于 2019-4-4 17:56
 
 
-
-
 杀生院吸了个爽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -20402,14 +12910,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65664#       发表于 2019-4-4 18:06
 
 
-
-
 3令咒复活，但是心情是“赶快死让我3令咒复活”，放弃思考真好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20418,13 +12919,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65665#       发表于 2019-4-4 18:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">想表演下北斋逆克制脚打 结果翻了 还浪费了一条令咒 萌新以后在也不浪了
-
-
-
-
-
 
 
 -----
@@ -20433,16 +12928,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65666#       发表于 2019-4-4 18:31
 
 
-
-
 这就没了啊。。。你游这次活动初看荡气回肠，结果还是长草一周<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 抽卡---长草---抽卡---长草---抽卡---长草，有点无聊啊
-
-
-
-
-
 
 
 -----
@@ -20451,14 +12939,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65667#       发表于 2019-4-4 19:02
 
 
-
-
 不用苹果就能搬空商店这一点要好评<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20467,14 +12948,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65668#       发表于 2019-4-4 19:34
 
 
-
-
 然后怕不是长草2周开2。4（活动剩余时间+真长草）
-
-
-
-
-
 
 
 -----
@@ -20483,23 +12957,16 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65669#       发表于 2019-4-4 21:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43170786&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-4 19:34</a>
 
 然后怕不是长草2周开2。4（活动剩余时间+真长草）</blockquote>
 4月底到5月初惯例是联动时间，在这之前开2.4？以dw的效率不乐观啊，搞不好2.4要5月了。
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 65670#       发表于 2019-4-4 21:28
-
 
 
  本帖最后由 khxooo 于 2019-4-4 21:30 编辑 
@@ -20509,16 +12976,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 如果不是2.4就是复刻魔神战线机会大一点，然后2.4，接着新的咕哒咕哒活动，上杉姐姐下地。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65671#       发表于 2019-4-4 21:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43172060&amp;ptid=1085254" target="_blank">虎克别音 发表于 2019-4-4 21:22</a>
@@ -20527,24 +12988,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这摸的太过了
 
 
-
-
-
-
-
 -----
 
 ####  kulanyee  
 ##### 65672#       发表于 2019-4-5 09:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">严格来算这已经是连续两个新活动了，下一个铁定是复刻
-
-
-
-
-
 
 
 -----
@@ -20553,13 +13003,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65673#       发表于 2019-4-5 09:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">活动还在第二层晃悠，还提不起劲去点点点，杯子要拿不到啦！！
-
-
-
-
-
 
 
 -----
@@ -20568,13 +13012,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65674#       发表于 2019-4-5 09:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无聊啊 无事发生 无事能干
-
-
-
-
-
 
 
 -----
@@ -20583,13 +13021,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65675#       发表于 2019-4-5 10:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/191.png" referrerpolicy="no-referrer">反正迷宫里面的战斗基本都是无脑点 手机放一边一会十几秒点一下 看电脑屏幕就是了 反正都是开一个宝具就过去了
-
-
-
-
-
 
 
 -----
@@ -20598,15 +13030,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65676#       发表于 2019-4-5 13:27
 
 
-
 <blockquote>alucardcz 发表于 2019-4-5 09:11
 无聊啊 无事发生 无事能干</blockquote>
 老咸鱼就是好，我这边刚做出罗恩，现在要开始肝路易的300万经验
-
-
-
-
-
 
 
 -----
@@ -20615,16 +13041,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65677#       发表于 2019-4-5 13:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43179193&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-5 13:27</a>
 
 老咸鱼就是好，我这边刚做出罗恩，现在要开始肝路易的300万经验</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么突然串台了
-
-
-
-
-
 
 
 -----
@@ -20633,15 +13053,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65678#       发表于 2019-4-5 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43179193&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-5 13:27</a>
 老咸鱼就是好，我这边刚做出罗恩，现在要开始肝路易的300万经验</blockquote>
 新秃子真好，我路易还差20w经验刷不动<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20650,16 +13064,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65679#       发表于 2019-4-5 13:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43179331&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-4-5 13:40</a>
 
 新秃子真好，我路易还差20w经验刷不动</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要怕听说第2期要来了
-
-
-
-
-
 
 
 -----
@@ -20668,16 +13076,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65680#       发表于 2019-4-5 13:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43179331&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-4-5 13:40</a>
 
 新秃子真好，我路易还差20w经验刷不动</blockquote>
 可这才是我第三艘船啊，2个池子都没毕业，长门池子还差113和霄月，现在金皮是3：3：0，我要死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20686,16 +13088,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65681#       发表于 2019-4-5 13:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43179366&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-5 13:42</a>
 
 可这才是我第三艘船啊，2个池子都没毕业，长门池子还差113和霄月，现在金皮是3：3：0，我要死了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钱能解决的问题能是问题吗！
-
-
-
-
-
 
 
 -----
@@ -20704,22 +13100,15 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65682#       发表于 2019-4-5 13:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43179366&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-5 13:42</a>
 可这才是我第三艘船啊，2个池子都没毕业，长门池子还差113和霄月，现在金皮是3：3：0，我要死了 ...</blockquote>
 路易是我第一艘<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白金口袋  
 ##### 65683#       发表于 2019-4-5 13:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43170417&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-4 05:02</a>
@@ -20730,16 +13119,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 真的开心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65684#       发表于 2019-4-5 13:52
-
 
 
 <blockquote>引用第65681楼dante888于2019-04-05 13:42发表的  :
@@ -20752,24 +13135,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 65685#       发表于 2019-4-5 13:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不是，我抬头看了下，这确实是废狗楼啊
-
-
-
-
-
 
 
 -----
@@ -20778,16 +13150,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65686#       发表于 2019-4-5 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43179487&amp;ptid=1085254" target="_blank">hylq2100 发表于 2019-4-5 13:55</a>
 
 不是，我抬头看了下，这确实是废狗楼啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是废狗没有东西可以聊啊？
-
-
-
-
-
 
 
 -----
@@ -20796,15 +13162,8 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65687#       发表于 2019-4-5 14:06
 
 
-
-
 去年的帝都圣杯奇谭差不多该复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">难道这次天海要落地了
-
-
-
-
-
 
 
 -----
@@ -20813,16 +13172,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65688#       发表于 2019-4-5 14:09
 
 
-
-
 肯定是信胜啦
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20831,14 +13183,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65689#       发表于 2019-4-5 15:19
 
 
-
-
 开始女术士打桩机3：狂滚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20847,13 +13192,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65690#       发表于 2019-4-5 15:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">听说现在跑迷宫没有黑屏了？ 有没有还没打完的大佬证实下
-
-
-
-
-
 
 
 -----
@@ -20862,23 +13201,16 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65691#       发表于 2019-4-5 15:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43180443&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-5 15:23</a>
 
 听说现在跑迷宫没有黑屏了？ 有没有还没打完的大佬证实下</blockquote>
 黑屏时间变短了，亲测<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65692#       发表于 2019-4-5 16:00
-
 
 
 <blockquote>阿提拉 发表于 2019-4-5 14:09
@@ -20889,17 +13221,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 弟弟看可以送嘛，然后五星jj，四星光头，成了，安排好了😄
 
 
-
-
-
-
-
 -----
 
 ####  katun  
 ##### 65693#       发表于 2019-4-5 16:07
-
-
 
 
 推上有人搞出了把黑屏消失的bug
@@ -20911,16 +13236,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 既然能做到的话为啥不一开始就这样搞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65694#       发表于 2019-4-5 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43180851&amp;ptid=1085254" target="_blank">katun 发表于 2019-4-5 16:07</a>
@@ -20933,16 +13252,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都打完了你还优化个猫.jpg
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65695#       发表于 2019-4-5 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43180867&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-5 16:08</a>
@@ -20951,16 +13264,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 攻酱精神.muda<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65696#       发表于 2019-4-5 16:43
-
 
 
 <blockquote>引用第65693楼Nozzy于2019-04-05 16:00发表的  :
@@ -20972,25 +13279,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 65697#       发表于 2019-4-5 17:33
 
 
-
-
 把迷宫跑完基本不用吃苹果就能搬完一般素材，安心去白金只狼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20999,16 +13294,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65698#       发表于 2019-4-5 18:01
 
 
-
-
 三年了，你游终于开发出了隐藏对话框的功能
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21017,17 +13305,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65699#       发表于 2019-4-5 18:25
 
 
-
-
 不太想打魔神人活动复刻，原版任务和周回就挺精污，要是再加上帝王花那样的要素就更难受了。
 我看不如复刻咕哒咕哒一期吧，给老玩家金方块，给新玩家送信长，两开花<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
 
 —— 来自 blackshark SKR-A0, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -21036,15 +13317,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65700#       发表于 2019-4-5 18:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">魔神总司从出图到实装都得一年多，我觉得今年上杉难落地，十有八九复刻一个活动就上2.4了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">换了XR疯狂吃屎，天天盼着客户端更新后能好点，然并卵，继续吃屎
-
-
-
-
-
 
 
 -----
@@ -21053,14 +13328,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65701#       发表于 2019-4-5 19:06
 
 
-
-
 换了手机重新下一括，发现有4.42G<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我开始担心这个128G会不够用
-
-
-
-
-
 
 
 -----
@@ -21069,23 +13337,16 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65702#       发表于 2019-4-5 19:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43182998&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-4-5 19:06</a>
 
 换了手机重新下一括，发现有4.42G我开始担心这个128G会不够用</blockquote>
 换啥手机了？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 65703#       发表于 2019-4-5 20:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43183605&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-5 19:58</a>
@@ -21096,24 +13357,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 我妈手机坏了，看上了我原来用的，叫我换<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  园咲雾彦  
 ##### 65704#       发表于 2019-4-5 20:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这次高难有什么作业能抄下吗？伯爵只有一宝哈不起来的样子
-
-
-
-
-
 
 
 -----
@@ -21122,16 +13372,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65705#       发表于 2019-4-5 20:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43184063&amp;ptid=1085254" target="_blank">园咲雾彦 发表于 2019-4-5 20:36</a>
 
 这次高难有什么作业能抄下吗？伯爵只有一宝哈不起来的样子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">光妈孔明梅林之类的划令咒轰呗
-
-
-
-
-
 
 
 -----
@@ -21140,16 +13384,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65706#       发表于 2019-4-5 20:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43184063&amp;ptid=1085254" target="_blank">园咲雾彦 发表于 2019-4-5 20:36</a>
 
 这次高难有什么作业能抄下吗？伯爵只有一宝哈不起来的样子</blockquote>
 同1宝伯爵，开局满破倍卡礼装伯爵双cba，后排宝石孔明，梅林最后防翻车。
-
-
-
-
-
 
 
 -----
@@ -21158,13 +13396,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65707#       发表于 2019-4-5 20:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我能哈  1宝伯爵
-
-
-
-
-
 
 
 -----
@@ -21173,13 +13405,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65708#       发表于 2019-4-6 01:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">5保1伯爵 稳
-
-
-
-
-
 
 
 -----
@@ -21188,14 +13414,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65709#       发表于 2019-4-6 09:29
 
 
-
-
 今天上线一看发现竟然有新人fo了我这种弱鸡
-
-
-
-
-
 
 
 -----
@@ -21204,16 +13423,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65710#       发表于 2019-4-6 09:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189414&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-6 09:29</a>
 
 今天上线一看发现竟然有新人fo了我这种弱鸡</blockquote>
 欧 羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（没毛病
-
-
-
-
-
 
 
 -----
@@ -21222,13 +13435,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65711#       发表于 2019-4-6 09:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪个大佬说下刷15w羁绊要多少苹果 急 在线不等
-
-
-
-
-
 
 
 -----
@@ -21237,16 +13444,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65712#       发表于 2019-4-6 09:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189519&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-6 09:42</a>
 
 哪个大佬说下刷15w羁绊要多少苹果 急 在线不等</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">打21体力的本一次1100的话20多个苹果就够了吧
-
-
-
-
-
 
 
 -----
@@ -21255,16 +13456,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65713#       发表于 2019-4-6 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189582&amp;ptid=1085254" target="_blank">v22325 发表于 2019-4-6 09:50</a>
 
 打21体力的本一次1100的话20多个苹果就够了吧</blockquote>
 哪个21的本。。
-
-
-
-
-
 
 
 -----
@@ -21273,15 +13468,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65714#       发表于 2019-4-6 09:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189519&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-6 09:42</a>
 哪个大佬说下刷15w羁绊要多少苹果 急 在线不等</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都要刷15绊了你还敢自称萌新？
-
-
-
-
-
 
 
 -----
@@ -21290,23 +13479,16 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65715#       发表于 2019-4-6 09:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189636&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-6 09:56</a>
 
 都要刷15绊了你还敢自称萌新？</blockquote>
 相信我，他只是想要拿30石
 
 
-
-
-
-
-
 -----
 
 ####  v22325  
 ##### 65716#       发表于 2019-4-6 10:00
-
 
 
  本帖最后由 v22325 于 2019-4-6 10:02 编辑 
@@ -21317,16 +13499,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">大奥活动本的话满加成应该也差不多 40体力苹果数x2就是了
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65717#       发表于 2019-4-6 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189636&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-6 09:56</a>
@@ -21335,31 +13511,19 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒 我只是想要30石最后一票
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65718#       发表于 2019-4-6 10:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想了想这么多苹果丢下去 万一不出货不是血亏  还是算了
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 65719#       发表于 2019-4-6 10:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189676&amp;ptid=1085254" target="_blank">v22325 发表于 2019-4-6 10:00</a>
@@ -21370,26 +13534,15 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 这破本各种掉杀饼干，心好累
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65720#       发表于 2019-4-6 10:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189646&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-6 09:57</a>
 相信我，他只是想要拿30石</blockquote>
 果然还是你了解萌新<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21398,16 +13551,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65721#       发表于 2019-4-6 10:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43189983&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-6 10:37</a>
 
 果然还是你了解萌新</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">15w羁绊 不是15羁绊 你累了！
-
-
-
-
-
 
 
 -----
@@ -21416,17 +13563,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65722#       发表于 2019-4-6 11:40
 
 
-
-
 十单三宝杀生院…YSLNMSL
 登陆送的30石倒是出了伽摩和雪山樱
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -21435,15 +13575,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65723#       发表于 2019-4-6 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43190043&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-6 10:44</a>
 15w羁绊 不是15羁绊 你累了！</blockquote>
 有区吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21452,16 +13586,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65724#       发表于 2019-4-6 12:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43191397&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-6 12:51</a>
 
 有区吗15w刷下去离15绊也不远了，为了30个石头肯定要继续刷啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实我打错了是1w5
-
-
-
-
-
 
 
 -----
@@ -21470,15 +13598,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65725#       发表于 2019-4-6 13:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43191465&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-6 12:58</a>
 其实我打错了是1w5</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1w5就简单多了
-
-
-
-
-
 
 
 -----
@@ -21487,16 +13609,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65726#       发表于 2019-4-6 13:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43191509&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-6 13:02</a>
 
 1w5就简单多了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又看了一边是15w 没错 被你忽悠了 10升11还是只差1丝都要15w
-
-
-
-
-
 
 
 -----
@@ -21505,14 +13621,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65727#       发表于 2019-4-6 19:48
 
 
-
-
 加了一天班错过了大戏，有点郁闷
-
-
-
-
-
 
 
 -----
@@ -21521,16 +13630,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65728#       发表于 2019-4-6 19:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43195708&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-6 19:48</a>
 
 加了一天班错过了大戏，有点郁闷</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥？ 哪有戏啊
-
-
-
-
-
 
 
 -----
@@ -21539,16 +13642,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65729#       发表于 2019-4-6 19:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43195708&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-6 19:48</a>
 
 加了一天班错过了大戏，有点郁闷</blockquote>
 哪来的戏
-
-
-
-
-
 
 
 -----
@@ -21557,15 +13654,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65730#       发表于 2019-4-6 20:04
 
 
-
  本帖最后由 白清羽 于 2019-4-30 19:30 编辑 
 
 谢谢大家
-
-
-
-
-
 
 
 -----
@@ -21574,16 +13665,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65731#       发表于 2019-4-6 20:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43195723&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-6 19:49</a>
 
 啥？ 哪有戏啊</blockquote>
 污D怼了一下刷脸组，好像被屎黄色论坛的人围攻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21592,16 +13677,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65732#       发表于 2019-4-6 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43195907&amp;ptid=1085254" target="_blank">白清羽 发表于 2019-4-6 20:04</a>
 
 新人求抱个大腿刷狗粮，PY码：693.837.070</blockquote>
 加了，欢迎难民，希望能坚持下去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21610,16 +13689,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65733#       发表于 2019-4-6 20:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43196301&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-6 20:42</a>
 
 加了，欢迎难民，希望能坚持下去</blockquote>
 多谢大佬<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21628,13 +13701,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65734#       发表于 2019-4-6 21:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">乃们这群老咸鱼又来骗萌新的PY点
-
-
-
-
-
 
 
 -----
@@ -21643,15 +13710,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65735#       发表于 2019-4-6 21:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43195907&amp;ptid=1085254" target="_blank">白清羽 发表于 2019-4-6 20:04</a>
 新人求抱个大腿刷狗粮，PY码：693.837.070</blockquote>
 需要挂什么出来？
-
-
-
-
-
 
 
 -----
@@ -21660,16 +13721,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65736#       发表于 2019-4-6 21:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43196746&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-6 21:19</a>
 
 需要挂什么出来？</blockquote>
 谢谢大佬，我没什么要求，能有个光炮从者三面开一炮足够了
-
-
-
-
-
 
 
 -----
@@ -21678,15 +13733,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65737#       发表于 2019-4-6 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43196957&amp;ptid=1085254" target="_blank">白清羽 发表于 2019-4-6 21:35</a>
 谢谢大佬，我没什么要求，能有个光炮从者三面开一炮足够了</blockquote>
 申请了，咸鱼只有一个3宝奶光不知道符合不符合需求<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21695,16 +13744,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65738#       发表于 2019-4-6 22:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43197316&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-6 22:07</a>
 
 申请了，咸鱼只有一个3宝奶光不知道符合不符合需求</blockquote>
 谢谢大佬<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21713,13 +13756,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65739#       发表于 2019-4-8 17:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然这么多天没人发贴 凉的透彻啊？
-
-
-
-
-
 
 
 -----
@@ -21728,15 +13765,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65740#       发表于 2019-4-8 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43222126&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-8 17:35</a>
 居然这么多天没人发贴 凉的透彻啊？</blockquote>
 长草，你又不豹，是这样的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21745,16 +13776,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65741#       发表于 2019-4-8 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43222194&amp;ptid=1085254" target="_blank">khxooo 发表于 2019-4-8 17:40</a>
 
 长草，你又不豹，是这样的了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天还有最后一发波纹
-
-
-
-
-
 
 
 -----
@@ -21763,14 +13788,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65742#       发表于 2019-4-8 20:27
 
 
-
-
 明天没有预告的话下一周都会很安静的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21779,15 +13797,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65743#       发表于 2019-4-8 23:33
 
 
-
 <blockquote>rooarr 发表于 2019-4-8 20:27
 明天没有预告的话下一周都会很安静的</blockquote>
 总觉得很安静呢，今天推上也没有生放送新闻
-
-
-
-
-
 
 
 -----
@@ -21796,13 +13808,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65744#       发表于 2019-4-9 00:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">来吧1600wdl
-
-
-
-
-
 
 
 -----
@@ -21811,14 +13817,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65745#       发表于 2019-4-9 09:54
 
 
-
-
 来吧  2.4
-
-
-
-
-
 
 
 -----
@@ -21827,14 +13826,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65746#       发表于 2019-4-9 10:36
 
 
-
-
 你好，2.4个和1600wdl是没有的
-
-
-
-
-
 
 
 -----
@@ -21843,16 +13835,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65747#       发表于 2019-4-9 10:46
 
 
-
-
 我没钱了，啥都别来了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -21861,14 +13846,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65748#       发表于 2019-4-9 12:46
 
 
-
-
 用紫式部打满德川迦摩打了1个多小时，不小心灭了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21877,13 +13855,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65749#       发表于 2019-4-9 14:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">新章和1600都没有，那就是钦定复刻？
-
-
-
-
-
 
 
 -----
@@ -21892,21 +13864,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65750#       发表于 2019-4-9 14:51
 
 
-
-
 想入坑日服 请问石头号安全吗？ 改了引继码后卖家还能找回吗？
-
-
-
-
-
 
 
 -----
 
 ####  花枝鱿鱼面  
 ##### 65751#       发表于 2019-4-9 15:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43234406&amp;ptid=1085254" target="_blank">上星 发表于 2019-4-9 14:51</a>
@@ -21918,25 +13882,13 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65752#       发表于 2019-4-9 16:51
 
 
-
-
 离无事发生还有8分钟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21945,15 +13897,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65753#       发表于 2019-4-9 16:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236039&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-9 16:51</a>
 离无事发生还有8分钟</blockquote>
 满怀希望吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21962,13 +13908,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65754#       发表于 2019-4-9 16:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">魔神总司复刻吧应该
-
-
-
-
-
 
 
 -----
@@ -21977,16 +13917,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65755#       发表于 2019-4-9 16:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236087&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-9 16:55</a>
 
 满怀希望吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天签到7天护符 有希望吗
-
-
-
-
-
 
 
 -----
@@ -21995,15 +13929,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65756#       发表于 2019-4-9 16:59
 
 
-
 <blockquote>alucardcz 发表于 2019-4-9 16:51
 离无事发生还有8分钟</blockquote>
 萌新都学会抢答了
-
-
-
-
-
 
 
 -----
@@ -22012,15 +13940,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65757#       发表于 2019-4-9 17:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236137&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-9 16:59</a>
 明天签到7天护符 有希望吗</blockquote>
 没有，毒奶一口<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22029,14 +13951,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65758#       发表于 2019-4-9 17:06
 
 
-
-
 无事发生XD
-
-
-
-
-
 
 
 -----
@@ -22045,14 +13960,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65759#       发表于 2019-4-9 17:07
 
 
-
-
 屑良树😷
-
-
-
-
-
 
 
 -----
@@ -22061,13 +13969,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65760#       发表于 2019-4-9 17:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">没有公告，基本可以肯定是明天直接开1600W了
-
-
-
-
-
 
 
 -----
@@ -22076,14 +13978,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65761#       发表于 2019-4-9 17:12
 
 
-
-
 毒奶明天五点直接开活动（
-
-
-
-
-
 
 
 -----
@@ -22092,14 +13987,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65762#       发表于 2019-4-9 17:16
 
 
-
-
 这几天陆陆续续加了许多S1的大佬，感谢大家的帮助，另外想奶一下明天1600w复刻始皇帝池子，尺阶再临只吃棋子，真的是萌新之友，后悔没在2.3期间就转战日服
-
-
-
-
-
 
 
 -----
@@ -22108,14 +13996,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65763#       发表于 2019-4-9 17:24
 
 
-
-
 有种1600wdl是某文学系berserker的预感。<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22124,13 +14005,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65764#       发表于 2019-4-9 17:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结果明天还是要维护
-
-
-
-
-
 
 
 -----
@@ -22139,14 +14014,7 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65765#       发表于 2019-4-9 18:00
 
 
-
-
 话说隔壁咋又炸了，有没有人来总结一下<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22155,16 +14023,9 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65766#       发表于 2019-4-9 18:02
 
 
-
-
 暗搓搓改立绘，IOS没人权，发了两个新客户端都没解决BUG
 
 随便选一个就够LGA爆炸了，还三个连着来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22173,23 +14034,16 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 ##### 65767#       发表于 2019-4-9 18:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236491&amp;ptid=1085254" target="_blank">fault 发表于 2019-4-9 17:24</a>
 
 有种1600wdl是某文学系berserker的预感。</blockquote>
 应该是骑黑呆吧，泳装的5星也就她没有复刻了。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65768#       发表于 2019-4-9 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236909&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-4-9 18:02</a>
@@ -22200,16 +14054,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">又有啥戏了。。正好摸鱼无事能干呢
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65769#       发表于 2019-4-9 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236909&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-4-9 18:02</a>
@@ -22219,16 +14067,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 除了上次的白枪又改立绘了？
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 65770#       发表于 2019-4-9 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236379&amp;ptid=1085254" target="_blank">白清羽 发表于 2019-4-9 17:16</a>
@@ -22237,31 +14079,19 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 不要做梦，始皇这才多久就想复刻？
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65771#       发表于 2019-4-9 18:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去戈壁翻了翻 没发现什么大戏啊。。。
-
-
-
-
-
 
 
 -----
 
 ####  白清羽  
 ##### 65772#       发表于 2019-4-9 18:09
-
 
 
 <blockquote>上坂莲华 发表于 2019-4-9 18:02
@@ -22271,16 +14101,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 然后在没任何公告的情况下发了四个石头四个苹果，nga已经有人发帖“你们说的bug对我都没影响，有石头苹果拿好开心”
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 65773#       发表于 2019-4-9 18:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236929&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-9 18:04</a>
@@ -22291,16 +14115,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 不过也就是没活动+今天维护一群人闲的蛋疼，等新卡池一开该母猪的还是会母猪的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白清羽  
 ##### 65774#       发表于 2019-4-9 18:12
-
 
 
 <blockquote>黑上シグマ 发表于 2019-4-9 18:06
@@ -22308,16 +14126,10 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 做梦索性就做得大点，我自己其实也觉得水无毛概率大点，好像当初新宿的老男人是隔了没几个月就复刻的
 
 
-
-
-
-
-
 -----
 
 ####  fault  
 ##### 65775#       发表于 2019-4-9 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236909&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-4-9 18:02</a>
@@ -22328,31 +14140,19 @@ beast的剧情以后还是都交给蘑菇算了，这气场不说跟I和II比，
 然而炸了还是不肯走啊<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65776#       发表于 2019-4-9 18:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就复课伯爵吧  萌新过几天就有50日的30石了。届一下2宝
-
-
-
-
-
 
 
 -----
 
 ####  上坂莲华  
 ##### 65777#       发表于 2019-4-9 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43236950&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-9 18:05</a>
@@ -22369,16 +14169,10 @@ IOS9以下不是人（4.2）
 无公告发了4石4果，IOS现在没解决←new
 
 
-
-
-
-
-
 -----
 
 ####  上坂莲华  
 ##### 65778#       发表于 2019-4-9 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43237068&amp;ptid=1085254" target="_blank">fault 发表于 2019-4-9 18:14</a>
@@ -22389,24 +14183,13 @@ IOS9以下不是人（4.2）
 我甚至见到了4.2大家都在骂的当天怼氪了SSY5宝的，美其名曰【我又不是来看卡面的】
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65779#       发表于 2019-4-9 20:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊 明天居然还要维护 难道有事要发生
-
-
-
-
-
 
 
 -----
@@ -22415,14 +14198,7 @@ IOS9以下不是人（4.2）
 ##### 65780#       发表于 2019-4-9 21:04
 
 
-
-
 奶一个无缝妇科魔神人你们说好不好呀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22431,14 +14207,7 @@ IOS9以下不是人（4.2）
 ##### 65781#       发表于 2019-4-9 21:48
 
 
-
-
 那就西哥吧,30石届一下2宝<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22447,15 +14216,9 @@ IOS9以下不是人（4.2）
 ##### 65782#       发表于 2019-4-9 23:01
 
 
-
  本帖最后由 白清羽 于 2019-4-18 15:50 编辑 
 
 解决了编辑了
-
-
-
-
-
 
 
 -----
@@ -22464,14 +14227,7 @@ IOS9以下不是人（4.2）
 ##### 65783#       发表于 2019-4-10 03:44
 
 
-
-
 ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22480,15 +14236,9 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65784#       发表于 2019-4-10 08:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">fsf的金皮卡又被轮了，成田可以
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22497,21 +14247,13 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65785#       发表于 2019-4-10 10:23
 
 
-
-
 下午来个fsf发售纪念卡池，复刻金闪闪如何
-
-
-
-
-
 
 
 -----
 
 ####  上星  
 ##### 65786#       发表于 2019-4-10 11:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43235055&amp;ptid=1085254" target="_blank">花枝鱿鱼面 发表于 2019-4-9 15:41</a>
@@ -22524,16 +14266,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 好的谢谢
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 65787#       发表于 2019-4-10 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43244373&amp;ptid=1085254" target="_blank">虎克别音 发表于 2019-4-10 10:23</a>
@@ -22542,24 +14278,13 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">根本，不可能（
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65788#       发表于 2019-4-10 15:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">离无事发生还有1个小时45分钟
-
-
-
-
-
 
 
 -----
@@ -22568,14 +14293,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65789#       发表于 2019-4-10 16:53
 
 
-
-
 毒奶长草一周<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22584,16 +14302,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65790#       发表于 2019-4-10 16:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43249874&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 16:53</a>
 
 毒奶长草一周</blockquote>
 就算是1600dl 本质也是长草啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22602,15 +14314,9 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65791#       发表于 2019-4-10 17:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43249946&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 16:57</a>
 就算是1600dl 本质也是长草啊</blockquote>
 有戏看，还算可以了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22619,14 +14325,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65792#       发表于 2019-4-10 17:02
 
 
-
-
 好无趣啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">1600w bx复刻
-
-
-
-
-
 
 
 -----
@@ -22635,16 +14334,9 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65793#       发表于 2019-4-10 17:02
 
 
-
-
 1600W，BX
 
 いらん！
-
-
-
-
-
 
 
 -----
@@ -22653,14 +14345,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65794#       发表于 2019-4-10 17:03
 
 
-
-
 (相当于)无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22669,14 +14354,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65795#       发表于 2019-4-10 17:03
 
 
-
-
 终于有幕间成就了
-
-
-
-
-
 
 
 -----
@@ -22685,16 +14363,9 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65796#       发表于 2019-4-10 17:04
 
 
-
-
 根据打掉的幕间数量送石头！
 
 直接送一单！
-
-
-
-
-
 
 
 -----
@@ -22703,13 +14374,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65797#       发表于 2019-4-10 17:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">擦  绿方块。。他不够了！
-
-
-
-
-
 
 
 -----
@@ -22718,14 +14383,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65798#       发表于 2019-4-10 17:07
 
 
-
-
 送了200石头...顺便仓库又扩充了
-
-
-
-
-
 
 
 -----
@@ -22734,16 +14392,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65799#       发表于 2019-4-10 17:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250086&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-4-10 17:07</a>
 
 送了200石头...顺便仓库又扩充了</blockquote>
 现在幕间一共多少个？我才181……
-
-
-
-
-
 
 
 -----
@@ -22752,14 +14404,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65800#       发表于 2019-4-10 17:09
 
 
-
-
 萌新该豹跳了，送了这么多不豹一下好意思吗
-
-
-
-
-
 
 
 -----
@@ -22768,16 +14413,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65801#       发表于 2019-4-10 17:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250092&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-10 17:08</a>
 
 现在幕间一共多少个？我才181……</blockquote>
 193个好像
-
-
-
-
-
 
 
 -----
@@ -22786,14 +14425,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65802#       发表于 2019-4-10 17:11
 
 
-
-
 我中了。<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22802,16 +14434,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65803#       发表于 2019-4-10 17:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250125&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-4-10 17:10</a>
 
 193个好像</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我已经把我能打的幕间全打完了，还有9个不指望了……
-
-
-
-
-
 
 
 -----
@@ -22820,14 +14446,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65804#       发表于 2019-4-10 17:14
 
 
-
-
 拿了送的一单，抽出3个金方块，这个月的梦火有着落了，还算不错<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22836,15 +14455,9 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65805#       发表于 2019-4-10 17:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">139个幕间 全砸了 宝石翁+1 4星loli r姐一个 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">宝石翁终于5张了。。。但是不能满破啊。。还少1
-
-
-
-
-
 
 
 -----
@@ -22853,16 +14466,9 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65806#       发表于 2019-4-10 17:17
 
 
-
-
 剩的1护肤布妈，十连第一发就是BX，和夹馍的千石一郎平衡了
 
 算上送了100石和护符我居然还赚了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">最近不黑叶哥哥了
-
-
-
-
-
 
 
 -----
@@ -22871,14 +14477,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65807#       发表于 2019-4-10 17:19
 
 
-
-
 去到24號都是迷之英雄UP...
-
-
-
-
-
 
 
 -----
@@ -22887,20 +14486,13 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65808#       发表于 2019-4-10 17:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新凉的透彻 怎么办 还有救吗
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 65809#       发表于 2019-4-10 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250225&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 17:16</a>
@@ -22911,16 +14503,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 满破啊，有cba了基本用不到两个宝石的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65810#       发表于 2019-4-10 17:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250286&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 17:20</a>
@@ -22929,26 +14515,15 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不行啊 有时候摸鱼还是要2张宝石的
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65811#       发表于 2019-4-10 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250310&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 17:21</a>
 不行啊 有时候摸鱼还是要2张宝石的</blockquote>
 什么时候需要摸鱼还上两个宝石？一堆50自充和大英雄，cba之后根本不存在这种场景了吧
-
-
-
-
-
 
 
 -----
@@ -22957,14 +14532,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65812#       发表于 2019-4-10 17:23
 
 
-
-
 一直黑屏
-
-
-
-
-
 
 
 -----
@@ -22973,16 +14541,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65813#       发表于 2019-4-10 17:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250329&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 17:23</a>
 
 什么时候需要摸鱼还上两个宝石？一堆50自充和大英雄，cba之后根本不存在这种场景了吧 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">有啊 例如日常 2张宝石翁啊  只要点一下技能
-
-
-
-
-
 
 
 -----
@@ -22991,15 +14553,9 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65814#       发表于 2019-4-10 17:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250377&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 17:26</a>
 有啊 例如日常 2张宝石翁啊  只要点一下技能</blockquote>
 哪个日常本？qp我冲浪的，其他日常也不是两个宝具就能打完吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23008,14 +14564,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65815#       发表于 2019-4-10 17:28
 
 
-
-
 日服实在太爽了吧，只恨年轻时没好好学日文
-
-
-
-
-
 
 
 -----
@@ -23024,14 +14573,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65816#       发表于 2019-4-10 17:29
 
 
-
-
 110个幕间，再自己出了10个石头，来了JK、武后、海妈和迪昂，算是很好了，不过要常驻夏洛特了，海妈技能卡灰。
-
-
-
-
-
 
 
 -----
@@ -23040,16 +14582,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65817#       发表于 2019-4-10 17:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250417&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 17:28</a>
 
 哪个日常本？qp我冲浪的，其他日常也不是两个宝具就能打完吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我所有日常本都是2宝石狂+1大英雄
-
-
-
-
-
 
 
 -----
@@ -23058,23 +14594,15 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65818#       发表于 2019-4-10 17:34
 
 
-
-
 领了140石，抽了个两宝柳生，还行吧
 
 羡慕萌新有宝石，我玩这么久还没见过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65819#       发表于 2019-4-10 17:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250505&amp;ptid=1085254" target="_blank">ネロ 发表于 2019-4-10 17:34</a>
@@ -23085,24 +14613,13 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别羡慕了 萌新150石凉透了  这宝石+2才行 +1等于没有
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65820#       发表于 2019-4-10 17:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">7天后10护符 11天后30石 萌新还有希望。吗
-
-
-
-
-
 
 
 -----
@@ -23111,14 +14628,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65821#       发表于 2019-4-10 17:42
 
 
-
-
 才打了88个幕间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">30石意思意思毛都没出
-
-
-
-
-
 
 
 -----
@@ -23127,21 +14637,13 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65822#       发表于 2019-4-10 17:58
 
 
-
-
 现在才反应过来，我抽bx是为了啥呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  千叶铁矢  
 ##### 65823#       发表于 2019-4-10 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250225&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 17:16</a>
@@ -23152,16 +14654,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 满破啊，你天天哈哈哈凸了多好
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65824#       发表于 2019-4-10 18:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250827&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2019-4-10 18:02</a>
@@ -23170,16 +14666,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是我天天哈哈哈也已经习惯了没满破宝石
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65825#       发表于 2019-4-10 18:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250768&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 17:58</a>
@@ -23188,26 +14678,15 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是为了豹
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65826#       发表于 2019-4-10 18:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250930&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 18:07</a>
 是为了豹</blockquote>
 哪里有豹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23216,16 +14695,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65827#       发表于 2019-4-10 18:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43250995&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 18:12</a>
 
 哪里有豹</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3个金方块不是豹吗
-
-
-
-
-
 
 
 -----
@@ -23234,22 +14707,15 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65828#       发表于 2019-4-10 18:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251056&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 18:15</a>
 3个金方块不是豹吗</blockquote>
 你是说迪昂马大和尼托吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65829#       发表于 2019-4-10 18:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251098&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 18:18</a>
@@ -23260,32 +14726,19 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 萌新也想要金方块！
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 65830#       发表于 2019-4-10 18:22
 
 
-
-
 输得透彻,送的石头全部1s十连,果然莫有灵魂的石头是不行的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 65831#       发表于 2019-4-10 18:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251122&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 18:20</a>
@@ -23295,32 +14748,19 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 有什么羡慕的，new才重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白清羽  
 ##### 65832#       发表于 2019-4-10 18:26
 
 
-
-
 叶十石要打到2.3才能打，忧伤了
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 65833#       发表于 2019-4-10 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251167&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 18:23</a>
@@ -23330,16 +14770,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可自从歪出了梦寐以求的蓝呆后 感觉豹力到头了。怎么办
 
 
-
-
-
-
-
 -----
 
 ####  ネロ  
 ##### 65834#       发表于 2019-4-10 18:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251234&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 18:28</a>
@@ -23352,16 +14786,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 萌新的豹力无穷无尽
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65835#       发表于 2019-4-10 18:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251203&amp;ptid=1085254" target="_blank">白清羽 发表于 2019-4-10 18:26</a>
@@ -23369,16 +14797,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 看了下只用过2.3序，不用打2.3
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65836#       发表于 2019-4-10 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251234&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 18:28</a>
@@ -23388,16 +14810,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 你这种海豹说自己不豹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的有人会信吗
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65837#       发表于 2019-4-10 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251272&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 18:30</a>
@@ -23406,16 +14822,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">已经连续3期没出货了啊
 
 
-
-
-
-
-
 -----
 
 ####  白清羽  
 ##### 65838#       发表于 2019-4-10 18:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251257&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-10 18:29</a>
@@ -23424,27 +14834,15 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 哦哦那还好点，感觉还可以靠各位大佬的助战拼拼看
 
 
-
-
-
-
-
 -----
 
 ####  花枝鱿鱼面  
 ##### 65839#       发表于 2019-4-10 18:46
 
 
-
-
 2.2锁拿皇助战那场有点难
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -23453,16 +14851,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65840#       发表于 2019-4-10 18:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251288&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-10 18:31</a>
 
 已经连续3期没出货了啊</blockquote>
 所以更要豹一下了啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23471,16 +14863,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65841#       发表于 2019-4-10 18:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43251487&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-4-10 18:48</a>
 
 所以更要豹一下了啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是已经凉了啊
-
-
-
-
-
 
 
 -----
@@ -23489,13 +14875,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65842#       发表于 2019-4-10 18:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仓库扩完了。。绿方块又只剩100个了
-
-
-
-
-
 
 
 -----
@@ -23504,14 +14884,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65843#       发表于 2019-4-10 19:47
 
 
-
-
 话说这次更新完后，ios丝般顺滑，终于舍得请程序员了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23520,17 +14893,10 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65844#       发表于 2019-4-10 20:47
 
 
-
-
 去数了下我缺的幕间，X毛3个，金时2个，黑狗2个，剩下特斯拉、哪吒、羽蛇神、伊莉雅、酒吞各1
 
 
 感觉这里面唯一有希望今后开的就一个哪吒（
-
-
-
-
-
 
 
 -----
@@ -23539,14 +14905,7 @@ ae这个70w的清姬……打扰了<img src="https://static.saraba1st.com/image/
 ##### 65845#       发表于 2019-4-10 21:17
 
 
-
-
 md出了蓝呆，宝具+1，BX呢？
-
-
-
-
-
 
 
 -----
@@ -23555,14 +14914,7 @@ md出了蓝呆，宝具+1，BX呢？
 ##### 65846#       发表于 2019-4-10 21:38
 
 
-
-
 送的石+存的一点全抽了无事发生，等一周再补宝具吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23571,21 +14923,13 @@ md出了蓝呆，宝具+1，BX呢？
 ##### 65847#       发表于 2019-4-10 23:44
 
 
-
-
 草，189个幕间，没打的就是小安的10绊幕间，这就是没有弓凛和花嫁的代价么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 65848#       发表于 2019-4-10 23:50
-
 
 
 <blockquote>引用第65848楼dante888于2019-04-10 23:44发表的  :
@@ -23597,16 +14941,10 @@ md出了蓝呆，宝具+1，BX呢？
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65849#       发表于 2019-4-11 00:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43254908&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-10 23:44</a>
@@ -23614,16 +14952,10 @@ md出了蓝呆，宝具+1，BX呢？
 我晚上打小安的幕间翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 65850#       发表于 2019-4-11 00:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43254974&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-10 23:50</a>
@@ -23635,25 +14967,13 @@ md出了蓝呆，宝具+1，BX呢？
 圣诞的时候没把他挂后排真是失算了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 65851#       发表于 2019-4-11 00:29
 
 
-
-
 话说萌新能打几个幕间？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23662,13 +14982,7 @@ md出了蓝呆，宝具+1，BX呢？
 ##### 65852#       发表于 2019-4-11 00:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">打了142剩一个小安不能打的我弱爆了
-
-
-
-
-
 
 
 -----
@@ -23677,14 +14991,7 @@ md出了蓝呆，宝具+1，BX呢？
 ##### 65853#       发表于 2019-4-11 01:02
 
 
-
-
 一单下去一个bx一个双子一个b喵一个jk..叶卫兵（一天限定）<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23693,14 +15000,7 @@ md出了蓝呆，宝具+1，BX呢？
 ##### 65854#       发表于 2019-4-11 02:21
 
 
-
-
 萌新才50个，还有比我咸的么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23709,14 +15009,7 @@ md出了蓝呆，宝具+1，BX呢？
 ##### 65855#       发表于 2019-4-11 08:12
 
 
-
-
 我只剩600石头了😷，好在还是2宝了
-
-
-
-
-
 
 
 -----
@@ -23725,21 +15018,13 @@ md出了蓝呆，宝具+1，BX呢？
 ##### 65856#       发表于 2019-4-11 08:30
 
 
-
-
 一次性清了20个幕间，想吐<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  闽明  
 ##### 65857#       发表于 2019-4-11 08:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43255842&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2019-4-11 02:21</a>
@@ -23749,16 +15034,10 @@ md出了蓝呆，宝具+1，BX呢？
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">咸鱼如我，去年泳装活动入坑，赶赶主线，打打活动，幕间和强化本都没开几个
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65858#       发表于 2019-4-11 09:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43255307&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-11 00:29</a>
@@ -23767,26 +15046,15 @@ md出了蓝呆，宝具+1，BX呢？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">qianmian说了 139个啊
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 65859#       发表于 2019-4-11 09:33
 
 
-
 <blockquote>alucardcz 发表于 2019-4-11 09:11
 qianmian说了 139个啊</blockquote>
 可以可以
-
-
-
-
-
 
 
 -----
@@ -23795,16 +15063,10 @@ qianmian说了 139个啊</blockquote>
 ##### 65860#       发表于 2019-4-11 09:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43257362&amp;ptid=1085254" target="_blank">dante888 发表于 2019-4-11 09:33</a>
 
 可以可以</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新无惨 已经好久没new新5星了
-
-
-
-
-
 
 
 -----
@@ -23813,14 +15075,7 @@ qianmian说了 139个啊</blockquote>
 ##### 65861#       发表于 2019-4-11 16:36
 
 
-
-
 cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
-
-
-
-
-
 
 
 -----
@@ -23829,14 +15084,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65862#       发表于 2019-4-11 17:02
 
 
-
-
 突然更新
-
-
-
-
-
 
 
 -----
@@ -23845,14 +15093,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65863#       发表于 2019-4-11 17:05
 
 
-
-
 明天开帝都复刻
-
-
-
-
-
 
 
 -----
@@ -23861,14 +15102,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65864#       发表于 2019-4-11 17:09
 
 
-
-
 居然不长草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不符合传统啊
-
-
-
-
-
 
 
 -----
@@ -23877,14 +15111,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65865#       发表于 2019-4-11 17:14
 
 
-
-
 又是单纯的复刻，不开个技能本宝具本什么的垃圾活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23893,16 +15120,9 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65866#       发表于 2019-4-11 17:15
 
 
-
-
 后半段up天海好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -23911,13 +15131,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65867#       发表于 2019-4-11 17:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看我说啥来着，无缝（2天）接魔神人妇科，你们叶哥哥骗过你们吗
-
-
-
-
-
 
 
 -----
@@ -23926,14 +15140,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65868#       发表于 2019-4-11 17:23
 
 
-
-
 好好好 5个金方块！
-
-
-
-
-
 
 
 -----
@@ -23942,16 +15149,10 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65869#       发表于 2019-4-11 17:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43263715&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-11 17:14</a>
 
 又是单纯的复刻，不开个技能本宝具本什么的垃圾活动</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送金方块的都是好复课
-
-
-
-
-
 
 
 -----
@@ -23960,15 +15161,9 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65870#       发表于 2019-4-11 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43263824&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-11 17:23</a>
 送金方块的都是好复课</blockquote>
 现在还有哪个复刻没金方块吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23977,16 +15172,10 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65871#       发表于 2019-4-11 17:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43263844&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-11 17:24</a>
 
 现在还有哪个复刻没金方块吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚结束的迷宫复课肯定没金方块（
-
-
-
-
-
 
 
 -----
@@ -23995,15 +15184,9 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65872#       发表于 2019-4-11 17:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43263852&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-11 17:25</a>
 刚结束的迷宫复课肯定没金方块（</blockquote>
 这个不就是跟爬塔活动一样不会复刻的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24012,14 +15195,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65873#       发表于 2019-4-11 17:46
 
 
-
-
 复刻完了直接来新的咕哒咕哒八华枪兵再骗一波氪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24028,14 +15204,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65874#       发表于 2019-4-11 17:59
 
 
-
-
 奶中了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24044,14 +15213,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65875#       发表于 2019-4-11 18:02
 
 
-
-
 帝都复刻了？不用抽卡哦耶
-
-
-
-
-
 
 
 -----
@@ -24060,16 +15222,10 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65876#       发表于 2019-4-11 18:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43264338&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-11 18:02</a>
 
 帝都复刻了？不用抽卡哦耶</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5宝 请
-
-
-
-
-
 
 
 -----
@@ -24078,16 +15234,10 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65877#       发表于 2019-4-11 18:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43264615&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-11 18:25</a>
 
 5宝 请</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不抽 滚
-
-
-
-
-
 
 
 -----
@@ -24096,16 +15246,9 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65878#       发表于 2019-4-11 18:29
 
 
-
-
 不用抽卡，哦耶<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -24114,14 +15257,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65879#       发表于 2019-4-11 19:32
 
 
-
-
 目前进度才第四章，看来得争取下礼拜开位，尽量摸个龙马的末班车了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24130,14 +15266,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65880#       发表于 2019-4-11 19:43
 
 
-
-
 我还以为终于能2.4了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24146,14 +15275,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65881#       发表于 2019-4-11 19:46
 
 
-
-
 按照这摸鱼度怕不是要5月了。
-
-
-
-
-
 
 
 -----
@@ -24162,14 +15284,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65882#       发表于 2019-4-11 20:19
 
 
-
-
 惯例预定一个GUDAGUDA的新活动，事件簿联动又不能放太前面，今年是不是只能实装2章<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24178,14 +15293,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65883#       发表于 2019-4-11 21:49
 
 
-
-
 估计是复刻，2.4，然后新咕哒咕哒吧
-
-
-
-
-
 
 
 -----
@@ -24194,16 +15302,9 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65884#       发表于 2019-4-11 22:00
 
 
-
-
 就现在的速度弄不好无敌的队长能拖到明年才倒下
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24212,14 +15313,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65885#       发表于 2019-4-11 22:16
 
 
-
-
 2.4要5月开很正常，主线减半5月10日才结束，我不记得fgo什么时候有过开着主线减半的时候更新主线的例子，而且AJ离场时叶良树说的话明显暗示主线暂时不会更新。
-
-
-
-
-
 
 
 -----
@@ -24228,14 +15322,7 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65886#       发表于 2019-4-11 22:20
 
 
-
-
 一年一章吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这样既能保证2.0结束关服，又可以多骗几年钱
-
-
-
-
-
 
 
 -----
@@ -24244,19 +15331,11 @@ cba啥时候再抽啊，石头快捂不住了（虽然也才两百多个）
 ##### 65887#       发表于 2019-4-11 22:36
 
 
-
-
 简直可以写书惹🙄，就叫忧云葬狗吧
-
-
-
-
 
 
 Screenshot_2019-04-11-22-31-16-690_com.android.browser.png
 (47.7 KB, 下载次数: 10)
-
-
 
 
 下载附件
@@ -24265,24 +15344,7 @@ Screenshot_2019-04-11-22-31-16-690_com.android.browser.png
 2019-4-11 22:35 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/11/223529ztr2tqj4hrraa4bb.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -24291,16 +15353,10 @@ Screenshot_2019-04-11-22-31-16-690_com.android.browser.png
 ##### 65888#       发表于 2019-4-11 22:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43267352&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-4-11 22:36</a>
 
 简直可以写书惹🙄，就叫忧云葬狗吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面我看看还挺正常 最后一句结果是玩国服的 喷了
-
-
-
-
-
 
 
 -----
@@ -24309,19 +15365,11 @@ Screenshot_2019-04-11-22-31-16-690_com.android.browser.png
 ##### 65889#       发表于 2019-4-11 22:49
 
 
-
-
 还有之前一个笑料我没忍住就开号去喷了，索性在锁帖前截图，气孔师证据+1
-
-
-
-
 
 
 Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 (48.33 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -24330,24 +15378,7 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 2019-4-11 22:47 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/11/224757w4nmqgpelyuhsq4s.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -24356,16 +15387,10 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65890#       发表于 2019-4-11 23:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43267474&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-11 22:46</a>
 
 前面我看看还挺正常 最后一句结果是玩国服的 喷了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一样的想法，看前边吹了半天对2.4有多么期待，结果最后一看是玩国服的，那你急个屁啊
-
-
-
-
-
 
 
 -----
@@ -24374,16 +15399,9 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65891#       发表于 2019-4-11 23:52
 
 
-
-
 给小BX补了宝具，新泳装之前只要没有夹馍级别立绘的从者就都不用课金了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 2019前四个月运营就把我之前计划抽的目标都UP了一遍也是妹想到。
-
-
-
-
-
 
 
 -----
@@ -24392,16 +15410,10 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65892#       发表于 2019-4-12 01:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43267352&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-4-11 22:36</a>
 
 简直可以写书惹🙄，就叫忧云葬狗吧</blockquote>
 草，我说我上班的时候看不是这个标题啊，怪不得第四页开始转风向了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24410,14 +15422,7 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65893#       发表于 2019-4-12 01:19
 
 
-
-
 2.4有啥好期待的，我不记得有什么特别的地方预告了2.4非同寻常吧
-
-
-
-
-
 
 
 -----
@@ -24426,21 +15431,13 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65894#       发表于 2019-4-12 10:03
 
 
-
-
 这次不用抽，很爽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 65895#       发表于 2019-4-12 10:10
-
 
 
 <blockquote>引用第65894楼rooarr于2019-04-12 01:19发表的  :
@@ -24452,25 +15449,13 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  yangun22  
 ##### 65896#       发表于 2019-4-12 10:51
 
 
-
-
 说老实话2.4印度神话本来感冒的人就不多，水濑的可能性又高，我对2.4的期待基本都在妲己和道满关联上
-
-
-
-
-
 
 
 -----
@@ -24479,14 +15464,7 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65897#       发表于 2019-4-12 10:51
 
 
-
-
 只期待學妹何時才能強化，又說正在為她弄武器中...
-
-
-
-
-
 
 
 -----
@@ -24495,16 +15473,9 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65898#       发表于 2019-4-12 11:24
 
 
-
-
 看了一下那个lz是道满粉，日服也有号
 
 但是我还是对bgo玩家对日服的过度关注感到迷惑……
-
-
-
-
-
 
 
 -----
@@ -24513,14 +15484,7 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65899#       发表于 2019-4-12 11:25
 
 
-
-
 大奥写这鸟样，还期待2.4？
-
-
-
-
-
 
 
 -----
@@ -24529,14 +15493,7 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65900#       发表于 2019-4-12 16:21
 
 
-
-
 游戏版本更新了，记得更新免得五点进不去游戏
-
-
-
-
-
 
 
 -----
@@ -24545,14 +15502,7 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65901#       发表于 2019-4-12 17:07
 
 
-
-
 居然还没人豹跳吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24561,16 +15511,10 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65902#       发表于 2019-4-12 17:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43276828&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-12 17:07</a>
 
 居然还没人豹跳吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">复刻活动有啥可跳的
-
-
-
-
-
 
 
 -----
@@ -24579,16 +15523,10 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65903#       发表于 2019-4-12 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43276828&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-12 17:07</a>
 
 居然还没人豹跳吗</blockquote>
 （去年）我抽了，一发出了，有什么好说的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24597,16 +15535,9 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65904#       发表于 2019-4-12 17:35
 
 
-
-
 那么我来豹一个 继SSY10单三宝后终于十连出货啦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24615,15 +15546,9 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65905#       发表于 2019-4-12 17:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43277002&amp;ptid=1085254" target="_blank">阿提拉 发表于 2019-4-12 17:17</a>
 复刻活动有啥可跳的</blockquote>
 看来这个复刻不得人心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年都抽够了
-
-
-
-
-
 
 
 -----
@@ -24632,14 +15557,7 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65906#       发表于 2019-4-12 17:43
 
 
-
-
 这活动原来是增援类的? 辣鸡活动我不要金方块了 换个复课行吗
-
-
-
-
-
 
 
 -----
@@ -24648,15 +15566,9 @@ Screenshot_2019-04-09-13-59-38-058_com.android.browser.png
 ##### 65907#       发表于 2019-4-12 17:44
 
 
-
 <blockquote>rooarr 发表于 2019-4-12 17:07
 居然还没人豹跳吗</blockquote>
 bx就吃完了拿头豹跳🙄
-
-
-
-
-
 
 
 -----
@@ -24665,16 +15577,10 @@ bx就吃完了拿头豹跳🙄
 ##### 65908#       发表于 2019-4-12 17:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43277118&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2019-4-12 17:24</a>
 
 （去年）我抽了，一发出了，有什么好说的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 大佬居然能出货  不是应该我充了我抽了但无事发生吗
-
-
-
-
-
 
 
 -----
@@ -24683,14 +15589,7 @@ bx就吃完了拿头豹跳🙄
 ##### 65909#       发表于 2019-4-12 17:54
 
 
-
-
 那我来豹一个，两单出了魔总加院院，当然还是比不上泥潭平均豹力就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24699,16 +15598,10 @@ bx就吃完了拿头豹跳🙄
 ##### 65910#       发表于 2019-4-12 17:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43277447&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-12 17:45</a>
 
 什么 大佬居然能出货  不是应该我充了我抽了但无事发生吗</blockquote>
 CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24717,14 +15610,7 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65911#       发表于 2019-4-12 18:33
 
 
-
-
 又是一个十连礼装都没一张，萌新也想豹跳抽个魔神总司啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24733,13 +15619,7 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65912#       发表于 2019-4-12 19:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这本我以前是怎么刷的..第1波大英雄都炸不掉  有增援又不能哈哈哈(那时候有哈哈哈了吗
-
-
-
-
-
 
 
 -----
@@ -24748,16 +15628,10 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65913#       发表于 2019-4-12 19:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43278714&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-12 19:28</a>
 
 这本我以前是怎么刷的..第1波大英雄都炸不掉  有增援又不能哈哈哈(那时候有哈哈哈了吗 ...</blockquote>
 哈哈哈去年夏天才有的啊，帝都哪儿来哈哈哈
-
-
-
-
-
 
 
 -----
@@ -24766,16 +15640,10 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65914#       发表于 2019-4-12 20:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43279215&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-12 19:59</a>
 
 哈哈哈去年夏天才有的啊，帝都哪儿来哈哈哈</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这活动当年怎么刷的 我不记得了
-
-
-
-
-
 
 
 -----
@@ -24784,14 +15652,7 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65915#       发表于 2019-4-12 20:08
 
 
-
-
 没看攻略被主线信长无限连发浪费了令咒，这活动难度有点高啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24800,14 +15661,7 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65916#       发表于 2019-4-12 20:12
 
 
-
-
 又到了我第65535喜欢的追加出现率活动了
-
-
-
-
-
 
 
 -----
@@ -24816,16 +15670,9 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65917#       发表于 2019-4-12 20:45
 
 
-
-
 是要长草到5月吗，有点爽
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -24834,14 +15681,7 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65918#       发表于 2019-4-12 22:06
 
 
-
-
 终于有一个不用课金的池子了，复刻是好文明
-
-
-
-
-
 
 
 -----
@@ -24850,14 +15690,7 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65919#       发表于 2019-4-12 22:37
 
 
-
-
 霸王花打这种长本真是好啊，越长优势越大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24866,22 +15699,13 @@ CBA池子前的我是所向无敌的<img src="https://static.saraba1st.com/image
 ##### 65920#       发表于 2019-4-12 23:38
 
 
-
-
 十连抽到个红a才发现自己满破的我不知道什么时候卖了我都没发现
-
-
-
-
-
 
 
 -----
 
 ####  花枝鱿鱼面  
 ##### 65921#       发表于 2019-4-13 10:16
-
-
 
 
 egypt
@@ -24894,25 +15718,13 @@ wine
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
 
 
-
-
-
-
-
 -----
 
 ####  rxrx  
 ##### 65922#       发表于 2019-4-13 10:53
 
 
-
-
 真糟糕，不要说是抽了，连活动都不怎么想打。本身帝都圣杯奇谭就不大有意思<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24921,16 +15733,10 @@ wine
 ##### 65923#       发表于 2019-4-13 12:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43279353&amp;ptid=1085254" target="_blank">sosgame67 发表于 2019-4-12 20:08</a>
 
 没看攻略被主线信长无限连发浪费了令咒，这活动难度有点高啊</blockquote>
 去年好像B站有什么奇葩操作赶了一批难民去日服，刚一过去就撞见了这个圣杯奇谭的信长，被焦作人的帖子在NGA见得蛮多的
-
-
-
-
-
 
 
 -----
@@ -24939,23 +15745,16 @@ wine
 ##### 65924#       发表于 2019-4-13 12:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43286256&amp;ptid=1085254" target="_blank">我爱喵喵 发表于 2019-4-13 12:14</a>
 
 去年好像B站有什么奇葩操作赶了一批难民去日服，刚一过去就撞见了这个圣杯奇谭的信长，被焦作人的帖子在N ...</blockquote>
 第一反应是剧情必败战<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  廖化  
 ##### 65925#       发表于 2019-4-13 12:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43286256&amp;ptid=1085254" target="_blank">我爱喵喵 发表于 2019-4-13 12:14</a>
@@ -24966,24 +15765,13 @@ wine
 然后紧急练了一个大狗，3发令咒直接爆破<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65926#       发表于 2019-4-13 12:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这活动把出率礼装卸了 哈哈哈的轻松愉快  不然要打6 7回合太难受了
-
-
-
-
-
 
 
 -----
@@ -24992,16 +15780,10 @@ wine
 ##### 65927#       发表于 2019-4-13 12:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43286558&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-13 12:41</a>
 
 这活动把出率礼装卸了 哈哈哈的轻松愉快  不然要打6 7回合太难受了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">你苹果多，俺们学不来
-
-
-
-
-
 
 
 -----
@@ -25010,23 +15792,15 @@ wine
 ##### 65928#       发表于 2019-4-13 13:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43286558&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-13 12:41</a>
 这活动把出率礼装卸了 哈哈哈的轻松愉快  不然要打6 7回合太难受了</blockquote>
 试了一把太亏了，果断老老实实打8回合<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  瘦猫标题学  
 ##### 65929#       发表于 2019-4-13 14:58
-
-
 
 
 1回合， CBA降防大英雄
@@ -25040,16 +15814,10 @@ wine
 5回合    狂兰充能宝具清场
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65930#       发表于 2019-4-13 15:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43287099&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-13 13:28</a>
@@ -25058,26 +15826,15 @@ wine
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么亏的呢 能比舒服哈哈哈重要吗
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 65931#       发表于 2019-4-13 15:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43288306&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-13 15:38</a>
 有什么亏的呢 能比舒服哈哈哈重要吗</blockquote>
 周末速刷不重要，平常很重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25086,16 +15843,10 @@ wine
 ##### 65932#       发表于 2019-4-13 15:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43288385&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-13 15:47</a>
 
 周末速刷不重要，平常很重要</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经...打...完...了(昨天晚上
-
-
-
-
-
 
 
 -----
@@ -25104,15 +15855,9 @@ wine
 ##### 65933#       发表于 2019-4-13 15:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43288402&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-13 15:48</a>
 我已经...打...完...了(昨天晚上</blockquote>
 果然的苹果多到爆炸的萌新<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25121,16 +15866,10 @@ wine
 ##### 65934#       发表于 2019-4-13 15:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43288410&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-13 15:49</a>
 
 果然的苹果多到爆炸的萌新</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前不是说要刷羁绊 空刷感觉好亏就没刷 这活动正好当做刷羁绊了
-
-
-
-
-
 
 
 -----
@@ -25139,16 +15878,10 @@ wine
 ##### 65935#       发表于 2019-4-13 16:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43288306&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-13 15:38</a>
 
 有什么亏的呢 能比舒服哈哈哈重要吗</blockquote>
 能，我要攒苹果
-
-
-
-
-
 
 
 -----
@@ -25157,13 +15890,7 @@ wine
 ##### 65936#       发表于 2019-4-14 10:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼经常性无人发贴 突出一个透心凉
-
-
-
-
-
 
 
 -----
@@ -25172,16 +15899,9 @@ wine
 ##### 65937#       发表于 2019-4-14 11:30
 
 
-
-
 老活动复刻，主线摸的时间都突破记录了，没有东西好讨论，又不是隔壁lga<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -25190,14 +15910,7 @@ wine
 ##### 65938#       发表于 2019-4-14 12:42
 
 
-
-
 去年第二部也就两个章节，今年也就两个章节了。这么摸，可以再续命三年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25206,14 +15919,7 @@ wine
 ##### 65939#       发表于 2019-4-14 13:20
 
 
-
-
 我怀疑2.4原稿爆炸了，现在在重写<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25222,15 +15928,9 @@ wine
 ##### 65940#       发表于 2019-4-14 13:47
 
 
-
 <blockquote>char0311131 发表于 2019-4-14 12:42
 去年第二部也就两个章节，今年也就两个章节了。这么摸，可以再续命三年 ...</blockquote>
 去年两个章节还行，都不知道从哪里吐槽了，阁下是看到日服楼没人气来给这边加点人气的吗
-
-
-
-
-
 
 
 -----
@@ -25239,15 +15939,9 @@ wine
 ##### 65941#       发表于 2019-4-14 13:49
 
 
-
 <blockquote>里村紅葉 发表于 2019-4-14 13:20
 我怀疑2.4原稿爆炸了，现在在重写</blockquote>
 怎么可能，大奥这种都没爆炸，今年明显就是预定2章，把2.5作为今年的压轴，搞不好会先开圣诞再开2.5
-
-
-
-
-
 
 
 -----
@@ -25256,13 +15950,7 @@ wine
 ##### 65942#       发表于 2019-4-14 13:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">去年4月第1章 7月第2章 11月第3章啊
-
-
-
-
-
 
 
 -----
@@ -25271,14 +15959,7 @@ wine
 ##### 65943#       发表于 2019-4-14 15:21
 
 
-
-
 第三章是去年底啊，以为是今年了，是我记错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25287,16 +15968,9 @@ wine
 ##### 65944#       发表于 2019-4-14 16:21
 
 
-
-
 fgo今年就关服了啦
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -25305,14 +15979,7 @@ fgo今年就关服了啦
 ##### 65945#       发表于 2019-4-14 16:31
 
 
-
-
 fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25321,14 +15988,7 @@ fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 ##### 65946#       发表于 2019-4-14 22:43
 
 
-
-
 最近日本活动也太多了点，没意思
-
-
-
-
-
 
 
 -----
@@ -25337,15 +15997,9 @@ fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 ##### 65947#       发表于 2019-4-15 08:11
 
 
-
 <blockquote>卡蓮 发表于 2019-4-14 22:43
 最近日本活动也太多了点，没意思</blockquote>
 玩个没日服的游戏就能解决了
-
-
-
-
-
 
 
 -----
@@ -25354,16 +16008,9 @@ fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 ##### 65948#       发表于 2019-4-15 09:01
 
 
-
-
 上个复刻ccc就是100任务跟追加怪
 
 现在又来一个  打不动了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25372,14 +16019,7 @@ fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 ##### 65949#       发表于 2019-4-15 11:00
 
 
-
-
 诶，媛媛不会出了，再补了两单出了个1001.。。
-
-
-
-
-
 
 
 -----
@@ -25388,14 +16028,7 @@ fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 ##### 65950#       发表于 2019-4-15 16:12
 
 
-
-
 十抽土方歲三，結果出了第一隻5星法老王，雖然是錯了但還是感到不錯，FGO是一隻無課好遊戲
-
-
-
-
-
 
 
 -----
@@ -25404,15 +16037,8 @@ fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 ##### 65951#       发表于 2019-4-15 21:40
 
 
-
-
 你说这个谁懂啊.jpg
 <img src="https://wx4.sinaimg.cn/mw690/68d41b35ly1g23mhuq20vj20u020sdwv.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25421,14 +16047,7 @@ fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 ##### 65952#       发表于 2019-4-15 21:51
 
 
-
-
 那么，谁去寄个月姬的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25437,14 +16056,7 @@ fgo快关服吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 ##### 65953#       发表于 2019-4-15 22:49
 
 
-
-
 gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜欢吹，终于轮到他们被宰了，kmr牛逼!👏
-
-
-
-
-
 
 
 -----
@@ -25453,16 +16065,9 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65954#       发表于 2019-4-16 17:35
 
 
-
-
 虚月馆活动小说化，不放过任何捞一笔的机会<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -25471,17 +16076,10 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65955#       发表于 2019-4-16 17:57
 
 
-
-
 毕竟外国人不太好乱搞，但是自己国家的就能随便写了
 
 
 讲真的妇科和11区英灵连发的确无聊，根本不想打
-
-
-
-
-
 
 
 -----
@@ -25490,14 +16088,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65956#       发表于 2019-4-16 20:23
 
 
-
-
 前三年的51黄金周联动活动都有生放送，不知这次51黄金周的活动有没有生放送，毕竟连复刻都为黄金周调整到星期五开。
-
-
-
-
-
 
 
 -----
@@ -25506,14 +16097,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65957#       发表于 2019-4-16 20:36
 
 
-
-
 我只关心令和第一天送不送30石头<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25522,14 +16106,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65958#       发表于 2019-4-17 05:39
 
 
-
-
 清完主线前半部分居然连首通全部free本都不需要……魔性的敌人就盯着两个本反复刷<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25538,14 +16115,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65959#       发表于 2019-4-17 10:03
 
 
-
-
 10符只出了一个阿福，然后发现这么久我居然只有一宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明明其他四星好多都溢出好几个金方块了
-
-
-
-
-
 
 
 -----
@@ -25554,16 +16124,10 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65960#       发表于 2019-4-17 14:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43329389&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-16 20:36</a>
 
 我只关心令和第一天送不送30石头</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">然而你游用的是月球历
-
-
-
-
-
 
 
 -----
@@ -25572,16 +16136,10 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65961#       发表于 2019-4-17 14:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43335374&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-17 10:03</a>
 
 10符只出了一个阿福，然后发现这么久我居然只有一宝明明其他四星好多都溢出好几个金方块了 ...</blockquote>
 欧  羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25590,13 +16148,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65962#       发表于 2019-4-17 17:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">应该是无事发生了
-
-
-
-
-
 
 
 -----
@@ -25605,14 +16157,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65963#       发表于 2019-4-18 13:39
 
 
-
-
 真实透心凉
-
-
-
-
-
 
 
 -----
@@ -25621,14 +16166,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65964#       发表于 2019-4-18 13:41
 
 
-
-
 刚刚吃饱没事做去用抽卷抽一张，中了MHXA，但也改不了对这次复刻没兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25637,16 +16175,9 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65965#       发表于 2019-4-18 16:09
 
 
-
-
 孕妇从者是什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony E6883, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
-
-
-
-
-
 
 
 -----
@@ -25655,13 +16186,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65966#       发表于 2019-4-18 16:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">应该不大可能是那位吧，我觉着还是像班扬那次一样，村姑自以为是认错了，毕竟真名看破只能降宝具威力（
-
-
-
-
-
 
 
 -----
@@ -25670,14 +16195,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65967#       发表于 2019-4-18 16:55
 
 
-
-
 不可能是真正的宗教人物吧，感觉fgo还不敢作这种死，一个连第六章地点耶路撒冷都改了的游戏敢出耶稣，我是不信的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25686,14 +16204,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65968#       发表于 2019-4-18 16:55
 
 
-
-
 话说官漫的新英灵不都是美国建国初期的角色吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25702,14 +16213,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65969#       发表于 2019-4-18 16:59
 
 
-
-
 这个孕妇的表情看着怪怪的......奶一口罗斯玛丽的婴儿。
-
-
-
-
-
 
 
 -----
@@ -25718,21 +16222,13 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65970#       发表于 2019-4-18 17:14
 
 
-
-
 其实TM就是想玩大，是稣哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Jamaisvu  
 ##### 65971#       发表于 2019-4-18 17:31
-
 
 
 <blockquote>rxrx 发表于 2019-4-18 17:14
@@ -25742,26 +16238,15 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 （不过谁知道之前那个老鼠女仆是什么梗）
 
 
-
-
-
-
-
 -----
 
 ####  瘦猫标题学  
 ##### 65972#       发表于 2019-4-18 18:34
 
 
-
  本帖最后由 瘦猫标题学 于 2019-4-18 18:35 编辑 
 
 贞德说我主，应该还是和宗教有关系
-
-
-
-
-
 
 
 -----
@@ -25770,16 +16255,10 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65973#       发表于 2019-4-18 19:50
 
 
-
  本帖最后由 Jamaisvu 于 2019-4-18 19:51 编辑 
 <blockquote>瘦猫标题学 发表于 2019-4-18 18:34
 贞德说我主，应该还是和宗教有关系</blockquote>
 贞德之前看到骑蓝牛的保罗以为是天启四骑士....（没见识程度和到处乱刷巨人梗的萌二似的）
-
-
-
-
-
 
 
 -----
@@ -25788,14 +16267,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65974#       发表于 2019-4-18 22:29
 
 
-
-
 感谢各位大佬的帮助，目前已经开位<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">，准备吃苹果把帝都奇谭刷起来了
-
-
-
-
-
 
 
 -----
@@ -25804,13 +16276,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65975#       发表于 2019-4-18 22:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都快忘记还有fgo这游戏了。太长草了
-
-
-
-
-
 
 
 -----
@@ -25819,14 +16285,7 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65976#       发表于 2019-4-18 22:55
 
 
-
-
 商店快搬完了，新图还没开，唉。
-
-
-
-
-
 
 
 -----
@@ -25835,21 +16294,13 @@ gbf大规模封号啦我就指望这个开心了，喜欢踩，喜欢黑，喜�
 ##### 65977#       发表于 2019-4-18 23:46
 
 
-
-
 难民都打完任务开始长草了..果然是护肝的废狗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  真红眼教授  
 ##### 65978#       发表于 2019-4-19 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43356412&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2019-4-18 17:31</a>
@@ -25867,30 +16318,17 @@ Caster：电影《驭鼠怪人》的主角
 转隔壁，我只把美国近代相关的摘出来了
 
 
-
-
-
-
-
 -----
 
 ####  Nozzy  
 ##### 65979#       发表于 2019-4-19 15:57
 
 
-
-
 震撼我妈
-
-
-
-
 
 
 Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 (44.22 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -25899,24 +16337,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 2019-4-19 15:57 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201904/19/155737fyk3bbbltlxke86h.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -25925,23 +16346,16 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65980#       发表于 2019-4-19 16:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43368989&amp;ptid=1085254" target="_blank">Nozzy 发表于 2019-4-19 15:57</a>
 
 震撼我妈</blockquote>
 图糊得一逼……
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 65981#       发表于 2019-4-19 16:39
-
 
 
  本帖最后由 alucardcz 于 2019-4-19 16:41 编辑 
@@ -25953,16 +16367,10 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">看到那贴我就知道nga肯定有戏能看了
 
 
-
-
-
-
-
 -----
 
 ####  日紫月银  
 ##### 65982#       发表于 2019-4-19 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369160&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2019-4-19 16:10</a>
@@ -25971,25 +16379,13 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 大致就是，国内的游戏审核出台了几个新政策，其中第一条必须要有保底。有人奶bgo加保底进去，加了之后别的服玩家会不会爆炸。后面有几个字太糊了看不清楚
 
 
-
-
-
-
-
 -----
 
 ####  jacatay  
 ##### 65983#       发表于 2019-4-19 17:06
 
 
-
-
 无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25998,14 +16394,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65984#       发表于 2019-4-19 17:10
 
 
-
-
 围观了一下，保底对fgo还不简单吗，来个1000石必出某个ssr，之前出了就重置次数，现在也没有很多抽了5000石才满宝的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26014,16 +16403,10 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65985#       发表于 2019-4-19 17:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43369905&amp;ptid=1085254" target="_blank">rooarr 发表于 2019-4-19 17:10</a>
 
 围观了一下，保底对fgo还不简单吗，来个1000石必出某个ssr，之前出了就重置次数，现在也没有很多抽了5000石 ...</blockquote>
 你怎么能忘记礼装呢？礼装就不是5星了吗！
-
-
-
-
-
 
 
 -----
@@ -26032,15 +16415,9 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65986#       发表于 2019-4-19 17:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=43370044&amp;ptid=1085254" target="_blank">alucardcz 发表于 2019-4-19 17:24</a>
 你怎么能忘记礼装呢？礼装就不是5星了吗！</blockquote>
 讨论礼装还有啥意义<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26049,14 +16426,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65987#       发表于 2019-4-19 17:49
 
 
-
-
 保底就跟千年战争学呗，SSR概率是3%，官方设定每33抽必出SSR、每10抽必出SR，但是UP率分别是SSR50%，SR30%（大致上），结果出SSR各种歪，我弃坑之前有连续7个卡池第一次出SSR结果不是UP的情况。
-
-
-
-
-
 
 
 -----
@@ -26065,14 +16435,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65988#       发表于 2019-4-19 18:54
 
 
-
-
 咋又开始奶保底了？
-
-
-
-
-
 
 
 -----
@@ -26081,14 +16444,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65989#       发表于 2019-4-19 19:00
 
 
-
-
 抽的道具要标明多少次能抽到，歪满足不了这个条件，问题是所有道具都得标，这个数字小不了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26097,15 +16453,9 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65990#       发表于 2019-4-19 19:06
 
 
-
 <blockquote>黑上シグマ 发表于 2019-4-19 16:10
 图糊得一逼……</blockquote>
 手机网页命数如此我也很为难呀🙄
-
-
-
-
-
 
 
 -----
@@ -26114,15 +16464,9 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65991#       发表于 2019-4-19 19:07
 
 
-
 <blockquote>日紫月银 发表于 2019-4-19 17:04
 大致就是，国内的游戏审核出台了几个新政策，其中第一条必须要有保底。有人奶bgo加保底进去，加了之后别 ...</blockquote>
 大意就是台服日服的肯定又要酸了🙃
-
-
-
-
-
 
 
 -----
@@ -26131,14 +16475,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65992#       发表于 2019-4-19 19:14
 
 
-
-
 严格按字面操作的话那真不是平时意义上的保底，现在卡池里杂七杂八的那么多，到时候设的数字只会大得吓人<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26147,14 +16484,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65993#       发表于 2019-4-19 19:53
 
 
-
-
 国服之前180保底不错的
-
-
-
-
-
 
 
 -----
@@ -26163,13 +16493,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65994#       发表于 2019-4-19 21:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天没什么要要更新吧 怎么突然炸了
-
-
-
-
-
 
 
 -----
@@ -26178,14 +16502,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65995#       发表于 2019-4-19 21:13
 
 
-
-
 好像炸服了？补偿美滋滋
-
-
-
-
-
 
 
 -----
@@ -26194,14 +16511,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65996#       发表于 2019-4-19 21:20
 
 
-
-
 一直混杂 不是我的问题吧
-
-
-
-
-
 
 
 -----
@@ -26210,14 +16520,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65997#       发表于 2019-4-19 21:22
 
 
-
-
 又炸了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26226,16 +16529,9 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65998#       发表于 2019-4-19 21:22
 
 
-
-
 突然炸服（
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -26244,13 +16540,7 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 65999#       发表于 2019-4-19 21:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3石到手？
-
-
-
-
-
 
 
 -----
@@ -26259,10 +16549,6 @@ Screenshot_2019-04-19-15-56-38-455_com.android.browser.png
 ##### 66000#       发表于 2019-4-19 21:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我都忘记今天能把活动打完了。。。在这样下去fgo要不存在了
-
-
-
 
 

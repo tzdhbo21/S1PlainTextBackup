@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2021-04-02 11:55** 
 
 
-
 -----
 
 ####  smy20011  
 ##### 1#       楼主       发表于 2021-2-25 17:03
-
 
 
  本帖最后由 smy20011 于 2021-2-25 17:08 编辑 
@@ -24,10 +22,6 @@ Mori Calliope (森 美声[もり かりおぺ]) 俗称死神
 下载附件
 
 2021-2-25 17:07 上传
-
-
-
-
 
 
 Youtube: [https://www.youtube.com/channel/UCL_qhgtOy0dy1Agp8vkySQg](https://www.youtube.com/channel/UCL_qhgtOy0dy1Agp8vkySQg)
@@ -53,10 +47,6 @@ Takanashi Kiara (小鸟游琪亚拉/小鳥遊 キアラ[たかなし きあら])
 2021-2-25 17:07 上传
 
 
-
-
-
-
 Youtube: [https://www.youtube.com/channel/UCHsx4Hqa-1ORjQTh9TYDhww](https://www.youtube.com/channel/UCHsx4Hqa-1ORjQTh9TYDhww)
 
 Twitter: [https://twitter.com/takanashikiara](https://twitter.com/takanashikiara)
@@ -76,10 +66,6 @@ Ninomae Ina’nis(一伊那尓栖 [にのまえ いなにす]) 俗称Ina
 下载附件
 
 2021-2-25 17:07 上传
-
-
-
-
 
 
 Youtube: [https://www.youtube.com/channel/UCMwGHR0BTZuLsmjY_NT5Pwg](https://www.youtube.com/channel/UCMwGHR0BTZuLsmjY_NT5Pwg)
@@ -103,10 +89,6 @@ Gawr Gura(噶呜·古拉[がうる・ぐら]) 俗称 Gura
 2021-2-25 17:07 上传
 
 
-
-
-
-
 Youtube: [https://www.youtube.com/channel/UCoSrY_IQQVpmIRZ9Xf-y93g/](https://www.youtube.com/channel/UCoSrY_IQQVpmIRZ9Xf-y93g/)
 
 Twitter: [https://twitter.com/gawrgura](https://twitter.com/gawrgura)
@@ -128,10 +110,6 @@ Watson Amelia(阿米莉亚·华生[ワトソン・アメリア]) 俗称 Ame
 2021-2-25 17:07 上传
 
 
-
-
-
-
 Youtube: [https://www.youtube.com/channel/UCyl1z3jo3XHR1riLFKG5UAg](https://www.youtube.com/channel/UCyl1z3jo3XHR1riLFKG5UAg)
 
 Twitter: [https://twitter.com/watsonameliaen](https://twitter.com/watsonameliaen)
@@ -148,14 +126,9 @@ Bilibili
 HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.vercel.app/](https://stream-calendar.vercel.app/)
 
 
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 9战斗力 +10
@@ -173,12 +146,7 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 | NBXX| + 2|开楼祝贺|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -189,12 +157,10 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  wiig  
 ##### 3#       发表于 2021-2-25 17:13
-
 
 
  本帖最后由 wiig 于 2021-2-25 17:51 编辑 
@@ -213,9 +179,6 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 2021-2-25 17:20 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202102/25/172100mqdbqsrsmsdm6alq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
@@ -224,10 +187,6 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 下载附件
 
 2021-2-25 17:21 上传
-
-
-
-
 
 
 而后enma的性格也在和ina的直播互动里丰满起来，比如ina提到过enma的代表饮料是最黑的黑咖啡，enma马上在DC里回复弱者才依赖外界物质，也会用日语英语梗回击ina的冷笑话，被ina笑话冷到受不了时候会说得去睡觉和休息。
@@ -243,10 +202,6 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 2021-2-25 17:43 上传
 
 
-
-
-
-
 第二位 Jenma，名字来源“Japanese enma”，首次出场于kiara的直播，负责管理人在日本的calli和kiara，帮助kiara处理直播的电脑配置，被形容成像天使一样，同样在jenma本人提供意见下完成初步人设
 
 <img src="https://img.saraba1st.com/forum/202102/25/174839w11nz8xvmm8t93i3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -257,10 +212,6 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 下载附件
 
 2021-2-25 17:48 上传
-
-
-
-
 
 
 除此之外，calli提到过另一位不是enma和jenma的manager，以及ina房间常驻扳手AO-chan
@@ -276,25 +227,9 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 2021-2-25 17:51 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -304,12 +239,7 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 | 过不了审| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -318,14 +248,7 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 ##### 4#       发表于 2021-2-25 17:17
 
 
-
-
 en要不要算上id 也都是说英语
-
-
-
-
-
 
 
 -----
@@ -334,14 +257,7 @@ en要不要算上id 也都是说英语
 ##### 5#       发表于 2021-2-25 17:18
 
 
-
-
 我支持ame大家族
-
-
-
-
-
 
 
 -----
@@ -350,16 +266,9 @@ en要不要算上id 也都是说英语
 ##### 6#       发表于 2021-2-25 17:23
 
 
-
-
 我看下来比较喜欢ina，但是ina的直播时间太冲击我的生物钟了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 也就起得早的时候可以听听<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -368,14 +277,7 @@ en要不要算上id 也都是说英语
 ##### 7#       发表于 2021-2-25 18:10
 
 
-
-
 Gura的势头实在太可怕了，搞不好那天始皇帝就被超过去了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -384,14 +286,7 @@ Gura的势头实在太可怕了，搞不好那天始皇帝就被超过去了。<
 ##### 8#       发表于 2021-2-25 18:15
 
 
-
-
 Gura的歌单很棒，爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -400,14 +295,7 @@ Gura的歌单很棒，爱了<img src="https://static.saraba1st.com/image/smiley/
 ##### 9#       发表于 2021-2-25 18:17
 
 
-
-
 GLORY TO TAKAMORI
-
-
-
-
-
 
 
 -----
@@ -416,22 +304,13 @@ GLORY TO TAKAMORI
 ##### 10#       发表于 2021-2-25 18:19
 
 
-
-
 鲨皇的歌回真的很不错
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 11#       发表于 2021-2-25 18:58
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/25/185832rr7ccbtydt0scn4d.png" referrerpolicy="no-referrer">
@@ -444,21 +323,10 @@ GLORY TO TAKAMORI
 2021-2-25 18:58 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 12#       发表于 2021-2-25 20:43
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/25/204310tp8f8d4olhlk0yty.jpg" referrerpolicy="no-referrer">
@@ -471,17 +339,9 @@ GLORY TO TAKAMORI
 2021-2-25 20:43 上传
 
 
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -491,20 +351,13 @@ GLORY TO TAKAMORI
 | Akanecode| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 13#         楼主| 发表于 2021-2-26 01:16
-
-
 
 
 周五的行程，都是北京时间：
@@ -519,11 +372,6 @@ GLORY TO TAKAMORI
 2021-2-26 01:09 上传
 
 
-
-
-
-
-
 Ina说不定会打通空洞骑士，但是这个时间对作息不好，想要看的可以补档。
 
 今天有Ame和ID组僵尸（求婚狂魔）联动，喜欢看NTR（？）的不要错过。
@@ -531,16 +379,10 @@ Ina说不定会打通空洞骑士，但是这个时间对作息不好，想要�
 晚上有孔雀和Mel的联动，Moona歌回，Iofi的杂谈和Anya的恸哭之星。
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 14#         楼主| 发表于 2021-2-26 01:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50438459&amp;ptid=1989758" target="_blank">渡鸦骑士 发表于 2021-2-25 17:23</a>
@@ -551,26 +393,14 @@ Ina说不定会打通空洞骑士，但是这个时间对作息不好，想要�
 如果起的早的话，周六早7点的歌回不要错过。Ina两个月开一次，错过了就得等4月了。
 
 
-
-
-
-
-
 -----
 
 ####  Reimu853  
 ##### 15#       发表于 2021-2-26 08:36
 
 
-
-
 对holoen相关印象最深的是walfie的gif
 又可爱又魔性，真的很不错
-
-
-
-
-
 
 
 -----
@@ -579,24 +409,15 @@ Ina说不定会打通空洞骑士，但是这个时间对作息不好，想要�
 ##### 16#       发表于 2021-2-26 08:59
 
 
-
-
 火鸡太可爱了，要爱上她了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 17#         楼主| 发表于 2021-2-26 09:38
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/26/093824e3h22kxv22ghqj34.png" referrerpolicy="no-referrer">
@@ -609,20 +430,12 @@ Ina说不定会打通空洞骑士，但是这个时间对作息不好，想要�
 2021-2-26 09:38 上传
 
 
-
-
-
-
 啥鬼。。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -632,20 +445,13 @@ Ina说不定会打通空洞骑士，但是这个时间对作息不好，想要�
 | 蒼島燃灯| + 1|MASTERPIECE|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 18#       发表于 2021-2-26 09:57
-
-
 
 
 INA评价
@@ -661,21 +467,10 @@ INA评价
 2021-2-26 09:57 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 19#       发表于 2021-2-26 10:38
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/26/103831xp9csrvpp8o9cs90.png" referrerpolicy="no-referrer">
@@ -688,23 +483,13 @@ INA评价
 2021-2-26 10:38 上传
 
 
-
-
-
 [https://twitter.com/donna_yui/status/1364976526161113090](https://twitter.com/donna_yui/status/1364976526161113090)
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 20#       发表于 2021-2-26 11:03
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/26/110242qo1fmvkzmv2vwqta.png" referrerpolicy="no-referrer">
@@ -715,10 +500,6 @@ INA评价
 下载附件
 
 2021-2-26 11:02 上传
-
-
-
-
 
 
 ame挡地图的图
@@ -733,24 +514,13 @@ ame挡地图的图
 2021-2-26 11:03 上传
 
 
-
-
-
-
 ina新的会员表情
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 21#       发表于 2021-2-26 17:01
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/26/170027n83hf29kz2r27mrr.png" referrerpolicy="no-referrer">
@@ -763,17 +533,9 @@ ina新的会员表情
 2021-2-26 17:00 上传
 
 
-
-
-
 [https://youtu.be/KzLoNtvNIE4](https://youtu.be/KzLoNtvNIE4)
 
 剪辑[https://twitter.com/NexatG](https://twitter.com/NexatG)
-
-
-
-
-
 
 
 -----
@@ -782,19 +544,11 @@ ina新的会员表情
 ##### 22#         楼主| 发表于 2021-2-26 17:05
 
 
-
-
 僵尸和Ame联动总结，转reddit
-
-
-
-
 
 
 ei781r9muqj61.jpg
 (94.26 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -803,28 +557,12 @@ ei781r9muqj61.jpg
 2021-2-26 17:05 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202102/26/170513iw65purlr6epg8gl.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -835,19 +573,13 @@ ei781r9muqj61.jpg
 | 蒼島燃灯| + 1|草|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 23#       发表于 2021-2-26 23:30
-
 
 
  本帖最后由 wiig 于 2021-2-26 23:45 编辑 
@@ -864,10 +596,6 @@ ei781r9muqj61.jpg
 2021-2-26 23:30 上传
 
 
-
-
-
-
 O: "It went like Bzzzt Bzzzt Boom Bzzzt Bzzt"
 
 A: "Thank you, I'm imagining it now."
@@ -882,19 +610,9 @@ A: "Thank you, I'm imagining it now."
 2021-2-26 23:35 上传
 
 
-
-
-
-
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -904,12 +622,7 @@ A: "Thank you, I'm imagining it now."
 | colodes| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -918,14 +631,7 @@ A: "Thank you, I'm imagining it now."
 ##### 24#       发表于 2021-2-26 23:44
 
 
-
-
 她们居然能联机Apex？没记错Ame是在西海岸吧，中间隔了个太平洋啊。还是说ID的人其实不在印尼
-
-
-
-
-
 
 
 -----
@@ -934,24 +640,16 @@ A: "Thank you, I'm imagining it now."
 ##### 25#       发表于 2021-2-26 23:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50453223&amp;ptid=1989758" target="_blank">被子十三 发表于 2021-2-26 23:44</a>
 
 她们居然能联机Apex？没记错Ame是在西海岸吧，中间隔了个太平洋啊。还是说ID的人其实不在印尼 ...</blockquote>
 Ame直播界面一直有高延迟和丢包的警告，排的应该是东南亚服务器
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 26#       发表于 2021-2-27 00:06
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/27/000504izeaevulozz0ngea.png" referrerpolicy="no-referrer">
@@ -964,16 +662,7 @@ Ame直播界面一直有高延迟和丢包的警告，排的应该是东南亚�
 2021-2-27 00:05 上传
 
 
-
-
-
-
 Calli工商延后一周，合作曲也顺延一周后发布，但是有一个重大告知
-
-
-
-
-
 
 
 -----
@@ -982,14 +671,7 @@ Calli工商延后一周，合作曲也顺延一周后发布，但是有一个重
 ##### 27#         楼主| 发表于 2021-2-27 06:31
 
 
-
-
 半小时之后ina开始唱歌，链接：[https://www.youtube.com/watch?v=ACV-i-b10io](https://www.youtube.com/watch?v=ACV-i-b10io)
-
-
-
-
-
 
 
 -----
@@ -998,13 +680,11 @@ Calli工商延后一周，合作曲也顺延一周后发布，但是有一个重
 ##### 28#         楼主| 发表于 2021-2-27 08:07
 
 
-
  本帖最后由 smy20011 于 2021-2-27 08:16 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50454769&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-2-27 06:31</a>
 
 半小时之后ina开始唱歌，链接：[https://www.youtube.com/watch?v=ACV-i-b10io](https://www.youtube.com/watch?v=ACV-i-b10io)</blockquote>
 没跟到的人，Ina唱了6首曲子，一个安可曲，一首神秘曲。想补档的可以用下面的磁力连接。
-
 
 
 Ina's unarchived karaoke stream at 2021-02-26T23:00:00Z.
@@ -1035,20 +715,13 @@ Setlist (times approximate):
 To the anon from the last time I was here that asked about qBittorrent, sorry, I'm retarded - you create the torrent, then right-click it in the list to get the magnet link.
 
 
-
 好消息，这是不删档歌回，等下就有录像可以看了。
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 29#         楼主| 发表于 2021-2-27 08:31
-
 
 
  本帖最后由 smy20011 于 2021-2-27 09:04 编辑 
@@ -1064,25 +737,13 @@ To the anon from the last time I was here that asked about qBittorrent, sorry, I
 2021-2-27 08:30 上传
 
 
-
-
-
-
-
 如果有想看Ina的不要错过，今天ina两动，而且时间都很好追。话说鲨鱼居然有斗鱼转播[https://www.douyu.com/9237788](https://www.douyu.com/9237788)
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 30#       发表于 2021-2-27 12:41
-
-
 
 
 ✿{ NEW EP }✿
@@ -1100,16 +761,10 @@ https://t.co/8y7VZ2ZC7w https://t.co/QVpfg6z9HP
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  蒼島燃灯  
 ##### 31#       发表于 2021-2-27 13:01
-
 
 
  本帖最后由 蒼島燃灯 于 2021-2-27 13:04 编辑 
@@ -1118,25 +773,13 @@ https://t.co/8y7VZ2ZC7w https://t.co/QVpfg6z9HP
 [https://twitter.com/MittsumiA/status/1365378006877839360?s=20](https://twitter.com/MittsumiA/status/1365378006877839360?s=20)
 
 
-
-
-
-
-
 -----
 
 ####  昆西昆希昆  
 ##### 32#       发表于 2021-2-27 13:10
 
 
-
-
 奇怪的争风吃醋，原来华鲨是这种关系？
-
-
-
-
-
 
 
 -----
@@ -1145,23 +788,15 @@ https://t.co/8y7VZ2ZC7w https://t.co/QVpfg6z9HP
 ##### 33#         楼主| 发表于 2021-2-27 15:25
 
 
-
 <blockquote>昆西昆希昆 发表于 2021-2-27 13:10
 奇怪的争风吃醋，原来华鲨是这种关系？</blockquote>
 贴贴营业吧，不过私下关系不错，关系好到鲨鱼给华生送了一箱假柠檬。
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 34#       发表于 2021-2-27 16:09
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/27/160721b78nmn88kmjmpknm.png" referrerpolicy="no-referrer">
@@ -1174,25 +809,15 @@ https://t.co/8y7VZ2ZC7w https://t.co/QVpfg6z9HP
 2021-2-27 16:07 上传
 
 
-
-
-
-
 Message from future ina
 
 打了两个小时辐光,听了70多次git gud
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 35#       发表于 2021-2-27 19:51
-
 
 
  本帖最后由 wiig 于 2021-2-27 21:00 编辑 
@@ -1214,22 +839,10 @@ Kiara到家了<img src="https://static.saraba1st.com/image/smiley/face2017/063.p
 2021-2-27 21:00 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 36#       发表于 2021-2-27 21:41
-
-
 
 
 Ina吃了一个召唤姆吉拉的假面里月亮的道具，杀了梅露一次，之后说今夜は月が綺麗ですね
@@ -1244,20 +857,10 @@ Ina吃了一个召唤姆吉拉的假面里月亮的道具，杀了梅露一次�
 2021-2-27 21:39 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  cheatdeath3  
 ##### 37#       发表于 2021-2-27 22:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50460539&amp;ptid=1989758" target="_blank">wiig 发表于 2021-2-27 19:51</a>
@@ -1270,16 +873,10 @@ https://twitter.com/takanashikiara/status/1365627834123845632 ...</blockquote>
 到德国的家吗？
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 38#       发表于 2021-2-27 22:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461704&amp;ptid=1989758" target="_blank">cheatdeath3 发表于 2021-2-27 22:03</a>
@@ -1288,16 +885,10 @@ https://twitter.com/takanashikiara/status/1365627834123845632 ...</blockquote>
 德国中转，应该是刚下飞机，如果到奥地利的家应该先发猫照的
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 39#       发表于 2021-2-27 23:04
-
 
 
  本帖最后由 wiig 于 2021-2-27 23:31 编辑 
@@ -1307,17 +898,10 @@ https://twitter.com/takanashikiara/status/1365627834123845632 ...</blockquote>
 发猫了，应该是到家了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 40#       发表于 2021-2-28 02:13
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/28/021321m353wtsf1wft1u1j.png" referrerpolicy="no-referrer">
@@ -1330,16 +914,7 @@ https://twitter.com/takanashikiara/status/1365627834123845632 ...</blockquote>
 2021-2-28 02:13 上传
 
 
-
-
-
-
 要联动？
-
-
-
-
-
 
 
 -----
@@ -1348,20 +923,15 @@ https://twitter.com/takanashikiara/status/1365627834123845632 ...</blockquote>
 ##### 41#       发表于 2021-2-28 08:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463491&amp;ptid=1989758" target="_blank">wiig 发表于 2021-2-28 02:13</a>
 要联动？</blockquote>
 今天两个人私下一起玩DBD，不直播。
 感觉是破冰+提前测试有没有技术问题（cursed en colabs）
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1371,12 +941,7 @@ https://twitter.com/takanashikiara/status/1365627834123845632 ...</blockquote>
 | wiig| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1385,22 +950,13 @@ https://twitter.com/takanashikiara/status/1365627834123845632 ...</blockquote>
 ##### 42#       发表于 2021-2-28 09:08
 
 
-
-
 小侦探和小章鱼的皮都好戳我
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 43#       发表于 2021-2-28 11:51
-
-
 
 
 联动总结<img src="https://p.sda1.dev/1/0919e75869e85f08ad9acfadd1a8fc78/IMG_CMP_247350386.jpeg" referrerpolicy="no-referrer">
@@ -1412,16 +968,10 @@ Ame with Ina: Inaaa help me I can't carry this paperclip🥺 it's too heavy awww
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 44#         楼主| 发表于 2021-2-28 15:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50464052&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-2-28 08:47</a>
@@ -1432,27 +982,15 @@ Ame with Ina: Inaaa help me I can't carry this paperclip🥺 it's too heavy awww
 感觉鲨鱼就是loli控，喜欢诗音，anya，kokoro
 
 
-
-
-
-
-
 -----
 
 ####  天若有情太难受  
 ##### 45#       发表于 2021-2-28 16:27
 
 
-
-
 大爱Gura和ina
 
 —— 来自 OPPO PDHM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -1461,22 +999,13 @@ Ame with Ina: Inaaa help me I can't carry this paperclip🥺 it's too heavy awww
 ##### 46#       发表于 2021-2-28 21:15
 
 
-
-
 忘了说了Ame联动的时候预告了明天among us，有Mel、Calli、Ame、Ina、ID成员和Ame妈（没听清）
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 47#       发表于 2021-2-28 21:35
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/28/213542k4dxypyyckcyky1i.png" referrerpolicy="no-referrer">
@@ -1489,10 +1018,6 @@ Ame with Ina: Inaaa help me I can't carry this paperclip🥺 it's too heavy awww
 2021-2-28 21:35 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202102/28/213552l9hnbhzb5hwx33zn.png" referrerpolicy="no-referrer">
 
 
@@ -1503,21 +1028,10 @@ Ame with Ina: Inaaa help me I can't carry this paperclip🥺 it's too heavy awww
 2021-2-28 21:35 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 48#       发表于 2021-2-28 23:54
-
-
 
 
 Kiara非常虚无的回家行程报告
@@ -1541,29 +1055,13 @@ Kiara非常虚无的回家行程报告
 念SC，撤了
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 49#       发表于 2021-2-28 23:56
 
 
-
-
 猫讲了好久好久，猫派有Kiara gura，兔派Calli，狗派Ame，以后单推Ame<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1572,14 +1070,7 @@ Kiara非常虚无的回家行程报告
 ##### 50#       发表于 2021-3-1 05:45
 
 
-
-
 INA画力好高
-
-
-
-
-
 
 
 -----
@@ -1588,16 +1079,10 @@ INA画力好高
 ##### 51#         楼主| 发表于 2021-3-1 08:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50471643&amp;ptid=1989758" target="_blank">lanslort 发表于 2021-3-1 05:45</a>
 
 INA画力好高</blockquote>
 Ina画图下笔好准，感觉她慢悠悠的一点一点的画，然后一下子就好了
-
-
-
-
-
 
 
 -----
@@ -1606,23 +1091,15 @@ Ina画图下笔好准，感觉她慢悠悠的一点一点的画，然后一下�
 ##### 52#       发表于 2021-3-1 09:13
 
 
-
 <img src="https://p.sda1.dev/1/2f6278c7c7602367c7cadaa137946e62/IMG_CMP_158900542.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 53#       发表于 2021-3-1 21:35
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/01/213446n0u9qxqsttortts5.png" referrerpolicy="no-referrer">
@@ -1635,24 +1112,13 @@ Ina画图下笔好准，感觉她慢悠悠的一点一点的画，然后一下�
 2021-3-1 21:34 上传
 
 
-
-
-
-
 syl，shadowban和搅大缸双重buff下，Kiara同接到了1000档史低
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 54#       发表于 2021-3-1 23:11
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/01/231049b2xcrn55ip5qqixp.png" referrerpolicy="no-referrer">
@@ -1665,23 +1131,13 @@ syl，shadowban和搅大缸双重buff下，Kiara同接到了1000档史低
 2021-3-1 23:10 上传
 
 
-
-
-
 猫奴直播现状
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 55#       发表于 2021-3-2 00:44
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/02/004419y1e1j63n4cezry83.png" referrerpolicy="no-referrer">
@@ -1694,18 +1150,8 @@ syl，shadowban和搅大缸双重buff下，Kiara同接到了1000档史低
 2021-3-2 00:44 上传
 
 
-
-
-
-
-
-
-
-
 image.png
 (872.28 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -1714,24 +1160,7 @@ image.png
 2021-3-2 00:44 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/02/004406rl681296nqb66fnr.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1740,23 +1169,15 @@ image.png
 ##### 56#       发表于 2021-3-2 01:38
 
 
-
-
 Kiara一年前来日本的时候，从猫身上剪了两撮毛随身携带
 
 聊天室：Creepy
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 57#       发表于 2021-3-2 02:18
-
 
 
  本帖最后由 wiig 于 2021-3-2 02:20 编辑 
@@ -1773,15 +1194,7 @@ Kiara一年前来日本的时候，从猫身上剪了两撮毛随身携带
 2021-3-2 02:18 上传
 
 
-
-
-
 [https://twitter.com/YOHCHI_2019/status/1366449971680083976](https://twitter.com/YOHCHI_2019/status/1366449971680083976)
-
-
-
-
-
 
 
 -----
@@ -1790,24 +1203,16 @@ Kiara一年前来日本的时候，从猫身上剪了两撮毛随身携带
 ##### 58#       发表于 2021-3-2 08:18
 
 
-
 <img src="https://p.sda1.dev/1/4ccad320cc222c358473ef76989e95ca/IMG_CMP_141928319.jpeg" referrerpolicy="no-referrer">
 gura第一次en外单独联动选了anya<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 59#       发表于 2021-3-2 10:29
-
-
 
 
 !! NOTICE !!
@@ -1818,25 +1223,13 @@ gura第一次en外单独联动选了anya<img src="https://static.saraba1st.com/i
 Thank you for your understanding! :}
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 60#         楼主| 发表于 2021-3-2 11:54
 
 
-
-
 鲨鱼第一次EN外单独联动，订阅最多的和订阅最少的联动，感觉挺有意思。
-
-
-
-
-
 
 
 -----
@@ -1845,21 +1238,14 @@ Thank you for your understanding! :}
 ##### 61#       发表于 2021-3-2 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469664&amp;ptid=1989758" target="_blank">wiig 发表于 2021-2-28 21:35</a></blockquote>
 那个饭田太太画风的妹子叫啥名字知道吗？
-
-
-
-
-
 
 
 -----
 
 ####  TiHaru  
 ##### 62#       发表于 2021-3-2 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486101&amp;ptid=1989758" target="_blank">蛋疼三四郎 发表于 2021-3-2 14:02</a>
@@ -1869,16 +1255,10 @@ Thank you for your understanding! :}
 reine
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 63#         楼主| 发表于 2021-3-2 14:55
-
 
 
 <blockquote>TiHaru 发表于 2021-3-2 14:13
@@ -1889,32 +1269,19 @@ reine</blockquote>
 俗称孔雀
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 64#         楼主| 发表于 2021-3-2 15:04
 
 
-
-
 找时间我加一下id组的人好了，最近比较忙，如果楼里有兴趣的话也可以写一下，我编辑到主楼。
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 65#       发表于 2021-3-2 16:05
-
 
 
  本帖最后由 wiig 于 2021-3-2 16:20 编辑 
@@ -1936,11 +1303,6 @@ Twitter：[https://twitter.com/kureijiollie](https://twitter.com/kureijiollie)
 2021-3-2 15:53 上传
 
 
-
-
-
-
-
 お墓から出てきたゾンビ女子高生。生前の記憶を頼りに家に帰ったが知らないラーメン屋になっていた。彼女はラーメン屋になってしまった家を取り戻すために、VTuberになることを決めた。从坟墓中出现的僵尸女子高中生。靠着生前的记忆返回家中却发现老家已经变成不明拉面馆了。为了将拉面屋变回自己的家，因此决定成为一名VTuber。
 妈妈（角色设计）：[LAM](https://twitter.com/ramdayo1122)
 爸爸（Live2D）：[けっふぃー](https://twitter.com/keffiy?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor)
@@ -1959,11 +1321,6 @@ Twitter：[https://twitter.com/anyamelfissa](https://twitter.com/anyamelfissa)
 下载附件
 
 2021-3-2 15:58 上传
-
-
-
-
-
 
 
 短剣クリスから人間となった小柄な女の子です！興味のないことや人に対して反応が薄くなるが、好きなことについて話すときは、とても子供っぽく熱心になる。
@@ -1988,29 +1345,11 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 2021-3-2 16:00 上传
 
 
-
-
-
-
-
 孔雀のお嬢様。魔法アカデミーで魔法を勉強していたが。事故に巻き込まれてしまい、人間の世界に転移、その時に魔法はほとんど使えなくなってしまった。優雅で冷静に見えるが、怒るととても感情的になる。孔雀少女，
 
 在魔法學院中學習著魔法。但卻在考試中發生了意外，而轉移到了人類的世界，現在幾乎無法使用魔法，表面上看似優雅沉穩，但實際上生氣時會非常激動。
 妈妈（角色设计）：[飯田ぽち](https://twitter.com/lizhi3)
 爸爸（Live2D）：[入江燈](https://twitter.com/tou_ilie)
-
-
-
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2019,18 +1358,13 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-
 <img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_qlZc3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2040,20 +1374,13 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 | wiig| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 67#       发表于 2021-3-2 21:33
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/02/213313ya9aesfam9ha0k7j.png" referrerpolicy="no-referrer">
@@ -2066,22 +1393,13 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 2021-3-2 21:33 上传
 
 
-
-
-
 [https://twitter.com/seica_4/status/1361965743043088385](https://twitter.com/seica_4/status/1361965743043088385)<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 68#       发表于 2021-3-3 00:25
-
 
 
  本帖最后由 wiig 于 2021-3-3 02:08 编辑 
@@ -2092,14 +1410,7 @@ Kiara阳光马里奥，菜的可以，迫害Ina，发明新词CC PP--拥抱Calli
 更新，和Ame联动预订，Ame台
 
 
-
-
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -2108,21 +1419,13 @@ Kiara阳光马里奥，菜的可以，迫害Ina，发明新词CC PP--拥抱Calli
 ##### 69#         楼主| 发表于 2021-3-3 08:28
 
 
-
-
 看了下anya，among us联动被shadow ban了好惨。。
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 70#       发表于 2021-3-3 15:05
-
 
 
  本帖最后由 wiig 于 2021-3-3 15:09 编辑 
@@ -2149,22 +1452,10 @@ Ina杂谈
 中途有SC问多大年龄可以自称ancient one，Ina说当你起床很困难、从睡眠里得不到很好的休息的时候，就可以这样自称了
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 71#       发表于 2021-3-3 20:18
-
 
 
  本帖最后由 wiig 于 2021-3-3 21:08 编辑 
@@ -2178,17 +1469,10 @@ Calli茶杯头
 没有杂谈，念完SC就说继续忙了，EP已经做完了吧？不知道忙啥，可能还有新歌
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 72#       发表于 2021-3-3 22:24
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/03/222427itdccwew6td3er40.png" referrerpolicy="no-referrer">
@@ -2201,23 +1485,13 @@ Calli茶杯头
 2021-3-3 22:24 上传
 
 
-
-
-
 [https://twitter.com/BidorTW/status/1367035422912565255](https://twitter.com/BidorTW/status/1367035422912565255)
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 73#       发表于 2021-3-3 22:28
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/03/222745shlhupb41uvzr63h.png" referrerpolicy="no-referrer">
@@ -2230,16 +1504,7 @@ Calli茶杯头
 2021-3-3 22:27 上传
 
 
-
-
-
-
 apex中毒
-
-
-
-
-
 
 
 -----
@@ -2248,15 +1513,9 @@ apex中毒
 ##### 74#         楼主| 发表于 2021-3-3 23:13
 
 
-
 <blockquote>wiig 发表于 2021-3-3 22:28
 apex中毒</blockquote>
 超敷衍2333
-
-
-
-
-
 
 
 -----
@@ -2265,24 +1524,16 @@ apex中毒</blockquote>
 ##### 75#       发表于 2021-3-4 00:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503012&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-3 23:13</a>
 
 超敷衍2333</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">能不能“凑巧”排到Ame
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 76#       发表于 2021-3-4 00:18
-
-
 
 
 干，发到V综去了
@@ -2297,22 +1548,14 @@ apex中毒</blockquote>
 2021-3-4 00:18 上传
 
 
-
-
-
-
 Kiara桌面宠物
 [原文链接](https://twitter.com/__akkanen/status/1367049445674610688)
 [下载地址](https://drive.google.com/file/d/1C5nI69fSig84qdKyF5LLG1QGm6LJ9aFV/view)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2322,20 +1565,13 @@ Kiara桌面宠物
 | shiro7| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 77#         楼主| 发表于 2021-3-4 02:20
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/04/022030fj95o7mg11s995j5.png" referrerpolicy="no-referrer">
@@ -2348,17 +1584,7 @@ Kiara桌面宠物
 2021-3-4 02:20 上传
 
 
-
-
-
-
-
 感觉鲨鱼正常画还是不错的，为什么画自己genmate的时候这么混沌2333
-
-
-
-
-
 
 
 -----
@@ -2367,16 +1593,9 @@ Kiara桌面宠物
 ##### 78#       发表于 2021-3-4 09:42
 
 
-
-
 三场阴间时间直播<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">1点 4点 7点
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -2385,22 +1604,13 @@ Kiara桌面宠物
 ##### 79#         楼主| 发表于 2021-3-4 09:47
 
 
-
-
 推荐补一下今天ame和火鸡，NTR现场+互坑 笑死我了
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 80#         楼主| 发表于 2021-3-4 13:15
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/04/131505jzx6ixqkbv77puzi.jpg" referrerpolicy="no-referrer">
@@ -2413,17 +1623,7 @@ Kiara桌面宠物
 2021-3-4 13:15 上传
 
 
-
-
-
-
-
 梗图
-
-
-
-
-
 
 
 -----
@@ -2432,24 +1632,16 @@ Kiara桌面宠物
 ##### 81#       发表于 2021-3-4 13:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50505536&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-4 09:47</a>
 
 推荐补一下今天ame和火鸡，NTR现场+互坑 笑死我了</blockquote>
 换妻大会<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">另一边Calli和Gura更像带孩子郊游
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 82#       发表于 2021-3-4 14:38
-
-
 
 
 两张带孩子玩游戏的图
@@ -2464,9 +1656,6 @@ Kiara桌面宠物
 2021-3-4 14:34 上传
 
 
-
-
-
 [https://twitter.com/potato7192/status/1367340578120237058](https://twitter.com/potato7192/status/1367340578120237058)
 
 <img src="https://img.saraba1st.com/forum/202103/04/143749wb3vzhb3bhh4lb6k.png" referrerpolicy="no-referrer">
@@ -2479,23 +1668,13 @@ Kiara桌面宠物
 2021-3-4 14:37 上传
 
 
-
-
-
 [https://twitter.com/CRUNCHY_MMLONI/status/1364852206780829697](https://twitter.com/CRUNCHY_MMLONI/status/1364852206780829697)
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 83#       发表于 2021-3-4 14:46
-
-
 
 
 Calli的PCR工商，单独写了一首歌
@@ -2505,33 +1684,19 @@ Calli的PCR工商，单独写了一首歌
 GLORY TO TAKAMORI<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 84#         楼主| 发表于 2021-3-4 15:08
 
 
-
-
 力量4 无限的定情信物没了（
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 85#       发表于 2021-3-4 15:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509201&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-4 15:08</a>
@@ -2542,17 +1707,10 @@ GLORY TO TAKAMORI<img src="https://static.saraba1st.com/image/smiley/face2017/14
 倒是去打末影龙啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  PureIllusion  
 ##### 86#       发表于 2021-3-4 18:14
-
-
 
 
 RIP Amelia Bowson
@@ -2564,16 +1722,10 @@ RIP Amelia Bowson
 caligula这场太精彩了
 
 
-
-
-
-
-
 -----
 
 ####  PureIllusion  
 ##### 87#       发表于 2021-3-4 18:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509352&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-4 15:23</a>
@@ -2584,16 +1736,10 @@ caligula这场太精彩了
 这几个人都太客气了。上周gura休假前那期，她觉得鲨帽屋在山谷太憋屈想把山头炸了，但是又怕影响到别人，又跑海边盖新的。gura和ina都不去打烈焰人，因为觉得对方可能想去打。ina盖的铁厂，cali却不好意思拿铁。gura和ame又比较期待1.17的洞穴更新，不想走太远。
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 88#       发表于 2021-3-4 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511362&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-4 18:35</a>
@@ -2602,32 +1748,19 @@ caligula这场太精彩了
 进了木口 人人都变yhm
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 89#       发表于 2021-3-4 18:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">Kiara把直播延迟到明天，希望shadowban整整一周后能自然解决，但我感觉希望不大，她有没有给TeamYoutube反映情况啊
-
-
-
-
-
 
 
 -----
 
 ####  alcoholic1000  
 ##### 90#       发表于 2021-3-4 22:42
-
-
 
 
 ✧・ﾟ:*✿{ BIRTHDAY EP }✿*:・ﾟ✧ 
@@ -2655,10 +1788,6 @@ Pre-order the CD in stores now:
 2021-3-4 22:41 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/04/224106yb1mxhxim3ly7xth.jpg" referrerpolicy="no-referrer">
 
 
@@ -2669,23 +1798,13 @@ Pre-order the CD in stores now:
 2021-3-4 22:41 上传
 
 
-
-
-
-
 有在国内的楼友具有购买意愿吗
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 91#       发表于 2021-3-4 23:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514146&amp;ptid=1989758" target="_blank">alcoholic1000 发表于 2021-3-4 22:42</a>
@@ -2698,26 +1817,15 @@ Pre-order the CD in stores now:
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  bluebaby  
 ##### 92#       发表于 2021-3-4 23:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50514935&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-4 23:50</a>
  生日周边没有传统三件套，只有这一个专辑吗  —— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v ...</blockquote>
 没有传统三件套不太可能，应该是分别发售，新ep我看到是线下渠道预约到，通常的生日set都是走booth
-
-
-
-
-
 
 
 -----
@@ -2726,16 +1834,10 @@ Pre-order the CD in stores now:
 ##### 93#         楼主| 发表于 2021-3-5 00:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511362&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-4 18:35</a>
 
 这几个人都太客气了。上周gura休假前那期，她觉得鲨帽屋在山谷太憋屈想把山头炸了，但是又怕影响到别人， ...</blockquote>
 龙是大事件，她们想en一起联动玩，不过她们时区有问题，所以一直没联动成功。现在MC没有村民交易所以及信标基本上很难玩，EN服的科技有点低。。
-
-
-
-
-
 
 
 -----
@@ -2744,14 +1846,7 @@ Pre-order the CD in stores now:
 ##### 94#         楼主| 发表于 2021-3-5 12:47
 
 
-
-
 AME玩的这啥游戏。。
-
-
-
-
-
 
 
 -----
@@ -2760,14 +1855,7 @@ AME玩的这啥游戏。。
 ##### 95#       发表于 2021-3-5 12:52
 
 
-
-
 观感像幼儿园看图识物的教材<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2776,16 +1864,9 @@ AME玩的这啥游戏。。
 ##### 96#       发表于 2021-3-5 16:16
 
 
-
-
 Kiara的shadowban解除了，但是两个月内的存档全被删了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">希望只是bug
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -2794,23 +1875,15 @@ Kiara的shadowban解除了，但是两个月内的存档全被删了<img src="ht
 ##### 97#       发表于 2021-3-5 17:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">看完了早上的papers,please! 好多情节看的时候很好笑，但是repo打字出来味不对，有点尴尬
 
 比如聊天室有人说Stop screaming，Gura说 Screw you
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 98#       发表于 2021-3-5 23:23
-
-
 
 
 一觉醒来整了俩活
@@ -2825,10 +1898,6 @@ Kiara的shadowban解除了，但是两个月内的存档全被删了<img src="ht
 2021-3-5 23:19 上传
 
 
-
-
-
-
 第三次出道直播了，大概一个季节出道一次，以后一年出道十二次<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 <img src="https://img.saraba1st.com/forum/202103/05/232203ofph8i8ocop6p3zo.png" referrerpolicy="no-referrer">
@@ -2841,16 +1910,7 @@ Kiara的shadowban解除了，但是两个月内的存档全被删了<img src="ht
 2021-3-5 23:22 上传
 
 
-
-
-
-
 #FreeKiara，哈恰玛复刻
-
-
-
-
-
 
 
 -----
@@ -2859,20 +1919,13 @@ Kiara的shadowban解除了，但是两个月内的存档全被删了<img src="ht
 ##### 99#       发表于 2021-3-5 23:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">Ina的会限APEX转成公开台，但是会随机邀请留言的会员一起玩
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 100#         楼主| 发表于 2021-3-5 23:31
-
 
 
 <blockquote>wiig 发表于 2021-3-5 23:23
@@ -2884,16 +1937,10 @@ Kiara的shadowban解除了，但是两个月内的存档全被删了<img src="ht
 rp入脑www，holoen 三期debut
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 101#       发表于 2021-3-5 23:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50526818&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-5 23:31</a>
@@ -2902,25 +1949,13 @@ rp入脑www，holoen 三期debut</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">是holoDE 1st gen！
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 102#         楼主| 发表于 2021-3-6 02:13
 
 
-
-
 火鸡德语反而是最软的？
-
-
-
-
-
 
 
 -----
@@ -2929,14 +1964,7 @@ rp入脑www，holoen 三期debut</blockquote>
 ##### 103#         楼主| 发表于 2021-3-6 02:15
 
 
-
-
 火鸡德语行不行啊，忘记炸鸡怎么说了23333
-
-
-
-
-
 
 
 -----
@@ -2945,14 +1973,7 @@ rp入脑www，holoen 三期debut</blockquote>
 ##### 104#       发表于 2021-3-6 02:23
 
 
-
-
 火鸡这个直播也太辛苦了，德日英轮流说一遍
-
-
-
-
-
 
 
 -----
@@ -2961,14 +1982,7 @@ rp入脑www，holoen 三期debut</blockquote>
 ##### 105#         楼主| 发表于 2021-3-6 02:25
 
 
-
-
 满屏的德语会员，到底多少欧洲人看火鸡啊2333
-
-
-
-
-
 
 
 -----
@@ -2977,21 +1991,13 @@ rp入脑www，holoen 三期debut</blockquote>
 ##### 106#       发表于 2021-3-6 02:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">还有德语版hinotori
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 107#       发表于 2021-3-6 05:15
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/06/051528tluhnyjyju1t8eum.png" referrerpolicy="no-referrer">
@@ -3004,16 +2010,7 @@ rp入脑www，holoen 三期debut</blockquote>
 2021-3-6 05:15 上传
 
 
-
-
-
-
 reine已经收益化了，好快
-
-
-
-
-
 
 
 -----
@@ -3022,16 +2019,10 @@ reine已经收益化了，好快
 ##### 108#         楼主| 发表于 2021-3-6 05:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50527956&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-6 05:15</a>
 
 reine已经收益化了，好快</blockquote>
 他们早就过了吧。。只是开会员罢了
-
-
-
-
-
 
 
 -----
@@ -3040,16 +2031,10 @@ reine已经收益化了，好快</blockquote>
 ##### 109#       发表于 2021-3-6 05:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50527966&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-6 05:24</a>
 
 他们早就过了吧。。只是开会员罢了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">是随时都能开，但是emotes没画好吗
-
-
-
-
-
 
 
 -----
@@ -3058,14 +2043,7 @@ reine已经收益化了，好快</blockquote>
 ##### 110#         楼主| 发表于 2021-3-6 07:42
 
 
-
-
 ina吃鸡！
-
-
-
-
-
 
 
 -----
@@ -3074,14 +2052,7 @@ ina吃鸡！
 ##### 111#         楼主| 发表于 2021-3-6 10:16
 
 
-
-
 联动杂谈2333
-
-
-
-
-
 
 
 -----
@@ -3090,16 +2061,9 @@ ina吃鸡！
 ##### 112#         楼主| 发表于 2021-3-6 11:41
 
 
-
-
 好消息：DBD赢了
 
 坏消息：Anya和Gura死了
-
-
-
-
-
 
 
 -----
@@ -3108,14 +2072,7 @@ ina吃鸡！
 ##### 113#       发表于 2021-3-6 11:51
 
 
-
-
 会员和收益化是两套审核，会员要求更高一点，收益化只要1k关注和4k小时的累计观看就可以。
-
-
-
-
-
 
 
 -----
@@ -3124,16 +2081,10 @@ ina吃鸡！
 ##### 114#         楼主| 发表于 2021-3-6 12:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50529577&amp;ptid=1989758" target="_blank">某穆克拉 发表于 2021-3-6 11:51</a>
 
 会员和收益化是两套审核，会员要求更高一点，收益化只要1k关注和4k小时的累计观看就可以。 ...</blockquote>
 YT的要求就是1000粉丝，估计人工审核比较费时间？
-
-
-
-
-
 
 
 -----
@@ -3142,16 +2093,9 @@ YT的要求就是1000粉丝，估计人工审核比较费时间？
 ##### 115#       发表于 2021-3-6 13:17
 
 
-
-
 Kiara存档恢复了
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -3160,15 +2104,9 @@ Kiara存档恢复了
 ##### 116#         楼主| 发表于 2021-3-6 23:48
 
 
-
  本帖最后由 smy20011 于 2021-3-6 23:49 编辑 
 
 今天一大堆联动，火鸡教鲨鱼德语，ina和ame玩帽子，僵尸和马自立联动
-
-
-
-
-
 
 
 -----
@@ -3177,14 +2115,7 @@ Kiara存档恢复了
 ##### 117#         楼主| 发表于 2021-3-7 05:30
 
 
-
-
 这教徳文联动，耳机爆炸了
-
-
-
-
-
 
 
 -----
@@ -3193,14 +2124,7 @@ Kiara存档恢复了
 ##### 118#         楼主| 发表于 2021-3-7 06:22
 
 
-
-
 火鸡还是偶像厨，属性越来越奇怪了
-
-
-
-
-
 
 
 -----
@@ -3209,22 +2133,14 @@ Kiara存档恢复了
 ##### 119#       发表于 2021-3-7 10:05
 
 
-
-
 Kiara: In Australia(wink) we only have grades 1 to 5.
 Gura: ??? Where's the rest of them, where's 3, 4?
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 120#         楼主| 发表于 2021-3-7 11:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50537901&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-7 10:05</a>
@@ -3235,17 +2151,10 @@ Gura: ??? Where's the rest of them, where's 3, ...</blockquote>
 AME: 这傻子（脱衣服）
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 121#       发表于 2021-3-7 14:10
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/07/140945nm2qvcjsm6v6cus6.png" referrerpolicy="no-referrer">
@@ -3258,16 +2167,7 @@ AME: 这傻子（脱衣服）
 2021-3-7 14:09 上传
 
 
-
-
-
-
 脏话汇总
-
-
-
-
-
 
 
 -----
@@ -3276,14 +2176,7 @@ AME: 这傻子（脱衣服）
 ##### 122#         楼主| 发表于 2021-3-8 05:44
 
 
-
-
 Ina通关拉
-
-
-
-
-
 
 
 -----
@@ -3292,21 +2185,13 @@ Ina通关拉
 ##### 123#         楼主| 发表于 2021-3-8 13:13
 
 
-
-
 鲨鱼读SC的时候总有些奇思妙想，比如今天问chat，你们知道舔手机屏幕会摄入多少卡路里么？
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 124#       发表于 2021-3-8 17:21
-
 
 
  本帖最后由 wiig 于 2021-3-8 19:07 编辑 
@@ -3322,22 +2207,10 @@ Ina通关拉
 2021-3-8 19:06 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 125#       发表于 2021-3-8 19:05
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/08/190522tqopqz3sn33sod4n.png" referrerpolicy="no-referrer">
@@ -3350,37 +2223,19 @@ Ina通关拉
 2021-3-8 19:05 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 126#         楼主| 发表于 2021-3-9 00:14
 
 
-
-
 这周有火鸡的holotalk和en半年纪念。时间过得真快啊。
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 127#         楼主| 发表于 2021-3-9 05:53
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/09/055313lepdxryzpydx7cdd.png" referrerpolicy="no-referrer">
@@ -3393,17 +2248,7 @@ Ina通关拉
 2021-3-9 05:53 上传
 
 
-
-
-
-
-
 这鲨鱼绝对知道自己转了什么东西
-
-
-
-
-
 
 
 -----
@@ -3412,39 +2257,26 @@ Ina通关拉
 ##### 128#       发表于 2021-3-9 10:38
 
 
-
-
 大清早起来刷到这个
-
 
 
 gura会不会回应呢<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer"> 
 
 
-
 啊哈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
-
 
 
 会不会有小天才给剪到一起呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
 
 
-
 啊哈<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 
-
 
 
 再这么下去我就要退化成批国的原子态贴贴人了，fuck<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
 
-
-
-
-
 FAFC5AD6-70CF-4F57-9BBB-2E256950FC73.jpeg
 (281.48 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -3453,31 +2285,13 @@ FAFC5AD6-70CF-4F57-9BBB-2E256950FC73.jpeg
 2021-3-9 10:35 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/09/103547mtuxzxeiiatxruu9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  被子十三  
 ##### 129#       发表于 2021-3-9 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50537901&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-7 10:05</a>
@@ -3488,16 +2302,10 @@ Gura: ??? Where's the rest of them, where's 3, ...</blockquote>
 这个特么真是笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  PureIllusion  
 ##### 130#       发表于 2021-3-9 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50559381&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-9 05:53</a>
@@ -3507,16 +2315,10 @@ ame一画出来gura就笑了
 <img src="https://p.sda1.dev/1/86e152003af8270a1afa060ea883ab29/ame.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 131#       发表于 2021-3-9 12:49
-
 
 
 <img src="https://p.sda1.dev/1/478f73546a702ab359da2071201d22eb/IMG_CMP_225365230.jpeg" referrerpolicy="no-referrer">
@@ -3524,17 +2326,10 @@ ame一画出来gura就笑了
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 132#       发表于 2021-3-9 18:07
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/09/180750lx7xotbffc7bb4vo.png" referrerpolicy="no-referrer">
@@ -3547,15 +2342,7 @@ ame一画出来gura就笑了
 2021-3-9 18:07 上传
 
 
-
-
-
 [https://twitter.com/_mamaprofennn/status/1368951586886619142](https://twitter.com/_mamaprofennn/status/1368951586886619142)
-
-
-
-
-
 
 
 -----
@@ -3564,22 +2351,13 @@ ame一画出来gura就笑了
 ##### 133#       发表于 2021-3-9 23:26
 
 
-
-
 比起Calli，Reine对EN服的设施更熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 134#       发表于 2021-3-9 23:27
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/09/232749t2qtww5ej1tb7t15.png" referrerpolicy="no-referrer">
@@ -3592,20 +2370,10 @@ ame一画出来gura就笑了
 2021-3-9 23:27 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 135#         楼主| 发表于 2021-3-9 23:52
-
 
 
 <blockquote>wiig 发表于 2021-3-9 23:26
@@ -3613,17 +2381,10 @@ ame一画出来gura就笑了
 死神天天写歌的，让她上mc估计不太现实。等她创作欲平复了一点之后，估计会开始mc中毒了。
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 136#         楼主| 发表于 2021-3-9 23:53
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/09/235325mspy3myp3wyys1u9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
@@ -3637,16 +2398,7 @@ ame一画出来gura就笑了
 2021-3-9 23:53 上传
 
 
-
-
-
-
 近期看到的质量最高的二创了
-
-
-
-
-
 
 
 -----
@@ -3655,15 +2407,8 @@ ame一画出来gura就笑了
 ##### 137#       发表于 2021-3-10 01:18
 
 
-
-
 Good morning gawrstovzka! Can i get a hall yeaaaaaaa~?
 [https://youtu.be/qe-Gsxp9HLc?t=42](https://youtu.be/qe-Gsxp9HLc?t=42)
-
-
-
-
-
 
 
 -----
@@ -3672,15 +2417,9 @@ Good morning gawrstovzka! Can i get a hall yeaaaaaaa~?
 ##### 138#       发表于 2021-3-10 02:26
 
 
-
 [https://twitter.com/EngVTubersOOC/status/1369026379845672961](https://twitter.com/EngVTubersOOC/status/1369026379845672961)
 
 Kiara欣赏莱莎屁股的时候被当场捉奸<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3689,24 +2428,15 @@ Kiara欣赏莱莎屁股的时候被当场捉奸<img src="https://static.saraba1s
 ##### 139#       发表于 2021-3-10 03:53
 
 
-
-
 167+172<img src="https://p.sda1.dev/1/efacc4d55a3138a9e03b85317fcb4243/IMG_CMP_254279434.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  NBXX  
 ##### 140#       发表于 2021-3-10 08:07
-
-
 
 
 https://youtu.be/Wttca-jgREg
@@ -3722,20 +2452,12 @@ https://youtu.be/Wttca-jgREg
 2021-3-10 08:07 上传
 
 
-
-
-
-
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -3745,21 +2467,13 @@ https://youtu.be/Wttca-jgREg
 | wiig| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 141#       发表于 2021-3-10 16:05
-
-
-
 
 
 Watson Amelia Ch. hololive-EN
@@ -3808,17 +2522,10 @@ no stream saturday or sunday
 I'll have to figure out when to do supa sunday 🤔
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 142#       发表于 2021-3-10 16:41
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/10/164140utix7054ityf3c4y.png" referrerpolicy="no-referrer">
@@ -3831,36 +2538,20 @@ I'll have to figure out when to do supa sunday 🤔
 2021-3-10 16:41 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 143#         楼主| 发表于 2021-3-10 23:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50577771&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-10 16:41</a></blockquote>
 草稿这么草的么？
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 144#       发表于 2021-3-11 02:10
-
 
 
  本帖最后由 wiig 于 2021-3-13 00:46 编辑 
@@ -3878,18 +2569,10 @@ I'll have to figure out when to do supa sunday 🤔
 2021-3-13 00:46 上传
 
 
-
-
-
 续一张
 
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -3898,15 +2581,9 @@ I'll have to figure out when to do supa sunday 🤔
 ##### 145#       发表于 2021-3-11 03:30
 
 
-
 <img src="https://p.sda1.dev/1/5b35fc44b163b0d86877f568e670e9fa/IMG_CMP_1020408.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -3915,23 +2592,16 @@ I'll have to figure out when to do supa sunday 🤔
 ##### 146#         楼主| 发表于 2021-3-11 04:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50583636&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-11 03:30</a>
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
 react感觉很好玩
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 147#       发表于 2021-3-11 12:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50583698&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-11 04:48</a>
@@ -3941,26 +2611,15 @@ react感觉很好玩</blockquote>
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 148#       发表于 2021-3-11 12:58
 
 
-
 <img src="https://p.sda1.dev/1/42b8d8f8c168d288726c355e4a0152f1/IMG_CMP_161971794.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -3969,23 +2628,14 @@ react感觉很好玩</blockquote>
 ##### 149#       发表于 2021-3-11 16:34
 
 
-
-
 This isn't a beach... This is a bathtub 浴缸 #gawrt
 [https://twitter.com/DuDuLtv/status/1369685024396742663](https://twitter.com/DuDuLtv/status/1369685024396742663)
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 150#       发表于 2021-3-11 17:16
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/11/171554kfxff88c7bz7fncc.png" referrerpolicy="no-referrer">
@@ -3998,24 +2648,13 @@ This isn't a beach... This is a bathtub 浴缸 #gawrt
 2021-3-11 17:15 上传
 
 
-
-
-
-
 WAH
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 151#       发表于 2021-3-11 17:41
-
-
 
 
 飯田ぽち。/Vtuberぽちまる＠姉なるもの5巻12/26発売
@@ -4034,15 +2673,7 @@ WAH
 2021-3-11 17:41 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4051,21 +2682,13 @@ WAH
 ##### 152#       发表于 2021-3-11 17:47
 
 
-
-
 Ame是去旅游了吗<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我记得之前说过要买旅行用品
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 153#       发表于 2021-3-12 14:57
-
 
 
 <img src="https://p.sda1.dev/1/889778c6d11d9757639d25ad6e12d167/IMG_CMP_221675776.jpeg" referrerpolicy="no-referrer">お絵かき配信ありがとう～～✨
@@ -4077,25 +2700,13 @@ Ame是去旅游了吗<img src="https://static.saraba1st.com/image/smiley/face201
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 154#         楼主| 发表于 2021-3-12 15:23
 
 
-
-
 Anya收获两张生日贺图
-
-
-
-
-
 
 
 -----
@@ -4104,16 +2715,9 @@ Anya收获两张生日贺图
 ##### 155#       发表于 2021-3-12 17:17
 
 
-
-
 Ame贺图<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/969c6c580b65f69a959bbae03bafe899/20210312_171715.jpg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -4122,16 +2726,9 @@ Ame贺图<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" r
 ##### 156#       发表于 2021-3-12 17:19
 
 
-
-
 Ina<img src="https://p.sda1.dev/1/6cf47b15903a7e40d8202032385cc7af/IMG_CMP_63640212.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -4140,16 +2737,9 @@ Ina<img src="https://p.sda1.dev/1/6cf47b15903a7e40d8202032385cc7af/IMG_CMP_63640
 ##### 157#       发表于 2021-3-12 17:20
 
 
-
-
 Calli<img src="https://p.sda1.dev/1/da70de7e97063a5372e85928170fb33c/IMG_CMP_22626307.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -4158,16 +2748,9 @@ Calli<img src="https://p.sda1.dev/1/da70de7e97063a5372e85928170fb33c/IMG_CMP_226
 ##### 158#       发表于 2021-3-12 21:29
 
 
-
-
 pochi<img src="https://p.sda1.dev/1/f020ad83523b6f59d79defa445c72bcd/IMG_CMP_229675299.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -4176,24 +2759,15 @@ pochi<img src="https://p.sda1.dev/1/f020ad83523b6f59d79defa445c72bcd/IMG_CMP_229
 ##### 159#       发表于 2021-3-13 08:11
 
 
-
-
 mod设定无比详实<img src="https://static.saraba1st.com/image/smiley/face2017/196.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 160#       发表于 2021-3-13 08:27
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/13/082720qk8g8qdk38dvzdgv.jpg" referrerpolicy="no-referrer">
@@ -4206,14 +2780,7 @@ mod设定无比详实<img src="https://static.saraba1st.com/image/smiley/face201
 2021-3-13 08:27 上传
 
 
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">很懂
-
-
-
-
-
 
 
 -----
@@ -4222,16 +2789,9 @@ mod设定无比详实<img src="https://static.saraba1st.com/image/smiley/face201
 ##### 161#       发表于 2021-3-13 08:37
 
 
-
-
 Kiara:I think I have lost my sense of direction.
 
 Ame:You've also lost my respect when you killed me.
-
-
-
-
-
 
 
 -----
@@ -4240,13 +2800,7 @@ Ame:You've also lost my respect when you killed me.
 ##### 162#       发表于 2021-3-13 09:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">Gura哭了好久
-
-
-
-
-
 
 
 -----
@@ -4255,22 +2809,13 @@ Ame:You've also lost my respect when you killed me.
 ##### 163#       发表于 2021-3-13 09:12
 
 
-
-
 立牌 钥匙扣 Soundtrack 玩偶
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 164#       发表于 2021-3-13 09:18
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/13/091832xbnq38i974843w7c.png" referrerpolicy="no-referrer">
@@ -4283,30 +2828,15 @@ Ame:You've also lost my respect when you killed me.
 2021-3-13 09:18 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 165#         楼主| 发表于 2021-3-13 11:22
 
 
-
 <blockquote>wiig 发表于 2021-3-13 09:10
 Gura哭了好久</blockquote>
 鲨鱼本人很感性，唱歌都能唱哭
-
-
-
-
-
 
 
 -----
@@ -4315,17 +2845,10 @@ Gura哭了好久</blockquote>
 ##### 166#       发表于 2021-3-13 11:57
 
 
-
-
 happy half year anniversary to the holoEN family🎉🎉
 #gawrt #ameliaRT #inART #いなート #artsofashes #絵ニックス #callillust #hololiveEnglish https://t.co/r4Jhm1AEgC<img src="https://p.sda1.dev/1/deb710e71654d58734936ba3217ab843/IMG_CMP_252604173.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -4334,24 +2857,16 @@ happy half year anniversary to the holoEN family🎉🎉
 ##### 167#       发表于 2021-3-13 23:33
 
 
-
-
 印象曲里个人最喜欢Ina的部分<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 神秘感真的好棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 —— 来自 S1Next-鹅版[/url] v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 168#       发表于 2021-3-14 01:31
-
 
 
  本帖最后由 wiig 于 2021-3-14 01:32 编辑 
@@ -4367,24 +2882,13 @@ happy half year anniversary to the holoEN family🎉🎉
 2021-3-14 01:29 上传
 
 
-
-
-
-
 L2D未知bug 用这个表情唱了两首歌<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 169#       发表于 2021-3-14 02:26
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/14/022627hmryx4qjdx6p4qxx.png" referrerpolicy="no-referrer">
@@ -4397,16 +2901,7 @@ L2D未知bug 用这个表情唱了两首歌<img src="https://static.saraba1st.co
 2021-3-14 02:26 上传
 
 
-
-
-
-
 这周Ame的直播设备
-
-
-
-
-
 
 
 -----
@@ -4415,14 +2910,7 @@ L2D未知bug 用这个表情唱了两首歌<img src="https://static.saraba1st.co
 ##### 170#       发表于 2021-3-14 11:26
 
 
-
-
 ame说她出了个很重要得差，之后是会有啥披露吗？
-
-
-
-
-
 
 
 -----
@@ -4431,23 +2919,15 @@ ame说她出了个很重要得差，之后是会有啥披露吗？
 ##### 171#       发表于 2021-3-14 12:30
 
 
-
-
 彩蛋<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 172#       发表于 2021-3-14 12:31
-
 
 
  本帖最后由 wiig 于 2021-3-14 12:42 编辑 
@@ -4459,17 +2939,10 @@ ame说她出了个很重要得差，之后是会有啥披露吗？</blockquote>
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 173#       发表于 2021-3-14 15:26
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/14/152641mj9f8lebue9z8kuc.png" referrerpolicy="no-referrer">
@@ -4482,20 +2955,10 @@ ame说她出了个很重要得差，之后是会有啥披露吗？</blockquote>
 2021-3-14 15:26 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 174#       发表于 2021-3-15 01:04
-
 
 
 Hololive English -Myth- Image Soundtrack(ft. Camellia)
@@ -4505,15 +2968,9 @@ https://youtube.com/playlist?list=PLHk9A-UPnm83eIYaRpNwiKEaCan18HiPl
 <img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">Calli这首好好听
 
 
-
-
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -4523,19 +2980,13 @@ https://youtube.com/playlist?list=PLHk9A-UPnm83eIYaRpNwiKEaCan18HiPl
 | 过不了审| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 175#         楼主| 发表于 2021-3-15 01:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50619728&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-14 12:31</a>
@@ -4546,17 +2997,10 @@ https://youtube.com/playlist?list=PLHk9A-UPnm83eIYaRpNwiKEaCan18HiPl
 4chan贴贴人已经进化到华鲨搬一起了
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 176#       发表于 2021-3-15 01:12
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/15/011215qjllemfhhmfdqfms.png" referrerpolicy="no-referrer">
@@ -4569,14 +3013,7 @@ https://youtube.com/playlist?list=PLHk9A-UPnm83eIYaRpNwiKEaCan18HiPl
 2021-3-15 01:12 上传
 
 
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">太色了 准备用舌头去舔
-
-
-
-
-
 
 
 -----
@@ -4585,16 +3022,10 @@ https://youtube.com/playlist?list=PLHk9A-UPnm83eIYaRpNwiKEaCan18HiPl
 ##### 177#       发表于 2021-3-15 01:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50626284&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-15 01:07</a>
 
 4chan贴贴人已经进化到华鲨搬一起了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">那我同意
-
-
-
-
-
 
 
 -----
@@ -4603,16 +3034,10 @@ https://youtube.com/playlist?list=PLHk9A-UPnm83eIYaRpNwiKEaCan18HiPl
 ##### 178#         楼主| 发表于 2021-3-15 14:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50626309&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-15 01:12</a>
 
 太色了 准备用舌头去舔</blockquote>
 原人设也很色。。
-
-
-
-
-
 
 
 -----
@@ -4621,16 +3046,9 @@ https://youtube.com/playlist?list=PLHk9A-UPnm83eIYaRpNwiKEaCan18HiPl
 ##### 179#       发表于 2021-3-15 17:33
 
 
-
-
 Calli病休 推到明天了
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -4639,24 +3057,16 @@ Calli病休 推到明天了
 ##### 180#       发表于 2021-3-15 21:05
 
 
-
 <img src="https://p.sda1.dev/1/c3a0e6ba83ac09b1aa8f20e26f39cd7e/IMG_CMP_247471005.jpeg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/1/f26ba790d408dee98fa6c05a8ca520f0/20210315_210122.jpg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 181#       发表于 2021-3-16 00:44
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/16/004414ywq8ahkfrujkufa0.png" referrerpolicy="no-referrer">
@@ -4669,21 +3079,10 @@ Calli病休 推到明天了
 2021-3-16 00:44 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 182#       发表于 2021-3-16 00:52
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/16/005227kl88r8e8ckqndlqm.png" referrerpolicy="no-referrer">
@@ -4696,28 +3095,13 @@ Calli病休 推到明天了
 2021-3-16 00:52 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  nowaki  
 ##### 183#       发表于 2021-3-16 08:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨皇的声线是靠声卡拉上去的吗
-
-
-
-
-
 
 
 -----
@@ -4726,15 +3110,9 @@ Calli病休 推到明天了
 ##### 184#       发表于 2021-3-16 12:19
 
 
-
 <img src="https://p.sda1.dev/1/0ebb9e7353b60dfa54387d5bb0e7b892/-325e5d5c8b8a38d9.jpg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -4743,16 +3121,9 @@ Calli病休 推到明天了
 ##### 185#       发表于 2021-3-16 13:12
 
 
-
-
 中午sc问什么时候和jp联动，gura说之后有一个活动，到时候就知道了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -4761,13 +3132,7 @@ Calli病休 推到明天了
 ##### 186#       发表于 2021-3-16 13:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还来啊？来点不需要语言交流的吧
-
-
-
-
-
 
 
 -----
@@ -4776,13 +3141,7 @@ Calli病休 推到明天了
 ##### 187#       发表于 2021-3-16 14:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">鸡同鸭讲也是节目效果的一环，偶尔来一次还是挺新鲜的
-
-
-
-
-
 
 
 -----
@@ -4791,16 +3150,9 @@ Calli病休 推到明天了
 ##### 188#       发表于 2021-3-16 18:51
 
 
-
-
 上一秒：I'll focus
 
 下一秒：（倒地）It's warm up
-
-
-
-
-
 
 
 -----
@@ -4809,14 +3161,7 @@ Calli病休 推到明天了
 ##### 189#       发表于 2021-3-16 19:12
 
 
-
-
 *HIC<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4825,13 +3170,7 @@ Calli病休 推到明天了
 ##### 190#       发表于 2021-3-16 19:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">Mel和Ollie互让紫甲，结果被Ame抢走了
-
-
-
-
-
 
 
 -----
@@ -4840,14 +3179,7 @@ Calli病休 推到明天了
 ##### 191#       发表于 2021-3-16 19:26
 
 
-
-
 这负重训练太哈人了，有丶看不下去了😅
-
-
-
-
-
 
 
 -----
@@ -4856,13 +3188,7 @@ Calli病休 推到明天了
 ##### 192#       发表于 2021-3-16 19:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">又是那个延迟bug
-
-
-
-
-
 
 
 -----
@@ -4871,13 +3197,7 @@ Calli病休 推到明天了
 ##### 193#       发表于 2021-3-16 19:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">惊觉Ame没有延迟丢包的提示，是开加速器了还是飞日本了
-
-
-
-
-
 
 
 -----
@@ -4886,14 +3206,7 @@ Calli病休 推到明天了
 ##### 194#       发表于 2021-3-16 20:11
 
 
-
-
 One last try
-
-
-
-
-
 
 
 -----
@@ -4902,13 +3215,7 @@ One last try
 ##### 195#       发表于 2021-3-16 20:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">Ame直球拒绝了Ollie的床上邀请，上次明明说要考虑一下，果然变心了
-
-
-
-
-
 
 
 -----
@@ -4917,20 +3224,13 @@ One last try
 ##### 196#       发表于 2021-3-16 20:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/171.png" referrerpolicy="no-referrer">险些吃鸡，GG
-
-
-
-
-
 
 
 -----
 
 ####  PureIllusion  
 ##### 197#       发表于 2021-3-16 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50638087&amp;ptid=1989758" target="_blank">nowaki 发表于 2021-3-16 08:57</a>
@@ -4942,17 +3242,10 @@ One last try
 （再努努力都要成氦气音了，可怕：[https://youtu.be/Jpeu86Cg5-U?t=1927](https://youtu.be/Jpeu86Cg5-U?t=1927)
 
 
-
-
-
-
-
 -----
 
 ####  PureIllusion  
 ##### 198#       发表于 2021-3-17 00:02
-
-
 
 
 鲨妹抖家务系列：
@@ -4967,16 +3260,10 @@ One last try
 Duolingo这期犹犹豫豫地说自己干过做清洁的工作，这样联系到Luigi Mansion那次说，她在Hololive之前或之后有点想干清洗地毯的工作，就不像是开玩笑了。上周Terraria那期倒是又有说，离开Hololive之后想开咖啡厅。
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 199#       发表于 2021-3-17 00:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50647637&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-17 00:02</a>
@@ -4989,17 +3276,10 @@ Duolingo这期犹犹豫豫地说自己干过做清洁的工作，这样联系到
 <img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">开咖啡厅的理由好好笑，饮料上的稀奶油完全不够！我肯定能做得更好
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 200#       发表于 2021-3-17 01:13
-
-
 
 
 Calli喝酒回
@@ -5020,10 +3300,6 @@ Calli喝酒回
 下载附件
 
 2021-3-17 00:42 上传
-
-
-
-
 
 
 发现最近肩膀会那么痛，可能是因为披风的刺太重了
@@ -5057,13 +3333,9 @@ RIP已经1500w播放了，谢谢大家，新MV图是画师画的，但是动画�
 用卡祖笛念SC 爬了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -5073,19 +3345,13 @@ RIP已经1500w播放了，谢谢大家，新MV图是画师画的，但是动画�
 | 过不了审| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 201#       发表于 2021-3-17 01:25
-
 
 
  本帖最后由 wiig 于 2021-3-17 01:32 编辑 
@@ -5101,22 +3367,13 @@ RIP已经1500w播放了，谢谢大家，新MV图是画师画的，但是动画�
 2021-3-17 01:25 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">我裂开
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 202#       发表于 2021-3-17 01:31
-
 
 
  本帖最后由 wiig 于 2021-3-17 01:33 编辑 
@@ -5132,24 +3389,10 @@ RIP已经1500w播放了，谢谢大家，新MV图是画师画的，但是动画�
 2021-3-17 01:30 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 203#         楼主| 发表于 2021-3-17 03:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50638087&amp;ptid=1989758" target="_blank">nowaki 发表于 2021-3-16 08:57</a>
@@ -5158,16 +3401,10 @@ RIP已经1500w播放了，谢谢大家，新MV图是画师画的，但是动画�
 她有开autotune，不过本音就是那个样子的，健身环30难度还能保持假音的很少见。
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 204#       发表于 2021-3-17 20:14
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
@@ -5176,17 +3413,10 @@ RIP已经1500w播放了，谢谢大家，新MV图是画师画的，但是动画�
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 205#       发表于 2021-3-17 22:25
-
-
 
 
 惩罚
@@ -5204,25 +3434,13 @@ RIP已经1500w播放了，谢谢大家，新MV图是画师画的，但是动画�
 6、最终赢家可以用所有输家的推特账号发一条推
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 206#       发表于 2021-3-17 22:39
 
 
-
-
 takotune<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5231,21 +3449,13 @@ takotune<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" re
 ##### 207#       发表于 2021-3-17 23:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无尽折磨，这一把怎么这么久
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 208#       发表于 2021-3-17 23:04
-
-
 
 
 PAIN TAKO
@@ -5260,28 +3470,13 @@ PAIN TAKO
 2021-3-17 23:03 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 209#       发表于 2021-3-17 23:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">Why are we still here?Just to suffer?
-
-
-
-
-
 
 
 -----
@@ -5290,13 +3485,7 @@ PAIN TAKO
 ##### 210#       发表于 2021-3-17 23:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">mama在rap里教我怎么说fuck
-
-
-
-
-
 
 
 -----
@@ -5305,13 +3494,7 @@ PAIN TAKO
 ##### 211#       发表于 2021-3-17 23:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">Ina拯救世界，这一把打了34分钟
-
-
-
-
-
 
 
 -----
@@ -5320,14 +3503,7 @@ PAIN TAKO
 ##### 212#       发表于 2021-3-17 23:24
 
 
-
-
 I'm not happy, I'm INA
-
-
-
-
-
 
 
 -----
@@ -5336,23 +3512,15 @@ I'm not happy, I'm INA
 ##### 213#       发表于 2021-3-17 23:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">Calli已经完全不信任Kiara了
 
 赢了比赛输了人生
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 214#       发表于 2021-3-17 23:33
-
-
 
 
 Ina - Gura，你喜欢什么颜色
@@ -5362,25 +3530,13 @@ Gura - 红色！拜托！
 Ina - oya（选了绿色
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 215#       发表于 2021-3-17 23:35
 
 
-
-
 Ina三连胜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5389,15 +3545,9 @@ Ina三连胜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png
 ##### 216#       发表于 2021-3-17 23:38
 
 
-
  本帖最后由 wiig 于 2021-3-17 23:47 编辑 
 
 9000岁的老年痴呆grandma Gura
-
-
-
-
-
 
 
 -----
@@ -5406,14 +3556,7 @@ Ina三连胜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png
 ##### 217#       发表于 2021-3-17 23:42
 
 
-
-
 Gura - 很久很久以前...WHAT THE HECK!
-
-
-
-
-
 
 
 -----
@@ -5422,23 +3565,13 @@ Gura - 很久很久以前...WHAT THE HECK!
 ##### 218#       发表于 2021-3-17 23:51
 
 
-
-
 Ina四胜，要每个人的账号发一条推
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 219#       发表于 2021-3-18 00:02
-
-
-
 
 
 Gawr Gura三叉象征holoEN
@@ -5448,17 +3581,10 @@ Gawr Gura三叉象征holoEN
 TENSAI WILL HAVE REVENGE 大脑
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 220#       发表于 2021-3-18 00:58
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/18/005838x7rlxul7xwlu7twq.png" referrerpolicy="no-referrer">
@@ -5471,31 +3597,15 @@ TENSAI WILL HAVE REVENGE 大脑
 2021-3-18 00:58 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 221#       发表于 2021-3-18 01:31
 
 
-
-
 更新<img src="https://p.sda1.dev/1/c5d3219510a2f2c4ede636899c0f93d4/IMG_CMP_1885927.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -5504,21 +3614,13 @@ TENSAI WILL HAVE REVENGE 大脑
 ##### 222#         楼主| 发表于 2021-3-18 01:33
 
 
-
-
 这UNO笑死了
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 223#       发表于 2021-3-18 01:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50659459&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-18 01:33</a>
@@ -5528,16 +3630,10 @@ TENSAI WILL HAVE REVENGE 大脑
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 224#       发表于 2021-3-18 09:09
-
 
 
 <img src="https://p.sda1.dev/1/f74a832343e8963b0790ab97048b3321/IMG_CMP_154503770.jpeg" referrerpolicy="no-referrer">
@@ -5546,16 +3642,10 @@ TENSAI WILL HAVE REVENGE 大脑
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 225#       发表于 2021-3-18 09:18
-
 
 
 <img src="https://p.sda1.dev/1/b7e38598426eae6e4c674ecc8e7f547a/IMG_CMP_219773380.jpeg" referrerpolicy="no-referrer">
@@ -5563,17 +3653,10 @@ TENSAI WILL HAVE REVENGE 大脑
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  alcoholic1000  
 ##### 226#       发表于 2021-3-18 11:14
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/18/111343n0wtvwvwrannwnn0.jpg" referrerpolicy="no-referrer">
@@ -5584,11 +3667,6 @@ TENSAI WILL HAVE REVENGE 大脑
 下载附件
 
 2021-3-18 11:13 上传
-
-
-
-
-
 
 
 “Your Mori.”
@@ -5605,30 +3683,17 @@ A new MV will be released on the same day, with artwork by 零 (@ rei_17)!
 [https://calliope.streamlink.to/2ndEPCD](https://calliope.streamlink.to/2ndEPCD)
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 227#         楼主| 发表于 2021-3-19 03:30
 
 
-
-
 Mel与EN/ID合作，一图流
-
-
-
-
 
 
 u66vanohbsn61.jpg
 (469.26 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -5637,24 +3702,7 @@ u66vanohbsn61.jpg
 2021-3-19 03:29 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/19/032953t4819u1dovmiiidw.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -5663,14 +3711,7 @@ u66vanohbsn61.jpg
 ##### 228#       发表于 2021-3-19 05:56
 
 
-
-
 Ina玩健身环的时候说肩膀不舒服，是伏案工作太久肌肉过于僵硬了吧……
-
-
-
-
-
 
 
 -----
@@ -5679,14 +3720,7 @@ Ina玩健身环的时候说肩膀不舒服，是伏案工作太久肌肉过于�
 ##### 229#         楼主| 发表于 2021-3-19 12:50
 
 
-
-
 鲨鱼小时候不想涂脚趾甲，告诉因此告诉朋友自己足控。23333
-
-
-
-
-
 
 
 -----
@@ -5695,16 +3729,9 @@ Ina玩健身环的时候说肩膀不舒服，是伏案工作太久肌肉过于�
 ##### 230#       发表于 2021-3-19 13:04
 
 
-
-
 刚刚是不是说想玩生化危机
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -5713,20 +3740,14 @@ Ina玩健身环的时候说肩膀不舒服，是伏案工作太久肌肉过于�
 ##### 231#       发表于 2021-3-19 13:06
 
 
-
-
 Meanwhile in our universe,Ame 在玩#amearm，画风这样<img src="https://p.sda1.dev/1/a939d43d5f5c60da510f0f59be15e6d6/IMG_CMP_42724624.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -5736,12 +3757,7 @@ Meanwhile in our universe,Ame 在玩#amearm，画风这样<img src="https://p.sd
 | 过不了审| + 1|看上去很自然|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -5750,23 +3766,15 @@ Meanwhile in our universe,Ame 在玩#amearm，画风这样<img src="https://p.sd
 ##### 232#       发表于 2021-3-19 13:34
 
 
-
-
 "idol meeting"
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 233#         楼主| 发表于 2021-3-19 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50674436&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-19 13:06</a>
@@ -5778,27 +3786,15 @@ Meanwhile in our universe,Ame 在玩#amearm，画风这样
 天才2333
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 234#       发表于 2021-3-19 19:46
 
 
-
-
 #amesame<img src="https://p.sda1.dev/1/a6221240bdb215d8c921618f8485ef79/IMG_CMP_264344135.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -5807,14 +3803,7 @@ Meanwhile in our universe,Ame 在玩#amearm，画风这样
 ##### 235#       发表于 2021-3-19 21:22
 
 
-
-
 因为不知道NS怎么插网线<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">51没得玩了，换成双头狗
-
-
-
-
-
 
 
 -----
@@ -5823,16 +3812,10 @@ Meanwhile in our universe,Ame 在玩#amearm，画风这样
 ##### 236#         楼主| 发表于 2021-3-19 22:47
 
 
-
  本帖最后由 smy20011 于 2021-3-19 22:49 编辑 
 <blockquote>wiig 发表于 2021-3-19 21:22
 因为不知道NS怎么插网线51没得玩了，换成双头狗</blockquote>
 没买网线的配件？
-
-
-
-
-
 
 
 -----
@@ -5841,16 +3824,10 @@ Meanwhile in our universe,Ame 在玩#amearm，画风这样
 ##### 237#       发表于 2021-3-20 00:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50679924&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-19 22:47</a>
 
 没买网线的配件？</blockquote>
 怕不是拎个裸机就回去了
-
-
-
-
-
 
 
 -----
@@ -5859,14 +3836,7 @@ Meanwhile in our universe,Ame 在玩#amearm，画风这样
 ##### 238#       发表于 2021-3-20 00:30
 
 
-
-
 Gura说想学Ame开twitch台放音乐，规避YouTube的DMCA
-
-
-
-
-
 
 
 -----
@@ -5875,15 +3845,9 @@ Gura说想学Ame开twitch台放音乐，规避YouTube的DMCA
 ##### 239#         楼主| 发表于 2021-3-20 01:33
 
 
-
 <blockquote>wiig 发表于 2021-3-20 00:30
 Gura说想学Ame开twitch台放音乐，规避YouTube的DMCA</blockquote>
 前世歌曲轮播（
-
-
-
-
-
 
 
 -----
@@ -5892,22 +3856,13 @@ Gura说想学Ame开twitch台放音乐，规避YouTube的DMCA</blockquote>
 ##### 240#         楼主| 发表于 2021-3-20 01:44
 
 
-
-
 火鸡要在德国最大的动漫展里面当guest了
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 241#       发表于 2021-3-20 12:07
-
-
 
 
 ( ° ͜ʖ͡°)
@@ -5919,17 +3874,10 @@ Gura说想学Ame开twitch台放音乐，规避YouTube的DMCA</blockquote>
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 242#       发表于 2021-3-20 12:07
-
-
 
 
 neta楚门的世界
@@ -5939,31 +3887,19 @@ neta楚门的世界
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 243#       发表于 2021-3-20 17:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">每次和Ollie联动的Ame就变得无比清楚
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 244#       发表于 2021-3-20 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50682896&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-20 12:07</a>
@@ -5981,10 +3917,6 @@ neta楚门的世界</blockquote>
 2021-3-20 20:58 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/20/205824uhfxhps7hcfghs16.jpg" referrerpolicy="no-referrer">
 
 
@@ -5995,34 +3927,14 @@ neta楚门的世界</blockquote>
 2021-3-20 20:58 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 245#       发表于 2021-3-21 02:53
 
 
-
-
 Kiara"In some ways, my entire existence is offending people."
 <img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">是不是anti言论看多了
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6031,23 +3943,15 @@ Kiara"In some ways, my entire existence is offending people."
 ##### 246#       发表于 2021-3-21 11:53
 
 
-
 <img src="https://p.sda1.dev/1/5bf9dc3bde5b6a2eb0c3121870866bc4/IMG_CMP_134432123.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 247#       发表于 2021-3-21 22:05
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/21/220459ezypn5np4prgr1q5.png" referrerpolicy="no-referrer">
@@ -6060,23 +3964,13 @@ Kiara"In some ways, my entire existence is offending people."
 2021-3-21 22:04 上传
 
 
-
-
-
-
 mori milk<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 248#       发表于 2021-3-22 07:39
-
 
 
  本帖最后由 wiig 于 2021-3-22 07:40 编辑 
@@ -6093,17 +3987,10 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 249#         楼主| 发表于 2021-3-23 03:36
-
-
 
 
 各种冷笑话
@@ -6118,10 +4005,6 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 2021-3-23 03:36 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/23/033620wgdnsxru8xe7q1nz.jpg" referrerpolicy="no-referrer">
 
 
@@ -6132,30 +4015,15 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 2021-3-23 03:36 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 250#       发表于 2021-3-23 08:04
 
 
-
 <img src="https://p.sda1.dev/1/d25773d5f0cd5ad63476fc9665a151d6/IMG_CMP_187947263.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -6164,14 +4032,7 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 ##### 251#         楼主| 发表于 2021-3-23 14:10
 
 
-
-
 火鸡这个读空气，没看的推荐补一下，笑死了
-
-
-
-
-
 
 
 -----
@@ -6180,14 +4041,7 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 ##### 252#         楼主| 发表于 2021-3-24 11:26
 
 
-
-
 鲨鱼现在有全屏自动伤害，自动回盾，自动回甲。这rogelike游戏平衡性没问题么
-
-
-
-
-
 
 
 -----
@@ -6196,14 +4050,7 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 ##### 253#         楼主| 发表于 2021-3-24 11:50
 
 
-
-
 这也能死。。
-
-
-
-
-
 
 
 -----
@@ -6212,20 +4059,13 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 ##### 254#       发表于 2021-3-24 16:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">很平衡
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 255#       发表于 2021-3-24 19:14
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">每次查#amesame的图，画风都惠风和畅，但是每次查#iname都黑深残滤镜，要么是死了一边，要么是宗教故事，what the heck
@@ -6240,10 +4080,6 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 2021-3-24 19:14 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/24/191440p8nzbkm99lb941n3.jpg" referrerpolicy="no-referrer">
 
 
@@ -6254,37 +4090,19 @@ and cute themed Cherry Shrimp~ [url=]https://t.co/fWtkBjizPG[/url]
 2021-3-24 19:14 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 256#       发表于 2021-3-24 22:36
 
 
-
-
 Calli读Danke schön，发音像danky shen，语言天才
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 257#       发表于 2021-3-24 22:50
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/24/224947y30tg3qg1hwm0zfq.png" referrerpolicy="no-referrer">
@@ -6297,26 +4115,15 @@ Calli读Danke schön，发音像danky shen，语言天才
 2021-3-24 22:49 上传
 
 
-
-
-
-
 Calli：当你挂的时候，见到我第一件事就是给你看我能摸自己的眼球
 
 在说什么玩意
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 258#       发表于 2021-3-24 23:28
-
-
 
 
 Calli曾经想当演员，也想用幽默感让所有人都开心，但是在学校里被同学嘲笑，所以久了越来越内向，也觉得自己并不幽默。后来决定开始画画，放弃演员的梦想。
@@ -6326,27 +4133,15 @@ Calli曾经想当演员，也想用幽默感让所有人都开心，但是在学
 every close door is a brand new story
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 259#       发表于 2021-3-25 09:30
 
 
-
-
 gura买了麦没买线，直播推了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -6355,23 +4150,15 @@ gura买了麦没买线，直播推了<img src="https://static.saraba1st.com/imag
 ##### 260#       发表于 2021-3-25 13:18
 
 
-
-
 Ame唱BUBBLY，用的背景音是Gura的版本<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">快结婚吧
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  PureIllusion  
 ##### 261#       发表于 2021-3-25 15:18
-
 
 
  本帖最后由 PureIllusion 于 2021-3-25 15:22 编辑 
@@ -6392,13 +4179,9 @@ Gurame是从她俩优质collab互动来的，Iname那些邪门的主要是调查
 近一个多月Iname联动了几次，Gurame一直没有，股市此起彼伏，Iname已经健康多了，另外Caligula兄弟船崛起，站Gurame的各种被打压，日子很不好过。最近的趋势是开始幻想她们要搬到一起或者住很近（Ame本周搬家，Gura说上周末出门一直在忙，周一会限时房间还整个清空了），还有人挖掘她俩话外之音推测要有off-collab的，断药太久病人快疯了。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +3
@@ -6409,12 +4192,7 @@ Gurame是从她俩优质collab互动来的，Iname那些邪门的主要是调查
 | wiig| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -6423,24 +4201,16 @@ Gurame是从她俩优质collab互动来的，Iname那些邪门的主要是调查
 ##### 262#       发表于 2021-3-25 15:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50730371&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-3-25 15:18</a>
 
 Gurame vs Iname</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">必须takamori 只能takamori
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 263#       发表于 2021-3-25 21:43
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/25/214322qsj4y877hmjxsgj1.png" referrerpolicy="no-referrer">
@@ -6453,20 +4223,10 @@ Gurame vs Iname</blockquote>
 2021-3-25 21:43 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 264#         楼主| 发表于 2021-3-25 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50730479&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-25 15:30</a>
@@ -6475,16 +4235,10 @@ Gurame vs Iname</blockquote>
 火鸡x谁都很香的样子
 
 
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 265#         楼主| 发表于 2021-3-26 13:35
-
 
 
  本帖最后由 smy20011 于 2021-3-26 13:41 编辑 
@@ -6514,22 +4268,10 @@ my aching   vertebrae      (＋_＋)
 2021-3-26 13:41 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 266#       发表于 2021-3-27 02:36
-
-
 
 
 Gura想播muse dash 喜欢新歌
@@ -6543,17 +4285,10 @@ aqua前辈好强 3090 哇塞
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 267#       发表于 2021-3-27 14:56
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/27/145605goetfxyyyyzz2zeh.png" referrerpolicy="no-referrer">
@@ -6566,30 +4301,15 @@ aqua前辈好强 3090 哇塞
 2021-3-27 14:56 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 268#       发表于 2021-3-28 02:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -6598,25 +4318,16 @@ aqua前辈好强 3090 哇塞
 ##### 269#       发表于 2021-3-28 08:33
 
 
-
-
 J-chad
 <img src="https://p.sda1.dev/1/7411ca0c6b90e342813aa98055f098e6/IMG_CMP_224483906.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 270#       发表于 2021-3-28 11:11
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/28/111102hhoo54x6pghp9ixb.png" referrerpolicy="no-referrer">
@@ -6629,21 +4340,10 @@ J-chad
 2021-3-28 11:11 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 271#       发表于 2021-3-28 16:23
-
-
 
 
 ⊙︿⊙[https://twitter.com/noedelsgeest/status/1375790127004348418](https://twitter.com/noedelsgeest/status/1375790127004348418)
@@ -6660,10 +4360,6 @@ J-chad
 2021-3-28 16:22 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/28/162247ymkrkq09s9g90rcg.png" referrerpolicy="no-referrer">
 
 
@@ -6672,10 +4368,6 @@ J-chad
 下载附件
 
 2021-3-28 16:22 上传
-
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/28/162305psd3oe9wwnkxwc3s.png" referrerpolicy="no-referrer">
@@ -6688,10 +4380,6 @@ J-chad
 2021-3-28 16:23 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/28/162320rq9eyddvsq9eq9yu.png" referrerpolicy="no-referrer">
 
 
@@ -6702,20 +4390,10 @@ J-chad
 2021-3-28 16:23 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  smy20011  
 ##### 272#         楼主| 发表于 2021-3-28 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758263&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-28 16:23</a>
@@ -6726,16 +4404,10 @@ J-chad
 浓浓的美漫风格，不说人话XD
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 273#       发表于 2021-3-28 17:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50758387&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-28 16:42</a>
@@ -6744,17 +4416,10 @@ J-chad
 就要这个克味<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 274#       发表于 2021-3-28 17:22
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/28/172116mykccqnerhqgn8pp.png" referrerpolicy="no-referrer">
@@ -6767,10 +4432,6 @@ J-chad
 2021-3-28 17:21 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/28/172128zjt1p7na1079wwyi.png" referrerpolicy="no-referrer">
 
 
@@ -6781,24 +4442,13 @@ J-chad
 2021-3-28 17:21 上传
 
 
-
-
-
-
 华森工业安全培训。请无视铁轨中出现的死神
-
-
-
-
-
 
 
 -----
 
 ####  smy20011  
 ##### 275#         楼主| 发表于 2021-3-28 23:03
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/28/230251s1ccm3c3zei2cwhh.jpg" referrerpolicy="no-referrer">
@@ -6811,23 +4461,13 @@ J-chad
 2021-3-28 23:02 上传
 
 
-
-
-
-
 亲妈画的，旁边那三眼怪是啥。。
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 276#       发表于 2021-3-29 01:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761617&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-28 23:03</a>
@@ -6837,17 +4477,10 @@ J-chad
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 277#       发表于 2021-3-29 07:32
-
-
 
 
 愚人节特殊联动<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
@@ -6855,16 +4488,10 @@ J-chad
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  PureIllusion  
 ##### 278#       发表于 2021-3-29 07:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50762904&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-29 01:51</a>
@@ -6876,13 +4503,9 @@ J-chad
 三眼怪叫にゃんなの
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -6892,12 +4515,7 @@ J-chad
 | wiig| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -6906,23 +4524,15 @@ J-chad
 ##### 279#       发表于 2021-3-29 19:38
 
 
-
 <img src="https://p.sda1.dev/1/062b8d35885992a4572e4c037d0a4daa/IMG_CMP_226457051.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
 
 ####  PureIllusion  
 ##### 280#       发表于 2021-3-29 20:38
-
-
 
 
 空色デイズ Sorairo Days / 中川翔子 (Covered by 夏色まつり＆Gawr Gura)
@@ -6932,13 +4542,9 @@ J-chad
 It's HAPPENING!!!
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -6948,19 +4554,13 @@ It's HAPPENING!!!
 | wiig| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 281#       发表于 2021-3-29 22:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50761617&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-3-28 23:03</a>
@@ -6977,31 +4577,15 @@ It's HAPPENING!!!
 2021-3-29 22:43 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 282#       发表于 2021-3-30 08:03
 
 
-
 <img src="https://p.sda1.dev/1/4653a7d2295b911d47b54c7e82070797/IMG_CMP_105585573.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -7010,22 +4594,15 @@ It's HAPPENING!!!
 ##### 283#       发表于 2021-3-30 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50774689&amp;ptid=1989758" target="_blank">wiig 发表于 2021-3-30 08:03</a>
 —— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
 这好像是个梗？
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 284#       发表于 2021-3-30 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50779855&amp;ptid=1989758" target="_blank">TiHaru 发表于 2021-3-30 16:45</a>
@@ -7035,17 +4612,10 @@ It's HAPPENING!!!
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 285#       发表于 2021-3-30 18:18
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/30/181755un9ne03btf9390bb.png" referrerpolicy="no-referrer">
@@ -7058,23 +4628,13 @@ It's HAPPENING!!!
 2021-3-30 18:17 上传
 
 
-
-
-
 [https://twitter.com/bangdreamgbp_EN/status/1376822005714984963](https://twitter.com/bangdreamgbp_EN/status/1376822005714984963)
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 286#       发表于 2021-3-30 19:33
-
-
 
 
 Watson's Funeral
@@ -7084,17 +4644,10 @@ Watson's Funeral
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 287#       发表于 2021-3-30 20:56
-
-
 
 
 &gt;no DeathStar collab of Libera me from Hell where Suisei sings and Mori raps
@@ -7105,33 +4658,20 @@ Imagine what we could have if Mori actually gave a shit about Hololive...
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  渡鸦骑士  
 ##### 288#       发表于 2021-3-31 01:38
 
 
-
-
 这图我记得出来好久了。
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 289#       发表于 2021-3-31 16:15
-
 
 
  本帖最后由 wiig 于 2021-3-31 16:34 编辑 
@@ -7159,18 +4699,10 @@ Calli：你们觉得Kiara会代表哪张塔罗牌 还挺明显的 chat：the lov
 正在和J-Chad研究怎么让CD在海外能买到
 
 
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 290#       发表于 2021-3-31 16:42
-
 
 
  本帖最后由 wiig 于 2021-3-31 17:00 编辑 
@@ -7179,17 +4711,10 @@ Ame：I'll play with Gura.都在唠鱼 是在说鱼还是联动
 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 291#       发表于 2021-3-31 16:51
-
-
 
 
 fast as fuck boi
@@ -7198,26 +4723,15 @@ fast as fuck boi
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 292#       发表于 2021-3-31 21:24
 
 
-
 <img src="https://p.sda1.dev/1/6868018cf47868edc1961e687d9987c2/IMG_CMP_89295355.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -7226,14 +4740,7 @@ fast as fuck boi
 ##### 293#       发表于 2021-4-1 22:24
 
 
-
-
 玩jackbox
-
-
-
-
-
 
 
 -----
@@ -7242,14 +4749,7 @@ fast as fuck boi
 ##### 294#       发表于 2021-4-1 22:40
 
 
-
-
 Takamori doesn't exist (conspiracy theory )<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> ——By Mori Calliope 
-
-
-
-
-
 
 
 -----
@@ -7258,16 +4758,10 @@ Takamori doesn't exist (conspiracy theory )<img src="https://static.saraba1st.co
 ##### 295#       发表于 2021-4-1 22:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805105&amp;ptid=1989758" target="_blank">面具13 发表于 2021-4-1 22:40</a>
 
 Takamori doesn't exist (conspiracy theory ) ——By Mori Calliope</blockquote>
 Kiara写的
-
-
-
-
-
 
 
 -----
@@ -7276,23 +4770,16 @@ Kiara写的
 ##### 296#       发表于 2021-4-1 22:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805176&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-1 22:48</a>
 
 Kiara写的</blockquote>
 我记得是mori写的，kiara投的票（不排除记混）
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 297#       发表于 2021-4-1 22:51
-
 
 
  本帖最后由 wiig 于 2021-4-1 22:52 编辑 
@@ -7310,22 +4797,13 @@ Kiara写的</blockquote>
 2021-4-1 22:50 上传
 
 
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">Calli没写完，就写了个TH
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 298#       发表于 2021-4-1 23:00
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202104/01/225927v48hklaqhfyhkv8y.png" referrerpolicy="no-referrer">
@@ -7338,23 +4816,13 @@ Kiara写的</blockquote>
 2021-4-1 22:59 上传
 
 
-
-
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">提前泄露
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 299#       发表于 2021-4-1 23:11
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202104/01/231116gu5ptkro2ptn2pf6.jpg" referrerpolicy="no-referrer">
@@ -7367,29 +4835,13 @@ Kiara写的</blockquote>
 2021-4-1 23:11 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 300#       发表于 2021-4-1 23:16
 
 
-
-
 Walfie做的
-
-
-
-
-
 
 
 -----
@@ -7398,15 +4850,9 @@ Walfie做的
 ##### 301#       发表于 2021-4-1 23:18
 
 
-
 <img src="https://p.sda1.dev/1/7088207e6745d9d37a9f3d16a435c222/IMG_CMP_138518129.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -7415,20 +4861,13 @@ Walfie做的
 ##### 302#       发表于 2021-4-1 23:20
 
 
-
 [https://jackbox.tv/](https://jackbox.tv/)
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 303#       发表于 2021-4-1 23:21
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
@@ -7443,21 +4882,10 @@ Walfie做的
 2021-4-1 23:21 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 304#       发表于 2021-4-1 23:45
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202104/01/234535wnd7y3ejnbd66nny.png" referrerpolicy="no-referrer">
@@ -7470,21 +4898,10 @@ Walfie做的
 2021-4-1 23:45 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 305#       发表于 2021-4-1 23:58
-
-
 
 
 Calii : you can say "Baby l love you" when no one around
@@ -7494,24 +4911,13 @@ Kiara: I love you!!!!
 Calli:NO!!!
 
 
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 306#       发表于 2021-4-2 00:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太欢乐 笑果很好的联动
-
-
-
-
-
 
 
 -----
@@ -7520,21 +4926,13 @@ Calli:NO!!!
 ##### 307#         楼主| 发表于 2021-4-2 00:09
 
 
-
-
 全身可动l2d，yes
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 308#       发表于 2021-4-2 00:45
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
@@ -7549,23 +4947,13 @@ Calli:NO!!!
 2021-4-2 00:45 上传
 
 
-
-
-
 Calli最后两道题没有写完，随便写了个E和TH
-
-
-
-
-
 
 
 -----
 
 ####  wiig  
 ##### 309#       发表于 2021-4-2 01:09
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202104/02/010900qn05dszisi5fmg5z.png" referrerpolicy="no-referrer">
@@ -7578,20 +4966,10 @@ Calli最后两道题没有写完，随便写了个E和TH
 2021-4-2 01:09 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  wiig  
 ##### 310#       发表于 2021-4-2 02:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50806178&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-2 01:09</a></blockquote>
@@ -7606,15 +4984,7 @@ Calli最后两道题没有写完，随便写了个E和TH
 2021-4-2 02:03 上传
 
 
-
-
-
 结果两个人都被钓了
-
-
-
-
-
 
 
 -----
@@ -7623,13 +4993,9 @@ Calli最后两道题没有写完，随便写了个E和TH
 ##### 311#       发表于 2021-4-2 10:50
 
 
-
 <img src="https://p.sda1.dev/1/57e24c82957a6d76860cd2da0a930422/IMG_CMP_155190635.jpeg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
 
 
                                        

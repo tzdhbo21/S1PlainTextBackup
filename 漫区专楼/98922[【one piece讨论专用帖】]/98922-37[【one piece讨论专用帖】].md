@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2021-04-02 11:34** 
 
 
-
 -----
 
 ####  DGIL  
 ##### 54001#       发表于 2020-12-24 01:23
-
 
 
  本帖最后由 DGIL 于 2020-12-24 01:24 编辑 
@@ -22,33 +20,19 @@
 复活应该不会整吧。。不然太乱套了。。
 
 
-
-
-
-
-
-
 -----
 
 ####  sakaki59  
 ##### 54002#       发表于 2020-12-24 07:33
 
 
-
-
 这次是罪恶世代的超新星对二皇，索隆和基拉是唯二非船长的超新星，后面罗估计也会来增员
-
-
-
-
-
 
 
 -----
 
 ####  白金口袋  
 ##### 54003#       发表于 2020-12-24 08:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49813366&amp;ptid=98922" target="_blank">DGIL 发表于 2020-12-22 10:20</a>
@@ -63,21 +47,13 @@
 而这种话在其他人看来就是很像小孩子的笑话，前一个梦想就很难实现了，居然还有后一个更加荒谬更加扯淡的梦想，所以白胡子和小时候的艾斯才会爆笑，但是也有御田这种认为这是气量大的表现
 
 
-
 要是原话让真我猜着了就去买彩票<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  灰狼  
 ##### 54004#       发表于 2020-12-24 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49825689&amp;ptid=98922" target="_blank">白金口袋 发表于 2020-12-24 08:25</a>
@@ -91,16 +67,10 @@
 现在看空岛当时看起来像番外，现在来看不知道铺了多少线
 
 
-
-
-
-
-
 -----
 
 ####  穆  
 ##### 54005#       发表于 2020-12-24 11:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827670&amp;ptid=98922" target="_blank">灰狼 发表于 2020-12-24 11:28</a>
@@ -112,11 +82,6 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">空岛就是神官没牌面 才经历了阿拉巴斯坦 大家的胃口都被吊起来了 结果这几个神官是真的菜啊 导致前面看起来有点无聊 敲钟的时候才感受到了那所有的点聚合起来的效果 太赞了
 
 
-
-
-
-
-
 -----
 
 ####  届得到  
@@ -125,22 +90,15 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  yeluffy  
 ##### 54007#       发表于 2020-12-24 14:01
 
 
-
 <blockquote>sakaki59 发表于 2020-12-24 07:33
 这次是罪恶世代的超新星对二皇，索隆和基拉是唯二非船长的超新星，后面罗估计也会来增员 ...</blockquote>
 罗一个瞬移就已经到屋顶了呀
-
-
-
-
-
 
 
 -----
@@ -149,21 +107,13 @@
 ##### 54008#       发表于 2020-12-24 16:11
 
 
-
-
 海贼王弟1001话  雷鸣三十二卦
-
-
-
-
-
 
 
 -----
 
 ####  evangelina  
 ##### 54009#       发表于 2020-12-24 22:03
-
 
 
  本帖最后由 evangelina 于 2020-12-24 22:13 编辑 
@@ -181,10 +131,6 @@
 2020-12-24 22:04 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202012/24/220405qxp8tnodpxwxvpzz.jpg" referrerpolicy="no-referrer">
 
 
@@ -193,12 +139,6 @@
 下载附件
 
 2020-12-24 22:04 上传
-
-
-
-
-
-
 
 
 那样的话one piece除了有推倒世界征服的功效，可能还具备了让人在太空里航行的某种手段，比如星际航海图。
@@ -210,20 +150,10 @@
 而且同样这个故事里几个机械士兵挂个气球都能登月，可能在op世界观下太空航行也不见得是难事。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  evangelina  
 ##### 54010#       发表于 2020-12-24 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49827670&amp;ptid=98922" target="_blank">灰狼 发表于 2020-12-24 11:28</a>
@@ -237,16 +167,10 @@
 这人还在月面组建了自己的军团，后续不交代下说不过去的
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 54011#       发表于 2020-12-25 14:04
-
 
 
  本帖最后由 DGIL 于 2020-12-25 14:07 编辑 
@@ -264,16 +188,10 @@
 你可能得等蛮久啊
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 54012#       发表于 2020-12-25 14:06
-
 
 
  本帖最后由 DGIL 于 2020-12-25 14:12 编辑 
@@ -292,26 +210,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 另外那艾尼路不是早早就直接守在第三部入口了<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  饭太稀  
 ##### 54013#       发表于 2020-12-25 16:17
 
 
-
-
 开局小木船，结尾歼星舰，先预定一个巨大的娜美脸火星公主<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -320,16 +225,9 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54014#       发表于 2020-12-25 16:46
 
 
-
-
 太空海贼团这些放之前都是海贼世界观加分的地方，但是再让尾田画这个怕是要过劳死了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -338,15 +236,8 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54015#       发表于 2020-12-27 08:49
 
 
-
-
 1000话英文全图出了
 最后的连页帅爆
-
-
-
-
-
 
 
 -----
@@ -355,14 +246,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54016#       发表于 2020-12-27 09:04
 
 
-
-
 1000话的路飞这逼装的，和前面几话的是同一个人？
-
-
-
-
-
 
 
 -----
@@ -371,14 +255,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54017#       发表于 2020-12-27 09:11
 
 
-
-
 现在就看普皇，霍金斯，德雷克甚至怪僧什么时候加入战场了
-
-
-
-
-
 
 
 -----
@@ -387,15 +264,8 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54018#       发表于 2020-12-27 11:30
 
 
-
-
 虽然但是，这张图莫名戳中了我的笑点。
 世 界 名 画 <img src="https://p.sda1.dev/0/69b95efc13e5446530be5a5b84702bc6/IMG_CMP_140929775.jpeg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -404,14 +274,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54019#       发表于 2020-12-27 11:35
 
 
-
-
 人家俩超新星都各带一个副手，就罗是孤家寡人搁那一坐<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -420,13 +283,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54020#       发表于 2020-12-27 11:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这话...画风总觉得很奇怪?
-
-
-
-
-
 
 
 -----
@@ -437,22 +294,15 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  天下至贱  
 ##### 54022#       发表于 2020-12-27 12:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49857722&amp;ptid=98922" target="_blank">白金口袋 发表于 2020-12-27 11:35</a>
 人家俩超新星都各带一个副手，就罗是孤家寡人搁那一坐</blockquote>
 罗的船员…我就记得那个熊了，来了也只能当气氛组。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -461,14 +311,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54023#       发表于 2020-12-27 12:09
 
 
-
-
 1000话，就这？<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -477,21 +320,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54024#       发表于 2020-12-27 12:15
 
 
-
-
 说起来凯多是不是美女最多的海贼团？手下各尺寸美女都有<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Snaky  
 ##### 54025#       发表于 2020-12-27 15:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49858033&amp;ptid=98922" target="_blank">svmkty 发表于 2020-12-27 12:15</a>
@@ -501,24 +336,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 —— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 54026#       发表于 2020-12-27 15:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">马尔科还是要当MVP啊，挡住两个三灾。不过这很是很难啊，五皇对线一个凯多已经是要搏命了。
-
-
-
-
-
 
 
 -----
@@ -527,14 +351,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54027#       发表于 2020-12-27 16:09
 
 
-
-
 尾田还是可以啊，感觉燃起来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -543,13 +360,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54028#       发表于 2020-12-27 16:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这路飞变的像娜美克星救场的悟空一样了 
-
-
-
-
-
 
 
 -----
@@ -558,14 +369,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54029#       发表于 2020-12-27 17:27
 
 
-
-
 艾斯如果不挂就和大和成一对了吧！？
-
-
-
-
-
 
 
 -----
@@ -574,14 +378,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54030#       发表于 2020-12-27 17:56
 
 
-
-
 这话的画风明显回到大概150话以前的感觉了，不知道是不是有意的，降低作画难度给动作戏留精力吗？然后虽然这个强行挂到1000话见面开战搞得反而剧情上有点尬，但好歹可以期待后边好好打了
-
-
-
-
-
 
 
 -----
@@ -590,21 +387,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54031#       发表于 2020-12-27 18:04
 
 
-
-
 这不就是当时悟空回来打贝吉塔和那霸的剧情吗<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Freemasons  
 ##### 54032#       发表于 2020-12-27 18:40
-
 
 
  本帖最后由 Freemasons 于 2020-12-27 18:42 编辑 
@@ -615,26 +404,15 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 同样结构的剧情，情感表现力天差地别<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">路飞在新世界的智障表现太多，突然变正经了让人无法融入剧情
 
 
-
-
-
-
-
 -----
 
 ####  Freemasons  
 ##### 54033#       发表于 2020-12-27 18:41
 
 
-
  本帖最后由 Freemasons 于 2020-12-27 18:42 编辑 
 
 编辑
-
-
-
-
-
 
 
 -----
@@ -643,14 +421,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54034#       发表于 2020-12-27 19:39
 
 
-
-
 艾斯的人生还真是彻头彻尾的悲剧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -661,23 +432,15 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Acerola  
 ##### 54036#       发表于 2020-12-27 20:51
 
 
-
-
 终于轮到打凯多和大妈了，之前路飞爬楼这一段真是又臭又长，凯多这几个手下可能是整个op塑造的最差劲的了吧
 
 —— 来自 HUAWEI WLZ-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -686,23 +449,15 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54037#       发表于 2020-12-27 21:03
 
 
-
-
 剧场版boss一人单挑最恶时世代九人
 
 凯多加大妈不会打这5个都费劲吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  athena_1982  
 ##### 54038#       发表于 2020-12-27 21:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861514&amp;ptid=98922" target="_blank">Acerola 发表于 2020-12-27 20:51</a>
@@ -713,25 +468,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 那几个猩猩长颈鹿公鸡的人造果实能力者某种意义上也不算差劲了，起码到现在我都记得……<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  赚钱娶老婆  
 ##### 54039#       发表于 2020-12-27 21:44
 
 
-
-
 人造果实有个屁用啊，好歹要能变化一下啊，战斗力还不如直接养几只动物
-
-
-
-
-
 
 
 -----
@@ -740,15 +483,9 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54040#       发表于 2020-12-27 21:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49861059&amp;ptid=98922" target="_blank">银翼的维罗Xi 发表于 2020-12-27 19:58</a>
 尾田的动作分镜你们看得懂吗，五黄这一拳我看了两遍才发现他是跳到天上对地攻击的 ...</blockquote>
 能看懂的除了那些一话能看十几遍的粉，别人估计都看不懂。
-
-
-
-
-
 
 
 -----
@@ -757,15 +494,9 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54041#       发表于 2020-12-27 22:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862082&amp;ptid=98922" target="_blank">acejoe 发表于 2020-12-27 21:55</a>
  能看懂的除了那些一话能看十几遍的粉，别人估计都看不懂。</blockquote>
 只有你们两个看不懂吧……
-
-
-
-
-
 
 
 -----
@@ -774,14 +505,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54042#       发表于 2020-12-27 22:09
 
 
-
-
 九侠就这么退场了吗，我本来还期待传次郎卧薪尝胆二十年要好好表现一下呢，结果啥都没有吗。。。
-
-
-
-
-
 
 
 -----
@@ -790,21 +514,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54043#       发表于 2020-12-27 22:11
 
 
-
-
 其实现在不用表现路飞的“仁”了，节奏怪怪的
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 54044#       发表于 2020-12-27 22:19
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">如果我不是知道四皇已经是这世界最高位了 
@@ -814,16 +530,10 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 可谁都知道他接下来才是要挨揍那个
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 54045#       发表于 2020-12-27 22:19
-
 
 
  本帖最后由 angelooo 于 2020-12-27 22:20 编辑 
@@ -832,26 +542,15 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 我本来期待的是传次郎和勘十郎这两边的大卧底来一场正面对决，不一定要是战斗方面的，而是各自理念上的，然后勘十郎直接躺了......算了WT你高兴就好
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 54046#       发表于 2020-12-27 22:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我觉得开始就不该给九侠太多戏份的 安排打小boss另说 不会真的期待他们独自面对四皇能做到什么
 
 特别是路飞爬了这么久就更让人烦躁了 
-
-
-
-
-
 
 
 -----
@@ -860,21 +559,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54047#       发表于 2020-12-27 22:55
 
 
-
-
 感觉这不是之前的人画的，现在是不是每一话都分开人在画？这是龙珠次元大乱斗？有个大纲也不会人物性格突变成这样吧…
-
-
-
-
-
 
 
 -----
 
 ####  天下至贱  
 ##### 54048#       发表于 2020-12-27 23:40
-
 
 
  本帖最后由 天下至贱 于 2020-12-27 23:41 编辑 
@@ -893,13 +584,9 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 所以艾斯是自己的叔叔（不对
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -909,12 +596,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 | moeful| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -923,16 +605,10 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54049#       发表于 2020-12-28 00:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49862227&amp;ptid=98922" target="_blank">cdfjg 发表于 2020-12-27 22:09</a>
 
 只有你们两个看不懂吧……</blockquote>
 我反正是看不懂，那些位置移动到底是瞬移？还是起跳？还是被震起来的？反正现在只看最后发招那一下就完了。
-
-
-
-
-
 
 
 -----
@@ -941,16 +617,10 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54050#       发表于 2020-12-28 00:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49863295&amp;ptid=98922" target="_blank">acejoe 发表于 2020-12-28 00:16</a>
 
 我反正是看不懂，那些位置移动到底是瞬移？还是起跳？还是被震起来的？反正现在只看最后发招那一下就完了 ...</blockquote>
 凯多背后偷袭，路飞跳高躲开，这时开大还击不就是只能往下打么？有什么不懂的？
-
-
-
-
-
 
 
 -----
@@ -959,14 +629,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54051#       发表于 2020-12-28 01:24
 
 
-
-
 被偷袭跳起反攻这段不是挺好理解的么…   
-
-
-
-
-
 
 
 -----
@@ -975,14 +638,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54052#       发表于 2020-12-28 11:03
 
 
-
-
 大家其实都知道，下一话被爆锤的人铁定是路飞。。。
-
-
-
-
-
 
 
 -----
@@ -991,14 +647,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54053#       发表于 2020-12-28 14:20
 
 
-
-
 原来不只我一个人觉得路飞像悟空，只不过悟空给人的感觉是救世主，这路飞我只想知道怎么跟两个四皇打。
-
-
-
-
-
 
 
 -----
@@ -1007,16 +656,10 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54054#       发表于 2020-12-28 16:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49857722&amp;ptid=98922" target="_blank">白金口袋 发表于 2020-12-27 11:35</a>
 
 人家俩超新星都各带一个副手，就罗是孤家寡人搁那一坐</blockquote>
 罗手下没人啊，总不能把熊熊带过来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1025,14 +668,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54055#       发表于 2020-12-28 16:49
 
 
-
-
 就算路飞之后再吊再怎么暴打凯多我也会记得他之前被乌尔缇按住就要开4档的事
-
-
-
-
-
 
 
 -----
@@ -1041,21 +677,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54056#       发表于 2020-12-28 17:22
 
 
-
-
 我实在想象不出来，他们五个要怎么打败两个四皇，感觉打凯多一个都够呛
-
-
-
-
-
 
 
 -----
 
 ####  mashav  
 ##### 54057#       发表于 2020-12-28 17:49
-
 
 
  本帖最后由 mashav 于 2020-12-28 17:52 编辑 
@@ -1065,25 +693,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 躲开kaido从背后砸那一下时上跳躲避的嘛
 
 
-
-
-
-
-
 -----
 
 ####  lqchina  
 ##### 54058#       发表于 2020-12-28 18:15
 
 
-
-
 路飞打凯多这拳，哪儿学来的？有前情提要么，我怎么一点印象没有。
-
-
-
-
-
 
 
 -----
@@ -1092,14 +708,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54059#       发表于 2020-12-28 18:32
 
 
-
-
 加上流樱的三档吧，绝招名是第一次出现
-
-
-
-
-
 
 
 -----
@@ -1108,21 +717,13 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54060#       发表于 2020-12-28 18:37
 
 
-
-
 之前拔掉大和的爆炸手环也算是铺垫吧
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 54061#       发表于 2020-12-28 18:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49810803&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2020-12-22 19:47</a>
@@ -1137,16 +738,10 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 罗杰遇到御田的时候还没当上海贼王，说这句话也正常。
 
 
-
-
-
-
-
 -----
 
 ####  アルメリア  
 ##### 54062#       发表于 2020-12-28 19:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49857722&amp;ptid=98922" target="_blank">白金口袋 发表于 2020-12-27 11:35</a>
@@ -1155,32 +750,19 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 是五个超新星啊 这俩副手就是当年唯二的副手超新星
 
 
-
-
-
-
-
 -----
 
 ####  tornadoDA  
 ##### 54063#       发表于 2020-12-28 22:02
 
 
-
-
 如果接下来双皇
-
-
-
-
-
 
 
 -----
 
 ####  ruojichong  
 ##### 54064#       发表于 2020-12-29 01:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49870618&amp;ptid=98922" target="_blank">C男人 发表于 2020-12-28 18:51</a>
@@ -1192,27 +774,15 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 “和全世界的人一起开一场宴会”
 
 
-
-
-
-
-
 -----
 
 ####  恶魔娘阿洛  
 ##### 54065#       发表于 2020-12-29 02:02
 
 
-
-
 九侠个个都会流樱，【大家不要和这个魔头讲江湖道义，一起上】
 
 还是被挨个打趴下，路飞要怎么打？
-
-
-
-
-
 
 
 -----
@@ -1221,14 +791,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54066#       发表于 2020-12-29 02:08
 
 
-
-
 “我要让这大海重新连成一片”
-
-
-
-
-
 
 
 -----
@@ -1237,14 +800,7 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ##### 54067#       发表于 2020-12-29 07:27
 
 
-
-
 按设定来说双皇都是要强于巴雷特一点的吧 5个超新星真是拿脚打 估计还会有援军
-
-
-
-
-
 
 
 -----
@@ -1255,13 +811,10 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hagane  
 ##### 54069#       发表于 2020-12-29 10:12
-
-
 
 
 来对比下吧
@@ -1342,16 +895,10 @@ OP(2年后）
 绝望感：我猜可能是鬼岛要飞到某处导致下面人全灭
 
 
-
-
-
-
-
 -----
 
 ####  恶魔娘阿洛  
 ##### 54070#       发表于 2020-12-29 11:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49875859&amp;ptid=98922" target="_blank">hagane 发表于 2020-12-29 10:12</a>
@@ -1367,17 +914,10 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 简直降维打击
 
 
-
-
-
-
-
 -----
 
 ####  恶魔娘阿洛  
 ##### 54071#       发表于 2020-12-29 11:26
-
-
 
 
 空岛最后是强行给艾尼路降智才赢得
@@ -1386,17 +926,10 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 就算掰了个橡胶完克闪电，路飞也拿心网完全没办法
 
 
-
-
-
-
-
 -----
 
 ####  Freemasons  
 ##### 54072#       发表于 2020-12-29 12:40
-
-
 
 
 不妨再对比下主角团的性格成长
@@ -1414,13 +947,9 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 结果修炼了两年后，路飞变成了沉不住气的高纯度智障，索隆变成了经常阴沟翻船的高纯度路痴，山治变成了被踢出前三的纯SP，哪个人都一副靠不住的样子。除了神·乌索普，其他人不但没有成长，反而缺陷被无限放大了……
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1430,12 +959,7 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 | 县警| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1444,21 +968,13 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 ##### 54073#       发表于 2020-12-29 12:53
 
 
-
-
 按草帽的一次又一次的骚操作，能活到1000话只能说是主角光环
-
-
-
-
-
 
 
 -----
 
 ####  GreenBird  
 ##### 54074#       发表于 2020-12-29 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49874848&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-29 07:50</a>
@@ -1469,16 +985,10 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 念能力的强化系+放出系？
 
 
-
-
-
-
-
 -----
 
 ####  zxzx3577  
 ##### 54075#       发表于 2020-12-29 13:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49874848&amp;ptid=98922" target="_blank">波隆 发表于 2020-12-29 07:50</a>
@@ -1489,25 +999,13 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 应该是穿防霸气 直接打出真实伤害<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  tornadoDA  
 ##### 54076#       发表于 2020-12-29 14:54
 
 
-
-
 这一话虎扑和贴吧也在狂黑，我觉得要黑也要黑凯多秒杀四档，那个情节才是恶心至极
-
-
-
-
-
 
 
 -----
@@ -1518,21 +1016,13 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  陈玉礼  
 ##### 54078#       发表于 2020-12-29 16:09
 
 
-
-
 快进到每个人的武装色有特殊的变化和能力
-
-
-
-
-
 
 
 -----
@@ -1541,14 +1031,7 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 ##### 54079#       发表于 2020-12-29 16:24
 
 
-
-
 1000话就这样确实有点儿跌份，我觉得至少也要对世界局势来点说明吧
-
-
-
-
-
 
 
 -----
@@ -1557,22 +1040,15 @@ OP最绝望的篇章是空岛，艾尼路突出一个拿头打。。。。
 ##### 54080#       发表于 2020-12-29 18:33
 
 
-
 <blockquote>高数 发表于 2020-12-29 12:53
 按草帽的一次又一次的骚操作，能活到1000话只能说是主角光环</blockquote>
 不用骚操作，他都被活捉多少次了，没主角光环早死了
-
-
-
-
-
 
 
 -----
 
 ####  白金口袋  
 ##### 54081#       发表于 2020-12-29 19:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49875859&amp;ptid=98922" target="_blank">hagane 发表于 2020-12-28 20:12</a>
@@ -1587,16 +1063,10 @@ DB
 2年后就跟人造人篇和布欧篇一样没啥绝望感
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 54082#       发表于 2020-12-29 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49881388&amp;ptid=98922" target="_blank">白金口袋 发表于 2020-12-29 19:26</a>
@@ -1611,26 +1081,15 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 所以直到霸气系统出来才能让主角这种超人系在面对自然系也好其他特殊能力的情况下【有得打】
 
 
-
-
-
-
-
 -----
 
 ####  yeluffy  
 ##### 54083#       发表于 2020-12-29 20:34
 
 
-
 <blockquote>tornadoDA 发表于 2020-12-29 14:54
 这一话虎扑和贴吧也在狂黑，我觉得要黑也要黑凯多秒杀四档，那个情节才是恶心至极 ...</blockquote>
 对，就是出在雷鸣八卦秒4档，毕竟在蛋糕岛大妈也没表现出一招秒4档的实力
-
-
-
-
-
 
 
 -----
@@ -1639,13 +1098,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54084#       发表于 2020-12-30 12:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1656,21 +1109,14 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Chinacaii  
 ##### 54086#       发表于 2020-12-30 12:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887100&amp;ptid=98922" target="_blank"> 届得到 发表于 2020-12-30 12:10</a> 引用:萌萌哒兆兆 发表于 2020-12-30 12:06 画了vvvv的旗，说vvvv是国家，微博估计要炎上了 哪个画面 </blockquote>
 彩页来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -1679,15 +1125,9 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54087#       发表于 2020-12-30 12:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887126&amp;ptid=98922" target="_blank">Chinacaii 发表于 2020-12-30 12:13</a>
 彩页</blockquote>
 [https://m.weibo.cn/6609485077/4587777008862408](https://m.weibo.cn/6609485077/4587777008862408)   国旗介绍页
-
-
-
-
-
 
 
 -----
@@ -1696,14 +1136,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54088#       发表于 2020-12-30 12:16
 
 
-
-
 15年的图都被扒出来，看来又要转移注意力了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1712,20 +1145,13 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54089#       发表于 2020-12-30 12:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">大举报时代来临了！来自: iPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  三千珈蓝  
 ##### 54090#       发表于 2020-12-30 12:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887152&amp;ptid=98922" target="_blank">毅茶 发表于 2020-12-30 12:16</a>
@@ -1736,25 +1162,13 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 这是和那个新任日本大使打默契组合拳吧
 
 
-
-
-
-
-
 -----
 
 ####  曾颀  
 ##### 54091#       发表于 2020-12-30 12:23
 
 
-
-
 屁大点事，不过大和国篇是真的难看。
-
-
-
-
-
 
 
 -----
@@ -1763,16 +1177,9 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54092#       发表于 2020-12-30 12:26
 
 
-
-
 15年那会儿我都不记得有这事……
 
 当时的气氛是什么谁还记得？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1781,21 +1188,13 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54093#       发表于 2020-12-30 12:50
 
 
-
-
 现在大家都发现核弹按钮便宜好用都开始用了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  京吹病人  
 ##### 54094#       发表于 2020-12-30 12:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887264&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2020-12-30 12:26</a>
@@ -1806,25 +1205,13 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 有点佩服公众号，平时攒子弹，等合适的时候再打出来
 
 
-
-
-
-
-
 -----
 
 ####  chenffluy  
 ##### 54095#       发表于 2020-12-30 12:56
 
 
-
-
 这事记得当时就有人提了，不过只在小圈子內，现在被再次提起是因为和之国太垃粉丝看不下去转黑举报吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1833,13 +1220,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54096#       发表于 2020-12-30 12:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以 1000话没在B漫出是这个吗
-
-
-
-
-
 
 
 -----
@@ -1848,16 +1229,10 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54097#       发表于 2020-12-30 12:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887583&amp;ptid=98922" target="_blank">owada 发表于 2020-12-30 12:56</a>
 
 所以 1000话没在B漫出是这个吗</blockquote>
 1000话下周才更新啊
-
-
-
-
-
 
 
 -----
@@ -1866,13 +1241,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54098#       发表于 2020-12-30 12:58
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">15年的烂瓜都能拿出来啃
-
-
-
-
-
 
 
 -----
@@ -1881,16 +1250,10 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54099#       发表于 2020-12-30 12:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887593&amp;ptid=98922" target="_blank">麻里奈命 发表于 2020-12-30 12:58</a>
 
 1000话下周才更新啊</blockquote>
 哈?那这周是没更?
-
-
-
-
-
 
 
 -----
@@ -1899,15 +1262,9 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54100#       发表于 2020-12-30 12:59
 
 
-
 <blockquote>owada 发表于 2020-12-30 12:56
 所以 1000话没在B漫出是这个吗</blockquote>
 日本那边这期jump还没发售，B漫敢放？
-
-
-
-
-
 
 
 -----
@@ -1918,21 +1275,13 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  wingzerocos  
 ##### 54102#       发表于 2020-12-30 12:59
 
 
-
-
 我觉得是因为被鬼灭干翻，是时候墙倒众人推了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1941,15 +1290,9 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54103#       发表于 2020-12-30 13:00
 
 
-
 <blockquote>owada 发表于 2020-12-30 12:59
 哈?那这周是没更?</blockquote>
 合刊的时间和平时不一样的
-
-
-
-
-
 
 
 -----
@@ -1958,14 +1301,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54104#       发表于 2020-12-30 13:01
 
 
-
-
 这图731学院炎上的时候就被翻出来过了23333
-
-
-
-
-
 
 
 -----
@@ -1974,16 +1310,10 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54105#       发表于 2020-12-30 13:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887059&amp;ptid=98922" target="_blank">萌萌哒兆兆 发表于 2020-12-30 12:06</a>
 
 画了vvvv的旗，说vvvv是国家，微博估计要炎上了</blockquote>
 我记得只是把出版过海贼王那些地方的旗子都画上去了，并没说什么
-
-
-
-
-
 
 
 -----
@@ -1992,14 +1322,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54106#       发表于 2020-12-30 13:04
 
 
-
-
 微博热搜第五了，怕是真的要凉，不过海贼王国内版权有腾讯一份，有tony马在或许能无事发生
-
-
-
-
-
 
 
 -----
@@ -2008,13 +1331,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54107#       发表于 2020-12-30 13:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">话说回来，这楼里又有多少付费读者呢？来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -2023,19 +1340,12 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54108#       发表于 2020-12-30 13:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887685&amp;ptid=98922" target="_blank">chenffluy 发表于 2020-12-30 13:04</a>
 微博热搜第五了，怕是真的要凉，不过海贼王国内版权有腾讯一份，有tony马在或许能无事发生 ...</blockquote>
 平时有可能，但是pony这几天看到jack被弄成这样，可能不敢造次了。
 
 
-
 —— 来自 Xiaomi Redmi Note 5, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
-
-
-
-
-
 
 
 -----
@@ -2044,14 +1354,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54109#       发表于 2020-12-30 13:12
 
 
-
-
 文字狱要不得
-
-
-
-
-
 
 
 -----
@@ -2062,12 +1365,10 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  麻里奈命  
 ##### 54111#       发表于 2020-12-30 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887833&amp;ptid=98922" target="_blank">鸭梨很大的路人 发表于 2020-12-30 13:16</a>
@@ -2076,27 +1377,15 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 空降这么突然本身就是被人买了吧
 
 
-
-
-
-
-
 -----
 
 ####  Reinhold  
 ##### 54112#       发表于 2020-12-30 13:26
 
 
-
-
 微博看了看，“房子塌了”是啥意思<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -2105,14 +1394,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54113#       发表于 2020-12-30 13:26
 
 
-
-
 那张彩页的事情不是早就喷过一轮了吧，包括佛兰奇的辫子都被认为是乳滑和刻板印象<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2121,16 +1403,9 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54114#       发表于 2020-12-30 13:35
 
 
-
-
 真论刻板印象还得看我普皇
 
 — from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -2139,23 +1414,15 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54115#       发表于 2020-12-30 13:42
 
 
-
-
 看了下综合性贴吧的相关帖子都被公关了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  cahny  
 ##### 54116#       发表于 2020-12-30 13:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887950&amp;ptid=98922" target="_blank">Reinhold 发表于 2020-12-30 13:26</a>
@@ -2168,25 +1435,13 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  裤袜大落  
 ##### 54117#       发表于 2020-12-30 13:50
 
 
-
-
 一天天的好起来啦
-
-
-
-
-
 
 
 -----
@@ -2195,14 +1450,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54118#       发表于 2020-12-30 13:51
 
 
-
-
 挺好的，快点干死正版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2211,17 +1459,11 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54119#       发表于 2020-12-30 14:02
 
 
-
  本帖最后由 蒹葭公子 于 2020-12-30 14:03 编辑 
 
 趁着这次的烂瓜，我给群里大半弃坑的网友科普了一下和之国有多烂……<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 顶上战争赤犬说的对啊，难怪赤犬能当元帅，跟其他人（指白胡子罗杰红发和之国一干御田舔狗等）不一样有识人之明<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2232,21 +1474,13 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  qzfjnv  
 ##### 54121#       发表于 2020-12-30 14:20
 
 
-
-
 快进到集英社作品全部封杀
-
-
-
-
-
 
 
 -----
@@ -2255,15 +1489,8 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54122#       发表于 2020-12-30 14:43
 
 
-
-
 好几年前收过大陆正版到司法岛篇呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 这波要来大的了
-
-
-
-
-
 
 
 -----
@@ -2272,14 +1499,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54123#       发表于 2020-12-30 14:57
 
 
-
-
 以后sb中国玻璃心人就别娱乐了，天天看样板戏就可以了
-
-
-
-
-
 
 
 -----
@@ -2288,14 +1508,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ##### 54124#       发表于 2020-12-30 15:14
 
 
-
-
 talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2306,23 +1519,15 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  vivuhz  
 ##### 54126#       发表于 2020-12-30 16:26
 
 
-
-
 加速加速<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -2331,15 +1536,9 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54127#       发表于 2020-12-30 17:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49888335&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2020-12-30 14:02</a>
  趁着这次的烂瓜，我给群里大半弃坑的网友科普了一下和之国有多烂…… 顶上战争赤犬说的对啊，难怪赤 ...</blockquote>
 赤犬都怕和之国武士
-
-
-
-
-
 
 
 -----
@@ -2348,16 +1547,10 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54128#       发表于 2020-12-30 17:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49890306&amp;ptid=98922" target="_blank">cdfjg 发表于 2020-12-30 17:07</a>
 
 赤犬都怕和之国武士</blockquote>
 那得亏赤犬不知道和之国是一群有眼无珠的人……
-
-
-
-
-
 
 
 -----
@@ -2366,16 +1559,9 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54129#       发表于 2020-12-30 18:02
 
 
-
-
 看洗地比和之国有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 比起现实，给和之国篇洗的难度更大
-
-
-
-
-
 
 
 -----
@@ -2384,14 +1570,7 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54130#       发表于 2020-12-30 18:07
 
 
-
-
 很久没看了 和之国篇大概是个什么样的 或者私信我说下剧情
-
-
-
-
-
 
 
 -----
@@ -2400,14 +1579,7 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54131#       发表于 2020-12-30 18:19
 
 
-
-
 说起来半天过去到现在好像都没大一点的媒体或yhx发过相关报道，连上帝之鹰发的都是洗白的，小马哥出手了？
-
-
-
-
-
 
 
 -----
@@ -2416,15 +1588,9 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54132#       发表于 2020-12-30 18:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49890984&amp;ptid=98922" target="_blank">chenffluy 发表于 2020-12-30 18:19</a>
  说起来半天过去到现在好像都没大一点的媒体或yhx发过相关报道，连上帝之鹰发的都是洗白的，小马哥出手了？ ...</blockquote>
 要挣钱的嘛，不管真的假的假的真的，之前华为都屁事没有，米忽悠也没事，核弹这种也就欺负欺负没背景没资本或者中国没过审的东西，你要是b站投个视频有点擦边球那举报是一举一个准，你要是外国游戏有用词不当那举报是tb立马下架
-
-
-
-
-
 
 
 -----
@@ -2433,15 +1599,9 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54133#       发表于 2020-12-30 18:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49891134&amp;ptid=98922" target="_blank">Bruce33 发表于 2020-12-30 18:37</a>
  要挣钱的嘛，不管真的假的假的真的，之前华为都屁事没有，米忽悠也没事，核弹这种也就欺负欺负没背景没资 ...</blockquote>
  不过那种恶意作死我是抵制的而且谁都救不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2450,14 +1610,7 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54134#       发表于 2020-12-30 18:41
 
 
-
-
 什么 赵丹都海贼王无效？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2466,14 +1619,7 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ##### 54135#       发表于 2020-12-30 18:49
 
 
-
-
 赵丹到底有没有效还是要看握枪的手是谁
-
-
-
-
-
 
 
 -----
@@ -2484,12 +1630,10 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  nuoer  
 ##### 54137#       发表于 2020-12-30 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49889788&amp;ptid=98922" target="_blank">lightingwolf 发表于 2020-12-30 16:18</a>
@@ -2502,27 +1646,15 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  敖轩  
 ##### 54138#       发表于 2020-12-31 01:07
 
 
-
-
 能有这么多人洗而不是大义独轮车，说明海贼粉丝德匹下，甚至不如杏奴<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -2533,7 +1665,6 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  lightingwolf  
@@ -2542,21 +1673,13 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  24k纯帅  
 ##### 54141#       发表于 2020-12-31 04:01
 
 
-
-
 大部分看op的人入坑的时候看的都不是航海王吧，对这敏感才奇怪了
-
-
-
-
-
 
 
 -----
@@ -2565,23 +1688,15 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 ##### 54142#       发表于 2020-12-31 13:18
 
 
-
-
 所谓饭圈是不是前明朋党类似的东西？
 
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
 
 ####  nuoer  
 ##### 54143#       发表于 2020-12-31 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49894461&amp;ptid=98922" target="_blank">lightingwolf 发表于 2020-12-31 02:45</a>
@@ -2593,11 +1708,6 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  lightingwolf  
@@ -2606,13 +1716,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  nuoer  
 ##### 54145#       发表于 2020-12-31 16:57
-
-
 
 
 终于找到了，均出自日文单行本
@@ -2622,25 +1729,13 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  坏未来  
 ##### 54146#       发表于 2020-12-31 17:03
 
 
-
-
 外野的傻逼流入的多了，楼里的讨论氛围就差了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2649,23 +1744,16 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 ##### 54147#       发表于 2020-12-31 20:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49900156&amp;ptid=98922" target="_blank">nuoer 发表于 2020-12-31 16:57</a>
 
 终于找到了，均出自日文单行本</blockquote>
 我非常奇怪的一点是为什么表里没有大陆？这个时间点大陆应该有正版引进了吧？
 
 
-
-
-
-
-
 -----
 
 ####  nuoer  
 ##### 54148#       发表于 2020-12-31 20:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49901895&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2020-12-31 20:16</a>
@@ -2675,16 +1763,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  蒹葭公子  
 ##### 54149#       发表于 2020-12-31 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902030&amp;ptid=98922" target="_blank">nuoer 发表于 2020-12-31 20:29</a>
@@ -2698,16 +1780,10 @@ https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=1
 你一个15、16年的单行本放个十年前的海外出版情况这不有病吗？就算没有4v这是照样也是伤害这之后引进了漫画的国家的感情啊，日本人不是最会读空气吗？不知道这么做很傻逼？
 
 
-
-
-
-
-
 -----
 
 ####  麻里奈命  
 ##### 54150#       发表于 2020-12-31 20:36
-
 
 
  本帖最后由 麻里奈命 于 2020-12-31 20:37 编辑 
@@ -2721,16 +1797,10 @@ SBS那张是26卷，02年出的单行本
 而且下面写了预计2003年之后会出的有哪些国家这段，不知道是第几卷也能看出是03年之前的单行本
 
 
-
-
-
-
-
 -----
 
 ####  蒹葭公子  
 ##### 54151#       发表于 2020-12-31 20:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49902098&amp;ptid=98922" target="_blank">麻里奈命 发表于 2020-12-31 20:36</a>
@@ -2743,16 +1813,10 @@ SBS那张是26卷，02年出的单行本
 那确实没必要，翻02年的旧帐就太蠢了......
 
 
-
-
-
-
-
 -----
 
 ####  banglian  
 ##### 54152#       发表于 2020-12-31 20:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49887579&amp;ptid=98922" target="_blank">chenffluy 发表于 2020-12-30 12:56</a>
@@ -2764,30 +1828,17 @@ SBS那张是26卷，02年出的单行本
 （纯属瞎说概不负责<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  Supermangunv3  
 ##### 54153#       发表于 2021-1-1 06:48
 
 
-
-
 尾田画的这都认不出来了…
-
-
-
-
 
 
 64jkihsd8jckoic2x32j8e9ss.jpg
 (73.28 KB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -2796,24 +1847,7 @@ SBS那张是26卷，02年出的单行本
 2021-1-1 06:48 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202101/01/064841gzfx6z6amx6xbb6m.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -2824,22 +1858,15 @@ SBS那张是26卷，02年出的单行本
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  acejoe  
 ##### 54155#       发表于 2021-1-1 12:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49905814&amp;ptid=98922" target="_blank">Supermangunv3 发表于 2021-1-1 06:48</a>
 尾田画的这都认不出来了…</blockquote>
 滨崎步
-
-
-
-
-
 
 
 -----
@@ -2850,13 +1877,10 @@ SBS那张是26卷，02年出的单行本
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Loony  
 ##### 54157#       发表于 2021-1-1 15:17
-
-
 
 
 今天把攒了一年份的连载一口气看了，我是去年从甚平出来开始没看的。今天一看进度也没走太多，虽然一年也就30多话左右的内容。
@@ -2869,31 +1893,19 @@ SBS那张是26卷，02年出的单行本
 以后可能OP我就真一年一看了，感觉这样也挺舒服的。
 
 
-
-
-
-
-
 -----
 
 ####  游蜓  
 ##### 54158#       发表于 2021-1-1 15:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">最后好歹来个路飞的正脸特写啊
-
-
-
-
-
 
 
 -----
 
 ####  zxzx7753  
 ##### 54159#       发表于 2021-1-1 15:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49876702&amp;ptid=98922" target="_blank">恶魔娘阿洛 发表于 2020-12-29 11:26</a>
@@ -2906,17 +1918,10 @@ SBS那张是26卷，02年出的单行本
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  zxzx7753  
 ##### 54160#       发表于 2021-1-1 16:14
-
-
 
 
 其实路飞战斗力浮动很正常   基本上海贼王里面打架分为“不能打的架” “胡闹时打的架” “随便打的架”和“带着信念打的架” 
@@ -2937,16 +1942,10 @@ wt也在sbs上说被打败的敌人为什么没有死  因为只要战胜他�
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 54161#       发表于 2021-1-1 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49879409&amp;ptid=98922" target="_blank">龙手马弗 发表于 2020-12-29 16:08</a>
@@ -2963,15 +1962,7 @@ wt也在sbs上说被打败的敌人为什么没有死  因为只要战胜他�
 2021-1-1 16:42 上传
 
 
-
-
-
 最早打出远程真实伤害的人
-
-
-
-
-
 
 
 -----
@@ -2980,23 +1971,16 @@ wt也在sbs上说被打败的敌人为什么没有死  因为只要战胜他�
 ##### 54162#       发表于 2021-1-2 10:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49909631&amp;ptid=98922" target="_blank">zxzx7753 发表于 2021-1-1 16:14</a>
 
 其实路飞战斗力浮动很正常   基本上海贼王里面打架分为“不能打的架” “胡闹时打的架” “随便打的架”和 ...</blockquote>
 这个解读有意思，赞了。
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 54163#       发表于 2021-1-2 12:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49909631&amp;ptid=98922" target="_blank">zxzx7753 发表于 2021-1-1 02:14</a>
@@ -3015,16 +1999,10 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 凯多初登场路飞这边人都好好的，没死没伤的所以没有爆发点，结果上楼一看阿锦阿猫阿狗这几个熟的全躺了，阿锦又哭着求路飞救于是就爆气了
 
 
-
-
-
-
-
 -----
 
 ####  古畑任三郎2015  
 ##### 54164#       发表于 2021-1-2 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916396&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-2 12:56</a>
@@ -3037,16 +2015,10 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 五皇暴怒，然后被秒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 54165#       发表于 2021-1-2 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916555&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2021-1-1 23:20</a>
@@ -3057,16 +2029,10 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 活要见人，死要见尸嘛，受伤流泪救救我必须是要在五皇眼前的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  athena_1982  
 ##### 54166#       发表于 2021-1-2 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49909824&amp;ptid=98922" target="_blank">DGIL 发表于 2021-1-1 16:42</a>
@@ -3079,16 +2045,10 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 这也算是霸气外放了吧
 
 
-
-
-
-
-
 -----
 
 ####  zxzx7753  
 ##### 54167#       发表于 2021-1-2 21:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916555&amp;ptid=98922" target="_blank">古畑任三郎2015 发表于 2021-1-2 13:20</a>
@@ -3103,16 +2063,10 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 但和乌索普决斗时就揭对面老底了 “你根本没有8000名部下”<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  zxzx7753  
 ##### 54168#       发表于 2021-1-2 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916396&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-2 12:56</a>
@@ -3125,25 +2079,13 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 “伙伴”差不多就是路飞的底线了   白胡子也差不多  底下人都罩不住怎么出来混<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  moeful  
 ##### 54169#       发表于 2021-1-2 21:25
 
 
-
-
 那不是路飞的特质，而应该说是尾田为了烘托气氛设计的情节抑扬吧。
-
-
-
-
-
 
 
 -----
@@ -3154,12 +2096,10 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  蔡卓妍  
 ##### 54171#       发表于 2021-1-3 01:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49881606&amp;ptid=98922" target="_blank">hagane 发表于 2020-12-29 19:48</a>
@@ -3167,11 +2107,6 @@ CP9罗宾都哭成那样了所以二话不说直接烧旗子砸场子
 
 DB不一样，反正就是拳拳 ...</blockquote>
 顶上最好看是因为各种自然系能打，霸王色霸气还没交代清楚的情况了，艾斯的最强自然系被暗暗果实干掉，暗暗果实被**干掉，**有蜡果实还是能打一打，各队长都能和自然系果实玩玩，白胡子震震果实和三大奖果实有来有回，最后还把暗暗果实给锤了，艾斯本来无敌的自然系果实也被打死。op到这里结束就好了，现在什么都是黑又硬瞎打一顿就算了，一点意思都没有。
-
-
-
-
-
 
 
 -----
@@ -3182,12 +2117,10 @@ DB不一样，反正就是拳拳 ...</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  大天  
 ##### 54173#       发表于 2021-1-3 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49923066&amp;ptid=98922" target="_blank">FBIwarning 发表于 2021-1-3 05:10</a>
@@ -3199,16 +2132,10 @@ DB不一样，反正就是拳拳 ...</blockquote>
 能大能小，能长能短，又硬又能热，以后的用处可大了。
 
 
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 54174#       发表于 2021-1-3 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49916396&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-2 12:56</a>
@@ -3219,16 +2146,10 @@ DB不一样，反正就是拳拳 ...</blockquote>
 重看了一次第一卷，的确如此，师承红发，Romance Dawn就是这么演的。
 
 
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 54175#       发表于 2021-1-3 15:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49922611&amp;ptid=98922" target="_blank">蔡卓妍 发表于 2021-1-3 01:30</a>
@@ -3237,16 +2158,10 @@ DB不一样，反正就是拳拳 ...</blockquote>
 以前火影三代目也是两种属性配合，让很多读者觉得“果然是影，太厉害了”。后期火影就没有这种忍术了，全是开高达。霸气打补丁也还行，但是现在武装色PK就有点像对波。
 
 
-
-
-
-
-
 -----
 
 ####  evangelina  
 ##### 54176#       发表于 2021-1-4 09:21
-
 
 
  本帖最后由 evangelina 于 2021-1-4 09:24 编辑 
@@ -3262,16 +2177,10 @@ DB不一样，反正就是拳拳 ...</blockquote>
 2021-1-4 09:22 上传
 
 
-
-
-
-
-
 人気漫画『ONE PIECE（ワンピース）』が、4日発売の連載誌『週刊少年ジャンプ』（集英社）5・6合併号にて連載1000話を迎えた。これを記念して作者・尾田栄一郎氏のコメントが公開され、連載23年間を振り返った。
 
 
 記念すべき連載1000話を迎え「やーもー　いろんなことがありすぎた23年でした。僕の人生の半分が週刊連載。笑　ルフィたちもいくつもの島へ航海し、いくつもの冒険をしてきました。出会った人たちの数はもうわからない！」とし、「その裏で僕も、たくさんの人たちに出会い、家族を始め数えきれない人たちによって支えられてきました。いろんな人たちに頭があがりません」と感謝。
-
 
 
 　また、作家としての持論として「読者にも忙しい人生があり、『読者は5年で入れ代わるもの』それが長期エンタメのセオリーです。だから僕は読者をあまりファンと呼ばないようにしてました。いつか去っていく人達だと自分に言い聞かせてたからです。『おごるな』と」と打ち明けた。
@@ -3283,15 +2192,7 @@ DB不一样，反正就是拳拳 ...</blockquote>
 　最後に「なんやかんやで今ご縁のある世界中のONE PIECEファンの皆様！　長いお話になりましたが、もう少しの間、ルフィたちの冒険をどうか見守ってやってください!!」と呼びかけた。
 
 
-
 wt说现在的冒险一只脚踏入最终章啊.....
-
-
-
-
-
-
-
 
 
 -----
@@ -3302,12 +2203,10 @@ wt说现在的冒险一只脚踏入最终章啊.....
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  tyauto  
 ##### 54178#       发表于 2021-1-4 11:34
-
 
 
  本帖最后由 tyauto 于 2021-1-4 11:37 编辑 
@@ -3316,25 +2215,13 @@ wt说现在的冒险一只脚踏入最终章啊.....
 记得N多年前玩过魔兽某个海贼类RPG(那时候漫画刚画到德岛篇)，里面前中期厉害好用的角色都是果实能力者、尤其是那帮自然系，不过到了后期直至满级最好用的还是三色霸气技能强的角色、尤其是红发，现在想想还是挺有先见之明的
 
 
-
-
-
-
-
 -----
 
 ####  缺德猫  
 ##### 54179#       发表于 2021-1-4 12:28
 
 
-
-
 这次投票路飞可能拿不到第一了，甚至前三都进不去......是不是大家都默认路飞第一不给他投票啊？
-
-
-
-
-
 
 
 -----
@@ -3343,14 +2230,7 @@ wt说现在的冒险一只脚踏入最终章啊.....
 ##### 54180#       发表于 2021-1-4 19:47
 
 
-
-
 所以前三是谁？
-
-
-
-
-
 
 
 -----
@@ -3359,17 +2239,11 @@ wt说现在的冒险一只脚踏入最终章啊.....
 ##### 54181#       发表于 2021-1-5 00:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49877380&amp;ptid=98922" target="_blank">Freemasons 发表于 2020-12-29 12:40</a>
 不妨再对比下主角团的性格成长
  
 龙珠在这方面刻画得还是不错的，实力变强一般都伴随着性格缺陷的修正</blockquote>
 Op的人物没有成长，只有过去，所有的人都是用一个过去回忆勾勒人物，这么多年了路飞还是傻逼，厨师还是好色，索隆还是路痴，乌索布还是胆小，罗宾加入了以后感觉毫无性格可有可无，工具人
-
-
-
-
-
 
 
 -----
@@ -3380,12 +2254,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  yth329  
 ##### 54183#       发表于 2021-1-5 13:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49937532&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-1-4 19:47</a>
@@ -3394,16 +2266,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 估计是罗索隆和路飞
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 54184#       发表于 2021-1-6 07:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49939980&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-1-4 10:56</a>
@@ -3461,13 +2327,9 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 而路飞前期是假傻，看着啥也不懂实际上精明得很，不仅敌人连队友都猜不透他，不是全船照顾他而是他在关键时刻照顾全船的人，结果后期成了真傻，智商担当分给了其他船员和同盟的倒霉蛋罗，他自己就只管打打打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 5战斗力 +5
@@ -3481,19 +2343,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 | yinfu| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  evangelina  
 ##### 54185#       发表于 2021-1-6 09:36
-
 
 
  本帖最后由 evangelina 于 2021-1-6 09:39 编辑 
@@ -3509,17 +2365,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 你贴的前几张早期的战斗看着也舒服，现在人跟场景堆的满满的看着都累<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  恶魔娘阿洛  
 ##### 54186#       发表于 2021-1-6 09:52
-
-
 
 
 2年后路飞突出一个弱智，什么情况都是莽一波
@@ -3528,32 +2377,19 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 打阿普对面能力是啥都不知道，上来就被人炸晕过去
 
 
-
-
-
-
-
 -----
 
 ####  赚钱娶老婆  
 ##### 54187#       发表于 2021-1-6 10:06
 
 
-
-
 会不会是大家老了啊
-
-
-
-
-
 
 
 -----
 
 ####  天使的日曜日  
 ##### 54188#       发表于 2021-1-6 10:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
@@ -3568,16 +2404,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 换现在的话感觉就是啊？你在说什么？哈喽？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 54189#       发表于 2021-1-6 11:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952592&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-1-5 20:28</a>
@@ -3594,25 +2424,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 所以才说早期路飞魅力真心大，即使心底里的思想大相径庭，但绝不让你知道，大家依然是好伙伴，依然会为你拼命擦屁股<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  陶矢  
 ##### 54190#       发表于 2021-1-6 11:53
 
 
-
-
 还有空岛敲钟, 只有路飞意识到敲钟的意义 
-
-
-
-
-
 
 
 -----
@@ -3623,28 +2441,19 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Yeaha123  
 ##### 54192#       发表于 2021-1-6 12:01
 
 
-
-
 还有单挑青雉，不是一时冲动想出来的
-
-
-
-
-
 
 
 -----
 
 ####  JC_AR  
 ##### 54193#       发表于 2021-1-6 15:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
@@ -3659,16 +2468,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 尾田就一个画漫画的，懂什么海贼王
 
 
-
-
-
-
-
 -----
 
 ####  svmkty  
 ##### 54194#       发表于 2021-1-6 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49953001&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 11:01</a>
@@ -3689,21 +2492,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 2021-1-6 15:26 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  仟音一心  
 ##### 54195#       发表于 2021-1-6 15:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
@@ -3716,25 +2508,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 两年前的路飞看着真舒服啊！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">久违了
 
 
-
-
-
-
-
 -----
 
 ####  tornadoDA  
 ##### 54196#       发表于 2021-1-6 15:38
 
 
-
-
 这周没有漫画吗
-
-
-
-
-
 
 
 -----
@@ -3743,16 +2523,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54197#       发表于 2021-1-6 16:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952073&amp;ptid=98922" target="_blank">evangelina 发表于 2021-1-6 09:36</a>
 
 你贴的前几张早期的战斗看着也舒服，现在人跟场景堆的满满的看着都累 ...</blockquote>
 现在的画面和港漫有得一拼了，密密**
-
-
-
-
-
 
 
 -----
@@ -3761,17 +2535,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54198#       发表于 2021-1-6 17:44
 
 
-
-
 路飞最开始吸引到我就是开篇克比一心想参军，但有黑历史，而且还被海军误会和路飞是一伙的，他化解的那段，真的是机制又巧妙
 印象中他最后一次体现他的智商还是在水之都，现在就剩莽了
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -3780,14 +2547,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54199#       发表于 2021-1-6 22:14
 
 
-
-
 两年后的五黄智商随着艾斯一起逝去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单挑青稚放团员们逃跑的机智表现不知道什么时候才能见到了来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -3796,16 +2556,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54200#       发表于 2021-1-6 22:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49959617&amp;ptid=98922" target="_blank">摸鱼先锋 发表于 2021-1-6 22:14</a>
 
 两年后的五黄智商随着艾斯一起逝去了单挑青稚放团员们逃跑的机智表现不知道什么时候才能见到了 ...</blockquote>
 我也觉得，艾斯当时是全篇最弱智的堪称，结果他一死，感觉就像弱智病毒感染了所有角色。
-
-
-
-
-
 
 
 -----
@@ -3814,16 +2568,9 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54201#       发表于 2021-1-7 00:21
 
 
-
-
 唉，看了2年前的路飞真是感慨万千
 
 现在真就五黄了
-
-
-
-
-
 
 
 -----
@@ -3832,14 +2579,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54202#       发表于 2021-1-7 01:20
 
 
-
-
 想起当年怎么爱上这部漫画的 一转眼十几年过去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3848,21 +2588,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54203#       发表于 2021-1-8 12:09
 
 
-
-
 人太多了，尾田赶着完结没时间再写路飞的睿智了
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 54204#       发表于 2021-1-8 12:46
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">其实当时打凯多不算什么错误啊
@@ -3874,16 +2606,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 只是谁都料不到真一棒子就无了 读者也想不到
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 54205#       发表于 2021-1-8 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49974464&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-1-8 12:09</a>
@@ -3892,16 +2618,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 其实不成立，没时间写睿智，但有时间写耍宝，好色，迷路……这种不用再强调了的东西
 
 
-
-
-
-
-
 -----
 
 ####  stonego  
 ##### 54206#       发表于 2021-1-8 14:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49975446&amp;ptid=98922" target="_blank">cdfjg 发表于 2021-1-8 13:53</a>
@@ -3910,25 +2630,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 角色太多，每个人戏份有限只能用标签化的行为来画个轮廓，和各种奇怪口癖一样都是为了在短时间内给读者留下一个印象的做法，到了鬼岛甚至大部分新角色亮个名牌说两句口癖就要下场了，尾田确实是摊子铺的太大，收不住了。
 
 
-
-
-
-
-
 -----
 
 ####  SteinLee  
 ##### 54207#       发表于 2021-1-8 14:26
 
 
-
-
 罗：一刀超人，路飞：一拳超人
-
-
-
-
-
 
 
 -----
@@ -3937,13 +2645,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54208#       发表于 2021-1-8 16:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">每次重看都能发现路飞是装傻，结果新世界是真傻
-
-
-
-
-
 
 
 -----
@@ -3952,23 +2654,16 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54209#       发表于 2021-1-8 16:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49977096&amp;ptid=98922" target="_blank">游蜓 发表于 2021-1-8 16:33</a>
 
 每次重看都能发现路飞是装傻，结果新世界是真傻</blockquote>
 哦不对，大妈篇还算有点智商，和之国是啥玩意啊
 
 
-
-
-
-
-
 -----
 
 ####  akstcle  
 ##### 54210#       发表于 2021-1-8 17:27
-
 
 
  本帖最后由 akstcle 于 2021-1-8 17:31 编辑 
@@ -3986,26 +2681,15 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 结果就是你就算打赢凯多，重伤员都要被拖死了。
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 54211#       发表于 2021-1-8 17:32
 
 
-
 <blockquote>stonego 发表于 2021-1-8 14:03
 角色太多，每个人戏份有限只能用标签化的行为来画个轮廓，和各种奇怪口癖一样都是为了在短时间内给读者留 ...</blockquote>
 所以就是不会做减法......设计了N多人物结果连带主角团一起标签化，该突出的却不突出
-
-
-
-
-
 
 
 -----
@@ -4014,22 +2698,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54212#       发表于 2021-1-8 22:45
 
 
-
-
 [f:001话说germa的人还活着吗
-
-
-
-
-
 
 
 -----
 
 ####  nuoer  
 ##### 54213#       发表于 2021-1-13 18:52
-
-
 
 
 情报出了
@@ -4039,25 +2714,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  灰狼  
 ##### 54214#       发表于 2021-1-14 04:11
 
 
-
-
 那个搞笑表情颇有"一二三一起上，谁怂谁是狗”的感觉
-
-
-
-
-
 
 
 -----
@@ -4066,16 +2729,9 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54215#       发表于 2021-1-14 06:27
 
 
-
-
 路飞的退化实在有点洗粉了，以后就让那些捧尾田臭脚的和他感动常在吧
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4084,21 +2740,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54216#       发表于 2021-1-14 06:45
 
 
-
-
 1000话那么严肃，这回别搞笑啊
-
-
-
-
-
 
 
 -----
 
 ####  banglian  
 ##### 54217#       发表于 2021-1-14 08:16
-
 
 
  本帖最后由 banglian 于 2021-1-14 08:29 编辑 
@@ -4113,19 +2761,12 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 越狱后最时髦的竟然就是单刷乌尔提姐弟而已<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  届得到  
 ##### 54218#       发表于 2021-1-15 10:51
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -4136,13 +2777,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  少年包工头  
 ##### 54220#       发表于 2021-1-15 12:24
-
-
 
 
 凯多思考着：“不久前在九里的时候这个臭小子才彻底输给我。之后到底发生了什么？！世界上只有几个人能和我一战，他以为他是谁？！”
@@ -4154,16 +2792,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 罗杰白胡子御田洛克斯同一档，卡普高一档，也没毛病吧？
 
 
-
-
-
-
-
 -----
 
 ####  穆  
 ##### 54221#       发表于 2021-1-15 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50025131&amp;ptid=98922" target="_blank">nuoer 发表于 2021-1-13 18:52</a>
@@ -4176,16 +2808,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 <img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">诶 锦卫门那不是果实能力吗 绿藻头这都能领悟出来的？
 
 
-
-
-
-
-
 -----
 
 ####  赚钱娶老婆  
 ##### 54222#       发表于 2021-1-15 14:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50043472&amp;ptid=98922" target="_blank">穆 发表于 2021-1-15 14:15</a>
@@ -4194,16 +2820,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 是换衣服果实吧
 
 
-
-
-
-
-
 -----
 
 ####  穆  
 ##### 54223#       发表于 2021-1-15 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50043493&amp;ptid=98922" target="_blank">赚钱娶老婆 发表于 2021-1-15 14:18</a>
@@ -4212,25 +2832,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 <img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">哦对哦对哦 记错了 记成是果实能力了 
 
 
-
-
-
-
-
 -----
 
 ####  owada  
 ##### 54224#       发表于 2021-1-15 14:28
 
 
-
-
 能不能正经点打,1000话就很严肃,下一话立马搞笑,好歹1002话再来啊
-
-
-
-
-
 
 
 -----
@@ -4239,21 +2847,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54225#       发表于 2021-1-15 14:41
 
 
-
-
 路飞打伤凯多其他人都很惊讶，合着还是只有路飞一个人会高级武装色，最后又成主角独场秀？
-
-
-
-
-
 
 
 -----
 
 ####  ネオグランゾン  
 ##### 54226#       发表于 2021-1-15 14:43
-
 
 
  本帖最后由 ネオグランゾン 于 2021-1-15 14:45 编辑 
@@ -4263,26 +2863,15 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 话说，没想到白胡子在凯多脑海里居然是这么个恶鬼一样的形象。当年在洛克斯团里没少挨欺负吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">类似于大猩猩和樱木花道那种关系？
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 54227#       发表于 2021-1-15 15:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50042257&amp;ptid=98922" target="_blank">少年包工头 发表于 2021-1-15 12:24</a>
 凯多思考着：“不久前在九里的时候这个臭小子才彻底输给我。之后到底发生了什么？！世界上只有几个人能和我 ...</blockquote>
 这是在凯多眼里的看法吧。从事实上神之谷战看罗杰卡普洛克斯一档，白胡子作为洛克斯小弟和凯多大妈一档的，或者说是洛克斯小弟中的老大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4291,16 +2880,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54228#       发表于 2021-1-15 15:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50044377&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2021-1-15 15:55</a>
 
 这是在凯多眼里的看法吧。从事实上神之谷战看罗杰卡普洛克斯一档，白胡子作为洛克斯小弟和凯多大妈一档的 ...</blockquote>
 为什么我没看到尾田之父，御田的名字？
-
-
-
-
-
 
 
 -----
@@ -4309,16 +2892,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54229#       发表于 2021-1-15 16:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50044377&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2021-1-15 15:55</a>
 
 这是在凯多眼里的看法吧。从事实上神之谷战看罗杰卡普洛克斯一档，白胡子作为洛克斯小弟和凯多大妈一档的 ...</blockquote>
 这背后灵全是海贼，肯定没卡普啊
-
-
-
-
-
 
 
 -----
@@ -4327,16 +2904,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54230#       发表于 2021-1-15 17:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50044392&amp;ptid=98922" target="_blank">少年包工头 发表于 2021-1-15 15:56</a>
 
 为什么我没看到尾田之父，御田的名字？</blockquote>
 幻觉里和老领导相对，实力自然也是如此
-
-
-
-
-
 
 
 -----
@@ -4345,13 +2916,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54231#       发表于 2021-1-15 17:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">好吧1001还是挺好看的
-
-
-
-
-
 
 
 -----
@@ -4360,16 +2925,9 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54232#       发表于 2021-1-15 17:47
 
 
-
-
 凯多不愧是智多星，仗着血厚故意挨打，然后试探出他们中最弱的人，接着先攻薄弱之处
 
 这就是四皇的智慧啊！
-
-
-
-
-
 
 
 -----
@@ -4378,17 +2936,9 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54233#       发表于 2021-1-15 17:48
 
 
-
-
 背后灵居然没有玲玲酱？
 
 赌一波这次双皇会不会被黑胡子捡人头？
-
-
-
-
-
-
 
 
 -----
@@ -4397,14 +2947,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54234#       发表于 2021-1-15 18:06
 
 
-
-
 其实这搞笑就很海贼王呀哈哈
-
-
-
-
-
 
 
 -----
@@ -4413,14 +2956,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54235#       发表于 2021-1-15 18:21
 
 
-
-
 这凯多的表现还不如巴雷特啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4429,14 +2965,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54236#       发表于 2021-1-15 18:44
 
 
-
-
 看情报感觉三人颜艺有点出戏，看完本篇感觉还挺符合这仨傻货的OTL
-
-
-
-
-
 
 
 -----
@@ -4445,14 +2974,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54237#       发表于 2021-1-15 19:00
 
 
-
-
 最后一页还挺有压迫感的
-
-
-
-
-
 
 
 -----
@@ -4461,22 +2983,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54238#       发表于 2021-1-15 19:06
 
 
-
-
 能不能别看一张情报图就给一话剧情盖章啊？三船长呼应一下香波地画两格搞笑剧情也TM不行？
-
-
-
-
-
 
 
 -----
 
 ####  天宮奏  
 ##### 54239#       发表于 2021-1-15 19:20
-
-
 
 
 “羅憤怒地表示自己原本就打算救錦，但是路飛搶先說了要自己救他，這就顯得自己好像路飛的手下一樣。”
@@ -4486,17 +2999,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  athena_1982  
 ##### 54240#       发表于 2021-1-15 20:28
-
-
 
 
 三船长表情那里笑死人了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
@@ -4506,25 +3012,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 索隆你已经转职吐槽役了吗
 
 
-
-
-
-
-
 -----
 
 ####  acejoe  
 ##### 54241#       发表于 2021-1-15 20:29
 
 
-
-
 贴吧一看又水一话……
-
-
-
-
-
 
 
 -----
@@ -4533,23 +3027,16 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54242#       发表于 2021-1-15 20:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49977685&amp;ptid=98922" target="_blank">angelooo 发表于 2021-1-8 17:32</a>
 
 所以就是不会做减法......设计了N多人物结果连带主角团一起标签化，该突出的却不突出 ...</blockquote>
 富坚减法做得好，做得狠，做得印象深刻...
 
 
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 54243#       发表于 2021-1-15 20:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
@@ -4562,25 +3049,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 妈的，前期真的好看到爆炸。
 
 
-
-
-
-
-
 -----
 
 ####  24k纯帅  
 ##### 54244#       发表于 2021-1-15 21:00
 
 
-
-
 楼下的打小boss，楼上的打大boss，要是就这么刚赢了也太没意思，我还期待骷髅从大妈身上释放出修女呢，
-
-
-
-
-
 
 
 -----
@@ -4589,21 +3064,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54245#       发表于 2021-1-15 22:09
 
 
-
-
 感觉op不出情报直接出漫画的话口碑应该会好不少
-
-
-
-
-
 
 
 -----
 
 ####  wwmmddqqbbpp  
 ##### 54246#       发表于 2021-1-15 22:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49951235&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-1-6 07:30</a>
@@ -4616,25 +3083,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 看了这个真的觉得不是自己口味变了，就是没以前好看
 
 
-
-
-
-
-
 -----
 
 ####  管他三俗  
 ##### 54247#       发表于 2021-1-16 01:30
 
 
-
-
 山治都不配站在巅峰战场上了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4643,23 +3098,16 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54248#       发表于 2021-1-16 01:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50048911&amp;ptid=98922" target="_blank">管他三俗 发表于 2021-1-16 01:30</a>
 
 山治都不配站在巅峰战场上了</blockquote>
 想起当年去砸阿龙场子的时候，四个男的并排走在一起的感觉是真的好。我甚至怀疑当时的乌索普比现在的有种
 
 
-
-
-
-
-
 -----
 
 ####  zodiac137  
 ##### 54249#       发表于 2021-1-16 02:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50048911&amp;ptid=98922" target="_blank">管他三俗 发表于 2021-1-16 01:30</a>
@@ -4670,16 +3118,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 恐怕后面霍金斯、阿普、德雷克都还有可能上楼，他们上了都轮不到山治
 
 
-
-
-
-
-
 -----
 
 ####  天下至贱  
 ##### 54250#       发表于 2021-1-16 07:29
-
 
 
  本帖最后由 天下至贱 于 2021-1-16 07:30 编辑 
@@ -4692,25 +3134,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 他们上倒也很正常，当年夏奇说过，基德、路飞、罗、霍金斯和德雷克在这十一人当中最受世人瞩目，正好再加上索隆基拉两个副手。
 
 
-
-
-
-
-
 -----
 
 ####  汤圆です  
 ##### 54251#       发表于 2021-1-16 09:44
 
 
-
-
 现在已经是船团联合的时代了，连战斗员都不是的厨子请自觉往后站<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4719,23 +3149,16 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54252#       发表于 2021-1-16 12:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50050023&amp;ptid=98922" target="_blank">汤圆です 发表于 2021-1-16 09:44</a>
 现在已经是船团联合的时代了，连战斗员都不是的厨子请自觉往后站</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错了 应该是“草帽一伙 战斗员 厨师 山治”
 显然没有机会 起码绿藻头还是个干部
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 54253#       发表于 2021-1-16 21:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50051078&amp;ptid=98922" target="_blank">裤袜大落 发表于 2021-1-16 12:05</a>
@@ -4748,25 +3171,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 山治当年还说过是一伙里最难对付的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  赚钱娶老婆  
 ##### 54254#       发表于 2021-1-16 22:25
 
 
-
-
 所以说凯多为什么死不了？这表现，海军没一个能破防？
-
-
-
-
-
 
 
 -----
@@ -4775,16 +3186,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54255#       发表于 2021-1-17 15:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50050023&amp;ptid=98922" target="_blank">汤圆です 发表于 2021-1-16 09:44</a>
 
 现在已经是船团联合的时代了，连战斗员都不是的厨子请自觉往后站</blockquote>
 山治两年里练习的也是体术，两年后连正面战场都很少，成了剧情工具人了。
-
-
-
-
-
 
 
 -----
@@ -4793,13 +3198,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54256#       发表于 2021-1-17 15:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">厨子再也没有过去单人带线打野必偷家的辉煌了
-
-
-
-
-
 
 
 -----
@@ -4808,14 +3207,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54257#       发表于 2021-1-17 16:00
 
 
-
-
 高级霸气这设定也太傻缺了，这么上百年搞半天就和之国有人会，然后还秘而不宣，外面没一个知道的，离谱不
-
-
-
-
-
 
 
 -----
@@ -4824,16 +3216,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54258#       发表于 2021-1-17 16:33
 
 
-
  本帖最后由 汤圆です 于 2021-1-17 16:35 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50063214&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-1-17 15:20</a>
 山治两年里练习的也是体术，两年后连正面战场都很少，成了剧情工具人了。 ...</blockquote>
 厨子两年腿更有力了，学了很多人都会的月步了，根本就练了个寂寞嘛，两年后最大的能力提升还是家族血统挂，和修炼没啥关系的3号战斗服<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4842,22 +3228,15 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54259#       发表于 2021-1-17 18:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50063531&amp;ptid=98922" target="_blank">恶魔娘阿洛 发表于 2021-1-17 16:00</a>
 高级霸气这设定也太傻缺了，这么上百年搞半天就和之国有人会，然后还秘而不宣，外面没一个知道的，离谱不 ...</blockquote>
 外面不是有人会嘛.只是不知道是不是御田传出去的.不过如果确定那个剪影里的是洛克斯，还能打伤凯多，那么说明外面也有人会的.毕竟御田出海那会白胡子都独立出来了.
-
-
-
-
-
 
 
 -----
 
 ####  zxzx7753  
 ##### 54260#       发表于 2021-1-17 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50063531&amp;ptid=98922" target="_blank">恶魔娘阿洛 发表于 2021-1-17 16:00</a>
@@ -4874,16 +3253,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  巴尔干炮  
 ##### 54261#       发表于 2021-1-17 19:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50056893&amp;ptid=98922" target="_blank">赚钱娶老婆 发表于 2021-1-16 22:25</a>
@@ -4892,25 +3265,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 早说了，吹太大圆不上了。
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 54262#       发表于 2021-1-18 01:14
 
 
-
-
 石纪元181话封面有意思，千空从赤犬手上救下了艾斯
-
-
-
-
-
 
 
 -----
@@ -4919,21 +3280,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54263#       发表于 2021-1-18 06:06
 
 
-
-
 厨子其实说不定已经和路飞他们在一起了，只是穿上了战斗服我们看不到而已。
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 54264#       发表于 2021-1-21 20:46
-
 
 
  本帖最后由 C男人 于 2021-1-23 16:05 编辑 
@@ -4946,16 +3299,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nuoer  
 ##### 54265#       发表于 2021-1-21 20:54
-
 
 
  本帖最后由 nuoer 于 2021-1-21 20:55 编辑 
@@ -4969,16 +3316,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 <img src="https://p.sda1.dev/1/588a1c71f00e7b86ff77e7bc8d191eb7/IMG_CMP_257119412.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yeluffy  
 ##### 54266#       发表于 2021-1-23 15:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105829&amp;ptid=98922" target="_blank">C男人 发表于 2021-1-21 20:46</a>
@@ -4990,16 +3331,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 搭上路飞的都会逗比化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 54267#       发表于 2021-1-23 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50050023&amp;ptid=98922" target="_blank">汤圆です 发表于 2021-1-16 09:44</a>
@@ -5008,16 +3343,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 我怀疑你在黑老詹但是我没有证据<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 54268#       发表于 2021-1-23 17:58
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">卧槽这么一细想还真是
@@ -5029,16 +3358,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 尾田平时看NBA吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  nuoer  
 ##### 54269#       发表于 2021-1-23 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50124407&amp;ptid=98922" target="_blank">hagane 发表于 2021-1-23 17:58</a>
@@ -5052,16 +3375,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  icewolf01  
 ##### 54270#       发表于 2021-1-23 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50105829&amp;ptid=98922" target="_blank">C男人 发表于 2021-1-21 20:46</a>
@@ -5076,17 +3393,10 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 这个团的傻缺光环是很强的……
 
 
-
-
-
-
-
 -----
 
 ####  仟音一心  
 ##### 54271#       发表于 2021-1-27 16:16
-
-
 
 
 1002话标题《四皇VS新世代》（本话全程为战斗剧情）
@@ -5122,27 +3432,15 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 下周不休刊。
 
 
-
-
-
-
-
 -----
 
 ####  owada  
 ##### 54272#       发表于 2021-1-27 16:29
 
 
-
-
 因为我是橡胶啊
 
 大妈：艾尼路脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5151,16 +3449,9 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54273#       发表于 2021-1-27 16:38
 
 
-
-
 元素攻击能不能缠绕霸气？缠绕的话带霸气的雷打橡胶扣不扣血？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5169,18 +3460,12 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54274#       发表于 2021-1-27 17:12
 
 
-
-
 卡二跟路飞打完之后都没告诉大妈路飞是橡胶人的情报？这说不过去吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -5190,12 +3475,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 | 无所不黑| + 1|你看到轮胎第一反应是物理特性不导电么.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -5206,21 +3486,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  真红眼教授  
 ##### 54276#       发表于 2021-1-27 18:08
 
 
-
-
 橡胶免疫电系，艾尼路直呼内行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5229,18 +3501,12 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54277#       发表于 2021-1-27 18:50
 
 
-
-
 抗火，抗电，抗部分毒
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -5250,12 +3516,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 | 无所不黑| + 1|还能卸掉部分物理冲击能解释锁血耐打.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -5264,14 +3525,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54278#       发表于 2021-1-27 18:52
 
 
-
-
 全程战斗，到时候是不是要一页看上几分钟才能看清楚画面啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5280,14 +3534,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54279#       发表于 2021-1-27 19:49
 
 
-
-
 四皇读的书少，不懂物理学
-
-
-
-
-
 
 
 -----
@@ -5296,14 +3543,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54280#       发表于 2021-1-27 21:19
 
 
-
-
 不知道大妈有没有**尼路那表情。
-
-
-
-
-
 
 
 -----
@@ -5312,21 +3552,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54281#       发表于 2021-1-27 22:45
 
 
-
-
 大妈不是能抽灵魂吗？为啥不用这招，就像明哥一样，百发百中的绳索控制对路飞的时候就是不用。
-
-
-
-
-
 
 
 -----
 
 ####  nuoer  
 ##### 54282#       发表于 2021-1-27 23:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50164841&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2021-1-27 22:45</a>
@@ -5337,25 +3569,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  天使的日曜日  
 ##### 54283#       发表于 2021-1-28 19:24
 
 
-
-
 龙形态不会流樱都能破防，凯多为什么都喜欢先变龙挨打，这话给基拉开了好几个洞不疼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5364,14 +3584,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54284#       发表于 2021-1-28 19:29
 
 
-
-
 好像很久没有看到过这么密集的战斗分镜了
-
-
-
-
-
 
 
 -----
@@ -5380,15 +3593,9 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54285#       发表于 2021-1-28 19:40
 
 
-
  本帖最后由 tyauto 于 2021-1-28 20:06 编辑 
 
 凯多这个只被御田唯一打伤过设定有问题啊，现在看霸气练到顶级或输出顶级的都能破防，已知的像罗杰白胡子卡普红发赤犬鹰眼雷利这种顶级战力打伤凯多根本没问题，"最强生物"这个设定这是尾田吃书了还是凯多窝在和之国找新闻王买的流量？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5397,21 +3604,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54286#       发表于 2021-1-28 19:41
 
 
-
-
 大妈竟然叫凯多快躲开索隆的攻击
-
-
-
-
-
 
 
 -----
 
 ####  nuoer  
 ##### 54287#       发表于 2021-1-28 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50173918&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-1-28 19:41</a>
@@ -5421,25 +3620,13 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  风浦可符香(P.N)  
 ##### 54288#       发表于 2021-1-28 21:18
 
 
-
-
 我寻思让和之国的能工巧匠做个高仿御田面具让索隆带上凯多是不是就直接跪下求饶了啊
-
-
-
-
-
 
 
 -----
@@ -5448,14 +3635,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54289#       发表于 2021-1-28 21:36
 
 
-
-
 要是把天羽羽斩借来用用，放一次技能索隆会不会直接精尽人亡…
-
-
-
-
-
 
 
 -----
@@ -5464,14 +3644,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54290#       发表于 2021-1-28 21:48
 
 
-
-
 虽然和凯多大妈打得势均力敌的样子，为什么又不会像以前四皇打四皇一样打起来天地异变
-
-
-
-
-
 
 
 -----
@@ -5480,14 +3653,7 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ##### 54291#       发表于 2021-1-29 00:55
 
 
-
-
 talkop看了一个采访里说“原本在连载前预计在五年内完结海贼王是大家已经熟知的，不过根据和月的说法，尾田告诉和月他会在十年内完结...”
-
-
-
-
-
 
 
 -----
@@ -5496,13 +3662,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54292#       发表于 2021-1-29 01:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">时隔多年又看了一遍顶上战争，本来以为已经没什么感觉了，结果看到艾斯挂了还是难受得不行。
-
-
-
-
-
 
 
 -----
@@ -5511,15 +3671,9 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54293#       发表于 2021-1-29 01:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50176725&amp;ptid=98922" target="_blank">灰狼 发表于 2021-1-29 00:55</a>
 talkop看了一个采访里说“原本在连载前预计在五年内完结海贼王是大家已经熟知的，不过根据和月的说法，尾田 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个十年是现在开始算？
-
-
-
-
-
 
 
 -----
@@ -5528,16 +3682,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54294#       发表于 2021-1-29 03:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50176869&amp;ptid=98922" target="_blank">裤袜大落 发表于 2021-1-29 01:26</a>
 
 这个十年是现在开始算？</blockquote>
 查了下这个访谈大概是去年4月份有的
-
-
-
-
-
 
 
 -----
@@ -5546,15 +3694,9 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54295#       发表于 2021-1-29 03:19
 
 
-
  本帖最后由 灰狼 于 2021-1-29 03:20 编辑 
 
 风怒了
-
-
-
-
-
 
 
 -----
@@ -5563,16 +3705,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54296#       发表于 2021-1-29 06:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50176725&amp;ptid=98922" target="_blank">灰狼 发表于 2021-1-28 10:55</a>
 
 talkop看了一个采访里说“原本在连载前预计在五年内完结海贼王是大家已经熟知的，不过根据和月的说法，尾田 ...</blockquote>
 就算读者撑得住，尾田撑得住吗？主要是手
-
-
-
-
-
 
 
 -----
@@ -5581,14 +3717,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54297#       发表于 2021-1-29 09:27
 
 
-
-
 这个十年不是海贼刚连载的时候尾田对和月说的吗
-
-
-
-
-
 
 
 -----
@@ -5597,17 +3726,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54298#       发表于 2021-1-29 13:25
 
 
-
-
 感觉路飞的火抗高是因为对熔岩赤犬的刻骨仇恨吧？但到底怎么练出来的还真是个谜。
 
 
 如果真靠根性，那只要人人有根性全世界都是不死人了。
-
-
-
-
-
 
 
 -----
@@ -5616,13 +3738,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54299#       发表于 2021-1-29 14:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大妈本来是个顶级物理战士，小屁孩时期就能一人打一个巨人村，怎么突然只会放波了
-
-
-
-
-
 
 
 -----
@@ -5631,13 +3747,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54300#       发表于 2021-1-29 15:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/goose2017/007.png" referrerpolicy="no-referrer">索隆：妈的砍歪了。。。。这也能歪233333333333   是不是因为上次砍皮卡目标太大了现在没适应过来呀2333 
-
-
-
-
-
 
 
 -----
@@ -5646,22 +3756,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54301#       发表于 2021-1-29 16:03
 
 
-
-
 鹰眼挡不住这刀的吧
-
-
-
-
-
 
 
 -----
 
 ####  tyauto  
 ##### 54302#       发表于 2021-1-29 16:12
-
-
 
 
 索隆这一刀已经有点接近鹰眼顶上那刀斩击了
@@ -5677,21 +3778,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 2021-1-29 16:12 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  lrgb  
 ##### 54303#       发表于 2021-1-29 17:16
-
 
 
  本帖最后由 lrgb 于 2021-1-29 17:33 编辑 
@@ -5701,28 +3791,16 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 索隆为啥没砍中，单纯是招式不熟？连个凯多躲避的画面都不给啊
 
 
-
-
-
-
-
-
 -----
 
 ####  少年包工头  
 ##### 54304#       发表于 2021-1-29 17:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50183149&amp;ptid=98922" target="_blank">lrgb 发表于 2021-1-29 17:16</a>
 
 基拉这招是他自己的恶魔果实能力？或者是之前他自己说用这刀不会输给索隆，能自主变化加贯穿伤害的刀，是刀 ...</blockquote>
 也许是装备熟练度还不够
-
-
-
-
-
 
 
 -----
@@ -5733,12 +3811,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  icewolf01  
 ##### 54306#       发表于 2021-1-29 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50182112&amp;ptid=98922" target="_blank">穆 发表于 2021-1-29 15:36</a>
@@ -5749,25 +3825,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 一不小心就用光MP的武器还是有点那啥
 
 
-
-
-
-
-
 -----
 
 ####  小野寺熊介  
 ##### 54307#       发表于 2021-1-29 19:03
 
 
-
-
 这一话的海贼王 除了打不中那么大一条龙的索神 全部人都在刮痧按摩 你们都是哪来的按摩师傅
-
-
-
-
-
 
 
 -----
@@ -5776,14 +3840,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54308#       发表于 2021-1-29 19:10
 
 
-
-
 这就简单了，基德用投技控住凯多，让索神砍一刀就完了
-
-
-
-
-
 
 
 -----
@@ -5792,14 +3849,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54309#       发表于 2021-1-30 07:18
 
 
-
-
 龙很大，斩击很大，连个分镜也不给，强行说没打中，这是表演京剧么<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5808,14 +3858,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54310#       发表于 2021-1-30 14:10
 
 
-
-
 基拉和索隆应该挂彩了，四皇目前来看还没事，路飞这方完全劣势
-
-
-
-
-
 
 
 -----
@@ -5824,24 +3867,15 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54311#       发表于 2021-1-30 16:30
 
 
-
-
 路飞他们把输出浪费在坦克英雄凯多身上干嘛，赶紧去切后排的长手法师英雄大妈啊！
 
 什么，你说大妈其实是法坦，哦那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 54312#       发表于 2021-1-30 17:59
-
-
 
 
 硬要说的话，这话只有索隆的一刀流能让大妈喊 “快躲开”
@@ -5853,25 +3887,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 大妈是有见闻色的，所以这判断可信度很高。
 
 
-
-
-
-
-
 -----
 
 ####  赚钱娶老婆  
 ##### 54313#       发表于 2021-1-31 10:13
 
 
-
-
 莫里亚的奥兹会不会是凯多他祖宗，鬼岛头骨也是的，所以莫里亚想用这个来打败凯多？
-
-
-
-
-
 
 
 -----
@@ -5882,21 +3904,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  饭太稀  
 ##### 54315#       发表于 2021-1-31 19:16
 
 
-
-
 有威胁的就挥空的那一刀，然后这一刀本质仍然是吹御田<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5905,22 +3919,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54316#       发表于 2021-1-31 19:21
 
 
-
-
 不要再御田了，都御田PTSD了呕呕呕
-
-
-
-
-
 
 
 -----
 
 ####  恶魔娘阿洛  
 ##### 54317#       发表于 2021-1-31 19:26
-
-
 
 
 咱最受不了是四皇逼格掉的太厉害，之前打明哥就算被吊锤的时候明哥逼格掉的也不多
@@ -5932,32 +3937,19 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 尾田你老年痴呆了么
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 54318#       发表于 2021-1-31 19:58
 
 
-
-
 大妈到现在没有受过实质性伤害打击，现在还能放AOE干翻四个，路飞他们打个毛线啊。。。根本打不赢好吧
-
-
-
-
-
 
 
 -----
 
 ####  evangelina  
 ##### 54319#       发表于 2021-1-31 21:59
-
 
 
  本帖最后由 evangelina 于 2021-1-31 22:02 编辑 
@@ -5973,18 +3965,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 2021-1-31 21:59 上传
 
 
-
-
-
-
-
 大妈攻击被免疫先不管算不算重演一次某雷神，路飞免疫凯多攻击是什么原理？光环也不能开成这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -5993,14 +3974,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54320#       发表于 2021-1-31 22:28
 
 
-
-
 快进到御田附身路飞打飞凯多得了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6009,21 +3983,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54321#       发表于 2021-1-31 23:00
 
 
-
-
 之前3个超新星全团遇到凯多一人被轻松全灭，就算其中一人是卧底与现在3个超新星仅船长+两个大副就和两个四皇打得有来有回也差得太多了，也没见基德罗被抓时领悟了啥实力大涨；从这起算海贼战力正式全面崩溃的节奏吧，想几年之内完结还是太赶了
-
-
-
-
-
 
 
 -----
 
 ####  nuoer  
 ##### 54322#       发表于 2021-1-31 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50201422&amp;ptid=98922" target="_blank">evangelina 发表于 2021-1-31 21:59</a>
@@ -6035,17 +4001,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  エリ  
 ##### 54323#       发表于 2021-2-1 00:49
-
-
 
 
 十一超星星里阿普是不是最没存在感的
@@ -6053,16 +4012,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 还是这逼在下一盘大棋
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 54324#       发表于 2021-2-1 06:32
-
 
 
  本帖最后由 DGIL 于 2021-2-1 06:42 编辑 
@@ -6087,7 +4040,6 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 只是。。也是不敢来和治之国的水平罢了
 
 
-
 阿这。。。是不是接下来每一话都要提一下御田阿
 
 
@@ -6096,17 +4048,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 干脆后面招式都换成御田的把。<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">把大招改成桃园十拳
 
 
-
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 54325#       发表于 2021-2-1 06:50
-
 
 
 <blockquote>yth329 发表于 2021-1-31 23:00
@@ -6116,33 +4061,19 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 路飞火炕高会不会和之前为了艾斯练了个火拳有关
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 54326#       发表于 2021-2-1 10:14
 
 
-
-
 路飞全身黑，抗个火没什么吧
-
-
-
-
-
 
 
 -----
 
 ####  天使的日曜日  
 ##### 54327#       发表于 2021-2-1 11:24
-
-
 
 
 索隆这话倒是比较符合我的预期，毕竟上鬼岛后藏了那么久的阎魔跟三刀流，以为拔出那刻会重点写，怎么说也是御田生前的佩刀，结果上一话轻描淡写的就使出来了，而且还是开场绑头巾却给凯多刮痧
@@ -6152,25 +4083,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 当然也不排除尾田就是想吹御田，凯多被砍出了PTSD没事都要提下御田<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  アルメリア  
 ##### 54328#       发表于 2021-2-1 11:49
 
 
-
-
 最大的索吹出现了.jpg
-
-
-
-
-
 
 
 -----
@@ -6179,14 +4098,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54329#       发表于 2021-2-1 12:09
 
 
-
-
 这话怎么看都表明这五个人打双皇 完全不够看。只有阎魔那一刀让双皇感到压力 一个法坦钢铁皮肤 一个物理坦加高回复长血条，打个p啊。。。还得有人来帮忙。
-
-
-
-
-
 
 
 -----
@@ -6195,14 +4107,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54330#       发表于 2021-2-1 12:34
 
 
-
-
 和之国肯定还要有第四幕的。
-
-
-
-
-
 
 
 -----
@@ -6211,16 +4116,9 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54331#       发表于 2021-2-1 12:34
 
 
-
-
 五超新星打双簧肯定打不过，就看怎么撤退了。
 
 就看九侠要死几个人了
-
-
-
-
-
 
 
 -----
@@ -6229,14 +4127,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54332#       发表于 2021-2-1 13:16
 
 
-
-
 最大的不稳定因素是大妈啊，身上还有变性格的谜团没解开，说不好到时就是大妈反水围攻凯多了，那这样肯定够
-
-
-
-
-
 
 
 -----
@@ -6245,14 +4136,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54333#       发表于 2021-2-1 13:49
 
 
-
-
 不是有分析说九侠是指九个超新星？还会有增援吧
-
-
-
-
-
 
 
 -----
@@ -6261,21 +4145,15 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54334#       发表于 2021-2-2 09:06
 
 
-
-
 啊，是御殿的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
 赶到楼顶的小玉，喂凯多吃丸子让他变成忠犬，凯多一雷鸣八卦砸大妈头，大妈变回小玉的好朋友，从此双皇之上的皇上皇诞生了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -6285,12 +4163,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 | Vega2017| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -6299,17 +4172,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54335#       发表于 2021-2-2 20:23
 
 
-
-
 情报出了
 索吹过年<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -6318,14 +4184,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54336#       发表于 2021-2-2 20:34
 
 
-
-
 这都什么时候了，四档还有副作用啊
-
-
-
-
-
 
 
 -----
@@ -6334,14 +4193,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54337#       发表于 2021-2-2 21:06
 
 
-
-
 那之前打6子变4档怎么没脱力？难道是提前关4档没副作用？
-
-
-
-
-
 
 
 -----
@@ -6350,14 +4202,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54338#       发表于 2021-2-2 21:10
 
 
-
-
 索隆多次救下路飞，不愧是亲儿子
-
-
-
-
-
 
 
 -----
@@ -6366,16 +4211,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54339#       发表于 2021-2-2 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50206837&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-2-1 13:49</a>
 
 不是有分析说九侠是指九个超新星？还会有增援吧</blockquote>
 现在顶上五个，下面恐龙阿普正干架，稻草人不知道哪儿摸鱼，再来个和凯多打过照面的怪僧就够数了（
-
-
-
-
-
 
 
 -----
@@ -6384,24 +4223,15 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54340#       发表于 2021-2-2 22:30
 
 
-
-
 老套路了，总因各种原因中场休息，让其他人打消耗，等他们被揍得差不过多后回满状态收割比赛
 
 不过现在又不跟以前一样只有一个BOSS，还都是四皇级的，这才刚开场打两话就泄气了，不知道尾田图啥，「帮我撑10秒」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  风浦可符香(P.N)  
 ##### 54341#       发表于 2021-2-2 23:05
-
-
 
 
 喷了，五皇正值巅峰，进攻刷分，防守划水，怎么当罗杰之后公认第二人？
@@ -6413,32 +4243,19 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 估计再下一话索隆没力气了就被秒了XD 反正我是觉得索隆应该换秋水，毕竟当初龙马把这刀托付给索隆了（换了也是刮痧XD）
 
 
-
-
-
-
-
 -----
 
 ####  仟音一心  
 ##### 54342#       发表于 2021-2-3 03:59
 
 
-
-
 凯多果实名：鱼鱼果实幻兽种青龙形态
-
-
-
-
-
 
 
 -----
 
 ####  垃垃藻  
 ##### 54343#       发表于 2021-2-3 09:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50221396&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2021-02-02 23:05:07</a>
@@ -6450,26 +4267,14 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 54344#       发表于 2021-2-3 10:28
 
 
-
-
 五皇只有第一击把凯多揍地下那次招式名换了，画面也是明显不一样，肯定有流樱加持，后面几个招式还跟原来类似吧，可能没有流樱加持，或者用完了要恢复<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
 吹御田没问题，毕竟和之国乃至整个op都是为了吹御田而生的，可是前面辣么nb的一个人，怎么智商辣么低活活没煮死还被枪打死了，太跌份儿了，简直是差劲反派的死法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6478,19 +4283,11 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54345#       发表于 2021-2-3 12:21
 
 
-
-
 真的很怀念这个时期的画风
-
-
-
-
 
 
 9825bc315c6034a813e6ccadc513495409237691.png
 (159.26 KB, 下载次数: 4)
-
-
 
 
 下载附件
@@ -6499,24 +4296,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 2021-2-3 12:21 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202102/03/122133j5b52ds5rte0es5o.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6525,14 +4305,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54346#       发表于 2021-2-3 15:25
 
 
-
-
 五皇轮休 皇副单独带队<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6541,21 +4314,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ##### 54347#       发表于 2021-2-4 09:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">索隆：搞笑要我来，装逼要我来，耍帅要我来，现在打BOSS也要我来，草帽团全靠我凯瑞
-
-
-
-
-
 
 
 -----
 
 ####  X(iaolw)S  
 ##### 54348#       发表于 2021-2-4 11:26
-
-
 
 
 原来如此<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -6570,20 +4335,10 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 2021-2-4 11:26 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  tyauto  
 ##### 54349#       发表于 2021-2-4 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50235493&amp;ptid=98922" target="_blank">X(iaolw)S 发表于 2021-2-4 11:26</a>
@@ -6602,30 +4357,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 2021-2-4 13:32 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  巴尔干炮  
 ##### 54350#       发表于 2021-2-4 13:40
 
 
-
-
 保皇是CP0的卧底吗？
-
-
-
-
-
 
 
 -----
@@ -6636,21 +4374,13 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Yeaha123  
 ##### 54352#       发表于 2021-2-4 15:22
 
 
-
-
 cp0那段感觉无关紧要，怎么尾田还有空去画cp0
-
-
-
-
-
 
 
 -----
@@ -6659,15 +4389,9 @@ cp0那段感觉无关紧要，怎么尾田还有空去画cp0
 ##### 54353#       发表于 2021-2-4 15:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">不是，你们三船长才打了几下就气喘吁吁了？一个个都肾亏了吗？
 
 被你们打的凯多都还没什么反应呢<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6676,14 +4400,7 @@ cp0那段感觉无关紧要，怎么尾田还有空去画cp0
 ##### 54354#       发表于 2021-2-4 16:10
 
 
-
-
 cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6692,14 +4409,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54355#       发表于 2021-2-5 01:43
 
 
-
-
 当boss买了锁血外挂
-
-
-
-
-
 
 
 -----
@@ -6710,13 +4420,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Nuriko  
 ##### 54357#       发表于 2021-2-5 14:10
-
-
 
 
 好久没来了
@@ -6728,16 +4435,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 尾田就拼命的想输出文化，大张旗鼓把两个皇都丢都这里，真的是！！……画蛇添足！弄巧成拙！适得其反！
 
 
-
-
-
-
 另外想问问网上看到“海贼王原版动画”究竟是什么<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6746,14 +4444,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54358#       发表于 2021-2-5 14:19
 
 
-
-
 一会刮痧一会吐血，到底是怎么样嘛。
-
-
-
-
-
 
 
 -----
@@ -6762,16 +4453,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54359#       发表于 2021-2-5 16:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50247135&amp;ptid=98922" target="_blank">luoyianwu 发表于 2021-2-5 14:19</a>
 
 一会刮痧一会吐血，到底是怎么样嘛。</blockquote>
 说明刮痧是刮痧，吐血是吐血，可能是咬到舌头了。
-
-
-
-
-
 
 
 -----
@@ -6780,15 +4465,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54360#       发表于 2021-2-5 18:43
 
 
-
-
 太**了，2201年了，都打四皇了，四档还有弱点，路飞还是这么弟弟。结果就是无脑吹御田和他的刀。
-
-
-
-
-
-
 
 
 -----
@@ -6797,14 +4474,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54361#       发表于 2021-2-5 19:21
 
 
-
-
 现在看见御田两字就想<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6813,14 +4483,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54362#       发表于 2021-2-5 19:22
 
 
-
-
 一把御田刀可斩凯多，再借一把连大妈一起斩<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6829,21 +4492,13 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54363#       发表于 2021-2-5 19:36
 
 
-
-
 为啥还要吹御田啊，没人跟wt反馈这个人物观感很差吗？
-
-
-
-
-
 
 
 -----
 
 ####  saturnus  
 ##### 54364#       发表于 2021-2-5 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50247046&amp;ptid=98922" target="_blank">Nuriko 发表于 2021-2-5 14:10</a>
@@ -6855,25 +4510,13 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 其实还不如按sbs原设，把明哥放在和之国<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  赚钱娶老婆  
 ##### 54365#       发表于 2021-2-5 19:59
 
 
-
-
 大孝女：你想成为海贼王？太没志向了吧，我可是要成为御田的哟。
-
-
-
-
-
 
 
 -----
@@ -6882,14 +4525,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54366#       发表于 2021-2-5 21:47
 
 
-
-
 山治的中年人设是唯一认不出来的
-
-
-
-
-
 
 
 -----
@@ -6898,14 +4534,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54367#       发表于 2021-2-5 22:11
 
 
-
-
 御田道，堂堂连载！
-
-
-
-
-
 
 
 -----
@@ -6916,12 +4545,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  廖化  
 ##### 54369#       发表于 2021-2-5 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50250132&amp;ptid=98922" target="_blank">暗杀翻看是 发表于 2021-2-5 19:36</a>
@@ -6930,16 +4557,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 我也想问这个，难道御田在11区很受欢迎？？？
 
 
-
-
-
-
-
 -----
 
 ####  高数  
 ##### 54370#       发表于 2021-2-5 22:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50225573&amp;ptid=98922" target="_blank">少年包工头 发表于 2021-2-3 12:21</a>
@@ -6948,25 +4569,13 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 现在的画面一团糟糕，看着眼花
 
 
-
-
-
-
-
 -----
 
 ####  athena_1982  
 ##### 54371#       发表于 2021-2-5 22:49
 
 
-
-
 罗！你小子居然袭大妈的胸！<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6975,14 +4584,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54372#       发表于 2021-2-6 01:12
 
 
-
-
 楼上好多凯多啊,都和凯多一样得了 御田ptsd
-
-
-
-
-
 
 
 -----
@@ -6991,21 +4593,13 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54373#       发表于 2021-2-6 16:21
 
 
-
-
 莫利亚不会带着黑胡子来吧？
-
-
-
-
-
 
 
 -----
 
 ####  晃来晃去  
 ##### 54374#       发表于 2021-2-6 16:32
-
 
 
 <blockquote>Renes 发表于 2021-2-5 18:43
@@ -7016,26 +4610,15 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 今天看到尾田在sbs上暗示路飞会开5档。
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 54375#       发表于 2021-2-6 16:43
 
 
-
 <blockquote>saturnus 发表于 2021-2-5 19:52
 其实还不如按sbs原设，把明哥放在和之国</blockquote>
 这个没办法，尾田身体好的话，应该会很精彩，现在剧情砍成这样了。
-
-
-
-
-
 
 
 -----
@@ -7044,13 +4627,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54376#       发表于 2021-2-7 02:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个问题，鬼子怎么看御田
-
-
-
-
-
 
 
 -----
@@ -7059,15 +4636,9 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54377#       发表于 2021-2-7 14:20
 
 
-
 <blockquote>inconolast 发表于 2021-2-7 02:17
 一个问题，鬼子怎么看御田</blockquote>
 盲猜很喜欢吧哈哈
-
-
-
-
-
 
 
 -----
@@ -7076,24 +4647,16 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54378#       发表于 2021-2-7 23:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50265884&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-2-7 14:20</a>
 
 盲猜很喜欢吧哈哈</blockquote>
 我查了一下，说无聊的，构图太杂的人也有，但是总会有人出来说你那是嫉妒/爱看看不看滚之类的，还是看销量直观点其实
 
 
-
-
-
-
-
 -----
 
 ####  仟音一心  
 ##### 54379#       发表于 2021-2-9 22:37
-
-
 
 
 1004话 标题 糯米团子
@@ -7109,16 +4672,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 下期休刊，预定在13号JUMP继续连载。
 
 
-
-
-
-
-
 -----
 
 ####  qzfjnv  
 ##### 54380#       发表于 2021-2-9 22:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50261769&amp;ptid=98922" target="_blank">inconolast 发表于 2021-2-7 02:17</a>
@@ -7127,16 +4684,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 有不少黑御田跳舞的，我记得御田连载时候刚好海贼王销量风评被鬼灭全方位吊打中，日本那边一堆拿碳治郎炎柱来踩御田的
 
 
-
-
-
-
-
 -----
 
 ####  灰狼  
 ##### 54381#       发表于 2021-2-10 03:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50289305&amp;ptid=98922" target="_blank">仟音一心 发表于 2021-2-9 22:37</a>
@@ -7155,25 +4706,13 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 等于休2刊（逃）
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 54382#       发表于 2021-2-10 06:45
 
 
-
-
 打boss打一半又不画了= =路飞这10分钟回复又要不知道多少话
-
-
-
-
-
 
 
 -----
@@ -7182,14 +4721,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54383#       发表于 2021-2-10 13:49
 
 
-
-
 我记得之前觉得御田无聊的时候在b乎上好多是感动得热泪盈眶的，现在那里的风评不知道怎么样了。
-
-
-
-
-
 
 
 -----
@@ -7198,14 +4730,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54384#       发表于 2021-2-12 11:37
 
 
-
-
 六七月份能打完就不错了，画三休一，再赶上过节病恙。毕竟是四皇，多打一会儿。
-
-
-
-
-
 
 
 -----
@@ -7214,14 +4739,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54385#       发表于 2021-2-12 23:01
 
 
-
-
 丸子妹果然来了
-
-
-
-
-
 
 
 -----
@@ -7230,16 +4748,9 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54386#       发表于 2021-2-12 23:05
 
 
-
-
 我以为前期对小玉的塑造（可怜，可爱），就是为了让她现在为所欲为的阻力小一些，结果还是被喷。光月父子果然太败人品了
 
  -- 傲娇地来自 Stage1未知客户端
-
-
-
-
-
 
 
 -----
@@ -7248,14 +4759,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54387#       发表于 2021-2-12 23:25
 
 
-
-
 丸子跟生化危机一样，这cp0上集棋盘分析得头头是道，下集怕是要掀桌
-
-
-
-
-
 
 
 -----
@@ -7264,15 +4768,9 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54388#       发表于 2021-2-12 23:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">有些果实就是太离谱了 丸子其实还好了 只是刚好天克凯多团
 
 像人偶果实幽灵果实这种不是搞笑战法都收不掉的无敌 
-
-
-
-
-
 
 
 -----
@@ -7281,17 +4779,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54389#       发表于 2021-2-13 00:28
 
 
-
-
 其实咱觉得这团子能力非常反人类。。。这尼玛不就是强行XI脑么。。。
 
 
 放敌对角色有这能力要被主角团往死里打的那种。。。
-
-
-
-
-
 
 
 -----
@@ -7300,14 +4791,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54390#       发表于 2021-2-13 00:41
 
 
-
-
 **后也不能把那群smile能力者做过的恶一笔勾销吧
-
-
-
-
-
 
 
 -----
@@ -7316,14 +4800,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54391#       发表于 2021-2-13 02:12
 
 
-
-
 从观感上看，把团子设计成能使动物冷静/失去战意，比直接控制动物的心灵要好得多，搞不懂为什么会有这种能力，感觉像低配版波塞冬
-
-
-
-
-
 
 
 -----
@@ -7332,14 +4809,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54392#       发表于 2021-2-13 06:42
 
 
-
-
 小玉配乌索普秒杀凯多？？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7348,15 +4818,9 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54393#       发表于 2021-2-13 07:16
 
 
-
 <blockquote>花スープ 发表于 2021-2-13 02:12
 从观感上看，把团子设计成能使动物冷静/失去战意，比直接控制动物的心灵要好得多，搞不懂为什么会有这种能 ...</blockquote>
 桃太郎传说吧，小玉原型应该是桃太郎吧
-
-
-
-
-
 
 
 -----
@@ -7365,16 +4829,9 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54394#       发表于 2021-2-13 07:32
 
 
-
-
 小玉这能力是不是除了弄死她以外被控制的人就永远变不回来了？
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7383,21 +4840,13 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54395#       发表于 2021-2-13 07:58
 
 
-
-
 这话的分镜好乱，特别是弗兰奇打三角龙又乱又丑，真的无语，小玉这个设定和情节我倒挺喜欢的，本子里经常看到呢
-
-
-
-
-
 
 
 -----
 
 ####  宅之猴晒阴  
 ##### 54396#       发表于 2021-2-13 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50321067&amp;ptid=98922" target="_blank">Algie 发表于 2021-2-13 07:32</a>
@@ -7409,33 +4858,19 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 可能和糖果一样，失去意识就解除了。
 
 
-
-
-
-
-
 -----
 
 ####  gg326  
 ##### 54397#       发表于 2021-2-13 10:33
 
 
-
-
 如果白星是海王，那小玉就是兽王！百兽海盗团不会真的归他所有吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  好评加鹅  
 ##### 54398#       发表于 2021-2-13 11:23
-
-
 
 
 尾田也是精分的可以
@@ -7450,25 +4885,13 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 尾田的乡土爱情节已经没救了
 
 
-
-
-
-
-
 -----
 
 ####  yeluffy  
 ##### 54399#       发表于 2021-2-13 11:31
 
 
-
-
 玛利亚是罗宾打的，感觉山治还是能混个三灾？
-
-
-
-
-
 
 
 -----
@@ -7477,15 +4900,9 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54400#       发表于 2021-2-13 11:36
 
 
-
 <blockquote>宅之猴晒阴 发表于 2021-2-13 10:14
 可能和糖果一样，失去意识就解除了。</blockquote>
 她之前失去过意识了，没有解除。
-
-
-
-
-
 
 
 -----
@@ -7494,16 +4911,9 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54401#       发表于 2021-2-13 12:40
 
 
-
-
 应该只是限于人造动物果实，这样看观感好点
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7512,14 +4922,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54402#       发表于 2021-2-13 17:09
 
 
-
-
 虽然一开始就知道要有这一出，但为那个人复国感觉真的挺差的。
-
-
-
-
-
 
 
 -----
@@ -7528,16 +4931,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54403#       发表于 2021-2-13 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50322279&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-2-13 11:31</a>
 
 玛利亚是罗宾打的，感觉山治还是能混个三灾？</blockquote>
 厨子粉震怒，怎么能说混，本来就是草帽团三大战力，怎么都要对标皇团最高干部
-
-
-
-
-
 
 
 -----
@@ -7546,16 +4943,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54404#       发表于 2021-2-13 23:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50321114&amp;ptid=98922" target="_blank">tornadoDA 发表于 2021-2-13 07:58</a>
 
 这话的分镜好乱，特别是弗兰奇打三角龙又乱又丑，真的无语，小玉这个设定和情节我倒挺喜欢的，本子里经常看 ...</blockquote>
 我记得以前有一个什么杂志的编辑还是啥来吹尾田的分镜，还上了图来着，果然不止我一个人觉得分镜乱？
-
-
-
-
-
 
 
 -----
@@ -7564,16 +4955,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54405#       发表于 2021-2-13 23:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50327837&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-2-13 22:45</a>
 
 厨子粉震怒，怎么能说混，本来就是草帽团三大战力，怎么都要对标皇团最高干部 ...</blockquote>
 区区月步<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7582,13 +4967,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54406#       发表于 2021-2-14 00:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">甚平入队的现在他真的能进前三吗
-
-
-
-
-
 
 
 -----
@@ -7597,15 +4976,9 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54407#       发表于 2021-2-14 00:29
 
 
-
 <blockquote>落油Я 发表于 2021-2-13 23:51
 我记得以前有一个什么杂志的编辑还是啥来吹尾田的分镜，还上了图来着，果然不止我一个人觉得分镜乱？ ...</blockquote>
 以前确实好，现在，应该说下半部开始，尾田身体状态影响太大了，准备的剧情各种砍。
-
-
-
-
-
 
 
 -----
@@ -7614,14 +4987,8 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54408#       发表于 2021-2-14 01:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">团子这能力要是丢对面怕是只有乌索普大神才能打得过
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过最后那人要是艾尼路的话我可以给和之国加一分，最好能看看他到底有没有准大将实力
-
-
-
-
-
 
 
 -----
@@ -7630,23 +4997,15 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54409#       发表于 2021-2-14 01:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">团子本身没那么强 只是刚好凯多的军团被克的死死的
 
 如果团子能力是敌人 普通的野兽军团也可能很强 但就是没什么特别的敌人的一种而已（不过乔巴可能有点危险？） 
-
-
-
-
-
 
 
 -----
 
 ####  athena_1982  
 ##### 54410#       发表于 2021-2-14 12:46
-
-
 
 
 最后那一格真是雷神？
@@ -7656,25 +5015,13 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 这该不会是伏笔吧
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 54411#       发表于 2021-2-14 12:49
 
 
-
-
 我猜是莫利亚，起码跟凯多有关联
-
-
-
-
-
 
 
 -----
@@ -7683,16 +5030,10 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ##### 54412#       发表于 2021-2-14 15:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50328343&amp;ptid=98922" target="_blank">落油Я 发表于 2021-2-13 23:51</a>
 
 我记得以前有一个什么杂志的编辑还是啥来吹尾田的分镜，还上了图来着，果然不止我一个人觉得分镜乱？ ...</blockquote>
 S1有号，就是“3000”。
-
-
-
-
-
 
 
 -----
@@ -7701,23 +5042,15 @@ S1有号，就是“3000”。
 ##### 54413#       发表于 2021-2-14 15:33
 
 
-
-
 第三大战力当属没有装备、没有2年升级、做过船长、做过七武海、面对大妈直说“区区四皇”的海侠甚平。
 
 现在讨论山治的战力已经没意义了，因为他已经被尾田放到了推动剧情的一类角色上。
-
-
-
-
-
 
 
 -----
 
 ####  GreenBird  
 ##### 54414#       发表于 2021-2-14 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50328474&amp;ptid=98922" target="_blank">klzxs 发表于 2021-2-14 00:13</a>
@@ -7733,16 +5066,10 @@ S1有号，就是“3000”。
 讨论战力上就非常虎扑了，估计是路飞≈索隆&gt;甚平&gt;山治...
 
 
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 54415#       发表于 2021-2-14 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50330708&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-2-14 12:46</a>
@@ -7755,24 +5082,13 @@ S1有号，就是“3000”。
 不好说，大妈有雷，雷神也有雷，也许更大的雷有其他达成条件。
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 54416#       发表于 2021-2-14 16:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">其实就算是路飞索隆我觉得也就和甚平势均力敌吧
-
-
-
-
-
 
 
 -----
@@ -7781,21 +5097,13 @@ S1有号，就是“3000”。
 ##### 54417#       发表于 2021-2-14 16:47
 
 
-
-
 你们都这么看不起厨子，甚平这次对位的是六子，厨子只能对位三灾了，孰轻孰重不言而喻了吧
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 54418#       发表于 2021-2-14 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50331922&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-2-14 16:47</a>
@@ -7806,25 +5114,13 @@ S1有号，就是“3000”。
 主要是尾田这些年实在没给他安排什么相应的戏份
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 54419#       发表于 2021-2-14 16:55
 
 
-
-
 这个话厨子是耶稣造型吗?黑玛利亚，还有那个十字架。
-
-
-
-
-
 
 
 -----
@@ -7833,14 +5129,7 @@ S1有号，就是“3000”。
 ##### 54420#       发表于 2021-2-15 02:23
 
 
-
-
 这都玉皇大帝了，笑死
-
-
-
-
-
 
 
 -----
@@ -7849,16 +5138,9 @@ S1有号，就是“3000”。
 ##### 54421#       发表于 2021-2-15 17:40
 
 
-
-
 我知道不可能 但实在是太像雷神了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7869,7 +5151,6 @@ S1有号，就是“3000”。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  拉菲尔神父  
@@ -7878,12 +5159,10 @@ S1有号，就是“3000”。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  穆  
 ##### 54424#       发表于 2021-2-18 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50339614&amp;ptid=98922" target="_blank">moooooonlight 发表于 2021-2-15 17:40</a>
@@ -7895,16 +5174,10 @@ S1有号，就是“3000”。
 <img src="https://static.saraba1st.com/image/smiley/animal2017/007.png" referrerpolicy="no-referrer">是啊 看着也是在是太像了
 
 
-
-
-
-
-
 -----
 
 ####  icewolf01  
 ##### 54425#       发表于 2021-2-18 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50339614&amp;ptid=98922" target="_blank">moooooonlight 发表于 2021-2-15 17:40</a>
@@ -7916,31 +5189,19 @@ S1有号，就是“3000”。
 艾尼路：我好像听到有人说要更强的电
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 54426#       发表于 2021-2-18 15:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">大概是日和吧
-
-
-
-
-
 
 
 -----
 
 ####  好评加鹅  
 ##### 54427#       发表于 2021-2-18 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50331952&amp;ptid=98922" target="_blank">klzxs 发表于 2021-2-14 16:53</a>
@@ -7951,25 +5212,13 @@ S1有号，就是“3000”。
 讲个笑话，山治年
 
 
-
-
-
-
-
 -----
 
 ####  游戏  
 ##### 54428#       发表于 2021-2-20 10:35
 
 
-
-
 不知道团子是不是只对smile能力者有用
-
-
-
-
-
 
 
 -----
@@ -7978,14 +5227,7 @@ S1有号，就是“3000”。
 ##### 54429#       发表于 2021-2-20 13:06
 
 
-
-
 只盼山治能够好好和三灾对决一场。
-
-
-
-
-
 
 
 -----
@@ -7994,9 +5236,7 @@ S1有号，就是“3000”。
 ##### 54430#       发表于 2021-2-22 09:19
 
 
-
  本帖最后由 evangelina 于 2021-2-22 09:20 编辑 
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/22/092003qffngh7ccfrf78fu.jpg" referrerpolicy="no-referrer">
@@ -8009,9 +5249,6 @@ S1有号，就是“3000”。
 2021-2-22 09:20 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202102/22/092014prit00ttfqfe144l.jpg" referrerpolicy="no-referrer">
 
 
@@ -8020,9 +5257,6 @@ S1有号，就是“3000”。
 下载附件
 
 2021-2-22 09:20 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/22/092017nagun03v03qwgqzq.jpg" referrerpolicy="no-referrer">
@@ -8035,9 +5269,6 @@ S1有号，就是“3000”。
 2021-2-22 09:20 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202102/22/092018bwogywwwsswwyqvq.jpg" referrerpolicy="no-referrer">
 
 
@@ -8046,9 +5277,6 @@ S1有号，就是“3000”。
 下载附件
 
 2021-2-22 09:20 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/22/092013v5wkowdz2nko65e5.jpg" referrerpolicy="no-referrer">
@@ -8061,17 +5289,7 @@ S1有号，就是“3000”。
 2021-2-22 09:20 上传
 
 
-
-
-
-
-
 动画御田打老白这段感觉比漫画有魄力不少<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8080,15 +5298,9 @@ S1有号，就是“3000”。
 ##### 54431#       发表于 2021-2-22 09:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">看到御田就烦
 
 然后听说1000话的人气投票中期排位他还能排二十几 我震惊
-
-
-
-
-
 
 
 -----
@@ -8097,14 +5309,7 @@ S1有号，就是“3000”。
 ##### 54432#       发表于 2021-2-22 09:55
 
 
-
-
 第10人是在锦卫门旁边的黑影吧，体型比锦卫门小好多，不太可能是雷神
-
-
-
-
-
 
 
 -----
@@ -8113,14 +5318,7 @@ S1有号，就是“3000”。
 ##### 54433#       发表于 2021-2-22 11:19
 
 
-
-
 是阿金<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8129,22 +5327,15 @@ S1有号，就是“3000”。
 ##### 54434#       发表于 2021-2-22 16:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50401810&amp;ptid=98922" target="_blank">evangelina 发表于 2021-2-22 09:19</a>
 动画御田打老白这段感觉比漫画有魄力不少</blockquote>
 这个作画组是不是龙珠布罗利那批……之前就发现感觉和前期画风完全不一样
-
-
-
-
-
 
 
 -----
 
 ####  Tomorrow_D  
 ##### 54435#       发表于 2021-2-22 23:09
-
 
 
  本帖最后由 Tomorrow_D 于 2021-2-22 23:12 编辑 
@@ -8160,25 +5351,13 @@ S1有号，就是“3000”。
 后期（摄影合成）团队从和之国篇开始由三晃换成了旭Pro，布罗利还有海贼Stampede（狂热行动）的后期也是旭负责的
 
 
-
-
-
-
-
 -----
 
 ####  Tomorrow_D  
 ##### 54436#       发表于 2021-2-22 23:30
 
 
-
-
 最近动画的整体质量很可观，推荐大家看一下，补的话可以从950话开始
-
-
-
-
-
 
 
 -----
@@ -8187,24 +5366,16 @@ S1有号，就是“3000”。
 ##### 54437#       发表于 2021-2-24 00:23
 
 
-
-
 这情报有点看不懂了
 黑玛利亚的目的不就是把山治当人质想要怂恿山治把罗宾叫过来，还特地写了手下们的心理活动 这家伙誓死不从应该不会出卖同伴吧
 结果让你喊你还真的喊啊 至少也找其他人来救你吧，人家的目标就是罗宾所以山治这是要让罗宾自投罗网吗，而且首先也应该先提醒罗宾敌人的目标是你让罗宾注意一点吧
 真的就是我相信大法 还是等漫画出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">来自: iPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  Tomorrow_D  
 ##### 54438#       发表于 2021-2-24 09:07
-
 
 
  本帖最后由 Tomorrow_D 于 2021-2-24 09:11 编辑 
@@ -8221,13 +5392,9 @@ S1有号，就是“3000”。
 这样的桥段还是很海贼的。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -8237,12 +5404,7 @@ S1有号，就是“3000”。
 | 重名的mufasa| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -8251,17 +5413,10 @@ S1有号，就是“3000”。
 ##### 54439#       发表于 2021-2-24 09:31
 
 
-
-
 海贼王外传《佩罗娜小说》部分剧透：被禁酒的索隆为了一瓶红酒与佩罗娜合作挑战鹰眼，结果嘛………索隆还是没得喝
 
 
 看来佩罗娜的消极果实对顶级强者没有用啊....<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8270,17 +5425,12 @@ S1有号，就是“3000”。
 ##### 54440#       发表于 2021-2-24 09:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">两年的修炼过去 草帽海贼团的成员都学会了新的技能 路飞和索罗有霸气 乌索普有植物 娜美深造了气象 山治学会了喊救命 大家都有光明的前途
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -8290,12 +5440,7 @@ S1有号，就是“3000”。
 | memo2| + 1|笑着笑着就哭了，山治惨|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -8306,12 +5451,10 @@ S1有号，就是“3000”。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  tyauto  
 ##### 54442#       发表于 2021-2-24 10:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50423980&amp;ptid=98922" target="_blank">龙手马弗 发表于 2021-2-24 10:00</a>
@@ -8344,25 +5487,13 @@ S1有号，就是“3000”。
 年龄 21岁→23岁
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 54443#       发表于 2021-2-24 10:51
 
 
-
-
 别把区区月步不当新技能啊！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8371,13 +5502,7 @@ S1有号，就是“3000”。
 ##### 54444#       发表于 2021-2-24 12:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这展开也不算不行吧 但还是希望厨子能普通的帅气点
-
-
-
-
-
 
 
 -----
@@ -8386,14 +5511,7 @@ S1有号，就是“3000”。
 ##### 54445#       发表于 2021-2-24 16:23
 
 
-
-
 我也觉得还行，终于没硬撑了，希望后面能够好好打一场找回点牌面就行<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8402,14 +5520,7 @@ S1有号，就是“3000”。
 ##### 54446#       发表于 2021-2-24 16:37
 
 
-
-
 山治果然牛逼,救救我,罗宾酱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8418,16 +5529,9 @@ S1有号，就是“3000”。
 ##### 54447#       发表于 2021-2-24 16:40
 
 
-
-
 从这话开始正式分配对手了吧，看好山治能分到一个三灾
 
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -8436,14 +5540,7 @@ S1有号，就是“3000”。
 ##### 54448#       发表于 2021-2-24 20:01
 
 
-
-
 就不能是厨子的见闻色已经断定黑玛利亚不是罗兵的对手
-
-
-
-
-
 
 
 -----
@@ -8452,15 +5549,9 @@ S1有号，就是“3000”。
 ##### 54449#       发表于 2021-2-24 23:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429837&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-2-24 20:01</a>
 就不能是厨子的见闻色已经断定黑玛利亚不是罗兵的对手</blockquote>
 有见闻色还被抓住…还时间宝石唯一结局呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8469,16 +5560,10 @@ S1有号，就是“3000”。
 ##### 54450#       发表于 2021-2-25 01:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429837&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-2-24 20:01</a>
 
 就不能是厨子的见闻色已经断定黑玛利亚不是罗兵的对手</blockquote>
 怎么不能是厨子见闻色到自己只是个煮饭的命,不应该插手战斗这种事？
-
-
-
-
-
 
 
 -----
@@ -8487,16 +5572,10 @@ S1有号，就是“3000”。
 ##### 54451#       发表于 2021-2-25 01:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50432427&amp;ptid=98922" target="_blank">晴岚 发表于 2021-2-25 01:19</a>
 
 怎么不能是厨子见闻色到自己只是个煮饭的命,不应该插手战斗这种事？</blockquote>
 这个才是最妥当的答案，建议发去贴吧给尾田。
-
-
-
-
-
 
 
 -----
@@ -8507,12 +5586,10 @@ S1有号，就是“3000”。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Tomorrow_D  
 ##### 54453#       发表于 2021-2-25 18:35
-
 
 
  本帖最后由 Tomorrow_D 于 2021-2-25 18:52 编辑 
@@ -8525,25 +5602,13 @@ S1有号，就是“3000”。
 求救本身不是问题，如果刻画得好的话我是绝对相信对山治反而是加分的。但是我反正是真的完全没想到尾田会用这样一种最为窝囊的方式来画山治的求救。
 
 
-
-
-
-
-
 -----
 
 ####  moeful  
 ##### 54454#       发表于 2021-2-25 18:50
 
 
-
-
 尾田是不是在行为艺术。“反正我这么出名了，画得再屎都他们都会买。”
-
-
-
-
-
 
 
 -----
@@ -8552,16 +5617,9 @@ S1有号，就是“3000”。
 ##### 54455#       发表于 2021-2-25 19:12
 
 
-
-
 往好处想这是先抑后扬，虽然山治已经吃瘪了十年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 不过看这话山治要去九侠那边，跟杰克在同一层，估计是要对上杰克了，至少有三灾打，比甚平强。
-
-
-
-
-
 
 
 -----
@@ -8570,23 +5628,15 @@ S1有号，就是“3000”。
 ##### 54456#       发表于 2021-2-25 21:10
 
 
-
-
 Q谁来打？大和？
 
  -- 傲娇地来自 Stage1未知客户端
-
-
-
-
-
 
 
 -----
 
 ####  古畑任三郎2015  
 ##### 54457#       发表于 2021-2-25 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50439387&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-2-25 19:12</a>
@@ -8599,25 +5649,13 @@ Q谁来打？大和？
 “甚平老大，救救我！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 54458#       发表于 2021-2-25 23:40
 
 
-
-
 这周漫画有点重回十年前水平的感觉了
-
-
-
-
-
 
 
 -----
@@ -8626,14 +5664,7 @@ Q谁来打？大和？
 ##### 54459#       发表于 2021-2-26 01:56
 
 
-
-
 十年前不是鱼人岛吗
-
-
-
-
-
 
 
 -----
@@ -8642,16 +5673,10 @@ Q谁来打？大和？
 ##### 54460#       发表于 2021-2-26 02:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50442795&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-2-26 01:56</a>
 
 十年前不是鱼人岛吗</blockquote>
 说不定是在明捧暗骂呢
-
-
-
-
-
 
 
 -----
@@ -8660,22 +5685,13 @@ Q谁来打？大和？
 ##### 54461#       发表于 2021-2-26 03:53
 
 
-
-
 有人说山治2年后刻画的更细腻，感情更丰富，人物更饱满了，有道理吗？我这种只喜欢战斗力的不太能理解
-
-
-
-
-
 
 
 -----
 
 ####  先手必胜  
 ##### 54462#       发表于 2021-2-26 05:04
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/26/050312tk1zul1lclna3kaw.jpg" referrerpolicy="no-referrer">
@@ -8688,10 +5704,6 @@ Q谁来打？大和？
 2021-2-26 05:03 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202102/26/050320v9zooo193q3b61is.jpg" referrerpolicy="no-referrer">
 
 
@@ -8702,17 +5714,7 @@ Q谁来打？大和？
 2021-2-26 05:03 上传
 
 
-
-
-
-
-
 同样的桥段，两年前处理的不知比现在高明多少
-
-
-
-
-
 
 
 -----
@@ -8721,22 +5723,15 @@ Q谁来打？大和？
 ##### 54463#       发表于 2021-2-26 06:51
 
 
-
 <blockquote>tornadoDA 发表于 2021-2-26 03:53
 有人说山治2年后刻画的更细腻，感情更丰富，人物更饱满了，有道理吗？我这种只喜欢战斗力的不太能理解 ...</blockquote>
 怎么说呢，是，只不过大家都只喜欢讨论战斗力，尤其贴吧，红黑大战
-
-
-
-
-
 
 
 -----
 
 ####  先手必胜  
 ##### 54464#       发表于 2021-2-26 08:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50443020&amp;ptid=98922" target="_blank">tornadoDA 发表于 2021-2-26 03:53</a>
@@ -8747,16 +5742,10 @@ Q谁来打？大和？
 但是和两年前一比这叫什么玩意，一个好色属性被无限放大，剩下的部分又逻辑不通，真不敢想象经历了罗宾和乌索普离队事件的山治还会去殴打船长，更别说还有做蛋糕给大妈吃满血和我有一计结果就是月步逃跑这种意义不明的搞笑情节了，想出这几段的人脑子是有病吧
 
 
-
-
-
-
-
 -----
 
 ####  先手必胜  
 ##### 54465#       发表于 2021-2-26 08:21
-
 
 
  本帖最后由 先手必胜 于 2021-2-26 09:06 编辑 
@@ -8766,17 +5755,10 @@ Q谁来打？大和？
 真的，还不如就让这个角色直接被杀了，他现在有个屁用啊
 
 
-
-
-
-
-
 -----
 
 ####  先手必胜  
 ##### 54466#       发表于 2021-2-26 08:25
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202102/26/082449dlvgs5klvddksos5.jpg" referrerpolicy="no-referrer">
@@ -8789,16 +5771,7 @@ Q谁来打？大和？
 2021-2-26 08:24 上传
 
 
-
-
-
-
 想出这种情节的人脑袋一定有问题
-
-
-
-
-
 
 
 -----
@@ -8807,14 +5780,7 @@ Q谁来打？大和？
 ##### 54467#       发表于 2021-2-26 08:26
 
 
-
-
 前期厨子强到和战斗员差不多，可能是那时作者还要看角色人气的脸色吧，也许现在厨子的表现才是wt本来想让他呆的位置
-
-
-
-
-
 
 
 -----
@@ -8823,15 +5789,9 @@ Q谁来打？大和？
 ##### 54468#       发表于 2021-2-26 10:46
 
 
-
  本帖最后由 evangelina 于 2021-2-27 08:31 编辑 
 
 这展开感觉山治成了罗宾的垫脚石
-
-
-
-
-
 
 
 -----
@@ -8840,16 +5800,10 @@ Q谁来打？大和？
 ##### 54469#       发表于 2021-2-26 11:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50443639&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 08:25</a>
 
 想出这种情节的人脑袋一定有问题</blockquote>
 桃之助这种角色怀疑是WT故意恶心读者的
-
-
-
-
-
 
 
 -----
@@ -8860,13 +5814,10 @@ Q谁来打？大和？
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kumquat_cc  
 ##### 54471#       发表于 2021-2-26 11:27
-
-
 
 
 WT这么安排就离谱，山治都多少次不打女人了，按道理就不应该派他去跟女人对线，但是wt就非得硬塞入这场戏。关键是这种场景都已经出现了无数遍了，观众看得已经开始腻了。
@@ -8875,16 +5826,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 整个场景，看不到山治的成长，也塑造不出山治的新形象，更看不出这对于推动剧情有什么作用，这种剧情完全就是鸡肋。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 54472#       发表于 2021-2-26 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50443617&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 08:21</a>
@@ -8895,16 +5840,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 记错了吧，娜美被大妈抓住的时候还没什么事。然后自己脱身了
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 54473#       发表于 2021-2-26 11:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50445474&amp;ptid=98922" target="_blank">kumquat_cc 发表于 2021-2-26 11:27</a>
@@ -8914,27 +5853,15 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 这么一细想觉得这个角色更讨人厌了
 
 
-
-
-
-
-
 -----
 
 ####  jxzeroga0  
 ##### 54474#       发表于 2021-2-26 11:39
 
 
-
-
 平时扣扣索索恨不得每一格都塞满的尾田，画山治直接两页大特写
 
 感恩戴德！<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8943,14 +5870,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54475#       发表于 2021-2-26 12:04
 
 
-
-
 山治被蜘蛛娘巨人女捆绑殴打，桃之助裹在大姐姐衣服里埋胸，wt是不是有点抖m倾向啊
-
-
-
-
-
 
 
 -----
@@ -8959,16 +5879,9 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54476#       发表于 2021-2-26 12:13
 
 
-
-
 黑玛利亚：<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">呵呵呵 我要吃热狗啊
 
 山治：<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">罗宾 救我啊
-
-
-
-
-
 
 
 -----
@@ -8977,15 +5890,9 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54477#       发表于 2021-2-26 13:15
 
 
-
 <blockquote>先手必胜 发表于 2021-2-26 08:13
 你要说对比两年后其他角色，那山治的刻画肯定是细腻的多，因为两年后的角色都很扁平，山治在其中算出众了 ...</blockquote>
 做蛋糕给大妈吃，这点当年山治还没入队的时候，不就有过吗，给阿金那个海贼团吃东西，而且不止一次，算是山治的信念了。
-
-
-
-
-
 
 
 -----
@@ -8994,16 +5901,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54478#       发表于 2021-2-26 13:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446676&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-2-26 13:15</a>
 
 做蛋糕给大妈吃，这点当年山治还没入队的时候，不就有过吗，给阿金那个海贼团吃东西，而且不止一次，算是 ...</blockquote>
 情况不一样，山治盘算的是让大妈 吃蛋糕满足到晕倒来作为解决危局的手段，尾田也是营造出会有这种可能的气氛，结果给大妈吃满血了，真的搞笑
-
-
-
-
-
 
 
 -----
@@ -9012,16 +5913,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54479#       发表于 2021-2-26 13:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50446968&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 13:47</a>
 
 情况不一样，山治盘算的是让大妈 吃蛋糕满足到晕倒来作为解决危局的手段，尾田也是营造出会有这种可能的气 ...</blockquote>
 克里克吃了哲普的饭也打过来了，哲普在搞笑吗
-
-
-
-
-
 
 
 -----
@@ -9030,16 +5925,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54480#       发表于 2021-2-26 14:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50447013&amp;ptid=98922" target="_blank">cdfjg 发表于 2021-2-26 13:53</a>
 
 克里克吃了哲普的饭也打过来了，哲普在搞笑吗</blockquote>
 别混淆，请问哲普和山治当初给吃饭是为了解决当前的困境吗？
-
-
-
-
-
 
 
 -----
@@ -9048,16 +5937,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54481#       发表于 2021-2-26 14:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50447174&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-2-26 14:11</a>
 
 别混淆，请问哲普和山治当初给吃饭是为了解决当前的困境吗？</blockquote>
 哲普和山治给人吃饭是没有目的的
-
-
-
-
-
 
 
 -----
@@ -9066,14 +5949,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54482#       发表于 2021-2-26 14:20
 
 
-
-
 尾田这画的都是什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9082,14 +5958,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54483#       发表于 2021-2-26 14:26
 
 
-
-
 信念归信念，搞得这么一根筋就成zzzq了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9098,22 +5967,13 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54484#       发表于 2021-2-26 16:22
 
 
-
-
 下次打黑胡子的时候就是加洛特救山治了！
-
-
-
-
-
 
 
 -----
 
 ####  svmkty  
 ##### 54485#       发表于 2021-2-26 17:26
-
-
 
 
 大和这角色戏份少性格莫名其妙，人气居然还挺高的，果然是看脸的时代
@@ -9129,30 +5989,13 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 2021-2-26 17:26 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  gg326  
 ##### 54486#       发表于 2021-2-26 18:44
 
 
-
-
 以前山治打敌方女干部好歹还是误打误撞，这次是明知自己不打女人还直接奔着肯定都是女敌人的敌方妓院去，完全就是故意帮倒忙，我看你才是卧底吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9161,16 +6004,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54487#       发表于 2021-2-26 18:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50449899&amp;ptid=98922" target="_blank">gg326 发表于 2021-2-26 18:44</a>
 
 以前山治打敌方女干部好歹还是误打误撞，这次是明知自己不打女人还直接奔着肯定都是女敌人的敌方妓院去，完 ...</blockquote>
 闯妓院是之前潜入的时候 结果里面没人山治又跑回来了 黑玛丽是爬塔时在宴会厅撞上的
-
-
-
-
-
 
 
 -----
@@ -9179,21 +6016,13 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54488#       发表于 2021-2-26 21:07
 
 
-
-
 厨子为了不伤害女人宁可受伤也不用武装色防御，真是傻的可爱
-
-
-
-
-
 
 
 -----
 
 ####  banglian  
 ##### 54489#       发表于 2021-2-26 21:21
-
 
 
  本帖最后由 banglian 于 2021-2-26 21:27 编辑 
@@ -9203,16 +6032,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 哪怕他有点像剑士斩莫奈（斩皮卡程度的就别想了）程度的战斗，都不至于如此搞笑化<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  svmkty  
 ##### 54490#       发表于 2021-2-26 21:47
-
 
 
  本帖最后由 svmkty 于 2021-2-27 01:16 编辑 
@@ -9230,20 +6053,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 2021-2-27 01:16 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 54491#       发表于 2021-2-26 23:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50451840&amp;ptid=98922" target="_blank">svmkty 发表于 2021-2-26 21:47</a>
@@ -9253,25 +6066,13 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 —— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 54492#       发表于 2021-2-26 23:58
 
 
-
-
 所以之前那个人影还在卖关子是吧
-
-
-
-
-
 
 
 -----
@@ -9280,14 +6081,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54493#       发表于 2021-2-27 00:56
 
 
-
-
 山治求救和御田跳舞，同一个味道啊
-
-
-
-
-
 
 
 -----
@@ -9296,14 +6090,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54494#       发表于 2021-2-27 02:08
 
 
-
-
 还可以吧，一方面相信同伴，另一方面为了保存实力忍辱求救也算说得过去的
-
-
-
-
-
 
 
 -----
@@ -9312,14 +6099,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54495#       发表于 2021-2-27 08:37
 
 
-
-
 谁给我讲讲桃子身上有啥闪光点吗，俺满脑子只有他好色和身世特权，相当的不爽。
-
-
-
-
-
 
 
 -----
@@ -9328,14 +6108,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54496#       发表于 2021-2-27 09:20
 
 
-
-
 同样是色批,你看看布鲁克,再看看厨子。
-
-
-
-
-
 
 
 -----
@@ -9344,14 +6117,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54497#       发表于 2021-2-27 09:35
 
 
-
-
 这一话让我产生巨大的困惑……不明白wt脑子里想的是什么。
-
-
-
-
-
 
 
 -----
@@ -9360,15 +6126,9 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54498#       发表于 2021-2-27 09:37
 
 
-
 <blockquote>晴岚 发表于 2021-2-27 09:20
 同样是色批,你看看布鲁克,再看看厨子。</blockquote>
 布鲁克蛋糕岛篇章是奇兵，山治 :D
-
-
-
-
-
 
 
 -----
@@ -9377,24 +6137,16 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54499#       发表于 2021-2-27 09:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50455351&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-2-27 09:37</a>
 
 布鲁克蛋糕岛篇章是奇兵，山治 :D</blockquote>
 布鲁克逐渐取代了厨子成为了两年前厨子的定位,厨子还不如就留在蛋糕岛跟布林结婚。现在看就像是个多余的角色（。
 
 
-
-
-
-
-
 -----
 
 ####  弯弓射山猪  
 ##### 54500#       发表于 2021-2-27 09:53
-
-
 
 
 看了专楼拉低了期待
@@ -9410,25 +6162,13 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 还ok的辣
 
 
-
-
-
-
-
 -----
 
 ####  陈玉礼  
 ##### 54501#       发表于 2021-2-27 11:17
 
 
-
-
 这求救还是全岛广播公开处刑<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">希望最后收拾掉一个三灾挽回点面子吧
-
-
-
-
-
 
 
 -----
@@ -9437,14 +6177,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54502#       发表于 2021-2-27 11:43
 
 
-
-
 凯多你这个没用的东西你当时把桃之助直接掐死不就好了？！<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9453,16 +6186,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54503#       发表于 2021-2-27 13:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50451840&amp;ptid=98922" target="_blank">svmkty 发表于 2021-2-26 21:47</a>
 
 擦。。原来大家看的是和谐版。。。</blockquote>
 喷了
-
-
-
-
-
 
 
 -----
@@ -9471,16 +6198,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54504#       发表于 2021-2-27 14:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50451840&amp;ptid=98922" target="_blank">svmkty 发表于 2021-2-26 21:47</a>
 
 擦。。原来大家看的是和谐版。。。</blockquote>
 你看日版的情报就知道是改的
-
-
-
-
-
 
 
 -----
@@ -9489,14 +6210,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54505#       发表于 2021-2-27 14:24
 
 
-
-
 这都多少年没个爽快的打戏了。。。这打戏感觉在刮痧
-
-
-
-
-
 
 
 -----
@@ -9505,14 +6219,7 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ##### 54506#       发表于 2021-2-27 14:50
 
 
-
-
 实不相瞒，我没看懂杰克是怎么突然冲出来对话的。
-
-
-
-
-
 
 
 -----
@@ -9523,12 +6230,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 54508#       发表于 2021-2-27 16:34
-
 
 
  本帖最后由 谁说法海不懂爱 于 2021-2-27 16:45 编辑 
@@ -9536,16 +6241,10 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 看了熟肉，反派毒奶破功，还有我都把人叫来了，你还不放我这种台词，感觉是两年前的乌索普才会说的。厨子你还是搞笑角色啊。
 
 
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 54509#       发表于 2021-2-27 21:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50455411&amp;ptid=98922" target="_blank">晴岚 发表于 2021-2-27 09:47</a>
@@ -9556,24 +6255,13 @@ WT给了他战斗服，还有战斗的定位的。
 不战斗的时候就做饭...
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 54510#       发表于 2021-2-27 22:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">厨子这就是那种你尴尬你就输了的状况 但我不尴尬啊 你拿我怎样
-
-
-
-
-
 
 
 -----
@@ -9582,23 +6270,15 @@ WT给了他战斗服，还有战斗的定位的。
 ##### 54511#       发表于 2021-2-27 22:14
 
 
-
-
 为什么尾田会画大和敞开衣服让桃之助钻进去的桥段啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  lqchina  
 ##### 54512#       发表于 2021-2-27 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50455026&amp;ptid=98922" target="_blank">Archi 发表于 2021-2-27 08:37</a>
@@ -9613,17 +6293,10 @@ WT给了他战斗服，还有战斗的定位的。
 不然你票选一个八杆子打不着的首相出来，路飞一路上的陪玩护驾之功岂不都打水漂了。
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 54513#       发表于 2021-2-27 22:26
-
-
 
 
 桃之助还不错了 你不能要求一个真正的孩子是个传奇 
@@ -9633,25 +6306,13 @@ WT给了他战斗服，还有战斗的定位的。
 战乱塞衣服里面其实我也觉得比之前跟娜美罗宾一起洗澡正常多了
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 54514#       发表于 2021-2-27 22:28
 
 
-
-
 桃之助比起那几个公主有骨气多了，他爹比不上他
-
-
-
-
-
 
 
 -----
@@ -9660,23 +6321,16 @@ WT给了他战斗服，还有战斗的定位的。
 ##### 54515#       发表于 2021-2-27 22:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">卷卷眉这一嗓子的作用大概是暴露了各地的监视器？不过还是太丢人了OTL
 
 
 罗宾大姐头有点帅
 
 
-
-
-
-
-
 -----
 
 ####  游蜓  
 ##### 54516#       发表于 2021-2-28 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50453989&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-02-27 00:56:33</a>
@@ -9686,32 +6340,19 @@ WT给了他战斗服，还有战斗的定位的。
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  athena_1982  
 ##### 54517#       发表于 2021-2-28 00:42
 
 
-
-
 忽然想到一个大家都没提起的点。乌索普能第一时间发现贴符的“目视者”，是不是进一步说明了他的见闻色觉醒？
-
-
-
-
-
 
 
 -----
 
 ####  309465205  
 ##### 54518#       发表于 2021-2-28 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50455026&amp;ptid=98922" target="_blank">Archi 发表于 2021-2-27 08:37</a>
@@ -9726,16 +6367,10 @@ WT给了他战斗服，还有战斗的定位的。
 刘禅/桃之助本人其实有没有能力都不重要,只要他们起到工具人的作用.具体的工作交给诸葛亮/锦卫门就行了
 
 
-
-
-
-
-
 -----
 
 ####  yeluffy  
 ##### 54519#       发表于 2021-2-28 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50463082&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-2-28 00:42</a>
@@ -9744,25 +6379,13 @@ WT给了他战斗服，还有战斗的定位的。
 砂糖那里就觉醒了吧，关键是会不会灵活用的问题嘛
 
 
-
-
-
-
-
 -----
 
 ####  宅之猴晒阴  
 ##### 54520#       发表于 2021-2-28 23:08
 
 
-
-
 罗宾的脸怎么越来越圆了，都快成饼脸了，以前不是这样的。
-
-
-
-
-
 
 
 -----
@@ -9771,22 +6394,14 @@ WT给了他战斗服，还有战斗的定位的。
 ##### 54521#       发表于 2021-3-1 09:18
 
 
-
-
 看前几页觉得尾田仔就是在跟我们山治厨过不去，看到罗宾那个全身图我突然就原谅他了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 话又说回来，山治作为战斗员被冷藏是不是因为他的战斗方式很难搞出新意？
-
-
-
-
-
 
 
 -----
 
 ####  yeluffy  
 ##### 54522#       发表于 2021-3-1 10:43
-
 
 
 <blockquote>烈士鲮鱼 发表于 2021-3-1 09:18
@@ -9796,25 +6411,13 @@ WT给了他战斗服，还有战斗的定位的。
 是两年后一直在战斗方面没表现，一直吃瘪
 
 
-
-
-
-
-
 -----
 
 ####  yth329  
 ##### 54523#       发表于 2021-3-1 10:51
 
 
-
-
 山治都拉成这样了人气投票还是第三，看来还有继续浪的空间
-
-
-
-
-
 
 
 -----
@@ -9823,17 +6426,11 @@ WT给了他战斗服，还有战斗的定位的。
 ##### 54524#       发表于 2021-3-1 10:56
 
 
-
 <blockquote>烈士鲮鱼 发表于 2021-3-1 09:18
 看前几页觉得尾田仔就是在跟我们山治厨过不去，看到罗宾那个全身图我突然就原谅他了
 
 话又说回来，山 ...</blockquote>
 山治是厨子，又不是战斗员，战斗员就是索隆。
-
-
-
-
-
 
 
 -----
@@ -9844,12 +6441,10 @@ WT给了他战斗服，还有战斗的定位的。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  uponutopia  
 ##### 54526#       发表于 2021-3-1 11:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50473327&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2021-3-1 10:56</a>
@@ -9858,25 +6453,13 @@ WT给了他战斗服，还有战斗的定位的。
 说是这么说但大家都门清他之前的定位就是3号战斗员啊，少年漫里占重头的打斗部分，10人主角团不可能只有2个战斗员。虽然画到现在戏份变了但之前排得挺清楚的 甚至每人对应的CP9对手战力值都定的一清二楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  fmchar  
 ##### 54527#       发表于 2021-3-1 11:37
 
 
-
-
 有个揩油小屁孩不是日漫传统吗？
-
-
-
-
-
 
 
 -----
@@ -9885,16 +6468,10 @@ WT给了他战斗服，还有战斗的定位的。
 ##### 54528#       发表于 2021-3-1 12:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50473861&amp;ptid=98922" target="_blank">fmchar 发表于 2021-3-1 11:37</a>
 
 有个揩油小屁孩不是日漫传统吗？</blockquote>
 那是传统日漫的传统了
-
-
-
-
-
 
 
 -----
@@ -9903,14 +6480,7 @@ WT给了他战斗服，还有战斗的定位的。
 ##### 54529#       发表于 2021-3-1 12:45
 
 
-
-
 现在山治还有前三吗，弗兰奇将军和甚平稳压他一头，布鲁克最近的表现也很出彩，这都还没算上未来必成为船员的大和
-
-
-
-
-
 
 
 -----
@@ -9919,24 +6489,16 @@ WT给了他战斗服，还有战斗的定位的。
 ##### 54530#       发表于 2021-3-1 15:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461968&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-2-27 22:28</a>
 
 桃之助比起那几个公主有骨气多了，他爹比不上他</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">我奈菲鲁塔丽·薇薇实名不服
 
 
-
-
-
-
-
 -----
 
 ####  proselyte  
 ##### 54531#       发表于 2021-3-3 16:13
-
-
 
 
 1006话标题：侠客花之豹五郎
@@ -9962,17 +6524,10 @@ WT给了他战斗服，还有战斗的定位的。
 下周不休刊
 
 
-
-
-
-
-
 -----
 
 ####  陶矢  
 ##### 54532#       发表于 2021-3-3 16:19
-
-
 
 
 你马尔科这么厉害顶上战争怎么没见过
@@ -9980,16 +6535,10 @@ WT给了他战斗服，还有战斗的定位的。
 jinzhang
 
 
-
-
-
-
-
 -----
 
 ####  proselyte  
 ##### 54533#       发表于 2021-3-3 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50498728&amp;ptid=98922" target="_blank">陶矢 发表于 2021-3-3 16:19</a>
@@ -10000,16 +6549,10 @@ jinzhang</blockquote>
 马尔科顶上和三个大将都打过可以了
 
 
-
-
-
-
-
 -----
 
 ####  Freemasons  
 ##### 54534#       发表于 2021-3-4 00:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50498728&amp;ptid=98922" target="_blank">陶矢 发表于 2021-3-3 16:19</a>
@@ -10021,16 +6564,10 @@ jinzhang</blockquote>
 说到底只有世上最强男和未来的元帅能在这四个人身上占到便宜，小马这发挥已经很不错了。
 
 
-
-
-
-
-
 -----
 
 ####  moeful  
 ##### 54535#       发表于 2021-3-4 00:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50498728&amp;ptid=98922" target="_blank">陶矢 发表于 2021-3-3 16:19</a>
@@ -10041,17 +6578,10 @@ jinzhang</blockquote>
 马尔科是顶上唯一一个没放水还控了场的强者啊。弹回了黄猿，在路飞昏过去之后也是他和甚平互换牵制住赤犬的。
 
 
-
-
-
-
-
 -----
 
 ####  ネオグランゾン  
 ##### 54536#       发表于 2021-3-4 05:11
-
-
 
 
 马尔科越牛就越显得白胡子担心伤亡不复仇的借口SB
@@ -10059,16 +6589,10 @@ jinzhang</blockquote>
 老年白胡子再不济，比之凯多应该还是稍胜半筹。既然马尔科可以短时间面对King和Queen不败，那么钻石和维斯塔合力怕不是瞬间把Jack打出屎来。以藏这个等级的人在白船上估计也有7、8个。更别提白团这时还有艾斯和黑胡子。真打起来，百兽海贼团只有单方面被屠杀的份。
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 54537#       发表于 2021-3-4 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504307&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-3-4 05:11</a>
@@ -10083,16 +6607,10 @@ jinzhang</blockquote>
 毕竟是个渴望家人的过日子人
 
 
-
-
-
-
-
 -----
 
 ####  Freemasons  
 ##### 54538#       发表于 2021-3-4 10:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504307&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-3-4 05:11</a>
@@ -10102,16 +6620,10 @@ jinzhang</blockquote>
 沾上御田的剧情，不合理才是常态
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 54539#       发表于 2021-3-4 10:28
-
 
 
 <blockquote>ネオグランゾン 发表于 2021-3-4 05:11
@@ -10121,16 +6633,10 @@ jinzhang</blockquote>
 答案是智皇的人设营销唬到白胡子了。
 
 
-
-
-
-
-
 -----
 
 ####  proselyte  
 ##### 54540#       发表于 2021-3-4 10:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504307&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-3-4 05:11</a>
@@ -10142,17 +6648,10 @@ jinzhang</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  ceruleancard  
 ##### 54541#       发表于 2021-3-4 10:53
-
-
 
 
 白胡子老实说我觉得还是符合人设的，他不喜欢复仇，在意还活着的人
@@ -10161,16 +6660,10 @@ jinzhang</blockquote>
 艾斯要去找黑胡子复仇，白胡子也是阻止了的，只是没拦住，御田同理，知道的时候人都死了很久了，为死的人把生的人搭进去，不符合他的人设
 
 
-
-
-
-
-
 -----
 
 ####  恶魔娘阿洛  
 ##### 54542#       发表于 2021-3-4 10:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50474619&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-3-1 12:45</a>
@@ -10179,25 +6672,13 @@ jinzhang</blockquote>
 求求尾田大和这弱智不要上船
 
 
-
-
-
-
-
 -----
 
 ####  ceruleancard  
 ##### 54543#       发表于 2021-3-4 11:00
 
 
-
-
 大和都看过剧本了，必不可能成为船员，凯多败后，他手下的小喽啰要有地方安置，目测大和会统领他们，成为盟友甚至草帽大船团的一部分
-
-
-
-
-
 
 
 -----
@@ -10206,14 +6687,7 @@ jinzhang</blockquote>
 ##### 54544#       发表于 2021-3-4 11:18
 
 
-
-
 每次更新我都要无能狂怒，大骂一波御田父子能不能消失......没哪个篇章看得像和之国这么痛苦的，蛋糕岛都没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10224,14 +6698,12 @@ jinzhang</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  届得到  
 ##### 54546#       发表于 2021-3-4 11:34
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -10242,12 +6714,10 @@ jinzhang</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  proselyte  
 ##### 54548#       发表于 2021-3-4 11:39
-
 
 
  本帖最后由 proselyte 于 2021-3-4 11:44 编辑 
@@ -10261,27 +6731,15 @@ jinzhang</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">不过这么洗也挺蠢的
 
 
-
-
-
-
-
 -----
 
 ####  烟萝  
 ##### 54549#       发表于 2021-3-4 11:48
 
 
-
-
 不剧透的问一下！和之国打完了吗！我能一口气补了吗<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
 
 不能的话还得画多久啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10292,12 +6750,10 @@ jinzhang</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  天使的日曜日  
 ##### 54551#       发表于 2021-3-4 12:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50507013&amp;ptid=98922" target="_blank">烟萝 发表于 2021-3-4 11:48</a>
@@ -10308,32 +6764,19 @@ jinzhang</blockquote>
 还有好多人没分配对手，还没正式开始干部战，按以前2～3话一场战斗来算，三灾+六子最少也还要画半年以上才轮得到BOSS战<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  高数  
 ##### 54552#       发表于 2021-3-4 12:33
 
 
-
-
 和之国我看不下去
-
-
-
-
-
 
 
 -----
 
 ####  GreenBird  
 ##### 54553#       发表于 2021-3-4 14:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506865&amp;ptid=98922" target="_blank">届得到 发表于 2021-3-4 11:37</a>
@@ -10345,11 +6788,6 @@ jinzhang</blockquote>
 鼬这个展开说说...
 
 
-
-
-
-
-
 -----
 
 ####  届得到  
@@ -10358,13 +6796,10 @@ jinzhang</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  kumquat_cc  
 ##### 54555#       发表于 2021-3-4 15:54
-
-
 
 
 玉田这个人加进来直接把海贼那种全球遨游那种大航海情怀直接缩回了小日本村长干架的感觉。
@@ -10373,16 +6808,10 @@ jinzhang</blockquote>
 玉田这个人，真的看不下去，太恶心了，全是私货
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 54556#       发表于 2021-3-4 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50509687&amp;ptid=98922" target="_blank">kumquat_cc 发表于 2021-3-4 15:54</a>
@@ -10394,16 +6823,10 @@ jinzhang</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其实是因为御田的塑造完全是踩在老人气角色的头上吧，而自身的形象对于老人物没有任何正面加成，都是OOC。
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 54557#       发表于 2021-3-4 17:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506893&amp;ptid=98922" target="_blank">proselyte 发表于 2021-3-4 11:39</a>
@@ -10414,25 +6837,13 @@ jinzhang</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">问题是当年的凯多团不是更菜嘛。。
 
 
-
-
-
-
-
 -----
 
 ####  汤圆です  
 ##### 54558#       发表于 2021-3-4 18:09
 
 
-
-
 同为4皇的海盗团，凯多团那堆畜生从能力到气场都比大妈团那堆歪瓜裂枣儿女差太远了
-
-
-
-
-
 
 
 -----
@@ -10441,14 +6852,7 @@ jinzhang</blockquote>
 ##### 54559#       发表于 2021-3-4 18:10
 
 
-
-
 新的情报图出来了，收回我之前说的小马哥对手太强的话，现在我也要说你马尔科这么厉害顶上战争怎么没见过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10457,15 +6861,9 @@ jinzhang</blockquote>
 ##### 54560#       发表于 2021-3-4 20:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506603&amp;ptid=98922" target="_blank">memo2 发表于 2021-3-4 11:18</a>
 每次更新我都要无能狂怒，大骂一波御田父子能不能消失......没哪个篇章看得像和之国这么痛苦的，蛋糕岛都没 ...</blockquote>
 一边连提前释出的文字情报都不放过，一边又反复表态看不下去，你们这是何苦呢
-
-
-
-
-
 
 
 -----
@@ -10474,16 +6872,10 @@ jinzhang</blockquote>
 ##### 54561#       发表于 2021-3-4 20:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511148&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-3-4 18:10</a>
 
 新的情报图出来了，收回我之前说的小马哥对手太强的话，现在我也要说你马尔科这么厉害顶上战争怎么没见过[f ...</blockquote>
 因为让他吃瘪的也就几个，一个是狗哥，一个是卡普，一个是猴子。狗哥也不用说啥，顶上之战里面他连白胡子都打了，还不能让你吃瘪嘛。卡普老资历了，团过的四皇级别也不少。猴子打到现在为止，有人让他重伤过吗？
-
-
-
-
-
 
 
 -----
@@ -10492,16 +6884,9 @@ jinzhang</blockquote>
 ##### 54562#       发表于 2021-3-4 22:40
 
 
-
-
 马尔高炸裂，吊打皇副皇二副
 
 五皇你多学学啊
-
-
-
-
-
 
 
 -----
@@ -10510,16 +6895,10 @@ jinzhang</blockquote>
 ##### 54563#       发表于 2021-3-5 01:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50512489&amp;ptid=98922" target="_blank">武男 发表于 2021-3-4 20:31</a>
 
 因为让他吃瘪的也就几个，一个是狗哥，一个是卡普，一个是猴子。狗哥也不用说啥，顶上之战里面他连白胡子 ...</blockquote>
 红狗对菠萝头有过有效杀伤?
-
-
-
-
-
 
 
 -----
@@ -10528,14 +6907,7 @@ jinzhang</blockquote>
 ##### 54564#       发表于 2021-3-5 03:11
 
 
-
-
 看了图透……小马哥这根本就是可以1v3吧……来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -10544,14 +6916,7 @@ jinzhang</blockquote>
 ##### 54565#       发表于 2021-3-5 03:26
 
 
-
-
 不如换个角度想，过了三年小马哥变更强了，已经是准皇级别了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10560,16 +6925,10 @@ jinzhang</blockquote>
 ##### 54566#       发表于 2021-3-5 07:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50515825&amp;ptid=98922" target="_blank">309465205 发表于 2021-3-5 01:22</a>
 
 红狗对菠萝头有过有效杀伤?</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">倒不如说是小马哥带着白残团，七武海，围殴红狗，也没能拿人家怎么样吧。我记得这楼前面在那时期讨论过这个。
-
-
-
-
-
 
 
 -----
@@ -10578,16 +6937,10 @@ jinzhang</blockquote>
 ##### 54567#       发表于 2021-3-5 07:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50516463&amp;ptid=98922" target="_blank">武男 发表于 2021-3-5 07:02</a>
 
 倒不如说是小马哥带着白残团，七武海，围殴红狗，也没能拿人家怎么样吧。我记得这楼前面在那时期 ...</blockquote>
 小马哥擅长的拖而不是输出啊，我怀疑白团以前是无可置疑的青海第一团的原因除了白胡子是最强男之外就是小马哥这种把同级别甚至更高级别的数个对手拖住好让其他人玩田忌赛马速战速决。要是对手像顶上红狗那样咬准一个目标不放完全不理你，小马哥作为坦也没啥强力技能控住对方
-
-
-
-
-
 
 
 -----
@@ -10596,16 +6949,10 @@ jinzhang</blockquote>
 ##### 54568#       发表于 2021-3-5 08:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50516587&amp;ptid=98922" target="_blank">斯卡哈 发表于 2021-3-5 07:45</a>
 
 小马哥擅长的拖而不是输出啊，我怀疑白团以前是无可置疑的青海第一团的原因除了白胡子是最强男之外就是小 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他们围殴残血阿狗，反而送了队长这个。不过现在最麻烦的局面还是两个四皇在。
-
-
-
-
-
 
 
 -----
@@ -10614,16 +6961,10 @@ jinzhang</blockquote>
 ##### 54569#       发表于 2021-3-5 09:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50512235&amp;ptid=98922" target="_blank">fdream923 发表于 2021-3-4 20:08</a>
 
 一边连提前释出的文字情报都不放过，一边又反复表态看不下去，你们这是何苦呢 ...</blockquote>
 我想看草帽团和我恶心御田父子没冲突啊，御田父子像上班走了十年的那条路上面，突然出现的恶臭垃圾站，那我能怎样？我只能无能狂怒嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10632,16 +6973,9 @@ jinzhang</blockquote>
 ##### 54570#       发表于 2021-3-5 11:00
 
 
-
-
 感觉白胡子海贼团的队长数量和战斗力比草帽要强啊。
 
 御田+马尔科+艾斯+钻石+花剑+黑胡子
-
-
-
-
-
 
 
 -----
@@ -10650,21 +6984,13 @@ jinzhang</blockquote>
 ##### 54571#       发表于 2021-3-5 11:10
 
 
-
-
 桃之助……
-
-
-
-
-
 
 
 -----
 
 ####  ネオグランゾン  
 ##### 54572#       发表于 2021-3-5 11:24
-
 
 
  本帖最后由 ネオグランゾン 于 2021-3-5 11:33 编辑 
@@ -10674,32 +7000,19 @@ jinzhang</blockquote>
 说是二打一，但Queen这家伙吊儿郎当动不动就走神的样子很难让人把这二打一当真，而马尔科对King的两下直击也根本没造成任何明显伤害。说到底就是依靠HP恢复大硬抗，Queen这边况且不说，King很明显是没掉什么血，但马尔科本人的EN和HP却快见黄了。马尔克个人实力当在King或Queen之上，但一打二无疑是太勉强了。不过这样也好，逻辑上也合理些。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 54573#       发表于 2021-3-5 11:25
 
 
-
-
 白胡子完全可以说时机未到的
-
-
-
-
-
 
 
 -----
 
 ####  moeful  
 ##### 54574#       发表于 2021-3-5 13:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50518731&amp;ptid=98922" target="_blank">luoyianwu 发表于 2021-3-5 11:10</a>
@@ -10711,25 +7024,13 @@ jinzhang</blockquote>
 桃之助ェ……
 
 
-
-
-
-
-
 -----
 
 ####  赚钱娶老婆  
 ##### 54575#       发表于 2021-3-5 14:02
 
 
-
-
 为什么马尔科是手变翅膀啊？黑胡子那个是背后长翅膀，沙漠那个是手变爪子，这不是很实用吗？
-
-
-
-
-
 
 
 -----
@@ -10738,14 +7039,7 @@ jinzhang</blockquote>
 ##### 54576#       发表于 2021-3-5 15:06
 
 
-
-
 这话已经很明显了吧，KING的主要输出手段是剑，对手肯定是不知什么时候会被打下来的索隆，山治大概率不会去九侠那边，对手应该就是QUEEN。
-
-
-
-
-
 
 
 -----
@@ -10754,14 +7048,7 @@ jinzhang</blockquote>
 ##### 54577#       发表于 2021-3-6 00:03
 
 
-
-
 同样是动物系，不死鸟果实没个无限MHP，或体力蓝恢复大的，好意思吗？别的狱卒和杰克都耐打到爆了
-
-
-
-
-
 
 
 -----
@@ -10770,14 +7057,7 @@ jinzhang</blockquote>
 ##### 54578#       发表于 2021-3-6 00:32
 
 
-
-
 小马哥55开能力超强啊，就是打不死人。
-
-
-
-
-
 
 
 -----
@@ -10786,21 +7066,13 @@ jinzhang</blockquote>
 ##### 54579#       发表于 2021-3-6 08:24
 
 
-
-
 小马哥的强在于 能苟能控 输出感觉还是差一口气  我觉得作用更趋向于战术意义 
-
-
-
-
-
 
 
 -----
 
 ####  C男人  
 ##### 54580#       发表于 2021-3-6 09:49
-
 
 
  本帖最后由 C男人 于 2021-3-6 10:09 编辑 
@@ -10823,11 +7095,6 @@ jinzhang</blockquote>
 2021-3-6 09:50 上传
 
 
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/06/095042dckjpmmzqzuejk8j.jpg" referrerpolicy="no-referrer">
 
 
@@ -10838,29 +7105,13 @@ jinzhang</blockquote>
 2021-3-6 09:50 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  宅之猴晒阴  
 ##### 54581#       发表于 2021-3-6 09:54
 
 
-
-
 长子瞄上了小马哥，看来小马哥要暂时下线了，虽然不知道为什么长子的果实克制小马哥。
-
-
-
-
-
 
 
 -----
@@ -10869,23 +7120,16 @@ jinzhang</blockquote>
 ##### 54582#       发表于 2021-3-6 10:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50521629&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-3-5 15:06</a>
 
 这话已经很明显了吧，KING的主要输出手段是剑，对手肯定是不知什么时候会被打下来的索隆，山治大概率不会去 ...</blockquote>
 想多了，索隆肯定是和路飞他们群殴凯多大妈，不然flag和阎魔白拿了
 
 
-
-
-
-
-
 -----
 
 ####  evangelina  
 ##### 54583#       发表于 2021-3-7 16:21
-
 
 
  本帖最后由 evangelina 于 2021-3-7 16:23 编辑 
@@ -10901,9 +7145,6 @@ jinzhang</blockquote>
 2021-3-7 16:21 上传
 
 
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/07/162132b8ch2hpcen4etscz.jpg" referrerpolicy="no-referrer">
 
 
@@ -10912,9 +7153,6 @@ jinzhang</blockquote>
 下载附件
 
 2021-3-7 16:21 上传
-
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/07/162135ajc3m9cjp6zjj0o3.jpg" referrerpolicy="no-referrer">
@@ -10927,19 +7165,7 @@ jinzhang</blockquote>
 2021-3-7 16:21 上传
 
 
-
-
-
-
-
-
 动画的罗杰对老白。看预告下话好像也不错
-
-
-
-
-
-
 
 
 -----
@@ -10948,13 +7174,7 @@ jinzhang</blockquote>
 ##### 54584#       发表于 2021-3-10 00:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">出情报了，奎因被乔巴怪物形态扇了一巴掌......
-
-
-
-
-
 
 
 -----
@@ -10963,17 +7183,10 @@ jinzhang</blockquote>
 ##### 54585#       发表于 2021-3-10 08:46
 
 
-
-
 果然最后时刻解药研制出来了。
 
 
 那种紧张气氛渲染感觉已经免疫了，因为知道人肯定没事
-
-
-
-
-
 
 
 -----
@@ -10982,14 +7195,7 @@ jinzhang</blockquote>
 ##### 54586#       发表于 2021-3-10 10:39
 
 
-
-
 武士们那出现了谁？大蛇吗
-
-
-
-
-
 
 
 -----
@@ -10998,21 +7204,13 @@ jinzhang</blockquote>
 ##### 54587#       发表于 2021-3-10 11:47
 
 
-
-
 queen那么菜的吗
-
-
-
-
-
 
 
 -----
 
 ####  saturnus  
 ##### 54588#       发表于 2021-3-10 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50574397&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-3-10 11:47</a>
@@ -11022,25 +7220,13 @@ queen那么菜的吗</blockquote>
 当然可以吹马尔科强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  luoyianwu  
 ##### 54589#       发表于 2021-3-10 12:32
 
 
-
-
 不是阿银，那就是阿金了
-
-
-
-
-
 
 
 -----
@@ -11049,16 +7235,10 @@ queen那么菜的吗</blockquote>
 ##### 54590#       发表于 2021-3-10 14:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50574950&amp;ptid=98922" target="_blank">luoyianwu 发表于 2021-3-10 12:32</a>
 
 不是阿银，那就是阿金了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">都不是，那就是阿童木了！
-
-
-
-
-
 
 
 -----
@@ -11067,14 +7247,7 @@ queen那么菜的吗</blockquote>
 ##### 54591#       发表于 2021-3-10 17:10
 
 
-
-
 草，居然是光月御田
-
-
-
-
-
 
 
 -----
@@ -11083,14 +7256,7 @@ queen那么菜的吗</blockquote>
 ##### 54592#       发表于 2021-3-10 17:14
 
 
-
-
 喷了，尾田你好样的
-
-
-
-
-
 
 
 -----
@@ -11099,14 +7265,7 @@ queen那么菜的吗</blockquote>
 ##### 54593#       发表于 2021-3-10 17:15
 
 
-
-
 凯多药丸
-
-
-
-
-
 
 
 -----
@@ -11115,14 +7274,7 @@ queen那么菜的吗</blockquote>
 ##### 54594#       发表于 2021-3-10 17:20
 
 
-
-
 什么鬼，这货和上话的黑影有半点相似之处吗
-
-
-
-
-
 
 
 -----
@@ -11131,14 +7283,7 @@ queen那么菜的吗</blockquote>
 ##### 54595#       发表于 2021-3-10 17:20
 
 
-
-
 意思是关东煮这角色塑造还有翻盘机会？
-
-
-
-
-
 
 
 -----
@@ -11147,14 +7292,7 @@ queen那么菜的吗</blockquote>
 ##### 54596#       发表于 2021-3-10 17:24
 
 
-
-
 被新情报惊到了，然而下周休刊
-
-
-
-
-
 
 
 -----
@@ -11163,16 +7301,9 @@ queen那么菜的吗</blockquote>
 ##### 54597#       发表于 2021-3-10 17:30
 
 
-
-
 惊了
 
 诈尸？穿越？变身？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11181,14 +7312,7 @@ queen那么菜的吗</blockquote>
 ##### 54598#       发表于 2021-3-10 17:31
 
 
-
-
 假的吧，真堂堂复活还不继续吹水。。
-
-
-
-
-
 
 
 -----
@@ -11197,14 +7321,7 @@ queen那么菜的吗</blockquote>
 ##### 54599#       发表于 2021-3-10 17:31
 
 
-
-
 狐狸变的吧
-
-
-
-
-
 
 
 -----
@@ -11213,14 +7330,7 @@ queen那么菜的吗</blockquote>
 ##### 54600#       发表于 2021-3-10 17:33
 
 
-
-
 假的，20年过去了样貌一点变化都没有
-
-
-
-
-
 
 
 -----
@@ -11229,13 +7339,7 @@ queen那么菜的吗</blockquote>
 ##### 54601#       发表于 2021-3-10 17:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">不要再御田了
-
-
-
-
-
 
 
 -----
@@ -11244,13 +7348,7 @@ queen那么菜的吗</blockquote>
 ##### 54602#       发表于 2021-3-10 17:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">这就很淦。
-
-
-
-
-
 
 
 -----
@@ -11259,13 +7357,7 @@ queen那么菜的吗</blockquote>
 ##### 54603#       发表于 2021-3-10 17:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">御田传
-
-
-
-
-
 
 
 -----
@@ -11274,16 +7366,9 @@ queen那么菜的吗</blockquote>
 ##### 54604#       发表于 2021-3-10 17:45
 
 
-
-
 再煮一锅
 
 好，再煮一锅
-
-
-
-
-
 
 
 -----
@@ -11292,14 +7377,7 @@ queen那么菜的吗</blockquote>
 ##### 54605#       发表于 2021-3-10 17:46
 
 
-
-
 现在都流行秽土转生么。不过如果能把之前那些御田的傻逼行为反转了也不错
-
-
-
-
-
 
 
 -----
@@ -11308,14 +7386,7 @@ queen那么菜的吗</blockquote>
 ##### 54606#       发表于 2021-3-10 17:48
 
 
-
-
 这是跟藤本树学了几招，只要搞超展开制造话题就可以了
-
-
-
-
-
 
 
 -----
@@ -11324,14 +7395,7 @@ queen那么菜的吗</blockquote>
 ##### 54607#       发表于 2021-3-10 17:50
 
 
-
-
 假的，要不就狐狸变，要不就勘十郎诈尸画的？
-
-
-
-
-
 
 
 -----
@@ -11340,14 +7404,7 @@ queen那么菜的吗</blockquote>
 ##### 54608#       发表于 2021-3-10 17:52
 
 
-
-
 肯定是假的
-
-
-
-
-
 
 
 -----
@@ -11356,21 +7413,13 @@ queen那么菜的吗</blockquote>
 ##### 54609#       发表于 2021-3-10 17:59
 
 
-
-
 尾田神伏笔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 54610#       发表于 2021-3-10 18:07
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">如果是真的话
@@ -11380,25 +7429,13 @@ queen那么菜的吗</blockquote>
 如果真的没死至少白胡子不报仇说的过去点了
 
 
-
-
-
-
-
 -----
 
 ####  Tomorrow_D  
 ##### 54611#       发表于 2021-3-10 18:08
 
 
-
-
 一打开微博直接懵了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11409,23 +7446,15 @@ queen那么菜的吗</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  天使的日曜日  
 ##### 54613#       发表于 2021-3-10 18:26
 
 
-
-
 不管真假这个发展都很迷惑
 
 我开始相信罗杰其实没有死之说了，果然海贼不会死人<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11434,14 +7463,7 @@ queen那么菜的吗</blockquote>
 ##### 54614#       发表于 2021-3-10 18:38
 
 
-
-
 感觉是假的，或者类似火影四代的暂时出场，不然之前什么复国的悲愿，一直以来建立在御田死之上的渲染不就全部木大了吗
-
-
-
-
-
 
 
 -----
@@ -11450,16 +7472,9 @@ queen那么菜的吗</blockquote>
 ##### 54615#       发表于 2021-3-10 18:57
 
 
-
-
 凯多！快来看，是你的御田哥哥
 
  -- 傲娇地来自 Stage1未知客户端
-
-
-
-
-
 
 
 -----
@@ -11468,14 +7483,7 @@ queen那么菜的吗</blockquote>
 ##### 54616#       发表于 2021-3-10 19:24
 
 
-
-
 哈哈哈哈估计是wt圆坑，说羽田是穿越到未来看到朋友们这么惨，所以选择不抵抗，真是个爱民如子的圣人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11484,14 +7492,7 @@ queen那么菜的吗</blockquote>
 ##### 54617#       发表于 2021-3-10 19:39
 
 
-
-
 尾田来这一手，如果圆好了还能扭转和之国和御田之前糟糕剧情，如果圆不好彻底就不行了
-
-
-
-
-
 
 
 -----
@@ -11500,14 +7501,7 @@ queen那么菜的吗</blockquote>
 ##### 54618#       发表于 2021-3-10 19:45
 
 
-
-
 百分之九十九是牛鬼丸变得<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11516,14 +7510,7 @@ queen那么菜的吗</blockquote>
 ##### 54619#       发表于 2021-3-10 19:53
 
 
-
-
 笑出声，御田哥哥霸气登场，五皇该退位专心打辅助了
-
-
-
-
-
 
 
 -----
@@ -11532,14 +7519,7 @@ queen那么菜的吗</blockquote>
 ##### 54620#       发表于 2021-3-10 21:12
 
 
-
-
 吐了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11548,14 +7528,7 @@ queen那么菜的吗</blockquote>
 ##### 54621#       发表于 2021-3-10 21:15
 
 
-
-
 哈哈哈，凯多还不速速跪下投降
-
-
-
-
-
 
 
 -----
@@ -11564,22 +7537,13 @@ queen那么菜的吗</blockquote>
 ##### 54622#       发表于 2021-3-10 21:33
 
 
-
-
 尾田真有你的
-
-
-
-
-
 
 
 -----
 
 ####  tyauto  
 ##### 54623#       发表于 2021-3-10 21:53
-
-
 
 
 难怪凯多没被海军杀掉，原来拿去当实验品了
@@ -11594,24 +7558,13 @@ queen那么菜的吗</blockquote>
 政府要贝加庞克交出果实，贝以都是失败品为由拒绝。于是保留至今直到路飞引爆此事。不过也幸好是失败品，CP0安心了。
 
 
-
-
-
-
-
 -----
 
 ####  拉萨乌姆  
 ##### 54624#       发表于 2021-3-10 22:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">搞半天就一小白鼠嘛……
-
-
-
-
-
 
 
 -----
@@ -11620,13 +7573,7 @@ queen那么菜的吗</blockquote>
 ##### 54625#       发表于 2021-3-10 23:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11635,14 +7582,7 @@ queen那么菜的吗</blockquote>
 ##### 54626#       发表于 2021-3-11 00:24
 
 
-
-
 就算是假的也够恶心了，WT真觉得读者和书里的人一样喜欢这角色？？？
-
-
-
-
-
 
 
 -----
@@ -11651,14 +7591,7 @@ queen那么菜的吗</blockquote>
 ##### 54627#       发表于 2021-3-11 00:51
 
 
-
-
 微博海粉也开始巨人粉化“编同人”了。
-
-
-
-
-
 
 
 -----
@@ -11667,14 +7600,7 @@ queen那么菜的吗</blockquote>
 ##### 54628#       发表于 2021-3-11 02:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的也好假的也罢，反正已经完成御田堂堂登场了
-
-
-
-
-
-
 
 
 -----
@@ -11683,14 +7609,7 @@ queen那么菜的吗</blockquote>
 ##### 54629#       发表于 2021-3-11 04:44
 
 
-
-
 应该不是真货，真货也太傻逼了
-
-
-
-
-
 
 
 -----
@@ -11699,13 +7618,7 @@ queen那么菜的吗</blockquote>
 ##### 54630#       发表于 2021-3-11 06:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">one piece 草帽小子篇完结,御田篇连载开始
-
-
-
-
-
 
 
 -----
@@ -11714,21 +7627,13 @@ queen那么菜的吗</blockquote>
 ##### 54631#       发表于 2021-3-11 07:31
 
 
-
-
 御田篇刚开始时我也想过御田没死的可能，但是回忆部分之后我只想请他一边凉快去啊……
-
-
-
-
-
 
 
 -----
 
 ####  仟音一心  
 ##### 54632#       发表于 2021-3-11 09:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50581605&amp;ptid=98922" target="_blank">tyauto 发表于 2021-3-10 21:53</a>
@@ -11739,25 +7644,13 @@ queen那么菜的吗</blockquote>
 桃之助吃的就是，所以你也是龙
 
 
-
-
-
-
-
 -----
 
 ####  抽烟的猴  
 ##### 54633#       发表于 2021-3-11 09:51
 
 
-
-
 不管真假都很傻的展开
-
-
-
-
-
 
 
 -----
@@ -11766,14 +7659,7 @@ queen那么菜的吗</blockquote>
 ##### 54634#       发表于 2021-3-11 10:11
 
 
-
-
 艾斯的棺材板压不住了
-
-
-
-
-
 
 
 -----
@@ -11782,15 +7668,9 @@ queen那么菜的吗</blockquote>
 ##### 54635#       发表于 2021-3-11 10:15
 
 
-
  本帖最后由 谁说法海不懂爱 于 2021-3-11 10:27 编辑 
 
 贴吧猜的御田临时穿越过来，才回去做出zz操作的可能性不小。这样显得更zz，而且宿命论。不如op真的就是一本剧透漫画书。不过要是本人，那肯定是要再吹一波御田传的。情报里借角色口说怪不得世界惧怕和之国，再来一笔也不奇怪。倒是凯多的人质王可以有新的释义了
-
-
-
-
-
 
 
 -----
@@ -11799,16 +7679,9 @@ queen那么菜的吗</blockquote>
 ##### 54636#       发表于 2021-3-11 10:52
 
 
-
-
 御田多半是假冒的
 
 本话标题是个双关，一方面指被误认为狸猫的乔巴，一方面指假御田（狸猫变成人的样子骗人）
-
-
-
-
-
 
 
 -----
@@ -11817,14 +7690,7 @@ queen那么菜的吗</blockquote>
 ##### 54637#       发表于 2021-3-11 11:03
 
 
-
-
 贴吧里有人猜是黑胡子那个会变身的手下。真这么玩这场面就更乱了。
-
-
-
-
-
 
 
 -----
@@ -11833,14 +7699,7 @@ queen那么菜的吗</blockquote>
 ##### 54638#       发表于 2021-3-11 11:22
 
 
-
-
 玉田儿道，糖糖连载
-
-
-
-
-
 
 
 -----
@@ -11849,14 +7708,7 @@ queen那么菜的吗</blockquote>
 ##### 54639#       发表于 2021-3-11 20:21
 
 
-
-
 这样看来桃之助吃的果实是伏笔，而且这个果实应该不是完全的失败品
-
-
-
-
-
 
 
 -----
@@ -11865,14 +7717,7 @@ queen那么菜的吗</blockquote>
 ##### 54640#       发表于 2021-3-11 20:28
 
 
-
-
 “病毒绝不可被用作武器！使用的人最后一定会无法控制它的！！” 
-
-
-
-
-
 
 
 -----
@@ -11881,17 +7726,10 @@ queen那么菜的吗</blockquote>
 ##### 54641#       发表于 2021-3-12 00:29
 
 
-
-
 卧槽，虎扑有个猜测我觉得靠谱
 
 
 这就是真御田，不过是从过去穿越过来的，打赢这场之后又回去了，所以咬定了要等20年，之前妥协，装疯卖傻只为拖20年，直到忍无可忍才去莽了一波，这个世界线的御田还不知道20年前的自己已经死了，他会打赢这场战争，然后回去赴死。
-
-
-
-
-
 
 
 -----
@@ -11900,20 +7738,13 @@ queen那么菜的吗</blockquote>
 ##### 54642#       发表于 2021-3-12 00:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">任何可能性都不会改变 御田正是那个把和之国拖入地狱的人的事实
-
-
-
-
-
 
 
 -----
 
 ####  谁说法海不懂爱  
 ##### 54643#       发表于 2021-3-12 01:01
-
 
 
 <blockquote>584520184 发表于 2021-3-12 00:29
@@ -11924,32 +7755,19 @@ queen那么菜的吗</blockquote>
 问题是知道有这么个祸害，按照正常逻辑怎么都不是等人发育起来才动手，这跟前面说的御田看了大秘宝发现是海贼王漫画版所以搞这么出戏折腾大伙差不多。
 
 
-
-
-
-
-
 -----
 
 ####  ahyyk  
 ##### 54644#       发表于 2021-3-12 09:24
 
 
-
-
 一场大战，然后穿越回去慷慨赴死。立意是屌爆了的，但具体表现上，御田还是sb
-
-
-
-
-
 
 
 -----
 
 ####  武男  
 ##### 54645#       发表于 2021-3-12 09:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50595036&amp;ptid=98922" target="_blank">584520184 发表于 2021-3-12 00:29</a>
@@ -11961,16 +7779,10 @@ queen那么菜的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">那不是更有毛病嘛？
 
 
-
-
-
-
-
 -----
 
 ####  klzxs  
 ##### 54646#       发表于 2021-3-12 09:31
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">穿越回去赴死 隐忍20年 在我看来是最糟的可能性了
@@ -11983,25 +7795,13 @@ queen那么菜的吗</blockquote>
 这样至少就只是祸害和之国了
 
 
-
-
-
-
-
 -----
 
 ####  汤圆です  
 ##### 54647#       发表于 2021-3-12 10:10
 
 
-
-
 因为御田知道20年后仇人一定会嗝屁，所以就让仇人随便浪20年了，这tm更傻批了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12010,14 +7810,7 @@ queen那么菜的吗</blockquote>
 ##### 54648#       发表于 2021-3-12 10:29
 
 
-
-
 这和知道他最多活100岁，只要苟就能赢有什么区别？
-
-
-
-
-
 
 
 -----
@@ -12026,16 +7819,10 @@ queen那么菜的吗</blockquote>
 ##### 54649#       发表于 2021-3-12 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597737&amp;ptid=98922" target="_blank">acejoe 发表于 2021-3-12 10:29</a>
 
 这和知道他最多活100岁，只要苟就能赢有什么区别？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这是大和剑道的胜利
-
-
-
-
-
 
 
 -----
@@ -12044,21 +7831,13 @@ queen那么菜的吗</blockquote>
 ##### 54650#       发表于 2021-3-12 11:47
 
 
-
-
 港真，御田还活着的时候，和之国还没有那么糟，只不过被老阴逼凯多耍了
-
-
-
-
-
 
 
 -----
 
 ####  巴尔干炮  
 ##### 54651#       发表于 2021-3-12 12:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50595036&amp;ptid=98922" target="_blank">584520184 发表于 2021-3-12 00:29</a>
@@ -12077,34 +7856,20 @@ queen那么菜的吗</blockquote>
 3 如果能随意往返，为什么之前傻跳了2年舞而不是先跳到2年后看看？
 
 
-
-
-
-
-
 -----
 
 ####  lrgb  
 ##### 54652#       发表于 2021-3-12 12:17
 
 
-
-
 问题是这个作品有个重要价值观就是挑战权威打破宿命啊。现在忽然改成他看到命运了所以躺平，那尾田之前不是等于在玩蛇？
 难道是他还看到了当时奋起反抗的平行世界的悲惨结局？
-
-
-
-
-
 
 
 -----
 
 ####  Freemasons  
 ##### 54653#       发表于 2021-3-12 12:34
-
-
 
 
 转自虎扑，感觉非常合理：
@@ -12116,27 +7881,15 @@ queen那么菜的吗</blockquote>
 时夫人—传送九侠一部分人—独自策马念诗赴死（故意的）—果实能力失效—锦门卫等人留在未来—与路飞相遇—草帽和之国线正式开始
 
 
-
-
-
-
-
 -----
 
 ####  Freemasons  
 ##### 54654#       发表于 2021-3-12 13:06
 
 
-
-
 还有人猜测，御田和罗杰一行在拉福德鲁看到的也是预言，乔伊波伊做了什么伟大又好笑的事把他们逗乐了，也意识到他们去早了。
 
 个人猜测，他们看到的乔伊波伊应该是名字里有D，带着飞碟状帽子。首先最接近的应该是罗杰，但是罗杰年龄对不上，而且当时已经把帽子给红发了，而红发的名字里没有D，所以也被排除，但红发极有可能是发现乔伊波伊的人。到两年前，有三个人最可能是乔伊波伊，即路飞、艾斯和黑胡子，特别是艾斯和路飞兄弟都带着一顶帽子，所以知情的人也在猜到底是谁。顶上战争后，艾斯战死，黑胡子有些特征明显不是乔伊波伊，所以乔伊波伊最有可能是路飞，所以白胡子残团才会在顶上那么卖力保路飞。
-
-
-
-
-
 
 
 -----
@@ -12145,16 +7898,10 @@ queen那么菜的吗</blockquote>
 ##### 54655#       发表于 2021-3-12 13:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50592425&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-03-11 20:21:53</a>
 这样看来桃之助吃的果实是伏笔，而且这个果实应该不是完全的失败品</blockquote>快进到大决战桃之助觉醒真正的力量和凯多二龙戏珠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -12163,16 +7910,10 @@ queen那么菜的吗</blockquote>
 ##### 54656#       发表于 2021-3-12 15:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599191&amp;ptid=98922" target="_blank">lrgb 发表于 2021-3-12 12:17</a>
 
 问题是这个作品有个重要价值观就是挑战权威打破宿命啊。现在忽然改成他看到命运了所以躺平，那尾田之前不是 ...</blockquote>
 这种主旨肯定是在路飞这帮人身上体现啦
-
-
-
-
-
 
 
 -----
@@ -12181,17 +7922,10 @@ queen那么菜的吗</blockquote>
 ##### 54657#       发表于 2021-3-12 18:09
 
 
-
-
 如果能时间穿越再回去，当初跳舞之前不能先看看未来发生什么？
 
 
 御田这人就是补丁打越多越傻。
-
-
-
-
-
 
 
 -----
@@ -12200,15 +7934,9 @@ queen那么菜的吗</blockquote>
 ##### 54658#       发表于 2021-3-12 18:28
 
 
-
  本帖最后由 banglian 于 2021-3-13 02:49 编辑 
 
 当初把凯多的计谋搞的太low，又把御田战力设的过强，于是被套路导致两个人都形象下降<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12217,15 +7945,9 @@ queen那么菜的吗</blockquote>
 ##### 54659#       发表于 2021-3-12 22:35
 
 
-
 <blockquote>Freemasons 发表于 2021-3-12 13:06
 还有人猜测，御田和罗杰一行在拉福德鲁看到的也是预言，乔伊波伊做了什么伟大又好笑的事把他们逗乐了，也意 ...</blockquote>
 路飞后来穿越回800年前了，他就是那初代草帽，这样如何
-
-
-
-
-
 
 
 -----
@@ -12234,15 +7956,9 @@ queen那么菜的吗</blockquote>
 ##### 54660#       发表于 2021-3-12 22:51
 
 
-
 <blockquote>banglian 发表于 2021-3-12 18:28
 当初把凯多的计谋搞的太low，又把御田战力设的过强，于是被套路导致两个人都形象下降本来御田如果是 ...</blockquote>
 御田这块，最简单的，只要设定他打不过凯多就行了，但他又得天下无敌
-
-
-
-
-
 
 
 -----
@@ -12251,22 +7967,15 @@ queen那么菜的吗</blockquote>
 ##### 54661#       发表于 2021-3-12 23:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605769&amp;ptid=98922" target="_blank">DGIL 发表于 2021-3-12 22:51</a>
 御田这块，最简单的，只要设定他打不过凯多就行了，但他又得天下无敌</blockquote>
 大和男儿为什么不是天下无敌？
-
-
-
-
-
 
 
 -----
 
 ####  evangelina  
 ##### 54662#       发表于 2021-3-12 23:36
-
 
 
  本帖最后由 evangelina 于 2021-3-12 23:40 编辑 
@@ -12277,17 +7986,10 @@ queen那么菜的吗</blockquote>
 这样来解释伊姆对草帽的执着？因为就是路飞本人，完成预言成为救世主之后回到过去留下预言？可这不是太宿命论吗.......OP变成一个结局早就决定好，还是被主角自己决定好的故事
 
 
-
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 54663#       发表于 2021-3-12 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598755&amp;ptid=98922" target="_blank">584520184 发表于 2021-3-12 11:47</a>
@@ -12296,16 +7998,10 @@ queen那么菜的吗</blockquote>
 两个海贼团都在和之国皇城PK了，有关御田的剧情，越说你只会觉得越2
 
 
-
-
-
-
-
 -----
 
 ####  武男  
 ##### 54664#       发表于 2021-3-12 23:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605769&amp;ptid=98922" target="_blank">DGIL 发表于 2021-3-12 22:51</a>
@@ -12314,25 +8010,13 @@ queen那么菜的吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">然后又带着过去的人气角色去垫底，现在我们知道了凯多还当了海军的小白鼠。。套娃下来，大家都LOW了。
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 54665#       发表于 2021-3-13 00:55
 
 
-
-
 这个明显应该是长大后跟御田长的一模一样的桃之助吧，从剧情往后推进的角度和之前几次桃之助无助的情感推进都应该是这么个展开，不过我也想不明白这是怎么个设定，而且这个展开有点尬，但是和之国的剧情一直缺了一块，如果是这么补上的话可能会有点意思
-
-
-
-
-
 
 
 -----
@@ -12341,14 +8025,7 @@ queen那么菜的吗</blockquote>
 ##### 54666#       发表于 2021-3-13 01:54
 
 
-
-
 是桃之助也很简单啊，反正有天降老妈这个往前未来单向跳的工具人，再整个往过去跳的工具人不就结了
-
-
-
-
-
 
 
 -----
@@ -12357,14 +8034,7 @@ queen那么菜的吗</blockquote>
 ##### 54667#       发表于 2021-3-13 06:33
 
 
-
-
 我觉得从“很久不见”，来说应该是刚到one piece的御田，one piece 很可能就有能送人去看看梦想如何实现的东西（御田的梦想是开国，所以到了这个时间），罗杰也通过op看到了自己的梦想被路飞实现，所以又哭又笑
-
-
-
-
-
 
 
 -----
@@ -12373,23 +8043,16 @@ queen那么菜的吗</blockquote>
 ##### 54668#       发表于 2021-3-13 08:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605861&amp;ptid=98922" target="_blank">传说中的小鱼 发表于 2021-3-12 23:02</a>
 
 大和男儿为什么不是天下无敌？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我竟无言以对！
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 54669#       发表于 2021-3-13 08:12
-
 
 
  本帖最后由 DGIL 于 2021-3-13 08:27 编辑 
@@ -12412,17 +8075,10 @@ queen那么菜的吗</blockquote>
 这样一来没法解释的，就只有剧场版中，罗杰说，一定是我儿子拿到OP这个问题了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 54670#       发表于 2021-3-13 08:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606239&amp;ptid=98922" target="_blank">武男 发表于 2021-3-12 23:44</a>
@@ -12437,16 +8093,10 @@ queen那么菜的吗</blockquote>
 这一波是大家一起LOW，谁也逃不掉
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 54671#       发表于 2021-3-13 08:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607626&amp;ptid=98922" target="_blank">24k纯帅 发表于 2021-3-13 06:33</a>
@@ -12463,25 +8113,13 @@ queen那么菜的吗</blockquote>
 现在开国也会被世界政府吃掉。
 
 
-
-
-
-
-
 -----
 
 ####  icewolf01  
 ##### 54672#       发表于 2021-3-13 08:24
 
 
-
-
 怎么说呢……虽然现在的OP已经不比当年，但乔巴变身抽奎因之后下面一排人捂嘴那段太特么OP味了OTL
-
-
-
-
-
 
 
 -----
@@ -12490,16 +8128,10 @@ queen那么菜的吗</blockquote>
 ##### 54673#       发表于 2021-3-13 08:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607905&amp;ptid=98922" target="_blank">icewolf01 发表于 2021-3-13 08:24</a>
 
 怎么说呢……虽然现在的OP已经不比当年，但乔巴变身抽奎因之后下面一排人捂嘴那段太特么OP味了OTL ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">我也觉得，可算是近期的惊喜了
-
-
-
-
-
 
 
 -----
@@ -12508,14 +8140,7 @@ queen那么菜的吗</blockquote>
 ##### 54674#       发表于 2021-3-13 09:03
 
 
-
-
 说起来大蛇就被一刀砍死了？它那个果实是真恶魔果实吧，真不是玩“砍掉一个，还有八个”？让御田被这么个下三滥角色坑真不觉得跌份？
-
-
-
-
-
 
 
 -----
@@ -12524,16 +8149,10 @@ queen那么菜的吗</blockquote>
 ##### 54675#       发表于 2021-3-13 10:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606158&amp;ptid=98922" target="_blank">evangelina 发表于 2021-3-12 23:36</a>
 
 这样来解释伊姆对草帽的执着？因为就是路飞本人，完成预言成为救世主之后回到过去留下预言？可这不是太宿 ...</blockquote>
 我信你~
-
-
-
-
-
 
 
 -----
@@ -12542,15 +8161,9 @@ queen那么菜的吗</blockquote>
 ##### 54676#       发表于 2021-3-13 10:56
 
 
-
 <blockquote>阿虚家的三味 发表于 2021-3-13 01:54
 是桃之助也很简单啊，反正有天降老妈这个往前未来单向跳的工具人，再整个往过去跳的工具人不就结了 ...</blockquote>
 是这样设定比较简单但是这样就很无聊…所以说有些尬，希望能有意思一些吧
-
-
-
-
-
 
 
 -----
@@ -12559,23 +8172,16 @@ queen那么菜的吗</blockquote>
 ##### 54677#       发表于 2021-3-13 11:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607626&amp;ptid=98922" target="_blank">24k纯帅 发表于 2021-03-13 06:33:54</a>
 我觉得从“很久不见”，来说应该是刚到one piece的御田，one piece 很可能就有能送人去看看梦想如何实现的 ...</blockquote>你这个假设其实看佩刀就知道了，如果是拉夫德鲁的御田佩刀肯定是阎魔和天羽羽斩
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 54678#       发表于 2021-3-13 11:29
-
 
 
 <blockquote>1041275274 发表于 2021-3-13 11:01
@@ -12586,27 +8192,15 @@ queen那么菜的吗</blockquote>
 其实不用看这些，这话突然的做实了龙人造果实的设定，然后是桃之助的压抑，镜头一转“御田”登场，从写作的角度上说这肯定是桃之助了，后边就是有凯多果实能力的“御田”打凯多这种桥段，只是桃之助怎么出现的这个设定还不好说
 
 
-
-
-
-
-
 -----
 
 ####  亚尔迪8424  
 ##### 54679#       发表于 2021-3-13 15:37
 
 
-
-
 乔巴说了句和现时疫情很合的话。
 
 尾田有点意思啊
-
-
-
-
-
 
 
 -----
@@ -12615,22 +8209,13 @@ queen那么菜的吗</blockquote>
 ##### 54680#       发表于 2021-3-13 18:39
 
 
-
-
 话说我对凯多的果实解释还是很失望，什么鱼鱼果实太拉跨了
-
-
-
-
-
 
 
 -----
 
 ####  tyauto  
 ##### 54681#       发表于 2021-3-13 21:13
-
-
 
 
 现在桃之助的作用除了拉仇恨难道就是帮忙放福利？？？<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
@@ -12646,30 +8231,13 @@ queen那么菜的吗</blockquote>
 2021-3-13 21:12 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  赚钱娶老婆  
 ##### 54682#       发表于 2021-3-13 22:09
 
 
-
-
 是要有正经果实才能提取这个果实的因子吗？无论吃了没？
-
-
-
-
-
 
 
 -----
@@ -12678,15 +8246,9 @@ queen那么菜的吗</blockquote>
 ##### 54683#       发表于 2021-3-13 23:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">说起来以前没在意过 桃之助能变龙是不是知道的人没那么多
 
 虽然也没藏但也不会特别去说
-
-
-
-
-
 
 
 -----
@@ -12695,15 +8257,8 @@ queen那么菜的吗</blockquote>
 ##### 54684#       发表于 2021-3-14 01:27
 
 
-
-
 从“你们看上去老了不少”这句话看，就是玉田从过去穿来的吧
 那么为九侠疗伤的是谁？首先玉田大概是没有治疗能力的，看起来又像是刚进门的样子。也可能是治完人再开门见光，不过玉田**咧咧的性格会做这种偷偷摸摸的事吗
-
-
-
-
-
 
 
 -----
@@ -12712,19 +8267,14 @@ queen那么菜的吗</blockquote>
 ##### 54685#       发表于 2021-3-14 09:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50606158&amp;ptid=98922" target="_blank">evangelina 发表于 2021-3-12 23:36</a>
 这样来解释伊姆对草帽的执着？因为就是路飞本人，完成预言成为救世主之后回到过去留下预言？可这不是太宿 ...</blockquote>
 血统论之后是宿命论，也不奇怪了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -12734,12 +8284,7 @@ queen那么菜的吗</blockquote>
 | 无所不黑| + 1|本以为路飞不是罗杰儿子是特意反血统唉.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -12748,23 +8293,15 @@ queen那么菜的吗</blockquote>
 ##### 54686#       发表于 2021-3-14 12:22
 
 
-
-
 尼玛。和之国到底什么时候能结束，我看到刚上和之国就看不下去了，桃之助讨厌得要命，一群忍者就是感觉又菜又丑<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 漫画连载画面也变得巨乱，看不懂位置看不懂背景，现在画面混乱的要死每个格子都画得满满的一点详略差异都没有，复习下新世界之前的画面，就算是一直以来本身战斗分镜和战斗设计就一般般，跟现在比起来也是天壤之别
-
-
-
-
-
 
 
 -----
 
 ####  迪奧  
 ##### 54687#       发表于 2021-3-15 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50595036&amp;ptid=98922" target="_blank">584520184 发表于 2021-3-12 00:29</a>
@@ -12776,17 +8313,10 @@ queen那么菜的吗</blockquote>
 tenet
 
 
-
-
-
-
-
 -----
 
 ####  魏柔  
 ##### 54688#       发表于 2021-3-15 15:15
-
-
 
 
 赶紧结束和之国这又臭又长的副本吧
@@ -12795,27 +8325,15 @@ tenet
 御田父子恶心人程度快赶上红鸟了
 
 
-
-
-
-
-
 -----
 
 ####  导游  
 ##### 54689#       发表于 2021-3-15 19:33
 
 
-
-
 这个御田会不会是九尾狐果实 变的？
 
 黑胡子  参战？
-
-
-
-
-
 
 
 -----
@@ -12824,14 +8342,7 @@ tenet
 ##### 54690#       发表于 2021-3-15 19:58
 
 
-
-
 离结束还要很久的感觉，凯多团的中boss还没有任何一个变白眼
-
-
-
-
-
 
 
 -----
@@ -12840,18 +8351,10 @@ tenet
 ##### 54691#       发表于 2021-3-15 21:12
 
 
-
-
 御田单挑凯多团赢了单挑大妈团赢了最后单挑黑胡子团由于太累了惜败，五皇补刀打晕黑胡子加冕和之国fmvp，成为公认历史第二人（草帽小弟们则坚称五皇理念更先进，已经超越罗杰成为历史第一人）
 
 
 和之国最终幕：宴会过后，五皇和大和披麻戴孝在御前墓前长跪不起：“谢谢你，御田”
-
-
-
-
-
-
 
 
 -----
@@ -12860,14 +8363,7 @@ tenet
 ##### 54692#       发表于 2021-3-15 21:21
 
 
-
-
 又翻页bug了，刷半天没反应
-
-
-
-
-
 
 
 -----
@@ -12876,14 +8372,7 @@ tenet
 ##### 54693#       发表于 2021-3-15 23:24
 
 
-
-
 起码大蛇的部队首领已经被干掉了，下话如果是真御田怕又是先来几话回忆篇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12892,22 +8381,13 @@ tenet
 ##### 54694#       发表于 2021-3-23 20:32
 
 
-
-
 看情报更新,勘十郎跟大蛇都没死是不是该说意料之内来自: iPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  先手必胜  
 ##### 54695#       发表于 2021-3-23 20:33
-
-
 
 
 赤霄武士们迎接御田 御田表示自己是因为光月时的力量而来的
@@ -12937,25 +8417,13 @@ tenet
 下周不休刊
 
 
-
-
-
-
-
 -----
 
 ####  luoyianwu  
 ##### 54696#       发表于 2021-3-23 20:56
 
 
-
-
 路飞：拉一块a了
-
-
-
-
-
 
 
 -----
@@ -12964,21 +8432,13 @@ tenet
 ##### 54697#       发表于 2021-3-23 20:58
 
 
-
-
 话说大蛇现在算哪方势力，凯多方已经不用他了，再努力也当不回将军了，主角方本来就容不了他，他炸个九侠是打的什么算盘，
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 54698#       发表于 2021-3-23 21:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50713094&amp;ptid=98922" target="_blank">24k纯帅 发表于 2021-3-23 20:58</a>
@@ -12991,17 +8451,10 @@ tenet
 当个以往篇章最后的炸弹
 
 
-
-
-
-
-
 -----
 
 ####  先手必胜  
 ##### 54699#       发表于 2021-3-24 03:13
-
-
 
 
 估计就是后面真御田出场，九侠以为是假的一起攻击，结果砍出血了大家一起拥抱落泪
@@ -13009,16 +8462,10 @@ tenet
 只有这样编才能为这一段不知所谓的情节赋予意义
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 54700#       发表于 2021-3-24 08:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50715359&amp;ptid=98922" target="_blank">先手必胜 发表于 2021-3-24 03:13</a>
@@ -13029,33 +8476,19 @@ tenet
 尾田现在就是很多无意义的内容，纯悬念，然后谜底平淡
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 54701#       发表于 2021-3-24 08:50
 
 
-
-
 黑碳家两个都是精神病患者搞鱼死网破可能还有些看头，双四皇战那边我已经没有兴趣了
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 54702#       发表于 2021-3-24 09:15
-
-
 
 
 我还记得蛋糕岛那时候
@@ -13068,25 +8501,13 @@ tenet
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">结果什么都没有 就普通打完了
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 54703#       发表于 2021-3-24 10:49
 
 
-
-
 这个御田的剧情设计可尼玛太拉了
-
-
-
-
-
 
 
 -----
@@ -13095,14 +8516,7 @@ tenet
 ##### 54704#       发表于 2021-3-24 10:52
 
 
-
-
 这个御田的包袱果其不然抖烂了
-
-
-
-
-
 
 
 -----
@@ -13111,14 +8525,7 @@ tenet
 ##### 54705#       发表于 2021-3-24 11:32
 
 
-
-
 尾田行不行啊，阿修罗挡个炸弹也能上标题了？谁不知道海贼炸弹炸不死人啊，九侠还有必要再写吗，分配主角快点打不行吗，鬼岛画了一年了，对位还没明确，一堆次要角色浪费篇幅躺了又起起了又躺搁这仰卧起坐呢，打了半天一个人都没下线合着打了个寂寞，就阿普被索隆砍那一下子爬起来整个人都在抖的又被德雷克咬了补刀，现在告诉我人还是活蹦乱跳的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13127,14 +8534,7 @@ tenet
 ##### 54706#       发表于 2021-3-24 16:14
 
 
-
-
 当年贝尔带着巨型炸弹飞到天上都没炸死<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13143,13 +8543,7 @@ tenet
 ##### 54707#       发表于 2021-3-24 17:28
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前半年放弃追连载准备攒多了一起看，现在一块看了单行本都不想再买了，太拉垮了
-
-
-
-
-
 
 
 -----
@@ -13158,14 +8552,7 @@ tenet
 ##### 54708#       发表于 2021-3-24 18:19
 
 
-
-
 尾田江郎才尽，海贼跌落神坛！
-
-
-
-
-
 
 
 -----
@@ -13174,14 +8561,7 @@ tenet
 ##### 54709#       发表于 2021-3-24 20:07
 
 
-
-
 我还以为尾田开窍了，九侠躺倒一笔带过着力刻画草帽团，只能说祝尾田身体健康吧
-
-
-
-
-
 
 
 -----
@@ -13190,14 +8570,7 @@ tenet
 ##### 54710#       发表于 2021-3-24 20:14
 
 
-
-
 这剧情太傻了，无语了现在WT在想啥
-
-
-
-
-
 
 
 -----
@@ -13206,16 +8579,9 @@ tenet
 ##### 54711#       发表于 2021-3-24 21:00
 
 
-
-
 这几年的故事走向，总让我脑补，尾田是不是被jump的新编辑们哄的自信过头了？
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13224,14 +8590,7 @@ tenet
 ##### 54712#       发表于 2021-3-24 21:15
 
 
-
-
 尾田真的江郎才尽了
-
-
-
-
-
 
 
 -----
@@ -13240,14 +8599,7 @@ tenet
 ##### 54713#       发表于 2021-3-24 21:29
 
 
-
-
 我就想看完结时wt口碑有多臭
-
-
-
-
-
 
 
 -----
@@ -13256,21 +8608,13 @@ tenet
 ##### 54714#       发表于 2021-3-24 21:31
 
 
-
-
 尾田从鱼人岛开始就不行了吧，然后鸟笼雷鸣八卦之类又把下限拉低了，不过偶尔也会有好看的时候
-
-
-
-
-
 
 
 -----
 
 ####  魏柔  
 ##### 54715#       发表于 2021-3-24 22:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50723952&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-3-24 21:31</a>
@@ -13282,25 +8626,13 @@ tenet
 其他都是什么垃圾
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 54716#       发表于 2021-3-24 23:40
 
 
-
-
 和之国在御田跳舞之前一点问题都没有吧？记忆都修正了？
-
-
-
-
-
 
 
 -----
@@ -13309,14 +8641,7 @@ tenet
 ##### 54717#       发表于 2021-3-25 00:02
 
 
-
-
 御田跳舞之前顶多只能算个不难看，难道真有人觉得很好看？
-
-
-
-
-
 
 
 -----
@@ -13325,13 +8650,7 @@ tenet
 ##### 54718#       发表于 2021-3-25 00:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">大名死前那一段剧情很不错 
-
-
-
-
-
 
 
 -----
@@ -13340,14 +8659,7 @@ tenet
 ##### 54719#       发表于 2021-3-25 00:44
 
 
-
-
 刻画的人物太多了，我理解尾田老师是想展现大海的广大，多塞一点不同的人物进来，但近几年实在有点主次不分了，应该让一大堆配角给一小撮主角们服务，而不是让几十个有名有姓的大家雨露均沾，设计一堆既不有趣也无关主线的情节，强行摊薄每个角色的出场空间，最后谁都没亮点。这几年看海贼王感觉好点子还是有的，但刻画出来的效果却又实在拉胯，真希望有谁能劝劝老师，别走火入魔了。
-
-
-
-
-
 
 
 -----
@@ -13356,14 +8668,7 @@ tenet
 ##### 54720#       发表于 2021-3-25 01:27
 
 
-
-
 海贼真是烂到家.赤霄九侠就是笑话.大蛇先不说，一群人里面起码有四五个三灾级别的强者，堪十郎都杀不死，还刻画在那里流泪.尾田脑子是不是不正常了.连自己杀没杀死人都不知道的九侠，靠这群人开国？群像剧乱成这样，真想给堪十郎丰满形象那么多种写法，无聊的反转真的是够无聊.也别说被鬼灭咒术抄，这质量我是真买不下单行本.和之国还不如世界会议好看
-
-
-
-
-
 
 
 -----
@@ -13372,14 +8677,7 @@ tenet
 ##### 54721#       发表于 2021-3-25 05:52
 
 
-
-
 两年后就是鱼人岛，px岛，德岛费的篇幅太多了，两年前就干七武海和世界政府了，两年后打个鱼人打个明哥还要一波三折软磨硬泡的，四皇战来得太突然太快
-
-
-
-
-
 
 
 -----
@@ -13388,15 +8686,9 @@ tenet
 ##### 54722#       发表于 2021-3-25 08:57
 
 
-
 <blockquote>绝赞販売中 发表于 2021-3-25 01:27
 海贼真是烂到家.赤霄九侠就是笑话.大蛇先不说，一群人里面起码有四五个三灾级别的强者，堪十郎都杀不死，还 ...</blockquote>
 不不不你这是乳世界会议了，海贼一直以来最好看的就是章节过渡时间的爆料，和之国现在烂成这样拿头和世界会议比
-
-
-
-
-
 
 
 -----
@@ -13405,15 +8697,9 @@ tenet
 ##### 54723#       发表于 2021-3-25 08:59
 
 
-
 <blockquote>klzxs 发表于 2021-3-25 00:29
 大名死前那一段剧情很不错</blockquote>
 康家死那里我以为和之国要超神了，真的
-
-
-
-
-
 
 
 -----
@@ -13422,23 +8708,15 @@ tenet
 ##### 54724#       发表于 2021-3-25 10:11
 
 
-
-
 假如能重画，和之国篇要怎么设计人物剧情才能不这么拉胯呢<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
 我先来献上一计：删掉桃之助好色小鬼的属性。
 身负家仇国恨、除了血统没什么能力的幼主如果想让现代读者服气，就该支愣起来。能力可以慢慢培养，但气势总得有；作为小孩子可以有软弱的时候，但决战的时候就别再大搞特搞好色小鬼了。
-
-
-
-
-
 
 
 -----
 
 ####  klzxs  
 ##### 54725#       发表于 2021-3-25 10:23
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">和之国的问题 一个是凯多 一个是御田
@@ -13448,25 +8726,13 @@ tenet
 其他问题都只是不值一提的小事
 
 
-
-
-
-
-
 -----
 
 ####  巴尔干炮  
 ##### 54726#       发表于 2021-3-25 10:29
 
 
-
-
 目前来说，2年后最好的篇章是世界会议，其次是象岛，然而这两个都是过渡篇，大篇章全拉稀。
-
-
-
-
-
 
 
 -----
@@ -13475,14 +8741,7 @@ tenet
 ##### 54727#       发表于 2021-3-25 10:54
 
 
-
-
 桃之助被凯多砍条胳膊就可以了
-
-
-
-
-
 
 
 -----
@@ -13491,14 +8750,7 @@ tenet
 ##### 54728#       发表于 2021-3-25 12:08
 
 
-
-
 把大和和桃之助合成一个人就行了
-
-
-
-
-
 
 
 -----
@@ -13507,16 +8759,10 @@ tenet
 ##### 54729#       发表于 2021-3-25 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50726945&amp;ptid=98922" target="_blank">angelooo 发表于 2021-3-25 08:57</a>
 
 不不不你这是乳世界会议了，海贼一直以来最好看的就是章节过渡时间的爆料，和之国现在烂成这样拿头和世界 ...</blockquote>
 最好看的就是章节过渡也就两年后才这样，两年后彻底堕落成噱头漫画和爆料漫画了
-
-
-
-
-
 
 
 -----
@@ -13525,13 +8771,7 @@ tenet
 ##### 54730#       发表于 2021-3-25 17:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/006.png" referrerpolicy="no-referrer">能不能出现像司法岛一样低开高走挽回口碑的结局呢
-
-
-
-
-
 
 
 -----
@@ -13540,21 +8780,13 @@ tenet
 ##### 54731#       发表于 2021-3-25 17:23
 
 
-
-
 两年后就一个五黄库里战设计了个有曲线的角色，别的真的胯的不行，尤其是这个乡土爱篇章真是杂乱无章又臭又长，说白了尾田就是想要表达我大和男儿人人皆有闪光点，哪个都舍不得丢，但实际效果适得其反，画了那么多人配角的魅力加起来还不如沙漠王国篇舍身取义的贝尔一人，不过尾田现在是跳跳唯一支柱，肯定是肆意妄为，读者就只能吃屎了。
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 54732#       发表于 2021-3-25 17:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50731360&amp;ptid=98922" target="_blank">穆 发表于 2021-3-25 17:10</a>
@@ -13567,25 +8799,13 @@ tenet
 更别说东一榔头西一榔头的各种人物，司法岛到决战的时候重头戏还是草帽团捉对厮杀，和之国现在对位都不明确还要浪费很多笔墨在各种人物身上，前一话豹五郎让部下斩了他的时候我看那哥们刀举了N个分镜，虽然我知道这是想从各个机位表现他的属下下不了手，他有人望之类，但真的一点也感动不起来（因为谁都知道他死不了），差点还给我整笑了
 
 
-
-
-
-
-
 -----
 
 ####  Freemasons  
 ##### 54733#       发表于 2021-3-25 18:35
 
 
-
-
 道理我都懂，假御田这段剧情到底图个啥？
-
-
-
-
-
 
 
 -----
@@ -13594,14 +8814,7 @@ tenet
 ##### 54734#       发表于 2021-3-25 19:19
 
 
-
-
 所以说鬼灭火还是有点道理的，至少无论正反派该发便当就发的果断，不搞这种死来活去的鬼剧情
-
-
-
-
-
 
 
 -----
@@ -13610,14 +8823,7 @@ tenet
 ##### 54735#       发表于 2021-3-25 19:20
 
 
-
-
 卡二算不算两年后的巅峰？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13626,15 +8832,9 @@ tenet
 ##### 54736#       发表于 2021-3-25 20:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732096&amp;ptid=98922" target="_blank">Freemasons 发表于 2021-3-25 18:35</a>
  道理我都懂，假御田这段剧情到底图个啥？</blockquote>
 消耗一个阿修罗童子
-
-
-
-
-
 
 
 -----
@@ -13643,14 +8843,7 @@ tenet
 ##### 54737#       发表于 2021-3-25 20:45
 
 
-
-
 凯多这么怕烫的人，竟然敢站在普罗米修斯旁边
-
-
-
-
-
 
 
 -----
@@ -13659,14 +8852,7 @@ tenet
 ##### 54738#       发表于 2021-3-25 20:58
 
 
-
-
 具体表现好不好咱不肯定，但假御田这段剧情以后肯定有接应
-
-
-
-
-
 
 
 -----
@@ -13675,14 +8861,7 @@ tenet
 ##### 54739#       发表于 2021-3-25 22:06
 
 
-
-
 看来大家都很一直的认为世界会议最好看，那个时候追的有意思，还希望尾田多画点，可惜尾田就画了五话，而大家都不喜欢看的和之国尾田已经画了100话懂的都懂，至于像岛大家觉得好看是因为他不拖拉只有20话，是两年后少有的精简篇章
-
-
-
-
-
 
 
 -----
@@ -13691,16 +8870,10 @@ tenet
 ##### 54740#       发表于 2021-3-25 22:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50732534&amp;ptid=98922" target="_blank">saturnus 发表于 2021-3-25 19:20</a>
 
 卡二算不算两年后的巅峰？</blockquote>
 拉胯的代表，卡二的那场戏代表尾田已经完全画不了打斗，卡二的战斗不就是路飞不停的锁血，更本打不过卡二，实力差距很大，硬打。
-
-
-
-
-
 
 
 -----
@@ -13709,14 +8882,7 @@ tenet
 ##### 54741#       发表于 2021-3-25 23:14
 
 
-
-
 路西打竞技场那段还算好看
-
-
-
-
-
 
 
 -----
@@ -13725,18 +8891,12 @@ tenet
 ##### 54742#       发表于 2021-3-25 23:16
 
 
-
-
 这么看，与其说尾田江郎才尽，不如说尾田编辑的工作没做好。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -13746,12 +8906,7 @@ tenet
 | gs2-d2up| + 1|非常同意|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -13760,15 +8915,8 @@ tenet
 ##### 54743#       发表于 2021-3-25 23:32
 
 
-
-
 四皇智将凯多第一次下手杀人居然人没死… 三灾六子也看不出…   九侠也是… 
 艾斯不复活？白胡子不复活？就算御田复活也比大蛇和䫖十郎复活有意思
-
-
-
-
-
 
 
 -----
@@ -13777,14 +8925,7 @@ tenet
 ##### 54744#       发表于 2021-3-25 23:57
 
 
-
-
 话说勘十郎和大蛇应该算是除了主角方双皇方CP方之外的第四方了吧。接着看呗，尾田应该会给他们一个结局。
-
-
-
-
-
 
 
 -----
@@ -13793,14 +8934,7 @@ tenet
 ##### 54745#       发表于 2021-3-26 00:12
 
 
-
-
 wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样躺着，大蛇头都没了就让他死干净不好吗，现在三灾没打完，飞六胞没打完，大妈团的人也不可能就那么轻易退场，活着的都还有这么多事，人物这么多，这一话事情还没解决，下一话又画其他人物了真的观感极差，这和之国篇有完没完了，最主要的是主角都在打大boss了，谁还想看配角啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13809,22 +8943,15 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54746#       发表于 2021-3-26 00:26
 
 
-
 <blockquote>gg326 发表于 2021-3-26 00:12
 wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样躺着，大蛇头都没了就让他死干净不好吗，现在三灾 ...</blockquote>
 只能说两年后配角过多，戏份分配不均的问题碰上乡土爱，就是火上浇油。
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 54747#       发表于 2021-3-26 00:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50734985&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-3-25 23:57</a>
@@ -13835,25 +8962,13 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 顺便这话封面的罗宾姐姐画得什么鬼？WT你也学勘十郎用左手画的？
 
 
-
-
-
-
-
 -----
 
 ####  晴岚  
 ##### 54748#       发表于 2021-3-26 01:09
 
 
-
-
 所以当初说治疗九侠的就是这假御田还是另外还有一个人呢……凯多**型比想得要普通得多来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -13862,14 +8977,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54749#       发表于 2021-3-26 11:07
 
 
-
-
 德岛出现鸟笼之前好看的啊，基本是沙空水三篇的水平，鸟笼确实搞得气氛一下莫名其妙起来了，蛋糕岛和和之国的问题是没有引爆剧情的战斗，蛋糕岛明明让厨子好好打一架完成度会高的多，不知道咋想的。现在和之国也是，桃之助要是20多岁有战斗力会好看的多，薇薇那样的角色再也没有了
-
-
-
-
-
 
 
 -----
@@ -13878,14 +8986,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54750#       发表于 2021-3-26 11:49
 
 
-
-
 桃之助跟日和换一下，再融合传次郎的角色如何？
-
-
-
-
-
 
 
 -----
@@ -13894,15 +8995,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54751#       发表于 2021-3-26 11:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">其实大蛇说不定也是画的
 
 虽然我觉得不会这么演
-
-
-
-
-
 
 
 -----
@@ -13911,21 +9006,13 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54752#       发表于 2021-3-26 12:22
 
 
-
-
 桃之助这是白送一个见闻色吗，就骑着腰摸着奶然后突然学会见闻色？<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  proselyte  
 ##### 54753#       发表于 2021-3-26 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50738648&amp;ptid=98922" target="_blank">24k纯帅 发表于 2021-3-26 12:22</a>
@@ -13935,16 +9022,10 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  魏柔  
 ##### 54754#       发表于 2021-3-26 13:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735122&amp;ptid=98922" target="_blank">gg326 发表于 2021-3-26 00:12</a>
@@ -13953,25 +9034,13 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 别问，问就是乡土爱，我大和男儿个个都是响当当的英雄豪杰
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 54755#       发表于 2021-3-26 13:31
 
 
-
-
 看了图透，大妈的舌头太搞笑了，跟北斗神拳的杂兵似的
-
-
-
-
-
 
 
 -----
@@ -13980,14 +9049,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54756#       发表于 2021-3-26 13:43
 
 
-
-
 快进到大妈凯多也是堪十郎画的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13996,14 +9058,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54757#       发表于 2021-3-26 14:03
 
 
-
-
 怎么感觉尾田有点主次不分了，那一大票SMIle果实就不说了，这两话的标题以为终于回归草帽团了，结果花五郎又用掉了大量篇幅，现在又来个阿修罗童子，不会是九虾每个人的名字轮着来一遍吧？这要画到猴年马月
-
-
-
-
-
 
 
 -----
@@ -14012,14 +9067,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54758#       发表于 2021-3-26 19:05
 
 
-
-
 感觉看不到剧情推进的希望，也没有剧情预测的方向。
-
-
-
-
-
 
 
 -----
@@ -14028,14 +9076,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54759#       发表于 2021-3-26 19:20
 
 
-
-
 问题其实就是，草帽团怎么还不逐一开打…
-
-
-
-
-
 
 
 -----
@@ -14044,15 +9085,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54760#       发表于 2021-3-26 19:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50742909&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-3-26 19:20</a>
 问题其实就是，草帽团怎么还不逐一开打…</blockquote>
 开打了，不过现在是草帽大船团时代了，以前是9vs9现在怎么也得90vs90<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14061,14 +9096,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54761#       发表于 2021-3-26 20:26
 
 
-
-
 杰克 一个号称要来干死九侠的，吭哧瘪肚赶到了以后眼睁睁放其他七个人跑了…服气
-
-
-
-
-
 
 
 -----
@@ -14077,15 +9105,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54762#       发表于 2021-3-26 20:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">想起来开战前有一个用九侠画面是否有阴影来预测死亡的 
 
 突然有种他们会被勘十郎和杰克一个个猎杀的错觉
-
-
-
-
-
 
 
 -----
@@ -14094,14 +9116,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54763#       发表于 2021-3-26 21:27
 
 
-
-
 看样子大蛇是要干一件疯事把所有人都拉下水？  但如果真是这样，其实也不用真让他复活，就写他死之前做了安排，如果天下人负我，我拉天下人垫背，这样不就好了
-
-
-
-
-
 
 
 -----
@@ -14110,14 +9125,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54764#       发表于 2021-3-26 22:30
 
 
-
-
 下一话是犬岚吧，现在阿修罗下线，实锤预言九影不是九侠，
-
-
-
-
-
 
 
 -----
@@ -14126,14 +9134,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54765#       发表于 2021-3-27 00:17
 
 
-
-
 看了汉化，尾田你能再拉点吗？这也太不行了吧。
-
-
-
-
-
 
 
 -----
@@ -14142,15 +9143,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54766#       发表于 2021-3-27 04:22
 
 
-
  本帖最后由 先手必胜 于 2021-3-27 04:25 编辑 
 
 笑死了，第一漫就这？是个漫画都比这强吧？
-
-
-
-
-
 
 
 -----
@@ -14159,15 +9154,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54767#       发表于 2021-3-27 04:24
 
 
-
  本帖最后由 先手必胜 于 2021-3-27 04:30 编辑 
 
 凯多兽人形态这么丑之前藏个屁啊
-
-
-
-
-
 
 
 -----
@@ -14176,14 +9165,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54768#       发表于 2021-3-27 11:56
 
 
-
-
 **型本来就丑吧，凯多长这样也算合情合理
-
-
-
-
-
 
 
 -----
@@ -14192,16 +9174,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54769#       发表于 2021-3-27 12:15
 
 
-
-
 变御田炸人的思路没错，但如果治疗的他，直接炸不就好了？
 
  -- 傲娇地来自 Stage1未知客户端
-
-
-
-
-
 
 
 -----
@@ -14210,16 +9185,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54770#       发表于 2021-3-27 12:17
 
 
-
-
 尾田真是罪大恶极，让多少人看漫画都看出ptsd了
 
  -- 傲娇地来自 Stage1未知客户端
-
-
-
-
-
 
 
 -----
@@ -14228,14 +9196,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54771#       发表于 2021-3-27 13:19
 
 
-
-
 看到贴吧说路飞3000万赏金已经不怕炸弹果实了，阿修罗童子起码3亿以上了吧，还怕个炸弹？凯多一棒子都打不死阿修罗童子，凯多也要不如炸弹了，哭哭
-
-
-
-
-
 
 
 -----
@@ -14244,15 +9205,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54772#       发表于 2021-3-27 13:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50748663&amp;ptid=98922" target="_blank">传说中的小鱼 发表于 2021-3-27 13:19</a>
 看到贴吧说路飞3000万赏金已经不怕炸弹果实了，阿修罗童子起码3亿以上了吧，还怕个炸弹？凯多一棒子都打不 ...</blockquote>
 前面接近4亿的佩德罗也被炸死，7亿长子被炸断一条手
-
-
-
-
-
 
 
 -----
@@ -14261,15 +9216,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54773#       发表于 2021-3-27 13:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50748721&amp;ptid=98922" target="_blank">saturnus 发表于 2021-3-27 13:23</a>
 前面接近4亿的佩德罗也被炸死，7亿长子被炸断一条手</blockquote>
 炸弹升级了！明明以前炸不死一只鸟人
-
-
-
-
-
 
 
 -----
@@ -14278,14 +9227,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54774#       发表于 2021-4-1 12:39
 
 
-
-
 大妈又掉海啦，期待大妈乔巴组合复活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14294,14 +9236,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54775#       发表于 2021-4-1 13:21
 
 
-
-
 黑胡子不来捡漏吗
-
-
-
-
-
 
 
 -----
@@ -14310,14 +9245,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54776#       发表于 2021-4-1 13:24
 
 
-
-
 大妈中了奈落的落穴了？
-
-
-
-
-
 
 
 -----
@@ -14326,22 +9254,13 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54777#       发表于 2021-4-1 14:08
 
 
-
-
 喷了,看了新的一话,大蛇居然没死?
-
-
-
-
-
 
 
 -----
 
 ####  魏柔  
 ##### 54778#       发表于 2021-4-1 14:09
-
-
 
 
 尾田要是画完顶上战争就死了，我愿称海贼为史上最佳超长篇漫画。
@@ -14353,25 +9272,13 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 和之国篇完全把尾田攒了几十年的名声都毁了
 
 
-
-
-
-
-
 -----
 
 ####  七十七  
 ##### 54779#       发表于 2021-4-1 17:23
 
 
-
-
 看了下这话五星打四皇还是比较精彩的
-
-
-
-
-
 
 
 -----
@@ -14380,15 +9287,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54780#       发表于 2021-4-1 18:19
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是尾田多学学富坚就好了
 
 —— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -14397,14 +9298,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54781#       发表于 2021-4-1 18:50
 
 
-
-
 快进到整个鬼岛都是勘十郎画的，最后勘十郎自杀所有人摔死
-
-
-
-
-
 
 
 -----
@@ -14413,14 +9307,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54782#       发表于 2021-4-1 18:51
 
 
-
-
 这话从情报来看，很精彩
-
-
-
-
-
 
 
 -----
@@ -14429,17 +9316,10 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54783#       发表于 2021-4-1 18:55
 
 
-
-
 看图透好像还行啊……
 得觉得不行他又行了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -14448,14 +9328,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54784#       发表于 2021-4-1 19:09
 
 
-
-
 超新星打配合这段确实不错
-
-
-
-
-
 
 
 -----
@@ -14464,16 +9337,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54785#       发表于 2021-4-1 20:20
 
 
-
-
 终于算是真正打起来了，前面都是闹着玩
 
 看图透不谈分镜，魄力感还是可以的
-
-
-
-
-
 
 
 -----
@@ -14482,21 +9348,13 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54786#       发表于 2021-4-2 00:12
 
 
-
-
 索大还是强,单人直接冲过去挡双皇合体技。来自: iPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  四级过了  
 ##### 54787#       发表于 2021-4-2 01:51
-
 
 
 <blockquote>魏柔 发表于 2021-4-1 14:09
@@ -14508,25 +9366,13 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 不觉得顶上好，不如说从顶上开始就已经走下坡路了，如果到七水之都结束，称最佳之一没啥问题
 
 
-
-
-
-
-
 -----
 
 ####  sdh45e6  
 ##### 54788#       发表于 2021-4-2 03:27
 
 
-
-
 和之国篇完全把尾田攒了几十年的名声都毁了
-
-
-
-
-
 
 
 -----
@@ -14535,14 +9381,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54789#       发表于 2021-4-2 09:58
 
 
-
-
 大妈为啥不会月步？明明她好几个儿子女儿都会
-
-
-
-
-
 
 
 -----
@@ -14551,16 +9390,10 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54790#       发表于 2021-4-2 10:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50806355&amp;ptid=98922" target="_blank">四级过了 发表于 2021-4-2 01:51</a>
 
 不觉得顶上好，不如说从顶上开始就已经走下坡路了，如果到七水之都结束，称最佳之一没啥问题 ...</blockquote>
 七水之都的是承接空岛篇浪漫主义的结束，顶上战争以为是开启了现实主义的新道路，没想到后面已经走到了尽头
-
-
-
-
-
 
 
 -----
@@ -14569,16 +9402,9 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54791#       发表于 2021-4-2 11:35
 
 
-
-
 想当年的【区区月步】
 
 哈哈哈哈哈，大妈你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14587,16 +9413,10 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54792#       发表于 2021-4-2 12:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50806355&amp;ptid=98922" target="_blank">四级过了 发表于 2021-4-2 01:51</a>
 
 不觉得顶上好，不如说从顶上开始就已经走下坡路了，如果到七水之都结束，称最佳之一没啥问题 ...</blockquote>
 顶上是前半段旅程的终结，现在回头看确实很多问题，比如WT大场面的控场能力不行，人物对战混乱在那时候已经有了隐患，但当时剧情被推到最高潮以及各种新老人物登场，每周讨论度都很高，而且最后结局在当时属于极其出人意料的那种，可以说这个章节不完美但对于前半段的收束以及对后半段的展望还是做到位的，当然谁也不会想到现在和之国能拉胯成这样，人物更多了但大多数都是背景板一样的存在还要浪费本来就已经很乱的分镜给他们，剧情观感直接给切割得粉碎
-
-
-
-
-
 
 
 -----
@@ -14605,15 +9425,8 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54793#       发表于 2021-4-2 13:36
 
 
-
-
 大妈叕掉下去了，这可太逗了
 大蛇和九侠应该不会有更多戏份了吧，求好好继续打
-
-
-
-
-
 
 
 -----
@@ -14622,14 +9435,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ##### 54794#       发表于 2021-4-2 14:52
 
 
-
-
 WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国好像只会这么笑了，之前从来没见过，看起来就一股小人得志的感觉
-
-
-
-
-
 
 
 -----
@@ -14638,17 +9444,10 @@ WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国
 ##### 54795#       发表于 2021-4-2 15:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50811070&amp;ptid=98922" target="_blank">qzfjnv 发表于 2021-4-2 14:52</a>
 
 WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国好像只会这么笑了，之前从来没见过，看起来就一股 ...</blockquote>
 讲道理的话，这是罗杰的笑容一脉相承的
-
-
-
-
-
-
 
 
 -----
@@ -14657,13 +9456,7 @@ WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国
 ##### 54796#       发表于 2021-4-2 15:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实在我觉着和之国御田出来之前还行，甚至御田跳舞之前都还行，后面这个人物没立起来，所有的脑残粉举动都傻逼了
-
-
-
-
-
 
 
 -----
@@ -14672,15 +9465,9 @@ WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国
 ##### 54797#       发表于 2021-4-2 15:27
 
 
-
 <blockquote>inconolast 发表于 2021-4-2 15:18
 说实在我觉着和之国御田出来之前还行，甚至御田跳舞之前都还行，后面这个人物没立起来，所有的脑残 ...</blockquote>
 御田角色塑造的分水岭就是跳舞，前面绝对算不上差，甚至跳舞前一话直接杀到大蛇老巢那里观众情绪都拉满了，然后就悬崖跳水了
-
-
-
-
-
 
 
 -----
@@ -14689,12 +9476,7 @@ WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国
 ##### 54798#       发表于 2021-4-2 16:09
 
 
-
-
 凯多不变龙救大妈？就让她摔下去？之前踢船就智障了，现在zzx3
-
-
-
 
 
                        

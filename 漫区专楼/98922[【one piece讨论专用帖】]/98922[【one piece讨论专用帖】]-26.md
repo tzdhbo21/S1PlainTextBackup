@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2020-02-13 16:36** 
 
 
-
 -----
 
 ####  影流之主  
 ##### 37501#       发表于 2015-6-4 16:04
-
-
 
 
 这话是至今看op第一次完全看不明白的一话
@@ -17,16 +14,10 @@
 一般op在这种大决战前置话数的时候都会营造出一个能大概让你知道接下来发展的气氛，是对攻战还是最后一招打完基本就能看出来，但本周这个我完全看不出来下面怎么样，感觉就像是wt自己都没想明白是下一话结束战斗还是再拖几周
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 37502#       发表于 2015-6-4 16:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29154601&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-4 16:04</a>
@@ -37,17 +28,10 @@
 下周休刊
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37503#       发表于 2015-6-4 16:13
-
-
 
 
 维奥拉居然没挨上那一刀，太失望了，哪怕不砍死也比这样好啊
@@ -55,16 +39,10 @@
 顶上战争这种史诗级便当发过以后，wt正篇不死人的传统已经没什么说服力了，这一篇明明是有史以来最黑暗的一个分段居然还是全国存活，本来最近几周的剧情已经很疲软了，这么一弄简直跟儿戏一样啊
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37504#       发表于 2015-6-4 16:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29154654&amp;ptid=98922" target="_blank">真红眼教授 发表于 2015-6-4 16:10</a>
@@ -75,16 +53,10 @@
 而且这周连线控这种遗忘许久的大控制技都重新拿出来了，你要说下次直接一话打完简直就是扯淡，但是再打上几个礼拜进度根本就是拖的没边了
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 37505#       发表于 2015-6-4 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29154730&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-4 16:19</a>
@@ -96,17 +68,10 @@
 这样人头又是路飞的，打败明哥的成果又是全国人民的共同力量，大将还不用出手，完美无瑕无懈可击
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 37506#       发表于 2015-6-4 16:24
-
-
 
 
 现在的怪圈在于形成了另一个两难
@@ -121,23 +86,16 @@
 所以大部分的弊端都是从鸟笼这个设定出来的，之前别人也总结过了。
 
 
-
 其实，线线果实的真正使用方法，火鸟根本就没用出来。
 
 
 圣斗士里冥界三大将之一的米诺陶斯(没记错的话)可是直接能用线/丝把人弄成骨折的，火鸟你只会用线嘲讽吗
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 37507#       发表于 2015-6-4 16:31
-
 
 
  本帖最后由 DGIL 于 2015-6-4 16:35 编辑 
@@ -151,16 +109,10 @@
 而且必须路飞亲自击倒。。。真是丧心病狂！
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37508#       发表于 2015-6-4 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29154787&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-4 16:24</a>
@@ -174,17 +126,10 @@
 简单来说，最高三干部活到现在然后跟boss战一起开打，或者像现在一样提前打完但是主角队像以往一样重伤（没错三刀流说的就是你），这两者任选其一都不至于搞成现在这样。就算是非得要用全国推鸟笼这个情节体现鸟叔已经不得人心，上述两个方案也更有合理性：要么是只需要稍微阻挡一会等boss战结束，要么是全员重伤输出功率下降到没法完全阻止。现在等于是所有选项里最差的那个都被整合到一起了，甚至连想表达的东西都被冲淡了
 
 
-
-
-
-
-
 -----
 
 ####  讴歌青春  
 ##### 37509#       发表于 2015-6-4 16:48
-
-
 
 
 这10分钟,那边巴基斯牵制了萨博
@@ -194,16 +139,10 @@
 这样的感觉更好看,也更有紧张感
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 37510#       发表于 2015-6-4 16:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155000&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-4 16:46</a>
@@ -217,16 +156,10 @@
 顺便，鸟笼是要表示火鸟最后失去人心，我觉得这个还得再商榷
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 37511#       发表于 2015-6-4 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29154274&amp;ptid=98922" target="_blank">真红眼教授 发表于 2015-6-4 15:29</a>
@@ -237,25 +170,13 @@
 然而从效果来看，并没有什么卵用
 
 
-
-
-
-
-
 -----
 
 ####  zero虚  
 ##### 37512#       发表于 2015-6-4 17:04
 
 
-
-
 虽然知道很烂，不过这话眼睛还是看湿润了
-
-
-
-
-
 
 
 -----
@@ -264,21 +185,13 @@
 ##### 37513#       发表于 2015-6-4 17:09
 
 
-
-
 整个剧情乱七八糟，真不知道是萨博实力不行还是冠军太屌，我是萨博这时候肯定全力解决冠军而不是在过招。
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 37514#       发表于 2015-6-4 17:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155252&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-6-4 17:09</a>
@@ -291,16 +204,10 @@
 不过萨博确实应该直接上大招。。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37515#       发表于 2015-6-4 17:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29154787&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-4 16:24</a>
@@ -311,25 +218,13 @@
 我一开始以为线果实打起来会像空岛的绳之试炼，会有一大片场地设线的陷阱，路飞会受很重的切割伤
 
 
-
-
-
-
-
 -----
 
 ####  宅之猴晒阴  
 ##### 37516#       发表于 2015-6-4 17:18
 
 
-
-
 同样是渲染最后紧张时刻，这鸟笼在弗利萨五分钟灭星面前就是渣渣。
-
-
-
-
-
 
 
 -----
@@ -338,24 +233,15 @@
 ##### 37517#       发表于 2015-6-4 17:19
 
 
-
-
 难得的三大漫重归同一水准的一周。
 
 (好像对还没出的死神有点不公平...)
-
-
-
-
-
 
 
 -----
 
 ####  tyauto  
 ##### 37518#       发表于 2015-6-4 17:37
-
-
 
 
   这话不看画面只看对话耻度好高..
@@ -381,25 +267,13 @@
 <img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 37519#       发表于 2015-6-4 17:42
 
 
-
-
 绝望感还比不上全员趴下，暴君熊君临。
-
-
-
-
-
 
 
 -----
@@ -408,23 +282,16 @@
 ##### 37520#       发表于 2015-6-4 17:45
 
 
-
 <img src="http://image17.poco.cn/mypoco/myphoto/20150604/17/6440231020150604174507067.jpg" referrerpolicy="no-referrer">
 
 
 索隆你也有脸说这种话？
 
 
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 37521#       发表于 2015-6-4 17:47
-
 
 
 <blockquote>tyauto 发表于 2015-6-4 17:37
@@ -436,16 +303,10 @@
 加鹅，哈哈哈
 
 
-
-
-
-
-
 -----
 
 ####  班德  
 ##### 37522#       发表于 2015-6-4 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155330&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2015-6-4 17:18</a>
@@ -457,17 +318,10 @@
 想当年顶上战争连载的时候还不是一大堆人在喊“怎么还没救下来太拖了” 结果呢 救下来下一话就便当了
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 37523#       发表于 2015-6-4 17:53
-
-
 
 
 有点小燃，但还是很拖，这路飞再不一拳KO就说不过去了啊，但是招数又全用光了，不知道wt还有什么电子。
@@ -476,25 +330,13 @@
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 37524#       发表于 2015-6-4 18:02
 
 
-
-
 为了把路飞塑造成万人寄托的英雄，尾田也是蛮拼的。
-
-
-
-
-
 
 
 -----
@@ -503,21 +345,13 @@
 ##### 37525#       发表于 2015-6-4 18:08
 
 
-
-
 这几期不适合追，简直急死人，一口气看的话估计感觉不一样
-
-
-
-
-
 
 
 -----
 
 ####  Rockchan  
 ##### 37526#       发表于 2015-6-4 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29155634&amp;amp;ptid=98922" target="_blank">班德 发表于 2015-6-4 17:51</a>
@@ -528,26 +362,13 @@
 那時至少大家也在力戰當中，即使是拖但也有連續戰鬥可看，也合理地描寫救不下來的原因（大家正在交戰）。但現在大家看的是一班強者推鳥籠，沒觀眾明白為何即使快死了，大家也決定要由半殘的路飛去打倒明哥。
 
 
-
-
-
-
-
 -----
 
 ####  kedokido  
 ##### 37527#       发表于 2015-6-4 18:13
 
 
-
-
 本周解说员这一段还是很神的，是竞技场又不是竞技场的味道。
-
-
-
-
-
-
 
 
 -----
@@ -556,15 +377,9 @@
 ##### 37528#       发表于 2015-6-4 18:21
 
 
-
 <blockquote>Rockchan 发表于 2015-6-4 18:09
 那時至少大家也在力戰當中，即使是拖但也有連續戰鬥可看，也合理地描寫救不下來的原因（大家正在交戰）。 ...</blockquote>
 强者推鸟笼，弱者去给鸟哥送人头，这逻辑我是想不通。
-
-
-
-
-
 
 
 -----
@@ -573,14 +388,7 @@
 ##### 37529#       发表于 2015-6-4 18:29
 
 
-
-
 尾田太执着于王对王了，哪怕这一篇场面已经失控了还要强行王对王。
-
-
-
-
-
 
 
 -----
@@ -589,15 +397,9 @@
 ##### 37530#       发表于 2015-6-4 18:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155887&amp;ptid=98922" target="_blank">qwxbtgb 发表于 2015-6-4 18:21</a>
 强者推鸟笼，弱者去给鸟哥送人头，这逻辑我是想不通。</blockquote>
 很有逻辑，因为鸟·笼·比·火·鸡·强<img src="https://static.saraba1st.com/image/smiley/face/163.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -606,23 +408,16 @@
 ##### 37531#       发表于 2015-6-4 18:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29156001&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-4 18:38</a>
 
 很有逻辑，因为鸟·笼·比·火·鸡·强</blockquote>
 有理有据了！
 
 
-
-
-
-
-
 -----
 
 ####  青螳  
 ##### 37532#       发表于 2015-6-4 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155509&amp;ptid=98922" target="_blank">tyauto 发表于 2015-6-4 17:37</a>
@@ -634,17 +429,10 @@
 精鹅<img src="https://static.saraba1st.com/image/smiley/face/158.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sexy2002  
 ##### 37533#       发表于 2015-6-4 19:34
-
-
 
 
 和剑风里万众期待的救世主差远了
@@ -653,25 +441,13 @@
 ----发送自 [PANASONIC DMC-CM1,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  Rockchan  
 ##### 37534#       发表于 2015-6-4 19:46
 
 
-
-
 其實明哥跑到鳥籠外是否便勝利了？看鳥籠的強力，他其實不用跟路飛打，跑到鳥籠外等便成。假設有人可以反推，那明哥可以在鳥籠外用線把這些人幹掉吧？
-
-
-
-
-
 
 
 -----
@@ -680,21 +456,13 @@
 ##### 37535#       发表于 2015-6-4 19:52
 
 
-
-
 大概能想像WT要营造一个什么样的场面，可惜表现出来的效果太差了
-
-
-
-
-
 
 
 -----
 
 ####  lordquest  
 ##### 37536#       发表于 2015-6-4 20:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155572&amp;ptid=98922" target="_blank">真红眼教授 发表于 2015-6-4 17:45</a>
@@ -711,24 +479,14 @@
 2015-6-4 20:07 上传
 
 
-
-
-
 尾田估计连索隆之前说过的台词都忘了
 [http://imgsrc.baidu.com/forum/w% ... f13632763d0c37c.jpg](http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e46b599753971/f6fc62d9f2d3572c0703b8428f13632763d0c37c.jpg)
-
-
-
-
-
-
 
 
 -----
 
 ####  真红眼教授  
 ##### 37537#       发表于 2015-6-4 20:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29156666&amp;ptid=98922" target="_blank">lordquest 发表于 2015-6-4 20:09</a>
@@ -739,16 +497,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 只怕尾田真的已经嗝屁了，现在是他助手在画
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37538#       发表于 2015-6-4 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155279&amp;ptid=98922" target="_blank">DGIL 发表于 2015-6-4 17:12</a>
@@ -765,32 +517,19 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 萨博那边其实就是wt不想抢戏所以安排个差事让他先退场了，没必要想太多
 
 
-
-
-
-
-
 -----
 
 ####  少年包工头  
 ##### 37539#       发表于 2015-6-4 20:47
 
 
-
-
 我觉得鸟笼象征着束缚，而再推的每一个人都象征着打破束缚，亲手获得自由，这才是这个篇章的主题。
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 37540#       发表于 2015-6-4 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155044&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-4 16:49</a>
@@ -812,16 +551,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 失去人心这个象征也是从藤虎不务正业开始想到的，但凡涉及国家大事的几个篇章，民众都是会有所表示的，全体推鸟笼大概就是这个意思：我打不过你（藤虎应该是身处体制内没法打你，虽然这并没有什么说服力），但我已经不打算坐等了，这是我反抗精神的体现
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 37541#       发表于 2015-6-4 20:50
-
 
 
 <blockquote>少年包工头 发表于 2015-6-4 20:47
@@ -829,16 +562,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 但是看起来尾田自己已经被束缚了。
 
 
-
-
-
-
-
 -----
 
 ####  不懂就问问  
 ##### 37542#       发表于 2015-6-4 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155347&amp;ptid=98922" target="_blank">费扎里昂 发表于 2015-6-4 17:19</a>
@@ -849,17 +576,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 我觉得火影外传最好怎么办
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 37543#       发表于 2015-6-4 21:10
-
-
 
 
 草！我还以为最后能对火鸡来个一拳再结束呢。
@@ -868,26 +588,15 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ----发送自 [Sony D6503,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37544#       发表于 2015-6-4 21:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29156945&amp;ptid=98922" target="_blank">不懂就问问 发表于 2015-6-4 20:51</a>
 我觉得火影外传最好怎么办</blockquote>
 今天更新没看吗，反正看了之后索隆和藤虎开心了点
-
-
-
-
-
 
 
 -----
@@ -896,14 +605,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37545#       发表于 2015-6-4 21:44
 
 
-
-
 想要强行洗地的话，这几画应该是为了接下来的四皇战攒威望造人气吧
-
-
-
-
-
 
 
 -----
@@ -912,14 +614,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37546#       发表于 2015-6-4 22:03
 
 
-
-
 鸟笼这么强实在受不了。。。蒲公英让斗士们暂时恢复一个个去顶火鸡然后一个个倒下最后路飞救场都比推鸟笼推的治疗时间到倒下好，另外就是不死人。。。这个时候还让火鸡用提线木偶玩坏俩花姑娘而不是直接秒掉有什么意义么。。。<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -928,17 +623,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37547#       发表于 2015-6-4 22:07
 
 
-
-
 这一话还是那个疑问，路飞既然有10分钟的弱点以后怎么打四皇，如果再搞现在全体给路飞拖时间这套那就太没意思了，难道每次打四皇都拖时间？如果以后没有这个弱点了路飞又成长了那现在这个弱点出现有毛意思，为了制造效果，可是一点都不觉得效果好。
 
 
 现在这个情节一点都没有让我有代入感，就是一点都不觉得激动，看了这话毫无反应，哪怕是休刊也不期待下一话，2年后的漫画情节确实越来越不好看，本来以为鱼人篇不好看是因为是过度篇章，自从德岛篇到现在基本可以确定尾田就这个水平了，以后的剧情到漫画结束得到one piece或者路飞死掉也就这样了，甚至可能更差
-
-
-
-
-
 
 
 -----
@@ -947,16 +635,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37548#       发表于 2015-6-4 22:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29157495&amp;ptid=98922" target="_blank">qilang 发表于 2015-6-4 22:07</a>
 
 这一话还是那个疑问，路飞既然有10分钟的弱点以后怎么打四皇，如果再搞现在全体给路飞拖时间这套那就太没意 ...</blockquote>
 鱼人岛虽然没激情但起码看主角们虐菜鸡还是群众喜闻乐见的，德岛一开始真的不错，结果剧情走着走着就成这样了。。。
-
-
-
-
-
 
 
 -----
@@ -965,14 +647,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37549#       发表于 2015-6-4 22:12
 
 
-
-
 我不信！这真的是尾田构思出来的情节？》《 尾田你怎么了。。。
-
-
-
-
-
 
 
 -----
@@ -981,15 +656,9 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37550#       发表于 2015-6-4 22:37
 
 
-
  本帖最后由 qilang 于 2015-6-4 22:56 编辑 
 
 换个思路，路飞就算有四档或者说以现在的实力穿越到2年前的顶上战争还是被赤犬秒杀的命，还是救不了艾斯，我个人不认为路飞的四档可以顶住顶上战争里面的强者，有10分钟这么巨大的弱点，四档本身也没多长的持续时间可能也就10分钟，在顶上战争里面还是会被大将打败，完全想象不出大将有被四档打败的可能性，也许尾田会画大将被路飞几拳但是明哥都需要2次四档才能打败，鬼才相信大将用一次四档就能打败，而且顶上是3个比明哥都强的大将，路飞有四档还是被艾斯救的命，2年的时间路飞毫无长进。如果没有10分钟的弱点那四档还是挺强力的，可惜一个弱点让这技能毫无用处，二档和三档在当时至少在弱点出现前就能打败对手，打不败的对手现在靠四档也不觉得能打败，还要靠围观群众拖延时间才能复活，没有围观群众路飞打不过明哥，明哥打不过青雉，青雉打不过赤犬，赤犬的熔岩果实还克橡胶果实，实在以我个人的低智商想象不出路飞在有10分钟弱点的情况下能打败赤犬，如果以后四档和现在的2档3档一样没有弱点了不会又要两年后吧，现在可没有像冥王雷利一样的老师了，如果2个月后路飞就克服了四档的弱点那之前两年路飞是偷懒没练过霸气吧，因为现在的剧情不可能给路飞时间继续锻炼，马上就要和四皇凯多碰头了，难道下一个和之国需要半年时间给路飞玩，再给和之国复国的时候路飞还能客服四档的弱点？
-
-
-
-
-
 
 
 -----
@@ -998,23 +667,16 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37551#       发表于 2015-6-4 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29155791&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-6-4 18:09</a>
 
 那時至少大家也在力戰當中，即使是拖但也有連續戰鬥可看，也合理地描寫救不下來的原因（大家正在交戰）。 ...</blockquote>
 当年可是“我靠又过了一周你们到底能不能靠近处刑台啊”
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 37552#       发表于 2015-6-4 23:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29156820&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-4 20:30</a>
@@ -1044,25 +706,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 但是对于萨博藤虎这样有点跨级的他是明显吃力的嘛
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 37553#       发表于 2015-6-4 23:49
 
 
-
-
 完全无法理解尾田塑造2年后路飞性格和技能的脑洞<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1071,14 +721,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37554#       发表于 2015-6-4 23:49
 
 
-
-
 巴基斯打萨博还没用霸气
-
-
-
-
-
 
 
 -----
@@ -1087,15 +730,9 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37555#       发表于 2015-6-5 00:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29157796&amp;amp;ptid=98922" target="_blank">班德 发表于 2015-6-4 22:45</a>
 当年可是“我靠又过了一周你们到底能不能靠近处刑台啊”</blockquote>
 那時是「海軍及7武海很強」。現在根本沒任何阻止接近明哥的障礙，一個十歲少孩也可以跑到明哥面前時沒強者願意幹。當中最瘋刺的是反而是一堆沒實力路人懂為路飛阻擋明哥，有實力的全體不幫忙。
-
-
-
-
-
 
 
 -----
@@ -1104,14 +741,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37556#       发表于 2015-6-5 00:14
 
 
-
-
 怀着对尾田过去带给我们的感动的感激，又激动的看完了一话
-
-
-
-
-
 
 
 -----
@@ -1120,22 +750,15 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37557#       发表于 2015-6-5 00:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29158552&amp;ptid=98922" target="_blank">李剡s 发表于 2015-6-5 00:14</a>
 怀着对尾田过去带给我们的感动的感激，又激动的看完了一话</blockquote>
 还是要承认存在问题，以前都说拖的时候我觉得剧情挺合理的，现在是有不少不合理的地方
-
-
-
-
-
 
 
 -----
 
 ####  萝卜roto  
 ##### 37558#       发表于 2015-6-5 00:36
-
 
 
 <blockquote>引用第37625楼cdfjg于2015-06-04 18:38发表的  :
@@ -1147,16 +770,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ----发送自 [Sony D5803,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37559#       发表于 2015-6-5 00:48
-
 
 
 <blockquote>引用第37635楼影流之主于2015-06-04 20:49发表的  :
@@ -1171,17 +788,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ----发送自 [Sony D5803,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  冰霜履叶  
 ##### 37560#       发表于 2015-6-5 00:54
-
-
 
 
 四档这梗三档巨人化的时候就用了，强力buff用完有个短时间debuff。当时用完四档我就觉得不对劲儿，觉得这个技能实在说不上太亮眼，没想到之后剧情就失控了。
@@ -1189,16 +799,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 尾田的一些问题顶上之战就隐约暴露，当时算瑕不掩瑜，这次剧情爆炸了。之前看采访他说自己有用不完的灵感还很敬佩，现在看来有些高估他了
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 37561#       发表于 2015-6-5 00:58
-
 
 
 <blockquote>萝卜roto 发表于 2015-6-5 00:36
@@ -1209,16 +813,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 主要op不会死人，不然前面替路飞去拖时间的路人甲，然后看看在推鸟笼的这帮人，我真怀疑火鸡是不是被路飞买通了在演戏。
 
 
-
-
-
-
-
 -----
 
 ####  莫吉  
 ##### 37562#       发表于 2015-6-5 01:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29158799&amp;ptid=98922" target="_blank">冰霜履叶 发表于 2015-6-5 00:54</a>
@@ -1227,27 +825,15 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 可能那会跟富坚关系好,后来翻脸了
 
 
-
-
-
-
-
 -----
 
 ####  sssfans  
 ##### 37563#       发表于 2015-6-5 01:27
 
 
-
-
 看了最后几页的评论我不禁想到了IT界的某些论调，“苹果每年都在走下神坛”，“微软年年都快完蛋”。
 
     —— from [S1 Nyan](http://126.am/S1Nyan) (NOKIA Lumia 925)来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -1256,12 +842,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37564#       发表于 2015-6-5 01:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29158888&amp;ptid=98922" target="_blank">莫吉 发表于 2015-6-5 01:12</a>
 
 可能那会跟富坚关系好,后来翻脸了</blockquote>
 这个梗求详细。。。
-
 
 
 强者里唯一不能理解就是藤壶了
@@ -1273,16 +857,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 火鸡后台硬不能杀，或者抓了没用，但不代表不可以打啊
 
 
-
-
-
-
-
 -----
 
 ####  先手必胜  
 ##### 37565#       发表于 2015-6-5 02:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29158799&amp;ptid=98922" target="_blank">冰霜履叶 发表于 2015-6-5 00:54</a>
@@ -1291,17 +869,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 当时一看到wt说自己有用不完的灵感我就觉得遭，德岛这死命堆砌元素的做法实在不可取，毕竟不是东西越多就越牛逼的
 
 
-
-
-
-
-
 -----
 
 ####  先手必胜  
 ##### 37566#       发表于 2015-6-5 02:25
-
-
 
 
 总感觉wt因为那些小细节小花招和数字游戏为人所称道，把心思全花在上面了
@@ -1311,16 +882,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 自己造了个笼子把自己给箍死了
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 37567#       发表于 2015-6-5 02:33
-
 
 
  本帖最后由 门田京平 于 2015-6-5 02:42 编辑 
@@ -1331,26 +896,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 不过话说回来，在艾斯这一点上我也觉得有一点欠妥，强行引出了果实上下级这么个目前看来没有意义的点。。。我始终觉得为了救弟弟放弃元素化用肉体硬抗致死比火被岩浆克好一些<img src="https://static.saraba1st.com/image/smiley/face/04.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  guying  
 ##### 37568#       发表于 2015-6-5 02:40
 
 
-
-
 藤虎出来才没多久，黑白还没那么好说，他要真想拿明哥，之前就能拿，不会等到这时候
-
-
-
-
-
 
 
 -----
@@ -1359,14 +911,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37569#       发表于 2015-6-5 02:43
 
 
-
-
 之前怎么可能拿，人家都说是大将了又不是哪里冒出来的野大王爱怎么玩怎么玩
-
-
-
-
-
 
 
 -----
@@ -1375,16 +920,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37570#       发表于 2015-6-5 03:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29159197&amp;ptid=98922" target="_blank">门田京平 发表于 2015-6-5 02:43</a>
 
 之前怎么可能拿，人家都说是大将了又不是哪里冒出来的野大王爱怎么玩怎么玩 ...</blockquote>
 那就说明他是重于职责而轻于感情的人，也就是重视规则的人是不会因为自己性命攸关等理由，去破坏规则的。
-
-
-
-
-
 
 
 -----
@@ -1393,14 +932,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37571#       发表于 2015-6-5 06:16
 
 
-
-
 为啥是脑袋挡剑呢 来个帅气的冒着蒸汽的背影加上伸出来的武装色手臂挡了剑会不会更帅。。。莫非这一击是头锤？
-
-
-
-
-
 
 
 -----
@@ -1409,21 +941,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37572#       发表于 2015-6-5 06:16
 
 
-
-
 为啥是脑袋挡剑呢 来个帅气的冒着蒸汽的背影加上伸出来的武装色手臂挡了剑会不会更帅。。。莫非这一击是头锤？
-
-
-
-
-
 
 
 -----
 
 ####  真红眼教授  
 ##### 37573#       发表于 2015-6-5 07:35
-
 
 
  本帖最后由 真红眼教授 于 2015-6-5 07:38 编辑 
@@ -1436,18 +960,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 明哥：看在你喊我好哥哥的份上，就给你一首歌的时间，鸟笼骑脸我就问你怎么输？
 
 
-
-
-
-
-
-
-
 -----
 
 ####  Rockchan  
 ##### 37574#       发表于 2015-6-5 09:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29159280&amp;amp;ptid=98922" target="_blank">guying 发表于 2015-6-5 03:43</a>
@@ -1457,25 +973,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 為了洗藤虎而這樣地把海軍黑一片你們便真是醉了。
 
 
-
-
-
-
-
 -----
 
 ####  Rockchan  
 ##### 37575#       发表于 2015-6-5 09:24
 
 
-
-
 原本海軍應是在7武海之上的集團，當年便是強行要求女帝參與決戰，如女帝拒絕可能會失去7武海資格。現在變成7武海可以任意殺海軍？如果這不是藤虎傻逼真的是海軍的問題，這兩年海軍發生了甚麼事衰退至此？
-
-
-
-
-
 
 
 -----
@@ -1484,21 +988,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37576#       发表于 2015-6-5 09:35
 
 
-
-
 其實你們真的覺得為了一個藤虎把整個海軍黑一片是幫尾田嗎？這明顯是把尾田往死裡黑。只有一個藤虎被說成笨蛋，比起整個海軍被說成智障好多了吧？
-
-
-
-
-
 
 
 -----
 
 ####  flyzzhj  
 ##### 37577#       发表于 2015-6-5 10:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29160496&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-6-5 09:35</a>
@@ -1524,17 +1020,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 然后你告诉我海军是白的？洗不洗都是黑的好不好
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 37578#       发表于 2015-6-5 10:32
-
-
 
 
 感觉海军一直就处在弱势，拿得出手的几个还内讧了。
@@ -1543,32 +1032,19 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 最大的功绩是剿灭了白胡子和杀了艾斯，但是这并没有什么卵用
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 37579#       发表于 2015-6-5 10:33
 
 
-
-
 的确，海军描得太黑了
-
-
-
-
-
 
 
 -----
 
 ####  Rockchan  
 ##### 37580#       发表于 2015-6-5 10:44
-
 
 
  本帖最后由 Rockchan 于 2015-6-5 11:55 编辑 
@@ -1582,16 +1058,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 那便不要幫藤虎洗地，直接說藤虎也是黑或低能的便成。一邊說海軍沒用，一邊便死命幫一個海軍大將洗地，這很有問題吧?
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 37581#       发表于 2015-6-5 10:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29161211&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-6-5 10:44</a>
@@ -1602,17 +1072,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 和你讨论一点意思都没，动不动就骂别人，内野我就不去了
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 37582#       发表于 2015-6-5 10:54
-
-
 
 
 说到这，我觉得尾田应该安排个洗白海军的剧情了。
@@ -1624,33 +1087,19 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 海贼也并不都是善良的，描写点传统意义上的恶霸海贼，让修炼后的克比，斯摩格发挥发挥作用吧
 
 
-
-
-
-
-
 -----
 
 ####  athena_1982  
 ##### 37583#       发表于 2015-6-5 11:16
 
 
-
-
 克比和那谁（贝鲁梅柏：……）这两个在海军。斯莫格也在海军。G5的一群海军都跟着卷卷眉嘲讽绿藻头了，这样怎么看海军都不能算是黑的吧
-
-
-
-
-
 
 
 -----
 
 ####  jsyyyz  
 ##### 37584#       发表于 2015-6-5 11:29
-
-
 
 
 说海军是黑的，其实也不是说，里面没啥好人。
@@ -1668,16 +1117,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 这才是海军的黑点啊
 
 
-
-
-
-
-
 -----
 
 ####  Rockchan  
 ##### 37585#       发表于 2015-6-5 11:52
-
 
 
  本帖最后由 Rockchan 于 2015-6-5 12:00 编辑 
@@ -1689,26 +1132,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 不好意思，在另一個論壇跟人戰了一輪，把那邊習慣帶過來了。這也不算恼羞成怒, 而是習慣了提出論點時順帶嘲諷的討論方式, 沒論點直接罵才算恼羞成怒.  其實我不是說你，只是說那些用踩海軍的方式去洗藤虎的人。樓上那帖我會找電腦改一下用詞，現在用 iPad 不知如何編輯。
 
 
-
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37586#       发表于 2015-6-5 13:21
 
 
-
-
 海军良心萨乌罗单挑屠魔令，保存最后的历史学家。
-
-
-
-
-
 
 
 -----
@@ -1717,21 +1147,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37587#       发表于 2015-6-5 13:36
 
 
-
-
 海军铁拳上尉芬布迪，正篇里面既虚伪又弱，看到草帽船笑着打招呼，转过脸去就开炮，在海上餐厅泡妞红酒的名字叫错，还玩下三滥想吃霸王餐，结果因为侮辱食物被山治直接秒杀。结果到了封面故事里变成了有品位跳舞超级好，看着海贼就直接揍，后来因为海贼用平民做人质束手就擒，跟海贼赞高惺惺相惜在法庭上降级为其脱罪的有情有义，仁义兼备的超正派人物。同理CP9路基也在封面故事有好表现，海军的正义是封面的正义。
-
-
-
-
-
 
 
 -----
 
 ####  guying  
 ##### 37588#       发表于 2015-6-5 13:45
-
 
 
  本帖最后由 guying 于 2015-6-5 13:50 编辑 
@@ -1743,26 +1165,15 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 再说我也没为藤虎洗地，一开始我就说他出来还没多久，是黑是白还不好说呢。他这么做有可能有他的目的，也可能他那时就只想到了那么多，在那种紧张激烈的情况下，让人去做出最好最冷静的判断应该是挺难的。
 
 
-
-
-
-
-
 -----
 
 ####  guying  
 ##### 37589#       发表于 2015-6-5 13:45
 
 
-
  本帖最后由 guying 于 2015-6-5 13:49 编辑 
 
 抱歉，连了
-
-
-
-
-
 
 
 -----
@@ -1771,15 +1182,9 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37590#       发表于 2015-6-5 13:45
 
 
-
  本帖最后由 guying 于 2015-6-5 13:48 编辑 
 
 连了
-
-
-
-
-
 
 
 -----
@@ -1788,23 +1193,15 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37591#       发表于 2015-6-5 15:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29163329&amp;amp;ptid=98922" target="_blank">guying 发表于 2015-6-5 13:45</a>
 漫画里没说出来的都只能算猜测，我也没肯定说那就是对的，只是在那基础上做的假设。毕竟看的是别人写的东 ...</blockquote>
 那既然藤虎目的不明，那便最好不要把鍋招在海軍上。現在便是有人不斷地說藤虎划水是因為海軍的準則/責任/職責那一堆「不管如何，錯的一定是海軍」的原因我才發帖。我只是奇怪為何很多人在藤虎划水這事上不能用「他自己傻逼」這理由，而是一定要用「划水的行為是被海軍逼」做解釋。
-
-
-
-
-
 
 
 -----
 
 ####  莫吉  
 ##### 37592#       发表于 2015-6-5 15:23
-
-
 
 
 感觉尾田在初期是想把海军描写成纯黑的势力，由向往自由的海贼打到
@@ -1814,16 +1211,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 现在海军的定位变了，在保护平民和抓海贼上就是正义的，黑幕也由世界政府背了
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 37593#       发表于 2015-6-5 15:55
-
 
 
 <blockquote>莫吉 发表于 2015-6-5 15:23
@@ -1833,16 +1224,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 看看初期的克比和卡普，尾田一开始就不是把海军往纯黑方面写的。不过黑海军没少写就是了，混着恶贼一起打。
 
 
-
-
-
-
-
 -----
 
 ####  莫吉  
 ##### 37594#       发表于 2015-6-5 16:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29164836&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2015-6-5 15:55</a>
@@ -1853,16 +1238,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 至少出场的将领都是坏人，杂兵还好
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 37595#       发表于 2015-6-5 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29164836&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2015-6-5 15:55</a>
@@ -1883,17 +1262,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 要靠克比把海军洗白，真的挺难的了
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37596#       发表于 2015-6-5 16:28
-
-
 
 
 所以说海军吃亏就吃亏在是一个群体，而海贼是大大小小单干的海贼团，所以一个海军的锅要全军背，而海贼做了天大的恶也只算在他那个海贼团头上
@@ -1905,16 +1277,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 不过wt不想把海军写黑是肯定的，不然为什么会放进来藤虎这么个角色
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37597#       发表于 2015-6-5 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29164958&amp;ptid=98922" target="_blank">莫吉 发表于 2015-6-5 16:04</a>
@@ -1925,25 +1291,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 初期也有离开自己辖区讨伐阿龙的隔壁支部将军，虽然存在感太弱被灭团了
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 37598#       发表于 2015-6-5 16:40
 
 
-
-
 藤虎原型座头市谁介绍下？小时候虽然电视上看过，但早忘了。
-
-
-
-
-
 
 
 -----
@@ -1952,17 +1306,11 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37599#       发表于 2015-6-5 17:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29164958&amp;ptid=98922" target="_blank">莫吉 发表于 2015-6-5 16:04</a>
 卡普出场已经不算初期了吧
 
 至少出场的将领都是坏人，杂兵还好</blockquote>
 漫画的卡普很早在封面连载就登场了
-
-
-
-
-
 
 
 -----
@@ -1971,17 +1319,11 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37600#       发表于 2015-6-5 17:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29164958&amp;ptid=98922" target="_blank">莫吉 发表于 2015-6-5 16:04</a>
 卡普出场已经不算初期了吧
 
 至少出场的将领都是坏人，杂兵还好</blockquote>
 漫画的卡普很早在封面连载就登场了
-
-
-
-
-
 
 
 -----
@@ -1990,14 +1332,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37601#       发表于 2015-6-5 19:40
 
 
-
-
 路飞这次要干死明哥？
-
-
-
-
-
 
 
 -----
@@ -2006,14 +1341,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37602#       发表于 2015-6-6 01:28
 
 
-
-
 好想尾田重新再画过这几话啊。。真是无法接受挚爱里面夹着几颗屎<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2022,16 +1350,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37603#       发表于 2015-6-6 01:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29169997&amp;ptid=98922" target="_blank">刹那の劍 发表于 2015-6-6 01:28</a>
 
 好想尾田重新再画过这几话啊。。真是无法接受挚爱里面夹着几颗屎</blockquote>
 +1，洗不白的黑点，虽然我心底还有那么0.00001分的期待，希望尾田能想办法把主要矛盾给圆了
-
-
-
-
-
 
 
 -----
@@ -2040,13 +1362,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37604#       发表于 2015-6-7 22:29
 
 
-
 <img src="http://i1.tietuku.com/d5f24a7d6c84ef51.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2055,14 +1371,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37605#       发表于 2015-6-11 15:02
 
 
-
-
 下周有特大发表
-
-
-
-
-
 
 
 -----
@@ -2071,14 +1380,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37606#       发表于 2015-6-11 15:20
 
 
-
-
 太拖了
-
-
-
-
-
 
 
 -----
@@ -2087,14 +1389,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37607#       发表于 2015-6-11 15:30
 
 
-
-
 当初让克比经历过斧手那件事之后仍然想加入海军就说明了没想把整个海军写成黑的吧
-
-
-
-
-
 
 
 -----
@@ -2103,14 +1398,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37608#       发表于 2015-6-11 16:10
 
 
-
-
 瞎子是应聘当的大将，之前的身份怎么看都很像是“任侠”
-
-
-
-
-
 
 
 -----
@@ -2119,7 +1407,6 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37609#       发表于 2015-6-11 18:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29161316&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-5 10:54</a>
 
 说到这，我觉得尾田应该安排个洗白海军的剧情了。
@@ -2127,11 +1414,6 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 
 既然赤犬上来扩招了这么多海军，能不能在对付之后的四皇 ...</blockquote>
 怎么洗?还有空白的100年要黑海军黑世界政府呢...
-
-
-
-
-
 
 
 -----
@@ -2140,7 +1422,6 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37610#       发表于 2015-6-11 18:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29161316&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-5 10:54</a>
 
 说到这，我觉得尾田应该安排个洗白海军的剧情了。
@@ -2150,26 +1431,15 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 怎么洗?还有空白的100年要黑海军黑世界政府呢...
 
 
-
-
-
-
-
 -----
 
 ####  恒温死神  
 ##### 37611#       发表于 2015-6-11 21:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29225881&amp;ptid=98922" target="_blank">境宗久 发表于 2015-6-11 15:02</a>
 下周有特大发表</blockquote>
 比如厨子回归之类?
-
-
-
-
-
 
 
 -----
@@ -2178,14 +1448,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37612#       发表于 2015-6-11 22:16
 
 
-
-
 下周重大发表，于是画面一转，厨子硬刚大妈，没明哥事儿了
-
-
-
-
-
 
 
 -----
@@ -2194,14 +1457,8 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37613#       发表于 2015-6-12 13:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29187050&amp;ptid=98922" target="_blank">境宗久 发表于 2015-6-7 22:29</a></blockquote>
 蕾贝卡这确实无耻的看出感觉来了，这没事就喜欢逞能给人添乱的丫头也没什么好，这集被方块虐反而这么有感觉，我艹真是
-
-
-
-
-
 
 
 -----
@@ -2210,14 +1467,7 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37614#       发表于 2015-6-12 16:04
 
 
-
-
 重大发表：海贼转月刊
-
-
-
-
-
 
 
 -----
@@ -2226,16 +1476,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37615#       发表于 2015-6-12 16:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29236606&amp;ptid=98922" target="_blank">李剡s 发表于 2015-6-12 13:41</a>
 
 蕾贝卡这确实无耻的看出感觉来了，这没事就喜欢逞能给人添乱的丫头也没什么好，这集被方块虐反而这么有感 ...</blockquote>
 没所谓了，反正只是个读者记不住的角色：性格没亮点，没实力，样貌直接搬娜米
-
-
-
-
-
 
 
 -----
@@ -2244,17 +1488,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37616#       发表于 2015-6-12 16:13
 
 
-
-
 重大发表：微甜老师身体不适海贼王暂时停刊。以后就跟老贼比谁拖得久啦。
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -2263,21 +1500,13 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 ##### 37617#       发表于 2015-6-14 04:38
 
 
-
-
 卡普白烟达斯琪克比，战国青鸡藤虎（此三强烈存疑），娜美干妈罗宾巨人火鸡弟弟，不少了。海军要是纯黑，真.反面海军的人数戏份还不如前面这些吧？
-
-
-
-
-
 
 
 -----
 
 ####  flyzzhj  
 ##### 37618#       发表于 2015-6-14 07:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29251319&amp;ptid=98922" target="_blank">wulaval 发表于 2015-6-14 04:38</a>
@@ -2308,16 +1537,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 海军就算不能算纯黑的，起码是深灰的
 
 
-
-
-
-
-
 -----
 
 ####  境宗久  
 ##### 37619#       发表于 2015-6-14 16:50
-
 
 
  本帖最后由 境宗久 于 2015-6-14 17:00 编辑 
@@ -2327,16 +1550,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 还没看的话千万别看，免得眼睛受伤，直接等下一集好了
 
 
-
-
-
-
-
 -----
 
 ####  靐龘龖龘  
 ##### 37620#       发表于 2015-6-14 19:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29255377&amp;ptid=98922" target="_blank">境宗久 发表于 2015-6-14 16:50</a>
@@ -2347,16 +1564,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 你说的是动画？
 
 
-
-
-
-
-
 -----
 
 ####  境宗久  
 ##### 37621#       发表于 2015-6-14 23:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29256788&amp;ptid=98922" target="_blank">靐龘龖龘 发表于 2015-6-14 19:58</a>
@@ -2365,22 +1576,15 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 是的，今天这一集仿佛回到了鱼人岛时代。
 
 
-
 ---------------------------------------------------------------
 
 <img src="http://i1.tietuku.com/6ca30f472862baa8.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  境宗久  
 ##### 37622#       发表于 2015-6-15 10:44
-
 
 
  本帖最后由 境宗久 于 2015-6-15 10:51 编辑 
@@ -2390,17 +1594,10 @@ http://imgsrc.baidu.com/forum/w%3D580/sign=08cb9b2cbc014a90813e ...</blockquote>
 [http://www.oricon.co.jp/news/2054292/full/](http://www.oricon.co.jp/news/2054292/full/)
 
 
-
-
-
-
-
 -----
 
 ####  suika  
 ##### 37623#       发表于 2015-6-15 12:26
-
-
 
 
 Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰激凌吃了，对不起，还赔钱给人家买新的。
@@ -2408,16 +1605,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 绝壁海军正面形象。
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37624#       发表于 2015-6-15 13:28
-
 
 
 <blockquote>引用第37699楼境宗久于2015-06-07 22:29发表的  :</blockquote>
@@ -2427,16 +1618,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ----发送自 [Sony D5803,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37625#       发表于 2015-6-15 13:30
-
 
 
 <blockquote>引用第37709楼liangjiami于2015-06-12 16:04发表的  :
@@ -2448,16 +1633,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ----发送自 [Sony D5803,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37626#       发表于 2015-6-16 04:25
-
 
 
 [http://tieba.baidu.com/p/3829896139?fr=frs](http://tieba.baidu.com/p/3829896139?fr=frs)
@@ -2467,17 +1646,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 如果是真的我还是很欣慰的，至少不会是下一话随便打完结束了，毕竟连鸟叔的墨镜都没打败怎么可能打败鸟叔
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37627#       发表于 2015-6-16 07:37
-
-
 
 
 这图不太像海贼画风啊，欢迎打脸。
@@ -2486,16 +1658,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ----发送自 [Sony D5803,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 37628#       发表于 2015-6-16 08:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29269821&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-16 04:25</a>
@@ -2508,17 +1674,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 这图感觉上上个礼拜就见过了...
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 37629#       发表于 2015-6-16 18:14
-
-
 
 
 [cp]#海贼王#TV动画《 萨波的小插曲 ~三兄弟之间的羁绊 奇迹的再会&amp;继承意志~》将于8月22日日本时间晚上9点播出。这次的故事围绕萨博展开，讲述了三兄弟小时候的一些故事，以及萨波当初是如何潜入德雷斯罗萨的，这个小插曲在漫画和动画中都没有提及过，很值得一看。这次动画组的海报也很有爱哦~[/cp]
@@ -2527,16 +1686,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  境宗久  
 ##### 37630#       发表于 2015-6-16 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29263333&amp;ptid=98922" target="_blank">萝卜roto 发表于 2015-6-15 13:28</a>
@@ -2554,16 +1707,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 渡边巧大还担任了探险Driland二、三期的人设兼总作监，不过这部作品比较子供向，男主配音也算不上好，是一部比较小众的作品。
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37631#       发表于 2015-6-16 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29275858&amp;ptid=98922" target="_blank">境宗久 发表于 2015-6-16 18:18</a>
@@ -2575,25 +1722,15 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 谢谢科普..
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37632#       发表于 2015-6-17 22:17
 
 
-
-
 明天下午更新
 
 标题 王者VS王者
-
-
-
 
 
 明哥承认草帽实力，懂得很多人栽他手里的原因
@@ -2608,11 +1745,7 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 海军也支持路飞
 
 
-
-
-
 最后两页是胜负揭晓，明哥一分身朝罗飞去
-
 
 
 完
@@ -2623,25 +1756,13 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 又吃瘪了.
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 37633#       发表于 2015-6-17 23:42
 
 
-
-
 还没打完<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2650,16 +1771,9 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37634#       发表于 2015-6-17 23:55
 
 
-
-
 腾虎感叹这里遇到王者资质战斗，索隆让他闭嘴阻止鸟笼
 
 <img src="https://static.saraba1st.com/image/smiley/face/28.gif" referrerpolicy="no-referrer"> 藤虎时髦值这要跌破谷底了吧
-
-
-
-
-
 
 
 -----
@@ -2668,12 +1782,9 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37635#       发表于 2015-6-18 11:28
 
 
-
  本帖最后由 境宗久 于 2015-6-18 11:31 编辑 
 
 貌似本周Jump的超重大发表还真就只是吉尼斯世界纪录的事<img src="https://static.saraba1st.com/image/smiley/face/14.gif" referrerpolicy="no-referrer">
-
-
 
 
 790情报 &gt;&gt; [http://tieba.baidu.com/p/3834663709?fr=frs](http://tieba.baidu.com/p/3834663709?fr=frs)
@@ -2682,25 +1793,13 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 明哥本体碎掉了
 
 
-
-
-
-
-
 -----
 
 ####  powerpyc  
 ##### 37636#       发表于 2015-6-18 11:34
 
 
-
-
 贴吧有个文字情报的翻译机版本
-
-
-
-
-
 
 
 -----
@@ -2709,22 +1808,13 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37637#       发表于 2015-6-18 11:52
 
 
-
-
 大招居然不是连打型
-
-
-
-
-
 
 
 -----
 
 ####  kfc汉堡  
 ##### 37638#       发表于 2015-6-18 12:06
-
-
 
 
 眼镜碎了。
@@ -2735,25 +1825,13 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 眼镜果实既然没用，那说明火鸡输了。
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 37639#       发表于 2015-6-18 12:13
 
 
-
-
 眼镜碎了这话能露个脸不
-
-
-
-
-
 
 
 -----
@@ -2762,16 +1840,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37640#       发表于 2015-6-18 12:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29292250&amp;ptid=98922" target="_blank">嘲风 发表于 2015-6-18 12:13</a>
 
 眼镜碎了这话能露个脸不</blockquote>
 在最后一页碎掉的。
-
-
-
-
-
 
 
 -----
@@ -2780,22 +1852,13 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37641#       发表于 2015-6-18 13:41
 
 
-
-
 鼠绘韩华除了，山治出现在封面了噗
-
-
-
-
-
 
 
 -----
 
 ####  羲和  
 ##### 37642#       发表于 2015-6-18 13:42
-
-
 
 
 结果是四档+三档啊 最后一击的画面感有点差。。。不过和雷利那段对话 是在暗示还有其他形态对付四皇用吗
@@ -2807,17 +1870,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 总算打完了 全世界会有什么反应呢
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37643#       发表于 2015-6-18 13:44
-
-
 
 
 汉化出了，标题天与地。。这么高大上，感觉都不像op风格了。
@@ -2826,17 +1882,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ----发送自 [Sony D5833,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 37644#       发表于 2015-6-18 13:54
-
-
 
 
 最后那招叫什么名字？神诛杀这三个字是火鸡说的还是路飞说的，感觉路飞没有这么有文化，然而最后那段对D的解说又好像在说，这名字就是路飞起得
@@ -2845,17 +1894,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 还有火鸡最后那招名字怎么那么中二，十二神圣什么什么，太中二了无法直视<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37645#       发表于 2015-6-18 13:55
-
-
 
 
 总算有一招像样点的AOE了。
@@ -2865,16 +1907,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ----发送自 [Sony D5833,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 37646#       发表于 2015-6-18 13:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29293229&amp;ptid=98922" target="_blank">羲和 发表于 2015-6-18 13:42</a>
@@ -2886,25 +1922,13 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 我也没想明白雷利那段话指的是什么，如果就是说要四档+三档强化攻击一击必杀节省四档形态的霸气消耗的话那也太让人失望了，希望还能有其他形态吧。。。
 
 
-
-
-
-
-
 -----
 
 ####  葛西  
 ##### 37647#       发表于 2015-6-18 13:57
 
 
-
-
 太拖了
-
-
-
-
-
 
 
 -----
@@ -2913,14 +1937,7 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37648#       发表于 2015-6-18 13:57
 
 
-
-
 明哥吐槽血统，路飞真笑了。 
-
-
-
-
-
 
 
 -----
@@ -2929,14 +1946,7 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37649#       发表于 2015-6-18 14:01
 
 
-
-
 山治终于出现了，彩色的
-
-
-
-
-
 
 
 -----
@@ -2945,23 +1955,16 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37650#       发表于 2015-6-18 14:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29293372&amp;ptid=98922" target="_blank">Futanari 发表于 2015-6-18 13:57</a>
 
 明哥吐槽血统，路飞真笑了。</blockquote>
 明哥吐槽血统，旁白吐槽明哥，罗：我就看看我不说话
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 37651#       发表于 2015-6-18 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29293356&amp;ptid=98922" target="_blank">萝卜roto 发表于 2015-6-18 13:55</a>
@@ -2972,16 +1975,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 橡胶像AOE很难吧....要做到超人系的顶尖AOE像老爹那样怕是很难
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 37652#       发表于 2015-6-18 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29293411&amp;ptid=98922" target="_blank">结标淡希 发表于 2015-6-18 14:01</a>
@@ -2990,17 +1987,10 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 路飞最后这招也不算AOE吧
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 37653#       发表于 2015-6-18 14:05
-
-
 
 
 仔细看最后的图。
@@ -3010,25 +2000,13 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ----发送自 [Sony D5833,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  结标淡希  
 ##### 37654#       发表于 2015-6-18 14:05
 
 
-
-
 封面罗宾看着跟紫罗兰似的....
-
-
-
-
-
 
 
 -----
@@ -3037,14 +2015,7 @@ http://tieba.baidu.com/p/3829896139?fr=frs
 ##### 37655#       发表于 2015-6-18 14:14
 
 
-
-
 aoe用霸王色霸气不就好了吗？
-
-
-
-
-
 
 
 -----
@@ -3053,14 +2024,7 @@ aoe用霸王色霸气不就好了吗？
 ##### 37656#       发表于 2015-6-18 14:24
 
 
-
-
 橡胶人的AOE就是靠力气大！
-
-
-
-
-
 
 
 -----
@@ -3069,14 +2033,7 @@ aoe用霸王色霸气不就好了吗？
 ##### 37657#       发表于 2015-6-18 14:26
 
 
-
-
 路飞的貌似叫大猿王枪，神杀是明哥的招吧
-
-
-
-
-
 
 
 -----
@@ -3085,14 +2042,7 @@ aoe用霸王色霸气不就好了吗？
 ##### 37658#       发表于 2015-6-18 14:27
 
 
-
-
 看不懂雷利那句话和大招有什么关系
-
-
-
-
-
 
 
 -----
@@ -3101,14 +2051,7 @@ aoe用霸王色霸气不就好了吗？
 ##### 37659#       发表于 2015-6-18 14:29
 
 
-
-
 还是感觉拖，打斗也没什么新鲜的。。
-
-
-
-
-
 
 
 -----
@@ -3117,14 +2060,7 @@ aoe用霸王色霸气不就好了吗？
 ##### 37660#       发表于 2015-6-18 14:32
 
 
-
-
 抗揍程度倒也是真的提高了……
-
-
-
-
-
 
 
 -----
@@ -3133,13 +2069,7 @@ aoe用霸王色霸气不就好了吗？
 ##### 37661#       发表于 2015-6-18 15:06
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">我怎么想起当年路奇的大招  六式奥义-六王枪了
-
-
-
-
-
 
 
 -----
@@ -3148,14 +2078,7 @@ aoe用霸王色霸气不就好了吗？
 ##### 37662#       发表于 2015-6-18 15:24
 
 
-
-
 其实海贼世界就是比谁拳头大，拳头硬（字面意思）
-
-
-
-
-
 
 
 -----
@@ -3164,14 +2087,7 @@ aoe用霸王色霸气不就好了吗？
 ##### 37663#       发表于 2015-6-18 15:25
 
 
-
-
 话说路飞带岛上那群动物出来妥妥的海贼王了吧
-
-
-
-
-
 
 
 -----
@@ -3180,21 +2096,13 @@ aoe用霸王色霸气不就好了吗？
 ##### 37664#       发表于 2015-6-18 15:32
 
 
-
-
 不得不说整个战斗流程有些让人失望。 打莫里亚用的是二档+三档。打鸟人最后是三档+四档。
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 37665#       发表于 2015-6-18 15:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294349&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-6-18 15:25</a>
@@ -3205,17 +2113,10 @@ aoe用霸王色霸气不就好了吗？
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">如果甜甜果实的觉醒是AOE区域性石化就炸裂了
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 37666#       发表于 2015-6-18 15:41
-
-
 
 
 明哥这是吃了轻敌的亏吧，路飞先是示弱，然后开大招，明哥以为路飞不行了，上去对招，结果被拍飞……
@@ -3223,16 +2124,10 @@ aoe用霸王色霸气不就好了吗？
 唉…
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 37667#       发表于 2015-6-18 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29294550&amp;amp;ptid=98922" target="_blank">hagane 发表于 2015-6-18 15:41</a>
@@ -3242,16 +2137,10 @@ aoe用霸王色霸气不就好了吗？
 明哥其实是太目中无人，太猖狂了
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 37668#       发表于 2015-6-18 15:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294550&amp;ptid=98922" target="_blank">hagane 发表于 2015-6-18 15:41</a>
@@ -3262,16 +2151,10 @@ aoe用霸王色霸气不就好了吗？
 轻敌就不会路飞一复活就狂扔技能了
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 37669#       发表于 2015-6-18 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294437&amp;ptid=98922" target="_blank">革新 发表于 2015-6-18 15:32</a>
@@ -3280,16 +2163,10 @@ aoe用霸王色霸气不就好了吗？
 比较奇怪莫里亚之后就没怎么体现二档+三档了
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 37670#       发表于 2015-6-18 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294600&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-6-18 15:44</a>
@@ -3302,16 +2179,10 @@ aoe用霸王色霸气不就好了吗？
 结果到路飞打出那一拳，明哥头上出现个感叹号分明是感到不对劲了，最后就被拍飞
 
 
-
-
-
-
-
 -----
 
 ####  冰霜履叶  
 ##### 37671#       发表于 2015-6-18 15:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294573&amp;ptid=98922" target="_blank">暗影翔 发表于 2015-6-18 15:43</a>
@@ -3320,16 +2191,10 @@ aoe用霸王色霸气不就好了吗？
 明哥时髦值全无，只会叫嚣啊。话说那点儿线瞬间被路飞扯断是什么鬼，跟鸟笼不是一个材料的？
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 37672#       发表于 2015-6-18 15:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294656&amp;ptid=98922" target="_blank">冰霜履叶 发表于 2015-6-18 15:49</a>
@@ -3338,16 +2203,10 @@ aoe用霸王色霸气不就好了吗？
 寄生线而已，鸟笼那是外星科技，跟这个不一样
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 37673#       发表于 2015-6-18 15:52
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">输的原因
@@ -3376,16 +2235,10 @@ aoe用霸王色霸气不就好了吗？
 明哥：轻敌？
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 37674#       发表于 2015-6-18 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294693&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-18 15:52</a>
@@ -3400,26 +2253,13 @@ aoe用霸王色霸气不就好了吗？
 打鸟人也算是车轮战了，罗之前几次攻击应该对他削弱很大。
 
 
-
-
-
-
-
-
 -----
 
 ####  琼恩·雪诺  
 ##### 37675#       发表于 2015-6-18 15:58
 
 
-
-
 明哥看见开4档居然不龟缩防守拖时间还刚正面，WT太侮辱观众智商了吧这次。
-
-
-
-
-
 
 
 -----
@@ -3428,7 +2268,6 @@ aoe用霸王色霸气不就好了吗？
 ##### 37676#       发表于 2015-6-18 15:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294746&amp;ptid=98922" target="_blank">革新 发表于 2015-6-18 15:58</a>
 
 路奇最后就是躲不开，他腿有受伤。 他轻敌在于第一次见三档楞了一下硬吃了一击直接被打蒙了腿也伤了。
@@ -3436,11 +2275,6 @@ aoe用霸王色霸气不就好了吗？
 
  ...</blockquote>
 路奇那时候输的特别不舒服。。
-
-
-
-
-
 
 
 -----
@@ -3449,7 +2283,6 @@ aoe用霸王色霸气不就好了吗？
 ##### 37677#       发表于 2015-6-18 15:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294746&amp;ptid=98922" target="_blank">革新 发表于 2015-6-18 15:58</a>
 
 路奇最后就是躲不开，他腿有受伤。 他轻敌在于第一次见三档楞了一下硬吃了一击直接被打蒙了腿也伤了。
@@ -3459,16 +2292,10 @@ aoe用霸王色霸气不就好了吗？
 路奇那时候输的特别不舒服。。
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 37678#       发表于 2015-6-18 16:03
-
 
 
  本帖最后由 革新 于 2015-6-18 16:04 编辑 
@@ -3480,32 +2307,19 @@ aoe用霸王色霸气不就好了吗？
 这次鸟人看到路飞四档不是也类似的效果。 最早还有打沙鳄鱼时候用过的水路飞。外表搞笑招数经常出奇效。
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 37679#       发表于 2015-6-18 16:04
 
 
-
-
 这期路飞仍然需要罗帮忙，否则妹纸就被火鸡弄死了
-
-
-
-
-
 
 
 -----
 
 ####  jsyyyz  
 ##### 37680#       发表于 2015-6-18 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294805&amp;ptid=98922" target="_blank">革新 发表于 2015-6-18 16:03</a>
@@ -3516,16 +2330,10 @@ aoe用霸王色霸气不就好了吗？
 其实倒不是招帅不帅，就是感觉，路飞对路奇那场后期，路奇一直都是占尽了上风，六王枪路飞基本上全中，最后还能爬起来开挂把路奇打倒，就这感觉不合理。
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 37681#       发表于 2015-6-18 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294753&amp;ptid=98922" target="_blank">琼恩·雪诺 发表于 2015-6-18 15:58</a>
@@ -3534,16 +2342,10 @@ aoe用霸王色霸气不就好了吗？
 有哪次BOSS不是肛正面的，更何况火鸡这么自负的人。火鸡两套技能组合就是认为自己能挡路飞的猿王筒，发现路飞4档还继续充气就发现不对路了而已。
 
 
-
-
-
-
-
 -----
 
 ####  ioridx  
 ##### 37682#       发表于 2015-6-18 16:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294746&amp;ptid=98922" target="_blank">革新 发表于 2015-6-18 15:58</a>
@@ -3558,17 +2360,10 @@ aoe用霸王色霸气不就好了吗？
 变相也是瞧不起轻敌情绪所致
 
 
-
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 37683#       发表于 2015-6-18 16:32
-
 
 
 <blockquote>suika 发表于 2015-6-15 12:26
@@ -3578,26 +2373,15 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 铁汉柔情，过去塑造smoker有满多经典桥段的
 
 
-
-
-
-
-
 -----
 
 ####  GreenBird  
 ##### 37684#       发表于 2015-6-18 16:37
 
 
-
 <blockquote>faust123 发表于 2015-6-18 15:24
 其实海贼世界就是比谁拳头大，拳头硬（字面意思）</blockquote>
 还真是这样，打雷神的时候还不会档位，直接金属球当拳头砸过去…
-
-
-
-
-
 
 
 -----
@@ -3606,14 +2390,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37685#       发表于 2015-6-18 16:39
 
 
-
-
 墨镜碎了！
-
-
-
-
-
 
 
 -----
@@ -3622,14 +2399,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37686#       发表于 2015-6-18 16:42
 
 
-
-
 硬又黑的霸气拳头还能充气，就像铁一样的球还能跟皮球一样吹气膨胀，明哥只有“我也想知道啊”
-
-
-
-
-
 
 
 -----
@@ -3638,14 +2408,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37687#       发表于 2015-6-18 16:45
 
 
-
-
 鸟笼的线实在太恶心了，寄生线四档一绷就断了，他妈鸟笼的线就愣是索隆和藤虎都没辙。
-
-
-
-
-
 
 
 -----
@@ -3654,21 +2417,13 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37688#       发表于 2015-6-18 16:50
 
 
-
-
 下一话是打披风，还是火鸡，还是鸟笼
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 37689#       发表于 2015-6-18 16:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294693&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-18 15:52</a>
@@ -3680,25 +2435,13 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 不过现在可以说是武装色什么的
 
 
-
-
-
-
-
 -----
 
 ####  wulaval  
 ##### 37690#       发表于 2015-6-18 17:24
 
 
-
-
 梅花至今没上线，是不是死透了？这也太没用了吧？
-
-
-
-
-
 
 
 -----
@@ -3707,14 +2450,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37691#       发表于 2015-6-18 17:24
 
 
-
-
 梅花至今没上线，是不是死透了？这也太没用了吧？
-
-
-
-
-
 
 
 -----
@@ -3723,14 +2459,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37692#       发表于 2015-6-18 17:45
 
 
-
-
 现在178订阅都不更新了么？
-
-
-
-
-
 
 
 -----
@@ -3739,16 +2468,9 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37693#       发表于 2015-6-18 17:59
 
 
-
-
 那一招是不是叫 大猿王神诛杀枪
 
 然后火鸡的叫做 十六发神圣凶蛋
-
-
-
-
-
 
 
 -----
@@ -3757,21 +2479,13 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37694#       发表于 2015-6-18 18:07
 
 
-
-
 明明被路飞开四档吊打过一次了，还要硬上，你以为自己是主角吗<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  门田京平  
 ##### 37695#       发表于 2015-6-18 18:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294753&amp;ptid=98922" target="_blank">琼恩·雪诺 发表于 2015-6-18 15:58</a>
@@ -3786,17 +2500,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 最后就是德岛现在范围就那么小了，真要躲还不如用线拉几个杂兵挡技能合理点
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 37696#       发表于 2015-6-18 18:21
-
-
 
 
 论硬接主角大招的必要性
@@ -3805,16 +2512,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37697#       发表于 2015-6-18 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29295926&amp;ptid=98922" target="_blank">弯弓射山猪 发表于 2015-6-18 17:59</a>
@@ -3826,16 +2527,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 十六发神圣凶弹～神诛杀
 
 
-
-
-
-
-
 -----
 
 ####  冰霜履叶  
 ##### 37698#       发表于 2015-6-18 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29295182&amp;ptid=98922" target="_blank">狼=0=吼 发表于 2015-6-18 16:39</a>
@@ -3844,16 +2539,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 火鸡：你。。。你竟然看穿了我的本体！
 
 
-
-
-
-
-
 -----
 
 ####  弯弓射山猪  
 ##### 37699#       发表于 2015-6-18 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29296191&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-18 18:27</a>
@@ -3866,17 +2555,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 下面那个太中二了啊 上面那个起的太没创意了啊！
 
 
-
-
-
-
-
 -----
 
 ####  gpx234  
 ##### 37700#       发表于 2015-6-18 18:40
-
-
 
 
 眼镜才是本体
@@ -3885,16 +2567,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 明哥已经败了
 
 
-
-
-
-
-
 -----
 
 ####  wingchau  
 ##### 37701#       发表于 2015-6-18 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294753&amp;ptid=98922" target="_blank">琼恩·雪诺 发表于 2015-6-18 15:58</a>
@@ -3903,32 +2579,19 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 前面羽击线破了路飞的霸气,觉得路飞体力已经跟不上吧,这倒说得通.
 
 
-
-
-
-
-
 -----
 
 ####  巴尔库夫  
 ##### 37702#       发表于 2015-6-18 19:03
 
 
-
-
 鸟叔心理一定神兽奔腾:主角光环都能改变世界法则,石头剪刀布的规则都被逆转了<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  kfc汉堡  
 ##### 37703#       发表于 2015-6-18 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294837&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-18 16:05</a>
@@ -3953,16 +2616,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 火鸡这个其实也还是弱，就是打着太2逼所以不好看
 
 
-
-
-
-
-
 -----
 
 ####  higaliken  
 ##### 37704#       发表于 2015-6-18 19:30
-
 
 
  本帖最后由 higaliken 于 2015-6-18 19:42 编辑 
@@ -3978,27 +2635,15 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 更何况龙珠那样的格斗漫最终决定胜负的也都是对大波，对不过的就败，简单直接
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 37705#       发表于 2015-6-18 20:15
 
 
-
-
 火鸡本体已碎，走好不送
 
 最后的大招名还能更中二点嘛<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4007,21 +2652,13 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37706#       发表于 2015-6-18 20:25
 
 
-
-
 火鸡这要是还能在站起来打我真要骂娘了
-
-
-
-
-
 
 
 -----
 
 ####  taichiY  
 ##### 37707#       发表于 2015-6-18 20:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294753&amp;ptid=98922" target="_blank">琼恩·雪诺 发表于 2015-6-18 15:58</a>
@@ -4033,16 +2670,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 明哥是一个非常自负的人呀
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 37708#       发表于 2015-6-18 21:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29294746&amp;ptid=98922" target="_blank">革新 发表于 2015-6-18 15:58</a>
@@ -4054,26 +2685,15 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 附议。如果不硬接三档 路奇还是有优势的。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 37709#       发表于 2015-6-18 21:12
 
 
-
  本帖最后由 yario 于 2015-6-18 21:15 编辑 
 
 连楼编辑~
-
-
-
-
-
 
 
 -----
@@ -4082,14 +2702,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37710#       发表于 2015-6-18 21:42
 
 
-
-
 明哥一直带墨镜，难道是瞎子。。。
-
-
-
-
-
 
 
 -----
@@ -4098,16 +2711,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37711#       发表于 2015-6-18 21:52
 
 
-
 [http://www.ishuhui.com/archives/374092](http://www.ishuhui.com/archives/374092)
 
 
 鼠绘还挺会玩的啊<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4116,16 +2723,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37712#       发表于 2015-6-18 21:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29297942&amp;ptid=98922" target="_blank">acgzero 发表于 2015-6-18 21:42</a>
 
 明哥一直带墨镜，难道是瞎子。。。</blockquote>
 是李荣浩
-
-
-
-
-
 
 
 -----
@@ -4134,14 +2735,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37713#       发表于 2015-6-18 22:02
 
 
-
-
 就好比说刚复活满血满魔还会瞬间移动的沙鲁，最后为什么不趁着悟饭伤一臂，先干掉旁观的z战士，然后慢慢玩死残血悟饭一样。     这么打胜率肯定比跟悟饭对飚冲击波更高吧。。    
-
-
-
-
-
 
 
 -----
@@ -4150,16 +2744,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37714#       发表于 2015-6-18 22:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29298100&amp;ptid=98922" target="_blank">sta777 发表于 2015-6-18 22:02</a>
 
 就好比说刚复活满血满魔还会瞬间移动的沙鲁，最后为什么不趁着悟饭伤一臂，先干掉旁观的z战士，然后慢慢玩 ...</blockquote>
 沙鲁混合了赛亚人的细胞，具有赛亚人生来的高傲。因为沙鲁认定了自己比悟饭强，所以才会自己作死。
-
-
-
-
-
 
 
 -----
@@ -4168,14 +2756,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37715#       发表于 2015-6-18 22:18
 
 
-
-
 说杠正面的，六式高手一直闪躲磨血就必赢咯，明哥趁路飞扑地的时候弄了很多个影分身来扛四档，最后补刀就行咯？
-
-
-
-
-
 
 
 -----
@@ -4184,16 +2765,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37716#       发表于 2015-6-18 22:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29298205&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-6-18 22:15</a>
 
 沙鲁混合了赛亚人的细胞，具有赛亚人生来的高傲。因为沙鲁认定了自己比悟饭强，所以才会自己作死。 ...</blockquote>
 那么类推到此，火鸡从始至终狂喷别人血统低贱，所以自负满满，干什么作死的事也不奇怪了
-
-
-
-
-
 
 
 -----
@@ -4202,14 +2777,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37717#       发表于 2015-6-18 22:31
 
 
-
-
 主角被动技能 残血强制对波 不爽不要玩
-
-
-
-
-
 
 
 -----
@@ -4218,14 +2786,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37718#       发表于 2015-6-18 22:39
 
 
-
-
 ...才发现彩页中草帽团以路飞为界清晰的分成了掉线组和在线组。来自尾田的恶意。
-
-
-
-
-
 
 
 -----
@@ -4234,14 +2795,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37719#       发表于 2015-6-18 22:40
 
 
-
-
 接下来估计又要开派对吃吃吃拖一话，德岛事件消息传遍世界拖一话，草帽团新悬赏拖一话
-
-
-
-
-
 
 
 -----
@@ -4250,21 +2804,13 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37720#       发表于 2015-6-18 22:48
 
 
-
-
 现在790，按惯例op逢百话都会造话题   800话应该是厨子归来了
-
-
-
-
-
 
 
 -----
 
 ####  青螳  
 ##### 37721#       发表于 2015-6-18 22:48
-
 
 
 <blockquote>Yeaha123 发表于 2015-6-18 22:40
@@ -4274,16 +2820,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 这次估计是开不了party了，一是草帽团人都没齐，大家还在佐乌等着，二是海军还在，藤虎再怎么装瞎也不能让手下看着路飞开完party然后远走高飞吧
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 37722#       发表于 2015-6-18 23:03
-
 
 
 <blockquote>引用第37791楼sta777于2015-06-18 22:48发表的  :
@@ -4295,26 +2835,15 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 37723#       发表于 2015-6-18 23:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29298381&amp;amp;ptid=98922" target="_blank">Renes 发表于 2015-6-18 22:31</a>
 主角被动技能 残血强制对波 不爽不要玩</blockquote>
 为啥不是1血强制一招定胜负，同时本方招数伤害无限
-
-
-
-
-
 
 
 -----
@@ -4323,15 +2852,9 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37724#       发表于 2015-6-19 00:03
 
 
-
 <blockquote>暗影翔 发表于 2015-6-18 23:47
 为啥不是1血强制一招定胜负，同时本方招数伤害无限</blockquote>
 因为主角残血对波不会输
-
-
-
-
-
 
 
 -----
@@ -4340,15 +2863,9 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37725#       发表于 2015-6-19 00:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29299203&amp;amp;ptid=98922" target="_blank">Renes 发表于 2015-6-19 00:03</a>
 因为主角残血对波不会输</blockquote>
 你的原设定没有残血对波不会输
-
-
-
-
-
 
 
 -----
@@ -4357,17 +2874,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37726#       发表于 2015-6-19 00:43
 
 
-
-
 看鼠绘做的那个动图漫画 新招的名字好像真是大猿王神诛杀枪
 
 
 这么一看火鸡大概是输在招式名字上了 唔。。。
-
-
-
-
-
 
 
 -----
@@ -4376,21 +2886,13 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37727#       发表于 2015-6-19 01:14
 
 
-
-
 用做鸟笼的线来控制人岂不无敌了，大将都没办法
-
-
-
-
-
 
 
 -----
 
 ####  蒹葭公子  
 ##### 37728#       发表于 2015-6-19 02:06
-
 
 
  本帖最后由 蒹葭公子 于 2015-6-19 02:08 编辑 
@@ -4402,33 +2904,19 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 当然路飞也硬食了鸽子男的六王枪，你要说橡胶人扛打是主角光环那也没办法……
 
 
-
-
-
-
-
 -----
 
 ####  ramoc  
 ##### 37729#       发表于 2015-6-19 02:07
 
 
-
-
 说分不清哪个招名是谁的的，两招必杀技字体是不一样的，很容易分出来。
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 37730#       发表于 2015-6-19 08:20
-
-
 
 
 终于把眼镜打倒了，下周该开boss了吧
@@ -4438,16 +2926,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 最后就是鸟叔到底会不会也长着一双标准天龙人眼呢，好好奇啊
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 37731#       发表于 2015-6-19 09:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29299856&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2015-6-19 02:06</a>
@@ -4458,16 +2940,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 我认为路奇是2年前唯一真正同路飞旗鼓相当的BOSS
 
 
-
-
-
-
-
 -----
 
 ####  云中君  
 ##### 37732#       发表于 2015-6-19 09:18
-
 
 
 <img src="http://wenwen.soso.com/p/20100929/20100929152955-690520939.jpg" referrerpolicy="no-referrer">
@@ -4475,16 +2951,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 火鸡摘下眼睛一定是一双水汪汪的大眼睛，骗不了我的
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 37733#       发表于 2015-6-19 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29300502&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-19 08:20</a>
@@ -4495,25 +2965,13 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 我觉得整个BOSS战节奏都很有问题。首先为了突出4档把2档和3档都削了，2档的速度没体现出来，3档被一个**无压力挡下。我认为安排2+3档的路飞稍占优势，但拿觉醒火鸡没办法比较好。
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 37734#       发表于 2015-6-19 09:52
 
 
-
-
 神的天地，艾尼路=神，天龙人=神<img src="https://static.saraba1st.com/image/smiley/face/07.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4522,14 +2980,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37735#       发表于 2015-6-19 10:08
 
 
-
-
 路奇的表现比明哥好太多了~
-
-
-
-
-
 
 
 -----
@@ -4538,16 +2989,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37736#       发表于 2015-6-19 14:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29300804&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-6-19 09:06</a>
 
 我认为路奇是2年前唯一真正同路飞旗鼓相当的BOSS</blockquote>
 你让鳄鱼情何以堪……
-
-
-
-
-
 
 
 -----
@@ -4556,16 +3001,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37737#       发表于 2015-6-19 14:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29304002&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2015-6-19 14:20</a>
 
 你让鳄鱼情何以堪……</blockquote>
 其他人都比路飞强很多吧
-
-
-
-
-
 
 
 -----
@@ -4574,16 +3013,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37738#       发表于 2015-6-19 15:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29304218&amp;ptid=98922" target="_blank">faust123 发表于 2015-6-19 14:43</a>
 
 其他人都比路飞强很多吧</blockquote>
 鳄鱼杀了路飞2次，还不算吊打路飞
-
-
-
-
-
 
 
 -----
@@ -4592,16 +3025,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37739#       发表于 2015-6-19 15:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29304844&amp;ptid=98922" target="_blank">alecwong 发表于 2015-6-19 15:48</a>
 
 鳄鱼杀了路飞2次，还不算吊打路飞</blockquote>
 3次，路飞最后中了毒还是罗宾救的
-
-
-
-
-
 
 
 -----
@@ -4610,14 +3037,7 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37740#       发表于 2015-6-19 15:59
 
 
-
-
 这几期无聊死了
-
-
-
-
-
 
 
 -----
@@ -4626,24 +3046,16 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 ##### 37741#       发表于 2015-6-19 18:30
 
 
-
-
 神诛杀枪，虽然很二，但是与最后罗那句神的敌人呼应。
 
 
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37742#       发表于 2015-6-19 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29304002&amp;ptid=98922" target="_blank">蒹葭公子 发表于 2015-6-19 14:20</a>
@@ -4654,16 +3066,10 @@ Smoke超级好人啊，刚出场，对一个小姑娘说，我的鞋子把你冰
 CP9篇整个的感觉就是“很难打，但拼命可以一战”，老沙艾尼路就纯粹的是“卧槽这他妈能赢？”了
 
 
-
-
-
-
-
 -----
 
 ####  JC_AR  
 ##### 37743#       发表于 2015-6-19 18:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29306296&amp;amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-19 18:37</a>
@@ -4673,17 +3079,10 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 同意，老沙和爱尼路完全是发挥了恶魔果实这个主题的特点，想象力超出常人，特别是爱尼路，各种秒杀船员，看的相当绝望
 
 
-
-
-
-
-
 -----
 
 ####  不懂就问问  
 ##### 37744#       发表于 2015-6-19 21:37
-
-
 
 
 橡胶果实觉醒后就能aoe了呀
@@ -4692,16 +3091,10 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 就像明哥的线觉醒一样 地面变成橡胶伸出无数拳头就可以了
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 37745#       发表于 2015-6-23 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29304844&amp;ptid=98922" target="_blank">alecwong 发表于 2015-6-19 15:48</a>
@@ -4710,32 +3103,19 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 三次吧，最后一次路飞中毒必死，罗宾救了路飞
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 37746#       发表于 2015-6-23 16:42
 
 
-
-
 哦哦对对，三次，毒杀
-
-
-
-
-
 
 
 -----
 
 ####  基斯保罗  
 ##### 37747#       发表于 2015-6-23 17:16
-
 
 
 <blockquote>不懂就问问 发表于 2015-6-19 21:37
@@ -4746,16 +3126,10 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 这样罗宾可以下船了
 
 
-
-
-
-
-
 -----
 
 ####  不懂就问问  
 ##### 37748#       发表于 2015-6-23 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29340560&amp;ptid=98922" target="_blank">基斯保罗 发表于 2015-6-23 17:16</a>
@@ -4764,26 +3138,15 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 罗宾这个不一样啊 可以层层递归叠加 还可以在人身上长
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 37749#       发表于 2015-6-24 01:49
 
 
-
 <img src="http://ww1.sinaimg.cn/bmiddle/93c30c9egw1etejy52pf3j20g60i4q3w.jpg" referrerpolicy="no-referrer">
 
 大师来了！
-
-
-
-
-
 
 
 -----
@@ -4792,16 +3155,10 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 ##### 37750#       发表于 2015-6-24 20:49
 
 
-
 [http://tieba.baidu.com/p/3848307681?fr=frs](http://tieba.baidu.com/p/3848307681?fr=frs)
 
 
 情报（一图流）
-
-
-
-
-
 
 
 -----
@@ -4810,21 +3167,13 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 ##### 37751#       发表于 2015-6-24 21:15
 
 
-
-
 然而鸟笼看起来并没有消失，4档没什么卵用。
-
-
-
-
-
 
 
 -----
 
 ####  门田京平  
 ##### 37752#       发表于 2015-6-24 21:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29300502&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-19 08:20</a>
@@ -4835,27 +3184,15 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 不能同意更多，感觉第一回合狂用二三档甚至多添个二三档一起用的招式导致霸气用完还能理解点，现在的情况倒是好不容易盼出个强力新必杀结果debuff可怕的不像话
 
 
-
-
-
-
-
 -----
 
 ####  ccavfun  
 ##### 37753#       发表于 2015-6-24 22:03
 
 
-
-
 我第一次那么强烈地觉得海贼王好难看，要是这样还是换个不那么蠢的编辑比较好
 
 —— 来自 Meizu m1 note, Android 4.4.4
-
-
-
-
-
 
 
 -----
@@ -4864,9 +3201,7 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 ##### 37754#       发表于 2015-6-24 22:03
 
 
-
  本帖最后由 门田京平 于 2015-6-24 22:10 编辑 
-
 
 
 <img src="https://img.saraba1st.com/forum/201506/24/220442kweqbbyravrwfwfz.png" referrerpolicy="no-referrer">
@@ -4879,23 +3214,13 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 2015-6-24 22:04 上传
 
 
-
-
-
-
 7月3号新篇章，德岛好像快3年了吧，山治掉线都一年+7个半月了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 37755#       发表于 2015-6-24 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29353332&amp;ptid=98922" target="_blank">ccavfun 发表于 2015-6-24 22:03</a>
@@ -4907,25 +3232,13 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 为什么好看是尾田的功劳，难看就是编辑的问题
 
 
-
-
-
-
-
 -----
 
 ####  sta777  
 ##### 37756#       发表于 2015-6-24 23:22
 
 
-
-
 不好看，但也说不上难看吧。这一章太注重凸出路飞了，但效果不好，让人不信服。
-
-
-
-
-
 
 
 -----
@@ -4934,16 +3247,10 @@ CP9篇整个的感觉就是“很难 ...</blockquote>
 ##### 37757#       发表于 2015-6-25 02:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29353310&amp;ptid=98922" target="_blank">门田京平 发表于 2015-6-24 21:59</a>
 
 不能同意更多，感觉第一回合狂用二三档甚至多添个二三档一起用的招式导致霸气用完还能理解点，现在的情况 ...</blockquote>
 而且二三档同时用是当年打莫里亚的终结技，早就出现过了，现在再拿出来没有一点问题。当年用完这招是直接体力不支昏过去的，两年后修行提升了用完只是脱力10分钟，逻辑性和剧情效果都不会有问题，wt大概是太着急放出四档了，连自己当年用过的招数都忘了
-
-
-
-
-
 
 
 -----
@@ -4960,25 +3267,13 @@ RE:
 因为作者又没变，变量是编辑啊！
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 37759#       发表于 2015-6-25 08:31
 
 
-
-
 所以最近几话对面反响如何
-
-
-
-
-
 
 
 -----
@@ -4987,22 +3282,15 @@ RE:
 ##### 37760#       发表于 2015-6-25 09:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29355544&amp;amp;ptid=98922" target="_blank">ccavfun 发表于 2015-6-25 06:55</a>
 因为作者又没变，变量是编辑啊！</blockquote>
 如果是換了編輯便出問題，那更應該是好看也是編輯的功勞，尾田可能只是負責畫畫吧了。
-
-
-
-
-
 
 
 -----
 
 ####  Rockchan  
 ##### 37761#       发表于 2015-6-25 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29353332&amp;amp;ptid=98922" target="_blank">ccavfun 发表于 2015-6-24 22:03</a>
@@ -5012,25 +3300,13 @@ RE:
 然後以後漫畫標示「原作：編輯名」，「繪畫：尾田」。
 
 
-
-
-
-
-
 -----
 
 ####  powerpyc  
 ##### 37762#       发表于 2015-6-25 10:31
 
 
-
-
 看情报图貌似火鸡没露眼，鸟笼被路飞打破了？<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5039,14 +3315,7 @@ RE:
 ##### 37763#       发表于 2015-6-25 10:52
 
 
-
-
 民工漫的责编应该没资格主观干涉创作,只是做小弟的事情和传达编辑部方针<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5055,22 +3324,13 @@ RE:
 ##### 37764#       发表于 2015-6-25 10:58
 
 
-
-
 所以唯一的解释就是，wt已完，现在画画的是一个只照大纲的傀儡。<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  门田京平  
 ##### 37765#       发表于 2015-6-25 11:24
-
-
 
 
 明哥还进入了某段回忆才确定被击溃。鸟笼消失，多雷斯罗萨大欢呼。
@@ -5083,16 +3343,10 @@ RE:
 下周山治与护船组们终于上线了（不出意外的话<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37766#       发表于 2015-6-25 12:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29357616&amp;ptid=98922" target="_blank">门田京平 发表于 2015-6-25 11:24</a>
@@ -5102,24 +3356,13 @@ RE:
 好像完全不是这样
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 37767#       发表于 2015-6-25 13:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">虽然这话文本很好很燃 尤其废墟或是自由之地那句 但这尼玛也太拖了
-
-
-
-
-
 
 
 -----
@@ -5128,24 +3371,16 @@ RE:
 ##### 37768#       发表于 2015-6-25 13:55
 
 
-
-
 整话都在哭，毫无进度。。
 
 
 ----发送自 [HTC HTC D816w,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 37769#       发表于 2015-6-25 13:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29358306&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-25 12:21</a>
@@ -5158,25 +3393,13 @@ RE:
 [http://www.ishuhui.com/archives/374116](http://www.ishuhui.com/archives/374116)
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 37770#       发表于 2015-6-25 13:56
 
 
-
-
 结果这话除了交代明哥彻底败了外其他都是回忆+哭啊。。。<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5185,17 +3408,10 @@ RE:
 ##### 37771#       发表于 2015-6-25 14:04
 
 
-
-
 哭了娘的一整话
 
 
 海贼确实已经完了
-
-
-
-
-
 
 
 -----
@@ -5204,14 +3420,7 @@ RE:
 ##### 37772#       发表于 2015-6-25 14:13
 
 
-
-
 这话太他妈的难看了，直接鼠标拉到底，一点儿内容都没有。
-
-
-
-
-
 
 
 -----
@@ -5220,14 +3429,7 @@ RE:
 ##### 37773#       发表于 2015-6-25 14:16
 
 
-
-
 如果德岛人民在里哭王回来后觉得“还是富日子好啊！怀念火鸡！”那还是可以封神的
-
-
-
-
-
 
 
 -----
@@ -5236,14 +3438,7 @@ RE:
 ##### 37774#       发表于 2015-6-25 14:29
 
 
-
-
 打完一场，索隆连汗都没出一滴，衣服脚都没脏。。
-
-
-
-
-
 
 
 -----
@@ -5252,14 +3447,7 @@ RE:
 ##### 37775#       发表于 2015-6-25 14:29
 
 
-
-
 打完一场，索隆连汗都没出一滴，衣服脚都没脏。。
-
-
-
-
-
 
 
 -----
@@ -5268,14 +3456,7 @@ RE:
 ##### 37776#       发表于 2015-6-25 14:30
 
 
-
-
 讲真，看这话的速度比上次看妖尾的速度还快<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5284,14 +3465,7 @@ RE:
 ##### 37777#       发表于 2015-6-25 14:31
 
 
-
-
 太拖了
-
-
-
-
-
 
 
 -----
@@ -5300,14 +3474,7 @@ RE:
 ##### 37778#       发表于 2015-6-25 14:33
 
 
-
-
 哎，欢呼了一集我也是醉了。。。。。
-
-
-
-
-
 
 
 -----
@@ -5316,15 +3483,9 @@ RE:
 ##### 37779#       发表于 2015-6-25 14:44
 
 
-
 <blockquote>猎户座 发表于 2015-6-25 14:29
 打完一场，索隆连汗都没出一滴，衣服脚都没脏。。</blockquote>
 推箱子的时候不是满脸大汗吗
-
-
-
-
-
 
 
 -----
@@ -5333,16 +3494,9 @@ RE:
 ##### 37780#       发表于 2015-6-25 14:47
 
 
-
-
 赶快到和之国吧，现在这样真挺糟心的，也两年了……
 
 香吉士啥时候出来……
-
-
-
-
-
 
 
 -----
@@ -5351,14 +3505,7 @@ RE:
 ##### 37781#       发表于 2015-6-25 15:05
 
 
-
-
 纯粹那啥的一话。果然是一招ko。鸟人墨镜是本体
-
-
-
-
-
 
 
 -----
@@ -5367,16 +3514,9 @@ RE:
 ##### 37782#       发表于 2015-6-25 15:08
 
 
-
-
 终于完了，话说这段战斗打得实在墨迹。厨子最后也没给个画面。
 
 到底是鸟人太强还是路飞太弱？
-
-
-
-
-
 
 
 -----
@@ -5385,13 +3525,7 @@ RE:
 ##### 37783#       发表于 2015-6-25 15:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">想了想，op以前好像没有一话能翻得这么快的……太蛋疼了这剧情
-
-
-
-
-
 
 
 -----
@@ -5400,14 +3534,7 @@ RE:
 ##### 37784#       发表于 2015-6-25 15:15
 
 
-
-
 别开宴会了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5416,14 +3543,7 @@ RE:
 ##### 37785#       发表于 2015-6-25 15:17
 
 
-
-
   这恶意煽情快赶上国内那帮选秀节目了....
-
-
-
-
-
 
 
 -----
@@ -5432,17 +3552,10 @@ RE:
 ##### 37786#       发表于 2015-6-25 15:23
 
 
-
-
 来给整篇故事钉钉子吧 我觉得故事剧情还是不错的 除了力库王回忆那段 但是战斗过程太尼玛一炮污了 一点紧张感都没有 结果就是看的一点情绪也没有 越煽情越觉得难看
 
 
 这一篇总体是在水准之下了 不过剧情还在控制中 没像当初火影那样暴走失控 希望下个故事能画好点儿吧
-
-
-
-
-
 
 
 -----
@@ -5451,14 +3564,7 @@ RE:
 ##### 37787#       发表于 2015-6-25 15:24
 
 
-
-
 比看时髦神花的时间还短<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5467,14 +3573,7 @@ RE:
 ##### 37788#       发表于 2015-6-25 15:33
 
 
-
-
 所以说德雷斯洛萨篇最大的亮点还是塞尼奥尔的男人往事啊
-
-
-
-
-
 
 
 -----
@@ -5483,14 +3582,7 @@ RE:
 ##### 37789#       发表于 2015-6-25 15:33
 
 
-
-
 现在op在jump上排位如何了，跌出前十了吗<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5499,14 +3591,7 @@ RE:
 ##### 37790#       发表于 2015-6-25 15:37
 
 
-
-
 一个75海+仨超新星+一个现大将+天下群雄（天上飞的地下跑的水里游的）打败了一个75海，大家激动地内牛满面，颇有日人民报的风采
-
-
-
-
-
 
 
 -----
@@ -5515,16 +3600,10 @@ RE:
 ##### 37791#       发表于 2015-6-25 15:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29359426&amp;ptid=98922" target="_blank">faust123 发表于 2015-6-25 14:16</a>
 
 如果德岛人民在里哭王回来后觉得“还是富日子好啊！怀念火鸡！”那还是可以封神的 ...</blockquote>
 玩具不算人系列
-
-
-
-
-
 
 
 -----
@@ -5533,15 +3612,9 @@ RE:
 ##### 37792#       发表于 2015-6-25 15:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29360170&amp;ptid=98922" target="_blank">faust123 发表于 2015-6-25 15:37</a>
 一个75海+仨超新星+一个现大将+天下群雄（天上飞的地下跑的水里游的）打败了一个75海，大家激动地内牛满面 ...</blockquote>
 大家哭是因为结束了那种日子，跟什么人打谁有什么关系吗，王师来解救我们，我们也哭啊
-
-
-
-
-
 
 
 -----
@@ -5550,14 +3623,7 @@ RE:
 ##### 37793#       发表于 2015-6-25 16:00
 
 
-
-
 最后这部分，只能说无聊了。
-
-
-
-
-
 
 
 -----
@@ -5566,23 +3632,16 @@ RE:
 ##### 37794#       发表于 2015-6-25 16:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29360270&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-25 15:47</a>
 
 大家哭是因为结束了那种日子，跟什么人打谁有什么关系吗，王师来解救我们，我们也哭啊 ...</blockquote>
 德岛的人又要过着将将能吃饱的穷逼日子了，是得哭哭
 
 
-
-
-
-
-
 -----
 
 ####  境宗久  
 ##### 37795#       发表于 2015-6-25 16:14
-
 
 
  本帖最后由 境宗久 于 2015-6-25 16:17 编辑 
@@ -5593,32 +3652,19 @@ RE:
 210话：[http://ac.qq.com/ComicView/chapter/id/505430/cid/211](http://ac.qq.com/ComicView/chapter/id/505430/cid/211)
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37796#       发表于 2015-6-25 16:16
 
 
-
-
 德岛有点像南非，赶走了火鸡（白人），消除了不平等，过了一把顶天立地的瘾，以后会（？）
-
-
-
-
-
 
 
 -----
 
 ####  先手必胜  
 ##### 37797#       发表于 2015-6-25 16:23
-
 
 
  本帖最后由 先手必胜 于 2015-6-25 16:24 编辑 
@@ -5634,10 +3680,6 @@ RE:
 2015-6-25 16:20 上传
 
 
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201506/25/162012g1a11uarazp9a72u.png" referrerpolicy="no-referrer">
 
 
@@ -5646,10 +3688,6 @@ RE:
 下载附件
 
 2015-6-25 16:20 上传
-
-
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201506/25/162040ylb96549zl69dfzl.png" referrerpolicy="no-referrer">
@@ -5662,10 +3700,6 @@ RE:
 2015-6-25 16:20 上传
 
 
-
-
-
-
 <img src="http://img.saraba1st.com/forum/201506/25/162044x3dv0h6kx010f6x1.png" referrerpolicy="no-referrer">
 
 
@@ -5674,10 +3708,6 @@ RE:
 下载附件
 
 2015-6-25 16:20 上传
-
-
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201506/25/162048p8cdcy3kwk2uyiz4.png" referrerpolicy="no-referrer">
@@ -5690,31 +3720,15 @@ RE:
 2015-6-25 16:20 上传
 
 
-
-
-
-
-
-
-
-
 拿210比烂的还请歇歇吧，这氛围塑造和文案功底还不超了本话不只一点半点？
 
 你们洗地的招数除了证明之前章节也是烂狗屎，就没有别的新姿势了？
-
-
-
-
-
-
-
 
 
 -----
 
 ####  先手必胜  
 ##### 37798#       发表于 2015-6-25 16:27
-
 
 
  本帖最后由 先手必胜 于 2015-6-25 16:29 编辑 
@@ -5724,22 +3738,13 @@ A：”看看两年前的章节水平，现在这画的是个什么破玩意？�
 B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一样“
 
 
-
 提问：请问A和B谁才是黑子？
-
-
-
-
-
-
 
 
 -----
 
 ####  轻尘有雨  
 ##### 37799#       发表于 2015-6-25 16:31
-
-
 
 
 看着210话清爽的画面真是恍如隔世
@@ -5750,16 +3755,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 你看老沙被打飞，连老天爷都哭了
 
 
-
-
-
-
-
 -----
 
 ####  境宗久  
 ##### 37800#       发表于 2015-6-25 16:34
-
 
 
  本帖最后由 境宗久 于 2015-6-25 16:39 编辑 
@@ -5774,16 +3773,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 至于分镜水平和最后的升华，最开始我在回帖时提过几句，不过后来删掉了，说多都是泪。现在已经很难看到如此清爽而不失意境的分镜了。
 
 
-
-
-
-
-
 -----
 
 ####  先手必胜  
 ##### 37801#       发表于 2015-6-25 16:42
-
 
 
  本帖最后由 先手必胜 于 2015-6-25 16:44 编辑 
@@ -5801,16 +3794,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 我说某些人是对海贼有多恨，某些黑子为了证明两年后有多屎还得起手先吹嘘一下两年前，这真爱如血直接把两年前两年后打落到同一水平了
 
 
-
-
-
-
-
 -----
 
 ####  先手必胜  
 ##### 37802#       发表于 2015-6-25 16:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29360734&amp;ptid=98922" target="_blank">境宗久 发表于 2015-6-25 16:34</a>
@@ -5819,33 +3806,19 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 误伤到你我道歉
 
 
-
-
-
-
-
 -----
 
 ####  rrnom  
 ##### 37803#       发表于 2015-6-25 16:55
 
 
-
-
 就我观察这是一位扭曲的op粉丝。
-
-
-
-
-
 
 
 -----
 
 ####  猎户座  
 ##### 37804#       发表于 2015-6-25 17:02
-
-
 
 
 画了这么久了。。。。感觉op确实陷入了瓶颈
@@ -5860,17 +3833,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 应该会看得比现在稍微爽一点吧。。。。
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 37805#       发表于 2015-6-25 17:25
-
-
 
 
 节奏一泡无，打戏一泡无，连煽情都煽不动了，海贼彻底完了
@@ -5879,16 +3845,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.15)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37806#       发表于 2015-6-25 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29360145&amp;ptid=98922" target="_blank">zuga 发表于 2015-6-25 15:33</a>
@@ -5897,17 +3857,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 你自己网上随便下本JUMP的生肉看看不就知道了
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37807#       发表于 2015-6-25 17:43
-
-
 
 
 这过渡话过渡的都让人没法评价了，从头到尾就是宣布路飞战胜……
@@ -5915,16 +3868,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 你哪怕给个鸟叔摘了眼镜的正脸都算是本周有进展啊……
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37808#       发表于 2015-6-25 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29360048&amp;ptid=98922" target="_blank">羲和 发表于 2015-6-25 15:23</a>
@@ -5935,16 +3882,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 一切的一切全毁在战斗上了，其中三个最高干部毁了20%，剩下80%全是鸟叔战毁的
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37809#       发表于 2015-6-25 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29360270&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-25 15:47</a>
@@ -5955,27 +3896,15 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 这日子过的是得好好哭一场
 
 
-
-
-
-
-
 -----
 
 ####  gasijier  
 ##### 37810#       发表于 2015-6-25 17:57
 
 
-
-
 整个德岛尾田要塑造的人物太多，尤其是想通过贝拉米来衬托路飞的大慈大悲和明哥的暴虐凶恶反差，根本就是画蛇添足，导致情节松散，张力不足
 
 尾田为了塑造草帽的天命所归，在这个章节里太刻意了。
-
-
-
-
-
 
 
 -----
@@ -5984,14 +3913,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 ##### 37811#       发表于 2015-6-25 17:58
 
 
-
-
 大家都能预感的结局按照预感发生了，还玩了n久的倒计时，不是死忠燃不起来吧，有先见之明的一口气看完的估计会感觉不错
-
-
-
-
-
 
 
 -----
@@ -6000,14 +3922,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 ##### 37812#       发表于 2015-6-25 18:00
 
 
-
-
 还有四档这事后debuff是怎么回事，我还以为冷却10分钟已经是够大的问题了，好在10分钟之后能恢复原状还可以接受。结果这次打完直接昏迷脸？
-
-
-
-
-
 
 
 -----
@@ -6016,18 +3931,12 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 ##### 37813#       发表于 2015-6-25 18:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29361446&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-25 17:48</a>
 
 整篇所有部分都很好，尤其每个回忆都是高含金量，明弟的形象塑造可以跟op任何一个经典形象媲美，甚至连变 ...</blockquote>
 确实，这场战斗应该是除顶上之战以外观众最期待的了，可惜画崩了。回忆不错，但完全没有突出鸟叔这个人物。可以说藤壶、鸟叔在这一篇时髦值暴跌。前者纯酱油了，后者无论是谋略、战斗能力（鸟笼就不算了吧）还有个人魅力都让人失望，而boss的好坏恰恰是热血漫画成功与否的关键。
 
 这一篇基本把尾田的所有问题都暴露出来了。观众已经熟悉了尾田的套路，怎么在少年热血漫的框架下求新图破是尾田的难题
-
-
-
-
-
 
 
 -----
@@ -6036,7 +3945,6 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 ##### 37814#       发表于 2015-6-25 18:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29361446&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-25 17:48</a>
 
 整篇所有部分都很好，尤其每个回忆都是高含金量，明弟的形象塑造可以跟op任何一个经典形象媲美，甚至连变 ...</blockquote>
@@ -6045,16 +3953,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前就不难看一
 这一篇基本把尾田的所有问题都暴露出来了。观众已经熟悉了尾田的套路，怎么在少年热血漫的框架下求新图破是尾田的难题
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37815#       发表于 2015-6-25 18:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29360673&amp;ptid=98922" target="_blank">先手必胜 发表于 2015-6-25 16:27</a>
@@ -6069,25 +3971,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 有些人说起不满，整个就全盘否定，别人稍有反驳就耍赖。你还说那段时间看海贼王连载就是吃屎。
 
 
-
-
-
-
-
 -----
 
 ####  sgpt55  
 ##### 37816#       发表于 2015-6-25 18:46
 
 
-
-
 这话压根儿就没内容啊！
-
-
-
-
-
 
 
 -----
@@ -6096,16 +3986,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37817#       发表于 2015-6-25 18:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29361468&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-25 17:51</a>
 王师来解救你然后把你改造成了一个爱好和平的国家，然则你没法搬家还是要生存在一个随时可能因为什么鸟原 ...</blockquote>
 首先，我只是指出他的逻辑有问题
 其次，在海贼王这种理想化的地方，考虑这个就说不好说了，路飞之前救过的王国基本都挡不住一个七武海，只能希望没有后来的坏蛋。力库王是因为不抵抗被喷，但真的遇到强者，鱼人岛（已经挂海贼旗），七水之都，空岛，沙漠也都不安全
-
-
-
-
-
 
 
 -----
@@ -6114,24 +3998,16 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37818#       发表于 2015-6-25 19:02
 
 
-
-
 “我这双铁皮眼睛，已经连一滴眼泪都流不出来了……”
 
 
 个人感觉是这两三年的明哥篇最好的一句台词…
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 37819#       发表于 2015-6-25 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29361850&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-25 18:37</a>
@@ -6143,16 +4019,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 打个比喻就是，一窝好材料，给wt煮成味道微妙的大杂烩了
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37820#       发表于 2015-6-25 19:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29361917&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-25 18:46</a>
@@ -6171,16 +4041,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 说来说去生活水平这个问题其实很好洗，这世上穷的叮当乱响但就是幸福的国家有的是，问题在于钱可以不要，命不能不保啊，只要新世界这种群魔乱舞的设定不改变，这个问题真绕不过去
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37821#       发表于 2015-6-25 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29362135&amp;ptid=98922" target="_blank">影流之主 发表于 2015-6-25 19:13</a>
@@ -6193,25 +4057,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 要打阿拉巴斯坦也可以靠特殊能力者，干嘛要和军队硬刚
 
 
-
-
-
-
-
 -----
 
 ####  z.s  
 ##### 37822#       发表于 2015-6-25 20:35
 
 
-
-
 拿210来比更是说明了海贼模版化剧情严重吗，当初用还能感动，现在还用读者都已经长大了对这样剧情已经麻木了
-
-
-
-
-
 
 
 -----
@@ -6220,20 +4072,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37823#       发表于 2015-6-25 21:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton/172.jpg" referrerpolicy="no-referrer"> 另类的以泪洗面：蕾贝卡的泪洗路飞的面。
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 37824#       发表于 2015-6-25 21:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29362503&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-25 20:02</a>
@@ -6246,17 +4091,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 所以说这才是为什么阿拉巴斯坦可以用一个全民得救大家泪流满面完美结尾，德岛却不行。这部分处理不好甚至是要影响到后面对整个新世界生态的设定的
 
 
-
-
-
-
-
 -----
 
 ####  吉黑尽阵  
 ##### 37825#       发表于 2015-6-25 21:15
-
-
 
 
 吉：我说个恐怖故事吧
@@ -6265,16 +4103,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
       下周火鸡又站起来了：开着鸟笼不能尽全力，现在才是我的真正实力
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37826#       发表于 2015-6-25 21:25
-
 
 
  本帖最后由 影流之主 于 2015-6-25 21:28 编辑 
@@ -6289,25 +4121,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 这才是恐怖故事<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  luanxuex  
 ##### 37827#       发表于 2015-6-25 21:25
 
 
-
-
 我觉得这章最大的败笔是火鸡的那群干部死得太快了，造成最后一堆全明星看看路飞跟火鸡单挑这种尴尬的局面。而且出场人数实在太多，不乏许多强大的战力。火鸡经营十年的优势完全没看到，大小干部是多，但自己引了更多的敌人过来。贝拉米那段太脱力了，本来就跟路飞没什么交情，实力也弱，硬拉出来干嘛？
-
-
-
-
-
 
 
 -----
@@ -6316,14 +4136,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37828#       发表于 2015-6-25 21:29
 
 
-
-
 之前还会气愤说说当前一话的问题缺点，现在这一话已经不想说了，尾田也就这样了，之后的篇章还是会重复现在的情节和设定。还是忍不住想说一句，德岛篇的问题就是出再路飞身上，路飞是这一篇章最差的角色，没有路飞，这一篇章还是可以的，甚至可以说好看，但是有路飞这个垃圾角色让整个敲章出现问题，把主角换成索隆，罗，甚至是乌索普都比路飞好看，尾田现在的剧情设定让我看完觉得路飞完全不应该是主角，强制让路飞打败明哥给人的感觉是毫无道理，路飞这种要保护伙伴的船长要让船员觉得可靠的船长经过顶上战争发誓要变强的船长现在给人的感觉却是需要别人保护，需要别人帮助，没人其他人的帮助路飞就是一个一事无成的家伙，尾田说路飞具有全书最强的人格魅力，比海贼王罗杰还要有魅力的人格，能吸引无数强者为他奋战，可是我却不觉得尾田刻画出来了，路飞连鸣人的嘴遁都没有，就靠傻笑和大喊一声我会帮你，真心不觉得尾田刻画的很成功，整个德岛篇给我的感觉最失败的地方是尾田不会刻画路飞了，他的思想里认为路飞的最有魅力的地方最努力用心刻画的地方恰恰是我觉得最难看的地方，整个漫画两年后最失败的恰恰是路飞的刻画，一部作品主角现在反而是最难看的部分，应该说是尾田的本事高呢还是本事低呢，尾田想让路飞保持以前少年漫标准的乐观没头脑精神再成长为刘备式的具有非常人格魅力的领袖，可惜，从这点来看尾田没这个本事刻画出来，他的责任编辑也没这个本事，他们两个人本身就没有这种能力，想靠想象画出来让读者认同，可惜给我的感觉却是像吃到屎一样。
-
-
-
-
-
 
 
 -----
@@ -6332,21 +4145,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37829#       发表于 2015-6-25 21:41
 
 
-
-
 我认为好的漫画就不应该在整话里放这么多字，看得真的很累
-
-
-
-
-
 
 
 -----
 
 ####  先手必胜  
 ##### 37830#       发表于 2015-6-25 21:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29361850&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-25 18:37</a>
@@ -6362,25 +4167,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 至于那段时间的海贼是不是臭狗屎........<img src="https://static.saraba1st.com/image/smiley/carton/172.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  luanxuex  
 ##### 37831#       发表于 2015-6-25 21:43
 
 
-
-
 路飞现在太强了，强到现在一般对手没有什么特殊能力的话就是秒杀的地步，所以没法出手。看二当家索隆就知道，遇到火鸡的最高干部也是吊打。
-
-
-
-
-
 
 
 -----
@@ -6389,14 +4182,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37832#       发表于 2015-6-25 21:48
 
 
-
-
 后续问题可以参考人鱼岛。。 火鸡老家圈给路飞势力即可。。。至于之后重建复兴反战一笔带过
-
-
-
-
-
 
 
 -----
@@ -6405,14 +4191,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37833#       发表于 2015-6-25 22:08
 
 
-
-
 海贼王的打斗一直都不怎么样，至少开四档那一话还是不错的，当时直接ko多好，拖了几话火鸡还是被秒<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6421,14 +4200,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37834#       发表于 2015-6-25 22:15
 
 
-
-
 宴会开一话够了吧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6437,21 +4209,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37835#       发表于 2015-6-25 22:18
 
 
-
-
 又看了一下阿拉巴斯坦，当时的海贼真好看，看多少遍都觉得好看，简洁明快有力，看得人热血澎湃。从绝望到曙光，再到全员筋疲力尽，主角配角详略得当，简简单单把全景描绘了出来。真是了不起。反观现在……
-
-
-
-
-
 
 
 -----
 
 ####  谁说法海不懂爱  
 ##### 37836#       发表于 2015-6-25 22:18
-
 
 
 <blockquote>影流之主 发表于 2015-6-25 21:07
@@ -6461,25 +4225,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 如果下回还是救国的话，基本就是像鱼人岛那样，推完大怪，竖旗所有权，加声望拉仇恨。虽然就是真被打了，也没时间戏份杀回去。毕竟不是四皇那种已经站住脚的类型。
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 37837#       发表于 2015-6-25 22:34
 
 
-
-
 明哥为什么不用分身对付路飞？
-
-
-
-
-
 
 
 -----
@@ -6488,14 +4240,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37838#       发表于 2015-6-25 22:34
 
 
-
-
 明哥为什么不用分身对付路飞？
-
-
-
-
-
 
 
 -----
@@ -6504,15 +4249,9 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37839#       发表于 2015-6-25 22:36
 
 
-
  本帖最后由 luanxuex 于 2015-6-25 23:41 编辑 
 
 对了，还要提一下乔巴。你看山治失踪一年半，至少还有念叨，布鲁克还有喷，娜美还有人舔，乔巴是彻底被遗忘了。理论上乔巴开发出了可控巨兽形态，战斗力应该能够巨幅提升到第一集团，结果只有一次表现机会，还是秒杀杂鱼。
-
-
-
-
-
 
 
 -----
@@ -6521,14 +4260,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37840#       发表于 2015-6-25 22:38
 
 
-
-
 强行让人头
-
-
-
-
-
 
 
 -----
@@ -6537,15 +4269,9 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37841#       发表于 2015-6-25 23:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29363588&amp;ptid=98922" target="_blank">luanxuex 发表于 2015-6-25 22:36</a>
 对了，还要提一下乔巴。你看山治失踪一年半，至少还有念叨，布鲁克还有喷，娜美还有人舔，乔巴是彻底被遗忘 ...</blockquote>
 心理层面还是把自己放在弱小组
-
-
-
-
-
 
 
 -----
@@ -6554,17 +4280,10 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37842#       发表于 2015-6-26 03:20
 
 
-
-
 感觉就是WT想要做些变化让战斗剧情不再那么模式化，结果就落得一个相反的下场，就好比东尼大木唱歌人家老说一个调调好我就改改结果一坨屎。。
 
 
 我情愿你照以前套路画下去啊，别弄那么多有的没的，该秒就秒干净利落的好吗！<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6573,22 +4292,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37843#       发表于 2015-6-26 05:19
 
 
-
-
 处理成明哥自己迫于压力收起鸟笼  实力完整然后碾压路飞后扬长而去  最后被大将控告打官司废了七武海身份之类的也比这个好得多吧
-
-
-
-
-
 
 
 -----
 
 ####  zerock  
 ##### 37844#       发表于 2015-6-26 07:15
-
-
 
 
 还是那个问题，尾田对op里所有元素的描写都过于满了。本来还好，看到上面有人贴210话，这种感觉更强烈了。德岛篇每个稍微有头有脸的人物都要设定完整的人物背景和性格，还一定要在漫画正片里一个不拉的画出来，不能打的也要用喜怒哀乐和各种无聊的口头禅小段子占坑刷屏。每场战斗都要严格地针尖对麦芒有始有终，明明对战双方实力差距很大，但又不能让费尽心思刻画的角色马上退场，所以就设置各种降智商、乱入、小伎俩、苟延残喘情节（没错我就是很不爽索隆对皮卡<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">）。对明哥的收尾之战更是莫名其妙。
@@ -6610,25 +4320,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 故事告诉我们的道理就是：不要事事求完美，否则会因为画蛇添足而使事物失去了它的本性。
 
 
-
-
-
-
-
 -----
 
 ####  wulaval  
 ##### 37845#       发表于 2015-6-26 07:30
 
 
-
-
 不懂就问，尾田对利库王族到底是什么定位？二公主还算有魄力，大驸马也不容易，但老国王这个只会灌鸡汤痛哭下跪的逗比怂货是来干嘛的？尾田把他当正面形象写，还是作为反面例子讽刺？小粉红就奇葩了，开头竞技场顶着众人怒骂还是个挺坚强的妹子，后来就是哭哭哭，抖抖抖，哭哭哭。尾田要真把这祖孙两树为标杆我也得说一句贵漫乙烷了。
-
-
-
-
-
 
 
 -----
@@ -6637,23 +4335,16 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37846#       发表于 2015-6-26 08:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29365390&amp;ptid=98922" target="_blank">wulaval 发表于 2015-6-26 07:30</a>
 
 不懂就问，尾田对利库王族到底是什么定位？二公主还算有魄力，大驸马也不容易，但老国王这个只会灌鸡汤痛哭 ...</blockquote>
 这篇给我感觉就是画到哪想到哪，跟以前的长篇完全不一样，还是要吐槽那句，换作者了
 
 
-
-
-
-
-
 -----
 
 ####  zuga  
 ##### 37847#       发表于 2015-6-26 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29361244&amp;ptid=98922" target="_blank">黑上シグマ 发表于 2015-6-25 17:29</a>
@@ -6664,27 +4355,15 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 就为了看看日本读者是不是也对最近几话有所不满还要特意去找那么麻烦的东西实在太麻烦了，还是在最有可能有人知道结果的地方随口问一句比较方便，反正也不是真的很在乎到底排名怎么样。
 
 
-
-
-
-
-
 -----
 
 ####  费扎里昂  
 ##### 37848#       发表于 2015-6-26 09:28
 
 
-
-
 这话除了拖戏其他还行吧，本来就不是什么严肃的正剧，要啥自行车…
 
 整个篇章我不喜欢的还是三大干部的打戏及鸟笼，果实觉醒这两个设定来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -6693,22 +4372,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37849#       发表于 2015-6-26 10:07
 
 
-
-
 德岛只有God那几话不错，从火鸡开鸟笼后就看的脱力
-
-
-
-
-
 
 
 -----
 
 ####  faust123  
 ##### 37850#       发表于 2015-6-26 10:35
-
-
 
 
 青黑都来讨论一下火鸡篇咋样才能更好？抛个砖
@@ -6726,25 +4396,13 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 6.德岛老百姓和里哭王族自我批评，不能像以前那样混日子了
 
 
-
-
-
-
-
 -----
 
 ####  在海岸  
 ##### 37851#       发表于 2015-6-26 11:29
 
 
-
-
 果实觉醒其实是推进城就有的玩意，那群超恢复狱卒兽都是觉醒后的能力者=_=  
-
-
-
-
-
 
 
 -----
@@ -6753,14 +4411,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37852#       发表于 2015-6-26 11:37
 
 
-
-
 鸟叔这战斗力水平，没有DEBUFF的情况下应该也不会强到哪里去，估计完全不敌青雉，更别说其他大将。可能鹰眼都能砍杀他。还是太自信了吧。
-
-
-
-
-
 
 
 -----
@@ -6769,14 +4420,7 @@ B：”你这厚古薄今的傻-滚粗吧，说得好像两年前 ...</blockquot
 ##### 37853#       发表于 2015-6-26 11:57
 
 
-
-
 这觉醒也就名字相同了，就跟乐平和悟空都是龟仙流弟子似的…我不太能接受这种开领域似的战力膨胀，它更适合出现在起点流升级爽文里。来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -6792,16 +4436,10 @@ Title
 不知为何觉得打火鸟这里好无聊。话说鸟笼这么厉害，连海楼石都不怕，这鸟笼的设定是怎样的？，为什么火鸟不直接做个小鸟笼直接把路飞搞下？因为他有老马属性？
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 37855#       发表于 2015-6-26 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29366074&amp;ptid=98922" target="_blank">zuga 发表于 2015-6-26 09:25</a>
@@ -6812,16 +4450,10 @@ Title
 根本不需要看懂，JUMP除彩页以外，揭载顺序就是排位
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 37856#       发表于 2015-6-26 19:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29367908&amp;ptid=98922" target="_blank">费扎里昂 发表于 2015-6-26 11:57</a>
@@ -6831,16 +4463,10 @@ Title
 特别是艾斯，出大技能之前都要先喊一声炎戒，如果不是炎戒的作用不是将周围的东西化作火焰的话，那怎么想都太奇怪了
 
 
-
-
-
-
-
 -----
 
 ####  zuga  
 ##### 37857#       发表于 2015-6-26 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29371210&amp;ptid=98922" target="_blank">黑上シグマ 发表于 2015-6-26 18:38</a>
@@ -6849,25 +4475,13 @@ Title
 这样啊！每个漫画位置不固定那岂不是每期想找什么漫画都要翻很久。
 
 
-
-
-
-
-
 -----
 
 ####  恒温死神  
 ##### 37858#       发表于 2015-6-26 22:53
 
 
-
-
 cp0该来了吧，没什么看点啊
-
-
-
-
-
 
 
 -----
@@ -6876,14 +4490,7 @@ cp0该来了吧，没什么看点啊
 ##### 37859#       发表于 2015-6-27 01:37
 
 
-
-
 脱力主要还是剧情里弱智太多，带入的时候就会觉得自己跟他们一样弱智，于是不能忍
-
-
-
-
-
 
 
 -----
@@ -6892,21 +4499,13 @@ cp0该来了吧，没什么看点啊
 ##### 37860#       发表于 2015-6-27 01:37
 
 
-
-
 脱力主要还是剧情里弱智太多，带入的时候就会觉得自己跟他们一样弱智，于是不能忍
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 37861#       发表于 2015-6-27 05:36
-
 
 
  本帖最后由 影流之主 于 2015-6-27 05:38 编辑 
@@ -6926,17 +4525,10 @@ cp0该来了吧，没什么看点啊
 自我批评就更不可能了，女婿对力库王的评价那段已经说明了wt就是打算把力库王这种圣母形象作为正面描写，这应该算是核心设定一类的东西，改了整篇不如换个思路重写
 
 
-
-
-
-
-
 -----
 
 ####  费扎里昂  
 ##### 37862#       发表于 2015-6-27 07:49
-
-
 
 
 我觉得吧，"用火焰点燃周围东西"和"将周围东西变作火焰"还是有区别的。至于放大招一定要喊出名字这种战斗漫固有设定，也没什么好奇怪的吧…
@@ -6948,16 +4540,10 @@ cp0该来了吧，没什么看点啊
 其后固然可以追加其他设定完善"觉醒"这个系统，但这东西本身的存在就毫无意义，霸气已经有"会消耗"这个特性作为平衡，果实者本身也有"能力开发"这个只需要想象力的升级系统，除了满足觉醒者秒天秒地秒空气的装逼外，我想不到这次需要大量自圆其说的战力升级有何必要。来自: WindowsPhone客户端
 
 
-
-
-
-
-
 -----
 
 ####  camen  
 ##### 37863#       发表于 2015-6-27 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29373162&amp;ptid=98922" target="_blank">zuga 发表于 2015-6-26 22:47</a>
@@ -6966,17 +4552,10 @@ cp0该来了吧，没什么看点啊
 目录还是有的。。
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 37864#       发表于 2015-6-27 10:32
-
-
 
 
 现在比较麻烦的问题就是
@@ -6991,27 +4570,15 @@ cp0该来了吧，没什么看点啊
 很多时候完全看不出智商的角色了
 
 
-
-
-
-
-
 -----
 
 ####  见鬼  
 ##### 37865#       发表于 2015-6-27 12:03
 
 
-
-
 德岛这章看到最后我也没有耐心了，好几场战斗画的确实不好。
 
 还是说点让我印象深刻的几个情节， 一个是变态的战斗（回忆？），一个是罗在炮火中的哭声，还有一个是萨博的登场吧
-
-
-
-
-
 
 
 -----
@@ -7020,16 +4587,9 @@ cp0该来了吧，没什么看点啊
 ##### 37866#       发表于 2015-6-27 12:45
 
 
-
-
 一直都听说尾田早就定好了结局，那个结局会不会定死了主角的上限，虽然我这么说太玄学了
 
 进入新世界后，主角的成长和改变的表现一直有点模糊，地位倒是很明确，就是称王之路
-
-
-
-
-
 
 
 -----
@@ -7038,21 +4598,13 @@ cp0该来了吧，没什么看点啊
 ##### 37867#       发表于 2015-6-27 12:55
 
 
-
-
 话说我觉得鸟叔就能力来看被巴基完克……难怪巴基能当75海！
-
-
-
-
-
 
 
 -----
 
 ####  靐龘龖龘  
 ##### 37868#       发表于 2015-6-27 13:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29376639&amp;ptid=98922" target="_blank">flll 发表于 2015-6-27 12:45</a>
@@ -7063,33 +4615,19 @@ cp0该来了吧，没什么看点啊
 还是巴基当上海贼王，草帽东海斩首的YY带感<img src="https://static.saraba1st.com/image/smiley/face/32.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  宅之猴晒阴  
 ##### 37869#       发表于 2015-6-28 20:14
 
 
-
-
 随便找了前面的一话来看，就是香波群岛那里，我靠，一话就停不下来啊，路飞罗基德一起刷时髦，然后遇到了机器熊，中间穿插着雷利对众人对阐述海贼王的故事，然后大将黄猿降临，一环扣一环，毫不拖泥带水，再看看现在。。。
-
-
-
-
-
 
 
 -----
 
 ####  牧濑紅莉栖  
 ##### 37870#       发表于 2015-6-29 14:10
-
-
 
 
 德岛篇整个下来故事其实非常精彩,但是战斗严重拖了后腿,火鸡莫名其妙的强,干部莫名其妙的弱.其他人智商莫名其妙的低
@@ -7100,25 +4638,13 @@ cp0该来了吧，没什么看点啊
 从相对合理的角度来说，罗不应该那么早退场，两个人合力惨胜火鸡都比现在路飞一开4档就解决战斗来的好，WT过于突出路飞实力后面还怎么写..
 
 
-
-
-
-
-
 -----
 
 ####  ⊙天上天下  
 ##### 37871#       发表于 2015-6-29 18:18
 
 
-
-
 新世界篇尾田要解决一个问题就是是像以前那样继续自由的冒险贯彻自由梦想这个主题继续走航海之路当自由的海贼王还是进入新世界以后变成像现在的四皇一样抢地盘抢势力显然尾田现在选择的是后者但是作者还是用前半段的描写方式来描写后半段的旅程，继续把主要篇幅弄在每个岛各自的故事上而不是与四皇的博弈上这种情况就会弄得四不像左右不是人，如果作者不做取舍解决不好这个问题后面的篇章一样烂，这已经不是什么人物臃肿的问题，是故事发展方向的路线问题。
-
-
-
-
-
 
 
 -----
@@ -7127,16 +4653,10 @@ cp0该来了吧，没什么看点啊
 ##### 37872#       发表于 2015-6-29 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29388240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2015-6-28 20:14</a>
 
 随便找了前面的一话来看，就是香波群岛那里，我靠，一话就停不下来啊，路飞罗基德一起刷时髦，然后遇到了机 ...</blockquote>
 那个时候的节奏和现在更本没得比，你也不看看泡泡岛才多少话就有多少信息量而且还是重大转折非常精彩。
-
-
-
-
-
 
 
 -----
@@ -7145,16 +4665,10 @@ cp0该来了吧，没什么看点啊
 ##### 37873#       发表于 2015-6-29 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29388240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2015-6-28 20:14</a>
 
 随便找了前面的一话来看，就是香波群岛那里，我靠，一话就停不下来啊，路飞罗基德一起刷时髦，然后遇到了机 ...</blockquote>
 那个时候的节奏和现在更本没得比，你也不看看泡泡岛才多少话就有多少信息量而且还是重大转折非常精彩。
-
-
-
-
-
 
 
 -----
@@ -7163,16 +4677,10 @@ cp0该来了吧，没什么看点啊
 ##### 37874#       发表于 2015-6-29 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29388240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2015-6-28 20:14</a>
 
 随便找了前面的一话来看，就是香波群岛那里，我靠，一话就停不下来啊，路飞罗基德一起刷时髦，然后遇到了机 ...</blockquote>
 那个时候的节奏和现在更本没得比，你也不看看泡泡岛才多少话就有多少信息量而且还是重大转折非常精彩。
-
-
-
-
-
 
 
 -----
@@ -7181,16 +4689,10 @@ cp0该来了吧，没什么看点啊
 ##### 37875#       发表于 2015-6-29 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29388240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2015-6-28 20:14</a>
 
 随便找了前面的一话来看，就是香波群岛那里，我靠，一话就停不下来啊，路飞罗基德一起刷时髦，然后遇到了机 ...</blockquote>
 那个时候的节奏和现在更本没得比，你也不看看泡泡岛才多少话就有多少信息量而且还是重大转折非常精彩。
-
-
-
-
-
 
 
 -----
@@ -7199,16 +4701,10 @@ cp0该来了吧，没什么看点啊
 ##### 37876#       发表于 2015-6-29 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29388240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2015-6-28 20:14</a>
 
 随便找了前面的一话来看，就是香波群岛那里，我靠，一话就停不下来啊，路飞罗基德一起刷时髦，然后遇到了机 ...</blockquote>
 那个时候的节奏和现在更本没得比，你也不看看泡泡岛才多少话就有多少信息量而且还是重大转折非常精彩。
-
-
-
-
-
 
 
 -----
@@ -7217,16 +4713,10 @@ cp0该来了吧，没什么看点啊
 ##### 37877#       发表于 2015-6-29 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29388240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2015-6-28 20:14</a>
 
 随便找了前面的一话来看，就是香波群岛那里，我靠，一话就停不下来啊，路飞罗基德一起刷时髦，然后遇到了机 ...</blockquote>
 那个时候的节奏和现在更本没得比，你也不看看泡泡岛才多少话就有多少信息量而且还是重大转折非常精彩。
-
-
-
-
-
 
 
 -----
@@ -7235,16 +4725,10 @@ cp0该来了吧，没什么看点啊
 ##### 37878#       发表于 2015-6-29 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29388240&amp;ptid=98922" target="_blank">宅之猴晒阴 发表于 2015-6-28 20:14</a>
 
 随便找了前面的一话来看，就是香波群岛那里，我靠，一话就停不下来啊，路飞罗基德一起刷时髦，然后遇到了机 ...</blockquote>
 那个时候的节奏和现在更本没得比，你也不看看泡泡岛才多少话就有多少信息量而且还是重大转折非常精彩。
-
-
-
-
-
 
 
 -----
@@ -7253,16 +4737,10 @@ cp0该来了吧，没什么看点啊
 ##### 37879#       发表于 2015-6-29 19:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29396561&amp;ptid=98922" target="_blank">⊙天上天下 发表于 2015-6-29 18:18</a>
 
 新世界篇尾田要解决一个问题就是是像以前那样继续自由的冒险贯彻自由梦想这个主题继续走航海之路当自由的海 ...</blockquote>
 敢加几个标点符号吗?
-
-
-
-
-
 
 
 -----
@@ -7271,25 +4749,16 @@ cp0该来了吧，没什么看点啊
 ##### 37880#       发表于 2015-6-29 19:43
 
 
-
-
 泡泡岛短短几话把超新星黄猿大熊雷利几个人物都写活了，哪怕是怪僧这种打酱油的角色大家也禁不住想猜测他几年后的去向，黄猿大熊那种绝望性的压迫力也是到位了
 
 
 德岛的一帮配角我只希望他们快点滚蛋，大将就不说了大家都明白
 
 
-
-
-
-
-
 -----
 
 ####  风浦可符香(P.N)  
 ##### 37881#       发表于 2015-6-29 21:27
-
-
 
 
 结果整个德岛打了好几年，最像样的一场战斗是两个变态之间的以拳交心 <img src="https://static.saraba1st.com/image/smiley/normal/056.gif" referrerpolicy="no-referrer">
@@ -7301,35 +4770,19 @@ cp0该来了吧，没什么看点啊
 德岛真赢家：一击KO了对方的残血干部，一不小心继承了家业，捡了只好用的白富美老婆的老蔡。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 37882#       发表于 2015-6-29 21:50
 
 
-
-
 我一直怀疑德岛后期真的是尾田写的吗。。 还是尾田卧病助手给补完的。。
-
-
-
-
-
 
 
 -----
 
 ####  巴尔库夫  
 ##### 37883#       发表于 2015-6-29 22:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29398149&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2015-6-29 21:27</a>
@@ -7341,25 +4794,13 @@ cp0该来了吧，没什么看点啊
 老蔡是等着被绿<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  584520184  
 ##### 37884#       发表于 2015-6-29 23:09
 
 
-
-
 盖棺定论了可以 德岛篇和鱼人篇哪个更差
-
-
-
-
-
 
 
 -----
@@ -7368,14 +4809,7 @@ cp0该来了吧，没什么看点啊
 ##### 37885#       发表于 2015-6-29 23:44
 
 
-
-
 想在两个都很烂的篇章选个更烂的比较难啊，鱼人岛期待高结果画的烂，德岛也一样区别在于鱼人岛本来就没有太好的布局德岛是布局好后期崩掉了，想比较而言还是德岛问题更大篇章主体来说起码鱼人岛是单线德岛就是大杂烩还写不清楚，鱼人岛泰格的回忆还是保持了两年前的水平。
-
-
-
-
-
 
 
 -----
@@ -7384,14 +4818,7 @@ cp0该来了吧，没什么看点啊
 ##### 37886#       发表于 2015-6-29 23:52
 
 
-
-
 鱼人岛绝没德岛烂，当年鱼人岛时候还能咬牙洗地，德岛完了已经绝望。
-
-
-
-
-
 
 
 -----
@@ -7400,16 +4827,9 @@ cp0该来了吧，没什么看点啊
 ##### 37887#       发表于 2015-6-30 00:09
 
 
-
-
 卧槽鱼人岛虽然后面战斗一般般但回忆的故事很棒啊，你们竟然说不好。
 
 不像德岛这样最后搞的什么都不是。
-
-
-
-
-
 
 
 -----
@@ -7418,23 +4838,15 @@ cp0该来了吧，没什么看点啊
 ##### 37888#       发表于 2015-6-30 00:14
 
 
-
-
 鱼人岛对于泰格的回忆那部分描写还是很精彩的，就是对手太弱鸡了，导致落差大。
 
 而德岛这篇看完的最大感觉就是路飞2年以后除了拳头变大了，别的一点长进都没有，再加上拖戏...
-
-
-
-
-
 
 
 -----
 
 ####  漆黑弥塞亚  
 ##### 37889#       发表于 2015-6-30 00:18
-
 
 
  本帖最后由 漆黑弥塞亚 于 2015-6-30 00:21 编辑 
@@ -7447,33 +4859,19 @@ cp0该来了吧，没什么看点啊
 硬要说的话，萨博出场、玩具士兵回忆雨中抱着妻子哭不出来应该是最高潮，如果顺势展开最终战到完结应该也不错，结果后面一堆什么玩意儿完.全.没.有.意.义...简直一无是处
 
 
-
-
-
-
-
 -----
 
 ####  ⊙天上天下  
 ##### 37890#       发表于 2015-6-30 00:27
 
 
-
-
 鱼人岛说实话是本来就那样，泰格的回忆也是在本来就质量不高的篇章里面挑一个亮点，相比德岛前期真是的很好，铺垫也到位了，结果展开就让人很失望而且又臃肿最后几话简直是一种你TM的是在逗我的感觉，鱼人岛本来大概就是60分的水平，德岛是前期展开大概80分以上结果画到最后几话直接掉到五十分了。
-
-
-
-
-
 
 
 -----
 
 ####  helmwige  
 ##### 37891#       发表于 2015-6-30 05:16
-
-
 
 
 4档设定并不讨喜，然后打也没打爽，起不到掩盖剧情硬伤的作用
@@ -7483,17 +4881,10 @@ cp0该来了吧，没什么看点啊
 这场战斗并没有起到这种效果
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37892#       发表于 2015-6-30 08:59
-
-
 
 
 阿拉巴斯坦篇战斗很好啊
@@ -7505,17 +4896,10 @@ mr2搞怪犀利
 长鼻子逆转地鼠，娜美逆转刺女人意料之外情理之中
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 37893#       发表于 2015-6-30 09:21
-
-
 
 
 所以说德岛毁在boss战上真是一点也没错
@@ -7523,16 +4907,10 @@ mr2搞怪犀利
 GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作的，一个神迹一般的胜利方式愣是说的毫无破绽不得不服，当时谁也没想到最高干部+鸟叔战会打的这么没头没尾外加全靠主角光环
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37894#       发表于 2015-6-30 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29400166&amp;ptid=98922" target="_blank">helmwige 发表于 2015-6-30 05:16</a>
@@ -7542,16 +4920,10 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 4档出来除了说难看的基本都说好吧
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37895#       发表于 2015-6-30 09:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29399513&amp;ptid=98922" target="_blank">莉洁莉特 发表于 2015-6-30 00:09</a>
@@ -7561,26 +4933,15 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 照这么说，那德岛战斗总体比鱼人岛好，回忆和鱼人岛一样好啊
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37896#       发表于 2015-6-30 10:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29398325&amp;ptid=98922" target="_blank">gjd198692 发表于 2015-6-29 21:50</a>
 我一直怀疑德岛后期真的是尾田写的吗。。 还是尾田卧病助手给补完的。。</blockquote>
 可能是忙着在家里开章鱼烧派对
-
-
-
-
-
 
 
 -----
@@ -7589,14 +4950,7 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37897#       发表于 2015-6-30 10:16
 
 
-
-
 我对竞技场的人没什么讨厌的感觉，这么多人讨厌是不是一种延续的感情？从竞技场开始就开始说拖，觉得这帮人出现有什么意义。就一直讨厌下来，而且越期待主角队表现越讨厌竞技场众。没有特别的表现是不会认可他们的。比如老蔡，后面有卓越表现也不爽，觉得这样的挫男不配有这样的实力。白马和巴托也只是靠露脸多勉强赚点人气。会不会还有这种感觉，超新星是路飞他们的竞争者，竞技场最多是小弟，所以不太看得起？
-
-
-
-
-
 
 
 -----
@@ -7605,17 +4959,10 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37898#       发表于 2015-6-30 11:06
 
 
-
-
 德岛除了最终boss战超大败笔之外，其余都还好的，甚至有几场戏异常精彩。比如GOD显灵，比如乌索普神狙击演出，比如索隆致敬大剑斩敌，又比如萨博堂堂登场。
 
 
 然而，真的是一颗老鼠屎坏了一锅汤，最终boss战无数脑残设定，让WT之前费尽心力的种种塑造瞬间崩溃。呜呼哀哉！
-
-
-
-
-
 
 
 -----
@@ -7624,23 +4971,15 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37899#       发表于 2015-6-30 11:19
 
 
-
-
 大量使用外援在法场篇已经用过了，这次又用...
 
 除了脑残粉和某多重人格以外，其他魅力都不及当时的各种七武海队友
-
-
-
-
-
 
 
 -----
 
 ####  真红眼教授  
 ##### 37900#       发表于 2015-6-30 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29401408&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-6-30 10:16</a>
@@ -7661,17 +5000,10 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 其他的人，除了王者之拳我真是一个都不记得了啊
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 37901#       发表于 2015-6-30 17:25
-
-
 
 
 德岛也就是上面各位所说的，单个战斗提取出来感觉很好，比如两个变态的、USP的。
@@ -7684,25 +5016,13 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 直到最后路飞费尽全力的乱打，精彩度也没怎么下降。
 
 
-
-
-
-
-
 -----
 
 ####  李剡s  
 ##### 37902#       发表于 2015-6-30 18:47
 
 
-
-
 明哥刻画多好啊，最后那回忆绝对精品，你们这帮战战战的战男怎么就不能明白呢。明罗刚接触的时候尾田就借明哥的口告诉你们了好好期待两位的回忆，只要放出话来就让你震撼到，这特么就是功力。就算是战，这里明显也是给后来战四皇做准备的，尾田又不是不会画打戏，这里再像以前似的草帽全团过来跟家族对位一次，你们到了四皇肯定是要继续喊千篇一律，路飞一伙实力全部在家族之上，这里要是还苦战的话，后面又要无脑升级了，你们怎么就是不明白，好吧我是大棋党，但是尾田早晚会打你们脸的
-
-
-
-
-
 
 
 -----
@@ -7711,17 +5031,10 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37903#       发表于 2015-6-30 19:25
 
 
-
-
 总之太拖了
 
 
 这般干部完全不用拖那么长时间，没啥厉害的
-
-
-
-
-
 
 
 -----
@@ -7730,14 +5043,7 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37904#       发表于 2015-7-1 20:09
 
 
-
-
 出了张情报图，好像冠军要偷袭萨波的样子
-
-
-
-
-
 
 
 -----
@@ -7746,16 +5052,9 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37905#       发表于 2015-7-1 20:37
 
 
-
-
 除了战斗变得不太好来看外
 
 我总觉得路飞嘴炮属性变弱了。。 艾斯死后路飞嘴里就几乎没再说大智若愚的话。。
-
-
-
-
-
 
 
 -----
@@ -7764,14 +5063,7 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37906#       发表于 2015-7-1 21:50
 
 
-
-
 那样子不像偷袭吧,偷袭哪会说那么多话...不过看身上的伤被打惨就是了
-
-
-
-
-
 
 
 -----
@@ -7780,21 +5072,13 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37907#       发表于 2015-7-1 22:01
 
 
-
-
 依旧是WT风格，观众最想看的打戏永远一笔带过。。。。。。金狮子VS罗杰、金狮子VS二老、冰火大战、这次又来一场。。。希望以后OP结束后WT能出个外传类的把这类战斗都详细讲一遍吧<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 37908#       发表于 2015-7-2 03:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29417314&amp;ptid=98922" target="_blank">革新 发表于 2015-7-1 20:37</a>
@@ -7809,25 +5093,13 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 两年后到现在的剧情基本没有这种干扰项的存在。鱼人岛？你说不说我都是要打飞霍迪的。德岛？不管是手下弗兰奇还是友军罗目标都是鸟叔，路飞反倒成了那个最后明确目标的人。PH岛整个计划都是罗定的，路飞不但是没怎么出力最后还差点把事情搞砸。现在的情况是要么简单粗暴只会坏事，要么队友比你还要简单粗暴，自然显不出你的眼光了
 
 
-
-
-
-
-
 -----
 
 ####  hispeed  
 ##### 37909#       发表于 2015-7-2 09:28
 
 
-
-
 真的毁在boss战了，乌索普双杀那话最高，那幕神乎其技把我看哭了
-
-
-
-
-
 
 
 -----
@@ -7836,14 +5108,7 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37910#       发表于 2015-7-2 09:33
 
 
-
-
 2年后WT的人物刻画失败得要死---路飞2年后变成只会打飞对手的弱智，火鸡的塑造居然也有叫好的，这家伙本来我挺喜欢的，结果原来是彻头彻脑的中二神经病。
-
-
-
-
-
 
 
 -----
@@ -7852,14 +5117,7 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37911#       发表于 2015-7-2 09:37
 
 
-
-
 新的一话大概主要黑萨博？不知道藤虎老师会不会继续被黑
-
-
-
-
-
 
 
 -----
@@ -7868,14 +5126,7 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37912#       发表于 2015-7-2 09:54
 
 
-
-
 情报只有一页，貌似冠军被萨博教育了<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7884,23 +5135,15 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37913#       发表于 2015-7-2 10:27
 
 
-
-
 看这情报图怎么觉得黑胡子要来坏事儿了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 —— 来自 Meizu MX4 Pro, Android 4.4.4
-
-
-
-
-
 
 
 -----
 
 ####  rubicon  
 ##### 37914#       发表于 2015-7-2 11:13
-
 
 
 <img src="http://ww1.sinaimg.cn/mw1024/93c30c9egw1eto9**h8j20mq0i8qab.jpg" referrerpolicy="no-referrer">
@@ -7910,25 +5153,13 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 这逼装的可以，是在下输了
 
 
-
-
-
-
-
 -----
 
 ####  PATLABOR  
 ##### 37915#       发表于 2015-7-2 11:26
 
 
-
-
 滕虎表示老夫既然下了注当然不能越俎代庖，不处理明哥不是能力问题而是赌品问题。   <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7937,21 +5168,13 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37916#       发表于 2015-7-2 11:27
 
 
-
-
 老实说，既然没打算让海军势力太涉及这事干嘛派大将级别的过来……搞完了让他马后炮过来也不会被人黑出工不出力啊
-
-
-
-
-
 
 
 -----
 
 ####  caster  
 ##### 37917#       发表于 2015-7-2 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29421881&amp;ptid=98922" target="_blank">rubicon 发表于 2015-7-2 11:13</a>
@@ -7965,17 +5188,10 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 所以能稳住自己？
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37918#       发表于 2015-7-2 12:32
-
-
 
 
 最新一话有点意思，里哭王觉得自己已经没脸了要退位
@@ -7987,16 +5203,10 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 藤虎已经韬光养晦（不要脸）到极点了
 
 
-
-
-
-
-
 -----
 
 ####  李剡s  
 ##### 37919#       发表于 2015-7-2 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29420839&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-7-2 09:33</a>
@@ -8005,25 +5215,13 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 扭曲得有理有利有节，恶人就是这么诞生的。克拉松那种见识到了人性最黑的一面还能那么善良才叫不正常，也许是战国给他扭正了
 
 
-
-
-
-
-
 -----
 
 ####  李剡s  
 ##### 37920#       发表于 2015-7-2 12:40
 
 
-
-
 确实，藤虎为了取消七武海已经无所不用其极了，七武海究竟对他做了什么啊
-
-
-
-
-
 
 
 -----
@@ -8032,23 +5230,16 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37921#       发表于 2015-7-2 12:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29422059&amp;ptid=98922" target="_blank">scl 发表于 2015-7-2 11:27</a>
 
 老实说，既然没打算让海军势力太涉及这事干嘛派大将级别的过来……搞完了让他马后炮过来也不会被人黑出工不 ...</blockquote>
 海军：反正这个副本下不下都会被骂，不如下一个看能不能划水捡个宝箱咯
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 37922#       发表于 2015-7-2 12:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29422618&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-2 12:32</a>
@@ -8059,25 +5250,13 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 不算不要脸吧，如果这情报是真的，那只能说藤壶这赌局开得太大，确实敢赌啊！
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 37923#       发表于 2015-7-2 12:59
 
 
-
-
 巴杰斯的时髦已经是负的了<img src="https://static.saraba1st.com/image/smiley/zdl/161.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8086,16 +5265,10 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37924#       发表于 2015-7-2 13:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29422688&amp;ptid=98922" target="_blank">李剡s 发表于 2015-7-2 12:40</a>
 
 确实，藤虎为了取消七武海已经无所不用其极了，七武海究竟对他做了什么啊 ...</blockquote>
 剧场版泽法那理由可以直接套。对比之下还理性些，只是显得太圆滑了。
-
-
-
-
-
 
 
 -----
@@ -8104,22 +5277,13 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 ##### 37925#       发表于 2015-7-2 13:49
 
 
-
-
 看来藤虎和七武海可能有杀亲之仇？
-
-
-
-
-
 
 
 -----
 
 ####  kfc汉堡  
 ##### 37926#       发表于 2015-7-2 13:54
-
-
 
 
 萨博不要紧吧？
@@ -8143,33 +5307,19 @@ GOD乌索普双杀砂糖的时候，这个楼里从头到尾全是高喊神作�
 这两年时间草帽和尾田到底发生了什么事啊！
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 37927#       发表于 2015-7-2 13:57
 
 
-
-
 SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去挑战白胡子的
-
-
-
-
-
 
 
 -----
 
 ####  龙意识  
 ##### 37928#       发表于 2015-7-2 14:12
-
-
 
 
 我还以为巴基斯故意扰乱萨博心智有啥大阴谋，结果只是想拿刀子暗算，自己找烧<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
@@ -8179,16 +5329,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这话看藤虎之前不出力其实是下了盘大棋啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  aceback  
 ##### 37929#       发表于 2015-7-2 14:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29421881&amp;ptid=98922" target="_blank">rubicon 发表于 2015-7-2 11:13</a>
@@ -8199,25 +5343,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这是不是说明之前推箱子都是在划水。。。 根本只摆造型不用力
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 37930#       发表于 2015-7-2 14:23
 
 
-
-
 喷了，藤虎这演技什么水平
-
-
-
-
-
 
 
 -----
@@ -8226,14 +5358,7 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37931#       发表于 2015-7-2 14:25
 
 
-
-
 藤虎这一跪 我给本篇章加10分，到70分。
-
-
-
-
-
 
 
 -----
@@ -8242,22 +5367,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37932#       发表于 2015-7-2 14:30
 
 
-
-
 巴基斯这角色真是恶心到极点
-
-
-
-
-
 
 
 -----
 
 ####  萝卜roto  
 ##### 37933#       发表于 2015-7-2 14:31
-
-
 
 
 藤虎真跪下了，堂堂海军大将。。
@@ -8267,32 +5383,19 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ----发送自 [Sony D5833,Android 4.4.4](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37934#       发表于 2015-7-2 14:31
 
 
-
-
 啊，现实主义大作，力库王其实跟这些国民比起来正常很多，只不过不适合当国王。
-
-
-
-
-
 
 
 -----
 
 ####  双面人  
 ##### 37935#       发表于 2015-7-2 14:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29398949&amp;ptid=98922" target="_blank">巴尔库夫 发表于 2015-6-29 22:56</a>
@@ -8303,25 +5406,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 同人本抢手资源
 
 
-
-
-
-
-
 -----
 
 ####  chloerei  
 ##### 37936#       发表于 2015-7-2 14:37
 
 
-
-
 藤虎的绝招就是猛虎落地势。
-
-
-
-
-
 
 
 -----
@@ -8330,17 +5421,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37937#       发表于 2015-7-2 14:43
 
 
-
-
 才13页也太偷工减料吧。。
 
 
 ----发送自 [Sony D5833,Android 4.4.4](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -8349,24 +5433,16 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37938#       发表于 2015-7-2 14:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29423360&amp;ptid=98922" target="_blank">saturnus 发表于 2015-7-2 13:57</a>
 
 SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去挑战白胡子的</blockquote>
 求个sbs汉化的地址
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37939#       发表于 2015-7-2 15:02
-
-
 
 
 德岛群丑：
@@ -8383,25 +5459,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 藤虎对老百姓有点像皇家骑士团2里那个杀一村造新闻事件，这事我觉得op头号反派红狗也干不出
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 37940#       发表于 2015-7-2 15:09
 
 
-
-
 先有09后有天，藤虎更在伍声前，这大局观醉了
-
-
-
-
-
 
 
 -----
@@ -8410,14 +5474,7 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37941#       发表于 2015-7-2 15:10
 
 
-
-
 另外巴基斯船上貌似有个时髦值很高的草帽斗篷男啊<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8426,21 +5483,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37942#       发表于 2015-7-2 15:13
 
 
-
-
 现在期待革命军潜入的动画了。这次潜入了7个人。。。大行动啊
-
-
-
-
-
 
 
 -----
 
 ####  flyzzhj  
 ##### 37943#       发表于 2015-7-2 15:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29423896&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-2 15:02</a>
@@ -8455,32 +5504,19 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这里正面描写被鸟笼干掉的平民有几个？数数？
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37944#       发表于 2015-7-2 15:26
 
 
-
-
 看SBS的内容，德雷克将来会大活跃，难道是海军外派最大卧底
-
-
-
-
-
 
 
 -----
 
 ####  liangjiami  
 ##### 37945#       发表于 2015-7-2 15:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29423713&amp;ptid=98922" target="_blank">萝卜roto 发表于 2015-7-2 14:43</a>
@@ -8492,16 +5528,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 放心，下一话十有八九写着下期休刊。
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37946#       发表于 2015-7-2 15:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424051&amp;ptid=98922" target="_blank">flyzzhj 发表于 2015-7-2 15:18</a>
@@ -8516,32 +5546,19 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 阴暗一点想藤虎可能后悔平民死得不够多新闻不够大呢
 
 
-
-
-
-
-
 -----
 
 ####  谢皮利男爵  
 ##### 37947#       发表于 2015-7-2 15:35
 
 
-
-
 这话是不是又有新人物了，给萨博打电话时一直是远景的镜头有个妹子身影，不是克拉尔<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  yario  
 ##### 37948#       发表于 2015-7-2 15:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424217&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-2 15:33</a>
@@ -8552,16 +5569,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 屠杀平民还有理了？
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37949#       发表于 2015-7-2 15:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424261&amp;ptid=98922" target="_blank">yario 发表于 2015-7-2 15:39</a>
@@ -8576,16 +5587,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 非给红狗洗地，但是藤虎的下限实在超过预计
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 37950#       发表于 2015-7-2 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424284&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-2 15:42</a>
@@ -8598,16 +5603,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 心机重+老奸巨猾+嗜赌 我觉得可以说。但是这货在开打前就准备大量医疗部队 中间也大量救平民的表现，不能说是人渣吧。
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37951#       发表于 2015-7-2 15:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424335&amp;ptid=98922" target="_blank">yario 发表于 2015-7-2 15:48</a>
@@ -8616,16 +5615,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 我都不敢想小人公主不放大恢复那些老弱病残咋办，不敢想如果火鸡再撑个一时半刻鸟笼变得很小那些密密麻麻的老百姓会如何
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 37952#       发表于 2015-7-2 15:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424364&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-2 15:52</a>
@@ -8634,16 +5627,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 恩，所以我觉得他的下跪 一半是做戏做全套，一半是真心。
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 37953#       发表于 2015-7-2 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424364&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-2 15:52</a>
@@ -8652,25 +5639,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这事没啥好说的，小不忍则乱大谋。虽然出发点好，也确实是黑，不过名声要比赤犬好。黄猿不管事，青雉也纵容。对比之下，他这大将倒是敢干。
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37954#       发表于 2015-7-2 16:05
 
 
-
-
 藤虎这末一来，海军和zf之间再无宁日
-
-
-
-
-
 
 
 -----
@@ -8679,14 +5654,7 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37955#       发表于 2015-7-2 16:05
 
 
-
-
 藤虎真会玩啊 另外巴基斯这话真是掉价的厉害
-
-
-
-
-
 
 
 -----
@@ -8695,24 +5663,16 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37956#       发表于 2015-7-2 16:07
 
 
-
-
 我现在的做法就是，把boss战脑内屏蔽，调整心态平和之后再继续看OP，这样感觉就好多了。
 
 
 这话藤壶一跪，先不评论藤壶这人咋样，至少这剧情水准上来了。
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 37957#       发表于 2015-7-2 16:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424517&amp;ptid=98922" target="_blank">alecwong 发表于 2015-7-2 16:07</a>
@@ -8724,16 +5684,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这话才是OP该有的水准。至少之前没人猜得到
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 37958#       发表于 2015-7-2 16:22
-
 
 
  本帖最后由 yario 于 2015-7-2 16:28 编辑 
@@ -8741,17 +5695,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 连楼编辑
 
 
-
-
-
-
-
 -----
 
 ####  hagane  
 ##### 37959#       发表于 2015-7-2 16:29
-
-
 
 
 个人感觉啊，萨博是不是已经有轻微的精神分裂症了
@@ -8761,17 +5708,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这话感觉比前面的打斗都好看……
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37960#       发表于 2015-7-2 16:34
-
-
 
 
 对，还有一大丑就是二哥
@@ -8785,17 +5725,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 有点心肝会死？
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 37961#       发表于 2015-7-2 16:39
-
-
 
 
 说起来新时代这三字当初是火鸡第一个说的 没想到是当了新时代的敲门砖。。。
@@ -8804,16 +5737,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 另外距离山治组上线应该进入倒计时了吧
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 37962#       发表于 2015-7-2 16:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424364&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-2 15:52</a>
@@ -8833,16 +5760,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 区别还是很容易看出来的吧 不知道你这个结果是怎么分析出来的...
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 37963#       发表于 2015-7-2 16:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29423446&amp;ptid=98922" target="_blank">龙意识 发表于 2015-7-2 14:12</a>
@@ -8853,16 +5774,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 792标题不是“下跪”吗？
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37964#       发表于 2015-7-2 16:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424903&amp;ptid=98922" target="_blank">flyzzhj 发表于 2015-7-2 16:47</a>
@@ -8875,16 +5790,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 区别就是一个刀子心一个蝎子心
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 37965#       发表于 2015-7-2 17:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424931&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-2 16:51</a>
@@ -8902,16 +5811,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 回去赤犬那里就是大功*3：路飞，罗，火鸡三杀
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37966#       发表于 2015-7-2 17:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29424926&amp;ptid=98922" target="_blank">J-002 发表于 2015-7-2 16:50</a>
@@ -8920,17 +5823,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 梅纳德登场那话儿，以他的名字当标题
 
 
-
-
-
-
-
 -----
 
 ####  monochrome  
 ##### 37967#       发表于 2015-7-2 17:01
-
-
 
 
 藤虎不要叫一笑了，叫一推，一缩，一跪 都好。
@@ -8938,17 +5834,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 枝节太多了，狗屎国王被感恩戴德了两页。而巴基斯和萨博的战斗只有头尾。
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 37968#       发表于 2015-7-2 17:04
-
-
 
 
 且不论国人都支持又贫穷又和平的生活的理念
@@ -8959,16 +5848,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 另外藤虎把火鸡私藏了？老狐狸到底在下什么棋
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 37969#       发表于 2015-7-2 17:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29425020&amp;ptid=98922" target="_blank">flyzzhj 发表于 2015-7-2 17:00</a>
@@ -8981,25 +5864,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 当然是对阻止他废除75海之外的人蝎子啦，包括德岛一国p民
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37970#       发表于 2015-7-2 17:09
 
 
-
-
 我觉得最近海贼王的状态很稳定，一话死喷，一话缓喷，所以下一话估计尾田又要作大死，继续被死喷。可喜可贺。
-
-
-
-
-
 
 
 -----
@@ -9008,14 +5879,7 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37971#       发表于 2015-7-2 17:50
 
 
-
-
 上一话毫无意义，有今话就够了
-
-
-
-
-
 
 
 -----
@@ -9024,14 +5888,7 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37972#       发表于 2015-7-2 18:11
 
 
-
-
 这话虽说是总算又有之前的感觉了，但是德岛屁民这个尿性……我忍不住想起了“需要让人为它而死的国家就让它灭亡好了”这个截图……
-
-
-
-
-
 
 
 -----
@@ -9040,14 +5897,7 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37973#       发表于 2015-7-2 18:24
 
 
-
-
 作者现在也就靠每个岛的一点世界动态博取一点好感度了，然而每个岛开始继续救国模式一样没救
-
-
-
-
-
 
 
 -----
@@ -9056,24 +5906,16 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37974#       发表于 2015-7-2 18:26
 
 
-
-
 下一话明显又是休刊的节奏。
 
 
 然后。萨博的表现真的不能服众，你留着巴基斯做什么，被嘲讽以后说出的解释也不通。我还以为会说什么名台词<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 37975#       发表于 2015-7-2 18:40
-
 
 
 <blockquote>刹那の劍 发表于 2015-7-2 18:26
@@ -9084,16 +5926,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 二哥借别人之口给个被牵制没能抽身的理由也就得了。这话这样自己和大哥被嘲讽也不下死手，就算是不想革命军和四皇冲突也太缩了。不如虐了对面被跑路。
 
 
-
-
-
-
-
 -----
 
 ####  少年包工头  
 ##### 37976#       发表于 2015-7-2 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29425912&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2015-7-2 18:40</a>
@@ -9102,32 +5938,19 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 做不了海贼的贵族，最终还是被束缚无法自由啊~
 
 
-
-
-
-
-
 -----
 
 ####  sta777  
 ##### 37977#       发表于 2015-7-2 19:34
 
 
-
-
 标题透真烦，弄的我从第一幅画惦记着谁给谁跪了的问题
-
-
-
-
-
 
 
 -----
 
 ####  kfc汉堡  
 ##### 37978#       发表于 2015-7-2 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29425912&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2015-7-2 18:40</a>
@@ -9145,25 +5968,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这种塑造法老实说只有岸本干过，死神都没出现过
 
 
-
-
-
-
-
 -----
 
 ####  肮脏的哈里  
 ##### 37979#       发表于 2015-7-2 19:55
 
 
-
-
 海贼正面角色一向不杀人的啊，甚至在艾斯之前一直是在主线剧情不描写具体人物死亡，萨博阻止了巴恩斯伤害路飞就够了，赶尽杀绝不是op风格，我觉得这算不上黑点
-
-
-
-
-
 
 
 -----
@@ -9172,14 +5983,7 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37980#       发表于 2015-7-2 19:56
 
 
-
-
 影帝虎
-
-
-
-
-
 
 
 -----
@@ -9188,22 +5992,15 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37981#       发表于 2015-7-2 19:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426522&amp;ptid=98922" target="_blank">alabotudou 发表于 2015-7-2 19:56</a>
 影帝虎</blockquote>
 黑乖乖
-
-
-
-
-
 
 
 -----
 
 ####  Rockchan  
 ##### 37982#       发表于 2015-7-2 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29424051&amp;amp;ptid=98922" target="_blank">flyzzhj 发表于 2015-7-2 15:18</a>
@@ -9213,16 +6010,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 沒有公主不斷開大回復，德島一城死的人會比一船的人多。尾田也描寫不少人跑不了，是靠公主救回來的。
 
 
-
-
-
-
-
 -----
 
 ####  kfc汉堡  
 ##### 37983#       发表于 2015-7-2 20:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426512&amp;ptid=98922" target="_blank">肮脏的哈里 发表于 2015-7-2 19:55</a>
@@ -9235,16 +6026,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 从来像这样“哎哟不打了”的情况出现。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37984#       发表于 2015-7-2 20:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426449&amp;ptid=98922" target="_blank">kfc汉堡 发表于 2015-7-2 19:48</a>
@@ -9255,16 +6040,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 你一点都不适应看op，整部漫画有这么多人都有血海深仇的死敌，都没有至对方死地。不明白为什么要无视整部作品自己的规则。op就是在这种时候会完全没逻辑的进入不下死手模式。
 
 
-
-
-
-
-
 -----
 
 ####  kfc汉堡  
 ##### 37985#       发表于 2015-7-2 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426820&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-2 20:30</a>
@@ -9275,17 +6054,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 我可没见到“死敌对打”打一半就收手的。
 
 
-
-
-
-
-
 -----
 
 ####  Rockchan  
 ##### 37986#       发表于 2015-7-2 20:38
-
-
 
 
 藤虎既然要跪，那便應一開始自己主動去打明哥，如果由海軍把明哥打倒那對海軍來說問題反而少了點。以往有人說藤虎划水是因為受制於海軍制度，那現在主動把鍋扣在海軍及世界政府上總不會也是海軍制度要求吧？而且這還在海軍在這次事件中因藤虎划水而沒有多少實績的情況下發生。當然如果藤虎想攪破壞便是另一回事了。
@@ -9298,16 +6070,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 這一次不止丟盡海軍臉子，還讓海軍及世界政府交惡，這行為真陰險。
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 37987#       发表于 2015-7-2 20:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426837&amp;ptid=98922" target="_blank">kfc汉堡 发表于 2015-7-2 20:32</a>
@@ -9317,16 +6083,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 不都交给路飞了，远有娜美，近有罗。我是指整个复仇的行为，你是指单独的战斗？
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 37988#       发表于 2015-7-2 20:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426449&amp;ptid=98922" target="_blank">kfc汉堡 发表于 2015-7-2 19:48</a>
@@ -9338,16 +6098,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 因为这里嘲讽放出来了，对面跑路跟你角色塑造有什么关系？我反正是不懂。人头要留的道理我早知道了，所以我才没说让他收头。这里话都说死，可以抽他对他放话，现在搞你不是时候，留着一锅端。或者对面有援军成功跑路。
 
 
-
-
-
-
-
 -----
 
 ####  kfc汉堡  
 ##### 37989#       发表于 2015-7-2 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426933&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-2 20:43</a>
@@ -9362,16 +6116,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 到萨博这就变成聊天对话罚酒三杯了。
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 37990#       发表于 2015-7-2 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426885&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-7-2 20:38</a>
@@ -9380,16 +6128,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 感觉本质上就奔着废七武海上去了，原本这事自己上就是内部擦屁股，有功有过，其他七武海该咋咋样。现在这岛的事大，自己煽风点火又把篓子捅大了，不给封锁机会。至少让这个议程能搬上台面。受制于海军体制这话一半有理。没前提也没必要把局面搞成这样。是个谋略派倒和仁爱有些许冲突，大方向上没错，但容许了牺牲。
 
 
-
-
-
-
-
 -----
 
 ####  フエア  
 ##### 37991#       发表于 2015-7-2 21:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29427018&amp;ptid=98922" target="_blank">kfc汉堡 发表于 2015-7-2 20:51</a>
@@ -9401,25 +6143,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 谁跟你说OP里npc有大仇打架就要见血要命的，主线boss被主角打飞再正常不过了，萨博他们npc之间互殴，非要拿主角标准衡量几个配角，强行大惊小怪。
 
 
-
-
-
-
-
 -----
 
 ####  sungoldy  
 ##### 37992#       发表于 2015-7-2 21:07
 
 
-
-
 我到蛮喜欢海军大将是黑心的，路飞那样子实在看不下去
-
-
-
-
-
 
 
 -----
@@ -9428,22 +6158,15 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37993#       发表于 2015-7-2 21:31
 
 
-
 <img src="http://ww3.sinaimg.cn/mw1024/62f91fdejw1etlb7545rtj20r60j6qe3.jpg" referrerpolicy="no-referrer">
 
 隔壁影视区找到一张图
-
-
-
-
-
 
 
 -----
 
 ####  千叶铁矢  
 ##### 37994#       发表于 2015-7-2 21:40
-
 
 
 <blockquote>引用第38059楼kfc汉堡于2015-07-02 20:51发表的  :
@@ -9455,16 +6178,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 37995#       发表于 2015-7-2 21:41
-
 
 
 <blockquote>引用第38047楼sta777于2015-07-02 19:34发表的  :
@@ -9476,25 +6193,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 37996#       发表于 2015-7-2 21:48
 
 
-
-
 看了 各大论坛 这一话跳脚最厉害的基本都有共同属性——明哥粉丝。
-
-
-
-
-
 
 
 -----
@@ -9503,14 +6208,7 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37997#       发表于 2015-7-2 21:58
 
 
-
-
 就藤虎这表现，你说他是革命军卧底我都信！
-
-
-
-
-
 
 
 -----
@@ -9519,23 +6217,16 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 37998#       发表于 2015-7-2 22:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29427659&amp;ptid=98922" target="_blank">athena_1982 发表于 2015-7-2 21:58</a>
 
 就藤虎这表现，你说他是革命军卧底我都信！</blockquote>
 其实更奇怪的是他的手下 全部同意他的做法。。。。
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 37999#       发表于 2015-7-2 22:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29427124&amp;ptid=98922" target="_blank">フエア 发表于 2015-7-2 21:03</a>
@@ -9545,32 +6236,19 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 冠军已经没有正面交锋的斗志和能力了，所以萨博收手也很正常，只不过冠军还有意识，而路飞所面对的boss没有这种待遇而已
 
 
-
-
-
-
-
 -----
 
 ####  hie  
 ##### 38000#       发表于 2015-7-2 22:22
 
 
-
-
 鱼人女王死前都要大家忘记仇恨，宣传仇恨不要留给下一代
-
-
-
-
-
 
 
 -----
 
 ####  kfc汉堡  
 ##### 38001#       发表于 2015-7-2 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29427689&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2015-7-2 22:01</a>
@@ -9589,25 +6267,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这次这深仇大恨而且是明摆着的现实威胁，都不处理……简直是为剧情而剧情了
 
 
-
-
-
-
-
 -----
 
 ####  巴尔库夫  
 ##### 38002#       发表于 2015-7-2 22:36
 
 
-
-
 海军的世界范围大征兵,免不了要被掺沙子
-
-
-
-
-
 
 
 -----
@@ -9616,16 +6282,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 38003#       发表于 2015-7-2 22:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29427687&amp;ptid=98922" target="_blank">yario 发表于 2015-7-2 22:01</a>
 
 其实更奇怪的是他的手下 全部同意他的做法。。。。</blockquote>
 没仔细看？有反抗意见的被他干掉了...
-
-
-
-
-
 
 
 -----
@@ -9634,17 +6294,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 38004#       发表于 2015-7-2 23:08
 
 
-
-
 一话看下来就一句话
 
 
 海军恐成最大输家
-
-
-
-
-
 
 
 -----
@@ -9653,21 +6306,13 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 38005#       发表于 2015-7-2 23:46
 
 
-
-
 哎，德岛两年多，这样收场。。
-
-
-
-
-
 
 
 -----
 
 ####  saturnus  
 ##### 38006#       发表于 2015-7-3 00:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29423738&amp;ptid=98922" target="_blank">嘲风 发表于 2015-7-2 14:46</a>
@@ -9679,16 +6324,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 这里面还有个爆料就是吧唧大神不怕鸟笼，实力应该远超大将<img src="https://static.saraba1st.com/image/smiley/face/130.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  guying  
 ##### 38007#       发表于 2015-7-3 01:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29426449&amp;ptid=98922" target="_blank">kfc汉堡 发表于 2015-7-2 19:48</a>
@@ -9702,17 +6341,10 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 有这种仇深似海的人，也有不是的，别不和自己想的一样，就说不合理的好吗，现实有的是理解不了的人
 
 
-
-
-
-
-
 -----
 
 ####  =D_BOY=Damned  
 ##### 38008#       发表于 2015-7-3 03:13
-
-
 
 
 现在还有哪个手机app能追OP么？追追也挂了……：（
@@ -9721,27 +6353,15 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ----发送自 [Sony L39h,Android 4.4.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  传说中的小鱼  
 ##### 38009#       发表于 2015-7-3 09:44
 
 
-
-
 二哥照葫芦画瓢把冠军抓回去威胁黑胡子不就得了？
 
 算了，他不是四皇，没那么卑鄙。
-
-
-
-
-
 
 
 -----
@@ -9750,23 +6370,16 @@ SBS也出了，老沙成名比火鸡早啊，而且还是当上七武海才去�
 ##### 38010#       发表于 2015-7-3 10:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29428192&amp;ptid=98922" target="_blank">flyzzhj 发表于 2015-7-2 22:57</a>
 
 没仔细看？有反抗意见的被他干掉了...</blockquote>
 藤虎什么时候干过自己手下的海军？
 
 
-
-
-
-
-
 -----
 
 ####  gasijier  
 ##### 38011#       发表于 2015-7-3 10:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29429075&amp;ptid=98922" target="_blank">saturnus 发表于 2015-7-3 00:50</a>
@@ -9778,25 +6391,13 @@ http://tieba.baidu.com/p/3865656697
 他的脚躲不过鸟笼，不是完全分裂
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 38012#       发表于 2015-7-3 10:22
 
 
-
-
 只要是自然系都不怕鸟笼吧？
-
-
-
-
-
 
 
 -----
@@ -9805,17 +6406,10 @@ http://tieba.baidu.com/p/3865656697
 ##### 38013#       发表于 2015-7-3 10:45
 
 
-
-
 腾讯动漫咯
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -9824,15 +6418,9 @@ http://tieba.baidu.com/p/3865656697
 ##### 38014#       发表于 2015-7-3 11:08
 
 
-
 <blockquote>gasijier 发表于 2015-7-3 10:12
 他的脚躲不过鸟笼，不是完全分裂</blockquote>
 不是脚不能分裂是脚不能飞
-
-
-
-
-
 
 
 -----
@@ -9841,21 +6429,13 @@ http://tieba.baidu.com/p/3865656697
 ##### 38015#       发表于 2015-7-3 13:11
 
 
-
-
 下跪那页我第一反应是藤虎用果实让其他小兵一起下跪
-
-
-
-
-
 
 
 -----
 
 ####  meforice  
 ##### 38016#       发表于 2015-7-3 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29429075&amp;ptid=98922" target="_blank">saturnus 发表于 2015-7-3 00:50</a>
@@ -9867,16 +6447,10 @@ http://tieba.baidu.com/p/3865656697
 能和四皇红毛五五开的巴基大人，实力强过大将没问题，妥妥的！
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 38017#       发表于 2015-7-3 14:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29429529&amp;ptid=98922" target="_blank">=D_BOY=Damned 发表于 2015-7-3 03:13</a>
@@ -9888,17 +6462,10 @@ http://tieba.baidu.com/p/3865656697
 漫画人
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 38018#       发表于 2015-7-3 15:23
-
-
 
 
 "D：在海贼巴雷鲁兹身边，被叫做德利的他，就是X德里克吧？DS的名字，下巴上的伤加上北海出身所以我注意到了。这么说巴雷鲁兹是他父亲吗？"
@@ -9907,16 +6474,10 @@ http://tieba.baidu.com/p/3865656697
 SBS里的这个问题是在哪话来着？
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 38019#       发表于 2015-7-3 15:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29434383&amp;ptid=98922" target="_blank">嘲风 发表于 2015-7-3 15:23</a>
@@ -9925,25 +6486,13 @@ SBS里的这个问题是在哪话来着？
 罗回忆里，去抢手术果实时候，先前得到果实的那群海贼吧
 
 
-
-
-
-
-
 -----
 
 ####  bloodalone  
 ##### 38020#       发表于 2015-7-3 15:47
 
 
-
-
 藤虎其实是下跪果实能力者，砸陨石也是让天上的石头下跪
-
-
-
-
-
 
 
 -----
@@ -9952,14 +6501,7 @@ SBS里的这个问题是在哪话来着？
 ##### 38021#       发表于 2015-7-3 17:09
 
 
-
-
 和面子果实能难解难分啊
-
-
-
-
-
 
 
 -----
@@ -9968,14 +6510,7 @@ SBS里的这个问题是在哪话来着？
 ##### 38022#       发表于 2015-7-3 17:27
 
 
-
-
 下跪果实应该是面子果实的低级版本吧
-
-
-
-
-
 
 
 -----
@@ -9984,14 +6519,7 @@ SBS里的这个问题是在哪话来着？
 ##### 38023#       发表于 2015-7-3 20:33
 
 
-
-
 其实我觉得不用急着喷德岛篇啊，德岛篇又没说一定是明哥篇，CP0和大妈一大堆事都还没说呢，就这么1~2话突然打完搞不好明哥在这只是个中BOSS而不是守关的，过几周再下结论吧
-
-
-
-
-
 
 
 -----
@@ -10000,15 +6528,9 @@ SBS里的这个问题是在哪话来着？
 ##### 38024#       发表于 2015-7-3 20:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29437237&amp;amp;ptid=98922" target="_blank">olkzdf 发表于 2015-7-3 20:33</a>
 其实我觉得不用急着喷德岛篇啊，德岛篇又没说一定是明哥篇，CP0和大妈一大堆事都还没说呢，就这么1~2话突然 ...</blockquote>
 再神转折也不可能洗白鸟笼的逻辑缺失和战斗的疲惫不堪了
-
-
-
-
-
 
 
 -----
@@ -10017,17 +6539,10 @@ SBS里的这个问题是在哪话来着？
 ##### 38025#       发表于 2015-7-3 20:51
 
 
-
-
 大妈主船濒临国界，明哥这里应该是想放大招感紧解决，然而这其中一点心理描写都没有，这条线在目前德岛战中一点没有用到，其实从那时开始没过多长时间吧，然而之后剧情太拖以至让人的时间感产生混乱。
 
 
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -10036,17 +6551,10 @@ SBS里的这个问题是在哪话来着？
 ##### 38026#       发表于 2015-7-4 00:46
 
 
-
-
 那群国民宁愿被侵略当奴隶都要民主，反战争，也难怪火鸡跟废物国王能统治这么久了
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.15)
-
-
-
-
-
 
 
 -----
@@ -10055,17 +6563,10 @@ SBS里的这个问题是在哪话来着？
 ##### 38027#       发表于 2015-7-4 00:55
 
 
-
-
 下跪果实喷了，不愧是大将，能跟四皇五五开
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.15)
-
-
-
-
-
 
 
 -----
@@ -10074,21 +6575,13 @@ SBS里的这个问题是在哪话来着？
 ##### 38028#       发表于 2015-7-8 21:51
 
 
-
-
 藤虎绝逼影帝
-
-
-
-
-
 
 
 -----
 
 ####  哈尔摩尼亚  
 ##### 38029#       发表于 2015-7-8 22:20
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">说起来，明哥当初虽说号称要屠城，但总不可能连海军都屠啊
@@ -10098,16 +6591,10 @@ SBS里的这个问题是在哪话来着？
 还有，鸟笼关得住小人族吗？
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38030#       发表于 2015-7-8 22:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29431786&amp;ptid=98922" target="_blank">Brad_Pitt 发表于 2015-7-3 11:08</a>
@@ -10116,16 +6603,10 @@ SBS里的这个问题是在哪话来着？
 如果吧唧学金狮子一样不要脚了是不是无敌了<img src="https://static.saraba1st.com/image/smiley/nq/002.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 38031#       发表于 2015-7-8 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29485460&amp;ptid=98922" target="_blank">哈尔摩尼亚 发表于 2015-7-8 22:20</a>
@@ -10136,16 +6617,10 @@ SBS里的这个问题是在哪话来着？
 WT没想那么多，不然这篇章不会被骂惨了
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38032#       发表于 2015-7-8 23:16
-
 
 
 <blockquote>引用第38113楼Brad_Pitt于2015-07-03 11:08发表的  :
@@ -10155,11 +6630,6 @@ WT没想那么多，不然这篇章不会被骂惨了
 
 
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -10178,17 +6648,10 @@ RE:
 要不然为什么那么多人骂微甜这一章根本没带脑
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 38034#       发表于 2015-7-9 09:11
-
-
 
 
 火鸟和沙鳄的战略头脑差老远的感觉
@@ -10200,16 +6663,10 @@ RE:
 火鸟手下最bug的能力者的能力用的都是全方位的，而且基本上是对谁都用。弱点也暴露无遗，结果就是砂糖被抓住弱点弄晕了两次。当然这种使用方法和火鸟那种嚣张的性格有一定关系，相比之下沙鳄就是典型的闷声发大财了
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 38035#       发表于 2015-7-9 09:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29487964&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-7-9 09:11</a>
@@ -10228,16 +6685,10 @@ RE:
 火鸡手下，也就那个和弗兰奇硬钢的胖子有点存在感了...砂糖碰到乌索普只有认怂的命，可以参考某佩罗娜
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 38036#       发表于 2015-7-9 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29488045&amp;ptid=98922" target="_blank">flyzzhj 发表于 2015-7-9 09:18</a>
@@ -10250,32 +6701,19 @@ RE:
 感觉Mr.2和Mr.3才是真正不可少的智将，特别是Mr.3，虽然战斗能力不强，但能把果实使得这么好的，BW社里都少
 
 
-
-
-
-
-
 -----
 
 ####  morment  
 ##### 38037#       发表于 2015-7-9 10:20
 
 
-
-
 藤虎是专门搞臭海军的细作啊，你们怎么就想不通来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  箭猪  
 ##### 38038#       发表于 2015-7-9 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29485464&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-8 22:20</a>
@@ -10286,32 +6724,19 @@ RE:
 不要脚走不了多远。
 
 
-
-
-
-
-
 -----
 
 ####  kuroro  
 ##### 38039#       发表于 2015-7-9 11:51
 
 
-
-
 新情报：赤犬让藤虎去抓罗路，超新星们蠢蠢欲动想去干四皇，五老星出场
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 38040#       发表于 2015-7-9 12:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29487964&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-7-9 09:11</a>
@@ -10323,25 +6748,13 @@ RE:
 火鸡这几天刚刚布置。砂糖的晕倒是God厉害，无解的。如果紫罗兰是火鸡自己人的话其实早赢了，如果伟哥前几天没去冰火岛，现在还可以混在海军里搞小动作
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 38041#       发表于 2015-7-9 12:44
 
 
-
-
 如果罗和路飞在冰火岛等着火鸡，反而比较好打吧（佐罗仍然负责推鸟笼）
-
-
-
-
-
 
 
 -----
@@ -10350,16 +6763,10 @@ RE:
 ##### 38042#       发表于 2015-7-9 13:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29490171&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-9 12:36</a>
 
 鳄鱼布局这么多年，但是如果没有卧底国王军的低级社员神勇表现早就崩盘了，而高级干部的作用还没他们大。 ...</blockquote>
 好久没回顾了可能我记错了，但是我印象里朝小孩开枪的其实是Mr.2和他的手下的人乔装成的国王军吧
-
-
-
-
-
 
 
 -----
@@ -10368,17 +6775,10 @@ RE:
 ##### 38043#       发表于 2015-7-9 13:50
 
 
-
-
 这一话信息量太大，完全消化不来啊。。。青鸡居然倒戈黑胡子，好像有点做卧底最后领便当的味道啊。
 
 
 ----发送自 [Sony D5833,Android 5.0.2](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -10387,14 +6787,7 @@ RE:
 ##### 38044#       发表于 2015-7-9 13:54
 
 
-
-
 基德要战的居然是面子帝，这跪的可能性有点大啊
-
-
-
-
-
 
 
 -----
@@ -10403,14 +6796,7 @@ RE:
 ##### 38045#       发表于 2015-7-9 13:54
 
 
-
-
 好久不见五老星，那画风感觉像是从柯南那边穿越过来的
-
-
-
-
-
 
 
 -----
@@ -10419,14 +6805,7 @@ RE:
 ##### 38046#       发表于 2015-7-9 13:57
 
 
-
-
 赤犬和藤虎开喷了
-
-
-
-
-
 
 
 -----
@@ -10435,14 +6814,7 @@ RE:
 ##### 38047#       发表于 2015-7-9 13:57
 
 
-
-
 绿牛快出来
-
-
-
-
-
 
 
 -----
@@ -10451,16 +6823,10 @@ RE:
 ##### 38048#       发表于 2015-7-9 14:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29490729&amp;ptid=98922" target="_blank">jsyyyz 发表于 2015-7-9 13:43</a>
 
 好久没回顾了可能我记错了，但是我印象里朝小孩开枪的其实是Mr.2和他的手下的人乔装成的国王军吧 ...</blockquote>
 在首都叛军和国王军混战的时候，谁说港口的误会了
-
-
-
-
-
 
 
 -----
@@ -10469,21 +6835,13 @@ RE:
 ##### 38049#       发表于 2015-7-9 14:03
 
 
-
-
 藤虎也真是吊。。。。
-
-
-
-
-
 
 
 -----
 
 ####  萝卜roto  
 ##### 38050#       发表于 2015-7-9 14:05
-
 
 
 <blockquote>引用第38143楼kuroro于2015-07-09 13:54发表的  :
@@ -10495,17 +6853,10 @@ RE:
 ----发送自 [Sony D5833,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 38051#       发表于 2015-7-9 14:06
-
-
 
 
 这话...噗哈哈哈
@@ -10514,24 +6865,13 @@ RE:
 各方面态度很值得玩味啊。
 
 
-
-
-
-
-
 -----
 
 ####  アルメリア  
 ##### 38052#       发表于 2015-7-9 14:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">藤虎要收割人头了吗
-
-
-
-
-
 
 
 -----
@@ -10540,14 +6880,7 @@ RE:
 ##### 38053#       发表于 2015-7-9 14:18
 
 
-
-
 藤虎要成立新海军节奏吗。。。
-
-
-
-
-
 
 
 -----
@@ -10556,24 +6889,15 @@ RE:
 ##### 38054#       发表于 2015-7-9 14:24
 
 
-
-
 基德联盟想搞香克斯……这么说面子果实拥有者终于可以秀秀果实力量了？期待！最开始喜欢上的角色就是香克斯了
 
 不过最近他露脸的画面看着都很黑
-
-
-
-
-
 
 
 -----
 
 ####  箭猪  
 ##### 38055#       发表于 2015-7-9 14:26
-
-
 
 
 服…这你妈藤虎…之狠。
@@ -10589,25 +6913,13 @@ RE:
 但……整个德岛战斗一塌糊涂和配角个个靠近死神（没有主次）这毛病希望下次岛不要在犯了。
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 38056#       发表于 2015-7-9 14:28
 
 
-
-
 这集终于好看起来了
-
-
-
-
-
 
 
 -----
@@ -10616,22 +6928,13 @@ RE:
 ##### 38057#       发表于 2015-7-9 14:31
 
 
-
-
 凯多这是在和之国吧，住天守阁里面
-
-
-
-
-
 
 
 -----
 
 ####  龙意识  
 ##### 38058#       发表于 2015-7-9 14:33
-
-
 
 
 这话信息量太大。。。
@@ -10649,25 +6952,13 @@ RE:
 路飞他们接下来怎么摆脱藤虎
 
 
-
-
-
-
-
 -----
 
 ####  云中君  
 ##### 38059#       发表于 2015-7-9 14:37
 
 
-
-
 青鸡居然加入黑胡子。。。。  玩无间道么
-
-
-
-
-
 
 
 -----
@@ -10676,14 +6967,7 @@ RE:
 ##### 38060#       发表于 2015-7-9 14:55
 
 
-
-
 确实一下子就有意思多了
-
-
-
-
-
 
 
 -----
@@ -10692,14 +6976,7 @@ RE:
 ##### 38061#       发表于 2015-7-9 14:55
 
 
-
-
 看这话青稚，五老星和腾虎的动向，有种赤犬尽力了，你行你上啊的感觉。。<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10708,14 +6985,7 @@ RE:
 ##### 38062#       发表于 2015-7-9 14:56
 
 
-
-
 卡彭这是加入了大妈集团啊，可怜的厨子要被夹击了
-
-
-
-
-
 
 
 -----
@@ -10724,16 +6994,10 @@ RE:
 ##### 38063#       发表于 2015-7-9 14:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491212&amp;ptid=98922" target="_blank">萌即正义 发表于 2015-7-9 14:56</a>
 
 卡彭这是加入了大妈集团啊，可怜的厨子要被夹击了</blockquote>
 厨子连这货都搞不定真是丢死草帽的脸了
-
-
-
-
-
 
 
 -----
@@ -10742,21 +7006,13 @@ RE:
 ##### 38064#       发表于 2015-7-9 14:58
 
 
-
-
 这话简直炸裂，一扫之前的阴霾，讲世界局势的话数真特么加分啊！！！
-
-
-
-
-
 
 
 -----
 
 ####  FCS-31  
 ##### 38065#       发表于 2015-7-9 14:59
-
 
 
  本帖最后由 FCS-31 于 2015-7-9 15:22 编辑 
@@ -10767,17 +7023,10 @@ RE:
 oh我说这话怎么觉得赤犬有点怪，不穿那身红色西装而是换上海军标准制服了。
 
 
-
-
-
-
-
 -----
 
 ####  ramoc  
 ##### 38066#       发表于 2015-7-9 15:00
-
-
 
 
 难以置信到现在为止海军都对凯撒这个烫手山芋无动于衷，本身就是大监狱的逃犯，现在又成了各大势力争夺的目标。原来是七武海的手下所以不便对他出手的话可以理解，现在JOKER家族已经倒台，如果凯撒被其他四皇得手对海军而言没有一点好处啊？况且现在凯撒几乎近在咫尺，不知道藤虎接下来会不会对此有所动作。另外，最后藤虎的那句“正合我意”到底指的是？从气氛上来看恐怕没有服从赤犬的意思，那说不定就指的是“在事件尘埃落定之前都不算回总部”的意思了，也就是说恐怕藤虎还会在接下来的事件当中积极插手。
@@ -10789,27 +7038,15 @@ oh我说这话怎么觉得赤犬有点怪，不穿那身红色西装而是换上
 另外对于库赞离开海军，恐怕确实是因为他和赤犬理念不合吧，不过估计也不像五老星说的那样，成为了黑胡子势力的一部分。之前斯摩格说他黑白两道，黑指的八成就是黑胡子了。不过PH岛上被冰冻的犯人尸体到现在还没有解释，但是感觉基本上就是青雉所为，很难相信这件事赤犬会不知情，看看接下来这件事会怎么解释吧。
 
 
-
-
-
-
-
 -----
 
 ####  漆黑弥塞亚  
 ##### 38067#       发表于 2015-7-9 15:00
 
 
-
-
 藤虎最后这话其实也没说清楚
 
 赤犬说抓不到草帽罗就别回去了，藤虎这个“正合我意”是指要抓草帽，还是不想回去了呢……
-
-
-
-
-
 
 
 -----
@@ -10818,16 +7055,10 @@ oh我说这话怎么觉得赤犬有点怪，不穿那身红色西装而是换上
 ##### 38068#       发表于 2015-7-9 15:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491116&amp;ptid=98922" target="_blank">faust123 发表于 2015-7-9 14:31</a>
 
 凯多这是在和之国吧，住天守阁里面</blockquote>
 我也觉得是天守阁
-
-
-
-
-
 
 
 -----
@@ -10836,16 +7067,9 @@ oh我说这话怎么觉得赤犬有点怪，不穿那身红色西装而是换上
 ##### 38069#       发表于 2015-7-9 15:03
 
 
-
-
 说起来，
 
 这种信息量连续引爆，全篇没有一个累赘分镜和对白的尾田式神回还要追溯到730也就是厨子掉线那一回
-
-
-
-
-
 
 
 -----
@@ -10854,16 +7078,9 @@ oh我说这话怎么觉得赤犬有点怪，不穿那身红色西装而是换上
 ##### 38070#       发表于 2015-7-9 15:06
 
 
-
-
 这么重量级的一回依然是14页
 
 wt这身体我看是好不了了
-
-
-
-
-
 
 
 -----
@@ -10872,14 +7089,7 @@ wt这身体我看是好不了了
 ##### 38071#       发表于 2015-7-9 15:09
 
 
-
-
 掉线组还不上线？从卡彭的态度看，自然之前大妈手下与掉线组并没有汇合到一起，不然就不会说什么“拿下凯撒”了。不知道之前的大妈船队，是不是就是卡彭一伙。
-
-
-
-
-
 
 
 -----
@@ -10888,16 +7098,10 @@ wt这身体我看是好不了了
 ##### 38072#       发表于 2015-7-9 15:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29490859&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-9 14:00</a>
 
 在首都叛军和国王军混战的时候，谁说港口的误会了</blockquote>
 哦哦，就是说那个其实没有沙鳄鱼的干预还是黄了
-
-
-
-
-
 
 
 -----
@@ -10906,14 +7110,7 @@ wt这身体我看是好不了了
 ##### 38073#       发表于 2015-7-9 15:15
 
 
-
-
 感觉每次都是过渡回比正叙回好看啊
-
-
-
-
-
 
 
 -----
@@ -10922,14 +7119,7 @@ wt这身体我看是好不了了
 ##### 38074#       发表于 2015-7-9 15:19
 
 
-
-
 所以以后OP是不是可以不用看打斗了<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10938,14 +7128,7 @@ wt这身体我看是好不了了
 ##### 38075#       发表于 2015-7-9 15:21
 
 
-
-
 凯多在和之国的话，和4皇战斗比我想象的还早一点。藤虎这说话的语气应该是跟政府翻脸了。
-
-
-
-
-
 
 
 -----
@@ -10954,14 +7137,7 @@ wt这身体我看是好不了了
 ##### 38076#       发表于 2015-7-9 15:22
 
 
-
-
 赤犬接这个烂摊子也是辛苦了，。。 青稚跑去黑胡子哪里真是炸裂消息。。 藤虎打算收渔翁之利么？不出手的原因就是想螳螂捕蝉黄雀在后？
-
-
-
-
-
 
 
 -----
@@ -10970,14 +7146,7 @@ wt这身体我看是好不了了
 ##### 38077#       发表于 2015-7-9 15:27
 
 
-
-
 现在贴吧挂的这版翻译跟一开始的那版翻译好多地方都意思不一样啊......
-
-
-
-
-
 
 
 -----
@@ -10986,14 +7155,7 @@ wt这身体我看是好不了了
 ##### 38078#       发表于 2015-7-9 15:29
 
 
-
-
 暴龙这是跟了凯多？？？<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11002,14 +7164,7 @@ wt这身体我看是好不了了
 ##### 38079#       发表于 2015-7-9 15:30
 
 
-
-
 是不是大概可以肯定OP的编辑已经换人了
-
-
-
-
-
 
 
 -----
@@ -11018,14 +7173,7 @@ wt这身体我看是好不了了
 ##### 38080#       发表于 2015-7-9 15:31
 
 
-
-
 这才是OP应有的水准啊！！！！！前些天一定是替身画的吧，一定是吧！！！
-
-
-
-
-
 
 
 -----
@@ -11034,16 +7182,10 @@ wt这身体我看是好不了了
 ##### 38081#       发表于 2015-7-9 15:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491509&amp;ptid=98922" target="_blank">alecwong 发表于 2015-7-9 15:31</a>
 
 这才是OP应有的水准啊！！！！！前些天一定是替身画的吧，一定是吧！！！ ...</blockquote>
 按尾田最近的身体状况，搞不好是助手乱画的
-
-
-
-
-
 
 
 -----
@@ -11052,16 +7194,9 @@ wt这身体我看是好不了了
 ##### 38082#       发表于 2015-7-9 15:45
 
 
-
-
 赤犬这元帅真是对上对下都没讨到好
 
 赶紧学某人辞职吧
-
-
-
-
-
 
 
 -----
@@ -11070,14 +7205,7 @@ wt这身体我看是好不了了
 ##### 38083#       发表于 2015-7-9 15:50
 
 
-
-
 红发和青鸡可能会被剧情杀
-
-
-
-
-
 
 
 -----
@@ -11086,15 +7214,9 @@ wt这身体我看是好不了了
 ##### 38084#       发表于 2015-7-9 15:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491498&amp;ptid=98922" target="_blank">powerpyc 发表于 2015-7-9 15:29</a>
 暴龙这是跟了凯多？？？</blockquote>
 之前扉页里就是凯多的人了，泥巴造反的岛是凯多的领地，德雷克去收拾他的
-
-
-
-
-
 
 
 -----
@@ -11103,22 +7225,13 @@ wt这身体我看是好不了了
 ##### 38085#       发表于 2015-7-9 15:55
 
 
-
-
 信息量太大
-
-
-
-
-
 
 
 -----
 
 ####  箭猪  
 ##### 38086#       发表于 2015-7-9 15:56
-
-
 
 
 青鸡投靠黑胡子
@@ -11129,17 +7242,10 @@ wt这身体我看是好不了了
 不知是属于预言性质的推测，还是胡逼嘴炮，但……想不到居然成真了。
 
 
-
-
-
-
-
 -----
 
 ####  亚雷斯  
 ##### 38087#       发表于 2015-7-9 15:56
-
-
 
 
 青雉加入黑胡子，我艹这消息太劲爆了
@@ -11149,16 +7255,10 @@ wt这身体我看是好不了了
 基德联盟要搞红发不是搞大妈。不过为毛“对方目标不一致真是太好了”，明明目标一致的话可以更容易搞四皇啊
 
 
-
-
-
-
-
 -----
 
 ####  powerpyc  
 ##### 38088#       发表于 2015-7-9 15:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491732&amp;ptid=98922" target="_blank">亚雷斯 发表于 2015-7-9 15:56</a>
@@ -11171,16 +7271,10 @@ wt这身体我看是好不了了
 目标一致怕先打一架内耗吧
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38089#       发表于 2015-7-9 16:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29488724&amp;ptid=98922" target="_blank">箭猪 发表于 2015-7-9 10:22</a>
@@ -11191,25 +7285,13 @@ wt这身体我看是好不了了
 知道呀，大监狱里说过，我的意思是把脚给抹杀掉，灰飞烟灭那种，结果会是变成一个没脚的搓小丑还是飞天小丑皇？<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 38090#       发表于 2015-7-9 16:03
 
 
-
-
 话说黑胡子还真敢要青雉，除了黑胡子自己其他人还不怕得要死？
-
-
-
-
-
 
 
 -----
@@ -11218,23 +7300,16 @@ wt这身体我看是好不了了
 ##### 38091#       发表于 2015-7-9 16:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491776&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-9 16:00</a>
 
 知道呀，大监狱里说过，我的意思是把脚给抹杀掉，灰飞烟灭那种，结果会是变成一个没脚的搓小丑还是飞天小 ...</blockquote>
 那可能性多半是脚脖子会代替脚成为轴心，或者十分干脆的失去了飞行能力……
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 38092#       发表于 2015-7-9 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491727&amp;ptid=98922" target="_blank">箭猪 发表于 2015-7-9 15:56</a>
@@ -11245,25 +7320,13 @@ wt这身体我看是好不了了
 因为巴基斯打电话给黑胡子，说信不过青雉，黑胡子好像举了紫龙的例子，巴基斯说不一样。还有就是火鸡和青雉见面的时候说他有不好的传闻。结合起来就有人猜青雉卧底黑胡子
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 38093#       发表于 2015-7-9 16:11
 
 
-
-
 哎尾田能把故事画完就好 战斗部分助手画的糙一点我也认了
-
-
-
-
-
 
 
 -----
@@ -11272,17 +7335,10 @@ wt这身体我看是好不了了
 ##### 38094#       发表于 2015-7-9 16:35
 
 
-
-
 为什么"我的目标是红发"由killer来说…？幕后？
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -11291,23 +7347,16 @@ wt这身体我看是好不了了
 ##### 38095#       发表于 2015-7-9 16:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491068&amp;ptid=98922" target="_blank">Charizard 发表于 2015-7-9 14:24</a>
 
 基德联盟想搞香克斯……这么说面子果实拥有者终于可以秀秀果实力量了？期待！最开始喜欢上的角色就是香克斯 ...</blockquote>
 依照WT大大的一关尿性来看应该是一话提及基德联盟遇上面子帝、然后过段时间再来一话出结果。。。<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Rockchan  
 ##### 38096#       发表于 2015-7-9 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29485460&amp;amp;ptid=98922" target="_blank">哈尔摩尼亚 发表于 2015-7-8 22:20</a>
@@ -11317,16 +7366,10 @@ wt这身体我看是好不了了
 漫畫有描寫明哥早已準備幹掉海賊後下一個便是藤虎。
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38097#       发表于 2015-7-9 16:48
-
 
 
  本帖最后由 门田京平 于 2015-7-9 16:54 编辑 
@@ -11344,9 +7387,6 @@ wt这身体我看是好不了了
 2015-7-9 16:54 上传
 
 
-
-
-
 <img src="http://img.saraba1st.com/forum/201507/09/165417m85s0bukmh8ddu1h.png" referrerpolicy="no-referrer">
 
 
@@ -11357,30 +7397,13 @@ wt这身体我看是好不了了
 2015-7-9 16:54 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  PATLABOR  
 ##### 38098#       发表于 2015-7-9 17:05
 
 
-
-
 鹤中将船上的检察官是卡普吗？怎么调任干这个了？
-
-
-
-
-
 
 
 -----
@@ -11389,14 +7412,7 @@ wt这身体我看是好不了了
 ##### 38099#       发表于 2015-7-9 17:06
 
 
-
-
 如今有人掉线，还会不会有例行的庆祝篇？
-
-
-
-
-
 
 
 -----
@@ -11405,24 +7421,16 @@ wt这身体我看是好不了了
 ##### 38100#       发表于 2015-7-9 17:09
 
 
-
-
 巴基斯跟黑胡子聊电话早暗示过了青鸡来投靠，不过从五老星口中说出来分量差距好大。
 
 
 ----发送自 [Sony D5833,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 38101#       发表于 2015-7-9 17:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29492453&amp;ptid=98922" target="_blank">PATLABOR 发表于 2015-7-9 17:05</a>
@@ -11435,17 +7443,10 @@ wt这身体我看是好不了了
 所以基本就是卡普，也有可能是战国
 
 
-
-
-
-
-
 -----
 
 ####  FCS-31  
 ##### 38102#       发表于 2015-7-9 17:42
-
-
 
 
 鹤第一句话说你个死跟屁虫，应该是跟卡普说。
@@ -11457,32 +7458,19 @@ wt这身体我看是好不了了
 卡普战国两人都在船上。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 38103#       发表于 2015-7-9 18:12
 
 
-
-
 没人提示，还真没认出那个老太婆是大胃王波妮
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 38104#       发表于 2015-7-9 18:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491806&amp;ptid=98922" target="_blank">FCS-31 发表于 2015-7-9 16:03</a>
@@ -11493,16 +7481,10 @@ wt这身体我看是好不了了
 黑胡子收的大部分手下都是互相利用的关系
 
 
-
-
-
-
-
 -----
 
 ####  恒温死神  
 ##### 38105#       发表于 2015-7-9 18:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493105&amp;ptid=98922" target="_blank">森田美位子 发表于 2015-7-9 18:12</a>
@@ -11510,17 +7492,10 @@ wt这身体我看是好不了了
 波尼不是被赤帅抓走了么?
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38106#       发表于 2015-7-9 18:27
-
-
 
 
 “说的不好听，这件事上，那些天龙人的傀儡已经完全越过你们了，对吧？”
@@ -11530,16 +7505,10 @@ wt这身体我看是好不了了
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  柏露伯德  
 ##### 38107#       发表于 2015-7-9 18:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493105&amp;ptid=98922" target="_blank">森田美位子 发表于 2015-7-9 18:12</a>
@@ -11548,16 +7517,10 @@ wt这身体我看是好不了了
 这么看来波尼的能力是“变身”？前面出现的时候还是御姐，现在直接变成个萝莉了？
 
 
-
-
-
-
-
 -----
 
 ####  powerpyc  
 ##### 38108#       发表于 2015-7-9 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493250&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2015-7-9 18:27</a>
@@ -11568,16 +7531,10 @@ wt这身体我看是好不了了
 CP是天龙人的傀儡，越过ZF宣传假消息
 
 
-
-
-
-
-
 -----
 
 ####  ramoc  
 ##### 38109#       发表于 2015-7-9 18:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493250&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2015-7-9 18:27</a>
@@ -11588,17 +7545,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 这句话鼠绘和熊猫翻译有出入，到时候看看原文怎么说吧。
 
 
-
-
-
-
-
 -----
 
 ####  莫吉  
 ##### 38110#       发表于 2015-7-9 18:33
-
-
 
 
 红狗:干掉草帽和罗之前不要回来了
@@ -11608,16 +7558,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 路飞:那就上船吧
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 38111#       发表于 2015-7-9 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493255&amp;ptid=98922" target="_blank">柏露伯德 发表于 2015-7-9 18:27</a>
@@ -11626,32 +7570,19 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 她在香波岛就用过能力了，索隆和天龙人杠上时她就把自己变个loli装索隆妹妹（这里不太明显就是了）。后面黄猿登岛，有一队海军被人变成老头和小孩时她也在一旁。
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 38112#       发表于 2015-7-9 18:39
 
 
-
-
 虎落平阳被犬欺哈哈哈。
-
-
-
-
-
 
 
 -----
 
 ####  FCS-31  
 ##### 38113#       发表于 2015-7-9 18:40
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493250&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2015-7-9 18:27</a>
@@ -11669,25 +7600,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 后者是骂五老星被CP这些天龙人的傀儡给骑在头上。
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38114#       发表于 2015-7-9 18:48
 
 
-
-
 藤虎显然继续做一个中立游侠的角色的，大将的地位他非常需要，因为这能带来话语权以及深入事件的身份，抛开大将这逆天的战斗力而论，一上船就是海贼了，ZF这洗地能力分分钟把藤虎开了然后喷成GMJ或者某海贼团的细作，这么一来德雷斯罗萨就白画了，跪也白跪了
-
-
-
-
-
 
 
 -----
@@ -11696,14 +7615,7 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38115#       发表于 2015-7-9 18:58
 
 
-
-
 五话内橱子上线了吧，下一话宴会
-
-
-
-
-
 
 
 -----
@@ -11712,17 +7624,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38116#       发表于 2015-7-9 19:01
 
 
-
-
 这一话让我对op挽回了一点信心
 
 
 你们都说红发面子果实，这一话赤犬对五老星对藤虎也一直在说面子问题啊
-
-
-
-
-
 
 
 -----
@@ -11731,16 +7636,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38117#       发表于 2015-7-9 19:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493165&amp;ptid=98922" target="_blank">恒温死神 发表于 2015-7-9 18:18</a>
 
 波尼不是被赤帅抓走了么?</blockquote>
 早就逃出来了好吗……
-
-
-
-
-
 
 
 -----
@@ -11749,16 +7648,9 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38118#       发表于 2015-7-9 19:19
 
 
-
-
 再次看了一遍本话
 
 波尼我爱你啊！！！
-
-
-
-
-
 
 
 -----
@@ -11767,16 +7659,9 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38119#       发表于 2015-7-9 19:33
 
 
-
-
 这话倒是确实了我之前的一个猜测，红狗子这人虽然极端，但是真未必和ZF是一条心
 
 在他眼里绝对的正义是压倒一切的，天龙人也不能例外，今后这货会不会下克上还真难说
-
-
-
-
-
 
 
 -----
@@ -11785,23 +7670,16 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38120#       发表于 2015-7-9 19:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29491509&amp;ptid=98922" target="_blank">alecwong 发表于 2015-7-9 15:31</a>
 
 这才是OP应有的水准啊！！！！！前些天一定是替身画的吧，一定是吧！！！ ...</blockquote>
 一贯的套路，之前每次大战完都会有大爆料
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38121#       发表于 2015-7-9 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493592&amp;ptid=98922" target="_blank">肮脏的哈里 发表于 2015-7-9 19:01</a>
@@ -11813,16 +7691,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 这就跟鹤的洗涤能力一样，被洗的人心灵会净化，给了面子帝面子的人也会变得爱面子，否则2年前赤犬那穷兵黩武的样子怎么也跟现在搭不上<img src="https://static.saraba1st.com/image/smiley/nq/014.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 38122#       发表于 2015-7-9 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493470&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-9 18:48</a>
@@ -11831,16 +7703,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 这段是为了跟沙之国的最后的处理形成对比吧
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38123#       发表于 2015-7-9 20:02
-
 
 
  本帖最后由 门田京平 于 2015-7-9 20:07 编辑 
@@ -11854,17 +7720,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 另外青雉90%是卧底，冰火岛和被火鸡撂倒的烟男说过他没变依旧是他
 
 
-
-
-
-
-
 -----
 
 ####  巴尔干炮  
 ##### 38124#       发表于 2015-7-9 20:06
-
-
 
 
 黑帮当初不是连船带人被吸到天上去了吗？怎么现在没事人一样的跑到大妈那去了
@@ -11873,25 +7732,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 他还有邦尼是怎么逃出来的估计要等很久才能给出答案
 
 
-
-
-
-
-
 -----
 
 ####  無料配送  
 ##### 38125#       发表于 2015-7-9 20:10
 
 
-
-
 卡彭是谁 我怎么对这人没印象？
-
-
-
-
-
 
 
 -----
@@ -11900,14 +7747,7 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38126#       发表于 2015-7-9 20:16
 
 
-
-
 超新星11人中的一个
-
-
-
-
-
 
 
 -----
@@ -11916,17 +7756,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38127#       发表于 2015-7-9 20:24
 
 
-
-
 藤虎不low，为什么当上元帅之后赤犬low了那么多，毛躁得像战国那样，没了当大将时的沉稳了。
 
 
 青雉加入黑胡子是什么套路！
-
-
-
-
-
 
 
 -----
@@ -11935,21 +7768,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38128#       发表于 2015-7-9 20:41
 
 
-
-
 过渡回的世界动态和群像爆料比正篇好看，这种现象已经快成常态了，最近几章都是一半的时候就开始期待收尾和过渡回
-
-
-
-
-
 
 
 -----
 
 ####  柏露伯德  
 ##### 38129#       发表于 2015-7-9 20:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29494278&amp;ptid=98922" target="_blank">bard 发表于 2015-7-9 20:24</a>
@@ -11961,25 +7786,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 红狗在之前的剧情里没有过多描写吧，什么样的性格只有从顶上战争里了解到一点点，当大将时的沉稳从何说起，即便是顶上战争，在最后杀疯了以后也是很暴躁的吧
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38130#       发表于 2015-7-9 21:00
 
 
-
-
 三大将里沉稳的只有青雉吧。。。黄猿油腔滑调一副藏着掖着的样子，赤犬就是个杀人狂，不合心意的话海军小兵都杀
-
-
-
-
-
 
 
 -----
@@ -11988,14 +7801,7 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38131#       发表于 2015-7-9 21:05
 
 
-
-
 且看红发团对基德联合军的胜负如何，红发团那么多未出镜的高人，战不过仅仅几个超新星联手的海贼团也太说不过去了
-
-
-
-
-
 
 
 -----
@@ -12004,16 +7810,9 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38132#       发表于 2015-7-9 21:14
 
 
-
-
 一个国家都被颠覆了，大妈妈团还没有拿下厨子一行人。
 
 厨子封神一战。
-
-
-
-
-
 
 
 -----
@@ -12022,21 +7821,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38133#       发表于 2015-7-9 21:19
 
 
-
-
 厨子老早就跑路了吧  现在不知跑哪里去了
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 38134#       发表于 2015-7-9 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29494728&amp;ptid=98922" target="_blank">GA_Frank 发表于 2015-7-9 21:14</a>
@@ -12047,25 +7838,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 放过那个厨子吧<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  青螳  
 ##### 38135#       发表于 2015-7-9 21:38
 
 
-
-
 青雉给黑胡子当手下的可能性估计还不如雷刚好劈到人的概率，十有八九是处于合作关系。
-
-
-
-
-
 
 
 -----
@@ -12074,21 +7853,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38136#       发表于 2015-7-9 21:39
 
 
-
-
 厨子抗了这么久应该是罗的船员来增援了吧
-
-
-
-
-
 
 
 -----
 
 ####  真红眼教授  
 ##### 38137#       发表于 2015-7-9 21:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29494728&amp;ptid=98922" target="_blank">GA_Frank 发表于 2015-7-9 21:14</a>
@@ -12099,26 +7870,15 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 在人妖岛练的逃跑技术看来不是吹的
 
 
-
-
-
-
-
 -----
 
 ####  恒温死神  
 ##### 38138#       发表于 2015-7-9 21:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29494617&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-9 21:00</a>
 三大将里沉稳的只有青雉吧。。。黄猿油腔滑调一副藏着掖着的样子，赤犬就是个杀人狂，不合心意的话海军小兵 ...</blockquote>
 逃兵给你次重返战场的机会，还杀人狂?
-
-
-
-
-
 
 
 -----
@@ -12127,15 +7887,9 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38139#       发表于 2015-7-9 21:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29494617&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-9 21:00</a>
 三大将里沉稳的只有青雉吧。。。黄猿油腔滑调一副藏着掖着的样子，赤犬就是个杀人狂，不合心意的话海军小兵 ...</blockquote>
 逃兵给你次重返战场的机会，还杀人狂?
-
-
-
-
-
 
 
 -----
@@ -12144,15 +7898,9 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38140#       发表于 2015-7-9 21:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29494617&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-9 21:00</a>
 三大将里沉稳的只有青雉吧。。。黄猿油腔滑调一副藏着掖着的样子，赤犬就是个杀人狂，不合心意的话海军小兵 ...</blockquote>
 啊 不对，我想起后面的事了。你说得对。
-
-
-
-
-
 
 
 -----
@@ -12161,13 +7909,7 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38141#       发表于 2015-7-9 21:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/normal/101.gif" referrerpolicy="no-referrer"> 波尼终于露脸了！
-
-
-
-
-
 
 
 -----
@@ -12176,13 +7918,7 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38142#       发表于 2015-7-9 22:12
 
 
-
 <img src="http://i1.tietuku.com/91df081874c6344f.png" referrerpolicy="no-referrer">  感觉上厨子是和这帮人遇上了吧，虽然我不记得他是谁了...
-
-
-
-
-
 
 
 -----
@@ -12191,14 +7927,7 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38143#       发表于 2015-7-9 22:18
 
 
-
-
 看到波尼我就放心了
-
-
-
-
-
 
 
 -----
@@ -12207,23 +7936,16 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38144#       发表于 2015-7-9 22:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29488699&amp;ptid=98922" target="_blank">morment 发表于 2015-7-9 10:20</a>
 
 藤虎是专门搞臭海军的细作啊，你们怎么就想不通</blockquote>
 海军自打有了七武海制度就没什么可洗的了，藤虎不过是撕了海军的谎罢了
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38145#       发表于 2015-7-9 22:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495201&amp;ptid=98922" target="_blank">x五更琉璃 发表于 2015-7-9 22:12</a>
@@ -12234,16 +7956,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 卡彭虽然表现方面堪称超新星之耻，但果实还是很特别的吧，身体里装着千军万马什么的
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 38146#       发表于 2015-7-9 22:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495201&amp;ptid=98922" target="_blank">x五更琉璃 发表于 2015-7-9 22:12</a>
@@ -12252,16 +7968,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 鼠绘这边的翻译卡彭像是自言自语，没有原文参照的话还说不好……
 
 
-
-
-
-
-
 -----
 
 ####  x五更琉璃  
 ##### 38147#       发表于 2015-7-9 22:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495387&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-9 22:35</a>
@@ -12277,25 +7987,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 这行业竞争是得多激烈<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sta777  
 ##### 38148#       发表于 2015-7-9 22:51
 
 
-
-
 红发这边应该没什么危险，几个超新星就能做了他就甭当四皇了
-
-
-
-
-
 
 
 -----
@@ -12304,16 +8002,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38149#       发表于 2015-7-9 22:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29492250&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-7-9 16:46</a>
 
 漫畫有描寫明哥早已準備幹掉海賊後下一個便是藤虎。</blockquote>
 真是自信啊
-
-
-
-
-
 
 
 -----
@@ -12322,16 +8014,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38150#       发表于 2015-7-9 22:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495521&amp;ptid=98922" target="_blank">sta777 发表于 2015-7-9 22:51</a>
 
 红发这边应该没什么危险，几个超新星就能做了他就甭当四皇了</blockquote>
 红发团的实力杠这几个超新星还是可以的，怕就怕黑胡子插一脚，剧情杀那我就真要哭昏在厕所
-
-
-
-
-
 
 
 -----
@@ -12340,14 +8026,7 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38151#       发表于 2015-7-9 23:26
 
 
-
-
 而且这话说目标是红发的不是船长基德不是阿普不是霍金斯而是副手基拉。。。感觉另有隐情，越说越担心剧情杀<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12356,21 +8035,13 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38152#       发表于 2015-7-9 23:35
 
 
-
-
 尾田处理的不好，基德他们结盟这么大半天，路飞他们这里都打完了，那边才刚刚说要对付红发，之前是在等面烧好吗
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38153#       发表于 2015-7-9 23:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495293&amp;ptid=98922" target="_blank">paren 发表于 2015-7-9 22:24</a>
@@ -12381,27 +8052,15 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 说到底海军的悲哀在于，来参军的都是把自己的正义寄托在海军身上，而海军只要还是军队，就只能当一个服从ZF意志的国家机器，你寄托的正义再多不如高层的一道命令
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38154#       发表于 2015-7-9 23:42
 
 
-
-
 说起来超新星之间的关系还真是和谐啊，大胃女跟草帽一伙关系好像一直都还不赖，罗这种涉及到D的也不用说了，现在连基德都表示“多亏大家目标不是一个，不用先开打”
 
 在海贼这种圈子里一帮没什么关系的人能互相达成这种默契太难得了
-
-
-
-
-
 
 
 -----
@@ -12410,16 +8069,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38155#       发表于 2015-7-9 23:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495915&amp;ptid=98922" target="_blank">影流之主 发表于 2015-7-9 23:42</a>
 
 说起来超新星之间的关系还真是和谐啊，大胃女跟草帽一伙关系好像一直都还不赖，罗这种涉及到D的也不用说了 ...</blockquote>
 说来他们中应该有几个人自始至终没见过对方……
-
-
-
-
-
 
 
 -----
@@ -12428,16 +8081,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38156#       发表于 2015-7-9 23:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495789&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-9 23:26</a>
 
 而且这话说目标是红发的不是船长基德不是阿普不是霍金斯而是副手基拉。。。感觉另有隐情，越说越担心剧情杀 ...</blockquote>
 三年后Killer在设定上是Kidd的军师啊……你看结盟找人发言其实都是他。
-
-
-
-
-
 
 
 -----
@@ -12446,16 +8093,10 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38157#       发表于 2015-7-9 23:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495915&amp;ptid=98922" target="_blank">影流之主 发表于 2015-7-9 23:42</a>
 
 说起来超新星之间的关系还真是和谐啊，大胃女跟草帽一伙关系好像一直都还不赖，罗这种涉及到D的也不用说了 ...</blockquote>
 他们可以考虑开个同窗会啥的
-
-
-
-
-
 
 
 -----
@@ -12464,14 +8105,7 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38158#       发表于 2015-7-10 00:09
 
 
-
-
 这话信息量好大 我觉得除了海军势力 以后搞不好陆军势力也会介入 这样就有6个大将当打手了
-
-
-
-
-
 
 
 -----
@@ -12480,24 +8114,16 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 ##### 38159#       发表于 2015-7-10 00:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29496095&amp;ptid=98922" target="_blank">gjd198692 发表于 2015-7-10 00:09</a>
 
 这话信息量好大 我觉得除了海军势力 以后搞不好陆军势力也会介入 这样就有6个大将当打手了 ...</blockquote>
 海贼世界里陆地上都是渣渣，比如山贼
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 38160#       发表于 2015-7-10 00:31
-
-
 
 
 刚又翻回去看了罗砍维尔戈那一话 罗说了一句：可别以为能在那把椅子上坐一辈子啊你们这些家伙！
@@ -12509,33 +8135,19 @@ CP是天龙人的傀儡，越过ZF宣传假消息
 更进一步把
 
 
-
-
-
-
-
 -----
 
 ####  232844781  
 ##### 38161#       发表于 2015-7-10 00:41
 
 
-
-
 看了鼠绘版，卡彭好想是对电话虫里的人说，你们的伙伴表现得很不错，，那就是对厨子？
-
-
-
-
-
 
 
 -----
 
 ####  rubicon  
 ##### 38162#       发表于 2015-7-10 01:14
-
-
 
 
 没什么所谓陆军的，别想了
@@ -12549,17 +8161,10 @@ CP
 世界政府的暴力机构
 
 
-
-
-
-
-
 -----
 
 ####  happy的白鸽  
 ##### 38163#       发表于 2015-7-10 01:34
-
-
 
 
 波妮那条暗线尾田一直没说明。乌尔基去雷岛结果负伤了，而且手下说有人接近，是不是艾尼路要带领月球大军回归了？
@@ -12567,16 +8172,10 @@ CP
 另外个人感觉青稚没黑。如果那个牛头人黑影就是凯多的话，我在想百兽是不是幻兽种奇美拉之类的。
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 38164#       发表于 2015-7-10 02:22
-
 
 
 <blockquote>引用第38187楼肮脏的哈里于2015-07-09 19:01发表的  :
@@ -12588,25 +8187,13 @@ CP
 ----发送自 [Sony D5833,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 38165#       发表于 2015-7-10 03:04
 
 
-
-
 这话信息量至少顶之前20话吧，真他妈过瘾！
-
-
-
-
-
 
 
 -----
@@ -12615,23 +8202,16 @@ CP
 ##### 38166#       发表于 2015-7-10 03:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495559&amp;ptid=98922" target="_blank">kuroro 发表于 2015-7-9 22:56</a>
 
 红发团的实力杠这几个超新星还是可以的，怕就怕黑胡子插一脚，剧情杀那我就真要哭昏在厕所 ...</blockquote>
 附议。个人猜测是红发被几个超新星牵制住时，黑胡子趁虚而入。这样草帽团和黑胡子团今后的碰撞就更加顺理成章了。
 
 
-
-
-
-
-
 -----
 
 ####  gasijier  
 ##### 38167#       发表于 2015-7-10 04:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29493250&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2015-7-9 18:27</a>
@@ -12642,25 +8222,13 @@ CP
 赤犬一贯的伎俩，挑拨离间，好听点叫激将，艾斯就是死于这一招
 
 
-
-
-
-
-
 -----
 
 ####  純愛中毒  
 ##### 38168#       发表于 2015-7-10 05:17
 
 
-
-
 当元帅好像是比大将憋屈啊，战国手下的红狗和红狗手下的藤虎，都是跳得不行的…<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">而处于元帅位的人，都是被闹得心塞
-
-
-
-
-
 
 
 -----
@@ -12669,14 +8237,7 @@ CP
 ##### 38169#       发表于 2015-7-10 08:06
 
 
-
-
 超新星怎么没有投靠红发的，波尼当初只有自己一船人也要去挑黑胡子，我还以为她新世界会去找白胡子残部
-
-
-
-
-
 
 
 -----
@@ -12685,23 +8246,15 @@ CP
 ##### 38170#       发表于 2015-7-10 08:11
 
 
-
 <blockquote>漫畫有描寫明哥早已準備幹掉海賊後下一個便是藤虎。</blockquote>
 
 大概在哪儿？给我一个范围看看。
-
-
-
-
-
 
 
 -----
 
 ####  巴尔库夫  
 ##### 38171#       发表于 2015-7-10 08:19
-
-
 
 
 基德要打不应该先找大妈么？之前就和她手下有冲突了，还另对方有比较可观的损失，
@@ -12713,25 +8266,13 @@ CP
 结论：强制五五开果实，黑胡子来瞎捣鼓，也应该能躲过去，这仨是白送<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  vista  
 ##### 38172#       发表于 2015-7-10 09:03
 
 
-
-
 基德自以为不会和路飞起冲突,还不明白其实这是必然要打一场了
-
-
-
-
-
 
 
 -----
@@ -12740,18 +8281,10 @@ CP
 ##### 38173#       发表于 2015-7-10 09:18
 
 
-
-
 青稚跟黑胡子合作实际上早就720话就提过
 
 
 巴杰斯还说不要相信他
-
-
-
-
-
-
 
 
 -----
@@ -12760,14 +8293,7 @@ CP
 ##### 38174#       发表于 2015-7-10 09:25
 
 
-
-
 红发的势力有多大始终没有正面描写，顶上战争收尾的时候也只来了一艘船，几次出场不是在小岛上喝酒就是在船头吹风，相较其他四皇都有自己的大块领地，从属海贼团，红发这方面似乎只有一个挚友鹰眼？不过只有一艘船也是个优势，大海这么大，你上哪儿找这小小一艘船？想对上红发也不容易啊
-
-
-
-
-
 
 
 -----
@@ -12776,15 +8302,9 @@ CP
 ##### 38175#       发表于 2015-7-10 09:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29497200&amp;amp;ptid=98922" target="_blank">天兔 发表于 2015-7-10 08:11</a>
 大概在哪儿？给我一个范围看看。</blockquote>
 應是打幹部之前，當時明哥好像因藤虎麻煩，而計劃解決當前事情後便輪到藤虎，好像只有一小格。忘了在哪要時間找找。
-
-
-
-
-
 
 
 -----
@@ -12793,15 +8313,9 @@ CP
 ##### 38176#       发表于 2015-7-10 09:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29495522&amp;amp;ptid=98922" target="_blank">哈尔摩尼亚 发表于 2015-7-9 22:51</a>
 真是自信啊</blockquote>
 明哥沒有選擇。除非整件事可以在藤虎不知道的情況下解決，否則藤虎及海軍非死不可。如非 God 找亂了整個情勢（把一堆高手從玩具放了出來），明哥加所有幹部一起上要幹掉藤虎不見得有多難。
-
-
-
-
-
 
 
 -----
@@ -12810,16 +8324,10 @@ CP
 ##### 38177#       发表于 2015-7-10 09:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29497868&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-7-10 09:30</a>
 
 明哥沒有選擇。除非整件事可以在藤虎不知道的情況下解決，否則藤虎及海軍非死不可。如非 God 找亂了整個 ...</blockquote>
 那吊打明哥团的路飞一伙要干掉大将也不是什么难事咯？
-
-
-
-
-
 
 
 -----
@@ -12828,22 +8336,15 @@ CP
 ##### 38178#       发表于 2015-7-10 09:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29498025&amp;amp;ptid=98922" target="_blank">少年包工头 发表于 2015-7-10 09:45</a>
 那吊打明哥团的路飞一伙要干掉大将也不是什么难事咯？</blockquote>
 打明哥那一團是集合了新世界當中很多有名海盜團的領袖及第一高手，隨便一人在新世界也是響噹噹的人物。如果一起上也幹掉不了藤虎，那大部份海盜早便被海軍滅了吧。
-
-
-
-
-
 
 
 -----
 
 ####  vista  
 ##### 38179#       发表于 2015-7-10 09:58
-
 
 
 <blockquote><a href="httphttp://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29497868&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-7-10 09:30</a>
@@ -12853,16 +8354,10 @@ CP
 用不着,实在不行上鸟笼,让市民逼"正义"的海军
 
 
-
-
-
-
-
 -----
 
 ####  kuroro  
 ##### 38180#       发表于 2015-7-10 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29497823&amp;ptid=98922" target="_blank">Kyo.C 发表于 2015-7-10 09:25</a>
@@ -12877,16 +8372,10 @@ CP
 看样子基德他们选择的是后者，不过这些问题肯定不是基德他们第一个想到，然而这么多年红发依然是四皇，所以我是觉得基德同盟是杠不过红发的，就怕会有其他势力出手阴红发一把
 
 
-
-
-
-
-
 -----
 
 ####  Kyo.C  
 ##### 38181#       发表于 2015-7-10 10:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29498204&amp;ptid=98922" target="_blank">kuroro 发表于 2015-7-10 10:00</a>
@@ -12897,25 +8386,13 @@ CP
 其实JUMP少年漫在描写上一辈的强者被后来人超越时，一般都会采用让老强者先发发威，再输掉之类的，例子比方火影的三代目，死神总队长，猎人的会长，美食的一龙，OP中这个套路已经用在白胡子身上一回了，很难想像身为路飞导师的红发再被这样来一次，而且白胡子死于时代分割线的顶上战争，如果没什么大事件背景给红发衬托就被阴了实在太说不过去了，他手下毕竟有一堆比白胡子的队长存在感还强的副手们呢
 
 
-
-
-
-
-
 -----
 
 ####  Archi  
 ##### 38182#       发表于 2015-7-10 10:31
 
 
-
-
 青鸡和面子帝都有被剧情杀的危险啊
-
-
-
-
-
 
 
 -----
@@ -12924,15 +8401,9 @@ CP
 ##### 38183#       发表于 2015-7-10 10:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29498175&amp;amp;ptid=98922" target="_blank">vista 发表于 2015-7-10 09:58</a>
 用不着,实在不行上鸟笼,让市民逼&amp;quot;正义&amp;quot;的海军</blockquote>
 鸟笼是在沒選擇下最後一招。因一用鸟笼不單會毀了根據地，甚至連市民的信任也會失去。以管治來說失去市民信任會非常麻煩。何況只要能繼續得到德島人民愛戴，有事時能得到市民真心支持那應變上會容易多了。
-
-
-
-
-
 
 
 -----
@@ -12941,14 +8412,7 @@ CP
 ##### 38184#       发表于 2015-7-10 12:50
 
 
-
-
 其实我觉得最炫酷的就是卡彭黑帮……
-
-
-
-
-
 
 
 -----
@@ -12957,14 +8421,7 @@ CP
 ##### 38185#       发表于 2015-7-10 12:58
 
 
-
-
 动画的播放权8月15号开始转到爱奇艺了。
-
-
-
-
-
 
 
 -----
@@ -12973,14 +8430,7 @@ CP
 ##### 38186#       发表于 2015-7-10 14:47
 
 
-
-
 根本不担心香克斯，因为尾田说过若是红发戏份突然变多则意味OP要完结
-
-
-
-
-
 
 
 -----
@@ -12989,14 +8439,7 @@ CP
 ##### 38187#       发表于 2015-7-10 14:58
 
 
-
-
 罗跟基德他们同一水平的吧，罗可是被火鸡吊打的，无法想象这海贼同盟怎么打红发。
-
-
-
-
-
 
 
 -----
@@ -13005,14 +8448,7 @@ CP
 ##### 38188#       发表于 2015-7-10 15:44
 
 
-
-
 路飞还没将草帽还给红发, 你们担心啥。
-
-
-
-
-
 
 
 -----
@@ -13021,14 +8457,7 @@ CP
 ##### 38189#       发表于 2015-7-10 16:06
 
 
-
-
 虽然德岛画了这么久，但实际上漫画里的时间只过了一天而已吧？当天早上交换人质和报纸宣告火鸡退位，然后一直打到现在。
-
-
-
-
-
 
 
 -----
@@ -13037,15 +8466,9 @@ CP
 ##### 38190#       发表于 2015-7-10 16:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29500191&amp;ptid=98922" target="_blank">境宗久 发表于 2015-7-10 12:58</a>
 动画的播放权8月15号开始转到爱奇艺了。</blockquote>
 这种太长版权都是按时间买的？
-
-
-
-
-
 
 
 -----
@@ -13054,16 +8477,10 @@ CP
 ##### 38191#       发表于 2015-7-10 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29501272&amp;ptid=98922" target="_blank">四刀輝彰 发表于 2015-7-10 14:47</a>
 
 根本不担心香克斯，因为尾田说过若是红发戏份突然变多则意味OP要完结</blockquote>
 求详细，没印象啊
-
-
-
-
-
 
 
 -----
@@ -13072,16 +8489,10 @@ CP
 ##### 38192#       发表于 2015-7-10 17:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29501383&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-7-10 14:58</a>
 
 罗跟基德他们同一水平的吧，罗可是被火鸡吊打的，无法想象这海贼同盟怎么打红发。 ...</blockquote>
 基德应该跟路飞差不多，基拉跟索隆差不多，霍金斯才是跟罗同水平的，阿普可能也挺厉害的，这是wt的定位。
-
-
-
-
-
 
 
 -----
@@ -13090,13 +8501,7 @@ CP
 ##### 38193#       发表于 2015-7-10 18:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">你们操心过头了, 基德组妥妥的是去听红发上课的, 教育出来方便后期支持路飞的
-
-
-
-
-
 
 
 -----
@@ -13105,17 +8510,10 @@ CP
 ##### 38194#       发表于 2015-7-10 19:15
 
 
-
-
 红发被剧情杀简直是一定的 青鸡这样一看也免不了
 
 
 基德那边和路飞这里一样是双核 面具男相当于索隆 从他嘴里说出来也没什么大不了
-
-
-
-
-
 
 
 -----
@@ -13124,21 +8522,13 @@ CP
 ##### 38195#       发表于 2015-7-10 19:50
 
 
-
-
 两个与路飞约好要在顶峰相见的人都要在那时候死去吗
-
-
-
-
-
 
 
 -----
 
 ####  太书主  
 ##### 38196#       发表于 2015-7-10 20:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29496472&amp;ptid=98922" target="_blank">rubicon 发表于 2015-7-10 01:14</a>
@@ -13154,17 +8544,10 @@ CP
 难道还有空军和宇宙军不成
 
 
-
-
-
-
-
 -----
 
 ####  不吃胡萝卜  
 ##### 38197#       发表于 2015-7-10 20:40
-
-
 
 
 藤虎看戏mode居然成功圆回来了，还让我觉得藤虎老谋深算掉渣天
@@ -13176,17 +8559,10 @@ CP
 赤犬这种人做元帅其实还不错，绝对正义，对那群ZF蛀虫也是有点阳奉阴违的感觉，藤虎掀这么大摊子也就电话口头教育
 
 
-
-
-
-
-
 -----
 
 ####  stygianlunar  
 ##### 38198#       发表于 2015-7-10 20:43
-
-
 
 
 不过，对路飞而言，红发既是引路者，也是有朝一日要挑战的高峰吧，就像鹰眼对索罗一样。
@@ -13195,32 +8571,19 @@ CP
 所以，应该会有路飞将草帽带到红发面前，然后进行超越之战的场面。<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  露结为霜  
 ##### 38199#       发表于 2015-7-10 21:24
 
 
-
-
 刚正面的话基德同盟跟红发海贼团不是一个档次的，敢挑战红发估计有什么隐藏杀招。
-
-
-
-
-
 
 
 -----
 
 ####  kuroro  
 ##### 38200#       发表于 2015-7-10 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29504670&amp;ptid=98922" target="_blank">露结为霜 发表于 2015-7-10 21:24</a>
@@ -13233,32 +8596,19 @@ CP
 红发：WTF！！！！！！
 
 
-
-
-
-
-
 -----
 
 ####  フエア  
 ##### 38201#       发表于 2015-7-10 22:45
 
 
-
-
 某空域的乌尔基大元帅是哪只？最开始呢装甲猩猩么
-
-
-
-
-
 
 
 -----
 
 ####  门田京平  
 ##### 38202#       发表于 2015-7-10 23:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29505382&amp;ptid=98922" target="_blank">フエア 发表于 2015-7-10 22:45</a>
@@ -13275,16 +8625,10 @@ CP
 这俩存在感最低吧，其余的基本都不用说了。路罗刚刷完火鸡、大胃女逃难中、阿普霍金斯基德组团目指面子帝、德雷克在凯多手下
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 38203#       发表于 2015-7-11 07:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29504343&amp;ptid=98922" target="_blank">不吃胡萝卜 发表于 2015-7-10 20:40</a>
@@ -13300,16 +8644,10 @@ CP
 说到底，黄猿和绿牛不知道，青雉，腾虎，赤犬都在坚持自己的“正义”，而且前两位的“正义”和后面那位的“正义”起了不小的冲突
 
 
-
-
-
-
-
 -----
 
 ####  zero虚  
 ##### 38204#       发表于 2015-7-11 07:35
-
 
 
 <blockquote>门田京平 发表于 2015-7-10 23:11
@@ -13320,16 +8658,10 @@ CP
 卡彭不一定加入了大妈吧，只是说要抢凯撒
 
 
-
-
-
-
-
 -----
 
 ####  alabotudou  
 ##### 38205#       发表于 2015-7-11 08:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29495862&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-9 23:35</a>
@@ -13338,16 +8670,10 @@ CP
 漫画里面才一天时间都不到吧……
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38206#       发表于 2015-7-11 10:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29507359&amp;ptid=98922" target="_blank">zero虚 发表于 2015-7-11 07:35</a>
@@ -13356,32 +8682,19 @@ CP
 仔细看那一页，卡彭大分镜旁边一格小分镜是大妈的船，蛋糕样式很明显
 
 
-
-
-
-
-
 -----
 
 ####  bloodalone  
 ##### 38207#       发表于 2015-7-11 10:49
 
 
-
-
 红发身边的副手是op第一军师，如果红发是被阴的，只能呵呵了
-
-
-
-
-
 
 
 -----
 
 ####  ccavfun  
 ##### 38208#       发表于 2015-7-11 12:53
-
 
 
 <blockquote>不吃胡萝卜 发表于 2015-7-10 20:40
@@ -13391,32 +8704,19 @@ CP
 喷了，赤犬那种屠戮老百姓的正义也有人认同，果然中二豚眼里只要强就是正义，跟权贵吼两声分分钟就是反体制民主斗士。
 
 
-
-
-
-
-
 -----
 
 ####  不吃胡萝卜  
 ##### 38209#       发表于 2015-7-11 14:29
 
 
-
-
 喷了，我哪洗赤犬屠戮平民了，难不成我说了赤犬屠杀平民是有理有据情有可原？还是说觉得他当元帅有可取之处就是洗了
-
-
-
-
-
 
 
 -----
 
 ####  flyzzhj  
 ##### 38210#       发表于 2015-7-11 14:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29510155&amp;ptid=98922" target="_blank">不吃胡萝卜 发表于 2015-7-11 14:29</a>
@@ -13430,16 +8730,10 @@ CP
 什么叫绝对正义？
 
 
-
-
-
-
-
 -----
 
 ####  karma  
 ##### 38211#       发表于 2015-7-11 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29510155&amp;ptid=98922" target="_blank">不吃胡萝卜 发表于 2015-7-11 14:29</a>
@@ -13448,16 +8742,10 @@ CP
 他只是非常讨厌民主，必须找一切机会黑一下而已……
 
 
-
-
-
-
-
 -----
 
 ####  olkzdf  
 ##### 38212#       发表于 2015-7-13 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29494728&amp;ptid=98922" target="_blank">GA_Frank 发表于 2015-7-9 21:14</a>
@@ -13468,17 +8756,10 @@ CP
 掉线组里面有擅长厨艺的山治和持有生命卡的娜美，考虑到对面是嗜吃的大妈以及罗拉那个大海贼母亲的生命卡...尾田故意的吧
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38213#       发表于 2015-7-14 19:46
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201507/14/194621hh6gtug0tri0t0mi.png" referrerpolicy="no-referrer">
@@ -13491,23 +8772,13 @@ CP
 2015-7-14 19:46 上传
 
 
-
-
-
  真的假的<img src="https://static.saraba1st.com/image/smiley/normal/117.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  箭猪  
 ##### 38214#       发表于 2015-7-15 11:36
-
-
 
 
 794文字情报，来自微博未验证
@@ -13519,25 +8790,13 @@ CP
 下周休刊
 
 
-
-
-
-
-
 -----
 
 ####  65535  
 ##### 38215#       发表于 2015-7-15 12:08
 
 
-
-
 呵呵，失忆。。。。艾斯公开处刑的新闻满天飞就没想起来，等到他死了就想起来了。。。
-
-
-
-
-
 
 
 -----
@@ -13546,14 +8805,7 @@ CP
 ##### 38216#       发表于 2015-7-15 12:43
 
 
-
-
 我觉得这个原因比被某任务拖住赶不过去什么的好多了
-
-
-
-
-
 
 
 -----
@@ -13562,14 +8814,7 @@ CP
 ##### 38217#       发表于 2015-7-15 13:08
 
 
-
-
 问题是萨博是什么时候成名的，艾斯出名萨博不找是失忆，那么萨博也要设定成这两年刚出山才行
-
-
-
-
-
 
 
 -----
@@ -13578,14 +8823,7 @@ CP
 ##### 38218#       发表于 2015-7-15 14:20
 
 
-
-
 这话好虐……
-
-
-
-
-
 
 
 -----
@@ -13594,14 +8832,7 @@ CP
 ##### 38219#       发表于 2015-7-15 14:20
 
 
-
-
 这话好虐……
-
-
-
-
-
 
 
 -----
@@ -13610,14 +8841,7 @@ CP
 ##### 38220#       发表于 2015-7-15 14:30
 
 
-
-
 继动画版红发断臂复原后漫画居鲁士的断脚也复原了。。。是罗给接的还是WT粗心了？<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13626,14 +8850,7 @@ CP
 ##### 38221#       发表于 2015-7-15 14:31
 
 
-
-
 果然是失意梗解释为什么没参加营救艾斯那段的剧情。。
-
-
-
-
-
 
 
 -----
@@ -13642,14 +8859,7 @@ CP
 ##### 38222#       发表于 2015-7-15 14:33
 
 
-
-
 克尔拉实在是可爱到爆
-
-
-
-
-
 
 
 -----
@@ -13658,14 +8868,7 @@ CP
 ##### 38223#       发表于 2015-7-15 14:38
 
 
-
-
 话说最后那群乌鸦是什么？还可以说话的
-
-
-
-
-
 
 
 -----
@@ -13674,22 +8877,13 @@ CP
 ##### 38224#       发表于 2015-7-15 14:40
 
 
-
-
 太拖了
-
-
-
-
-
 
 
 -----
 
 ####  箭猪  
 ##### 38225#       发表于 2015-7-15 14:42
-
-
 
 
 这话也是拖的要死…
@@ -13700,17 +8894,10 @@ CP
 但实在太拖了2年后
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 38226#       发表于 2015-7-15 14:54
-
-
 
 
 乌鸦也许是能力者，而且龙也明显能看出是能力者，带着萨博回到船上那格分镜里面，他的半边身影明显是刚从某种自然系变身回复中的样子
@@ -13719,25 +8906,13 @@ CP
 这话好催泪，配合结尾的下周休刊观看效果更佳
 
 
-
-
-
-
-
 -----
 
 ####  ccavfun  
 ##### 38227#       发表于 2015-7-15 15:29
 
 
-
-
 艾斯难道除了死这次就没上过报纸啊……这队长混的……
-
-
-
-
-
 
 
 -----
@@ -13746,22 +8921,15 @@ CP
 ##### 38228#       发表于 2015-7-15 15:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29549749&amp;amp;ptid=98922" target="_blank">alecwong 发表于 2015-7-15 14:54</a>
 乌鸦也许是能力者，而且龙也明显能看出是能力者，带着萨博回到船上那格分镜里面，他的半边身影明显是刚从某 ...</blockquote>
 =_=你才知道龙是自然系恶魔果实能力者吗？
-
-
-
-
-
 
 
 -----
 
 ####  叉和圈的ELF  
 ##### 38229#       发表于 2015-7-15 15:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29550128&amp;ptid=98922" target="_blank">ccavfun 发表于 2015-7-15 15:29</a>
@@ -13773,17 +8941,10 @@ CP
 也还能说的通
 
 
-
-
-
-
-
 -----
 
 ####  jsyyyz  
 ##### 38230#       发表于 2015-7-15 16:09
-
-
 
 
 艾斯出名其实挺早的了
@@ -13792,25 +8953,13 @@ CP
 加入白胡子海贼团之前挺有名的，加入之后就不知道了
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 38231#       发表于 2015-7-15 16:16
 
 
-
-
 解释的合情合理，索隆美酒相配听完了故事
-
-
-
-
-
 
 
 -----
@@ -13819,17 +8968,10 @@ CP
 ##### 38232#       发表于 2015-7-15 16:19
 
 
-
-
 说拖的你们究竟是有多急，这话明明内容又丰富又煽情，还有啥不满意的？慢慢欣赏就好了
 
 
 这话最不满意的只有“下周休刊”。。。
-
-
-
-
-
 
 
 -----
@@ -13838,13 +8980,7 @@ CP
 ##### 38233#       发表于 2015-7-15 16:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13853,16 +8989,10 @@ CP
 ##### 38234#       发表于 2015-7-15 17:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29550175&amp;ptid=98922" target="_blank">倒霉蛋 发表于 2015-7-15 15:32</a>
 
 =_=你才知道龙是自然系恶魔果实能力者吗？</blockquote>
 =_=之前WT有说过龙是能力者还是自然系？
-
-
-
-
-
 
 
 -----
@@ -13871,13 +9001,7 @@ CP
 ##### 38235#       发表于 2015-7-15 17:13
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/normal/101.gif" referrerpolicy="no-referrer"> 罗宾 PRPR
-
-
-
-
-
 
 
 -----
@@ -13886,16 +9010,10 @@ CP
 ##### 38236#       发表于 2015-7-15 17:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29550625&amp;ptid=98922" target="_blank">x五更琉璃 发表于 2015-7-15 16:21</a>
 
 罗宾怎么越长越像外野6分了</blockquote>
 女角色同质化越来越严重了感觉，黑皮罗宾明明也很棒。。。2年后最让我觉得骚想干的居然是莫奈<img src="https://static.saraba1st.com/image/smiley/normal/024.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13904,16 +9022,10 @@ CP
 ##### 38237#       发表于 2015-7-15 17:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551196&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-15 17:14</a>
 
 女角色同质化越来越严重了感觉，黑皮罗宾明明也很棒。。。2年后最让我觉得骚想干的居然是莫奈 ...</blockquote>
 眼镜减分啦<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13922,16 +9034,10 @@ CP
 ##### 38238#       发表于 2015-7-15 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551389&amp;ptid=98922" target="_blank">x五更琉璃 发表于 2015-7-15 17:34</a>
 
 眼镜减分啦</blockquote>
 鸟腿-1分，其余综合9分<img src="https://static.saraba1st.com/image/smiley/normal/034.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13940,16 +9046,9 @@ CP
 ##### 38239#       发表于 2015-7-15 17:43
 
 
-
-
 虽然很俗，但这确实是最合理的解释了
 
 但是我说萨博死了的原因就是，如果萨博还活着，他没有任何理由不过来救艾斯
-
-
-
-
-
 
 
 -----
@@ -13958,16 +9057,10 @@ CP
 ##### 38240#       发表于 2015-7-15 17:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29550625&amp;ptid=98922" target="_blank">x五更琉璃 发表于 2015-7-15 16:21</a>
 
 罗宾怎么越长越像外野6分了</blockquote>
 7分范爷，6分是谁？
-
-
-
-
-
 
 
 -----
@@ -13976,16 +9069,10 @@ CP
 ##### 38241#       发表于 2015-7-15 17:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551497&amp;ptid=98922" target="_blank">powerpyc 发表于 2015-7-15 17:44</a>
 
 7分范爷，6分是谁？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/112.gif" referrerpolicy="no-referrer">我印象里都说的是六分啊
-
-
-
-
-
 
 
 -----
@@ -13994,16 +9081,10 @@ CP
 ##### 38242#       发表于 2015-7-15 17:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551523&amp;ptid=98922" target="_blank">x五更琉璃 发表于 2015-7-15 17:47</a>
 
 我印象里都说的是六分啊</blockquote>
 噗那可能是我记错了<img src="https://static.saraba1st.com/image/smiley/normal/091.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14012,16 +9093,10 @@ CP
 ##### 38243#       发表于 2015-7-15 17:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551196&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-15 17:14</a>
 
 女角色同质化越来越严重了感觉，黑皮罗宾明明也很棒。。。2年后最让我觉得骚想干的居然是莫奈 ...</blockquote>
 莫奈的确非常骚想干，太正常了
-
-
-
-
-
 
 
 -----
@@ -14030,14 +9105,7 @@ CP
 ##### 38244#       发表于 2015-7-15 18:02
 
 
-
-
 失忆这个原因还好，真要是什么事故导致萨博没去救艾斯的话，萨博这个角色形象一下就变得比路飞矮半截，我实在找不到有什么比伙伴们全都生死不明这个更严重的事故，但是路飞他还是去救了
-
-
-
-
-
 
 
 -----
@@ -14046,14 +9114,7 @@ CP
 ##### 38245#       发表于 2015-7-15 18:13
 
 
-
-
 难道龙真是暴风果实…这梗传了好久终于成真了？
-
-
-
-
-
 
 
 -----
@@ -14062,15 +9123,9 @@ CP
 ##### 38246#       发表于 2015-7-15 18:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29551196&amp;amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-15 17:14</a>
 女角色同质化越来越严重了感觉，黑皮罗宾明明也很棒。。。2年后最让我觉得骚想干的居然是莫奈 ...</blockquote>
 莫奈不是典型的娜美星人么
-
-
-
-
-
 
 
 -----
@@ -14079,14 +9134,7 @@ CP
 ##### 38247#       发表于 2015-7-15 19:17
 
 
-
-
 吉：为什么你们都看过了！？在哪看啊
-
-
-
-
-
 
 
 -----
@@ -14095,16 +9143,10 @@ CP
 ##### 38248#       发表于 2015-7-15 19:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29552238&amp;ptid=98922" target="_blank">吉黑尽阵 发表于 2015-7-15 19:17</a>
 
 吉：为什么你们都看过了！？在哪看啊</blockquote>
 鼠绘啊
-
-
-
-
-
 
 
 -----
@@ -14113,15 +9155,9 @@ CP
 ##### 38249#       发表于 2015-7-15 19:40
 
 
-
 <blockquote>吉黑尽阵 发表于 2015-7-15 19:17
 吉：为什么你们都看过了！？在哪看啊</blockquote>
 jump提前发售，所以今天就有图源了
-
-
-
-
-
 
 
 -----
@@ -14130,14 +9166,7 @@ jump提前发售，所以今天就有图源了
 ##### 38250#       发表于 2015-7-15 19:51
 
 
-
-
 这话还好嘛，就是最后四个字太催泪了
-
-
-
-
-
 
 
 -----
@@ -14146,21 +9175,13 @@ jump提前发售，所以今天就有图源了
 ##### 38251#       发表于 2015-7-15 20:07
 
 
-
-
 索隆好久没笑的这么愉快了
-
-
-
-
-
 
 
 -----
 
 ####  柏露伯德  
 ##### 38252#       发表于 2015-7-15 20:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551742&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2015-7-15 18:13</a>
@@ -14173,16 +9194,10 @@ jump提前发售，所以今天就有图源了
 还有前面传的罗格镇那个救路飞的大风暴
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 38253#       发表于 2015-7-15 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551574&amp;ptid=98922" target="_blank">純愛中毒 发表于 2015-7-15 17:53</a>
@@ -14191,16 +9206,10 @@ jump提前发售，所以今天就有图源了
 然而傻逼的MH就是不出莫奈的塑料小人<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  硫克瓦伦汀  
 ##### 38254#       发表于 2015-7-15 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551181&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-15 17:13</a>
@@ -14209,25 +9218,13 @@ jump提前发售，所以今天就有图源了
 路飞差点被小丑处刑的时候龙第一次露脸以及不自然的风 很大程度可以往自然系能力者那边靠 当然不排除后期推翻 
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 38255#       发表于 2015-7-15 21:57
 
 
-
-
 搞不好龙是龙果实能力者。。。线索太少了
-
-
-
-
-
 
 
 -----
@@ -14236,15 +9233,9 @@ jump提前发售，所以今天就有图源了
 ##### 38256#       发表于 2015-7-15 22:12
 
 
-
 <img src="http://ww2.sinaimg.cn/large/67381bf4jw1eu3tdj5cvaj20ct0d4gmy.jpg" referrerpolicy="no-referrer">
 
 这才刚开始，看后面几年怎么发展吧。
-
-
-
-
-
 
 
 -----
@@ -14253,23 +9244,16 @@ jump提前发售，所以今天就有图源了
 ##### 38257#       发表于 2015-7-15 22:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29551196&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-15 17:14</a>
 
 女角色同质化越来越严重了感觉，黑皮罗宾明明也很棒。。。2年后最让我觉得骚想干的居然是莫奈 ...</blockquote>
 罗宾自从跟着颜艺以后高冷的韵味就没有了。
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38258#       发表于 2015-7-15 22:54
-
 
 
  本帖最后由 门田京平 于 2015-7-15 22:55 编辑 
@@ -14279,16 +9263,10 @@ jump提前发售，所以今天就有图源了
 这些看OP的都知道啊，龙当然极有可能是能力者这周过后可能性更大了。只是那人那口气好像多看了几百话一样所以逗一逗<img src="https://static.saraba1st.com/image/smiley/normal/056.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  硫克瓦伦汀  
 ##### 38259#       发表于 2015-7-15 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29554138&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-15 22:54</a>
@@ -14297,25 +9275,13 @@ jump提前发售，所以今天就有图源了
 这样啊 献丑了...<img src="https://static.saraba1st.com/image/smiley/face/86.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 38260#       发表于 2015-7-16 00:32
 
 
-
-
 弗兰基的左眼也被改造了，以后会biu出奇怪的射线吗
-
-
-
-
-
 
 
 -----
@@ -14324,14 +9290,7 @@ jump提前发售，所以今天就有图源了
 ##### 38261#       发表于 2015-7-16 00:38
 
 
-
-
 双眼双奶+掌心雷，弗兰奇五彩大炮<img src="https://static.saraba1st.com/image/smiley/normal/028.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14340,21 +9299,13 @@ jump提前发售，所以今天就有图源了
 ##### 38262#       发表于 2015-7-16 02:37
 
 
-
-
 这坑填的还算可以吧。只能说是死触发了记忆，跟通缉令海报没有关系。
-
-
-
-
-
 
 
 -----
 
 ####  箭猪  
 ##### 38263#       发表于 2015-7-16 02:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29554138&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-15 22:54</a>
@@ -14365,16 +9316,10 @@ jump提前发售，所以今天就有图源了
 中国龙那种
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 38264#       发表于 2015-7-16 04:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29555477&amp;ptid=98922" target="_blank">箭猪 发表于 2015-7-16 02:48</a>
@@ -14385,17 +9330,10 @@ jump提前发售，所以今天就有图源了
 <img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">中国龙不是已经有桃之助了么
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38265#       发表于 2015-7-16 07:02
-
-
 
 
 失忆虽说是老梗，但是仔细想想还就是这种发展最合适了，至于触发记忆，路飞和艾斯在同一个版面里登出来也就这一次，既然是三兄弟结义，只看到一个就想起来反倒不合理吧
@@ -14403,16 +9341,10 @@ jump提前发售，所以今天就有图源了
 另：话说二哥的各种剧情爆点总是游走在被黑边缘，当年二哥出场就有人说成是烧烧果实露面了你出来认亲了，现在又被说是顶头上司的儿子身份曝光了然后恢复记忆，二哥不光剧情里挨枪，评论里也是被各种黑枪打的酸爽……
 
 
-
-
-
-
-
 -----
 
 ####  ccavfun  
 ##### 38266#       发表于 2015-7-16 07:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29555652&amp;ptid=98922" target="_blank">森田美位子 发表于 2015-7-16 04:59</a>
@@ -14422,25 +9354,13 @@ jump提前发售，所以今天就有图源了
 —— 来自 Meizu m1 note, Android 5.1
 
 
-
-
-
-
-
 -----
 
 ####  Kyo.C  
 ##### 38267#       发表于 2015-7-16 08:33
 
 
-
-
 隐约觉得革命军这一侧也该有大动作了吧，毕竟二号人物都参与光复德雷斯罗萨了
-
-
-
-
-
 
 
 -----
@@ -14449,14 +9369,7 @@ jump提前发售，所以今天就有图源了
 ##### 38268#       发表于 2015-7-16 09:29
 
 
-
-
 萨博小时候就能硬吃舰炮只受个重伤，之前没有果实的时候能当上革命军干部大概全是靠自身防御力所体现出来的战斗力吧<img src="https://static.saraba1st.com/image/smiley/face/84.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14465,14 +9378,7 @@ jump提前发售，所以今天就有图源了
 ##### 38269#       发表于 2015-7-16 09:45
 
 
-
-
 力库王，藤虎，萨博，德岛三黑
-
-
-
-
-
 
 
 -----
@@ -14481,23 +9387,16 @@ jump提前发售，所以今天就有图源了
 ##### 38270#       发表于 2015-7-16 11:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29553881&amp;ptid=98922" target="_blank">莉洁莉特 发表于 2015-7-15 22:24</a>
 
 罗宾自从跟着颜艺以后高冷的韵味就没有了。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">坟蛋WT，把罗宾姐姐还回来口牙
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 38271#       发表于 2015-7-16 11:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29555829&amp;ptid=98922" target="_blank">ccavfun 发表于 2015-7-16 07:12</a>
@@ -14509,16 +9408,10 @@ jump提前发售，所以今天就有图源了
 就算是人造的，我觉得也没必要弄2个一模一样的果实吧，幻兽种也好远古种也好，反正候补动物那么多
 
 
-
-
-
-
-
 -----
 
 ####  猎户座  
 ##### 38272#       发表于 2015-7-16 11:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29558207&amp;ptid=98922" target="_blank">森田美位子 发表于 2015-7-16 11:28</a>
@@ -14529,16 +9422,10 @@ jump提前发售，所以今天就有图源了
 幻兽和远古没几个候补好吧。。
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38273#       发表于 2015-7-16 11:40
-
 
 
 <blockquote>引用第38333楼x五更琉璃于2015-07-15 16:21发表的  :
@@ -14550,16 +9437,10 @@ jump提前发售，所以今天就有图源了
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 38274#       发表于 2015-7-16 12:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29556904&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-16 09:45</a>
@@ -14568,25 +9449,13 @@ jump提前发售，所以今天就有图源了
 都被黑的很惨。看来还是明哥塑造的太狂拽酷炫了
 
 
-
-
-
-
-
 -----
 
 ####  yario  
 ##### 38275#       发表于 2015-7-16 12:14
 
 
-
-
 德岛留下的疑问：掉线组的近况，如何复国，古代文本
-
-
-
-
-
 
 
 -----
@@ -14595,15 +9464,9 @@ jump提前发售，所以今天就有图源了
 ##### 38276#       发表于 2015-7-16 12:34
 
 
-
 <blockquote>影山银 发表于 2015-7-16 09:29
 萨博小时候就能硬吃舰炮只受个重伤，之前没有果实的时候能当上革命军干部大概全是靠自身防御力所体现出来的 ...</blockquote>
 不是舰炮，是天龙人的R!P!G
-
-
-
-
-
 
 
 -----
@@ -14612,16 +9475,10 @@ jump提前发售，所以今天就有图源了
 ##### 38277#       发表于 2015-7-16 12:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29558707&amp;ptid=98922" target="_blank">yario 发表于 2015-7-16 12:14</a>
 
 德岛留下的疑问：掉线组的近况，如何复国，古代文本</blockquote>
 掉线的可能把凯撒送大妈，让大妈打凯多去了。
-
-
-
-
-
 
 
 -----
@@ -14630,14 +9487,7 @@ jump提前发售，所以今天就有图源了
 ##### 38278#       发表于 2015-7-16 13:34
 
 
-
-
 感觉德岛是个很小很小的国家（远不如阿拉巴斯坦，倒是和之前巴基占领的那个镇子差不多的感觉）是不是？
-
-
-
-
-
 
 
 -----
@@ -14646,17 +9496,10 @@ jump提前发售，所以今天就有图源了
 ##### 38279#       发表于 2015-7-16 13:49
 
 
-
-
 德岛有多大不知道
 
 
 老唐的家宅是够大的，那么多层
-
-
-
-
-
 
 
 -----
@@ -14665,17 +9508,10 @@ jump提前发售，所以今天就有图源了
 ##### 38280#       发表于 2015-7-16 14:17
 
 
-
-
 cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -14684,16 +9520,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38281#       发表于 2015-7-16 14:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29556904&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-16 09:45</a>
 
 力库王，藤虎，萨博，德岛三黑</blockquote>
 累赘卡笑而不语，在贴吧都被黑粗翔了。。。
-
-
-
-
-
 
 
 -----
@@ -14702,14 +9532,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38282#       发表于 2015-7-16 14:58
 
 
-
-
 躺在屋中间的伤员是谁？贝拉米？
-
-
-
-
-
 
 
 -----
@@ -14718,14 +9541,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38283#       发表于 2015-7-16 14:58
 
 
-
-
 躺在屋中间的伤员是谁？贝拉米？
-
-
-
-
-
 
 
 -----
@@ -14734,16 +9550,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38284#       发表于 2015-7-16 16:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29560361&amp;ptid=98922" target="_blank">gasijier 发表于 2015-7-16 14:58</a>
 
 躺在屋中间的伤员是谁？贝拉米？</blockquote>
 那个是路飞的大粉丝吧..
-
-
-
-
-
 
 
 -----
@@ -14752,16 +9562,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38285#       发表于 2015-7-16 17:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29561474&amp;ptid=98922" target="_blank">五月 发表于 2015-7-16 16:52</a>
 
 那个是路飞的大粉丝吧..</blockquote>
 好像就是贝拉米
-
-
-
-
-
 
 
 -----
@@ -14770,16 +9574,9 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38286#       发表于 2015-7-16 17:46
 
 
-
-
 贝拉米才是真他妈傻逼。
 
 —— 来自 Sony D6503, Android 5.0.2
-
-
-
-
-
 
 
 -----
@@ -14788,14 +9585,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38287#       发表于 2015-7-16 18:32
 
 
-
-
 这话一点都不拖，下周休刊太拖
-
-
-
-
-
 
 
 -----
@@ -14804,14 +9594,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38288#       发表于 2015-7-16 19:57
 
 
-
-
 德岛当然没法和沙国比 沙国可是能进世界政府但是没进的
-
-
-
-
-
 
 
 -----
@@ -14820,14 +9603,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38289#       发表于 2015-7-16 22:17
 
 
-
-
 基德去惹红发纯属找死，红发是能正面刚红狗的，基德看到红狗只有逃的份。
-
-
-
-
-
 
 
 -----
@@ -14836,14 +9612,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38290#       发表于 2015-7-16 22:34
 
 
-
-
 找死找死呗，不趁着年轻多做点死，也对不起最恶的一代海贼称号。
-
-
-
-
-
 
 
 -----
@@ -14852,14 +9621,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38291#       发表于 2015-7-16 23:20
 
 
-
-
 人家骚扰大妈掉条手臂都不觉得有啥，组到个同盟当然得再找个四皇搞搞
-
-
-
-
-
 
 
 -----
@@ -14868,14 +9630,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38292#       发表于 2015-7-17 02:22
 
 
-
-
 上一话不是说藤虎要刚掉路飞和罗么。。。怎么这就一群人安稳睡大觉并且可以预定出海了。。。总不会是二哥刚掉了藤虎吧？
-
-
-
-
-
 
 
 -----
@@ -14884,23 +9639,15 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38293#       发表于 2015-7-17 08:52
 
 
-
-
 794：革命生涯常分手，一样分别两样情
 
 下一次兄弟聚首，又会是一场大热闹。
-
-
-
-
-
 
 
 -----
 
 ####  flyzzhj  
 ##### 38294#       发表于 2015-7-17 09:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29565902&amp;ptid=98922" target="_blank">=D_BOY=Damned 发表于 2015-7-17 02:22</a>
@@ -14911,16 +9658,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 腾虎不回海军基地也有可能，因为他可能不打算去干罗和路飞
 
 
-
-
-
-
-
 -----
 
 ####  powerpyc  
 ##### 38295#       发表于 2015-7-17 09:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29564825&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-16 23:20</a>
@@ -14929,25 +9670,13 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 <img src="https://static.saraba1st.com/image/smiley/normal/117.gif" referrerpolicy="no-referrer">基德骚扰大妈的时候丢了条手臂？！
 
 
-
-
-
-
-
 -----
 
 ####  Kyo.C  
 ##### 38296#       发表于 2015-7-17 09:52
 
 
-
-
 怎么就没人觉得龙是天气果实能力者呢
-
-
-
-
-
 
 
 -----
@@ -14956,16 +9685,9 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38297#       发表于 2015-7-17 10:21
 
 
-
-
 最近我越发坚信厨子那里打不起来，莫利亚篇那个大嘴女是大妈的女儿和娜美的生命纸伏笔应该要用上了。
 
 革命军暂时没有铺垫吧，下面应该是和之国篇了，那里不是政府的场子，但话说回来革命军对海贼的态度很微妙，海泽里大部分人是无恶不作的，革命军没有理由把他们当自己人，但是海贼能分散政府的注意力应该是他们希望看到的，所以这大概也是至今篇幅里没有革命军和海贼正面对决的原因，但是下个篇幅革命军要是为了拉拢和之国和凯多干上了，那说明革命军其实一点也不在乎吧海贼和政府拉一起A，那革命军实力印象大涨啊
-
-
-
-
-
 
 
 -----
@@ -14974,16 +9696,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38298#       发表于 2015-7-17 10:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29567197&amp;ptid=98922" target="_blank">powerpyc 发表于 2015-7-17 09:30</a>
 
 基德骚扰大妈的时候丢了条手臂？！</blockquote>
 猜测，反正2年后已经是自己能力凑出来的义肢了，外加大妈的手下在鱼人岛电话虫里说过已经被基德弄掉了几艘船
-
-
-
-
-
 
 
 -----
@@ -14992,14 +9708,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38299#       发表于 2015-7-17 11:22
 
 
-
-
 都是四皇，红发不见得就牛b多少。。。。白胡子那惊天动地的实力，要是四皇都这个实力，现在这点闹腾劲根本不在话下
-
-
-
-
-
 
 
 -----
@@ -15008,16 +9717,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38300#       发表于 2015-7-17 12:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29567429&amp;ptid=98922" target="_blank">Kyo.C 发表于 2015-7-17 09:52</a>
 
 怎么就没人觉得龙是天气果实能力者呢</blockquote>
 不是一堆人觉得龙是天气果实....
-
-
-
-
-
 
 
 -----
@@ -15026,23 +9729,16 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38301#       发表于 2015-7-17 15:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29569009&amp;ptid=98922" target="_blank">bloodalone 发表于 2015-7-17 12:20</a>
 
 不是一堆人觉得龙是天气果实....</blockquote>
 我粗看了楼里几乎都是说是个别单独天像，比方龙卷啊雷云啊，没人说是全天像可控？
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 38302#       发表于 2015-7-17 16:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29568399&amp;ptid=98922" target="_blank">猎户座 发表于 2015-7-17 11:22</a>
@@ -15054,26 +9750,15 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 红发：就算是面子果实，也是缠绕着霸王色霸气的面子果实！哼！
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 38303#       发表于 2015-7-17 19:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29571564&amp;amp;ptid=98922" target="_blank">alecwong 发表于 2015-7-17 16:20</a>
 红发靠啥当上四皇的呢？白胡子凯多已经确定战斗力超级牛逼了，大妈还未有详细信息但也知道不是善茬儿，红 ...</blockquote>
 红发时强制对半开，遇强则强，遇弱则弱
-
-
-
-
-
 
 
 -----
@@ -15082,17 +9767,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38304#       发表于 2015-7-19 19:34
 
 
-
-
 重温海贼王漫画中，想不到第一个哭的会是乌索普的回忆。
 
 
 年纪越多，对亲情越发的不能控制。
-
-
-
-
-
 
 
 -----
@@ -15101,23 +9779,16 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38305#       发表于 2015-7-20 13:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29502251&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-10 16:22</a>
 
 这种太长版权都是按时间买的？</blockquote>
 抱歉才看到，一般来说是几年一签的。
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38306#       发表于 2015-7-20 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29570921&amp;ptid=98922" target="_blank">Kyo.C 发表于 2015-7-17 15:25</a>
@@ -15128,16 +9799,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 除非再扯远点，操控天气的基础上还是动物系龙果实，本身变龙后有加护什么的。。。<img src="https://static.saraba1st.com/image/smiley/carton/176.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 38307#       发表于 2015-7-20 21:03
-
 
 
 [op编辑杉田卓电台节目问答](http://tieba.baidu.com/p/3908040586?pn=2)
@@ -15146,25 +9811,13 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 海贼王不好看不是编辑的锅
 
 
-
-
-
-
-
 -----
 
 ####  fengzhiwai  
 ##### 38308#       发表于 2015-7-23 01:09
 
 
-
-
 萨博真是失忆
-
-
-
-
-
 
 
 -----
@@ -15173,16 +9826,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38309#       发表于 2015-7-23 15:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29598460&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-20 13:32</a>
 
 全天气可控的话就是超人系了吧，自己本身不是半无敌状态单纯的操控天气感觉不在海上的情况下单挑强者还是 ...</blockquote>
 有黑胡子这个先例在，双果实能力者应该也不会特别罕见，如果龙是动物系+自然系就太牛逼了
-
-
-
-
-
 
 
 -----
@@ -15191,14 +9838,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38310#       发表于 2015-7-23 15:56
 
 
-
-
 突然想起，罗杰跟金狮子刚的时候，也是被一场奇怪的暴雨救了，这是暗示是龙救的吧？
-
-
-
-
-
 
 
 -----
@@ -15207,16 +9847,9 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38311#       发表于 2015-7-23 16:43
 
 
-
-
 罗杰：自然果实幻种“量子果实”，能4维化，控制局地天候小意思，砍头不死
 
 砍了头变成量子状态，但是一部分能力被龙和火鸡接收
-
-
-
-
-
 
 
 -----
@@ -15225,15 +9858,9 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38312#       发表于 2015-7-23 16:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29563127&amp;ptid=98922" target="_blank">584520184 发表于 2015-7-16 19:57</a>
 德岛当然没法和沙国比 沙国可是能进世界政府但是没进的</blockquote>
 德岛的前王族进世界政府成为天龙人了
-
-
-
-
-
 
 
 -----
@@ -15242,16 +9869,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38313#       发表于 2015-7-23 17:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29631263&amp;ptid=98922" target="_blank">铅封丸子 发表于 2015-7-23 16:46</a>
 
 德岛的前王族进世界政府成为天龙人了</blockquote>
 哪一话提的 我没印象啊
-
-
-
-
-
 
 
 -----
@@ -15260,23 +9881,16 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38314#       发表于 2015-7-23 19:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29631474&amp;ptid=98922" target="_blank">584520184 发表于 2015-7-23 17:07</a>
 
 哪一话提的 我没印象啊</blockquote>
 722话，不就是和阿拉巴斯坦能当天龙人但没去圣地一起说的
 
 
-
-
-
-
-
 -----
 
 ####  箭猪  
 ##### 38315#       发表于 2015-7-24 01:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29630667&amp;ptid=98922" target="_blank">Kyo.C 发表于 2015-7-23 15:48</a>
@@ -15288,16 +9902,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 满街最终ｂｏｓｓ到处跑，那最终ｂｏｓｓ无非只是”出场比较晚的家伙”而已，哪还有最终的样子呀！
 
 
-
-
-
-
-
 -----
 
 ####  Kyo.C  
 ##### 38316#       发表于 2015-7-24 01:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29635589&amp;ptid=98922" target="_blank">箭猪 发表于 2015-7-24 01:46</a>
@@ -15309,16 +9917,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 如果没有双果实能力者的先例在，那黑胡子怎么敢贸然夺取老爹的能力呢，应该是他早就做过调查，别忘了他为了暗暗果实可是蛰伏了很久，可见他处事还是比较严谨的
 
 
-
-
-
-
-
 -----
 
 ####  箭猪  
 ##### 38317#       发表于 2015-7-24 02:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29635623&amp;ptid=98922" target="_blank">Kyo.C 发表于 2015-7-24 01:59</a>
@@ -15342,25 +9944,13 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 一个人只能吃一个果实尾田在漫画里多次强调过，作为一个最终ｂｏｓｓ，这种例外一般而言还是勉强能够接受的（整部作品就这么一个例外，所以才有资格教最终ｂｏｓｓ啊），否则的话作者做出“自打脸”的举动，就和作者用“梦结局”做结局一样，故事当然是能圆的过来，但读者看起来就感觉自己呗喂屎了。
 
 
-
-
-
-
-
 -----
 
 ####  刹那の劍  
 ##### 38318#       发表于 2015-7-25 21:28
 
 
-
-
 重新看海贼王已到空岛部分，看到大战士卡尔加拉和诺兰德的友谊真是感动的不行，男人的浪漫。<img src="https://static.saraba1st.com/image/smiley/face/02.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15369,15 +9959,9 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38319#       发表于 2015-7-25 23:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29653362&amp;ptid=98922" target="_blank">刹那の劍 发表于 2015-7-25 21:28</a>
 重新看海贼王已到空岛部分，看到大战士卡尔加拉和诺兰德的友谊真是感动的不行，男人的浪漫。 ...</blockquote>
 重溫了n次表示…下次重溫還能繼續感動！<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15386,22 +9970,15 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38320#       发表于 2015-7-25 23:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29653362&amp;ptid=98922" target="_blank">刹那の劍 发表于 2015-7-25 21:28</a>
 重新看海贼王已到空岛部分，看到大战士卡尔加拉和诺兰德的友谊真是感动的不行，男人的浪漫。 ...</blockquote>
 重溫了n次表示…下次重溫還能繼續感動！<img src="https://static.saraba1st.com/image/smiley/face/116.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  刹那の劍  
 ##### 38321#       发表于 2015-7-26 00:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29654447&amp;ptid=98922" target="_blank">拾下拾下仔 发表于 2015-7-25 23:15</a>
@@ -15413,16 +9990,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 我的人生有海贼王可以参与，真的是太好了。
 
 
-
-
-
-
-
 -----
 
 ####  魔狭人  
 ##### 38322#       发表于 2015-7-28 21:03
-
 
 
 [http://jeansfreak.bpnavi.jp/jf_vote.html](http://jeansfreak.bpnavi.jp/jf_vote.html)
@@ -15431,16 +10002,10 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 牛仔裤形象投票活动
 
 
-
-
-
-
-
 -----
 
 ####  葵  
 ##### 38323#       发表于 2015-7-28 21:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29573703&amp;ptid=98922" target="_blank">暗影翔 发表于 2015-7-17 19:55</a>
@@ -15449,25 +10014,13 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 这么说红发的能力其实是聂风的“不在我之下”能力果实，诅咒系！<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  aimopanda  
 ##### 38324#       发表于 2015-7-30 01:54
 
 
-
-
 在fb看了一圈，对青鸡或者革命军表示符合，还有萨博对话的乌鸦是某种觉醒能力。
-
-
-
-
-
 
 
 -----
@@ -15476,14 +10029,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38325#       发表于 2015-7-30 11:03
 
 
-
-
 掉线组本周上线
-
-
-
-
-
 
 
 -----
@@ -15492,14 +10038,7 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38326#       发表于 2015-7-30 11:06
 
 
-
-
 凯多貌似也出现了
-
-
-
-
-
 
 
 -----
@@ -15508,21 +10047,13 @@ cp0作为天龙人的眼线的话是希望明哥被干掉的吧
 ##### 38327#       发表于 2015-7-30 12:37
 
 
-
-
 凯多巨大的大叔，左手还描龙画凤的
-
-
-
-
-
 
 
 -----
 
 ####  天兔  
 ##### 38328#       发表于 2015-7-30 12:47
-
 
 
 <blockquote>在本月17日，J-WAVE的GOLD RUSH节目组请到了OP第8代编辑杉田卓，谈论OP不为人知的小事以及尾田的为人。
@@ -15562,16 +10093,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 7月份78卷，8成不到的进度，那就是接近100卷了？ 6-7年的节奏。
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 38329#       发表于 2015-7-30 12:47
-
 
 
  本帖最后由 angelooo 于 2015-7-30 12:59 编辑 
@@ -15581,25 +10106,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 我突然理解莫利亚为啥要造不死的手下了，这完全是被凯多这个对手逼疯了啊
 
 
-
-
-
-
-
 -----
 
 ####  acgzero  
 ##### 38330#       发表于 2015-7-30 13:11
 
 
-
-
 这话完全看不懂了<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15608,14 +10121,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38331#       发表于 2015-7-30 13:13
 
 
-
-
 这话的信息量也不小
-
-
-
-
-
 
 
 -----
@@ -15624,16 +10130,9 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38332#       发表于 2015-7-30 13:17
 
 
-
-
 凯多的人生就是到处作死，然后谁也奈何不了？
 
 从这点看难道他不是果实能力者？
-
-
-
-
-
 
 
 -----
@@ -15642,16 +10141,9 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38333#       发表于 2015-7-30 13:18
 
 
-
-
 武士们逃到世界各地？
 凯多海贼团的恶魔果实能力者可以用动物系的部分，比如羊头？越高阶能力越全面？
 白胡子不是最强太可惜了
-
-
-
-
-
 
 
 -----
@@ -15660,14 +10152,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38334#       发表于 2015-7-30 13:24
 
 
-
-
 基德他们想打红发结果遇上凯多....<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15676,22 +10161,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38335#       发表于 2015-7-30 13:25
 
 
-
-
 吃两个恶魔果实就能死啊，想来他肯定吃多少个也死不了，这就是另一个层面的独孤求败啊，基德组会先被他干掉的
-
-
-
-
-
 
 
 -----
 
 ####  faust123  
 ##### 38336#       发表于 2015-7-30 13:27
-
-
 
 
 关于凯多的不死（作死）设想：
@@ -15706,17 +10182,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 推论：可能是漆黑漆黑的带翅小强果实能力者
 
 
-
-
-
-
-
 -----
 
 ####  箭猪  
 ##### 38337#       发表于 2015-7-30 13:35
-
-
 
 
 凯多看起来是巨人族中奥兹血统的那类，确实可以称作最强生物——巨人确实是最强的种族（有智能的那类），而奥兹又是巨人中最强的
@@ -15727,25 +10196,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 推测丫就是一个野兽果实的人，并且鄙视一切非野兽果实（因为除了野兽果实其他都不靠肉体）的对手，所以手下全部是野兽果实的家伙，因此赢得百兽之王的名字
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 38338#       发表于 2015-7-30 13:37
 
 
-
-
 要是野兽果实那不是扔水里就淹死啦？
-
-
-
-
-
 
 
 -----
@@ -15754,14 +10211,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38339#       发表于 2015-7-30 13:38
 
 
-
-
 空岛那里凯多看上去怎么这么小……
-
-
-
-
-
 
 
 -----
@@ -15770,21 +10220,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38340#       发表于 2015-7-30 13:41
 
 
-
-
 太拖了
-
-
-
-
-
 
 
 -----
 
 ####  hispeed  
 ##### 38341#       发表于 2015-7-30 13:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29702751&amp;ptid=98922" target="_blank">pokel 发表于 2015-7-30 13:38</a>
@@ -15796,16 +10238,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 最后一张感觉凯多应该不是巨人族
 
 
-
-
-
-
-
 -----
 
 ####  pokel  
 ##### 38342#       发表于 2015-7-30 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29702796&amp;ptid=98922" target="_blank">hispeed 发表于 2015-7-30 13:42</a>
@@ -15820,25 +10256,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 被最后一页震到，也太大了……
 
 
-
-
-
-
-
 -----
 
 ####  pokel  
 ##### 38343#       发表于 2015-7-30 13:44
 
 
-
-
 看人坑还以为是将军大小
-
-
-
-
-
 
 
 -----
@@ -15847,14 +10271,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38344#       发表于 2015-7-30 14:00
 
 
-
-
 厨子组竟然上线了！
-
-
-
-
-
 
 
 -----
@@ -15863,14 +10280,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38345#       发表于 2015-7-30 14:04
 
 
-
-
 这话看得合不拢嘴，凯多实在是太逗了哈哈哈哈哈哈哈
-
-
-
-
-
 
 
 -----
@@ -15879,14 +10289,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38346#       发表于 2015-7-30 14:08
 
 
-
-
 “兴趣是自杀”什么的……很是有点轻小说噱头的感觉
-
-
-
-
-
 
 
 -----
@@ -15895,17 +10298,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38347#       发表于 2015-7-30 14:16
 
 
-
-
 这话信息量超大，看得云里雾里的
 
 
 恭喜掉线组上线，恭喜厨子归来。。。。。。咦，我好想说了个自己不记得的名字
-
-
-
-
-
 
 
 -----
@@ -15914,22 +10310,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38348#       发表于 2015-7-30 14:16
 
 
-
-
 这一话 有点乱…………
-
-
-
-
-
 
 
 -----
 
 ####  萝卜roto  
 ##### 38349#       发表于 2015-7-30 14:27
-
-
 
 
 凯多原来是一逗比，因为太无聊而想毁灭世界。。
@@ -15940,16 +10327,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ----发送自 [Sony D5803,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 38350#       发表于 2015-7-30 14:32
-
 
 
 <blockquote>引用第38404楼cdfjg于2015-07-30 13:18发表的  :
@@ -15961,25 +10342,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ----发送自 [Sony D5803,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  月夜凝雪  
 ##### 38351#       发表于 2015-7-30 14:32
 
 
-
-
 这厨师你之前到底发生了什么事总要好好说明一下啊
-
-
-
-
-
 
 
 -----
@@ -15988,14 +10357,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38352#       发表于 2015-7-30 14:36
 
 
-
-
 白马被铁链捆着。
-
-
-
-
-
 
 
 -----
@@ -16004,14 +10366,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38353#       发表于 2015-7-30 14:37
 
 
-
-
 前面那段讲厨子的是啥，怎么感觉时间乱了。
-
-
-
-
-
 
 
 -----
@@ -16020,14 +10375,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38354#       发表于 2015-7-30 14:44
 
 
-
-
 这尼玛…看到凯多后再次真心觉得路飞2年白练了<img src="https://static.saraba1st.com/image/smiley/dym/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16036,16 +10384,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38355#       发表于 2015-7-30 14:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29703294&amp;ptid=98922" target="_blank">月夜凝雪 发表于 2015-7-30 14:32</a>
 
 这厨师你之前到底发生了什么事总要好好说明一下啊</blockquote>
 一个喷射就跑了，其实现在的万里阳光好，逃跑技术一流
-
-
-
-
-
 
 
 -----
@@ -16054,14 +10396,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38356#       发表于 2015-7-30 15:05
 
 
-
-
 尾田的尿性，下一话要倒叙妥妥的
-
-
-
-
-
 
 
 -----
@@ -16070,14 +10405,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38357#       发表于 2015-7-30 15:12
 
 
-
-
 这话简直太好看了
-
-
-
-
-
 
 
 -----
@@ -16086,21 +10414,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38358#       发表于 2015-7-30 15:22
 
 
-
-
 都快忘记厨子这人了
-
-
-
-
-
 
 
 -----
 
 ####  faust123  
 ##### 38359#       发表于 2015-7-30 15:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29703245&amp;ptid=98922" target="_blank">萝卜roto 发表于 2015-7-30 14:27</a>
@@ -16113,25 +10433,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 "这红丸你只需服用7749天。。。"
 
 
-
-
-
-
-
 -----
 
 ####  萌即正义  
 ##### 38360#       发表于 2015-7-30 15:29
 
 
-
-
 罗哪来的自信要干凯多的<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16140,14 +10448,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38361#       发表于 2015-7-30 15:33
 
 
-
-
 于是节奏是：遇见大妈并成功逃离——出手救人并得罪凯多手下——厨子惊退凯多手下？
-
-
-
-
-
 
 
 -----
@@ -16156,14 +10457,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38362#       发表于 2015-7-30 15:41
 
 
-
-
 从凯多是个逗比的情况来看，估计和基德团是打不起来的，他连joker被草帽放倒都不知道呢，很可能被几句花言巧语给骗过去了，或者另一种展开就是基德团草草过了几招逃跑，意识到单凭两三个超新星还是对付不了四皇，于是去找草帽联手？
-
-
-
-
-
 
 
 -----
@@ -16172,14 +10466,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38363#       发表于 2015-7-30 16:02
 
 
-
-
 四皇的战斗力，白胡子是输出高，凯多是防御高，红发是面子，那么大妈会是？
-
-
-
-
-
 
 
 -----
@@ -16188,16 +10475,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38364#       发表于 2015-7-30 16:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29704276&amp;ptid=98922" target="_blank">Ariakus 发表于 2015-7-30 16:02</a>
 
 四皇的战斗力，白胡子是输出高，凯多是防御高，红发是面子，那么大妈会是？ ...</blockquote>
 奶子大
-
-
-
-
-
 
 
 -----
@@ -16206,23 +10487,16 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38365#       发表于 2015-7-30 16:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29703930&amp;ptid=98922" target="_blank">萌即正义 发表于 2015-7-30 15:29</a>
 
 罗哪来的自信要干凯多的</blockquote>
 罗没想干凯多啊……一开始就说了借刀杀人嘛，目的是明哥，利用草帽而已
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38366#       发表于 2015-7-30 16:08
-
 
 
  本帖最后由 门田京平 于 2015-7-30 16:13 编辑 
@@ -16235,25 +10509,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 另外看到个回复：  和我单挑居然比我先死，是在下输了 x 18次     =凯多战败18次的典故<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  不吃胡萝卜  
 ##### 38367#       发表于 2015-7-30 16:13
 
 
-
-
 牛魔王！！！帅呀！！！基德也是so惨，图谋了半天黑红发，结果凯多作死突然从天而降了，估计要杠正面被吊打再跑2333
-
-
-
-
-
 
 
 -----
@@ -16262,14 +10524,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38368#       发表于 2015-7-30 16:18
 
 
-
-
 居然大家都在找武士，难怪当年那话里娜美说桃子也是三张牌之一
-
-
-
-
-
 
 
 -----
@@ -16278,14 +10533,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38369#       发表于 2015-7-30 16:21
 
 
-
-
 这BOSS有意思，不过说起来杀他不难吧，用罗的能力
-
-
-
-
-
 
 
 -----
@@ -16294,14 +10542,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38370#       发表于 2015-7-30 16:24
 
 
-
-
 有可能他的“不死”就是前代手术果实能力者用了“永生手术”创造出来的。
-
-
-
-
-
 
 
 -----
@@ -16310,23 +10551,16 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38371#       发表于 2015-7-30 16:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29704515&amp;ptid=98922" target="_blank">zuga 发表于 2015-7-30 16:24</a>
 
 有可能他的“不死”就是前代手术果实能力者用了“永生手术”创造出来的。 ...</blockquote>
 盲生你发现了华点！有道理！
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38372#       发表于 2015-7-30 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29704570&amp;ptid=98922" target="_blank">门田京平 发表于 2015-7-30 16:31</a>
@@ -16337,16 +10571,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 要是真的这补刀算是至今最恶毒的了
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38373#       发表于 2015-7-30 16:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29704640&amp;ptid=98922" target="_blank">影流之主 发表于 2015-7-30 16:37</a>
@@ -16357,25 +10585,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 又想毁灭世界又想长生不老，说实话这两个野望留其一时髦值还能上去点，两个一起简直lowB
 
 
-
-
-
-
-
 -----
 
 ####  葵  
 ##### 38374#       发表于 2015-7-30 16:49
 
 
-
-
 凯多造型不错～<img src="https://static.saraba1st.com/image/smiley/face/26.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16384,14 +10600,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38375#       发表于 2015-7-30 16:56
 
 
-
-
 其他三皇的样子都没变，就凯多目测是WT重新设计过了吧，当年卡普描述里的阴影脸型完全不一样，另外JJC剧情那会的彩页左上角没出现的大胡子角色论了很久也终于印证是凯多了
-
-
-
-
-
 
 
 -----
@@ -16400,14 +10609,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38376#       发表于 2015-7-30 17:03
 
 
-
-
 世上最（小）强生物
-
-
-
-
-
 
 
 -----
@@ -16416,13 +10618,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38377#       发表于 2015-7-30 17:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">结果前代四皇就没一个想当海贼王的，大妈：吃吃喝喝，白胡子：收儿子，凯多：寻死，红发：喝酒冒险，我说四皇们能不能敬业点！
-
-
-
-
-
 
 
 -----
@@ -16431,14 +10627,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38378#       发表于 2015-7-30 17:08
 
 
-
-
 红发:凯多，请给我一个面子。
-
-
-
-
-
 
 
 -----
@@ -16447,14 +10636,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38379#       发表于 2015-7-30 17:24
 
 
-
-
 大家仔细看啊，搞了半天，超新星海贼团里女性质量最高的竟然是怪僧啊，不能忍！
-
-
-
-
-
 
 
 -----
@@ -16463,21 +10645,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38380#       发表于 2015-7-30 17:32
 
 
-
-
 这种怎么都死不掉的人在其他作品中倒也挺多的
-
-
-
-
-
 
 
 -----
 
 ####  saiad  
 ##### 38381#       发表于 2015-7-30 17:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29705119&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-7-30 17:24</a>
@@ -16488,16 +10662,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 你对罗宾姐姐和娜美有什么不满！
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 38382#       发表于 2015-7-30 18:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29705280&amp;ptid=98922" target="_blank">saiad 发表于 2015-7-30 17:39</a>
@@ -16507,25 +10675,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 只有两个，怪僧起码三个！
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 38383#       发表于 2015-7-30 18:31
 
 
-
-
 草帽团最美，最萌，最变态。
-
-
-
-
-
 
 
 -----
@@ -16534,15 +10690,9 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38384#       发表于 2015-7-30 18:42
 
 
-
 <blockquote>cdfjg 发表于 2015-7-30 18:30
 只有两个，怪僧起码三个！</blockquote>
 要看质量！质量！
-
-
-
-
-
 
 
 -----
@@ -16551,16 +10701,9 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38385#       发表于 2015-7-30 18:53
 
 
-
-
 现在一点影子没有的boss就是第三个大将绿牛和砍泽法手的那个七武海了吧…那么多boss真的已经完成80%剧情了吗？
 
 —— 来自 Meizu m1 note, Android 5.1
-
-
-
-
-
 
 
 -----
@@ -16569,14 +10712,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38386#       发表于 2015-7-30 18:55
 
 
-
-
 也许凯多活的太久太无聊了，对于永生者来说果然无聊是最大的敌人。花样作死而不能也是个逗比。
-
-
-
-
-
 
 
 -----
@@ -16585,22 +10721,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38387#       发表于 2015-7-30 19:19
 
 
-
-
 这实力。。。难怪把莫利亚和多弗吓成这样
-
-
-
-
-
-
 
 
 -----
 
 ####  发财就手  
 ##### 38388#       发表于 2015-7-30 19:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29702808&amp;ptid=98922" target="_blank">pokel 发表于 2015-7-30 13:44</a>
@@ -16612,16 +10739,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 对比下黑胡子海贼团五人全登场那张图也是这样大
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 38389#       发表于 2015-7-30 19:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29703930&amp;ptid=98922" target="_blank">萌即正义 发表于 2015-7-30 15:29</a>
@@ -16630,16 +10751,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 夺取心脏？
 
 
-
-
-
-
-
 -----
 
 ####  发财就手  
 ##### 38390#       发表于 2015-7-30 19:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29704276&amp;ptid=98922" target="_blank">Ariakus 发表于 2015-7-30 16:02</a>
@@ -16648,25 +10763,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 红发应该是攻击速度快
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
 ##### 38391#       发表于 2015-7-30 20:01
 
 
-
-
 这章怎感觉是整部作品的倒数第二章了...
-
-
-
-
-
 
 
 -----
@@ -16675,14 +10778,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38392#       发表于 2015-7-30 20:55
 
 
-
-
 现在算是知道莫利亚为啥对奥兹那种魔人那么热衷了
-
-
-
-
-
 
 
 -----
@@ -16691,15 +10787,9 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38393#       发表于 2015-7-30 20:58
 
 
-
 <blockquote>发财就手 发表于 2015-7-30 19:55
 红发应该是攻击速度快</blockquote>
 白胡子dps凯多t红发盗贼，那大妈莫非是奶？
-
-
-
-
-
 
 
 -----
@@ -16708,14 +10798,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38394#       发表于 2015-7-30 21:14
 
 
-
-
 按现在四皇设定感觉那个百分八十的说法有点可信了。四皇革命军天龙人这三个大盘感觉得转很久，剩下百分二十几的篇幅感觉根本不够，重点是四皇这块骨头难啃。不过现在看来除了黑胡子是竞争者外，其他几位不是领主就是导师。凯多无聊爱热闹，大妈喜欢美食，红发是原船员明显知道内幕。现在这凯多给个海陆空单挑头衔，百兽称号和路飞的种种动物招式对应，就像白胡子之于黑胡子，成为一块证明的踏板。已经有两年的单独闭关练级期，明显不会再来一次了，之后就看顿悟了。
-
-
-
-
-
 
 
 -----
@@ -16724,24 +10807,16 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38395#       发表于 2015-7-30 21:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29707035&amp;ptid=98922" target="_blank">kuroro 发表于 2015-7-30 20:58</a>
 
 白胡子dps凯多t红发盗贼，那大妈莫非是奶？</blockquote>
 有可能，大妈很爱吃甜食来着
 
 
-
-
-
-
-
 -----
 
 ####  miziquan  
 ##### 38396#       发表于 2015-7-30 23:01
-
-
 
 
 关于凯多的体型，比较好的参照应该是他掉下来然后地上有个人形大洞的那一张。最后一张是仰视图，多少也有点夸张效果。
@@ -16753,25 +10828,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 话说原来没看仔细，以前的空岛下面也是有那么多气球吗？
 
 
-
-
-
-
-
 -----
 
 ####  少年包工头  
 ##### 38397#       发表于 2015-7-30 23:09
 
 
-
-
 总觉得山治没什么安全感，看了这话有种小林和悟饭在那美克星苦苦支撑到下飞船的人是乐平的感觉。。。
-
-
-
-
-
 
 
 -----
@@ -16780,16 +10843,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38398#       发表于 2015-7-30 23:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29707155&amp;ptid=98922" target="_blank">谁说法海不懂爱 发表于 2015-7-30 21:14</a>
 
 按现在四皇设定感觉那个百分八十的说法有点可信了。四皇革命军天龙人这三个大盘感觉得转很久，剩下百分二十 ...</blockquote>
 但是看打火鸡的表现，路飞应该是被碾压的吧
-
-
-
-
-
 
 
 -----
@@ -16798,16 +10855,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38399#       发表于 2015-7-30 23:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29708267&amp;ptid=98922" target="_blank">莫吉 发表于 2015-7-30 23:28</a>
 
 但是看打火鸡的表现，路飞应该是被碾压的吧</blockquote>
 是挺虚的，不过四皇总是得杠一个的。就看他还有没有什么别的杀招了。群殴也挺有可能的，他也输过几次。
-
-
-
-
-
 
 
 -----
@@ -16816,16 +10867,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38400#       发表于 2015-7-30 23:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29708267&amp;ptid=98922" target="_blank">莫吉 发表于 2015-7-30 23:28</a>
 
 但是看打火鸡的表现，路飞应该是被碾压的吧</blockquote>
 是挺虚的，不过四皇总是得杠一个的。就看他还有没有什么别的杀招了。群殴也挺有可能的，他也输过几次。
-
-
-
-
-
 
 
 -----
@@ -16834,14 +10879,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38401#       发表于 2015-7-31 11:11
 
 
-
-
 越来越好看了，凯多比想象中强很多的样子
-
-
-
-
-
 
 
 -----
@@ -16850,14 +10888,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38402#       发表于 2015-7-31 12:55
 
 
-
-
 凯多说的“干得不错嘛白胡子的家伙”是指谁？为什么好多人觉得是白胡子？我怎么觉得是指路西
-
-
-
-
-
 
 
 -----
@@ -16866,15 +10897,9 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38403#       发表于 2015-7-31 13:14
 
 
-
  本帖最后由 李剡s 于 2015-7-31 13:17 编辑 
 
 意思是白胡子干得不错，成功把自己作死了，比他强。问题是要求死实在是有大把的方法，找大将，放冰河时代，放八尺琼勾玉，水淹，吃俩果实，怎么可能不死，看作者要怎么圆
-
-
-
-
-
 
 
 -----
@@ -16883,16 +10908,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38404#       发表于 2015-7-31 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29713659&amp;ptid=98922" target="_blank">李剡s 发表于 2015-7-31 13:14</a>
 
 意思是白胡子干得不错，成功把自己作死了，比他强。问题是要求死实在是有大把的方法，找大将，放冰河时代， ...</blockquote>
 这话说单挑海军和四皇被抓住过，还有个海陆空单挑第一称号，应该不怕水。百兽这个称号也挺微妙的。被抓住理论上也该有大将参与，对能力者海镂石是标配，处刑40次不死，应该有点猫腻，就看后续会不会让他“不死身"接触再自打脸了。
-
-
-
-
-
 
 
 -----
@@ -16901,16 +10920,9 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38405#       发表于 2015-7-31 14:15
 
 
-
-
 抓住也是对外说法，也可能是打架（或者作死）累了，就睡着了，然后被关监狱处刑
 
 一觉醒来啥事没有又撞破墙跑了
-
-
-
-
-
 
 
 -----
@@ -16919,21 +10931,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38406#       发表于 2015-7-31 14:29
 
 
-
-
 大监狱只逃过两次人吧？反正设定是这样
-
-
-
-
-
 
 
 -----
 
 ####  萝卜roto  
 ##### 38407#       发表于 2015-7-31 14:59
-
 
 
 <blockquote>引用第38475楼谁说法海不懂爱于2015-07-31 14:04发表的  :
@@ -16945,16 +10949,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ----发送自 [Sony D5803,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  箭猪  
 ##### 38408#       发表于 2015-7-31 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29713659&amp;ptid=98922" target="_blank">李剡s 发表于 2015-7-31 13:14</a>
@@ -16975,16 +10973,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 以他敬佩白胡子的那句话来看，他被白胡子打败或者打平过
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 38409#       发表于 2015-7-31 15:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29714795&amp;ptid=98922" target="_blank">萝卜roto 发表于 2015-7-31 14:59</a>
@@ -16996,16 +10988,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 无敌穿墙术
 
 
-
-
-
-
-
 -----
 
 ####  suika  
 ##### 38410#       发表于 2015-7-31 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29714803&amp;ptid=98922" target="_blank">箭猪 发表于 2015-7-31 15:00</a>
@@ -17017,16 +11003,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 同意，否则真想死，在一个充满明媚阳光的日子里，让莫里亚剪了影子就可以去死了
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 38411#       发表于 2015-7-31 17:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29714795&amp;ptid=98922" target="_blank">萝卜roto 发表于 2015-7-31 14:59</a>
@@ -17038,16 +11018,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 说的是干掉的监狱船，大概还没来得及扔到大监狱就跑掉了吧
 
 
-
-
-
-
-
 -----
 
 ####  x五更琉璃  
 ##### 38412#       发表于 2015-7-31 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29715713&amp;ptid=98922" target="_blank">suika 发表于 2015-7-31 16:18</a>
@@ -17056,32 +11030,19 @@ Q8：挑明了说，之后的OP值得期待吗？
 哈哈哈哈哈哈画面感MAX<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  地狱满员  
 ##### 38413#       发表于 2015-7-31 18:41
 
 
-
-
 现在谁还敢说莫里亚是最弱七武海？和这种东西分庭抗礼了很久啊啊啊啊。
-
-
-
-
-
 
 
 -----
 
 ####  scl  
 ##### 38414#       发表于 2015-7-31 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29715713&amp;ptid=98922" target="_blank">suika 发表于 2015-7-31 16:18</a>
@@ -17093,16 +11054,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 这么多话了感觉世界整体格局还是不太清楚，像海军和政府的关系也是才刚知道原来红狗敢和五老头刚正面，罗原来的成员，其他七武海、海军动向、茶会的情况……
 
 
-
-
-
-
-
 -----
 
 ####  流浪的翅膀  
 ##### 38415#       发表于 2015-7-31 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29708094&amp;amp;ptid=98922" target="_blank">少年包工头 发表于 2015-7-30 23:09</a>
@@ -17110,16 +11065,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 笑惨了
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38416#       发表于 2015-7-31 19:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29717432&amp;ptid=98922" target="_blank">scl 发表于 2015-7-31 18:57</a>
@@ -17135,17 +11084,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 至于其他七武海，除了目前身份还不明的那位，其他人一时半会都没什么搞大新闻的动力和能力吧
 
 
-
-
-
-
-
 -----
 
 ####  饭太稀  
 ##### 38417#       发表于 2015-7-31 21:11
-
-
 
 
 凯多：听说政府要宰白胡子的干儿子，我这时候去找他的茬，说不定他在气头上爆个种能把我打死，这就去试试<img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
@@ -17165,27 +11107,16 @@ Q8：挑明了说，之后的OP值得期待吗？
 五老星：<img src="https://static.saraba1st.com/image/smiley/face/74.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  门田京平  
 ##### 38418#       发表于 2015-7-31 21:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29717286&amp;ptid=98922" target="_blank">地狱满员 发表于 2015-7-31 18:41</a>
 
 现在谁还敢说莫里亚是最弱七武海？和这种东西分庭抗礼了很久啊啊啊啊。</blockquote>
 明明是新世界被打出心理阴影结果窝在死亡海域从英俊男宅成大胖子啊<img src="https://static.saraba1st.com/image/smiley/normal/052.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17194,16 +11125,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38419#       发表于 2015-7-31 21:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29717286&amp;ptid=98922" target="_blank">地狱满员 发表于 2015-7-31 18:41</a>
 
 现在谁还敢说莫里亚是最弱七武海？和这种东西分庭抗礼了很久啊啊啊啊。</blockquote>
 明明是新世界被打出心理阴影结果窝在死亡海域从英俊男宅成大胖子啊<img src="https://static.saraba1st.com/image/smiley/normal/052.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17212,22 +11137,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38420#       发表于 2015-7-31 21:22
 
 
-
-
 好想看凯多和莫利亚俩逗逼的互动，老莫快出来啊，熊莫没什么指望了，我要凯莫cp！
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38421#       发表于 2015-7-31 21:40
-
-
 
 
 红发：听说基德他们联盟了要搞我。给我个面子，你去教训一下他们吧
@@ -17238,25 +11154,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 看到一个这个评论<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  尸良  
 ##### 38422#       发表于 2015-7-31 21:41
 
 
-
-
 凯多会不会是奇美拉果实    百兽
-
-
-
-
-
 
 
 -----
@@ -17265,16 +11169,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38423#       发表于 2015-7-31 21:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29717286&amp;ptid=98922" target="_blank">地狱满员 发表于 2015-7-31 18:41</a>
 
 现在谁还敢说莫里亚是最弱七武海？和这种东西分庭抗礼了很久啊啊啊啊。</blockquote>
 打了10年弟兄死光了才发现对方是个血条锁定的货，心灰意冷+因恨生爱，回去做了个放大版的凯多僵尸打算回来反杀，结果先被草帽轮顶上被甚平轮之后被明哥轮，莫利亚吃得其实是悲剧果实吧
-
-
-
-
-
 
 
 -----
@@ -17283,16 +11181,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38424#       发表于 2015-7-31 21:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29718829&amp;ptid=98922" target="_blank">zerock 发表于 2015-7-31 21:42</a>
 
 打了10年弟兄死光了才发现对方是个血条锁定的货，心灰意冷+因恨生爱，回去做了个放大版的凯多僵尸打算回 ...</blockquote>
 我觉得他最悲情的地方是反正同伴都会死还不如用僵尸当同伴，这时才发现他真是个重感情的人
-
-
-
-
-
 
 
 -----
@@ -17301,18 +11193,11 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38425#       发表于 2015-7-31 22:44
 
 
-
-
 下次大事件的**估计就是凯撒，这次山治带着凯撒从大妈部下手里逃脱，上了卓武岛后又掳走凯多要找的武士和妹子，大妈部下追山治途中遇见凯多部队，大人物总要面子的，为了抢山治大打出手引出两个四皇，
 
 新星三人组战败被凯多带回卓武，趁着路飞山治会合，大妈凯多交战的时机越狱与草帽结盟，此时时间也到了藤虎缉拿德岛英雄的时候，一路追到了卓武，由于和赤犬撕破脸逼的元帅赤犬亲自前往大将藤虎栖身地，与此同时黑胡子团发现了奄奄一息的巴基斯，弃杀后前往
 
 卓武浑水摸鱼，途中遭遇萨博部队，干掉后带着萨博人质。。。。。然后，然后。。。。。。。。。。。。。。。。
-
-
-
-
-
 
 
 -----
@@ -17323,7 +11208,6 @@ Q8：挑明了说，之后的OP值得期待吗？
 提示: 该帖被管理员或版主屏蔽
 
 
-
 -----
 
 ####  门田京平  
@@ -17332,21 +11216,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 提示: 该帖被管理员或版主屏蔽
 
 
-
 -----
 
 ####  刹那の劍  
 ##### 38428#       发表于 2015-7-31 23:25
 
 
-
-
 有人觉得山治和娜美的画风完全不一样了吗……感觉不是尾田画的，还我娜美啊。。。<img src="https://static.saraba1st.com/image/smiley/face/14.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17355,15 +11231,9 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38429#       发表于 2015-8-1 00:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29719793&amp;ptid=98922" target="_blank">刹那の劍 发表于 2015-7-31 23:25</a>
 有人觉得山治和娜美的画风完全不一样了吗……感觉不是尾田画的，还我娜美啊。。。 ...</blockquote>
 反正扉页娜美看上去是最前几卷的原始娜美，
-
-
-
-
-
 
 
 -----
@@ -17372,24 +11242,16 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38430#       发表于 2015-8-1 00:43
 
 
-
-
 这话山治那边的情节完全看不懂。。。
 
 
 期待山治做个甜点收复大妈的情节也失败了。。。哎
 
 
-
-
-
-
-
 -----
 
 ####  chloerei  
 ##### 38431#       发表于 2015-8-1 01:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29720564&amp;ptid=98922" target="_blank">猎户座 发表于 2015-8-1 00:43</a>
@@ -17401,16 +11263,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 被大妈看中了被强留下怎么办……
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 38432#       发表于 2015-8-1 01:59
-
 
 
 <blockquote>引用第38482楼嘲风于2015-07-31 17:09发表的  :
@@ -17424,16 +11280,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ----发送自 [Sony D5803,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 38433#       发表于 2015-8-1 02:01
-
 
 
 <blockquote>引用第38488楼饭太稀于2015-07-31 21:11发表的  :
@@ -17445,25 +11295,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ----发送自 [Sony D5803,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  muderx  
 ##### 38434#       发表于 2015-8-1 02:27
 
 
-
-
 以厨子的手艺，被大妈看中的可能性很大
-
-
-
-
-
 
 
 -----
@@ -17472,17 +11310,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38435#       发表于 2015-8-1 09:01
 
 
-
-
 凯多这个很有可能不是能力者，这样四皇里至少一半都不是能力者了，越来越弱化果实能力的感觉。
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -17491,14 +11322,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38436#       发表于 2015-8-1 09:25
 
 
-
-
 凯多真的这么喜欢做死的话很难想象顶上战争时候他是怎么被红发给说回去的…好奇尾田以后会怎么圆这个
-
-
-
-
-
 
 
 -----
@@ -17507,14 +11331,7 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38437#       发表于 2015-8-1 11:21
 
 
-
-
 四皇应该是三系果实各一再加红发无果实
-
-
-
-
-
 
 
 -----
@@ -17523,16 +11340,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38438#       发表于 2015-8-2 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29723303&amp;ptid=98922" target="_blank">584520184 发表于 2015-8-1 11:21</a>
 
 四皇应该是三系果实各一再加红发无果实</blockquote>
 凯多要是有果实就没法到处作死了吧 ，跳进海里就废了
-
-
-
-
-
 
 
 -----
@@ -17541,16 +11352,10 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38439#       发表于 2015-8-2 13:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29731980&amp;ptid=98922" target="_blank">65535 发表于 2015-8-2 11:41</a>
 
 凯多要是有果实就没法到处作死了吧 ，跳进海里就废了</blockquote>
 万一尾田改设定呢.....
-
-
-
-
-
 
 
 -----
@@ -17559,21 +11364,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 ##### 38440#       发表于 2015-8-2 13:11
 
 
-
-
 话说OP在S1没什么人撕CP啊，隔壁火学撕得飞起
-
-
-
-
-
 
 
 -----
 
 ####  redsouris  
 ##### 38441#       发表于 2015-8-2 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29732664&amp;ptid=98922" target="_blank">meforice 发表于 2015-8-2 13:02</a>
@@ -17584,25 +11381,13 @@ Q8：挑明了说，之后的OP值得期待吗？
 哪怕不会游泳直接沉底还不是淹不死……
 
 
-
-
-
-
-
 -----
 
 ####  刹那の劍  
 ##### 38442#       发表于 2015-8-2 14:19
 
 
-
-
 OP为啥要撕cp这种无聊的玩意
-
-
-
-
-
 
 
 -----
@@ -17611,14 +11396,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38443#       发表于 2015-8-3 13:48
 
 
-
-
 火影那是没得看了好不好。。。剧情太无感了。。。只剩下一点残留的热情，只好让女人拿来谈资了。。
-
-
-
-
-
 
 
 -----
@@ -17627,16 +11405,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38444#       发表于 2015-8-3 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29732727&amp;ptid=98922" target="_blank">啊三王 发表于 2015-8-2 13:11</a>
 
 话说OP在S1没什么人撕CP啊，隔壁火学撕得飞起</blockquote>
 海贼看的腐女少吧，火学腐女太多。
-
-
-
-
-
 
 
 -----
@@ -17645,16 +11417,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38445#       发表于 2015-8-3 16:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29720467&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-8-1 00:28</a>
 
 反正扉页娜美看上去是最前几卷的原始娜美，</blockquote>
 原始娜美可是平的
-
-
-
-
-
 
 
 -----
@@ -17663,14 +11429,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38446#       发表于 2015-8-3 16:16
 
 
-
-
 火影垃圾
-
-
-
-
-
 
 
 -----
@@ -17679,17 +11438,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38447#       发表于 2015-8-6 01:18
 
 
-
-
 战国出场下期休刊
 
 
 ----发送自 [Sony D5803,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -17698,15 +11450,9 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38448#       发表于 2015-8-6 06:59
 
 
-
  本帖最后由 Nidhoggr 于 2015-8-6 07:01 编辑 
 
 明哥这人，首先这人绝对是个疯子，但是就做老大来讲，算是目前海贼反派里对自己人（仅限核心干部）最好的了吧，非主角团恐怕仅次于白胡子，穿越进海贼世界对实力自信又不想做好人的话（当然，为了大几率挤进核心干部群最重要的还要是个中二病重症患者），至少目下为止跟明哥混算是不错的出路
-
-
-
-
-
 
 
 -----
@@ -17715,16 +11461,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38449#       发表于 2015-8-6 11:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29771866&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-8-6 06:59</a>
 
 明哥这人，首先这人绝对是个疯子，但是就做老大来讲，算是目前海贼反派里对自己人（仅限核心干部）最好的了 ...</blockquote>
 那也得明哥看中才行。君不见贝拉米的下场？更不用说被变玩具作战的炮灰们了
-
-
-
-
-
 
 
 -----
@@ -17733,14 +11473,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38450#       发表于 2015-8-6 13:25
 
 
-
-
 我觉得路飞会想给居鲁士正名？
-
-
-
-
-
 
 
 -----
@@ -17749,14 +11482,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38451#       发表于 2015-8-6 13:38
 
 
-
-
 战国终于也变成逗逼了，是因为卡普不在了所以由他来扮演没头脑的角色了吗
-
-
-
-
-
 
 
 -----
@@ -17765,14 +11491,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38452#       发表于 2015-8-6 13:43
 
 
-
-
 藤虎最后睁眼了？
-
-
-
-
-
 
 
 -----
@@ -17781,16 +11500,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38453#       发表于 2015-8-6 13:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29774700&amp;ptid=98922" target="_blank">athena_1982 发表于 2015-8-6 11:56</a>
 
 那也得明哥看中才行。君不见贝拉米的下场？更不用说被变玩具作战的炮灰们了 ...</blockquote>
 所以说是要有实力“有病”以保证大几率挤进核心干部群，挤不进的话那还是趁早跳槽吧<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17799,14 +11512,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38454#       发表于 2015-8-6 14:01
 
 
-
-
 我觉得是跟妹子告别 类似阿拉巴斯坦告别薇薇公主
-
-
-
-
-
 
 
 -----
@@ -17815,14 +11521,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38455#       发表于 2015-8-6 14:05
 
 
-
-
 能一窥滕虎的全力么？
-
-
-
-
-
 
 
 -----
@@ -17831,24 +11530,16 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38456#       发表于 2015-8-6 14:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776002&amp;ptid=98922" target="_blank">PATLABOR 发表于 2015-8-6 14:05</a>
 
 能一窥滕虎的全力么？</blockquote>
 全力放水，全力送别
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38457#       发表于 2015-8-6 14:59
-
-
 
 
 卡普还是没出场
@@ -17858,25 +11549,13 @@ OP为啥要撕cp这种无聊的玩意
 所以最后是藤虎抓不到人但是前辈出面，所以红狗子也不好发作的处理么
 
 
-
-
-
-
-
 -----
 
 ####  日卡x日香  
 ##### 38458#       发表于 2015-8-6 15:07
 
 
-
-
 战国一不当元帅整个人都卡普化了
-
-
-
-
-
 
 
 -----
@@ -17885,22 +11564,15 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38459#       发表于 2015-8-6 15:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776002&amp;ptid=98922" target="_blank">PATLABOR 发表于 2015-8-6 14:05</a>
 能一窥滕虎的全力么？</blockquote>
 全力是指演技啊，毕竟大督察大参谋打分
-
-
-
-
-
 
 
 -----
 
 ####  faust123  
 ##### 38460#       发表于 2015-8-6 15:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776489&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-6 14:59</a>
@@ -17913,27 +11585,16 @@ OP为啥要撕cp这种无聊的玩意
 战国之前铁血冷面那是身份原因
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 38461#       发表于 2015-8-6 15:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776652&amp;ptid=98922" target="_blank">恒温死神 发表于 2015-8-6 15:14</a>
 
 全力是指演技啊，毕竟大督察大参谋打分</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17942,16 +11603,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38462#       发表于 2015-8-6 15:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776652&amp;ptid=98922" target="_blank">恒温死神 发表于 2015-8-6 15:14</a>
 
 全力是指演技啊，毕竟大督察大参谋打分</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17960,16 +11615,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38463#       发表于 2015-8-6 15:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776652&amp;ptid=98922" target="_blank">恒温死神 发表于 2015-8-6 15:14</a>
 
 全力是指演技啊，毕竟大督察大参谋打分</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17978,14 +11627,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38464#       发表于 2015-8-6 15:21
 
 
-
-
 战国：你这个演技有我当年一半的风采<img src="https://static.saraba1st.com/image/smiley/zdl/156.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17994,14 +11636,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38465#       发表于 2015-8-6 15:25
 
 
-
-
 个人满不爽贝拉米洗白的
-
-
-
-
-
 
 
 -----
@@ -18010,16 +11645,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38466#       发表于 2015-8-6 15:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776704&amp;ptid=98922" target="_blank">我不太会吹 发表于 2015-8-6 15:21</a>
 
 战国：你这个演技有我当年一半的风采</blockquote>
 233
-
-
-
-
-
 
 
 -----
@@ -18028,21 +11657,13 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38467#       发表于 2015-8-6 15:47
 
 
-
-
 想看看鹤老婆的能力
-
-
-
-
-
 
 
 -----
 
 ####  巴尔库夫  
 ##### 38468#       发表于 2015-8-6 15:50
-
 
 
  本帖最后由 巴尔库夫 于 2015-8-6 15:56 编辑 
@@ -18056,16 +11677,10 @@ OP为啥要撕cp这种无聊的玩意
 战国、卡普、鹤；他们是同期的，从最底层的小兵一路晋升上来，这还不是至交
 
 
-
-
-
-
-
 -----
 
 ####  云中君  
 ##### 38469#       发表于 2015-8-6 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776757&amp;ptid=98922" target="_blank">icecry 发表于 2015-8-6 15:25</a>
@@ -18074,16 +11689,10 @@ OP为啥要撕cp这种无聊的玩意
 说不定还会成为第十人呢。。。。
 
 
-
-
-
-
-
 -----
 
 ####  kuroro  
 ##### 38470#       发表于 2015-8-6 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776704&amp;ptid=98922" target="_blank">我不太会吹 发表于 2015-8-6 15:21</a>
@@ -18092,16 +11701,10 @@ OP为啥要撕cp这种无聊的玩意
 233333333恨不能鹅
 
 
-
-
-
-
-
 -----
 
 ####  蓝色的眷恋  
 ##### 38471#       发表于 2015-8-6 16:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29776968&amp;ptid=98922" target="_blank">水色晨星 发表于 2015-8-6 15:47</a>
@@ -18110,26 +11713,14 @@ OP为啥要撕cp这种无聊的玩意
 鹤的能力巅峰上出来过，类似洗衣，能把人洗成衬衫晾起来。
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 38472#       发表于 2015-8-6 17:09
 
 
-
-
 当年战国的头发胡须是为了威严仪表染色上去的吧，现在不用担责任一身轻无所谓了
 要不然当时同期的老人船医，雷利，卡普，鹤等全是白发，只有战国是黑发那也太厉害了
-
-
-
-
-
 
 
 -----
@@ -18138,14 +11729,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38473#       发表于 2015-8-6 17:36
 
 
-
-
 卡普：还好我不当元帅了，做人最重要是开心，我肚子饿了，给我下碗面吃。
-
-
-
-
-
 
 
 -----
@@ -18154,14 +11738,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38474#       发表于 2015-8-6 18:23
 
 
-
-
 简直搞不懂为啥要洗白贝拉米，空岛之前就是个混混，梦想是当上火鸡的核心干部给火鸡卖命，现在火鸡倒台了就给洗白？看来下面还有戏份啊
-
-
-
-
-
 
 
 -----
@@ -18170,14 +11747,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38475#       发表于 2015-8-6 19:03
 
 
-
-
 第10人是蕾贝卡妥妥的
-
-
-
-
-
 
 
 -----
@@ -18186,14 +11756,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38476#       发表于 2015-8-6 20:05
 
 
-
-
 别动不动就第十人好不好,最后一个应该必然是和主线剧情有很深关联的人物
-
-
-
-
-
 
 
 -----
@@ -18202,14 +11765,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38477#       发表于 2015-8-6 20:26
 
 
-
-
 战国：不在位子上了可以还原本性了<img src="https://static.saraba1st.com/image/smiley/face/10.gif" referrerpolicy="no-referrer">。。 卡普死哪去了
-
-
-
-
-
 
 
 -----
@@ -18218,14 +11774,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38478#       发表于 2015-8-6 20:28
 
 
-
-
 路飞妥妥的回去找蕾贝卡
-
-
-
-
-
 
 
 -----
@@ -18234,15 +11783,9 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38479#       发表于 2015-8-6 20:57
 
 
-
 <blockquote>巴尔库夫 发表于 2015-8-6 20:05
 别动不动就第十人好不好,最后一个应该必然是和主线剧情有很深关联的人物</blockquote>
 德岛明显是对应阿拉巴斯坦的，阿拉巴斯坦公主最后没上船，那路飞这次拐走德岛的公主也是情理之中。
-
-
-
-
-
 
 
 -----
@@ -18251,13 +11794,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38480#       发表于 2015-8-6 21:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">不知道罗哪天想不通了会不会去找战国质问特拉松的事情
-
-
-
-
-
 
 
 -----
@@ -18266,16 +11803,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38481#       发表于 2015-8-6 21:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29780041&amp;ptid=98922" target="_blank">肩上的乌鸦 发表于 2015-8-6 20:57</a>
 
 德岛明显是对应阿拉巴斯坦的，阿拉巴斯坦公主最后没上船，那路飞这次拐走德岛的公主也是情理之中。 ...</blockquote>
 美女剑豪拿着肉过来了！！
-
-
-
-
-
 
 
 -----
@@ -18284,14 +11815,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38482#       发表于 2015-8-6 21:36
 
 
-
-
 罗到底算不算上船了？
-
-
-
-
-
 
 
 -----
@@ -18300,14 +11824,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38483#       发表于 2015-8-6 21:43
 
 
-
-
 这篇蕾贝卡和贝拉米的角色塑造都有很多人黑的吧，竟然会有人觉得会让这俩上船？！
-
-
-
-
-
 
 
 -----
@@ -18316,16 +11833,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38484#       发表于 2015-8-6 21:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29780440&amp;ptid=98922" target="_blank">angelooo 发表于 2015-8-6 21:43</a>
 
 这篇蕾贝卡和贝拉米的角色塑造都有很多人黑的吧，竟然会有人觉得会让这俩上船？！ ...</blockquote>
 尺寸大即是正义
-
-
-
-
-
 
 
 -----
@@ -18334,14 +11845,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38485#       发表于 2015-8-6 22:02
 
 
-
-
 我觉得贝拉米最后会和脑残粉一样成为路飞旗下海贼团之一，为将来成为四皇做准备
-
-
-
-
-
 
 
 -----
@@ -18350,22 +11854,13 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38486#       发表于 2015-8-6 22:08
 
 
-
-
 公主上船基本不可能，人家和薇薇一样，爱这个国家大于一切。贝拉米撑死做路飞的朋友，和冯酱一样，该牺牲自己时牺牲自己，但不会加入，以后有机会可能会作为草帽团非官方第二舰队出现。
-
-
-
-
-
 
 
 -----
 
 ####  莉洁莉特  
 ##### 38487#       发表于 2015-8-6 23:53
-
-
 
 
 贝拉米那个傻逼，还上船……
@@ -18375,17 +11870,10 @@ OP为啥要撕cp这种无聊的玩意
 —— 来自 Sony D6503, Android 5.0.2
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38488#       发表于 2015-8-7 00:12
-
-
 
 
 为什么现在还会有人想有人上船这件事?明显以后的都是那种同盟或者小弟的关系了。再说，没经历两年这个坎，融不进去的。
@@ -18394,16 +11882,10 @@ OP为啥要撕cp这种无聊的玩意
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  gundamfdk  
 ##### 38489#       发表于 2015-8-7 08:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29780625&amp;ptid=98922" target="_blank">65535 发表于 2015-8-6 22:02</a>
@@ -18412,27 +11894,15 @@ OP为啥要撕cp这种无聊的玩意
 +1，另外我觉得甚平也会以这种方式入团，新太阳海贼团。
 
 
-
-
-
-
-
 -----
 
 ####  箭猪  
 ##### 38490#       发表于 2015-8-7 10:37
 
 
-
-
 第10人绝笔是蕾贝卡
 
 这样尾田只要画2个女角色就能表现3个巨乳美女了！
-
-
-
-
-
 
 
 -----
@@ -18441,16 +11911,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38491#       发表于 2015-8-7 14:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29783306&amp;ptid=98922" target="_blank">gundamfdk 发表于 2015-8-7 08:27</a>
 
 +1，另外我觉得甚平也会以这种方式入团，新太阳海贼团。</blockquote>
 明显不一样，甚平已经受到明确邀请了
-
-
-
-
-
 
 
 -----
@@ -18459,17 +11923,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38492#       发表于 2015-8-7 14:45
 
 
-
-
 甚平都在赶过来和路飞他们会合了
 
 
 ----发送自 [Meizu m2 note,Android 5.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -18478,23 +11935,15 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38493#       发表于 2015-8-16 12:52
 
 
-
-
 补了一下SBS，才发现wt悄悄把老沙的剧情补上了
 
 先加入七武海，之后挑战白胡子惨败，然后才转头去找古代兵器。这么看来所谓老沙的秘密是女人的说法应该不成立了
-
-
-
-
-
 
 
 -----
 
 ####  莫吉  
 ##### 38494#       发表于 2015-8-16 13:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29875450&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-16 12:52</a>
@@ -18508,16 +11957,10 @@ OP为啥要撕cp这种无聊的玩意
 按火鸡的表现能打10个老沙，还是被凯多吓得跟狗一样，老沙是有多不自量力
 
 
-
-
-
-
-
 -----
 
 ####  境宗久  
 ##### 38495#       发表于 2015-8-16 23:46
-
 
 
  本帖最后由 境宗久 于 2015-8-16 23:51 编辑 
@@ -18527,16 +11970,10 @@ OP为啥要撕cp这种无聊的玩意
 下一集动画是科拉松出场的最后一集，演出是剧场版Z和抓心Q娃[del]（以及去年幸充）[/del]的监督长峰达也。
 
 
-
-
-
-
-
 -----
 
 ####  萝卜roto  
 ##### 38496#       发表于 2015-8-17 14:06
-
 
 
 <blockquote>引用第38564楼莫吉于2015-08-16 13:11发表的  :
@@ -18548,16 +11985,10 @@ OP为啥要撕cp这种无聊的玩意
 ----发送自 [Sony D5803,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 38497#       发表于 2015-8-17 14:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29875590&amp;ptid=98922" target="_blank">莫吉 发表于 2015-8-16 13:11</a>
@@ -18570,16 +12001,10 @@ OP为啥要撕cp这种无聊的玩意
 —— 来自 HUAWEI H60-L01, Android 4.4.2
 
 
-
-
-
-
-
 -----
 
 ####  莫吉  
 ##### 38498#       发表于 2015-8-17 15:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29885245&amp;ptid=98922" target="_blank">暗影翔 发表于 2015-8-17 14:47</a>
@@ -18588,16 +12013,10 @@ OP为啥要撕cp这种无聊的玩意
 按照2年时间的战斗力差距，加上1档和4档的攻击力对比，老沙只有被秒的份
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 38499#       发表于 2015-8-17 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29885353&amp;ptid=98922" target="_blank">莫吉 发表于 2015-8-17 15:00</a>
@@ -18614,17 +12033,10 @@ OP为啥要撕cp这种无聊的玩意
 原来本帖也讨论过老沙和艾尼路输，不是输在纯粹实力上，是输给了主角光环，而且op的打斗不是按照龙珠的战斗力大小定输赢。
 
 
-
-
-
-
-
 -----
 
 ####  葛西  
 ##### 38500#       发表于 2015-8-17 16:51
-
-
 
 
 伟大航道后新世界前哪次不是主角光环？
@@ -18638,32 +12050,19 @@ OP为啥要撕cp这种无聊的玩意
 典狱长
 
 
-
-
-
-
-
 -----
 
 ####  qwxbtgb  
 ##### 38501#       发表于 2015-8-17 16:59
 
 
-
-
 我觉得路奇是靠实力。
-
-
-
-
-
 
 
 -----
 
 ####  liangjiami  
 ##### 38502#       发表于 2015-8-18 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29886298&amp;ptid=98922" target="_blank">葛西 发表于 2015-8-17 16:51</a>
@@ -18676,27 +12075,15 @@ OP为啥要撕cp这种无聊的玩意
 等等，典狱长？
 
 
-
-
-
-
-
 -----
 
 ####  费扎里昂  
 ##### 38503#       发表于 2015-8-18 11:41
 
 
-
-
 路奇还好，就输一手不死小强属性，没其他几个那么强的开挂感。（当然可能是因为他本身只是个苦逼动物系不值得开挂）
 
 主角打斗主要靠的是气势，这不是jump系的常识么来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -18705,17 +12092,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38504#       发表于 2015-8-18 13:17
 
 
-
-
 典狱长那路飞不是败的一塌糊涂么= =
 
 
 本周有更新了吧= =最近好多连载网都看不了海贼的连载是为啥
-
-
-
-
-
 
 
 -----
@@ -18724,14 +12104,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38505#       发表于 2015-8-18 13:24
 
 
-
-
 火鸡上阵前已经被罗强行五五开，和老沙那次没法比
-
-
-
-
-
 
 
 -----
@@ -18740,14 +12113,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38506#       发表于 2015-8-19 13:34
 
 
-
-
 这周有漫画吗？
-
-
-
-
-
 
 
 -----
@@ -18756,21 +12122,13 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38507#       发表于 2015-8-19 13:52
 
 
-
-
 鼠绘情报说明天有
-
-
-
-
-
 
 
 -----
 
 ####  FCS-31  
 ##### 38508#       发表于 2015-8-19 14:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29886298&amp;ptid=98922" target="_blank">葛西 发表于 2015-8-17 16:51</a>
@@ -18783,16 +12141,10 @@ OP为啥要撕cp这种无聊的玩意
 根本没打赢典狱长啊，你要说靠着主角光环逃掉了那倒是没错。
 
 
-
-
-
-
-
 -----
 
 ####  森田美位子  
 ##### 38509#       发表于 2015-8-19 14:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29893806&amp;ptid=98922" target="_blank">水千秋 发表于 2015-8-18 13:17</a>
@@ -18804,16 +12156,10 @@ OP为啥要撕cp这种无聊的玩意
 因为腾讯
 
 
-
-
-
-
-
 -----
 
 ####  584520184  
 ##### 38510#       发表于 2015-8-19 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29875450&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-16 12:52</a>
@@ -18824,17 +12170,10 @@ OP为啥要撕cp这种无聊的玩意
 猜得到的 尾田这是坐实了
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 38511#       发表于 2015-8-19 15:00
-
-
 
 
 昨天产生了一个脑洞，藤虎的能力是控制重力，跟萨博对打时，展示过横向重力。
@@ -18844,16 +12183,10 @@ OP为啥要撕cp这种无聊的玩意
 这么看来，金狮子的能力完全被复制了。
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38512#       发表于 2015-8-19 15:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29905159&amp;ptid=98922" target="_blank">暗影翔 发表于 2015-8-19 15:00</a>
@@ -18864,25 +12197,13 @@ OP为啥要撕cp这种无聊的玩意
 不是脑洞，抓走罗的时候就是瞎子和鸟叔一起在众人眼前飞走
 
 
-
-
-
-
-
 -----
 
 ####  巴尔库夫  
 ##### 38513#       发表于 2015-8-19 16:01
 
 
-
-
 瞎子能砸陨石，和金狮子还是有区别的，金狮子的只能飘，不能“沉”
-
-
-
-
-
 
 
 -----
@@ -18891,14 +12212,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38514#       发表于 2015-8-19 16:42
 
 
-
-
 然而金狮子可以对飞起的物体做精密操作，比如剧场版里团灭草帽海贼团的那个扭麻花，这个藤虎就做不到
-
-
-
-
-
 
 
 -----
@@ -18907,14 +12221,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38515#       发表于 2015-8-19 17:37
 
 
-
-
 情报终于出了，ZORO日常迷路
-
-
-
-
-
 
 
 -----
@@ -18923,14 +12230,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38516#       发表于 2015-8-19 23:16
 
 
-
-
 太拖了
-
-
-
-
-
 
 
 -----
@@ -18939,14 +12239,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38517#       发表于 2015-8-19 23:16
 
 
-
-
 厨子继续掉线……
-
-
-
-
-
 
 
 -----
@@ -18955,14 +12248,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38518#       发表于 2015-8-19 23:24
 
 
-
-
 看着要睡着了
-
-
-
-
-
 
 
 -----
@@ -18971,14 +12257,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38519#       发表于 2015-8-19 23:41
 
 
-
-
 话说，罗真的跑去找战国了么...
-
-
-
-
-
 
 
 -----
@@ -18987,21 +12266,13 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38520#       发表于 2015-8-19 23:55
 
 
-
-
 罗八成是去找战国问克拉松的事了。。。这话依旧是各种泪崩，也就结尾好看点
-
-
-
-
-
 
 
 -----
 
 ####  65535  
 ##### 38521#       发表于 2015-8-19 23:57
-
 
 
 <blockquote>葛西 发表于 2015-8-17 16:51
@@ -19014,25 +12285,13 @@ OP为啥要撕cp这种无聊的玩意
 被老麦各种焦作人好不好。。。。还是说开主角光环跑路？
 
 
-
-
-
-
-
 -----
 
 ####  琴音  
 ##### 38522#       发表于 2015-8-20 00:10
 
 
-
-
 过渡回，为什么总说拖？觉得拖就攒个100回再看呗
-
-
-
-
-
 
 
 -----
@@ -19041,14 +12300,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38523#       发表于 2015-8-20 00:25
 
 
-
-
 拖就是拖啊，对话也没有质量。完全没有感动的感觉。
-
-
-
-
-
 
 
 -----
@@ -19057,16 +12309,9 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38524#       发表于 2015-8-20 00:31
 
 
-
-
 很讨厌这种动不动就搞一群误会的人追杀的剧情。
 
 —— 来自 Sony D6503, Android 5.0.2
-
-
-
-
-
 
 
 -----
@@ -19075,16 +12320,9 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38525#       发表于 2015-8-20 00:31
 
 
-
-
 很讨厌这种动不动就搞一群误会的人追杀的剧情。
 
 —— 来自 Sony D6503, Android 5.0.2
-
-
-
-
-
 
 
 -----
@@ -19093,14 +12331,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38526#       发表于 2015-8-20 00:35
 
 
-
-
 这种强行背黑锅的桥段不仅看得很不爽，而且也使得对德雷斯罗萨国民的刻画在本来就已经很支离破碎的情况下变得更加没有血肉。
-
-
-
-
-
 
 
 -----
@@ -19109,16 +12340,9 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38527#       发表于 2015-8-20 00:55
 
 
-
-
 皆大欢喜的结局
 
 比当所谓的“救世主”好多了
-
-
-
-
-
 
 
 -----
@@ -19127,14 +12351,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38528#       发表于 2015-8-20 01:14
 
 
-
-
 最后说辞是公主被四皇草帽掠走，再也没有回来……
-
-
-
-
-
 
 
 -----
@@ -19143,14 +12360,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38529#       发表于 2015-8-20 01:55
 
 
-
-
 好吧，个人认为又是很水的一话，剧情发展毫无新意，现在看海贼一话的时间越来越快了。
-
-
-
-
-
 
 
 -----
@@ -19159,17 +12369,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38530#       发表于 2015-8-20 02:08
 
 
-
-
 这话看得比死神还快   粗扫一下   完全不想知道画了些什么
 
 
 老套路看得心烦
-
-
-
-
-
 
 
 -----
@@ -19178,16 +12381,9 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38531#       发表于 2015-8-20 04:23
 
 
-
-
 只有我看到脑残粉举着横幅领队那张的时候笑了吗
 
 带路党巴托洛米奥，“this way sir！”
-
-
-
-
-
 
 
 -----
@@ -19196,21 +12392,13 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38532#       发表于 2015-8-20 06:35
 
 
-
-
 居鲁士作为这个国家的最高战力，在新世界的环境下还隐居对国家来说其实不好吧，说不定还不是最终解决方案？
-
-
-
-
-
 
 
 -----
 
 ####  我不太会吹  
 ##### 38533#       发表于 2015-8-20 07:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29910151&amp;ptid=98922" target="_blank">琴音 发表于 2015-8-20 00:10</a>
@@ -19228,16 +12416,10 @@ OP为啥要撕cp这种无聊的玩意
 大家都满怀期待等新剧情，结果休刊+逃跑拖了一整集，让人失望
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 38534#       发表于 2015-8-20 08:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29910151&amp;ptid=98922" target="_blank">琴音 发表于 2015-8-20 00:10</a>
@@ -19246,27 +12428,15 @@ OP为啥要撕cp这种无聊的玩意
 连续休刊，上两期连续爆料这期泄气，剧情毫无营养毫无亮点，说拖是给面子，说烂才是真心话。
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 38535#       发表于 2015-8-20 08:56
 
 
-
-
 这话确实拖<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
 
 话说之前居鲁士想要离开女儿的剧情算不算矫情，因为如果没有这样的安排就不会有这一话的剧情了<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19275,16 +12445,10 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38536#       发表于 2015-8-20 09:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29910311&amp;ptid=98922" target="_blank">境宗久 发表于 2015-8-20 00:35</a>
 
 这种强行背黑锅的桥段不仅看得很不爽，而且也使得对德雷斯罗萨国民的刻画在本来就已经很支离破碎的情况下变 ...</blockquote>
 想的现实一点，至少提高了国民的警戒心，毕竟海贼里面还是大坏蛋多
-
-
-
-
-
 
 
 -----
@@ -19293,14 +12457,7 @@ OP为啥要撕cp这种无聊的玩意
 ##### 38537#       发表于 2015-8-20 09:03
 
 
-
-
 LUFFY又被背黑锅
-
-
-
-
-
 
 
 -----
@@ -19309,17 +12466,10 @@ LUFFY又被背黑锅
 ##### 38538#       发表于 2015-8-20 09:05
 
 
-
-
 路飞抱公主跑路这是强行配合七夕嘛<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
 单身狗也想要抱妹子啊<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19328,14 +12478,7 @@ LUFFY又被背黑锅
 ##### 38539#       发表于 2015-8-20 09:08
 
 
-
-
 这个国家的国民简直就是脑瘫，之后被随便哪个海贼团灭了算了，留着简直是拉低世界人民的智商均值
-
-
-
-
-
 
 
 -----
@@ -19344,22 +12487,13 @@ LUFFY又被背黑锅
 ##### 38540#       发表于 2015-8-20 09:34
 
 
-
-
 WT应该少画感情戏
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38541#       发表于 2015-8-20 09:35
-
-
 
 
 说强行背锅的，其实这才是草帽一伙第一次赚到恶名啊
@@ -19369,32 +12503,19 @@ WT应该少画感情戏
 仔细想想草帽一伙作为海贼还真是威慑力不足，虽然实力足够吓住不少人甚至连4米巨汉的谣言都出来了，但是那种作为恶人可以随时对任何人下手的气场还是比较欠缺，除了三刀流偶尔会表露一下。或许这个事情今后会有后续？
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38542#       发表于 2015-8-20 09:44
 
 
-
-
 以前宴会就能浪费一两话吧……多数情况下这宴会也是无聊场……
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38543#       发表于 2015-8-20 09:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29911225&amp;ptid=98922" target="_blank">我不太会吹 发表于 2015-8-20 07:27</a>
@@ -19411,16 +12532,10 @@ WT应该少画感情戏
 当然最后的锅还是要wt自己背，蕾贝卡这人物完全没能带起节奏，整个人物除了长得漂亮基本没什么亮点，结果连萌即正义这条都没能做到，所以收线的一话自然也好看不到哪去
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38544#       发表于 2015-8-20 10:03
-
 
 
  本帖最后由 Nidhoggr 于 2015-8-20 10:12 编辑 
@@ -19432,32 +12547,19 @@ WT应该少画感情戏
 新世界的主要看点还是与四皇的冲突吧，从鱼人岛开始，PH，德岛其实都是过渡，这样可以把他们看成类似阿拉巴斯坦篇的一个超长的过渡中篇
 
 
-
-
-
-
-
 -----
 
 ####  愛言葉  
 ##### 38545#       发表于 2015-8-20 10:22
 
 
-
-
 海贼王也开始往20s看完一话发展了吗，死神是字少，这个是懒得看废话
-
-
-
-
-
 
 
 -----
 
 ####  Krwlng  
 ##### 38546#       发表于 2015-8-20 10:26
-
 
 
  本帖最后由 Krwlng 于 2015-8-20 10:29 编辑 
@@ -19467,27 +12569,15 @@ WT应该少画感情戏
 这一话比较违和的是路飞居然还管这闲事，还是专门脱离大部队跑去管的，以前有过吗
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 38547#       发表于 2015-8-20 10:31
 
 
-
-
 这话就是给公主洗地的，公主懦弱，没实力，和沙国公主鲜明对比，怎么洗？
 
 干脆一弱到底吧，起码能保持一个纯真善良的形象，所以和爹私奔隐居了
-
-
-
-
-
 
 
 -----
@@ -19496,16 +12586,10 @@ WT应该少画感情戏
 ##### 38548#       发表于 2015-8-20 11:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29912214&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-20 09:52</a>
 
 这话的目的明显是给力库王的家事收尾，谁继承公主，老爹怎么办，蕾贝卡要如何选择，捎带着给草帽一伙埋点 ...</blockquote>
 其实士兵先生刻画得挺不错的，回忆也很有感染力，但力库王和公主这SB级别的人物刻画完全掩盖了士兵先生，公主人设跟娜米完全没区别结果当了个重要角色，我真怀疑WT是不是换人了。
-
-
-
-
-
 
 
 -----
@@ -19514,14 +12598,7 @@ WT应该少画感情戏
 ##### 38549#       发表于 2015-8-20 11:12
 
 
-
-
 话说厨子这边掉线多少年了
-
-
-
-
-
 
 
 -----
@@ -19530,14 +12607,7 @@ WT应该少画感情戏
 ##### 38550#       发表于 2015-8-20 11:12
 
 
-
-
 现在区分尾田画的美女的方法只有三种：头发造型（动画还能靠发色）  嘴唇厚度  衣着
-
-
-
-
-
 
 
 -----
@@ -19546,17 +12616,10 @@ WT应该少画感情戏
 ##### 38551#       发表于 2015-8-20 11:15
 
 
-
-
 单脚不用拐棍能站稳?
 
 
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -19565,16 +12628,10 @@ WT应该少画感情戏
 ##### 38552#       发表于 2015-8-20 11:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29913129&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-8-20 11:07</a>
 
 其实士兵先生刻画得挺不错的，回忆也很有感染力，但力库王和公主这SB级别的人物刻画完全掩盖了士兵先生， ...</blockquote>
 现在来看，我觉得累赘卡是WT画崩了，开始从竞技场众奴对她的期待来看，她应该是原订有重量级戏份的，到最后WT可能发现，德岛需要讲的元素以方便给后面与四皇正式放对的铺垫太多了，而本来德岛应该是中长篇的篇幅，累赘卡和士兵又没法分的太开，所以后面只能砍戏
-
-
-
-
-
 
 
 -----
@@ -19583,24 +12640,16 @@ WT应该少画感情戏
 ##### 38553#       发表于 2015-8-20 12:14
 
 
-
-
 蕾贝卡一开始塑造的还可以，在竞技场独自一人面对全王国的痛骂和一大堆高手，靠背水剑法一个个单挑过去，作为一个凡人时髦值还是有的
 
 
 后面不知道为什么突然就变成只会哭的小屁孩了
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 38554#       发表于 2015-8-20 12:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29912023&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-20 09:35</a>
@@ -19615,16 +12664,10 @@ WT应该少画感情戏
 所以作为本作主角，既然背负了D的名号，虽然本人没有统领新的世界的意愿，但是从阿拉巴斯坦、空岛、顶上战争和鱼人岛的戏一直看下来，其实路飞一直在积攒推翻现zf、天龙人，统领建立新的世界的人气和支持者。
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 38555#       发表于 2015-8-20 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29913192&amp;ptid=98922" target="_blank">a7828986 发表于 2015-8-20 11:12</a>
@@ -19633,32 +12676,19 @@ WT应该少画感情戏
 前几话厨子不是出来过么
 
 
-
-
-
-
-
 -----
 
 ####  scl  
 ##### 38556#       发表于 2015-8-20 13:04
 
 
-
-
 这话和上一话搞反顺序了吧
-
-
-
-
-
 
 
 -----
 
 ####  莫吉  
 ##### 38557#       发表于 2015-8-20 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29911732&amp;ptid=98922" target="_blank">icer 发表于 2015-8-20 09:05</a>
@@ -19670,25 +12700,13 @@ WT应该少画感情戏
 日本七夕不是过阳历吗
 
 
-
-
-
-
-
 -----
 
 ####  狼=0=吼  
 ##### 38558#       发表于 2015-8-20 23:54
 
 
-
-
 脑残粉的表情总是这么精彩！一定要上船啊！这么好的队友！
-
-
-
-
-
 
 
 -----
@@ -19697,14 +12715,7 @@ WT应该少画感情戏
 ##### 38559#       发表于 2015-8-21 01:02
 
 
-
-
 因为这个篇章被塑造成各方强者齐聚路飞麾下共同对抗大反派的模式，蕾贝卡作为一个普通人，自然而然就被淹没在一堆强者当中了..
-
-
-
-
-
 
 
 -----
@@ -19713,16 +12724,9 @@ WT应该少画感情戏
 ##### 38560#       发表于 2015-8-21 06:52
 
 
-
-
 讲真蕾贝卡不做公主我真的挺高兴的，紫罗兰更有一个国家的公主该有的气场
 
 这话也算是快刀斩乱麻了，我反而还觉得父女结局仓促了点，当初的回忆杀可是很赚眼泪的
-
-
-
-
-
 
 
 -----
@@ -19731,17 +12735,10 @@ WT应该少画感情戏
 ##### 38561#       发表于 2015-8-21 08:22
 
 
-
-
 这群德岛人从上到下除了居鲁士全都是圣母白眼狼啊，路飞救他们也真是日了狗了，就应该让他们被火鸡草到死才对<img src="https://static.saraba1st.com/image/smiley/face/172.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -19750,14 +12747,7 @@ WT应该少画感情戏
 ##### 38562#       发表于 2015-8-21 08:59
 
 
-
-
 我觉得这话的细节还是有点意思的，海军特别狙击部队在狙击路飞的时候全员昏倒了，还特意说明不是霸王色霸气干的~
-
-
-
-
-
 
 
 -----
@@ -19766,23 +12756,16 @@ WT应该少画感情戏
 ##### 38563#       发表于 2015-8-21 09:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29921613&amp;ptid=98922" target="_blank">丘萤之光 发表于 2015-8-21 08:22</a>
 
 这群德岛人从上到下除了居鲁士全都是圣母白眼狼啊，路飞救他们也真是日了狗了，就应该让他们被火鸡草到死才 ...</blockquote>
 此一时彼一时啊，假如你把恩人请进家里，结果没几天把老婆女儿都拐跑了，也不会乐呵呵说没关系吧……
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38564#       发表于 2015-8-21 10:40
-
 
 
 <blockquote>引用第38632楼dawa1st于2015-08-21 08:59发表的  :
@@ -19794,16 +12777,10 @@ WT应该少画感情戏
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 38565#       发表于 2015-8-21 11:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29922475&amp;ptid=98922" target="_blank">redsouris 发表于 2015-8-21 03:59</a>
@@ -19812,25 +12789,13 @@ WT应该少画感情戏
 关键他们一点都不信任路飞，累赘卡明明是自愿跟路飞走的，结果别人一说是被拐跑就瞬间翻脸，这群逼养的
 
 
-
-
-
-
-
 -----
 
 ####  paren  
 ##### 38566#       发表于 2015-8-21 11:42
 
 
-
-
 那个晕倒，还有意识，我在想，是不是小人干的
-
-
-
-
-
 
 
 -----
@@ -19839,14 +12804,7 @@ WT应该少画感情戏
 ##### 38567#       发表于 2015-8-21 21:36
 
 
-
-
 其实我很好奇为什么昏倒还有意识
-
-
-
-
-
 
 
 -----
@@ -19855,16 +12813,10 @@ WT应该少画感情戏
 ##### 38568#       发表于 2015-8-21 22:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29929394&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-8-21 21:36</a>
 
 其实我很好奇为什么昏倒还有意识</blockquote>
 八成是小人族之类的吧   或者也可能藤虎事先安排过 "到时候都给我装死  让我来"
-
-
-
-
-
 
 
 -----
@@ -19873,16 +12825,10 @@ WT应该少画感情戏
 ##### 38569#       发表于 2015-8-21 22:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29913192&amp;ptid=98922" target="_blank">a7828986 发表于 2015-8-20 11:12</a>
 
 话说厨子这边掉线多少年了</blockquote>
 前两话情报不是说这位出来了么
-
-
-
-
-
 
 
 -----
@@ -19891,21 +12837,13 @@ WT应该少画感情戏
 ##### 38570#       发表于 2015-8-22 06:52
 
 
-
-
 反正我感觉莫名其妙就私奔了，特别是老爸决定离家出走，你原来好歹也是竞技场英雄，找个公主生个娃怎么了？还编个王子的故事。我看这op也是药丸
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38571#       发表于 2015-8-22 07:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29931382&amp;ptid=98922" target="_blank">JC_AR 发表于 2015-8-22 06:52</a>
@@ -19916,16 +12854,10 @@ WT应该少画感情戏
 你看回忆篇里抱孩子还要专门戴手套，说是自己是戴罪之人不能玷污了纯洁，我说你明明都把孩她妈以各种姿势“玷污”过了吧有必要这么纠结吗<img src="https://static.saraba1st.com/image/smiley/nq/001.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  拜拜  
 ##### 38572#       发表于 2015-8-22 08:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29931412&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-22 07:07</a>
@@ -19936,16 +12868,10 @@ WT应该少画感情戏
 也许是被强上的
 
 
-
-
-
-
-
 -----
 
 ####  箭猪  
 ##### 38573#       发表于 2015-8-22 12:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29923565&amp;ptid=98922" target="_blank">丘萤之光 发表于 2015-8-21 11:34</a>
@@ -19959,25 +12885,13 @@ WT应该少画感情戏
 这种剧情，简直是强行喂食。尾田这脑子到底怎么了
 
 
-
-
-
-
-
 -----
 
 ####  ccavfun  
 ##### 38574#       发表于 2015-8-22 13:12
 
 
-
-
 原来大家说尾田江淹才尽我都当笑话，现在看真有几分道理……
-
-
-
-
-
 
 
 -----
@@ -19986,14 +12900,7 @@ WT应该少画感情戏
 ##### 38575#       发表于 2015-8-22 13:18
 
 
-
-
 跪求德岛篇快点结束吧，再也不想看到德雷斯罗萨这么个从上到下全是一帮傻逼的国家了。这个篇章再画下去就要毫无悬念地超越鱼人岛篇成为OP最烂了。
-
-
-
-
-
 
 
 -----
@@ -20002,16 +12909,10 @@ WT应该少画感情戏
 ##### 38576#       发表于 2015-8-22 20:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29933619&amp;ptid=98922" target="_blank">csd 发表于 2015-8-22 13:18</a>
 
 跪求德岛篇快点结束吧，再也不想看到德雷斯罗萨这么个从上到下全是一帮傻逼的国家了。这个篇章再画下去就要 ...</blockquote>
 前一句复议。鱼人岛故事多棒。
-
-
-
-
-
 
 
 -----
@@ -20020,14 +12921,7 @@ WT应该少画感情戏
 ##### 38577#       发表于 2015-8-22 20:48
 
 
-
-
 早就是最烂篇了好么，之前全国人民高呼路飞的名字，跪求路爷站起来给火鸡补刀，然后现在就变成了强抢公主的海贼？你们在斗技场是怎么骂蕾贝卡的大家都记得啊！
-
-
-
-
-
 
 
 -----
@@ -20036,14 +12930,7 @@ WT应该少画感情戏
 ##### 38578#       发表于 2015-8-22 21:32
 
 
-
-
 所以说也别把海贼捧太高了，老老实实看作死火海的一员，也不会有这么多心理落差了来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
@@ -20052,16 +12939,10 @@ WT应该少画感情戏
 ##### 38579#       发表于 2015-8-22 21:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29937083&amp;ptid=98922" target="_blank">费扎里昂 发表于 2015-8-22 21:32</a>
 
 所以说也别把海贼捧太高了，老老实实看作死火海的一员，也不会有这么多心理落差了 ...</blockquote>
 问题是op前50卷真的很不错, 现在落差这么大, 实在是..
-
-
-
-
-
 
 
 -----
@@ -20070,16 +12951,10 @@ WT应该少画感情戏
 ##### 38580#       发表于 2015-8-22 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29936777&amp;ptid=98922" target="_blank">我不太会吹 发表于 2015-8-22 20:48</a>
 
 早就是最烂篇了好么，之前全国人民高呼路飞的名字，跪求路爷站起来给火鸡补刀，然后现在就变成了强抢公主的 ...</blockquote>
 感情戏就不要在意这么多了，都和明哥大干了一场还不满么。说不定就是路飞揍飞的最后一个七武海，鹰眼肯定得交给索隆，顶多剩一个新上任的还不知道是谁的那个七武海给路飞揍
-
-
-
-
-
 
 
 -----
@@ -20088,16 +12963,10 @@ WT应该少画感情戏
 ##### 38581#       发表于 2015-8-22 22:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29937083&amp;ptid=98922" target="_blank">费扎里昂 发表于 2015-8-22 15:32</a>
 
 所以说也别把海贼捧太高了，老老实实看作死火海的一员，也不会有这么多心理落差了 ...</blockquote>
 邮局港剧，OP顶上之前跟之后完全是两部漫画
-
-
-
-
-
 
 
 -----
@@ -20106,14 +12975,7 @@ WT应该少画感情戏
 ##### 38582#       发表于 2015-8-22 22:21
 
 
-
-
 这一群叉烧<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20122,16 +12984,9 @@ WT应该少画感情戏
 ##### 38583#       发表于 2015-8-22 22:25
 
 
-
-
 为什么刚刚前几话没有这么多药丸党，也是切来切去的镜头，要打不打的走向。
 
 而且在少年漫画里能这么深刻揭露底层人民的不要脸是多么难能可贵啊～
-
-
-
-
-
 
 
 -----
@@ -20140,14 +12995,7 @@ WT应该少画感情戏
 ##### 38584#       发表于 2015-8-22 23:57
 
 
-
-
 新剧场版制作决定，明年夏公开
-
-
-
-
-
 
 
 -----
@@ -20156,16 +13004,10 @@ WT应该少画感情戏
 ##### 38585#       发表于 2015-8-23 00:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29938314&amp;ptid=98922" target="_blank">境宗久 发表于 2015-8-22 23:57</a>
 
 新剧场版制作决定，明年夏公开</blockquote>
 好像快4、5年没出剧场版了吧
-
-
-
-
-
 
 
 -----
@@ -20174,14 +13016,7 @@ WT应该少画感情戏
 ##### 38586#       发表于 2015-8-23 09:05
 
 
-
-
 分神做新剧场版漫画又要更烂了怎么办！
-
-
-
-
-
 
 
 -----
@@ -20190,23 +13025,16 @@ WT应该少画感情戏
 ##### 38587#       发表于 2015-8-23 09:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29939791&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-8-23 09:05</a>
 
 分神做新剧场版漫画又要更烂了怎么办！</blockquote>
 还能更烂吗！
 
 
-
-
-
-
-
 -----
 
 ####  Rockchan  
 ##### 38588#       发表于 2015-8-23 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29912023&amp;amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-20 09:35</a>
@@ -20216,26 +13044,15 @@ WT应该少画感情戏
 力库王可以負責解釋，在房間的所有人也知道發洩了甚麼事，即使不能說她跟老爸跑了，說她不想現在當公主，想遊歷一下也可以。
 
 
-
-
-
-
-
 -----
 
 ####  Rockchan  
 ##### 38589#       发表于 2015-8-23 09:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29922475&amp;amp;ptid=98922" target="_blank">redsouris 发表于 2015-8-21 09:59</a>
 此一时彼一时啊，假如你把恩人请进家里，结果没几天把老婆女儿都拐跑了，也不会乐呵呵说没关系吧…… ...</blockquote>
 問題是力库王知道詳情，而不知詳情的路人想也不想便把路飛打成惡人，他們不能去想其實她是跟路飛私奔嗎？
-
-
-
-
-
 
 
 -----
@@ -20244,15 +13061,9 @@ WT应该少画感情戏
 ##### 38590#       发表于 2015-8-23 09:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29923565&amp;amp;ptid=98922" target="_blank">丘萤之光 发表于 2015-8-21 11:34</a>
 关键他们一点都不信任路飞，累赘卡明明是自愿跟路飞走的，结果别人一说是被拐跑就瞬间翻脸，这群逼养的 ...</blockquote>
 在她說出要跟路飛跑前，路飛只是單單在窗邊出現，侍女們便一副看見蟑螂的厭惡樣，連嫌棄的話也直接在路飛面前說出來。路飛才剛救了他們，也沒幹甚麼壞事時，只是露一下臉便被厭惡成這樣，德島的人真是翻臉比翻書快，如此忘恩負義的一國人民在 ACG 界也真是難見。
-
-
-
-
-
 
 
 -----
@@ -20261,16 +13072,10 @@ WT应该少画感情戏
 ##### 38591#       发表于 2015-8-23 09:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29939881&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-8-23 09:23</a>
 
 問題是力库王知道詳情，而不知詳情的路人想也不想便把路飛打成惡人，他們不能去想其實她是跟路飛私奔嗎？ ...</blockquote>
 你可以关注一下社会新闻，不明真相的人当然选择自己喜欢的关于事态的版本。德岛民众是不是很恶心，这就对了啊，真实写照
-
-
-
-
-
 
 
 -----
@@ -20279,22 +13084,15 @@ WT应该少画感情戏
 ##### 38592#       发表于 2015-8-23 10:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=29940044&amp;amp;ptid=98922" target="_blank">cdfjg 发表于 2015-8-23 09:53</a>
 你可以关注一下社会新闻，不明真相的人当然选择自己喜欢的关于事态的版本。德岛民众是不是很恶心，这就对 ...</blockquote>
 你如果真的有關注社會新聞，便應知一般人喜歡的事態便是「英雄美女私奔」，跟戀情有關的八卦新聞，而不是以全城共識的方式去相信剛剛拿命救了自己的人一定是惡人。除非那國家的人全體也只懂狗眼看人低，否則哪個社會出現連半點猶豫或懷疑也沒有，便理所當然也全城響應地把捨命英雄打成惡人的情況？
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38593#       发表于 2015-8-23 12:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29939870&amp;ptid=98922" target="_blank">Rockchan 发表于 2015-8-23 09:21</a>
@@ -20307,16 +13105,10 @@ WT应该少画感情戏
 这一国的人都这么圣母，能在新世界活到现在也真是剧情需要了
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 38594#       发表于 2015-8-23 13:14
-
 
 
 <blockquote>影流之主 发表于 2015-8-23 12:53
@@ -20326,32 +13118,19 @@ WT应该少画感情戏
 联系竞技场只能说标准奇怪。德岛这块地方的设置本身就很剧需了。这篇章路线多，按现在看，本地这块的前后没什么区别。
 
 
-
-
-
-
-
 -----
 
 ####  基斯保罗  
 ##### 38595#       发表于 2015-8-23 16:01
 
 
-
-
 日本作品一向把民众描写成狭隘自私愚昧的性格，看看黑泽明的七武士里面的农民吧
-
-
-
-
-
 
 
 -----
 
 ####  箭猪  
 ##### 38596#       发表于 2015-8-23 16:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29942853&amp;ptid=98922" target="_blank">基斯保罗 发表于 2015-8-23 16:01</a>
@@ -20372,25 +13151,13 @@ WT应该少画感情戏
 况且民众傻逼也算了，力库王这心怀天下拯救众生为自任吧？他也不出来说一说？
 
 
-
-
-
-
-
 -----
 
 ####  李剡s  
 ##### 38597#       发表于 2015-8-23 16:44
 
 
-
-
 力库王和蕾贝卡还可以，要是让你被全国人骂十年你肯定不会还保护他们
-
-
-
-
-
 
 
 -----
@@ -20399,21 +13166,13 @@ WT应该少画感情戏
 ##### 38598#       发表于 2015-8-25 14:12
 
 
-
-
 顶上之战之后的剧情的确烂的可以了
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 38599#       发表于 2015-8-25 14:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29943073&amp;ptid=98922" target="_blank">箭猪 发表于 2015-8-23 16:30</a>
@@ -20424,16 +13183,10 @@ WT应该少画感情戏
 事情才发生几分钟，反应这么快？
 
 
-
-
-
-
-
 -----
 
 ####  redsouris  
 ##### 38600#       发表于 2015-8-25 15:42
-
 
 
  本帖最后由 redsouris 于 2015-8-25 15:59 编辑 
@@ -20443,25 +13196,13 @@ WT应该少画感情戏
 说大家都是在演戏，因为这样海军就不能让他们背个包庇海贼的罪名了他们只是“被邪恶的海贼一时欺骗”而已
 
 
-
-
-
-
-
 -----
 
 ####  巴托洛米奥  
 ##### 38601#       发表于 2015-8-25 17:07
 
 
-
-
 我觉得我出场以后的剧情都挺好的。。。你们不要这样<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20470,23 +13211,16 @@ WT应该少画感情戏
 ##### 38602#       发表于 2015-8-25 17:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29964165&amp;ptid=98922" target="_blank">巴托洛米奥 发表于 2015-8-25 17:07</a>
 
 我觉得我出场以后的剧情都挺好的。。。你们不要这样</blockquote>
 脑残粉，请问你的实力能否达到超新星的平均水准<img src="https://static.saraba1st.com/image/smiley/normal/082.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  83913536  
 ##### 38603#       发表于 2015-8-25 23:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29963205&amp;ptid=98922" target="_blank">redsouris 发表于 2015-8-25 15:42</a>
@@ -20497,32 +13231,19 @@ WT应该少画感情戏
 这德岛人民的智商波动略大...
 
 
-
-
-
-
-
 -----
 
 ####  JC_AR  
 ##### 38604#       发表于 2015-8-25 23:49
 
 
-
-
 我宁可相信尾田画完顶上失踪了或是死了，之后都是助手脑补，也不要这样的op啊
-
-
-
-
-
 
 
 -----
 
 ####  巴托洛米奥  
 ##### 38605#       发表于 2015-8-26 00:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29964374&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-8-25 17:25</a>
@@ -20534,25 +13255,13 @@ WT应该少画感情戏
 当然藤虎这种就算了。。。
 
 
-
-
-
-
-
 -----
 
 ####  karma  
 ##### 38606#       发表于 2015-8-26 07:30
 
 
-
-
 鼠绘被和谐了，你们一般是在哪看的熟肉？
-
-
-
-
-
 
 
 -----
@@ -20561,21 +13270,13 @@ WT应该少画感情戏
 ##### 38607#       发表于 2015-8-26 10:36
 
 
-
-
 10月3号魔都海贼音乐会有人去吗~
-
-
-
-
-
 
 
 -----
 
 ####  千叶铁矢  
 ##### 38608#       发表于 2015-8-26 11:40
-
 
 
 <blockquote>引用第38676楼karma于2015-08-26 07:30发表的  :
@@ -20587,16 +13288,10 @@ WT应该少画感情戏
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38609#       发表于 2015-8-26 12:29
-
 
 
 <blockquote>引用第38676楼karma于2015-08-26 07:30发表的  :
@@ -20608,17 +13303,10 @@ WT应该少画感情戏
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  暗影翔  
 ##### 38610#       发表于 2015-8-27 12:22
-
-
 
 
 还没人贴啊
@@ -20632,18 +13320,10 @@ WT应该少画感情戏
 <img src="http://imgsrc.baidu.com/forum/w%3D580%3B/sign=f8d3ce88292eb938ec6d7afae5598435/9d82d158ccbf6c812c3ee181ba3eb13533fa404a.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 38611#       发表于 2015-8-27 12:40
-
-
 
 
 路飞一拳打飞藤虎
@@ -20656,25 +13336,13 @@ WT应该少画感情戏
 拳西：被作者忘记是很正常的，你开不开心啊，下来一起喝酒
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 38612#       发表于 2015-8-27 13:18
 
 
-
-
 罗居然跑去和战国聊天，，，，
-
-
-
-
-
 
 
 -----
@@ -20683,16 +13351,10 @@ WT应该少画感情戏
 ##### 38613#       发表于 2015-8-27 13:22
 
 
-
 <img src="http://imgsrc.baidu.com/forum/pic/item/cfd7828ba61ea8d35a4f4b6e910a304e251f581c.jpg" referrerpolicy="no-referrer">
 
 
 略霸气啊...
-
-
-
-
-
 
 
 -----
@@ -20701,14 +13363,7 @@ WT应该少画感情戏
 ##### 38614#       发表于 2015-8-27 13:22
 
 
-
-
 战国居然没有抓罗还一起聊天……
-
-
-
-
-
 
 
 -----
@@ -20717,14 +13372,7 @@ WT应该少画感情戏
 ##### 38615#       发表于 2015-8-27 13:33
 
 
-
-
 这话水准回来了，战国的那句“不要为自己得到的爱去找一些荒唐的理由”真是唏嘘
-
-
-
-
-
 
 
 -----
@@ -20733,14 +13381,7 @@ WT应该少画感情戏
 ##### 38616#       发表于 2015-8-27 13:34
 
 
-
-
 拖得要死
-
-
-
-
-
 
 
 -----
@@ -20749,16 +13390,10 @@ WT应该少画感情戏
 ##### 38617#       发表于 2015-8-27 13:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29984010&amp;ptid=98922" target="_blank">kuroro 发表于 2015-8-27 13:22</a>
 
 战国居然没有抓罗还一起聊天……</blockquote>
 事不关己高高挂起，他都已经不是在任了
-
-
-
-
-
 
 
 -----
@@ -20767,16 +13402,10 @@ WT应该少画感情戏
 ##### 38618#       发表于 2015-8-27 13:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29984131&amp;ptid=98922" target="_blank">hispeed 发表于 2015-8-27 13:34</a>
 
 事不关己高高挂起，他都已经不是在任了</blockquote>
 海军这帮人放水真是放的一脉相承……
-
-
-
-
-
 
 
 -----
@@ -20785,17 +13414,10 @@ WT应该少画感情戏
 ##### 38619#       发表于 2015-8-27 13:39
 
 
-
-
 这下藤虎的处境就很尴尬了，本来想放水让你们走的，还特意弄个大排场做做戏，路飞这么不给面子一拳甩过去，真是……<img src="https://static.saraba1st.com/image/smiley/face/100.gif" referrerpolicy="no-referrer">
 
 
 想来想去红发混得这么开还是因为给面子啊<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20804,16 +13426,10 @@ WT应该少画感情戏
 ##### 38620#       发表于 2015-8-27 13:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29984010&amp;ptid=98922" target="_blank">kuroro 发表于 2015-8-27 13:22</a>
 
 战国居然没有抓罗还一起聊天……</blockquote>
 “如果我还是现役的话 早就把你扔进监狱再慢慢聊了”  感觉斗心全无。。。
-
-
-
-
-
 
 
 -----
@@ -20822,14 +13438,7 @@ WT应该少画感情戏
 ##### 38621#       发表于 2015-8-27 13:46
 
 
-
-
 加上zoro一起能牵制一个大将我觉得比较合适。
-
-
-
-
-
 
 
 -----
@@ -20838,14 +13447,7 @@ WT应该少画感情戏
 ##### 38622#       发表于 2015-8-27 13:47
 
 
-
-
 这集结尾的路飞正面刚藤虎还挺燃的。
-
-
-
-
-
 
 
 -----
@@ -20854,23 +13456,15 @@ WT应该少画感情戏
 ##### 38623#       发表于 2015-8-27 13:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/143.gif" referrerpolicy="no-referrer">就这么正面刚了，果然是路飞作风，不得不说最后1页挺带感的
 
 罗的部分收尾也不错啊
-
-
-
-
-
 
 
 -----
 
 ####  龙意识  
 ##### 38624#       发表于 2015-8-27 13:52
-
-
 
 
 路飞这是打的什么鸡血。。。血没恢复还要去干满血的大将
@@ -20880,16 +13474,10 @@ WT应该少画感情戏
 战国现在就是另一个卡普了吧
 
 
-
-
-
-
-
 -----
 
 ####  wulaval  
 ##### 38625#       发表于 2015-8-27 13:58
-
 
 
  本帖最后由 wulaval 于 2015-8-27 13:59 编辑 
@@ -20905,27 +13493,15 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 小粉红死了妈忘了爹，家族污名化流落民间，平时相处的都是一群低素质低智商平民，又没上过学，所以⋯⋯
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 38626#       发表于 2015-8-27 14:05
 
 
-
-
 我觉得这话替读者吐槽了
 
 “修炼两年打个75海差点挂了n次，碰见4皇大将怎么打，还当个p海贼王，当人脉王差不多”
-
-
-
-
-
 
 
 -----
@@ -20934,14 +13510,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38627#       发表于 2015-8-27 14:12
 
 
-
-
 目前看来这话反应不太遭，尾田状态起伏，那么接下来两话就吃紧了，估计要被喷到死，啊～快800话了
-
-
-
-
-
 
 
 -----
@@ -20950,21 +13519,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38628#       发表于 2015-8-27 14:19
 
 
-
-
 罗这样收尾，以后怎么玩……
-
-
-
-
-
 
 
 -----
 
 ####  faiths  
 ##### 38629#       发表于 2015-8-27 14:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=27154063&amp;ptid=98922" target="_blank">faiths 发表于 2014-11-7 17:59</a>
@@ -20982,25 +13543,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 最后一页路飞的态度非常燃 两年后第一次这么燃
 
 
-
-
-
-
-
 -----
 
 ####  恒温死神  
 ##### 38630#       发表于 2015-8-27 14:32
 
 
-
-
 藤虎可以不要脸，但是赤帅面子挂不住啊
-
-
-
-
-
 
 
 -----
@@ -21009,14 +13558,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38631#       发表于 2015-8-27 14:32
 
 
-
-
 藤虎可以不要脸，但是赤帅面子挂不住啊
-
-
-
-
-
 
 
 -----
@@ -21025,14 +13567,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38632#       发表于 2015-8-27 14:37
 
 
-
-
 路飞:连个下跪果实都刚不了,我还当什么海贼王
-
-
-
-
-
 
 
 -----
@@ -21041,14 +13576,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38633#       发表于 2015-8-27 15:24
 
 
-
-
 藤虎这能力认真起来是不是可以把路飞打出去的拳头反弹回去打路飞脸<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">   然后碰到索隆这种用剑气远程斩击他能用这能力对抗么?
-
-
-
-
-
 
 
 -----
@@ -21057,14 +13585,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38634#       发表于 2015-8-27 16:09
 
 
-
-
 海军还有不划水的么。<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21073,14 +13594,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38635#       发表于 2015-8-27 16:26
 
 
-
-
 路飞你没有常识吗！！ 见到大将就是要跑啊！！！！
-
-
-
-
-
 
 
 -----
@@ -21089,14 +13603,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38636#       发表于 2015-8-27 16:29
 
 
-
-
 说好的我划水你逃跑呢！<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21105,14 +13612,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38637#       发表于 2015-8-27 16:33
 
 
-
-
 所以说D到底是个什么，好像老一辈人都知道似的……
-
-
-
-
-
 
 
 -----
@@ -21121,22 +13621,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38638#       发表于 2015-8-27 16:53
 
 
-
-
 考验藤虎能否超过海军影帝卡普的时候到了！
-
-
-
-
-
 
 
 -----
 
 ####  yinfu  
 ##### 38639#       发表于 2015-8-27 16:55
-
-
 
 
 战国这边简直是陈永仁和黄sir……罗扮演的是未亡人的角色<img src="https://static.saraba1st.com/image/smiley/face/29.gif" referrerpolicy="no-referrer">
@@ -21147,16 +13638,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 对面在划水都看不出来路飞你是真傻还是假傻！
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 38640#       发表于 2015-8-27 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29986501&amp;ptid=98922" target="_blank">yinfu 发表于 2015-8-27 16:55</a>
@@ -21167,17 +13652,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 都没正式开打就说疼虎划水的是什么鬼
 
 
-
-
-
-
-
 -----
 
 ####  漆黑弥塞亚  
 ##### 38641#       发表于 2015-8-27 17:12
-
-
 
 
 虎扑的评论……
@@ -21188,25 +13666,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 藤虎最后一格的表情→<img src="https://static.saraba1st.com/image/smiley/nq/010.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yeluffy  
 ##### 38642#       发表于 2015-8-27 17:30
 
 
-
-
 为什么你们都说藤虎划水，哈哈
-
-
-
-
-
 
 
 -----
@@ -21215,14 +13681,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38643#       发表于 2015-8-27 18:09
 
 
-
-
 最后一页真喷了，应该打不起来吧
-
-
-
-
-
 
 
 -----
@@ -21231,16 +13690,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38644#       发表于 2015-8-27 18:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29986140&amp;ptid=98922" target="_blank">aceback 发表于 2015-8-27 16:26</a>
 
 路飞你没有常识吗！！ 见到大将就是要跑啊！！！！</blockquote>
 “听说那一船人都是疯子”
-
-
-
-
-
 
 
 -----
@@ -21249,14 +13702,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38645#       发表于 2015-8-27 18:50
 
 
-
-
 这才是过渡话的正常水准啊
-
-
-
-
-
 
 
 -----
@@ -21265,16 +13711,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38646#       发表于 2015-8-27 18:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29986737&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-8-27 17:11</a>
 
 都没正式开打就说疼虎划水的是什么鬼</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">国际惯例大战之后无连战
-
-
-
-
-
 
 
 -----
@@ -21283,16 +13723,9 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38647#       发表于 2015-8-27 19:32
 
 
-
-
 藤虎明显就是我要开大了，给你们时间快点跑，我再送个客意思意思
 
 海军再这么放水放下去红狗都快变成海军的良心了
-
-
-
-
-
 
 
 -----
@@ -21301,16 +13734,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38648#       发表于 2015-8-27 19:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29987869&amp;ptid=98922" target="_blank">yinfu 发表于 2015-8-27 18:54</a>
 
 国际惯例大战之后无连战</blockquote>
 打完莫利亚打熊（虽然是一边倒碾压
-
-
-
-
-
 
 
 -----
@@ -21319,16 +13746,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38649#       发表于 2015-8-27 19:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29988376&amp;ptid=98922" target="_blank">hagane 发表于 2015-8-27 19:46</a>
 
 打完莫利亚打熊（虽然是一边倒碾压</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">2年后还这样还是加入家族产业革命军算了当什么海贼王……
-
-
-
-
-
 
 
 -----
@@ -21337,14 +13758,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38650#       发表于 2015-8-27 20:10
 
 
-
-
 八百话要不公布一个大谜团，要不发生一个超展开
-
-
-
-
-
 
 
 -----
@@ -21353,16 +13767,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38651#       发表于 2015-8-27 21:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29988411&amp;ptid=98922" target="_blank">yinfu 发表于 2015-8-27 19:50</a>
 
 2年后还这样还是加入家族产业革命军算了当什么海贼王……</blockquote>
 所以说这次尾田不是把你这想法用一格特写给打飞了嘛
-
-
-
-
-
 
 
 -----
@@ -21371,21 +13779,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38652#       发表于 2015-8-27 22:03
 
 
-
-
 路飞两年前是因为实力不够不得不跑，现在嘛... 实力还是TM不够啊，打火鸡把吃屎的紧都用上了，还是在火鸡重伤的情况下，你有什么信心能撂倒一个能力在火鸡之上，满血的大将呢？
-
-
-
-
-
 
 
 -----
 
 ####  yinfu  
 ##### 38653#       发表于 2015-8-27 22:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29989277&amp;ptid=98922" target="_blank">hagane 发表于 2015-8-27 21:29</a>
@@ -21395,25 +13795,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 <img src="https://static.saraba1st.com/image/smiley/face/41.gif" referrerpolicy="no-referrer">要这阶段还要被按在地上艹不是顺利跑路怎么混
 
 
-
-
-
-
-
 -----
 
 ####  infinite  
 ##### 38654#       发表于 2015-8-27 22:10
 
 
-
-
 燃是燃，但不得不说路飞就是一个直线条蠢材。
-
-
-
-
-
 
 
 -----
@@ -21422,14 +13810,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38655#       发表于 2015-8-27 22:16
 
 
-
-
 话说最后一话的路飞 才是真路飞啊
-
-
-
-
-
 
 
 -----
@@ -21438,14 +13819,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38656#       发表于 2015-8-27 22:23
 
 
-
-
 动画706（坷垃松之死）拍的真的很一般，WT画出slinet scream这等名场面明明是给动画做嫁衣啊，几个高潮点都没有展现好（尤其唐爹之死），不过我还是泪奔了<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21454,21 +13828,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38657#       发表于 2015-8-27 22:24
 
 
-
-
 打完这一拳就跑，真tm刺激
-
-
-
-
-
 
 
 -----
 
 ####  如封似闭  
 ##### 38658#       发表于 2015-8-28 10:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29969501&amp;ptid=98922" target="_blank">karma 发表于 2015-8-26 07:30</a>
@@ -21480,16 +13846,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 里面有鼠绘和熊猫的熟肉
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38659#       发表于 2015-8-28 11:13
-
 
 
 <blockquote>如封似闭 发表于 2015-8-28 10:18
@@ -21500,16 +13860,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 一般周四什么时间段更?
 
 
-
-
-
-
-
 -----
 
 ####  如封似闭  
 ##### 38660#       发表于 2015-8-28 11:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29994050&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-8-28 11:13</a>
@@ -21518,16 +13872,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 一般情况我都是下午去看的 具体时间就不知道了
 
 
-
-
-
-
-
 -----
 
 ####  嘲风  
 ##### 38661#       发表于 2015-8-28 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29969501&amp;ptid=98922" target="_blank">karma 发表于 2015-8-26 07:30</a>
@@ -21536,17 +13884,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 把.com改成.net
 
 
-
-
-
-
-
 -----
 
 ####  费扎里昂  
 ##### 38662#       发表于 2015-8-28 16:54
-
-
 
 
 这一战真打起来大概有三个结果
@@ -21561,25 +13902,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 看好路飞被罗一把拎起带着跑路，毕竟这种用搞笑情节解决严肃矛盾的手段尾田已经很拿手了
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38663#       发表于 2015-8-28 17:18
 
 
-
-
 我就不信真全力单挑路飞不会输，虽然这种情况肯定不会发生
-
-
-
-
-
 
 
 -----
@@ -21588,14 +13917,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38664#       发表于 2015-8-28 18:36
 
 
-
-
 如果和大将大战三百回合惜败的话也不算自大+毫无成长吧
-
-
-
-
-
 
 
 -----
@@ -21604,13 +13926,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38665#       发表于 2015-8-28 18:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">特么的我都让你跑了你还打我。。
-
-
-
-
-
 
 
 -----
@@ -21619,14 +13935,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38666#       发表于 2015-8-28 19:45
 
 
-
-
 拖到800话搞个大新闻，然后继续拖
-
-
-
-
-
 
 
 -----
@@ -21635,14 +13944,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38667#       发表于 2015-8-28 20:02
 
 
-
-
 藤虎不会放水，否则对不起他的赌品
-
-
-
-
-
 
 
 -----
@@ -21651,14 +13953,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38668#       发表于 2015-8-28 20:55
 
 
-
-
 现在的问题是剧情已经发展到要面对四皇，大将这样的最高战力。而路飞所表现出来的实力却与之相差甚远，不知道尾田要怎么画他们间的战斗。
-
-
-
-
-
 
 
 -----
@@ -21667,14 +13962,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38669#       发表于 2015-8-28 22:00
 
 
-
-
 看这话发现战果苍老了很多，之前都没这感觉的啊
-
-
-
-
-
 
 
 -----
@@ -21683,14 +13971,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38670#       发表于 2015-8-29 07:19
 
 
-
-
 战国真的一点战意都没了吗，如果面对的是监狱第六层的逃犯，应该不会放走吧。
-
-
-
-
-
 
 
 -----
@@ -21699,23 +13980,16 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38671#       发表于 2015-8-29 12:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30003346&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-8-29 07:19</a>
 
 战国真的一点战意都没了吗，如果面对的是监狱第六层的逃犯，应该不会放走吧。 ...</blockquote>
 我觉得 更重要的是，对面是一个自己一手培养出来的手下不惜用自己性命和在两边都撒了谎救回来的人...
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38672#       发表于 2015-8-29 12:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=29998286&amp;ptid=98922" target="_blank">费扎里昂 发表于 2015-8-28 16:54</a>
@@ -21728,16 +14002,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 从顶上战争开始op就没法靠胜负关系排实力了……老沙是伟大航路上第一个被草帽一伙搞垮台的，结果顶上战争跟鸟叔玩的不亦乐乎，俩人都不出力打成平手，这怎么算？
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38673#       发表于 2015-8-29 13:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30005239&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-29 12:38</a>
@@ -21746,32 +14014,19 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 得看双方满状态单挑有输赢的战绩啊。。红狗&gt;艾斯；罗&gt;烟鬼；明哥&gt;罗；维尔戈&gt;烟鬼  这样应该都没有争议的吧
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 38674#       发表于 2015-8-29 13:47
 
 
-
-
 鼠绘出app了啊，挺好的，以后不用再专门去找了。
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38675#       发表于 2015-8-29 22:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30005746&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-8-29 13:47</a>
@@ -21782,16 +14037,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 总之如果现在不放弃胜负关系排名法，后面op的实力对比只会越来越乱，类似于同为最高干部，维尔戈一脚踢到山治骨裂皮卡被索隆无伤秒杀，以及战国一个如来神掌日飞黑胡子全团之类的无法解释的东西会越来越多，早放弃早受益
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38676#       发表于 2015-8-29 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30003346&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-8-29 07:19</a>
@@ -21800,16 +14049,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 跟青稚放走罗宾思路是一致的，他们这一类的海军都是信奉相对的正义的，所以战国才会推举他当接班人
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38677#       发表于 2015-8-29 23:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30009655&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-29 22:22</a>
@@ -21822,17 +14065,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 战国把黑胡子团都轰飞但人家又没败，而且也没见得受到多大伤害，只能反映出战国实力不简单，但不知道具体强到什么地步，并不能说明战国一人实力就能秒黑胡子全团。
 
 
-
-
-
-
-
 -----
 
 ####  千叶铁矢  
 ##### 38678#       发表于 2015-8-29 23:16
-
-
 
 
 前几天看了萨博那个特别篇，仔细看发现萨博发火拳的时候手依然是黑的，那么是不是证明武装色和自然系能并存呢?艾斯是不是因为果实吃的早，霸气不行而被红狗杀的呢......
@@ -21841,16 +14077,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38679#       发表于 2015-8-29 23:43
-
 
 
  本帖最后由 影流之主 于 2015-8-30 04:00 编辑 
@@ -21864,16 +14094,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 战国那个事情跟现在的局面很类似：路飞如果一拳打趴藤虎然后马上跑路，这算是路飞实力碾压大将以及鸟叔实力大将级（但这样青鸟那下又不能解释了）了吗，肯定不是。所以我才说尽早放弃胜负关系排位法，打一场算一场的，别想多。艾斯被两拳打死也就是那一场战斗的体现而已。
 
 
-
-
-
-
-
 -----
 
 ####  Snaky  
 ##### 38680#       发表于 2015-8-30 00:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30003346&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-8-29 07:19</a>
@@ -21882,32 +14106,19 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 战国卡普属于一出手就是BUG，WT只能收着不用，不然直接就团灭了
 
 
-
-
-
-
-
 -----
 
 ####  费扎里昂  
 ##### 38681#       发表于 2015-8-30 07:07
 
 
-
-
 我说了啊，一个海贼都当这么多人面骑你脸上挑衅了，你还要放水打成平手送人离开，那你就是个不配当海军的怂包么，这说法没问题吧来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  flyzzhj  
 ##### 38682#       发表于 2015-8-30 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30010350&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-29 23:43</a>
@@ -21932,16 +14143,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 火鸡&gt;罗&gt;维尔戈&gt;斯摩格  我觉得这个战斗力，争议并不大吧...
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38683#       发表于 2015-8-30 09:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30010350&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-29 23:43</a>
@@ -21952,16 +14157,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 艾斯和青鸡拼一招未果完全说明不了什么，真要对比的话我觉得可以这样比：艾斯和甚平五天五夜打平，打这么久打平说两者实力相当我觉得没问题。然后顶上甚平面对红狗时，红狗说“你身为七武海该知道老夫的本领，不想受伤就让开”，然后甚平表示“不管受多大的伤都做好准备了”，这段话明显说明红狗比甚平强（虽然不是按胜负来排的），然后说红狗比艾斯强我认为问题不大。
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38684#       发表于 2015-8-30 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30012022&amp;ptid=98922" target="_blank">flyzzhj 发表于 2015-8-30 09:25</a>
@@ -21978,16 +14177,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 另：还真别瞧不起巴基大神，人家是能从鸟笼里无伤出来的强者，如果你要说的是两年前的索隆，巴基还真是比他厉害
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38685#       发表于 2015-8-30 11:55
-
 
 
  本帖最后由 影流之主 于 2015-8-30 12:04 编辑 
@@ -22007,16 +14200,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 单纯拿胜负关系的结果排显然没什么问题，烟男垫底无疑问。但具体到战斗过程里，烟男故意装傻元素化，连维尔戈都觉得这不像他的作风，这算不算负面状态？罗满状态跟烟男对攻了半天才找到一个机会挖心脏，被维尔戈打得半死以后正面对决一刀秒，这是算作烟男威武还是算作维尔戈放水？现在op的战斗体系就是这样，比到最后你发现全是漏洞根本填不过来，强行解释的话也只能“其实大家实力差不多，输一招不算数”了
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38686#       发表于 2015-8-30 12:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30013044&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-30 11:55</a>
@@ -22029,16 +14216,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 人们就是喜欢细分到具体名次的排名，就算是实力相差很小的也希望能排出高低。
 
 
-
-
-
-
-
 -----
 
 ####  GA_Frank  
 ##### 38687#       发表于 2015-8-30 13:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30013044&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-30 11:55</a>
@@ -22049,16 +14230,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 结果到你这儿变成偷袭了……不就是隔了个掩体吗= =
 
 
-
-
-
-
-
 -----
 
 ####  dawa1st  
 ##### 38688#       发表于 2015-8-30 14:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30013044&amp;ptid=98922" target="_blank">影流之主 发表于 2015-8-30 11:55</a>
@@ -22067,33 +14242,19 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 罗跟烟男打的时候心脏就不是自己的，跟维尔戈打时候被打的半死也是因为心脏在维尔戈手里
 
 
-
-
-
-
-
 -----
 
 ####  rubicon  
 ##### 38689#       发表于 2015-9-2 22:23
 
 
-
-
 流石装逼达人拙者佩服
-
-
-
-
-
 
 
 -----
 
 ####  漆黑弥塞亚  
 ##### 38690#       发表于 2015-9-2 23:45
-
-
 
 
 我倒觉得冰火岛的战斗没什么问题，罗&gt;烟男=维尔戈&gt;&gt;山治
@@ -22105,25 +14266,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 烟男vs维尔戈，照面第一回合烟男实际上是赢了的，一拳打维尔戈脸上，打飞出血，再然后就是放水了。然而烟男偷走维尔戈贴身保护的东西，伟哥完全没有察觉，这说明维尔戈根本没有高到哪去，然后烟男偷完躺地上对罗说：“别废话赶紧收拾了”，言下之意就是我和你和伟哥都打过知道水平，丫完全不是你的对手，然后果然一刀秒，反而是维尔戈严重低估了这两人
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 38691#       发表于 2015-9-3 02:44
 
 
-
-
 一拳打维尔戈脸上，打飞出血叫烟男赢了，被山治T了满脸血叫P事没有？什么鬼逻辑。山治骨裂是因为之前被炸飞了
-
-
-
-
-
 
 
 -----
@@ -22132,23 +14281,15 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38692#       发表于 2015-9-3 03:01
 
 
-
-
 罗的能力本来就不是刚正面的，看准机会一击必杀才是正道。之前我还吐槽路飞跟雷利学了2年居然和罗同一个档次，结果火鸡吊打罗，路飞4档又吊打火鸡，海贼的实力对比越来越乱，纠结这个没啥意义。
 
 烟男这个角色挺悲剧的，最垃圾的自然系能力没跑了，凭他现在的实力根本拿路飞没办法。现在我最想不透对于山治WT是怎么想的，2年后根本没任何发挥。
-
-
-
-
-
 
 
 -----
 
 ####  8aa8aa8aa  
 ##### 38693#       发表于 2015-9-3 08:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30048578&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-9-3 03:01</a>
@@ -22159,25 +14300,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 而且路飞打得是只剩一半hp，实力打折扣的火鸡，而罗是拼满血火鸡
 
 
-
-
-
-
-
 -----
 
 ####  8aa8aa8aa  
 ##### 38694#       发表于 2015-9-3 08:36
 
 
-
-
 事情要分情况看，就像悟饭比布欧强，但不一样给布欧打败？
-
-
-
-
-
 
 
 -----
@@ -22186,15 +14315,9 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38695#       发表于 2015-9-3 10:09
 
 
-
 <blockquote>liangjiami 发表于 2015-9-3 03:01
 罗的能力本来就不是刚正面的，看准机会一击必杀才是正道。之前我还吐槽路飞跟雷利学了2年居然和罗同一个档 ...</blockquote>
 路飞四档吊打明哥不等于路飞吊打明哥，只能说路飞攻击力上限高于明哥。明哥和路飞打前已经被罗搞跪过放趴过，路飞开过一次四档等恢复期间又那么多人帮拖时间。
-
-
-
-
-
 
 
 -----
@@ -22203,14 +14326,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38696#       发表于 2015-9-3 12:08
 
 
-
-
 所以说了，纠结实力没意义，读者会因为wt为了戏剧性而扭曲的打斗战个半天
-
-
-
-
-
 
 
 -----
@@ -22219,14 +14335,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38697#       发表于 2015-9-3 12:14
 
 
-
-
 本周关键词：演技 休刊
-
-
-
-
-
 
 
 -----
@@ -22235,16 +14344,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38698#       发表于 2015-9-3 12:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30049141&amp;ptid=98922" target="_blank">8aa8aa8aa 发表于 2015-9-3 08:31</a>
 
 正如你所说，罗的能力不是刚正面的，所以路飞体书碾压罗正常，但真打起来，综合实力不好说啊，毕竟路飞的 ...</blockquote>
 一切都是说了WT算。火鸡无论能力运用，霸气和体术都完全吊打罗，但遇上4档路飞还不是一招都闪不开，你说罗能拖时间我只能说剧情需要了
-
-
-
-
-
 
 
 -----
@@ -22253,14 +14356,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38699#       发表于 2015-9-3 12:19
 
 
-
-
 前几话我还吹尾田人间真实，深刻描写底层民众，结果这话惨遭打脸
-
-
-
-
-
 
 
 -----
@@ -22269,14 +14365,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38700#       发表于 2015-9-3 12:22
 
 
-
-
 看了情报，期待大战的读者们要失望了，果然又是互相划水
-
-
-
-
-
 
 
 -----
@@ -22285,14 +14374,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38701#       发表于 2015-9-3 13:49
 
 
-
-
 厨子跟三刀的差距比两年前大很多吧？
-
-
-
-
-
 
 
 -----
@@ -22301,14 +14383,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38702#       发表于 2015-9-3 13:54
 
 
-
-
 这个章节的配角刻画成问题，加入草帽麾下的人里，脑残粉和白马印象深刻没有问题，小人族和老蔡还说的过去，其他几个完全没啥印象啊。
-
-
-
-
-
 
 
 -----
@@ -22317,14 +14392,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38703#       发表于 2015-9-3 14:08
 
 
-
-
 拖得要死
-
-
-
-
-
 
 
 -----
@@ -22333,14 +14401,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38704#       发表于 2015-9-3 14:12
 
 
-
-
 小人族雷欧也出海那公主怎么办！
-
-
-
-
-
 
 
 -----
@@ -22349,14 +14410,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38705#       发表于 2015-9-3 14:19
 
 
-
-
 谁能拒绝海贼旗的呼唤！
-
-
-
-
-
 
 
 -----
@@ -22365,17 +14419,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38706#       发表于 2015-9-3 14:32
 
 
-
-
 一下收这么多人，太快了吧
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -22384,14 +14431,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38707#       发表于 2015-9-3 14:39
 
 
-
-
 给跟四皇死磕凑人数吗....其实没必要搞这么个麾下，大事件时亲朋好友支援加势不是更自然"王道"一些么，路飞本身顶多算个精神领袖...除非来个罗这样的军师上船...还说的过去
-
-
-
-
-
 
 
 -----
@@ -22400,14 +14440,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38708#       发表于 2015-9-3 15:55
 
 
-
-
 这话罗没有出来，下一话800，该出大事件了。
-
-
-
-
-
 
 
 -----
@@ -22416,14 +14449,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38709#       发表于 2015-9-3 16:05
 
 
-
-
 之前喷老百姓的又被打脸了。。。
-
-
-
-
-
 
 
 -----
@@ -22432,24 +14458,16 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38710#       发表于 2015-9-3 16:10
 
 
-
-
 德岛这剧情真是蠢。
 
 
 ----发送自 [Sony D6503,Android 5.0.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  调和  
 ##### 38711#       发表于 2015-9-3 16:12
-
 
 
 <blockquote>漆黑弥塞亚 发表于 2015-9-2 23:45
@@ -22459,25 +14477,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 山治vs维尔戈那次 山治是被炸的半死状态
 
 
-
-
-
-
-
 -----
 
 ####  Yeaha123  
 ##### 38712#       发表于 2015-9-3 16:25
 
 
-
-
 尾田怎么那么爱列举啊？
-
-
-
-
-
 
 
 -----
@@ -22486,15 +14492,9 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38713#       发表于 2015-9-3 16:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30053083&amp;ptid=98922" target="_blank">嘲风 发表于 2015-9-3 15:55</a>
 这话罗没有出来，下一话800，该出大事件了。</blockquote>
 其实出来了，就是背景里画的很简单
-
-
-
-
-
 
 
 -----
@@ -22503,14 +14503,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38714#       发表于 2015-9-3 16:30
 
 
-
-
 虽然德岛一开始就一副摆明要收入的样子，但这一话来得有点突然啊，铺垫还不够
-
-
-
-
-
 
 
 -----
@@ -22519,14 +14512,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38715#       发表于 2015-9-3 17:28
 
 
-
-
 德岛群众一下就洗白了，尾田太屌
-
-
-
-
-
 
 
 -----
@@ -22535,14 +14521,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38716#       发表于 2015-9-3 18:27
 
 
-
-
 海贼王里也来了一波大阅兵。。
-
-
-
-
-
 
 
 -----
@@ -22551,14 +14530,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38717#       发表于 2015-9-3 18:59
 
 
-
-
 目前除了本队，新收入这批至少也算次一流的高手了    下一话直接当第五皇吧。
-
-
-
-
-
 
 
 -----
@@ -22567,21 +14539,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38718#       发表于 2015-9-3 18:59
 
 
-
-
 目前除了本队，新收入这批至少也算次一流的高手了    下一话直接当第五皇吧。
-
-
-
-
-
 
 
 -----
 
 ####  gpx234  
 ##### 38719#       发表于 2015-9-3 19:14
-
 
 
  本帖最后由 gpx234 于 2015-9-3 19:15 编辑 
@@ -22594,25 +14558,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 不然对付四皇大妈和凯多有点麻烦啊
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 38720#       发表于 2015-9-3 19:30
 
 
-
-
 一大波人认路飞当老大。。感性上路飞应该会拒绝，，但是理性上新世界路飞可能会接受，可能不明确表态吧但是把他们确实划分在路飞势力里就好像鱼人岛那样，
-
-
-
-
-
 
 
 -----
@@ -22621,21 +14573,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38721#       发表于 2015-9-3 19:32
 
 
-
-
 藤虎装b装的太过了，，，从头到尾不参与战斗就是估计装b。。
-
-
-
-
-
 
 
 -----
 
 ####  千叶铁矢  
 ##### 38722#       发表于 2015-9-3 19:47
-
 
 
 <blockquote>引用第38789楼gpx234于2015-09-03 19:14发表的  :
@@ -22647,16 +14591,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38723#       发表于 2015-9-3 19:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30054408&amp;ptid=98922" target="_blank">革新 发表于 2015-9-3 19:30</a>
@@ -22667,25 +14605,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 队内人事这种事情基本是路飞拍板，但是路飞的抉择太不正确的时候索隆肯定会出来做决断，比如乌索普回归。估计是路飞一开始没兴趣当老大但是索隆劝住他，最后想明白了于是草帽团升级为草帽组，踏上成为丫库匝王之路
 
 
-
-
-
-
-
 -----
 
 ####  阿虚家的三味  
 ##### 38724#       发表于 2015-9-3 20:31
 
 
-
-
 按路飞性格来说，不会承认做老大会很乐意交朋友吧
-
-
-
-
-
 
 
 -----
@@ -22694,24 +14620,16 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38725#       发表于 2015-9-3 22:14
 
 
-
-
 藤虎可以听到老百姓内心的声音？倾听万物？
 
 
 ----发送自 [Sony D6503,Android 5.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  darkseid  
 ##### 38726#       发表于 2015-9-3 22:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30055640&amp;ptid=98922" target="_blank">BlueJays 发表于 2015-9-3 22:14</a>
@@ -22723,16 +14641,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 瞎子的耳朵都特好，这是听见民众的悄悄话了吧
 
 
-
-
-
-
-
 -----
 
 ####  ioridx  
 ##### 38727#       发表于 2015-9-4 01:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30054191&amp;ptid=98922" target="_blank">sta777 发表于 2015-9-3 18:59</a>
@@ -22759,25 +14671,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 所以估计会黄掉
 
 
-
-
-
-
-
-
 -----
 
 ####  ioridx  
 ##### 38728#       发表于 2015-9-4 01:33
 
 
-
 <blockquote>重复，编辑掉</blockquote>
-
-
-
-
-
 
 
 -----
@@ -22786,23 +14686,15 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38729#       发表于 2015-9-4 02:36
 
 
-
-
 没想到OP也玩阅兵0.0
 
 果然最后都是去当手下了，按性格和实力卡文迪许应该是不甘心的吧
-
-
-
-
-
 
 
 -----
 
 ####  flyzzhj  
 ##### 38730#       发表于 2015-9-4 08:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30057197&amp;ptid=98922" target="_blank">疾风妖一 发表于 2015-9-4 02:36</a>
@@ -22813,25 +14705,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 <img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">搞不好人家只是傲娇而已嘛
 
 
-
-
-
-
-
 -----
 
 ####  GA_Frank  
 ##### 38731#       发表于 2015-9-4 09:41
 
 
-
-
 卡文迪许萌出血
-
-
-
-
-
 
 
 -----
@@ -22840,14 +14720,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38732#       发表于 2015-9-5 01:06
 
 
-
-
 路飞主战队只招十个伙伴，但是他的感染力和号召力可以找到很多副队，就像这次。
-
-
-
-
-
 
 
 -----
@@ -22856,20 +14729,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38733#       发表于 2015-9-5 01:59
 
 
-
-
 路飞说，我不是老大，我们是朋友！
 
 
-
 所有人泪目。。。死心塌地跟他。。。
-
-
-
-
-
-
-
 
 
 -----
@@ -22878,21 +14741,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38734#       发表于 2015-9-5 03:45
 
 
-
-
 路飞不收，乌索普可以纳在他麾下，毕竟这些人都是他解放的，小人族和巨人族已经和乌索普有羁绊关系，剩下的都对GOD拜得五体投地。乌索普的战斗力不强，而且好发号施令，正好有一群崇拜者替他挡枪。
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 38735#       发表于 2015-9-5 04:29
-
 
 
  本帖最后由 DGIL 于 2015-9-5 04:48 编辑 
@@ -22912,13 +14767,11 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 路飞有这么些盟友还是不错的
 
 
-
 有编号的话感觉是应该参考白胡子的队长们。。
 
 但是他们都保留自己海贼团的名字。。有旗下海贼团的感觉
 
 所以这里有点不清楚是什么定位，白胡子海贼团的队长们只是叫白胡子海贼团1 2 3 4 5这样而已吧
-
 
 
 对位黑胡子团的6层罪犯也能挑出几名好手了
@@ -22933,25 +14786,15 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 俊美平均实力海贼团深不可测？
 
 
-
-
 不过路飞的表情来说到不好说会不会接受
 
 总之800话会搞个大新闻是一定的吧
-
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38736#       发表于 2015-9-5 04:46
-
-
 
 
 重看了一遍突然意识到这帮小弟真是太有内涵了。
@@ -22961,24 +14804,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 从东海开始种族歧视就是op里的一条暗线，所以后面的发展就是各族人民团结起来干翻天龙人的狗腿子世界政府？
 
 
-
-
-
-
-
 -----
 
 ####  DGIL  
 ##### 38737#       发表于 2015-9-5 04:51
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22987,14 +14819,8 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38738#       发表于 2015-9-5 04:53
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">藤虎身为大将从头到尾都没有威风过，，，和以前的大将反差太大
 <img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">该说装B过头还是丢大将的脸呢
-
-
-
-
-
 
 
 -----
@@ -23003,14 +14829,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38739#       发表于 2015-9-6 11:03
 
 
-
-
 都说800回会是大事件回，那我就来猜一下，政府为稳住势力越发庞大的草帽团提出让路飞取代火鸡，成为七武海，路飞当然是拒绝了，然后自封为第五个四皇，率领船团向凯多领地进发
-
-
-
-
-
 
 
 -----
@@ -23019,15 +14838,9 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38740#       发表于 2015-9-6 11:16
 
 
-
 <blockquote>Kyo.C 发表于 2015-9-6 11:03
 都说800回会是大事件回，那我就来猜一下，政府为稳住势力越发庞大的草帽团提出让路飞取代火鸡，成为七武海 ...</blockquote>
 路飞目标是海贼王，不会去当什么皇的
-
-
-
-
-
 
 
 -----
@@ -23036,14 +14849,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38741#       发表于 2015-9-7 00:49
 
 
-
-
 大事件应该是凯多那边吧，然后厨子上线
-
-
-
-
-
 
 
 -----
@@ -23052,22 +14858,15 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38742#       发表于 2015-9-7 15:15
 
 
-
 <blockquote>Nidhoggr 发表于 2015-9-7 00:49
 大事件应该是凯多那边吧，然后厨子上线</blockquote>
 厨子上线已经可以算做大事件了 233
-
-
-
-
-
 
 
 -----
 
 ####  千叶铁矢  
 ##### 38743#       发表于 2015-9-7 17:53
-
 
 
 <blockquote>引用第38806楼影流之主于2015-09-05 04:46发表的  :
@@ -23079,25 +14878,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  巴尔库夫  
 ##### 38744#       发表于 2015-9-7 18:43
 
 
-
-
 克里克首领在东海种田都能拉出5K人,在后半段混的大船团也才这点规模<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23106,14 +14893,7 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38745#       发表于 2015-9-7 18:47
 
 
-
-
 空岛人的话怪僧加入的可能性还是有的
-
-
-
-
-
 
 
 -----
@@ -23122,23 +14902,15 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38746#       发表于 2015-9-8 09:46
 
 
-
-
 那个什么提督大船团的4600人能有什么用，估计来个霸王色直接躺下一半
 
 而且我连那个提督叫什么战斗力怎么样有什么绝招都忘记了啊！！
-
-
-
-
-
 
 
 -----
 
 ####  叉和圈的ELF  
 ##### 38747#       发表于 2015-9-8 11:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30093472&amp;ptid=98922" target="_blank">希斯塔姆 发表于 2015-9-8 09:46</a>
@@ -23149,32 +14921,19 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 强制让杂兵立正，打保龄球
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 38748#       发表于 2015-9-8 17:55
 
 
-
-
 这纳头便拜的剧情。。。也太简单粗暴了点吧
-
-
-
-
-
 
 
 -----
 
 ####  DGIL  
 ##### 38749#       发表于 2015-9-8 17:57
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face/101.gif" referrerpolicy="no-referrer">其实除了这些人里面，除了脑残粉都是白马瞬秒的水平
@@ -23188,25 +14947,13 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 提督最辉煌的时刻就是用尽全身力气把索隆丢出去
 
 
-
-
-
-
-
 -----
 
 ####  athena_1982  
 ##### 38750#       发表于 2015-9-8 23:56
 
 
-
-
 提督的名字好像是NETA哥伦布的……说不定能发现新大陆<img src="https://static.saraba1st.com/image/smiley/face/119.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23215,25 +14962,16 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 ##### 38751#       发表于 2015-9-15 01:46
 
 
-
-
 800话是这周了吧，太期待了
 
 
-
 其实是手机找不到帖子了，我顶下贴……<img src="https://static.saraba1st.com/image/smiley/face/145.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Nidhoggr  
 ##### 38752#       发表于 2015-9-15 08:34
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-15 09:17 编辑 
@@ -23243,16 +14981,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 老沙怪就怪出场太早，试想一下，如果把大熊换成老沙，甚至青雉，黄猿的出场时间，比如将阿拉巴斯坦设定成连接前半段与新世界的大国，老沙以国家英雄的形态出现在主角队面前，也是瞬秒两年前二三挡路飞一队的实力。事后来看，老沙和小唐的出场时间换一下，可能对整个OP的节奏更好，老沙可以说是（除还未真正显山漏水的鹰眼之外）七武海的上限了，无论野心，格局，气势还是谋划，实力(无论本人还是团队对草帽团的碾压与重伤都是至今除剧情强制设定外的个别人最重的，谋划堪称完美，还有至今OP反派最能干的中低层干员，夺国的真实目的在于窥寓古代兵器，被罗宾坑后，就对国家毫无兴趣了，后面的大事件敢在万军之中对白胡子出手），之后的七武海就是给这个称号抹黑的，像莫利亚这种宅男，若不是大熊的强势，导致读者都以为恐怖之船要连刷两个七武海了，女帝甚平都有上船的希望了，好不容易碰上个虎踞新世界的小唐，实力上，只有其本人尚算强势，部下几乎全是逗比给草帽团刷时髦的（底层就是背景），夺国碰到就是一形同儿戏的国王和儿戏国民，过程也是权二代为辅，儿戏般的能力为主（也亏在德岛就是一屁大点儿小岛国，阿拉巴斯坦千万人口，数十万王军，你控制的来，变玩具变的过来么），夺国后，没看出多大的野心，十年的独夫生涯，除了黑白道生意做的比较大外（很多还是依仗其权二代的背景），没啥建树，对四皇凯多怕的要死，导致整个德雷斯罗萨篇后劲不足。
 
 
-
-
-
-
-
 -----
 
 ####  helmwige  
 ##### 38753#       发表于 2015-9-15 09:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30162587&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-9-15 08:34</a>
@@ -23261,16 +14993,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 实际上唐不就是成功版的老沙么，不论是背景还是气质上，还是实现阴谋的手段来说，跟老沙对比都像一个天才一个（很努力的）凡人一样。底层干部更不用说了，老沙这边除了NO1基本都是搞笑角**，德雷斯罗萨好歹还有个四天王站成一排还能看看；当然，论角色塑造一个冯冯就可以吊打
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38754#       发表于 2015-9-15 09:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30163023&amp;ptid=98922" target="_blank">helmwige 发表于 2015-9-15 09:27</a>
@@ -23283,16 +15009,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 说不定还有罗宾-罗，都成为草帽同党<img src="https://static.saraba1st.com/image/smiley/normal/037.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  helmwige  
 ##### 38755#       发表于 2015-9-15 09:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30163335&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-9-15 09:54</a>
@@ -23301,16 +15021,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 这么一说简直可以盖棺定论了...
 
 
-
-
-
-
-
 -----
 
 ####  liangjiami  
 ##### 38756#       发表于 2015-9-15 10:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30163023&amp;ptid=98922" target="_blank">helmwige 发表于 2015-9-15 09:27</a>
@@ -23319,16 +15033,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 其实这4天王也就石头人和维哥能打，部下的时髦值真不觉得比老沙的高多少。
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38757#       发表于 2015-9-15 10:30
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-15 10:39 编辑 
@@ -23338,16 +15046,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 即便以结果论英雄，唐比老沙也说不上成功，老沙其实是不在乎沙国王位的，他的计划是从拥有冥王开始的更大野心，而且从一开始就目标明确，唐从剧情上分析至少是夺国十年的后期才开始研究“微笑”的，而且还是以依附政府（二代背景）和四皇之一为跳板的，这样的气度手段要做海贼王，估计莫奈头发白了都看不到。而且夺国过程来讲，老沙的理想乡计划到草帽团从中作梗，罗宾反水，甚至鸟人自我牺牲前，理想乡都是压倒性的成功，德岛复国依仗于草帽对明哥集团的清算，但沙国内乱，面对老沙的层层谋划和BW中低层探员的给力，草帽几乎是无力化的（最后即便打飞老沙，若不是烟男偏帮和薇薇撕心裂肺的吼声，已经杀红眼的战争都看不到结束的希望），再反观小唐的夺国过程，草帽早点到利库都不用给国民跪下乞财（顶多就是耗费点儿粮食储备<img src="https://static.saraba1st.com/image/smiley/face/141.gif" referrerpolicy="no-referrer">），论组织严密度，BW社的人尽其才，（动）物尽其用，是小唐那种过家家比的了的？逗比部下是因为这是搞笑漫，（排除实力因剧情的推进的涨幅）就对草帽团的伤害来讲，排除两方总帅的表现，老沙一方，若不是搞笑热血漫，现实中索隆和乌索普受到伤足可以说已经挂在阿拉巴斯坦了，小唐一方只有一开始断山治腿的威哥和硬派男的人格魅力挽回了点儿颜面，三花色，皮卡就是给索隆涨时髦用的，鼻涕男纯搞笑，也是被罗单方面压制，迪亚曼蒂无论人格还是战力都是渣，纯给居鲁士和累赘卡秀父女情的，中层的砂糖的逗比成就了GOD.乌索普，其他如德林杰之辈只能在竞技场那些二三流中刷时髦和被刷时髦，小BOSS如凯撒和MR3差不多，都是差点凭能力全灭草帽团，然后能力破解，然后就只剩人渣逗比化（甚至某些人心中的船员预备了）
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38758#       发表于 2015-9-15 10:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30163430&amp;ptid=98922" target="_blank">liangjiami 发表于 2015-9-15 10:03</a>
@@ -23356,16 +15058,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 但时髦上限是维哥<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alecwong  
 ##### 38759#       发表于 2015-9-15 10:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30163743&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-9-15 10:32</a>
@@ -23374,16 +15070,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 然而维哥被罗刷时髦了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38760#       发表于 2015-9-15 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30163875&amp;ptid=98922" target="_blank">alecwong 发表于 2015-9-15 10:43</a>
@@ -23392,16 +15082,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 然后罗又被明哥刷时髦了<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  helmwige  
 ##### 38761#       发表于 2015-9-15 11:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30163717&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-9-15 10:30</a>
@@ -23410,16 +15094,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 以上换个角度也可以这么说，普通人做着古代兵器的美梦，劳碌一生最后夺取阿拉巴斯坦还是差了那么一步；天才不但依法治国多年，还有在新世界后半段各大势力之间斡旋的余裕，在脚踏实地的发展自己势力；顶上战争老沙也是看见白胡子什么都不顾就上，结果被路飞制止，被唐调戏；唐则由始至终的作壁上观，没有既得利益，便不出手，顺便还给这场乱战作了个总结陈词；你说他气度当不了海贼王，我看这般有城府又现实主义的人，怕是看不上海贼王的虚名，黑白两道通吃才是他的作风<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38762#       发表于 2015-9-15 13:05
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-15 13:38 编辑 
@@ -23435,16 +15113,10 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 别自行给小唐做决定好么，莫奈妹子够可怜了，你想说她遇人不淑，所托非人么<img src="https://static.saraba1st.com/image/smiley/face/113.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  helmwige  
 ##### 38763#       发表于 2015-9-15 13:48
-
 
 
  本帖最后由 helmwige 于 2015-9-15 14:01 编辑 
@@ -23456,32 +15128,19 @@ VIVI是正统女王储，从小当继承人培养，教育磨练足够，接触�
 按照你这个刚进伟大航路的几个小岛都算进去BW给鳄鱼长气势来跟火鸡比肩的逻辑，东海克拉克的是不是要跻身四皇？这势力又不是按面积或者人数能够清算的，伟大航路前后半差了多少个次元我觉得不需要强调了吧<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dawn34  
 ##### 38764#       发表于 2015-9-15 14:12
 
 
-
-
 要知道，老沙，MR1，MR2，甚至MR3都是败了也不掉时髦的
-
-
-
-
-
 
 
 -----
 
 ####  Nidhoggr  
 ##### 38765#       发表于 2015-9-15 16:15
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-15 18:22 编辑 
@@ -23503,16 +15162,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 虽说两种管理机制都挺不健康的，但我个人还是比较倾向于老沙的BW社（当然不会真的会去应聘这种公司），对于想干一番事业有野心有梦想的人来说这的确是相比小唐家族有更好的发展空间。
 
 
-
-
-
-
-
 -----
 
 ####  helmwige  
 ##### 38766#       发表于 2015-9-15 16:46
-
 
 
  本帖最后由 helmwige 于 2015-9-15 16:49 编辑 
@@ -23524,32 +15177,19 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 回归主题，你最开始说那个希望老沙跟火鸡对调一下，我非常支持！德雷斯罗萨篇确实差强人意到令人惋惜老沙下场的地步，很多人都感觉他上他也行；老沙也确实是一个很有魅力的角色， 不过其实这2个人都有点受制于剧情所处的位置没有得到完全发挥。阿拉巴斯坦篇是进入伟大航路的第一个长篇，是展示新世界严酷的篇章；而德雷斯罗萨是用来展示草帽一味修炼2年后修炼成果的篇章。实际上老沙是占了便宜的，自然系果实上来就团灭了路飞两次，一下把时髦刷到新世界的档次；反之德岛经历鱼人岛、死亡国度的不完全燃烧，观众都急于看到一个相称的对手来展现修炼的成果，结果上来个大杂烩，大家试了一下新招式，干部各吃一招纷纷倒下。老唐自七武海召集会议积累下来的时髦值送作4档当嫁衣，过程滑稽无比。讲真，说不定火鸡都想跟老沙换一换，掌控阿拉巴斯坦自然不在话下；至于老沙这种能力有致命缺憾又唯我独尊，看上去也不像肯屈尊圆滑处世的人，失去沙漠屏障能不能在四皇眼皮底下生存下来就不知道咯，祝早日当上海贼王<img src="https://static.saraba1st.com/image/smiley/normal/061.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 38767#       发表于 2015-9-15 16:57
 
 
-
-
 该对调的从来不是角色，而是作者的创作能力，尾田的文学底蕴差不多见底了，对调了只会是德岛篇神作，沙漠篇被婊，没什么区别的。
-
-
-
-
-
 
 
 -----
 
 ####  Nidhoggr  
 ##### 38768#       发表于 2015-9-15 16:59
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-15 18:29 编辑 
@@ -23561,25 +15201,13 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 另外讨论两届银牌究竟谁水平格局更高一些，竟然能让你思路广的联想到胜的那个一定会得金牌也是可笑。
 
 
-
-
-
-
-
 -----
 
 ####  偷笑同党  
 ##### 38769#       发表于 2015-9-15 17:34
 
 
-
-
 真要对调的话，那就会变成明哥不用霸气，老沙三色俱全，不然老沙怎么看都和明哥有明显差距，另外哪里提了老沙能力觉醒了？
-
-
-
-
-
 
 
 -----
@@ -23588,16 +15216,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38770#       发表于 2015-9-15 17:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30168301&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-9-15 17:34</a>
 
 真要对调的话，那就会变成明哥不用霸气，老沙三色俱全，不然老沙怎么看都和明哥有明显差距，另外哪里提了老 ...</blockquote>
 “能力者一旦罕见的觉醒，就能对能力者自身以外的事物产生影响”这是小唐对【觉醒】的定义，然后参见老沙“侵蚀轮回”的效果，当然，目前只是一种可能性比较高的猜测，过早的言之凿凿算是我的失误。
-
-
-
-
-
 
 
 -----
@@ -23606,16 +15228,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38771#       发表于 2015-9-15 18:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30168301&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-9-15 17:34</a>
 
 真要对调的话，那就会变成明哥不用霸气，老沙三色俱全，不然老沙怎么看都和明哥有明显差距，另外哪里提了老 ...</blockquote>
 明哥不会霸气（或此战没有展示霸气）以其果实能力的BT，也足配七武海的名声，现在的德岛篇到最后WT估计实在没招了，才把明哥的血值设定的超厚，才有那简直堪称KUSO的4分钟推墙，但放到两年前的明哥却很有打头，一来应对控制就足够明哥刷草帽团时髦值一次，【觉醒】就够第二次，鸟笼从头到尾刷，然后三战解决，也相对心服口服。老沙虽然弱点很早就暴露出来了，但二战吸干水路飞，三战却被血路飞打趴，看有多少人吐槽……<img src="https://static.saraba1st.com/image/smiley/face/90.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23624,22 +15240,15 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38772#       发表于 2015-9-15 18:21
 
 
-
 <blockquote>Nidhoggr 发表于 2015-9-15 17:46
 “能力者一旦罕见的觉醒，就能对能力者自身以外的事物产生影响”这是小唐对【觉醒】的定义，然后参见老沙 ...</blockquote>
 这应该是指超人系的吧，动物系的不就主要是超强恢复力么
-
-
-
-
-
 
 
 -----
 
 ####  helmwige  
 ##### 38773#       发表于 2015-9-15 18:47
-
 
 
  本帖最后由 helmwige 于 2015-9-15 20:34 编辑 
@@ -23651,16 +15260,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 我再把话讲白点，讨论伟大航道前后半战力不对比海贼、海兵的作战实力，反而把阿拉巴斯坦那群民兵，风车村村民拿出来跟德雷斯罗萨的平民来比较，然后拉到东海水平；再把力库王这种人拿来出轮，好似沙鳄鱼最后是阿拉巴斯坦王打飞的一样；先不说这些跟战斗力毫无关系的剧情边角料有无讨论价值，我都想不通伟大航路后半程敌方水平高这种东西有什么好争的， 简直是智障水平的讨论。为了神化老沙强行伟大航路如东海，沙城民兵觉悟高， 哪怕小学生在贴吧把人物凑在一起比哪个强也会迎合一下原作，你就差把海贼王的海字划掉写成沙贼王了。
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38774#       发表于 2015-9-15 21:01
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-15 21:11 编辑 
@@ -23676,16 +15279,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 对不起，我从来一开始就没比过硬实力（热血漫比不同时段的纯战斗力数据，闲的？），尤其是高级部下的，我比的是人格魅力，包括，气度，谋划，格局和最多对主角团战斗质量的横向对比，是你开始把你想象中的老公或者伟大领袖夸成依法治国的天才，看不上海贼王虚名的翩翩公子，伟大的黑道领袖，把一场至多势均力敌的战斗想象成单方面的调戏，之后有脑补他在80级图斩虎杀龙，现在又单方面宣布胜利，网上辩论最喜欢看的就是对手慢慢转变了，请继续表演，我和你耗了那么多时间写了那么多字，你怎么也得表演够才对得起我不是，先说声谢谢了<img src="https://static.saraba1st.com/image/smiley/face/118.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  qweqweqwe2  
 ##### 38775#       发表于 2015-9-15 21:15
-
 
 
  本帖最后由 qweqweqwe2 于 2015-9-15 21:17 编辑 
@@ -23698,25 +15295,13 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 另外，当时沙鳄鱼的能力可是一直笼罩阿拉巴斯坦全境阻止降雨呢，时髦值比区区鸟笼高多了。
 
 
-
-
-
-
-
 -----
 
 ####  巴尔库夫  
 ##### 38776#       发表于 2015-9-15 21:19
 
 
-
-
 石头人哪里能打了,到是很会转进,和他对位的绿藻头见闻色弱了点,否则躲哪就劈哪,早砍了他
-
-
-
-
-
 
 
 -----
@@ -23725,21 +15310,13 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38777#       发表于 2015-9-15 21:22
 
 
-
-
 咦，这时又发现一个新盲点。为什么沙鳄鱼当时会败？因为当时他的九成功力都跟大气层对抗呀。
-
-
-
-
-
 
 
 -----
 
 ####  fateh5n1  
 ##### 38778#       发表于 2015-9-15 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30170104&amp;ptid=98922" target="_blank">qweqweqwe2 发表于 2015-9-15 21:15</a>
@@ -23750,16 +15327,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 老沙不是用跳舞粉夺走别的地方的雨而是他的能力？求出处
 
 
-
-
-
-
-
 -----
 
 ####  cdfjg  
 ##### 38779#       发表于 2015-9-15 21:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30166064&amp;ptid=98922" target="_blank">dawn34 发表于 2015-9-15 14:12</a>
@@ -23768,16 +15339,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 太久远的是不是没印象了，mr3是被路飞乱猜打中的，没什么时髦值。小冯那个时候还没展现友情，战斗中用变奈美这样的招数，很low，没时髦值。
 
 
-
-
-
-
-
 -----
 
 ####  helmwige  
 ##### 38780#       发表于 2015-9-15 21:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30169987&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-9-15 21:01</a>
@@ -23786,16 +15351,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 少侠喝口茶吧，你就讲讲自己拿什么风车村民兵跟德岛国民一比证明新世界不NB弱不弱智就ok了，混淆视听没意思的~你扣那些什么老公帽子我也不跟你计较，快说弱不弱智<img src="https://static.saraba1st.com/image/smiley/normal/037.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38781#       发表于 2015-9-15 23:02
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-16 00:58 编辑 
@@ -23807,16 +15366,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 阿拉巴斯坦篇是来证明伟大航路究竟有多凶险，以给进入伟大航路的OP一个高潮点，德岛是为了给两年后的路飞他们练刀（同时收小弟），至今最强敌也就是两个4档的事，论打斗质量甚至不如司法岛对路奇，所以至今为止，除了海况岛屿环境复杂点儿，和刚进入伟大航道感觉就像进入了一个真正的奇幻世界的那种激动感比新世界毫无出彩之处，新世界给我的感觉凡是露山漏水的可以进入强者范围的都是仰仗剧情发展升级了的菜比，和网游的一键90级没啥区别，无高潮点，老百姓，大众脸海贼和杂兵还是一样的多一样的废，鱼人篇和德岛篇被喷也难怪<img src="https://static.saraba1st.com/image/smiley/face/14.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  helmwige  
 ##### 38782#       发表于 2015-9-15 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30170877&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-9-15 23:02</a>
@@ -23825,26 +15378,15 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 看你左闪右躲的就是就是不肯正脸接这巴掌，我很满意，你满意吗？<img src="https://static.saraba1st.com/image/smiley/normal/037.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  charlie1989  
 ##### 38783#       发表于 2015-9-16 02:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30170154&amp;amp;ptid=98922" target="_blank">qweqweqwe2 发表于 2015-9-15 21:22</a>
 咦，这时又发现一个新盲点。为什么沙鳄鱼当时会败？因为当时他的九成功力都跟大气层对抗呀。 ...</blockquote>
 我咋记得是跳舞粉
-
-
-
-
-
 
 
 -----
@@ -23853,16 +15395,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38784#       发表于 2015-9-16 09:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30163933&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-9-15 10:48</a>
 
 然后罗又被明哥刷时髦了</blockquote>
 感觉只有索隆不会被明哥刷时髦<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23871,22 +15407,15 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38785#       发表于 2015-9-16 10:37
 
 
-
 <blockquote>qweqweqwe2 发表于 2015-9-15 21:22
 咦，这时又发现一个新盲点。为什么沙鳄鱼当时会败？因为当时他的九成功力都跟大气层对抗呀。 ...</blockquote>
 我也记得是跳舞粉。不过这么说来，明哥的鸟笼才是真的会耗一些功力吧
-
-
-
-
-
 
 
 -----
 
 ####  境宗久  
 ##### 38786#       发表于 2015-9-16 11:50
-
 
 
  本帖最后由 境宗久 于 2015-9-16 11:53 编辑 
@@ -23896,17 +15425,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 新浪应该允许外链吧
 
 
-
-
-
-
-
 -----
 
 ####  faust123  
 ##### 38787#       发表于 2015-9-16 11:53
-
-
 
 
 单从这张看这话发展真心low
@@ -23914,16 +15436,10 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 德岛算是高开低走，尾盘有小幅反弹但是最后还是逃不过一泄千里
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38788#       发表于 2015-9-16 12:21
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-16 12:22 编辑 
@@ -23943,13 +15459,7 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 最后，凯多与大妈互喷，他们都想干掉路飞。 
 
 
-
 罗宾果然担当着参谋的角色<img src="https://static.saraba1st.com/image/smiley/face/108.gif" referrerpolicy="no-referrer">是先打大妈呢还是凯多？凯多可能性更大吧，同时刷两个四皇？这样会不会和恐怖之船一样被打脸啊
-
-
-
-
-
 
 
 -----
@@ -23958,14 +15468,7 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38789#       发表于 2015-9-16 12:23
 
 
-
-
 目前已知最高的赏金是多少？
-
-
-
-
-
 
 
 -----
@@ -23974,15 +15477,9 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38790#       发表于 2015-9-16 12:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30175200&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-9-16 12:21</a>
 路飞一开始拒绝了奥布隆斯的邀请，但当罗宾和索隆提醒他，要不是一路上结交的伙伴，路飞根本走不到那么远。 ...</blockquote>
 好像说是有假内容，比如10亿之类的
-
-
-
-
-
 
 
 -----
@@ -23991,14 +15488,7 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38791#       发表于 2015-9-16 12:34
 
 
-
-
 10亿喷了，看来你们地球人还不会控制气
-
-
-
-
-
 
 
 -----
@@ -24007,14 +15497,7 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38792#       发表于 2015-9-16 12:34
 
 
-
-
 我草10E<img src="https://static.saraba1st.com/image/smiley/nq/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24023,22 +15506,13 @@ BW社的管理方式则相比小唐刚好相反，除了严密的组织与人尽
 ##### 38793#       发表于 2015-9-16 12:36
 
 
-
-
 典型的假吧，比如内容超多，比如用之前的伏笔。真实内容就会比较简单，没有大家预期的爆点（其实有小弟尾田觉得算爆点）
-
-
-
-
-
 
 
 -----
 
 ####  门田京平  
 ##### 38794#       发表于 2015-9-16 12:39
-
-
 
 
 Spoilers Ch.800
@@ -24055,7 +15529,6 @@ Spoilers Ch.800
 这个才是真的吧，
 
 
-
 -一些海贼船出现在永塔玛利亚船团前 
 
 -藤虎把废墟扔过去帮路飞他们 
@@ -24065,16 +15538,10 @@ Spoilers Ch.800
 -全员逃离德雷斯罗萨，开宴会
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38795#       发表于 2015-9-16 12:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30175348&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-9-16 12:33</a>
@@ -24083,16 +15550,10 @@ Spoilers Ch.800
 过早的情报确实可信度比较低，先贴来抢个楼<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38796#       发表于 2015-9-16 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30175422&amp;ptid=98922" target="_blank">门田京平 发表于 2015-9-16 12:39</a>
@@ -24105,25 +15566,13 @@ Spoilers Ch.800
 这个比较像真的，上面的情报我就很纳闷，这帮旗下海贼团若是都回了家，没船的路飞和罗总不可能游着去卓武吧？
 
 
-
-
-
-
-
 -----
 
 ####  Futanari  
 ##### 38797#       发表于 2015-9-16 13:32
 
 
-
-
 有图，喝酒联盟是没跑了
-
-
-
-
-
 
 
 -----
@@ -24132,14 +15581,7 @@ Spoilers Ch.800
 ##### 38798#       发表于 2015-9-16 13:40
 
 
-
-
 800话鼠绘已出
-
-
-
-
-
 
 
 -----
@@ -24148,14 +15590,7 @@ Spoilers Ch.800
 ##### 38799#       发表于 2015-9-16 13:49
 
 
-
-
 尼玛，扉页里不看文字的话你说棺材里躺的是紫罗兰我也信啊。。。
-
-
-
-
-
 
 
 -----
@@ -24164,21 +15599,13 @@ Spoilers Ch.800
 ##### 38800#       发表于 2015-9-16 13:50
 
 
-
-
 拖的一逼
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 38801#       发表于 2015-9-16 13:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30174869&amp;ptid=98922" target="_blank">faust123 发表于 2015-9-16 11:53</a>
@@ -24188,25 +15615,13 @@ Spoilers Ch.800
 惨遭打脸
 
 
-
-
-
-
-
 -----
 
 ####  革新  
 ##### 38802#       发表于 2015-9-16 13:58
 
 
-
-
 绿藻头喝了。。。没有剧透那些废话就是强行把路飞台成大哥。没有凯多喝大妈的消息。  瞎子大将开始逗逼化。。。
-
-
-
-
-
 
 
 -----
@@ -24215,14 +15630,7 @@ Spoilers Ch.800
 ##### 38803#       发表于 2015-9-16 13:58
 
 
-
-
 这一话太傻逼了……这一来德岛篇简直就是场相亲会……鸟叔这悲剧就负责牵红线做媒……
-
-
-
-
-
 
 
 -----
@@ -24231,14 +15639,7 @@ Spoilers Ch.800
 ##### 38804#       发表于 2015-9-16 14:00
 
 
-
-
 藤虎也颜艺了一把。。。最后的旁白给我一种整部作品就是个倒叙的既视感。。。
-
-
-
-
-
 
 
 -----
@@ -24247,14 +15648,7 @@ Spoilers Ch.800
 ##### 38805#       发表于 2015-9-16 14:08
 
 
-
-
 尾页那是baby5么？
-
-
-
-
-
 
 
 -----
@@ -24263,16 +15657,10 @@ Spoilers Ch.800
 ##### 38806#       发表于 2015-9-16 14:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30176137&amp;ptid=98922" target="_blank">门田京平 发表于 2015-9-16 14:00</a>
 
 藤虎也颜艺了一把。。。最后的旁白给我一种整部作品就是个倒叙的既视感。。。 ...</blockquote>
 旁白预告大事件 从艾斯被黑胡子打败就有了
-
-
-
-
-
 
 
 -----
@@ -24281,21 +15669,13 @@ Spoilers Ch.800
 ##### 38807#       发表于 2015-9-16 14:14
 
 
-
-
 德岛七结义，还说这七个小弟要搞个大新闻，不知道是想干啥
-
-
-
-
-
 
 
 -----
 
 ####  Nidhoggr  
 ##### 38808#       发表于 2015-9-16 14:28
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-16 14:36 编辑 
@@ -24305,25 +15685,13 @@ Spoilers Ch.800
 另外，巴托这小弟真是太贴心了<img src="https://static.saraba1st.com/image/smiley/face/200.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38809#       发表于 2015-9-16 14:41
 
 
-
-
 熊猫也是5亿，看来是笔误？
-
-
-
-
-
 
 
 -----
@@ -24332,14 +15700,7 @@ Spoilers Ch.800
 ##### 38810#       发表于 2015-9-16 14:46
 
 
-
-
 路飞悬赏变五亿了，政府发布消息还真是快。。
-
-
-
-
-
 
 
 -----
@@ -24348,14 +15709,7 @@ Spoilers Ch.800
 ##### 38811#       发表于 2015-9-16 14:53
 
 
-
-
 不可能这么快吧，估计就是指GOD<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24364,14 +15718,7 @@ Spoilers Ch.800
 ##### 38812#       发表于 2015-9-16 15:03
 
 
-
-
 所以下一次有新人加入就是从5610开始<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24380,13 +15727,7 @@ Spoilers Ch.800
 ##### 38813#       发表于 2015-9-16 15:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/09.gif" referrerpolicy="no-referrer"> 要搞个什么大新闻啊
-
-
-
-
-
 
 
 -----
@@ -24395,16 +15736,10 @@ Spoilers Ch.800
 ##### 38814#       发表于 2015-9-16 15:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30176422&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-9-16 14:28</a>
 
 正篇里5亿是说错了还是译错了，草帽不是4亿么。仅仅是赏金WT没必要搞得这么玄吧，或者说这是在指GOD.乌索普 ...</blockquote>
 打完已经休息几天了，应该是赏金涨了。
-
-
-
-
-
 
 
 -----
@@ -24413,14 +15748,7 @@ Spoilers Ch.800
 ##### 38815#       发表于 2015-9-16 16:06
 
 
-
-
 OP里根本没像样的赏金猎人，悬赏这东西早就没意义而且没时髦值了，多少都一样。
-
-
-
-
-
 
 
 -----
@@ -24429,14 +15757,7 @@ OP里根本没像样的赏金猎人，悬赏这东西早就没意义而且没时
 ##### 38816#       发表于 2015-9-16 16:55
 
 
-
-
 再看了一遍，罗的事还没交代啊……
-
-
-
-
-
 
 
 -----
@@ -24445,14 +15766,7 @@ OP里根本没像样的赏金猎人，悬赏这东西早就没意义而且没时
 ##### 38817#       发表于 2015-9-16 17:25
 
 
-
-
 藤虎又被战国抓了个现行，然并卯，最多也就是罚酒三杯。海军的政审实在了得，除了红狗之外全是一帮指望不上的家伙，跟隔壁死神小学生的某黑暗组织真是一个模子出来的。
-
-
-
-
-
 
 
 -----
@@ -24461,15 +15775,9 @@ OP里根本没像样的赏金猎人，悬赏这东西早就没意义而且没时
 ##### 38818#       发表于 2015-9-16 17:48
 
 
-
 <blockquote>csd 发表于 2015-9-16 17:25
 藤虎又被战国抓了个现行，然并卯，最多也就是罚酒三杯。海军的政审实在了得，除了红狗之外全是一帮指望不上 ...</blockquote>
 藤壶:你行你上啊！战国:。。。
-
-
-
-
-
 
 
 -----
@@ -24478,14 +15786,7 @@ OP里根本没像样的赏金猎人，悬赏这东西早就没意义而且没时
 ##### 38819#       发表于 2015-9-16 18:00
 
 
-
-
 罗宾和弗兰奇是情侣装啊，连裤子都一样
-
-
-
-
-
 
 
 -----
@@ -24494,14 +15795,7 @@ OP里根本没像样的赏金猎人，悬赏这东西早就没意义而且没时
 ##### 38820#       发表于 2015-9-16 18:40
 
 
-
-
 于是路飞要当的海贼王是罗杰这样的精锐主团+白胡子的大军团这样的咯<img src="https://static.saraba1st.com/image/smiley/face/33.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24510,21 +15804,13 @@ OP里根本没像样的赏金猎人，悬赏这东西早就没意义而且没时
 ##### 38821#       发表于 2015-9-16 19:25
 
 
-
-
 他妈说好的大事件呢！
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38822#       发表于 2015-9-16 19:49
-
 
 
  本帖最后由 影流之主 于 2015-9-16 19:52 编辑 
@@ -24534,25 +15820,13 @@ OP里根本没像样的赏金猎人，悬赏这东西早就没意义而且没时
 另外看雷欧的意思，显然是吃完这一顿还要回德岛把妹，以后大概还是草帽一船人自己行动，有事了就一支穿云箭。
 
 
-
-
-
-
-
 -----
 
 ####  先手必胜  
 ##### 38823#       发表于 2015-9-16 20:42
 
 
-
-
 WT：画饼果实能力者
-
-
-
-
-
 
 
 -----
@@ -24561,14 +15835,7 @@ WT：画饼果实能力者
 ##### 38824#       发表于 2015-9-16 21:15
 
 
-
-
 大新闻是将来会有大新闻
-
-
-
-
-
 
 
 -----
@@ -24577,14 +15844,7 @@ WT：画饼果实能力者
 ##### 38825#       发表于 2015-9-16 22:28
 
 
-
-
 七个小弟以后成为新七武海，草帽海贼团接手世界政府吗<img src="https://static.saraba1st.com/image/smiley/face/157.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24593,16 +15853,9 @@ WT：画饼果实能力者
 ##### 38826#       发表于 2015-9-16 23:48
 
 
-
-
 下一个大事件。。。
 
 如果不是终盘事件的话说不好是正面刚掉古代兵器的事件。
-
-
-
-
-
 
 
 -----
@@ -24611,16 +15864,10 @@ WT：画饼果实能力者
 ##### 38827#       发表于 2015-9-17 00:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30179628&amp;ptid=98922" target="_blank">嘲风 发表于 2015-9-16 19:25</a>
 
 他妈说好的大事件呢！</blockquote>
 在未来啊 目前无人知晓罢了<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24629,21 +15876,13 @@ WT：画饼果实能力者
 ##### 38828#       发表于 2015-9-17 07:46
 
 
-
-
 现在回顾整个篇章感觉明哥真是惨，送装备送声望送老婆送随从，自己时髦跌破，角色定位完全沦为垫脚石，简直op届凯尔萨斯来自: WindowsPhone客户端
-
-
-
-
-
 
 
 -----
 
 ####  Nidhoggr  
 ##### 38829#       发表于 2015-9-17 08:41
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-17 11:00 编辑 
@@ -24653,25 +15892,13 @@ WT：画饼果实能力者
 托雷波尔逗比残忍，维尔戈唯我独尊，皮卡心眼小易怒，迪亚曼蒂纯人渣（同时四人皆是虚伪欺软怕硬之辈），看看这些最初跟明哥并承担抚养教导的都是一帮什么货色就能明白为何明哥会如此扭曲（坷垃松的伟大是因为抚养教导他的是战国），这样的人时髦值掉不跌破就不是传达正能量为主的OP了。明哥派系里能通过扉页小剧场洗白的也就贝拉米了吧。（哦，忘了还有硬派男）
 
 
-
-
-
-
-
 -----
 
 ####  莉洁莉特  
 ##### 38830#       发表于 2015-9-17 09:15
 
 
-
-
 他妈的这傻逼德岛终于完了。
-
-
-
-
-
 
 
 -----
@@ -24680,16 +15907,10 @@ WT：画饼果实能力者
 ##### 38831#       发表于 2015-9-17 09:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30183062&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-9-17 08:41</a>
 
 托雷波尔逗比残忍，维尔戈唯我独尊，皮卡心眼小易怒，迪亚曼蒂纯人渣（同时四人皆是虚伪欺软怕硬之辈）， ...</blockquote>
 我能说这一切都是wt的错么。。。。。
-
-
-
-
-
 
 
 -----
@@ -24698,14 +15919,7 @@ WT：画饼果实能力者
 ##### 38832#       发表于 2015-9-17 09:49
 
 
-
-
 搞个船团是不错，但除了脑残粉小人和白马，其他4个造型设计也太挫了。。。囧
-
-
-
-
-
 
 
 -----
@@ -24714,14 +15928,7 @@ WT：画饼果实能力者
 ##### 38833#       发表于 2015-9-17 09:51
 
 
-
-
 而且按这个走势，罗早晚会成为路飞的左右手，相当于雷利和罗杰的关系，一个想法，不一定对
-
-
-
-
-
 
 
 -----
@@ -24730,15 +15937,9 @@ WT：画饼果实能力者
 ##### 38834#       发表于 2015-9-17 09:56
 
 
-
 <blockquote>無料配送 发表于 2015-9-17 09:49
 搞个船团是不错，但除了脑残粉小人和白马，其他4个造型设计也太挫了。。。囧 ...</blockquote>
 也就提督和老蔡比较路人了。不过其实脑残粉才是最丑的吧...只不过性格和实力加分很多
-
-
-
-
-
 
 
 -----
@@ -24747,15 +15948,9 @@ WT：画饼果实能力者
 ##### 38835#       发表于 2015-9-17 10:05
 
 
-
 <blockquote>無料配送 发表于 2015-9-17 09:51
 而且按这个走势，罗早晚会成为路飞的左右手，相当于雷利和罗杰的关系，一个想法，不一定对 ...</blockquote>
 你这想法不是不一定对，是一定不对。你让人索大情何以堪。。
-
-
-
-
-
 
 
 -----
@@ -24764,14 +15959,7 @@ WT：画饼果实能力者
 ##### 38836#       发表于 2015-9-17 10:27
 
 
-
-
 酒是索隆喝的，会不会以后……
-
-
-
-
-
 
 
 -----
@@ -24780,14 +15968,7 @@ WT：画饼果实能力者
 ##### 38837#       发表于 2015-9-17 16:49
 
 
-
-
 op也是惨。。。新话出了，讨论帖只能第二页找。。哎
-
-
-
-
-
 
 
 -----
@@ -24796,22 +15977,13 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38838#       发表于 2015-9-17 16:56
 
 
-
-
 罗宾和弗兰奇穿情侣装是几个意思啊？
-
-
-
-
-
 
 
 -----
 
 ####  吉黑尽阵  
 ##### 38839#       发表于 2015-9-17 19:31
-
-
 
 
 吉：说起来，路飞真是越来越让人不喜欢了
@@ -24825,27 +15997,15 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
       而且之前第一次遇到黑胡子时明明说酒很好喝，现在却说不爱喝酒了……不想伟大，只想自由……你去当乞丐王比较自由啦！
 
 
-
-
-
-
-
 -----
 
 ####  吉黑尽阵  
 ##### 38840#       发表于 2015-9-17 19:33
 
 
-
-
 吉：路飞的血性，脑子，义气，爷们儿度，一路下来不增反降。原来是个大智若愚的纯爷们儿，现在整个一个脑残熊孩子。
 
       越来越看不下去了。
-
-
-
-
-
 
 
 -----
@@ -24854,21 +16014,13 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38841#       发表于 2015-9-17 19:40
 
 
-
-
 看来海贼王只可能是绿藻头和神·乌索普二选一了......
-
-
-
-
-
 
 
 -----
 
 ####  cdfjg  
 ##### 38842#       发表于 2015-9-17 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30189961&amp;ptid=98922" target="_blank">吉黑尽阵 发表于 2015-9-17 19:31</a>
@@ -24884,25 +16036,13 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 上一话不少人都觉得路飞会拒绝，这么多年来他给人的感觉都是这样的，我觉得是符合人物性格的。
 
 
-
-
-
-
-
 -----
 
 ####  琴音  
 ##### 38843#       发表于 2015-9-17 20:09
 
 
-
-
 没觉得这话有毛病，挺赞的，期待打四皇
-
-
-
-
-
 
 
 -----
@@ -24911,14 +16051,7 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38844#       发表于 2015-9-17 20:13
 
 
-
-
 感觉这话还行啊
-
-
-
-
-
 
 
 -----
@@ -24927,15 +16060,9 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38845#       发表于 2015-9-17 20:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;amp;goto=findpost&amp;amp;pid=30183915&amp;amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-9-17 10:05</a>
 你这想法不是不一定对，是一定不对。你让人索大情何以堪。。</blockquote>
 然而索隆不是智将，略脑残，山治目前来看又不太能打
-
-
-
-
-
 
 
 -----
@@ -24944,7 +16071,6 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38846#       发表于 2015-9-17 22:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30189961&amp;ptid=98922" target="_blank">吉黑尽阵 发表于 2015-9-17 19:31</a>
 
 吉：说起来，路飞真是越来越让人不喜欢了
@@ -24953,11 +16079,6 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 
       那意思，我才懒 ...</blockquote>
 路飞早就定义了，这片大海上最自由的人就是海贼王，他追求的东西从来就没变过，权力也从来就没被他当回事过。对他来说周围这些一起经历过生死的同伴那都是他的朋友，把朋友当小弟这事压根就没这个概念。所以我觉得拒绝喝酒很符合人物性格。
-
-
-
-
-
 
 
 -----
@@ -24966,7 +16087,6 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38847#       发表于 2015-9-17 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30189961&amp;ptid=98922" target="_blank">吉黑尽阵 发表于 2015-9-17 19:31</a>
 
 吉：说起来，路飞真是越来越让人不喜欢了
@@ -24977,27 +16097,15 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 路飞早就定义了，这片大海上最自由的人就是海贼王，他追求的东西从来就没变过，权力也从来就没被他当回事过。对他来说周围这些一起经历过生死的同伴那都是他的朋友，把朋友当小弟这事压根就没这个概念。所以我觉得拒绝喝酒很符合人物性格。
 
 
-
-
-
-
-
 -----
 
 ####  GA_Frank  
 ##### 38848#       发表于 2015-9-17 22:50
 
 
-
-
 嗯，是很符合人物性格：一个熊孩子性格的熊孩子。
 
 求罗常驻。
-
-
-
-
-
 
 
 -----
@@ -25006,16 +16114,9 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38849#       发表于 2015-9-17 23:06
 
 
-
-
 其实路飞在第一话里完全是个正常孩子，会害怕，不理解红发为什么不还手
 
 战斗方式也变了，以前打那个东海的克里克提督？直接一拳打在那个都是尖的斗篷上（我那时候还以为橡胶果实还会自我修复）。现在都喜欢闪避这些尖尖的东西了
-
-
-
-
-
 
 
 -----
@@ -25024,21 +16125,13 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38850#       发表于 2015-9-17 23:10
 
 
-
-
 如果4档秒了明哥我就得这一话打80分
-
-
-
-
-
 
 
 -----
 
 ####  影流之主  
 ##### 38851#       发表于 2015-9-18 06:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30189961&amp;ptid=98922" target="_blank">吉黑尽阵 发表于 2015-9-17 19:31</a>
@@ -25053,16 +16146,10 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 而且虽说在对外活动上路飞有最终决定权，但其实索隆才是这船上真正管人事的，好几次涉及内部人员变动的时候索隆都是最后兜底那个，包括罗宾背叛那次也是他开口说出“这个女人是敌是友今晚见分晓”这种路飞绝对说不出来的话。所以这酒索隆喝了跟路飞喝了没区别
 
 
-
-
-
-
-
 -----
 
 ####  影流之主  
 ##### 38852#       发表于 2015-9-18 07:14
-
 
 
  本帖最后由 影流之主 于 2015-9-18 07:17 编辑 
@@ -25078,16 +16165,10 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 拿现实眼光来看这种设定肯定单纯幼稚，但是对于漫画来说我觉得挺好，一个热血漫把现实的黑暗写到这个程度我觉得就差不多了，真要为了不幼稚表现的更现实，那可能就变成S1人民心目中那种看似神作其实是在喂屎的东西了
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 38853#       发表于 2015-9-18 08:20
-
 
 
 <blockquote>影流之主 发表于 2015-9-18 07:14
@@ -25099,16 +16180,10 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 热血漫也确实点到即止就够了。要到看神实屎的程度也很难。要么gmj重复错误一个德性，要么草帽众吊路灯。前者可能性微乎其微，后者不可能。
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38854#       发表于 2015-9-18 08:27
-
 
 
  本帖最后由 Nidhoggr 于 2015-9-18 08:30 编辑 
@@ -25120,26 +16195,15 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 另外，我非常赞同上古之国也未必白的观点
 
 
-
-
-
-
-
 -----
 
 ####  谁说法海不懂爱  
 ##### 38855#       发表于 2015-9-18 08:39
 
 
-
 <blockquote>Nidhoggr 发表于 2015-9-18 08:27
 罗杰其实算是被吊路灯了吧……说不定结尾所揭示的罗杰就是那种知道真相却无能为力，只能以生命为代价唤醒 ...</blockquote>
 罗杰那种情况和吊路灯还是有区别的，不是团灭被抓，而是不想就这么病死，死前想搞个大新闻闹腾。就他和路飞那相似到快重合的形象，救国救民应该是谈不上的。把局势搞乱也就客观上，让gmj有机可乘。上古之国要是白的话，各种把柄就说不过去了。
-
-
-
-
-
 
 
 -----
@@ -25148,14 +16212,7 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38856#       发表于 2015-9-18 09:23
 
 
-
-
 路飞对应罗杰的话，索隆是雷利，罗差不多就是白胡子了，烟男是卡普，以后要给路飞养儿子，一个想法<img src="https://static.saraba1st.com/image/smiley/face/12.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25164,21 +16221,13 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38857#       发表于 2015-9-18 16:40
 
 
-
-
 卡普怎么看都是克比啊
-
-
-
-
-
 
 
 -----
 
 ####  吉黑尽阵  
 ##### 38858#       发表于 2015-9-18 16:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30193048&amp;ptid=98922" target="_blank">影流之主 发表于 2015-9-18 07:14</a>
@@ -25189,26 +16238,15 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 吉：不愧是影流之主，水平就是高！我服！
 
 
-
-
-
-
-
 -----
 
 ####  Nidhoggr  
 ##### 38859#       发表于 2015-9-18 17:18
 
 
-
  本帖最后由 Nidhoggr 于 2015-9-18 17:22 编辑 
 
 想想从亚尔丽塔，蒙卡，巴基，克洛，克里克，阿龙，老沙，艾尼路，路奇，莫利亚，霍迪，凯撒，明哥（我有说漏么？）至今这帮被路飞打飞的总BOSS，除了巴基有些逗比元素外，其他都是属于典型的热血漫恶役（目标不是夺取就是毁灭，除了后期洗白的，对战主角时基本都是没啥人性，反人类的），像凯多这样以自杀为目标的逗比化总BOSS，在整个热血漫中也是属于极为少见的，所以挺期待凯多一战的，希望以WT的天才能玩出不同的花来
-
-
-
-
-
 
 
 -----
@@ -25217,14 +16255,7 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38860#       发表于 2015-9-18 18:33
 
 
-
-
 我怎么记得跟黑胡子第一次见面是“这个派好吃得想死啊！”“这个派难吃得要死啊！”“这个汽水特别好喝啊！”“这个汽水特别难喝啊！”“你舌头是不是有问题啊！”“你脑子是不是有问题啊！”，不是酒是汽水啊，难道我被翻译骗了
-
-
-
-
-
 
 
 -----
@@ -25233,16 +16264,10 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38861#       发表于 2015-9-18 20:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30199430&amp;ptid=98922" target="_blank">李剡s 发表于 2015-9-18 18:33</a>
 
 我怎么记得跟黑胡子第一次见面是“这个派好吃得想死啊！”“这个派难吃得要死啊！”“这个汽水特别好喝啊！ ...</blockquote>
 姑且不提翻译问题，我是不记得路飞喝过白酒似得东西（和萨博，艾斯的结义酒不知是否白），庆贺的时候最多喝个啤酒吧
-
-
-
-
-
 
 
 -----
@@ -25251,16 +16276,10 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38862#       发表于 2015-9-18 23:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30198700&amp;ptid=98922" target="_blank">Nidhoggr 发表于 2015-9-18 17:18</a>
 
 想想从亚尔丽塔，蒙卡，巴基，克洛，克里克，阿龙，老沙，艾尼路，路奇，莫利亚，霍迪，凯撒，明哥（我有说 ...</blockquote>
 某个用缓慢光线的银狐不算BOSS？
-
-
-
-
-
 
 
 -----
@@ -25269,14 +16288,7 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38863#       发表于 2015-9-19 00:04
 
 
-
-
 黑曼巴科比
-
-
-
-
-
 
 
 -----
@@ -25285,15 +16297,9 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38864#       发表于 2015-9-21 15:54
 
 
-
  本帖最后由 莉洁莉特 于 2015-9-21 21:28 编辑 
 
 微博上黑契钓鱼钓的真欢。
-
-
-
-
-
 
 
 -----
@@ -25302,14 +16308,7 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38865#       发表于 2015-9-21 18:40
 
 
-
-
 路飞不喝这酒会不会是因为未成年的自我规制？
-
-
-
-
-
 
 
 -----
@@ -25318,14 +16317,7 @@ op也是惨。。。新话出了，讨论帖只能第二页找。。哎
 ##### 38866#       发表于 2015-9-21 19:28
 
 
-
-
 baby5的弃暗投明简直毫无逻辑
-
-
-
-
-
 
 
 -----
@@ -25334,13 +16326,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38867#       发表于 2015-9-21 19:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">居然还有脸举杯庆祝
-
-
-
-
-
 
 
 -----
@@ -25349,14 +16335,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38868#       发表于 2015-9-23 17:23
 
 
-
-
 这周休刊？
-
-
-
-
-
 
 
 -----
@@ -25365,15 +16344,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38869#       发表于 2015-9-23 17:23
 
 
-
-
 这周休刊？
-
-
-
-
-
-
 
 
 -----
@@ -25382,14 +16353,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38870#       发表于 2015-9-23 17:23
 
 
-
-
 这周休刊？
-
-
-
-
-
 
 
 -----
@@ -25398,14 +16362,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38871#       发表于 2015-9-24 12:14
 
 
-
-
 情报出了，赏金都涨了，乌索普大神2亿，香吉1亿7700w，笑死！<img src="https://static.saraba1st.com/image/smiley/face/00.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25414,14 +16371,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38872#       发表于 2015-9-24 12:17
 
 
-
-
 为啥厨师掉线一年赏金还能涨……
-
-
-
-
-
 
 
 -----
@@ -25430,14 +16380,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38873#       发表于 2015-9-24 12:18
 
 
-
-
 噫!!!!长鼻子超过厨子了
-
-
-
-
-
 
 
 -----
@@ -25446,14 +16389,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38874#       发表于 2015-9-24 12:19
 
 
-
-
 新·三大主力诞生！
-
-
-
-
-
 
 
 -----
@@ -25462,14 +16398,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38875#       发表于 2015-9-24 12:21
 
 
-
-
 不会一整话都在说赏金吧？
-
-
-
-
-
 
 
 -----
@@ -25478,14 +16407,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38876#       发表于 2015-9-24 12:30
 
 
-
-
 厨子已被踢出三大主力<img src="https://static.saraba1st.com/image/smiley/face/161.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25494,14 +16416,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38877#       发表于 2015-9-24 12:30
 
 
-
-
 这个新人刚出场就1亿7千万了，是不是有什么伏笔啊，他果实能力是什么？
-
-
-
-
-
 
 
 -----
@@ -25510,14 +16425,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38878#       发表于 2015-9-24 12:31
 
 
-
-
 乔巴翻倍！100贝利！
-
-
-
-
-
 
 
 -----
@@ -25526,14 +16434,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38879#       发表于 2015-9-24 12:34
 
 
-
-
 这一话信息量爆棚，山治身世论又要甚嚣尘上了
-
-
-
-
-
 
 
 -----
@@ -25542,15 +16443,8 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38880#       发表于 2015-9-24 12:39
 
 
-
-
 脑残粉的船图片天际啊！
 <img src="http://imgsrc.baidu.com/forum/w%3D580%3B/sign=332403809445d688a302b2ac94f97f1e/4afbfbedab64034f882908b5a9c379310b551d99.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25559,14 +16453,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38881#       发表于 2015-9-24 12:39
 
 
-
-
 乔巴的赏金直接翻了个倍，草帽团船长可以换人了
-
-
-
-
-
 
 
 -----
@@ -25575,14 +16462,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38882#       发表于 2015-9-24 12:42
 
 
-
-
 最终页：巴托看到山治赏金旁写着“只许抓活的”，而感到奇怪。
-
-
-
-
-
 
 
 -----
@@ -25591,21 +16471,13 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38883#       发表于 2015-9-24 12:44
 
 
-
-
 哈哈哈哈巴托的船首相
-
-
-
-
-
 
 
 -----
 
 ####  双面人  
 ##### 38884#       发表于 2015-9-24 12:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253004&amp;ptid=98922" target="_blank">真红眼教授 发表于 2015-9-24 12:42</a>
@@ -25616,32 +16488,19 @@ baby5的弃暗投明简直毫无逻辑
 吧
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 38885#       发表于 2015-9-24 13:14
 
 
-
-
 看了这个情报我有个预感，厨子雪藏这么久是为了之后身世之谜引起事件而做的铺垫，这应该是的大事件，重要度相当于罗宾之于司法岛，这既符合了尾田的对称写法，又符合了尾田一贯的火山喷发式剧情脉络，之后的篇章应该有一个以厨子身世为**的事件，那个篇章厨子会是第二主角。
-
-
-
-
-
 
 
 -----
 
 ####  FCS-31  
 ##### 38886#       发表于 2015-9-24 13:25
-
 
 
  本帖最后由 FCS-31 于 2015-9-24 13:27 编辑 
@@ -25652,32 +16511,19 @@ baby5的弃暗投明简直毫无逻辑
 我早就以为尾田已经彻底把这玩意儿忘掉了呢。
 
 
-
-
-
-
-
 -----
 
 ####  saturnus  
 ##### 38887#       发表于 2015-9-24 13:35
 
 
-
-
 很多大人物都露脸了啊
-
-
-
-
-
 
 
 -----
 
 ####  黄金蔷薇  
 ##### 38888#       发表于 2015-9-24 14:09
-
 
 
  本帖最后由 黄金蔷薇 于 2015-9-24 14:32 编辑 
@@ -25730,33 +16576,15 @@ baby5的弃暗投明简直毫无逻辑
 世界政府一直在造“桥”，同时也在积极收集古代兵器，这说明世界政府也希望到达拉乎德尔，那里不应该只有“思想传承”那么简单。
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  mashav  
 ##### 38889#       发表于 2015-9-24 14:13
 
 
-
-
 好久没看的这么开心了XD
 
 这话信息量也好大
-
-
-
-
-
 
 
 -----
@@ -25765,17 +16593,10 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38890#       发表于 2015-9-24 14:15
 
 
-
-
 天国的狙击王。。。
 
 
 ----发送自 [Sony L50t,Android 4.4.2](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -25784,14 +16605,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38891#       发表于 2015-9-24 14:19
 
 
-
-
 巴基果然是七武海了，这话要劫火鸡的杰克船长是谁？
-
-
-
-
-
 
 
 -----
@@ -25800,14 +16614,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38892#       发表于 2015-9-24 14:22
 
 
-
-
 喷了，斯潘达姆被焦作人后CP0里变路奇的小弟了
-
-
-
-
-
 
 
 -----
@@ -25816,14 +16623,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38893#       发表于 2015-9-24 14:30
 
 
-
-
 这话真不错
-
-
-
-
-
 
 
 -----
@@ -25832,14 +16632,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38894#       发表于 2015-9-24 14:33
 
 
-
-
 绿牛的阴影看上去好瘦弱，感觉画风跟白马差不多的样子，另外这怎么冒出来个杰克船长。。。难不成是剩余的一位75海吗<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25848,14 +16641,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38895#       发表于 2015-9-24 14:33
 
 
-
-
 乌索普的赏金也好 海报也好 雕像也罢 都令人深刻啊
-
-
-
-
-
 
 
 -----
@@ -25864,14 +16650,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38896#       发表于 2015-9-24 14:36
 
 
-
-
 怎么火鸡被打败了反而时髦值有所恢复的感觉
-
-
-
-
-
 
 
 -----
@@ -25880,23 +16659,16 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38897#       发表于 2015-9-24 14:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254083&amp;ptid=98922" target="_blank">saiad 发表于 2015-9-24 14:36</a>
 
 怎么火鸡被打败了反而时髦值有所恢复的感觉</blockquote>
 +1，这几句嘴炮放的相当带感啊
 
 
-
-
-
-
-
 -----
 
 ####  chaoslee  
 ##### 38898#       发表于 2015-9-24 14:41
-
 
 
 <blockquote>引用第38998楼saiad于2015-09-24 14:36发表的  :
@@ -25908,27 +16680,15 @@ baby5的弃暗投明简直毫无逻辑
 ----发送自 [Sony L50t,Android 4.4.2](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  scl  
 ##### 38899#       发表于 2015-9-24 14:44
 
 
-
-
 真不愧是脑残粉的船队<img src="https://static.saraba1st.com/image/smiley/face/154.gif" referrerpolicy="no-referrer">
 
 我看藤虎再这么划水下去快变成卖萌役了
-
-
-
-
-
 
 
 -----
@@ -25937,14 +16697,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38900#       发表于 2015-9-24 14:47
 
 
-
-
 话说巴托的船 船舷有乔巴的鹿角 还种了桔子树。。。
-
-
-
-
-
 
 
 -----
@@ -25953,14 +16706,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38901#       发表于 2015-9-24 14:52
 
 
-
-
 一个脑残粉的自我修养
-
-
-
-
-
 
 
 -----
@@ -25969,14 +16715,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38902#       发表于 2015-9-24 14:56
 
 
-
-
 山治其实是天龙人吧……等着WT打脸<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25985,14 +16724,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38903#       发表于 2015-9-24 14:58
 
 
-
-
 贴吧有分析山治是克拉松的儿子的 细思空寂啊<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26001,24 +16733,16 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38904#       发表于 2015-9-24 15:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254280&amp;ptid=98922" target="_blank">zerock 发表于 2015-9-24 14:58</a>
 
 贴吧有分析山治是克拉松的儿子的 细思空寂啊</blockquote>
 年龄对不上吧
 
 
-
-
-
-
-
 -----
 
 ####  Charizard  
 ##### 38905#       发表于 2015-9-24 15:02
-
-
 
 
 哎呀这一话信息量好大，藤虎这是要步上烟男的道路一直追着路飞跑了？
@@ -26028,25 +16752,13 @@ baby5的弃暗投明简直毫无逻辑
 山治只能活捉的条件也很有深意呀
 
 
-
-
-
-
-
 -----
 
 ####  知夏  
 ##### 38906#       发表于 2015-9-24 15:08
 
 
-
-
 这话好看多了，还让人对今后发展充满期待
-
-
-
-
-
 
 
 -----
@@ -26055,14 +16767,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38907#       发表于 2015-9-24 15:08
 
 
-
-
 801话更应当作为800话存在啊！
-
-
-
-
-
 
 
 -----
@@ -26071,14 +16776,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38908#       发表于 2015-9-24 15:10
 
 
-
-
 明知道对面是战国藤虎鹤的超豪华阵容居然还打算劫船，这个杰克船长到底是真牛逼还是真逗比……
-
-
-
-
-
 
 
 -----
@@ -26087,14 +16785,7 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38909#       发表于 2015-9-24 15:16
 
 
-
-
 知道为什么有个小孩穿着熊的背心吗？我想应该是熊看到又一个国家自由了会很高兴吧。
-
-
-
-
-
 
 
 -----
@@ -26103,24 +16794,15 @@ baby5的弃暗投明简直毫无逻辑
 ##### 38910#       发表于 2015-9-24 15:19
 
 
-
-
 Jack 德岛前692话就出现了
 
 小唐是Joker，剩下king和Queen未登场也可能是已露脸的人物
-
-
-
-
-
 
 
 -----
 
 ####  gwchobit  
 ##### 38911#       发表于 2015-9-24 15:29
-
-
 
 
 大信息量各种伏笔各种开坑，这应该才是800话吧
@@ -26134,26 +16816,15 @@ joker时髦的躺着宣布：霸权争夺战开幕！
 ps：签名里鸡和右上是哪两个人的呢？好像还少了一个
 
 
-
-
-
-
-
 -----
 
 ####  银翼的维罗西  
 ##### 38912#       发表于 2015-9-24 15:33
 
 
-
 <blockquote>zerock 发表于 2015-9-24 14:58
 贴吧有分析山治是克拉松的儿子的 细思空寂啊</blockquote>
 这个不靠谱，克拉松儿子没有能让世界政府如此保全的颜面。古代兵器都比这个靠谱。
-
-
-
-
-
 
 
 -----
@@ -26162,14 +16833,7 @@ ps：签名里鸡和右上是哪两个人的呢？好像还少了一个
 ##### 38913#       发表于 2015-9-24 15:34
 
 
-
-
 穿熊背心的小孩之前就出现过，就是出鸟笼时有位母亲大喊我家的穿小熊图案的孩子谁看见了
-
-
-
-
-
 
 
 -----
@@ -26178,14 +16842,7 @@ ps：签名里鸡和右上是哪两个人的呢？好像还少了一个
 ##### 38914#       发表于 2015-9-24 15:36
 
 
-
-
 记得巴基被抓就是因为寻找杰克船长的宝藏找到假的，遇到海军了，在监狱里路飞送给巴基的是杰克船长宝藏的线索的真货！
-
-
-
-
-
 
 
 -----
@@ -26194,14 +16851,7 @@ ps：签名里鸡和右上是哪两个人的呢？好像还少了一个
 ##### 38915#       发表于 2015-9-24 15:36
 
 
-
-
 不过我觉得火鸡躺地大谈新时局还是远比不上罗一边砍山一边说新时代到来那里
-
-
-
-
-
 
 
 -----
@@ -26210,17 +16860,10 @@ ps：签名里鸡和右上是哪两个人的呢？好像还少了一个
 ##### 38916#       发表于 2015-9-24 15:40
 
 
-
-
 哪里说路奇是cp0了？不能自己当海贼了么？
 
 
 另外路飞穿的背心背后有类似凯多徽记的图案？
-
-
-
-
-
 
 
 -----
@@ -26229,14 +16872,7 @@ ps：签名里鸡和右上是哪两个人的呢？好像还少了一个
 ##### 38917#       发表于 2015-9-24 15:45
 
 
-
-
 明哥被抓居然还有定制的眼镜戴<img src="https://static.saraba1st.com/image/smiley/face/18.gif" referrerpolicy="no-referrer"> 简直时髦！
-
-
-
-
-
 
 
 -----
@@ -26245,14 +16881,7 @@ ps：签名里鸡和右上是哪两个人的呢？好像还少了一个
 ##### 38918#       发表于 2015-9-24 15:55
 
 
-
-
 cp0是给世界政府服务的？路奇又回去给政府卖命了？
-
-
-
-
-
 
 
 -----
@@ -26261,16 +16890,10 @@ cp0是给世界政府服务的？路奇又回去给政府卖命了？
 ##### 38919#       发表于 2015-9-24 15:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254758&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-9-24 15:45</a>
 
 明哥被抓居然还有定制的眼镜戴 简直时髦！</blockquote>
 又一次证明了，眼镜才是本体<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26279,23 +16902,16 @@ cp0是给世界政府服务的？路奇又回去给政府卖命了？
 ##### 38920#       发表于 2015-9-24 16:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254469&amp;ptid=98922" target="_blank">地狱满员 发表于 2015-9-24 15:16</a>
 
 知道为什么有个小孩穿着熊的背心吗？我想应该是熊看到又一个国家自由了会很高兴吧。 ...</blockquote>
 那应该是和平主义者……
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 38921#       发表于 2015-9-24 16:24
-
 
 
 <blockquote>引用第39018楼羲和于2015-09-24 15:40发表的  :
@@ -26307,16 +16923,10 @@ cp0是给世界政府服务的？路奇又回去给政府卖命了？
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  kuroro  
 ##### 38922#       发表于 2015-9-24 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254851&amp;ptid=98922" target="_blank">zero虚 发表于 2015-9-24 15:55</a>
@@ -26325,16 +16935,10 @@ cp0是给世界政府服务的？路奇又回去给政府卖命了？</blockquot
 CP0直属天龙人
 
 
-
-
-
-
-
 -----
 
 ####  羲和  
 ##### 38923#       发表于 2015-9-24 16:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255115&amp;ptid=98922" target="_blank">黑上シグマ 发表于 2015-9-24 16:24</a>
@@ -26346,25 +16950,13 @@ CP0直属天龙人
 我的眼睛是流鼻涕用的<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  胡铁花  
 ##### 38924#       发表于 2015-9-24 16:38
 
 
-
-
 Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将和4艘船啊？
-
-
-
-
-
 
 
 -----
@@ -26373,14 +16965,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38925#       发表于 2015-9-24 16:46
 
 
-
-
 杰克船长说的是“夺回”joker，这是凯多的意思？
-
-
-
-
-
 
 
 -----
@@ -26389,16 +16974,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38926#       发表于 2015-9-24 16:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255272&amp;ptid=98922" target="_blank">胡铁花 发表于 2015-9-24 16:38</a>
 
 Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将和4艘船啊？</blockquote>
 你当人家不认识元帅啊
-
-
-
-
-
 
 
 -----
@@ -26407,16 +16986,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38927#       发表于 2015-9-24 16:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255380&amp;ptid=98922" target="_blank">偷笑同党 发表于 2015-9-24 16:47</a>
 
 你当人家不认识元帅啊</blockquote>
 元帅和参谋都在船里，望远镜看不到的吧？
-
-
-
-
-
 
 
 -----
@@ -26425,16 +16998,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38928#       发表于 2015-9-24 16:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255410&amp;ptid=98922" target="_blank">胡铁花 发表于 2015-9-24 16:50</a>
 
 元帅和参谋都在船里，望远镜看不到的吧？</blockquote>
 藤虎不在船里么，没有参谋和前元帅哪至于那么惊讶
-
-
-
-
-
 
 
 -----
@@ -26443,14 +17010,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38929#       发表于 2015-9-24 17:00
 
 
-
-
 哈哈哈，乌索普颜艺被做成雕像了。
-
-
-
-
-
 
 
 -----
@@ -26459,14 +17019,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38930#       发表于 2015-9-24 17:00
 
 
-
-
 这话不错 看的过瘾
-
-
-
-
-
 
 
 -----
@@ -26475,16 +17028,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38931#       发表于 2015-9-24 17:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255521&amp;ptid=98922" target="_blank">chloerei 发表于 2015-9-24 17:00</a>
 
 哈哈哈，乌索普颜艺被做成雕像了。</blockquote>
 毕竟是靠颜艺拯救的世界
-
-
-
-
-
 
 
 -----
@@ -26493,13 +17040,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38932#       发表于 2015-9-24 17:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/38.gif" referrerpolicy="no-referrer"> 罗宾和弗兰奇情侣装一脸幸福……
-
-
-
-
-
 
 
 -----
@@ -26508,14 +17049,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38933#       发表于 2015-9-24 17:08
 
 
-
-
 草帽团9个人悬赏总计15.7亿+100贝利<img src="https://static.saraba1st.com/image/smiley/face/06.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26524,14 +17058,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38934#       发表于 2015-9-24 17:09
 
 
-
-
 难得难得，多久没看到素质这么高的一话了，坐看火鸡会不会被救走
-
-
-
-
-
 
 
 -----
@@ -26540,16 +17067,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38935#       发表于 2015-9-24 17:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255410&amp;ptid=98922" target="_blank">胡铁花 发表于 2015-9-24 16:50</a>
 
 元帅和参谋都在船里，望远镜看不到的吧？</blockquote>
 强行骗自己 都说了上面阵容太豪华。。。看不到怎么豪华
-
-
-
-
-
 
 
 -----
@@ -26558,16 +17079,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38936#       发表于 2015-9-24 17:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255410&amp;ptid=98922" target="_blank">胡铁花 发表于 2015-9-24 16:50</a>
 
 元帅和参谋都在船里，望远镜看不到的吧？</blockquote>
 强行骗自己 都说了上面阵容太豪华。。。看不到怎么豪华
-
-
-
-
-
 
 
 -----
@@ -26576,16 +17091,9 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38937#       发表于 2015-9-24 17:44
 
 
-
-
 仔细想想耶稣的经典形象也是一脸血挂起来的样子
 
 嗯，这才是GOD应有的待遇，很合理
-
-
-
-
-
 
 
 -----
@@ -26594,14 +17102,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38938#       发表于 2015-9-24 17:46
 
 
-
-
 这个jack谁啊，要从前元帅+大将手上抢人
-
-
-
-
-
 
 
 -----
@@ -26610,17 +17111,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38939#       发表于 2015-9-24 17:47
 
 
-
-
 猜山治身世的别忘了帅锅飞鱼骑士<img src="https://static.saraba1st.com/image/smiley/face/191.gif" referrerpolicy="no-referrer">
 
 
 ----发送自 [Sony D6503,Android 5.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -26629,16 +17123,9 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38940#       发表于 2015-9-24 17:52
 
 
-
-
 至于山治，我查了一下已出现的天龙人图片，发现除了那个被路飞打飞的天龙人是黑发，其他的天龙人都是金发。
 
 既然出现了特例就不能说天龙人的特征是金发了，不过似乎可以作为一个疑点先记下？
-
-
-
-
-
 
 
 -----
@@ -26647,17 +17134,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38941#       发表于 2015-9-24 17:56
 
 
-
-
 这话才是800话该有的水准啊
 
 
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
-
-
-
-
-
 
 
 -----
@@ -26666,16 +17146,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38942#       发表于 2015-9-24 18:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255942&amp;ptid=98922" target="_blank">FCS-31 发表于 2015-9-24 17:46</a>
 
 这个jack谁啊，要从前元帅+大将手上抢人</blockquote>
 说不定只是能力适合夺物
-
-
-
-
-
 
 
 -----
@@ -26684,24 +17158,16 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38943#       发表于 2015-9-24 18:09
 
 
-
-
 黑胡子左边那个是谁啊？没印象呢
 
 
 ----发送自 [Xiaomi MI 2SC,Android 4.1.1](http://stage1.5j4m.com/?1.17)
 
 
-
-
-
-
-
 -----
 
 ####  584520184  
 ##### 38944#       发表于 2015-9-24 18:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256143&amp;ptid=98922" target="_blank">千叶铁矢 发表于 2015-9-24 18:09</a>
@@ -26716,16 +17182,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 话说大妈的真相也看了个大概了
 
 
-
-
-
-
-
 -----
 
 ####  Maid  
 ##### 38945#       发表于 2015-9-24 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256012&amp;ptid=98922" target="_blank">影流之主 发表于 2015-9-24 17:52</a>
@@ -26734,26 +17194,15 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 估计都是权贵后代这种设定吧？我猜是其中一个五老星的家属
 
 
-
-
-
-
-
 -----
 
 ####  恒温死神  
 ##### 38946#       发表于 2015-9-24 18:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255621&amp;ptid=98922" target="_blank">alecwong 发表于 2015-9-24 17:09</a>
 难得难得，多久没看到素质这么高的一话了，坐看火鸡会不会被救走</blockquote>
 救走了多夫不就白时髦了么
-
-
-
-
-
 
 
 -----
@@ -26762,14 +17211,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38947#       发表于 2015-9-24 18:23
 
 
-
-
 抢火鸡的是凯多的部下，船挂着凯多的旗子
-
-
-
-
-
 
 
 -----
@@ -26778,16 +17220,9 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38948#       发表于 2015-9-24 18:30
 
 
-
-
 重点是凯多不知道鸟叔本体并不会做人造果实，而丢了根据地和凯撒的鸟叔已经不可能满足凯多的要求了……
 
 所以这么看如果被凯多救走了那还不如去大监狱养老呢
-
-
-
-
-
 
 
 -----
@@ -26796,15 +17231,9 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38949#       发表于 2015-9-24 18:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255621&amp;ptid=98922" target="_blank">alecwong 发表于 2015-9-24 17:09</a>
 难得难得，多久没看到素质这么高的一话了，坐看火鸡会不会被救走</blockquote>
 救走了多夫不就白时髦了么
-
-
-
-
-
 
 
 -----
@@ -26813,14 +17242,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38950#       发表于 2015-9-24 18:48
 
 
-
-
 这话太过瘾，下话不休刊！
-
-
-
-
-
 
 
 -----
@@ -26829,21 +17251,13 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38951#       发表于 2015-9-24 18:53
 
 
-
-
 悬赏金部分的吐槽太给力了。
-
-
-
-
-
 
 
 -----
 
 ####  弯弓射山猪  
 ##### 38952#       发表于 2015-9-24 18:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30253336&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2015-9-24 13:14</a>
@@ -26855,25 +17269,13 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 <img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">再来一次WATER SEVEN的高潮吧
 
 
-
-
-
-
-
 -----
 
 ####  シャル  
 ##### 38953#       发表于 2015-9-24 18:58
 
 
-
-
 山治是啥情况？他的过去就是从被红足救开始的，之前都不清楚啊
-
-
-
-
-
 
 
 -----
@@ -26882,14 +17284,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38954#       发表于 2015-9-24 19:00
 
 
-
-
 乌索普比山治还高啊
-
-
-
-
-
 
 
 -----
@@ -26898,17 +17293,11 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38955#       发表于 2015-9-24 19:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255942&amp;ptid=98922" target="_blank">FCS-31 发表于 2015-9-24 17:46</a>
 这个jack谁啊，要从前元帅+大将手上抢人</blockquote>
 微博上鹰大说是绿牛。
 
 —— 来自 Sony D6503, Android 5.0.2
-
-
-
-
-
 
 
 -----
@@ -26917,7 +17306,6 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38956#       发表于 2015-9-24 19:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255942&amp;ptid=98922" target="_blank">FCS-31 发表于 2015-9-24 17:46</a>
 这个jack谁啊，要从前元帅+大将手上抢人</blockquote>
 微博上鹰大说是绿牛。
@@ -26925,16 +17313,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 —— 来自 Sony D6503, Android 5.0.2
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 38957#       发表于 2015-9-24 19:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256641&amp;ptid=98922" target="_blank">莉洁莉特 发表于 2015-9-24 13:16</a>
@@ -26946,25 +17328,13 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 绿牛为什么要从藤虎手上抢人，海军内部斗争已经这么激烈了吗。。
 
 
-
-
-
-
-
 -----
 
 ####  kuroro  
 ##### 38958#       发表于 2015-9-24 19:38
 
 
-
-
 火鸡对鹤那敬语用的，比对他老子还尊重
-
-
-
-
-
 
 
 -----
@@ -26973,16 +17343,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38959#       发表于 2015-9-24 20:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256797&amp;ptid=98922" target="_blank">kuroro 发表于 2015-9-24 19:38</a>
 
 火鸡对鹤那敬语用的，比对他老子还尊重</blockquote>
 毕竟加入七武海之前被鹤追着碾压了那么久
-
-
-
-
-
 
 
 -----
@@ -26991,16 +17355,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38960#       发表于 2015-9-24 20:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30254679&amp;ptid=98922" target="_blank"> 最萌贝波 发表于 2015-9-24 15:36</a>
 
 记得巴基被抓就是因为寻找杰克船长的宝藏找到假的，遇到海军了，在监狱里路飞送给巴基的是杰克船长宝藏的线 ...</blockquote>
 我印象里那是约翰船长？而且还在阿布萨罗姆的僵尸将军队伍里出现过了？
-
-
-
-
-
 
 
 -----
@@ -27009,25 +17367,16 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38961#       发表于 2015-9-24 21:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30255576&amp;ptid=98922" target="_blank">chloerei 发表于 2015-9-24 17:05</a>
 
 罗宾和弗兰奇情侣装一脸幸福……</blockquote>
 弗兰奇身为男人还好说，罗宾的岁数也该嫁了。
 
 
-
-
-
-
-
 -----
 
 ####  sta777  
 ##### 38962#       发表于 2015-9-24 21:18
-
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201509/24/211533pgbhdj9lt1mdsyyq.png" referrerpolicy="no-referrer">
@@ -27040,25 +17389,13 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 2015-9-24 21:15 上传
 
 
-
-
-
-
-
-
 这是第485话，第12页中尾田留下的伏笔，时隔多年，终于在801话又提到了。当时山治说这话时我还以为他为了救路飞而逞强。
-
-
-
-
-
 
 
 -----
 
 ####  sta777  
 ##### 38963#       发表于 2015-9-24 21:23
-
 
 
  本帖最后由 sta777 于 2015-9-24 21:26 编辑 
@@ -27069,25 +17406,13 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 厨子的真实身份到底是啥，会不会真是某个国家，或者某个已经消失国家的王子
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 38964#       发表于 2015-9-24 21:37
 
 
-
-
 不愧是MR 王子<img src="https://static.saraba1st.com/image/smiley/zdl/157.gif" referrerpolicy="no-referrer"> 海军只抓活口的还有没有先例？貌似珍宝波尼是一个
-
-
-
-
-
 
 
 -----
@@ -27096,16 +17421,10 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38965#       发表于 2015-9-24 21:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30257597&amp;ptid=98922" target="_blank">sta777 发表于 2015-9-24 21:23</a>
 
 现在想想，能比大闹司法岛   并且在当时已经干翻了两个七武海的路飞还麻烦，比唯一通晓古文字  最有可能解 ...</blockquote>
 我记得山治跟索隆吵架的时候，被索隆骂过你是傻瓜国王子吗之类的话。。再加上打鳄鱼的时候的mr王子。。不会真的是wt在前面暗示的什么吧。。。。
-
-
-
-
-
 
 
 -----
@@ -27114,24 +17433,15 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38966#       发表于 2015-9-24 21:52
 
 
-
 <blockquote>FCS-31 发表于 2015-9-24 17:46
 这个jack谁啊，要从前元帅+大将手上抢人</blockquote>
 看不出来吗？那个嘴，那个口吻，肯定是前海军上将，现越狱犯手斧摩尔甘。
-
-
-
-
-
 
 
 -----
 
 ####  sta777  
 ##### 38967#       发表于 2015-9-24 21:56
-
-
-
 
 
 <img src="http://img.saraba1st.com/forum/201509/24/215416mxoobvooo7cxvyy7.jpg" referrerpolicy="no-referrer">
@@ -27144,16 +17454,7 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 2015-9-24 21:54 上传
 
 
-
-
-
-
 还有这个，起初山治通缉令没照片  大家可以理解为搞笑，但通缉令更新后还是不给露脸，可能就说明点什么了
-
-
-
-
-
 
 
 -----
@@ -27162,15 +17463,9 @@ Jack他们认识的豪华阵容，是不是以为只有1个大将，2个中将�
 ##### 38968#       发表于 2015-9-24 23:03
 
 
-
  本帖最后由 刹那の劍 于 2015-9-24 23:06 编辑 
 
 JACK之前露过脸，才不是什么绿牛。就是凯多的手下
-
-
-
-
-
 
 
 -----
@@ -27179,14 +17474,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38969#       发表于 2015-9-24 23:27
 
 
-
-
 不要！罗宾和弗兰奇真的是情侣装！不是说主角是没有爱情的吗！再也不相信爱情了！尾田你这个骗子！
-
-
-
-
-
 
 
 -----
@@ -27195,14 +17483,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38970#       发表于 2015-9-24 23:29
 
 
-
-
 黑足这回有脸啊,不过是花痴样<img src="https://static.saraba1st.com/image/smiley/face/91.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27211,21 +17492,13 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38971#       发表于 2015-9-24 23:36
 
 
-
-
   只有我一个人觉得几大势力那个人头特写特别的棒吗   好有大时代群雄逐鹿的感觉
-
-
-
-
-
 
 
 -----
 
 ####  carino92  
 ##### 38972#       发表于 2015-9-24 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256463&amp;ptid=98922" target="_blank">弯弓射山猪 发表于 2015-9-24 18:53</a>
@@ -27238,16 +17511,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
   我看了半天愣是没看到路奇在哪儿...   他也出现了？
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 38973#       发表于 2015-9-24 23:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30258817&amp;ptid=98922" target="_blank">carino92 发表于 2015-9-24 23:48</a>
@@ -27258,16 +17525,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 而且人家都说了，露了下巴，你回去仔细看看开头几幅图吧，打电话虫的那位
 
 
-
-
-
-
-
 -----
 
 ####  carino92  
 ##### 38974#       发表于 2015-9-25 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30258878&amp;ptid=98922" target="_blank">flyzzhj 发表于 2015-9-24 23:54</a>
@@ -27278,16 +17539,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
   啊啊啊，看到了。  我前面一扫而过没注意   这小子居然还有戏可以唱！
 
 
-
-
-
-
-
 -----
 
 ####  flyzzhj  
 ##### 38975#       发表于 2015-9-25 00:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30258916&amp;ptid=98922" target="_blank">carino92 发表于 2015-9-25 00:00</a>
@@ -27296,25 +17551,13 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 其实我第一次和你一样也没注意啦~<img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  龙手马弗  
 ##### 38976#       发表于 2015-9-25 00:07
 
 
-
-
 路奇也回来了，感觉上过卷头故事的人可能以后都会出来露个脸也说不定
-
-
-
-
-
 
 
 -----
@@ -27323,17 +17566,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38977#       发表于 2015-9-25 00:12
 
 
-
-
 好让人激动的一话，希望之后的发展对的上大家的期待
 
 
 山治都不用出场就把攒了一年的存在感全刷出来了
-
-
-
-
-
 
 
 -----
@@ -27342,14 +17578,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38978#       发表于 2015-9-25 01:09
 
 
-
-
 巴托俱乐部太可爱了
-
-
-
-
-
 
 
 -----
@@ -27358,16 +17587,9 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38979#       发表于 2015-9-25 01:16
 
 
-
-
 明哥待遇真好入监狱还可以叫人送报纸给他看
 
 乔巴不错，身家翻了一倍，继续努力
-
-
-
-
-
 
 
 -----
@@ -27376,16 +17598,9 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38980#       发表于 2015-9-25 01:17
 
 
-
-
 明哥待遇真好入监狱还可以叫人送报纸给他看
 
 乔巴不错，身家翻了一倍，继续努力
-
-
-
-
-
 
 
 -----
@@ -27394,14 +17609,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38981#       发表于 2015-9-25 02:04
 
 
-
-
 其实关于山治 有个线索就是漫画到现在点出来的只有两个人看过恶魔果实图鉴 他是一个 另一个是黑胡子
-
-
-
-
-
 
 
 -----
@@ -27410,16 +17618,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38982#       发表于 2015-9-25 06:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30257443&amp;ptid=98922" target="_blank">sta777 发表于 2015-9-24 21:04</a>
 
 弗兰奇身为男人还好说，罗宾的岁数也该嫁了。</blockquote>
 女帝也是<img src="https://static.saraba1st.com/image/smiley/face/88.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27428,14 +17630,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38983#       发表于 2015-9-25 09:39
 
 
-
-
 下个大篇章前的插曲过渡应该就是一直在铺垫的“世界会议”吧
-
-
-
-
-
 
 
 -----
@@ -27444,14 +17639,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38984#       发表于 2015-9-25 09:41
 
 
-
-
 快搜索一下哪个日本老演员是一头乱发的，就知道绿牛原型啦~
-
-
-
-
-
 
 
 -----
@@ -27460,16 +17648,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38985#       发表于 2015-9-25 09:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30256797&amp;ptid=98922" target="_blank">kuroro 发表于 2015-9-24 19:38</a>
 
 火鸡对鹤那敬语用的，比对他老子还尊重</blockquote>
 恨爹恋妈
-
-
-
-
-
 
 
 -----
@@ -27478,16 +17660,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38986#       发表于 2015-9-25 10:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30257548&amp;ptid=98922" target="_blank">sta777 发表于 2015-9-24 21:18</a>
 
 这是第485话，第12页中尾田留下的伏笔，时隔多年，终于在801话又提到了。当时山治说这话时我还以为他为 ...</blockquote>
 我觉得这个是说大话的可能性更大吧
-
-
-
-
-
 
 
 -----
@@ -27496,15 +17672,9 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38987#       发表于 2015-9-25 11:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face/149.gif" referrerpolicy="no-referrer">这话看完后感觉赏金系统已经彻底崩坏了,估计快跟龙珠的战斗力差不多了,只剩下下数值上涨的时髦值作用了
 
 路飞的赏金根本没什么必要涨吧.火鸡的原悬赏本来就比路飞低<img src="https://static.saraba1st.com/image/smiley/face/30.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27513,15 +17683,9 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38988#       发表于 2015-9-25 11:24
 
 
-
 [http://talkop.com/2015/09/800-801/](http://talkop.com/2015/09/800-801/)
 
 鹰大分析，总结的真好。
-
-
-
-
-
 
 
 -----
@@ -27530,14 +17694,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38989#       发表于 2015-9-25 20:15
 
 
-
-
 忌野清志郎，绿牛，confirmed
-
-
-
-
-
 
 
 -----
@@ -27546,14 +17703,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38990#       发表于 2015-9-25 22:15
 
 
-
-
 厨子依然悲剧中。。。。 限活捉，看来厨子身世可能真有问题
-
-
-
-
-
 
 
 -----
@@ -27562,14 +17712,7 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38991#       发表于 2015-9-25 22:38
 
 
-
-
 我现在在想，山治的悬赏搞不好又是个搞笑。比如有个大人物就是长着心形的眼睛，大鼻孔
-
-
-
-
-
 
 
 -----
@@ -27578,16 +17721,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38992#       发表于 2015-9-25 23:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30268183&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-9-25 22:38</a>
 
 我现在在想，山治的悬赏搞不好又是个搞笑。比如有个大人物就是长着心形的眼睛，大鼻孔 ...</blockquote>
 李菊福
-
-
-
-
-
 
 
 -----
@@ -27596,16 +17733,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38993#       发表于 2015-9-25 23:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30268183&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-9-25 22:38</a>
 
 我现在在想，山治的悬赏搞不好又是个搞笑。比如有个大人物就是长着心形的眼睛，大鼻孔 ...</blockquote>
 神作宣言mark
-
-
-
-
-
 
 
 -----
@@ -27614,16 +17745,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38994#       发表于 2015-9-26 15:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30268183&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-9-25 22:38</a>
 
 我现在在想，山治的悬赏搞不好又是个搞笑。比如有个大人物就是长着心形的眼睛，大鼻孔 ...</blockquote>
 喷了 有这种可能性啊
-
-
-
-
-
 
 
 -----
@@ -27632,16 +17757,10 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38995#       发表于 2015-9-26 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30268183&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-9-25 22:38</a>
 
 我现在在想，山治的悬赏搞不好又是个搞笑。比如有个大人物就是长着心形的眼睛，大鼻孔 ...</blockquote>
 到时请务必收下我的双膝
-
-
-
-
-
 
 
 -----
@@ -27650,23 +17769,16 @@ JACK之前露过脸，才不是什么绿牛。就是凯多的手下
 ##### 38996#       发表于 2015-9-26 19:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30268183&amp;ptid=98922" target="_blank">cdfjg 发表于 2015-9-25 22:38</a>
 
 我现在在想，山治的悬赏搞不好又是个搞笑。比如有个大人物就是长着心形的眼睛，大鼻孔 ...</blockquote>
 如果有这种逗比形象的该不会是天龙人吧
 
 
-
-
-
-
-
 -----
 
 ####  zxxwesker  
 ##### 38997#       发表于 2015-9-26 20:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30261986&amp;ptid=98922" target="_blank">莉洁莉特 发表于 2015-9-25 11:24</a>
@@ -27677,16 +17789,10 @@ http://talkop.com/2015/09/800-801/
 其实我也在爱撕衣  谢谢转载
 
 
-
-
-
-
-
 -----
 
 ####  弯弓射山猪  
 ##### 38998#       发表于 2015-9-26 20:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=30274957&amp;ptid=98922" target="_blank">zxxwesker 发表于 2015-9-26 20:03</a>
@@ -27695,25 +17801,13 @@ http://talkop.com/2015/09/800-801/
 哇<img src="https://static.saraba1st.com/image/smiley/dym/148.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  eienyami  
 ##### 38999#       发表于 2015-9-26 20:54
 
 
-
-
 老实说，第一眼看到活捉厨子这里。我第一印象是动画原创剧情里某2人升官了<img src="https://static.saraba1st.com/image/smiley/face/01.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27722,12 +17816,8 @@ http://talkop.com/2015/09/800-801/
 ##### 39000#       发表于 2015-9-27 16:28
 
 
-
 <blockquote>liangjiami 发表于 2015-3-9 11:58
 前半段很好解释，贝拉米就是喜欢追随强者而已，自己没完成目标被处罚心甘情愿啦。不过火鸡死活不给贝拉米 ...</blockquote>
 贝拉米原本是富裕海域的少爷一类的，觉得富裕生活太无聊了，就跑去火鸡那里当海贼，你看这种模式像不像火鸡特别恨的某人？
-
-
-
 
 

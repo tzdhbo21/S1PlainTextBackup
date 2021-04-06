@@ -1,21 +1,13 @@
 > ## **本文件最后更新于2021-03-26 05:47** 
 
 
-
 -----
 
 ####  eyeego  
 ##### 78001#       发表于 2021-2-16 18:59
 
 
-
-
 吐了 这什么阴间灵衣 你套个纸袋也比这个强啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24,14 +16,7 @@
 ##### 78002#       发表于 2021-2-16 20:37
 
 
-
-
 喷了圣杯是扭蛋里开出来的……
-
-
-
-
-
 
 
 -----
@@ -40,13 +25,7 @@
 ##### 78003#       发表于 2021-2-17 17:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">既然模型都做出来了，灵衣为啥不是BB
-
-
-
-
-
 
 
 -----
@@ -55,14 +34,7 @@
 ##### 78004#       发表于 2021-2-17 17:53
 
 
-
-
 喷了清少纳言复刻
-
-
-
-
-
 
 
 -----
@@ -71,13 +43,7 @@
 ##### 78005#       发表于 2021-2-17 19:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">多好
-
-
-
-
-
 
 
 -----
@@ -86,20 +52,13 @@
 ##### 78006#       发表于 2021-2-18 09:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">幼女的模型都做出来了能不能拿那个做灵衣啊，总比这个彩虹小马配色的好不是……
-
-
-
-
-
 
 
 -----
 
 ####  風卷豹  
 ##### 78007#       发表于 2021-2-18 09:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50362148&amp;ptid=1085254" target="_blank">卡蓮 发表于 2021-2-18 09:17</a>
@@ -110,16 +69,10 @@
 废狗这一边产量低下，一边做不实装的敌人专用模型（希腊主线不说了，最近的芹泽、婴儿卡莲），不知道在想什么<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 78008#       发表于 2021-2-18 13:11
-
 
 
  本帖最后由 rooarr 于 2021-2-18 13:13 编辑 
@@ -129,32 +82,19 @@
 或者说好像我就没打出过狐狸的ex<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  D．Va  
 ##### 78009#       发表于 2021-2-19 03:39
 
 
-
-
 挑战本不该挂活动礼装的，点数都溢出了
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78010#       发表于 2021-2-22 07:23
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">早上醒过来拿着仅剩的10票和21石去单抽羽蛇神
@@ -164,31 +104,19 @@
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78011#       发表于 2021-2-22 08:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">欧，羡慕！。这周活动就结束了。会不会无缝
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78012#       发表于 2021-2-22 08:23
-
 
 
 <blockquote>引用第78010楼areklose于2021-02-22 08:11发表的  :
@@ -200,16 +128,10 @@
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78013#       发表于 2021-2-22 08:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50401406&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-22 08:23</a>
@@ -221,17 +143,10 @@
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">我不介意再来一次圣杯战线
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78014#       发表于 2021-2-22 17:13
-
-
 
 
 哟，周三还真有维护
@@ -240,16 +155,10 @@
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 78015#       发表于 2021-2-22 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50407008&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-22 17:13</a>
@@ -261,24 +170,13 @@
 维护也不会有新活动吧，马上就来生放送了，还会提前开活动？
 
 
-
-
-
-
-
 -----
 
 ####  kulanyee  
 ##### 78016#       发表于 2021-2-23 11:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">8成是幕间/强化本
-
-
-
-
-
 
 
 -----
@@ -287,14 +185,7 @@
 ##### 78017#       发表于 2021-2-23 12:35
 
 
-
-
 幕間或強化都好，不是飼料關就好
-
-
-
-
-
 
 
 -----
@@ -303,17 +194,10 @@
 ##### 78018#       发表于 2021-2-23 14:03
 
 
-
-
 看周常那个打狗粮的任务，怕不是狩猎本
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
-
-
-
-
-
 
 
 -----
@@ -322,18 +206,12 @@
 ##### 78019#       发表于 2021-2-23 19:12
 
 
-
-
 连续签到2000+天，昨天断了，求安慰<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -343,12 +221,7 @@
 | areklose| + 1|哎呀，手滑给了楼下|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -357,17 +230,12 @@
 ##### 78020#       发表于 2021-2-23 22:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">来波强化本吧 希望仇凛出宝具本
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -377,12 +245,7 @@
 | areklose| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -391,16 +254,10 @@
 ##### 78021#       发表于 2021-2-23 23:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50420824&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-2-23 22:18</a>
 
 来波强化本吧 希望仇凛出宝具本</blockquote>
 最需要的不是白枪和艾蕾吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -409,15 +266,9 @@
 ##### 78022#       发表于 2021-2-24 01:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50420824&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-2-23 22:18</a>
 来波强化本吧 希望仇凛出宝具本</blockquote>
 仇凛前段时间复刻都不给短时间内是不用想了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -426,13 +277,7 @@
 ##### 78023#       发表于 2021-2-24 08:15
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">仇凛强度够了。估计不会给。
-
-
-
-
-
 
 
 -----
@@ -441,22 +286,15 @@
 ##### 78024#       发表于 2021-2-24 08:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50423117&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-24 08:15</a>
 仇凛强度够了。估计不会给。</blockquote>
 弓凛：对，你说的对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  UNISONIA  
 ##### 78025#       发表于 2021-2-24 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50423363&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-2-24 08:50</a>
@@ -468,16 +306,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 而且wys隔年年初还在线下活动上吐槽了这件事（说他本不愿遂奈须的意），间接暴露了wys的身份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 78026#       发表于 2021-2-24 09:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50423564&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-2-24 09:19</a>
@@ -485,16 +317,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 但这也表明哪天蘑菇一时发作，要唯一神加强仇凛也不是不可能，所以按照强度来讨论是不是开宝具本根本说不准<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 78027#       发表于 2021-2-24 10:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50423632&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-2-24 09:27</a>
@@ -511,25 +337,13 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 然后我们再来看看奈须哭弱要加强的Archer伊斯塔，确实是宝具本前陷入了一个（低宝）会尴尬的境地，当时的几个无限池剑本周回的三面伤害几乎稳定不如有宝具本的闪和特，低宝连观测所都没办法不带梅林一炮收掉三面。虽然比起她当时只是尴尬的程度，有更多是真的弱的卡需要加强……但是她这个加强相对来是可以理解的，加强以后在无限池暴击一面二宝具流上三面表现也依然没有超过同宝具的闪，但是低宝在观测所的体验真的提升太多了
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 78028#       发表于 2021-2-24 11:00
 
 
-
-
 巧克力攒一起换好累，跟刷箱不一样连十连的选项都没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -538,13 +352,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78029#       发表于 2021-2-24 11:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弓凛在当年光炮的地位和仇凛的地位不是一个级别。
-
-
-
-
-
 
 
 -----
@@ -553,13 +361,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78030#       发表于 2021-2-24 14:02
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最后1天冲刺抽卡莲....结果歪了棉被.....这神经病卡池....已经连歪2个常驻了
-
-
-
-
-
 
 
 -----
@@ -568,16 +370,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78031#       发表于 2021-2-24 14:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50426507&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-2-24 14:02</a>
 
 最后1天冲刺抽卡莲....结果歪了棉被.....这神经病卡池....已经连歪2个常驻了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">o。。。打 打扰了
-
-
-
-
-
 
 
 -----
@@ -586,14 +382,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78032#       发表于 2021-2-24 14:15
 
 
-
-
 要是小碧池来个宝具本就好了
-
-
-
-
-
 
 
 -----
@@ -602,17 +391,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78033#       发表于 2021-2-24 15:38
 
 
-
-
 街机版这是又要搞事了？
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
-
-
-
-
-
 
 
 -----
@@ -621,13 +403,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78034#       发表于 2021-2-24 15:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快5点了。我还是挺想开个DL给我回一下血。。
-
-
-
-
-
 
 
 -----
@@ -636,14 +412,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78035#       发表于 2021-2-24 16:16
 
 
-
-
 应该是下载突破，不知出哪个
-
-
-
-
-
 
 
 -----
@@ -652,14 +421,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78036#       发表于 2021-2-24 17:05
 
 
-
-
 旧剑都第几次复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -668,14 +430,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78037#       发表于 2021-2-24 17:08
 
 
-
-
 旧剑我喷了。。告辞 护符都不想丢
-
-
-
-
-
 
 
 -----
@@ -684,14 +439,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78038#       发表于 2021-2-24 17:14
 
 
-
-
 狂那 水武 仇凛 刚好3个百级<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -700,14 +448,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78039#       发表于 2021-2-24 17:19
 
 
-
-
 拉二、白枪和艾蕾，陪自己开荒的都100级了。
-
-
-
-
-
 
 
 -----
@@ -716,14 +457,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78040#       发表于 2021-2-24 17:21
 
 
-
-
 白貞、黑貞、金閃閃都100級，因為愛
-
-
-
-
-
 
 
 -----
@@ -732,16 +466,9 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78041#       发表于 2021-2-24 17:23
 
 
-
-
 旧剑这个技能本有点数值膨胀了吧...自带三回合50魔放，伊吹童子那个三回合50攻击还是按次数的，之前三回合的魔放都是30啊...
 
 感觉这种强化是在平衡环境，想让红卡有蓝绿卡的地位，但有点简单粗暴了...
-
-
-
-
-
 
 
 -----
@@ -750,16 +477,9 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78042#       发表于 2021-2-24 17:29
 
 
-
-
 估计早晚会出个破格的红爆辅助角色，
 
 瞎奶一下：一技能三回合红卡50加战续，二技能三回合100爆伤+特攻，三技能群冲50+持续回血。宝具是BUFF类，全员无敌贯通+持续给星+用红卡攻击后回复一定量NP，受NP率提升影响。
-
-
-
-
-
 
 
 -----
@@ -768,23 +488,16 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78043#       发表于 2021-2-24 17:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428496&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 17:23</a>
 
 旧剑这个技能本有点数值膨胀了吧...自带三回合50魔放，伊吹童子那个三回合50攻击还是按次数的，之前三回合 ...</blockquote>
 红的没关系，什么时候出个3回合50蓝放30np率的技能那才是破格
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 78044#       发表于 2021-2-24 17:37
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这个单推标记是设置在卡上面，不是设置在英灵上面的，亏了
@@ -794,16 +507,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78045#       发表于 2021-2-24 17:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428496&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 17:23</a>
@@ -812,24 +519,13 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有什么用？ 还不是仓管  而且红卡给30黄金率有什么用 木大木大
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78046#       发表于 2021-2-24 17:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说未来可期，我觉得这强化意义不大
-
-
-
-
-
 
 
 -----
@@ -838,20 +534,13 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78047#       发表于 2021-2-24 17:43
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不说未来可期，我觉得这强化意义不大
-
-
-
-
-
 
 
 -----
 
 ####  Jamaisvu  
 ##### 78048#       发表于 2021-2-24 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428614&amp;ptid=1085254" target="_blank">芭德薇 发表于 2021-2-24 17:35</a>
@@ -866,16 +555,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 当初齐格鲁德的一技能也不过是三次100暴击，结果现在各种三回合100，超人熊啊秦始皇啊道满啊，50魔放很快也该泛滥起来了，叶良树当初好像就是做别的游戏做的数值崩坏才打发到FGO，看来**病又犯了...
 
 
-
-
-
-
-
 -----
 
 ####  Jamaisvu  
 ##### 78049#       发表于 2021-2-24 17:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428639&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-24 17:37</a>
@@ -884,16 +567,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 红卡类角色很适合给个村正的三技能，三红平A给NP，大公都馋疯了。
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 78050#       发表于 2021-2-24 17:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428496&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 17:23</a>
@@ -905,16 +582,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 同样3T50红放、20充能、有爆伤、有灵衣、能产星、用剑打人、初始戴着兜帽、CV是考哥，另一位好歹比旧剑有用的多
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78051#       发表于 2021-2-24 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428730&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 17:45</a>
@@ -926,16 +597,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 我说的是周回啊  <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78052#       发表于 2021-2-24 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428637&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-24 17:37</a>
@@ -947,16 +612,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚在想为什么人気記事里会有个4星礼装  原来这就是传说中嘲讽自杀礼装吗  萌新也要去抽了
 
 
-
-
-
-
-
 -----
 
 ####  Jamaisvu  
 ##### 78053#       发表于 2021-2-24 18:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428766&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-24 17:48</a>
@@ -974,17 +633,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 有时候过剧情或是高难的时候还是会上红卡系角色，期待出几个强角也没啥。
 
 
-
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78054#       发表于 2021-2-24 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428851&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-2-24 18:01</a>
@@ -996,31 +648,19 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以这和旧剑有什么关系
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78055#       发表于 2021-2-24 18:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">红魔放3T我觉得意义还不如呆毛卡变色
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 78056#       发表于 2021-2-24 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428824&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-24 17:57</a>
@@ -1030,16 +670,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78057#       发表于 2021-2-24 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428953&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-24 18:15</a>
@@ -1054,16 +688,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 现在萌新也有送死礼装了
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 78058#       发表于 2021-2-24 18:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50428975&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-24 18:17</a>
@@ -1076,16 +704,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78059#       发表于 2021-2-24 18:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429018&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-24 18:21</a>
@@ -1097,16 +719,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有 萌新我只有那张嘲讽+无敌一起的
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78060#       发表于 2021-2-24 18:51
-
 
 
  本帖最后由 黑上シグマ 于 2021-2-24 18:56 编辑 
@@ -1114,14 +730,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 街机这第六章难道是要把竹帚日记里的虚假的十字军给捡起来了？
 
 
-
-
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
-
-
-
-
-
 
 
 -----
@@ -1130,13 +739,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78061#       发表于 2021-2-24 19:05
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前DL不是送自选角的么  这骑士王怎么扣多了
-
-
-
-
-
 
 
 -----
@@ -1145,23 +748,15 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78062#       发表于 2021-2-24 19:58
 
 
-
-
 卧槽居然还非得升一个100级的从者才给石头？这不是逼我这种从来没用过圣杯的御主吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 顺便问问泥潭推荐喂到100的都有哪些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  v22325  
 ##### 78063#       发表于 2021-2-24 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429815&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-24 19:58</a>
@@ -1172,16 +767,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">100看爱吧 我是莉莉丝阿比伽摩
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78064#       发表于 2021-2-24 20:06
-
 
 
  本帖最后由 黑上シグマ 于 2021-2-24 20:07 编辑 
@@ -1193,16 +782,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">要说推荐那肯定是仇凛狛爵banana之类的呗
 
 
-
-
-
-
-
 -----
 
 ####  johnkamsar  
 ##### 78065#       发表于 2021-2-24 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429815&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-24 19:58</a>
@@ -1212,24 +795,13 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 陈宫（我日服国服都100级了）、厨力角色（国服我把b叔拉满）、泛用性角色（日服没宇宙凛时拉满了萨老师，现在有宇宙凛准备拉满宇宙凛）<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  johnkamsar  
 ##### 78066#       发表于 2021-2-24 20:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦忘记补充个，各类瞎**打角色（日服拉满了一个满宝100级剑兰的人在此，多次下棋都是一个人砍爆一条街）
-
-
-
-
-
 
 
 -----
@@ -1238,14 +810,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78067#       发表于 2021-2-24 20:15
 
 
-
-
 真爱或者泛用打手
-
-
-
-
-
 
 
 -----
@@ -1254,14 +819,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78068#       发表于 2021-2-24 20:50
 
 
-
-
 不搓浓缩狗粮的我一个100级礼装都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1270,20 +828,13 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78069#       发表于 2021-2-24 21:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不一样了 我拉了9个100级的人
-
-
-
-
-
 
 
 -----
 
 ####  芭德薇  
 ##### 78070#       发表于 2021-2-24 22:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429815&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-24 19:58</a>
@@ -1294,26 +845,15 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 5个圣杯换3个石头，太值了……
 
 
-
-
-
-
-
 -----
 
 ####  alaya  
 ##### 78071#       发表于 2021-2-25 04:39
 
 
-
  本帖最后由 alaya 于 2021-2-25 04:42 编辑 
 
 圣杯主要是耍厨用，打手要是np98哪怕100级喂满金芙芙还是np98，overkill不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1322,16 +862,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78072#       发表于 2021-2-25 08:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50429246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-24 18:51</a>
 
 街机这第六章难道是要把竹帚日记里的虚假的十字军给捡起来了？</blockquote>
 十字军是真的，就那个自称理查是假的……
-
-
-
-
-
 
 
 -----
@@ -1340,21 +874,13 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78073#       发表于 2021-2-25 08:36
 
 
-
-
 还好吧，我去年年底捡起来都三个100了。。。
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78074#       发表于 2021-2-25 09:43
-
 
 
 <blockquote>引用第78071楼UNISONIA于2021-02-25 08:31发表的  :
@@ -1366,25 +892,13 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  xiongxingyu  
 ##### 78075#       发表于 2021-2-25 11:36
 
 
-
-
 没记错的话，不算有副作用的杀总司和看rp的剑龙娘的非洲勇者传说，亚瑟强化之后是第一个有3T50魔放的输出型宝具选手，1t50魔放的时代终于要过去了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1393,14 +907,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78076#       发表于 2021-2-25 13:43
 
 
-
-
 谢谢楼上各位的意见，最后是升了蓝卡打手仇凛、绿卡打手伯爵和剧场版限定女主角Melt<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1409,16 +916,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78077#       发表于 2021-2-25 14:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50436284&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-25 13:43</a>
 
 谢谢楼上各位的意见，最后是升了蓝卡打手仇凛、绿卡打手伯爵和剧场版限定女主角Melt ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有必要升2个泛用吗。自从用了仇凛CBA体系你有用回哈哈哈吗
-
-
-
-
-
 
 
 -----
@@ -1427,23 +928,16 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78078#       发表于 2021-2-25 14:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50436498&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 00:11</a>
 
 有必要升2个泛用吗。自从用了仇凛CBA体系你有用回哈哈哈吗</blockquote>
 以防万一啊，保不齐下次活动周回本给你来个出场蓝卡威力下降的debuff（BB老虎机那种），我觉得叶二是真得干得出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 78079#       发表于 2021-2-25 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50433989&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-25 09:43</a>
@@ -1455,16 +949,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 对哦，一开始的远征军（真十字军）和后面的偽りの十字軍不是一批人
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78080#       发表于 2021-2-25 15:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50436527&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-25 14:13</a>
@@ -1473,16 +961,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实区别不大的  不如拉个caber 100级强制排第1 友情拿的手软 （虽然我没这么干
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78081#       发表于 2021-2-25 16:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437579&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-25 15:59</a>
@@ -1491,16 +973,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真有人缺友情吗，按你这样说是不是金芙芙也要拉满
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78082#       发表于 2021-2-25 16:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437665&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 16:07</a>
@@ -1509,16 +985,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">友情=100级礼装啊 缺不缺就看你喂不喂了
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78083#       发表于 2021-2-25 16:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437730&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-25 16:14</a>
@@ -1527,16 +997,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如刷无限池，或者无限池子第一天挂个满破
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78084#       发表于 2021-2-25 16:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437758&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 16:17</a>
@@ -1545,16 +1009,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看懂你在说什么 这又不是选择题 
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78085#       发表于 2021-2-25 16:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437767&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-25 16:18</a>
@@ -1563,16 +1021,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 我意思是平日收益不大，活动找氪金礼装不看等级，刷无限池和在无限池被人嫖估计都大于半年平日被嫖的友情点。
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78086#       发表于 2021-2-25 16:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437806&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 16:22</a>
@@ -1581,16 +1033,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有收益不就行了白给的东西 
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78087#       发表于 2021-2-25 16:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437822&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-2-25 16:23</a>
@@ -1599,16 +1045,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">友情点和圣杯哪个更加白给
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78088#       发表于 2021-2-25 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50437834&amp;ptid=1085254" target="_blank">areklose 发表于 2021-2-25 16:24</a>
@@ -1617,25 +1057,13 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣杯当宝的人肯定不会这么干  根本不在意这玩意的当然是友情更有价值 
 
 
-
-
-
-
-
 -----
 
 ####  gulant  
 ##### 78089#       发表于 2021-2-25 16:29
 
 
-
-
 还以为旧剑换动作模组呢，原来是提升一下技能…… <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1644,13 +1072,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78090#       发表于 2021-2-26 22:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没事干想去抽张嘲讽礼装，扔了个11连礼装没出旧剑出了………………
-
-
-
-
-
 
 
 -----
@@ -1659,16 +1081,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78091#       发表于 2021-2-26 22:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452067&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-26 22:17</a>
 
 没事干想去抽张嘲讽礼装，扔了个11连礼装没出旧剑出了………………</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 但是好像不怎么羡慕啊
-
-
-
-
-
 
 
 -----
@@ -1677,16 +1093,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78092#       发表于 2021-2-26 22:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452067&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-26 22:17</a>
 
 没事干想去抽张嘲讽礼装，扔了个11连礼装没出旧剑出了………………</blockquote>
 每次看你豹的时候你这个签名感觉就很怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1695,14 +1105,8 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78093#       发表于 2021-2-26 22:41
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">去年圣诞无限池塞得满满当当的狗粮，在村正，仇凛，义经，天狗，黑狗，卡莲，羽蛇神的连番攻势下，已经连渣都不剩了…………
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">旧剑没狗粮喂………………
-
-
-
-
-
 
 
 -----
@@ -1711,16 +1115,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78094#       发表于 2021-2-26 22:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452231&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-2-26 22:32</a>
 
 每次看你豹的时候你这个签名感觉就很怪</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我就是那天启抽卡流创始人
-
-
-
-
-
 
 
 -----
@@ -1729,14 +1127,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78095#       发表于 2021-2-26 23:00
 
 
-
-
 欧，羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也想要旧剑
-
-
-
-
-
 
 
 -----
@@ -1745,15 +1136,9 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78096#       发表于 2021-2-26 23:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452312&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-2-26 22:41</a>
 去年圣诞无限池塞得满满当当的狗粮，在村正，仇凛，义经，天狗，黑狗，卡莲，羽蛇神的连番攻势下， ...</blockquote>
 欧，羡慕，我狗粮都用不完了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1762,14 +1147,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78097#       发表于 2021-2-28 15:53
 
 
-
-
 陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1778,16 +1156,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78098#       发表于 2021-2-28 15:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467026&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-28 15:53</a>
 
 陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">道满出了之后图好多 我也不晓得喜欢他哪里 可能是小物臭吃瘪的地方吧
-
-
-
-
-
 
 
 -----
@@ -1796,14 +1168,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78099#       发表于 2021-2-28 16:39
 
 
-
-
 街机的第六章直接就不一样了还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1812,14 +1177,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78100#       发表于 2021-2-28 16:41
 
 
-
-
 枪呆没介入的世界呗
-
-
-
-
-
 
 
 -----
@@ -1828,14 +1186,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78101#       发表于 2021-2-28 16:45
 
 
-
-
 看来以后可以出fgo remake了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1844,14 +1195,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78102#       发表于 2021-2-28 17:11
 
 
-
-
 艹啊，还以为怪盗是新角色，结果是天艹灵衣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1860,13 +1204,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78103#       发表于 2021-2-28 17:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这？
-
-
-
-
-
 
 
 -----
@@ -1875,16 +1213,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78104#       发表于 2021-2-28 17:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467329&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-28 16:45</a>
 
 看来以后可以出fgo remake了</blockquote>
 特异点的特异点，异闻带的异闻带<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1893,16 +1225,9 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78105#       发表于 2021-2-28 17:28
 
 
-
-
 街机出独占新卡，手游就灵衣，孰轻孰重一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -1911,14 +1236,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78106#       发表于 2021-2-28 17:29
 
 
-
-
 结论：浪费了两个小时的人生<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1927,14 +1245,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78107#       发表于 2021-2-28 22:08
 
 
-
-
 哈哈，终于有一个呼符都不会丢的池子了。
-
-
-
-
-
 
 
 -----
@@ -1943,14 +1254,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78108#       发表于 2021-2-28 23:35
 
 
-
-
 海豹们呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1959,14 +1263,7 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78109#       发表于 2021-2-28 23:39
 
 
-
-
 没有第一时间看，看了看回放，安生气色好了很多啊，估计是人手有余工作量没那么大了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1975,16 +1272,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78110#       发表于 2021-2-28 23:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470635&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-2-28 23:35</a>
 
 海豹们呢</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">又没池子
-
-
-
-
-
 
 
 -----
@@ -1993,16 +1284,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78111#       发表于 2021-2-28 23:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467026&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-28 15:53</a>
 
 陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
 女粉多吧，那个满破卡面我都觉得是奔着女玩家钱包来的，性格上这种一直想作恶但是又一直干不成事更好容易洗白（可以参考杀狐狸）
-
-
-
-
-
 
 
 -----
@@ -2011,16 +1296,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78112#       发表于 2021-2-28 23:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467026&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-28 15:53</a>
 
 陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
 道门在日本女性人气很高的，这种邪气的帅哥估计很受欢迎吧。你不见隔壁LGA也一堆人喜欢吗。
-
-
-
-
-
 
 
 -----
@@ -2029,16 +1308,10 @@ Archer伊斯塔不是HF3最后一期talk上揭晓了宝具本是奈须跟wys软�
 ##### 78113#       发表于 2021-3-1 10:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50467026&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-2-28 15:53</a>
 
 陈宫是基于性能，士郎的情怀地位毕竟摆在那，谁能告诉我为啥道满本命排第二？母猪的思路我不懂啊 ...</blockquote>
 CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2047,21 +1320,13 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 ##### 78114#       发表于 2021-3-1 11:13
 
 
-
-
 来了来了，天草的怪盗灵衣脖子上挂了把钥匙，今年情人节的4星女帝礼装锁头上的人影看来确定是天草无误了。你游在情人节杀狗上真是不遗余力啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Jamaisvu  
 ##### 78115#       发表于 2021-3-1 13:22
-
 
 
 <blockquote>白金口袋 发表于 2021-2-28 15:53
@@ -2072,25 +1337,13 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 这么说能明白点吧...
 
 
-
-
-
-
-
 -----
 
 ####  风鸣弦十郎  
 ##### 78116#       发表于 2021-3-1 13:23
 
 
-
-
 街机这个是谁哦 一开始还以为是老崔 后来发现不是长发是个帽子
-
-
-
-
-
 
 
 -----
@@ -2099,21 +1352,13 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 ##### 78117#       发表于 2021-3-1 13:23
 
 
-
-
 我记得当初FGO1.6最初设定也是耶路撒冷来着吧，结果后来由于宗教原因还是撤掉樱井临时改成圆桌了.....现在街机又拿回来用，看来是钱多了腰板硬了？（大雾）
-
-
-
-
-
 
 
 -----
 
 ####  UNISONIA  
 ##### 78118#       发表于 2021-3-1 15:50
-
 
 
  本帖最后由 UNISONIA 于 2021-3-1 15:52 编辑 
@@ -2129,13 +1374,9 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 3.六章/zero是第六章推出之后奈须在竹帚给的设定大纲，没有详细的设定和描写。虽然有一些能推测原（本该死在半路上的但是被盖提亚塞了圣杯所以就没死的）十字军领袖以及魔人理查身份的线索，顺带一提伪十字军算是魔人理查的能力，街机拿回来用大概也是基于六章/zero发展开去的新设了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2145,12 +1386,7 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 | Jamaisvu| + 1|多谢认真科普！|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -2159,22 +1395,13 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 ##### 78119#       发表于 2021-3-1 17:20
 
 
-
-
 第六章我记得是蘑菇听了坂本真绫的歌之后灵感爆发，把剧本重写了
-
-
-
-
-
 
 
 -----
 
 ####  荡寇将军张嶷  
 ##### 78120#       发表于 2021-3-1 17:29
-
-
 
 
 成功被街机版伯爵+南丁的灵衣恶心到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -2184,16 +1411,10 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 说的就是你，樱井。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 78121#       发表于 2021-3-2 08:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477365&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-3-1 17:20</a>
@@ -2212,16 +1433,10 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 僕の罪はうたがったこと　差し伸べられた君の右手　初めて見たヒカリ
 
 
-
-
-
-
-
 -----
 
 ####  miro112233  
 ##### 78122#       发表于 2021-3-2 17:21
-
 
 
  本帖最后由 miro112233 于 2021-3-2 17:31 编辑 
@@ -2236,32 +1451,19 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 真就把FSF扔给成田随便玩，但是FGO这边搞事也不会考虑FSF咯？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78123#       发表于 2021-3-2 21:50
 
 
-
-
 你游机器人又出动了，就隔了4个小时不到，登游戏一看进账了1W5友情点……
-
-
-
-
-
 
 
 -----
 
 ####  UNISONIA  
 ##### 78124#       发表于 2021-3-2 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50488278&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-3-2 17:21</a>
@@ -2282,16 +1484,10 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 两边的态度我现在是倾向于各自为政（虽然有些微妙的cue来cue去的要素）。不止是医神人设出入，关于希波和彭忒的描述也是有很多对不上的，不过最重要的还是成田对于乌鲁克组的描写，成田是在刻意展现出他跟奈须迥然不同的理解的
 
 
-
-
-
-
-
 -----
 
 ####  miro112233  
 ##### 78125#       发表于 2021-3-2 23:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490774&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-2 22:09</a>
@@ -2306,16 +1502,10 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 我猜测菌类写1.6章剧情可能不止写了一遍吧，在写完基础剧情，又做了一些删改，阿格规文可能也是在之后的润色过程中加上的。而且直到最近菌类还在改1.6的剧情，比如说前几天发现的玛修出身年份的修改
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 78126#       发表于 2021-3-2 23:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491343&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-3-2 23:03</a>
@@ -2330,25 +1520,13 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 玛修出生年份的修改愿闻其详，我只注意过FSN时间莫名其妙的变动（发生于UBW TV前期，从2002年改为了2004年），以及因为这个导致的奥尔加玛丽年龄的改动（原本按照山中虎铁设定稿上的注释，极有可能奥尔加生于pale blue dot拍摄的年份）
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 78127#       发表于 2021-3-3 00:21
 
 
-
-
 我好像头一次看到楼里再认真讨论剧情而不是互相海豹跳脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2357,16 +1535,10 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 ##### 78128#       发表于 2021-3-3 00:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491932&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-3 00:21</a>
 
 我好像头一次看到楼里再认真讨论剧情而不是互相海豹跳脸</blockquote>
 没有池子给海豹豹，也只能讨论剧情了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2375,23 +1547,16 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 ##### 78129#       发表于 2021-3-3 00:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491932&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-3 00:21</a>
 
 我好像头一次看到楼里再认真讨论剧情而不是互相海豹跳脸</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你难道要抽旧剑？
 
 
-
-
-
-
-
 -----
 
 ####  miro112233  
 ##### 78130#       发表于 2021-3-3 10:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50491598&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-2 23:34</a>
@@ -2408,16 +1573,10 @@ CV是萨菲罗斯，还需要其他理由吗<img src="https://static.saraba1st.c
 不过考虑到接下来的2.6有两个和玛修的过去有密切关系的角色……可能又是菌类写2.6写bug了返回去改时间线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 78131#       发表于 2021-3-3 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50494239&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-3-3 10:38</a>
@@ -2434,17 +1593,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 结合这点看来这个改动可能是动了别的地方（例如LB6的贝利尔相关）的设定？或者压根是类似Fha里凛数自己祖先代数的时候数错了那种乌龙的情况，单纯游戏内年份间隔的描述的话确实是改成1999年比较合理（奈须蘑菇不仅英语成绩不理想，数学也不容乐观.jpg）
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78132#       发表于 2021-3-3 17:48
-
-
 
 
 天草真就全技能强化+宝具本达成了，亲儿子
@@ -2454,26 +1606,14 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 78133#       发表于 2021-3-3 18:49
 
 
-
-
 进了剧情本点了一下洗礼咏唱发现怎么还给对面加红down的，长按了一下才发现原来不叫洗礼咏唱了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 行吧，又强化了
-
-
-
-
-
 
 
 -----
@@ -2482,13 +1622,7 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78134#       发表于 2021-3-3 19:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">某村姑也太惨了 明明是开服五星从者
-
-
-
-
-
 
 
 -----
@@ -2497,16 +1631,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78135#       发表于 2021-3-3 20:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501164&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-3-3 05:45</a>
 
 某村姑也太惨了 明明是开服五星从者</blockquote>
 想起当初为了村姑开局反反复复刷的自己简直像个傻X<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2515,14 +1643,7 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78136#       发表于 2021-3-3 20:52
 
 
-
-
 村姑好歹膀胱局还是有用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2531,16 +1652,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78137#       发表于 2021-3-3 21:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501804&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-3-3 20:52</a>
 
 村姑好歹膀胱局还是有用的</blockquote>
 好久没用过了。。毕竟连闪闪祭都取消了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2549,14 +1664,7 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78138#       发表于 2021-3-3 21:07
 
 
-
-
 我之前打2.5.2的时候还用村姑跟队长打了50回合膀胱局<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2565,16 +1673,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78139#       发表于 2021-3-3 21:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501961&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-3-3 21:07</a>
 
 我之前打2.5.2的时候还用村姑跟队长打了50回合膀胱局</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">252我感觉已经是几年前的东西了 （话说实际多久了。。。
-
-
-
-
-
 
 
 -----
@@ -2583,15 +1685,9 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78140#       发表于 2021-3-3 21:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502018&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-3-3 21:14</a>
 252我感觉已经是几年前的东西了 （话说实际多久了。。。</blockquote>
 差不多1年了吧，记得是白情加Fa复刻后出的
-
-
-
-
-
 
 
 -----
@@ -2600,16 +1696,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78141#       发表于 2021-3-3 21:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50501540&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-3 20:27</a>
 
 想起当初为了村姑开局反反复复刷的自己简直像个傻X</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我至今没有村姑
-
-
-
-
-
 
 
 -----
@@ -2618,21 +1708,13 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78142#       发表于 2021-3-3 22:09
 
 
-
-
 侦探埃德蒙的礼装画得很不错，但这套衣服...乍一看以为是琴酒，贝尔蒙德和波本...
-
-
-
-
-
 
 
 -----
 
 ####  Jamaisvu  
 ##### 78143#       发表于 2021-3-3 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50482775&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-2 08:56</a>
@@ -2644,32 +1726,19 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 当然第五章问题确实多，南丁缺钱立绘，黑狗虐杀花嫁，芬恩不当发言，评价好也只是相对负分的第四章，第六章开始才是TYPE MOON水平的真格。
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 78144#       发表于 2021-3-3 22:23
 
 
-
-
 等一哈子，鬼一法眼是蓝人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  UNISONIA  
 ##### 78145#       发表于 2021-3-3 23:02
-
 
 
  本帖最后由 UNISONIA 于 2021-3-3 23:54 编辑 
@@ -2689,32 +1758,19 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 但是你要说这是TYPE-MOON水平的真格……只能说当手游写出来的东西不能跟别的媒体的作品比吧，水平标准不一样
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 78146#       发表于 2021-3-3 23:38
 
 
-
-
 要不是第4章屑到了极限5章的评价也就中等偏下吧..6章7章剧情演出都算是意料之外的优秀发挥，加上终章极天流星雨掐着时间的魔神柱讨伐演出（以及医生的终极牺牲）算是给1部低开高走画了个句号..但是现在这1年两章主线的拖拉进度到底是搞什么鬼啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78147#       发表于 2021-3-3 23:41
-
 
 
 <blockquote>引用第78143楼里村紅葉于2021-03-03 22:23发表的  :
@@ -2726,16 +1782,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  Jamaisvu  
 ##### 78148#       发表于 2021-3-4 00:18
-
 
 
 <blockquote>UNISONIA 发表于 2021-3-3 23:02
@@ -2749,16 +1799,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ...虽说第一部最早的PV里已经剧透了全部章节的标题了，但蛇头虎尾的剧本真的让后期充满了惊喜。
 
 
-
-
-
-
-
 -----
 
 ####  Jamaisvu  
 ##### 78149#       发表于 2021-3-4 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50503249&amp;ptid=1085254" target="_blank">sosgame67 发表于 2021-3-3 23:38</a>
@@ -2770,16 +1814,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 可惜现在也只能吊着一口气拖剧情，方便卖其他衍生产品，整个作品的节奏都烂了（武藏还要死多久啊）
 
 
-
-
-
-
-
 -----
 
 ####  johnkamsar  
 ##### 78150#       发表于 2021-3-4 09:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502927&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-3 23:02</a>
@@ -2789,16 +1827,10 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 第五章基本上角色焦点相对集中了，定时处决掉角色来渲染剧情，然后一对比就观感上好起来了
 
 
-
-
-
-
-
 -----
 
 ####  auraria  
 ##### 78151#       发表于 2021-3-4 10:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50505575&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-3-4 09:50</a>
@@ -2808,26 +1840,15 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  johnkamsar  
 ##### 78152#       发表于 2021-3-4 12:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50506203&amp;ptid=1085254" target="_blank">auraria 发表于 2021-3-4 10:47</a>
 第四章不就是熊孩子出去打打打，每一节都四五次打各种杂兵人偶，打到吐了对面的中boss不知不觉都被打跪了 ...</blockquote>
 所以就是犯了机械降神的大忌，一切剧情推动都毫无逻辑可言<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2836,17 +1857,9 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78153#       发表于 2021-3-4 18:15
 
 
-
 <blockquote>johnkamsar 发表于 2021-3-4 12:29
 所以就是犯了机械降神的大忌，一切剧情推动都毫无逻辑可言</blockquote>
 第四章的烂已经超越了机械降神，Deus EX Machina的意义在于便利的解决问题，但是玉藻前和金时完全意义不明，就因为后者和雷电有关就召唤出来了，甚至连战斗模组都没上......玉藻这种蘑菇也喜欢的高人气角色就这样浪费了第一次出场机会，真亏运营好意思在万圣节UP时写“即将在第四章大活跃的玉藻前限时UP”。
-
-
-
-
-
-
-
 
 
 -----
@@ -2855,21 +1868,13 @@ FGO的时间轴是个老大难的问题了，开服跳票了三个季度先不�
 ##### 78154#       发表于 2021-3-4 18:16
 
 
-
-
 FGO礼装的画风真是越来越多样了，无限梦想那个三星礼装，我一开始以为是秦始皇，杰基尔和福尔摩斯，今天看了个翻译发现后两者是大卫和特斯拉......
-
-
-
-
-
 
 
 -----
 
 ####  johnkamsar  
 ##### 78155#       发表于 2021-3-5 09:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50511190&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-3-4 18:15</a>
@@ -2881,16 +1886,10 @@ FGO礼装的画风真是越来越多样了，无限梦想那个三星礼装，�
 多方便啊～<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Jamaisvu  
 ##### 78156#       发表于 2021-3-5 09:43
-
 
 
  本帖最后由 Jamaisvu 于 2021-3-5 09:45 编辑 
@@ -2913,16 +1912,10 @@ FGO礼装的画风真是越来越多样了，无限梦想那个三星礼装，�
 第四章连反面教材都配不上，建议配上天野喜孝的插画一起作为恶劣乙方受人嘲讽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  auraria  
 ##### 78157#       发表于 2021-3-5 09:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50517292&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-3-5 09:16</a>
@@ -2936,33 +1929,19 @@ FGO礼装的画风真是越来越多样了，无限梦想那个三星礼装，�
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  真红眼教授  
 ##### 78158#       发表于 2021-3-5 10:32
 
 
-
-
 樱井写的哪一章不是机械降神，第二章突然跳出个大王把雷夫一刀秒了，希腊突然跳出个戴森球给亲女儿刷逼格（蘑菇：卡俄斯这个锅我背）
-
-
-
-
-
 
 
 -----
 
 ####  exiaexa  
 ##### 78159#       发表于 2021-3-7 18:10
-
-
 
 
 所以这楼里大概真没几个人从第四章之前打过来的了？
@@ -2977,16 +1956,10 @@ FGO礼装的画风真是越来越多样了，无限梦想那个三星礼装，�
 第七章因为前半段那个galgame式写法强行注水浪费时间骂菌类的人不少，风评转折点是黑泥入侵，bgm和地图的变化，然后气氛才一路走高的，真是被后期救回来的
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78160#       发表于 2021-3-7 19:57
-
 
 
  本帖最后由 黑上シグマ 于 2021-3-7 20:23 编辑 
@@ -2996,17 +1969,10 @@ FGO礼装的画风真是越来越多样了，无限梦想那个三星礼装，�
 街机内容终于踢出去开新推特号了wwwwwwwww
 
 
-
-
-
-
-
 -----
 
 ####  miro112233  
 ##### 78161#       发表于 2021-3-7 20:31
-
-
 
 
 居然是FR1里的竞技场炮灰卫星之一<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
@@ -3014,16 +1980,10 @@ FGO礼装的画风真是越来越多样了，无限梦想那个三星礼装，�
 FR扯了一堆名字当卫星还真有点效用啊
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 78162#       发表于 2021-3-7 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543180&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-3-7 20:31</a>
@@ -3037,16 +1997,10 @@ FR扯了一堆名字当卫星还真有点效用啊 ...</blockquote>
 狮子王众：？？？
 
 
-
-
-
-
-
 -----
 
 ####  miro112233  
 ##### 78163#       发表于 2021-3-7 20:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50543205&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-7 20:33</a>
@@ -3061,31 +2015,19 @@ FR扯了一堆名字当卫星还真有点效用啊 ...</blockquote>
 街机我看着是一部完结就跑路的节奏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  alucardcz  
 ##### 78164#       发表于 2021-3-8 15:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大碧池强化本什么时候开的..最近摸的有点透彻
-
-
-
-
-
 
 
 -----
 
 ####  rooarr  
 ##### 78165#       发表于 2021-3-8 15:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50552083&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-3-8 15:10</a>
@@ -3095,26 +2037,15 @@ FR扯了一堆名字当卫星还真有点效用啊 ...</blockquote>
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 78166#       发表于 2021-3-9 22:27
 
 
-
  本帖最后由 khxooo 于 2021-3-9 22:31 编辑 
 
 高难其实就是之前梅菲那个高难的升级版吧，将从者杀了让教授上场。眩晕好像可以阻止教授走人？
-
-
-
-
-
 
 
 -----
@@ -3123,15 +2054,9 @@ FR扯了一堆名字当卫星还真有点效用啊 ...</blockquote>
 ##### 78167#       发表于 2021-3-10 09:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50569619&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-3-9 22:27</a>
 高难其实就是之前梅菲那个高难的升级版吧，将从者杀了让教授上场。眩晕好像可以阻止教授走人？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我直接仇凛车过去了....完全没care教授走不走......
-
-
-
-
-
 
 
 -----
@@ -3140,22 +2065,13 @@ FR扯了一堆名字当卫星还真有点效用啊 ...</blockquote>
 ##### 78168#       发表于 2021-3-10 19:15
 
 
-
-
 UP小王子 看来今年没FR复刻了
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78169#       发表于 2021-3-10 19:22
-
-
 
 
 想想俗话说天草复刻后必有大事，然后我就课了一单，然后看到卫星PU就扔了个十一连，出了
@@ -3165,16 +2081,10 @@ UP小王子 看来今年没FR复刻了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78170#       发表于 2021-3-10 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50579811&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-10 19:22</a>
@@ -3185,16 +2095,10 @@ UP小王子 看来今年没FR复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">豹跳得太快
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78171#       发表于 2021-3-10 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50580323&amp;ptid=1085254" target="_blank">areklose 发表于 2021-3-10 20:02</a>
@@ -3203,16 +2107,10 @@ UP小王子 看来今年没FR复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚换的狗粮又没了……苦
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 78172#       发表于 2021-3-10 21:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50580897&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-10 20:51</a>
@@ -3221,16 +2119,10 @@ UP小王子 看来今年没FR复刻了
 令人羡慕的苦恼<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 78173#       发表于 2021-3-10 21:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50579811&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-10 19:22</a>
@@ -3241,16 +2133,10 @@ UP小王子 看来今年没FR复刻了
 你这个天启的效果越来越怪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78174#       发表于 2021-3-11 00:25
-
 
 
 <blockquote>引用第78172楼里村紅葉于2021-03-10 21:01发表的  :
@@ -3266,24 +2152,13 @@ UP小王子 看来今年没FR复刻了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78175#       发表于 2021-3-12 23:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">拿着30天登录石去赌老李，结果给我new个奥德修斯是什么鬼？
-
-
-
-
-
 
 
 -----
@@ -3292,16 +2167,10 @@ UP小王子 看来今年没FR复刻了
 ##### 78176#       发表于 2021-3-13 01:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605912&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-12 23:08</a>
 
 拿着30天登录石去赌老李，结果给我new个奥德修斯是什么鬼？</blockquote>
 国日联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3310,16 +2179,10 @@ UP小王子 看来今年没FR复刻了
 ##### 78177#       发表于 2021-3-14 17:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605912&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-12 23:08</a>
 
 拿着30天登录石去赌老李，结果给我new个奥德修斯是什么鬼？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">天启不对
-
-
-
-
-
 
 
 -----
@@ -3328,13 +2191,7 @@ UP小王子 看来今年没FR复刻了
 ##### 78178#       发表于 2021-3-14 21:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">卧槽 这活动不是周三而是明天结束。我沉迷马娘和天地劫完全不怎样动过。。
-
-
-
-
-
 
 
 -----
@@ -3343,16 +2200,10 @@ UP小王子 看来今年没FR复刻了
 ##### 78179#       发表于 2021-3-14 23:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50624057&amp;ptid=1085254" target="_blank">areklose 发表于 2021-3-14 21:16</a>
 
 卧槽 这活动不是周三而是明天结束。我沉迷马娘和天地劫完全不怎样动过。。 ...</blockquote>
 这商店也没啥好东西搬吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3361,16 +2212,10 @@ UP小王子 看来今年没FR复刻了
 ##### 78180#       发表于 2021-3-15 10:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50625734&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-3-14 23:54</a>
 
 这商店也没啥好东西搬吧</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">金芙芙不值吗！
-
-
-
-
-
 
 
 -----
@@ -3379,16 +2224,9 @@ UP小王子 看来今年没FR复刻了
 ##### 78181#       发表于 2021-3-15 17:07
 
 
-
-
 看到更新100多兆我还想起码能来个幕间吧，真有你的啊YLS<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -3397,14 +2235,7 @@ UP小王子 看来今年没FR复刻了
 ##### 78182#       发表于 2021-3-15 17:08
 
 
-
-
 看这预告。。。怕不是新式百重塔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3413,14 +2244,7 @@ UP小王子 看来今年没FR复刻了
 ##### 78183#       发表于 2021-3-15 17:13
 
 
-
-
 这种超级毒池真的有人会抽么
-
-
-
-
-
 
 
 -----
@@ -3429,14 +2253,7 @@ UP小王子 看来今年没FR复刻了
 ##### 78184#       发表于 2021-3-15 17:14
 
 
-
-
 百重塔<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3445,15 +2262,8 @@ UP小王子 看来今年没FR复刻了
 ##### 78185#       发表于 2021-3-15 17:29
 
 
-
-
 百重塔不挺好的，你游少有的能放开手正面干的活动，不然仓库都要生霉了
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3462,14 +2272,7 @@ UP小王子 看来今年没FR复刻了
 ##### 78186#       发表于 2021-3-15 17:30
 
 
-
-
 百重塔好啊，那就是登录一分钟下线完事嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3478,14 +2281,7 @@ UP小王子 看来今年没FR复刻了
 ##### 78187#       发表于 2021-3-15 17:32
 
 
-
-
 泔，今年的是男人就下200层还是来了，这种对社畜不友好的活动就不能像别的手游改成半常驻的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3494,14 +2290,7 @@ UP小王子 看来今年没FR复刻了
 ##### 78188#       发表于 2021-3-15 18:38
 
 
-
-
 一括要下5个G，是就我这样吗
-
-
-
-
-
 
 
 -----
@@ -3510,24 +2299,16 @@ UP小王子 看来今年没FR复刻了
 ##### 78189#       发表于 2021-3-15 18:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50633813&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-3-15 18:38</a>
 
 一括要下5个G，是就我这样吗</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也是（苹果
 
 
-
-
-
-
-
 -----
 
 ####  34789  
 ##### 78190#       发表于 2021-3-15 20:02
-
-
 
 
 感谢职阶up（
@@ -3539,17 +2320,10 @@ UP小王子 看来今年没FR复刻了
 下面就等花嫁复刻换下武藏了（
 
 
-
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78191#       发表于 2021-3-16 11:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50632938&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-3-15 17:13</a>
@@ -3558,32 +2332,19 @@ UP小王子 看来今年没FR复刻了
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我想抽。毕竟特殊阶级就萨老师一个人点几下能补个满宝
 
 
-
-
-
-
-
 -----
 
 ####  yangun22  
 ##### 78192#       发表于 2021-3-16 14:17
 
 
-
-
 爬塔不是挺好的，三满破宝石洗地很快的，材料又多最主要是结晶多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78193#       发表于 2021-3-16 16:22
-
 
 
 <blockquote>引用第78191楼yangun22于2021-03-16 14:17发表的  :
@@ -3596,16 +2357,10 @@ UP小王子 看来今年没FR复刻了
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 78194#       发表于 2021-3-16 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50643118&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-16 16:22</a>
@@ -3616,16 +2371,10 @@ UP小王子 看来今年没FR复刻了
 天启是打不过壕氪的，放弃吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  yangun22  
 ##### 78195#       发表于 2021-3-16 16:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50643118&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-16 16:22</a>
@@ -3636,25 +2385,13 @@ UP小王子 看来今年没FR复刻了
 2张也够了啊，加个虚数调整一下带自充的和3宝石没啥区别了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 78196#       发表于 2021-3-16 17:24
 
 
-
-
 入坑日服两年没宝石，国服爬塔我三宝石无脑按宝具，这边还要打np简直精污好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3663,21 +2400,13 @@ UP小王子 看来今年没FR复刻了
 ##### 78197#       发表于 2021-3-16 19:21
 
 
-
-
 话说这回活动的标题的秋叶原特意用片假名写，字体也一股近未来风，会不会是要和requiem扯上什么关系呢，而且隔壁街机刚好落地了了一个requiem的卫星，你们以为今年联动是月姬？其实是requiem二期哒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看似是惯例的爬塔，其实是联动的预热
-
-
-
-
-
 
 
 -----
 
 ####  miro112233  
 ##### 78198#       发表于 2021-3-16 22:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50645102&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-3-16 19:21</a>
@@ -3688,24 +2417,13 @@ requiem里写秋叶原是《秋叶原》这种纯汉字写法，所以这活动�
 佐证吗……反正星空在推特上对这个活动完全的无关心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78199#       发表于 2021-3-18 13:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么早关活动，但爬塔还不开
-
-
-
-
-
 
 
 -----
@@ -3714,16 +2432,9 @@ requiem里写秋叶原是《秋叶原》这种纯汉字写法，所以这活动�
 ##### 78200#       发表于 2021-3-22 17:18
 
 
-
-
 爬塔活动怎么还出新卡的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
@@ -3732,14 +2443,7 @@ requiem里写秋叶原是《秋叶原》这种纯汉字写法，所以这活动�
 ##### 78201#       发表于 2021-3-22 17:21
 
 
-
-
 四星礼装上面的是爱迪生、莫里亚蒂和......梅菲斯特？三星子安什么时候出个皮肤啊，礼装都有好几个正常人版本了。
-
-
-
-
-
 
 
 -----
@@ -3748,24 +2452,16 @@ requiem里写秋叶原是《秋叶原》这种纯汉字写法，所以这活动�
 ##### 78202#       发表于 2021-3-22 17:23
 
 
-
-
 新卡常驻，不急
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  Jamaisvu  
 ##### 78203#       发表于 2021-3-22 17:23
-
 
 
  本帖最后由 Jamaisvu 于 2021-3-22 19:51 编辑 
@@ -3778,25 +2474,13 @@ requiem里写秋叶原是《秋叶原》这种纯汉字写法，所以这活动�
 C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎不看好。
 
 
-
-
-
-
-
 -----
 
 ####  xiongxingyu  
 ##### 78204#       发表于 2021-3-22 17:44
 
 
-
-
 绝了，这新狂阶不是皮格马利翁的手办老婆吗？秋叶原主题的活动落地了人类最古的美少女手办老婆，我感到了一股恶意铺面而来，蘑菇你会玩啊。死宅们，你们的手办老婆活了，别养马了，快回来爬塔吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3805,23 +2489,16 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78205#       发表于 2021-3-22 17:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50701424&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-3-22 17:23</a>
 
 新从者是个罗马神话里的雕像妹子，国王造出来取代自己亡妻的，EVA+魔偶马戏团既视感（CV是林原惠就好了... ...</blockquote>
 单体不怕，看到哈吉咩酱了吗？感觉手办老婆能值班大公成为新一代通用蓝单体的概率不低，毕竟大公其实NP率也一般般，靠吸血和黄金率抬回来的，但是宝具倍率和自buff就惨不忍睹了。手办老婆前置了3t的宝威，感觉至少输出不会拉跨，最多就是可能有补刀回蓝，作为单体宝具完全可以接受。
 
 
-
-
-
-
-
 -----
 
 ####  Jamaisvu  
 ##### 78206#       发表于 2021-3-22 17:58
-
 
 
  本帖最后由 Jamaisvu 于 2021-3-22 17:59 编辑 
@@ -3836,25 +2513,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 （话说补刀回蓝这一点，我一直希望以后出个辅助角色，可以给对面上1血战续，方便我鞭尸回NP<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
 
 
-
-
-
-
-
 -----
 
 ####  阿提拉  
 ##### 78207#       发表于 2021-3-22 18:08
 
 
-
-
 艹，爬个塔居然还出新卡，我还想着三月份刚好可以不氪省钱呢
-
-
-
-
-
 
 
 -----
@@ -3863,13 +2528,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78208#       发表于 2021-3-22 18:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">蓝色单体狂  大公的末日要来了吗
-
-
-
-
-
 
 
 -----
@@ -3878,20 +2537,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78209#       发表于 2021-3-22 18:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这蓝卡狂能不能拳打金钻头，脚踢大公成为蓝卡第一单体
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78210#       发表于 2021-3-22 18:22
-
 
 
 <blockquote>引用第78206楼阿提拉于2021-03-22 18:08发表的  :
@@ -3903,25 +2555,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  战神无敌  
 ##### 78211#       发表于 2021-3-22 21:43
 
 
-
-
 浪花女神（指石头打水漂）
-
-
-
-
-
 
 
 -----
@@ -3930,18 +2570,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78212#       发表于 2021-3-22 21:57
 
 
-
-
 怎么又是常驻，之前乐子龙已经坑过我一次了，这次
 
 
-
 我肯定还抽<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3950,14 +2582,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78213#       发表于 2021-3-22 22:46
 
 
-
-
 没石头，这次活动之后，再来个联动2.6估计就要来了，等阿格。
-
-
-
-
-
 
 
 -----
@@ -3966,23 +2591,15 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78214#       发表于 2021-3-22 22:55
 
 
-
-
 你们都不留着石头抽月姬的吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78215#       发表于 2021-3-22 23:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50704331&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-3-22 22:55</a>
@@ -3994,29 +2611,16 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">再课不就好了.jpg
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 78216#       发表于 2021-3-22 23:39
 
 
-
-
 活动礼装比较大于等于英灵等级才生效
 
 
-
 就差没有明着说“给我抽卡”了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4025,16 +2629,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78217#       发表于 2021-3-23 08:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50704257&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-3-22 22:46</a>
 
 没石头，这次活动之后，再来个联动2.6估计就要来了，等阿格。</blockquote>
 阿贵不出
-
-
-
-
-
 
 
 -----
@@ -4043,14 +2641,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78218#       发表于 2021-3-23 09:02
 
 
-
-
 手办娘是应该是岛田画的吧，应该是岛田第一次登月？这一波是两大过气IP（误）联合要从cy恶势力的赛马场里把沉迷赌马的提督/御主拖回来吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4059,15 +2650,9 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78219#       发表于 2021-3-23 09:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706331&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-23 08:55</a>
 阿贵不出</blockquote>
 阿格机会很大吧，毕竟剧场版下部准备出了，可以拉一波人气。
-
-
-
-
-
 
 
 -----
@@ -4076,22 +2661,15 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78220#       发表于 2021-3-23 10:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706385&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-3-23 09:02</a>
 手办娘是应该是岛田画的吧，应该是岛田第一次登月？这一波是两大过气IP（误）联合要从cy恶势力的赛马场里把 ...</blockquote>
 岛田画的出这么难看的赖子 是要上火刑架的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  UNISONIA  
 ##### 78221#       发表于 2021-3-23 10:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50706810&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-3-23 09:45</a>
@@ -4106,16 +2684,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 （阿贵的问题更特殊一点，第一部时期有详细描述的）
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 78222#       发表于 2021-3-23 10:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50707350&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-3-23 10:36</a>
@@ -4126,25 +2698,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 那就慢慢等就是了，反正出就满宝预定，不出还省钱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78223#       发表于 2021-3-24 17:06
 
 
-
-
 技能组看着不行，除非宝具回收能直接100，总觉得凉凉
-
-
-
-
-
 
 
 -----
@@ -4153,13 +2713,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78224#       发表于 2021-3-24 17:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">这卡面也...太普通了吧
-
-
-
-
-
 
 
 -----
@@ -4168,14 +2722,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78225#       发表于 2021-3-24 17:23
 
 
-
-
 简直稀烂，就这还大沉船，亏大了
-
-
-
-
-
 
 
 -----
@@ -4184,15 +2731,9 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78226#       发表于 2021-3-24 17:28
 
 
-
 <blockquote>alucardcz 发表于 2021-3-24 17:14
 这卡面也...太普通了吧</blockquote>
 双子，尼禄，真是越来越摸鱼，渡边纲都上心多
-
-
-
-
-
 
 
 -----
@@ -4201,15 +2742,9 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78227#       发表于 2021-3-24 17:29
 
 
-
 <blockquote>areklose 发表于 2021-3-24 17:28
 双子，尼禄，真是越来越摸鱼，渡边纲都上心多</blockquote>
 说错，是尼莫。花嫁倒是强化得越来越离谱
-
-
-
-
-
 
 
 -----
@@ -4218,14 +2753,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78228#       发表于 2021-3-24 17:37
 
 
-
-
 初始卡面什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4234,21 +2762,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78229#       发表于 2021-3-24 17:47
 
 
-
-
 看了下卡面还好啊，岛田不就这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  黑上シグマ  
 ##### 78230#       发表于 2021-3-24 17:52
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">手上一个石头都没，就两张票子扔进去，出了大公
@@ -4260,25 +2780,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  白夜羽  
 ##### 78231#       发表于 2021-3-24 17:53
 
 
-
-
 你游真的自由，急需强化的打死不给强化，锦上添花都算不上的反而强化本给你往死里塞<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4287,14 +2795,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78232#       发表于 2021-3-24 18:10
 
 
-
-
 没想到啊，手办娘靠3红躲过了np残疾的诅咒，裸宝具回收还高过大公，自充输一手（20比30），大公30黄金率，手办娘30蓝放，手办娘略优（WCAB体系下差别不大），然后前置20宝威宝具伤害完爆大公，生存能力不输大公还赢一手3回合的弱体解除，就是自充绑定蓝放有点影响手感，少一张蓝卡部分场合会比较尴尬。总体来说是张吃到了版本和职阶福利的强卡
-
-
-
-
-
 
 
 -----
@@ -4303,13 +2804,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78233#       发表于 2021-3-24 18:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年转运了，上年抽一个英灵花的抽数够我抽3个
-
-
-
-
-
 
 
 -----
@@ -4318,13 +2813,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78234#       发表于 2021-3-24 18:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">27号单吊尼禄+1还是找个能顺便歪机娘的日子抽呢
-
-
-
-
-
 
 
 -----
@@ -4333,16 +2822,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78235#       发表于 2021-3-24 18:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50721659&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-3-24 17:53</a>
 
 你游真的自由，急需强化的打死不给强化，锦上添花都算不上的反而强化本给你往死里塞 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">你游本来就这么自由 反正也没什么强化次数限制 
-
-
-
-
-
 
 
 -----
@@ -4351,16 +2834,9 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78236#       发表于 2021-3-24 18:38
 
 
-
-
 尼禄真.理财产品，还有个二技能没强化过，缓冲爆伤蓝魔放选一个吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -4369,15 +2845,9 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78237#       发表于 2021-3-24 19:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50721356&amp;ptid=1085254" target="_blank">areklose 发表于 2021-3-24 17:29</a>
 说错，是尼莫。花嫁倒是强化得越来越离谱</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">国服2宝的表示血赚，日服得过几天抽一个回家了
-
-
-
-
-
 
 
 -----
@@ -4386,14 +2856,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78238#       发表于 2021-3-24 20:33
 
 
-
-
 爬了20层，不高兴了爬了，好麻烦啊
-
-
-
-
-
 
 
 -----
@@ -4402,23 +2865,15 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78239#       发表于 2021-3-24 20:40
 
 
-
-
 又又又沉了一单石头，连5星礼装都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
-
-
-
-
-
 
 
 -----
 
 ####  alucardcz  
 ##### 78240#       发表于 2021-3-24 21:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50723464&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-3-24 20:40</a>
@@ -4430,26 +2885,15 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 <img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">你怎么常驻都课呢（
 
 
-
-
-
-
-
 -----
 
 ####  rooarr  
 ##### 78241#       发表于 2021-3-24 21:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724005&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-3-24 21:37</a>
 你怎么常驻都课呢（</blockquote>
 攒的石头<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4458,22 +2902,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78242#       发表于 2021-3-24 21:51
 
 
-
-
 这吊活动真的烦，捏着鼻子爬了20层实在够了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  白金口袋  
 ##### 78243#       发表于 2021-3-24 23:15
-
-
 
 
 这石雕女，性能上不算出类拔萃，毕竟大公几乎人人都能歪出来，她俩几乎差不多
@@ -4489,16 +2924,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 这种时候才最应该放女梅林回升一波的，咋想的搬出这种石雕来<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 78244#       发表于 2021-3-24 23:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50724963&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-24 23:15</a>
@@ -4509,16 +2938,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 我到现在都没有大公<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78245#       发表于 2021-3-24 23:30
-
 
 
  本帖最后由 黑上シグマ 于 2021-3-24 23:33 编辑 
@@ -4536,16 +2959,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 以及现在哪有时间帮你好好搞，忙着抓内鬼好不好
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 78246#       发表于 2021-3-24 23:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725098&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 09:30</a>
@@ -4558,16 +2975,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 内鬼是什么详细说说，我错过了什么大新闻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78247#       发表于 2021-3-24 23:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725152&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-24 23:35</a>
@@ -4580,16 +2991,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 实际DW的确是跑了一大片人，一年跑掉了大概1/4
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 78248#       发表于 2021-3-24 23:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 09:45</a>
@@ -4598,16 +3003,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 原来如此，多谢解惑，虽然完全不关心就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  stefanie张  
 ##### 78249#       发表于 2021-3-24 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725098&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 23:30</a>
@@ -4618,16 +3017,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 你现在再去看，已经第二了，出一个常驻就把马娘超了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78250#       发表于 2021-3-24 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725267&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-3-24 23:47</a>
@@ -4638,16 +3031,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 这急吼吼的敛财怕不都是拿去补贴樱战的
 
 
-
-
-
-
-
 -----
 
 ####  里村紅葉  
 ##### 78251#       发表于 2021-3-24 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 23:45</a>
@@ -4656,16 +3043,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 要是离职员工爆的他们也查得出吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78252#       发表于 2021-3-24 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725273&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-3-24 23:48</a>
@@ -4674,16 +3055,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你那是IOS榜吧，谷歌榜还没动
 
 
-
-
-
-
-
 -----
 
 ####  白金口袋  
 ##### 78253#       发表于 2021-3-24 23:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725281&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-3-24 09:49</a>
@@ -4692,16 +3067,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 毕竟还有雇侦探啥的各种手段，要查肯定还是可以的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 78254#       发表于 2021-3-25 01:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50725246&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-3-24 23:45</a>
@@ -4710,16 +3079,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 马场这种人都敢收，庄司的脑子真的有病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，而且到现在还是将废狗初期那套带进樱花大战，不暴死就奇怪了。
 
 
-
-
-
-
-
 -----
 
 ####  UNISONIA  
 ##### 78255#       发表于 2021-3-25 09:01
-
 
 
  本帖最后由 UNISONIA 于 2021-3-25 09:11 编辑 
@@ -4737,24 +3100,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 人员锐减的事情也有细说啊，原负责某三次元业务的部门因为疫情冲击裁撤了大部分人员（这才是社内员工数量大幅度下降的主因），另外现二部和三部维持只出不进的情况。我个人推测是BB Studio架空了一些废狗的设计业务以后，二部干脆把原本负责这部分的人手调离或者不要了
 
 
-
-
-
-
-
 -----
 
 ####  JMFluorece  
 ##### 78256#       发表于 2021-3-25 09:49
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">初始那个裤子真是丑爆了，谁想出来的设计出来挨打
-
-
-
-
-
 
 
 -----
@@ -4763,16 +3115,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78257#       发表于 2021-3-25 09:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50727427&amp;ptid=1085254" target="_blank">JMFluorece 发表于 2021-3-25 09:49</a>
 
 初始那个裤子真是丑爆了，谁想出来的设计出来挨打</blockquote>
 岛田推特看起来是他自己
-
-
-
-
-
 
 
 -----
@@ -4783,20 +3129,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  alucardcz  
 ##### 78259#       发表于 2021-3-25 16:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">这高难真**  那么多战续强行叫人用耐久队  看着就不想打了
-
-
-
-
-
 
 
 -----
@@ -4805,21 +3144,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78260#       发表于 2021-3-25 17:54
 
 
-
-
 我好像已经好几次活动都没打高难了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  里村紅葉  
 ##### 78261#       发表于 2021-3-25 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50731742&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-3-25 17:54</a>
@@ -4829,32 +3160,19 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  gugu153  
 ##### 78262#       发表于 2021-3-25 21:15
 
 
-
-
 没热情了，只爬了40层
-
-
-
-
-
 
 
 -----
 
 ####  白夜羽  
 ##### 78263#       发表于 2021-3-26 00:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50731780&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-3-25 17:57</a>
@@ -4864,24 +3182,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 不打高难不需要点技能，不点技能不需要打高难，良性循环，好起来力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  areklose  
 ##### 78264#       发表于 2021-3-26 08:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爬塔那么粪的活动为啥还能出到三期，出个圣杯战线让我摸鱼多好
-
-
-
-
-
 
 
 -----
@@ -4890,14 +3197,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78265#       发表于 2021-3-26 11:15
 
 
-
-
 这次只有100层应该还好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4906,23 +3206,16 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78266#       发表于 2021-3-26 11:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50737800&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-3-25 21:15</a>
 
 这次只有100层应该还好吧</blockquote>
 不，是200层<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78267#       发表于 2021-3-26 11:27
-
 
 
 <blockquote>引用第78264楼rooarr于2021-03-26 11:15发表的  :
@@ -4934,17 +3227,10 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  黑上シグマ  
 ##### 78268#       发表于 2021-3-26 11:36
-
-
 
 
 刷推喷了，月姬格斗新作因为有挂DW的名字，现在一水的在喷DW
@@ -4953,25 +3239,13 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  yangun22  
 ##### 78269#       发表于 2021-3-26 12:50
 
 
-
-
 格斗游戏开发还是原来的法棍，发售居然是DW,关系还挺好的么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4980,14 +3254,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78270#       发表于 2021-3-26 12:57
 
 
-
-
 菌类在玩那个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4996,13 +3263,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78271#       发表于 2021-3-26 13:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">当初：等月姬R出来万一里面人物也实装fgo就氪爆，现在：好耶有mb新作还氪个p
-
-
-
-
-
 
 
 -----
@@ -5011,14 +3272,7 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78272#       发表于 2021-3-26 13:25
 
 
-
-
 是啊，有Mb还氪个p，一单都不用，而且游戏性比废狗好多了。
-
-
-
-
-
 
 
 -----
@@ -5027,14 +3281,9 @@ C呆之后出的蓝卡肯定是要被削的，这还是个单体狂......谨慎�
 ##### 78273#       发表于 2021-3-26 13:36
 
 
-
-
 然后30号的直播真就给你们整一个fgo联动月姬，再塞几个新设定，最后和27内卷组织新设定一起并进月姬r
 直接给你们从头到脚全方位割一波大的
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
 
 
                                         

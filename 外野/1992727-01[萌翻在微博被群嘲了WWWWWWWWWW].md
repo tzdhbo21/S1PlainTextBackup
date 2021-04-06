@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2021-03-13 01:41** 
 
 
-
 -----
 
 ####  深蹲  
 ##### 1#       楼主       发表于 2021-3-12 09:11
-
 
 
  本帖最后由 深蹲 于 2021-3-12 09:13 编辑 
@@ -18,24 +16,13 @@
 <img src="https://ae01.alicdn.com/kf/U8ee243c55ba245b799eaac356fafa451P.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  深蹲  
 ##### 2#         楼主| 发表于 2021-3-12 09:18
 
 
-
 <img src="https://ae01.alicdn.com/kf/Ub64a2c20a6814895b03f7c693d49e861i.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -44,21 +31,13 @@
 ##### 3#       发表于 2021-3-12 09:25
 
 
-
-
 一部eva逼疯多少人 婆罗门刹帝利达利特扭打在一起 不再为阶级而是为了不同的信仰！史称天鹰事变()
-
-
-
-
-
 
 
 -----
 
 ####  cpuisme  
 ##### 4#       发表于 2021-3-12 09:30
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 反正我搞不懂有什么好争的。
@@ -68,25 +47,13 @@
 听说新剧场版结局是找了个妈，可能这才是他的归宿吧。
 
 
-
-
-
-
-
 -----
 
 ####  傲娇的章鱼  
 ##### 5#       发表于 2021-3-12 09:31
 
 
-
-
 庵野秀明，你毁了多少人！
-
-
-
-
-
 
 
 -----
@@ -95,13 +62,7 @@
 ##### 6#       发表于 2021-3-12 09:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">卧槽大友领袖
-
-
-
-
-
 
 
 -----
@@ -110,18 +71,12 @@
 ##### 7#       发表于 2021-3-12 09:34
 
 
-
-
 萌翻天天往国内发日本这个不爽那个恶心又坚决不肯回国的表演还是很好看的。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 +3
@@ -133,12 +88,7 @@
 | shazam| + 1|哈哈哈好笑|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -147,14 +97,7 @@
 ##### 8#       发表于 2021-3-12 09:35
 
 
-
-
 阿宅何苦为难阿宅
-
-
-
-
-
 
 
 -----
@@ -163,14 +106,7 @@
 ##### 9#       发表于 2021-3-12 09:35
 
 
-
-
 呀咩那塞，二次元是民那桑的家呀
-
-
-
-
-
 
 
 -----
@@ -179,16 +115,9 @@
 ##### 10#       发表于 2021-3-12 09:36
 
 
-
-
 还有这事？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2007J1SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
-
-
-
-
-
 
 
 -----
@@ -197,15 +126,9 @@
 ##### 11#       发表于 2021-3-12 09:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是浪国二刺猿吗？涉及到与自己政治立场的人时一个劲表示不能翻旧账，但碰上和自己有冲突的人时第一反应就是翻旧账嘲讽。
 
 当然，社会人萌翻往别人枪口上冲也很傻逼。
-
-
-
-
-
 
 
 -----
@@ -214,13 +137,7 @@
 ##### 12#       发表于 2021-3-12 09:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">博主不是连eva tv都没看过吗
-
-
-
-
-
 
 
 -----
@@ -229,13 +146,7 @@
 ##### 13#       发表于 2021-3-12 09:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">所以到现在五天了，有哪位勇士带🔪去找痞子促膝长谈吗？就这点儿战斗力也难怪痞子看不起E粉
-
-
-
-
-
 
 
 -----
@@ -244,13 +155,7 @@
 ##### 14#       发表于 2021-3-12 09:38
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">直播性生活属实下作，没想到人这么垃圾吗
-
-
-
-
-
 
 
 -----
@@ -259,14 +164,7 @@
 ##### 15#       发表于 2021-3-12 09:39
 
 
-
-
 这人谁啊，不管什么猫猫狗狗只要是坛友就配发个帖喽
-
-
-
-
-
 
 
 -----
@@ -275,14 +173,7 @@
 ##### 16#       发表于 2021-3-12 09:40
 
 
-
-
 真的搞笑
-
-
-
-
-
 
 
 -----
@@ -291,20 +182,15 @@
 ##### 17#       发表于 2021-3-12 09:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597106&amp;ptid=1992727" target="_blank">IDIDIDID 发表于 2021-3-12 09:34</a>
 
 萌翻天天往国内发日本这个不爽那个恶心又坚决不肯回国的表演还是很好看的。 ...</blockquote>
 二次元陈平<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -314,19 +200,13 @@
 | 风动心静| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  dllplayer  
 ##### 18#       发表于 2021-3-12 09:42
-
 
 
  本帖最后由 dllplayer 于 2021-3-12 09:45 编辑 
@@ -349,26 +229,13 @@
 你总能说当个二次元意见领袖就能养活自己吧
 
 
-
-
-
-
-
-
 -----
 
 ####  大江户战士  
 ##### 19#       发表于 2021-3-12 09:42
 
 
-
-
 看到幼月大佐了，都第8代了？
-
-
-
-
-
 
 
 -----
@@ -377,13 +244,7 @@
 ##### 20#       发表于 2021-3-12 09:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己一身骚还喜欢开别人团是这样的
-
-
-
-
-
 
 
 -----
@@ -392,14 +253,7 @@
 ##### 21#       发表于 2021-3-12 09:49
 
 
-
-
 所以萌翻在微博说了啥了？
-
-
-
-
-
 
 
 -----
@@ -408,17 +262,10 @@
 ##### 22#       发表于 2021-3-12 09:49
 
 
-
-
 当时知道这个配对情节之后，确实还是挺失望的。
 
 
 但是后来仔细想了一下，居然觉得这样的配对很有道理，更符合生活中的普扁情况。痞子是想说主角们也脱宅了么？
-
-
-
-
-
 
 
 -----
@@ -427,14 +274,7 @@
 ##### 23#       发表于 2021-3-12 09:50
 
 
-
-
 恼羞成怒，愤而删博的样子真的太丢人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -443,14 +283,7 @@
 ##### 24#       发表于 2021-3-12 09:52
 
 
-
-
 萌翻自己找到对象了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -459,14 +292,7 @@
 ##### 25#       发表于 2021-3-12 09:54
 
 
-
-
 苏联笑话味有点重<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -475,14 +301,7 @@
 ##### 26#       发表于 2021-3-12 09:54
 
 
-
-
 庵野老贼这是直接废除了二次元种族法案
-
-
-
-
-
 
 
 -----
@@ -491,14 +310,7 @@
 ##### 27#       发表于 2021-3-12 09:54
 
 
-
-
 互相看不起。互相视为垃圾。这就是中国宅圈。当然。日本更甚
-
-
-
-
-
 
 
 -----
@@ -516,22 +328,13 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 你意思是当初萌翻被外务省骗了怀着精日般的对日本的美好幻想去的日本？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 
-
-
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
-
-
-
-
-
 
 
 -----
 
 ####  荡寇将军张嶷  
 ##### 29#       发表于 2021-3-12 09:59
-
-
 
 
 因为观众自己生活一般、所以就没有资格批评作品，我觉得挺迷惑的。
@@ -541,16 +344,10 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 毕竟随便拉个明星或者有点名气的监督导演，生活水准都远胜普通人。
 
 
-
-
-
-
-
 -----
 
 ####  头像测试1号机  
 ##### 30#       发表于 2021-3-12 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597131&amp;ptid=1992727" target="_blank">nerugigannte 发表于 2021-3-12 09:36</a>
@@ -559,32 +356,19 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 新剧场版也只看了最后一部哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  寂寞小小鱼  
 ##### 31#       发表于 2021-3-12 10:02
 
 
-
-
 萌翻不是Q娃皇帝么<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  4790d  
 ##### 32#       发表于 2021-3-12 10:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597106&amp;ptid=1992727" target="_blank">IDIDIDID 发表于 2021-3-12 09:34</a>
@@ -594,16 +378,10 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 —— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
-
-
-
-
-
 -----
 
 ####  LilyWhite  
 ##### 33#       发表于 2021-3-12 10:05
-
 
 
 <blockquote>cpuisme 发表于 2021-3-12 09:30
@@ -618,16 +396,10 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 我不是任何CP党，我只想看CP党打起来
 
 
-
-
-
-
-
 -----
 
 ####  sangw  
 ##### 34#       发表于 2021-3-12 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597371&amp;ptid=1992727" target="_blank">midearth 发表于 2021-3-12 09:57</a>
@@ -640,13 +412,9 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 现在赚日本人的钱 也很好啊<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -656,19 +424,13 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 | shazam| + 1|去年疫情爆发被吓哭了都打死不肯回国呢.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  zerocount  
 ##### 35#       发表于 2021-3-12 10:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597379&amp;ptid=1992727" target="_blank">荡寇将军张嶷 发表于 2021-3-12 09:59</a>
@@ -684,32 +446,19 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 大概都是这么个意思
 
 
-
-
-
-
-
 -----
 
 ####  wsklmm  
 ##### 36#       发表于 2021-3-12 10:06
 
 
-
-
 建议设立门槛，单身狗不让看
-
-
-
-
-
 
 
 -----
 
 ####  nerugigannte  
 ##### 37#       发表于 2021-3-12 10:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597371&amp;ptid=1992727" target="_blank">midearth 发表于 2021-3-12 09:57</a>
@@ -720,16 +469,10 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这没什么好骂的吧，错的是世界，追求更好的生活没错
 
 
-
-
-
-
-
 -----
 
 ####  荡寇将军张嶷  
 ##### 38#       发表于 2021-3-12 10:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597463&amp;ptid=1992727" target="_blank">zerocount 发表于 2021-3-12 10:06</a>
@@ -741,16 +484,10 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 四娘真的悲伤逆流成河了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 39#       发表于 2021-3-12 10:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597371&amp;ptid=1992727" target="_blank">midearth 发表于 2021-3-12 09:57</a>
@@ -767,13 +504,9 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 毕竟那个时候还没有新冠这种政治不正确的病毒面世嘛
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -783,12 +516,7 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 | shazam| + 1|去年日本疫情爆发时吓哭了，都不肯回国呢.|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -797,14 +525,7 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 ##### 40#       发表于 2021-3-12 10:11
 
 
-
-
 二刺螈为什么要互相伤害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -813,14 +534,7 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 ##### 41#       发表于 2021-3-12 10:15
 
 
-
-
 原博没看过eva就出来指点江山了? 这比云观众哭丧还要离谱啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -829,13 +543,7 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 ##### 42#       发表于 2021-3-12 10:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">房费都是女方出的是真的吗
-
-
-
-
-
 
 
 -----
@@ -844,15 +552,9 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 ##### 43#       发表于 2021-3-12 10:23
 
 
-
 [https://bbs.saraba1st.com/2b/thread-1963524-1-1.html](https://bbs.saraba1st.com/2b/thread-1963524-1-1.html)
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拓展阅读 喜感翻倍 这就是皈依者狂热吧
-
-
-
-
-
 
 
 -----
@@ -861,15 +563,9 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 ##### 44#       发表于 2021-3-12 10:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597658&amp;ptid=1992727" target="_blank">宅音 发表于 2021-3-12 10:22</a>
 房费都是女方出的是真的吗</blockquote>
 这不证明人nb么（也许说明减肥后颜值不错？），看看番茄王。
-
-
-
-
-
 
 
 -----
@@ -878,21 +574,13 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 ##### 45#       发表于 2021-3-12 10:24
 
 
-
-
 龟龟 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  HMSWarspite  
 ##### 46#       发表于 2021-3-12 10:26
-
 
 
  本帖最后由 HMSWarspite 于 2021-3-12 10:28 编辑 
@@ -903,13 +591,9 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 抽查多了哔-自宽，两根绝对塞得下。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -919,12 +603,7 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 | OVTVO| + 1|看到这绷不住了|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -933,21 +612,13 @@ Re:萌翻在微博被群嘲了WWWWWWWWWW
 ##### 47#       发表于 2021-3-12 10:27
 
 
-
-
 一部eva，阿宅血泪洒
-
-
-
-
-
 
 
 -----
 
 ####  钱君  
 ##### 48#       发表于 2021-3-12 10:27
-
 
 
 <blockquote>拉菲尔神父 发表于 2021-3-12 10:23
@@ -958,26 +629,15 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 哈哈哈苍天饶过谁
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 49#       发表于 2021-3-12 10:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597672&amp;ptid=1992727" target="_blank">HMSWarspite 发表于 2021-3-12 10:24</a>
 这不证明人nb么（也许说明减肥后颜值不错？），看看番茄王。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我看岛国漫画，约了泡的第二天先跑的那个一般不都留一半房费在桌子上吗
-
-
-
-
-
 
 
 -----
@@ -986,15 +646,9 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 50#       发表于 2021-3-12 10:32
 
 
-
  本帖最后由 lyz1196 于 2021-3-12 10:33 编辑 
 
 不说了，祝萌翻能找到一个在酒店醒来搂在一起看Q娃的人<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1003,18 +657,12 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 51#       发表于 2021-3-12 10:34
 
 
-
-
 以他什么都要拿出来说一说的性格，这么多年也没第二次性生活直播了
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1024,12 +672,7 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 | 我被骗了五块钱| + 1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1038,14 +681,7 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 52#       发表于 2021-3-12 10:34
 
 
-
-
 怎么你们把萌翻形容的像个现充花花浪子一样，那他理解不了某些香党扭曲的占有欲就很合理了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1054,14 +690,7 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 53#       发表于 2021-3-12 10:44
 
 
-
-
 肥宅相轻，这很合理
-
-
-
-
-
 
 
 -----
@@ -1070,14 +699,7 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 54#       发表于 2021-3-12 10:44
 
 
-
-
 萌翻之前还有一次表示可以理解虐杀案凶手的犯罪动机。
-
-
-
-
-
 
 
 -----
@@ -1086,14 +708,7 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 55#       发表于 2021-3-12 10:47
 
 
-
-
 光腚拉磨，转圈丢人
-
-
-
-
-
 
 
 -----
@@ -1102,15 +717,9 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 56#       发表于 2021-3-12 10:48
 
 
-
 <blockquote>宅音 发表于 2021-3-12 10:30
 我看岛国漫画，约了泡的第二天先跑的那个一般不都留一半房费在桌子上吗 ...</blockquote>
 你说这个死宅哪懂啊
-
-
-
-
-
 
 
 -----
@@ -1119,14 +728,7 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 57#       发表于 2021-3-12 10:50
 
 
-
-
 看似肥宅相轻，其实都是萌翻的黑粉，粉圈思路一套豁然开朗
-
-
-
-
-
 
 
 -----
@@ -1135,23 +737,15 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 58#       发表于 2021-3-12 10:51
 
 
-
-
 性生活直播的微博截图来一个，给大家乐一乐
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  旋转吃草  
 ##### 59#       发表于 2021-3-12 10:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597190&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 09:42</a>
@@ -1163,16 +757,10 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 这意思是上海就业环境不如日本乡三线城市？
 
 
-
-
-
-
-
 -----
 
 ####  宅音  
 ##### 60#       发表于 2021-3-12 10:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597952&amp;ptid=1992727" target="_blank">女神アイギス 发表于 2021-3-12 10:48</a>
@@ -1180,16 +768,10 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本死宅也是看岛国人画漫画or拍剧才知道啊
 
 
-
-
-
-
-
 -----
 
 ####  pharos  
 ##### 61#       发表于 2021-3-12 10:54
-
 
 
  本帖最后由 pharos 于 2021-3-12 10:58 编辑 
@@ -1206,13 +788,9 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 “5分钟”“7分钟”
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -1222,12 +800,7 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 | NeloAngelo| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1236,15 +809,9 @@ https://bbs.saraba1st.com/2b/thread-1963524-1-1.html
 ##### 62#       发表于 2021-3-12 10:55
 
 
-
 <blockquote>pharos 发表于 2021-3-12 10:54
 https://bbs.saraba1st.com/2b/thread-1130845-1-1.html</blockquote>
 龟龟
-
-
-
-
-
 
 
 -----
@@ -1253,16 +820,10 @@ https://bbs.saraba1st.com/2b/thread-1130845-1-1.html</blockquote>
 ##### 63#       发表于 2021-3-12 10:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597577&amp;ptid=1992727" target="_blank">神道设教 发表于 2021-3-12 10:15</a>
 
 原博没看过eva就出来指点江山了? 这比云观众哭丧还要离谱啊</blockquote>
 yysy他还是看了新eva终的
-
-
-
-
-
 
 
 -----
@@ -1271,24 +832,16 @@ yysy他还是看了新eva终的
 ##### 64#       发表于 2021-3-12 10:59
 
 
-
-
 所以当初那个到底是不是韩国援交妹
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 65#       发表于 2021-3-12 11:01
-
 
 
  本帖最后由 dllplayer 于 2021-3-12 11:06 编辑 
@@ -1304,32 +857,19 @@ yysy他还是看了新eva终的
 那我承认..上海的就业环境远好于日本首都圈
 
 
-
-
-
-
-
 -----
 
 ####  五块太贵不买了  
 ##### 66#       发表于 2021-3-12 11:04
 
 
-
-
 真的要把每一个宅宅的言论拉出来鞭尸那可是要排很长的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  旋转吃草  
 ##### 67#       发表于 2021-3-12 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598100&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 11:01</a>
@@ -1341,16 +881,10 @@ yysy他还是看了新eva终的
 一个上海土著的日子还不如30岁跑去日本三线城市从头开始…那对平凡人来说难道不就是日本比上海更好？
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 68#       发表于 2021-3-12 11:09
-
 
 
  本帖最后由 dllplayer 于 2021-3-12 11:11 编辑 
@@ -1362,16 +896,10 @@ yysy他还是看了新eva终的
 就日本东京首都圈那一圈来说...下限比上海高这一点没啥意见吧...
 
 
-
-
-
-
-
 -----
 
 ####  旋转吃草  
 ##### 69#       发表于 2021-3-12 11:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598214&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 11:09</a>
@@ -1379,16 +907,10 @@ yysy他还是看了新eva终的
 他不也是先跑去上了几年学吗
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 70#       发表于 2021-3-12 11:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598250&amp;ptid=1992727" target="_blank">旋转吃草 发表于 2021-3-12 11:11</a>
@@ -1399,32 +921,19 @@ yysy他还是看了新eva终的
 那个翻字是啥意思?
 
 
-
-
-
-
-
 -----
 
 ####  yth329  
 ##### 71#       发表于 2021-3-12 11:16
 
 
-
-
 萌翻不是同济的吗，魔都本地985毕业再怎么说也不算下等人了吧
-
-
-
-
-
 
 
 -----
 
 ####  旋转吃草  
 ##### 72#       发表于 2021-3-12 11:18
-
 
 
  本帖最后由 旋转吃草 于 2021-3-12 11:29 编辑 
@@ -1438,32 +947,19 @@ yysy他还是看了新eva终的
 一个相对精通一门外语的上海土著，还不如日本三四线城市的做个租房打工外国人生活好…ummm…
 
 
-
-
-
-
-
 -----
 
 ####  duo_wolf  
 ##### 73#       发表于 2021-3-12 11:35
 
 
-
-
 虽然我没FO他微博，但是就最近这几年看到转发他微博的某些内容，觉得他是挺想做某方面的大V这门生意的，不单是指大友领袖，哪方面的大V（特别是在日的大V）能赚钱你们懂的，但是水平摆在那了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dllplayer  
 ##### 74#       发表于 2021-3-12 11:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598344&amp;ptid=1992727" target="_blank">旋转吃草 发表于 2021-3-12 11:18</a>
@@ -1486,26 +982,15 @@ yysy他还是看了新eva终的
 更不要提比较东京与上海的公共交通的方便程度了(主要是向接驳周边地区)
 
 
-
-
-
-
-
 -----
 
 ####  bka  
 ##### 75#       发表于 2021-3-12 11:37
 
 
-
 <blockquote>duo_wolf 发表于 2021-3-12 11:35
 虽然我没FO他微博，但是就最近这几年看到转发他微博的某些内容，觉得他是挺想做某方面的大V这门生意的，不 ...</blockquote>
 现在在日太多了，意见领袖不是这么容易当的了，如果是既没有水平也不愿拉下脸的话那就更糟了
-
-
-
-
-
 
 
 -----
@@ -1514,14 +999,7 @@ yysy他还是看了新eva终的
 ##### 76#       发表于 2021-3-12 11:38
 
 
-
-
 龟龟，你们不要再打啦.jpg
-
-
-
-
-
 
 
 -----
@@ -1530,14 +1008,7 @@ yysy他还是看了新eva终的
 ##### 77#       发表于 2021-3-12 11:40
 
 
-
-
 他在上海是断不能破处的了
-
-
-
-
-
 
 
 -----
@@ -1546,15 +1017,9 @@ yysy他还是看了新eva终的
 ##### 78#       发表于 2021-3-12 11:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598571&amp;ptid=1992727" target="_blank">duo_wolf 发表于 2021-3-12 11:35</a>
 虽然我没FO他微博，但是就最近这几年看到转发他微博的某些内容，觉得他是挺想做某方面的大V这门生意的，不 ...</blockquote>
 肥宅版日本傻事？
-
-
-
-
-
 
 
 -----
@@ -1563,14 +1028,7 @@ yysy他还是看了新eva终的
 ##### 79#       发表于 2021-3-12 11:43
 
 
-
-
 看萌翻的微博正常人都有一个疑问，他对日本这么大意见为啥当初要削尖脑袋往里钻，现在又不回国，哪怕是天天发日本疫情控制不住的时候还能坚守岗位，这是一种什么样的精神<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1579,14 +1037,7 @@ yysy他还是看了新eva终的
 ##### 80#       发表于 2021-3-12 11:45
 
 
-
-
 等等，萌翻不是在东(京及周边)三省吗，咋变三四线城市了？
-
-
-
-
-
 
 
 -----
@@ -1595,14 +1046,7 @@ yysy他还是看了新eva终的
 ##### 81#       发表于 2021-3-12 11:46
 
 
-
-
 还是作业太少了
-
-
-
-
-
 
 
 -----
@@ -1611,15 +1055,9 @@ yysy他还是看了新eva终的
 ##### 82#       发表于 2021-3-12 11:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598709&amp;ptid=1992727" target="_blank">钱君 发表于 2021-3-12 11:45</a>
 等等，萌翻不是在东(京及周边)三省吗，咋变三四线城市了？</blockquote>
 在千叶吧，差不多就住廊坊的北漂
-
-
-
-
-
 
 
 -----
@@ -1628,21 +1066,13 @@ yysy他还是看了新eva终的
 ##### 83#       发表于 2021-3-12 11:48
 
 
-
-
 脱处恩人这个说法真的是各种意义上很厉害 
-
-
-
-
-
 
 
 -----
 
 ####  samesame  
 ##### 84#       发表于 2021-3-12 11:49
-
 
 
  本帖最后由 samesame 于 2021-3-12 11:51 编辑 
@@ -1652,26 +1082,15 @@ yysy他还是看了新eva终的
 那啥挂帅是日常，不得不品尝<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">不过我说实话，身在日本骂日本不是很正常，不漂洋过海亲身领悟咋知道日本傻逼的细节，到时候不骂了你们又要说外务省塞工资了……
 
 
-
-
-
-
-
 -----
 
 ####  钱君  
 ##### 85#       发表于 2021-3-12 11:50
 
 
-
 <blockquote>p酱 发表于 2021-3-12 11:46
 在千叶吧，差不多就住廊坊的北漂</blockquote>
 好叫，千叶很好了好哇，又不是琦玉，别小看米老鼠自治领啊
-
-
-
-
-
 
 
 -----
@@ -1680,15 +1099,9 @@ yysy他还是看了新eva终的
 ##### 86#       发表于 2021-3-12 11:50
 
 
-
 <blockquote>p酱 发表于 2021-3-12 11:43
 看萌翻的微博正常人都有一个疑问，他对日本这么大意见为啥当初要削尖脑袋往里钻，现在又不回国，哪怕是天天 ...</blockquote>
 什么逻辑?? 在海外了就不能爱国了? 去了日本就必须要爱日本? 人家去了日本后比之前更爱中国，足以体现其成色了。
-
-
-
-
-
 
 
 -----
@@ -1697,15 +1110,9 @@ yysy他还是看了新eva终的
 ##### 87#       发表于 2021-3-12 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598802&amp;ptid=1992727" target="_blank">twwa17 发表于 2021-3-12 11:50</a>
 什么逻辑?? 在海外了就不能爱国了? 去了日本就必须要爱日本? 人家去了日本后比之前更爱中国，足以体现其 ...</blockquote>
 那为什么不回来呢
-
-
-
-
-
 
 
 -----
@@ -1714,22 +1121,15 @@ yysy他还是看了新eva终的
 ##### 88#       发表于 2021-3-12 11:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598691&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:43</a>
 看萌翻的微博正常人都有一个疑问，他对日本这么大意见为啥当初要削尖脑袋往里钻，现在又不回国，哪怕是天天 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">“我真的有两头牛”的精神啊
-
-
-
-
-
 
 
 -----
 
 ####  dllplayer  
 ##### 89#       发表于 2021-3-12 11:53
-
 
 
  本帖最后由 dllplayer 于 2021-3-12 11:55 编辑 
@@ -1741,13 +1141,7 @@ yysy他还是看了新eva终的
 但是他住在千叶就被叫成三线城市..
 
 
-
 至于上海嘛...还被叫做上海..(虽然我觉得不能算了)
-
-
-
-
-
 
 
 -----
@@ -1756,14 +1150,7 @@ yysy他还是看了新eva终的
 ##### 90#       发表于 2021-3-12 11:53
 
 
-
-
 肥宅为什么要互相伤害
-
-
-
-
-
 
 
 -----
@@ -1772,15 +1159,9 @@ yysy他还是看了新eva终的
 ##### 91#       发表于 2021-3-12 11:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598802&amp;ptid=1992727" target="_blank">twwa17 发表于 2021-3-12 11:50</a>
 什么逻辑?? 在海外了就不能爱国了? 去了日本就必须要爱日本? 人家去了日本后比之前更爱中国，足以体现其 ...</blockquote>
 好叫，在中国爱日本，在日本爱中国，你猜是啥成色
-
-
-
-
-
 
 
 -----
@@ -1789,16 +1170,10 @@ yysy他还是看了新eva终的
 ##### 92#       发表于 2021-3-12 11:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598848&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:54</a>
 
 好叫，在中国爱日本，在日本爱中国，你猜是啥成色</blockquote>
 在国内的时候也没爱日本好不好....
-
-
-
-
-
 
 
 -----
@@ -1807,15 +1182,9 @@ yysy他还是看了新eva终的
 ##### 93#       发表于 2021-3-12 12:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598890&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 11:57</a>
 在国内的时候也没爱日本好不好....</blockquote>
 想多了，我没记错的话他当年肉身翻墙的干劲在肥宅里都算高的，几个嘴上嚷嚷爱日本的都跑不过他
-
-
-
-
-
 
 
 -----
@@ -1824,24 +1193,16 @@ yysy他还是看了新eva终的
 ##### 94#       发表于 2021-3-12 12:00
 
 
-
-
 有时候有些人的优越感甚至可以来自“我没有出国”
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 虽然在几年前“我没有能力出国”并不是什么优越点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  掉过脑袋  
 ##### 95#       发表于 2021-3-12 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598814&amp;ptid=1992727" target="_blank">白鹤没有翅膀 发表于 2021-3-12 11:51</a>
@@ -1856,16 +1217,10 @@ yysy他还是看了新eva终的
 但他到底怎么想我可就不知道了。
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 96#       发表于 2021-3-12 12:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598937&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 12:00</a>
@@ -1884,16 +1239,10 @@ yysy他还是看了新eva终的
 但是说爱日本..真说不上..
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 97#       发表于 2021-3-12 12:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598969&amp;ptid=1992727" target="_blank">掉过脑袋 发表于 2021-3-12 12:02</a>
@@ -1912,16 +1261,10 @@ yysy他还是看了新eva终的
 这里很多人真心是站着说话不腰疼.
 
 
-
-
-
-
-
 -----
 
 ####  掉过脑袋  
 ##### 98#       发表于 2021-3-12 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599014&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 12:05</a>
@@ -1936,16 +1279,10 @@ yysy他还是看了新eva终的
 所以如果他没有在工作领域里做到很牛，还是靠着系统在吃饭的话，客观上是得考虑一下回不回得来。
 
 
-
-
-
-
-
 -----
 
 ####  avayazhg  
 ##### 99#       发表于 2021-3-12 12:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598937&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 12:00</a>
@@ -1955,16 +1292,10 @@ yysy他还是看了新eva终的
 —— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  蔷薇下  
 ##### 100#       发表于 2021-3-12 12:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598268&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 11:12</a>
@@ -1975,16 +1306,10 @@ yysy他还是看了新eva终的
 还有hgcg到底是个啥组织吗，感觉泥潭和微博都有不少id前带这个前缀的
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 101#       发表于 2021-3-12 12:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599077&amp;ptid=1992727" target="_blank">蔷薇下 发表于 2021-3-12 12:09</a>
@@ -2005,26 +1330,15 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 久而久之就有了这个名号
 
 
-
-
-
-
-
 -----
 
 ####  BuffaloBills  
 ##### 102#       发表于 2021-3-12 12:25
 
 
-
 <blockquote>白鹤没有翅膀 发表于 2021-3-12 11:51
 那为什么不回来呢</blockquote>
 说明骂归骂，其实日子还是挺不错的，只是得了便宜卖个乖。就像体制内的人也天天骂体制，但真辞职出来的可不就是难得一见嘛。
-
-
-
-
-
 
 
 -----
@@ -2033,15 +1347,9 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 103#       发表于 2021-3-12 12:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599289&amp;ptid=1992727" target="_blank">BuffaloBills 发表于 2021-3-12 12:25</a>
 说明骂归骂，其实日子还是挺不错的，只是得了便宜卖个乖。就像体制内的人也天天骂体制，但真辞职出来的可 ...</blockquote>
 在中文社交网站骂国外是ZZ正确，就跟几个大学的台蛙客座教授天天在脸书上骂大陆一样，只不过大陆人也上脸书看得懂繁体字，日本人不上WB罢了
-
-
-
-
-
 
 
 -----
@@ -2050,16 +1358,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 104#       发表于 2021-3-12 12:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598691&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:43</a>
 
 看萌翻的微博正常人都有一个疑问，他对日本这么大意见为啥当初要削尖脑袋往里钻，现在又不回国，哪怕是天天 ...</blockquote>
 没有问题啊，自由派传统话术不就是“外国不强制别人爱国”和“外国政府和人民是分开的”吗，在外国践行外国的道理咯。
-
-
-
-
-
 
 
 -----
@@ -2068,16 +1370,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 105#       发表于 2021-3-12 12:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597106&amp;ptid=1992727" target="_blank">IDIDIDID 发表于 2021-3-12 09:34</a>
 
 萌翻天天往国内发日本这个不爽那个恶心又坚决不肯回国的表演还是很好看的。 ...</blockquote>
 恨国党也没见几个出国的不是？
-
-
-
-
-
 
 
 -----
@@ -2086,14 +1382,7 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 106#       发表于 2021-3-12 12:32
 
 
-
-
 所以为什么30岁同济的人要去日本，去了日本还要骂日本，骂了日本还不回中国，是因为日本比中国活的更好吗，那他为啥要骂啊<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">大师我真不懂
-
-
-
-
-
 
 
 -----
@@ -2102,16 +1391,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 107#       发表于 2021-3-12 12:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598942&amp;ptid=1992727" target="_blank">千里夜雨 发表于 2021-3-12 12:00</a>
 
 有时候有些人的优越感甚至可以来自“我没有出国”</blockquote>
     外国最恨的就是新冠这个不讲政治的病毒了，否则爱国小将现在也不能理直气壮地对公知说太平洋没加盖，恭送去美国/日本/英国。毕竟没这病毒前，“在外国”就是含有一层“赚钱多”的潜台词，而有这不讲政治的病毒后，不仅让很多潜在带路党露出马脚，还让更多国人知道了模棱两可的知名人士的真实想法，起到了万物显形的作用。
-
-
-
-
-
 
 
 -----
@@ -2120,23 +1403,16 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 108#       发表于 2021-3-12 12:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598571&amp;ptid=1992727" target="_blank">duo_wolf 发表于 2021-03-12 11:35:47</a>
 虽然我没FO他微博，但是就最近这几年看到转发他微博的某些内容，觉得他是挺想做某方面的大V这门生意的，不 ...</blockquote>这一行竞争很激烈的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  以利亚•贝莱  
 ##### 109#       发表于 2021-3-12 12:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599176&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-03-12 12:16:18</a>
@@ -2151,16 +1427,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  皮划艇日客人  
 ##### 110#       发表于 2021-3-12 12:46
-
 
 
  本帖最后由 皮划艇日客人 于 2021-3-12 12:49 编辑 
@@ -2172,32 +1442,19 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 反正我国自由派和公知说不是。建议自称和外国关系良好的我国某派人士上书请求外国从政府正规发言渠道确定该设定的真伪，这样我们鞭这种人才鞭的有理有据。
 
 
-
-
-
-
-
 -----
 
 ####  katun  
 ##### 111#       发表于 2021-3-12 12:46
 
 
-
-
 我记得当初有个人因为开小号疯狂精分自演被喷出了s1一段时间，是这个人么？还是我记错了
-
-
-
-
-
 
 
 -----
 
 ####  钱君  
 ##### 112#       发表于 2021-3-12 12:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598836&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 11:53</a>
@@ -2208,17 +1465,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 千叶算二线吧……多少叫东京的地方其实是在千叶啊……
 
 
-
-
-
-
-
 -----
 
 ####  羽桐れもん  
 ##### 113#       发表于 2021-3-12 13:01
-
-
 
 
 萌翻中日韩嘛
@@ -2227,33 +1477,19 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 —— 来自 Sony J9210, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  待宵  
 ##### 114#       发表于 2021-3-12 13:08
 
 
-
-
 楼主有没有翻过萌翻这条微博的第一个转发<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  HGCG3  
 ##### 115#       发表于 2021-3-12 13:12
-
-
 
 
 瞅见泥潭小炸锅，
@@ -2265,13 +1501,9 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 请君随性尽管戳。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 25战斗力 +25
@@ -2300,19 +1532,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 | ambivalence| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  千里夜雨  
 ##### 116#       发表于 2021-3-12 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599430&amp;ptid=1992727" target="_blank">wuwo2 发表于 2021-3-12 12:35</a>
@@ -2323,16 +1549,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 换做我我就挺感谢他们跑出去的，优秀或者比我有钱，赶快跑出去，不来占我生活资源，总比回国内和我内卷，或者炫我富好。
 
 
-
-
-
-
-
 -----
 
 ####  xiaoba329  
 ##### 117#       发表于 2021-3-12 13:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598779&amp;ptid=1992727" target="_blank">samesame 发表于 2021-3-12 11:49</a>
@@ -2343,25 +1563,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 所以不就是这两天犯傻逼了，然后被一群早就看他不顺眼的大佐们挂了。
 
 
-
-
-
-
-
 -----
 
 ####  eplis  
 ##### 118#       发表于 2021-3-12 13:25
 
 
-
-
 萌翻真傻逼的还是属在泥潭自演钓鱼吧，不过这事估计挺早的，来泥潭晚的都不知道
-
-
-
-
-
 
 
 -----
@@ -2370,18 +1578,12 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 119#       发表于 2021-3-12 13:32
 
 
-
-
 很容易理解吧，每年看看源泉票上交给日本政府的税金，不骂日本骂谁……
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2391,20 +1593,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 | shazam| + 1|鬼子拿枪逼着你们去看了？|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  HGCG3  
 ##### 120#       发表于 2021-3-12 13:37
-
-
 
 
 上网嘛，就是图个痛快
@@ -2416,17 +1611,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 大家说的很多都有道理，我就不一一谢过了
 
 
-
-
-
-
-
 -----
 
 ####  gundammarkⅡ  
 ##### 121#       发表于 2021-3-12 13:37
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202103/12/133650xizg0n5i0r5iixxi.jpg" referrerpolicy="no-referrer">
@@ -2439,16 +1627,7 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 2021-3-12 13:36 上传
 
 
-
-
-
-
 说起来，是不是这些人才有资格骂剧场版？？
-
-
-
-
-
 
 
 -----
@@ -2457,16 +1636,9 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 122#       发表于 2021-3-12 13:58
 
 
-
-
 我就记得他微博当知乎整天问弱智问题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -2475,15 +1647,9 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 123#       发表于 2021-3-12 14:01
 
 
-
 <blockquote>gundammarkⅡ 发表于 2021-3-12 13:37
 说起来，是不是这些人才有资格骂剧场版？？</blockquote>
 这个够惨
-
-
-
-
-
 
 
 -----
@@ -2492,23 +1658,16 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 124#       发表于 2021-3-12 14:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50600156&amp;ptid=1992727" target="_blank">gundammarkⅡ 发表于 2021-3-12 13:37</a>
 
 说起来，是不是这些人才有资格骂剧场版？？</blockquote>
 才几天的事，图都糊成这样了，看来剧场版影响力确实够大<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  海关  
 ##### 125#       发表于 2021-3-12 14:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50600152&amp;ptid=1992727" target="_blank">HGCG3 发表于 2021-3-12 13:37</a>
@@ -2521,25 +1680,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  磐越西线  
 ##### 126#       发表于 2021-3-12 14:18
 
 
-
-
 算是把S1当娘家吧，怎么就全网了呢
-
-
-
-
-
 
 
 -----
@@ -2548,16 +1695,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 127#       发表于 2021-3-12 14:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597106&amp;ptid=1992727" target="_blank">IDIDIDID 发表于 2021-3-12 09:34</a>
 
 萌翻天天往国内发日本这个不爽那个恶心又坚决不肯回国的表演还是很好看的。 ...</blockquote>
 咦，我记得他不是回国发展了吗，记错了……？
-
-
-
-
-
 
 
 -----
@@ -2566,16 +1707,9 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 128#       发表于 2021-3-12 14:23
 
 
-
-
 惊了 还有人洗萌翻的，泥潭看来还是有新人的。
 
 这货当年得知上海asl被取消掉后就差把恨国党三字写脸上了，天天在漫区发泄负能量。。你说他为什么不回来呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2584,18 +1718,12 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 129#       发表于 2021-3-12 14:26
 
 
-
-
 有些人喜欢嘲讽在国外的人都是假爱国，这里边有几个是真想当锄奸队的？怕不是先把在外国人一巴掌拍死，然后调转枪头：这就是爱国的代价。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2605,19 +1733,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 | yukino1981| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  dllplayer  
 ##### 130#       发表于 2021-3-12 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599721&amp;ptid=1992727" target="_blank">钱君 发表于 2021-3-12 12:58</a>
@@ -2628,24 +1750,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 不是咱说的...其实我很怀疑那位根本不知道萌翻在哪里张嘴就来的三线
 
 
-
-
-
-
-
 -----
 
 ####  在海岸  
 ##### 131#       发表于 2021-3-12 14:32
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">激怒性玉只要跟他讲讲现在魔都房价，那激怒萌翻呢
-
-
-
-
-
 
 
 -----
@@ -2654,23 +1765,16 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 132#       发表于 2021-3-12 14:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50600735&amp;ptid=1992727" target="_blank">在海岸 发表于 2021-3-12 14:32</a>
 
 激怒性玉只要跟他讲讲现在魔都房价，那激怒萌翻呢</blockquote>
 有人在疫情期间看了Q娃剧场版?
 
 
-
-
-
-
-
 -----
 
 ####  皮划艇日客人  
 ##### 133#       发表于 2021-3-12 14:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50600643&amp;ptid=1992727" target="_blank">usoda 发表于 2021-3-12 14:23</a>
@@ -2683,16 +1787,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 有那么几个外国支持恐怖分子、生化恐怖分子和政变犯叛国贼来祸害我国，相对的这里的大家只不过对几个坏人给外国政府添堵视而不见罢了，一比太环保了喂。
 
 
-
-
-
-
-
 -----
 
 ####  我被骗了五块钱  
 ##### 134#       发表于 2021-3-12 15:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599014&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 12:05</a>
@@ -2705,17 +1803,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 那按时间线来说15年刚出去就能遇到好心韩国女菩萨破处，暗示宅宅们都好好学日语？
 
 
-
-
-
-
-
 -----
 
 ####  观自在  
 ##### 135#       发表于 2021-3-12 15:39
-
-
 
 
 萌翻十几年的老自干五都成恨国党了，快进到麻蛇恨国。
@@ -2723,16 +1814,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  暗之精灵  
 ##### 136#       发表于 2021-3-12 15:53
-
 
 
 <blockquote>dllplayer 发表于 2021-3-12 12:02
@@ -2744,16 +1829,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 这就是口嫌体正直吧
 
 
-
-
-
-
-
 -----
 
 ####  卡奥斯·克斯拉  
 ##### 137#       发表于 2021-3-12 16:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599578&amp;ptid=1992727" target="_blank">katun 发表于 2021-3-12 12:46</a>
@@ -2762,16 +1841,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 人家每个小号几乎都能有精华帖
 
 
-
-
-
-
-
 -----
 
 ####  藤香樱雪  
 ##### 138#       发表于 2021-3-12 16:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597106&amp;ptid=1992727" target="_blank">IDIDIDID 发表于 2021-3-12 09:34</a>
@@ -2780,25 +1853,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 哈哈哈哈哈哈
 
 
-
-
-
-
-
 -----
 
 ####  细味  
 ##### 139#       发表于 2021-3-12 16:11
 
 
-
-
 这位日本友人被群嘲还是非常活该的
-
-
-
-
-
 
 
 -----
@@ -2807,14 +1868,7 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 140#       发表于 2021-3-12 16:13
 
 
-
-
 照这标准S1 5年前全是反贼恨国党一个都跑不了，网上风口一日一变，不然干嘛现在连去年的帖子你都看不见？
-
-
-
-
-
 
 
 -----
@@ -2823,16 +1877,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 141#       发表于 2021-3-12 16:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50601741&amp;ptid=1992727" target="_blank">卡奥斯·克斯拉 发表于 2021-3-12 16:05</a>
 
 人家每个小号几乎都能有精华帖</blockquote>
 当然不是指HGCG系列。反正我记得当初他发帖量很多，但因为某个事情跑了，过了几年才又回来
-
-
-
-
-
 
 
 -----
@@ -2841,16 +1889,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 142#       发表于 2021-3-12 16:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597106&amp;ptid=1992727" target="_blank">IDIDIDID 发表于 2021-3-12 09:34</a>
 
 萌翻天天往国内发日本这个不爽那个恶心又坚决不肯回国的表演还是很好看的。 ...</blockquote>
 还随手给别人扣帽子，比如“你用了快递你就是资本家”之类的
-
-
-
-
-
 
 
 -----
@@ -2859,16 +1901,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 143#       发表于 2021-3-12 16:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50601832&amp;ptid=1992727" target="_blank">yth329 发表于 2021-3-12 16:13</a>
 
 照这标准S1 5年前全是反贼恨国党一个都跑不了，网上风口一日一变，不然干嘛现在连去年的帖子你都看不见？ ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">因为狗叔保护了大家
-
-
-
-
-
 
 
 -----
@@ -2877,16 +1913,9 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 144#       发表于 2021-3-12 16:37
 
 
-
-
 至于这楼里不少个人质问的萌翻为什么不回来，就算不特定Q娃，一个对日式ACG有需求的阿宅在哪边活得更舒服这还用得着疑问吗？
 
 —— 来自 Xiaomi MIX 2, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -2895,14 +1924,7 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 145#       发表于 2021-3-12 16:40
 
 
-
-
 我的记不得自己在acg里炒股到底血本无归多少次了。这次新剧场版幸好没有炒<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2911,14 +1933,7 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 146#       发表于 2021-3-12 17:04
 
 
-
-
 萌翻不写诗以后就没怎么关注了。不过从以前的政治贴来看个人感觉怎么都不会是恨国党，当然你说这几年变了那我就不知道了
-
-
-
-
-
 
 
 -----
@@ -2927,21 +1942,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 147#       发表于 2021-3-12 17:09
 
 
-
-
 恨国党与粉红蛆，萌翻（在网友眼中）同时具有这两个属性好多年了，挺薛定谔的。
-
-
-
-
-
 
 
 -----
 
 ####  ppks  
 ##### 148#       发表于 2021-3-12 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597053&amp;ptid=1992727" target="_blank">cpuisme 发表于 2021-3-12 09:30</a>
@@ -2954,16 +1961,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 就终的剧透来说，真看不出asuka有啥清晰的意志，真嗣跟真希波未必是找妈，asuka找剑剑那真是找个爹
 
 
-
-
-
-
-
 -----
 
 ####  Gooddays  
 ##### 149#       发表于 2021-3-12 17:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597106&amp;ptid=1992727" target="_blank">IDIDIDID 发表于 2021-3-12 09:34</a>
@@ -2973,16 +1974,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 有时简单如 “不喜欢现在的工作” 也不代表能立刻辞职，更不要说国家间的迁移。
 
 
-
-
-
-
-
 -----
 
 ####  samesame  
 ##### 150#       发表于 2021-3-12 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602435&amp;ptid=1992727" target="_blank">待宵 发表于 2021-3-12 17:09</a>
@@ -2991,26 +1986,15 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 那很正常，恨国党看你是粉红蛆，粉红蛆看你是恨国党，二极管不需要中间地带，忠诚不绝对，就是绝对不忠诚！
 
 
-
-
-
-
-
 -----
 
 ####  真田源次郎信繁  
 ##### 151#       发表于 2021-3-12 17:16
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">真是墙倒众人推，萌翻也就是中日韩事件之后早上跑路去看q娃了
 
 说得和什么一样<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3019,14 +2003,7 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 152#       发表于 2021-3-12 17:18
 
 
-
-
 萌翻是谁？幼月大佐是谁？
-
-
-
-
-
 
 
 -----
@@ -3035,16 +2012,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 153#       发表于 2021-3-12 17:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50596991&amp;ptid=1992727" target="_blank">wzq121314 发表于 2021-3-12 09:25</a>
 
 一部eva逼疯多少人 婆罗门刹帝利达利特扭打在一起 不再为阶级而是为了不同的信仰！史称天鹰事变() ...</blockquote>
 天鹰事变<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3053,20 +2024,13 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 154#       发表于 2021-3-12 17:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">正主的回复被你们全员无视 坛友只是想找个靶子喷阿宅和精日吧？
-
-
-
-
-
 
 
 -----
 
 ####  Gooddays  
 ##### 155#       发表于 2021-3-12 17:23
-
 
 
  本帖最后由 Gooddays 于 2021-3-12 17:25 编辑 
@@ -3077,17 +2041,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 反而因她是28岁心智年龄，14岁的男主对她来说变成 “小鲜肉” 了。而她的年纪还不会对小鲜肉感兴趣，男主那情况怎看也不是有吸引力的小鲜肉。
 
 
-
-
-
-
-
 -----
 
 ####  bxcds  
 ##### 156#       发表于 2021-3-12 17:29
-
-
 
 
 大可不必，萌翻也就是普通肥宅，大友看Q娃有什么错
@@ -3095,16 +2052,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 —— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  wbybill2  
 ##### 157#       发表于 2021-3-12 17:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602370&amp;ptid=1992727" target="_blank">外挂全家脚气 发表于 2021-3-12 17:04</a>
@@ -3115,16 +2066,10 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 毕竟天天看免费NHK新闻轰炸，和以前三天两头嘲讽式翻译11区产经，两者之前状态肯定不一样
 
 
-
-
-
-
-
 -----
 
 ####  待宵  
 ##### 158#       发表于 2021-3-12 17:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602579&amp;ptid=1992727" target="_blank">拉菲尔神父 发表于 2021-3-12 17:21</a>
@@ -3133,26 +2078,15 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 各喷各的，正主拿鹅，没有人受伤的世界完成了
 
 
-
-
-
-
-
 -----
 
 ####  绿茶与猫  
 ##### 159#       发表于 2021-3-12 17:33
 
 
-
 <blockquote>Gooddays 发表于 2021-3-12 17:23
 以她那28岁年纪的女性想找一个能依靠的男性是正常事，现实中很多女性也是这样选，至少男主怎看也不像是在 ...</blockquote>
 真嗣女装就是他妈的翻版，还精通乐器，标准的美少年
-
-
-
-
-
 
 
 -----
@@ -3161,16 +2095,9 @@ HGCG-W是因为他起这个ID的时候刚好在看新机动战记敢达W
 ##### 160#       发表于 2021-3-12 17:33
 
 
-
-
 EVA真可怕，逼疯了一个又一个，发病甚至蔓延到了外野<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
-
-
-
-
-
 
 
 -----
@@ -3179,13 +2106,7 @@ EVA真可怕，逼疯了一个又一个，发病甚至蔓延到了外野<img src
 ##### 161#       发表于 2021-3-12 17:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿宅何苦为难阿宅，有些事情睁一只眼闭一只眼，看过笑笑就行了，何必再挖出来鞭尸
-
-
-
-
-
 
 
 -----
@@ -3194,14 +2115,7 @@ EVA真可怕，逼疯了一个又一个，发病甚至蔓延到了外野<img src
 ##### 162#       发表于 2021-3-12 17:37
 
 
-
-
 按上次机核的事，有人愿意在他微博下搜个鱼肠剑我觉得会很有趣
-
-
-
-
-
 
 
 -----
@@ -3210,16 +2124,10 @@ EVA真可怕，逼疯了一个又一个，发病甚至蔓延到了外野<img src
 ##### 163#       发表于 2021-3-12 17:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602720&amp;ptid=1992727" target="_blank">绿茶与猫 发表于 2021-3-12 17:33</a>
 
 真嗣女装就是他妈的翻版，还精通乐器，标准的美少年</blockquote>
 真嗣女装不就是蓝宝石之谜那女主娜蒂娅吗？当然还要晒黑一点。
-
-
-
-
-
 
 
 -----
@@ -3228,16 +2136,10 @@ EVA真可怕，逼疯了一个又一个，发病甚至蔓延到了外野<img src
 ##### 164#       发表于 2021-3-12 17:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602579&amp;ptid=1992727" target="_blank">拉菲尔神父 发表于 2021-3-12 17:21</a>
 
 正主的回复被你们全员无视 坛友只是想找个靶子喷阿宅和精日吧？</blockquote>
 没无视啊，你看这不发了首诗，然后被人加鹅加的比其他楼加起来的还多吗
-
-
-
-
-
 
 
 -----
@@ -3246,21 +2148,13 @@ EVA真可怕，逼疯了一个又一个，发病甚至蔓延到了外野<img src
 ##### 165#       发表于 2021-3-12 17:49
 
 
-
-
 笑拉了，我还上镜了
-
-
-
-
-
 
 
 -----
 
 ####  GuDaZi  
 ##### 166#       发表于 2021-3-12 17:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602821&amp;ptid=1992727" target="_blank">wbybill2 发表于 2021-3-12 17:43</a>
@@ -3271,26 +2165,15 @@ https://b23.tv/KNUUv3
 —— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  Gooddays  
 ##### 167#       发表于 2021-3-12 18:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602720&amp;ptid=1992727" target="_blank">绿茶与猫 发表于 2021-3-12 17:33</a>
 真嗣女装就是他妈的翻版，还精通乐器，标准的美少年</blockquote>
 然而整个TV版也没显示女孩视他为美少年，可能他那长的像妈的长相成不了优点，或他妈在那世界不算好漂亮那一边。
-
-
-
-
-
 
 
 -----
@@ -3299,21 +2182,13 @@ https://b23.tv/KNUUv3
 ##### 168#       发表于 2021-3-12 18:02
 
 
-
-
 互相发射脱壳尾翼稳定穿甲弹
-
-
-
-
-
 
 
 -----
 
 ####  不得小于三字  
 ##### 169#       发表于 2021-3-12 18:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598582&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 11:36</a>
@@ -3324,16 +2199,10 @@ https://b23.tv/KNUUv3
 我家上海外环三林这里，到人广也就30分钟左右，他家能有多远。。
 
 
-
-
-
-
-
 -----
 
 ####  在空中自杀  
 ##### 170#       发表于 2021-3-12 18:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602600&amp;ptid=1992727" target="_blank">Gooddays 发表于 2021-3-12 17:23</a>
@@ -3341,16 +2210,10 @@ https://b23.tv/KNUUv3
 炸的最严重的就是这点。明日香不爱相田剑介，却被塞给了相田剑介，这代表着她对人生无奈的妥协与认输。你们总是说人生不就是这样吗？充满遗憾，错过就是错过，女人总要找个男人依靠什么的。说出这话的时候你们就没发觉，这不叫长大而叫衰老吗？而且明日香的个性是什么？骄傲、倔强，即使一直在被打败但就是没认输过。但是，配相田剑介这个结局相当于直接把她的骄傲砸个稀巴烂，明日香不仅是在爱情上输了，最重要的是她对人生认输了，真正意义上失败得一塌涂地。
 
 
-
-
-
-
-
 -----
 
 ####  ppks  
 ##### 171#       发表于 2021-3-12 18:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602600&amp;ptid=1992727" target="_blank">Gooddays 发表于 2021-3-12 17:23</a>
@@ -3365,17 +2228,10 @@ https://b23.tv/KNUUv3
 这摆明就是个阴差阳错，有缘无分的二次元李寻欢啊
 
 
-
-
-
-
-
 -----
 
 ####  HGCG3  
 ##### 172#       发表于 2021-3-12 18:46
-
-
 
 
 我一不是公众人物
@@ -3389,16 +2245,10 @@ https://b23.tv/KNUUv3
 不如有什么想问我的，我直接来回答好了？
 
 
-
-
-
-
-
 -----
 
 ####  ppks  
 ##### 173#       发表于 2021-3-12 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603001&amp;ptid=1992727" target="_blank">Gooddays 发表于 2021-3-12 18:01</a>
@@ -3407,17 +2257,10 @@ https://b23.tv/KNUUv3
 真嗣的颜值绝对没有问题，剧场版都有细节，泳池那段，在学校里一堆女生为了吸引他的注意力对着他尖叫，恶心剑剑与东二来的。
 
 
-
-
-
-
-
-
 -----
 
 ####  外挂全家脚气  
 ##### 174#       发表于 2021-3-12 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598814&amp;ptid=1992727" target="_blank">白鹤没有翅膀 发表于 2021-3-12 11:51</a>
@@ -3426,32 +2269,19 @@ https://b23.tv/KNUUv3
 你这回复就很莫名其妙，现在在海外务工的中国人那么多，我想大部分都是爱国的对吧，是不是也要问“那他们为什么要出去工作呢”
 
 
-
-
-
-
-
 -----
 
 ####  蔷薇下  
 ##### 175#       发表于 2021-3-12 18:50
 
 
-
-
 喂喂喂你们专注对线不理正主人家很尴尬的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  ppks  
 ##### 176#       发表于 2021-3-12 18:52
-
 
 
  本帖最后由 ppks 于 2021-3-12 18:57 编辑 
@@ -3461,24 +2291,16 @@ https://b23.tv/KNUUv3
 这剧场版来看真是没啥骄傲的。就是谁接受她她就依赖谁。
 
 
-
 asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶心的时候能感受到这个灵魂的独孤独与骄傲。
 
 
 求剑剑摸头，一心找个爹这个真是一点也不骄傲。
 
 
-
-
-
-
-
-
 -----
 
 ####  ppks  
 ##### 177#       发表于 2021-3-12 18:55
-
 
 
  本帖最后由 ppks 于 2021-3-12 18:56 编辑 
@@ -3489,18 +2311,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 所谓先一步变成大人，这个asuka到底哪里像大人啊？
 
 
-
-
-
-
-
-
-
 -----
 
 ####  达达葱2  
 ##### 178#       发表于 2021-3-12 19:00
-
 
 
 <blockquote>ppks 发表于 2021-3-12 18:55
@@ -3508,16 +2322,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 和剑剑睡过了的意思？
 
 
-
-
-
-
-
 -----
 
 ####  ppks  
 ##### 179#       发表于 2021-3-12 19:07
-
 
 
  本帖最后由 ppks 于 2021-3-12 19:12 编辑 
@@ -3527,24 +2335,16 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 很暧昧，当然很可能确实没睡过。这又没啥大不了的。
 
 
-
 剑剑很好的扮演了个父亲的角色，asuka实际在心里也依赖剑剑，但直到最后真嗣决定献身救世那一刻，他都可以挽回这段感情，但是他为了对方着想，钦定了asuka的归宿在剑剑那里，把asuka送回到了剑剑身边。
 
 
-
 剑剑不是啥黄毛坏人，asuka说自己长大了，然而其实还是个一心追求父爱的小女孩，真嗣最后真的是太圣人了
-
-
-
-
-
 
 
 -----
 
 ####  待宵  
 ##### 180#       发表于 2021-3-12 19:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603473&amp;ptid=1992727" target="_blank">HGCG3 发表于 2021-3-12 18:46</a>
@@ -3557,16 +2357,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 谁让你身上属性太多，随便立个靶子都能打一套连招，当小透明多好www
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 181#       发表于 2021-3-12 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603719&amp;ptid=1992727" target="_blank">待宵 发表于 2021-3-12 19:20</a>
@@ -3579,17 +2373,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 也罢……
 
 
-
-
-
-
-
 -----
 
 ####  梅德韦杰夫  
 ##### 182#       发表于 2021-3-12 19:53
-
-
 
 
 友情提示
@@ -3598,16 +2385,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 最近又浮出水面了
 
 
-
-
-
-
-
 -----
 
 ####  偶滴小乔  
 ##### 183#       发表于 2021-3-12 19:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603782&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 19:30</a>
@@ -3619,16 +2400,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">粉丝越多，责任越大
 
 
-
-
-
-
-
 -----
 
 ####  爱尔米娜  
 ##### 184#       发表于 2021-3-12 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50599578&amp;ptid=1992727" target="_blank">katun 发表于 2021-3-12 12:46</a>
@@ -3637,16 +2412,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 就是这个，好像是11年漫区，那会真是炸鱼炸到粪海狂蛆。后来道歉淡出一段时间，再后来一看萌二troll成日本傻事了
 
 
-
-
-
-
-
 -----
 
 ####  Gooddays  
 ##### 185#       发表于 2021-3-12 20:17
-
 
 
  本帖最后由 Gooddays 于 2021-3-12 20:20 编辑 
@@ -3657,16 +2426,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 明日香更像是讨厌思想简单的小孩子（她是跳级大学毕业），喜好交流能力好也懂对女性温柔的成熟男性，而男主是14岁中学生人生经验（没有社会经验），剑介是28岁人生经历，那差别的14年还是世界大变在新环境下活下去的人生，当中所打造出来的成熟程度便不是男主那中学生思维能比较的。
 
 
-
-
-
-
-
 -----
 
 ####  katun  
 ##### 186#       发表于 2021-3-12 20:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604100&amp;ptid=1992727" target="_blank">爱尔米娜 发表于 2021-3-12 20:05</a>
@@ -3675,25 +2438,13 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 谢谢，细节全忘光了，但自演这事果然没记错，难怪当初看到长风难度事件觉得如此熟悉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bakura222  
 ##### 187#       发表于 2021-3-12 20:51
 
 
-
-
 自演又不是什么原则性错误，萌翻在大是大非的问题上三观还是很正的，比泥潭很多精日巨魔正气多了，我们对萌翻的评价，应该是七分功绩三分错误 。
-
-
-
-
-
 
 
 -----
@@ -3702,14 +2453,7 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 ##### 188#       发表于 2021-3-12 20:57
 
 
-
-
 萌翻挺正常的啊
-
-
-
-
-
 
 
 -----
@@ -3718,16 +2462,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 ##### 189#       发表于 2021-3-12 20:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50597142&amp;ptid=1992727" target="_blank">星野莉莉 发表于 2021-3-12 09:37</a>
 
 所以到现在五天了，有哪位勇士带🔪去找痞子促膝长谈吗？就这点儿战斗力也难怪痞子看不起E粉 ...</blockquote>
 这个......我觉得守法不是为了让人看得起还是看不起的<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3736,14 +2474,7 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 ##### 190#       发表于 2021-3-12 21:00
 
 
-
-
 我记得当初微博上对萌翻说了句，加油留下，早日归化，结果就被双了，非常不理解为啥又要去日本，又讨厌别人希望他归化
-
-
-
-
-
 
 
 -----
@@ -3752,16 +2483,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 ##### 191#       发表于 2021-3-12 21:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598691&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:43</a>
 
 看萌翻的微博正常人都有一个疑问，他对日本这么大意见为啥当初要削尖脑袋往里钻，现在又不回国，哪怕是天天 ...</blockquote>
 爱之深责之切，人家是真爱日本啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3770,16 +2495,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 ##### 192#       发表于 2021-3-12 21:24
 
 
-
  本帖最后由 在空中自杀 于 2021-3-12 21:30 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604239&amp;ptid=1992727" target="_blank">Gooddays 发表于 2021-3-12 20:17</a>
 明日香的傲是对同年人的傲，她对年纪大的人可傲不了多少，而她开始时喜爱的加持在行为上怎也不像父亲类人 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">能说出明日香喜欢加持我也无法跟你继续下去了。你哪怕是在看笑话的过程中云了剧透，也不会说出明日香是喜欢剑剑的。
-
-
-
-
-
 
 
 -----
@@ -3788,15 +2507,9 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 ##### 193#       发表于 2021-3-12 21:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598848&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:54</a>
 好叫，在中国爱日本，在日本爱中国，你猜是啥成色</blockquote>
 他把日本脑补成爱莉后面被美丽奸输出前面被王叔叔口火暴的爱，这“爱”也就那样吧。。。
-
-
-
-
-
 
 
 -----
@@ -3805,15 +2518,9 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 ##### 194#       发表于 2021-3-12 21:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598800&amp;ptid=1992727" target="_blank">钱君 发表于 2021-3-12 11:50</a>
 好叫，千叶很好了好哇，又不是琦玉，别小看米老鼠自治领啊</blockquote>
 可是赛他吗人觉得自己是东京人啊
-
-
-
-
-
 
 
 -----
@@ -3822,22 +2529,15 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 ##### 195#       发表于 2021-3-12 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604239&amp;ptid=1992727" target="_blank">Gooddays 发表于 2021-3-12 20:17</a>
 明日香的傲是对同年人的傲，她对年纪大的人可傲不了多少，而她开始时喜爱的加持在行为上怎也不像父亲类人 ...</blockquote>
 好叫，明日香跟你们剑剑同岁好伐
-
-
-
-
-
 
 
 -----
 
 ####  HGCG  
 ##### 196#       发表于 2021-3-12 21:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598691&amp;ptid=1992727" target="_blank">p酱 发表于 2021-3-12 11:43</a>
@@ -3862,16 +2562,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 所以虽然天天骂日本，但暂时不打算改变现状了
 
 
-
-
-
-
-
 -----
 
 ####  sakura79  
 ##### 197#       发表于 2021-3-12 21:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604555&amp;ptid=1992727" target="_blank">bakura222 发表于 2021-3-12 20:51</a>
@@ -3880,16 +2574,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 生艹，萌翻旅日以来若干历史问题的决议吗？
 
 
-
-
-
-
-
 -----
 
 ####  kanago  
 ##### 198#       发表于 2021-3-12 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604878&amp;ptid=1992727" target="_blank">在空中自杀 发表于 2021-3-12 21:24</a>
@@ -3900,16 +2588,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 就像女孩子喜欢大毛绒玩具那种，就像阿宅喜欢猫咪狗狗那种
 
 
-
-
-
-
-
 -----
 
 ####  在空中自杀  
 ##### 199#       发表于 2021-3-12 21:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605004&amp;ptid=1992727" target="_blank">kanago 发表于 2021-3-12 21:36</a>
@@ -3919,16 +2601,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">明日香对加持就是恋父情结以及想要借加持假装自己不是小孩子啊
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 200#       发表于 2021-3-12 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604946&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 21:31</a>
@@ -3940,16 +2616,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 贵人是指那位棒妹？
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 201#       发表于 2021-3-12 21:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605224&amp;ptid=1992727" target="_blank">枫紫 发表于 2021-3-12 21:56</a>
@@ -3958,16 +2628,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 是挑我发小财的朋友
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 202#       发表于 2021-3-12 22:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605244&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 21:58</a>
@@ -3975,16 +2639,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 挺好奇你现在生活开销占收入几成的，不过这问题太隐私，还是算了
 
 
-
-
-
-
-
 -----
 
 ####  Calandra  
 ##### 203#       发表于 2021-3-12 22:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50604946&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 21:31</a>
@@ -3996,16 +2654,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 和过去相比你觉得网络环境变好了吗，能不能顺畅的接触到acg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  HGCG  
 ##### 204#       发表于 2021-3-12 22:27
-
 
 
  本帖最后由 HGCG 于 2021-3-12 22:28 编辑 
@@ -4030,16 +2682,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 就是美国大片就要等很久了，哥斯拉大战金刚日本竟然要5月才有
 
 
-
-
-
-
-
 -----
 
 ####  dllplayer  
 ##### 205#       发表于 2021-3-12 22:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50603365&amp;ptid=1992727" target="_blank">不得小于三字 发表于 2021-3-12 18:35</a>
@@ -4050,16 +2696,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 他家.....距离人广大概在20KM以上...你自己开东京地图画两个圈看看分别到哪里了
 
 
-
-
-
-
-
 -----
 
 ####  fff10tw  
 ##### 206#       发表于 2021-3-12 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605556&amp;ptid=1992727" target="_blank">HGCG 发表于 2021-3-12 22:27</a>
@@ -4071,16 +2711,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 日本网速不是世界领先？
 
 
-
-
-
-
-
 -----
 
 ####  旋转吃草  
 ##### 207#       发表于 2021-3-12 23:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50600733&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 14:32</a>
@@ -4091,16 +2725,10 @@ asuka在旧剧场版海底觉醒，独自大战量产机，海滩上冷冷的恶
 我记得萌翻现在住的地方连amazon fresh都不送，这啥二线城市标准啊<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  herostratus  
 ##### 208#       发表于 2021-3-12 23:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50598023&amp;ptid=1992727" target="_blank">pharos 发表于 2021-3-12 10:54</a>
@@ -4111,16 +2739,10 @@ https://bbs.saraba1st.com/2b/thread-1130791-1- ...</blockquote>
 是有等级限制吗，看不了
 
 
-
-
-
-
-
 -----
 
 ####  yst234  
 ##### 209#       发表于 2021-3-12 23:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605733&amp;ptid=1992727" target="_blank">fff10tw 发表于 2021-3-12 22:46</a>
@@ -4131,16 +2753,10 @@ https://bbs.saraba1st.com/2b/thread-1130791-1- ...</blockquote>
 以前看管人用软银的网极易掉线
 
 
-
-
-
-
-
 -----
 
 ####  待宵  
 ##### 210#       发表于 2021-3-13 06:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605716&amp;ptid=1992727" target="_blank">dllplayer 发表于 2021-3-12 22:45</a>
@@ -4151,16 +2767,10 @@ https://bbs.saraba1st.com/2b/thread-1130791-1- ...</blockquote>
 据我所知，萌翻上海的家要去人民广场只需要坐地铁八号线
 
 
-
-
-
-
-
 -----
 
 ####  枫紫  
 ##### 211#       发表于 2021-3-13 08:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50605733&amp;ptid=1992727" target="_blank">fff10tw 发表于 2021-3-12 22:46</a>
@@ -4168,16 +2778,10 @@ https://bbs.saraba1st.com/2b/thread-1130791-1- ...</blockquote>
 别闹，民用早给中国超越了，当然我国有那啥在所以限制比较多
 
 
-
-
-
-
-
 -----
 
 ####  观自在  
 ##### 212#       发表于 2021-3-13 08:32
-
 
 
  本帖最后由 观自在 于 2021-3-13 08:33 编辑 
@@ -4188,25 +2792,16 @@ https://bbs.saraba1st.com/2b/thread-1130791-1- ...</blockquote>
 —— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  岛田开  
 ##### 213#       发表于 2021-3-13 08:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50607616&amp;ptid=1992727" target="_blank">待宵 发表于 2021-3-13 06:22</a>
 
 据我所知，萌翻上海的家要去人民广场只需要坐地铁八号线</blockquote>
 卧槽，已经很好了，要那些真转乘两三个地铁的怎么活<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
 
 
                                           

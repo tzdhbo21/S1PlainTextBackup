@@ -1,12 +1,10 @@
 > ## **本文件最后更新于2021-03-17 12:06** 
 
 
-
 -----
 
 ####  whzfjk  
 ##### 1#       楼主       发表于 2020-9-6 16:47
-
 
 
  本帖最后由 whzfjk 于 2021-3-16 21:14 编辑 
@@ -20,11 +18,6 @@
 下载附件
 
 2020-9-8 16:05 上传
-
-
-
-
-
 
 
 官网：[https://www.d3p.co.jp/maglamlord/](https://www.d3p.co.jp/maglamlord/)
@@ -54,11 +47,6 @@ DEEPL 翻译简介：
 虽然参与开发的作品比较多，但是在倒计时页面上只列出了召唤之夜5，可谓此地无银三百两。
 
 
-
-
-
-
-
 -----
 
 ####  iou90  
@@ -67,21 +55,13 @@ DEEPL 翻译简介：
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  back57992  
 ##### 3#       发表于 2020-9-6 17:25
 
 
-
-
 铸剑物语挺好玩的 SPRG版估计没几个玩得下去了。NDS上还有个触屏版 也挺爽
-
-
-
-
-
 
 
 -----
@@ -90,16 +70,10 @@ DEEPL 翻译简介：
 ##### 4#         楼主| 发表于 2020-9-6 17:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48657241&amp;ptid=1958480" target="_blank">iou90 发表于 2020-9-6 17:05</a>
 
 铸剑物语出一出求求了</blockquote>
 铸剑物语实际开发是另外一家，既然打出的是这个班底那基本不可能了
-
-
-
-
-
 
 
 -----
@@ -108,16 +82,9 @@ DEEPL 翻译简介：
 ##### 5#       发表于 2020-9-6 17:32
 
 
-
-
 我一直觉得孪生时代如果作为一个手游还是蛮不错的
 
 可惜出在了nds上,那屏幕,能玩个鸡儿的搓玻璃<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -126,14 +93,7 @@ DEEPL 翻译简介：
 ##### 6#       发表于 2020-9-6 17:38
 
 
-
-
 这系列已经彻底轻量化了，现在传统掌机又亡了。不知道会是什么形态
-
-
-
-
-
 
 
 -----
@@ -142,14 +102,7 @@ DEEPL 翻译简介：
 ##### 7#       发表于 2020-9-6 17:39
 
 
-
-
 NS?
-
-
-
-
-
 
 
 -----
@@ -158,14 +111,7 @@ NS?
 ##### 8#       发表于 2020-9-6 17:53
 
 
-
-
 现在FELISTELLA还能做出来好东西嘛 我都有点怀疑了
-
-
-
-
-
 
 
 -----
@@ -174,16 +120,9 @@ NS?
 ##### 9#       发表于 2020-9-6 18:00
 
 
-
-
 “既然大家对我们出新作保有很大的怀疑态度 为了让大家放心 我们先出一个历代高清合集 欢迎捧场”
 
 大概就是如此吧
-
-
-
-
-
 
 
 -----
@@ -192,20 +131,13 @@ NS?
 ##### 10#       发表于 2020-9-6 18:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">上NS估计敢卖8000+    果断罢买明志  
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 11#         楼主| 发表于 2020-9-6 18:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48657622&amp;ptid=1958480" target="_blank">rzsxd 发表于 2020-9-6 18:00</a>
@@ -218,13 +150,7 @@ NS?
 但是我突然想起来忽略了什么
 
 
-
 这满满的手游预期啊<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -233,14 +159,7 @@ NS?
 ##### 12#       发表于 2020-9-6 18:04
 
 
-
-
 6代情怀已经卖馊掉了，我觉着还不如重制下铸剑物语
-
-
-
-
-
 
 
 -----
@@ -249,14 +168,7 @@ NS?
 ##### 13#       发表于 2020-9-6 18:06
 
 
-
-
 倒计时么手游咯
-
-
-
-
-
 
 
 -----
@@ -265,14 +177,7 @@ NS?
 ##### 14#       发表于 2020-9-6 18:19
 
 
-
-
 原来召唤之夜也是d3p的啊
-
-
-
-
-
 
 
 -----
@@ -281,14 +186,7 @@ NS?
 ##### 15#       发表于 2020-9-6 19:11
 
 
-
-
 情怀在5代已经被消耗掉了
-
-
-
-
-
 
 
 -----
@@ -297,14 +195,7 @@ NS?
 ##### 16#       发表于 2020-9-6 21:26
 
 
-
-
 都月之前那本前4作主要角色全出场还暗示连接5代的小说《召唤之夜U:X》已经坑了4年半了，如果是因为这新作而坑的那我真不知道该什么表情<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -313,14 +204,7 @@ NS?
 ##### 17#       发表于 2020-9-6 23:13
 
 
-
-
 回归剧情吧还是<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -329,14 +213,7 @@ NS?
 ##### 18#       发表于 2020-9-6 23:32
 
 
-
-
 我才知道这个系列的版权居然不在万代南梦宫手里...
-
-
-
-
-
 
 
 -----
@@ -345,16 +222,9 @@ NS?
 ##### 19#       发表于 2020-9-7 00:05
 
 
-
-
 这个点出来八成是手游了吧
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -363,14 +233,7 @@ NS?
 ##### 20#       发表于 2020-9-7 00:39
 
 
-
-
 召唤之夜换发行了？我还以为继续由BN发行呢。
-
-
-
-
-
 
 
 -----
@@ -379,14 +242,7 @@ NS?
 ##### 21#       发表于 2020-9-7 00:58
 
 
-
-
 我一直以为这个系列已经凉了
-
-
-
-
-
 
 
 -----
@@ -395,14 +251,7 @@ NS?
 ##### 22#         楼主| 发表于 2020-9-7 01:03
 
 
-
-
 只是关键词啦，不知道 D3P 这么蹭是几个意思
-
-
-
-
-
 
 
 -----
@@ -411,22 +260,13 @@ NS?
 ##### 23#       发表于 2020-9-7 01:24
 
 
-
-
 铸剑物语前几个月还把23通了一遍
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 24#         楼主| 发表于 2020-9-7 16:03
-
-
 
 
 新 staff 披露：
@@ -444,24 +284,13 @@ NS?
 音乐部分继续蹭召唤之夜
 
 
-
-
-
-
-
 -----
 
 ####  纯白花火  
 ##### 25#       发表于 2020-9-7 16:09
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不抱任何期待
-
-
-
-
-
 
 
 -----
@@ -470,22 +299,13 @@ NS?
 ##### 26#       发表于 2020-9-7 16:11
 
 
-
-
 希望来个中文吧。
-
-
-
-
-
 
 
 -----
 
 ####  Niu  
 ##### 27#       发表于 2020-9-7 16:18
-
-
 
 
 我不要新作
@@ -498,25 +318,13 @@ NS?
 做BM跟龍影咒的小組上哪去了?
 
 
-
-
-
-
-
 -----
 
 ####  Chia  
 ##### 28#       发表于 2020-9-7 16:25
 
 
-
-
 lack以前是五星顶级株式会社的吧，画个子供向还不是信手拈来<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -525,14 +333,7 @@ lack以前是五星顶级株式会社的吧，画个子供向还不是信手拈�
 ##### 29#       发表于 2020-9-7 16:34
 
 
-
-
 换了人设那肯定是蹭召唤之夜的新作了<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -541,22 +342,15 @@ lack以前是五星顶级株式会社的吧，画个子供向还不是信手拈�
 ##### 30#         楼主| 发表于 2020-9-7 16:42
 
 
-
 <blockquote>wingzerocos 发表于 2020-9-7 16:34
 换了人设那肯定是蹭召唤之夜的新作了</blockquote>
 黑星红白太贵了吧，对他的人设也就FGO的有感觉，参考舰B岛风，继续沿用的话不见得有多好。
-
-
-
-
-
 
 
 -----
 
 ####  Niu  
 ##### 31#       发表于 2020-9-7 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48666376&amp;ptid=1958480" target="_blank">wingzerocos 发表于 2020-9-7 00:34</a>
@@ -567,16 +361,10 @@ lack以前是五星顶级株式会社的吧，画个子供向还不是信手拈�
 那東西的版權應該還在B社手裡
 
 
-
-
-
-
-
 -----
 
 ####  雀斑  
 ##### 32#       发表于 2020-9-7 16:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48666447&amp;ptid=1958480" target="_blank">whzfjk 发表于 2020-09-07 16:42:15</a>
@@ -585,17 +373,10 @@ lack以前是五星顶级株式会社的吧，画个子供向还不是信手拈�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  whzfjk  
 ##### 33#         楼主| 发表于 2020-9-7 21:16
-
-
 
 
 <img src="https://img.saraba1st.com/forum/202009/07/211542o2g8y91vnganeye9.png" referrerpolicy="no-referrer">
@@ -608,20 +389,10 @@ lack以前是五星顶级株式会社的吧，画个子供向还不是信手拈�
 2020-9-7 21:15 上传
 
 
-
-
-
-
-
 出现了角色剪影，P成黑白的看得清楚些
 
 
 好浮夸的风格
-
-
-
-
-
 
 
 -----
@@ -630,14 +401,7 @@ lack以前是五星顶级株式会社的吧，画个子供向还不是信手拈�
 ##### 34#       发表于 2020-9-7 21:24
 
 
-
-
 lack的人设几个都不是很喜欢
-
-
-
-
-
 
 
 -----
@@ -646,21 +410,13 @@ lack的人设几个都不是很喜欢
 ##### 35#         楼主| 发表于 2020-9-7 21:25
 
 
-
-
 lack 妹子还可以的感觉，第一眼看到男人先入为主了
-
-
-
-
-
 
 
 -----
 
 ####  蓝雉  
 ##### 36#       发表于 2020-9-7 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48668886&amp;ptid=1958480" target="_blank">whzfjk 发表于 2020-9-7 21:16</a>
@@ -672,16 +428,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 左右眼似乎有火焰
 
 
-
-
-
-
-
 -----
 
 ####  暗口崩子  
 ##### 37#       发表于 2020-9-8 09:30
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有任何期待，这公司五年内做过哪怕一作好玩的东西吗
@@ -691,16 +441,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">重制铸剑物语来个合集买爆
 
 
-
-
-
-
-
 -----
 
 ####  ranapocket  
 ##### 38#       发表于 2020-9-8 09:48
-
 
 
  本帖最后由 ranapocket 于 2020-9-8 09:51 编辑 
@@ -711,16 +455,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 —— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
 
 
-
-
-
-
-
 -----
 
 ####  jianghaofan  
 ##### 39#       发表于 2020-9-8 10:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48672035&amp;ptid=1958480" target="_blank">暗口崩子 发表于 2020-9-8 09:30</a>
@@ -731,16 +469,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 地球防卫军还行吧
 
 
-
-
-
-
-
 -----
 
 ####  Niu  
 ##### 40#       发表于 2020-9-8 12:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48672157&amp;ptid=1958480" target="_blank">ranapocket 发表于 2020-9-7 17:48</a>
@@ -757,33 +489,19 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 把5這個UX後日談先出真的是很有病...
 
 
-
-
-
-
-
 -----
 
 ####  soranoguiji  
 ##### 41#       发表于 2020-9-8 13:00
 
 
-
-
 查了下铸剑物语是眼镜厂负责的，怪不得横版战斗这么给力，召唤夜按理版权在BN那里，难道会是**幻想曲的新作(做宝可梦
-
-
-
-
-
 
 
 -----
 
 ####  wingzerocos  
 ##### 42#       发表于 2020-9-8 13:05
-
-
 
 
 先出5挖坑再出U:X填坑也未尝不可。
@@ -793,27 +511,15 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 只能说不愧是NB<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wingzerocos  
 ##### 43#       发表于 2020-9-8 16:01
 
 
-
-
 魔剑创造动作RPG
 
 是铸剑物语<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -822,14 +528,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 44#       发表于 2020-9-8 16:05
 
 
-
-
 这人设杀气太重，一点也不萌豚<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -838,23 +537,16 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 45#       发表于 2020-9-8 16:05
 
 
-
  本帖最后由 walfeds 于 2020-9-8 16:08 编辑 
 
 コンカツ还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为了不灭绝找勇者留种可太草了 <blockquote>絶滅を回避するため、勇者や協力者相手に"コンカツ"することも……？</blockquote>
 平台ps4+ns
 
 
-
-
-
-
-
 -----
 
 ####  宛若青空  
 ##### 46#       发表于 2020-9-8 16:17
-
 
 
  本帖最后由 宛若青空 于 2020-9-8 16:27 编辑 
@@ -875,23 +567,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 2020-9-8 16:17 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  whzfjk  
 ##### 47#         楼主| 发表于 2020-9-8 16:21
-
-
 
 
 《异世界魔王与召唤少女的奴隶魔术》
@@ -901,25 +580,13 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 《最危险的魔王竟然成了濒危物种！？跟同伴进行婚活创造魔剑吧❤》
 
 
-
-
-
-
-
 -----
 
 ####  盐盐盐盐盐  
 ##### 48#       发表于 2020-9-8 16:22
 
 
-
-
 一看可以处对象我来精神了
-
-
-
-
-
 
 
 -----
@@ -928,14 +595,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 49#       发表于 2020-9-8 16:25
 
 
-
-
 人设我很喜欢
-
-
-
-
-
 
 
 -----
@@ -944,13 +604,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 50#       发表于 2020-9-8 16:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纳尼，真就铸剑物语？
-
-
-
-
-
 
 
 -----
@@ -959,14 +613,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 51#       发表于 2020-9-8 16:27
 
 
-
-
 光把男版女版主角一起放有点怪，快进到跟性转版的自己处对象（？
-
-
-
-
-
 
 
 -----
@@ -975,14 +622,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 52#       发表于 2020-9-8 16:30
 
 
-
-
 噢噢噢噢，希望成品质量还行。
-
-
-
-
-
 
 
 -----
@@ -991,13 +631,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 53#       发表于 2020-9-8 16:30
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">快进到PM商法，卖2个版本，分男魔王和女魔王
-
-
-
-
-
 
 
 -----
@@ -1006,16 +640,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 54#         楼主| 发表于 2020-9-8 16:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48676670&amp;ptid=1958480" target="_blank">walfeds 发表于 2020-9-8 16:27</a>
 
 光把男版女版主角一起放有点怪，快进到跟性转版的自己处对象（？</blockquote>
 火纹可选性别的不也是男女放一起仿佛CP一样（
-
-
-
-
-
 
 
 -----
@@ -1024,22 +652,13 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 55#       发表于 2020-9-8 16:34
 
 
-
-
 女魔王好骚啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">希望可以百合
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 56#         楼主| 发表于 2020-9-8 16:37
-
-
 
 
 追加图片，来自 A9VG 微博
@@ -1055,16 +674,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 <img src="http://wx4.sinaimg.cn/large/60ade0f3ly1gijbw1snvvj20hs0xmdim.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  walfeds  
 ##### 57#       发表于 2020-9-8 16:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48676706&amp;ptid=1958480" target="_blank">whzfjk 发表于 2020-9-8 16:31</a>
@@ -1081,16 +694,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 2020-9-8 16:37 上传
 
 
-
-
-
-
 确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1099,16 +703,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 58#       发表于 2020-9-8 16:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48676774&amp;ptid=1958480" target="_blank">whzfjk 发表于 2020-9-8 16:37</a>
 
 追加图片，来自 A9VG 微博</blockquote>
 我是不是看见了黎明卿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1117,15 +715,9 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 59#         楼主| 发表于 2020-9-8 16:43
 
 
-
  本帖最后由 whzfjk 于 2020-9-8 16:45 编辑 
 
 拉了，是大头小人
-
-
-
-
-
 
 
 -----
@@ -1134,14 +726,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 60#       发表于 2020-9-8 16:43
 
 
-
-
 希望能百合<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1150,13 +735,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 61#       发表于 2020-9-8 16:45
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 这卖相不就是铸剑物语嘛
-
-
-
-
-
 
 
 -----
@@ -1165,14 +744,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 62#       发表于 2020-9-8 16:46
 
 
-
-
 主角变身成魔剑让搭档用？
-
-
-
-
-
 
 
 -----
@@ -1181,21 +753,13 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 63#       发表于 2020-9-8 16:47
 
 
-
-
      <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来就不好玩啊
-
-
-
-
-
 
 
 -----
 
 ####  walfeds  
 ##### 64#       发表于 2020-9-8 16:50
-
 
 
 [https://www.famitsu.com/news/202009/08205379.html](https://www.famitsu.com/news/202009/08205379.html)
@@ -1205,25 +769,13 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 仆人萨提乌斯（cv：种崎敦美）
 
 
-
-
-
-
-
 -----
 
 ####  炎阳之谶  
 ##### 65#       发表于 2020-9-8 16:53
 
 
-
-
 能搞姬就是好游戏
-
-
-
-
-
 
 
 -----
@@ -1232,14 +784,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 66#       发表于 2020-9-8 16:54
 
 
-
-
 大头人打磨好也能好玩的，参考双星物语2
-
-
-
-
-
 
 
 -----
@@ -1248,14 +793,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 67#       发表于 2020-9-8 16:55
 
 
-
-
 有种崎<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1264,14 +802,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 68#       发表于 2020-9-8 16:56
 
 
-
-
 能用美少女勾搭美少女吗？
-
-
-
-
-
 
 
 -----
@@ -1280,14 +811,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 69#       发表于 2020-9-8 16:58
 
 
-
-
 能生崽吗
-
-
-
-
-
 
 
 -----
@@ -1296,14 +820,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 70#       发表于 2020-9-8 16:59
 
 
-
-
 华哥配的角色是性别不明，难道会根据主角性别而变吗
-
-
-
-
-
 
 
 -----
@@ -1312,14 +829,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 71#       发表于 2020-9-8 17:05
 
 
-
-
 竟然是铸剑物语，但系统不知道改成怎么样能玩吗，最近两作召唤之夜让我失去了信心
-
-
-
-
-
 
 
 -----
@@ -1328,14 +838,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 72#       发表于 2020-9-8 17:18
 
 
-
-
 看着好一般啊
-
-
-
-
-
 
 
 -----
@@ -1344,16 +847,9 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 73#       发表于 2020-9-8 17:45
 
 
-
-
 再一般也比走格子的召唤之夜好玩，而且铸剑物语本身不也是大头人，我反正开心了，女主还那么可爱，爽哦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -1362,15 +858,9 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 74#       发表于 2020-9-8 18:56
 
 
-
  本帖最后由 妄想中毒 于 2020-9-8 18:57 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">原创RPG，这雷我不踩
-
-
-
-
-
 
 
 -----
@@ -1379,14 +869,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 75#       发表于 2020-9-8 18:57
 
 
-
-
 看发售后的评价吧，这种游戏不敢入首发
-
-
-
-
-
 
 
 -----
@@ -1395,14 +878,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 76#       发表于 2020-9-8 19:07
 
 
-
-
 还是喜欢黑星红白
-
-
-
-
-
 
 
 -----
@@ -1411,14 +887,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 77#       发表于 2020-9-8 21:55
 
 
-
-
 可以，好玩到时NS上来一个
-
-
-
-
-
 
 
 -----
@@ -1427,14 +896,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 78#       发表于 2020-9-9 00:05
 
 
-
-
 就是铸剑物语吧，给我雅提老师啦
-
-
-
-
-
 
 
 -----
@@ -1443,14 +905,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 79#       发表于 2020-9-9 10:32
 
 
-
-
 先觀望 等戰鬥系統的詳細
-
-
-
-
-
 
 
 -----
@@ -1459,14 +914,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 80#       发表于 2020-9-9 11:01
 
 
-
-
 铸剑物语精神续作？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1475,23 +923,15 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 81#       发表于 2020-9-9 11:40
 
 
-
-
 其实凸起两作都玩穿了，感觉就是差一个好一些的战斗系统。凸起二代还是有新点子的，可惜做出来的部分不太行
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 82#         楼主| 发表于 2020-9-9 13:46
-
 
 
  本帖最后由 whzfjk 于 2020-9-9 13:49 编辑 
@@ -1504,13 +944,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 剑·枪·斧
 
 
-
 发现勇者刚好有两个，估计就是女魔王推小白脸，男魔王推大妈了
-
-
-
-
-
 
 
 -----
@@ -1519,14 +953,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 83#       发表于 2020-9-9 14:25
 
 
-
-
 怎么才三种武器，没有钻头好歹来个拳套啊。
-
-
-
-
-
 
 
 -----
@@ -1535,21 +962,13 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 84#       发表于 2020-9-10 09:34
 
 
-
-
 嗯嗯 所以FP社傳統的姬情基情呢?
-
-
-
-
-
 
 
 -----
 
 ####  Amelia_1812  
 ##### 85#       发表于 2020-9-10 09:53
-
 
 
  本帖最后由 Amelia_1812 于 2020-9-9 20:59 编辑 
@@ -1559,18 +978,10 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 而且魔王和勇者的恋爱物语那不就是铸剑2的基友视角吗
 
 
-
-
-
-
-
-
 -----
 
 ####  whzfjk  
 ##### 86#         楼主| 发表于 2020-9-17 13:22
-
-
 
 
 新 PV：[https://www.biantube.com/watch/xkioRcdulDQ](https://www.biantube.com/watch/xkioRcdulDQ)
@@ -1601,18 +1012,8 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 <[img src="https://i.loli.net/2020/09/17/tfXwIplUA7cxCEW.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
-
-
 『MAGLAM LORD／マグラムロード』1stトレーラー 1-2 screenshot.png
 (1.99 MB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -1621,53 +1022,20 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 2020-9-17 13:12 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202009/17/131229uetv3wgoyo5v3gw5.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 『MAGLAM LORD／マグラムロード』1stトレーラー 0-46 screenshot.png
 (907.72 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2020-9-17 13:12 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202009/17/131204bpitpbpkgbh3hp9p.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -1676,14 +1044,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 87#       发表于 2020-9-17 13:50
 
 
-
-
 感觉剧情会走生草路线<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1692,13 +1053,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 88#       发表于 2020-9-17 13:52
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 怎么就三种武器，连铸剑1都不如
-
-
-
-
-
 
 
 -----
@@ -1707,14 +1062,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 89#       发表于 2020-9-17 14:01
 
 
-
-
 没钻头吗，我突破天际的钻头啊
-
-
-
-
-
 
 
 -----
@@ -1723,16 +1071,9 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 90#       发表于 2020-9-18 02:28
 
 
-
-
 片子还挺有味道的，就看有不有中文了
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -1741,14 +1082,7 @@ lack 妹子还可以的感觉，第一眼看到男人先入为主了
 ##### 91#         楼主| 发表于 2020-9-26 10:13
 
 
-
-
 https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外地图就是纯菜单ADV界面了，好像只能操控勇者，魔王是躲在背后的挂件（
-
-
-
-
-
 
 
 -----
@@ -1757,16 +1091,9 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 92#       发表于 2020-9-26 10:15
 
 
-
-
 铸剑物语换皮复活嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 看来会买了
-
-
-
-
-
 
 
 -----
@@ -1775,14 +1102,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 93#       发表于 2020-9-26 10:17
 
 
-
-
 就看有不有中文了+1<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1791,14 +1111,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 94#         楼主| 发表于 2020-9-26 10:19
 
 
-
-
 铸剑物语好歹还有可以移动的城镇场景
-
-
-
-
-
 
 
 -----
@@ -1807,14 +1120,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 95#       发表于 2020-9-26 10:28
 
 
-
-
 这游戏的3d建模好劣质
-
-
-
-
-
 
 
 -----
@@ -1823,14 +1129,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 96#       发表于 2020-9-26 10:29
 
 
-
-
 以前精致的2d像素美术去哪了
-
-
-
-
-
 
 
 -----
@@ -1839,16 +1138,10 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 97#       发表于 2020-9-26 10:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48858543&amp;ptid=1958480" target="_blank">squa11 发表于 2020-9-25 21:28</a>
 
 这游戏的3d建模好劣质</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">你在期待d3p什么啊
-
-
-
-
-
 
 
 -----
@@ -1857,14 +1150,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 98#       发表于 2020-9-26 10:45
 
 
-
-
 这画面真够屎的
-
-
-
-
-
 
 
 -----
@@ -1873,22 +1159,13 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 99#       发表于 2020-9-26 11:41
 
 
-
-
 不好好弄2D，整什么3D啊
-
-
-
-
-
 
 
 -----
 
 ####  whzfjk  
 ##### 100#         楼主| 发表于 2020-10-29 12:56
-
-
 
 
 转 A9VG：
@@ -1935,16 +1212,10 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 所以候补就 4 人吗，魔王看起来不能出战啊。莉莉卡攻略希望。
 
 
-
-
-
-
-
 -----
 
 ####  Pumpkin_ccc  
 ##### 101#       发表于 2020-11-26 17:42
-
 
 
 [https://www.bilibili.com/video/BV1K541157ur](https://www.bilibili.com/video/BV1K541157ur)
@@ -1953,24 +1224,13 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 开场动画，OP还是召唤之夜的味道，挺好听的
 
 
-
-
-
-
-
 -----
 
 ####  闽明  
 ##### 102#       发表于 2020-11-26 17:44
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">导师不能攻略么，只是工具人么
-
-
-
-
-
 
 
 -----
@@ -1979,14 +1239,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 103#       发表于 2021-3-3 14:22
 
 
-
-
 怎么就没更新动态了，3月18日发售<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1995,14 +1248,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 104#       发表于 2021-3-3 14:26
 
 
-
-
 虽然买大概是会买，但这作对我来说最大的意义是让召唤之夜U;X最终卷能出版<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2011,16 +1257,9 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 105#       发表于 2021-3-3 14:27
 
 
-
-
 这个卖相... <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">gba 上铸剑物语的画面音乐我觉得可以算第一梯队的，时泪系列。
 
  -- 傲娇地来自 Stage1未知客户端
-
-
-
-
-
 
 
 -----
@@ -2029,14 +1268,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 106#         楼主| 发表于 2021-3-3 14:27
 
 
-
-
 战斗进行到一定阶段可以变成白毛魔王形态（熟悉的感觉），女候补感觉太差，不如当女魔王推低配黎明卿。另外杂志角落里揭露的濒危种里好像还有些好看的魔物娘？
-
-
-
-
-
 
 
 -----
@@ -2045,14 +1277,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 107#       发表于 2021-3-3 14:31
 
 
-
-
 和传说系列联动武器了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2061,14 +1286,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 108#       发表于 2021-3-3 16:51
 
 
-
-
 地雷社？
-
-
-
-
-
 
 
 -----
@@ -2077,14 +1295,7 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 109#       发表于 2021-3-3 17:05
 
 
-
-
 看着ESHOP介绍里语言栏就一个“日语”真的买不下手
-
-
-
-
-
 
 
 -----
@@ -2093,15 +1304,9 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 110#       发表于 2021-3-10 01:14
 
 
-
 <img src="https://s3.ax1x.com/2021/03/10/68jKLq.jpg" referrerpolicy="no-referrer">
 
 不管男女能和全角色进恋爱end，而且男女主角的对话和语音不同样
-
-
-
-
-
 
 
 -----
@@ -2110,16 +1315,9 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 111#       发表于 2021-3-10 09:12
 
 
-
-
 他妈的原来是D3P…比地雷心更烂一段的公司
 
 期待值下降七十五个档次
-
-
-
-
-
 
 
 -----
@@ -2128,22 +1326,15 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 ##### 112#       发表于 2021-3-10 09:15
 
 
-
  本帖最后由 Amelia_1812 于 2021-3-9 20:21 编辑 
 
 算了编辑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
 
 ####  oidoid  
 ##### 113#       发表于 2021-3-10 09:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50572488&amp;ptid=1958480" target="_blank">Renkonsai 发表于 2021-3-10 09:12</a>
@@ -2159,16 +1350,10 @@ https://m.weibo.cn/1622008051/4553340279326040 实机视频，估计除了野外
 D3P只管发售不是开发……但仍然很悬
 
 
-
-
-
-
-
 -----
 
 ####  Renkonsai  
 ##### 114#       发表于 2021-3-10 09:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50572738&amp;ptid=1958480" target="_blank">oidoid 发表于 2021-3-10 09:32</a>
@@ -2179,25 +1364,13 @@ D3P只管发售不是开发……但仍然很悬
 看见藏收丰庆和海王星Re2已经高血压了…
 
 
-
-
-
-
-
 -----
 
 ####  bigheadnotbig  
 ##### 115#       发表于 2021-3-10 09:43
 
 
-
-
 像素。。。我的像素。。。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2206,14 +1379,7 @@ D3P只管发售不是开发……但仍然很悬
 ##### 116#         楼主| 发表于 2021-3-10 20:03
 
 
-
-
 看这联动原来召唤之夜还要出新小说，这是要活动起来了吗
-
-
-
-
-
 
 
 -----
@@ -2222,21 +1388,13 @@ D3P只管发售不是开发……但仍然很悬
 ##### 117#         楼主| 发表于 2021-3-16 21:15
 
 
-
-
 FAMI 31 分，地雷社水平
-
-
-
-
-
 
 
 -----
 
 ####  空派白  
 ##### 118#       发表于 2021-3-17 15:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50646146&amp;ptid=1958480" target="_blank">whzfjk 发表于 2021-3-16 21:15</a>
@@ -2247,25 +1405,13 @@ FAMI31分有详细评价吗
 还蛮好奇的
 
 
-
-
-
-
-
 -----
 
 ####  oidoid  
 ##### 119#       发表于 2021-3-17 19:21
 
 
-
-
 塞钱通现在的31分和以前的20多分没区别吧？
-
-
-
-
-
 
 
 -----
@@ -2274,14 +1420,7 @@ FAMI31分有详细评价吗
 ##### 120#       发表于 2021-3-17 19:52
 
 
-
-
 说明和轨迹差不多好玩
-
-
-
-
-
 
 
 -----
@@ -2290,14 +1429,7 @@ FAMI31分有详细评价吗
 ##### 121#       发表于 2021-3-17 19:58
 
 
-
-
 估計會大暴死
-
-
-
-
-
 
 
 -----
@@ -2306,13 +1438,9 @@ FAMI31分有详细评价吗
 ##### 122#       发表于 2021-3-17 20:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">这，完全不敢下手…我还是等gust家的复刻
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
 
 
                                              

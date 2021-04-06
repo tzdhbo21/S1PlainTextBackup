@@ -1,13 +1,10 @@
 > ## **本文件最后更新于2021-03-22 05:32** 
 
 
-
 -----
 
 ####  处处踩地雷  
 ##### 1#       楼主       发表于 2021-3-20 10:07
-
-
 
 
 今天在向别人安利《死亡细胞》，然后发现steam和中文wiki在简介那里有这样一个差异
@@ -19,27 +16,15 @@ steam的介绍是“欢迎来到《死亡细胞》，这是一款将Roguelite与
 一个说的是Roguelite另一个说的是Roguelike，这两个名词代表的玩法设计理念有什么区别么？
 
 
-
-
-
-
-
 -----
 
 ####  魔人揪揪  
 ##### 2#       发表于 2021-3-20 10:08
 
 
-
-
 roguelike = 类似rogue的游戏
 
 roguelite = 类似 以撒的结合 的游戏
-
-
-
-
-
 
 
 -----
@@ -48,17 +33,10 @@ roguelite = 类似 以撒的结合 的游戏
 ##### 3#       发表于 2021-3-20 10:12
 
 
-
-
 roguelike每一局之间基本没有联系，唯一的提升是玩家经验
 roguelite有点解锁提升数值的系统，变相降低难度
 
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
-
-
-
-
-
 
 
 -----
@@ -67,18 +45,12 @@ roguelite有点解锁提升数值的系统，变相降低难度
 ##### 4#       发表于 2021-3-20 10:12
 
 
-
-
 不用想这种问题，现在市面上的都是lite。
-
 
 
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -88,12 +60,7 @@ roguelite有点解锁提升数值的系统，变相降低难度
 | liekong| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -102,15 +69,8 @@ roguelite有点解锁提升数值的系统，变相降低难度
 ##### 5#       发表于 2021-3-20 10:12
 
 
-
-
 简单来说就是有没有积分/继承要素
 roguelite类游戏每盘游戏都会给你点儿什么让你回去强化/解锁新要素（哪怕没有通关），所以被认为是更轻度的roguelike
-
-
-
-
-
 
 
 -----
@@ -119,22 +79,13 @@ roguelite类游戏每盘游戏都会给你点儿什么让你回去强化/解锁�
 ##### 6#       发表于 2021-3-20 10:14
 
 
-
-
 听过一种说法是，rougelite比rougelike更强化了永久升级或者失败后奖励的部分，不至于完全重新开始
-
-
-
-
-
 
 
 -----
 
 ####  urvark  
 ##### 7#       发表于 2021-3-20 10:52
-
-
 
 
 roguelike传统意义上是指类似rogue的游戏，现在基本上简化成了每次玩家死亡都要从零开始，就能算作roguelike
@@ -146,26 +97,15 @@ roguelite的意思是轻度的roguelike，也就是降低了难度，一般体�
 以撒的结合其实按现在标准应该算roguelike，或者说是增加了难度的roguelike，因为每次重开除了解锁更多挑战一类的之外，还会解锁大量的道具，而这些道具会污染掉落列表……实际上比较容易通关的好道具，比如红蘑菇、双发三发四发弹、巨大眼泪、硫磺火一类的东西都是一开始就已经解锁或者很早就能得到，后面解锁的道具确实更加花俏，但坑爹货占比较高，实际上排除玩家技术提升的因素，通关起来更难了……
 
 
-
-
-
-
-
 -----
 
 ####  猫狗猫  
 ##### 8#       发表于 2021-3-20 10:55
 
 
-
  本帖最后由 猫狗猫 于 2021-3-20 10:58 编辑 
 
 活久见，以撒都成roguelike了...先读一遍柏林准则吧，不是回合制的第一个开除roguelike籍。
-
-
-
-
-
 
 
 -----
@@ -174,20 +114,14 @@ roguelite的意思是轻度的roguelike，也就是降低了难度，一般体�
 ##### 9#       发表于 2021-3-20 10:59
 
 
-
-
 简单来说，Roguelike是电子RPG的子类，字面意义上的像Rogue，核心在于重复可玩性。一般有随机生成的网格式迷宫和道具，永久死亡，回合制战斗，比较老的Roguelike都是Ascii图像的，绝大多数Roguelike都是开源免费的，不过随着独立游戏的发展，现在商业化的Roguelike也越来越多了。
 
 Roguelite吸收了Roguelike理念，将其与其他种类游戏结合，也有人叫Roguelike-like。现在Roguelite五花八门，他们之间的共同点可能只有永久死亡和含有随机生成要素了。比较著名的例子有Spelunky，FTL，以撒的结合，杀戮尖塔。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 3战斗力 +3
@@ -199,12 +133,7 @@ Roguelite吸收了Roguelike理念，将其与其他种类游戏结合，也有�
 | 空罐子| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -213,14 +142,7 @@ Roguelite吸收了Roguelike理念，将其与其他种类游戏结合，也有�
 ##### 10#       发表于 2021-3-20 11:01
 
 
-
-
 roguelike和roguelite和roguelike-like
-
-
-
-
-
 
 
 -----
@@ -229,14 +151,7 @@ roguelike和roguelite和roguelike-like
 ##### 11#       发表于 2021-3-20 11:01
 
 
-
-
 京核去年3月有个电台
-
-
-
-
-
 
 
 -----
@@ -245,16 +160,9 @@ roguelike和roguelite和roguelike-like
 ##### 12#       发表于 2021-3-20 11:02
 
 
-
-
 以撒不是标准的肉鸽萘头么
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -263,21 +171,13 @@ roguelike和roguelite和roguelike-like
 ##### 13#       发表于 2021-3-20 11:06
 
 
-
-
 以撒都不算肉鸽了<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  pgain2004  
 ##### 14#       发表于 2021-3-20 12:12
-
 
 
  本帖最后由 pgain2004 于 2021-3-20 12:13 编辑 
@@ -328,13 +228,9 @@ roguelike和roguelite和roguelike-like
 至于去掉了横杠-啊，变成Rouge啊，前者只是懒，后者只是先没文化后成习惯
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -344,20 +240,13 @@ roguelike和roguelite和roguelike-like
 | 人手如云| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  dren_zheng  
 ##### 15#       发表于 2021-3-20 12:37
-
-
 
 
 roguelike = 玩家每一局都是以清零状态开始游戏，没有任何继承
@@ -374,16 +263,10 @@ roguelite = 玩家能获得极少量继承加强。比如基地建筑加强、�
 就好像格斗游戏，现在的2D格斗游戏其实大部分是3D建模2D玩法，对大部分人来说不需要强调3D建模那样，说2D格斗游戏就够了
 
 
-
-
-
-
-
 -----
 
 ####  frankCC  
 ##### 16#       发表于 2021-3-20 12:47
-
 
 
  本帖最后由 frankCC 于 2021-3-20 14:30 编辑 
@@ -391,13 +274,9 @@ roguelite = 玩家能获得极少量继承加强。比如基地建筑加强、�
 怎么还有拿柏林诠释当圣经，把以撒踢出去的？符合柏林诠释的才几个被大众了解的游戏啊，rl发展到火爆不就是从以撒开始的嘛。没以撒，有些人不知道什么时候才能接触到柏林诠释呢，在那装个锤子的学院派啊。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 14战斗力 -6
@@ -420,12 +299,7 @@ roguelite = 玩家能获得极少量继承加强。比如基地建筑加强、�
 | 空罐子|-1|哦|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -434,15 +308,8 @@ roguelite = 玩家能获得极少量继承加强。比如基地建筑加强、�
 ##### 17#       发表于 2021-3-20 12:49
 
 
-
-
 不是回合制的都该滚出like行列
 传统roguelike花长时间考虑单回合操作是个很常见的行为
-
-
-
-
-
 
 
 -----
@@ -451,14 +318,7 @@ roguelite = 玩家能获得极少量继承加强。比如基地建筑加强、�
 ##### 18#       发表于 2021-3-20 12:53
 
 
-
-
 语言是用来交流的，在国内大家都基本不用柏林诠释自然没有问题，但是你在红迪，Roguetemple，乃至国外任何一个有点资历的游戏论坛或网站，你乱用roguelike是有很大概率被网友纠正的。
-
-
-
-
-
 
 
 -----
@@ -467,21 +327,13 @@ roguelite = 玩家能获得极少量继承加强。比如基地建筑加强、�
 ##### 19#       发表于 2021-3-20 13:08
 
 
-
-
 like还有风来西林阿
-
-
-
-
-
 
 
 -----
 
 ####  pgain2004  
 ##### 20#       发表于 2021-3-20 13:09
-
 
 
  本帖最后由 pgain2004 于 2021-3-20 13:16 编辑 
@@ -492,17 +344,10 @@ like还有风来西林阿
 硬要说就像Diablo，它也算Roguelite啊，但从地位上说都能支撑起Diablo-like了
 
 
-
-
-
-
-
 -----
 
 ####  炎阳之谶  
 ##### 21#       发表于 2021-3-20 13:18
-
-
 
 
 个人而言只要没有继承和永久提升要素就算是具备rougelike精神了
@@ -514,17 +359,10 @@ like还有风来西林阿
 两者走上了不同的发展道路
 
 
-
-
-
-
-
 -----
 
 ####  AlerHugues  
 ##### 22#       发表于 2021-3-20 13:41
-
-
 
 
 真正的roguelike？
@@ -533,17 +371,10 @@ like还有风来西林阿
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Trompete  
 ##### 23#       发表于 2021-3-20 13:55
-
-
 
 
 你们定义有用吗 原教旨有用吗……
@@ -552,13 +383,9 @@ like还有风来西林阿
 现在 带有任何随机要素都可称rougelike ,而lite基本已经淡化了
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 0
@@ -569,12 +396,7 @@ like还有风来西林阿
 | liekong|-1|跟动漫一词一样，令人厌恶|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -583,23 +405,14 @@ like还有风来西林阿
 ##### 24#       发表于 2021-3-20 13:57
 
 
-
-
 steam上回合制roguelike都被分类到traditional roguelike里了
 战定义什么的，也无所谓了吧
-
-
-
-
-
 
 
 -----
 
 ####  Onelooker  
 ##### 25#       发表于 2021-3-20 14:24
-
-
 
 
 柏林那个定义太扯了，精简后的还有什么rogue三要素也不是绝对的
@@ -609,13 +422,9 @@ like，lite，肉鸽别人知道你在说什么就行
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -625,12 +434,7 @@ like，lite，肉鸽别人知道你在说什么就行
 | liekong|-1|纯交流场合和下定义场合不同|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -639,16 +443,9 @@ like，lite，肉鸽别人知道你在说什么就行
 ##### 26#       发表于 2021-3-20 14:46
 
 
-
-
 主要是继承要素
 
 柏林那个只不过定义的是rogue模仿者而已
-
-
-
-
-
 
 
 -----
@@ -657,16 +454,9 @@ like，lite，肉鸽别人知道你在说什么就行
 ##### 27#       发表于 2021-3-20 15:07
 
 
-
-
 吼吼，今日原教旨1/1  <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -675,22 +465,15 @@ like，lite，肉鸽别人知道你在说什么就行
 ##### 28#       发表于 2021-3-20 15:15
 
 
-
  本帖最后由 bighand3714 于 2021-3-20 15:17 编辑 
 
 我怎么记得roguelite这词是E胖提的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  leyenda  
 ##### 29#       发表于 2021-3-20 15:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50683592&amp;ptid=1994092" target="_blank">Trompete 发表于 2021-3-20 13:55</a>
@@ -702,13 +485,9 @@ like，lite，肉鸽别人知道你在说什么就行
 like还是lite不重要，rouge还是得纠正成rogue的
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -719,20 +498,13 @@ like还是lite不重要，rouge还是得纠正成rogue的
 | liekong| + 1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  ジム  
 ##### 30#       发表于 2021-3-20 15:18
-
-
 
 
 【游戏制作工具箱】Roguelike、永久升级和成长感 Roguelikes, Persistency, and Progression | GMTK
@@ -742,17 +514,10 @@ like还是lite不重要，rouge还是得纠正成rogue的
 别天天拿诠释当圣经念，看看不可思议迷宫都多少年没新作了？
 
 
-
-
-
-
-
 -----
 
 ####  汪达  
 ##### 31#       发表于 2021-3-20 15:19
-
-
 
 
 其实XXlike也不是什么正面的词，反而非常强调作品的模仿性质，所以做mh-like、dota-like的开发商才会整出共斗、moba之类的新名词，来掩饰mh-like、dota-like之类标签的尴尬。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
@@ -760,13 +525,9 @@ like还是lite不重要，rouge还是得纠正成rogue的
 从字面意义上来看，XXlite和XXlike最一目了然的区别就是，XXlite的模仿痕迹更轻，说白了就是“不是很like”，虽然是在强调不够“原汁原味”，但也同样稀释了like这个词本身包含的尴尬。所以真没必要把某款游戏被分为roguelite看成是原教旨者的一种轻蔑或者侮辱。当然也不排除有的人没转过这个弯来，发自内心的觉得XXlike就比XXlite高人一等，这大概就是所谓的“只要我不尴尬，尴尬的就是你们”吧。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -776,12 +537,7 @@ like还是lite不重要，rouge还是得纠正成rogue的
 | liekong| + 1|纠正概念与优越感无关|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -790,14 +546,7 @@ like还是lite不重要，rouge还是得纠正成rogue的
 ##### 32#       发表于 2021-3-20 15:25
 
 
-
-
 别用主机续作IP这种商业模式看roguelike。
-
-
-
-
-
 
 
 -----
@@ -806,20 +555,14 @@ like还是lite不重要，rouge还是得纠正成rogue的
 ##### 33#       发表于 2021-3-20 15:38
 
 
-
-
 柏林诠释只是那么几个人搞的定义，根本服不了了众，要我说只要带随机性，每次重开体验都不一样的都能算肉鸽，比如文明。
 
 甚至我认为，lol之类的moba和肉鸽是其实相似的游戏，肉鸽是用随机性取代对手的操作来生成谜题
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 6战斗力 -2
@@ -834,19 +577,13 @@ like还是lite不重要，rouge还是得纠正成rogue的
 | 空罐子|-1|欢乐多|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  瓜苗乐章  
 ##### 34#       发表于 2021-3-20 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50684177&amp;ptid=1994092" target="_blank">汪达 发表于 2021-3-20 15:19</a>
@@ -858,11 +595,6 @@ xx-like本是找到更恰当分类前的权宜之计，现在也没人说doomlik
 —— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  kara2000  
@@ -871,12 +603,10 @@ xx-like本是找到更恰当分类前的权宜之计，现在也没人说doomlik
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Tring  
 ##### 36#       发表于 2021-3-20 16:32
-
 
 
  本帖最后由 Tring 于 2021-3-20 16:35 编辑 
@@ -905,18 +635,10 @@ STEAM上的标签中文版Roguelite也被翻译成 轻度Rogue。
 但是在更常见的语境下，like和lite的区别只有游戏重度。
 
 
-
-
-
-
-
-
 -----
 
 ####  heresiarch  
 ##### 37#       发表于 2021-3-20 17:05
-
-
 
 
 现在商业化的ROGUELIKE其实非常少。STEAM上比较经典的就是ADOM和TOME4。ROGUELITE倒是一大堆。ROGUELITE本质可以视为“轻版”（LITE）的ROGUELIKE游戏。
@@ -931,32 +653,19 @@ STEAM上的标签中文版Roguelite也被翻译成 轻度Rogue。
 之所以如上所述，商业化的ROGUELIKE少的原因之一在于难度太大，一般的玩家根本承受不了的。你可以想象一下，要是你玩黑魂，每次死了后就要从头再来，而且迷宫、敌人、装备全部随机生成。而且这个随机生成，还可能会做成死局的那种……
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 38#       发表于 2021-3-20 18:03
 
 
-
-
 其实这两的差异主要在于“回合制”，这里的意思不是你一下我一下的回合，更像是atb那种。这也是包括cdda、tome4在内的传统roguelike具有如此战术魅力的深层原因。至于lite我还没见过回合制的，基本都是即时最多给个暂停。
-
-
-
-
-
 
 
 -----
 
 ####  秀光  
 ##### 39#       发表于 2021-3-20 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685344&amp;ptid=1994092" target="_blank">某雷 发表于 2021-3-20 18:03</a>
@@ -971,16 +680,10 @@ STEAM上的标签中文版Roguelite也被翻译成 轻度Rogue。
 对了还有那个魔性游戏节奏地牢，理论上也算回合制游戏……
 
 
-
-
-
-
-
 -----
 
 ####  Tring  
 ##### 40#       发表于 2021-3-20 18:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685344&amp;ptid=1994092" target="_blank">某雷 发表于 2021-3-20 18:03</a>
@@ -992,32 +695,19 @@ STEAM上的标签中文版Roguelite也被翻译成 轻度Rogue。
 就算不说这，尖塔LIKE也都是回合制啊。
 
 
-
-
-
-
-
 -----
 
 ####  Hidewhite  
 ##### 41#       发表于 2021-3-20 19:06
 
 
-
-
 有数值积累跟轻度未必相关，现在玩过的有数值积累的实质也就是抬高了基础要求，不如说只是反向拉高开局难度。我都习惯直接开修改器直接把这类数值改满了
-
-
-
-
-
 
 
 -----
 
 ####  猫狗猫  
 ##### 42#       发表于 2021-3-20 19:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685708&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 18:58</a>
@@ -1031,16 +721,10 @@ STEAM上的标签中文版Roguelite也被翻译成 轻度Rogue。
 卡牌游戏的回合制和tome/cdda的回合制是一回事吗...别闹...
 
 
-
-
-
-
-
 -----
 
 ####  Tring  
 ##### 43#       发表于 2021-3-20 19:10
-
 
 
  本帖最后由 Tring 于 2021-3-20 19:11 编辑 
@@ -1061,10 +745,6 @@ STEAM上的标签中文版Roguelite也被翻译成 轻度Rogue。
 2021-3-20 19:09 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/202103/20/190953cm3jw8nwsx11w44s.png" referrerpolicy="no-referrer">
 
 
@@ -1075,25 +755,15 @@ STEAM上的标签中文版Roguelite也被翻译成 轻度Rogue。
 2021-3-20 19:09 上传
 
 
-
-
-
-
 尖塔可是同时有roguelike和roguelite。以及一个卡牌专属的rogue，总共3个rogue标签的。
 
 你是觉得平台官方标签不配？还是觉得卡牌应该算即时？
-
-
-
-
-
 
 
 -----
 
 ####  猫狗猫  
 ##### 44#       发表于 2021-3-20 19:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685779&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 19:10</a>
@@ -1110,32 +780,19 @@ CDDA我玩的不深不多说，tome的回合制指的是玩家和一张地图上
 别闹。
 
 
-
-
-
-
-
 -----
 
 ####  ybfelix  
 ##### 45#       发表于 2021-3-20 19:16
 
 
-
-
 如果不考虑原教旨Rogue，roguelike和传统闯关游戏区别是什么，随机性和数值装备驱动吗
-
-
-
-
-
 
 
 -----
 
 ####  Tring  
 ##### 46#       发表于 2021-3-20 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685810&amp;ptid=1994092" target="_blank">猫狗猫 发表于 2021-3-20 19:16</a>
@@ -1146,13 +803,9 @@ CDDA ...</blockquote>
 行呗，您不认可的就是不配，那还谈啥，怕是在下不配和您谈话。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -1162,19 +815,13 @@ CDDA ...</blockquote>
 | makece|-1|思路广|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  Tring  
 ##### 47#       发表于 2021-3-20 19:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685812&amp;ptid=1994092" target="_blank">ybfelix 发表于 2021-3-20 19:16</a>
@@ -1187,16 +834,10 @@ CDDA ...</blockquote>
 广义RL游戏：高成长，但重开（一定程度上的）清0
 
 
-
-
-
-
-
 -----
 
 ####  猫狗猫  
 ##### 48#       发表于 2021-3-20 19:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685822&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 19:18</a>
@@ -1208,18 +849,10 @@ CDDA ...</blockquote>
 顺便你能继续反驳爬塔和tome的回合制是一回事吗？不能的话就别继续丢人现眼...
 
 
-
-
-
-
-
-
 -----
 
 ####  urvark  
 ##### 49#       发表于 2021-3-20 19:27
-
-
 
 
 早期对roguelike的定义就是类rogue的游戏，现在玩过rogue的人都不多了，甚至玩过hack的都不多，前几天还有个帖子，里面一哥们非要跟我说elona是RPG呢。时至今日，只要游戏会让玩家反复重开从零开始，就会有人把它往roguelike里分，steam上roguelike标签的游戏一堆，也没看到几个在评价和论坛里战定义的
@@ -1231,13 +864,9 @@ CDDA ...</blockquote>
 所以老玩家也没必要食古不化，拿五十年前的游戏做模板，和那些天天嚎着繁体字才是中华正统，简体字毁灭文化的家伙有啥不同……
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +2
@@ -1248,12 +877,7 @@ CDDA ...</blockquote>
 | liekong| + 1|下定义跟秀优越还是有却别的|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1262,22 +886,14 @@ CDDA ...</blockquote>
 ##### 50#       发表于 2021-3-20 19:31
 
 
-
-
 不够like是为了做一个更好的更现代的游戏，每一点不like的地方都是制作者的心血，为什么非要凑一个like
 旧式roguelike是在特定环境下形成的，和现代出生的独立游戏根本上是不同的，免费游戏代码开源也like一下吗
-
-
-
-
-
 
 
 -----
 
 ####  pgain2004  
 ##### 51#       发表于 2021-3-20 20:06
-
 
 
  本帖最后由 pgain2004 于 2021-3-20 20:11 编辑 
@@ -1299,13 +915,9 @@ CDDA ...</blockquote>
 在此基础上，如果不用柏林诠释，就会出现楼里这样谁都能自己定一个标准的情况，或者变成Indie Game/Light Novel这样最终由制作方/商家保留解释权的情况，楼主最后都无所适从。至于该标准将来会不会被哪些话语权重新诠释，在哪些群体、语境下有怎样的偏差，那是楼主了解基本概念后进一步深入时去考虑的事，没必要一开始就过多地引入外部干扰来讨论。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 4战斗力 +4
@@ -1318,12 +930,7 @@ CDDA ...</blockquote>
 | 猫狗猫| + 1|好评加鹅|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
@@ -1332,22 +939,14 @@ CDDA ...</blockquote>
 ##### 52#       发表于 2021-3-20 20:15
 
 
-
-
 然后引入争议的话，当然早有人质疑过柏林诠释本身：
 [http://www.gamesofgrey.com/blog/?p=403](http://www.gamesofgrey.com/blog/?p=403)
-
-
-
-
-
 
 
 -----
 
 ####  猫狗猫  
 ##### 53#       发表于 2021-3-20 20:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686187&amp;ptid=1994092" target="_blank">pgain2004 发表于 2021-3-20 20:06</a>
@@ -1360,16 +959,10 @@ CDDA ...</blockquote>
 柏林诠释再不服众也比33楼这种“柏林诠释算老几？要我说xx就是肉鸽”的服众...
 
 
-
-
-
-
-
 -----
 
 ####  q8f13  
 ##### 54#       发表于 2021-3-20 21:19
-
 
 
  本帖最后由 q8f13 于 2021-3-20 21:26 编辑 
@@ -1378,7 +971,6 @@ CDDA ...</blockquote>
 
 列几个偏原教旨，目前还稍有名气的作品，有兴趣的去尝尝就理解所谓的正味儿了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
 
 
  Tales of Maj'Eyal 习惯称tome4
@@ -1390,17 +982,10 @@ dungeon crawl stone soup，习惯称dcss或石头汤
 unreal world
 
 
-
-
-
-
-
-
 -----
 
 ####  makece  
 ##### 55#       发表于 2021-3-20 21:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50685779&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 19:10</a>
@@ -1411,16 +996,10 @@ unreal world
 你但凡看看你自己截图里的灰字都不能说出平台官方标签这话<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Tring  
 ##### 56#       发表于 2021-3-20 21:41
-
 
 
  本帖最后由 Tring 于 2021-3-20 21:49 编辑 
@@ -1442,19 +1021,10 @@ unreal world
 2021-3-20 21:47 上传
 
 
-
-
-
-
 真要抬这个杠，那WIKI上的分类，因为也是用户自行添加的不够权威了。
 
 
 但是这有意思么？
-
-
-
-
-
 
 
 -----
@@ -1463,21 +1033,13 @@ unreal world
 ##### 57#       发表于 2021-3-20 21:50
 
 
-
-
 不要求回合制的话，岂不是暗黑HC模式都是roguelike了
-
-
-
-
-
 
 
 -----
 
 ####  makece  
 ##### 58#       发表于 2021-3-20 22:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686958&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 21:41</a>
@@ -1488,16 +1050,10 @@ unreal world
 黑魂的恋爱模拟标签 只狼的音游标签 nekopara的第一人称射击标签难道都是官方认证？
 
 
-
-
-
-
-
 -----
 
 ####  Tring  
 ##### 59#       发表于 2021-3-20 22:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687202&amp;ptid=1994092" target="_blank">makece 发表于 2021-3-20 22:09</a>
@@ -1520,16 +1076,10 @@ unreal world
 所以争论这个问题显得非常无意义。
 
 
-
-
-
-
-
 -----
 
 ####  makece  
 ##### 60#       发表于 2021-3-20 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687245&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 22:15</a>
@@ -1542,16 +1092,10 @@ unreal world
 这种无效证据应该排除
 
 
-
-
-
-
-
 -----
 
 ####  猫狗猫  
 ##### 61#       发表于 2021-3-20 22:20
-
 
 
 <blockquote>makece 发表于 2021-3-20 22:18
@@ -1561,16 +1105,10 @@ unreal world
 眼瞎又爱打滚又自相矛盾又没玩过任何一个传统Roguelike，你跟这种人争什么...
 
 
-
-
-
-
-
 -----
 
 ####  liekong  
 ##### 62#       发表于 2021-3-20 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686958&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 21:41</a>
@@ -1596,16 +1134,10 @@ Digimon就有wiki出错，结果害官方跟着出错的例子，
 这就是交流灾难，就跟“动漫”一词被拿来专指anime一样恶心
 
 
-
-
-
-
-
 -----
 
 ####  Tring  
 ##### 63#       发表于 2021-3-20 22:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687269&amp;ptid=1994092" target="_blank">makece 发表于 2021-3-20 22:18</a>
@@ -1626,16 +1158,10 @@ Digimon就有wiki出错，结果害官方跟着出错的例子，
 当然，因为WIKI上也有成吨的谬误（例如某些敏感话题），所以WIKI的证据依然不是决定性的，而只能定量分析。
 
 
-
-
-
-
-
 -----
 
 ####  Tring  
 ##### 64#       发表于 2021-3-20 22:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687303&amp;ptid=1994092" target="_blank">liekong 发表于 2021-3-20 22:23</a>
@@ -1653,16 +1179,10 @@ wiki这东西就是拿来参考的，</blockquote>
 只是抬杠的方向太偏以至于我没能理解意义何在。
 
 
-
-
-
-
-
 -----
 
 ####  liekong  
 ##### 65#       发表于 2021-3-20 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687331&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 22:25</a>
@@ -1689,16 +1209,10 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 但是像LZ这种特意发帖求知询问的情况下，让对方知道最官方最权威的定义，这才是应该做的
 
 
-
-
-
-
-
 -----
 
 ####  某雷  
 ##### 66#       发表于 2021-3-20 22:33
-
 
 
 <blockquote>Tring 发表于 2021-3-20 18:58
@@ -1710,16 +1224,10 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 我已经强调了这里不是你一回合我一回合的回合制，虽然从呈现上来看是这样。
 
 
-
-
-
-
-
 -----
 
 ####  Tring  
 ##### 67#       发表于 2021-3-20 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687384&amp;ptid=1994092" target="_blank">某雷 发表于 2021-3-20 22:33</a>
@@ -1730,13 +1238,9 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 这种新兴的有速度属性的回合制，也不过是一种进化而已。
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 -1
@@ -1746,19 +1250,13 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 | 猫狗猫|-1|受不了了，张口就来|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  Tring  
 ##### 68#       发表于 2021-3-20 22:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687383&amp;ptid=1994092" target="_blank">liekong 发表于 2021-3-20 22:32</a>
@@ -1775,16 +1273,10 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 至于证据是否有足够的效用，那是该你们自己判断的问题。
 
 
-
-
-
-
-
 -----
 
 ####  liekong  
 ##### 69#       发表于 2021-3-20 22:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687424&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 22:39</a>
@@ -1797,16 +1289,10 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这就有点打滚了阿，所以我的回复就是“判断不足够”阿
 
 
-
-
-
-
-
 -----
 
 ####  Tring  
 ##### 70#       发表于 2021-3-20 22:47
-
 
 
  本帖最后由 Tring 于 2021-3-20 22:51 编辑 
@@ -1824,17 +1310,10 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 所以我觉得33L哪怕提出的是一个看起来很荒谬的意见，也比一味否定却无法提出新的见解的来的更有意义。
 
 
-
-
-
-
-
-
 -----
 
 ####  猫狗猫  
 ##### 71#       发表于 2021-3-20 22:55
-
 
 
 <blockquote>Tring 发表于 2021-3-20 22:47
@@ -1845,27 +1324,15 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 那您能回到原话题继续给我解释一下nethack和爬塔的回合制都是“你一回合我一回合”是什么意思吗
 
 
-
-
-
-
-
 -----
 
 ####  a12885084  
 ##### 72#       发表于 2021-3-20 23:02
 
 
-
-
 打滚笑死我了
 
  -- 傲娇地来自 Stage1未知客户端
-
-
-
-
-
 
 
 -----
@@ -1874,22 +1341,13 @@ Steam标签大家也是反驳你“标签是官方--&gt;标签权威”的论点
 ##### 73#       发表于 2021-3-20 23:19
 
 
-
-
 算了编辑了...不值当骂人...
-
-
-
-
-
 
 
 -----
 
 ####  ジム  
 ##### 74#       发表于 2021-3-20 23:32
-
-
 
 
 你们吵了半天，已经偏离LZ想要寻求的答案了
@@ -1902,17 +1360,10 @@ LZ要求解答的无非就是like和lite什么区别而已，按照现代玩家�
 所以以撒就是like，rogue legacy就是lite，一点毛病没有，扯个JB的定义诠释啊？
 
 
-
-
-
-
-
 -----
 
 ####  zike  
 ##### 75#       发表于 2021-3-20 23:40
-
-
 
 
 现在他们把所有类型的游戏都称为roguelike/roguelite了
@@ -1920,16 +1371,10 @@ LZ要求解答的无非就是like和lite什么区别而已，按照现代玩家�
 以至于当有人说他喜欢roguelike游戏，我其实并不清楚他实际喜欢的是爬塔，还是以撒，还是死亡细胞，还是TOME，还是黑魂，还是d2，还是其他什么的...
 
 
-
-
-
-
-
 -----
 
 ####  a12885084  
 ##### 76#       发表于 2021-3-21 00:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50687839&amp;ptid=1994092" target="_blank">ジム 发表于 2021-3-20 23:32</a>
@@ -1946,25 +1391,13 @@ LZ要求解答的无非就是like和 ...</blockquote>
 或者杀戮尖塔，关键卡组都得反复游玩才能解锁使用
 
 
-
-
-
-
-
 -----
 
 ####  巨灵巴谛魔  
 ##### 77#       发表于 2021-3-21 00:07
 
 
-
-
 tmd，游戏区怎么成了这个样子
-
-
-
-
-
 
 
 -----
@@ -1973,23 +1406,15 @@ tmd，游戏区怎么成了这个样子
 ##### 78#       发表于 2021-3-21 00:09
 
 
-
-
 游戏界懂哥争霸赛现场<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  瓜苗乐章  
 ##### 79#       发表于 2021-3-21 00:14
-
 
 
  本帖最后由 瓜苗乐章 于 2021-3-21 00:18 编辑 
@@ -2007,17 +1432,10 @@ tome4、枪牢、杀戮尖塔算like
 hades、死亡细胞算lite
 
 
-
-
-
-
-
-
 -----
 
 ####  JasonBourne  
 ##### 80#       发表于 2021-3-21 00:37
-
 
 
  本帖最后由 JasonBourne 于 2021-3-21 00:57 编辑 
@@ -2031,16 +1449,10 @@ hades、死亡细胞算lite
 划定大致的内涵范围往往比精确定义要更贴合语言交流的本质，毕竟这种「类XXX」描述发明出来就是用来方便交流的。
 
 
-
-
-
-
-
 -----
 
 ####  ジム  
 ##### 81#       发表于 2021-3-21 01:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50688036&amp;ptid=1994092" target="_blank">a12885084 发表于 2021-3-21 00:00</a>
@@ -2055,16 +1467,10 @@ hades、死亡细胞算lite
 至于更强？不好说，类似以撒和枪牢甚至lite的死亡细胞，扩大了的道具池只是丰富了随机性，反而造成一些神器抽不到难度还提升了呢
 
 
-
-
-
-
-
 -----
 
 ####  ジム  
 ##### 82#       发表于 2021-3-21 01:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50688268&amp;ptid=1994092" target="_blank">JasonBourne 发表于 2021-3-21 00:37</a>
@@ -2079,17 +1485,10 @@ hades、死亡细胞算lite
 还有前段日子刚打完的rogue heroes，标榜自己是类rogue，然而也只有迷宫是随机而已，比起分类到rogurlite我宁可把它划到三角力量like…
 
 
-
-
-
-
-
 -----
 
 ####  Trompete  
 ##### 83#       发表于 2021-3-21 08:47
-
-
 
 
 语言和词汇就是一个不断变化和将错就错的东西，我比你们大多数人更恨没脑子乱用词的人
@@ -2107,25 +1506,13 @@ hades、死亡细胞算lite
 但同时不管谁说了算，最后在外面的人还是随便乱用，steam上随便贴标签、写稿子的小编一样会写、玩家之间就算不认同但又不会特地提出来纠正，最后这词在最广泛的运用中就无法避免会变成有随机、重开成分的游戏……
 
 
-
-
-
-
-
 -----
 
 ####  格雷殿下  
 ##### 84#       发表于 2021-3-21 09:08
 
 
-
-
 快进到动漫和动画的区别，婆罗门出击
-
-
-
-
-
 
 
 -----
@@ -2144,17 +1531,10 @@ hades、死亡细胞算lite
 ----发送自 [Xiaomi M2012K11C,Android 11](http://stage1.5j4m.com/?1.37)
 
 
-
-
-
-
-
 -----
 
 ####  wujae  
 ##### 86#       发表于 2021-3-21 10:29
-
-
 
 
 都是垃圾
@@ -2162,16 +1542,10 @@ hades、死亡细胞算lite
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-
-
-
-
-
 -----
 
 ####  秀光  
 ##### 87#       发表于 2021-3-21 10:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50688036&amp;ptid=1994092" target="_blank">a12885084 发表于 2021-3-21 00:00</a>
@@ -2190,16 +1564,10 @@ TOME4也是要解锁职业的……
 现在的问题是符合光解锁不升级但游戏模式不是走格子回合制的算不算LIKE……
 
 
-
-
-
-
-
 -----
 
 ####  ジム  
 ##### 88#       发表于 2021-3-21 11:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50689740&amp;ptid=1994092" target="_blank">秀光 发表于 2021-3-21 10:51</a>
@@ -2216,16 +1584,10 @@ TOME4也是要解锁职业的……
 有些人套定义已经魔怔了，敢情他们玩过的才配叫roguelike，别人都不配
 
 
-
-
-
-
-
 -----
 
 ####  FMIC  
 ##### 89#       发表于 2021-3-21 15:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50689906&amp;ptid=1994092" target="_blank">ジム 发表于 2021-3-21 11:15</a>
@@ -2235,33 +1597,19 @@ TOME4也是要解锁职业的……
 柏林诠释是个打分表，即使在八九十年代的游戏能拿到接近满分的也是几乎不存在的，每个游戏可以被打一个分数衡量和rogue的相似之处，分数低到一定程度那就是不像呗
 
 
-
-
-
-
-
 -----
 
 ####  caohhh  
 ##### 90#       发表于 2021-3-21 15:09
 
 
-
-
 以撒不是塞尔达like吗？又不走格子，为什么会是roguelike呢？
-
-
-
-
-
 
 
 -----
 
 ####  炎阳之谶  
 ##### 91#       发表于 2021-3-21 15:23
-
-
 
 
 以撒算不算roguelike，很大程度上取决于一个人对roguelike核心体验的认知，同样是满足了一定数量的柏林诠释，对不同条目的强调也会带来偏差性很大的游戏体验
@@ -2273,17 +1621,10 @@ TOME4也是要解锁职业的……
 而我个人的认知就比较接近楼上有个认为“文明也能算roguelike”的潭友，我心目中roguelike的核心体验在于随机的游戏内容和稳定的经验成长，所以就会否认以撒和枪牢这种游戏过程中不断在道具池里解锁新物品的游戏是roguelike，因为这种设计实际上影响了玩家既有经验的发挥，每次解锁新道具，对道具池的理解、roll道具价值的判断都会受到损失，最终让玩家得到的经验部分作废。相比以撒，我就更愿意承认battlebrother（乃至文明，笑）这种游戏是roguelike，哪怕这类游戏甚至可以存档，但在它们随机生成的世界里，至少玩家的经验是一直通用，不会作废的
 
 
-
-
-
-
-
 -----
 
 ####  zike  
 ##### 92#       发表于 2021-3-21 15:35
-
-
 
 
 回到主楼问题，like和lite区别是什么？
@@ -2303,13 +1644,9 @@ TOME4也是要解锁职业的……
 你们有看到比柏林诠释更好用的，不会把roguelike分类搞成个什么都往里扔的，区分标准吗？
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +1
@@ -2319,19 +1656,13 @@ TOME4也是要解锁职业的……
 | liekong| + 1||
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  ジム  
 ##### 93#       发表于 2021-3-21 16:28
-
 
 
 <blockquote>炎阳之谶 发表于 2021-3-21 15:23
@@ -2344,16 +1675,10 @@ TOME4也是要解锁职业的……
 这也是lite出现的原因，玩家总希望在一局失败的游戏后留下点什么，给自己有个盼头，来提起下一轮的动力，当然现在不少lite有些滥用了，导致难度曲线非常不合理
 
 
-
-
-
-
-
 -----
 
 ####  ジム  
 ##### 94#       发表于 2021-3-21 16:32
-
 
 
 <blockquote>zike 发表于 2021-3-21 15:35
@@ -2365,17 +1690,10 @@ TOME4也是要解锁职业的……
 主楼问题的起因是死亡细胞游戏说明的两种说法，就此来回答的话，就是我前面所说的like和lite的区别，套诠释的意义是什么？套诠释的话这种游戏都不配叫rogueXX，不是么？
 
 
-
-
-
-
-
 -----
 
 ####  Hidewhite  
 ##### 95#       发表于 2021-3-21 16:33
-
-
 
 
 玩游戏的话没什么区分必要，多数其实就是老游戏到现代游戏的设计变化。
@@ -2393,16 +1711,10 @@ TOME4也是要解锁职业的……
 反正我是看不出来更像点有什么特殊性，我是觉得ToME4和暗黑破坏神更像，都在捡垃圾淘垃圾。hades和搓麻将相似，牌好不好看组合成什么样。
 
 
-
-
-
-
-
 -----
 
 ####  zike  
 ##### 96#       发表于 2021-3-21 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691921&amp;ptid=1994092" target="_blank">ジム 发表于 2021-3-21 16:32</a>
@@ -2419,16 +1731,10 @@ TOME4也是要解锁职业的……
 它指出了当玩家说他喜欢一个类型的游戏时 他想说的不是他喜欢打牌或角色扮演 他想说的是失败后惩罚有多严重
 
 
-
-
-
-
-
 -----
 
 ####  liekong  
 ##### 97#       发表于 2021-3-21 17:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50691921&amp;ptid=1994092" target="_blank">ジム 发表于 2021-3-21 16:32</a>
@@ -2445,16 +1751,10 @@ TOME4也是要解锁职业的……
 来来去去就只有柏林诠释符合。
 
 
-
-
-
-
-
 -----
 
 ####  pgain2004  
 ##### 98#       发表于 2021-3-21 17:43
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说白了就是，在座各位包括我自己都完全不够格去推动一个新的，相对被广泛认可的定义的诞生。
@@ -2466,16 +1766,10 @@ TOME4也是要解锁职业的……
 而要是只因为“我认识的大部分人都觉得这些是Rogue-like了我们不这么认为就落后时代是遗老遗少，不好”，请看前面那段话，给楼主一个最基本的定义解答就行了，先承认最基本的定义来源，再讨论后续的词汇意义泛化演化，既明明白白又不互相冲突，这不好吗？一开始就引入过多干扰，那很容易变成把简单问题复杂化，破坏了讨论却又无法相应地立起点什么来。
 
 
-
-
-
-
-
 -----
 
 ####  ジム  
 ##### 99#       发表于 2021-3-21 17:57
-
 
 
 <blockquote>zike 发表于 2021-3-21 17:19
@@ -2487,16 +1781,10 @@ TOME4也是要解锁职业的……
 原教旨我当然无所谓，现代Rogue的核心不就是永久死亡和随机生成么？lite加一条有附加永久升级项目，在此基础上做各种系统魔改都很正常，打牌、动作、战棋，都可以按照上面的说法分成like和lite，还是说你们比游戏开发商还懂怎么做一个roguelike的游戏？
 
 
-
-
-
-
-
 -----
 
 ####  Hidewhite  
 ##### 100#       发表于 2021-3-21 18:28
-
 
 
  本帖最后由 Hidewhite 于 2021-3-21 18:30 编辑 
@@ -2508,16 +1796,10 @@ TOME4也是要解锁职业的……
 其实是rogue-lite这个词本身更有问题吧，实际上这类游戏继承的也就一点点随机生成了，连核心玩法之类都是五花八门。游戏类型上明显是远远超过了单个游戏类型的程度，类似开放世界+XX的模式，XX可以是各种类别，解迷、动作冒险、RPG、射击等都能当这个XX，rogue-lite也差不多，随机生成加各种玩法，只不过还保留了一点重复开局和随机生成的相似性。 这种时候再把类某某游戏加进去的叫法本身就有点不伦不类了，要是开放世界都叫莎木-like，那就太搞了。 重新取个重复随机之类的名字概括上可能更合适，不过语言交流这玩意习惯了一般是哪个先来哪个方便
 
 
-
-
-
-
-
 -----
 
 ####  ジム  
 ##### 101#       发表于 2021-3-21 18:30
-
 
 
 <blockquote>liekong 发表于 2021-3-21 17:32
@@ -2537,16 +1819,10 @@ TOME4也是要解锁职业的……
 顺便求解：风来算不算like呢呵呵
 
 
-
-
-
-
-
 -----
 
 ####  zike  
 ##### 102#       发表于 2021-3-21 18:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50692414&amp;ptid=1994092" target="_blank">ジム 发表于 2021-3-21 17:57</a>
@@ -2563,33 +1839,19 @@ TOME4也是要解锁职业的……
 所谓roguelike，在不考虑所谓原教旨的情况下，作为游戏类型分类已经失去了意义，他现在只是指包含随机机制
 
 
-
-
-
-
-
 -----
 
 ####  johnwick  
 ##### 103#       发表于 2021-3-21 19:04
 
 
-
-
 自己在蒸汽上搜一下traditional roguelike这个标签就不会得出几乎没新作这个扯淡结论。
-
-
-
-
-
 
 
 -----
 
 ####  urvark  
 ##### 104#       发表于 2021-3-21 19:31
-
-
 
 
 风来当然算roguelike……
@@ -2606,32 +1868,19 @@ TOME4也是要解锁职业的……
 一定要贯彻纯血，无非是逼着其它游戏另外造个类型，死亡细胞制作组管自己的游戏叫roguevania，也就是rogue银河城的合体，这样大家都满意了，但又有啥意义……
 
 
-
-
-
-
-
 -----
 
 ####  mamamiya  
 ##### 105#       发表于 2021-3-21 20:17
 
 
-
-
 不把大咕咕鸡叫恐龙，恐龙就灭绝了这样？like有没有新作和like定义有啥关系？
-
-
-
-
-
 
 
 -----
 
 ####  pgain2004  
 ##### 106#       发表于 2021-3-21 20:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50692655&amp;ptid=1994092" target="_blank">Hidewhite 发表于 2021-3-21 18:28</a>
@@ -2645,17 +1894,10 @@ TOME4也是要解锁职业的……
 另外怎么还是有人纠结“Rogue-like”会不会因此而变得太少，你会说“现在新出的游戏都不在FC上运行，这不好，所以我们扩大范围把更多游戏算作FC游戏吧”吗，不会吧，除非就像前面说的，不用<strong>Rogue</strong>-lik/te了，定一个全新的名字，包括银河城那边也这么处理，方便扩大边界吧！我才想问，这真有意思吗……
 
 
-
-
-
-
-
 -----
 
 ####  汪达  
 ##### 107#       发表于 2021-3-21 21:39
-
-
 
 
 似乎一些人误解了柏林诠释的内容导致有点鸡同鸭讲，柏林诠释并没有强调符合所有的条目才是真正的roguelike，更不是原教旨主义者在维护什么纯洁性，它自己就申明过：
@@ -2682,16 +1924,10 @@ This list can be used to determine how roguelike a game is. <strong>Missing some
 我个人认为依据柏林诠释得到的结果其实更符合直觉
 
 
-
-
-
-
-
 -----
 
 ####  Hidewhite  
 ##### 108#       发表于 2021-3-21 22:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50693795&amp;ptid=1994092" target="_blank">pgain2004 发表于 2021-3-21 20:52</a>
@@ -2703,16 +1939,10 @@ ToME4的被动也是属于职业内部规划， 没有特别多化学反应，�
 我觉得定个新名字比较合适。我现在搜游戏能看到，传统rogue（ToME4）、动作类rogue（小骨：英雄杀手）、卡牌类rogue（杀戮尖塔）……rogue这个词在这里也就是个随机开局的意义了。一般叫个XX-like，那是大致类型保持相当相似的，现在这个XXrogue，那真是斗地主都可以叫 打牌rogue了。 
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 109#       发表于 2021-3-22 00:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50686958&amp;ptid=1994092" target="_blank">Tring 发表于 2021-3-20 21:41</a>
@@ -2721,16 +1951,10 @@ ToME4的被动也是属于职业内部规划， 没有特别多化学反应，�
 wiki权威个锤子啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">一个所有人理论上都能随便编辑内容的平台你跟我谈权威...
 
 
-
-
-
-
-
 -----
 
 ####  Stellar_Frost  
 ##### 110#       发表于 2021-3-22 00:23
-
 
 
  本帖最后由 Stellar_Frost 于 2021-3-22 00:28 编辑 
@@ -2740,16 +1964,10 @@ wiki权威个锤子啊<img src="https://static.saraba1st.com/image/smiley/face20
 话说回来也没人会真的按照其他人写的类别定义去自己做游戏系统，除非对玩法完全没追求就是要搞换皮；更别提拿一些热门游戏的设计元素去炒作商业和投资概念乃至炒作XXlike的存在了。而对于后者的区分，就像很多时候鉴别软文一样，并不是所有玩家都需要掌握的技能
 
 
-
-
-
-
-
 -----
 
 ####  martinium  
 ##### 111#       发表于 2021-3-22 01:19
-
 
 
  本帖最后由 martinium 于 2021-3-22 01:25 编辑 
@@ -2761,16 +1979,10 @@ genre的定义本来就是很随意的东西，它的出现并不是为了给作
 — from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
 
 
-
-
-
-
-
 -----
 
 ####  liekong  
 ##### 112#       发表于 2021-3-22 02:04
-
 
 
  本帖最后由 liekong 于 2021-3-22 02:13 编辑 
@@ -2803,18 +2015,10 @@ genre的定义本来就是很随意的东西，它的出现并不是为了给作
 实际上现在已经是差不多到达这种地步了
 
 
-
-
-
-
-
-
-
 -----
 
 ####  a12885084  
 ##### 113#       发表于 2021-3-22 02:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50695671&amp;ptid=1994092" target="_blank">martinium 发表于 2021-3-22 01:19</a>
@@ -2830,17 +2034,10 @@ genre的定义本来就是很随意的东西，它的出现并不是为了给作
 中文社区比较倾向于lite这个称呼罢了，并不是分类警察搞出来的新词
 
 
-
-
-
-
-
 -----
 
 ####  a12885084  
 ##### 114#       发表于 2021-3-22 02:24
-
-
 
 
 重看了一下wiki，wiki的分类里已经把roguelite划分在roguelike下面了，当成一个子分类了
@@ -2850,25 +2047,13 @@ genre的定义本来就是很随意的东西，它的出现并不是为了给作
 确实如此了
 
 
-
-
-
-
-
 -----
 
 ####  Bojenkins  
 ##### 115#       发表于 2021-3-22 08:14
 
 
-
-
 区别在于有多like rogue，但事实就是没人鸟柏林诠释也没出啥岔子，不上论坛辩经的大多数人都靠着roguelikeroguelite糊里糊涂搜到了他自己想要的游戏
-
-
-
-
-
 
 
 -----
@@ -2877,12 +2062,7 @@ genre的定义本来就是很随意的东西，它的出现并不是为了给作
 ##### 116#       发表于 2021-3-22 08:50
 
 
-
-
 不知道为何这么多人在意大多数人的分类标准，大多数人搞不好还都在管GTA叫RPG呢，但你既然知道GTA不是RPG没必要去学大多数人也把它叫RPG吧，除非你也觉得GTA是RPG……
-
-
-
 
 
                                               

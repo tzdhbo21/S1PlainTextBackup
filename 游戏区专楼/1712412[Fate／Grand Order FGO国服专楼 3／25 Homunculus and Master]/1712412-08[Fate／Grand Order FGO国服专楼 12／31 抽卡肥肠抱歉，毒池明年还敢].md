@@ -1,21 +1,13 @@
 > ## **本文件最后更新于2021-01-04 11:34** 
 
 
-
 -----
 
 ####  不乖  
 ##### 10501#       发表于 2018-10-8 16:08
 
 
-
-
 这就维护了？我怎么记得是今天22点维护啊，亏了一个亿，我商店还没搬玩呢
-
-
-
-
-
 
 
 -----
@@ -24,16 +16,10 @@
 ##### 10502#       发表于 2018-10-8 16:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41198917&amp;ptid=1712412" target="_blank">不乖 发表于 2018-10-8 16:08</a>
 
 这就维护了？我怎么记得是今天22点维护啊，亏了一个亿，我商店还没搬玩呢 ...</blockquote>
 维护后可以继续，又没关
-
-
-
-
-
 
 
 -----
@@ -42,15 +28,9 @@
 ##### 10503#       发表于 2018-10-8 16:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41198551&amp;ptid=1712412" target="_blank">kazemitoya 发表于 2018-10-8 15:34</a>
 我已经没有石头了~大号小号都没有石头了~~~</blockquote>
 你手机里应该有个蓝色软件。。<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -61,12 +41,10 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hylq2100  
 ##### 10505#       发表于 2018-10-8 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41199090&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-8 16:22</a>
@@ -75,24 +53,13 @@
 你是恶魔么<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 10506#       发表于 2018-10-8 16:39
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">打赢出战斗结束但是没到出东西的画面就刚好维护了
-
-
-
-
-
 
 
 -----
@@ -101,17 +68,11 @@
 ##### 10507#       发表于 2018-10-8 16:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41199311&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-8 16:39</a>
 打赢出战斗结束但是没到出东西的画面就刚好维护了</blockquote>
 不耽误，进去就领
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -122,7 +83,6 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  copysword  
@@ -131,12 +91,10 @@
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  milizzy  
 ##### 10510#       发表于 2018-10-8 17:10
-
 
 
  本帖最后由 milizzy 于 2018-10-8 18:17 编辑 
@@ -147,14 +105,8 @@
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
 QQ圖片20181008181618.jpg
 (761.56 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -163,24 +115,7 @@ QQ圖片20181008181618.jpg
 2018-10-8 18:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/08/181731qypt95maj22h2uf2.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -189,14 +124,7 @@ QQ圖片20181008181618.jpg
 ##### 10511#       发表于 2018-10-8 17:11
 
 
-
-
 赢了，三个十连5个护肤 2奶光1骑呆，海伦娜明年再抽了，溜了溜了<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -205,14 +133,7 @@ QQ圖片20181008181618.jpg
 ##### 10512#       发表于 2018-10-8 17:13
 
 
-
-
 两个十连，骑呆两宝，还歪了南丁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -221,14 +142,7 @@ QQ圖片20181008181618.jpg
 ##### 10513#       发表于 2018-10-8 17:13
 
 
-
-
 四单一呆一海二奶光，歪一南丁一罗摩，下个月一对金芙芙get
-
-
-
-
-
 
 
 -----
@@ -237,16 +151,9 @@ QQ圖片20181008181618.jpg
 ##### 10514#       发表于 2018-10-8 17:18
 
 
-
-
 第二个十连出了黑骑呆和枪奶光，然后就转投肯娘那边，到第五个十连终于一次出了两个肯娘……
 
 后面就等海伦娜单UP的时候抽一下了。
-
-
-
-
-
 
 
 -----
@@ -255,14 +162,7 @@ QQ圖片20181008181618.jpg
 ##### 10515#       发表于 2018-10-8 17:18
 
 
-
-
 6张符，一张小恩礼装，一张奶光，心满意足，走了走了
-
-
-
-
-
 
 
 -----
@@ -271,14 +171,7 @@ QQ圖片20181008181618.jpg
 ##### 10516#       发表于 2018-10-8 17:21
 
 
-
-
 一单奶光，醉了
-
-
-
-
-
 
 
 -----
@@ -287,16 +180,10 @@ QQ圖片20181008181618.jpg
 ##### 10517#       发表于 2018-10-8 17:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">骑呆海妈双收 等奶光单up
 
 发自我的iPhone via [Saralin 2.1.1](https://itunes.apple.com/cn/app/saralin/id1086444812)
 来自: iPhone客户端
-
-
-
-
-
 
 
 -----
@@ -305,13 +192,7 @@ QQ圖片20181008181618.jpg
 ##### 10518#       发表于 2018-10-8 17:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然海豹批量上岸
-
-
-
-
-
 
 
 -----
@@ -320,14 +201,7 @@ QQ圖片20181008181618.jpg
 ##### 10519#       发表于 2018-10-8 17:28
 
 
-
-
 想了想氪金还是留着梅林复刻了
-
-
-
-
-
 
 
 -----
@@ -336,14 +210,7 @@ QQ圖片20181008181618.jpg
 ##### 10520#       发表于 2018-10-8 17:30
 
 
-
-
 两个十连一个奶光<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还行 收手了
-
-
-
-
-
 
 
 -----
@@ -354,23 +221,15 @@ QQ圖片20181008181618.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  atomicink  
 ##### 10522#       发表于 2018-10-8 17:39
 
 
-
-
 抽了3单，第1单和第3单完全礼装go，第2单5宝弓海妈1宝枪奶光1宝水无毛
 
 不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -379,14 +238,7 @@ QQ圖片20181008181618.jpg
 ##### 10523#       发表于 2018-10-8 17:44
 
 
-
-
 奶光卡60了，井盖不足<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -395,14 +247,7 @@ QQ圖片20181008181618.jpg
 ##### 10524#       发表于 2018-10-8 17:51
 
 
-
-
 全是海伦娜...没有赖光...
-
-
-
-
-
 
 
 -----
@@ -411,16 +256,9 @@ QQ圖片20181008181618.jpg
 ##### 10525#       发表于 2018-10-8 17:51
 
 
-
-
 接连俩女仆 然后贫乳巨乳一张没有.....<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -429,14 +267,7 @@ QQ圖片20181008181618.jpg
 ##### 10526#       发表于 2018-10-8 17:54
 
 
-
-
 下水道是不是肖申克救赎梗？
-
-
-
-
-
 
 
 -----
@@ -445,14 +276,7 @@ QQ圖片20181008181618.jpg
 ##### 10527#       发表于 2018-10-8 17:58
 
 
-
-
 300石头2无毛2奶光1海伦娜还行，第一张出的就是无毛她果然爱我<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -461,14 +285,7 @@ QQ圖片20181008181618.jpg
 ##### 10528#       发表于 2018-10-8 17:58
 
 
-
-
 半单只有一个海伦娜，不过我的目标就是海伦娜，收工
-
-
-
-
-
 
 
 -----
@@ -479,12 +296,10 @@ QQ圖片20181008181618.jpg
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  deadog  
 ##### 10530#       发表于 2018-10-8 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41200100&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-08 17:54:20</a>
@@ -493,27 +308,15 @@ QQ圖片20181008181618.jpg
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  wolfwood  
 ##### 10531#       发表于 2018-10-8 18:07
 
 
-
-
 第三个十连彩圈出货又跟个金圈出枪奶光，完了又来张宝石，可以说是海豹极了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI ALP-AL00, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -522,14 +325,7 @@ QQ圖片20181008181618.jpg
 ##### 10532#       发表于 2018-10-8 18:11
 
 
-
-
 各位都是欧皇，我还是等奶光单up再抽了，反正目标就是一宝奶光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -538,23 +334,15 @@ QQ圖片20181008181618.jpg
 ##### 10533#       发表于 2018-10-8 18:11
 
 
-
-
 真实礼装go，两单only一宝海伦娜，其余全tm礼装。
 
 现在在考虑卖号弃坑了<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  FrozenA  
 ##### 10534#       发表于 2018-10-8 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41200246&amp;ptid=1712412" target="_blank">纯白金属 发表于 2018-10-8 18:11</a>
@@ -564,27 +352,15 @@ QQ圖片20181008181618.jpg
 fgo的号卖的价钱对不起氪金钱的吧
 
 
-
-
-
-
-
 -----
 
 ####  海关  
 ##### 10535#       发表于 2018-10-8 18:23
 
 
-
-
 四单沉水黑呆，不开心
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -593,14 +369,7 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10536#       发表于 2018-10-8 18:26
 
 
-
-
 一单下去黑呆是没有了，但泳装奶光跟海妈 2人到手。。。还歪了小莫。。。。4宝了，无语。
-
-
-
-
-
 
 
 -----
@@ -609,16 +378,9 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10537#       发表于 2018-10-8 18:31
 
 
-
-
 最后的十连，阿塔宝具+1，
 
 幸好出了nobu，不然真的一个都抽不出来<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -627,16 +389,9 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10538#       发表于 2018-10-8 18:32
 
 
-
-
 两单，骑黑呆和枪奶光各一宝，歪了术尼托，还行吧
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -645,25 +400,16 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10539#       发表于 2018-10-8 18:39
 
 
-
-
 5水骑1阿囧6赖光6海伦娜，5星礼装满破多一张
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 顺便算素材的时候光看了看技能忘记算再临，肯娘水骑赖光要20多贝壳，现在贝壳不够点技能的了…
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 10540#       发表于 2018-10-8 18:48
-
-
 
 
 半单抽到了海妈，满足了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
@@ -673,17 +419,10 @@ fgo的号卖的价钱对不起氪金钱的吧
 —— 来自 HUAWEI BND-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 10541#       发表于 2018-10-8 18:53
-
-
 
 
 一单，二宝海伦娜，感觉，难堪大用啊，不过至少能代替我大英雄推剧情了。可我想赖光代替我大狗啊...
@@ -692,16 +431,10 @@ fgo的号卖的价钱对不起氪金钱的吧
 话说刚发现wiki有每队的胜利语音
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10542#       发表于 2018-10-8 18:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41200145&amp;ptid=1712412" target="_blank">copysword 发表于 2018-10-8 17:59</a>
@@ -710,17 +443,10 @@ fgo的号卖的价钱对不起氪金钱的吧
 那边每次都这样你指望变多好<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  MOOMBA  
 ##### 10543#       发表于 2018-10-8 19:12
-
-
 
 
 你游有毒...五宝女仆 一张奶光.....
@@ -729,16 +455,10 @@ fgo的号卖的价钱对不起氪金钱的吧
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10544#       发表于 2018-10-8 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41200761&amp;ptid=1712412" target="_blank">MOOMBA 发表于 2018-10-8 19:12</a>
@@ -749,16 +469,10 @@ fgo的号卖的价钱对不起氪金钱的吧
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">巨大海豹上岸
 
 
-
-
-
-
-
 -----
 
 ####  MOOMBA  
 ##### 10545#       发表于 2018-10-8 19:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41200781&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-08 19:15:12</a>
@@ -768,28 +482,15 @@ fgo的号卖的价钱对不起氪金钱的吧
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  淡定红茶  
 ##### 10546#       发表于 2018-10-8 19:23
 
 
-
-
 仔细想想高贵金枪之前也就缺小恩、清姬、金发大姐姐和李大师
 
 枪奶光不来无所谓了...<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
@@ -798,14 +499,7 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10547#       发表于 2018-10-8 19:24
 
 
-
-
 强杀狼王失败，剩下最后一个宝具的伤害，如果黑杯3令咒应该可以勉强杀掉，可惜令咒用光了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -814,14 +508,7 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10548#       发表于 2018-10-8 19:25
 
 
-
-
 真实概率 这次泳装100抽 水尼x1 奶光x1 肯娘x1 顺便歪了一个武则天...
-
-
-
-
-
 
 
 -----
@@ -832,28 +519,19 @@ fgo的号卖的价钱对不起氪金钱的吧
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  小妻水亚美  
 ##### 10550#       发表于 2018-10-8 19:25
 
 
-
-
 昨天晚上已经两单了，今天不信邪 又氪800多块，再加攒的碎片全换了90个石头 歪了个小太阳，然后就是一宝海妈 三宝奶光 然后就是阿福和枪大公 ，现在想想没钱的氪nm啊 10连一次就要100多块 干什么不好 如今氪了44单还是45单了 不氪了。
-
-
-
-
-
 
 
 -----
 
 ####  sureHH  
 ##### 10551#       发表于 2018-10-8 19:26
-
 
 
  本帖最后由 sureHH 于 2018-10-8 19:40 编辑 
@@ -864,26 +542,13 @@ fgo的号卖的价钱对不起氪金钱的吧
 小小号六个十连抽到了黑呆，豹力放出阿我！
 
 
-
-
-
-
-
-
 -----
 
 ####  我爱喵喵  
 ##### 10552#       发表于 2018-10-8 19:31
 
 
-
-
 第三抽就出了原定计划的奶光，以为今天转运了，然后把呼符石头抽光也没见到女仆呆<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -892,16 +557,10 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10553#       发表于 2018-10-8 19:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41200872&amp;ptid=1712412" target="_blank">copysword 发表于 2018-10-8 19:25</a>
 
 你是不是忘记BB了，黑杯BB，孔明、C闪、C狐上buff减防，一个宝具就再见了</blockquote>
 没有上C闪，因为换人衣服满级了，不是高难都不用。也忘记上黑杯了，当想起这回事都已经完结了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -910,14 +569,7 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10554#       发表于 2018-10-8 19:32
 
 
-
-
 两单头3个十连出了黑骑呆和枪奶光..转战水泥池歪出大公和两个肯娘.....水泥还是没有,,等明年了
-
-
-
-
-
 
 
 -----
@@ -926,14 +578,7 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10555#       发表于 2018-10-8 19:33
 
 
-
-
 水泥和老福氪的意志模糊，大概七八单，老福沉了，就一个水泥，歪了一个迦尔纳，更惨的是还是蠢蠢欲动想再氪一单怼老福
-
-
-
-
-
 
 
 -----
@@ -942,14 +587,7 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10556#       发表于 2018-10-8 19:49
 
 
-
-
 最近乘着减半吃了点苹果，算了一下今晚发完之后如果这两天没吃苹果就要超300个了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -958,13 +596,7 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10557#       发表于 2018-10-8 20:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">草2期一开第一次打本就带错队伍了，亏了一个亿加成
-
-
-
-
-
 
 
 -----
@@ -973,14 +605,7 @@ fgo的号卖的价钱对不起氪金钱的吧
 ##### 10558#       发表于 2018-10-8 20:15
 
 
-
-
 fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
-
-
-
-
-
 
 
 -----
@@ -991,21 +616,13 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Fukai_Rei  
 ##### 10560#       发表于 2018-10-8 20:19
 
 
-
-
 好不容易给白枪攒下来4K700W想点满个自充的，结果突然发现弓凛的自充可以点满了，结果就先点了弓凛了，现在弓凛是尴尬的6106，白枪是凄惨的246，就等着补发的金苹果救急了。
-
-
-
-
-
 
 
 -----
@@ -1014,14 +631,7 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10561#       发表于 2018-10-8 20:27
 
 
-
-
 二期不用急，等最高效率本开了再搬也不晚，每轮打一次应援和高光就够了。
-
-
-
-
-
 
 
 -----
@@ -1030,14 +640,7 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10562#       发表于 2018-10-8 20:31
 
 
-
-
 二期只要抽到枪奶光对我而言就已经达到目标了
-
-
-
-
-
 
 
 -----
@@ -1046,14 +649,7 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10563#       发表于 2018-10-8 20:39
 
 
-
-
 一单下去出了个泳装黑呆住嘛…虽然没有拿到奶光 不过黑泳呆也是想要的角色 强行不亏算了… 接下来攒石等153 巴御前和武藏了  顺便…尼禄祭不氪金打起来会很累吗
-
-
-
-
-
 
 
 -----
@@ -1062,15 +658,9 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10564#       发表于 2018-10-8 20:40
 
 
-
 <blockquote>aiqopsha 发表于 2018-10-8 19:33
 水泥和老福氪的意志模糊，大概七八单，老福沉了，就一个水泥，歪了一个迦尔纳，更惨的是还是蠢蠢欲动想再氪 ...</blockquote>
 冷静阿  7 8单 够我一个月生活费了…
-
-
-
-
-
 
 
 -----
@@ -1079,14 +669,7 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10565#       发表于 2018-10-8 20:41
 
 
-
-
 对了这期应援点数继续可以换到QB嘛 
-
-
-
-
-
 
 
 -----
@@ -1095,14 +678,7 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10566#       发表于 2018-10-8 20:44
 
 
-
-
 两单下去骑呆都2宝了还没出个四星的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1111,16 +687,10 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10567#       发表于 2018-10-8 20:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201629&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-8 20:41</a>
 
 对了这期应援点数继续可以换到QB嘛</blockquote>
 可以，就是，直接刷其实更赚
-
-
-
-
-
 
 
 -----
@@ -1129,23 +699,16 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10568#       发表于 2018-10-8 20:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201629&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-8 20:41</a>
 
 对了这期应援点数继续可以换到QB嘛</blockquote>
 可以，请放心大胆的用
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10569#       发表于 2018-10-8 20:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201629&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-8 20:41</a>
@@ -1156,25 +719,13 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 你现在打2把qp本，40AP，至少200w，够20次应援的qp了
 
 
-
-
-
-
-
 -----
 
 ####  剑士  
 ##### 10570#       发表于 2018-10-8 21:04
 
 
-
-
 只想要大莱莱奶光
-
-
-
-
-
 
 
 -----
@@ -1183,24 +734,16 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 ##### 10571#       发表于 2018-10-8 21:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201600&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-8 20:39</a>
 
 一单下去出了个泳装黑呆住嘛…虽然没有拿到奶光 不过黑泳呆也是想要的角色 强行不亏算了… 接下来攒石等153 ...</blockquote>
 你是指哪方面？
 
 
-
-
-
-
-
 -----
 
 ####  MOOMBA  
 ##### 10572#       发表于 2018-10-8 21:28
-
-
 
 
 看了下更新说明 
@@ -1211,16 +754,10 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 10573#       发表于 2018-10-8 21:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201600&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-8 20:39</a>
@@ -1229,25 +766,13 @@ fgowiki翻的挺好的啊。mooncell那个才是照搬b站的吧
 尼禄祭是看肝和看box的，要特别追求效率的话很早就要把应对的从者练起来了。不是特别苛求效率的话自己出两个拐，抱大腿的泳莫连冲，也是没问题的，至多多吃点苹果甚至碎一点石头。
 
 
-
-
-
-
-
 -----
 
 ####  影之诱惑  
 ##### 10574#       发表于 2018-10-8 21:29
 
 
-
-
 p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1256,16 +781,10 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10575#       发表于 2018-10-8 21:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201600&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-8 20:39</a>
 
 一单下去出了个泳装黑呆住嘛…虽然没有拿到奶光 不过黑泳呆也是想要的角色 强行不亏算了… 接下来攒石等153 ...</blockquote>
 氪金只是搬商店快点，但是对刷无限池没有影响，至于刷无限池累不累，就看你打算刷多少池和多少回合刷一把了
-
-
-
-
-
 
 
 -----
@@ -1274,14 +793,7 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10576#       发表于 2018-10-8 21:43
 
 
-
-
 把狼强杀掉剧情会有啥不一样吗？
-
-
-
-
-
 
 
 -----
@@ -1290,14 +802,7 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10577#       发表于 2018-10-8 21:44
 
 
-
-
 如果无限池和过热难度差不多，目前是一次10回合左右6分钟，一小时10次不到大概360ap，按一池180ap算，一个小时两池，10天刷100池每天要5个小时？？？？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1306,16 +811,10 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10578#       发表于 2018-10-8 21:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202167&amp;ptid=1712412" target="_blank">junoxdd 发表于 2018-10-8 21:43</a>
 
 把狼强杀掉剧情会有啥不一样吗？</blockquote>
 不会，狼也没有掉落
-
-
-
-
-
 
 
 -----
@@ -1326,7 +825,6 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  copysword  
@@ -1335,21 +833,13 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  evagle  
 ##### 10581#       发表于 2018-10-8 21:59
 
 
-
-
 复刻的4星单UP有2.5%，新池子就只剩1.5%了，在4星UP率上抠抠搜搜上蹿下跳，也是够恶心的
-
-
-
-
-
 
 
 -----
@@ -1360,21 +850,13 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 10583#       发表于 2018-10-8 22:07
 
 
-
-
 为什么...我会觉得海伦娜的立绘比赖光更色气...
-
-
-
-
-
 
 
 -----
@@ -1383,14 +865,7 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10584#       发表于 2018-10-8 22:10
 
 
-
-
 傻逼B站发个苹果也能鸽的？
-
-
-
-
-
 
 
 -----
@@ -1399,13 +874,7 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10585#       发表于 2018-10-8 22:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">满破海伦娜太色了，奶光完全不行
-
-
-
-
-
 
 
 -----
@@ -1414,15 +883,9 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10586#       发表于 2018-10-8 22:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202351&amp;ptid=1712412" target="_blank">光太郎 发表于 2018-10-8 22:03</a>
 话说到目前为止，全从者喂满芙芙的人多吗？</blockquote>
 抽友情喂太花时间了，用模拟器开脚本辅助也是起码几个钟头的重复劳动
-
-
-
-
-
 
 
 -----
@@ -1431,21 +894,13 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10587#       发表于 2018-10-8 22:29
 
 
-
-
 这游戏沉起船来真的想让人弃坑
-
-
-
-
-
 
 
 -----
 
 ####  FrozenA  
 ##### 10588#       发表于 2018-10-8 22:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202027&amp;ptid=1712412" target="_blank">MOOMBA 发表于 2018-10-8 21:28</a>
@@ -1455,16 +910,10 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 应该是0点发，还来得及吃！
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 10589#       发表于 2018-10-8 22:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202326&amp;ptid=1712412" target="_blank">evagle 发表于 2018-10-8 21:59</a>
@@ -1472,16 +921,10 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 这游戏玩下来我觉得抽卡的时候，骗自己其实奔着四星去是很危险的思想，最后发现石头花的完全不比五星少<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  六次方  
 ##### 10590#       发表于 2018-10-8 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202489&amp;ptid=1712412" target="_blank">白昼梦 发表于 2018-10-8 22:17</a>
@@ -1491,16 +934,10 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 —— 来自 HUAWEI MHA-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 10591#       发表于 2018-10-8 22:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202620&amp;ptid=1712412" target="_blank">六次方 发表于 2018-10-8 22:32</a>
@@ -1510,16 +947,10 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 海伦娜在监狱里都穿得细胳膊细腿的，社保
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 10592#       发表于 2018-10-8 22:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202627&amp;ptid=1712412" target="_blank">sandro 发表于 2018-10-8 22:34</a>
@@ -1529,26 +960,15 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 —— 来自 HUAWEI BND-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  loveritz  
 ##### 10593#       发表于 2018-10-8 22:46
 
 
-
  本帖最后由 loveritz 于 2018-10-8 22:48 编辑 
 
 第二次氪金吧，上回圆桌up忘了几单，捞了三呆毛，其实我就是想凑全呆毛助战来着，还有这次海妈死库水提个大机关枪特别戳萌点，先抽完抽肯娘剩的100石，结果啥都没，接着氪了一单下去啥都没。。。惊了，出门吃饭回来又来了一单，好歹还是出了，400多石一女仆呆和一海妈，算是达成目标，撤了撤了，今年大概除了捞刑部姬别的也没啥很想要的了，希望刑部姬能豹一回<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1557,14 +977,7 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10594#       发表于 2018-10-8 22:50
 
 
-
-
 除了这次以外还有新活动追加绿方块换狗粮的么，感觉以前从来没享受过啊
-
-
-
-
-
 
 
 -----
@@ -1573,16 +986,9 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10595#       发表于 2018-10-8 23:02
 
 
-
-
 尼禄池太欧报应来了，充两单沉船，别说女仆，奶光海伦娜都没来，歪了两张常驻四星，其中一张茨木还溢出的，头铁补了一单，结果就出了一张奶光<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
 
 啊啊啊，女仆，再见了
-
-
-
-
-
 
 
 -----
@@ -1591,16 +997,9 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10596#       发表于 2018-10-8 23:14
 
 
-
-
 小号上个活动快结束才出活动礼装，这次活动副本第一把就出了礼装
 
 回头卡池一发十连出了尼托，术阶的，你妹啊，两期泳装我歪了3个四星了
-
-
-
-
-
 
 
 -----
@@ -1609,14 +1008,7 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10597#       发表于 2018-10-8 23:23
 
 
-
-
 现在四星各1.2%，跟旁边弗兰1.5%相比好像还挺划算的啊
-
-
-
-
-
 
 
 -----
@@ -1625,14 +1017,7 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10598#       发表于 2018-10-8 23:30
 
 
-
-
 突然拿出食物，刚才一刹那好像看到白...金星女神的布偶动了一下<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1641,17 +1026,11 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 ##### 10599#       发表于 2018-10-8 23:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41200145&amp;ptid=1712412" target="_blank">copysword 发表于 2018-10-8 17:59</a>
 以前每次翻译出来总是一堆人不满意B站要特地跟wiki不一样，现在换成个直接抄的懒鬼舒服了，直接抄wiki，你T ...</blockquote>
 这是在说啥
 
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -1662,12 +1041,10 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dante888  
 ##### 10601#       发表于 2018-10-8 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41203296&amp;ptid=1712412" target="_blank">copysword 发表于 2018-10-8 23:52</a>
@@ -1679,16 +1056,10 @@ p1还差5000多螺丝，石不过三来看dalao们表演了<img src="https://sta
 看看那几个高声望的嘴脸你也就明白了，我怀疑有些人就是mooncell的水军<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sosgame67  
 ##### 10602#       发表于 2018-10-8 23:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41203324&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-8 23:55</a>
@@ -1700,27 +1071,15 @@ http://bbs.nga.cn/read.php?tid=15286819&amp;_fp=2
 nga废狗版拿钱干活不已经是公认了么<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 10603#       发表于 2018-10-9 00:00
 
 
-
-
 剑肯娘的宝具卡语音ライトニング・レディ！里的レディ是ready还是lady？
 
 按意思和语调我觉得ready更合适，但是国服的翻译是淑女（lady）
-
-
-
-
-
 
 
 -----
@@ -1729,21 +1088,13 @@ nga废狗版拿钱干活不已经是公认了么<img src="https://static.saraba1
 ##### 10604#       发表于 2018-10-9 00:09
 
 
-
-
 2期一共4单 1大公歪了 2水泥 2尼托 1钉宫 1肯娘 2枪奶光 1骑黑呆
-
-
-
-
-
 
 
 -----
 
 ####  deadog  
 ##### 10605#       发表于 2018-10-9 00:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41203364&amp;ptid=1712412" target="_blank">bird-lay 发表于 2018-10-09 00:00:14</a>
@@ -1754,16 +1105,10 @@ nga废狗版拿钱干活不已经是公认了么<img src="https://static.saraba1
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  GALLADE  
 ##### 10606#       发表于 2018-10-9 00:14
-
 
 
  本帖最后由 GALLADE 于 2018-10-9 00:16 编辑 
@@ -1773,25 +1118,13 @@ nga废狗版拿钱干活不已经是公认了么<img src="https://static.saraba1
 FGO这个项目，估计干活的人年薪没有百万也有几十万了，然而工作的质量连月薪3000都不值
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 10607#       发表于 2018-10-9 00:27
 
 
-
-
 歪出拉二和船长了，资源极其有限，应该先养拉二还是船长？骑阶的50自充我现在靠个5宝的阿福在凑活着用，再不行还有3宝的SSY，骑单体除了R金时就只有个牛肉丸了。
-
-
-
-
-
 
 
 -----
@@ -1800,14 +1133,7 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10608#       发表于 2018-10-9 00:30
 
 
-
-
 整个泳装白嫖了弓呆和水泥，满足了。
-
-
-
-
-
 
 
 -----
@@ -1816,15 +1142,9 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10609#       发表于 2018-10-9 00:31
 
 
-
 <blockquote>Fukai_Rei 发表于 2018-10-9 00:27
 歪出拉二和船长了，资源极其有限，应该先养拉二还是船长？骑阶的50自充我现在靠个5宝的阿福在凑活着用，再 ...</blockquote>
 都练，两个不重叠的。
-
-
-
-
-
 
 
 -----
@@ -1835,21 +1155,13 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  FrozenA  
 ##### 10611#       发表于 2018-10-9 00:52
 
 
-
-
 一单一个水黑呆，还行
-
-
-
-
-
 
 
 -----
@@ -1858,16 +1170,10 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10612#       发表于 2018-10-9 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41203538&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-9 00:27</a>
 
 歪出拉二和船长了，资源极其有限，应该先养拉二还是船长？骑阶的50自充我现在靠个5宝的阿福在凑活着用，再 ...</blockquote>
 拉二优先度应该高那么一点吧，无限池再把船长养起来
-
-
-
-
-
 
 
 -----
@@ -1876,14 +1182,7 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10613#       发表于 2018-10-9 00:58
 
 
-
-
 本来觉得弓海是原本术阶的全面弱化，突然发现术阶不太好打的剑骑狗粮本正好可以用弓阶来打，也算是强行找个位置上岗吧
-
-
-
-
-
 
 
 -----
@@ -1892,17 +1191,10 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10614#       发表于 2018-10-9 04:33
 
 
-
-
 淘宝上那些梅林＋五宝活动五星的都是科技吧？
 会封号吗
 
 —— 来自 Essential Products PH-1, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2-play
-
-
-
-
-
 
 
 -----
@@ -1911,21 +1203,13 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10615#       发表于 2018-10-9 06:37
 
 
-
-
 不想搬绿方块了，手里还不到1w库存，感觉够用一阵了
-
-
-
-
-
 
 
 -----
 
 ####  紧那罗  
 ##### 10616#       发表于 2018-10-9 06:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41204572&amp;ptid=1712412" target="_blank">yunche 发表于 2018-10-9 04:33</a>
@@ -1936,25 +1220,13 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 以后不知道 但目前来说...不会
 
 
-
-
-
-
-
 -----
 
 ####  isaaczheng  
 ##### 10617#       发表于 2018-10-9 06:59
 
 
-
-
 前期25符想抽礼装，结果礼装只有两个3星的，倒是水泥二宝……这次20符继续抽礼装，于是又出了个海伦娜……满破之后在群里晒卡都有种自己在发小黄 图的感觉，实在是太社情了
-
-
-
-
-
 
 
 -----
@@ -1963,14 +1235,7 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10618#       发表于 2018-10-9 07:01
 
 
-
-
 目标女仆。2单下去，枪奶光满宝，海妈2宝，宝石翁1章。在想这么欧m是不是不氪了。可还是想要女仆，于是又氪了1单，果然沉了。不甘心又氪了2单，最后一次十连终于出货了。欧在其他地方也是挺苦的
-
-
-
-
-
 
 
 -----
@@ -1979,15 +1244,8 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10619#       发表于 2018-10-9 07:16
 
 
-
-
 女仆1宝跑路 炼铜2个 巨大的奶子女人没有
 就这样吧<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -1996,16 +1254,9 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10620#       发表于 2018-10-9 07:51
 
 
-
-
 半夜莫名其妙开始氪金，之前计划是没必要抽这个池子，但果然抽卡是有瘾的。2单半五星一个骑呆一个剑呆，四星就一个肯娘，概率上来说还可以。。
 
 可怎么就还是觉得不够爽还想氪呢，还好昨天氪完就睡了，早上起来整个人：？？？我干嘛要氪金<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2014,15 +1265,9 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10621#       发表于 2018-10-9 07:53
 
 
-
  本帖最后由 Channel 于 2018-10-9 08:20 编辑 
 
 安定的礼装GO<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">两单无奶光
-
-
-
-
-
 
 
 -----
@@ -2031,15 +1276,8 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10622#       发表于 2018-10-9 08:39
 
 
-
-
 赶紧把商店和二期的狗粮都换了，缺口还差的多，现在又住回狗粮本了，然后给女仆升级发现没徽章，又把商店的徽章换了
 然后现在发现没有突破的qp，又在刷qp本，在活动本和狗粮qp间迷失自我，可太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2048,15 +1286,8 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10623#       发表于 2018-10-9 08:50
 
 
-
-
 36张呼符，礼装各一，妹抖枪妈各一
 溜了溜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2065,22 +1296,15 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10624#       发表于 2018-10-9 08:51
 
 
-
  本帖最后由 gg326 于 2018-10-9 08:52 编辑 
 
 攒的300石大沉船，连sr都没出一个，为了攒多点石头我还用一星期时间打光了全部强化本，这就是想弃坑的感觉吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 10625#       发表于 2018-10-9 08:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41198581&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-8 15:37</a>
@@ -2092,16 +1316,10 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 不会吧》《  我一直以为大家的棋子都是尼禄祭刷出来的呀
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10626#       发表于 2018-10-9 08:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201653&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-8 20:45</a>
@@ -2110,24 +1328,13 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 对俄 我一算20AP 刷是更合算
 
 
-
-
-
-
-
 -----
 
 ####  星星大魔王  
 ##### 10627#       发表于 2018-10-9 08:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">这破游戏四星的出率绝对没有五星高，算了算目前的阵容，五星全女性就差三个，里面还有一个四宝，三个两宝，六个男的除了两个拐都是歪出来的，然后四星居然总数量只有五星的三分二。
-
-
-
-
-
 
 
 -----
@@ -2136,16 +1343,10 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10628#       发表于 2018-10-9 08:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201669&amp;ptid=1712412" target="_blank">gearbox 发表于 2018-10-8 20:47</a>
 
 可以，请放心大胆的用</blockquote>
 主要本着不浪费的原则
-
-
-
-
-
 
 
 -----
@@ -2154,16 +1355,10 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10629#       发表于 2018-10-9 08:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41201869&amp;ptid=1712412" target="_blank">Blackson 发表于 2018-10-8 21:09</a>
 
 你是指哪方面？</blockquote>
 刷无限本的效率 方面 
-
-
-
-
-
 
 
 -----
@@ -2172,16 +1367,10 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10630#       发表于 2018-10-9 08:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202030&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-8 21:29</a>
 
 尼禄祭是看肝和看box的，要特别追求效率的话很早就要把应对的从者练起来了。不是特别苛求效率的话自己出 ...</blockquote>
 好的 就等着尼禄祭翻身不做萌新了
-
-
-
-
-
 
 
 -----
@@ -2190,16 +1379,10 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10631#       发表于 2018-10-9 08:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202051&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-8 21:31</a>
 
 氪金只是搬商店快点，但是对刷无限池没有影响，至于刷无限池累不累，就看你打算刷多少池和多少回合刷一把 ...</blockquote>
 也就是说无限池和活动池是分开的
-
-
-
-
-
 
 
 -----
@@ -2208,23 +1391,15 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 ##### 10632#       发表于 2018-10-9 09:05
 
 
-
-
 好奇问下 抽4星比如这次的泳装奶光 要作为战力的话 1宝是不是有点不够  同样情况5星哪怕只有1宝战力应该也是超过4星1宝（通常情况）不少吧 这样一看4星的坑比5星还大那 因为通常真要拿做战力一张往往是不够的
 
 还有关于NP值 超过100%后 的伤害是如何计算的呢？  比如200% 和150%打出的伤害差多少 超过100%后 的倍率是按你NP的百分比计算的吗 
-
-
-
-
-
 
 
 -----
 
 ####  atomicink  
 ##### 10633#       发表于 2018-10-9 09:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41205778&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-9 09:05</a>
@@ -2236,16 +1411,10 @@ FGO这个项目，估计干活的人年薪没有百万也有几十万了，然�
 np小于200和100没区别
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 10634#       发表于 2018-10-9 09:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41205659&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-09 08:53:46</a>
@@ -2254,25 +1423,13 @@ np小于200和100没区别
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 10635#       发表于 2018-10-9 09:18
 
 
-
-
 最后凑出1发10连老福到手了，这下子日服的遗憾除了melt跟阿比都在国服补完了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2281,16 +1438,10 @@ np小于200和100没区别
 ##### 10636#       发表于 2018-10-9 09:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41205806&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-9 09:10</a>
 
 好像是去年尼禄祭池子有棋子吧……之后无限池要拿棋子要等到明年赝作复刻了。不过棋子这东西是肝一波池子就 ...</blockquote>
 好的 不太想换二期泳装的棋子 我算了下 要的材料还挺多的感觉不太合算
-
-
-
-
-
 
 
 -----
@@ -2299,23 +1450,16 @@ np小于200和100没区别
 ##### 10637#       发表于 2018-10-9 09:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41205718&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-9 08:59</a>
 
 也就是说无限池和活动池是分开的</blockquote>
 有无限池商店和传统的商店，你刷本也分两种材料，一种是掉商店兑换物的， 一种是掉无限池兑换物的，你抽卡抽的氪金礼装只是加成商店兑换物，无限池兑换物的礼装靠商店换和刷本掉落
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10638#       发表于 2018-10-9 09:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41205797&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-9 09:08</a>
@@ -2329,16 +1473,10 @@ np小于200和100没区别</blockquote>
  也就是199和100在伤害上也是没有区别的嘛 好吧
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 10639#       发表于 2018-10-9 09:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41205778&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-9 09:05</a>
@@ -2349,16 +1487,10 @@ np小于200和100没区别</blockquote>
 NP超过100但没到200是没区别的，到了200算OC，最多上300，OC很多都不加伤害的，具体看宝具描述
 
 
-
-
-
-
-
 -----
 
 ####  茛菪  
 ##### 10640#       发表于 2018-10-9 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41205778&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-9 09:05</a>
@@ -2371,25 +1503,13 @@ NP超过100但没到200是没区别的，到了200算OC，最多上300，OC很�
 np百分比本质上不影响伤害只影响“overcharge效果”，每个宝具说明都可以看这个效果具体是哪些。只有少部分的效果刚好是“加攻”“宝具伤害”这种增伤buff才会影响宝具伤害，不过一般来说哪怕这种的幅度变化也很小（除了阿拉什）然后overcharge是按整百算的199%=100%
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10641#       发表于 2018-10-9 09:52
 
 
-
-
 本来我单体枪是想抽布姐或者师匠的，上次抽冲莫直接歪了6宝水壶也就直接断了抽这两个的想法了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2398,23 +1518,16 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10642#       发表于 2018-10-9 09:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41205674&amp;ptid=1712412" target="_blank">星星大魔王 发表于 2018-10-9 08:55</a>
 
 这破游戏四星的出率绝对没有五星高，算了算目前的阵容，五星全女性就差三个，里面还有一个四宝，三 ...</blockquote>
 情人节抽男女性池，直接把我4星图鉴补的各自只差一个，想要纯女性的话可以抽抽看，应有尽有，就是没泳装<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 10643#       发表于 2018-10-9 09:58
-
 
 
  本帖最后由 吾乃啊噗 于 2018-10-9 10:03 编辑 
@@ -2431,25 +1544,13 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 反正量力而为，心态放平就是1宝够用2宝赚到<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10644#       发表于 2018-10-9 10:02
 
 
-
-
 20AP 狗粮QB活动快结束了 话说20AP打QB这活动性价比高吗 尼禄祭又会练一批从者 估计需要海量的QB 有没有必要在活动结束前刷一波QB 
-
-
-
-
-
 
 
 -----
@@ -2458,15 +1559,9 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10645#       发表于 2018-10-9 10:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41206244&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-9 10:02</a>
 20AP 狗粮QB活动快结束了 话说20AP打QB这活动性价比高吗 尼禄祭又会练一批从者 估计需要海量的QB 有没有必 ...</blockquote>
 无限池有qp，无限池后马上还有单qp的减半，并不用着急
-
-
-
-
-
 
 
 -----
@@ -2475,14 +1570,7 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10646#       发表于 2018-10-9 10:10
 
 
-
-
 好的明白了 感谢LS几位大佬 看来一些比较缺的棋子该搬还得搬
-
-
-
-
-
 
 
 -----
@@ -2491,15 +1579,9 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10647#       发表于 2018-10-9 10:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41206323&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-9 10:10</a>
 好的明白了 感谢LS几位大佬 看来一些比较缺的棋子该搬还得搬</blockquote>
 棋子你前几天减半直接打比活动合算其实……这次活动本来兑换就贵……你加成少的话一把也就换4棋子左右吧
-
-
-
-
-
 
 
 -----
@@ -2508,16 +1590,10 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10648#       发表于 2018-10-9 10:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41202616&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-8 22:31</a>
 
 这游戏玩下来我觉得抽卡的时候，骗自己其实奔着四星去是很危险的思想，最后发现石头花的完全不比五星少[f ...</blockquote>
 抽泳莫的体验就很好呀，1单半出了3只，没歪奇怪的五星出来
-
-
-
-
-
 
 
 -----
@@ -2526,16 +1602,9 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10649#       发表于 2018-10-9 11:23
 
 
-
-
 三单一个限定四星没出<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI MHA-AL00, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -2544,16 +1613,9 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10650#       发表于 2018-10-9 11:29
 
 
-
-
 五宝泳莫我觉得非常值啊，很多周常和低难度本都可以无脑连冲解决了
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -2562,14 +1624,7 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10651#       发表于 2018-10-9 11:31
 
 
-
-
 狂信长疯狂猝死啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">技能组明明不错的。水泥倒是莫名其妙三宝了
-
-
-
-
-
 
 
 -----
@@ -2578,16 +1633,9 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10652#       发表于 2018-10-9 11:51
 
 
-
-
 看到隔壁说水黑呆对黑弓的语音<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
 
 42选1决定是黑弓了，之前还纠结是黑枪还是黑弓
-
-
-
-
-
 
 
 -----
@@ -2596,18 +1644,11 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10653#       发表于 2018-10-9 13:03
 
 
-
-
 情人節池子其實挺好的，
 
 能出劇情限定的那堆大爺四星
 
 我今年的情人節一口氣補了三個歐証
-
-
-
-
-
 
 
 -----
@@ -2618,12 +1659,10 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hylq2000  
 ##### 10655#       发表于 2018-10-9 13:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41208139&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-09 13:20:04</a>
@@ -2632,16 +1671,10 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10656#       发表于 2018-10-9 13:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41208139&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-09 13:20:04</a>
@@ -2650,16 +1683,10 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dawning  
 ##### 10657#       发表于 2018-10-9 13:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41208139&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-9 13:20</a>
@@ -2670,25 +1697,13 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ...........<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 10658#       发表于 2018-10-9 13:51
 
 
-
-
 翻译问题已经整体甩锅给日方了，反正日方又不会说话，lga小将真的好糊弄
-
-
-
-
-
 
 
 -----
@@ -2699,21 +1714,13 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Von  
 ##### 10660#       发表于 2018-10-9 13:58
 
 
-
-
 我就是反例。。6单  水泥池子 吧肯娘抽满宝了。。。信长1宝  尼托2宝。。。。水泥1宝。。。仓管和 呆毛各一个5星礼装到是抽满了。。日。。。
-
-
-
-
-
 
 
 -----
@@ -2722,23 +1729,16 @@ np百分比本质上不影响伤害只影响“overcharge效果”，每个宝�
 ##### 10661#       发表于 2018-10-9 14:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41208139&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-9 13:20</a>
 我四单一个up四星都没有
 还好出了两个水泥两个骑呆作为安慰奖，还附送了一个南丁</blockquote>
 最近两个冲着四星去的池子，r莫四歪三，这个倒好，四个全歪，我都不知道说什么了
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 10662#       发表于 2018-10-9 14:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41203324&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-8 23:55</a>
@@ -2750,13 +1750,7 @@ http://bbs.nga.cn/read.php?tid=15286819&amp;_fp=2
 [https://fgo.wiki/index.php?title ... 7%E6%8B%89%E8%B4%A1](https://fgo.wiki/index.php?title=%E9%98%BF%E5%B0%94%E6%89%98%E8%8E%89%E9%9B%85%C2%B7%E6%BD%98%E5%BE%B7%E6%8B%89%E8%B4%A1)(Alter)(Rider)&amp;action=history
 
 
-
 我没看出来mooncell改过这段文字啊
-
-
-
-
-
 
 
 -----
@@ -2765,15 +1759,9 @@ http://bbs.nga.cn/read.php?tid=15286819&amp;_fp=2
 ##### 10663#       发表于 2018-10-9 14:25
 
 
-
 <blockquote>marxel 发表于 2018-10-9 14:07
 https://fgo.wiki/index.php?title=%E9%98%BF%E5%B0%94%E6%89%98%E8%8E%89%E9%9B%85%C2%B7%E6%BD%98%E5%B ...</blockquote>
 mooncell现在是照搬阿b的翻译，和fgowiki不一样
-
-
-
-
-
 
 
 -----
@@ -2782,14 +1770,7 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 ##### 10664#       发表于 2018-10-9 14:42
 
 
-
-
 最近有点邪门，一开始抽尼禄混池3个十连就出了水尼2宝+c狐+杀尼托，然后转头抽福尔摩斯开始3单啥都没出，最后一个10连双老福才罢休<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2798,16 +1779,9 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 ##### 10665#       发表于 2018-10-9 15:19
 
 
-
-
 连续巨大成功，去抽了4个10连，现在也有奶光图鉴了，不过前面都是1秒10连有点气人
 
 只差梅洁德了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2816,14 +1790,7 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 ##### 10666#       发表于 2018-10-9 15:40
 
 
-
-
 手里4个泳装四星除了骑凛都满级了，我连之前活动囤的银狗粮都吃了不少<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -2832,13 +1799,7 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 ##### 10667#       发表于 2018-10-9 15:40
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">是因为剧情变成布欧了所以目前麒麟不能上场？
-
-
-
-
-
 
 
 -----
@@ -2847,21 +1808,13 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 ##### 10668#       发表于 2018-10-9 15:44
 
 
-
-
 想想今年泳装明年还得接着用 用的时候...弓贞德、小茨木，泳B，又得抽新的...钱就这么哗哗地...变成了三星英灵和永远不会用的礼装<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 10669#       发表于 2018-10-9 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41209725&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 15:40</a>
@@ -2872,16 +1825,10 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 限时从者是不能挂助战和当队长的，打的时候不要放首位
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 10670#       发表于 2018-10-9 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41209929&amp;ptid=1712412" target="_blank">angelooo 发表于 2018-10-9 16:02</a>
@@ -2892,16 +1839,10 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来是不能当队长，怪不得说怎么黑了但是又能放啦啦队
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10671#       发表于 2018-10-9 16:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41209985&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-09 16:06:45</a>
@@ -2910,17 +1851,10 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 10672#       发表于 2018-10-9 18:19
-
-
 
 
 试了一下用术尼托打车轮战，尼托有高自充和宝具降暴，打车轮战挺合适的
@@ -2930,16 +1864,10 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 以及尼托的宝具即死了弓双子，不知道是几个ssr<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  evanchenyu  
 ##### 10673#       发表于 2018-10-9 18:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41211390&amp;ptid=1712412" target="_blank">bird-lay 发表于 2018-10-9 18:19</a>
@@ -2949,16 +1877,10 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 自充起爆+高即死，还想要高伤害就过分了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10674#       发表于 2018-10-9 18:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41211511&amp;ptid=1712412" target="_blank">evanchenyu 发表于 2018-10-9 18:33</a>
@@ -2967,25 +1889,13 @@ mooncell现在是照搬阿b的翻译，和fgowiki不一样
 可以手动高伤害（满宝）呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 10675#       发表于 2018-10-9 18:53
 
 
-
-
 B站的FGO大会员礼包明天就刷新了，新的希望！
-
-
-
-
-
 
 
 -----
@@ -2994,16 +1904,10 @@ B站的FGO大会员礼包明天就刷新了，新的希望！
 ##### 10676#       发表于 2018-10-9 19:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41211666&amp;ptid=1712412" target="_blank">莉莉橙 发表于 2018-10-9 18:53</a>
 
 B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">已经刷新了
-
-
-
-
-
 
 
 -----
@@ -3012,16 +1916,10 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10677#       发表于 2018-10-9 19:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41211953&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-9 19:26</a>
 
 已经刷新了</blockquote>
 亏了，早知该换，那就可以凑一个十连了
-
-
-
-
-
 
 
 -----
@@ -3030,14 +1928,7 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10678#       发表于 2018-10-9 20:01
 
 
-
-
 金卡枪翻过来是芬恩..<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">算了都是白嫖...
-
-
-
-
-
 
 
 -----
@@ -3046,13 +1937,7 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10679#       发表于 2018-10-9 20:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">我的手中又抓住了希望.jpg
-
-
-
-
-
 
 
 -----
@@ -3061,16 +1946,10 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10680#       发表于 2018-10-9 20:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41211953&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-9 19:26</a>
 
 已经刷新了</blockquote>
 大会员礼包送什么？
-
-
-
-
-
 
 
 -----
@@ -3079,16 +1958,10 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10681#       发表于 2018-10-9 20:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212357&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 20:12</a>
 
 大会员礼包送什么？</blockquote>
 2符15石
-
-
-
-
-
 
 
 -----
@@ -3099,12 +1972,10 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hylq2100  
 ##### 10683#       发表于 2018-10-9 20:30
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">更新助战啦
@@ -3119,37 +1990,19 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 2018-10-9 20:29 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 10684#       发表于 2018-10-9 20:45
 
 
-
-
 工作日都刷的这么快...
-
-
-
-
-
 
 
 -----
 
 ####  Blackson  
 ##### 10685#       发表于 2018-10-9 20:48
-
-
 
 
 服了，给大号和小号抽福袋
@@ -3163,24 +2016,13 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 莫名感觉自己的大号被献祭了
 
 
-
-
-
-
-
 -----
 
 ####  白昼梦  
 ##### 10686#       发表于 2018-10-9 21:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">福袋就c狐二宝了，内心毫无波动
-
-
-
-
-
 
 
 -----
@@ -3189,14 +2031,7 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10687#       发表于 2018-10-9 21:09
 
 
-
-
 福袋杀生院...在我除了骑光炮外最高四星急需用人的情况下派了个尼姑来度化我...
-
-
-
-
-
 
 
 -----
@@ -3205,16 +2040,10 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10688#       发表于 2018-10-9 21:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212812&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-9 21:09</a>
 
 福袋杀生院...在我除了骑光炮外最高四星急需用人的情况下派了个尼姑来度化我... ...</blockquote>
 1宝伤害真的有点低<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3223,14 +2052,7 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10689#       发表于 2018-10-9 21:13
 
 
-
-
 用大会员送的15个石头凑了个十连，枪奶光+1……，顺便new了四星三星活动礼装，行吧，海伦娜过几天单UP的时候凑一下好了。
-
-
-
-
-
 
 
 -----
@@ -3239,16 +2061,10 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10690#       发表于 2018-10-9 21:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212411&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-9 20:18</a>
 
 2符15石</blockquote>
 谢谢，那现在买大会员的话有吗？是直接在b站网页上领了以后游戏里就有了还是要激活码？
-
-
-
-
-
 
 
 -----
@@ -3257,14 +2073,7 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10691#       发表于 2018-10-9 21:14
 
 
-
-
 二期池砸了3单下去扶起来满宝奶光和满破5星活动礼装，其他什么都没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3273,23 +2082,16 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ##### 10692#       发表于 2018-10-9 21:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41211953&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-9 19:26</a>
 
 已经刷新了</blockquote>
 全投入……五星礼装满破了真开心啊哈哈哈哈……
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 10693#       发表于 2018-10-9 21:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212840&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 21:13</a>
@@ -3301,25 +2103,13 @@ B站的FGO大会员礼包明天就刷新了，新的希望！</blockquote>
 ios的话是专门有网页输入兑换码和用户ID，兑换之后在游戏里领
 
 
-
-
-
-
-
 -----
 
 ####  SAGA0Arcueid  
 ##### 10694#       发表于 2018-10-9 21:18
 
 
-
-
 抽到了狼王……然后查一下这次剧情里居然连加成都不算…………
-
-
-
-
-
 
 
 -----
@@ -3328,23 +2118,16 @@ ios的话是专门有网页输入兑换码和用户ID，兑换之后在游戏里
 ##### 10695#       发表于 2018-10-9 21:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212837&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-9 21:12</a>
 
 1宝伤害真的有点低</blockquote>
 可不，能苟是能苟，但伤害不足
 
 
-
-
-
-
-
 -----
 
 ####  海鸟封  
 ##### 10696#       发表于 2018-10-9 21:19
-
 
 
  本帖最后由 海鸟封 于 2018-10-9 21:20 编辑 
@@ -3362,21 +2145,10 @@ ios的话是专门有网页输入兑换码和用户ID，兑换之后在游戏里
 2018-10-9 21:19 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10697#       发表于 2018-10-9 21:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212840&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 21:13</a>
@@ -3397,25 +2169,13 @@ LV6只需要27一年
 同时还可以领其他游戏的比如舰B，三蹦子等
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 10698#       发表于 2018-10-9 21:30
 
 
-
-
 谢谢楼上两位。现在用的是石头号，进b站账号看是被封的，准备给自己的b站账号买大会员，然后领兑换码到石头号上去
-
-
-
-
-
 
 
 -----
@@ -3424,14 +2184,7 @@ LV6只需要27一年
 ##### 10699#       发表于 2018-10-9 21:30
 
 
-
-
 萨米尔大佬是不是全员五宝，他到底有多少狗粮啊
-
-
-
-
-
 
 
 -----
@@ -3440,16 +2193,9 @@ LV6只需要27一年
 ##### 10700#       发表于 2018-10-9 21:32
 
 
-
-
 抽女仆歪了护士长
 
 我想要女仆啊，可我真没钱了（满地打滚）
-
-
-
-
-
 
 
 -----
@@ -3458,14 +2204,7 @@ LV6只需要27一年
 ##### 10701#       发表于 2018-10-9 21:35
 
 
-
-
 大黄鱼的fgo送啥？只送一次？
-
-
-
-
-
 
 
 -----
@@ -3474,16 +2213,10 @@ LV6只需要27一年
 ##### 10702#       发表于 2018-10-9 21:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212997&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 21:30</a>
 
 谢谢楼上两位。现在用的是石头号，进b站账号看是被封的，准备给自己的b站账号买大会员，然后领兑换码到石头 ...</blockquote>
 提醒下，FGO不知道是不是兑换码绑定帐号的，别一同操作白忙
-
-
-
-
-
 
 
 -----
@@ -3492,15 +2225,9 @@ LV6只需要27一年
 ##### 10703#       发表于 2018-10-9 21:37
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212997&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 21:30</a>
 谢谢楼上两位。现在用的是石头号，进b站账号看是被封的，准备给自己的b站账号买大会员，然后领兑换码到石头 ...</blockquote>
 BGO礼包绑定账号的
-
-
-
-
-
 
 
 -----
@@ -3509,16 +2236,10 @@ BGO礼包绑定账号的
 ##### 10704#       发表于 2018-10-9 21:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213053&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-9 21:37</a>
 
 BGO礼包绑定账号的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">那被封的账号影响b站观看吗？
-
-
-
-
-
 
 
 -----
@@ -3527,16 +2248,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10705#       发表于 2018-10-9 21:40
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213001&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-9 21:30</a>
 
 萨米尔大佬是不是全员五宝，他到底有多少狗粮啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">好像是五星都五宝，而且有很多还是310
-
-
-
-
-
 
 
 -----
@@ -3545,14 +2260,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10706#       发表于 2018-10-9 21:43
 
 
-
-
 越抽越非，抽了三单，最后一个十连骑呆二宝才出来，总共1骑呆2赖光1海妈<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3561,16 +2269,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10707#       发表于 2018-10-9 21:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213068&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 21:40</a>
 
 那被封的账号影响b站观看吗？</blockquote>
 都永久封了...
-
-
-
-
-
 
 
 -----
@@ -3579,16 +2281,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10708#       发表于 2018-10-9 21:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41212500&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-9 20:30</a>
 
 更新助战啦</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">狂阶CEO在二期活动里不是反派，所以不再享受+1待遇了
-
-
-
-
-
 
 
 -----
@@ -3597,14 +2293,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10709#       发表于 2018-10-9 21:53
 
 
-
-
 剧情里的猴子三天建城是fate之前剧情的梗，还是历史或野史上的什么故事？
-
-
-
-
-
 
 
 -----
@@ -3613,16 +2302,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10710#       发表于 2018-10-9 21:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213132&amp;ptid=1712412" target="_blank">我爱喵喵 发表于 2018-10-9 21:51</a>
 
 狂阶CEO在二期活动里不是反派，所以不再享受+1待遇了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">这个你要去问阿咸
-
-
-
-
-
 
 
 -----
@@ -3631,16 +2314,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10711#       发表于 2018-10-9 22:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213147&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-9 21:53</a>
 
 剧情里的猴子三天建城是fate之前剧情的梗，还是历史或野史上的什么故事？</blockquote>
 是不是秀吉的一夜城……
-
-
-
-
-
 
 
 -----
@@ -3649,16 +2326,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10712#       发表于 2018-10-9 22:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213147&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-9 21:53</a>
 
 剧情里的猴子三天建城是fate之前剧情的梗，还是历史或野史上的什么故事？</blockquote>
 史实，墨俣城
-
-
-
-
-
 
 
 -----
@@ -3667,23 +2338,16 @@ BGO礼包绑定账号的</blockquote>
 ##### 10713#       发表于 2018-10-9 22:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213226&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-9 22:02</a>
 
 是不是秀吉的一夜城……</blockquote>
 哦 是的，thx，应该就是指这个。
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10714#       发表于 2018-10-9 22:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213068&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 21:40</a>
@@ -3702,11 +2366,6 @@ BGO礼包绑定账号的</blockquote>
 我就没继续了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  copysword  
@@ -3715,20 +2374,13 @@ BGO礼包绑定账号的</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  白昼梦  
 ##### 10716#       发表于 2018-10-9 22:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">发现我杀阶就一个武则天，我是不会去抽唯一杰克的
-
-
-
-
-
 
 
 -----
@@ -3737,16 +2389,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10717#       发表于 2018-10-9 22:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213074&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 21:40</a>
 
 好像是五星都五宝，而且有很多还是310</blockquote>
 他这个狗粮需求度很大，再怎么刷也会腻的吧……真强
-
-
-
-
-
 
 
 -----
@@ -3755,15 +2401,9 @@ BGO礼包绑定账号的</blockquote>
 ##### 10718#       发表于 2018-10-9 22:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213584&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-9 22:38</a>
 他这个狗粮需求度很大，再怎么刷也会腻的吧……真强</blockquote>
 无限池解百忧
-
-
-
-
-
 
 
 -----
@@ -3772,14 +2412,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10719#       发表于 2018-10-9 22:47
 
 
-
-
 大会员礼包刷新了，里边的石头没有灵魂<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3788,16 +2421,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10720#       发表于 2018-10-9 23:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213442&amp;ptid=1712412" target="_blank">白昼梦 发表于 2018-10-9 22:25</a>
 
 发现我杀阶就一个武则天，我是不会去抽唯一杰克的</blockquote>
 1100W爷爷复刻，可以抽一下<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3806,16 +2433,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10721#       发表于 2018-10-9 23:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213623&amp;ptid=1712412" target="_blank">sandro 发表于 2018-10-9 22:43</a>
 
 无限池解百忧</blockquote>
 国服上一个无限池是圣诞吧……肯定不够吃
-
-
-
-
-
 
 
 -----
@@ -3824,15 +2445,9 @@ BGO礼包绑定账号的</blockquote>
 ##### 10722#       发表于 2018-10-9 23:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213068&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-9 21:40</a>
 那被封的账号影响b站观看吗？</blockquote>
 我也是被永久封，莫名其妙的，但是也都可以看
-
-
-
-
-
 
 
 -----
@@ -3841,13 +2456,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10723#       发表于 2018-10-9 23:10
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">好吧，这个石头号是0级，明天大会员要98
-
-
-
-
-
 
 
 -----
@@ -3856,15 +2465,9 @@ BGO礼包绑定账号的</blockquote>
 ##### 10724#       发表于 2018-10-9 23:18
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">一口气把仓库里积攒半年多的全部活动狗粮商店狗粮全部吃光的感觉好爽，这一波大概吃下去1500+
 
 明天把二期的狗粮也换了一起吃了<img src="https://static.saraba1st.com/image/smiley/carton2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3873,22 +2476,15 @@ BGO礼包绑定账号的</blockquote>
 ##### 10725#       发表于 2018-10-9 23:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213824&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-9 23:04</a>
 国服上一个无限池是圣诞吧……肯定不够吃</blockquote>
 一次无限池刷得多可以把你手头全部卡都喂满啊，然后上次到现在也就二十来张新卡，三个满破宝石翁的狂每天点几下，很快就满了
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 10726#       发表于 2018-10-9 23:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41213824&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-9 23:04</a>
@@ -3898,25 +2494,13 @@ BGO礼包绑定账号的</blockquote>
 不过我每个月金方块没全换，否则还能多用一两亿
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 10727#       发表于 2018-10-9 23:45
 
 
-
-
 大龙娘满宝了，就等强化本强化一下女性特攻倍率了。没有杰克的我还是得靠大龙娘撑场子啊
-
-
-
-
-
 
 
 -----
@@ -3925,14 +2509,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10728#       发表于 2018-10-9 23:59
 
 
-
-
 不求满宝梅杰德大人，只想开个图鉴<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3941,14 +2518,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10729#       发表于 2018-10-10 00:06
 
 
-
-
 大概5发10连的总数，我终于有飞哥了，还有3宝小恩<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -3957,16 +2527,9 @@ BGO礼包绑定账号的</blockquote>
 ##### 10730#       发表于 2018-10-10 00:21
 
 
-
-
 彩圈！金术！1001<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 四发十连才出了第二个尼托，期间new了1001，B叔3宝了，溜了溜了
-
-
-
-
-
 
 
 -----
@@ -3975,14 +2538,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10731#       发表于 2018-10-10 00:24
 
 
-
-
 整个游戏里身形最美好的水尼托沉了两百石，出了第三宝水尼禄抢以后艾蕾和北斋的概率<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
-
-
-
-
-
 
 
 -----
@@ -3991,14 +2547,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10732#       发表于 2018-10-10 00:25
 
 
-
-
 又到大量海豹上岸的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4007,14 +2556,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10733#       发表于 2018-10-10 00:29
 
 
-
-
 卧槽，第一发呼符就抽到尼托了，可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4023,16 +2565,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10734#       发表于 2018-10-10 00:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41214492&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-10 00:29</a>
 
 卧槽，第一发呼符就抽到尼托了，可以啊</blockquote>
 结果你亲自上岸了呀臭海豹<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4041,14 +2577,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10735#       发表于 2018-10-10 00:31
 
 
-
-
 3单1宝尼托还是绝杀，唯一好消息是飞哥图鉴喜+1以及出了一大堆礼装
-
-
-
-
-
 
 
 -----
@@ -4057,16 +2586,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10736#       发表于 2018-10-10 00:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41214501&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-10 00:30</a>
 
 结果你亲自上岸了呀臭海豹</blockquote>
 海个屁，除了一开始呼符外其他22发护符+3次10连全是保底<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4075,16 +2598,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10737#       发表于 2018-10-10 00:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41214536&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-10 00:34</a>
 
 海个屁，除了一开始呼符外其他22发护符+3次10连全是保底</blockquote>
 4发十连4呼符NEW飞哥加三宝小恩的我想拿这些跟你换梅杰德呀！
-
-
-
-
-
 
 
 -----
@@ -4093,23 +2610,16 @@ BGO礼包绑定账号的</blockquote>
 ##### 10738#       发表于 2018-10-10 00:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41214545&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-10 00:36</a>
 
 4发十连4呼符NEW飞哥加三宝小恩的我想拿这些跟你换梅杰德呀！</blockquote>
 卧槽大哥你比我多一发10连就出1个4星+5星说我海豹？
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10739#       发表于 2018-10-10 00:43
-
 
 
  本帖最后由 deadog 于 2018-10-10 00:44 编辑 
@@ -4119,25 +2629,13 @@ BGO礼包绑定账号的</blockquote>
 3宝小恩有什么好开心的，浪费人品啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 10740#       发表于 2018-10-10 00:44
 
 
-
-
 活动礼装塞满格子了，于是开始搓丸子……你妹的倒是给我一个大浪费啊，3倍不是还没结束吗喂！
-
-
-
-
-
 
 
 -----
@@ -4146,14 +2644,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10741#       发表于 2018-10-10 00:45
 
 
-
-
 第一单下去真没有，第二单才两个尼托、跑了跑了，真的伤<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4162,16 +2653,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10742#       发表于 2018-10-10 00:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41214588&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-10 00:43</a>
 
 3宝小恩有什么好开心的，浪费人品啊</blockquote>
 但最起码是5星啊<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4180,16 +2665,10 @@ BGO礼包绑定账号的</blockquote>
 ##### 10743#       发表于 2018-10-10 00:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41214599&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-10 00:46</a>
 
 但最起码是5星啊</blockquote>
 只能安慰自己离潜在的盘子近了一步吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4198,16 +2677,9 @@ BGO礼包绑定账号的</blockquote>
 ##### 10744#       发表于 2018-10-10 00:56
 
 
-
-
 妈的为了补2个尼托用了6单，歪了3个盘子
 
 信长1宝放弃治疗不补了
-
-
-
-
-
 
 
 -----
@@ -4216,14 +2688,7 @@ BGO礼包绑定账号的</blockquote>
 ##### 10745#       发表于 2018-10-10 00:59
 
 
-
-
 都是神壕，萌新瑟瑟发抖<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4234,23 +2699,15 @@ BGO礼包绑定账号的</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  slmdwl  
 ##### 10747#       发表于 2018-10-10 01:18
 
 
-
-
 花了3单出水泥，用了下好友的水泥顿时就治愈了礼装地狱造成的伤害。<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI COL-AL10, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
@@ -4259,24 +2716,15 @@ BGO礼包绑定账号的</blockquote>
 ##### 10748#       发表于 2018-10-10 01:36
 
 
-
-
 居然看到了满宝水无毛而小恩都没满破的天选之人，我怎么就抽成了礼装go<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  hsheep  
 ##### 10749#       发表于 2018-10-10 03:19
-
-
 
 
 清了3小时free凑出了30石总算出了水尼托，大概服务器被我的真诚所打动又给了一张水尼禄，4宝了。
@@ -4286,25 +2734,13 @@ BGO礼包绑定账号的</blockquote>
 md我快猝死了，睡觉睡觉。
 
 
-
-
-
-
-
 -----
 
 ####  中年大叔  
 ##### 10750#       发表于 2018-10-10 06:14
 
 
-
-
 存了800石 全部抽完 泳装全齐 但是一下子好空虚啊 商店也懒得搬了 拿个活动从者就行了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4313,16 +2749,9 @@ md我快猝死了，睡觉睡觉。
 ##### 10751#       发表于 2018-10-10 07:13
 
 
-
-
 赶在大浪费之前把所有存货、丸子都喂了 彻底弹尽粮绝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 尼禄后我也是全满破444的萌新了
-
-
-
-
-
 
 
 -----
@@ -4331,14 +2760,7 @@ md我快猝死了，睡觉睡觉。
 ##### 10752#       发表于 2018-10-10 08:26
 
 
-
-
 除了杀阶都有泳装美少女挂，挂个酒吞，穿的和泳装也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4347,15 +2769,9 @@ md我快猝死了，睡觉睡觉。
 ##### 10753#       发表于 2018-10-10 09:33
 
 
-
 <blockquote>吾乃啊噗 发表于 2018-10-10 08:26
 除了杀阶都有泳装美少女挂，挂个酒吞，穿的和泳装也差不多了</blockquote>
 你的师匠呢
-
-
-
-
-
 
 
 -----
@@ -4364,14 +2780,7 @@ md我快猝死了，睡觉睡觉。
 ##### 10754#       发表于 2018-10-10 09:40
 
 
-
-
 大会员的石头又可以领了，大家记得领上希望
-
-
-
-
-
 
 
 -----
@@ -4380,21 +2789,13 @@ md我快猝死了，睡觉睡觉。
 ##### 10755#       发表于 2018-10-10 09:52
 
 
-
-
 金骑！翻过来，拉二....
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 10756#       发表于 2018-10-10 10:34
-
 
 
 <blockquote>dante888 发表于 2018-10-10 09:33
@@ -4405,25 +2806,13 @@ md我快猝死了，睡觉睡觉。
 審題要嚴謹
 
 
-
-
-
-
-
 -----
 
 ####  fshzx  
 ##### 10757#       发表于 2018-10-10 10:35
 
 
-
-
 憋了十天终于抽福袋，黑贞new，问题我有3宝黑狗，一宝的黑贞还真不知道怎么用。
-
-
-
-
-
 
 
 -----
@@ -4432,15 +2821,9 @@ md我快猝死了，睡觉睡觉。
 ##### 10758#       发表于 2018-10-10 10:38
 
 
-
 <blockquote>fshzx 发表于 2018-10-10 10:35
 憋了十天终于抽福袋，黑贞new，问题我有3宝黑狗，一宝的黑贞还真不知道怎么用。 ...</blockquote>
 龍枴
-
-
-
-
-
 
 
 -----
@@ -4449,15 +2832,9 @@ md我快猝死了，睡觉睡觉。
 ##### 10759#       发表于 2018-10-10 11:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41216675&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-10 09:33</a>
 你的师匠呢</blockquote>
 说什么呢，那是穿泳装的bba<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4466,22 +2843,13 @@ md我快猝死了，睡觉睡觉。
 ##### 10760#       发表于 2018-10-10 11:09
 
 
-
-
 黑贞打暴击还是可以看的。仇阶防御优势，mc敌人太少
-
-
-
-
-
 
 
 -----
 
 ####  cmg1987  
 ##### 10761#       发表于 2018-10-10 11:24
-
-
 
 
 最近泳装2个池子，好友里弃坑的好多……
@@ -4492,16 +2860,10 @@ md我快猝死了，睡觉睡觉。
 100 100 717 462
 
 
-
-
-
-
-
 -----
 
 ####  evanchenyu  
 ##### 10762#       发表于 2018-10-10 11:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41217350&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-10 10:34</a>
@@ -4512,26 +2874,15 @@ md我快猝死了，睡觉睡觉。
 嗦话注意点，是不是想拿弓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 10763#       发表于 2018-10-10 12:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看到有人抽卡不出最后对着手机磕头的
 
 嗦不出话，虽然他还真这样出货了
-
-
-
-
-
 
 
 -----
@@ -4540,24 +2891,16 @@ md我快猝死了，睡觉睡觉。
 ##### 10764#       发表于 2018-10-10 12:08
 
 
-
-
 噫。。。 没出水尼托 出了水尼禄 死亡冲刺刷火种升到70 副产一堆弓火种没弓阶吃。。。
 
 
 应该存起来还是就趁着三倍浪费喂其他职介？
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 10765#       发表于 2018-10-10 12:23
-
 
 
  本帖最后由 吾乃啊噗 于 2018-10-10 12:28 编辑 
@@ -4573,16 +2916,10 @@ qp富裕的时候瞎祸祸，啥都想点8和10，缺的时候连6都点不上�
 还有虽然已经晚大家很多了，但我还是要说，海伦娜这卡面实在是……教练！我要炼铜！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 10766#       发表于 2018-10-10 12:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41218508&amp;ptid=1712412" target="_blank">国王 发表于 2018-10-10 12:08</a>
@@ -4594,25 +2931,13 @@ qp富裕的时候瞎祸祸，啥都想点8和10，缺的时候连6都点不上�
 这么精致的吗……我从来都是混着吃的
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 10767#       发表于 2018-10-10 12:45
 
 
-
-
 刚才才想起来把回忆关卡的黑呆打掉，泳装活动找不到什么适合礼装的拐乱组了个弓梅梅的队交了三令咒居然也28回合蹭过去了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4621,21 +2946,13 @@ qp富裕的时候瞎祸祸，啥都想点8和10，缺的时候连6都点不上�
 ##### 10768#       发表于 2018-10-10 12:56
 
 
-
-
 你们每次怎么喂的，为什么我总是遇不见大浪费<img src="https://static.saraba1st.com/image/smiley/face2017/121.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 10769#       发表于 2018-10-10 13:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41217963&amp;ptid=1712412" target="_blank">cmg1987 发表于 2018-10-10 11:24</a>
@@ -4647,16 +2964,10 @@ qp富裕的时候瞎祸祸，啥都想点8和10，缺的时候连6都点不上�
 赌徒们看开了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  国王  
 ##### 10770#       发表于 2018-10-10 13:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41218685&amp;ptid=1712412" target="_blank">吾乃啊噗 发表于 2018-10-10 12:24</a>
@@ -4665,16 +2976,10 @@ qp富裕的时候瞎祸祸，啥都想点8和10，缺的时候连6都点不上�
 混着吃太浪费了吧。。。 同职介不是多20%左右吗
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 10771#       发表于 2018-10-10 13:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219149&amp;ptid=1712412" target="_blank">国王 发表于 2018-10-10 13:09</a>
@@ -4684,27 +2989,15 @@ qp富裕的时候瞎祸祸，啥都想点8和10，缺的时候连6都点不上�
 你这个时候混着吃还是不亏的，三十分钟之后就不是了
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 10772#       发表于 2018-10-10 13:47
 
 
-
-
 强化时连续极大成功，去充了175意思意思，结果抽到第三张是个金术，我还在想海伦娜已经满宝了但愿是个术尼托，结果转过来一看是new水泥？嗯？狂喜乱舞之下把刚刚攒在邮件里的250个all4*种火全用掉了。回头想想这期活动三单半new了水泥拉二船长，接下来养成又是要爆肝的啊。不过50自充真的是超值的
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -4713,15 +3006,9 @@ qp富裕的时候瞎祸祸，啥都想点8和10，缺的时候连6都点不上�
 ##### 10773#       发表于 2018-10-10 13:50
 
 
-
 <blockquote>Fukai_Rei 发表于 2018-10-10 13:47
 强化时连续极大成功，去充了175意思意思，结果抽到第三张是个金术，我还在想海伦娜已经满宝了但愿是个术尼 ...</blockquote>
 你赚了，阿b亏死了
-
-
-
-
-
 
 
 -----
@@ -4730,15 +3017,9 @@ qp富裕的时候瞎祸祸，啥都想点8和10，缺的时候连6都点不上�
 ##### 10774#       发表于 2018-10-10 14:11
 
 
-
  本帖最后由 atomicink 于 2018-12-6 15:07 编辑 
 
 edit
-
-
-
-
-
 
 
 -----
@@ -4747,16 +3028,9 @@ edit
 ##### 10775#       发表于 2018-10-10 14:11
 
 
-
-
 種火那20% 沒意思
 
 沒有能早點上場來得吸引
-
-
-
-
-
 
 
 -----
@@ -4765,17 +3039,10 @@ edit
 ##### 10776#       发表于 2018-10-10 14:31
 
 
-
-
 刚才经历一段相当恐怖的时光：两个两个喂，连续20几次大成功，三次极大成功，把一个号的冲田硬生生抬到90，就像活在梦中一样。
 
 
 后来一想这点数值和概率上的激励竟然会让我飘飘然，真是玩哔了狗被压抑得太久了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -4784,23 +3051,16 @@ edit
 ##### 10777#       发表于 2018-10-10 14:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219888&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-10 14:31</a>
 
 刚才经历一段相当恐怖的时光：两个两个喂，连续20几次大成功，三次极大成功，把一个号的冲田硬生生抬到90， ...</blockquote>
 还不抽个10连
 
 
-
-
-
-
-
 -----
 
 ####  darksunshine  
 ##### 10778#       发表于 2018-10-10 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219696&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-10 14:11</a>
@@ -4811,16 +3071,10 @@ edit
 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">加了 求抱大腿 ID库罗桑
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 10779#       发表于 2018-10-10 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219960&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-10 14:38</a>
@@ -4829,25 +3083,13 @@ edit
 没往那想，等信长。说不定我错过了一次天启。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10780#       发表于 2018-10-10 15:09
 
 
-
-
 清理了一批长时间不上线的好友 楼里IOS大佬有位置的加个好友吧～ ID 100108478240 名字就是S1的ID
-
-
-
-
-
 
 
 -----
@@ -4856,22 +3098,15 @@ edit
 ##### 10781#       发表于 2018-10-10 15:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41220265&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 15:09</a>
  清理了一批长时间不上线的好友 楼里IOS大佬有位置的加个好友吧～ ID 100108478240 名字就是S1的ID  ...</blockquote>
 加了，ID：HEro
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 10782#       发表于 2018-10-10 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41220265&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 15:09</a>
@@ -4882,16 +3117,10 @@ edit
 <img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">原来你等级比我高，那看来我才是这个楼里最菜的那个
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 10783#       发表于 2018-10-10 15:28
-
 
 
 <blockquote>atomicink 发表于 2018-10-10 14:11
@@ -4901,16 +3130,10 @@ edit
 国服抱不上大佬的粗腿，残念
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10784#       发表于 2018-10-10 15:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219696&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-10 14:11</a>
@@ -4921,16 +3144,10 @@ edit
 <img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">竟然是全5宝的大佬，求大腿（
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 10785#       发表于 2018-10-10 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219888&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-10 14:31:08</a>
@@ -4939,17 +3156,10 @@ edit
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10786#       发表于 2018-10-10 16:48
-
-
 
 
 脑子一热追加了一发十连，竟然真出了尼托。之前老福也是氪了一单出的，你游卡池绝对有氪金开关。
@@ -4957,16 +3167,10 @@ edit
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 10787#       发表于 2018-10-10 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219696&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-10 14:11</a>
@@ -4977,16 +3181,10 @@ edit
 你才是真正的大佬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，id雷萨德，希望别嫌弃
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 10788#       发表于 2018-10-10 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41220265&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 15:09</a>
@@ -4997,16 +3195,10 @@ edit
 id雷萨德，已经加了
 
 
-
-
-
-
-
 -----
 
 ####  wfantasia  
 ##### 10789#       发表于 2018-10-10 17:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41220265&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 15:09</a>
@@ -5016,16 +3208,10 @@ id雷萨德，已经加了
 已申 ID星尘风
 
 
-
-
-
-
-
 -----
 
 ####  wfantasia  
 ##### 10790#       发表于 2018-10-10 17:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219696&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-10 14:11</a>
@@ -5035,17 +3221,10 @@ id雷萨德，已经加了
 大佬要腿毛吗 
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 10791#       发表于 2018-10-10 18:04
-
-
 
 
 LGA 還真博愛，
@@ -5053,16 +3232,10 @@ LGA 還真博愛，
 連被同行全面包圍的大王也不能說是板凳 XD
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10792#       发表于 2018-10-10 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222160&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-10 18:04</a>
@@ -5076,25 +3249,13 @@ LGA 還真博愛，
 七剑下天山就别说了，爱用谁用谁
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 10793#       发表于 2018-10-10 18:27
 
 
-
-
 主要剑光炮其实也就那样，都标准的很没啥破格的
-
-
-
-
-
 
 
 -----
@@ -5103,16 +3264,9 @@ LGA 還真博愛，
 ##### 10794#       发表于 2018-10-10 18:31
 
 
-
-
 这池有毒吧，四百多石头歪了南丁和恩奇都
 
 [  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -5121,14 +3275,7 @@ LGA 還真博愛，
 ##### 10795#       发表于 2018-10-10 18:33
 
 
-
-
 剑光炮不都是呆毛王和他的复制体吗
-
-
-
-
-
 
 
 -----
@@ -5137,16 +3284,10 @@ LGA 還真博愛，
 ##### 10796#       发表于 2018-10-10 18:43
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222424&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-10 18:33:26</a>
 剑光炮不都是呆毛王和他的复制体吗</blockquote>可怜的215<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -5157,12 +3298,10 @@ LGA 還真博愛，
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  guojiaoqi  
 ##### 10798#       发表于 2018-10-10 18:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219696&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-10 14:11</a>
@@ -5173,33 +3312,19 @@ LGA 還真博愛，
 大佬带我飞，可算找到能5宝减防的欧金金了
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 10799#       发表于 2018-10-10 19:04
 
 
-
-
 大王被包围个啥，星纹持续3回合，还能自己集星，平A是剑光炮里最强的了，宝具也不比非特攻的小莫差，只是少个自充而已
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 10800#       发表于 2018-10-10 19:07
-
-
 
 
 215 藍寶有即死，
@@ -5229,16 +3354,10 @@ LGA 還真博愛，
 天性的肉體即使帶一個爆傷也不為過
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 10801#       发表于 2018-10-10 19:09
-
 
 
 <blockquote>devilwing 发表于 2018-10-10 19:04
@@ -5253,25 +3372,13 @@ LGA 還真博愛，
 還不如改成一回合但增加加攻幅度/出星量
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 10802#       发表于 2018-10-10 19:13
 
 
-
-
 我看你们不如讨论旧剑强度<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5280,15 +3387,8 @@ LGA 還真博愛，
 ##### 10803#       发表于 2018-10-10 19:18
 
 
-
-
 旧剑怎么讨论啊，埋了算了，要我说3个技能都该重做再来个宝具本
 红放特攻起码得做一个3回合的吧，祖传来个加30np，一回合50np自冲光炮，也不是不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5297,25 +3397,16 @@ LGA 還真博愛，
 ##### 10804#       发表于 2018-10-10 19:19
 
 
-
-
 新人今天刚入坑，有莫里亚蒂，水黑呆，普通呆毛，玉藻前，阿蒂拉，拉二，克娄巴克拉
 想问一下各位大佬养哪个比较好<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 10805#       发表于 2018-10-10 19:26
-
-
 
 
 舊劍很簡單
@@ -5328,16 +3419,10 @@ LGA 還真博愛，
 殺豬界第一把交椅
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 10806#       发表于 2018-10-10 19:27
-
 
 
 <blockquote>noobtizi 发表于 2018-10-10 19:19
@@ -5347,16 +3432,10 @@ LGA 還真博愛，
 你那個的素材夠滿破就先養誰
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 10807#       发表于 2018-10-10 19:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222762&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-10 19:09</a>
@@ -5369,16 +3448,10 @@ LGA 還真博愛，
 你呆毛父子的直感不是一样15星，没集星不管啥时候暴击都不稳定，1回合红魔放连两红卡都不一定能覆盖，平A完全看脸，大王就算好歹两红卡能实打实的吃到30%加攻，白值也是剑光炮里最高的，没记错的话atk比呆毛高一千，宝具伤害和非特攻小莫一样，考虑到自充的作用，你说周回比大王高半个档次没问题，但说完全包围就搞笑了，明明平A的优势摆在那里
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 10808#       发表于 2018-10-10 19:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222921&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-10 19:27</a>
@@ -5391,16 +3464,10 @@ LGA 還真博愛，
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 10809#       发表于 2018-10-10 19:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222947&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:30</a>
@@ -5408,16 +3475,10 @@ LGA 還真博愛，
 活动期间打什么主线，先去做活动把免费送的活动英灵拿了
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 10810#       发表于 2018-10-10 19:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222980&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-10 19:33</a>
@@ -5427,16 +3488,10 @@ LGA 還真博愛，
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 10811#       发表于 2018-10-10 19:38
-
 
 
 <blockquote>devilwing 发表于 2018-10-10 19:28
@@ -5462,16 +3517,10 @@ LGA 還真博愛，
 相反少30自充的差距就大了
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 10812#       发表于 2018-10-10 19:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222947&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:30</a>
@@ -5480,16 +3529,10 @@ LGA 還真博愛，
 也不买个带梅林的，先活动，把100个狗粮换出来，再刷素材换200方块，把商店的200方块换的100狗粮换出来。然后先升活动英灵，到70，要不打起来不方便。
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 10813#       发表于 2018-10-10 19:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223007&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:35</a>
@@ -5504,17 +3547,10 @@ LGA 還真博愛，
 一个好的初始顶上你氪20单(10000人民币).
 
 
-
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 10814#       发表于 2018-10-10 19:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223048&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-10 19:39</a>
@@ -5528,16 +3564,10 @@ LGA 還真博愛，
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 10815#       发表于 2018-10-10 19:44
-
 
 
  本帖最后由 南宮凝香 于 2018-10-10 19:47 编辑 
@@ -5568,16 +3598,10 @@ C狐可以放在後面
 新手又不用在信箱存狗糧
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 10816#       发表于 2018-10-10 19:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223072&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:42</a>
@@ -5587,17 +3611,10 @@ C狐可以放在後面
 作为一个无梅人士看着帖子里各种“x梅梅抠脚过”很心痛
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 10817#       发表于 2018-10-10 19:47
-
-
 
 
 感谢回复我的各位大佬
@@ -5609,16 +3626,10 @@ C狐可以放在後面
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10818#       发表于 2018-10-10 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223072&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:42</a>
@@ -5635,16 +3646,10 @@ C狐可以放在後面
 梅林池子下个月就有
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 10819#       发表于 2018-10-10 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223037&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-10 19:38</a>
@@ -5657,16 +3662,10 @@ C狐可以放在後面
 平A差了一千的白值和30%的加攻，而且有更大机会打出暴击你都能说出拉不开差距，我还能说什么，按你这个逻辑我也可以说手打30NP也是差距不大<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 10820#       发表于 2018-10-10 19:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223114&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:47</a>
@@ -5674,11 +3673,6 @@ C狐可以放在後面
 
 号的话我还是更想玩自己的，梅林和孔明出的时候我会氪的</blockquote>
 梅林池大概还有一个多月，孔明明年有up
-
-
-
-
-
 
 
 -----
@@ -5689,12 +3683,10 @@ C狐可以放在後面
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  南宮凝香  
 ##### 10822#       发表于 2018-10-10 19:59
-
 
 
 <blockquote>devilwing 发表于 2018-10-10 19:48
@@ -5717,16 +3709,10 @@ C狐可以放在後面
 例如呆毛父子配滿破寶石單明就能兩發
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 10823#       发表于 2018-10-10 20:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223114&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:47</a>
@@ -5738,16 +3724,10 @@ C狐可以放在後面
 你可以买个起手好的未过章当小号。我b站号啥都没有，玄不救非，氪不改命，艰难困苦，佛系养生。小号3宝赖光梅林黑狗孔明打什么都方便。
 
 
-
-
-
-
-
 -----
 
 ####  sureHH  
 ##### 10824#       发表于 2018-10-10 20:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222839&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:19</a>
@@ -5760,16 +3740,10 @@ C狐可以放在後面
 啊 不过也不用太拘泥于五星了，有强力四星的话也可以练的。
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10825#       发表于 2018-10-10 20:25
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">也差不多可以准备第三轮的助战啦
@@ -5784,28 +3758,13 @@ C狐可以放在後面
 2018-10-10 20:25 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  ledo  
 ##### 10826#       发表于 2018-10-10 21:00
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">100112926261求大佬大腿呀
-
-
-
-
-
 
 
 -----
@@ -5814,14 +3773,7 @@ C狐可以放在後面
 ##### 10827#       发表于 2018-10-10 21:01
 
 
-
-
 都氪这么多了  不要用强度相互伤害了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5830,15 +3782,9 @@ C狐可以放在後面
 ##### 10828#       发表于 2018-10-10 21:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223459&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-10 20:25</a>
 也差不多可以准备第三轮的助战啦</blockquote>
 单一掉落里怎么没有三星礼装<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">..？
-
-
-
-
-
 
 
 -----
@@ -5847,16 +3793,10 @@ C狐可以放在後面
 ##### 10829#       发表于 2018-10-10 21:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223731&amp;ptid=1712412" target="_blank">chirlley 发表于 2018-10-10 21:01</a>
 
 单一掉落里怎么没有三星礼装..？</blockquote>
 因为第三阶段没有铜材料的单一掉落本
-
-
-
-
-
 
 
 -----
@@ -5865,14 +3805,7 @@ C狐可以放在後面
 ##### 10830#       发表于 2018-10-10 21:12
 
 
-
-
 看首页的攻略第三轮确实没有糖豆单掉落的40ap本，和前几轮都不一样，有点奇怪
-
-
-
-
-
 
 
 -----
@@ -5881,14 +3814,7 @@ C狐可以放在後面
 ##### 10831#       发表于 2018-10-10 21:19
 
 
-
-
 一上线好多申请，只能按@我的顺序加了4个<img src="https://static.saraba1st.com/image/smiley/face2017/168.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -5897,14 +3823,7 @@ C狐可以放在後面
 ##### 10832#       发表于 2018-10-10 21:25
 
 
-
-
 ls，几位都加好了3Q
-
-
-
-
-
 
 
 -----
@@ -5913,15 +3832,9 @@ ls，几位都加好了3Q
 ##### 10833#       发表于 2018-10-10 21:27
 
 
-
 <blockquote>Leona_Akari 发表于 2018-10-10 15:24
 原来你等级比我高，那看来我才是这个楼里最菜的那个</blockquote>
 爆肝了一波 233 但肯定还是我菜啦 技能没钱练了
-
-
-
-
-
 
 
 -----
@@ -5930,104 +3843,48 @@ ls，几位都加好了3Q
 ##### 10834#       发表于 2018-10-10 21:34
 
 
-
 <blockquote>gjd198692 发表于 2018-10-10 21:25
 ls，几位都加好了3Q</blockquote>
 怎么办我好绝望啊！1期最后的高难可能是我目前遇到最难的一关了 真弹尽粮绝 打了36回合呐 要不要这样阿 还有没有机会翻盘纳  我sl 放置到12点 会不会给我用一次令咒呐
-
-
-
-
 
 
 358A5ED2-999F-4365-A359-239F90C7E1B9.png
 (349.4 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-10-10 21:34 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/10/213413doflth7nln0hnlnj.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 532BDF60-95BF-472B-AAD9-EAC309E16140.png
 (303.12 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-10-10 21:34 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/10/213419ckf0kmht9ty9qyqf.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 70710B02-8361-4802-A641-110962FC568A.png
 (295.25 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-10-10 21:34 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/10/213424xegjaali82ejqjni.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -6036,16 +3893,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10835#       发表于 2018-10-10 21:35
 
 
-
 <blockquote>gjd198692 发表于 2018-10-10 21:34
 怎么办我好绝望啊！1期最后的高难可能是我目前遇到最难的一关了 真弹尽粮绝 打了36回合呐 要不要这样阿  ...</blockquote>
 
 過了今晚令咒回來你不就贏了？
-
-
-
-
-
 
 
 -----
@@ -6054,13 +3905,7 @@ ls，几位都加好了3Q</blockquote>
 ##### 10836#       发表于 2018-10-10 21:37
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">车轮战我三个令咒用光了才过
-
-
-
-
-
 
 
 -----
@@ -6069,14 +3914,7 @@ ls，几位都加好了3Q</blockquote>
 ##### 10837#       发表于 2018-10-10 21:39
 
 
-
-
 高难本没有用令咒，周回用光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6085,14 +3923,7 @@ ls，几位都加好了3Q</blockquote>
 ##### 10838#       发表于 2018-10-10 21:40
 
 
-
-
 车轮战找了个百级黑杯奶光三令咒轰过去了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -6101,22 +3932,15 @@ ls，几位都加好了3Q</blockquote>
 ##### 10839#       发表于 2018-10-10 21:51
 
 
-
 <blockquote>南宮凝香 发表于 2018-10-10 21:35
 過了今晚令咒回來你不就贏了？</blockquote>
  我以为必须从新开始。 这个高难整整打了7次醉了
-
-
-
-
-
 
 
 -----
 
 ####  SAGA0Arcueid  
 ##### 10840#       发表于 2018-10-10 21:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41224181&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 21:51</a>
@@ -6128,25 +3952,13 @@ ls，几位都加好了3Q</blockquote>
 总之练度不够有个垫底的就安心很多
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10841#       发表于 2018-10-10 21:56
 
 
-
-
 我也是没令咒了 尝试了好几次 这次自己2宝奶光带黑杯 带上孔明梅琳学妹 3个辅助 一个替补打手闪闪 在嫖了个2宝梅林 打从8点20打到现在 最后一口气… 真是目前遇到最难打得一关了 车轮战真难打 下半部最后的高难一定攒好令咒再去干  
-
-
-
-
-
 
 
 -----
@@ -6155,15 +3967,9 @@ ls，几位都加好了3Q</blockquote>
 ##### 10842#       发表于 2018-10-10 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41223731&amp;ptid=1712412" target="_blank">chirlley 发表于 2018-10-10 21:01</a>
 单一掉落里怎么没有三星礼装..？</blockquote>
 因为第三轮没有单独铜素材掉率的本
-
-
-
-
-
 
 
 -----
@@ -6174,7 +3980,6 @@ ls，几位都加好了3Q</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -6183,12 +3988,10 @@ ls，几位都加好了3Q</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  shimotsuki14  
 ##### 10845#       发表于 2018-10-10 22:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222839&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:19</a>
@@ -6199,16 +4002,10 @@ ls，几位都加好了3Q</blockquote>
 我觉得优先度拉二——狐狸这样，后面么……
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10846#       发表于 2018-10-10 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222839&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:19:10</a>
@@ -6218,16 +4015,10 @@ ls，几位都加好了3Q</blockquote>
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10847#       发表于 2018-10-10 22:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41224535&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-10 22:33:54</a>
@@ -6236,25 +4027,13 @@ ls，几位都加好了3Q</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  yiraer  
 ##### 10848#       发表于 2018-10-10 22:47
 
 
-
-
 有没有狂肯娘UP的池子……以及金时还有高光时刻吗
-
-
-
-
-
 
 
 -----
@@ -6263,16 +4042,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10849#       发表于 2018-10-10 22:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41224226&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 21:56</a>
 
 我也是没令咒了 尝试了好几次 这次自己2宝奶光带黑杯 带上孔明梅琳学妹 3个辅助 一个替补打手闪闪 在嫖了个 ...</blockquote>
 恭喜你很快就能遇到FGO一年一度的真高难本活动，尼禄祭了
-
-
-
-
-
 
 
 -----
@@ -6283,7 +4056,6 @@ ls，几位都加好了3Q</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -6292,12 +4064,10 @@ ls，几位都加好了3Q</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hylq2100  
 ##### 10852#       发表于 2018-10-10 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41222839&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-10 19:19</a>
@@ -6319,16 +4089,10 @@ ls，几位都加好了3Q</blockquote>
 其他慢慢再培养
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 10853#       发表于 2018-10-10 23:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41224797&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-10 23:07</a>
@@ -6340,27 +4104,15 @@ ls，几位都加好了3Q</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不好不好，套到我初期的路数上去了，去年这时候连歪四个狐狸，觉得一定有缘，就先练起来了
 
 
-
-
-
-
-
 -----
 
 ####  milizzy  
 ##### 10854#       发表于 2018-10-10 23:19
 
 
-
-
 泳装欧的我都怕了。25张呼符。。两发十连。。水尼一宝水骑呆3宝枪奶光一宝<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">后面这个的非成啥样啊
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -6369,15 +4121,9 @@ ls，几位都加好了3Q</blockquote>
 ##### 10855#       发表于 2018-10-10 23:28
 
 
-
 <blockquote>霖星 发表于 2018-10-10 22:48
 恭喜你很快就能遇到FGO一年一度的真高难本活动，尼禄祭了</blockquote>
 看来尼禄祭的高难本比泳装还要难啊
-
-
-
-
-
 
 
 -----
@@ -6386,13 +4132,7 @@ ls，几位都加好了3Q</blockquote>
 ##### 10856#       发表于 2018-10-10 23:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">奶光三宝了海伦娜还不来
-
-
-
-
-
 
 
 -----
@@ -6401,20 +4141,12 @@ ls，几位都加好了3Q</blockquote>
 ##### 10857#       发表于 2018-10-10 23:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41224938&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 23:28</a>
 
 看来尼禄祭的高难本比泳装还要难啊</blockquote>
 
 
-
-
 看看这个UP以前尼禄祭的视频，里面有讲上一年的高难，而且今年也会复刻的，提前看一下想一下大概怎样打。而且他后面的视频也有高难的。
-
-
-
-
-
 
 
 -----
@@ -6423,13 +4155,7 @@ ls，几位都加好了3Q</blockquote>
 ##### 10858#       发表于 2018-10-10 23:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">完了，在想仓管白贞要不要练起来膀胱尼禄祭了
-
-
-
-
-
 
 
 -----
@@ -6438,16 +4164,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10859#       发表于 2018-10-10 23:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41224938&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 23:28</a>
 
 看来尼禄祭的高难本比泳装还要难啊</blockquote>
 基本上可以说，FGO一年里所有活动的高难本，难度都不高于尼禄祭
-
-
-
-
-
 
 
 -----
@@ -6456,16 +4176,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10860#       发表于 2018-10-10 23:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41224949&amp;ptid=1712412" target="_blank">神意 发表于 2018-10-10 23:29</a>
 
 奶光三宝了海伦娜还不来</blockquote>
 跟你正好相反XD
-
-
-
-
-
 
 
 -----
@@ -6474,15 +4188,8 @@ ls，几位都加好了3Q</blockquote>
 ##### 10861#       发表于 2018-10-11 00:47
 
 
-
-
 友情池出了大叔和小刚 立即单抽一发护肤 —-大王<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">...2宝了
 本次泳装五个五星分别是 船长 大公x2 拉二 大王 谁来给我算算这歪到天上的概率是多少...
-
-
-
-
-
 
 
 -----
@@ -6491,15 +4198,9 @@ ls，几位都加好了3Q</blockquote>
 ##### 10862#       发表于 2018-10-11 07:32
 
 
-
 <blockquote>霖星 发表于 2018-10-10 23:41
 基本上可以说，FGO一年里所有活动的高难本，难度都不高于尼禄祭</blockquote>
 感觉无限池好忙碌呐 又是各种高难  又是活动本 又是无限池 
-
-
-
-
-
 
 
 -----
@@ -6508,20 +4209,13 @@ ls，几位都加好了3Q</blockquote>
 ##### 10863#       发表于 2018-10-11 07:48
 
 
-
 <blockquote>gjd198692 发表于 2018-10-11 07:32
 感觉无限池好忙碌呐 又是各种高难  又是活动本 又是无限池</blockquote>
 泳装抽卡对我来说已经结束了你 看了看消费记录一期二期一共投入了 518+518+258+158 加上之前库存石头差不多300个 呼符大概20张 1期出了弓呆 枪狐 尼托 4暴泳装马尔达 3宝泳装玛丽 2期出了骑黑毛 和水尼禄 概率算起来亚洲水平？ 没有拿到泳装奶光对我来说是个遗憾。 话说ios升级后可以看手机使用数据 我对fgo爱的深沉哈哈 
 
 
-
-
-
-
 92176E36-0D38-47EE-83E5-1BFF154DD1AA.png
 (34.67 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -6530,31 +4224,13 @@ ls，几位都加好了3Q</blockquote>
 2018-10-11 07:48 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/074825s6zct7eapekpa4a5.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 10864#       发表于 2018-10-11 08:31
-
 
 
 <blockquote>auraria 发表于 2018-10-10 22:32
@@ -6576,17 +4252,10 @@ ls，几位都加好了3Q</blockquote>
 還是要多配一個出星方法
 
 
-
-
-
-
-
 -----
 
 ####  雅朵莉雀  
 ##### 10865#       发表于 2018-10-11 09:12
-
-
 
 
 我寻思高难没必要想太多，尼禄祭高难除了全力斗鸡打不过就不打，产出就1符5素材，我日服的咸鱼朋友结晶高难都懒得打，这次闪闪祭有几个还是我帮他打的
@@ -6594,17 +4263,10 @@ ls，几位都加好了3Q</blockquote>
 而且这次尼禄祭前4个高难都不难，全力斗鸡可以令咒解决，实在打不过就放弃大碧池和王哈本好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 10866#       发表于 2018-10-11 09:48
-
-
 
 
 算了一下，泳装每个材料要打一万个左右。加成最少的金币和车轮是18个左右，一次平均出300个，要打33次才毕业。那么就要1200ap，一天回288ap，要4天半左右才能打完一种材料。
@@ -6614,16 +4276,10 @@ ls，几位都加好了3Q</blockquote>
 算下来估计不打日常本应该时间刚好勉强，最后吃几个金苹果冲刺也许来得及
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 10867#       发表于 2018-10-11 10:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41228421&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-11 09:48</a>
@@ -6633,16 +4289,10 @@ ls，几位都加好了3Q</blockquote>
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 10868#       发表于 2018-10-11 10:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41228743&amp;ptid=1712412" target="_blank">marxel 发表于 2018-10-11 10:21</a>
@@ -6654,16 +4304,10 @@ ls，几位都加好了3Q</blockquote>
 不是说今年尼禄祭没棋子吗，所以想还是换了算了。虽然目前没抽什么卡也不太缺，但是如果练几个幕间或者加强本的低星又不够
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10869#       发表于 2018-10-11 10:33
-
 
 
  本帖最后由 gjd198692 于 2018-10-11 10:36 编辑 
@@ -6673,25 +4317,13 @@ ls，几位都加好了3Q</blockquote>
   
 
 
-
-
-
-
-
 -----
 
 ####  星月々交辉  
 ##### 10870#       发表于 2018-10-11 10:37
 
 
-
-
 棋子的话可以算算后半年计划要抽的卡，大概够用就行了，明年3月的赝作，棋子管够
-
-
-
-
-
 
 
 -----
@@ -6700,14 +4332,7 @@ ls，几位都加好了3Q</blockquote>
 ##### 10871#       发表于 2018-10-11 10:41
 
 
-
-
 三百多苹果，现在打活动本都是尽量3-4T的阵容，在此之外才考虑加成.....
-
-
-
-
-
 
 
 -----
@@ -6716,16 +4341,9 @@ ls，几位都加好了3Q</blockquote>
 ##### 10872#       发表于 2018-10-11 10:50
 
 
-
-
 为什么你们会有这么多苹果那<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer"> 我苹果基本发下就用完了。。 这30个估计为了泳装搬空得消耗掉不少  不知道尼禄祭能拿到多少苹果  
 
 关于尼禄祭好奇问下无限池是不是用花瓣打的？然后花瓣是从尼禄祭活动本里掉落的 于是等于为了刷花瓣得刷活动本（40AP?） 于是还是需要大量体力吗
-
-
-
-
-
 
 
 -----
@@ -6734,15 +4352,9 @@ ls，几位都加好了3Q</blockquote>
 ##### 10873#       发表于 2018-10-11 10:55
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229063&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 10:50</a>
 为什么你们会有这么多苹果那 我苹果基本发下就用完了。。 这30个估计为了泳装搬空得消耗掉不少  不 ...</blockquote>
 沉船沉的加成26＋起，除了之前减半刷钱本就没吃苹果
-
-
-
-
-
 
 
 -----
@@ -6751,16 +4363,9 @@ ls，几位都加好了3Q</blockquote>
 ##### 10874#       发表于 2018-10-11 10:56
 
 
-
-
 下半年，尼禄剑阶，布姐枪阶，下总国蓝卡剑还有奶光狂和酒吞。主要还是钥匙孔和北斋术这两个要棋子，最近一段时间弓骑杀都没有什么。顶多梅林复刻抽出白枪，要不不要布姐的话也不缺枪阶棋子。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -6769,16 +4374,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10875#       发表于 2018-10-11 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229119&amp;ptid=1712412" target="_blank">guojiaoqi 发表于 2018-10-11 10:55</a>
 
 沉船沉的加成26＋起，除了之前减半刷钱本就没吃苹果</blockquote>
 26+ 。。。 兄弟（拍肩  
-
-
-
-
-
 
 
 -----
@@ -6787,14 +4386,7 @@ ls，几位都加好了3Q</blockquote>
 ##### 10876#       发表于 2018-10-11 11:01
 
 
-
-
 我枪阶棋子是最不缺的 有80个左右 一看因为我压根就没有什么枪兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 只有一个水狐    什么时候活动送枪阶从这给我用用那 骑阶的金时和凛 真是太解决我的实际苦难了
-
-
-
-
-
 
 
 -----
@@ -6803,16 +4395,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10877#       发表于 2018-10-11 11:01
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229063&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 10:50</a>
 
 为什么你们会有这么多苹果那 我苹果基本发下就用完了。。 这30个估计为了泳装搬空得消耗掉不少  不 ...</blockquote>
 无限池很多大佬是碎石换体力打的。一般情况两三个苹果刷一池，百池起步才算肝的。
-
-
-
-
-
 
 
 -----
@@ -6821,15 +4407,9 @@ ls，几位都加好了3Q</blockquote>
 ##### 10878#       发表于 2018-10-11 11:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229063&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 10:50</a>
 为什么你们会有这么多苹果那 我苹果基本发下就用完了。。 这30个估计为了泳装搬空得消耗掉不少  不 ...</blockquote>
 我昨天就觉得你平时啃太多了吧，你和我一样初始入坑的，号里应该本身就有200多个苹果，我还入坑比你早，结果你现在等级比我高好多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我平时也啃点苹果的，现在还有200多个和入坑时差不多准备无限池用了
-
-
-
-
-
 
 
 -----
@@ -6838,16 +4418,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10879#       发表于 2018-10-11 11:03
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229201&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 11:01</a>
 
 我枪阶棋子是最不缺的 有80个左右 一看因为我压根就没有什么枪兵 只有一个水狐    什么时候活动送枪 ...</blockquote>
 缺棋子的基本都是新人，饼干倒是不分新老抽得多了都会短缺。
-
-
-
-
-
 
 
 -----
@@ -6856,16 +4430,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10880#       发表于 2018-10-11 11:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229226&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-11 11:03</a>
 
 缺棋子的基本都是新人，饼干倒是不分新老抽得多了都会短缺。</blockquote>
 饼干是你练度想上来的话就会短缺
-
-
-
-
-
 
 
 -----
@@ -6874,16 +4442,10 @@ ls，几位都加好了3Q</blockquote>
 ##### 10881#       发表于 2018-10-11 11:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229063&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 10:50</a>
 
 为什么你们会有这么多苹果那 我苹果基本发下就用完了。。 这30个估计为了泳装搬空得消耗掉不少  不 ...</blockquote>
 因为平时的苹果都存起来留给无限池，无限池的AP综合价值最大，狩猎本或者QP减半也会吃掉一些但是不算多，平时基本不吃，活动一般忽略棋子都能自回体毕业，所以从刷完魔神柱到现在我攒了250多个苹果，然而快到无限池开了才觉得自己根本吃不完那么多苹果
-
-
-
-
-
 
 
 -----
@@ -6892,16 +4454,9 @@ ls，几位都加好了3Q</blockquote>
 ##### 10882#       发表于 2018-10-11 11:37
 
 
-
-
 看平时补偿也很少发苹果啊，不知道石头号怎么来200多个苹果的
 
 一开始240个苹果，之前陆续吃了又拿，现在还有210个
-
-
-
-
-
 
 
 -----
@@ -6910,23 +4465,16 @@ ls，几位都加好了3Q</blockquote>
 ##### 10883#       发表于 2018-10-11 11:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229335&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-11 11:14:04</a>
 因为平时的苹果都存起来留给无限池，无限池的AP综合价值最大，狩猎本或者QP减半也会吃掉一些但是不算多， ...</blockquote>玩游戏世界级通病：消耗品攒着，就是不用，拥有就是牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 10884#       发表于 2018-10-11 11:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229207&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-11 11:01</a>
@@ -6937,16 +4485,10 @@ ls，几位都加好了3Q</blockquote>
 还有为什么刷的是勇者级的本而不是最高难度那个本呢？因为掉落一样？
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 10885#       发表于 2018-10-11 11:42
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">几百个苹果等无限池的大概率是吃不完的，隔壁还有460苹果进闪闪祭，刷了百池活动结束苹果480的存在
@@ -6954,16 +4496,10 @@ ls，几位都加好了3Q</blockquote>
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 10886#       发表于 2018-10-11 11:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229585&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-11 11:39</a>
@@ -6975,16 +4511,10 @@ ls，几位都加好了3Q</blockquote>
 主要是发现没有什么动力刷无限池了 ，想练的都练差不多了，剩下不想练的没动力，无限池这种极其精污的重复劳动实在是不太适合时间不多的中老年上班族<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  holyknight  
 ##### 10887#       发表于 2018-10-11 11:46
-
 
 
 <blockquote>引用第10877楼gjd198692于2018-10-11 11:01发表的  :
@@ -6996,16 +4526,10 @@ ls，几位都加好了3Q</blockquote>
 ----发送自 [Xiaomi Redmi Note 4X,Android 7.0](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  SAGA0Arcueid  
 ##### 10888#       发表于 2018-10-11 11:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229585&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-11 11:39</a>
@@ -7017,16 +4541,10 @@ ls，几位都加好了3Q</blockquote>
 **纹的时候铁枪铁剑包打天下，哪怕通关了神兵利器耐久度也一点不掉……真是古老的毛病啊
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 10889#       发表于 2018-10-11 12:11
-
 
 
 <blockquote>hylq2000 发表于 2018-10-11 11:42
@@ -7036,27 +4554,15 @@ ls，几位都加好了3Q</blockquote>
 这人绝逼碎石了，闪闪祭也就25金20银，根本唱不了百池
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 10890#       发表于 2018-10-11 12:21
 
 
-
-
 百池怎么着也不可能苹果净增的吧，不过反正如果目标就是百池的人可以后面最大掉落的本再刷
 
 但我觉得终究还是要看掉礼装的运气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7067,21 +4573,13 @@ ls，几位都加好了3Q</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  五更伪境  
 ##### 10892#       发表于 2018-10-11 12:38
 
 
-
-
 南丁的胜利语音1有点感人，昨天偶然听到差点哭出来。
-
-
-
-
-
 
 
 -----
@@ -7090,21 +4588,13 @@ ls，几位都加好了3Q</blockquote>
 ##### 10893#       发表于 2018-10-11 12:45
 
 
-
-
 监狱里面会易容术的是燕青？
-
-
-
-
-
 
 
 -----
 
 ####  deadog  
 ##### 10894#       发表于 2018-10-11 12:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229604&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-11 11:41</a>
@@ -7115,16 +4605,10 @@ ls，几位都加好了3Q</blockquote>
 看加成情况，礼装掉多了才能达到180AP
 
 
-
-
-
-
-
 -----
 
 ####  knightroad  
 ##### 10895#       发表于 2018-10-11 13:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41220265&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-10 15:09</a>
@@ -7132,11 +4616,6 @@ ls，几位都加好了3Q</blockquote>
 
  ...</blockquote>
 大佬还有腿毛位没，申请了id叫九条巧
-
-
-
-
-
 
 
 -----
@@ -7147,21 +4626,13 @@ ls，几位都加好了3Q</blockquote>
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  knightroad  
 ##### 10897#       发表于 2018-10-11 13:03
 
 
-
-
 lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦娜太色气了不好，玩个媚宅游戏还嫌卡面瑟琴的真是第一次见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7170,16 +4641,10 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 ##### 10898#       发表于 2018-10-11 14:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229226&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-11 11:03</a>
 
 缺棋子的基本都是新人，饼干倒是不分新老抽得多了都会短缺。</blockquote>
 饼干早就被我榨干了233 就等着尼禄祭快点补充 不然一堆80 90的英雄技能都是111挂着 哈哈  就是不知道QB跟不跟的上 之前听楼里大佬说似乎尼禄祭也有QB的？ 
-
-
-
-
-
 
 
 -----
@@ -7188,15 +4653,9 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 ##### 10899#       发表于 2018-10-11 14:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41230241&amp;ptid=1712412" target="_blank">knightroad 发表于 2018-10-11 13:03</a>
 lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦娜太色气了不好，玩个媚宅游戏还嫌卡面瑟琴的真 ...</blockquote>
 好歹今年没有嫌弃画师撕卡的
-
-
-
-
-
 
 
 -----
@@ -7205,16 +4664,10 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 ##### 10900#       发表于 2018-10-11 14:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229211&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-11 11:02</a>
 
 我昨天就觉得你平时啃太多了吧，你和我一样初始入坑的，号里应该本身就有200多个苹果，我还入坑比你早， ...</blockquote>
 我在8月底刚玩那会没概念 体力用完就磕苹果233 后来为了队伍整体强度上去又继续爆肝练英灵所以233.。
-
-
-
-
-
 
 
 -----
@@ -7223,23 +4676,16 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 ##### 10901#       发表于 2018-10-11 14:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229335&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-11 11:14</a>
 
 因为平时的苹果都存起来留给无限池，无限池的AP综合价值最大，狩猎本或者QP减半也会吃掉一些但是不算多， ...</blockquote>
 这样看来尼禄祭真是全年最重要的活动了 一波活动爆肝后可以彻底摆脱萌新了
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10902#       发表于 2018-10-11 14:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229652&amp;ptid=1712412" target="_blank">holyknight 发表于 2018-10-11 11:46</a>
@@ -7251,16 +4697,10 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 阿原来是送的那 难怪我看好友都是5宝的 感觉偏辅助？
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10903#       发表于 2018-10-11 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41230226&amp;ptid=1712412" target="_blank">knightroad 发表于 2018-10-11 13:01</a>
@@ -7269,16 +4709,10 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 之前加的都加了 要是没的话在加一下  
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 10904#       发表于 2018-10-11 14:26
-
 
 
 <blockquote>gjd198692 发表于 2018-10-11 14:13
@@ -7290,16 +4724,10 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 補血當充話費送的就行
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10905#       发表于 2018-10-11 14:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41230879&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-11 14:26</a>
@@ -7312,26 +4740,15 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 了解了 离圣诞也不远了 期待阿 据说这个活动也挺良心的 
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 10906#       发表于 2018-10-11 14:38
 
 
-
 <blockquote>圈量子 发表于 2018-10-11 14:11
 好歹今年没有嫌弃画师撕卡的</blockquote>
 等一个雪山布妈
-
-
-
-
-
 
 
 -----
@@ -7340,23 +4757,15 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 ##### 10907#       发表于 2018-10-11 14:39
 
 
-
-
 才发现第一部泳装活动里我还抽到了枪阶清姬  这次尼禄祭 不知道能不能把剩下的大部分英灵练掉。。 
 
 刚把泳装1期的高难全打掉了 撇开车轮战不说 剩下4个40AP的高难 感觉CEO的最难  发现CEO攻击实在可怕 一个暴击 把我满血奶光给秒掉了。。一个普攻暴击28000的伤害这么暴力的吗.。 然后2动又是一个暴击把我的拐也干掉了 社会社会
-
-
-
-
-
 
 
 -----
 
 ####  knightroad  
 ##### 10908#       发表于 2018-10-11 14:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41219696&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-10 14:11</a>
@@ -7366,16 +4775,10 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 大佬加你了好友满了，不嫌弃的话通过下，id叫九条巧
 
 
-
-
-
-
-
 -----
 
 ####  knightroad  
 ##### 10909#       发表于 2018-10-11 14:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41230771&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 14:15</a>
@@ -7383,16 +4786,10 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 又申请了次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10910#       发表于 2018-10-11 14:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231009&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 14:39:01</a>
@@ -7403,11 +4800,6 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  schrdinger  
@@ -7416,21 +4808,13 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  cosx  
 ##### 10912#       发表于 2018-10-11 14:58
 
 
-
-
 被二部的cost逼得用南丁大英雄玩一发入魂，无梅好痛苦啊
-
-
-
-
-
 
 
 -----
@@ -7439,16 +4823,10 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 ##### 10913#       发表于 2018-10-11 15:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231069&amp;ptid=1712412" target="_blank">knightroad 发表于 2018-10-11 14:46</a>
 
 大佬加你了好友满了，不嫌弃的话通过下，id叫九条巧</blockquote>
 加了 不是大佬233
-
-
-
-
-
 
 
 -----
@@ -7457,24 +4835,16 @@ lowGA的人真实精分，看到个帖子讨论弓海伦娜一堆人说弓海伦
 ##### 10914#       发表于 2018-10-11 15:02
 
 
-
-
 这次刷杀阶本，把巴贝奇拉出来用了
 别说手感其实真的不错
 
 —— 来自 HUAWEI BND-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10915#       发表于 2018-10-11 15:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231133&amp;ptid=1712412" target="_blank">schrdinger 发表于 2018-10-11 14:53</a>
@@ -7485,16 +4855,10 @@ CEO可以用泳装圣女打
 是的我替补就是泳装圣女 一发铁拳制裁送她去了
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10916#       发表于 2018-10-11 15:07
-
 
 
 <blockquote>deadog 发表于 2018-10-11 14:50
@@ -7505,14 +4869,8 @@ CEO可以用泳装圣女打
 我觉得这游戏素材之间使用率区别真挺大的 多的有200多而且基本感觉用不太到 少的 比如大骑士勋章一个弓呆就把我吃穷了》《
 
 
-
-
-
-
 D4F3B53B-9B02-417C-AAC8-65F0CEC3762C.png
 (277.92 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -7521,169 +4879,72 @@ D4F3B53B-9B02-417C-AAC8-65F0CEC3762C.png
 2018-10-11 15:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/150637sw22y2gli9gbbzt9.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 CA75B5E5-8762-4578-86ED-BEA6A7792224.png
 (278.31 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-10-11 15:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/150643gsf66chhh4jf6q4f.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 62333BD4-BE31-451A-9708-B6D5BCD555FE.png
 (276.21 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-10-11 15:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/150650e7u7jnk2ejyz278k.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 2A185AA3-82C7-4CC2-A2FC-96F76856133E.png
 (277.04 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-10-11 15:06 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/150658gq4e4xlccf3xn2ll.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 270E5CFA-843D-40A0-BEAE-990D69E7ACF7.png
 (279.86 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-10-11 15:07 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/150705zlz3rll9wklew31d.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 (273.44 KB, 下载次数: 0)
 
 
-
-
 下载附件
 
 
 2018-10-11 15:07 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/150711cu9qm9f5g04gqtgw.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -7694,12 +4955,10 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gjd198692  
 ##### 10918#       发表于 2018-10-11 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231275&amp;ptid=1712412" target="_blank">schrdinger 发表于 2018-10-11 15:09</a>
@@ -7708,16 +4967,10 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 那太好了  我勋章光是弓呆的再临就用的差不多了 别说技能需要了 
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10919#       发表于 2018-10-11 15:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231262&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 15:07:22</a>
@@ -7726,32 +4979,19 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  yiraer  
 ##### 10920#       发表于 2018-10-11 15:14
 
 
-
-
 慢着，想了想三周年我估计要抽EX福袋。是不是里面还有戈尔贡？42选1本来我想选最难抽到的戈尔贡来着……现在来看似乎反而应该尽量避免抽EX阶从者？
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 10921#       发表于 2018-10-11 15:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231319&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-11 15:13</a>
@@ -7763,16 +5003,10 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 随便百度了下 感觉好绝望那 这素材的需求量是什么鬼那一次活动就这么点 但是要彻底练满一个英雄素材随便都是上百的 感觉一年的活动下来也喂不满多少英灵的技能
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 10922#       发表于 2018-10-11 15:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231347&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 15:17:43</a>
@@ -7781,16 +5015,10 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10923#       发表于 2018-10-11 15:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231407&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-11 15:24</a>
@@ -7799,16 +5027,10 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 是啊材料和练度感觉还是要看实际情况 刚玩那会不懂XJBD有点莽了 现在想想不应该那么早把奶光练到98 90到98的资源够我再练一个80的4星英灵了 
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10924#       发表于 2018-10-11 15:32
-
 
 
 <blockquote>gjd198692 发表于 2018-10-11 15:26
@@ -7816,14 +5038,8 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 血染东方一片红～。说真的fgo这手游建模对立绘的还原真实不错 可以舔
 
 
-
-
-
-
 806223E4-30BC-4936-B874-6A179CCADA34.png
 (309.38 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -7832,24 +5048,7 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 2018-10-11 15:32 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/11/153224xnuz21v5o8uzvy6n.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -7858,15 +5057,9 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 ##### 10925#       发表于 2018-10-11 15:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231466&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 15:32</a>
 血染东方一片红～。说真的fgo这手游建模对立绘的还原真实不错 可以舔</blockquote>
 有些建模比卡面还好看<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7875,16 +5068,10 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 ##### 10926#       发表于 2018-10-11 15:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231563&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-11 15:45:10</a>
 有些建模比卡面还好看</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又到了南丁的高光时刻
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -7893,21 +5080,13 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 ##### 10927#       发表于 2018-10-11 15:54
 
 
-
-
 哈哈说起来南丁的立绘我第一眼看到还以为是龙骑士07画的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  朝仓和美  
 ##### 10928#       发表于 2018-10-11 16:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231666&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 15:54</a>
@@ -7917,26 +5096,15 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 10929#       发表于 2018-10-11 16:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231666&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 15:54</a>
 哈哈说起来南丁的立绘我第一眼看到还以为是龙骑士07画的 感觉像海猫里蹦出来的人物画风 然后同人图 ...</blockquote>
 我一开始也以为是龙骑士07画的=_=
-
-
-
-
-
 
 
 -----
@@ -7945,14 +5113,7 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 ##### 10930#       发表于 2018-10-11 16:26
 
 
-
-
 南丁满破图还可以，礼装图美爆了，只有正常卡面是这种说不出的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -7961,16 +5122,9 @@ C57055A8-D7BA-4B39-B8DD-7B87F1D20B79.png
 ##### 10931#       发表于 2018-10-11 16:35
 
 
-
-
 fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 
 利用率比较低却往往是画师用的最用心的，略矛盾
-
-
-
-
-
 
 
 -----
@@ -7979,16 +5133,10 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10932#       发表于 2018-10-11 16:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41231466&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 15:32</a>
 
 血染东方一片红～。说真的fgo这手游建模对立绘的还原真实不错 可以舔</blockquote>
 立绘，建模，和宝具动画里的水泥分明是三个不同的人
-
-
-
-
-
 
 
 -----
@@ -7997,21 +5145,13 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10933#       发表于 2018-10-11 16:56
 
 
-
-
 水泥我还是喜欢第一形态，是我恋爱了的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 10934#       发表于 2018-10-11 17:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41229738&amp;ptid=1712412" target="_blank">SAGA0Arcueid 发表于 2018-10-11 11:56</a>
@@ -8021,26 +5161,15 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 玩传奇的时候，一套豪华装备不戴，背着商店套去打怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 10935#       发表于 2018-10-11 17:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41232268&amp;ptid=1712412" target="_blank">吾乃啊噗 发表于 2018-10-11 16:56</a>
 水泥我还是喜欢第一形态，是我恋爱了的感觉</blockquote>
 同意，顺便小莫我喜欢jk服，光溜溜的大腿太诱惑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8049,14 +5178,7 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10936#       发表于 2018-10-11 17:33
 
 
-
-
 装备有耐久的游戏是这样的。玩MH就不一样了，做出来一身新装备赶紧强满了穿上出去打怪，下位到上位，上位刚到G位的两个时段被打是最疼的……
-
-
-
-
-
 
 
 -----
@@ -8065,15 +5187,9 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10937#       发表于 2018-10-11 17:33
 
 
-
 <blockquote>yolu 发表于 2018-10-11 16:47
 立绘，建模，和宝具动画里的水泥分明是三个不同的人</blockquote>
 哈哈这么一说还真是
-
-
-
-
-
 
 
 -----
@@ -8082,14 +5198,7 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10938#       发表于 2018-10-11 17:35
 
 
-
-
 说起来我一直有个疑问 小莫和呆毛既然是父子 于是小莫到底是怎么生出来的呐 印象里动画也好游戏也好好像都没解释过这点 也没说小莫是人造人总不见得凭空变出来或者性转过来的吧
-
-
-
-
-
 
 
 -----
@@ -8098,15 +5207,9 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10939#       发表于 2018-10-11 17:38
 
 
-
 <blockquote>gjd198692 发表于 2018-10-11 17:35
 说起来我一直有个疑问 小莫和呆毛既然是父子 于是小莫到底是怎么生出来的呐 印象里动画也好游戏也好好像都 ...</blockquote>
 呆毛姐姐用呆毛基因做出来的
-
-
-
-
-
 
 
 -----
@@ -8115,16 +5218,10 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10940#       发表于 2018-10-11 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41232660&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-11 17:35</a>
 
 说起来我一直有个疑问 小莫和呆毛既然是父子 于是小莫到底是怎么生出来的呐 印象里动画也好游戏也好好像都 ...</blockquote>
 摩根用药把呆毛变成男的强行采种自己生的
-
-
-
-
-
 
 
 -----
@@ -8133,14 +5230,7 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10941#       发表于 2018-10-11 17:49
 
 
-
-
 原来如此 好神奇… 说起来呆毛老婆以后不知道会不会实装
-
-
-
-
-
 
 
 -----
@@ -8149,16 +5239,9 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 ##### 10942#       发表于 2018-10-11 17:57
 
 
-
-
 素材这个真是。。我之前龙牙好几百。。现在点一点技能练一练人就只有18个了。。我感觉我还没几个呆毛系的。。然后黑灰900+从上一个无限池到现在基本没动过还是900+
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -8169,7 +5252,6 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -8178,13 +5260,10 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Leona_Akari  
 ##### 10945#       发表于 2018-10-11 18:45
-
-
 
 
 看到LGA有个贴在说贞德高宝的提升，1到2宝的防御是从5%到15%的
@@ -8198,16 +5277,10 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 能令咒炸过去或者X梅梅轰过去我也不太会上贞德去打。。。
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10946#       发表于 2018-10-11 19:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41233237&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-11 18:45</a>
@@ -8221,16 +5294,10 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 日服因为不了解配置，可以用白贞去探路看技能什么的
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10947#       发表于 2018-10-11 19:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41233398&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-11 19:05</a>
@@ -8246,16 +5313,10 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 第一时间探路的话你玩国服一样可以不看攻略打
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 10948#       发表于 2018-10-11 19:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41232061&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-11 16:35</a>
@@ -8269,26 +5330,15 @@ fgo这个游戏满破图不出现在剧情里也不出现在个人空间
 不过南丁那张...差别真的有点大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉像告诉画师她是狂阶，让画师画愣一点，于是画师就真照办了
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 10949#       发表于 2018-10-11 20:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41233589&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-11 19:27</a>
 让玩家腻味一张不动的超美的图的最简单办法就是让玩家一直看到它。当然为了延长厌倦周期还有看到它的仪式 ...</blockquote>
 fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为什么可以上线，还挂个一年两年
-
-
-
-
-
 
 
 -----
@@ -8297,14 +5347,7 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10950#       发表于 2018-10-11 20:40
 
 
-
-
 咸了好几天了，进度还停在一期round3<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8315,23 +5358,15 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  麻花疼  
 ##### 10952#       发表于 2018-10-11 21:08
 
 
-
-
 沉迷龙珠斗士Z，自回一期才毕业，体力都溢出了，罪过罪过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 不减半就懒得打，活动本40ap一天上线清两次就够了，总容易忘<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8340,14 +5375,7 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10953#       发表于 2018-10-11 21:26
 
 
-
-
 两个大号都咸鱼了，小号狂刷剧情自由本，终于出了个泳装妈妈，小号两个妈妈都有了，妈宝号
-
-
-
-
-
 
 
 -----
@@ -8356,14 +5384,7 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10954#       发表于 2018-10-11 21:27
 
 
-
-
 话说狂光妈+两个大英雄+孔梅简直就是刷剧情自由本而生的。
-
-
-
-
-
 
 
 -----
@@ -8372,14 +5393,7 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10955#       发表于 2018-10-11 21:29
 
 
-
-
 排队等地铁看到前面有个很有气质的美女在打泳装活动<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">，之前还以为这个游戏都是男性死宅在玩。
-
-
-
-
-
 
 
 -----
@@ -8388,16 +5402,10 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10956#       发表于 2018-10-11 21:42
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41234583&amp;ptid=1712412" target="_blank">the_ripples 发表于 2018-10-11 21:29</a>
 
 排队等地铁看到前面有个很有气质的美女在打泳装活动，之前还以为这个游戏都是男性死宅在玩。 ...</blockquote>
 不上去求一个PY码？
-
-
-
-
-
 
 
 -----
@@ -8406,23 +5414,16 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10957#       发表于 2018-10-11 21:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41233829&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-11 20:00</a>
 
 fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为什么可以上线，还挂个一年两年 ...</blockquote>
 我也不明白，可能就没考虑过这个问题。
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10958#       发表于 2018-10-11 21:52
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">发现小姐姐在玩FGO
@@ -8432,25 +5433,13 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 上论坛发帖    O
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 10959#       发表于 2018-10-11 22:01
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">各个队伍胜利语音（一期赛车限定）
-
-
-
-
-
-
 
 
 -----
@@ -8459,22 +5448,13 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10960#       发表于 2018-10-11 22:10
 
 
-
-
 神王不用这么喜欢我也可以，都拉五了，我还不想要盘子<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
 
 
 -----
 
 ####  FrozenA  
 ##### 10961#       发表于 2018-10-11 22:24
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41234944&amp;ptid=1712412" target="_blank">影之诱惑 发表于 2018-10-11 22:10</a>
@@ -8484,26 +5464,15 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 歪这个机制真的对我造成了冲击，觉得实在是不可思议啊，几率已经那么低了还能歪
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 10962#       发表于 2018-10-11 22:37
 
 
-
 <blockquote>deadog 发表于 2018-10-11 21:42
 不上去求一个PY码？</blockquote>
 一般不是撩个陌陌之类的吗？
-
-
-
-
-
 
 
 -----
@@ -8512,14 +5481,7 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10963#       发表于 2018-10-11 22:39
 
 
-
-
 又三个钻石，出了个水骑呆。据说水骑呆np率不如骑金时？并且是五星呆毛里面最弱那个？系列
-
-
-
-
-
 
 
 -----
@@ -8528,15 +5490,9 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10964#       发表于 2018-10-11 22:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41235213&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-11 22:39</a>
 又三个钻石，出了个水骑呆。据说水骑呆np率不如骑金时？并且是五星呆毛里面最弱那个？系列 ...</blockquote>
 但是她可爱啊，我用了一下就感觉我又恋爱了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8545,22 +5501,15 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10965#       发表于 2018-10-11 22:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41234670&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-11 21:42</a>
 不上去求一个PY码？</blockquote>
 死宅就是这么缩啦<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  一色いろは  
 ##### 10966#       发表于 2018-10-11 22:56
-
 
 
  本帖最后由 一色いろは 于 2018-10-11 23:07 编辑 
@@ -8571,25 +5520,13 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 哦忘记说了是IOS
 
 
-
-
-
-
-
 -----
 
 ####  gearbox  
 ##### 10967#       发表于 2018-10-11 23:01
 
 
-
-
 这一轮双王也快到终点了，就看肯娘和海妈组啥时候能到了
-
-
-
-
-
 
 
 -----
@@ -8598,16 +5535,9 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10968#       发表于 2018-10-11 23:01
 
 
-
-
 100,101,920,687安卓的白嫖咸鱼求几个好友。。
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -8616,16 +5546,9 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10969#       发表于 2018-10-11 23:07
 
 
-
-
 快点开始下一轮吧，只想刷桐素材了
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8634,16 +5557,10 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10970#       发表于 2018-10-11 23:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41235463&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-11 23:07</a>
 
 快点开始下一轮吧，只想刷桐素材了</blockquote>
 睡一觉起来应该就可以打下一轮了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8652,21 +5569,13 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10971#       发表于 2018-10-11 23:32
 
 
-
-
 100100555939志摩凛，安卓，没加过的可以加下，2期泳装无练度。
-
-
-
-
-
 
 
 -----
 
 ####  hylq2100  
 ##### 10972#       发表于 2018-10-12 00:33
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">第四轮啦
@@ -8681,20 +5590,10 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 2018-10-12 00:33 上传
 
 
-
-
-
-
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 10973#       发表于 2018-10-12 00:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41235679&amp;ptid=1712412" target="_blank">影之诱惑 发表于 2018-10-11 23:32</a>
@@ -8703,25 +5602,13 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 已加，式里芬秀明，话说你这是真没练度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10974#       发表于 2018-10-12 00:44
 
 
-
-
 不是说月神优先打男人么，怎么她老是对着我白贞开大啊……顺便发现了白贞可以硬吃月神一个大不死<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8730,16 +5617,9 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10975#       发表于 2018-10-12 00:59
 
 
-
-
 说起来4060有什么好队伍吗，存仓库里感觉好浪费，暴击手只有剑兰长江闪闪，三拐无明。
 
 是不是梅湖4060找个大腿抱比较划算
-
-
-
-
-
 
 
 -----
@@ -8748,14 +5628,7 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10976#       发表于 2018-10-12 01:22
 
 
-
-
 这信长单up怎么回事，为了抽4个信长歪了7个水泥<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -8764,24 +5637,16 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10977#       发表于 2018-10-12 01:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41236311&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-12 01:22</a>
 
 这信长单up怎么回事，为了抽4个信长歪了7个水泥</blockquote>
 大佬的玩法<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 10978#       发表于 2018-10-12 02:36
-
-
 
 
 该死，这游戏比崩崩崩肝多了
@@ -8791,16 +5656,10 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 10979#       发表于 2018-10-12 05:16
-
 
 
  本帖最后由 麻花疼 于 2018-10-12 06:18 编辑 
@@ -8814,11 +5673,6 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 我感觉我离翻车不远了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  auraria  
@@ -8827,12 +5681,10 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Coda  
 ##### 10981#       发表于 2018-10-12 07:16
-
 
 
 <blockquote>一色いろは 发表于 2018-10-11 22:56
@@ -8843,16 +5695,10 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 大佬申请了 id是jb 过两天改改…
 
 
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 10982#       发表于 2018-10-12 08:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41237857&amp;ptid=1712412" target="_blank">Coda 发表于 2018-10-12 07:16</a>
@@ -8861,25 +5707,13 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 通过了
 
 
-
-
-
-
-
 -----
 
 ####  风行骓  
 ##### 10983#       发表于 2018-10-12 08:51
 
 
-
-
 剑呆、黑剑呆、Lily剑呆、弓呆、白枪呆、黑枪呆、圣诞骑呆、水骑呆，这下应该凑齐了吧，请问还有遗漏吗
-
-
-
-
-
 
 
 -----
@@ -8888,16 +5722,10 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10984#       发表于 2018-10-12 08:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41238286&amp;ptid=1712412" target="_blank">风行骓 发表于 2018-10-12 08:51</a>
 
 剑呆、黑剑呆、Lily剑呆、弓呆、白枪呆、黑枪呆、圣诞骑呆、水骑呆，这下应该凑齐了吧，请问还有遗漏吗 ...</blockquote>
 看你把不把X毛和BX毛算进去了..
-
-
-
-
-
 
 
 -----
@@ -8906,22 +5734,15 @@ fgo的卡面质量太参差不齐了，有些卡我都不明白这个质量为�
 ##### 10985#       发表于 2018-10-12 09:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41235213&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-11 22:39</a>
 又三个钻石，出了个水骑呆。据说水骑呆np率不如骑金时？并且是五星呆毛里面最弱那个？系列 ...</blockquote>
 np差，宝具没有黑呆系的破格，真的是躺着赚钱我为什么要坐起来的典范
-
-
-
-
-
 
 
 -----
 
 ####  cmg1987  
 ##### 10986#       发表于 2018-10-12 09:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41236311&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-12 01:22</a>
@@ -8932,32 +5753,19 @@ np差，宝具没有黑呆系的破格，真的是躺着赚钱我为什么要坐
 100100717462有的话赏一个吧
 
 
-
-
-
-
-
 -----
 
 ####  gfm  
 ##### 10987#       发表于 2018-10-12 09:40
 
 
-
-
 4轮尼禄队这心脏掉率有点高啊，5连出
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 10988#       发表于 2018-10-12 09:41
-
 
 
 <blockquote>风行骓 发表于 2018-10-12 08:51
@@ -8968,16 +5776,10 @@ X呆，狂呆， XX呆
 呆毛戰隊還差C呆
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 10989#       发表于 2018-10-12 09:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41238740&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-12 09:41:21</a>
@@ -8989,16 +5791,10 @@ X呆，狂呆， XX呆
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 10990#       发表于 2018-10-12 10:32
-
 
 
 <blockquote>hylq2000 发表于 2018-10-12 09:54
@@ -9009,11 +5805,6 @@ X呆，狂呆， XX呆
 還不如用水泥裝一下
 
 
-
-
-
-
-
 -----
 
 ####  schrdinger  
@@ -9022,12 +5813,10 @@ X呆，狂呆， XX呆
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gjd198692  
 ##### 10992#       发表于 2018-10-12 10:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41238205&amp;ptid=1712412" target="_blank">一色いろは 发表于 2018-10-12 08:31</a>
@@ -9036,16 +5825,10 @@ X呆，狂呆， XX呆
 已申请 ID就是S1ID
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 10993#       发表于 2018-10-12 10:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41238730&amp;ptid=1712412" target="_blank">gfm 发表于 2018-10-12 09:40</a>
@@ -9054,32 +5837,19 @@ X呆，狂呆， XX呆
 <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">引起不适，我这打了五六把一个都没出
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10994#       发表于 2018-10-12 10:41
 
 
-
-
 只有我到现在1期还没搬完2期根本没动了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  一色いろは  
 ##### 10995#       发表于 2018-10-12 10:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41239268&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-12 10:34</a>
@@ -9090,16 +5860,10 @@ X呆，狂呆， XX呆
 继续求 还有一个坑 100102504862 IOS
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 10996#       发表于 2018-10-12 10:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41239456&amp;ptid=1712412" target="_blank">一色いろは 发表于 2018-10-12 10:49</a>
@@ -9110,16 +5874,10 @@ X呆，狂呆， XX呆
 申请大佬了，id和s1一样
 
 
-
-
-
-
-
 -----
 
 ####  一色いろは  
 ##### 10997#       发表于 2018-10-12 11:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41239498&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-12 10:51</a>
@@ -9128,32 +5886,19 @@ X呆，狂呆， XX呆
 通过了,暂满,还有想加的可以回我找不登录的删(
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 10998#       发表于 2018-10-12 11:11
 
 
-
-
 看了下2期高难介绍 感觉几个BOSS被UP说的好牛逼那<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">萌新瑟瑟发抖
-
-
-
-
-
 
 
 -----
 
 ####  gfm  
 ##### 10999#       发表于 2018-10-12 11:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41239277&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-12 10:35</a>
@@ -9164,26 +5909,15 @@ X呆，狂呆， XX呆
 前后二期抽了200石，就出了1四星还是歪的剑铃鹿
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11000#       发表于 2018-10-12 11:37
 
 
-
 <blockquote>Leona_Akari 发表于 2018-10-12 10:41
 只有我到现在1期还没搬完2期根本没动了。。。</blockquote>
 第四轮是心脏，对萌新来说意义比前面的大多了，可以先刷心脏，回头补其他
-
-
-
-
-
 
 
 -----
@@ -9192,15 +5926,9 @@ X呆，狂呆， XX呆
 ##### 11001#       发表于 2018-10-12 11:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41236038&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-12 00:35</a>
 已加，式里芬秀明，话说你这是真没练度</blockquote>
 因为我就没准备抽这破池子啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9209,15 +5937,9 @@ X呆，狂呆， XX呆
 ##### 11002#       发表于 2018-10-12 12:53
 
 
-
  本帖最后由 五更伪境 于 2018-10-12 12:55 编辑 
 
 DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的游戏呢。[http://delightworks.co.jp/recruit/the_3rd_director_audition/](http://delightworks.co.jp/recruit/the_3rd_director_audition/)
-
-
-
-
-
 
 
 -----
@@ -9226,16 +5948,10 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 ##### 11003#       发表于 2018-10-12 13:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41240882&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-12 12:53</a>
 
 DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的游戏呢。http://delightworks.co.jp/recruit/t ...</blockquote>
 数钱 数到手软了 怎么能结局呢
-
-
-
-
-
 
 
 -----
@@ -9244,16 +5960,10 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 ##### 11004#       发表于 2018-10-12 14:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41240192&amp;ptid=1712412" target="_blank">影之诱惑 发表于 2018-10-12 11:46</a>
 
 因为我就没准备抽这破池子啊</blockquote>
 结果还是没管住手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9262,13 +5972,7 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 ##### 11005#       发表于 2018-10-12 14:26
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">结果还是管不住手+1
-
-
-
-
-
 
 
 -----
@@ -9277,14 +5981,7 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 ##### 11006#       发表于 2018-10-12 14:34
 
 
-
-
 15号维护，职阶up，主线减半。。。
-
-
-
-
-
 
 
 -----
@@ -9293,16 +5990,9 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 ##### 11007#       发表于 2018-10-12 14:37
 
 
-
-
 泳装2要无缝尼禄祭了，是好事呀
 
 卧槽突然想起月底有考试<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9313,28 +6003,19 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  艾尔特翔  
 ##### 11009#       发表于 2018-10-12 14:51
 
 
-
-
 100，104，844，583，安卓，刚入坑2月多的新人，求各种大佬加好友，让我抱大腿<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 11010#       发表于 2018-10-12 15:11
-
 
 
 <blockquote>圈量子 发表于 2018-10-12 14:37
@@ -9345,25 +6026,13 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 11月中考试，每年国服尼禄祭的时间都很不友好
 
 
-
-
-
-
-
 -----
 
 ####  白昼梦  
 ##### 11011#       发表于 2018-10-12 15:56
 
 
-
-
 友情池也太毒了，14w友情一张安徒生，感觉就没见过几张二星的
-
-
-
-
-
 
 
 -----
@@ -9372,14 +6041,7 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 ##### 11012#       发表于 2018-10-12 16:11
 
 
-
-
 【千里眼（瞎）】C- 大幅升级为【运营计划（屑）】C，对割草后的结果进行了臆测
-
-
-
-
-
 
 
 -----
@@ -9388,21 +6050,13 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 ##### 11013#       发表于 2018-10-12 16:12
 
 
-
-
 这游戏新人要入坑熬就是了，颇有一种十年媳妇熬成婆的感觉。
-
-
-
-
-
 
 
 -----
 
 ####  violettor  
 ##### 11014#       发表于 2018-10-12 16:39
-
 
 
  本帖最后由 violettor 于 2018-10-12 16:45 编辑 
@@ -9414,16 +6068,10 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 100,100,108,850 唤雷塔 iOS
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11015#       发表于 2018-10-12 16:54
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">free首通减半倒是可以把减半的全清一圈了
@@ -9431,16 +6079,10 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11016#       发表于 2018-10-12 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41241935&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-12 14:37:44</a>
@@ -9451,25 +6093,13 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 11017#       发表于 2018-10-12 17:06
 
 
-
-
 这减半对我来说和长草没区别，早就把石头清光了
-
-
-
-
-
 
 
 -----
@@ -9478,21 +6108,13 @@ DelightWorks真的开始招三代目了hhh，说好的要做一个有结局的�
 ##### 11018#       发表于 2018-10-12 17:10
 
 
-
-
 FREE首通不包括幕间和强化吧，艹了
-
-
-
-
-
 
 
 -----
 
 ####  devilwing  
 ##### 11019#       发表于 2018-10-12 17:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41243314&amp;ptid=1712412" target="_blank">violettor 发表于 2018-10-12 16:39</a>
@@ -9505,16 +6127,10 @@ FREE首通不包括幕间和强化吧，艹了
 已加，刚好升级有一个空位，id雷萨德，没有小莫只能提供310孔明<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  atomicink  
 ##### 11020#       发表于 2018-10-12 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41238688&amp;ptid=1712412" target="_blank">cmg1987 发表于 2018-10-12 09:35</a>
@@ -9525,24 +6141,13 @@ FREE首通不包括幕间和强化吧，艹了
 抱歉，iOS的
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11021#       发表于 2018-10-12 17:27
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚才脑残，看到打战利品里面有材料掉落，碎石续了。
-
-
-
-
-
 
 
 -----
@@ -9551,21 +6156,13 @@ FREE首通不包括幕间和强化吧，艹了
 ##### 11022#       发表于 2018-10-12 17:58
 
 
-
-
 话说枪奶光会扔摇摇，cv是户松遥，流木野cv户松遥，也会扔摇摇
-
-
-
-
-
 
 
 -----
 
 ####  marxel  
 ##### 11023#       发表于 2018-10-12 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41243721&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-12 17:10</a>
@@ -9576,16 +6173,10 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11024#       发表于 2018-10-12 18:32
-
 
 
 <blockquote>marxel 发表于 2018-10-12 18:28
@@ -9596,32 +6187,19 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 强化肉眼可见还有2次，其中还有1/4ap的
 
 
-
-
-
-
-
 -----
 
 ####  剑士  
 ##### 11025#       发表于 2018-10-12 18:38
 
 
-
-
 无明无梅人士求助，接下来C阶UP，应该投入吗？
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 11026#       发表于 2018-10-12 18:44
-
 
 
 <blockquote>violettor 发表于 2018-10-12 16:39
@@ -9631,16 +6209,10 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 加了 id为s1id
 
 
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 11027#       发表于 2018-10-12 18:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41244681&amp;ptid=1712412" target="_blank">剑士 发表于 2018-10-12 18:38</a>
@@ -9651,25 +6223,13 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 不过马上就UP梅林了，留石头到梅林池感觉更好
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11028#       发表于 2018-10-12 18:53
 
 
-
-
 这么紧凑吗 好歹修养3天左右也好阿
-
-
-
-
-
 
 
 -----
@@ -9678,23 +6238,16 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 ##### 11029#       发表于 2018-10-12 19:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41244681&amp;ptid=1712412" target="_blank">剑士 发表于 2018-10-12 18:38</a>
 
 无明无梅人士求助，接下来C阶UP，应该投入吗？</blockquote>
 先梅林吧，孔明说不定能歪着，fz复刻时也有up
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11030#       发表于 2018-10-12 19:11
-
 
 
 <blockquote>剑士 发表于 2018-10-12 18:38
@@ -9704,17 +6257,10 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 你有多少預算？
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11031#       发表于 2018-10-12 19:33
-
-
 
 
 小號40抽 月月+ 教授，
@@ -9722,16 +6268,10 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 終於完成全男人支援計劃
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11032#       发表于 2018-10-12 19:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41243556&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-12 16:58</a>
@@ -9742,25 +6282,13 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 9910白枪百级宝石，三宝699肯娘，五宝9610R莫，喂倍卡的丸子，孔明花嫁海妈三藏等冲浪队辅助都准备好了，如果预赛不能好好肝真是要死<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11033#       发表于 2018-10-12 19:45
 
 
-
-
 减半之后尼禄祭，尼禄祭完了下总国，还得在下总国之前把主线开位...本还想看看动画玩玩单机呢...
-
-
-
-
-
 
 
 -----
@@ -9769,13 +6297,7 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 ##### 11034#       发表于 2018-10-12 19:59
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">看完尼禄祭又了眼圣诞活动，原来这游戏想肝可以这么吓人的吗
-
-
-
-
-
 
 
 -----
@@ -9784,14 +6306,7 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 ##### 11035#       发表于 2018-10-12 20:24
 
 
-
-
 之前 鬼岛妇科和泳装之间隔了那么久 都够塞下一期的泳装活动了
-
-
-
-
-
 
 
 -----
@@ -9800,16 +6315,10 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 ##### 11036#       发表于 2018-10-12 21:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41245419&amp;ptid=1712412" target="_blank">白昼梦 发表于 2018-10-12 19:59:00</a>
 看完尼禄祭又了眼圣诞活动，原来这游戏想肝可以这么吓人的吗</blockquote>掉半年头发花半年治，习惯了就好<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -9818,16 +6327,9 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 ##### 11037#       发表于 2018-10-12 21:18
 
 
-
-
 三个无限池太近了。。能分点上半年也好啊
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -9836,14 +6338,7 @@ FREE首通不包括幕间和强化吧，艹了</blockquote>
 ##### 11038#       发表于 2018-10-12 21:18
 
 
-
-
 bgo，请放慢脚步等一等吴克玩家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9852,16 +6347,10 @@ bgo，请放慢脚步等一等吴克玩家<img src="https://static.saraba1st.com
 ##### 11039#       发表于 2018-10-12 21:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41242091&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-12 14:51</a>
 
 100，104，844，583，安卓，刚入坑2月多的新人，求各种大佬加好友，让我抱大腿 ...</blockquote>
 id  玛法尔
-
-
-
-
-
 
 
 -----
@@ -9870,14 +6359,7 @@ id  玛法尔
 ##### 11040#       发表于 2018-10-12 21:40
 
 
-
-
 想看凛的泡泡糖糊脸上...
-
-
-
-
-
 
 
 -----
@@ -9886,17 +6368,10 @@ id  玛法尔
 ##### 11041#       发表于 2018-10-12 23:09
 
 
-
-
 打不过一期活动最后的高难... zzzzzzzz 
 
 
 二期高难看起来有很难，感觉打不完高难了
-
-
-
-
-
 
 
 -----
@@ -9905,15 +6380,9 @@ id  玛法尔
 ##### 11042#       发表于 2018-10-12 23:13
 
 
-
  本帖最后由 imlyc4 于 2018-10-12 23:15 编辑 
 
 居然掉礼装了，非洲人居然掉礼装了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -9922,16 +6391,10 @@ id  玛法尔
 ##### 11043#       发表于 2018-10-12 23:31
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41246165&amp;ptid=1712412" target="_blank">dawning 发表于 2018-10-12 21:24</a>
 
 id  玛法尔</blockquote>
 已加,多谢大佬支持
-
-
-
-
-
 
 
 -----
@@ -9940,16 +6403,10 @@ id  玛法尔</blockquote>
 ##### 11044#       发表于 2018-10-13 00:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41244681&amp;ptid=1712412" target="_blank">剑士 发表于 2018-10-12 18:38</a>
 
 无明无梅人士求助，接下来C阶UP，应该投入吗？</blockquote>
 西游、FZ都有单UP，真的不建议强怼。
-
-
-
-
-
 
 
 -----
@@ -9958,14 +6415,7 @@ id  玛法尔</blockquote>
 ##### 11045#       发表于 2018-10-13 00:25
 
 
-
-
 多up狙击特定卡是送命题，而且职阶up是没有限定的，要梅林看接下来的1000wdl啊..
-
-
-
-
-
 
 
 -----
@@ -9974,14 +6424,7 @@ id  玛法尔</blockquote>
 ##### 11046#       发表于 2018-10-13 00:25
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">下半程各队伍获胜语音
-
-
-
-
-
-
 
 
 -----
@@ -9990,21 +6433,13 @@ id  玛法尔</blockquote>
 ##### 11047#       发表于 2018-10-13 00:36
 
 
-
-
 玩的时候我就好奇，骚老头那句「快看啊，那肉体，宛若钢铁」是出自哪里的？
-
-
-
-
-
 
 
 -----
 
 ####  deadog  
 ##### 11048#       发表于 2018-10-13 01:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41247781&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-13 00:36:06</a>
@@ -10014,27 +6449,15 @@ steel is my body and fire is my blood
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  朝仓和美  
 ##### 11049#       发表于 2018-10-13 07:58
 
 
-
-
 《伊修塔尔家计事情》
 
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -10043,21 +6466,15 @@ steel is my body and fire is my blood
 ##### 11050#       发表于 2018-10-13 08:38
 
 
-
-
 崴了脚骨折了进了急诊室，躺着床上一边等着做X光一边迅速肝了四个高难把她百级五宝了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 <img src="https://wx1.sinaimg.cn/mw690/86df480dly1fw6453bjt7j20vk0hsk9z.jpg" referrerpolicy="no-referrer">
 
 老婆真实惠，留了80-100的狗粮一次浪费都没有地吃完了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 2战斗力 +3
@@ -10068,19 +6485,13 @@ steel is my body and fire is my blood
 | dawning| + 2|祝早日康复|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  吾乃啊噗  
 ##### 11051#       发表于 2018-10-13 08:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250038&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-13 08:38</a>
@@ -10091,25 +6502,13 @@ steel is my body and fire is my blood
 啊？太惨了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">早日康复
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11052#       发表于 2018-10-13 08:56
 
 
-
-
 大号高难搞掂了，16回合，SL了几次救梅林，到最后是爷爷奶奶一起上场，不过奶奶只是背景，她出来那一回合就宝红红搞掂了。
-
-
-
-
-
 
 
 -----
@@ -10118,22 +6517,15 @@ steel is my body and fire is my blood
 ##### 11053#       发表于 2018-10-13 09:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250087&amp;ptid=1712412" target="_blank">吾乃啊噗 发表于 2018-10-13 08:50</a>
 啊？太惨了吧早日康复</blockquote>
 还行，小伤不需要动手术，养养就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  minamitsubasa  
 ##### 11054#       发表于 2018-10-13 09:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250038&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-13 08:38</a>
@@ -10145,17 +6537,10 @@ steel is my body and fire is my blood
 不容易不容易
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 11055#       发表于 2018-10-13 09:49
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/13/094903nyyh39m8o91fyl1r.png" referrerpolicy="no-referrer">
@@ -10168,28 +6553,16 @@ steel is my body and fire is my blood
 2018-10-13 09:49 上传
 
 
-
-
-
-
-
 当排水泥被南丁一拳打死了，后边上来B叔，又被南丁一拳打死了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
 我阿瓦隆剑圣今天就亲自出手收拾你
 
 
-
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 11056#       发表于 2018-10-13 09:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250038&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-13 08:38</a>
@@ -10201,16 +6574,10 @@ steel is my body and fire is my blood
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">赶紧喝点奇奇神酒泡凶骨
 
 
-
-
-
-
-
 -----
 
 ####  朝仓和美  
 ##### 11057#       发表于 2018-10-13 09:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250499&amp;ptid=1712412" target="_blank">麻花疼 发表于 2018-10-13 09:50</a>
@@ -10220,16 +6587,10 @@ steel is my body and fire is my blood
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  gearbox  
 ##### 11058#       发表于 2018-10-13 10:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250256&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-13 09:19</a>
@@ -10238,16 +6599,10 @@ steel is my body and fire is my blood
 买点保养的好好休养吧
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11059#       发表于 2018-10-13 10:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250534&amp;ptid=1712412" target="_blank">朝仓和美 发表于 2018-10-13 09:55</a>
@@ -10261,16 +6616,10 @@ steel is my body and fire is my blood
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11060#       发表于 2018-10-13 10:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250696&amp;ptid=1712412" target="_blank">marxel 发表于 2018-10-13 10:15</a>
@@ -10282,16 +6631,10 @@ steel is my body and fire is my blood
 不对啊，骨折是外科，明显要叫杰克才对啊。
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11061#       发表于 2018-10-13 10:52
-
 
 
 <blockquote>麻花疼 发表于 2018-10-13 09:49
@@ -10302,16 +6645,10 @@ steel is my body and fire is my blood
 燕青这关感觉用三藏比较好 南丁开始想办法快速击杀 不然打人太疼了
 
 
-
-
-
-
-
 -----
 
 ####  白昼梦  
 ##### 11062#       发表于 2018-10-13 10:55
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">b梅梅疯狂苟，场面极其丢人。
@@ -10319,17 +6656,10 @@ steel is my body and fire is my blood
 不过叠阿瓦隆真的爽啊
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11063#       发表于 2018-10-13 11:00
-
-
 
 
 几个普通高难本都用孔梅+大佬的黑狗过去的，黑狗真的强啊。。。明年和cba一起up看来要抽爆了。。
@@ -10339,25 +6669,13 @@ steel is my body and fire is my blood
 等我令咒回满再去打灵衣了<img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11064#       发表于 2018-10-13 11:18
 
 
-
-
 还在等自回体打高难 刚好三藏学妹梅林组合 之前只是为了灵衣和0消耗练的 没想到那么强阿。公牛之前试了下水 带的枪狐 梅林 学妹 斯卡哈 王哈桑 嫖了个2宝王哈 打到最后条血60WHP时翻车… 可惜只有2令咒算算用完也不一定能干过怂一波等3令咒了 再去干。可惜没有白贞 不然应该磨的死
-
-
-
-
-
 
 
 -----
@@ -10366,14 +6684,7 @@ steel is my body and fire is my blood
 ##### 11065#       发表于 2018-10-13 11:29
 
 
-
-
 23个呼符+两个10连，水黑呆+枪奶光到手，水黑呆还是梅芙灵衣给的呼符出的<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10384,21 +6695,13 @@ steel is my body and fire is my blood
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gearbox  
 ##### 11067#       发表于 2018-10-13 11:40
 
 
-
-
 借萨米尔大佬王哈单挑公牛，结果最后一条血疯狂吃红down，不得不令咒回血吃了顶了一下过了
-
-
-
-
-
 
 
 -----
@@ -10407,14 +6710,7 @@ steel is my body and fire is my blood
 ##### 11068#       发表于 2018-10-13 11:53
 
 
-
-
 没王哈只能嫖好友的王哈……只能翻车交令咒了
-
-
-
-
-
 
 
 -----
@@ -10423,13 +6719,7 @@ steel is my body and fire is my blood
 ##### 11069#       发表于 2018-10-13 11:54
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没杀阶 双拐嫖杰克疯狂翻，该找个王哈蹭了
-
-
-
-
-
 
 
 -----
@@ -10438,21 +6728,13 @@ steel is my body and fire is my blood
 ##### 11070#       发表于 2018-10-13 12:04
 
 
-
-
 二期的高难全打了，天牛最后剩20w血团灭了，于是开了三令咒强推了，主要是没控好学妹的血量死得太早，再来一次应该能过，剩下几个毫无难度，二姐全程没让狼王放过宝具，小恩单体剑就能收拾了，小乙哥那里打人很疼但没什么用，仇R继续靠BB，也就梅芙那里在倒数第二回合孔老师被集火下场，然后下一回合杰克素质三连加暴击直接砍掉一条血，打完觉得杰克打女性手感真是爽，可惜杀饼干告急技能点不上去，无限池快来吧
-
-
-
-
-
 
 
 -----
 
 ####  Mr.BBWoLf  
 ##### 11071#       发表于 2018-10-13 12:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41248398&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-13 01:53</a>
@@ -10463,25 +6745,13 @@ steel is my body and fire is my blood</blockquote>
 应该不是，我第一反应是jojo里配角解说情况形容主角不屈不挠的台词<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，可仔细一想，没人那么说过
 
 
-
-
-
-
-
 -----
 
 ####  violettor  
 ##### 11072#       发表于 2018-10-13 12:25
 
 
-
-
 天牛打不过啊...求一个棱镜白贞大佬...iOS 100,100,108,850
-
-
-
-
-
 
 
 -----
@@ -10490,16 +6760,10 @@ steel is my body and fire is my blood</blockquote>
 ##### 11073#       发表于 2018-10-13 12:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41250112&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-13 08:56</a>
 
 大号高难搞掂了，16回合，SL了几次救梅林，到最后是爷爷奶奶一起上场，不过奶奶只是背景，她出来那一回合就 ...</blockquote>
 奶奶是谁？
-
-
-
-
-
 
 
 -----
@@ -10508,14 +6772,7 @@ steel is my body and fire is my blood</blockquote>
 ##### 11074#       发表于 2018-10-13 12:35
 
 
-
-
 顺便这泳装的剧情真是一言难尽，明明开场和一期那么棒，结果二期的越狱剧情毫无紧张感不说，梅芙除了奉献了灵衣和出浴CG之外完全就是个路人，然而虽然开了灵衣但我没有梅芙......以及全8轮尼托队没拿过一次冠军我也是醉了，幸好我全程刷她那组比较多，最后让她在我这里拿了总冠军哇哈哈哈哈
-
-
-
-
-
 
 
 -----
@@ -10524,16 +6781,10 @@ steel is my body and fire is my blood</blockquote>
 ##### 11075#       发表于 2018-10-13 12:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41251800&amp;ptid=1712412" target="_blank">angelooo 发表于 2018-10-13 12:35</a>
 
 顺便这泳装的剧情真是一言难尽，明明开场和一期那么棒，结果二期的越狱剧情毫无紧张感不说，梅芙除了奉献了 ...</blockquote>
 第一次和这一次的泳装活动都是二期让人一言难尽
-
-
-
-
-
 
 
 -----
@@ -10542,15 +6793,8 @@ steel is my body and fire is my blood</blockquote>
 ##### 11076#       发表于 2018-10-13 13:19
 
 
-
-
 高难打完了 感觉没有视频攻略里说的那么难啊 妹夫本直接带的梅林学妹一次无敌梅林一个无敌够用了死不了 黑杯杰克一宝具一管血拿脚打用不着上白贞
 公牛本 嫖了个爷爷 狗蛋清了弓凛，二面还能打两下就下去了然后瞎几把打 等杰克大龙娘等全部死完就拿王哈单挑 令咒充了两管血也打完了...
-
-
-
-
-
 
 
 -----
@@ -10559,16 +6803,9 @@ steel is my body and fire is my blood</blockquote>
 ##### 11077#       发表于 2018-10-13 13:20
 
 
-
-
 这次二期也算到合格线了，加上一期整体还是个不错的活动
 
 你想去年泳装二期等于没有文案，伏笔又过于明显被所有人都猜到结局完全0惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这次剧情还没无聊到那个程度，最后凛得逞，凛雄起，凛吃瘪，挺不错的
-
-
-
-
-
 
 
 -----
@@ -10577,22 +6814,13 @@ steel is my body and fire is my blood</blockquote>
 ##### 11078#       发表于 2018-10-13 13:29
 
 
-
-
 二期泳装 给我印象最深的是尼禄的歌声 凛最后的表现 还有就是后日谈里尼禄和黑无毛 比咕哒子更爱谁那段 都挺有意思的 其他的感觉不过不失吧 
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 11079#       发表于 2018-10-13 13:40
-
-
 
 
 去年泳装二期就是看一群猪在那里瞎BB，一期的时候还觉得蛮可爱的，到了二期就剩下我勒个去你们能不能快点滚
@@ -10602,25 +6830,13 @@ steel is my body and fire is my blood</blockquote>
 以及因为最后走的是尼托队的结局，加上先前一期的一些塑造，感觉1001的角色还是救回来了一点（并不是因为我歪到了她我才这么说囧）
 
 
-
-
-
-
-
 -----
 
 ####  chirlley  
 ##### 11080#       发表于 2018-10-13 13:43
 
 
-
-
 友情玄学出了水泥 泳装圆满了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">前面歪的四个五星都想弃坑了.....太好了不用等明年复刻了
-
-
-
-
-
 
 
 -----
@@ -10629,14 +6845,7 @@ steel is my body and fire is my blood</blockquote>
 ##### 11081#       发表于 2018-10-13 13:51
 
 
-
-
 特斯拉和爱迪生两个死萝莉控，萝莉真好啊
-
-
-
-
-
 
 
 -----
@@ -10645,23 +6854,16 @@ steel is my body and fire is my blood</blockquote>
 ##### 11082#       发表于 2018-10-13 14:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41251793&amp;ptid=1712412" target="_blank">Blackson 发表于 2018-10-13 12:34</a>
 
 奶奶是谁？</blockquote>
 紫色头发那个奶奶啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  GALLADE  
 ##### 11083#       发表于 2018-10-13 14:11
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41252346&amp;ptid=1712412" target="_blank">angelooo 发表于 2018-10-13 13:40</a>
@@ -10673,17 +6875,10 @@ steel is my body and fire is my blood</blockquote>
 一期如果说轻松欢乐那是可以，但其实剧情没什么嚼头
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11084#       发表于 2018-10-13 14:13
-
-
 
 
 完了。。
@@ -10693,16 +6888,10 @@ steel is my body and fire is my blood</blockquote>
 完了
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 11085#       发表于 2018-10-13 14:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41252548&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-13 14:06</a>
@@ -10711,16 +6900,10 @@ steel is my body and fire is my blood</blockquote>
 递上神性+弓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 11086#       发表于 2018-10-13 14:26
-
 
 
  本帖最后由 Blackson 于 2018-10-13 14:27 编辑 
@@ -10736,15 +6919,8 @@ steel is my body and fire is my blood</blockquote>
 最后碎石头复活全队解决天牛，想了想，找个号用一下最原始的为所欲为好了
 
 
-
-
-
-
-
 20181013_IMG_2845.PNG
 (1.83 MB, 下载次数: 3)
-
-
 
 
 下载附件
@@ -10753,24 +6929,7 @@ steel is my body and fire is my blood</blockquote>
 2018-10-13 14:25 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/13/142505dubguf2t00w78gbb.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -10779,14 +6938,7 @@ steel is my body and fire is my blood</blockquote>
 ##### 11087#       发表于 2018-10-13 14:31
 
 
-
-
 天牛抱好友的310王哈过了，体验感不错，越来越想要了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10795,14 +6947,7 @@ steel is my body and fire is my blood</blockquote>
 ##### 11088#       发表于 2018-10-13 14:34
 
 
-
-
 你们既然在谈泳装猪了 谁给我解释下泳装凛脚边那猪怎么回事
-
-
-
-
-
 
 
 -----
@@ -10811,16 +6956,9 @@ steel is my body and fire is my blood</blockquote>
 ##### 11089#       发表于 2018-10-13 14:36
 
 
-
-
 感谢活动高难，让我想起还有BB这个从者。B梅狐宝具扔了半天，抬头一看才十回合<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -10829,14 +6967,7 @@ steel is my body and fire is my blood</blockquote>
 ##### 11090#       发表于 2018-10-13 14:42
 
 
-
-
 怎么看别的从者的通关剧情啊...因为缺狗粮之前都刷的海伦娜组...但是我想看罗马啊...
-
-
-
-
-
 
 
 -----
@@ -10845,14 +6976,7 @@ steel is my body and fire is my blood</blockquote>
 ##### 11091#       发表于 2018-10-13 14:46
 
 
-
-
 小号14回合公牛，真是有毒<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10861,14 +6985,7 @@ steel is my body and fire is my blood</blockquote>
 ##### 11092#       发表于 2018-10-13 14:54
 
 
-
-
 天牛高难很简单阿，自己带个孔梅保大佬的五宝爷爷轻松过了(SL一次)，公牛把孔梅早早踢走真是帮大忙了。
-
-
-
-
-
 
 
 -----
@@ -10877,16 +6994,10 @@ steel is my body and fire is my blood</blockquote>
 ##### 11093#       发表于 2018-10-13 14:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41252750&amp;ptid=1712412" target="_blank">国王 发表于 2018-10-13 14:34</a>
 
 你们既然在谈泳装猪了 谁给我解释下泳装凛脚边那猪怎么回事</blockquote>
 那个就是天之公牛的幼体，不是猪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10895,14 +7006,7 @@ steel is my body and fire is my blood</blockquote>
 ##### 11094#       发表于 2018-10-13 15:01
 
 
-
-
 打完梅芙想捞一张小恩的礼装，却抽到了弓海伦娜…
-
-
-
-
-
 
 
 -----
@@ -10911,24 +7015,15 @@ steel is my body and fire is my blood</blockquote>
 ##### 11095#       发表于 2018-10-13 15:03
 
 
-
-
 emm看大佬们的交流，高难本我应该是不用碰了
 
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3-play
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 11096#       发表于 2018-10-13 15:05
-
-
 
 
 <img src="https://img.saraba1st.com/forum/201810/13/150503qez2quiwxpsahaai.jpg" referrerpolicy="no-referrer">
@@ -10941,10 +7036,6 @@ emm看大佬们的交流，高难本我应该是不用碰了
 2018-10-13 15:05 上传
 
 
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/13/150520br1iiu309t20ai1y.jpg" referrerpolicy="no-referrer">
 
 
@@ -10955,17 +7046,7 @@ emm看大佬们的交流，高难本我应该是不用碰了
 2018-10-13 15:05 上传
 
 
-
-
-
-
-
 全程没有翻车点，毕竟日服都打熟了，国服抄个作业就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -10974,14 +7055,7 @@ emm看大佬们的交流，高难本我应该是不用碰了
 ##### 11097#       发表于 2018-10-13 15:17
 
 
-
-
 喷了，二期的四个点不是按顺序从左到右排，带错礼装进本亏大了…
-
-
-
-
-
 
 
 -----
@@ -10992,21 +7066,13 @@ emm看大佬们的交流，高难本我应该是不用碰了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gjd198692  
 ##### 11099#       发表于 2018-10-13 15:30
 
 
-
-
 戈尔弓干掉了 等自回打梅孚 这次高难领略了一把BB的imba 打仇阶都像在打弟弟
-
-
-
-
-
 
 
 -----
@@ -11015,14 +7081,7 @@ emm看大佬们的交流，高难本我应该是不用碰了
 ##### 11100#       发表于 2018-10-13 15:31
 
 
-
-
 说起来tm社对bb真爱呐唯一的职介 导致这角色太特殊了 
-
-
-
-
-
 
 
 -----
@@ -11031,22 +7090,13 @@ emm看大佬们的交流，高难本我应该是不用碰了
 ##### 11101#       发表于 2018-10-13 15:32
 
 
-
-
 而且我才发现bb的针筒里全是稀有素材呐！难怪外号叫败家娘们
-
-
-
-
-
 
 
 -----
 
 ####  Blackson  
 ##### 11102#       发表于 2018-10-13 15:34
-
-
 
 
 果然这本MVP是王哈，换其它人还不一定能撑得住天牛的天残脚
@@ -11058,16 +7108,10 @@ emm看大佬们的交流，高难本我应该是不用碰了
 即使不要艾蕾也罢，但是外乡人岂能不要呢？！真是纠结。
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11103#       发表于 2018-10-13 15:40
-
 
 
 <blockquote>Blackson 发表于 2018-10-13 15:34
@@ -11078,16 +7122,10 @@ emm看大佬们的交流，高难本我应该是不用碰了
 据说这本王哈甚至可以单挑 不知真假
 
 
-
-
-
-
-
 -----
 
 ####  Blackson  
 ##### 11104#       发表于 2018-10-13 15:43
-
 
 
  本帖最后由 Blackson 于 2018-10-13 15:49 编辑 
@@ -11105,16 +7143,10 @@ emm看大佬们的交流，高难本我应该是不用碰了
 因此看出王哈还是必须得要拿到手的，不仅是天牛，往后砍树还得要它才行
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 11105#       发表于 2018-10-13 15:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253241&amp;ptid=1712412" target="_blank">Blackson 发表于 2018-10-13 15:43</a>
@@ -11125,32 +7157,19 @@ emm看大佬们的交流，高难本我应该是不用碰了
 一千块钱一年用五次，不值啊
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11106#       发表于 2018-10-13 15:57
 
 
-
-
 话说戈尔工小恩燕青都是随便打啊
-
-
-
-
-
 
 
 -----
 
 ####  deadog  
 ##### 11107#       发表于 2018-10-13 15:58
-
 
 
  本帖最后由 deadog 于 2018-10-13 16:33 编辑 
@@ -11160,14 +7179,8 @@ emm看大佬们的交流，高难本我应该是不用碰了
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
 Screenshot_2018-10-13-15-41-32.png
 (1.42 MB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -11176,27 +7189,11 @@ Screenshot_2018-10-13-15-41-32.png
 2018-10-13 16:33 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/13/163302uc7nw6c08x26i2ar.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
 
 
 Screenshot_2018-10-13-15-40-17.png
 (399.47 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -11205,24 +7202,7 @@ Screenshot_2018-10-13-15-40-17.png
 2018-10-13 16:31 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/13/163114od7uyytjp7yohgot.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -11231,16 +7211,10 @@ Screenshot_2018-10-13-15-40-17.png
 ##### 11108#       发表于 2018-10-13 15:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253322&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 15:57:43</a>
 话说戈尔工小恩燕青都是随便打啊</blockquote>变南丁的时候还是有点凶险的
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -11249,14 +7223,7 @@ Screenshot_2018-10-13-15-40-17.png
 ##### 11109#       发表于 2018-10-13 16:00
 
 
-
-
 bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
-
-
-
-
-
 
 
 -----
@@ -11265,21 +7232,13 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 ##### 11110#       发表于 2018-10-13 16:00
 
 
-
-
 枪奶光宝具的台词帅（中二）得不行，一撩头发然后一个保龄球推白看不厌，家里人经过时吓得赶紧缩小游戏
-
-
-
-
-
 
 
 -----
 
 ####  Blackson  
 ##### 11111#       发表于 2018-10-13 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253308&amp;ptid=1712412" target="_blank">sandro 发表于 2018-10-13 15:55</a>
@@ -11290,16 +7249,10 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 能省点心的话贵点也能接受（如果超出财力的承受范围的话还是收手比较好）
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 11112#       发表于 2018-10-13 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253348&amp;ptid=1712412" target="_blank">Blackson 发表于 2018-10-13 16:02</a>
@@ -11309,16 +7262,10 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 我上次五单没出，失望的一笔
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11113#       发表于 2018-10-13 16:07
-
 
 
 <blockquote>deadog 发表于 2018-10-13 15:58
@@ -11329,16 +7276,10 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 变南丁之前放个麻痹，之后一发金刚杵+暴击出燕青真身，然后随便打。
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11114#       发表于 2018-10-13 16:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253308&amp;ptid=1712412" target="_blank">sandro 发表于 2018-10-13 15:55</a>
@@ -11347,25 +7288,13 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 你要这么衡量那就只有白嫖是值的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  loaflace  
 ##### 11115#       发表于 2018-10-13 16:09
 
 
-
-
 在等我的5宝王哈好友上线，好急<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11374,16 +7303,10 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 ##### 11116#       发表于 2018-10-13 16:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253382&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:07</a>
 
 变南丁之前放个麻痹，之后一发金刚杵+暴击出燕青真身，然后随便打。</blockquote>
 没仔细做功课是这样啦，倒也没多大事，前几个本排个克制阵容就都是脚打
-
-
-
-
-
 
 
 -----
@@ -11392,21 +7315,13 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 ##### 11117#       发表于 2018-10-13 16:10
 
 
-
-
 水尼托打np的效率有点低，蓝卡加暴击也就打那么一点
-
-
-
-
-
 
 
 -----
 
 ####  deadog  
 ##### 11118#       发表于 2018-10-13 16:13
-
 
 
  本帖最后由 deadog 于 2018-10-13 16:18 编辑 
@@ -11416,26 +7331,15 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 123技能一起开，挨打才涨的快，不过就算这样周回大概也没什么上场机会
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11119#       发表于 2018-10-13 16:16
 
 
-
 <blockquote>minamitsubasa 发表于 2018-10-13 16:10
 水尼托打np的效率有点低，蓝卡加暴击也就打那么一点</blockquote>
 水尼应该是这期泳装最弱的吧，杀阶蓝光炮如果没有即死实用性可能会更大，即死反而没np了。
-
-
-
-
-
 
 
 -----
@@ -11444,14 +7348,7 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 ##### 11120#       发表于 2018-10-13 16:18
 
 
-
-
 话说这游戏是不是进入了梅林依赖症呢？打大型多血条boss基本上就是看阿瓦隆
-
-
-
-
-
 
 
 -----
@@ -11460,14 +7357,7 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 ##### 11121#       发表于 2018-10-13 16:26
 
 
-
-
 双梅林+奶光为所欲为。。。
-
-
-
-
-
 
 
 -----
@@ -11476,16 +7366,9 @@ bb打仇阶就是打弟弟啊，至于公牛我没三个令咒，赢碎石了…
 ##### 11122#       发表于 2018-10-13 16:27
 
 
-
-
 bb的活动明年会有复刻吗，毕竟只有一个月癌
 
 另外看废狗wiki上还有一个5星的bb不知道什么时候出？
-
-
-
-
-
 
 
 -----
@@ -11494,16 +7377,10 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 ##### 11123#       发表于 2018-10-13 16:28
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253471&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:18</a>
 
 话说这游戏是不是进入了梅林依赖症呢？打大型多血条boss基本上就是看阿瓦隆 ...</blockquote>
 需要考虑一次次脸接宝具的有效解没几个
-
-
-
-
-
 
 
 -----
@@ -11512,14 +7389,7 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 ##### 11124#       发表于 2018-10-13 16:30
 
 
-
-
 但是想想这游戏要是没有孔梅的话难度会激增很多吧 反正我觉得没有孔梅很多本不碎石我是不可能打过来 就算有3条令咒也一样 
-
-
-
-
-
 
 
 -----
@@ -11528,23 +7398,16 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 ##### 11125#       发表于 2018-10-13 16:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253471&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:18</a>
 
 话说这游戏是不是进入了梅林依赖症呢？打大型多血条boss基本上就是看阿瓦隆 ...</blockquote>
 主要是对面太强，我方能用来应对的手段太少
 
 
-
-
-
-
-
 -----
 
 ####  序曲  
 ##### 11126#       发表于 2018-10-13 16:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253471&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:18</a>
@@ -11555,16 +7418,10 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 然而村姑自身NP效率不行，需要有一个5T一次全员20NP，自身每T5NP，一次宝具5T每T5NP的NP加油机来辅助<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11127#       发表于 2018-10-13 16:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253471&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:18</a>
@@ -11573,16 +7430,10 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 但是如果没有梅林，多血条Boss战血线分分钟有崩的可能，梅林出来后1.5.1就开始出现多血条的Boss就是为了限制梅林一回合秒Boss，但是出了多血条Boss后没有梅林又分分钟有暴毙的可能，真是矛盾。
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11128#       发表于 2018-10-13 16:40
-
 
 
 <blockquote>khxooo 发表于 2018-10-13 16:38
@@ -11592,16 +7443,10 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 结果就是新玩家不得不买梅林初始号，而越来越强的boss就必须要依赖梅林。
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 11129#       发表于 2018-10-13 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253458&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:16</a>
@@ -11610,16 +7455,10 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 虽然实际上是这样，但卡面赢了，我去年如果不是看到她的卡面甚至不会入坑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11130#       发表于 2018-10-13 16:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253458&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:16</a>
@@ -11628,16 +7467,10 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 但是就凭那魔性的卡面/指令卡/模型，真是独一无二的卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 11131#       发表于 2018-10-13 16:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253581&amp;ptid=1712412" target="_blank">序曲 发表于 2018-10-13 16:32</a>
@@ -11650,16 +7483,10 @@ bb的活动明年会有复刻吗，毕竟只有一个月癌
 NP我也发现了，天牛宝具过来她宝具还没周转好，然后残血的学妹就躺了，战线迅速崩盘
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11132#       发表于 2018-10-13 16:51
-
 
 
  本帖最后由 deadog 于 2018-10-13 17:00 编辑 
@@ -11671,16 +7498,10 @@ NP我也发现了，天牛宝具过来她宝具还没周转好，然后残血的
 因为梅林就是个策划用脚想出来的从者，具备过去任何单一从者无法实现的复合功能（未来恐怕也不会有），把队伍上限提高到了旧体系无法达成的高度。高难如果不能对梅林体系构成威胁，那梅林就成了最优解；高难对梅林体系构成威胁，其他阵容也一样很难处理。
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11133#       发表于 2018-10-13 16:52
-
 
 
  本帖最后由 deadog 于 2018-10-13 16:55 编辑 
@@ -11692,16 +7513,10 @@ NP我 ...</blockquote>
 村姑带棱镜，除了凑蓝chain和关键NP罚站就好，出她的指令卡太浪费。贞德这次是梅林的替代品，没办法的办法，23技能都是摆设，唯一可取之处就是宝具了。
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 11134#       发表于 2018-10-13 16:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253678&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-13 16:45</a>
@@ -11712,16 +7527,10 @@ NP我 ...</blockquote>
 我每回合都期待着能凑出素质三连<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11135#       发表于 2018-10-13 16:56
-
 
 
 <blockquote>deadog 发表于 2018-10-13 16:51
@@ -11729,17 +7538,10 @@ NP我 ...</blockquote>
 其实很早以前，就看出不怎么认真做游戏的态度。就说说孔明吧，初版孔明三个技能不加np，然后成为五星之耻吗？
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11136#       发表于 2018-10-13 16:57
-
-
 
 
 水尼托还有一个好玩的
@@ -11751,16 +7553,10 @@ NP我 ...</blockquote>
 太魔性了2333<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11137#       发表于 2018-10-13 16:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253765&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:56</a>
@@ -11769,27 +7565,15 @@ NP我 ...</blockquote>
 听说当年型月本来是准备捞一票跑路的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  milizzy  
 ##### 11138#       发表于 2018-10-13 17:04
 
 
-
-
 没看攻略。。看到狼王是仇就B盾梅进去了。第一发宝具强化解除学妹然后把学妹送下去了。还以为要翻车。。结果带的友情点礼装的黑贞上来慢慢磨满NP打到第二条血。然后黑贞宝蓝红直接一管血打掉。。然后BB一个宝具再打了半管血被狼王送下去。。黑贞暴击收拾了狼王。。黑贞真是强
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -11798,16 +7582,10 @@ NP我 ...</blockquote>
 ##### 11139#       发表于 2018-10-13 17:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253784&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-13 16:58</a>
 
 听说当年型月本来是准备捞一票跑路的</blockquote>
 蘑菇自己都说只是预期做一年捞钱的<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11816,24 +7594,16 @@ NP我 ...</blockquote>
 ##### 11140#       发表于 2018-10-13 17:08
 
 
-
-
 那个，问一下大佬们，新人把监狱的礼装换完之后是换芙芙还是换素材
 
 
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11141#       发表于 2018-10-13 17:10
-
 
 
  本帖最后由 deadog 于 2018-10-13 17:12 编辑 
@@ -11843,16 +7613,10 @@ NP我 ...</blockquote>
 推荐换芙芙，然后换要培养的主力从者的素材。如果你急缺棋子，先换棋子。
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11142#       发表于 2018-10-13 17:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253581&amp;ptid=1712412" target="_blank">序曲 发表于 2018-10-13 16:32</a>
@@ -11865,25 +7629,13 @@ NP我 ...</blockquote>
 不过反正我自己的4宝村姑完全没点过技能就是了
 
 
-
-
-
-
-
 -----
 
 ####  107656818  
 ##### 11143#       发表于 2018-10-13 17:33
 
 
-
-
 公牛本最后费了三发令咒，第三管血公牛刀刀暴击，贞德的宝具最后没回转过来，不过我的贞德宝具只有1个，1000血还是太少了，如果有2000的话那贞德就非常强了
-
-
-
-
-
 
 
 -----
@@ -11892,16 +7644,9 @@ NP我 ...</blockquote>
 ##### 11144#       发表于 2018-10-13 17:40
 
 
-
-
 公牛连续暴击<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，直接被打残了，
 
 不过，没有一发令咒解决不了的，有就三发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -11910,21 +7655,13 @@ NP我 ...</blockquote>
 ##### 11145#       发表于 2018-10-13 17:46
 
 
-
-
 没找到5宝王哈的助战，只能用自己80级的杀式，宝具威力还是太低了，时间一长公牛一个强化解除真是伤。
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 11146#       发表于 2018-10-13 18:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253539&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-13 16:27</a>
@@ -11937,11 +7674,6 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 五星BB明年新泳装活动的池子可以抽
 
 
-
-
-
-
-
 -----
 
 ####  光太郎  
@@ -11950,13 +7682,10 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  南宮凝香  
 ##### 11148#       发表于 2018-10-13 18:53
-
-
 
 
 我老婆實際是梅林系統的延伸枝
@@ -11975,17 +7704,10 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 技能本真名看破變成50% +降爆擊就行了
 
 
-
-
-
-
-
 -----
 
 ####  dawning  
 ##### 11149#       发表于 2018-10-13 19:05
-
-
 
 
 白贞打高难，现在真是强<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
@@ -11993,17 +7715,10 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 不过我还是把金芙芙给了黑贞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  matrixtheory  
 ##### 11150#       发表于 2018-10-13 19:07
-
-
 
 
 天牛是不是有神性？为什么我嫖的娜娜子礼装小太阳削它跟削自己弟弟一样？
@@ -12013,16 +7728,10 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11151#       发表于 2018-10-13 19:13
-
 
 
  本帖最后由 南宮凝香 于 2018-10-13 19:16 编辑 
@@ -12039,16 +7748,10 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 等出了攻血互換的效果後一旗子下去腦醬也打出來
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11152#       发表于 2018-10-13 19:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41254803&amp;ptid=1712412" target="_blank">matrixtheory 发表于 2018-10-13 19:07</a>
@@ -12059,17 +7762,10 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 神兽当然有神性啊
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11153#       发表于 2018-10-13 19:17
-
-
 
 
 可惜你游都是定值回血，不然白贞就真日天了
@@ -12077,16 +7773,10 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  matrixtheory  
 ##### 11154#       发表于 2018-10-13 19:18
-
 
 
 <blockquote>引用第11152楼Mr.BBWoLf于2018-10-13 19:15发表的  :
@@ -12100,32 +7790,19 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.33)
 
 
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 11155#       发表于 2018-10-13 19:33
 
 
-
-
 王哈无敌，大半程单挑，16回合解决了公牛
-
-
-
-
-
 
 
 -----
 
 ####  hylq2100  
 ##### 11156#       发表于 2018-10-13 19:36
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">非要用王哈单挑是误区呀
@@ -12136,32 +7813,19 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 214+双白贞脚打就行了，无脑蓝卡三连
 
 
-
-
-
-
-
 -----
 
 ####  Donglinjie  
 ##### 11157#       发表于 2018-10-13 20:04
 
 
-
-
 抱了个白贞瞎JB打到还剩20W血，想了想还是直接交石头好了。懒得用好友王哈再打一遍了
-
-
-
-
-
 
 
 -----
 
 ####  jy02394668  
 ##### 11158#       发表于 2018-10-13 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41254063&amp;ptid=1712412" target="_blank">107656818 发表于 2018-10-13 17:33</a>
@@ -12172,25 +7836,13 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 不过从5%的盾，变成15%
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11159#       发表于 2018-10-13 20:19
 
 
-
-
 纪念伊利亚剧场版…
-
-
-
-
-
 
 
 -----
@@ -12199,20 +7851,13 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 ##### 11160#       发表于 2018-10-13 20:20
 
 
-
 <blockquote>gjd198692 发表于 2018-10-13 20:19
 纪念伊利亚剧场版…</blockquote>
 于是这就尴尬了😅我是用令咒回血继续打 还是等过12点三令咒复活在打好呢
 
 
-
-
-
-
 000CD23C-E20D-40D6-915A-0EA180F2FA59.png
 (320.71 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -12221,24 +7866,7 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 2018-10-13 20:20 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/13/202032ev68yl662brppviq.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -12249,23 +7877,15 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  manu88wh  
 ##### 11162#       发表于 2018-10-13 20:24
 
 
-
-
 王哈单挑啊
 
 上两个干啥?
-
-
-
-
-
 
 
 -----
@@ -12274,14 +7894,7 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 ##### 11163#       发表于 2018-10-13 21:00
 
 
-
-
 魔伊抽爆呀<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12290,16 +7903,9 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 ##### 11164#       发表于 2018-10-13 21:02
 
 
-
-
 抱了一个王哈。。结果用了两发令咒才过。。
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
-
-
-
-
-
 
 
 -----
@@ -12308,23 +7914,16 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 ##### 11165#       发表于 2018-10-13 21:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41255761&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-13 21:00</a>
 
 魔伊抽爆呀伊利亚她真美丽</blockquote>
 你的钱包还好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11166#       发表于 2018-10-13 21:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41255905&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-13 21:14</a>
@@ -12335,25 +7934,13 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 我在BGO课的钱到现在连一平方都买不起，无所谓了（自暴自弃了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  wfantasia  
 ##### 11167#       发表于 2018-10-13 21:22
 
 
-
-
 上次联动2单抽了3个伊利亚，就是美游还少一张
-
-
-
-
-
 
 
 -----
@@ -12362,21 +7949,13 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 ##### 11168#       发表于 2018-10-13 21:26
 
 
-
-
 我永远喜欢bb，又强大又可爱，是爱情的滋味<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hylq2100  
 ##### 11169#       发表于 2018-10-13 21:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41255941&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-13 21:18</a>
@@ -12387,32 +7966,19 @@ CCC千里眼目前范围内没有复刻，但现在空境FZ这样的联动都复
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">这一平方是10W吧
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 11170#       发表于 2018-10-13 21:29
 
 
-
-
 bb真好，又强大又可爱，是爱情的滋味
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 11171#       发表于 2018-10-13 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41256043&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-13 21:28</a>
@@ -12423,32 +7989,19 @@ bb真好，又强大又可爱，是爱情的滋味
 我上次看过apple账单的，我BGO到现在也就十多单。。。不要以为我课的很多，我氪金本身的目标都是1宝的，然后豹了或者歪了（
 
 
-
-
-
-
-
 -----
 
 ####  微醺  
 ##### 11172#       发表于 2018-10-13 21:38
 
 
-
-
 求个神性特攻礼装310王哈好友过一下高难，100,119,188,134，用完要删要留请随意<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  SAGA0Arcueid  
 ##### 11173#       发表于 2018-10-13 21:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41253382&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-13 16:07</a>
@@ -12460,27 +8013,15 @@ bb真好，又强大又可爱，是爱情的滋味
 结果靠着稳定的回血和堆到后面每回合5000的毒伤稳稳过了……三个盾开了以后人体理解的南丁打狐狸全是0
 
 
-
-
-
-
-
 -----
 
 ####  影之诱惑  
 ##### 11174#       发表于 2018-10-13 21:56
 
 
-
-
 bb亲天下第一可爱（二期泳装限定
 
 嫖1宝王哈脸接弓凛宝具交3令咒拿结晶跑路
-
-
-
-
-
 
 
 -----
@@ -12489,14 +8030,7 @@ bb亲天下第一可爱（二期泳装限定
 ##### 11175#       发表于 2018-10-13 21:56
 
 
-
-
 我也过了 交了两个令咒   接下来就是搬砖了 26的加成一次也就能搬6个棋子 罪阿 但考虑到尼禄祭又不得不搬
-
-
-
-
-
 
 
 -----
@@ -12505,21 +8039,13 @@ bb亲天下第一可爱（二期泳装限定
 ##### 11176#       发表于 2018-10-13 21:58
 
 
-
-
 话说不知道是不是我的错觉 lv80和lv90的难度本感觉掉率上没什么区别
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 11177#       发表于 2018-10-13 22:00
-
 
 
 <blockquote>Leona_Akari 发表于 2018-10-13 21:18
@@ -12529,25 +8055,13 @@ bb亲天下第一可爱（二期泳装限定
 人生也就3W天 条件允许 还是不要委屈自己 怎么爽怎么来
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 11178#       发表于 2018-10-13 22:01
 
 
-
-
 我也想说bb可爱但是发不出来 为什么 bb我们不相爱了吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12556,14 +8070,7 @@ bb亲天下第一可爱（二期泳装限定
 ##### 11179#       发表于 2018-10-13 22:02
 
 
-
-
 啊我的伊利亚6单1宝总共2ssr3美游
-
-
-
-
-
 
 
 -----
@@ -12572,14 +8079,7 @@ bb亲天下第一可爱（二期泳装限定
 ##### 11180#       发表于 2018-10-13 22:28
 
 
-
-
 麒麟打np的能力也挺一般啊，一套baq下来就45
-
-
-
-
-
 
 
 -----
@@ -12588,16 +8088,10 @@ bb亲天下第一可爱（二期泳装限定
 ##### 11181#       发表于 2018-10-13 22:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41256606&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-13 22:28</a>
 
 麒麟打np的能力也挺一般啊，一套baq下来就45</blockquote>
 BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12606,14 +8100,7 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11182#       发表于 2018-10-13 22:36
 
 
-
-
 今天打了一堆高难，感觉好累，还剩下一期二期各最后一个......
-
-
-
-
-
 
 
 -----
@@ -12624,7 +8111,6 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -12633,13 +8119,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  devilwing  
 ##### 11185#       发表于 2018-10-13 22:50
-
-
 
 
 公牛不愧是王哈体验本，双王哈xjb砍18回合收工，公牛到最后十几万血时不断暴击，真怀疑它是不是有隐藏技能底力LV9，还好学妹上场稳定了局面，最后收尾有惊无险
@@ -12648,25 +8131,13 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  wolfwood  
 ##### 11186#       发表于 2018-10-13 22:52
 
 
-
-
 抱了个好友大腿的百级5宝王哈，最后几乎是在单挑了，稳过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12675,16 +8146,9 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11187#       发表于 2018-10-13 22:59
 
 
-
-
 重新看了看剧情，原来3期泳装的伏笔在这里已经埋下了<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
 
 随便问一下，狼王有开过幕间吗？如果没有就优先级就最低了。
-
-
-
-
-
 
 
 -----
@@ -12693,14 +8157,7 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11188#       发表于 2018-10-13 23:42
 
 
-
-
 找不到王哈好友，抱了个3宝杰克+盾娘白贞磨了40回合过了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打完以后挂王哈的好友都上线了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -12709,14 +8166,7 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11189#       发表于 2018-10-13 23:51
 
 
-
-
 只剩狼王 和 梅芙了，感觉比第一期简单
-
-
-
-
-
 
 
 -----
@@ -12727,12 +8177,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  khxooo  
 ##### 11191#       发表于 2018-10-14 00:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41257380&amp;ptid=1712412" target="_blank">宫爆丝绸 发表于 2018-10-13 23:42</a>
@@ -12741,17 +8189,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 再打一次啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11192#       发表于 2018-10-14 01:09
-
-
 
 
 用了一单才抽出来一个海伦娜……但副产物是第二个骑呆，心情复杂。
@@ -12759,16 +8200,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 另外阿B挂着海伦娜的招牌写着源赖光UP<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11193#       发表于 2018-10-14 01:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41257702&amp;ptid=1712412" target="_blank">哈尔摩尼亚 发表于 2018-10-14 00:24</a>
@@ -12779,11 +8214,6 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">读心GO，你要想着抽妹抖呆的话，一个10连弓海妈就出来了
 
 
-
-
-
-
-
 -----
 
 ####  哈尔摩尼亚  
@@ -12792,21 +8222,14 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  吾乃啊噗  
 ##### 11195#       发表于 2018-10-14 07:11
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我回复不上啊 被泥潭开除了吗
 我只是想说bb亲超可爱啊
-
-
-
-
-
 
 
 -----
@@ -12815,24 +8238,16 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11196#       发表于 2018-10-14 07:15
 
 
-
-
 我发现我回复不上帖子了，从昨天晚上就没回复上
 我只是想说bb可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  アーリィ  
 ##### 11197#       发表于 2018-10-14 10:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41258303&amp;ptid=1712412" target="_blank">哈尔摩尼亚 发表于 2018-10-14 01:59</a>
@@ -12843,16 +8258,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 嫖王哈，杰克给王哈加血，我是雪碧加1宝王哈过的，要是高宝打得能轻松点
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11198#       发表于 2018-10-14 11:29
-
 
 
  本帖最后由 shimotsuki14 于 2018-10-14 13:45 编辑 
@@ -12868,25 +8277,13 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 仇R姐用B狐梅也是轻松11回合，BB打Avenger真是爽到
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11199#       发表于 2018-10-14 11:34
 
 
-
-
 搬商店时明显感觉2期的3种buff比1期的给力多了 算了下要全部搬完至少还得补10个苹果… 
-
-
-
-
-
 
 
 -----
@@ -12897,7 +8294,6 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -12906,12 +8302,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  deadog  
 ##### 11202#       发表于 2018-10-14 11:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41260594&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-14 11:44:22</a>
@@ -12920,25 +8314,13 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  gearbox  
 ##### 11203#       发表于 2018-10-14 11:52
 
 
-
-
 反正下周二才活动结束，先自回体慢慢刷好了
-
-
-
-
-
 
 
 -----
@@ -12947,23 +8329,15 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11204#       发表于 2018-10-14 12:06
 
 
-
-
 我也必须吃苹果打
 
 因为下周还有free首通减半，这是千里眼目前最后的1章free减半了，肯定要打的
-
-
-
-
-
 
 
 -----
 
 ####  Coda  
 ##### 11205#       发表于 2018-10-14 12:23
-
 
 
  本帖最后由 Coda 于 2018-10-14 12:38 编辑 
@@ -12976,17 +8350,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ？？那我也得吃点苹果了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11206#       发表于 2018-10-14 12:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41260988&amp;ptid=1712412" target="_blank">Coda 发表于 2018-10-14 12:23</a>
@@ -12997,25 +8364,13 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 到日服目前为止，1章首通减半这次是最后的了
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11207#       发表于 2018-10-14 12:27
 
 
-
-
 没bb无梅失明人士表示打不动
-
-
-
-
-
 
 
 -----
@@ -13024,16 +8379,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11208#       发表于 2018-10-14 12:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41260988&amp;ptid=1712412" target="_blank">Coda 发表于 2018-10-14 12:23</a>
 
 首通减半挺多的…</blockquote>
 没了，2.1开幕前还有个1.5free首通减半<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13042,23 +8391,15 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11209#       发表于 2018-10-14 12:29
 
 
-
-
 梅芙本酒吞双玉13回合，高难就算结束了，一路砍瓜切菜，等一个尼禄祭
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  shimotsuki14  
 ##### 11210#       发表于 2018-10-14 12:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41260594&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-14 11:44</a>
@@ -13069,24 +8410,13 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 双骑我第一时间倒是打掉了，就是想先把梅芙衣服换掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11211#       发表于 2018-10-14 13:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">除了天牛，其他都是一个宝具一管血的，哪有难度
-
-
-
-
-
 
 
 -----
@@ -13095,14 +8425,7 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11212#       发表于 2018-10-14 13:31
 
 
-
-
 我看国服尼禄宝具的脸边缘模糊被修复了，还以为bb也修复了，可惜没有
-
-
-
-
-
 
 
 -----
@@ -13111,14 +8434,7 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11213#       发表于 2018-10-14 13:32
 
 
-
-
 源赖光up改成海伦娜up了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13127,14 +8443,7 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11214#       发表于 2018-10-14 13:44
 
 
-
-
 话说马修泳装是已经过去了还是还没有。前阵子断了一段时间网<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13143,16 +8452,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11215#       发表于 2018-10-14 13:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41261768&amp;ptid=1712412" target="_blank">LullHH 发表于 2018-10-14 13:44</a>
 
 话说马修泳装是已经过去了还是还没有。前阵子断了一段时间网</blockquote>
 9月，16泳装开的
-
-
-
-
-
 
 
 -----
@@ -13161,13 +8464,7 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11216#       发表于 2018-10-14 13:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">绝了，虽然只吃了十个苹果，算上自回体，后半活动礼装居然还没掉落
-
-
-
-
-
 
 
 -----
@@ -13176,16 +8473,9 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11217#       发表于 2018-10-14 13:51
 
 
-
-
 不论厨力的话，你们金芙芙都喂谁？
 
 有点想喂金石，因为XJBD的场合一般都是金石奶光，奶光已经喂了百级，金时觉得平砍有点乏力。
-
-
-
-
-
 
 
 -----
@@ -13194,15 +8484,9 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11218#       发表于 2018-10-14 14:15
 
 
-
 <blockquote>copysword 发表于 2018-10-14 11:40
 不是还有一个多星期么</blockquote>
 因为一期还有不少没搬完
-
-
-
-
-
 
 
 -----
@@ -13211,23 +8495,15 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 ##### 11219#       发表于 2018-10-14 14:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41261791&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-14 13:46</a>
 9月，16泳装开的</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">恩，谢谢。
-
-
-
-
-
 
 
 -----
 
 ####  noobtizi  
 ##### 11220#       发表于 2018-10-14 14:33
-
-
 
 
 想问一下大佬们，活动图刷哪一关会掉愚者之锁
@@ -13237,16 +8513,10 @@ BAQ，B开头A在中间有45还说一般<img src="https://static.saraba1st.com/i
 （剧情我只达到了第五特异点）
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11221#       发表于 2018-10-14 14:57
-
 
 
  本帖最后由 hylq2100 于 2018-10-14 15:05 编辑 
@@ -13271,16 +8541,10 @@ FREE本的话需要第六章的死之荒野
 活动凑合打一下完事，掉率堪忧
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 11222#       发表于 2018-10-14 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41262173&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-14 14:33</a>
@@ -13296,25 +8560,13 @@ FREE本的话需要第六章的死之荒野
 掉率不算高，慢慢刷吧
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 11223#       发表于 2018-10-14 15:07
 
 
-
-
 谢谢两位大佬，反正我活动都没毕业，刷爆就完事了
-
-
-
-
-
 
 
 -----
@@ -13323,20 +8575,13 @@ FREE本的话需要第六章的死之荒野
 ##### 11224#       发表于 2018-10-14 16:05
 
 
-
 <blockquote>gjd198692 发表于 2018-10-14 14:15
 因为一期还有不少没搬完</blockquote>
 4区 心脏掉率真高阿 可惜泡面材料快搬完了
 
 
-
-
-
-
 6FFFE7F6-A531-49AB-B39C-7073D85B47DF.png
 (272.08 KB, 下载次数: 0)
-
-
 
 
 下载附件
@@ -13345,24 +8590,7 @@ FREE本的话需要第六章的死之荒野
 2018-10-14 16:05 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/14/160501mce7ulh44hbnezni.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -13371,14 +8599,7 @@ FREE本的话需要第六章的死之荒野
 ##### 11225#       发表于 2018-10-14 16:17
 
 
-
-
 刷材料 感觉5宝骑凛挺厉害的是我的错觉吗233 感觉要比小莫用的顺手…
-
-
-
-
-
 
 
 -----
@@ -13387,17 +8608,10 @@ FREE本的话需要第六章的死之荒野
 ##### 11226#       发表于 2018-10-14 16:33
 
 
-
-
 我这掉率......刷了十几遍居然一个锁都没有掉
 
 
 算了就当给剑兰刷素材了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13406,16 +8620,9 @@ FREE本的话需要第六章的死之荒野
 ##### 11227#       发表于 2018-10-14 16:37
 
 
-
-
 神酒掉率不高，回龙宫了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13424,20 +8631,13 @@ FREE本的话需要第六章的死之荒野
 ##### 11228#       发表于 2018-10-14 16:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开新章都有2周时间足够打free和主线，你们那段时间干嘛了
-
-
-
-
-
 
 
 -----
 
 ####  朝仓和美  
 ##### 11229#       发表于 2018-10-14 17:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41263401&amp;ptid=1712412" target="_blank">kulanyee 发表于 2018-10-14 16:55</a>
@@ -13447,25 +8647,13 @@ FREE本的话需要第六章的死之荒野
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11230#       发表于 2018-10-14 17:24
 
 
-
-
 用千里眼看了下接下来几个卡池 武藏巴御钱一定会抽 阿比盖尔看上去好可爱也会忍不住要抽… 枪凛估计也忍不住回去抽感觉自己渐渐沦为氪金母猪…
-
-
-
-
-
 
 
 -----
@@ -13474,17 +8662,10 @@ FREE本的话需要第六章的死之荒野
 ##### 11231#       发表于 2018-10-14 17:44
 
 
-
-
 公牛这本我这居然没个人挂王哈……
 
 
 结果还是靠令咒和BBA过去了
-
-
-
-
-
 
 
 -----
@@ -13495,21 +8676,13 @@ FREE本的话需要第六章的死之荒野
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dhddhh  
 ##### 11233#       发表于 2018-10-14 17:59
 
 
-
-
 总算new了泳装黑呆，入坑一年多这次是最黑的一次了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">5宝弓海妈+7宝枪光妈才出了一宝泳装黑呆<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13518,21 +8691,13 @@ FREE本的话需要第六章的死之荒野
 ##### 11234#       发表于 2018-10-14 18:01
 
 
-
-
 话说水黑呆的三破造型太过令人泄气，原本军大衣里面穿着泳装内衣是非常社保的组合，然而水黑呆毕竟是黑呆，不是黑枪呆，小身板无法让人产生性欲。
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 11235#       发表于 2018-10-14 18:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41263854&amp;ptid=1712412" target="_blank">哈尔摩尼亚 发表于 2018-10-14 17:49</a>
@@ -13542,25 +8707,13 @@ FREE本的话需要第六章的死之荒野
 第四轮金币本心脏灰井盖，完美啊
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11236#       发表于 2018-10-14 18:04
 
 
-
-
 第四轮心脏掉率很高
-
-
-
-
-
 
 
 -----
@@ -13569,16 +8722,9 @@ FREE本的话需要第六章的死之荒野
 ##### 11237#       发表于 2018-10-14 18:08
 
 
-
-
 黑呆最好的造型是新宿，
 
 什麼時候給水黑呆出新宿靈衣我就抽爆
-
-
-
-
-
 
 
 -----
@@ -13587,14 +8733,7 @@ FREE本的话需要第六章的死之荒野
 ##### 11238#       发表于 2018-10-14 18:15
 
 
-
-
 说起来，等梅林池黑呆单UP，要满破理论上要多少石头？
-
-
-
-
-
 
 
 -----
@@ -13603,16 +8742,10 @@ FREE本的话需要第六章的死之荒野
 ##### 11239#       发表于 2018-10-14 18:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41264077&amp;ptid=1712412" target="_blank">星星大魔王 发表于 2018-10-14 18:15</a>
 
 说起来，等梅林池黑呆单UP，要满破理论上要多少石头？</blockquote>
 预定是10单-13单<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13621,20 +8754,13 @@ FREE本的话需要第六章的死之荒野
 ##### 11240#       发表于 2018-10-14 18:22
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">水弓呆什么时候还会有么，突然发现比老头好用诶
-
-
-
-
-
 
 
 -----
 
 ####  Coda  
 ##### 11241#       发表于 2018-10-14 18:35
-
 
 
 <blockquote>gjd198692 发表于 2018-10-14 17:24
@@ -13644,16 +8770,10 @@ FREE本的话需要第六章的死之荒野
 而且课的时候没感觉 往往是回过神来就氪了很多…翻翻账单也进去1w出头了 你说一穷苦学生拿着1w换个手机啥的多好
 
 
-
-
-
-
-
 -----
 
 ####  星星大魔王  
 ##### 11242#       发表于 2018-10-14 18:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41264112&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-14 18:19</a>
@@ -13662,16 +8782,10 @@ FREE本的话需要第六章的死之荒野
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">四星单UP有这么恐怖吗
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11243#       发表于 2018-10-14 18:48
-
 
 
  本帖最后由 dante888 于 2018-10-14 19:10 编辑 
@@ -13679,11 +8793,6 @@ FREE本的话需要第六章的死之荒野
 
 四星单UP有这么恐怖吗</blockquote>
 梅林复刻没有4星单UP，全程双UP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13694,21 +8803,13 @@ FREE本的话需要第六章的死之荒野
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  绫魂h  
 ##### 11245#       发表于 2018-10-14 18:55
 
 
-
-
 人生操蛋之处就在于，升级从者时面对一堆大成功和极大成功，BOX里没一张护符，没有一发十连的石头
-
-
-
-
-
 
 
 -----
@@ -13717,16 +8818,10 @@ FREE本的话需要第六章的死之荒野
 ##### 11246#       发表于 2018-10-14 19:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41263955&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-14 18:01</a>
 
 话说水黑呆的三破造型太过令人泄气，原本军大衣里面穿着泳装内衣是非常社保的组合，然而水黑呆毕竟是黑呆， ...</blockquote>
 我倒是觉得泳装女仆更加社保<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13735,16 +8830,10 @@ FREE本的话需要第六章的死之荒野
 ##### 11247#       发表于 2018-10-14 19:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41264514&amp;ptid=1712412" target="_blank">绫魂h 发表于 2018-10-14 18:55:18</a>
 人生操蛋之处就在于，升级从者时面对一堆大成功和极大成功，BOX里没一张护符，没有一发十连的石头 ...</blockquote>怕什么，单抽出奇迹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -13753,17 +8842,10 @@ FREE本的话需要第六章的死之荒野
 ##### 11248#       发表于 2018-10-14 19:40
 
 
-
-
 一二期礼装都没掉落，抽卡也没什么惊喜，这次活动真是黑到哭
 
 
 现在嗑着苹果亏着加成刷二期礼装，金币已经溢出6k+
-
-
-
-
-
 
 
 -----
@@ -13772,16 +8854,10 @@ FREE本的话需要第六章的死之荒野
 ##### 11249#       发表于 2018-10-14 19:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41264514&amp;ptid=1712412" target="_blank">绫魂h 发表于 2018-10-14 18:55</a>
 
 人生操蛋之处就在于，升级从者时面对一堆大成功和极大成功，BOX里没一张护符，没有一发十连的石头 ...</blockquote>
 看成人理操蛋之处在于<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -13790,21 +8866,13 @@ FREE本的话需要第六章的死之荒野
 ##### 11250#       发表于 2018-10-14 19:43
 
 
-
-
 日服的活动礼装我也是唯独学妹这张没有满破，国服估计要等复刻才能满破了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 11251#       发表于 2018-10-14 19:58
-
 
 
 <blockquote>Coda 发表于 2018-10-14 18:35
@@ -13814,26 +8882,15 @@ FREE本的话需要第六章的死之荒野
 是啊 有时候想想这点钱拿来干啥不好。 周围没有玩氪金手游的朋友 经常听到去吃自助380真贵啊… 我心想我玩fgo一单就518 说出来会不会吓死你们…
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11252#       发表于 2018-10-14 19:59
 
 
-
 <blockquote>hylq2100 发表于 2018-10-14 18:19
 预定是10单-13单</blockquote>
 可以买个苹果了 233
-
-
-
-
-
 
 
 -----
@@ -13842,15 +8899,9 @@ FREE本的话需要第六章的死之荒野
 ##### 11253#       发表于 2018-10-14 20:01
 
 
-
 <blockquote>dhddhh 发表于 2018-10-14 17:59
 总算new了泳装黑呆，入坑一年多这次是最黑的一次了5宝弓海妈+7宝枪光妈才出了一宝泳装黑呆已 ...</blockquote>
 大佬这波嗑了多少阿
-
-
-
-
-
 
 
 -----
@@ -13859,14 +8910,7 @@ FREE本的话需要第六章的死之荒野
 ##### 11254#       发表于 2018-10-14 20:04
 
 
-
-
 现在在想，究竟要不要在艾蕾的预算里扣3单出来拼白枪，但是后面白枪还有单UP，还是看艾蕾抽得如何再说？
-
-
-
-
-
 
 
 -----
@@ -13875,15 +8919,9 @@ FREE本的话需要第六章的死之荒野
 ##### 11255#       发表于 2018-10-14 20:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41265193&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-14 20:04</a>
 现在在想，究竟要不要在艾蕾的预算里扣3单出来拼白枪，但是后面白枪还有单UP，还是看艾蕾抽得如何再说？ ...</blockquote>
 是都喜欢么，这两个一般是二选一吧
-
-
-
-
-
 
 
 -----
@@ -13892,23 +8930,16 @@ FREE本的话需要第六章的死之荒野
 ##### 11256#       发表于 2018-10-14 20:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41265221&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-14 20:07</a>
 
 是都喜欢么，这两个一般是二选一吧</blockquote>
 嗯，说真的，我是为未来阿格落地开语音才抽白枪的，艾蕾是厨力。
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11257#       发表于 2018-10-14 20:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41263808&amp;ptid=1712412" target="_blank">SAGA0Arcueid 发表于 2018-10-14 17:44</a>
@@ -13920,16 +8951,10 @@ FREE本的话需要第六章的死之荒野
 完了，你这么一说我看了一下助战，也都没人挂王哈……<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11258#       发表于 2018-10-14 20:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41264016&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-14 18:08</a>
@@ -13940,16 +8965,10 @@ FREE本的话需要第六章的死之荒野
 要出也是出在原版身上，不可能给泳装版出啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11259#       发表于 2018-10-14 20:36
-
 
 
 <blockquote>dante888 发表于 2018-10-14 20:17
@@ -13961,16 +8980,10 @@ FREE本的话需要第六章的死之荒野
 上場率太低
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11260#       发表于 2018-10-14 20:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41265478&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-14 20:36</a>
@@ -13983,16 +8996,10 @@ FREE本的话需要第六章的死之荒野
 cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11261#       发表于 2018-10-14 20:39
-
 
 
  本帖最后由 shimotsuki14 于 2018-10-14 20:54 编辑 
@@ -14002,16 +9009,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 然后就真的是抱到的周黑鸭礼装二宝王哈的个人表演了，除了一宝师匠勉强贡献了一发7w多的凯尔特航空票，剩下基本全是王哈个人表演，特别是最后一回合公牛剩24w血，王哈只剩1600hp次回合必死，回复和战续也都没转好CD的情况下一套宝红红EX刚刚好打空血条，宝具才打12w，一刀暴击打了近6w<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">本来已经打算SL用一条令咒回血的，这下爽到了。
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11262#       发表于 2018-10-14 20:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41265133&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-14 19:58</a>
@@ -14023,25 +9024,13 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 但氪金氪起来还是眼都不眨。真的有毒
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11263#       发表于 2018-10-14 20:54
 
 
-
-
 自助一顿消化了，纸片人至少在弃坑之前能一直陪着你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14050,23 +9039,16 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11264#       发表于 2018-10-14 20:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41263985&amp;ptid=1712412" target="_blank">sandro 发表于 2018-10-14 18:04</a>
 
 第四轮金币本心脏灰井盖，完美啊</blockquote>
 井盖在前三轮，第四轮是蹄铁
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11265#       发表于 2018-10-14 20:58
-
 
 
  本帖最后由 Fukai_Rei 于 2018-10-14 21:04 编辑 
@@ -14076,16 +9058,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 膀胱电池队真好用，下次再歪张白贞把贞德满宝算了。好歹是我自己第一张5星金卡。完全无压力的情况下30回合过了燕青······
 
 
-
-
-
-
-
 -----
 
 ####  dhddhh  
 ##### 11266#       发表于 2018-10-14 21:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41265160&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-14 20:01</a>
@@ -14094,25 +9070,13 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 2017泳装+2周年加起来有13单了<img src="https://static.saraba1st.com/image/smiley/face2017/156.png" referrerpolicy="no-referrer">明明水泥1单半就出了3宝，老福也就3单2宝
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 11267#       发表于 2018-10-14 21:47
 
 
-
-
 金币溢出一万，依然没掉礼装……
-
-
-
-
-
 
 
 -----
@@ -14121,16 +9085,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11268#       发表于 2018-10-14 21:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41266118&amp;ptid=1712412" target="_blank">dhddhh 发表于 2018-10-14 21:42</a>
 
 2017泳装+2周年加起来有13单了明明水泥1单半就出了3宝，老福也就3单2宝 ...</blockquote>
 只能说算是还债了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14139,14 +9097,7 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11269#       发表于 2018-10-14 22:09
 
 
-
-
 只有出金币的本才会掉5星李庄吗？
-
-
-
-
-
 
 
 -----
@@ -14157,7 +9108,6 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -14166,12 +9116,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  deadog  
 ##### 11272#       发表于 2018-10-14 22:14
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41266316&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-14 22:09:16</a>
@@ -14180,17 +9128,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  manu88wh  
 ##### 11273#       发表于 2018-10-14 22:21
-
-
 
 
 卫宫家的海獭锅
@@ -14202,13 +9143,7 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 <img src="https://wx3.sinaimg.cn/mw1024/007cKXqwgy1fw7y7pcdhvj30nm0xchal.jpg" referrerpolicy="no-referrer">
 
 
-
 黄金神威这段都成素材了<img src="https://static.saraba1st.com/image/smiley/carton2017/077.gif" referrerpolicy="no-referrer"> 
-
-
-
-
-
 
 
 -----
@@ -14217,22 +9152,15 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11274#       发表于 2018-10-14 22:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41265230&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-14 20:08</a>
 嗯，说真的，我是为未来阿格落地开语音才抽白枪的，艾蕾是厨力。</blockquote>
 那感觉还是先艾蕾吧，与其扣预算不如多抽几个宝具，用起来舒服
-
-
-
-
-
 
 
 -----
 
 ####  FrozenA  
 ##### 11275#       发表于 2018-10-14 22:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41266447&amp;ptid=1712412" target="_blank">manu88wh 发表于 2018-10-14 22:21</a>
@@ -14244,27 +9172,15 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 其实可以再给点，学原版多加体毛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11276#       发表于 2018-10-14 23:07
 
 
-
-
 果然男人最性感的部位是胸部
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14273,21 +9189,13 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11277#       发表于 2018-10-15 00:11
 
 
-
-
 这周周常怎么是打一堆饼干啊。。。活动图饼干掉率很高吗
-
-
-
-
-
 
 
 -----
 
 ####  hylq2100  
 ##### 11278#       发表于 2018-10-15 00:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41267384&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-15 00:11</a>
@@ -14302,25 +9210,14 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 别忘了这周还有FREE首通减半
 
 
-
-
-
-
-
 -----
 
 ####  mintmic_  
 ##### 11279#       发表于 2018-10-15 01:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">刚刚双王哈打公牛高难，王哈居然即死成功了公牛一管血，后面就轻松过了……
 这应该是抽到王哈以来第一次宝具即死成功，我说两个商店都搬空了还没掉一张礼装，原来是把掉礼装的欧气用在这了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14329,14 +9226,7 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11280#       发表于 2018-10-15 01:22
 
 
-
-
 方便面和糖果毕业了，硬币这个大坑.......哪个本最合适？第四轮的是骑本，感觉对几个泳装打手都不友好啊
-
-
-
-
-
 
 
 -----
@@ -14345,16 +9235,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11281#       发表于 2018-10-15 02:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41267730&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2018-10-15 01:22</a>
 方便面和糖果毕业了，硬币这个大坑.......哪个本最合适？第四轮的是骑本，感觉对几个泳装打手都不友好啊 ...</blockquote>
 杀师匠强度上去，带个骑凛，配上好友的杀阶基本就够了，骑凛算是半个绿拐，伤害也很可观
 配上加宝具伤害或者加np率的辅助
-
-
-
-
-
 
 
 -----
@@ -14363,14 +9247,7 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11282#       发表于 2018-10-15 03:24
 
 
-
-
 你们2期都毕业了我才刚把1期素材搬完
-
-
-
-
-
 
 
 -----
@@ -14379,16 +9256,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11283#       发表于 2018-10-15 03:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41265133&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-14 13:58</a>
 
 是啊 有时候想想这点钱拿来干啥不好。 周围没有玩氪金手游的朋友 经常听到去吃自助380真贵啊… 我心想我 ...</blockquote>
 就算我已经是氪金母猪了我也还是要说，自助吃380真他妈贵啊！
-
-
-
-
-
 
 
 -----
@@ -14397,23 +9268,15 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11284#       发表于 2018-10-15 07:08
 
 
-
-
 这周的任务真几把坑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 技能石拿头打，只能刷修炼了
-
-
-
-
-
 
 
 -----
 
 ####  holyknight  
 ##### 11285#       发表于 2018-10-15 07:31
-
 
 
 <blockquote>引用第11279楼麻花疼于2018-10-15 07:08发表的  :
@@ -14425,16 +9288,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ----发送自 [Xiaomi Redmi Note 4X,Android 7.0](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  alextommyzhang  
 ##### 11286#       发表于 2018-10-15 07:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41267730&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2018-10-15 01:22</a>
@@ -14443,16 +9300,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 第一轮是弓本
 
 
-
-
-
-
-
 -----
 
 ####  holyknight  
 ##### 11287#       发表于 2018-10-15 07:50
-
 
 
 <blockquote>引用第11275楼苍蓝之枪于2018-10-15 01:22发表的  :
@@ -14464,16 +9315,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ----发送自 [Xiaomi Redmi Note 4X,Android 7.0](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 11288#       发表于 2018-10-15 08:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41265478&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-14 20:36</a>
@@ -14487,17 +9332,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 —— 来自 HUAWEI BND-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  MOOMBA  
 ##### 11289#       发表于 2018-10-15 09:04
-
-
 
 
 骑黑呆 三技能点满了是 3回合 1次绿卡提升30%
@@ -14507,25 +9345,13 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 如果队友有黑骑呆 还可以再减一回合CD 在两回合后叠到第三层 30%<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dhddhh  
 ##### 11290#       发表于 2018-10-15 09:12
 
 
-
-
 蹭了下高宝泳装黑呆感觉手感很好，但是今年实在是不想继续砸石头了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -14534,21 +9360,13 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 ##### 11291#       发表于 2018-10-15 09:18
 
 
-
-
 骑黑呆本来就是要手动宝具本后才手感好的选手，高宝骑黑呆还是有点实力的
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 11292#       发表于 2018-10-15 09:28
-
 
 
 <blockquote>蕾丝 发表于 2018-10-15 08:20
@@ -14561,27 +9379,16 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 黑呆的同行多的可以組棒球隊了
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11293#       发表于 2018-10-15 09:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41268158&amp;ptid=1712412" target="_blank">丘萤之光 发表于 2018-10-15 03:29</a>
 
 就算我已经是氪金母猪了我也还是要说，自助吃380真他妈贵啊！</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">  每个人点不一样 我估计不玩手游的人听到 充值1次518 还不一定能拿到自己想要的东西 估计真会觉得我们人傻钱多233
-
-
-
-
-
 
 
 -----
@@ -14592,23 +9399,16 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gjd198692  
 ##### 11295#       发表于 2018-10-15 09:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41266118&amp;ptid=1712412" target="_blank">dhddhh 发表于 2018-10-14 21:42</a>
 
 2017泳装+2周年加起来有13单了明明水泥1单半就出了3宝，老福也就3单2宝 ...</blockquote>
 欲望这东西有时真的控制不住
-
-
-
-
-
 
 
 -----
@@ -14619,13 +9419,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  朝仓和美  
 ##### 11297#       发表于 2018-10-15 09:59
-
-
 
 
 单抽出了妹抖王，大号可以继续攒石了。
@@ -14638,16 +9435,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 11298#       发表于 2018-10-15 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41269385&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-15 09:28</a>
@@ -14658,16 +9449,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 黑呆也是剑光炮无特攻前提下最高伤害啊
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11299#       发表于 2018-10-15 10:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41269400&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 09:30</a>
@@ -14680,16 +9465,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 都是花钱娱乐而已，各管各就完事了，只要不偷不抢谁管你那么多
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11300#       发表于 2018-10-15 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41267730&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2018-10-15 01:22</a>
@@ -14698,16 +9477,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 上两水泥托加一师匠，随便打打就过了
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11301#       发表于 2018-10-15 10:17
-
 
 
 <blockquote>蕾丝 发表于 2018-10-15 10:01
@@ -14720,16 +9493,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 劍黑跟其他劍光炮可沒這差距
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 11302#       发表于 2018-10-15 10:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41269736&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-15 10:10</a>
@@ -14738,16 +9505,10 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 贪加成啊，好友里唯一满破五星礼装的大佬挂在水泥上了，结果只能自己整队伍
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11303#       发表于 2018-10-15 10:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41269665&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-15 10:01</a>
@@ -14760,25 +9521,13 @@ cost有优势啊，刷黑灰3面我都是用黑呆的<img src="https://static.sa
 是啊 所以和不是圈内的人我基本不了这种事 因为不可能理解 反正自己的钱想怎么花是自己的事
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11304#       发表于 2018-10-15 10:43
 
 
-
-
 https://nga.178.com/read.php?tid=15345226&amp;page=15  又到了我最喜欢的论坛pvp环节
-
-
-
-
-
 
 
 -----
@@ -14787,14 +9536,7 @@ https://nga.178.com/read.php?tid=15345226&amp;page=15  又到了我最喜欢�
 ##### 11305#       发表于 2018-10-15 10:53
 
 
-
-
 掉铜材料的枪本打了两管体力，一个石头都没掉，这枪骑任务还是老老实实去修炼场做吧。。
-
-
-
-
-
 
 
 -----
@@ -14803,16 +9545,9 @@ https://nga.178.com/read.php?tid=15345226&amp;page=15  又到了我最喜欢�
 ##### 11306#       发表于 2018-10-15 11:01
 
 
-
-
 骑黑呆用起来并没有有的人说的那么糟，双骑呆叠个绿放也很舒服
 
 总体都还算可以，亚瑟王五星里最弱的到底是不是杀猪王子，叶哥哥3回合特攻+宝具本赶紧安排一下啊
-
-
-
-
-
 
 
 -----
@@ -14821,16 +9556,9 @@ https://nga.178.com/read.php?tid=15345226&amp;page=15  又到了我最喜欢�
 ##### 11307#       发表于 2018-10-15 11:02
 
 
-
-
 刷酒不到一管体力枪骑任务快完成了，六回合一把，有酒有井盖，夏洛特之后又一常驻狩猎场
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14839,21 +9567,13 @@ https://nga.178.com/read.php?tid=15345226&amp;page=15  又到了我最喜欢�
 ##### 11308#       发表于 2018-10-15 11:08
 
 
-
-
 话说10AP的素材掉落大概能有几个？ 1期 2期 都差一个 2个银棋子尴尬。。
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 11309#       发表于 2018-10-15 11:11
-
 
 
 <blockquote>吾乃啊噗 发表于 2018-10-15 11:01
@@ -14863,26 +9583,15 @@ https://nga.178.com/read.php?tid=15345226&amp;page=15  又到了我最喜欢�
 最弱還是X毛吧
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11310#       发表于 2018-10-15 11:22
 
 
-
 <blockquote>南宮凝香 发表于 2018-10-15 11:11
 最弱還是X毛吧</blockquote>
 x毛还可以啊，有了cba就起飞了
-
-
-
-
-
 
 
 -----
@@ -14891,14 +9600,7 @@ x毛还可以啊，有了cba就起飞了
 ##### 11311#       发表于 2018-10-15 11:34
 
 
-
-
 到现在二期的礼装还没掉一张......
-
-
-
-
-
 
 
 -----
@@ -14907,15 +9609,9 @@ x毛还可以啊，有了cba就起飞了
 ##### 11312#       发表于 2018-10-15 11:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是刚出x毛4t牛蹄子的竞速么，哪弱了
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -14926,12 +9622,10 @@ x毛还可以啊，有了cba就起飞了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  吾乃啊噗  
 ##### 11314#       发表于 2018-10-15 11:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41270768&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-15 11:36</a>
@@ -14943,16 +9637,10 @@ x毛还可以啊，有了cba就起飞了
 杀猪王子也有个速攻杀猪吧，看来我们亚瑟王没有真正的弱者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11315#       发表于 2018-10-15 11:48
-
 
 
 <blockquote>schrdinger 发表于 2018-10-15 11:37
@@ -14966,18 +9654,12 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 殺豬王子： 亞瑟不打亞瑟， 我們比殺豬！
 
 
-
-
-
-
-
 -----
 
 ####  schrdinger  
 ##### 11316#       发表于 2018-10-15 11:50
 
 提示: 作者被禁止或删除 内容自动屏蔽
-
 
 
 -----
@@ -14988,23 +9670,15 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  milizzy  
 ##### 11318#       发表于 2018-10-15 12:25
 
 
-
-
 文学少女算呆毛系么。。感觉挺弱的
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -15013,21 +9687,13 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 ##### 11319#       发表于 2018-10-15 12:29
 
 
-
-
 毕业了没掉过礼装，两个4缺1明年复刻见<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  星月々交辉  
 ##### 11320#       发表于 2018-10-15 12:38
-
 
 
  本帖最后由 星月々交辉 于 2018-10-15 14:54 编辑 
@@ -15048,16 +9714,6 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 不过不知道羊王的连发性能如何
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  copysword  
@@ -15066,21 +9722,13 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  gjd198692  
 ##### 11322#       发表于 2018-10-15 13:50
 
 
-
-
 看了下节奏榜 为什么现在日服武藏的评级那么低阿  以前看视频一直都吹爆的说
-
-
-
-
-
 
 
 -----
@@ -15089,23 +9737,15 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 ##### 11323#       发表于 2018-10-15 13:51
 
 
-
-
 看了下，尼禄祭，圣诞，赝作，三个无限池都堆一起了，金苹果会不够
 
 赝作的材料是最全的
-
-
-
-
-
 
 
 -----
 
 ####  丘萤之光  
 ##### 11324#       发表于 2018-10-15 13:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41269155&amp;ptid=1712412" target="_blank">MOOMBA 发表于 2018-10-15 03:04</a>
@@ -15118,16 +9758,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 这种玩杂技还是算了吧，现实是就算加一个孔明水骑呆也很难在三回合之内打出第二个宝具，当然上双CBA当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  MOOMBA  
 ##### 11325#       发表于 2018-10-15 14:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272285&amp;ptid=1712412" target="_blank">丘萤之光 发表于 2018-10-15 13:58</a>
@@ -15140,16 +9774,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 多个1次30%绿魔放  然后一张绿卡就消费掉 当然是给宝具咯。。。
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11326#       发表于 2018-10-15 14:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272335&amp;ptid=1712412" target="_blank">MOOMBA 发表于 2018-10-15 08:02</a>
@@ -15162,17 +9790,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 有道理，但是还是杂技啊，现在环境就是在针对一发流<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11327#       发表于 2018-10-15 14:06
-
-
 
 
 见鬼了，刚刚多回了一个微信，切过去2点零一分刚好维护了，问题是这一把刚好掉了张礼装。求问维护结束了掉的这张礼装还有吗？
@@ -15180,16 +9801,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11328#       发表于 2018-10-15 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272200&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 13:50</a>
@@ -15201,16 +9816,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 然而这游戏真的有很多必须为强度照着节奏榜抽的打手吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11329#       发表于 2018-10-15 14:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272378&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-15 14:06</a>
@@ -15219,16 +9828,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 有，出了掉落那个界面就已经在服务器有数据了
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11330#       发表于 2018-10-15 14:21
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41271439&amp;ptid=1712412" target="_blank">星月々交辉 发表于 2018-10-15 06:38</a>
@@ -15239,16 +9842,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 只要有特攻2宝BX就比五宝咩王高了好吧
 
 
-
-
-
-
-
 -----
 
 ####  kulanyee  
 ##### 11331#       发表于 2018-10-15 14:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272200&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 13:50</a>
@@ -15257,16 +9854,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 武藏一个卖点是宝具解除敌方强化，自己又有debuff解除+无敌。然而现在日服的高难本，对面的buff全是带框的，解不了。自身的debuff多半也是带框的，三技能又解不了，惨得一批<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11332#       发表于 2018-10-15 14:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272200&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 13:50</a>
@@ -15274,16 +9865,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 强度是一时的，卡面是一辈子的
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11333#       发表于 2018-10-15 14:23
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272405&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-15 08:10</a>
@@ -15295,16 +9880,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 新年时候8单没抽到，我现在对武藏心情很复杂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11334#       发表于 2018-10-15 14:24
-
 
 
  本帖最后由 gjd198692 于 2018-10-15 14:29 编辑 
@@ -15319,16 +9898,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 不过是不是可以理解为在C阶师匠出现前 武藏但从强度来说还是非常给力的？很想抽的 我预订是希望至少2宝。。
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11335#       发表于 2018-10-15 14:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272378&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-15 08:06</a>
@@ -15337,16 +9910,10 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 有，前提是不要换机器也不要卸载。话说我都忘记今天维护了，玛德AP又爆炸了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11336#       发表于 2018-10-15 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272517&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-15 14:22</a>
@@ -15355,26 +9922,15 @@ x毛有无敌，打呆毛脸和剑不比弓呆差啊
 哈哈 不过无关强度 武藏是一定要入手的 本来剑阶我就只有一个天鬼雨的狐狸 武藏是本命而且感觉似乎是FGO女主角待遇？ 1.53 和2章的PV里都看到了她
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11337#       发表于 2018-10-15 14:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272539&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 14:24</a>
 定位有点像绿卡里的泳装骑阶黑无毛吗 也就是说 日服现在的环境和国服完全不一样了 虽然一直听说C阶师非常 ...</blockquote>
 cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是红卡攻击力降低了？
-
-
-
-
-
 
 
 -----
@@ -15383,22 +9939,15 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 ##### 11338#       发表于 2018-10-15 14:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272575&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 14:28</a>
 哈哈 不过无关强度 武藏是一定要入手的 本来剑阶我就只有一个天鬼雨的狐狸 武藏是本命而且感觉似乎是FGO ...</blockquote>
 我的初始已经选了有武藏的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 11339#       发表于 2018-10-15 14:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272587&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-15 14:29</a>
@@ -15409,16 +9958,10 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 不了解日服 那是不是说 并不是红蓝卡削弱了 而是CBA出来以后 绿卡的地位上升了   
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11340#       发表于 2018-10-15 14:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272608&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 08:32</a>
@@ -15427,16 +9970,10 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 是的，本来这游戏就不存在削弱啊
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11341#       发表于 2018-10-15 14:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272598&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-15 14:30</a>
@@ -15445,16 +9982,10 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 你也太爽啦！ 我是属于那种一点功课没做XJB入坑的（主要我都没想到自己竟然沉迷了。。） 客服和我说里面有这游戏里目前最强的两个角色（孔梅）  刚玩的时候不会打还把客服喷了一顿 明明就是两个辅助你忽悠谁那！一点输出都没有！现在想想错怪人家了233  
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11342#       发表于 2018-10-15 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272620&amp;ptid=1712412" target="_blank">丘萤之光 发表于 2018-10-15 14:33</a>
@@ -15463,16 +9994,10 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 我觉得现在的环境下纯绿卡对感觉也不弱 高暴击的确蛮爽的 最近刷本用汤勺 真是刀刀暴击爽歪歪
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11343#       发表于 2018-10-15 14:37
-
 
 
 <blockquote>圈量子 发表于 2018-10-15 14:10
@@ -15483,25 +10008,13 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 问下大佬美服能上么？各种梯子直连都试了还是连不上
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11344#       发表于 2018-10-15 14:40
 
 
-
-
 现在想想自己干的最傻的事情应该是明明是个萌新偏偏花了将近400石去抽了个1001 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">等自己磕了才感觉到400石何等肉疼
-
-
-
-
-
 
 
 -----
@@ -15510,15 +10023,9 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 ##### 11345#       发表于 2018-10-15 14:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272685&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 14:40</a>
 现在想想自己干的最傻的事情应该是明明是个萌新偏偏花了将近400石去抽了个1001 而且压根没练 当时也 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">赶紧氪三单石头放着当作无事发生
-
-
-
-
-
 
 
 -----
@@ -15527,16 +10034,10 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 ##### 11346#       发表于 2018-10-15 14:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272496&amp;ptid=1712412" target="_blank">丘萤之光 发表于 2018-10-15 14:21</a>
 
 只要有特攻2宝BX就比五宝咩王高了好吧</blockquote>
 是了，计算到时候把靶子设成了木桩，忘记设成英灵了
-
-
-
-
-
 
 
 -----
@@ -15545,15 +10046,9 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 ##### 11347#       发表于 2018-10-15 14:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272517&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-15 14:22</a>
 强度是一时的，卡面是一辈子的</blockquote>
 武藏满破脖子太坑了，要能修下就完美了
-
-
-
-
-
 
 
 -----
@@ -15562,15 +10057,9 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 ##### 11348#       发表于 2018-10-15 14:57
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">隔壁真是啥都能婊，现在又在批剧情无聊，吴克不能自回毕业了
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -15579,14 +10068,7 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 ##### 11349#       发表于 2018-10-15 14:57
 
 
-
-
 小学生我有了人妻是哪位哦
-
-
-
-
-
 
 
 -----
@@ -15595,23 +10077,15 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 ##### 11350#       发表于 2018-10-15 14:58
 
 
-
-
 武藏吃亏在是无自充单体剑，周回基本不可能上她
 
 打高难的话CBA落地后理论上总司比她好用，实际CBA落地后的几个高难本，都没有单体剑高光的场合
-
-
-
-
-
 
 
 -----
 
 ####  五更伪境  
 ##### 11351#       发表于 2018-10-15 14:59
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272856&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-15 14:57</a>
@@ -15623,16 +10097,10 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 不是有人说自回的定义是吃完送的苹果吗，30多个苹果无克能搬个差不多吗
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11352#       发表于 2018-10-15 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272657&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-15 14:37</a>
@@ -15640,16 +10108,10 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 我人在美国啊……手机iPad都可以上<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11353#       发表于 2018-10-15 15:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272856&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-15 14:57</a>
@@ -15659,16 +10121,10 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 今天在隔壁看到的最欢乐的帖子是拿恩奇都碰瓷王哈的单挑能力<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11354#       发表于 2018-10-15 15:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272730&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-15 14:45</a>
@@ -15677,26 +10133,15 @@ cba落地后依然很强力啊，cba出了以后是你梅林不能用了还是�
 哈哈现在攒私房钱 等武藏池 
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11355#       发表于 2018-10-15 15:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272656&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 08:37</a>
 我觉得现在的环境下纯绿卡对感觉也不弱 高暴击的确蛮爽的 最近刷本用汤勺 真是刀刀暴击爽歪歪 ...</blockquote>
 XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才显得弱啊，然后CBA的出现就完美的补足了这块
-
-
-
-
-
 
 
 -----
@@ -15705,22 +10150,15 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 ##### 11356#       发表于 2018-10-15 15:07
 
 
-
 <blockquote>圈量子 发表于 2018-10-15 15:03
 我人在美国啊……手机iPad都可以上</blockquote>
 我知道你在美国啊，那看来是我这里抽风了，算了也就是少殴打几次皮卡，不要断签就好了
-
-
-
-
-
 
 
 -----
 
 ####  Fukai_Rei  
 ##### 11357#       发表于 2018-10-15 15:07
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272861&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-15 14:57</a>
@@ -15730,25 +10168,13 @@ C妈lily啊，活动剧情几个地主不就是童谣，c妈Lily，梅芙吗？
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11358#       发表于 2018-10-15 15:08
 
 
-
-
 吴磕只靠30个苹果和自回不可能搬完的 没有加成搬商店简直噩梦 
-
-
-
-
-
 
 
 -----
@@ -15757,16 +10183,10 @@ C妈lily啊，活动剧情几个地主不就是童谣，c妈Lily，梅芙吗？
 ##### 11359#       发表于 2018-10-15 15:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272963&amp;ptid=1712412" target="_blank">丘萤之光 发表于 2018-10-15 15:06</a>
 
 XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才显得弱啊，然后CBA的出现就完美的补足了这块 ...</blockquote>
 难怪都说这游戏是铁打的三拐 流水的打手
-
-
-
-
-
 
 
 -----
@@ -15775,14 +10195,7 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 ##### 11360#       发表于 2018-10-15 15:18
 
 
-
-
 最近尝试了几个其他的手游  碧蓝航线 方舟指令 第五人格 感觉都索然无味<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -15791,22 +10204,15 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 ##### 11361#       发表于 2018-10-15 15:24
 
 
-
 <blockquote>圈量子 发表于 2018-10-15 15:04
 今天在隔壁看到的最欢乐的帖子是拿恩奇都碰瓷王哈的单挑能力</blockquote>
 那帖子lz尬吹也就算了，后面跑出来的碰瓷确实叹为观止，还有为了踩泳装二期强行吹泳装三期的，尬的不行
-
-
-
-
-
 
 
 -----
 
 ####  Fukai_Rei  
 ##### 11362#       发表于 2018-10-15 15:35
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273082&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 15:18</a>
@@ -15816,17 +10222,10 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11363#       发表于 2018-10-15 15:37
-
-
 
 
 打活动的时候卡cost真的挺头疼的，看来三星的单体和光炮还是有必要各练一个啊。
@@ -15834,16 +10233,10 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11364#       发表于 2018-10-15 15:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273252&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-15 15:35</a>
@@ -15855,16 +10248,10 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 也许吧 虽然这样说别的游戏不太好但我直观感受 现在好多手游 包括动画游戏的角色就像流水线里出来的机器人 千篇一律插画封面在美但就是没有FEEL
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11365#       发表于 2018-10-15 15:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272988&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 15:08:32</a>
@@ -15873,32 +10260,19 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11366#       发表于 2018-10-15 15:42
 
 
-
-
 难道不是因为前半后半都在刷减半所以不能活动毕业么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 11367#       发表于 2018-10-15 15:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273302&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-15 15:39</a>
@@ -15910,16 +10284,10 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 吴磕能有13的加成吗 我默认是没有加成英灵和加成礼装为前提的 只靠商店的那几张 
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11368#       发表于 2018-10-15 16:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273341&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 15:43:25</a>
@@ -15928,16 +10296,10 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11369#       发表于 2018-10-15 16:13
-
 
 
 <blockquote>hylq2000 发表于 2018-10-15 15:39
@@ -15948,16 +10310,10 @@ XJB打是挺爽，但是现在主流都是光炮三回合过图所以绿卡才�
 lga还有泳装三期80个金苹果也不能毕业的，简直神了
 
 
-
-
-
-
-
 -----
 
 ####  星月々交辉  
 ##### 11370#       发表于 2018-10-15 16:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273267&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-15 15:37</a>
@@ -15971,27 +10327,15 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了
 放前排打，除非是装备宝石翁开一炮，不然如果要平A攒NP的话，太拖节奏了
 
 
-
-
-
-
-
 -----
 
 ####  绫魂h  
 ##### 11371#       发表于 2018-10-15 16:20
 
 
-
-
 刚入坑的萌新和无限池不算，你游现在有30个苹果不能搬空商店的活动吗？
 
 以前一直调侃，不要单纯为了加成礼装去十连卡池，你十连的石头全吃了早就毕业了
-
-
-
-
-
 
 
 -----
@@ -16002,12 +10346,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hylq2000  
 ##### 11373#       发表于 2018-10-15 16:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273341&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 15:43:25</a>
@@ -16027,16 +10369,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11374#       发表于 2018-10-15 16:29
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">什么商店难搬完全是扯蛋
@@ -16046,16 +10382,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11375#       发表于 2018-10-15 16:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273629&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-15 16:28</a>
@@ -16070,24 +10400,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了
 我个人这次活动还是吃了10来个苹果的
 
 
-
-
-
-
-
 -----
 
 ####  白昼梦  
 ##### 11376#       发表于 2018-10-15 16:33
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">绿方块搬的真累啊
-
-
-
-
-
 
 
 -----
@@ -16098,12 +10417,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  hylq2000  
 ##### 11378#       发表于 2018-10-15 16:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273488&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-15 16:13:46</a>
@@ -16114,26 +10431,15 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11379#       发表于 2018-10-15 16:59
 
 
-
 <blockquote>hylq2000 发表于 2018-10-15 16:28
 商店默认搬完攻略上一般是排除棋子，这期泳装稍微特殊些，因为马上无限池，所以狗粮绿方块都可以不搬。再加 ...</blockquote>
 我知道你的算法了。 吴氪我只计算了骑凛和泳装师匠和4张5🌟加成  商店搬空我默认指的是全部搬完                  要是去掉黑兽脂 和绿方块还有棋子的话 材料的需求量要减少4成了  那自然是可以搬完的 
-
-
-
-
-
 
 
 -----
@@ -16142,15 +10448,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11380#       发表于 2018-10-15 17:04
 
 
-
 <blockquote>copysword 发表于 2018-10-15 16:36
 好友+5，礼装+4，巴贝奇、杀师酱、骑凛+4，保底+13，三星礼装花十万py点去捞几个就是保底+15了。我金材料 ...</blockquote>
 友情能出活动礼装的？概率大概有多少阿 之前大成功最后一天还砸了6万多下去 什么都没我以为那封面就一摆设
-
-
-
-
-
 
 
 -----
@@ -16159,16 +10459,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11381#       发表于 2018-10-15 17:04
 
 
-
-
 17点准时开客户端，发现公告更新了，开服时间未定。我闻到了石头和苹果的味道<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -16177,14 +10470,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11382#       发表于 2018-10-15 17:05
 
 
-
-
 记得按延时时间长度计算赔偿吧233 一小时3石来着？
-
-
-
-
-
 
 
 -----
@@ -16193,16 +10479,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11383#       发表于 2018-10-15 17:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273966&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 16:59:32</a>
 我知道你的算法了。 吴氪我只计算了骑凛和泳装师匠和4张5🌟加成  商店搬空我默认指的是全部搬完          ...</blockquote>除了新入坑的，每个活动在讨论搬商店的时候都不计算棋子的。很多时候甚至狗粮也排除。黑锅除了特定几个人吃一些，其它没用的。纯靠活动送的都能喂完要吃的人还溢出一百多的材料有计较的必要么<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16211,13 +10491,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11384#       发表于 2018-10-15 17:07
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">啥，友情还能抽金活动礼装吗，我12w友情全沉了，三星礼装想满破刷糖都只满破了一件
-
-
-
-
-
 
 
 -----
@@ -16226,16 +10500,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11385#       发表于 2018-10-15 17:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274003&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 17:04:23</a>
 友情能出活动礼装的？概率大概有多少阿 之前大成功最后一天还砸了6万多下去 什么都没我以为那封面就一摆 ...</blockquote>友情池能抽三星铜素材加成礼装，概率有点迷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16244,14 +10512,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11386#       发表于 2018-10-15 17:10
 
 
-
-
 三单，伊莉雅梅芙，满破美游，歪一个大王，一堆金方块四星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16260,14 +10521,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11387#       发表于 2018-10-15 17:12
 
 
-
-
 第一次氪金，算上首冲一共三单抽齐泳装二期限定，海妈尼托奶光两宝，new了船长和南丁不知道是非还是欧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16276,16 +10530,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11388#       发表于 2018-10-15 17:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274106&amp;ptid=1712412" target="_blank">ywshzw 发表于 2018-10-15 17:12</a>
 
 第一次氪金，算上首冲一共三单抽齐泳装二期限定，海妈尼托奶光两宝，new了船长和南丁不知道是非还是欧[f:01 ...</blockquote>
 欧炸了
-
-
-
-
-
 
 
 -----
@@ -16294,15 +10542,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11389#       发表于 2018-10-15 17:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">又到了海豹纷纷上岸的时间
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -16311,16 +10553,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11390#       发表于 2018-10-15 17:20
 
 
-
-
 1单new棉被梅芙爱迪狮，罗摩和jk狐喜加一
 
 终于有五星剑光炮了
-
-
-
-
-
 
 
 -----
@@ -16329,15 +10564,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11391#       发表于 2018-10-15 17:25
 
 
-
 <blockquote>hylq2000 发表于 2018-10-15 17:07
 除了新入坑的，每个活动在讨论搬商店的时候都不计算棋子的。很多时候甚至狗粮也排除。黑锅除了特定几个人吃 ...</blockquote>
 我就是这个入新坑的 苦阿 本来不想搬狗粮的 以为尼禄祭有的是一后来楼里人和我说了今年换成饼干了 那也只有硬着头皮上了 棋子换起来性价比其实挺低的我算过 我平均铜 银24的加成 40AP也只能换6个 金是18换的就更少了 但不换到时尼禄祭肯定是不够用的 
-
-
-
-
-
 
 
 -----
@@ -16346,21 +10575,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11392#       发表于 2018-10-15 17:25
 
 
-
-
 突然发现，我泳装一期四海军，这次四恩奇都，区别是第一次欧的厉害，第二次非的厉害
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 11393#       发表于 2018-10-15 17:26
-
 
 
 <blockquote>hylq2000 发表于 2018-10-15 17:08
@@ -16371,16 +10592,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 玄学 我就差一张 
 
 
-
-
-
-
-
 -----
 
 ####  绫魂h  
 ##### 11394#       发表于 2018-10-15 17:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274232&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 17:25</a>
@@ -16389,25 +10604,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 尼禄祭是有狗粮饼干，没棋子吧，新入坑的，有能力就全搬光吧，等你缺棋子想去打修炼场的时候，你会发现更坑
 
 
-
-
-
-
-
 -----
 
 ####  atomicink  
 ##### 11395#       发表于 2018-10-15 17:35
 
 
-
-
 梅芙6单0宝，不抽了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16416,22 +10619,15 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11396#       发表于 2018-10-15 17:36
 
 
-
 <blockquote>绫魂h 发表于 2018-10-15 17:29
 尼禄祭是有狗粮饼干，没棋子吧，新入坑的，有能力就全搬光吧，等你缺棋子想去打修炼场的时候，你会发现更 ...</blockquote>
 对没有棋子 我棋子两期换完的话 平均一个直接大概也就有70个吧 还是少 
-
-
-
-
-
 
 
 -----
 
 ####  minamitsubasa  
 ##### 11397#       发表于 2018-10-15 17:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41273395&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-15 16:03</a>
@@ -16445,26 +10641,15 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 这次友情池一张都没出。如果光脚上阵每次加成大概11左右
 
 
-
-
-
-
-
 -----
 
 ####  雅朵莉雀  
 ##### 11398#       发表于 2018-10-15 17:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">两单抽空气，想了想虽然梅芙是我现阶段最想要的卡但是抽了也没用
 
 及时收手止损了
-
-
-
-
-
 
 
 -----
@@ -16473,16 +10658,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11399#       发表于 2018-10-15 17:51
 
 
-
-
 有没有大佬帮忙算一下，90级，1000芙芙，技能454，0破黑杯，1宝奶光，双30梅林加成下，泳装车轮，能不能一条令咒清一面？
 
 能的话就直接这么打了，不能的话......还是要找找有没有什么稳妥打法
-
-
-
-
-
 
 
 -----
@@ -16491,22 +10669,15 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11400#       发表于 2018-10-15 18:03
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">非了，4单才出伊利亚
 
 出了一万个迪昂，满宝还送2张，我还以为我在抽迪昂up。。。
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 11401#       发表于 2018-10-15 18:05
-
 
 
 <blockquote>Leona_Akari 发表于 2018-10-15 18:03
@@ -16516,26 +10687,15 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 2个金方块不也挺好么，还有你们为啥不等复刻再抽，摆明了复刻会up美游
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11402#       发表于 2018-10-15 18:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274686&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-15 18:05</a>
 2个金方块不也挺好么，还有你们为啥不等复刻再抽，摆明了复刻会up美游</blockquote>
 早抽早享受，反正我是想早点补全图鉴，没厨力的通通一宝跑路<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16544,16 +10704,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11403#       发表于 2018-10-15 18:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274526&amp;ptid=1712412" target="_blank">苍蓝之枪 发表于 2018-10-15 17:51</a>
 
 有没有大佬帮忙算一下，90级，1000芙芙，技能454，0破黑杯，1宝奶光，双30梅林加成下，泳装车轮，能不能一 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不能，310奶光用百级黑杯都清不了。
-
-
-
-
-
 
 
 -----
@@ -16562,16 +10716,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11404#       发表于 2018-10-15 18:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274686&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-15 18:05</a>
 
 2个金方块不也挺好么，还有你们为啥不等复刻再抽，摆明了复刻会up美游</blockquote>
 现在美游就是up啊。。。不过我也只出了2张。。。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -16580,16 +10728,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11405#       发表于 2018-10-15 18:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274734&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-15 18:10</a>
 
 现在美游就是up啊。。。</blockquote>
 指的是英灵美游，现在联动复刻都有新的4从者落地，所以伊利亚复刻很大机会美游下地。
-
-
-
-
-
 
 
 -----
@@ -16598,21 +10740,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11406#       发表于 2018-10-15 18:12
 
 
-
-
 小黑幕间忘了带蒙娜丽莎，亏了一个亿<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  苍蓝之枪  
 ##### 11407#       发表于 2018-10-15 18:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274717&amp;ptid=1712412" target="_blank">snakeling 发表于 2018-10-15 18:09</a>
@@ -16623,26 +10757,15 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 但是我总觉得黑梅梅如何快速启动是个问题.....
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11408#       发表于 2018-10-15 18:17
 
 
-
 <blockquote>圈量子 发表于 2018-10-15 18:06
 早抽早享受，反正我是想早点补全图鉴，没厨力的通通一宝跑路</blockquote>
 全图鉴真是艰巨的任务，沉船经常就是沉那些一宝跑路的
-
-
-
-
-
 
 
 -----
@@ -16651,15 +10774,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11409#       发表于 2018-10-15 18:18
 
 
-
 <blockquote>Leona_Akari 发表于 2018-10-15 18:10
 现在美游就是up啊。。。不过我也只出了2张。。。</blockquote>
 会up4星英灵，按照联动活动复刻的尿性是这样的
-
-
-
-
-
 
 
 -----
@@ -16670,12 +10787,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  noobtizi  
 ##### 11411#       发表于 2018-10-15 18:26
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272636&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-15 14:35</a>
@@ -16684,17 +10799,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 我全是自己瞎吉尔抽的，那是真的惨
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 11412#       发表于 2018-10-15 18:34
-
-
 
 
 看大佬们活动毕业的真容易
@@ -16703,17 +10811,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 新人刷一次要十几个回合是真滴难受
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11413#       发表于 2018-10-15 18:38
-
-
 
 
 打本掉了张学妹，安慰奖。。
@@ -16721,16 +10822,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 然后一想到掉了一张礼装这不是又要多打道具把礼装满破了嘛，否则换一张就够了，又不开心了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 11414#       发表于 2018-10-15 18:38
-
 
 
  本帖最后由 麻花疼 于 2018-10-15 18:40 编辑 
@@ -16753,13 +10848,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 这三重警告，明示告诉我抽就是死路一条了，我放弃，继续等1000W了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
 ﹍﹍﹍
 
 评分
-
-
-
 
 
  参与人数 1战斗力 +2
@@ -16769,19 +10860,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 | copysword| + 2|生日快乐|
 
 
-
 查看全部评分
-
-
-
-
 
 
 -----
 
 ####  冰狼芬里尔  
 ##### 11415#       发表于 2018-10-15 18:40
-
 
 
 <blockquote>Fukai_Rei 发表于 2018-10-15 15:35
@@ -16792,16 +10877,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 废狗是有fate这个后积薄发这个IP
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11416#       发表于 2018-10-15 18:42
-
 
 
 <blockquote>五更伪境 发表于 2018-10-15 14:57
@@ -16809,16 +10888,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 估计是美游礼装
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11417#       发表于 2018-10-15 18:47
-
 
 
 <blockquote>Leona_Akari 发表于 2018-10-15 18:38
@@ -16828,25 +10901,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 都换啊，明年复刻还用的上
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11418#       发表于 2018-10-15 18:57
 
 
-
-
 啊啊啊啊啊，两单下去没有一个5*的，美游礼装也一张没捞到，就一张4*迪昂。卖了换金方块算了
-
-
-
-
-
 
 
 -----
@@ -16855,21 +10916,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11419#       发表于 2018-10-15 19:09
 
 
-
-
 我缓缓再捞礼装<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 11420#       发表于 2018-10-15 19:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274993&amp;ptid=1712412" target="_blank">麻花疼 发表于 2018-10-15 18:38</a>
@@ -16881,25 +10934,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">这是在告诉你不经历风雨怎么见彩虹
 
 
-
-
-
-
-
 -----
 
 ####  流飞燕  
 ##### 11421#       发表于 2018-10-15 19:12
 
 
-
-
 三发十连，剑池呆毛一家团聚
-
-
-
-
-
 
 
 -----
@@ -16908,14 +10949,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11422#       发表于 2018-10-15 19:20
 
 
-
-
 话说骑凛看起来很强，但用起来总是感觉和5星差那么一口气
-
-
-
-
-
 
 
 -----
@@ -16924,16 +10958,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11423#       发表于 2018-10-15 19:23
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41272861&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-15 14:57</a>
 
 小学生我有了人妻是哪位哦</blockquote>
 梅芙啊，梅芙可是和多位男人结过婚的，当然是人妻。
-
-
-
-
-
 
 
 -----
@@ -16942,14 +10970,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11424#       发表于 2018-10-15 19:23
 
 
-
-
 而且骑凛的宝具，给人感觉就是一个已婚妇女骑着个小绵羊游世界，师奶（八婆）感很重
-
-
-
-
-
 
 
 -----
@@ -16960,7 +10981,6 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -16969,12 +10989,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  khxooo  
 ##### 11427#       发表于 2018-10-15 19:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41274993&amp;ptid=1712412" target="_blank">麻花疼 发表于 2018-10-15 18:38</a>
@@ -16986,26 +11004,14 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 这是代表筹到前的考验，现在考验都过了，当然是抽啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  mintmic_  
 ##### 11428#       发表于 2018-10-15 19:47
 
 
-
-
 小黑居然出了技能本，打了下发现居然是加强队伍里的伊莉雅的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 这就是说我要是不去氪个伊莉雅，这30np的技能本就白打了？
-
-
-
-
-
 
 
 -----
@@ -17014,14 +11020,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11429#       发表于 2018-10-15 19:50
 
 
-
-
 伊利亚很强吗？你们都这么抽伊利亚抽美游的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">梅林在前面，我都准备等伊利亚第五季再抽。之前漫画看到田中出场，就看剑风去了。后来听说后面剧情迫真硬核fate。
-
-
-
-
-
 
 
 -----
@@ -17030,16 +11029,10 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11430#       发表于 2018-10-15 19:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41275663&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-15 19:50</a>
 
 伊利亚很强吗？你们都这么抽伊利亚抽美游的梅林在前面，我都准备等伊利亚第五季再抽。之前漫画看到 ...</blockquote>
 瑟秦小学生啊，哪个不喜欢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17048,23 +11041,16 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11431#       发表于 2018-10-15 19:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41275633&amp;ptid=1712412" target="_blank">mintmic_ 发表于 2018-10-15 19:47</a>
 小黑居然出了技能本，打了下发现居然是加强队伍里的伊莉雅的
 这就是说我要是不去氪个伊莉雅，这30np ...</blockquote>
 恭喜你答对了，快去卡池抽一个让小黑拐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11432#       发表于 2018-10-15 19:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41275412&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-15 19:23</a>
@@ -17076,25 +11062,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 巨嫂也可以啊，4星的从者特攻光炮，我等非洲人的幸运啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  sureHH  
 ##### 11433#       发表于 2018-10-15 19:57
 
 
-
-
 大号五十个护符全扔给伊莉雅池子，只出了一个美游礼装和一个C闪。目前伊莉雅二宝，四张美游，等下次up了。
-
-
-
-
-
 
 
 -----
@@ -17103,14 +11077,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11434#       发表于 2018-10-15 19:57
 
 
-
-
 太太有妇科吗
-
-
-
-
-
 
 
 -----
@@ -17119,15 +11086,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11435#       发表于 2018-10-15 19:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41275715&amp;ptid=1712412" target="_blank">cosx 发表于 2018-10-15 19:57</a>
 太太有妇科吗</blockquote>
 日服fz才复刻过
-
-
-
-
-
 
 
 -----
@@ -17136,14 +11097,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11436#       发表于 2018-10-15 20:12
 
 
-
-
 话说小黑的塑造，不就是将一个鹅心肥宅的思想藏在幼女的肉体里吗？也就是幼女身鹅心肥宅心。
-
-
-
-
-
 
 
 -----
@@ -17152,15 +11106,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11437#       发表于 2018-10-15 20:12
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41275736&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-15 19:59</a>
 日服fz才复刻过</blockquote>
 这也太久了
-
-
-
-
-
 
 
 -----
@@ -17169,15 +11117,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11438#       发表于 2018-10-15 20:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41275853&amp;ptid=1712412" target="_blank">cosx 发表于 2018-10-15 20:12</a>
 这也太久了</blockquote>
 有的复刻就不错了，空之境界联动复刻前大家都觉得这几个活动会绝版
-
-
-
-
-
 
 
 -----
@@ -17186,14 +11128,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11439#       发表于 2018-10-15 20:18
 
 
-
-
 惊了，本来打算在泳装二期池子里捞点礼装，结果一发就出黑骑呆，还要抽梅林啊！现在预感梅林池要沉了。。。。
-
-
-
-
-
 
 
 -----
@@ -17202,15 +11137,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11440#       发表于 2018-10-15 20:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41275903&amp;ptid=1712412" target="_blank">qw7608290 发表于 2018-10-15 20:18</a>
 惊了，本来打算在泳装二期池子里捞点礼装，结果一发就出黑骑呆，还要抽梅林啊！现在预感梅林池要沉了。。。 ...</blockquote>
 安心吧，大王说了，这是运营的贿赂啊
-
-
-
-
-
 
 
 -----
@@ -17219,15 +11148,8 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11441#       发表于 2018-10-15 20:20
 
 
-
-
 十连一个美游礼装，下体满足了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 可惜入坑没赶上小黑活动没拿到
-
-
-
-
-
 
 
 -----
@@ -17238,21 +11160,13 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  更木剑八  
 ##### 11443#       发表于 2018-10-15 20:44
 
 
-
-
 去年强氪小学生然后开始了持续至今的非酋运……今年不敢氪她了
-
-
-
-
-
 
 
 -----
@@ -17261,14 +11175,7 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11444#       发表于 2018-10-15 20:51
 
 
-
-
 真不容易，杀大幽灵终于掉了张潜水学妹，这下安心了......
-
-
-
-
-
 
 
 -----
@@ -17277,15 +11184,9 @@ lga还有泳装三期80个金苹果也不能毕业的，简直神了</blockquote
 ##### 11445#       发表于 2018-10-15 20:54
 
 
-
 <blockquote>noobtizi 发表于 2018-10-15 18:26
 我全是自己瞎吉尔抽的，那是真的惨</blockquote>
 xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要是直接152入坑 就算给个5宝1001 遇上活动估计也只能干瞪眼
-
-
-
-
-
 
 
 -----
@@ -17294,17 +11195,11 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 ##### 11446#       发表于 2018-10-15 21:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41275704&amp;ptid=1712412" target="_blank">khxooo 发表于 2018-10-15 19:56</a>
 巨嫂也可以啊，4星的从者特攻光炮，我等非洲人的幸运啊</blockquote>
 没有单up的话up的四星不见得比五星高得到哪里去，别傻了。看看这次泳装池子那些非洲人的哀嚎吧。
 
 以及在闪闪人气那么高的情况下出个娘閃我觉得官方是会觉得有风险的。
-
-
-
-
-
 
 
 -----
@@ -17315,7 +11210,6 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -17324,12 +11218,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  khxooo  
 ##### 11449#       发表于 2018-10-15 22:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41276795&amp;ptid=1712412" target="_blank">evanchenyu 发表于 2018-10-15 21:58</a>
@@ -17341,24 +11233,13 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 有啊，两次复刻的新4星全部都有单UP的啊
 
 
-
-
-
-
-
 -----
 
 ####  我爱喵喵  
 ##### 11450#       发表于 2018-10-15 22:24
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于等到FREE首通减半了，一百多个石头在向我招手
-
-
-
-
-
 
 
 -----
@@ -17369,21 +11250,13 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11452#       发表于 2018-10-15 22:36
 
 
-
-
 看了半天杨威利，体力溢出了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17392,16 +11265,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 ##### 11453#       发表于 2018-10-15 23:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277097&amp;ptid=1712412" target="_blank">copysword 发表于 2018-10-15 22:34:24</a>
 真的不能酒后抽卡了，刚才喝麻了回来脑子一热冲了一单要把伊莉雅满宝，结果三个十连虽然满宝了，然而还歪了 ...</blockquote>同样是萝莉为啥就要差别待遇呢<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17410,22 +11277,13 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 ##### 11454#       发表于 2018-10-15 23:38
 
 
-
-
 嗑了三十来个金苹果，溢出一万五的金币，总算把礼装满破了……
-
-
-
-
-
 
 
 -----
 
 ####  shimotsuki14  
 ##### 11455#       发表于 2018-10-15 23:44
-
-
 
 
 我都忘光了今天什么维护什么新卡池之类的。
@@ -17437,16 +11295,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 然后看着手里的一宝三藏和一宝伊莉雅陷入了沉思，二宝我是补个三藏还是补个伊莉雅呢……
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11456#       发表于 2018-10-15 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277647&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-15 23:44</a>
@@ -17461,11 +11313,6 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 火力的话三藏有宝具本
 
 
-
-
-
-
-
 -----
 
 ####  copysword  
@@ -17474,12 +11321,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  carrybone  
 ##### 11458#       发表于 2018-10-15 23:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277097&amp;ptid=1712412" target="_blank">copysword 发表于 2018-10-15 22:34:24</a>
@@ -17488,16 +11333,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11459#       发表于 2018-10-16 00:01
-
 
 
 <blockquote>copysword 发表于 2018-10-15 23:51
@@ -17505,16 +11344,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 不要就撕卡呀
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11460#       发表于 2018-10-16 00:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277669&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-15 23:48</a>
@@ -17528,16 +11361,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 同样是二宝的话哪个火力更强一点？听说伊莉雅也有宝具本？
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11461#       发表于 2018-10-16 00:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277778&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-16 00:04</a>
@@ -17551,25 +11378,13 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 关键还是看你喜欢啦
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11462#       发表于 2018-10-16 00:08
 
 
-
-
 60石new特总，弓阶全图鉴达成<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17578,21 +11393,13 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 ##### 11463#       发表于 2018-10-16 00:12
 
 
-
-
 这二期单up没有阿妈的吧，扔了两单下去就一水无毛<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  khxooo  
 ##### 11464#       发表于 2018-10-16 00:15
-
 
 
  本帖最后由 khxooo 于 2018-10-16 00:40 编辑 
@@ -17603,16 +11410,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 还是交了令咒，第二次周回本交令咒了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11465#       发表于 2018-10-16 00:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277802&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-16 00:08</a>
@@ -17621,17 +11422,10 @@ xjb抽了太看入坑时机了 233 我运气还算好鬼岛妇科入坑  要�
 UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是明年CBA双UP好些<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  angelooo  
 ##### 11466#       发表于 2018-10-16 00:22
-
-
 
 
 枪奶光单UP池子扔了一个十连无事发生，酋长终于满宝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -17639,16 +11433,10 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 于是泳装池子正式结束，到北斋之前不抽了
 
 
-
-
-
-
-
 -----
 
 ####  星尘的记忆  
 ##### 11467#       发表于 2018-10-16 00:23
-
 
 
  本帖最后由 星尘的记忆 于 2018-10-16 01:03 编辑 
@@ -17660,16 +11448,10 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 —— 来自 360 1801-A01, Android 7.1.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11468#       发表于 2018-10-16 00:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277849&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-16 00:18</a>
@@ -17679,16 +11461,10 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 然后去奶光池又抽了两单才+三宝，一堆金方块没有骑黑呆<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11469#       发表于 2018-10-16 00:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41277908&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-16 00:28</a>
@@ -17697,27 +11473,15 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 特总把欧气用光了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  carrybone  
 ##### 11470#       发表于 2018-10-16 00:30
 
 
-
-
 大小号都试完了，去年惨痛的沉船经历让我这次只敢充一单试手，果不其然没有，欧爆的小号20呼符下去也只歪了俄里翁，看来小学生注定和我无缘<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -17726,14 +11490,7 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11471#       发表于 2018-10-16 00:41
 
 
-
-
 再追了一单，2宝小学生，收了收了，伊莉雅真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17744,7 +11501,6 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  copysword  
@@ -17753,21 +11509,13 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  六次方  
 ##### 11474#       发表于 2018-10-16 01:43
 
 
-
-
 四宝黑呆没奶光，这游戏真好玩我还要氪金<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17776,14 +11524,7 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11475#       发表于 2018-10-16 03:21
 
 
-
-
 两个大号狂打自由本拿钻石，各自十连一个出了奶光，另一个黑杯零毁
-
-
-
-
-
 
 
 -----
@@ -17792,17 +11533,10 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11476#       发表于 2018-10-16 04:18
 
 
-
-
 二期池子1300石头就3个SSR。包括歪了个不需要的C狐。
 
 
 狗屎游戏，我再抽就是傻逼。阿荣之前一次都不抽了
-
-
-
-
-
 
 
 -----
@@ -17811,14 +11545,7 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11477#       发表于 2018-10-16 05:32
 
 
-
-
 二期池子单抽三发居然歪个术尼托<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17829,7 +11556,6 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -17838,21 +11564,13 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  衛宫切嗣  
 ##### 11480#       发表于 2018-10-16 07:13
 
 
-
-
 3单0英灵，这tm什么单up
-
-
-
-
-
 
 
 -----
@@ -17861,14 +11579,7 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11481#       发表于 2018-10-16 07:42
 
 
-
-
 话说哪位大佬借个高宝王哈打公牛，三个令咒过不了
-
-
-
-
-
 
 
 -----
@@ -17877,14 +11588,7 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11482#       发表于 2018-10-16 07:42
 
 
-
-
 安卓b服 100,125,241,247
-
-
-
-
-
 
 
 -----
@@ -17893,22 +11597,13 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11483#       发表于 2018-10-16 08:43
 
 
-
-
 七单一ssr，还是歪的。嗦不出话<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  吾乃啊噗  
 ##### 11484#       发表于 2018-10-16 09:09
-
-
 
 
 我也想捞个特总……弓差特总老帅哥和崔悲伤，但是感觉这池子毒的有点难受
@@ -17918,27 +11613,15 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 全图鉴的只有狂阶，和狂阶缘分一直挺好的，高贵的金枪差正好一排<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11485#       发表于 2018-10-16 09:15
 
 
-
-
 手上有未满破的万圣节小恶魔了，有必要追求苍玉魔法少女满破吗？一般我是给90满宝的泳莫在用的
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -17947,14 +11630,7 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11486#       发表于 2018-10-16 09:17
 
 
-
-
 按耐不住抽卡欲望 弄了个石头号来解解馋 看看欧气如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -17963,20 +11639,13 @@ UP池子太多，我还在想特总要怎么捞，有雷还是打扰了，还是
 ##### 11487#       发表于 2018-10-16 09:17
 
 
-
 <blockquote>gjd198692 发表于 2018-10-16 09:17
 按耐不住抽卡欲望 弄了个石头号来解解馋 看看欧气如何</blockquote>
 全砸进去看看多少出货
 
 
-
-
-
-
 C2C582B9-697F-4231-9CD4-357AA805D91A.png
 (369.96 KB, 下载次数: 1)
-
-
 
 
 下载附件
@@ -17985,24 +11654,7 @@ C2C582B9-697F-4231-9CD4-357AA805D91A.png
 2018-10-16 09:17 上传
 
 
-
-
-
-
-
-
-
 <img src="https://img.saraba1st.com/forum/201810/16/091730e5jfojifsyqoib5b.png" referrerpolicy="no-referrer">
-
-
-
-
-
-
-
-
-
-
 
 
 -----
@@ -18011,22 +11663,14 @@ C2C582B9-697F-4231-9CD4-357AA805D91A.png
 ##### 11488#       发表于 2018-10-16 09:18
 
 
-
-
 隔壁LGA有个RPG贴说自己咕郎台要把骑凛启明星的160AP抠出来打减半的1.52，笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 http://ngabbs.com/read.php?tid=15354513
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 11489#       发表于 2018-10-16 09:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279526&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-16 09:15</a>
@@ -18036,16 +11680,10 @@ http://ngabbs.com/read.php?tid=15354513
 钱多就满破<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，满破美游比小恶魔好
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 11490#       发表于 2018-10-16 09:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279566&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-16 09:18</a>
@@ -18054,16 +11692,10 @@ http://ngabbs.c ...</blockquote>
 昨天还看到个故事会说朋友代刷一天吃光自己160苹果的，这帮人为了存在感连脑子都不要
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11491#       发表于 2018-10-16 09:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279566&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-16 09:18:38</a>
@@ -18073,16 +11705,10 @@ http://ngabbs.com/read ...</blockquote>这尼玛傻得没边了吧……<img src
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11492#       发表于 2018-10-16 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279692&amp;ptid=1712412" target="_blank">莉莉橙 发表于 2018-10-16 09:34:30</a>
@@ -18091,16 +11717,10 @@ http://ngabbs.com/read ...</blockquote>这尼玛傻得没边了吧……<img src
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11493#       发表于 2018-10-16 09:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279573&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-16 09:19</a>
@@ -18110,26 +11730,15 @@ http://ngabbs.com/read ...</blockquote>这尼玛傻得没边了吧……<img src
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11494#       发表于 2018-10-16 09:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41279959&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-16 09:57</a>
 多谢，两个十连出了四张，已满破。顺便又来了张尼托凑三宝（重大利好）满破了才发现美游这张是全攻击的， ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">引起不适，我5单才2张
-
-
-
-
-
 
 
 -----
@@ -18138,14 +11747,7 @@ http://ngabbs.com/read ...</blockquote>这尼玛傻得没边了吧……<img src
 ##### 11495#       发表于 2018-10-16 10:01
 
 
-
-
 其实你出于功利考虑，不打那些启明星本也没啥，骑凛强度微妙，不想用也没什么不可替代性。但把这点事当成个事说出来……咋说呢，傻得可爱
-
-
-
-
-
 
 
 -----
@@ -18154,13 +11756,7 @@ http://ngabbs.com/read ...</blockquote>这尼玛傻得没边了吧……<img src
 ##### 11496#       发表于 2018-10-16 10:02
 
 
-
 [http://bbs.nga.cn/read.php?tid=15355760](http://bbs.nga.cn/read.php?tid=15355760) 喷了，在nga大佬们也在抱团发帖
-
-
-
-
-
 
 
 -----
@@ -18169,23 +11765,15 @@ http://ngabbs.com/read ...</blockquote>这尼玛傻得没边了吧……<img src
 ##### 11497#       发表于 2018-10-16 10:04
 
 
-
-
 看了眼职介池，新人可以抽爆孔明了
 
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 11498#       发表于 2018-10-16 10:08
-
 
 
 <blockquote>Leona_Akari 发表于 2018-10-16 09:18
@@ -18195,16 +11783,10 @@ http://ngabbs.c ...</blockquote>
 rpg自演没跑
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11499#       发表于 2018-10-16 10:28
-
 
 
  本帖最后由 gjd198692 于 2018-10-16 10:29 编辑 
@@ -18214,27 +11796,15 @@ rpg自演没跑
 这游戏看来真的不能头铁   一个满宝英雄差不多可以买台苹果8P了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  没有演技  
 ##### 11500#       发表于 2018-10-16 10:31
 
 
-
-
 终于出了女仆<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 可是王啊，我没QP了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18243,15 +11813,9 @@ rpg自演没跑
 ##### 11501#       发表于 2018-10-16 10:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41280326&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-16 10:28:25</a></blockquote>一般来，二宝最实惠<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">抽卡还是看个人吧
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -18260,21 +11824,13 @@ rpg自演没跑
 ##### 11502#       发表于 2018-10-16 10:41
 
 
-
-
 更新一下，7单1奶光，1骑呆，其他也歪到几个sr
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 11503#       发表于 2018-10-16 10:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41280326&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-16 10:28</a>
@@ -18285,17 +11841,10 @@ rpg自演没跑
 <img src="https://wx4.sinaimg.cn/mw690/69623978ly1fw9vexnoxuj20al0aegpj.jpg" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  re73589  
 ##### 11504#       发表于 2018-10-16 11:06
-
-
 
 
 连续两局两张潜水学妹，复刻也能满破了
@@ -18304,25 +11853,13 @@ rpg自演没跑
 —— 来自 OnePlus ONEPLUS A5010, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.3
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11505#       发表于 2018-10-16 11:19
 
 
-
-
 打到现在就没出一张李庄
-
-
-
-
-
 
 
 -----
@@ -18331,16 +11868,9 @@ rpg自演没跑
 ##### 11506#       发表于 2018-10-16 11:41
 
 
-
-
 话说，伊莉雅的卡面你们不觉得关节处莫名的扭曲么
 
 广山自己漫画画的那么好，为啥FGO里表现总是不尽如人意
-
-
-
-
-
 
 
 -----
@@ -18351,21 +11881,13 @@ rpg自演没跑
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  wolfwood  
 ##### 11508#       发表于 2018-10-16 12:31
 
 
-
-
 2发10连小学生和美游到手，舔舔卡面得了，C阶单体输出还是靠我（歪到）3宝的黑杯三藏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18374,17 +11896,10 @@ rpg自演没跑
 ##### 11509#       发表于 2018-10-16 12:34
 
 
-
-
 主力目标枪奶光入手，附带的弓海伦娜，外加一个意外来客狼王
 
 
 接下来看看杀阶池子能不能捞点什么，我杀阶太悲剧了
-
-
-
-
-
 
 
 -----
@@ -18393,14 +11908,7 @@ rpg自演没跑
 ##### 11510#       发表于 2018-10-16 12:36
 
 
-
-
 顺便现在最大的悲哀是狗粮一点没了，3张金卡就只能挂着好看……
-
-
-
-
-
 
 
 -----
@@ -18409,14 +11917,7 @@ rpg自演没跑
 ##### 11511#       发表于 2018-10-16 12:42
 
 
-
-
 30石找到了小五JS。人品败光了
-
-
-
-
-
 
 
 -----
@@ -18425,21 +11926,14 @@ rpg自演没跑
 ##### 11512#       发表于 2018-10-16 13:11
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41280607&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-16 10:48</a></blockquote>
 哈哈哈 有才
-
-
-
-
-
 
 
 -----
 
 ####  gjd198692  
 ##### 11513#       发表于 2018-10-16 13:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41281522&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-16 12:06</a>
@@ -18451,16 +11945,10 @@ rpg自演没跑
 可怕可怕<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11514#       发表于 2018-10-16 13:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41280434&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-16 10:36</a>
@@ -18472,25 +11960,14 @@ rpg自演没跑
 是啊感觉性价比最高的还是2宝 提升也是最高的 花的钱和五宝比起来要少不少 
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11515#       发表于 2018-10-16 13:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41280607&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-16 10:48</a></blockquote>
 新单位：一伊
-
-
-
-
-
 
 
 -----
@@ -18499,24 +11976,15 @@ rpg自演没跑
 ##### 11516#       发表于 2018-10-16 13:15
 
 
-
-
 想起去年千石一宝伊莉雅…现在看到卡池都心慌
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  J-002  
 ##### 11517#       发表于 2018-10-16 13:17
-
-
 
 
 有没有哪位是收号入坑的？有个问题想问下
@@ -18528,16 +11996,10 @@ rpg自演没跑
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11518#       发表于 2018-10-16 13:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41282124&amp;ptid=1712412" target="_blank">J-002 发表于 2018-10-16 13:17</a>
@@ -18548,16 +12010,10 @@ rpg自演没跑
 收号找回闹大的案例还是有几个的
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11519#       发表于 2018-10-16 13:41
-
 
 
  本帖最后由 dante888 于 2018-10-16 13:51 编辑 
@@ -18569,16 +12025,10 @@ rpg自演没跑
 需要我的小号吗，号太多正好想出掉一个如果是群主的朋友我也比较放心，国服现在要打理3个号，比较累人，出掉一个号能减轻些负担对我来说也挺好的
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 11520#       发表于 2018-10-16 13:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41282357&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-16 13:41:22</a>
@@ -18587,16 +12037,10 @@ rpg自演没跑
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11521#       发表于 2018-10-16 13:56
-
 
 
 <blockquote>J-002 发表于 2018-10-16 13:54
@@ -18607,16 +12051,10 @@ rpg自演没跑
 qq聊吧
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11522#       发表于 2018-10-16 14:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41282508&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-16 13:56:41</a>
@@ -18625,25 +12063,13 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  atomicink  
 ##### 11523#       发表于 2018-10-16 14:33
 
 
-
-
 泳装毕业了，一张礼装都没掉<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18654,13 +12080,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  吾乃啊噗  
 ##### 11525#       发表于 2018-10-16 15:16
-
-
 
 
 我感觉出货率还是挺趋近于1%的吧，而且你还要看你的出货是什么都可以还是只要5星就算，如果有目标那出货概率是0.7%，10单满宝还是挺地中海的
@@ -18670,16 +12093,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 有豹就有还<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11526#       发表于 2018-10-16 15:33
-
 
 
 <blockquote>吾乃啊噗 发表于 2018-10-16 15:16
@@ -18687,16 +12104,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 那么一共课了多少呢
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 11527#       发表于 2018-10-16 15:40
-
 
 
  本帖最后由 吾乃啊噗 于 2018-10-16 15:42 编辑 
@@ -18708,25 +12119,13 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 唯一难受的就是黑杯宝石都是4缺1，真是惨
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 11528#       发表于 2018-10-16 15:46
 
 
-
-
 又拉了下82单62五星，取消保底时候我50多单才32五星，感觉都回来了啊
-
-
-
-
-
 
 
 -----
@@ -18735,16 +12134,9 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11529#       发表于 2018-10-16 15:49
 
 
-
-
 话说3星4星的礼装都是直接卖绿方块的吗？用来搓丸子经验值会不会高一点？最近根本没有什么友情点收入啊，就指望着尼禄祭能不能创收一波了
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -18753,15 +12145,9 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11530#       发表于 2018-10-16 15:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41283839&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-16 15:49</a>
 话说3星4星的礼装都是直接卖绿方块的吗？用来搓丸子经验值会不会高一点？最近根本没有什么友情点收入啊，就 ...</blockquote>
 不缺绿方块肯定吃礼装经验划算啊
-
-
-
-
-
 
 
 -----
@@ -18770,16 +12156,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11531#       发表于 2018-10-16 15:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41283839&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-16 15:49:44</a>
 话说3星4星的礼装都是直接卖绿方块的吗？用来搓丸子经验值会不会高一点？最近根本没有什么友情点收入啊，就 ...</blockquote>没用又不想收藏的礼装全搓丸子
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -18788,17 +12168,11 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11532#       发表于 2018-10-16 15:53
 
 
-
 <blockquote>吾乃啊噗 发表于 2018-10-16 15:40
 大概是60多吧今年
 
 唯一难受的就是黑杯宝石都是4缺1，真是惨</blockquote>
 面包会有的
-
-
-
-
-
 
 
 -----
@@ -18809,23 +12183,15 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  airatone  
 ##### 11534#       发表于 2018-10-16 17:24
 
 
-
-
 前天晚上直感泳装1期池一发十连二宝水尼加一张五星氪金礼装，溜了溜了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -18834,16 +12200,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11535#       发表于 2018-10-16 17:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41284855&amp;ptid=1712412" target="_blank">airatone 发表于 2018-10-16 17:24:13</a>
 前天晚上直感泳装1期池一发十连二宝水尼加一张五星氪金礼装，溜了溜了</blockquote>你这是nt技能发动吧……<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -18852,13 +12212,7 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11536#       发表于 2018-10-16 17:29
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">想学直感想学收藏家
-
-
-
-
-
 
 
 -----
@@ -18867,14 +12221,7 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11537#       发表于 2018-10-16 17:38
 
 
-
-
 李庄在哪个地方卖？不是只能卖从者吗
-
-
-
-
-
 
 
 -----
@@ -18883,16 +12230,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11538#       发表于 2018-10-16 17:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285006&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-16 17:38</a>
 
 李庄在哪个地方卖？不是只能卖从者吗</blockquote>
 卖啥礼装，搓经验丸子啊
-
-
-
-
-
 
 
 -----
@@ -18901,16 +12242,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11539#       发表于 2018-10-16 17:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285020&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-16 17:39</a>
 
 卖啥礼装，搓经验丸子啊</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">吴克的黄方块总是不够的
-
-
-
-
-
 
 
 -----
@@ -18919,16 +12254,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11540#       发表于 2018-10-16 17:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285030&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-16 17:41</a>
 
 吴克的黄方块总是不够的</blockquote>
 礼装哪来的黄方块<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18937,14 +12266,7 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11541#       发表于 2018-10-16 17:47
 
 
-
-
 混蛋海豹好友两单泳装英灵全齐了，另外一个也是骑呆和水泥都有，真是羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -18953,16 +12275,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11542#       发表于 2018-10-16 17:49
 
 
-
  本帖最后由 dante888 于 2018-10-16 17:53 编辑 
 <blockquote>khxooo 发表于 2018-10-16 17:47
 混蛋海豹好友两单泳装英灵全齐了，另外一个也是骑呆和水泥都有，真是羡慕 ...</blockquote>
 你也可以使用圣晶石修改器的
-
-
-
-
-
 
 
 -----
@@ -18971,23 +12287,16 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11543#       发表于 2018-10-16 18:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285040&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-16 17:41</a>
 
 礼装哪来的黄方块</blockquote>
 不上面有人说可以卖李庄么，想着五星的卖了是不是换个黄方块回来
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11544#       发表于 2018-10-16 18:01
-
 
 
  本帖最后由 deadog 于 2018-10-16 18:06 编辑 
@@ -18997,16 +12306,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 5星礼装也是绿方块呀。出率比金卡从者高那么多还能卖金方块，策划不得气死。
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11545#       发表于 2018-10-16 18:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285118&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-16 17:49</a>
@@ -19015,32 +12318,19 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 预算要给艾蕾啊，只能羡慕了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 11546#       发表于 2018-10-16 18:13
 
 
-
-
 隔壁人有幡然醒悟8102还让人自建入坑就是SB到家的行为，然后把龙空的贴子也转过来了，结果被删<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 11547#       发表于 2018-10-16 18:14
-
 
 
 <blockquote>deadog 发表于 2018-10-16 18:01
@@ -19050,16 +12340,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 給一個金方塊我覺得很合理.........
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11548#       发表于 2018-10-16 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285316&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-16 18:14</a>
@@ -19070,16 +12354,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 体感4星从者明显难出一些。不过我的确没什么抽四星的手气。
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11549#       发表于 2018-10-16 18:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285316&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-16 18:14</a>
@@ -19089,25 +12367,13 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 主要还是运营太抠了
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 11550#       发表于 2018-10-16 18:38
 
 
-
-
 我不要的礼装全卖了，复刻过两次的就只留一张满破了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19116,16 +12382,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11551#       发表于 2018-10-16 18:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285574&amp;ptid=1712412" target="_blank">吾乃啊噗 发表于 2018-10-16 18:38</a>
 
 我不要的礼装全卖了，复刻过两次的就只留一张满破了</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">亏了好多丸子经验啊
-
-
-
-
-
 
 
 -----
@@ -19134,14 +12394,7 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11552#       发表于 2018-10-16 19:35
 
 
-
-
 1期毕业了，准备搞2期了。
-
-
-
-
-
 
 
 -----
@@ -19150,15 +12403,9 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11553#       发表于 2018-10-16 19:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41285638&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-16 18:46</a>
 亏了好多丸子经验啊</blockquote>
 对啊 怪不得我没有百级礼装 好像明白了什么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19167,16 +12414,9 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ##### 11554#       发表于 2018-10-16 20:01
 
 
-
-
 話說， 一寶滿破寶石狂狗可以單帶到劇情那一張？
 
 最近在台服帶人打算先有心理預計
-
-
-
-
-
 
 
 -----
@@ -19187,12 +12427,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  南宮凝香  
 ##### 11556#       发表于 2018-10-16 20:25
-
 
 
 <blockquote>copysword 发表于 2018-10-16 20:08
@@ -19205,16 +12443,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 月靈同理
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 11557#       发表于 2018-10-16 20:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41286326&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-16 20:01</a>
@@ -19227,18 +12459,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 可以考虑月灵髓液，带炎头乔老师，开场狂狗放避矢，这样能抗5下，很大几率还没用完就能再放一次，7次避矢+1次战续+御主衣服还打不过的敌人真不多了
 
 
-
-
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 11558#       发表于 2018-10-16 20:34
-
 
 
  本帖最后由 J-002 于 2018-10-16 20:38 编辑 
@@ -19251,17 +12475,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 开的出来，我有一阵用石头号练天草玩，打素材本就是用1个黑狗闯天下的，黑狗红绿蓝np嗖嗖的
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11559#       发表于 2018-10-16 20:38
-
-
 
 
 好吧， 換月靈了
@@ -19269,16 +12486,10 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 據說現在在打崔悲傷
 
 
-
-
-
-
-
 -----
 
 ####  J-002  
 ##### 11560#       发表于 2018-10-16 20:57
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41286684&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-16 20:38</a>
@@ -19289,32 +12500,19 @@ qq聊吧</blockquote>交易get<img src="https://static.saraba1st.com/image/smile
 ……你给他挂个武藏或嫁王啊……总司都行……
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 11561#       发表于 2018-10-16 21:03
 
 
-
-
 满破月灵配黑狗非常适合操作糟糕的我，相信也适合每一个新人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 11562#       发表于 2018-10-16 21:11
-
 
 
  本帖最后由 南宮凝香 于 2018-10-16 21:13 编辑 
@@ -19336,13 +12534,7 @@ B， 嫁王
 C， 總司
 
 
-
 很明顯我沒有單體五星劍
-
-
-
-
-
 
 
 -----
@@ -19353,12 +12545,10 @@ C， 總司
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  dante888  
 ##### 11564#       发表于 2018-10-16 21:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41280006&amp;ptid=1712412" target="_blank">atomicink 发表于 2018-10-16 10:02</a>
@@ -19367,25 +12557,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 700万缩水成400万后给的苹果芙芙原来也是可以缩水的，我服了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11565#       发表于 2018-10-16 21:39
 
 
-
-
 多谢@J-002，终于不用搞什么大小号同步操作这种烦心事了，国服可以集中力量在一个号了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19394,16 +12572,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11566#       发表于 2018-10-16 21:48
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41287259&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-16 21:39</a>
 
 多谢@J-002，终于不用搞什么大小号同步操作这种烦心事了，国服可以集中力量在一个号了 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大佬的小号也小不到哪去吧。。。
-
-
-
-
-
 
 
 -----
@@ -19412,13 +12584,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11567#       发表于 2018-10-16 22:17
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">七单才满宝阿妈，心痛死了
-
-
-
-
-
 
 
 -----
@@ -19427,14 +12593,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11568#       发表于 2018-10-16 22:37
 
 
-
-
 没事做了啊，尼禄祭快来
-
-
-
-
-
 
 
 -----
@@ -19443,14 +12602,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11569#       发表于 2018-10-16 22:43
 
 
-
-
 啊啊啊，还差5个枪饼干给白枪呆。5/5/10的打预赛总觉得3T不是很稳。但是考虑到饼干掉率，还是老老实实到时候预赛刷5池再点吧。
-
-
-
-
-
 
 
 -----
@@ -19459,13 +12611,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11570#       发表于 2018-10-16 22:55
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">而我只有水泥三宝，齐格飞二宝，还在想要不要给长江42选一凑个二宝等cba落地
-
-
-
-
-
 
 
 -----
@@ -19474,23 +12620,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11571#       发表于 2018-10-16 23:12
 
 
-
-
 42选一好难选。。红A黑枪呆戈尔贡都想要
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
 
 ####  hylq2100  
 ##### 11572#       发表于 2018-10-16 23:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41288130&amp;ptid=1712412" target="_blank">milizzy 发表于 2018-10-16 23:12</a>
@@ -19502,24 +12640,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">下体&gt;强度&gt;其他，这样排列就好选了吧
 
 
-
-
-
-
-
 -----
 
 ####  白昼梦  
 ##### 11573#       发表于 2018-10-16 23:20
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">遵从下体就二宝尼托了，但是看nga吹法实际上都是满破宝石五宝物理即死
-
-
-
-
-
 
 
 -----
@@ -19528,15 +12655,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11574#       发表于 2018-10-16 23:23
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">明明一直都在节省白枪羁绊，可是为什么还是差一点点就到7了
 
 尼禄祭要遭重了，9羁绊预定
-
-
-
-
-
 
 
 -----
@@ -19545,15 +12666,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11575#       发表于 2018-10-16 23:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41287240&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-16 21:36</a>
 700万缩水成400万后给的苹果芙芙原来也是可以缩水的，我服了</blockquote>
 还以为你们在讨论哪个贴，这不是我搬运的美服咨询吗<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19562,16 +12677,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11576#       发表于 2018-10-16 23:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41287344&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-16 21:48</a>
 
 大佬的小号也小不到哪去吧。。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别的不说了，宝石翁比我四个号加起来都多
-
-
-
-
-
 
 
 -----
@@ -19580,17 +12689,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11577#       发表于 2018-10-16 23:37
 
 
-
-
 沒特別想要的話先選你不會抽又想要的劇情池限定四星
 
 
 這些是除了性別跟職階池外不會歪出來的卡
-
-
-
-
-
 
 
 -----
@@ -19599,23 +12701,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11578#       发表于 2018-10-16 23:40
 
 
-
-
 头铁氪了两单又满破了一张美游，还是没有伊莉雅<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 11579#       发表于 2018-10-16 23:41
-
 
 
 <blockquote>白昼梦 发表于 2018-10-16 23:20
@@ -19625,16 +12719,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 實用性上提升其實沒多少
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11580#       发表于 2018-10-16 23:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41288303&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-16 23:32</a>
@@ -19643,16 +12731,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 运营抠成这样也是没谁了，怕是之后万圣二期的3个石头也送不出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11581#       发表于 2018-10-16 23:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41287259&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-16 21:39</a>
@@ -19661,25 +12743,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 大佬你“狂战最高”那号分分钟比我大号还吊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11582#       发表于 2018-10-16 23:54
 
 
-
-
 42选一早就决定了，大号选崔悲伤，小号选高文，然后高文挂封印指定<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19688,14 +12758,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11583#       发表于 2018-10-17 00:18
 
 
-
-
 泳装没东西刷了，突然发现可以去刷强化本，有事做了
-
-
-
-
-
 
 
 -----
@@ -19704,16 +12767,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11584#       发表于 2018-10-17 00:20
 
 
-
-
 尼托的问题就是打非克制阶的时候，一旦即死失败不能补刀完就很拖节奏了
 
 这期泳装我贪速度用宝石尼托打了几次，有一轮铜怪都经常即死失败，3剩2在场，恶心的要命
-
-
-
-
-
 
 
 -----
@@ -19722,16 +12778,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11585#       发表于 2018-10-17 00:33
 
 
-
-
 尼托还是刷狩猎的时候好用
 
 平时也没几个高血量又易即死的怪给你打，刷日常还心疼羁绊呢
-
-
-
-
-
 
 
 -----
@@ -19740,21 +12789,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11586#       发表于 2018-10-17 00:47
 
 
-
-
 看到白枪呆，差点忍不住点了10连了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 11587#       发表于 2018-10-17 00:57
-
 
 
  本帖最后由 Leona_Akari 于 2018-10-17 01:01 编辑 
@@ -19766,27 +12807,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 还好白枪来了，赶紧滚蛋，这池子太尼玛舒爽了，每次翻面都是新的感觉，抽的爽死了，以后再碰职阶池我是狗
 
 
-
-
-
-
-
 -----
 
 ####  苍蓝之枪  
 ##### 11588#       发表于 2018-10-17 01:10
 
 
-
-
 高难打完了，没交令咒，感觉泳装车轮更难点，前面几下对面气条怎么变的都没搞明白，莫名其妙就交了幻术......还好最后学妹挡下关键回合稳住了
 
 天之公牛抱了同学的王哈结果他这丢人练度，中道就跪了，想想还说真爱粉强氪4单捞出来的，结果666都没，还是我自己的撑了下来.....
-
-
-
-
-
 
 
 -----
@@ -19795,15 +12824,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11589#       发表于 2018-10-17 01:17
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41288952&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-17 00:57</a>
 看到这枪阶池子，小太阳+白枪，出哪个都是赚啊，来几下试试，这时候我还没意识到其实这池子里金色翻面全是 ...</blockquote>
 头是真的铁，白枪小太阳后面都不止一次单up<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19812,15 +12835,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11590#       发表于 2018-10-17 01:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41289041&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-17 01:17</a>
 头是真的铁，白枪小太阳后面都不止一次单up</blockquote>
 就因为想着出哪个都不亏，反正都是补宝具，来哪个都赚，而且从结果来说其实豹的很，2单3个5星，一堆4星，虽然有2个是小恩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19829,13 +12846,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11591#       发表于 2018-10-17 01:35
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">小恩没混进去之前枪职介是个好池子
-
-
-
-
-
 
 
 -----
@@ -19844,15 +12855,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11592#       发表于 2018-10-17 01:57
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41289104&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-17 01:35</a>
 小恩没混进去之前枪职介是个好池子</blockquote>
 美服要是今年能把福袋魔改到第七章之前我就会高高兴兴去抽枪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19861,14 +12866,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11593#       发表于 2018-10-17 02:13
 
 
-
-
 三个10连，歪出了第3宝尼托，然后中了一张伊莉雅，收手。伊拐技能本的30np没浪费<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19877,15 +12875,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11594#       发表于 2018-10-17 02:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41289104&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-17 01:35</a>
 小恩没混进去之前枪职介是个好池子</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前白枪呆up池去抽，结果两次歪出了小恩，小恩已经成为继红A之后 我永远不会去碰的up池了……
-
-
-
-
-
 
 
 -----
@@ -19894,16 +12886,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11595#       发表于 2018-10-17 08:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41289064&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-17 01:24:16</a>
 就因为想着出哪个都不亏，反正都是补宝具，来哪个都赚，而且从结果来说其实豹的很，2单3个5星，一堆4星， ...</blockquote>你能想象我梅林老福泳装三个池子歪小恩的心情吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -19912,15 +12898,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11596#       发表于 2018-10-17 08:35
 
 
-
 <blockquote>圈量子 发表于 2018-10-17 01:57
 美服要是今年能把福袋魔改到第七章之前我就会高高兴兴去抽枪</blockquote>
 福袋感恩节开的话应该会这样，不过这两上次枪阶up已经抽到3+2了，我估计还是抽杀或者弓吧
-
-
-
-
-
 
 
 -----
@@ -19929,15 +12909,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11597#       发表于 2018-10-17 08:37
 
 
-
 <blockquote>Leona_Akari 发表于 2018-10-17 01:24
 就因为想着出哪个都不亏，反正都是补宝具，来哪个都赚，而且从结果来说其实豹的很，2单3个5星，一堆4星， ...</blockquote>
 小恩通常不算做五星
-
-
-
-
-
 
 
 -----
@@ -19946,14 +12920,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11598#       发表于 2018-10-17 08:57
 
 
-
-
 难道专楼只有我一个人喜欢小恩<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19962,14 +12929,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11599#       发表于 2018-10-17 09:16
 
 
-
-
 第一个五宝非活动金卡，喵玉，不停的歪，对我真是真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -19978,14 +12938,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11600#       发表于 2018-10-17 09:19
 
 
-
-
 每个阶职池都是只出这个池子里面的从者？那不是很良心？
-
-
-
-
-
 
 
 -----
@@ -19994,14 +12947,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11601#       发表于 2018-10-17 09:19
 
 
-
-
 23号活动结束能不能给个面子长草一周。我要玩大嫖客2
-
-
-
-
-
 
 
 -----
@@ -20010,15 +12956,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11602#       发表于 2018-10-17 09:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41290379&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-17 09:19</a>
 23号活动结束能不能给个面子长草一周。我要玩大嫖客2</blockquote>
 想多了，我准备边打无限池边打RDR了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20027,15 +12967,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11603#       发表于 2018-10-17 09:42
 
 
-
 <blockquote>atomicink 发表于 2018-10-17 08:57
 难道专楼只有我一个人喜欢小恩</blockquote>
 喜欢的人应该也不少吧
-
-
-
-
-
 
 
 -----
@@ -20044,16 +12978,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11604#       发表于 2018-10-17 09:43
 
 
-
-
 白枪2宝。这下尼禄祭预赛3T稳了，顺便本期活动可以用预赛队的配置不吃锤子打第四轮弗兰队稳稳3T了。
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -20062,16 +12989,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11605#       发表于 2018-10-17 09:45
 
 
-
-
 白枪2宝。这下尼禄祭预赛3T稳了，顺便本期活动可以用预赛队的配置不吃锤子打第四轮弗兰队稳稳3T了。
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -20080,14 +13000,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11606#       发表于 2018-10-17 09:51
 
 
-
-
 泳装二期商店还剩些棋了。看来不用吃苹果了
-
-
-
-
-
 
 
 -----
@@ -20096,14 +13009,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11607#       发表于 2018-10-17 09:59
 
 
-
-
 小恩满破图还蛮好看的，等一个歪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20112,14 +13018,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11608#       发表于 2018-10-17 10:06
 
 
-
-
 看到小恩就想到当年我抽c闪的悲惨经历<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20128,13 +13027,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11609#       发表于 2018-10-17 10:08
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么感觉楼里好多都被小恩伤害过……
-
-
-
-
-
 
 
 -----
@@ -20143,21 +13036,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11610#       发表于 2018-10-17 10:08
 
 
-
-
 当年抽安娜抽出两个小恩我就放弃那个池了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  deadog  
 ##### 11611#       发表于 2018-10-17 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41290995&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-17 10:08:18</a>
@@ -20168,16 +13053,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11612#       发表于 2018-10-17 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41290999&amp;ptid=1712412" target="_blank">神意 发表于 2018-10-17 10:08</a>
@@ -20188,25 +13067,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  kazemitoya  
 ##### 11613#       发表于 2018-10-17 10:33
 
 
-
-
 小恩的出招方式我很喜欢，但配卡实在是让我爱不起来。
-
-
-
-
-
 
 
 -----
@@ -20215,16 +13082,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11614#       发表于 2018-10-17 10:41
 
 
-
-
 福袋出小恩，唉
 
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -20235,12 +13095,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  deadog  
 ##### 11616#       发表于 2018-10-17 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41291807&amp;ptid=1712412" target="_blank">auraria 发表于 2018-10-17 10:59</a>
@@ -20251,17 +13109,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 芬恩是我最早的几个金卡之一，后来陆续抽到3宝用到现在，和蓝卡队相性还不错
 
 
-
-
-
-
-
 -----
 
 ####  艾尔特翔  
 ##### 11617#       发表于 2018-10-17 12:06
-
-
 
 
 作为萌新，玩了2-3个月，现在等级
@@ -20294,33 +13145,19 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 目前是感觉刷火种和修炼场基本上都能过，剧情也没压力。就是活动高难打不过，现在求大佬帮我规划一下接下来的路线，优先练哪些从者，推图还是全力刷材料去升技能
 
 
-
-
-
-
-
 -----
 
 ####  GALLADE  
 ##### 11618#       发表于 2018-10-17 12:10
 
 
-
-
 高难没啥好想的，孔梅黑白贞满级满技能脚打
-
-
-
-
-
 
 
 -----
 
 ####  FrozenA  
 ##### 11619#       发表于 2018-10-17 12:17
-
-
 
 
 高难有困难，那还是白贞练个90级111，然后把宝具本打了最速成吧
@@ -20330,16 +13167,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 还有就是孔明练起来
 
 
-
-
-
-
-
 -----
 
 ####  星月々交辉  
 ##### 11620#       发表于 2018-10-17 12:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41292561&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 12:06</a>
@@ -20353,11 +13184,6 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 然后尼禄祭边刷边养，尼禄祭结束你最少能刷个100池的话，你会发觉活动前后你完全是两个人了
 
 
-
-
-
-
-
 -----
 
 ####  copysword  
@@ -20366,13 +13192,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  吾乃啊噗  
 ##### 11622#       发表于 2018-10-17 12:44
-
-
 
 
 新人刷不了100池也最好以50池为目标，50池对愿意投入时间的新人来说应该并不难
@@ -20386,16 +13209,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 5星太多养起来就是慢，但是好在你这个号角色还是挺好的
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11623#       发表于 2018-10-17 12:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41292561&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 12:06</a>
@@ -20409,16 +13226,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 我安徒生、杀生院找bb过的俩仇<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11624#       发表于 2018-10-17 12:50
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41292561&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 12:06:26</a>
@@ -20430,27 +13241,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11625#       发表于 2018-10-17 12:52
 
 
-
-
 给骑凛加宝具等级的几个伪高难抱下大腿完全没难度，别吓自己<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20459,15 +13258,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11626#       发表于 2018-10-17 14:04
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
 
 就是小恩也好啊
-
-
-
-
-
 
 
 -----
@@ -20476,16 +13269,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11627#       发表于 2018-10-17 14:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41293576&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-17 14:04:28</a>
 就是小恩也好啊</blockquote>枪大公比小恩可实用多了
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -20494,16 +13281,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11628#       发表于 2018-10-17 14:06
 
 
-
-
 刚才突然想起来三藏UP，一发十连，居然一宝变二宝了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20512,16 +13292,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11629#       发表于 2018-10-17 14:11
 
 
-
-
 刚才突然想起来三藏UP，一发十连，居然一宝变二宝了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20530,14 +13303,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11630#       发表于 2018-10-17 14:14
 
 
-
-
 好的，多谢各位
-
-
-
-
-
 
 
 -----
@@ -20546,23 +13312,16 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11631#       发表于 2018-10-17 14:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41293637&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-17 14:11:20</a>
 刚才突然想起来三藏UP，一发十连，居然一宝变二宝了</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看把你激动得都连击了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  lightingstar  
 ##### 11632#       发表于 2018-10-17 14:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41292561&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 12:06</a>
@@ -20573,25 +13332,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 你的卡面相当棒啊，比我强多了，但是练度不足。不要对高难太发怵，感觉你这星期多投入时间，把经验卡都刷出来，有计划的针对高难本分配一下，抱对大腿，在周末的时候冲击一下高难吧。
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11633#       发表于 2018-10-17 14:39
 
 
-
-
 这位离大佬只差一个尼禄祭了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20600,15 +13347,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11634#       发表于 2018-10-17 14:41
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41293781&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-17 14:24:18</a></blockquote>手机发第一次报错，刷了一下看没有就又发了一次，然后<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
@@ -20617,16 +13358,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11635#       发表于 2018-10-17 14:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41293917&amp;ptid=1712412" target="_blank">lightingstar 发表于 2018-10-17 14:37</a>
 
 你的卡面相当棒啊，比我强多了，但是练度不足。不要对高难太发怵，感觉你这星期多投入时间，把经验卡都刷 ...</blockquote>
 所有的经验卡都提前刷出来了，现在主要就是技能不行，然后战斗基本都是XJBD，不会什么战术，高难打过几个都挂了
-
-
-
-
-
 
 
 -----
@@ -20635,23 +13370,16 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11636#       发表于 2018-10-17 14:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294027&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 14:47:21</a>
 所有的经验卡都提前刷出来了，现在主要就是技能不行，然后战斗基本都是XJBD，不会什么战术，高难打过几个 ...</blockquote>可以先看看别人的视频，熟悉基本套路和阵容特性。对于梅林体系，看准时机开2技能就是了。
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  艾尔特翔  
 ##### 11637#       发表于 2018-10-17 14:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294068&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-17 14:51</a>
@@ -20663,16 +13391,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 好的，谢谢，我去找找
 
 
-
-
-
-
-
 -----
 
 ####  lightingstar  
 ##### 11638#       发表于 2018-10-17 15:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294100&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 14:54</a>
@@ -20685,16 +13407,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 你的这套box练好了，也会变大佬的
 
 
-
-
-
-
-
 -----
 
 ####  艾尔特翔  
 ##### 11639#       发表于 2018-10-17 15:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294175&amp;ptid=1712412" target="_blank">lightingstar 发表于 2018-10-17 15:01</a>
@@ -20705,32 +13421,19 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 赶紧回去练黑贞了，蓝卡输出貌似剑兰还可以？
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11640#       发表于 2018-10-17 15:20
 
 
-
-
 没枪<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想4星枪来个谁都行结果来的全是3星...还是留着钱等梅林吧
-
-
-
-
-
 
 
 -----
 
 ####  lightingstar  
 ##### 11641#       发表于 2018-10-17 15:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294227&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 15:06</a>
@@ -20745,16 +13448,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 输出当然得针对职阶作布置，你还是着眼于无限祭吧，把大佬们推荐的几个练上去就好。你的box深度很赞的，做好选择比较重要，毕竟练一个四星就是件很费力的事情了
 
 
-
-
-
-
-
 -----
 
 ####  lightingstar  
 ##### 11642#       发表于 2018-10-17 15:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294375&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-17 15:20</a>
@@ -20765,16 +13462,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 我也很想要个枪，四星就行，不过看到接下来活动送的枪贞强度就不错，也是比较纠结是不是应该搞个弓
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11643#       发表于 2018-10-17 15:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294227&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 15:06</a>
@@ -20785,25 +13476,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 尼禄祭的高难本对新人来说难度很大，白贞是个不错的选手。黑贞没有成熟体系和练度表现很差。
 
 
-
-
-
-
-
 -----
 
 ####  艾尔特翔  
 ##### 11644#       发表于 2018-10-17 15:46
 
 
-
-
 好的，转头回去先练白贞德
-
-
-
-
-
 
 
 -----
@@ -20812,23 +13491,16 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11645#       发表于 2018-10-17 15:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294680&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 15:46:10</a>
 好的，转头回去先练白贞德</blockquote>白贞好处就是满级就能用，技能全不点都行。超实在的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  艾尔特翔  
 ##### 11646#       发表于 2018-10-17 16:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294747&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-17 15:51</a>
@@ -20840,26 +13512,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 满级是指80还是要用圣杯喂满？
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11647#       发表于 2018-10-17 16:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294839&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 16:01</a>
 满级是指80还是要用圣杯喂满？</blockquote>
 90级
-
-
-
-
-
 
 
 -----
@@ -20868,16 +13529,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11648#       发表于 2018-10-17 16:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294878&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-17 16:05</a>
 
 90级</blockquote>
 了解
-
-
-
-
-
 
 
 -----
@@ -20886,14 +13541,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11649#       发表于 2018-10-17 16:05
 
 
-
-
 看了下自己的box，常规7阶里只有骑阶还缺个单体5星了。。。
-
-
-
-
-
 
 
 -----
@@ -20902,15 +13550,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11650#       发表于 2018-10-17 16:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294887&amp;ptid=1712412" target="_blank">艾尔特翔 发表于 2018-10-17 16:05</a>
 了解</blockquote>
 白贞刚开服很神就是因为其他人突破需要的素材不一定能弄到手而她只吃棋子，刷刷狗粮就能直接喂到90满级<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -20919,17 +13561,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11651#       发表于 2018-10-17 16:14
 
 
-
-
 想问一下刷无限池大概是什么意思
 （主要问题是刷一次池子用不用打高难本，用的话我就gg了）
 
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -20938,15 +13573,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11652#       发表于 2018-10-17 16:18
 
 
-
 <blockquote>Leona_Akari 发表于 2018-10-17 16:05
 看了下自己的box，常规7阶里只有骑阶还缺个单体5星了。。。</blockquote>
 拉二单up快了，还会有好几次
-
-
-
-
-
 
 
 -----
@@ -20955,23 +13584,16 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11653#       发表于 2018-10-17 16:21
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294918&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-17 16:08</a>
 
 白贞刚开服很神就是因为其他人突破需要的素材不一定能弄到手而她只吃棋子，刷刷狗粮就能直接喂到90满级[f ...</blockquote>
 我去，可惜了，早知道这样，应该把泳装尺的所有金银狗粮统统给白贞，我全部分散给众人了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11654#       发表于 2018-10-17 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294500&amp;ptid=1712412" target="_blank">lightingstar 发表于 2018-10-17 15:30</a>
@@ -20986,16 +13608,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 总感觉现在这池子骗氪，老手不用抽，新手抽的话马上就有更好的池子。杀、尺仇混池含金量高一些但还不如佛到明年等fa池。
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11655#       发表于 2018-10-17 16:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41295012&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-17 16:18</a>
@@ -21004,16 +13620,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 拉二我想等明年和尼托一起up的时候再抽，这样我42选1就不选尼托了，补个狂兰2宝等明年绿卡体系了
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11656#       发表于 2018-10-17 16:27
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294976&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-17 16:14</a>
@@ -21024,32 +13634,19 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 可以无限次刷新奖池的周回，难度是正常周回本或者略高一些
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 11657#       发表于 2018-10-17 16:31
 
 
-
-
 我还缺个术单体五星，不过也不想专门去抽了，偶尔要打大猫就直接上狂<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  devilwing  
 ##### 11658#       发表于 2018-10-17 16:34
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41294976&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-17 16:14</a>
@@ -21060,26 +13657,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 顾名思义就是能刷无限次的奖池，刷池子和打高难是没有关系的，就像现在的泳装你刷材料也不必去打高难一样
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11659#       发表于 2018-10-17 16:35
 
 
-
 <blockquote>Leona_Akari 发表于 2018-10-17 16:25
 拉二我想等明年和尼托一起up的时候再抽，这样我42选1就不选尼托了，补个狂兰2宝等明年绿卡体系了 ...</blockquote>
 可以现在先抽梅芙啊，官方亲女儿
-
-
-
-
-
 
 
 -----
@@ -21088,23 +13674,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11660#       发表于 2018-10-17 16:39
 
 
-
-
 前两天加到一个野生的五宝大佬，真高兴<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
 
 这两天刷到一个熟悉的id 聊城孙一峰 是不是楼里的，感觉看到过，还有好友位吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  sandro  
 ##### 11661#       发表于 2018-10-17 17:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41295267&amp;ptid=1712412" target="_blank">aiqopsha 发表于 2018-10-17 16:39</a>
@@ -21115,16 +13693,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 有的，你id是啥，我加下
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11662#       发表于 2018-10-17 17:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41295095&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-17 16:25</a>
@@ -21137,25 +13709,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 白贞还有几个月，孔明要到明年了
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11663#       发表于 2018-10-17 17:12
 
 
-
-
 抽抽抽，给02满宝去
-
-
-
-
-
 
 
 -----
@@ -21164,22 +13724,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11664#       发表于 2018-10-17 17:23
 
 
-
-
 梅芙竟然能开技能本2……这待遇绝了，真亲女儿
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 11665#       发表于 2018-10-17 17:30
-
-
 
 
 喷了，叶哥哥是蛋吻控石锤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -21189,26 +13740,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 明天骑真是抽那个都不亏了。
 
 
-
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11666#       发表于 2018-10-17 17:31
 
 
-
-
 算是帮了一把国服的卡池三和万圣复刻业绩<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21217,16 +13755,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11667#       发表于 2018-10-17 17:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41295822&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-17 17:23</a>
 
 梅芙竟然能开技能本2……这待遇绝了，真亲女儿</blockquote>
 有宝具本和两个技能本的好像就卫宫和她，卫宫早就是亲儿子了，梅芙这绝对是亲女儿实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21235,14 +13767,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11668#       发表于 2018-10-17 17:33
 
 
-
-
 妈的死活不掉礼装啊，最近几个活动都不掉是要怎么样啊
-
-
-
-
-
 
 
 -----
@@ -21251,22 +13776,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11669#       发表于 2018-10-17 17:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41295935&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-17 11:32</a>
 有宝具本和两个技能本的好像就卫宫和她，卫宫早就是亲儿子了，梅芙这绝对是亲女儿实锤了 ...</blockquote>
 而且梅芙技能本宝具本灵衣改模泳装都有了，这连红A都不能比啊
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 11670#       发表于 2018-10-17 17:41
-
 
 
  本帖最后由 南宮凝香 于 2018-10-17 17:42 编辑 
@@ -21280,17 +13798,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 我要想想什麼時候補一寶葉小姐比較好
 
 
-
-
-
-
-
 -----
 
 ####  gearbox  
 ##### 11671#       发表于 2018-10-17 17:42
-
-
 
 
 印象里斯巴达克斯也是宝具本双技能本来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -21298,16 +13809,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 —— 来自 LENOVO Lenovo X3c50, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11672#       发表于 2018-10-17 17:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41296053&amp;ptid=1712412" target="_blank">gearbox 发表于 2018-10-17 11:42</a>
@@ -21317,16 +13822,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 爱酱是补一个三技能，不算标准技能本
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 11673#       发表于 2018-10-17 17:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41295999&amp;ptid=1712412" target="_blank">丘萤之光 发表于 2018-10-17 17:38</a>
@@ -21335,16 +13834,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 新年福袋出了梅芙果然是赚到了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11674#       发表于 2018-10-17 17:46
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41296053&amp;ptid=1712412" target="_blank">gearbox 发表于 2018-10-17 17:42</a>
@@ -21356,16 +13849,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 那么爱酱也要出灵衣了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  gearbox  
 ##### 11675#       发表于 2018-10-17 17:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41296092&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-17 17:46</a>
@@ -21375,26 +13862,15 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 —— 来自 LENOVO Lenovo X3c50, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  hylq2000  
 ##### 11676#       发表于 2018-10-17 17:48
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">我的妈呀！叶灵儿
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -21403,22 +13879,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11677#       发表于 2018-10-17 18:19
 
 
-
-
 骑单体暂时就不抽了，毕竟骑金时挺好用
-
-
-
-
-
 
 
 -----
 
 ####  shimotsuki14  
 ##### 11678#       发表于 2018-10-17 18:24
-
-
 
 
 看来意外获得的二宝梅芙又要发光了…
@@ -21428,31 +13895,19 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  波子汽水  
 ##### 11679#       发表于 2018-10-17 18:36
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">沉船了 感觉水尼很强强行抽了一波 抽完别说石头 呼符都要光了 倒是歪了贞德还行。
-
-
-
-
-
 
 
 -----
 
 ####  lightingstar  
 ##### 11680#       发表于 2018-10-17 19:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41295935&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-17 17:32</a>
@@ -21463,25 +13918,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 — from samsung SM-N9005, Android 4.4.2 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  霖星  
 ##### 11681#       发表于 2018-10-17 19:17
 
 
-
-
 可惜梅芙1技能是缓冲，周回需要打一炮的情况下，还是喜欢上R金
-
-
-
-
-
 
 
 -----
@@ -21490,14 +13933,7 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11682#       发表于 2018-10-17 19:17
 
 
-
-
 搬运材料感觉也挺咸鱼的 每天早上清空一次体力 晚上睡觉前在清空一次体力 完事了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  
-
-
-
-
-
 
 
 -----
@@ -21506,14 +13942,8 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11683#       发表于 2018-10-17 19:31
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">梅芙歪个1001，但是水泥三宝了感觉1001没什么用。
 剑光炮开始考虑要不要二宝屠龙剑圣先充数了
-
-
-
-
-
 
 
 -----
@@ -21522,16 +13952,9 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11684#       发表于 2018-10-17 19:33
 
 
-
-
 手机忘记充电，发现时都快出低电量提示了，再刷一把硬币，平时能出15组，最多18组，这次只有11组
 
 本来之前还想头铁氪一单，感觉这两件事是老天在劝我收手
-
-
-
-
-
 
 
 -----
@@ -21540,21 +13963,13 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 ##### 11685#       发表于 2018-10-17 19:49
 
 
-
-
 刚才突然发现，我小号在想怎样打得更快，大号在想怎样打得过，两个号差出了一个境界<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  aiqopsha  
 ##### 11686#       发表于 2018-10-17 20:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41295563&amp;ptid=1712412" target="_blank">sandro 发表于 2018-10-17 17:02</a>
@@ -21565,16 +13980,10 @@ http://bbs.nga.cn/read.php?tid=15355760 喷了，在nga大佬们也在抱团发�
 id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11687#       发表于 2018-10-17 20:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41297002&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-17 19:17</a>
@@ -21586,16 +13995,10 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 跟你吹FGO超级肝的人肯定是搞错了什么
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11688#       发表于 2018-10-17 20:38
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41297253&amp;ptid=1712412" target="_blank">Mr.BBWoLf 发表于 2018-10-17 19:49</a>
@@ -21604,25 +14007,13 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 <img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">你这差距简直了，大号是不是可以考虑弃掉算了
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 11689#       发表于 2018-10-17 20:59
 
 
-
-
 我擦才发现空间里的音乐鉴赏要花材料解锁<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21631,14 +14022,7 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 ##### 11690#       发表于 2018-10-17 21:06
 
 
-
-
 强化梅芙好顶威有支，黑贞喂完金芙芙就喂梅芙
-
-
-
-
-
 
 
 -----
@@ -21647,16 +14031,10 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 ##### 11691#       发表于 2018-10-17 21:08
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41297860&amp;ptid=1712412" target="_blank">アーリィ 发表于 2018-10-17 21:06</a>
 
 强化梅芙好顶威有支，黑贞喂完金芙芙就喂梅芙</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">一年喂满一个，慢慢来吧
-
-
-
-
-
 
 
 -----
@@ -21665,13 +14043,7 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 ##### 11692#       发表于 2018-10-17 21:14
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">上头氪了一单白枪，前40连除了一堆垃圾礼装什么都没有，还好最后十连一宝出货了
-
-
-
-
-
 
 
 -----
@@ -21680,16 +14052,10 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 ##### 11693#       发表于 2018-10-17 21:19
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41297646&amp;ptid=1712412" target="_blank">hylq2100 发表于 2018-10-17 20:38</a>
 
 你这差距简直了，大号是不是可以考虑弃掉算了</blockquote>
 佛系慢慢养，运气好的话，春节各个阶职就都有扛把子了，运气极差明年泳装也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21698,16 +14064,9 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 ##### 11694#       发表于 2018-10-17 21:23
 
 
-
-
 出门忘了带电脑，ns也没拿出来
 
 很想猛肝，但是尼禄祭还在下周<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21716,14 +14075,7 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 ##### 11695#       发表于 2018-10-17 22:57
 
 
-
-
 话说42选一，有一宝戈尔工的前提下，应该补多一宝还是选择没有的狂兰？
-
-
-
-
-
 
 
 -----
@@ -21732,24 +14084,16 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 ##### 11696#       发表于 2018-10-17 23:05
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41298943&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-17 22:57</a>
 
 话说42选一，有一宝戈尔工的前提下，应该补多一宝还是选择没有的狂兰？</blockquote>
 肯定狂兰，戈尔贡就算2宝也没有狂兰好用。
 
 
-
-
-
-
-
 -----
 
 ####  violettor  
 ##### 11697#       发表于 2018-10-17 23:23
-
-
 
 
 同问个42选1的问题，除了杀剑狂没有50自充光炮别的50光炮都齐了（还有个一宝ssy），42选一想选个海伦娜方便修炼场3T（比较20群充光炮，比拉尔单体泛用一些），但是看了贴貌似长江周回也很爽（有满破万华镜和美游）。
@@ -21759,16 +14103,10 @@ id sev<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" refe
 好了说了那么多，独特功能性从者的话，选哪一个比较好呀。
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 11698#       发表于 2018-10-17 23:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41299207&amp;ptid=1712412" target="_blank">violettor 发表于 2018-10-17 23:23</a>
@@ -21779,32 +14117,19 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 但如果单纯从实用度考虑首选还是长江，未来的周回王者，即使1宝在双cba体系也能很好发挥，如果将来抽个二宝更加爽YY，海妈主要是智障的话1宝伤害会很低，泛用性也比长江差一些
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11699#       发表于 2018-10-18 00:08
 
 
-
-
 没枪光炮的情况下要不要补个黑枪呆喂到90级打尼禄祭用
-
-
-
-
-
 
 
 -----
 
 ####  Coda  
 ##### 11700#       发表于 2018-10-18 00:23
-
 
 
 <blockquote>violettor 发表于 2018-10-17 23:23
@@ -21814,27 +14139,16 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 不想抽伯爵选个狂兰没啥问题
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11701#       发表于 2018-10-18 00:49
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41298943&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-17 22:57</a>
 
 话说42选一，有一宝戈尔工的前提下，应该补多一宝还是选择没有的狂兰？</blockquote>
 接下来有CBA了，肯定是狂兰好用啊。我戈尔工都满宝了，打周常也不怎么上，宝具后群充10%太尴尬了。狂兰好歹一会儿出星次回能爆击，配合奶光用起来挺不错的
-
-
-
-
-
 
 
 -----
@@ -21845,22 +14159,15 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  FrozenA  
 ##### 11703#       发表于 2018-10-18 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41299640&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-18 00:08</a>
 没枪光炮的情况下要不要补个黑枪呆喂到90级打尼禄祭用</blockquote>
 咋补啊，枪职介池子关了，42选1又在尼禄祭之后
-
-
-
-
-
 
 
 -----
@@ -21869,16 +14176,10 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11704#       发表于 2018-10-18 00:52
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41299640&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-18 00:08</a>
 
 没枪光炮的情况下要不要补个黑枪呆喂到90级打尼禄祭用</blockquote>
 黑枪呆打预赛的效率好像比较尴尬，所以没这个必要把？
-
-
-
-
-
 
 
 -----
@@ -21887,16 +14188,10 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11705#       发表于 2018-10-18 00:54
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41299934&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-18 00:52</a>
 
 咋补啊，枪职介池子关了，42选1又在尼禄祭之后</blockquote>
 还有第二轮枪阶池<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21905,14 +14200,7 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11706#       发表于 2018-10-18 00:55
 
 
-
-
 想抽个单体骑阶玩，结果三发十连2个宝石老头<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21921,16 +14209,10 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11707#       发表于 2018-10-18 01:10
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41299950&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-18 00:55</a>
 
 想抽个单体骑阶玩，结果三发十连2个宝石老头，大家快去这池子宝石老头up（ ...</blockquote>
 现在几张了？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21939,15 +14221,9 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11708#       发表于 2018-10-18 01:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41300002&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 01:10</a>
 现在几张了？</blockquote>
 出了羽蛇神后就没抽了，还是上次的1+这次的2，3张，不敢再头铁了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21956,15 +14232,9 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11709#       发表于 2018-10-18 01:25
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41299640&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-18 00:08</a>
 没枪光炮的情况下要不要补个黑枪呆喂到90级打尼禄祭用</blockquote>
 醒醒，尼禄祭用白枪呆是因为有50自充20重蓄力，就这还要亏一个礼装位上满破宝石，而且这个阵容需要高宝高练狂肯娘<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21973,15 +14243,9 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11710#       发表于 2018-10-18 01:26
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41299943&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 00:54</a>
 还有第二轮枪阶池</blockquote>
 还有第三轮，剑弓枪都能轮三次，上三下四阶级差异实锤了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -21990,14 +14254,7 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11711#       发表于 2018-10-18 01:37
 
 
-
-
 为什么我抽术阶时没有各位这么海豹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22006,16 +14263,9 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11712#       发表于 2018-10-18 01:38
 
 
-
-
 60石18护符，全是三星<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，果然暴跳之后就是沉船，还好抽到哥伦布了。
 
 留下158石24护符，等白枪了。。。。
-
-
-
-
-
 
 
 -----
@@ -22024,14 +14274,7 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11713#       发表于 2018-10-18 01:50
 
 
-
-
 今天领了20石头抽了10连，伊利亚池子有狼王的<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">看到复仇卡背惊呆了
-
-
-
-
-
 
 
 -----
@@ -22040,15 +14283,9 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11714#       发表于 2018-10-18 02:52
 
 
-
 <blockquote>圈量子 发表于 2018-10-18 01:26
 还有第三轮，剑弓枪都能轮三次，上三下四阶级差异实锤了</blockquote>
 喷了，原版只有剑阶是三轮啊
-
-
-
-
-
 
 
 -----
@@ -22057,21 +14294,13 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11715#       发表于 2018-10-18 08:20
 
 
-
-
 高难本，不算公牛本，还是第一期毕节难啊。阿塔本和月神本分别跪了两次和一次。
-
-
-
-
-
 
 
 -----
 
 ####  神意  
 ##### 11716#       发表于 2018-10-18 08:44
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41291210&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-17 10:22</a>
@@ -22082,16 +14311,10 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">只是对R姐厨力放出而已
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 11717#       发表于 2018-10-18 09:05
-
 
 
  本帖最后由 吾乃啊噗 于 2018-10-18 09:07 编辑 
@@ -22101,16 +14324,10 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 看了看尼禄祭配置，不亏孔明羁绊前两战能选的配置也不是很多，实在不行到时看看混4t算了
 
 
-
-
-
-
-
 -----
 
 ####  寂寞玄衣  
 ##### 11718#       发表于 2018-10-18 09:13
-
 
 
  本帖最后由 寂寞玄衣 于 2018-10-18 10:02 编辑 
@@ -22138,25 +14355,13 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 另外因为是无氪所以三拐虽然努力但不强求，今后box发展补充，求各位大佬指点～
 
 
-
-
-
-
-
 -----
 
 ####  寂寞玄衣  
 ##### 11719#       发表于 2018-10-18 09:14
 
 
-
-
 手机打字，排版请见谅
-
-
-
-
-
 
 
 -----
@@ -22165,16 +14370,9 @@ BOX齐全的情况下，选哪个1宝4星都很难有显著的作用，我一般
 ##### 11720#       发表于 2018-10-18 09:15
 
 
-
-
 活动还差康诺特币没搬
 
 free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22183,24 +14381,16 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11721#       发表于 2018-10-18 09:17
 
 
-
-
 修炼场一般多少ap的石头掉率最高
 
 
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.32)
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11722#       发表于 2018-10-18 09:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301232&amp;ptid=1712412" target="_blank">寂寞玄衣 发表于 2018-10-18 09:13</a>
@@ -22215,17 +14405,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 尼托意义不是很大吧，反正1宝2宝伤害也就这样，都是靠即死吃饭的
 
 
-
-
-
-
-
 -----
 
 ####  神意  
 ##### 11723#       发表于 2018-10-18 09:21
-
-
 
 
 可能是因为我没一个五星杀阶？
@@ -22235,16 +14418,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 <img src="https://static.saraba1st.com/image/smiley/face2017/155.png" referrerpolicy="no-referrer">就这我还打到最后一个替补上阵
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11724#       发表于 2018-10-18 09:25
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301232&amp;ptid=1712412" target="_blank">寂寞玄衣 发表于 2018-10-18 09:13:47</a>
@@ -22253,27 +14430,15 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11725#       发表于 2018-10-18 09:28
 
 
-
-
 尼禄祭初赛用的白枪呆6610又抽了个二宝，足够用了，但是狂肯娘完全没练而且只有1宝。算了下用满宝61010的奶光代替好像还是不是很稳
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -22282,23 +14447,15 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11726#       发表于 2018-10-18 09:29
 
 
-
-
 三拐都没就有点微妙啊……我觉得如果你确定自己能抽到cba就补狂兰，海伦娜可以考虑，不过我觉得补不补二宝也就那样
 
 其实我还是建议补个限定图鉴的，毕竟2000w还遥遥无期
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 11727#       发表于 2018-10-18 09:30
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301232&amp;ptid=1712412" target="_blank">寂寞玄衣 发表于 2018-10-18 09:13</a>
@@ -22316,28 +14473,13 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 准备小氪一下的话建议二宝闪闪，毕竟是运营他爹。
 
 
-
-
-
-
-
-
-
-
 -----
 
 ####  没有演技  
 ##### 11728#       发表于 2018-10-18 09:34
 
 
-
-
 初赛三面老福和弓海都不被奶光特攻，不上二神三脚没破坏力
-
-
-
-
-
 
 
 -----
@@ -22346,14 +14488,7 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11729#       发表于 2018-10-18 09:41
 
 
-
-
 尼禄祭是无缝接这期泳装吗？
-
-
-
-
-
 
 
 -----
@@ -22362,14 +14497,7 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11730#       发表于 2018-10-18 09:42
 
 
-
-
 我看了下保管室我竟然有5宝狂肯娘……完全没练就是了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22378,14 +14506,7 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11731#       发表于 2018-10-18 09:52
 
 
-
-
 42选1 锁定在格尔工和黑骑呆当中 前者貌似更稀有？
-
-
-
-
-
 
 
 -----
@@ -22394,14 +14515,7 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11732#       发表于 2018-10-18 09:56
 
 
-
-
 210石才满宝哥伦布，最后一次10连来了3张<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -22410,22 +14524,15 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11733#       发表于 2018-10-18 09:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301441&amp;ptid=1712412" target="_blank">没有演技 发表于 2018-10-18 09:34</a>
 初赛三面老福和弓海都不被奶光特攻，不上二神三脚没破坏力</blockquote>
 无特攻第一光炮肯娘了解一下
-
-
-
-
-
 
 
 -----
 
 ####  寂寞玄衣  
 ##### 11734#       发表于 2018-10-18 10:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301302&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-18 09:20</a>
@@ -22438,16 +14545,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 当初入坑的时候什么都不懂，也没买初始号，无氪党石头有限，孔明上次up歪了三藏，年初抽梅林歪了大公<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  寂寞玄衣  
 ##### 11735#       发表于 2018-10-18 10:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301379&amp;ptid=1712412" target="_blank">吾乃啊噗 发表于 2018-10-18 09:29</a>
@@ -22456,16 +14557,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 不确定啊……一年以后说不定都弃坑了，不过您说的有理，限定图鉴是指？
 
 
-
-
-
-
-
 -----
 
 ####  寂寞玄衣  
 ##### 11736#       发表于 2018-10-18 10:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301388&amp;ptid=1712412" target="_blank">麻花疼 发表于 2018-10-18 09:30</a>
@@ -22477,16 +14572,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 好的，先抽梅林试试，不过无氪很可能届不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11737#       发表于 2018-10-18 10:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301666&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-18 09:52</a>
@@ -22495,17 +14584,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 你是说黑枪呆吧？
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11738#       发表于 2018-10-18 10:17
-
-
 
 
 42选1 最稀有的三个：戈尔工 Clily 李书文
@@ -22513,16 +14595,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 呆毛系 崔悲伤 尼禄都可以在其他up的时候蹭到
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11739#       发表于 2018-10-18 10:19
-
 
 
 <blockquote>Leona_Akari 发表于 2018-10-18 09:20
@@ -22534,26 +14610,15 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 倒过来打后面就越来越快了，5章和4章free的血量有质的差距
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11740#       发表于 2018-10-18 10:27
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301997&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 10:19</a>
 倒过来打后面就越来越快了，5章和4章free的血量有质的差距</blockquote>
 就是考虑到这个才这么打的，先把难的打完，后面准备直接三狂平砍了
-
-
-
-
-
 
 
 -----
@@ -22562,16 +14627,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11741#       发表于 2018-10-18 10:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301537&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-18 09:41</a>
 
 尼禄祭是无缝接这期泳装吗？</blockquote>
 应该是这个月月底吧好歹留一个星期喘息一下
-
-
-
-
-
 
 
 -----
@@ -22580,16 +14639,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11742#       发表于 2018-10-18 10:39
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301944&amp;ptid=1712412" target="_blank">marxel 发表于 2018-10-18 10:15</a>
 
 你是说黑枪呆吧？</blockquote>
 哦对的手误 呆毛太多了 老是打错
-
-
-
-
-
 
 
 -----
@@ -22598,14 +14651,7 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11743#       发表于 2018-10-18 10:40
 
 
-
-
 感觉格尔工挺强的？ 还能组别动队 就是不知道1宝的作用有多大了毕竟4星
-
-
-
-
-
 
 
 -----
@@ -22614,16 +14660,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11744#       发表于 2018-10-18 10:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41302271&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-18 10:40:40</a>
 感觉格尔工挺强的？ 还能组别动队 就是不知道1宝的作用有多大了毕竟4星</blockquote>红卡宝具NP残废扶不起，没集星发挥不出职介优势，除了xjbd打尺阶没什么需要她上场的时候。宝具带充能是个亮点，但也只有15而已。站对面时是超大充电宝，比梅林快，比孔明好。
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -22632,15 +14672,9 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11745#       发表于 2018-10-18 10:51
 
 
-
 <blockquote>gjd198692 发表于 2018-10-18 10:40
 感觉格尔工挺强的？ 还能组别动队 就是不知道1宝的作用有多大了毕竟4星</blockquote>
 一宝310戈尔工打不死狗粮
-
-
-
-
-
 
 
 -----
@@ -22649,14 +14683,7 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11746#       发表于 2018-10-18 10:56
 
 
-
-
 这个问题前几天我好像就提过？戈尔贡不好抽，但是如果三周年福袋抽extra职阶的话，是有几率出戈尔贡的……
-
-
-
-
-
 
 
 -----
@@ -22665,23 +14692,16 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11747#       发表于 2018-10-18 10:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41302271&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-18 10:40</a>
 
 感觉格尔工挺强的？ 还能组别动队 就是不知道1宝的作用有多大了毕竟4星</blockquote>
 卡面漂亮就够了，1宝4星能有多大作用，戈尔贡本身是泛用光炮，但是没集星能力和白字伤害，泛用度比不上长江肯娘这种狂光炮，生存能力比狂强很多可惜本身定位就不是打高难的，在周回是能用的，但是一般出场率不高
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11748#       发表于 2018-10-18 11:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301441&amp;ptid=1712412" target="_blank">没有演技 发表于 2018-10-18 09:34</a>
@@ -22691,17 +14711,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 11749#       发表于 2018-10-18 11:04
-
-
 
 
 戈耳工要等打完宝具本倍率就正常了
@@ -22710,16 +14723,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 —— 来自 HUAWEI BND-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 11750#       发表于 2018-10-18 11:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41302517&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-18 10:56</a>
@@ -22728,16 +14735,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 只有一发十连几率还是小，还有可能歪出个狼王，某三星仇阶好像就是必出的
 
 
-
-
-
-
-
 -----
 
 ####  yiraer  
 ##### 11751#       发表于 2018-10-18 11:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41302688&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-18 11:08</a>
@@ -22746,16 +14747,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 三星仇就萨列里，很容易出。戈尔贡主要就是抽的机会少，实用上还是差火候
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 11752#       发表于 2018-10-18 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41302623&amp;ptid=1712412" target="_blank">蕾丝 发表于 2018-10-18 11:04</a>
@@ -22766,16 +14761,10 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 15%确实尴尬，30自充的带黑杯的队友+孔明，刚好差5点充不满<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11753#       发表于 2018-10-18 11:31
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301232&amp;ptid=1712412" target="_blank">寂寞玄衣 发表于 2018-10-18 09:13</a>
@@ -22789,26 +14778,15 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 然后1000wdl博一下梅林再说
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11754#       发表于 2018-10-18 11:31
 
 
-
 <blockquote>yiraer 发表于 2018-10-18 11:10
 三星仇就萨列里，很容易出。戈尔贡主要就是抽的机会少，实用上还是差火候 ...</blockquote>
 除了ex福袋哪里好出了，这里的人95%不会去抽雷帝池子的
-
-
-
-
-
 
 
 -----
@@ -22817,23 +14795,16 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11755#       发表于 2018-10-18 11:32
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41302709&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-18 11:10</a>
 
 三星仇就萨列里，很容易出。戈尔贡主要就是抽的机会少，实用上还是差火候 ...</blockquote>
 我也在犹豫是抽戈尔贡还是黑枪呆，戈尔贡卡面更好看点，黑枪呆强度更高点，但是戈尔贡好像从第七章结束到日服现在都未up过，不知道有没有记错，黑枪呆在梅林池和空境池都有up，我觉得我越来越倾向戈尔贡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  寂寞玄衣  
 ##### 11756#       发表于 2018-10-18 11:52
-
 
 
 <blockquote>FrozenA 发表于 2018-10-18 11:31
@@ -22844,26 +14815,15 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 好的，楼里各位大都建议狂兰，这回就这么定了，先搏梅林，然后选狂兰
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11757#       发表于 2018-10-18 11:56
 
 
-
 <blockquote>yiraer 发表于 2018-10-18 10:56
 这个问题前几天我好像就提过？戈尔贡不好抽，但是如果三周年福袋抽extra职阶的话，是有几率出戈尔贡的…… ...</blockquote>
 比你福袋出雙黃的機率高一點點的機率就別當一回事了
-
-
-
-
-
 
 
 -----
@@ -22872,22 +14832,15 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 ##### 11758#       发表于 2018-10-18 12:00
 
 
-
 <blockquote>gjd198692 发表于 2018-10-18 10:40
 感觉格尔工挺强的？ 还能组别动队 就是不知道1宝的作用有多大了毕竟4星</blockquote>
 沒克職的光炮要上場需要破格的傷害/特異功能
-
-
-
-
-
 
 
 -----
 
 ####  朝仓和美  
 ##### 11759#       发表于 2018-10-18 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41301958&amp;ptid=1712412" target="_blank">marxel 发表于 2018-10-18 10:17</a>
@@ -22899,27 +14852,15 @@ free首通从巴比伦倒过来打现在才刚打完北美。。。还有好多�
 —— 来自 samsung SM-G9500, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11760#       发表于 2018-10-18 12:28
 
 
-
-
 C媽 Lily 是BBA 跟伊莉雅的副產物，
 
 怎麼也不算稀少
-
-
-
-
-
 
 
 -----
@@ -22928,16 +14869,10 @@ C媽 Lily 是BBA 跟伊莉雅的副產物，
 ##### 11761#       发表于 2018-10-18 12:33
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41303023&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 11:31</a>
 
 除了ex福袋哪里好出了，这里的人95%不会去抽雷帝池子的</blockquote>
 我这句说的就是指EX福袋……
-
-
-
-
-
 
 
 -----
@@ -22946,23 +14881,16 @@ C媽 Lily 是BBA 跟伊莉雅的副產物，
 ##### 11762#       发表于 2018-10-18 12:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41303032&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-18 11:32</a>
 
 我也在犹豫是抽戈尔贡还是黑枪呆，戈尔贡卡面更好看点，黑枪呆强度更高点，但是戈尔贡好像从第七章结束到 ...</blockquote>
 我一开始排除法最后选定戈尔贡，但是现在想想EX福袋，我又开始觉得也许不选戈尔贡比较好。
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11763#       发表于 2018-10-18 12:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41303661&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-18 12:28</a>
@@ -22975,16 +14903,10 @@ C媽 Lily 是BBA 跟伊莉雅的副產物，
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  violettor  
 ##### 11764#       发表于 2018-10-18 12:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41303893&amp;ptid=1712412" target="_blank">marxel 发表于 2018-10-18 12:48</a>
@@ -22995,33 +14917,19 @@ C媽 Lily 是BBA 跟伊莉雅的副產物，
 诶，现在这个池不是吗？ 我去年活动那次抽伊利亚c子都快满宝了
 
 
-
-
-
-
-
 -----
 
 ####  星月々交辉  
 ##### 11765#       发表于 2018-10-18 13:07
 
 
-
-
 C媽 Lily虽然UP的少，但是别忘了只要职阶UP，抽术池的人就不会少，自然拥有量就上去了
-
-
-
-
-
 
 
 -----
 
 ####  angelooo  
 ##### 11766#       发表于 2018-10-18 13:20
-
-
 
 
 感觉我的42选1也一直在变……一开始缺金剑光炮打算黑无毛尼禄二选一，结果莉莉丝池子歪了呆毛王顺带满宝了JK
@@ -23031,16 +14939,10 @@ C媽 Lily虽然UP的少，但是别忘了只要职阶UP，抽术池的人就不�
 戈尔贡的话也不是没考虑过，主要想舔卡面，然而明年肯定选的是EX福袋……
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 11767#       发表于 2018-10-18 13:20
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41303032&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-18 11:32</a>
@@ -23049,16 +14951,10 @@ C媽 Lily虽然UP的少，但是别忘了只要职阶UP，抽术池的人就不�
 有up过一次，是女神池子，跟弓凛什么的一起up的
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11768#       发表于 2018-10-18 13:22
-
 
 
  本帖最后由 南宮凝香 于 2018-10-18 13:27 编辑 
@@ -23075,33 +14971,20 @@ C媽 Lily虽然UP的少，但是别忘了只要职阶UP，抽术池的人就不�
 C媽Lily 這種既出得早， 又跟熱門五星一池， 還要是女性術階的四星那裡稀有你告訴我？
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11769#       发表于 2018-10-18 13:26
 
 
-
-
 李大师抽枪阶池的时候出了一个，原来很稀有么……
 Clily忘了啥时出的了，戈儿工倒是的确没有……
-
-
-
-
-
 
 
 -----
 
 ####  吾乃啊噗  
 ##### 11770#       发表于 2018-10-18 13:27
-
 
 
  本帖最后由 吾乃啊噗 于 2018-10-18 13:29 编辑 
@@ -23111,17 +14994,10 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 还有为啥会觉得搏福袋就能搏出来4星，要知道福袋可是不保底4星英灵的，单纯的就是搏运气而已，楼上说的没错，等同于福袋双簧
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11771#       发表于 2018-10-18 13:42
-
-
 
 
 另外， 因為第三章只有兩個四星， 船長又是強力卡
@@ -23129,16 +15005,10 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 真的等不了歪的要抽C媽Lily也沒什麼難度
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11772#       发表于 2018-10-18 13:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41304264&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-18 13:22</a>
@@ -23150,16 +15020,10 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11773#       发表于 2018-10-18 14:04
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41303937&amp;ptid=1712412" target="_blank">violettor 发表于 2018-10-18 12:51</a>
@@ -23170,25 +15034,13 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 11774#       发表于 2018-10-18 14:05
 
 
-
-
 有肯娘还需要选狂兰么，周回百级大英雄感觉也够了
-
-
-
-
-
 
 
 -----
@@ -23197,23 +15049,16 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 ##### 11775#       发表于 2018-10-18 14:07
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41304706&amp;ptid=1712412" target="_blank">cosx 发表于 2018-10-18 14:05:06</a>
 有肯娘还需要选狂兰么，周回百级大英雄感觉也够了</blockquote>肯娘狂兰两种用途，而且肯娘可没法像狂兰一样上个CBA连发
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  cosx  
 ##### 11776#       发表于 2018-10-18 14:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41304735&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-18 14:07</a>
@@ -23223,16 +15068,10 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 也要抽吗
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11777#       发表于 2018-10-18 14:12
-
 
 
  本帖最后由 deadog 于 2018-10-18 14:17 编辑 
@@ -23242,25 +15081,13 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 我有2宝肯娘，狂兰以前经常嫖。肯娘太一锤子买卖了，就是宝具那一下，宝具三技能副作用和生存能力直接让她没后续了。狂兰手感近似奶光或者船长，宝具后开无穷武炼平砍也超爽。不过这俩都是小脆皮，而且十分依赖初始NP。
 
 
-
-
-
-
-
 -----
 
 ####  bluna  
 ##### 11778#       发表于 2018-10-18 14:13
 
 
-
-
 狂兰现在2宝，有必要3宝吗？
-
-
-
-
-
 
 
 -----
@@ -23269,14 +15096,7 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 ##### 11779#       发表于 2018-10-18 14:28
 
 
-
-
 所以尼禄祭初赛是有肯娘跟白枪两种打法？
-
-
-
-
-
 
 
 -----
@@ -23285,23 +15105,16 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 ##### 11780#       发表于 2018-10-18 15:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41304792&amp;ptid=1712412" target="_blank">bluna 发表于 2018-10-18 14:13</a>
 
 狂兰现在2宝，有必要3宝吗？</blockquote>
 有足够石头可以考虑，当然了性价比不高，而且最近也没有狂兰单up吧，一般情况下二宝也足够了
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11781#       发表于 2018-10-18 15:09
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41304955&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-18 14:28</a>
@@ -23311,16 +15124,10 @@ Clily忘了啥时出的了，戈儿工倒是的确没有……
 3.五宝80级R莫满破倍卡+孔明花嫁海妈
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11782#       发表于 2018-10-18 15:10
-
 
 
  本帖最后由 marxel 于 2018-10-18 15:18 编辑 
@@ -23356,26 +15163,14 @@ C子：无
 高文和崔悲伤会跟着圆桌花式UP，黑呆黑枪毕竟出现的早，UP机会也多，尼禄每年必备，李大师和爱迪狮也意外的有人带
 
 
-
-
-
-
-
 -----
 
 ####  mintmic_  
 ##### 11783#       发表于 2018-10-18 15:15
 
 
-
-
 剑兰推荐2宝吗？我一直挺嫌弃卡年的，但实用度确实好……
 如果不推荐的话，想new个阿福 或者CLily，童谣感觉不是很实用，但一直想要一直没抽到……
-
-
-
-
-
 
 
 -----
@@ -23384,15 +15179,9 @@ C子：无
 ##### 11784#       发表于 2018-10-18 15:15
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305344&amp;ptid=1712412" target="_blank">devilwing 发表于 2018-10-18 15:09</a>
  有足够石头可以考虑，当然了性价比不高，而且最近也没有狂兰单up吧，一般情况下二宝也足够了 ...</blockquote>
 我是指42选1。
-
-
-
-
-
 
 
 -----
@@ -23401,15 +15190,9 @@ C子：无
 ##### 11785#       发表于 2018-10-18 15:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41303736&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-18 06:34</a>
 我一开始排除法最后选定戈尔贡，但是现在想想EX福袋，我又开始觉得也许不选戈尔贡比较好。 ...</blockquote>
 ex福袋又不是必出四星的，你要是海豹每个十连保底四星当我没说
-
-
-
-
-
 
 
 -----
@@ -23418,15 +15201,9 @@ ex福袋又不是必出四星的，你要是海豹每个十连保底四星当我
 ##### 11786#       发表于 2018-10-18 15:20
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305416&amp;ptid=1712412" target="_blank">bluna 发表于 2018-10-18 09:15</a>
 我是指42选1。</blockquote>
 42选1没必要追3宝，优先补new吧
-
-
-
-
-
 
 
 -----
@@ -23437,12 +15214,10 @@ ex福袋又不是必出四星的，你要是海豹每个十连保底四星当我
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  devilwing  
 ##### 11788#       发表于 2018-10-18 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305416&amp;ptid=1712412" target="_blank">bluna 发表于 2018-10-18 15:15</a>
@@ -23451,16 +15226,10 @@ ex福袋又不是必出四星的，你要是海豹每个十连保底四星当我
 2宝到3宝提升不大，如果你没有其他喜欢的也可以选
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11789#       发表于 2018-10-18 15:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305413&amp;ptid=1712412" target="_blank">mintmic_ 发表于 2018-10-18 15:15</a>
@@ -23471,17 +15240,10 @@ ex福袋又不是必出四星的，你要是海豹每个十连保底四星当我
 剑兰宝具那么频繁，要说值不值肯定值的
 
 
-
-
-
-
-
 -----
 
 ####  MOOMBA  
 ##### 11790#       发表于 2018-10-18 15:27
-
-
 
 
 至今图鉴少仨 护士长 狂兰 和李大师
@@ -23491,16 +15253,10 @@ ex福袋又不是必出四星的，你要是海豹每个十连保底四星当我
 42选1还是安心李大师好了。。。
 
 
-
-
-
-
-
 -----
 
 ####  violettor  
 ##### 11791#       发表于 2018-10-18 15:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305349&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-18 15:09</a>
@@ -23513,16 +15269,10 @@ ex福袋又不是必出四星的，你要是海豹每个十连保底四星当我
 不是2宝小莫花嫁孔明np服就可以了吗...
 
 
-
-
-
-
-
 -----
 
 ####  yiraer  
 ##### 11792#       发表于 2018-10-18 15:37
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305426&amp;ptid=1712412" target="_blank">丘萤之光 发表于 2018-10-18 15:16</a>
@@ -23533,17 +15283,10 @@ ex福袋又不是必出四星的，你要是海豹每个十连保底四星当我
 ex福袋毕竟比平时出的几率大，万一真出戈尔贡我还觉得浪费了42选1的机会呢……
 
 
-
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11793#       发表于 2018-10-18 15:45
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305655&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-18 09:37</a>
@@ -23553,27 +15296,15 @@ ex福袋毕竟比平时出的 ...</blockquote>
 那就别选了，没有爱的卡选了也是没有灵魂的
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11794#       发表于 2018-10-18 16:00
 
 
-
-
 42选1基本确定是黑A了
 
 毕竟不会去抽杀生院池子
-
-
-
-
-
 
 
 -----
@@ -23582,14 +15313,7 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11795#       发表于 2018-10-18 16:08
 
 
-
-
 反正我是在两个黑呆毛里面选了，随手一搜看见有人说黑呆有可能出新宿灵衣，我觉得很有道理。
-
-
-
-
-
 
 
 -----
@@ -23598,15 +15322,9 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11796#       发表于 2018-10-18 16:22
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305956&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-18 10:08</a>
 反正我是在两个黑呆毛里面选了，随手一搜看见有人说黑呆有可能出新宿灵衣，我觉得很有道理。 ...</blockquote>
 想要黑呆的话不如先抽几发梅林池没准都出了呢
-
-
-
-
-
 
 
 -----
@@ -23615,16 +15333,10 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11797#       发表于 2018-10-18 16:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41306113&amp;ptid=1712412" target="_blank">丘萤之光 发表于 2018-10-18 16:22</a>
 
 想要黑呆的话不如先抽几发梅林池没准都出了呢</blockquote>
 别了，想起以前在x毛池抽黑呆，黑呆一个没有，x毛两宝hhh
-
-
-
-
-
 
 
 -----
@@ -23633,14 +15345,7 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11798#       发表于 2018-10-18 16:55
 
 
-
-
 还好去年圆桌池抽了个黑呆，不然两个黑呆和戈尔贡真不知道怎么选<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23649,16 +15354,9 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11799#       发表于 2018-10-18 16:56
 
 
-
-
 搜了搜卡池，狂兰的单up也只有一次了
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -23667,16 +15365,10 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11800#       发表于 2018-10-18 16:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41306348&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-18 10:45</a>
 
 别了，想起以前在x毛池抽黑呆，黑呆一个没有，x毛两宝hhh</blockquote>
 靠那次我X毛沉船黑呆尼禄倒抽了一堆<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23685,16 +15377,10 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11801#       发表于 2018-10-18 17:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41306348&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-18 16:45</a>
 
 别了，想起以前在x毛池抽黑呆，黑呆一个没有，x毛两宝hhh</blockquote>
 跟我一样，读心游戏
-
-
-
-
-
 
 
 -----
@@ -23703,14 +15389,7 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11802#       发表于 2018-10-18 17:12
 
 
-
-
 我也没有黑呆黑枪，但是马上要抽梅林，估计会送
-
-
-
-
-
 
 
 -----
@@ -23719,23 +15398,15 @@ ex福袋毕竟比平时出的 ...</blockquote>
 ##### 11803#       发表于 2018-10-18 17:13
 
 
-
-
 二期礼装掉了三张，一期到现在我还在刷一张也没掉
 
 —— 来自 Xiaomi Redmi Note 4, Android 6.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
 
 ####  devilwing  
 ##### 11804#       发表于 2018-10-18 17:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41306679&amp;ptid=1712412" target="_blank">singguo 发表于 2018-10-18 17:13</a>
@@ -23747,17 +15418,10 @@ ex福袋毕竟比平时出的 ...</blockquote>
 我和你刚好相反，一期掉了三张，二期一张没掉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Fukai_Rei  
 ##### 11805#       发表于 2018-10-18 17:29
-
-
 
 
 我4*的剑阶尼禄2宝、飞哥一宝、迪昂4+1、摩罗3宝、剑兰2宝、JK3宝。
@@ -23773,16 +15437,10 @@ EX阶戈耳工满宝，莉噗1宝。
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11806#       发表于 2018-10-18 17:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41306856&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-18 17:29</a>
@@ -23793,16 +15451,10 @@ EX阶戈耳工满宝，莉噗1宝。
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 11807#       发表于 2018-10-18 17:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41306856&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-18 17:29</a>
@@ -23813,16 +15465,10 @@ EX阶戈耳工满宝，莉噗1宝。
 黑枪呆和剑兰一样，能自己玩暴击一条龙，发牌好的话技能全开宝红红暴击非常暴力，跟白枪算是不同风格选手，如果没其他喜欢的建议选这个
 
 
-
-
-
-
-
 -----
 
 ####  sandro  
 ##### 11808#       发表于 2018-10-18 17:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41306856&amp;ptid=1712412" target="_blank">Fukai_Rei 发表于 2018-10-18 17:29</a>
@@ -23832,25 +15478,13 @@ EX阶戈耳工满宝，莉噗1宝。
 这种时候感觉还是黑呆最好，卡面又好看，又难出
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11809#       发表于 2018-10-18 18:08
 
 
-
-
 一期就剩点银棋子就搬完了，二期商店也搬了一半，然后，一张礼装都没掉…<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23859,14 +15493,7 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11810#       发表于 2018-10-18 18:10
 
 
-
-
 话说白枪还有一个ex动作，就是用枪尖向前喷激光，触发条件是什么？
-
-
-
-
-
 
 
 -----
@@ -23875,16 +15502,9 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11811#       发表于 2018-10-18 18:11
 
 
-
-
 两期的材料都搬完了，打算再补点棋子，最近用得比较多
 
 两期礼装各掉了一张，商店里还存着几张没换，但都留好兑换材料了，等到了结束还没掉新的就全换出来满破
-
-
-
-
-
 
 
 -----
@@ -23893,23 +15513,15 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11812#       发表于 2018-10-18 18:18
 
 
-
-
 多谢楼上几位巨巨，到时我就下体抽卡42选1了
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
 
 ####  南宮凝香  
 ##### 11813#       发表于 2018-10-18 18:40
-
 
 
 <blockquote>devilwing 发表于 2018-10-18 17:51
@@ -23926,25 +15538,13 @@ EX阶戈耳工满宝，莉噗1宝。
 真正的無視條件想爆就爆
 
 
-
-
-
-
-
 -----
 
 ####  yiraer  
 ##### 11814#       发表于 2018-10-18 18:48
 
 
-
-
 论强度的话我需要黑呆，但是一宝好像也不够用吧
-
-
-
-
-
 
 
 -----
@@ -23955,7 +15555,6 @@ EX阶戈耳工满宝，莉噗1宝。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  auraria  
@@ -23964,21 +15563,13 @@ EX阶戈耳工满宝，莉噗1宝。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  khxooo  
 ##### 11817#       发表于 2018-10-18 19:32
 
 
-
-
 小号掉了一张礼装了，大号估计很难，只能等复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -23987,14 +15578,7 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11818#       发表于 2018-10-18 19:35
 
 
-
-
 话说有什么英灵是强化本过后自身np率会提升的？
-
-
-
-
-
 
 
 -----
@@ -24003,14 +15587,7 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11819#       发表于 2018-10-18 19:38
 
 
-
-
 问下有花架尼禄还42选一需要剑兰二宝么，不知道剑兰2宝好还是狂兰二宝好
-
-
-
-
-
 
 
 -----
@@ -24019,15 +15596,9 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11820#       发表于 2018-10-18 19:45
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41307947&amp;ptid=1712412" target="_blank">hanchen999 发表于 2018-10-18 19:38</a>
 问下有花架尼禄还42选一需要剑兰二宝么，不知道剑兰2宝好还是狂兰二宝好</blockquote>
 有花嫁那还是狂兰啊
-
-
-
-
-
 
 
 -----
@@ -24036,15 +15607,9 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11821#       发表于 2018-10-18 19:50
 
 
-
 <blockquote>devilwing 发表于 2018-10-18 17:51
 黑枪呆和剑兰一样，能自己玩暴击一条龙，发牌好的话技能全开宝红红暴击非常暴力，跟白枪算是不同风格选手 ...</blockquote>
 黑枪只能一回合爆发，而且她的np率是全游戏倒数。剑兰有出星集星重np，而且蓝卡多np率也不算低。
-
-
-
-
-
 
 
 -----
@@ -24053,21 +15618,13 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11822#       发表于 2018-10-18 19:52
 
 
-
-
 尼禄灵衣是一定要有尼禄才能兑换的吗？在考虑换崔斯坦还是尼禄<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  devilwing  
 ##### 11823#       发表于 2018-10-18 20:16
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41307471&amp;ptid=1712412" target="_blank">南宮凝香 发表于 2018-10-18 18:40</a>
@@ -24080,27 +15637,16 @@ EX阶戈耳工满宝，莉噗1宝。
 日常手打十几颗星没什么难度，拐还能带2030，出星只是锦上添花，关键还是集星和爆伤，加上红魔放和领导力，一回合把伤害堆到最高
 
 
-
-
-
-
-
 -----
 
 ####  devilwing  
 ##### 11824#       发表于 2018-10-18 20:18
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41308050&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-18 19:50</a>
 
 黑枪只能一回合爆发，而且她的np率是全游戏倒数。剑兰有出星集星重np，而且蓝卡多np率也不算低。 ...</blockquote>
 一回合爆发就够了，本身黑枪呆的技能就是破格的，还有宝具本，难道还指望她能多回合持续输出？剑兰因为没有常规的增伤技能才给了三回合出星和爆伤，而且我重点是说她和白枪的不同点而已，又不是要比较她和剑兰
-
-
-
-
-
 
 
 -----
@@ -24111,21 +15657,13 @@ EX阶戈耳工满宝，莉噗1宝。
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  没有演技  
 ##### 11826#       发表于 2018-10-18 20:40
 
 
-
-
 发现微笑男孩带二神三脚，明梅一扶，初赛第三面为所欲为啊
-
-
-
-
-
 
 
 -----
@@ -24134,23 +15672,16 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11827#       发表于 2018-10-18 21:09
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41308070&amp;ptid=1712412" target="_blank">loaflace 发表于 2018-10-18 19:52</a>
 
 尼禄灵衣是一定要有尼禄才能兑换的吗？在考虑换崔斯坦还是尼禄</blockquote>
 兑换权只要抽够池子就开放，以后抽到尼禄就可以换灵衣了。
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11828#       发表于 2018-10-18 21:27
-
 
 
 <blockquote>devilwing 发表于 2018-10-18 20:18
@@ -24162,32 +15693,19 @@ EX阶戈耳工满宝，莉噗1宝。
 至于白枪，有两宝的话的确是个优秀5星，虽然不像弓呆那样不断连发，但有孔梅的加持下，很快又可以放宝具。
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11829#       发表于 2018-10-18 21:34
 
 
-
-
 总之，日后基本上都是多血条boss，持久战比较多。还有，黑枪我有个最大不满的地方在于她的宝具概率封印，有时对方下回合宝具，你用梅林准备了无敌，然后黑枪呆概率封印了对方的宝具，这个回合的无敌就浪费了，下回合还是要挨对方宝具。
-
-
-
-
-
 
 
 -----
 
 ####  deadog  
 ##### 11830#       发表于 2018-10-18 21:36
-
 
 
  本帖最后由 deadog 于 2018-10-18 21:44 编辑 
@@ -24197,25 +15715,13 @@ EX阶戈耳工满宝，莉噗1宝。
 宝具封印回合敌方不涨NP的黑贞怕的也不是多血条持久战，双梅林支持下暴击星够用，宝红红一轮爆发后还有蓝卡可以回复NP，技能冷却也不是不能接受。黑贞打不了的是车轮战和控制多的敌人。不如说单体从者相对都不好打车轮战。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11831#       发表于 2018-10-18 21:41
 
 
-
-
 刚开了卡美洛剧情，卢修斯：使劲撑起粉碎的膝盖，奋力抬起细如树枝般的左臂......我已是燃尽的残渣...灵魂也几乎所剩无几——不死人。传火吗大兄弟<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24224,15 +15730,9 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11832#       发表于 2018-10-18 21:42
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">昨天拿术阶池子模拟器抽了一下，按4个五星分1%的出卡率的话，两三单没孔明是常事……
 
 要不还是全力留石头去抽梅林好了，尼禄祭没孔明也不是不能打吧
-
-
-
-
-
 
 
 -----
@@ -24241,15 +15741,9 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11833#       发表于 2018-10-18 21:43
 
 
-
 <blockquote>deadog 发表于 2018-10-18 21:36
 宝具封印回合敌方不涨NP的</blockquote>
 就是因为敌方不涨np，宝具不放出来，我准备好的无敌就浪费了。
-
-
-
-
-
 
 
 -----
@@ -24258,23 +15752,16 @@ EX阶戈耳工满宝，莉噗1宝。
 ##### 11834#       发表于 2018-10-18 21:47
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41308963&amp;ptid=1712412" target="_blank">冰狼芬里尔 发表于 2018-10-18 21:43</a>
 
 就是因为敌方不涨np，宝具不放出来，我准备好的无敌就浪费了。</blockquote>
 我意思是避免对方满格时丢大
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11835#       发表于 2018-10-18 21:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41308958&amp;ptid=1712412" target="_blank">minamitsubasa 发表于 2018-10-18 21:42</a>
@@ -24285,17 +15772,10 @@ EX阶戈耳工满宝，莉噗1宝。
 尼禄祭礼装没有初始NP，没孔明你怎么启动。。。
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11836#       发表于 2018-10-18 21:57
-
-
 
 
 刚打完一局iOS突然断开连接重新登录，然后就上不去了。
@@ -24303,16 +15783,10 @@ EX阶戈耳工满宝，莉噗1宝。
 服务器炸了？
 
 
-
-
-
-
-
 -----
 
 ####  marxel  
 ##### 11837#       发表于 2018-10-18 21:58
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41309061&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-18 21:57</a>
@@ -24324,16 +15798,10 @@ EX阶戈耳工满宝，莉噗1宝。
 —— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11838#       发表于 2018-10-18 22:00
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41309076&amp;ptid=1712412" target="_blank">marxel 发表于 2018-10-18 21:58</a>
@@ -24345,25 +15813,13 @@ EX阶戈耳工满宝，莉噗1宝。
 发石头还是发苹果<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11839#       发表于 2018-10-18 22:00
 
 
-
-
 md 我正在看小茄子的重要剧情
-
-
-
-
-
 
 
 -----
@@ -24372,14 +15828,7 @@ md 我正在看小茄子的重要剧情
 ##### 11840#       发表于 2018-10-18 22:04
 
 
-
-
 FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白冲了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24388,16 +15837,10 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 ##### 11841#       发表于 2018-10-18 22:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41308994&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-18 21:48</a>
 
 尼禄祭礼装没有初始NP，没孔明你怎么启动。。。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">多平砍几回合
-
-
-
-
-
 
 
 -----
@@ -24406,16 +15849,10 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 ##### 11842#       发表于 2018-10-18 22:16
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41309126&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 22:04</a>
 
 FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白冲了</blockquote>
 系统感受到了5份灵魂
-
-
-
-
-
 
 
 -----
@@ -24424,23 +15861,16 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 ##### 11843#       发表于 2018-10-18 22:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41309126&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 22:04</a>
 
 FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白冲了</blockquote>
 “已收到您的祭品，正在为您发送奖励...一位不坦率的女人“”
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11844#       发表于 2018-10-18 22:41
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41305650&amp;ptid=1712412" target="_blank">violettor 发表于 2018-10-18 15:37</a>
@@ -24450,16 +15880,10 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 决赛敌方术阶，预赛是弓。
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11845#       发表于 2018-10-18 22:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41309126&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 22:04</a>
@@ -24470,16 +15894,10 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 再一想大佬还有个美服号<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11846#       发表于 2018-10-18 22:47
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41309439&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-18 22:42</a>
@@ -24490,16 +15908,10 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 妈蛋5单抽完还是一宝，中间歪狐狸的时候我就该跑路的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11847#       发表于 2018-10-18 22:55
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41309467&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 22:47</a>
@@ -24508,17 +15920,10 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">头铁都没好结果，然而一般忍不住
 
 
-
-
-
-
-
 -----
 
 ####  淡定红茶  
 ##### 11848#       发表于 2018-10-18 23:26
-
-
 
 
 因为出了泳装学妹，拿着通了雅戈泰的石头礼节性十连
@@ -24532,16 +15937,10 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 42选1就new黑呆吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11849#       发表于 2018-10-18 23:43
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41309467&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-18 22:47</a>
@@ -24550,25 +15949,13 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 再来5单，估计又会再来一发10连就出货了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11850#       发表于 2018-10-18 23:45
 
 
-
-
 一期商店就剩小半银棋子了，可算是掉了一张礼装<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24577,24 +15964,15 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 ##### 11851#       发表于 2018-10-19 01:35
 
 
-
-
 沉船了……女儿TAT
 
 我要女儿！TAT
-
-
-
-
-
 
 
 -----
 
 ####  SAGA0Arcueid  
 ##### 11852#       发表于 2018-10-19 08:40
-
-
 
 
 女儿沉船，歪了两个狼王……杀捞了一堆毒妹子…………
@@ -24606,25 +15984,13 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 早知道我还不如赌一下骑呢
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11853#       发表于 2018-10-19 08:58
 
 
-
-
 你们多up狙击是不是搞错了什么
-
-
-
-
-
 
 
 -----
@@ -24633,14 +15999,7 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 ##### 11854#       发表于 2018-10-19 09:22
 
 
-
-
 每次职阶UP都毒的要死，为何你们还抽……
-
-
-
-
-
 
 
 -----
@@ -24649,16 +16008,9 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 ##### 11855#       发表于 2018-10-19 09:25
 
 
-
-
 長草好無聊.........
 
 還有一星期才開本能去復刻我要死了
-
-
-
-
-
 
 
 -----
@@ -24667,23 +16019,15 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 ##### 11856#       发表于 2018-10-19 09:40
 
 
-
-
 白贞后面什么时候有单UP吗？突然觉得还是备一个以防万一比较好
 
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 11857#       发表于 2018-10-19 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41311810&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-19 09:40</a>
@@ -24693,16 +16037,10 @@ FGO启动，圣晶石购买，极大成功玄学，1发十连黑贞get，5单白
 FA纪念卡池，大概12月吧
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11858#       发表于 2018-10-19 09:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41311810&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-19 09:40</a>
@@ -24712,16 +16050,10 @@ FA纪念卡池，大概12月吧
 FA系列五星都有
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11859#       发表于 2018-10-19 09:52
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41311810&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-19 09:40</a>
@@ -24733,11 +16065,6 @@ FA系列五星都有
 2019情人节？
 
 
-
-
-
-
-
 -----
 
 ####  auraria  
@@ -24746,12 +16073,10 @@ FA系列五星都有
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  deadog  
 ##### 11861#       发表于 2018-10-19 10:22
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41311810&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-19 09:40:09</a>
@@ -24760,17 +16085,10 @@ FA系列五星都有
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  kazemitoya  
 ##### 11862#       发表于 2018-10-19 10:47
-
-
 
 
 废狗最好的作用，就是不断地提醒我：我就是个傻逼，不是什么天选之人。
@@ -24779,25 +16097,13 @@ FA系列五星都有
 今天贞德的池子我又沉了。但心情比较平和
 
 
-
-
-
-
-
 -----
 
 ####  莉莉橙  
 ##### 11863#       发表于 2018-10-19 10:48
 
 
-
-
 舰B出了个阿蒂拉alter（
-
-
-
-
-
 
 
 -----
@@ -24806,21 +16112,13 @@ FA系列五星都有
 ##### 11864#       发表于 2018-10-19 11:29
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41311902&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-19 09:49</a>
 
 FA纪念卡池，大概12月吧</blockquote>
 那我就忍忍了……早上醒来看到白贞杰克（以及一大堆UP）差点没忍住又氪一单。
 
 
-
-
 早上醒之前做了非常诡异的梦，梦到在毫无排练的情况下要去演FGO六章的舞台剧，还是演拉二<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24829,21 +16127,13 @@ FA纪念卡池，大概12月吧</blockquote>
 ##### 11865#       发表于 2018-10-19 11:30
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41312427&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-19 11:29:27</a>
 那我就忍忍了……早上醒来看到白贞杰克（以及一大堆UP）差点没忍住又氪一单。
-
-
 
 
 早上醒之前做了非常诡异 ...</blockquote>慌什么，哈哈哈就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
-
-
-
-
-
 
 
 -----
@@ -24852,16 +16142,10 @@ FA纪念卡池，大概12月吧</blockquote>
 ##### 11866#       发表于 2018-10-19 12:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41312427&amp;ptid=1712412" target="_blank">shimotsuki14 发表于 2018-10-19 11:29</a>
 
 那我就忍忍了……早上醒来看到白贞杰克（以及一大堆UP）差点没忍住又氪一单。</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要微笑就可以了
-
-
-
-
-
 
 
 -----
@@ -24870,16 +16154,9 @@ FA纪念卡池，大概12月吧</blockquote>
 ##### 11867#       发表于 2018-10-19 12:17
 
 
-
-
 大龙娘满宝了，最后一宝的白贞想必一定会歪到的，女儿的需求没那么迫切了，这毒池我还是不碰了吧。反正活动也毕业了，专心刷qp把嫁尼禄的二技能从8点到10吧
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -24888,14 +16165,7 @@ FA纪念卡池，大概12月吧</blockquote>
 ##### 11868#       发表于 2018-10-19 12:26
 
 
-
-
 小号龙娘带队想投个石问问路，结果最高的就一四星礼装。岂可修，阶职池再抽我就是狗。<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -24904,21 +16174,13 @@ FA纪念卡池，大概12月吧</blockquote>
 ##### 11869#       发表于 2018-10-19 13:09
 
 
-
-
 差不多有4天只签到今天终于毕业了。。。
-
-
-
-
-
 
 
 -----
 
 ####  Coda  
 ##### 11870#       发表于 2018-10-19 13:57
-
 
 
 <blockquote>莉莉橙 发表于 2018-10-19 10:48
@@ -24928,16 +16190,10 @@ FA纪念卡池，大概12月吧</blockquote>
 我还觉得像c的武藏呢
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 11871#       发表于 2018-10-19 14:08
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41312339&amp;ptid=1712412" target="_blank">莉莉橙 发表于 2018-10-19 10:48</a>
@@ -24946,16 +16202,10 @@ FA纪念卡池，大概12月吧</blockquote>
 这都啥时候的事儿了。。。。
 
 
-
-
-
-
-
 -----
 
 ####  Coda  
 ##### 11872#       发表于 2018-10-19 14:19
-
 
 
 <blockquote>蕾丝 发表于 2018-10-19 14:08
@@ -24963,16 +16213,10 @@ FA纪念卡池，大概12月吧</blockquote>
 美国新船 早上出的…
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 11873#       发表于 2018-10-19 14:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314048&amp;ptid=1712412" target="_blank">Coda 发表于 2018-10-19 14:19</a>
@@ -24982,25 +16226,13 @@ FA纪念卡池，大概12月吧</blockquote>
 —— 来自 HUAWEI BND-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11874#       发表于 2018-10-19 14:33
 
 
-
-
 公告已出，无缝尼禄祭，布姐我来了
-
-
-
-
-
 
 
 -----
@@ -25009,21 +16241,13 @@ FA纪念卡池，大概12月吧</blockquote>
 ##### 11875#       发表于 2018-10-19 14:36
 
 
-
-
 终于能肝了，这次尽量把box从者等级全点满
-
-
-
-
-
 
 
 -----
 
 ####  莉莉橙  
 ##### 11876#       发表于 2018-10-19 14:36
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41313842&amp;ptid=1712412" target="_blank">Coda 发表于 2018-10-19 13:57</a>
@@ -25034,33 +16258,19 @@ FA纪念卡池，大概12月吧</blockquote>
 黑皮白发红瞳，星纹feel的纹样，还有那个鞋……
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11877#       发表于 2018-10-19 14:40
 
 
-
-
 24号更新连梅芙和215的改模都实装了，版本应该到空境复刻为止，x毛改模没有，这样的话无限池抽池加速应该是提前实装了
-
-
-
-
-
 
 
 -----
 
 ####  FrozenA  
 ##### 11878#       发表于 2018-10-19 14:43
-
-
 
 
 [版本更新内容]
@@ -25083,16 +16293,10 @@ FA纪念卡池，大概12月吧</blockquote>
 是不是可以理解为从者快速消灭没有实装
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11879#       发表于 2018-10-19 14:47
-
 
 
 <blockquote>FrozenA 发表于 2018-10-19 14:43
@@ -25104,16 +16308,10 @@ FA纪念卡池，大概12月吧</blockquote>
 估计算6，毕竟快速退场万圣三期就实装了，顺便划重点11月7号开梅林池子
 
 
-
-
-
-
-
 -----
 
 ####  cmg1987  
 ##### 11880#       发表于 2018-10-19 14:48
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314267&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-19 14:43</a>
@@ -25126,26 +16324,15 @@ FA纪念卡池，大概12月吧</blockquote>
 这个狐狸……是改宝具那一次？岂不是跳舞更长了？
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11881#       发表于 2018-10-19 14:49
 
 
-
 <blockquote>cmg1987 发表于 2018-10-19 14:48
 这个狐狸……是改宝具那一次？岂不是跳舞更长了？</blockquote>
 时长一样的
-
-
-
-
-
 
 
 -----
@@ -25154,22 +16341,15 @@ FA纪念卡池，大概12月吧</blockquote>
 ##### 11882#       发表于 2018-10-19 14:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314324&amp;ptid=1712412" target="_blank">cmg1987 发表于 2018-10-19 14:48</a>
 这个狐狸……是改宝具那一次？岂不是跳舞更长了？</blockquote>
 乐观点就是无限池的时候狐狸不用开宝具，影响不到刷池（自欺欺人
-
-
-
-
-
 
 
 -----
 
 ####  Coda  
 ##### 11883#       发表于 2018-10-19 14:51
-
 
 
 <blockquote>蕾丝 发表于 2018-10-19 14:29
@@ -25180,32 +16360,19 @@ FA纪念卡池，大概12月吧</blockquote>
 看这意思…说的是Minneapolis 新重巡
 
 
-
-
-
-
-
 -----
 
 ####  cmg1987  
 ##### 11884#       发表于 2018-10-19 14:52
 
 
-
-
 另外专楼标题的人妻到底是谁啊？
-
-
-
-
-
 
 
 -----
 
 ####  莉莉橙  
 ##### 11885#       发表于 2018-10-19 14:53
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314267&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-19 14:43</a>
@@ -25218,32 +16385,19 @@ FA纪念卡池，大概12月吧</blockquote>
 提前更新玉藻战斗模型真是喜出望外，早期从者弯腰驼背的太多了
 
 
-
-
-
-
-
 -----
 
 ####  shimotsuki14  
 ##### 11886#       发表于 2018-10-19 15:01
 
 
-
-
 我狐要更新了？吼啊
-
-
-
-
-
 
 
 -----
 
 ####  蕾丝  
 ##### 11887#       发表于 2018-10-19 15:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314348&amp;ptid=1712412" target="_blank">Coda 发表于 2018-10-19 14:51</a>
@@ -25253,16 +16407,10 @@ FA纪念卡池，大概12月吧</blockquote>
 —— 来自 HUAWEI BND-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11888#       发表于 2018-10-19 15:06
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314357&amp;ptid=1712412" target="_blank">cmg1987 发表于 2018-10-19 14:52</a>
@@ -25271,32 +16419,19 @@ FA纪念卡池，大概12月吧</blockquote>
 梅芙啊。。。
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11889#       发表于 2018-10-19 15:09
 
 
-
-
 诶？竟然真无缝
-
-
-
-
-
 
 
 -----
 
 ####  cmg1987  
 ##### 11890#       发表于 2018-10-19 15:10
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314506&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-19 15:06</a>
@@ -25307,16 +16442,10 @@ FA纪念卡池，大概12月吧</blockquote>
 说布姐啥的是人妻还差不多
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11891#       发表于 2018-10-19 15:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314539&amp;ptid=1712412" target="_blank">cmg1987 发表于 2018-10-19 15:10:38</a>
@@ -25327,16 +16456,10 @@ FA纪念卡池，大概12月吧</blockquote>
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  cmg1987  
 ##### 11892#       发表于 2018-10-19 15:15
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314554&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-19 15:12</a>
@@ -25351,32 +16474,19 @@ C子
 巴御前算是你游最人妻的吧
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11893#       发表于 2018-10-19 15:38
 
 
-
-
 C子23333
-
-
-
-
-
 
 
 -----
 
 ####  圈量子  
 ##### 11894#       发表于 2018-10-19 15:40
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314539&amp;ptid=1712412" target="_blank">cmg1987 发表于 2018-10-19 15:10</a>
@@ -25386,25 +16496,13 @@ C子23333
 人尽可夫（不）那不也算人妻吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  圈量子  
 ##### 11895#       发表于 2018-10-19 15:42
 
 
-
-
 24号还行，看了下考完量子力学正好可以开肝，复习去了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25413,14 +16511,7 @@ C子23333
 ##### 11896#       发表于 2018-10-19 15:46
 
 
-
-
 怪了，都到空境复刻了没有实装撤回？还是说撤回是那之后的，难道是我记错了……
-
-
-
-
-
 
 
 -----
@@ -25429,22 +16520,15 @@ C子23333
 ##### 11897#       发表于 2018-10-19 15:55
 
 
-
 <blockquote>圈量子 发表于 2018-10-19 15:42
 24号还行，看了下考完量子力学正好可以开肝，复习去了</blockquote>
 肝量子233
-
-
-
-
-
 
 
 -----
 
 ####  gearbox  
 ##### 11898#       发表于 2018-10-19 16:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314812&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-19 15:42</a>
@@ -25454,25 +16538,13 @@ C子23333
 —— 来自 LENOVO Lenovo X3c50, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  冰狼芬里尔  
 ##### 11899#       发表于 2018-10-19 16:23
 
 
-
-
 大龙娘改模型好评
-
-
-
-
-
 
 
 -----
@@ -25481,15 +16553,9 @@ C子23333
 ##### 11900#       发表于 2018-10-19 16:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314932&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-19 15:55</a>
 肝量子233</blockquote>
 你们不要乱说，我这次也就预定300池左右<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25498,16 +16564,9 @@ C子23333
 ##### 11901#       发表于 2018-10-19 16:34
 
 
-
-
 300池的爆肝大佬。。我上次圣诞130池就已经后几天刷的不想刷要吐了 
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -25516,14 +16575,7 @@ C子23333
 ##### 11902#       发表于 2018-10-19 16:38
 
 
-
-
 然后意识到正赛最后两天和热统和电动考试撞了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25532,14 +16584,7 @@ C子23333
 ##### 11903#       发表于 2018-10-19 17:19
 
 
-
-
 无缝还行，昨天不舒服去推拿时师傅说我运动过量导致腰肌劳损，让我休息一周不要剧烈运动，这回正好躺着肝了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25548,16 +16593,9 @@ C子23333
 ##### 11904#       发表于 2018-10-19 17:21
 
 
-
-
 215改模了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
 
 什么时候开个宝具本啊
-
-
-
-
-
 
 
 -----
@@ -25566,14 +16604,7 @@ C子23333
 ##### 11905#       发表于 2018-10-19 17:27
 
 
-
-
 我上次圣诞70还是80都想吐了
-
-
-
-
-
 
 
 -----
@@ -25582,23 +16613,15 @@ C子23333
 ##### 11906#       发表于 2018-10-19 17:54
 
 
-
-
 这次无限池和RDR2撞车
 
 只能边打无限池边打RDR2了。。。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  dante888  
 ##### 11907#       发表于 2018-10-19 17:55
-
 
 
 <blockquote>Leona_Akari 发表于 2018-10-19 17:54
@@ -25608,16 +16631,10 @@ C子23333
 rdr2可以慢点打啊
 
 
-
-
-
-
-
 -----
 
 ####  khxooo  
 ##### 11908#       发表于 2018-10-19 18:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314539&amp;ptid=1712412" target="_blank">cmg1987 发表于 2018-10-19 15:10</a>
@@ -25628,16 +16645,10 @@ rdr2可以慢点打啊
 神话中梅芙是结过婚的，人妻没问题。
 
 
-
-
-
-
-
 -----
 
 ####  五更伪境  
 ##### 11909#       发表于 2018-10-19 18:28
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41316037&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-19 17:54</a>
@@ -25648,25 +16659,13 @@ rdr2可以慢点打啊
 明明是两件快乐事情重合在一起，为什么会变成这样呢?
 
 
-
-
-
-
-
 -----
 
 ####  gjd198692  
 ##### 11910#       发表于 2018-10-19 18:30
 
 
-
-
 无缝链接 让我感受下最肝的活动吧
-
-
-
-
-
 
 
 -----
@@ -25675,16 +16674,9 @@ rdr2可以慢点打啊
 ##### 11911#       发表于 2018-10-19 18:51
 
 
-
-
 尼禄祭这张5星氪金礼装有满破的价值吗？
 
 —— 来自 HUAWEI BND-AL10, Android 7.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -25693,14 +16685,7 @@ rdr2可以慢点打啊
 ##### 11912#       发表于 2018-10-19 18:53
 
 
-
-
 计划只刷50池左右的表示毫无压力<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25709,14 +16694,7 @@ rdr2可以慢点打啊
 ##### 11913#       发表于 2018-10-19 18:57
 
 
-
-
 看了下攻略，尼禄祭这高难我觉得我可以全扔了就专心刷池子算了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -25725,23 +16703,16 @@ rdr2可以慢点打啊
 ##### 11914#       发表于 2018-10-19 19:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41316553&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-19 18:57:33</a>
 看了下攻略，尼禄祭这高难我觉得我可以全扔了就专心刷池子算了</blockquote>多好玩的高难，尼禄祭这里才是一年里的真高难，放弃干啥<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11915#       发表于 2018-10-19 19:03
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41316583&amp;ptid=1712412" target="_blank">hylq2000 发表于 2018-10-19 19:02</a>
@@ -25757,16 +16728,10 @@ rdr2可以慢点打啊
 最多3令咒轰下拿传承结晶的那两个高难吧
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11916#       发表于 2018-10-19 19:17
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41314554&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-19 09:12</a>
@@ -25778,16 +16743,10 @@ C子
 C子也没有up啊，我觉得是说布姐
 
 
-
-
-
-
-
 -----
 
 ####  丘萤之光  
 ##### 11917#       发表于 2018-10-19 19:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41315198&amp;ptid=1712412" target="_blank">圈量子 发表于 2018-10-19 10:24</a>
@@ -25796,16 +16755,10 @@ C子也没有up啊，我觉得是说布姐
 又欧又肝，天下无敌<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11918#       发表于 2018-10-19 19:44
-
 
 
 <blockquote>Leona_Akari 发表于 2018-10-19 19:03
@@ -25817,16 +16770,10 @@ C子也没有up啊，我觉得是说布姐
 不打王哈真是错过很多啊，毕竟是你游目前为止第一高难，另外我日服泳装二期入坑，无拐贫瘠box也过了除全力斗鸡prototype以外的全部高难，那时候我还不是母猪呢
 
 
-
-
-
-
-
 -----
 
 ####  dante888  
 ##### 11919#       发表于 2018-10-19 19:48
-
 
 
 <blockquote>Leona_Akari 发表于 2018-10-19 19:03
@@ -25838,32 +16785,20 @@ C子也没有up啊，我觉得是说布姐
 你box比我那时候强得多，过这些本根本毫无问题的
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11920#       发表于 2018-10-19 19:50
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 <img src="https://i.loli.net/2018/10/19/5bc9c4f1dc0a7.jpg" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  Leona_Akari  
 ##### 11921#       发表于 2018-10-19 19:51
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41316940&amp;ptid=1712412" target="_blank">dante888 发表于 2018-10-19 19:48</a>
@@ -25874,24 +16809,13 @@ C子也没有up啊，我觉得是说布姐
 这次泳2也是，看着一堆高难本原本都在规划令咒了然后噼里啪啦就全过了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  纯白花火  
 ##### 11922#       发表于 2018-10-19 19:56
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">错过了昨天的每日骑本，怎么补救最快啊
-
-
-
-
-
 
 
 -----
@@ -25900,23 +16824,16 @@ C子也没有up啊，我觉得是说布姐
 ##### 11923#       发表于 2018-10-19 19:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41316998&amp;ptid=1712412" target="_blank">纯白花火 发表于 2018-10-19 19:56:13</a>
 错过了昨天的每日骑本，怎么补救最快啊</blockquote>缺神酒可以去龙宫，缺龙牙可以去翼龙岛
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  纯白花火  
 ##### 11924#       发表于 2018-10-19 20:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317024&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-19 19:59</a>
@@ -25928,16 +16845,10 @@ C子也没有up啊，我觉得是说布姐
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是每周任务的饼干
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11925#       发表于 2018-10-19 20:02
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317037&amp;ptid=1712412" target="_blank">纯白花火 发表于 2018-10-19 20:01</a>
@@ -25946,16 +16857,10 @@ C子也没有up啊，我觉得是说布姐
 这几个图骑阶小怪很多，蓝饼干很容易出
 
 
-
-
-
-
-
 -----
 
 ####  纯白花火  
 ##### 11926#       发表于 2018-10-19 20:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317047&amp;ptid=1712412" target="_blank">deadog 发表于 2018-10-19 20:02</a>
@@ -25964,16 +16869,10 @@ C子也没有up啊，我觉得是说布姐
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">非常感谢，我去试试
 
 
-
-
-
-
-
 -----
 
 ####  hylq2100  
 ##### 11927#       发表于 2018-10-19 20:33
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317060&amp;ptid=1712412" target="_blank">纯白花火 发表于 2018-10-19 20:05</a>
@@ -25982,25 +16881,13 @@ C子也没有up啊，我觉得是说布姐
 <img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">泳装活动没毕业就刷骑阶的去呗
 
 
-
-
-
-
-
 -----
 
 ####  麻花疼  
 ##### 11928#       发表于 2018-10-19 20:58
 
 
-
-
 没有枪光炮和杀光炮刷尼禄果然非常蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26009,16 +16896,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11929#       发表于 2018-10-19 21:02
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317435&amp;ptid=1712412" target="_blank">麻花疼 发表于 2018-10-19 20:58</a>
 
 没有枪光炮和杀光炮刷尼禄果然非常蛋疼</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">还有赫克托尔……
-
-
-
-
-
 
 
 -----
@@ -26027,14 +16908,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11930#       发表于 2018-10-19 21:17
 
 
-
-
 离24号还有5天。。我这几天正好闲着，24号就不一定了啊……
-
-
-
-
-
 
 
 -----
@@ -26043,14 +16917,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11931#       发表于 2018-10-19 21:41
 
 
-
-
 杀阶光炮泳装师匠顶用不 枪阶光炮真没了只能蹭大佬的
-
-
-
-
-
 
 
 -----
@@ -26059,14 +16926,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11932#       发表于 2018-10-19 21:50
 
 
-
-
 快把商店搬完才掉了一个礼装，我服了
-
-
-
-
-
 
 
 -----
@@ -26075,16 +16935,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11933#       发表于 2018-10-19 21:56
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317738&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-19 21:41</a>
 
 杀阶光炮泳装师匠顶用不 枪阶光炮真没了只能蹭大佬的</blockquote>
 打一炮可以用，但是第二炮就不用想了，NP和本体一样超残疾。
-
-
-
-
-
 
 
 -----
@@ -26093,16 +16947,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11934#       发表于 2018-10-19 21:58
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317789&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-19 21:50</a>
 
 快把商店搬完才掉了一个礼装，我服了</blockquote>
 我大号到现在差不多毕业了还没有刷出呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26111,16 +16959,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11935#       发表于 2018-10-19 21:59
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317789&amp;ptid=1712412" target="_blank">五更伪境 发表于 2018-10-19 21:50</a>
 
 快把商店搬完才掉了一个礼装，我服了</blockquote>
 商店都帮完了，就剩棋子了，一张礼装都没有，最近真是非<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">成狗了
-
-
-
-
-
 
 
 -----
@@ -26129,14 +16971,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11936#       发表于 2018-10-19 22:13
 
 
-
-
 算了下再打二十六七把就要升级了，但我想把升级时间推迟到尼禄祭，于是准备再搬几种棋子就不搬了，去推经验值涨得比较慢的本
-
-
-
-
-
 
 
 -----
@@ -26145,13 +16980,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11937#       发表于 2018-10-19 22:21
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">杀阶是不是特别缺啊，低星战神有吗
-
-
-
-
-
 
 
 -----
@@ -26160,15 +16989,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11938#       发表于 2018-10-19 22:29
 
 
-
 <blockquote>khxooo 发表于 2018-10-19 21:56
 打一炮可以用，但是第二炮就不用想了，NP和本体一样超残疾。</blockquote>
 看来还是胜任不了尼禄祭呐 诶 不管了不行就上b阶
-
-
-
-
-
 
 
 -----
@@ -26177,21 +17000,13 @@ C子也没有up啊，我觉得是说布姐
 ##### 11939#       发表于 2018-10-19 23:44
 
 
-
-
 二期商店除了棋子之外只有5个血滴子没搬完，可是依然没有掉潜水学妹，好烦。
-
-
-
-
-
 
 
 -----
 
 ####  yiraer  
 ##### 11940#       发表于 2018-10-19 23:49
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41318019&amp;ptid=1712412" target="_blank">白昼梦 发表于 2018-10-19 22:21</a>
@@ -26205,25 +17020,13 @@ C子也没有up啊，我觉得是说布姐
 四星倒是有卡米拉很强。
 
 
-
-
-
-
-
 -----
 
 ####  yiraer  
 ##### 11941#       发表于 2018-10-19 23:51
 
 
-
-
 最近打日服抱过艳后和女帝的大腿，感觉两个人NP都挺好的，但是也都有缺点，这俩里二选一的话我觉得还是厨力影响比较大。
-
-
-
-
-
 
 
 -----
@@ -26232,16 +17035,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11942#       发表于 2018-10-20 00:00
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41318019&amp;ptid=1712412" target="_blank">白昼梦 发表于 2018-10-19 22:21</a>
 
 杀阶是不是特别缺啊，低星战神有吗</blockquote>
 小次郎啊！
-
-
-
-
-
 
 
 -----
@@ -26250,15 +17047,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11943#       发表于 2018-10-20 00:04
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41317738&amp;ptid=1712412" target="_blank">gjd198692 发表于 2018-10-19 21:41</a>
 杀阶光炮泳装师匠顶用不 枪阶光炮真没了只能蹭大佬的</blockquote>
 有五星杀光炮吗，没有的话师匠挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26267,14 +17058,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11944#       发表于 2018-10-20 00:15
 
 
-
-
 师匠有回复有嘲讽有暴击，标准绿魔放还带无敌贯通，已经很好了
-
-
-
-
-
 
 
 -----
@@ -26283,23 +17067,15 @@ C子也没有up啊，我觉得是说布姐
 ##### 11945#       发表于 2018-10-20 00:16
 
 
-
-
 说起来五星之外唯一的单体术只有光炮倍率的C妈？<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
 
 感觉真是太稀缺了
-
-
-
-
-
 
 
 -----
 
 ####  圈量子  
 ##### 11946#       发表于 2018-10-20 00:18
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41318876&amp;ptid=1712412" target="_blank">FrozenA 发表于 2018-10-20 00:16</a>
@@ -26309,17 +17085,10 @@ C子也没有up啊，我觉得是说布姐
 以后就有她姑姑和示巴女王了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  蕾丝  
 ##### 11947#       发表于 2018-10-20 00:22
-
-
 
 
 抽了一下妹夫池，结果第二个呼符出了狂大公？？？？
@@ -26328,27 +17097,15 @@ C子也没有up啊，我觉得是说布姐
 —— 来自 HUAWEI BND-AL10, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.2.1-fix-play
 
 
-
-
-
-
-
 -----
 
 ####  penguinboa  
 ##### 11948#       发表于 2018-10-20 00:22
 
 
-
-
 请教大佬们，想抽花嫁的话尼禄祭是机会吗？等过几天的单up？红尼禄不影响的吧？？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MI 8, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -26357,23 +17114,16 @@ C子也没有up啊，我觉得是说布姐
 ##### 11949#       发表于 2018-10-20 00:38
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41318916&amp;ptid=1712412" target="_blank">penguinboa 发表于 2018-10-20 00:22</a>
 
 请教大佬们，想抽花嫁的话尼禄祭是机会吗？等过几天的单up？红尼禄不影响的吧？？红尼已经满羁绊只 ...</blockquote>
 尼禄祭是花嫁已知最后一次UP了，暂时想抽只能福袋拼。不知道你说的影响指的是什么，是出率？好像说4星不影响5星的出率。
 
 
-
-
-
-
-
 -----
 
 ####  johnkamsar  
 ##### 11950#       发表于 2018-10-20 00:39
-
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
@@ -26392,32 +17142,15 @@ C子也没有up啊，我觉得是说布姐
 2018-10-20 00:39 上传
 
 
-
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11951#       发表于 2018-10-20 00:47
 
 
-
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">萨米尔大大能麻烦挂一下你那个五星的枪狐吗？我想打一期的月神
 
 谢谢了
-
-
-
-
-
 
 
 -----
@@ -26426,14 +17159,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11952#       发表于 2018-10-20 01:04
 
 
-
-
 说起来我一直想问，布姐花嫁这种双限定的日替池子，在花嫁UP那天能抽出布姐吗
-
-
-
-
-
 
 
 -----
@@ -26442,16 +17168,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11953#       发表于 2018-10-20 01:06
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41319211&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-20 01:04</a>
 
 说起来我一直想问，布姐花嫁这种双限定的日替池子，在花嫁UP那天能抽出布姐吗 ...</blockquote>
 看召唤详情啊，一般是岔开的吧？
-
-
-
-
-
 
 
 -----
@@ -26460,16 +17180,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11954#       发表于 2018-10-20 01:13
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41319211&amp;ptid=1712412" target="_blank">yiraer 发表于 2018-10-20 01:04</a>
 
 说起来我一直想问，布姐花嫁这种双限定的日替池子，在花嫁UP那天能抽出布姐吗 ...</blockquote>
 用模拟器试了一下，白贞都歪出三宝了还没看到布姐
-
-
-
-
-
 
 
 -----
@@ -26480,21 +17194,13 @@ C子也没有up啊，我觉得是说布姐
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Leona_Akari  
 ##### 11956#       发表于 2018-10-20 02:32
 
 
-
-
 淘宝充值中心现在有个抽奖可以抽到1000-100的ios充值券，有效期到11.12，有氪金意愿的ios用户可以先去屯一张<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26503,16 +17209,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11957#       发表于 2018-10-20 07:09
 
 
-
-
 预赛咸鱼，正赛刷商店，决赛爆肝<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 不知道好友有几个花嫁大佬
-
-
-
-
-
 
 
 -----
@@ -26523,22 +17222,15 @@ C子也没有up啊，我觉得是说布姐
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  Kon-El  
 ##### 11959#       发表于 2018-10-20 08:53
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41319545&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-20 02:32</a>
 淘宝充值中心现在有个抽奖可以抽到1000-100的ios充值券，有效期到11.12，有氪金意愿的ios用户可以先去屯一 ...</blockquote>
 在哪抽？
-
-
-
-
-
 
 
 -----
@@ -26547,14 +17239,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11960#       发表于 2018-10-20 09:46
 
 
-
-
 泳装商店除了棋子差不多都搬完了，就是不掉礼装，好难过啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26563,15 +17248,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11961#       发表于 2018-10-20 09:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41320333&amp;ptid=1712412" target="_blank">Kon-El 发表于 2018-10-20 08:53</a>
 在哪抽？</blockquote>
 手机淘宝首页，充值中心，进去就会跳出来有个1111赢话费什么的，点进去抽奖就是了，看隔壁LGA说好像不是必中的，看脸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26580,15 +17259,8 @@ C子也没有up啊，我觉得是说布姐
 ##### 11962#       发表于 2018-10-20 09:53
 
 
-
-
 我看nga好像掉率差不多吧 可以从头肝爆到尾？
 预赛有一天打不了 不过也问题不大<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26597,14 +17269,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11963#       发表于 2018-10-20 10:14
 
 
-
-
 原本我是不相信一千石头出不了五星的，抽了这个术阶池子我才知道，原来非是没有止境的。
-
-
-
-
-
 
 
 -----
@@ -26613,16 +17278,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11964#       发表于 2018-10-20 10:14
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41319392&amp;ptid=1712412" target="_blank">copysword 发表于 2018-10-20 01:49</a>
 
 换了</blockquote>
 谢谢，已经好了
-
-
-
-
-
 
 
 -----
@@ -26631,16 +17290,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11965#       发表于 2018-10-20 10:36
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41320680&amp;ptid=1712412" target="_blank">Leona_Akari 发表于 2018-10-20 09:46</a>
 
 手机淘宝首页，充值中心，进去就会跳出来有个1111赢话费什么的，点进去抽奖就是了，看隔壁LGA说好像不是 ...</blockquote>
 十块钱话费，可恶。
-
-
-
-
-
 
 
 -----
@@ -26649,16 +17302,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11966#       发表于 2018-10-20 11:00
 
 
-
 <img src="https://wx1.sinaimg.cn/mw690/53017269ly1fwei78gwf4j21hc0qoq9y.jpg" referrerpolicy="no-referrer">
 
 
 今天准备把面吃了，感觉太少了，以我东北凶猛肥宅的饭量怕是得吃三份<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -26669,12 +17316,10 @@ C子也没有up啊，我觉得是说布姐
 提示: 作者被禁止或删除 内容自动屏蔽
 
 
-
 -----
 
 ####  minamitsubasa  
 ##### 11968#       发表于 2018-10-20 11:13
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41320880&amp;ptid=1712412" target="_blank">qw7608290 发表于 2018-10-20 10:14</a>
@@ -26683,16 +17328,10 @@ C子也没有up啊，我觉得是说布姐
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">每次抽之前都先用模拟器解解毒。术阶4个5星分1%的出率，一个才0.25%。模拟器经常四五单没看到孔明
 
 
-
-
-
-
-
 -----
 
 ####  吾乃啊噗  
 ##### 11969#       发表于 2018-10-20 12:19
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41321262&amp;ptid=1712412" target="_blank">麻花疼 发表于 2018-10-20 11:00</a>
@@ -26700,17 +17339,10 @@ C子也没有up啊，我觉得是说布姐
 好不好吃 我的还在家里 下周回去就能吃到了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  傅剑寒  
 ##### 11970#       发表于 2018-10-20 12:32
-
-
 
 
 真·全家换卡<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
@@ -26726,31 +17358,15 @@ C子也没有up啊，我觉得是说布姐
 2018-10-20 12:32 上传
 
 
-
-
-
-
-
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11971#       发表于 2018-10-20 12:34
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41322129&amp;ptid=1712412" target="_blank">傅剑寒 发表于 2018-10-20 12:32</a>
 真·全家换卡</blockquote>
 喷了。。
-
-
-
-
-
 
 
 -----
@@ -26759,16 +17375,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11972#       发表于 2018-10-20 12:51
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41322129&amp;ptid=1712412" target="_blank">傅剑寒 发表于 2018-10-20 12:32</a>
 
 真·全家换卡</blockquote>
 喷了
-
-
-
-
-
 
 
 -----
@@ -26777,21 +17387,13 @@ C子也没有up啊，我觉得是说布姐
 ##### 11973#       发表于 2018-10-20 13:07
 
 
-
-
 还是没有孔明很难受
-
-
-
-
-
 
 
 -----
 
 ####  麻花疼  
 ##### 11974#       发表于 2018-10-20 13:32
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41322034&amp;ptid=1712412" target="_blank">吾乃啊噗 发表于 2018-10-20 12:19</a>
@@ -26801,16 +17403,10 @@ C子也没有up啊，我觉得是说布姐
 被15一碗的牛肉面碾压。。。
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11975#       发表于 2018-10-20 14:01
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41320722&amp;ptid=1712412" target="_blank">吾乃啊噗 发表于 2018-10-20 09:53</a>
@@ -26823,25 +17419,13 @@ C子也没有up啊，我觉得是说布姐
 我也打算初赛就开肝了，长草期太闲了
 
 
-
-
-
-
-
 -----
 
 ####  Kon-El  
 ##### 11976#       发表于 2018-10-20 14:33
 
 
-
-
 一期商店除了棋子都搬完了还是没掉礼装…
-
-
-
-
-
 
 
 -----
@@ -26850,16 +17434,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11977#       发表于 2018-10-20 14:33
 
 
-
-
 两单孔明沉了，要不要头铁一波<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
-
-
-
-
-
 
 
 -----
@@ -26868,23 +17445,16 @@ C子也没有up啊，我觉得是说布姐
 ##### 11978#       发表于 2018-10-20 14:35
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41323087&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-20 14:33:25</a>
 两单孔明沉了，要不要头铁一波 v2.0.4-play</blockquote>别了，歪出来别的更难受
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  FrozenA  
 ##### 11979#       发表于 2018-10-20 14:39
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41323087&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-20 14:33</a>
@@ -26894,16 +17464,10 @@ C子也没有up啊，我觉得是说布姐
 当然不要了<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">现在几up了都
 
 
-
-
-
-
-
 -----
 
 ####  Leona_Akari  
 ##### 11980#       发表于 2018-10-20 14:42
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41323087&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-20 14:33</a>
@@ -26921,17 +17485,10 @@ C子也没有up啊，我觉得是说布姐
 顺便职阶池捞孔明期望至少是5单，2单真的没多少的
 
 
-
-
-
-
-
 -----
 
 ####  noobtizi  
 ##### 11981#       发表于 2018-10-20 14:54
-
-
 
 
 原来职介池是毒池吗<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
@@ -26941,16 +17498,10 @@ C子也没有up啊，我觉得是说布姐
 —— 来自 samsung SM-G9550, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
 
 
-
-
-
-
-
 -----
 
 ####  deadog  
 ##### 11982#       发表于 2018-10-20 14:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41323253&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-20 14:54:34</a>
@@ -26959,25 +17510,13 @@ C子也没有up啊，我觉得是说布姐
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-
-
-
-
-
 -----
 
 ####  minamitsubasa  
 ##### 11983#       发表于 2018-10-20 15:08
 
 
-
-
 回去打一期了。二期相对确实是简单一点。一期不光有火焰山这种傻吊图，小兵的血量也高，二期最多三万四，一期经常六万，而且是两种职阶，而且还有逆克制。真不好打
-
-
-
-
-
 
 
 -----
@@ -26986,21 +17525,13 @@ C子也没有up啊，我觉得是说布姐
 ##### 11984#       发表于 2018-10-20 15:36
 
 
-
-
 不知不觉400页了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
 
 ####  hylq2100  
 ##### 11985#       发表于 2018-10-20 16:29
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41323253&amp;ptid=1712412" target="_blank">noobtizi 发表于 2018-10-20 14:54</a>
@@ -27012,25 +17543,13 @@ C子也没有up啊，我觉得是说布姐
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">抓紧提高一波孔明练度吧
 
 
-
-
-
-
-
 -----
 
 ####  某剑  
 ##### 11986#       发表于 2018-10-20 16:50
 
 
-
-
 一期头几战就掉礼装了，二期打完了都还没掉。。。
-
-
-
-
-
 
 
 -----
@@ -27039,14 +17558,7 @@ C子也没有up啊，我觉得是说布姐
 ##### 11987#       发表于 2018-10-20 16:59
 
 
-
-
 一期没毕业就掉了三张礼装，二期毕业后又刷了7000多金币还是一张没掉，真是完美的RP守恒<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27055,16 +17567,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11988#       发表于 2018-10-20 17:41
 
 
-
-
 老婆非要抽一个十连。。我看到术阶UP就给她抽了。结果全是礼装。。。抽了完不爽我自己把剩下零头的3张呼符抽了。。结果第一个就渡金了。然后翻过来是孔明。。600多天的失明终于结束了。。就是现在没狗粮喂了。。只有等尼禄祭了
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -27073,15 +17578,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11989#       发表于 2018-10-20 17:44
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41324555&amp;ptid=1712412" target="_blank">milizzy 发表于 2018-10-20 17:41</a>
 老婆非要抽一个十连。。我看到术阶UP就给她抽了。结果全是礼装。。。抽了完不爽我自己把剩下零头的3张呼符 ...</blockquote>
 恭喜恭喜，尼禄祭前复明，幸也
-
-
-
-
-
 
 
 -----
@@ -27090,15 +17589,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11990#       发表于 2018-10-20 17:46
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41324555&amp;ptid=1712412" target="_blank">milizzy 发表于 2018-10-20 17:41</a>
 老婆非要抽一个十连。。我看到术阶UP就给她抽了。结果全是礼装。。。抽了完不爽我自己把剩下零头的3张呼符 ...</blockquote>
 晒老婆还晒孔明，引起不适<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27107,16 +17600,9 @@ C子也没有up啊，我觉得是说布姐
 ##### 11991#       发表于 2018-10-20 17:48
 
 
-
-
 楼里600多天还没孔明的咸鱼应该只有我了吧。。怎么能算晒呢<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
-
-
-
-
-
 
 
 -----
@@ -27125,23 +17611,16 @@ C子也没有up啊，我觉得是说布姐
 ##### 11992#       发表于 2018-10-20 17:50
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41324555&amp;ptid=1712412" target="_blank">milizzy 发表于 2018-10-20 17:41</a>
 
 老婆非要抽一个十连。。我看到术阶UP就给她抽了。结果全是礼装。。。抽了完不爽我自己把剩下零头的3张呼符 ...</blockquote>
 不光晒老婆还豹跳如雷<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  露娜玛利亚  
 ##### 11993#       发表于 2018-10-20 17:54
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41324619&amp;ptid=1712412" target="_blank">milizzy 发表于 2018-10-20 17:48</a>
@@ -27153,16 +17632,10 @@ C子也没有up啊，我觉得是说布姐
 楼里600多天还没老婆的大有人在呢，你说这叫不叫晒
 
 
-
-
-
-
-
 -----
 
 ####  南宮凝香  
 ##### 11994#       发表于 2018-10-20 17:56
-
 
 
 <blockquote>milizzy 发表于 2018-10-20 17:41
@@ -27170,16 +17643,10 @@ C子也没有up啊，我觉得是说布姐
 讓人不適， 建議塞了
 
 
-
-
-
-
-
 -----
 
 ####  milizzy  
 ##### 11995#       发表于 2018-10-20 17:56
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41324636&amp;ptid=1712412" target="_blank">麻花疼 发表于 2018-10-20 17:50</a>
@@ -27189,16 +17656,10 @@ C子也没有up啊，我觉得是说布姐
 —— 来自 Xiaomi MIX, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4
 
 
-
-
-
-
-
 -----
 
 ####  Mr.BBWoLf  
 ##### 11996#       发表于 2018-10-20 18:05
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41324697&amp;ptid=1712412" target="_blank">milizzy 发表于 2018-10-20 17:56</a>
@@ -27210,16 +17671,10 @@ C子也没有up啊，我觉得是说布姐
 殴者恒欧，相信的心就是你的魔法<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
 
 
-
-
-
-
-
 -----
 
 ####  johnkamsar  
 ##### 11997#       发表于 2018-10-20 18:12
-
 
 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41324697&amp;ptid=1712412" target="_blank">milizzy 发表于 2018-10-20 17:56:46</a>
@@ -27230,25 +17685,13 @@ C子也没有up啊，我觉得是说布姐
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-
-
-
-
-
 -----
 
 ####  bird-lay  
 ##### 11998#       发表于 2018-10-20 18:23
 
 
-
-
 术池子随便抽了点呼符，果然全是绿方块<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27257,16 +17700,10 @@ C子也没有up啊，我觉得是说布姐
 ##### 11999#       发表于 2018-10-20 18:24
 
 
-
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=41324555&amp;ptid=1712412" target="_blank">milizzy 发表于 2018-10-20 17:41</a>
 
 老婆非要抽一个十连。。我看到术阶UP就给她抽了。结果全是礼装。。。抽了完不爽我自己把剩下零头的3张呼符 ...</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
-
-
-
-
-
 
 
 -----
@@ -27275,11 +17712,6 @@ C子也没有up啊，我觉得是说布姐
 ##### 12000#       发表于 2018-10-20 18:51
 
 
-
-
 海豹又开始花式上岸了。我孔明都已经歪出一个盘子了，术池太毒完全不敢碰。
-
-
-
 
 

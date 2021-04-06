@@ -125,7 +125,7 @@ def FormatStr(namelist, replylist):
     for i in range(len(replylist)):
         output = output + '\n\n-----\n\n' +'#### '+str(names[i]) + '\n##### '+str(times[i]) + '\n'+str(replys[i] ) +'\n'
     output = re.sub(r'\r','\n',output)
-    output = re.sub(r'\n{4,10}', output)
+    output = re.sub(r'\n{4,}','\n\n\n', output)
     return output
 
 if __name__ == '__main__':
