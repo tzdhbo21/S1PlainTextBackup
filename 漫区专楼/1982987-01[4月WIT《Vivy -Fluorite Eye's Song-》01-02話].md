@@ -1,4 +1,5 @@
-> ## **本文件最后更新于2021-04-06 02:05** 
+> ## **本文件最后更新于2021-04-06 11:55** 
+
 
 
 -----
@@ -482,6 +483,8 @@ WIT STUDIO×長月達平×梅原英司
 [https://vivy-portal.com](https://vivy-portal.com)
 <img src="https://p.sda1.dev/1/24424a267b1a73671c16601d627f9a1e/image.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/1/b62cb8bdfe053c9261e1366038542030/image.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -1001,6 +1004,8 @@ Bilibili独播
 够呛能放，等熟肉
 
 
+
+
 -----
 
 ####  aptx8285144  
@@ -1326,6 +1331,8 @@ ai技术既然能 ...</blockquote>
 第二话结尾还有点意思，之前的一系列设定有点老套了
 
 
+
+
 -----
 
 ####  199april  
@@ -1641,6 +1648,8 @@ Vivy Score是整個團隊的共同筆名</blockquote>
 
 
 这片有引进么
+
+
 
 
 -----
@@ -2013,6 +2022,8 @@ ai只有一个使命的可解 ...</blockquote>
 上限（beatless+星之梦）/2，下限就不知道了
 
 
+
+
 -----
 
 ####  格雷殿下  
@@ -2337,6 +2348,8 @@ vivy说“要用歌声给人们带来幸福”，那么被通过了AI命名法�
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只是想听听神前哓的歌的，你这歌姬怎么两集都不唱啊
 
 
+
+
 -----
 
 ####  白头新知  
@@ -2495,4 +2508,199 @@ ai又又又造反啦，结果博士还要ai穿越时间消灭自己
 都能黑進去改寫核心了 怎麼就不能順女主的意思救下空難或曞直接格式化女主ai呢 完全不用演12集 只有回到過去才這麽麻煩吧
 
 
-                                           
+-----
+
+####  [皆神孝介]  
+##### 195#       发表于 2021-4-6 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50844912&amp;ptid=1982987" target="_blank">hummysiren 发表于 2021-4-6 06:58</a>
+
+真别搞跟那男的恋爱线，女主救了你命诶没说让你立马接受ai但那一脸恶心是咋样
+
+
+—— 来自 Xiaomi M2 ...</blockquote>
+都跑去加入特别有活力的社会团体了，肯定是对AI有极深的成见啊
+
+
+-----
+
+####  兔姬姬姬姬姬  
+##### 196#       发表于 2021-4-6 10:59
+
+
+ 本帖最后由 兔姬姬姬姬姬 于 2021-4-6 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50843537&amp;ptid=1982987" target="_blank">肺炎POI 发表于 2021-4-5 23:21</a>
+
+1  福山配得真是好，虽然话痨一点都不让人鬼头明里
+
+2  为了展现女主的月光跳跃，分解画蛇添足而且有逻辑上 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">其他地方感觉还是舔的更多
+
+
+-----
+
+####  肺炎POI  
+##### 197#       发表于 2021-4-6 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50846723&amp;ptid=1982987" target="_blank">兔姬姬姬姬姬 发表于 2021-4-6 10:59</a>
+
+鬼头明里现在都成形容词了吗，泥潭大概是华语第一鬼头明里黑其他地方感觉还是舔的更多 ...</blockquote>
+NGA也是黑得多啊  
+
+
+但凡看过几年动画的人的耳朵都能分辨出鬼头啥水平
+
+
+-----
+
+####  yanghuangu  
+##### 198#       发表于 2021-4-6 13:27
+
+
+跳楼那里分镜有问题吧，明明拉着男议员跑的，结果下个镜头男议员已经自已跳过去了，女主还又跑好几秒才起跳。
+
+
+-----
+
+####  妄想中毒  
+##### 199#       发表于 2021-4-6 13:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结尾这预告真的没问题吗
+
+
+-----
+
+####  acejoe  
+##### 200#       发表于 2021-4-6 15:26
+
+
+ 本帖最后由 acejoe 于 2021-4-6 16:13 编辑 
+
+……以前日式sf背景喜欢日常，或者搞点校园，现在怎么变成偶像歌姬了。
+
+还有，日本人老搞不懂机器人和ai的微妙区别，这sf感看着就特别业余。
+
+
+-----
+
+####  Hyzk  
+##### 201#       发表于 2021-4-6 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50844752&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-4-6 03:56</a>
+
+回到過去買樂透不是老梗嗎,怎麼變成沒有回到過去的証據了</blockquote>
+虽然是个老梗，但也有理论认为即使初始条件一致下重复随机事件还是可能有不同结果，就算回到过去也不能预知乐透，确实是个涉及世界观整体设定的点。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hyzk  
+##### 202#       发表于 2021-4-6 17:16
+
+
+ 本帖最后由 Hyzk 于 2021-4-6 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50843776&amp;ptid=1982987" target="_blank">printer22 发表于 2021-4-5 23:50</a>
+
+我猜也是，女主就是AI女王，因为某些契机黑化决定抹杀全人类。小熊回到过去也不是真的回到过去，而是在虚 ...</blockquote>
+这有个问题，模拟过去改变女主的话势必先要能获取到修改AI的权限，如果你已经能改了为啥不直接把AI改成不能危害人类，还搞这么麻烦的事情<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 203#       发表于 2021-4-6 18:14
+
+
+已经猜到福山熊会和女主有分歧了，没想到这么快，还有富田美优连第二话都没活过，有点刺激
+
+
+-----
+
+####  aptx8285144  
+##### 204#       发表于 2021-4-6 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50837006&amp;ptid=1982987" target="_blank">sephal 发表于 2021-4-5 09:45</a>
+
+可别让女主跟那个恐怖 分子谈恋爱</blockquote>
+考虑到之前宣传栏里出现的几个声优都是小明，阳子，日高配的女性，加上富田美优没活过第二话，百合路线可能性明显更大吧<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 205#       发表于 2021-4-6 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50848425&amp;ptid=1982987" target="_blank">yanghuangu 发表于 2021-4-6 13:27</a>
+
+跳楼那里分镜有问题吧，明明拉着男议员跑的，结果下个镜头男议员已经自已跳过去了，女主还又跑好几秒才起跳 ...</blockquote>
++1，这段瑕疵很大
+
+
+-----
+
+####  青菜子  
+##### 206#       发表于 2021-4-6 18:23
+
+
+泥潭也太划胖了，底特律是垃圾还行，不算多中等意思还是有的，这片明显参考过底特律，无声到有声那里，第二集最后爬地上即视感太强了。胜在节奏不错，不墨迹
+
+
+-----
+
+####  aptx8285144  
+##### 207#       发表于 2021-4-6 18:23
+
+
+希望别变成日常唱歌个几话再进主线任务这种展开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，想看更多打斗画面
+
+
+-----
+
+####  青菜子  
+##### 208#       发表于 2021-4-6 18:24
+
+
+话说最后没必要把手给打断吧，女主出去都救不回来了其实
+
+
+-----
+
+####  JustW  
+##### 209#       发表于 2021-4-6 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50851888&amp;ptid=1982987" target="_blank">青菜子 发表于 2021-4-6 18:24</a>
+
+话说最后没必要把手给打断吧，女主出去都救不回来了其实</blockquote>
+更让人奇怪熊熊能随便开机器断了女主的手，视所有防火墙于无物，自己去做任务不行吗。使命是和女主一起改，所以就非得拖上一个唱歌的？
+
+
+-----
+
+####  兔姬姬姬姬姬  
+##### 210#       发表于 2021-4-6 18:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">种崎敦美现在表界主役怎么全是无口属性的，多来点领座的怪同学女二那样的
+
+
+
+
+-----
+
+####  kg21xhunter  
+##### 211#       发表于 2021-4-6 19:38
+
+
+ 本帖最后由 kg21xhunter 于 2021-4-6 19:41 编辑 
+
+这种题材起码要石头门或者baldrsky的体量才能讲好吧，13话太不够了，剧情目前还行，要是其他导演或许可以巧夺天工，但江崎慎平是绝无可能的，已经有一些镜头演出拉胯了，可惜又一个好团队要被他霍霍了，这B到底有什么后台
+
+
+                                          
