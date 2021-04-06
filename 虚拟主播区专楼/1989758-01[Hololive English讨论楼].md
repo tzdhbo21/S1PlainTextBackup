@@ -1,4 +1,5 @@
-> ## **本文件最后更新于2021-04-02 11:55** 
+> ## **本文件最后更新于2021-04-06 08:45** 
+
 
 
 -----
@@ -761,6 +762,8 @@ https://t.co/8y7VZ2ZC7w https://t.co/QVpfg6z9HP
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
+
+
 -----
 
 ####  蒼島燃灯  
@@ -1232,6 +1235,8 @@ Thank you for your understanding! :}
 鲨鱼第一次EN外单独联动，订阅最多的和订阅最少的联动，感觉挺有意思。
 
 
+
+
 -----
 
 ####  蛋疼三四郎  
@@ -1358,7 +1363,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_qlZc3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_it7DD" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -1801,6 +1806,8 @@ Pre-order the CD in stores now:
 有在国内的楼友具有购买意愿吗
 
 
+
+
 -----
 
 ####  wiig  
@@ -2149,6 +2156,8 @@ Kiara: In Australia(wink) we only have grades 1 to 5.
 
 Gura: ??? Where's the rest of them, where's 3, ...</blockquote>
 AME: 这傻子（脱衣服）
+
+
 
 
 -----
@@ -2651,6 +2660,8 @@ This isn't a beach... This is a bathtub 浴缸 #gawrt
 WAH
 
 
+
+
 -----
 
 ####  wiig  
@@ -3061,6 +3072,8 @@ Calli病休 推到明天了
 <img src="https://p.sda1.dev/1/f26ba790d408dee98fa6c05a8ca520f0/20210315_210122.jpg" referrerpolicy="no-referrer">
 
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
 
 
 -----
@@ -3488,6 +3501,8 @@ PAIN TAKO
 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">mama在rap里教我怎么说fuck
 
 
+
+
 -----
 
 ####  wiig  
@@ -3857,6 +3872,8 @@ Gura说想学Ame开twitch台放音乐，规避YouTube的DMCA</blockquote>
 
 
 火鸡要在德国最大的动漫展里面当guest了
+
+
 
 
 -----
@@ -4338,6 +4355,8 @@ J-chad
 下载附件
 
 2021-3-28 11:11 上传
+
+
 
 
 -----
@@ -4844,6 +4863,8 @@ Kiara写的</blockquote>
 Walfie做的
 
 
+
+
 -----
 
 ####  wiig  
@@ -4998,4 +5019,419 @@ Calli最后两道题没有写完，随便写了个E和TH
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                       
+-----
+
+####  wiig  
+##### 312#       发表于 2021-4-2 23:33
+
+
+<img src="https://img.saraba1st.com/forum/202104/02/233258zp05884jj66476j7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (165.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-2 23:32 上传
+
+
+-----
+
+####  wiig  
+##### 313#       发表于 2021-4-2 23:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/02/234354n84znn7zlnnj8rzi.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (60.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-2 23:43 上传
+
+
+-----
+
+####  smy20011  
+##### 314#         楼主| 发表于 2021-4-3 02:51
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/025105ly511mitz9ag1g6w.png" referrerpolicy="no-referrer">
+
+
+<strong>8h7gqefgpqq61.png</strong> (213.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 02:51 上传
+
+
+真实大小
+
+
+-----
+
+####  wiig  
+##### 315#       发表于 2021-4-3 22:06
+
+
+Kiara和新公寓签约，房东不认yagoo开的薪资证明，要求预制7个月房租<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">可能因为没有固定收入吧
+
+
+-----
+
+####  wiig  
+##### 316#       发表于 2021-4-3 22:19
+
+
+Kiara给Calli生日录了一首情歌，还没想好怎么发布，可能突击直播首映叫Calli看，如果这样搞的话会在直播前五分钟预告
+
+
+-----
+
+####  smy20011  
+##### 317#         楼主| 发表于 2021-4-3 22:42
+
+
+<blockquote>wiig 发表于 2021-4-3 22:06
+Kiara和新公寓签约，房东不认yagoo开的薪资证明，要求预制7个月房租可能因为没有固定收入吧 ...</blockquote>
+以她的sc来说，没什么大问题吧
+
+
+-----
+
+####  wiig  
+##### 318#       发表于 2021-4-3 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50825121&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-3 22:42</a>
+
+以她的sc来说，没什么大问题吧</blockquote>
+不稳定，没有固定收入的部分
+
+
+-----
+
+####  wiig  
+##### 319#       发表于 2021-4-3 23:00
+
+
+<img src="https://img.saraba1st.com/forum/202104/03/230031cc8ichzr2q5rrthb.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (45.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 23:00 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 蒼島燃灯| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 320#       发表于 2021-4-4 00:28
+
+
+ 本帖最后由 wiig 于 2021-4-4 00:48 编辑 
+
+
+The Grim Reaper is a Live-Streamer
+[https://www.youtube.com/watch?v=x0DAH2kIvfo](https://www.youtube.com/watch?v=x0DAH2kIvfo)
+-------------------------------------
+Guh
+[https://www.youtube.com/watch?v=n8Q-smqaUgA](https://www.youtube.com/watch?v=n8Q-smqaUgA)
+-------------------------------------
+いじめっ子Bully
+[https://www.youtube.com/watch?v=b5GONDGSvX8](https://www.youtube.com/watch?v=b5GONDGSvX8)
+-------------------------------------
+Red
+[https://www.youtube.com/watch?v=6Gf55K06NfI](https://www.youtube.com/watch?v=6Gf55K06NfI)
+
+
+-----
+
+####  wiig  
+##### 321#       发表于 2021-4-4 00:56
+
+
+to the best dad in the universe, happy birthday calli :}
+
+<img src="https://img.saraba1st.com/forum/202104/04/005614z3vffsvff3pyotnp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (27.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 00:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/005625qrdmtrc6rr4n67cy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (28.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 00:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/005636j7wahjh3joo7nwo2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (32.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 00:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/005642pcskiletbpukeisf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (26.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 00:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/005648xvafkfbrbnhr7rhq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (21.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 00:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/005654ve831100dd2xo1x1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (26.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 00:56 上传
+
+
+-----
+
+####  wiig  
+##### 322#       发表于 2021-4-4 02:26
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/022633k8ynkd8vzbrrck1z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (142.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 02:26 上传
+
+
+-----
+
+####  wiig  
+##### 323#       发表于 2021-4-4 07:41
+
+
+inaaaaaaaaa<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/8112748ee34528c31b05a4bb995adad5/IMG_CMP_173815057.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 324#       发表于 2021-4-4 15:09
+
+
+Heaven help the ones who fly away
+
+Heaven help the ones who have to stay
+
+And place the blame
+
+<img src="https://img.saraba1st.com/forum/202104/04/150919okc7eeercy7yew9e.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (407.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 15:09 上传
+
+
+-----
+
+####  wiig  
+##### 325#       发表于 2021-4-4 15:40
+
+
+SC说准备当vtuber，问Gura有什么建议
+
+1.做自己 2.敞开心扉 3.让自己慢慢来 4.每周做时间表
+
+下周可能有bio2，METROID，MH联动，RDR2，泰瑞利亚，邦邦
+
+
+-----
+
+####  wiig  
+##### 326#       发表于 2021-4-4 15:55
+
+
+❀!! NEW SONG MV PREMIERE !!❀
+
+♡♡♡♡   "Red"   ♡♡♡♡
+
+
+Join us for the count-down and premiere tonight, if you'd like! :}
+
+
+April 4th
+
+22:30 JST   //  6:30am PST  //  12:30 GMT
+[https://youtu.be/-AuQZrUHjhg](https://youtu.be/-AuQZrUHjhg)
+
+<img src="https://img.saraba1st.com/forum/202104/04/155510mrr1e5kjvhrz1kk3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (338.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 15:55 上传
+
+
+-----
+
+####  wiig  
+##### 327#       发表于 2021-4-4 22:26
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/222611chvb020ifbfhvf0f.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (139.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 22:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/222621py6zg1r4ij68jj1k.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (164.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 22:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/04/222633pmner08pn0pdb370.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (148.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 22:26 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  smy20011  
+##### 328#         楼主| 发表于 2021-4-4 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50834704&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-4 22:26</a></blockquote>
+黑胶！
+
+
+-----
+
+####  wiig  
+##### 329#       发表于 2021-4-5 18:51
+
+
+grapejapan对en运营的采访
+[https://grapee.jp/en/169910](https://grapee.jp/en/169910)
+
+
+-----
+
+####  wiig  
+##### 330#       发表于 2021-4-5 19:15
+
+
+<img src="https://img.saraba1st.com/forum/202104/05/191500flj366dnqj3kzt6n.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (218.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-5 19:15 上传
+
+
+
+
+-----
+
+####  wiig  
+##### 331#       发表于 2021-4-6 13:51
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/135106v9k4k4d4at33c4db.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210406134934.jpg</strong> (175.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 13:51 上传
+
+
+                                      
