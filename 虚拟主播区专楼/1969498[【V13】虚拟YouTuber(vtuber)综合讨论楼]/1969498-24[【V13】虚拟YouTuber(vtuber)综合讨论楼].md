@@ -1,4 +1,5 @@
-> ## **本文件最后更新于2021-04-05 06:48** 
+> ## **本文件最后更新于2021-04-06 12:52** 
+
 
 
 -----
@@ -474,6 +475,8 @@ https://youtu.be/9s4WItswNFY
 狱卒吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  Map-2  
@@ -828,6 +831,8 @@ king看起来对ark是真的没啥热情，叶师傅倒是挺沉迷的。
 
 
 下克上这专辑标题可太彩虹了
+
+
 
 
 -----
@@ -1278,6 +1283,8 @@ Rain Dropsアコースティックライブ『開花宣言』の配信が決定�
 King感觉很享受当哥哥的感觉啊，是不是因为尊比他大的原因平常没有叫妹妹的机会
 
 
+
+
 -----
 
 ####  qq845629713  
@@ -1614,6 +1621,8 @@ lol在日本人气不行啊
 Kanoya Mangekyo的想法 - 知乎
 [https://www.zhihu.com/pin/1358363460556939264](https://www.zhihu.com/pin/1358363460556939264)
 [@Kanoya](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=492029) 有什么独家内幕，版友能否细说？秋梨膏。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -2073,6 +2082,8 @@ syl 阿委这新衣服太怪了 <img src="https://static.saraba1st.com/image/smi
 兔头可爱
 
 
+
+
 -----
 
 ####  purdre  
@@ -2380,6 +2391,8 @@ yysy该发个现照证明一下自己了，p图化妆拉满那种
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50738022&amp;ptid=1969498" target="_blank">集合酱 发表于 2021-3-26 11:34</a>
 露露出音了 这是safe还是危大了</blockquote>
 露露在里面，口了也在里面啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -2746,6 +2759,8 @@ s1的纯度，大/大的下降了。
 新曲质量还是很高啊。
 
 有点想买专辑了。
+
+
 
 
 -----
@@ -3126,6 +3141,8 @@ avex出道，6月23日发专辑
 <img src="https://p.sda1.dev/1/8b5366d77fd58c1a713e74bff3c00425/joi.png" referrerpolicy="no-referrer">
 
 我觉得应该发到这里来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -3544,6 +3561,8 @@ https://youtu.be/TRvdUoct8O0?t=3466
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虹杏最近炎上的点越来越奇怪了，一定是因为越来越正规了！
+
+
 
 
 -----
@@ -4042,6 +4061,8 @@ zsyl 尊妈工商好耶
 尊上个视频1,9k的踩 还能恰到工商呢
 
 
+
+
 -----
 
 ####  真飞鸟i  
@@ -4471,6 +4492,8 @@ kmm你的品位真的没救了……
 神椿又众筹，这次是夏天丰州，别到时候又取消了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  渡鸦骑士  
@@ -4898,6 +4921,8 @@ p桑也太好玩了
 说实话骂太狠了听着有点生气，关了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  winda  
@@ -5293,6 +5318,8 @@ SYL：
 挑染这俩发了歌半夜趁热打铁贴贴，这是要造黑黑的反啊？
 
 
+
+
 -----
 
 ####  freakystar  
@@ -5336,4 +5363,396 @@ syl，这次三枝不破合作曲质量很高，看好挑染组崛起<img src="h
 专辑才发售，那就是巡回live了吧
 
 
-                                    
+-----
+
+####  aptx318  
+##### 34894#       发表于 2021-4-5 15:50
+
+
+不破上个月你虹同接第六，已经是T1了。不过不知道是不是游戏水平问题，他播apex、ark、mh这些黑黑容易出高数字的热游老是变成负效应。
+
+
+-----
+
+####  バーチャルS1er  
+##### 34895#       发表于 2021-4-5 18:37
+
+
+偶尔去哈弟apex那里看一下，一听又在教观众怎么“找”朋友、不会真有人没朋友一起玩apex之类的话，难怪你这么招黑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 34896#       发表于 2021-4-5 18:50
+
+
+可是哈弟就是有本事找一堆顶流给他无偿灌奶阿
+
+
+-----
+
+####  Ketestrait  
+##### 34897#       发表于 2021-4-5 21:08
+
+
+【モーリーオンライン】星川グッズ取るしかない！！【ホロライブ/夏色まつり】
+
+
+【監視】夏色まつりを監視。星川のグッズ全部とってくれるよね？？【星川サラ/にじさんじ】
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|人类迷惑行为观察|
+
+
+查看全部评分
+
+
+-----
+
+####  asdhai  
+##### 34898#       发表于 2021-4-5 21:13
+
+
+贴贴
+
+
+-----
+
+####  FCCHua  
+##### 34899#       发表于 2021-4-5 21:24
+
+
+好贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 双开中
+
+
+-----
+
+####  alcoholic1000  
+##### 34900#       发表于 2021-4-5 21:43
+
+
+现在会限可以看到同接了？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 34901#       发表于 2021-4-5 22:54
+
+
+ 本帖最后由 free 于 2021-4-5 22:55 编辑 
+
+二楼大礼包更新了前两天的V-Carnival，总结下个人的看点
+
+
+第一天起手HH和星街的roki挺好的，龙胆尊挺能动，花剪星街绿仙德龙这都一般看看得了。
+
+委员长虽然唱的拉不过就是无敌可爱！葵皇可以跳过了，猫狗主要是来耍宝的。
+
+最后HH四连发是全场最佳，一定要看，中间还有cos文野环的......
+
+
+第二天起手大葵和烂货圆脸合唱阿姨洗铁路，我觉得大葵这样不好，主要不好在一点没给圆脸留面子，后面独唱的鸟之诗特别好！比MV还好。
+
+狮子神peacesign和红莲华，太子夏露露透明声彩都稳的不行，不过这选曲是不是就挑自己频道里边播放高的唱啊.......
+
+圆脸又唱外星人外星人和那个特别难听的原创曲，不过倒挺能蹦的，全场动的最多的应该就是圆脸，杏其他就没啥必要听的，towa比我想象的能唱点。
+
+理芽食虫植物（确信是每个人都唱自己播放最高的了），然后和谱皇合唱命嫌，谱皇唱了两首原创，最后来个全员合唱君の知らない物语结束。
+
+
+总结一下就是你圈这种节目能不能不要找杏了啊，唱又不能唱，不会唱的像委员长上来耍宝聊天也行啊，净整老逼糊坦这种货色上来干啥？
+
+
+鸟之诗
+[https://www.bilibili.com/video/BV1R541177wo?p=43](https://www.bilibili.com/video/BV1R541177wo?p=43)
+
+
+-----
+
+####  渡鸦骑士  
+##### 34902#       发表于 2021-4-5 23:10
+
+
+有点想怼免费……，克制，我是文明人
+
+你圈这种拉电视台圈外人做节目真的是，拿数据说话，所以每个人都只好唱自己播放量最高的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+中间还要硬拉cos来做mc真是完全搞不懂，话说电视台那边好像一直都是委员长做mc？
+
+
+-----
+
+####  铁血holo箱推  
+##### 34903#       发表于 2021-4-6 00:52
+
+
+楼友们知道哪个企划是因为疫情停播了一年了吗
+
+
+-----
+
+####  winda  
+##### 34904#       发表于 2021-4-6 01:38
+
+
+note泄露完后是trello么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次看能开出什么奖来
+
+
+-----
+
+####  free  
+##### 34905#       发表于 2021-4-6 02:50
+
+
+老爱晚上7点重大告知
+
+
+-----
+
+####  渡鸦骑士  
+##### 34906#       发表于 2021-4-6 08:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50844227&amp;ptid=1969498" target="_blank">铁血holo箱推 发表于 2021-4-6 00:52</a>
+楼友们知道哪个企划是因为疫情停播了一年了吗</blockquote>
+我第一反应……早安hololive？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 34907#       发表于 2021-4-6 10:20
+
+
+看了下新闻trello这事儿波及挺大的，cover那点料根本p都不算，只能说日本it best it了
+
+
+-----
+
+####  IDIDIDID  
+##### 34908#       发表于 2021-4-6 11:15
+
+
+听说重生被DDOS了，加大力度，apex给👴死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 34909#       发表于 2021-4-6 11:36
+
+
+md无意中看到LOL解说间隙都有人在那里推荐apex
+我就知道这游戏完了
+真不是厉外拉同，fps游戏国内热度一上来就完蛋了
+虽然apex鬼子开挂的也不少就是了
+
+
+-----
+
+####  昆西昆希昆  
+##### 34910#       发表于 2021-4-6 11:58
+
+
+昨天打了局apex，所有人全程子弹时间慢动作。给我气笑了。重生真有你的奥
+
+
+-----
+
+####  バーチャルS1er  
+##### 34911#       发表于 2021-4-6 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50847198&amp;ptid=1969498" target="_blank">poipanchao 发表于 2021-4-6 11:36</a>
+
+md无意中看到LOL解说间隙都有人在那里推荐apex
+
+我就知道这游戏完了
+
+真不是厉外拉同，fps游戏国内热度一上来 ...</blockquote>
+别怕，APEX开服的时候就已经被国人玩坏过一次了，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 34912#       发表于 2021-4-6 12:23
+
+
+好事，多来点挂哥倒逼管人少播apex<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  兔耳僵尸  
+##### 34913#       发表于 2021-4-6 12:41
+
+
+想起来还用过trello，不是有非公开选项么？
+
+
+-----
+
+####  free  
+##### 34914#       发表于 2021-4-6 14:49
+
+
+谱皇的live众筹满了5000万，又可以免费看了
+
+[https://camp-fire.jp/projects/view/409416](https://camp-fire.jp/projects/view/409416)
+
+
+-----
+
+####  黑之和  
+##### 34915#       发表于 2021-4-6 16:36
+
+
+葛，回归本质
+<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 34916#       发表于 2021-4-6 18:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">天翔院小姐油管频道没了啊，这很...自然?
+
+
+-----
+
+####  Baroq  
+##### 34917#       发表于 2021-4-6 19:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">小熊猫和狱卒终于ow了
+
+
+-----
+
+####  Map-2  
+##### 34918#       发表于 2021-4-6 19:27
+
+
+管人略相关
+<[img src="https://i.loli.net/2021/04/06/jP9Jlwz2d4UbgGM.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  喜闻乐见  
+##### 34919#       发表于 2021-4-6 19:33
+
+
+ 本帖最后由 喜闻乐见 于 2021-4-6 19:51 编辑 
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gpa964we3hj20i70ken6k.jpg" referrerpolicy="no-referrer">
+
+
+森仓终于又动了  老爱新裤子+1
+
+
+顺便管人微相关
+
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gpa9nu2apgj20gx0i6jzj.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gpa9oeb4l2j20w60nbqko.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 34920#       发表于 2021-4-6 19:37
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-6 19:39 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/193721dda5408w3ap5nma5.png" referrerpolicy="no-referrer">
+
+
+<strong>d30865-257-547146-0.png</strong> (54.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 19:37 上传
+
+
+田角这是减肥大成功了？
+
+<img src="https://img.saraba1st.com/forum/202104/06/193903eolcmyjcssfpsno2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EyQlYtiVIAEruPb.jpg</strong> (120.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 19:39 上传
+
+
+
+
+-----
+
+####  黑之和  
+##### 34921#       发表于 2021-4-6 20:04
+
+
+这是田角？！
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 34922#       发表于 2021-4-6 20:28
+
+
+推上好像在搞一个 #Vtuberの三面図が知りたい 的活动，这个tag下全是发自己人设三视图的
+
+
+-----
+
+####  OldGlory  
+##### 34923#       发表于 2021-4-6 20:32
+
+
+田角好帅哦
+
+
+-----
+
+####  rzrbtk  
+##### 34924#       发表于 2021-4-6 20:44
+
+
+感觉dustcell要出新砖（或新live）了，真的还有人买账吗
+
+
+-----
+
+####  NBXX  
+##### 34925#       发表于 2021-4-6 20:49
+
+
+[https://www.youtube.com/watch?v=TAz2tkVPj7w](https://www.youtube.com/watch?v=TAz2tkVPj7w)
+
+皆様への感謝を込めて 〜 #シロの日​ 2021〜
+<img src="https://p.sda1.dev/1/4af0c76923db1aa2565f05043e5f2c3e/DP_F_XS78D~NXSTCKIVT_J4.png" referrerpolicy="no-referrer">
+
+
+                                   
