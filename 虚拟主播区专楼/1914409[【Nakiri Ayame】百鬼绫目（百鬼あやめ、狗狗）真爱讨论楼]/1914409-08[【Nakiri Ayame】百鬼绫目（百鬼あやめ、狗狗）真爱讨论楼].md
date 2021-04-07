@@ -1,4 +1,5 @@
-> ## **本文件最后更新于2021-04-03 14:35** 
+> ## **本文件最后更新于2021-04-07 09:41** 
+
 
 
 -----
@@ -375,6 +376,8 @@
 绫总无法PUA的阿姨：狐
 
 
+
+
 -----
 
 ####  stedckk  
@@ -717,6 +720,8 @@ Q群和这里，没了
 拉米现在是不是阿姨真的已经确定了吗（
 
 
+
+
 -----
 
 ####  星尘的杨桃精  
@@ -1010,6 +1015,8 @@ ayasuba又真了?<img src="https://static.saraba1st.com/image/smiley/face2017/06
 没有没有 被排挤什么的绝对是没有的<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
 
 
 -----
@@ -1470,6 +1477,8 @@ ayasuba又真了?<img src="https://static.saraba1st.com/image/smiley/face2017/06
 上次aki凸待就你一个撞上去
 
 
+
+
 -----
 
 ####  绿色子龙  
@@ -1764,6 +1773,8 @@ ayasuba..<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" r
 
 
 恩人好萝卜来了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -2074,6 +2085,8 @@ md是木口官方号30分准时发的推 绫人输给了大家庭粉<img src="ht
 算了，不抱幻想了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
 
 
 -----
@@ -2387,6 +2400,8 @@ https://www.youtube.com/watch?v=O_tsztl9eBg
 <img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">御姐音太棒了
 
 
+
+
 -----
 
 ####  一仙  
@@ -2694,6 +2709,8 @@ https://www.youtube.com/watch?v=O_tsztl9eBg
 
 
 PS：最近我也有点开始希望自己是那几个甜蜜双排的人了。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -3075,6 +3092,8 @@ https://youtu.be/B46Ea69aCXU
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">请问这是直播星际直播间吗
 
 
+
+
 -----
 
 ####  星尘的杨桃精  
@@ -3440,6 +3459,8 @@ https://youtu.be/B46Ea69aCXU
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么星姐把把狼的
 
 
+
+
 -----
 
 ####  Fami水  
@@ -3748,6 +3769,8 @@ P了个GIF<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" 
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直播哪有跟车队开黑有意思。你说学业？学业是什么？
+
+
 
 
 -----
@@ -4243,6 +4266,8 @@ syl 中午11点播
 查看全部评分
 
 
+
+
 -----
 
 ####  因为你不会  
@@ -4538,6 +4563,8 @@ mio的占卜分析已經品鑒過了，準不準確留待未來確認，起碼�
 
 
 你可赶紧练apex吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -4858,6 +4885,8 @@ syl 今天又点开新年歌会听了好多遍这首 [貴方解剖純愛歌~死�
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">求生之路吗
+
+
 
 
 -----
@@ -5196,6 +5225,8 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 —— 来自 OnePlus ONEPLUS A5010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
+
+
 -----
 
 ####  寺川愛美  
@@ -5491,6 +5522,8 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差点一打三成功，应该一开始别跑追着打的。
 
 
+
+
 -----
 
 ####  Fami水  
@@ -5769,6 +5802,8 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总这波剧本梦回去年，希望结局比去年那次好一点吧
+
+
 
 
 -----
@@ -6066,6 +6101,8 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">打了这么久，意识 枪法毫无长进也是独一份了
+
+
 
 
 -----
@@ -6386,6 +6423,8 @@ syl，黄泉最近在瓦洛兰特和Among us，也没直播练习Apex
 傻紫这又白给了。。。
 
 
+
+
 -----
 
 ####  stedckk  
@@ -6681,6 +6720,8 @@ GON没有垫底风险了
 开幕大脸跟谁学的
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
 
 
 -----
@@ -6984,6 +7025,8 @@ FAMS和OKBR怎么还有第二次联动的
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好一个回马枪
+
+
 
 
 -----
@@ -7290,6 +7333,8 @@ https://mobile.twitter.com/bxobalice/status/1341388781958561792
 队友打架你逛街 还正好能碰到队友都给打残了排队枪毙收割
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
 
 
 -----
@@ -7609,6 +7654,8 @@ https://mobile.twitter.com/bxobalice/status/1341388781958561792
 已经扛不住了（
 
 
+
+
 -----
 
 ####  stmule  
@@ -7899,7 +7946,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_XpPR2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_P0b43" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 mv.gif
@@ -7994,6 +8041,8 @@ mv.gif
 姐你还掺和运营的事去了 上心过头了 木口不值得<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
 
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
 
 
 -----
@@ -8320,6 +8369,8 @@ BV1CN411X7Bw
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你b站ID有点东西的啊
 
 
+
+
 -----
 
 ####  stedckk  
@@ -8621,6 +8672,8 @@ BV1CN411X7Bw
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2月收了那么多钱，又可以摸一段日子了
 
 
+
+
 -----
 
 ####  星尘的杨桃精  
@@ -8905,6 +8958,8 @@ syl每天发一条扯淡推意思一下还活着不觉得累吗<img src="https:/
 
 
 狐主持啊 估计狐姨拉的人
+
+
 
 
 -----
@@ -9216,6 +9271,8 @@ apex yyds
 活跃的不敢相信是本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  Fami水  
@@ -9519,6 +9576,8 @@ apex yyds
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真的是不会苟
 
 
+
+
 -----
 
 ####  水城雪风_Z  
@@ -9819,6 +9878,8 @@ apex yyds
 木口的披露能有啥好玩意吗
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
 
 
 -----
@@ -10141,6 +10202,8 @@ b站怎么这么多直接搬推特剪辑再起个和内容完全没关系的标�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别告诉我是在阿夸那里
 
 
+
+
 -----
 
 ####  FCCHua  
@@ -10438,6 +10501,8 @@ _(┐「﹃ﾟ｡)__<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
 几……天？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -10770,6 +10835,8 @@ valorant这游戏是凉透了吗<img src="https://static.saraba1st.com/image/smi
 就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  FCCHua  
@@ -11074,6 +11141,8 @@ valorant这游戏是凉透了吗<img src="https://static.saraba1st.com/image/smi
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行
+
+
 
 
 -----
@@ -11413,6 +11482,8 @@ syl这读sc闲聊是真的鸡肋
 <img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">又在卖啥关子啊？
 
 
+
+
 -----
 
 ####  stedckk  
@@ -11750,6 +11821,8 @@ syl这读sc闲聊是真的鸡肋
 你们不想赢吗？
 
 
+
+
 -----
 
 ####  soraku  
@@ -12037,6 +12110,8 @@ yhm愚人节整活怎么喜欢拿野男人说事啊 蚌埠住了
 大概是不想让观众见识她审美吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  Fami水  
@@ -12051,4 +12126,293 @@ yhm愚人节整活怎么喜欢拿野男人说事啊 蚌埠住了
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧 但是我相信绫总 村任务总不能三猫吧
 
 
-            
+-----
+
+####  水城雪风_Z  
+##### 11612#       发表于 2021-4-3 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不太看好她的水果刀，毕竟这作太刀要特别熟悉怪才能正常居合登龙的玩，不然就是刮痧
+
+
+-----
+
+####  cctvyt1  
+##### 11613#       发表于 2021-4-3 23:12
+
+
+ 本帖最后由 cctvyt1 于 2021-4-3 23:14 编辑 
+
+连开刃都忘了，真的要受苦了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只会XA瞎按<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  天悬星河  
+##### 11614#       发表于 2021-4-3 23:13
+
+
+假装思考，选择太刀
+
+
+-----
+
+####  stedckk  
+##### 11615#       发表于 2021-4-3 23:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么在砍柱子
+
+
+-----
+
+####  Fami水  
+##### 11616#       发表于 2021-4-3 23:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我都打完2把 你怎么还在砍青蛙
+
+
+-----
+
+####  cctvyt1  
+##### 11617#       发表于 2021-4-3 23:51
+
+
+玩了一小时只记得滚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  水城雪风_Z  
+##### 11618#       发表于 2021-4-3 23:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看麻了
+
+
+-----
+
+####  Fami水  
+##### 11619#       发表于 2021-4-3 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">出门去丢人啊 绫总 这样的狩猎是不快乐的
+
+
+-----
+
+####  水城雪风_Z  
+##### 11620#       发表于 2021-4-3 23:59
+
+
+玩了一个多小时没见到镰鼬龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 11621#       发表于 2021-4-4 00:01
+
+
+绫总现在跑还来得及
+
+
+-----
+
+####  乌鸦绅士  
+##### 11622#       发表于 2021-4-4 00:14
+
+
+ 本帖最后由 乌鸦绅士 于 2021-4-4 01:11 编辑 
+
+这是要把所有任务包括采集一个个做下去吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+一星任务清完下播。 本质杂谈直播 
+
+
+-----
+
+####  水城雪风_Z  
+##### 11623#       发表于 2021-4-4 00:41
+
+
+再见，镰鼬龙
+
+一个月后
+
+绫总vs雷神龙
+
+
+-----
+
+####  cctvyt1  
+##### 11624#       发表于 2021-4-4 00:43
+
+
+猫狗的伤害是不是比阿绫打的还多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  水城雪风_Z  
+##### 11625#       发表于 2021-4-4 00:45
+
+
+这作狗挺猛的，伤害挺高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11626#       发表于 2021-4-4 00:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">一个试玩版的内容居然能水一个直播
+
+
+-----
+
+####  cctvyt1  
+##### 11627#       发表于 2021-4-5 19:45
+
+
+9点歌回
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">又被她水到80万订阅收钱
+
+
+-----
+
+####  stedckk  
+##### 11628#       发表于 2021-4-5 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">又被她水到了
+
+
+-----
+
+####  水城雪风_Z  
+##### 11629#       发表于 2021-4-5 21:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开播前睡着了，可以的
+
+
+-----
+
+####  Nitro901  
+##### 11630#       发表于 2021-4-5 22:31
+
+
+50分钟两首，本质杂谈，这是在保存体力<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Fami水  
+##### 11631#       发表于 2021-4-5 22:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这算杂谈插播广告吧
+
+
+-----
+
+####  stedckk  
+##### 11632#       发表于 2021-4-5 22:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">突然卖萌
+
+
+-----
+
+####  cctvyt1  
+##### 11633#       发表于 2021-4-5 23:27
+
+
+会不会唱完10首还没过80万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11634#       发表于 2021-4-5 23:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那就杂谈2小时
+
+
+-----
+
+####  因为你不会  
+##### 11635#       发表于 2021-4-6 10:23
+
+
+80万了该奖励自己放假了
+
+
+-----
+
+####  昆西昆希昆  
+##### 11636#       发表于 2021-4-6 11:56
+
+
+80万奖励自己摸一周不过分吧
+
+
+-----
+
+####  因为你不会  
+##### 11637#       发表于 2021-4-6 15:30
+
+
+ 本帖最后由 因为你不会 于 2021-4-6 15:31 编辑 
+
+80W了，睡觉都有底气得一批，这不打呼噜都对不起自己<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11638#       发表于 2021-4-6 18:00
+
+
+这不开个80w纪念会再收割下百鬼众么
+
+
+-----
+
+####  stedckk  
+##### 11639#       发表于 2021-4-6 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">BV1tp4y187gZ
+
+
+-----
+
+####  一仙  
+##### 11640#       发表于 2021-4-6 20:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">可爱 昨晚末尾竟然还有
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11641#       发表于 2021-4-7 17:29
+
+
+不知不觉一年多了，往前翻翻我们一年前说的东西……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+           
