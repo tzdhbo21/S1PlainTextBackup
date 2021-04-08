@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-07 06:47** 
+> ## **本文件最后更新于2021-04-08 03:47** 
 
 
 
@@ -8478,4 +8478,331 @@ No.1那首下面怎么还有mk2呢，这不没死么<img src="https://static.sar
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">爱动是因为太坦，坐着肉褶子里冒汗不舒服，坦克民赢了
 
 
-                      
+-----
+
+####  草牛  
+##### 12812#       发表于 2021-4-7 15:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/256.png" referrerpolicy="no-referrer">坦又赢！
+
+
+-----
+
+####  physi1202  
+##### 12813#       发表于 2021-4-7 15:36
+
+
+坦总赢
+
+
+-----
+
+####  雪风utopia  
+##### 12814#       发表于 2021-4-7 15:49
+
+
+无论在何时，坦总赢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 12815#       发表于 2021-4-7 17:17
+
+
+米其林民是吧😅
+
+
+-----
+
+####  专业划水人员  
+##### 12816#       发表于 2021-4-7 17:29
+
+
+别的米其林有胸  我们的米其林没有
+
+
+-----
+
+####  呓亘  
+##### 12817#       发表于 2021-4-7 17:49
+
+
+这人不会又睡过去了吧……
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Mikumiku831  
+##### 12818#       发表于 2021-4-7 17:52
+
+
+坦必有胸
+
+但是麻没有
+
+所以坦克民醒醒
+
+
+-----
+
+####  pei23333  
+##### 12819#       发表于 2021-4-7 21:04
+
+
+两天了，不会是新鲜劲过了去陪男友了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  rosevalley46  
+##### 12820#       发表于 2021-4-7 21:10
+
+
+蚌埠住了,真的在减少直播频率了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 12821#       发表于 2021-4-7 21:11
+
+
+明明起的那么早，为什么一点消息都没有<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LIPP  
+##### 12822#       发表于 2021-4-7 21:12
+
+
+麻 麻 寂しい<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 12823#       发表于 2021-4-7 21:17
+
+
+怕不是在处置旧皮呢 旧咩皮要变成野男人的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 12824#       发表于 2021-4-7 21:19
+
+
+破楼😭😭😭
+
+
+-----
+
+####  A2014720  
+##### 12825#       发表于 2021-4-7 22:11
+
+
+是不是你们谁去写小作文了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  希洛克吃西瓜冰  
+##### 12826#       发表于 2021-4-7 22:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 12827#       发表于 2021-4-7 22:27
+
+
+要是我会日语我早被她拉黑了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 12828#       发表于 2021-4-7 23:03
+
+
+怎么还不动，莫非真成gbr第二了<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  makourisu-2  
+##### 12829#       发表于 2021-4-7 23:16
+
+
+根据我看过的前世视频，最早的一个是15年11月的，不知道还有没有更早。<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pei23333  
+##### 12830#       发表于 2021-4-7 23:23
+
+
+原来换皮是想让我们吃顿好的上路<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  rosevalley46  
+##### 12831#       发表于 2021-4-8 00:12
+
+
+然而也没吃啥好的,只有好帽子<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 12832#       发表于 2021-4-8 00:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wwwwwssjwb  
+##### 12833#       发表于 2021-4-8 01:50
+
+
+还有十年之约呢
+
+
+-----
+
+####  Dualist彩  
+##### 12834#       发表于 2021-4-8 06:32
+
+
+希望小麻能找个一米四二的女人百合，小小麻的话领养一个就好了，至少。。。这样不会便宜了来路不明的野男人
+
+
+-----
+
+####  草牛  
+##### 12835#       发表于 2021-4-8 07:44
+
+
+什么断子绝孙
+
+
+-----
+
+####  黒長直姫  
+##### 12836#       发表于 2021-4-8 07:44
+
+
+麻麻，我的麻麻
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  A2014720  
+##### 12837#       发表于 2021-4-8 09:29
+
+
+看别人动态才知道这bls的bd还没送啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">……
+
+
+-----
+
+####  Joffre✔  
+##### 12838#       发表于 2021-4-8 09:32
+
+
+只能当没bd这事呗 大概率和扫楼视频一样无了 不会现在还有信批站的吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 12839#       发表于 2021-4-8 11:16
+
+
+扫楼视频有说过会出吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 12840#       发表于 2021-4-8 11:17
+
+
+ 本帖最后由 雪风utopia 于 2021-4-8 11:25 编辑 
+
+出不了扫楼视频能不能出个扫墓视频，反正都是一个地方<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  pei23333  
+##### 12841#       发表于 2021-4-8 11:25
+
+
+视频不重要，别陪男友了快播啊<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  路人庚  
+##### 12842#       发表于 2021-4-8 11:36
+
+
+早上她好像玩了osu和麻将来着（
+
+
+-----
+
+####  时雨rain  
+##### 12843#       发表于 2021-4-8 11:37
+
+
+麻麻可以一边陪男朋友一边直播吗😇
+
+
+-----
+
+####  雪风utopia  
+##### 12844#       发表于 2021-4-8 11:38
+
+
+能不能来一次中O配信<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cla0221  
+##### 12845#       发表于 2021-4-8 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50869910&amp;ptid=1973472" target="_blank">雪风utopia 发表于 2021-4-8 11:38</a>
+
+能不能来一次中O配信</blockquote>
+对不起不能，她不让😇
+
+
+                     
