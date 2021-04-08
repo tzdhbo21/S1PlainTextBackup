@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-06 14:37** 
+> ## **本文件最后更新于2021-04-08 04:50** 
 
 
 
@@ -7040,11 +7040,11 @@ jinzhang</blockquote>
 还比如，九尾，木叶的人有多讨厌九尾这不用我多说吧。按照火影的叙述，宇智波是因为被怀疑控制九尾而被村子排挤。那么问题来了，为什么作为宇智波一族的佐助没有被像鸣人那样对待呢？按照木叶村民的一贯作风，他们一定会各种议论，佐助的状况应该不比鸣人好哪去，但是有吗？
 
 而且作为木叶消息最灵通的人，在鼬洗白前二十来话，自来也都表示一直以来所有人的观点都是九尾是天灾，妙木山的**蟆也这么认为。也就是说，宇智波和九尾之乱没关系，高层也没把宇智波和九尾联系起来，更不要说因为这个排挤宇智波，我们看漫画（370话）
-<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_j8WbY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_DFcCQ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_T1GJ4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_sgG2K" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_M0Su0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
+<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_p4N5f" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_vzFEN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_X4X11" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_m30n7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_cM48V" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
 
 也就是说，这个时候，宇智波被灭，还是因为鼬是个变态神经病杀了全家，不是什么排挤猜忌，就是因为他个人而已。
 
@@ -7057,12 +7057,12 @@ jinzhang</blockquote>
 虽然宇智波开头就被岸本写死了，但是我们得说，宇智波是一个超级大的家族，非常大。
 
 首先，人家有自己的武器药品供应商，极有可能是只服务于宇智波的，因为木叶显然不知道，不然他们在搜索的时候怎么也得来这看看吧，可是他们只是带着忍犬到处找，也就是说木叶对此是不知道的。
-<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_U4TNg" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_qSBY1" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_JGcnK" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
-<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_p1OmT" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_tIyQr" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_OIQSk" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
+<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_jOj11" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_Leea3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_Cxvzx" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
+<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_P9YZL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_LYNH2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_cOy9Z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
 
 首先他们得有钱吧，其次他们得有时间吧，最后他们得有人吧，你看他们还有闲心在椅子后面画画呢。
 
@@ -8601,11 +8601,7 @@ tenet
 ####  魏柔  
 ##### 54688#       发表于 2021-3-15 15:15
 
-
-赶紧结束和之国这又臭又长的副本吧
-
-
-御田父子恶心人程度快赶上红鸟了
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8874,8 +8870,7 @@ tenet
 ####  魏柔  
 ##### 54712#       发表于 2021-3-24 21:15
 
-
-尾田真的江郎才尽了
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8901,14 +8896,7 @@ tenet
 ####  魏柔  
 ##### 54715#       发表于 2021-3-24 22:16
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50723952&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-3-24 21:31</a>
-
-尾田从鱼人岛开始就不行了吧，然后鸟笼雷鸣八卦之类又把下限拉低了，不过偶尔也会有好看的时候 ...</blockquote>
-顶上战争后能看的画面就只有路飞给卡二帽子遮嘴这一幕了
-
-
-其他都是什么垃圾
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -9316,11 +9304,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ####  魏柔  
 ##### 54754#       发表于 2021-3-26 13:23
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50735122&amp;ptid=98922" target="_blank">gg326 发表于 2021-3-26 00:12</a>
-
-wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样躺着，大蛇头都没了就让他死干净不好吗，现在三灾 ...</blockquote>
-别问，问就是乡土爱，我大和男儿个个都是响当当的英雄豪杰
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -9551,14 +9535,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ####  魏柔  
 ##### 54778#       发表于 2021-4-1 14:09
 
-
-尾田要是画完顶上战争就死了，我愿称海贼为史上最佳超长篇漫画。
-
-
-现在画的都是什么吉尔垃圾。
-
-
-和之国篇完全把尾田攒了几十年的名声都毁了
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -9680,11 +9657,7 @@ wt想刻画配角我懂，但你九侠已经打过凯多了，能不能就那样
 ####  魏柔  
 ##### 54790#       发表于 2021-4-2 10:17
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50806355&amp;ptid=98922" target="_blank">四级过了 发表于 2021-4-2 01:51</a>
-
-不觉得顶上好，不如说从顶上开始就已经走下坡路了，如果到七水之都结束，称最佳之一没啥问题 ...</blockquote>
-七水之都的是承接空岛篇浪漫主义的结束，顶上战争以为是开启了现实主义的新道路，没想到后面已经走到了尽头
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -9734,11 +9707,7 @@ WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国
 ####  魏柔  
 ##### 54795#       发表于 2021-4-2 15:10
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50811070&amp;ptid=98922" target="_blank">qzfjnv 发表于 2021-4-2 14:52</a>
-
-WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国好像只会这么笑了，之前从来没见过，看起来就一股 ...</blockquote>
-讲道理的话，这是罗杰的笑容一脉相承的
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -10005,4 +9974,249 @@ mhrise应该和op联动的，一刀不止999
 这么看库里离顶级强者距离有点大啊，武装色霸王色都没到顶
 
 
-                      
+-----
+
+####  天使的日曜日  
+##### 54821#       发表于 2021-4-6 22:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50854344&amp;ptid=98922" target="_blank">灰狼 发表于 2021-4-6 22:35</a>
+
+难道有人认为索隆不是副船长么° −°</blockquote>
+那毕竟其他社区肯定会跟你抬杠尾田没有画出来、草帽团没有副船长这个职位、没有实锤都是吹
+
+就像这话情报出来前敢猜测索隆有霸王色或者1000之前猜测和之国打凯多的都是索吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  巴尔干炮  
+##### 54822#       发表于 2021-4-6 23:01
+
+
+虽然尾田说不怎么重视逻辑性，但这太扯了吧， 无档路飞被四皇大招直击只是暂时昏过去？四皇大招=阿普爆炸音？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+另外现在还是第三幕，路飞真的留下单挑凯多的话，要么必败要么外力介入不了了之。
+
+
+-----
+
+####  rt7539515  
+##### 54823#       发表于 2021-4-6 23:24
+
+
+凯老师一会不见这么拉了呀<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  武男  
+##### 54824#       发表于 2021-4-6 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50854521&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-4-6 22:55</a>
+
+那毕竟其他社区肯定会跟你抬杠尾田没有画出来、草帽团没有副船长这个职位、没有实锤都是吹
+
+就像这话情报 ...</blockquote>
+也就是厨子粉还在嘴硬吧
+
+
+-----
+
+####  athena_1982  
+##### 54825#       发表于 2021-4-6 23:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50853815&amp;ptid=98922" target="_blank">nuoer 发表于 2021-4-6 21:38</a>
+
+自从开始打凯多以后，索吹每周都过年
+
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+这何止过年了，简直狂欢<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  战栗的小六  
+##### 54826#       发表于 2021-4-7 11:39
+
+
+凯多这大招对路飞的伤害跟阿普差不多啊。。。凯多团认真干活的果然只有阿普和杰克俩人吧。。。。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  如封似闭  
+##### 54827#       发表于 2021-4-7 14:31
+
+
+草帽团三大战力  厨子这两年到底经历了什么   现在也就当做个快递工具人干干活吧  逼格弗兰奇都排他前头去了
+
+
+-----
+
+####  tyauto  
+##### 54828#       发表于 2021-4-7 15:17
+
+
+海贼又版本更新了？霸王色出进阶技能？
+
+
+-----
+
+####  绝赞販売中  
+##### 54829#       发表于 2021-4-7 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50854073&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-4-6 22:08</a>
+索吹都不敢这么吹，现在有了霸王色就差个副船长的名号就是完全的雷利待遇了
+
+以前索隆每次涨赏金都比路飞上 ...</blockquote>
+基德愿意下去正常，他破防不了凯多，全场就路飞能破防，索隆得靠阎魔加成，不如先把大妈击破.虽然都是四皇但凯多能飞靠自己有大规模法伤，大妈弱点相比多一点
+
+
+-----
+
+####  少年包工头  
+##### 54830#       发表于 2021-4-7 21:27
+
+
+情报更新了
+有病吗？就这么个霸王色连情报都出现争议了，霸王色很牛吗？青椒都有，索隆不配吗？
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Yeaha123  
+##### 54831#       发表于 2021-4-7 22:16
+
+
+没霸王色的打爆有霸王色的，那不是更时髦
+
+
+-----
+
+####  灰狼  
+##### 54832#       发表于 2021-4-7 22:18
+
+
+霸王色有新设定以后红发终于不是只有面子了
+
+
+-----
+
+####  fmchar  
+##### 54833#       发表于 2021-4-7 23:13
+
+
+索隆新招：九刀流-阿修罗拔刀-亡者戏....果然智商都用在起名上了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yario  
+##### 54834#       发表于 2021-4-7 23:17
+
+
+从流樱霸气外放到霸王色缠绕，路飞跳级有点快呀。他爷爷是不是也是这种打法呢？
+
+
+-----
+
+####  届得到  
+##### 54835#       发表于 2021-4-7 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50860319&amp;ptid=98922" target="_blank">如封似闭 发表于 2021-4-7 14:31</a>
+
+草帽团三大战力  厨子这两年到底经历了什么   现在也就当做个快递工具人干干活吧  逼格弗兰奇都排他前头去 ...</blockquote>
+讲个笑话，山治年
+
+
+-----
+
+####  灰狼  
+##### 54836#       发表于 2021-4-8 01:07
+
+
+罗：让它们去吧。如果有人必须因为我的计划而死去，那我宁愿我的计划失败。
+
+
+果然罗你还是个好人啊( ° v°)
+
+
+-----
+
+####  晴岚  
+##### 54837#       发表于 2021-4-8 02:24
+
+
+霸气补丁打越多,雷利这个师傅就显得越不行……前面看见未来好歹有回忆说雷利提过……这霸王色能缠绕是完全没给路飞讲过啊……来自: iPhone客户端
+
+
+-----
+
+####  灯塔下  
+##### 54838#       发表于 2021-4-8 03:42
+
+
+隔壁巨人完结，国内目前还在持续连载的长篇漫画也就海贼和柯南了，柯南结局应该不难，就看海贼这边如何结局了
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  灰狼  
+##### 54839#       发表于 2021-4-8 06:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50867056&amp;ptid=98922" target="_blank">晴岚 发表于 2021-4-8 02:24</a>
+
+霸气补丁打越多,雷利这个师傅就显得越不行……前面看见未来好歹有回忆说雷利提过……这霸王色能缠绕是完全 ...</blockquote>
+毕竟当初说得就真的只是”教你三色基础“
+
+
+-----
+
+####  晴岚  
+##### 54840#       发表于 2021-4-8 06:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50867427&amp;ptid=98922" target="_blank"> 灰狼 发表于 2021-4-8 06:03</a> 引用:晴岚 发表于 2021-4-8 02:24 霸气补丁打越多,雷利这个师傅就显得越不行……前面看见未来好歹有回忆说雷利提过……这霸王色能缠绕是完全 ... 毕竟当初说得就真的只是”教你三色基础“ </blockquote>
+就不能提一下霸王色也可以缠绕么？就见闻色单独跟路飞讲了有人人可以看到未来……其他两个什么都没讲……来自: iPhone客户端
+
+
+
+
+-----
+
+####  yario  
+##### 54841#       发表于 2021-4-8 08:04
+
+
+<blockquote>晴岚 发表于 2021-4-8 02:24
+霸气补丁打越多,雷利这个师傅就显得越不行……前面看见未来好歹有回忆说雷利提过……这霸王色能缠绕是完全 ...</blockquote>
+这不就是说明雷利和罗杰的差距吗？
+
+
+-----
+
+####  Freemasons  
+##### 54842#       发表于 2021-4-8 12:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50867470&amp;ptid=98922" target="_blank">晴岚 发表于 2021-4-8 06:42</a>
+就不能提一下霸王色也可以缠绕么？就见闻色单独跟路飞讲了有人人可以看到未来……其他两个什么都没讲…… ...</blockquote>
+日漫常见问题
+修炼1年不如实战1天
+
+
+                     
