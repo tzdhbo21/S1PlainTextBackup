@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-06 11:55** 
+> ## **本文件最后更新于2021-04-08 03:22** 
 
 
 
@@ -2703,4 +2703,378 @@ NGA也是黑得多啊  
 这种题材起码要石头门或者baldrsky的体量才能讲好吧，13话太不够了，剧情目前还行，要是其他导演或许可以巧夺天工，但江崎慎平是绝无可能的，已经有一些镜头演出拉胯了，可惜又一个好团队要被他霍霍了，这B到底有什么后台
 
 
-                                          
+-----
+
+####  CURE_HGCG  
+##### 212#       发表于 2021-4-6 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50852253&amp;ptid=1982987" target="_blank">兔姬姬姬姬姬 发表于 2021-4-6 18:56</a>
+
+种崎敦美现在表界主役怎么全是无口属性的，多来点领座的怪同学女二那样的 ...</blockquote>
+[https://bbs.saraba1st.com/2b/thread-1904473-1-1.html](https://bbs.saraba1st.com/2b/thread-1904473-1-1.html)
+
+
+-----
+
+####  aptx8285144  
+##### 213#       发表于 2021-4-6 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50851888&amp;ptid=1982987" target="_blank">青菜子 发表于 2021-4-6 18:24</a>
+
+话说最后没必要把手给打断吧，女主出去都救不回来了其实</blockquote>
+感觉那里是一种对女主“多情”不满的表达，进而引出熊的那句“百年的旅途拉开序幕”，而且这熊前面对女主救暗杀团成员就已经很不开心了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，
+
+
+-----
+
+####  马桶3  
+##### 214#       发表于 2021-4-6 21:51
+
+
+我怎么觉得搞不好百年以后搞事的就是这个穿越过来的熊的暴走呢
+
+
+-----
+
+####  丹德里恩  
+##### 215#       发表于 2021-4-6 22:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还蛮有意思的，指润润
+
+希望后面的质量能维持
+
+
+-----
+
+####  Piano-Forest  
+##### 216#       发表于 2021-4-6 22:41
+
+
+キャラクター設定
+<img src="https://p.sda1.dev/1/c724997d6a6b11e4a6b71dbe1d24c55a/IMG_20210406_223427.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/21a6ca0403cca56b765cf724a65edfff/IMG_20210406_223422.jpg" referrerpolicy="no-referrer">
+
+
+原画
+<img src="https://p.sda1.dev/1/0d6934da28a13b00acdeb7b71a234262/IMG_20210406_223452.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/6f850efd0f346b9d5aba2677501c3383/IMG_20210406_223455.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/da1dce84e96c26b81f1d65f5cd5be2fc/IMG_20210406_223700.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/67cd025b77fe2dccfb7bc83c015a8f5e/IMG_20210406_223508.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosennesta  
+##### 217#       发表于 2021-4-6 23:57
+
+
+个人感觉……女主侧脸很不错，但是正脸就显得很怪……是绘柄问题还是人设问题？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 218#       发表于 2021-4-7 01:21
+
+
+前两集beatless的既视感太强了，如果beatless能有这制作就好了。不过既然是梅原，还是比较期待的，等一个非实在，和歌姬版的silent wind bell
+
+
+-----
+
+####  达达葱2  
+##### 219#       发表于 2021-4-7 06:51
+
+
+国内没站买？
+
+
+-----
+
+####  JustW  
+##### 220#       发表于 2021-4-7 07:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50856138&amp;ptid=1982987" target="_blank">达达葱2 发表于 2021-4-7 06:51</a>
+
+国内没站买？</blockquote>
+阿b买了，但是至今没说多会儿开播
+
+
+-----
+
+####  aptx8285144  
+##### 221#       发表于 2021-4-7 10:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50855628&amp;ptid=1982987" target="_blank">zakki 发表于 2021-4-7 01:21</a>
+
+前两集beatless的既视感太强了，如果beatless能有这制作就好了。不过既然是梅原，还是比较期待的，等一个非 ...</blockquote>
+松本熊这种有意无意暗示自己会随时站在你的对立面的手段还是比蕾导要“低级”不少<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梦诗歌雪  
+##### 222#       发表于 2021-4-7 17:03
+
+
+ 本帖最后由 梦诗歌雪 于 2021-4-7 17:04 编辑 
+
+开头就死小女孩，坏文明。小女孩都拯救不了拯救百年后的人类又有什么意义呢<img src="https://static.saraba1st.com/image/smiley/face2017/133.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kos_mos  
+##### 223#       发表于 2021-4-7 17:56
+
+
+假如没熊拦着，怎么阻止客机爆炸？
+
+
+-----
+
+####  无聊者X  
+##### 224#       发表于 2021-4-7 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50862555&amp;ptid=1982987" target="_blank">kos_mos 发表于 2021-4-7 17:56</a>
+假如没熊拦着，怎么阻止客机爆炸？</blockquote>
+都已经爬到机库，随便往跑道上整点活就起飞不了
+给飞机整点活更是直接换机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kos_mos  
+##### 225#       发表于 2021-4-7 18:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50862735&amp;ptid=1982987" target="_blank">无聊者X 发表于 2021-4-7 18:15</a>
+
+都已经爬到机库，随便往跑道上整点活就起飞不了
+
+给飞机整点活更是直接换机</blockquote>
+以为是降落中<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  CURE_HGCG  
+##### 226#       发表于 2021-4-7 20:10
+
+
+这么可爱的小姑娘，上天堂后一定能做天使的 ​​​​
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gpbfpy7y9ej21as0k0kjl.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  owada  
+##### 227#       发表于 2021-4-7 20:49
+
+
+一个歌姬战斗力这么高?马哭骡死7吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  owada  
+##### 228#       发表于 2021-4-7 20:59
+
+
+一个机器人穿什么运动内衣啊,应该不穿的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mumu  
+##### 229#       发表于 2021-4-7 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50864436&amp;ptid=1982987" target="_blank">owada 发表于 2021-4-7 20:59</a>
+一个机器人穿什么运动内衣啊,应该不穿的啊</blockquote>
+反正都机器人了，说不定内衣就是胸的一部分呢，就像游戏里捏人的初始人偶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jacklibran  
+##### 230#       发表于 2021-4-7 22:00
+
+
+战斗力…不高吧，对单人夺枪都僵持半天
+
+
+-----
+
+####  D-JoeII  
+##### 231#         楼主| 发表于 2021-4-7 22:05
+
+
+K島看到有人提到
+
+
+[21/04/07(水)18:29 ID:qj1xt10A/0B1f] No.2434422  
+
+ 画像ファイル名：1617791362660.png-(819 KB, 1191x508) [サムネ表示]
+
+819 KB
+
+熊是黑的可能性很高
+
+博士輸入的日期是2061/4/11
+
+熊到的年份應該還在2057...
+
+
+無念 [21/04/07(水)19:47 ID:1ToWXfZU/dEfB] No.2434450  
+
+&gt;&gt;No.2434422
+
+幫你補充
+
+博物館標示VIVY是2056年製造的
+
+開頭小女孩說VIVY要1歲生日了
+
+
+<img src="https://img.saraba1st.com/forum/202104/07/220459l3pfhnup4b8u82vb.png" referrerpolicy="no-referrer">
+
+
+<strong>1617791362660.png</strong> (44.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-7 22:04 上传
+
+
+-----
+
+####  Gooddays  
+##### 232#       发表于 2021-4-7 22:31
+
+
+ 本帖最后由 Gooddays 于 2021-4-7 22:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50848425&amp;ptid=1982987" target="_blank">yanghuangu 发表于 2021-4-6 13:27</a>
+跳楼那里分镜有问题吧，明明拉着男议员跑的，结果下个镜头男议员已经自已跳过去了，女主还又跑好几秒才起跳 ...</blockquote>
+不是议员跳过去，而是女主拉议员的手跑时发现崩毁太快赶不及逃，所以先用力把议员丢过去，然后自己在正在崩毁的地面跑一段路后起跳（可能要找用力点）。
+
+
+-----
+
+####  冰箱研会长e-3M  
+##### 233#       发表于 2021-4-7 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50854401&amp;ptid=1982987" target="_blank">Piano-Forest 发表于 2021-4-6 22:41</a>
+
+キャラクター設定</blockquote>
+好。。。干净的原画啊，是纯数字化的制作么
+
+
+-----
+
+####  nerugigannte  
+##### 234#       发表于 2021-4-7 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">能不能在除了眼睛特写的地方把女主画美一点，太破坏气氛了，直接把紫罗兰女主放这来这动画的观感能提升一个档次
+
+
+-----
+
+####  酥蕤  
+##### 235#       发表于 2021-4-7 23:33
+
+
+这熊代差都要无敌了为什么不出来单干，别这女主才是大boss吧
+历史的发展不以个人意志转移，这三流议员都知道能靠这拉票，群体意志迟早会迫使这政策出现，别还有啥蝴蝶效应反而加速这一进程，不知道博士和ai有没有在更高一层，别后面又来量子计算机啥的，怕了
+看到女主人设第一反应也是紫薇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yanghuangu  
+##### 236#       发表于 2021-4-8 01:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50865406&amp;ptid=1982987" target="_blank">Gooddays 发表于 2021-4-7 22:31</a>
+
+不是议员跳过去，而是女主拉议员的手跑时发现崩毁太快赶不及逃，所以先用力把议员丢过去，然后自己在正在 ...</blockquote>
+你认真再看一遍<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ReginaldMorgan  
+##### 237#       发表于 2021-4-8 01:32
+
+
+反正前两话没解释清楚的还是“Why me”的问题，这破熊十有八九也没说真话，只要这个解释后面能讲通剩下的倒都不是大事了
+
+
+-----
+
+####  隐形术的隐形书  
+##### 238#       发表于 2021-4-8 01:52
+
+
+这设定真的好科幻哦（震声）
+
+
+就等出弹幕看设定吐槽了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Gooddays  
+##### 239#       发表于 2021-4-8 10:03
+
+
+ 本帖最后由 Gooddays 于 2021-4-8 10:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50866608&amp;ptid=1982987" target="_blank">yanghuangu 发表于 2021-4-8 01:00</a>
+你认真再看一遍</blockquote>
+你便先认真再看一次吧，动画没画议员有跳的动作，只有议员小腿以下到大厦边缘然后离开大厦的画面，那画面只显示小腿及脚踝，看起来是奔跑动作，离开大厦时还有碎步，这不像是 “跳” 的行为。
+
+反而这段镜头之前有是：
+1）大厦崩毁接近两人
+2）女主向后望了一眼
+3）然后加速拉扯议员
+4）画面从女主面，转移到手，然后到议员，显示女主正用力拉扯议员的动作
+5）议员在被女主更用力拉扯下向前跑到边缘，然后顺着女主的力度势头飞出去到另一座大厦。
+6）女主丢议员时的反作用力导至自己停下来（或势头减弱），然后重新起跑再跳。
+
+
+-----
+
+####  MASKA-1  
+##### 240#       发表于 2021-4-8 10:11
+
+
+不知道给了好几次女主眼镜特写是什么用意，而且感觉还是背景美术专门画的那种。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+-----
+
+####  yanghuangu  
+##### 241#       发表于 2021-4-8 10:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50868659&amp;ptid=1982987" target="_blank">Gooddays 发表于 2021-4-8 10:03</a>
+
+你便先认真再看一次吧，动画没画议员有跳的动作，只有议员小腿以下到大厦边缘然后离开大厦的画面，那画面 ...</blockquote>
+脑内补帧这操作我做不来，就当我看的是删减版吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+                                         
