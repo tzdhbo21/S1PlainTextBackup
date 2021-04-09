@@ -1,4 +1,5 @@
-> ## **本文件最后更新于2021-04-03 15:41** 
+> ## **本文件最后更新于2021-04-09 11:37** 
+
 
 
 -----
@@ -370,6 +371,8 @@ v综发的图这里也发一份
 live前等候室中的盐水
 
 
+
+
 -----
 
 ####  fangjun96  
@@ -673,6 +676,8 @@ rta结束了是吗，好耶！
 最扯的是挖下去直接就在末地传送门房间
 
 如果不是珍珠前两个晚上掉率太低还有最后没睡觉直接进门失误了，估计可以打进2小时内
+
+
 
 
 -----
@@ -996,6 +1001,8 @@ Type Wild，这神奇宝贝第五个ED，我在电视上看的辽艺版好像都
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">神薙好啊，入宅作之一，夸宝什么时候3D跳这个的舞
+
+
 
 
 -----
@@ -1351,6 +1358,8 @@ ARK2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referr
 不会吧不会吧，我以为erer姐贵消失后，不会再有游戏民了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  Kanchiki  
@@ -1678,6 +1687,8 @@ yygq来啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我听到了啥，新年快la？
+
+
 
 
 -----
@@ -2166,6 +2177,8 @@ GMAIL应该能做到开播邮件。大不了加一个自动转发。
 查看全部评分
 
 
+
+
 -----
 
 ####  fangjun96  
@@ -2497,6 +2510,8 @@ apex又freeeze了，这次会弄了。
 
 
 今晚整体操作精度不够
+
+
 
 
 -----
@@ -2856,6 +2871,8 @@ KSNB
 小组赛还是看不出啥，等决赛看看谁会有惊喜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  fangjun96  
@@ -3153,6 +3170,8 @@ GG！
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">为了今天练了多久啊，一分之差输了还有运气成分可不得伤心
+
+
 
 
 -----
@@ -3461,6 +3480,8 @@ p.s海蓝宝石szd
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -3851,6 +3872,8 @@ BV1zv411x7wJ
 （还是说最近在直播里透露过？）
 
 
+
+
 -----
 
 ####  面具13  
@@ -4210,6 +4233,8 @@ syl 开了开了 看看家用3d
 绝了，在东京，这傻逼公司有毒吧
 
 
+
+
 -----
 
 ####  Maonpuyo  
@@ -4543,6 +4568,8 @@ candy-go-round试听，杂鱼打包组合，这就是下个live的曲目了吗
 
 
 泣き虫あくあ
+
+
 
 
 -----
@@ -4910,6 +4937,8 @@ syl，回看发现写得好抽象，其实想说的就是那种电次和玛奇�
 <img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">可是嘎哦叭叭的あやか本很色啊
 
 
+
+
 -----
 
 ####  离魂仙  
@@ -5231,6 +5260,8 @@ syl  夸父又色夸了，图来，哦 是新本猫猫图，没事了
 
 
 阿不是挂嘛，太强了吧<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -5565,6 +5596,8 @@ https://www.lawson.co.jp/lab/campaign/hololive/
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">いろべ
+
+
 
 
 -----
@@ -5967,6 +6000,8 @@ syl  这分镜有点意思啊，燃的
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">啊这，好像又说是官方弄错了，钻石尾气是下赛季（第九赛季获得）的奖励
 
 
+
+
 -----
 
 ####  面具13  
@@ -6309,6 +6344,8 @@ sc杂谈一般都比正片有趣<img src="https://static.saraba1st.com/image/smi
 今天又没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  Maonpuyo  
@@ -6642,6 +6679,8 @@ sc杂谈一般都比正片有趣<img src="https://static.saraba1st.com/image/smi
 就当放年假了，小别胜新婚啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  面具13  
@@ -6956,6 +6995,8 @@ A酱的藏头诗。
 中间那段 阿火→萝卜 的特写僵硬摇摆已经可以剪GIF了
 
 
+
+
 -----
 
 ####  离魂仙  
@@ -7227,14 +7268,7 @@ PS：杏人朋友们怎么高强度刷夸楼的<img src="https://static.saraba1s
 ####  UnhappyTails  
 ##### 5117#       发表于 2021-2-17 19:28
 
-
-ftw是不是凑阿夸的歌-是
-
-凑阿夸是不是hololive的一员-是
-
-bloom是不是hololive的live-是
-
-不爽就去起诉，爱你们哟，crew<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7319,8 +7353,7 @@ bloom是不是hololive的live-是
 ####  UnhappyTails  
 ##### 5121#       发表于 2021-2-17 19:49
 
-
-嚯，今儿檩子小姐的状态真不错啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7339,12 +7372,7 @@ bloom是不是hololive的live-是
 ####  UnhappyTails  
 ##### 5123#       发表于 2021-2-17 19:53
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50356961&amp;ptid=1947500" target="_blank">空集 发表于 2021-2-17 19:49</a>
-第二首solo了  这不是待遇挺好的 
-
-—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4 ...</blockquote>
-听lga的老哥说，还以为阿夸被霸凌的都上不了live了呢！现在看来还是有不少歌......不对！这一定是压榨！是fh企业对爱华liver的压榨！！！
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7419,6 +7447,8 @@ mioママ在播片里还编弹幕，好敬业啊（
 
 
 最近没看别人外面发生什么事了，怎么感觉有受刺激的冲进来了
+
+
 
 
 -----
@@ -7879,6 +7909,8 @@ drago老本土粉了，原来那边也有想法一样的老哥。
 syl：一般人不都是搬完家再买新电脑的吗
 
 
+
+
 -----
 
 ####  面具13  
@@ -8261,6 +8293,8 @@ MC可能性不大，毕竟就没真正意义跟人同居过。
 妈宝怎么吃饭啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  离魂仙  
@@ -8604,6 +8638,8 @@ TV版是20年前的老东西了，年轻人不喜欢的。不过如果通过这�
 
 
 eva的会限同步试听，感觉是回收了最近直播时放的一个卫星。说来新剧场版我好像没看过，好像比tv精致很多。
+
+
 
 
 -----
@@ -8956,6 +8992,8 @@ normal end。私下里练习了一次，应该稍微看了点资料
 
 昨天不是说了35那边会出る吗？结果好像凸待和3D都没出现？</blockquote>
 「お披露目出ます」说的是海苔男的新衣服，不是miko的
+
+
 
 
 -----
@@ -9316,6 +9354,8 @@ syl，这直播抽卡也太欧了
 每天apex+🐴两播要成为常态了吗
 
 
+
+
 -----
 
 ####  面具13  
@@ -9609,6 +9649,8 @@ sj了一下夸宝赛马娘账号发现西野花满破了
  本帖最后由 乌鸦绅士 于 2021-3-13 16:19 编辑 
 
 风怒编辑
+
+
 
 
 -----
@@ -9926,6 +9968,8 @@ RP再创新高8482。
 粗口都出来了啊 到时候苟上去了crew不要拿这个出来吹你家夸宝多厉害好不好<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
 
 [  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
 
 
 -----
@@ -10397,6 +10441,8 @@ S7的数据</blockquote>
 说实话单排想上分也只能功利点了，不过 谈apex就谈apex呗，还搁那打信者战呢，你们就不能当他是apex观众吗？他在绫楼一样喷绫。嘛，不过管人观众确实也是这样的，劈主子准没错。
 
 
+
+
 -----
 
 ####  499  
@@ -10694,6 +10740,8 @@ S7的数据</blockquote>
 
 
 今天全是加分，不对劲<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -11084,6 +11132,8 @@ apex4.png
 2连鸡了！
 
 
+
+
 -----
 
 ####  面具13  
@@ -11421,6 +11471,8 @@ apex4.png
 回到解放前
 
 
+
+
 -----
 
 ####  バーチャルS1er  
@@ -11714,6 +11766,8 @@ apex4.png
  本帖最后由 乌鸦绅士 于 2021-3-21 23:01 编辑 
 
 “冲夸人”[https://twitter.com/Z12308074829/status/1373647914774368259](https://twitter.com/Z12308074829/status/1373647914774368259)
+
+
 
 
 -----
@@ -12052,6 +12106,8 @@ apex4.png
 今晚好像ras那边被恶心死了，怕不是挂壁盛宴
 
 
+
+
 -----
 
 ####  バーチャルS1er  
@@ -12360,6 +12416,8 @@ syl，《我推的孩子》要是以后动画化的话，要是女主角中cv有
 
 
 男主内山辉昂比较适合
+
+
 
 
 -----
@@ -12712,6 +12770,8 @@ apex这么火的吗<img src="https://static.saraba1st.com/image/smiley/face2017/
 
 
 枪也得练。中距离主动进攻时比较稳定，但很少能打好反击。近距离霰弹还容易被别人走位秀。狙里面只有激光笔熟练，其他狙的下坠和提前量都控制得不太好。
+
+
 
 
 -----
@@ -13172,6 +13232,8 @@ syl
 查看全部评分
 
 
+
+
 -----
 
 ####  面具13  
@@ -13467,6 +13529,8 @@ syl
 断尾后会上一个自鸣得意buff，猫车概率+50%<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  ylssb10438  
@@ -13486,4 +13550,300 @@ syl
 ｗｗｗ
 
 
-           
+-----
+
+####  gikaqi  
+##### 5643#       发表于 2021-4-4 08:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">昨晚sc病娇环节看了好几遍，感觉超有意思。尤其是她说画面上的jk猎人水友也不让看那里。
+
+
+-----
+
+####  面具13  
+##### 5644#       发表于 2021-4-4 16:56
+
+
+都忘了文化放送这玩意儿了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还以为一人一周，这样看下周应该还是和狐狸一起。营业声线感觉白姨赢太多了。
+
+
+晚上apex看上去像是sui酱单开台。
+
+
+-----
+
+####  nevp  
+##### 5645#       发表于 2021-4-4 17:02
+
+
+与此同时夸宝正在上大分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5646#       发表于 2021-4-4 17:12
+
+
+看到9点还有一播，今天四舍五入算三动
+
+
+-----
+
+####  nevp  
+##### 5647#       发表于 2021-4-4 17:19
+
+
+还有出演小剧场，实质4动
+
+
+-----
+
+####  面具13  
+##### 5648#       发表于 2021-4-4 19:28
+
+
+ 本帖最后由 面具13 于 2021-4-4 19:30 编辑 
+
+sui酱窗看着怪怪的。鸡蛋物语没看
+
+
+-----
+
+####  ylssb10438  
+##### 5649#       发表于 2021-4-4 19:40
+
+
+奇蛋物语还是等特别篇出了再看吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 5650#       发表于 2021-4-4 19:54
+
+
+奇蛋物语最后一集一直没敢看，虽然已经被剧透的差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5651#       发表于 2021-4-4 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">弱气起来了
+
+
+-----
+
+####  渡鸦骑士  
+##### 5652#       发表于 2021-4-4 20:37
+
+
+这典型的阳角压阴角的剧情还上演了几次，我都有点怵<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5653#       发表于 2021-4-4 20:55
+
+
+三流芝居は大根役者に相応しいではないか
+
+只要还披着洋葱皮就只能这样演呗 腻是确实腻了
+
+
+-----
+
+####  梅斯之围  
+##### 5654#       发表于 2021-4-4 22:01
+
+
+恋爱循环可还行，
+
+
+-----
+
+####  乌鸦绅士  
+##### 5655#       发表于 2021-4-4 23:53
+
+
+以后经纪人的称呼就是“独角兽酱"吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 5656#       发表于 2021-4-5 21:23
+
+
+ラッキースケベ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  面具13  
+##### 5657#       发表于 2021-4-5 21:47
+
+
+ 本帖最后由 面具13 于 2021-4-5 22:55 编辑 
+
+吃鸡后下一把的迷惑指挥。看不起13名的5分，感觉很小看白金带啊
+
+TAS Apex<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5658#       发表于 2021-4-5 23:57
+
+
+你说这鱼塘局的观赏性不比脑死上分高多了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5659#       发表于 2021-4-6 16:56
+
+
+今天摸了。
+
+
+-----
+
+####  面具13  
+##### 5660#       发表于 2021-4-7 20:43
+
+
+原来早上发的“还很困”也是“今天摸了”啊，学到了，必将活用于下一次
+
+
+-----
+
+####  面具13  
+##### 5661#       发表于 2021-4-8 18:04
+
+
+ 本帖最后由 面具13 于 2021-4-8 18:45 编辑 
+
+失联24小时以上了，apex监控器也没动，感觉不太妙。
+
+存活确认。但是晚上播不播？
+
+
+-----
+
+####  星の守  
+##### 5662#       发表于 2021-4-8 18:43
+
+
+发了个千万庆祝推，之前也不知在哪里现充<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5663#       发表于 2021-4-8 19:20
+
+
+摸的时候观众也不发病了，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 5664#       发表于 2021-4-8 19:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">一年多了，真快啊
+
+
+-----
+
+####  星の守  
+##### 5665#       发表于 2021-4-8 19:45
+
+
+慢慢的就习惯了呗<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">习惯是种可怕的力量
+
+
+-----
+
+####  面具13  
+##### 5666#       发表于 2021-4-8 19:50
+
+
+看样子像是三连摸。打游戏去了
+
+
+-----
+
+####  面具13  
+##### 5667#       发表于 2021-4-8 22:32
+
+
+蓄力中，明天再摸就准备发病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> （游戏真tm好玩）
+
+
+-----
+
+####  wwddrte  
+##### 5668#       发表于 2021-4-9 16:22
+
+
+有点期待今天继续摸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 5669#       发表于 2021-4-9 17:48
+
+
+这个时间点还没，估计又摸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5670#       发表于 2021-4-9 18:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">干嘛去了，去年这时候也是一直摸好像
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 5671#       发表于 2021-4-9 18:41
+
+
+凛子绫化是吧
+
+
+-----
+
+####  doushike  
+##### 5672#       发表于 2021-4-9 18:51
+
+
+生病就不能是紫宝吗，盐水贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 5673#       发表于 2021-4-9 19:31
+
+
+久美子拜托了🙏
+
+
+          
