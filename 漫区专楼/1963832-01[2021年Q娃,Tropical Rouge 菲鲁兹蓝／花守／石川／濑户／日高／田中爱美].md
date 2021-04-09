@@ -1,4 +1,5 @@
-> ## **本文件最后更新于2021-04-05 14:38** 
+> ## **本文件最后更新于2021-04-09 14:39** 
+
 
 
 -----
@@ -324,6 +325,8 @@
 热情的红色火焰，cure rouge！(不是)
 
 
+
+
 -----
 
 ####  吹雪桑大胜利  
@@ -623,6 +626,8 @@ rouge 和 rogue是两个词
 
 但tv里一言难尽</blockquote>
 我是觉得，标题和主题不能决定作品质量
+
+
 
 
 -----
@@ -983,6 +988,8 @@ rouge 和 rogue是两个词
 这次走搞笑风的么？
 
 
+
+
 -----
 
 ####  HGCG  
@@ -1299,6 +1306,8 @@ rouge 和 rogue是两个词
 
 無題 Name 名無し 20/12/08(火)16:52:51 IP:211.124.*(zaq.ne.jp) No.2 ...</blockquote>
 求翻译
+
+
 
 
 -----
@@ -1649,6 +1658,8 @@ rouge 和 rogue是两个词
 组曲吧，但实际上组曲也没有露脐
 
 
+
+
 -----
 
 ####  Cloudslin  
@@ -1966,6 +1977,8 @@ https://www.netsea.jp/shop/349007/shb-201218-yoyaku8?cx_search=new#&amp;g ...</b
 海螺黄的眼影太吓人了。
 
 [  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
 
 
 -----
@@ -2294,6 +2307,8 @@ staff什么时候公开？
 
 
 其他人都在摆舞蹈姿势，只有虹主在大喊“我要打十个！”
+
+
 
 
 -----
@@ -2641,6 +2656,8 @@ staff什么时候公开？
 今年真的很无聊吗？我觉得比星q好看不少，还有达鲁伊森和和佳这对的宿敌刻画，各个角色的刻画整体也比去年强不少。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  最强惠酱  
@@ -2974,6 +2991,8 @@ e7cbae74gy1glxo3tw3ozj21560u0twf1.jpg
 <blockquote>浅悠梦Jasmine 发表于 2020-12-25 21:04
 你们都咋想的，那玩意明明是口红（</blockquote>
 主要是，一大根棒子只有前端一点点是口红（而且还是白色的…不明白为什么做成红的呢
+
+
 
 
 -----
@@ -3331,6 +3350,8 @@ syl.横谷把穷到不行的宝宠第7季写的还不错，他做系构感觉真
 说实话，今年地球天使初看人设的确很人妻。想不到竟然是0岁儿
 
 
+
+
 -----
 
 ####  天邪鬼  
@@ -3660,6 +3681,8 @@ cp不明<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" re
 那么女主到底是谁？这都成女二了
 
 
+
+
 -----
 
 ####  HGCG  
@@ -3985,6 +4008,8 @@ Summer：ファイルーズあい
 <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">人鱼妹子在岸上的时候不会吧跟室见一样踩个滑板呢
 
 
+
+
 -----
 
 ####  HGCG  
@@ -4305,6 +4330,8 @@ https://weibo.com/tv/show/1034:4597294704558139?from=old_pc_videoshow</blockquot
 
 
 这声优阵好啊，希望剧情不要扯后腿
+
+
 
 
 -----
@@ -4652,6 +4679,8 @@ OPED终于不是宫本北川理惠了<img src="https://static.saraba1st.com/imag
 紫色这次算二号？
 
 
+
+
 -----
 
 ####  HGCG  
@@ -4991,6 +5020,8 @@ summer cv好评q娃之牙
 奸笑2……星Q上来也有一堆人说来个奸笑把<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  天邪鬼  
@@ -5328,6 +5359,8 @@ Re:ゼロから始める異世界生活
 新勇者莱汀？
 
 
+
+
 -----
 
 ####  王留美  
@@ -5655,6 +5688,8 @@ q娃这几年只要稳当就可以了 然而去年女人中途还是搞出恶心
 
 一开始还一起摆姿势凹造型，后面两个就这么竖着站一起</blockquote>
 <img src="http://wx1.sinaimg.cn/mw1024/9657fdc2gy1gnutu3xlkhj20hs0a077g.jpg" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -6010,6 +6045,8 @@ Himelda Window Curequeen of the Blue Sky</blockquote>
 今年op傻吊是够傻吊的，就是没去年高素质
 
 
+
+
 -----
 
 ####  新HGCG  
@@ -6321,6 +6358,8 @@ ed还是省钱3d 劳拉直接上纸片</blockquote>
 
 
 因为新Q娃而成为推特趋势第一的不破桑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -6651,6 +6690,8 @@ op把路人也拉了不少进来，不知道有没有什么深意。我觉得应
 
 
 今年的第一个ED感觉不如去年那个
+
+
 
 
 -----
@@ -7018,6 +7059,8 @@ op大地丙，够沙雕<img src="https://static.saraba1st.com/image/smiley/face2
 和隔壁甜梦猫一样，OP的作曲、编曲都是EFFY，看来是要狂气和搞笑拉满了
 
 
+
+
 -----
 
 ####  阿姆罗二世  
@@ -7358,6 +7401,8 @@ OP沙雕又复古，ED差点意思，最近好看的ED还是治Q的ED1，镜头�
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502737&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2021-3-3 22:40</a>
 Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precure A la mode一般简称为甜点或者闪q[f ...</blockquote>
 那star.twink 是啥呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -7730,6 +7775,8 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 预感会是看得很开心的一年
 
 
+
+
 -----
 
 ####  宅音  
@@ -8060,6 +8107,8 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 这屑人鱼醋劲好大<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  dragrass  
@@ -8384,6 +8433,8 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 
 
 哦哦感谢
+
+
 
 
 -----
@@ -8717,6 +8768,8 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 Coral那顶小帽子是真的可爱<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
 
 不过盾役总感觉是Debuff
+
+
 
 
 -----
@@ -9104,6 +9157,8 @@ https://www.konjikiblog.com/entry/sutapuriss-15kounen15miri1
 没看过露营，看到抚子还以为是唱恋爱循环的那个，但那个的声优我记得是香菜。
 
 
+
+
 -----
 
 ####  粉儿alice  
@@ -9471,6 +9526,8 @@ q娃小说策划八成是被阉掉 毕竟ss和战队小说没有下文了<img sr
 有点像小时候的人设
 
 —— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
 
 
 -----
@@ -9929,6 +9986,8 @@ q娃小说策划八成是被阉掉 毕竟ss和战队小说没有下文了<img sr
 黄的光子力射线好像只是致盲技，跟魔神爱那种一扫死一片的类型还不同
 
 
+
+
 -----
 
 ####  HGCG2  
@@ -10255,6 +10314,8 @@ q娃小说策划八成是被阉掉 毕竟ss和战队小说没有下文了<img sr
 
 
 我觉得某字幕组的摸鱼怪更有意思点，但是小友应该不知道摸鱼什么意思<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -10598,6 +10659,8 @@ Doremi剧场BD还没发售，全世界Web现在应该也只有271
 实和前辈 飞鸟和学生会长 黄红后续剧情就是靠这个了 就看今年女人能不能把配角也写好了
 
 ps 这代q娃终于不是学生会长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -10972,6 +11035,8 @@ q娃带货
 
 
 怎么你也有一个曾经伤害过自己的女人，你们高年级Q娃都是木毛吗<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">赶紧地会长个人回安排上
+
+
 
 
 -----
@@ -11358,6 +11423,8 @@ q娃带货
 大地丙太郎是不是有问题   说他要枕女声优
 
 
+
+
 -----
 
 ####  zzz123q  
@@ -11701,6 +11768,8 @@ yysy，就真夏填的那申请表，以前的任何一个会长都不会给她�
 
 —— 來自 samsung SM-G981N, Android 11上的 S1Next ...</blockquote>
 说起来在一段话内插入这意义不明的口头禅两三次的情况，不知道是不是受隔壁超级战队的影响。
+
+
 
 
 -----
@@ -12075,6 +12144,8 @@ flamingo的话又想起林友树了，不过火烈鸟的话也挺符合鸟哥这
 <img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gp3ga01d13j21bh0qgx6r.jpg" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  达达葱2  
@@ -12395,6 +12466,8 @@ q娃的更新也被卡了吗
 这次打的好快啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 这片子真乐
+
+
 
 
 -----
@@ -12762,6 +12835,8 @@ BIG BOMBER！ ​</blockquote>
 至于下海去人鱼城，去是肯定会去的，只是会在去之前做好规划啥的(然后可能没啥用)应该不会是没头没脑深入地方大本营，打不过又开始等唯心爆发
 
 
+
+
 -----
 
 ####  lyz1196  
@@ -12785,4 +12860,398 @@ staff也懂这个道理，所以没搞化妆部
 年纪轻轻皮肤最好的时候化什么妆啊，又不用上台表演
 
 
-            
+-----
+
+####  PrincessBanana  
+##### 1113#       发表于 2021-4-6 02:13
+
+
+新反派萝莉皮皮虾出乎意料地还蛮可爱！
+
+
+-----
+
+####  lyflyflxf  
+##### 1114#       发表于 2021-4-6 07:09
+
+
+今年有时会在正片和ED之间加点小段子啊
+<img src="https://p.sda1.dev/1/ecbc838bcdabbb40c5ec8c388a7fad82/insta1.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/4d523ca3166a5849133261bc805e8fac/insta.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  蓝色书签  
+##### 1115#       发表于 2021-4-6 18:11
+
+
+说起来先审后播的意思是不是不可能同步完整的在b站看完q娃了。那我得把爱奇艺会员给取消了
+
+
+-----
+
+####  蓝色书签  
+##### 1116#       发表于 2021-4-6 18:13
+
+
+说错了。是爱奇艺_(´ཀ`」 ∠)__ 
+
+
+-----
+
+####  CURE_HGCG  
+##### 1117#       发表于 2021-4-6 19:24
+
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gpa6h0u8qvj20u00uu4qt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gpa6hah6ybj20u30u07wl.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gpa6hhungyj20u00vzu10.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gpa6hk5pbbj20u00uze85.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1118#       发表于 2021-4-6 23:08
+
+
+爱奇艺出了吗？
+
+
+-----
+
+####  dragrass  
+##### 1119#       发表于 2021-4-7 02:03
+
+
+ 本帖最后由 dragrass 于 2021-4-7 06:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50854639&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-04-06 23:08:59</a>
+
+爱奇艺出了吗？</blockquote>
+还没有
+
+
+话说延迟一周之内也不是不能接受，再慢确实就没意义了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  菊妖不是怪  
+##### 1120#       发表于 2021-4-7 17:16
+
+
+完整版的ed意外的更好听，相比较来说op的第二段就有点吵了，不过总的来说都还是很欢乐的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  Blackson  
+##### 1121#       发表于 2021-4-7 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50855794&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-4-7 02:03</a>
+
+还没有
+
+
+话说延迟一周之内也不是不能接受，再慢确实就没意义了</blockquote>
+不知道这周日是否能两集连上，抑或是只上上周的一集？
+
+
+-----
+
+####  达达葱2  
+##### 1122#       发表于 2021-4-8 06:31
+
+
+还没上吗？
+
+
+-----
+
+####  CURE_HGCG  
+##### 1123#       发表于 2021-4-8 19:24
+
+
+<img src="http://wx1.sinaimg.cn/large/69559a0aly1gpcjeb59r8j20rs0jpgqs.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1124#       发表于 2021-4-9 06:54
+
+
+还没上线……？
+
+
+-----
+
+####  shimmy1996  
+##### 1125#       发表于 2021-4-9 09:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这话才发现那是企鹅，本来以为是狸猫
+反派已经没干劲到不出场了吗wwww
+四人登场pose好评
+
+
+-----
+
+####  missquin33  
+##### 1126#       发表于 2021-4-9 10:38
+
+
+借楼问问有没有人有雪飘的拥抱外挂字幕，我看雪飘自己的度盘合集被干掉几次后就没再分享了，找了半天只在伪射手上发现一份结果一直下载失败<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1127#       发表于 2021-4-9 13:13
+
+
+屑人鱼变身图出了？
+
+
+-----
+
+####  最强惠酱  
+##### 1128#       发表于 2021-4-9 13:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50882975&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-4-9 13:13</a>
+
+屑人鱼变身图出了？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202104/09/131739ja5ede5p3ql3waid.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210409131655.jpg</strong> (102.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 13:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/131740ds5oyoxiy3y82nls.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210409131707.jpg</strong> (33.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 13:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/131740kzvlu5zz8gg989i2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210409131701.jpg</strong> (88.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 13:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/131740t0mv30bzbcvctz3m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210409131715.jpg</strong> (97.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 13:17 上传
+
+
+-----
+
+####  最强惠酱  
+##### 1129#       发表于 2021-4-9 13:19
+
+
+人形衣服有点丑，q娃两颗珍珠看着突兀但是衣服像鱼齿咬肚子莫名好色，拿扇子貌似战斗形态？这个好好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  达达葱2  
+##### 1130#       发表于 2021-4-9 13:32
+
+
+<blockquote>最强惠酱 发表于 2021-4-9 13:17
+</blockquote>
+ANON是啥
+
+
+-----
+
+####  最强惠酱  
+##### 1131#       发表于 2021-4-9 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50883199&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-4-9 13:32</a>
+ANON是啥</blockquote>
+不晓得，我也是转图<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  三合一出现  
+##### 1132#       发表于 2021-4-9 13:38
+
+
+一条鱼居然四个形态？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  达达葱2  
+##### 1133#       发表于 2021-4-9 15:39
+
+
+<blockquote>最强惠酱 发表于 2021-4-9 13:36
+不晓得，我也是转图
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+这样啊……汗……
+
+
+-----
+
+####  lawsherman  
+##### 1134#       发表于 2021-4-9 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50883199&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-4-9 13:32</a>
+
+ANON是啥</blockquote>
+估计是玩具的自定义名字
+
+
+-----
+
+####  Sliurus  
+##### 1135#       发表于 2021-4-9 16:01
+
+
+ 本帖最后由 Sliurus 于 2021-4-9 19:30 编辑 
+
+头顶两颗大珍珠好怪啊，不像能打架的样子，可能是女王形态？
+
+私服有种少 妇感<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yukihana0  
+##### 1136#       发表于 2021-4-9 16:18
+
+
+キュアラメール，，ラメール，法语的la mer，海洋？
+
+—— 来自 vivo V2046A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  csolfans  
+##### 1137#       发表于 2021-4-9 18:31
+
+
+<blockquote>最强惠酱 发表于 2021-4-9 13:17
+</blockquote>
+第四张图是废案？
+
+
+-----
+
+####  CURE_HGCG  
+##### 1138#       发表于 2021-4-9 18:57
+
+
+<img src="http://wx4.sinaimg.cn/mw690/e7cbae74gy1gpdothmidij20hs0kmhbx.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  李霞  
+##### 1139#       发表于 2021-4-9 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50881035&amp;ptid=1963832" target="_blank">missquin33 发表于 2021-4-9 10:38</a>
+
+借楼问问有没有人有雪飘的拥抱外挂字幕，我看雪飘自己的度盘合集被干掉几次后就没再分享了，找了半天只在伪 ...</blockquote>
+[https://pan.baidu.com/s/1iHkFgMeETVY7tmuRbEB7lw](https://pan.baidu.com/s/1iHkFgMeETVY7tmuRbEB7lw) 9qaf
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| missquin33| + 2|感谢|
+
+
+查看全部评分
+
+
+-----
+
+####  最强惠酱  
+##### 1140#       发表于 2021-4-9 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50886618&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-4-9 18:31</a>
+第四张图是废案？</blockquote>
+不是吧，一样破解出来的内容
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1141#       发表于 2021-4-9 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50883037&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-9 13:19</a>
+
+人形衣服有点丑，q娃两颗珍珠看着突兀但是衣服像鱼齿咬肚子莫名好色，拿扇子貌似战斗形态？这个好好看啊[f: ...</blockquote>
+人形衣服太朴素了。相比之下，Q娃形态头发和露出度都UP了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  csolfans  
+##### 1142#       发表于 2021-4-9 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50888489&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-9 21:28</a>
+
+不是吧，一样破解出来的内容
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">还有第二形态？
+
+
+           
