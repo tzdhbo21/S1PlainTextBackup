@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-06 12:52** 
+> ## **本文件最后更新于2021-04-09 10:41** 
 
 
 
@@ -4136,18 +4136,7 @@ zsyl 尊妈工商好耶
 ####  UnhappyTails  
 ##### 34806#       发表于 2021-3-31 02:11
 
-
-这个肥希xgura希望多搞
-
-声音的厚度太契合彼此了
-
-看之前就觉得和声的舒适程度会很高，没想到简直破表
-
-选曲也相当不错，音域感觉也很接近
-
-只可惜注定只会是一次性的，毕竟两个人的活动overlap很小，小鲨鱼跟希的《地位》也无法同日而语
-
-希望明年年会能看到这俩的合作（如果en能3d的话）
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5006,10 +4995,7 @@ https://space.bilibili.com/249243/dynamic
 ####  UnhappyTails  
 ##### 34868#       发表于 2021-4-2 22:24
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50809154&amp;ptid=1969498" target="_blank">mmbk 发表于 2021-4-2 12:02</a>
-没法从兔鞠温柔乡里爬出来了</blockquote>
-正常啊，最懂你的永远是同类呀<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5755,4 +5741,391 @@ md无意中看到LOL解说间隙都有人在那里推荐apex
 <img src="https://p.sda1.dev/1/4af0c76923db1aa2565f05043e5f2c3e/DP_F_XS78D~NXSTCKIVT_J4.png" referrerpolicy="no-referrer">
 
 
-                                   
+-----
+
+####  free  
+##### 34926#       发表于 2021-4-6 22:09
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/220917ngnxc7zcngxm9qcn.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (6.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 22:09 上传
+
+
+-----
+
+####  兔耳僵尸  
+##### 34927#       发表于 2021-4-7 00:30
+
+
+看了p站图tag才知道鈴谷アキ设定是男孩子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑之和  
+##### 34928#       发表于 2021-4-7 00:48
+
+
+aki声音偏中性，各方面都软软的也很有年下感
+不管是做妹妹还是弟弟都很棒<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+叫刀也哥哥的时候很甜的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 34929#       发表于 2021-4-7 17:59
+
+
+看到油管给我推忖度師一周年纪念才想起来连三小只都出一年了，你虹到底啥时候抽卡阿😅
+
+
+-----
+
+####  poipanchao  
+##### 34930#       发表于 2021-4-7 18:06
+
+
+vr不是抽了嘛，正统
+
+
+-----
+
+####  NBXX  
+##### 34931#       发表于 2021-4-7 19:22
+
+
+ 本帖最后由 NBXX 于 2021-4-7 19:36 编辑 
+
+[https://www.youtube.com/watch?v=pmTJy5iKbo0](https://www.youtube.com/watch?v=pmTJy5iKbo0)
+
+【新衣装】なのしか勝たん！でしょ？【ますかれーど/天使なの】
+<img src="https://p.sda1.dev/1/28b8c51315123039609369bc32173f27/1.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/0b00691575de16244c261501fd7a1880/2.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/a74be4ebd76c20e4eebeda9ec1c34d82/@Z2Z9YKQVOMCKDS_S__F__7.png" referrerpolicy="no-referrer">
+
+↓此人也会吐舌头
+<img src="https://p.sda1.dev/1/5d300daf7ebde4abd3d0d2d8a068ba9d/CS56J74~~`@Z7~9XA_X8_KP.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 34932#       发表于 2021-4-7 20:10
+
+
+阿裁又要复活了？
+
+
+-----
+
+####  alcoholic1000  
+##### 34933#       发表于 2021-4-7 20:28
+
+
+<img src="https://img.saraba1st.com/forum/202104/07/202838f1m33m8pkuu6ztwh.png" referrerpolicy="no-referrer">
+
+
+<strong>桝田省治.png</strong> (132.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-7 20:28 上传
+
+
+-----
+
+####  Map-2  
+##### 34934#       发表于 2021-4-7 20:45
+
+
+你楼微相关
+无聊翻小黑屋看见尾宝被夹了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/344d18cb07c7d2f1248e9c2cfb087984/Screenshot_20210407_204435.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 34935#       发表于 2021-4-7 21:10
+
+
+听Roha弹琴一直是一件很享受的事<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/07/211043g5v8c7v9txxb9bgr.png" referrerpolicy="no-referrer">
+
+
+<strong>210407211020.png</strong> (118.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-7 21:10 上传
+
+
+-----
+
+####  你是个好人  
+##### 34936#       发表于 2021-4-7 23:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50864578&amp;ptid=1969498" target="_blank">SuntoryNomu 发表于 2021-4-7 21:10</a>
+
+听Roha弹琴一直是一件很享受的事</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以Roha为什么是最后一次弹琴配信了？看了下之前弹琴回的档也都要改成会员限定了
+
+
+-----
+
+####  Ketestrait  
+##### 34937#       发表于 2021-4-7 23:43
+
+
+이로하イロハ初心者マーク【NIJISANJI KR】
+
+@RohaLee2434
+
+·
+
+6時間
+
+
+今日のピアノ配信が終わったら今までのピアノアーカイブは全部メンバー限定に入ります。よろしくお願いします
+
+
+这是为啥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 34938#       发表于 2021-4-7 23:46
+
+
+ 本帖最后由 FCCHua 于 2021-4-7 23:47 编辑 
+
+啊这？
+她这个弹琴直播很适合挂后台...
+
+
+-----
+
+####  free  
+##### 34939#       发表于 2021-4-8 00:04
+
+
+<img src="https://img.saraba1st.com/forum/202104/08/000439qv2qj8vkr8qqrwmr.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (5.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-8 00:04 上传
+
+
+-----
+
+####  poipanchao  
+##### 34940#       发表于 2021-4-8 00:08
+
+
+看了下虹楼，说是因为academic problems
+
+据说是因为要回韩国或者去韩国读书，没有弹钢琴的条件了
+
+转会限可能是别的考虑吧，这点似乎没解释
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 你是个好人| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  Suny08  
+##### 34941#       发表于 2021-4-8 00:27
+
+
+ghs比播游戏也强太多了，以后专心当Asmr主播吧，大家都开心
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| CAserlumos| + 1|不戳|
+| argaregeasr| + 1|支持！|
+
+
+查看全部评分
+
+
+-----
+
+####  icecry  
+##### 34942#       发表于 2021-4-8 12:52
+
+
+最近看到个皮很强的小箱v订阅涨很快，可惜是舔4v的箱
+
+
+-----
+
+####  渡鸦骑士  
+##### 34943#       发表于 2021-4-8 15:12
+
+
+为什么美兔小姐这么喜欢谈论大便阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 34944#       发表于 2021-4-8 22:29
+
+
+<blockquote>https://www.bilibili.com/video/BV1wf4y1s7nd</blockquote>
+我算知道某些彩虹唱歌的说剪出来很害羞是什么意思了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 34945#       发表于 2021-4-9 08:17
+
+
+ 本帖最后由 FCCHua 于 2021-4-9 12:41 编辑 
+
+小偶像4.17 北京时间8点 ddd<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 虽然是偷跑
+今晚是猫猫3d
+
+
+-----
+
+####  NBXX  
+##### 34946#       发表于 2021-4-9 12:05
+
+
+<blockquote>クラッカー【#サンリオキャラクターズ × #REALITY】コラボ開催決定！クラッカー
+
+
+世界中で大人気のサンリオキャラクターズと、REALITYが初の大型コラボを5月に開催！ 
+
+
+また、本コラボ期間に先駆けて「ハローキティ」と広告で共演できるイベントも開催♪
+
+
+今すぐ詳細をチェック！</blockquote>
+<img src="https://p.sda1.dev/1/ac5d85f279952da154c5230110a4c37c/Eyf8hnpUUAExASs.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 34947#       发表于 2021-4-9 13:55
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-9 15:02 编辑 
+
+【雑談】４月度ゴリスナー総会&amp;雑談&amp;スパチャ読み！【椎名唯華/にじさんじ】
+
+新3Dあるんだ　[45:20](https://www.youtube.com/watch?v=lSoqgPITyYg&amp;t=2720s)
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/150219g66rcv4it5mt6lmo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【クラッカー相羽ういは 3Dお披露目配信決定！！】.jpeg</strong> (566.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 15:02 上传
+
+
+补个图，感觉有点微妙
+
+
+-----
+
+####  OldGlory  
+##### 34948#       发表于 2021-4-9 13:59
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/135943ef6q6dtxiyrxgwyq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210409135932.png</strong> (508.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 13:59 上传
+
+
+晚上可以听听
+[https://www.youtube.com/watch?v= ... OOGEYVOXX-official-](https://www.youtube.com/watch?v=2a9sm1Sr25M&amp;ab_channel=BOOGEYVOXX-official-)
+
+
+-----
+
+####  雪风utopia  
+##### 34949#       发表于 2021-4-9 15:41
+
+
+v综已经彻底没人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 34950#       发表于 2021-4-9 15:54
+
+
+理芽515 1st live，在这之前先多出原创吧，现在这几首也太少了，是不是和sasamao关系不好啊
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 34951#       发表于 2021-4-9 17:43
+
+
+DC新工商是给个技校唱主题曲，唱完干脆找个电子厂上班吧
+
+
+-----
+
+####  飞姆托  
+##### 34952#       发表于 2021-4-9 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50884709&amp;ptid=1969498" target="_blank">雪风utopia 发表于 2021-04-09 15:41:16</a>
+v综已经彻底没人了吗</blockquote>人人都是阴湿虹人，2000都不敢说话了
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+                                  

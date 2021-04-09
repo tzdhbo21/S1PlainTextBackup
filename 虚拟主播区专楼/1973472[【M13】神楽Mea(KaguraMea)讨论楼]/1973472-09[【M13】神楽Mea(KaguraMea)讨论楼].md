@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-08 10:46** 
+> ## **本文件最后更新于2021-04-09 10:42** 
 
 
 
@@ -9084,26 +9084,28 @@ fleet
 ##### 12874#       发表于 2021-4-8 18:27
 
 
+ 本帖最后由 路人辰 于 2021-4-8 21:42 编辑 
+
 20210408东京19点（1、2）
 
-<img src="https://img.saraba1st.com/forum/202104/08/182731l8ri8304wrh0p8zz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+<img src="https://img.saraba1st.com/forum/202104/08/214217kdddi6zhatvi65ve.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
 
 
-<strong>6F25BC91-97C8-4B48-8045-A597D2879BC2.jpeg</strong> (223.32 KB, 下载次数: 0)
-
-下载附件
-
-2021-4-8 18:27 上传
-
-
-<img src="https://img.saraba1st.com/forum/202104/08/182732uff1fiwh2fa8frz1.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
-
-
-<strong>26632D49-4E5F-44C7-B671-93916FF92658.jpeg</strong> (155.6 KB, 下载次数: 0)
+<strong>F5A7D492-D880-4AAD-BF5C-9686BD425337.jpeg</strong> (338.49 KB, 下载次数: 0)
 
 下载附件
 
-2021-4-8 18:27 上传
+2021-4-8 21:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/08/214216ai2k2nggpebtex2g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0C724B12-24E8-4018-811A-9B3C43702D8C.jpeg</strong> (217.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-8 21:42 上传
 
 
 -----
@@ -9128,4 +9130,261 @@ fleet
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
-                    
+-----
+
+####  十九号大侠  
+##### 12877#       发表于 2021-4-8 21:03
+
+
+意思是又偷摸玩游戏是吧
+
+
+-----
+
+####  wwwwwssjwb  
+##### 12878#       发表于 2021-4-9 01:43
+
+
+她真可爱
+
+
+-----
+
+####  雪风utopia  
+##### 12879#       发表于 2021-4-9 07:43
+
+
+美好的一天从期待小麻开始<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pei23333  
+##### 12880#       发表于 2021-4-9 08:45
+
+
+既然今天说了要好好睡一觉，那么剩下的事是应该就是在梦里干了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  专业划水人员  
+##### 12881#       发表于 2021-4-9 09:34
+
+
+ 本帖最后由 专业划水人员 于 2021-4-9 09:35 编辑 
+
+待麻~小麻什么时候才播啊
+
+
+-----
+
+####  雪风utopia  
+##### 12882#       发表于 2021-4-9 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50880339&amp;ptid=1973472" target="_blank">专业划水人员 发表于 2021-4-9 09:34</a>
+待麻~小麻什么时候才播啊</blockquote>
+陪完野男人就来陪你们<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  physi1202  
+##### 12883#       发表于 2021-4-9 11:36
+
+
+草，批站给我推了粉红坦克<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/ede3b0051312c136cfacd9b01fe6c49e/IMG_CMP_135110274.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 12884#       发表于 2021-4-9 12:34
+
+
+冲塔视频是吧😋
+
+
+-----
+
+####  A2014720  
+##### 12885#       发表于 2021-4-9 15:20
+
+
+奶奶的回老家也没消失这么久的<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pei23333  
+##### 12886#       发表于 2021-4-9 15:45
+
+
+ 本帖最后由 pei23333 于 2021-4-9 15:51 编辑 
+
+不能算消失，每天都有动的，看着情绪也不错，但就是不直播，可能真的在减少频率吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，看这架势今天是又打算睡过去了吧
+
+
+-----
+
+####  LIPP  
+##### 12887#       发表于 2021-4-9 15:47
+
+
+今天估计是又没了，算了 习惯了不也挺好的吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 12888#       发表于 2021-4-9 15:50
+
+
+还没到8点就没了吗
+
+
+-----
+
+####  希洛克吃西瓜冰  
+##### 12889#       发表于 2021-4-9 15:56
+
+
+野男人玩了她三天还不满足，快进到边玩边播<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 12890#       发表于 2021-4-9 16:16
+
+
+别贷款她鸽啊
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  草牛  
+##### 12891#       发表于 2021-4-9 16:16
+
+
+玩坏了怎么办😭😭😭
+
+
+-----
+
+####  呓亘  
+##### 12892#       发表于 2021-4-9 16:21
+
+
+一动不动真的挺折磨人的
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  呓亘  
+##### 12893#       发表于 2021-4-9 16:51
+
+
+动了 点了10个赞
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Dualist彩  
+##### 12894#       发表于 2021-4-9 17:15
+
+
+“不行啊，这样下去。。。会坏掉的啊”
+
+“至少。。。至少。。。手指还能动，在那之前。。。要好好守护我的阿宅啊（指点了几个赞）”
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 12895#       发表于 2021-4-9 17:20
+
+
+动了动了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 12896#       发表于 2021-4-9 17:41
+
+
+十点歌回
+
+
+-----
+
+####  路人辰  
+##### 12897#       发表于 2021-4-9 18:00
+
+
+20210409东京18点
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/180049bcsg1s1f46o63gc2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4984F7DF-7A2C-412E-9897-29DF00F98389.jpeg</strong> (172.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 18:00 上传
+
+
+-----
+
+####  A2014720  
+##### 12898#       发表于 2021-4-9 18:02
+
+
+有话没话都发fleet是干嘛…
+
+
+-----
+
+####  掉头学姐  
+##### 12899#       发表于 2021-4-9 18:03
+
+
+懒得删推啊，一种强迫症？
+
+
+-----
+
+####  A2014720  
+##### 12900#       发表于 2021-4-9 18:11
+
+
+告知之类不删也行吧，不懂yhm
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 12901#       发表于 2021-4-9 18:30
+
+
+她一直删掉一些过期的小告知推来保持推特整洁方便查
+
+fleet可是太方便了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                   
