@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-08 04:50** 
+> ## **本文件最后更新于2021-04-09 12:52** 
 
 
 
@@ -7040,11 +7040,11 @@ jinzhang</blockquote>
 还比如，九尾，木叶的人有多讨厌九尾这不用我多说吧。按照火影的叙述，宇智波是因为被怀疑控制九尾而被村子排挤。那么问题来了，为什么作为宇智波一族的佐助没有被像鸣人那样对待呢？按照木叶村民的一贯作风，他们一定会各种议论，佐助的状况应该不比鸣人好哪去，但是有吗？
 
 而且作为木叶消息最灵通的人，在鼬洗白前二十来话，自来也都表示一直以来所有人的观点都是九尾是天灾，妙木山的**蟆也这么认为。也就是说，宇智波和九尾之乱没关系，高层也没把宇智波和九尾联系起来，更不要说因为这个排挤宇智波，我们看漫画（370话）
-<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_p4N5f" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_vzFEN" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_X4X11" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_m30n7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_cM48V" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
+<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_KV1Tn" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_wwJPp" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_r97T5" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_sNRjz" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_bWcdM" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
 
 也就是说，这个时候，宇智波被灭，还是因为鼬是个变态神经病杀了全家，不是什么排挤猜忌，就是因为他个人而已。
 
@@ -7057,12 +7057,12 @@ jinzhang</blockquote>
 虽然宇智波开头就被岸本写死了，但是我们得说，宇智波是一个超级大的家族，非常大。
 
 首先，人家有自己的武器药品供应商，极有可能是只服务于宇智波的，因为木叶显然不知道，不然他们在搜索的时候怎么也得来这看看吧，可是他们只是带着忍犬到处找，也就是说木叶对此是不知道的。
-<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_jOj11" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_Leea3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_Cxvzx" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
-<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_P9YZL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_LYNH2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_cOy9Z" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
+<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_OmGaW" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_QiqQw" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_GDUXL" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
+<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_rcbc4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_bW8Ti" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_sqc2w" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
 
 首先他们得有钱吧，其次他们得有时间吧，最后他们得有人吧，你看他们还有闲心在椅子后面画画呢。
 
@@ -10219,4 +10219,367 @@ mhrise应该和op联动的，一刀不止999
 修炼1年不如实战1天
 
 
-                     
+-----
+
+####  晴岚  
+##### 54843#       发表于 2021-4-8 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50867707&amp;ptid=98922" target="_blank"> yario 发表于 2021-4-8 08:04</a> 引用:晴岚 发表于 2021-4-8 02:24 霸气补丁打越多,雷利这个师傅就显得越不行……前面看见未来好歹有回忆说雷利提过……这霸王色能缠绕是完全 ... 这不就是说明雷利和罗杰的差距吗？ </blockquote>
+他自己也不会见闻色的看到未来啊,但他至少跟路飞讲了有强者可以啊。总不会罗杰白胡子也不会霸王色缠绕,雷利没见过吧？来自: iPhone客户端
+
+
+-----
+
+####  赚钱娶老婆  
+##### 54844#       发表于 2021-4-8 14:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50871400&amp;ptid=98922" target="_blank">晴岚 发表于 2021-4-8 13:34</a>
+
+他自己也不会见闻色的看到未来啊,但他至少跟路飞讲了有强者可以啊。总不会罗杰白胡子也不会霸王色缠绕,雷 ...</blockquote>
+加个折寿设定就可以不说了
+
+
+-----
+
+####  Zcjy023  
+##### 54845#       发表于 2021-4-8 15:42
+
+
+这话看得好爽啊，单挑开始了
+
+
+-----
+
+####  羲和  
+##### 54846#       发表于 2021-4-8 16:15
+
+
+看了图感觉跟文字情报比还行…这话分镜还挺好的，然后雷利不一定会霸王色缠绕，御田也是像索隆这样放绝招的时候无意识的施展出来的，那雷利不会也正常，要怎么教路飞…非说之前可以跟路飞提一嘴的话，我没见过漫画这么自己透自己的设定的…但是和之国剧情还是缺少一个有压迫感的剧情点啊，后边要怎么搞才能补上…
+
+
+-----
+
+####  hagaren  
+##### 54847#       发表于 2021-4-8 16:57
+
+
+那解开奴隶项链是怎么回事来的
+
+
+-----
+
+####  绝赞販売中  
+##### 54848#       发表于 2021-4-8 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50873253&amp;ptid=98922" target="_blank">羲和 发表于 2021-4-8 16:15</a>
+看了图感觉跟文字情报比还行…这话分镜还挺好的，然后雷利不一定会霸王色缠绕，御田也是像索隆这样放绝招的 ...</blockquote>
+但是雷利会流樱也没教路飞，就是尾田为了一个个阶段升级把雷利角色写坏了
+
+
+-----
+
+####  hie  
+##### 54849#       发表于 2021-4-8 17:48
+
+
+记得雷利说了过全教时间不够，估计就教基础了，基础打得好领悟才会快
+
+
+-----
+
+####  晴岚  
+##### 54850#       发表于 2021-4-8 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50873253&amp;ptid=98922" target="_blank">羲和 发表于 2021-4-8 16:15</a>
+
+看了图感觉跟文字情报比还行…这话分镜还挺好的，然后雷利不一定会霸王色缠绕，御田也是像索隆这样放绝招的 ...</blockquote>
+路飞提到雷利跟他讲过见闻色可以看见未来的时候是在打卡二的时候回忆的。
+
+
+-----
+
+####  Yeaha123  
+##### 54851#       发表于 2021-4-8 18:37
+
+
+路飞又充满了自信
+
+
+-----
+
+####  athena_1982  
+##### 54852#       发表于 2021-4-8 18:44
+
+
+雷利肯定是知道霸王色缠绕的，毕竟罗杰跟白胡子打过那么多次。
+
+我记得雷利训练路飞的时候就说了，两年时间不够，只能教基础。路飞只花了一年半就学完了，雷利也没多教，直接就先溜了
+
+毕竟霸王色是天生的，不能锻炼。雷利大概觉得这个得靠个人领悟吧，个人觉得霸王色缠绕比见闻色看未来的难度要高。
+
+正好动画剧情最近在讲罗杰，仔细看看罗杰那招神避，就是霸王色缠绕。难怪御天觉得不可思议。
+
+
+-----
+
+####  亚尔迪8424  
+##### 54853#       发表于 2021-4-8 19:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50873253&amp;ptid=98922" target="_blank">羲和 发表于 2021-4-8 16:15</a>
+
+看了图感觉跟文字情报比还行…这话分镜还挺好的，然后雷利不一定会霸王色缠绕，御田也是像索隆这样放绝招的 ...</blockquote>
+鬼之岛飞到和之国上空 下落呗，倒计时。
+
+所以路飞和凯多分胜负还太早。没想到的是索隆这么快的打完自己全部的子弹
+
+
+-----
+
+####  羲和  
+##### 54854#       发表于 2021-4-8 19:53
+
+
+<blockquote>晴岚 发表于 2021-4-8 18:20
+路飞提到雷利跟他讲过见闻色可以看见未来的时候是在打卡二的时候回忆的。 ...</blockquote>
+那下一话补个雷利的教导回忆你就满足了呗…你这么一说我印象里有次路飞回忆到雷利时候也说过有强者还有更强的招式？不过我一下想不起来是哪里了，等有时间找找
+
+
+-----
+
+####  uswhzh  
+##### 54855#       发表于 2021-4-8 20:01
+
+
+雷利直接让路飞二档三档没副作用变小损命，实力提高到秒杀和平主义者，学会了武装色缠绕和霸气，间接完成了四档，稍稍领悟了见闻色，流樱，怎么就教坏了。建议玩玩海贼无双4，感受一下两年的变化。
+
+
+-----
+
+####  银翼的维罗西  
+##### 54856#       发表于 2021-4-8 20:01
+
+
+虽然是跨版本讨论，黑胡子作为路飞的最后对手，肯定是三色霸气到顶果实觉醒，这样的对手艾斯居然敢不知天高地厚前去逮捕，看来确实是白胡子太溺爱他了，没受过大海的毒打
+
+
+-----
+
+####  羲和  
+##### 54857#       发表于 2021-4-8 20:02
+
+
+<blockquote>亚尔迪8424 发表于 2021-4-8 19:37
+鬼之岛飞到和之国上空 下落呗，倒计时。
+
+所以路飞和凯多分胜负还太早。没想到的是索隆这么快的打完自己全 ...</blockquote>
+要真是降岛这样的剧情还真就没有啥压迫感…总要有个和回忆呼应的爆点，打卡二被人一直念锁血就是缺少这么一个情感爆点，观众不能和路飞产生那种愤怒的共情，越级打架就总有人会觉得尬
+
+
+-----
+
+####  24k纯帅  
+##### 54858#       发表于 2021-4-8 20:10
+
+
+霸王色拖鞋可还行
+
+
+-----
+
+####  klzxs  
+##### 54859#       发表于 2021-4-8 20:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">真要当海贼王就是该有现在的水平
+
+这一仗是必须赢的 就算最后很难看也得赢
+
+前面一棒子没了才是离谱
+
+
+-----
+
+####  hagane  
+##### 54860#       发表于 2021-4-8 20:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这么一来，五皇的2 3 4档还有什么意义……
+
+有凯多在前，后面再对付其他强敌时，1档+霸王色缠绕已经就是标配技能了，还用2 3 4档干啥
+
+纯2档现在很少见了
+
+3档一般配合武装色用可减少身体缩小的debuff
+
+普通4档破不了凯多的防
+
+然后又有问题了，4档会消耗霸气，索隆的阎魔也会吸收霸气
+
+那么这个霸气如果有蓝条的话，是三种霸气共用一条还是三种霸气各自一条呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  亚尔迪8424  
+##### 54861#       发表于 2021-4-8 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50876271&amp;ptid=98922" target="_blank">hagane 发表于 2021-4-8 20:49</a>
+
+这么一来，五皇的2 3 4档还有什么意义……
+
+有凯多在前，后面再对付其他强敌时，1档+霸王色缠绕已经 ...</blockquote>
+武装色就有上限 估计蓝条设定跑不了
+
+
+-----
+
+####  蔡卓妍  
+##### 54862#       发表于 2021-4-8 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50875697&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-4-8 20:01</a>
+虽然是跨版本讨论，黑胡子作为路飞的最后对手，肯定是三色霸气到顶果实觉醒，这样的对手艾斯居然敢不知天高 ...</blockquote>
+看回之前的漫画，就是2个不会霸气的自然系打架…
+
+
+-----
+
+####  DGIL  
+##### 54863#       发表于 2021-4-8 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50875707&amp;ptid=98922" target="_blank">羲和 发表于 2021-4-8 20:02</a>
+
+要真是降岛这样的剧情还真就没有啥压迫感…总要有个和回忆呼应的爆点，打卡二被人一直念锁血就是缺少这么 ...</blockquote>
+现在岛是靠凯多飞起来的吧
+
+打倒凯多估计岛就掉下来了
+
+到时候桃之助或许还有大和让岛平稳降落
+
+
+-----
+
+####  DGIL  
+##### 54864#       发表于 2021-4-8 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50875907&amp;ptid=98922" target="_blank">klzxs 发表于 2021-4-8 20:19</a>
+
+真要当海贼王就是该有现在的水平
+
+这一仗是必须赢的 就算最后很难看也得赢
+
+前面一棒子没了才是离谱 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">如果以后不在随便被人打得翻白眼我倒也认了
+
+
+-----
+
+####  DGIL  
+##### 54865#       发表于 2021-4-8 22:40
+
+
+ 本帖最后由 DGIL 于 2021-4-8 22:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">缠绕霸王色的特效还挺时髦的
+
+其实我想看女帝用，但是不要变硬又黑，变了就没有美感了反正剧场版里面也没变<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">第一个搞霸气缠绕外放的可是九蛇啊
+
+女帝那发吻枪小技能直接把橡胶果实的路飞打痛了
+
+这不就是霸气外放么，射程还超尼玛远
+
+
+-----
+
+####  yeluffy  
+##### 54866#       发表于 2021-4-8 23:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50876271&amp;ptid=98922" target="_blank">hagane 发表于 2021-4-8 20:49</a>
+
+这么一来，五皇的2 3 4档还有什么意义……
+
+有凯多在前，后面再对付其他强敌时，1档+霸王色缠绕已经 ...</blockquote>
+2挡和3挡2年后不就是五皇想开就开的常规技能了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  绝赞販売中  
+##### 54867#       发表于 2021-4-9 00:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50875697&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-4-8 20:01</a>
+虽然是跨版本讨论，黑胡子作为路飞的最后对手，肯定是三色霸气到顶果实觉醒，这样的对手艾斯居然敢不知天高 ...</blockquote>
+问题是黑胡子被濒死白胡子打的喊爹，即便他有让红发受伤的实力，大概率当时也没把霸气练到顶，战斗也只是一部分剪影.最后各自开大解决问题被属性压制了.可能艾斯在当时和无果实黑胡子比较接近，也不是人人对黑暗果实都很了解.不过放他一个人去打一群人，也是漏洞了.二队其他人都死了一样
+
+
+-----
+
+####  灰狼  
+##### 54868#       发表于 2021-4-9 00:13
+
+
+不知道后面会不会出现没有武装色，单靠霸王色缠绕硬怼的选手
+
+
+-----
+
+####  zodiac137  
+##### 54869#       发表于 2021-4-9 01:38
+
+
+雷利不教高级技巧的理由很多啊，很多时候，如果基础没打好就教高级技巧，哪怕只是介绍一下，也会导致学生因为心里老想着高级技巧而无法专注在基础上，反而进步会变慢
+
+就好像我刚学PS的时候，心比较浮躁，基础没打好的情况下就老想着要学一些牛逼的高端技巧，结果反而事倍功半，总之还是先把基础巩固好才是硬道理，高级技巧不知道反而会更有利于沉下心打基础
+
+
+雷利不教不等于不会，很多时候，一些技巧不教反而是对学生好，特别是时间紧迫的情况下。
+
+
+-----
+
+####  千里夜雨  
+##### 54870#       发表于 2021-4-9 12:45
+
+
+打斗分镜还行
+终于不用看索隆一刀切摆pose了
+
+
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 54871#       发表于 2021-4-9 12:52
+
+
+<blockquote>DGIL 发表于 2021-4-8 22:39
+如果以后不在随便被人打得翻白眼我倒也认了</blockquote>
+其实问题就在这，要是真打算进入收关或者说王对王的阶段，再随随便便落马观感上肯定不好的。
+
+
+-----
+
+####  少年包工头  
+##### 54872#       发表于 2021-4-9 19:54
+
+
+已经开始燃了吧，船长宣言。
+“跟你走？你以为我们会跟着你这种白痴？”
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                    
