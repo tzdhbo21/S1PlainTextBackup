@@ -1,4 +1,5 @@
-> ## **本文件最后更新于2021-04-03 08:43** 
+> ## **本文件最后更新于2021-04-09 03:39** 
+
 
 
 -----
@@ -480,6 +481,8 @@ https://mp.weixin.qq.com/s/TRCVyQk-OHZRuEjlQ_mSZQ
 想买5m2,但是看了真机后,真你妈丑,还是1m2好看,可是1太贵了,这是要逼我买隔壁苹果阿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  wizardasd  
@@ -949,6 +952,8 @@ Xperia 1 II 国行支持三大运营商所有 5G 网络，Xperia 5 II 少支持�
 —— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
 
 
+
+
 -----
 
 ####  asakura20005  
@@ -1362,6 +1367,8 @@ Xperia 10 II 将于 2021 年第二季度开始推送。
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">第一批都开始发货了，我的机机还在路上
+
+
 
 
 -----
@@ -1836,6 +1843,8 @@ Audiopro！ 4.4！</blockquote>
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.36)
 
 
+
+
 -----
 
 ####  mhss  
@@ -2088,15 +2097,7 @@ Audiopro！ 4.4！</blockquote>
 ####  auraria  
 ##### 1636#       发表于 2020-10-21 22:09
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49116982&amp;ptid=1915171" target="_blank">垃圾网站上 发表于 2020-10-21 18:54</a>
-比想象中小，算是玩上一回所谓小屏旗舰了，吃了几年三星P排抹布屏的屎眼睛瞬间舒服
-
-
-还是那个逻辑鬼才索尼 ...</blockquote>
-最大的本地化是支持微信指纹支付了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -2273,6 +2274,8 @@ Audiopro！ 4.4！</blockquote>
 
 没插sim卡，机器自带了google框架和市场，但 ...</blockquote>
 话说我的手机一插 Sim 卡就不显示 feed 了，以前的禁止拿电话权限的做法好像不起效。你居然没有这个问题吗，有没有什么特殊操作？
+
+
 
 
 -----
@@ -2688,6 +2691,8 @@ AIDA64就可以
 居然有点失望<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  jbjgd  
@@ -2831,14 +2836,7 @@ AIDA64就可以
 ####  auraria  
 ##### 1692#       发表于 2020-10-23 18:54
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49140042&amp;ptid=1915171" target="_blank">飞翔的兔子 发表于 2020-10-23 14:02</a>
-查了一下，是12G的没错……
-
-居然有点失望</blockquote>
-同失望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-
-—— 来自 Sony XQ-AT72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3056,6 +3054,8 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 
 
 问下，现在5ii就只有京东有吗？这手机没啥送的吗？优惠有没有？双11会不会降价？
+
+
 
 
 -----
@@ -3458,6 +3458,8 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 前面楼里看到说好像就是7799，跟现在老用户官网发-200券其实是一样的？ 不过也难保索尼中国会不会搞出什么奇葩操作…
 
 
+
+
 -----
 
 ####  onemoment  
@@ -3843,6 +3845,8 @@ google play有，开发商是sony mobile communication
 
 
 1 ii的黑色很漂亮，就是贵了点~
+
+
 
 
 -----
@@ -4268,6 +4272,8 @@ google play有，开发商是sony mobile communication</blockquote>
 希望渺茫，目前没有听说索尼要做NFC门禁卡复制的风声。
 
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
 
 
 -----
@@ -4730,6 +4736,8 @@ x1突然摔坏了所以临时起意买了马克兔，想问下这代国行安装
 已挂二手区
 
 
+
+
 -----
 
 ####  jbjgd  
@@ -5102,6 +5110,8 @@ PS remote play的话可以正常打开，登录，搜寻主机。
 
 —— 来自 Sony XQ-AT52, Android 10上的 S1Next-鹅版 v2.4.3</blockquote>
 噔噔咚
+
+
 
 
 -----
@@ -5511,6 +5521,8 @@ island的原理是工作空间，这是一个完全独立的空间，大部分RO
 7寸是 Ultra 回归？
 
 
+
+
 -----
 
 ####  我很费纸  
@@ -5890,6 +5902,8 @@ v2.4.3</blockquote>那短信能像国内猴机系统，自动显示哪个卡收�
 我刚刚测了一下，我发现无论开关杜比音效都有那个滋滋声，包括自带的那首hires也有这也问题。。。然后开关动态震动时也会有这样滋~的一声
 
 
+
+
 -----
 
 ####  wenze  
@@ -6238,6 +6252,8 @@ ip12mini那个电池续航把我看尿了，回头看看索尼x5ii这才是小�
 就是运存内存有点小
 
 —— 来自 vivo V1829A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
 
 
 -----
@@ -6623,6 +6639,8 @@ SONY 索尼 Xperia 5 II 5G智能手机 8GB+128GB 亚马逊海外购目前4799.83
 这代最迷惑的是计算器没了，市场里也找不到，不知道在干嘛
 
 
+
+
 -----
 
 ####  allenz2  
@@ -7006,6 +7024,8 @@ https://m.tb.cn/h.4UWXvkB?sm=9470c6【索尼Xperia 1钢化膜X1 II玻璃膜J9 ..
 —— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
+
+
 -----
 
 ####  Tochika  
@@ -7354,6 +7374,8 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 
 
 据说国行新版本升级后连网络通信功能都有 bug… 国行用户可以晚点更新。索尼中国啊真的是
+
+
 
 
 -----
@@ -7745,6 +7767,8 @@ Xperia 5 (J9210) 国行固件 55.1.A.12.28 链接：[https://pan.baidu.com/s/1B1
 不亏，等等便宜多了
 
 —— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
 
 
 -----
@@ -8177,6 +8201,8 @@ mk2和1代之间的差距简直不像是时隔一年的产物，硬要说的感�
 
 
 有朋友的国行1马克兔前阵子OTA了吗？我OTA完后，发现NFC残了，之前能用微信qq读公交卡的。更重要的是：GPS无法导航了，地图软件定位正常，但一旦进入导航10秒以上，就提示GPS信号弱了。这是不是该系统版本的问题，现在恢复出厂无法解决问题，我还找不到国行初版固件。。。
+
+
 
 
 -----
@@ -8635,6 +8661,8 @@ Photography Pro 新增照片纵横比快捷设置按钮、MR 模式，及连拍�
 长按电源键的界面等细节也跟随 Android 11 改变。
 
 
+
+
 -----
 
 ####  楠芽吹  
@@ -9031,6 +9059,8 @@ CNM，重启以后连3个中核都给我锁了，现在变成4核A55了</blockqu
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
 -----
 
 ####  ziyo  
@@ -9385,6 +9415,8 @@ X1更新完指纹解锁没了？
 <blockquote>无印凉粉 发表于 2021-1-28 18:36
 安卓10不升级也支持微信指纹支付啊</blockquote>
 我指的是商店，感觉是加了腾讯一堆广告？
+
+
 
 
 -----
@@ -9808,6 +9840,8 @@ Pro 看起来也不会有什么热度的样子，不知道专业人士会不会�
 —— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
 -----
 
 ####  みかこし  
@@ -10202,6 +10236,8 @@ B站呀   云音乐呀
 
 
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
 
 
 -----
@@ -10615,6 +10651,8 @@ ehv是整个屏幕左右拉都ok，对手势很友好
 国行X1马克兔到手了，把Xperia 中文键盘和日文键盘折腾好用起来终于舒服了！
 
 把play商店装好我觉得和我以前用Z5P港版没差多少，更新游戏也方便
+
+
 
 
 -----
@@ -11046,6 +11084,8 @@ ps 请问是移动的手机号吗
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
+
+
 -----
 
 ####  我很费纸  
@@ -11358,12 +11398,7 @@ ip68对付普通水流没问题的</blockquote>
 ####  auraria  
 ##### 2334#       发表于 2021-2-23 06:21
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50384279&amp;ptid=1915171" target="_blank">黑之月 发表于 2021-2-20 10:12</a>
-用国行的各位最近还有信号卡死问题吗，感觉春节后好像就没遇到过了。不过因为老家5g信号太差我把5g给关了， ...</blockquote>
-我用的电信5G，就体感而言，开着5G在某些有5G信号的地方是显示5G满格但完全无网络连接，不管切飞行模式还是重启均无效，强制4G就正常，离开这些区域又会恢复正常。我怀疑是频段支持问题，有问题的地方是近期新上5G的。
-
-—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -11431,6 +11466,8 @@ ip68对付普通水流没问题的</blockquote>
 5马克2有人能说下怎么样不，另外淘宝上销量最高的卖索索机子的店靠谱不，话说为啥京东上索尼机子一下子没了，搜港版日版都搜不到，只有价格看了就不想买的那种
 
 [  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
 
 
 -----
@@ -11811,6 +11848,8 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 2. Wifi兼容性改进.
 
 3. 5G网络连接性能改进.
+
+
 
 
 -----
@@ -12230,6 +12269,8 @@ XZP换了国行 1M2感觉续航高了不少，超过以往Z5和XZP的体验，�
 是长时间没有关机吗？之前我一个半月没关机之后某天连后台都拉不出来了，关机再开机就好了。希望对你有帮助<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  飞翔的兔子  
@@ -12647,6 +12688,8 @@ mark3什么时候出啊，这mark2降价太慢了，我的xz1c这两天有些屏
 我是没想到阿索家的机器品控问题会出在我头上<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  被雨困住的城市  
@@ -13062,6 +13105,8 @@ X5M2的港版更新了，然而并没有修复，继续7核有难，大核围观
 喷了,我更新完也发现了这个问题
 
 
+
+
 -----
 
 ####  newtypelv2  
@@ -13468,6 +13513,8 @@ Xperia 5 II 国行 AS72 Android 11 升级（更新版本号 58.1.A.3.112）反�
 交给东京来管理了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  andychen  
@@ -13848,6 +13895,8 @@ geekbench5 CPU跑分大幅度下降。3d mark GPU跑分基本没有变化。
 
 
 ----发送自 [Sony XQ-AT72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
 
 
 -----
@@ -14264,6 +14313,8 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 大部分问题我都在xzp和z2上遇到过…感觉sony是不是一点长进都没有啊…
 
 
+
+
 -----
 
 ####  xzk0916  
@@ -14665,6 +14716,8 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 ...这样拿在手里不会很膈应嘛，老xz系列关了动态一点不震啊，难道震才是受欢迎的口味？
 
 
+
+
 -----
 
 ####  月神侠  
@@ -14676,4 +14729,467 @@ xz1和xzp升了相机会出问题，80%的几率SD卡错误直接闪退，我老
 如果你实在改不过来的话，升级到最新版本的安卓11，可以使用旧版的主页跟索尼相册的
 
 
-             
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yuikonnu| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  zjf  
+##### 2582#       发表于 2021-4-3 20:30
+
+
+诸君有没有遇到过riru突然失效的情况？
+上午突然与征兆重启，之后存储重定向的增强模式就再也打不开了。。。
+
+—— 来自 Sony XQ-AS52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Vicarious  
+##### 2583#       发表于 2021-4-4 12:07
+
+
+有没有人遇到过突然全面屏手势的多任务窗口死活弹不出来的情况。。。
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  2002126  
+##### 2584#       发表于 2021-4-4 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50828714&amp;ptid=1915171" target="_blank">Vicarious 发表于 2021-4-4 12:07</a>
+
+有没有人遇到过突然全面屏手势的多任务窗口死活弹不出来的情况。。。
+
+
+—— 来自 Sony XQ-AT52, Android 11 ...</blockquote>
+有 更新11后经常 建议重启 技术的索尼
+
+
+-----
+
+####  fksoul  
+##### 2585#       发表于 2021-4-6 02:24
+
+
+犹豫了很久终于决定下单Xperia 1 ii.
+
+
+人在国外，想问下如果买国行版该怎么添加Google 全家桶？是否需要刷机折腾之类的步骤？
+
+
+-----
+
+####  Cray  
+##### 2586#       发表于 2021-4-6 03:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50844629&amp;ptid=1915171" target="_blank">fksoul 发表于 2021-4-6 02:24</a>
+
+犹豫了很久终于决定下单Xperia 1 ii.
+
+
+人在国外，想问下如果买国行版该怎么添加Google 全家桶？是否需要刷 ...</blockquote>
+都自带的直接用就好
+
+
+国行恶心的在于默认百度输入法删不掉
+
+
+-----
+
+####  wizardasd  
+##### 2587#       发表于 2021-4-6 11:20
+
+
+更新完11那些弱智的闹钟提醒又出来了，还多出来了好几个……
+实在忍不了了
+谁能给推荐个干净好用的闹钟？
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  月神侠  
+##### 2588#       发表于 2021-4-6 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50846998&amp;ptid=1915171" target="_blank">wizardasd 发表于 2021-4-6 11:20</a>
+
+更新完11那些弱智的闹钟提醒又出来了，还多出来了好几个……
+
+实在忍不了了
+
+谁能给推荐个干净好用的闹钟？</blockquote>
+用旧版的索尼时钟，我新版的禁用了
+
+
+-----
+
+####  Nin1ive  
+##### 2589#       发表于 2021-4-6 13:33
+
+
+XZ3换马克兔 最大的问题是长时间连wifi后SIM卡会直接信号清空 每次出门都得重启 移动4G卡
+
+这是11的bug吗？
+
+
+-----
+
+####  wqm2008  
+##### 2590#       发表于 2021-4-6 13:34
+
+
+更新：
+
+
+1.音量键失灵，电源键依旧失灵，指纹失灵，只有相机键存活。
+
+
+2.电话打不出去，拨号会自动跳转
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/133418xpn0n646pp6j1pfp.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210406-130430.png</strong> (66.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 13:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/133424m7mbxm37d3167x23.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210406-130148.png</strong> (51.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 13:34 上传
+
+
+以上两种情况
+
+
+-----
+
+####  wqm2008  
+##### 2591#       发表于 2021-4-6 13:43
+
+
+现在我想问问xperia这手机如何不使用实体物理按键进行重启？
+
+
+-----
+
+####  wizardasd  
+##### 2592#       发表于 2021-4-6 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50847031&amp;ptid=1915171" target="_blank">月神侠 发表于 2021-4-6 11:23</a>
+用旧版的索尼时钟，我新版的禁用了</blockquote>
+旧版时钟在哪儿下？给个链接吧
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  月神侠  
+##### 2593#       发表于 2021-4-6 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50849202&amp;ptid=1915171" target="_blank">wizardasd 发表于 2021-4-6 14:45</a>
+
+旧版时钟在哪儿下？给个链接吧
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+[https://www.apkmirror.com/apk/sony-mobile-communications/](https://www.apkmirror.com/apk/sony-mobile-communications/)
+
+
+-----
+
+####  暗铁  
+##### 2594#       发表于 2021-4-6 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50848578&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-4-6 13:43</a>
+现在我想问问xperia这手机如何不使用实体物理按键进行重启？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">adb shell reboot
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 2595#       发表于 2021-4-6 15:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50848499&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-4-6 13:34</a>
+更新：
+
+
+1.音量键失灵，电源键依旧失灵，指纹失灵，只有相机键存活。</blockquote>
+艹，这是这也太技术的翔移了，严重怀疑你这已经是硬件问题了，找售后吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wqm2008  
+##### 2596#       发表于 2021-4-6 16:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50849812&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-6 15:43</a>
+
+艹，这是这也太技术的翔移了，严重怀疑你这已经是硬件问题了，找售后吧
+
+
+—— 来自 Sony XQ-AS72, ...</blockquote>
+而且现在不能熄屏了，无论设置15s,30s还是多久，无法熄屏
+
+
+我马上就去售后
+
+
+-----
+
+####  iceprince10  
+##### 2597#       发表于 2021-4-6 16:28
+
+
+更新到11之后最智障的就是多任务。。两个版本更新了，手势上划多任务还是经常抽风
+
+
+-----
+
+####  月神侠  
+##### 2598#       发表于 2021-4-6 16:33
+
+
+重启+重置治百病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 2599#       发表于 2021-4-6 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50850421&amp;ptid=1915171" target="_blank">iceprince10 发表于 2021-4-6 16:28</a>
+更新到11之后最智障的就是多任务。。两个版本更新了，手势上划多任务还是经常抽风 ...</blockquote>
+你的抽风是不是在关闭游戏或者某些横屏类应用以后出现的
+
+多任务在横屏应用关闭后有一定概率无法切回竖屏模式，要再进退一次多任务才正常
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leyenda  
+##### 2600#       发表于 2021-4-6 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50851129&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-6 17:23</a>
+
+你的抽风是不是在关闭游戏或者某些横屏类应用以后出现的
+
+
+多任务在横屏应用关闭后有一定概率无法切回竖屏 ...</blockquote>
+这个还是微软桌面+手势导航导致的，任意放弃一个可破
+
+
+-----
+
+####  tgwing  
+##### 2601#       发表于 2021-4-6 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50852825&amp;ptid=1915171" target="_blank">leyenda 发表于 2021-4-6 19:51</a>
+这个还是微软桌面+手势导航导致的，任意放弃一个可破</blockquote>
+索尼自己的也是这样的，基本百分百复现
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  后会无期  
+##### 2602#       发表于 2021-4-6 20:42
+
+
+话说。。X5II这个拒接电话怎么拒？来电页面虽然显示向下滑拒接，但是我拉不下去啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wqm2008  
+##### 2603#       发表于 2021-4-6 20:44
+
+
+因为手机在我看不见的不知道是什么台一直在拨打一个诡异的香港电话号码。
+
+
+导致语音被占用，微信语音是发不了的。
+
+
+然后好像，不能熄屏也是因为这个，貌似是一直因为处于呼叫状态，所以无法熄屏
+
+
+我希望这手机能撑到我从实验室回去，我好把手机里面的文件转出来。
+
+
+周四就去售后，等着我翔移。
+
+
+-----
+
+####  wqm2008  
+##### 2604#       发表于 2021-4-6 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50849812&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-6 15:43</a>
+
+艹，这是这也太技术的翔移了，严重怀疑你这已经是硬件问题了，找售后吧
+
+
+—— 来自 Sony XQ-AS72, ...</blockquote>
+就是软件问题，我这无论拨谁的电话都打不出去，在我看不见的不知道什么台这手机一直在试图拨打这个香港电话，然后占用我的语音。
+
+
+中午那个香港电话好像还打来了一次，但我既没法接，也没法挂掉。
+
+
+最后你猜怎么解决的，我用小米手环挂的电话。
+
+
+-----
+
+####  Cray  
+##### 2605#       发表于 2021-4-6 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50853358&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-4-6 20:46</a>
+就是软件问题，我这无论拨谁的电话都打不出去，在我看不见的不知道什么台这手机一直在试图拨打这个香港电 ...</blockquote>
+你这是中木马了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">存好文件重置看看咯
+
+
+-----
+
+####  Cray  
+##### 2606#       发表于 2021-4-6 22:57
+
+
+<blockquote>引用第2601楼后会无期于2021-04-06 20:42发表的  :
+
+话说。。X5II这个拒接电话怎么拒？来电页面虽然显示向下滑拒接，但是我拉不下去啊</blockquote>
+任意位置向下滑就行了 …
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  wqm2008  
+##### 2607#       发表于 2021-4-6 23:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50854322&amp;ptid=1915171" target="_blank">Cray 发表于 2021-4-6 22:33</a>
+
+你这是中木马了吧存好文件重置看看咯</blockquote>
+这手机感觉突然像变成杰克了一样，现在哪怕连电源线充电都会发出我不认识的叮的一声
+
+
+如果说中木马了，那也太离谱了，都2021年了，我又不下载什么不干净的文件。
+
+
+这一切的开始都是从音量键失灵开始的
+
+
+-----
+
+####  我很费纸  
+##### 2608#       发表于 2021-4-7 08:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50853358&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-4-6 20:46</a>
+就是软件问题，我这无论拨谁的电话都打不出去，在我看不见的不知道什么台这手机一直在试图拨打这个香港电 ...</blockquote>
+你这要不是硬件有问题……我觉得索移工程师应该给你钱，简直匪夷所思的bug<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+纯软件问题的话感觉就像是被人走后台root了，然后被改成了骚扰电话肉鸡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wqm2008  
+##### 2609#       发表于 2021-4-7 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50856734&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-7 08:50</a>
+
+你这要不是硬件有问题……我觉得索移工程师应该给你钱，简直匪夷所思的bug
+
+
+纯软件问题的话感觉就 ...</blockquote>
+索移给我打钱！太匪夷所思了！
+
+
+-----
+
+####  fksoul  
+##### 2610#       发表于 2021-4-8 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50844694&amp;ptid=1915171" target="_blank">Cray 发表于 2021-4-6 03:01</a>
+
+都自带的直接用就好
+
+
+国行恶心的在于默认百度输入法删不掉</blockquote>
+感谢，不用单独下载Google Play Store的话省了太多麻烦..
+
+
+
+
+-----
+
+####  wqm2008  
+##### 2611#       发表于 2021-4-9 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50828714&amp;ptid=1915171" target="_blank">Vicarious 发表于 2021-4-4 12:07</a>
+
+有没有人遇到过突然全面屏手势的多任务窗口死活弹不出来的情况。。。
+
+
+—— 来自 Sony XQ-AT52, Android 11 ...</blockquote>
+当然有了
+
+
+            
