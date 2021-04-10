@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-10 07:39** 
+> ## **本文件最后更新于2021-04-10 15:41** 
 
 
 
@@ -10972,10 +10972,11 @@ md mk2不是跟女友分手了吗？</blockquote>
 评分
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| GRMeA104| + 1|可爱|
 | 雪风utopia| + 1|别害羞，冲就冲了|
 | A2014720| + 1|艹艹艹艹|
 | 路人庚| + 1|害羞了，可爱|
@@ -11145,4 +11146,368 @@ syl 这组合的mv真的很迷，我想找点灵感但是很难，还是随便�
 你醒啦，kpi已经打完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-              
+-----
+
+####  雪风utopia  
+##### 13057#       发表于 2021-4-10 15:40
+
+
+明明是光明贴贴人大战黑暗天狗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13058#       发表于 2021-4-10 15:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是回旋天狗
+
+
+-----
+
+####  ARATANG  
+##### 13059#       发表于 2021-4-10 15:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  physi1202  
+##### 13060#       发表于 2021-4-10 15:57
+
+
+🏃🏃🏃
+
+
+-----
+
+####  时间在我手中  
+##### 13061#       发表于 2021-4-10 15:58
+
+
+你们是不是没搞懂什么叫回旋<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13062#       发表于 2021-4-10 16:01
+
+
+没啥，见多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13063#       发表于 2021-4-10 16:14
+
+
+有没有回旋的理由，想听听<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 13064#       发表于 2021-4-10 16:18
+
+
+今天是不是有传说中的会限<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13065#       发表于 2021-4-10 16:22
+
+
+有你也中不了
+
+—— 来自 HUAWEI BKK-AL10, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  pei23333  
+##### 13066#       发表于 2021-4-10 16:25
+
+
+人都没动静呢，应该是没有了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  时间在我手中  
+##### 13067#       发表于 2021-4-10 16:37
+
+
+这人早上6点下的播，还去了便利店买东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">保守估计能八点昏睡都算好的了
+
+
+-----
+
+####  Mikumiku831  
+##### 13068#       发表于 2021-4-10 17:23
+
+
+无妨 今晚预定通宵 跟小麻战个痛快<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13069#       发表于 2021-4-10 17:25
+
+
+今晚会有什么新的玩法呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 13070#       发表于 2021-4-10 17:51
+
+
+一天没看结果错过了大戏草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 13071#       发表于 2021-4-10 18:55
+
+
+20210410东京19点（1、2）
+
+
+<img src="https://img.saraba1st.com/forum/202104/10/185503z3lng37almal9a6k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>5D6DD3A8-3654-43BA-B3EF-19E45C4DA6CC.jpeg</strong> (201.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-10 18:55 上传
+
+
+-----
+
+####  Mr.shelter  
+##### 13072#       发表于 2021-4-10 19:01
+
+
+十点会限，好好好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  turezyy  
+##### 13073#       发表于 2021-4-10 19:04
+
+
+问一下，小麻会限看之前讨论好像是抽会员画头像，这个是所有会员随机抽还是在直播时候发言会员里抽还是怎样?
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+-----
+
+####  柚子皮  
+##### 13074#       发表于 2021-4-10 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50896672&amp;ptid=1973472" target="_blank">turezyy 发表于 2021-4-10 19:04</a>
+
+问一下，小麻会限看之前讨论好像是抽会员画头像，这个是所有会员随机抽还是在直播时候发言会员里抽还是怎样 ...</blockquote>
+从直播在的里面抽
+
+
+-----
+
+####  A2014720  
+##### 13075#       发表于 2021-4-10 22:13
+
+
+这会限就在那嗯养噶吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 13076#       发表于 2021-4-10 22:15
+
+
+不也挺好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  GRMeA104  
+##### 13077#       发表于 2021-4-10 22:21
+
+
+麻了,会限整点没语言壁垒的活行不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 13078#       发表于 2021-4-10 22:32
+
+
+做笔记必可活用于下次，好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13079#       发表于 2021-4-10 22:37
+
+
+延迟真大，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  柚子皮  
+##### 13080#       发表于 2021-4-10 22:49
+
+
+抽到Mixi还行
+
+
+
+
+-----
+
+####  A2014720  
+##### 13081#       发表于 2021-4-10 22:52
+
+
+这人在玩沙耶之歌吧，mix会变成anti吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  柚子皮  
+##### 13082#       发表于 2021-4-10 22:56
+
+
+嘻嘻抽到我了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GRMeA104| + 1|我不能接受|
+| thisisaspider| + 1|好评加鹅|
+| 路人庚| + 1|我酸了|
+
+
+查看全部评分
+
+
+-----
+
+####  路人庚  
+##### 13083#       发表于 2021-4-10 22:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mixi一如既往的高兴（
+
+
+-----
+
+####  时间在我手中  
+##### 13084#       发表于 2021-4-10 22:57
+
+
+我就在想会不会有楼友，猜对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13085#       发表于 2021-4-10 23:07
+
+
+我在想会员限定这个1踩是谁
+
+
+-----
+
+####  路人庚  
+##### 13086#       发表于 2021-4-10 23:09
+
+
+刚开待机间的时候不是会限，那时候冒出来的踩
+
+
+-----
+
+####  Mr.shelter  
+##### 13087#       发表于 2021-4-10 23:18
+
+
+之前会限也有踩的来着
+
+
+-----
+
+####  elect  
+##### 13088#       发表于 2021-4-10 23:20
+
+
+没抽到头像就很难不想点踩👿
+
+
+-----
+
+####  路人庚  
+##### 13089#       发表于 2021-4-10 23:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从来没中过，已经随缘了
+
+
+-----
+
+####  时间在我手中  
+##### 13090#       发表于 2021-4-10 23:21
+
+
+每周6000条轴你也可以抽到！<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13091#       发表于 2021-4-10 23:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没抽到的在疯狂取消赞
+
+
+-----
+
+####  路人庚  
+##### 13092#       发表于 2021-4-10 23:36
+
+
+下了说了明天还有，不过没说是会限，估计是正常播了
+
+
+             
