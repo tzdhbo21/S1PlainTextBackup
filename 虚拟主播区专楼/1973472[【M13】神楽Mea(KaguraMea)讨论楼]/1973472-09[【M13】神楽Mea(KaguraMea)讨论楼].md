@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-10 03:44** 
+> ## **本文件最后更新于2021-04-10 04:48** 
 
 
 
@@ -10341,4 +10341,724 @@ md mk2不是跟女友分手了吗？</blockquote>
 就这脑溢血水平楼友还能这么饶有兴致地辩下去也是佩服，不过能截下来应该也能当个很好用的素材。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-                 
+
+
+-----
+
+####  Cuppco  
+##### 12991#       发表于 2021-4-10 11:45
+
+
+所以我没搞懂恶意那么大干啥
+她要真做了岂不是要原地退坑？
+那bls前的那段日子是咋扛过来的？
+
+照楼上说的
+她要是再犯蠢又冲锋一波
+那明天起在楼里就见不到您了？
+
+还拿绿绿对猪肉做比较
+那阿拉要吃猪肉咋办？
+反正我以阿拉自己的行为为标准嗷
+
+
+-----
+
+####  草牛  
+##### 12992#       发表于 2021-4-10 11:46
+
+
+他会把自己账号mute，然后再交5块钱回旋
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雪风utopia| + 1|回旋!|
+| A2014720| + 1|艹|
+
+
+查看全部评分
+
+
+-----
+
+####  noaki  
+##### 12993#       发表于 2021-4-10 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50892864&amp;ptid=1973472" target="_blank">Cuppco 发表于 2021-4-10 11:45</a>
+所以我没搞懂恶意那么大干啥
+她要真做了岂不是要原地退坑？
+那bls前的那段日子是咋扛过来的？</blockquote>
+能再多说点这样的话吗，你的话真的很有趣。
+我会满怀感激地好好地使用的
+
+
+-----
+
+####  Cuppco  
+##### 12994#       发表于 2021-4-10 11:47
+
+
+很简单啊，因为
+一我对粉毛母人也抱有恶意
+二我不是贴贴人
+
+
+-----
+
+####  Mr.shelter  
+##### 12995#       发表于 2021-4-10 11:48
+
+
+别辩了别辩了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，大早上干啥不好在M楼较真
+
+
+-----
+
+####  时雨rain  
+##### 12996#       发表于 2021-4-10 11:49
+
+
+尸体在说话<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 12997#       发表于 2021-4-10 11:50
+
+
+话说，你楼真的还存在连体壬吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 12998#       发表于 2021-4-10 11:50
+
+
+ 本帖最后由 时间在我手中 于 2021-4-10 11:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50892864&amp;ptid=1973472" target="_blank">Cuppco 发表于 2021-4-10 11:45</a>
+
+所以我没搞懂恶意那么大干啥
+
+她要真做了岂不是要原地退坑？
+
+那bls前的那段日子是咋扛过来的？</blockquote>
+你喜欢说就说啊，这跟楼友叼你有什么必然关系吗
+
+我从头到尾论证的就是你说这些批话会被看不惯的楼友叼的事实啊，
+
+你上海阿拉吃猪肉就吃啊，关我几把事呢，你是不是听不懂什么叫做比喻手法
+
+要我回去找你那小学的语文老师多帮你补补课吗？
+
+亦或者我表演一下官组那几个傻卵11月那时候的狗样也行嘛，没了个大亏跟哭丧似的咩夸咩夸嘻嘻嘻，反正我那晚开心得很，主播不开心我可不知道，傻逼官组飞狗布丁喜欢狗叫关我屁事呢
+
+整天YY着杏花死了四字母就能如何如何的，却不知道四字母外网有今天没了杏花她亏女士就是个JB，活生生像群没工作在读书喊着要【自由】的哈皮傻卵
+
+反正你要神乐mea滚出M楼那你去找45，皮套是他的，来嘛，别继巴嘴硬被怼了还要跟我狗叫，我恶意大就大了。
+
+反正网络上我难不成还要像以前官组连体狗一样，不喜欢大亏就等于dislike神乐女士
+
+来套不XXX就开除XXX籍贯是吧，笑嘻了，玩诡辩玩的厉害嗷
+
+年年月月都有这种以为楼友讨厌的是A的人玩辨经，然后车了半天结果也不会变，你要慢慢YY脑补然后称呼带个三酱来讨论的话，那我真的要叫45跟你这hape聊聊了
+
+毕竟说难听那个叫什么dualist的傻卵大家火都还算眼熟，一般也懒得叼他那弱智发散，或者楼友都屏蔽了也说不定
+
+你这种说话带个三酱的，建议去官组考核，反正徐带翻译说得好，不就是说了个三字母而已嘛，完全不用道歉都行的，笑嘻了
+
+
+-----
+
+####  路人庚  
+##### 12999#       发表于 2021-4-10 11:51
+
+
+你在这里带头发散贝贝，然后转头要把神乐mea开除此楼，然后转头又说你自己不是贝贝人？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你本意就是来开除神乐mea的对8？
+
+
+-----
+
+####  Mr.shelter  
+##### 13000#       发表于 2021-4-10 11:52
+
+
+建议楼友恰恰饭，散散步，不要在对线上浪费时间<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 13001#       发表于 2021-4-10 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cuppco  
+##### 13002#       发表于 2021-4-10 11:55
+
+
+不是
+那开野男人玩笑的算啥？
+就
+粉毛母人是比野男人更为恶劣的说法
+这个逻辑到底是怎么形成的？
+
+
+-----
+
+####  Cushaw  
+##### 13003#       发表于 2021-4-10 11:56
+
+
+五元cp厨和肉体民何时可以进场啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  路人庚  
+##### 13004#       发表于 2021-4-10 11:56
+
+
+ 本帖最后由 路人庚 于 2021-4-10 11:58 编辑 
+
+发散没有高低，但发散粉毛可以开除神乐mea，这就是发散粉毛高人一等的原因嗷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说白了就是到处刷粉毛的太多了，看着烦，懂了伐？
+
+
+-----
+
+####  Mr.shelter  
+##### 13005#       发表于 2021-4-10 11:59
+
+
+很简单啦，因为你楼大部分讨厌那谁胜过野男人，讨厌与之相关的粉丝胜过野男人。仅此而已罢了。
+
+
+-----
+
+####  时雨rain  
+##### 13006#       发表于 2021-4-10 11:59
+
+
+可能楼里的人更想看麻麻和野男人的⭐爱流出而不是麻麻和幕刃的百合花开吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13007#       发表于 2021-4-10 12:00
+
+
+野男人是一种概念，是你也可能是我<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13008#       发表于 2021-4-10 12:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">区别可能是发散野男人没人跟我对线
+还不是你们不够努力🤣
+
+
+-----
+
+####  Cuppco  
+##### 13009#       发表于 2021-4-10 12:03
+
+
+我寻思你看回复是只搜索关键字的？
+为啥就快进到我是连体人了？
+她四字母死不死关我啥事？
+
+你这是有思想钢印还是怎么的？
+看到有人提到相关tag了就是粉毛母人的粉丝？
+来你划个道，说说看
+要我怎么说能说明我不是贴贴人？
+是要我把那位全家整个户口本全部扬一遍还是怎么的？
+怪了还
+
+
+-----
+
+####  专业划水人员  
+##### 13010#       发表于 2021-4-10 12:03
+
+
+你们发散能不能加点兔鞠啊？每次都老三样。不觉得坏坏的麻加受受的兔鞠有点好冲吗！！！
+
+
+-----
+
+####  A2014720  
+##### 13011#       发表于 2021-4-10 12:04
+
+
+让你随便发粉毛的楼又不是没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+等下次她再为某人把自己和自己的事业捅个对穿时我也在这楼一起发散<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13012#       发表于 2021-4-10 12:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你急个锤子啊？别人提醒你一句贝贝自动转隔壁贝贝楼，你就开始发疯了，怪了还
+
+
+-----
+
+####  nulla03  
+##### 13013#       发表于 2021-4-10 12:05
+
+
+欢迎大家到隔壁和我一起做暗黑贴贴人
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13014#       发表于 2021-4-10 12:06
+
+
+你要吵架慢慢几把自嗨去，我还有事要做，没空叼你这种提个朋友就是四字母的破玩意儿，至于你是不是连体人还是什么臭几把别的，关我屁事
+
+
+您要这么在意我给您泼的污水，那这样算了，恁的确不是连体人，我道歉嗷，那您的三酱称呼给个说法，不然就赶紧爬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 13015#       发表于 2021-4-10 12:07
+
+
+打 用力打 不打不知道痛
+
+
+-----
+
+####  Cuppco  
+##### 13016#       发表于 2021-4-10 12:07
+
+
+我就随便提了句
+甚至还算是黑称
+我就被打成贴贴人要出门左拐了
+
+我寻思贴贴人算是侮辱性称呼吧
+原来是我先急了啊
+
+
+-----
+
+####  Joffre✔  
+##### 13017#       发表于 2021-4-10 12:08
+
+
+很简单 因为野男人没有粉丝 而粉毛有 还有不少nt
+
+
+-----
+
+####  fsfs_freeze  
+##### 13018#       发表于 2021-4-10 12:09
+
+
+大中午的干嘛呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cuppco  
+##### 13019#       发表于 2021-4-10 12:10
+
+
+所以我真的很困惑
+你是真看不懂我那句话的意思是“连体人不会用粉毛母人和三酱这类黑称来称呼两个人，所以我这么喊四字母了所以我不是连体人”吗
+当然你要告诉我贴贴人内部已经这么称呼了那算是我孤陋寡闻了
+
+
+-----
+
+####  深渊萃取  
+##### 13020#       发表于 2021-4-10 12:10
+
+
+什么，贴贴人已经是侮辱性称呼了？好耶，版本进化得太快了⑧，我有点跟不上节奏，大师教教我
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 13021#       发表于 2021-4-10 12:10
+
+
+已经看不懂你楼了，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13022#       发表于 2021-4-10 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50893104&amp;ptid=1973472" target="_blank">Cuppco 发表于 2021-4-10 12:07</a>
+
+我就随便提了句
+
+甚至还算是黑称
+
+我就被打成贴贴人要出门左拐了</blockquote>
+贴贴人怎么就是侮辱性称呼了？连体人才是吧
+
+就直说了 我是偏咩的贴贴人 以前的贴贴回我每场都看 也是我至今最喜欢的v圈节目 但你这种无端发散恶心人的连体人能不能爬啊
+
+
+-----
+
+####  甘栗No.007  
+##### 13023#       发表于 2021-4-10 12:11
+
+
+希望大伙吃完午饭都能正常点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 13024#       发表于 2021-4-10 12:11
+
+
+阳光贴贴人.... <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13025#       发表于 2021-4-10 12:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是，他的意思是他不喜欢贴贴人，所以贴贴人对他来说是侮辱性称呼
+我觉得这楼有一个战狂就差不多得了😅
+
+
+-----
+
+####  Cuppco  
+##### 13026#       发表于 2021-4-10 12:13
+
+
+哦，有意思
+不然解释下贴贴人和连体人的区别呗？
+我是真不太懂哦
+
+
+-----
+
+####  Mr.shelter  
+##### 13027#       发表于 2021-4-10 12:14
+
+
+贴贴人和连体人的区别大概相当于单推和毒唯吧
+
+
+-----
+
+####  路人庚  
+##### 13028#       发表于 2021-4-10 12:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这位说的大概是最初的那一句“粉毛”（原来“粉毛”在这位眼中也能算是黑称
+
+↓
+
+逻辑：我用“粉毛”这个黑称称呼了凑阿库娅，我肯定没问题罢
+
+
+另外后面有人提醒你一句转隔壁楼发散，搁你这就是“被打成贴贴人”
+
+
+然后第二个回复立刻开除主播然后反咬其他人敏感
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以你这位是午饭吃饱了撑的还是发病了？
+
+
+-----
+
+####  深渊萃取  
+##### 13029#       发表于 2021-4-10 12:17
+
+
+那挺好的，贴贴人和连体人无论哪个在我这都是侮辱性称呼，并且指的同一群人。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  A2014720  
+##### 13030#       发表于 2021-4-10 12:18
+
+
+最近太日常了我以为大家都躺平了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13031#       发表于 2021-4-10 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50893165&amp;ptid=1973472" target="_blank">Cuppco 发表于 2021-4-10 12:13</a>
+
+哦，有意思
+
+不然解释下贴贴人和连体人的区别呗？
+
+我是真不太懂哦</blockquote>
+我的理解上 只要喜欢贴贴节目的就算贴贴人（喜欢两方但对贴贴无感算双推或dd）但在两人未提及 也没有意愿进行贴贴的时候硬要发散的就算连体人 
+
+例子：meaqua咖啡厅 “线下贴贴！！ 我是一个只会喊meaqua贴贴的xxx”→贴贴人
+
+          mea说自己重了三个苹果 “苹果？洋葱！贴贴！”→连体人
+
+
+-----
+
+####  Cuppco  
+##### 13032#       发表于 2021-4-10 12:19
+
+
+懂了，原来这是善意的提醒，是楼友的温柔啊
+是这个意思吧？
+
+顺带别第一个贴贴人的帽子不扣了就是扣第二个帽子啊
+“万一a那就b”的意思是“我就要b”吗？未免有点曲解吧
+
+
+-----
+
+####  JY要塞  
+##### 13033#       发表于 2021-4-10 12:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼太平日子过久了呗
+
+
+-----
+
+####  雪风utopia  
+##### 13034#       发表于 2021-4-10 12:21
+
+
+联动活动喊“meaqua贴贴”→贴贴人
+我有一个朋友就发散粉毛的→连体人
+
+
+-----
+
+####  草牛  
+##### 13035#       发表于 2021-4-10 12:21
+
+
+能约束早几把约束了，哪轮得到现在，我对贴贴人真的没兴趣，咱能不能聊一下回旋这事😅
+
+
+-----
+
+####  雪风utopia  
+##### 13036#       发表于 2021-4-10 12:22
+
+
+你们不如问问他对新皮的看法<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13037#       发表于 2021-4-10 12:23
+
+
+扯这么几把多敢情恁即是世界？我以前FGO有个好友就叫粉毛的原来按你这说法人家也是四字母粉丝了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+那就算恁觉得粉毛和三酱都是黑称了是吧，恁在这楼哪找来的神乐mea，皮套是楼主45管的恁叫他滚，还是要一个主播本人不在的可能是别的楼友当的同名皮套滚啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+和别人扯皮之前能不能先看看自己说的什么JB话，你这就让我想起了我11月那时候现场看到有个弱智连体人还是什么的，热点来句【你们的推也是六字母壬】一样
+
+充满了中小学生呐喊我要自由的时候，事实上绝大多数都根本不急吧懂什么叫自由的hape感<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cuppco  
+##### 13038#       发表于 2021-4-10 12:23
+
+
+看法我当天就发了啊
+不然劳烦往前翻翻？
+
+
+-----
+
+####  路人庚  
+##### 13039#       发表于 2021-4-10 12:24
+
+
+确实有点曲解，不过12961楼这种带节奏起手式太熟悉了，自动反击系统一不小心就开启了，不好意思了捏🤗
+
+
+-----
+
+####  makourisu-2  
+##### 13040#       发表于 2021-4-10 12:24
+
+
+大中午的隔着搞什么辩论呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">翻下来都看不懂你们在说什么
+
+
+-----
+
+####  草牛  
+##### 13041#       发表于 2021-4-10 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50893285&amp;ptid=1973472" target="_blank">Cuppco 发表于 2021-4-10 12:23</a>
+看法我当天就发了啊
+不然劳烦往前翻翻？</blockquote>
+不是，说的是et的看法，主要是新皮那天他嗷的一声就自鲨了
+
+
+-----
+
+####  时间在我手中  
+##### 13042#       发表于 2021-4-10 12:27
+
+
+没看法，忙，无可奉告
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雪风utopia| + 1|别害羞，冲就冲了|
+| A2014720| + 1|艹艹艹艹|
+| 路人庚| + 1|害羞了，可爱|
+
+
+查看全部评分
+
+
+-----
+
+####  Cuppco  
+##### 13043#       发表于 2021-4-10 12:29
+
+
+行啊，意思是我表达不准确是吧
+那
+
+啊？粉毛母人四字母也摸了3天诶
+诶嘿？
+这么说不会触发你关键字了吧？
+你fgo好友总不可能叫这吧
+
+
+-----
+
+####  thisisaspider  
+##### 13044#       发表于 2021-4-10 12:33
+
+
+弱智至极 没吃药吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是大中午闲着没事做
+
+楼都留给你们了 还不懂到哪发。是⛵弱智，要人冲锋帮你们把楼炸了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+我很喜欢crew/弱智贴贴人一句话 <blockquote>只要有阿夸在，mea就不会凉</blockquote>
+神经病吗，你们。互联网地很大，没必要来这楼讨没趣。
+
+
+-----
+
+####  路人庚  
+##### 13045#       发表于 2021-4-10 12:37
+
+
+同好会发了个roki翻唱还行，这歌都多久没唱过了，怕不是一两年前的音源
+
+
+-----
+
+####  暴走的包子  
+##### 13046#       发表于 2021-4-10 12:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德这么多楼还以为又播了
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  时雨rain  
+##### 13047#       发表于 2021-4-10 12:42
+
+
+kpi来源贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13048#       发表于 2021-4-10 12:42
+
+
+我最后说一句话，恁呢，就不能干脆点的，别提Minato Aqua这位主播吗？这楼没几个人有兴趣跟你在这里探讨神乐MEA一些行动时候提及的【未知】朋友是不是她。
+
+
+说了这么多你还觉得我是在纠结和误认为你是贴贴人或者anti所以怼你的话，那我直接点算了
+
+
+贝贝壬  七色太监  杏奴  这类所谓什么狗屎黑称，本质就是个垃圾分类而已，但是一般人是不会没事讨论垃圾或者垃圾是怎么进行分类回收的，你听懂了吗？
+
+
+总结【你们XXX就没有自己的楼吗.jpg】
+
+
+               
