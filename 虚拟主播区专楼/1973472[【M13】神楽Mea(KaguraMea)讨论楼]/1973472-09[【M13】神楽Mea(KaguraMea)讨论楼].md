@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-10 04:48** 
+> ## **本文件最后更新于2021-04-10 07:39** 
 
 
 
@@ -11061,4 +11061,88 @@ kpi来源贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 总结【你们XXX就没有自己的楼吗.jpg】
 
 
-               
+-----
+
+####  Cushaw  
+##### 13049#       发表于 2021-4-10 13:29
+
+
+我受不了了，和野男人通宵也不想播<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  掉头学姐  
+##### 13050#       发表于 2021-4-10 14:00
+
+
+全新版本
+
+
+
+
+-----
+
+####  clvan_  
+##### 13051#       发表于 2021-4-10 14:46
+
+
+一看这么多页还以为又情弱了呢，结果一看弱智发散好好的怎么又混进去怪东西<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13052#       发表于 2021-4-10 14:55
+
+
+明明是怪东西中伴随着弱智发散<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13053#       发表于 2021-4-10 14:58
+
+
+ 本帖最后由 时间在我手中 于 2021-4-10 14:59 编辑 
+
+查了一下才发现原来相对性理论这乐队都基本跟解散差不多了
+
+说实话我也不知道为什么，昨晚新歌是相对性理论的里面有三首是我听过的，奇怪的地方对上了电波？
+
+syl 这组合的mv真的很迷，我想找点灵感但是很难，还是随便加点弱智羊算了
+
+
+-----
+
+####  Mr.shelter  
+##### 13054#       发表于 2021-4-10 15:04
+
+
+绝了，刚刚才听roki.... 这什么时候的声线啊.. 太小恶魔了吧呜呜呜呜回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13055#       发表于 2021-4-10 15:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+光明天狗大战暗黑贴贴人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13056#       发表于 2021-4-10 15:35
+
+
+你醒啦，kpi已经打完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+              
