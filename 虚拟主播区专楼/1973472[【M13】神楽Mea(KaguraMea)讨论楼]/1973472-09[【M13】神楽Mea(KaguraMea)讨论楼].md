@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-09 23:41** 
+> ## **本文件最后更新于2021-04-10 03:44** 
 
 
 
@@ -9705,4 +9705,640 @@ mearua贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png
 <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">野男人好玩吗
 
 
-                  
+-----
+
+####  Cushaw  
+##### 12936#       发表于 2021-4-10 07:48
+
+
+ 本帖最后由 Cushaw 于 2021-4-10 07:50 编辑 
+
+恰独食是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+破案了，是小麻同时操作两个角色<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Dualist彩  
+##### 12937#       发表于 2021-4-10 08:10
+
+
+是大亏还是rua？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 12938#       发表于 2021-4-10 08:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">为什么不能是我
+
+
+-----
+
+####  A2014720  
+##### 12939#       发表于 2021-4-10 08:42
+
+
+阴间时间<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 12940#       发表于 2021-4-10 09:04
+
+
+边做边玩的吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シルフィエット  
+##### 12941#       发表于 2021-4-10 09:25
+
+
+答案是和麻妹一起玩的
+
+
+-----
+
+####  暴走的包子  
+##### 12942#       发表于 2021-4-10 09:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">暴露了，是和我玩的
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  路人庚  
+##### 12943#       发表于 2021-4-10 09:52
+
+
+答案是和持有为所欲为券的亲戚小孩一起玩的（）
+
+
+-----
+
+####  Mikumiku831  
+##### 12944#       发表于 2021-4-10 09:55
+
+
+突然感觉被破防了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+两天不玩跟野男人通关游戏
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 12945#       发表于 2021-4-10 10:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么到现在才破的
+
+
+-----
+
+####  pei23333  
+##### 12946#       发表于 2021-4-10 10:13
+
+
+之前开玩笑打预防针，现在慢慢摆在台面上了，该等下一个774的账号了。破防跑路要趁早，越晚伤害越大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  elect  
+##### 12947#       发表于 2021-4-10 10:18
+
+
+快进到怀孕麻麻给阿宅直播
+
+
+-----
+
+####  路人庚  
+##### 12948#       发表于 2021-4-10 10:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">球球李，把你咩姐当作已婚人妻吧，对所有人都好
+
+
+-----
+
+####  草牛  
+##### 12949#       发表于 2021-4-10 10:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">坐腿上抱着玩
+
+
+-----
+
+####  Mikumiku831  
+##### 12950#       发表于 2021-4-10 10:25
+
+
+陪酒可以<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+陪人偷偷打游戏 还是之前玩都没玩过的  居然还通关<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+真感觉被NTR了
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 12951#       发表于 2021-4-10 10:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒，你才是黄毛
+
+
+-----
+
+####  草牛  
+##### 12952#       发表于 2021-4-10 10:31
+
+
+虽然不喜欢打游戏，但和野男人一起玩就很开心，双人成行又是老夫老妻，会一边玩一边喊老婆老公哦🤗
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|那是老公，不是野男人😡|
+| Mikumiku831| + 1|我急了|
+
+
+查看全部评分
+
+
+-----
+
+####  往世雷书  
+##### 12953#       发表于 2021-4-10 10:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50891853&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-04-10 09:52:07</a>
+答案是和持有为所欲为券的亲戚小孩一起玩的（）</blockquote>草，别说了，如果是其他野男人我的嫉妒心为10，为所欲为券的小屁孩就是100<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  rosevalley46  
+##### 12954#       发表于 2021-4-10 10:34
+
+
+该火车便当了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 12955#       发表于 2021-4-10 10:44
+
+
+（突然想p个图
+
+<img src="https://img.saraba1st.com/forum/202104/10/104433wl4004olow0zea4w.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (335.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-10 10:44 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  A2014720  
+##### 12956#       发表于 2021-4-10 10:45
+
+
+我老婆确实是已婚人妻，那直播能少说两句“我是大家的女朋友”嘛
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|要恰饭的嘛|
+
+
+查看全部评分
+
+
+-----
+
+####  LIPP  
+##### 12957#       发表于 2021-4-10 10:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">破防了，双人成行我还没通呢
+
+
+-----
+
+####  Cuppco  
+##### 12958#       发表于 2021-4-10 10:52
+
+
+啊？粉毛也摸了3天诶
+诶嘿？
+
+
+-----
+
+####  A2014720  
+##### 12959#       发表于 2021-4-10 11:01
+
+
+楼上出门左转<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 12960#       发表于 2021-4-10 11:04
+
+
+贝贝人限定复活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Cuppco  
+##### 12961#       发表于 2021-4-10 11:09
+
+
+这我就不乐意见了
+万一这是真的那就神楽小姐滚出mea楼呗？
+
+
+-----
+
+####  A2014720  
+##### 12962#       发表于 2021-4-10 11:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">…
+
+
+-----
+
+####  草牛  
+##### 12963#       发表于 2021-4-10 11:18
+
+
+支持正义放逐！神乐mea滚出mea楼！😡
+
+
+-----
+
+####  雪风utopia  
+##### 12964#       发表于 2021-4-10 11:20
+
+
+发生什么了，发生什么了，有没有来点repo的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 12965#       发表于 2021-4-10 11:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是贝贝人厉害，一言不合直接开除神乐mea，惹不起
+
+
+-----
+
+####  时间在我手中  
+##### 12966#       发表于 2021-4-10 11:20
+
+
+你们这些连体发散傻卵就没自己的楼吗.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+要不要马上倒逼官组傻狗八抬大轿请holo回来给你们这些玩个游戏有人约都发散特定人物的傻卵赶一波热度
+
+来个make 日Vjuan great again的实况流程解说啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 12967#       发表于 2021-4-10 11:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以et你把号送了又重新注册个新号是干啥，就这么爱给s1送钱吗
+
+
+-----
+
+####  草牛  
+##### 12968#       发表于 2021-4-10 11:23
+
+
+很喜欢柰子一句话：
+unlimited290
+应用户需求永久封禁
+
+
+-----
+
+####  nulla03  
+##### 12969#       发表于 2021-4-10 11:24
+
+
+et嘴上说不要，qq头像都换成新皮了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">多少个辗转难眠的夜里有没有对着新皮冲啊。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  A2014720  
+##### 12970#       发表于 2021-4-10 11:24
+
+
+你们慢点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cuppco  
+##### 12971#       发表于 2021-4-10 11:26
+
+
+别扣帽子啊，我可不是贴贴人
+我是没想到泥潭对粉毛母人的容忍度比野男人还低
+我还以为是差不多意思诶
+这是个啥思路呢
+
+
+-----
+
+####  Mr.shelter  
+##### 12972#       发表于 2021-4-10 11:28
+
+
+怎么说呢，野男人大多是调侃，要是真有指不定还是会有很多人破防的。但是本楼对所谓贴贴以及那个女人的容忍度是真真很低的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这点先说明
+
+你要问原因，我只能说，这是历史和人民的选择<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 12973#       发表于 2021-4-10 11:29
+
+
+都这么久了，怎么总有人还是搞不懂究竟是对亏女士的恶意重还是对你们这类扯个臭几把朋友就说是大亏的hape容忍度低啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+可别甩锅给论坛啊，野男人好歹都没个特定对象呢
+
+我没直接给你摇45或者486来算好脾气了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 12974#       发表于 2021-4-10 11:29
+
+
+能来个互动嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 12975#       发表于 2021-4-10 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等一下，我先和本楼切割你们再塔塔开
+
+
+-----
+
+####  雪风utopia  
+##### 12976#       发表于 2021-4-10 11:30
+
+
+野男人可能是我，但粉毛幕刃绝对不可能是我<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cuppco  
+##### 12977#       发表于 2021-4-10 11:31
+
+
+我认为我也是在调侃啊
+总不能现在贴贴人内部交流是“粉毛母人和三酱”吧
+难道是是“我真有头牛”，“那是我家”的思路？
+
+
+-----
+
+####  Mr.shelter  
+##### 12978#       发表于 2021-4-10 11:33
+
+
+ 本帖最后由 Mr.shelter 于 2021-4-10 11:36 编辑 
+
+那只能单纯解释是，真的就男人可，那谁不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">。原因还是一样的，是历史和人民的选择。
+是从旧病栋开始的一系列战斗，和某个群体的斗争，对某个群体某个人做法的不满，这一系列的原因造就了今天的局面<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 12979#       发表于 2021-4-10 11:35
+
+
+ 本帖最后由 时间在我手中 于 2021-4-10 11:39 编辑 
+
+扯这么多臭几把跟楼友车人权车调侃定义之前
+
+我建议打个SC问问本人，请
+
+别继巴拿自己听到的情报A加情报C组合一下就等于NM的ACFUN一样，中间FUN的存在与否都不知道还非要说出来
+
+说出来被人叼了就来句我其实只是开玩笑而已，你玩这把戏可以，别人也没干你全家叼你一波我觉得也挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我用个不太恰当的说法大概就和你对着绿绿说我们去恰猪肉一样hape，程度没这么高做法还挺类似的嗷
+
+syl 吊人早上饿成狗了都想找个同年代的野男人结婚了，要发散之前可以去当一下贝贝毒唯警告一下主播本人别整天对男人们发情辣<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cuppco  
+##### 12980#       发表于 2021-4-10 11:36
+
+
+诶
+楼友敏感度还是比我想的高了点嗷
+反正不上纲上线我无所谓嗷
+野男人还是女人
+都可以玩，都可以玩
+
+
+-----
+
+####  nulla03  
+##### 12981#       发表于 2021-4-10 11:36
+
+
+ 本帖最后由 nulla03 于 2021-4-10 11:39 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，天天陪女朋友，小麻直播都是偷偷看的。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  草牛  
+##### 12982#       发表于 2021-4-10 11:36
+
+
+什么战狂😨
+
+
+-----
+
+####  A2014720  
+##### 12983#       发表于 2021-4-10 11:37
+
+
+又不是没有让你发散的地方，要她再重演一遍向批站发起冲锋嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 12984#       发表于 2021-4-10 11:37
+
+
+md mk2不是跟女友分手了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  llconforever  
+##### 12985#       发表于 2021-4-10 11:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你楼永远的kpi，贝贝
+
+
+-----
+
+####  nulla03  
+##### 12986#       发表于 2021-4-10 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50892785&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2021-4-10 11:37</a>
+md mk2不是跟女友分手了吗？</blockquote>
+新女友啊<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter|-1|艹|
+
+
+查看全部评分
+
+
+-----
+
+####  雪风utopia  
+##### 12987#       发表于 2021-4-10 11:41
+
+
+贴贴人，贝贝人，连体人，挂件人能不能去隔壁那个楼里面发散，还m楼一个清净<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 12988#       发表于 2021-4-10 11:41
+
+
+好，补完TC了，女人最后说起床就和我结婚<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">马上就去学做饭
+
+
+-----
+
+####  雪风utopia  
+##### 12989#       发表于 2021-4-10 11:42
+
+
+回旋的好快，之前的退坑是不是期间限定活动<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noaki  
+##### 12990#       发表于 2021-4-10 11:44
+
+
+先做了一个没有任何依据的猜测，然后再做了一个这个猜测“万一是真的”的猜测。最后再用这个用猜测得出的猜测滑坡到“神楽mea小姐滚出m楼”……
+
+就这脑溢血水平楼友还能这么饶有兴致地辩下去也是佩服，不过能截下来应该也能当个很好用的素材。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+                 
