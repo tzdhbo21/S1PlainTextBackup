@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-10 15:39** 
+> ## **本文件最后更新于2021-04-11 17:09** 
 
 
 
@@ -6576,4 +6576,371 @@ syl维阿要选一个联动的话肯定选菜菜子，选ybb那是真ybb
 按照今天的说法ybb去隔壁二期肯定来不及了，三期估计也赶不上，ybb我的ybb<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
 
 
-                                 
+-----
+
+####  poipanchao  
+##### 34985#       发表于 2021-4-11 00:24
+
+
+ybb可以当a-soul gamers紧急出道嘛
+
+
+-----
+
+####  asd225588  
+##### 34986#       发表于 2021-4-11 00:53
+
+
+差点以为自己走错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  \一般通过／  
+##### 34987#       发表于 2021-4-11 00:54
+
+
+纯引流狗，有没有s1老嗨科普下图中说的
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/005320z1qlq3rmeddheeml.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-04-11-00-41-34-374_gov.pianzong.androidnga.jpg</strong> (365.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 00:53 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 34988#       发表于 2021-4-11 00:59
+
+
+smjb
+
+
+-----
+
+####  小小雪空  
+##### 34989#       发表于 2021-4-11 01:01
+
+
+把网易爱的计划斩了，然后随便加点资源立个原创新V，肯定也过得比网易爱好，所以这种没有商业头脑的行为，我也不知道图啥
+
+
+-----
+
+####  free  
+##### 34990#       发表于 2021-4-11 01:04
+
+
+就他引的杜庶仁这句话有什么问题吗，Q群本来就是群主私人领地，合得来就聊合不来就走
+
+
+翻了一下，V1-V3，18年1月到19年3月是杜庶仁开的，V4开始是现在的楼主，其实那个时期反而是V综什么都聊的时期，不信可以往回翻翻，到后来才变成除了虹杏基本不聊别的。
+
+
+-----
+
+####  小小雪空  
+##### 34991#       发表于 2021-4-11 01:06
+
+
+不要说的这么死，满人可是抱怨过V综不聊未来明的
+
+
+-----
+
+####  OldGlory  
+##### 34992#       发表于 2021-4-11 01:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50899764&amp;ptid=1969498" target="_blank">\一般通过／ 发表于 2021-4-11 00:54</a>
+纯引流狗，有没有s1老嗨科普下图中说的</blockquote>
+v综首楼就有v1到v12的链接，可以自己看，都是18年的老恩怨了。
+
+
+-----
+
+####  \一般通过／  
+##### 34993#       发表于 2021-4-11 01:10
+
+
+ 本帖最后由 \一般通过／ 于 2021-4-11 01:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50899847&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-4-11 01:09</a>
+
+v综首楼就有v1到v12的链接，可以自己看，都是18年的老恩怨了。</blockquote>
+试了试点不开……是要权限的吗，就好考古这口，v8,nga考了些古，s1还没看过
+
+
+-----
+
+####  IDIDIDID  
+##### 34994#       发表于 2021-4-11 01:16
+
+
+首先V综除了赶弥人那一阵之外从来没禁止过聊什么，你聊的V没人理要不然就是V不行要不然就是你不行，怪别人不如怪自己。
+
+
+其次空公公和C老哥这种阴湿虹老害真差不多得了，团结在gamers和19组身边的新时代虹人怕是比杏奴害讨厌你们。
+
+
+-----
+
+####  OldGlory  
+##### 34995#       发表于 2021-4-11 01:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50899855&amp;ptid=1969498" target="_blank">\一般通过／ 发表于 2021-4-11 01:10</a>
+
+试了试点不开……是要权限的吗，就好考古这口，v8,nga考了些古，s1还没看过 ...</blockquote>
+[https://github.com/TomoeMami/S1P ... V%E7%BB%BC%E3%80%91](https://github.com/TomoeMami/S1PlainTextArchive/tree/master/%E8%99%9A%E6%8B%9F%E4%B8%BB%E6%92%AD%E4%B8%93%E6%A5%BC/%E8%99%9A%E6%8B%9F%E4%B8%BB%E6%92%AD%E3%80%90V%E7%BB%BC%E3%80%91)
+
+
+那你看这个备份
+
+
+-----
+
+####  \一般通过／  
+##### 34996#       发表于 2021-4-11 01:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50899879&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-4-11 01:16</a>
+
+https://github.com/TomoeMami/S1PlainTextArchive/tree/master/%E8%99%9A%E6%8B%9F%E4%B8%BB%E6%92%AD%E ...</blockquote>
+好，十分感谢，考古去了😇
+
+
+-----
+
+####  rzrbtk  
+##### 34997#       发表于 2021-4-11 08:41
+
+
+ 本帖最后由 rzrbtk 于 2021-4-11 12:03 编辑 
+
+郡道去寒冷地带旅游，直播摸了，但也不忘发剪辑，很拼，
+
+就之前的状态，30w改模型啥时候排到啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+省一楼，
+
+私が家を空ける間父がホットクックを借りたいと言うので貸し出しに行くついでに簡単なものを作ったんだけど、ホットクックの調理開始時の「美味しく出来ますように」って音声に「なんだ？自信が無いのか？」って言い返しててめちゃくちゃ血感じちゃったわね………………………
+
+
+以为郡家就只是郡妈郡道性格不行，结果爹也这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  katern  
+##### 34998#       发表于 2021-4-11 14:01
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/140127m8s8741qjjya6aez.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EyqUt-mU8AMfGEP.jpg</strong> (445.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 14:01 上传
+
+
+已经看到结局了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 34999#       发表于 2021-4-11 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50903045&amp;ptid=1969498" target="_blank">katern 发表于 2021-4-11 14:01</a>
+已经看到结局了</blockquote>
+希望黄兔子努力控场（大杀特杀）
+
+
+-----
+
+####  asdhai  
+##### 35000#       发表于 2021-4-11 15:10
+
+
+几天没来。v圈今天爆炸了吗
+
+
+-----
+
+####  cheatdeath3  
+##### 35001#       发表于 2021-4-11 15:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50899024&amp;ptid=1969498" target="_blank">渡鸦骑士 发表于 2021-4-10 23:09</a>
+
+没想到能做到这种程度虽然涉及挖坟但是实在太好笑了</blockquote>
+20年1月的本子
+
+还搁这7小时前
+
+截图都不拿张新的来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|都说了涉及挖坟，不过隔壁挖巨人粉的坟也挺.|
+
+
+查看全部评分
+
+
+-----
+
+####  free  
+##### 35002#       发表于 2021-4-11 18:01
+
+
+[https://www.youtube.com/watch?v=xptulIh3CEg](https://www.youtube.com/watch?v=xptulIh3CEg)
+
+AZKi 7th LiVE 『Stand at the crossroads』#AZKiの分岐点
+
+
+怎么一上来是AMOKA<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 35003#       发表于 2021-4-11 18:38
+
+
+唱的太烂了，赶快下去，我要看AMOKA
+
+
+-----
+
+####  katern  
+##### 35004#       发表于 2021-4-11 18:46
+
+
+好久没看v了，唱的这么拉了啊，听麻了
+
+
+-----
+
+####  opersuper  
+##### 35005#       发表于 2021-4-11 18:55
+
+
+4ch骂老爱联动Vwhores过于不基德
+
+
+-----
+
+####  free  
+##### 35006#       发表于 2021-4-11 20:27
+
+
+能不能多找点嘉宾来，72小时不是拉了不少人吗，你主持就可以了
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/202735laa5v7v5wzat4775.png" referrerpolicy="no-referrer">
+
+
+<strong>azki.png</strong> (66.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 20:27 上传
+
+
+-----
+
+####  free  
+##### 35007#       发表于 2021-4-11 20:35
+
+
+油管炮又开始了？？？azki刚才live中间看着都40万粉了，庆祝推都发了，现在一看39.9万了
+
+
+-----
+
+####  FCCHua  
+##### 35008#       发表于 2021-4-11 21:32
+
+
+jk组的2d3.0接力披露大概是要来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 35009#       发表于 2021-4-11 21:46
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/214157jgk5u9kngkfjgpn8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EysbmWsUUAMo2JE.jpg</strong> (309.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 21:41 上传
+
+
+-----
+
+####  空集  
+##### 35010#       发表于 2021-4-11 21:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 35011#       发表于 2021-4-11 23:37
+
+
+我一直都是葵熊啊🥰🥰🥰🥰🥰
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/233712bho2ftiohrhlzn2h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Eys-aKEU8AYAhRM.jpg</strong> (134.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 23:37 上传
+
+
+-----
+
+####  OldGlory  
+##### 35012#       发表于 2021-4-12 00:49
+
+
+那其他人live2d 2.0去哪了？
+
+
+                                

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 15:41** 
+> ## **本文件最后更新于2021-04-11 17:11** 
 
 
 
@@ -12684,4 +12684,567 @@ syl 说的在改进了是在哪里说的？不会是躲在自己的小团体里�
 嘤嘤嘤<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
 
 
-         
+-----
+
+####  时雨rain  
+##### 13206#       发表于 2021-4-11 23:48
+
+
+。。。。。喜欢人夫是吧👊
+
+
+-----
+
+####  草牛  
+##### 13207#       发表于 2021-4-11 23:49
+
+
+什么黄毛
+
+
+-----
+
+####  时间在我手中  
+##### 13208#       发表于 2021-4-11 23:57
+
+
+要下了，唉，就不该看nga，S1现在正常的像个家，妈了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 13209#       发表于 2021-4-11 23:59
+
+
+要是天狗人人都是财酱,所有问题都迎刃而解了)
+
+
+-----
+
+####  Joffre✔  
+##### 13210#       发表于 2021-4-11 23:59
+
+
+净土宗的名号已经被s1篡夺了
+
+
+-----
+
+####  时雨rain  
+##### 13211#       发表于 2021-4-12 00:00
+
+
+大家只是个喜欢mea并且有点绿帽癖的mmr捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IrisL  
+##### 13212#       发表于 2021-4-12 00:02
+
+
+荣誉马莱人论坛是这样的😊
+
+
+-----
+
+####  呓亘  
+##### 13213#       发表于 2021-4-12 00:02
+
+
+新皮换过之后数据涨的不错
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Mr.shelter  
+##### 13214#       发表于 2021-4-12 00:03
+
+
+人人都是财酱小麻营收V圈第一没人有意见吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 13215#       发表于 2021-4-12 00:03
+
+
+有点好奇，et的爱好是不是就是跟他群友对线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">q群政治害人啊
+
+
+-----
+
+####  呓亘  
+##### 13216#       发表于 2021-4-12 00:03
+
+
+还是希望多整点新活...
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Joffre✔  
+##### 13217#       发表于 2021-4-12 00:04
+
+
+还惦记新活呢 好久以前的棉花糖都发霉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  makourisu-2  
+##### 13218#       发表于 2021-4-12 00:05
+
+
+对啊，之前收集的棉花糖呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13219#       发表于 2021-4-12 00:05
+
+
+已经长毛了
+
+
+-----
+
+####  菊花战士  
+##### 13220#       发表于 2021-4-12 00:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以打打其他游戏，别只有麻将和LOL了。整活还是算了，整不好又要一堆人破防了。
+
+
+-----
+
+####  时间在我手中  
+##### 13221#       发表于 2021-4-12 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908769&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-12 00:03</a>
+
+有点好奇，et的爱好是不是就是跟他群友对线q群政治害人啊</blockquote>
+这次又不关我事，也跟你不关事，反正我至少说的话和我做的事一样多，你爱BB怎么BB，run了
+
+
+-----
+
+####  ashero  
+##### 13222#       发表于 2021-4-12 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908796&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2021-4-12 00:05</a>
+
+对啊，之前收集的棉花糖呢</blockquote>
+前天tc提了几句 说mixi成天发十几二十行的定型文给她 发现她好像没看就没发了
+
+
+然后还是很多联动云p棉花糖发来
+
+
+-----
+
+####  草牛  
+##### 13223#       发表于 2021-4-12 00:10
+
+
+什么联动云p棉花糖，不会是联动舞元吧，最近也没啥特殊联动啊😅
+
+
+-----
+
+####  雪风utopia  
+##### 13224#       发表于 2021-4-12 00:11
+
+
+怕不是你们的所谓的给棉花糖就是去拉屎的，所以才会被她忘了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 13225#       发表于 2021-4-12 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908847&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-12 00:10</a>
+
+什么联动云p棉花糖，不会是联动舞元吧，最近也没啥特殊联动啊😅</blockquote>
+她说大概是别和xxx联动还有和xxx联动这种
+
+
+-----
+
+####  时间在我手中  
+##### 13226#       发表于 2021-4-12 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908847&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-12 00:10</a>
+
+什么联动云p棉花糖，不会是联动舞元吧，最近也没啥特殊联动啊😅</blockquote>
+好像是什么别找男朋友啥的发情玩意儿，反正mea没管就那样了
+
+
+-----
+
+####  草牛  
+##### 13227#       发表于 2021-4-12 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908863&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 00:11</a>
+好像是什么别找男朋友啥的发情玩意儿，反正mea没管就那样了</blockquote>
+那确实不该管，整无语了，没就没吧😅
+
+
+-----
+
+####  GRMeA104  
+##### 13228#       发表于 2021-4-12 00:14
+
+
+毕竟你搞不懂她本土粉丝盘究竟咋个情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 13229#       发表于 2021-4-12 00:18
+
+
+不发生之前谁也不知道会不会嗷的一声疯了，国内不都有矩阵这种典型吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13230#       发表于 2021-4-12 00:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在这管人界性人跟性人玩虹人跟虹人玩拉夫跟拉夫玩
+
+阿咩怕是没机会整什么多人活了，整苔姨吗
+
+
+
+
+-----
+
+####  Cushaw  
+##### 13231#       发表于 2021-4-12 00:23
+
+
+连774gachi都能嗷的一声疯了，你怎能指望谁不会疯<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 13232#       发表于 2021-4-12 00:23
+
+
+神乐组不是人了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 13233#       发表于 2021-4-12 00:24
+
+
+咩不擅长整多人活的，单口或者双口相声，多参加点联动就行
+
+
+-----
+
+####  GRMeA104  
+##### 13234#       发表于 2021-4-12 00:25
+
+
+联动,,,,,,<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13235#       发表于 2021-4-12 00:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">阿咩仿佛是神乐组的老板，除了暴力喂饭都不下台共乐的
+
+
+-----
+
+####  时间在我手中  
+##### 13236#       发表于 2021-4-12 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908935&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-4-12 00:18</a>
+
+不发生之前谁也不知道会不会嗷的一声疯了，国内不都有矩阵这种典型吗 ...</blockquote>
+虽然但是，矩阵是很有征兆的那种，不过他死了好
+
+
+-----
+
+####  甘栗No.007  
+##### 13237#       发表于 2021-4-12 00:30
+
+
+太入脑了就有物极必反的潜在风险，第二位的女人得放在第二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最近除了event和绿熊的深夜游戏time，联动基本上都通过了苔苔haneru中介吧，神乐组阿咩除了转推联动次数超过5吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13238#       发表于 2021-4-12 00:31
+
+
+说到神乐组 啥时候和九条联动啊 九条自己是想联动的 麻看起来也很喜欢九条 咋就不联动呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13239#       发表于 2021-4-12 00:32
+
+
+问就是幕后原因你猜不到，有的时候自然会有，比如saya
+
+
+-----
+
+####  GeraltzRivii  
+##### 13240#       发表于 2021-4-12 00:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">矩阵死了？咋死的？是那次约稿的事情吗。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13241#       发表于 2021-4-12 00:36
+
+
+不知道明天会不会是翻唱吸血鬼这歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说练了一周还没练好感觉不太像就是了
+
+最近有什么热门管人金曲她没唱过的吗
+
+
+-----
+
+####  掉头学姐  
+##### 13242#       发表于 2021-4-12 00:37
+
+
+ 本帖最后由 掉头学姐 于 2021-4-12 00:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909073&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:36</a>
+矩阵死了？咋死的？是那次约稿的事情吗。
+
+—— 来自 OPPO PCLM10, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+舞元联动破防，还bls反踩了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+syl，求求咩别在迷信自己了，狗蛋合唱调音就挺好听的，上次吉祥三宝我说调音怎么这么糟，得了，是她做得mv怪不得
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GeraltzRivii| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  草牛  
+##### 13243#       发表于 2021-4-12 00:38
+
+
+翻唱搞不好是跟结婚有关的
+
+
+-----
+
+####  时间在我手中  
+##### 13244#       发表于 2021-4-12 00:38
+
+
+ 本帖最后由 时间在我手中 于 2021-4-12 00:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909073&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:36</a>
+
+矩阵死了？咋死的？是那次约稿的事情吗。
+
+
+—— 来自 OPPO PCLM10, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+我自己所了解到的大概是云P入脑加上对舞元犬山梁木过重自爆了，11月最后退坑回踩了，恶心的我不行说实话
+
+活该当年50万约稿被人开小号骂，笑
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GeraltzRivii| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  GeraltzRivii  
+##### 13245#       发表于 2021-4-12 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909081&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-4-12 00:37</a>
+舞元联动破防，还bls反踩了
+
+syl，求求咩别在迷信自己了，狗蛋合唱调音就挺好听的，上次吉祥三宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">麻了，我当时对他印象还挺深的，没想到是因为这个死了，也没想到他会因为这个反踩。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  雪风utopia  
+##### 13246#       发表于 2021-4-12 00:42
+
+
+s1就像家一样温暖，虽然家人们都很nt，但我还是喜欢这里<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13247#       发表于 2021-4-12 00:42
+
+
+ 本帖最后由 时间在我手中 于 2021-4-12 00:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909101&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:41</a>
+
+麻了，我当时对他印象还挺深的，没想到是因为这个死了，也没想到他会因为这个反踩。
+
+
+—— 来自 O ...</blockquote>
+不是，bls那个这人是说着什么你麻不在乎粉丝什么的
+
+反正他后期基本都有点魔怔事业民的样子了，只能说他导师给他作业不够多syl 尻头你考研结果如何了，clay结芽他们都过了
+
+
+-----
+
+####  草牛  
+##### 13248#       发表于 2021-4-12 00:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对矩阵感兴趣可以点我头像找那个钓鱼楼看他发疯
+
+
+-----
+
+####  A2014720  
+##### 13249#       发表于 2021-4-12 00:46
+
+
+事业民的最终下场就是矩阵呐
+
+
+-----
+
+####  GeraltzRivii  
+##### 13250#       发表于 2021-4-12 00:46
+
+
+ 本帖最后由 GeraltzRivii 于 2021-4-12 00:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909108&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 00:42</a>
+不是，bls那个这人是说着什么你麻不在乎粉丝什么的
+
+反正他后期基本都有点魔怔事业民的样子了，只能说他导 ...</blockquote>
+我拟录取咯，现在就是白天恶补专业知识晚上和朋友打英灵神殿摸鱼，估摸着七八月得到导师课题组打杂去了。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13251#       发表于 2021-4-12 00:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909137&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:46</a>
+
+我拟录取咯，现在就是白天恶补专业知识晚上和朋友打英灵神殿摸鱼，估摸着七八月得去到导师课题组打杂去了 ...</blockquote>
+那加油，我这边也要努力自己的事了
+
+
+-----
+
+####  GeraltzRivii  
+##### 13252#       发表于 2021-4-12 00:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909149&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 00:48</a>
+那加油，我这边也要努力自己的事了</blockquote>
+加油，我最近这一年无论是认识的网友还是线下熟人发展的都还成，希望这个buff能给你加上。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  GeraltzRivii  
+##### 13253#       发表于 2021-4-12 00:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909149&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 00:48</a>
+那加油，我这边也要努力自己的事了</blockquote>
+对了，日报那边是你们接盘了吗，这效率提升的可太多了，不得不说在这方面我还是没天赋。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13254#       发表于 2021-4-12 01:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909195&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:57</a>
+
+对了，日报那边是你们接盘了吗，这效率提升的可太多了，不得不说在这方面我还是没天赋。
+
+
+—— 来自 OPPO ...</blockquote>
+准确说是我自己找人接的盘，总好过我自己号上那点播放，顺便教人打轴罢了
+
+效率的话····其实人没变，我现在反正随缘做，也当是自己学的东西有个地方发而已，
+
+当年还是你叫我去打轴剪辑的····都这么久了唉
+
+
+        
