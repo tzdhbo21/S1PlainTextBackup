@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 13:41** 
+> ## **本文件最后更新于2021-04-11 15:41** 
 
 
 
@@ -12036,4 +12036,652 @@ rua只是想交交朋友对流量不感兴趣捏<img src="https://static.saraba1
 同接变高就是因为这个新皮吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。那也没高多少啊
 
 
-           
+-----
+
+####  Ky·Kiske  
+##### 13144#       发表于 2021-4-11 21:44
+
+
+官组这个转播我是真的服气
+
+
+-----
+
+####  IrisL  
+##### 13145#       发表于 2021-4-11 21:54
+
+
+管组早就摆烂了无所谓的😋
+
+
+-----
+
+####  Cla0221  
+##### 13146#       发表于 2021-4-11 21:56
+
+
+我是真tmd麻中之麻了😅
+
+该开始干活了，不然半年没干活了也不好直接说什么
+
+
+-----
+
+####  时间在我手中  
+##### 13147#       发表于 2021-4-11 21:57
+
+
+官组，还有人在看啊，叔叔好奇怪哦~（小并感）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IrisL  
+##### 13148#       发表于 2021-4-11 22:00
+
+
+提问:下次转播正常的时候是不是咩夸联动的时候😥
+
+
+-----
+
+####  时间在我手中  
+##### 13149#       发表于 2021-4-11 22:04
+
+
+蓝二乘好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13150#       发表于 2021-4-11 22:04
+
+
+贝贝曲都能拉，这还不赶紧查一下官组成分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13151#       发表于 2021-4-11 22:04
+
+
+ 本帖最后由 A2014720 于 2021-4-11 22:06 编辑 
+
+官组那群死人但凡上心一点点转播也不是这样子
+
+不对，但凡上心一点点组也不是这个样子
+
+谁家转播他妈几乎每次都能事故的
+
+
+-----
+
+####  シルフィエット  
+##### 13152#       发表于 2021-4-11 22:07
+
+
+除了B限好久没点开阿B直播间了
+
+
+-----
+
+####  时间在我手中  
+##### 13153#       发表于 2021-4-11 22:07
+
+
+别尬黑啊，人家没组长都一年多了，群龙无首而已，别尬黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一百多块的梯子可能的确质量还不够好8<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 13154#       发表于 2021-4-11 22:08
+
+
+我日，这么拉芙的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13155#       发表于 2021-4-11 22:09
+
+
+我早就是油管人了 转播挂着就是防梯子炸的 结果梯子一直蛮稳定的 转播炸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13156#       发表于 2021-4-11 22:09
+
+
+ 本帖最后由 时间在我手中 于 2021-4-11 22:11 编辑 
+
+今天唱到12点的样子，挺好，能睡个好觉了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+建议楼友真的去找个梯子自己看，官组转播我还不如叫朋友给我私人转播来的稳定
+
+
+-----
+
+####  thisisaspider  
+##### 13157#       发表于 2021-4-11 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50907629&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2021-4-11 22:09</a>
+
+我早就是油管人了 转播挂着就是防梯子炸的 结果梯子一直蛮稳定的 转播炸了 ...</blockquote>
++1
+
+
+-----
+
+####  A2014720  
+##### 13158#       发表于 2021-4-11 22:15
+
+
+一群人屎里一点脑子都没有，发现问题了，在排查了，你查你妈呢
+
+你官组确实连个好好转播的必要都没<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13159#       发表于 2021-4-11 22:15
+
+
+纯路人，官组炸了这么多次吗，我都不知道诶😱
+
+
+-----
+
+####  Ky·Kiske  
+##### 13160#       发表于 2021-4-11 22:15
+
+
+我是双开，油管低画质静音再开阿睿直播间
+
+
+-----
+
+####  时间在我手中  
+##### 13161#       发表于 2021-4-11 22:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50907699&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-11 22:15</a>
+
+纯路人，官组炸了这么多次吗，我都不知道诶😱</blockquote>
+就算只看你楼我都能感觉一周播五次歌回能炸保底2-3次，而且他们组延迟开播记录今年我记得最多都有一小时多后开转的吧，虽然那次是早上突击，不过预告了照样拉的也不少，比如今晚。我去年就是因为这转播还不如自己买梯子才彻底放弃的，本来那边弹幕环境就多少沾丶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13162#       发表于 2021-4-11 22:17
+
+
+总之在排查，在找问题了，希望大家理解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gongge666  
+##### 13163#       发表于 2021-4-11 22:20
+
+
+干脆取消转播得了，以后让mea自己推流，她愿意推就推不愿意推就拉倒。反正现在我是只看Tc和联动了，油管天天唱歌我早麻了，大多数歌歌每个月总会唱3、4遍
+
+
+-----
+
+####  zc1996zc  
+##### 13164#       发表于 2021-4-11 22:21
+
+
+小麻自己开个号吧
+
+
+-----
+
+####  A2014720  
+##### 13165#       发表于 2021-4-11 22:21
+
+
+“即使这样也比很多字幕组干的很好了”那确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+毕竟你官组也只是靠“热情”在干活
+
+
+-----
+
+####  草牛  
+##### 13166#       发表于 2021-4-11 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50907722&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-11 22:17</a>
+就算只看你楼我都能感觉一周播五次歌回能炸保底2-3次，而且他们组延迟开播记录今年我记得最多都有一小时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整挺好，懒得理，我也是梯子挂了一年多了
+
+
+-----
+
+####  时间在我手中  
+##### 13167#       发表于 2021-4-11 22:23
+
+
+什么热情，不存在的东西不要乱讲啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">编故事可不好
+
+
+-----
+
+####  IrisL  
+##### 13168#       发表于 2021-4-11 22:24
+
+
+ 本帖最后由 IrisL 于 2021-4-11 22:30 编辑 
+
+混还要再混混废了😗别尬黑比烂他组优势还是很大的
+
+
+-----
+
+####  肥到终点  
+##### 13169#       发表于 2021-4-11 22:31
+
+
+希望萨尔出来整点名句再放送
+
+mea不配用那么好的转播云云<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 13170#       发表于 2021-4-11 22:33
+
+
+这就别抓萨尔了 对官组零伤害好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 13171#       发表于 2021-4-11 22:34
+
+
+还别说，前一段时间泥潭大赦天下的时候萨尔还在m楼里面跳了一下<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IrisL  
+##### 13172#       发表于 2021-4-11 22:35
+
+
+ 本帖最后由 IrisL 于 2021-4-11 22:37 编辑 
+
+输出尸体没用的🤗你永远无法破防一群摆烂的人😅
+
+
+-----
+
+####  Dualist彩  
+##### 13173#       发表于 2021-4-11 22:40
+
+
+你楼终于又车官组了，爷青回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+萨尔，我的萨尔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 13174#       发表于 2021-4-11 22:41
+
+
+我自己的看法就是:我看它们一眼,就是我输了,晦气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这首完成度不错
+
+
+-----
+
+####  时间在我手中  
+##### 13175#       发表于 2021-4-11 22:44
+
+
+happy end好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 13176#       发表于 2021-4-11 22:49
+
+
+你麻现在除了歌回也没法整啥新的倒确实,一是环境问题,二是跟着苔兔混饭确实舒服
+
+但是官组连后台挂bgm的事都处理不好就很那啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zc1996zc  
+##### 13177#       发表于 2021-4-11 22:52
+
+
+我对麻唯一的梁木就是成天歌回也不趁年轻去正儿八经学学声乐
+
+
+-----
+
+####  A2014720  
+##### 13178#       发表于 2021-4-11 22:52
+
+
+一问就是在搞了在改了，哦结果每次转播都还是一堆问题，出了事就各种推搡，哦连组长都没啊那没事了，是不是觉得很委屈啊
+
+
+-----
+
+####  草牛  
+##### 13179#       发表于 2021-4-11 22:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">失踪几年的人建议直接宣布死亡，不要抱有期待
+
+
+-----
+
+####  肥到终点  
+##### 13180#       发表于 2021-4-11 22:55
+
+
+何止，在anti楼强行摆烂
+
+把自己的名言拿出来解释了一遍
+
+结果完全还是踩一捧一
+
+看来出群留学只升级了技术<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 13181#       发表于 2021-4-11 22:57
+
+
+其实从tc之类的发现这人赛马娘啊,双人成行啊这种热点她应该很清楚甚至尝试过的,但就不播
+
+怎么说呢,就是逆反吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13182#       发表于 2021-4-11 22:58
+
+
+整活有什么用吗，谷雨你就别拿这些当理由了
+
+整了活也就那个速度，去年11月之后是个人都该明白还是别期待他们组为好
+
+你要知道那次记者那次嘴快叼你麻直播带货的事后面他们组的人才知道是你睿要求的，属实笑死我了
+
+最搞笑的就是乐一他们猜到是我潜伏进去他们组，叫我找人帮忙宣传你麻没问题，嘻嘻
+
+就这样还有脸我去九条组什么都没做直接被踢，官组，狗都不去。
+
+一群贴贴人掌权的地方有什么意思，只要我不喜欢大亏或者这群傻逼魔怔连体狗就要被打成黑名单，笑嘻了
+
+要不是69哥和fafa这几个人面子上，我真想祝他们组赶紧去世<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 13183#       发表于 2021-4-11 23:01
+
+
+草 竟然是等藤君的生日
+大伙别上当了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 13184#       发表于 2021-4-11 23:01
+
+
+那么还有更傻逼事的吗
+
+我目前只知道官组就一群摆烂连体贝贝，萨尔之类的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13185#       发表于 2021-4-11 23:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13186#       发表于 2021-4-11 23:02
+
+
+那我就变成藤原央基罢（便乘）<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 13187#       发表于 2021-4-11 23:03
+
+
+麻姨，你算计我<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13188#       发表于 2021-4-11 23:08
+
+
+😭😭😭😭
+
+
+-----
+
+####  A2014720  
+##### 13189#       发表于 2021-4-11 23:09
+
+
+去年那么大事也没学到教训那也没什么用了，不对不可能学到的
+
+反正又要不看就看不见，不管就不存在，只有头破血流的时候才觉得自己无辜
+
+贝贝没了就只知道在那呜呜的能跟贝贝一起去阴间嘛
+
+
+-----
+
+####  雪风utopia  
+##### 13190#       发表于 2021-4-11 23:13
+
+
+总之在改变了，在改善了，你们信了吗，我反正没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13191#       发表于 2021-4-11 23:14
+
+
+建议楼友跟我学习打轴，龙了今晚歌回，这样官组就没存在价值了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13192#       发表于 2021-4-11 23:17
+
+
+现在转播确实稳定了 上次情人节车完也稳定了一段时间 而且这次的问题和以前确实不一样 我觉得还是有改进的 就是改进完了又出了新bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 说的在改进了是在哪里说的？不会是躲在自己的小团体里说的吧 我在b可从没见过官组说在改进或者道歉的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13193#       发表于 2021-4-11 23:18
+
+
+在两边写长文也挺辛苦的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13194#       发表于 2021-4-11 23:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是第一次了，烂裤裆知道吗
+
+
+-----
+
+####  Mr.shelter  
+##### 13195#       发表于 2021-4-11 23:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">别的不说，原来泥潭真的还有看转播的吗..... 
+
+
+-----
+
+####  时间在我手中  
+##### 13196#       发表于 2021-4-11 23:24
+
+
+ 本帖最后由 时间在我手中 于 2021-4-11 23:26 编辑 
+
+所以有人跟我学打轴吗，群友打的每一个字转化成学习打轴的一点点时间就能两天出今晚全熟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚35首，一首歌10分钟分摊到十个人头上也很快，杂谈难度我自己都能行，干脆我自己龙了算了，反正我能做到
+
+哪怕毫无意义
+
+
+-----
+
+####  时雨rain  
+##### 13197#       发表于 2021-4-11 23:28
+
+
+呜呜，贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13198#       发表于 2021-4-11 23:28
+
+
+这人今天不是问了大家想看什么吗 新节目说不定快了...
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  草牛  
+##### 13199#       发表于 2021-4-11 23:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">也有点用，最近晚上没事，只要咩姨不播就点开全熟当直播看，还有字幕
+
+
+-----
+
+####  雪风utopia  
+##### 13200#       发表于 2021-4-11 23:29
+
+
+人懒，没救了，要是我不懒的话，5年前早学会日语了，哪里像现在只能拿50音拼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 13201#       发表于 2021-4-11 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908495&amp;ptid=1973472" target="_blank">雪风utopia 发表于 2021-4-11 23:29</a>
+
+人懒，没救了，要是我不懒的话，5年前早学会日语了，哪里像现在只能拿50音拼 ...</blockquote>
+五十音听得懂的水平是可以胜任打轴的，我到现在日语也就那屌样反正
+
+
+-----
+
+####  GRMeA104  
+##### 13202#       发表于 2021-4-11 23:36
+
+
+就是et这个吊人拉我打轴,我tm五十音在K轴的时候边学边K<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13203#       发表于 2021-4-11 23:37
+
+
+问题的关键是懒，等一年后我学会日语再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13204#       发表于 2021-4-11 23:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908539&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-4-11 23:36</a>
+
+就是et这个吊人拉我打轴,我tm五十音在K轴的时候边学边K</blockquote>
+别废话了，图五一之前我要看到反正，我自己都在想要不要去学点阴影描绘了
+
+我也没让你打很多，你自己学业忙我可没逼过你，你自己喜欢嘤嘤嘤可不是我教的
+
+
+-----
+
+####  GRMeA104  
+##### 13205#       发表于 2021-4-11 23:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908552&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-11 23:38</a>
+
+别废话了，图五一之前我要看到反正，我自己都在想要不要去学点阴影描绘了
+
+我也没让你打很多，你自己学业 ...</blockquote>
+嘤嘤嘤<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+         
