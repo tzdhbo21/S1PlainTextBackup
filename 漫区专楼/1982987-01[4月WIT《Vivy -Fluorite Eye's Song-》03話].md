@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 05:08** 
+> ## **本文件最后更新于2021-04-11 19:04** 
 
 
 
@@ -3999,4 +3999,386 @@ image.png
 <img src="https://img.saraba1st.com/forum/202104/11/130543h3k2k5lmbhdv4hs9.png" referrerpolicy="no-referrer">
 
 
-                                       
+-----
+
+####  Tehebe  
+##### 304#       发表于 2021-4-11 14:55
+
+
+ 这回妹妹能救了吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  chenzhi11  
+##### 305#       发表于 2021-4-11 15:26
+
+
+开头的时间线选择游戏味挺足的，
+
+熊会不会是坏的然后vivy得知真相选择回到起始点自我毁灭。
+
+
+-----
+
+####  古道西风瘦3B  
+##### 306#       发表于 2021-4-11 15:54
+
+
+ 本帖最后由 古道西风瘦3B 于 2021-4-11 15:56 编辑 
+
+关于熊的行为及其行动准则：
+
+到目前而言我觉得大致上，从熊不是黑的角度出发，还是可以自圆其说的：
+
+1.其最终目的是阻止那场战争，换言之倘若最终结局是人与AI和平共处，对于他而言不是不能接受。在此基础之上，第一个故事熊阻止反AI组织杀人，第二个故事阻止卫星坠毁降低人们对AI的反感，本质上都是在阻止暴力事情的发生，防止事情走向极端化，缓解矛盾的对立程度。这个逻辑是说得通的。
+
+2.其行为准则是有限干预，反对过度干预。他极力主张要救那个议员、防止卫星坠毁，是干预；无论如何都不让华哥去救那架失事飞机（直接暴力阻止）、不乱用其拥有的代差的AI能力、干完事情直接睡个十几年，是反对过度干预。这样也是说得通的。
+
+
+前面有个楼层说得好“从唯物史观的角度来看，这种妄图消灭某种技术从而解决掉未来可能出现的问题是根本不可能的”，所以（不从编剧会怎么想的角度，而是我个人觉得要让这部动画感观好、别崩成01那种的角度出发）最终结局让人与AI和谐共存是挺合理的一个结局，毕竟在动画已经塑造的世界观下AI获得人权已经是不可逆转的事情了
+
+
+-----
+
+####  HGCG  
+##### 307#       发表于 2021-4-11 16:00
+
+
+可恶为什么现在的剧本家写片子都这么慢
+
+能学学巴克亚罗吗
+
+
+-----
+
+####  海狍子  
+##### 308#       发表于 2021-4-11 16:08
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/160733jyspsz6p88qsyzqm.png" referrerpolicy="no-referrer">
+
+
+<strong>0LLR%@8A)5K0FMD(79}OH.png</strong> (210.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 16:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/160746nmx3dbxzarmmb844.png" referrerpolicy="no-referrer">
+
+
+<strong>(0]78ZYL$G{ESD)[1BZ{VOX.png</strong> (80.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 16:07 上传
+
+
+草啊，没人吐槽日升大酒店坠落地球吗（
+
+
+-----
+
+####  aptx8285144  
+##### 309#       发表于 2021-4-11 16:32
+
+
+ 本帖最后由 aptx8285144 于 2021-4-11 16:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50903926&amp;ptid=1982987" target="_blank">古道西风瘦3B 发表于 2021-4-11 15:54</a>
+
+关于熊的行为及其行动准则：
+
+到目前而言我觉得大致上，从熊不是黑的角度出发，还是可以自圆其说的：
+
+1.其最 ...</blockquote>
+话说为何不让女主去救那架飞机还是有点奇怪的，他好像说历史长河中发生的意外不能干预之类的，如果不是直接改变百年后发展之类的，他不肯让搭档救好友总感觉更像向她说明历史进程的残酷
+
+
+-----
+
+####  zakki  
+##### 310#       发表于 2021-4-11 16:38
+
+
+ 本帖最后由 zakki 于 2021-4-11 16:39 编辑 
+
+我双世界，双主人公，叙诡，睫毛ptsd要犯了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/163918kab8za1ae51adbiw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210411_163734.jpg</strong> (383.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 16:39 上传
+
+
+-----
+
+####  Quantum233  
+##### 311#       发表于 2021-4-11 16:41
+
+
+那串sdjsDoa5dH [ab/pe 有人推论出意义/找到出处了么
+
+
+-----
+
+####  aptx8285144  
+##### 312#       发表于 2021-4-11 17:00
+
+
+那个变红我也怀疑是熊对付薇薇的一个后手<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shadow001  
+##### 313#       发表于 2021-4-11 17:06
+
+
+ 本帖最后由 shadow001 于 2021-4-11 17:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50903926&amp;ptid=1982987" target="_blank">古道西风瘦3B 发表于 2021-4-11 15:54</a>
+
+关于熊的行为及其行动准则：
+
+到目前而言我觉得大致上，从熊不是黑的角度出发，还是可以自圆其说的：
+
+1.其最 ...</blockquote>
+至少從現在的劇情並不能解釋熊哥的行為
+
+熊哥沒有任何理由要找女主幫忙,第2集說是因為女主是唯一存在100年的機器人,但這根本不構成熊哥找女主幫忙的理由
+
+以熊哥的能力完全可以駭其他機器人來用,而且原世界線女主能存在100年是因為被送入博物館
+
+現世界線改變了,女主已經沒有能存在100年的前提
+
+
+不能過度干涉就很奇怪,現在第二個任務是阻止日升墜落,世界性的歷史級事件,第2集飛機墜落根本不算甚麼
+
+而且熊哥只理奇點,這說明只改變幾個奇點就能改變100年後的AI叛變
+
+那熊哥並沒有理由阻止女主救飛機
+
+
+-----
+
+####  HGCG  
+##### 314#       发表于 2021-4-11 17:46
+
+
+VIVY的黑丝呸喽呸喽
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gpfxo7kjuwj21he0u04qq.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古道西风瘦3B  
+##### 315#       发表于 2021-4-11 17:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904513&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-4-11 17:06</a>
+
+至少從現在的劇情並不能解釋熊哥的行為
+
+熊哥沒有任何理由要找女主幫忙,第2集說是因為女主是唯一存在100年 ...</blockquote>
+我赞成您第一个观点，深究起来，熊非要找女主帮忙缺乏令大多数观众信服的依据（要我嘴硬其实我还是可以解释的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，不是松本博士说“歌姬，拜托你啦！”的吗，那么那个AI执行博士的命令不是没问题的嘛。不过我也觉得编剧没这么细，没想这么多，就纯天将降大任于斯人也了，具体怎么说得看后续展开，我说的算个屁，编剧才是上帝）不过随便骇入不就是违反我说的“过度干涉”中“滥用能力”那一条了吗？
+
+
+另外我说的过度干涉本质上是防止蝴蝶效应。本片一直有说演算预测啥的，熊哥所谓“几个奇点影响未来”应该是他或者博士演算的结果，所以这是他一定要做到的事情；而蝴蝶效应，您肯定看过石头门，微小的改动也可能（当然不是一定）对未来产生巨大的影响。虽然可能这些影响，并不一定会影响到最终的大局，但是计划执行者（也就是熊哥）出于保守起见自然不希望节外生枝的事情发生。
+
+
+我是这么理解的，当然最终一切以编剧说的算。
+
+
+-----
+
+####  古道西风瘦3B  
+##### 316#       发表于 2021-4-11 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904223&amp;ptid=1982987" target="_blank">aptx8285144 发表于 2021-4-11 16:32</a>
+
+话说为何不让女主去救那架飞机还是有点奇怪的，他好像说历史长河中发生的意外不能干预之类的，如果不是直 ...</blockquote>
+同感，安排这一段戏，强调“历史的沉重”的感觉很浓，也算呼应博士临死前说的“这会是太过沉重的一百年”这句话吧
+
+
+-----
+
+####  hqtkkb  
+##### 317#       发表于 2021-4-11 19:10
+
+
+结尾那个断头配合bgm还怪有感觉的，日漫在这些奇奇怪怪的桥段的渲染上总是做的特别好——但剧情总是暴走白给就很浪费……
+
+
+细节上的猜测就别想了吧，原创翻车那么多回你们还不消停啊，回回都说细思极恐，结果每次到最后都是想太多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 318#       发表于 2021-4-11 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904513&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-4-11 17:06</a>
+
+至少從現在的劇情並不能解釋熊哥的行為
+
+熊哥沒有任何理由要找女主幫忙,第2集說是因為女主是唯一存在100年 ...</blockquote>
+我觉得熊对女主态度看，不让他去救主要是说明历史进程的残酷以及可能会和她站在对立立场又一个作证
+
+
+-----
+
+####  漫区专号  
+##### 319#       发表于 2021-4-11 19:37
+
+
+这片一股Lost song的感觉，大概率有“诡述”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG  
+##### 320#       发表于 2021-4-11 20:20
+
+
+听预告，下一集女主要同意松本给她装战斗程序了？
+
+
+-----
+
+####  Fingest  
+##### 321#       发表于 2021-4-11 20:44
+
+
+三集了 整体基调还是挺稳 
+
+
+-----
+
+####  言酱啊啊啊  
+##### 322#       发表于 2021-4-11 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50902237&amp;ptid=1982987" target="_blank">timerrr 发表于 2021-4-11 12:19</a>
+数量对上了</blockquote>
+问一下下图这个礼物盒是啥片来着，记忆中的画面有这个片段甚至还有弹幕的高能预警，但是就是想不起啥片了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  timerrr  
+##### 323#       发表于 2021-4-11 21:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50906796&amp;ptid=1982987" target="_blank">言酱啊啊啊 发表于 2021-4-11 20:59</a>
+
+问一下下图这个礼物盒是啥片来着，记忆中的画面有这个片段甚至还有弹幕的高能预警，但是就是想不起啥片了 ...</blockquote>
+chaos；child
+
+
+-----
+
+####  timerrr  
+##### 324#       发表于 2021-4-11 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904282&amp;ptid=1982987" target="_blank">zakki 发表于 2021-4-11 16:38</a>
+
+我双世界，双主人公，叙诡，睫毛ptsd要犯了啊</blockquote>
+有寒蝉业内味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kos_mos  
+##### 325#       发表于 2021-4-11 21:10
+
+
+熊大概猜测AI叛乱的有力原因之一可能是对反对AI激进派人类的反击（先下手为强），解决这次事件让AI降低叛乱概率。
+
+
+-----
+
+####  马桶3  
+##### 326#       发表于 2021-4-11 23:43
+
+
+盲猜这酒店搞不好是披着羊皮的轨道兵器，旧店长因为知道真相要反结果被和谐了，所以剩下这些AI在等时机完成遗愿……
+
+
+-----
+
+####  wingedkuriboh  
+##### 327#       发表于 2021-4-11 23:47
+
+
+神前晓...我的神前晓...<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">插入歌真好听，可为啥选的歌手唱的也很像AI？故意的吗？
+
+还有这个sunrise酒店www
+
+
+-----
+
+####  大丈夫萌大乃  
+##### 328#       发表于 2021-4-11 23:58
+
+
+看到个弹幕:粉毛切开都是黑...蓝的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hyzk  
+##### 329#       发表于 2021-4-12 00:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908603&amp;ptid=1982987" target="_blank">马桶3 发表于 2021-4-11 23:43</a>
+
+盲猜这酒店搞不好是披着羊皮的轨道兵器，旧店长因为知道真相要反结果被和谐了，所以剩下这些AI在等时机完成 ...</blockquote>
+这种东西真敢让AI全权管理还开放旅游？不知道要混进去多少细作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Buttercry  
+##### 330#       发表于 2021-4-12 01:06
+
+
+ 本帖最后由 Buttercry 于 2021-4-12 01:10 编辑 
+
+WIT：我要让三癞子坠落！<img src="https://static.saraba1st.com/image/smiley/carton2017/026.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  terminator1990  
+##### 331#       发表于 2021-4-12 02:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904038&amp;ptid=1982987" target="_blank">海狍子 发表于 2021-4-11 16:08</a>
+
+草啊，没人吐槽日升大酒店坠落地球吗（</blockquote>
+既视感太强了，WIT你们把撞地的镜头左右互换一下都好呀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Laie  
+##### 332#       发表于 2021-4-12 02:54
+
+
+下集预告里的打戏都一股攻壳tva的味，真香
+
+
+                                      
