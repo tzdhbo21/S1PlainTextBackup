@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-10 18:13** 
+> ## **本文件最后更新于2021-04-11 05:08** 
 
 
 
@@ -3568,6 +3568,8 @@ vivy的cosplay秀，一个奇异点一个职业，太懂了<img src="https://sta
 ##### 274#       发表于 2021-4-11 02:08
 
 
+ 本帖最后由 whzfjk 于 2021-4-11 02:14 编辑 
+
 这片看来每次结尾都能让人虎躯一震<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 这 15 年后的 AI，就已经太像人了，和第一集开头100年后智械危机的画风产生了认知上的倒挂。
@@ -3579,4 +3581,422 @@ vivy的cosplay秀，一个奇异点一个职业，太懂了<img src="https://sta
 没想到人类小伙伴的姻缘还要继续，看起来会是机器人管家那样的走向，下一个篇章就是中年妹妹了（
 
 
-                                        
+============
+
+
+这熊看起来还是黑。
+
+是他让 Vivy 去救议员的，那么必然感动议员，从 AI 命名法变成 AI 人权法。
+
+如果说上次的目的还算是限制 AI，那么这次的行动则能消除一个大型 AI 负面事件，反而是有利于 AI 获得更多权限的。
+
+为了和平于是抑制反 AI 思潮，等于已经默认了 AI 是平等的，需要妥协的，有 beatless 那股人奸味了。
+
+
+-----
+
+####  xwr  
+##### 275#       发表于 2021-4-11 02:30
+
+
+这也算是三集掉头吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sorastlos  
+##### 276#       发表于 2021-4-11 02:50
+
+
+这明明是三集上太空啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 277#       发表于 2021-4-11 07:28
+
+
+ 本帖最后由 JustW 于 2021-4-11 07:29 编辑 
+
+这片子目前来看很有点AI版的《紫罗兰永恒花园》的意思，女主像薇尔莉特一样在单元剧中寻找“心”的定义。有意思的地方在于作为史上第一台自律AI，我之前一直在想为什么要设计成歌姬，而这集教授对vivy说的话让我猜测，是不是为了让vivy通过学习给出“心”的严格定义，然后运用到之后的AI当中。
+
+
+AI命名法→AI人权法这步子迈得是不是有点大。
+
+
+ed听歌的时候看到演职员表有小原好美，还在奇怪她配了谁，结果ed后桃佳妹妹就出来了。也就是<strong>这俩姐妹也太惨了吧</strong>，要是没有vivy上飞船的话，岂不是在姐姐飞机事故去世之后，妹妹也要跟着飞船事故去世？？
+
+
+黄毛果然还是黑的，目前只有一个手腕处的伏笔，猜不出来会是什么原因。大 的 在 下 一 集
+
+
+-----
+
+####  LinkerWeg  
+##### 278#       发表于 2021-4-11 09:09
+
+
+歌很一般啊
+
+这集倒没觉得新AI有多么像人，笑容还是有点假，或者干脆说这个人设不笑才好看吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pri127  
+##### 279#       发表于 2021-4-11 09:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">史上第一个AI，在街头卖艺唱了10几年歌还没人认识，太惨了
+
+
+-----
+
+####  gofbayrf  
+##### 280#       发表于 2021-4-11 10:02
+
+
+三流議員怎可能有那麽大能量外加一票黑衣人保鏢 熊說謊了
+
+關鍵ai最終暴走估計還是在於ai只有一個使命的問題上 熊的作用是把vv的心培育出來取代使命的設定 不受單一使命限制就不會失去使命而暴走
+
+
+-----
+
+####  stormist  
+##### 281#       发表于 2021-4-11 10:07
+
+
+怀疑原本ViVi是ai反抗的核心，被熊坑来更加自然的搞取代人类的线路
+
+
+-----
+
+####  ddsdsdsdf  
+##### 282#       发表于 2021-4-11 10:27
+
+
+这片看着就觉得小熊的真实打算是将原本的暴力路线转换成更加隐秘的温水煮青蛙路线，暴力路线必然招致人类残酷的报复，而走温和路线等到AI事实上已经掌握社会之后人类就再也无法反抗了
+
+
+-----
+
+####  慕云生  
+##### 283#       发表于 2021-4-11 10:45
+
+
+15年后的ai已经都有自己的名字了
+
+
+-----
+
+####  timerrr  
+##### 284#       发表于 2021-4-11 11:01
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/110137n11yhhohgw3hw8dt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ff9880cad1c8a786857716407009c93d71cf50a2.jpg</strong> (39.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 11:01 上传
+
+
+保 留 曲 目 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  丹德里恩  
+##### 285#       发表于 2021-4-11 11:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">粉毛笑得那么灿烂结果没活过一集....
+
+
+-----
+
+####  HGCG  
+##### 286#       发表于 2021-4-11 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901235&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-4-11 10:02</a>
+
+三流議員怎可能有那麽大能量外加一票黑衣人保鏢 熊說謊了
+
+
+關鍵ai最終暴走估計還是在於ai只有一個使命的問 ...</blockquote>
+应该是原本女主只去救议员一个的话，他应该会做为一个三流议员在不久后退出历史舞台，也不会有什么AI人权法
+
+但是女主做了很多“多余”的事，比如连KB分子都要救还有说了大道理点化了议员，良心发现后的议员从小人物变成了大人物，促成了更激进的法案
+
+
+-----
+
+####  Kojimaru  
+##### 287#       发表于 2021-4-11 11:27
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/112350qpwuy2pwwmy9ypv2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (37.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 11:23 上传
+
+
+开场的时候歌姬灯红是因为熊在通知她吗？重看了第一集开头，为了改变世界线歌姬至少还得擦两次屁股
+
+
+-----
+
+####  青菜子  
+##### 288#       发表于 2021-4-11 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901647&amp;ptid=1982987" target="_blank">timerrr 发表于 2021-4-11 11:01</a>
+
+保 留 曲 目</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/305.png" referrerpolicy="no-referrer">啥意思，没看懂
+
+
+-----
+
+####  timerrr  
+##### 289#       发表于 2021-4-11 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901963&amp;ptid=1982987" target="_blank">青菜子 发表于 2021-4-11 11:44</a>
+
+啥意思，没看懂</blockquote>
+梅原英司，11个礼品盒<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hyzk  
+##### 290#       发表于 2021-4-11 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901810&amp;ptid=1982987" target="_blank">HGCG 发表于 2021-4-11 11:26</a>
+
+应该是原本女主只去救议员一个的话，他应该会做为一个三流议员在不久后退出历史舞台，也不会有什么AI人权 ...</blockquote>
+其实三集开头熊说都在意料之中，历史的流向不会因为一块小石头而改变的时候有点唯物史观的那个味道，这个议员只是社会思潮的一个代表而已，他能力差无非也就推迟几年，成为导火索也就加速几年，但趋势本身是不会变的。不过这样一来，熊哥不利用技术优势搞大动作，而仅限于在几个时点有限干涉的做法从逻辑上来说就是木大的，让人很怀疑他的真实目的到底是啥了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  青菜子  
+##### 291#       发表于 2021-4-11 11:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熊这样做最后肯定是走互相理解的路线了。。封杀是封杀不完的。。那个AI搬运工的眼神要比老板娘瘆人多了。
+
+
+话说这样搞下去第一季那群反派都要老死了吧。
+
+
+-----
+
+####  Hyzk  
+##### 292#       发表于 2021-4-11 12:01
+
+
+话说三集开头的那个换线场景说不定并非单纯的表现手法，感觉AI演算未来世界说的可能性变高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  susan28  
+##### 293#       发表于 2021-4-11 12:02
+
+
+看完第3集 一些BGM 配的真好的  清扬 又有未来科技感  感觉跟碧蓝档案 那种风格一样 
+
+看到最后 我想这集不会就这样平稳结束 结果下集来个 大 的。。。
+
+
+老实说 被这熊 牵着鼻子 好被动啊。。
+
+
+其实我还有个问题 AI 穿的黑丝 会有味道吗？？？
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/120234uny82jhl8mh2dh2d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 03 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (205.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 12:02 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/120242h5rgf4kx5u7pu40x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 03 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (147.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 12:02 上传
+
+
+-----
+
+####  有钱多买小人  
+##### 294#       发表于 2021-4-11 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901821&amp;ptid=1982987" target="_blank">Kojimaru 发表于 2021-4-11 11:27</a>
+开场的时候歌姬灯红是因为熊在通知她吗？重看了第一集开头，为了改变世界线歌姬至少还得擦两次屁股 ...</blockquote>
+看到小女孩的幻觉了吧。所以跑去做检查。
+
+
+-----
+
+####  aptx8285144  
+##### 295#       发表于 2021-4-11 12:06
+
+
+日笠唱的那首约定比种崎开头的那首好听多了，和前任死亡有关应该是粉毛放出来的个烟雾弹吧，薇薇应该能阻止日笠，话说星空展现那里制作质量太好了
+
+
+-----
+
+####  aptx8285144  
+##### 296#       发表于 2021-4-11 12:08
+
+
+姐姐已经死了，又来了个妹妹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 297#       发表于 2021-4-11 12:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50900101&amp;ptid=1982987" target="_blank">whzfjk 发表于 2021-4-11 02:08</a>
+
+这片看来每次结尾都能让人虎躯一震
+
+这 15 年后的 AI，就已经太像人了，和第一集开头100年后智械危机 ...</blockquote>
+我莫名觉得主角周围要到都是“黑的”也挺带感的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  timerrr  
+##### 298#       发表于 2021-4-11 12:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901963&amp;ptid=1982987" target="_blank">青菜子 发表于 2021-4-11 11:44</a>
+
+啥意思，没看懂</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202104/11/121918oqsgmpgppg2mg2u4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ff9880cad1c8a786857716407009c93d71cf50a2.jpg</strong> (39.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 12:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/121927vt6zklquuk7rmmkh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>c35fa93eb13533fac295cc60bfd3fd1f40345be0.jpg</strong> (30.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 12:19 上传
+
+
+数量对上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 299#       发表于 2021-4-11 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901963&amp;ptid=1982987" target="_blank">青菜子 发表于 2021-4-11 11:44</a>
+啥意思，没看懂</blockquote>
+非实在青少女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 300#       发表于 2021-4-11 12:23
+
+
+<blockquote>青菜子 发表于 2021-4-11 11:52
+熊这样做最后肯定是走互相理解的路线了。。封杀是封杀不完的。。那个AI搬运工的眼神要比老板娘瘆人 ...</blockquote>
+下一集预告里好像vivy救的**要出来了
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 301#       发表于 2021-4-11 12:25
+
+
+ 本帖最后由 aptx8285144 于 2021-4-11 12:26 编辑 
+
+黄毛和薇薇围绕松本熊对手戏那段笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+已经有考证，日笠的黄毛，断头的粉毛以及还没出场的黑毛<strong>都是第一话博士死前闪现的画面三人组，第一话3分15秒那里，懒得截图了</strong>（
+
+
+-----
+
+####  青菜子  
+##### 302#       发表于 2021-4-11 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50902237&amp;ptid=1982987" target="_blank">timerrr 发表于 2021-4-11 12:19</a>
+
+数量对上了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这也太恶意了，🎁🎁🎁🎁🎁🎁🎁🎁🎁🎁🎁
+
+
+-----
+
+####  Sorastlos  
+##### 303#       发表于 2021-4-11 13:06
+
+
+第一话3分15秒那里
+
+前面还有两个镜头，这是第三个也是最后一个镜头
+
+现在看博士的闪回可能是倒叙，第三个镜头的时间在最前面
+
+
+image.png
+(103.6 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-11 13:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/130543h3k2k5lmbhdv4hs9.png" referrerpolicy="no-referrer">
+
+
+                                       
