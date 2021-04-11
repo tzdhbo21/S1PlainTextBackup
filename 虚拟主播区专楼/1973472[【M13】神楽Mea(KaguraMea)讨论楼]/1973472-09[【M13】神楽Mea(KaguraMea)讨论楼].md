@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 05:43** 
+> ## **本文件最后更新于2021-04-11 13:41** 
 
 
 
@@ -11714,4 +11714,326 @@ tc了
 坦克民什么时候能幻灭呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-            
+-----
+
+####  JY要塞  
+##### 13114#       发表于 2021-4-11 17:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克民的我幻灭了，就说明肉体厨的我胜利了
+
+
+-----
+
+####  Mikumiku831  
+##### 13115#       发表于 2021-4-11 17:32
+
+
+虽然不是坦克但是你麻骨架子大 估计身形已经走样了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 13116#       发表于 2021-4-11 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50902425&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-11 12:45</a>
+因为前几天好像咩栗还是什么别的国V被封直播间了，看了一眼是出了个着装规定？ ...</blockquote>
+咩栗、niki和清良
+前面两个属于千舰头部的被抓典型不奇怪
+阿良属于完全摸不着头脑为什么被搞，原因只有可能是立绘太漏
+⬇️立绘长这样
+
+<img src="https://img.saraba1st.com/forum/202104/11/172447ils8wuscq6u1csip.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_7877.JPG</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 17:24 上传
+
+
+也不是被封直播间，要求自肃15天，直播间搜不到但是能进去。同时在别人直播间里也不能出现（咩栗在呜米、阿良在yua直播间出现都是以某室友代称）。这个已经是叔叔最大的让步属于是，因为最早是说要直接封号。
+
+还有就是那天残佬（现在psp的头子）大清早在b综群里说全部同行都在大半夜加班处理违规的事情，都是一晚上没睡。应该被管到的不止这三个。
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 13117#       发表于 2021-4-11 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904699&amp;ptid=1973472" target="_blank">缺陷电气杨永信 发表于 2021-4-11 17:32</a>
+
+咩栗、niki和清良
+
+前面两个属于千舰头部的被抓典型不奇怪
+
+阿良属于完全摸不着头脑为什么被搞，原因只有可 ...</blockquote>
+那还真是大手笔，看来前阵子那几个露毛的B碰到红线了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 吊麻今天能八点播吗，我好困
+
+
+-----
+
+####  路人庚  
+##### 13118#       发表于 2021-4-11 18:04
+
+
+看投票应该是东京21点了（如果她按照投票结果来的话
+
+
+-----
+
+####  A2014720  
+##### 13119#       发表于 2021-4-11 18:15
+
+
+直播间开了
+
+这标题姨味太浓了，我要退坑回踩<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13120#       发表于 2021-4-11 18:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新版本是这样的
+
+
+-----
+
+####  kenjjj  
+##### 13121#       发表于 2021-4-11 18:26
+
+
+要共享咩宝了么，能不能快进到共享小小麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13122#       发表于 2021-4-11 18:30
+
+
+早该踩踩了
+
+
+-----
+
+####  A2014720  
+##### 13123#       发表于 2021-4-11 20:02
+
+
+姨起来一套一套的，你已经不是我认识的那个麻麻了，把那个小麻还给我<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/ab1dad1260b8c3c74b828cefc654eda3/-e8516464272984f.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|「いいね」|
+
+
+查看全部评分
+
+
+-----
+
+####  暴走的包子  
+##### 13124#       发表于 2021-4-11 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蹭蹭更健康
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  路人庚  
+##### 13125#       发表于 2021-4-11 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">明天你咩姐就要结婚了
+
+
+-----
+
+####  thisisaspider  
+##### 13126#       发表于 2021-4-11 20:13
+
+
+她说了和阿宅结婚 已经涉嫌悔婚被我关地下室了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13127#       发表于 2021-4-11 20:19
+
+
+振袖和服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13128#       发表于 2021-4-11 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">振袖和服来力！20岁~20岁~20岁~
+
+
+-----
+
+####  时间在我手中  
+##### 13129#       发表于 2021-4-11 20:23
+
+
+糊成狗了，阿姨就是阿姨，20岁之后果然就不行了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13130#       发表于 2021-4-11 20:28
+
+
+老阿姨别装嫩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13131#       发表于 2021-4-11 20:43
+
+
+恁这IGNITE退步程度可以竞争今晚前三了，笑嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13132#       发表于 2021-4-11 20:44
+
+
+有气无力，就你这样还想养噶吃？<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 13133#       发表于 2021-4-11 20:48
+
+
+突然发现这个皮还有呼吸的大小变化
+
+
+-----
+
+####  雪风utopia  
+##### 13134#       发表于 2021-4-11 20:55
+
+
+新皮还是骗到了不少mmr<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13135#       发表于 2021-4-11 20:58
+
+
+什么拉夫歌😅
+
+
+-----
+
+####  Joffre✔  
+##### 13136#       发表于 2021-4-11 20:58
+
+
+又唱拉夫歌是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 13137#       发表于 2021-4-11 20:58
+
+
+讲道理她“我爱你”总是唱的很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13138#       发表于 2021-4-11 20:59
+
+
+什么川皇角色歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13139#       发表于 2021-4-11 21:00
+
+
+china!<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13140#       发表于 2021-4-11 21:21
+
+
+拉夫歌u18r版本既视感太强，快进到小麻完成叔叔的任务给rua在阿b引流<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 13141#       发表于 2021-4-11 21:31
+
+
+rua只是想交交朋友对流量不感兴趣捏<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シルフィエット  
+##### 13142#       发表于 2021-4-11 21:31
+
+
+愛唄好耶
+
+
+-----
+
+####  Mr.shelter  
+##### 13143#       发表于 2021-4-11 21:38
+
+
+同接变高就是因为这个新皮吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。那也没高多少啊
+
+
+           
