@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 17:11** 
+> ## **本文件最后更新于2021-04-11 17:58** 
 
 
 
@@ -13247,4 +13247,157 @@ s1就像家一样温暖，虽然家人们都很nt，但我还是喜欢这里<img
 当年还是你叫我去打轴剪辑的····都这么久了唉
 
 
-        
+-----
+
+####  GeraltzRivii  
+##### 13255#       发表于 2021-4-12 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909262&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 01:08</a>
+准确说是我自己找人接的盘，总好过我自己号上那点播放，顺便教人打轴罢了
+
+效率的话····其实人没变， ...</blockquote>
+挺好的，我一直觉得日报的大伙都很棒，只是我本人在这方面能力不太行，导致他们的实力没发挥出来。
+复活以来都烤了3次长时间全熟了，这效率没得说。
+时间确实过得快，距离18年都过去3年哩。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  清风苍澜  
+##### 13256#       发表于 2021-4-12 01:22
+
+
+有一说一，你报能诈尸我都没想到
+
+
+-----
+
+####  时间在我手中  
+##### 13257#       发表于 2021-4-12 01:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909321&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 01:17</a>
+
+挺好的，我一直觉得日报的大伙都很棒，只是我本人在这方面能力不太行，导致他们的实力没发挥出来。
+
+复活 ...</blockquote>
+认识的人还愿意给我面子罢了，至于以前那些我只能说从结论来说
+
+就没必要和官组较劲，因为和一坨烂泥较劲其实很没劲
+
+我现在反正也是比较放松那种，跟人学了不少特效轴这些，然后剪辑啥的也是做多了就大概知道怎么弄，虽然新皮说实话我其实有点不知道该剪什么
+
+看看她这周弄什么吧，我还是喜欢捡漏然后自己慢慢做，日报的大伙儿的话emmmm，你要是能联系到什么猛男翻译就再好不过了，校对我大概能动用2-3个有近似实力的人，我这边还有几个在做的肉
+
+反正姑且在考虑要不要招人吧，虽然我现在更想要小团体式集中工作，主要是朋友交情的话感觉提出请求舒服不少，大家伙一起做起来也比较开心
+
+全熟这个其实有点取巧，虽然杂谈没办法取巧就是了
+
+
+-----
+
+####  汇聚群光  
+##### 13258#       发表于 2021-4-12 01:26
+
+
+说到神乐组成员联动，mea上一次和组内成员的联动还是在今年1月初的时候和如月一块参加了组长举办的8人太空狼人杀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+现在mea还能帮自己组员转直播预告推、在她们生日/出道一周年纪念的时候发推祝贺、并且时不时去查房，我们就该知足了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于和其他人，估计只能指望犬山或者组长又有什么新活了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13259#       发表于 2021-4-12 01:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909371&amp;ptid=1973472" target="_blank">汇聚群光 发表于 2021-4-12 01:26</a>
+
+说到神乐组成员联动，mea上一次和组内成员的联动还是在今年1月初的时候和如月一块参加了组长举办的8人太空 ...</blockquote>
+我姑且说一句····那个是知名coser的enako·····级别大概emmmm，算了我说不清，反正要是能联动到简直了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GeraltzRivii  
+##### 13260#       发表于 2021-4-12 01:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909353&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 01:23</a>
+认识的人还愿意给我面子罢了，至于以前那些我只能说从结论来说
+
+就没必要和官组较劲，因为和一坨烂泥较劲 ...</blockquote>
+能够放松做真的舒服很多。
+我最魔怔的时候已经享受不到直播的乐趣了，看直播纯粹就是看看能有啥剪的，听到艾特说播了第一反应是疲惫。
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">现在我什么都联系不到啦，因为mea而相识的网友们，要么联系慢慢变少，要么就闹掰不联系了，有时候想想就觉得仿若黄粱一梦。
+加油吧，祝现实生活能发展的更好，烤肉能放松做做让自己感受到积极情绪。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+-----
+
+####  A2014720  
+##### 13261#       发表于 2021-4-12 01:32
+
+
+联动会不会有难说，但有了八成是苔苔直播间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这一套还是苔苔厉害，你们事业民去给苔苔打sc想办法吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GeraltzRivii  
+##### 13262#       发表于 2021-4-12 01:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909348&amp;ptid=1973472" target="_blank">清风苍澜 发表于 2021-4-12 01:22</a>
+有一说一，你报能诈尸我都没想到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">xm哥好久不见！
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13263#       发表于 2021-4-12 01:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909407&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 01:31</a>
+
+能够放松做真的舒服很多。
+
+我最魔怔的时候已经享受不到直播的乐趣了，看直播纯粹就是看看能有啥剪的，听 ...</blockquote>
+我去年给同好会那边供稿200多，说实话感觉累得要死，后期的确也和你说的那样，感到了极度的疲惫
+
+毕竟你看个联动你要考虑剪什么几把，然后这东西播放量那些啥的是吧，还要看这些有的没的几把破事其实挺烦的
+
+反正19年那会儿你和我说的官组那些狗屁事随着621的死亡也彻底没意义了
+
+我现在就是觉得某段自己很喜欢才想动了
+
+说到底过年mea整活了，官组两天内出了也就10万不到播放量，其实就该明白了，已经不是以前那时候了
+
+我也不清楚自己究竟算魔怔还是正常，也许是两者交替之间，反正我还能感到乐趣，可能我这人就这么简单
+
+前几天新皮我的确有点所谓【破防】了，但是其实是我自己心中的梁木，11月那事给我造成的阴影很重说实话
+
+这几天看下来，也就那样吧，虽然非要说杏花这个御用L2D人的抽搐动法我还是不太喜欢就是了，但是无所谓了
+
+要说所谓回旋，无非就是发现自己还是放不下而已，我还有想做的事，想要达成的目标
+
+我这人有种偏执，某些事不达成我一定不会甘心，所以才会留恋，才会像个弱智一样
+
+总而言之，我现在很好，这样就好，把地盘圈上了，和某些玩意儿隔离开来，我觉得我才能逐渐习惯
+
+
+       
