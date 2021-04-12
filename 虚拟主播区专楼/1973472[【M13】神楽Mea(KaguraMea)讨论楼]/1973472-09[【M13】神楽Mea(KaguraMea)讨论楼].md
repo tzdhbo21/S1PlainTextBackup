@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-12 03:47** 
+> ## **本文件最后更新于2021-04-12 12:55** 
 
 
 
@@ -13104,10 +13104,11 @@ syl，求求咩别在迷信自己了，狗蛋合唱调音就挺好听的，上�
 评分
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 减分之加| + 1||
 | GeraltzRivii| + 1||
 
 
@@ -13777,4 +13778,524 @@ remake过的两人如是说<img src="https://static.saraba1st.com/image/smiley/f
 我也懒得管了，谁有闲情雅致叼他们就去吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-      
+-----
+
+####  呓亘  
+##### 13294#       发表于 2021-4-12 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50911859&amp;ptid=1973472" target="_blank">黒長直姫 发表于 2021-4-12 11:31</a>
+ 同接？有用吗？</blockquote>
+慢慢来呗 
+
+
+-----
+
+####  暴走的包子  
+##### 13295#       发表于 2021-4-12 12:15
+
+
+同接这年头不上w就没啥用，订阅也是几十万都差不多，现在这地位钱不少事不多挺舒服的
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  JY要塞  
+##### 13296#       发表于 2021-4-12 12:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克民也赢了，大家都有光明的未来
+
+
+-----
+
+####  zc1996zc  
+##### 13297#       发表于 2021-4-12 12:48
+
+
+快进到小麻人气跌到低谷然后真人出镜结果被发现是乔碧麻
+
+
+-----
+
+####  jhouo8989  
+##### 13298#       发表于 2021-4-12 12:55
+
+
+身材圆润这件事还需要出镜才发现吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时雨rain  
+##### 13299#       发表于 2021-4-12 13:00
+
+
+重坦民是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13300#       发表于 2021-4-12 13:47
+
+
+总有人觉得小麻是坦克<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+             
+
+你麻最近这么媚宅，怎么就不干点满足事业民的事儿呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13301#       发表于 2021-4-12 13:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满足事业民好几把累啊，先睡了
+
+
+-----
+
+####  rosevalley46  
+##### 13302#       发表于 2021-4-12 14:02
+
+
+这不是给事业民安排上和舞 兔的桃铁了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13303#       发表于 2021-4-12 14:10
+
+
+这算啥几把事业相关<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 13304#       发表于 2021-4-12 14:29
+
+
+本事业民只想看live和3d 
+
+其他无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+个人曲衣服莫多莫多<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13305#       发表于 2021-4-12 14:36
+
+
+想看fc2出道<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13306#       发表于 2021-4-12 14:37
+
+
+live今年基本没机会了吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">ddd这女人也是那种不怎么常用的，sad。
+
+下午新曲子希望mix和上次再见宣言一样阳间点
+
+
+-----
+
+####  Mikumiku831  
+##### 13307#       发表于 2021-4-12 14:42
+
+
+苦学吉他作曲
+
+希望有朝一日可以让小麻唱自己的曲<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 13308#       发表于 2021-4-12 15:32
+
+
+麻了，桃铁搞了半年都才25年出头
+你麻和黄兔子的大半联动怕不是都被垃圾时间填满了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 13309#       发表于 2021-4-12 18:02
+
+
+熟悉的mix 耳朵疼
+
+
+-----
+
+####  A2014720  
+##### 13310#       发表于 2021-4-12 18:03
+
+
+ 本帖最后由 A2014720 于 2021-4-12 18:06 编辑 
+
+你新曲曲绘和mix怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/7ccdfb2fb47c30016cbfb6a7544d08b5/IMG_CMP_213495099.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 13311#       发表于 2021-4-12 18:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 13312#       发表于 2021-4-12 18:06
+
+
+第一反应是小护士
+
+
+-----
+
+####  A2014720  
+##### 13313#       发表于 2021-4-12 18:12
+
+
+<img src="https://p.sda1.dev/1/17884366a1302cb97092a3f90e2d1e3e/IMG_CMP_177091408.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13314#       发表于 2021-4-12 18:14
+
+
+emmmm，听不懂
+
+
+-----
+
+####  Cushaw  
+##### 13315#       发表于 2021-4-12 18:16
+
+
+肉体肉体肉体<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Mikumiku831  
+##### 13316#       发表于 2021-4-12 18:28
+
+
+左上右上图没见过 可以发原图吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13317#       发表于 2021-4-12 18:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议按五官来分，遗失的麻鼻
+
+
+-----
+
+####  A2014720  
+##### 13318#       发表于 2021-4-12 18:41
+
+
+tc了
+
+
+-----
+
+####  草牛  
+##### 13319#       发表于 2021-4-12 18:43
+
+
+怎么回事呢
+
+
+-----
+
+####  时间在我手中  
+##### 13320#       发表于 2021-4-12 18:53
+
+
+ 本帖最后由 时间在我手中 于 2021-4-12 18:55 编辑 
+
+小麻我养你啊<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">结婚吧我们
+
+syl 前阵子怎么还去东京恰了海胆，但是还是想吃北海道的
+
+
+
+
+-----
+
+####  JY要塞  
+##### 13321#       发表于 2021-4-12 18:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要变成恨嫁老女人了
+
+
+-----
+
+####  pei23333  
+##### 13322#       发表于 2021-4-12 18:58
+
+
+刚刚那一声好可爱，是打嗝还是被摸到敏感的部分了呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  雪风utopia  
+##### 13323#       发表于 2021-4-12 18:58
+
+
+你们养的起小麻吗，一天天就想着结婚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl 一定是野男人<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13324#       发表于 2021-4-12 19:03
+
+
+这头猪我养了
+
+
+-----
+
+####  时间在我手中  
+##### 13325#       发表于 2021-4-12 19:07
+
+
+戴着太阳眼镜的送外卖外国人帅哥<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">小麻原来喜欢这种调调的吗啊
+
+
+-----
+
+####  路人庚  
+##### 13326#       发表于 2021-4-12 19:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/carton2017/023.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13327#       发表于 2021-4-12 19:12
+
+
+ 本帖最后由 时间在我手中 于 2021-4-12 19:14 编辑 
+
+这人竟然还有两首翻唱？惊了
+
+syl 原来之前那个fleet是三首啊，我记成两首了，整挺好
+
+
+-----
+
+####  雪风utopia  
+##### 13328#       发表于 2021-4-12 19:12
+
+
+这被窝的声音<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13329#       发表于 2021-4-12 19:13
+
+
+之前说了录了3首来着
+
+
+-----
+
+####  yywzjsw  
+##### 13330#       发表于 2021-4-12 19:15
+
+
+刚刚脖子被啥卡住了？
+
+
+-----
+
+####  路人庚  
+##### 13331#       发表于 2021-4-12 19:17
+
+
+没听清，可能是筋扯了一下（
+
+
+-----
+
+####  专业划水人员  
+##### 13332#       发表于 2021-4-12 19:28
+
+
+救护车经过要被特定了
+
+
+-----
+
+####  路人庚  
+##### 13333#       发表于 2021-4-12 19:31
+
+
+（而我的第一反应是会有新冠病人
+
+
+-----
+
+####  路人庚  
+##### 13334#       发表于 2021-4-12 19:34
+
+
+#刻在dna中的门铃声
+
+
+-----
+
+####  时间在我手中  
+##### 13335#       发表于 2021-4-12 19:43
+
+
+小麻想和家庭煮夫一样的男人结婚<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">被朋友吐槽这是找了个爹妈（）
+
+
+-----
+
+####  路人庚  
+##### 13336#       发表于 2021-4-12 20:08
+
+
+新凯子！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（指网恋男友）
+
+
+-----
+
+####  yywzjsw  
+##### 13337#       发表于 2021-4-12 20:11
+
+
+极道煮夫，dv她
+
+
+-----
+
+####  yywzjsw  
+##### 13338#       发表于 2021-4-12 20:11
+
+
+极道煮夫，dv她
+
+
+-----
+
+####  Joffre✔  
+##### 13339#       发表于 2021-4-12 20:13
+
+
+然而 极道煮夫才是被dv的那个 粉红坦克巨炮<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 13340#       发表于 2021-4-12 20:16
+
+
+不正好符合麻的幻想
+
+
+-----
+
+####  JY要塞  
+##### 13341#       发表于 2021-4-12 20:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">体味民胜利了
+
+
+-----
+
+####  时间在我手中  
+##### 13342#       发表于 2021-4-12 20:36
+
+
+想揉肥婆的头
+
+
+-----
+
+####  pei23333  
+##### 13343#       发表于 2021-4-12 20:38
+
+
+不知道什么时候存的火星图，凑活一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+7e0981a0-3148-11ea-8d65-b51a0f781c67_214045w2ixlsf67he9s9gb.jpg
+(123.93 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-12 20:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/12/203740s6k2dof16iykikos.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13344#       发表于 2021-4-12 20:40
+
+
+这图我有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13345#       发表于 2021-4-12 20:44
+
+
+你们麻图收集者能有点互联网精神吗<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+     

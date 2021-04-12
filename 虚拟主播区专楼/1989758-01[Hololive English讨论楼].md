@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-06 08:45** 
+> ## **本文件最后更新于2021-04-12 12:57** 
 
 
 
@@ -1363,7 +1363,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_it7DD" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_YfyCY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -2265,36 +2265,7 @@ Ina通关拉
 ####  UnhappyTails  
 ##### 128#       发表于 2021-3-9 10:38
 
-
-大清早起来刷到这个
-
-
-gura会不会回应呢<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer"> 
-
-
-啊哈<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
-
-
-会不会有小天才给剪到一起呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
-
-
-啊哈<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer"> 
-
-
-再这么下去我就要退化成批国的原子态贴贴人了，fuck<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
-
-
-FAFC5AD6-70CF-4F57-9BBB-2E256950FC73.jpeg
-(281.48 KB, 下载次数: 0)
-
-
-下载附件
-
-
-2021-3-9 10:35 上传
-
-
-<img src="https://img.saraba1st.com/forum/202103/09/103547mtuxzxeiiatxruu9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5434,4 +5405,436 @@ grapejapan对en运营的采访
 2021-4-6 13:51 上传
 
 
-                                      
+-----
+
+####  wiig  
+##### 332#       发表于 2021-4-6 17:00
+
+
+ 本帖最后由 wiig 于 2021-4-6 17:01 编辑 
+
+<img src="https://p.sda1.dev/1/1a3e0c503e91fa783ef9a49e70efdb00/IMG_CMP_60927877.jpeg" referrerpolicy="no-referrer">
+Kiara listening to wife spit bars
+
+#YourMoriEP 
+#callillust 
+#ArtsOfAshes 
+#ameliaRT 
+[url=]https://t.co/cxh40NTsUN[/url]
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 333#       发表于 2021-4-7 00:02
+
+
+<img src="https://img.saraba1st.com/forum/202104/07/000237cdplaufzb0lnhfnl.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (101.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-7 00:02 上传
+
+
+-----
+
+####  smy20011  
+##### 334#         楼主| 发表于 2021-4-7 00:24
+
+
+<blockquote>wiig 发表于 2021-4-6 13:51
+</blockquote>
+en老司机能把coco忽悠的一愣一愣的。
+
+
+-----
+
+####  wiig  
+##### 335#       发表于 2021-4-7 07:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50855339&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-7 00:24</a>
+en老司机能把coco忽悠的一愣一愣的。</blockquote>
+可以找那两个不会日语的看日语meme
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 336#       发表于 2021-4-7 13:38
+
+
+mamaloni这是买了多少张<img src="https://p.sda1.dev/1/f1af14153ce694ad8ff9b695a401cb37/IMG_CMP_115879533.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 337#       发表于 2021-4-7 16:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 338#       发表于 2021-4-7 21:05
+
+
+<img src="https://img.saraba1st.com/forum/202104/07/210537nypx13r0077y886y.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210407210528.png</strong> (94.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-7 21:05 上传
+
+
+-----
+
+####  wiig  
+##### 339#       发表于 2021-4-7 22:47
+
+
+Kiara这个月(?)有两首翻唱，一首是和某个En成员
+
+Calli专辑里还有两个MV，未来会发布
+
+昨天玩搅大缸的时候，Ryza送Klaudia手环，Kiara触景生情哭了半天
+
+
+-----
+
+####  wiig  
+##### 340#       发表于 2021-4-8 02:25
+
+
+<img src="https://p.sda1.dev/1/f7e6cd01cf5a1e6b140de8975816a598/IMG_CMP_2477328.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 341#       发表于 2021-4-8 08:11
+
+
+ollie在本社mc服务器带过来的先进经验，终于让en服现代化了一点<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  smy20011  
+##### 342#         楼主| 发表于 2021-4-8 11:34
+
+
+鲨鱼能量饮料2333
+
+
+-----
+
+####  wiig  
+##### 343#       发表于 2021-4-8 11:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50869861&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-8 11:34</a>
+鲨鱼能量饮料2333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">补图
+<img src="https://p.sda1.dev/1/05a2029d836721fe42df477ad092caed/IMG_CMP_129607984.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 344#       发表于 2021-4-8 12:00
+
+
+ 本帖最后由 wiig 于 2021-4-11 16:18 编辑 
+
+Gura 愚者代表纯真、新的开始、自由，主要是取自由的意思
+
+Ame 女祭司代表内在的智慧
+
+Ina 命运之轮代表命运的未知和不可抗力
+
+Kiara 太阳代表生机与喜悦，Kiara很阳光、外向、友善，相反的Calli总是很累，黑眼圈，说话阴沉。而低落的时候Kiara总是会鼓励她，对她来说就像太阳一样温暖，在Kiara身边总是会不自觉的笑起来<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 345#       发表于 2021-4-8 13:20
+
+
+ 本帖最后由 wiig 于 2021-4-8 13:29 编辑 
+
+<img src="https://p.sda1.dev/1/0c966223d4a6d6cd4bac9377d21dd0c9/IMG_CMP_19088506.jpeg" referrerpolicy="no-referrer">
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 346#       发表于 2021-4-8 13:40
+
+
+<img src="https://img.saraba1st.com/forum/202104/08/134018k2vw0wz0f5mam0bf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210408134007.jpg</strong> (66.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-8 13:40 上传
+
+
+-----
+
+####  wiig  
+##### 347#       发表于 2021-4-9 09:46
+
+
+下周预定takamori玩双人成行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 348#       发表于 2021-4-9 13:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">Kiara居然不想在金盾的时候玩老滚，离经背道
+
+
+-----
+
+####  wiig  
+##### 349#       发表于 2021-4-9 19:38
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/193811zbk5wb55k5ktbkfy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210409193750.jpg</strong> (53.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 19:38 上传
+
+
+c*m 燃起来了
+
+
+-----
+
+####  wiig  
+##### 350#       发表于 2021-4-9 22:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50871256&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-8 13:20</a>
+https://febri.jp/topics/gawrgura0408/3/
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4 ...</blockquote>
+<img src="https://p.sda1.dev/1/3eaa3634a19aedb611a2e103b0ffa5fa/IMG_CMP_253116924.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  PureIllusion  
+##### 351#       发表于 2021-4-9 22:34
+
+
+Animedia的杂志图
+<img src="https://p.sda1.dev/1/adc98c32d88f14f63c8dced978799588/wz8ezshlXQ.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/0134cfd304f08afbefacca38ed9d414e/hq m i.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/439d9ccb14bcca5a4cadedbf9d30c3a3/hq a g.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|越来越崩坏草|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  PureIllusion  
+##### 352#       发表于 2021-4-9 22:38
+
+
+Animedia这个表是2月22日填的，上面Febri那篇访谈，鲨鲨2月26日有提到过（[[PASSPARTOUT] shark girl make art](https://www.youtube.com/watch?v=9OhogiIvppE&amp;t=2227s)），估计是同一波的吧
+
+
+-----
+
+####  allenz2  
+##### 353#       发表于 2021-4-10 00:52
+
+
+火鸡居然抽到大菠萝2内测了~
+
+
+-----
+
+####  smy20011  
+##### 354#         楼主| 发表于 2021-4-10 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50883418&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-9 13:51</a>
+
+Kiara居然不想在金盾的时候玩老滚，离经背道</blockquote>
+革命传统不能丢阿，不过讲道理，第一个金盾不是在玩MC么？
+
+
+-----
+
+####  wiig  
+##### 355#       发表于 2021-4-10 18:35
+
+
+<img src="https://img.saraba1st.com/forum/202104/10/183541nzgk7iwuvvuay7k7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210410183504.jpg</strong> (857.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-10 18:35 上传
+
+
+-----
+
+####  wiig  
+##### 356#       发表于 2021-4-10 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50895853&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-10 17:29</a>
+
+革命传统不能丢阿，不过讲道理，第一个金盾不是在玩MC么？</blockquote>
+200w在老滚，四舍五入也是传统
+
+
+-----
+
+####  wiig  
+##### 357#       发表于 2021-4-11 00:58
+
+
+唱了三个小时，链接明天补
+
+
+image.png
+(74.61 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-11 00:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/005812bxb8w80wxw6tqwwt.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 358#       发表于 2021-4-11 13:17
+
+
+昨晚歌回存档
+[https://youtu.be/x0nU-Nq10xk](https://youtu.be/x0nU-Nq10xk)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">被油管炮下898000了
+
+
+-----
+
+####  wiig  
+##### 359#       发表于 2021-4-12 18:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/12/181950jxovzo0ehvujeemv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210412181918.jpg</strong> (34.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-12 18:19 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 360#       发表于 2021-4-12 20:35
+
+
+火鸡这瞎寄吧加点用的还是成型慢的枪ama，看好过不了普通就坏档<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  wiig  
+##### 361#       发表于 2021-4-12 20:52
+
+
+<img src="https://p.sda1.dev/1/544c72d0ae242b94138244158e26c055/IMG_CMP_189356152.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 362#       发表于 2021-4-12 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50917048&amp;ptid=1989758" target="_blank">IDIDIDID 发表于 2021-4-12 20:35</a>
+火鸡这瞎寄吧加点用的还是成型慢的枪ama，看好过不了普通就坏档</blockquote>
+demo只有前两章
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                     
