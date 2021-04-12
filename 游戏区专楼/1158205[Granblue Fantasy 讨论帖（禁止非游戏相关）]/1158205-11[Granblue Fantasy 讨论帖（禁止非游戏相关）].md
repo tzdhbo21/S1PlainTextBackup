@@ -1,4 +1,5 @@
-> ## **本文件最后更新于2021-04-04 02:57** 
+> ## **本文件最后更新于2021-04-12 09:47** 
+
 
 
 -----
@@ -325,6 +326,8 @@ GW上我给了个9.3分，我还觉得我是不是给低了，一看都是给9�
 众所周知，冬泳角是出了名的一菜菜一窝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
 
 
 -----
@@ -693,6 +696,8 @@ lm季限齐玩土，不然玩暗
 —— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
 
 
+
+
 -----
 
 ####  phoenixxj  
@@ -1038,6 +1043,8 @@ gbf初始低的也有几百，单纯为了体验一下挺不值的
 讲真，真要入坑哪怕买个石头号都好过自开
 
 
+
+
 -----
 
 ####  边界循环  
@@ -1345,6 +1352,8 @@ fkhr执政时候总是想着颠覆这游戏，实际上自己又不玩真的恶�
 
 
 草 看了下自己的仓库 抽了好多重复的老王 不知道该哭还是该笑
+
+
 
 
 -----
@@ -1664,6 +1673,8 @@ fkhr执政时候总是想着颠覆这游戏，实际上自己又不玩真的恶�
 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">就是这了 我最想看的王道剧情 无敌的BMG！！！ CY果然不让人失望
+
+
 
 
 -----
@@ -1994,6 +2005,8 @@ C4新职业几号解锁<img src="https://static.saraba1st.com/image/smiley/face2
 [  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
 
 
+
+
 -----
 
 ####  吾乃啊噗  
@@ -2319,6 +2332,7 @@ B站搜一下 碧蓝幻想 剧情 大概都有了</blockquote>
 ##### 15210#       发表于 2021-3-15 11:36
 
 提示: 作者被禁止或删除 内容自动屏蔽
+
 
 
 -----
@@ -2714,6 +2728,8 @@ nga对火方的火力有基本认识了，泥潭还没</blockquote>
 —— 来自 samsung SM-G7810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
+
+
 -----
 
 ####  xzhlj0325  
@@ -3064,6 +3080,8 @@ lm期望肯定是低 某些人只是更喜欢做赌/狗
 
 就这种毒池nga还有人写篇数学小作文说下井lm期望高，真的坏批我只能说</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">0up哪里来的期望高 做这个的脑子不知道怎么长的
+
+
 
 
 -----
@@ -3441,6 +3459,8 @@ mao 泳盾 鸡
 有人专门在野外炸拳皇车的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
+
+
 -----
 
 ####  poor  
@@ -3784,6 +3804,8 @@ hrt导入天井那时候我记得是过去重复的角色武器都直接把对�
 记得开恶魔的buff怪，开到200就可以不打了，后面时间断了就续时间
 
 开了buff怪之后槽宝箱长得快，打属精和核心比起掉落其实主要是看你的开箱速度
+
+
 
 
 -----
@@ -4152,6 +4174,8 @@ gbf本身就挺看重抽卡的规划，而且普池也有超得补救，不是�
 
 
 水现在这个强度不出上限系列的LM感觉氪金意愿有点低
+
+
 
 
 -----
@@ -4530,6 +4554,8 @@ FA的话砸一弓一枪就行，慢慢自发把两个水龙武弄出来就直接
 现在别砸球就行，除了主手没什么用了，还不如去农几个黑光妈的弓，不需要满破，0破的弄几把够你打牛了
 
 
+
+
 -----
 
 ####  Yeaha123  
@@ -4874,6 +4900,8 @@ new只有两个普池<img src="https://static.saraba1st.com/image/smiley/face201
 这火技炼..隔壁还在用鹿弓的风老王馋哭了
 
 
+
+
 -----
 
 ####  里村紅葉  
@@ -5207,6 +5235,8 @@ new只有两个普池<img src="https://static.saraba1st.com/image/smiley/face201
 风的裁缝/天宫森美，皇帝。光的师匠，战车都是属于必要硬件
 
 不要处刑也是因为其他人提供了足够强的生存能力，主角这个工具人要不要都无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
 
 
 -----
@@ -5545,6 +5575,8 @@ new只有两个普池<img src="https://static.saraba1st.com/image/smiley/face201
 现在水方摆脱了这个窘境，只有风老王受伤的世界完成了
 
 
+
+
 -----
 
 ####  夜之光  
@@ -5554,4 +5586,458 @@ new只有两个普池<img src="https://static.saraba1st.com/image/smiley/face201
 暴击等日后修改完双面也就省一把武器,但是现在的配置在改完后是可以单面必暴的,当然还有个比较扯淡的就是如果投一个泥鳅枪+一个暴击中+双龙枪就是双面必暴,估计没人这么玩.
 
 
-                                 
+-----
+
+####  初雪绫  
+##### 15482#       发表于 2021-4-4 12:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 说是省一个位置 但是水方拿什么武器能比龙虾带40%老王暴击还强的？
+
+
+-----
+
+####  Sylpheed  
+##### 15483#       发表于 2021-4-4 14:24
+
+
+王八锤吧，已经是最好的选择了
+现在的摆盘要凑必爆还带上1把以上的龙枪应该是放不下多余的上限武了，olb拳武僧甚至要把琴踢了
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  武の炽羽  
+##### 15484#       发表于 2021-4-5 09:27
+
+
+这次改动目前看起来就是水方收益最大...现在的水方走暴击那是真的除了血量之外都被2LM章鱼乱杀完全抬不起头，等暴击概率统一了算上狗或者泳仇闪的Buff或许能打个四六开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poor  
+##### 15485#       发表于 2021-4-6 12:08
+
+
+有什么弱智方阵仔也能用的SOLO超巴攻略吗？没有诺亚<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+门票免费谗自发那块金了，又没有推，昨天自发放了下野感觉不是很靠谱（进来的都170几的）
+
+
+-----
+
+####  信玄誠司  
+##### 15486#       发表于 2021-4-6 13:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50847595&amp;ptid=1158205" target="_blank">poor 发表于 2021-4-6 12:08</a>
+
+有什么弱智方阵仔也能用的SOLO超巴攻略吗？没有诺亚
+
+门票免费谗自发那块金了，又没有推，昨天自发放 ...</blockquote>
+开挂吧，我已经躺平了，能无脑FA砸大红实在是太爽了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凌云三才  
+##### 15487#       发表于 2021-4-6 13:51
+
+
+话说章鱼必爆有什么少键的FA打牛作业么
+
+
+-----
+
+####  Kagam1  
+##### 15488#       发表于 2021-4-6 15:38
+
+
+ 本帖最后由 Kagam1 于 2021-4-6 15:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50847595&amp;ptid=1158205" target="_blank">poor 发表于 2021-4-6 12:08</a>
+
+有什么弱智方阵仔也能用的SOLO超巴攻略吗？没有诺亚
+
+门票免费谗自发那块金了，又没有推，昨天自发放 ...</blockquote>
+100人solo超巴就有100套阵容，看角色看盘子召唤能定战略吧，然后根据超巴几个阶段来制定对策，我个人用的比较安定的是暗医生就用暗医生举个例子
+
+暗的优势是可以开局随便杀个人然后秒复活，先让后排尼娅上来给个渴望，主角有了自动复活可以**加强容错率
+
+医生可以随意分配自己的回复技能，等到压力大的时候再嗑药，1技能约等于预防盾的秒净化异能处理很多麻烦的db
+
+<img src="https://img.saraba1st.com/forum/202104/06/143740yy512130be2124nn.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (48.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 14:37 上传
+
+
+100~85：随便打，有标记就净化，净化不过来硬吃问题也不大，85喷火伤害大概5~7w，用嘲讽/cut等防御技能接（我这里是奶嘴给自己套无敌，其他人都不会喷死）
+
+喷火给的虚脱db最好有预防盾解掉，不然影响后面攒爆发
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/144138p6j7jj9yex87eehs.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (54.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 14:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/144238rv2333xm372oq3jx.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (69.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 14:42 上传
+
+
+85~75：平平无奇的这一段其实是事故率最高的，特动随机喷火和吹风都是噩梦，需要尽可能不让发动
+
+85~80总共两个豆，因为进80会触发满豆，所以需要进80的时候攒够一波爆发，我这里用**召唤睡眠可以延缓1t（也可以进80后可以用重力延缓1t），然后用爆发打到76以下即可进bk或者触发75特动
+
+75特动单体伤害较高，附带换人，规划一下后排角色即可
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/144450jqkpaaczyb8b5cwq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (57.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 14:44 上传
+
+
+75~50：超巴进狂暴，平a带顺劈，连击率极高，需要debuff控制下，没带db角色也可以用托尔代替，有条件的还可以麻痹，没了连击基本无压力
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/144606riggucigxg5a0ilg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (51.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 14:46 上传
+
+
+55特动是带石化的喷火，伤害很高，中了石化解不掉很容易就被后面平a带走，需要预防
+
+医生的疫苗、预防盾、无敌嘲讽或者自动净化的角色即可对应
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/144745ln0ng662an2l6lx2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (44.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 14:47 上传
+
+
+50~30：dpt和人品的检测阶段，50和40的陨石看处不处理，没信心可以嘲讽送人然后拉活，40麒麟刷新再送再拉，顺便用麒麟拉dpt
+
+我因为主角有自动复活就发表情用蓝药把血量拉满硬吃了，全员满血情况下减员可能性极低，真出事故了就叫团友吧
+
+dpt没信心可以带提丰、麒麟、黄龙等召唤抬一手，现在这版本基本都不成问题
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/145054egwvk1vukkuexexu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (41.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 14:50 上传
+
+
+30~10：休闲阶段，28满豆特动和22喷水伤害大概1~2w带驱散，威胁不大
+
+15大破，解法千千万也没啥好说了，注意控制伤害不要伤害太高一下踩进15，或者太低，做好了防备结果踩不进
+
+
+<img src="https://img.saraba1st.com/forum/202104/06/145159wuym71xjgujzkkzu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (16.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 14:51 上传
+
+
+10~0：检验强度的时候，伤害暴增，平a带顺劈，10%伤害较高的五彩吹风，5%大概2w伤害的喷火，1%伤害极高的五彩吹风，实在顶不住就一支穿云箭，基本都能帮你处理掉了
+
+
+总结一下，需要准备的东西大概有净化、预防盾、对应75阶段的db、无敌嘲讽、dpt时候需要用到的爆发、抗大破的手段，当然最重要还是场外有随时可以救你一手的猛男团友
+
+
+-----
+
+####  银域放浪者  
+##### 15489#       发表于 2021-4-6 18:42
+
+
+为什么土老王盘里塞方阵终末琴打拳伤害会比通常终末琴高？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  武の炽羽  
+##### 15490#       发表于 2021-4-6 18:48
+
+
+猩猩麒麟拳没有任何老王/方阵召唤，所以想最大化伤害就是开乘区而且乘区越均匀越好。
+
+如果是砸了老王的人因为AK和171Z已经有大量普刃和一定老王区浑身，那法武选择大量方阵区攻刃和方阵区浑身自然能最大化伤害。
+
+不过这个区别没有那么大，终秃猩猩/肥宅/大象更重要，不想砸两个法武就用老王的凑合下也行。
+
+
+-----
+
+####  poor  
+##### 15491#       发表于 2021-4-6 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50849746&amp;ptid=1158205" target="_blank">Kagam1 发表于 2021-4-6 15:38</a>
+100人solo超巴就有100套阵容，看角色看盘子召唤能定战略吧，然后根据超巴几个阶段来制定对策，我个人用的 ...</blockquote>
+谢谢，很详细了，可惜我少的正是那个最重要的猛男队友<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+晚点先试试打一把，希望翻车的时候能摇来几个大爹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  poor  
+##### 15492#       发表于 2021-4-6 20:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50848567&amp;ptid=1158205" target="_blank">信玄誠司 发表于 2021-4-6 13:41</a>
+开挂吧，我已经躺平了，能无脑FA砸大红实在是太爽了</blockquote>
+还要给CF开挂，圈不够用啊，老是不给掉火的，昨天的都没打成
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  欠陷制品  
+##### 15493#       发表于 2021-4-8 09:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">虽说水打牛本来就轻松，出了RB之后更夸张了，这排名线跟坐火箭一样往上涨
+
+求求赶紧扩线吧，后面的团战不想遭罪了
+
+
+-----
+
+####  syndrome2032  
+##### 15494#       发表于 2021-4-8 10:08
+
+
+这都快一年了。。除了解散超种还有啥指望扩线的。。
+
+
+-----
+
+####  吾乃啊噗  
+##### 15495#       发表于 2021-4-8 11:55
+
+
+cb其实就是开环最舒服，组个双剑队打2t，1套环很快就出来了
+
+自从开始开环再也没自发过普通cb，只能说真的很舒服还不会被搞心态
+
+
+-----
+
+####  妄想中毒  
+##### 15496#       发表于 2021-4-9 11:25
+
+
+免门票期间cb烂车率太高了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  江戸前ルナ  
+##### 15497#       发表于 2021-4-9 22:26
+
+
+emmm苏谢的终突，说弱不弱但是好像又不那么太突出<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yueyut  
+##### 15498#       发表于 2021-4-10 04:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50852093&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-4-6 18:42</a>
+
+为什么土老王盘里塞方阵终末琴打拳伤害会比通常终末琴高？
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+塞方阵法的场合是猩猩X麒麟，其实是属X属，吃不到老王加护，算不得土老王盘。不过由于猩猩拳必须投资老王武器，所以算是土老王的精进分支而已。
+
+
+-----
+
+####  权志龙  
+##### 15499#       发表于 2021-4-10 09:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这fa速度太可怕惹，没泽塔都能2.0x
+
+
+-----
+
+####  武の炽羽  
+##### 15500#       发表于 2021-4-10 19:21
+
+
+这次95必须怒吹一下水兰，动画快，有输出，能高频率闪避+补DB，而且不开奥义影响极小（早期角色奥义特效垃圾的好处体现出来了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+早上试了N+1个队伍最后还是仇闪老男人兰酱后备狗和女帝最快。你甚至可以带着他去solo超法，新时代的普池天人.jpg
+
+
+-----
+
+####  欠陷制品  
+##### 15501#       发表于 2021-4-10 20:46
+
+
+水兰的反击炮破甲正好应对50的清db，还挺快乐的
+
+
+-----
+
+####  凌云三才  
+##### 15502#       发表于 2021-4-12 11:50
+
+
+这4男莉的章鱼盘没坚守，50以后血线维持不住啊，猴上来的时候前排全倒了，有什么改进方案么..难道真的只能上4莉狗？
+
+
+-----
+
+####  sodah  
+##### 15503#       发表于 2021-4-12 12:29
+
+
+楼上你是FA的话就是轴没对好吧，你这情况上狗和老男人没啥区别啊。带4主要还是10T能不能打下50然后开技能刷DB，还有有女帝补一下伤害吗？
+
+
+-----
+
+####  武の炽羽  
+##### 15504#       发表于 2021-4-12 13:06
+
+
+章鱼确实得有一水椰子会比较舒服，比较高配的是1水椰+1水箭龟铳，仇闪老男人4后备莉莉女帝据说可以进5分30。
+
+这次150HL FA的难度都在对轴上了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">对上了轴能快30秒还不掉人
+
+
+-----
+
+####  gary76  
+##### 15505#       发表于 2021-4-12 13:13
+
+
+呃，之前29號-31號的池我291抽俠了，發了信過去，然後說等他們查資料核實
+
+查到現在都沒回覆……我的豬妹…………<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凌云三才  
+##### 15506#       发表于 2021-4-12 13:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50912457&amp;ptid=1158205" target="_blank">sodah 发表于 2021-4-12 12:29</a>
+
+楼上你是FA的话就是轴没对好吧，你这情况上狗和老男人没啥区别啊。带4主要还是10T能不能打下50然后开技能刷 ...</blockquote>
+女帝肯定有啊，10T打50没问题，快的时候8-9T就进50了，重点是带老男人25左右就大概率灭的只剩个主角，或者上猴那1T死的剩个主角，猴回血回了个寂寞，我看了下应该是吃了特动+OD满豆的二连，中了强压以后血线稳不住，不知道这个要怎么调轴了...
+
+
+-----
+
+####  faxi  
+##### 15507#       发表于 2021-4-12 13:34
+
+
+ 本帖最后由 faxi 于 2021-4-12 13:37 编辑 
+
+最优解应该是上bba老男人4或者Zeta，bba能30以后稳定脱落的话换女帝开buff可以直接砍死，这样看脸的只有4会不会随机出紫麻和刷新拖时间，不过刷新了等于500万大炮 其实也不亏。狗因为动画拖时间被踢了我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+从稳定来说，BBA是真的是MVP，全程吃伤害，准确时间点换人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白活这一生  
+##### 15508#       发表于 2021-4-12 16:10
+
+
+狗的动画是真的慢，我没什么可选的人兰斯洛特都比狗快
+
+
+-----
+
+####  phoenixxj  
+##### 15509#       发表于 2021-4-12 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50914559&amp;ptid=1158205" target="_blank">白活这一生 发表于 2021-4-12 16:10</a>
+
+狗的动画是真的慢，我没什么可选的人兰斯洛特都比狗快</blockquote>
+我的选择是，可以都上。狗伤害足，回合少。兰也是看了楼里吹的，发现的确好用。关键还是马太菜了，打不死人。
+
+顶配水方平a速度快，也要19-20t。狗可以打到16t。但是时间是真的慢。奥义fa就是吃亏。
+
+
+-----
+
+####  xzhlj0325  
+##### 15510#       发表于 2021-4-12 17:04
+
+
+无bba老男人泽塔，带狗一样能6分前后<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  吾乃啊噗  
+##### 15511#       发表于 2021-4-12 17:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">4老男人bba双贤者章鱼，稳定5分10-5分50
+
+主要这个技伤动画真的太久了，刷新fa都省不了什么时间，干脆就不刷新了
+
+
+                                
