@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 17:58** 
+> ## **本文件最后更新于2021-04-12 03:47** 
 
 
 
@@ -13372,32 +13372,409 @@ s1就像家一样温暖，虽然家人们都很nt，但我还是喜欢这里<img
 ##### 13263#       发表于 2021-4-12 01:43
 
 
+ 本帖最后由 时间在我手中 于 2021-4-12 02:12 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909407&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 01:31</a>
 
 能够放松做真的舒服很多。
 
-我最魔怔的时候已经享受不到直播的乐趣了，看直播纯粹就是看看能有啥剪的，听 ...</blockquote>
-我去年给同好会那边供稿200多，说实话感觉累得要死，后期的确也和你说的那样，感到了极度的疲惫
-
-毕竟你看个联动你要考虑剪什么几把，然后这东西播放量那些啥的是吧，还要看这些有的没的几把破事其实挺烦的
-
-反正19年那会儿你和我说的官组那些狗屁事随着621的死亡也彻底没意义了
-
-我现在就是觉得某段自己很喜欢才想动了
-
-说到底过年mea整活了，官组两天内出了也就10万不到播放量，其实就该明白了，已经不是以前那时候了
-
-我也不清楚自己究竟算魔怔还是正常，也许是两者交替之间，反正我还能感到乐趣，可能我这人就这么简单
-
-前几天新皮我的确有点所谓【破防】了，但是其实是我自己心中的梁木，11月那事给我造成的阴影很重说实话
-
-这几天看下来，也就那样吧，虽然非要说杏花这个御用L2D人的抽搐动法我还是不太喜欢就是了，但是无所谓了
-
-要说所谓回旋，无非就是发现自己还是放不下而已，我还有想做的事，想要达成的目标
-
-我这人有种偏执，某些事不达成我一定不会甘心，所以才会留恋，才会像个弱智一样
-
-总而言之，我现在很好，这样就好，把地盘圈上了，和某些玩意儿隔离开来，我觉得我才能逐渐习惯
+我最魔怔的时候已经享受不到直播的乐趣了，看直播纯粹就是看看能有啥剪的，听 ...</blockquote>睡了
 
 
-       
+-----
+
+####  路人辰  
+##### 13264#       发表于 2021-4-12 06:08
+
+
+ 本帖最后由 路人辰 于 2021-4-12 08:10 编辑 
+
+20210412东京1点；东京6点
+
+<img src="https://img.saraba1st.com/forum/202104/12/060813m4aaut7a3au4v6ll.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0C0915FC-B69C-4FCB-A818-6682AC56462E.jpeg</strong> (236.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-12 06:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/12/065402qok9rkwaotoo88oe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>8CE78F3B-3D7C-445D-92E9-16FA52FADAC8.jpeg</strong> (318.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-12 06:54 上传
+
+
+-----
+
+####  蔵女  
+##### 13265#       发表于 2021-4-12 08:22
+
+
+这cd感觉还行啊
+
+
+-----
+
+####  蔵女  
+##### 13266#       发表于 2021-4-12 08:26
+
+
+<blockquote>A2014720 发表于 2021-4-12 00:46
+事业民的最终下场就是矩阵呐</blockquote>
+魔怔人魔怔了不能怪事业民啊
+
+我都事业民三年了还不是好好的
+
+
+-----
+
+####  Mr.shelter  
+##### 13267#       发表于 2021-4-12 08:39
+
+
+大家都有光明的未来<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13268#       发表于 2021-4-12 08:46
+
+
+大家都有光明的未来，某些人除外<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13269#       发表于 2021-4-12 08:50
+
+
+我喜欢只有小麻受难的世界，喜欢在一旁偷偷地看着生命在挣扎，并不是喜欢享受他人的痛苦，只是因为自己是一个垃圾只能靠共情来逃避自己所处的现实，从而寻求慰藉
+
+              
+
+麻，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13270#       发表于 2021-4-12 09:15
+
+
+ 本帖最后由 时间在我手中 于 2021-4-12 09:16 编辑 
+
+那我还是希望她能幸福开心快乐，而不是再次受到类似BLS这类破事，这类不讲道理的磨难。
+
+自己可以活的像是蝼蚁一样，毕竟总要有的。
+
+但是可以的话我希望到最后这人是笑着的，而不是挣扎着最后被迫离去
+
+【正因为自己是不幸的，无法得到幸福的，才希望选定的人幸福】
+
+
+-----
+
+####  A2014720  
+##### 13271#       发表于 2021-4-12 09:19
+
+
+ 本帖最后由 A2014720 于 2021-4-12 09:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50910142&amp;ptid=1973472" target="_blank">蔵女 发表于 2021-4-12 08:26</a>
+魔怔人魔怔了不能怪事业民啊
+
+我都事业民三年了还不是好好的</blockquote>
+哦他还是个独角兽和叔叔卫兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了真实生活远比这要紧
+
+突然zqsg. 有病吧，这女人是最近躺的不舒服了？不是很懂你们管人痴看个直播就要死要活的，出个新皮都能破防给你看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13272#       发表于 2021-4-12 09:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">麻酱要走上enako的姨路线了吗，肉体厨万岁
+
+
+-----
+
+####  シオン诗音  
+##### 13273#       发表于 2021-4-12 09:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">怎么突然提矩阵..破坏心情
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  Ashen-11  
+##### 13274#       发表于 2021-4-12 09:36
+
+
+看这人以前的发帖就知道了，说实话炸的还算晚了
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  时间在我手中  
+##### 13275#       发表于 2021-4-12 09:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50910544&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-12 09:19</a>
+
+哦他还是个独角兽和叔叔卫兵之前在他s1发疯时我曾以为只是rp而已算了真实生活远比这要紧
+
+
+ ...</blockquote>
+我破防也不过是贴贴PTSD发作而已，毕竟我对这个梁木之深跟你可不同，反正我也不是吟游那种直接SC对线的B，充其量就当是调整心态也就那样了。
+
+
+syl，矩阵大概以前那会儿就多少看得出是个男友粉啥的品种了，只能说是必然的结局
+
+
+-----
+
+####  兔耳僵尸  
+##### 13276#       发表于 2021-4-12 09:47
+
+
+这是汴了一晚？精力充沛啊
+
+
+-----
+
+####  时间在我手中  
+##### 13277#       发表于 2021-4-12 09:52
+
+
+ 本帖最后由 时间在我手中 于 2021-4-12 09:56 编辑 
+
+因为昨晚魔爪劲头没过去，加上不知道为什么昨晚很难睡着，说实话我这种扣字本质就是经过思考直接有话直说那种模式。
+
+身体明明很累了劲头是真的过不去<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+每年换季这种时候我都要想办法把自己弄到累死才能直接昏睡说实话，不知道东京是不是也这样
+
+
+-----
+
+####  A2014720  
+##### 13278#       发表于 2021-4-12 09:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50910730&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 09:40</a>
+我破防也不过是贴贴PTSD发作而已，毕竟我对这个梁木之深跟你可不同，反正我也不是吟游那种直接SC对线的B， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 13279#       发表于 2021-4-12 10:02
+
+
+赶紧和enako一同肉体出道<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 13280#       发表于 2021-4-12 10:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50910929&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-12 09:59</a>
+
+…算了连反正404粉丝量马上都要不及某人零头了，再能有什么</blockquote>
+关我屁事，你还不如和官组的飞狗说去，11月那会儿潜伏在他们组还觉得冲蝗有用的人可不是我。
+
+这种事到现实就是一个公司员工跟着公司专心耕耘海外业务了，很好奇他们组那时候一边指责毒唯发红包这事一边自己只能哭着我的咩夸的时候的心情，反正我是做不到这么傻逼的相信大亏能如何，一切不还是他们自己的YY脑补，而你麻像个弱智一样冲冠一怒为红颜，最后因为批站的拉跨，开开心心的前夜祭没了自己被炎上哭了半个月多，线下live也变成了新型太空trash，到头来就是这样什么都没有改变的事实罢了
+
+反正人家本土第一大箱带主播吃香的喝辣的不关我事，你麻今年能接近睿站百万金盾都是奇迹，这也是她唯一的机会了，所以我11月还忍着没发他们组那些个破事弱智记录，结果she这个傻卵自己不打码记者电话发到三群不知道想干什么。
+
+
+-----
+
+####  肥到终点  
+##### 13281#       发表于 2021-4-12 10:12
+
+
+还要问为什么？
+
+神乐mea不配就完事了。
+
+恭喜双金盾嗷。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13282#       发表于 2021-4-12 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50910992&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 10:05</a>
+关我屁事，你还不如和官组的飞狗说去，11月那会儿潜伏在他们组还觉得冲蝗有用的人可不是我。
+
+这种事到现 ...</blockquote>
+11月没彻底探明前就不说啥了，官组下次只知道哭啥事都不管就是她死的时候了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+该干什么就干什么，以后的事以后再说
+
+
+-----
+
+####  时间在我手中  
+##### 13283#       发表于 2021-4-12 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50911122&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-12 10:18</a>
+
+11月没彻底探明前就不说啥了，官组下次只知道哭啥事都不管就是她死的时候了吧
+
+
+该干什么就干什么 ...</blockquote>
+不清楚，反正他们组你仔细观察的话，3月份剪辑还真就只有fafa一个，后面醉空弄了两个
+
+他们组我那时候看下来就一个感觉，有点存货，但是也就那样，miu那个熟肉甚至还是招新之后才弄的貌似。
+
+反正我春节之后就知道他们不会做出任何改变了，泥哥谭那边房导说的话听听就好，他又不是转播人，你要知道我对他们组现在的期待值大概用个比较贴切的形容就是降到了就算听到他们那个转播看了大亏24小时直播然后直接鸽了你麻转播这件事我都懒得拿来说事当黑料的那种程度吧，挺抽象的就，总而言之希望mea最近能整点好活，我好出点稿子练练手<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">新皮也许可以达成一些我想要的效果，顺便请动某个yhm出山帮忙
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|站着茅坑不拉屎的尸体|
+
+
+查看全部评分
+
+
+-----
+
+####  makourisu-2  
+##### 13284#       发表于 2021-4-12 10:51
+
+
+不知道这话会不会aoe<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">但这确实是我现在的想法。
+官组里出来抛头露面的人不少，但到现在也没看出来有个真正管事的人。这佬那佬抱作一团，平时互相吹捧其乐融融，等来了节奏又放不出来一个屁。
+就突然想到三国里的一段话：“ 那些以虚荣自欺且欺人者；坐议立谈自以为无人可及者；而临危应变却百无一能者，此诚为天下耻笑耳！”。
+
+
+-----
+
+####  时间在我手中  
+##### 13285#       发表于 2021-4-12 11:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50911447&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2021-4-12 10:51</a>
+
+不知道这话会不会aoe但这确实是我现在的想法。
+
+官组里出来抛头露面的人不少，但到现在也没看出来有 ...</blockquote>
+没组长啊，记者在小狼窝群都直言不想担责任了，621去年3月或者可能50万那会儿run了不少人之后就一直空着了，所以你说的真正管事的人可能到头来反而是他们组内那个睿站运营兼和你麻马内甲对接的那位有点接近吧，至少大亏不来的消息我记得就是那位在他们群里说要动手的。
+
+建议以后你楼其实就少车点官组，没必要，连我都放弃了你楼要是有人能改变什么，那我只能说句佩服，或者别的什么谁。
+
+
+-----
+
+####  hwlzdjbrs  
+##### 13286#       发表于 2021-4-12 11:01
+
+
+睿站这几天涨粉了还行  记得之前85.4和5停了好久好久 现在几天就85.8了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13287#       发表于 2021-4-12 11:14
+
+
+新皮骗得了mmr，但是骗不到我们<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13288#       发表于 2021-4-12 11:30
+
+
+新皮还是换的值啊 昨天404同接都上2500了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  黒長直姫  
+##### 13289#       发表于 2021-4-12 11:31
+
+
+同接？有用吗？
+
+
+-----
+
+####  掉头学姐  
+##### 13290#       发表于 2021-4-12 11:33
+
+
+反正现在咩过得还挺爽的，随她喜欢维持就这样也行吧，等我没兴趣也就不用操心了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  makourisu-2  
+##### 13291#       发表于 2021-4-12 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50911531&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 11:00</a>
+没组长啊，记者在小狼窝群都直言不想担责任了，621去年3月或者可能50万那会儿run了不少人之后就一直空着 ...</blockquote>
+我的事业民之心早都磨没了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">对于官组的情况更不关心
+
+
+-----
+
+####  Mr.shelter  
+##### 13292#       发表于 2021-4-12 11:39
+
+
+remake过的两人如是说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13293#       发表于 2021-4-12 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50911908&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2021-4-12 11:36</a>
+
+我的事业民之心早都磨没了对于官组的情况更不关心</blockquote>
+我也懒得管了，谁有闲情雅致叼他们就去吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+      
