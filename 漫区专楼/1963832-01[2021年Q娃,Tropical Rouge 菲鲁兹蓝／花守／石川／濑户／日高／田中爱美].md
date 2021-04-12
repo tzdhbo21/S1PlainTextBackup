@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-09 14:39** 
+> ## **本文件最后更新于2021-04-11 14:35** 
 
 
 
@@ -13254,4 +13254,342 @@ ANON是啥</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">还有第二形态？
 
 
-           
+-----
+
+####  最强惠酱  
+##### 1143#       发表于 2021-4-9 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50889037&amp;ptid=1963832" target="_blank">csolfans 发表于 2021-4-9 22:24</a>
+
+还有第二形态？</blockquote>
+不知道，我也是转的，据说是战斗形态，但是怎么战斗我就不知道了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 1144#       发表于 2021-4-9 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50888754&amp;ptid=1963832" target="_blank">lyflyflxf 发表于 2021-4-9 21:55</a>
+
+人形衣服太朴素了。相比之下，Q娃形态头发和露出度都UP了</blockquote>
+人形衣服太丑了，不过起码换了个发箍的发型，至于q娃的两套衣服涩情度你告诉我是深夜动画的角色我都信<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG3  
+##### 1145#       发表于 2021-4-10 01:02
+
+
+“拖延症魔女的儿子叫什么？”
+
+“搁置王子殿下”
+
+
+-----
+
+####  达达葱2  
+##### 1146#       发表于 2021-4-10 08:59
+
+
+除了人鱼外应该不会再有追加了吧
+
+
+-----
+
+####  蓝色书签  
+##### 1147#       发表于 2021-4-10 15:09
+
+
+头发的珍珠真的好像眼睛
+
+
+-----
+
+####  达达葱2  
+##### 1148#       发表于 2021-4-10 16:08
+
+
+我觉得不是珍珠是泡沫，本体变成了泡沫但是得到了用来变Q娃的肉体
+
+
+-----
+
+####  isa2456  
+##### 1149#       发表于 2021-4-10 16:22
+
+
+萝拉这q娃形态挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">不过人型就跟把后半身当裤子脱下来那样子
+
+
+-----
+
+####  宅音  
+##### 1150#       发表于 2021-4-10 22:05
+
+
+不过那俩珍珠显得头好大
+
+
+-----
+
+####  DARK_HGCG  
+##### 1151#       发表于 2021-4-11 07:52
+
+
+可恶啊大炮原来是萝拉的妄想
+
+这集是阿黄回，然后很好地诠释了前年女人的主题"想象力"
+
+
+-----
+
+####  达达葱2  
+##### 1152#       发表于 2021-4-11 11:14
+
+
+爱奇艺还是没上？
+
+
+-----
+
+####  dragrass  
+##### 1153#       发表于 2021-4-11 12:03
+
+
+这集算是小神回了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  宅音  
+##### 1154#       发表于 2021-4-11 12:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">爱奇艺以后还播不播给个准话
+
+
+-----
+
+####  三合一出现  
+##### 1155#       发表于 2021-4-11 12:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道大礼包也要没了吗
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  dragrass  
+##### 1156#       发表于 2021-4-11 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50902254&amp;ptid=1963832" target="_blank">宅音 发表于 2021-04-11 12:21:38</a>
+爱奇艺以后还播不播给个准话</blockquote>上周好像海贼更了
+
+这波操作对季番为主的阿b伤害都不是最大，爱奇艺这手里一堆年番的真是倒了血霉
+
+不知道爱奇艺自己是啥打算，也可能是攒几集一起送，也可能是上集已经送了但是还没下来
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  蓝色书签  
+##### 1157#       发表于 2021-4-11 12:49
+
+
+A站这季度买的番好像也一部都播不出来
+
+
+-----
+
+####  最强惠酱  
+##### 1158#       发表于 2021-4-11 13:41
+
+
+海豹出声后还挺可爱，话说零食分点给虾女仆不也挺好吗，也没干什么坏事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  星火龙  
+##### 1159#       发表于 2021-4-11 14:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50902254&amp;ptid=1963832" target="_blank">宅音 发表于 2021-4-11 12:21</a>
+
+爱奇艺以后还播不播给个准话</blockquote>
+爱奇艺的《伊甸星原》《打了300年的史莱姆，不知不觉就练到了满级》都已经播了，只有之前就在连载的还没上，可能审核有时间顺序。A站合播的一堆动画也没播，但其他站播了！
+
+
+-----
+
+####  天地大撒野  
+##### 1160#       发表于 2021-4-11 14:43
+
+
+很急 爱奇艺这两周都没播
+只能下载了
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leleq  
+##### 1161#       发表于 2021-4-11 16:49
+
+
+虾姑 看起来这么幼龄的反派真的没问题么 后面肉搏洗不会显得Q娃再暴打小朋友么 还会躺地上打滚要东西<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+这开大炮bank画的挺认真的么干脆就这么用了不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 1162#       发表于 2021-4-11 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904370&amp;ptid=1963832" target="_blank">leleq 发表于 2021-4-11 16:49</a>
+虾姑 看起来这么幼龄的反派真的没问题么 后面肉搏洗不会显得Q娃再暴打小朋友么 还会躺地上打滚要东西[f:066 ...</blockquote>
+elder酱可能是老太太<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  梦诗歌雪  
+##### 1163#       发表于 2021-4-11 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904514&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-11 17:06</a>
+
+elder酱可能是老太太
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+这两集的各种表现来看都是标准小朋友啊。不过小朋友却叫elder，不知道是什么含义，还是说エルダ其实是其他词的谐音？
+
+
+-----
+
+####  leleq  
+##### 1164#       发表于 2021-4-11 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904514&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-11 17:06</a>
+
+elder酱可能是老太太
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+你是说 “本作品所有登场人物年龄都为18岁以上么”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sliurus  
+##### 1165#       发表于 2021-4-11 18:19
+
+
+ 本帖最后由 Sliurus 于 2021-4-11 18:20 编辑 
+
+虾酱一直强调自己是小朋友反而感觉会不会是bba装嫩
+
+这集人鱼颜值好高啊，几个特写都不错。手劲也莫名地大，这么大个盘子还说轻。女王那一脸欣慰的表情，人鱼怕不是私生女
+
+
+-----
+
+####  梦诗歌雪  
+##### 1166#       发表于 2021-4-11 18:34
+
+
+ 本帖最后由 梦诗歌雪 于 2021-4-11 18:36 编辑 
+
+人家小孩子要点心你们就分她一半嘛，一个都不给，也太抠了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 1167#       发表于 2021-4-11 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904628&amp;ptid=1963832" target="_blank">梦诗歌雪 发表于 2021-4-11 17:21</a>
+
+这两集的各种表现来看都是标准小朋友啊。不过小朋友却叫elder，不知道是什么含义，还是说エルダ其实是其 ...</blockquote>
+主要是海马执事对她得态度与其说是小女孩不如说是上了年纪的顽童老奶奶<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG  
+##### 1168#         楼主| 发表于 2021-4-11 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904628&amp;ptid=1963832" target="_blank">梦诗歌雪 发表于 2021-4-11 17:21</a>
+
+这两集的各种表现来看都是标准小朋友啊。不过小朋友却叫elder，不知道是什么含义，还是说エルダ其实是其 ...</blockquote>
+因为日语里虾是“海<strong>老</strong>”啊
+
+
+-----
+
+####  梦诗歌雪  
+##### 1169#       发表于 2021-4-11 21:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50905672&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-4-11 19:21</a>
+
+因为日语里虾是“海老”啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">原来是汉字转英文转假名，以前反派和怪物起名不都是简单的谐音么
+
+
+-----
+
+####  梦诗歌雪  
+##### 1170#       发表于 2021-4-11 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50905620&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-11 19:15</a>
+
+主要是海马执事对她得态度与其说是小女孩不如说是上了年纪的顽童老奶奶 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">也是，海马第一次叫她还专门加了个“little”。真正的小孩子一般都喜欢装大人，就讨厌大人把他们当小孩看
+
+
+
+
+-----
+
+####  三合一出现  
+##### 1171#       发表于 2021-4-11 22:02
+
+
+<img src="https://img.saraba1st.com/forum/202104/11/220147kyrrem6uipol3ryr.png" referrerpolicy="no-referrer">
+
+
+<strong>Q579BB(OI4I5BB7DC7CDGOC.png</strong> (50.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 22:01 上传
+
+
+黄前辈这话意外的好神奇的感觉。
+
+
+          

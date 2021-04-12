@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-10 07:39** 
+> ## **本文件最后更新于2021-04-11 17:58** 
 
 
 
@@ -10972,10 +10972,11 @@ md mk2不是跟女友分手了吗？</blockquote>
 评分
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| GRMeA104| + 1|可爱|
 | 雪风utopia| + 1|别害羞，冲就冲了|
 | A2014720| + 1|艹艹艹艹|
 | 路人庚| + 1|害羞了，可爱|
@@ -11145,4 +11146,2258 @@ syl 这组合的mv真的很迷，我想找点灵感但是很难，还是随便�
 你醒啦，kpi已经打完了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-              
+-----
+
+####  雪风utopia  
+##### 13057#       发表于 2021-4-10 15:40
+
+
+明明是光明贴贴人大战黑暗天狗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13058#       发表于 2021-4-10 15:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是回旋天狗
+
+
+-----
+
+####  ARATANG  
+##### 13059#       发表于 2021-4-10 15:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  physi1202  
+##### 13060#       发表于 2021-4-10 15:57
+
+
+🏃🏃🏃
+
+
+-----
+
+####  时间在我手中  
+##### 13061#       发表于 2021-4-10 15:58
+
+
+你们是不是没搞懂什么叫回旋<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13062#       发表于 2021-4-10 16:01
+
+
+没啥，见多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13063#       发表于 2021-4-10 16:14
+
+
+有没有回旋的理由，想听听<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 13064#       发表于 2021-4-10 16:18
+
+
+今天是不是有传说中的会限<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13065#       发表于 2021-4-10 16:22
+
+
+有你也中不了
+
+—— 来自 HUAWEI BKK-AL10, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  pei23333  
+##### 13066#       发表于 2021-4-10 16:25
+
+
+人都没动静呢，应该是没有了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  时间在我手中  
+##### 13067#       发表于 2021-4-10 16:37
+
+
+这人早上6点下的播，还去了便利店买东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">保守估计能八点昏睡都算好的了
+
+
+-----
+
+####  Mikumiku831  
+##### 13068#       发表于 2021-4-10 17:23
+
+
+无妨 今晚预定通宵 跟小麻战个痛快<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13069#       发表于 2021-4-10 17:25
+
+
+今晚会有什么新的玩法呢<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 13070#       发表于 2021-4-10 17:51
+
+
+一天没看结果错过了大戏草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 13071#       发表于 2021-4-10 18:55
+
+
+20210410东京19点（1、2）
+
+
+<img src="https://img.saraba1st.com/forum/202104/10/185503z3lng37almal9a6k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>5D6DD3A8-3654-43BA-B3EF-19E45C4DA6CC.jpeg</strong> (201.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-10 18:55 上传
+
+
+-----
+
+####  Mr.shelter  
+##### 13072#       发表于 2021-4-10 19:01
+
+
+十点会限，好好好<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  turezyy  
+##### 13073#       发表于 2021-4-10 19:04
+
+
+问一下，小麻会限看之前讨论好像是抽会员画头像，这个是所有会员随机抽还是在直播时候发言会员里抽还是怎样?
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+-----
+
+####  柚子皮  
+##### 13074#       发表于 2021-4-10 19:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50896672&amp;ptid=1973472" target="_blank">turezyy 发表于 2021-4-10 19:04</a>
+
+问一下，小麻会限看之前讨论好像是抽会员画头像，这个是所有会员随机抽还是在直播时候发言会员里抽还是怎样 ...</blockquote>
+从直播在的里面抽
+
+
+-----
+
+####  A2014720  
+##### 13075#       发表于 2021-4-10 22:13
+
+
+这会限就在那嗯养噶吃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 13076#       发表于 2021-4-10 22:15
+
+
+不也挺好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  GRMeA104  
+##### 13077#       发表于 2021-4-10 22:21
+
+
+麻了,会限整点没语言壁垒的活行不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 13078#       发表于 2021-4-10 22:32
+
+
+做笔记必可活用于下次，好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13079#       发表于 2021-4-10 22:37
+
+
+延迟真大，麻了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  柚子皮  
+##### 13080#       发表于 2021-4-10 22:49
+
+
+抽到Mixi还行
+
+
+
+
+-----
+
+####  A2014720  
+##### 13081#       发表于 2021-4-10 22:52
+
+
+这人在玩沙耶之歌吧，mix会变成anti吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  柚子皮  
+##### 13082#       发表于 2021-4-10 22:56
+
+
+嘻嘻抽到我了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GRMeA104| + 1|我不能接受|
+| thisisaspider| + 1|好评加鹅|
+| 路人庚| + 1|我酸了|
+
+
+查看全部评分
+
+
+-----
+
+####  路人庚  
+##### 13083#       发表于 2021-4-10 22:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mixi一如既往的高兴（
+
+
+-----
+
+####  时间在我手中  
+##### 13084#       发表于 2021-4-10 22:57
+
+
+我就在想会不会有楼友，猜对了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13085#       发表于 2021-4-10 23:07
+
+
+我在想会员限定这个1踩是谁
+
+
+-----
+
+####  路人庚  
+##### 13086#       发表于 2021-4-10 23:09
+
+
+刚开待机间的时候不是会限，那时候冒出来的踩
+
+
+-----
+
+####  Mr.shelter  
+##### 13087#       发表于 2021-4-10 23:18
+
+
+之前会限也有踩的来着
+
+
+-----
+
+####  elect  
+##### 13088#       发表于 2021-4-10 23:20
+
+
+没抽到头像就很难不想点踩👿
+
+
+-----
+
+####  路人庚  
+##### 13089#       发表于 2021-4-10 23:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">从来没中过，已经随缘了
+
+
+-----
+
+####  时间在我手中  
+##### 13090#       发表于 2021-4-10 23:21
+
+
+每周6000条轴你也可以抽到！<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13091#       发表于 2021-4-10 23:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没抽到的在疯狂取消赞
+
+
+-----
+
+####  路人庚  
+##### 13092#       发表于 2021-4-10 23:36
+
+
+下了说了明天还有，不过没说是会限，估计是正常播了
+
+
+-----
+
+####  柚子皮  
+##### 13093#       发表于 2021-4-10 23:43
+
+
+赞数量减少是YouTube的新bug，不是真的有人取消了
+
+
+-----
+
+####  LIPP  
+##### 13094#       发表于 2021-4-10 23:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我的呢我的呢，要踩了
+
+
+-----
+
+####  雪风utopia  
+##### 13095#       发表于 2021-4-11 01:47
+
+
+今晚有点事，后面就没看，呜呜，我的麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kayz996  
+##### 13096#       发表于 2021-4-11 04:42
+
+
+tc了
+
+
+-----
+
+####  Dualist彩  
+##### 13097#       发表于 2021-4-11 04:51
+
+
+天天阴间时间开播表明自己没跟野男人睡觉是吧<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 13098#       发表于 2021-4-11 06:07
+
+
+神仙作息
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  路人庚  
+##### 13099#       发表于 2021-4-11 07:01
+
+
+玩连连看还行
+
+
+-----
+
+####  路人庚  
+##### 13100#       发表于 2021-4-11 08:14
+
+
+睡了，下午起床打好精神晚上准备播
+
+
+-----
+
+####  路人辰  
+##### 13101#       发表于 2021-4-11 08:19
+
+
+ 本帖最后由 路人辰 于 2021-4-11 08:25 编辑 
+
+20210411东京9点
+
+<img src="https://img.saraba1st.com/forum/202104/11/082516l1uq91lll0ttd519.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4947661E-6247-4C5B-9448-8327FFE26386.jpeg</strong> (142.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 08:25 上传
+
+
+-----
+
+####  专业划水人员  
+##### 13102#       发表于 2021-4-11 08:19
+
+
+刚才那连连看点一下怪叫一声可爱爆了
+
+
+-----
+
+####  路人庚  
+##### 13103#       发表于 2021-4-11 08:23
+
+
+在tc播游戏的时候都蛮有趣的
+
+
+-----
+
+####  A2014720  
+##### 13104#       发表于 2021-4-11 08:53
+
+
+有病吧，什么阴间时间<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13105#       发表于 2021-4-11 08:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">回笼觉养肉，坦今赢
+
+
+-----
+
+####  rosevalley46  
+##### 13106#       发表于 2021-4-11 09:54
+
+
+别尬黑,这是法国正常作息<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13107#       发表于 2021-4-11 10:51
+
+
+有胸必坦，无胸不坦，所以坦不可能赢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 13108#       发表于 2021-4-11 12:43
+
+
+看隔壁说泳装meu在睿站以后貌似要无了
+
+
+-----
+
+####  时间在我手中  
+##### 13109#       发表于 2021-4-11 12:45
+
+
+因为前几天好像咩栗还是什么别的国V被封直播间了，看了一眼是出了个着装规定？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13110#       发表于 2021-4-11 12:57
+
+
+最近风头紧，我逛的几个网站都跑路了
+
+
+
+
+-----
+
+####  路人庚  
+##### 13111#       发表于 2021-4-11 13:00
+
+
+不如说泳装meu当时能直播放出来本身就有丶离谱，上面和下面都色的有丶过
+
+
+-----
+
+####  JY要塞  
+##### 13112#       发表于 2021-4-11 13:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没了就没了吧，对铜无感，还是坦克好
+
+
+-----
+
+####  雪风utopia  
+##### 13113#       发表于 2021-4-11 13:35
+
+
+坦克民什么时候能幻灭呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13114#       发表于 2021-4-11 17:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克民的我幻灭了，就说明肉体厨的我胜利了
+
+
+-----
+
+####  Mikumiku831  
+##### 13115#       发表于 2021-4-11 17:32
+
+
+虽然不是坦克但是你麻骨架子大 估计身形已经走样了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 13116#       发表于 2021-4-11 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50902425&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-11 12:45</a>
+因为前几天好像咩栗还是什么别的国V被封直播间了，看了一眼是出了个着装规定？ ...</blockquote>
+咩栗、niki和清良
+前面两个属于千舰头部的被抓典型不奇怪
+阿良属于完全摸不着头脑为什么被搞，原因只有可能是立绘太漏
+⬇️立绘长这样
+
+<img src="https://img.saraba1st.com/forum/202104/11/172447ils8wuscq6u1csip.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_7877.JPG</strong> (1.08 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-11 17:24 上传
+
+
+也不是被封直播间，要求自肃15天，直播间搜不到但是能进去。同时在别人直播间里也不能出现（咩栗在呜米、阿良在yua直播间出现都是以某室友代称）。这个已经是叔叔最大的让步属于是，因为最早是说要直接封号。
+
+还有就是那天残佬（现在psp的头子）大清早在b综群里说全部同行都在大半夜加班处理违规的事情，都是一晚上没睡。应该被管到的不止这三个。
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 13117#       发表于 2021-4-11 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50904699&amp;ptid=1973472" target="_blank">缺陷电气杨永信 发表于 2021-4-11 17:32</a>
+
+咩栗、niki和清良
+
+前面两个属于千舰头部的被抓典型不奇怪
+
+阿良属于完全摸不着头脑为什么被搞，原因只有可 ...</blockquote>
+那还真是大手笔，看来前阵子那几个露毛的B碰到红线了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+syl 吊麻今天能八点播吗，我好困
+
+
+-----
+
+####  路人庚  
+##### 13118#       发表于 2021-4-11 18:04
+
+
+看投票应该是东京21点了（如果她按照投票结果来的话
+
+
+-----
+
+####  A2014720  
+##### 13119#       发表于 2021-4-11 18:15
+
+
+直播间开了
+
+这标题姨味太浓了，我要退坑回踩<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13120#       发表于 2021-4-11 18:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新版本是这样的
+
+
+-----
+
+####  kenjjj  
+##### 13121#       发表于 2021-4-11 18:26
+
+
+要共享咩宝了么，能不能快进到共享小小麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13122#       发表于 2021-4-11 18:30
+
+
+早该踩踩了
+
+
+-----
+
+####  A2014720  
+##### 13123#       发表于 2021-4-11 20:02
+
+
+姨起来一套一套的，你已经不是我认识的那个麻麻了，把那个小麻还给我<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/ab1dad1260b8c3c74b828cefc654eda3/-e8516464272984f.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|「いいね」|
+
+
+查看全部评分
+
+
+-----
+
+####  暴走的包子  
+##### 13124#       发表于 2021-4-11 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蹭蹭更健康
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  路人庚  
+##### 13125#       发表于 2021-4-11 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">明天你咩姐就要结婚了
+
+
+-----
+
+####  thisisaspider  
+##### 13126#       发表于 2021-4-11 20:13
+
+
+她说了和阿宅结婚 已经涉嫌悔婚被我关地下室了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13127#       发表于 2021-4-11 20:19
+
+
+振袖和服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13128#       发表于 2021-4-11 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">振袖和服来力！20岁~20岁~20岁~
+
+
+-----
+
+####  时间在我手中  
+##### 13129#       发表于 2021-4-11 20:23
+
+
+糊成狗了，阿姨就是阿姨，20岁之后果然就不行了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13130#       发表于 2021-4-11 20:28
+
+
+老阿姨别装嫩<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13131#       发表于 2021-4-11 20:43
+
+
+恁这IGNITE退步程度可以竞争今晚前三了，笑嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13132#       发表于 2021-4-11 20:44
+
+
+有气无力，就你这样还想养噶吃？<img src="https://static.saraba1st.com/image/smiley/face2017/129.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 13133#       发表于 2021-4-11 20:48
+
+
+突然发现这个皮还有呼吸的大小变化
+
+
+-----
+
+####  雪风utopia  
+##### 13134#       发表于 2021-4-11 20:55
+
+
+新皮还是骗到了不少mmr<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13135#       发表于 2021-4-11 20:58
+
+
+什么拉夫歌😅
+
+
+-----
+
+####  Joffre✔  
+##### 13136#       发表于 2021-4-11 20:58
+
+
+又唱拉夫歌是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 13137#       发表于 2021-4-11 20:58
+
+
+讲道理她“我爱你”总是唱的很可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13138#       发表于 2021-4-11 20:59
+
+
+什么川皇角色歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13139#       发表于 2021-4-11 21:00
+
+
+china!<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13140#       发表于 2021-4-11 21:21
+
+
+拉夫歌u18r版本既视感太强，快进到小麻完成叔叔的任务给rua在阿b引流<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 13141#       发表于 2021-4-11 21:31
+
+
+rua只是想交交朋友对流量不感兴趣捏<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シルフィエット  
+##### 13142#       发表于 2021-4-11 21:31
+
+
+愛唄好耶
+
+
+-----
+
+####  Mr.shelter  
+##### 13143#       发表于 2021-4-11 21:38
+
+
+同接变高就是因为这个新皮吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">。那也没高多少啊
+
+
+-----
+
+####  Ky·Kiske  
+##### 13144#       发表于 2021-4-11 21:44
+
+
+官组这个转播我是真的服气
+
+
+-----
+
+####  IrisL  
+##### 13145#       发表于 2021-4-11 21:54
+
+
+管组早就摆烂了无所谓的😋
+
+
+-----
+
+####  Cla0221  
+##### 13146#       发表于 2021-4-11 21:56
+
+
+我是真tmd麻中之麻了😅
+
+该开始干活了，不然半年没干活了也不好直接说什么
+
+
+-----
+
+####  时间在我手中  
+##### 13147#       发表于 2021-4-11 21:57
+
+
+官组，还有人在看啊，叔叔好奇怪哦~（小并感）<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IrisL  
+##### 13148#       发表于 2021-4-11 22:00
+
+
+提问:下次转播正常的时候是不是咩夸联动的时候😥
+
+
+-----
+
+####  时间在我手中  
+##### 13149#       发表于 2021-4-11 22:04
+
+
+蓝二乘好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13150#       发表于 2021-4-11 22:04
+
+
+贝贝曲都能拉，这还不赶紧查一下官组成分<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13151#       发表于 2021-4-11 22:04
+
+
+ 本帖最后由 A2014720 于 2021-4-11 22:06 编辑 
+
+官组那群死人但凡上心一点点转播也不是这样子
+
+不对，但凡上心一点点组也不是这个样子
+
+谁家转播他妈几乎每次都能事故的
+
+
+-----
+
+####  シルフィエット  
+##### 13152#       发表于 2021-4-11 22:07
+
+
+除了B限好久没点开阿B直播间了
+
+
+-----
+
+####  时间在我手中  
+##### 13153#       发表于 2021-4-11 22:07
+
+
+别尬黑啊，人家没组长都一年多了，群龙无首而已，别尬黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一百多块的梯子可能的确质量还不够好8<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 13154#       发表于 2021-4-11 22:08
+
+
+我日，这么拉芙的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13155#       发表于 2021-4-11 22:09
+
+
+我早就是油管人了 转播挂着就是防梯子炸的 结果梯子一直蛮稳定的 转播炸了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13156#       发表于 2021-4-11 22:09
+
+
+ 本帖最后由 时间在我手中 于 2021-4-11 22:11 编辑 
+
+今天唱到12点的样子，挺好，能睡个好觉了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+建议楼友真的去找个梯子自己看，官组转播我还不如叫朋友给我私人转播来的稳定
+
+
+-----
+
+####  thisisaspider  
+##### 13157#       发表于 2021-4-11 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50907629&amp;ptid=1973472" target="_blank">Joffre✔ 发表于 2021-4-11 22:09</a>
+
+我早就是油管人了 转播挂着就是防梯子炸的 结果梯子一直蛮稳定的 转播炸了 ...</blockquote>
++1
+
+
+-----
+
+####  A2014720  
+##### 13158#       发表于 2021-4-11 22:15
+
+
+一群人屎里一点脑子都没有，发现问题了，在排查了，你查你妈呢
+
+你官组确实连个好好转播的必要都没<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13159#       发表于 2021-4-11 22:15
+
+
+纯路人，官组炸了这么多次吗，我都不知道诶😱
+
+
+-----
+
+####  Ky·Kiske  
+##### 13160#       发表于 2021-4-11 22:15
+
+
+我是双开，油管低画质静音再开阿睿直播间
+
+
+-----
+
+####  时间在我手中  
+##### 13161#       发表于 2021-4-11 22:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50907699&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-11 22:15</a>
+
+纯路人，官组炸了这么多次吗，我都不知道诶😱</blockquote>
+就算只看你楼我都能感觉一周播五次歌回能炸保底2-3次，而且他们组延迟开播记录今年我记得最多都有一小时多后开转的吧，虽然那次是早上突击，不过预告了照样拉的也不少，比如今晚。我去年就是因为这转播还不如自己买梯子才彻底放弃的，本来那边弹幕环境就多少沾丶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13162#       发表于 2021-4-11 22:17
+
+
+总之在排查，在找问题了，希望大家理解<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gongge666  
+##### 13163#       发表于 2021-4-11 22:20
+
+
+干脆取消转播得了，以后让mea自己推流，她愿意推就推不愿意推就拉倒。反正现在我是只看Tc和联动了，油管天天唱歌我早麻了，大多数歌歌每个月总会唱3、4遍
+
+
+-----
+
+####  zc1996zc  
+##### 13164#       发表于 2021-4-11 22:21
+
+
+小麻自己开个号吧
+
+
+-----
+
+####  A2014720  
+##### 13165#       发表于 2021-4-11 22:21
+
+
+“即使这样也比很多字幕组干的很好了”那确实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+毕竟你官组也只是靠“热情”在干活
+
+
+-----
+
+####  草牛  
+##### 13166#       发表于 2021-4-11 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50907722&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-11 22:17</a>
+就算只看你楼我都能感觉一周播五次歌回能炸保底2-3次，而且他们组延迟开播记录今年我记得最多都有一小时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">整挺好，懒得理，我也是梯子挂了一年多了
+
+
+-----
+
+####  时间在我手中  
+##### 13167#       发表于 2021-4-11 22:23
+
+
+什么热情，不存在的东西不要乱讲啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">编故事可不好
+
+
+-----
+
+####  IrisL  
+##### 13168#       发表于 2021-4-11 22:24
+
+
+ 本帖最后由 IrisL 于 2021-4-11 22:30 编辑 
+
+混还要再混混废了😗别尬黑比烂他组优势还是很大的
+
+
+-----
+
+####  肥到终点  
+##### 13169#       发表于 2021-4-11 22:31
+
+
+希望萨尔出来整点名句再放送
+
+mea不配用那么好的转播云云<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 13170#       发表于 2021-4-11 22:33
+
+
+这就别抓萨尔了 对官组零伤害好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 13171#       发表于 2021-4-11 22:34
+
+
+还别说，前一段时间泥潭大赦天下的时候萨尔还在m楼里面跳了一下<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IrisL  
+##### 13172#       发表于 2021-4-11 22:35
+
+
+ 本帖最后由 IrisL 于 2021-4-11 22:37 编辑 
+
+输出尸体没用的🤗你永远无法破防一群摆烂的人😅
+
+
+-----
+
+####  Dualist彩  
+##### 13173#       发表于 2021-4-11 22:40
+
+
+你楼终于又车官组了，爷青回<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+萨尔，我的萨尔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 13174#       发表于 2021-4-11 22:41
+
+
+我自己的看法就是:我看它们一眼,就是我输了,晦气<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这首完成度不错
+
+
+-----
+
+####  时间在我手中  
+##### 13175#       发表于 2021-4-11 22:44
+
+
+happy end好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 13176#       发表于 2021-4-11 22:49
+
+
+你麻现在除了歌回也没法整啥新的倒确实,一是环境问题,二是跟着苔兔混饭确实舒服
+
+但是官组连后台挂bgm的事都处理不好就很那啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zc1996zc  
+##### 13177#       发表于 2021-4-11 22:52
+
+
+我对麻唯一的梁木就是成天歌回也不趁年轻去正儿八经学学声乐
+
+
+-----
+
+####  A2014720  
+##### 13178#       发表于 2021-4-11 22:52
+
+
+一问就是在搞了在改了，哦结果每次转播都还是一堆问题，出了事就各种推搡，哦连组长都没啊那没事了，是不是觉得很委屈啊
+
+
+-----
+
+####  草牛  
+##### 13179#       发表于 2021-4-11 22:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">失踪几年的人建议直接宣布死亡，不要抱有期待
+
+
+-----
+
+####  肥到终点  
+##### 13180#       发表于 2021-4-11 22:55
+
+
+何止，在anti楼强行摆烂
+
+把自己的名言拿出来解释了一遍
+
+结果完全还是踩一捧一
+
+看来出群留学只升级了技术<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 13181#       发表于 2021-4-11 22:57
+
+
+其实从tc之类的发现这人赛马娘啊,双人成行啊这种热点她应该很清楚甚至尝试过的,但就不播
+
+怎么说呢,就是逆反吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13182#       发表于 2021-4-11 22:58
+
+
+整活有什么用吗，谷雨你就别拿这些当理由了
+
+整了活也就那个速度，去年11月之后是个人都该明白还是别期待他们组为好
+
+你要知道那次记者那次嘴快叼你麻直播带货的事后面他们组的人才知道是你睿要求的，属实笑死我了
+
+最搞笑的就是乐一他们猜到是我潜伏进去他们组，叫我找人帮忙宣传你麻没问题，嘻嘻
+
+就这样还有脸我去九条组什么都没做直接被踢，官组，狗都不去。
+
+一群贴贴人掌权的地方有什么意思，只要我不喜欢大亏或者这群傻逼魔怔连体狗就要被打成黑名单，笑嘻了
+
+要不是69哥和fafa这几个人面子上，我真想祝他们组赶紧去世<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 13183#       发表于 2021-4-11 23:01
+
+
+草 竟然是等藤君的生日
+大伙别上当了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 13184#       发表于 2021-4-11 23:01
+
+
+那么还有更傻逼事的吗
+
+我目前只知道官组就一群摆烂连体贝贝，萨尔之类的<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13185#       发表于 2021-4-11 23:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13186#       发表于 2021-4-11 23:02
+
+
+那我就变成藤原央基罢（便乘）<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 13187#       发表于 2021-4-11 23:03
+
+
+麻姨，你算计我<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13188#       发表于 2021-4-11 23:08
+
+
+😭😭😭😭
+
+
+-----
+
+####  A2014720  
+##### 13189#       发表于 2021-4-11 23:09
+
+
+去年那么大事也没学到教训那也没什么用了，不对不可能学到的
+
+反正又要不看就看不见，不管就不存在，只有头破血流的时候才觉得自己无辜
+
+贝贝没了就只知道在那呜呜的能跟贝贝一起去阴间嘛
+
+
+-----
+
+####  雪风utopia  
+##### 13190#       发表于 2021-4-11 23:13
+
+
+总之在改变了，在改善了，你们信了吗，我反正没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13191#       发表于 2021-4-11 23:14
+
+
+建议楼友跟我学习打轴，龙了今晚歌回，这样官组就没存在价值了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13192#       发表于 2021-4-11 23:17
+
+
+现在转播确实稳定了 上次情人节车完也稳定了一段时间 而且这次的问题和以前确实不一样 我觉得还是有改进的 就是改进完了又出了新bug<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl 说的在改进了是在哪里说的？不会是躲在自己的小团体里说的吧 我在b可从没见过官组说在改进或者道歉的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13193#       发表于 2021-4-11 23:18
+
+
+在两边写长文也挺辛苦的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13194#       发表于 2021-4-11 23:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又不是第一次了，烂裤裆知道吗
+
+
+-----
+
+####  Mr.shelter  
+##### 13195#       发表于 2021-4-11 23:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">别的不说，原来泥潭真的还有看转播的吗..... 
+
+
+-----
+
+####  时间在我手中  
+##### 13196#       发表于 2021-4-11 23:24
+
+
+ 本帖最后由 时间在我手中 于 2021-4-11 23:26 编辑 
+
+所以有人跟我学打轴吗，群友打的每一个字转化成学习打轴的一点点时间就能两天出今晚全熟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚35首，一首歌10分钟分摊到十个人头上也很快，杂谈难度我自己都能行，干脆我自己龙了算了，反正我能做到
+
+哪怕毫无意义
+
+
+-----
+
+####  时雨rain  
+##### 13197#       发表于 2021-4-11 23:28
+
+
+呜呜，贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13198#       发表于 2021-4-11 23:28
+
+
+这人今天不是问了大家想看什么吗 新节目说不定快了...
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  草牛  
+##### 13199#       发表于 2021-4-11 23:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">也有点用，最近晚上没事，只要咩姨不播就点开全熟当直播看，还有字幕
+
+
+-----
+
+####  雪风utopia  
+##### 13200#       发表于 2021-4-11 23:29
+
+
+人懒，没救了，要是我不懒的话，5年前早学会日语了，哪里像现在只能拿50音拼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 13201#       发表于 2021-4-11 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908495&amp;ptid=1973472" target="_blank">雪风utopia 发表于 2021-4-11 23:29</a>
+
+人懒，没救了，要是我不懒的话，5年前早学会日语了，哪里像现在只能拿50音拼 ...</blockquote>
+五十音听得懂的水平是可以胜任打轴的，我到现在日语也就那屌样反正
+
+
+-----
+
+####  GRMeA104  
+##### 13202#       发表于 2021-4-11 23:36
+
+
+就是et这个吊人拉我打轴,我tm五十音在K轴的时候边学边K<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13203#       发表于 2021-4-11 23:37
+
+
+问题的关键是懒，等一年后我学会日语再说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13204#       发表于 2021-4-11 23:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908539&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-4-11 23:36</a>
+
+就是et这个吊人拉我打轴,我tm五十音在K轴的时候边学边K</blockquote>
+别废话了，图五一之前我要看到反正，我自己都在想要不要去学点阴影描绘了
+
+我也没让你打很多，你自己学业忙我可没逼过你，你自己喜欢嘤嘤嘤可不是我教的
+
+
+-----
+
+####  GRMeA104  
+##### 13205#       发表于 2021-4-11 23:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908552&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-11 23:38</a>
+
+别废话了，图五一之前我要看到反正，我自己都在想要不要去学点阴影描绘了
+
+我也没让你打很多，你自己学业 ...</blockquote>
+嘤嘤嘤<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 13206#       发表于 2021-4-11 23:48
+
+
+。。。。。喜欢人夫是吧👊
+
+
+-----
+
+####  草牛  
+##### 13207#       发表于 2021-4-11 23:49
+
+
+什么黄毛
+
+
+-----
+
+####  时间在我手中  
+##### 13208#       发表于 2021-4-11 23:57
+
+
+要下了，唉，就不该看nga，S1现在正常的像个家，妈了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 13209#       发表于 2021-4-11 23:59
+
+
+要是天狗人人都是财酱,所有问题都迎刃而解了)
+
+
+-----
+
+####  Joffre✔  
+##### 13210#       发表于 2021-4-11 23:59
+
+
+净土宗的名号已经被s1篡夺了
+
+
+-----
+
+####  时雨rain  
+##### 13211#       发表于 2021-4-12 00:00
+
+
+大家只是个喜欢mea并且有点绿帽癖的mmr捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IrisL  
+##### 13212#       发表于 2021-4-12 00:02
+
+
+荣誉马莱人论坛是这样的😊
+
+
+-----
+
+####  呓亘  
+##### 13213#       发表于 2021-4-12 00:02
+
+
+新皮换过之后数据涨的不错
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Mr.shelter  
+##### 13214#       发表于 2021-4-12 00:03
+
+
+人人都是财酱小麻营收V圈第一没人有意见吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 13215#       发表于 2021-4-12 00:03
+
+
+有点好奇，et的爱好是不是就是跟他群友对线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">q群政治害人啊
+
+
+-----
+
+####  呓亘  
+##### 13216#       发表于 2021-4-12 00:03
+
+
+还是希望多整点新活...
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Joffre✔  
+##### 13217#       发表于 2021-4-12 00:04
+
+
+还惦记新活呢 好久以前的棉花糖都发霉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  makourisu-2  
+##### 13218#       发表于 2021-4-12 00:05
+
+
+对啊，之前收集的棉花糖呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13219#       发表于 2021-4-12 00:05
+
+
+已经长毛了
+
+
+-----
+
+####  菊花战士  
+##### 13220#       发表于 2021-4-12 00:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以打打其他游戏，别只有麻将和LOL了。整活还是算了，整不好又要一堆人破防了。
+
+
+-----
+
+####  时间在我手中  
+##### 13221#       发表于 2021-4-12 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908769&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-12 00:03</a>
+
+有点好奇，et的爱好是不是就是跟他群友对线q群政治害人啊</blockquote>
+这次又不关我事，也跟你不关事，反正我至少说的话和我做的事一样多，你爱BB怎么BB，run了
+
+
+-----
+
+####  ashero  
+##### 13222#       发表于 2021-4-12 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908796&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2021-4-12 00:05</a>
+
+对啊，之前收集的棉花糖呢</blockquote>
+前天tc提了几句 说mixi成天发十几二十行的定型文给她 发现她好像没看就没发了
+
+
+然后还是很多联动云p棉花糖发来
+
+
+-----
+
+####  草牛  
+##### 13223#       发表于 2021-4-12 00:10
+
+
+什么联动云p棉花糖，不会是联动舞元吧，最近也没啥特殊联动啊😅
+
+
+-----
+
+####  雪风utopia  
+##### 13224#       发表于 2021-4-12 00:11
+
+
+怕不是你们的所谓的给棉花糖就是去拉屎的，所以才会被她忘了吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 13225#       发表于 2021-4-12 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908847&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-12 00:10</a>
+
+什么联动云p棉花糖，不会是联动舞元吧，最近也没啥特殊联动啊😅</blockquote>
+她说大概是别和xxx联动还有和xxx联动这种
+
+
+-----
+
+####  时间在我手中  
+##### 13226#       发表于 2021-4-12 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908847&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-12 00:10</a>
+
+什么联动云p棉花糖，不会是联动舞元吧，最近也没啥特殊联动啊😅</blockquote>
+好像是什么别找男朋友啥的发情玩意儿，反正mea没管就那样了
+
+
+-----
+
+####  草牛  
+##### 13227#       发表于 2021-4-12 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908863&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 00:11</a>
+好像是什么别找男朋友啥的发情玩意儿，反正mea没管就那样了</blockquote>
+那确实不该管，整无语了，没就没吧😅
+
+
+-----
+
+####  GRMeA104  
+##### 13228#       发表于 2021-4-12 00:14
+
+
+毕竟你搞不懂她本土粉丝盘究竟咋个情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 13229#       发表于 2021-4-12 00:18
+
+
+不发生之前谁也不知道会不会嗷的一声疯了，国内不都有矩阵这种典型吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13230#       发表于 2021-4-12 00:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">现在这管人界性人跟性人玩虹人跟虹人玩拉夫跟拉夫玩
+
+阿咩怕是没机会整什么多人活了，整苔姨吗
+
+
+
+
+-----
+
+####  Cushaw  
+##### 13231#       发表于 2021-4-12 00:23
+
+
+连774gachi都能嗷的一声疯了，你怎能指望谁不会疯<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 13232#       发表于 2021-4-12 00:23
+
+
+神乐组不是人了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 13233#       发表于 2021-4-12 00:24
+
+
+咩不擅长整多人活的，单口或者双口相声，多参加点联动就行
+
+
+-----
+
+####  GRMeA104  
+##### 13234#       发表于 2021-4-12 00:25
+
+
+联动,,,,,,<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13235#       发表于 2021-4-12 00:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">阿咩仿佛是神乐组的老板，除了暴力喂饭都不下台共乐的
+
+
+-----
+
+####  时间在我手中  
+##### 13236#       发表于 2021-4-12 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50908935&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-4-12 00:18</a>
+
+不发生之前谁也不知道会不会嗷的一声疯了，国内不都有矩阵这种典型吗 ...</blockquote>
+虽然但是，矩阵是很有征兆的那种，不过他死了好
+
+
+-----
+
+####  甘栗No.007  
+##### 13237#       发表于 2021-4-12 00:30
+
+
+太入脑了就有物极必反的潜在风险，第二位的女人得放在第二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+最近除了event和绿熊的深夜游戏time，联动基本上都通过了苔苔haneru中介吧，神乐组阿咩除了转推联动次数超过5吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13238#       发表于 2021-4-12 00:31
+
+
+说到神乐组 啥时候和九条联动啊 九条自己是想联动的 麻看起来也很喜欢九条 咋就不联动呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13239#       发表于 2021-4-12 00:32
+
+
+问就是幕后原因你猜不到，有的时候自然会有，比如saya
+
+
+-----
+
+####  GeraltzRivii  
+##### 13240#       发表于 2021-4-12 00:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">矩阵死了？咋死的？是那次约稿的事情吗。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13241#       发表于 2021-4-12 00:36
+
+
+不知道明天会不会是翻唱吸血鬼这歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说练了一周还没练好感觉不太像就是了
+
+最近有什么热门管人金曲她没唱过的吗
+
+
+-----
+
+####  掉头学姐  
+##### 13242#       发表于 2021-4-12 00:37
+
+
+ 本帖最后由 掉头学姐 于 2021-4-12 00:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909073&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:36</a>
+矩阵死了？咋死的？是那次约稿的事情吗。
+
+—— 来自 OPPO PCLM10, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+舞元联动破防，还bls反踩了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+syl，求求咩别在迷信自己了，狗蛋合唱调音就挺好听的，上次吉祥三宝我说调音怎么这么糟，得了，是她做得mv怪不得
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GeraltzRivii| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  草牛  
+##### 13243#       发表于 2021-4-12 00:38
+
+
+翻唱搞不好是跟结婚有关的
+
+
+-----
+
+####  时间在我手中  
+##### 13244#       发表于 2021-4-12 00:38
+
+
+ 本帖最后由 时间在我手中 于 2021-4-12 00:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909073&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:36</a>
+
+矩阵死了？咋死的？是那次约稿的事情吗。
+
+
+—— 来自 OPPO PCLM10, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+我自己所了解到的大概是云P入脑加上对舞元犬山梁木过重自爆了，11月最后退坑回踩了，恶心的我不行说实话
+
+活该当年50万约稿被人开小号骂，笑
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| GeraltzRivii| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  GeraltzRivii  
+##### 13245#       发表于 2021-4-12 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909081&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-4-12 00:37</a>
+舞元联动破防，还bls反踩了
+
+syl，求求咩别在迷信自己了，狗蛋合唱调音就挺好听的，上次吉祥三宝 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">麻了，我当时对他印象还挺深的，没想到是因为这个死了，也没想到他会因为这个反踩。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  雪风utopia  
+##### 13246#       发表于 2021-4-12 00:42
+
+
+s1就像家一样温暖，虽然家人们都很nt，但我还是喜欢这里<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13247#       发表于 2021-4-12 00:42
+
+
+ 本帖最后由 时间在我手中 于 2021-4-12 00:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909101&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:41</a>
+
+麻了，我当时对他印象还挺深的，没想到是因为这个死了，也没想到他会因为这个反踩。
+
+
+—— 来自 O ...</blockquote>
+不是，bls那个这人是说着什么你麻不在乎粉丝什么的
+
+反正他后期基本都有点魔怔事业民的样子了，只能说他导师给他作业不够多syl 尻头你考研结果如何了，clay结芽他们都过了
+
+
+-----
+
+####  草牛  
+##### 13248#       发表于 2021-4-12 00:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对矩阵感兴趣可以点我头像找那个钓鱼楼看他发疯
+
+
+-----
+
+####  A2014720  
+##### 13249#       发表于 2021-4-12 00:46
+
+
+事业民的最终下场就是矩阵呐
+
+
+-----
+
+####  GeraltzRivii  
+##### 13250#       发表于 2021-4-12 00:46
+
+
+ 本帖最后由 GeraltzRivii 于 2021-4-12 00:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909108&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 00:42</a>
+不是，bls那个这人是说着什么你麻不在乎粉丝什么的
+
+反正他后期基本都有点魔怔事业民的样子了，只能说他导 ...</blockquote>
+我拟录取咯，现在就是白天恶补专业知识晚上和朋友打英灵神殿摸鱼，估摸着七八月得到导师课题组打杂去了。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13251#       发表于 2021-4-12 00:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909137&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:46</a>
+
+我拟录取咯，现在就是白天恶补专业知识晚上和朋友打英灵神殿摸鱼，估摸着七八月得去到导师课题组打杂去了 ...</blockquote>
+那加油，我这边也要努力自己的事了
+
+
+-----
+
+####  GeraltzRivii  
+##### 13252#       发表于 2021-4-12 00:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909149&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 00:48</a>
+那加油，我这边也要努力自己的事了</blockquote>
+加油，我最近这一年无论是认识的网友还是线下熟人发展的都还成，希望这个buff能给你加上。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  GeraltzRivii  
+##### 13253#       发表于 2021-4-12 00:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909149&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 00:48</a>
+那加油，我这边也要努力自己的事了</blockquote>
+对了，日报那边是你们接盘了吗，这效率提升的可太多了，不得不说在这方面我还是没天赋。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13254#       发表于 2021-4-12 01:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909195&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 00:57</a>
+
+对了，日报那边是你们接盘了吗，这效率提升的可太多了，不得不说在这方面我还是没天赋。
+
+
+—— 来自 OPPO ...</blockquote>
+准确说是我自己找人接的盘，总好过我自己号上那点播放，顺便教人打轴罢了
+
+效率的话····其实人没变，我现在反正随缘做，也当是自己学的东西有个地方发而已，
+
+当年还是你叫我去打轴剪辑的····都这么久了唉
+
+
+-----
+
+####  GeraltzRivii  
+##### 13255#       发表于 2021-4-12 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909262&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 01:08</a>
+准确说是我自己找人接的盘，总好过我自己号上那点播放，顺便教人打轴罢了
+
+效率的话····其实人没变， ...</blockquote>
+挺好的，我一直觉得日报的大伙都很棒，只是我本人在这方面能力不太行，导致他们的实力没发挥出来。
+复活以来都烤了3次长时间全熟了，这效率没得说。
+时间确实过得快，距离18年都过去3年哩。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  清风苍澜  
+##### 13256#       发表于 2021-4-12 01:22
+
+
+有一说一，你报能诈尸我都没想到
+
+
+-----
+
+####  时间在我手中  
+##### 13257#       发表于 2021-4-12 01:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909321&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 01:17</a>
+
+挺好的，我一直觉得日报的大伙都很棒，只是我本人在这方面能力不太行，导致他们的实力没发挥出来。
+
+复活 ...</blockquote>
+认识的人还愿意给我面子罢了，至于以前那些我只能说从结论来说
+
+就没必要和官组较劲，因为和一坨烂泥较劲其实很没劲
+
+我现在反正也是比较放松那种，跟人学了不少特效轴这些，然后剪辑啥的也是做多了就大概知道怎么弄，虽然新皮说实话我其实有点不知道该剪什么
+
+看看她这周弄什么吧，我还是喜欢捡漏然后自己慢慢做，日报的大伙儿的话emmmm，你要是能联系到什么猛男翻译就再好不过了，校对我大概能动用2-3个有近似实力的人，我这边还有几个在做的肉
+
+反正姑且在考虑要不要招人吧，虽然我现在更想要小团体式集中工作，主要是朋友交情的话感觉提出请求舒服不少，大家伙一起做起来也比较开心
+
+全熟这个其实有点取巧，虽然杂谈没办法取巧就是了
+
+
+-----
+
+####  汇聚群光  
+##### 13258#       发表于 2021-4-12 01:26
+
+
+说到神乐组成员联动，mea上一次和组内成员的联动还是在今年1月初的时候和如月一块参加了组长举办的8人太空狼人杀<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+现在mea还能帮自己组员转直播预告推、在她们生日/出道一周年纪念的时候发推祝贺、并且时不时去查房，我们就该知足了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于和其他人，估计只能指望犬山或者组长又有什么新活了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13259#       发表于 2021-4-12 01:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909371&amp;ptid=1973472" target="_blank">汇聚群光 发表于 2021-4-12 01:26</a>
+
+说到神乐组成员联动，mea上一次和组内成员的联动还是在今年1月初的时候和如月一块参加了组长举办的8人太空 ...</blockquote>
+我姑且说一句····那个是知名coser的enako·····级别大概emmmm，算了我说不清，反正要是能联动到简直了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GeraltzRivii  
+##### 13260#       发表于 2021-4-12 01:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909353&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-12 01:23</a>
+认识的人还愿意给我面子罢了，至于以前那些我只能说从结论来说
+
+就没必要和官组较劲，因为和一坨烂泥较劲 ...</blockquote>
+能够放松做真的舒服很多。
+我最魔怔的时候已经享受不到直播的乐趣了，看直播纯粹就是看看能有啥剪的，听到艾特说播了第一反应是疲惫。
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">现在我什么都联系不到啦，因为mea而相识的网友们，要么联系慢慢变少，要么就闹掰不联系了，有时候想想就觉得仿若黄粱一梦。
+加油吧，祝现实生活能发展的更好，烤肉能放松做做让自己感受到积极情绪。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+-----
+
+####  A2014720  
+##### 13261#       发表于 2021-4-12 01:32
+
+
+联动会不会有难说，但有了八成是苔苔直播间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这一套还是苔苔厉害，你们事业民去给苔苔打sc想办法吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GeraltzRivii  
+##### 13262#       发表于 2021-4-12 01:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909348&amp;ptid=1973472" target="_blank">清风苍澜 发表于 2021-4-12 01:22</a>
+有一说一，你报能诈尸我都没想到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">xm哥好久不见！
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13263#       发表于 2021-4-12 01:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909407&amp;ptid=1973472" target="_blank">GeraltzRivii 发表于 2021-4-12 01:31</a>
+
+能够放松做真的舒服很多。
+
+我最魔怔的时候已经享受不到直播的乐趣了，看直播纯粹就是看看能有啥剪的，听 ...</blockquote>
+我去年给同好会那边供稿200多，说实话感觉累得要死，后期的确也和你说的那样，感到了极度的疲惫
+
+毕竟你看个联动你要考虑剪什么几把，然后这东西播放量那些啥的是吧，还要看这些有的没的几把破事其实挺烦的
+
+反正19年那会儿你和我说的官组那些狗屁事随着621的死亡也彻底没意义了
+
+我现在就是觉得某段自己很喜欢才想动了
+
+说到底过年mea整活了，官组两天内出了也就10万不到播放量，其实就该明白了，已经不是以前那时候了
+
+我也不清楚自己究竟算魔怔还是正常，也许是两者交替之间，反正我还能感到乐趣，可能我这人就这么简单
+
+前几天新皮我的确有点所谓【破防】了，但是其实是我自己心中的梁木，11月那事给我造成的阴影很重说实话
+
+这几天看下来，也就那样吧，虽然非要说杏花这个御用L2D人的抽搐动法我还是不太喜欢就是了，但是无所谓了
+
+要说所谓回旋，无非就是发现自己还是放不下而已，我还有想做的事，想要达成的目标
+
+我这人有种偏执，某些事不达成我一定不会甘心，所以才会留恋，才会像个弱智一样
+
+总而言之，我现在很好，这样就好，把地盘圈上了，和某些玩意儿隔离开来，我觉得我才能逐渐习惯
+
+
+       
