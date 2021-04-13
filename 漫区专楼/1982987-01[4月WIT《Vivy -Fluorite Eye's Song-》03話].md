@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 19:04** 
+> ## **本文件最后更新于2021-04-13 16:04** 
 
 
 
@@ -4381,4 +4381,442 @@ WIT：我要让三癞子坠落！<img src="https://static.saraba1st.com/image/sm
 下集预告里的打戏都一股攻壳tva的味，真香
 
 
-                                      
+-----
+
+####  Newfarming3  
+##### 333#       发表于 2021-4-12 03:29
+
+
+看楼里一直没人说，我这就发了吧，这动画大纲在PV里已经写出来，4个故事，每个故事2~3集，最后再来个2集结尾差不多就是一季动画了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=827654e94eee3d6d22c687c373176d41/2ca37e600c33874438b36832460fd9f9d62aa096.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=92125753c32a283443a636036bb4c92e/6af9df8065380cd76368e5a3b644ad3458828196.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=079be35d80dda144da096cba82b6d009/a16b41e736d12f2eb274e92e58c2d56284356896.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=3e73ca706cec54e741ec1a1689399bfd/56d381eef01f3a2932b992808e25bc315d607c96.jpg" referrerpolicy="no-referrer">
+
+第一个给【我】赋予名字，对应1-2集的AI命名法
+
+第二个【我】失去控制，对应的是现在播的3~？集的AI失控
+
+后面还有2个故事应该就是AI爱上人类和AI停止选择，4个故事完后差不多就100年了，然后再花2集大结局，一个平稳落地的优质作品就完成了，感觉这部应该是和没落要塞差不多的优秀原创吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  树洞专用  
+##### 334#       发表于 2021-4-12 05:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tsukatsukieiko  
+##### 335#       发表于 2021-4-12 06:34
+
+
+还是感觉熊是黑的。
+
+顺便sunrise轨道旅馆撞地球还是撞到海边，这个太TMD了。
+
+
+-----
+
+####  HGCG  
+##### 336#       发表于 2021-4-12 07:47
+
+
+我知道了
+
+最后一定是这样的
+
+虽然VIVY的几次行动都无法改变历史的潮流，
+
+但是她积累了数据成为了地球上最强的战斗AI，害怕伤害更多人于是主动选择进博物馆
+
+然后到了X DAY，松本再次把VIVY唤醒，最终的解决方法就是利用VIVY的战斗力直接干掉即将传播电脑病毒的元凶
+
+
+-----
+
+####  cloudliu  
+##### 337#       发表于 2021-4-12 08:22
+
+
+肯定是叙事诡计 我觉得有2个可能
+
+
+1 ai是误导VIVY将历史发展导向更有利于ai暴乱
+
+2 VIVY是ai暴乱的核心要输 ai是要阻止VIVY 让她自我毁灭 
+
+
+-----
+
+####  达达葱2  
+##### 338#       发表于 2021-4-12 09:26
+
+
+B站还没上？
+
+
+-----
+
+####  夜留歌  
+##### 339#       发表于 2021-4-12 10:25
+
+
+说不定熊可能并不是博士送到过去的呢？
+
+
+-----
+
+####  PLANETDANCE  
+##### 340#       发表于 2021-4-12 12:37
+
+
+刚看到第二集，好像母猩猩啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  青菜子  
+##### 341#       发表于 2021-4-12 12:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原创番想看得高兴就别造假药了，要真阴谋论那何必找女主，又何必沉睡这么久就为了对时间线影响最小
+
+
+-----
+
+####  第贰个十年  
+##### 342#       发表于 2021-4-12 16:39
+
+
+熊有问题板上钉钉，只是是什么问题那都不好说，黑幕也好反逻辑也好就看剧本怎么写都行的。
+但我说句老实话，桃佳+粉毛差不多已经到我的便当接受底线了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  andyjin  
+##### 343#       发表于 2021-4-12 16:53
+
+
+也算涉及到了社会变革，ge简单，但要不死人估计有点难吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 344#       发表于 2021-4-12 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50914844&amp;ptid=1982987" target="_blank">第贰个十年 发表于 2021-4-12 16:39</a>
+
+熊有问题板上钉钉，只是是什么问题那都不好说，黑幕也好反逻辑也好就看剧本怎么写都行的。
+
+但我说句老实话 ...</blockquote>
+至少日笠的黄发在宣传pv里比较靠前(里莱和聪美的人物还没正式登场)，应该不至于这么早死吧，桃佳的妹妹倒是有点危险，就不知道梅原和长月这次怎么“利用”了
+
+
+-----
+
+####  酥蕤  
+##### 345#       发表于 2021-4-12 18:53
+
+
+三话上天掉头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+不知道他会不会按照ai只有一个使命的深层逻辑来讲故事，不过从女主运行的唱歌幸福来看也太宽泛了，他强调的是个啥意义不明的东西
+
+
+-----
+
+####  404489039  
+##### 346#       发表于 2021-4-12 19:58
+
+
+什么鸡掰剧情
+
+
+-----
+
+####  第贰个十年  
+##### 347#       发表于 2021-4-12 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50915959&amp;ptid=1982987" target="_blank">aptx8285144 发表于 2021-04-12 18:33:19</a>
+至少日笠的黄发在宣传pv里比较靠前(里莱和聪美的人物还没正式登场)，应该不至于这么早死吧，桃佳的妹妹倒 ...</blockquote>你这样一说我感觉桃佳妹妹简直完美工具人属性怕是难逃一死<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  傲娇的章鱼  
+##### 348#       发表于 2021-4-12 20:47
+
+
+是我理解有问题还是这片演出就做的奇怪。第二集结尾飞机失事那块我还以为是女主突然间预知未来看到的影像，结果第二集十五年过去给我整傻了。第三集结尾粉毛给老板芯片那我还以为粉毛被什么组织给策反了，组织仿照老板的机体造了个新机器人上来炸酒店。
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  aptx8285144  
+##### 349#       发表于 2021-4-12 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50917161&amp;ptid=1982987" target="_blank">傲娇的章鱼 发表于 2021-4-12 20:47</a>
+
+是我理解有问题还是这片演出就做的奇怪。第二集结尾飞机失事那块我还以为是女主突然间预知未来看到的影像， ...</blockquote>
+不是，就不说飞机本身了，松本熊操控吊车打掉女主的手且说出嘲讽话语的表现总不能忽视吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  skgaminger1988  
+##### 350#       发表于 2021-4-12 23:40
+
+
+太空画的真好看 歌也好听
+我这种氛围到位就ok型选手还是很满意的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梦诗歌雪  
+##### 351#       发表于 2021-4-13 08:08
+
+
+这集就给我一种一切都是剧情需要强行发展的感觉。熊哥让老板抱了那么久，都没找着机会让老板宕机？就算vivy不愿意杀死老板让她初始化，以熊哥这无所不能的代差黑客能力难道不能像上一集的逻辑子弹一样先让她强制关机再慢慢调查硬盘记录？或者最起码先把老板藏起来等这两天过去了再放出来，总比放任她搞事安全吧。老板不在的这两天以熊哥的能力模拟出老板还在只是没露面的假象应该也不难
+
+
+-----
+
+####  梦诗歌雪  
+##### 352#       发表于 2021-4-13 08:14
+
+
+<blockquote>古道西风瘦3B 发表于 2021-4-11 15:54
+关于熊的行为及其行动准则：
+
+到目前而言我觉得大致上，从熊不是黑的角度出发，还是可以自圆其说的：
+
+1.其最 ...</blockquote>
+要说最有可能大幅度影响历史发展的就是熊哥本身，毕竟是来自百年后的技术，如果滥用能力留下过多记录，被现在的人拿去逆向的话很有可能导致技术跨越式发展，跑步进入智械危机时代
+
+就跟终结者留下了一条手臂被公司拿去逆向就开发出了天网一样，要是终结者没来天网的出现还要延后几十年
+
+
+-----
+
+####  谁介意  
+##### 353#       发表于 2021-4-13 10:43
+
+
+如果真有诡叙，我想的展开是世界线早被改过，是百年后的AI为自身不会被废弃的结果而派到过去资助反AI团体影响历史，尽可能先让AI觉醒叛乱先发制人
+
+
+-----
+
+####  梦诗歌雪  
+##### 354#       发表于 2021-4-13 11:34
+
+
+<blockquote>谁介意 发表于 2021-4-13 10:43
+如果真有诡叙，我想的展开是世界线早被改过，是百年后的AI为自身不会被废弃的结果而派到过去资助反AI团体影 ...</blockquote>
+如果是这样的话，松本熊只要把自身的技术公开就能直接让ai能力跃进一百年，在人类还没有掌握新技术的时候就直接带领所有ai全灭人类了。所以松本是未来ai派回来加速灭亡人类的说法我认为是不成立的
+
+
+-----
+
+####  谁介意  
+##### 355#       发表于 2021-4-13 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50921874&amp;ptid=1982987" target="_blank">梦诗歌雪 发表于 2021-4-13 11:34</a>
+
+如果是这样的话，松本熊只要把自身的技术公开就能直接让ai能力跃进一百年，在人类还没有掌握新技术的时候 ...</blockquote>
+随便公开超越时代的技术会引来怀疑，要等AI的应用占据社会生产各方面开始行动才更好，这样成功后才不至于让文明倒退
+
+
+象天网那种刚觉醒就用核弹大规模灭人类其实也毁灭了大量工厂和生产资料制约了自身发展速度
+
+
+-----
+
+####  Piano-Forest  
+##### 356#       发表于 2021-4-13 17:14
+
+
+【キャラクター設定】
+
+・ヴィヴィ（３話）
+<img src="https://p.sda1.dev/1/79a0d893cc294f3ea3b42a695762820b/Ey16rc4U4AEuFrY.jpg" referrerpolicy="no-referrer">
+
+・ルクレール
+<img src="https://p.sda1.dev/1/0c4270b2b5d35fe6c0840110607d8d06/Ey161IOUUAAhSrJ.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  selain.meneth  
+##### 357#       发表于 2021-4-13 19:22
+
+
+ 本帖最后由 selain.meneth 于 2021-4-13 19:27 编辑 
+
+所以女主这是要孤生战斗一百年吗？开场的科学家很有可能是小女孩妹妹的后代吧。
+
+
+-----
+
+####  达达葱2  
+##### 358#       发表于 2021-4-13 20:49
+
+
+B站还没上？
+
+
+-----
+
+####  gofbayrf  
+##### 359#       发表于 2021-4-13 20:56
+
+
+ 本帖最后由 gofbayrf 于 2021-4-13 20:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50926957&amp;ptid=1982987" target="_blank">selain.meneth 发表于 2021-4-13 19:22</a>
+
+所以女主这是要孤生战斗一百年吗？开场的科学家很有可能是小女孩妹妹的后代吧。 ...</blockquote>
+科学家喊女主DIVA 妹妹那邊喊VV 應該不是一家   科学家不知道是被VV的錄影感動過還是被實際救過這點難講
+
+
+-----
+
+####  JustW  
+##### 360#       发表于 2021-4-13 21:11
+
+
+ 本帖最后由 JustW 于 2021-4-13 21:12 编辑 
+<blockquote>梦诗歌雪 发表于 2021-4-13 08:08
+这集就给我一种一切都是剧情需要强行发展的感觉。熊哥让老板抱了那么久，都没找着机会让老板宕机？就算vivy ...</blockquote>
+去大楼就议员你也能发现如果只是救的话熊哥一个人也能完成任务，但他还是非要让女主全程参与，我觉得有两种可能。一种是熊哥的使命要求他必须让vivy来亲自完成任务，如果方案vivy不同意，那么熊哥也无法行动（但vivy想开支线的话熊哥可以强行阻止），另一种是完成任务都是幌子，真正的目的是通过这些任务来影响女主，或者借女主来实现真正的目的。
+
+
+
+
+-----
+
+####  adslnet0519  
+##### 361#       发表于 2021-4-13 21:37
+
+
+看了两集半，实在忍不住想吐槽一句，熊你这么厉害为啥不夺舍了vivy直接单刷这百年计划<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  skmdfong  
+##### 362#       发表于 2021-4-13 21:40
+
+
+3话掉头回来了，是熟悉的味道，等一个重振原创荣光吾辈义不容辞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lonelyleaf  
+##### 363#       发表于 2021-4-13 22:02
+
+
+ 本帖最后由 lonelyleaf 于 2021-4-13 22:03 编辑 
+
+熊的行动应该都是类似心理史学计算的结果吧，未来人类其实最后赢了，或者现在和开头中间还隔着一周目之类的，总之目前这种微调历史让ai逐步被人类接受的做法可能是对ai而言的最优解，突然公开技术ai会发展但人类也可能有更好的反制手段。
+
+
+-----
+
+####  manyin1  
+##### 364#       发表于 2021-4-13 22:04
+
+
+这片意外的好看呢，音乐，画面，分镜方面都挺不错的
+
+
+-----
+
+####  fuochai  
+##### 365#       发表于 2021-4-13 22:52
+
+
+妹妹型还行，幻视初音和镜音<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 366#       发表于 2021-4-13 23:01
+
+
+ Vivy -Fluorite Eye's Song是这个题目吧 到现在好像无论是网易还是腾讯好像都没看见有op或者ed出现的收录（包括日笠唱的那首），叔叔家到是剧情里出现的都有，而且不知道是不是因为翻译不出好的中文名，百科资料也不知道是哪个词目里收录过人物们的信息<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mika-S  
+##### 367#       发表于 2021-4-13 23:08
+
+
+这新人类妹妹一脸死相，编剧能不能别逮着人家一家薅啊，过分了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DARK_HGCG  
+##### 368#       发表于 2021-4-13 23:15
+
+
+想到一个问题：粉毛身为机器人为什么会伸懒腰？
+
+
+-----
+
+####  aptx8285144  
+##### 369#       发表于 2021-4-13 23:19
+
+
+其实第三话日笠的这首约定会再相遇配合星空以及和妹妹相遇，粉毛掉头等片段冲击力感觉远大于前面两话任何时刻，感觉成了跨越时空的安魂曲<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mika-S  
+##### 370#       发表于 2021-4-13 23:27
+
+
+还有这女主在那个角落里唱了十五年了还没去主舞台，妹妹你这搁人类偶像业早就毕业隐退找个老实人嫁了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  何でやねん  
+##### 371#       发表于 2021-4-13 23:28
+
+
+福山熊最后真的不会跳反么，能来点不一样的套路我倒是喜闻乐见的<img src="https://static.saraba1st.com/image/smiley/face2017/188.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DARK_HGCG  
+##### 372#       发表于 2021-4-13 23:50
+
+
+啊vivy的黑丝好棒啊
+
+
+                                     
