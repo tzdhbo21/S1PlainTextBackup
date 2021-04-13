@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-07 09:41** 
+> ## **本文件最后更新于2021-04-13 12:54** 
 
 
 
@@ -202,13 +202,7 @@
 ####  UnhappyTails  
 ##### 10520#       发表于 2020-12-6 17:16
 
-
- 本帖最后由 UnhappyTails 于 2020-12-6 18:17 编辑 
-
-22号这个小剧场真是yao了老命了
-
-
-怎么会有这么可爱的女人，我......我......<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -216,17 +210,7 @@
 ####  UnhappyTails  
 ##### 10521#       发表于 2020-12-6 17:24
 
-
-不吹不黑，连看了五遍
-
-
-开头这一段这种上扬曲调的欢快bgm太配倒霉孩子的小动作和口癖连发了，真是看得整个人心情都好了
-
-
-小剧场的动画作者怕不是个绫人，细节方面弄得太好了，当然也可能是因为最近小剧场超展开频繁人物飞来飞去好不容易有一集安定的关系吧
-
-
-最后那个gif真是一幅狗相......哪个世界会有这么可爱的狗啊！！！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -243,17 +227,7 @@
 ####  UnhappyTails  
 ##### 10523#       发表于 2020-12-6 18:09
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49629695&amp;ptid=1914409" target="_blank">soraku 发表于 2020-12-6 17:40</a>
-
-怎么尾巴哥唐突发情的</blockquote>
-没咋啊，就是刷油管看到新小剧场-看完想起来前几期还没补-看到22号那一集-直接被击沉，把持不住连看好几遍
-
-
-讲道理你楼看到那一集不也是那个反应，我可是特地切回去确认了，没比我强到哪去
-
-
-一会儿再看一遍<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -711,14 +685,7 @@ Q群和这里，没了
 ####  UnhappyTails  
 ##### 10560#       发表于 2020-12-10 21:43
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49642275&amp;ptid=1914409" target="_blank">nian1538 发表于 2020-12-7 19:55</a>
-被绫总PUA的阿姨：三才 日南 船长 拉米
-
-
-绫总无法PUA的阿姨：狐</blockquote>
-拉米现在是不是阿姨真的已经确定了吗（
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -2686,30 +2653,7 @@ https://www.youtube.com/watch?v=O_tsztl9eBg
 ####  UnhappyTails  
 ##### 10740#       发表于 2020-12-22 21:22
 
-
-【发病预警】
-
-
-我服了，子种成大河
-
-
-今天的她怎么会这么好
-
-
-这小腰扭得，这小胳膊摆得，这小屁股撅得<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
-
-
-她486mio妈那首歌真是清洁心灵，感觉到了跟好人在一起特有的安心感
-
-
-哈哈！好啊！.jpg
-
-
-就懒狗部分今天live就不亏了，呜呜呜，bloom要多给点啊垃圾cover
-
-
-PS：最近我也有点开始希望自己是那几个甜蜜双排的人了。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4291,10 +4235,7 @@ syl 中午11点播
 ####  UnhappyTails  
 ##### 10863#       发表于 2021-1-5 23:05
 
-
-怎么她唱夜驱我就听得那么顺耳
-
-我明明对这歌无感的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4322,10 +4263,7 @@ syl 中午11点播
 ####  UnhappyTails  
 ##### 10866#       发表于 2021-1-5 23:16
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49949819&amp;ptid=1914409" target="_blank">Fami水 发表于 2021-1-5 23:15</a>
-这是pua啊pua 尾巴哥</blockquote>
-这首歌叫啥啊，我好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4333,8 +4271,7 @@ syl 中午11点播
 ####  UnhappyTails  
 ##### 10867#       发表于 2021-1-5 23:20
 
-
-草......红莲华就算她唱我还是有点....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> （不出所料拉了
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4360,8 +4297,7 @@ syl 中午11点播
 ####  UnhappyTails  
 ##### 10870#       发表于 2021-1-5 23:56
 
-
-她没体力了，连续拉垮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4410,11 +4346,7 @@ syl 中午11点播
 ####  UnhappyTails  
 ##### 10875#       发表于 2021-1-6 10:37
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49952088&amp;ptid=1914409" target="_blank">Fami水 发表于 2021-1-6 09:37</a>
-
-第五首唱的是 炎 吧</blockquote>
-查了，是鬼灭剧场版的歌，果然问题不在鬼灭的歌而在于红莲华又难唱还人人唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7946,7 +7878,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_P0b43" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_Usj3j" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 mv.gif
@@ -12415,4 +12347,317 @@ yhm愚人节整活怎么喜欢拿野男人说事啊 蚌埠住了
 不知不觉一年多了，往前翻翻我们一年前说的东西……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-           
+-----
+
+####  昆西昆希昆  
+##### 11642#       发表于 2021-4-7 19:30
+
+
+ 本帖最后由 昆西昆希昆 于 2021-4-7 19:31 编辑 
+
+[https://b23.tv/BV1fv41187cM](https://b23.tv/BV1fv41187cM)光速吃瘪余<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11643#       发表于 2021-4-7 19:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天又是猎 总该丢人了吧
+
+
+-----
+
+####  因为你不会  
+##### 11644#       发表于 2021-4-7 20:53
+
+
+上次还不够丢人吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11645#       发表于 2021-4-7 22:31
+
+
+这游戏还能有指示厨草
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Fami水  
+##### 11646#       发表于 2021-4-7 22:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">初见要三猫了
+
+
+-----
+
+####  cctvyt1  
+##### 11647#       发表于 2021-4-7 22:52
+
+
+阿绫你不是玩过世界吗还打过金羊吗
+
+怎么操作能菜成这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 11648#       发表于 2021-4-7 22:58
+
+
+绫总打mhw的时候不就是个凑人数开游戏的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11649#       发表于 2021-4-7 22:58
+
+
+打世界用的键盘，崛起不习惯用手柄吧（大概 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11650#       发表于 2021-4-7 23:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">疯狂丢人
+
+
+-----
+
+####  Fami水  
+##### 11651#       发表于 2021-4-7 23:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放弃太刀吧 阿绫 
+
+
+-----
+
+####  cctvyt1  
+##### 11652#       发表于 2021-4-7 23:26
+
+
+连喝水都不会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11653#       发表于 2021-4-7 23:28
+
+
+首猫给青熊了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11654#       发表于 2021-4-7 23:32
+
+
+<img src="https://img.saraba1st.com/forum/202104/07/232900ah3zhmkyvycv74ha.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2T[HJR3}H0{Y[F$%}]}2CI3.jpg</strong> (12.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-7 23:29 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">无眼睇。
+
+阿绫是不是已经忘了怎么开刃。
+
+
+-----
+
+####  FCCHua  
+##### 11655#       发表于 2021-4-7 23:49
+
+
+为什么会这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11656#       发表于 2021-4-8 00:21
+
+
+同接1.5万 这高血压台怎么那么多人看得下去<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11657#       发表于 2021-4-8 00:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被绫总用药水灌死的伞鸟
+
+
+-----
+
+####  因为你不会  
+##### 11658#       发表于 2021-4-8 00:38
+
+
+折磨结束，已经想拳碎镜了<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  天悬星河  
+##### 11659#       发表于 2021-4-8 00:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">辛苦comment绞尽脑汁找夸奖的角度了
+
+
+-----
+
+####  昆西昆希昆  
+##### 11660#       发表于 2021-4-8 02:17
+
+
+好帅的，唔...总之就是了不起！
+
+
+-----
+
+####  一仙  
+##### 11661#       发表于 2021-4-8 19:18
+
+
+<img src="https://tva4.sinaimg.cn/large/006xG1LQgy1gpcjxrg1zjj310e194dkr.jpg" referrerpolicy="no-referrer">、
+[https://twitter.com/kirome_toru_2/status/1379772894562066438?s=20](https://twitter.com/kirome_toru_2/status/1379772894562066438?s=20)
+
+
+很久不见而且tag都没打的ayasuba图
+
+
+-----
+
+####  stedckk  
+##### 11662#       发表于 2021-4-8 20:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">aya48已经亡了好久了
+
+
+-----
+
+####  cctvyt1  
+##### 11663#       发表于 2021-4-9 09:46
+
+
+《排 面》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/09/094641js2ko0p30ftsmo4n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>排面.JPG</strong> (128.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 09:46 上传
+
+
+-----
+
+####  stedckk  
+##### 11664#       发表于 2021-4-9 19:39
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/193918g6ccxjcw0exxyxcx.png" referrerpolicy="no-referrer">
+
+
+<strong>~}U0J_[GB`7~M3(PWPIN16Q.png</strong> (10.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 19:39 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我怀疑日本油管内部有绫人。
+
+
+-----
+
+####  因为你不会  
+##### 11665#       发表于 2021-4-9 20:36
+
+
+绫总这太离谱了
+
+
+-----
+
+####  昆西昆希昆  
+##### 11666#       发表于 2021-4-10 03:29
+
+
+百鬼众运营公号私用罢了
+
+
+-----
+
+####  stedckk  
+##### 11667#       发表于 2021-4-11 12:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">前几日收那么多钱又可以摸了是吧，lol都不打了
+
+
+-----
+
+####  因为你不会  
+##### 11668#       发表于 2021-4-12 11:41
+
+
+可能绫总准备去冰岛打msi了
+
+
+-----
+
+####  因为你不会  
+##### 11669#       发表于 2021-4-12 23:24
+
+
+摸了这么几天可以宣布绫总发病了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 11670#       发表于 2021-4-12 23:25
+
+
+还可以再观察观察<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Fami水  
+##### 11671#       发表于 2021-4-13 19:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">再不播我就要发动毒奶了
+
+
+          
