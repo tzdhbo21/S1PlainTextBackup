@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 17:09** 
+> ## **本文件最后更新于2021-04-13 08:43** 
 
 
 
@@ -6934,6 +6934,21 @@ jk组的2d3.0接力披露大概是要来了<img src="https://static.saraba1st.co
 2021-4-11 23:37 上传
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|可爱|
+
+
+查看全部评分
+
+
 -----
 
 ####  OldGlory  
@@ -6943,4 +6958,397 @@ jk组的2d3.0接力披露大概是要来了<img src="https://static.saraba1st.co
 那其他人live2d 2.0去哪了？
 
 
-                                
+-----
+
+####  CAserlumos  
+##### 35013#       发表于 2021-4-12 12:37
+
+
+阿菜今天大概要复播了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 35014#       发表于 2021-4-12 13:02
+
+
+这画风一看就是sky和美夜子的画师，好看<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+能多画画女儿就更好了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 35015#       发表于 2021-4-12 13:04
+
+
+月之玩儿据说很胃疼的叶月妹wing，有点期待…
+月之对自我能力的认知应该还挺高的的吧，好奇她会不会说怪话踩雷，就当是叶月asahi对话代餐了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 35016#       发表于 2021-4-12 14:45
+
+
+[https://www.bilibili.com/video/BV1a5411A7YK](https://www.bilibili.com/video/BV1a5411A7YK)
+
+做了我特别喜欢的mikan姨推特歌合集
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| katern| + 1|hao|
+
+
+查看全部评分
+
+
+-----
+
+####  OldGlory  
+##### 35017#       发表于 2021-4-12 18:42
+
+
+阿菜7点
+https://youtu.be/1K3lCel-9SU
+
+
+-----
+
+####  IDIDIDID  
+##### 35018#       发表于 2021-4-12 18:55
+
+
+菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜菜
+
+
+-----
+
+####  IDIDIDID  
+##### 35019#       发表于 2021-4-12 19:02
+
+
+开幕卖货，是不是田角逼你复出的
+
+
+-----
+
+####  winda  
+##### 35020#       发表于 2021-4-12 19:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">是安定的虚无菜
+
+
+-----
+
+####  FCCHua  
+##### 35021#       发表于 2021-4-12 19:17
+
+
+是熟悉的11岁，真好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 35022#       发表于 2021-4-12 19:17
+
+
+童田是不是修炼了语言的艺术，太会避重就轻了，听到现在只知道她睡了半年打了六个gal，这说法方式确信不是找人代播了
+
+
+-----
+
+####  OldGlory  
+##### 35023#       发表于 2021-4-12 19:17
+
+
+不直播就一直快乐过宅宅生活是吧😅
+
+
+-----
+
+####  横寺阳人  
+##### 35024#       发表于 2021-4-12 19:18
+
+
+难道你要我菜讲讲月子中心的故事吗？
+
+
+-----
+
+####  IDIDIDID  
+##### 35025#       发表于 2021-4-12 19:19
+
+
+顶不住，润了
+
+
+-----
+
+####  蓬莱广告  
+##### 35026#       发表于 2021-4-12 19:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这聊gbr毕业这一套说法是不是和千岁那会一样
+
+
+-----
+
+####  cckuku  
+##### 35027#       发表于 2021-4-12 19:42
+
+
+总不能说自己养胎去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  qq845629713  
+##### 35028#       发表于 2021-4-12 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 挺好的，没有改变就是最好的，要是阿菜回归变成已育怨妇我也受不了的
+
+
+-----
+
+####  alcoholic1000  
+##### 35029#       发表于 2021-4-12 20:48
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-13 10:28 编辑 
+
+プロセカ这游戏曲库挺不错的，就是判定太严，而且累眼
+
+Syl，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/13/102800ooafafax9hsfkska.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ぷてちとAPEX！.jpg</strong> (247.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-13 10:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/13/102800ueu1vpmmov0ofudv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>海賊バトロワ.jpg</strong> (302.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-13 10:28 上传
+
+
+-----
+
+####  rzrbtk  
+##### 35030#       发表于 2021-4-12 22:02
+
+
+笑死，郡道不定期给地缚灵发line，从未得到回应，依然坚持发，有这力气不如舔一下同期人气王<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sgssk  
+##### 35031#       发表于 2021-4-12 23:00
+
+
+好，你就是新鲜的婆罗门v，起码是个新鲜的高浓度二刺螈
+
+<img src="https://img.saraba1st.com/forum/202104/12/225932rybttjrci8cg766q.png" referrerpolicy="no-referrer">
+
+
+<strong>E`YV977B9QD(`89TDB@CAT0.png</strong> (135.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-12 22:59 上传
+
+
+-----
+
+####  義賊  
+##### 35032#       发表于 2021-4-13 11:04
+
+
+最近内容的cp厨浓度有点高啊 先是彩虹周报。又是gamers女子会
+
+
+-----
+
+####  義賊  
+##### 35033#       发表于 2021-4-13 11:04
+
+
+最近内容的cp厨浓度有点高啊 先是彩虹周报。又是gamers女子会
+
+
+-----
+
+####  死体残留  
+##### 35034#       发表于 2021-4-13 15:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">彩虹in解散兼毕业，实在是太惨了。三周年没带in玩是这个道理啊
+
+
+-----
+
+####  空集  
+##### 35035#       发表于 2021-4-13 15:32
+
+
+好突然 虽然in本来也存在感低 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  FCCHua  
+##### 35036#       发表于 2021-4-13 15:33
+
+
+ 本帖最后由 FCCHua 于 2021-4-13 15:34 编辑 
+
+noor的皮和笑声我好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 35037#       发表于 2021-4-13 15:49
+
+
+要上市处理掉不良资产不是很正常
+
+
+-----
+
+####  IDIDIDID  
+##### 35038#       发表于 2021-4-13 15:49
+
+
+真正的问题是下一批甩哪个包袱
+
+
+-----
+
+####  真飞鸟i  
+##### 35039#       发表于 2021-4-13 15:54
+
+
+in原地转生en，然后en出道吧。要飒爽变身新的开始 那必须是摆脱旧时代的包袱的。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 35040#       发表于 2021-4-13 15:54
+
+
+虹半年，虹半年<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+-----
+
+####  死体残留  
+##### 35041#       发表于 2021-4-13 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50924716&amp;ptid=1969498" target="_blank">真飞鸟i 发表于 2021-4-13 15:54</a>
+in原地转生en，然后en出道吧。要飒爽变身新的开始 那必须是摆脱旧时代的包袱的。
+
+—— 来自 Xiaomi Redmi  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">in一早就转过en了，比隔壁en还早，然后看隔壁en风生火起之后就转回in了，虹的海外运营就是菜，kr一开始还接手个80社团被坑
+
+
+-----
+
+####  winda  
+##### 35042#       发表于 2021-4-13 16:17
+
+
+aadya还在打黑魂呢来个这么个消息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+三周年海外组展示环节还是带en玩的好不好。
+不过in转en转in后和一直死气沉沉的数据,再加上ickr砍资本准备金，企划被砍不奇怪。
+https://otakuindustry.biz/archives/90066
+
+
+-----
+
+####  qq845629713  
+##### 35043#       发表于 2021-4-13 16:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我看本社形势不是小好，而是大好啊，金银铜三角组合完美接班江花，只要本土继续发展，一切都会好起来了的
+
+
+-----
+
+####  死体残留  
+##### 35044#       发表于 2021-4-13 16:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50924956&amp;ptid=1969498" target="_blank">winda 发表于 2021-4-13 16:17</a>
+aadya还在打黑魂呢来个这么个消息
+三周年海外组展示环节还是带en玩的好不好。
+不过in转en转in后和一 ...</blockquote>
+三周年海外组场刊没有带in组玩吧，还是一个一年都没加人的彩虹海外组，同时间的kr都到四期了
+
+
+-----
+
+####  IDIDIDID  
+##### 35045#       发表于 2021-4-13 16:33
+
+
+彩虹把全liver规模（含现在的海外组、维阿和未来的EN）控制在100个以下会好点，人人有汤喝。
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 35046#       发表于 2021-4-13 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50925141&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-04-13 16:33:56</a>
+彩虹把全liver规模（含现在的海外组、维阿和未来的EN）控制在100个以下会好点，人人有汤喝。 ...</blockquote>直接把维啊砍了不是刚好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  IDIDIDID  
+##### 35047#       发表于 2021-4-13 16:39
+
+
+那可万万不能。维阿又是和资本的大手叔叔亲善的证据，又是和杏打完全不对称战争的唯一战场，简直是PPT里最耀眼的星，割掉KR、ID都不会割维阿的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                               
