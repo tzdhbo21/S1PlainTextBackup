@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-12 13:46** 
+> ## **本文件最后更新于2021-04-13 10:42** 
 
 
 
@@ -14268,7 +14268,7 @@ syl 原来之前那个fleet是三首啊，我记成两首了，整挺好
 
 
 7e0981a0-3148-11ea-8d65-b51a0f781c67_214045w2ixlsf67he9s9gb.jpg
-(123.93 KB, 下载次数: 0)
+(123.93 KB, 下载次数: 5)
 
 
 下载附件
@@ -14384,4 +14384,308 @@ syl 原来之前那个fleet是三首啊，我记成两首了，整挺好
 这是tc台吗 那时候同接就快600了 和现在差不多 原来小麻一直是tc大物啊
 
 
-    
+-----
+
+####  呓亘  
+##### 13355#       发表于 2021-4-12 21:52
+
+
+吊人啥时候能播一次游戏啊 又恰独食打游戏
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  A2014720  
+##### 13356#       发表于 2021-4-12 21:54
+
+
+还tc大物呢，某社上次来tc一样过万<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13357#       发表于 2021-4-12 21:55
+
+
+有病吧，天天拜人家码头，能联动神乐组嘛<img src="https://p.sda1.dev/1/b16e919c869e347afab5243adb05172f/4bd8de10ccf32f0a.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13358#       发表于 2021-4-12 21:57
+
+
+神乐组干什么，又未必有趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13359#       发表于 2021-4-12 22:21
+
+
+鬼灯童有特定过么？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 13360#       发表于 2021-4-12 22:27
+
+
+是v家曲劣等上等的那个pv师，做过不少pv
+
+
+-----
+
+####  JY要塞  
+##### 13361#       发表于 2021-4-12 22:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">麻酱已经是工具人了
+
+
+-----
+
+####  A2014720  
+##### 13362#       发表于 2021-4-12 22:38
+
+
+苔苔赏饭吃你们天狗不乐意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  汇聚群光  
+##### 13363#       发表于 2021-4-12 22:39
+
+
+要联动神乐组成员只能和如月联动了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13364#       发表于 2021-4-12 22:57
+
+
+劣等上等pv师可还行，你咩姐离原初の虚拟偶像（指初音系列）距离最近的一次kana？
+
+
+-----
+
+####  路人辰  
+##### 13365#       发表于 2021-4-13 05:42
+
+
+20210413东京1点
+
+
+<img src="https://img.saraba1st.com/forum/202104/13/054214c2arzz17505llp8h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>F03DE6F6-43A6-4FCF-859D-ABA4A9F0B9B4.jpeg</strong> (297.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-13 05:42 上传
+
+
+-----
+
+####  Dualist彩  
+##### 13366#       发表于 2021-4-13 12:05
+
+
+插进嘴里充电是吧，hso<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13367#       发表于 2021-4-13 12:07
+
+
+必须把嘴截掉，这样才对<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13368#       发表于 2021-4-13 14:27
+
+
+妈了。这周是联动周吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天周二 周五桃铁老四样 周日有个暂时没公布的
+
+
+-----
+
+####  雪风utopia  
+##### 13369#       发表于 2021-4-13 14:55
+
+
+麻...<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13370#       发表于 2021-4-13 16:31
+
+
+ 本帖最后由 A2014720 于 2021-4-13 16:40 编辑 
+
+谢谢你成功逗笑我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/d5f10e86b97d61a5c4b555a119f40341/IMG_CMP_184118370.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13371#       发表于 2021-4-13 16:36
+
+
+为什么倒垃圾？
+
+          
+
+这逼现在学聪明了，原来tag无关一举报一个准，现在简介会提两嘴了，污染tag有一手的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cla0221  
+##### 13372#       发表于 2021-4-13 16:36
+
+
+编辑了吧，这点播放量别引流了👋
+
+
+-----
+
+####  A2014720  
+##### 13373#       发表于 2021-4-13 16:38
+
+
+不行太有意思了让我多笑会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  深渊萃取  
+##### 13374#       发表于 2021-4-13 16:40
+
+
+不得不赞同meaqua已结束<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 13375#       发表于 2021-4-13 16:46
+
+
+smjb玩意儿，这么好笑说出来也让我笑笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13376#       发表于 2021-4-13 16:52
+
+
+提供了我今日的笑点<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 13377#       发表于 2021-4-13 17:27
+
+
+住口，这位是55粉丝的大物，楼友不要得罪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13378#       发表于 2021-4-13 17:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">管人粉是不是都是傻卵
+
+
+-----
+
+####  雪风utopia  
+##### 13379#       发表于 2021-4-13 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50925979&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-13 17:43</a>
+管人粉是不是都是傻卵</blockquote>
+看一下楼友不就知道了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 13380#       发表于 2021-4-13 17:45
+
+
+是的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  iuhehc  
+##### 13381#       发表于 2021-4-13 17:51
+
+
+很难不笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  GRMeA104  
+##### 13382#       发表于 2021-4-13 18:05
+
+
+苔箱人是不是都继承了组长的用力过猛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 13383#       发表于 2021-4-13 18:21
+
+
+阿睿转播间拉跨成这德行人气也从来没只有4.1w
+
+正常情况下甚至比一干睿限还高
+
+
+不是很懂都这时候了还要造这种无聊的谣有什么意思，眼见这管人在国内快变成黄昏产业
+
+
+-----
+
+####  专业划水人员  
+##### 13384#       发表于 2021-4-13 18:28
+
+
+anti不是默认不看直播，黑屁全靠云吗
+
+
+   
