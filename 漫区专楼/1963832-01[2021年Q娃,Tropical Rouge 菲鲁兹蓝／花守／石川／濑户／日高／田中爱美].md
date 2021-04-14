@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-11 14:35** 
+> ## **本文件最后更新于2021-04-14 08:44** 
 
 
 
@@ -13592,4 +13592,396 @@ elder酱可能是老太太
 黄前辈这话意外的好神奇的感觉。
 
 
-          
+-----
+
+####  haojie_ma  
+##### 1172#       发表于 2021-4-11 22:52
+
+
+这集算是黄的个人回吧，而且说道想象力，我觉得那个泡泡相片的创意就不错
+
+海豹不会说话，也没有去年那种直接翻译的道具，现在全是靠会意。萝拉已经承担了相当一部分历年妖精的功能，海豹会不会是类似希冯哈酱那种要养的娃？
+
+
+-----
+
+####  isa2456  
+##### 1173#       发表于 2021-4-12 00:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">くるるん这个名字总感觉在哪听过，不过动起来就可爱了，跟个宝可梦一样. 不过那些饼干也不是无限的吧，吃完要女王从海上寄上来么.
+
+这次是果子前辈回下次是飞鸟回，赶紧到珊瑚吧<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  memo2  
+##### 1174#       发表于 2021-4-12 00:49
+
+
+啊，这周的人鱼美丽<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">感觉五人组目前就珊瑚的性格不够明显，看看之后个人回会怎么展开了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  dragrass  
+##### 1175#       发表于 2021-4-12 01:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909079&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-04-12 00:37:34</a></blockquote>兽娘2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  saya1892  
+##### 1176#       发表于 2021-4-12 01:57
+
+
+今年虽然看起来走怀旧沙雕风，但看起来并没有以前这种沙雕搞笑动画片的降智或者说反智风格，比如说嘲笑优等生之类的
+
+可能这就是新时代的需求吧，不能创造那种闹过界讨人厌的角色，大家都要懂事
+
+
+-----
+
+####  112zero  
+##### 1177#       发表于 2021-4-12 08:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">卖玩具回
+
+
+-----
+
+####  菊妖不是怪  
+##### 1178#       发表于 2021-4-12 08:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50909509&amp;ptid=1963832" target="_blank">saya1892 发表于 2021-04-12 01:57:22</a>
+今年虽然看起来走怀旧沙雕风，但看起来并没有以前这种沙雕搞笑动画片的降智或者说反智风格，比如说嘲笑优等 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">懂事儿的好孩子明显更讨人喜欢啊
+
+[  -- 来自 能手机投票的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  达达葱2  
+##### 1179#       发表于 2021-4-12 14:21
+
+
+爱奇艺就这么断更了？
+
+
+-----
+
+####  天邪鬼  
+##### 1180#       发表于 2021-4-12 14:53
+
+
+四人大招应该就是op那个了吧
+
+
+-----
+
+####  天邪鬼  
+##### 1181#       发表于 2021-4-12 15:01
+
+
+这一集虽然看着像是宣传玩具，但是把两个人鱼故事的要素都放出来了，一个小玉匣，一个泡泡(泡沫)
+是不是在暗示什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 1182#       发表于 2021-4-12 17:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50913818&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-12 15:01</a>
+这一集虽然看着像是宣传玩具，但是把两个人鱼故事的要素都放出来了，一个小玉匣，一个泡泡(泡沫)
+是不是在 ...</blockquote>
+<img src="https://p.sda1.dev/1/6cf5ee3184a81aa7e2ad9e8a66762d1b/IMG_CMP_88147520.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  lyflyflxf  
+##### 1183#       发表于 2021-4-12 17:43
+
+
+ 本帖最后由 lyflyflxf 于 2021-4-12 17:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50907561&amp;ptid=1963832" target="_blank">三合一出现 发表于 2021-4-11 22:02</a>
+
+黄前辈这话意外的好神奇的感觉。</blockquote>
+黄前辈盛世美颜！
+
+<img src="https://img.saraba1st.com/forum/202104/12/174433vspd6qzejox4euox.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1 (3).jpg</strong> (162.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-12 17:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/12/174533hnf5p1v75pgnyt3g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1 (2).jpg</strong> (234.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-12 17:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/12/174537s692s9g24y64s5s5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1 (4).jpg</strong> (243.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-12 17:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/12/174541gqmj3vevi3mj4y3q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1 (1).jpg</strong> (355.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-12 17:45 上传
+
+
+-----
+
+####  天邪鬼  
+##### 1184#       发表于 2021-4-12 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50915186&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-12 17:13</a>
+—— 来自 samsung SM-G981N, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+原本能看懂的，放进翻译软件里识图后反而看不懂了
+最后一格说的啥
+
+
+-----
+
+####  isa2456  
+##### 1185#       发表于 2021-4-12 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50915186&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-12 17:13</a>
+—— 来自 samsung SM-G981N, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+想象力（
+这不例行管理吗
+
+
+-----
+
+####  最强惠酱  
+##### 1186#       发表于 2021-4-12 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50915630&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-12 18:00</a>
+
+原本能看懂的，放进翻译软件里识图后反而看不懂了
+
+最后一格说的啥</blockquote>
+到了最终回得知人类恋爱的罗拉跟随大海泡沫消失了，如同人鱼公主传说一般悲哀和美丽的故事
+
+诶诶诶诶诶！？不，不要那样啦~！！
+
+【只在最后把不可能发生的xp加进去】
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1187#       发表于 2021-4-12 19:07
+
+
+爱奇艺不更了小友们怎么办
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  最强惠酱  
+##### 1188#       发表于 2021-4-12 19:17
+
+
+说起来板冈锦要上电视节目，还能看到真夏的变身原画，等一个录播
+<img src="https://p.sda1.dev/1/6ca6106c156cae75259b15ae170ad6f5/IMG_CMP_118906002.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  天邪鬼  
+##### 1189#       发表于 2021-4-12 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50916164&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-12 18:54</a>
+到了最终回得知人类恋爱的罗拉跟随大海泡沫消失了，如同人鱼公主传说一般悲哀和美丽的故事
+
+诶诶诶诶诶！ ...</blockquote>
+最终回这么搞不太可能，但如果是追加入队回又或者打最终boss的集数里来个萝拉为了守护人类而死倒有可能。一方面切合人物弧光，另一方面增加剧情张力，哪怕你知道她要复活，她死的时候你也会感到揪心，期待故事的发展
+还能结合人鱼传说，海的女儿。既然海的女儿作为悲剧，是小美人鱼一片真心终究错付了，那故事的结局就要由我们改写。珍视那些她所为之牺牲的一切，铭记她的意志。然后平板里的所有泡泡照片飘出，所有回忆凝聚成萝拉的样子。
+屑人鱼，复——活——！
+艾玛，我都被感动了，人鱼死的那集我买瓶香槟庆祝一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 1190#       发表于 2021-4-12 19:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50916404&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-12 19:18</a>
+最终回这么搞不太可能，但如果是追加入队回又或者打最终boss的集数里来个萝拉为了守护人类而死倒有可能。 ...</blockquote>
+搞笑四格啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  王留美  
+##### 1191#       发表于 2021-4-12 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50916404&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-12 19:18</a>
+最终回这么搞不太可能，但如果是追加入队回又或者打最终boss的集数里来个萝拉为了守护人类而死倒有可能。 ...</blockquote>
+你这活不行
+
+不如让屑人鱼黑化大杀四方，把历代Q娃都打成卡……我是说戒指，然后被真夏爆杀
+最后在热带四人的回忆中从泡沫照片里复活，完美
+
+
+-----
+
+####  天邪鬼  
+##### 1192#       发表于 2021-4-12 20:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50916807&amp;ptid=1963832" target="_blank">王留美 发表于 2021-4-12 20:08</a>
+你这活不行
+
+不如让屑人鱼黑化大杀四方，把历代Q娃都打成卡……我是说戒指，然后被真夏爆杀</blockquote>
+光之美少女dcd是吧，那我觉得还是时王吧。这样番外篇可以看拉郎床戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  酥蕤  
+##### 1193#       发表于 2021-4-12 21:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">人鱼抱海豹的抱法完全是抱孩子的抱法，好色，我好脏
+
+被奖励一激就不摸鱼的摸鱼虾有点真实啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梦诗歌雪  
+##### 1194#       发表于 2021-4-12 22:43
+
+
+<blockquote>酥蕤 发表于 2021-4-12 21:52
+人鱼抱海豹的抱法完全是抱孩子的抱法，好色，我好脏
+
+被奖励一激就不摸鱼的摸鱼虾有点真实啊 ...</blockquote>
+螃蟹大厨也是整天说不想干不想干但出勤数第一名，做饭还会考虑老板不及时吃饭专门给做成能久放的，可以说非常敬业了
+
+
+-----
+
+####  PrincessBanana  
+##### 1195#       发表于 2021-4-13 12:30
+
+
+ 本帖最后由 PrincessBanana 于 2021-4-13 12:31 编辑 
+
+讲道理我觉得虾姑姑小朋友蛮可爱的，又没干啥坏事，这集虾姑姑的摸鱼怪也没吸干劲力量，看得我都想分她一个点心了~
+
+完蛋，这部的反派完全讨厌不起来了
+
+
+-----
+
+####  菊妖不是怪  
+##### 1196#       发表于 2021-4-13 14:04
+
+
+这一部的反派无论如何都比上一部那三个传播病毒的屑要强得多<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  最强惠酱  
+##### 1197#       发表于 2021-4-13 14:22
+
+
+现在是跟小孩子抢零食的屑人鱼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PrincessBanana  
+##### 1198#       发表于 2021-4-13 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50923638&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-13 14:22</a>
+
+现在是跟小孩子抢零食的屑人鱼</blockquote>
+屑人鱼：我和对面干部55开，虾姑姑她没大了
+
+
+-----
+
+####  天邪鬼  
+##### 1199#       发表于 2021-4-13 17:08
+
+
+这怠惰魔女八成不是真反派，所以现在的这几个塑造都是冲着洗白去的(虽然我觉得是单纯表现人物魅力)
+现在就连夺干劲的戏码都少了
+
+
+-----
+
+####  最强惠酱  
+##### 1200#       发表于 2021-4-13 19:37
+
+
+板冈锦画58秒的真夏变身包含特效作画一共用了1358张<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  达达葱2  
+##### 1201#       发表于 2021-4-14 15:55
+
+
+爱奇艺确定不会上了？
+
+
+         

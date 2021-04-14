@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-14 08:00** 
+> ## **本文件最后更新于2021-04-14 09:08** 
 
 
 
@@ -124,6 +124,73 @@ Xperia 1 仅主摄是索尼传感器、1 II 则是主摄+超广角。不知 1 II
 
 
 查看全部评分
+
+
+-----
+
+####  月神侠  
+##### 188#       发表于 2021-4-14 16:18
+
+
+ 本帖最后由 月神侠 于 2021-4-14 16:38 编辑 
+
+索尼 Xperia 1 III 参数介绍：
+
+尺寸 165x71x8.2mm，重量 187g，IP65/68 防尘防水，混合式双 SIM，电池 4500mAh，指纹识别电源键二合一。
+
+6.5 英寸 4K HDR OLED 显示屏，支持 120Hz 高刷，240Hz 动态补偿，240Hz 触摸采样率，DCI-P3 100%，ITU-R BT.2020，D65 白点，10bit 色彩，X1 for Mobile 显示技术，CineAlta 大师模式。
+
+正面为大猩猩 Victus 玻璃，背面为 大猩猩 6。
+
+三镜头相机：主摄 12MP 1/1.7 Exmor RS F1.7 24mm；长焦 12MP 1/2.9 Exmor RS 支持 70/105mm 转换，F2.3（70mm），F2.8（105mm）；广角 12MP 1/2.5 Exmoe RA F2.2，16mm 视野 124度；三镜头均配备 蔡司镜头，T*镀膜，支持 3D iToF 对焦，双 PD，RGB-IR、OIS 光学防抖，混合式变焦支持 12.5 倍，AI 超解析度变焦，可拍摄 JPG + RAW。
+
+录像：CinemaPro 支持 24、25、30、60 和 120fps 的 4K HDR 影片，支持 OIS+EIS 电子防抖，具备 Flawless Eye 和五轴防抖。
+
+具备 3.5mm 耳机孔，支持 360RA 硬件解码，全频段立体声扬声器，杜比全景声，DSEE Ultimate ，高通 aptX HD 以及 LDAC，依旧支持动态震动系统
+
+存储规格：12GB RAM，256/512GB ROM 可扩展。
+
+快充 30W，电池健康监测可以保证 3 年电池健康，Wi-Fi 6，GPS、北斗、伽利略均支持，支持 Type-C 3.1 Gen 1，蓝牙 5.2。
+
+黑灰紫三色，2021年6月起开售。
+
+[https://www.sony.com.hk/zh/elect ... -1m3/specifications](https://www.sony.com.hk/zh/electronics/smartphones/xperia-1m3/specifications)
+
+
+索尼 Xperia 5 III 参数介绍：
+
+尺寸 157x68x8.2mm，重量 169g，IP65/68 防尘防水，混合式双 SIM，电池 4500mAh，指纹识别电源键二合一。
+
+6.1 英寸 FHD+ HDR OLED 显示屏，支持 120Hz 高刷，240Hz 动态补偿，240Hz 触摸采样率，DCI-P3 100%，ITU-R BT.2020，D65 白点，10bit 色彩，X1 for Mobile 显示技术，CineAlta 大师模式。
+
+正背面为 大猩猩 6 玻璃。
+
+三镜头相机：主摄 12MP 1/1.7 Exmor RS F1.7 24mm；长焦 12MP 1/2.9 Exmor RS 支持 70/105mm 转换，F2.3（70mm），F2.8（105mm）；广角 12MP 1/2.5 Exmoe RA F2.2，16mm 视野 124度；三镜头均配备 蔡司镜头，T*镀膜，双 PD，RGB-IR、OIS 光学防抖，混合式变焦支持 12.5 倍，AI 超解析度变焦，可拍摄 JPG + RAW。
+
+录像：CinemaPro 支持 24、25、30、60 和 120fps 的 4K HDR 影片，支持 OIS+EIS 电子防抖，具备 Flawless Eye 和五轴防抖。
+
+具备 3.5mm 耳机孔，支持 360RA 硬件解码，全频段立体声扬声器，杜比全景声，DSEE Ultimate ，高通 aptX HD 以及 LDAC，依旧支持动态震动系统
+
+存储规格：8GB RAM，256GB ROM 可扩展。
+
+快充 30W（不支持无线充电），电池健康监测可以保证 3 年电池健康，Wi-Fi 6，GPS、北斗、伽利略均支持，支持 Type-C 3.1 Gen 1，蓝牙 5.2。
+
+黑绿粉三色，2021年夏季开售。
+
+[https://www.sony.com.hk/zh/elect ... -5m3/specifications](https://www.sony.com.hk/zh/electronics/smartphones/xperia-5m3/specifications)
+
+
+索尼 Xperia 10 III
+
+高通 690 5G 平台，4500mAh 电池，同样支持 IP65/68 ，正反都是大猩猩 6 玻璃
+
+6 英寸显示屏，154 x 68 x 8.3mm，169g，FHD+ HDR OLED，60Hz 刷新，120Hz 触控采样率，DCI-P3 97%，10bit 色彩。
+
+主摄 12MP 1/2.8 Exmor RS 27mm，人像 54mm 8MP 1/4 F2.4，广角 16mm 8MP 1/4 F2.2，相机支持自动识别动物，10fps 自动曝光
+
+3.5mm 耳机孔，LDAC、aptX HD，DSEE Ulimate
+
+6+128GB UFS，指纹识别
 
 
 -----
@@ -2301,4 +2368,866 @@ Low Gamma Raiser 在游戏里提高暗部 gamma 来发现敌人，这不是设�
 我不用手机玩游戏，这方面是外行
 
 
-                                            
+-----
+
+####  暗铁  
+##### 162#       发表于 2021-4-14 16:00
+
+
+看了下规格，除了垃圾888真的是索粉的完美手机了
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  hoyice  
+##### 163#       发表于 2021-4-14 16:01
+
+
+ 本帖最后由 hoyice 于 2021-4-14 16:05 编辑 
+
+绝了 1iii和5iii都是4500mAh
+
+
+-----
+
+####  OldGlory  
+##### 164#       发表于 2021-4-14 16:01
+
+
+变焦镜头当定焦用？
+
+
+-----
+
+####  leystage  
+##### 165#         楼主| 发表于 2021-4-14 16:03
+
+
+感觉索移前年换了之前把 Alpha 拉到业界第二的相机部门老板后就把牙膏管踩爆了，mark 3 比之前又各方面都进步不少
+
+
+-----
+
+####  jzsgtx  
+##### 166#       发表于 2021-4-14 16:03
+
+
+1mk3也香5mk3也香 就手上的j9110不香<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  月神侠  
+##### 167#       发表于 2021-4-14 16:04
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/160412o626g67yogo7qi0u.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210414160357.png</strong> (87.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 16:04 上传
+
+
+说你呢<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暁美ほむら  
+##### 168#       发表于 2021-4-14 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50935945&amp;ptid=1985265" target="_blank">OldGlory 发表于 2021-4-14 16:01</a>
+
+变焦镜头当定焦用？</blockquote>
+真正意义上的光学变焦
+
+
+-----
+
+####  leystage  
+##### 169#         楼主| 发表于 2021-4-14 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50935970&amp;ptid=1985265" target="_blank">jzsgtx 发表于 2021-4-14 16:03</a>
+
+1mk3也香5mk3也香 就手上的j9110不香</blockquote>
+j9110 感觉像是决定转型，但东西还没准备好，先把理念大饼画出来，结果连相机启动保存都没做好的过渡机型。。。
+
+
+-----
+
+####  kila31  
+##### 170#       发表于 2021-4-14 16:06
+
+
+5 iii 也 4500 毫安电池？索移可以噢！
+
+— from Google Pixel 4, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  Lisylfn  
+##### 171#       发表于 2021-4-14 16:07
+
+
+上市时间是改过? 这个Early Summer听起来像后配的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 172#       发表于 2021-4-14 16:07
+
+
+手上用的5m2有想换的冲动
+
+但是888.............
+
+算了还是下一代吧
+
+
+说起拍照摄影大师调下确实拍的好看
+
+但是自动模式太拉跨了 成像也慢
+
+真不如苹果随手拍
+
+
+-----
+
+####  RedBowtie  
+##### 173#       发表于 2021-4-14 16:07
+
+
+J9110落泪
+
+
+-----
+
+####  月神侠  
+##### 174#       发表于 2021-4-14 16:08
+
+
+1黑灰紫
+
+5黑粉蓝
+
+10黑白粉蓝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jajajzz  
+##### 175#       发表于 2021-4-14 16:08
+
+
+价格没有<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  caohhh  
+##### 176#       发表于 2021-4-14 16:08
+
+
+现在用的pixel2 快报废了，不知道是不是该换个5m3
+
+
+-----
+
+####  Lisylfn  
+##### 177#       发表于 2021-4-14 16:09
+
+
+5.20 敬请期待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  月神侠  
+##### 178#       发表于 2021-4-14 16:10
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/161006mzwdcehvw7he3owh.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210414160939.png</strong> (57.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 16:10 上传
+
+
+5.20国行发布会 6.1上市<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 179#       发表于 2021-4-14 16:10
+
+
+下半年能不能出个X5M3的870版啊……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+或者特么能不能赶紧修复X5M2的锁频bug，一顿操作猛如虎，一看跑分765<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leystage  
+##### 180#         楼主| 发表于 2021-4-14 16:11
+
+
+<blockquote>Mikumiku831 发表于 2021-4-14 16:07
+手上用的5m2有想换的冲动
+
+但是888.............
+
+算了还是下一代吧
+</blockquote>
+大师模式的 Auto 模式有点蠢，我放弃了。
+
+看看新的 BASIC 模式效果如何
+
+
+
+
+-----
+
+####  OldGlory  
+##### 181#       发表于 2021-4-14 16:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50935980&amp;ptid=1985265" target="_blank">暁美ほむら 发表于 2021-4-14 16:04</a>
+真正意义上的光学变焦</blockquote>
+以索尼尿性真变焦也会选择裁切
+
+
+-----
+
+####  Israfil  
+##### 182#       发表于 2021-4-14 16:14
+
+
+看了发布会，初代1准备换m3了。
+
+4k 120Hz，带光学变焦。爱了爱了。虽然888是个坑，但4g的1实在受不了了。联通现在4g信号差的要死。
+
+另外，就喜欢索尼这种，走路上不撞机，而且大多人还不认得。
+
+
+-----
+
+####  leystage  
+##### 183#         楼主| 发表于 2021-4-14 16:15
+
+
+1m3 和 5m3 都随机附带 充 电 器 XD
+
+
+-----
+
+####  噗哩噗  
+##### 184#       发表于 2021-4-14 16:16
+
+
+夏天上市的888能不能经受得起考验很快就见分晓了
+
+
+-----
+
+####  leystage  
+##### 185#         楼主| 发表于 2021-4-14 16:16
+
+
+三镜头都是蔡司镜头+ T*镀膜，支持双 PD。电池4500mAh 支持30W快充
+
+
+-----
+
+####  MuAmUa  
+##### 186#       发表于 2021-4-14 16:18
+
+
+价格据说上8000了？
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  哎哟卧槽了  
+##### 187#       发表于 2021-4-14 16:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936122&amp;ptid=1985265" target="_blank">Israfil 发表于 2021-4-14 16:14</a>
+
+看了发布会，初代1准备换m3了。
+
+4k 120Hz，带光学变焦。爱了爱了。虽然888是个坑，但4g的1实在受不了了。联 ...</blockquote>
+同初代1，現在就是看888能到什麼程度了，要不然這配置直接可以預訂了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  月神侠  
+##### 188#       发表于 2021-4-14 16:18
+
+
+ 本帖最后由 月神侠 于 2021-4-14 16:38 编辑 
+
+索尼 Xperia 1 III 参数介绍：
+
+尺寸 165x71x8.2mm，重量 187g，IP65/68 防尘防水，混合式双 SIM，电池 4500mAh，指纹识别电源键二合一。
+
+6.5 英寸 4K HDR OLED 显示屏，支持 120Hz 高刷，240Hz 动态补偿，240Hz 触摸采样率，DCI-P3 100%，ITU-R BT.2020，D65 白点，10bit 色彩，X1 for Mobile 显示技术，CineAlta 大师模式。
+
+正面为大猩猩 Victus 玻璃，背面为 大猩猩 6。
+
+三镜头相机：主摄 12MP 1/1.7 Exmor RS F1.7 24mm；长焦 12MP 1/2.9 Exmor RS 支持 70/105mm 转换，F2.3（70mm），F2.8（105mm）；广角 12MP 1/2.5 Exmoe RA F2.2，16mm 视野 124度；三镜头均配备 蔡司镜头，T*镀膜，支持 3D iToF 对焦，双 PD，RGB-IR、OIS 光学防抖，混合式变焦支持 12.5 倍，AI 超解析度变焦，可拍摄 JPG + RAW。
+
+录像：CinemaPro 支持 24、25、30、60 和 120fps 的 4K HDR 影片，支持 OIS+EIS 电子防抖，具备 Flawless Eye 和五轴防抖。
+
+具备 3.5mm 耳机孔，支持 360RA 硬件解码，全频段立体声扬声器，杜比全景声，DSEE Ultimate ，高通 aptX HD 以及 LDAC，依旧支持动态震动系统
+
+存储规格：12GB RAM，256/512GB ROM 可扩展。
+
+快充 30W，电池健康监测可以保证 3 年电池健康，Wi-Fi 6，GPS、北斗、伽利略均支持，支持 Type-C 3.1 Gen 1，蓝牙 5.2。
+
+黑灰紫三色，2021年6月起开售。
+
+[https://www.sony.com.hk/zh/elect ... -1m3/specifications](https://www.sony.com.hk/zh/electronics/smartphones/xperia-1m3/specifications)
+
+
+索尼 Xperia 5 III 参数介绍：
+
+尺寸 157x68x8.2mm，重量 169g，IP65/68 防尘防水，混合式双 SIM，电池 4500mAh，指纹识别电源键二合一。
+
+6.1 英寸 FHD+ HDR OLED 显示屏，支持 120Hz 高刷，240Hz 动态补偿，240Hz 触摸采样率，DCI-P3 100%，ITU-R BT.2020，D65 白点，10bit 色彩，X1 for Mobile 显示技术，CineAlta 大师模式。
+
+正背面为 大猩猩 6 玻璃。
+
+三镜头相机：主摄 12MP 1/1.7 Exmor RS F1.7 24mm；长焦 12MP 1/2.9 Exmor RS 支持 70/105mm 转换，F2.3（70mm），F2.8（105mm）；广角 12MP 1/2.5 Exmoe RA F2.2，16mm 视野 124度；三镜头均配备 蔡司镜头，T*镀膜，双 PD，RGB-IR、OIS 光学防抖，混合式变焦支持 12.5 倍，AI 超解析度变焦，可拍摄 JPG + RAW。
+
+录像：CinemaPro 支持 24、25、30、60 和 120fps 的 4K HDR 影片，支持 OIS+EIS 电子防抖，具备 Flawless Eye 和五轴防抖。
+
+具备 3.5mm 耳机孔，支持 360RA 硬件解码，全频段立体声扬声器，杜比全景声，DSEE Ultimate ，高通 aptX HD 以及 LDAC，依旧支持动态震动系统
+
+存储规格：8GB RAM，256GB ROM 可扩展。
+
+快充 30W（不支持无线充电），电池健康监测可以保证 3 年电池健康，Wi-Fi 6，GPS、北斗、伽利略均支持，支持 Type-C 3.1 Gen 1，蓝牙 5.2。
+
+黑绿粉三色，2021年夏季开售。
+
+[https://www.sony.com.hk/zh/elect ... -5m3/specifications](https://www.sony.com.hk/zh/electronics/smartphones/xperia-5m3/specifications)
+
+
+索尼 Xperia 10 III
+
+高通 690 5G 平台，4500mAh 电池，同样支持 IP65/68 ，正反都是大猩猩 6 玻璃
+
+6 英寸显示屏，154 x 68 x 8.3mm，169g，FHD+ HDR OLED，60Hz 刷新，120Hz 触控采样率，DCI-P3 97%，10bit 色彩。
+
+主摄 12MP 1/2.8 Exmor RS 27mm，人像 54mm 8MP 1/4 F2.4，广角 16mm 8MP 1/4 F2.2，相机支持自动识别动物，10fps 自动曝光
+
+3.5mm 耳机孔，LDAC、aptX HD，DSEE Ulimate
+
+6+128GB UFS，指纹识别
+
+
+-----
+
+####  Mikumiku831  
+##### 189#       发表于 2021-4-14 16:19
+
+
+不知道镀膜效果怎么样
+
+镜头真的不耐刮
+
+裸奔党哭泣
+
+
+-----
+
+####  leystage  
+##### 190#         楼主| 发表于 2021-4-14 16:20
+
+
+<blockquote>月神侠 发表于 2021-4-14 16:18
+索尼 Xperia 1 III 参数介绍：
+
+尺寸 165x71x8.2mm，重量 187g，IP65/68 防尘防水，混合式双 SIM，电池 4500 ...</blockquote>
+187g重量也很不错。
+
+
+最近那些两百多克的手机都是在想什么…
+
+
+-----
+
+####  Mikumiku831  
+##### 191#       发表于 2021-4-14 16:20
+
+
+以前被笑索半斤 
+
+现在<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  浅仓透  
+##### 192#       发表于 2021-4-14 16:21
+
+
+512G绝对得9开头了吧<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 193#       发表于 2021-4-14 16:22
+
+
+下半年港应该6xxx能买到 年底可能可以5xxx
+
+
+-----
+
+####  哎哟卧槽了  
+##### 194#       发表于 2021-4-14 16:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936175&amp;ptid=1985265" target="_blank">leystage 发表于 2021-4-14 16:20</a>
+
+187g重量也很不错。
+
+
+最近那些两百多克的手机都是在想什么…</blockquote>
+關鍵這重量能放4500的電
+
+
+-----
+
+####  kaiki_aiolos  
+##### 195#       发表于 2021-4-14 16:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936207&amp;ptid=1985265" target="_blank">Mikumiku831 发表于 2021-4-14 16:22</a>
+
+下半年港应该6xxx能买到 年底可能可以5xxx</blockquote>
+去年10月上市的1马兔已经国行6999了，这个半年应该有同样希望
+
+
+-----
+
+####  jzsgtx  
+##### 196#       发表于 2021-4-14 16:27
+
+
+三主摄现在都是Exmor RS了，就前置还是三丧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  桜庭ななみ  
+##### 197#       发表于 2021-4-14 16:28
+
+
+没看懂，这底下的光学变焦是两个固定焦段，这和分成两个摄像头有什么区别，就是省了一个摄像头咯，反正都4个孔了再多一个又怎么样呢，反正摄像头也是你索自家出的多用点不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 198#       发表于 2021-4-14 16:29
+
+
+索尼 Xperia 5 III 参数介绍：
+尺寸 157x68x8.2mm，重量 169g，IP65/68 防尘防水，混合式双 SIM，电池 4500mAh，指纹识别电源键二合一。
+6.1 英寸 FHD+ HDR OLED 显示屏，支持 120Hz 高刷，240Hz 动态补偿，240Hz 触摸采样率，DCI-P3 100%，ITU-R BT.2020，D65 白点，10bit 色彩，X1 for Mobile 显示技术，CineAlta 大师模式。
+正背面为 大猩猩 6 玻璃。
+三镜头相机：主摄 12MP 1/1.7 Exmor RS F1.7 24mm；长焦 12MP 1/2.9 Exmor RS 支持 70/105mm 转换，F2.3（70mm），F2.8（105mm）；广角 12MP 1/2.5 Exmoe RA F2.2，16mm 视野 124度；三镜头均配备 蔡司镜头，T*镀膜，双 PD，RGB-IR、OIS 光学防抖，混合式变焦支持 12.5 倍，AI 超解析度变焦，可拍摄 JPG + RAW。
+录像：CinemaPro 支持 24、25、30、60 和 120fps 的 4K HDR 影片，支持 OIS+EIS 电子防抖，具备 Flawless Eye 和五轴防抖。
+具备 3.5mm 耳机孔，支持 360RA 硬件解码，全频段立体声扬声器，杜比全景声，DSEE Ultimate ，高通 aptX HD 以及 LDAC，依旧支持动态震动系统
+存储规格：8GB RAM，256GB ROM 可扩展。
+快充 30W（不支持无线充电），电池健康监测可以保证 3 年电池健康，Wi-Fi 6，GPS、北斗、伽利略均支持，支持 Type-C 3.1 Gen 1，蓝牙 5.2。
+黑绿粉三色，2021年夏季开售。
+
+<img src="https://p.sda1.dev/1/7e6fe43aebb706e4fa6725d312dfd3d7/IMG_CMP_53289856.png" referrerpolicy="no-referrer">
+
+比起1M3，5M3反倒像是在挤牙膏了，就是常规提升了一下电池、镜头，无线充电继续没有
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kuker53  
+##### 199#       发表于 2021-4-14 16:30
+
+
+12G 4500mah 4K120 无线充电 这玩意不得涨个价吗
+
+
+-----
+
+####  浅仓透  
+##### 200#       发表于 2021-4-14 16:31
+
+
+麻了，5M3怎么还是8G运存<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 201#       发表于 2021-4-14 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936280&amp;ptid=1985265" target="_blank">桜庭ななみ 发表于 2021-4-14 16:28</a>
+没看懂，这底下的光学变焦是两个固定焦段，这和分成两个摄像头有什么区别，就是省了一个摄像头咯，反正都4 ...</blockquote>
+你这理解不准吧，索移那个看描述，更像是连续变焦的潜望式镜头变成了只有两个焦距档位的潜望式镜头
+
+理论上，这样做可以让潜望模组更小（所以背面没有变成麻将牌）、光学画质应该比连续变焦的潜望镜组好一点
+
+把两个定焦头集合成一个伪变焦头，这个设计其实也算有点意思的。单纯从摄像头数量多少来理解过于武断，那你看不看少一个头以后省下来的空间和重量呢？<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Lisylfn  
+##### 202#       发表于 2021-4-14 16:35
+
+
+5III还是没有无线充电<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">颜色倒是好看一些
+
+
+-----
+
+####  我很费纸  
+##### 203#       发表于 2021-4-14 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936307&amp;ptid=1985265" target="_blank">浅仓透 发表于 2021-4-14 16:31</a>
+麻了，5M3怎么还是8G运存</blockquote>
+5M2用户已经冷静了，现在就特么等傻逼索移修bug（不修也无所谓了，大不了游戏用win掌机玩）
+
+5M3电池+1分，快充升级+0.5分，摄像头+1分，继续缺少无线充-1分，888-1分，综合来看挤牙膏，木有升级欲望了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  OldGlory  
+##### 204#       发表于 2021-4-14 16:36
+
+
+超广没有ois，盲猜4k和120不能一起开
+
+
+-----
+
+####  哎哟卧槽了  
+##### 205#       发表于 2021-4-14 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936291&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-14 16:29</a>
+
+索尼 Xperia 5 III 参数介绍：
+
+尺寸 157x68x8.2mm，重量 169g，IP65/68 防尘防水，混合式双 SIM，电池 4500 ...</blockquote>
+10m3的參數有嗎
+
+
+-----
+
+####  gofbayrf  
+##### 206#       发表于 2021-4-14 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936280&amp;ptid=1985265" target="_blank">桜庭ななみ 发表于 2021-4-14 16:28</a>
+
+没看懂，这底下的光学变焦是两个固定焦段，这和分成两个摄像头有什么区别，就是省了一个摄像头咯，反正都4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 連潛望機種的所謂變焦 也是定焦充數
+
+
+-----
+
+####  我很费纸  
+##### 207#       发表于 2021-4-14 16:38
+
+
+ 本帖最后由 我很费纸 于 2021-4-14 16:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936371&amp;ptid=1985265" target="_blank">哎哟卧槽了 发表于 2021-4-14 16:37</a>
+10m3的參數有嗎</blockquote>
+索尼 Xperia 10 III
+高通 690 5G 平台，4500mAh 电池，同样支持 IP65/68 ，正反都是大猩猩 6 玻璃
+6 英寸显示屏，154 x 68 x 8.3mm，169g，FHD+ HDR OLED，60Hz 刷新，120Hz 触控采样率，DCI-P3 97%，10bit 色彩。
+主摄 12MP 1/2.8 Exmor RS 27mm，人像 54mm 8MP 1/4 F2.4，广角 16mm 8MP 1/4 F2.2，相机支持自动识别动物，10fps 自动曝光
+3.5mm 耳机孔，LDAC、aptX HD，DSEE Ulimate
+6+128GB UFS，指纹识别。
+
+索移头子刚发
+
+老样子，非旗舰系列都是带着收割智商税味道的
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 哎哟卧槽了| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  Mikumiku831  
+##### 208#       发表于 2021-4-14 16:39
+
+
+什么时候复刻一下z3c的珊瑚绿
+
+z4的天空蓝就好了 毫不犹豫直接买
+
+
+-----
+
+####  哎哟卧槽了  
+##### 209#       发表于 2021-4-14 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936389&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-14 16:38</a>
+
+索尼 Xperia 10 III
+
+高通 690 5G 平台，4500mAh 电池，同样支持 IP65/68 ，正反都是大猩猩 6 玻璃
+
+6 英寸 ...</blockquote>
+6g ram...再見<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 210#       发表于 2021-4-14 16:42
+
+
+好像亮度也没说 不知道有没有800nit
+
+有的话提升还是可以的
+
+
+
+
+-----
+
+####  月神侠  
+##### 211#       发表于 2021-4-14 16:42
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/164222yrq0hczlzp3b9blt.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210414164132.png</strong> (197.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 16:42 上传
+
+
+-----
+
+####  gofbayrf  
+##### 212#       发表于 2021-4-14 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936389&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-14 16:38</a>
+
+索尼 Xperia 10 III
+
+高通 690 5G 平台，4500mAh 电池，同样支持 IP65/68 ，正反都是大猩猩 6 玻璃
+
+6 英寸 ...</blockquote>
+市售拍照最爛手機
+
+
+-----
+
+####  TSST  
+##### 213#       发表于 2021-4-14 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936346&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-14 16:34</a>
+你这理解不准吧，索移那个看描述，更像是连续变焦的潜望式镜头变成了只有两个焦距档位的潜望式镜头
+
+理论 ...</blockquote>
+潜望从来没有连续变焦，索尼这是第一款可以变焦的潜望。
+
+
+-----
+
+####  我很费纸  
+##### 214#       发表于 2021-4-14 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936438&amp;ptid=1985265" target="_blank">gofbayrf 发表于 2021-4-14 16:43</a>
+市售拍照最爛手機</blockquote>
+你说错了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还有索移L系列在下面垫底呢
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  没钱买手办  
+##### 215#       发表于 2021-4-14 16:46
+
+
+J9110看哭了
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 216#       发表于 2021-4-14 16:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936459&amp;ptid=1985265" target="_blank">TSST 发表于 2021-4-14 16:44</a>
+潜望从来没有连续变焦，索尼这是第一款可以变焦的潜望。</blockquote>
+那就更有意思了
+
+尤其是做了双焦段，体积大小还没有变得夸张（当然底也小）
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  提挈天地  
+##### 217#       发表于 2021-4-14 16:48
+
+
+1Ⅲ的无线充电功率是和上一代一样?
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  小妻水亚美  
+##### 218#       发表于 2021-4-14 16:49
+
+
+这样看 大法还是执着于丰富的焦段，不追求顶级的成品效果。
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+-----
+
+####  OldGlory  
+##### 219#       发表于 2021-4-14 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936459&amp;ptid=1985265" target="_blank">TSST 发表于 2021-4-14 16:44</a>
+
+潜望从来没有连续变焦，索尼这是第一款可以变焦的潜望。</blockquote>
+华硕ZenFone Zoom是第一款
+
+
+-----
+
+####  毒品  
+##### 220#       发表于 2021-4-14 16:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">大法无线充速度咋样？
+
+
+-----
+
+####  Cray  
+##### 221#       发表于 2021-4-14 16:51
+
+…
+
+
+ 本帖最后由 Cray 于 2021-4-14 16:54 编辑 
+<blockquote>引用第171楼Mikumiku831于2021-04-14 16:07发表的  :
+
+手上用的5m2有想换的冲动但是888.............算了还是下一代吧说起拍照摄影大师调下确......</blockquote>
+？慢？？拉跨？？？
+
+摄影大师绿色自动好用的很 …
+感觉不是用的同一款手机<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  浅仓透  
+##### 222#       发表于 2021-4-14 16:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936364&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-14 16:36</a>
+
+5M2用户已经冷静了，现在就特么等傻逼索移修bug（不修也无所谓了，大不了游戏用win掌机玩）
+
+
+5M3电池+1分 ...</blockquote>
+本来手持xzp在观望，现在安心买5马克兔了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 223#       发表于 2021-4-14 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936550&amp;ptid=1985265" target="_blank">Cray 发表于 2021-4-14 16:51</a>
+
+？慢？？拉跨？？？
+
+
+摄影大师绿色自动好用的很 …</blockquote>
+大部分情况下自动模式我个人观感 5m2不如iphone xr<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zikimi  
+##### 224#       发表于 2021-4-14 17:07
+
+
+120hz和4k能同时开吗
+
+
+                                          
