@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-13 08:43** 
+> ## **本文件最后更新于2021-04-14 11:34** 
 
 
 
@@ -7351,4 +7351,364 @@ aadya还在打黑魂呢来个这么个消息
 那可万万不能。维阿又是和资本的大手叔叔亲善的证据，又是和杏打完全不对称战争的唯一战场，简直是PPT里最耀眼的星，割掉KR、ID都不会割维阿的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                               
+-----
+
+####  qq845629713  
+##### 35048#       发表于 2021-4-13 16:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我还等着彩虹自己出品的真正的彩虹cn呢，怎么现在连小道消息都没有了
+
+
+-----
+
+####  OldGlory  
+##### 35049#       发表于 2021-4-13 16:58
+
+
+维阿叔叔全资，彩虹不要干涉。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 35050#       发表于 2021-4-13 17:31
+
+
+vr星光璀璨，简直是PPT之光
+
+syl，把kr合并了吧，我要看bora橄榄这群菜逼
+
+
+-----
+
+####  cheatdeath3  
+##### 35051#       发表于 2021-4-13 17:38
+
+
+ 本帖最后由 cheatdeath3 于 2021-4-13 17:42 编辑 
+
+彩虹维阿特别行政区<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怎么吹都想好了，把谷乡的ppt抄一遍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  義賊  
+##### 35052#       发表于 2021-4-13 17:40
+
+
+希望彩虹能把自己的底边捞一捞 今天带空星玩就听好
+
+
+-----
+
+####  rzrbtk  
+##### 35053#       发表于 2021-4-13 19:28
+
+
+哇！sio画了郡道fanart，郡道还转了诶！（偏向报道）
+
+
+-----
+
+####  sgssk  
+##### 35054#       发表于 2021-4-13 19:51
+
+
+<blockquote>すいみゃ
+
+
+初配信の待機所つくりました…！
+
+4月14日(明日ァ！)22時からです！
+[https://youtu.be/6zzaQCwGHNM](https://youtu.be/6zzaQCwGHNM) 
+
+
+手探りでわたわたしそうですがお時間ある方はぜひに…！
+
+まずは自己紹介かなと思ってるのでなにか質問などありましたらマシュマロとか投げてくれると嬉しいです☺
+[https://marshmallow-qa.com/suimya](https://marshmallow-qa.com/suimya)  #すいみゃ
+
+午後5:28 · 2021年4月13日·Twitter Web App</blockquote>女性画师suimya决定受个肉玩玩
+
+<img src="https://img.saraba1st.com/forum/202104/13/195121z7bbh7eeqh7b7c3t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ey2AKMVUcAUwIuU.jpg</strong> (63.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-13 19:51 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 35055#       发表于 2021-4-13 20:42
+
+
+E MA
+
+100K subscribers
+
+
+恭喜第四块银盾
+
+
+-----
+
+####  超能力者stven  
+##### 35056#       发表于 2021-4-13 20:46
+
+
+鲨鱼妹子新专
+
+虽然唱功不算好但歌曲风格一直很鲜明
+
+エルセ 4/13 20時 重大発表配信
+
+@Else_PJblue
+
+【重大発表】
+
+エルセとさめのぽき 2nd ALBUM
+
+
+｢SPLASH｣ 2021.05.01 (土)RELEASE
+
+
+・新曲5曲を含む全14曲収録
+
+・エルぽきBOOTHにて本日より予約開始！！
+
+https://elsepoki.booth.pm/items/2810169
+
+
+ #エルぽきSPLASH
+
+
+-----
+
+####  qq845629713  
+##### 35057#       发表于 2021-4-13 21:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不会吧，JK组的live 2D都3.0了，不会还有人还是1.0的垃圾live 2D吧，不会吧，
+
+
+-----
+
+####  IDIDIDID  
+##### 35058#       发表于 2021-4-13 21:20
+
+
+底边蹭资源早该管管了🥰
+
+
+-----
+
+####  SteveS  
+##### 35059#       发表于 2021-4-13 21:32
+
+
+底边为什么是底边，要有自知之明啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 35060#       发表于 2021-4-13 21:51
+
+
+很久没怎么看V，翻了一下这是许久以来看过最有趣的剪辑
+[https://www.nicovideo.jp/watch/sm38564936](https://www.nicovideo.jp/watch/sm38564936)
+
+
+-----
+
+####  死体残留  
+##### 35061#       发表于 2021-4-13 23:09
+
+
+草 中午in组宣布毕业 b综就来印度回了
+
+
+-----
+
+####  義賊  
+##### 35062#       发表于 2021-4-14 11:10
+
+
+老爱小白德龙组长和vs那群人在太空狼人  组长
+
+
+-----
+
+####  義賊  
+##### 35063#       发表于 2021-4-14 11:11
+
+
+黄阿姨因为吃坏肚子没来 出格
+
+
+-----
+
+####  rzrbtk  
+##### 35064#       发表于 2021-4-14 14:31
+
+
+ 本帖最后由 rzrbtk 于 2021-4-14 14:39 编辑 
+
+原来郡道私下排到软妹会装低沉帅哥啊（[https://www.youtube.com/watch?v=v1R0k3dLynI](https://www.youtube.com/watch?v=v1R0k3dLynI)），
+
+跟现在的低同接鬼叫，死了就吹口琴的apex形成鲜明对比<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 35065#       发表于 2021-4-14 17:43
+
+
+踢一脚V综，差不多一小时后你虹御三家3.0披露
+
+[https://www.youtube.com/watch?v=VAAKcks_Ins](https://www.youtube.com/watch?v=VAAKcks_Ins)
+[https://www.youtube.com/watch?v=bXnI7KllBO8](https://www.youtube.com/watch?v=bXnI7KllBO8)
+[https://www.youtube.com/watch?v=ripiJ0p4Xv8](https://www.youtube.com/watch?v=ripiJ0p4Xv8)
+
+
+-----
+
+####  poipanchao  
+##### 35066#       发表于 2021-4-14 17:46
+
+
+御三家不是天皇月之，king葛叶，princess王女吗
+
+
+-----
+
+####  IDIDIDID  
+##### 35067#       发表于 2021-4-14 17:48
+
+
+猴子当了天下人还要求公家给自己当爹呢，泥腿子打了天下还是泥腿子，差不多得了。
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 35068#       发表于 2021-4-14 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50932673&amp;ptid=1969498" target="_blank">義賊 发表于 2021-04-14 11:11:36</a>
+黄阿姨因为吃坏肚子没来 出格</blockquote>吃坏肚子的原因是因为吃海鲜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  qq845629713  
+##### 35069#       发表于 2021-4-14 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 第一批给的能做数么？
+
+
+看第二批3.0才是最主要的，
+
+
+-----
+
+####  IDIDIDID  
+##### 35070#       发表于 2021-4-14 19:04
+
+
+不是很能看出进步在哪儿了
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 35071#       发表于 2021-4-14 19:08
+
+
+第二批不得是黑黑<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 35072#       发表于 2021-4-14 19:11
+
+
+可是月之平时麦克风挡嘴根本用不上啊<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 35073#       发表于 2021-4-14 19:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">变按键式了 嘴巴也怪 感觉是退步了
+
+
+-----
+
+####  FCCHua  
+##### 35074#       发表于 2021-4-14 19:16
+
+
+ 本帖最后由 FCCHua 于 2021-4-14 19:31 编辑 
+
+可动性？看看3.0之后还会频繁卡住吗，虽然感觉太丝滑反而不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+嘴巴有点突兀，希望改改
+syl 3.0实装顺序是抽选制？草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 35075#       发表于 2021-4-14 19:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 按键式的表情，可能也就新时代虹人会觉得喜欢把，
+
+
+-----
+
+####  winda  
+##### 35076#       发表于 2021-4-14 19:25
+
+
+ 本帖最后由 winda 于 2021-4-14 19:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">活成holo1.0的模样，3连披露暴雷1/3
+继阿火live2d吊打rrm后虹又丢人了
+
+
+-----
+
+####  lhawp  
+##### 35077#       发表于 2021-4-14 19:29
+
+
+表情好生硬啊 这个的意义在哪
+
+
+-----
+
+####  Suny08  
+##### 35078#       发表于 2021-4-14 19:31
+
+
+之前还以为能靠动捕实现表情转换，按键真的弱智
+
+
+                              
