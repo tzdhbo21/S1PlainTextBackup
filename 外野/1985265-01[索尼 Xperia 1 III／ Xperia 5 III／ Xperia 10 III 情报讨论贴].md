@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-14 09:57** 
+> ## **本文件最后更新于2021-04-14 14:14** 
 
 
 
@@ -3610,4 +3610,408 @@ X1Ⅲ各方面看起来都挺香的，不过这个比例的6.5 ...</blockquote>
 腾讯乘车码是可以调用 NFC 的，但我觉得那个不方便，还是先打开这个程序，搞不好还跟其他会有冲突
 
 
-                                         
+-----
+
+####  暗铁  
+##### 247#       发表于 2021-4-14 18:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3168×1440比“标准2k”就多了25%的像素说成3k好像比2k高一代的样子当然有人不服气，大法的像素数和PPI一骑绝尘，没人跟他争很正常，等有别的横向更宽的手机出来大法自然就是阉割4k
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  有口皆悲  
+##### 248#       发表于 2021-4-14 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936889&amp;ptid=1985265" target="_blank">Geminize 发表于 2021-4-14 17:19</a>
+要能早吹了吧
+
+
+----STAGE1 Mobile</blockquote>
+4K和120hz可以同开
+索粉头子说
+
+
+-----
+
+####  allenz2  
+##### 249#       发表于 2021-4-14 18:13
+
+
+仔细看了下，这次高速连拍和各种追焦功能3颗镜头都可用了，而且索尼宣称弱光下增强噪点减少，到时候看看样张吧，前代的长焦和广角不太行
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  我很费纸  
+##### 250#       发表于 2021-4-14 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936872&amp;ptid=1985265" target="_blank">dstar 发表于 2021-4-14 17:18</a>
+又到了嘲讽大法的时间么？
+
+
+我们一般说的4k应该是4个1080p，也就是3840x2160，不过索尼既然说自己是规则制 ...</blockquote>
+伪4k确实是伪4k
+
+但是人家不是按照长边吹的啊，电影4K就是这个标准，所以X1是4K
+
+但没有电影2K这个标准，所以X5就是FHD+
+
+索移鸡贼归鸡贼，但也没生造标准啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Gateone  
+##### 251#       发表于 2021-4-14 18:31
+
+
+<blockquote>allenz2 发表于 2021-4-14 18:13
+仔细看了下，这次高速连拍和各种追焦功能3颗镜头都可用了，而且索尼宣称弱光下增强噪点减少，到时候看看样 ...</blockquote>
+想看dxo测1m3
+
+
+-----
+
+####  Heero_Z  
+##### 252#       发表于 2021-4-14 18:42
+
+
+前置镜头成像有没有进步？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  wyjbnb  
+##### 253#       发表于 2021-4-14 18:52
+
+
+那么5ii什么时候开始跳水？
+
+
+-----
+
+####  Vicarious  
+##### 254#       发表于 2021-4-14 19:02
+
+
+不是说888不支持4K120Hz吗
+
+
+还是说3840x2160的120HZ不行
+
+但是3840x1644就行？
+
+
+如果能同开那确实挺香的
+
+
+不过已经入手MK2了
+
+静等MK4了
+
+
+-----
+
+####  fishmanzero  
+##### 255#       发表于 2021-4-14 19:06
+
+
+XZP的尸体感觉可以下葬了
+下次一定(请出RGB或5K
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  8400gs  
+##### 256#       发表于 2021-4-14 19:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50937524&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-14 18:30</a>
+
+伪4k确实是伪4k
+
+
+但是人家不是按照长边吹的啊，电影4K就是这个标准，所以X1是4K</blockquote>
+电影有2k标准啊
+
+2048*1080
+
+
+-----
+
+####  allenz2  
+##### 257#       发表于 2021-4-14 19:36
+
+
+嗦粉头子说
+
+Xperia 1 III 与 5 III 三颗后置摄像头 + 一个 3D iToF 感光元件都来自索尼半导体
+
+型号暂未查到。 ​​​​ 
+
+
+感觉这次真的没短板了啊
+
+
+-----
+
+####  gofbayrf  
+##### 258#       发表于 2021-4-14 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50937867&amp;ptid=1985265" target="_blank">8400gs 发表于 2021-4-14 19:13</a>
+
+电影有2k标准啊
+
+2048*1080</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> DCI那個2K  所有的FHD+屏都 包含在內呀   2560尷尬就在這兒
+
+
+-----
+
+####  霜天冰华  
+##### 259#       发表于 2021-4-14 19:50
+
+
+5M3 有磨砂黑吗
+
+
+-----
+
+####  fishmanzero  
+##### 260#       发表于 2021-4-14 19:50
+
+
+卧槽，看到103这浅蓝色我简直顶不住，以前还有39绿，和ACE的粉紫也是这样，怎么全给低端机？
+只有Z5一代给过好看的浅色，看来猛男不配用旗舰<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Lisylfn  
+##### 261#       发表于 2021-4-14 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50938195&amp;ptid=1985265" target="_blank">霜天冰华 发表于 2021-4-14 19:50</a>
+
+5M3 有磨砂黑吗</blockquote>
+很遗憾, 还是全是光面, 5无印的光面已经被我的食指磨出一圈印记了, 这次应该买1III的磨砂紫了
+
+
+-----
+
+####  帕林马哲理  
+##### 262#       发表于 2021-4-14 19:57
+
+
+索尼这块OLED会是哪家出的呢？我还是受不了OLED在夜晚的观感。
+
+
+-----
+
+####  用户名已注册  
+##### 263#       发表于 2021-4-14 20:09
+
+
+关注一下
+
+
+-----
+
+####  哎哟卧槽了  
+##### 264#       发表于 2021-4-14 20:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50937194&amp;ptid=1985265" target="_blank">Lisylfn 发表于 2021-4-14 17:50</a>
+没有, 唯一本地化大概是微信指纹支付?</blockquote>
+國行要用Google全家桶還需要刷機嗎<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 來自 Sony J9110, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  斑驳的阴影  
+##### 265#       发表于 2021-4-14 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50937041&amp;ptid=1985265" target="_blank">mmmrm 发表于 2021-4-14 17:33</a>
+
+不是自适应的问题，就是横向太窄，文字和图片显示都小很多</blockquote>
+看视频的时候就显得小了，毕竟拿手机看的视频99%都是16：9啊，不管b站还是u2b都是16：9为主的，手机上看电影也只是说说而已了，不会真的有人能忍受在手机上看完一整部电影吧<img src="https://static.saraba1st.com/image/smiley/face2017/159.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mlsweichen  
+##### 266#       发表于 2021-4-14 20:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50938259&amp;ptid=1985265" target="_blank">帕林马哲理 发表于 2021-4-14 19:57</a>
+
+索尼这块OLED会是哪家出的呢？我还是受不了OLED在夜晚的观感。</blockquote>
+三星吧
+
+
+-----
+
+####  提挈天地  
+##### 267#       发表于 2021-4-14 20:28
+
+
+这些年其他家的手机屏幕是如何从16:9慢慢变成19.5:9甚至20:9的，虽然明面上是追求屏占比的结果，但未来21:9成为主流也不是没有可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  斑驳的阴影  
+##### 268#       发表于 2021-4-14 20:30
+
+
+53变化还是小啊，连那个亮面边框都没改，还用了888，吸引力大减。。。当然以索尼的定价应该是不敢用870的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+坐等52跳水整一个玩玩
+
+
+-----
+
+####  KayoAiko  
+##### 269#       发表于 2021-4-14 20:53
+
+
+如果不是888這次1M3完美了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cray  
+##### 270#       发表于 2021-4-14 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936291&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-14 16:29</a>
+
+索尼 Xperia 5 III 参数介绍：
+
+尺寸 157x68x8.2mm，重量 169g，IP65/68 防尘防水，混合式双 SIM，电池 4500 ...</blockquote>
+之前背板感觉有点空以为会加线圈，结果这次还是不加<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Lisylfn  
+##### 271#       发表于 2021-4-14 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50938380&amp;ptid=1985265" target="_blank">哎哟卧槽了 发表于 2021-4-14 20:11</a>
+國行要用Google全家桶還需要刷機嗎
+
+—— 來自 Sony J9110, Android 10上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+之前都是不用的，III没意外应该也可以直接装
+
+
+-----
+
+####  Cray  
+##### 272#       发表于 2021-4-14 21:46
+
+
+ 本帖最后由 Cray 于 2021-4-14 21:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50937083&amp;ptid=1985265" target="_blank">leystage 发表于 2021-4-14 17:37</a>
+
+自动模式有时候会在我不需要的时候搞后期处理转一圈… 其实不需要</blockquote>
+一般还都是拍夜景才转，自动程序感觉到要叠图hdr肯定要转1秒啊，不然又要被说自动模式烂了。普通相机app转的更勤快点
+
+
+当然这个效果很好的自动模式，评测根本就不会用，大部分观众还根本不知道摄影大师有auto，只会说这是专业模式。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Yukine_Chris  
+##### 273#       发表于 2021-4-14 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50938259&amp;ptid=1985265" target="_blank">帕林马哲理 发表于 2021-4-14 19:57</a>
+
+索尼这块OLED会是哪家出的呢？我还是受不了OLED在夜晚的观感。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必然三星
+
+
+-----
+
+####  暗铁  
+##### 274#       发表于 2021-4-14 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939424&amp;ptid=1985265" target="_blank">Cray 发表于 2021-4-14 21:46</a>
+一般还都是拍夜景才转，自动程序感觉到要叠图hdr肯定要转1秒啊，不然又要被说自动模式烂了。普通相机app转 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">索粉头子说M3直接把相机app干掉只留大师了
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leystage  
+##### 275#         楼主| 发表于 2021-4-14 22:00
+
+
+<blockquote>暗铁 发表于 2021-4-14 21:57
+索粉头子说M3直接把相机app干掉只留大师了
+
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next- ...</blockquote>
+宣传片里就说了嘛，相机 App 变成了大师的 BASIC 模式
+
+
+-----
+
+####  Cray  
+##### 276#       发表于 2021-4-14 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939545&amp;ptid=1985265" target="_blank">暗铁 发表于 2021-4-14 21:57</a>
+
+索粉头子说M3直接把相机app干掉只留大师了
+
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next- ...</blockquote>
+就应该干掉，马克兔的时候我就喷过。给那些评测团队耍过了一次终于长点记性了， 把绿auto套个简易模式的ui就好了嘛。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tgwing  
+##### 277#       发表于 2021-4-14 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939545&amp;ptid=1985265" target="_blank">暗铁 发表于 2021-4-14 21:57</a>
+索粉头子说M3直接把相机app干掉只留大师了
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next- ...</blockquote>
+索尼这是开窍了？
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                        
