@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-13 10:42** 
+> ## **本文件最后更新于2021-04-14 03:43** 
 
 
 
@@ -14543,6 +14543,21 @@ syl 原来之前那个fleet是三首啊，我记成两首了，整挺好
 <img src="https://p.sda1.dev/1/d5f10e86b97d61a5c4b555a119f40341/IMG_CMP_184118370.jpeg" referrerpolicy="no-referrer">
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| llconforever|-1|你楼已经够恶臭了3qxx|
+
+
+查看全部评分
+
+
 -----
 
 ####  Dualist彩  
@@ -14688,4 +14703,396 @@ smjb玩意儿，这么好笑说出来也让我笑笑<img src="https://static.sar
 anti不是默认不看直播，黑屁全靠云吗
 
 
-   
+-----
+
+####  A2014720  
+##### 13385#       发表于 2021-4-13 18:46
+
+
+我只是觉得他写的真的很欢乐罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 13386#       发表于 2021-4-13 18:49
+
+
+他想表达啥，最后一段
+
+
+-----
+
+####  时雨rain  
+##### 13387#       发表于 2021-4-13 18:49
+
+
+钓鱼罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 13388#       发表于 2021-4-13 19:01
+
+
+臭婆娘，吵死了
+
+
+-----
+
+####  时间在我手中  
+##### 13389#       发表于 2021-4-13 19:01
+
+
+臭女人不赔我我新耳朵我就去你家雷普你<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13390#       发表于 2021-4-13 19:01
+
+
+联动看完了，耳朵聋了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13391#       发表于 2021-4-13 19:21
+
+
+吵到我了，今晚让你下不了床<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 13392#       发表于 2021-4-14 00:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50925119&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-13 16:31</a>
+谢谢你成功逗笑我了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">都2021年了还有拿人气说事的也是乐
+一天的疲倦消失了
+看看隔壁论坛版主直播间也知道阿b人气就是个笑话
+而且隔壁as上次造奇观的时候人气被阿b压成什么样当瞎子是吧
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  路人辰  
+##### 13393#       发表于 2021-4-14 06:16
+
+
+20210414东京1点
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/061626hli6un7ht21t1707.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>62A3DB82-B360-4F6F-92D2-3B4D97F36C6F.jpeg</strong> (213.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 06:16 上传
+
+
+-----
+
+####  呓亘  
+##### 13394#       发表于 2021-4-14 09:30
+
+
+官号上的Roki好棒 屑感和小恶魔感太棒了 那种张扬感
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Dualist彩  
+##### 13395#       发表于 2021-4-14 09:37
+
+
+18年双11投过一次吧
+
+
+-----
+
+####  时间在我手中  
+##### 13396#       发表于 2021-4-14 10:00
+
+
+ 本帖最后由 时间在我手中 于 2021-4-14 10:11 编辑 
+
+说起来这个roki究竟是她新录的音源还是18年那会儿的翻新我还没搞懂，野兽之舞也是<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13397#       发表于 2021-4-14 10:14
+
+
+ 本帖最后由 路人庚 于 2021-4-14 10:22 编辑 
+
+同好会参与制作的基本都是用的旧音源吧
+
+啊，我说的旧音源指直播时候的音源（如果我说新音源那就是指找到阿咩特地重新录的了
+
+
+-----
+
+####  时间在我手中  
+##### 13398#       发表于 2021-4-14 10:19
+
+
+也不一定，king那几个还是用的比较新的，我只是好奇这翻新活儿究竟谁发起的罢了，看来是繁星他们几个爆肝弄出来的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+说到pv就想起某个crew调音人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">卡审核力度不太行啊
+
+
+-----
+
+####  千木唯  
+##### 13399#       发表于 2021-4-14 10:29
+
+
+那不一定，说不定以后就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13400#       发表于 2021-4-14 10:35
+
+
+那他慢慢行，反正他还不配管到我<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">所以说跟傻卵官组玩JB联合投稿我就没搞懂有什么意义，保底3万播放量还是个人心愿吗
+
+也或者就是单纯无所谓，想投就投。后两者我的确管不着也懒得管
+
+第一个只能说意义挺低的，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且还可能要被卡，就我个人而言挺浪费时间的
+
+
+-----
+
+####  千木唯  
+##### 13401#       发表于 2021-4-14 10:41
+
+
+调音大人来这边转了一圈子走了，后面联合说不定有点难，
+为啥联合就是为了让很多人看到呗，反馈多，做的人也比较有动力，毕竟不是所有人都是无反馈也能持续发电的吧<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+最近应该还有个老曲新pv发<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，可以期待下
+
+
+-----
+
+####  路人庚  
+##### 13402#       发表于 2021-4-14 10:42
+
+
+投稿集中化对于观众来说很方便啊
+
+
+-----
+
+####  时间在我手中  
+##### 13403#       发表于 2021-4-14 10:48
+
+
+ 本帖最后由 时间在我手中 于 2021-4-14 10:52 编辑 
+
+个人经历来说有时候并不是很方便其实，因为会有投稿上的优先度冲突。
+
+
+说到这个，我很好奇一件事，你们觉得一天投稿几次算是比较【正常】的
+
+
+我个人来说是巴不得做好直接就丢随心所欲自由派的，但是实际来说你们也看到以前thh那边怎么投的了，在这种一天一稿的情况下。
+
+
+事实上，也有些投稿会因为各种原因被【积压】
+
+
+是培养用户固定观看习惯好还是依赖你睿推送随缘博播放更适合呢？
+
+
+无反馈持续发电啊，我的反馈基本上还是靠主播本人说到底，观众现在对我来说相对没那么重要了，虽然该做的基本规范之类的还是会在能力范围内做到
+
+
+syl，以前联合也没多简单吧，虽然也和mix的因素有些关系，但是整体来说也就那破效率吧。
+
+
+现在整PV的猛男好像也和他们组关系不大了，去年他们想查我这个【内鬼】的时候飘零还run了，funny。那之后好像就是带调音师二代的玩意儿了
+
+
+-----
+
+####  路人庚  
+##### 13404#       发表于 2021-4-14 10:54
+
+
+对我来说做好了直接发就行，有固定观看习惯的观众在以突击直播为主的你咩姐这里占比大概不会占到多数，而且运营起来也麻烦，大伙都随意一点挺好的
+
+
+-----
+
+####  Joffre✔  
+##### 13405#       发表于 2021-4-14 10:56
+
+
+从我个人的体验来说 除了核心粉 很多观众应该都不咋关心频率吧 有喜欢的就点进去看 像我也关注了一些别的v和up主 有的还上过舰 但不是核心粉 直播和视频都是随缘看的 都没注意过频率
+
+
+-----
+
+####  A2014720  
+##### 13406#       发表于 2021-4-14 11:01
+
+
+ 本帖最后由 A2014720 于 2021-4-14 11:02 编辑 
+
+我一般是闲了直接搜标签把熟肉都看了，当然全熟一般就在闲时当配菜
+
+这人的熟肉产量其实多到有点撑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">忙起来回头一看总能有一堆熟肉在那放着
+
+
+-----
+
+####  时间在我手中  
+##### 13407#       发表于 2021-4-14 11:02
+
+
+ 本帖最后由 时间在我手中 于 2021-4-14 11:04 编辑 
+
+原来如此，主要是以前多少有人为了播放量跟我说了一堆有的没的，说实话我自己观察下来海盗本质还是靠标题和推送才能算有个好起步是真的
+
+
+一般来说好像稍微关注点你麻的人的确手机端首页本身也会有几率刷到，也许该考虑做点短视频了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+今晚先不弄大活儿了，把小麻说棉花糖那段弄一下，也不知道她播不播，毕竟有人没切片都挺苦恼的了
+
+
+我也希望她弄了这个新皮自己直播也多来点新鲜事物是真的，毕竟很基本的事实就是歌回这东西我到后半很难集中注意力。
+
+产量这东西也是个问题w，我现在其实都不懂究竟是thh那套日更好还是官组这种三天打鱼两天晒网然后拖拖拉拉的风格好，亦或者我现在想搞的自由派风格好点<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+核心点的粉丝会感到偏多，但是路人边缘型的却又需要多投产进行受众上的扩展
+
+
+-----
+
+####  雪风utopia  
+##### 13408#       发表于 2021-4-14 11:11
+
+
+小麻能不能整点新活，比如恐怖游戏和asmr或者超美丽3d之类的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13409#       发表于 2021-4-14 11:14
+
+
+能先来次一小时全称超嗨杂谈吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13410#       发表于 2021-4-14 11:14
+
+
+ 本帖最后由 Joffre✔ 于 2021-4-14 11:16 编辑 
+
+超美丽3d x超大型3d √
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 13411#       发表于 2021-4-14 11:17
+
+
+为什么要默认坦克<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13412#       发表于 2021-4-14 11:19
+
+
+这种天天吃外卖的肥猪凭什么不是坦克<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13413#       发表于 2021-4-14 11:20
+
+
+吃的多 坐的久 不运动 肉应该是堆在屁股上了 别到时候屁股卡椅子里站不起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13414#       发表于 2021-4-14 11:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看来坦克已经是共识了，还有负隅顽抗的建议早点认清现实
+
+
+-----
+
+####  A2014720  
+##### 13415#       发表于 2021-4-14 11:23
+
+
+我个人当然还是最想看手机tc这种玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再就是中长段杂谈了，以前官组投稿的那种20—40分钟有意思的全熟录播也不错，可惜她不搞了
+但现在路人基本不会对这类玩意感兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13416#       发表于 2021-4-14 11:23
+
+
+现在的路人对屁股更感兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13417#       发表于 2021-4-14 11:27
+
+
+2020年初开始都已经是10分钟杂谈都要考虑有没有播放的时期了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在2021年你麻播放量过十万就是胜利说到底，百万大概要缝合到别的最新最in的玩意儿去吧
+
+
+不过最近那个虚拟去高级运营弄的熟肉有你麻的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13418#       发表于 2021-4-14 11:36
+
+
+官组，指里面一群贴贴二创画师掌权却没有二创视频产出的fw组织<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+  
