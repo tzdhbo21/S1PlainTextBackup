@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-14 03:43** 
+> ## **本文件最后更新于2021-04-14 10:39** 
 
 
 
@@ -15095,4 +15095,315 @@ syl，以前联合也没多简单吧，虽然也和mix的因素有些关系，�
 官组，指里面一群贴贴二创画师掌权却没有二创视频产出的fw组织<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
 
-  
+-----
+
+####  时间在我手中  
+##### 13419#       发表于 2021-4-14 11:44
+
+
+ 本帖最后由 时间在我手中 于 2021-4-14 11:50 编辑 
+
+毕竟所谓毒唯都被他们飞狗无限这些个人赶走了，那不挺正常的，可惜当时不该发she记录打草惊蛇的，不然应该还能持续恶心我一大段时间，虽然光是那段时间就足够弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+二创他们组那几个画师啥的封面不是有在画吗，标题依然啥几把都看不懂就是了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">至于没什么PV产出什么的，关我屁事，还不如我自己弄个特效轴打完开心
+
+
+-----
+
+####  千木唯  
+##### 13420#       发表于 2021-4-14 11:54
+
+
+ 本帖最后由 千木唯 于 2021-4-14 11:56 编辑 
+
+那群人只想搞贴贴啊，现在官组不能明面转发和联合投稿贴贴内容，他们哪有动力啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+封面基本不都aut吗。
+不过说到底同好会这繁星也是贴贴人，不知道怎么就挺能干，可能是主推不同吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 13421#       发表于 2021-4-14 11:55
+
+
+一天一发可能会让人意识到这个主播好高产，说不定会吸引新人。但对于老咸鱼来说，感兴趣才会去看。所以啥时候在点恐怖游戏，天天歌回都是挂后台，联动昨晚还记错时间。
+
+
+-----
+
+####  路人庚  
+##### 13422#       发表于 2021-4-14 12:04
+
+
+（无端联想，名台词引用）
+
+
+贴贴摧毁了阿咩的官号，
+
+
+我高贵的单推沦为难民......
+
+
+但贴贴无法摧毁我们的意志，
+
+
+因为神圣的阿咩，连接着我们每个人的思想，让我们在绝望中团结一致
+
+
+今天，我们要夺回我们的家园
+
+
+夺回
+
+
+阿咩的官号
+
+
+-----
+
+####  雪风utopia  
+##### 13423#       发表于 2021-4-14 12:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/2c4edd9acc9b840c388a879339e86777/2104437233.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13424#       发表于 2021-4-14 12:08
+
+
+反正生态已经是这个样子了，老噶吃一般直接奔着直播去了，精彩的同好会和野生烤肉也能烤个七七八八，剩下的随缘吧，大炒作时代你干的过谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+说实话官组确实给人感觉没啥人看直播了，即使忙于工作学业啥也不是这种感觉，算了不出问题就行了，至少新皮什么还能加速给你烤出个全熟来<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 13425#       发表于 2021-4-14 12:12
+
+
+精彩的都在不能上传的tc里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13426#       发表于 2021-4-14 12:22
+
+
+夺回NMB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当海盗不好非要当傻逼官方人员是现实破事不够多吗，狗都不去
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|不要在意细节（|
+
+
+查看全部评分
+
+
+-----
+
+####  Dualist彩  
+##### 13427#       发表于 2021-4-14 12:32
+
+
+那要是小麻每晚都会给官组円光呢<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+           
+
+官组人，我🦈了你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13428#       发表于 2021-4-14 12:45
+
+
+官组人不是恨不得把两人绑起来磨豆腐吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 13429#       发表于 2021-4-14 13:00
+
+
+官组是不是人人有to签 除了这个官组有啥好的，还天天被你们🐴
+
+
+-----
+
+####  路人庚  
+##### 13430#       发表于 2021-4-14 13:04
+
+
+有一还是要说一，我挺想要个to签的
+
+
+-----
+
+####  A2014720  
+##### 13431#       发表于 2021-4-14 13:06
+
+
+要了干什么，挂咸鱼？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 13432#       发表于 2021-4-14 13:07
+
+
+我也想要，上次朋友的to签给我酸了半天
+
+
+-----
+
+####  时间在我手中  
+##### 13433#       发表于 2021-4-14 13:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50933839&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-4-14 13:00</a>
+
+官组是不是人人有to签 除了这个官组有啥好的，还天天被你们🐴</blockquote>
+人人都有个JB，干活多的才有，前多少名来着，不过官组那些没什么剪辑技术含量几刀流我要是去大概除了少数几个混个签名真不难<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">，但是狗才去官组
+
+
+syl，他们组能天天吹个几把阴风，都说通过dis对接，就那么几个JB人能接触我没记错的话<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+当然里面的确有贝贝人就是了
+
+再syl，虽然我没to签但是我有头像也凑合了
+
+
+-----
+
+####  yywzjsw  
+##### 13434#       发表于 2021-4-14 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50933918&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-14 13:08</a>
+
+人人都有个JB，干活多的才有，前多少名来着，不过官组那些没什么剪辑技术含量几刀流我要是去大概除了少数 ...</blockquote>
+头像，万年非洲人什么都不想说<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hwlzdjbrs  
+##### 13435#       发表于 2021-4-14 15:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">阿咩签名还值钱么
+
+
+-----
+
+####  雪风utopia  
+##### 13436#       发表于 2021-4-14 15:14
+
+
+过气主播签名狗都不要<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13437#       发表于 2021-4-14 15:31
+
+
+建议加入404会员或者饭盒5000博运气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 13438#       发表于 2021-4-14 17:16
+
+
+建议去东京每天晚上8点-早上6点便利店/麦当劳外卖员搏运气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pei23333  
+##### 13439#       发表于 2021-4-14 17:59
+
+
+肥婆还不醒，又不播了？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  雪风utopia  
+##### 13440#       发表于 2021-4-14 18:01
+
+
+剃须，然后捡到粉色坦克<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  A2014720  
+##### 13441#       发表于 2021-4-14 18:09
+
+
+再摸一摸，差不多就到回老家的时候了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13442#       发表于 2021-4-14 18:11
+
+
+这个月回老家的时间其实已经定下来了罢（根据盒限时间倒推
+
+
+-----
+
+####  JY要塞  
+##### 13443#       发表于 2021-4-14 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">然后又要相亲了
+
+
+-----
+
+####  A2014720  
+##### 13444#       发表于 2021-4-14 18:30
+
+
+怕是回家探望留守子女<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13445#       发表于 2021-4-14 18:31
+
+
+破楼😭😭😭
+
+
+ 

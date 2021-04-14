@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-13 09:41** 
+> ## **本文件最后更新于2021-04-14 10:40** 
 
 
 
@@ -3650,4 +3650,362 @@ wys，以前有个YC的专访他自己带到过一嘴
 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都一样摸 姿势都不变 2姐脸好像还崩了
 
 
-                                       
+-----
+
+####  angelooo  
+##### 78305#       发表于 2021-4-13 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50925643&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-4-13 17:13</a>
+
+二姐就算了玉藻猫太过分了</blockquote>
+隔壁还有洗地的说卡面还没出不能算摸
+
+可我寻思目前为止公布的立绘里也就你玉藻猫一个姿势没变啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yzj134100  
+##### 78306#       发表于 2021-4-13 18:29
+
+
+钱没给够吧  姿势都不给你换个
+
+
+-----
+
+####  khxooo  
+##### 78307#       发表于 2021-4-13 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50926013&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-4-13 17:47</a>
+隔壁还有洗地的说卡面还没出不能算摸
+
+可我寻思目前为止公布的立绘里也就你玉藻猫一个姿势没变啊 ...</blockquote>
+对面Wada放屁都是香的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzxa  
+##### 78308#       发表于 2021-4-13 23:20
+
+
+灵衣卡面和立绘早已不一样，wada还是可以期待下的
+
+
+-----
+
+####  miro112233  
+##### 78309#       发表于 2021-4-14 09:46
+
+
+wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装的泳装高文不都是接头霸王吗，只有灵衣卡面图是完全重画的。怎么现在才反应过来她画的灵衣立绘是只换衣服不换姿势的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过对比这批其他的完全重绘的灵衣确实显得太摸了
+
+
+-----
+
+####  miro112233  
+##### 78310#       发表于 2021-4-14 09:50
+
+
+看着精英论坛满屏幕的252锁助战黑泥，忍不住想起了开252之前有BGO玩家信誓旦旦地说252看了攻略一点都不难，纯粹是日服玩家夸大了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78311#       发表于 2021-4-14 10:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50931862&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-4-14 09:50</a>
+
+看着精英论坛满屏幕的252锁助战黑泥，忍不住想起了开252之前有BGO玩家信誓旦旦地说252看了攻略一点都不难， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">遍地云玩家 怕是一堆人实际上尼禄祭过着都费劲
+
+
+-----
+
+####  theloved  
+##### 78312#       发表于 2021-4-14 12:45
+
+
+难不难分人，没术呆以前我还觉得banana最后一管血更难，无敌贯通教始皇做人，满血阿比一刀被带走，最后还是靠杰克清的buff
+
+
+-----
+
+####  alucardcz  
+##### 78313#       发表于 2021-4-14 13:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新我就不一样了  从来就没感觉到过有难度  以前还坚持什么不用令咒 现在能用就用 不用白不用
+
+
+-----
+
+####  rooarr  
+##### 78314#       发表于 2021-4-14 17:03
+
+
+这个宝具本它不讲基本法啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  alucardcz  
+##### 78315#       发表于 2021-4-14 17:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936687&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-14 17:03</a>
+
+这个宝具本它不讲基本法啊
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">醒醒 这游戏强化什么时候有规则过了  
+
+
+大公 头顶青天啊(
+
+
+-----
+
+####  白夜羽  
+##### 78316#       发表于 2021-4-14 17:05
+
+
+惊了大公，我的5宝百级大公要好起来了，唯一神，暂时滴神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78317#       发表于 2021-4-14 17:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等波测试 能不能干掉新出的手办啊(
+
+
+-----
+
+####  白夜羽  
+##### 78318#       发表于 2021-4-14 17:08
+
+
+还有五星骑？我懂了，一定是那个男人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78319#       发表于 2021-4-14 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936748&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-4-14 17:08</a>
+
+还有五星骑？我懂了，一定是那个男人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我先来奶一口妹夫 配合灵衣卡池捞一波(
+
+
+-----
+
+####  不垃圾屌丝  
+##### 78320#       发表于 2021-4-14 17:10
+
+
+大公被打断的腿接回来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  白夜羽  
+##### 78321#       发表于 2021-4-14 17:10
+
+
+经典后置色卡耐性down，唯一神不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  longrider  
+##### 78322#       发表于 2021-4-14 17:12
+
+
+5宝百级大**顶青天
+
+
+-----
+
+####  alucardcz  
+##### 78323#       发表于 2021-4-14 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936781&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-4-14 17:10</a>
+
+经典后置色卡耐性down，唯一神不愧是你</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">3t的 有那么一点点用 第2第3发伤害提升了不少
+
+
+-----
+
+####  里村紅葉  
+##### 78324#       发表于 2021-4-14 17:19
+
+
+还好我的大公和人偶妹都在池子里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么上天都跟我没关系
+
+
+-----
+
+####  eyeego  
+##### 78325#       发表于 2021-4-14 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936687&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-14 17:03</a>
+这个宝具本它不讲基本法啊
+
+—— 来自 S1Fun</blockquote>
+肛道理大公那个宝具本来就低人一等 以前那个只是给你修bug的 现在这个才是真宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78326#       发表于 2021-4-14 17:28
+
+
+这波背刺真是妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 78327#       发表于 2021-4-14 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936937&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-4-14 17:23</a>
+
+肛道理大公那个宝具本来就低人一等 以前那个只是给你修bug的 现在这个才是真宝具本 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我大公现在可是唯一一个宝具描述有2个箭头的男人！
+
+
+-----
+
+####  longrider  
+##### 78328#       发表于 2021-4-14 17:32
+
+
+宝具倍率
+
+900%        1200%        1350%        1425%        1500%
+
+➡️
+
+1200%        1500%        1650%        1725%        1800%
+
+
+后置蓝卡耐性20%down
+
+
+最强蓝色单体了吧
+
+
+-----
+
+####  alucardcz  
+##### 78329#       发表于 2021-4-14 17:52
+
+
+这波手办娘直接去世了？
+
+
+-----
+
+####  khxooo  
+##### 78330#       发表于 2021-4-14 17:53
+
+
+蓝王又双回归了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  khxooo  
+##### 78331#       发表于 2021-4-14 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936748&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-4-14 17:08</a>
+
+还有五星骑？我懂了，一定是那个男人</blockquote>
+脚后跟：对，就是我<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 78332#       发表于 2021-4-14 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936819&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-14 17:14</a>
+3t的 有那么一点点用 第2第3发伤害提升了不少</blockquote>
+我已经迫不及待想试试黑杯第三发的水平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78333#       发表于 2021-4-14 18:05
+
+
+<blockquote>引用第78330楼khxooo于2021-04-14 17:55发表的  :
+
+引用:白夜羽 发表于 2021-4-14 17:08还有五星骑？我懂了，一定是那个男人脚后跟：对，就......</blockquote>
+奥德修斯：不，是我<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  白金口袋  
+##### 78334#       发表于 2021-4-14 18:24
+
+
+一星杀上趋势了，大家都在等夏绿蒂<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Jamaisvu  
+##### 78335#       发表于 2021-4-14 18:30
+
+
+这波强化任务挺有意思的，不知道会不会强化限定英灵然后造个混合UP毒池出来...
+
+
+-----
+
+####  khxooo  
+##### 78336#       发表于 2021-4-14 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50937478&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-4-14 18:24</a>
+一星杀上趋势了，大家都在等夏绿蒂</blockquote>
+个人希望是舞娘，毕竟开服这么久，什么都没有。
+
+
+                                      
