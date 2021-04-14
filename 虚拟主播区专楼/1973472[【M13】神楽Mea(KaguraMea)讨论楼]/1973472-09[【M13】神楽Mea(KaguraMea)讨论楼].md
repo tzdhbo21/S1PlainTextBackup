@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-14 13:42** 
+> ## **本文件最后更新于2021-04-14 19:33** 
 
 
 
@@ -14548,10 +14548,11 @@ syl 原来之前那个fleet是三首啊，我记成两首了，整挺好
 评分
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| RE_INORI|-1|别倒垃圾了|
 | llconforever|-1|你楼已经够恶臭了3qxx|
 
 
@@ -15734,5 +15735,247 @@ syl 新的fleet是不是可以发散为一天被睡了三次<img src="https://st
 
 
 应该是挺久之前，那位圣女推特上还被观众评价为像mea来着（不过也应该还是靠绿熊最终才搭上线
+
+
+-----
+
+####  离心  
+##### 13477#       发表于 2021-4-14 21:51
+
+
+2434里被人说像mea的太多了，我一个从来不看彩虹的人都知道最起码有二个了，一个江皇、另一个是北小路。现在又多了一个吗？
+
+
+-----
+
+####  A2014720  
+##### 13478#       发表于 2021-4-14 21:56
+
+
+ 本帖最后由 A2014720 于 2021-4-14 21:59 编辑 
+
+又要万物起源喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不对是万恶之源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13479#       发表于 2021-4-14 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939491&amp;ptid=1973472" target="_blank">离心 发表于 2021-4-14 21:51</a>
+
+2434里被人说像mea的太多了，我一个从来不看彩虹的人都知道最起码有二个了，一个江皇、另一个是北小路。现 ...</blockquote>
+好奶，推特新关注就是北小路，绝了
+
+
+-----
+
+####  呓亘  
+##### 13480#       发表于 2021-4-14 22:25
+
+
+吊人还没吃完吗
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  时间在我手中  
+##### 13481#       发表于 2021-4-14 22:25
+
+
+吃撑了就去sex减肥了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">是的，和我
+
+
+-----
+
+####  呓亘  
+##### 13482#       发表于 2021-4-14 22:37
+
+
+直播间开了 看来是吃完了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  雪风utopia  
+##### 13483#       发表于 2021-4-14 22:39
+
+
+晚安，野男人们<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13484#       发表于 2021-4-14 22:40
+
+
+不知道说什么，只能流汗黄豆了😅
+
+
+-----
+
+####  pei23333  
+##### 13485#       发表于 2021-4-14 23:38
+
+
+还就那个又睡过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  A2014720  
+##### 13486#       发表于 2021-4-14 23:41
+
+
+只是可能，可能
+
+说不定又和野男人滚回床上了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13487#       发表于 2021-4-14 23:42
+
+
+ 本帖最后由 雪风utopia 于 2021-4-14 23:44 编辑 
+
+今天第四次和野男人缠绵，小麻好体力<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13488#       发表于 2021-4-14 23:45
+
+
+可能不播等于一定不播啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 13489#       发表于 2021-4-14 23:56
+
+
+野男人你在看吗？能不能加速一下啊，怎么可以让大家等这么久<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13490#       发表于 2021-4-15 00:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">野男人一边干事一边看s1啊
+
+
+-----
+
+####  A2014720  
+##### 13491#       发表于 2021-4-15 00:07
+
+
+加速了加速了，真烦，下次我注意一下
+
+
+-----
+
+####  路人庚  
+##### 13492#       发表于 2021-4-15 00:33
+
+
+梦到打工搬运东西太累了醒了之后觉得果然打工太累了于是又睡了一觉还行
+
+
+-----
+
+####  时间在我手中  
+##### 13493#       发表于 2021-4-15 01:21
+
+
+什么午夜战狼歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 13494#       发表于 2021-4-15 01:22
+
+
+我爱你
+
+睡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13495#       发表于 2021-4-15 01:24
+
+
+拉夫歌
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  千木唯  
+##### 13496#       发表于 2021-4-15 01:31
+
+
+我神乐mea没有做过地下偶像<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+确实，充其量搞过线下活动的网络偶像<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 13497#       发表于 2021-4-15 01:54
+
+
+主播不想播可以不播<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  GRMeA104  
+##### 13498#       发表于 2021-4-15 01:57
+
+
+这周全接的脑死联动，突出一个没状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LIPP  
+##### 13499#       发表于 2021-4-15 02:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我就说还有，不应该多看一眼
+
+
+-----
+
+####  ashero  
+##### 13500#       发表于 2021-4-15 03:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">太生活了 
 
 
