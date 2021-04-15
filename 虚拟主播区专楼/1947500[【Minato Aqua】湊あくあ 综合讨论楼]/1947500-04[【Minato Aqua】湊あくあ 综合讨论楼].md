@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-09 11:37** 
+> ## **本文件最后更新于2021-04-15 04:46** 
 
 
 
@@ -13846,4 +13846,317 @@ TAS Apex<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 久美子拜托了🙏
 
 
-          
+-----
+
+####  面具13  
+##### 5674#       发表于 2021-4-9 20:55
+
+
+版本回滚到2月了吗？
+
+身体不舒服也不知道要休息几天，先保守估计一个星期。
+
+定期帮轻中度单推crew戒除管人依赖症，让除重度患者外的多数人健康看管，夸宝功德无量啊。
+
+
+-----
+
+####  Kanchiki  
+##### 5675#       发表于 2021-4-10 11:40
+
+
+感觉最近#あくあーと里都没什么看得上眼的质量过硬的图了
+
+一堆迷之MMD和惨不忍睹的幼儿园手工画还有cosplay
+
+时雨画的二头身系列是挺可爱的，但还是喜欢正常比例的
+
+
+-----
+
+####  梅斯之围  
+##### 5676#       发表于 2021-4-10 14:36
+
+
+本人点赞的图有不少还不错
+不过有的幼儿园手绘属实看不下去，五岁儿童的共同审美么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5677#       发表于 2021-4-10 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">得，今天推都不发
+
+
+-----
+
+####  星の守  
+##### 5678#       发表于 2021-4-10 22:49
+
+
+慢慢等吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5679#       发表于 2021-4-10 23:33
+
+
+夸宝连续摸鱼的第5天，此间乐不思夸，去check动没动反而影响心情。
+
+干脆等半个月后再回来看攒了几个录播。要是复播得早的话估计一排apex吧，要是正好到冲大师的关键点就最理想了。
+
+
+-----
+
+####  猫南北  
+##### 5680#       发表于 2021-4-11 19:43
+
+
+周末都不播啊~~
+
+
+-----
+
+####  星の守  
+##### 5681#       发表于 2021-4-11 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5682#       发表于 2021-4-12 18:13
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+1.gif
+(975.52 KB, 下载次数: 1)
+
+
+下载附件
+
+
+2021-4-12 18:13 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/12/181353u272j2nx722q1tv6.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 5683#       发表于 2021-4-12 18:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  斯城恶魔  
+##### 5684#       发表于 2021-4-13 12:30
+
+
+纯路人，问问这张图真的假的<img src="https://p.sda1.dev/1/d20702f35c8274a5b2adc6dcc8807875/-65f9964dbf21bfd8.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  凛子也想要五个  
+##### 5685#       发表于 2021-4-13 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50922528&amp;ptid=1947500" target="_blank">斯城恶魔 发表于 2021-4-13 12:30</a>
+纯路人，问问这张图真的假的
+
+—— 来自 Xiaomi Mi 10, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+假的，你夸什么时候露过手了……
+真有露手，在这幅图出来前早就被我们做成超清楚奶油面包拳2.0了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  大厨麦当牛  
+##### 5686#       发表于 2021-4-13 13:04
+
+
+<blockquote>斯城恶魔 发表于 2021-4-13 12:30
+纯路人，问问这张图真的假的
+
+
+—— 来自 Xiaomi Mi 10, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+想看夸手可以去B站搜奶油面包拳。
+
+
+-----
+
+####  ylssb10438  
+##### 5687#       发表于 2021-4-13 20:02
+
+
+蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 5688#       发表于 2021-4-14 18:44
+
+
+我回来了。听闻夸宝快一周没播，我来看看是啥原因<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Maonpuyo  
+##### 5689#       发表于 2021-4-14 21:33
+
+
+已经不记得是第几次定期消失了，推上发病的人一次比一次少，你夸的gachi还能凑一栋楼么<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5690#       发表于 2021-4-14 22:14
+
+
+以前消失好歹有个预告，说家里有事了学跳舞唱歌了搬家了。现在撂下一句身体不舒服就直接溜号
+
+这是直接昏迷不醒了还是咋的，连上个推都这么难么<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+等回来之后要是不解释清楚就等着被炎上，能不能长点记性
+
+
+-----
+
+####  星の守  
+##### 5691#       发表于 2021-4-14 23:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凛子也想要五个  
+##### 5692#       发表于 2021-4-15 01:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">炎个屁啊
+最近v圈一天比一天更烂，这都要纠结？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  wwddrte  
+##### 5693#       发表于 2021-4-15 05:00
+
+
+这种情况感觉是心情不好吧。不过她摸鱼也不会有老板扣工资，过段时间复活了还会有人特地打sc，干嘛不摸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">不赚白不赚
+
+
+-----
+
+####  ylssb10438  
+##### 5694#       发表于 2021-4-15 09:14
+
+
+神TM上亿rmb<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 5695#       发表于 2021-4-15 09:28
+
+
+看见上亿就蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 5696#       发表于 2021-4-15 10:09
+
+
+这收入我信了好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Maonpuyo  
+##### 5697#       发表于 2021-4-15 10:14
+
+
+社内就有小学生这么大个下限在那呢，放心摸一年都没人会炎的
+
+
+-----
+
+####  Maonpuyo  
+##### 5698#       发表于 2021-4-15 10:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 5699#       发表于 2021-4-15 11:06
+
+
+这就是盐水的真意吗，妙啊妙啊
+
+
+-----
+
+####  凛子也想要五个  
+##### 5700#       发表于 2021-4-15 11:14
+
+
+这就是crew的新一代的白毛垫酱吗？妙啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  lightsuger  
+##### 5701#       发表于 2021-4-15 12:44
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/124446vqz18a1anaoz048i.png" referrerpolicy="no-referrer">
+
+
+<strong>a.png</strong> (107.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 12:44 上传
+
+
+想找以前的串搜日本雅虎，第二个结果就很怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+用无痕网页搜也一样
+
+
+         
