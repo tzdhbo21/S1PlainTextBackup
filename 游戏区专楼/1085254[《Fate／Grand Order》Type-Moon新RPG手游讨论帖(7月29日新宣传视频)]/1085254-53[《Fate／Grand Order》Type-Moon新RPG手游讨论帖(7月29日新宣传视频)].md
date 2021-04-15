@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-14 10:40** 
+> ## **本文件最后更新于2021-04-15 19:34** 
 
 
 
@@ -4008,4 +4008,283 @@ wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装
 个人希望是舞娘，毕竟开服这么久，什么都没有。
 
 
-                                      
+-----
+
+####  angelooo  
+##### 78337#       发表于 2021-4-14 20:29
+
+
+<blockquote>khxooo 发表于 2021-4-14 18:32
+个人希望是舞娘，毕竟开服这么久，什么都没有。</blockquote>
+也搞不好是小次郎23333
+
+
+-----
+
+####  exiaexa  
+##### 78338#       发表于 2021-4-14 20:36
+
+
+干哦，我还以为大公没救了，然后拉了伽拉忒亚高宝
+
+唯一神你算计我
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78339#       发表于 2021-4-14 20:43
+
+
+果然又摸了一周，不过下周再继续摸等黄金周开活动吧
+
+
+-----
+
+####  johnkamsar  
+##### 78340#       发表于 2021-4-14 20:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹日服没大公，血亏.......俺只能等国服了！俺国服三宝大公蠢蠢欲动！
+
+
+-----
+
+####  里村紅葉  
+##### 78341#       发表于 2021-4-14 20:49
+
+
+这波是过期选手返场，中奖选手的可能性一下子又混沌了起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">运营真会整活
+
+
+-----
+
+####  alucardcz  
+##### 78342#       发表于 2021-4-14 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50938807&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-4-14 20:49</a>
+
+这波是过期选手返场，中奖选手的可能性一下子又混沌了起来运营真会整活 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">等一个手办真爱怒喷运营
+
+
+-----
+
+####  黑上シグマ  
+##### 78343#       发表于 2021-4-14 21:11
+
+
+推上都在那儿“结果手办只活了一个礼拜……”“她是蝉吗！”
+
+
+-----
+
+####  areklose  
+##### 78344#       发表于 2021-4-14 21:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我手办抽了2宝，没有大公，心里毫无波动。
+
+
+-----
+
+####  上坂莲华  
+##### 78345#       发表于 2021-4-14 21:35
+
+
+我刚抽了个手办你就跟我说大公重回兵器榜首位了，不过我日服也没大公来着
+
+懂了，国服选大公凑二宝<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 78346#       发表于 2021-4-14 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939054&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-4-14 21:11</a>
+
+推上都在那儿“结果手办只活了一个礼拜……”“她是蝉吗！”</blockquote>
+女帝因为绰号被夺大发雷霆（划掉）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78347#       发表于 2021-4-15 13:08
+
+
+隔壁为了机娘和大公开了N个楼撕，这俩都没有的我表示随便吃瓜23333，以及等这波强化公布完了国服自选排名估计又得洗牌了哈哈哈
+
+
+-----
+
+####  里村紅葉  
+##### 78348#       发表于 2021-4-15 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945461&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-4-15 13:08</a>
+
+隔壁为了机娘和大公开了N个楼撕，这俩都没有的我表示随便吃瓜23333，以及等这波强化公布完了国服自选排名估 ...</blockquote>
+要是等国服自选完了再开那肯定乐子更多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78349#       发表于 2021-4-15 13:57
+
+
+<blockquote>里村紅葉 发表于 2021-4-15 13:13
+要是等国服自选完了再开那肯定乐子更多</blockquote>
+脑补了一下笑死我了
+
+
+-----
+
+####  khxooo  
+##### 78350#       发表于 2021-4-15 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945492&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-4-15 13:13</a>
+要是等国服自选完了再开那肯定乐子更多</blockquote>
+别说，光是想象我都笑到肚子疼就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yangun22  
+##### 78351#       发表于 2021-4-15 14:14
+
+
+不是真有人为了强度去抽手办？大公不强化也所差无**，真在强度上那么敏感那么所有从者都应该准备个5宝，因为你又不知道哪天谁又强化了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  风鸣弦十郎  
+##### 78352#       发表于 2021-4-15 14:25
+
+
+也没啥好争的 有啥用啥呗
+
+就好奇这次五星骑和弓有没有限定
+
+
+-----
+
+####  rooarr  
+##### 78353#       发表于 2021-4-15 17:03
+
+
+居然是罗摩的宝具本，难道这次强化全是宝具本<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  黑上シグマ  
+##### 78354#       发表于 2021-4-15 17:03
+
+
+今天果然是那个男人
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 78355#       发表于 2021-4-15 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50948045&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-15 17:03</a>
+
+居然是罗摩的宝具本，难道这次强化全是宝具本
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且又是加了个降色卡耐性
+
+
+-----
+
+####  exiaexa  
+##### 78356#       发表于 2021-4-15 17:19
+
+
+新员工继续下班
+
+渡边纲现在砍鬼都不如罗摩了
+
+
+问题是罗大爷羁绊已经满了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78357#       发表于 2021-4-15 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50948190&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-15 17:15</a>
+而且又是加了个降色卡耐性</blockquote>
+这波可能就是这样了，伤害宝具开个宝具本，加个后置色卡耐性down<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  都谷捻柏  
+##### 78358#       发表于 2021-4-15 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946035&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-4-15 14:12</a>
+
+别说，光是想象我都笑到肚子疼就</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这事肯定发生不了了，不过可以回想一下C呆毛落地的时候，一群攒石头抽了红卡打手的人是怎么开C呆毛，狂武藏，宇宙凛的团的，这波正好相反，因为他们是真的不用抽
+
+
+-----
+
+####  alucardcz  
+##### 78359#       发表于 2021-4-15 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50949249&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-4-15 19:00</a>
+
+这事肯定发生不了了，不过可以回想一下C呆毛落地的时候，一群攒石头抽了红卡打手的人是怎么开C呆 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说啥 国服？  也不对啊 不应该是cba吗
+
+
+-----
+
+####  都谷捻柏  
+##### 78360#       发表于 2021-4-16 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50949909&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-04-15 20:12:16</a>
+你说啥 国服？  也不对啊 不应该是cba吗</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">c呆毛落地的时候，那边冲的可热闹了。国服进度那会儿大概是伯爵复刻完，狂阿周那抽完吧，攒石氪金抽完突然被日服的c呆毛落地背刺。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78361#       发表于 2021-4-16 03:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时隔3个多月终于嫖到了   没想到萌新也有特意去抽大公2宝的时候(醒醒你明明什么都抽石不过3 
+
+
+                                     
