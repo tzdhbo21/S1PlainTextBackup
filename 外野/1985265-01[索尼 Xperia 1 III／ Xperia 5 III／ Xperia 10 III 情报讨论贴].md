@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-14 14:14** 
+> ## **本文件最后更新于2021-04-15 09:05** 
 
 
 
@@ -3175,6 +3175,7 @@ z4的天空蓝就好了 毫不犹豫直接买
 ##### 213#       发表于 2021-4-14 16:44
 
 
+ 本帖最后由 TSST 于 2021-4-15 01:34 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936346&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-14 16:34</a>
 你这理解不准吧，索移那个看描述，更像是连续变焦的潜望式镜头变成了只有两个焦距档位的潜望式镜头
 
@@ -4014,4 +4015,422 @@ Xperia 1 III 与 5 III 三颗后置摄像头 + 一个 3D iToF 感光元件都来
 —— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                        
+-----
+
+####  Frimp  
+##### 278#       发表于 2021-4-15 00:09
+
+
+开始攒钱！
+
+
+-----
+
+####  萝卜roto  
+##### 279#       发表于 2021-4-15 00:18
+
+
+流弊！没钱买，睡觉去了
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  哎哟卧槽了  
+##### 280#       发表于 2021-4-15 00:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939585&amp;ptid=1985265" target="_blank">tgwing 发表于 2021-4-14 22:01</a>
+索尼这是开窍了？
+
+—— 来自 Sony J9110, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+嚴格來說是整合了
+
+—— 來自 Sony J9110, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 281#       发表于 2021-4-15 01:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939182&amp;ptid=1985265" target="_blank">Cray 发表于 2021-4-14 21:23</a>
+之前背板感觉有点空以为会加线圈，结果这次还是不加</blockquote>
+其实加不加都无所谓了，888已经注定让我打算跳过了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+要是870就+10分了，继续买特么的，不过就是买了半年的X5M2被背刺而已算个🔨。可惜这次是一管牙膏，实际体验怕不是要倒退，怂了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  oskneo  
+##### 282#       发表于 2021-4-15 01:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941409&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-15 01:16</a>
+其实加不加都无所谓了，888已经注定让我打算跳过了
+
+要是870就+10分了，继续买特么的，不过就是买 ...</blockquote>
+x5m3这体积，888，大电池。估计降频。。。。
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 283#       发表于 2021-4-15 01:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941480&amp;ptid=1985265" target="_blank">oskneo 发表于 2021-4-15 01:29</a>
+x5m3这体积，888，大电池。估计降频。。。。
+
+—— 来自 Sony XQ-AT52, Android 10上的 S1Next-鹅版 v2.4 ...</blockquote>
+本来X5M2的865都降（哪怕没有11的bug之前，也受制于翔移60度的温度墙）何况888
+
+这一代1和5压不住888是必然的，本身翔移的功耗、温控设置就保守，再加上今年888就根本压不住，哪怕是那堆散热豪华的游戏手机也会出现小幅降频，甚至还出现了拯救者这种塞个巨大主动散热模块的奇葩产物
+
+希望看上去走向完美的mark3不要和Z系列的巅峰Z5一样，什么都好，就是被一颗Soc毁所有<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  allenz2  
+##### 284#       发表于 2021-4-15 01:42
+
+
+肯定降频不用想了，下一台一定
+
+[https://www.youtube.com/watch?v=R1vNkGMF5lk](https://www.youtube.com/watch?v=R1vNkGMF5lk)
+
+各种颜色的1III实机视频
+
+
+-----
+
+####  Cray  
+##### 285#       发表于 2021-4-15 01:49
+
+
+<blockquote>引用第280楼我很费纸于2021-04-15 01:16发表的  :
+
+引用:Cray 发表于 2021-4-14 21:23之前背板感觉有点空以为会加线圈，结果这次还是不......</blockquote>
+5Ⅲ起码要到8月呢 没那么早的
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  哎哟卧槽了  
+##### 286#       发表于 2021-4-15 07:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941514&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-15 01:38</a>
+本来X5M2的865都降（哪怕没有11的bug之前，也受制于翔移60度的温度墙）何况888
+
+这一代1和5压不住888是必 ...</blockquote>
+買10m3過渡<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 來自 Sony J9110, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  gnorz  
+##### 287#       发表于 2021-4-15 07:11
+
+
+我也想买10m3，但是用你妹的玻璃背包吧，初代的塑料壳爱不释手。
+
+
+-----
+
+####  我很费纸  
+##### 288#       发表于 2021-4-15 12:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941550&amp;ptid=1985265" target="_blank">Cray 发表于 2021-4-15 01:49</a>
+5Ⅲ起码要到8月呢 没那么早的
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+希望明年的X5M4能一样，5月就发布，年中就上市
+
+Mark3就拜拜了
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 289#       发表于 2021-4-15 12:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941956&amp;ptid=1985265" target="_blank">哎哟卧槽了 发表于 2021-4-15 07:05</a>
+買10m3過渡
+
+—— 來自 Sony J9110, Android 10上的 S1Next-鵝版 v2.4.4.1</blockquote>
+865再锁频bug也比690强啊，X5M2不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yygundam  
+##### 290#       发表于 2021-4-15 13:14
+
+
+要不是今年这破烂888。。。明年，明年一定（不过我怎么感觉明年高通要继续翻车
+
+
+从你索换到find x3之后，这傻屌colorOS已经让我想念你索的类原生了，UI个性化选项缺了不少我想改的东西，薛定谔的杀后台，手势有小毛病，部分功能考虑不周到，还到处都变着法子想要你的个人信息。（顺带感叹一句你索手机屏幕的色彩管理还是挺牛逼的，这find x3吹了半天色彩管理但是我上手就看出了这白平衡明显不对）
+
+
+-----
+
+####  哎哟卧槽了  
+##### 291#       发表于 2021-4-15 13:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945510&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-4-15 13:14</a>
+要不是今年这破烂888。。。明年，明年一定（不过我怎么感觉明年高通要继续翻车
+
+
+从你索换到find x3之后，这 ...</blockquote>
+我也正好有一台，OPPO的側面手勢比大法的差太多了，甚至還不如三星。打開軟件默認小窗模式還不能改默認設置<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 來自 Sony J9110, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  哎哟卧槽了  
+##### 292#       发表于 2021-4-15 13:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945301&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-15 12:52</a>
+865再锁频bug也比690强啊，X5M2不好吗
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2. ...</blockquote>
+買就買1，5對我來說小了些
+
+—— 來自 Sony J9110, Android 10上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  被雨困住的城市  
+##### 293#       发表于 2021-4-15 13:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945510&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-04-15 13:14:56</a>
+要不是今年这破烂888。。。明年，明年一定（不过我怎么感觉明年高通要继续翻车
+
+
+从你索换到find x3之后，这 ...</blockquote>不是，ui上的设置，还是国产能改的多吧，索尼想把返回键放在右边都得adb，当然，比夏普强，夏普adb都没得改233
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  提挈天地  
+##### 294#       发表于 2021-4-15 13:48
+
+
+ 本帖最后由 提挈天地 于 2021-4-15 13:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945510&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-4-15 13:14</a>
+要不是今年这破烂888。。。明年，明年一定（不过我怎么感觉明年高通要继续翻车
+
+
+从你索换到find x3之后，这 ...</blockquote>
+选一加9系列自己刷氧os不好吗，习惯类原生为什么选oppo?绿厂想要完全绝对不杀后台只能开启“允许完全后台行为”，光锁应用只会像你说的一样薛定谔。
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  有口皆悲  
+##### 295#       发表于 2021-4-15 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939182&amp;ptid=1985265" target="_blank">Cray 发表于 2021-4-14 21:23</a>
+之前背板感觉有点空以为会加线圈，结果这次还是不加</blockquote>
+铜线圈是不是挺重的？加上后估计重量+10g
+
+
+-----
+
+####  yygundam  
+##### 296#       发表于 2021-4-15 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945801&amp;ptid=1985265" target="_blank">被雨困住的城市 发表于 2021-4-15 13:44</a>
+
+不是，ui上的设置，还是国产能改的多吧，索尼想把返回键放在右边都得adb，当然，比夏普强，夏普adb都没得改 ...</blockquote>
+我知道你索改这玩意需要adb，只是。。。我是左撇子，从来就没有改返回键的需求所以没感知。。。
+
+
+倒是find x3的返回手势触发区域太大了，搞的我天天误触返回，然后我想调这个触发范围都没得调。此外就是拉出任务栏的手势也需要很长的行程和停顿才能触发（大概行程和停顿时间都比你索的手势长一倍），而且这个也是不能调的。然后这玩意游戏模式还有个bug：横屏全屏的app有手势防误触，但是这个并不对应竖屏的游戏。。。敢情竖屏的一概不算游戏了。
+
+
+我说的是UI个性化问题基本都是外观自定义方面的，比如这玩意连卷轴壁纸都不支持；设置壁纸还会自动crop掉周围的一圈作为出血范围，就为了某个比较无聊的动画效果的需要；此外就是图标字体的阴影之类也不能添加， 导致处在桌面上白一些的区域的图标文字就完全和背景混在一起了。诸如此类并不影响使用但是很让我烦躁的外观小问题还有一些别的我就不列了。反而是他们吹了半天的能自定义的玩意都是我不需要的，比如AOD下的图案和屏幕边缘RGB跑马灯特效之类。
+
+
+-----
+
+####  yygundam  
+##### 297#       发表于 2021-4-15 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945830&amp;ptid=1985265" target="_blank">提挈天地 发表于 2021-4-15 13:48</a>
+
+选一加9系列自己刷氧os不好吗，习惯类原生为什么选oppo?绿厂想要完全绝对不杀后台只能开启“允许完全后台 ...</blockquote>
+我说的薛定谔就是在开了允许完全后台行为之后还会有很诡异的随机杀掉进程的行为，而且时机很随机，我也不知道到底是什么条件触发的。而且有时候还会莫名其妙重置一些app的后台选项。
+
+
+没选1+9r的原因也很简单，我想要find x3那块屏。
+
+
+-----
+
+####  提挈天地  
+##### 298#       发表于 2021-4-15 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946572&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-4-15 14:58</a>
+我说的薛定谔就是在开了允许完全后台行为之后还会有很诡异的随机杀掉进程的行为，而且时机很随机，我也不 ...</blockquote>
+重置后台选项会不会是用过电池里一键省电的原因?我手头是x2pro，常驻也就accubattery、微信、qq这三样，开了完全后台后还真没出现过杀后台的现象了，你出现这种情况的是手游还是其他什么软件?
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yygundam  
+##### 299#       发表于 2021-4-15 15:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946661&amp;ptid=1985265" target="_blank">提挈天地 发表于 2021-4-15 15:05</a>
+
+重置后台选项会不会是用过电池里一键省电的原因?我手头是x2pro，常驻也就accubattery、微信、qq这三样， ...</blockquote>
+我从来没点过一键省电，我知道那玩意会杀后台。被杀的一般是飞机，accubattery和手环的app，一般来说一天总归会给杀掉一次。微信和qq倒是不会出事，推送一直正常，应该是有内部白名单。
+
+
+此外就是我发现切换屏幕分辨率好像系统也会杀一遍后台，有点神奇。
+
+
+-----
+
+####  Cray  
+##### 300#       发表于 2021-4-15 15:21
+
+
+看来三代是上摇摇乐了
+感觉和谷歌的差不多
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+
+
+-----
+
+####  被雨困住的城市  
+##### 301#       发表于 2021-4-15 15:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946517&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-04-15 14:53:22</a>
+我知道你索改这玩意需要adb，只是。。。我是左撇子，从来就没有改返回键的需求所以没感知。。。
+
+
+倒是fin ...</blockquote>噢噢，是这样啊，可能你是习惯啦类原生吧……
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  yygundam  
+##### 302#       发表于 2021-4-15 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946921&amp;ptid=1985265" target="_blank">被雨困住的城市 发表于 2021-4-15 15:29</a>
+
+噢噢，是这样啊，可能你是习惯啦类原生吧……
+
+
+  -- 来自 能手机投票的 Stage1官方 Android客户端 ...</blockquote>
+这里面真正比较烦的也就返回手势触发范围的问题吧，其他的姑且算是牢骚（
+
+
+其实要不是我受够了Xperia 1那个垃圾指纹传感器，我今年都不考虑换机器了。。。。
+
+
+-----
+
+####  bxcds  
+##### 303#       发表于 2021-4-15 15:49
+
+
+有点好奇其他手机如果用微信直接调摄像头，也是成像比自带的照相差很多么？
+
+—— 来自 Sony XQ-AT52, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+-----
+
+####  提挈天地  
+##### 304#       发表于 2021-4-15 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946780&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-4-15 15:18</a>
+我从来没点过一键省电，我知道那玩意会杀后台。被杀的一般是飞机，accubattery和手环的app，一般来说一天 ...</blockquote>
+切换分辨率杀后台x2pro也是，屏幕分辨率那有文字说明。看你这杀后台情况有可能是color os11.2的bug，和官方有反馈过吗?
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yygundam  
+##### 305#       发表于 2021-4-15 15:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50947200&amp;ptid=1985265" target="_blank">提挈天地 发表于 2021-4-15 15:51</a>
+
+切换分辨率杀后台x2pro也是，屏幕分辨率那有文字说明。看你这杀后台情况有可能是color os11.2的bug，和官 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">仔细看了看确实是用灰色字体写了会关闭部分程序，之前没注意。
+
+
+反馈倒是还没，主要是没有这个习惯。。。（不过比起这个，手势触发区和游戏防误触的问题我倒是真的想反馈下。。。等我有空研究下社区好了
+
+
+-----
+
+####  代号锤子  
+##### 306#       发表于 2021-4-15 16:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50947179&amp;ptid=1985265" target="_blank">bxcds 发表于 2021-4-15 15:49</a>
+有点好奇其他手机如果用微信直接调摄像头，也是成像比自带的照相差很多么？
+
+—— 来自 Sony XQ-AT52, Andr ...</blockquote>
+一样的，微信视频本来就是低码率，拍照只是小视频中的一帧…
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                       
