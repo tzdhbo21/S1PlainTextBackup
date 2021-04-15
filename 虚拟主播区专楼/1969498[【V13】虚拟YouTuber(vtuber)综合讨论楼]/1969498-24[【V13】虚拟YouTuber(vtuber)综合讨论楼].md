@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-14 11:34** 
+> ## **本文件最后更新于2021-04-15 06:46** 
 
 
 
@@ -7665,10 +7665,10 @@ https://elsepoki.booth.pm/items/2810169
 ##### 35074#       发表于 2021-4-14 19:16
 
 
- 本帖最后由 FCCHua 于 2021-4-14 19:31 编辑 
+ 本帖最后由 FCCHua 于 2021-4-14 20:19 编辑 
 
 可动性？看看3.0之后还会频繁卡住吗，虽然感觉太丝滑反而不习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
-嘴巴有点突兀，希望改改
+凛先辈的嘴巴有点突兀，希望改改，其他两人就还好
 syl 3.0实装顺序是抽选制？草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
@@ -7711,4 +7711,326 @@ syl 3.0实装顺序是抽选制？草<img src="https://static.saraba1st.com/imag
 之前还以为能靠动捕实现表情转换，按键真的弱智
 
 
-                              
+-----
+
+####  IDIDIDID  
+##### 35079#       发表于 2021-4-14 19:34
+
+
+德龙你不想播可以不播
+
+
+-----
+
+####  FCCHua  
+##### 35080#       发表于 2021-4-14 19:37
+
+
+ 本帖最后由 FCCHua 于 2021-4-14 19:53 编辑 
+
+德龙你要不要这么生草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+生气表情有那味了，可爱
+我是不太信这些表情平时直播能看到几次<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 35081#       发表于 2021-4-14 19:37
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-14 20:20 编辑 
+
+呜呜呜这都是个啥啊！
+
+<img src="https://img.saraba1st.com/forum/202104/14/193727j18qa117aqrfqrr7.png" referrerpolicy="no-referrer">
+
+
+<strong>【#JK組リレー​​​】3.0すごいってえぐいってやばいって【にじさんじ : 樋口楓】.pn.png</strong> (132.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 19:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/202027crruax7xxvb7ycg7.png" referrerpolicy="no-referrer">
+
+
+<strong>【#JK組リレー​】3.0お披露目♥【にじさんじ:月ノ美兎】.png</strong> (259.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 20:20 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 35082#       发表于 2021-4-14 20:04
+
+
+可爱捏，看来是中之人的问题。
+
+
+-----
+
+####  十四洲  
+##### 35083#       发表于 2021-4-14 20:06
+
+
+[https://www.bilibili.com/video/BV11r4y1c7Pa](https://www.bilibili.com/video/BV11r4y1c7Pa)
+
+梦里想的是这个效果
+
+
+-----
+
+####  FCCHua  
+##### 35084#       发表于 2021-4-14 20:08
+
+
+ 本帖最后由 FCCHua 于 2021-4-14 20:25 编辑 
+
+兔头<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+还吃东西<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 什么神闪避
+这些表情好适合做封面... 要gachi兔头了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 35085#       发表于 2021-4-14 20:09
+
+
+这个叫live2d 2.5才合适。
+
+
+-----
+
+####  ohalucky  
+##### 35086#       发表于 2021-4-14 20:10
+
+
+搞得太夸张了，我快受不了了
+
+
+-----
+
+####  rzrbtk  
+##### 35087#       发表于 2021-4-14 20:15
+
+
+最近月之娇媚感爆了啊，怎么会这么可爱…
+以后的直播也能动嘴就好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  percy1234  
+##### 35088#       发表于 2021-4-14 20:17
+
+
+这么一对比感觉兔头的很多新表情真的都是来自她以前p的封面啊
+
+
+-----
+
+####  lhawp  
+##### 35089#       发表于 2021-4-14 20:31
+
+
+嘴一张大就特别恐怖谷，除此之外倒还可以
+
+
+-----
+
+####  qq845629713  
+##### 35090#       发表于 2021-4-14 20:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 还是期待king会选什么表情，
+
+
+-----
+
+####  purdre  
+##### 35091#       发表于 2021-4-14 20:35
+
+
+想看下巴的3.0，2.0的表情都特别丰富了3.0会是啥样
+
+
+-----
+
+####  purdre  
+##### 35092#       发表于 2021-4-14 20:37
+
+
+只有凛前辈一个人像是从榨精病栋里面出来的一样，其余两人都还不错
+
+
+-----
+
+####  rzrbtk  
+##### 35093#       发表于 2021-4-14 21:36
+
+
+这个3.0可操作点挺多的，蛮适合那种能分出神搞这搞那和有演出需要的liver的，合适的人能早点抽到就好了…
+我是觉得郡道完全搞不来啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 35094#       发表于 2021-4-14 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真的是抽选吗，按照你虹的狼性程度我是一万个不信的。
+
+
+-----
+
+####  超能力者stven  
+##### 35095#       发表于 2021-4-14 21:59
+
+
+抽选也是可以限定范围的抽嘛
+
+
+-----
+
+####  rzrbtk  
+##### 35096#       发表于 2021-4-14 22:07
+
+
+确实，说实话，之前虹新搞的那个抽奖系统，我总觉得不只是为了方便liver搞集体活动，说不定有什么类似于“绝不地滑”“绝不mrra”之类的隐藏设置防止尴尬，可别啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 35097#       发表于 2021-4-14 22:18
+
+
+忽喇喇似大厦倾，昏惨惨似灯将尽，这破公司是一天也呆不下去了
+
+逃げるんだよォォォーーーーーッ
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/221832wb9i6gq2viv2nfng.png" referrerpolicy="no-referrer">
+
+
+<strong>好快的run.png</strong> (355.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 22:18 上传
+
+
+-----
+
+####  OldGlory  
+##### 35098#       发表于 2021-4-15 12:19
+
+
+千草这下找到财富密码了
+
+
+-----
+
+####  Anonekoy  
+##### 35099#       发表于 2021-4-15 13:51
+
+
+ 本帖最后由 Anonekoy 于 2021-4-15 13:53 编辑 
+
+可能火星，[にじさんじWorld Super League 彩虹世超](https://www.playgm.cn/thread-935062-1-1.html)
+Q：你这些球员数据都是依照什么来设置的？
+我脑补的，一些人的速度是按照马里奥赛车8的成绩，一些人的射门和远射看的是APEX等FPS游戏的分段，一些人则是靠的本身的梗，比如既然是怪盗，那肯定跑的很快吧！既然是女神，那肯定会飞吧！等等等诸如此类的因素，如有不满，请把你觉得满意的数据反馈给我，或者直接自己修改，我本人不会对此提出任何异议。
+
+
+4.jpg
+(344.12 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-15 13:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/135110d33b4ql3swk9nln2.jpg" referrerpolicy="no-referrer">
+
+
+1.jpg
+(343.99 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-15 13:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/135116hpcuskp2gfp889p4.jpg" referrerpolicy="no-referrer">
+
+
+3.jpg
+(347.48 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-15 13:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/135121qzao3zt6imwtwiz4.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 35100#       发表于 2021-4-15 14:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 下面有个回复，每段时间就要删几个属实给我逗乐了，今天第一次笑出来，
+
+
+
+
+-----
+
+####  義賊  
+##### 35101#       发表于 2021-4-15 14:25
+
+
+15海牛 16绿仙 17西西 出厂联号了是吧
+
+
+-----
+
+####  poipanchao  
+##### 35102#       发表于 2021-4-15 14:30
+
+
+今天bora 胡桃 cpt参加哈弟赛
+能不能打破长久不吃鸡的魔咒呢
+
+
+-----
+
+####  FCCHua  
+##### 35103#       发表于 2021-4-15 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945853&amp;ptid=1969498" target="_blank">Anonekoy 发表于 2021-4-15 13:51</a>
+可能火星，にじさんじWorld Super League 彩虹世超
+
+Q：你这些球员数据都是依照什么来设置的？
+
+我脑补的，一 ...</blockquote>
+这楼主厉害啊
+
+
+                             
