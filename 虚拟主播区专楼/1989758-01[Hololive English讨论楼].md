@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-12 12:57** 
+> ## **本文件最后更新于2021-04-15 17:15** 
 
 
 
@@ -1363,7 +1363,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_YfyCY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_wp4a7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -5837,4 +5837,385 @@ demo只有前两章
 —— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                     
+-----
+
+####  wiig  
+##### 363#       发表于 2021-4-12 20:59
+
+
+时间表还没做好，直播间已经开出来了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 364#       发表于 2021-4-13 19:38
+
+
+<img src="https://p.sda1.dev/1/7b4d0bdbb5f68c76cd253cf3fe17ea3f/IMG_CMP_237866426.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/a63d1d69dd2694f57c3c2f8a134d568e/IMG_CMP_221651478.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/6d8b057f7908820121672b73bfbff65a/IMG_CMP_187580715.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 365#       发表于 2021-4-13 21:43
+
+
+<img src="https://p.sda1.dev/1/d7e7e08c30f9ef7da4e6e46ee477267a/IMG_CMP_144288171.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/85e4687394cbae602f080d106f786316/IMG_CMP_93901365.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/449b3af3207756c8a0131941c65b7a70/IMG_CMP_83422974.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 366#       发表于 2021-4-14 01:20
+
+
+Kiara和Ina用谷歌日历留言聊天<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/78b499427d919a6cacf80eeac36325da/20210414_011853.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  smy20011  
+##### 367#         楼主| 发表于 2021-4-14 13:19
+
+
+nabi妈妈要出道了！
+
+
+-----
+
+####  wiig  
+##### 368#       发表于 2021-4-14 13:41
+
+
+Ame：THIS SUCKS, THIS GAME-- is great nintendo thank you for permissions<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 369#       发表于 2021-4-14 13:46
+
+
+<img src="https://p.sda1.dev/1/a42475c705a055a8be468ee5a130c555/IMG_CMP_50534282.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 370#       发表于 2021-4-14 13:51
+
+
+<img src="https://p.sda1.dev/1/f5bc52288424770487e5e0a326b13efa/IMG_CMP_30743109.png" referrerpolicy="no-referrer">
+Enma忘了续费了吗
+&gt;Ina: "Maybe Ame and I will work on getting an actual server cause Realms... Not a fan of Realms... It would be nice to get a portal to the JP server."
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  smy20011  
+##### 371#         楼主| 发表于 2021-4-14 23:00
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/230042lmwmi801z8pvwipq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ey4pUufXEAM0_fF.jpg</strong> (138.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 23:00 上传
+
+
+-----
+
+####  wiig  
+##### 372#       发表于 2021-4-15 01:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50940239&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-14 23:00</a></blockquote>
+<img src="https://p.sda1.dev/1/4ad674f255cd5330d79ceb0c826de089/IMG_CMP_156827189.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  过不了审  
+##### 373#       发表于 2021-4-15 01:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50934262&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-14 13:41</a>
+Ame：THIS SUCKS, THIS GAME-- is great nintendo thank you for permissions
+
+—— 来自 Xiaomi M2 ...</blockquote>
+草🌿
+
+
+-----
+
+####  wiig  
+##### 374#       发表于 2021-4-15 09:32
+
+
+Amesame联动终于要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  PureIllusion  
+##### 375#       发表于 2021-4-15 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50942859&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-15 09:32</a>
+Amesame联动终于要来了吗</blockquote>
+Ame：
+&gt;surprise collab 
+&gt;kind of zatsudan
+&gt;会限征集点子
+
+hype hype
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|药来了|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 376#       发表于 2021-4-15 13:03
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/130355w2yd7e43yy27dtbd.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (130.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 13:03 上传
+
+
+-----
+
+####  wiig  
+##### 377#       发表于 2021-4-15 13:21
+
+
+"SUCK DICK SQUARE ENIX"
+
+-Takanashi Kiara 2021
+
+
+-----
+
+####  smy20011  
+##### 378#         楼主| 发表于 2021-4-15 13:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945419&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-15 13:03</a></blockquote>
+老梗王了
+
+
+-----
+
+####  wiig  
+##### 379#       发表于 2021-4-15 14:57
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/145328j6c68xmqxjlrq9j3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (87.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 14:53 上传
+
+
+pixiv和wacom合作活动，Ina在[UTC +9] May 23th 13:30 - 15:30
+
+
+-----
+
+####  smy20011  
+##### 380#         楼主| 发表于 2021-4-15 15:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946565&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-15 14:57</a>
+
+pixiv和wacom合作活动，Ina在 May 23th 13:30 - 15:30</blockquote>
+hololive en居然是赞助商2333
+
+
+-----
+
+####  wiig  
+##### 381#       发表于 2021-4-15 15:19
+
+
+axeson
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/151931bq8qaglseqaapejl.gif" referrerpolicy="no-referrer">
+
+
+<strong>out-transparent-1.gif</strong> (257.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 15:19 上传
+
+
+-----
+
+####  smy20011  
+##### 382#         楼主| 发表于 2021-4-15 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946794&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-15 15:19</a>
+
+axeson</blockquote>
+直播不是刚结束？
+
+
+-----
+
+####  wiig  
+##### 383#       发表于 2021-4-15 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50947252&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-15 15:56</a>
+
+直播不是刚结束？</blockquote>
+可能中途就画好了
+
+
+-----
+
+####  wiig  
+##### 384#       发表于 2021-4-15 18:13
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/181307iszdfb4axfbd8kbf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (272.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 18:13 上传
+
+
+-----
+
+####  wiig  
+##### 385#       发表于 2021-4-15 21:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">IT TAKES TWO改期，是注册账号答题阶段出问题了吗
+
+
+-----
+
+####  wiig  
+##### 386#       发表于 2021-4-15 21:15
+
+
+ 本帖最后由 wiig 于 2021-4-15 21:17 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">Ame严重怀疑自己麸质过敏，去验血休一天，今天直播推到下周
+
+
+-----
+
+####  wiig  
+##### 387#       发表于 2021-4-15 21:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这个棋，想起a way out了
+
+
+-----
+
+####  wiig  
+##### 388#       发表于 2021-4-15 22:00
+
+
+ 本帖最后由 wiig 于 2021-4-15 23:08 编辑 
+
+打岔的时候Calli提到未来要玩一个TRPG，下周(?)会开捏角色直播TRPG直播在五月中旬
+
+
+-----
+
+####  wiig  
+##### 389#       发表于 2021-4-15 22:21
+
+
+calli要唱king<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 390#       发表于 2021-4-15 22:50
+
+
+Calli声音好放松好软<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  wiig  
+##### 391#       发表于 2021-4-15 23:04
+
+
+玩飞行棋，AI赢了<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 392#       发表于 2021-4-15 23:47
+
+
+下周没有意外的话联动内容是it takes two<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+                                    
