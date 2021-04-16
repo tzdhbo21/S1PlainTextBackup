@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-15 06:46** 
+> ## **本文件最后更新于2021-04-16 12:54** 
 
 
 
@@ -6590,8 +6590,7 @@ ybb可以当a-soul gamers紧急出道嘛
 ####  asd225588  
 ##### 34986#       发表于 2021-4-11 00:53
 
-
-差点以为自己走错楼了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8033,4 +8032,330 @@ Q：你这些球员数据都是依照什么来设置的？
 这楼主厉害啊
 
 
-                             
+-----
+
+####  kangkangsama  
+##### 35104#       发表于 2021-4-15 15:01
+
+
+<blockquote>rzrbtk 发表于 2021-4-14 21:36
+这个3.0可操作点挺多的，蛮适合那种能分出神搞这搞那和有演出需要的liver的，合适的人能早点抽到就好了…
+
+ ...</blockquote>
+抽到了也要等四个月（已经抽完了 郡道落选）
+
+就是不知道一批有多少人
+
+
+-----
+
+####  十四洲  
+##### 35105#       发表于 2021-4-15 18:36
+
+
+怎么都开始瓦罗兰了，apex要步pubg后尘了吗
+
+
+-----
+
+####  rzrbtk  
+##### 35106#       发表于 2021-4-15 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946622&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-4-15 15:01</a>
+抽到了也要等四个月（已经抽完了 郡道落选）
+
+就是不知道一批有多少人</blockquote>
+我看是到引退都等不上力<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，估计她也随便…
+不如盼那个30w修模好了
+
+
+-----
+
+####  alcoholic1000  
+##### 35107#       发表于 2021-4-15 19:00
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/185514bqusnustv3diu311.png" referrerpolicy="no-referrer">
+
+
+<strong>【終焉介護】にじさんじいちゃん【月ノ美兎】.png</strong> (71.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 18:55 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 35108#       发表于 2021-4-15 19:19
+
+
+小海牛生日回终于动了
+
+
+-----
+
+####  Map-2  
+##### 35109#       发表于 2021-4-15 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50949033&amp;ptid=1969498" target="_blank">十四洲 发表于 2021-4-15 18:36</a>
+怎么都开始瓦罗兰了，apex要步pubg后尘了吗</blockquote>
+竞技性这么强的游戏，一般yhm把持得住嘛<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 35110#       发表于 2021-4-15 21:04
+
+
+沾点男权了，yhm就不能打竞技性游戏么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cheatdeath3  
+##### 35111#       发表于 2021-4-15 22:22
+
+
+取决于想不想在上分时碰个嘤嘤怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过嘤嘤怪周围通常会刷大腿就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdhai  
+##### 35112#       发表于 2021-4-15 23:04
+
+
+犬山哥发了个海苔男结婚报告。
+
+不知道我火星没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 35113#       发表于 2021-4-15 23:10
+
+
+草，犬山真结婚了啊？恭喜
+
+
+-----
+
+####  IDIDIDID  
+##### 35114#       发表于 2021-4-15 23:20
+
+
+感觉虹这个3.0和プロプロ的恋乃夜まい差不多档次，这个小箱最近窜的很快。
+
+
+-----
+
+####  free  
+##### 35115#       发表于 2021-4-15 23:34
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/233403sx7c10exfpxd6ve0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>yuni.jpg</strong> (306.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 23:34 上传
+
+
+-----
+
+####  OldGlory  
+##### 35116#       发表于 2021-4-15 23:51
+
+
+海苔男会卖婚礼门票吗？
+
+
+-----
+
+####  cckuku  
+##### 35117#       发表于 2021-4-16 01:14
+
+
+别卖门票了，卖婚礼握手券吧。海苔男，又称泥轰晚香玉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 35118#       发表于 2021-4-16 01:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">草，海苔男结婚了
+
+
+-----
+
+####  meatybobby  
+##### 35119#       发表于 2021-4-16 03:25
+
+
+苔姨丈夫是哪位？熊哥嗎
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  tiro_finale  
+##### 35120#       发表于 2021-4-16 05:22
+
+
+是和之前那个一直秀恩爱的么
+
+
+-----
+
+####  FCCHua  
+##### 35121#       发表于 2021-4-16 08:09
+
+
+不是那位<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bluebaby  
+##### 35122#       发表于 2021-4-16 08:13
+
+
+不是kuma吗，要不要这么劲爆，pro的三观要崩塌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  心垂万刃  
+##### 35123#       发表于 2021-4-16 08:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">伴娘是谁？小野还是大头?
+
+
+-----
+
+####  魔法使い2019  
+##### 35124#       发表于 2021-4-16 10:04
+
+
+祝福海苔男<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HinataY  
+##### 35125#       发表于 2021-4-16 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50953477&amp;ptid=1969498" target="_blank">bluebaby 发表于 2021-4-16 08:13</a>
+不是kuma吗，要不要这么劲爆，pro的三观要崩塌了
+
+ -- 傲娇地来自 Stage1未知客户端 ...</blockquote>
+不是kuma！是うかみ！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">太v了
+
+
+-----
+
+####  IDIDIDID  
+##### 35126#       发表于 2021-4-16 16:46
+
+
+苔苔这种在商言商的性格，婚前协议一定有一本书这么厚吧。
+
+
+-----
+
+####  qq845629713  
+##### 35127#       发表于 2021-4-16 17:11
+
+
+[https://youtu.be/c7m-NdefASc?t=4](https://youtu.be/c7m-NdefASc?t=4)
+
+
+-----
+
+####  proxima  
+##### 35128#       发表于 2021-4-16 17:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50958885&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-4-16 16:46</a>
+
+苔苔这种在商言商的性格，婚前协议一定有一本书这么厚吧。</blockquote>
+苔总赶着在扯证之前把存款全都拿出来买房，想必日本也有婚前财产公证吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 35129#       发表于 2021-4-16 19:01
+
+
+[https://www.youtube.com/watch?v= ... OOGEYVOXX-official-](https://www.youtube.com/watch?v=iGWMWspdrgE&amp;ab_channel=BOOGEYVOXX-official-)
+
+
+-----
+
+####  FCCHua  
+##### 35130#       发表于 2021-4-16 19:17
+
+
+绿仙，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 35131#       发表于 2021-4-16 19:49
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-16 20:10 编辑 
+
+虽然是白日，但这滤镜配上#緑仙誕生日LIVE​<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202104/16/194938jqez6dzpakh6ezhp.png" referrerpolicy="no-referrer">
+
+
+<strong>【3DLIVE】BIRTHDAY LIVE !! 大人に近づいた僕 !!【#緑仙誕生日LIVE​】-1.png.png</strong> (215.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-16 19:49 上传
+
+
+明天是小偶像3d披露
+
+Syl，白日的钢琴和声都是弦月藤士郎，老打工人了
+
+
+-----
+
+####  winda  
+##### 35132#       发表于 2021-4-16 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">尊妹是patra的一部分，好舔好甜
+
+
+                            

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-16 06:42** 
+> ## **本文件最后更新于2021-04-16 12:54** 
 
 
 
@@ -623,7 +623,7 @@ mea不行，cosmeu乳量总够吧
 
 
 U63[WYMACQDHOXRU2QM6V9R.png
-(8.92 KB, 下载次数: 1)
+(8.92 KB, 下载次数: 2)
 
 
 下载附件
@@ -1247,4 +1247,348 @@ syl，**的你们对犬山结婚这事要车几次啊<img src="https://static.sa
 感觉她过会该直接昏睡了
 
 
-                                             
+-----
+
+####  A2014720  
+##### 13623#       发表于 2021-4-16 14:49
+
+
+怎么感觉官组视频会偷偷换源的
+
+之前看的有个没特效现在又加上了？是我记忆修正嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 13624#       发表于 2021-4-16 15:04
+
+
+很多换源的
+
+
+-----
+
+####  时间在我手中  
+##### 13625#       发表于 2021-4-16 15:06
+
+
+ 本帖最后由 时间在我手中 于 2021-4-16 15:14 编辑 
+
+啥特效，歌吗
+
+讲道理写一个模板又不是很难的事，至今都没搞懂他们一些切片慢慢吞吞
+
+结果最后就是个10分钟手没废是个人都能打的玩意儿你不会是说最新的那个偶像歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那东西属于那种加个{\blur5}的一个标签就能实现的东西，打轴时候随便弄个template line或者安装文件夹automation找到那个批量添加标签的lua改一下里面文本都能批量应用的东西。
+
+虽然加了是好事但这个真的很基础，不知道你说的是不是这个
+
+
+-----
+
+####  A2014720  
+##### 13626#       发表于 2021-4-16 15:21
+
+
+就熟肉切片，总感觉加了些之前没有的特效<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13627#       发表于 2021-4-16 15:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50957927&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-16 15:21</a>
+
+就熟肉切片，总感觉加了些之前没有的特效</blockquote>
+哦，那多半是ae做的，你看谁剪的就懂了
+
+
+-----
+
+####  雪风utopia  
+##### 13628#       发表于 2021-4-16 15:31
+
+
+取自群友<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zz_hina  
+##### 13629#       发表于 2021-4-16 16:03
+
+
+表面天天弱智绿帽，吊人真被石锤有男朋友肯定嗷的一下疯掉一大堆<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  FCCHua  
+##### 13630#       发表于 2021-4-16 16:36
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13631#       发表于 2021-4-16 16:47
+
+
+没错我急了，有些人换个皮就要是要活的，真出事了的b样参考去年11月那会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pei23333  
+##### 13632#       发表于 2021-4-16 16:53
+
+
+愚人节那天真急了，想到了516之前那些半真半假的沙雕推，现在就得以她已经有男友的心态去看，免得以后真曝出来因为这个原因破防
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  鷹書たかしょ  
+##### 13633#       发表于 2021-4-16 17:09
+
+
+唔，感觉就算她现在宣布要备孕或者休产假也是可以接受的
+
+
+-----
+
+####  Mikumiku831  
+##### 13634#       发表于 2021-4-16 17:09
+
+
+我急了我急了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13635#       发表于 2021-4-16 17:10
+
+
+快4吧.jpg
+
+
+-----
+
+####  专业划水人员  
+##### 13636#       发表于 2021-4-16 17:30
+
+
+急了 急了等了两天都没有杏爱视频流出！我急疯了
+
+
+-----
+
+####  Joffre✔  
+##### 13637#       发表于 2021-4-16 17:37
+
+
+只要结婚不影响直播就无所谓了 而且有男朋友了杂谈素材也更多 不是更有意思吗 有了小小麻还能分享育儿经验 这不比脑死直播有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13638#       发表于 2021-4-16 17:41
+
+
+srds,结婚了这人不就没了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13639#       发表于 2021-4-16 17:53
+
+
+<img src="https://p.sda1.dev/1/35ed0ed1498e7bdce46369145fb09558/IMG_CMP_57234992.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 13640#       发表于 2021-4-16 18:06
+
+
+[https://bbs.saraba1st.com/2b/thread-1932768-1-1.html](https://bbs.saraba1st.com/2b/thread-1932768-1-1.html)
+
+请往这<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 13641#       发表于 2021-4-16 18:11
+
+
+没啥想说的,祝官组越办越红火<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13642#       发表于 2021-4-16 18:24
+
+
+ 本帖最后由 时间在我手中 于 2021-4-16 18:59 编辑 
+
+昨晚就看到他们审核群招【直播记录员】了，笑的我肚子痛
+
+狗都不去，爱谁谁<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">而且这东西这种时候招，人的确死的差不多了
+
+
+-----
+
+####  A2014720  
+##### 13643#       发表于 2021-4-16 18:53
+
+
+直播记录员，真就不看直播了呗<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13644#       发表于 2021-4-16 19:22
+
+
+如果按照之前的说法，他们中的大多数人作为贴贴人，不怎么会看完你咩姐的直播也是挺正常的8
+
+
+而根据公告里的说法，变成“沉舟”和“病树”是因为毕业的毕业社畜的社畜
+
+
+虽然不管哪种说法，在现在这个“鼓励日v喝废水”的时代下真能招到多少想干活能干活的已经确实要打一个大 大的问号了
+
+
+-----
+
+####  Mikumiku831  
+##### 13645#       发表于 2021-4-16 19:25
+
+
+为啥变了社畜就不看了
+
+幸幸苦苦上完一天斑
+
+唯一的慰籍只有小麻了
+
+
+每天就盼望直播预告跟直播那天<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13646#       发表于 2021-4-16 19:32
+
+
+解释的方式可以有一万种，但是没有结果就什么都不是
+
+反正还是那句话，好自为之
+
+
+-----
+
+####  A2014720  
+##### 13647#       发表于 2021-4-16 19:34
+
+
+字幕组审核只能考验能力，每位字幕组成员的态度还需要日后各位观众进行监督。用爱发电实属不易，保持热情更是难上加难，对所有有意加入字幕组的朋友致以诚挚的敬意。
+
+https://ngabbs.com/read.php?tid=26359420
+
+再倒点垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13648#       发表于 2021-4-16 19:36
+
+
+这文章还是火啊，仅在s1都以不同的方式见了3次
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|只是觉得很有意思|
+
+
+查看全部评分
+
+
+-----
+
+####  雪风utopia  
+##### 13649#       发表于 2021-4-16 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50960459&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-4-16 19:36</a>
+这文章还是火啊，仅在s1都以不同的方式见了3次</blockquote>
+s1，nga，q群，我都看了不下十次了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13650#       发表于 2021-4-16 19:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这说明围绕你咩姐的流量还是有的，那更得支棱起来了！
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 13651#       发表于 2021-4-16 19:45
+
+
+招人了？一眼看下去，怪不得那么摸鱼，因为没有翻译，就这感觉
+
+
+-----
+
+####  时间在我手中  
+##### 13652#       发表于 2021-4-16 20:18
+
+
+别尬黑，以前那会儿姑且还是有点狗屎腊肉存货的，只不过没校对或者因为一些我估计看不懂的理由反正就是没发
+
+后面就是缺剪辑缺乱七八糟的，到今天终于组内基本没几个人看直播了，可喜可贺可喜可贺
+
+
+-----
+
+####  往世雷书  
+##### 13653#       发表于 2021-4-16 20:40
+
+
+挺不懂的是，为什么组里的人不看直播失去热情了，依然坚定阻挠不让还看直播有热情的人进组，或者进组了还把持投稿权不让用字幕组投熟肉。我看好几次有字幕组成员用自己号投，组里不让吗？
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                            
