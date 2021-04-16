@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-16 12:54** 
+> ## **本文件最后更新于2021-04-16 23:37** 
 
 
 
@@ -1591,4 +1591,310 @@ s1，nga，q群，我都看了不下十次了<img src="https://static.saraba1st.
 [  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-                                            
+-----
+
+####  GRMeA104  
+##### 13654#       发表于 2021-4-16 20:57
+
+
+大概是,考虑到影响<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13655#       发表于 2021-4-16 20:58
+
+
+ 本帖最后由 时间在我手中 于 2021-4-16 21:03 编辑 
+
+首先你说的组员是谁？姑且说一下，以前那会儿他们组我没记错的话是要决定什么稿子能不能出的，难听点就是飞狗这类人觉得无聊的他们组就基本不会出
+
+经验之谈@千里夜雨，而且上面也说了所谓校对因素，但是据我所知有段时间应该不是问题才对，不如说他们组去年某段时间来看校对干活算是强度不低那种了
+
+最神奇的是竟然会缺轴，这种我一个人一晚上都能打2000条及以上的纯种苦力活以前他们不是不缺才对的吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+哦不对，你说阻挠人进组是不对的，因为你进了也会被傻卵贝贝壬排挤走
+
+
+-----
+
+####  A2014720  
+##### 13656#       发表于 2021-4-16 21:25
+
+
+熟肉还行吧，但没人看直播是真的离谱，也就是说之前那么多次转播事故合着就没人看呗，尼玛不止一次的评论栏没挡和评论区有nt在跳没人管，有时超管警告了都没人来，我就不知道你们连直播都不看在干啥，“真没人看三字母直播<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">”
+
+
+-----
+
+####  时间在我手中  
+##### 13657#       发表于 2021-4-16 21:31
+
+
+差不多得了，再说下去就是黑屁大会辣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如期待吊人明天来个无缝术曲歌回，我正好放假一瓶魔爪吞入肚完事
+
+今天还画了一下切嗣的令咒，开心每一天多好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+评论区nt是什么，szm或者某些流窜au8u吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那他们组至少杀海盗宣传肯定比谁都快是真的，毕竟个人执法和全组统一通过的意见的确不是一个级别
+
+
+-----
+
+####  makourisu-2  
+##### 13658#       发表于 2021-4-16 21:40
+
+
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经厌倦了听关于官组的各种事情，没意思。
+
+
+-----
+
+####  草牛  
+##### 13659#       发表于 2021-4-16 21:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/9f1670e2609037afabe4cc1b622a3014/F763FB3DDC49AD490B5C467861E99CD6.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 13660#       发表于 2021-4-16 21:44
+
+
+绝辣<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+你这么一描述，这不全体挂件人嘛<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+感情萨尔出群不是被正常贝贝人排挤，而是避免实质挂件群暴露吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13661#       发表于 2021-4-16 21:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鬼知道现在啥样，反正大家都入土了
+
+
+-----
+
+####  时间在我手中  
+##### 13662#       发表于 2021-4-16 21:48
+
+
+入土好，入土为安<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13663#       发表于 2021-4-16 21:51
+
+
+组里有人凭借个人喜好兴趣决定视频能不能放出来？他寄吧谁啊？
+
+
+别藏着掖着了，建议甩聊天截图直接橄榄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 13664#       发表于 2021-4-16 21:54
+
+
+直播不清楚 不过字幕组评论区到是一直有在管的 好几次想和评论区的8u亲切互动 字刚打完就评论不存在了
+
+
+-----
+
+####  Cortana  
+##### 13665#       发表于 2021-4-16 22:02
+
+
+草，原来这么拉的吗，本来还想做个打轴苦力呢，还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13666#       发表于 2021-4-16 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50961786&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-4-16 21:51</a>
+
+组里有人凭借个人喜好兴趣决定视频能不能放出来？他寄吧谁啊？
+
+
+别藏着掖着了，建议甩聊天截图直接橄榄[f:0 ...</blockquote>
+不是，就单纯不给过稿子啊，以前clay不就说过来着，美其名曰不够有趣所以不做了balabala，所以我和千里夜雨那会儿捡漏很开心啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+这方面没聊天记录，我就只有去年11月他们组知道大亏不能来之后那鬼样子的记录，也懒得发了，傻卵MK2我发给他都不肯发的，CJB玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|残念だったね|
+
+
+查看全部评分
+
+
+-----
+
+####  时雨rain  
+##### 13667#       发表于 2021-4-16 22:09
+
+
+总不能强迫别人看他们不愿看的直播是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13668#       发表于 2021-4-16 22:23
+
+
+议会斗争永无出头之日！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千木唯  
+##### 13669#       发表于 2021-4-16 22:29
+
+
+房管的话fafa看着的，杀人还是能杀的，但是不是皮套，其他就没办法了
+
+
+-----
+
+####  时间在我手中  
+##### 13670#       发表于 2021-4-16 22:32
+
+
+该睡了，反正你楼有人要去我不拦着。
+自己想好进去有没有卵用就行，别进去了跟个clay一样拿30元一万播放这些狗屎话说事就成<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 13671#       发表于 2021-4-16 22:47
+
+
+ 本帖最后由 FCCHua 于 2021-4-16 23:01 编辑 
+
+我没看错的话之后是不是有在犬山那边的联动？
+最起码18号有一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+那边封面图已经做出来了
+
+
+-----
+
+####  ashero  
+##### 13672#       发表于 2021-4-16 22:52
+
+
+18号 北京22点 梦追星川野良猫苔苔 苔苔频道
+
+
+-----
+
+####  时间在我手中  
+##### 13673#       发表于 2021-4-16 23:11
+
+
+终于发预告了啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">祈祷肥婆明晚播了，不然这周也太悲伤了
+
+
+-----
+
+####  GRMeA104  
+##### 13674#       发表于 2021-4-16 23:35
+
+
+弱智迫害回,完全get不到点啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 13675#       发表于 2021-4-17 00:19
+
+
+联动能不能少点<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13676#       发表于 2021-4-17 00:24
+
+
+能不能给毒唯点养料<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 13677#       发表于 2021-4-17 01:31
+
+
+她来力～～～
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  呓亘  
+##### 13678#       发表于 2021-4-17 01:49
+
+
+emmmm 要春游 得早起 听不了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  ashero  
+##### 13679#       发表于 2021-4-17 02:46
+
+
+开头来了圣女 这中间又来了miu 还挺新鲜的
+
+
+-----
+
+####  GRMeA104  
+##### 13680#       发表于 2021-4-17 04:23
+
+
+真是个罪恶的女人<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  路人庚  
+##### 13681#       发表于 2021-4-17 07:17
+
+
+熟悉的感觉回来了（指一觉醒来多了一个深夜tc档
+
+
+                                           
