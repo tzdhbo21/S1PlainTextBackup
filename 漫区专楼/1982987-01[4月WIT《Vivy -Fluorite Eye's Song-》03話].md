@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-13 16:04** 
+> ## **本文件最后更新于2021-04-16 11:48** 
 
 
 
@@ -4819,4 +4819,329 @@ B站还没上？
 啊vivy的黑丝好棒啊
 
 
-                                     
+-----
+
+####  oyss  
+##### 373#       发表于 2021-4-14 08:13
+
+
+ 本帖最后由 oyss 于 2021-4-14 08:14 编辑 
+
+恐‎怖分‎子这就退场了,他们要干的事情岂不是和熊一样的?
+
+
+还有ai之间直接交流
+
+同时可以直接瞬间传数据和跟人类速度一样的对话.....按道理跟熊说啥都应该一瞬间结束.不需要活人在旁边的时候还要慢慢争吵.
+
+
+-----
+
+####  aptx8285144  
+##### 374#       发表于 2021-4-14 09:09
+
+
+<blockquote>oyss 发表于 2021-4-14 08:13
+恐‎怖分‎子这就退场了,他们要干的事情岂不是和熊一样的?
+
+
+还有ai之间直接交流</blockquote>
+下一话预告最后出现那几个穿黑大衣的会不会就是kong  bu fenzi 
+
+
+-----
+
+####  gofbayrf  
+##### 375#       发表于 2021-4-14 09:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50928139&amp;ptid=1982987" target="_blank">JustW 发表于 2021-4-13 21:11</a>
+
+去大楼就议员你也能发现如果只是救的话熊哥一个人也能完成任务，但他还是非要让女主全程参与，我觉得有两 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">最后收束到第一話開場 VV在戰亂中唱歌感化AI吧...
+
+
+-----
+
+####  JustW  
+##### 376#       发表于 2021-4-14 09:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50931515&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-4-14 09:10</a>
+
+最后收束到第一話開場 VV在戰亂中唱歌感化AI吧...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">快进到底特律马库斯在机枪包围中率众歌唱感动世界
+
+
+-----
+
+####  gofbayrf  
+##### 377#       发表于 2021-4-14 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50931549&amp;ptid=1982987" target="_blank">JustW 发表于 2021-4-14 09:15</a>
+
+快进到底特律马库斯在机枪包围中率众歌唱感动世界</blockquote>
+換卡拉來  女人唱歌 男人死
+
+
+-----
+
+####  UnrealApartheid  
+##### 378#       发表于 2021-4-14 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50931515&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-04-14 09:10:49</a>
+最后收束到第一話開場 VV在戰亂中唱歌感化AI吧...</blockquote>还得拉上那个没感情的量产型的后辈当做扬声器和情绪波动扩大器
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  aptx8285144  
+##### 379#       发表于 2021-4-14 15:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50914844&amp;ptid=1982987" target="_blank">第贰个十年 发表于 2021-4-12 16:39</a>
+
+熊有问题板上钉钉，只是是什么问题那都不好说，黑幕也好反逻辑也好就看剧本怎么写都行的。
+
+但我说句老实话 ...</blockquote>
+话说如果粉毛给日笠那东西是和下坠计划有关的，那是不是好人也得打个问号先了，反正估计都有隐情吧
+
+
+-----
+
+####  rosennesta  
+##### 380#       发表于 2021-4-15 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50929516&amp;ptid=1982987" target="_blank">aptx8285144 发表于 2021-4-13 23:19</a>
+
+其实第三话日笠的这首约定会再相遇配合星空以及和妹妹相遇，粉毛掉头等片段冲击力感觉远大于前面两话任何时 ...</blockquote>
+额，捉个虫，看ED的表记，OP和ED应该是专门请了歌手来唱，而不是CV本人上的<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/15/000707pigpp09i00epkmk9.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-04-15_00-05-27.png</strong> (203.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 00:07 上传
+
+
+-----
+
+####  草从  
+##### 381#       发表于 2021-4-15 01:07
+
+
+ 本帖最后由 草从 于 2021-4-15 01:15 编辑 
+
+可以设个投票了熊是ai这边 帮助女主成为反叛ai领袖
+
+熊是ai这边 阻止女主帮助人类
+
+熊是人类这边 帮助女主帮助人类
+
+熊是人类这边 阻止女主成为反叛ai领袖
+
+其他
+
+
+-----
+
+####  foreverbelmont  
+##### 382#       发表于 2021-4-15 02:01
+
+
+大酒店其实就是个阿克西斯吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  云野十五  
+##### 383#       发表于 2021-4-15 02:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50928447&amp;ptid=1982987" target="_blank">skmdfong 发表于 2021-4-13 21:40</a>
+
+3话掉头回来了，是熟悉的味道，等一个重振原创荣光吾辈义不容辞</blockquote>
+甲铁城也掉头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  云野十五  
+##### 384#       发表于 2021-4-15 02:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50940865&amp;ptid=1982987" target="_blank">rosennesta 发表于 2021-4-15 00:07</a>
+
+额，捉个虫，看ED的表记，OP和ED应该是专门请了歌手来唱，而不是CV本人上的
+
+
+ ...</blockquote>
+和C&amp;T一样两组人马吧
+
+
+-----
+
+####  云野十五  
+##### 385#       发表于 2021-4-15 02:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50929414&amp;ptid=1982987" target="_blank">Mika-S 发表于 2021-4-13 23:08</a>
+
+这新人类妹妹一脸死相，编剧能不能别逮着人家一家薅啊，过分了）</blockquote>
+熊说不能改变未来，未来就是旭日死光了，炸大楼本来就没死人所以无所谓，果然对于编剧还是姐可妹亦可
+
+
+-----
+
+####  战星辰  
+##### 386#       发表于 2021-4-15 09:00
+
+
+第三集最后一段的演出真的有味了，建议赶紧回到现在暗杀长月达平。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">应该就至少不会崩主线了
+
+
+-----
+
+####  flypig_zhy  
+##### 387#       发表于 2021-4-15 09:42
+
+
+提然觉得女主脖子上的信号灯和底特律看起来有点相似啊
+
+
+-----
+
+####  roamer  
+##### 388#       发表于 2021-4-16 03:15
+
+
+没人觉得这个未来ai一开始眼睛造型有点像传送门里的吗？感觉是个二五仔
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Piano-Forest  
+##### 389#       发表于 2021-4-16 11:26
+
+
+#3 原画
+<img src="https://p.sda1.dev/1/c8cdd717a38ac71d77001e04e51f8704/EyxllN_U8AEv5Zq.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/29c4ab69bf7d703872bbfd470da2931b/Eyxr0L6VIAEiPIT.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/2c68f2601d733a6883378706e1501f1e/EyxsvPgVoAMl-FA.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/9ed375e539cacd8320998bc5453631bb/Eyxqi76VcAEFktu.jpg" referrerpolicy="no-referrer">
+
+
+[KEYWORDS]
+
+・３話キーワード解説（シンギュラリティポイント、サンライズ、シスターズ）
+
+
+シンギュラリティポイント
+
+#03
+
+今後百年の間のいくつか存在するAI史の転換点。これを是正する事により、百年後、AIによって人間が殺される戦争を防ぐことができると考えられている。
+
+
+サンライズ
+
+#03
+
+エステラが現在オーナーを務める宇宙ホテル。マツモトの話すAI史では、エステラの欠陥が原因となり落下事件（通称：洛陽事件）が起こる。
+<img src="https://p.sda1.dev/1/25ca1a0ee0da100aa0dc65348a1deb5f/03_01.jpg" referrerpolicy="no-referrer">
+
+
+シスターズ
+
+#03
+
+美しい声が特徴のAIモデル。ヴィヴィの直系の後継機。
+
+
+[Background art]
+
+・サンライズが見える景色
+<img src="https://p.sda1.dev/1/fc17f4cae13b74e482a76a0380b7ded4/04.jpg" referrerpolicy="no-referrer">
+
+・ヴィヴィの部屋
+<img src="https://p.sda1.dev/1/e5725dc6df07b9f654703a7d89dacfde/05.jpg" referrerpolicy="no-referrer">
+
+
+4話 Ensemble for Polaris -私たちの約束-
+
+
+「この子は絶対に、無事に地球へ帰す」
+
+
+宇宙ホテル”サンライズ”を地上へ落とすとされるAI・エステラ。
+
+しかし、ヴィヴィはエステラと接していく中で、マツモトの情報と彼女の印象との違いに疑問を抱くようになる。そんな折、マツモトの想定よりも大幅に早くサンライズのコントロールが失われてしまう。
+
+混乱の中、ヴィヴィは乗客やモモカの妹・ユズカを救うため、原因究明に動き出す――。
+<img src="https://p.sda1.dev/1/2efd6ee66252371026b46a0c141ddc9a/story_1952_photo_161847284400738677.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/1f470d4d657b76aa96c443fd45f293f4/story_1952_photo_1618472845666214157.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/e38fb0cfba5315a56184740486f2c99b/story_1952_photo_1618472848049986623.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/52525581ed07508c4ae8de17a4d7f8b1/story_1952_photo_1618472849505900319.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  无聊者X  
+##### 390#       发表于 2021-4-16 12:14
+
+
+洛阳事件海星<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 391#       发表于 2021-4-16 18:58
+
+
+无论是几年前的底特律的游戏，西部世界，还是如今这部，设定AI和人类几乎没什么区别，我不知道这该说是好还是不好，但这样设计的往往会导致后期剧情扯开AI这层皮，就单单是两拨人类争夺主导权的的理念斗争。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  timerrr  
+##### 392#       发表于 2021-4-16 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50960155&amp;ptid=1982987" target="_blank">爱吃冻鳗的猫 发表于 2021-4-16 18:58</a>
+
+无论是几年前的底特律的游戏，西部世界，还是如今这部，设定AI和人类几乎没什么区别，我不知道这该说是好还 ...</blockquote>
+所以这样的作品看着爽，但上限不高，爆米花图一乐罢了。
+
+
+-----
+
+####  Sorastlos  
+##### 393#       发表于 2021-4-16 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50960155&amp;ptid=1982987" target="_blank">爱吃冻鳗的猫 发表于 2021-4-16 18:58</a>
+
+无论是几年前的底特律的游戏，西部世界，还是如今这部，设定AI和人类几乎没什么区别，我不知道这该说是好还 ...</blockquote>
+底特律那时候就给人批评过了
+
+说是机器人，换成打了思想钢印的尼格或者印第安人没有任何的区别
+
+一方面是Cage这编剧实在三流，另一方面一大批编剧的想象力实在太低，或者说他们觉得观众只能接受这种设定
+
+
+                                    
