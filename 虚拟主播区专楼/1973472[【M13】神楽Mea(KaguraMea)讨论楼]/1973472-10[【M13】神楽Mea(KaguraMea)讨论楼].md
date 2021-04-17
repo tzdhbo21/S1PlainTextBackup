@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-16 23:37** 
+> ## **本文件最后更新于2021-04-17 10:37** 
 
 
 
@@ -1741,10 +1741,11 @@ s1，nga，q群，我都看了不下十次了<img src="https://static.saraba1st.
 评分
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| zaz5554| + 1|けれども、彼は、ここでさようなら(.|
 | 路人庚| + 1|残念だったね|
 
 
@@ -1897,4 +1898,326 @@ emmmm 要春游 得早起 听不了
 熟悉的感觉回来了（指一觉醒来多了一个深夜tc档
 
 
-                                           
+-----
+
+####  雪风utopia  
+##### 13682#       发表于 2021-4-17 08:17
+
+
+我醒了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13683#       发表于 2021-4-17 08:24
+
+
+她几点下的 今天还有吗……
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  呓亘  
+##### 13684#       发表于 2021-4-17 08:56
+
+
+好像4点下的？估计今天还有
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  时间在我手中  
+##### 13685#       发表于 2021-4-17 09:01
+
+
+等老子补完剩下一半再告诉你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面一小时反正就是做饭，吃，开头提了一下圣女，
+
+
+-----
+
+####  Mikumiku831  
+##### 13686#       发表于 2021-4-17 09:45
+
+
+有做饭
+
+那要去听一下录播了
+
+
+-----
+
+####  时间在我手中  
+##### 13687#       发表于 2021-4-17 09:45
+
+
+ 本帖最后由 时间在我手中 于 2021-4-17 09:49 编辑 
+
+两小时左右这人手机砸到自己胸那块上了，看来要更平了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13688#       发表于 2021-4-17 10:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">tc麻真好
+
+
+-----
+
+####  Dualist彩  
+##### 13689#       发表于 2021-4-17 11:02
+
+
+补完了，想娶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 13690#       发表于 2021-4-17 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50964620&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-17 09:45</a>
+
+两小时左右这人手机砸到自己胸那块上了，看来要更平了125分左右，这臭女人到电脑前噼里啪啦的敲键盘 ...</blockquote>
+不是坦克 安心了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13691#       发表于 2021-4-17 11:25
+
+
+肉体民今天又赢了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13692#       发表于 2021-4-17 11:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">躺下来肉塌下来了而已，坦克民不可战胜！
+
+
+-----
+
+####  thisisaspider  
+##### 13693#       发表于 2021-4-17 12:20
+
+
+我是飞机场民了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 13694#       发表于 2021-4-17 12:38
+
+
+不管是坦克民还是肉体厨,只有平胸这一点是大家的共识<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zc1996zc  
+##### 13695#       发表于 2021-4-17 12:39
+
+
+说不是坦克的建议参考一下自己的胸和肚子
+
+
+-----
+
+####  笋狐  
+##### 13696#       发表于 2021-4-17 12:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克和平胸不兼容，共你个锤子
+
+
+-----
+
+####  Dualist彩  
+##### 13697#       发表于 2021-4-17 13:02
+
+
+什么粉色锉刀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13698#       发表于 2021-4-17 13:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一般坦克躺下了胸上也没肉，说明不了什么
+
+
+-----
+
+####  A2014720  
+##### 13699#       发表于 2021-4-17 13:40
+
+
+ 本帖最后由 A2014720 于 2021-4-17 13:42 编辑 
+
+什么，胸？你们是不是摸错了
+<img src="https://p.sda1.dev/1/417e3c4b347a9f0483918ba985e23be2/-108c6254b6b0c5e5.png" referrerpolicy="no-referrer">
+
+不会真有人觉得坦克就有胸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13700#       发表于 2021-4-17 14:00
+
+
+东西到了，好耶，五一回家打个tag发推完事<img src="https://p.sda1.dev/1/53e8200bdb7199dc46e6ae2add86e650/IMG_CMP_98975039.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  鷹書たかしょ  
+##### 13701#       发表于 2021-4-17 14:33
+
+
+我的早就到了，结果没光驱都没拆封只能摆着收藏（
+
+
+-----
+
+####  ashero  
+##### 13702#       发表于 2021-4-17 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50964362&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-17 09:01</a>
+
+等老子补完剩下一半再告诉你昨晚我11点多睡着早上6点多醒了，开了电脑下了录播光速手机开听录播十分 ...</blockquote>
+不只是提一下 本人也在评论栏出现了一回儿 中段miu也来了发了几条评论就溜了
+
+
+-----
+
+####  时间在我手中  
+##### 13703#       发表于 2021-4-17 15:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50967000&amp;ptid=1973472" target="_blank">ashero 发表于 2021-4-17 14:49</a>
+
+不只是提一下 本人也在评论栏出现了一回儿 中段miu也来了发了几条评论就溜了 ...</blockquote>
+啊，没看评论区，早上只能用手机办公室摸鱼补，主要是miu的评论这人没打招呼w
+
+
+-----
+
+####  Dualist彩  
+##### 13704#       发表于 2021-4-17 18:11
+
+
+叔叔还没有忘记小麻，麻の枕营业，再起！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  依旧ing  
+##### 13705#       发表于 2021-4-17 18:12
+
+
+[https://www.bilibili.com/video/BV1bb4y1D7gg](https://www.bilibili.com/video/BV1bb4y1D7gg)
+
+叔叔还没有彻底丢掉你麻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13706#       发表于 2021-4-17 18:13
+
+
+什么枕营业
+
+
+-----
+
+####  Mikumiku831  
+##### 13707#       发表于 2021-4-17 18:18
+
+
+叔叔轻点  换新皮就死命屮是吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13708#       发表于 2021-4-17 18:20
+
+
+小麻每晚都换上自己的cos服进出叔叔的房间吗？<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  azccc52  
+##### 13709#       发表于 2021-4-17 18:20
+
+
+所以能不能找个理由把扫楼视频放出来<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13710#       发表于 2021-4-17 18:23
+
+
+看到这种视频会感到很不安，请叔叔不要再发了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  往世雷书  
+##### 13711#       发表于 2021-4-17 18:31
+
+
+字幕组一直转发招人公告，我猜根本没人进<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Dualist彩  
+##### 13712#       发表于 2021-4-17 18:32
+
+
+ 本帖最后由 Dualist彩 于 2021-4-17 18:34 编辑 
+
+除非扫楼视频里充满了泔水元素，不然。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，快进到《同好会动了官组的蛋糕》<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 13713#       发表于 2021-4-17 18:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">官组这是没招到多少人吗居然又发了一遍招人动态
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                          
