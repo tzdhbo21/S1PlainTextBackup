@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-16 12:54** 
+> ## **本文件最后更新于2021-04-17 12:52** 
 
 
 
@@ -8358,4 +8358,404 @@ Syl，白日的钢琴和声都是弦月藤士郎，老打工人了
 <img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">尊妹是patra的一部分，好舔好甜
 
 
-                            
+-----
+
+####  FCCHua  
+##### 35133#       发表于 2021-4-16 22:05
+
+
+ 本帖最后由 FCCHua 于 2021-4-16 23:03 编辑 
+
+差点忘了犬山今晚直播是超美丽3d<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+这同接涨的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+你好忙啊，联动加视频排满了
+
+
+-----
+
+####  IDIDIDID  
+##### 35134#       发表于 2021-4-16 22:09
+
+
+海苔男，你好胖！
+
+
+-----
+
+####  渡鸦骑士  
+##### 35135#       发表于 2021-4-16 22:19
+
+
+濑户乃とと也不错嘛……
+reality什么时候死一死<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 35136#       发表于 2021-4-16 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50951893&amp;ptid=1969498" target="_blank">IDIDIDID 发表于 2021-4-15 23:20</a>
+
+感觉虹这个3.0和プロプロ的恋乃夜まい差不多档次，这个小箱最近窜的很快。 ...</blockquote>
+现在正在学中文，简体+拼音，评论区🐸🐸大暴怒，笑死了。
+
+
+-----
+
+####  空集  
+##### 35137#       发表于 2021-4-16 22:30
+
+
+ 本帖最后由 空集 于 2021-4-16 22:31 编辑 
+
+才发现郡道在搞这个不留非会限档的asmr
+但是并不是很asmr 感觉更接近用amsr麦的可爱闲聊
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  超能力者stven  
+##### 35138#       发表于 2021-4-16 23:40
+
+
+<blockquote>渡鸦骑士 发表于 2021-4-16 22:19
+濑户乃とと也不错嘛……
+
+reality什么时候死一死</blockquote>
+死了也不会情况更好
+
+
+-----
+
+####  渡鸦骑士  
+##### 35139#       发表于 2021-4-16 23:59
+
+
+<img src="https://p.sda1.dev/1/7f09fc02cb7e4fd08fa2fd2ce1bb8c2d/36342234cbf365ce.jpg" referrerpolicy="no-referrer">react还能出新人啊……
+也是，剪子的广告都打到秋叶原上了，上一个还是蓝莓
+
+
+-----
+
+####  rzrbtk  
+##### 35140#       发表于 2021-4-17 00:18
+
+
+ 本帖最后由 rzrbtk 于 2021-4-17 00:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50962140&amp;ptid=1969498" target="_blank">空集 发表于 2021-4-16 22:30</a>
+
+才发现郡道在搞这个不留非会限档的asmr
+
+但是并不是很asmr 感觉更接近用amsr麦的可爱闲聊
+
+—— 来自 Xiaomi  ...</blockquote>
+她那个不能当asmr用，顶多是台词回，浪费好麦<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">……
+
+
+省一楼，郡道时隔六月，趁箱推人都去ark，终于跑去mc了，
+
+播的内容也是，观众也是，跟刚出道的时候对比真的是感慨良多，也算是实现一年前的目标了，挺好
+
+省一楼，草，郡道在夜里整地，刷出了魔女，评论栏一堆的“可怕”、“是魔女的声音”，郡道完全无反应，过了快一分钟看到“郡道快跑！”才反应过来，还“原来是真的魔女啊~还以为说我坏话~”，
+
+今天状态很好嘛！
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|说我坏话草|
+
+
+查看全部评分
+
+
+-----
+
+####  kangkangsama  
+##### 35141#       发表于 2021-4-17 01:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50963041&amp;ptid=1969498" target="_blank">rzrbtk 发表于 2021-4-17 00:18</a>
+
+她那个不能当asmr用，顶多是台词回，浪费好麦……
+
+
+省一楼，郡道时隔六月，趁箱推人都去ark，终于 ...</blockquote>
+都开始直球“之前还没有漏出配信者本性的我”了<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 35142#       发表于 2021-4-17 01:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50963330&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-4-17 01:04</a>
+
+都开始直球“之前还没有漏出配信者本性的我”了</blockquote>
+今天，不如说最近都，兴致很高的样子，玩箱游做剪辑还英语进出，不知是旅游充电还是被马内甲画饼，
+
+虽然同接还是很惨，订阅也只在被king提一嘴那天涨了，但作为观众还是爽到了，希望保持久一点啊<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 35143#       发表于 2021-4-17 19:18
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-17 19:21 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/191541n0j3c111bapkhvoa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【#月下の桜】なんかくれんの！？プレゼント王決定戦【にじさんじ】.jpg.jpg</strong> (325.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 19:15 上传
+
+
+月下の桜再開
+
+明日の16:30から！！
+
+まさかのムンブロのみんなが俺としぃしぃを祝ってくれるみたいですいいんすかああああああああああああああああああああああああああああ😭😭😭😭😭😭😭😭😭😭😭😭😭😭😭
+
+（确实是，但很怪[https://www.youtube.com/watch?v=lLUqAmn16_M](https://www.youtube.com/watch?v=lLUqAmn16_M)
+
+
+-----
+
+####  kangkangsama  
+##### 35144#       发表于 2021-4-17 19:59
+
+
+<blockquote>alcoholic1000 发表于 2021-4-17 19:18
+月下の桜再開
+
+明日の16:30から！！
+
+まさかのムンブロのみんなが俺としぃしぃを祝ってくれるみたいですいい ...</blockquote>
+而且这是线下
+
+
+-----
+
+####  IDIDIDID  
+##### 35145#       发表于 2021-4-17 20:03
+
+
+顶流虹女特有福利
+
+
+-----
+
+####  purdre  
+##### 35146#       发表于 2021-4-17 20:06
+
+
+相羽，我的相羽<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 35147#       发表于 2021-4-17 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 虹女特有的高质量3D，我虹传统就是优秀的3D了
+
+
+-----
+
+####  alcoholic1000  
+##### 35148#       发表于 2021-4-17 20:13
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-17 20:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50969736&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-4-17 19:59</a>
+
+而且这是线下</blockquote>
+关系真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+Syl，小偶像，可动NO.1
+
+这两个伴舞也有点基础啊，中之人谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/17/202506yvie9c3m3x3iz3si.png" referrerpolicy="no-referrer">
+
+
+<strong>【3Dお披露目】CAN'T WAKE UP FROM &amp;quot;MY&amp;quot; DREAM.【相羽ういは:にじさんじ】.png.png</strong> (172.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 20:25 上传
+
+
+-----
+
+####  FCCHua  
+##### 35149#       发表于 2021-4-17 20:15
+
+
+ 本帖最后由 FCCHua 于 2021-4-17 20:29 编辑 
+
+小偶像你好强大<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+sky来了，我满足了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+那个动作是认真的吗？？反重力？？？身体好柔软啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 35150#       发表于 2021-4-17 20:17
+
+
+这大长腿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">按真实比例做的吧
+
+
+-----
+
+####  集合酱  
+##### 35151#       发表于 2021-4-17 20:18
+
+
+我一直都是偶像厨啊！
+
+
+-----
+
+####  Suny08  
+##### 35152#       发表于 2021-4-17 20:24
+
+
+刚刚那个下腰中之人看起来比模型还要高
+
+
+-----
+
+####  lhawp  
+##### 35153#       发表于 2021-4-17 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这就是偶像吗，太强了
+
+
+-----
+
+####  purdre  
+##### 35154#       发表于 2021-4-17 20:25
+
+
+这健康壮实的大长腿，轻快的动作，小霸王，我的超人!
+
+
+-----
+
+####  超能力者stven  
+##### 35155#       发表于 2021-4-17 20:33
+
+
+这3D披露来了多少人···有统计吗
+
+
+-----
+
+####  シナモンロール  
+##### 35156#       发表于 2021-4-17 20:39
+
+
+薬と謎の兎人とひまわり
+
+。。。マジでもぺもぺ<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 35157#       发表于 2021-4-17 20:41
+
+
+纯自己听的，大概有错漏
+
+最开始是千寻（？）、夜见和走、圭利旁白，弦月和翡翠，绿仙、德比和小护士？fumi、长尾景和野猫？
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/204056vw8e3tnswlwnadgv.png" referrerpolicy="no-referrer">
+
+
+<strong>【3Dお披露目】CAN'T WAKE UP FROM &amp;quot;MY&amp;quot; DREAM.【相羽ういは:にじさんじ】-2.png.png</strong> (321.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 20:40 上传
+
+
+-----
+
+####  シナモンロール  
+##### 35158#       发表于 2021-4-17 20:42
+
+
+哇啊啊啊啊，是clear！yattaze！
+
+
+-----
+
+####  シナモンロール  
+##### 35159#       发表于 2021-4-17 20:46
+
+
+看到黑客拉拉扯扯还是有点微妙地酸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 35160#       发表于 2021-4-17 20:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这人望，唯一的遗憾是gamers没来了
+
+
+
+
+-----
+
+####  黑之和  
+##### 35161#       发表于 2021-4-17 20:50
+
+
+小偶像！小偶像！！！<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 35162#       发表于 2021-4-17 20:50
+
+
+ 本帖最后由 FCCHua 于 2021-4-17 20:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50970195&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-4-17 20:41</a>
+纯自己听的，大概有错漏
+
+最开始是千寻（？）、夜见和走、圭利旁白，弦月和翡翠，绿仙、德比和小护士？fumi ...</blockquote>
+最开始应该是小千和uge，一起玩apex的
+夜见 走姐那里还有牛姨
+最后还有不破，爱园，京子？
+
+
+                           
