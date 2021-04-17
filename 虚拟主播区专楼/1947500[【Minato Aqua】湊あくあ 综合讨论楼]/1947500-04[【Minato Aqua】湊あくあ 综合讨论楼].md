@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-15 04:46** 
+> ## **本文件最后更新于2021-04-17 05:39** 
 
 
 
@@ -14159,4 +14159,395 @@ TAS Apex<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" re
 用无痕网页搜也一样
 
 
-         
+-----
+
+####  doushike  
+##### 5702#       发表于 2021-4-15 12:55
+
+
+盐水的mc建筑都没活过蜜月期，已经决裂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5703#       发表于 2021-4-15 12:59
+
+
+盐→水 应该是真的
+
+水→盐 感觉就要打个问号了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|欢乐多,天性薄凉|
+
+
+查看全部评分
+
+
+-----
+
+####  Maonpuyo  
+##### 5704#       发表于 2021-4-15 13:05
+
+
+水→不管是谁都要打问号吧，天性凉薄天性凉薄
+
+
+-----
+
+####  猫南北  
+##### 5705#       发表于 2021-4-15 13:20
+
+
+上次直播已经是10天前了。。。
+
+
+-----
+
+####  星の守  
+##### 5706#       发表于 2021-4-15 13:26
+
+
+嗨呀，就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  17119854  
+##### 5707#       发表于 2021-4-15 14:07
+
+
+诗音限定说生病时夸和486是来问过的，不过公开里两个人都很少提对方了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|这次摸也是生病吗，会限说了？.|
+
+
+查看全部评分
+
+
+-----
+
+####  ylssb10438  
+##### 5708#       发表于 2021-4-15 15:58
+
+
+水→game才是最真的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 5709#       发表于 2021-4-15 16:06
+
+
+只有aquapex是真的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5710#       发表于 2021-4-15 18:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">所以能回来打apex吗，十天了，你的apex很想念你
+
+
+-----
+
+####  wwddrte  
+##### 5711#       发表于 2021-4-15 18:08
+
+
+ 本帖最后由 wwddrte 于 2021-4-15 21:59 编辑 
+
+说不定已经用别的号开黑组排上了大师<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凛子也想要五个  
+##### 5712#       发表于 2021-4-15 21:40
+
+
+aqua最喜欢apex了，说不定私下和野男人开黑了呢？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki|-2||
+| 499| + 1|平衡|
+| 星の守|-1|你怎么知道了，今天我和夸宝玩了一整天的ap.|
+
+
+查看全部评分
+
+
+-----
+
+####  Maonpuyo  
+##### 5713#       发表于 2021-4-15 23:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">才发现，这是来了个小博禹还是mk2？
+
+
+-----
+
+####  fangjun96  
+##### 5714#       发表于 2021-4-16 10:26
+
+
+单箭头届不到，水你好无情<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 17119854| + 1|2月的事，这次摸没讲理由|
+
+
+查看全部评分
+
+
+-----
+
+####  凛子也想要五个  
+##### 5715#       发表于 2021-4-16 12:57
+
+
+#湊aqua中之人披露
+
+
+<img src="https://img.saraba1st.com/forum/202104/16/125733vhlni2vkhqqh0lkk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3c605edfae18a16a.jpg</strong> (121.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-16 12:57 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 6战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki|-2||
+| 雪风utopia| + 1|好评加鹅|
+| 499| + 1|为啥都在扣分啊|
+| fangjun96|-1|xby|
+| A2014720|-1|ybb|
+| Maonpuyo|-1|像条狗一样|
+
+
+查看全部评分
+
+
+-----
+
+####  FCCHua  
+##### 5716#       发表于 2021-4-16 13:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 5717#       发表于 2021-4-16 13:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 5718#       发表于 2021-4-16 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50950858&amp;ptid=1947500" target="_blank">凛子也想要五个 发表于 2021-4-15 21:40</a>
+aqua最喜欢apex了，说不定私下和野男人开黑了呢？
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">天然钻二的纯度岂是那些smurf能撼动的?
+
+
+-----
+
+####  面具13  
+##### 5719#       发表于 2021-4-16 18:55
+
+
+隔离期快结束了，马上就能见到夸宝了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+本来说等半个月再看录播，还是没忍住，一个星期都没到就去看夸宝复播没，结果居然一点动静都没。不过一个星期没想着看夸宝感觉也没缺啥，下星期感觉也能随她摸。
+
+
+对夸宝而言观众终究是路人，没有做生存报告的义务；观众自己给自己套个幻想中的角色，去各种担心，感觉太傻、太吃亏了，还是只把夸宝当一个内容提供者看好些。
+
+
+-----
+
+####  星の守  
+##### 5720#       发表于 2021-4-16 19:01
+
+
+每个人都有自己不同的看法，非得教人做粉丝多少沾点<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5721#       发表于 2021-4-16 19:03
+
+
+也没说你要像我一个心态啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nevp  
+##### 5722#       发表于 2021-4-16 23:21
+
+
+终于大家还是要发病了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+刚刚推好像动了，难道说<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5723#       发表于 2021-4-16 23:47
+
+
+关注 844→845
+
+
+-----
+
+####  doushike  
+##### 5724#       发表于 2021-4-17 01:13
+
+
+看发病多了就动一动，老pua了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 5725#       发表于 2021-4-17 09:02
+
+
+感觉是工作性质上的关注，不知道是否和这段时间的消失有关。今天能发个推救救疯了的crew吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 5726#       发表于 2021-4-17 09:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">人生往往是摸的透彻，盼夸归。
+
+
+-----
+
+####  Maonpuyo  
+##### 5727#       发表于 2021-4-17 10:26
+
+
+马内甲也能帮发推的，关注+1也就说明本人还活着或者在公司视角里人还活着罢了
+
+
+-----
+
+####  zpy393  
+##### 5728#       发表于 2021-4-17 10:31
+
+
+前几天说好的crew习惯了不发病的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这都还不到两个星期还没破纪录呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 5729#       发表于 2021-4-17 12:29
+
+
+夸宝怎么还在闹消失啊
+
+
+-----
+
+####  面具13  
+##### 5730#       发表于 2021-4-17 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50335152&amp;ptid=1947500" target="_blank">面具13 发表于 2021-2-14 23:53</a>
+听到她说看到推上粉丝因为看不到直播又不知道什么时候会复播而感到撒比西时开心得眼泪都流下来的时候，我感 ...</blockquote>
+按照上次长摸回来的说法看，她玩消失有可能是crew的撒碧洗发病推的能量不足需要补充了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+她这超长时间失联不外乎三种情况：（1）处在事实上无法对外联系的状态；（2）私人原因忙，又懒得给观众造不播的借口，观众的担心她不觉得是需要在意、需要避免的，甚至担心还是自己被需要的表现；（3）遇到闹心事了，就自闭起来，仿佛整个世界就剩下她和她的问题，自然无暇估计因为自己失联造成的collateral damage。
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 5731#       发表于 2021-4-17 13:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你猜这么多信不信把你打成下一个感知树圣经
+
+
+        
