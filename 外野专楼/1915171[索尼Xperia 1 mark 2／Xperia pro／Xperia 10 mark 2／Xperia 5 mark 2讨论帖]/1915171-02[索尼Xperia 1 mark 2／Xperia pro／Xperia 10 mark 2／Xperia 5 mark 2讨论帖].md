@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-09 03:39** 
+> ## **本文件最后更新于2021-04-17 03:43** 
 
 
 
@@ -3017,7 +3017,14 @@ ZACKBUKS: 索尼 Xperia 1 II 国际版默认使用咕咕相册，但有很多朋
 ####  黑色风衣  
 ##### 1707#       发表于 2020-10-24 03:57
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=49110620&amp;ptid=1915171" target="_blank">提挈天地 发表于 2020-10-21 10:58</a>
+
+1Ⅱ和5Ⅱ屏幕什么调光有知道的吗？
+
+
+—— 来自 vivo NEX S, Android 10上的 S1Next-鹅版 v2.4.3 ...</blockquote>
+pwm，你用慢速摄像头拍一下就知道
 
 
 -----
@@ -15192,4 +15199,401 @@ XZ3换马克兔 最大的问题是长时间连wifi后SIM卡会直接信号清空
 当然有了
 
 
-            
+-----
+
+####  无印凉粉  
+##### 2612#       发表于 2021-4-9 15:26
+
+
+话说，5M2不开高刷是多少刷新率？60还是30？
+
+
+-----
+
+####  我很费纸  
+##### 2613#       发表于 2021-4-9 17:18
+
+
+ 本帖最后由 我很费纸 于 2021-4-9 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50884522&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-4-9 15:26</a>
+话说，5M2不开高刷是多少刷新率？60还是30？</blockquote>
+60……手机上你想找30hz屏幕那是真的稀有，多少年没见过30hz屏了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然你也可以用游戏增强器锁40hz
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  无印凉粉  
+##### 2614#       发表于 2021-4-10 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50885780&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-9 17:18</a>
+
+60……手机上你想找30hz屏幕那是真的稀有，多少年没见过30hz屏了啊
+
+
+当然你也可以用游戏增强器锁4 ...</blockquote>
+那就没办法了，开了高刷完全回不去。
+
+
+-----
+
+####  luciffer  
+##### 2615#       发表于 2021-4-11 09:54
+
+
+这玩意淘宝价格在都宣称国行的情况下怎么差别这么大
+
+
+-----
+
+####  被雨困住的城市  
+##### 2616#         楼主| 发表于 2021-4-12 13:07
+
+
+ 本帖最后由 被雨困住的城市 于 2021-4-12 15:19 编辑 
+
+话说5ii的防误触怎么样
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+-----
+
+####  pissca  
+##### 2617#       发表于 2021-4-13 19:59
+
+
+有没有大佬用5II玩日服FGO的啊，更新11后这增强器弄不了60帧了啊
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  我很费纸  
+##### 2618#       发表于 2021-4-14 08:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50912813&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-4-12 13:07</a>
+话说5ii的防误触怎么样
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 S1Next-鹅版 v2.2.2.1 ...</blockquote>
+直屏就是最好的防误触——再加上稍微做了点边缘防误触，误触概率不算大吧。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  被雨困住的城市  
+##### 2619#         楼主| 发表于 2021-4-14 12:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50931226&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-14 08:34</a>
+直屏就是最好的防误触——再加上稍微做了点边缘防误触，误触概率不算大吧。
+
+—— 来自 Sony XQ-AS72, An ...</blockquote>
+纸桑，还有个问题，5ii有显示的次像素渲染吗
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+-----
+
+####  我很费纸  
+##### 2620#       发表于 2021-4-14 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50933496&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-4-14 12:23</a>
+纸桑，还有个问题，5ii有显示的次像素渲染吗
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 S1Next-鹅版  ...</blockquote>
+哈……这是啥，这我真不清楚了，要不你给个测试办法出来我看看有没有空测一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  被雨困住的城市  
+##### 2621#         楼主| 发表于 2021-4-14 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936451&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-14 16:43</a>
+哈……这是啥，这我真不清楚了，要不你给个测试办法出来我看看有没有空测一下
+
+—— 来自 Sony XQ ...</blockquote>
+没有，我问客服啦……
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+-----
+
+####  dllplayer  
+##### 2622#       发表于 2021-4-14 20:43
+
+
+ 本帖最后由 dllplayer 于 2021-4-14 20:47 编辑 
+
+那个..各位亲啊...有人遇到过重启后手机运行变慢的情况么
+
+
+我家5M2今天提示28天没重启了..于是就重启一下..结果重启后..感觉比重启前慢了很多..
+
+
+光桌面滑动到还不觉得
+
+不管启用啥APP..哪怕是自带的设置这种..都感觉比重启前慢了半拍..
+
+玩游戏..天青车道也变得有明显掉帧..甚至战斗前的载入时间也变长了有种用回了XZ1的错觉
+
+
+-----
+
+####  solasakiye  
+##### 2623#       发表于 2021-4-15 21:32
+
+
+想问下淘宝上那些五千来块的1M2能不能买？和国行的7K+的有什么区别？保修吗？
+
+
+-----
+
+####  被雨困住的城市  
+##### 2624#         楼主| 发表于 2021-4-15 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50950773&amp;ptid=1915171" target="_blank">solasakiye 发表于 2021-4-15 21:32</a>
+
+想问下淘宝上那些五千来块的1M2能不能买？和国行的7K+的有什么区别？保修吗？ ...</blockquote>
+几家大店还是可以买的
+
+
+-----
+
+####  KayoAiko  
+##### 2625#       发表于 2021-4-15 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50950773&amp;ptid=1915171" target="_blank">solasakiye 发表于 2021-4-15 21:32</a>
+
+想问下淘宝上那些五千来块的1M2能不能买？和国行的7K+的有什么区别？保修吗？ ...</blockquote>
+應該是8+256的港版，如果要用移動5G建議不要買
+
+
+-----
+
+####  solasakiye  
+##### 2626#       发表于 2021-4-15 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50950978&amp;ptid=1915171" target="_blank">KayoAiko 发表于 2021-4-15 21:51</a>
+
+應該是8+256的港版，如果要用移動5G建議不要買</blockquote>
+我看也有12+256的啊，8+256的更便宜4K多了。移动5G港版不能用是吗？
+
+
+-----
+
+####  月神侠  
+##### 2627#       发表于 2021-4-15 22:22
+
+
+港版只有8+256，不过后来国行出了之后港版也出了一个升级12+256的，只有绿色的
+
+
+-----
+
+####  月神侠  
+##### 2628#       发表于 2021-4-15 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50951130&amp;ptid=1915171" target="_blank">solasakiye 发表于 2021-4-15 22:04</a>
+
+我看也有12+256的啊，8+256的更便宜4K多了。移动5G港版不能用是吗？</blockquote>
+港版跟国行硬件不同，5G不支持SA
+
+
+-----
+
+####  cleaner  
+##### 2629#       发表于 2021-4-15 22:42
+
+
+唯一的问题就是888靠谱不靠谱了吧…
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 2630#       发表于 2021-4-15 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50938739&amp;ptid=1915171" target="_blank">dllplayer 发表于 2021-4-14 20:43</a>
+那个..各位亲啊...有人遇到过重启后手机运行变慢的情况么</blockquote>
+Android 11还是10
+
+Android 11至今还是有重启以后强制锁频的bug，大核中核全部锁最低，只有四个小核在工作，自然卡得你生不如死。不等段时间根本不会恢复正常。
+
+我就看特么翔移还管不管865，修不修这个傻逼bug了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 2631#       发表于 2021-4-15 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50951557&amp;ptid=1915171" target="_blank">cleaner 发表于 2021-4-15 22:42</a>
+唯一的问题就是888靠谱不靠谱了吧…
+
+—— 来自 Sony J9110, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+888不靠谱……这个结论不需要疑问句
+
+靠谱就不需要今年的手机普遍狂堆散热了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  月神侠  
+##### 2632#       发表于 2021-4-16 00:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50951557&amp;ptid=1915171" target="_blank">cleaner 发表于 2021-4-15 22:42</a>
+
+唯一的问题就是888靠谱不靠谱了吧…
+
+
+—— 来自 Sony J9110, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+走错了，1M3的帖子在隔壁<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cleaner  
+##### 2633#       发表于 2021-4-16 00:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50952207&amp;ptid=1915171" target="_blank">月神侠 发表于 2021-4-16 00:06</a>
+走错了，1M3的帖子在隔壁</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cray  
+##### 2634#       发表于 2021-4-16 00:39
+
+
+<blockquote>引用第2610楼wqm2008于2021-04-09 11:25发表的  :
+
+引用:Vicarious 发表于 2021-4-4 12:07有没有人遇到过突然全面屏手势的多任务窗......</blockquote>
+这时多等几秒还是会弹出来的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  斑驳的阴影  
+##### 2635#       发表于 2021-4-16 00:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901167&amp;ptid=1915171" target="_blank">luciffer 发表于 2021-4-11 09:54</a>
+
+这玩意淘宝价格在都宣称国行的情况下怎么差别这么大</blockquote>
+52有便宜的国行吗，我之前看到最便宜的是pdd百亿补贴的5099
+
+
+-----
+
+####  被雨困住的城市  
+##### 2636#         楼主| 发表于 2021-4-16 01:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50952571&amp;ptid=1915171" target="_blank">斑驳的阴影 发表于 2021-04-16 00:56:48</a>
+52有便宜的国行吗，我之前看到最便宜的是pdd百亿补贴的5099</blockquote>闲鱼买退货机
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  哎哟卧槽了  
+##### 2637#       发表于 2021-4-16 07:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50952038&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-15 23:41</a>
+
+888不靠谱……这个结论不需要疑问句
+
+
+靠谱就不需要今年的手机普遍狂堆散热了</blockquote>
+不靠譜的話m2系列的價格估計穩如山<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Acheron  
+##### 2638#       发表于 2021-4-17 09:28
+
+
+12和52之间纠结了一阵子，还是想体验下高刷，决定52，但是看楼里这安卓11的系统问题好像还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  代号锤子  
+##### 2639#       发表于 2021-4-17 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50952832&amp;ptid=1915171" target="_blank">被雨困住的城市 发表于 2021-4-16 01:59</a>
+闲鱼买退货机
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+怎么看是不是退货机呢？有什么关键词吗
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  无印凉粉  
+##### 2640#       发表于 2021-4-17 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50964511&amp;ptid=1915171" target="_blank">Acheron 发表于 2021-4-17 09:28</a>
+
+12和52之间纠结了一阵子，还是想体验下高刷，决定52，但是看楼里这安卓11的系统问题好像还挺多的 ...</blockquote>
+保持在10不升级就行了啊，我现在感觉良好。
+
+
+
+
+-----
+
+####  无印凉粉  
+##### 2641#       发表于 2021-4-17 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50952571&amp;ptid=1915171" target="_blank">斑驳的阴影 发表于 2021-4-16 00:56</a>
+
+52有便宜的国行吗，我之前看到最便宜的是pdd百亿补贴的5099</blockquote>
+我在咸鱼上全新机4350买的用了几个月了
+
+
+           
