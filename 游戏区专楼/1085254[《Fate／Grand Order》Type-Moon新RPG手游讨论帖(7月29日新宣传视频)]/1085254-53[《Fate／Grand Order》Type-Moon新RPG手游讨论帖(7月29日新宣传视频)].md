@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-15 19:34** 
+> ## **本文件最后更新于2021-04-17 09:41** 
 
 
 
@@ -4287,4 +4287,383 @@ wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">时隔3个多月终于嫖到了   没想到萌新也有特意去抽大公2宝的时候(醒醒你明明什么都抽石不过3 
 
 
-                                     
+-----
+
+####  rooarr  
+##### 78362#       发表于 2021-4-16 03:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50952982&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-16 03:09</a>
+时隔3个多月终于嫖到了   没想到萌新也有特意去抽大公2宝的时候(醒醒你明明什么都抽石不过3  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧 ，羡慕，居然真的去抽大公了
+
+
+-----
+
+####  alucardcz  
+##### 78363#       发表于 2021-4-16 03:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50953019&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-16 03:35</a>
+
+欧 ，羡慕，居然真的去抽大公了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后我还把大公拉到了100级
+
+
+-----
+
+####  xiongxingyu  
+##### 78364#       发表于 2021-4-16 08:30
+
+
+统统后置色卡debuff是什么阴间强化，大公这种蓝卡3连的也就算了，罗大爷这种不带np礼装都没法强行2连的给个红卡耐性down有个卵用，硬核令咒三连吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  都谷捻柏  
+##### 78365#       发表于 2021-4-16 09:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50953570&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-04-16 08:30:29</a>
+统统后置色卡debuff是什么阴间强化，大公这种蓝卡3连的也就算了，罗大爷这种不带np礼装都没法强行2连的给个 ...</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“不想要可以给别人”
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  仰望神的括约肌  
+##### 78366#       发表于 2021-4-16 10:06
+
+
+我只觉得五星狂第一天就公布有些可惜 少了些乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78367#       发表于 2021-4-16 10:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50954567&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-4-16 10:06</a>
+我只觉得五星狂第一天就公布有些可惜 少了些乐趣</blockquote>
+没事，还有5星骑在这顶着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  真红眼教授  
+##### 78368#       发表于 2021-4-16 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50954822&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-16 10:26</a>
+
+没事，还有5星骑在这顶着
+
+
+—— 来自 S1Fun</blockquote>
+3000血警告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 78369#       发表于 2021-4-16 10:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50954422&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-4-16 09:55</a>
+
+“不想要可以给别人”
+
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端</blockquote>
+仔细想了下，好像用得上的都已经自带了，要不送给卑弥呼吧<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 78370#       发表于 2021-4-16 14:35
+
+
+奶一口五星骑给羽蛇神，拉二就硬憋到苍银联动
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78371#       发表于 2021-4-16 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50957498&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-4-16 14:35</a>
+
+奶一口五星骑给羽蛇神，拉二就硬憋到苍银联动</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羽什么 当然是妹夫啊  2度宝具本 追加红down（
+
+
+-----
+
+####  alucardcz  
+##### 78372#       发表于 2021-4-16 14:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开服至今没强化过的其实挺多的。例如我的大黑狗  至今无强化。。。这性能现在也过时了该给强化了
+
+
+-----
+
+####  areklose  
+##### 78373#       发表于 2021-4-16 16:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一下司马懿，再加点充能
+
+
+-----
+
+####  黑上シグマ  
+##### 78374#       发表于 2021-4-16 16:30
+
+
+<blockquote>引用第78372楼areklose于2021-04-16 16:04发表的  :
+
+奶一下司马懿，再加点充能</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">滚啊，我骑阶独缺司马懿
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  qixinno2  
+##### 78375#       发表于 2021-4-16 16:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉强化的都会是旧的常驻从者 限定的强化几率感觉不大
+
+
+-----
+
+####  alucardcz  
+##### 78376#       发表于 2021-4-16 17:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小次郎
+
+
+-----
+
+####  rooarr  
+##### 78377#       发表于 2021-4-16 17:08
+
+
+那明天的5星骑应该就是船长了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  alucardcz  
+##### 78378#       发表于 2021-4-16 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50959122&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-16 17:08</a>
+
+那明天的5星骑应该就是船长了
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次又是色卡耐性down  不过是技能（
+
+
+-----
+
+####  qixinno2  
+##### 78379#       发表于 2021-4-16 17:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口明天强化船长啊 毕竟开服最早的五星骑 技能强化一个没有还那么朴实无华
+
+
+-----
+
+####  都谷捻柏  
+##### 78380#       发表于 2021-4-16 17:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶一口这次强化的全是男性从者
+
+
+-----
+
+####  qixinno2  
+##### 78381#       发表于 2021-4-16 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50959467&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-4-16 17:42</a>
+
+奶一口这次强化的全是男性从者</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这么GAY么
+
+
+-----
+
+####  angelooo  
+##### 78382#       发表于 2021-4-16 18:21
+
+
+<blockquote>都谷捻柏 发表于 2021-4-16 17:42
+奶一口这次强化的全是男性从者</blockquote>
+还都是老从者，那么五星弓就是......
+
+
+-----
+
+####  Jamaisvu  
+##### 78383#       发表于 2021-4-16 18:35
+
+
+<blockquote>angelooo 发表于 2021-4-16 18:21
+还都是老从者，那么五星弓就是......</blockquote>
+月神设定上也是男的吧...凭依俄里翁。
+
+
+-----
+
+####  Jamaisvu  
+##### 78384#       发表于 2021-4-16 18:36
+
+
+瞎猜一下，如果都是男角色，接下来强化名单可能有拉二、切嗣、拿破仑、枪大公。
+
+
+-----
+
+####  khxooo  
+##### 78385#       发表于 2021-4-16 19:43
+
+
+唉，舞娘还是什么都没有<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78386#       发表于 2021-4-16 22:34
+
+
+<blockquote>黑上シグマ 发表于 2021-4-16 16:30
+滚啊，我骑阶独缺司马懿
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+不是更好吗，这样就有up了
+
+
+-----
+
+####  areklose  
+##### 78387#       发表于 2021-4-16 22:34
+
+
+不过估计都不是限定了，常驻强化一下轮流up一下
+
+
+-----
+
+####  alucardcz  
+##### 78388#       发表于 2021-4-17 17:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羽蛇神
+
+
+-----
+
+####  khxooo  
+##### 78389#       发表于 2021-4-17 17:04
+
+
+哈哈哈，羽蛇神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78390#       发表于 2021-4-17 17:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">萌新没有羽蛇神  怒亏2石
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">顺便今天不是色卡耐性 只加了25个星 大概..是个辣鸡强化?
+
+
+
+
+-----
+
+####  areklose  
+##### 78391#       发表于 2021-4-17 17:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那估计剩下那个五星也是常驻或者剧情限定的五星弓
+
+
+-----
+
+####  黑上シグマ  
+##### 78392#       发表于 2021-4-17 17:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不强化拉二，一定是因为当年阿盐顶着拉二名号发的骑之辉石1个让他被一路骂到今天，所以他看到拉二就不爽
+
+
+-----
+
+####  qixinno2  
+##### 78393#       发表于 2021-4-17 17:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拉二没有强化的梗要接着玩下去么
+
+
+-----
+
+####  里村紅葉  
+##### 78394#       发表于 2021-4-17 17:38
+
+
+这次强化的五星我都没有，那五星弓我奶一口超人熊吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 78395#       发表于 2021-4-17 17:39
+
+
+跟太阳有关的五星红卡单体骑，四舍五入也算那个男人强化了，挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+就是我没有，又亏了俩石头，四舍五入又少满宝了一张五星
+
+
+-----
+
+####  alucardcz  
+##### 78396#       发表于 2021-4-17 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968267&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-4-17 17:38</a>
+
+这次强化的五星我都没有，那五星弓我奶一口超人熊吧</blockquote>
+先说说你哪个常驻剧限的弓没有
+
+
+我就奶那个!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                    
