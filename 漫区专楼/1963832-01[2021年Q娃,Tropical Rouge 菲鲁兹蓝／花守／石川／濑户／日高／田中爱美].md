@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-14 08:44** 
+> ## **本文件最后更新于2021-04-18 12:53** 
 
 
 
@@ -11799,8 +11799,7 @@ yysy，就真夏填的那申请表，以前的任何一个会长都不会给她�
 ####  酥蕤  
 ##### 1023#       发表于 2021-3-30 19:59
 
-
-这红毛平时不咋不咋的，一变身好色，亲口红开大色爆<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -13888,10 +13887,7 @@ elder酱可能是老太太
 ####  酥蕤  
 ##### 1193#       发表于 2021-4-12 21:52
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">人鱼抱海豹的抱法完全是抱孩子的抱法，好色，我好脏
-
-被奖励一激就不摸鱼的摸鱼虾有点真实啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -13984,4 +13980,367 @@ elder酱可能是老太太
 爱奇艺确定不会上了？
 
 
-         
+-----
+
+####  灼眼的夏娜酱  
+##### 1202#       发表于 2021-4-14 17:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还好爱奇艺会员几周前到期后没马上续，歪打正着。
+
+
+-----
+
+####  wind4rap  
+##### 1203#       发表于 2021-4-14 18:56
+
+
+虽然会员是白嫖到的，还是觉得浪费了。
+
+
+-----
+
+####  最强惠酱  
+##### 1204#       发表于 2021-4-14 20:40
+
+
+不会连剧场版提前都没了吧
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Blackson  
+##### 1205#       发表于 2021-4-14 20:59
+
+
+<blockquote>最强惠酱 发表于 2021-4-14 20:40
+不会连剧场版提前都没了吧
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1 ...</blockquote>
+这个也没了的话那爱奇艺会员是真的没价值了（不过爱奇艺这区别对待确实让人不舒服，海贼王好歹好歹还能当天更新，Q娃已经两周没更新了，跟DQ一样。真就没人气没人权）
+
+
+-----
+
+####  梦诗歌雪  
+##### 1206#       发表于 2021-4-14 21:39
+
+
+现在爱奇艺还在播放过程中给你弹广告，vip照弹，恶心的一批。还剩下大半年vip，就当喂狗了，以后还这样肯定不会再续了。不能第一时间看到那我下载看不比你这垃圾播放器舒服多了
+
+
+-----
+
+####  時の華  
+##### 1207#       发表于 2021-4-14 22:00
+
+
+还好今年没续271……担心剧场版
+
+
+-----
+
+####  星火龙  
+##### 1208#       发表于 2021-4-15 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50935872&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-4-14 15:55</a>
+
+爱奇艺确定不会上了？</blockquote>
+不知道……爱奇艺动漫微博什么都没说……有没有人私信问问？虽说不一定有回应就是了……
+
+
+-----
+
+####  红焖菠菜  
+##### 1209#       发表于 2021-4-17 18:41
+
+
+爱奇艺上了，两话一起。
+
+
+-----
+
+####  星火龙  
+##### 1210#       发表于 2021-4-17 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50935872&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-4-14 15:55</a>
+
+爱奇艺确定不会上了？</blockquote>
+爱奇艺把最新的两集上了！
+
+
+-----
+
+####  达达葱2  
+##### 1211#       发表于 2021-4-17 20:59
+
+
+哦哦哦太好了
+
+
+-----
+
+####  reficul  
+##### 1212#       发表于 2021-4-17 23:51
+
+
+社团能成立肯定是OB的功劳啦（
+
+
+-----
+
+####  宅音  
+##### 1213#       发表于 2021-4-18 10:01
+
+
+那今天能看到新一集吗<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星のMerita  
+##### 1214#       发表于 2021-4-18 11:39
+
+
+集体唱名每次还换可太搞了
+
+吃好睡足 热带q娃<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG+  
+##### 1215#       发表于 2021-4-18 13:33
+
+
+恢复同步了？
+
+
+-----
+
+####  达达葱2  
+##### 1216#       发表于 2021-4-18 13:55
+
+
+海豹语是怎么回事？
+
+
+-----
+
+####  dragrass  
+##### 1217#       发表于 2021-4-18 14:18
+
+
+感觉这集夏哥盛世美颜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  待宵  
+##### 1218#       发表于 2021-4-18 14:20
+
+
+今年目前为止趣味性有保证
+
+
+-----
+
+####  dragrass  
+##### 1219#       发表于 2021-4-18 14:32
+
+
+为啥下集珊瑚回个人回就是青山回<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  天邪鬼  
+##### 1220#       发表于 2021-4-18 15:20
+
+
+土田丰，暂时的神～
+快进到《萝拉之死》，这样就能封神了
+不不不，不能急，就要现在先通过日常回一点点让人物变得圆形，让光美和观众对这条鱼的喜爱都到达一定水准后，再对她开刀，升华这个角色
+求你了土田丰，一定要把控好节奏，不要在萝拉死的时候搞太多剧情需要。一定得是双方力战。最好是先干部1v1，打得筋疲力尽了，再让怠惰魔女出手秒杀全场。四人用尽各种手段，合体技也用出来想阻止怠惰魔女前进，却只能被一点点抽走干劲。
+就在这个时候，萝拉一个舍身攻击打断了怠惰魔女的控制，但她被愤怒的魔女抽走干劲，成了一条咸鱼。为了拯救这样子的萝拉，几人仓惶逃跑。真夏自闭，飞鸟憋闷，美乃铃去图书馆找对策，珊瑚想安慰众人
+最终，四人用aquapad里的泡泡唤醒了萝拉的干劲。
+萝拉，复活！
+Cure Lamer，爆诞！
+
+
+-----
+
+####  Sliurus  
+##### 1221#       发表于 2021-4-18 15:47
+
+
+鸟哥意外女子力很高，木瓜意外的没常识
+
+好孩子不要学q娃饭后剧烈运动哦
+
+
+-----
+
+####  lyz1196  
+##### 1222#       发表于 2021-4-18 15:53
+
+
+q娃劳动基准法发布，用餐时间禁止怪兽出没<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leghorn00  
+##### 1223#       发表于 2021-4-18 15:53
+
+
+又出现单亲Q娃了
+
+屑人鱼吃饭前还拍照
+
+
+-----
+
+####  HGCG+  
+##### 1224#       发表于 2021-4-18 17:04
+
+
+<img src="http://wx3.sinaimg.cn/large/a3f7af34ly1gpnujndx8hj20u0154k1j.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 1225#       发表于 2021-4-18 17:06
+
+
+真好看，好吃好睡才能当好q娃。
+话说都做5人份了库鲁鲁也只能吃贝壳饼干<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  粉儿alice  
+##### 1226#       发表于 2021-4-18 17:46
+
+
+q娃反正是充话费赠送的 有熟肉已经很好惹<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nerugigannte  
+##### 1227#       发表于 2021-4-18 17:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">飞鸟大姐的大和抚子浓度竟然是最高的
+
+
+-----
+
+####  天邪鬼  
+##### 1228#       发表于 2021-4-18 18:40
+
+
+女路人有点好看哦<img src="https://p.sda1.dev/1/69f3eb8424333d5bd4884fabc1167e8a/2FF9BE2C38684131079960B873CEDCA7.jpg" referrerpolicy="no-referrer">
+这集立意真不错，虽然讲的是亲情和为亲爱的人分担，但是没有一个劲地讲大道理和渲染母亲多辛苦什么的。要有趣也有，要深度也有
+
+
+-----
+
+####  haojie_ma  
+##### 1229#       发表于 2021-4-18 18:40
+
+
+这集社团活动一开始差点以为要开直播了……想想她们的社团活动，感觉还真有点美妙频道的味道
+
+打到一半去吃饭，还是保持变身后的Q娃形象，也算系列里头一遭了吧？顺便让我想到那些回血道具是食物的游戏
+
+还有变身后的口号也有变化，这些细节至少保证了趣味性
+
+
+说来瞒着老师藏萝拉时，看起来是按着萝拉上身捂在后面了？缺德一点感觉就是“I can't breathe”了
+
+
+-----
+
+####  HGCG+  
+##### 1230#       发表于 2021-4-18 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50977900&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-18 18:40</a>
+
+女路人有点好看哦
+
+这集立意真不错，虽然讲的是亲情和为亲爱的人分担，但是没有一个劲地讲大道理和渲染母亲 ...</blockquote>
+大家都说这几个路人好
+
+
+
+
+-----
+
+####  宅音  
+##### 1231#       发表于 2021-4-18 19:36
+
+
+飞鸟学姐女子力好高
+
+
+-----
+
+####  saya1892  
+##### 1232#       发表于 2021-4-18 19:49
+
+
+先吃后吃那里是点睛之笔，说明这个社团里大家确实都是平等相处的，乐于听从彼此的意见，而且也不是随口说说
+
+最后跟母亲一起吃饭升华得很好，不搞催泪，不搞苦大仇深，很轻松愉快
+
+
+-----
+
+####  海克托尔  
+##### 1233#       发表于 2021-4-18 20:52
+
+
+大友出道
+
+<img src="https://img.saraba1st.com/forum/202104/18/205149zwrwvz44rejzvrpw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-1618750276303154bca57dfe3d4ecac866d969c4d3437.jpg</strong> (298.99 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-18 20:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/205200qcgl6c6jnm57jh42.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-161875028189982928d4e0fd2c449dc56f2e8982c0e9f.jpg</strong> (322.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-18 20:52 上传
+
+
+葡萄味软糖挺好吃的
+
+
+        
