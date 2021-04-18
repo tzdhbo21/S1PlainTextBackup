@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-17 10:37** 
+> ## **本文件最后更新于2021-04-18 03:44** 
 
 
 
@@ -2220,4 +2220,361 @@ syl，快进到《同好会动了官组的蛋糕》<img src="https://static.sara
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-                                          
+-----
+
+####  草牛  
+##### 13714#       发表于 2021-4-17 18:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">底边字幕组招不到人不是很正常
+
+
+-----
+
+####  A2014720  
+##### 13715#       发表于 2021-4-17 18:45
+
+
+这个环境下哪来那么多人<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13716#       发表于 2021-4-17 18:45
+
+
+官组速速与同好会贴贴营业<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+             
+
+吸血，吸血怎么说<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13717#       发表于 2021-4-17 18:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">才看见d群刚发的盒限延期通知，看来是通宵太累熬不到那么晚了
+
+
+-----
+
+####  GRMeA104  
+##### 13718#       发表于 2021-4-17 18:50
+
+
+麻了，联动一个不落就惯犯咕粉丝是吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+不过这几天差不多也该到生理了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">你麻麻的还硬熬夜
+
+
+-----
+
+####  路人庚  
+##### 13719#       发表于 2021-4-17 18:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没了就没了罢，我是觉得盒限如果不播的话没啥存在的必要就是（
+
+
+-----
+
+####  草牛  
+##### 13720#       发表于 2021-4-17 18:52
+
+
+我觉得可能是野。。。
+
+
+-----
+
+####  GRMeA104  
+##### 13721#       发表于 2021-4-17 18:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50969049&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-17 18:52</a>
+我觉得可能是野。。。</blockquote>
+什么浴血奋战<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13722#       发表于 2021-4-17 18:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不要这么莽，说不定只是在聊天文爱呢
+
+
+-----
+
+####  A2014720  
+##### 13723#       发表于 2021-4-17 19:00
+
+
+《神乐mea的沉沦》
+
+
+-----
+
+####  雪风utopia  
+##### 13724#       发表于 2021-4-17 19:00
+
+
+什么杏爱小麻，什么浴血泰迪<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13725#       发表于 2021-4-17 19:04
+
+
+谁去写小作文刺激她一下，让她开播骂人，新皮要被弄脏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 13726#       发表于 2021-4-17 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">浴血泰迪是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  雪风utopia  
+##### 13727#       发表于 2021-4-17 21:48
+
+
+小麻，你在哪里，该不会真的去找野男人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13728#       发表于 2021-4-18 08:29
+
+
+吊人是不是忙活九条的小闪电去了 昨天看到九条有小闪电了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  时间在我手中  
+##### 13729#       发表于 2021-4-18 08:37
+
+
+九条的小闪电关她屁事，这东西你睿运营自己去弄还差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl 昨天我听说的他们组去了九个应聘的，但是这种东西要看一个转化率，不然没啥意义<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+再syl 虽然知道楼友在开玩笑，但是很可惜，thh别给他们组吸干都算好的了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+早期连pre和aeg都几把要教的组织真以为很多人不成<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+记者个臭几把叫着这个官组要做那个要做然后一做就是半个月的臭几把事给他们组吸个屁血
+
+
+建议海盗自力更生完事，君不见杏花现在海盗也还能活呢，嘻嘻
+
+
+高级虚拟运营那玩意儿你们稍微想想不都猜得到肯定有官组的人去那边帮忙弄片段推广你麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13730#       发表于 2021-4-18 08:47
+
+
+希望今天除了联动外还有一播
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  时间在我手中  
+##### 13731#       发表于 2021-4-18 08:49
+
+
+等她醒了再说吧，上午我去看柯南了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这周给自己放假得了。
+
+
+-----
+
+####  路人庚  
+##### 13732#       发表于 2021-4-18 08:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不用这么轻易就蚌埠不住8，虚拟运营那个按照我脑补的正常工作流程其实应该是由虚拟运营群发一个收集剪辑投稿邀请开始的吧，跟字幕组主动热脸贴叔叔屁股应该关系不大
+
+
+脑补的业务流程↓
+
+
+虚拟运营群发收集剪辑投稿邀请
+
+↓
+
+字幕组看到邀请后去联系你咩姐的马内甲〇〇桑
+
+↓
+
+马内甲看到消息后向你咩姐汇报，你咩姐同意
+
+↓
+
+进行简单的内部讨论后决定投稿的具体视频内容
+
+↓
+
+最后决定投稿君物语的pv剪辑
+
+
+syl，感觉今天大概也就1播了，不知道联动前会不会补一下昨天的盒限
+
+
+-----
+
+####  时间在我手中  
+##### 13733#       发表于 2021-4-18 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50973721&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-4-18 08:59</a>
+
+不用这么轻易就蚌埠不住8，虚拟运营那个按照我脑补的正常工作流程其实应该是由虚拟运营群发一个收集 ...</blockquote>
+我知道的反正的确有组员去那边了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">至于中间过程懒得脑补，反正本质就是为了推广你麻，虽然我觉得没啥几把用
+
+
+-----
+
+####  黒長直姫  
+##### 13734#       发表于 2021-4-18 09:30
+
+
+可以去字幕组真爱楼讨论吗？
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  呓亘  
+##### 13735#       发表于 2021-4-18 09:31
+
+
+ 本帖最后由 呓亘 于 2021-4-18 09:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50973768&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-18 09:08</a>
+
+ 我知道的反正的确有组员去那边了至于中间过程懒得脑补，反正本质就是为了推广你麻，虽然我觉得没 ...</blockquote>
+字幕组有人主动争取推广你麻的机会 挺好的了
+
+
+-----
+
+####  十九号大侠  
+##### 13736#       发表于 2021-4-18 09:53
+
+
+我还是认那个是麻的b站号，不是字幕组的b站号
+
+
+-----
+
+####  雪风utopia  
+##### 13737#       发表于 2021-4-18 10:22
+
+
+懂了，小麻拿自己的身体换来了次宣传和九条的闪电，小麻你好伟大<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 13738#       发表于 2021-4-18 10:51
+
+
+九条是谁真不熟╮(￣▽￣)╭，顺便昨前几天看到九条和u18的照片，这群人最近又挖起来了？
+
+
+-----
+
+####  Dualist彩  
+##### 13739#       发表于 2021-4-18 10:55
+
+
+发，快发，合照？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13740#       发表于 2021-4-18 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974456&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-4-18 10:51</a>
+九条是谁真不熟╮(￣▽￣)╭，顺便昨前几天看到九条和u18的照片，这群人最近又挖起来了？ ...</blockquote>
+人家自己爆出来的，怎么能叫挖呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 13741#       发表于 2021-4-18 11:09
+
+
+不是，所以也没必要发，u18是近照，是不是可以期待一下后面和麻一起来张
+
+
+-----
+
+####  JY要塞  
+##### 13742#       发表于 2021-4-18 11:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">肉体厨复活！
+
+
+-----
+
+####  Dualist彩  
+##### 13743#       发表于 2021-4-18 11:19
+
+
+那没啥可看了，有麻图踢我<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sgssk  
+##### 13744#       发表于 2021-4-18 11:32
+
+
+u18的那张是哪边找到的能讲讲吗？她饭盒的图一大半是恐怖高p<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13745#       发表于 2021-4-18 11:40
+
+
+九条的是哪张？新图么？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                         
