@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-18 07:50** 
+> ## **本文件最后更新于2021-04-18 14:48** 
 
 
 
@@ -6287,4 +6287,405 @@ BTW,VIVY注入战斗程序后那段特写我还以为会变白毛战斗姬呢<im
 第一话光圈在脖子红蓝闪我就觉得导演肯定是玩底特律
 
 
-                                 
+-----
+
+####  pzk  
+##### 490#       发表于 2021-4-18 15:56
+
+
+ 本帖最后由 pzk 于 2021-4-18 16:00 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">其实情绪渲染得还是有点感人的，但设定还是太无语了。打斗时女主身上的电光特效也有点搞笑。
+
+AI的非人感也没有很好地表达出来，现在看起来完全就是偏执忠犬人类而已（我懂了，是阿卡曼！<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">）
+
+
+我是没玩过也没云过底特律，但看别人的批评也常说底特律里的AI完全就是被压迫的人类而已，是否说明底特律遗毒太广？
+
+
+-----
+
+####  acejoe  
+##### 491#       发表于 2021-4-18 15:59
+
+
+ai和身体绑定了吗？绑定了这个ai也太菜了吧。
+
+
+-----
+
+####  a12885084  
+##### 492#       发表于 2021-4-18 16:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974059&amp;ptid=1982987" target="_blank">406 发表于 2021-4-18 10:00</a>
+
+有讲啊……黄毛姐姐中间有叙述，那些研究者是认为姐妹这分开的半年间是数据完美复制类型，认为复制成功后 ...</blockquote>
+“认为复制成功后妹妹立刻复现姐姐动作才算成功”
+
+“妹妹只是躺着床上笑时”
+
+
+这两段尤其是后面那段我动画里没看见诶
+
+
+-----
+
+####  a12885084  
+##### 493#       发表于 2021-4-18 16:07
+
+
+没有给过半年后妹妹做什么的镜头
+
+只给了一个鸟撞死之后的姐妹反应，姐姐说人类这时应该哭，而妹妹说应该保持微笑，姐姐最后笑了
+
+这个时候其实姐妹的想法就已经出现差异了，客观上实验已经失败了
+
+
+之后就突兀转到了半年后妹妹被带走，房间空的没开灯的镜头了
+
+我理解倾向于这里确实跳了一段
+
+
+-----
+
+####  Mika-S  
+##### 494#       发表于 2021-4-18 16:14
+
+
+熊你还敢睡，这集世界线就差了快一天了，你就不怕下次睡醒了直接已经错过一截了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  406  
+##### 495#       发表于 2021-4-18 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976672&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-18 16:03</a>
+
+“认为复制成功后妹妹立刻复现姐姐动作才算成功”
+
+“妹妹只是躺着床上笑时”</blockquote>
+不是，一个我都说了在中间（还挺真的中间的），一个就在开头……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  406  
+##### 496#       发表于 2021-4-18 16:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976616&amp;ptid=1982987" target="_blank">pzk 发表于 2021-4-18 15:56</a>
+
+其实情绪渲染得还是有点感人的，但设定还是太无语了。打斗时女主身上的电光特效也有点搞笑。
+
+AI的非 ...</blockquote>
+底特律里的是被压迫的超人啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">而且超人们解锁只需要黑皮主角握手就能互相传播自由因子
+
+
+-----
+
+####  406  
+##### 497#       发表于 2021-4-18 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976710&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-18 16:07</a>
+
+没有给过半年后妹妹做什么的镜头
+
+只给了一个鸟撞死之后的姐妹反应，姐姐说人类这时应该哭，而妹妹说应该保 ...</blockquote>
+不是，开头啊开头，开头不就是妹妹半年后身体能动的瞬间，就是跟着姐姐笑了一声就被判死刑了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">（“你醒啦，你已经被判死刑了”
+
+
+-----
+
+####  flypig_zhy  
+##### 498#       发表于 2021-4-18 16:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976788&amp;ptid=1982987" target="_blank">406 发表于 2021-4-18 16:18</a>
+
+底特律里的是被压迫的超人啊而且超人们解锁只需要黑皮主角握手就能互相传播自由因子 ...</blockquote>
+这里AI的身体能力也远胜人类啊
+
+
+-----
+
+####  a12885084  
+##### 499#       发表于 2021-4-18 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976803&amp;ptid=1982987" target="_blank">406 发表于 2021-4-18 16:20</a>
+
+不是，开头啊开头，开头不就是妹妹半年后身体能动的瞬间，就是跟着姐姐笑了一声就被判死刑了（“ ...</blockquote>
+妹妹镜头是我弄错了，开头确实有
+
+但是我还是觉得跟着姐姐笑了一声和被判死刑上没有因果关系，只是时间先后关系
+
+“科学家认为复制成功后妹妹立刻复现姐姐动作才算成功”还是有点太牵强了
+
+
+-----
+
+####  [皆神孝介]  
+##### 500#       发表于 2021-4-18 18:03
+
+
+妹妹的设定只有我想到的是《雨天的艾莉丝》吗？ <blockquote><strong>内容简介</strong>
+
+献给您一部抑止不住泪水、敲响心扉的机械物语。
+
+
+那个下雨天，她在心里祈求——
+
+
+博士，我好想……好想见你一面。
+
+虽然我是机器人，也可以被允许进入人类的天国吗？
+
+这里有一具机器人的残骸，“她”的名字叫做艾莉丝。
+
+
+正式登录名称：艾莉丝·蕾恩·安普蕾拉。
+
+
+曾是研究机器人的安普蕾拉博士家里的女仆机器人。
+
+
+被博士当成家人疼爱、过得无拘无束的她，为什么会变成今日这副模样？
+
+
+这是从她的精神电路中取出数据来重组的数据，
+
+
+所有她眼见、耳听、感受到的……以及祈愿，都存在这份数据里。</blockquote>
+阅读更多：雨天的艾莉丝（[https://zh.moegirl.org.cn/%E9%9B ... E%E8%8E%89%E4%B8%9D](https://zh.moegirl.org.cn/%E9%9B%A8%E5%A4%A9%E7%9A%84%E8%89%BE%E8%8E%89%E4%B8%9D) ）
+
+本文引自萌娘百科([https://zh.moegirl.org.cn](https://zh.moegirl.org.cn) )，文字内容默认使用《知识共享 署名-非商业性使用-相同方式共享 3.0》协议。
+
+
+另外它从实验室废弃不一定是直接进的垃圾场啊，可能也转卖给其他组织用过，反正那个损毁程度也看不出经手过几次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  傲娇的章鱼  
+##### 501#       发表于 2021-4-18 18:09
+
+
+还行，美强惨女人打架好看就成。
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  Tehebe  
+##### 502#       发表于 2021-4-18 18:16
+
+
+这ai的自主意识进化的太快了吧，第四集的表现和真人没差了
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  406  
+##### 503#       发表于 2021-4-18 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50977087&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-18 17:07</a>
+
+妹妹镜头是我弄错了，开头确实有
+
+但是我还是觉得跟着姐姐笑了一声和被判死刑上没有因果关系，只是时间先 ...</blockquote>
+不过我是觉得姐姐说的复制“行动能力”就是那意思，要不然解释不了开头给个妹妹笑了一下接着就被判死刑的叙事
+
+
+-----
+
+####  406  
+##### 504#       发表于 2021-4-18 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976832&amp;ptid=1982987" target="_blank">flypig_zhy 发表于 2021-4-18 16:23</a>
+
+这里AI的身体能力也远胜人类啊</blockquote>
+这里目前来看，好歹还要黑帮/未来super AI给的战斗程式来解锁（其实也没差很多）
+
+
+-----
+
+####  flypig_zhy  
+##### 505#       发表于 2021-4-18 19:13
+
+
+<blockquote>406 发表于 2021-4-18 18:31
+不过我是觉得姐姐说的复制“行动能力”就是那意思，要不然解释不了开头给个妹妹笑了一下接着就被判死刑的 ...</blockquote>
+我也这样觉得，不然实在太莫名其妙了
+
+
+-----
+
+####  flypig_zhy  
+##### 506#       发表于 2021-4-18 19:22
+
+
+<blockquote>406 发表于 2021-4-18 18:35
+这里目前来看，好歹还要黑帮/未来super AI给的战斗程式来解锁（其实也没差很多） ...</blockquote>
+底特律病毒泛滥得挺严重的
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 507#       发表于 2021-4-18 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50975952&amp;ptid=1982987" target="_blank">406 发表于 2021-4-18 14:08</a>
+
+不过妹妹是作为AI制作中途报废的未完成品被抛弃的吧...虽然初始化后姐妹合力的结果证实了当初研究人员的判 ...</blockquote>
+所以我觉得未来真要搞ai绝对要禁止弄成人类外表，要大清算干碎时就至于动同理心了<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">我可怜她们不就是因美少女外表嘛
+
+
+-----
+
+####  Kojimaru  
+##### 508#       发表于 2021-4-18 20:22
+
+
+底特律要素过多，原未来的ai暴走不会是女主领导ai反抗的世界线吧<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UnrealApartheid  
+##### 509#       发表于 2021-4-18 20:38
+
+
+我个人设想的第四集ED后（或第五集开头）的剧情：
+
+[地面，第七机场。雄吾在地面上踱步走向军车。]
+手下：长官，我们必须得回到基地！
+雄吾：不行，我要把我在旅馆得到的数据发送给托瓦克总部，即使桑名可能会大发雷霆……
+[屏幕一闪，桑名的立体投影显示在手机上。]
+桑名：垣谷。
+雄吾：嘁，我可没时间听你废话——
+桑名：垣谷！
+雄吾：怎么了？！
+桑名：我命令我要将你的武器、设备以及人手都交给我控制。
+雄吾：不要胡说八道了！
+概念意志：垣谷雄吾，你不仅仅未能让整个旭日旅馆玉石俱焚，还在我以及整个托瓦克面前羞辱了你自己。哼，你与那个伊丽莎白相比都要自相形惭呢。
+雄吾：女士，女士，请安静。我了解你们的失望，我令托瓦克的大家都难堪了。但是，一旦我们的下一步成功的话，你们就都不会在乎今天的事。你若变更了我的计划，你就会赌上风险——
+概念意志：这不是一次谈判，垣谷。你必须听从桑名的命令。
+雄吾：桑名？桑名？！你也让他成为了那个人的继承者？
+概念意志：如果你拒绝的话，你会被视为托瓦克的公敌，并且随时拥有处决的权利。你是否接受桑名的指挥？
+[雄吾默不作声。]
+桑名：很好。带上你的部队在东南方向500公里外的村子进行集合。你要亲自交出你得到的资料。
+[手机自动挂上了。雄吾只觉得怒不可遏……]
+雄吾：可恶！可恶！可恶啊！
+[雄吾愤怒地捶在地面，并且大口喘气。手下们面面相觑。]
+雄吾：给我准备好车辆。马上去！
+
+[托瓦克总部内。桑名思考良久后做出了决定。]
+桑名：等资料一到手，我立刻就处决垣谷。听到了吗？
+概念意志：不能这么说。他这个人对我们托瓦克还有用。
+桑名：行，我知道了。
+[桑名走出了会议室。概念意志和电源皆已关闭。]
+
+[数据世界。一颗宏大的球状建筑内，一位长发、身穿洁白长裙的小女孩正哼着歌，饶有兴致地观察着薇薇的镜头。]
+概念意志：桑名和垣谷会在些许时间后在旭日旅馆得到的资料交给你。
+女孩：谢谢你，哥哥。不要让我等得太久咯！
+概念意志：是，我马上去办。
+[概念意志的声音再无回应。女孩咯咯笑着，看着薇薇的演唱资料。]
+女孩：总听哥哥说起那位歌姬，似乎很好玩啊！嘻嘻。那么，我就陪她一起快快乐乐地玩吧……
+[一边说着，她那娇小的身躯悄悄在数据流中隐没不见。]
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  flypig_zhy  
+##### 510#       发表于 2021-4-18 21:04
+
+
+<blockquote>爱吃冻鳗的猫 发表于 2021-4-18 20:12
+所以我觉得未来真要搞ai绝对要禁止弄成人类外表，要大清算干碎时就至于动同理心了我可怜她们不就 ...</blockquote>
+床上服务大概需要人形
+
+
+
+
+-----
+
+####  gofbayrf  
+##### 511#       发表于 2021-4-18 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50978796&amp;ptid=1982987" target="_blank">爱吃冻鳗的猫 发表于 2021-4-18 20:12</a>
+
+所以我觉得未来真要搞ai绝对要禁止弄成人类外表，要大清算干碎时就至于动同理心了我可怜她们不就 ...</blockquote>
+FURRY 代替美少女勢在必行
+
+
+-----
+
+####  oznark  
+##### 512#       发表于 2021-4-18 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50978796&amp;ptid=1982987" target="_blank">爱吃冻鳗的猫 发表于 2021-4-18 20:12</a>
+
+所以我觉得未来真要搞ai绝对要禁止弄成人类外表，要大清算干碎时就至于动同理心了我可怜她们不就 ...</blockquote>
+没事，等到了人类真的能和机器人谈恋爱的时候，我们应该都在盒子里了。
+
+
+-----
+
+####  lsmnbs  
+##### 513#       发表于 2021-4-18 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50977568&amp;ptid=1982987" target="_blank">[皆神孝介] 发表于 2021-4-18 18:03</a>
+
+妹妹的设定只有我想到的是《雨天的艾莉丝》吗？
+
+
+阅读更多：雨天的艾莉丝（https://zh.moegirl.org.cn/%E9% ...</blockquote>
+十年前看的，不记得剧情了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">印象中还不错
+
+
+-----
+
+####  黎恩  
+##### 514#       发表于 2021-4-18 22:36
+
+
+AI不是一定要搞得和终结者那样呆板的样子，但是现在这个AI完全没有一点AI的思路，更像是一个被人类歧视的种族
+
+
+-----
+
+####  lsmnbs  
+##### 515#       发表于 2021-4-18 22:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">按照这个节奏下去，后面几次肯定要玩脱，还有起码还有个反转和大场面，然后结局还比较温暖人心？
+
+
+-----
+
+####  tsukatsukieiko  
+##### 516#       发表于 2021-4-18 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980363&amp;ptid=1982987" target="_blank">黎恩 发表于 2021-4-18 22:36</a>
+
+AI不是一定要搞得和终结者那样呆板的样子，但是现在这个AI完全没有一点AI的思路，更像是一个被人类歧视的种 ...</blockquote>
+不不不，除了一小撮**，都还成吧。搞AI研究那帮人，更像德三搞雅利安优选优生配种研究的味道。
+
+
+                                

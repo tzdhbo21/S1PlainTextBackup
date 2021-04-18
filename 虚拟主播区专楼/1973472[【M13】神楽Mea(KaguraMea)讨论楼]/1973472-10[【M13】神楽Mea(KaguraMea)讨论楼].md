@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-18 11:35** 
+> ## **本文件最后更新于2021-04-18 14:33** 
 
 
 
@@ -2873,4 +2873,285 @@ u18的那张是哪边找到的能讲讲吗？她饭盒的图一大半是恐怖�
 <img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
 
 
-                                        
+-----
+
+####  呓亘  
+##### 13776#       发表于 2021-4-18 20:03
+
+
+刚刚提老师被JK威胁的那一段具体内容是什么啊 看同传那一段有点涩
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  呓亘  
+##### 13777#       发表于 2021-4-18 20:04
+
+
+【学生们来看你就是身子一直在抖动】
+【怕是在看AO冲】
+【老师 你的流言在jk之中到处传播哦】
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  A2014720  
+##### 13778#       发表于 2021-4-18 20:05
+
+
+夜驱
+
+
+-----
+
+####  A2014720  
+##### 13779#       发表于 2021-4-18 20:20
+
+
+今晚意外的唱的认真
+
+
+-----
+
+####  燃烧的石头  
+##### 13780#       发表于 2021-4-18 20:31
+
+
+草草草，打怪猎错过了歌会
+
+
+-----
+
+####  Joffre✔  
+##### 13781#       发表于 2021-4-18 20:43
+
+
+怎么这几天那么爱唱川.普快乐歌<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 13782#       发表于 2021-4-18 20:43
+
+
+定番拉夫是吧
+
+
+-----
+
+####  草牛  
+##### 13783#       发表于 2021-4-18 20:43
+
+
+😅
+
+
+-----
+
+####  Mr.shelter  
+##### 13784#       发表于 2021-4-18 20:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hwlzdjbrs  
+##### 13785#       发表于 2021-4-18 20:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13786#       发表于 2021-4-18 20:51
+
+
+一口老痰卡嗓子，笑死
+
+
+-----
+
+####  离心  
+##### 13787#       发表于 2021-4-18 20:54
+
+
+你也玩马娘？
+
+
+-----
+
+####  A2014720  
+##### 13788#       发表于 2021-4-18 20:56
+
+
+好活！
+
+
+-----
+
+####  雪风utopia  
+##### 13789#       发表于 2021-4-18 20:56
+
+
+🐴
+
+
+-----
+
+####  yywzjsw  
+##### 13790#       发表于 2021-4-18 20:57
+
+
+麻终于蹭热度了
+
+
+-----
+
+####  KL25001  
+##### 13791#       发表于 2021-4-18 20:57
+
+
+吊人感觉是会去买马券的那种人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 13792#       发表于 2021-4-18 20:57
+
+
+可爱想屮<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13793#       发表于 2021-4-18 20:57
+
+
+半首累的跟🐴一样，你有多肥啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 13794#       发表于 2021-4-18 21:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">必定超重坦
+
+
+-----
+
+####  Joffre✔  
+##### 13795#       发表于 2021-4-18 21:02
+
+
+肥肥唱歌才不累吧 以前测肺活量也是胖子的数值明显高
+
+
+-----
+
+####  雪风utopia  
+##### 13796#       发表于 2021-4-18 21:02
+
+
+坦克民别骗自己了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 13797#       发表于 2021-4-18 22:15
+
+
+谁帮忙翻一下第一个问题的大意啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哦还有第二个
+
+
+-----
+
+####  GRMeA104  
+##### 13798#       发表于 2021-4-18 22:20
+
+
+谁寄吧看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 13799#       发表于 2021-4-18 22:20
+
+
+第二个是选和谁交往吧？第一个不记得了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13800#       发表于 2021-4-18 22:25
+
+
+还是那个熟悉的苔苔<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Joffre✔  
+##### 13801#       发表于 2021-4-18 22:29
+
+
+突然想到 苔太的企划要是性别对调会咋样 4个男v问一个女v要和谁鸳鸯浴 想想就刺激<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 13802#       发表于 2021-4-18 22:30
+
+
+男V女粉和女V男粉怕不是冲了你苔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪有搞男人被众星捧月方便呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13803#       发表于 2021-4-18 22:32
+
+
+让我想想，这种nt企划估计你麻会接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 13804#       发表于 2021-4-18 22:32
+
+
+性别对调的话，基本参考你咩姐之前参加的黄兔子绿仙相亲会罢（
+
+
+-----
+
+####  FCCHua  
+##### 13805#       发表于 2021-4-18 22:33
+
+
+麻烦来一个性别互换，还挺难得的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+不过问题会变很多就是了
+
+
+                                       
