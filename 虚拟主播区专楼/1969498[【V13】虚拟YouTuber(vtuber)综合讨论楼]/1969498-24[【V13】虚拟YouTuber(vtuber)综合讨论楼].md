@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-17 12:52** 
+> ## **本文件最后更新于2021-04-18 08:40** 
 
 
 
@@ -8748,7 +8748,7 @@ sky来了，我满足了<img src="https://static.saraba1st.com/image/smiley/face
 ##### 35162#       发表于 2021-4-17 20:50
 
 
- 本帖最后由 FCCHua 于 2021-4-17 20:52 编辑 
+ 本帖最后由 FCCHua 于 2021-4-17 20:59 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50970195&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-4-17 20:41</a>
 纯自己听的，大概有错漏
 
@@ -8756,6 +8756,423 @@ sky来了，我满足了<img src="https://static.saraba1st.com/image/smiley/face
 最开始应该是小千和uge，一起玩apex的
 夜见 走姐那里还有牛姨
 最后还有不破，爱园，京子？
+哦，对，补下同期的黛灰和阿露丝
 
 
-                           
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|强|
+
+
+查看全部评分
+
+
+-----
+
+####  黑之和  
+##### 35163#       发表于 2021-4-17 20:53
+
+
+ 本帖最后由 黑之和 于 2021-4-17 20:54 编辑 
+
+嗯？？？剧情，，
+一切都是失去了妈妈的小女孩做的梦？
+
+
+-----
+
+####  hulaoda007  
+##### 35164#       发表于 2021-4-17 20:54
+
+
+  いきなり！？
+
+
+-----
+
+####  SuntoryNomu  
+##### 35165#       发表于 2021-4-17 20:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 我一直都是彩虹大家庭箱推阿
+
+<img src="https://img.saraba1st.com/forum/202101/12/221527eyiyainaiaen9tzx.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 35166#       发表于 2021-4-17 20:55
+
+
+这结尾也太不安desu
+
+
+-----
+
+####  alcoholic1000  
+##### 35167#       发表于 2021-4-17 20:55
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-17 21:19 编辑 
+
+？？？...???#黛のせい
+
+黑客，我命令（恳求）你不要给同期写剧本<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+黑客频道之前发布的预定封面变了，概要栏增加了
+
+同期
+
+@アルス・アルマル -ars almal- 【にじさんじ】​ 
+
+@相羽ういは〖Aiba Uiha〗にじさんじ所属​ 
+
+
+編集
+
+俺
+
+<img src="https://img.saraba1st.com/forum/202104/17/210450lxem2ydcmhqc422m.png" referrerpolicy="no-referrer">
+
+
+<strong>BlueS Paint the town red..png</strong> (190.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 21:04 上传
+
+
+[https://www.youtube.com/watch?v=kD9iSm_sbuM](https://www.youtube.com/watch?v=kD9iSm_sbuM)
+
+
+paint the town (red)
+
+《口語》 底抜けに大騒ぎをする, 盛り場を回る[飲み歩く].
+
+没了？这就没了？？
+
+
+-----
+
+####  purdre  
+##### 35168#       发表于 2021-4-17 20:55
+
+
+啥？小偶像也是剧情势<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 35169#       发表于 2021-4-17 20:57
+
+
+这锅给myy
+
+
+-----
+
+####  シナモンロール  
+##### 35170#       发表于 2021-4-17 20:58
+
+
+ 本帖最后由 シナモンロール 于 2021-4-17 21:02 编辑 
+
+先说一下，之前没看过项羽台，都是在联动蹭到的
+
+
+1. 球球各位虹仁不要尬吹模型，这模型可以说是很用心，但谈不上什么次世代，头发触角的细节本身是加分点但是后面后发没做全导致不太协调。衣服的物理飘动也感觉怪怪的，但还是很可爱很可爱的
+
+
+2. 这歌声太《偶像》了！紫紫人永远听不清的三个词是“努力，感谢，笑颜”，不管唱成什么样，能把元气传递给观众才是偶像最要紧的
+
+
+3. 我还是觉得这俩头套人太阴间了。。。当中那段向日葵+这俩头套人+找药。。。简直就是mopemope
+
+
+4. 选曲满中满！真的选的太好了！快乐和甜美都确实地收到了！！！
+
+
+5. 《人脉》
+
+
+恭喜小偶像ddd
+
+
+syl
+
+woc这结局太nb了！！！原来cant wake up from my dream是这个意思！！！找药也是跟这个有关吧
+
+
+不过还是觉得3d玩这种太大胆了。。。
+
+
+-----
+
+####  zwxclear  
+##### 35171#       发表于 2021-4-17 20:59
+
+
+这个结尾……舞台少女到底是什么
+
+
+-----
+
+####  qq845629713  
+##### 35172#       发表于 2021-4-17 21:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 推炸了，不能看感想属实遗憾
+
+
+-----
+
+####  winda  
+##### 35173#       发表于 2021-4-17 21:02
+
+
+ 本帖最后由 winda 于 2021-4-17 21:04 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/210147kabnbbtvuzvpaav6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210417_210013.jpg</strong> (59.1 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-17 21:01 上传
+
+
+od组霞妈走了再补一个是吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+https://youtu.be/kD9iSm_sbuM
+
+
+-----
+
+####  mmbk  
+##### 35174#       发表于 2021-4-17 21:02
+
+
+居然还有人看虹？
+
+
+-----
+
+####  hulaoda007  
+##### 35175#       发表于 2021-4-17 21:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50970431&amp;ptid=1969498" target="_blank">mmbk 发表于 2021-4-17 21:02</a>
+
+居然还有人看虹？</blockquote>
+  那杏都那样了不还照样看
+
+
+-----
+
+####  qq845629713  
+##### 35176#       发表于 2021-4-17 21:06
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/210619orh2iesh9qhmi9iy.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210417210605.png</strong> (141.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 21:06 上传
+
+
+[https://www.youtube.com/watch?v=X5D8hiDLb4g](https://www.youtube.com/watch?v=X5D8hiDLb4g)
+
+
+这么多戏和我家椎名生日minilive又有什么关系呢？
+
+
+-----
+
+####  lhawp  
+##### 35177#       发表于 2021-4-17 21:10
+
+
+小偶像这是要去和药袋茄子贴贴了吗
+
+
+-----
+
+####  lhawp  
+##### 35178#       发表于 2021-4-17 21:11
+
+
+小偶像这是要去和药袋茄子贴贴了吗
+
+
+-----
+
+####  FCCHua  
+##### 35179#       发表于 2021-4-17 21:19
+
+
+黛灰这边几十秒看了个寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 35180#       发表于 2021-4-17 21:22
+
+
+差不多得了😅又是谜语人
+
+
+-----
+
+####  rzrbtk  
+##### 35181#       发表于 2021-4-17 21:28
+
+
+怎么说呢，好质量好剧情（对我来说只要是有用心思考的都算好）好人脉，我酸成🍋…
+
+
+-----
+
+####  渡鸦骑士  
+##### 35182#       发表于 2021-4-17 21:32
+
+
+网不太好没看，
+不过虹那个垂直起降的技术真的很酸哟<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 35183#       发表于 2021-4-17 21:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">  椎名生日，果然有笹木，一天的劳累都烟消云散了
+
+
+-----
+
+####  laphire  
+##### 35184#       发表于 2021-4-18 05:39
+
+
+小偶像好可爱…后面两个工具人也好可爱…
+
+
+-----
+
+####  義賊  
+##### 35185#       发表于 2021-4-18 09:08
+
+
+<blockquote>laphire 发表于 2021-4-18 05:39
+小偶像好可爱…后面两个工具人也好可爱…</blockquote>
+属于爱屋及乌(⑉°з°)-♡
+
+
+-----
+
+####  義賊  
+##### 35186#       发表于 2021-4-18 09:44
+
+
+https://b23.tv/DH3XVY项羽3d全熟
+
+
+-----
+
+####  kangkangsama  
+##### 35187#       发表于 2021-4-18 15:40
+
+
+月下樱线下开始了
+
+
+-----
+
+####  alcoholic1000  
+##### 35188#       发表于 2021-4-18 15:55
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-18 16:01 编辑 
+
+阳角的光芒<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/155537h6h90u94h6na0jah.png" referrerpolicy="no-referrer">
+
+
+<strong>【#月下の桜​】なんかくれんの！？プレゼント王決定戦【にじさんじ】-3.png.png</strong> (393.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 15:55 上传
+
+
+老师这个小作文绝了，真是文化人
+
+不破湊送了个refa，是不是在内涵西西<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  kangkangsama  
+##### 35189#       发表于 2021-4-18 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976612&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-4-18 15:55</a>
+
+阳角的光芒</blockquote>
+不破瘦脸器一出
+
+我就想‘哪来的2500的瘦脸器，快告诉我<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">’
+
+
+-----
+
+####  FCCHua  
+##### 35190#       发表于 2021-4-18 16:05
+
+
+老师这写的真不错<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  rzrbtk  
+##### 35191#       发表于 2021-4-18 16:25
+
+
+我听着都气了，emo个啥啊……
+口了速归，速归<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">！
+
+
+-----
+
+####  free  
+##### 35192#       发表于 2021-4-18 16:29
+
+
+[https://www.youtube.com/watch?v=sl6bBuMk3G4](https://www.youtube.com/watch?v=sl6bBuMk3G4)
+
+【 #チューバウト​ 】「TUBEOUT! Vol.7」冒頭無料生配信！
+
+
+                          
