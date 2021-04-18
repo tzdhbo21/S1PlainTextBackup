@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-17 09:41** 
+> ## **本文件最后更新于2021-04-18 09:40** 
 
 
 
@@ -4666,4 +4666,311 @@ wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装
 我就奶那个!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                                    
+-----
+
+####  都谷捻柏  
+##### 78397#       发表于 2021-4-17 17:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50967953&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-04-17 17:04:26</a>
+顺便今天不是色卡耐性 只加了25个星 大概..是个辣鸡强化?</blockquote>不算辣鸡，和她技能契合度还蛮高的不过也算不上质变
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  里村紅葉  
+##### 78398#       发表于 2021-4-17 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968293&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-17 17:40</a>
+
+先说说你哪个常驻剧限的弓没有
+
+
+我就奶那个!</blockquote>
+金皮卡水呆伊师塔叫兽泳贞超人熊，你可以开挑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78399#       发表于 2021-4-17 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968487&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-4-17 17:58</a>
+
+金皮卡水呆伊师塔叫兽泳贞超人熊，你可以开挑了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没一个是常驻剧限，你审题不清啊
+
+
+-----
+
+####  qixinno2  
+##### 78400#       发表于 2021-4-17 18:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然而强化的目前全是单体常驻吧 光炮和限定全都没机会啊
+
+
+-----
+
+####  qixinno2  
+##### 78401#       发表于 2021-4-17 18:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼 常驻五星弓只有三个 单体只有月神 结局已经注定了
+
+
+-----
+
+####  alucardcz  
+##### 78402#       发表于 2021-4-17 18:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968600&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-17 18:10</a>
+
+看了眼 常驻五星弓只有三个 单体只有月神 结局已经注定了</blockquote>
+玩家想到的 舍弃 .jpg
+
+
+-----
+
+####  qixinno2  
+##### 78403#       发表于 2021-4-17 18:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968610&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-17 18:10</a>
+
+玩家想到的 舍弃 .jpg</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望到时候能打我脸 毕竟这么容易猜到了有点无聊
+
+
+-----
+
+####  alucardcz  
+##### 78404#       发表于 2021-4-17 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968667&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-17 18:16</a>
+
+希望到时候能打我脸 毕竟这么容易猜到了有点无聊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新去看了看 4个啊 黑皮 雷电法王  月神  拿破仑  虽然单体的确只有一个
+
+
+-----
+
+####  qixinno2  
+##### 78405#       发表于 2021-4-17 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968760&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-17 18:24</a>
+
+萌新去看了看 4个啊 黑皮 雷电法王  月神  拿破仑  虽然单体的确只有一个
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">忘了勾选剧情池限定了 不过区别不大吧 祖师爷感觉也是个挺惨一五星
+
+
+-----
+
+####  里村紅葉  
+##### 78406#       发表于 2021-4-17 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968530&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-4-17 18:02</a>
+
+没一个是常驻剧限，你审题不清啊</blockquote>
+看成常驻限定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78407#       发表于 2021-4-17 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968805&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-17 18:29</a>
+
+忘了勾选剧情池限定了 不过区别不大吧 祖师爷感觉也是个挺惨一五星 ...</blockquote>
+祖师爷可不惨 已经强化的很强了 
+
+
+-----
+
+####  exiaexa  
+##### 78408#       发表于 2021-4-17 18:51
+
+
+奶中了笑死
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+拉二这憋了这么久，强化本不把三技能变成群体30也太对不起群众了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78409#       发表于 2021-4-17 18:56
+
+
+说实话拉二的性能还是可以的，还没到需要强化的地步，我5宝的用着很开心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78410#       发表于 2021-4-17 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50969084&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-17 18:56</a>
+
+说实话拉二的性能还是可以的，还没到需要强化的地步，我5宝的用着很开心 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么本能用拉二 想不到啊
+
+
+-----
+
+####  qixinno2  
+##### 78411#       发表于 2021-4-17 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968933&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-17 18:42</a>
+
+祖师爷可不惨 已经强化的很强了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个一技能强化简直意义不明 那怕给个自己成功率加20% 让自己2技能完美触发BUFF也比现在强啊
+
+
+-----
+
+####  alucardcz  
+##### 78412#       发表于 2021-4-17 20:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50969547&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-17 19:39</a>
+
+那个一技能强化简直意义不明 那怕给个自己成功率加20% 让自己2技能完美触发BUFF也比现在强啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那又如何  有宝具本 睿智也强化过  已经属于很强的从者了
+
+
+-----
+
+####  rooarr  
+##### 78413#       发表于 2021-4-17 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50969234&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-17 19:08</a>
+什么本能用拉二 想不到啊</blockquote>
+好像是某次90+本第二面需要一个单体的时候，拉二的伤害正好打不死，可以给主输出用蓝绿卡补点np<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78414#       发表于 2021-4-17 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50969786&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-17 20:05</a>
+
+那又如何  有宝具本 睿智也强化过  已经属于很强的从者了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那倒是 比起某些难得强化却给些弱智强化的和死活不给强化的要强很多
+
+
+-----
+
+####  alucardcz  
+##### 78415#       发表于 2021-4-17 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50970014&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-17 20:25</a>
+
+那倒是 比起某些难得强化却给些弱智强化的和死活不给强化的要强很多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刑部姬骂骂咧咧的退出了游戏
+
+
+-----
+
+####  風卷豹  
+##### 78416#       发表于 2021-4-17 22:04
+
+
+有大公这种先例，以后的强化都不太好猜了
+
+那就奶一个闪闪宝具再强化吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  飞霞精灵  
+##### 78417#       发表于 2021-4-18 11:08
+
+
+国服楼没了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78418#       发表于 2021-4-18 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974586&amp;ptid=1085254" target="_blank">飞霞精灵 发表于 2021-4-18 11:08</a>
+
+国服楼没了？</blockquote>
+左转BCR国服专楼，有2个，英文那个应该是BGO
+
+
+-----
+
+####  飞霞精灵  
+##### 78419#       发表于 2021-4-18 11:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974792&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-18 11:32</a>
+
+左转BCR国服专楼，有2个，英文那个应该是BGO</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我说么
+
+
+-----
+
+####  alucardcz  
+##### 78420#       发表于 2021-4-18 17:06
+
+
+熟悉的宝具本 熟悉的色卡down。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  qixinno2  
+##### 78421#       发表于 2021-4-18 17:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来宝具本全是后置色卡耐性下降了 不过竟然是强化燕青 我还以为会是卡米拉或者切嗣呢 羽蛇神怕是这次强化中唯一的叛徒
+
+
+-----
+
+####  里村紅葉  
+##### 78422#       发表于 2021-4-18 17:22
+
+
+唯一神最近的XP是后置色卡耐DOWN<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78423#       发表于 2021-4-18 17:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一天估计真是枪大公了 毕竟没强化没宝具本 由大公开始 由大公结束
+
+
+                                   
