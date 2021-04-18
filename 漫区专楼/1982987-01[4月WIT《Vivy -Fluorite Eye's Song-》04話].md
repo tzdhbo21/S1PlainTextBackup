@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-18 03:08** 
+> ## **本文件最后更新于2021-04-18 07:50** 
 
 
 
@@ -5933,4 +5933,358 @@ OP终于上线了；叙事节奏依旧很稳，这次故事还算可以
 正常任何一个科研课题组这么XJB折腾，早就没经费了。
 
 
-                                  
+-----
+
+####  爱吃冻鳗的猫  
+##### 459#       发表于 2021-4-18 11:12
+
+
+ 本帖最后由 爱吃冻鳗的猫 于 2021-4-18 11:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974414&amp;ptid=1982987" target="_blank">tsukatsukieiko 发表于 2021-4-18 10:45</a>
+
+这帮研究人员开课题的脑洞程度，实验设计的随意程度，加上“失败废止”结题却带来一屁股麻烦，真确定不是 ...</blockquote>
+这类题材的通病之一，高级ai跟廉价垃圾一样，不要就乱扔，挑起人和ai的矛盾<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  海狍子  
+##### 460#       发表于 2021-4-18 11:30
+
+
+草，暴雨中的机器人坟场那一幕既视感太强了
+
+长月达平没玩过底特律我是不信的（
+
+
+-----
+
+####  Hyzk  
+##### 461#       发表于 2021-4-18 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972821&amp;ptid=1982987" target="_blank">DARK_HGCG 发表于 2021-4-18 01:36</a>
+
+原本应该是要砸到市区死很多人的
+
+但是kb分子的头子受到女主影响所以改变计划只打算由自己去"殉道"
+
+最后是 ...</blockquote>
+原世界线这卫星就是掉到海里并且只有来不及撤离的人死了，大概率就是这集里的原计划成功了。这次原定落点要落到城市里是因为伊丽莎白不想让给了她新使命的组织头头死在那里，放倒了头头把组织的人送走之后为了留下AI杀人的记录而修改了落点。女主造成的影响应该是AI变得更高级了，所以伊丽莎白变得会为了主人的生存而违背其意愿，原世界线里伊丽莎白应该就遵守命令在旅馆里跟组织的人一起坠落倒海里了。
+
+
+-----
+
+####  aptx8285144  
+##### 462#       发表于 2021-4-18 11:59
+
+
+松本熊这这话怎么看起来没有算无遗策的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 463#       发表于 2021-4-18 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972557&amp;ptid=1982987" target="_blank">达达葱2 发表于 2021-4-18 00:44</a>
+
+哪里更新了？B站？</blockquote>
+去搜索无名小站找资源吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 464#       发表于 2021-4-18 12:04
+
+
+ 本帖最后由 aptx8285144 于 2021-4-18 12:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972988&amp;ptid=1982987" target="_blank">最强惠酱 发表于 2021-4-18 02:28</a>
+
+看得我一脸懵逼，哪怕你在上一集稍微给个妹妹的画面或者提示都能让这集好接受一点，第四集开头就告诉我实际 ...</blockquote>
+恢复记忆其实松本熊确实讲过撞头的初始化作用，只是这看种片很容易忽略这种理论问题<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 465#       发表于 2021-4-18 12:09
+
+
+白的这个塑造确实还可以，甚至感觉比姐姐还立体，对姐姐，头领，薇薇的反应以及转变和选择，顺便薇薇如果是人类的话恐怕就不仅仅是最后只感慨一句不甘心吧
+
+
+-----
+
+####  傘木希美  
+##### 466#       发表于 2021-4-18 12:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">看女人打架真好啊
+
+—— 来自 Xiaomi M2102K1C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  青菜子  
+##### 467#       发表于 2021-4-18 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974769&amp;ptid=1982987" target="_blank">海狍子 发表于 2021-4-18 11:30</a>
+
+草，暴雨中的机器人坟场那一幕既视感太强了
+
+长月达平没玩过底特律我是不信的（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">草，这个既视感究极强。。。还有那个妹妹跨女主身上说要把女主打回计算机那句台词也很生草。。。。
+
+
+不过那个复制实验确实很失败。。复制出了个二五仔，归根到底还算因为使命的影响已经远超什么机器人三原则了。
+
+
+-----
+
+####  gofbayrf  
+##### 468#       发表于 2021-4-18 12:17
+
+
+妹妹估計是因為雙生的設定 格式化后重新跟老闆同步了
+
+
+-----
+
+####  potwater  
+##### 469#       发表于 2021-4-18 12:17
+
+
+感觉这两话有点DTB的感觉，跟不跟得上细节设定也不是重中之重，在一个单元故事中纯粹去观察各色角色在不可抗力的大环境中挣扎的姿态也还行吧。
+
+
+-----
+
+####  亚瑟邓特  
+##### 470#       发表于 2021-4-18 12:32
+
+
+送人了还成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+这ai也太像人了，到底能不能无线传输啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  andyjin  
+##### 471#       发表于 2021-4-18 12:34
+
+
+沟通是演出效果吧，就和解说不占时间一样
+
+
+-----
+
+####  jacklibran  
+##### 472#       发表于 2021-4-18 12:42
+
+
+ 本帖最后由 jacklibran 于 2021-4-18 12:43 编辑 
+
+不是同一个人的提示上集片尾给了的，NICO那边基本都发现了声优不一样。听不出来就没办法了
+
+cast表也能看出端倪
+
+
+-----
+
+####  Hyzk  
+##### 473#       发表于 2021-4-18 12:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50975211&amp;ptid=1982987" target="_blank">亚瑟邓特 发表于 2021-4-18 12:32</a>
+
+送人了还成
+
+这ai也太像人了，到底能不能无线传输啊，沟通时间怎么和现实时间一样啊</blockquote>
+沟通时间可以理解，就算他数据秒传了你也得讲出来啊，不然观众看什么？这就跟战斗中解说是一个道理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 474#       发表于 2021-4-18 12:44
+
+
+话说原来蓝毛的歌姬名字也是桃佳起的，松本占据的熊外观也是她送的，我总感觉越加大这种份量，最后会出现和松本老账新账一起算的对飚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，虽然那时候“只是”不让薇薇去救
+
+
+-----
+
+####  LinkerWeg  
+##### 475#       发表于 2021-4-18 12:49
+
+
+这集的桥段好生硬啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+BTW,VIVY注入战斗程序后那段特写我还以为会变白毛战斗姬呢<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  亚瑟邓特  
+##### 476#       发表于 2021-4-18 12:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50975300&amp;ptid=1982987" target="_blank">Hyzk 发表于 2021-4-18 12:43</a>
+沟通时间可以理解，就算他数据秒传了你也得讲出来啊，不然观众看什么？这就跟战斗中解说是一个道理[f:067 ...</blockquote>
+他没有演出来啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  selain.meneth  
+##### 477#       发表于 2021-4-18 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972902&amp;ptid=1982987" target="_blank">loley 发表于 2021-4-18 01:58</a>
+
+虽说不是推理作品，可是解释坠落事故的方法竟然是，我还有个双胞胎噢这种前文没提过的新线索，总感觉有点膈 ...</blockquote>
+如果看的够仔细，说不定能从手环看出点什么（马后炮）
+
+
+-----
+
+####  flypig_zhy  
+##### 478#       发表于 2021-4-18 13:53
+
+
+ 本帖最后由 flypig_zhy 于 2021-4-18 13:54 编辑 
+
+果然开场底特律既视感太强了，不过为啥要特写胸部？
+
+
+-----
+
+####  darkddragon  
+##### 479#       发表于 2021-4-18 13:54
+
+
+第四话看起来像是为了卡时长删了一些片段一样，进展太快了
+
+这么快的进展八九话就能把原来pv里的单元故事讲完了吧，留够篇幅收尾和把单元回立起来确实是很难抉择啊<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hyzk  
+##### 480#       发表于 2021-4-18 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50975837&amp;ptid=1982987" target="_blank">darkddragon 发表于 2021-4-18 13:54</a>
+
+第四话看起来像是为了卡时长删了一些片段一样，进展太快了
+
+这么快的进展八九话就能把原来pv里的单元故事讲 ...</blockquote>
+总共就一个季番的篇幅，这么大的设定肯定没法讲的很细啊。节奏加快的同时通过音画表现把演出撑起来，我觉得已经不错了，也许立意不会拔高，但是看的很爽，不会无聊。<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  萝卜迷  
+##### 481#       发表于 2021-4-18 14:05
+
+
+期待最后有"机甲"
+
+
+-----
+
+####  406  
+##### 482#       发表于 2021-4-18 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974625&amp;ptid=1982987" target="_blank">爱吃冻鳗的猫 发表于 2021-4-18 11:12</a>
+
+这类题材的通病之一，高级ai跟廉价垃圾一样，不要就乱扔，挑起人和ai的矛盾之前提及的ai人权法跟没 ...</blockquote>
+不过妹妹是作为AI制作中途报废的未完成品被抛弃的吧...虽然初始化后姐妹合力的结果证实了当初研究人员的判断是错误的，但在赋予使命阶段就被认为失败的白真的在议员AI人权法的范围内吗，我深表怀疑<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">毕竟这个作品第一集就明确告诉观众了，“唯一的使命”是该作设定的AI的核心
+
+
+-----
+
+####  406  
+##### 483#       发表于 2021-4-18 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974414&amp;ptid=1982987" target="_blank">tsukatsukieiko 发表于 2021-4-18 10:45</a>
+
+这帮研究人员开课题的脑洞程度，实验设计的随意程度，加上“失败废止”结题却带来一屁股麻烦，真确定不是 ...</blockquote>
+动画，兄弟，我看到满大街伏地魔ai时候默认这已经是个高度发展的富得流油的理想社会了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flypig_zhy  
+##### 484#       发表于 2021-4-18 14:25
+
+
+看完了，还好吧，篇幅这么短，桥段有点快和生硬也没办法，看的不闷就行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  アルメリア  
+##### 485#       发表于 2021-4-18 14:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">碰额头和脖子那里的光圈两个设定 也太底特律变人了
+
+
+-----
+
+####  hqtkkb  
+##### 486#       发表于 2021-4-18 14:47
+
+
+我一直挺想吐槽的，废弃的ai不拿去回收就这么到处扔的吗？废弃ai硬要说跟尸体差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  406  
+##### 487#       发表于 2021-4-18 14:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976183&amp;ptid=1982987" target="_blank">hqtkkb 发表于 2021-4-18 14:47</a>
+
+我一直挺想吐槽的，废弃的ai不拿去回收就这么到处扔的吗？废弃ai硬要说跟尸体差不多吧 ...</blockquote>
+这部分真的太底特律了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flypig_zhy  
+##### 488#       发表于 2021-4-18 15:14
+
+
+<blockquote>hqtkkb 发表于 2021-4-18 14:47
+我一直挺想吐槽的，废弃的ai不拿去回收就这么到处扔的吗？废弃ai硬要说跟尸体差不多吧 ...</blockquote>
+问就是底特律
+
+
+-----
+
+####  flypig_zhy  
+##### 489#       发表于 2021-4-18 15:29
+
+
+<blockquote>アルメリア 发表于 2021-4-18 14:35
+碰额头和脖子那里的光圈两个设定 也太底特律变人了</blockquote>
+第一话光圈在脖子红蓝闪我就觉得导演肯定是玩底特律
+
+
+                                 
