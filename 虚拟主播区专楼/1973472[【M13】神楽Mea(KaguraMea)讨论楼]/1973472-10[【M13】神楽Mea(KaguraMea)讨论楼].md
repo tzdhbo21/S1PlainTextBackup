@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-19 04:49** 
+> ## **本文件最后更新于2021-04-19 11:33** 
 
 
 
@@ -4190,4 +4190,374 @@ sx的mk2跑nga的a版去了</blockquote>
 —— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-                                    
+-----
+
+####  掉头学姐  
+##### 13893#       发表于 2021-4-19 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50985081&amp;ptid=1973472" target="_blank">nulla03 发表于 2021-4-19 12:38</a>
+au污蔑我下场搅浑水，大部分au还在喷一个魂的时候我就是贝极星了，我只过不是发了个差点过 ...</blockquote>
+人家又不认，你前女友也学芭蕾？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nulla03  
+##### 13894#       发表于 2021-4-19 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50985240&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-4-19 12:53</a>
+人家又不认，你前女友也学芭蕾？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是哦，该泡个学芭蕾的了。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| aisakahammer| + 2|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  时间在我手中  
+##### 13895#       发表于 2021-4-19 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50985253&amp;ptid=1973472" target="_blank">nulla03 发表于 2021-4-19 12:54</a>
+
+贴粉籍辩赢了是哦，该泡个学芭蕾的了。
+
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 S1 ...</blockquote>
+学芭蕾的JK是吧，差不多得了，情圣MK2gck<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  D麦林  
+##### 13896#       发表于 2021-4-19 15:08
+
+
+不是既定套路了吗
+crew套贝贝人的皮吵架 打完了最后天狗背锅
+圣大亏及其粉丝绝不可能有锅呢<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Thrall12345  
+##### 13897#       发表于 2021-4-19 16:00
+
+
+草 好热闹啊 搬个凳子围观
+
+nga总是一会儿一页只剩2个发言了
+
+
+-----
+
+####  时间在我手中  
+##### 13898#       发表于 2021-4-19 16:12
+
+
+[@age45](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=263843) 处理一下玩意儿
+
+
+-----
+
+####  nulla03  
+##### 13899#       发表于 2021-4-19 16:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987437&amp;ptid=1973472" target="_blank">Thrall12345 发表于 2021-4-19 16:00</a>
+草 好热闹啊 搬个凳子围观
+
+nga总是一会儿一页只剩2个发言了</blockquote>
+是啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">萨尔哥的发言就不会被抽呢，我建议大家学习一个。
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  掉头学姐  
+##### 13900#       发表于 2021-4-19 16:18
+
+
+mk2什么时候和萨尔同归于尽，会有贴贴奇迹吗
+
+
+-----
+
+####  时间在我手中  
+##### 13901#       发表于 2021-4-19 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987437&amp;ptid=1973472" target="_blank">Thrall12345 发表于 2021-4-19 16:00</a>
+
+草 好热闹啊 搬个凳子围观
+
+nga总是一会儿一页只剩2个发言了</blockquote>
+想了想，我听说乐一在哭没有mix了，建议萨尔哥还是别屈尊来我们楼光临了，可以去学习未知KK发发光发发热，笑
+
+
+-----
+
+####  Thrall12345  
+##### 13902#       发表于 2021-4-19 16:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987661&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-19 16:19</a>
+
+想了想，我听说乐一在哭没有mix了，建议萨尔哥还是别屈尊来我们楼光临了，可以去学习未知KK发发光发发热 ...</blockquote>
+那是什么玩意儿 我从来只mix自己想mix的
+
+
+-----
+
+####  时间在我手中  
+##### 13903#       发表于 2021-4-19 16:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987719&amp;ptid=1973472" target="_blank">Thrall12345 发表于 2021-4-19 16:23</a>
+
+那是什么玩意儿 我从来只mix自己想mix的</blockquote>
+那我也不清楚，可能是有人问了一下然后他这么回答了8，唉，这年头mix难找啊，还可能要被官组mix卡审核，毕竟放话了，很害怕很不安
+
+
+-----
+
+####  A2014720  
+##### 13904#       发表于 2021-4-19 16:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13905#       发表于 2021-4-19 16:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  清风苍澜  
+##### 13906#       发表于 2021-4-19 16:36
+
+
+带酋长萨尔金您来辣
+
+
+-----
+
+####  素人不相识  
+##### 13907#       发表于 2021-4-19 17:13
+
+
+草，今天是什么文艺复兴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Thrall12345  
+##### 13908#       发表于 2021-4-19 17:14
+
+
+<blockquote>nulla03 发表于 2021-4-19 16:15
+是啊萨尔哥的发言就不会被抽呢，我建议大家学习一个。
+
+
+—— 来自 Xiaomi M2012K11AC, Android 11 ...</blockquote>
+你们怎么天天换号 都不认识了
+
+不对 好像不认识也挺好 起码不biased
+
+
+-----
+
+####  十九号大侠  
+##### 13909#       发表于 2021-4-19 17:59
+
+
+操
+
+
+-----
+
+####  pei23333  
+##### 13910#       发表于 2021-4-19 18:04
+
+
+害搁这车呢，tc了
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  nulla03  
+##### 13911#       发表于 2021-4-19 18:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988409&amp;ptid=1973472" target="_blank">Thrall12345 发表于 2021-4-19 17:14</a>
+你们怎么天天换号 都不认识了
+
+不对 好像不认识也挺好 起码不biased</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">我好惨。
+看tc看tc
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  时间在我手中  
+##### 13912#       发表于 2021-4-19 18:28
+
+
+玩完了，安心看直播，他来的话楼友善用拉黑功能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13913#       发表于 2021-4-19 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989292&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-19 18:28</a>
+玩完了，安心看直播，他来的话楼友善用拉黑功能</blockquote>
+那可不行，就喜欢看猴跳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  第二十三个马甲  
+##### 13914#       发表于 2021-4-19 18:29
+
+
+好久没来了，居然还没换新楼
+
+
+-----
+
+####  时间在我手中  
+##### 13915#       发表于 2021-4-19 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989298&amp;ptid=1973472" target="_blank">雪风utopia 发表于 2021-4-19 18:29</a>
+
+那可不行，就喜欢看猴跳</blockquote>
+那你陪他们整，我待会儿要补半小时，感知树这种乐色啥都不知道就狗叫，看着就恶心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  第二十三个马甲  
+##### 13916#       发表于 2021-4-19 18:35
+
+
+现在又是什么情况，内战啦？
+
+
+-----
+
+####  时间在我手中  
+##### 13917#       发表于 2021-4-19 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989364&amp;ptid=1973472" target="_blank">第二十三个马甲 发表于 2021-4-19 18:35</a>
+
+现在又是什么情况，内战啦？</blockquote>
+看直播看直播，要看戏左转隔壁贴贴楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  第二十三个马甲  
+##### 13918#       发表于 2021-4-19 18:40
+
+
+往前翻了翻，怎么又开始了啊，真就历史的循环🐎
+
+
+-----
+
+####  Mr.shelter  
+##### 13919#       发表于 2021-4-19 18:42
+
+
+V圈能有啥呢，不都是那一套翻来覆去换汤不换药地嚼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13920#       发表于 2021-4-19 18:44
+
+
+听直播听直播，刚刚说了一下那个魔怔批限人应该，细节还不少，反正就是以前用着不太行的日语关心你麻，后面发现魔怔了考虑过要不要对线还是啥来着
+
+但还是直接ban了，以前说过一次的样子
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 13921#       发表于 2021-4-19 18:53
+
+
+这是再用什么电器
+
+
+-----
+
+####  时间在我手中  
+##### 13922#       发表于 2021-4-19 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989577&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-4-19 18:53</a>
+
+这是再用什么电器</blockquote>
+炉子啥得在做刷刷锅吧。
+
+
+-----
+
+####  yywzjsw  
+##### 13923#       发表于 2021-4-19 19:29
+
+
+刚刚说觉得最辣的是什么？我卡掉了
+
+
+-----
+
+####  时间在我手中  
+##### 13924#       发表于 2021-4-19 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989959&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-4-19 19:29</a>
+
+刚刚说觉得最辣的是什么？我卡掉了</blockquote>
+我也没听到，四川的啥东西？
+
+
+                                   
