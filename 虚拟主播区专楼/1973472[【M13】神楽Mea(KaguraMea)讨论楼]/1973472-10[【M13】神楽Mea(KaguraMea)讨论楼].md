@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-19 03:45** 
+> ## **本文件最后更新于2021-04-19 04:49** 
 
 
 
@@ -3821,4 +3821,373 @@ mea换个皮就把他整没了，还被冲呢</blockquote>
 既然你还惦记官组那破事，当初官组当初为啥不让组员出来说话，你在想想
 
 
-                                     
+-----
+
+####  Mikumiku831  
+##### 13868#       发表于 2021-4-19 11:46
+
+
+刚来 完全不知道在吵啥
+
+不能躺平等今晚看小麻播什么吗<img src="https://static.saraba1st.com/image/smiley/face2017/114.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13869#       发表于 2021-4-19 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984359&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-19 11:40</a>
+
+同好会让你别乱说话这不就是说明对外打架就，吊用没有吗
+
+既然你还惦记官组那破事，当初官组当初为 ...</blockquote>
+你也是搞笑，那官组乱说话就不该叼了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我当时说的话起码没引火的更厉害，乐一记者这几个傻逼比我身份重多了，出来说了些什么臭几把话
+
+什么叫官组不让他们说话，记者乐一滚出来扯你麻伤心的时候这么想证明为什么要用傻逼反问句
+
+后面你麻复活带货那一波为什么记者自己啥都不知道就敢直接下场动态BB了
+
+
+反正我后面闭嘴不说话按你说法就是做了官组应该做的事，那官组自己嘴贱该不该骂啊，还是要我把飞狗这几个傻逼大亏不来当晚跟个弱智一样，全世界不知道你麻因为大亏不来伤心，这群傻逼借着粉丝以为live能正常举办了，自己哭着咩夸没了，然后自己知道你麻心情不好，在群里装傻逼懂哥反手阴阳一般粉丝才是世界上最爱神乐mea的截图给你看看啊
+
+
+我跟你说的事就是官组傻逼的问题，你跟我说et是傻逼这种被证明过无数次的事有意义？
+
+以前护着官组这么开心，我进去之后发现傻逼误事了你怎么就不敢批一顿呢
+
+哦，不用回我了，我都忘了把你这逼玩意儿塞抹布，是我的失误
+
+
+-----
+
+####  skgaminger1988  
+##### 13870#       发表于 2021-4-19 11:48
+
+
+什v什粉啊坛友
+crew需要的时候贴贴 不需要的时候毒唯
+天狗掰了之后一直都是毒唯（还很舔狗）<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+造成了crew连体人多 天狗毒唯多的假象 其实大家都是毒唯 贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13871#       发表于 2021-4-19 11:50
+
+
+唯唯黑暗骑士罢了，是小麻身边的最后一道防线，我愿意被垫，前提是要一根粉色路灯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13872#       发表于 2021-4-19 11:52
+
+
+论贴贴人的帽子还是crew带的多，事前盐水，事后贴贴的例子屡见不鲜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 13873#       发表于 2021-4-19 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984426&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-19 11:46</a>
+你也是搞笑，那官组乱说话就不该叼了是吧我当时说的话起码没引火的更厉害，乐一记者这几个傻逼比 ...</blockquote>
+怎么还按我说法做了官组应该做的事的，怎么读出这种意思的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+官组，打不过你mea毒唯
+你mea的毒唯，对外打架吊用没有
+最后我忘了是谁了，反正是个连体人在你mea楼说我为你mea辩到了最后
+
+
+-----
+
+####  草牛  
+##### 13874#       发表于 2021-4-19 11:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家那才叫聪明，唯唯就是群傻卵没问题吧
+
+
+-----
+
+####  A2014720  
+##### 13875#       发表于 2021-4-19 11:54
+
+
+ 本帖最后由 A2014720 于 2021-4-19 11:56 编辑 
+
+毕竟唯唯都上粉红路灯和破防跑路了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+让我看看剩下的唯唯在哪里…哦在防空洞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13876#       发表于 2021-4-19 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984507&amp;ptid=1973472" target="_blank">雪风utopia 发表于 2021-4-19 11:52</a>
+
+论贴贴人的帽子还是crew带的多，事前盐水，事后贴贴的例子屡见不鲜</blockquote>
+什v什粉罢了，恰似小麻冲冠一怒，泔水神爱世人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13877#       发表于 2021-4-19 11:58
+
+
+所以有人可以告诉我你咩昨天歌回直播里说的那段 JK威胁老师 具体到底是什么内容吗
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  呓亘  
+##### 13878#       发表于 2021-4-19 11:59
+
+
+【学生们来看你就是身子一直在抖动】
+【怕是在看AO冲】
+【老师 你的流言在jk之中到处传播哦】
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  时间在我手中  
+##### 13879#       发表于 2021-4-19 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984522&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-19 11:53</a>
+
+怎么还按我说法做了官组应该做的事的，怎么读出这种意思的
+
+官组，打不过你mea毒唯
+
+你mea的毒唯， ...</blockquote>
+你也是搞笑，你叫我思考官组为什么不多说话，然后他们首先自己就说一堆批话了。不算群里的那些他们破事，对外记者和乐一的弱智发言你先给我洗完了再说我的问题吧。
+
+
+我及时由于各种原因选择闭嘴，这是顺着你的逻辑来的，那既然这样我就问你，我当时被人挂了还被直接攻击的时候你觉得我是不是顶着可能整个同好会要被带上的风险去辩就是对的，如果你觉得是，那你塞我抹布得了，别看到我就只会用你那个啥都不行的键盘扣字，
+
+对外打架你是要怎么个打法啊，我就纳闷了，按你说法官组都不打了，你要所谓【毒唯】去打是吧，告诉我，怎么个打法。当时你说句话都能被直接群嘲，版务都不站在恁这边的，打什么？
+
+难道去平安夜或者瓶子下面开个团就行，哦，那我去黑屁过平安夜了，你满意了吗
+
+你不会又要和我说，那你怎么不去V8这些批话吧，算我求你了，原来网络论战赢了就能make 吊人 播放量或者说数据什么的great again了是吧
+
+
+我建议你还是别狗叫毒唯拉跨，你说的所谓天狗里面当年一堆贝贝人【内战】完所谓毒唯，现在装着无辜样还活在贝贝楼呢，我看出来了，你是真的贱，贝贝人傻逼半句话不敢骂，毒唯被你最爱的贝贝人开叼开团的时候就不算内战了，笑嘻了
+
+
+-----
+
+####  时间在我手中  
+##### 13880#       发表于 2021-4-19 12:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984541&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-19 11:54</a>
+
+毕竟唯唯都上粉红路灯和破防跑路了呢
+
+
+让我看看剩下的唯唯在哪里…哦在防空洞 ...</blockquote>
+你自己不也上了，差不多得了，当时你们自己一致要上的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|随便说说|
+
+
+查看全部评分
+
+
+-----
+
+####  甘栗No.007  
+##### 13881#       发表于 2021-4-19 12:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984591&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-4-19 11:59</a>
+【学生们来看你就是身子一直在抖动】
+【怕是在看AO冲】
+【老师 你的流言在jk之中到处传播哦】</blockquote>
+一人评论说自己是老师正在看直播
+她就说，是有这种让学生自习然后自己偷着在桌下看手机的老师呢
+后接上
+
+
+-----
+
+####  肥到终点  
+##### 13882#       发表于 2021-4-19 12:05
+
+
+crew冰清玉洁我还是能理解，毕竟脸上还是要挂点东西才能活下去。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+#孝子我是真的整不明白，天狗敌人这么多，为啥非得rp最底层的玩意<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+难道世界上真的有**催眠？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13883#       发表于 2021-4-19 12:07
+
+
+天狗里的井孝子不多见，但还是真有的，可能是真的喜欢井吧<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 13884#       发表于 2021-4-19 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984665&amp;ptid=1973472" target="_blank">甘栗No.007 发表于 2021-4-19 12:05</a>
+ 一人评论说自己是老师正在看直播 她就说，是有这种让学生自习然后自己偷着在桌下看手机的老师呢 后接上 ...</blockquote>
+草 这段挺好玩的
+
+
+-----
+
+####  weiweiEX  
+##### 13885#       发表于 2021-4-19 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984640&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-19 12:03</a>
+你也是搞笑，你叫我思考官组为什么不多说话，然后他们首先自己就说一堆批话了。不算群里的那些他们破事， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说是那就是，我最爱贴贴人了是吧
+你分析一万个因素，闭嘴的原因不还是菜吗
+抱着这几年的陈芝麻烂谷子慢慢嚼去吧，俺吃饭去了
+
+
+-----
+
+####  草牛  
+##### 13886#       发表于 2021-4-19 12:17
+
+
+真有催眠我早就对你mea重拳出击了👊
+
+
+-----
+
+####  时间在我手中  
+##### 13887#       发表于 2021-4-19 12:18
+
+
+臭女人盒限也不知道啥时候补
+
+
+-----
+
+####  时间在我手中  
+##### 13888#       发表于 2021-4-19 12:25
+
+
+ 本帖最后由 时间在我手中 于 2021-4-19 12:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984747&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-19 12:12</a>
+
+你说是那就是，我最爱贴贴人了是吧
+
+你分析一万个因素，闭嘴的原因不还是菜吗
+
+抱着这几年的陈芝麻 ...</blockquote>
+嗯嗯嗯你说的都对，反正我不听你的就是没做对是吧，你算老几呢
+
+能把对线当做对别人要求的，也就你了
+
+
+建议你这么厉害，赶紧进去官组帮他们多出点肉，打败废物毒唯哦~
+
+别只会像官组这几位一样，事情没做太多，逼话先满上了
+
+魂酱对官组和贝贝壬的爱护之情我感受到了
+
+
+你说是，那就是，毕竟昨天的事我拿来黑屁也是过去打的陈芝麻烂谷子辣，挺好的嗷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">属实时间管理带师了
+
+我再怎么菜大概也比你强个十倍还是没问题的，还是说你觉得你aeg和pre水平比我高的话，建议找个办法证明自己，别惦记我们这些个失败废物毒唯辣，赶紧去官组啊
+
+
+当年主力官组那边我觉得你大概连删除上限都不知道，笑嘻了，建议多点知识储备再出来说话，你次次说话除了跟我暴露你的无知和纸上谈兵以外，就没别的了
+
+
+既然毒唯做不到建议您带头去，小人去年11月腰痛到坐不起来，上班都不太舒服那种，回到家直接就趴下了，趴了半个月，去上海也没您的事，去线下亲自吃屎面对的，也不是你
+
+你算什么东西，现场要你没你，干贝贝壬干箱宝的时候你又在哪里，你嘴里除了毒唯拉跨的确没贝贝壬辣
+
+
+反正现在thh那边已经能自己产出了，看你这狗叫也是种乐趣，新号没塞你抹布是我错了，嘻嘻
+
+
+-----
+
+####  JY要塞  
+##### 13889#       发表于 2021-4-19 12:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毒唯和贝贝都会死，肉体永存
+
+
+-----
+
+####  weiweiEX  
+##### 13890#       发表于 2021-4-19 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984925&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-19 12:25</a>
+嗯嗯嗯你说的都对，反正我不听你的就是没做对是吧，你算老几呢
+
+能把对线当做对别人要求的，也就你了</blockquote>
+牛唇不对马嘴是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 13891#       发表于 2021-4-19 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50985044&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-19 12:35</a>
+
+牛唇不对马嘴是这样的</blockquote>
+自我描述而言给你满分，龙魂小朋友不要骄傲哦
+
+
+-----
+
+####  nulla03  
+##### 13892#       发表于 2021-4-19 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50983156&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-4-19 10:08</a>
+sx的mk2跑nga的a版去了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只过不是发了个差点过百赞的评论捏，
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                                    
