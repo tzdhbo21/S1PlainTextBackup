@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-18 08:40** 
+> ## **本文件最后更新于2021-04-19 10:39** 
 
 
 
@@ -9175,4 +9175,452 @@ https://b23.tv/DH3XVY项羽3d全熟
 【 #チューバウト​ 】「TUBEOUT! Vol.7」冒頭無料生配信！
 
 
-                          
+-----
+
+####  alcoholic1000  
+##### 35193#       发表于 2021-4-18 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50976659&amp;ptid=1969498" target="_blank">kangkangsama 发表于 2021-4-18 16:02</a>
+
+不破瘦脸器一出
+
+我就想‘哪来的2500的瘦脸器，快告诉我’</blockquote>
+人民币2500<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（其实正在 55%OFF，但还是超了很多）
+
+看下来对黑客好感度飙升，意外的有心，还很实在。
+
+
+Rion是经常拿来送礼的sabon的洗手液啫喱，应该是绿玫瑰和麝香两种味道。
+
+黑客是带花的外卖保温桶和心形小番茄ハートマト，送不破的是一堆拉面和のもの的狗狗面包。
+
+西西送不破的是小盆栽。
+
+不破是（智商税）refa瘦脸仪。
+
+老师送了糖果和LADUREE的化妆手包（3410 円），送不破的是fridgeezoo的小企鹅，主要用途是语音提醒冷藏库门没关。
+
+油男送了トロワ ボヤージュ小包浴盐，送不破FROZEN CUBE不锈钢冰块/杯子套，都是网上非常热销的送礼佳品...<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  PokerFaceSmile  
+##### 35194#       发表于 2021-4-18 17:34
+
+
+小偶像把推特头像改了，这戏还在继续
+
+
+-----
+
+####  kangkangsama  
+##### 35195#       发表于 2021-4-18 18:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50977290&amp;ptid=1969498" target="_blank">alcoholic1000 发表于 2021-4-18 17:31</a>
+
+人民币2500（其实正在 55%OFF，但还是超了很多）
+
+看下来对黑客好感度飙升，意外的有心，还很实在 ...</blockquote>
+我就说拉杜丽那包也应该不止2500的。。。
+
+
+-----
+
+####  free  
+##### 35196#       发表于 2021-4-18 18:37
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/183745hk77uikqr77ubbzu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>9.jpg</strong> (503.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 18:37 上传
+
+
+-----
+
+####  FCCHua  
+##### 35197#       发表于 2021-4-18 18:53
+
+
+https://youtu.be/c7bNUCxo_r0
+刚看完小偶像的这个呼啦圈视频，就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 35198#       发表于 2021-4-18 19:26
+
+
+糊卡还掉线，但模型还是很可爱的
+
+holo的体力可动T0天花板かな？
+
+<img src="https://img.saraba1st.com/forum/202104/18/192555n83v79vvnmmrnvre.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #桃鈴ねね3D​ 】🍑桃鈴ねね3Dお披露目！🍑【ホロライブ:桃鈴ねね】-2.png.png</strong> (664.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 19:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/192547mk7yowl2jlwrj7to.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #桃鈴ねね3D​ 】🍑桃鈴ねね3Dお披露目！🍑【ホロライブ:桃鈴ねね】-3.png.png</strong> (363.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 19:25 上传
+
+
+-----
+
+####  OldGlory  
+##### 35199#       发表于 2021-4-18 19:27
+
+
+不如昨天的小偶像能动
+
+
+-----
+
+####  死体残留  
+##### 35200#       发表于 2021-4-18 19:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不得不说holo光影还是很吊的
+
+
+-----
+
+####  qq845629713  
+##### 35201#       发表于 2021-4-18 19:29
+
+
+模型比昨天的好不少，
+
+
+-----
+
+####  alcoholic1000  
+##### 35202#       发表于 2021-4-18 19:31
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-18 19:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50978293&amp;ptid=1969498" target="_blank">OldGlory 发表于 2021-4-18 19:27</a>
+
+不如昨天的小偶像能动</blockquote>
+那V圈可动榜可以车起来了，我提名HH
+
+
+Syl，应该不是我网络的问题吧，怎么这么卡啊
+
+<img src="https://img.saraba1st.com/forum/202104/18/194438uj77b1jubibcclmg.png" referrerpolicy="no-referrer">
+
+
+<strong>【 #桃鈴ねね3D​ 】🍑桃鈴ねね3Dお披露目！🍑【ホロライブ:桃鈴ねね】-4.png.png</strong> (185.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 19:44 上传
+
+
+游乐园大场景，不错，3D内卷<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 35203#       发表于 2021-4-18 20:27
+
+
+千草新衣服
+
+
+QQ截图20210418202630.jpg
+(145.37 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-18 20:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/202714s36xf6vbpbkxskpu.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 35204#       发表于 2021-4-18 20:29
+
+
+你杏的圆脸不人气声优*3都挺能动的，再算上个鸭皇和星街吧
+
+
+-----
+
+####  purdre  
+##### 35205#       发表于 2021-4-18 21:12
+
+
+看了月下樱生日送礼，现充真好啊真好啊羡慕嫉妒恨一群陽キャ<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 35206#       发表于 2021-4-18 21:18
+
+
+哇哦，千草和HACHI合作翻唱了
+
+
+-----
+
+####  ylssb10438  
+##### 35207#       发表于 2021-4-18 21:30
+
+
+哇哦<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 35208#       发表于 2021-4-18 21:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">hero这新衣服哈韩要素拉满了
+
+
+-----
+
+####  IDIDIDID  
+##### 35209#       发表于 2021-4-18 22:33
+
+
+有人摆烂完开歌回了。
+
+
+-----
+
+####  渡鸦骑士  
+##### 35210#       发表于 2021-4-18 23:03
+
+
+免费变了，连自己吹过的银河爱丽丝都忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 35211#       发表于 2021-4-18 23:09
+
+
+ 本帖最后由 Map-2 于 2021-4-18 23:22 编辑 
+
+哪三个圆脸不人气声优？<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+天皇 阿希 ne皇 ？
+
+
+-----
+
+####  渡鸦骑士  
+##### 35212#       发表于 2021-4-18 23:19
+
+
+[https://camp-fire.jp/projects/view/357079](https://camp-fire.jp/projects/view/357079) <blockquote>日本の音楽業界を牽引してきた「つんく♂」氏の楽曲をリスペクトし、ボカロPによるリアレンジと、VTuberによる新録歌唱のコラボレーションを実現！誰も聴いたことのない、エンタメ業界の重鎮と、ネットクリエイター達の夢の共演を、オリジナルCDアルバム化してお届け致します。</blockquote>
+虽然我没钱，不过帮他们宣传一下吧，p主和vtb呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 35213#       发表于 2021-4-18 23:28
+
+
+唱一半拔线可太牛逼了。
+
+
+-----
+
+####  CAserlumos  
+##### 35214#       发表于 2021-4-18 23:45
+
+
+不想唱可以不唱<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sgssk  
+##### 35215#       发表于 2021-4-19 12:50
+
+
+ 本帖最后由 sgssk 于 2021-4-19 12:52 编辑 
+
+上面说的那众筹，三小时前看还剩10w，现在已经达成了。
+
+
+说起来我记得以前某部黄油的英化众筹也是，前面一个多月从40龟速爬到70不到，最后12小时狂飙40%甚至超额完成了十多个百分点……真不知道是观众死线了坐不住掏真钱，还是发起方死线了坐不住上台自演了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 35216#       发表于 2021-4-19 18:23
+
+
+看了下最近的管人粉丝破事，感想是谏山创罪大恶极
+
+
+-----
+
+####  nulla03  
+##### 35217#       发表于 2021-4-19 18:24
+
+
+我已经变成了艾伦mk2了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  飞姆托  
+##### 35218#       发表于 2021-4-19 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989227&amp;ptid=1969498" target="_blank">nulla03 发表于 2021-04-19 18:24:01</a>
+我已经变成了艾伦mk2了 v2.4.3</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你名言快念一遍，小麻不要嫁给啊夸，至少为mk2守寡10年吧
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  神影依  
+##### 35219#       发表于 2021-4-19 18:30
+
+
+Himehina这期打人侠3还挺有意思的。<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nulla03  
+##### 35220#       发表于 2021-4-19 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989263&amp;ptid=1969498" target="_blank">飞姆托 发表于 2021-4-19 18:27</a>
+那你名言快念一遍，小麻不要嫁给啊夸，至少为mk2守寡10年吧
+
+  -- 来自 能看大图的 Stage1官方 iOS ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我不该是aqua为我守十年寡嘛？
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+-----
+
+####  NBXX  
+##### 35221#       发表于 2021-4-19 18:31
+
+
+https://vrlive.party/news/1618822800/
+　日頃より.LIVEを温かく見守り、応援していただきありがとうございます。
+　この度アイドル部に関して、ご支援くださるファンの皆様並びに関係者の皆様へご報告がございます。
+
+
+　2021年4月末日をもちまして、アイドル部１期生は卒業となり、
+　花京院ちえり、神楽すず、カルロ・ピノ、もこ田めめめ、ヤマト イオリの5名に関しましては、
+　アイドル部を卒業する形にはなりますが引き続き.LIVE所属として活動し、より一層精進していく所存です。
+
+
+　牛巻りこ、木曽あずき、北上双葉、金剛いろは、八重沢なとりの5名に関しましては、
+　契約満了のため、4月の各契約期間満了の日付をもって、アイドル部ならびに.LIVEからも卒業することとなります。
+　これまでの3年間活動を見守っていただき、そしてあたたかいご声援をくださりまして誠にありがとうございました。
+
+
+　ファンの皆様、関係者の皆様におかれましては、引き続きご支援ご鞭撻を賜りますようお願い申し上げます。
+
+
+-----
+
+####  NBXX  
+##### 35222#       发表于 2021-4-19 18:31
+
+
+风怒
+
+
+-----
+
+####  飞姆托  
+##### 35223#       发表于 2021-4-19 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989311&amp;ptid=1969498" target="_blank">nulla03 发表于 2021-04-19 18:30:57</a>
+v2.4.3</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不是au了吗
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  IDIDIDID  
+##### 35224#       发表于 2021-4-19 18:32
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-19 18:35 编辑 
+
+偶像部没了
+
+
+-----
+
+####  IDIDIDID  
+##### 35225#       发表于 2021-4-19 18:33
+
+
+女主角泉下有知可以瞑目了
+
+
+-----
+
+####  渡鸦骑士  
+##### 35226#       发表于 2021-4-19 18:36
+
+
+ 本帖最后由 渡鸦骑士 于 2021-4-19 18:38 编辑 
+
+这几个不知道被内定了多少个……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 35227#       发表于 2021-4-19 18:37
+
+
+牛卷木曾早就跑了不知道多久了
+双叶和大米上最有可能转生的吧
+金刚估计人没了
+
+
+                         
