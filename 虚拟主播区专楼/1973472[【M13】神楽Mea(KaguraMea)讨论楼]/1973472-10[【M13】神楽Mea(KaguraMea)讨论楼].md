@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-19 02:55** 
+> ## **本文件最后更新于2021-04-19 03:45** 
 
 
 
@@ -3458,9 +3458,367 @@ MK2是不是分手了啊，最近高强度黑屁
 ##### 13835#       发表于 2021-4-19 10:54
 
 
-那肯定更恨唯唯啊，人家都说了，本来都做好心理准备躺平了，看到mk2立马就爬起来
+ 本帖最后由 草牛 于 2021-4-19 10:56 编辑 
+
+那肯定更恨唯唯啊，人家都说了，本来都做好心理准备躺平了，看到mk2立马就爬起来，笑死我了
 
 mk2就像那个，鱼篓里的鲶鱼，能让一群快死的鱼保持活力
 
 
-                                      
+-----
+
+####  千木唯  
+##### 13836#       发表于 2021-4-19 10:55
+
+
+ 本帖最后由 千木唯 于 2021-4-19 11:09 编辑 
+
+
+面对唯唯重拳出击
+
+面对嘉心糖唯唯诺诺？
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 13837#       发表于 2021-4-19 10:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我还挺想看嘉心糖跟连体人碰一碰的
+结果就这<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时雨rain  
+##### 13838#       发表于 2021-4-19 11:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">差不多得了，连体人都快入土了
+
+
+-----
+
+####  专业划水人员  
+##### 13839#       发表于 2021-4-19 11:07
+
+
+不明白你们脑回路。那么想他们打起来，最后还不是天狗和小麻白增加一堆敌人。
+
+
+-----
+
+####  时间在我手中  
+##### 13840#       发表于 2021-4-19 11:08
+
+
+想啥呢，au最好也就是个不是敌人也不是朋友啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">你什么时候产生了au和天狗是一路的错觉
+
+
+人家高贵国V人啊
+
+
+-----
+
+####  Dualist彩  
+##### 13841#       发表于 2021-4-19 11:09
+
+
+连体人什么脑回路你楼比谁都清楚，怎么还有抱以期待的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 13842#       发表于 2021-4-19 11:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你mea毒唯对外打架吊用没有，当然是嘲讽连体人更重要了
+
+
+-----
+
+####  雪风utopia  
+##### 13843#       发表于 2021-4-19 11:10
+
+
+比起连体人，还是你们天狗入土早吧，毕竟人家的糖都是虚的可以自己造，而你们的麻是真的，不播就是不播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13844#       发表于 2021-4-19 11:11
+
+
+🙋报告，只想看人打架
+
+至于你麻，她这边都入土了，别几把盯着b站看了
+
+
+-----
+
+####  十九号大侠  
+##### 13845#       发表于 2021-4-19 11:15
+
+
+不差这点
+
+
+-----
+
+####  A2014720  
+##### 13846#       发表于 2021-4-19 11:16
+
+
+引流的事不知道你们在纠结啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+看装扮还是个偏隔壁的贝贝人，难得拉点关注还要被人这么说<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，难啊
+
+
+-----
+
+####  Joffre✔  
+##### 13847#       发表于 2021-4-19 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50983907&amp;ptid=1973472" target="_blank">专业划水人员 发表于 2021-4-19 11:07</a>
+
+不明白你们脑回路。那么想他们打起来，最后还不是天狗和小麻白增加一堆敌人。 ...</blockquote>
+为啥打起来天狗会树敌多 连体人基本上都是偏crew的比较多吧 天狗是偏毒唯的多些
+
+
+-----
+
+####  十九号大侠  
+##### 13848#       发表于 2021-4-19 11:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">天狗不偏毒唯还是天狗吗，那不是crew吗
+
+
+-----
+
+####  雪风utopia  
+##### 13849#       发表于 2021-4-19 11:20
+
+
+难道不是crew偏毒唯多吗，毕竟隔壁还有个大家庭，你天狗有吗<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 13850#       发表于 2021-4-19 11:21
+
+
+懂了，au和二创组联合炒作，贴贴！贴贴！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13851#       发表于 2021-4-19 11:22
+
+
+简单分类，乱刷ky出警的是天狗，和平躺平亲切的是连体人
+
+
+-----
+
+####  雪风utopia  
+##### 13852#       发表于 2021-4-19 11:24
+
+
+肮脏无比的都是天狗，只有crew是冰清玉洁的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13853#       发表于 2021-4-19 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50983941&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-19 11:10</a>
+
+你mea毒唯对外打架吊用没有，当然是嘲讽连体人更重要了</blockquote>
+去年杨永信的事你给我下场个看看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">官组和傻逼贴贴人那时候内战比我狠几十倍呢
+
+
+你说的去官组就是让我去看他们组在11月那会儿三天里面提到神乐mea相关的话题不到300条？还是飞狗乐一记者这些个傻逼玩意儿啊
+
+
+以前就跟你说官组没救，我去了之后的确觉得没救了，你要反驳我建议你去过审核哦龙魂
+
+
+别次次我做到了都只会来句毒唯如何如何
+
+
+-----
+
+####  Dualist彩  
+##### 13854#       发表于 2021-4-19 11:28
+
+
+剧本出来了，crew和二创组联合炒作，钓出毒唯天狗，控制住连体人和crew的发言，完成对毒唯天狗的围剿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 13855#       发表于 2021-4-19 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984162&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-19 11:26</a>
+去年杨永信的事你给我下场个看看官组和傻逼贴贴人那时候内战比我狠几十倍呢
+
+
+你说的去官组就是让 ...</blockquote>
+你看一到这就来劲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么去年你mea真被人冲的时候就把自己整没了呢
+
+
+-----
+
+####  草牛  
+##### 13856#       发表于 2021-4-19 11:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea换个皮就把他整没了，还被冲呢
+
+
+-----
+
+####  时间在我手中  
+##### 13857#       发表于 2021-4-19 11:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984208&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-19 11:29</a>
+
+你看一到这就来劲了怎么去年你mea真被人冲的时候就把自己整没了呢</blockquote>
+我去年被人挂了，同好会让我别说话你有问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+而且我和你说的事官组的事啊，就记者去年那个摆烂样和乐一找我们几个擦屁股的批样，你爱官组那你去吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">我大号去九条组直接半句话没说被踢这事我觉得也不说别的，官组不欢迎我有问题吗，笑嘻了
+
+
+-----
+
+####  十九号大侠  
+##### 13858#       发表于 2021-4-19 11:34
+
+
+有多少贝贝人，p家大家庭粉和#皮噶吃啊
+
+
+-----
+
+####  A2014720  
+##### 13859#       发表于 2021-4-19 11:35
+
+
+在坐全是，kpi来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13860#       发表于 2021-4-19 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984224&amp;ptid=1973472" target="_blank">草牛 发表于 2021-4-19 11:31</a>
+
+mea换个皮就把他整没了，还被冲呢</blockquote>
+我真没了现在还会在这里和你说话啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 13861#       发表于 2021-4-19 11:35
+
+
+贝贝人＞井皮噶吃≥p家大家庭粉 应该吧
+
+
+-----
+
+####  专业划水人员  
+##### 13862#       发表于 2021-4-19 11:36
+
+
+<blockquote>Joffre✔ 发表于 2021-4-19 11:17
+为啥打起来天狗会树敌多 连体人基本上都是偏crew的比较多吧 天狗是偏毒唯的多些 ...</blockquote>
+每次有锅不是全是这边背的，哈哈梗谁背？在大福视频下面乱刷谁背？
+
+
+-----
+
+####  千木唯  
+##### 13863#       发表于 2021-4-19 11:37
+
+
+贝贝人6成+
+大家庭粉1%
+井皮gachi 5%
+井孝子10%
+？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+剩下的是单推和唯唯
+
+
+-----
+
+####  时间在我手中  
+##### 13864#       发表于 2021-4-19 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984300&amp;ptid=1973472" target="_blank">专业划水人员 发表于 2021-4-19 11:36</a>
+
+每次有锅不是全是这边背的，哈哈梗谁背？在大福视频下面乱刷谁背？</blockquote>
+那你能如何，乐一无限飞狗这些傻逼就这么厉害啊，官组人粉头身份好带多了
+
+
+最傻逼的不还是11月那会儿记者也和他们一样玩这套吗，活该招不到人反正
+
+
+-----
+
+####  草牛  
+##### 13865#       发表于 2021-4-19 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984273&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-19 11:35</a>
+
+我真没了现在还会在这里和你说话啊就算没了两天我也没做什么破事脱坑回踩，按你定义我好得很[f:22 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">天狗真是
+
+
+-----
+
+####  A2014720  
+##### 13866#       发表于 2021-4-19 11:40
+
+
+也就是说唯唯连贝贝一半都不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道都完事了还争个啥，这么缺kpi啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 13867#       发表于 2021-4-19 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984248&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-19 11:33</a>
+我去年被人挂了，同好会让我别说话你有问题吗难不成你要我都被人发现是组皮套了还继续带头冲锋？ ...</blockquote>
+同好会让你别乱说话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不就是说明对外打架就，吊用没有吗
+既然你还惦记官组那破事，当初官组当初为啥不让组员出来说话，你在想想
+
+
+                                     
