@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-17 05:39** 
+> ## **本文件最后更新于2021-04-19 07:38** 
 
 
 
@@ -14550,4 +14550,400 @@ aqua最喜欢apex了，说不定私下和野男人开黑了呢？
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你猜这么多信不信把你打成下一个感知树圣经
 
 
-        
+-----
+
+####  星の守  
+##### 5732#       发表于 2021-4-17 13:53
+
+
+不用管别人怎么想了，都现在这样了，看个管人还得在乎这在乎那的累不累<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凛子也想要五个  
+##### 5733#       发表于 2021-4-17 13:59
+
+
+ 本帖最后由 凛子也想要五个 于 2021-4-17 14:01 编辑 
+
+免费<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+免费你的对象取错了啊
+这话怎么就拐回来了呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/17/135911cixr4ekexrirxkrx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210417_135933.jpg</strong> (71.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 13:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/135912ljx3jjqhj2orlcrr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-47ae845050679f1c.jpg</strong> (99.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 13:59 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 13战斗力 -14
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 米酒马路|-1|竟然上镜了|
+| qesto|-1||
+| nowaki|-2||
+| 99726182@qq.com|-1||
+| 漆黑之花|-1|你们天狗是不是觉的当一坨狗屎很自豪.|
+| Medling|-1||
+| 499|-1|你发给免费去，发这里干嘛|
+| 17119854|-1||
+| FCCHua|-1|差不多得了|
+| ylssb10438|-1|火星就算了还发两遍- -|
+| 星の守|-1|病得不轻|
+| 面具13|-1|别进专楼拉屎，回你开的夸黑楼好吗.|
+| Maonpuyo|-1|这狗怎么还在|
+
+
+查看全部评分
+
+
+-----
+
+####  ylssb10438  
+##### 5734#       发表于 2021-4-17 14:50
+
+
+额额，你怎么一边说把夸当内容提供者一边在脑补啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5735#       发表于 2021-4-17 14:56
+
+
+失联艺也可以是立派的内容啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  愛さ実  
+##### 5736#       发表于 2021-4-18 04:11
+
+
+来了个什么mk2的mk2<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  星の守  
+##### 5737#       发表于 2021-4-18 16:02
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/160203ca15k158zraktb5z.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-4-18 16-1-48.png</strong> (34.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 16:02 上传
+
+
+你终于舍得回来啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5738#       发表于 2021-4-18 16:11
+
+
+臭泔水，这么多天没动静，真有脸回来<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5739#       发表于 2021-4-18 16:40
+
+
+这推这么傻，应该是本人发的。晚上八成是歌回了。
+
+
+感觉这赛季有可能直接放弃apex冲大师的目标。
+
+
+-----
+
+####  星の守  
+##### 5740#       发表于 2021-4-18 19:59
+
+
+9点播，看看她说些啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5741#       发表于 2021-4-18 20:01
+
+
+嬲（nia）~
+
+
+-----
+
+####  Kanchiki  
+##### 5742#       发表于 2021-4-18 20:10
+
+
+YAGOO转推了？这是抗议之后达成了什么协议吗
+
+
+-----
+
+####  面具13  
+##### 5743#       发表于 2021-4-18 21:22
+
+
+玩apex把身体玩崩了，听起来是跟家里人闹矛盾了？
+
+现在声音挺奇怪的，不知道是哭腔还是嗓子状态不好。
+
+看上去是前面猜的（3）。
+
+
+-----
+
+####  离魂仙  
+##### 5744#       发表于 2021-4-18 21:25
+
+
+不顺心了就不播、就不通告、就没想理你们这帮舔狗
+
+这就是葱大人的偶像理念吗，公私分明，有骨气！
+
+
+-----
+
+####  梅斯之围  
+##### 5745#       发表于 2021-4-18 21:53
+
+
+提了海苔男？
+
+
+前三十分钟说了啥，来晚了没听到，有无楼友repo<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 5746#       发表于 2021-4-18 21:59
+
+
+ 本帖最后由 ylssb10438 于 2021-4-18 22:03 编辑 
+
+repo啥，说了和没说一样<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5747#       发表于 2021-4-18 22:00
+
+
+就家里有点事，心态崩了
+
+
+什么事，为什么崩了，一概未提
+
+
+SYL，事情的影响还未消退，只是暂时缓过来了
+
+
+-----
+
+####  星の守  
+##### 5748#       发表于 2021-4-18 22:03
+
+
+ape熬夜身体玩崩了，精神也崩了，还和家人吵架了，想发推也不知道发什么好，总之挺难过的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 5749#       发表于 2021-4-18 22:04
+
+
+总结就是状态不太好...感觉会继续摸一阵...
+
+
+-----
+
+####  ylssb10438  
+##### 5750#       发表于 2021-4-18 22:13
+
+
+摸吧，等怪猎更新和生化危机8出来再复活吧
+
+
+-----
+
+####  面具13  
+##### 5751#       发表于 2021-4-18 22:35
+
+
+状态慢慢变好了点。
+
+她mua随她mua，反正mua的对象肯定不是crew
+
+
+-----
+
+####  离魂仙  
+##### 5752#       发表于 2021-4-18 23:00
+
+
+当
+
+每个星期只有周日来听夸宝
+
+感觉就像小时候、熬到周末
+
+躲在被窝里、调到音乐广播
+
+听那个声音很好听的大姐姐的节目
+
+大概就是、现在最适合我的听众体验了
+
+
+-----
+
+####  面具13  
+##### 5753#       发表于 2021-4-18 23:07
+
+
+每天持续头疼，又流鼻血，不愿意去医院。
+
+
+-----
+
+####  面具13  
+##### 5754#       发表于 2021-4-18 23:10
+
+
+「フブちゃん優しいからね」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  飞姆托  
+##### 5755#       发表于 2021-4-18 23:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">妈宝夸，离了久美子照顾不了自己
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  面具13  
+##### 5756#       发表于 2021-4-18 23:21
+
+
+ 本帖最后由 面具13 于 2021-4-18 23:29 编辑 
+
+家里人的矛盾，说不准是跟谁的矛盾呢<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+苔姨来了。
+
+
+说长时间失联没下次了。至少会发点无意义推
+
+
+-----
+
+####  ylssb10438  
+##### 5757#       发表于 2021-4-18 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980637&amp;ptid=1947500" target="_blank">面具13 发表于 2021-4-18 23:07</a>
+
+每天持续头疼，又流鼻血，不愿意去医院。</blockquote>
+多少有点哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zpy393  
+##### 5758#       发表于 2021-4-18 23:34
+
+
+发个敷衍推很难吗，无意义的表情包拉满不就好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 5759#       发表于 2021-4-19 10:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">和家里人闹矛盾了啊，也是 独居才半年，就把身子搞垮了，九美子或许就吵起来了，小洋葱心里苦，
+
+
+-----
+
+####  gikaqi  
+##### 5760#       发表于 2021-4-19 14:55
+
+
+ 本帖最后由 gikaqi 于 2021-4-19 15:25 编辑 
+
+昨晚听阿夸被问到v的活动还会不会继续下去，她的是说虽然身体和精神有跟不上的地方？但还有想做的事，想把这些实现了，所以还不会停。
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这话就有种等哪天做完事收山的感觉。而不是找个工作干到退休过日子的心态。
+
+说出来可能被人打，说实话，头一次让我真实地产生了“看一天少一天”的意识，作为观众说不难受那是不可能的。但如果真能实现梦想然后收山去过日子，对她本人来说很幸福吧，这事哪有那么容易的，说不祝她成功也不够意思。
+
+
+往好处想倒是至少看起来她没想着卖身干一辈子的样子，然而后面又说到大家还会寂寞所以还不会停，又有种粉丝在绊着她的感觉。不知道将来最后绊住她的会是剩下的粉丝还是她未能实现的梦想还是一个又一个更大的目标，又或是真能潇洒离去。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也可能是我想多了，直播总得说些正能量话的。最后我挺羡慕那些说“会直播一辈子”的主播的粉丝，不管是不是真的，总之好歹骗骗人，不要让人那么快面对现实好不好。
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">阿夸最长也只有十年之约，太短暂了，骗人还不往大了说。那位要说阿夸离开后还会以其他身份接着在互联网上活动一辈子什么的，这种没影的白日梦我做都不敢做的。
+
+
+
+
+-----
+
+####  愛さ実  
+##### 5761#       发表于 2021-4-19 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50986639&amp;ptid=1947500" target="_blank">gikaqi 发表于 2021-4-19 14:55</a>
+昨晚听阿夸被问到v的活动还会不会继续下去，她的是说虽然身体和精神有跟不上的地方？但还有想做的事，想把 ...</blockquote>
+之前也说过“要直播一辈子”<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+       
