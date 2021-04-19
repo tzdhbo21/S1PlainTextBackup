@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-15 09:05** 
+> ## **本文件最后更新于2021-04-19 03:16** 
 
 
 
@@ -8,7 +8,25 @@
 ##### 1#       楼主       发表于 2021-1-29 10:42
 
 
- 本帖最后由 leystage 于 2021-4-14 17:36 编辑 
+ 本帖最后由 leystage 于 2021-4-17 11:13 编辑 
+
+索尼移动通信在本周召开的 2021 线上发布会上发布多款 Xperia 智能手机。
+与去年一样命名规则则与旗下 Alpha 可换镜头相机统一，以 mark 加数字来区分。
+其中 Xperia 1 III （音 Xperia One Mark Three ）是集成了索尼最新影音技术的旗舰智能手机。
+中文官方产品介绍页： [https://www.sonystyle.com.cn/pro ... x215_ftp/index.html](https://www.sonystyle.com.cn/products/xperia/xperia_1m3/pdx215_ftp/index.html)
+
+
+英文产品页面： [https://www.sony.com/electronics/smartphones/xperia-1m3](https://www.sony.com/electronics/smartphones/xperia-1m3)
+
+
+产品亮点：
+世界首创可变长焦镜头，可在 75mm 105mm 间切换并提供高 AF 自动对焦性能世界首创 6.5 寸 4K 120Hz HDR OLED 屏幕，支持 240Hz 软件降低残影； 240Hz 触摸采样无刘海无挖空完整屏幕支持 5G 毫米波和 Sub6 （部分地区）16mm F2.2 超广角、24mm F1.7 广角、75/105mm F2.3/F2.8 可变长焦 组成的三摄系统，均为索尼最新 CMOS 和 ZEISS 镜头。主摄为 1/1.7 寸大型传感器，提供 1.8um 大像素尺寸，三摄均支持混合光学防抖三摄镜头均施加 T* 镀膜以提供高质量的色彩、通透感、立体感和虚化效果，减少鬼影和边缘偏色三摄均支持双 PD 高速对焦源于 Aplha 的最新高速自动追焦技术，增强的专业相机，并新增易于日常使用的 Basic 模式每秒 60 帧 AF/AE 及每秒 20 帧超高速连拍，新支持连拍模式下的 RAW 预降噪延续十数年的便于快速启动和对焦锁定的单独相机物理快门摄影功能继续进步，Cinematography Pro 应用能提供专业的摄影功能系列传统的立体声双扬声器输出较上代继续增加 40%并维持高音质较 USB 耳机输出信号噪音减少 90%的 3.5mm 耳机口经过索尼电影娱乐深度调整的 Dolby Atmos 立体声音响，及 360 Reality Audio 和 DSEE Ultimate 等索尼独家音质增强技术高通骁龙 888 、12GB 内存，256/512GB 存除4500mAh 大容量电池，30W 充电、无线充电、3 年循环可保持 80%电池寿命的专利长寿技术仅 187g 轻薄机身，高品质的边框工艺和玻璃背面延续十年的 IP5/8 6X 防水防尘标准
+
+
+2021 年初夏上市。黑、灰、紫三色。价格未定。
+
+索尼同时还公布了便携版本的 Xperia 5 III 和入门定位的 Xperia 10 III 。Xperia 5 III 在具备大部分 Xperia 1 III 最新技术的同时改用了更小的屏幕，68mm 的宽度和 168g 的便携性在目前高端 Android 智能手机中数一数二。4500mAh 的大容量电池有望提供高于平均水平的续航能力。Xperia 10 III 略。
+
 
 2020/01/29
 
@@ -89,41 +107,6 @@ Xperia 1 仅主摄是索尼传感器、1 II 则是主摄+超广角。不知 1 II
 来源
 [https://www.voice.com/post/@onle ... 611846138-426237886](https://www.voice.com/post/@onleaks/exclusive-first-look-at-sonys-new-flagship-the-xperia-1-iii-1611846138-426237886)
 [http://www.xperiablog.net/2021/0 ... g+%28Xperia+Blog%29](http://www.xperiablog.net/2021/01/28/xperia-1-iii-mark-3-renders-break-cover-highlights-periscope-camera-and-shortcut-key/?utm_source=feedburner&amp;utm_medium=feed&amp;utm_campaign=Feed%3A+XperiaBlog+%28Xperia+Blog%29)
-
-
------
-
-####  月神侠  
-##### 137#       发表于 2021-4-14 15:12
-
-
-2021 Xperia新品全球发布会将于今日15：30准时开始！<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer"> 
-
-
-大家可以通过以下平台观看：
-
-索尼中国官方直播平台：[https://www.sonystyle.com.cn/act ... liveId=202104141501](https://www.sonystyle.com.cn/activity/livestream/live.html?liveId=202104141501)
-
-索尼中国B站直播间：[https://live.bilibili.com/22587365](https://live.bilibili.com/22587365)
-
-索尼天猫直播间：[https://h5.m.taobao.com/taolive/ ... mp;userId=782731205](https://h5.m.taobao.com/taolive/video.html?id=305051904371&amp;livesource=anchor_pc_share&amp;spm=a2141.live_waitou&amp;userId=782731205)
-
-索尼京东直播间：[https://pro.m.jd.com/mall/active ... MK3SWNtj/index.html](https://pro.m.jd.com/mall/active/dnqKSaVxNYwTabJWv1WMK3SWNtj/index.html)
-
-
-﹍﹍﹍
-
-评分
-
-
- 参与人数 1战斗力 +1
-
-|昵称|战斗力|理由|
-|----|---|---|
-| leystage| + 1|好评加鹅|
-
-
-查看全部评分
 
 
 -----
@@ -1325,8 +1308,7 @@ sony的nfc功能不一直都是齐全的吗？</blockquote>
 ####  Gateone  
 ##### 89#       发表于 2021-4-10 15:50
 
-
-这玩意拍照水平真的能到安卓第一梯队？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1697,10 +1679,7 @@ CPU骁 ...</blockquote>888不是只支持4k60Hz显示吗？
 ####  Gateone  
 ##### 114#       发表于 2021-4-13 11:16
 
-
-<blockquote>jzsgtx 发表于 2021-4-13 11:01
-后置还是三个12MP啊</blockquote>
-不是说imx557吊打所有cmos🐴
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1720,11 +1699,7 @@ CPU骁 ...</blockquote>888不是只支持4k60Hz显示吗？
 ####  Gateone  
 ##### 116#       发表于 2021-4-13 11:21
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50921676&amp;ptid=1985265" target="_blank">jzsgtx 发表于 2021-4-13 11:19</a>
-
-是这样的话当然好，但总像素三代一直不变感觉怪怪的</blockquote>
-索尼摄像头规格真的低，感觉和苹果互有胜负<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3330,8 +3305,7 @@ J9110看哭了
 ####  Gateone  
 ##### 225#       发表于 2021-4-14 17:10
 
-
-从cmos总面积看，索索依然拉垮
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3443,12 +3417,7 @@ X1Ⅲ各方面看起来都挺香的，不过这个比例的6.5 ...</blockquote>
 ####  Gateone  
 ##### 234#       发表于 2021-4-14 17:31
 
-
-<blockquote>Mikumiku831 发表于 2021-4-14 17:29
-要的就是索尼系统这个味
-
-其他家的真用不惯</blockquote>
-这玩意多少钱？顶配8000块？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3675,10 +3644,7 @@ X1Ⅲ各方面看起来都挺香的，不过这个比例的6.5 ...</blockquote>
 ####  Gateone  
 ##### 251#       发表于 2021-4-14 18:31
 
-
-<blockquote>allenz2 发表于 2021-4-14 18:13
-仔细看了下，这次高速连拍和各种追焦功能3颗镜头都可用了，而且索尼宣称弱光下增强噪点减少，到时候看看样 ...</blockquote>
-想看dxo测1m3
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4433,4 +4399,419 @@ Mark3就拜拜了
 —— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                       
+-----
+
+####  被雨困住的城市  
+##### 307#       发表于 2021-4-15 18:13
+
+
+提前数月发布，曝索尼 Xperia 5 III 将在第三季度上市
+
+
+-----
+
+####  提挈天地  
+##### 308#       发表于 2021-4-15 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50947274&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-4-15 15:58</a>
+仔细看了看确实是用灰色字体写了会关闭部分程序，之前没注意。</blockquote>
+相比社区反馈，最好还是用反馈工具箱（*#800#）或者直接客服电话反馈，因为官方社区的技术人员和蓝厂一样，多是车轱辘话的机器人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cray  
+##### 309#       发表于 2021-4-17 02:16
+
+
+Xperia 1 III质朴的“进化”废除了标准的相机应用程序→集成到Photo Pro中
+
+这样一来，此前标准相机无法使用的每秒60次的AF/AE、实时瞳AF等一部分的Photo Pro功能可以简单地使用。
+
+
+哈哈哈哈哈 索尼上代被那些做拍照评测的耍了 活该啊 
+
+
+这次终于学聪明了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/021613scbz82d0c09fb9wc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>131edqwdqwdq (1).jpg</strong> (103.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 02:16 上传
+
+
+-----
+
+####  leystage  
+##### 310#         楼主| 发表于 2021-4-17 11:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50963604&amp;ptid=1985265" target="_blank">Cray 发表于 2021-4-17 02:16</a>
+
+Xperia 1 III质朴的“进化”废除了标准的相机应用程序→集成到Photo Pro中
+
+这样一来，此前标准相机无法使用 ...</blockquote>
+话说 DxO 现在在国内知名度提高了那么多，索尼什么时候才能再拿一次高分 <img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+Z3 当年拿了高分，国内还没什么人知道 DxO
+
+
+当然拿高分不妨碍我也觉得 DxO 的测试有很多花样可以玩，参考意义有限
+
+
+-----
+
+####  无印凉粉  
+##### 311#       发表于 2021-4-17 11:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50963604&amp;ptid=1985265" target="_blank">Cray 发表于 2021-4-17 02:16</a>
+
+Xperia 1 III质朴的“进化”废除了标准的相机应用程序→集成到Photo Pro中
+
+这样一来，此前标准相机无法使用 ...</blockquote>
+我就想知道这个界面能不能整合进下一次5M2的大更新里。
+
+
+-----
+
+####  leystage  
+##### 312#         楼主| 发表于 2021-4-17 11:29
+
+
+<blockquote>无印凉粉 发表于 2021-4-17 11:19
+我就想知道这个界面能不能整合进下一次5M2的大更新里。</blockquote>
+1m2 是拿到 5m2 的新功能的，隔代的话感觉悬…
+
+
+希望索尼想得开
+
+
+-----
+
+####  Cray  
+##### 313#       发表于 2021-4-17 18:49
+
+
+<blockquote>引用第310楼无印凉粉于2021-04-17 11:19发表的  :
+
+引用:Cray 发表于 2021-4-17 02:16Xperia 1 III质朴的“进化”废除了标......</blockquote>
+app应该很容易移植的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个月固件出来就可以实验了
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  月神侠  
+##### 314#       发表于 2021-4-17 20:27
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/202747srpb8wz0wwaay02w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210417202736.jpg</strong> (124.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 20:27 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wqm2008  
+##### 315#       发表于 2021-4-17 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50970045&amp;ptid=1985265" target="_blank">月神侠 发表于 2021-4-17 20:27</a></blockquote>
+等索索调好震动，电池上5000，换台积电工艺的3nmSoC的下一代
+
+
+-----
+
+####  zhongjie  
+##### 316#       发表于 2021-4-17 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50970300&amp;ptid=1985265" target="_blank">wqm2008 发表于 2021-4-17 20:51</a>
+等索索调好震动，电池上5000，换台积电工艺的3nmSoC的下一代</blockquote>
+用着s21u，觉得还是等明年索尼换新u再买吧，希望充电速度能到45w，电池5000。振动我已经不抱指望了
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  鹰富士茄子  
+##### 317#       发表于 2021-4-17 22:08
+
+
+索尼是不是可以考虑把后壳做成pro那种摄像头不突出的，其实pro能做出来摄像头不凸出，说明想做还是能做得到的。
+
+
+-----
+
+####  我很费纸  
+##### 318#       发表于 2021-4-17 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50971135&amp;ptid=1985265" target="_blank">鹰富士茄子 发表于 2021-4-17 22:08</a>
+索尼是不是可以考虑把后壳做成pro那种摄像头不突出的，其实pro能做出来摄像头不凸出，说明想做还是能做得到 ...</blockquote>
+加厚就可以……但加厚到pro那样10mm的厚度，消费者不买账啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">，pro打着个专业旗号反而还能无所谓
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  弯枝理树  
+##### 319#       发表于 2021-4-17 22:43
+
+
+不評論<img src="https://p.sda1.dev/1/1738770831ca3026ac67aa130ab157be/IMG_CMP_227297899.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  wqm2008  
+##### 320#       发表于 2021-4-17 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50971518&amp;ptid=1985265" target="_blank">弯枝理树 发表于 2021-4-17 22:43</a>
+
+不評論
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
+定的高就等跳水呗，真腰斩再入，不知道自己几斤几两也就算了，哪怕是信仰粉卖过一万还是太夸张了，市场一定会教索做索的
+
+
+-----
+
+####  Cityrat  
+##### 321#       发表于 2021-4-17 23:28
+
+
+拿到了，怎么说呢，就非常索尼吧
+
+
+-----
+
+####  MuAmUa  
+##### 322#       发表于 2021-4-17 23:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50971948&amp;ptid=1985265" target="_blank">Cityrat 发表于 2021-4-17 23:28</a>
+ 拿到了，怎么说呢，就非常索尼吧</blockquote>
+4k高刷体验如何
+
+
+-----
+
+####  Cityrat  
+##### 323#       发表于 2021-4-18 00:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972075&amp;ptid=1985265" target="_blank">MuAmUa 发表于 2021-4-17 23:42</a>
+
+4k高刷体验如何</blockquote>
+和我1+8T，X50ProPlus没啥区别啊……
+
+
+-----
+
+####  黄耀明  
+##### 324#       发表于 2021-4-18 08:40
+
+
+价格相当sony camera了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leystage  
+##### 325#         楼主| 发表于 2021-4-18 08:56
+
+
+<blockquote>Cityrat 发表于 2021-4-18 00:23
+和我1+8T，X50ProPlus没啥区别啊……</blockquote>
+播放4K内容的时候呢？
+
+
+-----
+
+####  gulant  
+##### 326#       发表于 2021-4-18 09:06
+
+
+卖这么贵，没钱充值信仰了，看看大半年后会不会跳水到心理价位。
+
+
+-----
+
+####  Cityrat  
+##### 327#       发表于 2021-4-18 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50973698&amp;ptid=1985265" target="_blank">leystage 发表于 2021-4-18 08:56</a>
+
+播放4K内容的时候呢？</blockquote>
+Retina，HDR，RTX，On！
+
+
+-----
+
+####  wqm2008  
+##### 328#       发表于 2021-4-18 13:40
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/133954kq44xc191jkl9y8q.png" referrerpolicy="no-referrer">
+
+
+<strong>1Ⅲ.PNG</strong> (269.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 13:39 上传
+
+
+(⊙﹏⊙)
+
+
+-----
+
+####  有口皆悲  
+##### 329#       发表于 2021-4-18 13:44
+
+
+等个iphone 13价格。也不知道是涨价还是索尼飘了。
+
+
+-----
+
+####  萝卜roto  
+##### 330#       发表于 2021-4-18 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972419&amp;ptid=1985265" target="_blank">Cityrat 发表于 2021-4-18 00:23</a>
+和我1+8T，X50ProPlus没啥区别啊……</blockquote>
+就是120高刷只能1080用咯<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  Cray  
+##### 331#       发表于 2021-4-19 06:02
+
+
+ 本帖最后由 Cray 于 2021-4-19 06:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50971518&amp;ptid=1985265" target="_blank">弯枝理树 发表于 2021-4-17 22:43</a>
+
+不評論
+
+
+—— 来自 Sony J9110, Android 10上的 S1Next-鹅版 v2.4.4</blockquote>
+国行经销商说7xxx<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lbzlxx  
+##### 332#       发表于 2021-4-19 07:31
+
+
+这次耳机口又升级了吧，能不能把降嗓还回来，MK II居然不支持自家降噪耳机就离谱，不想卖了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 333#       发表于 2021-4-19 07:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981988&amp;ptid=1985265" target="_blank">lbzlxx 发表于 2021-4-19 07:31</a>
+这次耳机口又升级了吧，能不能把降嗓还回来，MK II居然不支持自家降噪耳机就离谱，不想卖了吗 ...</blockquote>
+mark2不支持自家降噪耳机是个什么说法？
+
+我就是5M2+XM3 ，没啥问题啊
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  喵喵叫的猫  
+##### 334#       发表于 2021-4-19 08:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50982057&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-4-19 07:48</a>
+mark2不支持自家降噪耳机是个什么说法？
+
+我就是5M2+XM3 ，没啥问题啊</blockquote>
+不支持有线的降噪耳机
+
+
+-----
+
+####  2002126  
+##### 335#       发表于 2021-4-19 09:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50982205&amp;ptid=1985265" target="_blank">喵喵叫的猫 发表于 2021-4-19 08:21</a>
+
+不支持有线的降噪耳机</blockquote>
+有线的降噪还真是便宜大碗，我之前1XX买了好多NC750<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yygundam  
+##### 336#       发表于 2021-4-19 10:33
+
+
+ 本帖最后由 yygundam 于 2021-4-19 10:39 编辑 
+
+NC750，IER NW-510N那种自己不带降噪处理芯片的降噪耳机好像也就大法自家的walkman还在支持了。
+
+
+-----
+
+####  被雨困住的城市  
+##### 337#       发表于 2021-4-19 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50982749&amp;ptid=1985265" target="_blank">2002126 发表于 2021-04-19 09:27:09</a>
+有线的降噪还真是便宜大碗，我之前1XX买了好多NC750</blockquote>有线降噪可以买tpoppers的e2啊，五十几块
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Tochika  
+##### 338#       发表于 2021-4-19 10:47
+
+
+有线那个音质和降噪都不太行，早该淘汰了
+
+
+                                      
