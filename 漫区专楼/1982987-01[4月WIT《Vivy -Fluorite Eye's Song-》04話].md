@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-19 09:54** 
+> ## **本文件最后更新于2021-04-19 19:44** 
 
 
 
@@ -7155,4 +7155,397 @@ https://www.bilibili.com ...</blockquote>
 比如妹妹转针捅反派小哥，妹妹第一次打VIVY，或者前两集的其他动作戏，这些都是手绘的正常帧率呀
 
 
-                               
+-----
+
+####  ayanamilin  
+##### 550#       发表于 2021-4-19 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988629&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-04-19 17:34:11</a>
+我当然知道背景可以生成打戏要人画
+
+我的意思是为什么那一段打戏刻意做的的帧率比其他动作戏低
+
+比如妹妹转 ...</blockquote>首先作画的流畅程度和帧数高低没有必然关系，一秒二十四帧和拍二拍三这样的作画铁则是不会改变的。vivy的那一段打戏动作看起来“一卡一卡”的，所以你会觉得帧数低。其实根本原因很有可能是画师风格的问题。
+有的原画师很喜欢这种“一卡一卡”的动作（@今石洋之），所以会刻意拉大关键帧之间动作的变化幅度。这样画出来的动作会更有力度感，同时也给人一种帧数低的错觉。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  kraoo  
+##### 551#       发表于 2021-4-19 19:12
+
+
+那段打戏摄影没做好呗，人物跟在地面上滑一样，渡边的卡也经常有这种感觉，但是他作画本身就滑溜溜的，这个就有点出戏了
+
+
+-----
+
+####  kos_mos  
+##### 552#       发表于 2021-4-19 19:15
+
+
+解体酒店以在大气层燃尽想到Xenosaga。
+
+
+-----
+
+####  a12885084  
+##### 553#       发表于 2021-4-19 19:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989219&amp;ptid=1982987" target="_blank">ayanamilin 发表于 2021-4-19 18:23</a>
+
+首先作画的流畅程度和帧数高低没有必然关系，一秒二十四帧和拍二拍三这样的作画铁则是不会改变的。vivy的那 ...</blockquote>
+感谢回复
+
+
+今石洋之的我只看过Promare，回忆了一下确实有可以拉大关键帧之间动作的变化幅度，但是似乎观感和这次VIVY的打戏还是有一点区别，（这里就全是我的外行观感了，没有细节研究），感觉Promare里是一段细中某些时间点上有“跳帧”，比如说盔甲喷气再解体，可能只是解体的那一瞬间有大的跳跃，配上音乐能弄出一种“打击感”来。VIVY里这段给我则是全程以稳定的低帧率进行着。当时我立马想起的风格就是蜘蛛侠平行宇宙，通过抽帧和漫画特效做出的模仿漫画的感觉，所以一上来用了“抽帧”这个词。
+
+
+我不是欣赏不来这个风格，也能感觉到是刻意做成这样的，但是这也是我感到疑惑一开始回帖的原因
+
+
+只是原画师审美上的偏好？那不会合这话其他部分不太协调吗？因为其他的战斗部分没采用这种风格，如果你全片都采用这个风格我可以理解，或者战斗部分全部采用我也可以理解，但是只有这一小段是这个风格，令我有些困惑。不过回忆了一下，似乎VIVY里也有一些风格突出不和其他部分协调的地方：比如VIVY内部空间的画面风格，还有多次出现的眼睛特写（这个不确定）。
+
+
+所以是刻意尝试了一种新风格试图带来不一样的观看体验？
+
+
+另外这种“风格”应该叫什么，我一开始是觉得和蜘蛛侠平行宇宙感觉类似用了“抽帧”，被批评用词不对，我接受；换成“帧数低”又有人觉得我在黑，阿这。所以这种风格应该叫啥呢？
+
+
+欢迎指教和探讨，求求别再神**了
+
+
+-----
+
+####  tsukatsukieiko  
+##### 554#       发表于 2021-4-19 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987641&amp;ptid=1982987" target="_blank">梦诗歌雪 发表于 2021-4-19 16:17</a>
+
+这不有AI人权法在吗，机命贵的，主角看着也是很重视机器人同伴生命的人，如果不是已经彻底凉了不太可能可 ...</blockquote>
+未必顺路啊。
+
+攻占控制室的路上时间紧急来不及拆，搞定后说不定要跑大半个飞船才能捡回粉毛，当时飞船已经进入不可逃逸坠落轨道（妈蛋这引擎也太强力了，简直KSP引擎，正常空间站这样加减速早就解体了），如果脱离迟了那救生艇也跑不了只能单机突入大气层了。
+
+
+-----
+
+####  tsukatsukieiko  
+##### 555#       发表于 2021-4-19 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987630&amp;ptid=1982987" target="_blank">susan28 发表于 2021-4-19 16:17</a>
+
+刚才看完  看完的感想， 我要看第5集！ 
+
+但我认为结局会让人不开心 薇薇可能会会会。。。 </blockquote>
+但其实使命是个很模糊的玩意，就不说Vivy这个使命其实是唱歌跳舞当地下偶像的（唱跳了15年小剧场都不到的还是只有一半上座率，惨，人类的话早就回老家结婚了）把使命解释成了当母猩猩，就是伊丽莎白都能把保护人的使命解释成保护某个特定人。算下来其实自由度很大的。
+
+
+-----
+
+####  zhongjie  
+##### 556#       发表于 2021-4-19 22:02
+
+
+实际看下来，即使是第一集水平的AI技术，机器人都表现得和人类无异了，到了15年后的这个时间点，与其说是AI，不如说是被**了的人类。。。。。。
+
+
+-----
+
+####  shadow001  
+##### 557#       发表于 2021-4-19 22:20
+
+
+第1集說AI不能多工，所以每個AI只有一個使命，但這使命卻有無限的解釋權
+
+這設定除了用來造反，到底有甚麼意義？
+
+
+-----
+
+####  manyin1  
+##### 558#       发表于 2021-4-19 23:30
+
+
+这片真的很可以啊，要是能在b站一边看一边讨论就好了
+
+
+-----
+
+####  肆暮江飛鳥  
+##### 559#       发表于 2021-4-19 23:30
+
+
+还挺好看，4集贡献了一个不错的小高潮，段落虽然有点土，不过确实挺好看
+
+
+-----
+
+####  manyin1  
+##### 560#       发表于 2021-4-19 23:34
+
+
+怎么说，有点记忆女神女儿的味道？都是跨个十几年几十年，每一话中都会有角色是跟上一个年代有关系
+
+
+-----
+
+####  potwater  
+##### 561#       发表于 2021-4-20 00:19
+
+
+ 本帖最后由 potwater 于 2021-4-20 00:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50990152&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-19 19:48</a>
+
+感谢回复
+
+
+今石洋之的我只看过Promare，回忆了一下确实有可以拉大关键帧之间动作的变化幅度，但是似乎观 ...</blockquote>
+[http://baike.baidu.com/l/J3supHCG?bk_share=copy](http://baike.baidu.com/l/J3supHCG?bk_share=copy)
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 562#       发表于 2021-4-20 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987554&amp;ptid=1982987" target="_blank">梦诗歌雪 发表于 2021-4-19 16:11</a>
+下次见面得是老头了，要还能和机器人互殴说明已经成为了魔鬼改造人</blockquote>
+底特律:便乘机器人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi 4, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  大秧歌2  
+##### 563#       发表于 2021-4-20 01:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988229&amp;ptid=1982987" target="_blank">阿虚家的三味 发表于 2021-4-19 17:01</a>
+
+按这轮推算历史上应该还是发生了kb分子捡了白抢了空间站砸地球，没有vivy干涉应该一切按计划来，船上乘客死 ...</blockquote>
+原历史，没有第一次vivy干涉救了kb组织一个小兵，kb分子头目就不会心软，就会按计划自己逃走让船和乘客一起死
+
+现历史，vivy第一次干涉救了kb组织一个小兵，此小兵成为后来kb组织头目，心软了，决定自己殉道让乘客逃走，触发白的保护机制(使命是保护头目并达成他的目标)，白强行更改计划让头目离开并改变轨道降落到城市
+
+
+-----
+
+####  阿虚家的三味  
+##### 564#       发表于 2021-4-20 02:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993639&amp;ptid=1982987" target="_blank">大秧歌2 发表于 2021-4-20 01:41</a>
+
+原历史，没有第一次vivy干涉救了kb组织一个小兵，kb分子头目就不会心软，就会按计划自己逃走让船和乘客一 ...</blockquote>
+就当这样吧，虽然完全没看出救了小哥怎么就变软了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  大秧歌2  
+##### 565#       发表于 2021-4-20 02:24
+
+
+ 本帖最后由 大秧歌2 于 2021-4-20 02:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993766&amp;ptid=1982987" target="_blank">阿虚家的三味 发表于 2021-4-20 02:21</a>
+
+就当这样吧，虽然完全没看出救了小哥怎么就变软了</blockquote>
+也不一定是小哥变心软，有可能没救这小哥15年后的头目是另外的人一样理念不同。既然原历史是三流的政客被vivy激励后变成了一流政客直接推动ai人权法案，原历史是无名小卒的kb分子也有可能被激励当上了头目
+
+
+-----
+
+####  阿虚家的三味  
+##### 566#       发表于 2021-4-20 02:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993778&amp;ptid=1982987" target="_blank">大秧歌2 发表于 2021-4-20 02:24</a>
+
+也不一定是小哥变心软，有可能没救这小哥15年后的头目是另外的人一样理念不同 ...</blockquote>
+这倒应该不会，没介入他们干净利落干了议员安全撤退，小哥快被压死本身就是vivy介入后造成的结果，应该还是一拨人
+
+
+-----
+
+####  大秧歌2  
+##### 567#       发表于 2021-4-20 02:47
+
+
+ 本帖最后由 大秧歌2 于 2021-4-20 02:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993801&amp;ptid=1982987" target="_blank">阿虚家的三味 发表于 2021-4-20 02:39</a>
+
+这倒应该不会，没介入他们干净利落干了议员安全撤退，小哥快被压死本身就是vivy介入后造成的结果，应该还 ...</blockquote>
+我不是说没介入这个小兵就死了。他们干净利落干了议员安全撤退，这位小兵没有任务失败和被ai拯救的双重耻辱感做动力，15年后可能还是个无名小卒，当不上头目啊。前两集暗杀任务结束后kb分子坐车上看新闻的时候，特意给了这位小兵握紧弹匣的特写镜头。历史已经发生重大改变
+
+
+-----
+
+####  a12885084  
+##### 568#       发表于 2021-4-20 03:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993199&amp;ptid=1982987" target="_blank">potwater 发表于 2021-4-20 00:19</a>
+
+http://baike.baidu.com/l/J3supHCG?bk_share=copy</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kxh007458  
+##### 569#       发表于 2021-4-20 03:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988405&amp;ptid=1982987" target="_blank">阿虚家的三味 发表于 2021-4-19 17:14</a>
+
+那也不对啊，为啥正史就死光了呢</blockquote>
+正史是这样的，真正的游客也逃生了，KB份子不想杀无辜的人。 而KB份子自己伪造了游客或者工人的身份待在船上不撤离，成为他们理想的殉道者，死的人就是他们。而这次薇薇在监控器上露面，引起了KB头头的注意，才让白有了机会把她主人放倒，并劝其他并不是坚定打算去死的同伙跑路。
+
+
+-----
+
+####  a12885084  
+##### 570#       发表于 2021-4-20 03:16
+
+
+挑了几个场景逐帧观察了一波
+
+<strong>场景1：3分52秒，VIVY和妹妹第一相遇，妹妹踢腿</strong>
+
+<img src="https://img.saraba1st.com/forum/202104/20/030924ugcb4rqgeggebgub.png" referrerpolicy="no-referrer">
+
+
+<strong>S1.png</strong> (242.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 03:09 上传
+
+
+共16帧，分转身至踢腿前和踢腿两个部分
+转身至踢腿前，一拍二 10帧 共5张原画踢腿，一拍一 6帧 共6张原画
+<strong>
+</strong><strong>场景2：13分21秒，妹妹慢动作奔跑</strong>
+
+<img src="https://img.saraba1st.com/forum/202104/20/030934pftbzvf80h0zfvll.png" referrerpolicy="no-referrer">
+
+
+<strong>S2.png</strong> (293.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 03:09 上传
+
+
+共24帧，2帧+3*7帧+1帧，共9张原画（背景每一帧都有轻微移动）
+<strong>
+</strong><strong>场景3：13分22秒，转针筒&amp;注射 24帧 14张原画</strong>
+
+<img src="https://img.saraba1st.com/forum/202104/20/030942yzo08nxqn7fo8on2.png" referrerpolicy="no-referrer">
+
+
+<strong>S3.png</strong> (272.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 03:09 上传
+
+
+同样是24帧，共14张原画
+
+2帧 2帧 1帧 1帧 2帧 2帧 2帧 2帧 2帧 2帧 2帧 1帧 1帧 2帧
+
+以一拍二为主，转针筒和按动注射按钮的两个动作一拍一了2帧
+
+前14帧背景每一帧都有轻微移动，后10帧背景无变化
+<strong>
+</strong><strong>场景4：14分34秒，战斗前</strong>
+
+<img src="https://img.saraba1st.com/forum/202104/20/031005dz4nx4zewnyibkb4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Xnip2021-04-19_20-22-32.jpg</strong> (804.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 03:10 上传
+
+
+VIVY低头：一拍二，10帧（5原画）跑步：一拍一，4帧（4原画）姐姐静止：共4帧（1原画）妹妹反应：1帧 2帧 2帧 2帧 3帧 3帧 1帧 14帧7原画拉视角：5帧妹妹滞空（慢动作）：一拍三15帧，一拍二2帧，共17帧6原画脚步发力：一拍二，12帧，6原画
+本场景背景几乎无变化
+<strong>
+</strong><strong>场景5：打戏</strong>
+
+<img src="https://img.saraba1st.com/forum/202104/20/031017zxxxv9hkcuuwakxc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Xnip2021-04-19_20-23-16.jpg</strong> (1.23 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 03:10 上传
+
+
+每一帧背景都在高速移动，同时人物动作是一拍三，即一张原画抱持3帧
+
+
+观察发现：
+
+目标打戏相关：除开部分慢镜头的动作是一拍三以外，前几个场景的动作都是一拍二为主，少部分动作采用了一拍一。但是一开始给我突兀感的打戏确实是一拍三，从帧率来看比其他的动作戏帧率更低，与慢镜头/日常部分保持一致的一拍三。与人物一拍三低帧率相比的是这段打戏的<strong>背景每一帧都在大幅度变动</strong>，比起其他动作戏时的变化幅度更大。换句话说是在<strong>机位高速移动的情况下人物反而采用了比其他时候打戏更慢的一拍三</strong>。说实话这种效果现在我依旧不太好形容，勉强用“漫画感”吧。
+
+
+总之我之前直观感觉上的突兀确实是存在的，希望有大佬可以解惑，这一段按照之前“一拍二部分一拍一”的模式不好么，是想传达什么么？那“想传达的”究竟为何？（这也是我一开始的第一个问题）
+
+不要来婆罗门甩百度百科链接秀优越了
+
+
+意外发现：
+
+观察场景2，共24帧，2帧+3*7帧+1帧，大部分镜头是一拍三的，如果一拍三就是8张原画24帧，但是制作组却增加了一张原画，把开头和结尾拆成了一拍一和一拍二，剩下的保持一拍三。
+
+观察场景4，从妹妹反应的最后一帧开始算，1帧+拉视角5帧+3*5帧+2帧，依旧是总体一拍三，开头和结尾采用了一拍二或一拍一的手法。或者不看开头，仅看结尾，原本一拍三的原画到最后一次一拍三就删去了一帧，变成一拍二了。
+
+或许我们可以下结论说，存在这样一种拍摄手法，在一拍三的一个镜头中，开头或结尾采用一拍一或一拍二的手法，而不是全部采用一拍三。
+
+
+那么为啥会这样呢？比如场景2，直接8张原画一拍三不好么？
+
+
+
+
+-----
+
+####  kxh007458  
+##### 571#       发表于 2021-4-20 03:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980995&amp;ptid=1982987" target="_blank">大丈夫萌大乃 发表于 2021-4-18 23:45</a>
+
+粉毛:你们都在讨论姐妹情深,就没人来心疼一下我吗?被妹妹利用完断头,姐姐听到死讯毫无反应,连蓝薇都跑来卸 ...</blockquote>
+我只是在想机器人掉头也最多是停机，薇薇你最后就没打算把粉毛也救走么？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">难道美国队长真的能勒死奥创？
+
+
+-----
+
+####  大秧歌2  
+##### 572#       发表于 2021-4-20 03:25
+
+
+ 本帖最后由 大秧歌2 于 2021-4-20 03:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993854&amp;ptid=1982987" target="_blank">kxh007458 发表于 2021-4-20 03:13</a>
+
+正史是这样的，真正的游客也逃生了，KB份子不想杀无辜的人。 而KB份子自己伪造了游客或者工人的身份待在 ...</blockquote>
+正史是游客全死了，新时间线上的kb分子的行动计划明显已经发生了偏差(时间也早了一天)
+
+
+                              
