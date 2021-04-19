@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-18 14:48** 
+> ## **本文件最后更新于2021-04-19 09:54** 
 
 
 
@@ -6688,4 +6688,471 @@ AI不是一定要搞得和终结者那样呆板的样子，但是现在这个AI�
 不不不，除了一小撮**，都还成吧。搞AI研究那帮人，更像德三搞雅利安优选优生配种研究的味道。
 
 
-                                
+-----
+
+####  大丈夫萌大乃  
+##### 517#       发表于 2021-4-18 23:45
+
+
+粉毛:你们都在讨论姐妹情深,就没人来心疼一下我吗?被妹妹利用完断头,姐姐听到死讯毫无反应,连蓝薇都跑来卸了老娘一条膀子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黎恩  
+##### 518#       发表于 2021-4-18 23:51
+
+
+ 本帖最后由 黎恩 于 2021-4-18 23:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980995&amp;ptid=1982987" target="_blank">大丈夫萌大乃 发表于 2021-4-18 23:45</a>
+
+粉毛:你们都在讨论姐妹情深,就没人来心疼一下我吗?被妹妹利用完断头,姐姐听到死讯毫无反应,连蓝薇都跑来卸 ...</blockquote>
+AI头断了又不会死，不过在动画中看起来是刻画成死亡或者消失，就有点不符合机器人的逻辑。
+
+
+打斗也是，虽然很精彩，但是也不符合逻辑，拿把军刀？你们萝卜互殴的装备就这样的等级？大家都是钢筋铁骨为什么一副要攻击人类弱点的打法啊？
+
+
+-----
+
+####  傲娇的章鱼  
+##### 519#       发表于 2021-4-18 23:54
+
+
+你们这么一讨论这片大概会变成日本底特律？
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  发财就手  
+##### 520#       发表于 2021-4-19 00:39
+
+
+反AI组织为何到垃圾场找妹妹是个疑问，他们怎么知道管理酒店的姐姐AI有个被废弃的妹妹AI呢，要么是研究项目里有间谍故意让妹妹AI废弃，或者是组织受黑幕指点去找的，酒店空间站坠毁的阴谋很早就在策划了
+
+
+-----
+
+####  RainbowSealife  
+##### 521#       发表于 2021-4-19 00:48
+
+
+<img src="https://imgsa.baidu.com/forum/pic/item/986613adcbef7609fec45fd139dda3cc7ed99ec0.jpg" referrerpolicy="no-referrer">
+<img src="https://imgsa.baidu.com/forum/pic/item/128a147adab44aed7e8678aaa41c8701a38bfbc3.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/pic/item/274cbe82d158ccbf859774740ed8bc3eb03541ec.jpg" referrerpolicy="no-referrer">
+<img src="http://tiebapic.baidu.com/forum/pic/item/a03a7cdf8db1cb13964cfd5dca54564e93584bee.jpg" referrerpolicy="no-referrer">
+
+开始发力了，好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  old.just  
+##### 522#       发表于 2021-4-19 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50843792&amp;ptid=1982987" target="_blank">死去的御景柚姬 发表于 2021-04-05 23:52:41</a>
+原来是大便吗我只云到那个黑人小哥从垃圾场里面爬出来那里，看着还挺精彩 ...</blockquote>底特律真是大便中的大便，ai这题材来包装x命贵，给我气的
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  lesangellos  
+##### 523#       发表于 2021-4-19 01:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50975110&amp;ptid=1982987" target="_blank">青菜子 发表于 2021-4-18 12:17</a>
+
+草，这个既视感究极强。。。还有那个妹妹跨女主身上说要把女主打回计算机那句台词也很生草。。。 ...</blockquote>
+“机器人三原则”只是阿西莫夫科幻小说里创造出来的，影响很大，后来人在创造同题材时上广泛化用之.但也不是所有的同类题材都一定都沿用它，本作看来就没有。
+
+
+-----
+
+####  ipcjs  
+##### 524#       发表于 2021-4-19 02:22
+
+
+ 本帖最后由 ipcjs 于 2021-4-19 02:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50973103&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-18 03:37</a>
+OP终于上线了；叙事节奏依旧很稳，这次故事还算可以
+
+小熊不知为啥不唠主线了</blockquote>
+神TM抽帧，手绘本来就“帧率”不足，再抽干脆放ppt好了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  ipcjs  
+##### 525#       发表于 2021-4-19 02:38
+
+
+ 本帖最后由 ipcjs 于 2021-4-19 08:30 编辑 
+
+上集结尾隐约感觉不是同一个人，一个是说话的语气，一个是粉毛对她的态度，结果你们都说是同一个，害得开始怀疑自己了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  a12885084  
+##### 526#       发表于 2021-4-19 04:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981667&amp;ptid=1982987" target="_blank">ipcjs 发表于 2021-4-19 02:22</a>
+
+神TM抽帧，手绘本来就“帧率”不足，再抽干脆放ppt好了
+
+
+— from Google Pixel 2 XL, Android 11  ...</blockquote>
+观感上乍一看还以为抽帧
+
+那就换个词，为啥中间那段打戏特意做的低帧率
+
+
+-----
+
+####  寒星  
+##### 527#       发表于 2021-4-19 05:11
+
+
+说实话目前看这AI完全就是个噱头，完全看不出哪里AI<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  冰箱研会长  
+##### 528#       发表于 2021-4-19 07:23
+
+
+这格斗战场景有点牛逼
+
+
+-----
+
+####  lyz1196  
+##### 529#       发表于 2021-4-19 07:25
+
+
+ 本帖最后由 lyz1196 于 2021-4-19 07:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981802&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-19 04:32</a>
+
+观感上乍一看还以为抽帧
+
+那就换个词，为啥中间那段打戏特意做的低帧率</blockquote>
+神tm特意做的低帧率，大部分手绘受限于工期预算本来就是低帧率（张数）的<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ayanamilin  
+##### 530#       发表于 2021-4-19 08:07
+
+
+只有在3D辅助作画下会用到抽帧，目的是让动画更有手绘感。这个画面怎么说呢。。。可能有用到3D辅助。
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  梦诗歌雪  
+##### 531#       发表于 2021-4-19 09:16
+
+
+<blockquote>黎恩 发表于 2021-4-18 23:51
+AI头断了又不会死，不过在动画中看起来是刻画成死亡或者消失，就有点不符合机器人的逻辑。
+
+
+打斗也是，虽 ...</blockquote>
+从仿生机器人的提示灯在脖子上以及粉毛被断了脖子就凉凉直接盖布来看，估计他们的核心是装在脖子上的，所以脖子被拧断就相当于这个ai人格销毁了。不然vivy应该会把粉毛的脑袋捡回去才对
+
+
+-----
+
+####  tsukatsukieiko  
+##### 532#       发表于 2021-4-19 09:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50982646&amp;ptid=1982987" target="_blank">梦诗歌雪 发表于 2021-4-19 09:16</a>
+
+从仿生机器人的提示灯在脖子上以及粉毛被断了脖子就凉凉直接盖布来看，估计他们的核心是装在脖子上的，所 ...</blockquote>
+也不一定，当时第一要务是阻止妹妹，没时间整理粉毛；而进入必然坠落轨道后，也未必有时间去回收。另外逃生船空位也不一定很多，AI上去或许还有的说，失去功能的AI上可能就有人BB了。
+
+
+-----
+
+####  rynchee  
+##### 533#       发表于 2021-4-19 12:06
+
+
+二周目旅馆事件无人伤亡。
+
+那一周目是怎样的？一周目死亡的人到底是真游客还是反AI组织伪装的游客？
+
+
+-----
+
+####  rynchee  
+##### 534#       发表于 2021-4-19 12:13
+
+
+反AI组织的小哥看来也是重要配角，但是他跟女主得关系看来不是前两集里楼里猜的恋爱关系而是更接近宿敌关系。看op以后小哥还要跟女主打一架。考虑到AI们的战斗力，小哥能够肉身对抗，基本称得上是人类方得战斗力天花板吧。
+
+
+-----
+
+####  gofbayrf  
+##### 535#       发表于 2021-4-19 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50984769&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-4-19 12:13</a>
+
+反AI组织的小哥看来也是重要配角，但是他跟女主得关系看来不是前两集里楼里猜的恋爱关系而是更接近宿敌关系 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">下次快60歲了
+
+
+-----
+
+####  kraoo  
+##### 536#       发表于 2021-4-19 13:02
+
+
+熊这就送回去了啊，妹妹也不客套几句。看预告下集就只能用立方体了，我还觉得各种小动作怪好玩的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tg45  
+##### 537#       发表于 2021-4-19 14:21
+
+
+第四集这剧情太平庸了
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  有口皆悲  
+##### 538#       发表于 2021-4-19 14:27
+
+
+总觉得女主会死。
+
+
+-----
+
+####  aptx8285144  
+##### 539#       发表于 2021-4-19 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981823&amp;ptid=1982987" target="_blank">寒星 发表于 2021-4-19 05:11</a>
+
+说实话目前看这AI完全就是个噱头，完全看不出哪里AI</blockquote>
+妹妹初始化后就立刻姐妹情深<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">挺不人类的，姐妹死时薇薇也只说不甘心换成人类那时候分别会更纠结吧
+
+
+-----
+
+####  梦诗歌雪  
+##### 540#       发表于 2021-4-19 16:11
+
+
+<blockquote>rynchee 发表于 2021-4-19 12:13
+反AI组织的小哥看来也是重要配角，但是他跟女主得关系看来不是前两集里楼里猜的恋爱关系而是更接近宿敌关系 ...</blockquote>
+下次见面得是老头了，要还能和机器人互殴说明已经成为了魔鬼改造人
+
+
+
+
+-----
+
+####  susan28  
+##### 541#       发表于 2021-4-19 16:17
+
+
+刚才看完  看完的感想， 我要看第5集！ 
+
+但我认为结局会让人不开心 薇薇可能会会会。。。 
+
+
+AI 必须有使命 才有生存的意义 这样太悲哀了啊。
+
+
+<img src="https://img.saraba1st.com/forum/202104/19/161638yxt6xqa0yq3qzxe2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 04 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (128.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 16:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/19/161705ylx2377sqbsxkk3k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 04 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (123.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 16:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/19/161705zo6hq6nqsug2n9qs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 04 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (141.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 16:17 上传
+
+
+-----
+
+####  梦诗歌雪  
+##### 542#       发表于 2021-4-19 16:17
+
+
+<blockquote>tsukatsukieiko 发表于 2021-4-19 09:40
+也不一定，当时第一要务是阻止妹妹，没时间整理粉毛；而进入必然坠落轨道后，也未必有时间去回收。另外逃 ...</blockquote>
+这不有AI人权法在吗，机命贵的，主角看着也是很重视机器人同伴生命的人，如果不是已经彻底凉了不太可能可以救却不救。当时摸摸卡妹妹还在那儿，要是有救的话让她把核心拆走带上救生船不就行了
+
+
+-----
+
+####  a12885084  
+##### 543#       发表于 2021-4-19 16:52
+
+
+ 本帖最后由 a12885084 于 2021-4-19 17:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981963&amp;ptid=1982987" target="_blank">lyz1196 发表于 2021-4-19 07:25</a>
+
+ 神tm特意做的低帧率，大部分手绘受限于工期预算本来就是低帧率（张数）的   ...</blockquote>
+没必要一直神tm吧
+
+中间那段打戏就是背景的移动是正常帧率
+
+两个妹子的动作特意做的低帧率
+
+————————————————
+
+dbq我以为是同一个人一直跟我这复读神tm
+
+
+14分30秒-15分那段打戏
+
+背景变化是正常帧率，两个妹子的动作明显帧率非常低
+
+这一段给我印象明显
+
+但是其他动作片段基本上都是正常帧率
+
+
+-----
+
+####  阿虚家的三味  
+##### 544#       发表于 2021-4-19 17:01
+
+
+按这轮推算历史上应该还是发生了kb分子捡了白抢了空间站砸地球，没有vivy干涉应该一切按计划来，船上乘客死光，黄毛背全锅，船掉海里
+
+然后这一轮抢船的几个变化点
+
+1：提早了1整天——没看出什么明确的原因让计划整个提前的
+
+2：乘客安全获救，船设定在海岸区——这2点放一起基本是因为伊丽莎白的问题，上一轮没有任何干扰基本可能确定这就是她心里为了主人的目的而行动的，但比起上一轮选择放过船上乘客而要地面上人类做出牺牲不太懂为什么
+
+3：黑匣子里有艾斯特拉的反复调整轨道记录——嘛，我觉得也没啥区别，暴走还是实锤的，对ai暴动肯定也会有的，也许会有中立人士觉得没死人有她功劳舆论没那么偏激？
+
+
+-----
+
+####  flypig_zhy  
+##### 545#       发表于 2021-4-19 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988229&amp;ptid=1982987" target="_blank">阿虚家的三味 发表于 2021-4-19 17:01</a>
+
+按这轮推算历史上应该还是发生了kb分子捡了白抢了空间站砸地球，没有vivy干涉应该一切按计划来，船上乘客死 ...</blockquote>
+是主人放过船上乘客，对于伊丽莎白重要的只是主人
+
+
+-----
+
+####  阿虚家的三味  
+##### 546#       发表于 2021-4-19 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988379&amp;ptid=1982987" target="_blank">flypig_zhy 发表于 2021-4-19 17:12</a>
+
+是主人放过船上乘客，对于伊丽莎白重要的只是主人</blockquote>
+那也不对啊，为啥正史就死光了呢
+
+
+-----
+
+####  jbjack1215  
+##### 547#       发表于 2021-4-19 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988405&amp;ptid=1982987" target="_blank">阿虚家的三味 发表于 2021-4-19 17:14</a>
+那也不对啊，为啥正史就死光了呢</blockquote>
+正史恐袭的主谋没见过vivy
+
+剩下就是脑补了，看op这人还会出场吧
+
+
+-----
+
+####  lyz1196  
+##### 548#       发表于 2021-4-19 17:26
+
+
+ 本帖最后由 lyz1196 于 2021-4-19 17:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988089&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-19 16:52</a>
+
+没必要一直神tm吧
+
+中间那段打戏就是背景的移动是正常帧率
+
+两个妹子的动作特意做的低帧率</blockquote>
+因为背景移动是自动形成中间帧，插帧软件能把背景移动插到60帧呢。
+[https://www.bilibili.com/video/BV1FK4y1X7Jp?p=2](https://www.bilibili.com/video/BV1FK4y1X7Jp?p=2)
+
+而动作戏的中间帧是人画的
+[https://www.bilibili.com/video/BV11b411k71u](https://www.bilibili.com/video/BV11b411k71u)
+
+另外，手绘的背景移动叫背动作画
+[https://www.bilibili.com/video/BV12a4y177QY](https://www.bilibili.com/video/BV12a4y177QY)
+
+
+-----
+
+####  a12885084  
+##### 549#       发表于 2021-4-19 17:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988546&amp;ptid=1982987" target="_blank">lyz1196 发表于 2021-4-19 17:26</a>
+
+因为背景移动是自动形成中间帧，插帧软件能把背景移动插到60帧呢。
+
+https://www.bilibili.com ...</blockquote>
+我当然知道背景可以生成打戏要人画
+
+我的意思是为什么那一段打戏刻意做的的帧率比其他动作戏低
+
+比如妹妹转针捅反派小哥，妹妹第一次打VIVY，或者前两集的其他动作戏，这些都是手绘的正常帧率呀
+
+
+                               
