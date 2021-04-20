@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-18 12:53** 
+> ## **本文件最后更新于2021-04-20 03:46** 
 
 
 
@@ -14343,4 +14343,346 @@ q娃反正是充话费赠送的 有熟肉已经很好惹<img src="https://static
 葡萄味软糖挺好吃的
 
 
-        
+-----
+
+####  Sliurus  
+##### 1234#       发表于 2021-4-18 21:05
+
+
+夏夏那句“平时便当都是母亲做的，原来还可以自己做”感觉蛮真实的，小友未必能明白这个道理，说教味也不会很重
+
+
+-----
+
+####  isa2456  
+##### 1235#       发表于 2021-4-18 21:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">我还以为水壶里是装满水的，想着便当放里面怎么吃，看来不是这样子. 
+
+
+-----
+
+####  梦诗歌雪  
+##### 1236#       发表于 2021-4-18 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50977900&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-18 18:40</a>
+
+女路人有点好看哦
+
+这集立意真不错，虽然讲的是亲情和为亲爱的人分担，但是没有一个劲地讲大道理和渲染母亲 ...</blockquote>
+脸上洋溢着幸福的笑容，说明抽走干劲让大家摸鱼的蟹大厨才是带来幸福的人<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  isa2456  
+##### 1237#       发表于 2021-4-18 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50979590&amp;ptid=1963832" target="_blank">梦诗歌雪 发表于 2021-4-18 21:22</a>
+
+脸上洋溢着幸福的笑容，说明抽走干劲让大家摸鱼的蟹大厨才是带来幸福的人 ...</blockquote>
+能摸鱼谁不喜欢摸鱼呢<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">建议来抽走我干劲
+
+
+-----
+
+####  SRyeB  
+##### 1238#       发表于 2021-4-18 21:31
+
+
+才发现每集四人齐聚的登场词是不一样的
+
+
+-----
+
+####  天邪鬼  
+##### 1239#       发表于 2021-4-18 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50979590&amp;ptid=1963832" target="_blank">梦诗歌雪 发表于 2021-4-18 21:22</a>
+脸上洋溢着幸福的笑容，说明抽走干劲让大家摸鱼的蟹大厨才是带来幸福的人 ...</blockquote>
+快进到q娃暴露身份后路人谴责q娃把他们摸鱼的机会夺走了
+
+
+-----
+
+####  damian-wade  
+##### 1240#       发表于 2021-4-18 22:10
+
+
+夏哥最后下厨的造型好好看，单马尾比侧马尾适合她
+
+
+-----
+
+####  memo2  
+##### 1241#       发表于 2021-4-18 22:38
+
+
+吃饱睡好！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这集梦回doremi三季教做甜点，虽然道理很简单，但长篇说教小友反而会看不明白，还是亲手去做，小友才更好理解啊
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  leleq  
+##### 1242#       发表于 2021-4-18 22:54
+
+
+一开始夏哥散发的样子让我想起了甜点的松鼠
+
+老师突袭屑人鱼被按在砧板上（不是）笑死我了 这只人鱼太屑了不如我们把她<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+战场间歇进食
+
+
+ps：我第一集就说了今年这怪大友里必会出现叛变者 才第8集就冒出来辣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1243#       发表于 2021-4-18 23:06
+
+
+大友里必会出现叛变者  是啥意思⊙∀⊙？
+
+
+-----
+
+####  Sliurus  
+##### 1244#       发表于 2021-4-18 23:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980627&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-4-18 23:06</a>
+
+大友里必会出现叛变者  是啥意思⊙∀⊙？</blockquote>
+我记得有不少想做怪被阿花抱的
+
+
+-----
+
+####  最强惠酱  
+##### 1245#       发表于 2021-4-18 23:49
+
+
+那这次的大友是想变成刨冰摸鱼怪朝q娃脸上喷射白色液体？
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  李可  
+##### 1246#       发表于 2021-4-19 03:07
+
+
+社畜大友只不过想摸鱼，又有什么错呢<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+-----
+
+####  HGCG+  
+##### 1247#       发表于 2021-4-19 07:15
+
+
+莫非和蜘蛛侠一样，每集喊的都不一样的？ ​​​​
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gpo9qr1q7jj21hc0u0wxu.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gpo9qs3uw1j20sg0g0myv.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gpo9qt1h3tj21400mi78x.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  阿渣兄  
+##### 1248#       发表于 2021-4-19 09:24
+
+
+惊了 居然每集都不一样
+
+今年真的又萌又搞笑
+
+好久没这么开心了
+
+
+-----
+
+####  shimmy1996  
+##### 1249#       发表于 2021-4-19 10:32
+
+
+ 本帖最后由 shimmy1996 于 2021-4-19 10:44 编辑 
+
+腹が減っては戦ができぬXDD
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">飞鸟前辈太池了
+
+珊瑚这话做菜一下子出戏到隔壁露营了www
+
+被吸完干劲的路人为啥一脸满足感<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 1250#       发表于 2021-4-19 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50983417&amp;ptid=1963832" target="_blank">shimmy1996 发表于 2021-4-19 10:32</a>
+腹が減っては戦ができぬXDD
+
+
+飞鸟前辈太池了</blockquote>
+大家都不想工作<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  菊妖不是怪  
+##### 1251#       发表于 2021-4-19 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50983417&amp;ptid=1963832" target="_blank">shimmy1996 发表于 2021-04-19 10:32:50</a></blockquote>抚子的厨艺可比珊瑚强太多了，这是成为q娃的代价！<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  红焖菠菜  
+##### 1252#       发表于 2021-4-19 13:57
+
+
+这是第几个会做饭的粉主？我看的少只知道罗武哥会做饭。
+
+—— 来自 HUAWEI LIO-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  HGCG+  
+##### 1253#       发表于 2021-4-19 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50983417&amp;ptid=1963832" target="_blank">shimmy1996 发表于 2021-4-19 10:32</a>
+
+腹が減っては戦ができぬXDD
+
+
+飞鸟前辈太池了</blockquote>
+因为不想干活啊
+
+
+-----
+
+####  三合一出现  
+##### 1254#       发表于 2021-4-19 19:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">珊瑚你才是最摸的，你在隔壁煮饭超强的。
+
+[  -- 来自 能看大图的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  欧派爱欧派  
+##### 1255#       发表于 2021-4-19 19:48
+
+
+ 本帖最后由 欧派爱欧派 于 2021-4-20 09:08 编辑 
+
+想入q娃坑 问一下这部可以直接看吗 还是要先补前面的
+
+懂了 那就先看这部 发现271那个专享动画的会员连续包季首季4.9 应该能看不少<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Sliurus  
+##### 1256#       发表于 2021-4-19 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50990146&amp;ptid=1963832" target="_blank">欧派爱欧派 发表于 2021-4-19 19:48</a>
+ 想入q娃坑 问一下这部可以直接看吗 还是要先补前面的  —— 来自 samsung SM-G9750, Android 11上的 S1Next ...</blockquote>
+直接看就行，不过瘾再补
+
+
+-----
+
+####  lydia5989  
+##### 1257#       发表于 2021-4-19 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50990146&amp;ptid=1963832" target="_blank">欧派爱欧派 发表于 2021-4-19 19:48</a>
+
+想入q娃坑 问一下这部可以直接看吗 还是要先补前面的
+
+
+—— 来自 samsung SM-G9750, Android 11上的 S1Next ...</blockquote>
+可以先看拥抱那个剧场版后面大决战或者拥抱37集，瞅着里面那堆哪个顺眼补哪个
+
+
+-----
+
+####  HGCG+  
+##### 1258#       发表于 2021-4-19 22:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50990146&amp;ptid=1963832" target="_blank">欧派爱欧派 发表于 2021-4-19 19:48</a>
+
+想入q娃坑 问一下这部可以直接看吗 还是要先补前面的
+
+
+—— 来自 samsung SM-G9750, Android 11上的 S1Next ...</blockquote>
+和过去作品没有联系可以直接看
+
+
+-----
+
+####  真红眼教授  
+##### 1259#       发表于 2021-4-20 07:55
+
+
+没想到学做便当这种小事拍的挺有趣的，每个人性格差异也体现的很好
+
+
+-----
+
+####  ddy2811  
+##### 1260#       发表于 2021-4-20 11:17
+
+
+“靡不有初，鲜克有终”，去年这个集数的时候也还算有意思的，但后面也都看到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当然有些作品连“初”都没有就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  PrincessBanana  
+##### 1261#       发表于 2021-4-20 11:27
+
+
+ 本帖最后由 PrincessBanana 于 2021-4-20 11:32 编辑 
+
+四个人按住萝拉假装杀鱼那段可乐死我了，变身以后紧急恰饭然后打架太可爱了
+
+不过目前看下来最让我惊讶的还是一之濑学姐的人设，给人一种与以往的文学系Q娃完全不一样的印象。现在非常期待木瓜之后的个人回，还有就是这几话看下来珊瑚反而都没有特别凸出的内容，不会真的就是超弱气角色吧。
+
+
+       
