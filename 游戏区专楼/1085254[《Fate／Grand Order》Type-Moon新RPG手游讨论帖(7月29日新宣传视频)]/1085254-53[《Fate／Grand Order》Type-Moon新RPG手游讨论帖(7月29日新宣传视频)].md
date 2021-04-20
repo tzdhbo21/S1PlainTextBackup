@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-18 09:40** 
+> ## **本文件最后更新于2021-04-20 09:39** 
 
 
 
@@ -4973,4 +4973,475 @@ wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后一天估计真是枪大公了 毕竟没强化没宝具本 由大公开始 由大公结束
 
 
-                                   
+-----
+
+####  smdzh2  
+##### 78424#       发表于 2021-4-18 21:31
+
+
+明天应该是月神？不过色卡耐性down丝毫拯救不了月神啊
+唯一神：那么，答案只有一个了…<img src="https://static.saraba1st.com/image/smiley/carton2017/055.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78425#       发表于 2021-4-18 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50979678&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-4-18 21:31</a>
+
+明天应该是月神？不过色卡耐性down丝毫拯救不了月神啊
+
+唯一神：那么，答案只有一个了… ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一回合出星集星爆伤 蓝爆走起
+
+
+-----
+
+####  alucardcz  
+##### 78426#       发表于 2021-4-19 17:01
+
+
+教授  笑喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78427#       发表于 2021-4-19 17:06
+
+
+这特么谁猜的到啊，哦对了，忘了小乙可以和教授绑定池子，我勒个去
+
+
+-----
+
+####  黑上シグマ  
+##### 78428#       发表于 2021-4-19 17:07
+
+
+ 本帖最后由 黑上シグマ 于 2021-4-19 17:10 编辑 
+
+今天教授技能本
+我没教授，再见
+扔了两张票
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好吧现在我有教授了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">雷太鯖齐了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  qixinno2  
+##### 78429#       发表于 2021-4-19 17:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 果然玩家想到的舍弃 明明前面全是剧情池角色 突然来个限定骚老头可还行
+
+
+-----
+
+####  里村紅葉  
+##### 78430#       发表于 2021-4-19 17:10
+
+
+居然还在我没有的五星范围内<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78431#       发表于 2021-4-19 17:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">教授这给了出星属于好强化啊  终于能直接开技能了
+
+
+-----
+
+####  khxooo  
+##### 78432#       发表于 2021-4-19 17:24
+
+
+终于将这弱智的技能组改好了，如果这样的话女帝的强化估计也在后面了。
+
+
+-----
+
+####  qixinno2  
+##### 78433#       发表于 2021-4-19 17:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拥有那么多BUFF的月神竟然输了 惨 太惨了
+
+
+-----
+
+####  alucardcz  
+##### 78434#       发表于 2021-4-19 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988583&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-19 17:29</a>
+
+拥有那么多BUFF的月神竟然输了 惨 太惨了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过这次倒是真的全单体  明天有本事来个全体的
+
+
+-----
+
+####  alucardcz  
+##### 78435#       发表于 2021-4-19 17:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单体金枪  我奶个美杜莎算了
+
+
+-----
+
+####  khxooo  
+##### 78436#       发表于 2021-4-19 18:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50988651&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-19 17:35</a>
+
+单体金枪  我奶个美杜莎算了</blockquote>
+美杜莎有宝具本，有技能本，机会很低就是了。枪大公机会高一点。
+
+
+-----
+
+####  alucardcz  
+##### 78437#       发表于 2021-4-19 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989119&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-4-19 18:14</a>
+
+美杜莎有宝具本，有技能本，机会很低就是了。枪大公机会高一点。</blockquote>
+玩家想到的 舍弃.jpg
+
+
+-----
+
+####  smdzh2  
+##### 78438#       发表于 2021-4-19 18:51
+
+
+唯一神没发病继续强化伊修塔尔已经很给其他菜鸡选手面子了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+明天盲猜一个李大师，唯一神最好给我一个意料之外的答案<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  都谷捻柏  
+##### 78439#       发表于 2021-4-19 19:17
+
+
+枪大公，宝具本+后置魔耐降低
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  areklose  
+##### 78440#       发表于 2021-4-19 19:31
+
+
+奶一下黑枪呆，赌就要赌个想不到的
+
+
+-----
+
+####  qixinno2  
+##### 78441#       发表于 2021-4-19 19:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奶口泳装奶光也是可以的吧
+
+
+-----
+
+####  xiongxingyu  
+##### 78442#       发表于 2021-4-19 22:18
+
+
+要猜就猜个大的，团长魔放强化到50变3T，成为你游第一个宝具本+全技能强化制霸的4星从者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78443#       发表于 2021-4-19 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50991873&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-4-19 22:18</a>
+
+要猜就猜个大的，团长魔放强化到50变3T，成为你游第一个宝具本+全技能强化制霸的4星从者 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">论想屁吃还是你比较强
+
+
+-----
+
+####  里村紅葉  
+##### 78444#       发表于 2021-4-19 23:01
+
+
+不如给龙娘再强化一下吧，顺带把灵衣也安排了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UNISONIA  
+##### 78445#       发表于 2021-4-20 08:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989556&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-4-19 18:51</a>
+
+唯一神没发病继续强化伊修塔尔已经很给其他菜鸡选手面子了
+
+明天盲猜一个李大师，唯一神最好给我一个 ...</blockquote>
+wys虽然确实有时候病的不轻，但是那次可没发病，他那年年底搞线下活动的时候说了伊斯塔不应该强化了
+
+
+谁能想到奈须在HF3最后的talk上面自曝是他自己求出来的强化呢
+
+
+-----
+
+####  areklose  
+##### 78446#       发表于 2021-4-20 15:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">该奶一下今天会不会出公告，明天开活动了
+
+
+-----
+
+####  UNISONIA  
+##### 78447#       发表于 2021-4-20 16:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51000050&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-20 15:45</a>
+
+该奶一下今天会不会出公告，明天开活动了</blockquote>
+预热最多了吧
+
+
+-----
+
+####  areklose  
+##### 78448#       发表于 2021-4-20 16:33
+
+
+<blockquote>UNISONIA 发表于 2021-4-20 16:23
+预热最多了吧</blockquote>
+都长草2周，还预热，过分了
+
+
+-----
+
+####  里村紅葉  
+##### 78449#       发表于 2021-4-20 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51000735&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-20 16:33</a>
+
+都长草2周，还预热，过分了</blockquote>
+黄金周的活动我觉得不会这么早开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78450#       发表于 2021-4-20 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51000735&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-20 16:33</a>
+都长草2周，还预热，过分了</blockquote>
+现在不是正在开强化吗，不能说长草啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+最多就是预告，别想了
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78451#       发表于 2021-4-20 17:02
+
+
+草　黑枪呆
+
+果然是玩家想到的　　舍弃.ｊｐｇ
+
+
+-----
+
+####  rooarr  
+##### 78452#       发表于 2021-4-20 17:02
+
+
+终于强化黑枪这个我有的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78453#       发表于 2021-4-20 17:02
+
+
+<blockquote>引用第78439楼areklose于2021-04-19 19:31发表的  :
+
+奶一下黑枪呆，赌就要赌个想不到的</blockquote>
+老哥，稳
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 78454#       发表于 2021-4-20 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51001218&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-20 17:02</a>
+
+终于强化黑枪这个我有的了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不对劲　这强化就连萌新我也只有一个没有
+
+
+-----
+
+####  qixinno2  
+##### 78455#       发表于 2021-4-20 17:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50989993&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-19 19:31</a>
+
+奶一下黑枪呆，赌就要赌个想不到的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 你奶中了
+
+
+-----
+
+####  qixinno2  
+##### 78456#       发表于 2021-4-20 17:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">无敌 果然玩家想到的舍弃 最后一天来个光炮 你好强大啊
+
+
+-----
+
+####  rooarr  
+##### 78457#       发表于 2021-4-20 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51001248&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-20 17:04</a>
+你不对劲　这强化就连萌新我也只有一个没有</blockquote>
+你才不对劲呢，这个可是我的自选4星<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78458#       发表于 2021-4-20 17:10
+
+
+奶中了，3回合55魔放，牌面，虽然没吊用
+
+
+-----
+
+####  黑上シグマ  
+##### 78459#       发表于 2021-4-20 17:10
+
+
+明天有维护，搞事？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  黑上シグマ  
+##### 78460#       发表于 2021-4-20 17:11
+
+
+<blockquote>引用第78457楼areklose于2021-04-20 17:10发表的  :
+
+奶中了，3回合55魔放，牌面，虽然没吊用</blockquote>
+是3T/3次（
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  阿提拉  
+##### 78461#       发表于 2021-4-20 17:11
+
+
+村姑灵衣这个左手...摸鱼到这种程度可以确定是社长本人画的（
+
+
+-----
+
+####  alucardcz  
+##### 78462#       发表于 2021-4-20 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51001340&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-20 17:10</a>
+
+奶中了，3回合55魔放，牌面，虽然没吊用</blockquote>
+怎么可能给你3回合55呢。3次.jpg
+
+
+-----
+
+####  alucardcz  
+##### 78463#       发表于 2021-4-20 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51001338&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-20 17:10</a>
+
+你才不对劲呢，这个可是我的自选4星</blockquote>
+黑枪呆不是当年梅林池的吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Jamaisvu  
+##### 78464#       发表于 2021-4-20 17:24
+
+
+看到有个黑枪呆强化就直接进去打了，想着是不是要换掉领导力E了。
+
+
+结果是把本来就IMBA的魔放A+换成EX了，策划的思路真是让人捉摸不定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+（其实还是有迹可循的，宝具强化全都有减对应色卡耐性...）
+
+
+-----
+
+####  eden_hazard  
+##### 78465#       发表于 2021-4-20 17:34
+
+
+贞德这外骨骼看得真让人难受
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                  
