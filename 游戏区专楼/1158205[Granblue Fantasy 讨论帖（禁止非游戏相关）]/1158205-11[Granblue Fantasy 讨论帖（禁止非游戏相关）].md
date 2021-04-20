@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-12 09:47** 
+> ## **本文件最后更新于2021-04-20 02:54** 
 
 
 
@@ -83,7 +83,8 @@
 ####  peh  
 ##### 15008#       发表于 2021-2-14 19:31
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+没忍住拆了30抽，果然屁都没有
 
 
 -----
@@ -185,7 +186,10 @@
 ####  peh  
 ##### 15018#       发表于 2021-2-15 01:29
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote>peh 发表于 2021-2-14 19:31
+没忍住拆了30抽，果然屁都没有</blockquote>
+晚上睡不着，上头抽了一井..情人节角色齐了。但是没出lm很蛋疼
 
 
 -----
@@ -578,7 +582,8 @@ lm季限齐玩土，不然玩暗
 ####  peh  
 ##### 15050#       发表于 2021-2-19 18:43
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+之前谁问进境法还是浑身法来着<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -629,7 +634,20 @@ lm季限齐玩土，不然玩暗
 ####  peh  
 ##### 15055#       发表于 2021-2-20 12:52
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50385289&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-2-20 11:52</a>
+
+水方出什么大事了吗（看着手上准备砸钢的lm武器
+
+
+  -- 来自 有消息提醒的 Stage1官方 iOS客户端 ...</blockquote>
+1104奥义追加一割追伤，因为是奥義枠所以和目前章鱼割草常用的杖职主手进境法冲突了（虽然割草好像也不带4，现在可以带了到是），
+
+
+比较尴尬的一点是，脱离主手法武支持萌王开书会变卡（浑身法主手奥义效果太差），而且章鱼现在还没有优质的进境（lm）..所以其实，还是带方阵浑身法割草吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+相比之下水方因为法武只能选浑身，4的追伤倒是放在割草环境也是很大的增强了，毕竟水方现在也是带龙枪的
 
 
 -----
@@ -655,7 +673,15 @@ lm季限齐玩土，不然玩暗
 ####  peh  
 ##### 15057#       发表于 2021-2-22 23:14
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote>phoenixxj 发表于 2021-2-22 13:21
+1104的主场肯定是150
+
+这150能不能用武僧都是个问号
+
+到时候老男人能不能去也是个问号
+</blockquote>
+我记得去年150帽子都能用，老男人更是前排铁板..
 
 
 -----
@@ -718,7 +744,15 @@ lm季限齐玩土，不然玩暗
 ####  peh  
 ##### 15062#       发表于 2021-2-23 09:18
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+ 本帖最后由 peh 于 2021-2-23 09:22 编辑 
+
+fa不是更随便了吗?本来水防御性能就过剩，去年井的bba还没用呢，1101/莉莉/bba，1104，狗，插两根椰子随便吧..掉血没伤害的问题看看新lm了只能，说不定零圈同款..
+
+至于老男人，手操场合肯定铁板啊，fa开3技能你后备插龙吉修正主义开局点下3其实也不太影响的
+
+
+150hl我印象最深的还是鹰人了，满屏dodge真是恶心得不行
 
 
 -----
@@ -758,7 +792,13 @@ fa不是更随便了吗?本来水防御性能就过剩，去年井的bba还没�
 ####  peh  
 ##### 15066#       发表于 2021-2-23 17:27
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50416696&amp;ptid=1158205" target="_blank">phoenixxj 发表于 2021-2-23 15:28</a>
+
+所以没错啊
+
+这是章鱼佬的余裕</blockquote>
+水方也可以啊，水防御不是集中在角色端么..说不定设计一个能让仇闪站前排的boss，常驻130防
 
 
 -----
@@ -825,7 +865,12 @@ https://www.youtube.com/watch?v=U_a8C0348zg
 ####  peh  
 ##### 15072#       发表于 2021-2-28 11:58
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+ 本帖最后由 peh 于 2021-2-28 12:00 编辑 
+
+没有单面打拳的盘子，但我记得狗1路射程也已经超过95血量了，有zeta大概能快一点但这大概是英雄佬需要考虑的，关键是单面打拳盘子保底2弓2枪...
+
+想了想是不是只有水单面还要靠凑暴击撑盘子的<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -1031,7 +1076,8 @@ gbf初始低的也有几百，单纯为了体验一下挺不值的
 ####  peh  
 ##### 15089#       发表于 2021-3-5 16:01
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+七周年了，自开要么重氪多吃点暗锅卡池的屎要么先养个一年再说（别忘了换欠片<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
 
 
 -----
@@ -1225,7 +1271,8 @@ gbf初始低的也有几百，单纯为了体验一下挺不值的
 ####  peh  
 ##### 15108#       发表于 2021-3-7 20:32
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">水老王活了
 
 
 -----
@@ -1429,7 +1476,8 @@ fkhr执政时候总是想着颠覆这游戏，实际上自己又不玩真的恶�
 ####  peh  
 ##### 15128#       发表于 2021-3-9 18:20
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">u1s1，我也好像好几井没神石了，说再抽就行的可能是每次百六都下井的大佬吧
 
 
 -----
@@ -1473,7 +1521,10 @@ fkhr执政时候总是想着颠覆这游戏，实际上自己又不玩真的恶�
 ####  peh  
 ##### 15132#       发表于 2021-3-10 00:21
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+刮之前：哪个sb想出来把耳环塞进去的
+
+刮之后：能把白戒指换成耳环吗，哪个属性都行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -1828,7 +1879,30 @@ EP3一上来就“我是你妹妹”直接把整个一章毁了.......后面那�
 ####  peh  
 ##### 15164#       发表于 2021-3-11 09:09
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+ 本帖最后由 peh 于 2021-3-11 09:11 编辑 
+
+有人给我讲一下剧情里ヤチマ和レベリ的关系吗，アイザク问是不是旧识，怎么还能扯到アラン的，之前活动提到过レベリ人格是アラン那边的?
+
+还有那个我吃了阿兰的头也完全不懂在说什么。。
+
+
+妹妹还好吧，总比女儿好，这段剧情最搞笑的还是两人机神。巴叔：zeta你坐啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wolftooth| + 2|抱歉，给您补回来。|
+
+
+查看全部评分
 
 
 -----
@@ -1930,7 +2004,8 @@ EP3一上来就“我是你妹妹”直接把整个一章毁了.......后面那�
 ####  peh  
 ##### 15173#       发表于 2021-3-11 14:42
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+这次新职业倒是不错，给单面没法搞出打拳盘的提供了一个双面的短期选项
 
 
 -----
@@ -1970,7 +2045,11 @@ EP3一上来就“我是你妹妹”直接把整个一章毁了.......后面那�
 ####  peh  
 ##### 15177#       发表于 2021-3-11 16:52
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50589692&amp;ptid=1158205" target="_blank">欠陷制品 发表于 2021-3-11 16:14</a>
+
+ex2除了职武是不是四天刃又可以竞争上岗了</blockquote>
+这职业不缺连击啊
 
 
 -----
@@ -1991,7 +2070,14 @@ ex2除了职武是不是四天刃又可以竞争上岗了</blockquote>
 ####  peh  
 ##### 15179#       发表于 2021-3-12 01:03
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50594015&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-3-11 23:12</a>
+不如说过气短lm又竞争上岗了，四天刃也太臭鱼烂虾了
+
+—— 来自 Sony J9110, Android 10上的 S1Ne ...</blockquote>
+我觉得这职业要么就fa拿点别的主手，想打短期还得靠职武不然叠层太慢了，这职业短期靠全队ta二动领域追伤配合回合斩选手还有一手的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
 -----
@@ -2058,7 +2144,10 @@ kmr PUA真有一套，唯一一次买贵族必得中的唯一突满的暗老王�
 ####  peh  
 ##### 15185#       发表于 2021-3-13 09:57
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+一个jgj，勉强可以接受，还是勋章拖天人超限进度比较恶心，水贤者两个废物领域也恶心
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">当然最恶心的还是nm呱呱乐每天给几个银天cpu然后群友都在狗叫新lm
 
 
 -----
@@ -2250,7 +2339,8 @@ B站搜一下 碧蓝幻想 剧情 大概都有了</blockquote>
 ####  peh  
 ##### 15202#       发表于 2021-3-15 08:44
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+不打沙盒，扫荡塔罗，每天上线打10个银片就算成功.jpg
 
 
 -----
@@ -2331,7 +2421,20 @@ B站搜一下 碧蓝幻想 剧情 大概都有了</blockquote>
 ####  peh  
 ##### 15210#       发表于 2021-3-15 11:36
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50629180&amp;ptid=1158205" target="_blank">凌云三才 发表于 2021-3-15 11:19</a>
+
+总算打够十个碎了，那么是先做1还是先做4好点？我看1最近风评也上来了？</blockquote>
+你要打拳顶配就突1，就为了10%上限罢了，
+
+风评没什么改良的，非打拳场合基本不会带的水平，那3回合的吸收跟妈的lb领域不就一个水平？
+
+
+相比之下1104更泛用一点，奥义追伤解放法武进境，古战肯定能上场，别的也就那样吧
+
+
+反正现在超限4个就都那样呗，考虑保底ffj和130的300勋章，自己斟酌吧..
+
 
 
 
@@ -6040,4 +6143,421 @@ emmm苏谢的终突，说弱不弱但是好像又不那么太突出<img src="htt
 主要这个技伤动画真的太久了，刷新fa都省不了什么时间，干脆就不刷新了
 
 
-                                
+-----
+
+####  すみぺ  
+##### 15512#       发表于 2021-4-12 22:50
+
+
+给波骑兵 4bba泽塔双贤 打了一天从英雄线边缘打到前1000了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  银域放浪者  
+##### 15513#       发表于 2021-4-13 10:00
+
+
+暴击公式修改有没有说啥时候实装？是不是以后宇宙土方都能必爆了？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  江戸前ルナ  
+##### 15514#       发表于 2021-4-13 18:34
+
+
+ 本帖最后由 江戸前ルナ 于 2021-4-13 18:36 编辑 
+
+请教下，有无限琴的必爆火老王的三阶法目前是不是无脑附浑身了？
+
+
+还有二阶，奥义/技能/平A到底哪个比较泛用……虽然有把湿婆弓而且有火天司和太阳但现在奥义一般才360W左右感觉好难看……隔壁我土琴盘带个鸡打满都有360，垃圾一杖暗方靠跳舞狐和老鼠能打500W<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  windlikeman  
+##### 15515#       发表于 2021-4-13 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50926467&amp;ptid=1158205" target="_blank">江戸前ルナ 发表于 2021-4-13 18:34</a>
+
+请教下，有无限琴的必爆火老王的三阶法目前是不是无脑附浑身了？
+
+
+还有二阶，奥义/技能/平A到底哪个比较泛 ...</blockquote>
+2阶嫌麻烦就固定技伤
+
+除非打拳或者摆拍
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 江戸前ルナ| + 1|感谢|
+
+
+查看全部评分
+
+
+-----
+
+####  欠陷制品  
+##### 15516#       发表于 2021-4-13 23:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">10e的1档线，谢谢你kmr
+
+希望下一个打拳很猛属性的团人没事
+
+
+-----
+
+####  poor  
+##### 15517#       发表于 2021-4-13 23:54
+
+
+ 本帖最后由 poor 于 2021-4-13 23:59 编辑 
+
+统一剥下来的加号要怎么喂给武器？点进强化，道具还是武器里面都没有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+知道了
+
+—— 来自 vivo V1981A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leeskies  
+##### 15518#       发表于 2021-4-14 07:40
+
+
+问下大巴fa的骑兵 是用銃 带减豆 关奥义么
+
+
+没有土madao可以么
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">请大佬们指教
+
+
+-----
+
+####  Sylpheed  
+##### 15519#       发表于 2021-4-14 08:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50930998&amp;ptid=1158205" target="_blank">leeskies 发表于 2021-4-14 07:40</a>
+问下大巴fa的骑兵 是用銃 带减豆 关奥义么
+
+
+没有土madao可以么</blockquote>
+没开芬3可以骑兵，开了还是武僧或者舞娘点个领域吧
+没madao也只能mao了，不过挺脑淤血的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leeskies  
+##### 15520#       发表于 2021-4-14 08:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">我是沙雕宇宙土方 土芬3还没开
+
+
+-----
+
+####  xzhlj0325  
+##### 15521#       发表于 2021-4-14 10:52
+
+
+芬3开就开了，芬和泽马输出够就行
+
+
+-----
+
+####  Kagam1  
+##### 15522#       发表于 2021-4-14 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50930998&amp;ptid=1158205" target="_blank">leeskies 发表于 2021-4-14 07:40</a>
+问下大巴fa的骑兵 是用銃 带减豆 关奥义么
+
+
+没有土madao可以么</blockquote>
+没开芬3用机神，主手土剑或者职武都行，技能就带一个罩子，扛db和伤害都很舒服，带mao芬鸡关奥义跑
+
+
+-----
+
+####  -みゆめ-  
+##### 15523#       发表于 2021-4-14 12:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50920825&amp;ptid=1158205" target="_blank">银域放浪者 发表于 2021-4-13 10:00</a>
+
+暴击公式修改有没有说啥时候实装？是不是以后宇宙土方都能必爆了？
+
+
+  -- 来自 能搜索的 Stage1官方 iOS客 ...</blockquote>
+宇宙土方想必爆需要的通常暴击现在也没有吧<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leeskies  
+##### 15524#       发表于 2021-4-14 13:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50933288&amp;ptid=1158205" target="_blank">Kagam1 发表于 2021-4-14 12:00</a>
+
+没开芬3用机神，主手土剑或者职武都行，技能就带一个罩子，扛db和伤害都很舒服，带mao芬鸡关奥义跑 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">谢谢
+
+
+-----
+
+####  FrozenA  
+##### 15525#       发表于 2021-4-14 15:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这几天古战场，我上线抽了个土必得出了肥宅之外就什么都没做了
+
+mhr太香了古战场又放置了
+
+
+-----
+
+####  Yeaha123  
+##### 15526#       发表于 2021-4-14 21:05
+
+
+当然是电脑FA赤兔马，电视上玩mhr啦
+
+
+-----
+
+####  武の炽羽  
+##### 15527#       发表于 2021-4-15 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50931429&amp;ptid=1158205" target="_blank">leeskies 发表于 2021-4-14 08:59</a>
+
+我是沙雕宇宙土方 土芬3还没开</blockquote>
+不用土solo BB，不终突土芬剑，真的不要开3技能
+
+这次水团的惨痛教训就告诉我们，角色到手就开3技能绝对是个坏毛病<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+希望KMR后面出个什么道具可以在FA的时候关闭角色的3技能<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kagam1  
+##### 15528#       发表于 2021-4-19 18:32
+
+
+<img src="https://img.saraba1st.com/forum/202104/19/183035zt6ql61vntblsleg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (46.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 18:30 上传
+
+
+招了pro玩家参与策划就搞了这？你这招的都是新山玉吧
+
+
+-----
+
+####  peh  
+##### 15529#       发表于 2021-4-19 19:08
+
+
+看了材料要求和强化幅度，没什么感想，只想知道cy内部还有多少人投在gbf上啊
+
+
+-----
+
+####  404489039  
+##### 15530#       发表于 2021-4-19 19:26
+
+
+反正天人突破 贤者领域这是给全老王用户玩的dead game内容。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正我不肝，除了能过的石头一律不肝
+
+
+-----
+
+####  sodah  
+##### 15531#       发表于 2021-4-19 21:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没什么好说的，只能祝GBF以后越来越好了。
+
+
+-----
+
+####  Charizard  
+##### 15532#       发表于 2021-4-19 21:24
+
+
+咸鱼社畜直接就放弃110了，最近的阴间更新就当不存在
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  拔丝光头  
+##### 15533#       发表于 2021-4-19 22:42
+
+
+愿病魔早日战胜FKHR
+
+
+-----
+
+####  Kagam1  
+##### 15534#       发表于 2021-4-20 02:57
+
+
+终破天人的思路就纯整蛊现在需要做天人的一批玩家，你平时不刷什么我就让你刷什么，生怕出来的一瞬间就被上层玩家一下做完，又不肯自己另外开新本来新增游玩内容。现在出了120条件需要十天总才能做，直白告诉你只有上层一批玩家才允许做，结果还是让你回去打最low的星本，对于极其需要验证自己数值的MMORPG是最臭的一步棋。
+
+而这个只是表象，120用金突天星器的收益极大，可以无视团战才能刷天星器的限制、还有省下巨量天星器转属的素材，天星器能用券换也不成问题。
+
+这次更新数下来收益最大的是最顶层的猎金玩家，多出一块金的代价很小，马上就能体验新增的顶层内容，基本上110全做的话都能直升120（先不考虑钱和jp）。还没做完天人的玩家现在不做超限，过个半年左右条件必然放缓。真正伤害到的是对这游戏坚持了一段时间，也不至于投入自己大部分时间的中上层玩家，讽刺的是FKHR在访谈中声称要把游戏向这个方向发展，我是真的被恶心吐了
+
+
+<img src="https://img.saraba1st.com/forum/202104/20/025507apxibfbfp0ibf5h6.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (15.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 02:55 上传
+
+
+-----
+
+####  yueyut  
+##### 15535#       发表于 2021-4-20 06:16
+
+
+我本人比较pro，110天人都做了。我所在的团也是时速团，对于团战可能用的上的天人会做为一个硬指标强制要求。限界突破这波更新，无论是110、120，都非常阴间，吃贵重材料ffj10块+其他巨量材料+一整套天星器，这没什么好洗的。不过我想说的是，130吃限量的碧丽之证，也许可能是唯一能限制得住顶层玩家的方法。
+
+
+以我们团为例（时速榜常年前30，偶尔前20），人均一套天星器存在仓库，金金砌墙，这波120更新就没有能在天星器上难住他们的，缺卢比和jp的倒是有，还有缺2.0球的。你说对于这样的玩家还能怎么限制，就算需要巨量高难素材，比如螺丝和黑剑，他们也能立刻组织起放置房高效farm。还有连jgj都不换的存勋章玩家，要是碧丽之证库存不为1，都有办法立刻换好几张出来。所以对于pro是真的没办法限制的，再大的素材要求他们也不会伤筋动骨，反倒是下一层级的玩家会被严重的伤害到。相对来说碧丽之证真的算是一种平衡了。而且我说的只是全空20-30水准的团，前10的那又是另外一种画风了，更恐怖。
+
+
+所以以碧丽之证进度去考虑，10次团，2年时间，等于说无论是谁都需要花费2年才能做完全部。需要考虑先后顺序，以团战次序与绝对强度去思考谁先谁后，就像曾经做十天极一样。110和120（还有未来的140和150）需要的素材虽然极其阴间，但如果拆分到2年，每次团战间隔的2个月内做1个天人这样做出来，压力或许就没那么大了。实际上反倒是pro的压力更大一些，一般玩家可以跟团做，但pro还要考虑猎金最优解，而猎金本来就是内卷的，我弱等于别人强。比方说我现在就对突130的3还是6举棋不定，因为我暗akx和土大巴都可以猎金，哪个更好？我不知道，但碧丽之证只有一张。
+
+
+-----
+
+####  zzy516232108  
+##### 15536#       发表于 2021-4-20 08:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">昨天更新后团里的人都在讨论做3还是8打团，要不是这次更新我根本不知道我们团里有这么多pro。
+
+—— 来自 samsung SM-G7810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  jxzeroga0  
+##### 15537#       发表于 2021-4-20 09:05
+
+
+不出星本扫荡就不考虑突破了，再见
+
+
+-----
+
+####  ronac  
+##### 15538#       发表于 2021-4-20 09:10
+
+
+咳，这游戏已经充满了投机倒把、个人崇拜、ご理解民
+
+刚进游戏一天的新人都恨不得当成假想敌，削尖了脑袋内卷，简直狂欢一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  faxi  
+##### 15539#       发表于 2021-4-20 10:09
+
+
+这120我倒真是有一整套天星器素材，谁让我没做极皮呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+问题是我缺星晶和卢比和JP，然后仔细算了下各种文书和记忆也只是勉强够用的水平，做几个就破产了
+
+然后这要求所有人无脑硬刷星晶本就很弱智，总不能人人每天刷几小时星号本来整吧<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+能自动还好，现在实际是10秒一把，手动按几次，还要花时间去打HELL<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+150怕不是要超法单刷称号（还是说再整个极皮）<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fange  
+##### 15540#       发表于 2021-4-20 10:15
+
+
+要是国内游戏早就被骂死？
+
+
+
+
+-----
+
+####  peh  
+##### 15541#       发表于 2021-4-20 10:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪止是整上层玩家，新入坑的玩家看到这追不上的贤者和古战积累，直接一个跑路
+
+
+-----
+
+####  usoda  
+##### 15542#       发表于 2021-4-20 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50994858&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2021-4-20 09:05</a>
+
+不出星本扫荡就不考虑突破了，再见</blockquote>
+扫荡就不说了，什么时候能实装龙约那种auto功能我就考虑回来做十天超限<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  syndrome2032  
+##### 15543#       发表于 2021-4-20 10:35
+
+
+150肯定是极皮称号前提了。
+
+我敢这么说。
+
+代依碎-天星碎
+
+下面不是极皮就是鸡皮武了吧
+
+
+                               
