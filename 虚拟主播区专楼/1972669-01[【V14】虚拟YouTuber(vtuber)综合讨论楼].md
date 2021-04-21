@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-21 08:11** 
+> ## **本文件最后更新于2021-04-21 16:18** 
 
 
 
@@ -1382,7 +1382,9 @@ debu+狗+恶灵
 ##### 98#       发表于 2021-4-21 01:53
 
 
-Kill The<strong> King</strong>
+ 本帖最后由 alcoholic1000 于 2021-4-21 16:53 编辑 
+
+The King瓦兰匹配到了顶着他前世名字来狙击的玩家，双排的空气一度凝固<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
 
 
 VS.png
@@ -1395,7 +1397,7 @@ VS.png
 2021-4-21 01:50 上传
 
 
-阅读权限: <strong>40</strong>
+阅读权限: <strong>30</strong>
 
 
 <img src="https://img.saraba1st.com/forum/202104/21/015007tyh0y8nyzyb8znj8.png" referrerpolicy="no-referrer">
@@ -1465,4 +1467,269 @@ VS.png
 不是什么大事，就郡大谈特谈择偶标准，我“姐还挑啊<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">？（大意），可以说完全是我的问题
 
 
-                                              
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  IDIDIDID  
+##### 105#       发表于 2021-4-21 16:45
+
+
+不破原创曲人气好高啊，三枝可以往边上稍稍了。
+
+
+-----
+
+####  alcoholic1000  
+##### 106#       发表于 2021-4-21 17:37
+
+
+虽然我觉得不破原创曲热度高是因为有The King of 男唱见的buff加成，PV完成度也算加分项...但他今年的数字都挺高的（虹限定）<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/21/173504exgwvhcfodhjopxc.png" referrerpolicy="no-referrer">
+
+
+<strong>不破.png</strong> (206.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 17:35 上传
+
+
+-----
+
+####  noHentai  
+##### 107#       发表于 2021-4-21 18:20
+
+
+ 本帖最后由 noHentai 于 2021-4-21 18:26 编辑 
+
+holo的巨量海外观众会让实体销量吃点亏，不过在大配信时代下收入上倒不会有多大差距就是了。
+<img src="https://p.sda1.dev/1/de0ac5a5d680090062d322569618e110/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 108#       发表于 2021-4-21 18:31
+
+
+理所当然的结果吧，特典就被虹暴打了，另一方面也是观众的消费习惯不一样，虹观众在买周边上被养的比杏观众会热情的多。
+以前就预计杏要是出专辑的话，有虹专一半都不错了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  IDIDIDID  
+##### 109#       发表于 2021-4-21 19:13
+
+
+说到虹男，king最近valorant同接跌到没眼看，赶紧换项目吧不然后面兄弟几个可就扑上来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 110#       发表于 2021-4-21 19:18
+
+
+cr怎么又来了？最协去哪里了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 111#       发表于 2021-4-21 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 瓦洛兰特应该收了拳头JP钱的，赚钱不丢人，再说尊事件没有影响是不可能的，
+
+
+不破称霸ichikara还差最后一步，找个可爱的后辈闹出点绯闻就行了
+
+
+-----
+
+####  IDIDIDID  
+##### 112#       发表于 2021-4-21 19:29
+
+
+明明是需要找个人homo营业，挑染那俩我看不太行，剩下走偶像路线的一线虹男只有社长了，但是明显不可能。
+
+
+-----
+
+####  Aminor  
+##### 113#       发表于 2021-4-21 19:33
+
+
+瓦洛兰特观赏性比apex好太多了，日本人是怎么天天看apex大赛不腻的
+
+
+-----
+
+####  死体残留  
+##### 114#       发表于 2021-4-21 19:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">画质和英雄还有游戏模式吧 v一看上去就是几年前的csgo，特效技能都比不上a的炫酷和流畅，a打不过还可以做渔夫吃鸡，v玩不上来话死的比a还快
+
+
+-----
+
+####  poipanchao  
+##### 115#       发表于 2021-4-21 19:46
+
+
+瓦洛兰特观赏性我觉得要分开看
+
+菜一点的人玩瓦洛兰特看起来比apex好看，因为都是瞬秒，彩笔也能反杀，换到apex就是无限飞机
+
+但是高水平的还是apex好看，光是机动性就能唬人，飞来飞去的，视觉效果拉满
+
+相反瓦洛兰特的高级排位就很沉闷了
+
+
+-----
+
+####  qq845629713  
+##### 116#       发表于 2021-4-21 20:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 也没说一定是女后辈啊，还不是你虹之后的男人都太喜欢和女人玩了，人均绑定一个妹子玩组合
+
+
+-----
+
+####  OldGlory  
+##### 117#       发表于 2021-4-21 20:30
+
+
+还是怪铲弟懒得和套皮贵物玩，不破也只能和女人玩了。
+
+
+-----
+
+####  ylssb10438  
+##### 118#       发表于 2021-4-21 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51015251&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-4-21 19:46</a>
+
+瓦洛兰特观赏性我觉得要分开看
+
+菜一点的人玩瓦洛兰特看起来比apex好看，因为都是瞬秒，彩笔也能反杀，换到a ...</blockquote>
+cs类的都是这样吧，看yyf和scboys他们直播打cs这种每把节奏快的确实有趣，但看他们吃鸡啥的属实看不下去
+
+
+-----
+
+####  poipanchao  
+##### 119#       发表于 2021-4-21 20:56
+
+
+说起来又有CR了……
+
+民那daisuki的黑黑千又要来咯
+
+
+-----
+
+####  真飞鸟i  
+##### 120#       发表于 2021-4-21 22:32
+
+
+同接不是蛮高的<img src="https://p.sda1.dev/1/d9f2f51abe539049c74d9bb1c6cc8438/47dafb36837a42a1.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+-----
+
+####  FCCHua  
+##### 121#       发表于 2021-4-21 22:41
+
+
+ 本帖最后由 FCCHua 于 2021-4-21 22:42 编辑 
+
+阿床和奏mimi合作了，月底投稿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 122#       发表于 2021-4-21 22:48
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-21 23:01 编辑 
+
+可别编排牛郎了，他和犬山对谈自述已经被厄介粉纠缠了四年了，找警察都不管用
+
+随便搞男女关系怕不是要被这位用叉子刺杀
+
+​メンヘラ製造機啊
+[https://www.youtube.com/watch?v=tG7hIE8DeoU&amp;t=1464s](https://www.youtube.com/watch?v=tG7hIE8DeoU&amp;t=1464s)
+
+Syl、麦新衣装
+
+<img src="https://img.saraba1st.com/forum/202104/21/230105aihz4m64bb666bth.png" referrerpolicy="no-referrer">
+
+
+<strong>【祝15万】新OP:新衣装:新機材てんこ盛り【にじさんじ:家長むぎ】.png.png</strong> (345.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 23:01 上传
+
+
+-----
+
+####  轩辕无  
+##### 123#       发表于 2021-4-21 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51010633&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-4-21 13:00</a>
+
+昨天郡道深夜杂谈狂触我雷点，于是发了多条挑衅评论，都被手动消了，现在清醒后仔细一想，真是感谢郡的大恩 ...</blockquote>
+我麻将挑了点刺就被blocked了
+
+
+-----
+
+####  rzrbtk  
+##### 124#       发表于 2021-4-21 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51017184&amp;ptid=1972669" target="_blank">轩辕无 发表于 2021-4-21 23:02</a>
+
+我麻将挑了点刺就被blocked了</blockquote>
+刺激到她可悲自尊心的留言都很容易被blocked的，而且之前某段打麻将时期感觉是郡道心态最崩的时候了，可能刚好撞上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  1570752915  
+##### 125#       发表于 2021-4-21 23:20
+
+
+apex不好看但是好玩啊，csgo虽然比赛看的刺激，自己玩起来强度太大了，门槛也很高，体验一般。像CR看的人是多，但大部分都是看黑黑千七武海这种相声队，核心观众估计娱乐玩家居多，应该不会喜欢瓦洛兰这种高强度竞技游戏
+
+
+                                             

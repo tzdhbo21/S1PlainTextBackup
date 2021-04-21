@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-19 07:38** 
+> ## **本文件最后更新于2021-04-21 15:43** 
 
 
 
@@ -14917,10 +14917,10 @@ ape熬夜身体玩崩了，精神也崩了，还和家人吵架了，想发推�
 ##### 5760#       发表于 2021-4-19 14:55
 
 
- 本帖最后由 gikaqi 于 2021-4-19 15:25 编辑 
+ 本帖最后由 gikaqi 于 2021-4-19 19:19 编辑 
 
 昨晚听阿夸被问到v的活动还会不会继续下去，她的是说虽然身体和精神有跟不上的地方？但还有想做的事，想把这些实现了，所以还不会停。
-<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这话就有种等哪天做完事收山的感觉。而不是找个工作干到退休过日子的心态。
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">这话就有种等哪天做完事收山的感觉。而不是长久地当成过日子的工作干到退休的心态。
 
 说出来可能被人打，说实话，头一次让我真实地产生了“看一天少一天”的意识，作为观众说不难受那是不可能的。但如果真能实现梦想然后收山去过日子，对她本人来说很幸福吧，这事哪有那么容易的，说不祝她成功也不够意思。
 
@@ -14929,6 +14929,22 @@ ape熬夜身体玩崩了，精神也崩了，还和家人吵架了，想发推�
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">也可能是我想多了，直播总得说些正能量话的。最后我挺羡慕那些说“会直播一辈子”的主播的粉丝，不管是不是真的，总之好歹骗骗人，不要让人那么快面对现实好不好。
 <img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">阿夸最长也只有十年之约，太短暂了，骗人还不往大了说。那位要说阿夸离开后还会以其他身份接着在互联网上活动一辈子什么的，这种没影的白日梦我做都不敢做的。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fangjun96| + 1|虚拟主播也只是虚拟，她要是能真坚持十年，.|
+| 星の守| + 1|谁又能轻易看清未来，只能珍惜眼前.|
+
+
+查看全部评分
 
 
 
@@ -14946,4 +14962,362 @@ ape熬夜身体玩崩了，精神也崩了，还和家人吵架了，想发推�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-       
+-----
+
+####  doushike  
+##### 5762#       发表于 2021-4-19 15:46
+
+
+人格分裂了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5763#       发表于 2021-4-19 16:28
+
+
+发散一下 会不会和家人的争吵就是“你还想做主播做一辈子吗？找个正经工作吧”这种事情
+
+
+-----
+
+####  Maonpuyo  
+##### 5764#       发表于 2021-4-19 16:36
+
+
+才搬家没多久，搬家不就是为了继续在holo干吗，除非你硬要说搬到东京是为了找正经工作。。
+
+
+-----
+
+####  黑耀星尘  
+##### 5765#       发表于 2021-4-19 16:42
+
+
+这个业界还有的玩呢，大把的钱没赚呢，这么急着跑路干嘛
+
+—— 来自 samsung SM-G9750, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  乌鸦绅士  
+##### 5766#       发表于 2021-4-19 17:15
+
+
+ 本帖最后由 乌鸦绅士 于 2021-4-19 17:41 编辑 
+
+[https://www.youtube.com/watch?v=Fr2raq3ZMWM](https://www.youtube.com/watch?v=Fr2raq3ZMWM)  文化放送总算把这个放出来了。竟然有英语字幕，所以才拖到现在吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl,二期生线下相关:[https://www.youtube.com/watch?v=XSnKNNO3hng](https://www.youtube.com/watch?v=XSnKNNO3hng) 时间按百鬼所说似乎是今天或者明天，结合诗音中午突然发了一个外出推，感觉是今天的可能性很大。
+
+
+-----
+
+####  星の守  
+##### 5767#       发表于 2021-4-19 17:36
+
+
+谁也看不清未来，能做的唯有珍惜眼前
+
+
+-----
+
+####  Map-2  
+##### 5768#       发表于 2021-4-19 17:39
+
+
+乐了，难道家人也是数字厨嘛？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 5769#       发表于 2021-4-19 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987784&amp;ptid=1947500" target="_blank">Kanchiki 发表于 2021-4-19 16:28</a>
+
+发散一下 会不会和家人的争吵就是“你还想做主播做一辈子吗？找个正经工作吧”这种事情 ...</blockquote>
+草啊，除了直播还有多少工作能让高中毕业厂妹挣这么多钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5770#       发表于 2021-4-19 19:11
+
+
+去外面住作息乱又和家人闹矛盾，身体又弄坏了，赶紧找个野男人照顾自己捏
+
+
+-----
+
+####  doushike  
+##### 5771#       发表于 2021-4-19 19:17
+
+
+有一个工作，但我不敢说<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 5772#       发表于 2021-4-19 19:17
+
+
+那不如找我吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5773#       发表于 2021-4-19 19:22
+
+
+盲猜会是便利店小哥近水楼台先得月<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 5774#       发表于 2021-4-19 19:26
+
+
+ok，马上跑去日本爱知县当便利店小哥<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wwddrte  
+##### 5775#       发表于 2021-4-19 19:30
+
+
+为啥不是快递小哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gikaqi  
+##### 5776#       发表于 2021-4-19 19:34
+
+
+ 本帖最后由 gikaqi 于 2021-4-19 20:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">反正我想夸哥一直在网上陪着我们，不要叫醒我。如果她口中想做的事在将来都实现了，她还会陪着我们吗？但如果一直实现不了，又是件悲伤的事。还是盼着她实现愿望的。
+
+
+心情很复杂。老哥说得对，珍惜眼前是真的。
+
+syl
+
+二期生在小粥牛郎凸待这边冒了个泡。盐水吵死了。夸哥太娘了我要吐了。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 面具13| + 1|情报感谢，等会儿补|
+
+
+查看全部评分
+
+
+-----
+
+####  面具13  
+##### 5777#       发表于 2021-4-19 21:36
+
+
+凸待的二期线下挺欢乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 5778#       发表于 2021-4-20 10:14
+
+
+ 本帖最后由 fangjun96 于 2021-4-20 13:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">二期聚餐了啊，好好好
+
+syl，怎么楼友就这么感伤，真不干了，你还不只能干瞪眼，她走的路是自己的，随她去了虽然这话说的可能挺黑子的，我还是想说：到头来，我们还是连你lin梦想是什么都不知道，我习惯了，随风而去吧，
+
+
+-----
+
+####  gikaqi  
+##### 5779#       发表于 2021-4-20 13:41
+
+
+ 本帖最后由 gikaqi 于 2021-4-20 14:06 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">然后我一想阿夸说她身体和精神上有跟不上的地方，又觉得说想永远看下去什么的太自说自话了。
+
+大家都是打工，可能单纯是为了生活也可能有复杂的理由，但都是在用血汗拿来拼。打工人何苦互相为难。祝天下的打工人都能早日完成个人实现攒够钱过上想过的人生。
+
+说到何苦互相为难，我一直觉得阿夸直播时很能流露同理心。比如常对明天有工作看不了直播的人说晚安和加油、还有“揍飞星期一歌回”这样蕴含鼓励意义的小心思等等。
+
+不光是对社畜和学生，甚至对宅在家里打滚的人也会说加油。都能让人产生一种有在被关心着的暖意，是她吸引我的一个地方。
+
+
+-----
+
+####  星の守  
+##### 5780#       发表于 2021-4-20 13:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 5781#       发表于 2021-4-20 18:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5782#       发表于 2021-4-20 18:44
+
+
+承受了这么多无缘无故的恶意
+
+还要努力勉强自己笑着直播
+
+为了观众开心愿意伤害牺牲自己的人
+
+如果这样的人都不算天使 什么算天使
+
+
+-----
+
+####  梅斯之围  
+##### 5783#       发表于 2021-4-20 19:01
+
+
+摸太久都开始发病小作文了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 5784#       发表于 2021-4-20 19:13
+
+
+ 本帖最后由 fangjun96 于 2021-4-20 20:23 编辑 
+
+编辑：我作为半个退圈人，也有点麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 这事情真意难平
+
+
+-----
+
+####  zpy393  
+##### 5785#       发表于 2021-4-20 19:58
+
+
+草，不用太自我感动，说出来的话跟反串似的过于麻了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 5786#       发表于 2021-4-20 19:59
+
+
+🙏🙏🙏
+
+
+-----
+
+####  梅斯之围  
+##### 5787#       发表于 2021-4-20 20:25
+
+
+发了推，昨天二期生玩累了，今天安心睡两觉摸鱼
+
+
+-----
+
+####  面具13  
+##### 5788#       发表于 2021-4-21 19:25
+
+
+ 本帖最后由 面具13 于 2021-4-21 21:57 编辑 
+
+晚上10点播啊，今晚得早睡，明天补录播吧 算了，扛一扛。
+
+
+-----
+
+####  fangjun96  
+##### 5789#       发表于 2021-4-21 21:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">船长救救夸夸
+
+看起来也很微妙
+
+
+-----
+
+####  面具13  
+##### 5790#       发表于 2021-4-21 22:28
+
+
+ 本帖最后由 面具13 于 2021-4-21 22:35 编辑 
+
+夸宝约的店？还找的女生会感兴趣的那种。コミュ障打电话有画面了
+
+LSP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+盐水<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 。なきりさん？？？
+
+
+
+
+-----
+
+####  面具13  
+##### 5791#       发表于 2021-4-21 22:51
+
+
+ 本帖最后由 面具13 于 2021-4-21 22:56 编辑 
+
+这周（最迟月底）视频+告知。
+
+
+感谢夸宝放我睡觉。
+
+
+-----
+
+####  Kanchiki  
+##### 5792#       发表于 2021-4-21 22:56
+
+
+写了一页多的内容……就这些？体感10分钟
+
+
+-----
+
+####  qesto  
+##### 5793#       发表于 2021-4-21 23:14
+
+
+超稀有的杂谈，结果信息量好少
+
+
+      

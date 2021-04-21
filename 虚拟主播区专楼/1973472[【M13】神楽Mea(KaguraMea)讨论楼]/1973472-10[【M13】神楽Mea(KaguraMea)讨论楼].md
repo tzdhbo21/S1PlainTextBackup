@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-21 09:39** 
+> ## **本文件最后更新于2021-04-21 15:47** 
 
 
 
@@ -5787,4 +5787,634 @@ p站运营你放弃吧，没人打钱的<img src="https://static.saraba1st.com/i
 这人是不是傻了啦，跟有唐氏综合征一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                               
+-----
+
+####  时间在我手中  
+##### 14046#       发表于 2021-4-21 17:40
+
+
+ 本帖最后由 时间在我手中 于 2021-4-21 17:43 编辑 
+
+是夜雨厂妹最爱的偷花贼<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+竟然没翻车
+
+
+-----
+
+####  雪风utopia  
+##### 14047#       发表于 2021-4-21 18:20
+
+
+这首是放弃治疗了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14048#       发表于 2021-4-21 18:23
+
+
+ 本帖最后由 时间在我手中 于 2021-4-21 18:43 编辑 
+
+建议埋了，今天宛若车祸现场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+五分钟才杀人，辛苦贵组了，让我看了五分钟狗叫
+
+记者要是退坑了可以把号给人吗
+
+再syl，点到了，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 14049#       发表于 2021-4-21 18:45
+
+
+这几首感觉不经常听到，新歌？
+
+
+-----
+
+####  时间在我手中  
+##### 14050#       发表于 2021-4-21 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51014602&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-4-21 18:45</a>
+
+这几首感觉不经常听到，新歌？</blockquote>
+不是，刚这首是我点的，19年我生日那天唱过，今天没啥新歌的
+
+
+-----
+
+####  2111X  
+##### 14051#       发表于 2021-4-21 19:14
+
+
+姨了姨了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14052#       发表于 2021-4-21 19:23
+
+
+ 本帖最后由 时间在我手中 于 2021-4-21 19:27 编辑 
+
+明天北京时间22时有联动，和haneru的
+
+syl，有人说黄兔子表上没写，下播后我再听听确认一遍，虽然我觉得我应该没听错这句话
+
+
+-----
+
+####  rosevalley46  
+##### 14053#       发表于 2021-4-21 19:26
+
+
+为啥现在和黄兔子联动都要肉猪啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 14054#       发表于 2021-4-21 19:37
+
+
+说不定刚刚line上才定下来的
+
+
+-----
+
+####  古战场亡魂  
+##### 14055#       发表于 2021-4-21 19:37
+
+
+短发版本真好看啊。
+
+
+-----
+
+####  GRMeA104  
+##### 14056#       发表于 2021-4-21 19:44
+
+
+不知道黄兔子搞寄吧蛋,日程表都定好了突然来一手约联动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14057#       发表于 2021-4-21 20:01
+
+
+刚刚那个👂爽死了
+
+
+-----
+
+####  Dualist彩  
+##### 14058#       发表于 2021-4-21 20:26
+
+
+只要猛毒还在，我都不知道猫党要怎样活呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14059#       发表于 2021-4-21 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51015627&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-4-21 20:26</a>
+
+只要猛毒还在，我都不知道猫党要怎样活呀</blockquote>
+差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">刚刚猛毒里面都加了喵喵叫，愚蠢的羊党-1000
+
+
+-----
+
+####  燃烧的石头  
+##### 14060#       发表于 2021-4-21 21:29
+
+
+太媚宅了
+
+
+-----
+
+####  燃烧的石头  
+##### 14061#       发表于 2021-4-21 21:29
+
+
+ 本帖最后由 燃烧的石头 于 2021-4-21 21:31 编辑 
+
+风怒编辑
+
+
+-----
+
+####  Mikumiku831  
+##### 14062#       发表于 2021-4-21 22:37
+
+
+媚宅时间 有点顶不住<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kenjjj  
+##### 14063#       发表于 2021-4-21 22:37
+
+
+太媚宅了，受不了了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14064#       发表于 2021-4-21 22:37
+
+
+ 本帖最后由 路人庚 于 2021-4-21 22:43 编辑 
+
+不得不说看到这个，满脑子都是万华镜5的那个莲华脸部特写动图cg（
+
+
+好吧4代也有，这个↓
+
+<img src="https://img.saraba1st.com/forum/202104/21/224259psfhtr6kzfjwhp3h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (42.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 22:42 上传
+
+
+-----
+
+####  A2014720  
+##### 14065#       发表于 2021-4-21 22:40
+
+
+ 本帖最后由 A2014720 于 2021-4-21 22:41 编辑 
+
+这个真的有点难顶
+
+
+<img src="https://img.saraba1st.com/forum/202104/21/224017fqq34aqq3bmpm8an.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-04-21 223950.png</strong> (58.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 22:40 上传
+
+
+<img src="https://p.sda1.dev/1/8573317cfe071f1dc92d22a52d236652/6d95a5199f9b51b3.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 14066#       发表于 2021-4-21 22:40
+
+
+井皮再见了<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14067#       发表于 2021-4-21 22:45
+
+
+<img src="https://img.saraba1st.com/forum/202104/21/224457ri5h2epit4levss9.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-04-21 224422.png</strong> (66.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 22:44 上传
+
+
+nmd，wsl
+
+
+-----
+
+####  路人庚  
+##### 14068#       发表于 2021-4-21 22:45
+
+
+草，回马枪
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 掉头学姐| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  掉头学姐  
+##### 14069#       发表于 2021-4-21 22:46
+
+
+幸亏看了眼m楼
+
+
+-----
+
+####  离心  
+##### 14070#       发表于 2021-4-21 22:47
+
+
+太媚宅了！
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 14071#       发表于 2021-4-21 22:48
+
+
+这波之后还有井皮党吗？
+
+
+-----
+
+####  十九号大侠  
+##### 14072#       发表于 2021-4-21 22:48
+
+
+太姨了
+
+
+-----
+
+####  whbstc4545  
+##### 14073#       发表于 2021-4-21 22:48
+
+
+太媚宅了<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">能多来点吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 14074#       发表于 2021-4-21 22:48
+
+
+这就是姨的力量吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  295405468  
+##### 14075#       发表于 2021-4-21 22:48
+
+
+媚宅好啊  我有这种世俗的欲望  偶尔来几次
+
+
+-----
+
+####  TomDu  
+##### 14076#       发表于 2021-4-21 22:48
+
+
+可恶啊坏女人
+
+
+-----
+
+####  A2014720  
+##### 14077#       发表于 2021-4-21 22:49
+
+
+姨化之力恐怖如斯，我彻底拜倒在她的石榴裙下了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/21/224927i8mleg1crr17k8c1.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-04-21 224740.png</strong> (38.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 22:49 上传
+
+
+-----
+
+####  时雨rain  
+##### 14078#       发表于 2021-4-21 22:49
+
+
+好，回去就补最后这一段<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 14079#       发表于 2021-4-21 22:49
+
+
+这就是姨吗？多来点
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  时间在我手中  
+##### 14080#       发表于 2021-4-21 22:49
+
+
+不知道说什么好
+
+只能说如果这没人激光，我会很失望
+
+
+-----
+
+####  草牛  
+##### 14081#       发表于 2021-4-21 22:50
+
+
+**，没看到回马枪，我像个🤡一样
+😭😭😭
+
+
+-----
+
+####  A2014720  
+##### 14082#       发表于 2021-4-21 22:50
+
+
+不知道说什么好，以后一枪一个#皮党
+
+
+-----
+
+####  离心  
+##### 14083#       发表于 2021-4-21 22:51
+
+
+ 本帖最后由 离心 于 2021-4-21 22:52 编辑 
+
+艹本来对lol没意思就没看的，结果最后点进去才发现如此媚宅。可恶啊！<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  295405468  
+##### 14084#       发表于 2021-4-21 22:51
+
+
+asmr已经不远了
+
+
+-----
+
+####  路人庚  
+##### 14085#       发表于 2021-4-21 22:53
+
+
+<img src="https://img.saraba1st.com/forum/202104/21/225211n5vwvho0w008fmms.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (1.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 22:52 上传
+
+
+看到个弹幕想起来这是一首老歌的歌词
+
+
+然后搜出来了（
+
+
+【影视金曲】金学峰 - 《心爱》又名《醉春风》2003年电视剧《倚天屠龙记》主题曲
+
+[https://www.bilibili.com/video/BV1A4411s7WR](https://www.bilibili.com/video/BV1A4411s7WR)
+
+
+old guy是真的多（
+
+
+-----
+
+####  azccc52  
+##### 14086#       发表于 2021-4-21 22:53
+
+
+麻姨已经不远了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  离心  
+##### 14087#       发表于 2021-4-21 22:54
+
+
+阿咩你都如此媚宅了，可以解放tc吗？想看
+
+
+-----
+
+####  A2014720  
+##### 14088#       发表于 2021-4-21 22:55
+
+
+官组要是把今天最后一段剪出来，我对官组之前的梁木尽数消去<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 14089#       发表于 2021-4-21 22:56
+
+
+我也康复了，毕竟太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  iuhehc  
+##### 14090#       发表于 2021-4-21 22:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  兔耳僵尸  
+##### 14091#       发表于 2021-4-21 23:05
+
+
+没看，血亏<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14092#       发表于 2021-4-21 23:23
+
+
+好，官组剪出来了，以前的事我就不提了<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+https://b23.tv/e9Wopl
+
+
+-----
+
+####  weiweiEX  
+##### 14093#       发表于 2021-4-21 23:23
+
+
+发这么快，假的吧
+
+
+-----
+
+####  Cushaw  
+##### 14094#       发表于 2021-4-21 23:24
+
+
+叔叔的任务罢了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 14095#       发表于 2021-4-21 23:26
+
+
+这东西十分钟就能做完，我说过了，有些东西他们不肯做而已
+
+下载录播五分钟，导出几分钟，然后过审，没你想的这么难，最简单的，这都不用翻译
+
+
+-----
+
+####  时雨rain  
+##### 14096#       发表于 2021-4-21 23:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">麻姨麻姨
+
+
+-----
+
+####  JY要塞  
+##### 14097#       发表于 2021-4-21 23:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">那么给肉体厨喂饭提上日程了吗
+
+
+-----
+
+####  时间在我手中  
+##### 14098#       发表于 2021-4-21 23:32
+
+
+下周听她说很忙，有亿万分之一的可能性给肉体厨喂饭嗷<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14099#       发表于 2021-4-21 23:38
+
+
+下周很忙指为下海做准备<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 14100#       发表于 2021-4-21 23:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">等明天完整档出来之后多看几遍
+
+拿着手机全屏看都快顶不住了 应该放大电视上看<img src="https://static.saraba1st.com/image/smiley/face2017/056.gif" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  A2014720  
+##### 14101#       发表于 2021-4-21 23:43
+
+
+不想操めあ的人都有病<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+                             
