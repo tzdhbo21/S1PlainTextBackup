@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-15 17:15** 
+> ## **本文件最后更新于2021-04-21 05:44** 
 
 
 
@@ -155,7 +155,10 @@ HoloEN/ID的日历，有专门的人负责更新。[https://stream-calendar.verc
 ####  赞美太阳  
 ##### 2#       发表于 2021-2-25 17:03
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+绝了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
 -----
@@ -1363,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_wp4a7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_g3iR7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -6175,9 +6178,10 @@ axeson</blockquote>
 ##### 388#       发表于 2021-4-15 22:00
 
 
- 本帖最后由 wiig 于 2021-4-15 23:08 编辑 
+ 本帖最后由 wiig 于 2021-4-16 01:49 编辑 
 
-打岔的时候Calli提到未来要玩一个TRPG，下周(?)会开捏角色直播TRPG直播在五月中旬
+打岔的时候Calli提到未来要玩一个TRPG，下周(?)会开捏角色直播
+TRPG直播在五月中旬
 
 
 -----
@@ -6218,4 +6222,531 @@ Calli声音好放松好软<img src="https://static.saraba1st.com/image/smiley/fa
 下周没有意外的话联动内容是it takes two<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
 
 
-                                    
+-----
+
+####  wiig  
+##### 393#       发表于 2021-4-16 01:27
+
+
+ 本帖最后由 wiig 于 2021-4-16 01:46 编辑 
+
+Ollie会限
+以下内容需要积分高于 6000 才可浏览
+
+本月是斋戒月，所有ID成员的直播都要遵守一个时间表，很多直播因此提前或者重叠
+觉得自己失眠了，在考虑吃安眠药，太累了很难睡着
+尽管觉得大家都是这样想的，因为自己太害羞，所以和木口的成员并不亲密，不想非常频繁的向ID/EN要求合作，觉得自己会打扰他们
+想和所有人关系都变好，因为在上学时没有其他朋友，知道孤独是什么感觉
+觉得和Ame和Moona比较亲近，但不想叫Ame "朋友"，因为怕友谊（和所有前辈而不仅仅是Ame）是单方面的。想谨慎地和Calli交往，这也是在联动里很被动的原因
+有很多联动计划，最担心的事情是如果大家不喜欢我做的东西怎么办
+参加了ID一期的试镜，但是没有被录取。她还参加了其他六个地方的面试，在第一次试镜的时候认识了ID经理，第二次来的时候他们玩得很开心
+会有一个非常大的联动企划，iofi正在帮忙，不是apex
+觉得ID3期快要来了，害怕当ID3期、vsinger、EN二期出道的时候自己被叫前辈，希望关注度留在ID二期身上。她觉得当后辈出道时候一定会被拿来比较，如果ID3期超过自己怎么办？高兴同时又很紧张
+很多现实生活里的朋友已经在帮她规划3D时要做的内容，但是Ollie不觉得会有3D，她觉得最快在2022年初，但是官方没有消息。自己非常想在3D的时候和coco斗舞
+chat问：新衣服呢
+Ollie眨了几次眼，我希望能回答你的问题，但是这个夏天不行，项目还在推进中。希望新衣服e-girl风，带点锁链啊什么的
+在做自己的原创曲，无伴奏唱了一小段
+SC提到Calli最开始和Ollie的心态一样，Ollie说会去找Calli聊一聊
+对chat说 你说你们很爱我，其实我很爱你们，所以我才会在推特上关注你们所有人
+
+
+-----
+
+####  smy20011  
+##### 394#         楼主| 发表于 2021-4-16 11:09
+
+
+鲨鱼这直播，敏感画面的时候一个**的Q版鲨鱼弹出来，吓一大跳
+
+
+-----
+
+####  wiig  
+##### 395#       发表于 2021-4-16 17:51
+
+
+抱枕实物图<img src="https://p.sda1.dev/1/c1c6132bb4d18ab4e01afb272889fc20/IMG_CMP_245595923.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/5b01d00a4caac3e1dcbddaa3a900d5dc/IMG_CMP_38154147.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/decbcb79ab0a061570ea8e4b843e4266/IMG_CMP_156297174.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 396#       发表于 2021-4-16 21:19
+
+
+<img src="https://p.sda1.dev/1/81f4de1ed183c7a22520f3ae8f091daa/IMG_CMP_21543442.jpeg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">Kiara说，Calli的guh调换顺序就是hug
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  smy20011  
+##### 397#         楼主| 发表于 2021-4-17 09:03
+
+
+今天华鲨取消，没加会员，只能看别人repo过瘾。。
+
+
+-----
+
+####  wiig  
+##### 398#       发表于 2021-4-17 09:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50964376&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-17 09:03</a>
+
+今天华鲨取消，没加会员，只能看别人repo过瘾。。</blockquote>
+[20210416] [UNARCHIVED] sing sing sing [Gawr Gura Ch. hololive-EN](i5olykjiyuY) 
+[https://nyaa.si/view/1373173](https://nyaa.si/view/1373173)
+
+
+-----
+
+####  wiig  
+##### 399#       发表于 2021-4-17 09:37
+
+
+歌单：
+
+1) Daniel Powter - Bad Day
+
+2) Post Malone ft. Swae Lee - Sunflower
+
+3) Avril Lavigne - Sk8er Boi
+
+4) Miley Cyrus - The Climb
+
+5) Billy Straus - Little Einsteins Theme Song (Zooming Through the Sky)
+
+6) Anna Kendrick - Cups
+
+7) Frank Sinatra - Come Fly with Me
+
+8) Frank Sinatra - Strangers In The Night
+
+9) Billie Eilish - Ocean Eyes
+
+10) Billie Eilish - idontwannabeyouanymore
+
+11) Plain White T's - Hey There Delilah
+
+12) Train - Mermaid
+
+13) Boney M - Rasputin
+
+14) Owl City - Fireflies
+
+15) Bonnie Tyler - Holding Out For A Hero
+
+16) Tatsuro Yamashita - Fragile
+
+17) The Beatles - Here Comes The Sun
+
+18) The Beatles - Let It Be
+
+19) OneRepublic - Counting Stars
+
+20) Billie Eilish - when the party's over
+
+21) Billie Eilish - Lovely
+
+22) Keiichi Okabe - Song of the Ancients ~ Devola
+
+23) Idina Menzel - Defying Gravity
+
+24) Phoebe Bridgers - The Moon Song
+
+25) Lea Salonga - Reflection
+
+26) Michael Bolton - I Can Go The Distance
+
+27) Idina Menzel, AURORA - Into the Unknown
+
+28) Alan Menken - A Whole New World
+
+29) Macross Delta x Earth, Wind and Fire - When the Rune Sparkles in September (Piano ver.)
+
+30) Leigh Harline - When You Wish Upon A Star
+
+31) Kitajima Tarou - Unravel
+
+32) Kitajima Tarou - Glassy Sky (Sung by Donna Burke)
+
+33) KANA-BOON - Silhouette
+
+
+-----
+
+####  wiig  
+##### 400#       发表于 2021-4-17 16:20
+
+
+db们做的马赛克拼贴成品，我也没看懂原理是啥，专辑拼色？<img src="https://p.sda1.dev/1/c03b5e11135c3af2d9c20ae533ce660b/IMG_CMP_120624266.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 401#       发表于 2021-4-17 23:19
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/231909g7czg6gp1r24p40o.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (1.02 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 23:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/231917ctkyol5skhystgch.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (1.33 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 23:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/231927qz9b9pln5db5d0l5.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (1.5 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 23:19 上传
+
+
+[https://twitter.com/aoisaka77/status/1383437122770636804](https://twitter.com/aoisaka77/status/1383437122770636804)
+
+
+-----
+
+####  wiig  
+##### 402#       发表于 2021-4-18 22:44
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/224411kwnnip63z0vixubc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (247.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 22:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/224419epdn2tk092daqs2a.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (228.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 22:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/224427albhx3w3o54clpoc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (254.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 22:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/224437jxnerqyqmpybz9yr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (206.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 22:44 上传
+
+
+-----
+
+####  smy20011  
+##### 403#         楼主| 发表于 2021-4-19 01:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980444&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-18 22:44</a></blockquote>
+各种邪教CP
+
+
+-----
+
+####  wiig  
+##### 404#       发表于 2021-4-19 02:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981530&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-19 01:36</a>
+各种邪教CP</blockquote>
+还能更乱
+<img src="https://p.sda1.dev/1/083744159ac22f76226220db9c96f280/IMG_CMP_111807678.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  某穆克拉  
+##### 405#       发表于 2021-4-19 02:20
+
+
+好！贴成一锅粥！！
+
+
+-----
+
+####  wiig  
+##### 406#       发表于 2021-4-19 07:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981665&amp;ptid=1989758" target="_blank">某穆克拉 发表于 2021-4-19 02:20</a>
+好！贴成一锅粥！！</blockquote>
+好贴
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 407#       发表于 2021-4-19 13:27
+
+
+sc向jchad求婚，回应是what a g
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 408#       发表于 2021-4-19 13:39
+
+
+<img src="https://p.sda1.dev/1/89b3afdbc6b698ee5ee4765a9782a8e8/IMG_CMP_211467918.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 409#       发表于 2021-4-19 16:30
+
+
+<img src="https://p.sda1.dev/1/085b5129c6ecfdd28fa9e3d375186723/IMG_CMP_222893703.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 410#       发表于 2021-4-19 23:04
+
+
+<img src="https://p.sda1.dev/1/3561ce68a2aafe2b45c78ff51483404a/IMG_CMP_145651106.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 411#       发表于 2021-4-19 23:21
+
+
+How does ina go for a walk?
+<img src="https://p.sda1.dev/1/c4b76673dd8ef8c3cbc13ad4213503f8/1384152195914878988.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  NBXX  
+##### 412#       发表于 2021-4-19 23:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50967551&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-17 16:20</a>
+
+db们做的马赛克拼贴成品，我也没看懂原理是啥，专辑拼色？
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S ...</blockquote>
+应该是用AndreaMosaic做的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  smy20011  
+##### 413#         楼主| 发表于 2021-4-20 03:53
+
+
+<img src="https://img.saraba1st.com/forum/202104/20/035259c2ry4y7cm8m7cgyn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EzDTP8fXMAEXMLV.jpeg</strong> (715.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 03:52 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/20/035302hyy50yn65a3sv5zn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>EzDTRF1XMAIlGEk.jpeg</strong> (866.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 03:53 上传
+
+
+-----
+
+####  smy20011  
+##### 414#         楼主| 发表于 2021-4-20 11:02
+
+
+Ina MH等级7。。。游戏废人
+
+
+-----
+
+####  wiig  
+##### 415#       发表于 2021-4-20 11:05
+
+
+takamori的孩子clara
+<img src="https://p.sda1.dev/1/4bc28ec7cd349004c6a758a817d47432/IMG_CMP_121690452.jpeg" referrerpolicy="no-referrer">
+
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 416#       发表于 2021-4-20 14:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">Kiara回家久了口音都稍稍变了，是每天说德语的原因吗
+
+
+-----
+
+####  wiig  
+##### 417#       发表于 2021-4-20 18:20
+
+
+<img src="https://img.saraba1st.com/forum/202104/20/182005ba8dpnqs8mxduxsg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (191.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 18:20 上传
+
+
+Clara的fa越来越多了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 418#       发表于 2021-4-20 19:01
+
+
+<img src="https://img.saraba1st.com/forum/202104/20/190122orcfwpg66ycw6iyr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (78.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 19:01 上传
+
+
+-----
+
+####  wiig  
+##### 419#       发表于 2021-4-21 02:11
+
+
+<img src="https://p.sda1.dev/1/65c80d6370e5a36d8afedb4ab4e4e409/IMG_CMP_162322823.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 420#       发表于 2021-4-21 08:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51002203&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-20 18:20</a>
+
+Clara的fa越来越多了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202104/21/081654jn5ecn7mn22njncu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (270.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 08:16 上传
+
+
+转型图楼
+
+
+
+
+-----
+
+####  smy20011  
+##### 421#         楼主| 发表于 2021-4-21 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51007437&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-21 08:17</a>
+
+转型图楼</blockquote>
+女儿是官设么？
+
+
+                                   
