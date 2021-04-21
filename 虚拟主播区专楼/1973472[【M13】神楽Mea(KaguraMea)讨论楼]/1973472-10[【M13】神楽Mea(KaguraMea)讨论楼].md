@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-20 12:57** 
+> ## **本文件最后更新于2021-04-21 04:50** 
 
 
 
@@ -2214,10 +2214,7 @@ syl，快进到《同好会动了官组的蛋糕》<img src="https://static.sara
 ####  缺陷电气杨永信  
 ##### 13713#       发表于 2021-4-17 18:34
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">官组这是没招到多少人吗居然又发了一遍招人动态
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -2340,10 +2337,7 @@ syl，快进到《同好会动了官组的蛋糕》<img src="https://static.sara
 ####  缺陷电气杨永信  
 ##### 13726#       发表于 2021-4-17 20:24
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">浴血泰迪是吧
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3484,11 +3478,7 @@ mk2就像那个，鱼篓里的鲶鱼，能让一群快死的鱼保持活力
 ####  缺陷电气杨永信  
 ##### 13837#       发表于 2021-4-19 10:57
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我还挺想看嘉心糖跟连体人碰一碰的
-结果就这<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5164,4 +5154,421 @@ https://b23.tv/z0ScBa
 这个声线帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-                                 
+-----
+
+####  Joffre✔  
+##### 13984#       发表于 2021-4-20 21:23
+
+
+虚拟区运营怎么连转播都宣传的 是不是有天狗混进b站运营了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kenjjj  
+##### 13985#       发表于 2021-4-20 21:25
+
+
+叔叔怎么突然宣传你麻了，感到很害怕很不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 13986#       发表于 2021-4-20 21:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是你麻被睡了，还搁这淡定呢
+
+
+-----
+
+####  蔵女  
+##### 13987#       发表于 2021-4-20 21:27
+
+
+麻了，我害怕了
+
+
+-----
+
+####  路人庚  
+##### 13988#       发表于 2021-4-20 21:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，所以你咩姐这几天说的卡类皮就是线下见过面的那位阿b运营桑
+
+
+-----
+
+####  JY要塞  
+##### 13989#       发表于 2021-4-20 21:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来运营桑也是坦克民
+
+
+-----
+
+####  草牛  
+##### 13990#       发表于 2021-4-20 21:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈的破楼
+
+
+-----
+
+####  rosevalley46  
+##### 13991#       发表于 2021-4-20 21:36
+
+
+说实话转播都推是有点怪的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13992#       发表于 2021-4-20 21:36
+
+
+别恶心我<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 13993#       发表于 2021-4-20 21:46
+
+
+你麻麻的，清唱红莲华无缝接amy是吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hjcxiaowo  
+##### 13994#       发表于 2021-4-20 22:03
+
+
+会不会是阿B虚拟区是有业绩了 都几个月了还没有个百万粉 想想办法帮你麻冲点业绩？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 13995#       发表于 2021-4-20 22:06
+
+
+小麻被叔叔睡了，我破防了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 13996#       发表于 2021-4-20 22:10
+
+
+那是不是能证明麻麻长的还算过得去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 13997#       发表于 2021-4-20 22:12
+
+
+批站扫楼…不，批站xin爱视频在哪
+
+
+-----
+
+####  elect  
+##### 13998#       发表于 2021-4-20 22:21
+
+
+没有扫楼，只有扫墓视频，没在清明放出来亏了
+
+
+-----
+
+####  stageKK  
+##### 13999#       发表于 2021-4-20 22:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">不安desu，为何唐突强推我的咩咩
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 14000#       发表于 2021-4-20 22:36
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  时间在我手中  
+##### 14001#       发表于 2021-4-20 22:40
+
+
+今天唱的凑合吧，星光巡游这几首不错
+
+
+-----
+
+####  rosevalley46  
+##### 14002#       发表于 2021-4-20 22:41
+
+
+冲业绩不去找拉夫型特供yhm去找她怎么可能,风口浪尖的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+姑且当作好事吧
+
+
+草,突然打了个哈欠
+
+
+-----
+
+####  时间在我手中  
+##### 14003#       发表于 2021-4-20 22:44
+
+
+唐突新宝岛，臭女人上一秒还说不唱的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 14004#       发表于 2021-4-20 22:57
+
+
+图转群<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/20/225714e7mi9oa55iaw5fom.png" referrerpolicy="no-referrer">
+
+
+<strong>-2ad89b565d904ec2.png</strong> (17.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-20 22:57 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 缺陷电气杨永信| + 1|欢乐多|
+| 素人不相识| + 1|正在打以撒看咩的我乐着了|
+
+
+查看全部评分
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 14005#       发表于 2021-4-20 23:06
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  295405468  
+##### 14006#       发表于 2021-4-20 23:11
+
+
+这老麻子味 爱了爱了
+
+
+-----
+
+####  时间在我手中  
+##### 14007#       发表于 2021-4-21 09:00
+
+
+臭女人昨晚下播前说今天还播，希望，也许，可能来点游戏或者杂谈吧<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 14008#       发表于 2021-4-21 09:35
+
+
+毛线，99%继续唱歌
+
+
+-----
+
+####  追风小星星  
+##### 14009#       发表于 2021-4-21 09:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14010#       发表于 2021-4-21 09:40
+
+
+就算要唱歌能来次声嘶力竭的术曲歌回吗<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">吸血鬼练了快两周了让我听听成果呜呜
+
+
+
+
+-----
+
+####  yywzjsw  
+##### 14011#       发表于 2021-4-21 12:06
+
+
+昨晚连唱4小时，是不是才睡下，然后晚上起来播一下吃饭tc，在歌回一下，之后后天回家
+
+
+-----
+
+####  Mikumiku831  
+##### 14012#       发表于 2021-4-21 12:20
+
+
+今晚9点LOL 希望能开动捕
+
+
+-----
+
+####  时雨rain  
+##### 14013#       发表于 2021-4-21 12:21
+
+
+b限就lol什么定番<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 14014#       发表于 2021-4-21 12:22
+
+
+本刀斯林听听怪叫还是挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14015#       发表于 2021-4-21 12:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">有脱衣lol吗
+
+
+-----
+
+####  rosevalley46  
+##### 14016#       发表于 2021-4-21 12:28
+
+
+没有,只有脑溢血lol
+
+
+-----
+
+####  A2014720  
+##### 14017#       发表于 2021-4-21 12:29
+
+
+脱衣是要被封直播间的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14018#       发表于 2021-4-21 12:32
+
+
+害怕了xdm，我高呼不可战胜<img src="https://p.sda1.dev/1/51ae037824ddffe05f534bb6d78f4cc8/-5e5e2d835092e355.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14019#       发表于 2021-4-21 12:33
+
+
+ 本帖最后由 A2014720 于 2021-4-21 12:35 编辑 
+
+p站运营你放弃吧，没人打钱的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+脑死b限lol，来点人车不上心啊
+
+
+-----
+
+####  kenjjj  
+##### 14020#       发表于 2021-4-21 12:36
+
+
+她刚换了LOL联名外设，不打LOL岂不是心痒痒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14021#       发表于 2021-4-21 12:37
+
+
+你麻睡运营家了吧😨
+
+
+-----
+
+####  时雨rain  
+##### 14022#       发表于 2021-4-21 12:38
+
+
+看这排序老批家人，重返批家指日可待
+
+
+-----
+
+####  A2014720  
+##### 14023#       发表于 2021-4-21 12:39
+
+
+剃须捡到麻麻？不对按之前说的不应该是剃须捡到官组壬吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哦我懂了天天旧皮熟肉是要向批家宣誓忠诚？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14024#       发表于 2021-4-21 12:42
+
+
+ 本帖最后由 时间在我手中 于 2021-4-21 12:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51010382&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-21 12:39</a>
+剃须捡到麻麻？不对按之前说的不应该是剃须捡到官组壬吗，那你官组能出几个新皮熟肉嘛
+
+哦我 ...</blockquote>
+说起来他们组是不是那个全熟之后组号一个新皮切片都没有<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">昨天还发了个去年八月的腊肉就离谱。
+不会全丢给那个虚拟区运营投稿了8<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+正好看了眼同好会新剪辑。挺有创意的，只是个人觉得也许火车声加点字幕会更好一点？
+
+反正新皮投稿我寻思同好会那边都有几个了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">官组不会连一个都拿不出吧，人剪的不挺好的
+招人成果好歹来点声音啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+                                
