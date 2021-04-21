@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-20 09:39** 
+> ## **本文件最后更新于2021-04-21 09:41** 
 
 
 
@@ -5444,4 +5444,252 @@ wys虽然确实有时候病的不轻，但是那次可没发病，他那年年�
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-                                  
+-----
+
+####  alucardcz  
+##### 78466#       发表于 2021-4-20 17:43
+
+
+忘记今天还有灵衣。
+
+
+贞德这摸的透彻　脸都崩了
+
+酒吞这不仔细看还以为怀孕了。。。。。。。。
+
+
+-----
+
+####  areklose  
+##### 78467#       发表于 2021-4-20 19:13
+
+
+所以有些是不是会不做灵衣，直接做新卡。否则那么轮换up有灵衣这几个吗。。。
+
+
+-----
+
+####  exiaexa  
+##### 78468#       发表于 2021-4-20 19:23
+
+
+真就永远不要相信武内
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+顺便黑枪呆这个强化除了逼格提升意外有啥用，对宝石翁够了的0提升
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78469#       发表于 2021-4-20 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51002872&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-4-20 19:23</a>
+
+真就永远不要相信武内</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实爬塔的时候对我这种没满破宝石的应该有用 然而TMD爬塔早过了 而且这次生病爬塔活动我给彻底鸽了
+
+
+-----
+
+####  白金口袋  
+##### 78470#       发表于 2021-4-20 19:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51001655&amp;ptid=1085254" target="_blank">eden_hazard 发表于 2021-4-20 03:34</a>
+
+贞德这外骨骼看得真让人难受
+
+
+—— 来自 S1Fun</blockquote>
+反过来说这外骨骼要是没了就认不出来了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smdzh2  
+##### 78471#       发表于 2021-4-20 19:40
+
+
+草，黑枪呆是真的没想到，魔放延长后可以打2面
+
+武内是不是小时候脑子被驴踢了，对马蹄铁执着的不行<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哪怕你复制粘贴一下街机那套礼服都好过摸鱼
+
+下周还剩最后两套灵衣，求求你把黑贞1.5礼服实装顺便改模吧
+
+
+-----
+
+####  漆黑之花  
+##### 78472#       发表于 2021-4-20 19:41
+
+
+其实这些出新灵衣的会不会顺便改模？不然以后改模不更麻烦
+
+
+-----
+
+####  alucardcz  
+##### 78473#       发表于 2021-4-20 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51003051&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-4-20 19:40</a>
+
+草，黑枪呆是真的没想到，魔放延长后可以打2面
+
+
+武内是不是小时候脑子被驴踢了，对马蹄铁执着的不行 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">武内又不是第1次了 习惯了
+
+
+-----
+
+####  smdzh2  
+##### 78474#       发表于 2021-4-20 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51003100&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-20 20:46</a>
+武内又不是第1次了 习惯了</blockquote>
+这么看lily简直是社长最后的良心<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78475#       发表于 2021-4-20 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51003337&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-4-20 20:08</a>
+
+这么看lily简直是社长最后的良心</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁都开始怀疑武内这人压根就不存在  我觉得很合理（
+
+
+-----
+
+####  eyeego  
+##### 78476#       发表于 2021-4-20 23:16
+
+
+这套已经不止是摸鱼了 上色都一塌糊涂 是不是小山又掀桌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真红眼教授  
+##### 78477#       发表于 2021-4-21 10:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51003380&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-20 20:12</a>
+
+隔壁都开始怀疑武内这人压根就不存在  我觉得很合理（</blockquote>
+TM社臆造出来的学习型AI<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smdzh2  
+##### 78478#       发表于 2021-4-21 11:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51003380&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-20 21:12</a>
+隔壁都开始怀疑武内这人压根就不存在  我觉得很合理（</blockquote>
+被犯人X顶替，然后犯人X威逼利诱蘑迫使蘑菇小山苍月一伙人协助自己制造武内还存在的迹象<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  都谷捻柏  
+##### 78479#       发表于 2021-4-21 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51003380&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-04-20 20:12:14</a>
+隔壁都开始怀疑武内这人压根就不存在  我觉得很合理（</blockquote>他们思考方式就不对，明明是武内根本不动手。其他人用武内画的旧线稿拼出新图然后全靠后期，所以我们看到的就是每次都是那些姿势。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  阿提拉  
+##### 78480#       发表于 2021-4-21 17:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">村姑那垃圾技能终于强化了
+
+
+
+
+-----
+
+####  khxooo  
+##### 78481#       发表于 2021-4-21 17:03
+
+
+果然是长草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78482#       发表于 2021-4-21 17:15
+
+
+噗。继续拖
+
+
+-----
+
+####  exiaexa  
+##### 78483#       发表于 2021-4-21 17:15
+
+
+卧槽海伦娜这个群20+自己30有点猛的
+
+犹豫要不要开11羁绊了
+
+
+大老婆还是继续暖床吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kulanyee  
+##### 78484#       发表于 2021-4-21 17:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sesuna  
+##### 78485#       发表于 2021-4-21 17:24
+
+
+牛B,UP有份,强化没份,酒吞废案英灵实锤<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78486#       发表于 2021-4-21 17:25
+
+
+ 本帖最后由 alucardcz 于 2021-4-21 17:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51013624&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-4-21 17:15</a>
+
+卧槽海伦娜这个群20+自己30有点猛的
+
+犹豫要不要开11羁绊了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贞师傅还是有机会用的　这个强化和政师傅一起也算有一丝用（
+
+
+话说前段时间我好像用过贞师傅。。那个黑胡子本？
+
+
+                                 
