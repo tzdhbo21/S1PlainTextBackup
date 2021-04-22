@@ -1,0 +1,4683 @@
+> ## **本文件最后更新于2021-04-22 02:01** 
+
+
+
+-----
+
+####  HGCG  
+##### 1#       楼主       发表于 2020-10-6 21:39
+
+
+ 本帖最后由 HGCG 于 2021-4-3 08:11 编辑 
+
+STAFF
+
+监督：高橋敦史
+
+系列构成・脚本：円城塔
+
+角色设计原案：加藤和恵
+
+怪兽设计：山森英司
+
+音乐：沢田完
+
+动画制作：BONES x Orange ​​​​
+<img src="http://wx3.sinaimg.cn/mw1024/e7cbae74ly1gjfx3a5ssvj20p00dw46u.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74ly1gjfx3a25lqj20xc0iftim.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/e7cbae74ly1gjfx3a5b5pj20rs0jm48i.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  苏联笑话  
+##### 2#       发表于 2020-10-6 21:58
+
+
+新企划吗？还以为庵野秀明或老虚又有新动作了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我是地雷我自豪  
+##### 3#       发表于 2020-10-6 23:05
+
+
+真哥斯拉2吧，老虚还是算了吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+PS:就我看不到LZ的图吗
+
+
+-----
+
+####  HGCG  
+##### 4#         楼主| 发表于 2020-10-6 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48971784&amp;ptid=1963627" target="_blank">我是地雷我自豪 发表于 2020-10-6 23:05</a>
+
+真哥斯拉2吧，老虚还是算了吧
+
+
+PS:就我看不到LZ的图吗</blockquote>
+你是不是用了CHROME然后设置不显示不安全的内容？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 我是地雷我自豪| + 1|原来如此谢谢！|
+
+
+查看全部评分
+
+
+-----
+
+####  hsyg  
+##### 5#       发表于 2020-10-6 23:36
+
+
+上一个牙口这么好的哥总是……
+
+
+-----
+
+####  团结的腹肌  
+##### 6#       发表于 2020-10-7 00:12
+
+
+咱只想看大怪兽打大怪兽，别又是环保主题吧。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Austaras  
+##### 7#       发表于 2020-10-7 00:18
+
+
+哪部哥斯拉是环保主题？痞斯拉是（日本）战狼主题，虚斯拉是原始主义和续l命主题，莫非说的是美版？那大怪兽打架也没少你啊
+
+
+-----
+
+####  byisme001  
+##### 8#       发表于 2020-10-7 00:38
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  dxwyyy  
+##### 9#       发表于 2020-10-7 01:50
+
+
+<blockquote>Austaras 发表于 2020-10-7 00:18
+哪部哥斯拉是环保主题？痞斯拉是（日本）战狼主题，虚斯拉是原始主义和续l命主题，莫非说的是美版？那大怪 ...</blockquote>
+对黑多拉那部电影
+
+
+-----
+
+####  akaibell  
+##### 10#       发表于 2020-10-7 06:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48972083&amp;ptid=1963627" target="_blank">HGCG 发表于 2020-10-6 23:34</a>
+
+你是不是用了CHROME然后设置不显示不安全的内容？</blockquote>
+帮大忙了！楼主好哥哥
+
+
+2020年的chrome只能一个网站一个网站的设置好坑
+
+
+-----
+
+####  达达葱2  
+##### 11#       发表于 2020-10-7 11:09
+
+
+不看好
+
+预感要雷
+
+
+-----
+
+####  cqc1021  
+##### 12#       发表于 2020-10-7 11:15
+
+
+LZ忽视了重要的一点，这部哥斯拉是Netflix出品，想想铁奥想想日本沉没，躲着走就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  doublehit  
+##### 13#       发表于 2020-10-7 12:01
+
+
+円城塔脚本还是值得期待一下吧
+
+
+-----
+
+####  zikimi  
+##### 14#       发表于 2020-10-7 12:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">网飞网飞
+
+
+-----
+
+####  生哭立拔  
+##### 15#       发表于 2020-10-7 18:09
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  Austaras  
+##### 16#       发表于 2020-10-8 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48973045&amp;ptid=1963627" target="_blank">dxwyyy 发表于 2020-10-7 01:50</a>
+
+对黑多拉那部电影</blockquote>
+这部当然是经典不过我目测楼上没看过
+
+
+-----
+
+####  king520kyo  
+##### 17#       发表于 2020-10-8 16:51
+
+
+网飞 大概率辣鸡玩意 到时候万一能看那就是赚到了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+而且这各种造型不太喜欢大下巴看起来难看死了…
+编剧有点牛逼 感觉设定当年还是可以期待下 剧情不想了
+
+
+-----
+
+####  茴香蚪的马甲  
+##### 18#       发表于 2020-10-8 17:13
+
+
+新闻报道里说的是明年四月放送、网飞独占配信（日本先行），所以我估计这部的模式跟Fate/Apocrypha 以及 Fate/EXTRA Last Encore等名义上的“Netflix Original”是一样的，到时候网飞日本区按照电视台进度每周更新一集，网飞其他区要等完结再全集同时更新（这个之前被欧美月厨吐槽惨了）。当然这只是猜测而已，而且网飞覆盖不到的中国大陆肯定是不可能要等到完结才能看的。
+
+
+-----
+
+####  HGCG  
+##### 19#         楼主| 发表于 2020-10-26 19:54
+
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gk2xncbfjaj20u016agvg.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gk2xnbu4fnj20xc0irmy4.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gk2xnby3m1j20xc0ir76a.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gk2xnbtedvj20xc0irmzi.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Austaras  
+##### 20#       发表于 2020-10-26 20:18
+
+
+看这人设很不妙啊
+
+
+-----
+
+####  LRS2376852435  
+##### 21#       发表于 2020-10-26 20:36
+
+
+艸，这人设，不是银八三三吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  物理毒狗  
+##### 22#       发表于 2020-10-26 21:02
+
+
+网飞就算了，最多不过不失
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Piano-Forest  
+##### 23#       发表于 2020-10-27 11:35
+
+
+PV：[https://m.youtube.com/watch?v=_IFObXJabk4](https://m.youtube.com/watch?v=_IFObXJabk4)
+<img src="https://i.loli.net/2020/10/27/r87QmBDXYftax3v.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  feliznavidad  
+##### 24#       发表于 2020-10-27 11:41
+
+
+我见识少，不过这个人设看起来很舒服，而且骨头社和橘子社联合，应该不会差吧，还挺期待的。看这个要补什么前作吗<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  风鸣弦十郎  
+##### 25#       发表于 2020-10-27 11:49
+
+
+草 这是坂田银时吗
+
+
+-----
+
+####  wlhlz  
+##### 26#       发表于 2020-10-27 11:50
+
+
+这哥斯拉脑袋有点丑，当然痞子版也丑但是实际表现带感，所以还是得看实际内容
+
+
+-----
+
+####  sandro  
+##### 27#       发表于 2020-10-27 12:20
+
+
+人设不错啊
+
+
+-----
+
+####  nekkihs  
+##### 28#       发表于 2020-10-27 12:23
+
+
+ 本帖最后由 nekkihs 于 2020-10-27 12:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=48971784&amp;ptid=1963627" target="_blank">我是地雷我自豪 发表于 2020-10-6 23:05</a>
+
+真哥斯拉2吧，老虚还是算了吧
+
+
+PS:就我看不到LZ的图吗</blockquote>
+之前的怪獸行星不全是老虛的禍 他強烈想寫怪獸大戰打翻天的
+
+
+是那個充滿文青臭的監督靜野孔文不爽怪獸大戰 不爽原子吐息
+
+而東寶上層也腦抽同意不出現怪獸大戰 重點寫各種男女,男男關係糾結
+
+
+-----
+
+####  xingenge  
+##### 29#       发表于 2020-12-9 11:27
+
+
+TVアニメ『#ゴジラSP』#宮本侑芽、#石毛翔弥 はじめ18人のキャスト解禁!
+
+詳細&amp;コメント：[https://godzilla-sp.jp/news/201209_01.html](https://godzilla-sp.jp/news/201209_01.html)
+
+
+▶スタッフ
+
+監督：高橋敦史
+
+シリーズ構成・脚本：円城塔
+
+キャラクターデザイン原案：加藤和恵
+
+キャラクターデザイン：石野聡
+
+怪獣デザイン：山森英司
+
+CGディレクター：池内隆一、越田祐史、鈴木正史
+
+VFXディレクター：山本健介
+
+軍事考証：小柳啓伍
+
+美術デザイン：平澤晃弘
+
+美術監督：横松紀彦
+
+色彩設計：佐々木梓
+
+撮影監督：若林優
+
+編集：松原理恵
+
+音響監督：若林和弘
+
+音楽：沢田完
+
+アニメーション制作：ボンズ×オレンジ
+
+製作：東宝
+
+
+▶キャスト
+
+神野銘：宮本侑芽
+
+有川ユン：石毛翔弥
+
+ペロ2：久野美咲
+
+ユング：釘宮理恵
+
+加藤侍：木内太郎
+
+大滝吾郎：高木渉
+
+金原さとみ：竹内絢子
+
+佐藤隼也：阿座上洋平
+
+山本常友：浦山迅
+
+鹿子行江：小岩井ことり
+
+海建宏：鈴村健一
+
+李桂英：幸田夏穂
+
+マキタ・K・中川：手塚ヒロミチ
+
+ベイラ・バーン（BB）：置鮎龍太郎
+
+リーナ・バーン：小野寺瑠奈
+
+マイケル・スティーブン：三宅健太
+
+ティルダ・ミラー：磯辺万沙子
+
+松原美保：志村知幸
+
+<img src="https://p.sda1.dev/0/75fb17dcb106e6a2b32a178d1b5e5f74/01_神野銘.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/2c5deb7a3a68d59b89de55f3f8a2605b/02_有川ユン.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/c6ed44f600f54c3751479c68cc894600/03_ペロ２.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/8ed0c61eb896b88276b70feba5027783/04_ユング.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/607b2a78e36db12d83e745a9fb5a1a8e/05_加藤侍.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/66a794d0e6758e5f5fb9fae153f5e0b4/06_大滝吾郎.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/f96caacf2631525ef8cf8f818ec9cb95/07_佐藤隼也.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/1b8a78bcf40573e9bc16d2b94cc8f5ad/08_海建宏.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/c9012497fb3ad6201a35c90f17db4f5d/09_ベイラ・バーン.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/af6d6a7df0e650df76812130189ddcd8/10_金原さとみ.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/487ff73204cf828c4531a8d7aada1e47/11_山本常友.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/74a5399e2ad201b28e20786cc959b4c1/12_鹿子行江.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/141fda25e446bddb7299e0aaa20cc45e/13_李桂英.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/cb4daed00f1dd24581e1daeb991bf11b/14_リーナ・バーン.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/fe8bfeedce90b8e5b49cd80077272ed0/15_松原美保.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/ef01bf425f8c27ed3c35651bacb7d7c5/16_マキタ・K・中川.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/2eea6d4b2489ba6f82402f3b4e3d29a3/17_ティルダ・ミラー.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/8f3090893ac751c7ae43d47be5c351d9/18_マイケル・スティーブン.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Piano-Forest  
+##### 30#       发表于 2021-2-2 11:22
+
+
+中文前导预告2：[https://m.youtube.com/watch?v=IZVKXQUkb5M](https://m.youtube.com/watch?v=IZVKXQUkb5M)
+
+
+放送・配信情報（共13集）
+
+2021年4月より、TOKYO MXほかにて放送開始
+
+Netflixにて全世界独占配信（日本先行）
+
+
+
+
+-----
+
+####  songchen_bruce  
+##### 31#       发表于 2021-2-2 11:24
+
+
+骨头社擅长的是手绘作画
+
+橘子社擅长的是3DCG
+
+这俩要怎么配合？风格能统一起来吗？
+
+
+-----
+
+####  songchen_bruce  
+##### 32#       发表于 2021-2-2 11:33
+
+
+<img src="http://wx3.sinaimg.cn/large/e7cbae74gy1gk2xnby3m1j20xc0ir76a.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/0/2c5deb7a3a68d59b89de55f3f8a2605b/02_%E6%9C%89%E5%B7%9D%E3%83%A6%E3%83%B3.jpg" referrerpolicy="no-referrer">
+
+
+这人设完全就是从银魂片场过来的吧？？？
+
+
+-----
+
+####  xingenge  
+##### 33#       发表于 2021-2-12 11:15
+
+
+【"ゴジラ"デザイン画、解禁。】
+
+
+TVアニメ『ゴジラ S.P&lt;シンギュラポイント&gt;』の #ゴジラ が解禁! 本作怪獣デザインの山森英司さんによるデザインに、コンセプトアートの金子雄司さんが着彩したビジュアル!
+
+
+4月TV放送開始／Netflixにて全世界独占配信(日本先行)
+
+#ゴジラSP
+[http://godzilla-sp.jp/news/210212_01.html](http://godzilla-sp.jp/news/210212_01.html)
+
+<img src="https://p.sda1.dev/1/4d73f2eb6c10d036b5f0bbdecfeb23dc/Et_OUKKVcAAUiAk.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Piano-Forest  
+##### 34#       发表于 2021-2-23 08:20
+
+
+<img src="https://p.sda1.dev/1/3aa7870c3d018d4494e37f628ac35354/IMG_20210223_081720.jpg" referrerpolicy="no-referrer">
+
+
+放送・配信情報（共13话）
+
+TOKYO MX：2021年4月1日（木）より毎週木曜日22:30～
+
+KBS京都：2021年4月1日（木）より毎週木曜日22:30～
+
+BS11：2021年4月1日（木）より毎週木曜日22:30～
+
+サンテレビ：2021年4月1日（木）より毎週木曜日24:0～
+
+
+Netflix：2021年3月25日（木）より国内配信開始
+
+※各週テレビ放送から1話ずつ先行配信
+
+
+-----
+
+####  Laie  
+##### 35#       发表于 2021-2-23 08:31
+
+
+去年连着读完エピローグ、プロローグ和文字渦感觉自己彻底被円城塔pua了
+
+
+没记错的话上一次给动画写脚本还是丹迪那两集
+
+
+-----
+
+####  hqtkkb  
+##### 36#       发表于 2021-2-23 09:10
+
+
+网飞？那差不多就是直接抬走了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Piano-Forest  
+##### 37#       发表于 2021-3-10 17:15
+
+
+PV3：[https://youtu.be/xVv3kouh4is](https://youtu.be/xVv3kouh4is)
+
+
+OPテーマ：BiSH「in case...」
+
+
+-----
+
+####  HGCG2  
+##### 38#       发表于 2021-3-19 20:07
+
+
+哥斯拉和飞天豹一起PUNCH!PUNCH!PUNCH!
+<img src="http://wx1.sinaimg.cn/large/9657fdc2ly1gopgzdk6fej20p50zkhd2.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ReginaldMorgan  
+##### 39#       发表于 2021-3-20 00:12
+
+
+之前看忘了pv几，一股子便宜动画的感觉
+
+就……虽然说是bones x orange，但是一股子骨头负责3D橘子负责手绘的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  砂糖天妇罗  
+##### 40#       发表于 2021-3-24 06:12
+
+
+要播出了喔？看完这个看金刚大战哥斯拉。
+
+
+-----
+
+####  Piano-Forest  
+##### 41#       发表于 2021-3-26 16:30
+
+
+[https://twitter.com/katohhhhhh/status/1375010036171173891](https://twitter.com/katohhhhhh/status/1375010036171173891)
+
+加藤和恵先生がキャラクターデザイン原案を務めた、ゴジラS.P Netflixにて本日3/25から先行配信しております！皆さま、是非ご覧ください〜！
+<img src="https://p.sda1.dev/1/4edbe112d91477b28dc8acb5c7a1ca59/ExUEVtiVoAQZzLA.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Minolta  
+##### 42#       发表于 2021-3-27 12:19
+
+
+人气这么低的吗<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">看了第一话感觉挺不错的啊，喜欢这个节奏感
+
+而且男主去了ファミレス别人吃肉他吃圣代，真就是银魂......
+
+
+-----
+
+####  thez  
+##### 43#       发表于 2021-3-27 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50748098&amp;ptid=1963627" target="_blank">Minolta 发表于 2021-3-27 12:19</a>
+
+人气这么低的吗看了第一话感觉挺不错的啊，喜欢这个节奏感
+
+
+而且男主去了ファミレス别人吃肉他吃圣 ...</blockquote>
+我都没看到中文字幕资源……这片下周日本电视台播了应该就有熟肉了
+
+
+-----
+
+####  sdh45e6  
+##### 44#       发表于 2021-3-27 21:49
+
+
+没看到中文字幕资源……
+
+
+-----
+
+####  shcmzzj  
+##### 45#       发表于 2021-3-29 11:41
+
+
+挺好的挺好的，想看下一话
+
+— from Xiaomi Mi MIX 2S, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4
+
+
+-----
+
+####  pharos  
+##### 46#       发表于 2021-3-29 18:23
+
+
+版权腾讯买了
+
+
+-----
+
+####  Piano-Forest  
+##### 47#       发表于 2021-3-30 14:05
+
+
+ 本帖最后由 Piano-Forest 于 2021-3-30 17:43 编辑 
+
+[https://m.weibo.cn/3889146127/4620445309472248](https://m.weibo.cn/3889146127/4620445309472248) <blockquote>独家引进！《哥斯拉：奇异点》
+
+首集将于2021年3月31日22:30上线！
+
+第2集将于2021年4月8日22:30上线，且从第2集起，每周四22:30更新1集~
+
+@羚邦动漫</blockquote>
+
+
+-----
+
+####  yhw1871  
+##### 48#       发表于 2021-3-30 14:09
+
+
+花园上已经有第一集了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  机翻猫  
+##### 49#       发表于 2021-3-30 18:45
+
+
+看了，画面和节奏都挺舒服
+
+期待下一话
+
+
+-----
+
+####  天之叢云  
+##### 50#       发表于 2021-3-30 18:49
+
+
+还行,后面不会是开着机器人打哥斯拉吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  skullgreymon  
+##### 51#       发表于 2021-3-30 19:37
+
+
+哥斯拉的世界观下必须有翼龙吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dingruntian2  
+##### 52#       发表于 2021-3-30 21:20
+
+
+女主真棒
+
+
+-----
+
+####  封面杀手  
+##### 53#       发表于 2021-3-30 21:34
+
+
+ 本帖最后由 封面杀手 于 2021-3-30 23:38 编辑 
+
+变相让被降格成哥小弟的杰格机器人有自己做主角的机会，不过是从自我意识变成了AI？
+
+
+-----
+
+####  亚瑟邓特  
+##### 54#       发表于 2021-3-30 23:49
+
+
+是我第三喜欢的宮本侑芽<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+2pb的笔记本，想要！！<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  千恋万花  
+##### 55#       发表于 2021-3-31 14:57
+
+
+ 本帖最后由 千恋万花 于 2021-3-31 15:01 编辑 
+
+看到几篇访谈，翻译了部分内容（注：除了「」里的一些长句子是按受访者本人的原话完全翻译，其他部分是翻译了部分章节的大意。）
+
+
+アニメ『ゴジラ S.P』【1】高橋敦史監督「意味のないシーンやセリフは一つもない」：[https://www.asahi.com/and_M/20210326/25292647/](https://www.asahi.com/and_M/20210326/25292647/)
+
+·「每个场景、每句台词都有其意义」（标题）
+
+·企划开始于两三年前，契机是2016年的『新哥斯拉』大火，于是想通过TV动画来扩充观众层。高桥接手的时候只知道是2D和3D结合的动画，企划本身接近于白纸状态。
+
+·想像『新哥斯拉』那样大火，同时又想追求新意，那就不能采取同样的设定。另外还要跟Polygon Pictures制作的三部动画电影『GODZILLA』做出区别。
+
+·由于哥斯拉过去的作品类型丰富多彩，因此系列构成·脚本启用了SF作家圆城塔，他2014年的时候参与过『Space☆Dandy』第11集的脚本，这集的分镜正好是高桥，这是两人时隔六年再度联手。
+
+·除了SF，还有「解谜」要素。由于哥斯拉以往系列的主角都比较厌战，不会积极挑战怪兽这一未知生物，所以本作的主角不是通过武力，而是靠头脑一边解谜一边对抗哥斯拉。高桥希望大家想象一下「日本著名侦探角色（如明智小五郎或金田一耕助）对战哥斯拉」。
+
+·关系到「解谜」，因此作品中有很多式子和文字，这些全是圆城监修的。每个场景罗列的式子都有其含义。
+
+·故事朝着圆城擅长的方向发展。故事开头有个场景是装饰在车站前的一幅古旧绘画（注：第1集04:57处），画中的人物、文章、怪兽名字的汉字全包含着圆城的主意。
+
+·由于圆城的SF很难以理解，想要做成影像比较困难，因此高桥基于圆城的脚本加入了「娱乐」要素。「圆城的文章十分有趣，但就是台词量太多不好做成影像。大多数的TV动画1集（约20分钟）不超过300卡，平均每卡6秒，但本作10~20秒一直在说台词的卡多得很。这样观众看着也会难受，因此我这边加入了动作戏、机器人……」
+
+·很多动画的卡数、台词长度、措辞、配乐的时机都是参照着一定的模板的，「哥斯拉S.P」采用这种制作手法是高桥想稍微打破下如今日本动画制作的常规方式。高桥曾参与过日法合作动画的制作，觉得法国的动画制作没什么制约。
+
+
+アニメ『ゴジラ S.P』始動【2】作家・円城塔「脚本を書き上げた今も、ゴジラとは何かを問い続けている」：[https://www.asahi.com/and_M/20210329/24914305/](https://www.asahi.com/and_M/20210329/24914305/)
+
+·圆城一开始只是来当SF考证的，并不负责脚本。之所以后来当上系列构成·脚本，是因为高桥「不能切分故事和SF设定」这一创作手法。
+
+·「高桥说想让故事跟SF设定紧密相连，推动情节的发展。我不断进行故事设定和考证的结果就是，委托其他脚本家来写设定已经不现实，因此就由高桥和写设定的我来负责脚本了。」
+
+·本来应该是根据事先准备好的设定·梗概、世界观的印象板（Imageboard）来进行系列构成和编写脚本的。但本作却几乎没有这些素材，是摸索着前进的。
+
+·「哥斯拉这一设定有过去系列的一些积累。在此基础上设计现代背景下跟自卫队战斗情形的时候，必须考虑到哥斯拉能否承受住巨型钻地弹（Bunker Buster）。它被打倒的话也挺麻烦，所以必须配合剧情思索设定，想办法处理这一问题。」
+
+·「历代的系列中，哥斯拉也并不是每一部都出场。这样一来就必须考虑该让哥斯拉在13集中的哪一集中出场。东宝的制片人是希望哥斯拉尽快出场的，但编故事的我们则想尽量避免让它出场。因为它一登场故事的一幕高潮就会过去，想到这里甚至想让它最后才出场（笑）。如此一来又得考虑如何构思它登场前的故事，如何在它登场之后还能让故事一气呵成。顾虑到2集出现1次、13集出现6次哥斯拉是不是有点腻。像『EVA的使徒』、『奥特怪兽』那样每一集都登场感觉也有点奇怪，这使得故事构成十分困难」
+
+·故事和设定是高桥和圆城一起想的，圆城笑着表示「脚本一栏写着自己名字挺让人意外」。
+
+·「编故事的时候，我觉得懂的人懂就行，但高桥则在思索无论谁来看都看得懂的真实性。整体的真实水平是高桥一人负责驾驭的。因此，希望各位尽量把本作看成“高桥哥斯拉”。我的名字作为脚本家列出来的时候，大家不是议论纷纷吗？如果这被称作“圆城哥斯拉”，那我倒是能作为挡枪子儿（注：原文是被害担当艦）的好好加油（笑）。但这部终究是高桥的作品。不，也不尽如此么…」
+
+·「哥斯拉S.P」与历代哥斯拉有两个大的不同点，第一点是对抗哥斯拉的主角是普通人神野和有川。但既没有拯救国家权限也没有财力的普通人想打倒哥斯拉当然是难上加难的，因此对抗哥斯拉的关键就在他们的知识和技术。
+
+·「想要打倒哥斯拉这般庞然大物，只能依靠陷阱、毒药或者炸弹。一般的男女（Boy &amp; Girl）甚至连这都用不了。他们拥有的只有智慧，这时我们就想到机器人或者AI了。」
+
+·因此导入了电影『哥斯拉对梅加洛』（1973年/第13作）中登场的人形机器人·喷射积格，和神野铭的搭档犬型AI·Pero 2。
+
+·与历代哥斯拉的另一个不同点是想极力排除“传递什么讯息”。
+
+·「本作的故事就像“只要努力总有办法！”（笑）。哥斯拉反映了战争、核、环境污染等各时代的大主题。这对我们来说也是一个挑战。本作并非没有包含一点讯息。人类无论如何都想在自己想象得到的范围内处理事情。本作的哥斯拉却不是这样，是作为从根本上就无法理解的事物描写的。无视物理法则的存在，就跟过去的自然概念一样吧。」
+
+·「本作的哥斯拉是无法解释的“特异点”，可以硬给它安上这么个主题：要对从本质上就无法理解的事物抱有一定程度的敬意。只不过，难得用动画这一形式来表现，比起反映当下并明确传达出什么讯息，更希望大家能尽情享受观影」。
+
+·「到处都有SF算数谜题性质的要素。其中有跟故事有关的，也有跟故事无关的。感兴趣的朋友或者喜欢的朋友可以试着解一解，应该是能解开的。」
+
+
+アニメ『ゴジラ S.P』始動【3】徹底的に“天才”を演じきる　声優・宮本侑芽、新しい役柄への挑戦：[https://www.asahi.com/and_M/20210330/24359035/](https://www.asahi.com/and_M/20210330/24359035/)
+
+·「伴随着『哥斯拉S.P』的故事发展，会让人产生『这是真实发生的事情吧』的错觉。以往的哥斯拉系列也有着一面，不过圆城写的脚本中的真实性更加浓厚。我在配音的时候也努力不加重动画角色的色彩，而是追求自然的真实性。」
+
+·由于台词中有很多专业术语，有很多词宫本是第一次听说，为了在会话中自然读出这些生疏的词语，宫本努力去「理解所有的术语」。
+
+·「拿到台本之后，我就把不认识的词都查了一遍。也有很多地方让我摸不着头脑（苦笑），不过我也有努力像铭那样去学习。当然我可能并没有100%理解，但我觉得自己有理解铭是如何得出这一回答的，在后期录音的麦克风前配音时是自然的」。
+
+·「我听说ED是Polkadot Stingray根据铭的印象做的。是一首十分清爽、有青春感、积极向上的歌曲。在严肃的故事中，最后能让人一下子精神起来、激起好奇心的歌曲，希望大家能够把ED看完。」
+
+
+-----
+
+####  千恋万花  
+##### 56#       发表于 2021-3-31 21:46
+
+
+アニメ『ゴジラ S.P』始動【4】声優・石毛翔弥　旧作からの学びを糧に、新たな表現を紡いでいく：[https://www.asahi.com/and_M/20210331/24362005/](https://www.asahi.com/and_M/20210331/24362005/)
+
+·由于献声的角色要用“技术”来对抗怪兽们，因此石毛特地留意不表现出“惊讶”这一感情。「起因是我收到这样的指示：不是展现出对未知生物产生的“威胁”感，而是着重展现出身为技术人员的“兴趣”感。过去的「哥斯拉」系列中，怪兽登场后很多角色会表现出吃惊，但ユン（「有川ユン」未给汉字，故保留）注重于对抗这一“威胁”，因此比起吃惊会选择先去观察分析，想到这里的时候我便觉得自己抓住了ユン这一角色。当然他并非一点也不吃惊，我只是努力不让“声音的表情”展现出“吃惊”。」
+
+·石毛配音的时候还有注意「台词的速度」。为了用声音表现出天才角色特有的思考速度，换气的时机他也下了一番功夫。
+
+
+-----
+
+####  战星辰  
+##### 57#       发表于 2021-3-31 21:53
+
+
+第一集看着观感不错，但是我不喜欢萝卜啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 3, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
+
+
+-----
+
+####  sdh45e6  
+##### 58#       发表于 2021-3-31 23:42
+
+
+1话字幕出了
+
+
+出乎意料得不错啊
+
+
+太棒了
+
+
+-----
+
+####  afsd109  
+##### 59#       发表于 2021-3-31 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50784275&amp;ptid=1963627" target="_blank">亚瑟邓特 发表于 2021-3-30 23:49</a>
+
+是我第三喜欢的宮本侑芽
+
+2pb的笔记本，想要！！</blockquote>
+十年后的存储介质应该可以达到了吧
+
+
+-----
+
+####  亚瑟邓特  
+##### 60#       发表于 2021-4-1 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50794849&amp;ptid=1963627" target="_blank">afsd109 发表于 2021-3-31 23:59</a>
+十年后的存储介质应该可以达到了吧</blockquote>
+笔记本基础容量已经很久没变过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  thez  
+##### 61#       发表于 2021-4-1 00:22
+
+
+明天看熟肉
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  杂灰  
+##### 62#       发表于 2021-4-1 00:27
+
+
+骨头社+橘子社的哥斯拉，该怎么简称，骨橘拉吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  砂糖天妇罗  
+##### 63#       发表于 2021-4-1 01:44
+
+
+已经有熟肉了，超级喜欢。编剧好像是很有名的科幻小说家圆城塔。那种日式科幻玄学的风格很喜欢。
+
+
+-----
+
+####  LRS2376852435  
+##### 64#       发表于 2021-4-1 01:57
+
+
+银白发卷毛，死鱼眼，工作万事屋，AI cv钉宫，餐厅点芭菲<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，可惜cv不是组长。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  病態極端  
+##### 65#       发表于 2021-4-1 21:56
+
+
+所以天上飛的是羅甸天狗，地下埋著古史羅?
+
+
+-----
+
+####  thez  
+##### 66#       发表于 2021-4-1 22:01
+
+
+星空字幕组这错别字有点点多<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  屎一样的自己  
+##### 67#       发表于 2021-4-1 22:10
+
+
+这骨哥引发的事象啥有点贞子的感觉
+
+
+-----
+
+####  sdh45e6  
+##### 68#       发表于 2021-4-1 23:53
+
+
+[Netflixでは第2話先行配信中]
+
+
+有人能跟星空字幕组联络吗
+
+
+等不了一星期才看第2话了....<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sdh45e6  
+##### 69#       发表于 2021-4-1 23:59
+
+
+第2话
+
+<img src="https://img.saraba1st.com/forum/202104/01/235934h4sby8dmcqdd4qd4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>001.jpg</strong> (92.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 23:59 上传
+
+
+-----
+
+####  千恋万花  
+##### 70#       发表于 2021-4-2 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805743&amp;ptid=1963627" target="_blank">sdh45e6 发表于 2021-4-1 23:53</a>
+[Netflixでは第2話先行配信中]
+
+
+有人能跟星空字幕组联络吗</blockquote>
+稍微问了问，有片源后三四天内出片应该是没问题的
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  pharos  
+##### 71#       发表于 2021-4-2 00:11
+
+
+腾讯不是和网飞同步啊，第二话都放了
+JJ和拉顿打斗的运镜太有内味了
+赤潮里飞出的拉顿群<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">好期待下一集
+
+
+-----
+
+####  Yalbsd  
+##### 72#       发表于 2021-4-2 00:20
+
+
+有点好看啊，这3渲2是我看的最舒服的了
+
+
+-----
+
+####  thez  
+##### 73#       发表于 2021-4-2 09:08
+
+
+ 本帖最后由 thez 于 2021-4-2 09:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805874&amp;ptid=1963627" target="_blank">pharos 发表于 2021-4-2 00:11</a>
+
+腾讯不是和网飞同步啊，第二话都放了
+
+JJ和拉顿打斗的运镜太有内味了
+
+赤潮里飞出的拉顿群好期待下一 ...</blockquote>
+腾讯是和日本电视台同步吧，写着每周四更新
+
+
+-----
+
+####  千恋万花  
+##### 74#       发表于 2021-4-2 10:07
+
+
+ED「青い」完整 Live 版（公开到 4/4 23:59）
+[https://www.youtube.com/watch?t=1604&amp;v=1pfRPGJfHLc](https://www.youtube.com/watch?t=1604&amp;v=1pfRPGJfHLc)
+
+
+-----
+
+####  南条一间  
+##### 75#       发表于 2021-4-2 11:50
+
+
+属于不太敢给朋友推的作品，像是4s那种一看监督自己的想法就很多的那一类
+
+宫本侑芽一开口观感上直接就和4s绑死了
+
+
+-----
+
+####  leleq  
+##### 76#       发表于 2021-4-2 11:59
+
+
+第一集循序渐进 感觉不错 橘子社的3d也很舒服 
+
+
+就是这放送方法 网飞快这么多 剧透的同志们收敛一下啊 不然这专楼就更没人了
+
+
+-----
+
+####  forerunner01  
+##### 77#       发表于 2021-4-2 13:31
+
+
+有内味。这种剧情密度高的手法，有平成系列的感觉。
+
+
+-----
+
+####  普罗茶  
+##### 78#       发表于 2021-4-3 02:10
+
+
+很喜欢ep1在晚上、室内只对怪异作侧写隐喻，却选择在白天空旷处，日常的祭典让其登场，这是非日常对日常的入侵。
+
+
+-----
+
+####  112zero  
+##### 79#       发表于 2021-4-3 04:29
+
+
+不错，看得很舒服
+
+
+-----
+
+####  HGCG  
+##### 80#         楼主| 发表于 2021-4-3 08:13
+
+
+片尾的那些怪兽都会出现吗！
+
+
+-----
+
+####  saturnus  
+##### 81#       发表于 2021-4-3 13:29
+
+
+这片在泥潭热度和隔壁4s完全没得比<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  砂糖天妇罗  
+##### 82#       发表于 2021-4-3 13:47
+
+
+ 本帖最后由 砂糖天妇罗 于 2021-4-3 13:52 编辑 
+<blockquote>saturnus 发表于 2021-4-3 13:29
+这片在泥潭热度和隔壁4s完全没得比</blockquote>
+国内真正意义上的哥斯拉的粉丝其实就很少，一般是某几部哥斯拉片子的粉丝，而且这个片又没啥宣传。而且哥斯拉的剧情要不就很烂，要不就很正看起来很累，很难吸引路人。
+
+
+-----
+
+####  菲特妹  
+##### 83#       发表于 2021-4-3 13:52
+
+
+古列特都有板机粉在吹，骨头粉不存在的
+
+
+-----
+
+####  被击坠王  
+##### 84#       发表于 2021-4-3 14:13
+
+
+ 本帖最后由 被击坠王 于 2021-4-3 14:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50819872&amp;ptid=1963627" target="_blank">saturnus 发表于 2021-4-3 13:29</a>
+
+这片在泥潭热度和隔壁4s完全没得比</blockquote>
+古利特后，你真以为4s楼里多数看的是机器人打怪兽部分吗，角色日常互换一下，怕不是反过来
+
+
+-----
+
+####  风雪天  
+##### 85#       发表于 2021-4-3 14:51
+
+
+这动画第一集不错阿
+
+
+-----
+
+####  CURE_HGCG  
+##### 86#       发表于 2021-4-3 20:42
+
+
+你们是兄妹吧！
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gp6u7pbagxj20q40vodk2.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gp6u7rspybj20up0u0ti7.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  亚瑟邓特  
+##### 87#       发表于 2021-4-3 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50820264&amp;ptid=1963627" target="_blank">被击坠王 发表于 2021-4-3 14:13</a>
+古利特后，你真以为4s楼里多数看的是机器人打怪兽部分吗，角色日常互换一下，怕不是反过来 ...</blockquote>
+可是这片有六花啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  chiefshi  
+##### 88#       发表于 2021-4-3 20:53
+
+
+电波对上了
+
+
+-----
+
+####  sdh45e6  
+##### 89#       发表于 2021-4-3 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50805815&amp;ptid=1963627" target="_blank">千恋万花 发表于 2021-4-2 00:03</a>
+
+稍微问了问，有片源后三四天内出片应该是没问题的
+
+
+—— 来自 S1Fun</blockquote>
+[https://animepisode.com/godzilla ... e-2-english-subbed/](https://animepisode.com/godzilla-singular-point-episode-2-english-subbed/)
+
+
+这边有第2集片源
+
+
+-----
+
+####  angelooo  
+##### 90#       发表于 2021-4-3 22:47
+
+
+今天才看第一话，这鬼片一样的开场你跟我说是哥斯拉谁信啊，虽然马上就黑多拉糊脸了
+
+那个剧中曲太阴间了妈的
+
+但就是很舒服，看着太舒服了，最后专属bgm出来，太棒了
+
+
+
+
+-----
+
+####  TriSPD  
+##### 91#       发表于 2021-4-4 00:37
+
+
+第一集观感不错，阿三电波味儿很正
+
+
+-----
+
+####  菲特妹  
+##### 92#       发表于 2021-4-4 01:12
+
+
+最后那个翼龙是拉顿吗？
+
+
+-----
+
+####  亚瑟邓特  
+##### 93#       发表于 2021-4-4 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50825161&amp;ptid=1963627" target="_blank">angelooo 发表于 2021-4-3 22:47</a>
+今天才看第一话，这鬼片一样的开场你跟我说是哥斯拉谁信啊，虽然马上就黑多拉糊脸了
+
+那个剧中曲太阴间了妈 ...</blockquote>
+哪有黑多啦<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  angelooo  
+##### 94#       发表于 2021-4-4 01:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50826278&amp;ptid=1963627" target="_blank">亚瑟邓特 发表于 2021-4-4 01:12</a>
+
+哪有黑多啦
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.4.4.1</blockquote>
+阴间的开场之后第一个画面，祭典人群举着的神龛还是啥的上面的画是两个疑似黑多拉的生物在海上
+
+
+-----
+
+####  断翼  
+##### 95#       发表于 2021-4-4 01:47
+
+
+<blockquote>菲特妹 发表于 2021-4-4 01:12
+最后那个翼龙是拉顿吗？</blockquote>
+是拉顿，而且将氡(radon)和拉顿(rodan)扯上关系
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 96#       发表于 2021-4-4 02:31
+
+
+看之后才发现女主CV是六花，真的喜欢她的声音。
+
+
+-----
+
+####  砂糖天妇罗  
+##### 97#       发表于 2021-4-4 07:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50826393&amp;ptid=1963627" target="_blank">angelooo 发表于 2021-4-4 01:32</a>
+
+阴间的开场之后第一个画面，祭典人群举着的神龛还是啥的上面的画是两个疑似黑多拉的生物在海上 ...</blockquote>
+而且预告pv里面似乎也有蓝色的黑多拉的画面闪过。
+
+
+-----
+
+####  CURE_HGCG  
+##### 98#       发表于 2021-4-4 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50826393&amp;ptid=1963627" target="_blank">angelooo 发表于 2021-4-4 01:32</a>
+
+阴间的开场之后第一个画面，祭典人群举着的神龛还是啥的上面的画是两个疑似黑多拉的生物在海上 ...</blockquote>
+这个吧
+<img src="http://wx1.sinaimg.cn/mw1024/9657fdc2gy1gp7hw5y48bj21hg0u0kjo.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  文鳥  
+##### 99#       发表于 2021-4-4 15:30
+
+
+[https://www.bilibili.com/video/BV1Ly4y1b77a](https://www.bilibili.com/video/BV1Ly4y1b77a)
+
+
+片尾彩蛋大全
+
+
+-----
+
+####  -W-  
+##### 100#       发表于 2021-4-4 16:31
+
+
+除了结尾，这片的确感觉有内味儿了
+
+
+-----
+
+####  砂糖天妇罗  
+##### 101#       发表于 2021-4-4 16:34
+
+
+<blockquote>文鳥 发表于 2021-4-4 15:30
+https://www.bilibili.com/video/BV1Ly4y1b77a
+
+
+片尾彩蛋大全</blockquote>
+太强啦。看的时候觉得会有很多彩蛋。但是没想到很多连动作都还原了。
+
+
+-----
+
+####  CURE_HGCG  
+##### 102#       发表于 2021-4-4 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50830511&amp;ptid=1963627" target="_blank">文鳥 发表于 2021-4-4 15:30</a>
+
+https://www.bilibili.com/video/BV1Ly4y1b77a
+
+
+片尾彩蛋大全</blockquote>
+剧组对哥斯拉是真爱，相比之下静野孔文和你虚就是蹭热度的小丑
+
+
+-----
+
+####  达达葱2  
+##### 103#       发表于 2021-4-4 23:13
+
+
+到底放了几集？
+
+
+-----
+
+####  千恋万花  
+##### 104#       发表于 2021-4-4 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50835146&amp;ptid=1963627" target="_blank">达达葱2 发表于 2021-4-4 23:13</a>
+
+到底放了几集？</blockquote>
+网飞日区一直比电视台快一集，现在网飞日区有两集，电视台只播了一集
+
+
+-----
+
+####  亚瑟邓特  
+##### 105#       发表于 2021-4-4 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50826393&amp;ptid=1963627" target="_blank">angelooo 发表于 2021-4-4 01:32</a>
+阴间的开场之后第一个画面，祭典人群举着的神龛还是啥的上面的画是两个疑似黑多拉的生物在海上 ...</blockquote>
+我光主义无人机孔明灯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Kojimaru  
+##### 106#       发表于 2021-4-4 23:39
+
+
+这个是只能日区看吗？网飞港区一集都没有<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">我的日本梯子不给力登不上网飞
+
+等一个字幕组第二集资源
+
+
+-----
+
+####  cowgp01  
+##### 107#       发表于 2021-4-5 00:12
+
+
+第一集很有味儿，看PV好像有大量大场面不知道制作坚持得下去么
+
+
+-----
+
+####  亚瑟邓特  
+##### 108#       发表于 2021-4-5 01:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50830511&amp;ptid=1963627" target="_blank">文鳥 发表于 2021-4-4 15:30</a>
+https://www.bilibili.com/video/BV1Ly4y1b77a
+
+
+片尾彩蛋大全</blockquote>
+这也太强了
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  plok201  
+##### 109#       发表于 2021-4-5 01:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">古利特六花太香了，这里这位逊色了点
+
+
+其实现在这片我最好奇的是，在这个世界观下，他们是不是真能把机龙弄出来
+
+
+-----
+
+####  韦恩鲁尼  
+##### 110#       发表于 2021-4-5 18:51
+
+
+女主真的不是幻影旅团的小滴吗？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  砂糖天妇罗  
+##### 111#       发表于 2021-4-5 18:59
+
+
+我看了第二集。感觉有一点有点弱，就是人物个性不是很有趣。虽然女主角和阿银的背景设定蛮特殊的，但是二人性格相比之下感觉很平淡。可能是因为篇幅有限，写人物就不好写故事，只能选一个做主轴。但还是希望人物笔墨少但是要有趣一点。
+
+
+-----
+
+####  sdh45e6  
+##### 112#       发表于 2021-4-6 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50835379&amp;ptid=1963627" target="_blank">Kojimaru 发表于 2021-4-4 23:39</a>
+
+这个是只能日区看吗？网飞港区一集都没有我的日本梯子不给力登不上网飞
+
+等一个字幕组第二集资源 ...</blockquote>
+网飞只能日区看
+
+
+-----
+
+####  teecoo00  
+##### 113#       发表于 2021-4-6 20:12
+
+
+明天就周三了，字幕组会更新吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不更就还是周四等企鹅了
+
+
+-----
+
+####  耐赫伊勒缇  
+##### 114#       发表于 2021-4-7 16:22
+
+
+这可比隔壁那个有趣多了
+
+
+-----
+
+####  PROJECTION  
+##### 115#       发表于 2021-4-7 20:55
+
+
+第二集动作演出和细节上的考量相当精细啊，尤其是3DCG部分感觉不错。另外镜头使用的相当克制，感觉克制的都有点过了，全集似乎只有拉顿在海上飞的那里是一个印象深刻的广角，其他地方几乎都是35mm以上的中焦段。
+故事上还是感觉有点模糊，到底是要突出悬疑惊悚还是要突出喜剧呢，这两种风格是会互相干扰的吧…
+
+
+-----
+
+####  啪嗒啪嗒嘭  
+##### 116#       发表于 2021-4-7 21:06
+
+
+快把第三集交出来！！！！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sourpotato  
+##### 117#       发表于 2021-4-7 21:13
+
+
+好看，不急不慢，节奏很稳啊！
+
+
+-----
+
+####  teecoo00  
+##### 118#       发表于 2021-4-7 21:33
+
+
+真的是一步步的在铺垫，老稳了，我现在只想马上看到第三集<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  看多比特币  
+##### 119#       发表于 2021-4-7 21:46
+
+
+第二集观感非常不错，分镜很享受。不过按照网飞的一贯套路，要崩可能要到第三或四集去了。
+
+
+期待第三集。
+
+
+-----
+
+####  冰箱研会长  
+##### 120#       发表于 2021-4-7 21:54
+
+
+哎...今年奶啥啥崩
+
+我选择住嘴
+
+
+
+
+-----
+
+####  dingruntian2  
+##### 121#       发表于 2021-4-7 23:13
+
+
+中老年男性都喜欢念诗吗
+
+
+-----
+
+####  longrider  
+##### 122#       发表于 2021-4-7 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50865797&amp;ptid=1963627" target="_blank">dingruntian2 发表于 2021-4-7 23:13</a>
+
+中老年男性都喜欢念诗吗</blockquote>
+老头那段是模仿歌舞伎登场词吧，しばらく　しばらく
+
+
+-----
+
+####  屎一样的自己  
+##### 123#       发表于 2021-4-7 23:31
+
+
+哥总最讨厌的八只怪兽，拉顿12345678
+
+
+-----
+
+####  亚瑟邓特  
+##### 124#       发表于 2021-4-7 23:44
+
+
+比隔壁有意思啊，隔壁还在青春伤痛呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+封面女主那表情着实不上镜，正片里好多了
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  sdh45e6  
+##### 125#       发表于 2021-4-8 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50853041&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-4-6 20:12</a>
+
+明天就周三了，字幕组会更新吗不更就还是周四等企鹅了</blockquote>
+星空出第2话了
+
+感谢字幕组的辛勤劳动
+
+谢谢
+
+
+-----
+
+####  forerunner01  
+##### 126#       发表于 2021-4-8 02:03
+
+
+这次哥总和其他怪兽是全员异界生物？赤潮是空间门？
+
+
+-----
+
+####  千恋万花  
+##### 127#       发表于 2021-4-8 11:00
+
+
+ 本帖最后由 千恋万花 于 2021-4-8 11:12 编辑 
+
+「ゴジラS.P＜シンギュラポイント＞」シリーズ構成・円城塔インタビュー、ゴジラ初の13話構成をいかに作っていったのか？：[https://gigazine.net/news/202104 ... oh-enjoe-interview/](https://gigazine.net/news/20210407-godzilla-singular-point-toh-enjoe-interview/)
+
+圆城塔相关访谈，微博 @谢枫华的Monologo 有大致翻译：[https://weibo.com/1574835140/K9VzfjAQw](https://weibo.com/1574835140/K9VzfjAQw)
+
+
+-----
+
+####  pharos  
+##### 128#       发表于 2021-4-8 11:33
+
+
+隔壁是说哪一部<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  终末惨剧  
+##### 129#       发表于 2021-4-8 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50869837&amp;ptid=1963627" target="_blank">pharos 发表于 2021-4-8 11:33</a>
+隔壁是说哪一部</blockquote>
+ssss 吧
+
+—— 来自 Xiaomi MI 6, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  亚瑟邓特  
+##### 130#       发表于 2021-4-8 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50869837&amp;ptid=1963627" target="_blank">pharos 发表于 2021-4-8 11:33</a>
+隔壁是说哪一部</blockquote>
+女主前片场<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  断翼  
+##### 131#       发表于 2021-4-8 12:22
+
+
+ 本帖最后由 断翼 于 2021-4-8 12:26 编辑 
+
+佩罗二世可爱又实用，那么牛逼的免费软件哪里可以下载
+
+
+-----
+
+####  病態極端  
+##### 132#       发表于 2021-4-8 13:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50870501&amp;ptid=1963627" target="_blank">断翼 发表于 2021-4-8 12:22</a>
+
+佩罗二世可爱又实用，那么牛逼的免费软件哪里可以下载</blockquote>
+看動畫的表現，首先你要有一台沾染了天才女大学院生的生活氣息的電腦用來安裝生成AI性格。<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  杂灰  
+##### 133#       发表于 2021-4-8 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50870501&amp;ptid=1963627" target="_blank">断翼 发表于 2021-4-8 12:22</a>
+
+佩罗二世可爱又实用，那么牛逼的免费软件哪里可以下载</blockquote>
+泥潭巨魔装了怕不是只会变成粪海狂蛆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 134#       发表于 2021-4-8 13:12
+
+
+虽然但是，我不喜欢狗啊，明明是初始的平面麻将脸比较萌，而且还是钉宫，先pr为敬了
+
+
+-----
+
+####  太书主  
+##### 135#       发表于 2021-4-8 13:17
+
+
+太厉害了
+
+有电影质感
+
+oped做得也非常厉害
+
+这部我吹爆
+
+
+-----
+
+####  断翼  
+##### 136#       发表于 2021-4-8 13:41
+
+
+<blockquote>angelooo 发表于 2021-4-8 13:12
+虽然但是，我不喜欢狗啊，明明是初始的平面麻将脸比较萌，而且还是钉宫，先pr为敬了 ...</blockquote>
+原生是麻将脸，问为什么要取这名字的时候女主答是狗的名字才变成狗
+
+
+-----
+
+####  angelooo  
+##### 137#       发表于 2021-4-8 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50871486&amp;ptid=1963627" target="_blank">断翼 发表于 2021-4-8 13:41</a>
+
+原生是麻将脸，问为什么要取这名字的时候女主答是狗的名字才变成狗</blockquote>
+没事的，反正阿银那边的还是麻将脸，可以继续pr<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  atwood0739  
+##### 138#       发表于 2021-4-8 16:18
+
+
+第二集有很多戏谑的地方，日常被打破了之后，由习惯推动着的“日常”行为还在继续着，整个世界像个反应延迟的巨人只能用之前的规则处理新物，舆论方面，千奇百怪的人有各种千奇百怪的发言，挺幽默的真实。
+
+喷射杰格和拉顿打架的演出是想突出搞笑效果吧，挺有趣的，菜鸡互啄<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">制作组里有很会画萌物和表情包的staff吧
+
+
+-----
+
+####  Kojimaru  
+##### 139#       发表于 2021-4-8 17:21
+
+
+结尾这个拉顿成群从赤潮里飞出太有感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  殿珣  
+##### 140#       发表于 2021-4-8 17:59
+
+
+想问一下，第一集出现的印度民歌是啥？这是真实存在的还是编的？
+
+
+-----
+
+####  机翻猫  
+##### 141#       发表于 2021-4-8 18:44
+
+
+这片真不错，OP逼格到位，ED情怀拉满
+
+用来给拉顿命名的那段演出也很有感觉
+
+
+-----
+
+####  teecoo00  
+##### 142#       发表于 2021-4-8 18:47
+
+
+想要Pero2的表情包<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  断翼  
+##### 143#       发表于 2021-4-8 18:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50874489&amp;ptid=1963627" target="_blank">殿珣 发表于 2021-4-8 17:59</a>
+
+想问一下，第一集出现的印度民歌是啥？这是真实存在的还是编的？</blockquote>
+原创的，请了个印度歌手来唱
+
+
+作詞 松井五郎、作曲・編曲 沢田完
+
+
+-----
+
+####  RainbowSealife  
+##### 144#       发表于 2021-4-8 23:16
+
+
+翼龙真就拉顿啊？这么一小只。不出所料，萝卜打怪兽，不过部分3D CG镜头动起来感觉不是很流畅，帧数稍低，没有宝石之国和beastars看着舒服<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这片现在最大的惊喜恐怕要数佩罗2号，这么可爱的AI助手谁不想要？另外佩罗2号CV不是钉宫，是久野美咲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://tvax4.sinaimg.cn/large/beb44592ly1gpcqas3q5gg20iw0annpi.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  酥蕤  
+##### 145#       发表于 2021-4-8 23:20
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  cat1230  
+##### 146#       发表于 2021-4-8 23:23
+
+
+总感觉有痞子那部哥斯拉电影的味儿。
+
+
+-----
+
+####  angelooo  
+##### 147#       发表于 2021-4-8 23:41
+
+
+看完这话才回头看了那个ED彩蛋集合，详细到要跪下了，这厨力
+
+这部的拉顿看来就是小怪的地位了，数量压制
+
+不，其实，我头像也是电波怪兽，为什么会这样的<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nejiang  
+##### 148#       发表于 2021-4-8 23:47
+
+
+这片就是今年的“映像研”了
+
+
+-----
+
+####  耐赫伊勒缇  
+##### 149#       发表于 2021-4-8 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50871505&amp;ptid=1963627" target="_blank">angelooo 发表于 2021-4-8 13:42</a>
+
+没事的，反正阿银那边的还是麻将脸，可以继续pr</blockquote>
+就这么喜欢麻将脸吗，泥潭真爱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  耐赫伊勒缇  
+##### 150#       发表于 2021-4-8 23:54
+
+
+ 本帖最后由 耐赫伊勒缇 于 2021-4-8 23:57 编辑 
+
+不 准 卸 载 S 1 论 坛 A P P
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+image.png
+(61.47 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-8 23:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/08/235359b0qvikjqltc16iuh.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| WA1pywa| + 1|欢乐多|
+
+
+查看全部评分
+
+
+
+
+-----
+
+####  teecoo00  
+##### 151#       发表于 2021-4-8 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50878169&amp;ptid=1963627" target="_blank"> 耐赫伊勒缇 发表于 2021-4-8 23:54</a>  本帖最后由 耐赫伊勒缇 于 2021-4-8 23:57 编辑   不 准 卸 载 S 1 论 坛 A P P  附件： </blockquote>
+一模一样来自: iPhone客户端
+
+
+-----
+
+####  pharos  
+##### 152#       发表于 2021-4-9 00:27
+
+
+第三话也太好看了吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  WA1pywa  
+##### 153#       发表于 2021-4-9 00:33
+
+
+想看第三话<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  耐赫伊勒缇  
+##### 154#       发表于 2021-4-9 01:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50878500&amp;ptid=1963627" target="_blank">pharos 发表于 2021-4-9 00:27</a>
+
+第三话也太好看了吧</blockquote>
+为什么你能看到第三话<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  亚瑟邓特  
+##### 155#       发表于 2021-4-9 01:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50878500&amp;ptid=1963627" target="_blank">pharos 发表于 2021-4-9 00:27</a>
+第三话也太好看了吧</blockquote>
+我也要看<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Sorastlos  
+##### 156#       发表于 2021-4-9 02:42
+
+
+会查资料写论文还会投稿写回信的久野美咲配音的AI助手去哪里下载<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+太有真实感了好想要
+
+
+-----
+
+####  剑布衣  
+##### 157#       发表于 2021-4-9 03:49
+
+
+机器人突然Shoot Dance笑死我了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Yidam  
+##### 158#       发表于 2021-4-9 05:09
+
+
+不懂就问，日区每周都是提前一集吗
+
+
+-----
+
+####  delta-h  
+##### 159#       发表于 2021-4-9 05:34
+
+
+下一话要出场的是チタノザウルス吧,
+
+不过ED里出现的是マンダ
+
+
+-----
+
+####  CURE_HGCG  
+##### 160#       发表于 2021-4-9 07:43
+
+
+可恶
+
+想看第三集
+
+却不想为了这个花990在网飞包月
+
+
+-----
+
+####  pharos  
+##### 161#       发表于 2021-4-9 11:36
+
+
+第三集出现的拉顿盖饭（ラ丼）橘子社说是辣油+海鲜做成的<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  被击坠王  
+##### 162#       发表于 2021-4-9 12:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50879566&amp;ptid=1963627" target="_blank">CURE_HGCG 发表于 2021-4-9 07:43</a>
+
+可恶
+
+想看第三集
+
+却不想为了这个花990在网飞包月</blockquote>
+nyaa昨天就有第3话日语字幕的肉
+
+
+-----
+
+####  teecoo00  
+##### 163#       发表于 2021-4-9 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50881839&amp;ptid=1963627" target="_blank">pharos 发表于 2021-4-9 11:36</a>
+
+第三集出现的拉顿盖饭（ラ丼）橘子社说是辣油+海鲜做成的</blockquote>
+还有拉顿包子，每集拉顿都在被迫害<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千恋万花  
+##### 164#       发表于 2021-4-9 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50879354&amp;ptid=1963627" target="_blank">Yidam 发表于 2021-4-9 05:09</a>
+
+不懂就问，日区每周都是提前一集吗</blockquote>
+是的
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 165#       发表于 2021-4-9 15:25
+
+
+ai声优是攻壳小机器人吗？
+
+
+-----
+
+####  冰箱研会长  
+##### 166#       发表于 2021-4-9 15:28
+
+
+我想要AI... 这AI真是牛逼 我做的都是什么废物
+
+
+-----
+
+####  teecoo00  
+##### 167#       发表于 2021-4-9 15:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50884504&amp;ptid=1963627" target="_blank">爱吃冻鳗的猫 发表于 2021-4-9 15:25</a>
+
+ai声优是攻壳小机器人吗？</blockquote>
+女主的AI声优是久野美咲，男主的AI声优是钉宫
+
+
+-----
+
+####  doublehit  
+##### 168#       发表于 2021-4-9 19:54
+
+
+这初代所长真不是庵野秀明？
+
+
+-----
+
+####  CURE_HGCG  
+##### 169#       发表于 2021-4-9 20:13
+
+
+居！然！有！王！大！伯！
+
+
+-----
+
+####  Blackson  
+##### 170#       发表于 2021-4-9 20:17
+
+
+感觉这片挺像哥斯拉版的奥特Q
+
+
+-----
+
+####  与你肩并肩  
+##### 171#       发表于 2021-4-9 21:05
+
+
+制作用心，氛围拉满，很好
+
+
+-----
+
+####  HGCG3  
+##### 172#       发表于 2021-4-9 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50879371&amp;ptid=1963627" target="_blank">delta-h 发表于 2021-4-9 05:34</a>
+
+下一话要出场的是チタノザウルス吧,
+
+不过ED里出现的是マンダ</blockquote>
+看尾巴是チタノザウルス吧
+
+这个4月份太棒了，萝卜迷就像过节一样
+
+
+-----
+
+####  cowgp01  
+##### 173#       发表于 2021-4-9 22:03
+
+
+这AI还能整理论文，还要人类来干嘛
+
+
+-----
+
+####  菲特妹  
+##### 174#       发表于 2021-4-9 22:08
+
+
+这算是刻意营造出一种现实感吗。
+
+
+-----
+
+####  封面杀手  
+##### 175#       发表于 2021-4-9 22:45
+
+
+ 本帖最后由 封面杀手 于 2021-4-10 00:35 编辑 
+
+拉顿盛产周边，水龙冒充哥总，变相在阿哥坟头蹦迪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">   LINE对话那段一本正经却又甜得像网恋
+
+
+-----
+
+####  言酱啊啊啊  
+##### 176#       发表于 2021-4-10 09:51
+
+
+早上连看三集，已经产生戒断反应了，我现在马上要看到第四集！<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shiko  
+##### 177#       发表于 2021-4-10 12:54
+
+
+为了女主追了，cv还是宫本侑芽，配的比六花那会儿还好。就是不知道下集能不能有g总出场，毕竟大家还是来看g总的。
+
+
+-----
+
+####  Lokay  
+##### 178#       发表于 2021-4-10 13:13
+
+
+拉顿成群来袭，女主:“我家衣服刚晾的衣服怎样了?!”
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  longrider  
+##### 179#       发表于 2021-4-10 16:53
+
+
+第三话真不错，14分钟这里的配乐是王大伯吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  teecoo00  
+##### 180#       发表于 2021-4-10 17:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50895551&amp;ptid=1963627" target="_blank">longrider 发表于 2021-4-10 16:53</a>
+
+第三话真不错，14分钟这里的配乐是王大伯吧
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅 ...</blockquote>
+是王大伯
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 181#       发表于 2021-4-10 18:39
+
+
+壁画上的武士拿着弓
+
+实际驱赶拉顿靠的也是JK的弓
+
+所以那个武士应该是穿越过去的JK？
+
+
+-----
+
+####  delta-h  
+##### 182#       发表于 2021-4-10 23:03
+
+
+ 本帖最后由 delta-h 于 2021-4-11 00:04 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/10/235427xoxvo7x7476tvo6o.png" referrerpolicy="no-referrer">
+
+
+<strong>無題1.png</strong> (214.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-10 22:54 上传
+
+
+第三话末尾出场的是チタノザウルス，
+
+不过仔细看下来应该还有别的水中怪兽出场
+
+<img src="https://img.saraba1st.com/forum/202104/10/235804l3f3a2kzp030q00m.png" referrerpolicy="no-referrer">
+
+
+<strong>無題2.png</strong> (181.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-10 22:58 上传
+
+
+和已经出现的チタノザウルス尾部形状不一样，
+
+有可能和ラドン一样有不同大小的个体或是マンダ
+
+<img src="https://img.saraba1st.com/forum/202104/10/235935gh8gtt78127wlfgw.png" referrerpolicy="no-referrer">
+
+
+<strong>無題3.png</strong> (83.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-10 22:59 上传
+
+
+像节肢动物，可能是エビラ
+
+
+-----
+
+####  HGCG  
+##### 183#         楼主| 发表于 2021-4-11 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50898976&amp;ptid=1963627" target="_blank">delta-h 发表于 2021-4-10 23:03</a>
+
+第三话末尾出场的是チタノザウルス，
+
+不过仔细看下来应该还有别的水中怪兽出场</blockquote>
+那条尾巴也是艾比拉的吧
+
+
+-----
+
+####  tamatama  
+##### 184#       发表于 2021-4-11 02:30
+
+
+AI一个久野美咲，一个钉宫。好想要啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  赛U灵  
+##### 185#       发表于 2021-4-11 10:01
+
+
+还挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+OP蛮酷的，虽然配上这个莫名透露一点土味的人设有点微妙（）
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  赛U灵  
+##### 186#       发表于 2021-4-11 10:05
+
+
+话说老头话听多了听他念叨的确好有趣<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">假装自己能欣赏歌舞伎了（）
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  赛U灵  
+##### 187#       发表于 2021-4-11 10:07
+
+
+已经有第三话了吗，这就去找<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  teecoo00  
+##### 188#       发表于 2021-4-11 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901265&amp;ptid=1963627" target="_blank">赛U灵 发表于 2021-4-11 10:07</a>
+
+已经有第三话了吗，这就去找
+
+
+  -- 来自 能看大图的 Stage1官方 Android客户端 ...</blockquote>
+第三话现在只有生肉
+
+
+-----
+
+####  赛U灵  
+##### 189#       发表于 2021-4-11 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50901863&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-04-11 11:32:30</a>
+第三话现在只有生肉</blockquote>好吧，那我等等<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  kos_mos  
+##### 190#       发表于 2021-4-11 20:36
+
+
+拉顿一大群还有被电磁波吸引感觉像加奥斯+雷基恩。
+
+
+-----
+
+####  delta-h  
+##### 191#       发表于 2021-4-12 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50899662&amp;ptid=1963627" target="_blank">HGCG 发表于 2021-4-11 01:39</a>
+
+那条尾巴也是艾比拉的吧</blockquote>
+很长，不太像
+
+
+-----
+
+####  异界送  
+##### 192#       发表于 2021-4-12 21:44
+
+
+第一话末尾那胖子说的是俳句么？还是律诗？
+
+我看一个字幕组翻译成“红叶于寒风中飘零 君此时可否如驹形的杜鹃 未曾忘记又何谈想起”
+
+另一个字幕组翻译成“萧萧秋风起，红叶落无声。君在驹形待舟处，我闻子规啼夏来。不忘之，故不思之。”
+
+不知道出自哪里……
+
+
+-----
+
+####  clamp07830  
+##### 193#       发表于 2021-4-12 21:48
+
+
+好看！
+
+
+-----
+
+####  hsq0596  
+##### 194#       发表于 2021-4-12 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50895551&amp;ptid=1963627" target="_blank">longrider 发表于 2021-4-10 16:53</a>
+
+第三话真不错，14分钟这里的配乐是王大伯吧
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅 ...</blockquote>
+MAT队出击！（幻听）
+
+
+-----
+
+####  hsq0596  
+##### 195#       发表于 2021-4-12 22:17
+
+
+第三话熟肉出了
+
+
+-----
+
+####  Kojimaru  
+##### 196#       发表于 2021-4-12 22:18
+
+
+星空字幕组的第三话汉化出了
+
+
+-----
+
+####  hsq0596  
+##### 197#       发表于 2021-4-12 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50898976&amp;ptid=1963627" target="_blank">delta-h 发表于 2021-4-10 23:03</a>
+
+第三话末尾出场的是チタノザウルス，
+
+不过仔细看下来应该还有别的水中怪兽出场</blockquote>
+结尾的怪兽是沧龙造型，搭配哥总BGM，不会是和痞斯拉一样分不同阶段形态的哥总吧
+
+
+-----
+
+####  teecoo00  
+##### 198#       发表于 2021-4-12 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50917990&amp;ptid=1963627" target="_blank">hsq0596 发表于 2021-4-12 22:19</a>
+
+结尾的怪兽是沧龙造型，搭配哥总BGM，不会是和痞斯拉一样分不同阶段形态的哥总吧 ...</blockquote>
+也有可能是烟雾弹，但我个人觉得不会乱用BGM，还是要等下集
+
+
+-----
+
+####  cowgp01  
+##### 199#       发表于 2021-4-12 23:12
+
+
+这种吹逼得虽然不太懂不过好厉害的感觉还真挺像在看科幻世界小说
+
+
+-----
+
+####  酥蕤  
+##### 200#       发表于 2021-4-12 23:23
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  暗黑能乐  
+##### 201#       发表于 2021-4-12 23:33
+
+
+OPED真不错啊，话说第三话对付这拉顿群就这么艰难了，后面要怎么办啊。。
+
+
+-----
+
+####  piofg  
+##### 202#       发表于 2021-4-12 23:49
+
+
+哥斯拉奇点必不可能翻车，我要吹爆圆城哥哥（认真）
+
+
+-----
+
+####  亚瑟邓特  
+##### 203#       发表于 2021-4-12 23:53
+
+
+中间那段的吧的吧的吧是不是归曼bgm？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  iwer  
+##### 204#       发表于 2021-4-12 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50918780&amp;ptid=1963627" target="_blank">piofg 发表于 2021-04-12 23:49:52</a>
+哥斯拉奇点必不可能翻车，我要吹爆圆城哥哥（认真）</blockquote>你可悠着点吧，我害怕<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  白玫瑰之夜  
+##### 205#       发表于 2021-4-13 00:41
+
+
+看ed后面大概是上机器人(加强版)和机龙了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  atwood0739  
+##### 206#       发表于 2021-4-13 00:51
+
+
+ 本帖最后由 atwood0739 于 2021-4-13 00:52 编辑 
+
+圆城哥哥说了，这是高桥哥斯拉，他是来背锅的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+第三集男女主互发信息这里，nerd社交看起来还蛮可爱的，聊天也是解谜的一环，不爽不要玩。
+
+女主的佩罗表情包想来一套<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  蛇头  
+##### 207#       发表于 2021-4-13 01:23
+
+
+看了下官网的キャラクター，原来那个一本正经的发电厂小哥是外务省外派到这儿的，之前机场里那个女的是他直属的上司。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  蛇头  
+##### 208#       发表于 2021-4-13 01:30
+
+
+ 本帖最后由 蛇头 于 2021-4-13 01:33 编辑 
+
+然后那张古史羅ノ図，其实是有原画的，来自“歌川国芳の錦絵『讃岐院眷属をして為朝をすくふ図』”
+
+<img src="https://img.saraba1st.com/forum/202104/13/012630rdjaupn4zgp2jpw2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>8789.jpg</strong> (1019.29 KB, 下载次数: 0)
+
+下载附件
+
+『讃岐院眷属をして為朝をすくふ図』
+2021-4-13 01:26 上传
+
+
+下面是作品中出现的
+
+
+<img src="https://img.saraba1st.com/forum/202104/13/013253kgy0a0cscg7cmos0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>72wo_com_J3u7HrvE.jpg</strong> (185.01 KB, 下载次数: 0)
+
+下载附件
+
+古史羅ノ図
+2021-4-13 01:32 上传
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 209#       发表于 2021-4-13 02:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50898976&amp;ptid=1963627" target="_blank">delta-h 发表于 2021-4-10 23:03</a>
+
+第三话末尾出场的是チタノザウルス，
+
+不过仔细看下来应该还有别的水中怪兽出场</blockquote>
+这几张图片是第几话里面的？
+
+
+-----
+
+####  口罩  
+##### 210#       发表于 2021-4-13 02:33
+
+
+字幕组加速了
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+不可能翻车
+
+
+
+
+-----
+
+####  printer22  
+##### 211#       发表于 2021-4-13 03:47
+
+
+一个乡下地方有能造超级机器人的小工厂，有能写出钉宫久野美咲声音的超强运算力，而且用个小破笔记本的资源就能随便黑全城网络的超级AI的白毛男。这比乡下地方的研究所地下藏着哥斯拉还要不可思议吧。
+
+
+-----
+
+####  moooooonlight  
+##### 212#       发表于 2021-4-13 05:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50919590&amp;ptid=1963627" target="_blank">printer22 发表于 2021-04-13 03:47:41</a>
+一个乡下地方有能造超级机器人的小工厂，有能写出钉宫久野美咲声音的超强运算力，而且用个小破笔记本的资源 ...</blockquote>2pb的笔记本侧面反映设定的科技水平
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  teecoo00  
+##### 213#       发表于 2021-4-13 08:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50919590&amp;ptid=1963627" target="_blank">printer22 发表于 2021-4-13 03:47</a>
+
+一个乡下地方有能造超级机器人的小工厂，有能写出钉宫久野美咲声音的超强运算力，而且用个小破笔记本的资源 ...</blockquote>
+男主的履历第一集好像有介绍，老爹看起来也是有点来头的
+
+
+-----
+
+####  forerunner01  
+##### 214#       发表于 2021-4-13 08:45
+
+
+与时俱进。日本终于在动画里也用上最新F35了。
+
+
+-----
+
+####  什伐赤  
+##### 215#       发表于 2021-4-13 12:39
+
+
+欧洲核子研究机构有一座湿婆（shiva)雕像，这公司也是以shiva命名，湿婆有毁灭世界的能力。。
+
+这作品野心很大啊
+
+
+-----
+
+####  什伐赤  
+##### 216#       发表于 2021-4-13 12:48
+
+
+至于那个像中国联通的标志，搞不好跟印度密教有关
+
+
+-----
+
+####  断翼  
+##### 217#       发表于 2021-4-13 12:57
+
+
+<blockquote>atwood0739 发表于 2021-4-13 00:51
+圆城哥哥说了，这是高桥哥斯拉，他是来背锅的
+
+
+第三集男女主互发信息这里，nerd社交看起来还蛮可爱 ...</blockquote>
+你还可以赖在小柳启伍身上(片尾标着的剧本协力)，作为冈妈大弟子《三圣星》《天狼》《盾勇》每部都迷
+
+
+-----
+
+####  atwood0739  
+##### 218#       发表于 2021-4-13 14:11
+
+
+ 本帖最后由 atwood0739 于 2021-4-13 20:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50922829&amp;ptid=1963627" target="_blank">断翼 发表于 2021-4-13 12:57</a>
+
+你还可以赖在小柳启伍身上(片尾标着的剧本协力)，作为冈妈大弟子《三圣星》《天狼》《盾勇》每部都迷 ...</blockquote>
+哈哈哈哈哈根据访谈，剧情整理是高桥和小柳一同完成的，很有说服力呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不过小柳也参与过骨头的hisomaso的脚本和军事考证，hisomaso全程还是蛮稳健的。
+
+而“高桥哥斯拉”确实是圆城钦定的，以下摘自专楼55#的访谈翻译
+
+·故事和设定是高桥和圆城一起想的，圆城笑着表示「脚本一栏写着自己名字挺让人意外」。
+
+·「编故事的时候，我觉得懂的人懂就行，但高桥则在思索无论谁来看都看得懂的真实性。整体的真实水平是高桥一人负责驾驭的。因此，希望各位尽量把本作看成“高桥哥斯拉”。我的名字作为脚本家列出来的时候，大家不是议论纷纷吗？如果这被称作“圆城哥斯拉”，那我倒是能作为挡枪子儿（注：原文是被害担当艦）的好好加油（笑）。但这部终究是高桥的作品。不，也不尽如此么…」
+
+
+-----
+
+####  封面杀手  
+##### 219#       发表于 2021-4-13 14:23
+
+
+ 本帖最后由 封面杀手 于 2021-4-13 14:29 编辑 
+
+看来4s太普通已满足不了你们原药蹦迪了，终于正眼望过来逼害骨哥了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  RainbowSealife  
+##### 220#       发表于 2021-4-13 19:06
+
+
+第三集最后登场的怪兽有没有可能就是哥斯拉？登场时bgm和第一集片尾出现哥斯拉骸骨貌似是同一首。这作会不会像新哥斯拉那样，登陆后还会进化出新形态？
+
+我来追这部动画就是为了看哥斯拉（虽然现在更喜欢佩罗二世和神野铭）难以想象，假如这是部挂着哥斯拉名字的电影，结果开场一个小时后仍未出现哥斯拉的身影，不知道影院的观众会不会吵着要退票，大呼上当受骗了呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Blackson  
+##### 221#       发表于 2021-4-13 19:56
+
+
+<blockquote>RainbowSealife 发表于 2021-4-13 19:06
+第三集最后登场的怪兽有没有可能就是哥斯拉？登场时bgm和第一集片尾出现哥斯拉骸骨貌似是同一首。这作会不 ...</blockquote>
+现在就怕这片只见其名不见其人。下话得换新怪兽上场了。
+
+
+-----
+
+####  jellyfis  
+##### 222#       发表于 2021-4-13 20:04
+
+
+太好看了
+
+
+-----
+
+####  暗黑能乐  
+##### 223#       发表于 2021-4-13 20:09
+
+
+感觉哥斯拉没这么快登场吧，估计五六话左右？
+
+
+-----
+
+####  teecoo00  
+##### 224#       发表于 2021-4-13 20:49
+
+
+总之下集肯定会有新怪兽出场，哥总感觉要下半part再出来了，人类方总要有点发育时间吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 225#       发表于 2021-4-13 21:36
+
+
+这片每话结束都给你吊胃口
+
+话说这版本的拉顿到底怎么回事，开场满天红雾那里真的太可怕了，但好像也没有造成特别严重的灾害反而自己死了一大堆，比那种出场就到处杀人吃人的怪兽还诡异
+
+以及主角感觉已经变成两个AI了艹
+
+
+-----
+
+####  黑岩泪香  
+##### 226#       发表于 2021-4-13 21:39
+
+
+这片我现在都不太确定是什么种类...于是也不知道该用什么心态看待...总不能就盯着彩蛋和“XX好可爱”吧。
+
+
+-----
+
+####  啪嗒啪嗒嘭  
+##### 227#       发表于 2021-4-13 21:49
+
+
+快…………给我………第四集<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  新月祥  
+##### 228#       发表于 2021-4-13 21:58
+
+
+结合日本今天决议排放核废水的新闻，日本人是打算在三次元制造哥斯拉吗
+
+
+-----
+
+####  梦诗歌雪  
+##### 229#       发表于 2021-4-13 23:13
+
+
+<img src="https://img.saraba1st.com/forum/202104/13/231157r12cww4gfc42fyic.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-7a98f65fea36ed63.jpg</strong> (151.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-13 23:11 上传
+
+
+F35都开上了还在用木条轮挡，配个专用的合金轮挡那么难吗<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IL282  
+##### 230#       发表于 2021-4-13 23:52
+
+
+进错片场（）<img src="https://p.sda1.dev/1/1d72079d14497652d5683f9bbca3074b/IMG_CMP_252057459.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cloudslin  
+##### 231#       发表于 2021-4-14 00:23
+
+
+这种SF感比起隔壁要更像我想看的特摄动画，长谷川圭一菜的
+
+
+-----
+
+####  卖报大爷  
+##### 232#       发表于 2021-4-14 00:26
+
+
+<blockquote>RainbowSealife 发表于 2021-4-13 19:06
+第三集最后登场的怪兽有没有可能就是哥斯拉？登场时bgm和第一集片尾出现哥斯拉骸骨貌似是同一首。这作会不 ...</blockquote>
+我印象里真人电影系列哥斯拉一个小时没正式出场的只有雅虎评分倒数第二的最终战役（刚好一小时，另，倒一是噬星者）。
+
+
+-----
+
+####  砂糖天妇罗  
+##### 233#       发表于 2021-4-14 03:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50926809&amp;ptid=1963627" target="_blank">RainbowSealife 发表于 2021-4-13 19:06</a>
+
+第三集最后登场的怪兽有没有可能就是哥斯拉？登场时bgm和第一集片尾出现哥斯拉骸骨貌似是同一首。这作会不 ...</blockquote>
+其实1954年初代哥斯拉一共95分钟左右。哥斯拉第20多分钟才出现了大约5秒。
+
+然后直到影片正好一半左右的时候才正式登场。之前累积只有最多10秒镜头。
+
+全片哥斯拉的镜头也就10分钟左右。
+
+
+-----
+
+####  砂糖天妇罗  
+##### 234#       发表于 2021-4-14 04:59
+
+
+ 本帖最后由 砂糖天妇罗 于 2021-4-14 05:26 编辑 
+
+最后阿银和女主角短信那里的字符14980c8b8a96fd9e279796a61cf82c9c是MD5密码吗？
+
+感觉这次的剧情都在向恐龙的方向引导。电波观测站下面的骸骨被他们称为恐龙的骨架。拉顿是翼龙。最后那个不管是什么怪兽，造型上偏向鱼龙。
+
+也许这次的设定类似时间系，是恐龙通过某种科幻原理，被红砂造成异变改造，并且来到现在的时间。
+
+
+-----
+
+####  战星辰  
+##### 235#       发表于 2021-4-14 06:38
+
+
+pv里好像就有未来改变过去的暗示。
+拉顿还吃电波
+未来电波与人工拉顿可能性微存<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 3, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  acejoe  
+##### 236#       发表于 2021-4-14 07:25
+
+
+恐龙不可能那么小的胃吧
+
+
+-----
+
+####  delta-h  
+##### 237#       发表于 2021-4-14 07:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50919472&amp;ptid=1963627" target="_blank">灼眼的夏娜酱 发表于 2021-4-13 03:17</a>
+这几张图片是第几话里面的？</blockquote>
+pv1
+
+
+-----
+
+####  千恋万花  
+##### 238#       发表于 2021-4-14 08:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50930788&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-14 04:59</a>
+
+最后阿银和女主角短信那里的字符14980c8b8a96fd9e279796a61cf82c9c是MD5密码吗？
+
+感觉这次的剧情都在向恐龙 ...</blockquote>
+解出来其实就是图里后面说的那句「解けばわかる」
+<img src="https://files.catbox.moe/7o4fyr.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  blendocas  
+##### 239#       发表于 2021-4-14 10:01
+
+
+ 本帖最后由 blendocas 于 2021-4-14 10:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50926809&amp;ptid=1963627" target="_blank">RainbowSealife 发表于 2021-4-13 19:06</a>
+
+第三集最后登场的怪兽有没有可能就是哥斯拉？登场时bgm和第一集片尾出现哥斯拉骸骨貌似是同一首。这作会不 ...</blockquote>
+那个bgm就是哥斯拉进行曲，哥总登场专用曲，肯定不会乱用的。
+
+前面80%的时间没有哥斯拉才是正宗的哥斯拉电影啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  iwer  
+##### 240#       发表于 2021-4-14 11:49
+
+
+ 本帖最后由 iwer 于 2021-4-14 15:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50931951&amp;ptid=1963627" target="_blank">blendocas 发表于 2021-04-14 10:01:51</a></blockquote>想说想要那个ai，然后想到我的手机或者电脑根本就不够装的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+-----
+
+####  koodooliz  
+##### 241#       发表于 2021-4-14 14:35
+
+
+ 本帖最后由 koodooliz 于 2021-4-14 14:43 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/142514g8jm2gjsnxhtspgg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210414142400.jpg</strong> (58.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 14:25 上传
+
+
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_WqUrL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+--
+
+3话开头的F-35是301的，JASDF目前唯一的F-35单位，飞行铪蟆（大雾）。<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  砂糖天妇罗  
+##### 242#       发表于 2021-4-14 15:31
+
+
+ 本帖最后由 砂糖天妇罗 于 2021-4-14 15:48 编辑 
+
+因为信息比较零散，所以梳理了一下目前的要点。既然编剧说每句台词都是有意义的，那就很值得推敲。
+
+
+1. 关于第一话的印度民谣。
+
+    Alapu Upala是个回文。
+
+    Alapu是歌谣的意思。而Upala在印度古语中有不同的含义。最常见的意思是“山、石头”的意思。
+
+    歌词里面都是一些零散的词汇。比如“大地、天空、对错、风、复原、神、不灭、根、平衡”等等。Youtube上有印度观众翻译了一下。
+
+值得注意的是，在第一话的开头，出现了很多草稿。其中有类似五线谱的画面。似乎五线谱会通过拓扑学对应转化成某种信息。
+
+
+2. 关于第一话老房子。
+
+    屋子的主人对生物学、演化、生化有研究。但是还对几何学、拓扑学、范畴学也有研究。很可能是暗示着时空相关的内容，而不仅仅是生物。比如上面说的乐谱的变形，也许是暗藏的某种理论。此外第一话和第三话开头孩子声音的对话也暗示着类似时间、因果之类的事情。
+
+    屋主50年前失踪，喜欢旅行。屋子大门上方的徽记，和后来联系女主的那个材料学家的公司logo很像。
+
+
+3. 关于拉顿。
+
+    最明显的是，形态很像现实存在的翼龙。我觉得这部作品的怪物都似乎和现实中的恐龙类似，可能不是随意的设计。如果没有特殊意义，没必要设计成翼龙。也许怪物的来历和现实相关，是现实古代生物的异变或者穿越。
+
+    第三话里的拉顿产生了“进化”。最早出现的时候，和翼龙非常相似。但是在和杰格战斗之后，第二波成群来袭的时候，感觉是进化了。也许是变得战斗特化。最明显的区别，一个是嘴部变得尖锐，再一个是头后方的犄角突起，从翼龙的单个突起，变成了经典拉顿形象的双犄角。由现实变得更加异常。
+
+
+4. 关于科学家们。
+
+    有那么一些细节，可以体现剧中科学家们的领域。
+
+    首先是信号站幻灯片里面的那个长得像庵野秀明的人。幻灯片里显示，他负责的是三号样本的电磁波照射实验。检测的是样品在各种环境下对电磁波的应答。但是三号样品不清楚是啥，最关键是一号和二号是什么。
+
+
+    女主角。是研究空想生物的。听她的描述，就是一种探讨在各种非现实物理环境下生物特性的学科。我觉得可以简单总结成“脑洞生物学”。就是用现有的知识，去幻想非现实的生物。说白了不就是特摄片里的“怪物设定”吗？AI替她整理发表的文章叫《Introduction to Biologia Phantastica》，估计是幻想生物学简介的意思。
+
+
+    那个给女主写信的人，我忘记叫什么了。表面看是研究“胎盘型”分子的，就是指“理论上存在，但是现实中没有做出来的分子”。上面在第2点里说过了，她们公司的标志和老房子的标志很类似。假设是房主相关人士。那么她的研究一定不限于材料，而有更大的野心。从一闪而过的他们公司的网页显示，她发现的那些分子，都是有很神奇的能力，比如冲击吸收、自我增殖等等。
+
+
+    至于送给女主的那个小方块，也有一种神奇的物理效果。男主在短信里，替女主指出来了：方块里的花的转动和方块是相反的。我特地反复看了女主手里方块的那几帧。当女主向上转动方块的时候，方块里面的花却是向下转动。
+
+
+    在她个人的网页上，还有一篇有趣的文章。我看的是网上的标清版本，所以看不清楚，只看了个大概。标题是《Topological dependence of anomalous specific heat in archetype systems》 (原型系统中的异常比热的拓扑学依赖性)。继续读摘要，就知道这个“原型系统”就是指“原型晶体”。似乎当一种罕见的晶体结构破坏现象出现的时候，会出现异常的比热容。联想到第二话拉顿死后会放出大量的热，难道有什么相关性吗？
+
+
+按照编剧的风格，以及严谨一些的科幻作品的套路。一般是在现实基础上，延伸出一个科幻理论。再围绕着这个科幻理论展开剧情。综上所述，总结一下几个可能的展开的点：
+
+
+1. 怪兽的来历是否和现实世界的恐龙相关？是否涉及时间和维度的穿越？怪物的发热、红色的沙子（雾）是否和那个新型分子相关？怪物是由红雾构成的吗？
+
+2. 印度歌谣到底有什么用？是乐谱里藏着秘密（就像真哥斯拉里面的折纸）？还是有某种暗示（比如歌曲名字是回文，而女主角也嘟囔过：生物的发育也是对称的。而新型晶体分子也被称为胎盘型。这些对称意象有没有关联？）？
+
+3. 为什么怪兽会对电波产生回应？
+
+4. AI是否会造反？AI显示出了超强的能力。第一话和第三话开头的对话很像AI。他们也提到人类怎样怎样。
+
+
+谜团的中心，可能就是围绕着那几个科学家展开。所以下一集女主和那个科学家见面，可能会有很多新的信息，期待。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 6战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| forerunner01| + 1|好评加鹅|
+| henry8848| + 1||
+| Eubel| + 1||
+| 時の華| + 1|好评加鹅|
+| 概率边界| + 1|这里“五线谱”更像是微分方程定性理论里的.|
+| 篠川流| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  砂糖天妇罗  
+##### 243#       发表于 2021-4-14 16:31
+
+
+ 本帖最后由 砂糖天妇罗 于 2021-4-14 16:38 编辑 
+
+突然想到一个漏洞：如果那个小方块内的物体和外部旋转方向相反的话。那么如果里面的是一个平行于一面的对角线的竖棍的话——也就是说里面放一个斜着支在方块里的物体的话，当外部旋转的时候，内部逆向旋转不会戳破外壳吗？
+
+动画里是因为方块内的花比较小，所以有足够的空间旋转。但是换个大点东西在里面不就行不通了吗？
+
+
+除非是说这个旋转只是光线折射的问题。
+
+
+-----
+
+####  dingruntian2  
+##### 244#       发表于 2021-4-14 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50935566&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-14 15:31</a>
+
+因为信息比较零散，所以梳理了一下目前的要点。既然编剧说每句台词都是有意义的，那就很值得推敲。
+
+
+1. 关 ...</blockquote>
+一三话孩子的声音很像ai的配音风格，难道ai才是大反派，怪兽是穿越时空的教授造出来拯救人类的？
+
+
+-----
+
+####  nuoer  
+##### 245#       发表于 2021-4-14 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50935566&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-14 15:31</a>
+因为信息比较零散，所以梳理了一下目前的要点。既然编剧说每句台词都是有意义的，那就很值得推敲。
+
+
+1. 关 ...</blockquote>
+<img src="https://p.sda1.dev/1/eee96d55112609ab3c360ad479ddb721/IMG_CMP_64690987.jpeg" referrerpolicy="no-referrer">
+
+根据官网，第三话登场的拉顿是第一话登场的成体
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  nuoer  
+##### 246#       发表于 2021-4-14 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50936487&amp;ptid=1963627" target="_blank">dingruntian2 发表于 2021-4-14 16:46</a>
+一三话孩子的声音很像ai的配音风格，难道ai才是大反派，怪兽是穿越时空的教授造出来拯救人类的？ ...</blockquote>
+就是ai，日文字幕里面直接标注的「ペロペロたち」
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| dingruntian2| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  梦诗歌雪  
+##### 247#       发表于 2021-4-14 17:19
+
+
+<blockquote>dingruntian2 发表于 2021-4-14 16:46
+一三话孩子的声音很像ai的配音风格，难道ai才是大反派，怪兽是穿越时空的教授造出来拯救人类的？ ...</blockquote>
+那两个声音特征太明显了，立马就能听出是钉宫和久野，都是两人最常用的声线，剧中两个ai也是这个声线
+
+
+-----
+
+####  Cloudslin  
+##### 248#       发表于 2021-4-14 18:43
+
+
+ 本帖最后由 Cloudslin 于 2021-4-15 10:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50934913&amp;ptid=1963627" target="_blank">koodooliz 发表于 2021-4-14 14:35</a>
+
+--
+
+3话开头的F-35是301的，JASDF目前唯一的F-35单位，飞行铪蟆（大雾）。</blockquote>
+空自已经首飞的F35有24架（现存23架），其中大部分在302，现在编制还没有填满。301接装F35是去年12月才开始的事。
+
+说起来301除了一架69-8701的二手机以外其他F35都是使用新涂料工艺，外表非常的光滑平整，剧中模型有点细节过多了，另外机体上的铪蟆也没有用新的低可视版，不晓得是为什么
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/184356imxqmqx4rqirqxre.jpg" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-04-14 184041.jpg</strong> (5.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 18:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/14/184402wdalg0dolkldsvln.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210414183831.jpg</strong> (105.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-14 18:44 上传
+
+
+-----
+
+####  koodooliz  
+##### 249#       发表于 2021-4-14 19:28
+
+
+ 本帖最后由 koodooliz 于 2021-4-14 19:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50937616&amp;ptid=1963627" target="_blank">Cloudslin 发表于 2021-4-14 18:43</a>
+空自已经首飞的F35有22架（现存21架），其中大部分在302，现在编制还没有填满。301接装F35是去年12月才开 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">记错了，主要是301这个哈蟆印象太深刻了。
+
+感觉动画里做模型的都不会专门去找对应机队的，一般都是通用的完事。飞机上301这个标直到飞行员出现我才敢认。
+
+
+-----
+
+####  言酱啊啊啊  
+##### 250#       发表于 2021-4-14 20:06
+
+
+开头两个声音就是两个AI的声优，两个（或者之后可能会出现的更多）AI应该是记录员，是以它们的回忆展开故事，应该没有幕后黑手的意思
+第三集的信息，“这是我们还没有很聪明之前的故事”“回头看时…”等等，联系后面的“枯萎花朵再次绽放”“花瓣逆流而上”“那是你做的吗？”，可能后期AI会辅助人类，时间逆流也许也是和AI有关
+
+
+-----
+
+####  书七  
+##### 251#       发表于 2021-4-14 22:36
+
+
+男主设计的ai会根据主人产生变化吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">氛围感真棒，有种诡异的真实感，男主女主都很合胃口
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  nuoer  
+##### 252#       发表于 2021-4-15 01:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50939986&amp;ptid=1963627" target="_blank">书七 发表于 2021-4-14 22:36</a>
+男主设计的ai会根据主人产生变化吗氛围感真棒，有种诡异的真实感，男主女主都很合胃口
+
+  -- 来自  ...</blockquote>
+ai会根据使用者硬件里的数据产生人格
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  nuoer  
+##### 253#       发表于 2021-4-15 01:07
+
+
+nyaa上有个组每周都会放网飞的源，比电视台要早一周，里面自带日文字幕，有兴趣的可以看看
+第四话：https://nyaa.si/view/1372061
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  pharos  
+##### 254#       发表于 2021-4-15 01:08
+
+
+本集信息量很大啊，男女主的时间线似乎不是并行的
+
+
+-----
+
+####  暗黑能乐  
+##### 255#       发表于 2021-4-15 01:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941360&amp;ptid=1963627" target="_blank">pharos 发表于 2021-4-15 01:08</a>
+本集信息量很大啊，男女主的时间线似乎不是并行的</blockquote>
+。。为何这么说，没感觉啊
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  doublehit  
+##### 256#       发表于 2021-4-15 01:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941360&amp;ptid=1963627" target="_blank">pharos 发表于 2021-4-15 01:08</a>
+本集信息量很大啊，男女主的时间线似乎不是并行的</blockquote>
+如果不是平行的那咋解释第三集ai偷机器人还救了男主两人啊
+
+
+-----
+
+####  菲特妹  
+##### 257#       发表于 2021-4-15 02:33
+
+
+感觉可以改成科学存在的怪兽观察日记
+
+
+-----
+
+####  riyaliums  
+##### 258#       发表于 2021-4-15 03:03
+
+
+ 本帖最后由 riyaliums 于 2021-4-15 03:09 编辑 
+
+很好看，不过感觉想做全年龄向，没有任何血腥画面，拉顿也只是袭击建筑
+
+
+还有男主角为什么要碰瓷银时……
+
+
+-----
+
+####  delta-h  
+##### 259#       发表于 2021-4-15 07:14
+
+
+ 本帖最后由 delta-h 于 2021-4-15 11:34 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/113041f9x0teryea8zm8a0.png" referrerpolicy="no-referrer">
+
+
+<strong>82118B139EFA02964F2FB5CDA09A0DFE.png</strong> (335.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 10:30 上传
+
+
+看来ED里最后一cut里的都是会登场的怪兽，
+
+アンギラス就是片尾造型，
+
+pv1里出现的前肢和尾巴应该是是マンダ
+
+
+-----
+
+####  云野十五  
+##### 260#       发表于 2021-4-15 07:19
+
+
+ 本帖最后由 云野十五 于 2021-4-15 07:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941713&amp;ptid=1963627" target="_blank">riyaliums 发表于 2021-4-15 03:03</a>
+
+很好看，不过感觉想做全年龄向，没有任何血腥画面，拉顿也只是袭击建筑
+
+
+还有男主角为什么要碰瓷银时……</blockquote>
+这片子根本卖不了胶吧，做什么全年龄     
+
+
+碰瓷银时草，反正我是看青之驱魔师的，我只会单纯觉得像奥村雪男
+
+
+-----
+
+####  pharos  
+##### 261#       发表于 2021-4-15 09:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941445&amp;ptid=1963627" target="_blank">暗黑能乐 发表于 2021-4-15 01:23</a>
+
+。。为何这么说，没感觉啊
+
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+应该是女主在国外——当晚聊天——男主听到遭遇アンギラス的枪声
+
+
+-----
+
+####  teecoo00  
+##### 262#       发表于 2021-4-15 11:16
+
+
+主要人物大部分都出场了，5话开始怪兽就该陆续登场了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  longrider  
+##### 263#       发表于 2021-4-15 12:59
+
+
+安吉拉斯，这次原型是甲龙吧。所有登场怪兽都是恐龙变异而来，根据女主的推论可能存在时间/位面穿越？
+
+
+-----
+
+####  riyaliums  
+##### 264#       发表于 2021-4-15 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941994&amp;ptid=1963627" target="_blank">云野十五 发表于 2021-4-15 07:19</a>
+
+这片子根本卖不了胶吧，做什么全年龄     
+
+
+碰瓷银时草，反正我是看青之驱魔师的，我只会单纯觉得像奥村雪 ...</blockquote>
+脸型，发型，发色，万事屋……
+
+
+-----
+
+####  砂糖天妇罗  
+##### 265#       发表于 2021-4-15 16:46
+
+
+<blockquote>riyaliums 发表于 2021-4-15 14:14
+脸型，发型，发色，万事屋……</blockquote>
+还有别人在餐馆吃饭的时候，他点了一个巨型甜食。
+
+
+-----
+
+####  云野十五  
+##### 266#       发表于 2021-4-15 17:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50947872&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-15 16:46</a>
+
+还有别人在餐馆吃饭的时候，他点了一个巨型甜食。</blockquote>
+日系动脑子的人不是人均大量摄入甜食吗...
+
+
+-----
+
+####  蛇头  
+##### 267#       发表于 2021-4-15 18:39
+
+
+ 本帖最后由 蛇头 于 2021-4-15 22:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Eubel  
+##### 268#       发表于 2021-4-15 18:57
+
+
+说来，那个小方块，会不会和OP这个方块有关？
+
+看起来像是什么？
+
+正六面体群？
+
+
+屏幕截图(2408).png
+(106.08 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-15 18:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/185433qeggpov00pvbhsoh.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  坂上菠萝  
+##### 269#       发表于 2021-4-15 21:42
+
+
+ 本帖最后由 坂上菠萝 于 2021-4-15 21:47 编辑 
+
+连看四集，然后翻完专楼，又去bgm讨论区转了一圈，太神了，想马上看后续
+
+
+说起来神野和有川在线下都没相见，线上却意气相投这么聊得来，聊天方式也确实很nerd，感觉很有趣。
+
+OPED分镜都是铃木典光，特别是ED帅飞了，神野铭的怪脸也可爱
+
+
+-----
+
+####  梦诗歌雪  
+##### 270#       发表于 2021-4-15 21:54
+
+
+神野推测胚盘型材料能反射未来的能量所以能增幅射入的光线，那为啥平时放着不会增幅普通的光线只有摆好了照激光才有效<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">不过纠结这些民科设定可能也没啥意义
+
+
+既然说到胚盘型分子有穿越时空的效果了，那这些怪兽来自过去或者未来基本可以实锤了吧，拉顿应该就是翼龙穿越过来在这个过程中还在不断变异。不过两人对话又提到分子可能是来自别的世界，平行世界喽？
+
+
+
+
+-----
+
+####  坂上菠萝  
+##### 271#       发表于 2021-4-15 22:34
+
+
+ 本帖最后由 坂上菠萝 于 2021-4-15 22:36 编辑 
+
+[https://game.godzilla-sp.jp/](https://game.godzilla-sp.jp/) 拉顿大量发生，动画官方推出8-bit小游戏
+
+
+<img src="https://img.saraba1st.com/forum/202104/15/223545c5xkbi2cg72g54xi.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (179.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-15 22:35 上传
+
+
+-----
+
+####  HGCG+  
+##### 272#       发表于 2021-4-15 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941994&amp;ptid=1963627" target="_blank">云野十五 发表于 2021-4-15 07:19</a>
+
+这片子根本卖不了胶吧，做什么全年龄     
+
+
+碰瓷银时草，反正我是看青之驱魔师的，我只会单纯觉得像奥村雪 ...</blockquote>
+财团B的软胶已经开卖了
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gpkt43rqtpj20ri0bmqty.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  云野十五  
+##### 273#       发表于 2021-4-15 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50951537&amp;ptid=1963627" target="_blank">HGCG+ 发表于 2021-4-15 22:40</a>
+
+财团B的软胶已经开卖了</blockquote>
+流石财团b
+
+
+-----
+
+####  HGCG+  
+##### 274#       发表于 2021-4-15 23:38
+
+
+正好财团B公布了新的软胶
+<img src="http://wx2.sinaimg.cn/mw690/005EbCHlgy1gpku24159hj30ku0ocai3.jpg" referrerpolicy="no-referrer">
+
+
+哥斯拉·水下型
+<img src="http://wx1.sinaimg.cn/large/005EbCHlgy1gpku23un4xj30xc0xcgnv.jpg" referrerpolicy="no-referrer">
+
+
+曼达
+<img src="http://wx2.sinaimg.cn/large/005EbCHlgy1gpku23xje6j30xc0xcq4v.jpg" referrerpolicy="no-referrer">
+
+
+安吉拉斯
+<img src="http://wx3.sinaimg.cn/large/005EbCHlgy1gpku23y9ovj30xc0xc41r.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx2.sinaimg.cn/mw1024/9657fdc2gy1gpkuo7jlf3j20730art9h.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yguygyu  
+##### 275#       发表于 2021-4-16 05:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50935566&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-14 15:31</a>
+
+因为信息比较零散，所以梳理了一下目前的要点。既然编剧说每句台词都是有意义的，那就很值得推敲。
+
+
+1. 关 ...</blockquote>
+说到这个分子。
+
+我搜遍了全网都没发现“アーキタイプ”和“胎盘”有一丝一毫的关系，完全不知道字幕组是怎么翻出来的，不知道你有什么见解？
+
+
+-----
+
+####  Yidam  
+##### 276#       发表于 2021-4-16 06:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50953082&amp;ptid=1963627" target="_blank">yguygyu 发表于 2021-4-16 05:01</a>
+
+说到这个分子。
+
+我搜遍了全网都没发现“アーキタイプ”和“胎盘”有一丝一毫的关系，完全不知道字幕组是 ...</blockquote>
+我也没看明白字幕组是怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">アーキタイプarchetype，腾讯给的翻译就是原型，包括这个层主他自己也是把archetype翻译成原型，应该是字幕组搞错了
+
+
+-----
+
+####  砂糖天妇罗  
+##### 277#       发表于 2021-4-16 08:27
+
+
+<blockquote>yguygyu 发表于 2021-4-16 05:01
+说到这个分子。
+
+我搜遍了全网都没发现“アーキタイプ”和“胎盘”有一丝一毫的关系，完全不知道字幕组是 ...</blockquote>
+我不懂日语呀。所以我以为是日语里有什么说法...
+
+
+-----
+
+####  angelooo  
+##### 278#       发表于 2021-4-16 09:40
+
+
+<blockquote>HGCG+ 发表于 2021-4-15 23:38
+正好财团B公布了新的软胶
+
+
+</blockquote>
+这个曼达不错，这系列XPLUS大怪兽应该也会跟进吧
+
+
+-----
+
+####  Quantum233  
+##### 279#       发表于 2021-4-16 15:32
+
+
+女主这学历（而且人设塑造完全符合）在acgn里也算高的了吧？  想养钉宫AI
+
+
+-----
+
+####  暗黑能乐  
+##### 280#       发表于 2021-4-16 15:45
+
+
+这第三话最后的确定是哥斯拉了啊，看这模型感觉还有点小可爱
+
+
+-----
+
+####  本间日阳  
+##### 281#       发表于 2021-4-17 12:32
+
+
+没看懂那个花是什么情况……
+
+
+-----
+
+####  菲特妹  
+##### 282#       发表于 2021-4-17 13:05
+
+
+男主AI更贴近传统AI的工具性质，而女主AI的自主能力太强，感觉是进化了
+
+然后女主AI自称她是参考了女主的论文材料构建出来的，也就女主的研究有可能存在某种『奇点』导致了AI的进化
+
+
+-----
+
+####  救死扶伤魔力瞎  
+##### 283#       发表于 2021-4-17 14:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50865797&amp;ptid=1963627" target="_blank">dingruntian2 发表于 2021-4-7 23:13</a>
+中老年男性都喜欢念诗吗</blockquote>
+艺术化的江湖自报家门用语，现实中总以讨要一饭一宿不胜感激结束
+
+—— 来自 OPPO PBAM00, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+-----
+
+####  newise  
+##### 284#       发表于 2021-4-17 15:49
+
+
+海里的大鱼是古史罗？我还以为地下的恐龙骨才是
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  萝卜迷  
+##### 285#       发表于 2021-4-17 16:28
+
+
+JJ下次什么时候登场啊
+
+
+-----
+
+####  幻想风靡_  
+##### 286#       发表于 2021-4-17 21:23
+
+
+op和ed的发售日期定了吗？
+
+
+-----
+
+####  Lokay  
+##### 287#       发表于 2021-4-17 23:11
+
+
+ 本帖最后由 Lokay 于 2021-4-18 15:32 编辑 
+
+玩具实锤了第三话水里的是哥总进化前呀？那所里地下的骨头是啥<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jamella  
+##### 288#       发表于 2021-4-18 04:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50929834&amp;ptid=1963627" target="_blank">IL282 发表于 2021-4-13 16:52</a>
+
+进错片场（）
+
+
+—— 来自 OnePlus IN2020, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+1959雪佛兰impala
+
+
+-----
+
+####  riyaliums  
+##### 289#       发表于 2021-4-18 04:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50953082&amp;ptid=1963627" target="_blank">yguygyu 发表于 2021-4-16 05:01</a>
+
+说到这个分子。
+
+我搜遍了全网都没发现“アーキタイプ”和“胎盘”有一丝一毫的关系，完全不知道字幕组是 ...</blockquote>
+字幕组翻译错了
+
+
+-----
+
+####  钟岚珠  
+##### 290#       发表于 2021-4-18 05:03
+
+
+<blockquote>riyaliums 发表于 2021-4-18 04:47
+字幕组翻译错了</blockquote>
+请问哪里有资源？
+
+
+-----
+
+####  nightCruising  
+##### 291#       发表于 2021-4-18 10:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50973185&amp;ptid=1963627" target="_blank">钟岚珠 发表于 2021-4-18 05:03</a>
+请问哪里有资源？</blockquote>
+age和樱花都阔以看
+
+
+-----
+
+####  哈迪斯兜帽  
+##### 292#       发表于 2021-4-18 18:19
+
+
+第一集前半段好话痨
+
+给我听的头都大了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+硬盘200PB的笔记本，矿老板狂喜。
+
+
+-----
+
+####  钟岚珠  
+##### 293#       发表于 2021-4-18 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974309&amp;ptid=1963627" target="_blank">nightCruising 发表于 2021-4-18 10:31</a>
+
+age和樱花都阔以看</blockquote>
+想看的是最新的第四集，哪怕生肉也行，但就是找不到orz
+
+
+-----
+
+####  蓝色有脚⑨倍速  
+##### 294#       发表于 2021-4-18 22:18
+
+
+第四话熟肉已经出了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  依然荏苒  
+##### 295#       发表于 2021-4-18 22:27
+
+
+三集一口气看完，好棒啊
+
+
+-----
+
+####  言酱啊啊啊  
+##### 296#       发表于 2021-4-18 22:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980178&amp;ptid=1963627" target="_blank">钟岚珠 发表于 2021-4-18 22:16</a>
+想看的是最新的第四集，哪怕生肉也行，但就是找不到orz</blockquote>
+Age有先行生肉，上周蛮早就有了，这周昨天才有
+
+
+-----
+
+####  赛U灵  
+##### 297#       发表于 2021-4-18 22:49
+
+
+好看哦！骨头社动画总有点土土的感觉（？什）就很适合这种扎实的片子（喂）虽然完全不了解哥斯拉但看的很开心<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">3D效果感觉也是融合的不错
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Sorastlos  
+##### 298#       发表于 2021-4-18 23:21
+
+
+能量守恒定律被轻描淡写地打破了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+说实话，受过严格科研训练的人应该先质疑是不是漏算了东西，这个定律就是如此之强力，而且有先例：中微子就是这么被泡利假设出来的。
+
+
+另外提一句，时间晶体（Time Crystal）是存在的，实验上的证据发了17年的science
+
+
+-----
+
+####  杂灰  
+##### 299#       发表于 2021-4-18 23:30
+
+
+好多杂学啊，仿佛在看京极的小说，一边理解一边看片脑子跟不上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  饭冢武也  
+##### 300#       发表于 2021-4-18 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980852&amp;ptid=1963627" target="_blank">杂灰 发表于 2021-4-18 23:30</a>
+
+好多杂学啊，仿佛在看京极的小说，一边理解一边看片脑子跟不上</blockquote>
+和虚实妖怪百物语的味真的像
+
+
+
+
+-----
+
+####  yt5wt2c  
+##### 301#       发表于 2021-4-19 00:13
+
+
+ 本帖最后由 yt5wt2c 于 2021-4-19 00:43 编辑 
+
+编辑
+
+
+-----
+
+####  亚瑟邓特  
+##### 302#       发表于 2021-4-19 00:43
+
+
+男主为啥让女主解那md5，单纯出个迷？
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  angelooo  
+##### 303#       发表于 2021-4-19 01:17
+
+
+所以第四话出场的怪兽是一开始的曼达和最后的安吉拉斯？
+
+按BGM认人，不是认怪的话地下骸骨以及水下型都是哥总，不知道完全体啥时候出来
+
+
+-----
+
+####  nuoer  
+##### 304#       发表于 2021-4-19 01:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981341&amp;ptid=1963627" target="_blank">亚瑟邓特 发表于 2021-4-19 00:43</a>
+男主为啥让女主解那md5，单纯出个迷？
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+因为要发现アーキタイプ和md5一样，只能穷举
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  夜颠覆  
+##### 305#       发表于 2021-4-19 01:49
+
+
+这集讲的东西不少，有些地方停停看看，一集一晃就过了
+
+
+-----
+
+####  夜颠覆  
+##### 306#       发表于 2021-4-19 01:54
+
+
+男女主看来前中期主要就是靠网聊交流了，开头的两渔民心真大，上两集遇到拉顿群还敢出海而且又来到红海中，铺垫了一集的内容，主要人物除了黑皮小女孩都登场了，后面应该要开始激烈起来了吧
+
+
+-----
+
+####  drzas  
+##### 307#       发表于 2021-4-19 02:47
+
+
+我还是很期待编剧要怎么讲世界观圆下去，又怎么让哥斯拉出场的。也很喜欢男女主目前的相处方式。顺便问一下，哥斯拉有哪些值得补的？想乘着这个机会补一下。
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  shiko  
+##### 308#       发表于 2021-4-19 08:55
+
+
+这部的怪物体型是不是太杂鱼了些
+
+
+-----
+
+####  teecoo00  
+##### 309#       发表于 2021-4-19 09:09
+
+
+其实这集好像还出现了加巴拉的影像
+
+
+-----
+
+####  teecoo00  
+##### 310#       发表于 2021-4-19 09:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981707&amp;ptid=1963627" target="_blank">drzas 发表于 2021-4-19 02:47</a>
+
+我还是很期待编剧要怎么讲世界观圆下去，又怎么让哥斯拉出场的。也很喜欢男女主目前的相处方式。顺便问一下 ...</blockquote>
+可以看痞子的新哥斯拉，有兴趣的也可以补初代批站有，然后终焉也还不错
+
+
+-----
+
+####  ttanso  
+##### 311#       发表于 2021-4-19 09:27
+
+
+这只AI实在太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stormist  
+##### 312#       发表于 2021-4-19 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981598&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-4-19 01:54</a>
+
+男女主看来前中期主要就是靠网聊交流了，开头的两渔民心真大，上两集遇到拉顿群还敢出海而且又来到红海中， ...</blockquote>
+这两位渔民这次还不死可谓是全剧最强地球人了
+
+
+-----
+
+####  zxw124570  
+##### 313#       发表于 2021-4-19 09:38
+
+
+苛政猛于拉顿也<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  砂糖天妇罗  
+##### 314#       发表于 2021-4-19 09:46
+
+
+ 本帖最后由 砂糖天妇罗 于 2021-4-20 01:39 编辑 
+<blockquote>drzas 发表于 2021-4-19 02:47
+我还是很期待编剧要怎么讲世界观圆下去，又怎么让哥斯拉出场的。也很喜欢男女主目前的相处方式。顺便问一下 ...</blockquote>
+这里有个游戏喷神james推荐的哥斯拉入门指南：
+[https://b23.tv/xGzq0v](https://b23.tv/xGzq0v)
+
+
+我个人觉得1954年初代必须要看，就当成老电影来看。单作为电影也是很有意思的。其余的其实就都可以随便看。
+
+然后是62年金刚对哥斯拉、64年的魔斯拉对哥斯拉、同年的三大怪兽：地球最大的决战、74年的机械哥斯拉。
+
+
+这几个是哥斯拉最关键的几个吉祥物的初次登场。以后不管翻拍几次，这些角色都会不断被拿出来各种重新演绎。
+
+然后是庵野秀明的新哥斯拉我也比较喜欢。
+
+
+我倒是不同意下面有人说的昭和只看两部。我觉得昭和我上面说的几部都有必要看。
+
+一个是因为这些都是著名怪物的起源，就和美漫英雄起源一样，总要看看第一部。
+
+另一个是因为昭和时期的作品，实际上是属于整个世界怪物片潮流的一部分，深受当时的思潮影响。比如60到70年代，整个西方世界的科幻片都流行外星人入侵的题材。同期哥斯拉里也很好地体现。再比如魔斯拉里面也有对商人的讽刺、黑多拉里有环保和迷幻的手法等等。对于体验和研究世界怪物片历史都有价值。
+
+
+相反，我反而觉得平成之后的作品，直到新哥斯拉之前。都在文化上没有什么特别值得玩味的内容。
+
+
+-----
+
+####  shiko  
+##### 315#       发表于 2021-4-19 09:51
+
+
+<blockquote>drzas 发表于 2021-4-19 02:47
+我还是很期待编剧要怎么讲世界观圆下去，又怎么让哥斯拉出场的。也很喜欢男女主目前的相处方式。顺便问一下 ...</blockquote>
+新时代的，文戏看痞子的真哥斯拉，打戏看华纳的怪兽之王和哥斯拉大战金刚
+
+
+-----
+
+####  angelooo  
+##### 316#       发表于 2021-4-19 10:02
+
+
+<blockquote>stormist 发表于 2021-4-19 09:33
+这两位渔民这次还不死可谓是全剧最强地球人了</blockquote>
+这片的人类都很厉害啊，最强围观群众的那种，印象里拉顿事件也就失踪了13个，也没说是被吃了还是其他原因，第四话最后那个翻倒的车，我还以为车主肯定gg了结果镜头一转这俩居然还能躲在一旁偷看安吉拉斯，就看下一话那车军人会不会倒霉了，目前为止全片死的最多的是拉顿就很搞23333
+
+
+-----
+
+####  Blackson  
+##### 317#       发表于 2021-4-19 10:25
+
+
+下话要面对安吉拉斯了
+
+不过这剧目前出现的老家伙——拉顿和安吉拉斯体型都不是很大(跟奥特系列动不动40~50米左右的怪兽对比来看体型真的很小)
+
+
+-----
+
+####  卖报大爷  
+##### 318#       发表于 2021-4-19 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50981707&amp;ptid=1963627" target="_blank">drzas 发表于 2021-4-19 02:47</a>
+
+我还是很期待编剧要怎么讲世界观圆下去，又怎么让哥斯拉出场的。也很喜欢男女主目前的相处方式。顺便问一下 ...</blockquote>
+总的趋势是越靠后的越符合现在的观影取向。
+
+昭和只推介54初代和对黑多拉，机械哥斯拉和机械哥斯拉的逆袭也可以看看，其他感兴趣的可以看个打斗（B买了老版的金刚对哥斯拉，可以看看）
+
+平成时代气息很浓，个人推介84、89对碧奥兰蒂，其他也是感兴趣可以看看（这个系列剧情是连续的，但84、89是最开始的两部）
+
+新世纪的几部都推介，99、00特摄和场面结合不错（个人00入坑），01年的GMK大力推介（设定最玄幻的一部哥斯拉），02、03是接着的两部曲（龙战四海和东京SOS），系列人文气息最浓的两部，主讲哥斯拉和机械哥斯拉
+
+04最终战役前面一个小时可以快进，后面哥斯拉正式登场可以看个热闹
+
+16版真哥斯拉自不用说，痞子作品，三部传奇的美版里14和19B站都有，看了不亏。
+
+怪兽行星不推介看
+
+
+-----
+
+####  卖报大爷  
+##### 319#       发表于 2021-4-19 11:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50983350&amp;ptid=1963627" target="_blank">Blackson 发表于 2021-4-19 10:25</a>
+
+下话要面对安吉拉斯了
+
+不过这剧目前出现的老家伙——拉顿和安吉拉斯体型都不是很大(跟奥特系列动不动40~50 ...</blockquote>
+这次的奇点G看着也不大，可能也是50米级别的，拉顿安吉拉斯说不定后面体型能变大点。
+
+
+-----
+
+####  jellyfis  
+##### 320#       发表于 2021-4-19 11:27
+
+
+看的头大啊，可是又好看的不行
+
+
+-----
+
+####  夜颠覆  
+##### 321#       发表于 2021-4-19 11:51
+
+
+怪兽的体型小，看访谈好像说为了方便描写普通人（感觉主要是男主）与其对抗，像上一集，PV里也有男主直面安基拉斯的一幕，还有被蜘蛛怪兽推到来着
+
+
+-----
+
+####  云野十五  
+##### 322#       发表于 2021-4-19 12:26
+
+
+呜呜呜，我《正解的卡多》ptsd了，别来立方体了，求求<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。好好讲怪兽不好吗
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  云野十五  
+##### 323#       发表于 2021-4-19 12:32
+
+
+ 本帖最后由 云野十五 于 2021-4-19 20:20 编辑 
+
+回想起当年在后端用过的各种加密方式了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  小姨子的哈士奇  
+##### 324#       发表于 2021-4-19 12:35
+
+
+昨天刚看完只觉得真太扎实了，信息量这么大还井井有条，全程顺滑，一下子时间就过去了
+早上起来回味了一下，觉得这集一下子扩充了太多新内容，新角色有些微妙，真的收的住吗，要是按前三集的格局倒是不让人担心……
+
+
+-----
+
+####  nightCruising  
+##### 325#       发表于 2021-4-19 12:36
+
+
+这AI怎么越来越可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  没取名啊  
+##### 326#       发表于 2021-4-19 12:43
+
+
+ 本帖最后由 没取名啊 于 2021-4-19 12:44 编辑 
+
+说到普通人与怪兽对抗，其实上集这本集与怪兽的对手戏都挺有侏罗纪公园那感觉的，特别是拉顿，简直迅猛龙。目前这么演也挺刺激的，不过还是期待后期出现一些体型更大的怪兽
+
+女主和AI玩词语接龙那段太搞了，我还寻思会不会无意说出哪个词歪打正着就中了呢，结果真就一个没中<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+—— 来自 HUAWEI ELS-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  夜颠覆  
+##### 327#       发表于 2021-4-19 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50985052&amp;ptid=1963627" target="_blank">nightCruising 发表于 2021-4-19 12:36</a>
+
+这AI怎么越来越可爱了</blockquote>
+AI这集又多了不少的表情包，官方不了点解禁啥的吗？做都做出来了，别浪费哈<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗黑能乐  
+##### 328#       发表于 2021-4-19 13:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50982793&amp;ptid=1963627" target="_blank">stormist 发表于 2021-4-19 09:33</a>
+
+这两位渔民这次还不死可谓是全剧最强地球人了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">莫非这就是第三种可能性，强运之人
+
+
+-----
+
+####  书七  
+##### 329#       发表于 2021-4-19 17:34
+
+
+这种慢慢展开的感觉真棒
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  云野十五  
+##### 330#       发表于 2021-4-19 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50985445&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-4-19 13:09</a>
+
+AI这集又多了不少的表情包，官方不了点解禁啥的吗？做都做出来了，别浪费哈 ...</blockquote>
+别问，问就是line表情包
+
+
+
+
+-----
+
+####  AC说君  
+##### 331#       发表于 2021-4-19 22:52
+
+
+ 本帖最后由 AC说君 于 2021-4-19 22:54 编辑 
+
+这一集突然加入几个新人物，事件进展也多了一个视角，再加上AI和女主的以及女主和男主的对话不够有趣，这一集的观感说实话不如前三集
+
+
+-----
+
+####  FanFun  
+##### 332#       发表于 2021-4-19 23:02
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  雾谷路人  
+##### 333#       发表于 2021-4-19 23:03
+
+
+看专楼讨论才知道更新了，企鹅那边为啥写的周四更啊，上当了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夜颠覆  
+##### 334#       发表于 2021-4-19 23:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50992453&amp;ptid=1963627" target="_blank">雾谷路人 发表于 2021-4-19 23:03</a>
+
+看专楼讨论才知道更新了，企鹅那边为啥写的周四更啊，上当了</blockquote>
+企鹅跟的是日本电视台的更新时间，现在字幕组更新的是网飞每周先行一集的资源
+
+
+-----
+
+####  afsd109  
+##### 335#       发表于 2021-4-20 01:27
+
+
+这女主知识偏科太过严重了吧，懂那么多并且还是二十一世纪中叶了结果连md5都不知道？而且到了那个年代量子计算机都没出现吗？
+
+
+-----
+
+####  坂上菠萝  
+##### 336#       发表于 2021-4-20 01:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993596&amp;ptid=1963627" target="_blank">afsd109 发表于 2021-4-20 01:27</a>
+这女主知识偏科太过严重了吧，懂那么多并且还是二十一世纪中叶了结果连md5都不知道？而且到了那个年代量子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">映射到现在，博士中也有不会好好使电脑，最多会用wps的，2030年有不了解md5也正常，不要把大学院生想的太厉害
+
+
+-----
+
+####  cowgp01  
+##### 337#       发表于 2021-4-20 01:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993596&amp;ptid=1963627" target="_blank">afsd109 发表于 2021-4-20 01:27</a>
+
+这女主知识偏科太过严重了吧，懂那么多并且还是二十一世纪中叶了结果连md5都不知道？而且到了那个年代量子 ...</blockquote>
+对自己专业领域外的东西完全没兴趣也不是很新款的人设了吧
+
+
+-----
+
+####  砂糖天妇罗  
+##### 338#       发表于 2021-4-20 01:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993632&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-4-20 01:39</a>
+
+映射到现在，博士中也有不会好好使电脑，最多会用wps的，2030年有不了解md5也正常，不要把大学院 ...</blockquote>
+我是觉得女主的性格蛮奇怪的。有点太卡通了。
+
+比如拿到原型晶体之后，居然直接用牙咬。拍证件照的时候会做鬼脸。虽然卖萌，却又不能说她开朗。虽然是科学生，有时却又看不出科学素养。看不出是一种怎样的塑造。
+
+
+-----
+
+####  坂上菠萝  
+##### 339#       发表于 2021-4-20 01:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993648&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-20 01:45</a>
+我是觉得女主的性格蛮奇怪的。有点太卡通了。
+
+比如拿到原型晶体之后，居然直接用牙咬。拍证件照的时候会 ...</blockquote>
+高学历nerd吧
+
+
+-----
+
+####  砂糖天妇罗  
+##### 340#       发表于 2021-4-20 02:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993698&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-4-20 01:57</a>
+
+高学历nerd吧</blockquote>
+但是一上来就用牙咬未知的晶体，然后自己也没注意晶体的折光特性，又不是很像nerd。
+
+
+-----
+
+####  patchper  
+##### 341#       发表于 2021-4-20 10:17
+
+
+这集怪兽戏份少了，神神叨叨的多了，所以不够有趣。
+
+
+-----
+
+####  暗黑能乐  
+##### 342#       发表于 2021-4-20 10:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得后面追脚印还是可以的，这阿兵哥居然还开的出枪，安吉拉斯也是很仁慈了
+
+
+-----
+
+####  云野十五  
+##### 343#       发表于 2021-4-20 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993648&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-20 01:45</a>
+
+我是觉得女主的性格蛮奇怪的。有点太卡通了。
+
+比如拿到原型晶体之后，居然直接用牙咬。拍证件照的时候会 ...</blockquote>
+不是阿拉蕾吗
+
+
+-----
+
+####  云野十五  
+##### 344#       发表于 2021-4-20 11:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50992432&amp;ptid=1963627" target="_blank">FanFun 发表于 2021-4-19 23:02</a>
+
+日本动画一讲起政治科学感观就直接跳崖</blockquote>
+快进到  正解的卡多
+
+
+-----
+
+####  夜颠覆  
+##### 345#       发表于 2021-4-20 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50995860&amp;ptid=1963627" target="_blank">暗黑能乐 发表于 2021-4-20 10:23</a>
+
+我觉得后面追脚印还是可以的，这阿兵哥居然还开的出枪，安吉拉斯也是很仁慈了 ...</blockquote>
+毕竟宛如新生儿般的安吉拉斯，能有什么坏心思呢<img src="https://static.saraba1st.com/image/smiley/animal2017/009.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  YESIARE  
+##### 346#       发表于 2021-4-21 04:02
+
+
+第四话这自卫队员降智严重啊 虽说拉顿还没拿人类一血 看到那么大一个爪痕好歹汇报一下多带几个人呗
+
+
+-----
+
+####  Azako  
+##### 347#       发表于 2021-4-21 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51006909&amp;ptid=1963627" target="_blank">YESIARE 发表于 2021-04-21 04:02:12</a>
+第四话这自卫队员降智严重啊 虽说拉顿还没拿人类一血 看到那么大一个爪痕好歹汇报一下多带几个人呗 ...</blockquote>自卫队小哥主要是看到那对夫妇了才下去的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，毕竟拉顿这玩意儿会飞，人就躲在那里也不像是拉顿还在的样子
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  暗黑能乐  
+##### 348#       发表于 2021-4-21 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51008993&amp;ptid=1963627" target="_blank">Azako 发表于 2021-4-21 10:37</a>
+
+自卫队小哥主要是看到那对夫妇了才下去的吧，毕竟拉顿这玩意儿会飞，人就躲在那里也不像是拉顿还在 ...</blockquote>
+真要是拉顿，感觉用枪还是能对付的
+
+
+-----
+
+####  云野十五  
+##### 349#       发表于 2021-4-21 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51009318&amp;ptid=1963627" target="_blank">暗黑能乐 发表于 2021-4-21 11:05</a>
+
+真要是拉顿，感觉用枪还是能对付的</blockquote>
+之前不是还有考察战机的吗，这话有没有人考察步枪<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 350#       发表于 2021-4-21 13:30
+
+
+资源每周最快什么时候有？
+
+
+-----
+
+####  冰箱研会长  
+##### 351#       发表于 2021-4-21 14:11
+
+
+BiSH啥时候发EP啊...
+
+这op循环好几遍了...
+
+
+-----
+
+####  书七  
+##### 352#       发表于 2021-4-21 14:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50992432&amp;ptid=1963627" target="_blank">FanFun 发表于 2021-04-19 23:02:06</a>
+日本动画一讲起政治科学感观就直接跳崖</blockquote>这种妄想科学很性感啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  nightCruising  
+##### 353#       发表于 2021-4-21 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51010997&amp;ptid=1963627" target="_blank">达达葱2 发表于 2021-4-21 13:30</a>
+资源每周最快什么时候有？</blockquote>
+age一般周一就能看了
+
+
+-----
+
+####  teecoo00  
+##### 354#       发表于 2021-4-21 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51010997&amp;ptid=1963627" target="_blank">达达葱2 发表于 2021-4-21 13:30</a>
+
+资源每周最快什么时候有？</blockquote>
+生肉周四就有了，字幕组周日或周一出熟肉
+
+
+-----
+
+####  暗黑能乐  
+##### 355#       发表于 2021-4-21 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51011846&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-4-21 14:48</a>
+
+生肉周四就有了，字幕组周日或周一出熟肉</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">原来这么慢的吗，然后腾讯居然更慢？？？
+
+
+-----
+
+####  wfay  
+##### 356#       发表于 2021-4-21 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51012278&amp;ptid=1963627" target="_blank">暗黑能乐 发表于 2021-4-21 15:25</a>
+
+原来这么慢的吗，然后腾讯居然更慢？？？</blockquote>
+因为日本提前一周
+
+
+-----
+
+####  蛇头  
+##### 357#       发表于 2021-4-22 00:28
+
+
+这集感觉没之前带劲啊，文戏有点多。
+
+倒是打渔二人组命真大，这部到现在为止似乎除了拉顿来袭的14人不明外，都是零伤亡。
+
+
+-----
+
+####  hagiwara  
+##### 358#       发表于 2021-4-22 00:43
+
+
+这部不光是打渔二人组命大，到目前为止直接展示人员受伤的镜头也就男主爹开萝卜骨折了。说实话这么多的拉顿也就造成了14人失踪，确实有那么点就这的感觉，而且民间的舆论也是看热闹为主，真没啥危机感
+
+
+-----
+
+####  小皮诺  
+##### 359#       发表于 2021-4-22 01:49
+
+
+非常扎实的硬科幻。阅读完讨论版的信息后又增进了不少认识，感谢~
+
+
+-----
+
+####  HGCG+  
+##### 360#       发表于 2021-4-22 06:59
+
+
+ 本帖最后由 HGCG+ 于 2021-4-22 07:05 编辑 
+
+！！！ ​​​​
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gps59mlaftj21hc0u0nis.jpg" referrerpolicy="no-referrer">
+
+
+喷射虎大战安吉拉斯！
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gps5f1dmatj21hc0u04qp.jpg" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  teecoo00  
+##### 361#       发表于 2021-4-22 08:59
+
+
+安哥脾气真好
+
+
+-----
+
+####  暗黑能乐  
+##### 362#       发表于 2021-4-22 09:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51018720&amp;ptid=1963627" target="_blank">HGCG+ 发表于 2021-4-22 06:59</a>
+
+！！！ ​​​​</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也就欺负欺负小体型的了。。
+
+
+-----
+
+####  teecoo00  
+##### 363#       发表于 2021-4-22 09:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51019367&amp;ptid=1963627" target="_blank">暗黑能乐 发表于 2021-4-22 09:03</a>
+
+也就欺负欺负小体型的了。。</blockquote>
+不过安吉拉斯的体型有在变大
+
+
+                                     
