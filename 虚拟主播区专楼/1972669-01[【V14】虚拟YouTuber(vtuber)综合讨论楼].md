@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-21 16:18** 
+> ## **本文件最后更新于2021-04-22 10:02** 
 
 
 
@@ -1732,4 +1732,371 @@ Syl、麦新衣装
 apex不好看但是好玩啊，csgo虽然比赛看的刺激，自己玩起来强度太大了，门槛也很高，体验一般。像CR看的人是多，但大部分都是看黑黑千七武海这种相声队，核心观众估计娱乐玩家居多，应该不会喜欢瓦洛兰这种高强度竞技游戏
 
 
-                                             
+-----
+
+####  kangkangsama  
+##### 126#       发表于 2021-4-22 02:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51017332&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-4-21 23:18</a>
+
+刺激到她可悲自尊心的留言都很容易被blocked的，而且之前某段打麻将时期感觉是郡道心态最崩的时候了，可 ...</blockquote>
+应该谢谢杂草桑，应该是杂草消的。她自己杂谈的时候应该没那个空。
+
+
+-----
+
+####  cheatdeath3  
+##### 127#       发表于 2021-4-22 02:36
+
+
+说到身法
+
+有没有管人打quake<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 128#       发表于 2021-4-22 07:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">valo大会3w4,玩dtn传统艺能2w9，抓了这么群人玩什么不好,就连闇ゲーム都不一定比valo差
+
+
+-----
+
+####  渡鸦骑士  
+##### 129#       发表于 2021-4-22 09:04
+
+
+看了一眼虹楼，彩虹的新卡在路上了呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  烯丝短尾猫  
+##### 130#       发表于 2021-4-22 09:48
+
+
+大佐这B自从怪猎r和马娘一出来，上一次播p5r都一个月前了，我因为这个开了新档自己2周目都快打完了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Porsche  
+##### 131#       发表于 2021-4-22 09:48
+
+
+趁着自己还看管的时候把当时烂尾的星空学园黑历史发在在线文档了，有志者可以后续补充或者修改
+
+没听说过星空学园的也可以当普及简单了解一下这家运营
+[https://docs.google.com/document ... hG6fAPmspBLCIk/edit](https://docs.google.com/document/d/1kxdWg2YoWo91Yqp-bGeHoHZGtscG_hG6fAPmspBLCIk/edit)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|感谢整理|
+
+
+查看全部评分
+
+
+-----
+
+####  真飞鸟i  
+##### 132#       发表于 2021-4-22 10:15
+
+
+ 本帖最后由 真飞鸟i 于 2021-4-22 10:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51019371&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-4-22 09:04</a>
+
+看了一眼虹楼，彩虹的新卡在路上了呢</blockquote>
+记得是说可能五月出吧。
+
+
+-----
+
+####  rzrbtk  
+##### 133#       发表于 2021-4-22 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51018342&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-4-22 02:00</a>
+应该谢谢杂草桑，应该是杂草消的。她自己杂谈的时候应该没那个空。</blockquote>
+确实有可能，那就感谢真正郡p杂草哥吧<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">…
+
+
+-----
+
+####  winda  
+##### 134#       发表于 2021-4-22 10:57
+
+
+ 本帖最后由 winda 于 2021-4-22 10:59 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/22/105559c8ttjp41484i3l8p.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-699376559.jpg</strong> (47.19 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-22 10:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/22/105629e2dw2udwa1ed3zu2.png" referrerpolicy="no-referrer">
+
+
+<strong>unknown.png</strong> (88.86 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-22 10:56 上传
+
+
+虽然人设很戳我，但uiha演不好这种悲剧女主角吧<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 135#       发表于 2021-4-22 11:56
+
+
+DUSTCELL - 命の行方（[https://www.youtube.com/watch?v=xbveKspBcEc](https://www.youtube.com/watch?v=xbveKspBcEc)）
+
+
+其实还不错听……mv倒是有”我学动画三年的朋友“的感觉，不过在我心里都不如乐园，春野P来救救啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 136#       发表于 2021-4-22 12:34
+
+
+<img src="https://img.saraba1st.com/forum/202104/22/123450u15g1v1gylzook1h.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (47.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-22 12:34 上传
+
+
+-----
+
+####  Aminor  
+##### 137#       发表于 2021-4-22 13:02
+
+
+这也太短命了吧
+
+
+-----
+
+####  OldGlory  
+##### 138#       发表于 2021-4-22 13:23
+
+
+早该死死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hemis  
+##### 139#       发表于 2021-4-22 13:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">死得其所
+
+
+-----
+
+####  死体残留  
+##### 140#       发表于 2021-4-22 15:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">看了下推都在可怜狐狸和船长的，看来木口时运还未绝
+
+
+-----
+
+####  真飞鸟i  
+##### 141#       发表于 2021-4-22 15:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏暴毙木口本来就没责任啊。
+
+
+-----
+
+####  winda  
+##### 142#       发表于 2021-4-22 15:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试问有几个v能舔到田中公平的，这舔完快速88burden简直赚到
+
+
+-----
+
+####  qq845629713  
+##### 143#       发表于 2021-4-22 15:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 其他人在田中眼里是好是坏不清楚，木口这几位在田中眼里是声望拉满了，以后再合作好伐
+
+
+-----
+
+####  渡鸦骑士  
+##### 144#       发表于 2021-4-22 16:07
+
+
+其实已经在游戏之外合作了，可怜的sega<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 145#       发表于 2021-4-22 16:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51023676&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-4-22 15:04</a>
+看了下推都在可怜狐狸和船长的，看来木口时运还未绝</blockquote>
+不然呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  podball  
+##### 146#       发表于 2021-4-22 17:00
+
+
+合作内容不是说还没出吗
+
+
+-----
+
+####  noHentai  
+##### 147#       发表于 2021-4-22 17:03
+
+
+<img src="https://p.sda1.dev/1/820860cbe92bf946a00b3c66f4429f01/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 148#       发表于 2021-4-22 17:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51025018&amp;ptid=1972669" target="_blank">空集 发表于 2021-4-22 16:53</a>
+不然呢
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当笑话啊，一开始声优启用这个话题起来原因就是cv启用作为转推奖励和原来樱战系列粉需求对不上才起来的啊
+
+
+-----
+
+####  空集  
+##### 149#       发表于 2021-4-22 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51025263&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-4-22 17:13</a>
+当笑话啊，一开始声优启用这个话题起来原因就是cv启用作为转推奖励和原来樱战系列粉需求对不上才 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 那自然大把当笑话的 未必公开回在里面 自己建个里垢阴湿一下还可以防被出警
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  SuntoryNomu  
+##### 150#       发表于 2021-4-22 17:47
+
+
+<blockquote>NIJISANJI KR @NIJISANJI_KR
+
+
+【Nijisanji虚拟驾驶员试镜会举行】
+
+
+我们正在寻找Nijisanji的新驾驶员。
+
+任何有广播才能的人都可以申请！🎮🎤🎥
+
+
+谢谢您的许多申请。✨</blockquote>
+
+申请表格：[https://forms.gle/TKHvVHCFaarajPjq7](https://forms.gle/TKHvVHCFaarajPjq7)
+
+
+<img src="https://img.saraba1st.com/forum/202104/22/174605ehuccczivii190vn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EzjoZTQVUAE__JJ.jpg</strong> (398.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-22 17:46 上传
+
+
+
+
+-----
+
+####  free  
+##### 151#       发表于 2021-4-22 17:56
+
+
+烂货圆脸一会居然还要播学英语，你杏en都凉了大半了，现在才想起来跪舔欧美，真是吃屎都赶不上热乎的
+
+封面还是管粉丝乞讨来的，这个烂东西乞讨封面，乞讨fanart，乞讨粉丝数真是有一套
+
+烂东西
+
+烂东西
+
+烂东西
+
+真想打断她四肢
+
+
+<img src="https://img.saraba1st.com/forum/202104/22/175602s0kl00kf9xdxfiud.png" referrerpolicy="no-referrer">
+
+
+<strong>烂货.png</strong> (48.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-22 17:56 上传
+
+
+-----
+
+####  qq845629713  
+##### 152#       发表于 2021-4-22 17:57
+
+
+<blockquote>방송언어 : 한국어</blockquote>
+
+
+你们还好意思招韩语主播啊，直接说要日韩双语的不行么?
+
+
+                                            
