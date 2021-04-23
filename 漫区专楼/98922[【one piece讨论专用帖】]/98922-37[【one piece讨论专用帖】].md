@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-20 12:53** 
+> ## **本文件最后更新于2021-04-23 09:40** 
 
 
 
@@ -6706,17 +6706,7 @@ jinzhang</blockquote>
 ####  faust123  
 ##### 54537#       发表于 2021-3-4 09:25
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504307&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-3-4 05:11</a>
-
-马尔科越牛就越显得白胡子担心伤亡不复仇的借口SB
-
-老年白胡子再不济，比之凯多应该还是稍胜半筹。既然马尔 ...</blockquote>
-白胡子这人个人感觉还是挺。。爱好和平的？
-
-能大碗吃肉大碗喝酒儿女满堂的经济条件满足了，仗能不打就不打
-
-毕竟是个渴望家人的过日子人
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7072,11 +7062,11 @@ jinzhang</blockquote>
 还比如，九尾，木叶的人有多讨厌九尾这不用我多说吧。按照火影的叙述，宇智波是因为被怀疑控制九尾而被村子排挤。那么问题来了，为什么作为宇智波一族的佐助没有被像鸣人那样对待呢？按照木叶村民的一贯作风，他们一定会各种议论，佐助的状况应该不比鸣人好哪去，但是有吗？
 
 而且作为木叶消息最灵通的人，在鼬洗白前二十来话，自来也都表示一直以来所有人的观点都是九尾是天灾，妙木山的**蟆也这么认为。也就是说，宇智波和九尾之乱没关系，高层也没把宇智波和九尾联系起来，更不要说因为这个排挤宇智波，我们看漫画（370话）
-<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_VJzLS" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_oCL3d" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_rT6hB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_a40U8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_kR4PY" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
+<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_D5Wx4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_C81oH" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_qZ622" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_fvNPv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_y0BiQ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
 
 也就是说，这个时候，宇智波被灭，还是因为鼬是个变态神经病杀了全家，不是什么排挤猜忌，就是因为他个人而已。
 
@@ -7089,12 +7079,12 @@ jinzhang</blockquote>
 虽然宇智波开头就被岸本写死了，但是我们得说，宇智波是一个超级大的家族，非常大。
 
 首先，人家有自己的武器药品供应商，极有可能是只服务于宇智波的，因为木叶显然不知道，不然他们在搜索的时候怎么也得来这看看吧，可是他们只是带着忍犬到处找，也就是说木叶对此是不知道的。
-<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_vMYZ3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_qC6H3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_rWqSb" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
-<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_vjbYx" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_vXF7g" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_PE08J" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
+<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_nHIy1" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_UyDyb" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_sAg0X" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
+<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_u3mcM" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_Gz4OT" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_RUZS6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
 
 首先他们得有钱吧，其次他们得有时间吧，最后他们得有人吧，你看他们还有闲心在椅子后面画画呢。
 
@@ -8010,8 +8000,7 @@ queen那么菜的吗</blockquote>
 ####  faust123  
 ##### 54638#       发表于 2021-3-11 11:22
 
-
-玉田儿道，糖糖连载
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -10975,4 +10964,331 @@ VS
 大妈这是小丑皇吧，莫名其妙的剧情太多了。跟好女婿真是不是一家人不进一家门。
 
 
-                   
+-----
+
+####  luoyianwu  
+##### 54904#       发表于 2021-4-20 21:22
+
+
+草，你玉甚至不需要果实就能打四皇
+
+
+-----
+
+####  Algie  
+##### 54905#       发表于 2021-4-20 21:27
+
+
+以前以为百兽海贼团人均战狼半兽人狠得一批，后来发现全员缝合怪奇美拉比罗缝得都离谱，⑧行
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  先手必胜  
+##### 54906#       发表于 2021-4-21 00:53
+
+
+玉皇大帝！
+
+
+-----
+
+####  届得到  
+##### 54907#       发表于 2021-4-21 14:05
+
+
+对四皇专用宝具
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 54908#       发表于 2021-4-21 14:19
+
+
+小玉可是未来海贼王的嫂子啊，区区四皇吃个瘪也是瞧得起你😜
+
+
+-----
+
+####  qzfjnv  
+##### 54909#       发表于 2021-4-21 14:35
+
+
+凯哥，咱别打了，外面都是玉皇的人<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  memo2  
+##### 54910#       发表于 2021-4-21 16:05
+
+
+看傻了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  memo2  
+##### 54911#       发表于 2021-4-21 16:07
+
+
+大妈你的仁义就是痛击己方队友吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  羲和  
+##### 54912#       发表于 2021-4-21 19:20
+
+
+那看来大妈这个切换灵魂的情况以前经常出现啊…
+
+
+-----
+
+####  angelooo  
+##### 54913#       发表于 2021-4-21 19:37
+
+
+我没想法了，随便吧......
+
+
+-----
+
+####  小黑鱼  
+##### 54914#       发表于 2021-4-21 19:44
+
+
+布琳：？？？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  汤圆です  
+##### 54915#       发表于 2021-4-21 20:36
+
+
+凯多只是上楼顶打一架，世界就全变了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  evangelina  
+##### 54916#       发表于 2021-4-22 08:40
+
+
+凯多最后不会被小玉驯服变龙给桃之助当宠物吧，模仿桃太郎传说...
+
+
+-----
+
+####  谢皮利男爵  
+##### 54917#       发表于 2021-4-22 09:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿凯打着打着发现自己琴酒化了
+
+
+-----
+
+####  qzfjnv  
+##### 54918#       发表于 2021-4-22 10:49
+
+
+好家伙，在上面打超新星都没用过霸气，下来对着盟友一发霸王色缠绕<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tyauto  
+##### 54919#       发表于 2021-4-22 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51020748&amp;ptid=98922" target="_blank">qzfjnv 发表于 2021-4-22 10:49</a>
+
+好家伙，在上面打超新星都没用过霸气，下来对着盟友一发霸王色缠绕</blockquote>
+大妈:"其实也是刚学会的信不信？"<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  届得到  
+##### 54920#       发表于 2021-4-22 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51019937&amp;ptid=98922" target="_blank">谢皮利男爵 发表于 2021-4-22 09:48</a>
+
+阿凯打着打着发现自己琴酒化了</blockquote>
+废物-废物-死亡
+
+窝里横-凯多-卧底
+
+卧底-废物-卧底
+
+
+-----
+
+####  真红眼教授  
+##### 54921#       发表于 2021-4-22 11:37
+
+
+看见小孩子变成修女人格我觉得也还行啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  羲和  
+##### 54922#       发表于 2021-4-23 02:48
+
+
+虽然这个剧情真是有点飘，但是这话分镜好棒，好几个镜头都有以前的感觉了
+
+
+-----
+
+####  gutzz  
+##### 54923#       发表于 2021-4-23 03:09
+
+
+尾田明明还能画出这么干净的分镜，为什么前面就是要填得脏兮兮的呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  拉萨乌姆  
+##### 54924#       发表于 2021-4-23 11:36
+
+
+“仁义”
+
+
+-----
+
+####  zxzx7753  
+##### 54925#       发表于 2021-4-23 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51003321&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-4-20 20:07</a>
+
+我悟了，小玉这角色就是出来机械降神的
+
+原本百兽凯多手下500个动物系吹得响当当，实际表现出来就是群杂兵， ...</blockquote>
+当年两果实克御田 20年后克回来咋了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zxzx7753  
+##### 54926#       发表于 2021-4-23 12:48
+
+
+大妈才是真自由  想吃就吃想杀就杀  一切全凭自己高兴  谁也不敢说个不<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千里夜雨  
+##### 54927#       发表于 2021-4-23 12:55
+
+
+ 本帖最后由 千里夜雨 于 2021-4-23 13:19 编辑 
+
+神秘剧情，全网狂骂
+
+我看了一眼全图，问题是用震御雷打基德时也拉丝了
+这不就是霸王色霸气的特效吗
+虽然说从这一话才开始用霸王色确实说不过去，
+但总比第一次用打自己人身上合理一点点
+
+
+-----
+
+####  届得到  
+##### 54928#       发表于 2021-4-23 13:18
+
+
+玉皇大帝是真的牛逼
+
+
+-----
+
+####  COINCIDENCE  
+##### 54929#       发表于 2021-4-23 13:22
+
+
+<blockquote>真红眼教授 发表于 2021-4-22 11:37
+看见小孩子变成修女人格我觉得也还行啊</blockquote>
+但是修女是心怀不轨，想控制和卖孩子的呀。
+
+如果修女没有和大妈融魂，我觉得可以是大妈效仿心中的完美修女做出的样子。但是如果融了魂，或者性格由修女主导的话，那就太诡异了。
+
+
+-----
+
+####  真红眼教授  
+##### 54930#       发表于 2021-4-23 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51034147&amp;ptid=98922" target="_blank">COINCIDENCE 发表于 2021-4-23 13:22</a>
+
+但是修女是心怀不轨，想控制和卖孩子的呀。
+
+如果修女没有和大妈融魂，我觉得可以是大妈效仿心中的完美修 ...</blockquote>
+毕竟只是看图透猜的，还得等剧情解释
+
+不管是模仿修女还是真修女，至少表面上表现的喜欢小孩子都是很正常的
+
+
+
+
+-----
+
+####  羲和  
+##### 54931#       发表于 2021-4-23 14:36
+
+
+大妈的设定一直都不给说明白按以前的模式是后边有大坑要填，现在我真觉得就是懒得画了…
+
+
+-----
+
+####  chaoslee  
+##### 54932#       发表于 2021-4-23 15:04
+
+
+修女不是当初打算搞完大妈那一票就金盆洗手的么，而且当时好像都是把孤儿卖给海军当兵，不是等于送进体制内么
+
+
+-----
+
+####  klzxs  
+##### 54933#       发表于 2021-4-23 15:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在海上最自由的便是海贼王
+
+路飞你能自由过大妈?
+
+
+-----
+
+####  tyauto  
+##### 54934#       发表于 2021-4-23 16:00
+
+
+贴吧看到版本更新技能解锁最大的受益者其实是路飞他爹龙，顶级体术/武装色流樱/霸王色缠绕/自然系觉醒...解锁的顶级技能里除了见闻色未知外其他他都会<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  银翼的维罗西  
+##### 54935#       发表于 2021-4-23 17:38
+
+
+这剧情挺合理的，尾田不是一直说不知道怎么战胜四皇团吗，这下凯多团内忧外患，女儿是内鬼，三主力12不和，中层干部心怀不满，盟友随时反水，反观敌方身负国仇家恨视死如归，又有主角团光环加护，这下要素齐全了，可以说是符合了一个大集团崩溃的所有征兆，这剧情合理。
+
+
+                  
