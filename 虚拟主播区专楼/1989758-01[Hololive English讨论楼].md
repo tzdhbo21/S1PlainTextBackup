@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-21 05:44** 
+> ## **本文件最后更新于2021-04-23 15:52** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_g3iR7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_lZEtX" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -6749,4 +6749,519 @@ Clara的fa越来越多了</blockquote>
 女儿是官设么？
 
 
-                                   
+-----
+
+####  wiig  
+##### 422#       发表于 2021-4-21 13:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51011015&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-21 13:32</a>
+
+女儿是官设么？</blockquote>
+MC和SIM4里Kiara提到过，如果和Calli有孩子希望是女儿，就叫她clara，这周直播表里有SIM4，有人问她计划做什么，她说“造娃”
+
+
+-----
+
+####  wiig  
+##### 423#       发表于 2021-4-21 19:50
+
+
+<img src="https://p.sda1.dev/1/5b5c6c69e09e5f9a9bad3608942795cd/IMG_CMP_193433054.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  PureIllusion  
+##### 424#       发表于 2021-4-21 20:20
+
+
+/vt/版最大势力/hlgg/串的众生图，过于传神。我居然看懂了八九成
+<img src="https://p.sda1.dev/1/6a70fd5fb5199376c7335f2282188708/WelcomeToHLGG _1_.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|纯度...**的提高了|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 425#       发表于 2021-4-21 20:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51015583&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-4-21 20:20</a>
+
+/vt/版最大势力/hlgg/串的众生图，过于传神。我居然看懂了八九成</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202104/21/204834w4vy2fv2gs0zbcss.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (33.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 20:48 上传
+
+
+请问这个部分是什么东西？
+
+
+-----
+
+####  wiig  
+##### 426#       发表于 2021-4-21 20:50
+
+
+mamaloni的抱枕画好了
+<img src="https://p.sda1.dev/1/8676298a85e6b995fcb6ae11f10b5e5d/IMG_CMP_237510610.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/dc9bc9ef6e7695edbd377ea00ed5d80b/IMG_CMP_243212792.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 427#       发表于 2021-4-21 21:34
+
+
+takamori正式离婚（x
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 428#       发表于 2021-4-21 21:48
+
+
+Calli也有在玩尼尔2
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 429#       发表于 2021-4-21 22:20
+
+
+Kiara想high five，意外暴露了有三只手<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PureIllusion  
+##### 430#       发表于 2021-4-21 22:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51015829&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-21 20:48</a>
+
+请问这个部分是什么东西？</blockquote>
+星街喝果汁，历史比较久，不太熟，举个图
+<img src="https://p.sda1.dev/1/cddd1d228a4635fbe0cd07b9187b2079/1.png" referrerpolicy="no-referrer">
+
+
+dumb fuck juice，来源不清楚，P图最近常见
+<img src="https://p.sda1.dev/1/dbfd941972536dc34cb27d0cbcabc82b/2.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/e0f27f46194dfd03516bbeb11e678449/3.png" referrerpolicy="no-referrer">
+
+
+最右是执着于发ENMA黄图的。
+
+右二是“Orange HATE”，最初是因为讨厌Kiara（有时加上可可）的配色，逐渐发展成anti标签（难辨真伪）。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 431#       发表于 2021-4-21 22:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">Kiara的大头挡了两次打boss的钉子
+
+
+-----
+
+####  wiig  
+##### 432#       发表于 2021-4-21 22:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">两个小时了Kiara不知道RB是哪个键
+
+
+-----
+
+####  wiig  
+##### 433#       发表于 2021-4-22 00:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">our daughter 气氛热烈
+
+
+-----
+
+####  wiig  
+##### 434#       发表于 2021-4-22 01:41
+
+
+<img src="https://p.sda1.dev/1/1def5defc8c6ccf55dbf167bed87effc/IMG_CMP_37239482.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  PureIllusion  
+##### 435#       发表于 2021-4-22 06:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51015856&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-21 20:50</a>
+
+mamaloni的抱枕画好了</blockquote>
+[https://youtu.be/j8khI5ir-O8?t=1347](https://youtu.be/j8khI5ir-O8?t=1347)
+
+这个对应关系居然是正确的。（MAMALONI是怎么知道的？）
+
+不过Ame和Gura画的还是ENMA，估计Jenma是Kiara自己想推的。前几天Kiara还说Ina那里的AO-chan是ENMA。
+
+
+-----
+
+####  wiig  
+##### 436#       发表于 2021-4-22 08:48
+
+
+<img src="https://p.sda1.dev/1/846fb233403dd58e7ab0a3cc002e70a5/IMG_CMP_232219554.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 437#       发表于 2021-4-22 08:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51018715&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-4-22 06:57</a>
+https://youtu.be/j8khI5ir-O8?t=1347
+
+这个对应关系居然是正确的。（MAMALONI是怎么知道的？）
+
+不过Ame和 ...</blockquote>
+ao-chan就是enma吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">我一直以为是第四个stf
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 438#       发表于 2021-4-22 09:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51018715&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-4-22 06:57</a>
+
+https://youtu.be/j8khI5ir-O8?t=1347
+
+这个对应关系居然是正确的。（MAMALONI是怎么知道的？）
+
+不过Ame和 ...</blockquote>
+画过那么多次翻唱的封面，可能是交接的时候和Jenma确认的
+
+
+-----
+
+####  wiig  
+##### 439#       发表于 2021-4-22 13:29
+
+
+Bubba代播<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 440#       发表于 2021-4-22 15:20
+
+
+<img src="https://p.sda1.dev/1/e28f8fa28cf8c531a31995735080cf39/IMG_CMP_31254755.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 441#       发表于 2021-4-22 21:39
+
+
+Ame: Don't worry! The stream is not gonna end--
+
+*直播已结束
+
+
+-----
+
+####  wiig  
+##### 442#       发表于 2021-4-23 07:17
+
+
+<img src="https://p.sda1.dev/1/a2e1c0fece4e3fa71080dc016336d1d9/20210423_071618.jpg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 443#       发表于 2021-4-23 10:58
+
+
+超量放送<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/742184f7fe79c557e0e8231081886027/IMG_CMP_108227981.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 444#       发表于 2021-4-23 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51030643&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-23 07:17</a>
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+没想到是反过来的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+Ina：快走Ame，只要你安全我就放心了
+Ame：我不能丢下你！
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 445#       发表于 2021-4-23 20:55
+
+
+Ame骚话统计
+
+to Gura：I was listenin from the shower,Ina and I ...
+
+to Ina: I'm in the bath right now
+
+to calli: I'm actually naked right now
+
+
+-----
+
+####  wiig  
+##### 446#       发表于 2021-4-23 22:13
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/221305n8iaaga9b9r88fxa.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (80.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:13 上传
+
+
+Coming at you quite a bit earlier than usual! I had some extra time today, so I planned far ahead.
+
+One less stream than usual this coming week, but I am trying to wind down a bit. I think we will still have a blast together! :}
+
+
+-mori
+
+
+-----
+
+####  smy20011  
+##### 447#         楼主| 发表于 2021-4-23 22:39
+
+
+补了下iname，抽风中2344
+
+
+-----
+
+####  wiig  
+##### 448#       发表于 2021-4-23 22:48
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/224747js88sl78sstufhfz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (446.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/224755w5g5kvjd27jslxw7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (457.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/224802dwejcejj1eth7bki.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (426.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/224807u1zg8g0dlatqqiq1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (389.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/224818ttqbzqu2euhthpee.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (219.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/224823bcsoxfobsbozjqbx.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (312.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/224827xqjhfkk4hfkrfhxk.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (58.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/224831z2trts8uuzszjtny.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (97.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:48 上传
+
+
+-----
+
+####  wiig  
+##### 449#       发表于 2021-4-23 22:52
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/225230jpjsp2xrnb1nv9es.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (171.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 22:52 上传
+
+
+-----
+
+####  wiig  
+##### 450#       发表于 2021-4-23 23:39
+
+
+Kiara下周休三天，搬家到有正常网络的公寓，明天MC在JP服，未来takamori都会玩groove coaster
+
+
+
+
+-----
+
+####  wiig  
+##### 451#       发表于 2021-4-23 23:44
+
+
+ 本帖最后由 wiig 于 2021-4-23 23:47 编辑 
+
+[https://youtu.be/wenbMXfDfkA](https://youtu.be/wenbMXfDfkA)
+
+Fleeting Time | An AmeSame Film
+
+<img src="https://img.saraba1st.com/forum/202104/23/234611qsnjm9mxonvvgg8n.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (315.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 23:46 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/234748jz8423suzxh3obok.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (277.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 23:47 上传
+
+
+                                  

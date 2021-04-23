@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-20 02:54** 
+> ## **本文件最后更新于2021-04-23 15:48** 
 
 
 
@@ -6560,4 +6560,335 @@ mhr太香了古战场又放置了
 下面不是极皮就是鸡皮武了吧
 
 
-                               
+-----
+
+####  jxzeroga0  
+##### 15544#       发表于 2021-4-20 11:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50996028&amp;ptid=1158205" target="_blank">usoda 发表于 2021-4-20 10:33</a>
+扫荡就不说了，什么时候能实装龙约那种auto功能我就考虑回来做十天超限 ...</blockquote>
+龙约也解决不了活动里面会带ex触发的循环auto设计，我觉得联想到召唤1.0单机化，八成是准备引入龙约每日登陆送扫荡票的机制。
+
+
+-----
+
+####  镜hinata  
+##### 15545#       发表于 2021-4-20 11:42
+
+
+就是想拖最上层的玩家，结果变成了更滚雪球，伤害得最多的反而是下面的，只能说这波太🐮🍺
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  zerorin  
+##### 15546#       发表于 2021-4-20 12:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又改44后一万一箱，减少古战场次数。又要玩家刷天星器，怕是2.0系统彻底的失败之后连个新东西都憋不出来了
+
+
+-----
+
+####  Yeaha123  
+##### 15547#       发表于 2021-4-20 12:47
+
+
+古战给点追求，刷起来不会那么枯燥，可以理解，问题主要是星本吧
+
+
+-----
+
+####  usoda  
+##### 15548#       发表于 2021-4-20 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50996934&amp;ptid=1158205" target="_blank">jxzeroga0 发表于 2021-4-20 11:39</a>
+
+龙约也解决不了活动里面会带ex触发的循环auto设计，我觉得联想到召唤1.0单机化，八成是准备引入龙约每日 ...</blockquote>
+把星本改成龙约团本活动的EX门票掉落制呗 我觉得挺合理的
+
+虽然龙约自己的单人活动EX机制至今也不修改让我也挺纳闷的
+
+
+-----
+
+####  windlikeman  
+##### 15549#       发表于 2021-4-20 15:02
+
+
+星本出个NM难度HL难度素材多出点就完事了 都不需要加扫荡
+
+或者天星器真化和锈武转属素材小调整一下（这个没戏 很多人已经做完了）
+
+2021还搁这刷VH星本呢
+
+
+-----
+
+####  欠陷制品  
+##### 15550#       发表于 2021-4-20 15:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">没想到gbf竟然变成了木剑/石剑/铁剑/钻石剑村头砍猪的游戏
+
+
+-----
+
+####  初雪绫  
+##### 15551#       发表于 2021-4-20 16:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卡了天星器  nmmd   要么砸金要么等公会战  看到2姐那b3000增伤更是想吐   34倒是猛起来了挺值得做的 6爹永远滴神
+
+
+-----
+
+####  Sylpheed  
+##### 15552#       发表于 2021-4-20 17:17
+
+
+出个1000………面的星本也勉强能接受<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leafS  
+##### 15553#       发表于 2021-4-20 17:19
+
+
+怎么可能挡住顶层猎金玩家啊，人直接ffj突破天星器还省一堆天光卷，界限后拿更强的人物继续猎金，也就证稍微卡一卡，唯一受伤害的就是中层玩家和新人。
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  404489039  
+##### 15554#       发表于 2021-4-20 17:35
+
+
+天人我都很久没拿出来了用，贤者也就有部分机制比较特殊，例如暗啊 暗啊能用用。领域也就是舔头做不做没所谓。现在限定一届比一届强。中层新人存存石头井限定不更好。这就是给头部玩家拉开差距和每天上线有事干而已
+
+
+-----
+
+####  Troll☆Star  
+##### 15555#       发表于 2021-4-20 23:01
+
+
+开始变成猎金的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">嗯刷新就完事了，都是刷新，大巴不比星本强
+
+
+-----
+
+####  吾乃啊噗  
+##### 15556#       发表于 2021-4-20 23:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51001443&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-4-20 17:17</a>
+出个1000………面的星本也勉强能接受
+
+—— 来自 Sony J9110, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我仔细想了一下 我觉得这个确实不错
+
+
+-----
+
+####  yueyut  
+##### 15557#       发表于 2021-4-21 01:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51001443&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-4-20 17:17</a>
+
+出个1000………面的星本也勉强能接受
+
+
+—— 来自 Sony J9110, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+1000面的星本要多少次才必出一个特殊星本呢。。
+
+
+-----
+
+####  shinitakute  
+##### 15558#       发表于 2021-4-21 10:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我靠沙盒好难打，任务做不完拿不到加属性的书
+
+恶魔精还要靠9-3，9张票出一次BOSS一次三个精啊我死了
+
+[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  信玄誠司  
+##### 15559#       发表于 2021-4-21 13:52
+
+
+感觉天人150要求solo对应属性的超法才有突的资格应该也不是什么不可能的事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  macshi  
+##### 15560#       发表于 2021-4-21 14:00
+
+
+现在有官方挂，solo个超法不也是分分钟<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  peh  
+##### 15561#       发表于 2021-4-21 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51011290&amp;ptid=1158205" target="_blank">macshi 发表于 2021-4-21 14:00</a>
+
+现在有官方挂，solo个超法不也是分分钟</blockquote>
+开挂又不给翅膀
+
+
+-----
+
+####  Sylpheed  
+##### 15562#       发表于 2021-4-21 15:22
+
+
+ 本帖最后由 Sylpheed 于 2021-4-21 15:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51006250&amp;ptid=1158205" target="_blank">yueyut 发表于 2021-4-21 01:16</a>
+1000面的星本要多少次才必出一个特殊星本呢。。</blockquote>
+我是说新出啊，不是让改，而且像我这种住akx的，特殊星本本来也不打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这样追求效率和挂机两种情况都有本打，至于是多少面这个不重要，重要的是能让我长时间挂在那不用管<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且并不看好扫荡，扫荡限制了次数的话也没啥大用，官方会给无限扫荡也不用干闭着眼睛按0这种蠢事了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  eyeego  
+##### 15563#       发表于 2021-4-21 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51011290&amp;ptid=1158205" target="_blank">macshi 发表于 2021-4-21 14:00</a>
+现在有官方挂，solo个超法不也是分分钟</blockquote>
+开挂不给solo称号啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黄昏的轮回  
+##### 15564#       发表于 2021-4-21 20:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正这个超限刚开我就看出来了，不是给我用的，不减负我就不做，等减负个一年我差不多可以开始做。我这种咸鱼玩家难道真的在乎那么点提升吗，毕竟法桑还是坐的慈善车混螺丝
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  zzy516232108  
+##### 15565#       发表于 2021-4-21 22:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在士兵还有做的必要吗？说实话不知道士兵和其他跑T职业有什么优势，比如武僧
+
+6属方阵人，不知道要不要搞个士兵玩玩
+
+
+-----
+
+####  yueyut  
+##### 15566#       发表于 2021-4-22 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51016586&amp;ptid=1158205" target="_blank">zzy516232108 发表于 2021-4-21 22:10</a>
+
+现在士兵还有做的必要吗？说实话不知道士兵和其他跑T职业有什么优势，比如武僧
+
+6属方阵人，不知道要 ...</blockquote>
+士兵曾经是很全面的职业，毕竟子弹种类多，但现在已经被兽王机神等功能性更强的职业所取代了。
+
+
+士兵现在唯一的用法是天圣职武兵，每回合自动释放技伤，说白了就是把姬塔变成了nmn这种自动炮角色，跑t就是刷新a，靠自动技伤打输出。现环境比较强势的是2猪枪的火士兵，其他暗土风兵也偶尔能见到，比较小众。除风以外，其他士兵都需要老王盘，毕竟技伤上限词缀都是氪金武器才有的，只有风龙刀例外。
+
+
+-----
+
+####  Sylpheed  
+##### 15567#       发表于 2021-4-22 01:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51016586&amp;ptid=1158205" target="_blank">zzy516232108 发表于 2021-4-21 22:10</a>
+现在士兵还有做的必要吗？说实话不知道士兵和其他跑T职业有什么优势，比如武僧
+
+6属方阵人，不知道要 ...</blockquote>
+去年土团为了回复用的土士兵，只能说fa难堪大用，特别遇到驱散boss脑淤血。
+大巴要不是武僧启动慢，职武最大收益需要打奥义，估计也没士兵什么事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  zzy516232108  
+##### 15568#       发表于 2021-4-22 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51017651&amp;ptid=1158205" target="_blank">yueyut 发表于 2021-4-22 00:01</a>
+
+士兵曾经是很全面的职业，毕竟子弹种类多，但现在已经被兽王机神等功能性更强的职业所取代了。
+
+
+士兵现在 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">那就不做了，反正我也不撕大巴，平时用武僧也够了
+
+
+-----
+
+####  zzy516232108  
+##### 15569#       发表于 2021-4-22 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51018078&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-4-22 01:02</a>
+
+去年土团为了回复用的土士兵，只能说fa难堪大用，特别遇到驱散boss脑淤血。
+
+大巴要不是武僧启动慢，职武 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">感谢解答，那我还是继续武僧跑T吧，双龙刀风武僧无比强
+
+
+-----
+
+####  syndrome2032  
+##### 15570#       发表于 2021-4-22 09:43
+
+
+这个星晶兑换怎么还是只能50个一拉。不能一次还完一个月的480限额吗。
+
+
+
+
+-----
+
+####  信玄誠司  
+##### 15571#       发表于 2021-4-23 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51019882&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-4-22 09:43</a>
+
+这个星晶兑换怎么还是只能50个一拉。不能一次还完一个月的480限额吗。</blockquote>
+不要为难猴子啊，突破界面一次全选突破素材的功能现在还没上呢，做事总得一件一件做不是<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+                              

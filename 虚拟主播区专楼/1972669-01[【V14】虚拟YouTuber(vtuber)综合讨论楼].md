@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-22 10:02** 
+> ## **本文件最后更新于2021-04-23 16:20** 
 
 
 
@@ -2099,4 +2099,382 @@ DUSTCELL - 命の行方（[https://www.youtube.com/watch?v=xbveKspBcEc](https://
 你们还好意思招韩语主播啊，直接说要日韩双语的不行么?
 
 
-                                            
+-----
+
+####  真飞鸟i  
+##### 153#       发表于 2021-4-22 18:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怎么是kr，本社呢，虽然kr大概是虹海外发展最好的（不算vr的话）？
+
+
+-----
+
+####  winda  
+##### 154#       发表于 2021-4-22 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本社没招到人的旧皮扔到kr去处理也太真实了吧
+
+
+-----
+
+####  神影依  
+##### 155#       发表于 2021-4-22 18:45
+
+
+HH这期视频日综味比较浓，不过还挺好笑的。脱力食堂：让田中姬笑到脱力的食堂节目。
+
+看起来很靠谱实际是丈育的雏被看起来很疯实际却意外靠谱的姬一个一个指正读音这种反差萌真是让人无法拒绝。
+
+
+-----
+
+####  free  
+##### 156#       发表于 2021-4-22 18:53
+
+
+就这么一个32岁的圆脸，小学生水平的英语说了快一小时，还有3000多人在看，杏人小学都没毕业的么，天天看这种傻了吧唧的32岁圆脸<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202104/22/185257wqyh12l2w2nl13rx.png" referrerpolicy="no-referrer">
+
+
+<strong>烂货圆脸.png</strong> (118.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-22 18:52 上传
+
+
+-----
+
+####  真飞鸟i  
+##### 157#       发表于 2021-4-22 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51026454&amp;ptid=1972669" target="_blank">free 发表于 2021-4-22 18:53</a>
+
+就这么一个32岁的圆脸，小学生水平的英语说了快一小时，还有3000多人在看，杏人小学都没毕业的么，天天看这 ...</blockquote>
+空妈是买赞了吗。
+
+
+-----
+
+####  langsheng  
+##### 158#       发表于 2021-4-22 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51026735&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-4-22 19:19</a>
+
+空妈是买赞了吗。</blockquote>
+免费这一点等于1000个点赞<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ShuTk4O  
+##### 159#       发表于 2021-4-22 19:28
+
+
+空妈买免费了
+---
+不对，免费是无价的
+
+
+-----
+
+####  ylssb10438  
+##### 160#       发表于 2021-4-22 19:28
+
+
+舒服了，每天的快乐源泉
+
+
+-----
+
+####  wiig  
+##### 161#       发表于 2021-4-22 19:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">就是本人
+
+
+-----
+
+####  zore  
+##### 162#       发表于 2021-4-22 19:51
+
+
+第四个皮还有点gbr的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+尤德里克呢,难道有人选上了?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 163#       发表于 2021-4-22 19:56
+
+
+虹杏总订阅加起来比韩国人口多要多了你抽尼玛的KR啊，我决战兵器EN呢？
+
+
+-----
+
+####  rzrbtk  
+##### 164#       发表于 2021-4-22 20:08
+
+
+我最近（半年）一直在看韩女的asmr，好棒，跟日本人不同方向的棒，感觉左一皮挺适合的，也该来个asmr特攻了吧
+
+
+-----
+
+####  Suny08  
+##### 165#       发表于 2021-4-22 20:10
+
+
+看棒妹打lol挺有意思的，虽然她们的lol技术应该都是平常陪男友练出来的啊
+
+
+-----
+
+####  hulaoda007  
+##### 166#       发表于 2021-4-22 20:26
+
+
+  所以什么时候注入一下本社新血呢...？找些要干些没见过的事的人进来吧...不然都要闷的不行了。
+
+
+-----
+
+####  rzrbtk  
+##### 167#       发表于 2021-4-22 21:16
+
+
+ 本帖最后由 rzrbtk 于 2021-4-22 21:34 编辑 
+
+郡道抽卡后精神崩溃必学兔子老师说话，治愈<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，
+
+原作老师好像也来看热闹了，不错诶<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+29日23時～
+
+空けておいてくれたら嬉しいです。
+
+
+【大切なお知らせ】引退ではないです【にじさんじ/郡道美玲】 youtu.be/37N2DJWUD3c @YouTubeより
+
+
+难怪突然会限<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kangkangsama  
+##### 168#       发表于 2021-4-22 21:38
+
+
+<blockquote>rzrbtk 发表于 2021-4-22 21:16
+郡道抽卡后精神崩溃必学兔子老师说话，治愈，
+
+原作老师好像也来看热闹了，不错诶[f:0 ...</blockquote>
+还是有点怕不是好消息的
+
+
+-----
+
+####  rzrbtk  
+##### 169#       发表于 2021-4-22 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51028179&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-4-22 21:38</a>
+还是有点怕不是好消息的</blockquote>
+那必定是郡快半年前谜语的“我三四月有很厉害的大事要宣布”啊，可能是小事（对我们来说），但绝不可能是坏事（对她来说）
+
+
+-----
+
+####  FCCHua  
+##### 170#       发表于 2021-4-23 13:21
+
+
+怎么还b限谜语的，两个池面<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 171#       发表于 2021-4-23 16:05
+
+
+<blockquote>NIJISANJI KR @NIJISANJI_KR
+
+
+【Nijisanji的新驾驶员登场】
+
+
+我们正在透露新驱动程序的名称和帐户！</blockquote>
+세피나 :
+
+@Seffyna2434
+[https://youtube.com/channel/UCeGendL8CO5RkffB6IFwHow](https://youtube.com/channel/UCeGendL8CO5RkffB6IFwHow)
+
+
+송미아 :
+
+@SongMia2434
+[https://youtube.com/channel/UCyqzU2nq7eGNi4kN0uHx7TA](https://youtube.com/channel/UCyqzU2nq7eGNi4kN0uHx7TA)
+
+
+반하다 :
+
+@BanHada2434
+[https://youtube.com/channel/UCLjx3lqIkYkPCBJop8czJ2A](https://youtube.com/channel/UCLjx3lqIkYkPCBJop8czJ2A)
+
+
+#니지산지 #NIJISANJI_KR
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/160500bc8e7te7bfi6tw7q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EzpK83EVEAEO0YQ.jpg</strong> (513.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 16:05 上传
+
+
+-----
+
+####  qq845629713  
+##### 172#       发表于 2021-4-23 16:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 从彩虹kr抽卡频率看棒子女性就业率，
+
+
+-----
+
+####  noHentai  
+##### 173#       发表于 2021-4-23 21:08
+
+
+<img src="https://p.sda1.dev/1/26e742f5fe01099f1e3e72ae51e7111c/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 174#       发表于 2021-4-23 21:11
+
+
+首周不到1w5吧……
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  mus2012  
+##### 175#       发表于 2021-4-23 21:13
+
+
+就这么点么，估计生涯累积破5000就到头了
+
+
+-----
+
+####  noHentai  
+##### 176#       发表于 2021-4-23 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51039377&amp;ptid=1972669" target="_blank">mus2012 发表于 2021-4-23 21:13</a>
+
+就这么点么，估计生涯累积破5000就到头了</blockquote>
+没，这第3天的了，初动估计跟楼上说的差不多吧
+
+
+-----
+
+####  mus2012  
+##### 177#       发表于 2021-4-23 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51039417&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-4-23 21:17</a>
+
+没，这第3天的了，初动估计跟楼上说的差不多吧</blockquote>
+回去看了下之前的楼层，这趋势不好说吧一万五 
+
+
+-----
+
+####  空集  
+##### 178#       发表于 2021-4-23 21:28
+
+
+ 本帖最后由 空集 于 2021-4-23 22:11 编辑 
+
+阿这 稀客太监mus2012 发言记录每个都是典 
+说起来虽然杏现在对en没啥新鲜感 但是4ch虹人间歇期待田角的饼到底啥时候出呢  不知道你怎么看 毕竟你刚说杏奴都不在乎en了觉得不该提这玩意了嘛，看来田角和你想法不太一样。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  神影依  
+##### 179#       发表于 2021-4-23 22:35
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/223540lzqpuph0p4o77ikj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-04-23-22-26-50-951_tv.danmaku.bili.jpg</strong> (195.05 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-23 22:35 上传
+
+
+-----
+
+####  FCCHua  
+##### 180#       发表于 2021-4-23 22:39
+
+
+她俩这是不是第一次联动直播？罕见
+
+
+
+
+-----
+
+####  free  
+##### 181#       发表于 2021-4-23 23:08
+
+
+恋乃夜舞这位，大家熟悉吗，怎么绿帽坛又有很多人说这是sio的了
+
+[https://www.youtube.com/channel/UCgttI8QfdWhvd3SRtCYcJzw](https://www.youtube.com/channel/UCgttI8QfdWhvd3SRtCYcJzw)
+
+
+-----
+
+####  wiig  
+##### 182#       发表于 2021-4-23 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51040493&amp;ptid=1972669" target="_blank">free 发表于 2021-4-23 23:08</a>
+
+恋乃夜舞这位，大家熟悉吗，怎么绿帽坛又有很多人说这是sio的了
+
+
+https://www.youtube.com/channel/UCgttI8 ...</blockquote>
+肯定不是，sio新转生那个皮不是正在休息吗
+
+
+                                           
