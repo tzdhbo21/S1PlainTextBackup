@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-23 15:45** 
+> ## **本文件最后更新于2021-04-24 12:54** 
 
 
 
@@ -7335,4 +7335,415 @@ rp一定是给和野男人私联小号的放的烟雾弹</blockquote>
 今晚无了啊
 
 
-                          
+-----
+
+####  雪风utopia  
+##### 14192#       发表于 2021-4-24 11:27
+
+
+你楼已经没人说话了吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14193#       发表于 2021-4-24 11:30
+
+
+不动说个屁…老子忙得很没空搭理傻逼女人
+
+
+-----
+
+####  Dualist彩  
+##### 14194#       发表于 2021-4-24 11:36
+
+
+你楼正统在贴贴，贴贴正统在你楼罢了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 14195#       发表于 2021-4-24 11:37
+
+
+小麻回老家相亲还要说啥<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+说她热情似火 吵到邻居吗<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 14196#       发表于 2021-4-24 12:04
+
+
+粉红坦克室内生活音放送:运动中脱出奇怪的叫声的话，金盾就到手了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  往世雷书  
+##### 14197#       发表于 2021-4-24 12:05
+
+
+动的不是Mea，是你自己的心<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  专业划水人员  
+##### 14198#       发表于 2021-4-24 12:09
+
+
+救救m楼
+
+
+-----
+
+####  黒長直姫  
+##### 14199#       发表于 2021-4-24 13:08
+
+
+说什么呢？不然发动下大家多p点日v废水图分散下小麻的关注度？
+
+[  -- 来自 能搜索的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+
+
+-----
+
+####  肥到终点  
+##### 14200#       发表于 2021-4-24 13:11
+
+
+来点烤肉教程吧，论一个视频如何由生到熟
+
+
+-----
+
+####  llconforever  
+##### 14201#       发表于 2021-4-24 13:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要救你楼？整点贝贝活不就行了
+
+
+-----
+
+####  肥到终点  
+##### 14202#       发表于 2021-4-24 13:16
+
+
+同接密码:感知树<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14203#       发表于 2021-4-24 13:41
+
+
+建议官号动一下，玩一手先引后洗，make mea great again!<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14204#       发表于 2021-4-24 14:44
+
+
+啥**玩意儿，要学烤肉批站不是大把教程
+下午要做东西没空，晚上再说，虽然我推荐去看文森特大佬的aeg教程，猴子都能学会怎么套模板做字幕。
+
+
+-----
+
+####  JY要塞  
+##### 14205#       发表于 2021-4-24 17:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">那么想让坦克民圆梦该找谁呢
+
+
+-----
+
+####  Dualist彩  
+##### 14206#       发表于 2021-4-24 17:40
+
+
+不知道小麻有没有自己的cos服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14207#       发表于 2021-4-24 17:52
+
+
+你好有的，还和我玩过
+
+
+-----
+
+####  Joffre✔  
+##### 14208#       发表于 2021-4-24 17:56
+
+
+那定是没有的 那么大的体型得定做 可贵了 小麻可不爱花这么多钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 14209#       发表于 2021-4-24 18:56
+
+
+要寂寞力
+
+
+-----
+
+####  路人辰  
+##### 14210#       发表于 2021-4-24 18:59
+
+
+20210424东京19点
+
+
+<img src="https://img.saraba1st.com/forum/202104/24/185927pnnn66cyf7b7d9uc.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2AF03D0A-92B0-4F8A-B6CA-E5C1B158DD48.jpeg</strong> (192.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-24 18:59 上传
+
+
+-----
+
+####  路人庚  
+##### 14211#       发表于 2021-4-24 19:07
+
+
+你咩姐怕不是是忘记这个定时投稿了，还是手机发的推（人应该不在电脑前，会去哪里了呢
+
+
+-----
+
+####  Mr.shelter  
+##### 14212#       发表于 2021-4-24 19:08
+
+
+好甜<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 14213#       发表于 2021-4-24 19:09
+
+
+等等这次居然是有曲绘混音和pv的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 14214#       发表于 2021-4-24 19:12
+
+
+ 本帖最后由 路人辰 于 2021-4-24 19:30 编辑 
+
+20210424东京20点
+
+<img src="https://img.saraba1st.com/forum/202104/24/192943a2lk9tb1bvui42t2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7256CF91-C2C3-414A-88C5-89C178BC3CBC.jpeg</strong> (342.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-24 19:29 上传
+
+
+-----
+
+####  Dualist彩  
+##### 14215#       发表于 2021-4-24 19:13
+
+
+混子哥你来啦<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 14216#       发表于 2021-4-24 19:21
+
+
+帅气翻唱爱了爱了
+
+
+-----
+
+####  A2014720  
+##### 14217#       发表于 2021-4-24 19:22
+
+
+这次还不错啊
+
+
+-----
+
+####  路人庚  
+##### 14218#       发表于 2021-4-24 19:24
+
+
+英文的声线挺不错的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pei23333  
+##### 14219#       发表于 2021-4-24 19:45
+
+
+ 本帖最后由 pei23333 于 2021-4-24 19:47 编辑 
+
+你咩终于发现她原来有个能免费出pv和调音的组了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千木唯  
+##### 14220#       发表于 2021-4-24 19:48
+
+
+ 本帖最后由 千木唯 于 2021-4-24 19:50 编辑 
+
+调音又不是他组调的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+他组不就一个在pv组的crew调音大将了，人家才不愿意没事给你咩工作呢
+
+
+
+
+-----
+
+####  A2014720  
+##### 14221#       发表于 2021-4-24 19:50
+
+
+混子哥凭什么能一直当工具人<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千木唯  
+##### 14222#       发表于 2021-4-24 19:51
+
+
+本来我这想做这个pv的，被组先做了还行。<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14223#       发表于 2021-4-24 19:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你以为别人当了五六年工具人，其实说不定两个孩子都是人家的
+
+
+-----
+
+####  D麦林  
+##### 14224#       发表于 2021-4-24 19:53
+
+
+那有没有**麻麻的色图（唐突）
+
+
+-----
+
+####  A2014720  
+##### 14225#       发表于 2021-4-24 19:59
+
+
+那小视频到哪里去了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14226#       发表于 2021-4-24 20:01
+
+
+一定是麻麻的肉体给他用的太多了，不用就吃亏了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14227#       发表于 2021-4-24 20:04
+
+
+听说有小视频我来了<img src="https://p.sda1.dev/1/3e68e1ac492b4d7910d7e1e6dc2fb0c3/1805ACE07191C876EB7EB3BFE2AFE940.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14228#       发表于 2021-4-24 20:05
+
+
+咩：我可以给你上一次，你就帮我调下音呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|硬了|
+
+
+查看全部评分
+
+
+-----
+
+####  时间在我手中  
+##### 14229#       发表于 2021-4-24 20:12
+
+
+这PV，忽然对自己有信心起来了，半个月时间估计我也能上了，虽然听说好像原版也就这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等我把aeg拆字和贝塞尔函数那几块学会用了再说先
+
+
+-----
+
+####  A2014720  
+##### 14230#       发表于 2021-4-24 20:14
+
+
+你先和麻麻联系上先<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14231#       发表于 2021-4-24 20:15
+
+
+v家一图流pv基本都这样吧，其实用ppt都能做出来
+
+
+                         
