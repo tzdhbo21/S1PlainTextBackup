@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-22 02:01** 
+> ## **本文件最后更新于2021-04-24 08:00** 
 
 
 
@@ -1586,11 +1586,7 @@ https://www.bilibili.com/video/BV1Ly4y1b77a
 ####  longrider  
 ##### 122#       发表于 2021-4-7 23:25
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50865797&amp;ptid=1963627" target="_blank">dingruntian2 发表于 2021-4-7 23:13</a>
-
-中老年男性都喜欢念诗吗</blockquote>
-老头那段是模仿歌舞伎登场词吧，しばらく　しばらく
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -2241,10 +2237,7 @@ ai声优是攻壳小机器人吗？</blockquote>
 ####  longrider  
 ##### 179#       发表于 2021-4-10 16:53
 
-
-第三话真不错，14分钟这里的配乐是王大伯吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
-
-—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3044,7 +3037,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_WqUrL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_HmVBg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -3458,8 +3451,7 @@ pv1里出现的前肢和尾巴应该是是マンダ
 ####  longrider  
 ##### 263#       发表于 2021-4-15 12:59
 
-
-安吉拉斯，这次原型是甲龙吧。所有登场怪兽都是恐龙变异而来，根据女主的推论可能存在时间/位面穿越？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4680,4 +4672,348 @@ age一般周一就能看了
 不过安吉拉斯的体型有在变大
 
 
-                                     
+-----
+
+####  leleq  
+##### 364#       发表于 2021-4-22 10:20
+
+
+那个水泥罐的楼梯是伸缩的么看样子不像啊？为啥关门时会被砸掉？
+
+
+这片故意不拍死人是什么意图呢？尤其2个渔夫还要用一秒特意说一下没事 太刻意了吧
+
+
+-----
+
+####  夜颠覆  
+##### 365#       发表于 2021-4-22 10:46
+
+
+还以为俩渔民人没了，不拍死人确实有点奇怪，最多就侧面说多少人挂了
+
+
+-----
+
+####  夜颠覆  
+##### 366#       发表于 2021-4-22 10:51
+
+
+拉顿群来袭的时候也只是说失踪了，是别有用意，还是片方要求，或者单纯监督不喜欢
+
+
+-----
+
+####  gaosf  
+##### 367#       发表于 2021-4-22 11:03
+
+
+ 本帖最后由 gaosf 于 2021-4-22 11:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51020346&amp;ptid=1963627" target="_blank">leleq 发表于 2021-4-22 10:20</a>
+
+那个水泥罐的楼梯是伸缩的么看样子不像啊？为啥关门时会被砸掉？
+
+
+这片故意不拍死人是什么意图呢？尤其2个 ...</blockquote>
+楼梯不是伸缩的，是升降的，这个可以看第4集13:30左右，BB他们刚进入防爆门的时候。楼梯本来是在防爆门上方，防爆门开启后再降下去，形成到深处的通路。他们逃上来之后楼梯来不及收到门的上方去，防爆门关闭的时候就把楼梯挤碎了。之所以设计成这样大概是为了防止底下有什么东西沿着楼梯爬上来吧。
+
+
+-----
+
+####  Lokay  
+##### 368#       发表于 2021-4-22 12:12
+
+
+船都沉了，结果后面新闻还要提一下俩渔民平安救出，确实有点奇怪，曼达尾巴一顿狂甩也硬是没打到直升机；上一话结尾的兵哥哥成功初见杀一枪打伤安哥，估计也是没事；弹开子弹那里也是，给个是险些打到男主的镜头，但结合到后面安哥可以预见未来的猜想，可以认为是连弹开子弹后子弹打到哪里也是安哥选择的？
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  klmmmx  
+##### 369#       发表于 2021-4-22 13:09
+
+
+Netflix这次不是一次性放出全集吗？
+
+这种徐徐展开的危机感真棒啊
+
+
+-----
+
+####  leleq  
+##### 370#       发表于 2021-4-22 15:20
+
+
+ 本帖最后由 leleq 于 2021-4-22 15:24 编辑 
+
+自己想了一些可能的原因 
+
+1 分级 出现尸体可能增加年龄限制 网飞当初特意说了 staff觉得死不死都行无所谓 于是就拍成这样了
+
+2 故意减少恐怖感 使得整个故事里的日常保持在一个微妙平衡状态（如果出现大量死人就不会有这集的老年猎人像春游般的轻松感了）
+
+3 准备后面来个大的 直接血流成河 吓掉观众下巴<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梦诗歌雪  
+##### 371#       发表于 2021-4-22 22:57
+
+
+安吉拉斯能弹开子弹为啥就认定是预知未来了，就不能只是通过刺的振动展开了一层防护罩吗，这起码没有预知未来那么离谱吧
+
+
+-----
+
+####  Wqr_  
+##### 372#       发表于 2021-4-23 00:13
+
+
+一下看了四集 感觉挺不错的，是个人在这季度最喜欢的番了
+
+不过热度好低啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  drzas  
+##### 373#       发表于 2021-4-23 00:30
+
+
+毕竟有看见在主动地调整刺的位置，有这种想法也正常。但感觉还是可以展示更多的证据出来，否则有点太跳跃了。
+另外看完真哥斯拉了，怪兽片拍成这个样子真的太棒了，压迫感十足，我也比较喜欢痞子的文戏，整部片子给我的感觉非常好
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Freakyyu  
+##### 374#       发表于 2021-4-23 01:31
+
+
+一次看完四集，刺激，真刺激。
+就是我一直在想这个AI程序的动画效果一个人的话需要做多久……
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  菲特妹  
+##### 375#       发表于 2021-4-23 01:46
+
+
+六花对那个『原型』的假想推测是光线是在未来时间轴中叠加到现在这个位置，这个推测基于她的多维生物的假设性研究
+
+这么看来怪兽的进化，其实就可以理解成进化之后怪兽所在的时间轴出现在这个位置，所以表现为短时间像进化了一样
+
+然后那个六花那个AI整理了六花的研究，也大概根据这个理论实现了自我进化，所以表现出与男主AI原型不一样的更高度的智能。
+
+
+-----
+
+####  Lynn冰翎  
+##### 376#       发表于 2021-4-23 09:36
+
+
+<blockquote>Freakyyu 发表于 2021-4-23 01:31
+一次看完四集，刺激，真刺激。
+
+就是我一直在想这个AI程序的动画效果一个人的话需要做多久……
+</blockquote>
+往好处想，说不定是个24小时自我学习旧anime来给动画效果整活的ai
+
+
+-----
+
+####  Lynn冰翎  
+##### 377#       发表于 2021-4-23 09:40
+
+
+在那个时间点做出“这家伙能预知未来”的判断的合理性也太低了……我觉得后面不太可能补上archetype会影响人的心智之类的设定，所以这个桥段看上去是剧情疯狂赶进度的体现，非常出戏。我倾向于认为主角是实验室里常见的带队大佬，而不是这种一下就蒙对正确答案的超人，这个抄答案一样的情节经不起推敲。
+
+
+-----
+
+####  Freakyyu  
+##### 378#       发表于 2021-4-23 09:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51031485&amp;ptid=1963627" target="_blank">Lynn冰翎 发表于 2021-4-23 09:36</a>
+往好处想，说不定是个24小时自我学习旧anime来给动画效果整活的ai</blockquote>
+有理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  pulotocore  
+##### 379#       发表于 2021-4-23 09:59
+
+
+这集画面一股子痞子味儿
+
+
+-----
+
+####  梦诗歌雪  
+##### 380#       发表于 2021-4-23 12:39
+
+
+<blockquote>drzas 发表于 2021-4-23 00:30
+毕竟有看见在主动地调整刺的位置，有这种想法也正常。但感觉还是可以展示更多的证据出来，否则有点太跳跃了 ...</blockquote>
+关键刺振动的时候还有彩虹折射特效，正常人看见这个一般都是会理解为生成了某种能量场吧，“主动”调整刺的位置也并不是看画面而不经过计算就能得出的结论，看上去就只是全身的刺都在振动而已。这里直接得出预知未来的结论给人的感觉就像少看了半集一样
+
+
+-----
+
+####  幻想风靡_  
+##### 381#       发表于 2021-4-23 14:00
+
+
+怎么感觉了楼里的讨论像是第五集都看完了一样？
+
+
+-----
+
+####  qinsiwei54745  
+##### 382#       发表于 2021-4-23 14:24
+
+
+楼里的人都能预知未来
+
+
+-----
+
+####  clamp07830  
+##### 383#       发表于 2021-4-23 14:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51034539&amp;ptid=1963627" target="_blank">幻想风靡_ 发表于 2021-4-23 14:00</a>
+怎么感觉了楼里的讨论像是第五集都看完了一样？</blockquote>
+因为第五集有生肉了呀
+
+
+-----
+
+####  蛇头  
+##### 384#       发表于 2021-4-23 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51034539&amp;ptid=1963627" target="_blank">幻想风靡_ 发表于 2021-4-23 14:00</a>
+怎么感觉了楼里的讨论像是第五集都看完了一样？</blockquote>
+周四0点日本网飞会放比电视台更快的新一集，差不多半小时后nyaa上就有种子了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yukinouta  
+##### 385#       发表于 2021-4-23 15:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">突然有个脑洞，和女主对话的“男主”不会是男主的AI吧……
+
+
+-----
+
+####  angelooo  
+##### 386#       发表于 2021-4-23 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51035514&amp;ptid=1963627" target="_blank">yukinouta 发表于 2021-4-23 15:24</a>
+
+突然有个脑洞，和女主对话的“男主”不会是男主的AI吧……</blockquote>
+确实有点奇怪，我第五集还没看不知道有没有新的聊天剧情，至少之前几次聊天，基本都是女主视角，而男主那边都是在调查什么的，感觉没时间回信息的样子
+
+当然也有可能是故意打的时间差
+
+
+-----
+
+####  幻想风靡_  
+##### 387#       发表于 2021-4-23 15:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51035514&amp;ptid=1963627" target="_blank">yukinouta 发表于 2021-4-23 15:24</a>
+
+突然有个脑洞，和女主对话的“男主”不会是男主的AI吧……</blockquote>
+应该不会
+
+男主一开始联系上女主，和女主给男主看原型这两段，都是给男主这边镜头的
+
+第四集的讨论也是接着上面来的，虽然没给男主这边镜头了，但是我觉得没必要搞这种聊到一半换人的情节
+
+真要说疑点的话，就是为什么男主每次都能秒回（这个我偏向于为了叙事流畅
+
+不过两边聊天，男主的AI应该也是在视奸的
+
+
+-----
+
+####  klmmmx  
+##### 388#       发表于 2021-4-23 22:47
+
+
+又重看前面几集，有种危机和日常交错的微妙感，其实3话开头拦截那段的旁白感觉应该就是这个主题，世界巨变的那一刻也是普通的日常，在时间的河流中随波逐流，回过神来已到陌生岸边，拉顿来了女主担心的却是衣服还没有收。也有种危机被刻意忽视的感觉，大家都当看不见房间里的大象，不想打破日常，和现在日本的状况很像吧。
+
+
+另外就觉得“腐朽的花瓶恢复如新，枯萎的花朵重新绽放，花瓣逆流而上”这个在暗示后面会有时间倒流的内容吧。
+
+
+-----
+
+####  Freakyyu  
+##### 389#       发表于 2021-4-23 23:33
+
+
+ 本帖最后由 Freakyyu 于 2021-4-23 23:36 编辑 
+
+第五集看完了，好奇怪啊，这种未知的巨型猛兽为什么放任一群民间人士去处理<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">还只准备了个看着就不靠谱的铁笼子。这惹恼了怪兽全都被嚼烂也活该啊。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  书七  
+##### 390#       发表于 2021-4-24 00:37
+
+
+感觉是有意为之，怪兽的出现仅引起民众类似于围观的态度，怪兽并不是特殊的，只是这个世界有迹可循的常态。
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+-----
+
+####  太书主  
+##### 391#       发表于 2021-4-24 15:24
+
+
+？？？？为什么蜜柑上只剩下星空字幕组的
+
+
+-----
+
+####  杂灰  
+##### 392#       发表于 2021-4-24 15:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51040713&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-04-23 23:33:58</a>
+v2.4.4.1</blockquote>可能日本人还在开会
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+                                    
