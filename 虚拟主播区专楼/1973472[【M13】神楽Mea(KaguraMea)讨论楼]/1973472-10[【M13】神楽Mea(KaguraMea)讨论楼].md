@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-24 12:54** 
+> ## **本文件最后更新于2021-04-24 23:40** 
 
 
 
@@ -7746,4 +7746,271 @@ rp一定是给和野男人私联小号的放的烟雾弹</blockquote>
 v家一图流pv基本都这样吧，其实用ppt都能做出来
 
 
-                         
+-----
+
+####  时间在我手中  
+##### 14232#       发表于 2021-4-24 21:37
+
+
+ 本帖最后由 时间在我手中 于 2021-4-24 21:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51047681&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-4-24 20:15</a>
+
+v家一图流pv基本都这样吧，其实用ppt都能做出来</blockquote>
+RGB分离那个你让我用ppt做我是不会了，而且那个波纹滤镜ppt应该也做不到，pre我还有点思路）
+
+今天看了OWL比赛气的心脏痛，爬去睡了，傻逼杭州队教练qtmd
+
+
+-----
+
+####  A2014720  
+##### 14233#       发表于 2021-4-24 21:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14234#       发表于 2021-4-24 21:44
+
+
+🤭🤭🤭
+
+
+-----
+
+####  时间在我手中  
+##### 14235#       发表于 2021-4-24 21:45
+
+
+乐一这在说什么JB<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14236#       发表于 2021-4-24 21:46
+
+
+啊 这不是在说实话吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14237#       发表于 2021-4-24 21:50
+
+
+才反应过来吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14238#       发表于 2021-4-24 21:50
+
+
+都过气多久了，上次那个可爱的女朋友播放量不也就那样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次有他们组员参与的反而特意发个动态BB，怪
+
+
+-----
+
+####  A2014720  
+##### 14239#       发表于 2021-4-24 21:50
+
+
+大家听我说，麻麻绝不想事情变成这副样子！
+是官组的憨憨们欺上瞒下，天天搁那摆烂，才导致了如今这番局面！
+在批站等待贴贴的mmr，还在等b限联动lol！
+今天我们就要天诛国贼，让麻麻知道官组的昏庸无能！
+今晚，天诛！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14240#       发表于 2021-4-24 21:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么弱智定型文
+
+
+-----
+
+####  Klience  
+##### 14241#       发表于 2021-4-24 21:54
+
+
+v圈都成这个样子了 还真有人在乎播放量这东西吗 不会吧不会吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14242#       发表于 2021-4-24 22:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51048950&amp;ptid=1973472" target="_blank">Klience 发表于 2021-4-24 21:54</a>
+
+v圈都成这个样子了 还真有人在乎播放量这东西吗 不会吧不会吧</blockquote>
+在意的又不是我，谁发动态那谁才是真的急了，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 14243#       发表于 2021-4-24 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51048905&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-24 21:50</a>
+
+大家听我说，麻麻绝不想事情变成这副样子！
+
+是官组的憨憨们欺上瞒下，天天搁那摆烂，才导致了如今这番局面 ...</blockquote>
+尊咩讨奸，天诛官组！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14244#       发表于 2021-4-24 22:36
+
+
+他的事业心突然起来了？
+
+
+-----
+
+####  Cushaw  
+##### 14245#       发表于 2021-4-24 22:47
+
+
+你以为他说的是小麻过气了，其实他哭的是人上人组本身过气了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时雨rain  
+##### 14246#       发表于 2021-4-24 22:48
+
+
+ 本帖最后由 时雨rain 于 2021-4-24 22:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">好
+<img src="https://static.saraba1st.com/image/smiley/carton2017/268.png" referrerpolicy="no-referrer">官组早该过气了
+
+
+-----
+
+####  时间在我手中  
+##### 14247#       发表于 2021-4-24 23:28
+
+
+还过气呢，官组别漏气到底就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+五一突击爬去学ae了，给周年准备一下大活儿给自己挑战挑战
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| azccc52| + 1|好评加鹅|
+| thisisaspider| + 1|好评加鹅|
+| Cushaw| + 1|加油|
+
+
+查看全部评分
+
+
+-----
+
+####  Klience  
+##### 14248#       发表于 2021-4-24 23:39
+
+
+那我去练lol了 迟早有一天一定要带咩赢一把 （进到队伍算成功）<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 14249#       发表于 2021-4-25 00:45
+
+
+求问，同好会首页头图画师是哪位？
+
+
+-----
+
+####  千木唯  
+##### 14250#       发表于 2021-4-25 01:52
+
+
+ 本帖最后由 千木唯 于 2021-4-25 01:54 编辑 
+
+pc端的头图吗，那是我和饭盒群约稿的。我动态有发，
+画师是天祈酱
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2111X| + 1|多谢|
+
+
+查看全部评分
+
+
+
+
+-----
+
+####  往世雷书  
+##### 14251#       发表于 2021-4-25 07:08
+
+
+就字幕组一周投一个熟肉的速度，不过气才怪。
+
+哦对了，不看直播的人没资格用直播没意思或者联动多不好烤这种理由来为投稿少开脱<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  时间在我手中  
+##### 14252#       发表于 2021-4-25 07:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51051282&amp;ptid=1973472" target="_blank">往世雷书 发表于 2021-4-25 07:08</a>
+就字幕组一周投一个熟肉的速度，不过气才怪。
+
+哦对了，不看直播的人没资格用直播没意思或者联动多不好烤这 ...</blockquote>
+别尬黑啊，问就是黄兔子鬼灯童没批站官号之类的不好要到授权啥的啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">他们组那个揺星之前泥哥谭还真这么说过
+
+
+-----
+
+####  Dualist彩  
+##### 14253#       发表于 2021-4-25 07:31
+
+
+什么后知后觉，意思是有官组参与的稿子为什么还能过气是吧，为官组人鸣不平是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                        
