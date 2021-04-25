@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-23 16:20** 
+> ## **本文件最后更新于2021-04-25 11:11** 
 
 
 
@@ -2477,4 +2477,722 @@ https://www.youtube.com/channel/UCgttI8 ...</blockquote>
 肯定不是，sio新转生那个皮不是正在休息吗
 
 
-                                           
+-----
+
+####  alcoholic1000  
+##### 183#       发表于 2021-4-24 00:48
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-24 00:51 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/24/004708tcbsj8i288s2ral3.png" referrerpolicy="no-referrer">
+
+
+<strong>ゆうぎり・イン・スナック千夏 第一夜.png</strong> (287.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-24 00:47 上传
+
+
+动画《佐贺偶像是传奇》中角色夕霧Vtuber化，目前在Cygames配信
+
+ゴールドシップ还有个单人频道呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+[https://www.youtube.com/watch?v=A1_4WA6KRXw](https://www.youtube.com/watch?v=A1_4WA6KRXw)
+
+
+-----
+
+####  IDIDIDID  
+##### 184#       发表于 2021-4-24 00:58
+
+
+黄金船拳打彩虹脚踢杏生活，当然要再接再厉了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 185#       发表于 2021-4-24 01:07
+
+
+我也不知道放哪好就放V综这里吧。
+整体上说不定是说给阿b的。
+这几天又开团了，阿b的直播部门就是饭桶啊。
+老是那么几个人，同样的手法。
+用造谣耗费做直播的人的精力来辟谣。
+再一个个拆掉直播部门比较大的存在。
+就很想笑。
+被人卖了还帮人数钱
+只能说不愧是先行者，这套玩的就是熟练
+
+
+-----
+
+####  死体残留  
+##### 186#       发表于 2021-4-24 01:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">黄金船是视频势，再说cv套个动画角色直播不是什么稀奇吧，言叶miki都直播过，不过这种有动画原作打底出来的直播势很容易会ooc吧
+
+
+-----
+
+####  noHentai  
+##### 187#       发表于 2021-4-24 10:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51041313&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-4-24 01:08</a>
+黄金船是视频势，再说cv套个动画角色直播不是什么稀奇吧，言叶miki都直播过，不过这种有动画原作打 ...</blockquote>
+想多了，都是有台本严格控制的，人家声优不比你管人cylx专业多了
+
+
+-----
+
+####  渡鸦骑士  
+##### 188#       发表于 2021-4-24 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51042800&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-4-24 10:10</a>
+想多了，都是有台本严格控制的，人家声优不比你管人cylx专业多了</blockquote>
+搞得好像直播管人没有会设计台本的一样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+倒不如说没有直播经验的声优一大把。
+不过cy这次的直播做的真的很不错没有太大的ooc，控制在酒吧应付难缠的客人这种感觉。
+也不知道是台本还是声优本人的能力，挺厉害的
+
+
+-----
+
+####  peh  
+##### 189#       发表于 2021-4-24 11:29
+
+
+Hachi新歌真不错
+
+
+-----
+
+####  poipanchao  
+##### 190#       发表于 2021-4-24 12:19
+
+
+昨天bora的歌回蛮不错的
+
+唱了几首很罕见的，韩国人毕竟是韩国人
+
+
+-----
+
+####  OldGlory  
+##### 191#       发表于 2021-4-24 16:37
+
+
+[https://www.youtube.com/watch?v= ... 6%E3%81%86%E3%81%9F](https://www.youtube.com/watch?v=wD9-9NYLjF0&amp;ab_channel=%E9%88%B4%E6%9C%A8%E3%82%86%E3%82%86%E3%81%86%E3%81%9F)
+
+v无关，yyut150w耐久，结果半小时就涨了1w粉冲上去了
+
+
+-----
+
+####  noHentai  
+##### 192#       发表于 2021-4-24 17:03
+
+
+<img src="https://p.sda1.dev/1/819c05dc0cdd4b07080455d9831862ca/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  喜闻乐见  
+##### 193#       发表于 2021-4-24 19:01
+
+
+ 本帖最后由 喜闻乐见 于 2021-4-24 19:03 编辑 
+
+爱明联动开了
+
+阿满挂gamer皮，这边确实用live皮，简直就是直接想说重大发表是北米live嘉.....
+
+
+-----
+
+####  katern  
+##### 194#       发表于 2021-4-24 19:50
+
+
+不是明天就开了吗，难道是后面一场嘉宾吗
+
+
+-----
+
+####  alcoholic1000  
+##### 195#       发表于 2021-4-24 19:58
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-24 23:11 编辑 
+
+黑客的新衣装，让我想起强风吹拂中的王子<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+补个图
+
+<img src="https://img.saraba1st.com/forum/202104/24/230748zdnzo395tn5x2znt.png" referrerpolicy="no-referrer">
+
+
+<strong>【ゲーム風動画】あまり外に出ないクールキャラ攻略してみたｗｗｗｗｗｗｗｗｗ.png.png</strong> (232.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-24 23:07 上传
+
+
+Syl，补个图
+
+VJC広島出演者発表！今回のにじさんじ所属の大人気ライバーさんにご出演頂きます！　#本間ひまわり さん #リゼ・ヘルエスタ さん #竜胆尊 さん #樋口楓 さん よろしくお願いいたします！ヴァーチャル広島の世界もお楽しみに！　スペシャルゲストは #STU48 さん
+
+<img src="https://img.saraba1st.com/forum/202104/24/231101ck335i37nfviv0vn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>VIRTUAL JAPAN CIRCUIT バーチャル広島公演.jpg</strong> (347.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-24 23:11 上传
+
+
+-----
+
+####  free  
+##### 196#       发表于 2021-4-24 20:20
+
+
+[https://www.youtube.com/watch?v=fiKWTLG0Xls](https://www.youtube.com/watch?v=fiKWTLG0Xls)
+
+CITRUS ／ Da-iCE　（Covered by 富士葵 ＆ 奏みみ ／ Aoi Fuji &amp; MiMi KANADE）【歌ってみた】
+
+
+又姨又好又姨！
+
+
+-----
+
+####  喜闻乐见  
+##### 197#       发表于 2021-4-24 20:20
+
+
+好 猜错
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gpv3ob4c8vj20pp0epk91.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 198#       发表于 2021-4-24 20:23
+
+
+ 本帖最后由 FCCHua 于 2021-4-24 20:25 编辑 
+
+草，怎么还有德龙<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+syl VJC广岛公演的嘉宾是船团，梦幻联动<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  katern  
+##### 199#       发表于 2021-4-24 20:47
+
+
+这圆脸，草，太有那味了
+
+
+-----
+
+####  黑之和  
+##### 200#       发表于 2021-4-24 21:23
+
+
+海牛和gaku联动了！！
+终于！！
+我模糊记得两个人有一段时间吵架就不理对方了
+原来早就和好了吗<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">真好啊真好啊
+之前海牛播的也少，和社内也联系不多，现在真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十四洲  
+##### 201#       发表于 2021-4-25 00:33
+
+
+ 本帖最后由 十四洲 于 2021-4-25 00:52 编辑 
+
+管人的恐怖金游为什么总是这么<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シナモンロール  
+##### 202#       发表于 2021-4-25 00:56
+
+
+ 本帖最后由 シナモンロール 于 2021-4-25 11:24 编辑 
+
+@富婆养猪<strong>
+</strong>
+<strong><strong>
+</strong>
+
+野菜ジュースと炭酸とお菓子</strong>
+<strong>揃えて準備 OK</strong>
+
+
+だけど。。。
+<img src="https://ftp.bmp.ovh/imgs/2021/04/79d39479e7ee255e.png" referrerpolicy="no-referrer">
+
+
+hmmmmm...that ain't no prob, but...
+
+<img src="https://ftp.bmp.ovh/imgs/2021/04/aeace63ec6554ca5.png" referrerpolicy="no-referrer">
+
+
+bro, that's fucked up
+
+
+距离捏捏的3d配信已经过去快一周了，经历了地狱般的一周+一个炸裂的期中考以后终于找到时间兑现这个repo的卫星了，总算还是赶上了v14第一个长repo......闲言少叙吧　ももねねもーもーねー
+
+1. 一番綺麗のは、うたもも！
+
+这次3d配信的选曲相对来说还是比较正统派的歌单如下
+
+
+セトリ表（摘自油管日本网友评论）
+
+2:07 ねねねねねねねね！大爆走 （2021/原创曲）
+
+
+8:24 最強パレパレード （2006/团长电台二期主题曲）
+
+
+18:55 恋☆カナ （2006/星梦天使，早安的久住小春唱的哦）
+
+
+24:07 ガーネット（2007/穿越时空的少女，也算是神曲之一了）
+
+
+31:25 Booo!（2018/西泽p）
+
+
+34:33 Story（2005/植村爱hit曲）
+
+
+45:10 ファンサ（2020/HW）
+
+56:22 lunch with me (2021/原创2)
+
+
+馬場さんのセンスはさすがbbaです。。
+
+
+开场的两连快歌基本上成功地把气氛炒热了起来，虽然声呐暴走这歌qiao实是听着尬唱着也尬，但确实是属于领call优势曲（类似于奶这边的route246），希望以后开观客live能好好利用这一点
+
+
+之后转到中庭和夜间stage两个舞台基本就是快慢快慢快慢这样，也是相当合情合理的安排，sololive合理安排自己和观众的体力和情绪都是很关键的，反正说到偶像live就是要看妹子的一百种可爱的姿态，所谓静若处子动若疯狗。
+
+
+u1s1bba桑这个歌力在你杏还是相当过硬的，为日后加入live组铺平了道路（也必定是要加的），舞蹈力的话，跟小肥妹怎么比较还是留给祭丝去撕我就暂且蒙古好了。。。反正体力是真的可以，有膀子力气，这就很关键了。歌唱的再好你是动不起来的鼠式那还是建议去读音大（最好不要读短大，否则可能被莫名其妙的人物缠上）总之就偶像live来说完全过关了，而且看得非常爽。选曲虽然有点老不过总体来说都是良曲，既不过于宅臭也不过于达利特也不过于现充。
+
+
+瞩目点大约在饭撒吧，意料之中的HW偶像曲之一，意料之中的捏捏兴致高点，意料之中的优秀演绎，反正就是意料之中的非常棒，这波啊，这波是把该打的都打出来了，就算数字输了也不至于被放烟花嘲笑兄弟加油还有一把。
+
+
+2. 一番セクシーのは、ふともも！（さむすぎ。。）
+
+作为纪念谷子上公然出现供死宅代入的摸摸头手的巨心机骑脸媚宅偶像，nene的3d会出现大量介于问题画面和好评直球之间的灰色画像显然是应有之义（连雪花妈妈都这么过分了！），不过嘛。。。确实还是产生了很多神仙画面
+
+
+鉴于女楼友浓度处在v综前所未有的高度，过激画面我就不刷屏摆放了，反正该有的环节也都有，每次mc也基本是硬sq大放送，自己去看就得了。
+
+
+八过比较离谱的还是这种
+
+<img src="https://ftp.bmp.ovh/imgs/2021/04/af1bda41509619c5.png" referrerpolicy="no-referrer">
+おまえ、なにやってんだよ。。。
+
+
+不过虽然不准备放图，但还是准备好了定番的郭楠油腻评头论足还节，这部分准备了反白，不想看的楼友请跳过到下一个环节
+
+首先就是说这个分节标题的f选手，这个位置主要是起到一个后场防守的作用，铁壁般合作无间的两名选手不给对面任何可乘之机，在仰角机位肆意夸耀自己的存在感，任何试图穿过的视线都会被它们无情的绞杀。完全可以说f选手是做到甚至超出了预期
+
+
+然后再说说这个建队之初就由明星教头西泽五毫米指导点名表扬的得意之作，o选手。这个o选手作为一名传统的串联前后场的关键先生，果然不负众望。比起它并不逆天的下半身，o选手被西泽指导反复强调的世界级上半身，在西泽指导为其量身打造的战术下尽显决定性作用，完全可以称得上是大师风范。视线在其灵动的而富有节奏的风格里被完全掌控了，而在机位转换的关键时刻，又能及时的将视线传导到下一个关键位置上。
+
+
+比起非常亮眼的o选手，站在最后一道防线的a选手这次比赛就不太出色了——这也是没有办法的事——打德乙队诺伊尔打打ns也没必要过度苛责。由于f选手超出预期的强大发挥，大量的及时补位和精妙抢断让a选手不太有发挥的余地，不过由于这次比赛风格的原因，a选手本身就选用了比较厚实的手套，这一点让a选手原本能发挥出的水平就打了一定折扣，在反复的封堵下，对方实在是无法逾越f选手兄弟建立起的链式防守，视线在f选手的操控下频频被留住并流连忘返。
+
+
+至于担任最前线的k选手，则表现得中规中矩，考虑到nene队背后的金主是以寒酸出名的财团c，小球会普遍的锋无力显然是不能幸免，所幸明星教头西泽指导匠心独具，在几次对k选手的改造中使其功能性不断加强，而k选手也慢慢的改正了最初功夫足球的鲁莽打发，逐渐变得沉稳起来，从莽夫到巨熊，这是人们对k选手的最新评价。
+
+
+不过比起广受好评的o和f两位选手，本报给出的personal favorite则是场边替补席上的兼任球童w选手，虽然在这种风格的比赛下，w选手这个位置替补出场是非常常见的，但是没有哪场比赛中，替补登场的w选手会有这么高的参与度和影响力——他们往往只是借着风格之便，“打出风采”就了事了。不过nene队的w选手却在合理的战术安排下发挥了堪称替补奇兵的作用，其优秀的前场能力完全盖过了k选手稍显平庸的打发，甚至隐隐比o选手更具有魔力！本报记者在看到w选手第一次登场时就隐隐有所预感，在其后w选手的疯狂杀戮中更是被彻底征服，在比赛结束后长叹一声“好ye”。
+
+
+（小朋友，w选手是指啥，你，猜到了吗？）
+
+3. 一番だめのは、かばもも（樺桃）！太强行了。。。。
+
+总的来说，这次的模型做的还是相当可以的，作为之前刚刚接受了隔壁小偶像洗礼的观众来说，力八一这波不能说是完全拉跨。虽然没有小偶像的小触角那样灵性的设计，不过头发部分整体还是非常棒的，霸王那种效果也做出来了，当然夸不夸张另说。衣服方面本身西泽妈妈在人设图上就已经拉满了，虽然个人对手套和耳朵的质感还有些微词，但你非要强辩说捏捏是偶像&gt;福瑞，设定就是要模糊熊元素的真实感凸显人的可爱我也没辙。所以总的来说。。。
+
+
+你以为我想说cover技术力长进了？naive，five之所以是five，就是因为他会在最关键的比赛面对最关键的对手整最关键的蛊，最后亲手送对手去新加坡参加major亲手送队友回基地打枪。
+
+
+在bloom给我一大耳帖子继续壁画以后，这次cover又摊牌告诉你：我们不是没能力做好模型，而是我们做好了模型放出来也是掉帧+卡顿。
+
+
+整体模型的卡顿和掉帧在开幕十分钟内就顺利突破気持ち悪い朝着disgusting一路疾驰。我真的不知道还有什么比看到一个虚拟偶像不停地卡更影响虚拟感和偶像感这两种需要强整体性和代入感的观感的事情了。我寻思你到底是哪里有问题怎么会搞个3dlive卡成这样的，是staff在后台光纤下片吗？我真的服了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+然后再来鞭布景，这个近景和中庭布景虽然还阔以，但你既然已经搞了白天黑夜stage这种两个变一个的好事儿了能不能不要tmd把远景搞得这么三年动画？
+
+<img src="https://ftp.bmp.ovh/imgs/2021/04/442a51afef865ea5.png" referrerpolicy="no-referrer">
+
+<img src="https://ftp.bmp.ovh/imgs/2021/04/a8263768eb66f490.png" referrerpolicy="no-referrer">
+
+
+就后面一个这种恶心人的玩意儿居然还敢给特写做过场，我寻思你是嫌人丢的不够大吗？是不是觉得自己能做出这种布景来还能塞给观众吃满足感爆炸了？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+当然这一切不是最最离谱的，我觉得最最离谱的是居然能把自己公司的牌子搞成《日和搞笑漫画》贴纸那一集一样的污染物
+
+<img src="https://ftp.bmp.ovh/imgs/2021/04/3f64c48a343c5c2c.png" referrerpolicy="no-referrer">
+
+
+我日恁毛啊！
+
+
+我就不说其他什么捏捏摸头还有跟小萝卜头互动的穿模问题了，**做出这种东西来真的没关系吗？
+
+
+要不是2434也整了个活搞了个很魔性而且我属实接受不了的头套人，真就nm被当场处刑啊。
+
+4、一番あざといのは、オリジナルもも！
+
+港真这种乐合成风格的微电音可爱风我还是蛮喜欢的......但是从曲名开始果然还是太露骨了。。。ひるひるひる蒜蒜食べよう什么的词作家提前也查一下训读吧。。。。。
+
+
+全曲还是那种杀必死感满满的超直球歌词风格，
+
+
+これは 内緒なんだけど
+
+昨日読んだマンガの主人公に
+
+君がちょっと似ていたんだよ
+
+
+大哥，你矜持一点啊！！！<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+5、一番輝いてのは、アイドルもも！
+
+和前一天小偶像进行善意地比较，吸鼠霸王的未成熟给人无限的期许和发自内心的怜爱，nene就更像一个铁板即战力了，4000万转会费买进来，没啥新闻也没啥丑闻，用心给你踢也有露骨小心机类似的这种小毛小病。赛季末一看完美融入队内画风，隔三年就有云球迷给她归到青训里了。
+
+惊喜是没啥好惊喜的......
+
+
+不得不说nene的杂谈虽然虚无到只能做背景音，游戏配信虽然没劲到只能做背景音，歌回也不太有特色导致非常适合做背景音，不过对于我这种本质遁入背景音的云人观众，有这么一个卖偶像人设的人美声甜的而且还贼喜欢玩一些一眼就能看穿的小心机的不大行偶像还是非常安心的。
+
+
+但可能是你ho看多了吧，最近对于偶像力的要求也越来越低了，导致看饭撒还给我整emo了。。。（写这个的时候正在重播并跟着L.O.V.E.）
+
+
+所以说个人来说对管人的态度本来就接近一期一会了，既然已经有了很难长期喜欢并作为信仰的预期，漫步在《美丽的管人花园》寻找这种美好的闪光点也算是一种推法吧。。。虽然达不到菩提本非树那种水平，不过在不斗虫不对线的时候心态确实是越来越平和了。看着nene用力过猛但确实是认认真真在做的身影，也能把准备好的漂亮话和恶心话都咽回肚里了
+
+
+比起比较钻石和玻璃哪个亮，可能还是做一个看到了亮就拍手的憨批比较幸福吧。就这样吧
+
+ーまたねね～
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 9战斗力 +10
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+| podball| + 1|好评加鹅|
+| 渡鸦骑士| + 1|nene的虚无和心机很有特色|
+| winda| + 1|偶像浓度upup|
+| rzrbtk| + 2|有被偶像厨吓到|
+| 富婆养猪| + 1|辛苦代|
+| 过不了审| + 1|不是很懂|
+| OldGlory| + 1|写了2个2|
+| admentus| + 1|字数代|
+
+
+查看全部评分
+
+
+-----
+
+####  義賊  
+##### 203#       发表于 2021-4-25 01:10
+
+
+卡坏了
+
+
+-----
+
+####  十四洲  
+##### 204#       发表于 2021-4-25 10:03
+
+
+🍋uruca🍋
+
+
+Screenshot_20210425_095940.jpg
+(135.48 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-25 10:02 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/25/100230ezz22umdtu5d878m.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 205#       发表于 2021-4-25 10:27
+
+
+bora又拿了个双锤
+从狗子换成白给以后又进化了
+
+
+-----
+
+####  εRemastered  
+##### 206#       发表于 2021-4-25 11:22
+
+
+还是老爱好<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 207#       发表于 2021-4-25 12:24
+
+
+黑黑来b玩双人成行…
+只能说财富只配聪明人拥有，祈祷我推们早日开窍<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 208#       发表于 2021-4-25 12:27
+
+
+这么狠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+
+-----
+
+####  cheatdeath3  
+##### 209#       发表于 2021-4-25 13:23
+
+
+黑黑厨幸福得如同19年初的部分cp厨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 210#       发表于 2021-4-25 14:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">现在还没预告估计不来了或者改时间了
+
+
+
+
+-----
+
+####  十四洲  
+##### 211#       发表于 2021-4-25 14:12
+
+
+这么好的游戏在b播总感觉亏了
+
+
+-----
+
+####  IDIDIDID  
+##### 212#       发表于 2021-4-25 14:31
+
+
+V综相关（大概
+
+
+<img src="https://img.saraba1st.com/forum/202104/25/143139okk8ps2nb5gi2fgn.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #093 - 'Explore _ Twitter' - twitter_com.png</strong> (37.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-25 14:31 上传
+
+
+-----
+
+####  free  
+##### 213#       发表于 2021-4-25 15:56
+
+
+这个烂货圆脸今天搞线上签名会，liveBD里抽了200个，一个个手写签名，这不就是握手女奴？？？
+
+有空花3小时把200个名字一个个写过来，没空用这3小时练歌，真的垃圾，这种烂货也就配当握手女奴了。
+
+要不是现在疫情办不了签证，真想去日本狠狠弄她，把她的四肢都打断，垃圾。
+
+
+<img src="https://img.saraba1st.com/forum/202104/25/155558x5y3stzllsyp5llz.png" referrerpolicy="no-referrer">
+
+
+<strong>烂东西.png</strong> (25.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-25 15:55 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 214#       发表于 2021-4-25 15:57
+
+
+真的很不安.jpg
+
+
+-----
+
+####  asdhai  
+##### 215#       发表于 2021-4-25 15:57
+
+
+真想狠狠地弄免费，把免费四肢都打断<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cckuku  
+##### 216#       发表于 2021-4-25 16:06
+
+
+免费应该不会干出飞去日本刺杀谷乡的事情吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hemis  
+##### 217#       发表于 2021-4-25 16:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">免费应该点开录播然后截图点赞页面让楼友乐乐
+
+
+-----
+
+####  Map-2  
+##### 218#       发表于 2021-4-25 16:17
+
+
+看来免费没抽到<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 219#       发表于 2021-4-25 16:18
+
+
+免费这套看腻了啊…楼友是怎么做到每次都能给反应的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|你综拉了，不回复更翻不了页😅.|
+
+
+查看全部评分
+
+
+-----
+
+####  winda  
+##### 220#       发表于 2021-4-25 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">apex全球预选赛怎么解说和嘉宾是纯桑和虚拟大猩猩同台
+
+
+-----
+
+####  空集  
+##### 221#       发表于 2021-4-25 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51057159&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-4-25 16:18</a>
+免费这套看腻了啊…楼友是怎么做到每次都能给反应的</blockquote>
+实在没别的活了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  ylssb10438  
+##### 222#       发表于 2021-4-25 19:02
+
+
+已经往guro方向发展了吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SteveS  
+##### 223#       发表于 2021-4-25 19:05
+
+
+v冢实在是入土了
+
+
+-----
+
+####  FCCHua  
+##### 224#       发表于 2021-4-25 19:08
+
+
+小千cr和花芽，哈弟组队<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+                                          

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-24 23:40** 
+> ## **本文件最后更新于2021-04-25 10:44** 
 
 
 
@@ -7919,10 +7919,11 @@ v圈都成这个样子了 还真有人在乎播放量这东西吗 不会吧不�
 评分
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| turezyy| + 2|加油|
 | azccc52| + 1|好评加鹅|
 | thisisaspider| + 1|好评加鹅|
 | Cushaw| + 1|加油|
@@ -8013,4 +8014,386 @@ pc端的头图吗，那是我和饭盒群约稿的。我动态有发，
 什么后知后觉，意思是有官组参与的稿子为什么还能过气是吧，为官组人鸣不平是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                        
+-----
+
+####  三つの光  
+##### 14254#       发表于 2021-4-25 08:26
+
+
+小tc主播心态很难不过气<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 14255#       发表于 2021-4-25 08:45
+
+
+小主播只想着吃喝睡玩 没钱了偶尔过来收房租<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 14256#       发表于 2021-4-25 08:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">小tc主播也懂肉体营业的
+
+
+-----
+
+####  十九号大侠  
+##### 14257#       发表于 2021-4-25 08:50
+
+
+就是bfm当TC组，还发脸照，小麻什么都不发
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 14258#       发表于 2021-4-25 08:52
+
+
+发坦克照会有人破防 为了减少经济流失所以才故意不发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14259#       发表于 2021-4-25 08:54
+
+
+什么时候肉体营业<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14260#       发表于 2021-4-25 08:55
+
+
+不发那是不够穷，得再凉点才行
+
+
+-----
+
+####  时间在我手中  
+##### 14261#       发表于 2021-4-25 08:55
+
+
+我要看坦克大肥腿<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14262#       发表于 2021-4-25 08:59
+
+
+小麻两天没有玩lol了 我急了我急了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14263#       发表于 2021-4-25 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51051836&amp;ptid=1973472" target="_blank">Klience 发表于 2021-4-25 08:59</a>
+
+小麻两天没有玩lol了 我急了我急了</blockquote>
+回老家了多半，安心被岳父岳母养着呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14264#       发表于 2021-4-25 09:07
+
+
+啊？ 那又要寄多少斤衣服回去啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14265#       发表于 2021-4-25 09:11
+
+
+好久没看小麻了，麻瘾犯了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 14266#       发表于 2021-4-25 09:45
+
+
+夏天先安稳过去在说，麻麻夏天能搞点啥活不
+
+
+-----
+
+####  A2014720  
+##### 14267#       发表于 2021-4-25 09:46
+
+
+再给你整个夜宵
+
+
+-----
+
+####  时间在我手中  
+##### 14268#       发表于 2021-4-25 09:56
+
+
+希望这周忙不是一堆联动，咩门
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14269#       发表于 2021-4-25 10:33
+
+
+转推 人醒了
+
+
+-----
+
+####  yywzjsw  
+##### 14270#       发表于 2021-4-25 10:36
+
+
+看来没在老家，要不然第一天怎么可能这个时候起来。还是已经被麻妈给放弃了
+
+
+-----
+
+####  Klience  
+##### 14271#       发表于 2021-4-25 10:50
+
+
+人醒了 却不打游戏 小麻不要野男人了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14272#       发表于 2021-4-25 10:56
+
+
+不玩游戏玩小麻，野男人你轻点，温柔点对待小麻<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 14273#       发表于 2021-4-25 13:29
+
+
+可能苔姨结婚了，这人羡慕了，让麻妈多加几场相亲吧。
+
+
+-----
+
+####  LIPP  
+##### 14274#       发表于 2021-4-25 13:41
+
+
+编排相亲这么久了怎么还在相亲，想开点 已经订婚了
+
+
+-----
+
+####  Klience  
+##### 14275#       发表于 2021-4-25 13:53
+
+
+突然想买个自制迎宾灯鱼板装在车门上了 看了一下100多好jb贵 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14276#       发表于 2021-4-25 13:53
+
+
+又风怒 草
+
+
+-----
+
+####  汇聚群光  
+##### 14277#       发表于 2021-4-25 14:01
+
+
+为什么你们会有mea回老家就能有正常作息的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14278#       发表于 2021-4-25 14:06
+
+
+以前回老家那段时间也不见她打lol 也不知道做什么能做到睡觉睡到下午4 5点<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14279#       发表于 2021-4-25 14:19
+
+
+是野男人🙋‍♀️
+
+
+-----
+
+####  nulla03  
+##### 14280#       发表于 2021-4-25 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51055487&amp;ptid=1973472" target="_blank">Klience 发表于 2021-4-25 14:06</a>
+以前回老家那段时间也不见她打lol 也不知道做什么能做到睡觉睡到下午4 5点 ...</blockquote>
+呜呜呜，和野男人做完了睡到下午4-5点
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+-----
+
+####  Cushaw  
+##### 14281#       发表于 2021-4-25 14:42
+
+
+麻姨迟早把你们都吸干<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Klience  
+##### 14282#       发表于 2021-4-25 14:45
+
+
+呜呜呜 小麻。。。我的小麻。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14283#       发表于 2021-4-25 15:18
+
+
+不出意外也要27号那天或者周三后才有直播了，建议楼友多去学习，要是想我教点简单的aeg知识也行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14284#       发表于 2021-4-25 15:49
+
+
+《学这个能艸到小麻么？》<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 14285#       发表于 2021-4-25 15:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">麻酱拉丝
+
+
+-----
+
+####  Klience  
+##### 14286#       发表于 2021-4-25 16:01
+
+
+不会 但是会有成就感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14287#       发表于 2021-4-25 16:05
+
+
+什么是age
+
+
+-----
+
+####  时间在我手中  
+##### 14288#       发表于 2021-4-25 16:08
+
+
+ 本帖最后由 时间在我手中 于 2021-4-25 16:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51056830&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-4-25 15:49</a>
+《学这个能艸到小麻么？》</blockquote>
+能让你自己很嗨，然后别人逼逼你不能逼逼官组的时候有底气反驳回去<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">而且也未必非要说烤肉，你学点日语好歹自己听懂直播也不亏。
+而且语言不通怎么问她一晚上多少钱<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14289#       发表于 2021-4-25 16:19
+
+
+还有玩日服和霓虹人对骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14290#       发表于 2021-4-25 16:27
+
+
+所以小麻得多少钱<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  希洛克吃西瓜冰  
+##### 14291#       发表于 2021-4-25 17:03
+
+
+小麻过气了，去fc2出道，初配信帮野男人打手冲，“迷迭迷迭财布桑，是tekoki”<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  A2014720  
+##### 14292#       发表于 2021-4-25 18:11
+
+
+二 刺 螈 爱 全 开 <img src="https://static.saraba1st.com/image/smiley/carton2017/090.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 14293#       发表于 2021-4-25 18:23
+
+
+小麻跟我一样兴奋，贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+                       
