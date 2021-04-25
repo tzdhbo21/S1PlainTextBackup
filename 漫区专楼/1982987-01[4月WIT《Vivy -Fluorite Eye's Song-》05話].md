@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-24 17:26** 
+> ## **本文件最后更新于2021-04-25 03:11** 
 
 
 
@@ -8117,4 +8117,329 @@ vivy有个反派每次都要被女主救
 —— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                             
+-----
+
+####  Hyzk  
+##### 611#       发表于 2021-4-25 01:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51050590&amp;ptid=1982987" target="_blank">afsd109 发表于 2021-4-25 01:00</a>
+
+剧情已经挺明显的了，博士遇到原老婆因为各种原因主动或者被动跑去当ai岛上的主脑，让后自己搞了个复制老婆 ...</blockquote>
+其实可以换一个角度理解，在第一集的时点上反AI组织的相对力量还是有局部优势的，但随着数十年过去，AI势力已经强大到让他们螳臂当车了，只能走投无路狗急跳墙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草从  
+##### 612#       发表于 2021-4-25 01:41
+
+
+是松本熊太无能没检查出来病毒的问题 还是就是松本改的毒呢
+
+每次被救的这个路人小哥 估计最终不是毁灭世界的始作俑者就是拯救世界的重要一环了 或许都是
+
+
+-----
+
+####  ky怪  
+##### 613#       发表于 2021-4-25 01:42
+
+
+看乐了
+
+
+-----
+
+####  Hyzk  
+##### 614#       发表于 2021-4-25 01:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51050738&amp;ptid=1982987" target="_blank">亚瑟邓特 发表于 2021-4-25 01:25</a>
+
+这弱智反ai组织是怎么撑这么长时间还有钱买直升机的
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next ...</blockquote>
+答案是生产力大发展，这些玩意都是已经淘汰了的货，你看这实战中不就不堪一击吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sorastlos  
+##### 615#       发表于 2021-4-25 01:51
+
+
+本来以为设定一个AI岛是要来秀美术和概念设计了
+
+结果一个大场景两个房间就又出去了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  亚瑟邓特  
+##### 616#       发表于 2021-4-25 01:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51050809&amp;ptid=1982987" target="_blank">Hyzk 发表于 2021-4-25 01:42</a>
+答案是生产力大发展，这些玩意都是已经淘汰了的货，你看这实战中不就不堪一击吗 ...</blockquote>
+跑步进入gczy<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  a12885084  
+##### 617#       发表于 2021-4-25 02:00
+
+
+散装吐槽：
+
+VIVY这个OP很好
+
+对话的这段弦乐BGM存在感在临界值上，又能注意到又不会抢眼球，不错
+
+这个车的造型，是不是该叫复古未来主义
+
+感觉不太重要的场景没有之前稳，不知道是不是错觉
+
+母体电脑的使命是自我存续，笑。（完整是人类维持巨浮岛运作）
+
+
+剧情相关：
+
+
+看不懂小熊的逻辑，他库存里有“正史”和“修正正史”两个版本，现在的巨浮岛比正史还要早二十年，为啥止步在停止巨浮岛运转？停止运转二十年不就相当于和正史毫无改变么。
+
+
+返回过去是什么意思？现在岛上有能阻止熊返回过去的技术/存在？
+
+
+博士的意思也是人类发展追上岛之前不能运转岛。所以他们潜台词是存在一个合适的、不会出现危险的人类/AI发展比例，只要两者同步发展就没事？勉强可以接受。
+
+
+正史上日升酒店坠落后人类与AI进入冰河期，博士结婚成为维系人类AI的桥梁，原本目标是阻止两人结婚。那之前为啥要阻止酒店坠落啊，坠落了不是更好……
+
+
+看起来是说母体电脑是拿葛蕾丝造的，之后博士又弄了个复制人所以态度比较冷淡。博士想拆岛其实是想救妻。
+
+
+全体变红又是被谁黑了？是小熊没检查出来病毒吗还是小熊自己造的？小熊说“即使是我造这个也不容易”是不是有点太弱了，还是一百年后的AI么你。
+
+
+-----
+
+####  亚瑟邓特  
+##### 618#       发表于 2021-4-25 02:03
+
+
+照这么玩加速迟早会出现水平接近过超过熊的ai啊
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  漫区专号  
+##### 619#       发表于 2021-4-25 02:11
+
+
+女主和熊歪打正着是在玩加速XX？
+
+
+虽然他们本意是要抑制AI的发展减缓和人类双方的矛盾冲突，但他们的行为作为有效输入实际上加速了AI的发展。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+未来会出现一个更加强势的AI势力，人类变为毫无胜算了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ipcjs  
+##### 620#       发表于 2021-4-25 02:22
+
+
+这是提前上演ai暴走？
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  regular  
+##### 621#       发表于 2021-4-25 04:14
+
+
+这一节完了的话，这松本熊也该漏点什么了吧，不论是不是黑的。
+
+
+还有它说计划跟sister系列没关系，怕是今后全跟sister系列有关系，
+
+
+之所以选Vivy干脆就是因为是系列第一台。
+
+
+-----
+
+####  Vancion  
+##### 622#       发表于 2021-4-25 04:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51050877&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-25 02:00</a>
+
+散装吐槽：
+
+VIVY这个OP很好
+
+对话的这段弦乐BGM存在感在临界值上，又能注意到又不会抢眼球，不错</blockquote>
+时光倒流我也没看明白，不知道是不是翻译问题。现在只能理解为让巨浮岛的发展停留在过去（现在）
+
+
+我觉得本片隐含的设定是AI发展大势不可阻挡，松本熊只能尽量减缓AI发展的速度让人类有足够时间去适应。同时又不能大规模干涉，要不手上的攻略就废了。结果就是只敢在关键节点动手，希望通过消除某些事件来拖时间。
+
+
+实际上呢，
+
+
+预期：救下议员，他主导的法案不会被通过，成功拖延时间。
+
+实际：议员洗心革面，AI人权法通过，一脚油门。
+
+
+预期：阻止日升酒店坠落，AI与人类不会爆发冲突。博士与AI结婚不会被视为人类与AI的桥梁，再次促进AI的发展。大家就当无事发生过。
+
+实际：艾斯黛拉被视为英雄，一脚油门。
+
+
+结果现在20年AI发展的速度已经相当于原世界线40年。没救了，读档重来吧。
+
+
+-----
+
+####  Vzero  
+##### 623#       发表于 2021-4-25 05:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51050604&amp;ptid=1982987" target="_blank">Piano-Forest 发表于 2021-4-25 01:02</a>
+
+【Vivy -Fluorite Eye’s Song-】#5
+
+
+5話もご視聴ありがとうございます‼</blockquote>
+传飞行员夹克真是又帅又美
+
+
+-----
+
+####  tsukatsukieiko  
+##### 624#       发表于 2021-4-25 06:35
+
+
+剧情进展是厉害，忽然一下一话就过去了。
+
+其实按照这个片子做法，最好的方法大概是做六个OVA？现在卡中间太难受了。
+
+要说问题，这种时间尺度拉特别长的带点科幻要素的影视作品的**病，20年、25年了，技术进步就这样？还在键盘打字？虽然貌似已经投影键盘了。
+
+顺便，vivy你其实从一开始就是被作为格斗型机器人设计的吧，比母猩猩都狠了。
+
+
+-----
+
+####  空气先生  
+##### 625#       发表于 2021-4-25 08:01
+
+
+这集节奏很舒服啊，岛上那里尼尔味都要溢出来了。
+
+
+-----
+
+####  JustW  
+##### 626#       发表于 2021-4-25 08:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">tmd，怎么又是这个老哥
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  ipcjs  
+##### 627#       发表于 2021-4-25 09:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51051234&amp;ptid=1982987" target="_blank">tsukatsukieiko 发表于 2021-4-25 06:35</a>
+剧情进展是厉害，忽然一下一话就过去了。
+
+其实按照这个片子做法，最好的方法大概是做六个OVA？现在卡中间太 ...</blockquote>
+你太高估人类了，2000年到现在有啥区别？
+唯一能称得上革命的也就个人电脑的微型化<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  fyjh  
+##### 628#       发表于 2021-4-25 09:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">女主唱歌感觉一般般，土木ai们的合唱反而很有味道
+
+
+-----
+
+####  gugu153  
+##### 629#       发表于 2021-4-25 09:42
+
+
+我算看懂了，这熊是信踩上油门的，在可能还打得过的时候早点全面爆发战争<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  timerrr  
+##### 630#       发表于 2021-4-25 10:25
+
+
+要么成神，要么成鬼，拭目以待吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  九一式  
+##### 631#       发表于 2021-4-25 10:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51052757&amp;ptid=1982987" target="_blank">timerrr 发表于 2021-4-25 10:25</a>
+要么成神，要么成鬼，拭目以待吧</blockquote>
+松本博士是反叛组织那位指日可待 时间悖论什么的不存在嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  selain.meneth  
+##### 632#       发表于 2021-4-25 10:59
+
+
+注入该不会其实是战斗程序而不是病毒吧？
+
+
+-----
+
+####  海狍子  
+##### 633#       发表于 2021-4-25 11:03
+
+
+草啊，小机器人为什么战斗力这么强
+
+
+                            
