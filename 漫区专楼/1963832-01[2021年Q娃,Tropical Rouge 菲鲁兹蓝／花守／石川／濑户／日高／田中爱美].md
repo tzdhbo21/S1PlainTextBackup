@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-20 03:46** 
+> ## **本文件最后更新于2021-04-25 12:59** 
 
 
 
@@ -14685,4 +14685,363 @@ ps：我第一集就说了今年这怪大友里必会出现叛变者 才第8集�
 不过目前看下来最让我惊讶的还是一之濑学姐的人设，给人一种与以往的文学系Q娃完全不一样的印象。现在非常期待木瓜之后的个人回，还有就是这几话看下来珊瑚反而都没有特别凸出的内容，不会真的就是超弱气角色吧。
 
 
-       
+-----
+
+####  天邪鬼  
+##### 1262#       发表于 2021-4-20 12:14
+
+
+去年我好像就看到跳高回后就没看了，后面达鲁伊森往和佳肚子里塞水晶又看了一下，又没看了
+去年那主题就钳制住了发展，就是没结局的自相矛盾，也会落入说大话与空话里。
+环保与治病，又不敢往深了说，能搞出个什么名堂来？锅全往病幻体头上甩，打完一看啥都没解决。得亏日本排核废水没在愈q放的时候排，不然更成笑话
+老老实实以人为本，来点带人文情怀的剧本就行了，给一个很大的主题又不想好好说，写作文都算你偏题啊
+
+
+-----
+
+####  真红眼教授  
+##### 1263#       发表于 2021-4-20 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50997447&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-20 12:14</a>
+
+去年我好像就看到跳高回后就没看了，后面达鲁伊森往和佳肚子里塞水晶又看了一下，又没看了
+
+去年那主题就钳 ...</blockquote>
+今年主题保护海洋的话不是更讽刺了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1264#       发表于 2021-4-20 13:04
+
+
+你们啊，政府和文艺作品要区分开<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  lydia5989  
+##### 1265#       发表于 2021-4-20 13:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50997447&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-20 12:14</a>
+
+去年我好像就看到跳高回后就没看了，后面达鲁伊森往和佳肚子里塞水晶又看了一下，又没看了
+
+去年那主题就钳 ...</blockquote>
+现在人鱼很得小友喜欢，我们决定往海里倒核废水制造真正的人鱼.jpg?
+
+
+-----
+
+####  Sliurus  
+##### 1266#       发表于 2021-4-20 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50998364&amp;ptid=1963832" target="_blank">lydia5989 发表于 2021-4-20 13:31</a>
+ 现在人鱼很得小友喜欢，我们决定往海里倒核废水制造真正的人鱼.jpg?</blockquote>
+那真成下水道美人鱼了
+
+
+-----
+
+####  天邪鬼  
+##### 1267#       发表于 2021-4-20 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50997475&amp;ptid=1963832" target="_blank">真红眼教授 发表于 2021-4-20 12:17</a>
+今年主题保护海洋的话不是更讽刺了么</blockquote>
+今年主题不是干劲跟摸鱼吗？
+
+
+-----
+
+####  天邪鬼  
+##### 1268#       发表于 2021-4-20 15:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50998095&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2021-4-20 13:04</a>
+你们啊，政府和文艺作品要区分开
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+其实就是单纯的不行罢了，治q刚结局的时候我也吐槽过，开局我也说过不好搞，又要治病又要环保，到底讲那边？天才的编剧选择了我都要，只要打倒了邪恶的敌人，病自动治好，环境自动变好。至于真的病怎么治，真的环境怎么保护，小孩子看不懂啦
+难道我骂星q还得日本的什么火箭发射失败了才能说嘛，只是有实事可以佐证我的一些观点罢了
+相对的，今年做的就不错这样哪怕我预感得到后面互相嘴炮真夏她们还是会有“站着说话不腰疼”“何不食肉糜”的感觉，但我还是想看下去
+大不了小说里写一下她们日后工作是如何没有干劲，但回想起自己以前的嘴炮打破当时的困境，然后再用梦结局收个尾，也还是可以的嘛。不忘初心方得始终，能讲得点很多
+
+
+-----
+
+####  舞野咲  
+##### 1269#       发表于 2021-4-21 01:18
+
+
+<img src="http://diary.fc2.com/user/kazuharoom/img/2021_4/20.jpg" referrerpolicy="no-referrer">笑死
+
+
+-----
+
+####  达达葱2  
+##### 1270#       发表于 2021-4-21 13:32
+
+
+看好今年！土田丰不会翻车！
+
+
+-----
+
+####  新HGCG  
+##### 1271#       发表于 2021-4-22 11:20
+
+
+好像至今飞鸟对屑人鱼的称呼还是“人鱼”，不叫名字
+
+
+-----
+
+####  达达葱2  
+##### 1272#       发表于 2021-4-22 17:49
+
+
+所以屑人鱼会死于救龙哥？
+
+
+-----
+
+####  lyflyflxf  
+##### 1273#       发表于 2021-4-22 20:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50998095&amp;ptid=1963832" target="_blank">傲娇的章鱼 发表于 2021-4-20 13:04</a>
+
+你们啊，政府和文艺作品要区分开
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.1.2 ...</blockquote>
+和政府是可以分开，但不可能公开打政府的脸，否则太给人添麻烦了吧<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+文艺也不是存在于真空中的，从抱Q的剧本看，已经开始受所谓主流媒体渲染的舆论的影响。
+
+
+-----
+
+####  新HGCG  
+##### 1274#       发表于 2021-4-23 11:38
+
+
+<img src="http://wx2.sinaimg.cn/large/9657fdc2gy1gptixlvj1uj20wb0ln7ri.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gptixadbkxj218j0u0b2b.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1275#       发表于 2021-4-23 13:15
+
+
+什么时候真来个骑车的Q娃该多好
+
+
+-----
+
+####  最强惠酱  
+##### 1276#       发表于 2021-4-23 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51032940&amp;ptid=1963832" target="_blank">新HGCG 发表于 2021-4-23 11:38</a></blockquote>
+还有人上色了
+<img src="https://p.sda1.dev/1/fa2f43c971c49b19d665e2527d231b29/IMG_CMP_104174591.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  RoPlem  
+##### 1277#       发表于 2021-4-23 19:46
+
+
+这集的立意我可太喜欢了，由母亲忙中出错体会到了父母的艰辛，也体现了父母不是全能的超人也有出错的时候，我们也能有自己能为这个家做的事
+
+我一直觉得繁星和梦想对于小朋友来说太遥远了，每个人都有无限的可能，该做的事到了时候自然都会去做，而小朋友最宝贵的就是身边所拥有的一切，也就是朋友和家人，朋友讲过了很多次，但是从身边的小事讲述父母的艰辛这个真的是应该教给小朋友的
+
+有的人喜欢先吃喜欢的，有的人喜欢最后吃喜欢的，人物性格就这么区分开了，这种性格的对立磨合也很自然，汉堡肉，蔬菜，水果，南瓜，厚蛋烧，都是主角和真夏母亲喜欢吃的，普通的便当里有大家都喜欢吃的东西，也是侧面体现出了飞鸟细腻的一面吧，毕竟经常操办家务，对于不同人的爱好都有在考虑
+
+虽然看起来这集是真夏回，由真夏引出故事和结尾，但是从片尾和大招来看才发现实际上是飞鸟回，体现的是飞鸟帅气背后细腻的一面，这种不刻意的塑造也相当舒服了
+
+顺便一提珊瑚每次开盾都是一脸(&gt;o&lt;)的表情，可真太可爱了
+
+
+-----
+
+####  新HGCG  
+##### 1278#       发表于 2021-4-23 23:16
+
+
+<img src="http://wx4.sinaimg.cn/mw690/e7cbae74gy1gpu2r25lx7j20750fvn4c.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1279#       发表于 2021-4-24 02:19
+
+
+<blockquote>最强惠酱 发表于 2021-4-23 17:08
+还有人上色了
+
+</blockquote>
+又帅又美
+
+
+-----
+
+####  shimmy1996  
+##### 1280#       发表于 2021-4-24 11:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">官方油管放出红黄紫变身动画了
+
+
+-----
+
+####  DARK_HGCG  
+##### 1281#       发表于 2021-4-25 10:25
+
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gpvnnvtdidj20sg0g0tb1.jpg" referrerpolicy="no-referrer">
+
+群演！
+
+
+-----
+
+####  达达葱2  
+##### 1282#       发表于 2021-4-25 12:29
+
+
+爱奇艺更新了吗
+
+
+-----
+
+####  最强惠酱  
+##### 1283#       发表于 2021-4-25 12:58
+
+
+带上熊猫头套的女演员说话风格不就是罗拉吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这集配上青山脸反而崩的很搞笑
+下集还能看到罗拉爬，到底发生了啥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  最强惠酱  
+##### 1284#       发表于 2021-4-25 12:59
+
+
+ 本帖最后由 最强惠酱 于 2021-4-25 13:48 编辑 
+
+<img src="https://p.sda1.dev/1/ec79f08924719fd5fbf6936a62770e9c/IMG_CMP_164300906.png" referrerpolicy="no-referrer">
+真夏这脸笑死我了ww
+<img src="https://p.sda1.dev/1/f8d0ff112006cf120a8ea4e83a8a7291/1386108077363978241.gif" referrerpolicy="no-referrer">
+人鱼爬
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  天邪鬼  
+##### 1285#       发表于 2021-4-25 14:17
+
+
+这头套，真的会有人买这种吉祥物奇奇怪怪的化妆品吗？特别是那眼睛。就是少女漫也有点太古早了，怕不是珊瑚妈的个人嗜好
+这集结尾的化妆虽然成功表现出了通过化妆像变了一个人，但看着像不良少女，说话方式又学大小姐说话，搞得跟沙都子似的
+
+
+-----
+
+####  最强惠酱  
+##### 1286#       发表于 2021-4-25 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51055613&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-25 14:17</a>
+
+这头套，真的会有人买这种吉祥物奇奇怪怪的化妆品吗？特别是那眼睛。就是少女漫也有点太古早了，怕不是珊瑚 ...</blockquote>
+那是传统反派的笑声啦ww
+
+
+-----
+
+####  天邪鬼  
+##### 1287#       发表于 2021-4-25 14:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51055701&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-25 14:23</a>
+那是传统反派的笑声啦ww</blockquote>
+大小姐三段笑嘛，哦呵呵呵呵～
+还有那个你配不上这个学校，我一定要把你赶出去。给我一种陪你去看流星雨的感觉
+流星花园啥的不知道有没有这种桥段，反正就是经典平民女上贵族学校，被大小姐针对。一般这学校里的校草还喜欢抱团
+
+
+-----
+
+####  最强惠酱  
+##### 1288#       发表于 2021-4-25 15:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51056120&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-4-25 14:55</a>
+大小姐三段笑嘛，哦呵呵呵呵～
+还有那个你配不上这个学校，我一定要把你赶出去。给我一种陪你去看流星雨 ...</blockquote>
+嘛我也不知道这片子是什么背景，她只说了是扮演像飞鸟那样脸很凶的反派，这段完全是搞笑演出，还和前面啊嘿脸哦呵呵呵对上反正我是笑出声来<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+硬要说的话真夏他们制服不那么大小姐看起来确实挺怪
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  新HGCG  
+##### 1289#       发表于 2021-4-25 15:27
+
+
+飞鸟变身那集就有人说像反派
+
+这次算官方吐槽了吧
+
+
+-----
+
+####  leleq  
+##### 1290#       发表于 2021-4-25 17:05
+
+
+高声三段笑的反派基本都活在30年前吧 近十年基本都是沙雕搞笑役专用了
+
+这集屑人鱼戏份不够下集补回来？光看到预告的人鱼爬我就笑道不行了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+这集点了化妆只是自己踏出一步的辅助希望之后的集数真是辅助 不要每集都出来 作为一个天朝大友幼女化妆实在难以接受
+
+
+
+
+-----
+
+####  isa2456  
+##### 1291#       发表于 2021-4-25 19:47
+
+
+下集就给强化了，4人大招赶紧啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">还有冒着热气的珊瑚我可以
+
+
+      
