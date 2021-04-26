@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-24 08:00** 
+> ## **本文件最后更新于2021-04-26 06:08** 
 
 
 
@@ -3037,7 +3037,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_HmVBg" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_OQ1m7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -5016,4 +5016,357 @@ v2.4.4.1</blockquote>可能日本人还在开会
 [  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
 
 
-                                    
+-----
+
+####  太书主  
+##### 393#       发表于 2021-4-25 08:22
+
+
+谁有第五集吗
+
+
+怎么找不到啊
+
+
+-----
+
+####  klmmmx  
+##### 394#       发表于 2021-4-25 17:22
+
+
+你们都看得是生肉吗……三天了还没熟肉看急死了
+
+
+-----
+
+####  暗黑能乐  
+##### 395#       发表于 2021-4-25 17:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51057892&amp;ptid=1963627" target="_blank">klmmmx 发表于 2021-4-25 17:22</a>
+
+你们都看得是生肉吗……三天了还没熟肉看急死了</blockquote>
+基本都是周一才有
+
+
+-----
+
+####  nuoer  
+##### 396#       发表于 2021-4-25 17:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51040713&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-4-23 23:33</a>
+第五集看完了，好奇怪啊，这种未知的巨型猛兽为什么放任一群民间人士去处理还只准备了个看着就不靠 ...</blockquote>
+陆自有出动，但是因为周围都是居民区，可以开枪的范围有限所以现在在待机，第五集里有说
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Freakyyu  
+##### 397#       发表于 2021-4-25 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51058190&amp;ptid=1963627" target="_blank">nuoer 发表于 2021-4-25 17:56</a>
+陆自有出动，但是因为周围都是居民区，可以开枪的范围有限所以现在在待机，第五集里有说
+
+—— 来自 meiz ...</blockquote>
+这个我知道，但疑问是这种未知的肉食性怪兽窜来窜去的紧急事态不是应该直接由军方清空和封锁整片地区吗。
+还是说我高估日本的行动能力了……
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  言酱啊啊啊  
+##### 398#       发表于 2021-4-25 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51057892&amp;ptid=1963627" target="_blank">klmmmx 发表于 2021-4-25 17:22</a>
+你们都看得是生肉吗……三天了还没熟肉看急死了</blockquote>
+其实官方熟肉周四才有
+
+
+-----
+
+####  nuoer  
+##### 399#       发表于 2021-4-25 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51058819&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-4-25 18:47</a>
+这个我知道，但疑问是这种未知的肉食性怪兽窜来窜去的紧急事态不是应该直接由军方清空和封锁整片地区吗。 ...</blockquote>
+看向福岛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Freakyyu  
+##### 400#       发表于 2021-4-25 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51059063&amp;ptid=1963627" target="_blank">nuoer 发表于 2021-4-25 19:09</a>
+看向福岛
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.4.4.1</blockquote>
+好的，说服力很高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kiraabu  
+##### 401#       发表于 2021-4-25 20:15
+
+
+这片的熟肉是比生肉慢一星期的吗，字幕组好像也就一个
+
+
+-----
+
+####  亚瑟邓特  
+##### 402#       发表于 2021-4-25 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51058819&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-4-25 18:47</a>
+这个我知道，但疑问是这种未知的肉食性怪兽窜来窜去的紧急事态不是应该直接由军方清空和封锁整片地区吗。 ...</blockquote>
+毕竟是日本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  暗黑能乐  
+##### 403#       发表于 2021-4-25 23:15
+
+
+下载出了，安吉拉斯这体型大的有点快啊。。。
+
+
+-----
+
+####  白玫瑰之夜  
+##### 404#       发表于 2021-4-25 23:35
+
+
+可能是不知道变大了之前也就当野生的熊之类的吧，人均淡定的一批<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  夜颠覆  
+##### 405#       发表于 2021-4-25 23:41
+
+
+之前wb上看到的，想想动画里日本这反应不也挺真实的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+006oEZMBgy1gpu22ddvzyj31120ku0vk.jpg
+(45.01 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-25 23:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/25/233822xuus7nahdnka7na3.jpg" referrerpolicy="no-referrer">
+
+
+006oEZMBgy1gpu22dv9fdj30ku0muwgd.jpg
+(79.3 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-25 23:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/25/233827qxwonw05j35xb8xx.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sorastlos  
+##### 406#       发表于 2021-4-26 00:16
+
+
+ 本帖最后由 Sorastlos 于 2021-4-26 00:20 编辑 
+
+这次的科学问题
+
+光子是自旋为1的玻色子
+
+不带质量，不带电荷，在量子场论的框架下光子的反粒子是光子自己
+
+
+顺带一提两个坐标一个时间一个空间是典型的相对论的最初的几个例子
+<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">这杂学真的不知道制作组是真的懂还是真的不懂了
+
+
+-----
+
+####  klmmmx  
+##### 407#       发表于 2021-4-26 08:08
+
+
+故意的啊，都成那样了还要强调一下俩渔民没事，目前真是只想做到“诡异日常”这种水平啊。在那个奇怪的深井里的小怪兽是什么啊。
+
+
+-----
+
+####  vmon  
+##### 408#       发表于 2021-4-26 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51058819&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-4-25 18:47</a>
+
+这个我知道，但疑问是这种未知的肉食性怪兽窜来窜去的紧急事态不是应该直接由军方清空和封锁整片地区吗。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看过痞子哥斯拉应该不会对这有疑问吧，还在开会呢。
+
+
+-----
+
+####  死去的御景柚姬  
+##### 409#       发表于 2021-4-26 09:50
+
+
+为啥白头发小哥啥都敢、啥都知道啊 主角光环？
+
+
+-----
+
+####  teecoo00  
+##### 410#       发表于 2021-4-26 09:51
+
+
+总感觉是故意营造这种悠闲的氛围，看看后续会怎么处理
+
+
+-----
+
+####  有钱多买小人  
+##### 411#       发表于 2021-4-26 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51063999&amp;ptid=1963627" target="_blank">死去的御景柚姬 发表于 2021-4-26 09:50</a>
+为啥白头发小哥啥都敢、啥都知道啊 主角光环？</blockquote>
+疯狂科学家是这样的，跟探求真理比起来自己的命算个屁。
+
+不过上来就咬定未来预知也太神棍了，弹反就不能是蒙的吗。
+
+
+-----
+
+####  mofuli  
+##### 412#       发表于 2021-4-26 10:44
+
+
+有谁帮我解释下，为啥那个怪兽能预知未来，却不能预知被枪打会受伤？
+
+
+-----
+
+####  暗黑能乐  
+##### 413#       发表于 2021-4-26 10:49
+
+
+不是因为女主提出来的所以才会第一时间联想到吗
+
+
+-----
+
+####  夜颠覆  
+##### 414#       发表于 2021-4-26 11:24
+
+
+估计就是和女主一直聊这方面的原因，如果得出结论的时候给个回想会明确些
+
+男主的人设我觉得就像一些科幻电影里的疯狂作死科学家好奇心上来先莽过去看一波那种，就是表情比较淡定
+
+
+-----
+
+####  海域生还者  
+##### 415#       发表于 2021-4-26 11:29
+
+
+虽说是营造气氛，不过进展有点慢，看着着急<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosennesta  
+##### 416#       发表于 2021-4-26 11:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51064553&amp;ptid=1963627" target="_blank">mofuli 发表于 2021-4-26 10:44</a>
+有谁帮我解释下，为啥那个怪兽能预知未来，却不能预知被枪打会受伤？</blockquote>
+我记得男主和兄贵对话的时候提出过一种猜测，就是只能预测已经见过的东西，第一次刚看见枪不知道是什么所以无法预测？
+
+这样一说感觉有点神经网络AI的意思了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI PCT-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  agion117  
+##### 417#       发表于 2021-4-26 12:13
+
+
+从对话来看预知未来也就1-3分钟的限度，第一次看到枪是不会明白这东西是武器的，所以没有在预测
+
+
+-----
+
+####  jellyfis  
+##### 418#       发表于 2021-4-26 12:33
+
+
+这部看下来末世感好强
+
+
+-----
+
+####  没取名啊  
+##### 419#       发表于 2021-4-26 12:37
+
+
+这种“更大的危机即将来临的”氛围感营造的真棒啊。面对怪兽出现，国家和社会反应的滞后感在某种意义上也挺真实的。断在了难受的地方啊，好想看下一集
+
+—— 来自 HUAWEI ELS-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  冰箱研会长  
+##### 420#       发表于 2021-4-26 13:50
+
+
+确实断的很难受...
+
+这个Jet Jaguar战斗力大概是个什么水平啊...
+
+
+
+
+-----
+
+####  冰箱研会长  
+##### 421#       发表于 2021-4-26 13:54
+
+
+话说负责OP的是谁啊 摄影没把他杀了?
+
+
+                                   
