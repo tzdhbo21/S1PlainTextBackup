@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-26 02:05** 
+> ## **本文件最后更新于2021-04-26 23:55** 
 
 
 
@@ -3452,4 +3452,332 @@ kagayaki杯这分组，莱德哥你就坐着等被妹带吧<img src="https://sta
 成天妹带
 
 
-                                         
+-----
+
+####  winda  
+##### 243#       发表于 2021-4-26 12:13
+
+
+<blockquote>「KAGAYAKI杯」の出場メンバーが決まりました！！
+
+・カワセ
+・奈羅花さん　(@　Naraka_2434 )
+・郡道美玲さん　(@　g9v9g_mirei )
+
+の3人で出場させて頂きます～
+よろしくお願いいたします！！
+
+#KAGAYAKI杯</blockquote>没想到最后来的是老师，50%杀意组。
+
+
+-----
+
+####  rzrbtk  
+##### 244#       发表于 2021-4-26 13:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51065735&amp;ptid=1972669" target="_blank">winda 发表于 2021-4-26 12:13</a>
+没想到最后来的是老师，50%杀意组。</blockquote>
+感觉会很微妙，拉垮郡道玩喷喷建立起来的大姐姐形象估计是要一滴不剩了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kangkangsama  
+##### 245#       发表于 2021-4-26 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51066428&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-4-26 13:11</a>
+
+感觉会很微妙，拉垮郡道玩喷喷建立起来的大姐姐形象估计是要一滴不剩了 ...</blockquote>
+不期待一下私底下聊siosio吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 246#       发表于 2021-4-26 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51067543&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-4-26 15:03</a>
+不期待一下私底下聊siosio吗</blockquote>
+聊啥，涩图吗？怕不是nrk立刻把郡逐出队伍<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 247#       发表于 2021-4-26 15:51
+
+
+cover搬家了 ickr也搬家了 贴贴
+https://www.ichikara.co.jp/news/25993/
+
+
+-----
+
+####  空集  
+##### 248#       发表于 2021-4-26 16:17
+
+
+2434又跃入新龙门了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  IDIDIDID  
+##### 249#       发表于 2021-4-26 16:27
+
+
+搬去了拥有六本木台场青山的港区啊，不愧是现充社。
+
+
+-----
+
+####  Suny08  
+##### 250#       发表于 2021-4-26 16:31
+
+
+租金是之前的高还是现在的高啊，是不是租不起了才搬的
+
+
+-----
+
+####  poipanchao  
+##### 251#       发表于 2021-4-26 16:36
+
+
+ 本帖最后由 poipanchao 于 2021-4-26 16:38 编辑 
+
+我只知道港区很有钱，援交妹也多
+原来在什么区的（知识来源：漫画）
+
+
+-----
+
+####  asdhai  
+##### 252#       发表于 2021-4-26 16:37
+
+
+穷人看见资本家留下了泪水。
+
+
+-----
+
+####  qq845629713  
+##### 253#       发表于 2021-4-26 16:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 港区、千代田区、中央区地价都差不多，港区更国际化一点，这说明力挽狂澜的彩虹en终于要横空出世了
+
+
+-----
+
+####  渡鸦骑士  
+##### 254#       发表于 2021-4-26 16:46
+
+
+不是悠星邻居了阿<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 255#       发表于 2021-4-26 16:51
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-26 16:55 编辑 
+
+看了下地图原来就在六本木车站边上，真有钱啊田角<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+人员规模倒还是没更新。
+
+
+-----
+
+####  FCCHua  
+##### 256#       发表于 2021-4-26 17:02
+
+
+居然搬家了
+
+
+-----
+
+####  noHentai  
+##### 257#       发表于 2021-4-26 17:07
+
+
+いちから
+
+千代田区神田練塀町300番地 住友不動産秋葉原駅前ビル10F
+
+1124.38㎡
+
+↓
+
+港区赤坂9-7-2 ミッドタウン・イースト11F
+
+3702.48㎡
+
+
+-----
+
+####  真飞鸟i  
+##### 258#       发表于 2021-4-26 17:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">挣大钱了。
+
+
+-----
+
+####  qq845629713  
+##### 259#       发表于 2021-4-26 17:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer"> 你虹的liver（一定订阅以上）从此变成了港区白领，社会地位大提升
+
+
+-----
+
+####  Suny08  
+##### 260#       发表于 2021-4-26 17:36
+
+
+和liver有锤子关系，事务所和公司地方都分开的，去不了人上人的地方的
+
+
+-----
+
+####  空集  
+##### 261#       发表于 2021-4-26 17:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">大公司啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  十九号大侠  
+##### 262#       发表于 2021-4-26 17:52
+
+
+现在对八美肉这么不宽容了吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  死体残留  
+##### 263#       发表于 2021-4-26 18:04
+
+
+ミッドタウンイースト
+2F 空き
+3F Netflix?
+4F 貸し会議室
+5F コロプラ
+6F コロプラ
+7F 空き
+8F 空き
+9F 空き
+10F インフォコム
+11F いちから
+
+还不如和悠星上下楼呢，还是说要和老任吸干白猫社最后一滴血
+
+
+-----
+
+####  hulaoda007  
+##### 264#       发表于 2021-4-26 18:27
+
+
+  哦，国内彩虹周报要搞同人only诶，我才知道...
+
+
+-----
+
+####  noHentai  
+##### 265#       发表于 2021-4-26 19:27
+
+
+<img src="https://p.sda1.dev/1/6e55ad12278d6244dbfbd456da14aad9/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 266#       发表于 2021-4-26 23:57
+
+
+3Dお披露目の発表でも新衣装でも大会発表でも告知枠を取らなかった郡道美玲のきっと最初で最後のお知らせ枠…だと思います
+
+你们19初四人是一定要维持只能活一个的状态吗…
+
+
+-----
+
+####  poipanchao  
+##### 267#       发表于 2021-4-27 00:08
+
+
+apex这要新出的3v3模式，直播效果拉满啊
+
+从头杀到尾，把吃鸡游戏最无聊的搜东西找敌人阶段去掉了
+
+
+-----
+
+####  渡鸦骑士  
+##### 268#       发表于 2021-4-27 00:25
+
+
+竞技性更强了……就不知道玩家买不买账了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 269#       发表于 2021-4-27 00:32
+
+
+吃鸡模式又没去掉，不慌的
+
+关键还是挂壁
+
+这热度如果继续上升的话，挂壁无法无天了
+
+
+-----
+
+####  kangkangsama  
+##### 270#       发表于 2021-4-27 00:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072596&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-4-26 23:57</a>
+
+3Dお披露目の発表でも新衣装でも大会発表でも告知枠を取らなかった郡道美玲のきっと最初で最後のお知らせ枠 ...</blockquote>
+不是结婚也不是隐退
+
+我懂了，是巨魔！
+
+
+
+
+-----
+
+####  義賊  
+##### 271#       发表于 2021-4-27 07:23
+
+
+铲子凌晨三点过生日 小偶像阿比盖儿的号发了奇怪的食品 以及人偶的live2d 下一个花伏?
+
+
+                                        
