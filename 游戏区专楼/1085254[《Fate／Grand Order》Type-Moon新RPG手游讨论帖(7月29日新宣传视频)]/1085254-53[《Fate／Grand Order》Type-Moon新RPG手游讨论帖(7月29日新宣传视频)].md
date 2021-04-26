@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-26 12:57** 
+> ## **本文件最后更新于2021-04-26 15:49** 
 
 
 
@@ -6468,4 +6468,252 @@ TM社臆造出来的学习型AI<img src="https://static.saraba1st.com/image/smil
 最强男拐已抵达她忠诚的迦勒底<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好奇如果2.6出个男妖精能不能充20+20
 
 
-                               
+-----
+
+####  当光停止  
+##### 78555#       发表于 2021-4-26 21:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071072&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-4-26 20:47</a>
+
+最强男拐已抵达她忠诚的迦勒底好奇如果2.6出个男妖精能不能充20+20</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好消息是梅芙的他冲幅度满级是30，不是20。
+
+坏消息是mc上发的技能介绍是“己方全体〔男性〕或〔妖精〕的NP增加”。
+
+
+-----
+
+####  qixinno2  
+##### 78556#       发表于 2021-4-26 21:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">陈宫快乐拐
+
+
+-----
+
+####  shimotsuki14  
+##### 78557#       发表于 2021-4-26 21:16
+
+
+这位什么来头？
+
+
+-----
+
+####  alucardcz  
+##### 78558#       发表于 2021-4-26 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071284&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-26 21:12</a>
+
+陈宫快乐拐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">拐陈宫 宝具的充能不是白给了 暴击系列全部白给
+
+
+-----
+
+####  areklose  
+##### 78559#       发表于 2021-4-26 21:28
+
+
+试用了一下，宝具只会充能buff第一位，只和第四位换位。1技能出星只需要从者拥有灵衣就好，我拿个原装海妈，还没有灵衣就出星了
+
+
+-----
+
+####  alucardcz  
+##### 78560#       发表于 2021-4-26 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071408&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-26 21:28</a>
+
+试用了一下，宝具只会充能buff第一位，只和第四位换位。1技能出星只需要从者拥有灵衣就好，我拿个原装海妈 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要2个拥有灵衣的 不然不够
+
+
+-----
+
+####  qixinno2  
+##### 78561#       发表于 2021-4-26 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071333&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 21:17</a>
+
+拐陈宫 宝具的充能不是白给了 暴击系列全部白给</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我说的是梅芙啊 新角色对我这种咸鱼来说就是个憨批 仓库里吃灰吧
+
+
+-----
+
+####  alucardcz  
+##### 78562#       发表于 2021-4-26 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071439&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-26 21:33</a>
+
+我说的是梅芙啊 新角色对我这种咸鱼来说就是个憨批 仓库里吃灰吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">先欧 再羡慕
+
+
+-----
+
+####  qixinno2  
+##### 78563#       发表于 2021-4-26 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071449&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 21:33</a>
+
+先欧 再羡慕</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只有这种微妙诡异的角色出货率很高 我也没有梅芙 活动礼装连张三星的都没出 上次虚数海想抽双贞结果到活动结束都没抽到 好烦啊
+
+
+-----
+
+####  森兰丸  
+##### 78564#       发表于 2021-4-26 21:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑喷了...这什么杂鱼新英灵....活动关卡第一次试用就被一个小兵一下打退场
+
+
+-----
+
+####  areklose  
+##### 78565#       发表于 2021-4-26 21:58
+
+
+<blockquote>alucardcz 发表于 2021-4-26 21:32
+要2个拥有灵衣的 不然不够</blockquote>
+太菜，我觉得宝具起码要buff两个，只能说未来可期
+
+
+-----
+
+####  smdzh2  
+##### 78566#       发表于 2021-4-26 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071187&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-4-26 22:00</a>
+好消息是梅芙的他冲幅度满级是30，不是20。
+
+坏消息是mc上发的技能介绍是“己方全体〔男性〕或〔妖 ...</blockquote>
+陈宫大炮喜提强力炮弹一枚<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  可乐蛋卷  
+##### 78567#       发表于 2021-4-26 23:00
+
+
+B站有个up抽这个2000石头1宝，fgo现在是不是就是帕青哥啊？
+
+
+-----
+
+####  Jamaisvu  
+##### 78568#       发表于 2021-4-26 23:01
+
+
+ 本帖最后由 Jamaisvu 于 2021-4-26 23:09 编辑 
+
+之前没抽到梅芙真是太遗憾了，竟然能强化到这种地步，蘑菇莫不是君吻系列的死忠粉？
+
+（话说我刚发现高山箕犀是台湾人，惊了）
+
+好吧，其实我就是心疼活动期间开梅芙灵衣省的那些素材QP....
+
+
+-----
+
+####  Jamaisvu  
+##### 78569#       发表于 2021-4-26 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072171&amp;ptid=1085254" target="_blank">可乐蛋卷 发表于 2021-4-26 23:00</a>
+
+B站有个up抽这个2000石头1宝，fgo现在是不是就是帕青哥啊？</blockquote>
+其实手游都是柏青哥吧，不过FGO赔率大一些<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78570#       发表于 2021-4-26 23:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">梅芙666了很多年了 今天我决定把她拉满
+
+
+
+
+-----
+
+####  rooarr  
+##### 78571#       发表于 2021-4-26 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072258&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 23:12</a>
+梅芙666了很多年了 今天我决定把她拉满</blockquote>
+我的是494，今天也拉满了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78572#       发表于 2021-4-26 23:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072403&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 23:29</a>
+
+我的是494，今天也拉满了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后依然没有机会用上（
+
+
+-----
+
+####  rooarr  
+##### 78573#       发表于 2021-4-26 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072410&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 23:30</a>
+然后依然没有机会用上（</blockquote>
+爬塔很好用啊，你居然没用到
+
+
+-----
+
+####  alucardcz  
+##### 78574#       发表于 2021-4-26 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072454&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 23:35</a>
+
+爬塔很好用啊，你居然没用到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爬塔不是all in的吗  都上过那也能算吗（
+
+
+-----
+
+####  areklose  
+##### 78575#       发表于 2021-4-26 23:41
+
+
+鹤小姐试过很多玩法了，这20星真是恶意，应对方法有多种。2个有灵衣的从者，多hit绿宝具，出星技能，出星衣服，出星礼装。所以啥时候强化，给个20他充10星就很舒服了
+
+
+-----
+
+####  黑上シグマ  
+##### 78576#       发表于 2021-4-26 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072454&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 23:35</a>
+
+爬塔很好用啊，你居然没用到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">爬塔还真没用上梅芙，一个四星全体，一个五星全体，一个四星单体，三人解决战斗，没有五星单体宝具什么事（
+
+
+                              
