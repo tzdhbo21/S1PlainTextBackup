@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-25 03:11** 
+> ## **本文件最后更新于2021-04-25 13:12** 
 
 
 
@@ -4411,10 +4411,7 @@ WIT：我要让三癞子坠落！<img src="https://static.saraba1st.com/image/sm
 ####  tsukatsukieiko  
 ##### 335#       发表于 2021-4-12 06:34
 
-
-还是感觉熊是黑的。
-
-顺便sunrise轨道旅馆撞地球还是撞到海边，这个太TMD了。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5153,8 +5150,7 @@ B站还没上？
 ####  tsukatsukieiko  
 ##### 395#       发表于 2021-4-16 21:54
 
-
-肯做T800的人都干脆去做巨大萝卜了吧……
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5889,12 +5885,7 @@ OP终于上线了；叙事节奏依旧很稳，这次故事还算可以
 ####  tsukatsukieiko  
 ##### 455#       发表于 2021-4-18 10:21
 
-
- 本帖最后由 tsukatsukieiko 于 2021-4-18 11:04 编辑 
-
-姐妹感情塑造还挺不错的，打戏和歌也挺好。
-
-就，你都能太空旅游了，还不能按照时序分离空间站么？这可是现实世界里ROSCOS在2001年就实现的啊。（以下反白）不过不得不说，和平号受控坠毁真的是人类航天史的一个典范。早一点砸到澳大利亚的天空实验室就不说了（我怀疑高达砸悉尼就是这个梗）。迟一点天宫一号失控坠毁，虽然最后运气好落到南太平洋，但是确实挺尴尬。回头一看，说俄国航天吃老本不行了，老大哥还是老大哥。我可以理解为了让vivy继续一个人战斗而这么展开，但是果然还是太强行了。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5924,13 +5915,7 @@ OP终于上线了；叙事节奏依旧很稳，这次故事还算可以
 ####  tsukatsukieiko  
 ##### 458#       发表于 2021-4-18 10:45
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50974150&amp;ptid=1982987" target="_blank">406 发表于 2021-4-18 10:13</a>
-
-你看废弃场那一大群，而且在此之前不批皮的伏地魔AI都满大街了，该背景的人类应该是富到流油才闲着没事搞 ...</blockquote>
-这帮研究人员开课题的脑洞程度，实验设计的随意程度，加上“失败废止”结题却带来一屁股麻烦，真确定不是学园都市的研究？
-
-正常任何一个科研课题组这么XJB折腾，早就没经费了。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -6681,11 +6666,7 @@ AI不是一定要搞得和终结者那样呆板的样子，但是现在这个AI�
 ####  tsukatsukieiko  
 ##### 516#       发表于 2021-4-18 22:45
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50980363&amp;ptid=1982987" target="_blank">黎恩 发表于 2021-4-18 22:36</a>
-
-AI不是一定要搞得和终结者那样呆板的样子，但是现在这个AI完全没有一点AI的思路，更像是一个被人类歧视的种 ...</blockquote>
-不不不，除了一小撮**，都还成吧。搞AI研究那帮人，更像德三搞雅利安优选优生配种研究的味道。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -6881,11 +6862,7 @@ AI头断了又不会死，不过在动画中看起来是刻画成死亡或者消
 ####  tsukatsukieiko  
 ##### 532#       发表于 2021-4-19 09:40
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50982646&amp;ptid=1982987" target="_blank">梦诗歌雪 发表于 2021-4-19 09:16</a>
-
-从仿生机器人的提示灯在脖子上以及粉毛被断了脖子就凉凉直接盖布来看，估计他们的核心是装在脖子上的，所 ...</blockquote>
-也不一定，当时第一要务是阻止妹妹，没时间整理粉毛；而进入必然坠落轨道后，也未必有时间去回收。另外逃生船空位也不一定很多，AI上去或许还有的说，失去功能的AI上可能就有人BB了。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7225,13 +7202,7 @@ https://www.bilibili.com ...</blockquote>
 ####  tsukatsukieiko  
 ##### 554#       发表于 2021-4-19 21:42
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987641&amp;ptid=1982987" target="_blank">梦诗歌雪 发表于 2021-4-19 16:17</a>
-
-这不有AI人权法在吗，机命贵的，主角看着也是很重视机器人同伴生命的人，如果不是已经彻底凉了不太可能可 ...</blockquote>
-未必顺路啊。
-
-攻占控制室的路上时间紧急来不及拆，搞定后说不定要跑大半个飞船才能捡回粉毛，当时飞船已经进入不可逃逸坠落轨道（妈蛋这引擎也太强力了，简直KSP引擎，正常空间站这样加减速早就解体了），如果脱离迟了那救生艇也跑不了只能单机突入大气层了。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7239,13 +7210,7 @@ https://www.bilibili.com ...</blockquote>
 ####  tsukatsukieiko  
 ##### 555#       发表于 2021-4-19 21:54
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987630&amp;ptid=1982987" target="_blank">susan28 发表于 2021-4-19 16:17</a>
-
-刚才看完  看完的感想， 我要看第5集！ 
-
-但我认为结局会让人不开心 薇薇可能会会会。。。 </blockquote>
-但其实使命是个很模糊的玩意，就不说Vivy这个使命其实是唱歌跳舞当地下偶像的（唱跳了15年小剧场都不到的还是只有一半上座率，惨，人类的话早就回老家结婚了）把使命解释成了当母猩猩，就是伊丽莎白都能把保护人的使命解释成保护某个特定人。算下来其实自由度很大的。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8335,14 +8300,7 @@ VIVY这个OP很好
 ####  tsukatsukieiko  
 ##### 624#       发表于 2021-4-25 06:35
 
-
-剧情进展是厉害，忽然一下一话就过去了。
-
-其实按照这个片子做法，最好的方法大概是做六个OVA？现在卡中间太难受了。
-
-要说问题，这种时间尺度拉特别长的带点科幻要素的影视作品的**病，20年、25年了，技术进步就这样？还在键盘打字？虽然貌似已经投影键盘了。
-
-顺便，vivy你其实从一开始就是被作为格斗型机器人设计的吧，比母猩猩都狠了。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8442,4 +8400,341 @@ VIVY这个OP很好
 草啊，小机器人为什么战斗力这么强
 
 
-                            
+-----
+
+####  tsukatsukieiko  
+##### 634#       发表于 2021-4-25 11:49
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  chiefshi  
+##### 635#       发表于 2021-4-25 11:56
+
+
+vivy一跳海就知道那老哥又要被救了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  冰箱研会长  
+##### 636#       发表于 2021-4-25 12:10
+
+
+唔&gt; &lt; 剧情我开始看不懂了...
+
+
+-----
+
+####  Hyzk  
+##### 637#       发表于 2021-4-25 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51051234&amp;ptid=1982987" target="_blank">tsukatsukieiko 发表于 2021-4-25 06:35</a>
+
+剧情进展是厉害，忽然一下一话就过去了。
+
+其实按照这个片子做法，最好的方法大概是做六个OVA？现在卡中间太 ...</blockquote>
+不至于不至于，还是人形就说明不是战斗机器人了，以战斗为目的就不用这么没效率的外形了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoy  
+##### 638#       发表于 2021-4-25 12:14
+
+
+这片还不错啊这五集看下来 本来我看完第二集还以为就这么走冷峻风结果第二章又给我暖回来了...感觉有点奇怪  这一章干完还加速就真没啥看头了吧. 不知道每一集都来一张巨精细的面部特写是什么特色..
+
+
+-----
+
+####  Hyzk  
+##### 639#       发表于 2021-4-25 12:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51052757&amp;ptid=1982987" target="_blank">timerrr 发表于 2021-4-25 10:25</a>
+
+要么成神，要么成鬼，拭目以待吧</blockquote>
+这片子就走最平凡的展开下去，保底也是个合格的爽 片啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  catto  
+##### 640#       发表于 2021-4-25 12:16
+
+
+飛ばねぇ豚はただの豚だ
+<img src="https://p.sda1.dev/1/1248d80d3af6911e970a413dda68311f/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoy  
+##### 641#       发表于 2021-4-25 12:18
+
+
+啊对 最后这个也太他妈像素子了.....
+
+
+-----
+
+####  LinkerWeg  
+##### 642#       发表于 2021-4-25 12:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">™D 土木工程真的是被看扁了呢
+
+
+-----
+
+####  LinkerWeg  
+##### 643#       发表于 2021-4-25 12:43
+
+
+感觉别的都挺好的，就是托瓦克线拉中有拉<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，完全工具一般的存在，个人而言上集就完全get不到那个转折
+
+
+-----
+
+####  冰箱研会长  
+##### 644#       发表于 2021-4-25 12:48
+
+
+单拿出来特别有盲人寻找导盲犬的感觉...
+
+
+mpv-shot0002.jpg
+(173.31 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-25 12:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/25/124843b8v4vyh0b1hb9117.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  寒风夜  
+##### 645#       发表于 2021-4-25 12:49
+
+
+怎么又是这大叔..
+
+
+-----
+
+####  gofbayrf  
+##### 646#       发表于 2021-4-25 12:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 反AI組織算不算人菜癮大  M去攻擊人真講不通 按母體的使命這是嚴重違反了  VV可是在島動工前就存在的  VV依賴的是塔才對  100年后就是  塔跟島二元對立了
+
+
+-----
+
+####  咸鱼咸又咸  
+##### 647#       发表于 2021-4-25 13:05
+
+
+翻过头再看，第一集开头AI脖子上都是红色的，这次岛上也全部变红，第一集的那个博士回忆里面本集画面也出现了，还缺少一个画面（见附图），估计又一个事件（2集），7,8集，然后就开始解谜大主线了吧。这样就还有四五集来讲故事，希望不要拉跨。
+
+
+<img src="https://img.saraba1st.com/forum/202104/25/130455s4nr2vxvf4r7424y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>vivi.jpg</strong> (133.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-25 13:04 上传
+
+
+-----
+
+####  whzfjk  
+##### 648#       发表于 2021-4-25 13:24
+
+
+透明礼服 AI 在第一集里的死相有点惨啊，不会是作为 vivy 劲敌的真反派吧。
+
+
+松本博士好像和 vivy 有过什么关系，不知道最后会是托瓦克老炮还是这次的博士。
+
+
+-----
+
+####  rynchee  
+##### 649#       发表于 2021-4-25 13:25
+
+
+话说vv又不是什么隐居者，天天都在游乐园唱歌，而且名气也是越来越大（虽说还没上主舞台），那位老被救的哥们想找vv估计网上搜一搜就能找到了。然而哥们从来没有想过在搞事之外的时间里去找vv一趟。
+
+
+-----
+
+####  flypig_zhy  
+##### 650#       发表于 2021-4-25 13:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51050604&amp;ptid=1982987" target="_blank">Piano-Forest 发表于 2021-4-25 01:02</a>
+
+【Vivy -Fluorite Eye’s Song-】#5
+
+
+5話もご視聴ありがとうございます‼</blockquote>
+飞行员夹克nice
+
+
+-----
+
+####  flypig_zhy  
+##### 651#       发表于 2021-4-25 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51053217&amp;ptid=1982987" target="_blank">selain.meneth 发表于 2021-4-25 10:59</a>
+
+注入该不会其实是战斗程序而不是病毒吧？</blockquote>
+我也这样觉得，看起来博士和他老婆反而要BE了？
+
+
+-----
+
+####  大丈夫萌大乃  
+##### 652#       发表于 2021-4-25 13:42
+
+
+大叔帽子戏法<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你是拿的公主剧本吧,每次出场就是扑街等着蓝薇救
+
+
+-----
+
+####  aptx8285144  
+##### 653#       发表于 2021-4-25 13:57
+
+
+某人又被救了这点简直是喜剧素材<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tuger  
+##### 654#       发表于 2021-4-25 14:03
+
+
+那位老哥日常被救是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LND-AL30, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  406  
+##### 655#       发表于 2021-4-25 14:10
+
+
+真别说，其实我看vivy下水时串戏到美人鱼剧场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+以及上一集真正救了老哥的是白吧，观众都记成vivy也太迫害了“你是master的什么人！”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flypig_zhy  
+##### 656#       发表于 2021-4-25 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51055225&amp;ptid=1982987" target="_blank">大丈夫萌大乃 发表于 2021-4-25 13:42</a>
+
+大叔帽子戏法你是拿的公主剧本吧,每次出场就是扑街等着蓝薇救</blockquote>
+旅馆是白救得
+
+
+-----
+
+####  dreamd  
+##### 657#       发表于 2021-4-25 14:46
+
+
+这反ai组织确实是人菜瘾大，不过这么多年还能维持下去还越做越大也是想不通。某领导人还一再被ai所救最后不跳反也说不过去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 658#       发表于 2021-4-25 14:52
+
+
+这话的演出效果特别是组织开始攻打那段感觉不太行，是不是他们看起来太菜的关系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  skgaminger1988  
+##### 659#       发表于 2021-4-25 19:12
+
+
+这拖瓦克也就欺负欺负民用设施了 碰到个等级高点的直接白给<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Duc_d'_Muka  
+##### 660#       发表于 2021-4-25 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51056096&amp;ptid=1982987" target="_blank">aptx8285144 发表于 2021-4-25 14:52</a>
+
+这话的演出效果特别是组织开始攻打那段感觉不太行，是不是他们看起来太菜的关系 ...</blockquote>
+这段确实感觉有点太快了，而且很儿戏，估计是篇幅被迫压缩了（顺便凸显他们菜）
+
+
+
+
+-----
+
+####  言酱啊啊啊  
+##### 661#       发表于 2021-4-25 19:33
+
+
+老哥怎么说也该40+了吧，咋看上去越来越没用了
+
+
+-----
+
+####  电车痴汉  
+##### 662#       发表于 2021-4-25 19:47
+
+
+人菜瘾大……
+
+
+-----
+
+####  dingruntian2  
+##### 663#       发表于 2021-4-25 20:25
+
+
+恐怖组织肯定有邪恶政府这种做后台啦，然后善良珂学家拯救人类？
+
+
+-----
+
+####  flypig_zhy  
+##### 664#       发表于 2021-4-25 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51059490&amp;ptid=1982987" target="_blank">电车痴汉 发表于 2021-4-25 19:47</a>
+
+人菜瘾大……</blockquote>
+哈马斯？
+
+
+                           

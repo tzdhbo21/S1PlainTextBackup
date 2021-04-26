@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-21 15:43** 
+> ## **本文件最后更新于2021-04-25 12:54** 
 
 
 
@@ -14859,10 +14859,7 @@ ape熬夜身体玩崩了，精神也崩了，还和家人吵架了，想发推�
 ####  飞姆托  
 ##### 5755#       发表于 2021-4-18 23:16
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">妈宝夸，离了久美子照顾不了自己
-
-[  -- 来自 有消息提醒的 Stage1官方 iOS客户端](https://itunes.apple.com/fi/app/saraba1st/id1221237470?mt=8)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -15320,4 +15317,306 @@ LSP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referre
 超稀有的杂谈，结果信息量好少
 
 
-      
+-----
+
+####  面具13  
+##### 5794#       发表于 2021-4-22 06:34
+
+
+感觉越躺越平，最后变成姨版凛子<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nulla03  
+##### 5795#       发表于 2021-4-22 06:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">那能不能来点asmr?
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Medling  
+##### 5796#       发表于 2021-4-22 07:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">趟，都可以趟
+
+
+-----
+
+####  FCCHua  
+##### 5797#       发表于 2021-4-22 08:25
+
+
+快进了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 5798#       发表于 2021-4-22 09:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">晚上早睡了，来看repo
+
+
+-----
+
+####  面具13  
+##### 5799#       发表于 2021-4-22 20:21
+
+
+今天发了个沙雕meme视频，直播概率降到了接近0的水平。
+
+
+-----
+
+####  Kanchiki  
+##### 5800#       发表于 2021-4-22 23:43
+
+
+正常直播模式 提前3小时以上开好窗发推or之前有预告过
+
+突击直播模式 提前1-半小时推特
+
+
+其他情况
+
+今天去收录了
+
+今天去吃饭了
+
+今天和XX去玩了
+
+发小视频
+
+感觉很困 再睡会儿
+
+醒来已经这个点了啊
+
+刚到家 好累
+
+作业做不完
+
+死线将至
+
+失联
+
+
+通通等于今天不播
+
+
+-----
+
+####  梅斯之围  
+##### 5801#       发表于 2021-4-23 11:37
+
+
+这人基本不突击的吧
+
+
+-----
+
+####  面具13  
+##### 5802#       发表于 2021-4-23 20:27
+
+
+今天发了早安推，但是看上去是摸了，要更新一下数据库了。
+
+
+-----
+
+####  梅斯之围  
+##### 5803#       发表于 2021-4-23 20:41
+
+
+怕不是熬夜之后的晚安推<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+刚发了推，又摸了
+
+
+-----
+
+####  面具13  
+##### 5804#       发表于 2021-4-23 20:58
+
+
+是去录东西了吧。
+
+
+-----
+
+####  面具13  
+##### 5805#       发表于 2021-4-24 18:58
+
+
+ 本帖最后由 面具13 于 2021-4-24 20:26 编辑 
+
+又是只能在电脑提示音里听到夸宝声音的一天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> rua！
+
+看上去以后是一周两播？周日歌回加工作日挑一天打卡？
+
+
+-----
+
+####  乌鸦绅士  
+##### 5806#       发表于 2021-4-25 10:24
+
+
+今晚重大告知<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 5807#       发表于 2021-4-25 10:28
+
+
+有没有二期生live的说法
+
+
+-----
+
+####  IDIDIDID  
+##### 5808#       发表于 2021-4-25 10:35
+
+
+立本又紧急事态了，不太可能是live
+
+
+-----
+
+####  面具13  
+##### 5809#       发表于 2021-4-25 10:35
+
+
+大胆点，2nd sololive
+
+
+-----
+
+####  nevp  
+##### 5810#       发表于 2021-4-25 10:39
+
+
+降低期待，是好事就行
+看这个意思今晚是又不播了
+
+
+-----
+
+####  梅斯之围  
+##### 5811#       发表于 2021-4-25 11:32
+
+
+感觉多半是二期生live吧
+
+
+-----
+
+####  Kanchiki  
+##### 5812#       发表于 2021-4-25 12:26
+
+
+百万纪念吧
+
+
+-----
+
+####  nevp  
+##### 5813#       发表于 2021-4-25 19:19
+
+
+还行
+
+
+-----
+
+####  ylssb10438  
+##### 5814#       发表于 2021-4-25 19:19
+
+
+ 本帖最后由 ylssb10438 于 2021-4-25 19:22 编辑 
+
+这是啥？录像免费放？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">新live啊<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5815#       发表于 2021-4-25 19:21
+
+
+实质2nd live吧
+
+
+-----
+
+####  梅斯之围  
+##### 5816#       发表于 2021-4-25 19:22
+
+
+啥，是录播还是新live
+
+
+-----
+
+####  FCCHua  
+##### 5817#       发表于 2021-4-25 19:27
+
+
+5月9日北京时间晚8点
+
+
+-----
+
+####  499  
+##### 5818#       发表于 2021-4-25 19:34
+
+
+应该是新live吧，但为啥是1st
+
+
+-----
+
+####  梅斯之围  
+##### 5819#       发表于 2021-4-25 19:43
+
+
+logo也换了，但是是1st？
+
+
+-----
+
+####  ylssb10438  
+##### 5820#       发表于 2021-4-25 19:47
+
+
+可能免费live和付费live分开算吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  soci  
+##### 5821#       发表于 2021-4-25 19:48
+
+
+第一个免费的sololive，用1st也正常，要是收费应该就是2nd
+
+
+-----
+
+####  kata魂  
+##### 5822#       发表于 2021-4-25 20:10
+
+
+这种发表是越来越随意了，新衣服那次也是，随口那么一提就过了
+
+
+     
