@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-26 11:39** 
+> ## **本文件最后更新于2021-04-26 12:57** 
 
 
 
@@ -6107,4 +6107,365 @@ TM社臆造出来的学习型AI<img src="https://static.saraba1st.com/image/smil
 没灵衣的太惨了，未曾设想的迫害方式
 
 
-                                
+-----
+
+####  xiongxingyu  
+##### 78525#       发表于 2021-4-26 19:42
+
+
+第9发11连唐突双黄2宝了鹤小姐，然而5星礼装还没出<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78526#       发表于 2021-4-26 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070478&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-4-26 19:39</a>
+
+鹤小姐就是个玩具吧……
+
+没灵衣的太惨了，未曾设想的迫害方式</blockquote>
+基本上。。。是个铁废物
+
+充能加攻都是宝具效果 宝具还有星数要求  出星技能还要根据有灵衣从者数量定。。。
+
+
+这一箩筐的限制凉透了
+
+
+-----
+
+####  xiongxingyu  
+##### 78527#       发表于 2021-4-26 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070508&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 19:42</a>
+
+基本上。。。是个铁废物
+
+充能加攻都是宝具效果 宝具还有星数要求  出星技能还要根据有灵衣从者数量定。。 ...</blockquote>
+宝具带换人效果，鉴于某个屑ai的例子在前，还是建议抽一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  浅倉透  
+##### 78528#       发表于 2021-4-26 19:43
+
+
+弱智卡
+
+
+-----
+
+####  風卷豹  
+##### 78529#       发表于 2021-4-26 19:44
+
+
+高贵的蓝爆拐没灵衣不配享用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78530#       发表于 2021-4-26 19:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070519&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-4-26 19:43</a>
+
+宝具带换人效果，鉴于某个屑ai的例子在前，还是建议抽一个</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看懂你说啥   能说明白点吗
+
+
+-----
+
+####  stefanie张  
+##### 78531#       发表于 2021-4-26 19:44
+
+
+自充多少，有50的话，可以带鲤鱼直接启动
+
+
+-----
+
+####  alucardcz  
+##### 78532#       发表于 2021-4-26 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070537&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-4-26 19:44</a>
+
+自充多少，有50的话，可以带鲤鱼直接启动</blockquote>
+100  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78533#       发表于 2021-4-26 19:46
+
+
+歪了孔明，坚决不氪了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  alucardcz  
+##### 78534#       发表于 2021-4-26 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070551&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 19:46</a>
+
+歪了孔明，坚决不氪了
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">1000石？ 
+
+
+-----
+
+####  qixinno2  
+##### 78535#       发表于 2021-4-26 19:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 国服300多石加一单一个五星没出 这日服新角色一发十连出了 我能说啥
+
+
+-----
+
+####  rooarr  
+##### 78536#       发表于 2021-4-26 19:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070557&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 19:46</a>
+1000石？</blockquote>
+300<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  xiongxingyu  
+##### 78537#       发表于 2021-4-26 19:48
+
+
+ 本帖最后由 xiongxingyu 于 2021-4-26 19:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070532&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 19:44</a>
+
+没看懂你说啥   能说明白点吗</blockquote>
+当初泳**B出来时很多人也觉得就是个水枪，锁卡只是噱头，后来超人熊和梵高抬了一手，虽然说不上是多强，但只是也能玩出不少花样。这个鹤小姐宝具buff完队友自动下场，以后开发开发至少也能玩出点花样来，反正这种拐也不用高宝，就当抽礼装附带的也无妨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78538#       发表于 2021-4-26 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070573&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-4-26 19:48</a>
+
+当初泳**B出来时很多人也觉得就是个水枪，锁卡只是噱头，后来超人熊和梵高抬了一手，虽然说不上是多强， ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的这些在我眼里都是杂技演员  我只看周回 高难反正都是jiao打 又不打竞速
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过感觉应该是张竞速玩家狂喜卡
+
+
+-----
+
+####  alucardcz  
+##### 78539#       发表于 2021-4-26 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070569&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 19:47</a>
+
+300
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嗨 这5星myroom里像个男人 丑爆了
+
+
+-----
+
+####  angelooo  
+##### 78540#       发表于 2021-4-26 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070617&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 19:53</a>
+
+嗨 这5星myroom里像个男人 丑爆了</blockquote>
+我也看到，无语了
+
+
+
+
+-----
+
+####  rooarr  
+##### 78541#       发表于 2021-4-26 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070617&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 19:53</a>
+嗨 这5星myroom里像个男人 丑爆了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新又豹了?欧，羡慕
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  alucardcz  
+##### 78542#       发表于 2021-4-26 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070649&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 19:56</a>
+
+萌新又豹了?欧，羡慕
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有 我在刷论坛
+
+
+-----
+
+####  angelooo  
+##### 78543#       发表于 2021-4-26 19:58
+
+
+ 本帖最后由 angelooo 于 2021-4-26 20:44 编辑 
+
+看到有人试了，说只能和4号位的换人？
+
+
+那人重新试了说不是，算了反正也不会抽……
+
+
+-----
+
+####  areklose  
+##### 78544#       发表于 2021-4-26 19:59
+
+
+还债了，千石一宝
+
+
+-----
+
+####  白夜羽  
+##### 78545#       发表于 2021-4-26 20:07
+
+
+这卡面看上去是真的爷们…<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+又是毫无兴趣的一期，继续憋石头<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  eden_hazard  
+##### 78546#       发表于 2021-4-26 20:08
+
+
+ 本帖最后由 eden_hazard 于 2021-4-26 20:11 编辑 
+
+护符加石头总共5个11连出货了，如果抽卡前能想起来先去看一眼nga，这些石头护符就能省下来了，可惜<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 78547#       发表于 2021-4-26 20:08
+
+
+这新角色上来给你个必败试玩是要干什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78548#       发表于 2021-4-26 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070732&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-4-26 20:08</a>
+
+这新角色上来给你个必败试玩是要干什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是要告诉你这角色就是个废物 别冲动了
+
+
+-----
+
+####  里村紅葉  
+##### 78549#       发表于 2021-4-26 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070741&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-26 20:10</a>
+
+就是要告诉你这角色就是个废物 别冲动了</blockquote>
+谢谢叶鸽儿，20连出了个尼托溜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78550#       发表于 2021-4-26 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070722&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-4-26 20:07</a>
+
+这卡面看上去是真的爷们…
+
+又是毫无兴趣的一期，继续憋石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">帽子发饰一脱就是一个男人（
+
+
+-----
+
+####  qixinno2  
+##### 78551#       发表于 2021-4-26 20:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070756&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-4-26 20:12</a>
+
+谢谢叶鸽儿，20连出了个尼托溜了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我一进去就惊了 一技能按了毫无效果 二技能充85好像很NB 三技能没星星完全无意义 然后被一刀砍了大半管血败了 这鬼才设计
+
+
+-----
+
+####  里村紅葉  
+##### 78552#       发表于 2021-4-26 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070821&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-26 20:21</a>
+
+我一进去就惊了 一技能按了毫无效果 二技能充85好像很NB 三技能没星星完全无意义 然后被一刀砍了 ...</blockquote>
+不如说剧情里JC模样的女孩子一进战斗就变成个大妈女海盗我已经傻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+然后一看对面身上的BUFF<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stefanie张  
+##### 78553#       发表于 2021-4-26 20:45
+
+
+这卡感觉借好友的就行了，用不到两个的时候。
+
+
+-----
+
+####  smdzh2  
+##### 78554#       发表于 2021-4-26 20:47
+
+
+最强男拐已抵达她忠诚的迦勒底<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">好奇如果2.6出个男妖精能不能充20+20
+
+
+                               

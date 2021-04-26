@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-25 10:44** 
+> ## **本文件最后更新于2021-04-26 12:56** 
 
 
 
@@ -888,8 +888,7 @@ mea:我一直都是虹人啊<img src="https://static.saraba1st.com/image/smiley/
 ####  Joffre✔  
 ##### 13588#       发表于 2021-4-15 23:09
 
-
-苔姨怎么突然结婚了 下一个就该小麻了吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1395,8 +1394,7 @@ syl，**的你们对犬山结婚这事要车几次啊<img src="https://static.sa
 ####  Joffre✔  
 ##### 13637#       发表于 2021-4-16 17:37
 
-
-只要结婚不影响直播就无所谓了 而且有男朋友了杂谈素材也更多 不是更有意思吗 有了小小麻还能分享育儿经验 这不比脑死直播有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1706,8 +1704,7 @@ s1，nga，q群，我都看了不下十次了<img src="https://static.saraba1st.
 ####  Joffre✔  
 ##### 13664#       发表于 2021-4-16 21:54
 
-
-直播不清楚 不过字幕组评论区到是一直有在管的 好几次想和评论区的8u亲切互动 字刚打完就评论不存在了
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -2929,8 +2926,7 @@ u18的那张是哪边找到的能讲讲吗？她饭盒的图一大半是恐怖�
 ####  Joffre✔  
 ##### 13781#       发表于 2021-4-18 20:43
 
-
-怎么这几天那么爱唱川.普快乐歌<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3055,8 +3051,7 @@ u18的那张是哪边找到的能讲讲吗？她饭盒的图一大半是恐怖�
 ####  Joffre✔  
 ##### 13795#       发表于 2021-4-18 21:02
 
-
-肥肥唱歌才不累吧 以前测肺活量也是胖子的数值明显高
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3111,8 +3106,7 @@ u18的那张是哪边找到的能讲讲吗？她饭盒的图一大半是恐怖�
 ####  Joffre✔  
 ##### 13801#       发表于 2021-4-18 22:29
 
-
-突然想到 苔太的企划要是性别对调会咋样 4个男v问一个女v要和谁鸳鸯浴 想想就刺激<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3311,10 +3305,7 @@ a版那不是更弱智，人家主场你说啥不都是给人当乐子，不过�
 ####  Joffre✔  
 ##### 13821#       发表于 2021-4-19 10:21
 
-
-那个二创必须给授权了吧 都有点威胁的感觉了 不给的话 加害者秒变受害者 说什么自己辛苦做了两个月 被迫下架
-
-业界强大如卡普空 不给holo授权直播要求下架视频都能被杏奴冲 小小二创组可顶不住<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3448,8 +3439,7 @@ MK2是不是分手了啊，最近高强度黑屁
 ####  Joffre✔  
 ##### 13834#       发表于 2021-4-19 10:49
 
-
-只能说连体人到哪都是连体人 跑到as那边还要整nt连体活<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3584,11 +3574,7 @@ mk2就像那个，鱼篓里的鲶鱼，能让一群快死的鱼保持活力
 ####  Joffre✔  
 ##### 13847#       发表于 2021-4-19 11:17
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50983907&amp;ptid=1973472" target="_blank">专业划水人员 发表于 2021-4-19 11:07</a>
-
-不明白你们脑回路。那么想他们打起来，最后还不是天狗和小麻白增加一堆敌人。 ...</blockquote>
-为啥打起来天狗会树敌多 连体人基本上都是偏crew的比较多吧 天狗是偏毒唯的多些
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5169,8 +5155,7 @@ https://b23.tv/z0ScBa
 ####  Joffre✔  
 ##### 13984#       发表于 2021-4-20 21:23
 
-
-虚拟区运营怎么连转播都宣传的 是不是有天狗混进b站运营了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7491,8 +7476,7 @@ rp一定是给和野男人私联小号的放的烟雾弹</blockquote>
 ####  Joffre✔  
 ##### 14208#       发表于 2021-4-24 17:56
 
-
-那定是没有的 那么大的体型得定做 可贵了 小麻可不爱花这么多钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7919,10 +7903,11 @@ v圈都成这个样子了 还真有人在乎播放量这东西吗 不会吧不�
 评分
 
 
- 参与人数 4战斗力 +5
+ 参与人数 5战斗力 +6
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 减分之加| + 1|好活我等|
 | turezyy| + 2|加油|
 | azccc52| + 1|好评加鹅|
 | thisisaspider| + 1|好评加鹅|
@@ -8396,4 +8381,216 @@ pc端的头图吗，那是我和饭盒群约稿的。我动态有发，
 小麻跟我一样兴奋，贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-                       
+-----
+
+####  Mr.shelter  
+##### 14294#       发表于 2021-4-25 19:03
+
+
+听了歌之后就想发情，很难受<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 14295#       发表于 2021-4-25 19:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14296#       发表于 2021-4-25 19:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 14297#       发表于 2021-4-25 19:14
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  掉头学姐  
+##### 14298#       发表于 2021-4-25 19:21
+
+
+是love
+
+
+-----
+
+####  路人辰  
+##### 14299#       发表于 2021-4-25 20:09
+
+
+20210425东京19点（1、2、3、4）
+
+<img src="https://img.saraba1st.com/forum/202104/25/200849tl8qufwp8wttttzw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>B65722A5-24C7-46D4-A5EE-5DA83D52C2CE.jpeg</strong> (381.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-25 20:08 上传
+
+
+-----
+
+####  路人庚  
+##### 14300#       发表于 2021-4-25 20:36
+
+
+黑暗曲风好啊，希望你咩姐哪天能把琥珀的身体拿出来翻唱一下（做梦
+
+
+-----
+
+####  Klience  
+##### 14301#       发表于 2021-4-25 20:59
+
+
+看到魔圆新剧场马上想到小钢珠 不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14302#       发表于 2021-4-25 21:19
+
+
+（我的关注点倒是在“仕事します”这里
+
+
+印象中过去也是提过回家了也是存在工作内容的（不会是收集全家老小的票据拿去理税师那里报销8
+
+
+-----
+
+####  Cushaw  
+##### 14303#       发表于 2021-4-25 21:26
+
+
+什么勤俭持家好女人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14304#       发表于 2021-4-26 08:11
+
+
+臭女人，快播啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14305#       发表于 2021-4-26 09:15
+
+
+啊，昨晚看比赛加上发现自己有黑眼圈早睡了，早上起来才忽然发现乐一前天哭的过气是在给自己哭啊
+
+哄堂大笑了xdm<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 14306#       发表于 2021-4-26 16:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">感觉三天没听到小麻的声音跟三年没听到一样 
+
+
+-----
+
+####  呓亘  
+##### 14307#       发表于 2021-4-26 17:14
+
+
+吕人快开播啊
+
+
+-----
+
+####  黒長直姫  
+##### 14308#       发表于 2021-4-26 18:28
+
+
+不吹不黑 换了新皮以后戒断症状确实严重了
+
+
+也可能是换了新皮小麻媚宅满开的原因吧
+
+
+-----
+
+####  kenjjj  
+##### 14309#       发表于 2021-4-26 18:56
+
+
+媚宅好，多媚点
+
+
+-----
+
+####  时间在我手中  
+##### 14310#       发表于 2021-4-26 19:50
+
+
+我这两天还好，有东西要学就感觉能暂时忘记臭女人了
+
+
+也可能是下意识对这周就没啥期待吧，忙起来了这说法怎么听也不像是单人直播要忙的样子，联动的话emmmm，不确定性有点多，我现在都不怎么期待联动是真的
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 14311#       发表于 2021-4-26 20:05
+
+
+这么久不播是不是去银趴了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14312#       发表于 2021-4-26 20:11
+
+
+看了下新闻 又是紧急宣言 又是火山爆发 又是集装箱泄露 这么多灾多难的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14313#       发表于 2021-4-26 20:13
+
+
+说不定去录音室了，一群人大汉淋漓的
+
+
+-----
+
+####  Cushaw  
+##### 14314#       发表于 2021-4-26 20:16
+
+
+可以早日进化成里界大物吗？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                      
