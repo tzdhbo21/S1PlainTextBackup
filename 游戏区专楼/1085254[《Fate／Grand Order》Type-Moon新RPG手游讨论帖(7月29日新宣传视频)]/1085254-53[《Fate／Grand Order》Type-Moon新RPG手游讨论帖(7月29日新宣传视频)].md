@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-21 09:41** 
+> ## **本文件最后更新于2021-04-26 11:39** 
 
 
 
@@ -3838,8 +3838,7 @@ wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装
 ####  longrider  
 ##### 78322#       发表于 2021-4-14 17:12
 
-
-5宝百级大**顶青天
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3905,20 +3904,7 @@ wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装
 ####  longrider  
 ##### 78328#       发表于 2021-4-14 17:32
 
-
-宝具倍率
-
-900%        1200%        1350%        1425%        1500%
-
-➡️
-
-1200%        1500%        1650%        1725%        1800%
-
-
-后置蓝卡耐性20%down
-
-
-最强蓝色单体了吧
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5692,4 +5678,433 @@ TM社臆造出来的学习型AI<img src="https://static.saraba1st.com/image/smil
 话说前段时间我好像用过贞师傅。。那个黑胡子本？
 
 
-                                 
+-----
+
+####  stefanie张  
+##### 78487#       发表于 2021-4-21 17:55
+
+
+都强化了就不能顺便把概率弄成100吗
+
+
+-----
+
+####  areklose  
+##### 78488#       发表于 2021-4-21 18:09
+
+
+<blockquote>sesuna 发表于 2021-4-21 17:24
+牛B,UP有份,强化没份,酒吞废案英灵实锤</blockquote>
+半年前才加自充，怎么可能那么快又强化
+
+
+-----
+
+####  qixinno2  
+##### 78489#       发表于 2021-4-21 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51014081&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-4-21 17:55</a>
+
+都强化了就不能顺便把概率弄成100吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便改成三回合 岂不更加伟大
+
+
+-----
+
+####  khxooo  
+##### 78490#       发表于 2021-4-21 18:44
+
+
+所有石头没有了，但是有点爽？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78491#       发表于 2021-4-21 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51014226&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-21 18:09</a>
+
+半年前才加自充，怎么可能那么快又强化</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可你游现在强化还有什么逻辑可循吗 
+
+
+全 看 心 情
+
+
+-----
+
+####  sesuna  
+##### 78492#       发表于 2021-4-21 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51014226&amp;ptid=1085254" target="_blank">areklose 发表于 2021-4-21 18:09</a>
+
+半年前才加自充，怎么可能那么快又强化</blockquote>
+好吧,我只是吐槽废狗强化本安排真的随心所欲
+
+
+-----
+
+####  smdzh2  
+##### 78493#       发表于 2021-4-21 19:15
+
+
+啥情况，又有强化？
+
+海妈强化好评，但是唯一神你能不能把概率加强到100%，每次看到miss都心肺停止
+
+贞德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">算了不提也罢
+
+
+-----
+
+####  里村紅葉  
+##### 78494#       发表于 2021-4-21 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51014697&amp;ptid=1085254" target="_blank">sesuna 发表于 2021-4-21 18:53</a>
+
+好吧,我只是吐槽废狗强化本安排真的随心所欲</blockquote>
+财务自由的下一步就是运营自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  الطائر  
+##### 78495#       发表于 2021-4-23 05:15
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/050907dx8g9kz3e134gsfe.png" referrerpolicy="no-referrer">
+
+
+<strong>f4b84445d688d43f0454fcbd6a1ed21b0ff43b3f.png</strong> (93.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 05:09 上传
+
+
+失踪的社长被找到了
+
+
+-----
+
+####  qixinno2  
+##### 78496#       发表于 2021-4-23 06:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51030536&amp;ptid=1085254" target="_blank">الطائر 发表于 2021-4-23 05:15</a>
+
+失踪的社长被找到了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以为什么对头上那玩意就那么坚持 明明没有好看很多
+
+
+-----
+
+####  angelooo  
+##### 78497#       发表于 2021-4-23 15:56
+
+
+这改的衣服可以，脸还是没救，原图崩得太彻底了
+
+
+-----
+
+####  黑上シグマ  
+##### 78498#       发表于 2021-4-26 17:36
+
+
+说是过会儿生放会有终章动画的新情报
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  khxooo  
+##### 78499#       发表于 2021-4-26 18:07
+
+
+现在还没有7W<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78500#       发表于 2021-4-26 18:21
+
+
+“新”情报<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78501#       发表于 2021-4-26 18:45
+
+
+<blockquote>引用第78499楼khxooo于2021-04-26 18:21发表的  :
+
+“新”情报</blockquote>
+预告的预告，日本人最喜欢搞了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  exiaexa  
+##### 78502#       发表于 2021-4-26 19:03
+
+
+ 本帖最后由 exiaexa 于 2021-4-26 19:04 编辑 
+
+艹，牛若丸画师怎么突然就超进化了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后尼禄这个红配绿太草
+
+
+-----
+
+####  alucardcz  
+##### 78503#       发表于 2021-4-26 19:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">app图标人物依然丢人.jpg
+
+
+-----
+
+####  alucardcz  
+##### 78504#       发表于 2021-4-26 19:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新人来了 水桥？
+
+
+-----
+
+####  这名字谁会去看  
+##### 78505#       发表于 2021-4-26 19:13
+
+
+这什么 伊吕波？
+
+
+-----
+
+####  浅倉透  
+##### 78506#       发表于 2021-4-26 19:15
+
+
+马奇马
+
+
+-----
+
+####  khxooo  
+##### 78507#       发表于 2021-4-26 19:15
+
+
+鹤小姐效果都没有演示，这么神秘？
+
+
+-----
+
+####  sqd  
+##### 78508#       发表于 2021-4-26 19:16
+
+
+李庄还是好看的
+
+
+-----
+
+####  alucardcz  
+##### 78509#       发表于 2021-4-26 19:16
+
+
+什么，居然马上就开了
+
+我以为还要摸几天
+
+
+-----
+
+####  alucardcz  
+##### 78510#       发表于 2021-4-26 19:17
+
+
+开奶了。。我先来。。新术不是拐（
+
+
+
+
+-----
+
+####  rooarr  
+##### 78511#       发表于 2021-4-26 19:17
+
+
+性能不好就不氪金抽了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  khxooo  
+##### 78512#       发表于 2021-4-26 19:18
+
+
+有艾蕾礼装，YLS你算计我<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78513#       发表于 2021-4-26 19:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070279&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 19:17</a>
+
+性能不好就不氪金抽了
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">课了就能抽到吗！
+
+
+-----
+
+####  exiaexa  
+##### 78514#       发表于 2021-4-26 19:19
+
+
+主要是这动画，怎么看都感觉是遗言效果啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yangun22  
+##### 78515#       发表于 2021-4-26 19:19
+
+
+居然今晚开，大意了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78516#       发表于 2021-4-26 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070287&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 19:18</a>
+课了就能抽到吗！</blockquote>
+预估了1000石，应该抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  alucardcz  
+##### 78517#       发表于 2021-4-26 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070312&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 19:21</a>
+
+预估了1000石，应该抽到了
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你课的有点多啊
+
+
+-----
+
+####  rooarr  
+##### 78518#       发表于 2021-4-26 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070322&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-26 19:22</a>
+你课的有点多啊</blockquote>
+因为每年联动都是5单才出<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  alucardcz  
+##### 78519#       发表于 2021-4-26 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070339&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 19:24</a>
+
+因为每年联动都是5单才出
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新只剩6石了
+
+
+-----
+
+####  清风朗月  
+##### 78520#       发表于 2021-4-26 19:29
+
+
+尼禄居然已经有3套灵衣了
+
+
+-----
+
+####  angelooo  
+##### 78521#       发表于 2021-4-26 19:32
+
+
+尼禄是亲女儿没人反对了吧
+
+活动礼装迫害太过分了，灵衣败犬组
+
+
+-----
+
+####  alucardcz  
+##### 78522#       发表于 2021-4-26 19:34
+
+
+这新卡机制的确挺新的
+
+但是性能。。。。。
+
+
+-----
+
+####  alucardcz  
+##### 78523#       发表于 2021-4-26 19:36
+
+
+梅芙技能本。。。BX宝具本。。。
+
+
+-----
+
+####  angelooo  
+##### 78524#       发表于 2021-4-26 19:39
+
+
+鹤小姐就是个玩具吧……
+
+没灵衣的太惨了，未曾设想的迫害方式
+
+
+                                
