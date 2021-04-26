@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-25 11:11** 
+> ## **本文件最后更新于2021-04-26 02:05** 
 
 
 
@@ -2919,10 +2919,12 @@ u1s1bba桑这个歌力在你杏还是相当过硬的，为日后加入live组铺
 评分
 
 
- 参与人数 9战斗力 +10
+ 参与人数 11战斗力 +12
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Devi_Lito| + 1|好评加鹅|
+| wiig| + 1|你的情绪传达给我了|
 | 空集| + 1|好评加鹅|
 | podball| + 1|好评加鹅|
 | 渡鸦骑士| + 1|nene的虚无和心机很有特色|
@@ -3077,6 +3079,21 @@ V综相关（大概
 2021-4-25 15:55 上传
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LilMemo| + 1|划重点：狠狠弄她|
+
+
+查看全部评分
+
+
 -----
 
 ####  IDIDIDID  
@@ -3192,7 +3209,247 @@ v冢实在是入土了
 ##### 224#       发表于 2021-4-25 19:08
 
 
+ 本帖最后由 FCCHua 于 2021-4-25 19:40 编辑 
+
 小千cr和花芽，哈弟组队<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+她终于下了，感觉直播了一天apex<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-                                          
+-----
+
+####  OldGlory  
+##### 225#       发表于 2021-4-25 19:28
+
+
+[https://www.youtube.com/watch?v=yK2Cdi6R43c&amp;ab_channel=HACHI](https://www.youtube.com/watch?v=yK2Cdi6R43c&amp;ab_channel=HACHI)
+
+
+-----
+
+####  黑之和  
+##### 226#       发表于 2021-4-25 19:50
+
+
+ 本帖最后由 黑之和 于 2021-4-25 20:09 编辑 
+
+我被钓了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">阿b拉胯，说是七点开结果都快八点了还没准确时间
+双人成行是好游戏啊
+希望他们会接着播这个游戏<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+想想毛线精灵，还是随缘吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+开了捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 227#       发表于 2021-4-25 20:30
+
+
+[https://twitter.com/minatoaqua/status/1386277754245505024](https://twitter.com/minatoaqua/status/1386277754245505024)
+
+【重大告知】
+
+湊あくあ史上初！！！！
+
+YouTubeで無料ライブ開催します闪片闪片
+
+
+「あくあ色みらくるす〜ぱ〜☆どり〜む♪」
+
+
+⚓1st 3D LIVE⚓
+
+5月9日 21:00〜
+
+Aqua Channelにて配信開始
+
+
+世界中、あくあ色に染まれ！！！
+
+
+#湊あくあ3Dライブ
+
+
+-----
+
+####  OldGlory  
+##### 228#       发表于 2021-4-25 20:33
+
+
+king人气差叶师傅这么多我是没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 229#       发表于 2021-4-25 20:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">king现在和叶差这么多怎么想都是偷腥猫尊某人的锅
+
+
+-----
+
+####  真飞鸟i  
+##### 230#       发表于 2021-4-25 20:39
+
+
+主要是打钱上的差距吧
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  aptx318  
+##### 231#       发表于 2021-4-25 20:59
+
+
+国内一直是叶队多吧，平时人气就2倍差距，现在这互动人数也是2倍，剩下的是礼物倍率了。
+
+
+-----
+
+####  freakystar  
+##### 232#       发表于 2021-4-25 21:14
+
+
+他俩这是定期到B站收租吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+顺便King人气没受影响，尊妈那边怎样？
+
+
+-----
+
+####  rzrbtk  
+##### 233#       发表于 2021-4-25 21:17
+
+
+b站叶师强，油管葛叶强，魔怔单腿人可以据环境对骂扶贫，就挺好的，人人有份的感觉
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|思路广|
+
+
+查看全部评分
+
+
+-----
+
+####  FCCHua  
+##### 234#       发表于 2021-4-25 21:33
+
+
+尊妈点踩人数还是好几百，不过对比之前有在随着时间降了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LilMemo  
+##### 235#       发表于 2021-4-25 21:53
+
+
+v冢，我的v冢<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 236#       发表于 2021-4-25 21:53
+
+
+<img src="https://p.sda1.dev/1/d3a8e4e37304c9c0f2c1f8ae27293ef1/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 237#       发表于 2021-4-25 22:59
+
+
+[https://www.youtube.com/watch?v=d1lcin1CkXE](https://www.youtube.com/watch?v=d1lcin1CkXE)
+
+96猫和天月翻唱人型
+
+[https://twitter.com/lovechan_lp/status/1386301465690476552](https://twitter.com/lovechan_lp/status/1386301465690476552)
+
+love酱3D化决定
+
+[https://twitter.com/holostarstv/status/1386289429531086852](https://twitter.com/holostarstv/status/1386289429531086852)
+
+杏星2周年线下活动，6.25-6.27三天
+
+
+-----
+
+####  winda  
+##### 238#       发表于 2021-4-25 23:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">尊妹的评论区自从出事后就没了，意外的弱点
+
+
+-----
+
+####  winda  
+##### 239#       发表于 2021-4-26 07:07
+
+
+<img src="https://img.saraba1st.com/forum/202104/26/070709c01fu8rgrf0glf5f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210426_070549.jpg</strong> (267.09 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-26 07:07 上传
+
+
+kagayaki杯这分组，莱德哥你就坐着等被妹带吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  神影依  
+##### 240#       发表于 2021-4-26 08:46
+
+
+免费为时乃空引流的样子很狼狈，但他不懈地关注V圈歌势相关真的很靓仔。
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 241#       发表于 2021-4-26 09:37
+
+
+总得有个盾
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  poipanchao  
+##### 242#       发表于 2021-4-26 09:41
+
+
+白雪你得支愣起来啊
+成天妹带
+
+
+                                         
