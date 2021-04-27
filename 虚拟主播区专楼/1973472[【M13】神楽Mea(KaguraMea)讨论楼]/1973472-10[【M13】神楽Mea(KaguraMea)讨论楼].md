@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-26 12:56** 
+> ## **本文件最后更新于2021-04-27 09:44** 
 
 
 
@@ -8593,4 +8593,523 @@ pc端的头图吗，那是我和饭盒群约稿的。我动态有发，
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-                      
+-----
+
+####  Klience  
+##### 14315#       发表于 2021-4-26 21:09
+
+
+动了动了 小麻和野男人lol<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 14316#       发表于 2021-4-26 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071250&amp;ptid=1973472" target="_blank">Klience 发表于 2021-4-26 21:09</a>
+ 动了动了 小麻和野男人lol</blockquote>
+现在还在打吗
+
+
+-----
+
+####  Klience  
+##### 14317#       发表于 2021-4-26 23:05
+
+
+打了两局 不打了  一局猫咪0/3 一局赛娜0/10<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14318#       发表于 2021-4-26 23:08
+
+
+猪逼吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14319#       发表于 2021-4-26 23:37
+
+
+戒网瘾是吧
+
+
+-----
+
+####  Mikumiku831  
+##### 14320#       发表于 2021-4-26 23:37
+
+
+固定和野男人双排么
+
+
+-----
+
+####  路人庚  
+##### 14321#       发表于 2021-4-26 23:46
+
+
+就是那个十几人的车队小群呗，谁有空或者时间对上了就会汗你咩姐一起打几把
+
+
+话说这种情报还是少聊罢，聊多了免得又被狙击挂推特
+
+
+-----
+
+####  A2014720  
+##### 14322#       发表于 2021-4-26 23:54
+
+
+我也想成为野男人啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14323#       发表于 2021-4-26 23:57
+
+
+什么叫谁有空 我看那车队 上班时间都在打的 你麻上游戏基本都是和那几个人一起玩 我都怀疑那几个人都是neet<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14324#       发表于 2021-4-26 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">那大概只能去找时光机了
+
+
+-----
+
+####  甘栗No.007  
+##### 14325#       发表于 2021-4-27 00:22
+
+
+楼友看起来控制欲好强，可怕<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14326#       发表于 2021-4-27 00:31
+
+
+要不是现在疫情办不了签证，真想去日本狠狠弄她，把她的四肢都打断，垃圾。
+
+
+-----
+
+####  Klience  
+##### 14327#       发表于 2021-4-27 00:34
+
+
+ 本帖最后由 Klience 于 2021-4-27 00:35 编辑 
+
+那你是没见过她玩上单波比打出19/3的战绩哦 输出全靠反甲打出来的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14328#       发表于 2021-4-27 00:43
+
+
+好重的免费味<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14329#       发表于 2021-4-27 00:45
+
+
+什么免费味？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|隔壁空友crew free|
+
+
+查看全部评分
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 14330#       发表于 2021-4-27 01:13
+
+
+警惕免费病毒人传人现象<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  GRMeA104  
+##### 14331#       发表于 2021-4-27 01:27
+
+
+开了一把刀妹被波比恶心了，破防了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 14332#       发表于 2021-4-27 01:30
+
+
+心血来潮看看，戳中笑点。
+
+<img src="https://img.saraba1st.com/forum/202104/27/012813gu7f88fwuc8uekey.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210427012721618.jpg</strong> (4.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-27 01:28 上传
+
+
+让我点开来看看<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+‘‘’‘’‘
+
+‘
+
+‘
+
+‘’
+
+‘’‘’‘’‘
+
+‘
+
+‘
+
+‘’
+
+‘’‘’‘’‘’‘’‘’‘’‘’‘
+
+
+‘
+
+‘
+
+‘
+
+’’’’
+
+
+<img src="https://img.saraba1st.com/forum/202104/27/012920hazn0b9xarcnqa7b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210427012900203.jpg</strong> (5.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-27 01:29 上传
+
+
+-----
+
+####  wwwwwssjwb  
+##### 14333#       发表于 2021-4-27 02:30
+
+
+aeg是什么
+
+
+-----
+
+####  肥到终点  
+##### 14334#       发表于 2021-4-27 03:31
+
+
+<blockquote>wwwwwssjwb 发表于 2021-4-27 02:30
+aeg是什么</blockquote>
+烤肉打轴工具
+
+
+-----
+
+####  时间在我手中  
+##### 14335#       发表于 2021-4-27 09:03
+
+
+打断然后关地下室，happy end是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">哈人
+aeg全称aegisub，你要是想用别的字幕软件也有arctime这种玩意儿就是了，甚至你可以用pre做那种模仿本土剪辑字幕的玩意儿
+
+
+-----
+
+####  yywzjsw  
+##### 14336#       发表于 2021-4-27 09:43
+
+
+没麻没播，感觉好空闲，最近都天天早睡，没有熬死人的tc和直播
+
+
+-----
+
+####  Klience  
+##### 14337#       发表于 2021-4-27 10:05
+
+
+打游戏呗 总有方法消磨时光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 14338#       发表于 2021-4-27 14:56
+
+
+tc
+
+
+-----
+
+####  A2014720  
+##### 14339#       发表于 2021-4-27 15:06
+
+
+et你怎么卡构思都搞不过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14340#       发表于 2021-4-27 15:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那帖后面怎么冒出个复制粘贴怪，笑死我了
+
+
+
+
+-----
+
+####  A2014720  
+##### 14341#       发表于 2021-4-27 15:17
+
+
+不是有人在宇宙楼提了一下我还不知道发生了啥
+
+进去就看见个muted<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">…
+
+
+-----
+
+####  weiweiEX  
+##### 14342#       发表于 2021-4-27 15:19
+
+
+卡苟斯躺地上打轱辘et你还跟他讲个啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人学v8应付你你也该去v8进修一下
+
+
+-----
+
+####  掉头学姐  
+##### 14343#       发表于 2021-4-27 15:35
+
+
+tc播了
+
+
+-----
+
+####  rosevalley46  
+##### 14344#       发表于 2021-4-27 15:49
+
+
+又在前男友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  physi1202  
+##### 14345#       发表于 2021-4-27 15:52
+
+
+饭盒发的问候信是什么东西
+
+
+-----
+
+####  时间在我手中  
+##### 14346#       发表于 2021-4-27 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51077937&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-27 15:06</a>
+
+et你怎么卡构思都搞不过了</blockquote>
+我本来就没想能干死他，而且那地方他主场你让我怎么搞，井皇的狗脸皮就这么厚啊
+
+
+syl，今天这TC不错啊，还挺有趣的
+
+
+-----
+
+####  时间在我手中  
+##### 14347#       发表于 2021-4-27 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51078059&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-4-27 15:19</a>
+
+卡苟斯躺地上打轱辘et你还跟他讲个啥人学v8应付你你也该去v8进修一下</blockquote>
+得了，骂爽了就行了，反正他要装就装，nga嘛，懂得都懂，没意思的
+
+
+看tc了，今晚看来能动手
+
+
+-----
+
+####  黒長直姫  
+##### 14348#       发表于 2021-4-27 16:11
+
+
+麻了这撒娇感 上着班硬了
+
+
+-----
+
+####  Cushaw  
+##### 14349#       发表于 2021-4-27 16:18
+
+
+上班不能看，很急<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  A2014720  
+##### 14350#       发表于 2021-4-27 16:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51078520&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-27 16:05</a>
+我本来就没想能干死他，而且那地方他主场你让我怎么搞，井皇的狗脸皮就这么厚啊
+
+
+syl，今天这TC不错啊， ...</blockquote>
+不知道你们是咋发现顺劈的…这么闲吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我对于新时代人是很无感了，说到底部分人只是大家庭粉运营粉而已<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14351#       发表于 2021-4-27 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51078743&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-4-27 16:26</a>
+
+不知道你们是咋发现顺劈的…这么闲吗
+
+
+我对于新时代人是很无感了，说到底部分人只是大家庭粉运营 ...</blockquote>
+走廊能刷到而已，这点是我失误了忘了屏蔽P版人，主要是那个标题看着很意味不明有点好奇就看了一下
+
+
+同传大概内容丢那边楼了懒得复制了
+
+反正今天挺可爱，找个时间重听了
+
+今晚还可能播，这话题就别继续了，我心情现在不错
+
+
+-----
+
+####  雪风utopia  
+##### 14352#       发表于 2021-4-27 16:50
+
+
+有小麻听，卡指导也被塞了，很开心<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14353#       发表于 2021-4-27 17:02
+
+
+一会儿北京时间六点播，楼友吃饱饭等小麻吧
+
+
+-----
+
+####  雪风utopia  
+##### 14354#       发表于 2021-4-27 17:07
+
+
+ 本帖最后由 雪风utopia 于 2021-4-27 17:17 编辑 
+
+边吃饭边吃小麻<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+syl 今天能三播一定是野男人给了足够的精力<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14355#       发表于 2021-4-27 17:11
+
+
+啥 又有什么乐子吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14356#       发表于 2021-4-27 17:16
+
+
+也就是说这人这两天回老家了 然后回来和野男人lol了吗 真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14357#       发表于 2021-4-27 17:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51079332&amp;ptid=1973472" target="_blank">Klience 发表于 2021-4-27 17:16</a>
+
+也就是说这人这两天回老家了 然后回来和野男人lol了吗 真有你的</blockquote>
+这操作以前就有了，回老家然后回来之后第一天不播LOL放松一下自己也没啥，她最近看起来挺忙的样子
+
+明早还有事要出去呢
+
+
+-----
+
+####  Klience  
+##### 14358#       发表于 2021-4-27 17:39
+
+
+她tc完马上去打极地了 现在也在打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                     

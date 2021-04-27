@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-26 15:49** 
+> ## **本文件最后更新于2021-04-27 09:47** 
 
 
 
@@ -6716,4 +6716,332 @@ B站有个up抽这个2000石头1宝，fgo现在是不是就是帕青哥啊？</b
 <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">爬塔还真没用上梅芙，一个四星全体，一个五星全体，一个四星单体，三人解决战斗，没有五星单体宝具什么事（
 
 
-                              
+-----
+
+####  exiaexa  
+##### 78577#       发表于 2021-4-27 00:07
+
+
+梅芙和BX真的是精准强化，完全强化到点上的那种，梅芙甚至可以当炮弹了
+
+同行一个0强化的拉二，一个强化得莫名其妙的X
+
+你们该反思一下是不是上辈子杀过唯一神的马
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Jamaisvu  
+##### 78578#       发表于 2021-4-27 00:48
+
+
+ 本帖最后由 Jamaisvu 于 2021-4-27 00:53 编辑 
+
+鹤小姐这个宝具与活动不太契合啊，宝具BUFF是加到第一个人身上，但活动的C位BUFF是给中间那个人...总之奇怪的玩具增加了...
+
+想明白了，鹤放第一位，输出放第二位，就能吃到两种buff了...而且首位换人也许能搭配陈宫献祭流...换人机制还挺珍贵的，估计是潜力股。
+
+
+-----
+
+####  rooarr  
+##### 78579#       发表于 2021-4-27 00:51
+
+
+才发现今天歪的孔明是第5宝，拉二也是这样歪满的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sin.yugi  
+##### 78580#       发表于 2021-4-27 02:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072182&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-4-26 10:01</a>
+之前没抽到梅芙真是太遗憾了，竟然能强化到这种地步，蘑菇莫不是君吻系列的死忠粉？
+
+（话说我刚发现高山箕 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">难道不是唯一神被泥潭制定二次元妖女脑控吗。
+
+— from OnePlus GM1917, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  都谷捻柏  
+##### 78581#       发表于 2021-4-27 02:23
+
+
+我算了算陈宫梅芙的队伍，似乎有一点戏，但是算出来的结果陈宫三面伤害感觉好低，我没用过陈宫，话说他三面伤害（白字）真够用吗？
+
+
+-----
+
+####  Jamaisvu  
+##### 78582#       发表于 2021-4-27 02:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51073319&amp;ptid=1085254" target="_blank">sin.yugi 发表于 2021-4-27 02:20</a>
+
+难道不是唯一神被泥潭制定二次元妖女脑控吗。
+
+
+— from OnePlus GM1917, Android 11 of S1 Next G ...</blockquote>
+懂了，原来是佐仓绫音的魔力<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">如果2.5.2武藏没死的话，估计也得发身衣服。
+
+
+佐仓已经把麻子祸害废了，如今蘑菇也深陷其中。现在就等着东离剑游记里多一只佐仓CV的角色...
+
+
+-----
+
+####  都谷捻柏  
+##### 78583#       发表于 2021-4-27 02:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51073347&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-4-27 02:34</a>
+
+懂了，原来是佐仓绫音的魔力如果2.5.2武藏没死的话，估计也得发身衣服。
+
+
+佐仓已经把麻子祸害废了 ...</blockquote>
+蘑菇表示你别乱说，我没有，我起手就把武藏杀了！
+
+
+-----
+
+####  alucardcz  
+##### 78584#       发表于 2021-4-27 03:22
+
+
+ 本帖最后由 alucardcz 于 2021-4-27 03:26 编辑 
+
+虽然但是。。
+
+这鹤小姐的不少动作是不是。。。有点像嬴政的动作。。是我的错觉吗
+
+
+-----
+
+####  UNISONIA  
+##### 78585#       发表于 2021-4-27 08:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072182&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-4-26 23:01</a>
+
+之前没抽到梅芙真是太遗憾了，竟然能强化到这种地步，蘑菇莫不是君吻系列的死忠粉？
+
+（话说我刚发现高山箕 ...</blockquote>
+以前有明说过唯一神是梅芙死忠粉，倒是跟高山关系不大
+
+
+作家团那边樱井是这个角色的负责人也可能会有影响，樱井的角色大多强化挺到位的
+
+
+……甚至2.6会有梅芙的新马甲
+
+
+-----
+
+####  areklose  
+##### 78586#       发表于 2021-4-27 08:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">研究了一晚，就是为了千石一宝找个安慰。
+
+
+-----
+
+####  johnkamsar  
+##### 78587#       发表于 2021-4-27 09:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51072454&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-26 23:35</a>
+爬塔很好用啊，你居然没用到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">爬塔不是一二三星配个宝石翁然后光炮伺候么？
+
+
+-----
+
+####  真红眼教授  
+##### 78588#       发表于 2021-4-27 09:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51073347&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-4-27 02:34</a>
+
+懂了，原来是佐仓绫音的魔力如果2.5.2武藏没死的话，估计也得发身衣服。
+
+
+佐仓已经把麻子祸害废了 ...</blockquote>
+先有蘑菇钦点武藏砍卡俄斯，后有梅芙4次强化两套灵衣，不愧是**妖女<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78589#       发表于 2021-4-27 13:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">送的BX太棒了 这模组吊打一堆渣渣五星 商店还会唱歌
+
+
+-----
+
+####  黑上シグマ  
+##### 78590#       发表于 2021-4-27 14:27
+
+
+喷了，DW的新社长是小野义德
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  当光停止  
+##### 78591#       发表于 2021-4-27 14:39
+
+
+ 本帖最后由 当光停止 于 2021-4-27 14:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51077572&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-4-27 14:27</a>
+
+喷了，DW的新社长是小野义德
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">这什么JB。。。。。喷了，真的假的？有没有消息来源？
+
+
+-----
+
+####  khxooo  
+##### 78592#       发表于 2021-4-27 14:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51077572&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-4-27 14:27</a>
+喷了，DW的新社长是小野义德
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+DW专门请垃圾回来搞死自己吗？<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78593#       发表于 2021-4-27 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51077703&amp;ptid=1085254" target="_blank">当光停止 发表于 2021-4-27 14:39</a>
+
+这什么JB。。。。。喷了，真的假的？有没有消息来源？</blockquote>
+DW官网
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我发在游戏区了，还被DW孝子扣鹅了wwwww
+
+
+-----
+
+####  exiaexa  
+##### 78594#       发表于 2021-4-27 15:05
+
+
+ 本帖最后由 exiaexa 于 2021-4-27 15:08 编辑 
+
+无所谓吧，庄死本来就不行，多个人大概也不能变得更烂
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78595#       发表于 2021-4-27 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51077906&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-4-27 15:03</a>
+
+DW官网
+
+
+我发在游戏区了，还被DW孝子扣鹅了wwwww</blockquote>
+草，DW还有孝子2333333
+
+
+-----
+
+####  当光停止  
+##### 78596#       发表于 2021-4-27 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51077906&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-4-27 15:03</a>
+
+DW官网
+
+
+我发在游戏区了，还被DW孝子扣鹅了wwwww</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草生，我去帮你回回血。
+
+
+-----
+
+####  yangun22  
+##### 78597#       发表于 2021-4-27 16:26
+
+
+那个扣分的是私仇吧，都没在手游区看到过这人，DW这名声待遇说出去真还招不到什么好人，还不如TM搞的那个BB工作室
+
+
+-----
+
+####  黑上シグマ  
+##### 78598#       发表于 2021-4-27 16:28
+
+
+<blockquote>引用第78596楼yangun22于2021-04-27 16:26发表的  :
+
+那个扣分的是私仇吧，都没在手游区看到过这人，DW这名声待遇说出去真还招不到什么好人，还不如TM搞的那......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我对那ID毫无印象啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  都谷捻柏  
+##### 78599#       发表于 2021-4-27 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51077871&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-4-27 14:58</a>
+
+DW专门请垃圾回来搞死自己吗？</blockquote>
+还有这种好事？
+
+
+-----
+
+####  白夜羽  
+##### 78600#       发表于 2021-4-27 17:42
+
+
+好事啊，所以dw什么时候死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78601#       发表于 2021-4-27 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51079501&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-4-27 17:42</a>
+
+好事啊，所以dw什么时候死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dw：怎么浪就浪不死 难受.jpg
+
+
+                             
