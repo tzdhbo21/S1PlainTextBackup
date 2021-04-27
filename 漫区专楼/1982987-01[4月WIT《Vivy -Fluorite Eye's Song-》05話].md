@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-25 13:12** 
+> ## **本文件最后更新于2021-04-27 14:45** 
 
 
 
@@ -275,12 +275,7 @@ o
 ####  Quantum233  
 ##### 14#       发表于 2021-1-15 21:02
 
-
-<blockquote>黄字 发表于 2021-1-15 18:54
-长月达平是转来写动画片写的最烂接的最多的一个废物。比他差的只剩小太刀了。
-
- ...</blockquote>
-劲爆大象部落，排这玩意你问过那几个典中典的黄油写手没？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -411,10 +406,7 @@ wit上一部原创是什么来着
 ####  Quantum233  
 ##### 25#       发表于 2021-1-16 15:19
 
-
-<blockquote>Azusayyy 发表于 2021-1-16 11:00
-长月安心写小说不好吗，这是他自己想转型写动画剧本了还是别人请的他啊，后者几率不高吧 ...</blockquote>
-战翼是后者，而且是两三年前了，所以我估摸着这次也差不多
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -982,8 +974,7 @@ Bilibili独播
 ####  Quantum233  
 ##### 58#       发表于 2021-4-3 19:11
 
-
-所以闹成这样了还没人准备追生放么
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -2741,10 +2732,7 @@ NGA也是黑得多啊  
 ####  丹德里恩  
 ##### 215#       发表于 2021-4-6 22:02
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还蛮有意思的，指润润
-
-希望后面的质量能维持
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3710,8 +3698,7 @@ ed听歌的时候看到演职员表有小原好美，还在奇怪她配了谁，
 ####  丹德里恩  
 ##### 285#       发表于 2021-4-11 11:08
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">粉毛笑得那么灿烂结果没活过一集....
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4121,8 +4108,7 @@ image.png
 ####  Quantum233  
 ##### 311#       发表于 2021-4-11 16:41
 
-
-那串sdjsDoa5dH [ab/pe 有人推论出意义/找到出处了么
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7614,8 +7600,7 @@ VIVY低头：一拍二，10帧（5原画）跑步：一拍一，4帧（4原画�
 ####  Quantum233  
 ##### 579#       发表于 2021-4-20 13:27
 
-
-怀疑长月这次系构是不是挂名了，尤其对比战翼。 先跳车了。 月底剧本发售，到时看看什么情况。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7658,11 +7643,7 @@ VIVY低头：一拍二，10帧（5原画）跑步：一拍一，4帧（4原画�
 ####  Quantum233  
 ##### 583#       发表于 2021-4-20 22:32
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51002371&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-20 18:34</a>
-
-月底那个好像不是全部，听说只是第一卷？怀疑没有后面剧情</blockquote>
-那肯定啊，不然就剧透了233
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8737,4 +8718,326 @@ mpv-shot0002.jpg
 哈马斯？
 
 
-                           
+-----
+
+####  rynchee  
+##### 665#       发表于 2021-4-25 21:13
+
+
+话说老被救的那位老哥也算是关键人物了，至今却没有出现名字，名字是关键的概率有多大？老哥真名松本的概论有多大？
+
+
+-----
+
+####  hqtkkb  
+##### 666#       发表于 2021-4-25 21:28
+
+
+攻打那段省略的厉害。
+
+
+托瓦克属实菜的不行——科技树差了二十年不是关键，关键是菜还送——话说还有啥比被敌人救下更侮辱的事吗？有，被反复救三次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">。
+
+
+话说vv也算偶像了，这也不遮掩一下到处跑吗？还是说量产机的缘故比较好糊弄？yysy，vv的装扮感觉大部分都挺low的，制作组是对人设有意见吗？本来那个脸我就看的难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 667#       发表于 2021-4-25 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51060491&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-4-25 21:13</a>
+话说老被救的那位老哥也算是关键人物了，至今却没有出现名字，名字是关键的概率有多大？老哥真名松本的概论 ...</blockquote>
+百分百吧。。
+
+
+-----
+
+####  UnrealApartheid  
+##### 668#       发表于 2021-4-25 22:01
+
+
+认真地问，你觉得将薇薇以前见过面的AI仿生人在最终的独斗中当类似优吉欧那样的回忆杀去用，你们都会有什么想法？
+
+设想的剧情：
+（薇薇被塔里的概念意志扰乱得心烦意乱，影响了薇薇的主程序。关键时刻，薇薇对过去曾谋面的AI仿生人强烈思念，使其对思念对象的记忆和印象能透过心意系统暂时实体化。）
+艾丝黛拉：喂？你看到我了吗？
+薇薇：……嗯？
+（扭头一看，艾丝黛拉和艾莉莎白正站在自己身边。）
+艾丝黛拉：你曾经让我与Beth再度重聚，并且让我实现了和Beth的约定。这一次，轮到我们助你一臂之力了。
+艾莉莎白：别让那个混蛋认为你就像现在那么脆弱。你所要做的就是强攻，破解矩阵就交给我们了。
+薇薇：谢、谢谢你们……
+艾丝黛拉：那么，加油哦，薇薇。
+艾莉莎白：你就带着干劲一口气冲吧！
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  pokemon最爱  
+##### 669#       发表于 2021-4-25 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51060491&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-4-25 21:13</a>
+
+话说老被救的那位老哥也算是关键人物了，至今却没有出现名字，名字是关键的概率有多大？老哥真名松本的概论 ...</blockquote>
+不是，人家名字从第一集时不就在CV表第三位摆着了吗，官网也有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+他叫垣谷ユウゴ。
+
+
+-----
+
+####  unnilennium  
+##### 670#       发表于 2021-4-25 22:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这刀疤大哥确实越来越丢人了
+
+
+-----
+
+####  阿虚家的三味  
+##### 671#       发表于 2021-4-25 23:20
+
+
+这一人一熊整了半天世界走向根本没变化反而加速了还行，怕不是最后来个世界的潮流是既定事项，你们唯一能做的就是在历史进程上打卡，然后副产物的vivy唱歌越来越多人听最后走上主舞台拳头打爆叛乱机器人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+所有世界节点上都有sister怕不是最后整个sister网络的设定暴走，然后要平定bug要杀死所有sister包括vivy，唱完最后一首歌后可以自尽了
+
+
+-----
+
+####  死去的御景柚姬  
+##### 672#       发表于 2021-4-26 07:06
+
+
+那个反AI组织就是传说中的房间里的大象吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">他们国家真的能容忍这种既弱小又弱智关键还是武装组织的存在吗
+
+
+-----
+
+####  UnrealApartheid  
+##### 673#       发表于 2021-4-26 08:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51061797&amp;ptid=1982987" target="_blank">阿虚家的三味 发表于 2021-04-25 23:20:48</a>
+这一人一熊整了半天世界走向根本没变化反而加速了还行，怕不是最后来个世界的潮流是既定事项，你们唯一能做 ...</blockquote>还要让那个“后辈”继承衣钵
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  aptx8285144  
+##### 674#       发表于 2021-4-26 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51060491&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-4-25 21:13</a>
+
+话说老被救的那位老哥也算是关键人物了，至今却没有出现名字，名字是关键的概率有多大？老哥真名松本的概论 ...</blockquote>
+你在说什么呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，只要出场就是cv表上第三位的新垣配音的就在那里呀
+
+
+-----
+
+####  regular  
+##### 675#       发表于 2021-4-26 11:49
+
+
+正史的话，被救x3（目前）这哥们大概死在旅馆坠落那里了吧？
+而且就算活着也不大像能活到100年后？
+
+
+-----
+
+####  拉稀  
+##### 676#       发表于 2021-4-26 12:29
+
+
+整挺好不演了，从唱歌为人类带来幸福变成了为阻止人类与ai发生战争，ai岛前一秒还在为人民服务后一秒就主动攻击人类，这使命还能深入吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Piano-Forest  
+##### 677#       发表于 2021-4-26 12:49
+
+
+[https://twitter.com/you629/status/1385975404742152192](https://twitter.com/you629/status/1385975404742152192)
+
+【Vivy -Fluorite Eye’s Song-】#5
+
+
+5話ご視聴ありがとうございました！5話のイメージボードでは未来ガジェットのアイディア、さらに進んだ建物のデザインをたくさん提案させていただきました！
+<img src="https://p.sda1.dev/1/b1a676ffb12919f3b1f43f5d6b26f0c4/IMG_20210426_124702.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/53b5e39b9195a35c4e5c3ee7d58e6260/IMG_20210426_124704.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/a7b29a05698f1719fbf8f55dff1ae699/IMG_20210426_124706.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/3f251943cadee5db7d741f80a9b3ec9c/IMG_20210426_124707.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ma05758  
+##### 678#       发表于 2021-4-26 12:50
+
+
+瞬间串戏尼尔 看看下集怎么圆了
+
+
+-----
+
+####  稀勢のささ  
+##### 679#       发表于 2021-4-26 12:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被救三次太草了
+
+
+-----
+
+####  selain.meneth  
+##### 680#       发表于 2021-4-26 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51060491&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-4-25 21:13</a>
+话说老被救的那位老哥也算是关键人物了，至今却没有出现名字，名字是关键的概率有多大？老哥真名松本的概论 ...</blockquote>
+垣谷……
+
+
+-----
+
+####  kos_mos  
+##### 681#       发表于 2021-4-26 14:31
+
+
+那个，其实只被救2次啊，日升坠落被麻醉了都没见到。
+
+
+-----
+
+####  hummysiren  
+##### 682#       发表于 2021-4-26 17:51
+
+
+之前还怕跟女主有感情线，没想到老哥你这么菜，一次不够还两次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  欧派爱欧派  
+##### 683#       发表于 2021-4-26 20:29
+
+
+很难不串戏尼尔<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这托瓦克也太菜了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  欧派爱欧派  
+##### 684#       发表于 2021-4-26 20:29
+
+
+风怒
+
+
+-----
+
+####  angeva  
+##### 685#       发表于 2021-4-26 22:01
+
+
+有点没懂，上一话中艾莉莎白还是冒充艾丝黛拉，主动变更了宾馆的飞行轨道吧（记录于黑盒子中）。虽然最后艾丝黛拉分离了空间站避免更大危害，但是人们对艾丝黛拉的观感至于180度转弯么。综合来看，是很迷惑的行为才对吧<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  andyjin  
+##### 686#       发表于 2021-4-26 22:11
+
+
+ 本帖最后由 andyjin 于 2021-4-26 22:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071665&amp;ptid=1982987" target="_blank">angeva 发表于 2021-4-26 22:01</a>
+有点没懂，上一话中艾莉莎白还是冒充艾丝黛拉，主动变更了宾馆的飞行轨道吧（记录于黑盒子中）。虽然最后艾 ...</blockquote>
+人们认为是旅馆是遇到了故障。艾斯黛拉牺牲自己避免它撞到都市区。由于这次无人身亡，又主动解体到了海里，估计没像正史一样分析原因
+
+
+-----
+
+####  renkan119  
+##### 687#       发表于 2021-4-26 22:21
+
+
+<blockquote>angeva 发表于 2021-4-26 22:01
+有点没懂，上一话中艾莉莎白还是冒充艾丝黛拉，主动变更了宾馆的飞行轨道吧（记录于黑盒子中）。虽然最后艾 ...</blockquote>
+现在的历史是直接在大气层烧毁了 说不定黑盒子都还没留下来
+
+
+-----
+
+####  青菜子  
+##### 688#       发表于 2021-4-27 00:57
+
+
+被困的那个AI和外面那个AI长得好像
+
+
+-----
+
+####  kruisu  
+##### 689#       发表于 2021-4-27 11:16
+
+
+ 本帖最后由 kruisu 于 2021-4-27 11:18 编辑 
+
+这集好尼尔啊，瞬间跳戏一代的老人和狼，下集不会是横尾式展开吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+这老哥又来了，组织没人了吗？被救了这么多回了，意志真坚定啊
+—— 来自 OnePlus ONEPLUS A6010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  白玫瑰之夜  
+##### 690#       发表于 2021-4-27 18:01
+
+
+所以说你们把机器人整这么吊做甚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  冰风血羽  
+##### 691#       发表于 2021-4-27 21:32
+
+
+修正个毛，一路油门踩到底<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+还有这个老哥你们组织就没有人事变动这说法吗，奉献终身x3<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  afsd109  
+##### 692#       发表于 2021-4-27 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51081455&amp;ptid=1982987" target="_blank">冰风血羽 发表于 2021-4-27 21:32</a>
+
+修正个毛，一路油门踩到底
+
+还有这个老哥你们组织就没有人事变动这说法吗，奉献终身x3 ...</blockquote>
+毕竟这种一看就知道越来越没前途的组织自然不会有太多人加入了啊
+
+
+                          
