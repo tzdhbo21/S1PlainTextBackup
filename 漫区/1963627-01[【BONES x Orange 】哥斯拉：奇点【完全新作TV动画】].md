@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-26 06:08** 
+> ## **本文件最后更新于2021-04-28 19:09** 
 
 
 
@@ -113,7 +113,8 @@ PS:就我看不到LZ的图吗</blockquote>
 ####  byisme001  
 ##### 8#       发表于 2020-10-7 00:38
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+庵野的奥特曼拍的怎么样了
 
 
 -----
@@ -3037,7 +3038,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_OQ1m7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_y6YZz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -3695,8 +3696,7 @@ OPED分镜都是铃木典光，特别是ED帅飞了，神野铭的怪脸也可�
 ####  Quantum233  
 ##### 279#       发表于 2021-4-16 15:32
 
-
-女主这学历（而且人设塑造完全符合）在acgn里也算高的了吧？  想养钉宫AI
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5369,4 +5369,370 @@ v2.4.4.1</blockquote>可能日本人还在开会
 话说负责OP的是谁啊 摄影没把他杀了?
 
 
-                                   
+-----
+
+####  keasen  
+##### 422#       发表于 2021-4-26 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51066864&amp;ptid=1963627" target="_blank">冰箱研会长 发表于 2021-4-26 13:54</a>
+
+话说负责OP的是谁啊 摄影没把他杀了?</blockquote>
+好像是铃木典光
+
+
+-----
+
+####  klmmmx  
+##### 423#       发表于 2021-4-26 19:04
+
+
+网飞出一大堆不咋样的片都一次性放出……终于有个好看的还只能一周周等，郁闷
+
+
+-----
+
+####  雾谷路人  
+##### 424#       发表于 2021-4-26 19:26
+
+
+这喷射杰格战斗力看着不咋样啊，打个拉顿都这么吃力，能干的过安基拉斯吗。
+
+这里建议上詹伯A<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  依然荏苒  
+##### 425#       发表于 2021-4-26 19:49
+
+
+真的毫无尿点，多线推进，一层又一层，好多年没看过这么优秀的原创了，各种情怀又加成。不行啦，我要吹啊✧٩(ˊωˋ*)و✧
+
+
+-----
+
+####  依然荏苒  
+##### 426#       发表于 2021-4-26 19:50
+
+
+ 本帖最后由 依然荏苒 于 2021-4-26 19:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51058819&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-4-25 18:47</a>
+这个我知道，但疑问是这种未知的肉食性怪兽窜来窜去的紧急事态不是应该直接由军方清空和封锁整片地区吗。 ...</blockquote>
+这就是你对日本政治体制不了解了，日本其实和美国一样是地方自治的，要自卫队出动地方长官要请求。但是日本群众对自卫队的情感是很复杂的，所以这里只能有限使用。
+
+
+-----
+
+####  什伐赤  
+##### 427#       发表于 2021-4-26 20:24
+
+
+这公司果然跟印度有关系
+
+
+-----
+
+####  henry8848  
+##### 428#       发表于 2021-4-26 20:46
+
+
+终于看到熟肉了
+
+安吉拉斯反射的时候，男主的镜头有一层光晕，我还以为是产生原型这样的结构，把子弹反弹后封锁了
+
+原来不是
+
+
+-----
+
+####  什伐赤  
+##### 429#       发表于 2021-4-26 20:54
+
+
+查不到印度乌帕拉的详细信息，貌似是在咯拉拉邦，这里算是印度比较发达的地方，而且还沿海，确实可以建造大规模设施，而且跟外界沟通应该也方便。
+
+
+-----
+
+####  什伐赤  
+##### 430#       发表于 2021-4-26 21:08
+
+
+以及里面提到拉顿出现的国家，不知道为什么会联想到厄尔尼诺现象
+
+以及苇原这个姓，很难不让人往宗教那方面想阿，看看后面会怎么讲。
+
+
+-----
+
+####  nuoer  
+##### 431#       发表于 2021-4-26 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070132&amp;ptid=1963627" target="_blank">klmmmx 发表于 2021-4-26 19:04</a>
+网飞出一大堆不咋样的片都一次性放出……终于有个好看的还只能一周周等，郁闷 ...</blockquote>
+主要是这片日本的电视台也在放，所以没办法一次性放出吧
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Freakyyu  
+##### 432#       发表于 2021-4-26 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070590&amp;ptid=1963627" target="_blank">依然荏苒 发表于 2021-4-26 19:50</a>
+这就是你对日本政治体制不了解了，日本其实和美国一样是地方自治的，要自卫队出动地方长官要请求。但是日 ...</blockquote>
+这个我确实没想那么多。另一个是普通人看起来一点也不怕，是说无知者无畏？
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Freakyyu  
+##### 433#       发表于 2021-4-26 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51063968&amp;ptid=1963627" target="_blank">vmon 发表于 2021-4-26 09:47</a>
+看过痞子哥斯拉应该不会对这有疑问吧，还在开会呢。</blockquote>
+其实我以前只看过2014版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  夜颠覆  
+##### 434#       发表于 2021-4-26 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51070842&amp;ptid=1963627" target="_blank">什伐赤 发表于 2021-4-26 20:24</a>
+
+这公司果然跟印度有关系</blockquote>
+这片搞了不少印度神话的要素在里面，不知道哥总会不会也整一下
+
+
+-----
+
+####  夜颠覆  
+##### 435#       发表于 2021-4-26 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51066864&amp;ptid=1963627" target="_blank">冰箱研会长 发表于 2021-4-26 13:54</a>
+
+话说负责OP的是谁啊 摄影没把他杀了?</blockquote>
+OP依田伸隆搞得，OP摄影也是包给他们10gauge，依田伸隆是社长摄影就算真的敢怒也不敢言，不过这公司挺适合这风格的，骨头文豪3OP也是找的他们
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 冰箱研会长| + 1|感谢|
+
+
+查看全部评分
+
+
+-----
+
+####  mumubear  
+##### 436#       发表于 2021-4-26 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51071565&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-4-26 21:48</a>
+
+这个我确实没想那么多。另一个是普通人看起来一点也不怕，是说无知者无畏？
+
+
+—— 来自 OnePlus GM1910,  ...</blockquote>
+怪兽崇拜，没死人，威胁还不大。。。
+
+
+以为是在抓老虎了。。。
+
+
+最重要一点我觉是掉钱眼里了，各路公司开始考虑能不能从怪兽身上赚钱了。。。
+
+
+-----
+
+####  zypyong  
+##### 437#       发表于 2021-4-26 23:22
+
+
+讨论的好冷清啊
+
+
+-----
+
+####  jinyang411  
+##### 438#       发表于 2021-4-26 23:56
+
+
+刚补完第一集。风格很独特，看了下脚本円城塔，理解了
+
+这片大概是円城塔space dandy其中两集脚本后，第二次写脚本？
+
+
+-----
+
+####  云野十五  
+##### 439#       发表于 2021-4-27 05:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51066823&amp;ptid=1963627" target="_blank">冰箱研会长 发表于 2021-4-26 13:50</a>
+
+确实断的很难受...
+
+这个Jet Jaguar战斗力大概是个什么水平啊...</blockquote>
+吉祥物
+
+
+-----
+
+####  云野十五  
+##### 440#       发表于 2021-4-27 05:15
+
+
+楼里这么多好评的吗，我感觉都快进到神棍了，一会是但丁的神曲，一会是印度，一会是日本苇原。不过这集好在没在国家名那边乱搞，希望能和以前一样偏向左翼一点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  什伐赤  
+##### 441#       发表于 2021-4-27 06:42
+
+
+<blockquote>云野十五 发表于 2021-4-27 05:15
+楼里这么多好评的吗，我感觉都快进到神棍了，一会是但丁的神曲，一会是印度，一会是日本苇原。不过这集好在 ...</blockquote>
+日本特色啦，不管什么科幻题材都能塞进宗教内容。
+
+
+-----
+
+####  云野十五  
+##### 442#       发表于 2021-4-27 08:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51073612&amp;ptid=1963627" target="_blank">什伐赤 发表于 2021-4-27 06:42</a>
+
+日本特色啦，不管什么科幻题材都能塞进宗教内容。</blockquote>
+我倒是有看负责人设的加藤老师的《青之驱魔师》，里面也是堆砌了各国的神学，我怀疑制作组找她不是没原因的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  teecoo00  
+##### 443#       发表于 2021-4-27 09:20
+
+
+看到好多人纠结为啥男主觉得安吉拉斯能反弹子弹就是能预知未来，会不会是这样：由于第一次自卫队是打伤了安吉拉斯，所以猜测如果子弹打在没有背甲覆盖的地方是会使安吉拉斯受伤的，所以男主觉得因为能预知未来才能调整背甲反弹子弹。个人觉得是那个CG做的和护盾一样误导了一些观众
+
+
+-----
+
+####  暗黑能乐  
+##### 444#       发表于 2021-4-27 09:32
+
+
+我觉得挺好理解的吧，说的很清楚了，安吉拉斯在子弹打到他之前就已经开启了振动，以正常的反应速度是做不到的，或许一次可能是瞎蒙，但是出现第二次第三次就不可能了，他们目前也就是猜测阶段吧
+
+
+-----
+
+####  kxh007458  
+##### 445#       发表于 2021-4-27 09:56
+
+
+<blockquote>mofuli 发表于 2021-4-26 10:44
+有谁帮我解释下，为啥那个怪兽能预知未来，却不能预知被枪打会受伤？</blockquote>
+个人认为预知未来是主动技能，没被枪击时认为人类不是威胁所以就没进行未来预测。
+
+
+-----
+
+####  teecoo00  
+##### 446#       发表于 2021-4-27 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51074810&amp;ptid=1963627" target="_blank">kxh007458 发表于 2021-4-27 09:56</a>
+
+个人认为预知未来是主动技能，没被枪击时认为人类不是威胁所以就没进行未来预测。 ...</blockquote>
+第5话后面男主有说第一次没躲是因为不知道枪是什么东西
+
+
+-----
+
+####  AlfredXC  
+##### 447#       发表于 2021-4-27 10:58
+
+
+联想到预测未来很正常吧，不是之前才和女主讨论过吗
+
+
+-----
+
+####  罗克萨斯  
+##### 448#       发表于 2021-4-28 07:58
+
+
+OP还没上架么？听着好带感啊
+
+
+-----
+
+####  砂糖天妇罗  
+##### 449#       发表于 2021-4-28 08:32
+
+
+开始神棍化了。还有个没有登场的黑皮妹不知道是什么作用。感觉这个片子的信息给得太零散了，虽然提供了解谜的乐趣，可以逐字逐句分析。但是从观感上，我敢说很多观众都是一头雾水放弃思考了。
+
+
+-----
+
+####  nuoer  
+##### 450#       发表于 2021-4-29 02:31
+
+
+文科生表示已经跟不上女主的思路了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  蛇头  
+##### 451#       发表于 2021-4-29 02:38
+
+
+这话提到一个潜水艇行踪不明，难道是之前出现那艘？如果是的话那倒真是目前唯一伤亡了。海自打曼达还被哥总（应该是吧？熟悉的进行曲）跳脸，虽然又是毫发无伤。曼哈顿都全是拉顿了也没啥事的样子…
+总觉得目前为止怪兽出场造成的破坏都太儿戏了点。
+
+—— 来自 OnePlus ONEPLUS A6010, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  nuoer  
+##### 452#       发表于 2021-4-29 03:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51094807&amp;ptid=1963627" target="_blank">蛇头 发表于 2021-4-29 02:38</a>
+这话提到一个潜水艇行踪不明，难道是之前出现那艘？如果是的话那倒真是目前唯一伤亡了。海自打曼达还被哥总 ...</blockquote>
+哥总追着曼达到东京湾了，估计下一话就该登陆东京了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                  

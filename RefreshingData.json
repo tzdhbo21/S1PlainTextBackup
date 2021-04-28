@@ -181,7 +181,7 @@
     "title": "[泽塔奥特曼]",
     "lastedit": 1617043476,
     "category": "漫区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1947500",
@@ -633,9 +633,9 @@
   },
   {
     "id": "1991049",
-    "totalpage": 27,
-    "title": "[HOLOLIVE天音彼方アンスレ]",
-    "lastedit": 1619366041,
+    "totalpage": 28,
+    "title": "[HOLOLIVE天音彼方アンスレ  ④]",
+    "lastedit": 1619636112,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -3569,9 +3569,9 @@
   },
   {
     "id": "1963627",
-    "totalpage": 15,
+    "totalpage": 16,
     "title": "[【BONES x Orange 】哥斯拉：奇点【完全新作TV动画】]",
-    "lastedit": 1619417334,
+    "lastedit": 1619636970,
     "category": "漫区",
     "active": true
   },
