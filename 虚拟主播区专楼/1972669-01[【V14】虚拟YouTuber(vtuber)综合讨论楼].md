@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-26 23:55** 
+> ## **本文件最后更新于2021-04-28 13:23** 
 
 
 
@@ -53,6 +53,9 @@ V5末期出现的省一楼(syl)新传统，能提高信息浓度，值得推广�
 
 茄子镇楼
 <img src="https://i.loli.net/2020/11/17/OktWhM7n1R4ewXK.jpg" referrerpolicy="no-referrer">
+
+
+ *本主题由 矢吹奈子 于 2021-4-28 00:54 推荐* 
 
 
 -----
@@ -3780,4 +3783,462 @@ apex这要新出的3v3模式，直播效果拉满啊
 铲子凌晨三点过生日 小偶像阿比盖儿的号发了奇怪的食品 以及人偶的live2d 下一个花伏?
 
 
-                                        
+-----
+
+####  天堂懵懂人  
+##### 272#       发表于 2021-4-27 10:32
+
+
+![](<img src="https://i.loli.net/2021/04/27/h4stBgiaxIO1CYX.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 273#       发表于 2021-4-27 12:41
+
+
+https://twitter.com/Netfli**_Anime/status/1386848301861937153?s=19
+<img src="https://p.sda1.dev/1/adf57a5158bf47763c3bc7dc3b2470f5/IMG_CMP_217290446.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 274#       发表于 2021-4-27 12:43
+
+
+取名鬼才，想好名字自己不读一下的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 275#       发表于 2021-4-27 12:45
+
+
+顺便兽娘里PPP的两个也出道了，黄金船你坏事做尽！
+
+
+-----
+
+####  渡鸦骑士  
+##### 276#       发表于 2021-4-27 12:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51076530&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-4-27 12:45</a>
+顺便兽娘里PPP的两个也出道了，黄金船你坏事做尽！</blockquote>
+链接呢？是指声优还是角色出道？
+（话说黄金船和小邪神哪个先？）
+
+
+-----
+
+####  IDIDIDID  
+##### 277#       发表于 2021-4-27 12:53
+
+
+[https://www.youtube.com/channel/UCEcMIuGR8WO2TwL9XIpjKtw](https://www.youtube.com/channel/UCEcMIuGR8WO2TwL9XIpjKtw)
+
+
+-----
+
+####  noHentai  
+##### 278#       发表于 2021-4-27 16:01
+
+
+初动14,637
+<img src="https://p.sda1.dev/1/8db0d2fa5cbae33ab2d36fb2924540a0/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 279#       发表于 2021-4-27 16:37
+
+
+被RD两张和prismatic colors杀爆，嘻嘻。
+
+
+-----
+
+####  sgssk  
+##### 280#       发表于 2021-4-27 16:46
+
+
+ 本帖最后由 sgssk 于 2021-4-27 16:47 编辑 
+<blockquote>石狩あかり🍅📷 @ishikari_akari
+
+４月２７日にブラックサージナイト配信します！
+
+可愛い女の子達と一緒に復讐しませんか？
+
+なんと今なら事前登録も出来ちゃう！
+
+詳しくはHPをチェックチェックぅ！！！
+[https://game.bilibili.co.jp/blacksurgenight/](https://game.bilibili.co.jp/blacksurgenight/)
+
+#ブラサジ #ブラック・サージナイト
+
+ブラック・サージナイト
+
+
+午後8:00 · 2021年4月23日·Twitter for iPhone</blockquote>
+略火星的补发，青桐高校（u社子公司）接到了b站日本分部的工商。游戏是国服还没公测过的《黑潮：深海觉醒》
+
+
+去年u社重组融资的时候确实有报道说b站也给u社投了钱，也不知道和这工商有没有关系。
+
+
+-----
+
+####  空集  
+##### 281#       发表于 2021-4-27 16:51
+
+
+问就有海外人买非实体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  poipanchao  
+##### 282#       发表于 2021-4-27 16:53
+
+
+kr5期来个打枪妹妹吧
+
+
+-----
+
+####  noHentai  
+##### 283#       发表于 2021-4-27 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51079034&amp;ptid=1972669" target="_blank">空集 发表于 2021-4-27 16:51</a>
+
+问就有海外人买非实体
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+准确的说即便买了实体，如果不使用日本国内转运的话也是不计销量的，因为O榜不计直邮海外的部分。
+
+
+-----
+
+####  asdhai  
+##### 284#       发表于 2021-4-27 17:21
+
+
+比的就是本土销量，海外的，纯度不够<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 285#       发表于 2021-4-27 17:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就是本土买实体，去o榜非合作店铺买，不过o榜pos机计数一样不会算进去，典型代表就是飞碟社自家店买的hfbd
+
+
+-----
+
+####  真飞鸟i  
+##### 286#       发表于 2021-4-27 18:08
+
+
+ 本帖最后由 真飞鸟i 于 2021-4-27 18:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还行吧，就我说的有虹专一半就不错了，后面捞几下大概也能有个1w8，破2w极其艰难。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  qq845629713  
+##### 287#       发表于 2021-4-27 18:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 你虹官方一看新番组ガッキュー裁判播放量不行。第二期就找king来拉收视了，，财富密码也太明显了阀
+
+
+-----
+
+####  rzrbtk  
+##### 288#       发表于 2021-4-27 18:45
+
+
+ 本帖最后由 rzrbtk 于 2021-4-27 19:45 编辑 
+
+郡要组队apex了，特地转了nrk窗说打得很好叫大家看，
+
+这回估计也会心态扭曲自卑地藏了，郡道偶尔偶尔这么稍微软一下也挺…挺那个的<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+打枪水平和氛围比我想得好多了，郡道可以啊（暂时）
+
+
+-----
+
+####  winda  
+##### 289#       发表于 2021-4-27 20:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">kagayaki杯这两天练习全取消，而且到明天中午才能确认能不能t如期举办，不妙啊不妙
+
+
+-----
+
+####  FCCHua  
+##### 290#       发表于 2021-4-27 21:11
+
+
+ 本帖最后由 FCCHua 于 2021-4-27 21:12 编辑 
+
+小偶像这相当于来了套新形象2d<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 画师好用心
+初始皮...我的初始皮<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 291#       发表于 2021-4-27 23:00
+
+
+[https://www.youtube.com/watch?v=cnPoBSVs4eg](https://www.youtube.com/watch?v=cnPoBSVs4eg)
+
+哭的真伤心
+
+
+-----
+
+####  free  
+##### 292#       发表于 2021-4-27 23:16
+
+
+说到偶像部毕业这几个，那个“帝国主义瓜分殖民地”的几条推里，金刚没回复委员长，双叶也没回复帕特拉，只有八重泽回复了烂货圆脸，不会真的要去杏吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑之和  
+##### 293#       发表于 2021-4-27 23:21
+
+
+Alice29号要公布新衣装了捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 294#       发表于 2021-4-28 00:40
+
+
+<img src="https://img.saraba1st.com/forum/202104/28/003938r6u6kxrvefqwckxe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210428003916.jpg</strong> (37.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 00:39 上传
+
+
+这货好像是个鬼子？
+
+
+“You are both basically Chinese”
+
+
+-----
+
+####  FCCHua  
+##### 295#       发表于 2021-4-28 14:45
+
+
+ 本帖最后由 FCCHua 于 2021-4-28 14:48 编辑 
+
+考拉什么情况，从3月开始，然后4月b限lol的频率就提上来了，5月更离谱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 296#       发表于 2021-4-28 15:10
+
+
+猜测是想打lol了
+
+
+-----
+
+####  LilMemo  
+##### 297#       发表于 2021-4-28 15:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">八重沢,我的八重沢，我还蛮喜欢这个皮的
+
+
+-----
+
+####  winda  
+##### 298#       发表于 2021-4-28 17:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">今天就轮到fu酱了
+
+
+-----
+
+####  poipanchao  
+##### 299#       发表于 2021-4-28 17:49
+
+
+my bora稳步迈向钻2
+这个赛季再次大师不是不可能啊
+
+
+-----
+
+####  喜闻乐见  
+##### 300#       发表于 2021-4-28 19:15
+
+
+时隔五百多天，老爱爱哥再次联动
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 301#       发表于 2021-4-28 20:04
+
+
+饼叽这是……？
+
+
+<img src="https://img.saraba1st.com/forum/202104/28/200422x82cyir28vm88v20.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (63.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 20:04 上传
+
+
+-----
+
+####  kakera9576  
+##### 302#       发表于 2021-4-28 20:09
+
+
+[https://twitter.com/i/broadcasts/1BdGYYOPNQoGX](https://twitter.com/i/broadcasts/1BdGYYOPNQoGX)
+
+不去听一下吗，第一首就是首中文歌
+
+
+-----
+
+####  alcoholic1000  
+##### 303#       发表于 2021-4-28 20:16
+
+
+ハピトリ要发歌了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">，アンノウン・マザーグース鹅妈妈
+
+
+-----
+
+####  poipanchao  
+##### 304#       发表于 2021-4-28 20:16
+
+
+怎么这个也有点像花谱、ema那种慢悠悠的讲话风格
+
+神椿指定MC腔吗
+
+
+-----
+
+####  渡鸦骑士  
+##### 305#       发表于 2021-4-28 20:24
+
+
+特蕾莎这推特直播是怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kakera9576  
+##### 306#       发表于 2021-4-28 20:24
+
+
+听起来比花谱姐妹舒服多了
+
+
+-----
+
+####  kangkangsama  
+##### 307#       发表于 2021-4-28 20:26
+
+
+ 本帖最后由 kangkangsama 于 2021-4-28 20:28 编辑 
+
+彩虹麻将杯，组队战
+
+
+<img src="https://img.saraba1st.com/forum/202104/28/202832iu9gxlxxlungbmzu.png" referrerpolicy="no-referrer">
+
+
+<strong>麻将.png</strong> (239.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 20:28 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 308#       发表于 2021-4-28 20:27
+
+
+花芽两姐妹加起来语速可能不到这姐们一半
+
+
+-----
+
+####  rzrbtk  
+##### 309#       发表于 2021-4-28 20:55
+
+
+好，我心心念念的郡路易斯要来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 310#       发表于 2021-4-28 20:57
+
+
+“这次彩虹麻将杯是队伍战，分成花、鸟、风、月四个队伍”
+
+天麻来了，谁当战犯
+
+
+-----
+
+####  winda  
+##### 311#       发表于 2021-4-28 21:19
+
+
+ 本帖最后由 winda 于 2021-4-28 21:21 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">奈罗花说老师一直在烧，只要张嘴就会炎上
+syl kawase到5月才成年，你们两个怪阿姨不要带坏未成年啊
+
+
+                                       
