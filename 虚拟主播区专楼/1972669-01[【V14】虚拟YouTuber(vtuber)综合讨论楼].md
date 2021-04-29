@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-28 13:23** 
+> ## **本文件最后更新于2021-04-29 13:57** 
 
 
 
@@ -4235,10 +4235,253 @@ my bora稳步迈向钻2
 ##### 311#       发表于 2021-4-28 21:19
 
 
- 本帖最后由 winda 于 2021-4-28 21:21 编辑 
+ 本帖最后由 winda 于 2021-4-28 21:36 编辑 
 
 <img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">奈罗花说老师一直在烧，只要张嘴就会炎上
-syl kawase到5月才成年，你们两个怪阿姨不要带坏未成年啊
+syl kawase到5月才20，你们两个怪阿姨不要带坏未成年啊
+啊，被骗去查dlsite了
 
 
-                                       
+-----
+
+####  winda  
+##### 312#       发表于 2021-4-28 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">怎么这次ponpoko24第一眼没发现点要素
+
+
+-----
+
+####  FCCHua  
+##### 313#       发表于 2021-4-28 21:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/993835b213af6699ffbb37445f971db4/IMG_CMP_128478469.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 314#       发表于 2021-4-28 22:26
+
+
+上一次这个的时候还有八字母<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rzrbtk  
+##### 315#       发表于 2021-4-28 22:47
+
+
+怎么感觉郡道今天菜了起来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 316#       发表于 2021-4-28 22:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">双叶毕业直播这是中途断了么?断线次数有点多啊
+
+
+-----
+
+####  alcoholic1000  
+##### 317#       发表于 2021-4-29 01:17
+
+
+ 本帖最后由 alcoholic1000 于 2021-4-29 01:24 编辑 
+
+小夜这网啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">25分钟了，我连一句完整的话都没听到
+
+<img src="https://img.saraba1st.com/forum/202104/29/012411byd777jsedehy97l.png" referrerpolicy="no-referrer">
+
+
+<strong>年貢を納める放送.png</strong> (392.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 01:24 上传
+
+
+-----
+
+####  winda  
+##### 318#       发表于 2021-4-29 05:55
+
+
+<img src="https://img.saraba1st.com/forum/202104/29/055504kbyqzbqgfqxc1bby.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210429_055252.jpg</strong> (216.85 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-4-29 05:55 上传
+
+
+才注意到hinano已经上大师了，比kamito还快艹
+
+
+-----
+
+####  winda  
+##### 319#       发表于 2021-4-29 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51093024&amp;ptid=1972669" target="_blank">winda 发表于 2021-4-28 21:48</a>
+怎么这次ponpoko24第一眼没发现点要素</blockquote>
+哦，看到樱桃了，参加的还是诡辩大会<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 320#       发表于 2021-4-29 11:17
+
+
+[https://www.bilibili.com/video/BV1Tp4y147xs](https://www.bilibili.com/video/BV1Tp4y147xs)
+
+teresa昨晚的推特直播，中英日各唱了一首
+
+
+-----
+
+####  lhawp  
+##### 321#       发表于 2021-4-29 13:34
+
+
+花生也太铁血虹人了，好歹有识者会议请个YAGOO啊
+不过还挺期待HH和Omesis的共演的
+
+
+-----
+
+####  空集  
+##### 322#       发表于 2021-4-29 14:02
+
+
+这种性质节目怎么会找yagoo 。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  IDIDIDID  
+##### 323#       发表于 2021-4-29 14:10
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-29 14:13 编辑 
+
+2021年四月底，彩虹终于搞出了ホログラ<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=S8Qdv3B_45g](https://www.youtube.com/watch?v=S8Qdv3B_45g)
+
+
+附上即将金盾的知名虹女评论：
+
+<img src="https://img.saraba1st.com/forum/202104/29/141323a1hnw029tl3hvlt1.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #098 - 'Latest Tweets _ Twitter' - twitter_com.png</strong> (8.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 14:13 上传
+
+
+-----
+
+####  某穆克拉  
+##### 324#       发表于 2021-4-29 16:01
+
+
+虽然不是很想做出主观评价，但是彩虹这个开头贷款尬吹（？）也太。。。
+
+
+-----
+
+####  渡鸦骑士  
+##### 325#       发表于 2021-4-29 17:22
+
+
+彩虹的模型感觉在动画里有点不自然阿……男人的模型尤其明显，脸部的变化层太明显了……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 326#       发表于 2021-4-29 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">与其说是动画，不如说是漫画，虹3d披露感觉已经不比杏差了，但是在动画里的展现就很微妙，也许是风格问题，也可能是这次登场人物大部分都是老模型。
+
+
+-----
+
+####  FCCHua  
+##### 327#       发表于 2021-4-29 20:47
+
+
+ 本帖最后由 FCCHua 于 2021-4-29 20:51 编辑 
+
+这次的花鸟风月战麻将杯感觉有点意思，分组也算平均<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 328#       发表于 2021-4-29 21:32
+
+
+鸟组，怎么说呢，舞元野猫郡道哈哥，怎么说呢，熊熊燃烧啊……
+好想郡去花组啊！！！想看郡跟花组每一个个人的互动<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 329#       发表于 2021-4-29 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51103552&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-4-29 21:32</a>
+鸟组，怎么说呢，舞元野猫郡道哈哥，怎么说呢，熊熊燃烧啊……
+好想郡去花组啊！！！想看郡跟花组每一个个 ...</blockquote>
+作为对手互动不是更好么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rzrbtk  
+##### 330#       发表于 2021-4-29 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51103565&amp;ptid=1972669" target="_blank">空集 发表于 2021-4-29 21:33</a>
+作为对手互动不是更好么
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+正赛会紧张啦，赛前集训聊天扯淡就很好<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，想看郡路易斯郡叶郡皇女郡阿喵喵…
+虽然鸟组也有我处于恶趣味非常想看的郡猫啦，感觉郡道会被气得下播骂人<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  十四洲  
+##### 331#       发表于 2021-4-29 21:49
+
+
+叶那个血压麻将竟然有胆参加团队战，不要战犯拖后腿啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                      
