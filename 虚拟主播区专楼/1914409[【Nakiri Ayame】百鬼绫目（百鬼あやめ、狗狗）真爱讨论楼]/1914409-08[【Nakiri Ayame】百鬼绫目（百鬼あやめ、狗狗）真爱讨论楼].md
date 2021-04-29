@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-28 08:42** 
+> ## **本文件最后更新于2021-04-29 14:35** 
 
 
 
@@ -7875,7 +7875,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_d5336" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_XC9UX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 mv.gif
@@ -13651,4 +13651,352 @@ okfam的羁绊，486被流放了<img src="https://static.saraba1st.com/image/smi
 新衣服<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
 
 
-       
+-----
+
+####  一仙  
+##### 11764#       发表于 2021-4-28 16:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">好耶！新衣服！！
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11765#       发表于 2021-4-28 17:23
+
+
+咋又是双马尾 辣辣那破联动也是这毛
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11766#       发表于 2021-4-28 17:37
+
+
+越看越像船阿姨 蚌埠住了
+
+
+-----
+
+####  Fami水  
+##### 11767#       发表于 2021-4-28 17:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">不许往我们脑子里种梁木
+
+这套成品出来应该和op里那套差不多吧 
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11768#       发表于 2021-4-28 17:50
+
+
+梁木不至于 喜欢黑屁辣辣菜而已<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 11769#       发表于 2021-4-28 19:06
+
+
+ohhhhhh是双马尾余
+
+
+-----
+
+####  stedckk  
+##### 11770#       发表于 2021-4-28 19:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">怎么感觉缩水了
+
+
+-----
+
+####  cctvyt1  
+##### 11771#       发表于 2021-4-29 11:37
+
+
+又是KING<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/29/113711w9ngp5yggp6p6gg6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>KING.JPG</strong> (160 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 11:37 上传
+
+
+-----
+
+####  Fami水  
+##### 11772#       发表于 2021-4-29 11:44
+
+
+ 本帖最后由 Fami水 于 2021-4-29 11:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么是KING
+
+
+-----
+
+####  因为你不会  
+##### 11773#       发表于 2021-4-29 11:49
+
+
+《绫总》
+
+
+-----
+
+####  FCCHua  
+##### 11774#       发表于 2021-4-29 11:58
+
+
+火 星 余
+
+
+-----
+
+####  stedckk  
+##### 11775#       发表于 2021-4-29 19:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">怎么是这首
+
+
+-----
+
+####  昆西昆希昆  
+##### 11776#       发表于 2021-4-29 19:52
+
+
+King
+
+
+<img src="https://img.saraba1st.com/forum/202104/29/195207qhi93dhwzx9nfwjf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210429_194215.jpg</strong> (47.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 19:52 上传
+
+
+-----
+
+####  一仙  
+##### 11777#       发表于 2021-4-29 20:04
+
+
+ 本帖最后由 一仙 于 2021-4-29 20:06 编辑 
+
+一个翻唱绫总狂发推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还盯着播放量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+还是要多夸夸，以后可以多搞点<img src="https://static.saraba1st.com/image/smiley/face2017/078.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  因为你不会  
+##### 11778#       发表于 2021-4-29 20:07
+
+
+记住，绫总喜欢被舔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11779#       发表于 2021-4-29 20:10
+
+
+ 本帖最后由 cctvyt1 于 2021-4-29 20:16 编辑 
+
+阿绫你还是数字厨啊
+
+就几张不会动的静止画有4K的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想到去年跟娜娜的合唱绫总只按了转推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 11780#       发表于 2021-4-29 20:11
+
+
+ 本帖最后由 FCCHua 于 2021-4-29 21:32 编辑 
+
+反应比我想象的有点好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+今晚的直播封面图可爱捏
+
+
+-----
+
+####  一仙  
+##### 11781#       发表于 2021-4-29 20:21
+
+
+翻唱以前又不是没做过 这次怎么那么激动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11782#       发表于 2021-4-29 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她要是数字厨就不会这么摸了，就是喜欢被人夸而已
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">希望以后出曲可以多一点，一年才一两首还是太少了
+
+
+-----
+
+####  Fami水  
+##### 11783#       发表于 2021-4-29 20:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么疯狂发推，今天的量超过之前一整个月的量了
+
+
+-----
+
+####  因为你不会  
+##### 11784#       发表于 2021-4-29 20:26
+
+
+脚都给绫总舔折了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 11785#       发表于 2021-4-29 20:26
+
+
+草一年才一两首吗。要是真有这么喜欢这首歌的话你就早点投翻唱啊！
+
+
+-----
+
+####  Fami水  
+##### 11786#       发表于 2021-4-29 20:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两首那还得算上娜娜的 
+
+
+-----
+
+####  因为你不会  
+##### 11787#       发表于 2021-4-29 20:57
+
+
+过了过了，不知道的还以为绫总被选上唱东京奥运会主题曲了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 11788#       发表于 2021-4-29 21:17
+
+
+感想会还没开播就已经有红sc铺路了，呃呃
+
+
+-----
+
+####  cctvyt1  
+##### 11789#       发表于 2021-4-29 21:32
+
+
+新衣当天还可以再收割一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11790#       发表于 2021-4-29 21:48
+
+
+从来没被分到过资源是吧 整的跟单人原创曲一样<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11791#       发表于 2021-4-29 22:09
+
+
+懂了 原来是装初投稿骗初见的（
+
+
+-----
+
+####  Fami水  
+##### 11792#       发表于 2021-4-29 22:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">确实可以骗一波吧 上次翻唱投稿是一周年？
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11793#       发表于 2021-4-29 22:19
+
+
+这玩意做了两三个月才放出来还行
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11794#       发表于 2021-4-29 22:22
+
+
+选的时候选的时下in结果发出来时候已经过气曲了 真行啊
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11795#       发表于 2021-4-29 22:28
+
+
+尬zqsg 这会开始卖努力人设<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11796#       发表于 2021-4-29 22:32
+
+
+这段怎么听着像把工期这么长的锅往外甩呢
+
+
+-----
+
+####  stedckk  
+##### 11797#       发表于 2021-4-29 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉最近骗了好多萌新，明明也没怎么播
+
+
+      
