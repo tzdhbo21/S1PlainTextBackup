@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-28 13:44** 
+> ## **本文件最后更新于2021-04-30 21:37** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_gaPAp" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_D6MeH" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -7699,4 +7699,419 @@ Gura"Talkin' about bottom, did you guys watch Kiara's stream?"
 2021-4-28 21:27 上传
 
 
-                                 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  帆乃花  
+##### 482#       发表于 2021-4-29 01:57
+
+
+<img src="https://img.saraba1st.com/forum/202104/29/015746io1yxvy66ooj1ykx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210429015623.jpg</strong> (301.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 01:57 上传
+
+
+-----
+
+####  smy20011  
+##### 483#         楼主| 发表于 2021-4-29 06:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51094704&amp;ptid=1989758" target="_blank">帆乃花 发表于 2021-4-29 01:57</a></blockquote>
+热销榜单？
+
+
+-----
+
+####  帆乃花  
+##### 484#       发表于 2021-4-29 08:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51095089&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-29 06:53</a>
+
+热销榜单？</blockquote>
+嗯
+
+
+-----
+
+####  wiig  
+##### 485#       发表于 2021-4-29 11:56
+
+
+Gura: Hold on let me look for my baby for a bit, maybe its hiding under the bed
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 486#       发表于 2021-4-29 12:05
+
+
+<img src="https://p.sda1.dev/1/18ff0d5e6902436b481885dfca614e08/IMG_CMP_242343806.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  帆乃花  
+##### 487#       发表于 2021-4-29 21:02
+
+
+昨日EN
+
+Gura在考虑学Ame一样每周专门开一个读SC直播 各种变形玩脸
+
+Ina怪猎 没啥新闻
+
+Ame在Calli直播间说Hi Calli没看到 Ame说不要去raid Calli 很欠地学了一下那些人会怎么说
+
+takamori玩影之诗 Kiara5 : 1Calli 最后放水一把
+
+Kiara周六搬家 现在还在旧家但是室友换了新网络
+
+
+-----
+
+####  smy20011  
+##### 488#         楼主| 发表于 2021-4-30 00:08
+
+
+nooooooooooooo
+
+<img src="https://img.saraba1st.com/forum/202104/30/000802snns4en7encncpp8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>Ez4U8NgVcAUO73c.jpeg</strong> (260.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 00:08 上传
+
+
+[https://twitter.com/Klaius/status/1386568792168308738/photo/1](https://twitter.com/Klaius/status/1386568792168308738/photo/1)
+
+
+-----
+
+####  帆乃花  
+##### 489#       发表于 2021-4-30 00:24
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/002430z8q4qy8yuy2xehsy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (403.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 00:24 上传
+
+
+-----
+
+####  wiig  
+##### 490#       发表于 2021-4-30 01:33
+
+
+ 本帖最后由 wiig 于 2021-4-30 10:37 编辑 
+
+以下内容需要积分高于 6000 才可浏览
+
+Gura会限关于原创曲的部分
+Gura对第一首原创曲感到很有压力，第一首歌会让别人定义她的路线，虽然告诉自己从长远看，这些担心并不值得，自己也想做很多其他风格的歌，但是还是会不断想到别人会怎么评判她，压力大到会质疑走的方向是不是正确的，不过眼下还是告诉自己先把精力放在第一首歌上
+Gura知道自己对第一首原创曲担忧过头了，但是她希望大家喜欢她的歌是因为真的喜欢那首歌，不是因为那首歌是她做的
+有人和她说，你要真心喜欢自己的创作，不然别人怎么会喜欢？所以她告诉自己这个创作方向是对的，不会掩饰那些自己不喜欢但是仍然要放进去的shit，会尽自己全力
+
+<img src="https://img.saraba1st.com/forum/202104/30/013320a7283rno7c3u3wu7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (26.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 01:33 上传
+
+
+关于其他的部分
+
+严重过敏中，疯狂流鼻涕
+
+杂谈读SC的时候会抓着发尾用手绕圈，妈妈说她小时候要抓着自己的头发才能睡着
+
+讲怪癖的时候说自己经常咬嘴唇，突然跑去Google末梢神经长什么样，又去找牙神经坏死会怎么样
+
+说小时候有一颗门牙坏死，变成灰色的，后来自己掉下来长出新的门牙
+
+
+-----
+
+####  帆乃花  
+##### 491#       发表于 2021-4-30 01:51
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/015108kvo325m73vb5bphp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (299.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 01:51 上传
+
+
+-----
+
+####  smy20011  
+##### 492#         楼主| 发表于 2021-4-30 06:08
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/060802bxsmya7yg7xzmau7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>15fcxzfkq2w61.jpg</strong> (507.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 06:08 上传
+
+
+巫女
+
+
+-----
+
+####  wiig  
+##### 493#       发表于 2021-4-30 11:03
+
+
+<img src="https://p.sda1.dev/1/4eb350fd7cc396a0d1692a3e74a8bbdc/IMG_CMP_146730317.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  smy20011  
+##### 494#         楼主| 发表于 2021-4-30 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51108146&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-30 11:03</a>
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+Yessssss
+
+
+-----
+
+####  smy20011  
+##### 495#         楼主| 发表于 2021-4-30 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51108146&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-30 11:03</a>
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+火鸡这是戴了个草帽么？
+
+
+-----
+
+####  colodes  
+##### 496#       发表于 2021-4-30 12:03
+
+
+ame是这种结构的样子
+<img src="https://p.sda1.dev/1/24edea6cd56c412a4ff9adeb65cb4582/IMG_CMP_39095277.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  smy20011  
+##### 497#         楼主| 发表于 2021-4-30 12:03
+
+
+盲猜一个ina爆炸头
+
+
+-----
+
+####  wiig  
+##### 498#       发表于 2021-4-30 12:08
+
+
+ina应该是贝雷帽
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 499#       发表于 2021-4-30 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51108778&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-4-30 11:58</a>
+火鸡这是戴了个草帽么？</blockquote>
+看形状还是钻头马尾
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  colodes  
+##### 500#       发表于 2021-4-30 12:19
+
+
+<img src="https://p.sda1.dev/1/c5cc3cd6d875b6ec58e6aa46c6357137/20210430_121856.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 501#       发表于 2021-4-30 13:01
+
+
+<img src="https://p.sda1.dev/1/6db4a51deddd8c71eae57ce1a9a770a9/IMG_CMP_142077285.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/5e47cfd276294705b24aa607fa53b0d4/20210430_130002.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 502#       发表于 2021-4-30 13:07
+
+
+这个感觉很贴近<img src="https://p.sda1.dev/1/85e21734656ec6661948874ca6fdef28/IMG_CMP_36602540.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 503#       发表于 2021-4-30 13:18
+
+
+<img src="https://p.sda1.dev/1/1b6a34b483fe55d443527485183c00ab/IMG_CMP_88295670.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sgssk  
+##### 504#       发表于 2021-4-30 13:43
+
+
+问个火星问题，“一 伊那尓栖”这名字原来真的是官方表记？这中文我以前一直以为是转载的人改的，刚刚搜才发现这表记居然一直写在木口官网上，很懵
+
+
+-----
+
+####  wiig  
+##### 505#       发表于 2021-4-30 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51109766&amp;ptid=1989758" target="_blank">sgssk 发表于 2021-4-30 13:43</a>
+
+问个火星问题，“一 伊那尓栖”这名字原来真的是官方表记？这中文我以前一直以为是转载的人改的，刚刚搜才 ...</blockquote>
+にのまえ いなにす 一读二の前
+
+
+-----
+
+####  帆乃花  
+##### 506#       发表于 2021-4-30 15:35
+
+
+<img src="https://p.sda1.dev/1/051fbd3479b99db46bc35e3782de4174/IMG_CMP_226860388.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/1/913324c5bdf0b2898f656546dae4ae4b/20210430_153138.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 507#       发表于 2021-4-30 15:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 508#       发表于 2021-4-30 16:24
+
+
+<img src="https://p.sda1.dev/1/9f5097c603ce13e7135c76a889c8ced2/IMG_CMP_9168110.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 509#       发表于 2021-4-30 21:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 510#       发表于 2021-4-30 22:40
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/224000w3webpp4buafoqas.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (363.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 22:40 上传
+
+
+
+
+-----
+
+####  絵生voice  
+##### 511#       发表于 2021-5-1 05:20
+
+
+Anya要翻盘了 西语冲鸭
+
+
+                                
