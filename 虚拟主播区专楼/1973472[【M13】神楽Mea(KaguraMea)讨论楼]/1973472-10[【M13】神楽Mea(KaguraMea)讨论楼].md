@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-30 07:39** 
+> ## **本文件最后更新于2021-04-30 13:42** 
 
 
 
@@ -9900,7 +9900,348 @@ vtb播爆的也多的一批好吗<img src="https://static.saraba1st.com/image/sm
 ##### 14434#       发表于 2021-4-30 15:38
 
 
+ 本帖最后由 A2014720 于 2021-4-30 15:40 编辑 
+
 肥<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
 
 
-                  
+y1s1这表情包见了这么多次还是觉得贼j8土
+
+
+-----
+
+####  时间在我手中  
+##### 14435#       发表于 2021-4-30 15:43
+
+
+我倒觉得挺可爱的，有谁不喜欢猫猫呢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 14436#       发表于 2021-4-30 16:35
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/163439esbbes99zebcb9u3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210430163412.png</strong> (7.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 16:34 上传
+
+
+苔苔的联动表 两天<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14437#       发表于 2021-4-30 16:41
+
+
+竟然有莉莉姆<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不过这都半个月后的预定了啊
+
+
+-----
+
+####  GRMeA104  
+##### 14438#       发表于 2021-4-30 16:48
+
+
+哪来的虹人小团体<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14439#       发表于 2021-4-30 17:02
+
+
+跟德比是第一次吧，什么名誉🌈人
+
+
+-----
+
+####  十九号大侠  
+##### 14440#       发表于 2021-4-30 17:11
+
+
+苔苔暴力喂饭
+
+
+-----
+
+####  A2014720  
+##### 14441#       发表于 2021-4-30 17:26
+
+
+【神楽めあ 直播等待】
+标题：【歌枠/アーカイブなし】今月ラスト！いっぱい歌うぞ！【神楽めあ】
+时间：2021-04-30 20:00:00 UTC+08:00
+网址：y2u.be/8_iL-cDr1U4
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14442#       发表于 2021-4-30 17:35
+
+
+今晚有小麻，要被治愈了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14443#       发表于 2021-4-30 17:46
+
+
+边打游戏边发推是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14444#       发表于 2021-4-30 18:01
+
+
+那时候在路上，这时间的高速路懂得都懂
+
+
+-----
+
+####  Dualist彩  
+##### 14445#       发表于 2021-4-30 18:28
+
+
+什么人上人视频，还是飞狗，唯唯废垃不堪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14446#       发表于 2021-4-30 19:13
+
+
+ 本帖最后由 时间在我手中 于 2021-4-30 19:15 编辑 
+
+这东西不纯给他们组团建的玩具吗，还是你要老子剪个称赞字幕组的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">差不多得了
+
+我要愿意的话，除了校对那一栏都可以是我<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14447#       发表于 2021-4-30 19:26
+
+
+风见不是跑了么？怎么还在啊，是我记忆错误了？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14448#       发表于 2021-4-30 20:06
+
+
+还没开播 怕不是在听犬山翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14449#       发表于 2021-4-30 20:06
+
+
+没打lol吗，那没事了
+
+
+-----
+
+####  Klience  
+##### 14450#       发表于 2021-4-30 20:07
+
+
+下午四点开始打 44分钟前不打了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14451#       发表于 2021-4-30 20:09
+
+
+没关测过这人打lol，是真的可以送去治治网瘾吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14452#       发表于 2021-4-30 20:10
+
+
+3/11的打野波比 大夫 您说这网瘾能治吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14453#       发表于 2021-4-30 20:12
+
+
+可以理解孩子家长看见自己家小孩逃课去黑网吧的心情了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 14454#       发表于 2021-4-30 20:17
+
+
+20210430东京15点
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/201750oeogu3pinckcu077.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>FB6D2752-BB1F-4A0E-8F82-ECFB0CD8EBB6.jpeg</strong> (334.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 20:17 上传
+
+
+-----
+
+####  A2014720  
+##### 14455#       发表于 2021-4-30 20:40
+
+
+这拉夫歌可以停一停嘛<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+你有本事过来唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14456#       发表于 2021-4-30 20:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">拍掌可爱
+
+
+（最近听见“名誉”这个词总感觉在yygq肯定是我自己的问题
+
+
+-----
+
+####  Klience  
+##### 14457#       发表于 2021-4-30 20:56
+
+
+看了下隔壁 我突然想笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210430205245.png
+(60.32 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-30 20:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/205619a0go4p7637z66pee.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14458#       发表于 2021-4-30 21:00
+
+
+没啥问题吧
+
+
+-----
+
+####  Klience  
+##### 14459#       发表于 2021-4-30 21:01
+
+
+ 本帖最后由 Klience 于 2021-4-30 21:04 编辑 
+
+没啊 就之前不是说其他楼里没人讨论内容什么的 现在看看咩楼也差不多 就觉得好笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14460#       发表于 2021-4-30 21:07
+
+
+这b最近几乎都不动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于这个梗确实是玩的很早而且是贝贝人最爱玩的不是<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 14461#       发表于 2021-4-30 21:08
+
+
+ 本帖最后由 时间在我手中 于 2021-4-30 21:10 编辑 
+
+有啥好聊的这种，萌百啥的不都有吗
+
+这人五一预订除了那个24小时的，别的啥的都没有这几天也说自己在忙
+
+今晚zhe直播我在高速路上拿头记(不给我直接没信号都好了
+
+
+-----
+
+####  Klience  
+##### 14462#       发表于 2021-4-30 21:11
+
+
+没有啊 我指的是今晚的直播内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14463#       发表于 2021-4-30 21:30
+
+
+废话过气了谁看啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14464#       发表于 2021-4-30 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51113598&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-30 21:08</a>
+
+有啥好聊的这种，萌百啥的不都有吗
+
+
+这人五一预订除了那个24小时的，别的啥的都没有这几天也说自己在忙</blockquote>
+你在高速用流量看直播吗
+
+
+                 
