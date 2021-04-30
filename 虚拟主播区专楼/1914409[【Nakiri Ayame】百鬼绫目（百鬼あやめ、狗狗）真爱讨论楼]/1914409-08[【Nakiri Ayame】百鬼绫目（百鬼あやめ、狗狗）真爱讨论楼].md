@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-29 14:35** 
+> ## **本文件最后更新于2021-04-30 15:42** 
 
 
 
@@ -7875,7 +7875,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_XC9UX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_RpaQP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 mv.gif
@@ -13240,10 +13240,9 @@ JK剣士だ余！
 ##### 11726#       发表于 2021-4-23 23:25
 
 
- 本帖最后由 一仙 于 2021-4-23 23:59 编辑 
+ 本帖最后由 一仙 于 2021-4-30 23:34 编辑 
 
-所以最近摸鱼是去录歌了吗 原谅了<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
-
+所以最近摸鱼是去录歌了吗
 
 syl，突然发现推特60万关注了
 
@@ -13999,4 +13998,298 @@ King
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么感觉最近骗了好多萌新，明明也没怎么播
 
 
-      
+-----
+
+####  因为你不会  
+##### 11798#       发表于 2021-4-29 22:36
+
+
+可恶，每个人都该看看绫总的真面目<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11799#       发表于 2021-4-29 22:49
+
+
+谁搁推特上写的讲里话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11800#       发表于 2021-4-29 22:57
+
+
+绫总哪次开台不是在骗萌新<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在这股干劲能维持多久还要再观察<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11801#       发表于 2021-4-29 22:59
+
+
+欠生活的毒打是吧 等你啥时候跟三期老阿姨一样只能指着直播恰饭就知道啥叫战友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11802#       发表于 2021-4-29 23:24
+
+
+koko酱草 绷不住了
+
+
+-----
+
+####  因为你不会  
+##### 11803#       发表于 2021-4-30 11:20
+
+
+绫总怕不是剑指100w
+
+
+-----
+
+####  cctvyt1  
+##### 11804#       发表于 2021-4-30 12:06
+
+
+90万的床一定很好躺吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/30/120543rrgavqyxxmqxi8pc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>123.jpg</strong> (163.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 12:05 上传
+
+
+-----
+
+####  昆西昆希昆  
+##### 11805#       发表于 2021-4-30 12:58
+
+
+狗狗不要啊，离那个烂人远一点，会被带坏的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11806#       发表于 2021-4-30 13:16
+
+
+这感想会的正片内容还没有后面猫话多 运营的任务用力过猛罢
+
+
+-----
+
+####  Fami水  
+##### 11807#       发表于 2021-4-30 14:05
+
+
+满满的运营任务感
+
+
+-----
+
+####  因为你不会  
+##### 11808#       发表于 2021-4-30 16:30
+
+
+李在赣神魔啊
+
+
+-----
+
+####  cctvyt1  
+##### 11809#       发表于 2021-4-30 16:32
+
+
+除了百鬼组以外的人都能调戏绫总是吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/30/163212a6n0asj0xh0jkjez.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210430_163045.jpg</strong> (111.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 16:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/163220o6n3n343et0tfbee.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210430_163106.jpg</strong> (93.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 16:32 上传
+
+
+-----
+
+####  天悬星河  
+##### 11810#       发表于 2021-4-30 16:48
+
+
+看起来是褒めて先生，老逗狗大师了
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11811#       发表于 2021-4-30 16:49
+
+
+木口用边角料赏的翻唱和新皮比勾搭上新野男人还高兴是吧
+
+
+-----
+
+####  Fami水  
+##### 11812#       发表于 2021-4-30 17:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">可能绫就是那种容易满足的类型
+
+
+-----
+
+####  因为你不会  
+##### 11813#       发表于 2021-4-30 18:55
+
+
+绫总这个女人有问题<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11814#       发表于 2021-4-30 20:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么老提数字，真的有点不正常
+
+
+-----
+
+####  因为你不会  
+##### 11815#       发表于 2021-4-30 21:57
+
+
+绫总你TM报数上瘾了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11816#       发表于 2021-4-30 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">姨化前兆啊 绫总你快醒醒
+
+
+-----
+
+####  一仙  
+##### 11817#       发表于 2021-4-30 22:05
+
+
+第一次看到大数字上瘾了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+这种痴迷能变成动力吗不能还是拉倒啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 11818#       发表于 2021-4-30 22:07
+
+
+她这是怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11819#       发表于 2021-4-30 22:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么时候开播能像今天报数这么勤快啊
+
+
+-----
+
+####  因为你不会  
+##### 11820#       发表于 2021-4-30 23:05
+
+
+绫总有这心思看看自己rank分啊，白金还上不上了我好急啊<img src="https://static.saraba1st.com/image/smiley/face2017/146.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11821#       发表于 2021-4-30 23:08
+
+
+过气曲翻唱能这么多数据没水分是不信的
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11822#       发表于 2021-4-30 23:19
+
+
+本来吧翻唱加新皮打一套combo是基操 结果昨天直播直接自爆这玩意是工期拖了能有三个月
+
+现在这么用力甚至koko酱都叫出来了 恶堕的前兆kana
+
+
+-----
+
+####  一仙  
+##### 11823#       发表于 2021-4-30 23:29
+
+
+ 本帖最后由 一仙 于 2021-4-30 23:32 编辑 
+
+草 每次杨桃兄都能恰到好处给我种上梁木<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+反正绫总现在这种状况，之后无论发生什么总不会变糟吧<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  昆西昆希昆  
+##### 11824#       发表于 2021-4-30 23:37
+
+
+排位分真的无所谓的。快住手啊你们想让余也变成apex废人吗<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11825#       发表于 2021-4-30 23:39
+
+
+怎么夸宝今天也投翻唱  大的要来了是吧
+
+
+     
