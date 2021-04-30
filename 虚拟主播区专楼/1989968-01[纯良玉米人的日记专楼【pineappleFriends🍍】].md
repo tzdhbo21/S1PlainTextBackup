@@ -1,0 +1,6772 @@
+> ## **本文件最后更新于2021-04-30 11:37** 
+
+
+
+-----
+
+####  狐言乱语  
+##### 1#       楼主       发表于 2021-2-26 23:21
+
+
+ 本帖最后由 狐言乱语 于 2021-4-30 13:47 编辑 
+
+狐皇专楼没人管，以前日记楼的那位跑路了，实在找不到地方写小作文了，还是自己开一楼自言自语吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 6战斗力 +7
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Badwoman| + 1|好|
+| 空集| + 1|好评加鹅|
+| 目力干员leison| + 1|欢乐多|
+| 过不了审| + 1|好评加鹅|
+| nowaki| + 2|好评加鹅|
+| 中野六小龄童| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 2#         楼主| 发表于 2021-2-26 23:24
+
+
+不得不说，同时视听属实烂活中的烂活，今天去看了眼同接，不到两千，不过白皮似乎挺喜欢看老阿姨对着空气嗯嗯啊啊的，不解
+
+<img src="https://img.saraba1st.com/forum/202102/26/232429n4ql81lnlrlqbq1r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614353064948.jpg</strong> (15.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 23:24 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 3#         楼主| 发表于 2021-2-26 23:28
+
+
+现在nga看狐皇纯jb靠云了，随便扔点图片都有沙口会信，但凡有点能力出去看一眼都不至于被耍的团团转。在墙里发发正义春倒挺适合他们的，免得跑出去被笑话<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/26/232653t5tz5tplpktlq6yo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>8e71ae3a-fba2-44d6-aa76-f445f6c5ead5.jpg</strong> (864.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-26 23:26 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  中野六小龄童  
+##### 4#       发表于 2021-2-26 23:34
+
+
+少整点图 文字加个引用就好了
+
+
+-----
+
+####  OldGlory  
+##### 5#       发表于 2021-2-26 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50452940&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-2-26 23:28</a>
+
+现在nga看狐皇纯jb靠云了，随便扔点图片都有沙口会信，但凡有点能力出去看一眼都不至于被耍的团团转。在墙 ...</blockquote>
+那两个图都是v8偷的，只能说泥哥直钩都能钓上<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我尊敬的父亲  
+##### 6#       发表于 2021-2-26 23:42
+
+
+泥哥总能给我整出点新乐子
+
+
+-----
+
+####  nowaki  
+##### 7#       发表于 2021-2-26 23:49
+
+
+惊天魔盗团2的确有周杰伦，蹭了就是蹭了，狐坦粉丝能不能立正挨打啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 8#         楼主| 发表于 2021-2-26 23:52
+
+
+看了圈狐皇推特的fanart，对自己的绘画水平逐渐有了信心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 9#         楼主| 发表于 2021-2-27 01:12
+
+
+总能在一些奇怪的地方找到白上小姐
+
+<img src="https://img.saraba1st.com/forum/202102/27/011228ebvm8bbbbbnanbrr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5b725961-2f77-46d6-93c3-a28b21457e52.jpg</strong> (115.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 01:12 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 10#       发表于 2021-2-27 01:33
+
+
+不是，你这日记楼还搬泥哥的屎啊？😅
+
+
+-----
+
+####  昆西昆希昆  
+##### 11#       发表于 2021-2-27 01:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50453168&amp;ptid=1989968" target="_blank">OldGlory 发表于 2021-2-26 23:40</a>
+
+那两个图都是v8偷的，只能说泥哥直钩都能钓上</blockquote>
+现在已经是V8做图泥潭搬的固定流程了。很难没有合作关系
+
+
+-----
+
+####  狐言乱语  
+##### 12#         楼主| 发表于 2021-2-27 10:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50454220&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-2-27 01:33</a>
+不是，你这日记楼还搬泥哥的屎啊？😅</blockquote>
+纯良人逛nga不是很正常的事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+另外反串喵喵狐差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 13#       发表于 2021-2-27 16:49
+
+
+怎么死亡搁浅播了几个月还没播完<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 14#         楼主| 发表于 2021-2-27 17:03
+
+
+转播死亡搁浅被人举报了，真不喜欢看运快递游戏<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 15#         楼主| 发表于 2021-2-27 17:22
+
+
+嘻嘻，每次点开在狐皇海盗下面臊皮的人总能有惊喜，看个管人还能看出爱国了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202102/27/172039sd7wgmdcuqld1mg7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210227_134346_edit_1010561390192675.jpg</strong> (46.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 17:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202102/27/172039lxjr0g0oznxng1x5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210227_134443_edit_1019764767017833.jpg</strong> (304.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 17:20 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  cheatdeath3  
+##### 16#       发表于 2021-2-27 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50459122&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-2-27 17:22</a>
+
+嘻嘻，每次点开在狐皇海盗下面臊皮的人总能有惊喜，看个管人还能看出爱国了</blockquote>
+爱中国字幕组和爱国有什么冲突吗？
+
+
+-----
+
+####  JY要塞  
+##### 17#       发表于 2021-2-27 18:34
+
+
+重新定义纯良
+
+
+-----
+
+####  OldGlory  
+##### 18#       发表于 2021-2-27 19:41
+
+
+玉米人要亚撒西不要挂人捏
+<img src="https://p.sda1.dev/1/86d2a0787cbcffe9990acc1755a7201d/3102DF5EC4D5CDCF5CBD9D5365A27167.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|怕你不知道，lz是知名反串捏ww|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 19#         楼主| 发表于 2021-2-27 21:17
+
+
+map2你别寄吧泼我脏水了，在这里开除别人粉籍不如多看点狐皇跳舞洗洗 脑子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 20#         楼主| 发表于 2021-2-27 21:29
+
+
+“如果这样下去”
+“我觉得和桐生可可联动发推也没关系”
+“全员解散”
+“第二个推特如果警告了，像这样还发”
+“那不好意思”
+“白上吹雪字幕组，解散”
+
+<img src="https://img.saraba1st.com/forum/202102/27/212859c9bwa8gqb97790f7.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614432373263.png</strong> (71.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-27 21:28 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  rockzrq  
+##### 21#       发表于 2021-2-27 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461368&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-2-27 21:29</a>
+“如果这样下去”
+“我觉得和桐生可可联动发推也没关系”
+“全员解散”</blockquote>
+cbddl😅，属实有点魔怔了
+
+
+-----
+
+####  狐言乱语  
+##### 22#         楼主| 发表于 2021-2-27 21:35
+
+
+ut又是什么新的管人金游？剧情我都快背下来了，也就初见有点意思了，和平屠杀打完后看多周目就是折磨观众，还rta，恁搁这儿圆电竞梦呢？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 23#         楼主| 发表于 2021-2-27 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50461399&amp;ptid=1989968" target="_blank">rockzrq 发表于 2021-2-27 21:31</a>
+cbddl😅，属实有点魔怔了</blockquote>
+这是青叶先生当初对白上小姐的开战宣言，挺霸气的不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  好德我基  
+##### 24#       发表于 2021-2-27 21:48
+
+
+打个rta还死了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  好德我基  
+##### 25#       发表于 2021-2-27 22:57
+
+
+sans一把过了，激动的读起了sc
+
+
+-----
+
+####  nowaki  
+##### 26#       发表于 2021-2-27 23:08
+
+
+泥潭只有rp玉米人是吧
+
+
+-----
+
+####  Reimu853  
+##### 27#       发表于 2021-2-27 23:11
+
+
+玉米人还能在V版待得住，那精神可能是有点扭曲了
+
+
+-----
+
+####  昆西昆希昆  
+##### 28#       发表于 2021-2-27 23:15
+
+
+纯良（存疑）玉米人（存疑）的日记专楼（存疑）
+
+这到底是个啥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 蒼島燃灯| + 1|神圣罗马帝国|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 29#         楼主| 发表于 2021-2-28 00:59
+
+
+有什么待得住待不住的，狐皇又没有贴贴楼，想倒点黑泥就来这里了，难不成还得有人来教我怎么看管人不成？戾气能不能不要这么重啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  cheatdeath3  
+##### 30#       发表于 2021-2-28 10:22
+
+
+什v什粉是这样的
+
+搞得我看狐坦卖萌图都有种yygq感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 31#       发表于 2021-2-28 13:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">自从华硕工商被橄榄以后，狐姨越来越爱读sc了，华硕工商那么值钱吗。
+
+
+-----
+
+####  Map-2  
+##### 32#       发表于 2021-2-28 13:09
+
+
+上一栋日记楼建起来的时候，有很多无关狐皇的内容。
+我疑惑道，原来日记楼是管人粉丝的日记，不是V的。
+中野给我扣了鹅，叫我去看其他日记楼是什么样子。
+我去看了，我想我理解什么是日记楼了。
+
+可是这一栋日记楼建起来的时候，连日记都没有了。
+我又问道，狐宝这日记楼怎么还搬泥潭的屎啊？（你这日记楼怎么和其他日记楼不一样）
+狐宝说想倒点黑泥就来这里了，叫我滚去洗洗 脑子。
+
+所以什么是“日记楼”，我又搞不清楚了。
+
+
+-----
+
+####  nowaki  
+##### 33#       发表于 2021-2-28 13:56
+
+
+既不纯良也不玉米人更没日记是吧
+
+
+-----
+
+####  狐言乱语  
+##### 34#         楼主| 发表于 2021-2-28 14:15
+
+
+我既不骂人也不黑屁，怎么不算是纯良人了？难道一定要整天对着狐皇发情才算是玉米人吗？喜欢互开粉籍不如去和天狗玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+另外今晚有台词回别忘记来看<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 35#         楼主| 发表于 2021-2-28 14:17
+
+
+另外我没有repo直播的习惯，map2你别像个怨妇在那边碎碎念了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  stmule  
+##### 36#       发表于 2021-2-28 16:11
+
+
+什么v什么粉，你看绫总就只有病栋，没有mmr日记楼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  狐言乱语  
+##### 37#         楼主| 发表于 2021-2-28 20:22
+
+
+2月28日，隔壁楼抄袭我的标题，但中文夹杂日文的模式终究只是对中国文化的拙劣模仿，不安です
+
+<img src="https://img.saraba1st.com/forum/202102/28/202207xr2pq93xpx9pq9q8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210228_201803.jpg</strong> (83.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-2-28 20:22 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|绷不住了|
+| 赞美太阳| + 1|欢乐多|
+| admentus| + 1|欢乐多|
+| wiig| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  好德我基  
+##### 38#       发表于 2021-2-28 20:22
+
+
+纯路人，狐宝看完台词回能不能解释下这个吊图是不是你做的？
+<img src="http://tiebapic.baidu.com/forum/w%3D580/sign=a2c98f626cf40ad115e4c7eb672d1151/bb6a7e3e6709c93dd87db6ad883df8dcd000545e.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 39#         楼主| 发表于 2021-2-28 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469009&amp;ptid=1989968" target="_blank">好德我基 发表于 2021-2-28 20:22</a>
+纯路人，狐宝看完台词回能不能解释下这个吊图是不是你做的？</blockquote>
+是不是我做的并不重要，重要的是nga那帮人真的信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  SuperCK  
+##### 40#       发表于 2021-2-28 20:39
+
+
+狐宝能不能评价一下另外一位纯良玉米人的大作《贵物时代的前世：holo》，别光顾着偷帖啊
+
+
+-----
+
+####  狐言乱语  
+##### 41#         楼主| 发表于 2021-2-28 20:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469149&amp;ptid=1989968" target="_blank">SuperCK 发表于 2021-2-28 20:39</a>
+狐宝能不能评价一下另外一位纯良玉米人的大作《贵物时代的前世：holo》，别光顾着偷帖啊 ...</blockquote>
+我觉得说的不是挺对的吗？不过我看到map2给我帖子点踩了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 42#         楼主| 发表于 2021-2-28 21:10
+
+
+台词回的时间总是过的这么快<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 43#       发表于 2021-2-28 22:26
+
+
+ 本帖最后由 Map-2 于 2021-2-28 23:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469009&amp;ptid=1989968" target="_blank">好德我基 发表于 2021-2-28 20:22</a>
+
+纯路人，狐宝看完台词回能不能解释下这个吊图是不是你做的？</blockquote>
+是不是他做的我不知道，我第一次看见这图确实是他发的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl还有那个“不能让凑啊夸活下去了”我也是第一次在他那里看见的
+
+
+-----
+
+####  Map-2  
+##### 44#       发表于 2021-2-28 22:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50469001&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-2-28 20:22</a>
+2月28日，隔壁楼抄袭我的标题，但中文夹杂日文的模式终究只是对中国文化的拙劣模仿，不安です</blockquote>
+以前有人跑到c综问colo
+lz是日本人吗，为什么要用日文楼名
+他的回答具体我没保存下来，但大致意思是:
+日文是下等人的文字，所以高等的中国人可以用🤗
+
+
+-----
+
+####  stedckk  
+##### 45#       发表于 2021-2-28 23:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉我见过的玉米人或者自称的玉米人，现在都变得不太正常了。
+
+这就是狐皇的魔力吗。
+
+
+PS: 泥潭真的有玉米人吗？
+
+
+-----
+
+####  星の守  
+##### 46#       发表于 2021-2-28 23:44
+
+
+说起玉米人我就想起了未知老哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐宝倒是其次
+
+
+-----
+
+####  Map-2  
+##### 47#       发表于 2021-2-28 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50470712&amp;ptid=1989968" target="_blank">星の守 发表于 2021-2-28 23:44</a>
+
+说起玉米人我就想起了未知老哥狐宝倒是其次</blockquote>
+奶宝都比一口一个糊坦的狐宝像喵喵狐点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 48#         楼主| 发表于 2021-3-1 00:31
+
+
+map2你可别云了，我平常都是叫狐皇的，哪来的一口一个糊坦？我真想黑屁用中分孕妇不是更有杀伤力？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Zhudhh|-1|差不多得了|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 49#         楼主| 发表于 2021-3-1 00:37
+
+
+怎么老有人觉得狐皇是pua捏？pua这玩意一般对缺爱的人最有效果，真看狐皇入脑了不如去找个女人治一治，实在找不到女朋友回家找妈妈也可以<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 50#       发表于 2021-3-1 00:58
+
+
+ 本帖最后由 Map-2 于 2021-3-1 03:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50471013&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-1 00:31</a>
+
+map2你可别云了，我平常都是叫狐皇的，哪来的一口一个糊坦？我真想黑屁用中分孕妇不是更有杀伤力？ ...</blockquote>
+差不多得了，就你一天去泥潭复制粘贴一堆泥言泥语，引用还不注明出处。整的真纯良还私聊你是不是⛵<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+说到偷活，橘宝写的一大堆东西又给你原封不动偷一遍，这样的行径很难不给你点踩嗷
+
+
+-----
+
+####  狐言乱语  
+##### 51#         楼主| 发表于 2021-3-1 16:17
+
+
+别寄吧惦记你那ut了，好吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 52#         楼主| 发表于 2021-3-1 16:40
+
+
+ 本帖最后由 狐言乱语 于 2021-3-1 16:43 编辑 
+
+哪来的泥哥？原来是弱智ww啊，打扰了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/01/164010qwr73dsfjspjj232.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614587998271.png</strong> (3.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 16:40 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/164010niia8rox888ds2qo.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614588000597.png</strong> (3.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 16:40 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/164329oj9lghtcvwn8vvlk.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614588198402.png</strong> (3.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 16:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/164329v4x72b4b4z6z642z.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614588200503.png</strong> (3.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 16:43 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 53#         楼主| 发表于 2021-3-1 17:32
+
+
+还是没泥哥懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/01/173135pd30u7733pz7plqe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-776be7a166f06fff.jpg</strong> (31.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 17:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/01/173135izbzpth60d38p6h6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-18303543d41b360e.jpg</strong> (27.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 17:31 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  天悬星河  
+##### 54#       发表于 2021-3-1 17:36
+
+
+狐学和hololive权力变更的创作火种还是延续了下来，很欣慰
+
+
+-----
+
+####  OldGlory  
+##### 55#       发表于 2021-3-1 17:59
+
+
+虽然这下狐了，但泥哥拉屎能不能扔到语录楼
+
+
+-----
+
+####  狐言乱语  
+##### 56#         楼主| 发表于 2021-3-1 18:37
+
+
+真有人会来看这栋楼，不会吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 57#         楼主| 发表于 2021-3-1 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50477730&amp;ptid=1989968" target="_blank">OldGlory 发表于 2021-3-1 17:59</a>
+虽然这下狐了，但泥哥拉屎能不能扔到语录楼</blockquote>
+这不狐学吗？虽然是泥哥的发言，但肥水不流外人田你懂吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  nowaki  
+##### 58#       发表于 2021-3-1 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50471013&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-1 00:31</a>
+
+map2你可别云了，我平常都是叫狐皇的，哪来的一口一个糊坦？我真想黑屁用中分孕妇不是更有杀伤力？ ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202103/01/195814x5tdwe5enhc158dh.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210301195752.png</strong> (30.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 19:58 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|明眼人|
+| Zhudhh| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 59#       发表于 2021-3-1 19:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50478853&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-1 19:51</a>
+
+这不狐学吗？虽然是泥哥的发言，但肥水不流外人田你懂吗
+
+
+—— 来自 S1Fun ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">首先他们是泥哥 其次才是狐学
+
+
+-----
+
+####  狐言乱语  
+##### 60#         楼主| 发表于 2021-3-1 20:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50478934&amp;ptid=1989968" target="_blank">nowaki 发表于 2021-3-1 19:58</a></blockquote>
+work cited：nga六字母贴贴楼
+
+<img src="https://img.saraba1st.com/forum/202103/01/200349zgw6ddrv0ryz88vh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210217_190335.jpg</strong> (284.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-1 20:03 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 61#       发表于 2021-3-1 20:08
+
+
+现役玉米人楼主可以给我讲解一下当初战人是怎么一个脱粉的心里路程吗？
+
+你要是跟他不熟的话当我没问
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  狐言乱语  
+##### 62#         楼主| 发表于 2021-3-1 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50479082&amp;ptid=1989968" target="_blank">虚无缥缈的光阴 发表于 2021-3-1 20:08</a>
+现役玉米人楼主可以给我讲解一下当初战人是怎么一个脱粉的心里路程吗？
+
+你要是跟他不熟的话当我没问</blockquote>
+他不还在做狐旅二嘛，狐狸的头像也是在狐组跑路后才换下来的，可不敢乱开人粉籍<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 63#       发表于 2021-3-1 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50479270&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-03-01 20:22:26</a>
+他不还在做狐旅二嘛，狐狸的头像也是在狐组跑路后才换下来的，可不敢乱开人粉籍 ...</blockquote>草，那我在QQ群看到的说战人脱粉的料是假的喽？
+
+可恶<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  cheatdeath3  
+##### 64#       发表于 2021-3-1 20:37
+
+
+ 本帖最后由 cheatdeath3 于 2021-3-1 20:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50478124&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-1 18:37</a>
+
+真有人会来看这栋楼，不会吧？
+
+
+—— 来自 S1Fun</blockquote>
+本以为有萌萌玉米人，结果就这
+
+我急了我急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 65#       发表于 2021-3-1 20:38
+
+
+顺便一提，我在q群看到的料是战人脱粉去看虹了还泡到了未成年虹人jk小女友，还好是假的不然我要酸死了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  狐言乱语  
+##### 66#         楼主| 发表于 2021-3-1 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50479494&amp;ptid=1989968" target="_blank">虚无缥缈的光阴 发表于 2021-3-1 20:38</a>
+顺便一提，我在q群看到的料是战人脱粉去看虹了还泡到了未成年虹人jk小女友，还好是假的不然我要酸死了[f:03 ...</blockquote>
+我没否认他有jk小女友啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 67#       发表于 2021-3-1 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50478853&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-1 19:51</a>
+
+这不狐学吗？虽然是泥哥的发言，但肥水不流外人田你懂吗
+
+
+—— 来自 S1Fun ...</blockquote>
+你可莫要笑死我，这“狐学”纯度还是太低了点
+
+
+-----
+
+####  狐言乱语  
+##### 68#         楼主| 发表于 2021-3-1 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480289&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-1 22:16</a>
+你可莫要笑死我，这“狐学”纯度还是太低了点</blockquote>
+狐学的最终目的是黑屁狐皇。泥哥省去了中间大篇幅形式 主义的分析，达到直接黑屁狐皇的效果，可谓是精彩绝伦。
+纯度这玩意，有用吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  cheatdeath3  
+##### 69#       发表于 2021-3-2 00:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50480559&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-1 22:50</a>
+
+狐学的最终目的是黑屁狐皇。泥哥省去了中间大篇幅形式 主义的分析，达到直接黑屁狐皇的效果，可谓是精彩 ...</blockquote>
+省略分析过程的狐学就如同没有前戏的插 入一样粗暴干涩且痛苦。
+
+狐坦从不自称狐学，s1心慕手追，归纳出狐学。
+
+尼哥从不使用狐学，有人指鹿为马，称其为"狐学"。
+
+当狐坦名誉受损时，玉米人不挺身而出，反而假借日记之名造谣生非，可见所谓的纯良玉米人日记楼，既不纯良，也不玉米，更非日记。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 70#       发表于 2021-3-2 00:18
+
+
+一个干啥啥不行就知道满世界蹭的30多岁老 肥 逼，杏奴还搁这舔呢，莫鲁喵的 骚 逼香不香啊？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 7战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 舔狗没有房子|-1|太香了|
+| 星の守| + 1|平衡|
+| admentus|-1|雅|
+| seki_m| + 2|杏瘾犯惹|
+| Map-2|-1|王守义闻了都说香|
+| 空集|-1|香|
+| asdhai|-2|艺术分|
+
+
+查看全部评分
+
+
+-----
+
+####  赞美太阳  
+##### 71#       发表于 2021-3-2 00:20
+
+
+直球嘴臭掉档次啊
+
+
+-----
+
+####  Zaphikel  
+##### 72#       发表于 2021-3-2 00:22
+
+
+<blockquote>hololive的马车杯，相信大家都不陌生
+
+2019年11月10日晚上的这场比赛的颁奖典礼在许多人的心中种下了梁木
+
+“亚军白上吹雪在颁奖典礼上落泪，让冠军凑阿库娅下不来台”
+
+大家都认为白上桑在yygq大天使，这是“狐夸不合”论的主要论据之一
+
+其实不然，白上吹雪是在教育凑阿库娅“做人留一线，日后好相见”，因为凑阿库娅赢得太漂亮，又太丑陋。凡事要学会【适可而止】，大家庭的成员之间要学会【留下余地】。
+
+所谓漂亮，大天使在这次比赛中以几乎全第一的成绩夺得最后的冠军；所谓丑陋，大天使在这次比赛中以几乎全第一的成绩夺得最后的冠军。
+
+白上桑很清楚，因为我一碰到你，我一定输给你的话，其他人就不会再和你来往。但大天使不知道这个道理，所以狐皇要委婉的告诉她，要以身作则告诉她，于是就有了落泪一出。
+
+最高的艺术，是没有输赢。现在的很多人都已经忘记了。
+
+孔子说过，“始作俑者，其无后乎”。真正的象棋高手，他懂得和棋，他一看再赢下去，恐怕你就要翻脸了哦，他就会搞和棋。让对方知道我的技术确实胜过你就好了，我干嘛让别人在结果上看到我赢你。在大家庭里，真正会比赛的人，不会老赢别人的，你总是赢别人，就没人和你比了。
+
+赢两盘最少输一盘，人家就知道你会尊重她，人家心里很明白，你车技高，你是真的高，她从心里佩服你。可是如果你搞得她没有面子，她就会到处排挤破坏你，那你就会很孤独，那你就像是不会玩马里奥赛车一样，一个人会玩到没有人愿意跟她玩，那她就等于是不会玩。
+
+白上吹雪的泪目的隐喻在于：信仰“必胜”的人，是胜不了多久的；而信仰“不败”的人，可以长长久久的不败。不要老想做天下第一。人要懂的隐藏，易经告诉我们“潜龙勿用”，有能力的人要会深藏不露。这才是优秀大家庭的家风
+
+白上吹雪不只是给大家庭的成员引流，联动喂饭，更重要的，她还在维系大家庭的家风。</blockquote>
+
+不记得是谁写的，总之我先放在这里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 73#       发表于 2021-3-2 00:29
+
+
+这老肥 逼B限睡觉不嫌掉档次啊，我看杏奴一样舔的老欢了，现在还有空给这肥 逼天天写日记呢，笑死个人
+
+
+-----
+
+####  Day_One  
+##### 74#       发表于 2021-3-2 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50478124&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-1 18:37</a>
+真有人会来看这栋楼，不会吧？
+
+—— 来自 S1Fun</blockquote>
+我承认  我急了  本来点进来想品一品别人的尬痴语录  结果进来全是泥哥的屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一点都不纯良
+
+
+-----
+
+####  nowaki  
+##### 75#       发表于 2021-3-2 00:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">凛子小姐的小橡皮一定是奶油面包味的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星の守|-1|急了急了|
+| Zhudhh| + 1|急得|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 76#         楼主| 发表于 2021-3-2 02:07
+
+
+ 本帖最后由 狐言乱语 于 2021-3-2 02:18 编辑 
+
+你妈也有骚 逼，你妈也会睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+免费哥不愧真性情，不穿裤子随地拉屎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+免得又有人说我骂人，这里加个work cited：
+
+
+<img src="https://img.saraba1st.com/forum/202103/02/021325odyt8eenhtjz1yj1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>377B6EC8837C50869EFF99212FC35C16.jpg</strong> (52.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 02:13 上传
+
+
+下面那张玩免费定型文导致crew气急败坏的惨状是我手滑发错了，果咩捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+Screenshot_20210223_120329.jpg
+(292.9 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-3-2 02:12 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/02/021204ec9v9qjsoqtbjsij.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Pavlova  
+##### 77#       发表于 2021-3-2 08:55
+
+
+看了这么多天下来唯一的感觉是能不能把纯良俩字去掉
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  十九号大侠  
+##### 78#       发表于 2021-3-2 09:04
+
+
+FREE比起圆脸更讨厌坦克啊
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ylssb10438| + 1|讨厌圆脸是傲娇，讨厌坦克是天然.|
+
+
+查看全部评分
+
+
+-----
+
+####  獅白ぼたん  
+##### 79#       发表于 2021-3-2 09:10
+
+
+crew总能在大亏感召我之前一把把我拉回去
+
+
+-----
+
+####  狐言乱语  
+##### 80#         楼主| 发表于 2021-3-2 10:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/02/104716fbbb9nkiij8o9inj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210302_104654.jpg</strong> (472.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 10:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/02/104716udyy5wynnykycwyz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210302_104703.jpg</strong> (73.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 10:47 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 81#       发表于 2021-3-2 12:20
+
+
+纯不纯良啊，太纯良了这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 82#         楼主| 发表于 2021-3-2 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50485096&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-2 12:20</a>
+纯不纯良啊，太纯良了这个</blockquote>
+我的错我的错，free应该是吃坏肚子了，我不该责怪他。
+跑来这里拉完一坨，想了想觉得不对劲，十分钟后又来拉了一坨，怪可怜的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 83#         楼主| 发表于 2021-3-2 12:35
+
+
+神他 妈g线三周目，没活了是吧？
+不过播ut能有8000+的同接，狐皇你最终还是成了数字的奴隶了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  毒蛇王维诺米隆  
+##### 84#       发表于 2021-3-2 12:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50485096&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-03-02 12:20:38</a>
+纯不纯良啊，太纯良了这个</blockquote>如果狐宝都算纯良的话，那我已经是萌力百分百的mmr了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Map-2  
+##### 85#       发表于 2021-3-2 13:02
+
+
+<[img src="https://i.loli.net/2021/03/02/2IeWXT698oAgBdV.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 86#       发表于 2021-3-2 13:04
+
+
+本楼是免费专楼？
+
+
+-----
+
+####  Hemis  
+##### 87#       发表于 2021-3-2 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50485186&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-2 12:29</a>
+
+我的错我的错，free应该是吃坏肚子了，我不该责怪他。
+
+跑来这里拉完一坨，想了想觉得不对劲，十分钟后又 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别尬黑，免费可是真正的白上肉体厨
+
+在泥哥或者别人还在黑她行为恶心的时候
+
+免费已经热衷于“老”“肥”以及“骚”这些肉体上的特征，不得不说，免费更进一步
+
+
+-----
+
+####  面具13  
+##### 88#       发表于 2021-3-2 13:13
+
+
+yysy，免费可能是楼里唯一一个真正的玉米人，他或许没那么喜欢莫露喵（也说不好），但是他毕竟看的是V，对白上吹雪应该是很满意的，破防什么的都是装的，rp方面可以说什V什粉。
+
+证据是没人能否认免费是时乃空gachi。
+
+
+-----
+
+####  狐言乱语  
+##### 89#         楼主| 发表于 2021-3-2 13:15
+
+
+ 本帖最后由 狐言乱语 于 2021-3-2 13:16 编辑 
+
+纯良玉米人好好写着日记，结果免费放了个响屁大家就全去围观他拉屎了。免费拉完跑了，大家还对他的屎指指点点<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+狐皇？狐皇播ut呢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|欢乐多|
+| asdhai| + 2|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  星の守  
+##### 90#       发表于 2021-3-2 15:09
+
+
+说的好像狐宝没挂过crew黒屁过夸似的，管人粉本就是一丘之貉，装你🐎的纯良<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Map-2  
+##### 91#       发表于 2021-3-2 15:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486768&amp;ptid=1989968" target="_blank">星の守 发表于 2021-3-2 15:09</a>
+
+说的好像狐宝没挂过crew黒屁过夸似的，管人粉本就是一丘之貉，装你🐎的纯良 ...</blockquote>
+比起冲进专楼来拉屎的，狐宝的米线还是有的
+
+
+-----
+
+####  星の守  
+##### 92#       发表于 2021-3-2 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486833&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-2 15:17</a>
+
+比起冲进专楼来拉屎的，狐宝的米线还是有的</blockquote>
+有段时间他在贴吧三天两头挂人，生产负能量，实属恶心，反正自从他说好的退圈不退，还回来当喵喵狐的那一刻就彻底魔怔了
+
+
+-----
+
+####  泡吧_  
+##### 93#       发表于 2021-3-2 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50479494&amp;ptid=1989968" target="_blank">虚无缥缈的光阴 发表于 2021-3-1 20:38</a>
+
+顺便一提，我在q群看到的料是战人脱粉去看虹了还泡到了未成年虹人jk小女友，还好是假的不然我要酸死了[f:03 ...</blockquote>
+jk小女友是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 94#       发表于 2021-3-2 15:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486913&amp;ptid=1989968" target="_blank">星の守 发表于 2021-3-2 15:25</a>
+有段时间他在贴吧三天两头挂人，生产负能量，实属恶心，反正自从他说好的退圈不退，还回来当喵喵狐的那一 ...</blockquote>
+狐gachi确实恶心，但是贴吧不就是这种氛围嘛<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 95#       发表于 2021-3-2 15:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486993&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-2 15:33</a>
+
+狐gachi确实恶心，但是贴吧不就是这种氛围嘛</blockquote>
+确实，所以我不看了，每天不是你挂我就是我挂你，简直是个深不见底的漩涡，让人无法脱离
+
+
+-----
+
+####  狐言乱语  
+##### 96#         楼主| 发表于 2021-3-2 15:47
+
+
+我就上了个课，咋又有crew鲨进来了？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+有这时间来我这发正义春，不如多开两辆车去干tskk，指不定哪天夸宝就回来了呢？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 97#       发表于 2021-3-2 15:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50486963&amp;ptid=1989968" target="_blank">泡吧_ 发表于 2021-03-02 15:30:19</a>
+jk小女友是真的</blockquote>我不相信<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+一定都是假的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  星の守  
+##### 98#       发表于 2021-3-2 15:57
+
+
+某大学的课程就这么轻松的么？你闲暇时间还真多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl 我也没指望她能回来，现在这种情况无论她什么时候回来都没用了
+
+
+-----
+
+####  狐言乱语  
+##### 99#         楼主| 发表于 2021-3-2 16:02
+
+
+我不提夸的前提一直是crew别寄吧来恶心我。
+今年马车杯感知树恶心了我一次，昨晚free拉屎恶心了一次。
+如有冒犯，够咩那塞<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  泡吧_  
+##### 100#       发表于 2021-3-2 16:04
+
+
+我认识的好几个狐噶吃的下场都是发疯，期待楼主的那一天到来
+
+
+-----
+
+####  狐言乱语  
+##### 101#         楼主| 发表于 2021-3-2 16:05
+
+
+ 本帖最后由 狐言乱语 于 2021-3-2 16:08 编辑 
+
+ut没了，换成apex了，真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+看错了，原来是ut和apex连播，太对了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  星の守  
+##### 102#       发表于 2021-3-2 16:20
+
+
+ 本帖最后由 星の守 于 2021-3-2 16:21 编辑 
+
+又是最终解释权归你这一套？很有某群体的作风<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl 回100楼，他不是已经疯了么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hemis  
+##### 103#       发表于 2021-3-2 16:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不想被恶心可以写楼规啊
+
+
+-----
+
+####  十九号大侠  
+##### 104#       发表于 2021-3-2 16:44
+
+
+怕恶心还看狐皇吗
+
+
+-----
+
+####  Badwoman  
+##### 105#       发表于 2021-3-2 16:45
+
+
+太乐了
+
+
+-----
+
+####  bluebaby  
+##### 106#       发表于 2021-3-2 16:47
+
+
+crew悠着点，这玉米人真疯起来跑去夸楼学免费有你们受的<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  泡吧_  
+##### 107#       发表于 2021-3-2 16:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50487561&amp;ptid=1989968" target="_blank">星の守 发表于 2021-3-2 16:20</a>
+
+又是最终解释权归你这一套？很有某群体的作风你用挂人黒屁来恶心别人，那别人也可以用同样手段来恶 ...</blockquote>
+期待打滚呢
+
+
+-----
+
+####  OldGlory  
+##### 108#       发表于 2021-3-2 17:15
+
+
+不要互相恶心了，狐夸贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/02/171459jv5i7lycqztmpiqz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>80560765_p0.jpg</strong> (488.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 17:14 上传
+
+
+-----
+
+####  ylssb10438  
+##### 109#       发表于 2021-3-2 17:19
+
+
+不是，玩贴吧粪坑游泳挂人水贴不是很正常吗😅
+
+我很好奇一点，因为狐狸推崇大家庭所以喵喵狐是杏奴，那推holo开山元老的空友是不是杏奴呢🤔
+
+
+-----
+
+####  crito  
+##### 110#       发表于 2021-3-2 17:49
+
+
+<blockquote>ylssb10438 发表于 2021-3-2 17:19
+不是，玩贴吧粪坑游泳挂人水贴不是很正常吗😅
+
+我很好奇一点，因为狐狸推崇大家庭所以喵喵狐是杏奴，那推hol ...</blockquote>
+free是crew，crew不是杏奴！
+
+
+-----
+
+####  空集  
+##### 111#       发表于 2021-3-2 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50488257&amp;ptid=1989968" target="_blank">ylssb10438 发表于 2021-3-2 17:19</a>
+不是，玩贴吧粪坑游泳挂人水贴不是很正常吗😅
+
+我很好奇一点，因为狐狸推崇大家庭所以喵喵狐是杏奴，那推hol ...</blockquote>
+玉米人crew打架还分什么杏奴不杏奴，不会真有人觉得自己不是杏奴就不是了吧，不会吧不会吧，先毕个业再来说吧。
+
+主要是这个简单的事实判断应该对智力要求已经很低了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  狐言乱语  
+##### 112#         楼主| 发表于 2021-3-2 17:53
+
+
+大家都一样烂，但要烂出自己的风采，烂出自己的特色<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  acgreen  
+##### 113#       发表于 2021-3-2 19:51
+
+
+Ho比特人4:杏奴内战
+
+
+-----
+
+####  狐言乱语  
+##### 114#         楼主| 发表于 2021-3-2 20:31
+
+
+话说这张在楼里发过吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/02/203129up7k3e5h85nsmen8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210301_192933.jpg</strong> (144.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-2 20:31 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 屑屑代沟尼亚|-1|隔壁泥楼都要没人了！|
+
+
+查看全部评分
+
+
+-----
+
+####  nowaki  
+##### 115#       发表于 2021-3-2 21:02
+
+
+很好奇什么叫黑屁大亏，我这样说真话的算吗？
+
+我倒觉得crew自己在黑屁大亏，毕竟你懂夸夸多爱b站都能说得出来
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星の守| + 1|多爱谈不上，至少比狐狸要好，我这也是真话.|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 116#         楼主| 发表于 2021-3-2 22:14
+
+
+ 本帖最后由 狐言乱语 于 2021-3-2 23:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50490202&amp;ptid=1989968" target="_blank">nowaki 发表于 2021-3-2 21:02</a>
+很好奇什么叫黑屁大亏，我这样说真话的算吗？
+
+我倒觉得crew自己在黑屁大亏，毕竟你懂夸夸多爱b站都能说得出 ...</blockquote>
+最终解释权归于crew，我的意思
+syl，crew也就会比烂了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星の守| + 1|这本来就是个比烂的世界|
+
+
+查看全部评分
+
+
+-----
+
+####  stedckk  
+##### 117#       发表于 2021-3-2 23:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这楼不是用来嘲讽玉米人和狐皇的吗，怎么还有crew进来喷粪打滚的。
+
+免费果然是个傻逼吧。
+
+
+-----
+
+####  Abyssmarionette  
+##### 118#       发表于 2021-3-3 01:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这什么阴间楼，阴间呆多了的杏奴才来这的吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么我也是，那没事了
+
+
+-----
+
+####  SteveS  
+##### 119#       发表于 2021-3-3 02:13
+
+
+阿夸，我的阿夸，
+
+
+-----
+
+####  Pavlova  
+##### 120#       发表于 2021-3-3 08:42
+
+
+狐夸不仲说现在虽然少见，但是到哪里都能看见喵喵狐大战crew是真的绷不住
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 121#         楼主| 发表于 2021-3-3 13:13
+
+
+今天终于不是ut了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 122#         楼主| 发表于 2021-3-3 17:49
+
+
+转张粉丝二创<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/03/174905u5575kja7zfukc7r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>B25EE60B91ACE78136B6820D1B6A5550.jpg</strong> (614.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 17:49 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 123#       发表于 2021-3-3 21:15
+
+
+3月3日
+今天迫真纯良玉米人日记楼回复不过一页
+几天下来终于所有人都意识到这栋楼各个方面上都是伪物了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+没有免费这帮crew进来帮助狐宝炒作后，这出独角戏还能唱多久，让我们拭目以待<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 124#         楼主| 发表于 2021-3-3 22:00
+
+
+map2这么关心这楼的kpi吗，我太感动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没乐子看自然就没人了，另外今天狐皇要播uno
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 125#       发表于 2021-3-3 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50502402&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-3 22:00</a>
+map2这么关心这楼的kpi吗，我太感动了
+没乐子看自然就没人了，另外今天狐皇要播uno</blockquote>
+也不是很关心，只是逛C综的时候看到了kpi之类的东西<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 126#         楼主| 发表于 2021-3-3 23:21
+
+
+原来现在兴弱智rp吗
+
+<img src="https://img.saraba1st.com/forum/202103/03/232140g9s8jcz5enc1pnug.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2b77f962-0629-4cdb-b215-bfaeb749475e.jpg</strong> (91.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 23:21 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 127#         楼主| 发表于 2021-3-3 23:30
+
+
+少主你什么时候回来啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/03/232941an24ny4n7ay5v52i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210303_232356.jpg</strong> (489.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-3 23:29 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 128#         楼主| 发表于 2021-3-4 16:04
+
+
+ 本帖最后由 狐言乱语 于 2021-3-5 21:40 编辑 
+
+今晚同时视听死侍？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 129#         楼主| 发表于 2021-3-4 21:03
+
+
+老阿姨蹭热度都慢半拍是吧，ut播了快一周才想到去蹭马娘？<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 130#         楼主| 发表于 2021-3-5 16:41
+
+
+好图
+
+<img src="https://img.saraba1st.com/forum/202103/05/164155i7pl744z8eg8zfi3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>C0538591B5D6C89F9A8841404497741C.jpg</strong> (123.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 16:41 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 131#         楼主| 发表于 2021-3-5 21:42
+
+
+蹭漫威是吧？话说真的有人会喜欢同时视听这种虚无直播吗？虽然狐皇已经够虚无了
+
+<img src="https://img.saraba1st.com/forum/202103/05/214226akc5qti7fc15c9hq.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614951671216.png</strong> (257.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 21:42 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 132#         楼主| 发表于 2021-3-5 21:46
+
+
+英文<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/05/214516ngsiugr566igiogy.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614951904309.png</strong> (664.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 21:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/05/214516yaylgugh6h6au64u.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1614951905852.png</strong> (49.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-5 21:45 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 133#         楼主| 发表于 2021-3-6 12:14
+
+
+狐皇的死亡搁浅依旧如初，可是当年陪伴她的b站观众现在又在哪里呢？
+狐皇最终还是从一个不谙世事的小女孩成长为独当一面的大人了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/06/121217cr7nq3af923zya79.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1615003910646.png</strong> (110.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-6 12:12 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/06/121223uwsefxlk1205wwqq.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1615003913212.png</strong> (77.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-6 12:12 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Pavlova  
+##### 134#       发表于 2021-3-6 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50529821&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-03-06 12:14:48</a>
+狐皇的死亡搁浅依旧如初，可是当年陪伴她的b站观众现在又在哪里呢？
+狐皇最终还是从一个不谙世事的小女孩成 ...</blockquote>多少沾点Role Play观众结果还能自我感动的成分了
+感到害怕
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  OldGlory  
+##### 135#       发表于 2021-3-7 00:05
+
+
+玉米人，真的很可笑
+
+
+-----
+
+####  Map-2  
+##### 136#       发表于 2021-3-7 00:52
+
+
+请你不要再给_____抹黑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  赞美太阳  
+##### 137#       发表于 2021-3-7 00:54
+
+
+竟然还在死亡搁浅吗？
+
+
+-----
+
+####  opersuper  
+##### 138#       发表于 2021-3-7 07:46
+
+
+7个月前不是v综劈狐皇最狠的时候吗，换了新皮才挽回风评<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 139#         楼主| 发表于 2021-3-7 13:13
+
+
+疑似rp用力过猛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  asd225588  
+##### 140#       发表于 2021-3-7 13:29
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  cheatdeath3  
+##### 141#       发表于 2021-3-7 14:36
+
+
+ 本帖最后由 cheatdeath3 于 2021-3-7 14:38 编辑 
+
+几天不见，搁这拉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+没屎拉不要硬拉，会拉稀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  狐言乱语  
+##### 142#         楼主| 发表于 2021-3-7 16:32
+
+
+假人妖差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">，就算去红迪我也是去逛holo版
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  asd225588  
+##### 143#       发表于 2021-3-7 16:33
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  狐言乱语  
+##### 144#         楼主| 发表于 2021-3-8 13:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/08/135821r5zr3iz5jwth2pzn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210308_115645.jpg</strong> (403.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-8 13:58 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  OldGlory  
+##### 145#       发表于 2021-3-8 16:52
+
+
+塔塔开！塔塔开！<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Badwoman  
+##### 146#       发表于 2021-3-8 17:54
+
+
+纯不纯良啊 太纯了
+
+
+-----
+
+####  好德我基  
+##### 147#       发表于 2021-3-8 22:16
+
+
+歌回之后还是没有130w，怎么回事呢
+
+
+-----
+
+####  狐言乱语  
+##### 148#         楼主| 发表于 2021-3-8 22:29
+
+
+狐皇早摆烂了，估计已经接受了自己过气的现实吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 149#         楼主| 发表于 2021-3-9 01:52
+
+
+所以按“霓虹”懂哥的说法，既然狐皇已经拿到了股份，那么其实她真人还挺好看的？风韵犹存的大姐姐，年上控把持不住了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/09/015149eiw0sz68zvvb1i02.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210309_015141.jpg</strong> (259.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-9 01:51 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  OldGlory  
+##### 150#       发表于 2021-3-9 03:00
+
+
+狐皇肉体厨差不多得了😅
+
+
+
+
+-----
+
+####  asd225588  
+##### 151#       发表于 2021-3-9 04:57
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  opersuper  
+##### 152#       发表于 2021-3-9 07:20
+
+
+泥哥都想透狐皇，很难不肉体厨
+
+还有幻想狐皇带着皮套和tanigo桑做的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  若风之景  
+##### 153#       发表于 2021-3-9 21:35
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  OldGlory  
+##### 154#       发表于 2021-3-9 22:39
+
+
+怎么打个空洞骑士还要说两句蹩脚英文的
+
+
+-----
+
+####  Hemis  
+##### 155#       发表于 2021-3-10 12:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不大戏看爆，万众瞩目的联动
+
+
+-----
+
+####  狐言乱语  
+##### 156#         楼主| 发表于 2021-3-10 15:36
+
+
+乐了，nga能不能来波大的，把狐皇打哭<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  AKili  
+##### 157#       发表于 2021-3-10 15:52
+
+
+我也想看狐皇哭<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 158#         楼主| 发表于 2021-3-10 18:04
+
+
+晚上九点才下课，不能观战了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  OldGlory  
+##### 159#       发表于 2021-3-10 20:12
+
+
+上来就会限，太怂了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  心垂万刃  
+##### 160#       发表于 2021-3-10 20:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">糊皇怂什么啊，这么多肉体厨等着草出水呢
+
+
+-----
+
+####  nowaki  
+##### 161#       发表于 2021-3-10 20:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">只能来这里车了，把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水把白上吹雪透出水
+
+
+-----
+
+####  vgmd  
+##### 162#       发表于 2021-3-10 20:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">把白上吹雪透出水[f:072]把白上吹雪透出水[f:072]把白上吹雪透出水
+
+
+-----
+
+####  狐言乱语  
+##### 163#         楼主| 发表于 2021-3-10 21:00
+
+
+泥哥怎么这就崩撤卖溜啦，上会员打穿甲弹啊<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  nowaki  
+##### 164#       发表于 2021-3-10 21:05
+
+
+https://www.bilibili.com/read/cv10216004
+泥哥弹药地址及精选
+
+
+赛场上赢不了别人就靠虚伪的眼泪骗人！两面派的小人！！
+
+
+通过哭泣获得的金盾有意思么？明明是个垃圾，第三得到金盾的，却觉得自己多了不起，真恶心人。收买运营的女垃圾人不配活着
+
+タピオカティー何杯飲んだの？お前はその肥満体で床が潰れるほどのクソデブだ
+
+白上吹雪你喝了多少奶茶？地板都被你增肥的体重压垮了？（经友军检验，该弹药直接被ban）
+
+
+今年马车赛，白上吹雪你还打算靠哭赢得比赛吗？？！！
+
+
+数据不如人就哭，马车杯赢不了也哭，白上吹雪除了那两滴猫尿，还有什么价值！
+
+故意不去夏色祭的凸待，还不许别人去，让可怜的夏色祭只能一个人过生日，去死吧白上吹雪！
+
+
+Yagoo给了你白上吹雪股份，白上吹雪你却吧背叛了yagoo，连明智光秀都为你感到羞耻！！
+
+
+-----
+
+####  vgmd  
+##### 165#       发表于 2021-3-10 21:08
+
+
+字字珠玑，句句铿锵，良师益友
+
+
+-----
+
+####  狐言乱语  
+##### 166#         楼主| 发表于 2021-3-10 21:11
+
+
+说起弹药，之前发完某专栏后这人大半夜私信了我几十条这种东西，太哈人了。
+另外这人推en
+
+<img src="https://img.saraba1st.com/forum/202103/10/211019xlysreblrg9yr7eb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210310_210933.jpg</strong> (429.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 21:10 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Badwoman  
+##### 167#       发表于 2021-3-10 21:24
+
+
+这未免有点..
+
+
+-----
+
+####  vgmd  
+##### 168#       发表于 2021-3-10 21:26
+
+
+私信了你几十条这种东西，你不屏蔽，你有病吧
+
+
+-----
+
+####  OldGlory  
+##### 169#       发表于 2021-3-10 21:26
+
+
+想要多葛本社的手办，那你自己的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 170#         楼主| 发表于 2021-3-10 21:57
+
+
+那可真是太急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/10/215700whftfxxhlhxfgmtx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210310_215652.jpg</strong> (169.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 21:57 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  真飞鸟i  
+##### 171#       发表于 2021-3-10 22:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发的什么专栏
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Map-2  
+##### 172#       发表于 2021-3-10 22:27
+
+
+什么情况，今天泥哥去狐皇那里开独轮车了？
+
+
+-----
+
+####  狐言乱语  
+##### 173#         楼主| 发表于 2021-3-10 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582006&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-10 22:27</a>
+什么情况，今天泥哥去狐皇那里开独轮车了？</blockquote>
+狐皇开会限了，泥哥宣布胜利<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 174#       发表于 2021-3-10 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582071&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-10 22:33</a>
+狐皇开会限了，泥哥宣布胜利
+
+—— 来自 S1Fun</blockquote>
+车到开会限了嘛？
+
+
+-----
+
+####  狐言乱语  
+##### 175#         楼主| 发表于 2021-3-10 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582183&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-10 22:43</a>
+车到开会限了嘛？</blockquote>
+刚开播就会限了，直接投降好吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 176#       发表于 2021-3-10 22:46
+
+
+ 本帖最后由 Map-2 于 2021-3-10 22:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582213&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-10 22:45</a>
+刚开播就会限了，直接投降好吧
+
+—— 来自 S1Fun</blockquote>
+那和泥哥有寄吧关系<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+泥哥不战而胜，独轮车让狐皇闻风丧胆？
+
+
+-----
+
+####  狐言乱语  
+##### 177#         楼主| 发表于 2021-3-10 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582235&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-10 22:46</a>
+那和泥哥有寄吧关系
+泥哥不战而胜，独轮车让狐皇闻风丧胆？</blockquote>
+今天狐和蝗联动，狐单窗，几天没看推特了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 178#       发表于 2021-3-10 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50582278&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-10 22:50</a>
+今天狐和蝗联动，狐单窗，几天没看推特了是吧
+
+—— 来自 S1Fun</blockquote>
+这样啊，毕竟狐皇和蝗在泥潭差不多一个待遇
+那之后其他成员和蝗联动会发生什么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 179#         楼主| 发表于 2021-3-10 23:30
+
+
+垃圾圆脸<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/10/233048zkk2h353z5f2kkhl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210310_233006.jpg</strong> (487.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-10 23:30 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 180#       发表于 2021-3-10 23:53
+
+
+啊？泥哥的理论我越来越看不懂了。。
+
+狐皇出动浮游炮打啊夸是什么东西<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  魔鬼人阿Q  
+##### 181#       发表于 2021-3-11 00:18
+
+
+好久没看管人了，现在中华浮游炮怎么突然开始打狐皇了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  倒影_  
+##### 182#       发表于 2021-3-11 11:18
+
+
+昨天直播一共加入148名新会员
+永久、暂时或误ban了157人
+有发言的板手仅狐皇一人(不排除有其他板手)
+这么一看狐皇简直杀疯了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hemis  
+##### 183#       发表于 2021-3-11 12:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赚一人钱杀一人，多的9个头才是白上心胸的体现
+
+
+-----
+
+####  Pavlova  
+##### 184#       发表于 2021-3-11 14:47
+
+
+这标题紧跟时事啊
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  狐言乱语  
+##### 185#         楼主| 发表于 2021-3-12 01:31
+
+
+抽卡游戏🐶都不看，另外有没有懂哥来和我细说一下这是怎么回事？
+
+<img src="https://img.saraba1st.com/forum/202103/12/013146htffbj71777j7e1h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>836510563.jpg</strong> (218.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-12 01:31 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 186#       发表于 2021-3-12 01:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50512878&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-4 21:03</a>
+
+老阿姨蹭热度都慢半拍是吧，ut播了快一周才想到去蹭马娘？
+
+
+—— 来自 S1Fun ...</blockquote>
+没事 木口反应慢老传统了。大伙都慢半拍就相当于都准时蹭到了热度。
+
+
+-----
+
+####  vgmd  
+##### 187#       发表于 2021-3-12 07:47
+
+
+ 本帖最后由 vgmd 于 2021-3-12 08:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50595475&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-12 01:31</a>
+抽卡游戏🐶都不看，另外有没有懂哥来和我细说一下这是怎么回事？</blockquote>
+句号换行好多，一般人的文章里不可能有这么多句号换行，我怀疑这是个假人
+179L那篇一个句号都没有，水分最少
+补充：我们科幻组的“变种人收容计划”(略:究极黑凤凰之地狱火重生到异世界冒险无职的我该怎么办计划)最近有很大的进展，像这类有效的识别方法以后会逐步披露，敬请关注
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  vgmd  
+##### 188#       发表于 2021-3-12 10:57
+
+
+ 本帖最后由 vgmd 于 2021-3-12 11:08 编辑 
+
+注意到了吗，句号换行变种人其实早已混入了人类中，一切的恶都是他们引起的
+
+据科幻组的熟人得到的情报，幕后可能和光明会有关，只能说这么多了
+
+<img src="https://img.saraba1st.com/forum/202103/12/105608aztmzj0vb54gjgj2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-03-12 105356.jpg</strong> (38.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-12 10:56 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/12/110810h4e0kv8vmy4nej4l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-03-12 110746.jpg</strong> (5.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-12 11:08 上传
+
+
+-----
+
+####  Day_One  
+##### 189#       发表于 2021-3-12 14:36
+
+
+似乎cover内部情报这块一直都被泥哥捏得死死的，这是咋做到的
+难不成之前天天黑屁的“fw运营我上能做的更好”变成真的了？还是只有我一直不知道泥哥早就打入内部开始敌后作战了
+所谓真杏奴<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">这里的一般阴湿阿宅做得到泥哥的一半吗
+
+
+-----
+
+####  狐言乱语  
+##### 190#         楼主| 发表于 2021-3-12 17:58
+
+
+狐皇，我的狐皇<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/12/175808oov566b3qlq165lv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210312_175749.jpg</strong> (38.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-12 17:58 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  asd225588  
+##### 191#       发表于 2021-3-12 18:38
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  狐言乱语  
+##### 192#         楼主| 发表于 2021-3-12 21:07
+
+
+头号玩家白上吹雪，永不言弃的gamer<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 193#       发表于 2021-3-13 05:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50602974&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-12 17:58</a>
+
+狐皇，我的狐皇</blockquote>
+这活已经烂到了丢v8都没人愿意多看一眼的地步
+
+
+-----
+
+####  狐言乱语  
+##### 194#         楼主| 发表于 2021-3-13 18:32
+
+
+今晚又是工商，话说这模型能有这么垃圾的？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 195#         楼主| 发表于 2021-3-14 12:43
+
+
+关于FBK中之人的说法
+如果我不认识狐狸，你给我介绍一个人，她是狐狸的中之人，我可能不感兴趣，甚至还同意那些嘲笑她的说法。但是呢，我是先知道狐狸再知道她的中之人的，并且狐狸的形象很符合我的审美，非常可爱，喜欢是肯定的。基于此，即使你再怎么说她的中之人不好我也不会认同，因为她是给狐狸配音的人，是赋予了狐狸这一人物形象灵魂的人，我能喜欢狐狸这里面也有她的功劳。你可能会说，人物设定是固定的，换个人去演绎也没什么不同，我不这么认为，每个人的人格不一-样，塑造出来的形象也必定不一样。可以说狐狸的中之人已经是狐狸的一部分，但中之人她本身的形象无关紧要，自作主张地将狐狸和其中之人并列来看是不正确的，用自己带着有色眼镜看到的中之人的形象来去“ 诋毁”狐狸这个形象本身是荒唐可笑、不可理喻的。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 心垂万刃| + 1|好评加鹅|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  昆西昆希昆  
+##### 196#       发表于 2021-3-14 12:57
+
+
+什么 狐宝居然真的是喵喵狐吗？还是V圈原教旨主义者<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 197#       发表于 2021-3-14 13:15
+
+
+这又是从哪里偷的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  毒蛇王维诺米隆  
+##### 198#       发表于 2021-3-14 13:29
+
+
+反串喵喵狐差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  nowaki  
+##### 199#       发表于 2021-3-14 15:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">狐姨这么积极的和星男联动发情，很难和17岁可爱害羞狐娘jk联系到一起啊。
+
+只能联想到30岁大龄未婚女肥肥
+
+
+-----
+
+####  OldGlory  
+##### 200#       发表于 2021-3-14 16:09
+
+
+莫露喵大部分活动轨迹全删，残留下来的档案并不能拼凑出白上吹雪的形象。反过来用虚拟形象反推中之人属于马后炮了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 201#         楼主| 发表于 2021-3-14 18:20
+
+
+这tm是个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/14/182019bzb0aa02urrz01bs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>337401526.jpg</strong> (231.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-14 18:20 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 202#       发表于 2021-3-14 18:39
+
+
+wanted live or dead
+
+
+-----
+
+####  狐言乱语  
+##### 203#         楼主| 发表于 2021-3-15 01:34
+
+
+对冲蝗泥哥的一点看法
+泥哥冲蝗已经从报复性行为演变为转移内部矛盾的方法。
+首先holo对cn能如此傲慢，和字幕组其实脱不了关系，容不得半句批评的全肯定环境是运营联合字幕组一手早就的。原本那几个整共享黑名单的几个组长应该像青叶一样被好好清算，但此时出现了“海的那边的敌人”。某几位人上人借机摇身一变，开直播黑屁谜语几句cover，不仅洗白白还赚了波流量，之后卖holo的同人本还不用担心版权问题，水龙敬都馋哭了。
+其次是泥哥宣传冲蝗的话术。他们喜欢说大话说空话，夸大冲蝗的正当性和重要性，面对质疑靠扣帽子来转移矛盾。不得不说，靠片面报道holo的负面消息来精神胜利，还挺有观网观众的味道，说不准就是同一批人。但无论泥哥做什么，都不能掩饰冲蝗本质是长臂管辖的网暴行为。人都从cn跑路不赚你钱了，追出去咬纯粹是浪费自己精力。这种持续数月，耗费精力财力的网暴 早已脱离了报复的范畴。泥哥将从前对holo的全肯定，转变为对“冲蝗”的全肯定，其长期被诟病的“一言堂”其实没有发生变化。与其期盼holo被铁拳砸，我倒觉得“冲蝗”这样系统性的网暴更可能挨铁拳。
+最后，借着“冲蝗”名头打信者战的傻 逼也有不少，狐皇就是典型的受害者，泥哥首先被自己莫名其妙的阅读理解破防，然后黑屁一个接一个，一点小问题被无限放大。我就不点名蝗楼里的那几个crew了，踩别家捧自家主子的好手。不过“冲蝗盾”在手，黑屁双标什么的都可以被原谅的吧，嘻嘻。
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  Abyssmarionette  
+##### 204#       发表于 2021-3-15 02:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蝗楼天天冲蝗的真的还有字幕组的留着吗，怎么感觉大部分都是以前不看holo后来来的人
+
+
+-----
+
+####  AKili  
+##### 205#       发表于 2021-3-15 08:38
+
+
+蝗楼现状字幕组的人真不少<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bluebaby  
+##### 206#       发表于 2021-3-15 08:45
+
+
+冲蝗楼最傻逼的几个就有原字幕组的，不过总体来讲冲蝗楼和字幕组关系不大，而且现在也和以前的组成也差很多，以前一群各怀鬼胎的粉头混着，现在只剩单纯的想当冲皇粉头的和卖油管号卖二手梯子的了
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  bluebaby  
+##### 207#       发表于 2021-3-15 08:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50627347&amp;ptid=1989968" target="_blank">AKili 发表于 2021-3-15 08:38</a>
+ 蝗楼现状字幕组的人真不少</blockquote>
+字幕组的我看跑了不少了，现在留着的好多连杏的相关知识都不知道
+
+
+-----
+
+####  stedckk  
+##### 208#       发表于 2021-3-15 09:42
+
+
+不喜欢狐皇很正常，但是尼哥楼里面那些莫名其妙的懂哥理论本来就很傻逼，然后还有一堆人借这些理论冲狐，实际上就是借机报私仇而已，跟什么大义根本没关系
+
+
+-----
+
+####  昆西昆希昆  
+##### 209#       发表于 2021-3-15 10:01
+
+
+十月初就有人拿狐皇mc挖钻石耐久回做阅读理解，我去说了嘴“别等19号狐站队龙皇了你们再发病”还被人喷了。你看吧
+
+
+-----
+
+####  Badwoman  
+##### 210#       发表于 2021-3-15 11:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">泥哥楼搞动员的时候抽象到离谱 拿个脚本刷弹幕这点事还要配上几句诗 尬的抓地 
+
+
+
+
+-----
+
+####  Day_One  
+##### 211#       发表于 2021-3-15 13:09
+
+
+并且每次大兴楼力讨伐狐皇的仇恨点就是马车杯车来车去，很难不让人联想到是什么成分<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 212#       发表于 2021-3-15 16:47
+
+
+确实 明明有狐gachi整理了半真半假一大串黑料，非得盯着个马车杯车干什么玩意
+
+
+-----
+
+####  心垂万刃  
+##### 213#       发表于 2021-3-15 17:03
+
+
+很正常，就连pekora现在蝗楼还有几个人大佐大佐的叫，什么成分不用说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 214#         楼主| 发表于 2021-3-15 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50632808&amp;ptid=1989968" target="_blank">心垂万刃 发表于 2021-3-15 17:03</a>
+很正常，就连pekora现在蝗楼还有几个人大佐大佐的叫，什么成分不用说了吧 ...</blockquote>
+大佐叫就算了，泥哥把从业员洗白白是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 215#         楼主| 发表于 2021-3-15 22:16
+
+
+原创曲唱成这样可以入土了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 216#         楼主| 发表于 2021-3-15 22:31
+
+
+すこん部 forever<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 217#         楼主| 发表于 2021-3-16 19:17
+
+
+要用泥哥战胜泥哥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/191616oow5ku7a76svdouo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210316_191517.jpg</strong> (567.1 KB, 下载次数: 1)
+
+下载附件
+
+2021-3-16 19:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/16/191749dygxxv8ovzgy8voj.png" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210316_191727_edit_485197806213464.png</strong> (6.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-16 19:17 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  ylssb10438  
+##### 218#       发表于 2021-3-16 19:20
+
+
+泥哥二创一直很可以的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  好德我基  
+##### 219#       发表于 2021-3-16 20:33
+
+
+不看狐皇跑团还在搬运泥哥？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 220#       发表于 2021-3-16 21:02
+
+
+楼上的可能不知道，狐宝最拿手的就是搬屎，从NGA噼哩噼哩搬到V8，现在是再搬到S1
+最近学会了复制粘贴泥哥的精神胜利法，而且不加出处。不看赢谭的纯良还真不知道是他偷瘾犯了
+
+
+-----
+
+####  狐言乱语  
+##### 221#         楼主| 发表于 2021-3-17 00:20
+
+
+map2还是喜欢睁眼说瞎话啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 222#       发表于 2021-3-17 01:16
+
+
+<img src="https://img.saraba1st.com/forum/202103/17/011058do33nab8m3m9g0gk.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (55.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 01:10 上传
+
+
+复制粘贴泥言不加引用.jpg
+
+<img src="https://img.saraba1st.com/forum/202103/17/011103rvdwti5qwvzxxvww.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (86.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 01:11 上传
+
+
+被抓到后才拿出引文.jpg
+
+<img src="https://img.saraba1st.com/forum/202103/17/011421i9cykezy099ehtl9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FB5D4EB683B0D4675A5A5581C556B3E5.jpg</strong> (103.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-17 01:14 上传
+
+
+最可恶的是欺骗纯良喵喵狐.jpg
+
+
+你说你干的是人事吗？<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 223#       发表于 2021-3-17 04:34
+
+
+偷麻了
+
+
+-----
+
+####  狐言乱语  
+##### 224#         楼主| 发表于 2021-3-17 22:49
+
+
+今日狐皇跑团，无事发生<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  好德我基  
+##### 225#       发表于 2021-3-17 23:41
+
+
+怎么就无事发生了，跑团中出现事故提前下播了，大概要到4月才能跑完这个团。
+
+
+-----
+
+####  Map-2  
+##### 226#       发表于 2021-3-18 00:26
+
+
+无事发生X
+我没看✓
+
+
+-----
+
+####  Pavlova  
+##### 227#       发表于 2021-3-18 13:59
+
+
+狐宝你贴吧号怎么没了，好几个帖子都没备份啊？
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  狐言乱语  
+##### 228#         楼主| 发表于 2021-3-18 15:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50663931&amp;ptid=1989968" target="_blank">Pavlova 发表于 2021-3-18 13:59</a>
+狐宝你贴吧号怎么没了，好几个帖子都没备份啊？
+
+  -- 来自 有消息提醒的 Stage1官方 Android客户端 ...</blockquote>
+转播狐皇被干碎了，反正那号上面有意思的就是开杏组的几篇文章了，没了就没了，反正杏组也没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  nowaki  
+##### 229#       发表于 2021-3-18 16:57
+
+
+这是狐楼还是泥楼啊？
+
+
+-----
+
+####  狐言乱语  
+##### 230#         楼主| 发表于 2021-3-18 21:56
+
+
+草，为什么这直播时间这么阴间啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  好德我基  
+##### 231#       发表于 2021-3-19 02:08
+
+
+<img src="https://p.sda1.dev/1/abc7706a3ab0a51af3d9fc7158978929/IMG_CMP_75811054.jpeg" referrerpolicy="no-referrer">
+狐皇的屁股很受欢迎啊
+
+
+-----
+
+####  好德我基  
+##### 232#       发表于 2021-3-19 17:39
+
+
+晚上同时试听小黄人，狐皇神友说
+
+
+-----
+
+####  狐言乱语  
+##### 233#         楼主| 发表于 2021-3-19 19:01
+
+
+“和整天黑屁狐皇的冲蝗泥哥一起被挂真是太荣幸了”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/19/190139dgdcw7qgcjwsrg7s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210319_190047.jpg</strong> (208.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-19 19:01 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 234#         楼主| 发表于 2021-3-20 16:08
+
+
+今晚笨蛋组联动恐怖游戏，另外现在狐皇在空洞骑士里受苦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 235#       发表于 2021-3-20 17:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50677867&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-19 19:01</a>
+
+“和整天黑屁狐皇的冲蝗泥哥一起被挂真是太荣幸了”</blockquote>
+我还以为又是泥哥犯魔怔了。结果一看是asoul版的，经典看热闹不嫌事大
+
+
+-----
+
+####  狐言乱语  
+##### 236#         楼主| 发表于 2021-3-21 17:55
+
+
+ 本帖最后由 狐言乱语 于 2021-3-21 18:03 编辑 
+
+今晚继续空洞骑士～
+
+syl，原来下午已经播过一次了，阿姨这是上头了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/21/175551xu00lxuxk0q3aprr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210321_175512.jpg</strong> (243.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-21 17:55 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 237#         楼主| 发表于 2021-3-22 01:11
+
+
+谁寄吧写的我和map2的cp文？差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  wiig  
+##### 238#       发表于 2021-3-22 02:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50695644&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-22 01:11</a>
+谁寄吧写的我和map2的cp文？差不多得了
+
+—— 来自 S1Fun</blockquote>
+给点给点
+
+—— 来自 Xiaomi M2006J10C, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  狐言乱语  
+##### 239#         楼主| 发表于 2021-3-22 19:10
+
+
+贴贴捏
+
+<img src="https://img.saraba1st.com/forum/202103/22/191000q0initdettok5kkf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>A06CBD33905658153EDD7489A25C492D.jpg</strong> (64.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 19:10 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 240#       发表于 2021-3-22 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702288&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-22 19:10</a>
+
+贴贴捏</blockquote>
+这下属于是永世不得翻身了捏，狐gachi🌿？
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 241#         楼主| 发表于 2021-3-22 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702299&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-22 19:12</a>
+这下属于是永世不得翻身了捏，狐gachi🌿？</blockquote>
+我只是好奇会不会有人破防<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 242#       发表于 2021-3-22 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702306&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-22 19:12</a>
+
+我只是好奇会不会有人破防
+
+
+—— 来自 S1Fun</blockquote>
+破防应该不会有吧？这样的结局喵喵狐都已经预见到了吧
+
+倒是免费一行人怎么把这段故事包装成屎衣炮弹打出去，我已经有画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 243#         楼主| 发表于 2021-3-22 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702335&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-22 19:15</a>
+破防应该不会有吧？这样的结局喵喵狐都已经预见到了吧
+
+倒是免费一行人怎么把这段故事包装成屎衣炮弹打出 ...</blockquote>
+来点泥哥写的rap<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/22/191909mydnkalcad6a8syy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210322_191846.jpg</strong> (553.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 19:19 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 精灵ama| + 1|debuking|
+
+
+查看全部评分
+
+
+-----
+
+####  Map-2  
+##### 244#       发表于 2021-3-22 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702367&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-22 19:19</a>
+
+来点泥哥写的rap</blockquote>
+创作这么快？这才20分钟不到吧？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 245#         楼主| 发表于 2021-3-22 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702378&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-3-22 19:19</a>
+创作这么快？这才20分钟不到吧？</blockquote>
+以前的屎罢了，我不知道是谁想到直接拿英语rap的中文翻译来填词的这种天才操作的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 246#       发表于 2021-3-22 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50702393&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-22 19:21</a>
+
+以前的屎罢了，我不知道是谁想到直接拿英语rap的中文翻译来填词的这种天才操作的
+
+
+—— 来自 S1Fu ...</blockquote>
+Bon不jour了
+
+
+-----
+
+####  好德我基  
+##### 247#       发表于 2021-3-22 19:36
+
+
+这下🔒了
+
+
+-----
+
+####  狐言乱语  
+##### 248#         楼主| 发表于 2021-3-22 20:46
+
+
+这也太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/22/204526bnhbnfh8k94bid9d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210322_204318.jpg</strong> (342.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-22 20:45 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星の守| + 1|草|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 249#         楼主| 发表于 2021-3-23 17:16
+
+
+今天继续空洞骑士
+
+<img src="https://img.saraba1st.com/forum/202103/23/171531c80n1kq54aqi3d62.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210323_171515.jpg</strong> (486.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 17:15 上传
+
+
+另外这是什么东西？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/23/171621nhkaykok6ocy37qn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210323_171602.jpg</strong> (338.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 17:16 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 250#         楼主| 发表于 2021-3-23 17:17
+
+
+来点烂活
+
+根据holo工作人员透露，从holo退出大陆市场开始，阿夸就一直阴阳怪气其他同事，每次互动的一顿阴阳怪气，对于holo其他人来说是再正常不过了，终于，怒火被点燃了。
+ 在脑死apex被观众大骂后，阿夸在直播时被弹幕喷的怒火中烧，心里暗骂观众都是4000+，但嘴上还是笑嘻嘻。下播后，阿夸怒视着桐生可可——这一切的根源，顺手拿起手里crew刚买给她一个人喝的奶茶扔了过去，当时的可可酱和其他同事再也无法容忍阿夸的所作所为，无法阻止的一幕发生了，其他几人从座椅上腾空而起给了阿夸一个大飞脚，随之而来的便是不管不顾的一顿猛踹，在一旁的fubuki更是拍手叫好，不断大喊：“给我打,给我狠狠的打，让你讽刺我坦克！”
+ “当发生那件事后，阿夸的直播间里多了根木棍，我想他是用来防身的吧。”在这次直播被一堆人点踩后，阿夸正是用这根铁棍报复了桐生可可。下播后在直播间，桐生可可躺在电竞椅上讽刺地说：“apex打的好呀我的阿夸，这场今晚的社内收益最高非你莫属了吧？”阿夸脸色铁青，但也没有说什么，只是默默走出直播间，这不像他欺软怕硬的性格，果然，在阿夸从直播间出来时手里握着根木棍，趁着可可酱没有防备一棍子从头盖骨上敲了下去，桐生可可挨那一下着实不轻，趴在地上痛苦的抬起头才看到打他的人正是阿夸,不等可可酱起身,阿夸又是一顿暴打，可可酱在地上不断翻滚，这时路过直播间兔田大作的看到了这残忍的一幕，顿时怒火中烧，“🐴的，敢打同事？”立马冲回自己直播室，拿着他那根私藏已久的铁棍便向着阿夸休息室跑去，对着正在暴打桐生可可的阿夸头上就是一棍，马自立早已被吓得不敢说话，而在一旁冷眼旁观的戌神沁音，猫又小粥也忍无可忍，一起冲上去跟兔田大作暴打阿夸。这时赤井心路过看到了这一幕，她可不会放过这样报复的好机会:“给我打，狠狠的打，打狗怎么能少的了我？”哈恰马的防身电棍终于派上了用场(据说哈恰马的更衣柜里一直藏着根电棍)，可惜一棍下去阿夸就昏死了过去，在一旁看的正解气的桐生可可怒了，可可酱捂着头在一旁大喊：“这下还怎么打？你滚一边去！”哈恰马也不甘示弱：“你再说一遍？有种你再重复一遍？”桐生可可没有回应什么，pekora也忌惮他手里那根电棍没有说什么……当时的教练yagoo在一旁不断边摇头边说：“疯了，疯了，都已经疯了！”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig|-1|搬屎坏文明|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 251#         楼主| 发表于 2021-3-23 19:46
+
+
+呼叫免费佬，蝗楼人想你了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/23/194620si1l1z96t2qzp69e.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210323_194537.jpg</strong> (612.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 19:46 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/23/194713rfl0vvaofi0z0fib.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210323_194705.jpg</strong> (53.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 19:47 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Hemis  
+##### 252#       发表于 2021-3-23 20:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/23/203804mr4npbova7onhz8o.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (76.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-23 20:38 上传
+
+
+当免费真进来拉屎的时候狐宝又嗤之以鼻，可以搬屎但不许拉屎的原教旨主义者？
+
+
+-----
+
+####  狐言乱语  
+##### 253#         楼主| 发表于 2021-3-24 12:47
+
+
+搬点fanart
+
+<img src="https://img.saraba1st.com/forum/202103/24/124705rz60symgz87006mm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ew5QIs8VEAQKIxX.jpg</strong> (510.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 12:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/24/124705t85y2ljj2j5llles.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ew1oDeNXMAI_IFN.jpg</strong> (416.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 12:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/24/124705kcovjcvrob4qvi5l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ew1zJdPVoAQ1-zP.jpg</strong> (348.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 12:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/24/124706xmzmp63p89k8znnp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EwwoqTdUYAA18yG.jpg</strong> (516.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 12:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/24/124706ykjc1c4tqerk3ehc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ExAGL8GUUAQLCri.jpg</strong> (202.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-24 12:47 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 254#         楼主| 发表于 2021-3-25 13:27
+
+
+什么私联？
+
+<img src="https://img.saraba1st.com/forum/202103/25/132719nt64tz6yn45zuv6c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210325_132543.jpg</strong> (78.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-25 13:27 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|草|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 255#         楼主| 发表于 2021-3-26 08:13
+
+
+两周过去了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/26/081221dqqtetrukrnekq6t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210308_211056.jpg</strong> (135.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-26 08:12 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  倒影_  
+##### 256#       发表于 2021-3-26 09:06
+
+
+wake up
+check internet
+hololive still exists
+day ruined<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 257#         楼主| 发表于 2021-3-26 19:12
+
+
+天涯何处无芳草<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/26/191254r9iw2hjeh8nw9hzz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210326_191040.jpg</strong> (274.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-26 19:12 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/26/191255k79rz9s7aszflfsr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210326_191124.jpg</strong> (420.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-26 19:12 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/26/191255zxoxn21ddmxrnbzm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210326_191146.jpg</strong> (298.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-26 19:12 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| asd225588| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  Map-2  
+##### 258#       发表于 2021-3-26 19:14
+
+
+和ZPLUS🌿的恶堕史有得一拼了。
+
+
+-----
+
+####  OldGlory  
+##### 259#       发表于 2021-3-26 19:53
+
+
+白上吹雪确实害人
+
+
+-----
+
+####  colodes  
+##### 260#       发表于 2021-3-26 20:13
+
+
+ 本帖最后由 colodes 于 2021-3-26 20:22 编辑 
+
+多来点这种故事，宅宅直面现实世界时边缘系统本能的应激反应真的百看不厌 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|那个，应激应该是自主神经系统.|
+
+
+查看全部评分
+
+
+-----
+
+####  Abyssmarionette  
+##### 261#       发表于 2021-3-26 20:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐狸精害人
+
+
+-----
+
+####  Map-2  
+##### 262#       发表于 2021-3-26 21:58
+
+
+你妈妈的，狐宝整天去哪里找这么多管人粉丝语录，24小时冲浪不用工作学习吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 263#       发表于 2021-3-26 22:28
+
+
+みんなも…白上が暴走したら温かく包みこむ器になってね(^・ω・^§)ﾉ
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  colodes  
+##### 264#       发表于 2021-3-26 23:00
+
+
+[@Map-2](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=532227)  自主神经系统由边缘系统控制，前者是功能结构后者是生物结构
+
+
+-----
+
+####  Map-2  
+##### 265#       发表于 2021-3-26 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50744681&amp;ptid=1989968" target="_blank">colodes 发表于 2021-3-26 23:00</a>
+
+@Map-2  自主神经系统由边缘系统控制，前者是功能结构后者是生物结构</blockquote>
+那个，一般而言
+
+应激反应由HPA轴和蓝斑-交感-肾上腺髓质轴共同参与
+
+前者确实有一种说法叫LHPA，即边缘系统-下丘脑-垂体-肾上腺皮质，不过这个轴主要是和内分泌功能有关的，肾上腺皮质分泌的是醛固酮，也就是盐皮质激素，和水盐代谢有关
+
+用高中的知识来解释就是激素参与的反应是缓慢但持久的。
+
+后者，是由蓝斑核为中枢的自主神经系统支配的内脏、血管平滑肌，各种腺体，交感兴奋时表现为心跳加快，血管平滑肌收缩，汗腺分泌分泌增加，这是我们常说的，短期的，能够直接感受到的应激反应。
+
+我印象中关于边缘系统这部分的内容还存在很大的争议，反正我们是不怎么说它的结构功能啥的
+
+
+-----
+
+####  昆西昆希昆  
+##### 266#       发表于 2021-3-27 03:09
+
+
+<blockquote>狐言乱语 发表于 2021-3-26 19:12
+天涯何处无芳草
+
+</blockquote>
+自己的去年今日是吧🤣
+
+
+-----
+
+####  ylssb10438  
+##### 267#       发表于 2021-3-27 09:15
+
+
+虽然但是，这个神秘贴贴对仅存的的mmr喵喵狐伤害应该确实挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 268#         楼主| 发表于 2021-3-27 11:59
+
+
+ 本帖最后由 狐言乱语 于 2021-3-27 16:26 编辑 
+
+今晚wows工商，syl，看错了，是明晚
+
+<img src="https://img.saraba1st.com/forum/202103/27/115847e7i2aawkzhj2773j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ExdBahXVoAAiZM9.jpg</strong> (601.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-27 11:58 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 269#       发表于 2021-3-27 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50747899&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-3-27 11:59</a>
+
+今晚wows工商</blockquote>
+不是联动退款了吗？还能工商？
+
+
+-----
+
+####  AKili  
+##### 270#       发表于 2021-3-27 13:36
+
+
+给你们退款但不代表合作取消阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 271#         楼主| 发表于 2021-3-27 15:01
+
+
+车狐皇时人手突然足了是吧，搁这造复制人呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/27/150053utgbnr1tnl7rblts.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210327_150043.jpg</strong> (406.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-27 15:00 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 272#         楼主| 发表于 2021-3-27 16:47
+
+
+不行了，太寄吧弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/27/164742m9vd9l775vl779zw.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1616834416494.png</strong> (16.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-27 16:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/27/164746yfooojszg88z86lh.png" referrerpolicy="no-referrer">
+
+
+<strong>mmexport1616834418752.png</strong> (115.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-27 16:47 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  stedckk  
+##### 273#       发表于 2021-3-28 00:38
+
+
+<img src="https://img.saraba1st.com/forum/202103/28/003720mxiiwfpiisksp5ui.bmp" id="aimg_784090" inpost="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="showMenu({'ctrlid':this.id,'pos':'12'})" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>$BC@QR[G6CW05}}0H[P7[7T.bmp</strong> (423.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 00:37 上传
+
+
+😅💦
+
+
+-----
+
+####  OldGlory  
+##### 274#       发表于 2021-3-28 02:59
+
+
+ 本帖最后由 OldGlory 于 2021-3-28 03:01 编辑 
+
+把2小时的录播剪成1小时意义何在，剪成10分钟还差不多😅 还剪糊了
+
+
+-----
+
+####  狐言乱语  
+##### 275#         楼主| 发表于 2021-3-28 15:11
+
+
+今晚wows记得来看
+
+<img src="https://img.saraba1st.com/forum/202103/28/151050gdeok7hd0xlcxkn5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210328_150350.jpg</strong> (165.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-28 15:10 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  colodes  
+##### 276#       发表于 2021-3-28 20:08
+
+
+今晚甲级战犯处刑如何
+
+
+-----
+
+####  wiig  
+##### 277#       发表于 2021-3-28 20:58
+
+
+精准TK 士气大振
+
+
+-----
+
+####  狐言乱语  
+##### 278#         楼主| 发表于 2021-3-29 00:33
+
+
+泥哥蹲点狙击狐皇虚无的wows，击沉战舰就算成功。
+我和美少女一起开黑游戏，游戏结束意犹未尽。
+大家都有美好的未来<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 279#       发表于 2021-3-29 00:48
+
+
+特地狙击还行，什么狐gachi
+
+
+-----
+
+####  Pavlova  
+##### 280#       发表于 2021-3-29 12:09
+
+
+这楼标题也太anti了吧
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  狐言乱语  
+##### 281#         楼主| 发表于 2021-3-29 16:10
+
+
+ 本帖最后由 狐言乱语 于 2021-3-29 16:35 编辑 
+
+今晚怪猎加空洞骑士
+syl，发点图
+
+<img src="https://img.saraba1st.com/forum/202103/29/163533t0oorj8vnjivvv6t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ExcSH15VgAIKrWZ.jpg</strong> (240.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 16:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/163533bf6ninkk3itpfrpf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ExOtNjvUUAAVozv.jpg</strong> (124.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 16:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/163533wan3rakfa3qx2bd3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ExeqNWSVoAAx_bp.jpg</strong> (292.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 16:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/163533ey8y0x9m92eu86vu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ExZ6ChqU4AkXZe6.jpg</strong> (308.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 16:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/163533bv0ru4dpvfrcyvtt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ew__4OSUcAM6vWG.jpg</strong> (418.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 16:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202103/29/163534vr131p1ve3e3rvov.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EuamcxuU4AE9oWj.jpg</strong> (243.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-29 16:35 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  十九号大侠  
+##### 282#       发表于 2021-3-29 16:41
+
+
+原来都是陪狐坦玩呀，倪哥也太扭曲了
+
+
+-----
+
+####  OldGlory  
+##### 283#       发表于 2021-3-29 17:04
+
+
+今天是观众参加型怪猎，泥哥来帮忙啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 284#       发表于 2021-3-29 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50769325&amp;ptid=1989968" target="_blank">OldGlory 发表于 2021-3-29 17:04</a>
+
+今天是观众参加型怪猎，泥哥来帮忙啊</blockquote>
+泥哥这不搞几个扩散弹把队友炸飞天？
+
+
+-----
+
+####  狐言乱语  
+##### 285#         楼主| 发表于 2021-3-30 13:18
+
+
+狐皇在西恩还是有热度的啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/30/131815a3zezjs0jgggj807.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210330_125021.jpg</strong> (451.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 13:18 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  holoan  
+##### 286#       发表于 2021-3-30 13:20
+
+
+溢出屏幕的爱意
+
+
+-----
+
+####  狐言乱语  
+##### 287#         楼主| 发表于 2021-3-30 13:22
+
+
+来点狐皇本人的评价<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202103/30/132229x2e2r9e53ie997f3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210330_104016.jpg</strong> (305.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 13:22 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  colodes  
+##### 288#       发表于 2021-3-30 14:56
+
+
+<img src="https://img.saraba1st.com/forum/202103/30/145604paa7a6hqh0zu2ni0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-03-30 145430.jpg</strong> (16.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-3-30 14:56 上传
+
+
+-----
+
+####  狐言乱语  
+##### 289#         楼主| 发表于 2021-3-30 15:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50778684&amp;ptid=1989968" target="_blank">colodes 发表于 2021-3-30 14:56</a></blockquote>
+整天被泥哥黑屁，有梁木也正常<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 290#         楼主| 发表于 2021-3-31 00:41
+
+
+情报组通过一些渠道挖出了一点非常有意思的情报，我搬运一下
+Holo星其实是狐狸的后宫团
+狐皇私下让holo成员和股东搞一些”应酬”，特别是年纪较小的二期生，某二期生被爆出有五个男朋友。一些股东有特殊癖好，偏爱holo坦克团
+狐O不和的根本原因是30+大妈嫉妒O有五个男朋友
+O的fc2视频是狐皇放的
+白上的由来白（人至）上（主义）；白上（动词）
+
+阿夸的s10视频原本不会放出来，是在狐皇的指示下和叔叔谈的（热评已经说了狐皇是holo的商务接洽的公关人员）是嫉妒阿夸在冲国的人气想捧杀阿夸，顺便公款吃香喝辣（开香槟）
+未知KK其实是すこん部反串crew的，目的是点燃天狗和crew的火药桶
+11月21日的事故是桐生会干的，是不是狐皇指示懂得都懂（狐龙てえてえ）
+当晚狐皇乐的睡不着觉（狐了）
+芜狐~ (^ • ω - ^§)ノ🌽
+狐皇是愉悦犯，这也能解释狐皇干的那些烂事
+10月6日其实是狐皇故意跳出来てえてえ的，就是为了愉悦
+芜狐~(^・ω・^§)ﾉ🌽​
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  asd225588  
+##### 291#       发表于 2021-3-31 01:00
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  狐言乱语  
+##### 292#         楼主| 发表于 2021-3-31 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50784864&amp;ptid=1989968" target="_blank">asd225588 发表于 2021-3-31 01:00</a>
+什么时候来4v杏奴窝杀杀杏奴</blockquote>
+那边盒战争太哈人了，不安desu<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  harry3  
+##### 293#       发表于 2021-3-31 12:20
+
+
+[https://www.bilibili.com/video/BV1Jy4y1t7FZ](https://www.bilibili.com/video/BV1Jy4y1t7FZ)
+
+
+泥哥这gachi程度，楼主害怕了没
+
+
+-----
+
+####  狐言乱语  
+##### 294#         楼主| 发表于 2021-3-31 15:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50788242&amp;ptid=1989968" target="_blank">harry3 发表于 2021-3-31 12:20</a>
+https://www.bilibili.com/video/BV1Jy4y1t7FZ
+
+
+泥哥这gachi程度，楼主害怕了没</blockquote>
+https://b23.tv/cUrJwq
+半斤八两吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  colodes  
+##### 295#       发表于 2021-3-31 15:26
+
+
+我悟了，是fbk守护了aqua吗
+
+
+-----
+
+####  狐言乱语  
+##### 296#         楼主| 发表于 2021-4-1 00:40
+
+
+ 本帖最后由 狐言乱语 于 2021-4-1 00:42 编辑 
+
+看了一晚上迪迦，突然意识到今天是月末，急急忙忙打开油管，结果发现没播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，白皮就只看过cjx是吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202104/01/004232kttmtt0iaaz5anzz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210401_004041.jpg</strong> (268.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-1 00:42 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  OldGlory  
+##### 297#       发表于 2021-4-1 00:51
+
+
+这么难得的日子，狐皇能不能少点rp说点大实话<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 298#       发表于 2021-4-1 08:41
+
+
+白皮人均ky小鬼，早该图图了
+
+
+-----
+
+####  OldGlory  
+##### 299#       发表于 2021-4-1 19:15
+
+
+把白皮图图了你狐皇还有几个人看啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 300#         楼主| 发表于 2021-4-2 13:56
+
+
+尊尊尊
+
+<img src="https://img.saraba1st.com/forum/202104/02/135642y9kk9h9akxez4gl9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210402_135321.jpg</strong> (97.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-2 13:56 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  好德我基  
+##### 301#       发表于 2021-4-2 15:25
+
+
+反转了，是船长和35的墓碑
+
+
+-----
+
+####  holoan  
+##### 302#       发表于 2021-4-2 15:28
+
+
+又yygq了，流石箱anti
+
+
+-----
+
+####  好德我基  
+##### 303#       发表于 2021-4-2 16:12
+
+
+让不成熟的后辈摆正自己的地位罢了
+
+为了箱的稳定这是有必要的
+
+
+-----
+
+####  holoan  
+##### 304#       发表于 2021-4-2 16:15
+
+
+真的是后辈吗
+
+
+-----
+
+####  好德我基  
+##### 305#       发表于 2021-4-2 16:42
+
+
+以进holo时间为准
+
+
+-----
+
+####  条野太狼  
+##### 306#       发表于 2021-4-2 19:39
+
+
+好RIP
+
+
+-----
+
+####  OldGlory  
+##### 307#       发表于 2021-4-2 23:50
+
+
+今天鲨皇蹭了个够
+
+
+-----
+
+####  中野六小龄童  
+##### 308#       发表于 2021-4-3 01:43
+
+
+狐酱太好用了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 309#         楼主| 发表于 2021-4-3 13:09
+
+
+台词回，我的台词回<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/03/131003n3coh5cue7dd33ek.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210403_130848.jpg</strong> (469.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-3 13:10 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  中野六小龄童  
+##### 310#       发表于 2021-4-3 17:59
+
+
+狐酱最近天天唱歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+三十号那个歌回放飞自我了 被净化了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 311#       发表于 2021-4-4 19:55
+
+
+狐皇应该给每个花钱听了这么难听的butterfly的人磕头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 312#       发表于 2021-4-4 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50832972&amp;ptid=1989968" target="_blank">OldGlory 发表于 2021-4-4 19:55</a>
+
+狐皇应该给每个花钱听了这么难听的butterfly的人磕头</blockquote>
+白嫖的就不磕头了？我丢失的好心情这块谁给我补啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 313#         楼主| 发表于 2021-4-4 21:03
+
+
+手眼通天了属于是
+
+<img src="https://img.saraba1st.com/forum/202104/04/210335yonrofk1yi08jcjb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210404_210247.jpg</strong> (145.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-4 21:03 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 314#         楼主| 发表于 2021-4-5 02:45
+
+
+无极剑圣是吧
+
+<img src="https://img.saraba1st.com/forum/202104/05/024537yxdk4ii2gcdpwk2l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210405_024310.jpg</strong> (55.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-5 02:45 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  opersuper  
+##### 315#       发表于 2021-4-5 08:54
+
+
+属于是辻斬り泥哥，哈人<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asd225588  
+##### 316#       发表于 2021-4-5 09:13
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  中野六小龄童  
+##### 317#       发表于 2021-4-5 11:12
+
+
+傻逼变声器能不能别用了 听的犯恶心
+
+
+-----
+
+####  狐言乱语  
+##### 318#         楼主| 发表于 2021-4-5 23:34
+
+
+经典一转狐皇
+
+<img src="https://img.saraba1st.com/forum/202104/05/233452loon3hocko8o8k52.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210405_233434.jpg</strong> (399.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-5 23:34 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  飞姆托  
+##### 319#       发表于 2021-4-6 02:22
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  狐言乱语  
+##### 320#         楼主| 发表于 2021-4-6 13:59
+
+
+感觉有点意思？
+
+<img src="https://img.saraba1st.com/forum/202104/06/135852p9pzrj60udp6667u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210406_135828.jpg</strong> (239.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 13:58 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  asd225588  
+##### 321#       发表于 2021-4-6 14:12
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  狐言乱语  
+##### 322#         楼主| 发表于 2021-4-6 14:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50848852&amp;ptid=1989968" target="_blank">asd225588 发表于 2021-4-6 14:12</a>
+机场那是不是A岛肥宅做的吗</blockquote>
+反正我第一次看到就是a岛，关键是那张照片也不是浦东机场啊，明显是cp会场，那天我在现场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且狐皇那天算上鞋子也就三件衣服吧，满身名牌也不知道是哪里来的，也许是酒店的那张？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  空集  
+##### 323#       发表于 2021-4-6 14:50
+
+
+尼哥为了转冲狐理论比冲蝗还魔怔。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Map-2  
+##### 324#       发表于 2021-4-6 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50849230&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-4-6 14:47</a>
+反正我第一次看到就是a岛，关键是那张照片也不是浦东机场啊，明显是cp会场，那天我在现场
+而且狐 ...</blockquote>
+浦东又是什么瓜
+
+
+-----
+
+####  狐言乱语  
+##### 325#         楼主| 发表于 2021-4-6 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50850086&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-4-6 16:02</a>
+浦东又是什么瓜</blockquote>
+泥言泥语罢了
+
+<img src="https://img.saraba1st.com/forum/202104/06/165932t5cgc7r8g7q55713.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210406_010834.jpg</strong> (415.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-6 16:59 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  AKili  
+##### 326#       发表于 2021-4-6 17:03
+
+
+是真的，我就是乙方<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 327#       发表于 2021-4-6 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50850812&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-4-6 16:59</a>
+泥言泥语罢了</blockquote>
+你麻麻的，泥哥想象力这块怎么这么彳亍啊？
+
+
+-----
+
+####  asd225588  
+##### 328#       发表于 2021-4-6 17:40
+
+提示: 作者被禁止或删除 内容自动屏蔽
+
+
+-----
+
+####  IDIDIDID  
+##### 329#       发表于 2021-4-6 17:42
+
+
+尼玛的第一次看🦊楼就看到这种东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 330#       发表于 2021-4-6 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50851386&amp;ptid=1989968" target="_blank">IDIDIDID 发表于 2021-4-6 17:42</a>
+尼玛的第一次看🦊楼就看到这种东西</blockquote>
+既不纯良也不玉米人更没日记<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 331#         楼主| 发表于 2021-4-8 12:19
+
+
+昨天原来都没动过这楼吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202104/08/121910xpupmud51vmzdug2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EySwwzhVoAQ8RZF.jpg</strong> (294.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-8 12:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/08/121910h54oy4s5thrsqeyc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EyGfe0EVgAMeosl.jpg</strong> (419.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-8 12:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/08/121910n8ekjq45en43jjo8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EyXzPQeVIAInF4G.jpg</strong> (322.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-8 12:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/08/121910k0706kvwfpz39zsz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EyCM6faUUAEPdBF.jpg</strong> (386.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-8 12:19 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 332#         楼主| 发表于 2021-4-9 19:37
+
+
+这也太乐了，虽说是墨芸柯的东西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/09/193708nhdln0hwwr0vnfvr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1617967681789.jpg</strong> (430.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 19:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/09/193708r32knpp07adndr7d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1617967684535.jpg</strong> (555.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-9 19:37 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 5战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2|-1|知道你还搬|
+| 獅白ぼたん| + 1|好活|
+| 过不了审|-1|好评加鹅|
+| nowaki| + 1||
+| AKili|-1|不得不说，被恶心到了|
+
+
+查看全部评分
+
+
+-----
+
+####  nowaki  
+##### 333#       发表于 2021-4-9 19:41
+
+
+盛世派smjb
+
+
+-----
+
+####  OldGlory  
+##### 334#       发表于 2021-4-9 19:45
+
+
+狐宝不要搬屎了求求
+
+
+-----
+
+####  OldGlory  
+##### 335#       发表于 2021-4-10 00:15
+
+
+今日は少ししょんぼりする事があったけど
+
+コラボで元気でたので明日もがんばるぞー！！！！！！！
+
+
+╰(＊´︶`＊)╯
+
+
+-----
+
+####  我尊敬的父亲  
+##### 336#       发表于 2021-4-10 00:25
+
+
+就你是盛世派啊 速速爆出粉红矮子黑料
+
+
+-----
+
+####  狐言乱语  
+##### 337#         楼主| 发表于 2021-4-10 12:36
+
+
+贴贴捏
+
+<img src="https://img.saraba1st.com/forum/202104/10/123652cy2yieuetqehtemk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210410_123633.jpg</strong> (171.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-10 12:36 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 338#         楼主| 发表于 2021-4-10 12:38
+
+
+今天有台词回<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Pavlova  
+##### 339#       发表于 2021-4-10 13:29
+
+
+狐宝怎么跟进隔壁跟进的那么快啊。
+现在的版本已经变成大战A友了。
+想到我rp 4v能上来两条大鱼咬钩就觉得好笑。
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  狐言乱语  
+##### 340#         楼主| 发表于 2021-4-10 14:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50893874&amp;ptid=1989968" target="_blank">Pavlova 发表于 2021-4-10 13:29</a>
+狐宝怎么跟进隔壁跟进的那么快啊。
+现在的版本已经变成大战A友了。
+想到我rp 4v能上来两条大鱼咬钩就觉得好 ...</blockquote>
+毕竟冲蝗crew看到喵喵狐和a粉就自动智商减半，杂合体估计直接给他归零了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  好德我基  
+##### 341#       发表于 2021-4-10 16:09
+
+
+一下午吃完甜甜圈吃鸡块，这下肥了
+
+
+-----
+
+####  IDIDIDID  
+##### 342#       发表于 2021-4-10 16:10
+
+
+自己爱吃我不管，可不可不要拿去害阿希<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  好德我基  
+##### 343#       发表于 2021-4-11 01:33
+
+
+剪15分钟的视频思路对了，复兴视频势upup
+
+
+-----
+
+####  中野六小龄童  
+##### 344#       发表于 2021-4-12 13:27
+
+
+asmr回太好了 尤其是25分开始那一段 仿佛高潮前的哀求和高潮后的余韵 让人忍不住来了一发<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 345#         楼主| 发表于 2021-4-12 15:21
+
+
+真有人觉得狐皇的asmr做的好啊，别恶心我<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 346#       发表于 2021-4-12 15:42
+
+
+你们俩打一架吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Pavlova  
+##### 347#       发表于 2021-4-14 01:28
+
+
+虽然不是很想搬垃圾，但是隔壁（三个街区外）好像真有人信了狐皇拿了木口股份
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  中野六小龄童  
+##### 348#       发表于 2021-4-14 09:38
+
+
+狐酱直播不说拟声词时长起码少一半
+
+
+-----
+
+####  狐言乱语  
+##### 349#         楼主| 发表于 2021-4-14 10:17
+
+
+mmr确实好骗，随便p点图就信了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  OldGlory  
+##### 350#       发表于 2021-4-15 11:47
+
+
+罗森内部有玉米人啊
+
+
+-----
+
+####  好人卡收藏家丶  
+##### 351#       发表于 2021-4-15 18:31
+
+
+去年在主楼那边下了一个狐狸叫rar的包，刚翻到结果要密码，你楼有人知道的么
+
+
+-----
+
+####  好德我基  
+##### 352#       发表于 2021-4-15 20:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50948998&amp;ptid=1989968" target="_blank">好人卡收藏家丶 发表于 2021-4-15 18:31</a>
+
+去年在主楼那边下了一个狐狸叫rar的包，刚翻到结果要密码，你楼有人知道的么 ...</blockquote>
+那个是樱庭彩夏的叫 床声吧，配的一般般没什么听的必要。
+
+
+-----
+
+####  OldGlory  
+##### 353#       发表于 2021-4-16 23:59
+
+
+狐皇明天也要发表结婚报告了
+
+
+-----
+
+####  Austaras  
+##### 354#       发表于 2021-4-17 00:06
+
+
+https://controlc.com/b522f7a0
+不知有无火星
+
+
+-----
+
+####  狐言乱语  
+##### 355#         楼主| 发表于 2021-4-17 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50962945&amp;ptid=1989968" target="_blank">Austaras 发表于 2021-4-17 00:06</a>
+https://controlc.com/b522f7a0
+不知有无火星</blockquote>
+狐皇你坏事做尽，把白皮pua成这样了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 356#         楼主| 发表于 2021-4-17 13:00
+
+
+下午有直播捏
+
+<img src="https://img.saraba1st.com/forum/202104/17/130003n3ge2oph2zyq3eof.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210417_125925.jpg</strong> (513.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 13:00 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 357#         楼主| 发表于 2021-4-17 19:06
+
+
+又有人把郁金香计划拿出来反复品味了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+看最后一页就明白是废纸的东西怎么会有人当回事呢？
+
+<img src="https://img.saraba1st.com/forum/202104/17/190618qigod0kp90wzm03g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1618657463169.jpg</strong> (21 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 19:06 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  OldGlory  
+##### 358#       发表于 2021-4-18 20:22
+
+
+あくたんだ！！捕獲だぁ～～～！！！！🦊🦊🦊
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|贴贴🥰🥰|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 359#         楼主| 发表于 2021-4-18 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50978886&amp;ptid=1989968" target="_blank">OldGlory 发表于 2021-4-18 20:22</a>
+あくたんだ！！捕獲だぁ～～～！！！！🦊🦊🦊</blockquote>
+狐皇又来蹭冰清玉洁的大天使了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 360#         楼主| 发表于 2021-4-18 21:15
+
+
+<img src="https://img.saraba1st.com/forum/202104/18/211539fql4zfdjuajee5rd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1544DA7C9F1B1B6C039E81A499233FB7.jpg</strong> (118.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-18 21:15 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 361#         楼主| 发表于 2021-4-19 13:57
+
+
+鉴于本人被蝗楼crew气到脑淤血，外加高二学业压力严重，暂停更新一段时间，特此声明
+
+<img src="https://img.saraba1st.com/forum/202104/19/135745v0rsrg7rg0ks8orc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6A263B036211E0E4BD719F9E6F6CE825.jpg</strong> (11.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 13:57 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  中野六小龄童  
+##### 362#       发表于 2021-4-19 23:39
+
+
+狐酱已经一年没谢过sc了 这样哪有人会给你打钱啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 363#       发表于 2021-4-20 00:50
+
+
+明明两周前刚谢过 不要太贪财了！
+
+
+-----
+
+####  IDIDIDID  
+##### 364#       发表于 2021-4-20 00:52
+
+
+今天小粥那儿化身坐地排卵核地雷很难不是本性解放<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Pavlova  
+##### 365#       发表于 2021-4-20 14:42
+
+
+看了下map-2在吧里的repo贴 这都是个啥啊 怎么还有狐老嗨的
+
+[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Zaphikel  
+##### 366#       发表于 2021-4-20 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50999254&amp;ptid=1989968" target="_blank">Pavlova 发表于 2021-4-20 14:42</a>
+看了下map-2在吧里的repo贴 这都是个啥啊 怎么还有狐老嗨的
+
+  -- 来自 有消息提醒的 Stage1官方 Android客 ...</blockquote>
+“那我就要拿出树佬线下和狐皇说话的故事了，现在的喵喵狐，他没有含金量”<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+详见隔壁meaqua楼
+
+
+-----
+
+####  狐言乱语  
+##### 367#         楼主| 发表于 2021-4-20 15:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50999254&amp;ptid=1989968" target="_blank">Pavlova 发表于 2021-4-20 14:42</a>
+看了下map-2在吧里的repo贴 这都是个啥啊 怎么还有狐老嗨的
+
+  -- 来自 有消息提醒的 Stage1官方 Android客 ...</blockquote>
+自行脑补最终破防变成沙口的crew罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Pavlova  
+##### 368#       发表于 2021-4-20 16:26
+
+
+<img src="https://img.saraba1st.com/forum/202104/20/162535ihchck5hoh22zc6m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>393634FD85C488392CAFC3A0EC4F8AFE.jpg</strong> (37.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 16:25 上传
+
+
+这个图有没有原twi啊 翻了一下没看见
+
+
+-----
+
+####  狐言乱语  
+##### 369#         楼主| 发表于 2021-4-20 17:20
+
+
+无意黑屁图中人物，但这太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/20/172002c6tkguetxvu81ow1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>738F8246769DD9C3B200B516296B3F60.jpg</strong> (186.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-20 17:20 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  中野六小龄童  
+##### 370#       发表于 2021-4-21 13:22
+
+
+为啥谁都能叫她fubu酱 祭酱却没叫过？
+
+
+-----
+
+####  昆西昆希昆  
+##### 371#       发表于 2021-4-21 15:55
+
+
+狐宝还在念书的吗，那看啥狐姨，看书啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 372#         楼主| 发表于 2021-4-21 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51012655&amp;ptid=1989968" target="_blank">昆西昆希昆 发表于 2021-4-21 15:55</a>
+狐宝还在念书的吗，那看啥狐姨，看书啊</blockquote>
+书哪有管人好看？就算进带专也值了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 373#       发表于 2021-4-21 16:49
+
+
+什么管人痴。还是高考要紧，进了带专可能只能自己当管人了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 374#       发表于 2021-4-21 17:17
+
+
+还是DK就便乘玉米人这里建议/remake
+
+
+-----
+
+####  Map-2  
+##### 375#       发表于 2021-4-21 17:27
+
+
+你们还真信他rp了？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 376#         楼主| 发表于 2021-4-21 17:44
+
+
+ 本帖最后由 狐言乱语 于 2021-4-21 17:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51013765&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-4-21 17:27</a>
+你们还真信他rp了？</blockquote>
+？我确实是高中生啊
+
+<img src="https://img.saraba1st.com/forum/202104/21/174429l347do9oz7eijymx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210421_174354.jpg</strong> (364.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-21 17:44 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  认知厨  
+##### 377#       发表于 2021-4-21 19:30
+
+
+我也是十七岁学生，不过我已经辍学进电子厂了
+
+
+-----
+
+####  中野六小龄童  
+##### 378#       发表于 2021-4-21 22:08
+
+
+<img src="https://p.sda1.dev/1/9c79fb9894e5115adad0c059bcbc014b/IMG_CMP_84623173.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Zaphikel  
+##### 379#       发表于 2021-4-22 00:39
+
+
+我怎么记得狐宝是高三高强度刷fk最后还考上了上交密立根学院的高材生？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 380#         楼主| 发表于 2021-4-22 01:40
+
+
+纯属造谣，我今年高二，马上要考生物了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  freeze_Jack  
+##### 381#       发表于 2021-4-22 01:45
+
+
+考生物还行 希望人没事
+
+
+-----
+
+####  林照人  
+##### 382#       发表于 2021-4-22 06:32
+
+
+高二上什么S1 专心读书吧（死马脸）
+
+
+-----
+
+####  林照人  
+##### 383#       发表于 2021-4-22 06:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Pavlova  
+##### 384#       发表于 2021-4-22 08:49
+
+
+狐宝我也是高二学生能不能留个地址我们线下一起去学习？
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  nowaki  
+##### 385#       发表于 2021-4-22 09:00
+
+
+狐宝我也是高二学生能不能留个地址我们线下一起去学习？
+
+
+-----
+
+####  ylssb10438  
+##### 386#       发表于 2021-4-22 09:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdhai  
+##### 387#       发表于 2021-4-22 09:33
+
+
+不要男酮浓度
+
+
+-----
+
+####  狐言乱语  
+##### 388#         楼主| 发表于 2021-4-22 14:48
+
+
+发酒疯直播
+
+<img src="https://img.saraba1st.com/forum/202104/22/144850eg54eli7ele4l1ef.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210422_144746.jpg</strong> (406.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-22 14:48 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 389#       发表于 2021-4-22 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51023538&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-4-22 14:48</a>
+发酒疯直播</blockquote>
+同学，我没记错的话，2:38应该是上课时间吧<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  RiesbyfeAtlasia  
+##### 390#       发表于 2021-4-22 18:40
+
+
+不许人上体育课玩手机？
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 391#         楼主| 发表于 2021-4-22 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51026119&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-4-22 18:23</a>
+同学，我没记错的话，2:38应该是上课时间吧</blockquote>
+看差了十分钟还行，45到55是下课时间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  好德我基  
+##### 392#       发表于 2021-4-22 22:19
+
+
+推特80w了
+
+<img src="https://img.saraba1st.com/forum/202104/22/221918pnkkrkr65drhkap5.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210422221826.png</strong> (27.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-22 22:19 上传
+
+
+-----
+
+####  Map-2  
+##### 393#       发表于 2021-4-23 00:17
+
+
+ 本帖最后由 Map-2 于 2021-4-23 00:19 编辑 
+
+<[img src="https://i.loli.net/2021/04/23/K4DHJjnmt3QVshl.png" referrerpolicy="no-referrer">
+[https://www.pixiv.net/artworks/89326461](https://www.pixiv.net/artworks/89326461)
+
+你楼未成年人自主规避谢谢
+
+
+-----
+
+####  狐言乱语  
+##### 394#         楼主| 发表于 2021-4-23 00:22
+
+
+一般
+
+<img src="https://img.saraba1st.com/forum/202104/23/002220sbdljvuyl9lfdj2s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>88430935_p2.jpg</strong> (1.09 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 00:22 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Pavlova  
+##### 395#       发表于 2021-4-23 01:13
+
+
+一转狐狸诱惑性照片是吧。
+不过u1s1，我对着狐狸一点反应都没有，只是觉得可爱，这是病了吗<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  Map-2  
+##### 396#       发表于 2021-4-23 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51030039&amp;ptid=1989968" target="_blank">Pavlova 发表于 2021-4-23 01:13</a>
+一转狐狸诱惑性照片是吧。
+不过u1s1，我对着狐狸一点反应都没有，只是觉得可爱，这是病了吗</blockquote>
+可以的，比某些14岁就开始搜18R的思想上发育晚了点罢？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdhai  
+##### 397#       发表于 2021-4-23 10:44
+
+
+好狐我色
+
+
+-----
+
+####  梅斯之围  
+##### 398#       发表于 2021-4-23 11:25
+
+
+🥵
+
+
+-----
+
+####  雪风utopia  
+##### 399#       发表于 2021-4-23 11:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 400#       发表于 2021-4-23 12:24
+
+
+比较喜欢稍微有点肉感的，狐狸的人设偏苗条身材偏修长了
+
+
+-----
+
+####  Map-2  
+##### 401#       发表于 2021-4-23 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51033499&amp;ptid=1989968" target="_blank">ylssb10438 发表于 2021-4-23 12:24</a>
+比较喜欢稍微有点肉感的，狐狸的人设偏苗条身材偏修长了</blockquote>
+如何评价《真是拿你没办法》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 402#       发表于 2021-4-23 15:09
+
+
+那就不是稍微了捏<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  认知厨  
+##### 403#       发表于 2021-4-23 16:00
+
+
+好土的海老<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 404#         楼主| 发表于 2021-4-23 16:50
+
+
+不装了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202104/23/165006ediir4p4jvvrbiio.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ACC00D38D5D4D1134C15CACDE42F3A62.jpg</strong> (100.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 16:50 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 精灵ama| + 1|debuki不懂事  anti了|
+| nowaki|-2||
+| Map-2|-1|又开始了？|
+
+
+查看全部评分
+
+
+-----
+
+####  十九号大侠  
+##### 405#       发表于 2021-4-23 16:59
+
+
+这也是引流吗
+
+
+-----
+
+####  ylssb10438  
+##### 406#       发表于 2021-4-23 18:23
+
+
+什么new fashion<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  狐言乱语  
+##### 407#         楼主| 发表于 2021-4-24 00:39
+
+
+今日首笑
+
+<img src="https://img.saraba1st.com/forum/202104/24/003912v24r8dc9r9u5924u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210424_003446.jpg</strong> (160.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-24 00:39 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Pavlova  
+##### 408#       发表于 2021-4-24 01:14
+
+
+羡慕狐宝看到这么多逆天言论第一件事情是保持冷静想到去搬运，<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">我永远血压升高一下然后要么去钓鱼要么直接扣字
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  空集  
+##### 409#       发表于 2021-4-24 01:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐宝只是单纯的巨魔为啥不冷静
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Pavlova  
+##### 410#       发表于 2021-4-24 02:55
+
+
+遭重了 钓上来三个c开头的群体，而且把我一个s1回帖量不如某谭 加起来不足某吧百分之一的用户定性为s1er 钓鱼业障重
+继被定性为4v喵喵狐之后的又一钓鱼力作
+
+[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  狐言乱语  
+##### 411#         楼主| 发表于 2021-4-24 08:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51041674&amp;ptid=1989968" target="_blank">Pavlova 发表于 2021-4-24 02:55</a>
+遭重了 钓上来三个c开头的群体，而且把我一个s1回帖量不如某谭 加起来不足某吧百分之一的用户定性为s1er 钓 ...</blockquote>
+这发言也太寄吧弱智了，他指的是那几篇把《郁金香计划》和p图当做论据然后全篇靠发散的文章吗？那我为什么不去看墨芸柯？
+
+<img src="https://img.saraba1st.com/forum/202104/24/081131grp0m9rt1sttdhag.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210424_080937.jpg</strong> (138.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-24 08:11 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  认知厨  
+##### 412#       发表于 2021-4-24 10:11
+
+
+老子写的怪玲文都有crew来排泄 真你吗恶心
+
+
+-----
+
+####  狐言乱语  
+##### 413#         楼主| 发表于 2021-4-24 13:19
+
+
+有无泥哥转播员？
+
+<img src="https://img.saraba1st.com/forum/202104/24/131903qswq3lh070hzwc0c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>EzTU6dCVEAAZ_QP.jpg</strong> (277.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-24 13:19 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  天悬星河  
+##### 414#       发表于 2021-4-24 17:01
+
+
+ 本帖最后由 天悬星河 于 2021-4-25 08:55 编辑 
+
+买了vr票可以搓狐狸头，好评
+<img src="https://i.loli.net/2021/04/25/7LfFRGUOeE19C8J.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  认知厨  
+##### 415#       发表于 2021-4-24 21:35
+
+
+<img src="https://p.sda1.dev/1/d394e7d1aa70f4b735671e2c181ac928/IMG_CMP_221475244.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Pavlova  
+##### 416#       发表于 2021-4-24 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51048681&amp;ptid=1989968" target="_blank">认知厨 发表于 2021-04-24 21:35:19</a></blockquote>喵喵狐嘉心糖是一家捏~
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  crito  
+##### 417#       发表于 2021-4-25 08:33
+
+
+大天使保佑今天能看到狐夸贴贴，夸门
+
+
+-----
+
+####  昆西昆希昆  
+##### 418#       发表于 2021-4-25 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51036502&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-4-23 16:50</a>
+
+不装了是吧</blockquote>
+V8原创，偷搬必究
+
+
+-----
+
+####  昆西昆希昆  
+##### 419#       发表于 2021-4-25 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51031484&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-4-23 09:36</a>
+
+可以的，比某些14岁就开始搜18R的思想上发育晚了点罢？</blockquote>
+这就要讲讲我14岁看的第一个本子花食虫的含金量了。
+
+现在这些色图根本没有含金量啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|😅👆🏻重开级含金量|
+
+
+查看全部评分
+
+
+-----
+
+####  狐言乱语  
+##### 420#         楼主| 发表于 2021-4-25 21:07
+
+
+<img src="https://img.saraba1st.com/forum/202104/25/210737ylkak6zkelpea006.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210425_210533.jpg</strong> (1014.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-25 21:07 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|可恶，慢了一步|
+
+
+查看全部评分
+
+
+
+
+-----
+
+####  Map-2  
+##### 421#       发表于 2021-4-25 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51060416&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-4-25 21:07</a>
+—— 来自 S1Fun</blockquote>
+是你P的吗？下面那张图私我<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 422#       发表于 2021-4-25 22:53
+
+
+ 本帖最后由 Map-2 于 2021-4-25 23:02 编辑 
+
+风怒
+
+
+-----
+
+####  Map-2  
+##### 423#       发表于 2021-4-25 23:02
+
+
+超级风怒
+
+
+-----
+
+####  狐言乱语  
+##### 424#         楼主| 发表于 2021-4-26 01:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51061554&amp;ptid=1989968" target="_blank">Map-2 发表于 2021-4-25 22:53</a>
+是你P的吗？下面那张图私我</blockquote>
+
+
+<img src="https://img.saraba1st.com/forum/202104/26/010827f22ft0bbmz2mmz2w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>13E3364F5A6C2EAE01CF3F5FD976B69D.jpg</strong> (80.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-26 01:08 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|你麻麻的，就你会搞P图这种玩意了😅.|
+
+
+查看全部评分
+
+
+-----
+
+####  凛子也想要五个  
+##### 425#       发表于 2021-4-26 12:45
+
+
+<img src="https://img.saraba1st.com/forum/202104/26/124527fkrqhvuswgz3ibgb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-4289dd4e4fa1d7f0.jpg</strong> (118.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-26 12:45 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 426#         楼主| 发表于 2021-4-26 16:24
+
+
+乐了
+
+<img src="https://img.saraba1st.com/forum/202104/26/162431zjbdjk0mnrv1nmxa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210426_162339.jpg</strong> (416.58 KB, 下载次数: 1)
+
+下载附件
+
+2021-4-26 16:24 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  takitaki  
+##### 427#       发表于 2021-4-26 19:35
+
+
+为什么没人冲油管，上位の国油管不用分个大锅吗
+
+
+-----
+
+####  OldGlory  
+##### 428#       发表于 2021-4-27 18:40
+
+
+又阿迪又耐克的，这下乳大了
+
+
+-----
+
+####  昆西昆希昆  
+##### 429#       发表于 2021-4-28 13:34
+
+
+<blockquote>takitaki 发表于 2021-4-26 19:35
+为什么没人冲油管，上位の国油管不用分个大锅吗</blockquote>
+你好，有的
+
+
+<img src="https://img.saraba1st.com/forum/202104/28/133425n55f045bzv0f6vbu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210428_132941_gov.pianzong.androidnga.jpg</strong> (250.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 13:34 上传
+
+
+-----
+
+####  takitaki  
+##### 430#       发表于 2021-4-28 13:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51087871&amp;ptid=1989968" target="_blank">昆西昆希昆 发表于 2021-4-28 13:34</a>
+
+你好，有的</blockquote>
+是我孤陋寡闻了，顺便问一下，在冲油管方面他们做了什么。
+
+
+-----
+
+####  asdhai  
+##### 431#       发表于 2021-4-28 13:50
+
+
+精神上冲了，怎么地？
+
+
+-----
+
+####  狐言乱语  
+##### 432#         楼主| 发表于 2021-4-28 15:21
+
+
+今晚有歌回
+
+<img src="https://img.saraba1st.com/forum/202104/28/152047c8cfz46gtd1tyqf6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210428_151823.jpg</strong> (193.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 15:20 上传
+
+
+顺便转点fanart
+
+<img src="https://img.saraba1st.com/forum/202104/28/152107fzie97a5i9oixagx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0APQo0WUAYKIfJ.jpg</strong> (262.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 15:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/28/152107xuf3fnee1wnzr0fq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ez_dEtiUYAciXjL.jpg</strong> (313.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 15:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/28/152107vcob9tpnnfv0v9iq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ez_Y0Z1VIAMc86Y.jpg</strong> (392.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 15:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/28/152107yae07xzyya49zxe1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Ez-ArlMVUAQuvcg.jpg</strong> (97.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 15:21 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 433#         楼主| 发表于 2021-4-28 15:22
+
+
+另外这沙口原来打了fanart的tag啊，今天逛tag才发现，之前都没注意
+
+<img src="https://img.saraba1st.com/forum/202104/28/152245ekb9exxjrjkf989s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210428_151923.jpg</strong> (458.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-28 15:22 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Map-2  
+##### 434#       发表于 2021-4-28 16:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51088900&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-4-28 15:21</a>
+今晚有歌回
+
+顺便转点fanart</blockquote>
+我要看你画的
+
+
+-----
+
+####  中野六小龄童  
+##### 435#       发表于 2021-4-29 09:53
+
+
+唱的什么垃圾
+
+
+-----
+
+####  狐言乱语  
+##### 436#         楼主| 发表于 2021-4-29 21:58
+
+
+和crew说话属实让人脑溢血
+
+<img src="https://img.saraba1st.com/forum/202104/29/215826be7ef828fa2ybfaf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210429_172118.jpg</strong> (186.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 21:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/29/215826jznjkxlcmyt9vbbn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210429_215210.jpg</strong> (174.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 21:58 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  vgmd  
+##### 437#       发表于 2021-4-29 23:01
+
+
+不要错过了哦
+
+<img src="https://img.saraba1st.com/forum/202104/29/230052gfacdn6v6sunt84s.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-04-29 225947.png</strong> (104.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 23:00 上传
+
+
+-----
+
+####  昆西昆希昆  
+##### 438#       发表于 2021-4-30 00:59
+
+
+crew出击！
+
+
+-----
+
+####  昆西昆希昆  
+##### 439#       发表于 2021-4-30 01:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51103786&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-4-29 21:58</a>
+
+和crew说话属实让人脑溢血</blockquote>
+现在是可以不理甚至直接删sc，但当时二流破箱还真没那么大的脸无视红sc吧
+
+
+-----
+
+####  昆西昆希昆  
+##### 440#       发表于 2021-4-30 01:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51103786&amp;ptid=1989968" target="_blank">狐言乱语 发表于 2021-4-29 21:58</a>
+
+和crew说话属实让人脑溢血</blockquote>
+现在是可以不理甚至直接删sc，但当时二流破箱还真没那么大的脸无视红sc吧
+
+
+-----
+
+####  狐言乱语  
+##### 441#         楼主| 发表于 2021-4-30 01:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51105320&amp;ptid=1989968" target="_blank">昆西昆希昆 发表于 2021-4-30 01:00</a>
+现在是可以不理甚至直接删sc，但当时二流破箱还真没那么大的脸无视红sc吧 ...</blockquote>
+你不懂crew的逻辑，他就是要论证白上吹雪迫害希小姐
+
+<img src="https://img.saraba1st.com/forum/202104/30/014909f1eg54g50d9w05vs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210430_014903.jpg</strong> (174.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 01:49 上传
+
+
+反正这动机我只能说是**到不能再**了，睁着眼睛说瞎话，crew摆明了想借祭丝的刀去杀狐
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 442#       发表于 2021-4-30 02:03
+
+
+ 本帖最后由 昆西昆希昆 于 2021-4-30 02:07 编辑 
+
+其实图中这位crew也是个祭丝。说白了现在holo就是店大欺客，“你不打红sc自然有别人会打，你算个什么东西。”
+
+能天天随便播播就能数据这么好看，谁还愿意花心思筹备各种企划呢，现在一二期生就突出一个摆烂
+
+
+-----
+
+####  狐言乱语  
+##### 443#         楼主| 发表于 2021-4-30 02:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51105661&amp;ptid=1989968" target="_blank">昆西昆希昆 发表于 2021-4-30 02:03</a>
+其实图中这位crew也是个祭丝。说白了现在holo就是店大欺客，“你不打红sc自然有别人会打，你算个什么东西。 ...</blockquote>
+这个吃瓜希，我也见到好多次了，以前是鸵鸟mmr，破防后有点魔怔了。喜欢在这个山田赫敏的黑屁文下面yygq狐，本身这个山田赫敏就是春秋笔法和创造历史的好手，我不明白这吃瓜希究竟是真糊涂还是装的，一个老杏仁居然会信这种东西。今天他这个强加罪名我觉得过于离谱了，真就把v当做圣人
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 444#       发表于 2021-4-30 03:08
+
+
+vtuber观众确实容易魔怔
+
+
+-----
+
+####  狐言乱语  
+##### 445#         楼主| 发表于 2021-4-30 13:45
+
+
+拿中国台湾省人民的苦难当玩笑是吧，铁fh了属于是
+
+<img src="https://img.saraba1st.com/forum/202104/30/134459e8z8paxz8poc8oz5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210430_134233.jpg</strong> (224.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 13:44 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  昆西昆希昆  
+##### 446#       发表于 2021-4-30 14:10
+
+
+菠萝晓狐是吧
+
+
+-----
+
+####  狐言乱语  
+##### 447#         楼主| 发表于 2021-4-30 18:11
+
+
+crew装泥🐴的理客中呢，见过夹私货的没见过半篇都是私货的。“白上吹雪负责商务接洽”这点能给出出处吗？
+
+<img src="https://img.saraba1st.com/forum/202104/30/180953zswsjq51z1diwuqq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210430_180911.jpg</strong> (328.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:09 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 448#         楼主| 发表于 2021-4-30 18:16
+
+
+昨天还说夏色祭单独通知白上吹雪，被我打脸了，今天就换成同社成员了是吧。
+山田赫敏这司马crew还是好好滚回去看自家阿夸，云都云不明白就别来“科普”了
+
+<img src="https://img.saraba1st.com/forum/202104/30/181536wddd7hg6f27bfnhd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210430_181500.jpg</strong> (230.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/181536lpzxb9hlmjmc8j9j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210430_181529.jpg</strong> (201.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:15 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  狐言乱语  
+##### 449#         楼主| 发表于 2021-4-30 18:20
+
+
+还有典中之典拿p图当论据，就这智商我合理怀疑这文章里能有多少道听途说得来的东西。
+
+<img src="https://img.saraba1st.com/forum/202104/30/182033re99s98weo6sbznr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210430_181911.jpg</strong> (380.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:20 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  vgmd  
+##### 450#       发表于 2021-4-30 18:32
+
+
+ 本帖最后由 vgmd 于 2021-4-30 18:33 编辑 
+
+我帮你找了直播录像，你能不能repo下狐夸的宝可梦大赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  狐言乱语  
+##### 451#         楼主| 发表于 2021-4-30 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51112526&amp;ptid=1989968" target="_blank">vgmd 发表于 2021-4-30 18:32</a>
+我帮你找了直播录像，你能不能repo下狐夸的宝可梦大赛</blockquote>
+那就尴尬了，我没记得今天还有nico直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                  
