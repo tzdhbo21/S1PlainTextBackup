@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-23 15:48** 
+> ## **本文件最后更新于2021-04-30 09:43** 
 
 
 
@@ -6891,4 +6891,341 @@ mhr太香了古战场又放置了
 不要为难猴子啊，突破界面一次全选突破素材的功能现在还没上呢，做事总得一件一件做不是<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
 
 
-                              
+-----
+
+####  拔丝光头  
+##### 15572#       发表于 2021-4-24 15:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51019882&amp;ptid=1158205" target="_blank">syndrome2032 发表于 2021-4-22 09:43</a>
+
+这个星晶兑换怎么还是只能50个一拉。不能一次还完一个月的480限额吗。</blockquote>
+这个直接F12审查元素就能把50的限制改没，日本程序员 很强大吧<img src="https://static.saraba1st.com/image/smiley/carton2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  eyeego  
+##### 15573#       发表于 2021-4-24 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51045605&amp;ptid=1158205" target="_blank">拔丝光头 发表于 2021-4-24 15:50</a>
+这个直接F12审查元素就能把50的限制改没，日本程序员 很强大吧</blockquote>
+然后被打上了淫纹<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  苍月·蓝  
+##### 15574#       发表于 2021-4-25 12:54
+
+
+用修改名字上限也没事 大概没问题？？ww
+
+
+-----
+
+####  poor  
+##### 15575#       发表于 2021-4-28 23:23
+
+
+突然想起陈年老井该下了
+泳猴羊bilibili，欧根诺亚，还是猪枪+1？
+有意走土老王，猪枪出以后火老王也有兴趣，不过最近可能又要摸了（毕竟天人终终凸、贤者领域都不是给咸鱼玩的内容，其它也没什么好做的），不一定那么快砸
+
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  武の炽羽  
+##### 15576#       发表于 2021-4-29 07:18
+
+
+玩土老王AK重要程度和嫂子斧一样，都是仅次于该隐刀，欧根估计最近也要终突了，我觉得不亏吧
+
+
+-----
+
+####  syndrome2032  
+##### 15577#       发表于 2021-4-30 11:08
+
+
+nbnb，sub石老王加护量。
+
+kmr还是你高。
+
+
+-----
+
+####  sodah  
+##### 15578#       发表于 2021-4-30 11:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">满凸20%，恶心人有一手。
+
+
+-----
+
+####  404489039  
+##### 15579#       发表于 2021-4-30 11:12
+
+
+老王终终秃效果才成sub石。老王能超得
+估计块开jgj礼包吧
+卖jgj赚钱<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  peh  
+##### 15580#       发表于 2021-4-30 11:17
+
+
+环境又要大变了
+
+减半都不想玩，还不如mhr
+
+
+-----
+
+####  Niu  
+##### 15581#       发表于 2021-4-30 11:29
+
+
+免費抽到火龍了 我人驚呆了
+
+
+-----
+
+####  木原唯一  
+##### 15582#       发表于 2021-4-30 11:48
+
+
+商业天才，绝了
+
+
+-----
+
+####  colamitsuyo  
+##### 15583#       发表于 2021-4-30 11:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">四属方阵人是时候弃坑去养马了吗
+
+
+-----
+
+####  sodah  
+##### 15584#       发表于 2021-4-30 11:51
+
+
+保守数值控制膨胀 X
+
+拆开卖赚钱 √
+
+
+-----
+
+####  是这样  
+##### 15585#       发表于 2021-4-30 11:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">这六龙石头，真有你的啊kmr
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  leafS  
+##### 15586#       发表于 2021-4-30 11:56
+
+
+风mao这性能好哈人，能打败土mao的只有我自己<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  cowgp01  
+##### 15587#       发表于 2021-4-30 11:59
+
+
+很厉害啊，不过我风盘很烂就当性欲抽抽吧
+
+
+-----
+
+####  MARBLE  
+##### 15588#       发表于 2021-4-30 12:17
+
+
+这mao真的是环境摧毁器
+
+
+-----
+
+####  欠陷制品  
+##### 15589#       发表于 2021-4-30 12:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这游戏蜜月期早结束了，老玩家看这两年的吃相怕不是直接进行一个提桶跑路
+
+
+-----
+
+####  c029384756  
+##### 15590#       发表于 2021-4-30 13:15
+
+
+这是kmr要跑路了最后捞一笔？这风mao也太过分了吧
+
+4/5的100追，二动，被动必ta防驱散暴击天司10追，回合斩，5t一次全体援护+50反射？？？
+
+更别提风还有泳裁缝，一键50上限+二动，这风mao给10分的话其他角色还配10分吗……
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15591#       发表于 2021-4-30 13:18
+
+
+风mao剧情有爹妈的立绘
+
+又多了一个妈妈
+
+
+-----
+
+####  dlboy2000  
+##### 15592#       发表于 2021-4-30 13:44
+
+
+老玩家得看多老，最早一批能坚持到现在的也不在乎最近这些事
+
+
+-----
+
+####  windhawind2  
+##### 15593#       发表于 2021-4-30 15:24
+
+
+老玩家跑路？这游戏的沉没成本多高又不是不知道 水团开始前1104那波 我团里人都这什么压榨游戏时间的辣鸡 水团一看还不是一堆1104的作业（我就不一样了 1104宣布的那天就去刷星本了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 再看历次团战人数和团战线 内卷的是越来越严重 莫非这游戏新人很多吗？我看四字母就是抓着老玩家吸血吸到死了
+
+
+-----
+
+####  poor  
+##### 15594#       发表于 2021-4-30 15:56
+
+
+你游回坑还是挺简单的，跑就跑了，无聊再回来呗，刷完这次20箱我就准备第二次跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过我也不是最老那批玩家，大概也没什么代表性吧
+
+
+-----
+
+####  leafS  
+##### 15595#       发表于 2021-4-30 16:01
+
+
+每次看到什么弃坑跑路的我就觉得古战场我是不是在跟阴兵对线，虽然我挺咸鱼的吧这次水团就打了20多箱，贡献也就几亿，但是个排在20多万名。想想这样的玩家前面都有20多万我是真觉得这游戏能苟到12神将出齐
+
+—— 来自 Xiaomi Redmi Note 8, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  windlikeman  
+##### 15596#       发表于 2021-4-30 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51109523&amp;ptid=1158205" target="_blank">c029384756 发表于 2021-4-30 13:15</a>
+
+这是kmr要跑路了最后捞一笔？这风mao也太过分了吧
+
+4/5的100追，二动，被动必ta防驱散暴击天司10追，回合斩 ...</blockquote>
+新时代来了而已
+
+当初普盾出来一群人也怀疑角色这么强是不是要捞一笔跑路 现在普盾已经变成笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  404489039  
+##### 15597#       发表于 2021-4-30 16:18
+
+
+其实角色强没所谓。
+六龙这把终终秃老王拆开来卖才是最恶心
+
+
+-----
+
+####  FrozenA  
+##### 15598#       发表于 2021-4-30 16:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">对gbf的夙愿就是
+
+看fkhr做十个150天人
+
+游戏制作人不会不玩自己做的游戏吧不会吧不会吧（确实不玩
+
+
+-----
+
+####  404489039  
+##### 15599#       发表于 2021-4-30 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51111358&amp;ptid=1158205" target="_blank">FrozenA 发表于 2021-4-30 16:22</a>
+对gbf的夙愿就是
+
+看fkhr做十个150天人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">fkhr会后台调你能吗
+
+
+-----
+
+####  peh  
+##### 15600#       发表于 2021-4-30 16:32
+
+
+确实，限定整这么破格，感觉有几个天人的超限就跟笑话一样
+
+
+
+
+-----
+
+####  FrozenA  
+##### 15601#       发表于 2021-4-30 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51111437&amp;ptid=1158205" target="_blank">404489039 发表于 2021-4-30 16:30</a>
+fkhr会后台调你能吗</blockquote>
+对啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥他要调而不是自己打呢
+
+肯定是因为他自己都觉得傻逼吧
+
+反正我不打
+
+
+-----
+
+####  里村紅葉  
+##### 15602#       发表于 2021-4-30 17:32
+
+
+想拉营收怎么不把天井也降到200抽<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                             
