@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-29 13:57** 
+> ## **本文件最后更新于2021-04-30 10:51** 
 
 
 
@@ -4484,4 +4484,523 @@ teresa昨晚的推特直播，中英日各唱了一首
 叶那个血压麻将竟然有胆参加团队战，不要战犯拖后腿啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
-                                      
+-----
+
+####  winda  
+##### 332#       发表于 2021-4-29 22:00
+
+
+ 本帖最后由 winda 于 2021-4-29 22:04 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">最后的gongon,偶像部正式完结了
+
+
+-----
+
+####  空集  
+##### 333#       发表于 2021-4-29 22:29
+
+
+竹书房连载 这是sio的遗志么
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rzrbtk  
+##### 334#       发表于 2021-4-29 22:29
+
+
+郡道美玲漫画连载！
+郡已经开始哭了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 335#       发表于 2021-4-29 22:32
+
+
+ 本帖最后由 FCCHua 于 2021-4-29 22:33 编辑 
+
+老师这边居然是漫画连载<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+爱丽丝那边新衣服确实成熟<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 336#       发表于 2021-4-29 22:53
+
+
+以粉丝角度看就是郡道追梦成功，能跟打麻初心齐藤跨次元联动，上连载，而且画风看着还不错，很棒，
+从郡p角度看就是再次看出悠星是亲爹，运营也没亏待，起码半年内跑不了，而且郡道现在这么激推齐藤郡道，一贯的cp厨过敏估计也有救了，没什么比低人气纸片男友更好处理的了，也不错。
+爽啦
+
+
+-----
+
+####  noHentai  
+##### 337#       发表于 2021-4-29 23:09
+
+
+又推个炎上专业选手，这漫画不打算稳定连载是8<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 338#       发表于 2021-4-29 23:40
+
+
+补个 #にじさんじ花鳥風月戦 分组
+
+<img src="https://img.saraba1st.com/forum/202104/29/231726eyxoysoavf2p8y8o.png" referrerpolicy="no-referrer">
+
+
+<strong>#にじさんじ花鳥風月戦.png</strong> (472.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 23:17 上传
+
+
+Syl，[ハピトリ的歌](https://www.youtube.com/watch?v=UA8vzvYiIyo&amp;list=PLXuGkVLvpfdpcSKTh6BTjqcy3rTOVCoY8&amp;index=2)，非常有默契（的跑调）...但唱了作为观众就很开心了，更何况还是wowaka<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 看推上说提前透了刀也没出过的衣装？
+
+
+<img src="https://img.saraba1st.com/forum/202104/29/232834ycc4ghyc2m0iqzjf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>(恋は)百年戦争_葉加瀬冬雪.jpg</strong> (187.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-29 23:28 上传
+
+
+Zsyl，葉加瀬的remix版[(恋は)百年戦争](https://www.youtube.com/watch?v=Bc-4BLlvThg&amp;list=PLXuGkVLvpfdpcSKTh6BTjqcy3rTOVCoY8&amp;index=1)还挺好听的
+
+Zzsyl，小蜜蜂中人号发了原创曲「[シーサイド](https://www.youtube.com/watch?v=OnzjZ5h7F8g)」，看概要栏的蛙目書店，这首歌应该算是梅丽莎金莲花x弦月藤士郎<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+Zzzsyl，4/27起，翔哥的原创曲上架了各大音乐平台，算是圆梦的一部分了，国内部分QQ音乐酷狗酷我网易云都可以看到
+
+
+-----
+
+####  Vneet  
+##### 339#       发表于 2021-4-30 09:58
+
+
+sio没了之后，感觉就是vtuer麻将的戏份简单粗暴地全换成郡道。
+
+
+-----
+
+####  喜闻乐见  
+##### 340#       发表于 2021-4-30 11:17
+
+
+alice那边激光都有的没排上号 tql
+
+
+-----
+
+####  IDIDIDID  
+##### 341#       发表于 2021-4-30 11:22
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-30 11:52 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/112229beb2x6xddl0ee1yl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210430-112146.jpg</strong> (150.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 11:22 上传
+
+
+[https://twitter.com/riku_tazumi/status/1387969081467277314](https://twitter.com/riku_tazumi/status/1387969081467277314)
+
+
+SYL
+
+田角不选择直接关企划而是让iwa MBO出去，真兄弟啊。
+
+
+ZSYL：
+
+火 影 忍 者
+
+<img src="https://img.saraba1st.com/forum/202104/30/112642f3nu6gd8u8bdwmbv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>d30865-262-619948-0.jpg</strong> (38.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 11:26 上传
+
+
+<blockquote>■当社代表取締役　田角陸のコメント
+
+「当社創業以来、岩永さんとは苦楽を共にする仲間として伴走してきました。改めて振り返ると、些細なことで口論になったり笑い合ったりと様々な記憶が思い出されます。
+
+今回の取引実施により、岩永さんと別々の道を進むことには寂しい思いもあります。そして所属タレントの皆様、ファンの皆様、お取引先の皆様、従業員の皆様には少なからず混乱を招いてしまう意思決定であるとも考えております。
+
+それでも、MBOを実施し独立することによって「SLEE」はより機動性の高い意思決定が可能になり、岩永さんの独創性を活かして大きく成長していくものと信じ、取引実施を決定いたしました。岩永さん率いる新生「SLEE」の応援をよろしくお願いします。
+
+そして、岩永さんのエンタメ領域での更なる活躍を期待しております。」
+
+
+■株式会社yokaze代表取締役　岩永太貴氏のコメント
+
+「いちからでは、にじさんじの立ち上げ・運営、ユメノグラフィアの立ち上げ、そして今回MBOをすることとなりましたSLEEの立ち上げ・運営と、沢山の貴重な経験をさせていただきました。一緒にお仕事をさせていただいた、いちからの従業員並びに所属タレントの皆様、クライアントの皆様、そしてコンテンツを楽しみ応援していただいたユーザーの皆様には大変感謝しております。
+
+この度、SLEE事業を運営するにおいて、より機動性の高い意思決定が必要と考え、いちからと協議の上、MBOさせていただくこととなりました。いちからでのこれまでの経験を活かし、引き続きエンターテイメント業界を盛り上げていければと考えておりますので、応援のほどよろしくお願いいたします。」
+</blockquote>
+ZZSYL：
+
+田角小废物清理进度：IN寄了、SLEE寄了，下一个谁啊。
+
+
+-----
+
+####  hulaoda007  
+##### 342#       发表于 2021-4-30 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51108395&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-4-30 11:22</a></blockquote>
+  <img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">田角和iwaiwa闹翻了？
+
+
+-----
+
+####  rzrbtk  
+##### 343#       发表于 2021-4-30 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51107367&amp;ptid=1972669" target="_blank">Vneet 发表于 2021-4-30 09:58</a>
+sio没了之后，感觉就是vtuer麻将的戏份简单粗暴地全换成郡道。</blockquote>
+那倒不至于，最重要的雀魂代表从siosio换成别人而不是郡就…郡道与其说喜欢麻将不如说喜欢齐藤，在能力上跟siosio没法比，悠星又不是傻的，不会让她替那些重要的啦<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 344#       发表于 2021-4-30 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51108439&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-4-30 11:25</a>
+
+田角和iwaiwa闹翻了？</blockquote>
+恰恰相反，好兄弟才会给条生路自己玩。闹翻直接砍企划了。
+
+
+-----
+
+####  hulaoda007  
+##### 345#       发表于 2021-4-30 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51108395&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-4-30 11:22</a>
+田角不选择直接关企划而是让iwa MBO出去，真兄弟啊。
+
+
+SYL：</blockquote>
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看错了，看成田角把iwaiwa赶出ichikara。
+
+
+-----
+
+####  rzrbtk  
+##### 346#       发表于 2021-4-30 11:33
+
+
+一晃眼以为田角画眼线了…
+所以当初搞出slee到底是为何啦，满足iwaiwa的偶像梦？
+
+
+-----
+
+####  hulaoda007  
+##### 347#       发表于 2021-4-30 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51108477&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-4-30 11:29</a>
+恰恰相反，好兄弟才会给条生路自己玩。闹翻直接砍企划了。</blockquote>
+    <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谢谢告知...我还以为是之前那个偶像企划没搞好，加上田角和iwaiwa理念不同，最后闹掰了，田角还阴阳怪气一番。
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">感觉对不起田角。
+
+
+-----
+
+####  IDIDIDID  
+##### 348#       发表于 2021-4-30 11:41
+
+
+ickr失去了它的暗部，佐助走了之后虹an该开香槟了
+
+
+-----
+
+####  OldGlory  
+##### 349#       发表于 2021-4-30 12:11
+
+
+业务都拆了，以后同接十几的底中底不要想着蹭我们彩虹了，iwaiwa也是惨，就这么一脚被踢出公司。
+
+
+-----
+
+####  FCCHua  
+##### 350#       发表于 2021-4-30 12:16
+
+
+这有啥惨的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 351#       发表于 2021-4-30 13:02
+
+
+和底边有个毛关系<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">差不多得了
+
+
+-----
+
+####  Suny08  
+##### 352#       发表于 2021-4-30 14:46
+
+
+Iwaiwa 要开始二次创业了么，还挺佩服的
+
+
+-----
+
+####  某穆克拉  
+##### 353#       发表于 2021-4-30 16:15
+
+
+叛忍没有新衣服呜呜呜呜呜
+
+
+-----
+
+####  poipanchao  
+##### 354#       发表于 2021-4-30 16:17
+
+
+bora selly towa
+又感觉挺强的……
+
+
+-----
+
+####  asdhai  
+##### 355#       发表于 2021-4-30 16:21
+
+
+月骑士震怒
+
+
+-----
+
+####  SuntoryNomu  
+##### 356#       发表于 2021-4-30 17:43
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/174324bbqx8u4pq1uq1vux.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NPecEVoAUFSDE.jpg</strong> (192.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 17:43 上传
+
+
+-----
+
+####  Porsche  
+##### 357#       发表于 2021-4-30 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51108444&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-4-30 11:26</a>
+那倒不至于，最重要的雀魂代表从siosio换成别人而不是郡就…郡道与其说喜欢麻将不如说喜欢齐藤，在能力上 ...</blockquote>
+以麻将来讲怪盗明显更适合
+
+
+-----
+
+####  SuntoryNomu  
+##### 358#       发表于 2021-4-30 17:51
+
+
+<blockquote>ぽんがり @pongari
+
+
+Makai Battle Cooking的桌面应用程序版本已发布！
+
+您可以在Windows和Mac上播放。
+
+
+从浏览器版本开始的更改·改善了图像质量·可以更改寿命和游戏速度
+
+
+请玩吧！我也有奖金！
+
+#るるのアトリエ#魔界バトルクッキング</blockquote>
+
+[https://pongari.booth.pm/items/2898827](https://pongari.booth.pm/items/2898827)
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/175108h3yvy063ny71wwg3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0Nkjh0VcAA8U0c.jpg</strong> (197.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 17:51 上传
+
+
+-----
+
+####  rzrbtk  
+##### 359#       发表于 2021-4-30 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51112217&amp;ptid=1972669" target="_blank">Porsche 发表于 2021-4-30 17:50</a>
+以麻将来讲怪盗明显更适合</blockquote>
+路易斯是真不错，打麻技术好，讲解技术好，人气也一直保持上升，可能是虹内部想她做自家mc不放人吧…雀魂现在还是跟个人（无黑历史）绑会比较放心吧
+
+
+-----
+
+####  SuntoryNomu  
+##### 360#       发表于 2021-4-30 18:05
+
+
+<blockquote>悠理なゆた @yuri_nayuta
+
+
+我们已经发布了稳定生产的Nijisanji和Zushiri的辅助创作RPG“ Zushiri Fantasm”。
+
+您可以将三个英雄作为主要角色来探索一个不同的世界。谢谢！</blockquote>
+
+[https://girununga.booth.pm/items/2919081](https://girununga.booth.pm/items/2919081)
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/180449zb425nkba9b7z7b1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0Ng9ahVcAczbgN.jpg</strong> (400.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/180451dam4v5hmacghzq3z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NhXUvUUAwuu_x.jpg</strong> (284.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/180455i34q2n6573i44l5n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NhYHcUcAUtzKG.jpg</strong> (251.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/180457jouptcqoorltoixz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NhcpxVkAEdSLC.jpg</strong> (201.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:04 上传
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 361#       发表于 2021-4-30 18:25
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-30 18:33 编辑 
+
+让我们欢迎（唱片进出）新一姐👏👏👏🎉🎉🎉🎇🎇🎇
+
+<img src="https://img.saraba1st.com/forum/202104/30/182528etjgdw9ozajfl0fo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NtLKMVUAUnOKJ.jpg</strong> (430.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/182529z31z5fqc9sb812cp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NtLykVoAMMIAu.jpg</strong> (513.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/182530y2jzpjo26pz63p41.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NuVxXVcAATIUK.jpg</strong> (436.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/182531wn1g9zk1k9m1gng5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NuWfvVEAYNRtj.jpg</strong> (494.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/182532cwyuoxhzkuhnkfnl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0NuXthVgAEC4uV.jpg</strong> (447.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 18:25 上传
+
+
+德龙是谁啊不认识捏😋
+
+
+                                     
