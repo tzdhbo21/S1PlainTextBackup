@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-27 09:47** 
+> ## **本文件最后更新于2021-05-01 02:56** 
 
 
 
@@ -7044,4 +7044,368 @@ DW专门请垃圾回来搞死自己吗？</blockquote>
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">dw：怎么浪就浪不死 难受.jpg
 
 
-                             
+-----
+
+####  黑上シグマ  
+##### 78602#       发表于 2021-4-27 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷了，进游戏发现拿了1W8友情点，你游机器人又出动了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  khxooo  
+##### 78603#       发表于 2021-4-27 19:03
+
+
+还好猫换灵衣后的卡面换了，也算是没摸鱼吧。
+
+
+-----
+
+####  exiaexa  
+##### 78604#       发表于 2021-4-27 19:13
+
+
+这灵衣图，梅芙这次真·赢麻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78605#       发表于 2021-4-27 19:15
+
+
+灵衣我怎么换不了 没开放？
+
+
+-----
+
+####  eyeego  
+##### 78606#       发表于 2021-4-27 19:17
+
+
+有猫饼<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+我都不嫌你素材阴间了 还要卡时间是几个意思哦<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78607#       发表于 2021-4-27 19:22
+
+
+<img src="https://img.saraba1st.com/forum/202104/27/192128far7rzyo7v57yy6o.png" referrerpolicy="no-referrer">
+
+
+<strong>12.png</strong> (65.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-27 19:21 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这白贞怎么回事 小人腿短成这样 对比旁边的牛肉丸  泪 他流了下来
+
+
+-----
+
+####  qixinno2  
+##### 78608#       发表于 2021-4-27 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">裙子太碍事了吧
+
+
+-----
+
+####  alucardcz  
+##### 78609#       发表于 2021-4-27 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51080322&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-27 19:24</a>
+
+裙子太碍事了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">你在看看旁边的那位  贞德明显头又大 人又矮 腿又短  而且贞德不是改过模的吗。。。
+
+
+-----
+
+####  qixinno2  
+##### 78610#       发表于 2021-4-27 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51080347&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-27 19:28</a>
+
+你在看看旁边的那位  贞德明显头又大 人又矮 腿又短  而且贞德不是改过模的吗。。。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贞德改模有年头了吧 哪能跟最新改模的牛肉丸比 所以说白贞就是逊啦 扔仓库吃灰去吧
+
+
+-----
+
+####  黑上シグマ  
+##### 78611#       发表于 2021-4-27 19:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51080301&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-27 19:22</a>
+
+这白贞怎么回事 小人腿短成这样 对比旁边的牛肉丸  泪 他流了下来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">村姑1米59，牛肉丸1米68，正常
+
+
+-----
+
+####  黑上シグマ  
+##### 78612#       发表于 2021-4-27 23:03
+
+
+突然开了个PU2，梅芙和阿提拉
+
+
+-----
+
+####  khxooo  
+##### 78613#       发表于 2021-4-27 23:19
+
+
+YLS现在会骗氪了啊，不会出现上次虚数海战那样，本来应该是杨玉环剧情骗氪的，将卡池给关了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78614#       发表于 2021-4-27 23:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">希望后天能出BX 
+
+
+-----
+
+####  alucardcz  
+##### 78615#       发表于 2021-4-27 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51082689&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-4-27 23:41</a>
+
+希望后天能出BX</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽什么bx 大公啊
+
+
+-----
+
+####  Jamaisvu  
+##### 78616#       发表于 2021-4-28 01:30
+
+
+《命运：冠位指定》开发商 Delightworks 宣布，从 5 月 1 日起，小野义德将成为公司的代表取締役社长 COO，而公司创始人庄司显仁将于同天就职代表取缔役会长 CEO。
+
+
+街霸有救了，
+
+FGO死不了。
+
+
+现在就看FATE这个IP能禁得起几年折腾...
+
+但万一连小野义德这种人在DW社长的位置都能靠FGO混得风生水起，
+
+保不齐上面就把马场英雄送过来养蛊了...<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78617#       发表于 2021-4-28 01:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51083356&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-4-28 01:30</a>
+《命运：冠位指定》开发商 Delightworks 宣布，从 5 月 1 日起，小野义德将成为公司的代表取締役社长 COO， ...</blockquote>
+没多久了，等2.7完结后就是慢性死亡了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78618#       发表于 2021-4-28 06:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51082803&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-27 23:55</a>
+
+抽什么bx 大公啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是娘们 不要
+
+
+-----
+
+####  月华驱霾  
+##### 78619#       发表于 2021-4-28 09:30
+
+
+有人玩这个吗？总感觉是个坑。
+
+
+88.JPG
+(101.53 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-4-28 09:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/28/092953x1662c0z66ph4122.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UNISONIA  
+##### 78620#       发表于 2021-4-28 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51084875&amp;ptid=1085254" target="_blank">月华驱霾 发表于 2021-4-28 09:30</a>
+
+有人玩这个吗？总感觉是个坑。</blockquote>
+买了，汉化做的还可以
+
+
+游戏性确实坑，就是收割情怀的
+
+
+-----
+
+####  xiongxingyu  
+##### 78621#       发表于 2021-4-28 10:53
+
+
+梅芙强化了以后想拉出来试试，一看是30冲加男性加攻，这个配合道满不错啊，兴冲冲进本，然后发现np和攻击没加上，卧槽道满你小子是其他性别的，我怎么把这茬给忘了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  月华驱霾  
+##### 78622#       发表于 2021-4-28 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51085683&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-4-28 10:34</a>
+
+买了，汉化做的还可以
+
+
+游戏性确实坑，就是收割情怀的</blockquote>
+多谢。
+
+
+-----
+
+####  qixinno2  
+##### 78623#       发表于 2021-4-29 23:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">草 没出BX 歪了个不邢 难受
+
+
+-----
+
+####  白金口袋  
+##### 78624#       发表于 2021-4-29 23:27
+
+
+卧槽前排已经进化到连锁俩了吗？幸亏娱乐活动还不算难
+
+明明前两天刚在漫区说过这事，这2.6我看全队锁5是不可避了啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  الطائر  
+##### 78625#       发表于 2021-4-30 00:53
+
+
+ 本帖最后由 الطائر 于 2021-4-30 03:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51104610&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-4-29 23:27</a>
+
+卧槽前排已经进化到连锁俩了吗？幸亏娱乐活动还不算难
+
+明明前两天刚在漫区说过这事，这2.6我看全队锁5是不 ...</blockquote>
+玛修以外的从者原则上可以卖成方块，不能保证在场，能锁的只有玛修、助战和临时加入从者。主线剧情完成不限时，如果要锁临时加入的丛者，那意味着不限时长期加入，还有这种好事？
+
+当然不排除，比方说，敌人是C呆，助战锁复活版弱化武藏，每人再送一个1星冠位剑小次郎，可以喂圣杯到5星，解锁对肃正防御贯通，通关后就自动收回的玩法。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  rooarr  
+##### 78626#       发表于 2021-4-30 23:04
+
+
+护符光速凉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78627#       发表于 2021-4-30 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51114511&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-4-30 23:04</a>
+
+护符光速凉了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新存了20发  一起丢了下去 无 事 发 生
+
+
+-----
+
+####  白金口袋  
+##### 78628#       发表于 2021-5-1 01:06
+
+
+怎么还能弄出不达标不给开最高效率本这种操作？这是逼你磕苹果去刷中效率本啊
+
+对这几天自然恢复的咸鱼也太不友好了吧<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78629#       发表于 2021-5-1 01:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51115251&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-5-1 01:06</a>
+
+怎么还能弄出不达标不给开最高效率本这种操作？这是逼你磕苹果去刷中效率本啊
+
+对这几天自然恢复的咸鱼也太 ...</blockquote>
+生放松不是说了吗 船 新 玩 法(
+
+
+-----
+
+####  白金口袋  
+##### 78630#       发表于 2021-5-1 01:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51115259&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-4-30 11:07</a>
+
+生放松不是说了吗 船 新 玩 法(</blockquote>
+没看生放送的表示震惊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  theloved  
+##### 78631#       发表于 2021-5-1 10:12
+
+
+有没有什么什么地方可以比较方便的弄一些白棋子？萌新莫名其妙卡白棋了，我记得以前活动本第三面的英灵是金棋白棋都掉，现在改了？
+
+
+                            
