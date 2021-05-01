@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-17 03:43** 
+> ## **本文件最后更新于2021-05-01 12:53** 
 
 
 
@@ -15596,4 +15596,415 @@ Android 11至今还是有重启以后强制锁频的bug，大核中核全部锁�
 我在咸鱼上全新机4350买的用了几个月了
 
 
-           
+-----
+
+####  wqm2008  
+##### 2642#       发表于 2021-4-17 18:40
+
+
+<img src="https://img.saraba1st.com/forum/202104/17/183746z020l4mzmm69um6v.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>DAEF871F-BE80-4D63-B661-FA355997B70C.jpeg</strong> (642.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-17 18:37 上传
+
+
+终于跑完了售后，客服告诉我快则半个月，慢则一个月，检修费60，最高一档修理费180，然后有可能拒修，到时候去找第三方
+
+
+-----
+
+####  我很费纸  
+##### 2643#       发表于 2021-4-17 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50968914&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-4-17 18:40</a>
+终于跑完了售后，客服告诉我快则半个月，慢则一个月，检修费60，最高一档修理费180，然后有可能拒修，到 ...</blockquote>
+感觉还不如淘宝大商靠谱
+
+当时我的X5绿屏（在当时专楼里还有我的吐槽），联系大商，让我直接寄苏州的索尼维修点了，检测维修一星期，没花钱，就出了20运费<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wqm2008  
+##### 2644#       发表于 2021-4-18 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50971991&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-4-17 23:32</a>
+
+感觉还不如淘宝大商靠谱
+
+
+当时我的X5绿屏（在当时专楼里还有我的吐槽），联系大商，让我直接寄苏州的索尼 ...</blockquote>
+比较好奇直接寄修是什么操作，可能走的量大的淘宝跟索尼官方有联系吧。线下这一年卖不出去百十来台的估计索尼也不会重视。我这边报完单之后，售后拿出了一个上古时代的索尼卡片相机拍照留存，然后在一台上古时代的索尼一体机里输入保修信息，然后走单子签字寄修北京<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+我觉得现在淘宝店还在做索尼的基本上也不会跑了，大家都是在拼人品做这小几千索尼拥趸的生意，接地气的自己也会自建微信和Q群，这样看他们其实不仅对官方售后有保障，哪怕第三方修，他们也能找到地方。
+
+
+再换机看看三星有没有非挖孔的，不行就还1mkⅢ或者mkⅣ吧，只是这个品控问题在我心理是回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+我问小姐姐索尼买的人多吗<img src="https://static.saraba1st.com/image/smiley/face2017/038.png" referrerpolicy="no-referrer">
+
+回答：啊，修的人还挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+其实mkⅡ这一代质感相比上一代已经进步很大了，但是我这几天翻出note9用，觉得，质感上，还是打不过2018年的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+包括材质的手感，高级感，一些乱七八糟的地方，还有，马达.......输入法一用一震就露馅
+
+
+-----
+
+####  Cray  
+##### 2645#       发表于 2021-4-18 00:20
+
+
+所以你是摔了吗
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  我很费纸  
+##### 2646#       发表于 2021-4-18 00:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972246&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-4-18 00:02</a>
+比较好奇直接寄修是什么操作，可能走的量大的淘宝跟索尼官方有联系吧。线下这一年卖不出去百十来台的估计 ...</blockquote>
+就是写了个纸条放盒子里，老板再和那边售后打个招呼，就寄过去完事了。
+
+马达确实烂，再加上真的不喜欢打字还有震动音的感觉，最后还是关了，感觉哪怕是iPhone，我也不喜欢开打字震动。
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  斑驳的阴影  
+##### 2647#       发表于 2021-4-18 00:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972246&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-4-18 00:02</a>
+
+比较好奇直接寄修是什么操作，可能走的量大的淘宝跟索尼官方有联系吧。线下这一年卖不出去百十来台的估计 ...</blockquote>
+52不是线性马达吗？是调教不好还是咋回事。。。我在iPhone上输入法开着震动感觉还是很自然的
+
+
+-----
+
+####  wqm2008  
+##### 2648#       发表于 2021-4-18 03:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972400&amp;ptid=1915171" target="_blank">Cray 发表于 2021-4-18 00:20</a>
+
+所以你是摔了吗
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+第一次摔是在大阶梯，但是摔之前就指纹失灵了，我敢说湿手用电源键绝对比摔的问题更大，你这可是IP68…
+
+
+-----
+
+####  wqm2008  
+##### 2649#       发表于 2021-4-18 03:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972484&amp;ptid=1915171" target="_blank">斑驳的阴影 发表于 2021-4-18 00:33</a>
+
+52不是线性马达吗？是调教不好还是咋回事。。。我在iPhone上输入法开着震动感觉还是很自然的 ...</blockquote>
+不晓得，我手上的12在我用过的手机里面是跟早年红米一个体验的，只不过强度要高很多。
+
+
+-----
+
+####  lbzlxx  
+##### 2650#       发表于 2021-4-19 16:40
+
+
+求助，收到新短信里，一堆选项在那恶心你“是，否，谢谢”，谁要回复你啊，能不能删掉这弱智选项，我在设置里是找不到
+
+
+-----
+
+####  猫空  
+##### 2651#       发表于 2021-4-20 00:39
+
+
+靠，5ii卡死重启，又卡在了xperia标志那闪啊闪的，明天早起看一眼好没好，如果没好的话得送修了
+
+
+-----
+
+####  黑之月  
+##### 2652#       发表于 2021-4-20 11:07
+
+
+刚刚国行又推了一个系统更新<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">等会回公司更新看看这小半年的蓝牙连车不稳定毛病修了没
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Yukine_Chris  
+##### 2653#       发表于 2021-4-20 11:25
+
+
+索移有发票的国行和港行不是都能直接官网填单寄苏州的维修中心吗……
+
+
+-----
+
+####  猫空  
+##### 2654#       发表于 2021-4-20 13:39
+
+
+国行更新完最新系统补丁后顺手跑了个geekbench，单核868多核3189，比之前表现是好了很多
+
+
+-----
+
+####  月神侠  
+##### 2655#       发表于 2021-4-20 13:45
+
+
+国行更新58.1.A.5.159
+
+
+-----
+
+####  yygundam  
+##### 2656#       发表于 2021-4-20 14:10
+
+
+ 本帖最后由 yygundam 于 2021-4-20 14:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50987928&amp;ptid=1915171" target="_blank">lbzlxx 发表于 2021-4-19 16:40</a>
+
+求助，收到新短信里，一堆选项在那恶心你“是，否，谢谢”，谁要回复你啊，能不能删掉这弱智选项，我在设置 ...</blockquote>
+这是安卓10的smart reply功能，原生的，好像选项的通知设置里可以关。
+
+
+-----
+
+####  无印凉粉  
+##### 2657#       发表于 2021-4-20 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50998460&amp;ptid=1915171" target="_blank">猫空 发表于 2021-4-20 13:39</a>
+
+国行更新完最新系统补丁后顺手跑了个geekbench，单核868多核3189，比之前表现是好了很多 ...</blockquote>
+还有什么bug没？
+
+
+-----
+
+####  月神侠  
+##### 2658#       发表于 2021-4-20 20:46
+
+
+软件版本：
+
+58.1.A.5.159
+
+
+主要更新内容：
+
+1. Google 安全补丁.
+
+
+2. 5G网络连接性能改进.
+
+3. 有线耳机兼容性改进.
+
+4. 导航条显示改进.
+
+5. 修复日历小问题.
+
+
+-----
+
+####  月神侠  
+##### 2659#       发表于 2021-4-20 22:28
+
+
+感觉升级58.1.A.5.159，耗电量多了，玩游戏明显感觉发烫<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  逆袭的黑月  
+##### 2660#       发表于 2021-4-20 22:32
+
+
+哭了，终于把蓝牙断连问题给修好了。今天上车连上蓝牙，我等了十几秒居然没等到卡顿甚至有点不习惯
+
+
+-----
+
+####  猫空  
+##### 2661#       发表于 2021-4-20 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50999102&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-4-20 14:29</a>
+
+还有什么bug没？</blockquote>
+用了大半天，感觉没啥bug
+
+
+-----
+
+####  Youszsh  
+##### 2662#       发表于 2021-4-21 08:13
+
+
+马克三都要出了，现在能更安卓11了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 2663#       发表于 2021-4-21 15:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51004696&amp;ptid=1915171" target="_blank">月神侠 发表于 2021-4-20 22:28</a>
+感觉升级58.1.A.5.159，耗电量多了，玩游戏明显感觉发烫</blockquote>
+发烫说不定是好事，说不定CPU调度bug终于修复了，大核陪你打游戏了
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  无印凉粉  
+##### 2664#       发表于 2021-4-26 14:21
+
+
+看了一圈，最新的版本值得更新不？我怕升级之后又出什么幺蛾子。
+
+
+-----
+
+####  我很费纸  
+##### 2665#       发表于 2021-5-1 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51067131&amp;ptid=1915171" target="_blank">无印凉粉 发表于 2021-4-26 14:21</a>
+看了一圈，最新的版本值得更新不？我怕升级之后又出什么幺蛾子。</blockquote>
+新版本好那么一点了，CPU调度稍微正常一点，但依旧拉垮，大核上线中核就跑不满，中核跑满大核就偷懒。纯跑分而论，还是不如Android 10
+
+
+<img src="https://p.sda1.dev/1/d4ffd651f30c4570777a17c445318765/IMG_CMP_114969645.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/1/6020f5be1dc32ca6e372b19f581825b9/IMG_CMP_137503208.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  sdanss  
+##### 2666#       发表于 2021-5-1 14:24
+
+
+想问下，我这5mark2摔成这样，开机无限sony logo循环还有必要修么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/8ccf4fbf86bedc58304061eab966257b/IMG_CMP_86785747.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8441, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  我很费纸  
+##### 2667#       发表于 2021-5-1 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51118544&amp;ptid=1915171" target="_blank">sdanss 发表于 2021-5-1 14:24</a>
+想问下，我这5mark2摔成这样，开机无限sony logo循环还有必要修么</blockquote>
+我从1.8米高的宿舍床摔下去都没你这惨……感觉没救了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  sdanss  
+##### 2668#       发表于 2021-5-1 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51118602&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-5-1 14:33</a>
+我从1.8米高的宿舍床摔下去都没你这惨……感觉没救了
+
+—— 来自 Sony XQ-AS72, Android 11上的 S ...</blockquote>
+毕竟飞出去了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+正好51官方售后也放假，也不知道修大概需要多少。
+我怀疑修的钱加点可以再来个咸鱼机了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony G8441, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  猫空  
+##### 2669#       发表于 2021-5-1 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51118541&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-5-1 14:23</a>
+
+新版本好那么一点了，CPU调度稍微正常一点，但依旧拉垮，大核上线中核就跑不满，中核跑满大核就偷懒。纯 ...</blockquote>
+我这5ii跑分还算正常<img src="http://ww1.sinaimg.cn/large/0071IHsAly1gq2z5ykr6dj30u01y0aei.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 2670#       发表于 2021-5-1 17:07
+
+
+ 本帖最后由 我很费纸 于 2021-5-1 17:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51118985&amp;ptid=1915171" target="_blank">猫空 发表于 2021-5-1 15:49</a>
+我这5ii跑分还算正常</blockquote>
+还是低了，当初Android 10初始版本能跑900/3200
+
+事实上我刚更新完的时候也跑出来你这个成绩，但过了一天又不行了
+<img src="https://p.sda1.dev/1/0c4b4803cb5462b7f3ba6d1d1c445502/IMG_CMP_4133329.png" referrerpolicy="no-referrer">
+
+附带1月更新Android 11之前的跑分
+<img src="https://p.sda1.dev/1/25a74e83932100f02ffee6d24da1e76a/IMG_CMP_239155578.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  猫空  
+##### 2671#       发表于 2021-5-1 20:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51119568&amp;ptid=1915171" target="_blank">我很费纸 发表于 2021-5-1 17:07</a>
+
+还是低了，当初Android 10初始版本能跑900/3200
+
+
+事实上我刚更新完的时候也跑出来你这个成绩，但过了一天 ...</blockquote>
+我清了清后台跑出了876/3216的分数，感觉和安卓10时也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+          
