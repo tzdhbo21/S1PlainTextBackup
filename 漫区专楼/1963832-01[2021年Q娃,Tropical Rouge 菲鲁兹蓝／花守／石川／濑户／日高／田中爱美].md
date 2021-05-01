@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-25 12:59** 
+> ## **本文件最后更新于2021-05-01 10:41** 
 
 
 
@@ -350,8 +350,7 @@
 ####  丹德里恩  
 ##### 33#       发表于 2020-11-25 14:38
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可别再让我回想起茶几那口红了，谢谢
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -6470,8 +6469,7 @@ ed还是省钱3d 劳拉直接上纸片</blockquote>
 ####  丹德里恩  
 ##### 580#       发表于 2021-2-28 15:18
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不愧是女王，果然懒
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8255,10 +8253,7 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 ####  丹德里恩  
 ##### 735#       发表于 2021-3-14 12:58
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">没有珊瑚看我要死了
-
-这周是停播？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8325,14 +8320,7 @@ Healin Good Precure，可以简称治q，也就能简称为奶q。Kirakira Precu
 ####  丹德里恩  
 ##### 741#       发表于 2021-3-14 15:13
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50620502&amp;ptid=1963832" target="_blank">菊妖不是怪 发表于 2021-3-14 13:59</a>
-
-爱奇艺搜tropical rouge然后点第0集
-
-
-  -- 来自 能看大图的 Stage1官方 iOS客户端 ...</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">我用网页端的搜出来只有1和2啊....要用app？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -15044,4 +15032,319 @@ ps：我第一集就说了今年这怪大友里必会出现叛变者 才第8集�
 下集就给强化了，4人大招赶紧啊<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">还有冒着热气的珊瑚我可以
 
 
-      
+-----
+
+####  PrincessBanana  
+##### 1292#       发表于 2021-4-25 21:15
+
+
+灰姑娘的魔法是勇气这个立意蛮不错的
+正好隔壁美少年侦探团也讲了这个，印象蛮深刻的。
+
+
+-----
+
+####  SRyeB  
+##### 1293#       发表于 2021-4-25 21:28
+
+
+最后预告里屑人鱼是被抽了干劲变成一条咸鱼了吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sliurus  
+##### 1294#       发表于 2021-4-25 22:00
+
+
+有几个画面崩到脸都歪了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这部反派温馨得像是一家人，厨师爸爸，医生妈妈，管家爷爷，女仆女儿
+
+
+-----
+
+####  PrincessBanana  
+##### 1295#       发表于 2021-4-25 22:03
+
+
+说来一般化妆品店会在街上发试用品嘛？
+感觉做那么多样品成本还蛮高的
+
+
+-----
+
+####  twit  
+##### 1296#       发表于 2021-4-25 22:18
+
+
+才发现这作没有元素攻击。
+
+像这集的反射打法以前基本都是水系战士造块冰就完事，这作还要离场找镜子<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 1297#       发表于 2021-4-25 22:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51061068&amp;ptid=1963832" target="_blank">PrincessBanana 发表于 2021-4-25 22:03</a>
+说来一般化妆品店会在街上发试用品嘛？
+感觉做那么多样品成本还蛮高的</blockquote>
+不是纸巾吗？不过国内的化妆店倒是到店能试用，也有那种一包一包的试用产品，不知道日本怎么样
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  dragrass  
+##### 1298#       发表于 2021-4-25 23:28
+
+
+今年的剧本还是好
+
+就是那种传统q娃味，很有意思，但是搞笑尺度又不过火，也不乱搞剑走偏锋的套路
+
+[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  最强惠酱  
+##### 1299#       发表于 2021-4-25 23:40
+
+
+<img src="https://p.sda1.dev/1/4085b16e6e78fdce5bf54bc3bbc9d6d2/20210425_233859.jpg" referrerpolicy="no-referrer">
+这个脸真是本话神来一笔，看几次都很好笑ww
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  memo2  
+##### 1300#       发表于 2021-4-26 00:01
+
+
+这集剧本居然是吉野弘幸，我惊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">青山的崩脸真是十年如一日啊
+
+
+-----
+
+####  粉儿alice  
+##### 1301#       发表于 2021-4-26 07:52
+
+
+青山加化妆 真是精神污染<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+今年女人就是化妆加卖化妆品 这个逃不掉的
+
+
+-----
+
+####  天邪鬼  
+##### 1302#       发表于 2021-4-26 08:28
+
+
+今年二段来个梳妆台啥的算了
+
+
+-----
+
+####  达达葱2  
+##### 1303#       发表于 2021-4-26 08:39
+
+
+青山还没退休吗
+
+
+-----
+
+####  shimmy1996  
+##### 1304#       发表于 2021-4-26 09:59
+
+
+珊瑚回好评，今年好多体现角色性格或者改变的小细节<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">ゼンゼンヤラネーダ笑死了www
+
+
+-----
+
+####  HGCG-闪  
+##### 1305#       发表于 2021-4-26 20:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51061958&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-4-25 23:40</a>
+
+这个脸真是本话神来一笔，看几次都很好笑ww
+
+
+—— 来自 samsung SM-G981N, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+太精污了
+
+
+-----
+
+####  达达葱2  
+##### 1306#       发表于 2021-4-27 00:15
+
+
+下集预告的夏夏到底是什么情况？不会真的被夺走干劲了吧
+
+
+-----
+
+####  mkii量产型  
+##### 1307#       发表于 2021-4-27 03:16
+
+
+这部反派怎么其乐融融的，我回忆了下哪怕最谐的奸笑都没这样，真要说组织内氛围不错的大概还是max的保姆团？照顾主子，也不太欺压两个打工人，干部还能一起吃蛋糕下棋商业互吹
+
+
+-----
+
+####  天邪鬼  
+##### 1308#       发表于 2021-4-27 08:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51073411&amp;ptid=1963832" target="_blank">mkii量产型 发表于 2021-4-27 03:16</a>
+这部反派怎么其乐融融的，我回忆了下哪怕最谐的奸笑都没这样，真要说组织内氛围不错的大概还是max的保姆团 ...</blockquote>
+大家都摸鱼，上班打个卡就行的主还在那斗啥啊
+
+
+-----
+
+####  舞野咲  
+##### 1309#       发表于 2021-4-28 00:37
+
+
+女主现在还在星奈光爱乃惠那个复读机阶段。。。
+
+
+-----
+
+####  PrincessBanana  
+##### 1310#       发表于 2021-4-28 03:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51083084&amp;ptid=1963832" target="_blank">舞野咲 发表于 2021-4-28 00:37</a>
+女主现在还在星奈光爱乃惠那个复读机阶段。。。</blockquote>
+热情迸发夏海皇
+无敌闪耀星奈光
+
+
+-----
+
+####  RoPlem  
+##### 1311#       发表于 2021-4-28 09:21
+
+
+小虾姑也太团宠了，卖个萌就有零食吃
+
+感觉这次的反派除了海马感觉都很社畜啊，都是上班摸鱼的，而且变怪本质也没实际伤害到人，感觉后期有机会洗白，说不定后期重拾干劲后就洗白了
+
+
+-----
+
+####  haojie_ma  
+##### 1312#       发表于 2021-4-28 10:35
+
+
+海马现在让我有点SS里戈扬那种幕后主使的感觉，但魔法里的那个蜥蜴已经打过一次脸了，还是静观其变吧
+
+不过懈怠魔女后面还有人当真BOSS应该错不了
+
+
+-----
+
+####  wind4rap  
+##### 1313#       发表于 2021-4-28 10:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">仔细想想，反派搞不好就是因为自己没有干劲才需要从别人身上抢干劲。
+
+
+-----
+
+####  xmakoto  
+##### 1314#       发表于 2021-4-29 09:37
+
+
+原来划水是摸鱼的进化体
+
+
+-----
+
+####  HGCG-闪  
+##### 1315#       发表于 2021-4-29 17:31
+
+
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gq0qvjxevcj20xy0u0x1z.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1316#       发表于 2021-4-29 21:43
+
+
+这是幼女的小裤裤！
+
+
+-----
+
+####  HGCG-闪  
+##### 1317#       发表于 2021-4-30 11:46
+
+
+五马伦！
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gq0c6c03a9j21lf297h0w.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  linhaitora  
+##### 1318#       发表于 2021-4-30 12:12
+
+
+说是有人破解玩具出来说海豹会说人话但只在没人的时候吐槽萝拉？
+
+
+-----
+
+####  HGCG+  
+##### 1319#       发表于 2021-5-1 16:12
+
+
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gq260z755yj20gm077gpv.jpg" referrerpolicy="no-referrer">
+
+萝拉住的肾板被没收了233
+
+
+-----
+
+####  达达葱2  
+##### 1320#       发表于 2021-5-1 16:19
+
+
+<blockquote>HGCG+ 发表于 2021-5-1 16:12
+萝拉住的肾板被没收了233</blockquote>
+秘密被会长发现吗
+
+
+
+
+-----
+
+####  lyflyflxf  
+##### 1321#       发表于 2021-5-1 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51119154&amp;ptid=1963832" target="_blank">HGCG+ 发表于 2021-5-1 16:12</a>
+
+萝拉住的肾板被没收了233</blockquote>
+众反派：我们怎么没想到这一招？算了，明天再说吧
+
+
+     
