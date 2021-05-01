@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-30 10:51** 
+> ## **本文件最后更新于2021-05-01 08:54** 
 
 
 
@@ -5003,4 +5003,406 @@ Makai Battle Cooking的桌面应用程序版本已发布！
 德龙是谁啊不认识捏😋
 
 
-                                     
+-----
+
+####  渡鸦骑士  
+##### 362#       发表于 2021-4-30 18:55
+
+
+[https://youtu.be/4JnP2Sohsnk](https://youtu.be/4JnP2Sohsnk)
+
+歌回快结束了，风格有点硬，有点过于使用技巧的感觉
+
+武士道这卡微妙
+
+
+-----
+
+####  qq845629713  
+##### 363#       发表于 2021-4-30 19:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 釜山3D五月九号
+
+
+-----
+
+####  winda  
+##### 364#       发表于 2021-4-30 19:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">宝三家开始3d，女将美夜子语部果然是最黑暗的一批
+
+
+-----
+
+####  free  
+##### 365#       发表于 2021-4-30 19:54
+
+
+[https://www.youtube.com/watch?v=QwJHVIzt7mE](https://www.youtube.com/watch?v=QwJHVIzt7mE)
+
+【2ndアルバム発売記念ミニライブ】PRELUDE -前奏曲-【超重大告知】#葵のミニライブ
+
+
+-----
+
+####  winda  
+##### 366#       发表于 2021-4-30 19:54
+
+
+ 本帖最后由 winda 于 2021-4-30 19:56 编辑 
+
+kr新人韩日英三语都挺熟练的，不错。
+游戏池就是现在的king，很好。
+还会蹭木口船长，那就最好不过了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+当然，数字估计还是没有的。
+以后就叫她kr船长了
+
+
+-----
+
+####  IDIDIDID  
+##### 367#       发表于 2021-4-30 20:00
+
+
+ 本帖最后由 IDIDIDID 于 2021-4-30 20:27 编辑 
+
+天皇找力一翻唱这首啊，daoko你吃得住吗……👇
+
+ステップアップLOVE/DAOKO × 岡村靖幸 (covered by 月ノ美兎とジョー・力一)
+[https://www.youtube.com/watch?v=c5GwosYGD1w](https://www.youtube.com/watch?v=c5GwosYGD1w)
+
+
+SYL：宝三家生病的左左人回来没？
+
+
+-----
+
+####  alcoholic1000  
+##### 368#       发表于 2021-4-30 20:07
+
+
+补图5/9 菩提3D披露
+
+<img src="https://img.saraba1st.com/forum/202104/30/195709lxpfochokhoggd8d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>ラトナ・プティ 3Dお披露目配信決定.jpeg</strong> (221.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 19:57 上传
+
+
+[https://www.youtube.com/watch?v=ZY_kwiM9j78](https://www.youtube.com/watch?v=ZY_kwiM9j78)
+
+
+雪城眞尋　オリジナル楽曲「STAND BY ME」
+
+4/30(金)0:00よ り、各ストアにて順次配信開始！国内可以在QQ音乐、酷狗、酷我和网易云上购买支持
+[https://linkco.re/1xv7t4RT?lang=en](https://linkco.re/1xv7t4RT?lang=en)
+
+<img src="https://img.saraba1st.com/forum/202104/30/195935sno8uw6y1ea1nw7i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>雪城眞尋　オリジナル楽曲配信決定！.jpeg</strong> (1.29 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 19:59 上传
+
+
+[https://linkco.re/1xv7t4RT?lang=en](https://linkco.re/1xv7t4RT?lang=en)
+
+
+音声封面组合又出周边了，有本事卖东西，你有本事联动啊<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer"> 
+
+<img src="https://img.saraba1st.com/forum/202104/30/200121m1sbc4zc49upo0aa.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>le jouet3人.jpeg</strong> (91.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 20:01 上传
+
+
+-----
+
+####  FCCHua  
+##### 369#       发表于 2021-4-30 20:11
+
+
+ 本帖最后由 FCCHua 于 2021-4-30 20:12 编辑 
+
+eli20号直播来着，不过距离完全恢复直播应该还有段距离吧
+
+
+-----
+
+####  alcoholic1000  
+##### 370#       发表于 2021-4-30 20:14
+
+
+Bsyl，my mori终于有新衣装了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+会在2021年5月3日（月）23時，作为第一位披露，看轮廓型应该是符合帅气印象的outfits
+
+<img src="https://img.saraba1st.com/forum/202104/30/201020ixjj7wyurzjuxouj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>#hololiveEN new outfits will be revealed from Monday, May 3 on each of the membe.jpeg</strong> (166.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 20:10 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 371#       发表于 2021-4-30 20:23
+
+
+圆脸师姐对日本抗疫实力真是信心十足
+
+
+-----
+
+####  poipanchao  
+##### 372#       发表于 2021-4-30 20:29
+
+
+ 本帖最后由 poipanchao 于 2021-4-30 20:31 编辑 
+
+快速过了一遍KR新人
+
+第一个挺传统的，也没提会游戏，估计是流水线
+
+第二个声音蛮好听的，而且英文日语都很不错，玩apex+瓦罗兰+lol，似乎可以期待一下枪力（顺便fans名叫海贼crew，开蹭！）
+
+第三个好像是妹系rp，口齿有点不青春，实在听不清，溜了
+
+
+-----
+
+####  free  
+##### 373#       发表于 2021-4-30 20:32
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/203142r6l6u1x7k1x6on62.jpg" referrerpolicy="no-referrer">
+
+
+<strong>aoi.jpg</strong> (370.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 20:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/203159e2hmezdukedhxauk.png" referrerpolicy="no-referrer">
+
+
+<strong>舔.png</strong> (4.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 20:31 上传
+
+
+-----
+
+####  十四洲  
+##### 374#       发表于 2021-4-30 20:34
+
+
+bora和selly一队，太好了我继续奶，不过新赛季改得还挺多的？不知道会怎么样
+
+
+-----
+
+####  渡鸦骑士  
+##### 375#       发表于 2021-4-30 22:52
+
+
+ 本帖最后由 渡鸦骑士 于 2021-4-30 23:00 编辑 
+
+贡贡也回美兔小姐了
+还有个谁来着，哦，帕特拉，看了一下也没多久就回了。嘛<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 376#       发表于 2021-4-30 23:02
+
+
+ 本帖最后由 FCCHua 于 2021-5-1 15:06 编辑 
+
+猫猫这企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+同期贴贴捏，引流效果真不错，然后两个多小时后三世10万了
+小千apex伤害耐久截止目前也24万多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 377#       发表于 2021-4-30 23:07
+
+
+被油管推送了才知道阴湿男居然也有新衣服了
+
+
+-----
+
+####  渡鸦骑士  
+##### 378#       发表于 2021-4-30 23:35
+
+
+<img src="https://p.sda1.dev/1/c11e38ea2ce00fab906c2bade55ef6cd/IMG_CMP_71434080.png" referrerpolicy="no-referrer">正巧看到，这也太女相了……
+
+
+-----
+
+####  義賊  
+##### 379#       发表于 2021-5-1 01:00
+
+
+猫猫给三世涨了八千粉。。
+
+
+-----
+
+####  noHentai  
+##### 380#       发表于 2021-5-1 01:46
+
+
+有点意思，翔哥和mahi新曲都是直接国内平台正版上线，不知道什么时候开始的
+
+
+-----
+
+####  義賊  
+##### 381#       发表于 2021-5-1 02:08
+
+
+三世十万达成了 猫是真的nb
+
+
+-----
+
+####  死体残留  
+##### 382#       发表于 2021-5-1 02:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">10w前还开三世窗让观众能打钱到三世本人太亚萨西了，全程感觉回到以前看seeds的时候，iwa眼光真是厉害啊
+
+
+-----
+
+####  kangkangsama  
+##### 383#       发表于 2021-5-1 02:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51112277&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-4-30 17:58</a>
+
+路易斯是真不错，打麻技术好，讲解技术好，人气也一直保持上升，可能是虹内部想她做自家mc不放人吧…雀魂 ...</blockquote>
+用多井的话来说就是悠星挺喜欢郡道的，可能是别人是打麻将她是玩雀魂吧，除了舔斋藤还会搞听角色音声回。
+
+
+-----
+
+####  lhawp  
+##### 384#       发表于 2021-5-1 03:04
+
+
+野良猫今晚这活整得太nb了 我宣布虹再续半年
+
+syl
+
+シリウスの心臓/ヰ世界情緒（covered by 鈴谷アキ）
+https://t.co/oiZiEY79nn?amp=1
+
+
+-----
+
+####  Ketestrait  
+##### 385#       发表于 2021-5-1 12:58
+
+
+夜见这生化7在循环播放社长发来的打气语音当BGM<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 386#       发表于 2021-5-1 14:07
+
+
+原来夜见是会怕这种游戏的人，这种状态才能感觉到她是个年龄挺小的妹子，以前玩恐怖游戏真的太姨了
+
+
+-----
+
+####  FCCHua  
+##### 387#       发表于 2021-5-1 14:19
+
+
+夜见今天这个生化直播好可爱，还有凸待<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kangkangsama  
+##### 388#       发表于 2021-5-1 14:54
+
+
+郡道千寻德比apex 挺神奇的
+
+
+-----
+
+####  pliee  
+##### 389#       发表于 2021-5-1 15:22
+
+
+昨天みるくふぁくとりー发售的黄油，介绍是向往海贼的女服务生，名字叫マロン，怎么到处是管人厨阿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+截图.png
+(21.91 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-1 15:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/01/151932b15mbzrs1bye6mee.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 390#       发表于 2021-5-1 15:56
+
+
+[https://vtubetoken.moe/](https://vtubetoken.moe/)
+
+万物皆可发币
+
+
+
+
+-----
+
+####  FCCHua  
+##### 391#       发表于 2021-5-1 16:26
+
+
+考拉那边出了点问题，变成小千 老师 花妈了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                    
