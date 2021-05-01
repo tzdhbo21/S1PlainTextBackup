@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-30 13:42** 
+> ## **本文件最后更新于2021-05-01 04:47** 
 
 
 
@@ -10244,4 +10244,383 @@ QQ图片20210430205245.png
 你在高速用流量看直播吗
 
 
-                 
+-----
+
+####  A2014720  
+##### 14465#       发表于 2021-4-30 21:44
+
+
+不过讨论的话，转播间和同好会的群都还行吧
+
+这人现在一播就是三四小时，你一直盯着看到最后其实也挺累的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 14466#       发表于 2021-4-30 21:44
+
+
+就那么几首翻来覆去唱也没啥可聊的吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14467#       发表于 2021-4-30 21:49
+
+
+这人直播基本都是歌会或者tc 我都是直接挂后台打游戏去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14468#       发表于 2021-4-30 21:52
+
+
+过气小麻没人看<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14469#       发表于 2021-4-30 22:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51113825&amp;ptid=1973472" target="_blank">Klience 发表于 2021-4-30 21:36</a>
+你在高速用流量看直播吗</blockquote>
+音频那种，就算如此还是卡的一批，而且今晚你要说杂谈也没啥内容是真的
+
+
+-----
+
+####  Klience  
+##### 14470#       发表于 2021-4-30 22:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51114089&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-4-30 22:10</a>
+
+音频那种，就算如此还是卡的一批，而且今晚你要说杂谈也没啥内容是真的 ...</blockquote>
+就是那种把文件放在播放器里就能看直播的那类吗 那种不也是要流量吗
+
+
+-----
+
+####  时间在我手中  
+##### 14471#       发表于 2021-4-30 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51114134&amp;ptid=1973472" target="_blank">Klience 发表于 2021-4-30 22:15</a>
+就是那种把文件放在播放器里就能看直播的那类吗 那种不也是要流量吗</blockquote>
+批站有仅音频播放。流量我一个月40g随便用。
+
+
+-----
+
+####  Klience  
+##### 14472#       发表于 2021-4-30 22:19
+
+
+草 那不就是挂后台呗 不过上高速信号差也正常吧
+
+
+-----
+
+####  时间在我手中  
+##### 14473#       发表于 2021-4-30 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51114169&amp;ptid=1973472" target="_blank">Klience 发表于 2021-4-30 22:19</a>
+草 那不就是挂后台呗 不过上高速信号差也正常吧</blockquote>
+也只能挂后台了啊，我七点上车到现在还没到家，说实话早知道就不回了
+
+
+-----
+
+####  Klience  
+##### 14474#       发表于 2021-4-30 22:22
+
+
+明天就是51 这种时候敢上高速的都是笨比（aoe）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14475#       发表于 2021-4-30 22:39
+
+
+这首湖南江西还不错
+
+
+-----
+
+####  Mikumiku831  
+##### 14476#       发表于 2021-4-30 22:52
+
+
+5月2号才敢回家 明天一定堵死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14477#       发表于 2021-4-30 23:02
+
+
+个个人都想着明天51休息都是打算今天出发出去玩的 高速路肯定塞车塞得要死 还敢上高速<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14478#       发表于 2021-4-30 23:04
+
+
+我城南都回不去城北，现在在附近亲戚家住着，你们今天往回赶也太狠了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14479#       发表于 2021-4-30 23:08
+
+
+终于到家了，老子听完直播马上睡去**，真的难顶
+
+
+-----
+
+####  makourisu-2  
+##### 14480#       发表于 2021-4-30 23:19
+
+
+话说怎么最近楼里又开始视奸讨论她打LOL了，你们不说，我都不知道这女人整天还在玩这个
+
+
+-----
+
+####  时间在我手中  
+##### 14481#       发表于 2021-4-30 23:21
+
+
+也没整天玩，你楼有人有兴趣聊而已，对我来说这东西就是保证她某些时间不突击的情报参考而已（）
+
+
+-----
+
+####  Klience  
+##### 14482#       发表于 2021-4-30 23:25
+
+
+因为这边可以讨论这些啊 我自己也有sj其他v玩lol的习惯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14483#       发表于 2021-4-30 23:25
+
+
+又是新歌放最后，会不会玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 14484#       发表于 2021-4-30 23:33
+
+
+新歌fc说明私下没少练 每次这种时候就感觉好爱她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  KL25001  
+##### 14485#       发表于 2021-5-1 00:01
+
+
+2021.4直播时长
+
+<img src="https://img.saraba1st.com/forum/202105/01/000106f26j1q6g44yqtmim.png" referrerpolicy="no-referrer">
+
+
+<strong>04c.PNG</strong> (152.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 00:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/01/000103jpw8mdzeae7qryez.png" referrerpolicy="no-referrer">
+
+
+<strong>04a.PNG</strong> (219.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 00:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/01/000104powwjr6sj27dau8w.png" referrerpolicy="no-referrer">
+
+
+<strong>04b.PNG</strong> (134.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 00:01 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 7战斗力 +8
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 2|好评加鹅|
+| 缺陷电气杨永信| + 1|好评加鹅|
+| 路人庚| + 1|好评加鹅|
+| 雪风utopia| + 1|好评加鹅|
+| thisisaspider| + 1|好评加鹅|
+| Cushaw| + 1|好评加鹅|
+| A2014720| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  Klience  
+##### 14486#       发表于 2021-5-1 00:05
+
+
+今晚就早点睡吧 这人估计一时半会不会突击tc了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 14487#       发表于 2021-5-1 00:52
+
+
+20210501东京0点
+
+<img src="https://img.saraba1st.com/forum/202105/01/005151fc5izhiqzcd5iz29.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (216.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 00:51 上传
+
+
+-----
+
+####  A2014720  
+##### 14488#       发表于 2021-5-1 09:50
+
+
+<img src="https://p.sda1.dev/1/994d6fa45d84188b65d5316d99515025/IMG_CMP_156125301.jpeg" referrerpolicy="no-referrer">
+
+单人…我的单人…<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14489#       发表于 2021-5-1 10:11
+
+
+这有什么好哭单人的，这东西不早就预定好的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">而且你还要等肥婆起床再说
+
+
+-----
+
+####  Klience  
+##### 14490#       发表于 2021-5-1 11:03
+
+
+肥婆凌晨3点打了一局 醒没醒还不知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  GRMeA104  
+##### 14491#       发表于 2021-5-1 11:53
+
+
+不会真有人喜欢五一看别人搬砖吧<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+不如忙点自己的事去<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14492#       发表于 2021-5-1 12:25
+
+
+51谁敢出去玩啊 全都是人 还不如在家里打游戏开空调 不舒服吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 14493#       发表于 2021-5-1 12:28
+
+
+1889年7月，由恩格斯领导的第二国际在巴黎举行代表大会。会议通过决议，规定1890年5月1日国际劳动者举行**，并决定把5月1日这一天定为国际劳动节。在100多年后的2021年5月1日，一位来自日本的劳动者用梦游**的方式进行了建筑**，表达了对这一天的纪念。
+
+
+------------------------------------------------------------------------
+
+不过一开始就说了【睡醒的话】会去帮忙....所以严格来说不算**？
+
+
+-----
+
+####  呓亘  
+##### 14494#       发表于 2021-5-1 12:29
+
+
+？？？ 怎么ba****都屏蔽的.....
+
+
+-----
+
+####  呓亘  
+##### 14495#       发表于 2021-5-1 12:29
+
+
+emmmmm
+
+
+-----
+
+####  路人庚  
+##### 14496#       发表于 2021-5-1 12:34
+
+
+睡醒了才去帮忙这也是复刻当年的建筑王（迫真
+
+
+-----
+
+####  呓亘  
+##### 14497#       发表于 2021-5-1 12:39
+
+
+字幕组里有奇怪的处男！【一分钟带你看神楽めあ】
+
+这段杂谈挺舒服的 建议多来点
+
+
+                
