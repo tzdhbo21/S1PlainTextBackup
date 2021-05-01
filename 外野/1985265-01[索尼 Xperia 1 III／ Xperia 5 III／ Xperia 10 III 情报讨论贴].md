@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-19 03:16** 
+> ## **本文件最后更新于2021-05-01 01:51** 
 
 
 
@@ -40,7 +40,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103505d832a7mz52am82bq.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_1-768x432.jpg</strong> (9.91 KB, 下载次数: 0)
+<strong>Sony-Xperia-1-III-Mark-3_Render_1-768x432.jpg</strong> (9.91 KB, 下载次数: 3)
 
 下载附件
 
@@ -50,7 +50,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103506frrpzpxukuzozovv.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_2-768x432.jpg</strong> (11.31 KB, 下载次数: 0)
+<strong>Sony-Xperia-1-III-Mark-3_Render_2-768x432.jpg</strong> (11.31 KB, 下载次数: 3)
 
 下载附件
 
@@ -60,7 +60,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103506nfhc9uj2qn7z9epj.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_3-768x432.jpg</strong> (14 KB, 下载次数: 0)
+<strong>Sony-Xperia-1-III-Mark-3_Render_3-768x432.jpg</strong> (14 KB, 下载次数: 4)
 
 下载附件
 
@@ -70,7 +70,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103507m5icmgk6zidu2lci.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_4-768x432.jpg</strong> (13.97 KB, 下载次数: 0)
+<strong>Sony-Xperia-1-III-Mark-3_Render_4-768x432.jpg</strong> (13.97 KB, 下载次数: 2)
 
 下载附件
 
@@ -90,7 +90,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/104512tn9naa4e00t8na4n.png" referrerpolicy="no-referrer">
 
 
-<strong>Xperia-1-III-periscope-camera.png</strong> (46.54 KB, 下载次数: 0)
+<strong>Xperia-1-III-periscope-camera.png</strong> (46.54 KB, 下载次数: 2)
 
 下载附件
 
@@ -4638,8 +4638,7 @@ app应该很容易移植的<img src="https://static.saraba1st.com/image/smiley/f
 ####  黄耀明  
 ##### 324#       发表于 2021-4-18 08:40
 
-
-价格相当sony camera了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4814,4 +4813,409 @@ NC750，IER NW-510N那种自己不带降噪处理芯片的降噪耳机好像也�
 有线那个音质和降噪都不太行，早该淘汰了
 
 
-                                      
+-----
+
+####  月神侠  
+##### 339#       发表于 2021-4-19 16:54
+
+
+ 本帖最后由 月神侠 于 2021-4-19 16:57 编辑 
+
+1M3摄像头拍照测试<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">
+
+
+四个焦段，真香<img src="https://static.saraba1st.com/image/smiley/animal2017/030.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202104/19/165429cg6ttppgbt66hu0m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (1.04 MB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 16:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/19/165431gl383h9g0w97ggjz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (999.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 16:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/19/165433br2ooo2731a3g473.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (952.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 16:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/19/165428c2bqecn2neiyqe2z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (793.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-19 16:54 上传
+
+
+-----
+
+####  cleaner  
+##### 340#       发表于 2021-4-19 18:29
+
+
+索粉头子说是马达改了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  oskneo  
+##### 341#       发表于 2021-4-20 07:37
+
+
+<img src="https://p.sda1.dev/1/c243ab8fbacded77697ed90ef179f7b4/IMG_CMP_194382329.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  allenz2  
+##### 342#       发表于 2021-4-27 21:05
+
+；
+
+
+ 本帖最后由 allenz2 于 2021-4-28 10:15 编辑 
+
+[https://www.youtube.com/watch?v=qIsr2SFNCG4](https://www.youtube.com/watch?v=qIsr2SFNCG4)
+
+
+这次前置貌似也有点进步，上一代的太拉了；各种黑科技貌似也确认所有镜组可用
+
+
+昨天没看清楚视频前面部分，确认是4k同时开启120hz，亮度比上一代貌似有所提高，侧面的原google助手按键可以绑定任意程序，外放背部不再震动了
+
+
+-----
+
+####  lysh_233  
+##### 343#       发表于 2021-4-28 00:07
+
+
+话说一代1现在二手价格已经1700左右了，值得入手不？
+
+
+-----
+
+####  被雨困住的城市  
+##### 344#       发表于 2021-4-28 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51082907&amp;ptid=1985265" target="_blank">lysh_233 发表于 2021-4-28 00:07</a>
+
+话说一代1现在二手价格已经1700左右了，值得入手不？</blockquote>
+个人觉得不值吧，因为国产品牌855 6+128的机器，二手大概在1k多些吧
+
+
+-----
+
+####  lysh_233  
+##### 345#       发表于 2021-4-28 00:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51082939&amp;ptid=1985265" target="_blank">被雨困住的城市 发表于 2021-4-28 00:13</a>
+
+个人觉得不值吧，因为国产品牌855 6+128的机器，二手大概在1k多些吧</blockquote>
+国产没有4K完整屏···完全接受不了屏幕带孔
+
+
+-----
+
+####  被雨困住的城市  
+##### 346#       发表于 2021-4-28 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51083045&amp;ptid=1985265" target="_blank">lysh_233 发表于 2021-4-28 00:31</a>
+国产没有4K完整屏···完全接受不了屏幕带孔</blockquote>
+4k那国产确实是没有，但是不打孔的机器还是有的
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+
+
+-----
+
+####  allenz2  
+##### 347#       发表于 2021-4-28 01:10
+
+
+一代缺陷机，没必要
+
+
+-----
+
+####  wqm2008  
+##### 348#       发表于 2021-4-28 01:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51083045&amp;ptid=1985265" target="_blank">lysh_233 发表于 2021-4-28 00:31</a>
+
+国产没有4K完整屏···完全接受不了屏幕带孔</blockquote>
+一代使用体验感很烂，完全一个半成品。如果不是真的没选择不要买
+
+
+-----
+
+####  Cray  
+##### 349#       发表于 2021-4-28 03:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51081222&amp;ptid=1985265" target="_blank">allenz2 发表于 2021-4-27 21:05</a>
+
+https://www.youtube.com/watch?v=qIsr2SFNCG4
+
+
+这次前置貌似也有点进步，上一代的太拉了；各种黑科技貌似 ...</blockquote>
+毕竟现在所有镜头都能用上摄影大师的特性了。  之前那个前置和录普通视频只能用相机app。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leystage  
+##### 350#         楼主| 发表于 2021-4-28 13:27
+
+
+<blockquote>lysh_233 发表于 2021-4-28 00:07
+话说一代1现在二手价格已经1700左右了，值得入手不？</blockquote>
+1代不值得，等等2代吧。
+
+2和1完全不是一个水准的东西了
+
+
+-----
+
+####  哎哟卧槽了  
+##### 351#       发表于 2021-4-28 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51082907&amp;ptid=1985265" target="_blank">lysh_233 发表于 2021-4-28 00:07</a>
+话说一代1现在二手价格已经1700左右了，值得入手不？</blockquote>
+1代沒3.5,半成品的cinema pro（不過這個不重要）,沒有photo pro
+能接受的話就買吧，優點是握持感真的好，比1m2好拿
+
+—— 來自 Sony XQ-AT72, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yygundam  
+##### 352#       发表于 2021-4-28 21:08
+
+
+ 本帖最后由 yygundam 于 2021-4-28 21:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51082907&amp;ptid=1985265" target="_blank">lysh_233 发表于 2021-4-28 00:07</a>
+
+话说一代1现在二手价格已经1700左右了，值得入手不？</blockquote>
+作为前xperia 1无印的用户，我得提醒你一下这玩意的指纹非常非常烂，我这边6月到10月几乎一次都没有解锁成功过，冬天也解锁成功率不太行。此外就是蓝牙音频不太好，我这边有一副APTX TWS+协议的耳机出门几乎无法用，手机只要放在低于胸口的位置就开始疯狂断联。然后就是我这台的电源键在使用到半年的时候就塌陷了，键程比完好的时候短了一半。
+
+
+软件方面的常见问题我倒是比较少碰到，比如相机崩溃，过热，照片不保存之类我都没碰上，可能是软件更新已经大幅解决了吧。只是这代没有照相大师，阿索祖传的那个照相APP比较一般，自动模式有时候参数调整得很谜，晚上基本要自己手动调参数。（特别是白平衡，晚上在自动模式下基本是错的）。
+
+
+最后，如果一定要买的话记得不要更新安卓11，似乎问题很多。
+
+
+-----
+
+####  allenz2  
+##### 353#       发表于 2021-4-30 20:02
+
+
+ 本帖最后由 allenz2 于 2021-4-30 21:14 编辑 
+
+[https://b23.tv/JZb7Pf](https://b23.tv/JZb7Pf)
+
+钟文泽的简测来了，看个乐吧
+
+[https://www.bilibili.com/video/BV1Q84y1F7Rb](https://www.bilibili.com/video/BV1Q84y1F7Rb)
+
+花生说
+
+[https://www.bilibili.com/video/BV18f4y1p7Ur](https://www.bilibili.com/video/BV18f4y1p7Ur)
+
+著名嗦粉无与无限这次也KOL了
+
+
+价格也有了，Xperia1III 256G 8499软 / 512G 9499软，过于信仰，个人觉得索尼今年的定价有点离谱，如果6999/7999大家会很开心，除非买就送降噪大耳
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  zhongjie  
+##### 354#       发表于 2021-4-30 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51113073&amp;ptid=1985265" target="_blank">allenz2 发表于 2021-4-30 20:02</a>
+https://b23.tv/JZb7Pf
+
+钟文泽的简测来了，看个乐吧</blockquote>
+过于信仰了，9499不如买s21u，反正我自己是无法离开这种大而全的系统了，最好用的是就是类似大爆炸那样识屏，图片和不能复制的app里读文字，以及截屏翻译和复制文字
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  1e'z1  
+##### 355#       发表于 2021-4-30 21:14
+
+
+看了国内的测评，感觉1iii更香了是怎么回事。
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  leystage  
+##### 356#         楼主| 发表于 2021-4-30 21:21
+
+
+<blockquote>allenz2 发表于 2021-4-30 20:02
+https://b23.tv/JZb7Pf
+
+钟文泽的简测来了，看个乐吧
+
+</blockquote>
+国行估计首发会搭售点去年的耳机啥的？
+
+
+不过我应该是首发港版，国行价格无所谓了
+
+
+-----
+
+####  MuAmUa  
+##### 357#       发表于 2021-4-30 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51113073&amp;ptid=1985265" target="_blank">allenz2 发表于 2021-4-30 20:02</a>
+ https://b23.tv/JZb7Pf 钟文泽的简测来了，看个乐吧  </blockquote>
+钟文泽的最有意思<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MuAmUa  
+##### 358#       发表于 2021-4-30 23:01
+
+
+用过xperia 1和1ii的表示这次不考虑了，大法手机什么都好就是不好用
+
+
+-----
+
+####  wyjbnb  
+##### 359#       发表于 2021-5-1 01:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51113073&amp;ptid=1985265" target="_blank">allenz2 发表于 2021-4-30 20:02</a>
+
+https://b23.tv/JZb7Pf
+
+钟文泽的简测来了，看个乐吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这价格，太贵了吧，感觉没人买
+
+
+-----
+
+####  oskneo  
+##### 360#       发表于 2021-5-1 03:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51114487&amp;ptid=1985265" target="_blank">MuAmUa 发表于 2021-4-30 23:01</a>
+用过xperia 1和1ii的表示这次不考虑了，大法手机什么都好就是不好用</blockquote>
+具体有什么不好用呢？从iphone转xperia10年，其他手机没用过，不太了解
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  wuzhou6058  
+##### 361#       发表于 2021-5-1 08:26
+
+
+赶紧出，我好买mk2<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  哒哒哒ver1.01  
+##### 362#       发表于 2021-5-1 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51115682&amp;ptid=1985265" target="_blank">oskneo 发表于 2021-5-1 03:37</a>
+具体有什么不好用呢？从iphone转xperia10年，其他手机没用过，不太了解
+
+—— 来自 Sony XQ-AT52, Androi ...</blockquote>
+一些便利性功能和本地化的缺失吧，像是要使用完整nfc功能必须要root，不支持支付宝指纹支付，日历不会显示放假调休，手势截图等一些国产安卓手机经常见到的功能，别的我觉得差别不大。
+
+
+-----
+
+####  ulysses  
+##### 363#       发表于 2021-5-1 08:41
+
+
+只想用这套相机系统，5就足够了？
+
+
+-----
+
+####  wsktcy  
+##### 364#       发表于 2021-5-1 08:47
+
+
+现在阻止我换1 iii最大障碍就是拍照了，不知道有没有提升，是不是还是旗舰机里的垫底。xzp拍照拉胯让我彻底放弃了用手机拍照<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  哎哟卧槽了  
+##### 365#       发表于 2021-5-1 08:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51116115&amp;ptid=1985265" target="_blank">哒哒哒ver1.01 发表于 2021-5-1 08:39</a>
+一些便利性功能和本地化的缺失吧，像是要使用完整nfc功能必须要root，不支持支付宝指纹支付，日历不会显 ...</blockquote>
+本地化這塊的確沒辦法，不過用大法的一般就是想要類原生的效果。我的話本地化問題是用備機解決<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Sony XQ-AT72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  jajajzz  
+##### 366#       发表于 2021-5-1 09:02
+
+
+这onesony该不会真的能成吧 这就是重组sony电子的全部实力吗
+
+
+                                     
