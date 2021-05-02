@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-01 17:15** 
+> ## **本文件最后更新于2021-05-02 01:50** 
 
 
 
@@ -9503,7 +9503,9 @@ https://twitter.com/ebisuzzz/status/1388261076567920643</blockquote>
 ##### 721#       发表于 2021-5-2 01:03
 
 
-看完第六话我就这个表情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+ 本帖最后由 hinangel 于 2021-5-2 01:15 编辑 
+
+第四话我哭惨了但是这周的毫无波动……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -9521,9 +9523,32 @@ https://twitter.com/ebisuzzz/status/1388261076567920643</blockquote>
 ##### 723#       发表于 2021-5-2 01:06
 
 
+ 本帖最后由 whzfjk 于 2021-5-2 01:26 编辑 
+
 第 6 话感染力真不错，比第 4 话强<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
 
 红蓝血太歹毒了，就是等着这一幕才这么设计的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+事到如今这里的 AI 还是换成奇幻种族比较好，比如 xb2 的异刃（是女主角）或者魔塔大陆的 Laywatail（没错还是女主角），以下统称女主种族。
+
+比起单纯的黑命贵，女主种族的设定好处在于她们确实有类似 AI 的超越人类的机能但又依赖人类来发挥机能。
+
+这样一来12、34话都很好套，而且尤其适合56话这种强抢民女当邪恶科学柱子的桥段。
+
+
+强抢 AI 还把人逼自杀总感觉怪怪的。我感觉可以这么强行解释一下：
+
+1. Vivy 里 AI 高度依赖黑科技元件，模型和状态难以完全迁移，所以 AI lives matter；
+
+2. 牙木博士和中意的护士型 AI 朝夕相处，磨合出了应许的推理模型；
+
+3. 日升事件后，组织征集妹妹系列来探索希金斯那样的超级 AI，机缘巧合葛蕾丝模型的 benchmark 评分最高；
+
+4. 根据第 1 点，牙木博士事实上痛失爱人；
+
+5. 葛蕾丝的模型在反复训练后，也不再是原本的葛蕾丝了，但神经元上总有一些残留；
+
+6. AI 人权法不过是 AI 命名法的高配版本，核心还是命名，组织利用这一点改变了葛蕾丝的名字与使命，在因为命名法效果博士无权伸张自己对葛蕾丝的述求。
 
 
 -----
@@ -9535,4 +9560,501 @@ https://twitter.com/ebisuzzz/status/1388261076567920643</blockquote>
 隔几年一个单元剧 真是醉了。着拯救未来也太悠闲了点
 
 
-                         
+-----
+
+####  dingruntian2  
+##### 725#       发表于 2021-5-2 01:17
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/011513d0i0ei9l0icse0ek.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1619889251(1).jpg</strong> (99.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 01:15 上传
+
+
+不知道第七话米浴小宝贝能整出点什么烂活呢
+
+
+-----
+
+####  枪聆弹语  
+##### 726#       发表于 2021-5-2 01:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这一男一女的感情完全没有体现出来，导致全程麻木。
+
+但是套个AI的皮，这样“我要和医院里的护士妹子结婚了<img src="https://static.saraba1st.com/image/smiley/carton2017/347.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sorastlos  
+##### 727#       发表于 2021-5-2 01:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结尾我就在想我要是编剧就安排这男人自杀，进一步推进Vivy的自我认同危机
+
+下一个镜头就自杀了
+
+
+难怪分支剧情的线是红色的，Vivy要被一步步搞疯了，怕不是某人下的套
+
+
+-----
+
+####  whzfjk  
+##### 728#       发表于 2021-5-2 01:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123281&amp;ptid=1982987" target="_blank">dingruntian2 发表于 2021-5-2 01:17</a>
+
+不知道第七话米浴小宝贝能整出点什么烂活呢</blockquote>
+最近刚补完 UN-GO，里面人形 AI 基本是和瑟琴业和瑟琴管制绑在一起讲的，看着这透明裙露裤裤的妹妹机总感觉是官能使命的 AI（
+
+
+-----
+
+####  shadow001  
+##### 729#       发表于 2021-5-2 01:47
+
+
+這集令我想起可塑性記憶第5集,這種設定除了刻意製造衝突和悲劇外沒有任何意義<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lecia  
+##### 730#       发表于 2021-5-2 01:50
+
+
+合着除了开头的吴克，后面的女性型号ai全是歌姬的集美了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还有使命原来是不能改的吗？这些命题作文一样的使命万一出bug了难道直接报废？使命岂是如此不便之物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  whzfjk  
+##### 731#       发表于 2021-5-2 01:57
+
+
+ 本帖最后由 whzfjk 于 2021-5-2 01:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123432&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-2 01:47</a>
+
+這集令我想起可塑性記憶第5集,這種設定除了刻意製造衝突和悲劇外沒有任何意義 ...</blockquote>
+哪用第 5 集，从第 1 集开始就强行得不行，撑了 3 话看不下去了<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+设定上既然要类比侵入，就别搞计划报废，都 AI 了这点技术搞不定？
+
+
+-----
+
+####  Asukalangley33  
+##### 732#       发表于 2021-5-2 01:58
+
+
+看博士来岛上还以为要走最最土味的**AI追杀原机主，关键时刻被爱唤醒意识，最终自我毁灭终极牺牲的发展
+
+
+只能说安排博士去死一开始是没想到的，还以为他会跟废物小哥一样会成为剧情NPC
+
+
+-----
+
+####  loley  
+##### 733#       发表于 2021-5-2 02:07
+
+
+动作戏都挺好看的，其他的就不好评价了。唉，要是beatless有这制作的话就好了。
+
+
+-----
+
+####  shadow001  
+##### 734#       发表于 2021-5-2 02:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123480&amp;ptid=1982987" target="_blank">whzfjk 发表于 2021-5-2 01:57</a>
+
+哪用第 5 集，从第 1 集开始就强行得不行，撑了 3 话看不下去了
+
+设定上既然要类比侵入，就别搞计划 ...</blockquote>
+第5集是極致,AI過期可能會發狂襲擊人,而且戰鬥力還跟這片中戰鬥模式的VIVY差不多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  whzfjk  
+##### 735#       发表于 2021-5-2 02:43
+
+
+ 本帖最后由 whzfjk 于 2021-5-2 02:51 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/024334etitavllv7tb17tu.png" referrerpolicy="no-referrer">
+
+
+<strong>vivy.png</strong> (167.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 02:43 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/02/025043dlq1fqet1dkz11ac.jpg" referrerpolicy="no-referrer">
+
+
+<strong>343461201_m.jpg</strong> (22.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 02:50 上传
+
+
+-----
+
+####  大秧歌2  
+##### 736#       发表于 2021-5-2 02:59
+
+
+演出太棒了  我哭了！
+
+
+-----
+
+####  a12885084  
+##### 737#       发表于 2021-5-2 03:12
+
+
+制作和演出没什么挑剔的。但是也没有达到神回高度。个人观感上我觉得不够炫，而科幻还是要炫的。对21年才看EVA的我来说，如果今天一部番能近似EVA放到26年后的今天的水平，我觉得就够潮够炫够神回了。（非EVA和XG的原教旨主义神概念）。
+
+
+整体上看老派科幻味儿又强了一些。剧情不占我评分大头，老派科幻味儿在我这里不加分也不扣分。本来以为博士那里有反转结果没有，有点过于简单了。红蓝血那一幕很有意思，一手人类血一手AI血，还都是直接间接VIVY自己造成的。
+
+
+最重要的信息点是失控原因：停止程序与格蕾丝新使命冲突造成的BUG能直接造成失控。且巨浮岛主AI失控等于全岛机器人都失控。那么未来的全机器人无意识暴走大概率是八识塔主AI出BUG了。比如某某年人类决定把八识塔主AI换成姐妹系列的最新一代，更换使命的时候出BUG了。
+
+
+【停止程序】和【格蕾丝使命】冲突的BUG能造成巨浮岛失控，那VIVY【想要人类幸福的使命】和【事实上杀人】的冲突也可能造成VIVY的失控，大概VIVY标记变红是想暗示这个（底特律既视感）。
+
+
+看前两话的时候说VIVY是一个全A战士，看到现在设定部分开始往B掉了。演出也没有强到S。神回是没有神回的，在我的判准下整片也离神作越来越远。
+
+
+目前比较失望的地方就在这个设定。这个设定有些太机械降神了。
+
+
+AI造反正常逻辑下是需要动机的，可以是自认为对人类更好、对地球更好、认为自己有人权或者单纯被控制了，总之需要一个动机来达成对人的服从到仇恨的转变，因此“人类失去对AI的控制”，AI高速交换并统一了意见，决定造反。
+
+
+但是这一话给出的失控理由是“停止程序与格蕾丝新使命冲突造成的BUG能直接造成失控”。
+
+
+第一点：观感上太牵强。凭啥有你BUG就无条件扫射人类啊？人家底特律变红只是有自我意识，有自我意识之后爱人类恨人类是自我决断的。再往下一层，这种设定消解了AI对人类仇恨的产生，也即是前文说的动机。失控暴走的时候AI是没有自我意识的，所谓的“仇恨”并不存在。那么AI对人类的“服从-仇恨-和解/BE”的弧线就变成了“服从-无意识暴走-服从”，情感变化直接缺失了。哪怕你说普通AI是被反派BOSS操纵了，然后去讲反派BOSS的故事和他对人类的情感，也是把AI整体集中在了一个角色身上，也有在讲东西。而现在这个设定抛出来，没有讲故事的机会，直接靠设定空降，未免有些都合。
+
+
+第二点：失控全部连到使命设定上之后，使命这个设定本身不牢固。比如正片里AI只能拥有一个“使命”。然而这个使命又是模糊和可以多重解读的。格蕾丝甚至可以更换/增加使命（虽然VIVY认为巨浮岛AI不会唱歌、不具备意识，即原来的格蕾丝已经“死亡了”）。换句话说，使命这个设定就好像没有设定。与之相对，机器人三定律我个人看来就是个比较牢靠的设定。而失控，一个机械降神的设定又嫁接到这样一个无根之木上，在我看来就更危险了。
+
+
+总之与其说是AI，不如说是具备某种意识核心（可转移不可复制）的外星生命，能直接联网操纵数据，如果意识核心的某区域出现BUG就会无意识暴走，但是似乎会瞄准人类开枪。软科幻设定可以都和一些，那故事就希望讲好一些。希望VIVY后面能稳住！
+
+
+总之就是我观感上从AAAAAA变成了BAAAAA，希望下一单元可以加回来。
+
+
+-----
+
+####  Laie  
+##### 738#       发表于 2021-5-2 03:40
+
+
+ai只是一个被迫害他种族的套皮置换隐喻，剧作粗糙，演出强
+
+确实越看越像阿你妹界的底特律变人了，多一份re0典型的先构思好一个情感/行事冲突的情景，然后摁压着世界和人物逻辑来达至这个情景
+
+
+不过目前好歹还是比底特律时髦多了（个人偏差），叙事和设定上仍留有不少能腾挪反转的空间
+
+想了想SAC 2045光看一期也没好到哪里去
+
+
+-----
+
+####  [皆神孝介]  
+##### 739#       发表于 2021-5-2 03:50
+
+
+选姐妹系列果然还是因为老机型，有可以通过特殊手段变更使命的BUG吧？<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 740#       发表于 2021-5-2 05:56
+
+
+所以，是用Minecraft玩MACROSS？
+
+
+-----
+
+####  rynchee  
+##### 741#       发表于 2021-5-2 06:56
+
+
+旭日事件前博士是反AI组织的成员吧？那巨浮到到底是谁的财产？主张把护理AI弄成核心的科学家组织到底跟反AI组织有没有关系？
+
+其实最让我关注的反而是那位老被救的小哥（老哥）居然是知道VV身份的。那他20年来居然从来没有私下去找过VV的麻烦，居然还出乎预料得有点绅士风度？
+
+
+-----
+
+####  大秧歌2  
+##### 742#       发表于 2021-5-2 07:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123945&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-5-2 06:56</a>
+
+旭日事件前博士是反AI组织的成员吧？那巨浮到到底是谁的财产？主张把护理AI弄成核心的科学家组织到底跟反AI ...</blockquote>
+既然都愿意自我殉道不连累他人了绅士风度肯定有啊
+
+
+-----
+
+####  gofbayrf  
+##### 743#       发表于 2021-5-2 07:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">既然是BUG就修BUG呀 把AI這個BUG公開出來 兩年就修好了 下邊不用演了
+
+
+-----
+
+####  downforce  
+##### 744#       发表于 2021-5-2 08:18
+
+
+试着理解一下，把AI和人做对比：就是病毒（停止程序）被人（AI）的免疫系统（杀毒程序）识别，并且引发了超敏反应（系统暴走），攻击一切过敏源（所有来岛上的人和外来AI）。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  zakki  
+##### 745#       发表于 2021-5-2 08:19
+
+
+ 本帖最后由 zakki 于 2021-5-2 08:49 编辑 
+
+确实目前单从剧情上的观感不如beatless，beatless的设定很强，可惜画面太穷了
+
+
+-----
+
+####  lyz1196  
+##### 746#       发表于 2021-5-2 08:26
+
+
+ 本帖最后由 lyz1196 于 2021-5-2 08:28 编辑 
+
+隔壁鬼灭剧场版楼不是说工业煽情吗？这个就是例子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 747#       发表于 2021-5-2 08:27
+
+
+ 本帖最后由 JustW 于 2021-5-2 08:34 编辑 
+
+可以理解编剧想让不同单元剧之间建立因果关系，第二个节点vivy做的选择会影响第三个节点，但是，这理由编得实在是太缺乏说服力。sunrise事件被sister系列解决是如何快进到要让葛莱斯被强行修改使命装到岛上不生不死的，解释得很扯。博士的行动逻辑也比较迷惑，为什么岛会暴走也很迷惑。总之编剧不太擅长圆剧情。
+
+
+这集比较好的就是vivy没有被博士两句话说动又要去连葛莱斯一起救什么的，放出“我是毁灭AI的AI”的狠话然后一掌秒杀复制人也很帅。不过最后一幕未免过于致敬底特律，蓝圈变红了是吧，you are free是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 748#       发表于 2021-5-2 08:31
+
+
+ 本帖最后由 JustW 于 2021-5-2 08:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123311&amp;ptid=1982987" target="_blank">枪聆弹语 发表于 2021-5-2 01:22</a>
+
+这一男一女的感情完全没有体现出来，导致全程麻木。
+
+但是套个AI的皮，这样“我要和医院里的护士妹子 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实就是恋母情结啊
+
+
+母亲抛弃自己的绝望+温柔的拥抱与歌声，这时葛莱斯就在小时候的博士心中代替了母亲的位置。博士长大后区分不清这种代替和恋爱感情还挺符合逻辑的，就好像被父亲抛弃的女性会更偏爱年纪大自己不少的男性（eva美里？），至少这部分比起其它部分的展开要合理一点。
+
+
+-----
+
+####  格雷殿下  
+##### 749#       发表于 2021-5-2 08:33
+
+
+yysy,qs,为什么冲突bug以后就要狂暴呢，但是又有谁规定冲突bug以后不能狂暴呢。 
+
+
+-----
+
+####  デルフィニウム  
+##### 750#       发表于 2021-5-2 08:43
+
+
+ 本帖最后由 デルフィニウム 于 2021-5-2 08:58 编辑 
+
+AI和百年任务这两个点子从现在看是负面资产。前者让观众每集都吐槽AI情感过于丰富，科幻味不够。后者对应的单元剧让一部分角色退场过快，感情铺垫不到位；另一些角色则被迫当劳模，集集出场，看op还有成为boss的潜力。另外故事里过于开放的时间和空间也削弱了故事的严谨性，这恐怕是个雷。
+
+如果最终能好好利用这两个点还是能给好评的，虽然前6集剧本几乎没有展现这种能力
+
+
+
+
+-----
+
+####  哈露尼娅  
+##### 751#       发表于 2021-5-2 08:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124253&amp;ptid=1982987" target="_blank">JustW 发表于 2021-5-2 08:31</a>
+
+其实就是恋母情结啊
+
+
+母亲抛弃自己的绝望+温柔的拥抱与歌声，这时葛莱斯就在小时候的博士心中代替 ...</blockquote>
+差不多得了，怎么又一转弗洛伊德
+
+
+-----
+
+####  D-JoeII  
+##### 752#         楼主| 发表于 2021-5-2 09:00
+
+
+松本厲害啊
+
+議員更活躍了, 日昇事件搞出無人島, 這次再把一對夫妻搞得同日去世
+
+他不是大反派就是真蠢貨AI<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白头新知  
+##### 753#       发表于 2021-5-2 09:11
+
+
+剧情比较差，vivy简直是翻版的紫薇，莫得感情的战场女武神。主角基本上没有遇到什么很大的阻力，让人揪心不起来。
+
+
+-----
+
+####  406  
+##### 754#       发表于 2021-5-2 09:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123734&amp;ptid=1982987" target="_blank">Laie 发表于 2021-5-2 03:40</a>
+
+ai只是一个被迫害他种族的套皮置换隐喻，剧作粗糙，演出强
+
+确实越看越像阿你妹界的底特律变人了，多一份re0 ...</blockquote>
+可是5-8是梅原写的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  406  
+##### 755#       发表于 2021-5-2 09:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124229&amp;ptid=1982987" target="_blank">JustW 发表于 2021-5-2 08:27</a>
+
+可以理解编剧想让不同单元剧之间建立因果关系，第二个节点vivy做的选择会影响第三个节点，但是，这理由编得 ...</blockquote>
+看前面姐妹复制实验需要实时复制还半失败了，一个完成度较高的AI怕是至少需要所谓的自律型自我进化几年才能做到吧，所以比起新造一个直接选了现成的姐妹系列中人气最高的。
+
+至于半死不活什么的，除了博士这种投入感情的，谁会觉得AI会半死不活啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gofbayrf  
+##### 756#       发表于 2021-5-2 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124494&amp;ptid=1982987" target="_blank">406 发表于 2021-5-2 09:19</a>
+看前面姐妹复制实验需要实时复制还半失败了，一个完成度较高的AI怕是至少需要所谓的自律型自我进化几年才 ...</blockquote>
+可是熊哥 單靠二十年前的垃圾單機非ai 設備（玩具熊）就完成傳輸和超量儲存 不能复制完全就是菜
+
+
+-----
+
+####  哈露尼娅  
+##### 757#       发表于 2021-5-2 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124507&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-2 09:22</a>
+
+可是熊哥 單靠二十年前的垃圾單機非ai 設備（玩具熊）就完成傳輸和超量儲存 不能复制完全就是菜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">松本难道不菜嘛
+
+
+-----
+
+####  JustW  
+##### 758#       发表于 2021-5-2 09:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124380&amp;ptid=1982987" target="_blank">哈露尼娅 发表于 2021-5-2 08:57</a>
+差不多得了，怎么又一转弗洛伊德</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜我没看过弗洛伊德
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  406  
+##### 759#       发表于 2021-5-2 09:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124507&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-2 09:22</a>
+
+可是熊哥 單靠二十年前的垃圾單機非ai 設備（玩具熊）就完成傳輸和超量儲存 不能复制完全就是菜 ...</blockquote>
+你就不能把这个视为100年后super AI的super之处吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">松本再任务失败，好歹也给有点超前的地方吧
+
+
+-----
+
+####  406  
+##### 760#       发表于 2021-5-2 09:41
+
+
+不过这方面松本的确挺super了，自身数据都可以直接穿越时间了，不过这种玄学的设定应该不会圆个原理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  a12885084  
+##### 761#       发表于 2021-5-2 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124183&amp;ptid=1982987" target="_blank">downforce 发表于 2021-5-2 08:18</a>
+ 试着理解一下，把AI和人做对比：就是病毒（停止程序）被人（AI）的免疫系统（杀毒程序）识别，并且引发了超 ...</blockquote>
+可是他们不打别的AI，专挑人打（第一话开头）
+硬洗只能说使命里有人类这个词，暴走之后依旧对这个词开火…？
+
+
+                        
