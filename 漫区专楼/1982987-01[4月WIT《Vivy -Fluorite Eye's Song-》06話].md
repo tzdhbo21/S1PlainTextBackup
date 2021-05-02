@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-02 01:50** 
+> ## **本文件最后更新于2021-05-02 04:54** 
 
 
 
@@ -10017,9 +10017,10 @@ ai只是一个被迫害他种族的套皮置换隐喻，剧作粗糙，演出强
 ##### 758#       发表于 2021-5-2 09:39
 
 
+ 本帖最后由 JustW 于 2021-5-2 10:27 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124380&amp;ptid=1982987" target="_blank">哈露尼娅 发表于 2021-5-2 08:57</a>
 差不多得了，怎么又一转弗洛伊德</blockquote>
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜我没看过弗洛伊德
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜我没看过弗洛伊德，不过只有这样才能解释为啥想和小时候见过的护士结婚吧，难道是因为欧派吗
 
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
@@ -10057,4 +10058,250 @@ ai只是一个被迫害他种族的套皮置换隐喻，剧作粗糙，演出强
 硬洗只能说使命里有人类这个词，暴走之后依旧对这个词开火…？
 
 
-                        
+-----
+
+####  flypig_zhy  
+##### 762#       发表于 2021-5-2 09:57
+
+
+左手人类右手AI，啧
+
+
+这个松本踩错油门了吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 763#       发表于 2021-5-2 10:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124660&amp;ptid=1982987" target="_blank">flypig_zhy 发表于 2021-5-2 09:57</a>
+
+左手人类右手AI，啧
+
+
+这个松本踩错油门了吧</blockquote>
+大概松本开的是特斯拉
+
+
+-----
+
+####  LinkerWeg  
+##### 764#       发表于 2021-5-2 10:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+OP副歌插入还是可以的，但是前段是真的不耐听啊orz。
+
+剧情看到现在还是毫无感觉，倒是设定这层皮越来越魔幻了
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 765#       发表于 2021-5-2 10:19
+
+
+这集一般，其实是作为观众的我不太在乎这对配角夫妇的感情史啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，然而为了煽情讲的有点多了，好在后半段突击演出还行；另外松本的小摩造型土爆了，简直是minecraft啊
+
+
+-----
+
+####  flypig_zhy  
+##### 766#       发表于 2021-5-2 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124780&amp;ptid=1982987" target="_blank">爱吃冻鳗的猫 发表于 2021-5-2 10:19</a>
+
+这集一般，其实是作为观众的我不太在乎这对配角夫妇的感情史啊，然而为了煽情讲的有点多了，好在后 ...</blockquote>
+感情史是拿来干VIVY的，一开始小飞机我幻视GP-03D
+
+
+-----
+
+####  2-gua  
+##### 767#       发表于 2021-5-2 10:39
+
+
+ 本帖最后由 2-gua 于 2021-5-2 10:42 编辑 
+
+按照设定再造一个葛蕾丝完全可以吧，非要抓现成的，难道二手机比新机要好用吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flypig_zhy  
+##### 768#       发表于 2021-5-2 10:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124896&amp;ptid=1982987" target="_blank">2-gua 发表于 2021-5-2 10:39</a>
+
+按照设定再造一个格蕾茜完全可以吧，非要抓现成的，难道二手机比新机要好用吗
+
+ ...</blockquote>
+重要的是人格核心和记忆吧
+
+
+-----
+
+####  rynchee  
+##### 769#       发表于 2021-5-2 10:46
+
+
+这个篇章里面，格蕾丝不是关键，关键是要搞VV心态。之前的篇章里面，不管是议员事件还是旅馆事件，最终的结果都是VV救了本来会死去的人类。VV也是因此从一开始的排斥到接受了奇点计划。
+
+然而这个篇章里面，反AI组织死了一半以上的人是因为VV把停岛程序带到岛上，如果这只是间接造成的后果，那么博士的死完全是因为VV得行为造成的，毕竟原本历史里面博士根自己的AI老婆一直好好生活着。
+
+博士跟一开始给VV起名的妹子还不一样。妹子是在原本历史里也飞机失事死了，现在还是死了，并没有什么变化。但是博士确实原本历史活着这次死了。这才是最搞VV心态的，甚至破坏了VV的使命。
+
+这个篇章的关键应该是这里，上一集VV刚刚开始积极面对奇点计划，然后这一集马上被搞心态。我猜测VV甚至可能因此暂时报废。所以下一集的新AI应该应该是取代VV成为游乐园新的表演者。
+
+
+-----
+
+####  sta777  
+##### 770#       发表于 2021-5-2 10:49
+
+
+看完这话又犯困补了个觉，梦里苦逼女主直接换造型变机器猫了。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Duc_d'_Muka  
+##### 771#       发表于 2021-5-2 10:59
+
+
+现在看来问题还是不少的，强行把护士型当岛的核心逻辑略显牵强，对于ai的塑造（普遍太像人）还是有很大问题的。总感觉以现在的趋势结局超鬼的可能性大起来了？
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 772#       发表于 2021-5-2 11:04
+
+
+下限底特律，这类题材看得太多，也就图个爽，结局怎么整估计都不会太超出预料，除非整个和**大叔好上了，不然我都不会惊掉下巴的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pzk  
+##### 773#       发表于 2021-5-2 11:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">怎么可以这么土啊我佛了
+
+要是把博士对AI的恋母情结做好做细一点我还能给好评，现在不行
+
+
+-----
+
+####  wrnk  
+##### 774#       发表于 2021-5-2 11:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124576&amp;ptid=1982987" target="_blank">JustW 发表于 2021-5-2 09:39</a>
+
+可惜我没看过弗洛伊德，不过只有这样才能解释为啥想和小时候见过的护士结婚吧，难道是因为欧派吗
+
+ ...</blockquote>
++1 我一看到回忆里面博士幼年跟女护士的互动就想到弗洛伊德 这哥们绝对是年上控加恋母 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 775#       发表于 2021-5-2 11:28
+
+
+其实这集护士造型总让我想起某著名黄油
+
+
+bmp00275.jpg
+(169.99 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-2 11:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/112832p3ci2ca2bpavic8a.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 776#       发表于 2021-5-2 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51125031&amp;ptid=1982987" target="_blank">Duc_d'_Muka 发表于 2021-5-2 10:59</a>
+
+现在看来问题还是不少的，强行把护士型当岛的核心逻辑略显牵强，对于ai的塑造（普遍太像人）还是有很大问题 ...</blockquote>
+可能是现在炼丹的太多，导致泥潭普遍对AI认知是人工智障。
+
+这儿的AI得说是强AI，甚至不如理解为灵魂。这样就合乎逻辑多了。
+
+
+-----
+
+####  aptx8285144  
+##### 777#       发表于 2021-5-2 12:24
+
+
+目前最温暖人心的是第二个故事，可是这个故事却奇特地导致了第三个故事的不幸，简直了<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 778#       发表于 2021-5-2 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123945&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-5-2 06:56</a>
+
+旭日事件前博士是反AI组织的成员吧？那巨浮到到底是谁的财产？主张把护理AI弄成核心的科学家组织到底跟反AI ...</blockquote>
+好歹是被救过的人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，就算是找麻烦也是光明正大的来不会是搞啥私底来吧
+
+
+-----
+
+####  aptx8285144  
+##### 779#       发表于 2021-5-2 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124451&amp;ptid=1982987" target="_blank">白头新知 发表于 2021-5-2 09:11</a>
+
+剧情比较差，vivy简直是翻版的紫薇，莫得感情的战场女武神。主角基本上没有遇到什么很大的阻力，让人揪心不 ...</blockquote>
+有一说一，比起tv版的紫薇还是讨喜很多的<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">，和松本对话的心理不断变化诠释也明显
+
+
+-----
+
+####  aptx8285144  
+##### 780#       发表于 2021-5-2 12:35
+
+
+ 本帖最后由 aptx8285144 于 2021-5-2 12:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51124930&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-5-2 10:46</a>
+
+这个篇章里面，格蕾丝不是关键，关键是要搞VV心态。之前的篇章里面，不管是议员事件还是旅馆事件，最终的结 ...</blockquote>
+这个搞她心态还有一点是因为姐妹机挽救行动成功后反而影响到博士的妻子成为主机维护吧
+
+
+
+
+-----
+
+####  aptx8285144  
+##### 781#       发表于 2021-5-2 12:36
+
+
+演出不错，<strong>薇薇和博士心态变化也很合理，但是这个故事矛盾冲突没有前面两个合理了</strong>，护士的悲剧和结局都有太强烈的背景杀的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+                       
