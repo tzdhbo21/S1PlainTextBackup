@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-02 09:43** 
+> ## **本文件最后更新于2021-05-02 17:14** 
 
 
 
@@ -10697,4 +10697,537 @@ vivy不也被打了？
 VIVY是偽造履歷進島,在島的系統上她應該是人類
 
 
-                      
+-----
+
+####  selain.meneth  
+##### 812#       发表于 2021-5-2 18:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51126692&amp;ptid=1982987" target="_blank">Ditfran 发表于 2021-5-2 14:38</a>
+
+这么多集了，女主作为一个歌姬只唱过一首歌（还是OP），什么时候能有新歌 ...</blockquote>
+第三集OP也是女主角的歌吧
+
+
+-----
+
+####  HGCG3  
+##### 813#       发表于 2021-5-2 18:11
+
+
+四舍五入VIVY就是电脑奇侠和超人机的妹妹了
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gq48szdkelj21hc0u0hdu.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gq48tr7xupj20ld0ik4qp.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gq48vihcr8j208c0bo0xq.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  owada  
+##### 814#       发表于 2021-5-2 18:14
+
+
+俺觉得这集害挺好看的呢
+
+
+-----
+
+####  kxh007458  
+##### 815#       发表于 2021-5-2 18:18
+
+
+<blockquote>pokemon最爱 发表于 2021-5-2 16:02
+Sisters系列是以Vivy为原型机的自律型AI相比其他AI要高等不少吧。
+
+如果说其他AI就是根据给定的程序（使命 ...</blockquote>
+隔壁U咩人里的AI也有跨越奇点的说法，所以这个奇点计划的真正目的还真不好说。
+
+
+-----
+
+####  hqtkkb  
+##### 816#       发表于 2021-5-2 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51126476&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-2 14:04</a>
+
+使命这个设定也就是对于基础款AI管用，对于Vivy和她的妹妹们，貌似完全可以通过曲解使命来曲线救国。 ...</blockquote>
+曲解使命？阿西莫夫直呼内行。这个说法我也考虑过，但人几十年前玩烂的东西你现在还拿来当基础设定是不是太low了点……
+
+使命这种描述模糊粗糙，随便找个人都能钻空子的东西，正常情况下程序员脑子到底出了什么问题才会拿来给一个在社会中承担某项重要职能的ai当行为准则？如果说ai已经智能到可以轻易理解这些模糊的概念的话，我又很难相信这种级别的ai会被一句简单的陈述句所束缚。
+
+
+-----
+
+####  flypig_zhy  
+##### 817#       发表于 2021-5-2 18:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128096&amp;ptid=1982987" target="_blank">hqtkkb 发表于 2021-5-2 18:18</a>
+
+曲解使命？阿西莫夫直呼内行。这个说法我也考虑过，但人几十年前玩烂的东西你现在还拿来当基础设定是不是 ...</blockquote>
+黄金三巨头就算久了有什么好low的，如果有人能翻拍个《神们自己》我举双脚欢迎
+
+
+-----
+
+####  hqtkkb  
+##### 818#       发表于 2021-5-2 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128292&amp;ptid=1982987" target="_blank">flypig_zhy 发表于 2021-5-2 18:46</a>
+
+黄金三巨头就算久了有什么好low的，如果有人能翻拍个《神们自己》我举双脚欢迎 ...</blockquote>
+我的意思是同样的设定还来搞相同的桥段那就太无聊了，你又不是翻拍……
+
+
+-----
+
+####  HGCG3  
+##### 819#       发表于 2021-5-2 18:54
+
+
+我算是知道这片缺少什么了
+
+VIVY少一个黑魔和顶级枪手那样的宿敌
+
+
+-----
+
+####  acejoe  
+##### 820#       发表于 2021-5-2 19:44
+
+
+这话也太无趣了吧，不是微博说会非常想看下一话吗？
+
+
+-----
+
+####  acejoe  
+##### 821#       发表于 2021-5-2 20:05
+
+
+光是ai和机体绑定，ai必定有“人格”而不是“ai格”，这两点就给这片有了无数漏洞。
+
+一种又想要以前的机器人矛盾，又想贴近ai这个概念，现在就是4不像，还不如底特律。
+
+
+-----
+
+####  gofbayrf  
+##### 822#       发表于 2021-5-2 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51127582&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-2 17:02</a>
+
+松本也不知道使命矛盾BUG,估計這BUG是SISTERS系列特有,她們的AI和其他AI不同
+
+正史在SUNRISE事件後應該是把S ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer"> 這是ROMAN X 的設定
+
+
+-----
+
+####  白玫瑰之夜  
+##### 823#       发表于 2021-5-2 21:03
+
+
+使命还能被扭曲的，想了想hso<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  青菜子  
+##### 824#       发表于 2021-5-2 21:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真有这么逼真的AI怕不是大半人类都要和ai结婚了，连暴力都不用就慢慢灭亡了，脑浆都给你🐍出来
+
+
+-----
+
+####  selain.meneth  
+##### 825#       发表于 2021-5-2 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128369&amp;ptid=1982987" target="_blank">HGCG3 发表于 2021-5-2 18:54</a>
+
+我算是知道这片缺少什么了
+
+VIVY少一个黑魔和顶级枪手那样的宿敌</blockquote>
+我也觉得，要是有个和VIVY斗个一百年的敌方AI就好了。
+
+
+-----
+
+####  HGCG3  
+##### 826#       发表于 2021-5-2 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51129413&amp;ptid=1982987" target="_blank">selain.meneth 发表于 2021-5-2 21:17</a>
+
+我也觉得，要是有个和VIVY斗个一百年的敌方AI就好了。</blockquote>
+KB分子大叔太菜了，完全不能成为宿敌
+
+
+-----
+
+####  JustW  
+##### 827#       发表于 2021-5-2 21:28
+
+
+别说宿敌了，我觉得不谈恋爱我就得谢谢编剧了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  空气先生  
+##### 828#       发表于 2021-5-2 21:30
+
+
+我也觉得这集挺好看的
+
+
+-----
+
+####  zerorin  
+##### 829#       发表于 2021-5-2 21:53
+
+
+什么时候能有新歌啊，你这歌姬怎么天天就在播op<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  嘉峪君  
+##### 830#       发表于 2021-5-2 21:57
+
+
+这集别的不说，vivy一路突入直袭核心的那一段演出还是极为高能过瘾的。
+
+
+-----
+
+####  亚瑟邓特  
+##### 831#       发表于 2021-5-2 22:44
+
+
+我建议俩大佛别费劲绕着使命编剧情了，把阿西莫夫机器人短篇集串一下改个美少女皮做出来绝对更讨婆罗门喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  regular  
+##### 832#       发表于 2021-5-2 23:13
+
+
+这Grace的情节还是有点强行吧，sister系列获得好评，那你再造一台上岛当中控不就得了。
+
+
+还有使命改了一回没出事，给了个停止命令反而出事了，然后松本表示自己没料到这件事......
+
+
+别下集告诉我AI的评价没受什么影响，都是死了的博士和反AI组织的锅，然后AI又又又加速了。
+
+
+-----
+
+####  dreamd  
+##### 833#       发表于 2021-5-2 23:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">按这片一开始的期待度我觉得做成这样可以了，就是歌少了点
+
+
+-----
+
+####  afsd109  
+##### 834#       发表于 2021-5-2 23:20
+
+
+<blockquote>regular 发表于 2021-5-2 23:13
+这Grace的情节还是有点强行吧，sister系列获得好评，那你再造一台上岛当中控不就得了。
+
+
+还有使命改了一回 ...</blockquote>
+感觉下回应该时间跨度就不会太久，vivy影响后没法继续唱歌然后黑纱sister代打结果没啥客人来听，两集搞定后最后四集再讲vivy和松本博士的故事收尾。
+
+
+-----
+
+####  flypig_zhy  
+##### 835#       发表于 2021-5-2 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130070&amp;ptid=1982987" target="_blank">亚瑟邓特 发表于 2021-5-2 22:44</a>
+
+我建议俩大佛别费劲绕着使命编剧情了，把阿西莫夫机器人短篇集串一下改个美少女皮做出来绝对更讨婆罗门喜欢 ...</blockquote>
++1,我也这样觉得
+
+
+-----
+
+####  LeonsCat  
+##### 836#       发表于 2021-5-2 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130272&amp;ptid=1982987" target="_blank">regular 发表于 2021-5-2 23:13</a>
+
+这Grace的情节还是有点强行吧，sister系列获得好评，那你再造一台上岛当中控不就得了。
+
+
+还有使命改了一回 ...</blockquote>
+这个三四集说了，哪怕是同步的真姐妹机，也有些许不同，所谓AI数据不只是硬盘里那些。（虽然怎么看都是当时Estella和Elizabeth姐妹在先聊聊姐妹私话，等不及的傻逼研究人员就说完了失败了。。。
+
+
+-----
+
+####  a12885084  
+##### 837#       发表于 2021-5-2 23:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130070&amp;ptid=1982987" target="_blank">亚瑟邓特 发表于 2021-5-2 22:44</a>
+ 我建议俩大佛别费劲绕着使命编剧情了，把阿西莫夫机器人短篇集串一下改个美少女皮做出来绝对更讨婆罗门喜欢 ...</blockquote>
+人家要做AI，不是机器人<img src="https://static.saraba1st.com/image/smiley/carton2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 838#       发表于 2021-5-2 23:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128096&amp;ptid=1982987" target="_blank">hqtkkb 发表于 2021-5-2 18:18</a>
+
+曲解使命？阿西莫夫直呼内行。这个说法我也考虑过，但人几十年前玩烂的东西你现在还拿来当基础设定是不是 ...</blockquote>
+那就只能怪科幻没啥太大进步导致多年前老梗还能……
+
+
+-----
+
+####  梦诗歌雪  
+##### 839#       发表于 2021-5-2 23:49
+
+
+<blockquote>mhfdt 发表于 2021-5-2 16:02
+有些人对于人工智能有一个概念没搞清楚，所谓人工智能不是一诞生就是万能的，学习是很重要的一个环节，这几 ...</blockquote>
+伊丽莎白又可以随便当垃圾丢掉，虽然那个时候可能还没有ai人权法但既然培训一个ai这么麻烦，直接丢垃圾场也太扯了。给人感觉就是一切为了剧情大方向发展分支剧情都可以强行上马
+
+
+-----
+
+####  梦诗歌雪  
+##### 840#       发表于 2021-5-2 23:53
+
+
+<blockquote>青菜子 发表于 2021-5-2 21:05
+真有这么逼真的AI怕不是大半人类都要和ai结婚了，连暴力都不用就慢慢灭亡了，脑浆都给你🐍出来 ...</blockquote>
+我也在想为什么姐妹系列发展了那么多年才有人跟机器人结婚，按说刚开发出来没几年就会有大批人要跟机器人结婚才对，使命设定成陪伴某个具体人共度一生的机器人肯定也很有市场，还不会变老
+
+
+
+
+-----
+
+####  regular  
+##### 841#       发表于 2021-5-2 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130489&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-2 23:40</a>
+
+这个三四集说了，哪怕是同步的真姐妹机，也有些许不同，所谓AI数据不只是硬盘里那些。（虽然怎么看都是当 ...</blockquote>
+有新岗位，新造一台Sister给与新使命，一般思路是这样的吧。
+
+
+再说Grace本来也不是干AI工厂厂长的啊，是个护士啊，也没有能同步的事吧。
+
+
+-----
+
+####  兔姬姬姬姬姬  
+##### 842#       发表于 2021-5-3 00:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">前几集就想说了，这op画面怎么全是这几集内容的剪辑，好像快回收光了吧，不知道之后有没有正式的op
+
+
+-----
+
+####  LeonsCat  
+##### 843#       发表于 2021-5-3 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130600&amp;ptid=1982987" target="_blank">regular 发表于 2021-5-2 23:57</a>
+
+有新岗位，新造一台Sister给与新使命，一般思路是这样的吧。
+
+
+再说Grace本来也不是干AI工厂厂长的啊，是 ...</blockquote>
+让Grace当核心，是因为Grace长时间作为护士，培养出了温柔且顾虑周全的性格，这个要从头培养第一花时间第二未必能重现，而设定上哪怕直接拷贝她的硬盘到新造姐妹机上也未必能重现。
+
+说白了，把AI理解为灵魂比较好。。。
+
+
+-----
+
+####  regular  
+##### 844#       发表于 2021-5-3 00:02
+
+
+对了，阿斯莫夫写的那个负责微波传输卫星的传教机器人，是不是就相当于给自己开发了一个使命<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 845#       发表于 2021-5-3 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130555&amp;ptid=1982987" target="_blank">梦诗歌雪 发表于 2021-5-2 23:49</a>
+
+伊丽莎白又可以随便当垃圾丢掉，虽然那个时候可能还没有ai人权法但既然培训一个ai这么麻烦，直接丢垃圾场 ...</blockquote>
+硬要圆，就是第一这个不是赋予完全人权（或者根据获得使命之类节点逐步赋予），第二是个不溯及以往的法案。
+
+不过还是觉得太强行，简直有股学园都市的研究者的风格了。
+
+
+-----
+
+####  regular  
+##### 846#       发表于 2021-5-3 00:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130626&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-3 00:02</a>
+
+让Grace当核心，是因为Grace长时间作为护士，培养出了温柔且顾虑周全的性格，这个要从头培养第一花时间第 ...</blockquote>
+哦，我是觉得应该重新培养一个。
+
+
+不过说实在的Grace改命了之后本来也干得好好的.....
+
+
+-----
+
+####  gofbayrf  
+##### 847#       发表于 2021-5-3 00:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130626&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-3 00:02</a>
+让Grace当核心，是因为Grace长时间作为护士，培养出了温柔且顾虑周全的性格，这个要从头培养第一花时间第 ...</blockquote>
+但是直接打散了 可以分割成工程機卻不能复制 這就說不通... 真把記憶模块物理切割一千份了？
+
+
+-----
+
+####  LeonsCat  
+##### 848#       发表于 2021-5-3 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130665&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-3 00:09</a>
+
+但是直接打散了 可以分割成工程機卻不能复制 這就說不通... 真把記憶模块物理切割一千份了？ ...</blockquote>
+就，理解为，其实这个所谓AI的数据不是单纯硬盘里的0和1，而是和整个机体的组成部分都有关的，无法完美复制，改动也要重新适应，类似残疾人换新义肢也要重新适应这种？
+
+
+-----
+
+####  gofbayrf  
+##### 849#       发表于 2021-5-3 00:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130681&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-3 00:12</a>
+就，理解为，其实这个所谓AI的数据不是单纯硬盘里的0和1，而是和整个机体的组成部分都有关的，无法完美复 ...</blockquote>
+可是這又跟白的設定沖突了 松本一個格式化命令 白就回到出廠狀態了     按靈魂論失憶了的白還是白   把主機割回家拼一個 護士格蕾斯不就重生了  那點記憶丟了就丟了 
+
+
+-----
+
+####  LeonsCat  
+##### 850#       发表于 2021-5-3 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130729&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-3 00:22</a>
+
+可是這又跟白的設定沖突了 松本一個格式化命令 白就回到出廠狀態了     按靈魂論失憶了的白還是白   把主 ...</blockquote>
+不是格式化，而是回到赋予使命之前，可能赋予使命真的就是一个非常关键的节点。
+
+而让Grace回到赋予使命之前，那不就是个普通姐妹机……
+
+
+-----
+
+####  gofbayrf  
+##### 851#       发表于 2021-5-3 00:32
+
+
+ 本帖最后由 gofbayrf 于 2021-5-3 00:35 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130745&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-3 00:26</a>
+不是格式化，而是回到赋予使命之前，可能赋予使命真的就是一个非常关键的节点。
+
+而让Grace回到赋予使命之 ...</blockquote>
+并不普通 起碼能做到跟工程機同等帶有原來人格特征的轉生   老婆不愛你而已  你愛老婆不就行了  不當成轉生也可以當成承繼了意志的女兒....  
+
+
+-----
+
+####  LeonsCat  
+##### 852#       发表于 2021-5-3 00:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130778&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-3 00:32</a>
+
+并不普通 起碼能做到跟工程機同等帶有原來人格特征的轉生   老婆不愛你而已  你愛老婆不就行了  不當成轉 ...</blockquote>
+这说起来感觉一样虐……
+
+
+-----
+
+####  skgaminger1988  
+##### 853#       发表于 2021-5-3 00:55
+
+
+只要无视掉之前的ai人权法和日升坠落应该让ai社会地位提升这个问题 接受格蕾丝就得被放进巨浮岛的设定 这集还是挺好看的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  susan28  
+##### 854#       发表于 2021-5-3 00:57
+
+
+怎么又是刀啊 
+
+
+不过中间表白那段 挺甜的  （不是谁都可以）
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/005722qguenuf7t26ff30l.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 06 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (113.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 00:57 上传
+
+
+-----
+
+####  LeonsCat  
+##### 855#       发表于 2021-5-3 01:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130882&amp;ptid=1982987" target="_blank">skgaminger1988 发表于 2021-5-3 00:55</a>
+
+只要无视掉之前的ai人权法和日升坠落应该让ai社会地位提升这个问题 接受格蕾丝就得被放进巨浮岛的设定 这集 ...</blockquote>
+小格啊，你看看你姐姐为了救人牺牲了自己，是个大写的AI，伟大的AI。现在有个艰巨的任务，能够更好得让AI帮助人类，继承和发扬你姐姐的遗志。作为她的妹妹，希望你有足够高的觉悟~
+
+
+                     

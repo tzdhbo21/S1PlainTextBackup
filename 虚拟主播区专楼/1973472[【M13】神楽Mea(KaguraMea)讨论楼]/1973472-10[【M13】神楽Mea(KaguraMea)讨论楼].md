@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-02 11:37** 
+> ## **本文件最后更新于2021-05-02 17:09** 
 
 
 
@@ -11172,4 +11172,328 @@ emmmm 棉花糖回...我的棉花糖回...
 <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">10点啊。萧瑟前辈BO3打完应该正好
 
 
-              
+-----
+
+####  时间在我手中  
+##### 14552#       发表于 2021-5-2 21:23
+
+
+ 本帖最后由 时间在我手中 于 2021-5-2 22:03 编辑 
+
+看完比赛了，臭女人唱点嗨歌，我要半夜看神枪手happy暴打震动队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推迟到10点半了
+
+
+-----
+
+####  Klience  
+##### 14553#       发表于 2021-5-2 22:04
+
+
+改了 10点半<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14554#       发表于 2021-5-2 22:04
+
+
+这B是不是又在打游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 14555#       发表于 2021-5-2 22:06
+
+
+逼我6657和比比利利二选一是吧<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  路人庚  
+##### 14556#       发表于 2021-5-2 22:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">答案（也许）是野男人mmorpg
+
+
+-----
+
+####  Klience  
+##### 14557#       发表于 2021-5-2 22:06
+
+
+之前在打自定义 自己人跟自己人打 打了几局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  A2014720  
+##### 14558#       发表于 2021-5-2 22:09
+
+
+什么大乱交…
+
+
+-----
+
+####  Klience  
+##### 14559#       发表于 2021-5-2 22:11
+
+
+就自定义房间 还有ban位 像排位那种 打完opgg不会显示在上面 就是个友谊赛差不多 不过你麻也只能玩混子英雄<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14560#       发表于 2021-5-2 22:14
+
+
+九黑一麻<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14561#       发表于 2021-5-2 22:15
+
+
+我服了，什么杏瘾😅
+
+
+-----
+
+####  路人庚  
+##### 14562#       发表于 2021-5-2 22:15
+
+
+姿势好评，看来mmorpg果然还是不如lol
+
+
+-----
+
+####  Dualist彩  
+##### 14563#       发表于 2021-5-2 22:19
+
+
+野男人还挺持久的，需要晚半个小时<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14564#       发表于 2021-5-2 22:21
+
+
+之前也有过差不多的，这次会主动发推说要推迟了也算是进步了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14565#       发表于 2021-5-2 22:22
+
+
+麻麻的，立马给她冲烂😡
+
+
+-----
+
+####  A2014720  
+##### 14566#       发表于 2021-5-2 22:30
+
+
+烂裤裆！烂裤裆！
+
+
+-----
+
+####  路人庚  
+##### 14567#       发表于 2021-5-2 22:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">国际劳动节为什么非要给死宅上班啊
+
+
+-----
+
+####  雪风utopia  
+##### 14568#       发表于 2021-5-2 22:33
+
+
+有没有监视者来说说她是不是还打着呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14569#       发表于 2021-5-2 22:35
+
+
+她都开播了 还打呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14570#       发表于 2021-5-2 22:35
+
+
+开了开了
+
+
+原来在打扫房间啊，讲卫生的好女人<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14571#       发表于 2021-5-2 22:37
+
+
+其实是完事了之后打扫房间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  295405468  
+##### 14572#       发表于 2021-5-2 22:54
+
+
+短发实在太戳xp了
+
+
+-----
+
+####  时间在我手中  
+##### 14573#       发表于 2021-5-2 22:55
+
+
+今天是萌萌肥婆
+
+
+-----
+
+####  路人庚  
+##### 14574#       发表于 2021-5-2 22:56
+
+
+大魔王声线也是绝活
+
+
+-----
+
+####  Klience  
+##### 14575#       发表于 2021-5-2 23:16
+
+
+366日 咩唱这种苦情歌是真的好听啊<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14576#       发表于 2021-5-2 23:18
+
+
+还说去KTV唱366日的不是你，我化了
+
+
+-----
+
+####  草牛  
+##### 14577#       发表于 2021-5-2 23:18
+
+
+麻麻的，这首366好听炸了
+
+
+-----
+
+####  时间在我手中  
+##### 14578#       发表于 2021-5-2 23:26
+
+
+ 本帖最后由 时间在我手中 于 2021-5-2 23:31 编辑 
+
+今晚小胡有点多，刚刚这首115憋痰难受是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14579#       发表于 2021-5-2 23:33
+
+
+one last kiss！！！你别哼啊 你唱啊！！！！！！！！！吊人！！！！！！！！！！！！
+
+
+-----
+
+####  路人庚  
+##### 14580#       发表于 2021-5-2 23:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 钢琴bgm音源真不错，许愿你咩姐能把之前的几个经典曲目的钢琴bgm音源都找出来唱一唱
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 14581#       发表于 2021-5-2 23:59
+
+
+听的我好困，小麻，今晚我能睡你吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  追风小星星  
+##### 14582#       发表于 2021-5-3 00:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer"> 今天是怎么了?
+
+
+-----
+
+####  Cushaw  
+##### 14583#       发表于 2021-5-3 00:29
+
+
+ 本帖最后由 Cushaw 于 2021-5-3 00:49 编辑 
+
+可别了，咩姨钢琴版天体观测听的我极其难受，暴露自己气短是吧，还不如原版呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+啊我说的原版伴奏
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 14584#       发表于 2021-5-3 00:31
+
+
+棒鸡的歌她唱的我都很少循环（）何况原唱）别的不说听着犯困是真的
+
+还是我术力口好
+
+
+-----
+
+####  十九号大侠  
+##### 14585#       发表于 2021-5-3 00:32
+
+
+小麻又不是专业的，l
+
+
+             
