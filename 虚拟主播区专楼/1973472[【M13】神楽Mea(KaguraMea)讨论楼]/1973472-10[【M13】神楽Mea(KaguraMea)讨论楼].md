@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-02 05:41** 
+> ## **本文件最后更新于2021-05-02 11:37** 
 
 
 
@@ -10890,7 +10890,9 @@ emmmmm
 ##### 14524#       发表于 2021-5-2 13:35
 
 
-她之前tc说过了，是前男友的朋友啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+ 本帖最后由 路人庚 于 2021-5-2 13:43 编辑 
+
+她之前tc说过了，（就当作）是前男友的朋友啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -10902,4 +10904,272 @@ emmmmm
 反正知道是无业游民就对了或者是某位公司老板的儿子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-               
+-----
+
+####  路人庚  
+##### 14526#       发表于 2021-5-2 14:10
+
+
+估计就是个普通的啃老neet<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真傍上公司老板儿子你咩姐就不会出来给死宅直播赚钱了
+
+
+-----
+
+####  Klience  
+##### 14527#       发表于 2021-5-2 14:13
+
+
+说的也是 要真是公司老板儿子都是直接找小姐了 谁还会找上底层主播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 14528#       发表于 2021-5-2 14:29
+
+
+国内富二代也喜欢找网红啊。但小麻好像不够红
+
+
+-----
+
+####  A2014720  
+##### 14529#       发表于 2021-5-2 14:35
+
+
+直播赚死宅钱养活黄毛是吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14530#       发表于 2021-5-2 15:38
+
+
+投票决定直播时间 有鬼用哦 “投票仅供参考，请以实际为准”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14531#       发表于 2021-5-2 16:15
+
+
+总有人质疑你麻的个人势大前辈地位<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14532#       发表于 2021-5-2 16:23
+
+
+ 本帖最后由 A2014720 于 2021-5-2 16:24 编辑 
+
+地位已经给你棺材定死了，是抽象引流恶俗引流的不入流主播，靠骗mmr起家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14533#       发表于 2021-5-2 16:43
+
+
+三线过气废物小主播，地位全靠施舍得来的，呜呜
+
+
+-----
+
+####  十九号大侠  
+##### 14534#       发表于 2021-5-2 16:52
+
+
+当初那个孙笑川妹妹，到底是谁引的啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  草牛  
+##### 14535#       发表于 2021-5-2 16:59
+
+
+水友引的，就跟你麻做工商弄个虚拟卢本伟一样😅
+
+
+-----
+
+####  A2014720  
+##### 14536#       发表于 2021-5-2 17:04
+
+
+ 本帖最后由 A2014720 于 2021-5-2 17:06 编辑 
+
+烂梗这谁理的清<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+当时玩过很多花活，什么直播跟人连麦对线seaside之类的，那会孙笑川也在风头上大概就联系起来了呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+那会多数人这么说也就图一乐，三年下来这称呼倒是一直保留了下来，谁说网民没有记忆的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 14537#       发表于 2021-5-2 17:14
+
+
+咩姨可以早点播吗？
+不要打扰我看红星大战navi可以吗？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 14538#       发表于 2021-5-2 17:17
+
+
+我倒希望晚点，我要看owl比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14539#       发表于 2021-5-2 17:18
+
+
+ 本帖最后由 Klience 于 2021-5-2 17:20 编辑 
+
+6点不是还有联动吗 和组长那个 怎么还有人看过气游戏比赛啊 真就什么过气V什么粉丝呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14540#       发表于 2021-5-2 17:42
+
+
+六点哪有联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说日本时间18点那个是剪辑啊
+
+
+-----
+
+####  kenjjj  
+##### 14541#       发表于 2021-5-2 17:45
+
+
+楼友里还有看红星大战navi的，不会是森孝子吧，我有点怕了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|我是k姓水友孝子|
+
+
+查看全部评分
+
+
+-----
+
+####  雪风utopia  
+##### 14542#       发表于 2021-5-2 17:47
+
+
+听阿宅意见的小麻，suki<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14543#       发表于 2021-5-2 17:47
+
+
+哦 剪辑那没事了 刚看到这人打完就不打了还想着是不是去组长那联动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  路人庚  
+##### 14544#       发表于 2021-5-2 17:47
+
+
+[https://www.youtube.com/watch?v=3QZ-8YBmruE](https://www.youtube.com/watch?v=3QZ-8YBmruE)
+
+东京23点播，要熬起来了
+
+
+-----
+
+####  呓亘  
+##### 14545#       发表于 2021-5-2 18:21
+
+
+多来点新东西啊咩啊……希望歌回里的杂谈有趣点..
+
+
+-----
+
+####  呓亘  
+##### 14546#       发表于 2021-5-2 18:23
+
+
+那个24小时耐久咩参加的环节是不是neta了赛马娘？那
+
+
+-----
+
+####  呓亘  
+##### 14547#       发表于 2021-5-2 18:23
+
+
+是不是可以看她在联动直播里玩赛马娘了？
+
+
+-----
+
+####  路人庚  
+##### 14548#       发表于 2021-5-2 18:27
+
+
+我觉得她只是听了马娘的歌
+
+
+-----
+
+####  Klience  
+##### 14549#       发表于 2021-5-2 18:28
+
+
+我记得这人对赛马娘没兴趣吧
+
+
+-----
+
+####  呓亘  
+##### 14550#       发表于 2021-5-2 18:35
+
+
+emmmm 棉花糖回...我的棉花糖回...
+
+
+
+
+-----
+
+####  llconforever  
+##### 14551#       发表于 2021-5-2 18:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">10点啊。萧瑟前辈BO3打完应该正好
+
+
+              
