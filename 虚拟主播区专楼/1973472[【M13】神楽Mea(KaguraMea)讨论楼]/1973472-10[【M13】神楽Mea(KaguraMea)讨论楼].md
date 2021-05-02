@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-01 04:47** 
+> ## **本文件最后更新于2021-05-02 05:41** 
 
 
 
@@ -10623,4 +10623,283 @@ emmmmm
 这段杂谈挺舒服的 建议多来点
 
 
-                
+-----
+
+####  Klience  
+##### 14498#       发表于 2021-5-1 15:08
+
+
+吊人去组长那里了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 14499#       发表于 2021-5-1 15:18
+
+
+这是在建啥<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14500#       发表于 2021-5-1 16:07
+
+
+这人怎么见一个野男人钓一个的（半恼
+
+
+-----
+
+####  路人庚  
+##### 14501#       发表于 2021-5-1 17:27
+
+
+下了
+
+
+-----
+
+####  冬瓜饭  
+##### 14502#       发表于 2021-5-1 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51118831&amp;ptid=1973472" target="_blank">Mr.shelter 发表于 2021-5-1 15:18</a>
+
+这是在建啥</blockquote>
+显然又是三丽鸥游乐园啊
+
+
+-----
+
+####  A2014720  
+##### 14503#       发表于 2021-5-1 23:11
+
+
+今晚无了，淦
+
+
+-----
+
+####  路人辰  
+##### 14504#       发表于 2021-5-1 23:13
+
+
+20210502东京0点
+
+<img src="https://img.saraba1st.com/forum/202105/01/231348rlwwmjjm07x7m76s.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A223CB29-17B4-43B1-B463-BE8B1C05E5E4.jpeg</strong> (296.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 23:13 上传
+
+
+-----
+
+####  路人庚  
+##### 14505#       发表于 2021-5-1 23:15
+
+
+开语音边文爱边打游戏很累的，体谅一下<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14506#       发表于 2021-5-1 23:20
+
+
+劳动完了就去睡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14507#       发表于 2021-5-2 11:21
+
+
+看了前几天的九条如月切片才知道mea跟如月私下玩过马车了（她是真的不爱播游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14508#       发表于 2021-5-2 11:27
+
+
+每次问她游戏都是“唉，没啥兴趣啊”<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14509#       发表于 2021-5-2 11:43
+
+
+播游戏的正反馈太少是这样的，指同接腰斩还会被评论说没意思
+
+
+-----
+
+####  A2014720  
+##### 14510#       发表于 2021-5-2 11:52
+
+
+ 本帖最后由 A2014720 于 2021-5-2 11:56 编辑 
+
+可你lol确实打的烂啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过任何游戏热度都不蹭我到觉得和反馈关系不大
+
+
+-----
+
+####  路人庚  
+##### 14511#       发表于 2021-5-2 12:02
+
+
+所以她就选择私下打游戏不播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+那还有个可能就是担心自己打游戏吹比不过脑子说错话又被炎了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14512#       发表于 2021-5-2 12:29
+
+
+不记得她打游戏乱说有被炎过…我更信她怕版权炮之类的东西
+
+说好的五月努力呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14513#       发表于 2021-5-2 12:39
+
+
+玩的游戏不符合群众口味也没人会去看你玩游戏啊 不过最近也确实没啥游戏好播 她又不玩生化系列 生化8都出试玩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14514#       发表于 2021-5-2 12:41
+
+
+游戏民这种东西还不是得自己养<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14515#       发表于 2021-5-2 12:43
+
+
+自己播的游戏玩的好足够吸引人看下去才能留住 但是这人。。。。算了 佛系点吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14516#       发表于 2021-5-2 12:56
+
+
+打游戏×
+
+和别人玩√
+
+实质现充麻反差表罢了，就好这口，快进到明码标价<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14517#       发表于 2021-5-2 13:08
+
+
+打游戏哪有杏爱爽😁
+
+
+-----
+
+####  Dualist彩  
+##### 14518#       发表于 2021-5-2 13:22
+
+
+小麻肯定有公主群吧，有没有人特到，多少钱加ins啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14519#       发表于 2021-5-2 13:27
+
+
+问那个加进开黑dis组的那位大人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 14520#       发表于 2021-5-2 13:27
+
+
+那为什么不边打边杏爱呢？
+
+
+
+
+-----
+
+####  Klience  
+##### 14521#       发表于 2021-5-2 13:29
+
+
+边打边杏爱 忍住不发出声音就算胜利吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14522#       发表于 2021-5-2 13:31
+
+
+是不是打输一把杏爱一次<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14523#       发表于 2021-5-2 13:33
+
+
+大哥能告诉我开黑dis群里的野男人都寄吧谁么？<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14524#       发表于 2021-5-2 13:35
+
+
+她之前tc说过了，是前男友的朋友啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14525#       发表于 2021-5-2 13:37
+
+
+反正知道是无业游民就对了或者是某位公司老板的儿子<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+               
