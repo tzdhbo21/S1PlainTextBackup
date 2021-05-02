@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-25 12:54** 
+> ## **本文件最后更新于2021-05-02 13:42** 
 
 
 
@@ -15619,4 +15619,340 @@ logo也换了，但是是1st？
 这种发表是越来越随意了，新衣服那次也是，随口那么一提就过了
 
 
-     
+-----
+
+####  面具13  
+##### 5823#       发表于 2021-4-26 18:35
+
+
+<blockquote>湊あくあ⚓Minatoaqua
+
+@minatoaqua
+
+·
+
+6分钟
+
+レコーディングしてきた！✨✨
+
+ヘトヘトで爆睡できるヾ(:3ヾ∠)_</blockquote>
+播一天摸一周吗。好家伙。
+
+
+-----
+
+####  fangjun96  
+##### 5824#       发表于 2021-4-27 10:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这人是不是这周又没播过
+
+
+-----
+
+####  Kanchiki  
+##### 5825#       发表于 2021-4-27 13:26
+
+
+问就是アイドル，配信者已经不见了
+
+
+-----
+
+####  deadinside666  
+##### 5826#       发表于 2021-4-27 17:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">职业生涯倒计时了
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">真好奇某些批着crew皮的魔怔贴贴人什么时候会彻底爬走
+
+
+-----
+
+####  星の守  
+##### 5827#       发表于 2021-4-27 17:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mengnvpu  
+##### 5828#       发表于 2021-4-28 19:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5829#       发表于 2021-4-28 19:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nevp  
+##### 5830#       发表于 2021-4-28 20:24
+
+
+竟然要播了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 5831#       发表于 2021-4-28 20:27
+
+
+要播就行...
+
+
+-----
+
+####  乌鸦绅士  
+##### 5832#       发表于 2021-4-28 21:16
+
+
+ 本帖最后由 乌鸦绅士 于 2021-4-29 00:07 编辑 
+<blockquote>嬉しい告知もあるよ！</blockquote>
+该奶一口新衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+原来是新的翻唱，新衣服果然是不太可能吗<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  面具13  
+##### 5833#       发表于 2021-4-28 21:35
+
+
+告知应该是1st免费sololive版周边吧，已经是立派的偶像了。
+
+
+我翻开夸宝推特主页一查，这一整周都没有开播推，歪歪斜斜的每页上都写着”偶像“几个字。我横竖睡不着，仔细看了半夜，才从字缝李看出字来，满本都写着两个字是“吃人“！
+
+
+-----
+
+####  Kanchiki  
+##### 5834#       发表于 2021-4-28 22:09
+
+
+ 本帖最后由 Kanchiki 于 2021-4-28 22:55 编辑 
+
+BD出不了，那就再开一次live
+
+
+-----
+
+####  面具13  
+##### 5835#       发表于 2021-4-28 22:14
+
+
+ 本帖最后由 面具13 于 2021-4-28 22:23 编辑 
+
+气息退步了？虚得不行。是不是鼻塞？
+
+
+这皮生气的样子有点可爱 
+
+
+-----
+
+####  梅斯之围  
+##### 5836#       发表于 2021-4-28 22:40
+
+
+貌似嗓子还不太好，不知道live之前能不能好
+
+
+-----
+
+####  面具13  
+##### 5837#       发表于 2021-4-28 22:53
+
+
+「湊あくあと言えば匂わせ」<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+听完connect睡了，扛不住
+
+
+-----
+
+####  Maonpuyo  
+##### 5838#       发表于 2021-4-29 00:06
+
+
+ゲーム配信…真是令人怀念的词语
+
+
+-----
+
+####  梅斯之围  
+##### 5839#       发表于 2021-4-29 00:25
+
+
+想玩新游戏，盲猜一个尼尔
+后天有会限直播。最近还有大的要宣布
+
+
+-----
+
+####  面具13  
+##### 5840#       发表于 2021-4-29 15:15
+
+
+ 本帖最后由 面具13 于 2021-4-29 17:47 编辑 
+
+一边摸鱼一边补昨晚的歌回，一首烟草害我笑出声<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还好老板不在。
+
+
+今天说有游戏直播。明天能会限的可能性不太高，好像本人说30%可能性，如果明天不搞会限，会在黄金周的某天会限。
+
+
+打上花火下次会找人一起唱（男声part），直播中发（discord）联络了好像（按照一般人际关系推断应该是大脸猫）。
+
+
+估计她从小到大就没这么认真学英语过。I belong to everyone. Everyone wife! 听起来蛮涩的<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">剃须捡到一只阿库炭。
+
+
+-----
+
+####  wwddrte  
+##### 5841#       发表于 2021-4-29 19:53
+
+
+玩马娘<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5842#       发表于 2021-4-29 20:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5843#       发表于 2021-4-29 20:57
+
+
+原来有一个想玩的要把新游戏推后的游戏，是马娘……？
+
+ソシャゲーはゲームじゃねぇよ！
+
+
+-----
+
+####  面具13  
+##### 5844#       发表于 2021-4-29 23:54
+
+
+死宅蒸鹅心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wwddrte  
+##### 5845#       发表于 2021-4-30 06:17
+
+
+ 本帖最后由 wwddrte 于 2021-4-30 06:19 编辑 
+
+第一次看到这么早预告
+
+
+-----
+
+####  面具13  
+##### 5846#       发表于 2021-4-30 19:11
+
+
+ 本帖最后由 面具13 于 2021-4-30 21:13 编辑 
+
+新翻唱，选曲太难了吧，感觉没hold住，试试听个几遍看会不会顺耳点。
+
+唉，术曲本来就不是设计给人唱的。
+
+
+-----
+
+####  面具13  
+##### 5847#       发表于 2021-5-1 20:11
+
+
+看上去51期间播个两次差不多了。
+
+
+-----
+
+####  面具13  
+##### 5848#       发表于 2021-5-2 10:18
+
+
+变成盲人了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">可能播不了了。 <blockquote>湊あくあ⚓グッバイ宣言歌った！
+
+@minatoaqua
+
+グッバイ宣言1日で53万再生？！？！？！？！？！？！？！？！？？！？！？！？！？！
+
+起きたら目ん玉飛び出た脸红闪片闪片</blockquote>
+
+
+-----
+
+####  面具13  
+##### 5849#       发表于 2021-5-2 15:14
+
+
+ 本帖最后由 面具13 于 2021-5-2 21:21 编辑 
+
+更新，晚上播。大概是马娘？歌回。
+
+新翻唱现场版唱糊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+怪物熟了不少
+
+
+-----
+
+####  nevp  
+##### 5850#       发表于 2021-5-2 21:18
+
+
+这就是要开live的偶像的歌力吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  离魂仙  
+##### 5851#       发表于 2021-5-2 21:18
+
+
+这歌真不适合，录音版也好，生唱也罢，都不是夸宝能驾驭的吧，差点静音了
+
+
+-----
+
+####  面具13  
+##### 5852#       发表于 2021-5-2 21:23
+
+
+ 本帖最后由 面具13 于 2021-5-2 21:26 编辑 
+
+可以听听mafumafu版的洗洗耳朵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这猫欠教育
+
+
+    
