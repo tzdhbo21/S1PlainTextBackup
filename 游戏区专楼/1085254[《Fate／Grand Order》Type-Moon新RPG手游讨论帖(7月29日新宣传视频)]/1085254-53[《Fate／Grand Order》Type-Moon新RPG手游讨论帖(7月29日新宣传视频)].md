@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-01 02:56** 
+> ## **本文件最后更新于2021-05-03 11:34** 
 
 
 
@@ -7408,4 +7408,370 @@ FGO死不了。
 有没有什么什么地方可以比较方便的弄一些白棋子？萌新莫名其妙卡白棋了，我记得以前活动本第三面的英灵是金棋白棋都掉，现在改了？
 
 
-                            
+-----
+
+####  areklose  
+##### 78632#       发表于 2021-5-1 21:09
+
+
+<blockquote>theloved 发表于 2021-5-1 10:12
+有没有什么什么地方可以比较方便的弄一些白棋子？萌新莫名其妙卡白棋了，我记得以前活动本第三面的英灵是金 ...</blockquote>
+我印象很久都是金。。。。我觉得现在都不缺主要是刷过棋子无限池子
+
+
+-----
+
+####  theloved  
+##### 78633#       发表于 2021-5-2 07:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51121388&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-1 21:09</a>
+我印象很久都是金。。。。我觉得现在都不缺主要是刷过棋子无限池子</blockquote>
+刷一次棋子无限池就一辈子不缺了，可惜我错过棋子无限池了
+
+
+-----
+
+####  DARKGRAY  
+##### 78634#       发表于 2021-5-2 15:10
+
+
+刷难度低一些的活动本就会掉银了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 78635#       发表于 2021-5-2 15:29
+
+
+这个问题…卧槽我多久没考虑过了
+上次刷银棋子好像都是两年还是三年前了
+
+一般活动里对应职阶的本都会掉本职业的棋子和饼干，就是概率感人
+急用的话应该只能去上级修炼场了吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 78636#       发表于 2021-5-2 15:57
+
+
+充分说明你游没有新人，但是老人粘性惊人的高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  khxooo  
+##### 78637#       发表于 2021-5-2 17:54
+
+
+就这？整个活动连泳装都不如<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 78638#       发表于 2021-5-2 18:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这ミスクレーン又是什么时候和罗曼扯上关系的
+
+
+还有最后黑X的那身难道没有灵衣能够开放吗
+
+
+-----
+
+####  qixinno2  
+##### 78639#       发表于 2021-5-2 19:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">希望最后能变成灵衣 
+
+
+-----
+
+####  miro112233  
+##### 78640#       发表于 2021-5-2 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128361&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-5-2 18:53</a>
+
+这ミスクレーン又是什么时候和罗曼扯上关系的
+
+
+还有最后黑X的那身难道没有灵衣能够开放吗 ...</blockquote>
+Waltz音游里最后的剧情就是整个Waltz舞会是鹤向罗曼的报恩，这次资料里补充了是鹤小姐逗留在人间的时候被魔术协会追杀，被罗曼救了藏进lostroom，所以把罗曼看做恩人
+
+
+-----
+
+####  森兰丸  
+##### 78641#       发表于 2021-5-2 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128577&amp;ptid=1085254" target="_blank">miro112233 发表于 2021-5-2 19:22</a>
+
+Waltz音游里最后的剧情就是整个Waltz舞会是鹤向罗曼的报恩，这次资料里补充了是鹤小姐逗留在人间的时候被 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">原来如此....手残玩不来音游....下了后看了下就删掉了....最后还有剧情的么
+
+
+-----
+
+####  alucardcz  
+##### 78642#       发表于 2021-5-2 19:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报告　教练　他不让我刷本　还要刷几十万点书才能刷最高级本也太难了
+
+
+-----
+
+####  qixinno2  
+##### 78643#       发表于 2021-5-2 19:44
+
+
+ 本帖最后由 qixinno2 于 2021-5-2 19:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128673&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-5-2 19:37</a>
+
+报告　教练　他不让我刷本　还要刷几十万点书才能刷最高级本也太难了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我已经完全毕业了 阴间本一个没打
+
+
+-----
+
+####  khxooo  
+##### 78644#       发表于 2021-5-2 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128673&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-5-2 19:37</a>
+
+报告　教练　他不让我刷本　还要刷几十万点书才能刷最高级本也太难了 ...</blockquote>
+刷够点数我商店都毕业了，还刷个什么阴间本<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DARKGRAY  
+##### 78645#       发表于 2021-5-2 19:58
+
+
+结果最后那身灵衣不送啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千叶铁矢  
+##### 78646#       发表于 2021-5-2 23:29
+
+
+阴间本一个狂一个杀，都能满加成礼装单c呆打
+
+
+-----
+
+####  白金口袋  
+##### 78647#       发表于 2021-5-3 07:59
+
+
+你们这活动的受众目标到底是四斋还是墓主啊？前面玩爱马仕之类的梗还挺欢乐的，然后结尾非要把罗曼脱出来鞭尸，好心情一下全败没了，胡闹到最后不好吗？
+
+2.6之前我再看剧情我就是傻X，全skip确定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 78648#       发表于 2021-5-3 08:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131643&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-5-3 07:59</a>
+
+你们这活动的受众目标到底是四斋还是墓主啊？前面玩爱马仕之类的梗还挺欢乐的，然后结尾非要把罗曼脱出来鞭 ...</blockquote>
+这个真不是这次活动的锅，音游本体发的刀，和罗曼这档子事是鹤小姐最基础的设定，避不过的，玩过音游的都有心理准备了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+
+-----
+
+####  白金口袋  
+##### 78649#       发表于 2021-5-3 08:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131739&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-5-2 18:31</a>
+
+这个真不是这次活动的锅，音游本体发的刀，和罗曼这档子事是鹤小姐最基础的设定，避不过的，玩过音游的都 ...</blockquote>
+原来如此，怪不得，音游就完了两把就删了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 78650#       发表于 2021-5-3 08:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131756&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-5-3 08:34</a>
+
+原来如此，怪不得，音游就完了两把就删了</blockquote>
+音游本身也是鹤小姐报恩的故事，把咕哒和马修拉过到lostroom跳舞放了一天假，完了还把马修跳舞的视频传给了医生，去年大家就是以为发的是马修咕哒糖，结果最后吃了一嘴玻璃渣。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 78651#       发表于 2021-5-3 08:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131810&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-5-2 18:49</a>
+
+音游本身也是鹤小姐报恩的故事，把咕哒和马修拉过到lostroom跳舞放了一天假，完了还把马修跳舞的视频传给 ...</blockquote>
+感谢解答，但我是不会停止skip的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 78652#       发表于 2021-5-3 14:38
+
+
+这剧情你说他烂吧不至于
+
+但是就……无聊，又不是微博玩家看见罗曼两个字就能牛逼
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+对我来说还不如爬塔，爬塔起码快乐的梗很多
+
+比如沙雕游戏王
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78653#       发表于 2021-5-3 15:28
+
+
+我知道音游最后有医生的刀，但联动里继续发刀我也......还是一点感觉都没有啊
+
+
+-----
+
+####  areklose  
+##### 78654#       发表于 2021-5-3 15:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开头看到我想睡。我都是快进看一眼。看在这12套灵衣我原谅这活动
+
+
+-----
+
+####  里村紅葉  
+##### 78655#       发表于 2021-5-3 16:03
+
+
+我就不一样了，我看见偶像题材就开始按SKIP了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78656#       发表于 2021-5-3 17:04
+
+
+我就更不一样了 活动一律SKIP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 78657#       发表于 2021-5-3 17:54
+
+
+我就更更不一样了，主线也一律skip<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  quanlix  
+##### 78658#       发表于 2021-5-3 18:15
+
+
+艹，最后这灵衣真就只给你看看？
+
+
+-----
+
+####  qixinno2  
+##### 78659#       发表于 2021-5-3 18:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看不懂日文的我只能全部skip
+
+
+-----
+
+####  黑上シグマ  
+##### 78660#       发表于 2021-5-3 18:57
+
+
+<blockquote>引用第78656楼白夜羽于2021-05-03 17:54发表的  :
+
+我就更更不一样了，主线也一律skip</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不对劲
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 78661#       发表于 2021-5-3 18:57
+
+
+<blockquote>引用第78657楼quanlix于2021-05-03 18:15发表的  :
+
+艹，最后这灵衣真就只给你看看？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你游只给你看看的衣服难道还少吗？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  areklose  
+##### 78662#       发表于 2021-5-3 18:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我需要天启，想抽个尼禄穿个衣服。
+
+
+-----
+
+####  v22325  
+##### 78663#       发表于 2021-5-3 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最近都是看了开头突然觉得没意思就跳了     
+
+
+-----
+
+####  areklose  
+##### 78664#       发表于 2021-5-3 19:17
+
+
+ 本帖最后由 areklose 于 2021-5-3 19:20 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上年活动还行，至少泳装，咕哒咕哒，深海我都看完了。今年什么情人节，白情，爬塔，我都是快进看个寂寞。牛肉丸那个忘记有没有快进了
+
+
+                           
