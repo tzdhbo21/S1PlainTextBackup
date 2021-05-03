@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-02 13:40** 
+> ## **本文件最后更新于2021-05-03 14:35** 
 
 
 
@@ -7875,7 +7875,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_H1ww2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_l88jm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 mv.gif
@@ -14979,4 +14979,414 @@ Translate Tweet
 是4.5头身！什么Q版人物
 
 
-   
+-----
+
+####  星尘的杨桃精  
+##### 11883#       发表于 2021-5-2 21:41
+
+
+ななかぐら／カグラナナ🌶
+
+@nana_kaguraaa
+
+あっやっべ
+
+OGRE PUNCH、ミスってgだけ小文字にしちゃってるFace with rolling eyesFace with rolling eyesFace with rolling eyesあっ…………………………………………
+
+
+什么文盲
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11884#       发表于 2021-5-2 21:42
+
+
+草 说稍微懂点中文 我蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11885#       发表于 2021-5-2 22:03
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-5-2 22:04 编辑 
+
+中文id挂墙上也太蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+IWEG5G92C~LUD[1RKP[)TG9.png
+(4.33 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-2 22:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/220435d7lg4hjlso7nhn4x.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11886#       发表于 2021-5-2 22:25
+
+
+辣辣这是寻思自己画的还挺好 光明正大开蹭是吧
+
+
+M)9NE{G(8`{NYB1@CIJ06CX.png
+(59.11 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-2 22:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/222529vyhmtpfptzpmghpk.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 11887#       发表于 2021-5-2 22:44
+
+
+我还以为娜娜已经脱敏了
+
+
+原来是变成成熟的偶像了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夏小筱ss  
+##### 11888#       发表于 2021-5-2 23:01
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/230136li7bmxmdby74hhyc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2a5a42feb10b86.jpg</strong> (52.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 23:01 上传
+
+
+-----
+
+####  因为你不会  
+##### 11889#       发表于 2021-5-2 23:19
+
+
+我就说绫总这头真的像接的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11890#       发表于 2021-5-2 23:26
+
+
+说小时候家里礼仪管教很严<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 11891#       发表于 2021-5-2 23:38
+
+
+所以长大后放飞自我<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11892#       发表于 2021-5-3 00:29
+
+
+2小时27有段迫真zqsg可以听一下<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 11893#       发表于 2021-5-3 00:56
+
+
+V吧看了都直呼头大😡
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/005506is99tf11sxt9izwy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210503_005408_com.baidu.tieba.jpg</strong> (208.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-3 00:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/005516w8e58tgk8sykugeh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210503_005421_com.baidu.tieba.jpg</strong> (103.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-3 00:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/005622htei55ot36wbhtjt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210503_005602_com.baidu.tieba.jpg</strong> (116.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-3 00:56 上传
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11894#       发表于 2021-5-3 01:01
+
+
+难得v8说话这么中肯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 11895#       发表于 2021-5-3 01:01
+
+
+为什么呢，可能是因为百鬼众打不过辣辣军吧<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+Screenshot_20210503_005907.jpg
+(21.32 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-3 01:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/010122ln0hb8lyo0nvzee8.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11896#       发表于 2021-5-3 01:03
+
+
+百鬼众寄吧谁啊 你楼都叫绫人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11897#       发表于 2021-5-3 01:05
+
+
+bsyl想看b站mmr是不是还能乐呵贴贴<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11898#       发表于 2021-5-3 01:31
+
+
+娜娜接头接到一半按到图层缩放是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+脖子以下整个缩水了
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/012435ty9z0yrzdz2xvvj9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>0fe663f0cfa1724225dcd0e4c27754f5.jpg</strong> (101.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 01:24 上传
+
+
+-----
+
+####  stmule  
+##### 11899#       发表于 2021-5-3 01:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131053&amp;ptid=1914409" target="_blank">cctvyt1 发表于 2021-5-3 01:31</a>
+娜娜接头接到一半按到图层缩放是吧
+
+脖子以下整个缩水了</blockquote>
+逆生长<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  stedckk  
+##### 11900#       发表于 2021-5-3 08:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今天在mio那早起逆凸居然醒了，起床音不错
+
+
+-----
+
+####  Fami水  
+##### 11901#       发表于 2021-5-3 09:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">这不是完全没醒吗 梦游对话
+
+
+-----
+
+####  Vindicator  
+##### 11902#       发表于 2021-5-3 09:06
+
+
+草这脑袋是喝了大和の废水了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11903#       发表于 2021-5-3 10:41
+
+
+当初剪影我就感觉缩水了，一出来果然效果不好，明明前两次新衣服也还好，怎么这次就拉了呢。只能说娜娜确实已经没把绫总放在心上了
+
+
+-----
+
+####  cctvyt1  
+##### 11904#       发表于 2021-5-3 11:46
+
+
+《是个人都画得比娜娜好》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/03/114507wyn90jw8a98jjwzd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0a7l56UYAAZF2-.jpg</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 11:45 上传
+
+
+[https://twitter.com/_YukiNeko1018/status/1389006895126433793](https://twitter.com/_YukiNeko1018/status/1389006895126433793)
+
+<img src="https://img.saraba1st.com/forum/202105/03/114508vkhkcklrwcchlsqk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0bII-aUYAEyam0.jpg</strong> (316.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 11:45 上传
+
+
+[https://twitter.com/MariA_Onnette_/status/1389017595953565697](https://twitter.com/MariA_Onnette_/status/1389017595953565697)
+
+<img src="https://img.saraba1st.com/forum/202105/03/114509foxv2ejze12nfo2m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0ZNoTtVcAQpvPT.jpg</strong> (460.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 11:45 上传
+
+
+[https://twitter.com/KUMAIsekuro/status/1388882920043999232](https://twitter.com/KUMAIsekuro/status/1388882920043999232)
+
+
+-----
+
+####  Fami水  
+##### 11905#       发表于 2021-5-3 11:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">娜娜还敢贴设定图么
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11906#       发表于 2021-5-3 13:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣辣还要开直播呢
+
+
+-----
+
+####  因为你不会  
+##### 11907#       发表于 2021-5-3 15:31
+
+
+娜娜：这波立大功怎么说，立大功
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11908#       发表于 2021-5-3 17:31
+
+
+这几把玩意是惊天魔盗团啊
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11909#       发表于 2021-5-3 17:32
+
+
+bsyl白阿姨也同步试听过<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 11910#       发表于 2021-5-3 18:18
+
+
+推特音声可爱捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  cctvyt1  
+##### 11911#       发表于 2021-5-3 22:12
+
+
+阿绫的King快100万播放了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+  
