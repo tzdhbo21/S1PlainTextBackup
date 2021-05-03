@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-01 08:54** 
+> ## **本文件最后更新于2021-05-03 07:56** 
 
 
 
@@ -5238,11 +5238,12 @@ bora和selly一队，太好了我继续奶，不过新赛季改得还挺多的�
 ##### 376#       发表于 2021-4-30 23:02
 
 
- 本帖最后由 FCCHua 于 2021-5-1 15:06 编辑 
+ 本帖最后由 FCCHua 于 2021-5-1 23:11 编辑 
 
 猫猫这企划<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 同期贴贴捏，引流效果真不错，然后两个多小时后三世10万了
-小千apex伤害耐久截止目前也24万多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+小千apex伤害耐久也快结束了，就一万多了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+ok，结束了
 
 
 -----
@@ -5405,4 +5406,369 @@ https://t.co/oiZiEY79nn?amp=1
 考拉那边出了点问题，变成小千 老师 花妈了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-                                    
+-----
+
+####  poipanchao  
+##### 392#       发表于 2021-5-1 18:00
+
+
+bora要去参加千的30W挑战了
+
+赞诶
+
+
+-----
+
+####  IDIDIDID  
+##### 393#       发表于 2021-5-1 18:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202105/01/182509icbkjnzzqm1qbkmh.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #103 - 'YouTube' - www_youtube_com.png</strong> (31.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 18:25 上传
+
+
+-----
+
+####  OldGlory  
+##### 394#       发表于 2021-5-1 18:40
+
+
+吾好梦中杀人
+
+
+-----
+
+####  free  
+##### 395#       发表于 2021-5-1 19:14
+
+
+7月31日
+
+
+<img src="https://img.saraba1st.com/forum/202105/01/191405kre2rwrrre22hd7y.png" referrerpolicy="no-referrer">
+
+
+<strong>10.png</strong> (465.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 19:14 上传
+
+
+-----
+
+####  free  
+##### 396#       发表于 2021-5-1 20:06
+
+
+[https://twitter.com/CIEL_VanillaSky](https://twitter.com/CIEL_VanillaSky)
+
+
+裸春又出新人了
+
+
+-----
+
+####  alcoholic1000  
+##### 397#       发表于 2021-5-1 20:47
+
+
+神椿按断句方式和发音摇人的是吧，脸倒是挺好的
+
+油管主页只附了twi和tiktok主页
+
+<img src="https://img.saraba1st.com/forum/202105/01/204509fznlik4xxcfkbxfi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>ciel.jpeg</strong> (73.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 20:45 上传
+
+
+[https://www.youtube.com/watch?v=8H12RYQEYuw](https://www.youtube.com/watch?v=8H12RYQEYuw)
+
+
+-----
+
+####  rzrbtk  
+##### 398#       发表于 2021-5-1 22:11
+
+
+ema新翻唱掐萌音很棒<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">！
+省一楼，郡道难得又搞我最爱的社会观察类直播力<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 399#       发表于 2021-5-1 23:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">小千的30w伤耐久赶在nrk和叶山的午夜棒前完成了啊
+
+
+-----
+
+####  十四洲  
+##### 400#       发表于 2021-5-2 15:44
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/154331jz9gzznb0c11yh1y.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (128.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 15:43 上传
+
+
+请问这两位是已经官宣了吗
+
+
+-----
+
+####  alcoholic1000  
+##### 401#       发表于 2021-5-2 15:55
+
+
+にじさんじアニメ【第2話】万策尽きる<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+（法国军礼）
+
+
+-----
+
+####  IDIDIDID  
+##### 402#       发表于 2021-5-2 18:03
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-2 19:40 编辑 
+
+点进去看了一下居然真是静止画，喷了。
+
+
+要不然3D班去给葵皇磕个头吧
+
+
+-----
+
+####  渡鸦骑士  
+##### 403#       发表于 2021-5-2 18:33
+
+
+这是没剧本了吧……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 404#       发表于 2021-5-2 19:01
+
+
+第二话就没剧本了？！
+
+
+-----
+
+####  某穆克拉  
+##### 405#       发表于 2021-5-2 20:06
+
+
+彩虹能不能高价从cover挖个脚本过去啊，给钱兼职也行啊。三话定命已经两话了啊。
+
+
+-----
+
+####  渡鸦骑士  
+##### 406#       发表于 2021-5-2 20:06
+
+
+小剧场的脚本家是真的牛逼的……，不光每周自己想，还要把liver的想法变成小剧场<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 407#       发表于 2021-5-2 20:18
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/201740xvdg0qvxdqid3tqf.png" referrerpolicy="no-referrer">
+
+
+<strong>【3周年記念】叶くんに「いいよ」と言わせるまで終わらない配信.png.png</strong> (401.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 20:17 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=XiNAYib2utg](https://www.youtube.com/watch?v=XiNAYib2utg)
+
+
+-----
+
+####  poipanchao  
+##### 408#       发表于 2021-5-2 20:33
+
+
+kr5期次播
+
+第一个算是歌势吧，看串里评价蛮高的，简单听了一下确实不错，但是没到惊艳的程度
+
+第二个gamer枪力还行，感觉是有其他fps的底子，apex再练练未来可期
+
+第三个还是听不清楚，溜了
+
+
+-----
+
+####  rzrbtk  
+##### 409#       发表于 2021-5-2 22:29
+
+
+笑死，郡道决心挑战单人恐怖游戏，玩了快二十分钟就结束直播删档了…有自知之明也是她的优点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 410#       发表于 2021-5-2 22:42
+
+
+相羽的分身mia居然来了个事故物件的直播，因为事故了看不到l2d。虽然比视频里活泼一些但声线一直很稳定，一害怕了就用无感情的语调叫观众说点开心的事+复读+向后退还挺萌的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cckuku  
+##### 411#       发表于 2021-5-2 22:50
+
+
+露露这弱弱歌力，配着吉他听还挺搞笑的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 412#       发表于 2021-5-3 00:18
+
+
+比较期待露露asmr
+
+
+-----
+
+####  rzrbtk  
+##### 413#       发表于 2021-5-3 11:21
+
+
+3D升级也来了，jk组先上。
+不会也抽签吧<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">，虽然看郡道说好像其实已经有大致安排了
+
+
+-----
+
+####  noHentai  
+##### 414#       发表于 2021-5-3 11:39
+
+
+又是JK组先上<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 415#       发表于 2021-5-3 11:42
+
+
+  七朝元老，其中一个前任头牌，还有一个歌会御用，还有一个长得好看。还是有排面的。
+
+
+-----
+
+####  OldGlory  
+##### 416#       发表于 2021-5-3 12:02
+
+
+看看黑黑什么时候才能拿到第二套3d<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 417#       发表于 2021-5-3 12:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 我们ichikara抽签一不小心抽中king、不破、黑客、阿叶四个男人，真不小心呢
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fastary|-1|差不多得了，黑客何德何能啊|
+
+
+查看全部评分
+
+
+-----
+
+####  ヒトニナル  
+##### 418#       发表于 2021-5-3 13:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">昨天叶先生3周年配信的时候暗示过新3D了
+
+
+-----
+
+####  rzrbtk  
+##### 419#       发表于 2021-5-3 14:52
+
+
+有的模真的不修不行啊，出场率高但丑成那样确实有点尴尬…
+郡道那种直接是坏的也该修一下了，估计半年后<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  嵐ステリ  
+##### 420#       发表于 2021-5-3 15:09
+
+
+话说静凛就没一个3d模型是不错的
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 421#       发表于 2021-5-3 15:53
+
+
+夜见也要只狼，苇名忍者集团SMC成了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+                                   
