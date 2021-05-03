@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-03 14:37** 
+> ## **本文件最后更新于2021-05-03 17:12** 
 
 
 
@@ -12106,4 +12106,402 @@ ybb😅
 这是たける     歪头kiss     这是笑着的你麻.jpg
 
 
-           
+-----
+
+####  A2014720  
+##### 14643#       发表于 2021-5-3 22:40
+
+
+大亏游戏打的那么好，小麻能代餐吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14644#       发表于 2021-5-3 22:52
+
+
+哎 什么时候能看到她直播玩波比啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14645#       发表于 2021-5-3 22:58
+
+
+早期的很多次lol直播都是玩过波比的，现在估计是想整些新英雄了
+
+
+-----
+
+####  A2014720  
+##### 14646#       发表于 2021-5-3 22:59
+
+
+一个月最多可能就1次b限lol，能玩多少…
+
+
+-----
+
+####  Dualist彩  
+##### 14647#       发表于 2021-5-3 23:01
+
+
+看了眼九条打apex的视频，还挺有意思的，怪不得那么多人喜欢看女人打游戏，当然菜的一批的除外，对，就是说的你麻和パコ余<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14648#       发表于 2021-5-3 23:07
+
+
+整什么新英雄 不都是有新英雄或者新皮肤才B限玩lol吗 也就那样
+
+
+-----
+
+####  路人庚  
+##### 14649#       发表于 2021-5-3 23:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+（而且你咩姐曾经打pubg时候的怪话也是不少的
+
+
+-----
+
+####  A2014720  
+##### 14650#       发表于 2021-5-3 23:10
+
+
+那pubg高位替代apex为啥不玩呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+可能是节奏太快没法和野男人调情吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14651#       发表于 2021-5-3 23:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 14652#       发表于 2021-5-3 23:14
+
+
+可恨的菜逼<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Klience  
+##### 14653#       发表于 2021-5-3 23:14
+
+
+apex？别吧 你想她跳伞马上重伤倒地吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14654#       发表于 2021-5-3 23:17
+
+
+小麻只是认为和阿宅打游戏很kimo罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14655#       发表于 2021-5-3 23:19
+
+
+那干脆别打游戏 直接耐久脑死歌回吧 重现5小时不带停的歌会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14656#       发表于 2021-5-3 23:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我要给你咩姐加个原教旨主义者的标签，你咩姐看apex怕不是从心底里觉得这jb玩意花里胡哨不成体统
+
+
+-----
+
+####  呓亘  
+##### 14657#       发表于 2021-5-3 23:23
+
+
+嘤嘤嘤嘤 小麻多播点游戏好不好 
+
+
+-----
+
+####  Klience  
+##### 14658#       发表于 2021-5-3 23:28
+
+
+打游戏都不适合她 lol也就只有被人带的份 你还想让她玩什么游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14659#       发表于 2021-5-3 23:28
+
+
+那她应该是个刀斯林才对<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过这种只想着泡男人的女玩家，真正的gamer大概只会觉得影响拔剑的速度吧
+
+对于她本人来说相比野男人游戏是个jb吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  iuhehc  
+##### 14660#       发表于 2021-5-3 23:33
+
+
+还幻想过她玩读空气3
+
+
+-----
+
+####  呓亘  
+##### 14661#       发表于 2021-5-3 23:35
+
+
+就一般的可以吐槽的游戏啊 看她说怪话可有意思了 之前她播元神的时候也说了不少有意思的怪话啊 兔头那边有不少播过的游戏可以拿来参考的
+
+
+-----
+
+####  Klience  
+##### 14662#       发表于 2021-5-3 23:36
+
+
+ 本帖最后由 Klience 于 2021-5-3 23:37 编辑 
+
+没什么游戏好播 也就只有歌会和tc生活音来养gachi<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14663#       发表于 2021-5-3 23:37
+
+
+她甚至不愿意蹭一下赛马娘<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14664#       发表于 2021-5-3 23:38
+
+
+歌回里哼过两句马娘曲子也算蹭
+
+
+-----
+
+####  GRMeA104  
+##### 14665#       发表于 2021-5-3 23:42
+
+
+别叫,明天联动主办方带你蹭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14666#       发表于 2021-5-3 23:43
+
+
+以前还有碧蓝bcr工商呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 14667#       发表于 2021-5-3 23:46
+
+
+雀魂不是给她认证了吗 送个工商呗。。。。
+
+
+-----
+
+####  路人庚  
+##### 14668#       发表于 2021-5-3 23:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b站的工商还是算了吧，而且你咩姐本来也是个不爱工商的人，少点工商对她也是解脱
+
+
+-----
+
+####  A2014720  
+##### 14669#       发表于 2021-5-3 23:49
+
+
+我无所谓啊，我就想看她玩点游戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14670#       发表于 2021-5-3 23:51
+
+
+俄罗斯方块 osu基本上都看不到她玩了 游戏民死心吧 只有lol游戏民才能活到最后<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  ylssb10438  
+##### 14671#       发表于 2021-5-3 23:52
+
+
+holo那么多菜逼不也是有啥版权玩啥嘛，你一个人势又没啥版权限制不是想玩啥玩啥，剧情向的或者初见开荒有趣的游戏也是一种同步视听，沙盒生存模拟经营文字游戏
+
+甚至吃鸡都能一边玩一边杂谈，（而且我记得早期确实有不少杂谈是出自吃鸡直播和喷射直播来着）不需要整啥活，能搞搞单机游戏实况都够创造不少直播内容了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14672#       发表于 2021-5-4 00:00
+
+
+就证明她没兴趣啊 没心思搞直播的事情 反正每周歌会 tc混日子算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14673#       发表于 2021-5-4 00:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是，你咩姐从未直播过任何带深度剧情的游戏，只能说是个立派的社交型游戏玩家了
+
+
+-----
+
+####  草牛  
+##### 14674#       发表于 2021-5-4 00:03
+
+
+就是没热情呗，只能说不引退就算成功😭
+
+
+-----
+
+####  Klience  
+##### 14675#       发表于 2021-5-4 00:07
+
+
+恐怖剧情游戏算吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14676#       发表于 2021-5-4 00:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但她通关过的恐怖游戏也没有任何一个有剧情啊，就算有那么2句话剧情但她也是不看的
+
+
+-----
+
+####  Klience  
+##### 14677#       发表于 2021-5-4 00:17
+
+
+剧情画面 人物对话跳过跳过跳过跳过 正式游戏
+
+
+-----
+
+####  Cushaw  
+##### 14678#       发表于 2021-5-4 00:20
+
+
+播游戏少的sc和同接你们补啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+咩姨早就找到流量密码啦<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Mikumiku831  
+##### 14679#       发表于 2021-5-4 00:27
+
+
+51说好的播爆呢 已经快结束了哎
+
+
+-----
+
+####  路人庚  
+##### 14680#       发表于 2021-5-4 00:32
+
+
+五一只说了提高10%的干劲，但没说这个干劲用来干啥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14681#       发表于 2021-5-4 00:33
+
+
+我都不敢想了😭
+
+
+-----
+
+####  星尘的杨桃精  
+##### 14682#       发表于 2021-5-4 00:33
+
+
+怎么g8尬劈啊草 绫总打派派单论枪法可不算菜啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14683#       发表于 2021-5-4 01:04
+
+
+事业民不要假装游戏民哦
+
+
+-----
+
+####  Mikumiku831  
+##### 14684#       发表于 2021-5-4 01:11
+
+
+话说为啥现在还有游戏民  你麻不是早说了玩游戏主要是想和野男人聊天
+
+
+          
