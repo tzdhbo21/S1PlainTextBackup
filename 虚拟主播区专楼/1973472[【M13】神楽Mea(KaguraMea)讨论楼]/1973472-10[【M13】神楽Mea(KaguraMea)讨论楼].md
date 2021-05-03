@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-02 17:09** 
+> ## **本文件最后更新于2021-05-03 10:40** 
 
 
 
@@ -11496,4 +11496,307 @@ one last kiss！！！你别哼啊 你唱啊！！！！！！！！！吊人！
 小麻又不是专业的，l
 
 
-             
+-----
+
+####  ashero  
+##### 14586#       发表于 2021-5-3 01:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51125715&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-5-2 12:29</a>
+不记得她打游戏乱说有被炎过…我更信她怕版权炮之类的东西
+
+说好的五月努力呢</blockquote>
+就是任弹事件之后她基本就只剩下老三样了 除了苔苔拉了几期恐怖游戏 虽然这是密码 但是这人是真不喜欢玩 所以只有lol雀魂唱歌是永远滴舒适区 mc她只能说兴致一般 
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  A2014720  
+##### 14587#       发表于 2021-5-3 01:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131005&amp;ptid=1973472" target="_blank">ashero 发表于 2021-5-3 01:22</a>
+就是任弹事件之后她基本就只剩下老三样了 除了苔苔拉了几期恐怖游戏 虽然这是密码 但是这人是真不喜欢玩  ...</blockquote>
+任蛋是不对个人势打的，她和人联动也会玩任表的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这人玩小游戏其实也挺有意思的，也就tc见了
+
+
+-----
+
+####  Cuppco  
+##### 14588#       发表于 2021-5-3 01:35
+
+
+一个问题啊
+唱歌这种事存在酬勤这种说法吗？
+你麻这么唱理论上是会越唱越好吗
+
+
+-----
+
+####  295405468  
+##### 14589#       发表于 2021-5-3 01:44
+
+
+是岁月给了这女人韵味<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LIPP  
+##### 14590#       发表于 2021-5-3 01:46
+
+
+你去听听19年歌回你就知道歌力成长多少了，但是歌力成长的同时，确实有些东西少了。是什么呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14591#       发表于 2021-5-3 01:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 14592#       发表于 2021-5-3 02:07
+
+
+别说了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  路人庚  
+##### 14593#       发表于 2021-5-3 08:03
+
+
+比起19年，现在已经是安定闲暇保温杯里泡枸杞的婚后退休生活辣
+
+
+-----
+
+####  Klience  
+##### 14594#       发表于 2021-5-3 08:45
+
+
+你直接说她变成lol废人不就好了吗 那么拐弯抹角干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14595#       发表于 2021-5-3 08:45
+
+
+最开始就是lol废人啊<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 14596#       发表于 2021-5-3 09:21
+
+
+唱歌有酬勤，为什么lol没有。
+
+
+-----
+
+####  A2014720  
+##### 14597#       发表于 2021-5-3 09:32
+
+
+ 本帖最后由 A2014720 于 2021-5-3 09:38 编辑 
+
+想起一点老垃圾：《天赋》《才能》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+真是搞笑，以前说的这些最后在zz，zb面前成了狗屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14598#       发表于 2021-5-3 09:49
+
+
+主播圈一直都是这样的啊
+
+
+-----
+
+####  Klience  
+##### 14599#       发表于 2021-5-3 10:08
+
+
+zb是啥
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|带资本|
+
+
+查看全部评分
+
+
+-----
+
+####  Dualist彩  
+##### 14600#       发表于 2021-5-3 10:34
+
+
+zb一直都是大手啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+                 
+
+你麻一直都是要赚钱才来直播的呀，所谓在乎观众，只不过是玩弄自己的钱包罢了，铁渣女现充了
+
+          
+
+反转了，我就喜欢她对我不理不睬不动声色的样子，就像你麻舔凛子一样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14601#       发表于 2021-5-3 10:36
+
+
+食物链顶端吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 14602#       发表于 2021-5-3 17:11
+
+
+今天不见，又开始车这个话题了，果然还是这个味
+
+
+-----
+
+####  A2014720  
+##### 14603#       发表于 2021-5-3 17:13
+
+
+突然想起一些老垃圾罢了，还是赶紧把这些垃圾从脑子里删了好
+
+隔壁有人让你“好自为之”才有意思呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14604#       发表于 2021-5-3 17:14
+
+
+我倒是希望那个zb能看上他，让她多活动几年，整点大场面
+
+
+-----
+
+####  路人庚  
+##### 14605#       发表于 2021-5-3 17:18
+
+
+别想辣，没有什么资本大场面，只有tc聊聊天油管唱唱歌b限打打撸（当然也没什么不好的
+
+
+-----
+
+####  时间在我手中  
+##### 14606#       发表于 2021-5-3 17:28
+
+
+Mea剩下的时光里唯一能被称道的巨物恐怕只有她的身躯大小了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14607#       发表于 2021-5-3 17:30
+
+
+<img src="https://p.sda1.dev/1/f8ef87fe80b9a30a9b01fc3a7b312c50/F763FB3DDC49AD490B5C467861E99CD6.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  Dualist彩  
+##### 14608#       发表于 2021-5-3 17:41
+
+
+我东蛋直播呢<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 14609#       发表于 2021-5-3 17:42
+
+
+巨物（吨位）
+
+
+-----
+
+####  时间在我手中  
+##### 14610#       发表于 2021-5-3 18:00
+
+
+突击连麦了，在黄兔子那边
+
+
+
+
+-----
+
+####  A2014720  
+##### 14611#       发表于 2021-5-3 18:04
+
+
+下了，什么叫铁混子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14612#       发表于 2021-5-3 18:16
+
+
+TC了
+
+
+            
