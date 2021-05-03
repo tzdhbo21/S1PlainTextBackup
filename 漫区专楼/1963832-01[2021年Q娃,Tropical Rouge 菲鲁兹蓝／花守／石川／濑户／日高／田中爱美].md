@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-01 10:41** 
+> ## **本文件最后更新于2021-05-03 08:42** 
 
 
 
@@ -15347,4 +15347,400 @@ ps：我第一集就说了今年这怪大友里必会出现叛变者 才第8集�
 众反派：我们怎么没想到这一招？算了，明天再说吧
 
 
-     
+-----
+
+####  HGCG+  
+##### 1322#       发表于 2021-5-2 08:03
+
+
+火烈鸟的头，珊瑚的冠，木瓜的身体，太阳的翅膀
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gq3r2i9jttj21hc0u07wh.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kerfars  
+##### 1323#       发表于 2021-5-2 08:28
+
+
+这集萝拉又又又史诗性加强
+
+平时嘴上不饶人，结果真夏一出问题第一个冲出去，关键时候连臭水沟都能义无反顾跳进去
+
+回来看到真夏恢复第一反应是高兴得不得了，反驳敌方就是脱口而出“真夏的干劲是最强的”
+
+后面真夏来找她才又回到那副傲娇模样
+
+
+-----
+
+####  HGCG2  
+##### 1324#       发表于 2021-5-2 11:10
+
+
+ 本帖最后由 HGCG2 于 2021-5-2 11:42 编辑 
+
+为了真夏甘愿跳进臭水沟的萝拉从屑人鱼临时变成了人鱼之鉴
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gq3qwc4xw4j21hc0u0kh4.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gq3qwcviiyj21hc0u0x18.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gq3qwbpw8oj21hc0u0187.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gq3qwbwcd4j21hc0u01ja.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gq3r32oo1lj21hc0u0hdt.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gq3r3270orj21hc0u0tyb.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gq3r33iwibj21hc0u0kjl.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gq3r32aw3fj21hc0u0e81.jpg" referrerpolicy="no-referrer">
+<img src="http://wx2.sinaimg.cn/large/e7cbae74gy1gq3r32avx9j21hc0u0ttj.jpg" referrerpolicy="no-referrer">
+<img src="http://wx4.sinaimg.cn/large/e7cbae74gy1gq3r32gueuj21hc0u0ke6.jpg" referrerpolicy="no-referrer">
+<img src="http://wx1.sinaimg.cn/large/e7cbae74gy1gq3r32ytd4j21hc0u0b29.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kerfars  
+##### 1325#       发表于 2021-5-2 12:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这一集萝拉小细节很多，不愧是真主角！
+
+之前第4集的时候，黄毛聊到人鱼公主的故事，说人鱼公主为了人类王子自己消失了，萝拉就说人鱼为了人类消失，凭什么；
+
+结果这集为了找装着真夏干劲的水瓶，就义无反顾扎进臭水沟里；
+
+
+找到瓶子回来之后，看到真夏已经自己恢复，第一时间本能反应是高兴得不得了
+
+如果萝拉真的屑这里回来看到真夏恢复肯定会生气，自己连臭水沟都下了结果这人自己就恢复，白操心了
+
+
+打败反派之后，虽然躲在一边摆起架子，但是真夏过来哄的时候，先是有些想哭，也打算糊弄过去
+
+后来真夏当面说对不起之后，就已经忍不住想哭了（仔细观察还能看到流了点鼻涕w）
+
+
+-----
+
+####  twit  
+##### 1326#       发表于 2021-5-2 14:02
+
+
+这集演出看开真夏变身解除是因为变身器从包里掉出去了。
+那岂不是来个偷变身器的怪随随便便就能解除q娃的变身？
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  宅音  
+##### 1327#       发表于 2021-5-2 14:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">萝拉的小表情做得真好
+
+
+-----
+
+####  最强惠酱  
+##### 1328#       发表于 2021-5-2 16:16
+
+
+友情真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  最强惠酱  
+##### 1329#       发表于 2021-5-2 16:24
+
+
+<img src="https://p.sda1.dev/1/33d1e5d2476cfbfb38e3b7a0fcd9ff2a/IMG_CMP_237705626.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  猫爪挠玻璃  
+##### 1330#       发表于 2021-5-2 16:29
+
+
+珊瑚亲女儿呀，表情丰富度跟别的都不是一个档
+
+
+-----
+
+####  待宵  
+##### 1331#       发表于 2021-5-2 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51126463&amp;ptid=1963832" target="_blank">twit 发表于 2021-5-2 14:02</a>
+
+这集演出看开真夏变身解除是因为变身器从包里掉出去了。
+
+那岂不是来个偷变身器的怪随随便便就能解除q娃的变 ...</blockquote>
+隔壁骑士经常掉，Q娃怎么就不能掉呢，虽然一般真不掉
+
+
+-----
+
+####  神杀赛利卡  
+##### 1332#       发表于 2021-5-2 16:46
+
+
+屑人鱼居然没有为真夏自己恢复而吐槽乃至生气，看来我之前错怪她了，这也没那么屑。
+
+
+-----
+
+####  Sliurus  
+##### 1333#       发表于 2021-5-2 19:01
+
+
+我觉得，罗拉还可以再屑一点，比如在夏夏复习的时候调戏她，最后没过的时候还事不关己高高挂起
+
+屑度和鉴度都拉高才有趣嘛，平时天天欺负夏夏和珊瑚，然后紧急时刻也能挺身而出舍命相救，人气和话题度就能**提升
+
+
+-----
+
+####  adsn  
+##### 1334#       发表于 2021-5-2 19:34
+
+
+我已经在期待结局前一集萝拉跟真夏分别的煽情场面了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+要求不高，照法Q那样来一份就行
+
+
+-----
+
+####  Blackson  
+##### 1335#       发表于 2021-5-2 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128658&amp;ptid=1963832" target="_blank">adsn 发表于 2021-5-2 19:34</a>
+
+我已经在期待结局前一集萝拉跟真夏分别的煽情场面了
+
+要求不高，照法Q那样来一份就行 ...</blockquote>
+我估计认为又会是像星Q那样了
+
+
+-----
+
+####  HGCG3  
+##### 1336#       发表于 2021-5-2 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51128428&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-5-2 19:01</a>
+
+我觉得，罗拉还可以再屑一点，比如在夏夏复习的时候调戏她，最后没过的时候还事不关己高高挂起
+
+屑度和鉴度 ...</blockquote>
+做人不能太火爆猴
+
+
+-----
+
+####  isa2456  
+##### 1337#       发表于 2021-5-2 21:48
+
+
+真夏这是完全没学过习吧<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/02/214731h6w6u8tkjkj1qggk.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210502214652.png</strong> (118.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 21:47 上传
+
+
+-----
+
+####  Sliurus  
+##### 1338#       发表于 2021-5-2 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51129667&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-5-2 21:48</a>
+
+真夏这是完全没学过习吧</blockquote>
+因为学习不Tropical 
+
+为什么英语这么差却喜欢把一句洋文放在嘴边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leleq  
+##### 1339#       发表于 2021-5-2 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51129711&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-5-2 21:53</a>
+
+因为学习不Tropical 
+
+为什么英语这么差却喜欢把一句洋文放在嘴边</blockquote>
+不是正因为英文不行不知道啥意思才挂在嘴边么<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leleq  
+##### 1340#       发表于 2021-5-2 22:16
+
+
+这集罗拉（暂时的人鱼之鉴<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">）真的棒 
+
+夏哥被**后的演出也不错算是目前 热情 最好的一回了
+
+
+-----
+
+####  isa2456  
+##### 1341#       发表于 2021-5-2 22:18
+
+
+萝拉虽然日常屑但是这些时候还是挺疼真夏的，加大贴贴力度<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">还有蟹哥被压榨得挺惨的，想摸鱼又被叫出去，还得心念着菜有没有煮好，结果女王又不吃，再出去就又被打了一顿
+
+
+-----
+
+####  HGCG+  
+##### 1342#       发表于 2021-5-2 23:39
+
+
+人鱼是海豹玩球那里太可爱了
+
+
+-----
+
+####  最强惠酱  
+##### 1343#       发表于 2021-5-2 23:51
+
+
+人鱼是屑在高傲狗眼看人低的性格上吧，人品我觉得是不坏ww
+才10集就把星q做不好的团队伙伴感做出来，今年是真的强，每个角色性格都挺饱满
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  舞野咲  
+##### 1344#       发表于 2021-5-3 08:18
+
+
+闹钟响了的时候我还以为大厨会把小怪留下自己回去收火，然后小怪见监工的走了马上摸鱼给了主角喘息的机会呢
+
+
+-----
+
+####  HGCG3  
+##### 1345#       发表于 2021-5-3 11:35
+
+
+这段的BGM超级好听 ​​​​
+<img src="http://wx4.sinaimg.cn/mw690/9657fdc2gy1gq3y02tit3j21hv0u07wj.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  damian-wade  
+##### 1346#       发表于 2021-5-3 12:47
+
+
+话说屑人鱼的pad能不能直接吸人的干劲，可以的话把夏哥当太阳炉使感觉可以直接通关<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Blackson  
+##### 1347#       发表于 2021-5-3 14:10
+
+
+<blockquote>damian-wade 发表于 2021-5-3 12:47
+话说屑人鱼的pad能不能直接吸人的干劲，可以的话把夏哥当太阳炉使感觉可以直接通关 ...</blockquote>
+你这说得真夏要搓个元气弹似的
+
+
+-----
+
+####  Sliurus  
+##### 1348#       发表于 2021-5-3 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51134035&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-5-3 14:10</a>
+
+你这说得真夏要搓个元气弹似的</blockquote>
+明明是充电宝，无限干劲power，反派吸多少夏夏放多少
+
+
+-----
+
+####  最强惠酱  
+##### 1349#       发表于 2021-5-3 14:45
+
+
+q娃牧场<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">？
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  HGCG3  
+##### 1350#       发表于 2021-5-3 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51134280&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-5-3 14:45</a>
+
+q娃牧场？
+
+
+—— 來自 samsung SM-G981N, Android 11上的 S1Next-鵝版 v2.4.4.1</blockquote>
+为了世界和平，我甘愿把自己的干劲献给Q娃
+
+最好是Q娃亲自来抽
+
+
+
+
+-----
+
+####  damian-wade  
+##### 1351#       发表于 2021-5-3 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51134035&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-5-3 14:10</a>
+
+你这说得真夏要搓个元气弹似的</blockquote>
+不是，既然人鱼的pad能把抢回来的干劲给Q娃加buff，如果平时拿夏哥当电池的话，不就是一个Trans-Am的原理吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG3  
+##### 1352#       发表于 2021-5-3 16:00
+
+
+假药
+
+会长本来和飞鸟都是网球部的
+
+当时说好了一起去全国大赛
+
+但有一天会长被抽走了干劲，缺席了重要的双打比赛导致飞鸟不战而败
+
+飞鸟收到打击后退出了网球部
+
+会长不久后和真夏一样靠自己的意志振作了起来，但是再也没有了打网球的体力，于是也退出了网球部并去了学生会
+
+两个人之间由此产生了误解和隔阂
+
+
+    
