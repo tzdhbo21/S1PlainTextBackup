@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-30 21:37** 
+> ## **本文件最后更新于2021-05-04 22:42** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_D6MeH" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_gkb6N" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -8114,4 +8114,535 @@ ina应该是贝雷帽
 Anya要翻盘了 西语冲鸭
 
 
-                                
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|这也在你的算计之中吗|
+
+
+查看全部评分
+
+
+-----
+
+####  smy20011  
+##### 512#         楼主| 发表于 2021-5-1 07:45
+
+
+<img src="https://img.saraba1st.com/forum/202105/01/074516a9dek99pe4499ldr.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E0NYm6hUYAU2ln0.jpeg</strong> (854.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 07:45 上传
+
+
+[https://twitter.com/riva_poul/status/1388063073429250051/photo/1](https://twitter.com/riva_poul/status/1388063073429250051/photo/1)
+
+4chan的开串图，实在是太香了
+
+
+-----
+
+####  smy20011  
+##### 513#         楼主| 发表于 2021-5-1 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51115751&amp;ptid=1989758" target="_blank">絵生voice 发表于 2021-5-1 05:20</a>
+
+Anya要翻盘了 西语冲鸭</blockquote>
+同接2500，还是在跟鲨鱼撞的情况下，下面评论全是西班牙文23333
+
+不过Anya是有语言天赋还是之前学过，学了一个小时就直接开始读西班牙文的sc了？
+
+
+-----
+
+####  帆乃花  
+##### 514#       发表于 2021-5-1 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51118246&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-1 13:38</a>
+
+同接2500，还是在跟鲨鱼撞的情况下，下面评论全是西班牙文23333
+
+不过Anya是有语言天赋还是之前学过，学了 ...</blockquote>
+现在reddit已经好多西语贴了 完全看不懂 很不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 515#       发表于 2021-5-1 18:50
+
+
+<img src="https://img.saraba1st.com/forum/202105/01/185052dxxlu4twljui4i64.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (344.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-1 18:50 上传
+
+
+-----
+
+####  PureIllusion  
+##### 516#       发表于 2021-5-2 04:59
+
+
+ 本帖最后由 PureIllusion 于 2021-5-2 05:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51105540&amp;ptid=1989758" target="_blank">wiig 发表于 2021-4-30 01:33</a>
+
+**** 本内容被作者隐藏 ****</blockquote>
+
+
+以下内容需要积分高于 6000 才可浏览
+
+提到yoasobi的混音（mix）特别干净，尤其是夜に駆ける那首，希望自己的歌有个好mixer。
+
+
+估计是被空色デイズ那首翻唱的混音伤到了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 517#         楼主| 发表于 2021-5-2 05:56
+
+
+我的妈啊，土豪给ina买了时代广场的广告，专门祝贺ina生日
+
+
+1619900376765.jpg
+(300.15 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-2 05:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/055536tc3oas444aj77t0v.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 518#         楼主| 发表于 2021-5-2 09:41
+
+
+ 本帖最后由 smy20011 于 2021-5-2 09:42 编辑 
+
+Gura歌回存档mega网盘
+
+[https://mega.nz/folder/aR4CDTqT#pnlrJvUk4gCZJN4r7owIfA](https://mega.nz/folder/aR4CDTqT#pnlrJvUk4gCZJN4r7owIfA)
+
+
+-----
+
+####  wiig  
+##### 519#       发表于 2021-5-2 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123814&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-5-2 04:59</a>
+
+**** 本内容被作者隐藏 ****</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/123.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 520#       发表于 2021-5-2 11:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51123859&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-2 05:56</a>
+
+我的妈啊，土豪给ina买了时代广场的广告，专门祝贺ina生日</blockquote>
+强强Tentacult
+
+
+-----
+
+####  wiig  
+##### 521#       发表于 2021-5-2 11:39
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/113951e4r5anarapdr8da8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (488.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 11:39 上传
+
+
+-----
+
+####  帆乃花  
+##### 522#       发表于 2021-5-2 12:36
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/123643nsqe0uriuu8fli4m.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (181.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 12:36 上传
+
+
+-----
+
+####  smy20011  
+##### 523#         楼主| 发表于 2021-5-2 23:11
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/231128qs6s3fkxsxm94kky.jpg" referrerpolicy="no-referrer">
+
+
+<strong>o4sltf6inow61.jpg</strong> (166.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 23:11 上传
+
+
+一氧化二氢23333
+
+
+-----
+
+####  smy20011  
+##### 524#         楼主| 发表于 2021-5-3 22:04
+
+
+死神新衣直播开始了
+
+
+-----
+
+####  smy20011  
+##### 525#         楼主| 发表于 2021-5-3 22:35
+
+
+马尾好看！
+
+
+-----
+
+####  wiig  
+##### 526#       发表于 2021-5-3 23:35
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/233511v708mm1m3rh4hvm7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (97.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 23:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/233523hlswar5825llzw8s.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (71.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 23:35 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">升天
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 蒼島燃灯| + 1|好好看！|
+
+
+查看全部评分
+
+
+-----
+
+####  smy20011  
+##### 527#         楼主| 发表于 2021-5-3 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51138419&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-3 23:35</a>
+
+升天</blockquote>
+直播不脱是怕被ban么2333
+
+
+-----
+
+####  帆乃花  
+##### 528#       发表于 2021-5-4 00:06
+
+
+<img src="https://img.saraba1st.com/forum/202105/04/000559m5wqwh0zoqrz5krr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210504000419.jpg</strong> (190.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-4 00:05 上传
+
+
+-----
+
+####  wiig  
+##### 529#       发表于 2021-5-4 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51138588&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-3 23:59</a>
+
+直播不脱是怕被ban么2333</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">还是想看动起来啊
+
+
+-----
+
+####  smy20011  
+##### 530#         楼主| 发表于 2021-5-4 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51138646&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-4 00:07</a>
+
+还是想看动起来啊</blockquote>
+等一个喝酒
+
+
+-----
+
+####  smy20011  
+##### 531#         楼主| 发表于 2021-5-4 02:40
+
+
+ 本帖最后由 smy20011 于 2021-5-4 02:41 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/04/024014m4e3gh222see45hh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>93y1ut63vxw61.jpg</strong> (110.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-4 02:40 上传
+
+
+Reddit作图真快
+
+
+-----
+
+####  wiig  
+##### 532#       发表于 2021-5-4 07:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  被子十三  
+##### 533#       发表于 2021-5-4 14:37
+
+
+更期待接下来几位的新衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 534#       发表于 2021-5-5 05:12
+
+
+ 本帖最后由 wiig 于 2021-5-5 05:15 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/051227jpan0itezneyhjhy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (402.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 05:12 上传
+
+
+[https://youtu.be/C5IIoZsci8Y](https://youtu.be/C5IIoZsci8Y)
+
+
+-----
+
+####  smy20011  
+##### 535#         楼主| 发表于 2021-5-5 05:50
+
+
+火鸡张嘴的样子傻乎乎的，可爱
+
+
+-----
+
+####  smy20011  
+##### 536#         楼主| 发表于 2021-5-5 05:53
+
+
+奶嘴2333
+
+
+-----
+
+####  wiig  
+##### 537#       发表于 2021-5-5 06:00
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/055859c8ixf4ytfi3liftt.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (215.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 05:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/055917tlszgmd6g77z7s7s.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (238.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 05:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/055948nhk6hkou1vppo1ob.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (254.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 05:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/060030q99obfr9n7odnt7v.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (203.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 06:00 上传
+
+
+-----
+
+####  wiig  
+##### 538#       发表于 2021-5-5 06:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">本体看剪影猜的八九不离十，配件好多
+
+
+-----
+
+####  wiig  
+##### 539#       发表于 2021-5-5 06:04
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/060440zx6h55pnjwtzr553.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (24.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 06:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/060444eiz5yyv9py3i9y42.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (11.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 06:04 上传
+
+
+-----
+
+####  smy20011  
+##### 540#         楼主| 发表于 2021-5-5 06:08
+
+
+学猫学的好像2333
+
+
+
+
+-----
+
+####  帆乃花  
+##### 541#       发表于 2021-5-5 06:10
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/061017ptjw4ieipkt4gp9t.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (212.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 06:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/061023lmi5p2d9d9t6pii7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (242.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 06:10 上传
+
+
+-----
+
+####  smy20011  
+##### 542#         楼主| 发表于 2021-5-5 06:23
+
+
+这新歌和声好赞啊
+
+
+                               
