@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-04 05:42** 
+> ## **本文件最后更新于2021-05-04 14:35** 
 
 
 
@@ -12710,4 +12710,427 @@ syl 你就这么喜欢当苦主吗<img src="https://static.saraba1st.com/image/s
 建议加大力度多生几个小小麻<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
 
 
-         
+-----
+
+####  Dualist彩  
+##### 14705#       发表于 2021-5-4 19:50
+
+
+我好想她，想听她唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14706#       发表于 2021-5-4 19:56
+
+
+你继续想吧 她正玩的嗨呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 14707#       发表于 2021-5-4 20:51
+
+
+吊人能不能明天突击来B站收租啊 
+
+
+-----
+
+####  十九号大侠  
+##### 14708#       发表于 2021-5-4 21:00
+
+
+不能指望20岁年轻人考虑那么多
+
+
+-----
+
+####  A2014720  
+##### 14709#       发表于 2021-5-4 21:02
+
+
+收租哪有淫pa有意思<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14710#       发表于 2021-5-4 21:03
+
+
+能和别人开心打游戏 为什么要给死宅直播 没钱再播捞一笔钱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14711#       发表于 2021-5-4 21:34
+
+
+ 本帖最后由 Dualist彩 于 2021-5-4 21:35 编辑 
+
+破楼，sl👊🏻硬了
+
+一会儿有联动啊，联动完还不唱歌就sl喷她<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14712#       发表于 2021-5-4 21:53
+
+
+[https://www.youtube.com/watch?v=ltaJS4GthkA](https://www.youtube.com/watch?v=ltaJS4GthkA)
+
+一会的联动直播间
+
+
+-----
+
+####  路人庚  
+##### 14713#       发表于 2021-5-4 22:03
+
+
+联动的一部分收入会拿去进行医疗募捐可还行，这就是《上流》吗
+
+
+-----
+
+####  时间在我手中  
+##### 14714#       发表于 2021-5-4 22:05
+
+
+好，羊党马上进行一个投的降！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 14715#       发表于 2021-5-4 22:05
+
+
+本来以为吊人这开场白够弱智了，德龙你
+
+
+-----
+
+####  A2014720  
+##### 14716#       发表于 2021-5-4 22:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">羊党心情如bls
+
+
+-----
+
+####  路人庚  
+##### 14717#       发表于 2021-5-4 22:06
+
+
+把你咩姐放第一个的结果就是把全员都带弱智了
+
+
+-----
+
+####  格林卡罗尔  
+##### 14718#       发表于 2021-5-4 22:07
+
+
+去年重现<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zc1996zc  
+##### 14719#       发表于 2021-5-4 22:07
+
+
+草又是喝碳酸饮料
+
+
+-----
+
+####  路人庚  
+##### 14720#       发表于 2021-5-4 22:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，怎么还是喝可乐啊，过了一年还是这个老活可还行
+
+
+-----
+
+####  时间在我手中  
+##### 14721#       发表于 2021-5-4 22:07
+
+
+怎么又是喝可乐，wdnmd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">傻逼猫给爷出局
+
+
+-----
+
+####  A2014720  
+##### 14722#       发表于 2021-5-4 22:08
+
+
+怎么剧本都不带换的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 14723#       发表于 2021-5-4 22:08
+
+
+吊人可千万不要拿第一<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14724#       发表于 2021-5-4 22:08
+
+
+看来车轱辘是业界的大环境，怪不得你咩姐整天老三样了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14725#       发表于 2021-5-4 22:10
+
+
+ 本帖最后由 A2014720 于 2021-5-4 22:11 编辑 
+
+吊人你<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+大家都挺能憋的到你这怎么就拉跨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14726#       发表于 2021-5-4 22:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刚刚那一声真的是你咩姐的吗。。。
+
+
+-----
+
+####  格林卡罗尔  
+##### 14727#       发表于 2021-5-4 22:11
+
+
+第一声其实感觉不太像，为什么我会了解这个<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14728#       发表于 2021-5-4 22:12
+
+
+ 本帖最后由 A2014720 于 2021-5-4 22:14 编辑 
+
+那一声明显是她啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+50深蹲？绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14729#       发表于 2021-5-4 22:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐感觉在摸
+
+
+-----
+
+####  古战场亡魂  
+##### 14730#       发表于 2021-5-4 22:17
+
+
+耳朵已经去世了
+
+
+
+
+-----
+
+####  路人庚  
+##### 14731#       发表于 2021-5-4 22:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑屁发言攻击，这是个啥哦
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我要奶一口你咩姐无伤通过
+
+
+-----
+
+####  格林卡罗尔  
+##### 14732#       发表于 2021-5-4 22:18
+
+
+ 本帖最后由 格林卡罗尔 于 2021-5-4 22:20 编辑 
+
+得赶紧想评论了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+花生这自己准备的完全不行啊
+
+
+吊人这一脸蚌埠住的表情太草
+
+
+-----
+
+####  路人庚  
+##### 14733#       发表于 2021-5-4 22:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟看来花生不太熟你咩，只能拿这种梗来了
+
+
+-----
+
+####  时间在我手中  
+##### 14734#       发表于 2021-5-4 22:23
+
+
+ 本帖最后由 时间在我手中 于 2021-5-4 22:27 编辑 
+
+猪手会穿针引线吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坦克民必胜！
+
+果然已经是阿姨了，倒数第一，笑辣
+
+
+-----
+
+####  路人庚  
+##### 14735#       发表于 2021-5-4 22:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这针线活就跟虚拟人吃播一样也就听个响了
+
+
+-----
+
+####  格林卡罗尔  
+##### 14736#       发表于 2021-5-4 22:26
+
+
+还以为是什么游戏虚拟穿线，咩咩什么时候穿好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zc1996zc  
+##### 14737#       发表于 2021-5-4 22:27
+
+
+所以小麻是近视眼镜娘石锤了吧
+
+
+-----
+
+####  A2014720  
+##### 14738#       发表于 2021-5-4 22:27
+
+
+虚拟张飞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14739#       发表于 2021-5-4 22:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">老实人，最后都没说自己穿好了
+
+
+-----
+
+####  时间在我手中  
+##### 14740#       发表于 2021-5-4 22:30
+
+
+这就结束了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有点快
+
+
+-----
+
+####  格林卡罗尔  
+##### 14741#       发表于 2021-5-4 22:31
+
+
+各位调低音量
+
+话说这个结束后有live环节吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14742#       发表于 2021-5-4 22:31
+
+
+死嗓可还行，该调小音量了
+
+
+-----
+
+####  GRMeA104  
+##### 14743#       发表于 2021-5-4 22:31
+
+
+蚌埠住了,什么日综旧素材混马娘梗蹭热度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14744#       发表于 2021-5-4 22:32
+
+
+ 本帖最后由 路人庚 于 2021-5-4 22:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐在这方面真的拼不过这些人
+
+
+（除非把当年那个咬兔子尾巴的召回来估计才行
+
+
+-----
+
+####  Klience  
+##### 14745#       发表于 2021-5-4 22:32
+
+
+感觉日本的综艺节目都差不多就是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 妈的 耳朵要聋了
+
+
+-----
+
+####  A2014720  
+##### 14746#       发表于 2021-5-4 22:33
+
+
+这人装尼玛呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14747#       发表于 2021-5-4 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">偶像包袱啊偶像包袱
+
+
+        
