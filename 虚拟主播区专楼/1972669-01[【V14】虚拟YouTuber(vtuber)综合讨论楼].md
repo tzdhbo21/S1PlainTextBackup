@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-05 03:57** 
+> ## **本文件最后更新于2021-05-05 13:58** 
 
 
 
@@ -6132,4 +6132,427 @@ pdp早就套过皮了<img src="https://static.saraba1st.com/image/smiley/face201
 笑死人了
 
 
-                                  
+-----
+
+####  IDIDIDID  
+##### 452#       发表于 2021-5-5 12:00
+
+
+久违的看了眼节奏榜，各种原地转生+皮皮船这种超级ip狂暴轰入，先驱又要变先烈了。
+
+
+-----
+
+####  Vneet  
+##### 453#       发表于 2021-5-5 12:36
+
+
+反正首页已经大部分被虹杏刷屏了，门槛也足够高了（首页最后1个的黄金船也要60w），也不差多几个转生的大物混进来吧。
+
+
+-----
+
+####  FCCHua  
+##### 454#       发表于 2021-5-5 13:03
+
+
+ 本帖最后由 FCCHua 于 2021-5-5 18:59 编辑 
+
+诗子3d升级，6号晚8点披露
+
+
+-----
+
+####  rzrbtk  
+##### 455#       发表于 2021-5-5 15:13
+
+
+收回之前的郡道无人性发言，看到现在发现真的太有了，完全人本位思考，把所有安卓看作机械和工具，把大部分反抗计划搞砸，多次想把幼女丢了，和汉克敌对，激化社会对安卓的看法，结局估计就是安卓暴力反抗且失败，人类继续奴役安卓，震撼啊。
+
+
+-----
+
+####  某穆克拉  
+##### 456#       发表于 2021-5-5 15:28
+
+
+不做人奸，很好。
+
+
+-----
+
+####  cqkxywj  
+##### 457#       发表于 2021-5-5 16:33
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/161329di8e28mcggtiscwi.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-05-05_16-10-56.png</strong> (82.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 16:13 上传
+
+
+黄昏势力首脑会晤，天皇携太子参会，三方会谈或将关系到阴湿阿宅的管人生活<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 458#       发表于 2021-5-5 16:45
+
+
+  不过应该是茄子主催的吧？
+
+
+-----
+
+####  kangkangsama  
+##### 459#       发表于 2021-5-5 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51150192&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-5-5 15:13</a>
+
+收回之前的郡道无人性发言，看到现在发现真的太有了，完全人本位思考，把所有安卓看作机械和工具，把大部分 ...</blockquote>
+对啊，她一上来就是这个态度。
+
+而且汉克这种死傲娇她向来不对付
+
+蕾丝安卓二话不说就毙了
+
+我喜欢
+
+
+-----
+
+####  NBXX  
+##### 460#       发表于 2021-5-5 17:02
+
+
+[https://www.youtube.com/channel/UCOeRhmtc5szJ25a5eHOLvWQ](https://www.youtube.com/channel/UCOeRhmtc5szJ25a5eHOLvWQ)
+
+昼森やも
+
+
+订阅飞涨中的高质量新人
+
+
+-----
+
+####  渡鸦骑士  
+##### 461#       发表于 2021-5-5 17:14
+
+
+这就是大物吗[https://www.youtube.com/watch?v=zbqSOzLE8YI](https://www.youtube.com/watch?v=zbqSOzLE8YI)
+
+<img src="https://img.saraba1st.com/forum/202105/05/171428nx3s3oogi3bgogoa.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (14.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 17:14 上传
+
+
+-----
+
+####  FCCHua  
+##### 462#       发表于 2021-5-5 17:18
+
+
+ 本帖最后由 FCCHua 于 2021-5-5 17:55 编辑 
+
+夜见厉害，这新衣服披露前的小游戏做的真不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">但是为啥都开始唐突走剧情线了......
+syl 在b站看到的，怎么狗妈pv逮着小蜜蜂使劲薅，不是已经出过一次事然后道歉了吗？还是同一个画师，行吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 463#       发表于 2021-5-5 17:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51150787&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-5-5 16:52</a>
+
+对啊，她一上来就是这个态度。
+
+而且汉克这种死傲娇她向来不对付
+
+蕾丝安卓二话不说就毙了</blockquote>
+我觉得她是希望能跟汉克搞好关系的，但是就是不顺着他的意，对爱丽丝也是，几乎是反选...
+
+所以说这人真的不能玩儿女同游戏啊，对她来说根本是黑他累女跟谜语人女谈恋爱还被碧池女阻挠这样的剧情，出事了要转时间的时候绝对会说类似于“真的要救吗？不如让这人就这样吧！”的话把观众气走
+
+
+-----
+
+####  hulaoda007  
+##### 464#       发表于 2021-5-5 17:24
+
+
+  白見さん！？
+
+
+-----
+
+####  kangkangsama  
+##### 465#       发表于 2021-5-5 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51150965&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-5-5 17:20</a>
+
+我觉得她是希望能跟汉克搞好关系的，但是就是不顺着他的意，对爱丽丝也是，几乎是反选...
+
+所以说这人真的 ...</blockquote>
+因为汉克是作啊
+
+我玩的时候也很难顺着意的
+
+郡道虽然和汉克关系好了会开心，但是做事还是按照自己的行为准则的。
+
+
+她干啥都要和诺丝反着干，诺丝死了还特开心这点真是棒。而且完全不代入角色，会觉得康纳（或者安卓）就该是一个机械，也会觉得马卡斯沙雕，感觉光谱和泥潭坛友类似（三观正的那群坛友）。
+
+
+-----
+
+####  rzrbtk  
+##### 466#       发表于 2021-5-5 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51151045&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-5-5 17:32</a>
+
+因为汉克是作啊
+
+我玩的时候也很难顺着意的
+
+郡道虽然和汉克关系好了会开心，但是做事还是按照自己的行为准 ...</blockquote>
+至于爱丽丝路线狂说干话就是一贯的恨萝莉了是吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 467#       发表于 2021-5-5 17:52
+
+
+你虹竟然还参加了荒野的一个活动
+
+
+-----
+
+####  Suny08  
+##### 468#       发表于 2021-5-5 18:02
+
+
+这个新衣服感觉就是完全为了补充异世界这个设定做的，真的奢侈啊……而且这种和本体风格差距过大的衣服感觉用的机会也挺少的，不过这披露是真的用心了，夜见她应该是从前天开始就没睡一直做到了昨天晚上做出来的
+
+
+-----
+
+####  poipanchao  
+##### 469#       发表于 2021-5-5 18:06
+
+
+这衣服碰到某些主角是小女孩的游戏就能用了
+
+最后还要看穿这衣服是不是一定要RP
+
+
+-----
+
+####  死体残留  
+##### 470#       发表于 2021-5-5 18:16
+
+
+ 本帖最后由 死体残留 于 2021-5-5 18:20 编辑 
+
+https://youtu.be/dx1YNjheLEc
+
+只有这时候能体现出虹3d场景和小道具的优势
+赛马场天台体育馆保健室教室神社游戏中心
+
+syl 马场混入一只熊猫了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  神影依  
+##### 471#       发表于 2021-5-5 18:34
+
+
+HH这个脚底按摩视频看得人好兴奋
+
+
+-----
+
+####  hulaoda007  
+##### 472#       发表于 2021-5-5 19:07
+
+
+ 本帖最后由 hulaoda007 于 2021-5-5 19:44 编辑 
+
+  光君又迟到了...
+
+  Q：光君生孩子了吗？
+
+  A：不是光君在生...
+
+  Q：那他们是要生吗？
+
+  A：不，其实他们事故了，并且好像只是想打GAL。
+
+  Q：那现在在GAL？
+
+  A：事故。
+
+  Q：我是指现在。
+
+  A：我也是指现在...
+
+  危机关头，助产士上场。（Yashikizu！！！！）
+
+  经过可靠的名人助产士846的帮助，从迟到几分钟的直播开始到现在，游戏画面终于可以被观众看到。（却失去了耳朵）
+
+
+  好像是光君和莉莉姆打算一起玩这个南梦宫出品的玩家假装自己是父母的女儿养成类游戏。
+
+
+-----
+
+####  noHentai  
+##### 473#       发表于 2021-5-5 19:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51151390&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-5-5 18:16</a>
+
+https://youtu.be/dx1YNjheLEc
+
+
+只有这时候能体现出虹3d场景和小道具的优势</blockquote>
+其实这个MV制作上是摸了。
+
+从3D直播的唱歌MV来看想做是能做到接近原版MV的运镜的，要是做出来效果不错的话是可以吹一波了，可惜没有。
+
+
+-----
+
+####  qq845629713  
+##### 474#       发表于 2021-5-5 20:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> 虹人这是憋了多久，，总算有个输出的窗口了
+
+
+-----
+
+####  某穆克拉  
+##### 475#       发表于 2021-5-5 20:17
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/201745h8h360n50804jlz1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (254.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 20:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/201755av72d2qr7dqd0nqk.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (236.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 20:17 上传
+
+
+-----
+
+####  FCCHua  
+##### 476#       发表于 2021-5-5 20:38
+
+
+尊妈和安洁的3d换身联动好欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 477#       发表于 2021-5-5 20:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 尊用安洁高大的身体，完全没那种色色的感觉了
+
+
+-----
+
+####  Aminor  
+##### 478#       发表于 2021-5-5 20:54
+
+
+ 本帖最后由 Aminor 于 2021-5-5 21:02 编辑 
+
+狗妈pv又抄袭了？
+[https://www.bilibili.com/video/BV1KQ4y1f7zr](https://www.bilibili.com/video/BV1KQ4y1f7zr)绷不住了
+
+<img src="https://img.saraba1st.com/forum/202105/05/205549hpxr5s6717i5x27p.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210505205313.png</strong> (50.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 20:55 上传
+
+
+-----
+
+####  真飞鸟i  
+##### 479#       发表于 2021-5-5 21:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">荣誉虹人
+
+
+-----
+
+####  winda  
+##### 480#       发表于 2021-5-5 21:28
+
+
+双人大会niru乱杀啊<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  死体残留  
+##### 481#       发表于 2021-5-5 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51151763&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-5-5 19:12</a>
+其实这个MV制作上是摸了。
+
+从3D直播的唱歌MV来看想做是能做到接近原版MV的运镜的，要是做出来效果不错的 ...</blockquote>
+mv和动画之间折中了一下吧
+动作和面捕都很僵硬，只能吹场景了，不知道之后live会不会跳原版mv的舞
+
+
+-----
+
+####  peh  
+##### 482#       发表于 2021-5-5 21:44
+
+
+hachi one man live
+
+
+                                 
