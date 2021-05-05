@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-28 19:09** 
+> ## **本文件最后更新于2021-05-05 09:54** 
 
 
 
@@ -3038,7 +3038,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_y6YZz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_Bx8mZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -5735,4 +5735,360 @@ OP还没上架么？听着好带感啊
 —— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                  
+-----
+
+####  夜颠覆  
+##### 453#       发表于 2021-4-29 11:38
+
+
+这些怪兽对人类基本没啥兴趣，除了被动造成的伤害，你不主动找上去它都懒得搭理的感觉，这集女主部分得等熟肉再看看
+
+
+-----
+
+####  夜颠覆  
+##### 454#       发表于 2021-4-29 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51094807&amp;ptid=1963627" target="_blank">蛇头 发表于 2021-4-29 02:38</a>
+
+这话提到一个潜水艇行踪不明，难道是之前出现那艘？如果是的话那倒真是目前唯一伤亡了。海自打曼达还被哥总 ...</blockquote>
+人类目前为止基本没有正面伤亡的镜头，不知道是上头的意思，还是监督的意思
+
+
+-----
+
+####  夜颠覆  
+##### 455#       发表于 2021-4-29 11:50
+
+
+这集怪兽部分还是可以的，希望后面哥总登场，怪兽大乱斗部分能更好
+
+
+-----
+
+####  HGCG-闪  
+##### 456#       发表于 2021-4-29 18:19
+
+
+飞天豹干掉了安吉拉斯
+
+六集过去了人类终于靠自己干掉了一头怪兽
+<img src="http://wx1.sinaimg.cn/large/9657fdc2gy1gq0s8jxie7j21hc0u04qp.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx3.sinaimg.cn/large/9657fdc2gy1gq0s8ixvmvj21hc0u04qp.jpg" referrerpolicy="no-referrer">
+
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gq0s8ileydj21hc0u0az4.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  11116等  
+##### 457#       发表于 2021-4-29 19:14
+
+
+现在这集最喜欢的就是这部了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">就是怪兽体型有点小，但是各种科幻味和氛围感真的很足。顺便问下ed里的三式机龙，有可能在动画里出现么
+
+
+-----
+
+####  HGCG-闪  
+##### 458#       发表于 2021-4-29 22:05
+
+
+居然是原创的新怪兽！？
+<img src="http://wx4.sinaimg.cn/large/9657fdc2gy1gq0yruwkkrj210g0u07wj.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  selain.meneth  
+##### 459#       发表于 2021-4-29 22:08
+
+
+我还以为安吉拉斯是可以收服的，居然干掉了。
+
+
+-----
+
+####  夜颠覆  
+##### 460#       发表于 2021-4-29 22:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51102392&amp;ptid=1963627" target="_blank">11116等 发表于 2021-4-29 19:14</a>
+
+现在这集最喜欢的就是这部了就是怪兽体型有点小，但是各种科幻味和氛围感真的很足。顺便问下ed里的 ...</blockquote>
+感觉可能性不大，片尾曲更多的是彩蛋的性质
+
+
+-----
+
+####  Blackson  
+##### 461#       发表于 2021-4-29 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51102392&amp;ptid=1963627" target="_blank">11116等 发表于 2021-4-29 19:14</a>
+
+现在这集最喜欢的就是这部了就是怪兽体型有点小，但是各种科幻味和氛围感真的很足。顺便问下ed里的 ...</blockquote>
+不可能。这个世界观下的人类连对付安吉拉斯都已经这么吃力了。
+
+真要出在原作里恶役定位的机械哥斯拉/三式机龙，怕是得毁灭世界了
+
+
+-----
+
+####  封面杀手  
+##### 462#       发表于 2021-4-30 00:24
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/001648ta755qmnaq51xkqs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[GST] Godzilla S.P - 06 [1080p]_2021429234928.jpg</strong> (269.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 00:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/30/001711btk196aatek9ptd9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[GST] Godzilla S.P - 06 [1080p]_2021429235034.jpg</strong> (262.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-30 00:17 上传
+
+
+区区二次元纸片人
+
+
+-----
+
+####  Freakyyu  
+##### 463#       发表于 2021-4-30 10:19
+
+
+看来是绝对不会死人了，连这市长都没死<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Lynn冰翎  
+##### 464#       发表于 2021-4-30 14:08
+
+
+所以说嘛，两发捕鲸矛就能干掉的怪兽强行加一个预知未来的大杀器能力有什么必要呢。
+
+这集女主的推理部分可不就比上一集抄答案式的推理更精彩，虽然一堆片假名糊脸什么都没看懂。
+
+
+-----
+
+####  teecoo00  
+##### 465#       发表于 2021-4-30 15:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51109956&amp;ptid=1963627" target="_blank">Lynn冰翎 发表于 2021-4-30 14:08</a>
+
+所以说嘛，两发捕鲸矛就能干掉的怪兽强行加一个预知未来的大杀器能力有什么必要呢。
+
+这集女主的推理部分可 ...</blockquote>
+不是预知未来是看见未来，我觉得这个设定估计和后面红尘、原型和G有关
+
+
+-----
+
+####  angelooo  
+##### 466#       发表于 2021-4-30 19:40
+
+
+我刚看第五话……那个原创怪兽有个特写把我吓得一激灵
+
+
+-----
+
+####  yukinouta  
+##### 467#       发表于 2021-4-30 21:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男主和他的机器人也太牛逼了
+
+女主PART看生肉没怎么看懂_(:з」∠)_
+
+
+-----
+
+####  shcmzzj  
+##### 468#       发表于 2021-4-30 23:29
+
+
+女主反正就是日式空想科幻那套鬼扯，高次元化学反应噗，怎么样都好啦
+
+倒是那个谜语人的女公务员成天神神叨叨念经不讲人话，烦的一比
+
+
+-----
+
+####  hgcg-ix  
+##### 469#       发表于 2021-4-30 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51113519&amp;ptid=1963627" target="_blank">yukinouta 发表于 2021-4-30 21:00</a>
+
+男主和他的机器人也太牛逼了
+
+女主PART看生肉没怎么看懂_(:з」∠)_</blockquote>
+毕竟是昭和系列里和哥总一起拯救过地球的机器人
+
+
+-----
+
+####  faight486  
+##### 470#       发表于 2021-5-3 00:31
+
+
+为啥到现在字幕组还没更新啊？
+
+
+-----
+
+####  太书主  
+##### 471#       发表于 2021-5-3 10:11
+
+
+奇了，就这本只有个星空字幕组在做
+
+
+搬运都到哪去了
+
+
+-----
+
+####  书七  
+##### 472#       发表于 2021-5-3 10:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51132250&amp;ptid=1963627" target="_blank">太书主 发表于 2021-5-3 10:11</a>
+奇了，就这本只有个星空字幕组在做
+
+
+搬运都到哪去了</blockquote>
+网飞独播
+
+—— 来自 OPPO PDPT00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  teecoo00  
+##### 473#       发表于 2021-5-3 10:31
+
+
+星空微博说因为后期和压制有几部番熟肉要延迟一周上，不知道有没有奇点<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夜颠覆  
+##### 474#       发表于 2021-5-3 12:19
+
+
+没有更新可能是要延迟了，真那样的话只能等TX了
+
+
+-----
+
+####  罗克萨斯  
+##### 475#       发表于 2021-5-3 12:20
+
+
+本来纳闷熟肉怎么还没来，看来是延迟了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kojimaru  
+##### 476#       发表于 2021-5-3 12:36
+
+
+网飞只做了日语和韩语的字幕，为什么不多做个中文啊<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+机器人真是帅啊
+
+
+-----
+
+####  霜刀  
+##### 477#       发表于 2021-5-3 15:45
+
+
+有点没看懂，那个BB跑到楼梯下面去是干什么的，就为了展示他的中二？
+
+
+-----
+
+####  nuoer  
+##### 478#       发表于 2021-5-3 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51134737&amp;ptid=1963627" target="_blank">霜刀 发表于 2021-5-3 15:45</a>
+有点没看懂，那个BB跑到楼梯下面去是干什么的，就为了展示他的中二？</blockquote>
+矿井里的传感器监测到异常，下去看情况的
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  newtroll  
+##### 479#       发表于 2021-5-3 21:19
+
+
+感觉科幻硬度在日本动画里算比较高的了，至少能看出来很多东西是用心编的。
+
+
+-----
+
+####  skullgreymon  
+##### 480#       发表于 2021-5-5 17:03
+
+
+这个片没有片源吗，全网都搜不到
+
+
+
+
+-----
+
+####  skullgreymon  
+##### 481#       发表于 2021-5-5 17:05
+
+
+第一次看这怪抖毛就感觉和来自深渊里的豪猪太像了，还都是预知未来
+
+
+-----
+
+####  Cloudslin  
+##### 482#       发表于 2021-5-5 17:26
+
+
+引入时间概念之后倒是真感觉男女主不在一个时间点上是可能的
+
+
+-----
+
+####  暗黑能乐  
+##### 483#       发表于 2021-5-5 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51151003&amp;ptid=1963627" target="_blank">Cloudslin 发表于 2021-5-5 17:26</a>
+
+引入时间概念之后倒是真感觉男女主不在一个时间点上是可能的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">那怎么解释他们认识的同一个人基本没有变化
+
+
+                                 
