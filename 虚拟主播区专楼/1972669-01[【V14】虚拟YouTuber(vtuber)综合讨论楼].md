@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-03 07:56** 
+> ## **本文件最后更新于2021-05-05 03:57** 
 
 
 
@@ -5771,4 +5771,365 @@ kr5期次播
 夜见也要只狼，苇名忍者集团SMC成了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
 
 
-                                   
+-----
+
+####  poipanchao  
+##### 422#       发表于 2021-5-3 17:27
+
+
+bora基本上22个小时了……
+
+
+-----
+
+####  FCCHua  
+##### 423#       发表于 2021-5-3 18:02
+
+
+想到小千那次的20多个小时了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+观众换了几波人
+
+
+-----
+
+####  alcoholic1000  
+##### 424#       发表于 2021-5-3 21:05
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-3 22:46 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/210437unnj1w0uy0u04nh4.png" referrerpolicy="no-referrer">
+
+
+<strong>【NEW OUTFIT REVEAL!】Grim Reaper's Brand New Style! 新衣装お披露目会!! #Ho.png</strong> (83.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 21:04 上传
+
+
+恐怖如斯<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">破10w了！
+
+同接峰值13w4，夹克酷酷
+
+<img src="https://img.saraba1st.com/forum/202105/03/223909l14yrrqcy1r7zcfp.png" referrerpolicy="no-referrer">
+
+
+<strong>【NEW OUTFIT REVEAL!】Grim Reaper's Brand New Style! 新衣装お披露目会!! #Ho.png</strong> (310.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 22:39 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/224646w7bfl194flt494fl.png" referrerpolicy="no-referrer">
+
+
+<strong>【NEW OUTFIT REVEAL!】Grim Reaper's Brand New Style! 新衣装お披露目会!! #Ho.png</strong> (270.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 22:46 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 425#       发表于 2021-5-3 22:38
+
+
+best karen
+
+
+-----
+
+####  winda  
+##### 426#       发表于 2021-5-3 23:40
+
+
+ 本帖最后由 winda 于 2021-5-4 00:33 编辑 
+
+ec之后是15么<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">盐幕府的屋上忍者太可怕了
+
+
+-----
+
+####  poipanchao  
+##### 427#       发表于 2021-5-3 23:57
+
+
+蛋蛋又干啥了
+
+
+-----
+
+####  格林卡罗尔  
+##### 428#       发表于 2021-5-4 00:03
+
+
+女主角传说还有续篇？
+
+
+-----
+
+####  OldGlory  
+##### 429#       发表于 2021-5-4 01:30
+
+
+阿菜不会生日都不上播收钱吧？
+
+
+-----
+
+####  free  
+##### 430#       发表于 2021-5-4 16:22
+
+
+<img src="https://img.saraba1st.com/forum/202105/04/162252jvojndqmq3amruj3.png" referrerpolicy="no-referrer">
+
+
+<strong>杏.png</strong> (7.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-4 16:22 上传
+
+
+-----
+
+####  FCCHua  
+##### 431#       发表于 2021-5-4 17:11
+
+
+11岁今晚7点直播<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ketestrait  
+##### 432#       发表于 2021-5-4 18:14
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gq6k84hwjyj218f0oyn89.jpg" referrerpolicy="no-referrer">
+
+
+ラスボス：静凛
+
+
+-----
+
+####  rzrbtk  
+##### 433#       发表于 2021-5-4 18:47
+
+
+慢慢在补郡道的底特律变人，感觉郡道真的人性丧失（夸张）啊，绝对会三线坏结局吧……
+卡拉线还偶尔能代到一些mrra是真的没想到<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+爱丽丝：我们会一直在一起吗？
+卡拉：选项【会】或者【不会】。
+郡：…我才不会做这种长远的承诺，【不会】。
+爱丽丝：（好感下降）
+
+
+-----
+
+####  OldGlory  
+##### 434#       发表于 2021-5-4 19:10
+
+
+[https://www.youtube.com/watch?v=cjlkcjoIbRw](https://www.youtube.com/watch?v=cjlkcjoIbRw)
+
+阿菜生日终于播了
+
+
+-----
+
+####  kangkangsama  
+##### 435#       发表于 2021-5-4 19:28
+
+
+<blockquote>rzrbtk 发表于 2021-5-4 18:47
+慢慢在补郡道的底特律变人，感觉郡道真的人性丧失（夸张）啊，绝对会三线坏结局吧……
+
+卡拉线还偶尔能代到 ...</blockquote>
+y1s1，我玩的时候不太受得了这游戏的三观，倒是她的思维让我觉得更正常点。
+
+
+-----
+
+####  rzrbtk  
+##### 436#       发表于 2021-5-4 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51143840&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-5-4 19:28</a>
+y1s1，我玩的时候不太受得了这游戏的三观，倒是她的思维让我觉得更正常点。 ...</blockquote>
+不接受幼女的好意还不救汉克我实在无法接受<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 437#       发表于 2021-5-4 21:41
+
+
+降维打击是吧
+<strong>El Rubius</strong> or <strong>elrubiusOMG</strong> (/ˈruːbiəs/), is a Spanish-Norwegian YouTube personality whose channel primarily consists of gameplays and vlogs. His channel currently has over 8.8 billion views and 39 million subscribers. It is also the 42nd most subscribed YouTube channel in the world.
+
+
+A tweet from Rubius's official Twitter account was the most retweeted tweet in the world for the year 2016. The tweet was retweeted more than 1.3 million times.
+
+
+He is also one of the most popular streamers on Twitch, having the fourth most-followed Twitch channel in the world.
+
+<img src="https://img.saraba1st.com/forum/202105/04/213655sszptpjpslj0lc8c.png" referrerpolicy="no-referrer">
+
+
+<strong>elrubius.png</strong> (106.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-4 21:36 上传
+
+
+https://twitter.com/Rubiu5/status/1389261568823672833
+
+
+-----
+
+####  渡鸦骑士  
+##### 438#       发表于 2021-5-4 22:17
+
+
+VTB是个框，什么主播都可以装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdhai  
+##### 439#       发表于 2021-5-4 22:25
+
+
+好，橄榄了
+
+
+-----
+
+####  OldGlory  
+##### 440#       发表于 2021-5-4 22:41
+
+
+pdp早就套过皮了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kangkangsama  
+##### 441#       发表于 2021-5-4 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51144030&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-5-4 19:55</a>
+
+不接受幼女的好意还不救汉克我实在无法接受，虽然后面有回档啦 ...</blockquote>
+我还是想要她去玩life if strange啊
+
+想看她吐槽美国jk搞姬
+
+
+-----
+
+####  lhawp  
+##### 442#       发表于 2021-5-4 23:49
+
+
+这屁理屈王决赛的话题也太沉重了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">花生狸猫24好看就好看在大家都放得很开
+
+
+-----
+
+####  酒瓶止迁  
+##### 443#       发表于 2021-5-5 00:37
+
+
+花生狸猫这24小时长跑会有烤肉吗……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 444#       发表于 2021-5-5 00:59
+
+
+一枪一星深夜APEX甜蜜双排？！
+
+
+-----
+
+####  poipanchao  
+##### 445#       发表于 2021-5-5 01:27
+
+
+星叶这段快嘴好合拍啊
+
+
+-----
+
+####  FCCHua  
+##### 446#       发表于 2021-5-5 01:46
+
+
+星川的网速怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十四洲  
+##### 447#       发表于 2021-5-5 03:30
+
+
+虽然apex拉了，但是我赚了
+
+
+-----
+
+####  sonyjam  
+##### 448#       发表于 2021-5-5 10:20
+
+
+这阴湿的本事是真的学不来<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 449#       发表于 2021-5-5 10:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51147963&amp;ptid=1972669" target="_blank">sonyjam 发表于 2021-5-5 10:20</a>
+这阴湿的本事是真的学不来</blockquote>
+  别说，这俩人真是老油条...
+
+
+-----
+
+####  渡鸦骑士  
+##### 450#       发表于 2021-5-5 11:12
+
+
+看起来是两个棉花糖一个主题，实际上是用一个无关棉花糖来表明自己的立场再讨论下一个问题（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 451#       发表于 2021-5-5 11:44
+
+
+花生那边放着花谱的歌然后被ban了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+笑死人了
+
+
+                                  
