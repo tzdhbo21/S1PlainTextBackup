@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-23 09:40** 
+> ## **本文件最后更新于2021-05-06 06:45** 
 
 
 
@@ -1228,8 +1228,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  chenffluy  
 ##### 54095#       发表于 2020-12-30 12:56
 
-
-这事记得当时就有人提了，不过只在小圈子內，现在被再次提起是因为和之国太垃粉丝看不下去转黑举报吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1343,8 +1342,7 @@ DB不一样，反正就是拳拳到肉 波波相对（嗯？）没有什么属�
 ####  chenffluy  
 ##### 54106#       发表于 2020-12-30 13:04
 
-
-微博热搜第五了，怕是真的要凉，不过海贼王国内版权有腾讯一份，有tony马在或许能无事发生
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1598,8 +1596,7 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ####  chenffluy  
 ##### 54131#       发表于 2020-12-30 18:19
 
-
-说起来半天过去到现在好像都没大一点的媒体或yhx发过相关报道，连上帝之鹰发的都是洗白的，小马哥出手了？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3792,8 +3789,7 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ####  inconolast  
 ##### 54299#       发表于 2021-1-29 14:50
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大妈本来是个顶级物理战士，小屁孩时期就能一人打一个巨人村，怎么突然只会放波了
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4700,8 +4696,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  inconolast  
 ##### 54376#       发表于 2021-2-7 02:17
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个问题，鬼子怎么看御田
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5059,9 +5054,7 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  inconolast  
 ##### 54408#       发表于 2021-2-14 01:09
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">团子这能力要是丢对面怕是只有乌索普大神才能打得过
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过最后那人要是艾尼路的话我可以给和之国加一分，最好能看看他到底有没有准大将实力
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -6706,7 +6699,17 @@ jinzhang</blockquote>
 ####  faust123  
 ##### 54537#       发表于 2021-3-4 09:25
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50504307&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-3-4 05:11</a>
+
+马尔科越牛就越显得白胡子担心伤亡不复仇的借口SB
+
+老年白胡子再不济，比之凯多应该还是稍胜半筹。既然马尔 ...</blockquote>
+白胡子这人个人感觉还是挺。。爱好和平的？
+
+能大碗吃肉大碗喝酒儿女满堂的经济条件满足了，仗能不打就不打
+
+毕竟是个渴望家人的过日子人
 
 
 -----
@@ -7062,11 +7065,11 @@ jinzhang</blockquote>
 还比如，九尾，木叶的人有多讨厌九尾这不用我多说吧。按照火影的叙述，宇智波是因为被怀疑控制九尾而被村子排挤。那么问题来了，为什么作为宇智波一族的佐助没有被像鸣人那样对待呢？按照木叶村民的一贯作风，他们一定会各种议论，佐助的状况应该不比鸣人好哪去，但是有吗？
 
 而且作为木叶消息最灵通的人，在鼬洗白前二十来话，自来也都表示一直以来所有人的观点都是九尾是天灾，妙木山的**蟆也这么认为。也就是说，宇智波和九尾之乱没关系，高层也没把宇智波和九尾联系起来，更不要说因为这个排挤宇智波，我们看漫画（370话）
-<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_D5Wx4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_C81oH" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_qZ622" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_fvNPv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_y0BiQ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
+<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_exx0a" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_X6swB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_peIjq" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_VWn0t" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_WD3Z3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
 
 也就是说，这个时候，宇智波被灭，还是因为鼬是个变态神经病杀了全家，不是什么排挤猜忌，就是因为他个人而已。
 
@@ -7079,12 +7082,12 @@ jinzhang</blockquote>
 虽然宇智波开头就被岸本写死了，但是我们得说，宇智波是一个超级大的家族，非常大。
 
 首先，人家有自己的武器药品供应商，极有可能是只服务于宇智波的，因为木叶显然不知道，不然他们在搜索的时候怎么也得来这看看吧，可是他们只是带着忍犬到处找，也就是说木叶对此是不知道的。
-<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_nHIy1" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_UyDyb" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_sAg0X" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
-<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_u3mcM" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_Gz4OT" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_RUZS6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
+<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_Y2Dt7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_feCKZ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_zxdF4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
+<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_sYpWh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_Jd4Lv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_oGdrU" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
 
 首先他们得有钱吧，其次他们得有时间吧，最后他们得有人吧，你看他们还有闲心在椅子后面画画呢。
 
@@ -8000,7 +8003,8 @@ queen那么菜的吗</blockquote>
 ####  faust123  
 ##### 54638#       发表于 2021-3-11 11:22
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+玉田儿道，糖糖连载
 
 
 -----
@@ -9734,8 +9738,7 @@ WT是不是特别中意王路飞那个一脸邪笑的表情啊，到了和之国
 ####  inconolast  
 ##### 54796#       发表于 2021-4-2 15:18
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实在我觉着和之国御田出来之前还行，甚至御田跳舞之前都还行，后面这个人物没立起来，所有的脑残粉举动都傻逼了
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -10368,8 +10371,7 @@ mhrise应该和op联动的，一刀不止999
 ####  uswhzh  
 ##### 54855#       发表于 2021-4-8 20:01
 
-
-雷利直接让路飞二档三档没副作用变小损命，实力提高到秒杀和平主义者，学会了武装色缠绕和霸气，间接完成了四档，稍稍领悟了见闻色，流樱，怎么就教坏了。建议玩玩海贼无双4，感受一下两年的变化。
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -11080,7 +11082,9 @@ VS
 ##### 54916#       发表于 2021-4-22 08:40
 
 
-凯多最后不会被小玉驯服变龙给桃之助当宠物吧，模仿桃太郎传说...
+ 本帖最后由 evangelina 于 2021-5-5 13:25 编辑 
+
+凯多最后不会被小玉驯服变龙给桃之助当宠物吧
 
 
 -----
@@ -11291,4 +11295,371 @@ VS
 这剧情挺合理的，尾田不是一直说不知道怎么战胜四皇团吗，这下凯多团内忧外患，女儿是内鬼，三主力12不和，中层干部心怀不满，盟友随时反水，反观敌方身负国仇家恨视死如归，又有主角团光环加护，这下要素齐全了，可以说是符合了一个大集团崩溃的所有征兆，这剧情合理。
 
 
-                  
+-----
+
+####  羲和  
+##### 54936#       发表于 2021-4-23 20:28
+
+
+<blockquote>银翼的维罗西 发表于 2021-4-23 17:38
+这剧情挺合理的，尾田不是一直说不知道怎么战胜四皇团吗，这下凯多团内忧外患，女儿是内鬼，三主力12不和， ...</blockquote>
+凯多团不是那种典型的大树不倒团不倒的团吗，或者说就像洛克斯那样的，尤其飞六胞的形象塑造的明显这团散了后边还有戏的感觉，就像当年的大妈凯多…路飞就是他们碰到的罗杰…凯多后边快被打死的时候说不定脑子里就要跑起自己的船长被刚出道的小毛孩爆锤的走马灯了
+
+
+-----
+
+####  扭头就走  
+##### 54937#       发表于 2021-4-23 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51034482&amp;ptid=98922" target="_blank">真红眼教授 发表于 2021-4-23 13:56</a>
+
+毕竟只是看图透猜的，还得等剧情解释
+
+不管是模仿修女还是真修女，至少表面上表现的喜欢小孩子都是很正常 ...</blockquote>
+要是真修女，小玉这比遇到大妈自己还惨
+
+
+转头就要给卖了数钱
+
+
+-----
+
+####  蔡卓妍  
+##### 54938#       发表于 2021-4-23 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51035306&amp;ptid=98922" target="_blank">klzxs 发表于 2021-4-23 15:06</a>
+在海上最自由的便是海贼王
+
+路飞你能自由过大妈?</blockquote>
+确实，都快进到马骑马了
+
+
+-----
+
+####  如梦令  
+##### 54939#       发表于 2021-4-23 23:24
+
+
+ 本帖最后由 如梦令 于 2021-4-23 23:28 编辑 
+
+感觉还好，看见小孩人格转换这点作为读者的我能接受，不过一想到大妈看见桃之助也会转换人格  顿时又烦躁了...
+
+
+-----
+
+####  如梦令  
+##### 54940#       发表于 2021-4-23 23:27
+
+
+ 本帖最后由 如梦令 于 2021-4-23 23:29 编辑 
+
+wt老师的总体大框架没崩，不过老师近几年刻画的人物成长和人物逼格   确实没有几个达到预期的
+
+
+-----
+
+####  C男人  
+##### 54941#       发表于 2021-4-24 22:33
+
+
+虽然正经果实不怕丸子，
+
+
+但是桃之助那个是smile没错，
+
+
+早点儿喂公子吃丸子吧。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  renkan119  
+##### 54942#       发表于 2021-4-24 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51049433&amp;ptid=98922" target="_blank">C男人 发表于 2021-4-24 22:33</a>
+
+虽然正经果实不怕丸子，
+
+
+但是桃之助那个是smile没错，</blockquote>
+按之前的暗示桃之助这颗应该是完美人造果实
+
+
+-----
+
+####  扭头就走  
+##### 54943#       发表于 2021-4-25 13:00
+
+
+好家伙…大妈倒戈
+
+这四皇结盟这么儿戏的吗
+
+
+pgone也太惨了…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  owada  
+##### 54944#       发表于 2021-4-25 13:18
+
+
+大妈反水牛逼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  klzxs  
+##### 54945#       发表于 2021-4-25 15:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大妈确实就是这种人 初登场就是个为了食物灭国的人
+
+现在自然也能为了一碗红豆汤痛打友军
+
+结盟本身也不是出于什么利益考虑或有什么计划
+
+就是脑门一拍就结盟了 现在就是散了
+
+也不是说就变友军了 该打还是要打只是和凯多分开罢了
+
+
+-----
+
+####  wingzerocos  
+##### 54946#       发表于 2021-4-26 19:28
+
+
+这宙斯怎么看都是要送娜美了
+
+
+-----
+
+####  高数  
+##### 54947#       发表于 2021-4-30 22:50
+
+
+大妈这反水有点快啊？！
+
+
+-----
+
+####  zxzx7753  
+##### 54948#       发表于 2021-5-2 16:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51035937&amp;ptid=98922" target="_blank">tyauto 发表于 2021-4-23 16:00</a>
+贴吧看到版本更新技能解锁最大的受益者其实是路飞他爹龙，顶级体术/武装色流樱/霸王色缠绕/自然系觉醒...解 ...</blockquote>
+估计海军招式也会  卡普的儿子肯定早早就进入海军备受期待了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  star401  
+##### 54949#       发表于 2021-5-5 20:55
+
+
+全球投票最终结果前20，果然长得好看比什么都强
+
+
+1 路飞
+
+2 索隆
+
+3 娜美
+
+4 山治
+
+5 罗
+
+6 罗宾
+
+7 女帝汉库克
+
+8 加洛特
+
+9 艾斯
+
+10 萨波
+
+11 大和
+
+12 香克斯
+
+13 柯拉松
+
+14 卡塔库栗
+
+15 乌索普
+
+16 乔巴
+
+17 克洛克达尔
+
+18 甚平
+
+19 马尔科
+
+20 多弗朗明哥
+
+
+-----
+
+####  klzxs  
+##### 54950#       发表于 2021-5-5 21:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">兔子那点可怜的戏份就能进前十
+
+大和连动画都没出场就十一了
+
+
+-----
+
+####  蔡卓妍  
+##### 54951#       发表于 2021-5-5 21:49
+
+
+女的，上榜的！
+
+
+-----
+
+####  CFrey  
+##### 54952#       发表于 2021-5-5 22:04
+
+
+大妈自由成这样还能维持住那么大规模的海贼团，卡二和长子这得有多累啊
+
+
+-----
+
+####  裤袜大落  
+##### 54953#       发表于 2021-5-5 22:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">老沙掉线这么久了还有如此人气啊
+他真的是人妖吗
+
+
+-----
+
+####  hkguty  
+##### 54954#       发表于 2021-5-6 00:19
+
+
+大和感觉是撞得正是时候，如果是和之国篇完结之后再没有她的戏份的情况下投票的话人气应该不至于能飙那么高，另外乌尔提是第几名啊？
+
+
+-----
+
+####  angelooo  
+##### 54955#       发表于 2021-5-6 00:23
+
+
+大和无视设定和剧情光看外表我也喜欢
+
+但特么的我没法无视啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  klzxs  
+##### 54956#       发表于 2021-5-6 00:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51154097&amp;ptid=98922" target="_blank">hkguty 发表于 2021-5-6 00:19</a>
+
+大和感觉是撞得正是时候，如果是和之国篇完结之后再没有她的戏份的情况下投票的话人气应该不至于能飙那么高 ...</blockquote>
+56
+
+
+-----
+
+####  klzxs  
+##### 54957#       发表于 2021-5-6 00:42
+
+
+21-150的排名图
+<img src="https://p.sda1.dev/1/35c0c398c20ba92535dd74b7458be3f2/海贼20-100.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/84d7eafa527d79b22f507c260e88fcda/海贼101-150.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hkguty  
+##### 54958#       发表于 2021-5-6 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51154194&amp;ptid=98922" target="_blank">klzxs 发表于 2021-5-6 00:30</a>
+
+56</blockquote>
+差好远啊，一开始乌尔提出场的时候各种舔，结果大和出来就完全把目光给吸走了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stair楼梯  
+##### 54959#       发表于 2021-5-6 02:01
+
+
+御殿这排名感觉还蛮靠前的……所以说尾田乡土情日本人还是吃这套的么？
+
+
+-----
+
+####  athena_1982  
+##### 54960#       发表于 2021-5-6 13:45
+
+
+106和112是在哪出现过的？没印象了啊
+
+
+
+
+-----
+
+####  天使的日曜日  
+##### 54961#       发表于 2021-5-6 14:10
+
+
+106是阿拉巴斯坦的反抗军
+
+112是海上餐厅篇的苍蝇<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  klzxs  
+##### 54962#       发表于 2021-5-6 14:37
+
+
+ 本帖最后由 klzxs 于 2021-5-6 14:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51158496&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-5-6 13:45</a>
+
+106和112是在哪出现过的？没印象了啊</blockquote>
+106好像是阿拉巴斯坦那的叛军
+
+112好像是三治相关
+
+啊 翻页bug 已经有人说了
+
+
+-----
+
+####  angelooo  
+##### 54963#       发表于 2021-5-6 14:39
+
+
+能投票给苍蝇的读者也是厉害<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+                 
