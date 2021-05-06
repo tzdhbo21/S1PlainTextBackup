@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-05 09:54** 
+> ## **本文件最后更新于2021-05-06 10:49** 
 
 
 
@@ -3038,7 +3038,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_Bx8mZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_yXANh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -4317,7 +4317,8 @@ AI这集又多了不少的表情包，官方不了点解禁啥的吗？做都做
 ####  FanFun  
 ##### 332#       发表于 2021-4-19 23:02
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+日本动画一讲起政治科学感观就直接跳崖<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
 -----
@@ -6091,4 +6092,369 @@ OP还没上架么？听着好带感啊
 <img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">那怎么解释他们认识的同一个人基本没有变化
 
 
-                                 
+-----
+
+####  夜颠覆  
+##### 484#       发表于 2021-5-5 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51150860&amp;ptid=1963627" target="_blank">skullgreymon 发表于 2021-5-5 17:03</a>
+
+这个片没有片源吗，全网都搜不到</blockquote>
+nyaa上有，不过好像要翻墙
+
+
+-----
+
+####  zypyong  
+##### 485#       发表于 2021-5-5 22:49
+
+
+一般是周几更新啊。
+
+
+-----
+
+####  夜颠覆  
+##### 486#       发表于 2021-5-6 00:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51153451&amp;ptid=1963627" target="_blank">zypyong 发表于 2021-5-5 22:49</a>
+
+一般是周几更新啊。</blockquote>
+字幕组最近都是周日更新，不过这次五一延后了，TX是周四晚更新（字幕组一般比TX快一集）
+
+
+-----
+
+####  ipcjs  
+##### 487#       发表于 2021-5-6 03:41
+
+
+老头预言，发生前兆，灾难来袭
+
+这不是灾难片的套路🐴<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+—— 来自 LGE Nexus 5, Android 7.1.2上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  新HGCG  
+##### 488#       发表于 2021-5-6 07:43
+
+
+龙套狙击手呸喽呸喽
+
+<img src="https://img.saraba1st.com/forum/202105/06/074313xo0ank2emnhmb4vm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[GST] Godzilla S.P - 07 [1080p].mkv_snapshot_14.35_[2021.05.06_08.34.29].jpg</strong> (319.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 07:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/074313d4ucl5550tffzn5c.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[GST] Godzilla S.P - 07 [1080p].mkv_snapshot_16.18_[2021.05.06_08.35.34].jpg</strong> (263.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 07:43 上传
+
+
+然后飞天豹正式变成AI机了
+
+<img src="https://img.saraba1st.com/forum/202105/06/074313rbwf7bwwis44ssht.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[GST] Godzilla S.P - 07 [1080p].mkv_snapshot_21.50_[2021.05.06_08.41.49].jpg</strong> (335.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 07:43 上传
+
+
+-----
+
+####  Freakyyu  
+##### 489#       发表于 2021-5-6 09:33
+
+
+ 本帖最后由 Freakyyu 于 2021-5-6 09:35 编辑 
+
+每个假名和汉字我都认识，为什么凑到一起就像是天书<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">神棍气息越来越浓
+那机器人能以这种速度挥动安基拉斯的角，技术太先进了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  冰箱研会长  
+##### 490#       发表于 2021-5-6 10:54
+
+
+OP终于发了!!!!
+
+
+-----
+
+####  airshit  
+##### 491#       发表于 2021-5-6 11:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/204.png" referrerpolicy="no-referrer">为啥这片就一个组做，因为版权是腾讯怕被橄榄吗
+
+
+-----
+
+####  夜颠覆  
+##### 492#       发表于 2021-5-6 11:14
+
+
+哥总登陆了，萝卜也完成了，接下来应该要开始正片了
+
+
+-----
+
+####  夜颠覆  
+##### 493#       发表于 2021-5-6 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51155056&amp;ptid=1963627" target="_blank">新HGCG 发表于 2021-5-6 07:43</a>
+
+龙套狙击手呸喽呸喽</blockquote>
+钉宫正式变成萝卜驾驶员
+
+
+-----
+
+####  新HGCG  
+##### 494#       发表于 2021-5-6 11:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51156970&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-5-6 11:25</a>
+
+钉宫正式变成萝卜驾驶员</blockquote>
+会不会另一台AI被转接到机械哥斯拉上 ！
+
+
+-----
+
+####  罗克萨斯  
+##### 495#       发表于 2021-5-6 11:39
+
+
+终于发OP了，本季强OP真不少
+
+
+-----
+
+####  夜颠覆  
+##### 496#       发表于 2021-5-6 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51157116&amp;ptid=1963627" target="_blank">新HGCG 发表于 2021-5-6 11:39</a>
+
+会不会另一台AI被转接到机械哥斯拉上 ！</blockquote>
+现在看shiva那边黑科技不少啊，先是原型，现在又来了个类似氧气毁灭者的东东，再来个机械哥斯拉好像也没什么奇怪的<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Benetyrant  
+##### 497#       发表于 2021-5-6 12:02
+
+
+ 本帖最后由 Benetyrant 于 2021-5-6 12:08 编辑 
+
+第六集生肉已经出了，问下熟肉还是周日出吗
+
+明白了原来tx周四出新啊，嘻嘻，那就简单了<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Blackson  
+##### 498#       发表于 2021-5-6 12:55
+
+
+<blockquote>airshit 发表于 2021-5-6 11:02
+为啥这片就一个组做，因为版权是腾讯怕被橄榄吗</blockquote>
+纯粹是这片（外表）不够吸晴罢了
+
+
+-----
+
+####  Blackson  
+##### 499#       发表于 2021-5-6 12:57
+
+
+<blockquote>Benetyrant 发表于 2021-5-6 12:02
+第六集生肉已经出了，问下熟肉还是周日出吗
+
+明白了原来tx周四出新啊，嘻嘻，那就简单了
+
+ ...</blockquote>
+腾讯是跟日本电视台的进度同步的。
+
+网飞比腾讯（日本电视台）快一集
+
+
+-----
+
+####  冰箱研会长  
+##### 500#       发表于 2021-5-6 13:47
+
+
+狙击手一出场 我一瞬间串场到神枪少女...
+
+
+-----
+
+####  YF30  
+##### 501#       发表于 2021-5-6 14:30
+
+
+这片枪声咋这么怪，巴雷特和M2老干妈的枪声都跟炒爆豆似的，没有大口径子弹的感觉。
+
+
+-----
+
+####  teecoo00  
+##### 502#       发表于 2021-5-6 14:42
+
+
+铁打的人类黑科技
+
+
+-----
+
+####  亚瑟邓特  
+##### 503#       发表于 2021-5-6 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51156715&amp;ptid=1963627" target="_blank">airshit 发表于 2021-5-6 11:02</a>
+为啥这片就一个组做，因为版权是腾讯怕被橄榄吗</blockquote>
+现在人不喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  angelooo  
+##### 504#       发表于 2021-5-6 14:50
+
+
+噢这个狙击手我确实可以<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夜颠覆  
+##### 505#       发表于 2021-5-6 15:36
+
+
+ 本帖最后由 夜颠覆 于 2021-5-6 15:41 编辑 
+
+这是杰格的轮胎形态原案吗？感觉和正片不是一个科技树的 
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/154137prxzsxazaxkrfrab.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210506153432.jpg</strong> (81.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:41 上传
+
+
+-----
+
+####  蓝色有脚⑨倍速  
+##### 506#       发表于 2021-5-6 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51159526&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-5-6 15:36</a>
+这是杰格的轮胎形态原案吗？感觉和正片不是一个科技树的</blockquote>
+同人吧这是，我在推特上看到过
+
+
+-----
+
+####  夜颠覆  
+##### 507#       发表于 2021-5-6 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51159832&amp;ptid=1963627" target="_blank">蓝色有脚⑨倍速 发表于 2021-5-6 16:02</a>
+
+同人吧这是，我在推特上看到过</blockquote>
+我说怎么炫酷不少<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  z692689995  
+##### 508#       发表于 2021-5-6 16:59
+
+
+这片跟4s对怪兽的描写真是两个极端，一边是将因由极力理论化，一边是极力淡化
+
+
+-----
+
+####  砂糖天妇罗  
+##### 509#       发表于 2021-5-6 17:19
+
+
+熟肉的速度严重影响我的热情...
+
+
+-----
+
+####  夜颠覆  
+##### 510#       发表于 2021-5-6 17:58
+
+
+等tx的熟肉有种慢了两集的感觉（生肉早上就有了，tx慢一集的熟肉还得晚上才有）
+
+
+
+
+-----
+
+####  hsq0596  
+##### 511#       发表于 2021-5-6 18:25
+
+
+氧气破坏装置都出来了
+
+
+-----
+
+####  Lynn冰翎  
+##### 512#       发表于 2021-5-6 18:26
+
+
+结局该不会是杰格抱着炸弹当零号机用吧...
+
+
+-----
+
+####  书七  
+##### 513#       发表于 2021-5-6 18:38
+
+
+男主女主能来个浪漫点的相遇吗
+
+—— 来自 OPPO PDPT00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                
