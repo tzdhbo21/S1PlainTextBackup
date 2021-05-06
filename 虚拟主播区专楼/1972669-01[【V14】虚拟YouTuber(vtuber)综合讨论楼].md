@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-05 13:58** 
+> ## **本文件最后更新于2021-05-06 13:11** 
 
 
 
@@ -6555,4 +6555,402 @@ mv和动画之间折中了一下吧
 hachi one man live
 
 
-                                 
+-----
+
+####  NBXX  
+##### 483#       发表于 2021-5-5 22:32
+
+
+<img src="https://p.sda1.dev/1/8df7f55a9c3521e495ed4ce253c83067/ETJMHW___GJBEW8_R_X__W8.png" referrerpolicy="no-referrer">
+[https://twitter.com/vtama_info/status/1389948809824768006](https://twitter.com/vtama_info/status/1389948809824768006)
+
+
+-----
+
+####  cqkxywj  
+##### 484#       发表于 2021-5-5 23:23
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/232230pdnkkikdozdzigzb.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-05-05_23-19-43.png</strong> (30.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 23:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/232229r8jcm9l9x5g9mr2s.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-05-05_23-21-42.png</strong> (62.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 23:22 上传
+
+
+負けた<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 485#       发表于 2021-5-5 23:27
+
+
+不知道是初中生还是小学生的出警露露人设事件已经基本摸清楚了。
+
+
+几个大概是小学生or初中生私信铃原露露官号，声称露露人设是他们“亲友”约的稿，身价1w+，侵犯了版权，甚至要求删除视频
+
+↓
+
+挖出了这位“亲友”，其实本来就是露露粉丝
+
+↓
+
+于是真相大概是这位女粉和她朋友吹逼露露是自己约的原创稿，亲友们偶然翻到露露官号，于是两肋插刀、正义出警
+
+
+到最后估计没有人被骗钱，被骗的只有初中生真挚的友情8<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 486#       发表于 2021-5-5 23:32
+
+
+可恶的大人啊啊啊啊啊啊啊啊
+
+
+-----
+
+####  winda  
+##### 487#       发表于 2021-5-5 23:46
+
+
+今天的虹荒野行动工商也挺地狱的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+五个初心者念稿也就罢了，工商途中的各种状况包括但不限于无法加入房间bug，胜负显示错误，
+5v5打到对面掉两个，被同一个老手玩家重复加入房间按着打，被观众告知有知道房间号自动输入密码的工具等等。
+
+
+-----
+
+####  死体残留  
+##### 488#       发表于 2021-5-5 23:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">中午那场工商挺搞笑的啊，观众都突脸跑到面前了还各种射不中
+可惜就没上海牛和叶子 玩fps手机端记得就他们两个了
+
+
+-----
+
+####  哈曼的YY  
+##### 489#       发表于 2021-5-6 09:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51153745&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-5-5 23:27</a>
+
+不知道是初中生还是小学生的出警露露人设事件已经基本摸清楚了。
+
+
+几个大概是小学生or初中生私信铃原露露官 ...</blockquote>
+万原露露
+
+
+-----
+
+####  noHentai  
+##### 490#       发表于 2021-5-6 10:00
+
+
+出雲霞→佐透直
+https://twitter.com/310sugu/status/1389965501447561218
+
+听说是绝对天使
+https://twitter.com/aika_1003_
+
+
+-----
+
+####  hulaoda007  
+##### 491#       发表于 2021-5-6 10:03
+
+
+ 本帖最后由 hulaoda007 于 2021-5-6 11:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51156032&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-5-6 10:00</a>
+
+出雲霞→佐透直
+[https://twitter.com/310sugu/status/1389965501447561218](https://twitter.com/310sugu/status/1389965501447561218)</blockquote>
+ 阿霞！？  我想想...阿霞还是希望做出些成绩，所以想从头再来？
+
+  或者彩虹压力太大，阿霞已经お疲れ様了... 所以想做V但不想在彩虹了。
+
+  要么其实彩虹霸凌，种子无人权，我猜犯人不是在Gamers就是在19组！
+
+
+-----
+
+####  格林卡罗尔  
+##### 492#       发表于 2021-5-6 11:09
+
+
+说这是绝对天使唱法好像不太一样，唱功也比天使要强一截，当然也有可能是mix后效果
+
+不过这阿霞倒是真得不能再真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 493#       发表于 2021-5-6 11:37
+
+
+肯定是受不了你虹分成所以合同谈崩了，本身底边就挣不了几个钱还被抽成那么多，还不给资源，那肯定掀桌子啊
+
+
+-----
+
+####  langsheng  
+##### 494#       发表于 2021-5-6 13:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51156032&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-5-6 10:00</a>
+
+出雲霞→佐透直
+
+https://twitter.com/310sugu/status/1389965501447561218</blockquote>
+点进去发现和玖世缘（原ccll警花）一个妈还互相挂在简介里
+
+
+和真白花音互关
+
+
+-----
+
+####  rzrbtk  
+##### 495#       发表于 2021-5-6 14:27
+
+
+郡道的底特律结局：马库斯和同伙被干死、康纳不变易完成任务、卡拉爱丽丝在车站被发现身份枪决
+
+问郡要不要看看别的路线，郡：我觉得没法重来的人生就是这样的，这就是郡道的路！
+先不说角色喜好之类的，我不是很认同这样玩出自己也觉得遗憾的结局但又不会再开一档的游戏主播呃<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ketestrait  
+##### 496#       发表于 2021-5-6 14:49
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gq8pisi4ffj20dw0b6t9o.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 497#       发表于 2021-5-6 14:50
+
+
+你虹真就这么不受人待见，宁愿去当个人势？
+
+还有50w当场毕业的……，真心看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  触手姬  
+##### 498#       发表于 2021-5-6 15:43
+
+
+ 本帖最后由 触手姬 于 2021-5-6 15:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">底边跑路又不是啥奇怪事，彩虹基本只有中上层有资源，在彩虹当底边不如跑去当个人。应该是先在彩虹累计一定观众在跑路
+
+
+-----
+
+####  死体残留  
+##### 499#       发表于 2021-5-6 16:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">有资源没资源都准备跑路当个人势了，虹半年了
+
+
+-----
+
+####  FCCHua  
+##### 500#       发表于 2021-5-6 16:03
+
+
+ 本帖最后由 FCCHua 于 2021-5-6 16:07 编辑 
+
+建议去问问本人，要不然没人知道怎么想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 神乐七奈这唐突b限挺乐的，有考虑油管播吗？<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 501#       发表于 2021-5-6 16:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">油管播要关sc的吧 b播道歉不用关sc
+话说送口罩真是免死金牌，怎么到现在还有粉说这事的
+
+
+-----
+
+####  死体残留  
+##### 502#       发表于 2021-5-6 16:29
+
+
+ 本帖最后由 死体残留 于 2021-5-6 16:31 编辑 
+
+风怒
+
+
+-----
+
+####  死体残留  
+##### 503#       发表于 2021-5-6 16:30
+
+
+ 本帖最后由 死体残留 于 2021-5-6 16:32 编辑 
+
+风怒
+
+
+-----
+
+####  poipanchao  
+##### 504#       发表于 2021-5-6 16:36
+
+
+yysy，确实挺免死的
+某种程度上，这叫大节无亏
+再加上还有fh公司的称托
+
+
+-----
+
+####  winda  
+##### 505#       发表于 2021-5-6 17:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为只有b站在闹啊，当然在b站播
+
+
+-----
+
+####  FCCHua  
+##### 506#       发表于 2021-5-6 19:35
+
+
+这b限内容典中典啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  认知厨  
+##### 507#       发表于 2021-5-6 19:36
+
+
+典中典,下次开播去那边打个SC问问道歉了没<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 508#       发表于 2021-5-6 19:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 509#       发表于 2021-5-6 20:26
+
+
+ 本帖最后由 FCCHua 于 2021-5-6 20:39 编辑 
+
+草，还特地找了套符合诗子xp的3d，尊君是你吗？
+两套？！没事了，是购买拥有使用权的模型<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+诗子，现在的你很卑鄙<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 510#       发表于 2021-5-6 20:37
+
+
+失礼了，问一下最近彩虹的3d企划，双人互换模型，搞体育测试，vr恐怖游戏有点眼熟是为什么呢（（
+
+你们日本人就没有其他3d企划了吗！<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+之前玩的那么happy的桌球呢，相扑呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  FCCHua  
+##### 511#       发表于 2021-5-6 20:46
+
+
+ 本帖最后由 FCCHua 于 2021-5-6 21:06 编辑 
+
+这也不是恐怖游戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 太怪了，挑战油管
+syl yuya你原来也有猫耳<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+zsyl 两个模型伴舞好耶 唱egoist的歌还挺罕见 台风差距
+
+
+-----
+
+####  KaboomMirai  
+##### 512#       发表于 2021-5-6 20:47
+
+
+<img src="https://i.loli.net/2021/05/06/q28G3XlrJRUHWwE.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|很难不嗯。|
+
+
+查看全部评分
+
+
+-----
+
+####  空集  
+##### 513#       发表于 2021-5-6 20:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51160180&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-5-6 16:36</a>
+yysy，确实挺免死的
+某种程度上，这叫大节无亏
+再加上还有fh公司的称托</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 但是怕国内的钱恰不到就突然跑来b限也够草生了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                
