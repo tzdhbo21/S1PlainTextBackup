@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-30 09:43** 
+> ## **本文件最后更新于2021-05-06 03:43** 
 
 
 
@@ -7228,4 +7228,327 @@ fkhr会后台调你能吗</blockquote>
 —— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                             
+-----
+
+####  镜hinata  
+##### 15603#       发表于 2021-4-30 17:44
+
+
+最恶心还是明明是160老王硬是拆成sub
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Sylpheed  
+##### 15604#       发表于 2021-5-1 00:11
+
+
+ 本帖最后由 Sylpheed 于 2021-5-1 00:13 编辑 
+
+这波岚老王确实牛逼了
+我顶配大公暗之前花圈火和土芬进场的时候最快速度都还觉得能掰掰手腕，这次风mao进场第一次意识到暗真的打不过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+遥想一年前隔壁还天天哀怨暗领先其他属性好几年，实际也不过就是屁股按几个0就追上了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过讲希望大公这次能真的快起来，mao和裁缝保有量应该都不会太低，这样以后可以放心存大公门票来自发了
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  cowgp01  
+##### 15605#       发表于 2021-5-1 00:15
+
+
+五位数玩家表示要跑早跑了。反正咸鱼吊着收色图等他关服啦
+
+
+-----
+
+####  pzk  
+##### 15606#       发表于 2021-5-1 11:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51111453&amp;ptid=1158205" target="_blank">peh 发表于 2021-4-30 16:32</a>
+
+确实，限定整这么破格，感觉有几个天人的超限就跟笑话一样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">mao的强度应该就是对标150级天人的，只是150级出太晚也太难做了
+
+
+-----
+
+####  桧川直巳  
+##### 15607#       发表于 2021-5-1 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51111140&amp;ptid=1158205" target="_blank">leafS 发表于 2021-4-30 16:01</a>
+
+每次看到什么弃坑跑路的我就觉得古战场我是不是在跟阴兵对线，虽然我挺咸鱼的吧这次水团就打了20多箱，贡献 ...</blockquote>
+用支架的多而已，拆尼斯明面上的支架已经被打击完了，日本人用的可开心呢——几个月前还有画师就隐瞒用支架被封号却还在画gbf同人致歉呢
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15608#       发表于 2021-5-2 08:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">那么多刷天人的 肯定一大堆阴兵
+
+
+-----
+
+####  horacio  
+##### 15609#       发表于 2021-5-2 09:51
+
+
+最近玩天地劫旁边挂着gbf刷星本，现在已经在做第四个120了。130我还是留着等8好了
+
+
+-----
+
+####  江戸前ルナ  
+##### 15610#       发表于 2021-5-2 13:13
+
+
+狗了一下白嫖到了风MAO，做了MAO剑放进个1剑2坚守的盘，再把MAO放进队里，FA神盾比我以前快了4分钟多，太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sylpheed  
+##### 15611#       发表于 2021-5-2 13:39
+
+
+ 本帖最后由 Sylpheed 于 2021-5-2 13:41 编辑 
+
+mao剑抽1井1，砸风lm从来没这么有底气过，实际也完全符合期待，哪怕现在还少一把进境也非常强了，甚至预测都超过了风方非常多
+
+贵是贵了点至少不会出现打团还没风方好摸上限的情况了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  拔丝光头  
+##### 15612#       发表于 2021-5-2 23:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51121019&amp;ptid=1158205" target="_blank">桧川直巳 发表于 2021-5-1 20:24</a>
+
+用支架的多而已，拆尼斯明面上的支架已经被打击完了，日本人用的可开心呢——几个月前还有画师就隐瞒用支 ...</blockquote>
+某知名挂逼天团还能面圣呢<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  404489039  
+##### 15613#       发表于 2021-5-3 07:32
+
+
+70抽0虹，一个月不想玩着SB游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  peh  
+##### 15614#       发表于 2021-5-3 07:41
+
+
+我白嫖到现在也是0虹..<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  windhawind2  
+##### 15615#       发表于 2021-5-3 09:03
+
+
+拆井抽这种事本来rp就是波动的。。上个猪池拆了100抽就2虹左右。这次又拆100已经出现2次10连3ssr了 虽然还是没mao<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 15616#       发表于 2021-5-3 09:14
+
+
+拆井不出风MAO也就算了，还塞个火龙石给我，我麻溜的滚蛋了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  是这样  
+##### 15617#       发表于 2021-5-3 12:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">井完12个虹人物0new，up的就两火龙
+
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  areklose  
+##### 15618#       发表于 2021-5-4 11:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这mao加泳装裁缝，150 7和9真的有做的必要吗
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15619#       发表于 2021-5-4 11:33
+
+
+星战大概7猴mao了？
+
+
+-----
+
+####  FrozenA  
+##### 15620#       发表于 2021-5-4 11:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月末白嫖40+10单抽，3lm1召唤，new了风mao光老男人和火龙石头
+
+这么给面子只能买个超得意思一下了
+
+
+-----
+
+####  Sylpheed  
+##### 15621#       发表于 2021-5-4 13:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51140888&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2021-5-4 11:33</a>
+
+星战大概7猴mao了？</blockquote>
+目前被mao盘活的还有泳羊，用法类似水团老男人那样的追伤工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+老7疯狂奥义4c绛速，不一定有位置就是了
+
+
+-----
+
+####  peh  
+##### 15622#       发表于 2021-5-4 13:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51140888&amp;ptid=1158205" target="_blank">风鸣弦十郎 发表于 2021-5-4 11:33</a>
+
+星战大概7猴mao了？</blockquote>
+我觉得1507手操大概率打不过mao,fa的话水团已经生动诠释了奥义角狗都不带
+
+
+-----
+
+####  areklose  
+##### 15623#       发表于 2021-5-4 14:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得FA和手操mao都估计是铁板了。天人做得到吗
+
+
+-----
+
+####  Sylpheed  
+##### 15624#       发表于 2021-5-4 15:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51142019&amp;ptid=1158205" target="_blank">areklose 发表于 2021-5-4 14:13</a>
+
+我觉得FA和手操mao都估计是铁板了。天人做得到吗</blockquote>
+别急，1509这就给你整个消去不可A类全队永续追，再给点破甲绛攻，就风前排这些个破甲选手，全都得被按住（类比隔壁4）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 15625#       发表于 2021-5-4 15:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51142266&amp;ptid=1158205" target="_blank">Sylpheed 发表于 2021-5-4 15:00</a>
+
+别急，1509这就给你整个消去不可A类全队永续追，再给点破甲绛攻，就风前排这些个破甲选手，全都得被按住（ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">那我当然选择手操打团了。做这玩意花得时间估计比我手操打团得时间的几十倍
+
+
+-----
+
+####  bl0ck  
+##### 15626#       发表于 2021-5-4 19:30
+
+
+天人超限还做不做呢。。。感觉风mao这至少有130天人强度了
+
+
+-----
+
+####  风鸣弦十郎  
+##### 15627#       发表于 2021-5-5 07:16
+
+
+凤mao真的牛逼，这几天看他从高速大公n巴到速刷超吧
+
+
+-----
+
+####  faxi  
+##### 15628#       发表于 2021-5-5 09:57
+
+
+这强制暴击早晚六属都有类似功能的，界限天人除了245的110有巨量提升以外我觉得都可以不做了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+3这种比较特殊的另说，但我觉得除非你是猎金人，不然做了以后被季限打爆的话一点意义都没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然我是先慢慢刷材料再说了，就怕后面140，150给你整点什么特殊功能
+
+
+-----
+
+####  黄昏的轮回  
+##### 15629#       发表于 2021-5-5 19:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">MAO真可爱，不过是月底的话我也就放着以后等着跟嫂子一起下井了。我比较好奇的是泳装复刻的话，泳裁会被怎么处理，裁缝算是出来我就挺喜欢的角色，这种方式重回前排虽然有点怪，不过还是想要的
+
+
+-----
+
+####  zzy516232108  
+##### 15630#       发表于 2021-5-6 10:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">有复数李霞和bba毛刀但只有一把军枪和mao剑的我也想转风老王（
+
+
+
+
+-----
+
+####  phoenixxj  
+##### 15631#       发表于 2021-5-6 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51147822&amp;ptid=1158205" target="_blank">faxi 发表于 2021-5-5 09:57</a>
+
+这强制暴击早晚六属都有类似功能的，界限天人除了245的110有巨量提升以外我觉得都可以不做了
+
+3这种 ...</blockquote>
+我感觉界限天人的强度是分散的
+
+有的110强，有的130强，140、150也可能会让你觉得前面平平无奇的单位突然一下子强度爆炸，反正总归会给你一个去做的理由。
+
+比如6要不是有130，简直不知道加强的什么地方，但是出了130强度才一下子上来了。
+
+而且从材料看，无论的120的材料还是130的卷，都是卡你进度的。说白了就是你得有选择的来，毕竟很可能真等你做完，天人强度又会被各种数据膨胀掉了。
+
+
+                            
