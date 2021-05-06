@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-03 14:35** 
+> ## **本文件最后更新于2021-05-06 08:40** 
 
 
 
@@ -7875,7 +7875,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_l88jm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_P584q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 mv.gif
@@ -15389,4 +15389,390 @@ bsyl白阿姨也同步试听过<img src="https://static.saraba1st.com/image/smil
 阿绫的King快100万播放了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-  
+-----
+
+####  因为你不会  
+##### 11912#       发表于 2021-5-3 22:35
+
+
+100W了那绫总不high了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11913#       发表于 2021-5-3 23:42
+
+
+100w能让holo不摆烂给绫总做solo原创吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11914#       发表于 2021-5-4 02:24
+
+
+底边如TMT都能出原创了 绫总真想做怎么可能没资源<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 11915#       发表于 2021-5-4 12:37
+
+
+king一百万了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11916#       发表于 2021-5-4 15:03
+
+
+夸宝那迟一天发的翻也90w了 几乎是跟king一样的增长速度
+
+都是过气曲虽然夸宝粉多点吧  歌实力都先不说 考虑绫总这几天炒了这么多流量的情况下还是跟夸宝一个水平就很假
+
+这就是世界第一箱吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11917#       发表于 2021-5-4 18:20
+
+
+<img src="https://img.saraba1st.com/forum/202105/04/181951rx1b4zraae4tfbeu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0bvjoVVkAYKlKk.jpg</strong> (124.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-4 18:19 上传
+
+
+[https://twitter.com/AC______/status/1389061190316290050](https://twitter.com/AC______/status/1389061190316290050)
+
+
+-----
+
+####  水城雪风_Z  
+##### 11918#       发表于 2021-5-4 18:46
+
+
+这人怎么在486那边打MH自己推特都不说一下的<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11919#       发表于 2021-5-4 18:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也是刚发现，草
+
+
+-----
+
+####  水城雪风_Z  
+##### 11920#       发表于 2021-5-4 19:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去的时候已经是最后一把了
+
+
+-----
+
+####  asdhai  
+##### 11921#       发表于 2021-5-4 19:55
+
+
+是486临时摇的人，不怪绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11922#       发表于 2021-5-4 19:59
+
+
+ 本帖最后由 cctvyt1 于 2021-5-4 20:39 编辑 
+
+看过昨晚死神和刚才TMT新衣
+
+这周新衣接力还可以劈娜娜几次？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11923#       发表于 2021-5-4 20:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">耻辱柱 绫总用一次劈一次 
+这种2dlive扒头改小点应该不难吧，看会不会修吧
+
+
+-----
+
+####  stedckk  
+##### 11924#       发表于 2021-5-4 23:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">就不要对cover有什么期待了
+
+
+-----
+
+####  昆西昆希昆  
+##### 11925#       发表于 2021-5-4 23:51
+
+
+是时候向卡古拉娜娜宣战了！（逃）
+
+
+-----
+
+####  cctvyt1  
+##### 11926#       发表于 2021-5-5 13:24
+
+
+绫总你每天都要报一次数是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11927#       发表于 2021-5-5 14:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">10w就报一次是吧。
+
+
+-----
+
+####  绿色子龙  
+##### 11928#       发表于 2021-5-5 15:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">趁着还没被迟一天的超过，赶紧多报几次
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11929#       发表于 2021-5-5 16:01
+
+
+大可不必<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">夸宝已经燃尽了
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11930#       发表于 2021-5-5 21:00
+
+
+不想看鬼佬电影
+
+
+image.png
+(3.03 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-5 21:00 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/210002nu9zuouawdkagdap.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11931#       发表于 2021-5-5 21:01
+
+
+推迟是给新皮让路吗 更寄吧不想看了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 11932#       发表于 2021-5-5 21:47
+
+
+ 本帖最后由 一仙 于 2021-5-5 22:02 编辑 
+
+那个花嫁合同本中的阿绫
+
+<img src="https://img.saraba1st.com/forum/202105/05/214651q1vgbb0k8llx201f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E0oKkReVUAobOzv.jpg</strong> (169.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 21:46 上传
+
+
+立牌
+
+<img src="https://img.saraba1st.com/forum/202105/05/215242ppc83pwgrdngf37f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>resize_image.jpg</strong> (59.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 21:52 上传
+
+
+[https://twitter.com/futomomo_leg/status/1389935461569687554?s=20](https://twitter.com/futomomo_leg/status/1389935461569687554?s=20)
+
+好好看，有点想买。但一种毒唯被按着头买大家庭周边的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+编辑：发现有单卖的挂毯和立牌，冲了
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11933#       发表于 2021-5-5 22:01
+
+
+眼镜还挺草的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夏小筱ss  
+##### 11934#       发表于 2021-5-5 22:33
+
+
+才注意到有眼镜
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11935#       发表于 2021-5-5 22:57
+
+
+初见 什么虚无直播 主播怎么不开麦（
+
+bsyl夸宝那数据怎么今天突然追上来的 要买不能一起买吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  17119854  
+##### 11936#       发表于 2021-5-5 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51153509&amp;ptid=1914409" target="_blank">星尘的杨桃精 发表于 2021-5-5 22:57</a>
+
+初见 什么虚无直播 主播怎么不开麦（
+
+bsyl夸宝那数据怎么今天突然追上来的 要买不能一起买吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/05/232456yrurpk2n1mpue42e.png" referrerpolicy="no-referrer">
+
+
+<strong>XX0505.png</strong> (12.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 23:24 上传
+
+
+-----
+
+####  stedckk  
+##### 11937#       发表于 2021-5-5 23:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">被超只是时间问题罢了，就不要挣扎了
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11938#       发表于 2021-5-5 23:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">这涨幅也太规律了吧 新皮的引流几乎没起效
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11939#       发表于 2021-5-6 13:24
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-5-6 13:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51121997&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-5-1 22:28</a>
+
+哪来的一帖小号把大小姐整急了</blockquote>
+昨天会限2：58把这事拿出来说了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">申请对线没回复白期待了草
+
+
+-----
+
+####  cctvyt1  
+##### 11940#       发表于 2021-5-6 15:27
+
+
+差不多得了绫总<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在很多V也基本达不到目前您现在的水准
+
+<img src="https://img.saraba1st.com/forum/202105/06/152715b1165m5500y04a56.jpg" referrerpolicy="no-referrer">
+
+
+<strong>king.jpg</strong> (103.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:27 上传
+
+
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11941#       发表于 2021-5-6 15:34
+
+
+昨天会限绫总才说过自己这涨幅搁木口里算快的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+然后就被夸宝压一头<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11942#       发表于 2021-5-6 15:39
+
+
+bsyl辣辣突然被炎上了还挺乐
+
+
+-----
+
+####  昆西昆希昆  
+##### 11943#       发表于 2021-5-6 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51159428&amp;ptid=1914409" target="_blank">cctvyt1 发表于 2021-5-6 15:27</a>
+
+差不多得了绫总现在很多V也基本达不到目前您现在的水准</blockquote>
+没有感情的报数机器XD
+
+
+ 

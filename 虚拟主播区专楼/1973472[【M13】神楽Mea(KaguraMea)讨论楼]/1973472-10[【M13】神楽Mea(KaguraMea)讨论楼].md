@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-05 15:44** 
+> ## **本文件最后更新于2021-05-06 08:43** 
 
 
 
@@ -13891,4 +13891,496 @@ md刚夸完孕吐是吧
 诶，原来雀魂和狂赌之渊联动了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">臭女人快抽
 
 
-     
+-----
+
+####  A2014720  
+##### 14824#       发表于 2021-5-5 23:45
+
+
+何时才能把咩咩永远囚禁在直播间呢<img src="https://p.sda1.dev/1/0ea8c3708ebf858c61d01e07f900f6f1/704f714fc9f8aaf8.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  离心  
+##### 14825#       发表于 2021-5-5 23:54
+
+
+她是在哪找到的这首bibi的歌的音源？
+
+
+-----
+
+####  Klience  
+##### 14826#       发表于 2021-5-6 00:01
+
+
+不要啊 不要让我想起每天打ll手游的日子啊 脑子里都是叮叮的声音<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 14827#       发表于 2021-5-6 00:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">想把sif下回来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 14828#       发表于 2021-5-6 00:28
+
+
+要下了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">后面唱的还行
+
+
+-----
+
+####  离心  
+##### 14829#       发表于 2021-5-6 00:40
+
+
+这首歌棒
+
+
+-----
+
+####  ashero  
+##### 14830#       发表于 2021-5-6 00:56
+
+
+BISH的歌也太你麻的合适她了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14831#       发表于 2021-5-6 00:57
+
+
+最近每次都听一半睡着<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14832#       发表于 2021-5-6 10:16
+
+
+傻逼女人现在播，我急了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 14833#       发表于 2021-5-6 10:26
+
+
+emmmmm TC就不能多搞几次留档的吗....
+
+
+-----
+
+####  黒長直姫  
+##### 14834#       发表于 2021-5-6 10:30
+
+
+世界十大不解之谜第一 小麻为何不让转TC
+
+
+-----
+
+####  A2014720  
+##### 14835#       发表于 2021-5-6 10:36
+
+
+懂得都懂<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14836#       发表于 2021-5-6 10:38
+
+
+一定是因为能听出自己是个坦克的事实害怕了
+
+
+-----
+
+####  gongge666  
+##### 14837#       发表于 2021-5-6 11:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51156378&amp;ptid=1973472" target="_blank">黒長直姫 发表于 2021-5-6 10:30</a>
+
+世界十大不解之谜第一 小麻为何不让转TC</blockquote>
+大概率字幕组跟她说国内能看TC呗，然后又问她能不能转播，她肯定不会让转播。她当年要不是井皇强行答应转播，以她的性格一辈子不可能答应转播的，反正不安desu就是了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14838#       发表于 2021-5-6 11:57
+
+
+我到了，马上就没有mea了，以后叫E嫂（x<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  JY要塞  
+##### 14839#       发表于 2021-5-6 12:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">老女人又在卖萌
+
+
+-----
+
+####  A2014720  
+##### 14840#       发表于 2021-5-6 12:21
+
+
+又在整阴间活了<img src="https://static.saraba1st.com/image/smiley/face2017/224.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14841#       发表于 2021-5-6 12:25
+
+
+外星野男人会透到虚拟小麻吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14842#       发表于 2021-5-6 12:28
+
+
+异性产卵 小麻麻破肚而出？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 14843#       发表于 2021-5-6 12:38
+
+
+草 TC整活整的这么好 咋就不放油管？ 还是不能剪辑的手机TC
+
+
+-----
+
+####  甘栗No.007  
+##### 14844#       发表于 2021-5-6 13:22
+
+
+一打开tc发现又播了3个多小时<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+离谱的tc主
+
+
+-----
+
+####  时间在我手中  
+##### 14845#       发表于 2021-5-6 14:14
+
+
+ 本帖最后由 时间在我手中 于 2021-5-6 14:18 编辑 
+
+你得意洋洋然后被强制切断的样子真的很靓仔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14846#       发表于 2021-5-6 14:26
+
+
+不行了我真的听累了，姐能停停嘛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14847#       发表于 2021-5-6 14:28
+
+
+ 本帖最后由 时间在我手中 于 2021-5-6 14:33 编辑 
+
+别做梦了，臭女人打算熬了强行调一波作息）早上起床个JB，昨天傍晚六点醒的到现在都没睡，臭女人还想中午那会儿睡的
+
+现在不知道脑子想什么，还在熬，越来越几把疯了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14848#       发表于 2021-5-6 14:31
+
+
+调nm呢，今早不是正常起床的？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+听的我腰子疼，是提前体会中年男人的痛苦了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14849#       发表于 2021-5-6 14:56
+
+
+这人凌晨打到1 2点 有没有通宵谁知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14850#       发表于 2021-5-6 14:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51159130&amp;ptid=1973472" target="_blank">Klience 发表于 2021-5-6 14:56</a>
+
+这人凌晨打到1 2点 有没有通宵谁知道呢</blockquote>
+通了，说了从那时候到现在就没睡
+
+
+
+
+-----
+
+####  Klience  
+##### 14851#       发表于 2021-5-6 15:02
+
+
+至今以来所有的调息都木大哒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14852#       发表于 2021-5-6 15:08
+
+
+臭女人要睡了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14853#       发表于 2021-5-6 15:27
+
+
+想对小麻睡眠管制，好寂寞<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 14854#       发表于 2021-5-6 15:41
+
+
+想对麻姨进行支配<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 14855#       发表于 2021-5-6 15:50
+
+
+20210506东京16点
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/155042e1kp18hpus8duuu7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2BB8F2C5-4787-44FF-90C6-2CF09E5DD9B3.jpeg</strong> (175.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:50 上传
+
+
+-----
+
+####  时间在我手中  
+##### 14856#       发表于 2021-5-6 15:51
+
+
+确实量产了一堆黑历史，笑死了，可惜不能切<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14857#       发表于 2021-5-6 15:51
+
+
+ 本帖最后由 路人庚 于 2021-5-6 16:13 编辑 
+
+看来今天tc档挺不错啊
+
+同好会最近在曲线剪辑来着，有想法的也可以尝试一下（
+
+
+就是指换个画面，用的音频还是tc的音频啊，不过最近剪的那几个具体是不是手机tc倒是不太确定
+
+
+好吧那就算了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14858#       发表于 2021-5-6 15:54
+
+
+ 本帖最后由 时间在我手中 于 2021-5-6 15:59 编辑 
+
+手机TC剪个几把，曲线剪辑什么东西，我五一家里有事做了首钻石裂痕就没动手过了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+现在今天这个从头到尾就是手机TC啊
+
+
+-----
+
+####  Dualist彩  
+##### 14859#       发表于 2021-5-6 16:04
+
+
+都海盗了，还搞什么海盗法典，大胆剪大胆发啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14860#       发表于 2021-5-6 16:20
+
+
+ 本帖最后由 时间在我手中 于 2021-5-6 16:21 编辑 
+
+没意义，aut之前切了TC的怪叫进去都被他们组的要求删了
+
+
+当然他们组面对酒厂唯唯诺诺至今那个肉都没删掉的事我就懒得多说了
+
+
+做人还是要有底线的。虽然我大概没啥资格说这个，但是这种事能不这么做还是别这么做
+
+当然你要自己招人同传也不算违反规定就是了，笑
+
+
+-----
+
+####  Klience  
+##### 14861#       发表于 2021-5-6 16:23
+
+
+哪个烤肉
+
+
+-----
+
+####  时间在我手中  
+##### 14862#       发表于 2021-5-6 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51160065&amp;ptid=1973472" target="_blank">Klience 发表于 2021-5-6 16:23</a>
+
+哪个烤肉</blockquote>
+酒厂那个评论开头就问大亏啥的那个TC剪辑吧
+
+我问过他们组员最后明明在mea自己通知过之后，最后决定内部集体意见是不剪那段的，哪怕提到大亏那段只是擦边球
+
+
+反正用一句很有趣的话来说就是无限当时找了飞狗问能不能做，结果就是先发轴截图然后直接评论区原话修改后剪辑发布，我其实那晚也做好了，随时能发
+
+咨询之后想了想还是算了，你要说我去问记者，他就给我来句【没出节奏就行】反正和这句差不多的话
+
+
+说这事本质还是讽刺他们双标把戏而已，以及这破组本质没啥约束力的实质
+
+
+而且说白了，全熟这东西其实要【报备】。不过我是彻底懒得报了
+
+
+就咋说呢，手机TC你要说我其实是能做没错，但是还是别了。没必要给臭女人添堵
+
+
+-----
+
+####  Klience  
+##### 14863#       发表于 2021-5-6 16:36
+
+
+ 本帖最后由 Klience 于 2021-5-6 16:37 编辑 
+
+这人什么时候说不要转播剪辑tc的时间我都快忘了 双标谁都会 我记得当时她说了不要转播tc 还是有人在啊b转播tc 转播画面还是别的 背景音是tc声 有什么用呢 只要别人看不到 给自己人看 怎么做都是对的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14864#       发表于 2021-5-6 16:41
+
+
+他们组寄吧谁啊，只管剪啊，等到时候吵起来了还能恰波流量岂不美哉，不炒作永无出头之日<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14865#       发表于 2021-5-6 16:42
+
+
+我觉得你在暗示隔壁狗妈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14866#       发表于 2021-5-6 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51160178&amp;ptid=1973472" target="_blank">Klience 发表于 2021-5-6 16:36</a>
+
+这人什么时候说不要转播剪辑tc的时间我都快忘了 双标谁都会 我记得当时她说了不要转播tc 还是有人在啊b转播 ...</blockquote>
+咋说呢，转播的那个B我倒是认识，对我来说那东西本质就是方便挂后台一点，这点没啥说的
+
+
+对这东西说实话我态度倒是也和记者回我那句话一样，【反正没啥节奏】
+
+
+你非要说的话，那我只能说组员带头大概比一般粉丝弱智还严重点，特别是我上述说的情况
+
+
+而且说难听点就是，酒厂那波本质又不是为了mea好什么的，没有大亏他们就不会搞这种事
+
+
+我也不会说什么那会儿转播和这个肉的事谁对谁错，难听点你要说的话我现在都算是把二创条例全熟相关当放屁的，除了最后SC会切一下谁寄吧要花两小时导出，五小时压制全熟
+
+
+我举这个例子本质还是那句话，都一样烂的时候就别装清高，恶心
+
+
+他们组的某些人给我感觉就这个B样反正，隔壁泥哥谭七柰女士那破事有人顺劈到你麻
+
+
+然后当时带头冲锋的hape就有他们组带记者，那你说我能说什么
+
+
+打吧，被说转进nga会被怎么样都懒得说了，不打吧，武德又不充沛了
+
+
+说实话，很**累是真的
+
+
+    
