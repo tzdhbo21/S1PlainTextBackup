@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-06 08:43** 
+> ## **本文件最后更新于2021-05-06 23:39** 
 
 
 
@@ -14383,4 +14383,221 @@ emmmmm TC就不能多搞几次留档的吗....
 说实话，很**累是真的
 
 
-    
+-----
+
+####  Klience  
+##### 14867#       发表于 2021-5-6 16:46
+
+
+ 本帖最后由 Klience 于 2021-5-6 16:49 编辑 
+
+烤肉面向的人不同而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14868#       发表于 2021-5-6 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51160227&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-5-6 16:41</a>
+
+他们组寄吧谁啊，只管剪啊，等到时候吵起来了还能恰波流量岂不美哉，不炒作永无出头之日 ...</blockquote>
+那你去建个号呗，笑
+
+我倒是没啥所谓，反正到时候一丢关我屁事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+仔细想想反正我又不用进官组被人指责什么的，好像现在做了也没人能管住我了
+
+
+不如说除了吊人本人都寄吧谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 14869#       发表于 2021-5-6 16:50
+
+
+我也觉得你剪你的呗,她本人如果觉得不行你再删了
+
+
+-----
+
+####  Klience  
+##### 14870#       发表于 2021-5-6 16:52
+
+
+本人也未必会去看烤肉呢 跟野男人语爱不好吗 谁想管你们粉丝破事<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 14871#       发表于 2021-5-6 16:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">大胆点，直接变成野男人
+
+
+-----
+
+####  A2014720  
+##### 14872#       发表于 2021-5-6 16:56
+
+
+"别出节奏"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14873#       发表于 2021-5-6 16:59
+
+
+我倒是无所谓就是了···不过最近TC是真的没做时间戳<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+以前有人说过要不要建个网站啥的烤好直接丢上去，我思考思考···今晚要做两个字幕，先不急
+
+
+-----
+
+####  Klience  
+##### 14874#       发表于 2021-5-6 17:01
+
+
+你不如直接学编程自制网站 做个咩专属网站呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  时间在我手中  
+##### 14875#       发表于 2021-5-6 17:03
+
+
+ 本帖最后由 时间在我手中 于 2021-5-6 17:10 编辑 
+
+我要学的东西一万个，哪来这么多时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+最近感觉这女人都没啥片段想做的是真的，歌回太几把犯困了到后面<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+想了想，你们是只要有完整同传就行还是要烤肉配合字幕才比较好
+
+
+前者的话我可以当练习日语翻译，也不会被傻卵官组和它们的狗烦
+
+
+后者的话理论上找个狗屎动漫串烧调低分贝叠到音频层那边，模仿同好会那套带个封面的直接一个高清图糊上去导出视频再创作不写哪天TC也是可行的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+如果要发的话应该就不打tag啥的了反正
+
+
+-----
+
+####  A2014720  
+##### 14876#       发表于 2021-5-6 17:12
+
+
+弱智一点，你换个封面真有人能认出来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14877#       发表于 2021-5-6 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51160515&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-5-6 17:12</a>
+
+弱智一点，你换个封面真有人能认出来嘛</blockquote>
+其实我上面说的就是这个意思啊，反正这种图我直接一个莫的名的用，<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+反正我今晚挺有空的，帮傻逼羊党做个字幕就能闲下来了
+
+
+-----
+
+####  Ky·Kiske  
+##### 14878#       发表于 2021-5-6 18:14
+
+
+拜家里的傻逼女人所赐昨晚的歌回虽然耳机戴着但是完全没听得下去
+
+30的女人还没小麻懂事是真的让人绝望
+
+
+-----
+
+####  掉头学姐  
+##### 14879#       发表于 2021-5-6 18:54
+
+
+五一被30多的老女人拽着跑来跑去，都没好好看小麻直播，<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14880#       发表于 2021-5-6 18:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">手机tc永远滴神，太给劲了嗷（补档中）
+
+
+
+
+-----
+
+####  路人辰  
+##### 14881#       发表于 2021-5-7 06:58
+
+
+ 本帖最后由 路人辰 于 2021-5-7 07:12 编辑 
+
+20210507东京6点；东京8点（1、2）
+
+<img src="https://img.saraba1st.com/forum/202105/07/065818h57zdddzahvgnsb9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7F4F4F5E-4C03-4D7D-923E-9E8643755CDE.jpeg</strong> (188.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 06:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/071159bjxxbxddbbwjnmvx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A5497D90-A324-4F3B-912F-FFE88B594908.jpeg</strong> (200.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 07:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/071200t4804lkhqhzqg84f.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>98FB33F9-AFEE-4FB4-9653-68E7DD4F7E5E.jpeg</strong> (242.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 07:12 上传
+
+
+-----
+
+####  掉头学姐  
+##### 14882#       发表于 2021-5-7 07:31
+
+
+天天卖萌
+
+
+   
