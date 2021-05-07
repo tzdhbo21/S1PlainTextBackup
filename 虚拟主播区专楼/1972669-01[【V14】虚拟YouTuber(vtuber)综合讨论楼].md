@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-06 13:11** 
+> ## **本文件最后更新于2021-05-07 03:57** 
 
 
 
@@ -6953,4 +6953,404 @@ yysy，确实挺免死的
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                
+-----
+
+####  Ketestrait  
+##### 514#       发表于 2021-5-6 21:14
+
+
+手机妹这新衣服是垫了多少层pad<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 515#       发表于 2021-5-6 22:05
+
+
+葵皇做ホログラ，兔皇做ぷちさんじ，贴贴捏：
+
+[https://www.youtube.com/watch?v=leIRKFjPVPc](https://www.youtube.com/watch?v=leIRKFjPVPc)
+
+
+-----
+
+####  真飞鸟i  
+##### 516#       发表于 2021-5-6 23:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">很难大节无亏，nga不都在开狗妈512b限是看不起cn了吗？不过现在的nga对日v圈也没半年前那么大影响力了，大概无所谓吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  心垂万刃  
+##### 517#       发表于 2021-5-6 23:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果挖出其他v往年512也b限了，又要开始猎巫了吗？
+
+
+-----
+
+####  シナモンロール  
+##### 518#       发表于 2021-5-7 08:17
+
+
+ 本帖最后由 シナモンロール 于 2021-5-7 08:58 编辑 
+
+2021.5.7 20:07:45 EDT
+
+
+“群奴互相扇动，人情惶遽，油管之间一时飙起，竖牙（只有上半边）旗，鸣beatbox以应鲨，七分之内，众至十万。皆以猫猫头，蘑菇以帽。欧美、日洋士庶莫不从之。”
+
+
+2021.5.7 20:35:41 EDT
+
+
+"众至十五万"
+
+
+2021.5.7 20:39:06 EDT
+
+
+"众至十七万"
+
+
+2021.5.7 20:40:39 EDT
+
+
+"众至十八万"
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig|-1|烂活|
+
+
+查看全部评分
+
+
+-----
+
+####  シナモンロール  
+##### 519#       发表于 2021-5-7 08:42
+
+
+We got this bro we got this
+
+
+-----
+
+####  シナモンロール  
+##### 520#       发表于 2021-5-7 08:43
+
+
+ 本帖最后由 シナモンロール 于 2021-5-7 08:48 编辑 
+
+2021.5.7 20:42:26 EDT
+
+<strong>"众至十九万"</strong>
+
+
+BTW
+
+
+PERFECT FACE FOR NOW
+
+<img src="https://z3.ax1x.com/2021/05/07/g1YDMT.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  獅白ぼたん  
+##### 521#       发表于 2021-5-7 08:47
+
+
+百寸竿头更进一步<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 522#       发表于 2021-5-7 08:50
+
+
+ 本帖最后由 winda 于 2021-5-7 08:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">19w4，虹棒的19w1这种趁着疫情蹭甲子园的货色在绝对实力面前真是不值一提
+
+
+-----
+
+####  シナモンロール  
+##### 523#       发表于 2021-5-7 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51166028&amp;ptid=1972669" target="_blank">winda 发表于 2021-5-7 08:50</a>
+
+19w2，虹棒的19w1这种趁着疫情蹭甲子园的货色在绝对实力面前真是不值一提 ...</blockquote>
+更正一下，巅峰同接194140<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 524#       发表于 2021-5-7 08:52
+
+
+建议把5月7日设成大杏统一纪念日，什么才是真正的质啊
+
+
+-----
+
+####  FCCHua  
+##### 525#       发表于 2021-5-7 08:54
+
+
+草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シナモンロール  
+##### 526#       发表于 2021-5-7 08:54
+
+
+ 本帖最后由 シナモンロール 于 2021-5-7 09:03 编辑 
+
+无法逾越的单人窗了......
+
+
+耶和华对摩西说：“这百姓藐视我要到几时呢？我在他们中间行了这一切神迹，他们还不信我要到几时呢？ ”(民数记 14:11)
+
+
+-----
+
+####  真飞鸟i  
+##### 527#       发表于 2021-5-7 09:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多得了，同接明明不到18w，hiyoko记载的才是真实。
+
+19w4，应该是v圈新高了，假如不算马娘官号的话。
+
+
+-----
+
+####  cqkxywj  
+##### 528#       发表于 2021-5-7 09:05
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/090323f2vonziyonf2fc4q.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-05-07_09-02-46.png</strong> (3.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 09:03 上传
+
+
+是hololive worldwide正义的国际主义元气弹击毁了邪恶的民族主义nijisanji<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 529#       发表于 2021-5-7 09:08
+
+
+  民粹主义是救国之根！费拉不堪的国际主义懂个啥牺牲？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+  支持彩虹把霍洛赶出大和国土，让她名是个倭人，实却是个赤颈。你自己挂个日本名在美国建立总部吧！
+
+
+-----
+
+####  noHentai  
+##### 530#       发表于 2021-5-7 09:28
+
+
+其实预想到了今年肯定破的，只是没想到是鲨皇单人破的<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  划水的B612  
+##### 531#       发表于 2021-5-7 09:33
+
+
+19W，单人爆杀甲子园，我可以死得瞑目了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 532#       发表于 2021-5-7 09:37
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">单人破过于辉煌。
+
+
+-----
+
+####  真飞鸟i  
+##### 533#       发表于 2021-5-7 09:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说实话对木口来说，比起居然是应该说只能是吧，木口就不擅长全社大联动，每次的数字都不够理想，数字好看的都是小团体联动以及重大发表。以前就有虹大招是全社联动，杏大招是重大发表的说法。而木口又因为新衣装的配给极其严峻，已经是堪比3d披露级别的重大发表了。
+
+
+-----
+
+####  noHentai  
+##### 534#       发表于 2021-5-7 10:14
+
+
+Twitterは7日、「Tip Jar」というお金のやり取りができる機能のテストをしていることを明らかにした。
+
+
+「Twitter上でお金のやりとりをする新しい方法である『TipJar』をテストしています」と説明しており、詳細は今後明らかにするという。また、公開されたデモ動画では、プロフィール画面に並ぶ新たなアイコンをタップし、アプリを選択して送金する様子が描かれている。
+
+
+-----
+
+####  rzrbtk  
+##### 535#       发表于 2021-5-7 10:26
+
+
+鲨皇牛啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">！
+省一楼，各地又紧急事态宣言的话，今年夏天估计管人能再红一次？
+
+
+-----
+
+####  影山银  
+##### 536#       发表于 2021-5-7 10:28
+
+
+鲨鲨这是鲨疯了吧
+
+
+-----
+
+####  集合酱  
+##### 537#       发表于 2021-5-7 10:29
+
+
+那3d披露得多夸张
+
+
+-----
+
+####  hulaoda007  
+##### 538#       发表于 2021-5-7 10:31
+
+
+  话说这算holo的胜利，还是算holo海外的胜利？
+  我是指假设是holo日本开播的话，能不能做到这样？
+
+
+-----
+
+####  AKili  
+##### 539#       发表于 2021-5-7 10:36
+
+
+ 本帖最后由 AKili 于 2021-5-7 10:38 编辑 
+
+holo海外肯定是胜利了，至于本社能不能超得看兔皇新衣服什么时候出，当然我觉得不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  admentus  
+##### 540#       发表于 2021-5-7 10:37
+
+
+ 本帖最后由 admentus 于 2021-5-7 10:41 编辑 
+
+完全没可能，jp接近这数字都没可能
+
+楼友能推测下这些人平时见不到都是从哪冒出来的吗？真的看不懂了
+
+
+
+
+-----
+
+####  poipanchao  
+##### 541#       发表于 2021-5-7 10:45
+
+
+“买了”
+
+syl，最近一直在看kr，感觉这群人蛮有活力的，搞得企划也有不少奇思妙想
+可惜语言屏障太高了…
+突击学了些韩语，但真的没啥人可以交流的
+只有几个bora的日本粉丝（会韩语）可以聊两句
+
+
+-----
+
+####  空集  
+##### 542#       发表于 2021-5-7 10:52
+
+
+草 看v能有学语言动力也是好事
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  划水的B612  
+##### 543#       发表于 2021-5-7 11:06
+
+
+ 本帖最后由 划水的B612 于 2021-5-7 11:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51167201&amp;ptid=1972669" target="_blank">admentus 发表于 2021-5-7 10:37</a>
+
+完全没可能，jp接近这数字都没可能
+
+楼友能推测下这些人平时见不到都是从哪冒出来的吗？真的看不懂了</blockquote>
+你当她262W粉丝是假的啊。说实话她这19W不也有你我的一份？凑热闹这事全球都一样
+
+
+-----
+
+####  Vneet  
+##### 544#       发表于 2021-5-7 11:27
+
+
+一些时间没看了，鲨皇今天怎么了？新衣装同接新记录？
+
+
+-----
+
+####  IDIDIDID  
+##### 545#       发表于 2021-5-7 11:42
+
+
+以后斗虫要多一个twitter SC了
+
+
+-----
+
+####  admentus  
+##### 546#       发表于 2021-5-7 11:53
+
+
+发推谢sc，握手女奴的新形态
+
+
+                               
