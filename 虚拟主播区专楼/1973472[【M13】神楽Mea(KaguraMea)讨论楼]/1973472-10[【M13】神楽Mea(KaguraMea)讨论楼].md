@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-06 23:39** 
+> ## **本文件最后更新于2021-05-07 13:44** 
 
 
 
@@ -14600,4 +14600,367 @@ emmmmm TC就不能多搞几次留档的吗....
 天天卖萌
 
 
-   
+-----
+
+####  rosevalley46  
+##### 14883#       发表于 2021-5-7 07:42
+
+
+少卖萌,多来点暴躁对线<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14884#       发表于 2021-5-7 08:43
+
+
+真就健康作息了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14885#       发表于 2021-5-7 08:53
+
+
+健康作息好啊，养肉体<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14886#       发表于 2021-5-7 11:06
+
+
+健康作息有鬼用哦 一次通宵打回原形<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14887#       发表于 2021-5-7 11:15
+
+
+可爱，很难不想日
+
+
+-----
+
+####  JY要塞  
+##### 14888#       发表于 2021-5-7 11:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">被野男人磨平了棱角
+
+
+-----
+
+####  雪风utopia  
+##### 14889#       发表于 2021-5-7 11:37
+
+
+被野男人磨平了水袋<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  planetcd  
+##### 14890#       发表于 2021-5-7 12:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">吗
+
+
+-----
+
+####  呓亘  
+##### 14891#       发表于 2021-5-7 14:07
+
+
+同好会新烤了一个屑咩时期的腊肉，怀念屑咩的可以来看看：
+[https://www.bilibili.com/video/BV15K4y1d7T9](https://www.bilibili.com/video/BV15K4y1d7T9)
+
+
+-----
+
+####  呓亘  
+##### 14892#       发表于 2021-5-7 14:33
+
+
+伞兵女人今天几点播啊....搞点有趣的联动也行啊....或者电脑TC杂谈啊.....
+
+
+-----
+
+####  雪风utopia  
+##### 14893#       发表于 2021-5-7 14:40
+
+
+建议事业民不要没事破防自己，不要对伞兵女人抱有任何期待，静待她没钱然后下海fc2出道就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14894#       发表于 2021-5-7 14:40
+
+
+一，几点播这东西建议快进到今天多半不播，早上六点起的估计这下午霍霍过去直接睡了都有可能
+
+
+二，有趣的联动是什么东西，纯杂谈我估摸着你是搞不太懂了，游戏回雀魂估计你也看得没什么趣味点
+
+
+难不成真指望MHR和黄兔子打<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+三，电脑TC这东西有时候可能就是肚子饿了等个外卖猪叫开播，你要是觉得听猪叫能满足当我没说也行，当然我是不反对听猪叫的
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14895#       发表于 2021-5-7 15:18
+
+
+合着没一个人能看的，好好学习
+
+
+-----
+
+####  呓亘  
+##### 14896#       发表于 2021-5-7 15:21
+
+
+黄兔子今天又要发一个跟你咩有关的切片哎
+
+
+-----
+
+####  呓亘  
+##### 14897#       发表于 2021-5-7 15:22
+
+
+伞兵女人今天八成播 反正我现在是不担心她播的频率 这几个月基本能保证一天一播了（算上小视频、联动、TC）
+
+
+-----
+
+####  D麦林  
+##### 14898#       发表于 2021-5-7 16:24
+
+
+呜呜 咩咩 
+转世沙盒太精污了 我要咩咩直播当bgm
+没有咩咩我要退坑gbf了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14899#       发表于 2021-5-7 17:09
+
+
+这时间怕不是已经回去睡了）然后晚上0-4点来个睡太过了糟了糟了mea的作息已经是gomi的手机TC<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14900#       发表于 2021-5-7 18:25
+
+
+睡个屁 打游戏呢 怕是作息调好了 战绩也好看了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14901#       发表于 2021-5-7 18:43
+
+
+还在打吗，我估计如果一直打今晚就无了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14902#       发表于 2021-5-7 18:46
+
+
+今晚播不播全看她心情 反正最好别播 我还想打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 14903#       发表于 2021-5-7 19:06
+
+
+东京有印度变异病毒了，不安
+
+
+-----
+
+####  Klience  
+##### 14904#       发表于 2021-5-7 19:19
+
+
+msb好像40°进医院了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14905#       发表于 2021-5-7 19:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">日本政府真的烂，可怜的日本人民
+
+
+-----
+
+####  Klience  
+##### 14906#       发表于 2021-5-7 19:24
+
+
+而且还不是在空港检测的 也就是说在市内已经开始小范围传播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kenjjj  
+##### 14907#       发表于 2021-5-7 19:57
+
+
+多灾多难，日本政府真是烂透了，希望小麻好好的<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14908#       发表于 2021-5-7 20:08
+
+
+今天大概是无了，不过我这月挺忙的她少播点也好<img src="https://static.saraba1st.com/image/smiley/face2017/036.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14909#       发表于 2021-5-7 20:11
+
+
+打了两局 还有一局自定义大乱斗 现在没打 匹配波比11/1的战绩 果然这就是作息调好带来的成果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14910#       发表于 2021-5-7 21:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">今天不播了把
+
+
+
+
+-----
+
+####  路人庚  
+##### 14911#       发表于 2021-5-7 21:10
+
+
+今天醒的太早，现在应该是眠了
+
+
+-----
+
+####  Klience  
+##### 14912#       发表于 2021-5-7 21:12
+
+
+反正现在没再打 播不播看她心情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14913#       发表于 2021-5-7 21:15
+
+
+pubg也好久没动 可惜apex只能看排位 不能像opgg一样实时监控有点可惜
+
+
+-----
+
+####  路人庚  
+##### 14914#       发表于 2021-5-7 21:20
+
+
+pubg这东西我印象中她去年就没玩过了吧？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这是想抓人吗，放弃吧，她就算没睡剩下的选择要么是漫画，要么是无法监视的mmorpg、或麻将
+
+
+-----
+
+####  Klience  
+##### 14915#       发表于 2021-5-7 21:28
+
+
+ 本帖最后由 Klience 于 2021-5-7 21:37 编辑 
+
+pubg的话2019-8-1之后就没有玩过了 麻号2019-9-21之后也没动过 apex那个监控网站不知道怎么看 也没想抓人 只是想知道这人在打什么游戏而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14916#       发表于 2021-5-7 21:37
+
+
+无了，眠
+
+
+-----
+
+####  Cushaw  
+##### 14917#       发表于 2021-5-7 21:38
+
+
+麻姨越神秘你们越想偷窥是吧，什么玩弄人心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  雪风utopia  
+##### 14918#       发表于 2021-5-7 21:39
+
+
+我想偷窥小麻衣服里面<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14919#       发表于 2021-5-7 21:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">想把她给监禁喽
+
+
+-----
+
+####  Klience  
+##### 14920#       发表于 2021-5-7 21:40
+
+
+游戏民观察者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+  
