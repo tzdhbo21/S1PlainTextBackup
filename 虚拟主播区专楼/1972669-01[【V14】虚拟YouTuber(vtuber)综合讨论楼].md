@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-07 03:57** 
+> ## **本文件最后更新于2021-05-07 11:50** 
 
 
 
@@ -7030,10 +7030,11 @@ yysy，确实挺免死的
 评分
 
 
- 参与人数 1战斗力 -1
+ 参与人数 2战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| nowaki|-2||
 | wiig|-1|烂活|
 
 
@@ -7068,6 +7069,21 @@ BTW
 PERFECT FACE FOR NOW
 
 <img src="https://z3.ax1x.com/2021/05/07/g1YDMT.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| nowaki|-2||
+
+
+查看全部评分
 
 
 -----
@@ -7353,4 +7369,473 @@ syl，最近一直在看kr，感觉这群人蛮有活力的，搞得企划也有
 发推谢sc，握手女奴的新形态
 
 
-                               
+-----
+
+####  tiro_finale  
+##### 547#       发表于 2021-5-7 12:05
+
+
+草，不是传了很久鲨皇伤仲永一波流吗
+
+
+-----
+
+####  OldGlory  
+##### 548#       发表于 2021-5-7 12:11
+
+
+看看鲨皇录像播放量也知道不存在什么伤仲永了
+
+
+-----
+
+####  空集  
+##### 549#       发表于 2021-5-7 12:14
+
+
+en伤仲永x  日常播放量这一数据长久没得到合理的重视√
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  smy20011  
+##### 550#       发表于 2021-5-7 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168255&amp;ptid=1972669" target="_blank">tiro_finale 发表于 2021-5-7 12:05</a>
+
+草，不是传了很久鲨皇伤仲永一波流吗</blockquote>
+不是所有粉丝能凌晨起来跟直播的，她的粉丝全球各地，很多人都是补档。
+
+
+-----
+
+####  IDIDIDID  
+##### 551#       发表于 2021-5-7 12:34
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-7 12:37 编辑 
+
+反正节奏榜虹社下面的がいがい又要发疯了，田角不把这批指导厨洗掉抽多少卡都没用。
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/123658m3ookl23g2h8cfhc.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #106 - 'にじさんじプロジェクト いちから株式会社.png</strong> (152.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 12:36 上传
+
+
+SYL：之前还有一条直接冲そにろじ塔的被删了。
+
+
+-----
+
+####  smy20011  
+##### 552#       发表于 2021-5-7 12:39
+
+
+<blockquote>IDIDIDID 发表于 2021-5-7 12:34
+反正节奏榜虹社下面的がいがい又要发疯了，田角不把这批指导厨洗掉抽多少卡都没用。
+
+
+SYL：之前还有一条直 ...</blockquote>
+赶紧抽en才是真的。。
+
+
+-----
+
+####  IDIDIDID  
+##### 553#       发表于 2021-5-7 12:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168639&amp;ptid=1972669" target="_blank">smy20011 发表于 2021-5-7 12:39</a>
+
+赶紧抽en才是真的。。</blockquote>
+说要抽说小半年了，不知道在造什么大和战舰，说实话抽EN不如抽个有偶像力的KR欧巴，yhm就爱这一口。
+
+
+-----
+
+####  rzrbtk  
+##### 554#       发表于 2021-5-7 13:01
+
+
+gw期间全滚去宅家直播是真的，一想到郡道五月还要上京我<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  窓付き  
+##### 555#       发表于 2021-5-7 13:11
+
+
+ 本帖最后由 窓付き 于 2021-5-7 13:12 编辑 
+
+只看同接中位值的人很容易得出鲨皇伤仲永的结论，是时候对录像点击数再评价了
+
+新鲜感过了逆时差每场追着看的人少了，这种放烟花的场合来凑个热闹还是不难的
+
+
+-----
+
+####  admentus  
+##### 556#       发表于 2021-5-7 13:19
+
+
+视频观看数有时长对观看数影响太大这个问题，长视频观看数会高很多，而且并不能明确知道点击是怎么算的，很难对比
+
+再说jp很少出现观看数和同接差很多，以及像鲨皇这样1，2小时的直播能有很高观看数的情况。通常来讲用同接分析才是更合理的，不然一小时高同接直播都比不过低同接耐久的点击数...
+
+只能说en部分和jp，观众看直播的习惯很不一样，没法互相之间对比
+
+
+-----
+
+####  OldGlory  
+##### 557#       发表于 2021-5-7 13:36
+
+
+当然是同时长（去掉读sc）对比播放量啊
+
+
+-----
+
+####  渡鸦骑士  
+##### 558#       发表于 2021-5-7 13:46
+
+
+ 本帖最后由 渡鸦骑士 于 2021-5-7 13:47 编辑 
+
+不过就算如此某些异常数据还是能明显对比出来的。一般现在比较火的主播的直播录像1~2小时的稳定播放量在10w左右。gura小姐则是全都几十万。
+
+而帕特拉小姐因为amsr的特殊性导致正常直播几w到amsr几十万两级分化。
+
+同接某种程度上算比较核心粉的话，那么会按时补录播的那一批粉丝就应该是大事件里增长的同接的重要来源了。
+
+至于耐久和短直播的比较其实也好解决……按单位时间算也还行吧。而且也不是所有耐久播放都高的，有些耐久档还不如一小时播放量真心<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  バーチャルS1er  
+##### 559#       发表于 2021-5-7 14:02
+
+
+ 本帖最后由 バーチャルS1er 于 2021-5-7 14:05 编辑 
+
+这鲨皇脸简直就是木口最严重的纸片面具，这LIVE2D师傅什么垃圾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シナモンロール  
+##### 560#       发表于 2021-5-7 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51169438&amp;ptid=1972669" target="_blank">バーチャルS1er 发表于 2021-5-7 14:02</a>
+这鲨皇脸简直就是木口最严重的纸片面具，这LIVE2D师傅什么垃圾</blockquote>
+u1s1 原先那个风格反而是有种幻想风，现在一旦出常服风格确实就单薄起来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cqkxywj  
+##### 561#       发表于 2021-5-7 15:10
+
+
+说的没错啊 花生狸猫24h暴打你虹这一两年的所有企划<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 562#       发表于 2021-5-7 15:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我看tskk 粉丝楼也正在讨论花生狸猫24h呢，这就是共时性吗？
+
+
+-----
+
+####  獅白ぼたん  
+##### 563#       发表于 2021-5-7 16:13
+
+
+我看上面虹女记录蛮高的，木口刨去两三个也就这水平，这还不满意的吗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 564#       发表于 2021-5-7 16:29
+
+
+ 本帖最后由 FCCHua 于 2021-5-7 16:32 编辑 
+
+爱园3d 14号8点披露<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+小夜的3d暂时跳过我还能理解，谢林这有模型的至今没正式披露是什么情况<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 565#       发表于 2021-5-7 16:33
+
+
+ 本帖最后由 winda 于 2021-5-7 16:45 编辑 
+
+5月同接まとめ(3万以上)
+ホロライブ
+１．カリオペ新衣装　135,404
+２．余新衣装　　　　102,237
+３．タコ先新衣装　　*90,431
+４．かなたん新衣装　*88,214
+５．わため新衣装　　*81,809
+６．トワ様新衣装　　*74,273
+７．キアラ新衣装　　*70,189
+８．ぺこらバイオ７　*48,426
+９．ぺこランド開園　*44,496
+１０．マリパやらん？*38,776
+１１．朝ミオ５日目　*36,257
+１２．朝ミオ４日目　*32,346
+１３．朝ミオ３日目　*32,168
+１４．ぺこらモンハン*30,057
+
+にじさんじ
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">确实没毛病，GW百人大社团企划能力不及个人势，vsingfes2也比pr配信有意思
+
+
+-----
+
+####  BonkoraKKK  
+##### 566#       发表于 2021-5-7 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51167283&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-5-7 10:45</a>
+
+“买了”
+
+
+syl，最近一直在看kr，感觉这群人蛮有活力的，搞得企划也有不少奇思妙想</blockquote>
+学了韩语来和会韩语的日本粉丝交流啊……
+
+和日本粉丝用日语交流，和韩国人再用韩语交流岂不是挺好
+
+
+-----
+
+####  nowaki  
+##### 567#       发表于 2021-5-7 16:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有的人只是酸而已，自己主子新衣服+全社让道+sc第一人引流+节日buff+现场连麦=8w。
+
+en观众不需要大张旗鼓宣扬，自发看直播就19w4，平时一副外国观众低贱，jp盘高贵，这时候被打脸打肿了可不得满地打滚找点理由说奇观有瑕疵么。
+
+
+-----
+
+####  渡鸦骑士  
+##### 568#       发表于 2021-5-7 16:45
+
+
+ 本帖最后由 渡鸦骑士 于 2021-5-7 16:51 编辑 
+
+原来如此，狐叔也出现了阿
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/164637u0u9g19b9g8t7do9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (109.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 16:46 上传
+
+
+中间这个是那个刚离开ichkara的好兄弟阿，这就被拿出来说说sc内幕了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+
+一直挺纳闷彩虹哪里来的钱烧的……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 569#       发表于 2021-5-7 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51171037&amp;ptid=1972669" target="_blank">BonkoraKKK 发表于 2021-5-7 16:34</a>
+学了韩语来和会韩语的日本粉丝交流啊……
+
+和日本粉丝用日语交流，和韩国人再用韩语交流岂不是挺好 ...</blockquote>
+太少了，会韩语的日本宅简直是稀有动物
+
+
+-----
+
+####  渡鸦骑士  
+##### 570#       发表于 2021-5-7 16:59
+
+
+ 本帖最后由 渡鸦骑士 于 2021-5-7 17:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51171271&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-5-7 16:57</a>
+
+太少了，会韩语的日本宅简直是稀有动物</blockquote>
+千草……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  poipanchao  
+##### 571#       发表于 2021-5-7 17:01
+
+
+说起来千草，之前跟犬山对谈那次看repo特别魔幻
+感觉对犬山就是“你的故事我这里特别多”
+到底是老害中的老害，辈分确实高
+不过现在成了千草还是一股青春味
+中之人年轻的影响还是大的
+
+
+-----
+
+####  真飞鸟i  
+##### 572#       发表于 2021-5-7 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51171138&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-5-7 16:45</a>
+原来如此，狐叔也出现了阿中间这个是那个刚离开ichkara的好兄弟阿，这就被拿出来说说sc内幕了。
+
+一 ...</blockquote>
+虹吃的投资可比木口多太多了，资本金上一虹等于六木口。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  真飞鸟i  
+##### 573#       发表于 2021-5-7 17:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱园3d能把脸改一下吗。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  IDIDIDID  
+##### 574#       发表于 2021-5-7 17:20
+
+
+iwaiwa润了gamers那几个有啥表示吗？
+
+
+-----
+
+####  死体残留  
+##### 575#       发表于 2021-5-7 17:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">现在gw和新年一样吧，木口现在客群多了起来就是当年体量打四五倍的偶像部，虹现在以前玩企划的都被烧怕了更打不过了
+
+
+-----
+
+####  渡鸦骑士  
+##### 576#       发表于 2021-5-7 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51171387&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-5-7 17:07</a>
+
+虹吃的投资可比木口多太多了，资本金上一虹等于六木口。
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上 ...</blockquote>
+这我是知道的（）所以其实想问的是，哪来这么多投资人让他烧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 577#       发表于 2021-5-7 17:55
+
+
+[https://twitter.com/hololivetv/status/1390602375631671297](https://twitter.com/hololivetv/status/1390602375631671297)
+
+【お知らせ #1】
+
+5月28日（金）に開催予定の《 hololive 1st Generation 3rd Anniversary LIVE「from 1st」》につきまして、緊急事態宣言延長を考慮した結果、会場での開催を中止し、SPWNでの完全オンラインライブへ切り替えることが決定いたしました。
+
+
+指向下边的三角詳細指向下边的三角
+[https://from1st.hololive.tv/news](https://from1st.hololive.tv/news)
+
+
+#from1st
+
+
+有点担心我们家大葵的live了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 578#       发表于 2021-5-7 18:15
+
+
+[https://twitter.com/_kanade_kanon/status/1390607255968571393](https://twitter.com/_kanade_kanon/status/1390607255968571393)
+
+<img src="https://img.saraba1st.com/forum/202105/07/181513uf8nzr8fhabzt4fm.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (711.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 18:15 上传
+
+
+-----
+
+####  Suny08  
+##### 579#       发表于 2021-5-7 18:54
+
+
+说实话你虹黄金周连个大企划都没有确实一副要完蛋的样子，这就是被apex支配了的箱的末路
+
+
+-----
+
+####  qq845629713  
+##### 580#       发表于 2021-5-7 19:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 
+被apex支配（X）
+
+被king支配（O）
+
+
+-----
+
+####  IDIDIDID  
+##### 581#       发表于 2021-5-7 19:13
+
+
+友情提示：king上个月已经被牛郎掀翻了
+
+
+                              
