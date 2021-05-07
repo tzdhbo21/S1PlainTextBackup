@@ -613,7 +613,7 @@
     "title": "[【A3】A-SOUL讨论楼（04.07 19：00 珈乐直播）]",
     "lastedit": 1617796170,
     "category": "虚拟主播区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1994499",
@@ -709,7 +709,7 @@
     "title": "[壮哉 天哉 美哉：天美工作室登顶全球第一]",
     "lastedit": 1617796659,
     "category": "游戏区",
-    "active": true
+    "active": false
   },
   {
     "id": "1997418",
@@ -849,9 +849,9 @@
   },
   {
     "id": "1982925",
-    "totalpage": 26,
+    "totalpage": 27,
     "title": "[21.04『本田小狼与我 ／ Super Cub』专楼 04.07放送]",
-    "lastedit": 1620321427,
+    "lastedit": 1620392177,
     "category": "漫区专楼",
     "active": true
   },
@@ -4081,9 +4081,9 @@
   },
   {
     "id": "1994225",
-    "totalpage": 23,
+    "totalpage": 26,
     "title": "[【A6】A-SOUL讨论楼]",
-    "lastedit": 1620388711,
+    "lastedit": 1620393261,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -4441,9 +4441,9 @@
   },
   {
     "id": "2001864",
-    "totalpage": 6,
+    "totalpage": 7,
     "title": "[NASA批评长五一级火箭将以非受控的方式再入地球，或砸中…]",
-    "lastedit": 1620371591,
+    "lastedit": 1620393387,
     "category": "外野",
     "active": true
   },
@@ -4625,9 +4625,9 @@
   },
   {
     "id": "2002654",
-    "totalpage": 8,
+    "totalpage": 9,
     "title": "[越来越夸张了，这算中肯言论了吧。]",
-    "lastedit": 1620371681,
+    "lastedit": 1620393463,
     "category": "外野",
     "active": true
   },
