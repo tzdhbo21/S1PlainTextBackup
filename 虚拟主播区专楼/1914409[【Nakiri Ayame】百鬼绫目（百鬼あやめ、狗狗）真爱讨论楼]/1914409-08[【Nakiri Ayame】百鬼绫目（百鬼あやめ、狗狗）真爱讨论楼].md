@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-06 08:40** 
+> ## **本文件最后更新于2021-05-07 17:57** 
 
 
 
@@ -7875,7 +7875,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_P584q" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_CDmbW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 mv.gif
@@ -15775,4 +15775,305 @@ bsyl辣辣突然被炎上了还挺乐
 没有感情的报数机器XD
 
 
- 
+-----
+
+####  Fami水  
+##### 11944#       发表于 2021-5-6 18:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">是谁让绫总变成了无情的数字机器
+
+
+-----
+
+####  因为你不会  
+##### 11945#       发表于 2021-5-6 18:52
+
+
+绫总终于变成变成了天天盯着业绩的老总
+
+
+-----
+
+####  FCCHua  
+##### 11946#       发表于 2021-5-6 19:01
+
+
+还我之前的绫总<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 11947#       发表于 2021-5-6 19:23
+
+
+这就是绫总啊，有点成绩就high的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 11948#       发表于 2021-5-6 19:27
+
+
+之前那还是没这么频繁报数字的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11949#       发表于 2021-5-6 19:36
+
+
+之前也没啥事有这么多数啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11950#       发表于 2021-5-6 19:38
+
+
+bsyl辣辣油管上那破玩意舍不得删 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不准备公开道歉可脸皮真厚
+
+
+-----
+
+####  FCCHua  
+##### 11951#       发表于 2021-5-6 19:50
+
+
+也是，难得来个翻唱
+
+
+-----
+
+####  因为你不会  
+##### 11952#       发表于 2021-5-6 19:56
+
+
+要考虑到绫总压抑已久的情感得不到宣泄<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11953#       发表于 2021-5-6 20:34
+
+
+新衣十万同接也算大数字吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+还是要当成黑历史封印记忆？
+
+
+-----
+
+####  昆西昆希昆  
+##### 11954#       发表于 2021-5-6 20:35
+
+
+绫总我已经三分钟没听你讲翻唱百万播放的的故事了
+
+
+-----
+
+####  Fami水  
+##### 11955#       发表于 2021-5-6 20:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">十万人面前看这么拉胯的新衣服 不管是横向对比后面同社的 还是纵向对比自己之前
+
+我是绫总我就找娜娜拼命了，用几次当黑历史丢进垃圾堆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 11956#       发表于 2021-5-6 20:46
+
+
+突然想起来绫总还有个和夏色祭的合作翻唱在官号，也被绫总一并忽略掉了
+
+
+syl，有时候还想看一看那件洋装衣服，有新live2D后绫总是不是也把这件衣服扫进垃圾堆了
+
+
+-----
+
+####  昆西昆希昆  
+##### 11957#       发表于 2021-5-6 21:15
+
+
+是狗狗国王役的那首吗
+
+
+-----
+
+####  cctvyt1  
+##### 11958#       发表于 2021-5-6 21:19
+
+
+ 本帖最后由 cctvyt1 于 2021-5-6 21:20 编辑 
+
+营运的任务罢了，和阿希真不熟的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 11959#       发表于 2021-5-6 21:23
+
+
+别尬黑，阿希和谁都不熟。爹亲娘亲不如apex亲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 11960#       发表于 2021-5-6 22:33
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-5-6 22:34 编辑 
+
+草 咋又原地tp一次 
+
+
+是不是数据上不去开始急了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+VCYDZ2(F6Z)IH}4-SVFUB.png
+(26.48 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-6 22:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/223429nh6sp88tyj98y90x.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 11961#       发表于 2021-5-7 00:33
+
+
+绫总入魔了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 11962#       发表于 2021-5-7 09:22
+
+
+绫总新衣回也要百万播放了 不如转转这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 11963#       发表于 2021-5-7 13:44
+
+
+别别别，娜娜现在还在烤架上呢
+
+
+-----
+
+####  asdhai  
+##### 11964#       发表于 2021-5-7 14:19
+
+
+绫总这是收到什么kpi啊？以前没见这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11965#       发表于 2021-5-7 14:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">新一份的合同肯定有要求了吧 
+
+
+-----
+
+####  kyogreJ  
+##### 11966#       发表于 2021-5-7 17:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">娜娜被炎实属乐麻了，瞎画恶心人是吧，遭报应了吧
+
+
+-----
+
+####  stedckk  
+##### 11967#       发表于 2021-5-7 18:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">每天都发，有毒。
+
+
+-----
+
+####  昆西昆希昆  
+##### 11968#       发表于 2021-5-7 18:45
+
+
+亵渎圣摸余的人有难了🙏
+
+
+-----
+
+####  stedckk  
+##### 11969#       发表于 2021-5-7 21:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">现在就每天发一遍翻唱链接摆烂是吧
+
+
+-----
+
+####  因为你不会  
+##### 11970#       发表于 2021-5-7 21:33
+
+
+绫总你还是去打比赛坑队友吧，这样子那天是个头啊，不知道的还以为king是你的原创曲呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  因为你不会  
+##### 11971#       发表于 2021-5-8 01:21
+
+
+绫总绫总，dfm赢c9了，电竞魂还不烧起来吗
+
+
+-----
+
+####  绿色子龙  
+##### 11972#       发表于 2021-5-8 01:44
+
+
+比起翻唱播放量应该多吹吹小剧场播放量
+
+
+五月病涨幅喜人已经超过了很多放了很久的了
+
+
+岩浆总播放量是小剧场中第二
+
+
+这不都是绫总carry ？
+
+
