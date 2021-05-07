@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-03 06:50** 
+> ## **本文件最后更新于2021-05-07 01:40** 
 
 
 
@@ -11465,4 +11465,426 @@ metal float设定有点像尼尔a；最后找grace本体那一段有macross plus
 你还不如不去登岛呢...
 
 
-                    
+-----
+
+####  reficul  
+##### 872#       发表于 2021-5-3 15:01
+
+
+为什么博士会和反AI组织决裂？他们都想把病毒灌进岛上吧，事后再去回收葛蕾丝就好了。凭他是个技术员，直接开口说希望拿到岛上母机的AI组织也会协助吧，毕竟伊丽莎白也能利用，看起来没那么极端原教旨
+
+
+-----
+
+####  oyss  
+##### 873#       发表于 2021-5-4 12:44
+
+
+一般的AI科幻设定起码是能复制的.哪怕要跟人类灵魂一样从头培养的AI,培养好了也能复制.SAO不就是能复制的.
+
+
+这片看起来是复制都没办法复制.只能一团数据来回转移.
+
+
+-----
+
+####  pokemon最爱  
+##### 874#       发表于 2021-5-4 13:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51141414&amp;ptid=1982987" target="_blank">oyss 发表于 2021-5-4 12:44</a>
+
+一般的AI科幻设定起码是能复制的.哪怕要跟人类灵魂一样从头培养的AI,培养好了也能复制.SAO不就是能复制的.
+
+ ...</blockquote>
+SAO本质也是不能复制的，复制后发现被复制的话就会灵魂崩坏。
+
+Sisters系列是自律型AI所以可能培养过程中会黑箱化导致无法复制吧。
+
+
+-----
+
+####  seelestil  
+##### 875#       发表于 2021-5-4 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51141414&amp;ptid=1982987" target="_blank">oyss 发表于 2021-5-4 12:44</a>
+一般的AI科幻设定起码是能复制的.哪怕要跟人类灵魂一样从头培养的AI,培养好了也能复制.SAO不就是能复制的.
+
+ ...</blockquote>
+这里是转移都会出问题吧，ai和载体是强绑定的
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  LeonsCat  
+##### 876#       发表于 2021-5-4 13:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51141414&amp;ptid=1982987" target="_blank">oyss 发表于 2021-5-4 12:44</a>
+
+一般的AI科幻设定起码是能复制的.哪怕要跟人类灵魂一样从头培养的AI,培养好了也能复制.SAO不就是能复制的.
+
+ ...</blockquote>
+SAO里可以复制，但是没有物理隔离下局域网内只能有一个AI复制体运行，同时跑两个会崩坏。
+
+
+-----
+
+####  shadow001  
+##### 877#       发表于 2021-5-4 14:02
+
+
+ 本帖最后由 shadow001 于 2021-5-4 14:04 编辑 
+
+SAO中稱得上AI的只有結衣和悠那吧，她倆應該是能複製備份的
+
+而UW那堆根本不是AI
+
+
+-----
+
+####  LeonsCat  
+##### 878#       发表于 2021-5-4 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51141949&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-4 14:02</a>
+
+SAO中稱得上AI的只有結衣和悠那吧，她倆應該是能複製備份的
+
+而UW那堆根本不是AI ...</blockquote>
+top down 和 bottom up，两种思路，不能说爱丽丝他们这种元胞自动机不算。
+
+
+-----
+
+####  shadow001  
+##### 879#       发表于 2021-5-4 14:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51142008&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-4 14:12</a>
+
+top down 和 bottom up，两种思路，不能说爱丽丝他们这种元胞自动机不算。</blockquote>
+愛麗絲那種本質就是人類靈魂
+
+你總不能在實驗室做了個人出來就說他是AI吧
+
+
+-----
+
+####  LeonsCat  
+##### 880#       发表于 2021-5-4 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51142037&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-4 14:16</a>
+
+愛麗絲那種本質就是人類靈魂
+
+你總不能在實驗室做了個人出來就說他是AI吧 ...</blockquote>
+额，我对SAO系列的理解还是建立在，川原是有意识的在讨论人到底是由肉体存在定义，还是由其社会属性定义，并且个人支持、也是个人认为川原自己认同的是社会属性定义。那么从几乎完全剥离现实人类社会逻辑而发展出来的UW所定义的社会属性，个人观点比起自然人更类似AI。
+
+
+-----
+
+####  pokemon最爱  
+##### 881#       发表于 2021-5-4 15:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51141949&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-4 14:02</a>
+
+SAO中稱得上AI的只有結衣和悠那吧，她倆應該是能複製備份的
+
+而UW那堆根本不是AI ...</blockquote>
+人工FL姑且也是定义为AI。实际上爱丽丝也有挥手就把收到的信息发送给打印机打印出来的迷之表现。
+
+以及结衣和悠那也有单一性问题，结衣表示过不敢想象要是在自己不知情的情况下备份数据启动会发生什么，悠那这边黑悠那在OS事件后被并行运用时AI本身也接近崩溃是白悠那的残留数据在给她修BUG让她没崩坏。
+
+
+-----
+
+####  a12885084  
+##### 882#       发表于 2021-5-4 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51141813&amp;ptid=1982987" target="_blank">seelestil 发表于 2021-5-4 13:39</a>
+ 这里是转移都会出问题吧，ai和载体是强绑定的  —— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版  ...</blockquote>
+熊不就转移过好几次
+能转移不能复制就有点奇怪
+
+和载体绑定这点，载体的范围在哪里呢？一开始我以为是部分载体，比如可能是大脑或者哪里有个核心，除了这部分外其余的载体可以随便更换（胳膊之类的）。但是格蕾丝又说和巨浮岛所有AI连接在一起，不整体转移无法转移格蕾丝。那么所有AI/机器都承担了格蕾丝的意识。这我觉得有点微妙
+
+
+-----
+
+####  アルメリア  
+##### 883#       发表于 2021-5-4 18:03
+
+
+ 本帖最后由 アルメリア 于 2021-5-4 18:13 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">道理我都懂 但是核心为啥要露半个身体在外面阿
+
+
+-----
+
+####  アルメリア  
+##### 884#       发表于 2021-5-4 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131904&amp;ptid=1982987" target="_blank">shimmy1996 发表于 2021-5-3 09:12</a>
+
+想想还有grace和博士重逢假扮失忆那里，可塑性记忆风评被害XDD
+
+这几个故事每个点子都很有趣，期待接 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">全他妈老梗你跟我说新颖
+
+
+-----
+
+####  shudushimo  
+##### 885#       发表于 2021-5-4 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51143405&amp;ptid=1982987" target="_blank">アルメリア 发表于 2021-5-4 18:09</a>
+
+全他妈老梗你跟我说新颖</blockquote>
+这几集剧情确实太老套了，但打斗分镜不错，让我们猜猜后面有没有超展开<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梦诗歌雪  
+##### 886#       发表于 2021-5-4 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51143405&amp;ptid=1982987" target="_blank">アルメリア 发表于 2021-5-4 18:09</a>
+
+全他妈老梗你跟我说新颖</blockquote>
+害，看看批站评论区还有热评说第四集升华第六集封神呢（然后群众纷纷询问大佬在哪里看的第六集）
+
+
+在部分观众看来这样的剧情确实是很新颖很打动人心啦<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gofbayrf  
+##### 887#       发表于 2021-5-4 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51143371&amp;ptid=1982987" target="_blank">アルメリア 发表于 2021-5-4 18:03</a>
+
+道理我都懂 但是核心为啥要露半个身体在外面阿</blockquote>
+不露出來怎麼一拳打爆 要是改裝成足球場那麽大的超級電腦就要用軍火炸了
+
+
+-----
+
+####  oyss  
+##### 888#       发表于 2021-5-4 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51142037&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-4 14:16</a>
+
+愛麗絲那種本質就是人類靈魂
+
+你總不能在實驗室做了個人出來就說他是AI吧 ...</blockquote>
+这就是两类AI,一种是靠学习的,一种是直接模拟人脑的.
+
+
+石头门里不也是有第二种.这算很常见的设定,基本都叫AI.两个发展方向而已.
+
+而且第二种的人权明显比第一种还高一点.基本各个作品里都正派都把这种AI直接当活人了.
+
+
+-----
+
+####  shadow001  
+##### 889#       发表于 2021-5-4 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51143703&amp;ptid=1982987" target="_blank">oyss 发表于 2021-5-4 19:04</a>
+
+这就是两类AI,一种是靠学习的,一种是直接模拟人脑的.
+
+
+石头门里不也是有第二种.这算很常见的设定,基本都 ...</blockquote>
+我覺得SAO應該算是第3種,就是人腦
+
+SAO中設定是FL=靈魂,即使經過修改複製,本質還是靈魂,我是不把這當成AI
+
+
+-----
+
+####  selain.meneth  
+##### 890#       发表于 2021-5-4 21:04
+
+
+https://b23.tv/F5smRp
+
+做了个vivy的amv
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Boliva| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  pokemon最爱  
+##### 891#       发表于 2021-5-4 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51143817&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-4 19:24</a>
+
+我覺得SAO應該算是第3種,就是人腦
+
+SAO中設定是FL=靈魂,即使經過修改複製,本質還是靈魂,我是不把這當成AI ...</blockquote>
+Light Cube和人脑物理架构上还是不完全一致的。
+
+因此装在Light Cube中的FL和人脑中的FL架构也不是完全一致的，纠错能力上人脑要强的多。
+
+
+-----
+
+####  advancedigger  
+##### 892#       发表于 2021-5-4 23:45
+
+
+part B的演出不好看吗，只要钱都用在刀刃上就可以力大砖飞啊，为什么还要捉着漏洞百出明显是糊弄的设定不放<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  近距离作战  
+##### 893#       发表于 2021-5-5 00:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">看了这个就越发为beatless可惜了
+
+
+-----
+
+####  oyss  
+##### 894#       发表于 2021-5-5 00:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51143817&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-4 19:24</a>
+
+我覺得SAO應該算是第3種,就是人腦
+
+SAO中設定是FL=靈魂,即使經過修改複製,本質還是靈魂,我是不把這當成AI ...</blockquote>
+當然,幾乎所有這類作品的作者的意圖都是這個等於靈魂的,哪怕作品中不給明確結論,也能看出明顯傾向於這邊.
+
+
+目前還沒見過什麼反AI的作品.
+
+
+但是,這東西是不是靈魂基本就是作品要探討的過程,甚至包括不給明確結論要讀者自己思考的作品.所以如果你起手下定義這個就等於靈魂,那就跳過了作品要探討的內容,直接進入大結局或者把開放結局給定死.
+
+
+-----
+
+####  黄字  
+##### 895#       发表于 2021-5-5 00:54
+
+
+每次看到这种水平的作品的讨论都要感慨人与人的科学和阅读素养差太多了。。。
+
+
+-----
+
+####  reficul  
+##### 896#       发表于 2021-5-5 01:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51141813&amp;ptid=1982987" target="_blank">seelestil 发表于 2021-5-4 13:39</a>
+
+这里是转移都会出问题吧，ai和载体是强绑定的
+
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版  ...</blockquote>
+这里转移应该没有问题，博士本来就想回收AI会转移到目前家里这一台格蕾丝上，至少是可行的
+
+
+-----
+
+####  shadow001  
+##### 897#       发表于 2021-5-5 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51146372&amp;ptid=1982987" target="_blank">oyss 发表于 2021-5-5 00:52</a>
+
+當然,幾乎所有這類作品的作者的意圖都是這個等於靈魂的,哪怕作品中不給明確結論,也能看出明顯傾向於這邊.
+
+ ...</blockquote>
+SAO應該沒甚麼爭議吧,作中都明確說了FL=靈魂
+
+
+-----
+
+####  nicholas30  
+##### 898#       发表于 2021-5-5 10:18
+
+
+這話後半的戰鬥像macross一樣，有點燃<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+既然使命可以被人爲改寫，出現能自我改寫使命的AI也不稀奇嘛
+
+能否完成自我進化也是體現AI技術的重要一點
+
+
+-----
+
+####  Tehebe  
+##### 899#       发表于 2021-5-5 11:07
+
+
+歌姬好不容易认同了vv这个身份就一手红一手蓝，要我说还不如天天就去唱op呢，反正一开始的使命也只是唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dag8  
+##### 900#       发表于 2021-5-7 00:08
+
+
+这既视感，也是最后在教堂，同一句台词，我的优子<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/07/000726ha6z25qa0d56zmmg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210507000605.png</strong> (152.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 00:07 上传
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 901#       发表于 2021-5-7 08:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">听了广播最大感想是福山潤原来这么能讲的吗（
+種崎本音超好听，配的隔壁链接クロエ那种downer系角色太棒了<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+                   

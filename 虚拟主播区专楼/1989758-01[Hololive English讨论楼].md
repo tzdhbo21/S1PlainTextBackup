@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-04 22:42** 
+> ## **本文件最后更新于2021-05-07 01:37** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_gkb6N" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_nrq5w" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -8599,6 +8599,21 @@ Reddit作图真快
 2021-5-5 06:04 上传
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|欢乐多|
+
+
+查看全部评分
+
+
 -----
 
 ####  smy20011  
@@ -8645,4 +8660,585 @@ Reddit作图真快
 这新歌和声好赞啊
 
 
-                               
+-----
+
+####  wiig  
+##### 543#       发表于 2021-5-5 10:36
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/103612x19qqd2dnkpkwrl8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (97.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 10:36 上传
+
+
+-----
+
+####  帆乃花  
+##### 544#       发表于 2021-5-5 11:20
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/112048e3p1pkzr3lgzuh3k.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (162.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 11:20 上传
+
+
+-----
+
+####  wiig  
+##### 545#       发表于 2021-5-5 11:28
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/112856p7tbyc5bp585fq5y.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (309.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-5 11:28 上传
+
+
+-----
+
+####  PureIllusion  
+##### 546#       发表于 2021-5-5 12:26
+
+
+突发EN COLLAB
+
+
+-----
+
+####  smy20011  
+##### 547#         楼主| 发表于 2021-5-5 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51148991&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-5-5 12:26</a>
+
+突发EN COLLAB</blockquote>
+一群少女，为了登上太空的梦想，付出了生命。
+
+
+-----
+
+####  colodes  
+##### 548#       发表于 2021-5-5 12:41
+
+
+ 本帖最后由 colodes 于 2021-5-5 12:46 编辑 
+
+水冻住了，calli rip
+
+
+​Rocket science is tough
+
+
+-----
+
+####  smy20011  
+##### 549#         楼主| 发表于 2021-5-5 13:00
+
+
+可能这就是为什么人们喜欢holoen吧，一群开心的女生打打闹闹
+
+
+-----
+
+####  PureIllusion  
+##### 550#       发表于 2021-5-5 13:27
+
+
+ 本帖最后由 PureIllusion 于 2021-5-5 14:14 编辑 
+
+[https://twitter.com/Anonamos_701/status/1389782172689526784](https://twitter.com/Anonamos_701/status/1389782172689526784)
+<img src="https://p.sda1.dev/1/521b1bcbe5c7d940fe7f4394b20b466c/Anonamos_701-1389782172689526784-20210505_112105-img1.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/onidrills/status/1389805431518863366](https://twitter.com/onidrills/status/1389805431518863366)
+<img src="https://p.sda1.dev/1/e637a74e81212236a5aa31b884547734/onidrills-1389805431518863366-20210505_125330-img1.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/TororoRose/status/1389825089118539783](https://twitter.com/TororoRose/status/1389825089118539783)
+<img src="https://p.sda1.dev/1/23ca6a5a95a15ec2cf1a9774f25d0215/TororoRose-1389825089118539783-20210505_141137-img1.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 551#       发表于 2021-5-5 13:42
+
+
+<img src="https://p.sda1.dev/1/bb0d2bde6b87f08a1915b9386e6c5df0/IMG_CMP_94980470.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 552#       发表于 2021-5-5 14:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51149487&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-5-5 13:27</a>
+https://twitter.com/Anonamos_701/status/1389782172689526784</blockquote>
+升天（非物理）
+
+
+-----
+
+####  wiig  
+##### 553#       发表于 2021-5-5 14:23
+
+
+ 本帖最后由 wiig 于 2021-5-5 14:25 编辑 
+
+<img src="https://p.sda1.dev/1/bfb87d32b83dbb4e9708ff0eb1ac0bc4/20210505_142331.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/3c14c56b623422967dfde5a6eb991c15/IMG_CMP_166758304.jpeg" referrerpolicy="no-referrer">
+She's one with the stars now
+o7
+
+
+-----
+
+####  PureIllusion  
+##### 554#       发表于 2021-5-5 15:04
+
+
+ 本帖最后由 PureIllusion 于 2021-5-5 15:07 编辑 
+
+旧标题：【MINECRAFT】make it all go boom
+
+新标题：【MINECRAFT】make it all go boom (with friends)
+
+
+从上次 [https://youtu.be/Ds-7Ibf381Y?t=8409](https://youtu.be/Ds-7Ibf381Y?t=8409)
+
+到现在 [https://youtu.be/95EaRULYLGw?t=17471](https://youtu.be/95EaRULYLGw?t=17471)
+
+哭了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|friends代|
+
+
+查看全部评分
+
+
+-----
+
+####  某穆克拉  
+##### 555#       发表于 2021-5-6 03:59
+
+
+ina怎么开播前1小时一点sc都没有，是跟粉丝达成了什么协议吗？
+
+
+-----
+
+####  wiig  
+##### 556#       发表于 2021-5-6 05:37
+
+
+ 本帖最后由 wiig 于 2021-5-6 05:50 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/053723tvhfj4fthvvbz80c.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (418.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 05:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/054038fjfmvssy9dsm5t5d.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (397.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 05:40 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/054617t8fnv0omctq8ni00.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (393.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 05:46 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/055008daqt9lwebaglx9iw.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (392.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 05:50 上传
+
+
+-----
+
+####  smy20011  
+##### 557#         楼主| 发表于 2021-5-6 05:40
+
+
+眼镜ina不错，不过ina真是平（
+
+
+-----
+
+####  smy20011  
+##### 558#         楼主| 发表于 2021-5-6 05:50
+
+
+AO酱 X
+
+AOpad O
+
+
+-----
+
+####  wiig  
+##### 559#       发表于 2021-5-6 05:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51154830&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-6 05:40</a>
+
+眼镜ina不错，不过ina真是平（</blockquote>
+和AOpad一样平
+
+
+-----
+
+####  smy20011  
+##### 560#         楼主| 发表于 2021-5-6 05:53
+
+
+ 本帖最后由 smy20011 于 2021-5-6 05:55 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/055350qtizyh8h4pixddyz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1620251562014.jpg</strong> (328.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 05:53 上传
+
+
+4chan你够了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 561#       发表于 2021-5-6 06:09
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/060914gm4rb4mmx7n31836.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (63.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 06:09 上传
+
+
+-----
+
+####  wiig  
+##### 562#       发表于 2021-5-6 07:29
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/072900fkjxwdhki3xw3ndh.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (100.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 07:29 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">cute
+
+
+-----
+
+####  lanslort  
+##### 563#       发表于 2021-5-6 08:00
+
+
+新衣服好好看
+
+
+-----
+
+####  wiig  
+##### 564#       发表于 2021-5-6 14:57
+
+
+unity<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/028a8804a70161423732d7e8f11f6703/IMG_CMP_193931222.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/603f46cafc09bf1a0540ef61dae3fe38/IMG_CMP_266201056.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 565#       发表于 2021-5-6 15:15
+
+
+ 本帖最后由 wiig 于 2021-5-6 15:37 编辑 
+
+<img src="https://p.sda1.dev/1/a770d5a629ed6198b53fd85cd90838e9/IMG_CMP_210853014.jpeg" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/06/153720nukyakukl4h3hh4y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210506153620.jpg</strong> (33.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:37 上传
+
+
+-----
+
+####  wiig  
+##### 566#       发表于 2021-5-6 15:18
+
+
+<img src="https://p.sda1.dev/1/53b8c5adfdb0f9c2beb74c3f9fcf7a19/IMG_CMP_58738884.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 567#       发表于 2021-5-6 15:38
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/153804f7gizjz9gol6ojl6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210506153632.jpg</strong> (91.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/153802d2pt2hh3yt5nhyks.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210506153638.jpg</strong> (92.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/153804vk5qh9qh1q575555.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210506153642.jpg</strong> (101.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/153804rsv55vfd5jd9x9jm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210506153645.jpg</strong> (93.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/153802e6ttk96jks1g4r14.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210506153648.jpg</strong> (102.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/153802mcbepte7gjak2ktk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210506153650.jpg</strong> (117.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 15:38 上传
+
+
+-----
+
+####  smy20011  
+##### 568#         楼主| 发表于 2021-5-6 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51159547&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-6 15:38</a></blockquote>
+超甜！
+
+
+-----
+
+####  smy20011  
+##### 569#         楼主| 发表于 2021-5-7 08:50
+
+
+新衣好看！都没来得及repo
+
+
+-----
+
+####  wiig  
+##### 570#       发表于 2021-5-7 08:51
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/085128kdgzgz2q33z9gn91.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (59.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 08:51 上传
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 571#       发表于 2021-5-7 08:57
+
+
+咋说呢，不是我双标，但同样的简单常服，senzawa就是合适，蛋糕姬就显得素
+
+希望下次火鸡整个花俏点的，好这口<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 572#       发表于 2021-5-7 09:06
+
+
+cute<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 573#         楼主| 发表于 2021-5-7 09:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51166118&amp;ptid=1989758" target="_blank">シナモンロール 发表于 2021-5-7 08:57</a>
+
+咋说呢，不是我双标，但同样的简单常服，senzawa就是合适，蛋糕姬就显得素
+
+
+希望下次火鸡整个花俏点的，好 ...</blockquote>
+这次整个EN是按照日常服装的概念出的新意吧
+
+
+-----
+
+####  PureIllusion  
+##### 574#       发表于 2021-5-7 09:19
+
+
+Nacho LOVE!
+
+Rigger HATE!
+
+
+-----
+
+####  wiig  
+##### 575#       发表于 2021-5-7 09:28
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/092848ss2518yvrtzl4hr2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (30.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 09:28 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 576#       发表于 2021-5-7 09:31
+
+
+<img src="https://p.sda1.dev/1/471d8f3d29ac4a774df735dced5f3023/IMG_CMP_53287128.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 577#         楼主| 发表于 2021-5-7 09:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51166334&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-5-7 09:19</a>
+
+Nacho LOVE!
+
+Rigger HATE!</blockquote>
+看爸爸那边也没那么多bug，感觉是鲨鱼自己出问题了（
+
+
+                              
