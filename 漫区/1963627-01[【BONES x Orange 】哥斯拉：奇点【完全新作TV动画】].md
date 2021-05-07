@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-06 10:49** 
+> ## **本文件最后更新于2021-05-07 07:02** 
 
 
 
@@ -3038,7 +3038,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_yXANh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_UMYoq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -6457,4 +6457,381 @@ OP终于发了!!!!
 —— 来自 OPPO PDPT00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                
+-----
+
+####  teecoo00  
+##### 514#       发表于 2021-5-6 20:28
+
+
+ 本帖最后由 teecoo00 于 2021-5-6 20:34 编辑 
+
+OP的完整版MV出了，看样子应该都做完了，还做了个完整版的MV<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+[https://www.bilibili.com/video/B ... 8148206826655762596](https://www.bilibili.com/video/BV1NV411E7vW?from=search&amp;seid=8148206826655762596)
+
+
+-----
+
+####  夜颠覆  
+##### 515#       发表于 2021-5-6 20:44
+
+
+ 本帖最后由 夜颠覆 于 2021-5-6 20:46 编辑 
+
+这OP完整版的动画剪辑做的还挺炫的，后期的战斗场面剪了不少进来，看来确实可能早就做完了
+
+MV里这幕真的有些杰格单骑闯关的感觉
+
+<img src="https://img.saraba1st.com/forum/202105/06/203942dq22qh33sscp9se9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210506203347657.jpg</strong> (34.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 20:39 上传
+
+
+这蝴蝶（？）我记得PV里也有人截图过停在杰格的手上，不会真的魔斯拉吧
+
+<img src="https://img.saraba1st.com/forum/202105/06/204123zk4kf3x1s92vz498.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210506170505079.jpg</strong> (46.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 20:41 上传
+
+
+宛如恶役的杰格
+
+<img src="https://img.saraba1st.com/forum/202105/06/204245luddtlsrjji2zgh2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210506170548930.jpg</strong> (30.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 20:42 上传
+
+
+MV里的哥总还是可以的，摄影真的辛苦了，希望正片也能好看些
+
+<img src="https://img.saraba1st.com/forum/202105/06/204414r1obc7hz7roo9ibi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210506203701764.jpg</strong> (26.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 20:44 上传
+
+
+-----
+
+####  断翼  
+##### 516#       发表于 2021-5-6 21:20
+
+
+<blockquote>夜颠覆 发表于 2021-5-6 20:44
+这OP完整版的动画剪辑做的还挺炫的，后期的战斗场面剪了不少进来，看来确实可能早就做完了
+
+MV里这幕真的有 ...</blockquote>
+不知建模组怎么操作的，奇点哥被建成地包天
+
+
+-----
+
+####  有妹是老婆  
+##### 517#       发表于 2021-5-6 22:35
+
+
+目前位置感觉太慢热了，不是很好看，而且里面的ai真的黑科技，又这ai还怕什么怪兽。。。
+
+
+-----
+
+####  klmmmx  
+##### 518#       发表于 2021-5-6 23:06
+
+
+腾讯都更新了……不想买会员，等吧。说起来就12集诶，现在哥斯拉都还没登场吗
+
+
+-----
+
+####  我特么吹爆  
+##### 519#       发表于 2021-5-6 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51163951&amp;ptid=1963627" target="_blank">klmmmx 发表于 2021-5-6 23:06</a>
+腾讯都更新了……不想买会员，等吧。说起来就12集诶，现在哥斯拉都还没登场吗 ...</blockquote>
+腾讯第六集正式登场，不再藏着掖着了，直接出来了
+
+
+-----
+
+####  teecoo00  
+##### 520#       发表于 2021-5-6 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51163951&amp;ptid=1963627" target="_blank">klmmmx 发表于 2021-5-6 23:06</a>
+
+腾讯都更新了……不想买会员，等吧。说起来就12集诶，现在哥斯拉都还没登场吗 ...</blockquote>
+13集
+
+
+-----
+
+####  Benetyrant  
+##### 521#       发表于 2021-5-6 23:29
+
+
+以为字幕组今天不会更新，试了各种插件看腾讯卡的一笔，忍不了了充了腾讯一个月会员。看完一看字幕组更了，小丑竟是我自己<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">。
+
+
+-----
+
+####  YF30  
+##### 522#       发表于 2021-5-6 23:36
+
+
+<blockquote>klmmmx 发表于 2021-5-6 23:06
+腾讯都更新了……不想买会员，等吧。说起来就12集诶，现在哥斯拉都还没登场吗 ...</blockquote>
+鱼形的哥总已经出现了
+
+
+-----
+
+####  mumubear  
+##### 523#       发表于 2021-5-7 00:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51162621&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-5-6 20:44</a>
+
+这OP完整版的动画剪辑做的还挺炫的，后期的战斗场面剪了不少进来，看来确实可能早就做完了
+
+MV里这幕真的有 ...</blockquote>
+道理我都懂，这喷气杰格拿了把刀怎么那么猛，砍翼龙如切瓜。。。<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夜颠覆  
+##### 524#       发表于 2021-5-7 00:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51163951&amp;ptid=1963627" target="_blank">klmmmx 发表于 2021-5-6 23:06</a>
+
+腾讯都更新了……不想买会员，等吧。说起来就12集诶，现在哥斯拉都还没登场吗 ...</blockquote>
+第六集水中形态，第七集登陆第二形态，正式形态应该快了
+
+
+-----
+
+####  夜颠覆  
+##### 525#       发表于 2021-5-7 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51164476&amp;ptid=1963627" target="_blank">mumubear 发表于 2021-5-7 00:09</a>
+
+道理我都懂，这喷气杰格拿了把刀怎么那么猛，砍翼龙如切瓜。。。</blockquote>
+一刀一个拉顿，量产拉顿是真的惨
+
+
+-----
+
+####  Lokay  
+##### 526#       发表于 2021-5-7 01:28
+
+
+BB这集扔下去的炸弹缩写是OD，但全名叫Orthogonal Diagonalizer，不是氧气毁灭者啦(虽然不知道中文要怎么翻译，日语中文是直交对角化?)。
+上集手稿笔记里有出现这单词的，是苇原理论中原型13种形态的第13种，可以像触媒一样运作使其他原型发生变质。BB做的那个还是试作型，失败了。
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  shudushimo  
+##### 527#       发表于 2021-5-7 01:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51164160&amp;ptid=1963627" target="_blank">Benetyrant 发表于 2021-5-6 23:29</a>
+
+以为字幕组今天不会更新，试了各种插件看腾讯卡的一笔，忍不了了充了腾讯一个月会员。看完一看字幕组更了， ...</blockquote>
+出来了吗？我看星空的还没出啊
+
+
+-----
+
+####  klmmmx  
+##### 528#       发表于 2021-5-7 08:07
+
+
+<blockquote>Benetyrant 发表于 2021-5-6 23:29
+以为字幕组今天不会更新，试了各种插件看腾讯卡的一笔，忍不了了充了腾讯一个月会员。看完一看字幕组更了， ...</blockquote>
+在哪更的啊，我看蜜柑和爱恋上都没有啊
+
+
+-----
+
+####  Benetyrant  
+##### 529#       发表于 2021-5-7 08:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165731&amp;ptid=1963627" target="_blank">klmmmx 发表于 2021-5-7 08:07</a>
+
+在哪更的啊，我看蜜柑和爱恋上都没有啊</blockquote>
+我在agefans看的，感觉应该是直接用的tx的源
+
+
+-----
+
+####  shudushimo  
+##### 530#       发表于 2021-5-7 10:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165818&amp;ptid=1963627" target="_blank">Benetyrant 发表于 2021-5-7 08:22</a>
+
+我在agefans看的，感觉应该是直接用的tx的源</blockquote>
+我看age只有第五集啊
+
+
+-----
+
+####  Benetyrant  
+##### 531#       发表于 2021-5-7 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51166871&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-7 10:09</a>
+
+我看age只有第五集啊</blockquote>
+点开播放列表2<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  冰箱研会长  
+##### 532#       发表于 2021-5-7 10:20
+
+
+摄影光速辞职
+
+
+-----
+
+####  Cloudslin  
+##### 533#       发表于 2021-5-7 10:57
+
+
+船的建模属实有点拉，搭眼一看还以为是架空的，不过因为船型舷号和现实对的上还是姑且一说
+
+第二护卫队群：护六支队雾岛舰，照月舰；护二支队朝日舰
+<img src="https://wx1.sinaimg.cn/mw2000/006wQFVGly1gq9o902zyjj30zk0k0acp.jpg" referrerpolicy="no-referrer">
+
+另外前几集的那艘弗吉尼亚看起来确实是无了
+
+
+-----
+
+####  什伐赤  
+##### 534#       发表于 2021-5-7 11:11
+
+
+第5话还是在沿海，第6话已经能在内陆地区看到拉顿了
+
+
+-----
+
+####  nuoer  
+##### 535#       发表于 2021-5-7 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51164476&amp;ptid=1963627" target="_blank">mumubear 发表于 2021-5-7 00:09</a>
+道理我都懂，这喷气杰格拿了把刀怎么那么猛，砍翼龙如切瓜。。。</blockquote>
+这刀能切断手臂粗的钢索，切拉顿还不是跟切菜一样<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  什伐赤  
+##### 536#       发表于 2021-5-7 11:47
+
+
+话说这个形状好像是哪家企业还是音乐厂牌的标志，有大佬说一下吗？
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/114714zbl6kn76d4n7nyza.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (122.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 11:47 上传
+
+
+-----
+
+####  saturnus  
+##### 537#       发表于 2021-5-7 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168043&amp;ptid=1963627" target="_blank">什伐赤 发表于 2021-5-7 11:47</a>
+话说这个形状好像是哪家企业还是音乐厂牌的标志，有大佬说一下吗？</blockquote>
+广发<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Movenchy  
+##### 538#       发表于 2021-5-7 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168043&amp;ptid=1963627" target="_blank">什伐赤 发表于 2021-5-7 11:47</a>
+
+话说这个形状好像是哪家企业还是音乐厂牌的标志，有大佬说一下吗？</blockquote>
+应该是来自Most Addictive这个厂牌
+
+
+-----
+
+####  KOPKOM  
+##### 539#       发表于 2021-5-7 12:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168043&amp;ptid=1963627" target="_blank">什伐赤 发表于 2021-5-7 11:47</a>
+话说这个形状好像是哪家企业还是音乐厂牌的标志，有大佬说一下吗？</blockquote>
+google drive
+
+
+-----
+
+####  Eubel  
+##### 540#       发表于 2021-5-7 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165019&amp;ptid=1963627" target="_blank">Lokay 发表于 2021-5-7 01:28</a>
+
+BB这集扔下去的炸弹缩写是OD，但全名叫Orthogonal Diagonalizer，不是氧气毁灭者啦(虽然不知道中文要怎么翻 ...</blockquote>
+这不是矩阵的东西么23333。
+
+
+
+
+-----
+
+####  teecoo00  
+##### 541#       发表于 2021-5-7 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51164476&amp;ptid=1963627" target="_blank">mumubear 发表于 2021-5-7 00:09</a>
+
+道理我都懂，这喷气杰格拿了把刀怎么那么猛，砍翼龙如切瓜。。。</blockquote>
+毕竟是安叔的角
+
+
+                               
