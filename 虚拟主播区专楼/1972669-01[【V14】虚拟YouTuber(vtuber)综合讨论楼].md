@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-07 11:50** 
+> ## **本文件最后更新于2021-05-08 13:52** 
 
 
 
@@ -7838,4 +7838,423 @@ iwaiwa润了gamers那几个有啥表示吗？
 友情提示：king上个月已经被牛郎掀翻了
 
 
-                              
+-----
+
+####  超能力者stven  
+##### 582#       发表于 2021-5-7 19:52
+
+
+king又不一定非要指葛
+
+
+-----
+
+####  winda  
+##### 583#       发表于 2021-5-7 20:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">king今天jup邀请赛又当成主人公了
+
+
+-----
+
+####  winda  
+##### 584#       发表于 2021-5-7 22:44
+
+
+king这valo赢了后赛后团建ow一次还没赢过，快输到神志不清了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 585#       发表于 2021-5-7 23:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">ickr更新了二创条款了，没术许可和游戏公司许可不能开收益剪歌回和游戏切片
+
+虹真的要半年了
+
+
+-----
+
+####  alcoholic1000  
+##### 586#       发表于 2021-5-8 02:34
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/023334ftv2l2mt2n0mgarg.png" referrerpolicy="no-referrer">
+
+
+<strong>#にじさんじ世界大戦.png</strong> (340.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 02:33 上传
+
+
+不安
+
+
+-----
+
+####  シナモンロール  
+##### 587#       发表于 2021-5-8 07:20
+
+
+ame这是好活啊
+
+可能下半身尤其是丝袜属实不太行，但整体常用部分小细节还是有的，包包和baba也很可爱
+
+
+夏**oingboing模式好评如潮，本来差分普通现在也好起来了
+
+
+这种不用负责任也可以完全发挥极限战斗力生生拖到下山的小程序建议社内推广技术革命，宝可梦主题suki，现场改游戏规则troll观众suki，观众虐suki，以后应该设个时限这样不会被疯狂spam
+
+
+托腮真够可爱的，好久没这么萌动了
+
+
+所以这就是暗探吗我可以交钱申请成为监视对象吗球球了球球了 <img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|比上次好懂了|
+
+
+查看全部评分
+
+
+-----
+
+####  IDIDIDID  
+##### 588#       发表于 2021-5-8 13:51
+
+
+一线池面虹男少个社长是怎么回事
+
+
+-----
+
+####  hulaoda007  
+##### 589#       发表于 2021-5-8 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51176111&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-5-8 02:34</a>
+不安</blockquote>
+  不看好...也觉得选材就不好...
+
+
+-----
+
+####  free  
+##### 590#       发表于 2021-5-8 16:27
+
+
+[https://www.youtube.com/watch?v=4YBjrpWUQSs](https://www.youtube.com/watch?v=4YBjrpWUQSs)
+
+明けない夜のリリィ covered by CIEL
+
+
+-----
+
+####  rzrbtk  
+##### 591#       发表于 2021-5-8 16:49
+
+
+可以开始竞猜大战结束后哪个虹男会被叩最惨了...
+
+省一楼，郡道难得搞了正经能用asmr，好！【冷戦状態の夫の前で堂々と電話で他の男とデートの約束する妻】这一部分格外好！
+
+
+-----
+
+####  SuntoryNomu  
+##### 592#       发表于 2021-5-8 17:20
+
+
+<blockquote>鈴原るる🎨 @lulu_suzuhara
+
+本日は！！！
+
+
+22時よりッ！！！！
+
+一年ぶりのッ！！
+
+【新衣装&amp;可動域追加】お披露目配信です！！！！！
+
+⚠3.0ではないです！
+
+
+お披露目どきどきわくわくさん！
+
+色々盛りだくさんだ！
+
+
+ぜひアソビニキテネッ！！</blockquote>
+[https://www.youtube.com/watch?v=_lI1Bw6iufY](https://www.youtube.com/watch?v=_lI1Bw6iufY)
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/171954gykzyulvyrykklkc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>hqdefault.jpg</strong> (42.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 17:19 上传
+
+
+-----
+
+####  free  
+##### 593#       发表于 2021-5-8 18:34
+
+
+[https://www.youtube.com/watch?v=E2u2kaegy5s](https://www.youtube.com/watch?v=E2u2kaegy5s)
+
+幸祜 -koko-　STREAMING COVER LIVE 「あられライブ」
+
+
+正式开始应该是7点
+
+
+-----
+
+####  alcoholic1000  
+##### 594#       发表于 2021-5-8 21:09
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-8 21:39 编辑 
+
+还真是3.0了，ickr总算办了点人事儿
+
+
+篠田麻里子？！
+
+<img src="https://img.saraba1st.com/forum/202105/08/212407b6eft6fjjbgmzjue.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目＆可動域追加】さらにさらに動くｯ・・・・・！！【鈴原るる:にじさ.png</strong> (245.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 21:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/212807m7a0ia7rbil0luqw.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目＆可動域追加】さらにさらに動くｯ・・・・・！！【鈴原るる:にじさ.png</strong> (237.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 21:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/213913l544jk0ettz3t751.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目＆可動域追加】さらにさらに動くｯ・・・・・！！【鈴原るる:にじさ.png</strong> (228.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 21:39 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/213917vur58uzx3mg4gxa3.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目＆可動域追加】さらにさらに動くｯ・・・・・！！【鈴原るる:にじさ.png</strong> (254.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 21:39 上传
+
+
+[https://www.youtube.com/watch?v=_lI1Bw6iufY](https://www.youtube.com/watch?v=_lI1Bw6iufY)
+
+
+-----
+
+####  Ketestrait  
+##### 595#       发表于 2021-5-8 21:15
+
+
+新衣直升3.0
+
+
+-----
+
+####  Ketestrait  
+##### 596#       发表于 2021-5-8 21:22
+
+
+这就是さいね妈心目中的gamer形象吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 597#       发表于 2021-5-8 21:25
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-8 21:48 编辑 
+
+你圈为什么这么喜欢喜欢衣服穿一半路肩，前前后后看到十几个了。
+
+
+-----
+
+####  空集  
+##### 598#       发表于 2021-5-8 21:25
+
+
+我觉得头要说还行 但是头和上半身衔接太怪了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  JhIenog  
+##### 599#       发表于 2021-5-8 21:26
+
+
+这gamer大外套略微妙啊
+
+
+-----
+
+####  暴走的包子  
+##### 600#       发表于 2021-5-8 21:33
+
+
+ 本帖最后由 暴走的包子 于 2021-5-8 21:34 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">胸变小了感觉，哦外套脱了还好
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  winda  
+##### 601#       发表于 2021-5-8 21:34
+
+
+ 本帖最后由 winda 于 2021-5-8 21:36 编辑 
+
+要素太杂太多了，不行
+syl 
+bora,mondo,selly刚在自定义聊天栏用韩语对话，三个jp所属kr人太艹
+
+
+-----
+
+####  死体残留  
+##### 602#       发表于 2021-5-8 21:40
+
+
+这外套双马尾也太像苏姐了
+
+
+-----
+
+####  alcoholic1000  
+##### 603#       发表于 2021-5-8 21:40
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-8 21:43 编辑 
+
+可恶，好可爱，好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/08/214321fsze99z8ec9881s4.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目＆可動域追加】さらにさらに動くｯ・・・・・！！【鈴原るる:にじさ.png</strong> (257.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 21:43 上传
+
+
+短发&gt;双马尾但是都好好看
+
+
+-----
+
+####  dybang  
+##### 604#       发表于 2021-5-8 21:40
+
+
+排面<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lhawp  
+##### 605#       发表于 2021-5-8 21:43
+
+
+这一套皮顶别人三套了吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  s32244153  
+##### 606#       发表于 2021-5-8 21:43
+
+
+这一套是直接四季全包吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  icecry  
+##### 607#       发表于 2021-5-8 21:46
+
+
+感觉变年幼了
+
+
+-----
+
+####  rzrbtk  
+##### 608#       发表于 2021-5-8 21:48
+
+
+最近逐渐领略了短发妹的好…真不错…
+省一楼，最近觉得虹大赛的奖励多加个3.0蛮增加积极性的，希望<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 609#       发表于 2021-5-8 21:49
+
+
+头套带上一眼错觉谱皇
+
+
+-----
+
+####  JhIenog  
+##### 610#       发表于 2021-5-8 21:49
+
+
+原发型加眼镜真不错，短发也蛮有感觉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+                             
