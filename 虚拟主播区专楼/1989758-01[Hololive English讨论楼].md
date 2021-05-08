@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-07 01:37** 
+> ## **本文件最后更新于2021-05-07 23:41** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_nrq5w" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_qnk4a" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9047,7 +9047,9 @@ unity<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" refer
 ##### 566#       发表于 2021-5-6 15:18
 
 
-<img src="https://p.sda1.dev/1/53b8c5adfdb0f9c2beb74c3f9fcf7a19/IMG_CMP_58738884.jpeg" referrerpolicy="no-referrer">
+ 本帖最后由 wiig 于 2021-5-7 16:41 编辑 
+
+<img src="https://p.sda1.dev/1/04d9b24a6975016d08ab20dc4e8dd47c/IMG_CMP_122702289.jpeg" referrerpolicy="no-referrer">
 
 
 -----
@@ -9241,4 +9243,521 @@ Rigger HATE!</blockquote>
 看爸爸那边也没那么多bug，感觉是鲨鱼自己出问题了（
 
 
-                              
+-----
+
+####  心垂万刃  
+##### 578#       发表于 2021-5-7 09:39
+
+
+才反应过来，鲨宝这新衣服好像没有什么替换部件的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 579#       发表于 2021-5-7 09:56
+
+
+bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_fKkVP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+-----
+
+####  jzsgtx  
+##### 580#       发表于 2021-5-7 10:25
+
+
+虽然很久很久很久不看v了，不过鲨鱼新衣服是真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  昆西昆希昆  
+##### 581#       发表于 2021-5-7 11:55
+
+
+gura新衣最高同接多少啊 到20W没
+
+
+-----
+
+####  昆西昆希昆  
+##### 582#       发表于 2021-5-7 11:55
+
+
+gura新衣最高同接多少啊 到20W没
+
+
+-----
+
+####  smy20011  
+##### 583#         楼主| 发表于 2021-5-7 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168139&amp;ptid=1989758" target="_blank">昆西昆希昆 发表于 2021-5-7 11:55</a>
+
+gura新衣最高同接多少啊 到20W没</blockquote>
+19.4万
+
+
+-----
+
+####  PureIllusion  
+##### 584#       发表于 2021-5-7 12:17
+
+
+南方公园鲨
+[https://www.youtube.com/watch?v=JxTCaq6qLUY](https://www.youtube.com/watch?v=JxTCaq6qLUY)
+[https://www.youtube.com/watch?v=zQ7OYzIdEKw](https://www.youtube.com/watch?v=zQ7OYzIdEKw)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 585#       发表于 2021-5-7 12:47
+
+
+<img src="https://p.sda1.dev/1/f150516d8c9f57a1aa60bfd54fb3d977/IMG_CMP_262307347.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 586#         楼主| 发表于 2021-5-7 12:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168727&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-7 12:47</a></blockquote>
+今天直播有人用sc在ina额头上玩井字棋
+
+
+-----
+
+####  wiig  
+##### 587#       发表于 2021-5-7 13:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168742&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-7 12:48</a>
+今天直播有人用sc在ina额头上玩井字棋</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 588#       发表于 2021-5-7 14:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PureIllusion  
+##### 589#       发表于 2021-5-7 16:34
+
+
+我也numberfag一下。
+
+今天4chan全站的单串发帖纪录也被打破了，前纪录是2015年moot离站前的Q&amp;A串，最高一分钟238帖。鲨鲨这次实况串最高一分钟327帖。
+
+当然了基本都是垃圾帖，只能说有够疯的。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|草生|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  allenz2  
+##### 590#       发表于 2021-5-7 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51168390&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-5-7 12:17</a>
+南方公园鲨
+
+https://www.youtube.com/watch?v=JxTCaq6qLUY
+
+https://www.youtube.com/watch?v=zQ7OYzIdEKw ...</blockquote>
+这个太草了，简直原版
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  wiig  
+##### 591#       发表于 2021-5-7 19:16
+
+
+<img src="https://p.sda1.dev/1/e7cd49c0eb673ddcfe50ee15210f7f8a/IMG_CMP_55388244.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/430bcb6c34c0101943c323c0ec325b67/IMG_CMP_55924269.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シナモンロール  
+##### 592#       发表于 2021-5-7 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51171029&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-5-7 16:34</a>
+我也numberfag一下。
+
+今天4chan全站的单串发帖纪录也被打破了，前纪录是2015年moot离站前的Q&amp;A串，最高一分 ...</blockquote>
+？？？比川总败选刷的还快？
+
+
+-----
+
+####  面具13  
+##### 593#       发表于 2021-5-7 22:03
+
+
+ 本帖最后由 面具13 于 2021-5-7 22:05 编辑 
+
+草，想说补下鲨宝新衣服睡觉，这变形笑喷了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">总体还是可爱的。
+
+
+-----
+
+####  wiig  
+##### 594#       发表于 2021-5-7 22:22
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/222201rtg9fag99nh9tlat.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (572.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 22:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/222209mklzl55xzkjj12ex.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (559.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 22:22 上传
+
+
+-----
+
+####  wiig  
+##### 595#       发表于 2021-5-7 22:24
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/222419bo24v7d800alb0s7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (324.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 22:24 上传
+
+
+Can reapers burn?
+
+
+-----
+
+####  smy20011  
+##### 596#         楼主| 发表于 2021-5-7 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51174158&amp;ptid=1989758" target="_blank">シナモンロール 发表于 2021-5-7 21:56</a>
+
+？？？比川总败选刷的还快？</blockquote>
+一个讨论串中的最快发帖吧。老外经常刷什么uooooooooth这种
+
+
+-----
+
+####  smy20011  
+##### 597#         楼主| 发表于 2021-5-7 23:23
+
+
+愛言葉这首歌我已经loop三天了。。
+
+
+-----
+
+####  smy20011  
+##### 598#         楼主| 发表于 2021-5-8 06:27
+
+
+Ame那边好混沌2333
+
+
+-----
+
+####  帆乃花  
+##### 599#       发表于 2021-5-8 06:28
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/062634bepiesi9jfbmmmkf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (91.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 06:26 上传
+
+
+虽然没实装Live2D 但是有画可脱差分
+
+
+-----
+
+####  帆乃花  
+##### 600#       发表于 2021-5-8 06:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51138588&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-3 23:59</a>
+
+直播不脱是怕被ban么2333</blockquote>
+原来因为L2D有设定需要调整所以暂时不能脱 yukisame妈妈觉得可惜就提前公布了
+
+
+
+
+-----
+
+####  smy20011  
+##### 601#         楼主| 发表于 2021-5-8 06:44
+
+
+Ame玩的好开心
+
+
+-----
+
+####  帆乃花  
+##### 602#       发表于 2021-5-8 06:55
+
+
+谜之平胸
+
+
+-----
+
+####  wiig  
+##### 603#       发表于 2021-5-8 07:00
+
+
+"coding the game"
+
+
+-----
+
+####  wiig  
+##### 604#       发表于 2021-5-8 07:02
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070232bxxvt5ue8vxh1oez.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (138.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:02 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070136avjv8yxya5gz2lrx.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (284.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070206ea9ii7xvrxxe7vuu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (314.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:02 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070152cttbwdwmwmomnxuf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (320.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070213j65ipu64k43x0e7e.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (159.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:02 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070241xidhdc61ecdxzhhd.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (153.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:02 上传
+
+
+-----
+
+####  smy20011  
+##### 605#         楼主| 发表于 2021-5-8 07:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51176392&amp;ptid=1989758" target="_blank">帆乃花 发表于 2021-5-8 06:55</a>
+
+谜之平胸</blockquote>
+等老娘脱了外套的
+
+
+-----
+
+####  帆乃花  
+##### 606#       发表于 2021-5-8 07:03
+
+
+ 本帖最后由 帆乃花 于 2021-5-8 07:06 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070345cnenoio9292vqrq3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (388.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070631nbjrk2bjekbmevbj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (383.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/070638le2uudiisx4didpp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (378.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:06 上传
+
+
+隐藏boingboing
+
+
+-----
+
+####  帆乃花  
+##### 607#       发表于 2021-5-8 07:11
+
+
+抓屁股草
+
+
+-----
+
+####  帆乃花  
+##### 608#       发表于 2021-5-8 07:11
+
+
+ 本帖最后由 帆乃花 于 2021-5-8 07:18 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/071833ermmdakkgfgppjsk.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (173.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:18 上传
+
+
+-----
+
+####  smy20011  
+##### 609#         楼主| 发表于 2021-5-8 07:20
+
+
+AME这套真的好看，为啥鲨鱼那套成那个样子了，感觉是l2d没调整完么？
+
+
+-----
+
+####  s32244153  
+##### 610#       发表于 2021-5-8 07:34
+
+
+ 本帖最后由 s32244153 于 2021-5-8 07:36 编辑 
+
+这个人真得太怪了...<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/08/073446rw47e8744n3wbzlo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7eXGqJf.jpg</strong> (61.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 07:34 上传
+
+
+                             
