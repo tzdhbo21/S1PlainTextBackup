@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-28 14:14** 
+> ## **本文件最后更新于2021-05-08 18:08** 
 
 
 
@@ -1455,7 +1455,7 @@ NICO 第一话好评率 31.3%
 <img src="https://p.sda1.dev/1/6c2b5d21d37f799ec41e1622aa030faf/3.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/1/5aba2c71edd66697ae7861379eadb924/4.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/1/81339487a3cd92d20710bb0e216a9506/5.jpg" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/fac017bb0ab8caafb6e9f79372000bad/6.JPG" id="aimg_Rou15" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/fac017bb0ab8caafb6e9f79372000bad/6.JPG" id="aimg_VJFxh" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 再び暴走した都の想い、その『フラグメント』を狙って新たなリフレクターが現れた。彼女たちは陽桜莉たちと違い、フラグメントを奪い取ることを目的としていた。同じリフレクターが少女を傷つけていた事実に、ショックを隠せない陽桜莉と瑠夏。未だ変身出来ずにいた瑠夏は、必死に戦う陽桜莉の姿を前に”ある過去”を思い出す…。
@@ -1573,7 +1573,9 @@ md，要不是这季度没啥好看的铝铜片，河豚谁看这片，简直是
 ##### 104#       发表于 2021-4-28 12:25
 
 
-<img src="https://p.sda1.dev/1/6119ad23c1a3c8c3cdbbf77e1e209b66/IMG_20210428_003217.jpg" referrerpolicy="no-referrer">
+ 本帖最后由 Piano-Forest 于 2021-4-30 10:05 编辑 
+
+<img src="https://p.sda1.dev/1/5437e7604bfd6fe3abef57efa829786a/yande.re 776377 blue_reflection feet murakami_yuu pajama skirt_lift.jpg" referrerpolicy="no-referrer">
 
 
 -----
@@ -1588,4 +1590,286 @@ md，要不是这季度没啥好看的铝铜片，河豚谁看这片，简直是
 尤其那jio 真就“我朋友学了三年动画”呗
 
 
-                                              
+-----
+
+####  V2ABGundam  
+##### 106#       发表于 2021-4-30 01:24
+
+
+这片其实就是献祭吧？
+
+
+本来美术风格就不讨喜
+
+这集的路人都崩成狗了
+
+让人回忆起90年代的劣质动画
+
+还不如全用游戏建模即时演算做算了
+
+
+播了3集，pixiv同人图只有5张，人气在本季度所有新番中（不算《变成黑皮辣妹和好友做了》）垫底，真没救了
+
+
+-----
+
+####  堆雪若叶  
+##### 107#       发表于 2021-5-1 11:37
+
+
+第5話  何もみえないわたし
+
+<img src="https://p.sda1.dev/1/0c032c366ab6b6a1d91b690ed045bf2b/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/fdc13de155b02c8d5f8b1462727c32ca/2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/eeca42ced31278b9ec9f383d474b6729/3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/13dcf6b10145dd0680f247cec0d7888d/4.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/d27ae9656db365492b9e6b7120ca1e82/5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/4f67dd10ccb2b4d449b2b57c3be39713/6.JPG" id="aimg_PKiSI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+女子高生の間で話題の交流アプリ『Ｈ♡―ＫＡＧ♡（放課後）』。そこで気になる投稿を見つけた都は、『由紀姫』と名乗る投稿者にコンタクトを試みる。由紀姫に悩みを打ち明けた少女たちは、うちに秘めた苦しみや、悲しい想いが綺麗さっぱり消えると言う。同じ頃、詩も由紀姫に目をつけ、本人を探し出そうとしていた。
+
+
+■脚本：和場 明子 　■絵コンテ：森川 さやか 　■演出：田中 瑛
+
+
+-----
+
+####  千化万变式  
+##### 108#       发表于 2021-5-3 13:36
+
+
+抽空来看蓝反，前两集讲完谜语第四集节奏还行，姑且看的下去。希望越来越好吧，可是半年番呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+-----
+
+####  堆雪若叶  
+##### 109#       发表于 2021-5-4 00:04
+
+
+[https://twitter.com/BRRAY_anime/status/1389195535073087488](https://twitter.com/BRRAY_anime/status/1389195535073087488)
+
+ブルリフR 内緒の呟き
+
+
+少しだけ先のお話の場面カットを今日もこっそり公開。
+
+今回はこの２人。何やら今とは雰囲気が違うようですが…
+
+
+#ブルリフR
+
+<img src="https://p.sda1.dev/1/97fb17bb3704c7fad05a01ff32a99d2b/1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/e665fa76d5974f52279b4a787842bfea/2.jpg" referrerpolicy="no-referrer">
+
+
+对面黑历史（
+
+
+-----
+
+####  堆雪若叶  
+##### 110#       发表于 2021-5-6 16:19
+
+
+[https://twitter.com/BRRAY_anime/status/1390184552677715969](https://twitter.com/BRRAY_anime/status/1390184552677715969)
+
+
+ブルリフR 内緒の呟き
+
+
+第５話の追加の場面カットをこっそり公開。
+
+陽桜莉も「美味しそう！」と目を輝かせる家庭的な手作り料理。作ったのはいったい誰…？！
+
+<img src="https://p.sda1.dev/1/006b2e122f720bfa68772bbcbb8fcea6/＃04_01.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/87f98fd4243a7b341de147b0eae6a5dd/＃04_02.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/e8d86fd44fd3bcfad9cf04a2290d878a/＃04_03.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Tehebe  
+##### 111#       发表于 2021-5-6 20:49
+
+
+亏我还玩过游戏的都坚持不住了，本来就是gust的美少女三部曲之一，画不出来美少女也不卖贴贴真就觉得你们这ip还有啥价值么<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  萼绿华  
+##### 112#       发表于 2021-5-6 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51162663&amp;ptid=1987572" target="_blank">Tehebe 发表于 2021-5-6 20:49</a>
+
+亏我还玩过游戏的都坚持不住了，本来就是gust的美少女三部曲之一，画不出来美少女也不卖贴贴真就觉得你们这 ...</blockquote>
+贴贴姑且还是有的吧……
+
+
+-----
+
+####  Tehebe  
+##### 113#       发表于 2021-5-6 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51162710&amp;ptid=1987572" target="_blank">萼绿华 发表于 2021-5-6 20:53</a>
+
+贴贴姑且还是有的吧……</blockquote>
+不知道是不是错觉，我觉得这片子还想讲剧情
+
+
+-----
+
+####  whzfjk  
+##### 114#       发表于 2021-5-6 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51162663&amp;ptid=1987572" target="_blank">Tehebe 发表于 2021-5-6 20:49</a>
+
+亏我还玩过游戏的都坚持不住了，本来就是gust的美少女三部曲之一，画不出来美少女也不卖贴贴真就觉得你们这 ...</blockquote>
+这堆有点情绪的反派还挺有意思的，你 gust 本家现在整一个都筑真纪那狗日和魔法少女打拳的味道，整天来来回回讲 good morning，就像那鸡肋骨一样。
+
+
+-----
+
+####  堆雪若叶  
+##### 115#       发表于 2021-5-7 18:44
+
+
+[https://twitter.com/BRRAY_anime/status/1390592763171799043](https://twitter.com/BRRAY_anime/status/1390592763171799043)
+
+用語紹介
+
+
+「Ｈ♡―ＫＡＧ♡（放課後）」
+
+女子高生限定で登録できるアプリ。個人で好きに呟いたり、グループを作ってチャットしたりもできる。相談に乗って欲しい子と実際に会って、それをチャットで報告する『由紀姫の魔法部屋』という人気のチャットグループも。
+
+<img src="https://p.sda1.dev/1/ba6946719ef7dee7799999fd6c5c47a7/E0xgoLvUYAEp51k.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  无动于衷  
+##### 116#       发表于 2021-5-8 08:55
+
+
+第5话首次提到了可梦的概念（动画翻译成了异界）
+
+
+以及2分32到2分59秒的BGM，比现在的工作室还像工作室
+
+
+-----
+
+####  无动于衷  
+##### 117#       发表于 2021-5-8 09:18
+
+
+ 本帖最后由 无动于衷 于 2021-5-8 09:19 编辑 
+
+做几个打脸式猜想
+
+
+女主她姐身边那个灰发妹大概率和之前女主她姐与大波浪对战过的原种有关，甚至可能是原种本身
+
+
+灰发妹要回归可梦，就是通过收集JK的情感碎片完成钥匙，所以红戒指一方干的就是这事——引发情感问题进而引出碎片带走
+
+
+目前因为碎片出现导致的世界异化并不是可梦本身，而主角这方目前所做的事情虽然接近游戏里白井的做法，但有两个问题
+
+
+一则，被拯救的少女没有和主角方正式建立羁绊（游戏里是通过戒指但动画不是）
+
+
+再则，究竟谁才能做适格的反像者动画目前也没有交代（游戏里夕月来梦直接钦定），甚至红方的戒指是不是夕月来梦给的都存疑（动画目前没交代）
+
+
+所以综上，个人认为动画版大概率是游戏的前传
+
+
+并且此时的夕月来梦并没有找到正确解决原种的办法
+
+
+红方蓝方的分歧大概率是主角姐姐和大波浪的分歧起始，她们分别对应了较为激进的策略和比较温和的方式
+
+
+期待一下后面的剧情我能猜中几个
+
+
+-----
+
+####  堆雪若叶  
+##### 118#       发表于 2021-5-8 16:45
+
+
+第6話    心に茨を持つ少女 
+
+<img src="https://p.sda1.dev/1/c6d632145a272f87c7463dd997509169/＃06_01.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/0cdb3dda1878614e49d086548eb90dd1/＃06_02.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/f1ec9f24e92573ffcdac8af0792da3a9/＃06_04.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/69035d3dae701ab8e5891e08c99d7f0f/＃06_06.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/71200734eefdbf3cdd42cfc5cc590622/＃06_07.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/d5335de976e4286eb5671cba34876f9e/＃06_08.png" referrerpolicy="no-referrer">
+
+
+敗北が続き焦りを募らせる仁菜は、詩とのバディ関係を解消。次にバディ相手として望んだのは、”お姉さま”こと美弦だった。仁菜にとって美弦は、自分自身の過去すべてを捧げた人物であり、その出会いは特別なものだった。不遇の子供時代、母との決別、ピンクのキャリーケース、詩集……。仁菜の仄暗い過去が蘇る。
+
+
+■脚本：水上 清資 　■絵コンテ：杉島 邦久 　■演出：所 俊克
+
+
+-----
+
+####  堆雪若叶  
+##### 119#       发表于 2021-5-8 16:49
+
+
+[https://twitter.com/BRRAY_anime/status/1390871579245023234](https://twitter.com/BRRAY_anime/status/1390871579245023234)
+
+ブルリフ新情報
+
+
+第5話登場の高岡由紀子（CV.  #佐伯伊織 ）は、実は他の「BLUE REFLECTION」プロジェクト作品にも登場予定だとか…？！アニメからは他に誰が、そしてどんな形でゲームの物語に関わっていくのでしょうか…Video game続報にご期待ください
+
+
+#ブルリフR #ブルリフRST #アニメイズム
+
+
+还会有其他作品的角色来串场
+
+
+-----
+
+####  堆雪若叶  
+##### 120#       发表于 2021-5-9 00:13
+
+
+<img src="https://p.sda1.dev/1/b9c67008763ee0a1a4e0c23153667f77/3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/fc3051d2b7089740e94e2549af9ca4a0/5.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/5587e24628cef6afba57f23db9b18305/9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/c582ac590be78ef6ba0ebe73fddcbcad/10.jpg" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  堆雪若叶  
+##### 121#       发表于 2021-5-9 02:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177272&amp;ptid=1987572" target="_blank">无动于衷 发表于 2021-5-8 09:18</a>
+
+做几个打脸式猜想
+
+
+女主她姐身边那个灰发妹大概率和之前女主她姐与大波浪对战过的原种有关，甚至可能是原种 ...</blockquote>
+干妹妹和原种直接相关倒确实有可能，姐姐的目的应该也就是为了帮助她。但还是不太能解释开场姐姐的一番悔恨发言，并且百当时的表现也不像知道姐姐是什么意思，那么后续的发展不太可能是两者冲突引起的；而另一方面因为现在姐姐的戒指和百的戒指都发生了变化，还是更倾向规则也已经和之前的理解不同，能产生这种改变的应该还是因为原种吧。
+
+
+                                             
