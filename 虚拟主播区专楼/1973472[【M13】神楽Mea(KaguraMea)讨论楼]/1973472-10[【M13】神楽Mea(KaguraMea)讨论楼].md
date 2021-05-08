@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-07 13:44** 
+> ## **本文件最后更新于2021-05-08 04:46** 
 
 
 
@@ -14963,4 +14963,229 @@ pubg的话2019-8-1之后就没有玩过了 麻号2019-9-21之后也没动过 ape
 游戏民观察者<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-  
+-----
+
+####  路人庚  
+##### 14921#       发表于 2021-5-7 21:45
+
+
+ 本帖最后由 路人庚 于 2021-5-7 21:51 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为你咩姐老早就不怎么打（除了lol之外的）游戏了，所以这种事早就没做过了，不过前人留下的东西还是存着的，既然你有兴趣翻着看，那么也顺便再发一次吧（至于各个游戏的id就自力更生罢
+
+
+PUBG、APEX、俄罗斯方块、死涂乱喷战绩查询
+[https://pubg.op.gg/](https://pubg.op.gg/)
+[https://apex.tracker.gg/](https://apex.tracker.gg/)
+[http://tetrisonline.pl/](http://tetrisonline.pl/)
+[https://cowlevel.net/article/1906242](https://cowlevel.net/article/1906242)
+
+
+-----
+
+####  Klience  
+##### 14922#       发表于 2021-5-7 21:53
+
+
+ 本帖最后由 Klience 于 2021-5-7 21:58 编辑 
+
+俄罗斯方块和华 莱 士没兴趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> apex只能查排位 不过有次奇怪的是 我记得她apex玩的时候有一次是去年11月份的 具体时间我忘了 反正好像是线下live之前的 反正apex那个网站我看不懂 而且也查不到和谁一起玩
+
+
+-----
+
+####  路人辰  
+##### 14923#       发表于 2021-5-7 22:12
+
+
+20210507东京22点
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/221222ayqjt58m59ioiby9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1D276857-3872-406E-92EB-F0EBA221C723.jpeg</strong> (357.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 22:12 上传
+
+
+-----
+
+####  时间在我手中  
+##### 14924#       发表于 2021-5-7 22:17
+
+
+怎么这么健康<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 14925#       发表于 2021-5-7 22:21
+
+
+野男人你做的好啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14926#       发表于 2021-5-7 22:28
+
+
+年纪大了是这样的（
+
+
+-----
+
+####  Klience  
+##### 14927#       发表于 2021-5-7 22:50
+
+
+不播更好 打游戏去咯<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  finefrenzy  
+##### 14928#       发表于 2021-5-7 23:29
+
+
+喝多了点 回顾了下 聞こえますか 
+然后翻了翻 zqsg千里哥也这么久没见过了（指v相关）
+然后突然又想到了只咩
+好久没连续的看mea了
+楼里还有一些熟悉的id……
+
+
+-----
+
+####  路人庚  
+##### 14929#       发表于 2021-5-7 23:46
+
+
+千里偶尔还会在几个b站评论区冒出来
+
+所有人在其他人的人生中也都只是陪跑一段路而已，更何况沙雕网友和娱乐主播
+
+就算有区别也只是时间长短问题
+
+过好自己的生活才是最重要的
+
+
+-----
+
+####  A2014720  
+##### 14930#       发表于 2021-5-7 23:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 14931#       发表于 2021-5-8 00:09
+
+
+我一直都很快乐啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  鷹書たかしょ  
+##### 14932#       发表于 2021-5-8 00:43
+
+
+千里从20年还是19年下半年开始就没在你楼活跃了，倒是偶尔能在漫区看到
+看着这楼人来人往也挺有意思的
+
+
+-----
+
+####  finefrenzy  
+##### 14933#       发表于 2021-5-8 07:23
+
+
+倒是经常在外野BTC相关看到。当然都也知道，只不过是脑抽了感叹下罢了
+
+
+-----
+
+####  掉头学姐  
+##### 14934#       发表于 2021-5-8 07:31
+
+
+千里魅力这么大吗，可惜不是妹子
+
+
+-----
+
+####  专业划水人员  
+##### 14935#       发表于 2021-5-8 08:40
+
+
+都快9点了！我小麻呢？
+
+
+-----
+
+####  雪风utopia  
+##### 14936#       发表于 2021-5-8 08:47
+
+
+健康生活大失败<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14937#       发表于 2021-5-8 09:01
+
+
+就不能让她和野男人多呆一会吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kenjjj  
+##### 14938#       发表于 2021-5-8 09:15
+
+
+ 本帖最后由 kenjjj 于 2021-5-8 09:16 编辑 
+
+按她睡12小时来说也不会现在醒，至少还要一两个小时<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">卧槽，醒了
+
+
+-----
+
+####  A2014720  
+##### 14939#       发表于 2021-5-8 09:18
+
+
+这人是真的很喜欢这个皮啊
+
+
+-----
+
+####  Klience  
+##### 14940#       发表于 2021-5-8 09:21
+
+
+一副被野男人透虚的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  草牛  
+##### 14941#       发表于 2021-5-8 12:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水喷的太多，体谅一下
+
+
+ 
