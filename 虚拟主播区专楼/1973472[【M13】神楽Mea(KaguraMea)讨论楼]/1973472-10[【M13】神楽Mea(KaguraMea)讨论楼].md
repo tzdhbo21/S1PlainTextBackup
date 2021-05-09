@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-08 04:46** 
+> ## **本文件最后更新于2021-05-09 03:44** 
 
 
 
@@ -15188,4 +15188,362 @@ PUBG、APEX、俄罗斯方块、死涂乱喷战绩查询
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">水喷的太多，体谅一下
 
 
- 
+-----
+
+####  JY要塞  
+##### 14942#       发表于 2021-5-8 12:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">床单不洗味道大
+
+
+-----
+
+####  时间在我手中  
+##### 14943#       发表于 2021-5-8 13:04
+
+
+臭女人今天播不播呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14944#       发表于 2021-5-8 14:41
+
+
+播，一定会播的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  泔水  
+##### 14945#       发表于 2021-5-8 17:00
+
+
+小麻这几天作息那么健康都不播 大概是带娃去了 被野男人抛弃了 只能自己带 没时间播
+
+
+-----
+
+####  Klience  
+##### 14946#       发表于 2021-5-8 17:01
+
+
+能舒舒服服打游戏为什么要给你们直播呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14947#       发表于 2021-5-8 17:08
+
+
+所以现在在打LOL吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看起来不像的样子，不会真去玩MHR了吧
+
+
+-----
+
+####  Klience  
+##### 14948#       发表于 2021-5-8 17:10
+
+
+ 本帖最后由 Klience 于 2021-5-8 17:11 编辑 
+
+没有啊 早上到现在lol都没有动静 就我偶尔去监视的时候 不知道我不在监视的时候有没有在打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14949#       发表于 2021-5-8 17:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14950#       发表于 2021-5-8 17:35
+
+
+小麻，我的小麻<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 14951#       发表于 2021-5-8 18:36
+
+
+作息健康还不打游戏不播，大概现充去了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+希望野男人对小麻温柔点
+
+
+-----
+
+####  Dualist彩  
+##### 14952#       发表于 2021-5-8 19:08
+
+
+早上卖个萌就出去跟野男人鬼混了，破防了，神乐mea你没有心<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14953#       发表于 2021-5-8 19:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今天汗你咩姐一起玩的太开心了就没怎么留意她还需要跟死宅直播的事情，不好意思了捏~
+
+
+现在已经差不多快结束了，过会看她有没有心情播一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14954#       发表于 2021-5-8 19:32
+
+
+出来玩了一天，该回宾馆了，希望能玩点大的，比如直播中⭕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14955#       发表于 2021-5-8 20:04
+
+
+麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14956#       发表于 2021-5-8 22:48
+
+
+LOL<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14957#       发表于 2021-5-8 23:09
+
+
+麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 14958#       发表于 2021-5-8 23:10
+
+
+没有麻麻我好痛苦<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pei23333  
+##### 14959#       发表于 2021-5-8 23:14
+
+
+原来才两天啊，这么感觉一个星期没播了
+
+
+-----
+
+####  A2014720  
+##### 14960#       发表于 2021-5-8 23:16
+
+
+因为虚无
+
+
+-----
+
+####  Klience  
+##### 14961#       发表于 2021-5-8 23:21
+
+
+10分钟前结束一把 现在没再打 先观望一下 算了 观望个锤子 我去打游戏了 懒得看她<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14962#       发表于 2021-5-9 01:45
+
+
+草，怎么都两点了，臭女人吔屎辣
+
+
+-----
+
+####  路人辰  
+##### 14963#       发表于 2021-5-9 07:21
+
+
+20210509东京6点
+
+<img src="https://img.saraba1st.com/forum/202105/09/072127gi36nxkkklk2p6kl.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>388089E6-306E-4305-BBAE-96359AF1BE84.jpeg</strong> (108.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 07:21 上传
+
+
+-----
+
+####  路人庚  
+##### 14964#       发表于 2021-5-9 07:24
+
+
+东京3点半还在点赞还行，看来生物钟虽然说是调好了但没有完全调好
+
+
+-----
+
+####  雪风utopia  
+##### 14965#       发表于 2021-5-9 07:44
+
+
+健康了，但是没有完全健康<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14966#       发表于 2021-5-9 08:10
+
+
+ 本帖最后由 A2014720 于 2021-5-9 08:15 编辑 
+
+今天大概也没有直播吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说起来现在推上连段子也不发了全是fleet<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不知道这人对推特新的功能有啥想法没，到时候可能真就是直播去他妈了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14967#       发表于 2021-5-9 08:45
+
+
+这人发完fleet马上打了两局 好家伙 凌晨4点队友都是随叫随到的是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14968#       发表于 2021-5-9 09:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看错了吧，是点赞之后、发fleet之前打的啊
+
+
+-----
+
+####  Klience  
+##### 14969#       发表于 2021-5-9 09:07
+
+
+那没办法啊 手机opgg又不能看到具体时间 具体时间要在电脑的opgg上面才能看到 而且fleet只有显示几个小时前 4个小时前鬼知道具体时间哦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 14970#       发表于 2021-5-9 10:17
+
+
+不会真要摸到13号那狗屎联动吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我也摸了得了
+
+
+
+
+-----
+
+####  A2014720  
+##### 14971#       发表于 2021-5-9 10:42
+
+
+五月要努力啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 14972#       发表于 2021-5-9 10:43
+
+
+努力怀胎是吧😅
+
+
+-----
+
+####  雪风utopia  
+##### 14973#       发表于 2021-5-9 10:47
+
+
+别胡说，还没怀呢，但也快了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  泔水  
+##### 14974#       发表于 2021-5-9 11:13
+
+
+小麻要努力丰胸了 可不能饿着小小麻<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 14975#       发表于 2021-5-9 11:14
+
+
+今天是母亲节嗷
+
+
+-----
+
+####  Cushaw  
+##### 14976#       发表于 2021-5-9 11:31
+
+
+一孕傻三年，不要怀孕，不要怀孕<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jhouo8989  
+##### 14977#       发表于 2021-5-9 11:32
+
+
+不能比现在更傻了吧
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  雪风utopia  
+##### 14978#       发表于 2021-5-9 11:36
+
+
+傻傻的肉体也能涩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
