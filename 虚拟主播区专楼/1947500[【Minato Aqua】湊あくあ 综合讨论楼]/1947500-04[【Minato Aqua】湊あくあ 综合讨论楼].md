@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-05 17:05** 
+> ## **本文件最后更新于2021-05-09 13:42** 
 
 
 
@@ -16340,4 +16340,1204 @@ DQ？算了吧，不适合你的，不适合除pekora外多数人直播。其实
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-   
+-----
+
+####  Maonpuyo  
+##### 5883#       发表于 2021-5-6 01:42
+
+
+题材换成收录/工作/偶像活动说不定我真信了，从游戏着手只能说云的透彻，最后一段应该是昨天会限说的批话
+
+
+-----
+
+####  面具13  
+##### 5884#       发表于 2021-5-6 05:23
+
+
+反正现在每月光会员收入应该都不少于早期霸榜领跑的时候的400w，而且会限也能打钱，说不定以后就变成每星期1-2次常规直播吸吸粉，外加固定一次会限养gachi的养老模式。
+
+
+-----
+
+####  獅白ぼたん  
+##### 5885#       发表于 2021-5-6 07:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51153877&amp;ptid=1947500" target="_blank">TiHaru 发表于 2021-5-5 23:43</a>
+
+想问一下这个是黑屁还是发生过啊，印象中没有见过这三人一起玩游戏</blockquote>
+这是转的黑屁啊，夸夸没和男人打过枪不说狮白自己台都没开过apex
+
+我算明白ngaB站那些魔怔crew为什么那么情弱了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5886#       发表于 2021-5-6 07:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51154952&amp;ptid=1947500" target="_blank">獅白ぼたん 发表于 2021-5-6 07:02</a>
+这是转的黑屁啊，夸夸没和男人打过枪不说狮白自己台都没开过apex
+
+我算明白ngaB站那些魔怔crew为什么那么 ...</blockquote>
+但他的成分大概是更偏天狗，而不是crew<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  colodes  
+##### 5887#       发表于 2021-5-6 08:30
+
+
+以前是夸和海带头的版本，现在加了个botan，迷惑性在于大多数人物台词都是在不同情形下说过的
+
+
+-----
+
+####  面具13  
+##### 5888#       发表于 2021-5-6 20:50
+
+
+这周大概没有游戏直播了，明后两天如果嗓子状态说得过去应该会有个预热歌回吧。感觉免费live第二天高概率会开一次会限。
+
+终于摸鱼了推上也没人说阿库炭今天又没播了，太好了呢，阿库炭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是真正关心夸宝的人真的变成无关心了。只能看到一排Vtuberアンテナ号转发的黑屁まとめ
+
+
+-----
+
+####  星の守  
+##### 5889#       发表于 2021-5-6 20:55
+
+
+你好，推上还是有人说的，某位经常换马甲的无名桑，不巧今天还看到了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 5890#       发表于 2021-5-7 11:51
+
+
+这生化8还不如生化2重置恐怖勒
+
+
+-----
+
+####  面具13  
+##### 5891#       发表于 2021-5-7 18:03
+
+
+今天感觉也是不播的一天
+
+
+-----
+
+####  Klience  
+##### 5892#       发表于 2021-5-7 18:31
+
+
+生化2重置克莱尔线都没有通关呢 想看夸哥救萝莉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  admentus  
+##### 5893#       发表于 2021-5-7 19:30
+
+
+[https://twitter.com/occhotan/status/1390601550289047553](https://twitter.com/occhotan/status/1390601550289047553)
+
+做得真好
+
+
+-----
+
+####  梅斯之围  
+##### 5894#       发表于 2021-5-7 19:34
+
+
+ 本帖最后由 梅斯之围 于 2021-5-7 19:36 编辑 
+
+怎么live之前都不预热播一下啊，就光转推，是等着本社还是同事帮你宣传吗
+
+
+-----
+
+####  nowaki  
+##### 5895#       发表于 2021-5-7 19:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不宣传的80+fh石锤了
+
+
+-----
+
+####  面具13  
+##### 5896#       发表于 2021-5-7 21:43
+
+
+就当她是养嗓子了。
+
+推特有点赞，就说明人还活着，作为crew就该满足了，直播什么的是奢求。又是没人催播的一天，真好。看到推上还有在挣扎的crew说害怕自己习惯夸宝不播的日常，打算追踪一下看他什么时候躺平。
+
+
+-----
+
+####  星の守  
+##### 5897#       发表于 2021-5-7 21:47
+
+
+ 本帖最后由 星の守 于 2021-5-7 21:48 编辑 
+
+没人催播，你再想想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/07/214621pfx0o0fqfk0b6tbf.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210507214516.png</strong> (52.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 21:46 上传
+
+
+-----
+
+####  面具13  
+##### 5898#       发表于 2021-5-7 21:52
+
+
+ 本帖最后由 面具13 于 2021-5-7 21:54 编辑 
+
+夸宝学我搜あくたん一定搜不到。都不用爱称了，怕不是要被夸宝开除粉藉归入anti<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+5ch木口串不也总有人发粪虫不直播的嘛
+
+
+-----
+
+####  星の守  
+##### 5899#       发表于 2021-5-7 21:58
+
+
+#あくあーと总要看的吧，你夸还是逃不掉的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/215742lee04ybpyicgzciy.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210507215658.png</strong> (68.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 21:57 上传
+
+
+-----
+
+####  面具13  
+##### 5900#       发表于 2021-5-7 22:05
+
+
+纯文字过滤太容易了，看了只要跟自己说这些不是真正关心自己的crew，不是自己的目标客群，就能保持心态的平和<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 5901#       发表于 2021-5-7 22:14
+
+
+只是反驳你说没人催播这点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+顺带，躺平了是这样的，能保持心态的话也挺好的，真要有人被洗那也没办法不是，只求别脱坑回踩，像上面这些人那样搞的这么难看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5902#       发表于 2021-5-7 23:45
+
+
+自己私推或者论坛Q群抱怨下差不多得了
+
+还打TAG发推是真的有病
+
+好像打了这些字被她看到她就愿意开播一样
+
+越倒这种黑泥只会把她越逼越远（怕不是这才是真正目的
+
+
+我也希望她能变回那个天天陪着crew的gamer主播而不是整天练舞上课收录的所谓“偶像”
+
+但这事儿由不得我由不得crew纯看りんこ小姐自己心情
+
+反正有的播就看，不播该打游戏打游戏该社交社交去呗
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 星の守| + 1|是的|
+
+
+查看全部评分
+
+
+-----
+
+####  mengnvpu  
+##### 5903#       发表于 2021-5-8 00:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看开点，生活不是只有vtuber。
+
+
+-----
+
+####  面具13  
+##### 5904#       发表于 2021-5-8 07:38
+
+
+我生活变丰富确实和夸宝摸鱼有因果联系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然是A.M.T.
+
+
+-----
+
+####  面具13  
+##### 5905#       发表于 2021-5-9 12:16
+
+
+昨晚推特小视频有3w+的点赞。推测晚上3d live同接，保底7w，上限大概10w出头。
+
+
+-----
+
+####  Maonpuyo  
+##### 5906#       发表于 2021-5-9 13:33
+
+
+原来不播是正常的，有人催那就是催播人的问题啊，脑洞新奇
+
+
+-----
+
+####  面具13  
+##### 5907#       发表于 2021-5-9 18:30
+
+
+今晚看上去有歌，还有新谷子。
+
+
+-----
+
+####  面具13  
+##### 5908#       发表于 2021-5-9 20:06
+
+
+ 本帖最后由 面具13 于 2021-5-9 20:09 编辑 
+
+for the win开头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+保底的7w get！
+
+
+-----
+
+####  凛子也想要五个  
+##### 5909#       发表于 2021-5-9 20:07
+
+
+ftw<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+绷不住了
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  雪风utopia  
+##### 5910#       发表于 2021-5-9 20:08
+
+
+笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  新磕娘  
+##### 5911#       发表于 2021-5-9 20:12
+
+
+9点还有一场什么3D
+
+
+-----
+
+####  Klience  
+##### 5912#       发表于 2021-5-9 20:14
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/201351syyh1nabrrhrhzp1.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210509201333.png</strong> (48.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 20:13 上传
+
+
+我觉得可能是彩虹猫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5913#       发表于 2021-5-9 20:14
+
+
+ 本帖最后由 面具13 于 2021-5-9 20:51 编辑 
+
+9点是3d live最后发表的一个视频，大概率是新歌，原创曲可能性80%确实是彩虹猫
+
+
+-----
+
+####  Maonpuyo  
+##### 5914#       发表于 2021-5-9 20:15
+
+
+不就是彩虹猫
+
+
+-----
+
+####  梅斯之围  
+##### 5915#       发表于 2021-5-9 20:16
+
+
+ 本帖最后由 梅斯之围 于 2021-5-9 20:17 编辑 
+
+变身<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 5916#       发表于 2021-5-9 20:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5917#       发表于 2021-5-9 20:17
+
+
+录画吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cIrcler  
+##### 5918#       发表于 2021-5-9 20:18
+
+
+熟悉的广播体操😂动作和之前的live感觉一脉相承啊
+
+
+-----
+
+####  梅斯之围  
+##### 5919#       发表于 2021-5-9 20:18
+
+
+录播就这种帧率和分镜？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pliee  
+##### 5920#       发表于 2021-5-9 20:19
+
+
+拉近掉帧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5921#       发表于 2021-5-9 20:19
+
+
+这套对她来说还挺累的吧。
+
+
+-----
+
+####  Klience  
+##### 5922#       发表于 2021-5-9 20:20
+
+
+墓口没钱了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5923#       发表于 2021-5-9 20:21
+
+
+3d猫好吉尔丑。还可能是录音，配动作。
+
+
+-----
+
+####  凛子也想要五个  
+##### 5924#       发表于 2021-5-9 20:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">播片就这鸟样？
+不干脆说自己也是当场跳的算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl：这猫就是要丑萌丑萌的才好啊，你懂什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  乌鸦绅士  
+##### 5925#       发表于 2021-5-9 20:21
+
+
+ 本帖最后由 乌鸦绅士 于 2021-5-9 20:23 编辑 
+
+这neko吓到我了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shiroslime  
+##### 5926#       发表于 2021-5-9 20:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复活，一日限定，这什么超能丢帧，我麻了
+
+
+-----
+
+####  pliee  
+##### 5927#       发表于 2021-5-9 20:22
+
+
+这阴间猫放出来干啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5928#       发表于 2021-5-9 20:23
+
+
+羡慕摄像机小哥/小妹
+
+
+-----
+
+####  凛子也想要五个  
+##### 5929#       发表于 2021-5-9 20:23
+
+
+艹这超近摄像头我麻了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么鬼才玩意？？
+syl：这寄吧猫说不定是有人在后面举着的呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Klience  
+##### 5930#       发表于 2021-5-9 20:24
+
+
+精神污染max<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5931#       发表于 2021-5-9 20:24
+
+
+这帧率，我猜隔壁潭明天又要发散狐皇吞live经费了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5932#       发表于 2021-5-9 20:25
+
+
+草，这猫最后还往镜头凑
+
+这不是丢帧，是夸宝速度太快，摄像头捕捉不到<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凛子也想要五个  
+##### 5933#       发表于 2021-5-9 20:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不光aqua自费开live，狐皇还在此基础上收了一笔上供是吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  梅斯之围  
+##### 5934#       发表于 2021-5-9 20:25
+
+
+不会就1个小时吧，9点那个新歌
+
+
+-----
+
+####  Klience  
+##### 5935#       发表于 2021-5-9 20:26
+
+
+live基本都是一个小时吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5936#       发表于 2021-5-9 20:31
+
+
+草，neko是摄像机小哥？跟着一起跳？？？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5937#       发表于 2021-5-9 20:31
+
+
+这猫有点一言难尽
+
+
+-----
+
+####  Klience  
+##### 5938#       发表于 2021-5-9 20:32
+
+
+这猫是浮游炮吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  admentus  
+##### 5939#       发表于 2021-5-9 20:32
+
+
+后期合成的可能性大点吧，能和夸靠那么近也不影响动作
+
+
+-----
+
+####  面具13  
+##### 5940#       发表于 2021-5-9 20:32
+
+
+除了邪神收集爱好者，谁买啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+合成不会有第一视角吧
+
+
+
+
+-----
+
+####  凛子也想要五个  
+##### 5941#       发表于 2021-5-9 20:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+淘宝塔那衣服的的店，现在已经有一大批奶油面包拳返图了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Klience  
+##### 5942#       发表于 2021-5-9 20:37
+
+
+你为什么要拿一件普通的衣服和一个邪神进行比较呢 我觉得你审美不行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5943#       发表于 2021-5-9 20:38
+
+
+刚才的特效是不是变寒酸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5944#       发表于 2021-5-9 20:42
+
+
+没了，等一个安可。3d会限，骗会员啦
+
+
+-----
+
+####  Kanchiki  
+##### 5945#       发表于 2021-5-9 20:43
+
+
+哈？这才几首歌？？这就完了？？
+
+
+-----
+
+####  pliee  
+##### 5946#       发表于 2021-5-9 20:44
+
+
+会限了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5947#       发表于 2021-5-9 20:44
+
+
+同接没到10万，这下底边了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 5948#       发表于 2021-5-9 20:45
+
+
+有没有录播哇
+
+
+-----
+
+####  Klience  
+##### 5949#       发表于 2021-5-9 20:47
+
+
+连灯光都没有 笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5950#       发表于 2021-5-9 20:48
+
+
+新会员像垃圾一样多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 5951#       发表于 2021-5-9 20:48
+
+
+10W同接到手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 5952#       发表于 2021-5-9 20:49
+
+
+这舞台特效真强啊<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">。真的是cover承办的吗，还是社外找的外包
+
+
+-----
+
+####  梅斯之围  
+##### 5953#       发表于 2021-5-9 20:49
+
+
+原来是带货啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5954#       发表于 2021-5-9 20:50
+
+
+告知是单独录的，估计是觉得跳累了说不来了
+
+
+-----
+
+####  Klience  
+##### 5955#       发表于 2021-5-9 20:50
+
+
+还真是彩虹猫
+
+
+-----
+
+####  昆西昆希昆  
+##### 5956#       发表于 2021-5-9 20:50
+
+
+草 要带啥货楼里全猜对了。还是你们crew懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 5957#       发表于 2021-5-9 20:51
+
+
+ 本帖最后由 乌鸦绅士 于 2021-5-9 20:53 编辑 
+
+在本社3d会限<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pliee  
+##### 5958#       发表于 2021-5-9 20:52
+
+
+8月8三周年live<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nevp  
+##### 5959#       发表于 2021-5-9 20:52
+
+
+突然感觉不怎么播也说得过去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 5960#       发表于 2021-5-9 20:52
+
+
+又live，又可以光明正大地摸到八月了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  裁决之光  
+##### 5961#       发表于 2021-5-9 20:52
+
+
+今天晚上最绷不住的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/09/205146kk1i4ahlhla633lt.png" referrerpolicy="no-referrer">
+
+
+<strong>A2.PNG</strong> (71.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 20:51 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 6战斗力 +6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 17119854| + 1|欢乐多|
+| zpy393| + 1|笑出声|
+| cIrcler| + 1|欢乐多|
+| 雪风utopia| + 1|绷不住了|
+| 面具13| + 1|欢乐多|
+| 昆西昆希昆| + 1|草|
+
+
+查看全部评分
+
+
+-----
+
+####  admentus  
+##### 5962#       发表于 2021-5-9 20:52
+
+
+这是决定走live路线了啊，同情crew...
+
+
+-----
+
+####  面具13  
+##### 5963#       发表于 2021-5-9 20:53
+
+
+完了，感觉只有全肯定或者偶像粉crew能存活了
+
+
+-----
+
+####  Maonpuyo  
+##### 5964#       发表于 2021-5-9 20:54
+
+
+傻逼傻逼傻逼**傻逼
+
+
+-----
+
+####  cIrcler  
+##### 5965#       发表于 2021-5-9 20:54
+
+
+龟龟，live第二弹，不要告诉我还要失踪一阵子，那今晚的新会员是上了个寂寞
+
+
+-----
+
+####  昆西昆希昆  
+##### 5966#       发表于 2021-5-9 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51192985&amp;ptid=1947500" target="_blank">admentus 发表于 2021-5-9 20:52</a>
+
+这是决定走live路线了啊，同情crew...</blockquote>
+这有啥好同情的。夸宝这不是在努力整大活吗。比起社内一批摆烂混日子高到不知道哪去了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 5967#       发表于 2021-5-9 20:54
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/205435d1mazl072qf1hu6d.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210509205412.png</strong> (69.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 20:54 上传
+
+
+大电池太生草了
+
+
+-----
+
+####  面具13  
+##### 5968#       发表于 2021-5-9 20:56
+
+
+live完过一个星期估计会打鸡血，播一播游戏，后面不好说。
+
+
+-----
+
+####  doushike  
+##### 5969#       发表于 2021-5-9 20:58
+
+
+不如每次重播一次sololive
+
+
+-----
+
+####  Klience  
+##### 5970#       发表于 2021-5-9 20:58
+
+
+那问题来了 夸哥会不会直播机8呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  zpy393  
+##### 5971#       发表于 2021-5-9 20:59
+
+
+ 本帖最后由 zpy393 于 2021-5-9 21:36 编辑 
+
+不要紧，等哪天夸夸人老珠黄跳不动了还是可以做回游戏主播的，游戏民还有最后的倔强<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+其实我最想不通的是这舞蹈动作还不如我妈的广场舞动作多，我妈每晚都能连着跳一小时不带重的呢，难道动捕这么影响动作吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Maonpuyo  
+##### 5972#       发表于 2021-5-9 20:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">机8可以删掉
+
+
+-----
+
+####  Klience  
+##### 5973#       发表于 2021-5-9 21:00
+
+
+我觉得这生化危机8放在血缘都没有什么问题 就差个翻滚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 5974#       发表于 2021-5-9 21:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">夸哥好久没直播lol了
+
+
+-----
+
+####  星の守  
+##### 5975#       发表于 2021-5-9 21:00
+
+
+妹啊，还开live呢，你到底要不要直播了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  心垂万刃  
+##### 5976#       发表于 2021-5-9 21:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">游戏民失望
+
+
+-----
+
+####  Klience  
+##### 5977#       发表于 2021-5-9 21:02
+
+
+上次私下玩lol是去年10.28 如果有需要我可以整理夸去年10.14-10.28的lol战绩出来
+
+
+-----
+
+####  Klience  
+##### 5978#       发表于 2021-5-9 21:03
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/210310vxtrug6run6ue0r0.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210509210256.png</strong> (46.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 21:03 上传
+
+
+哈哈哈哈哈哈哈哈哈哈或
+
+
+-----
+
+####  面具13  
+##### 5979#       发表于 2021-5-9 21:04
+
+
+这歌里有apex要素！
+
+
+-----
+
+####  Klience  
+##### 5980#       发表于 2021-5-9 21:04
+
+
+草 这暗示 碰到墓口成员就会受伤哈哈哈哈哈哈哈
+
+
+-----
+
+####  梅斯之围  
+##### 5981#       发表于 2021-5-9 21:07
+
+
+ 本帖最后由 梅斯之围 于 2021-5-9 21:09 编辑 
+
+吃洋葱、同社成员（貌似mio除外）和五角星（不知道是什么）会掉血
+
+
+看到有人说五角星是free，绷不住了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5982#       发表于 2021-5-9 21:08
+
+
+ppt天使甚至倒挂在天花板<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AKili  
+##### 5983#       发表于 2021-5-9 21:12
+
+
+五角星是傻紫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 5984#       发表于 2021-5-9 21:12
+
+
+ 本帖最后由 乌鸦绅士 于 2021-5-9 21:17 编辑 
+
+五角星是诗音<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 5985#       发表于 2021-5-9 21:13
+
+
+盐水贴贴欸<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 5986#       发表于 2021-5-9 21:13
+
+
+这背景 我记得是wtm的吧 你的房间背景呢
+
+
+-----
+
+####  梅斯之围  
+##### 5987#       发表于 2021-5-9 21:14
+
+
+ 本帖最后由 梅斯之围 于 2021-5-9 21:16 编辑 
+
+风怒
+
+
+-----
+
+####  昆西昆希昆  
+##### 5988#       发表于 2021-5-9 21:18
+
+
+反而是狐皇转推了。一定是狐皇以此摔杯为号买水军点踩<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 5989#       发表于 2021-5-9 21:19
+
+
+为什么这猫的动作总觉得是在顶胯
+
+
+-----
+
+####  17119854  
+##### 5990#       发表于 2021-5-9 21:21
+
+
+会限也有这只猫<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 5991#       发表于 2021-5-9 21:29
+
+
+然后是luna的背景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小心被月骑士冲
+
+
+-----
+
+####  Kanchiki  
+##### 5992#       发表于 2021-5-9 21:30
+
+
+刚才手的动作有点やばい啊
+
+
+-----
+
+####  面具13  
+##### 5993#       发表于 2021-5-9 21:37
+
+
+全社个人舞台遍历吗？
+
+
+-----
+
+####  昆西昆希昆  
+##### 5994#       发表于 2021-5-9 21:39
+
+
+偷图。这活整挺好
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/213912eopncrdzf82rvcgg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>56F129DB5E8E334A07699BAD6738F5A4.jpg</strong> (98.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 21:39 上传
+
+
