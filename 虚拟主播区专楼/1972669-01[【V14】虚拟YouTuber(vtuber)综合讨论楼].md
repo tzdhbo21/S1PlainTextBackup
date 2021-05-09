@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-08 13:52** 
+> ## **本文件最后更新于2021-05-09 14:51** 
 
 
 
@@ -8176,7 +8176,7 @@ bora,mondo,selly刚在自定义聊天栏用韩语对话，三个jp所属kr人太
 ##### 603#       发表于 2021-5-8 21:40
 
 
- 本帖最后由 alcoholic1000 于 2021-5-8 21:43 编辑 
+ 本帖最后由 alcoholic1000 于 2021-5-8 21:54 编辑 
 
 可恶，好可爱，好喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
@@ -8188,6 +8188,16 @@ bora,mondo,selly刚在自定义聊天栏用韩语对话，三个jp所属kr人太
 下载附件
 
 2021-5-8 21:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/215412geq59q99pq9iioiu.png" referrerpolicy="no-referrer">
+
+
+<strong>【新衣装お披露目＆可動域追加】さらにさらに動くｯ・・・・・！！【鈴原るる:にじさ.png</strong> (240.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 21:54 上传
 
 
 短发&gt;双马尾但是都好好看
@@ -8257,4 +8267,327 @@ bora,mondo,selly刚在自定义聊天栏用韩语对话，三个jp所属kr人太
 原发型加眼镜真不错，短发也蛮有感觉<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-                             
+-----
+
+####  s32244153  
+##### 611#       发表于 2021-5-8 21:53
+
+
+感觉真好<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/08/215235t01sbehes4y2tb1s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>11487.jpg</strong> (140.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 21:52 上传
+
+
+-----
+
+####  OldGlory  
+##### 612#       发表于 2021-5-8 21:53
+
+
+有些连2.0都没有的liver能直接跳到3.0吗？
+
+
+-----
+
+####  哈曼的YY  
+##### 613#       发表于 2021-5-8 22:05
+
+
+双马尾魔王<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 614#       发表于 2021-5-8 22:13
+
+
+铃原露露，群星的色彩。
+
+<img src="https://img.saraba1st.com/forum/202105/08/221315yd7epdupdfu77ds3.png" referrerpolicy="no-referrer">
+
+
+<strong>210508220959.png</strong> (133.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 22:13 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/221318skf6fgt8tj628a2m.png" referrerpolicy="no-referrer">
+
+
+<strong>210508220736.png</strong> (123.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 22:13 上传
+
+
+-----
+
+####  sgssk  
+##### 615#       发表于 2021-5-8 22:19
+
+
+[https://www.youtube.com/watch?v=DgOWY5rPd2k](https://www.youtube.com/watch?v=DgOWY5rPd2k)
+
+首页刷到圭利和野良猫的那个棉花糖，带上了前一个的，评论区真是<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+大陆：圭利表示爱讨论会失去赞助商，说明我们是重要赞助商，我们赢麻了；他又在下一条4v相关棉花糖上教科书式滴水不漏地化解了拱火，精彩，木口相比之下真的辣鸡，我们又赢麻了
+
+4v：圭利表示爱讨论会失去赞助商，真是个伏地魔赞助商啊嘿嘿，我们赢麻了；他又在下一条4v相关棉花糖上滴水不漏地暗示了伏地魔赞助商是谁，精彩，我看我们又赢麻了
+
+
+-----
+
+####  IDIDIDID  
+##### 616#       发表于 2021-5-8 22:22
+
+
+一件顶别人100件，建议其他liver找七姨太学一下怎么要资源
+
+
+-----
+
+####  FCCHua  
+##### 617#       发表于 2021-5-8 22:39
+
+
+ 本帖最后由 FCCHua 于 2021-5-8 22:41 编辑 
+
+四舍五入披露了好几套衣服<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+另外这不是3.0吧，应该算2.5？还是露露亲自说了是升的3.0<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 618#       发表于 2021-5-8 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51185519&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-5-8 22:39</a>
+
+四舍五入披露了好几套衣服
+
+另外这不是3.0吧，应该算2.5？还是露露亲自说了是升的3.0 ...</blockquote>
+不是3.0，没看开始，刚刚倒回去看了一下开头明确说了还不是3.0
+
+
+-----
+
+####  黑暗剑  
+##### 619#       发表于 2021-5-8 23:01
+
+
+ 本帖最后由 黑暗剑 于 2021-5-8 23:07 编辑 
+
+兜帽这个设计算是saine从开始画v曲曲绘执着到现在了
+
+
+-----
+
+####  哈曼的YY  
+##### 620#       发表于 2021-5-8 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51185367&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-5-8 22:22</a>
+
+一件顶别人100件，建议其他liver找七姨太学一下怎么要资源</blockquote>
+七姨太是什么梗
+
+
+-----
+
+####  OldGlory  
+##### 621#       发表于 2021-5-8 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51185776&amp;ptid=1972669" target="_blank">哈曼的YY 发表于 2021-5-8 23:08</a>
+
+七姨太是什么梗</blockquote>
+清龙人25里排老七
+
+
+-----
+
+####  rzrbtk  
+##### 622#       发表于 2021-5-9 15:19
+
+
+看了眼视频，露露那几件能组出70多个组合，羡慕了，感觉郡从未拥有过配件多的衣服...
+
+省一楼，昨天鸟组集训比我想得还对我胃口，
+
+开场，
+
+猫：“说起来要怎么称呼郡道老师啊？”
+
+郡：“诶？现在才问？我们也算合作了挺多次吧！？”
+
+猫：“不是啦（慌）是想看你喜欢被叫美玲老师还是美玲ちゃん（慌）。“
+
+郡：“那你叫我みーちゃん吧“
+
+舞元哈哥：“呜哇——！”
+
+郡：“干嘛惨叫啊！？很可爱吧（怒）！舞元你也可以叫我みーちゃん哦”
+
+舞：“哦哦，那好，那今天请多关照啊みーちゃん。”
+
+郡：“呜啊难顶，舞元来叫就感觉像圆角妹的名字一样...”
+
+
+《别装熟》
+
+
+-----
+
+####  fastary  
+##### 623#       发表于 2021-5-9 19:01
+
+
+ymen近一个月直播频率都比黛灰高了，而且前两天搞了个摄像头之后播的几次都是颜出直播<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不要啊，真就两年到期不续约回去当他的真人小主播吗，套皮到底有什么不好的<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+问题是ymen本音较高嗨一点听起来就不像黛灰了也不能拿来当代餐，可恶啊<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 624#       发表于 2021-5-9 20:05
+
+
+ 本帖最后由 FCCHua 于 2021-5-9 20:47 编辑 
+
+草，小熊猫3d居然是开幕唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+这什么3d新场景<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 凸待是好文明
+apex果然是社交游戏，诚不欺我<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+阿喵喵和eli去现场了，同期贴贴捏
+
+
+-----
+
+####  alcoholic1000  
+##### 625#       发表于 2021-5-9 20:08
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-9 20:56 编辑 
+
+3D化恭喜！
+
+<img src="https://img.saraba1st.com/forum/202105/09/200847nlu5ow67wuo6x7z6.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ぷてち3D​】身体、動くようになた【ラトナ・プティにじさんじ】-1.png.png</strong> (172.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 20:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/202318q0zl25x2yq2eyr3y.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ぷてち3D​】身体、動くようになた【ラトナ・プティにじさんじ】-2.png.png</strong> (230.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 20:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/205553vzsqsl98jvzgniur.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ぷてち3D​】身体、動くようになた【ラトナ・プティにじさんじ】-3副本.png.png</strong> (231.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 20:55 上传
+
+
+[https://www.youtube.com/watch?v=ZY_kwiM9j78](https://www.youtube.com/watch?v=ZY_kwiM9j78)
+
+
+-----
+
+####  free  
+##### 626#       发表于 2021-5-9 20:22
+
+
+[https://www.youtube.com/watch?v=gf7RSwmp8dM](https://www.youtube.com/watch?v=gf7RSwmp8dM)
+
+【3DLIVE】あくあ色すーぱーみらくる☆どり〜む♪【#湊あくあ3Dライブ​ 】
+
+
+-----
+
+####  winda  
+##### 627#       发表于 2021-5-9 20:30
+
+
+ 本帖最后由 winda 于 2021-5-9 20:47 编辑 
+
+噗酱3d虽然虚无但是可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+啊，开始凸待了
+宝三家现地凸，宝三家是真的
+
+
+-----
+
+####  FCCHua  
+##### 628#       发表于 2021-5-9 20:53
+
+
+ 本帖最后由 FCCHua 于 2021-5-9 20:59 编辑 
+
+bsyl 阿葵和小熊猫也是真的<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 不愧是熊，熊抱
+舞台长向日葵可还行
+互相打屁股？？？
+
+
+-----
+
+####  winda  
+##### 629#       发表于 2021-5-9 20:54
+
+
+说葵皇肉肉的<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">这时候都要占嘴上便宜么
+
+
+-----
+
+####  alcoholic1000  
+##### 630#       发表于 2021-5-9 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51191868&amp;ptid=1972669" target="_blank">fastary 发表于 2021-5-9 19:01</a>
+
+ymen近一个月直播频率都比黛灰高了，而且前两天搞了个摄像头之后播的几次都是颜出直播
+
+不要啊，真就 ...</blockquote>
+还真是，虽然やみえん小帅但和黑客テンション差太大了，如果2周年不干了会很可惜...
+
+
+
+
+-----
+
+####  Junchoon  
+##### 631#       发表于 2021-5-9 22:07
+
+
+看到露露在学ASMR，我想说：你平时说话就是ASMR，不用学......
+
+
+                            

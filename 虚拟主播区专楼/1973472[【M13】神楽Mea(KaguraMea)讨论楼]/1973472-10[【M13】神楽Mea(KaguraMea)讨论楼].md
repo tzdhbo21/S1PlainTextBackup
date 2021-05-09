@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-09 03:44** 
+> ## **本文件最后更新于2021-05-09 14:36** 
 
 
 
@@ -15545,5 +15545,212 @@ LOL<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referre
 
 
 傻傻的肉体也能涩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 14979#       发表于 2021-5-9 11:55
+
+
+别尬黑，小小麻给小麻过母亲节呢，基德基德
+
+
+-----
+
+####  雪风utopia  
+##### 14980#       发表于 2021-5-9 12:10
+
+
+期待小小麻给我过父亲节<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 14981#       发表于 2021-5-9 12:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">傻了说不定就直播事故肉体出道了呢
+
+
+-----
+
+####  呓亘  
+##### 14982#       发表于 2021-5-9 15:07
+
+
+往好处想 说不定这几天在研究新节目呢
+
+
+-----
+
+####  雪风utopia  
+##### 14983#       发表于 2021-5-9 15:10
+
+
+往坏里想，这两天天天和野男人翻云覆雨呢。。。。emmm，还蛮涩的
+
+
+-----
+
+####  Cushaw  
+##### 14984#       发表于 2021-5-9 18:35
+
+
+咩宝你在sj吗？今天晚上请不要突击好吗？我要看k宝的表演赛还有dh决赛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14985#       发表于 2021-5-9 19:31
+
+
+[https://www.youtube.com/watch?v=Te6rPCDXPGg](https://www.youtube.com/watch?v=Te6rPCDXPGg)
+
+2小时后开播
+
+
+-----
+
+####  雪风utopia  
+##### 14986#       发表于 2021-5-9 19:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51191667&amp;ptid=1973472" target="_blank">Cushaw 发表于 2021-5-9 18:35</a>
+咩宝你在sj吗？今天晚上请不要突击好吗？我要看k宝的表演赛还有dh决赛 ...</blockquote>
+能不能再奶一口杏爱直播<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14987#       发表于 2021-5-9 19:38
+
+
+咩宝能在11点之前唱完吗 我想看msi<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 14988#       发表于 2021-5-9 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那必播不完
+
+
+-----
+
+####  雪风utopia  
+##### 14989#       发表于 2021-5-9 19:42
+
+
+一个小时唱完不太可能，是时候做出选择了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14990#       发表于 2021-5-9 19:42
+
+
+那好 11点准时把吊人直播间关闭 臭女人 妨碍我看比赛 给我爬
+
+
+-----
+
+####  时间在我手中  
+##### 14991#       发表于 2021-5-9 19:46
+
+
+比赛谁寄吧看啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我是再也不看了
+
+
+-----
+
+####  Klience  
+##### 14992#       发表于 2021-5-9 19:47
+
+
+我说的是msi 不是辱华游戏比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 14993#       发表于 2021-5-9 19:51
+
+
+他会不会看dfm的比赛啊
+
+
+-----
+
+####  时间在我手中  
+##### 14994#       发表于 2021-5-9 19:54
+
+
+我觉得都一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正以后打死不看了，等成都总冠军我一定看录播.jpg
+
+
+syl 臭女人好像这几天心情不太行的样子，希望今晚丧一点
+
+
+-----
+
+####  Klience  
+##### 14995#       发表于 2021-5-9 19:55
+
+
+dfm？ 算了吧 没有大头人柱力 少了乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 14996#       发表于 2021-5-9 19:56
+
+
+就很喜欢owl的一句弹幕“这个世界不需要守望先锋”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 14997#       发表于 2021-5-9 19:58
+
+
+bsyl，臭女人看得懂中文是吧，给爷爬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Mr.shelter  
+##### 14998#       发表于 2021-5-9 21:26
+
+
+十点歌回
+
+
+-----
+
+####  Klience  
+##### 14999#       发表于 2021-5-9 21:33
+
+
+臭女人11点之前没唱完歌直接把你直播间关了看msi比赛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 15000#       发表于 2021-5-9 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">难道是真怀上了？
 
 
