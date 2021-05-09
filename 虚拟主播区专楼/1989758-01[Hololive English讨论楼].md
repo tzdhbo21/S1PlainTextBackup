@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-07 23:41** 
+> ## **本文件最后更新于2021-05-09 01:39** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_qnk4a" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_F9bce" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9259,7 +9259,7 @@ Rigger HATE!</blockquote>
 
 
 bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_fKkVP" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_AR7b3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -9760,4 +9760,294 @@ AME这套真的好看，为啥鲨鱼那套成那个样子了，感觉是l2d没�
 2021-5-8 07:34 上传
 
 
-                             
+-----
+
+####  wiig  
+##### 611#       发表于 2021-5-8 08:24
+
+
+they are dating aren't they...?
+<img src="https://p.sda1.dev/1/bafe2fb6f7b721bbf16c461bd532a450/IMG_CMP_200811689.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|欢乐多|
+| Map-2| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  面具13  
+##### 612#       发表于 2021-5-8 08:31
+
+
+ 本帖最后由 面具13 于 2021-5-8 08:34 编辑 
+
+戴眼镜的版本很棒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+草，挠臀人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  心垂万刃  
+##### 613#       发表于 2021-5-8 08:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51176352&amp;ptid=1989758" target="_blank">帆乃花 发表于 2021-5-8 06:28</a>
+虽然没实装Live2D 但是有画可脱差分</blockquote>
+这牛仔短裤也能脱的话不就成了泳装了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 614#         楼主| 发表于 2021-5-8 08:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51176828&amp;ptid=1989758" target="_blank">心垂万刃 发表于 2021-5-8 08:38</a>
+
+这牛仔短裤也能脱的话不就成了泳装了吗？</blockquote>
+holo以前都是有泳装的吧
+
+
+-----
+
+####  心垂万刃  
+##### 615#       发表于 2021-5-8 08:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51176902&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-8 08:46</a>
+holo以前都是有泳装的吧</blockquote>
+不敢再出了，怕被ban<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 616#       发表于 2021-5-8 09:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">是，没实装的理由就是担心被ban
+
+
+-----
+
+####  wiig  
+##### 617#       发表于 2021-5-8 09:43
+
+
+<img src="https://p.sda1.dev/1/f76dee1f3c5b03794e4f941ae86fd1b4/IMG_CMP_256048808.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 618#       发表于 2021-5-8 09:44
+
+
+🔎: Hey can you help me out with this zipper?
+🔱: Sure thing.
+🔎: . . .
+🔎: UP, Gura.
+🔱: Right, sorry.
+
+
+-----
+
+####  allenz2  
+##### 619#       发表于 2021-5-8 10:26
+
+
+看了下观众猜的展示，大部分都猜中头上的是bubba
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  帆乃花  
+##### 620#       发表于 2021-5-8 10:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51178184&amp;ptid=1989758" target="_blank">allenz2 发表于 2021-5-8 10:26</a>
+
+看了下观众猜的展示，大部分都猜中头上的是bubba
+
+
+—— 来自 S1Fun</blockquote>
+头顶小胡子还挺好猜的
+
+
+-----
+
+####  wiig  
+##### 621#       发表于 2021-5-8 10:54
+
+
+<img src="https://p.sda1.dev/1/66f9515fd571f82bc13d6cdf17ec410e/IMG_CMP_234829125.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 622#       发表于 2021-5-8 11:12
+
+
+I don't want to set the world on Fire<img src="https://static.saraba1st.com/image/smiley/face2017/063.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 623#       发表于 2021-5-8 11:34
+
+
+ 本帖最后由 wiig 于 2021-5-8 11:47 编辑 
+
+rocket ame
+<img src="https://p.sda1.dev/1/9a2067b367f3beeb79fa31f5fd1fb609/IMG_CMP_11880575.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/d613a68b6915f9113d14b121d11be7b7/1390872084360933376.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  被子十三  
+##### 624#       发表于 2021-5-8 12:42
+
+
+**Ame getting casual outfit**
+Chat: She's so cute is this really our Ame?
+**Ame scratching her butt**
+Chat: Ok that's her
+
+
+-----
+
+####  wiig  
+##### 625#       发表于 2021-5-8 18:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 626#       发表于 2021-5-8 21:07
+
+
+<img src="https://p.sda1.dev/1/53c72c87a170fa45b14e2c7aee7d4c94/IMG_CMP_12845099.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帆乃花  
+##### 627#       发表于 2021-5-8 23:15
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/231500vnhw8szwfm8uyfgu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (455.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 23:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/231506tgslxlbijzxbh9fe.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (295.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 23:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/08/231511wfftr0dv5v3fj05d.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (337.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-8 23:15 上传
+
+
+-----
+
+####  wiig  
+##### 628#       发表于 2021-5-9 07:45
+
+
+五人合唱take me home,country road
+
+
+-----
+
+####  smy20011  
+##### 629#         楼主| 发表于 2021-5-9 07:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51187352&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-9 07:45</a>
+
+五人合唱take me home,country road</blockquote>
+这首版权居然谈下来了么。。
+
+
+-----
+
+####  wiig  
+##### 630#       发表于 2021-5-9 07:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51187358&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-9 07:47</a>
+这首版权居然谈下来了么。。</blockquote>
+以后可以唱不删档了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  smy20011  
+##### 631#         楼主| 发表于 2021-5-9 08:58
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/085850nqttjvavsq77t05c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E053Gy5VoAE4O4e.jpeg</strong> (73.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 08:58 上传
+
+
+合照
+
+
+-----
+
+####  wiig  
+##### 632#       发表于 2021-5-9 09:13
+
+
+<img src="https://p.sda1.dev/1/e7844eb1fcc8b4554407008334824727/IMG_CMP_88836767.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/67334dc721de97932e0afc52b62055a1/IMG_CMP_31670354.jpeg" referrerpolicy="no-referrer">
+
+
+                            

@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-03 08:42** 
+> ## **本文件最后更新于2021-05-09 01:37** 
 
 
 
@@ -15743,4 +15743,480 @@ q娃牧场？
 两个人之间由此产生了误解和隔阂
 
 
-    
+-----
+
+####  达达葱2  
+##### 1353#       发表于 2021-5-3 20:03
+
+
+<blockquote>damian-wade 发表于 2021-5-3 15:51
+不是，既然人鱼的pad能把抢回来的干劲给Q娃加buff，如果平时拿夏哥当电池的话，不就是一个Trans-Am的原理 ...</blockquote>
+这脑洞……
+
+
+-----
+
+####  RoPlem  
+##### 1354#       发表于 2021-5-5 08:35
+
+
+希望人鱼再屑点，这几集太姑娘了。别的人物臭屁起来我只会觉得噶和恶心，怎么屑人鱼我就嫌不够呢
+
+
+-----
+
+####  shimmy1996  
+##### 1355#       发表于 2021-5-5 08:56
+
+
+萝拉钻下水道回来看到真夏已经恢复又高兴又委屈的样子太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shimmy1996  
+##### 1356#       发表于 2021-5-5 08:59
+
+
+越来越觉得这次的胜利台词真棒啊，简单明了充满朝气的victory（就是喊的太早了w
+不过大招的缝合火烈鸟有点丑<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG+  
+##### 1357#       发表于 2021-5-5 14:47
+
+
+<blockquote>shimmy1996 发表于 2021-5-5 08:59
+越来越觉得这次的胜利台词真棒啊，简单明了充满朝气的victory（就是喊的太早了w
+
+不过大招的缝合火烈鸟有点 ...</blockquote>
+挺可爱的
+
+是各个成员代表元素的组合
+
+
+-----
+
+####  坂上あゆみ  
+##### 1358#       发表于 2021-5-5 18:49
+
+
+ 本帖最后由 坂上あゆみ 于 2021-5-7 10:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51147442&amp;ptid=1963832" target="_blank">shimmy1996 发表于 2021-5-5 08:59</a>
+
+越来越觉得这次的胜利台词真棒啊，简单明了充满朝气的victory（就是喊的太早了w
+
+不过大招的缝合火烈鸟有点 ...</blockquote>
+感觉缝合出个秃鹰娜
+<img src="https://wx2.sinaimg.cn/mw690/69559a0agy1gq7qu2kqhsj20dw0dw0ve.jpg" referrerpolicy="no-referrer">
+
+
+630Mandibuzz_Dream.png
+(27.05 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-7 10:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/103250ld39yv3lxpdvba1e.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  saya1892  
+##### 1359#       发表于 2021-5-5 19:27
+
+
+今年的日常看得确实舒服，每一个角色都不过火，互动也写得好
+
+就是战斗节奏实在太悠闲了，不能紧凑点吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  新HGCG  
+##### 1360#       发表于 2021-5-6 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51151869&amp;ptid=1963832" target="_blank">saya1892 发表于 2021-5-5 19:27</a>
+
+今年的日常看得确实舒服，每一个角色都不过火，互动也写得好
+
+就是战斗节奏实在太悠闲了，不能紧凑点吗[f:00 ...</blockquote>
+能打的都去支援神龙之谜和境界触发者了……
+
+鬼灭给东A刺激太大……
+
+
+-----
+
+####  达达葱2  
+##### 1361#       发表于 2021-5-6 19:50
+
+
+<blockquote>坂上あゆみ 发表于 2021-5-5 18:49
+感觉缝合出个秃鹰娜</blockquote>
+头上有紫色的毛啊
+
+
+-----
+
+####  新HGCG  
+##### 1362#       发表于 2021-5-6 19:50
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/194816wjwtjut5hijhzrvj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (156.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 19:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/194835hz3z76stpvb4k3j3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (121.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 19:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/194848mzsf98wfdiifnvif.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (206.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 19:48 上传
+
+
+屑人鱼和木瓜交换身体！
+
+前前前世！
+
+
+<img src="https://img.saraba1st.com/forum/202105/06/195049dfz99nd9924oercn.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (33.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-6 19:50 上传
+
+
+-----
+
+####  天邪鬼  
+##### 1363#       发表于 2021-5-6 21:22
+
+
+成田良美回来写光美了？会有bg情节吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG-闪  
+##### 1364#       发表于 2021-5-6 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51163019&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-5-6 21:22</a>
+
+成田良美回来写光美了？会有bg情节吗</blockquote>
+有BG的话你觉得会是谁
+
+
+-----
+
+####  最强惠酱  
+##### 1365#       发表于 2021-5-6 23:25
+
+
+可目前“友情”味最浓的第10集却是成田写的，会不会转型了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Sliurus  
+##### 1366#       发表于 2021-5-6 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51164010&amp;ptid=1963832" target="_blank">HGCG-闪 发表于 2021-5-6 23:14</a>
+
+有BG的话你觉得会是谁</blockquote>
+bg的话必然是空降路人，那么谁突然谈恋爱最有冲击力呢？
+
+木瓜
+
+其他人都特别适合得知情况后在一边大喊大叫的角色
+
+
+-----
+
+####  RoPlem  
+##### 1367#       发表于 2021-5-7 02:05
+
+
+<blockquote>Sliurus 发表于 2021-5-6 23:40
+bg的话必然是空降路人，那么谁突然谈恋爱最有冲击力呢？
+
+木瓜
+
+其他人都特别适合得知情况后在一边大喊大叫 ...</blockquote>
+如果是木瓜的话必然是小美人鱼复刻，但是最后肯定会被屑人鱼骂醒
+
+
+-----
+
+####  天邪鬼  
+##### 1368#       发表于 2021-5-7 08:39
+
+
+ 本帖最后由 天邪鬼 于 2021-5-7 08:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51164010&amp;ptid=1963832" target="_blank">HGCG-闪 发表于 2021-5-6 23:14</a>
+有BG的话你觉得会是谁</blockquote>
+飞鸟啊，q娃的bg除非是主要角色，不然很难成，要成也不会那么快，所以大概率是情伤
+来个飞鸟为了喜欢的人变得不像自己，被看不下去的白鸟一巴掌打醒了后意识到失去了独立人格，只会讨好别人的自己将会活得又累又难受。
+打完怪了飞鸟表示这几天实在不好意思，打扰你了，然后打了白鸟一巴掌。
+“有话好好说，打人干什么”
+结果男同学看了之后脸红了，说了句好帅。这集就在大家“诶————？！”的声音中结束了
+不过不算主角团的话，bg情节由老师来引出最方便了
+
+
+-----
+
+####  PrincessBanana  
+##### 1369#       发表于 2021-5-7 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165928&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-5-7 08:39</a>
+
+飞鸟啊，q娃的bg除非是主要角色，不然很难成，要成也不会那么快，所以大概率是情伤
+
+来个飞鸟为了喜欢的人 ...</blockquote>
+你这飞鸟怎么一股黄大力的味道<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  天邪鬼  
+##### 1370#       发表于 2021-5-7 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51166921&amp;ptid=1963832" target="_blank">PrincessBanana 发表于 2021-5-7 10:14</a>
+你这飞鸟怎么一股黄大力的味道</blockquote>
+啊，这样吗？
+那就相信成田大妈写感情戏的功力吧
+她应该不会来个老调重弹，不知道从哪跑出来个留学生把红迷的神魂颠倒然后回国吧
+
+
+-----
+
+####  DARK_HGCG  
+##### 1371#       发表于 2021-5-7 18:38
+
+
+<blockquote>天邪鬼 发表于 2021-5-7 18:04
+啊，这样吗？
+
+那就相信成田大妈写感情戏的功力吧
+
+她应该不会来个老调重弹，不知道从哪跑出来个留学生把红 ...</blockquote>
+然后在小说版里跑回来和红同居？
+
+
+-----
+
+####  天邪鬼  
+##### 1372#       发表于 2021-5-7 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51172332&amp;ptid=1963832" target="_blank">DARK_HGCG 发表于 2021-5-7 18:38</a>
+然后在小说版里跑回来和红同居？</blockquote>
+这我其实不反对，我只是不想看到太重复的剧情
+
+
+-----
+
+####  Sliurus  
+##### 1373#       发表于 2021-5-7 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51172056&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-5-7 18:04</a>
+
+啊，这样吗？
+
+那就相信成田大妈写感情戏的功力吧
+
+她应该不会来个老调重弹，不知道从哪跑出来个留学生把红 ...</blockquote>
+夏海真夏35岁
+
+
+-----
+
+####  粉儿alice  
+##### 1374#       发表于 2021-5-7 20:34
+
+
+q娃换汤不换药反而恶劣化重复日常剧情也不多说什么了 
+日向考25分的剧情才过去多久 真夏就来了一个9分的剧情 好歹日向是拿了女主剧本的黄q娃<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+后面预告 实和屑咸鱼换身体又是早玩写的剧情
+
+
+-----
+
+####  天邪鬼  
+##### 1375#       发表于 2021-5-7 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51172936&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-5-7 19:54</a>
+夏海真夏35岁</blockquote>
+那倒不至于<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+而且对于那篇同人文，我是觉得与其让怪打败她们，还不如来个后日谈，就说她们干掉最终boss，回归日常生活后现实的重担把她们压的喘不过气。
+这里面再穿插点像是萝拉当上女王后因为对人类态度软弱甚至友好，导致国内怨声鼎沸，萝拉一气之下用摸鱼怪把国民的干劲都抽了。飞鸟为了参加网球比赛横穿马路被大卡车创到余生只能在病床度过。美乃铃当了个小作家，但是因为写的故事太老套，甚至没多少出版社要。珊瑚脸上的妆越来越浓，但气色越来越差。真夏所在的水族馆人来的越来越少，快经营不下去的她决定和萝拉干起人鱼贩卖。最开始只是让人鱼表演，之后一名演员过劳死后，真夏开始打起了人鱼身体的主意。
+骨头磨成粉，让珊瑚做成化妆品。肉割下来熬粥，给员工喝，同时高价贩卖。皮被剥下来做成标本。靠着这个生意的暴利，真夏甚至把美人鱼展的展馆买了下来，放那些惟妙惟肖的“人鱼雕像”
+
+
+-----
+
+####  HGCG-闪  
+##### 1376#       发表于 2021-5-7 22:23
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/222252zwwwwtiwtszzbcnw.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (67.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 22:22 上传
+
+
+屑人鱼这是要干什么
+
+<img src="https://img.saraba1st.com/forum/202105/07/222301icbcze9bm5ckvih9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (41.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 22:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/222316o1gvsonwgqbpqpzj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (54.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 22:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/07/222324cgze9z5zpx6g5hnm.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (41.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-7 22:23 上传
+
+
+-----
+
+####  Sliurus  
+##### 1377#       发表于 2021-5-7 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51174147&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-5-7 21:55</a>
+
+那倒不至于
+
+而且对于那篇同人文，我是觉得与其让怪打败她们，还不如来个后日谈，就说她们干掉最终 ...</blockquote>
+干脆让夏夏当下一届魔女得了，变成闭环的故事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  天邪鬼  
+##### 1378#       发表于 2021-5-7 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51174626&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-5-7 22:43</a>
+干脆让夏夏当下一届魔女得了，变成闭环的故事</blockquote>
+村姑变身魔法少女后还逆袭成为魔女，这也太励志了吧
+不行，太便宜她了，建议去boss那被当干劲矿用个几年再说。使用方法就是抽干劲，虐队友，抽干劲，如此循环往复，要么被榨成人干，要么就是肉身对抽干劲有抵抗力(好像原本就有)
+或者跟天河明人一样萝拉和她都被抓，她被反复实验，侥幸出逃变成复仇鬼。在把怠惰魔女一行彻彻底底地消灭掉之后，落魄离去。现在的她，已经尝不出蜜瓜包的味道，看不了人鱼小说了
+
+
+-----
+
+####  PrincessBanana  
+##### 1379#       发表于 2021-5-8 09:09
+
+
+ 本帖最后由 PrincessBanana 于 2021-5-8 09:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51174806&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-5-7 23:01</a>
+
+村姑变身魔法少女后还逆袭成为魔女，这也太励志了吧
+
+不行，太便宜她了，建议去boss那被当干劲矿用个几年 ...</blockquote>
+然后萝拉从沉睡中醒来，大喊一声“我要当海洋女皇！”
+
+周围的大家都松了一口气“太好了，她还是和以前一样屑。”<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DARK_HGCG  
+##### 1380#       发表于 2021-5-9 07:57
+
+
+以为这集就是一般的玩乐回但不是啊
+
+
+
+
+-----
+
+####  kerfars  
+##### 1381#       发表于 2021-5-9 08:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">本年度智商担当竟是萝拉！
+
+这集萝拉开始寂寞和羡慕应该就是为了变人埋伏笔了
+
+
+这集萝拉表现也非常亮眼，能在关键时候给真夏提出了防雨的方法
+
+最后还特地给镜头，让真夏单独找萝拉跟她说之后部活都会考虑萝拉能参加的
+
+能感觉到萝拉这个角色真的被用心在塑造，越来越喜欢萝拉了
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1382#       发表于 2021-5-9 09:29
+
+
+怎么隔了一周爱奇艺还是720p的。。。。
+
+
+   
