@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-09 04:49** 
+> ## **本文件最后更新于2021-05-09 10:44** 
 
 
 
@@ -12718,4 +12718,416 @@ vivy这是固件更新了吧
 上一集结尾原来宕机了吗
 
 
-                 
+-----
+
+####  aptx8285144  
+##### 965#       发表于 2021-5-9 12:51
+
+
+这话看完还是心情挺复杂的，因为失忆和转换还是有些突然，因此一开始有点无语，松本和vivi关系突然至少看上去那么恋爱喜剧味，也不太习惯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  青龙圣者  
+##### 966#       发表于 2021-5-9 12:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51187202&amp;ptid=1982987" target="_blank">DARK_HGCG 发表于 2021-5-9 06:06</a>
+有个问题。这黑丝连裤袜是机器人躯体的一部分还是普通的服装</blockquote>
+衣服啊，op里不是有穿袜子。
+
+—— 来自 vivo V1824A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  aptx8285144  
+##### 967#       发表于 2021-5-9 12:54
+
+
+ 本帖最后由 aptx8285144 于 2021-5-9 12:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51187192&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-9 05:58</a>
+
+三首新歌，虽然有一首只唱了第一句。
+
+Diva形态好飒，把周围所有人以及松本都吃的死死的啊。
+
+Grace那对真惨 ...</blockquote>
+个人觉得这片感觉目前最好听的两首都不是vivi唱的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，一首日笠在结尾那首插入曲，另一首就是这话新出场的“妹妹”
+
+
+-----
+
+####  LeonsCat  
+##### 968#       发表于 2021-5-9 12:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51189286&amp;ptid=1982987" target="_blank">aptx8285144 发表于 2021-5-9 12:54</a>
+
+个人觉得这片感觉目前最好听的几首都不是vivi唱的，一首日笠在结尾那首插入曲，另一首就是这话新 ...</blockquote>
+善意猜测，最后要憋大招？
+
+毕竟上一话都来个MACROSS正统在Vivy了，盲猜最后会有个更大场面的Live。
+
+
+-----
+
+####  最强惠酱  
+##### 969#       发表于 2021-5-9 13:17
+
+
+这集和松本有种分手情侣的拌嘴感，化身重女人的vivy真有意思
+
+
+-----
+
+####  最强惠酱  
+##### 970#       发表于 2021-5-9 13:19
+
+
+不过这次美化特写实在是和平时差异过大总让我想起海绵宝宝的惊悚反差大特写，有点出戏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gofbayrf  
+##### 971#       发表于 2021-5-9 13:27
+
+
+重啟這麽好用 妹妹要自盡干嘛
+
+
+-----
+
+####  dark_templar  
+##### 972#       发表于 2021-5-9 13:35
+
+
+别的也就罢了为什么AI还要睡觉和运动
+
+
+-----
+
+####  andyjin  
+##### 973#       发表于 2021-5-9 13:37
+
+
+这片里的AI不应该当做常识中的AI，其实想表现的是一种人类创造的新物种吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+它有什么特性就全是设定了
+
+
+-----
+
+####  绞刑架  
+##### 974#       发表于 2021-5-9 13:39
+
+
+第一个AI人权法案，第一个AI空袭、第一个AI结婚，第一个AI自杀，什么时候能看到第一个AI生孩子<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rynchee  
+##### 975#       发表于 2021-5-9 13:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51189644&amp;ptid=1982987" target="_blank">绞刑架 发表于 2021-5-9 13:39</a>
+第一个AI人权法案，第一个AI空袭、第一个AI结婚，第一个AI自杀，什么时候能看到第一个AI生孩子 ...</blockquote>
+新出场得小哥跟几十年前得小哥一模一样，相像程度到了连AI都会弄混的地步。你说新小哥是怎么出生的？
+
+
+-----
+
+####  zakki  
+##### 976#       发表于 2021-5-9 13:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51189268&amp;ptid=1982987" target="_blank">青龙圣者 发表于 2021-5-9 12:52</a>
+衣服啊，op里不是有穿袜子。
+
+—— 来自 vivo V1824A, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+青龙佬也来了吗，可以去看看b站的零之幻影，考察vivy和你考察寒蝉的角度和结论基本一模一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">双世界叙诡，双世界拼接等等
+
+
+-----
+
+####  青龙圣者  
+##### 977#       发表于 2021-5-9 14:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51189716&amp;ptid=1982987" target="_blank">zakki 发表于 2021-5-9 13:50</a>
+
+青龙佬也来了吗，可以去看看b站的零之幻影，考察vivy和你考察寒蝉的角度和结论基本一模一样双世界 ...</blockquote>
+vivy的剧本还是有点悬，梅原和长月12集大概率拉胯所以我都没怎么认真看。
+
+
+-----
+
+####  afsd109  
+##### 978#       发表于 2021-5-9 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51189607&amp;ptid=1982987" target="_blank">dark_templar 发表于 2021-5-9 13:35</a>
+
+别的也就罢了为什么AI还要睡觉和运动</blockquote>
+睡觉相当于待机休息，毕竟机器一直运转也是会缩短寿命，而且歌姬这种服务型机器人在人类睡觉的时候也没活干啊。
+
+
+-----
+
+####  saberserker  
+##### 979#       发表于 2021-5-9 15:31
+
+
+补到最新话这不赛博魔法少女吗，致敬小圆10周年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Benetyrant  
+##### 980#       发表于 2021-5-9 15:34
+
+
+都61岁了，好像离上次又过了30-40年？印象里刚出场的时候vivy岁数并不大吧。那个生命力如小强的大叔，还没变成老头？
+
+
+-----
+
+####  Tehebe  
+##### 981#       发表于 2021-5-9 15:42
+
+
+元气的歌姬，性格也强势了不少，好评的停不下来，倒是松本怎么也多出点人性来了，这是奇怪的flag啊
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  susan28  
+##### 982#       发表于 2021-5-9 16:09
+
+
+一开始 我还以为是微微的同胞姐妹呢！ 润润 在20分05秒 那个配音真可爱啊 笑到我了 
+
+
+还有机器人还要做瑜伽啊！
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/160844xfwqtb1ccnf4jt1q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 07 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (193.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 16:08 上传
+
+
+小黑 好色的衣服啊
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/160935e9kj97229eujkt5j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 07 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (115.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 16:09 上传
+
+
+我TM 站这对CP!
+
+<img src="https://img.saraba1st.com/forum/202105/09/160955h2r31cpm1r3zt94r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 07 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (152.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 16:09 上传
+
+
+-----
+
+####  susan28  
+##### 983#       发表于 2021-5-9 16:18
+
+
+又制作了2个GIF  这衣服 好 时尚 啊
+
+<img src="http:////tvax2.sinaimg.cn/large/7021eb5cly1gqc8y24tdhg20dw07lx6s.gif" referrerpolicy="no-referrer">
+
+<img src="http:////tva1.sinaimg.cn/large/7021eb5cly1gqc8z51rmsg20dw07t4qw.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG-闪  
+##### 984#       发表于 2021-5-9 16:36
+
+
+巴克亚罗和ssss和哥斯拉SP和VIVY都让人迫不及待地想看下一集
+
+这个月机器人动画绝赞期间限定中兴ing
+
+
+-----
+
+####  神妻天理  
+##### 985#       发表于 2021-5-9 16:39
+
+
+这集一开始一脸懵逼，机器人还能这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  九一式  
+##### 986#       发表于 2021-5-9 16:45
+
+
+被救的大叔第一集就出场要杀ai人权法议员，61年过去了没老可还行，莫不是大叔也是ai。。
+
+
+-----
+
+####  HGCG-闪  
+##### 987#       发表于 2021-5-9 16:59
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/165934gt4krcqjzervpvbu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (121.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 16:59 上传
+
+
+-----
+
+####  406  
+##### 988#       发表于 2021-5-9 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51189607&amp;ptid=1982987" target="_blank">dark_templar 发表于 2021-5-9 13:35</a>
+
+别的也就罢了为什么AI还要睡觉和运动</blockquote>
+你忘记第一集Vivy就学人类而无用地给机械喉咙喷润喉水了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别因为这集VIVY皮得理所当然就以为这种作法是真的有意义了啊
+
+
+-----
+
+####  supergamer2  
+##### 989#       发表于 2021-5-9 17:03
+
+
+这OP越听越有味，个人目前年度最佳
+
+
+-----
+
+####  Benetyrant  
+##### 990#       发表于 2021-5-9 17:09
+
+
+刚开始真以为小黑是米浴，太像了
+
+
+
+
+-----
+
+####  nicholas30  
+##### 991#       发表于 2021-5-9 17:18
+
+
+這一失憶，性格轉變，業務能力也大幅提升了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  moimoi  
+##### 992#       发表于 2021-5-9 18:01
+
+
+<blockquote>renkan119 发表于 2021-5-9 00:41
+第一话不就说了不能切换吗…</blockquote>
+你搞错了吧，第一集说的是AI在当前状态下只能有一个使命，因为不同使命会造成冲突，没说不能切换吧？
+
+护士就是从护士的使命切换成主脑的使命
+
+
+-----
+
+####  shadow001  
+##### 993#       发表于 2021-5-9 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51191449&amp;ptid=1982987" target="_blank">moimoi 发表于 2021-5-9 18:01</a>
+
+你搞错了吧，第一集说的是AI在当前状态下只能有一个使命，因为不同使命会造成冲突，没说不能切换吧？
+
+护 ...</blockquote>
+從第6集博士的說法,護士是第1例被改使命的AI
+
+首例還直接負責自動工廠這重要項目,真是迷操作
+
+不過這片的科學家一直有各種迷操作,可能劇中已習慣,見怪不怪了
+
+
+-----
+
+####  a12885084  
+##### 994#       发表于 2021-5-9 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51187308&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-9 07:32</a>
+ 我很好奇Diva模式里打响指那套是怎么培育出的人格。第一话还在小舞台的时候的Diva也没这么飒爽的性格啊。 ...</blockquote>
+看到现在应该明白了
+编剧是不会解释的<img src="https://static.saraba1st.com/image/smiley/carton2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  亚瑟邓特  
+##### 995#       发表于 2021-5-9 18:31
+
+
+奥斯卡是怎么得到的控心能力来着，只记得丹尼尔是奥斯卡给调的了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  a12885084  
+##### 996#       发表于 2021-5-9 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190387&amp;ptid=1982987" target="_blank">Benetyrant 发表于 2021-5-9 15:34</a>
+ 都61岁了，好像离上次又过了30-40年？印象里刚出场的时候vivy岁数并不大吧。那个生命力如小强的大叔，还没 ...</blockquote>
+肯定变老头了
+这一话小哥给的镜头是第一二话救人时的那一幕
+我猜要么是后代要么是克隆人或者一样外表的AI
+反正不是那个小哥本人
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 997#       发表于 2021-5-9 18:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190880&amp;ptid=1982987" target="_blank">九一式 发表于 2021-5-9 16:45</a>
+被救的大叔第一集就出场要杀ai人权法议员，61年过去了没老可还行，莫不是大叔也是ai。。 ...</blockquote>
+其实很好猜，无非是机械飞升或者找了个铁人儿子，儿子换皮成老爸的样子。
+
+—— 来自 Xiaomi M2010J19SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                
