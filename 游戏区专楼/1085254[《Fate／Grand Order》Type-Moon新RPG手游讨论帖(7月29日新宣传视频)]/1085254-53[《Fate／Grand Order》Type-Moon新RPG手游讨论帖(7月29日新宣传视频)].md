@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-03 11:34** 
+> ## **本文件最后更新于2021-05-09 07:39** 
 
 
 
@@ -7774,4 +7774,331 @@ Waltz音游里最后的剧情就是整个Waltz舞会是鹤向罗曼的报恩，�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上年活动还行，至少泳装，咕哒咕哒，深海我都看完了。今年什么情人节，白情，爬塔，我都是快进看个寂寞。牛肉丸那个忘记有没有快进了
 
 
-                           
+-----
+
+####  久井路路  
+##### 78665#       发表于 2021-5-3 22:33
+
+
+我已经记不得这是fgo第几次活动实装新角色、活动剧情打自己了（
+
+
+同一个套路看多了谁都会腻（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78666#       发表于 2021-5-4 08:41
+
+
+<blockquote>久井路路 发表于 2021-5-3 22:33
+我已经记不得这是fgo第几次活动实装新角色、活动剧情打自己了（
+
+
+同一个套路看多了谁都会腻（ ...</blockquote>
+这不是很正常吗，活动队友是四星，打的boss是五星。
+
+
+-----
+
+####  千叶铁矢  
+##### 78667#       发表于 2021-5-4 10:47
+
+
+这回高难的旧剑简直就是bx的靶子
+
+
+-----
+
+####  rooarr  
+##### 78668#       发表于 2021-5-4 13:21
+
+
+不止我一个人从来不看剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78669#       发表于 2021-5-4 17:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，我觉得正常本能不能也像这次活动，不同center播不同的歌。虽然活动结束估计就没了
+
+
+-----
+
+####  黑上シグマ  
+##### 78670#       发表于 2021-5-4 17:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51142972&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-4 17:06</a>
+
+有一说一，我觉得正常本能不能也像这次活动，不同center播不同的歌。虽然活动结束估计就没了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，这次活动我就没开过声音
+
+
+-----
+
+####  里村紅葉  
+##### 78671#       发表于 2021-5-4 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51142972&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-4 17:06</a>
+
+有一说一，我觉得正常本能不能也像这次活动，不同center播不同的歌。虽然活动结束估计就没了 ...</blockquote>
+有一说一，我打什么游戏都不开声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78672#       发表于 2021-5-4 17:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纸片人的声音也是卖相的一部分！不能不品
+
+
+-----
+
+####  areklose  
+##### 78673#       发表于 2021-5-5 21:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">讲个鬼故事，我没怎么注意点数加成，因为一直觉得这玩意溢出。然后我发现我棋子都快搬完了。我都打不了最高收益本
+
+
+-----
+
+####  DARKGRAY  
+##### 78674#       发表于 2021-5-5 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51152651&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-5 21:08</a>
+
+讲个鬼故事，我没怎么注意点数加成，因为一直觉得这玩意溢出。然后我发现我棋子都快搬完了。我都打 ...</blockquote>
+这种活动第一次基本都是要好多加成才能让点数跟上的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 78675#       发表于 2021-5-5 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51152651&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-5 21:08</a>
+
+讲个鬼故事，我没怎么注意点数加成，因为一直觉得这玩意溢出。然后我发现我棋子都快搬完了。我都打 ...</blockquote>
+你把会溢出的东西搞反了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78676#       发表于 2021-5-5 23:32
+
+
+我现在点数加成都堆到300%了一次才5W多点数。
+
+
+-----
+
+####  exiaexa  
+##### 78677#       发表于 2021-5-6 03:38
+
+
+所以不要再问为什么流水不行/没有人抽礼装
+
+fgo活动早就变成，氪金加成是傻逼的模式了，金银铜最后永远都是溢出的，点数永远不够
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  清风朗月  
+##### 78678#       发表于 2021-5-7 07:56
+
+
+群友天天抱怨黑贞总司为啥不出灵衣，我说白贞都拉着那样了你想黑贞能好到哪去再说画五套衣服你是要累死临时工啊，他突然释然了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78679#       发表于 2021-5-7 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165674&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-5-7 07:56</a>
+
+群友天天抱怨黑贞总司为啥不出灵衣，我说白贞都拉着那样了你想黑贞能好到哪去再说画五套衣服你是要累死临时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">总司不是才出了半年吗
+
+
+-----
+
+####  qixinno2  
+##### 78680#       发表于 2021-5-7 11:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">最后依然没出BX GG
+
+
+-----
+
+####  真红眼教授  
+##### 78681#       发表于 2021-5-8 10:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165674&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-5-7 07:56</a>
+
+群友天天抱怨黑贞总司为啥不出灵衣，我说白贞都拉着那样了你想黑贞能好到哪去再说画五套衣服你是要累死临时 ...</blockquote>
+黑贞有新宿鸡爪手啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78682#       发表于 2021-5-8 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165674&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-5-7 07:56</a>
+群友天天抱怨黑贞总司为啥不出灵衣，我说白贞都拉着那样了你想黑贞能好到哪去再说画五套衣服你是要累死临时 ...</blockquote>
+黒贞不是有灵衣吗？
+
+
+-----
+
+####  alucardcz  
+##### 78683#       发表于 2021-5-8 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165674&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-5-7 07:56</a>
+
+群友天天抱怨黑贞总司为啥不出灵衣，我说白贞都拉着那样了你想黑贞能好到哪去再说画五套衣服你是要累死临时 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">黑贞新宿那套早实装了啊  不要因为大头娃娃就不认啊
+
+
+-----
+
+####  angelooo  
+##### 78684#       发表于 2021-5-8 15:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165674&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-5-7 07:56</a>
+
+群友天天抱怨黑贞总司为啥不出灵衣，我说白贞都拉着那样了你想黑贞能好到哪去再说画五套衣服你是要累死临时 ...</blockquote>
+黑贞总司都是有灵衣的，不论是不是质量不行还是只是简易灵衣
+
+这次应该抱怨的是为什么某些亲女儿（除了玛修之外）可以有两件甚至三件灵衣23333
+
+
+-----
+
+####  khxooo  
+##### 78685#       发表于 2021-5-8 15:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51181690&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-5-8 15:34</a>
+黑贞总司都是有灵衣的，不论是不是质量不行还是只是简易灵衣
+
+这次应该抱怨的是为什么某些亲女儿（除了玛 ...</blockquote>
+是啊，一个人独占3件马甲1件都没有，只能感叹一句亲女儿了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  清风朗月  
+##### 78686#       发表于 2021-5-8 21:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177979&amp;ptid=1085254" target="_blank">真红眼教授 发表于 2021-5-8 10:11</a>
+
+黑贞有新宿鸡爪手啊</blockquote>
+怪我没说清楚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，他想要的是新宿双人舞礼服那套
+
+
+-----
+
+####  alucardcz  
+##### 78687#       发表于 2021-5-8 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51184779&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-5-8 21:11</a>
+
+怪我没说清楚，他想要的是新宿双人舞礼服那套</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那套那个立绘已经突出一个坑了　　小人还是大头娃娃的话　那效果不敢想（
+
+
+-----
+
+####  v22325  
+##### 78688#       发表于 2021-5-9 03:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">比起这些人 我说那个清姬【  种田自从退了马修是不是清姬也没计划出新了    
+
+这次什么人都有灵衣 清姬明明人气挺高居然没有
+
+
+-----
+
+####  sin.yugi  
+##### 78689#       发表于 2021-5-9 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51186994&amp;ptid=1085254" target="_blank">v22325 发表于 2021-5-8 14:15</a>
+
+比起这些人 我说那个清姬【  种田自从退了马修是不是清姬也没计划出新了    
+
+这次什么人都有灵衣 清 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">先实装复仇玛丽啊
+
+
+-----
+
+####  qixinno2  
+##### 78690#       发表于 2021-5-9 11:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">什么时候出杀生院莉莉 抽爆
+
+
+
+
+-----
+
+####  areklose  
+##### 78691#       发表于 2021-5-9 14:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51188686&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-5-9 11:44</a>
+
+什么时候出杀生院莉莉 抽爆</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你还不如指望复刻加灵衣
+
+
+-----
+
+####  白金口袋  
+##### 78692#       发表于 2021-5-9 14:50
+
+
+美神农神还没说话呢你们这些后来的先排队啊
+
+这么看2.5.2是真的怪，先给了个剧情上让人一点都喜欢不起来的双子，又给了个骂声不断的沸羊羊，最后给了个出场不过几秒就退场的黄金圣斗士，人气高的那几个神一个没实装，也不知道咋想的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78693#       发表于 2021-5-9 15:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190120&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-9 14:50</a>
+
+你还不如指望复刻加灵衣</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灵衣没有灵魂
+
+
+                          
