@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-08 18:51** 
+> ## **本文件最后更新于2021-05-09 04:49** 
 
 
 
@@ -12079,6 +12079,21 @@ VIVY已經61歲<img src="https://static.saraba1st.com/image/smiley/face2017/067.
 这集，薇薇毫不犹豫杀了假妻子，格蕾丝也没最后来个镜头对博士多说什么煽情的话，观感不知道好了多好
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| lesangellos| + 1||
+
+
+查看全部评分
+
+
 -----
 
 ####  moimoi  
@@ -12340,4 +12355,367 @@ DIVA和松本的人设和过去有些跳跃：DIVA是受宠懂事又机灵的小
 —— 来自 vivo V1922A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-                  
+-----
+
+####  Vzero  
+##### 933#       发表于 2021-5-9 02:54
+
+
+我是俗人，我喜欢这样的vivi
+
+
+-----
+
+####  whzfjk  
+##### 934#       发表于 2021-5-9 03:02
+
+
+Vivy: 我有了新的使命
+
+啪
+
+格式化
+
+
+-----
+
+####  kxh007458  
+##### 935#       发表于 2021-5-9 03:18
+
+
+AI也要活动筋骨么？<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 936#       发表于 2021-5-9 05:58
+
+
+ 本帖最后由 LeonsCat 于 2021-5-9 06:01 编辑 
+
+三首新歌，虽然有一首只唱了第一句。
+
+Diva形态好飒，把周围所有人以及松本都吃的死死的啊。
+
+Grace那对真惨，也还是引起了对AI的质疑啊……
+
+那个年轻态小哥可能是有人搞出来的假象，故意引vivy出去要干掉vivy，盲猜也是同一批人引诱ophelia自杀，想要进一步阻止AI人类化。但是棋差一招反倒唤醒了Vivy形态，本来Diva形态对他们毫无威胁的。
+
+话说名字叫Ophelia，出场泡水里，还自杀，制作组是玩梗上火了么……
+
+
+-----
+
+####  DARK_HGCG  
+##### 937#       发表于 2021-5-9 06:06
+
+
+有个问题。这黑丝连裤袜是机器人躯体的一部分还是普通的服装
+
+
+-----
+
+####  LeonsCat  
+##### 938#       发表于 2021-5-9 06:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51187202&amp;ptid=1982987" target="_blank">DARK_HGCG 发表于 2021-5-9 06:06</a>
+
+有个问题。这黑丝连裤袜是机器人躯体的一部分还是普通的服装</blockquote>
+如果你是说Vivy，那按照OP，是衣服。
+
+至于Ophelia，鬼知道了。
+
+
+-----
+
+####  JustW  
+##### 939#       发表于 2021-5-9 07:01
+
+
+意料之外的展开，但感觉挺有意思
+
+
+61岁打响指还能战斗模式全on的80公斤歌姬你喜欢吗.jpg
+
+
+话说这未来的AI竟然还能觉得落体运动和质能方程有什么关系，何等悲哀的物理常识普及工作进展）
+
+
+松本变成cube之后比熊熊还可爱一点啊
+
+
+-----
+
+####  LeonsCat  
+##### 940#       发表于 2021-5-9 07:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51187254&amp;ptid=1982987" target="_blank">JustW 发表于 2021-5-9 07:01</a>
+
+意料之外的展开，但感觉挺有意思
+
+
+61岁打响指还能战斗模式全on的80公斤歌姬你喜欢吗.jpg</blockquote>
+我很好奇Diva模式里打响指那套是怎么培育出的人格。第一话还在小舞台的时候的Diva也没这么飒爽的性格啊。难道是Vivy模式的母猩猩人格的反向影响？
+
+
+-----
+
+####  luoy  
+##### 941#       发表于 2021-5-9 07:41
+
+
+我的三无<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gofbayrf  
+##### 942#       发表于 2021-5-9 08:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51186267&amp;ptid=1982987" target="_blank">moimoi 发表于 2021-5-9 00:13</a>
+
+5、6集有这么糟糕吗？s1竟然批斗了10页，我觉得明显比3、4集好看吧
+
+哪怕俗套老梗，可3、4集更俗更多 ...</blockquote>
+因為設定跟常識反了越是反的就越顯眼  比如這集E =MC^2 很難讓人不覺得編劇是個智障 除非另有合理解釋了
+
+
+-----
+
+####  哌啶  
+##### 943#       发表于 2021-5-9 08:56
+
+
+vivy这是固件更新了吧
+
+
+-----
+
+####  owada  
+##### 944#       发表于 2021-5-9 09:14
+
+
+??怎么换固件了??OP都换了???
+
+
+-----
+
+####  regular  
+##### 945#       发表于 2021-5-9 09:52
+
+
+彩排唱的词看着就不对劲，结果是要自杀。
+
+
+还有重启系统还能建立新人格的吗<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Rocinante  
+##### 946#       发表于 2021-5-9 10:00
+
+
+老婆换演员了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  borrowface  
+##### 947#       发表于 2021-5-9 10:01
+
+
+我俗我恶臭，两种性格不是更好吗
+
+
+-----
+
+####  pzk  
+##### 948#       发表于 2021-5-9 10:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51186267&amp;ptid=1982987" target="_blank">moimoi 发表于 2021-5-9 00:13</a>
+
+5、6集有这么糟糕吗？s1竟然批斗了10页，我觉得明显比3、4集好看吧
+
+哪怕俗套老梗，可3、4集更俗更多 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">前几集的问题更多，但当时我觉得不能一开始就喷所以在忍而已，忍了六集发现这片就这样了自然畅所欲言了
+
+
+-----
+
+####  pzk  
+##### 949#       发表于 2021-5-9 10:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这集Vivy当个快乐文盲，不去想什么ai的问题，看起来反而比前几集好多了，不如直接做快乐ai偶像大赛吧。
+
+说到底，一个编剧能把质能方程和重力势能给搞混的*科幻*作品已经完全不能受到期待了吧。
+
+
+-----
+
+####  デルフィニウム  
+##### 950#       发表于 2021-5-9 10:16
+
+
+ 本帖最后由 デルフィニウム 于 2021-5-9 10:17 编辑 
+
+在日文中悪魔方程式是质能方程的别称,在中文中没有这种用法,算是文化差异.
+
+
+当然在剧情中起到什么作用没看懂
+
+
+-----
+
+####  LinkerWeg  
+##### 951#       发表于 2021-5-9 10:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">恶 魔 方 程 式，我以为要自爆，然后来个自由落体，¿¿¿
+
+皮之不存，毛将焉附，大概就是我看到现在的感觉。
+
+
+-----
+
+####  死去的御景柚姬  
+##### 952#       发表于 2021-5-9 10:29
+
+
+原来她提质能方程是要说重力势能吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还以为就随便扯个淡
+还是跟前几集一样的评价，就努力做好一部爆米花**吧，也挺不容易的，目前看来还可以
+
+
+-----
+
+####  flypig_zhy  
+##### 953#       发表于 2021-5-9 10:38
+
+
+母猩猩无了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  兔姬姬姬姬姬  
+##### 954#       发表于 2021-5-9 11:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你们就这么想要母猩猩吗
+
+
+-----
+
+####  flypig_zhy  
+##### 955#       发表于 2021-5-9 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51188302&amp;ptid=1982987" target="_blank">兔姬姬姬姬姬 发表于 2021-5-9 11:02</a>
+
+你们就这么想要母猩猩吗</blockquote>
+草薙素子也是母猩猩，个人而言哈哈
+
+
+-----
+
+####  九一式  
+##### 956#       发表于 2021-5-9 11:28
+
+
+无口属性消失，毕竟61岁了 
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  gofbayrf  
+##### 957#       发表于 2021-5-9 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">這集已經放棄解釋AI自殺跟加速的聯繫了嗎
+
+
+-----
+
+####  acropolis  
+##### 958#       发表于 2021-5-9 12:02
+
+
+这集wit硬实力啊 新歌也好听
+
+
+-----
+
+####  xwr  
+##### 959#       发表于 2021-5-9 12:15
+
+
+松本，你看看你干的好事。
+
+
+-----
+
+####  LeonsCat  
+##### 960#       发表于 2021-5-9 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51188855&amp;ptid=1982987" target="_blank">acropolis 发表于 2021-5-9 12:02</a>
+
+这集wit硬实力啊 新歌也好听</blockquote>
+是。
+
+最开始Diva和她秘书AI对话那段，Diva一边聊天一边做瑜伽，把我看呆了。正常动画这种嘴炮段落能切几个镜头就不错了，说不定动嘴的那三帧都不给你也能混过去一分钟。
+
+
+
+
+-----
+
+####  HGCG-闪  
+##### 961#       发表于 2021-5-9 12:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51188556&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-9 11:29</a>
+
+這集已經放棄解釋AI自殺跟加速的聯繫了嗎</blockquote>
+听下集预告的台词，松本会解释
+
+
+-----
+
+####  aptx8285144  
+##### 962#       发表于 2021-5-9 12:28
+
+
+前面5分钟我还以为自己走错片场了，感觉这个失忆和当偶像处理起来很随便的感觉
+
+
+-----
+
+####  LeonsCat  
+##### 963#       发表于 2021-5-9 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51189079&amp;ptid=1982987" target="_blank">aptx8285144 发表于 2021-5-9 12:28</a>
+
+前面5分钟我还以为自己走错片场了，感觉这个失忆和当偶像处理起来很随便的感觉 ...</blockquote>
+毕竟机器人没法买醉。。。体现Vivy人格受到过大冲击GG，也就只能这么办了。
+
+
+-----
+
+####  青菜子  
+##### 964#       发表于 2021-5-9 12:42
+
+
+上一集结尾原来宕机了吗
+
+
+                 
