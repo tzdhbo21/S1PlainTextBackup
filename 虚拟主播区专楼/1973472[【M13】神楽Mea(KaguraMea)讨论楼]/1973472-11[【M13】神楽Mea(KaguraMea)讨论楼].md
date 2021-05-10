@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-10 09:39** 
+> ## **本文件最后更新于2021-05-10 18:00** 
 
 
 
@@ -676,4 +676,298 @@ syl，不准这么说yhm<img src="https://static.saraba1st.com/image/smiley/face
 确实，只是朋友还是不够的，思想先进，本人童贞，说的是黄兔子啊
 
 
-                                               
+-----
+
+####  路人庚  
+##### 15063#       发表于 2021-5-10 18:05
+
+
+主要是没想到黄兔子会给你咩姐背书一波（这系统的复杂度噌的一下就上去了
+
+
+-----
+
+####  weiweiEX  
+##### 15064#       发表于 2021-5-10 18:23
+
+
+这场景我还真想过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可黄兔子也艹不到mea，她怎么背书的
+
+
+-----
+
+####  JY要塞  
+##### 15065#       发表于 2021-5-10 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">银趴难道是假的吗，幻灭了，脱粉了
+
+
+-----
+
+####  路人庚  
+##### 15066#       发表于 2021-5-10 18:34
+
+
+ 本帖最后由 路人庚 于 2021-5-10 18:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这个解释起来的方式就很多了，其中我想到的比较好玩的一种解释是这样↓
+
+
+结合这个直播前面有个棉花糖提到了mea和黄兔子的关系好，结果这俩立刻就反驳说相互之间的关系虽然好但也没好到哪里去
+
+再根据黄兔子这里背书的你咩姐在这方面是个很认真的人，可以暗示黄兔子在之前线下同居的时候尝试过跟你咩姐发生一点什么
+
+结果在你咩姐的反抗下，黄兔子不敌你咩姐这个天空树，导致未遂，于是就有了这个如同败犬一样的背书发言<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl，银趴民不要灰心<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这也只是黄兔子的一面之词，黄兔子未遂的原因也有可能只是因为相互之间不太熟，等熟悉之后你咩姐估计就能放得开了
+
+
+-----
+
+####  甘栗No.007  
+##### 15067#       发表于 2021-5-10 18:54
+
+
+怕不是看到了实际吨位所以直呼不可能<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15068#       发表于 2021-5-10 19:07
+
+
+现在都没预告，看来今天不播，好，我宣布今天是摸鱼time！
+
+
+-----
+
+####  kolu33  
+##### 15069#       发表于 2021-5-10 19:07
+
+
+千里这是回坑了嘛，我怎么在日报的剪辑那栏看到他了
+
+
+-----
+
+####  草牛  
+##### 15070#       发表于 2021-5-10 19:21
+
+
+不守妇道的东西
+
+
+-----
+
+####  Dualist彩  
+##### 15071#       发表于 2021-5-10 19:22
+
+
+千酱，我的千酱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15072#       发表于 2021-5-10 19:45
+
+
+[1]【神楽めあ Bilibili Dynamic】
+动态类型 : 带图动态
+动态内容 : 在到18万人关注之前无声耐久直播中哄儿子（神乐Mea未来的丈夫）的圭利・奥什・迦尔 
+发布时间 : 2021-05-10 11:41:05 UTC
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 15073#       发表于 2021-5-10 19:46
+
+
+圭利的任务是吧，我佛了，傻逼女人<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15074#       发表于 2021-5-10 19:51
+
+
+尼咩什么时候能破肚而出<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15075#       发表于 2021-5-10 19:56
+
+
+ 本帖最后由 路人庚 于 2021-5-10 19:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐喜欢他儿子又不是第一天了
+
+syl，今天东京24点
+
+
+-----
+
+####  JY要塞  
+##### 15076#       发表于 2021-5-10 20:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你麻SJ你楼确定，刚刚银趴人设就要没了马上发推又立起来了
+
+
+-----
+
+####  Dualist彩  
+##### 15077#       发表于 2021-5-10 20:25
+
+
+究竟谁是小麻安插在你楼的眼，是那个神秘男声经纪人么，可以透露下小麻活儿好么<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15078#       发表于 2021-5-10 20:44
+
+
+还有冲国特供皮肤？
+
+
+-----
+
+####  A2014720  
+##### 15079#       发表于 2021-5-10 20:46
+
+
+？
+
+
+-----
+
+####  Cushaw  
+##### 15080#       发表于 2021-5-10 21:00
+
+
+什么坦克，天启辗灰熊是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 15081#       发表于 2021-5-10 21:01
+
+
+又是歌回，今天摸了，妈了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15082#       发表于 2021-5-10 21:03
+
+
+就是换新皮之后的b限说的可能会有让观众设计下一个皮的活动的想法，但也只是个构思而已
+
+
+-----
+
+####  Dualist彩  
+##### 15083#       发表于 2021-5-10 21:13
+
+
+我只会建议颜出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  汇聚群光  
+##### 15084#       发表于 2021-5-10 21:23
+
+
+都在说小麻银趴的事，有谁能给我解释一下什么叫银趴？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15085#       发表于 2021-5-10 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51204325&amp;ptid=1973472" target="_blank">汇聚群光 发表于 2021-5-10 21:23</a>
+
+都在说小麻银趴的事，有谁能给我解释一下什么叫银趴？</blockquote>
+一起看银制品啊，
+
+
+-----
+
+####  Klience  
+##### 15086#       发表于 2021-5-10 22:57
+
+
+别打了别打了 赶紧投了吧 快到时间了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15087#       发表于 2021-5-10 23:38
+
+
+又是拉夫歌，有本事过来唱<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15088#       发表于 2021-5-10 23:42
+
+
+求这人唱这歌时在想啥
+
+
+-----
+
+####  Klience  
+##### 15089#       发表于 2021-5-10 23:43
+
+
+0/10的露露？
+
+
+-----
+
+####  Mikumiku831  
+##### 15090#       发表于 2021-5-11 00:22
+
+
+这膀胱有问题吧
+
+唱一首歌就上一次厕所
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 15091#       发表于 2021-5-11 01:07
+
+
+也许或者可能今天还播，先睡了
+
+
+                                              
