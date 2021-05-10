@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-09 17:08** 
+> ## **本文件最后更新于2021-05-10 09:39** 
 
 
 
@@ -312,4 +312,368 @@ zsyl，说着跟fuji君要好，结果转头唱起了二宫和也的曲子<img s
 不放啊B还有什么节奏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                                                
+-----
+
+####  时间在我手中  
+##### 15032#       发表于 2021-5-10 01:26
+
+
+鬼知道，这年头网民的智商下限还是比较恐怖的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正不出节奏爱和声和声，我是没兴趣听苔姨
+
+
+-----
+
+####  肥到终点  
+##### 15033#       发表于 2021-5-10 05:07
+
+
+期待泥哥潭的反应<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 15034#       发表于 2021-5-10 07:50
+
+
+事到如今有节奏又怎样，多谢犬山哥<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 15035#       发表于 2021-5-10 08:55
+
+
+苔苔又干了啥<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15036#       发表于 2021-5-10 09:22
+
+
+干了贝贝人喜欢的事，这录歌，肯定是有交流了哇
+
+
+-----
+
+####  时间在我手中  
+##### 15037#       发表于 2021-5-10 09:23
+
+
+有一说一，这种和声协力的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吊人录完之后直接给犬山完事的可能性是有的
+
+
+-----
+
+####  十九号大侠  
+##### 15038#       发表于 2021-5-10 09:26
+
+
+这隔壁m楼怎么突然吵起来了，咩咩昨天不是播过了吗
+
+
+-----
+
+####  雪风utopia  
+##### 15039#       发表于 2021-5-10 09:35
+
+
+不要在意，不要在意<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 15040#       发表于 2021-5-10 09:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51196990&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-5-10 09:26</a>
+这隔壁m楼怎么突然吵起来了，咩咩昨天不是播过了吗</blockquote>
+闲的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15041#       发表于 2021-5-10 09:53
+
+
+隔壁不就是有个人忽然把历史二合一了吗，大概就和刘关张桃园结义是在他们打败了吕布之后结拜的一样扯淡，属实时间管理了
+
+
+-----
+
+####  Klience  
+##### 15042#       发表于 2021-5-10 10:02
+
+
+隔壁楼友在ttk 小麻和野男人通宵打游戏 大家都有光明的未来 好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15043#       发表于 2021-5-10 10:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197417&amp;ptid=1973472" target="_blank">Klience 发表于 2021-5-10 10:02</a>
+
+隔壁楼友在ttk 小麻和野男人通宵打游戏 大家都有光明的未来 好起来了</blockquote>
+打到几点啊，那看来白天是安全了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15044#       发表于 2021-5-10 10:17
+
+
+2点打到4 5点的样子 手机上看不到具体时间
+
+
+-----
+
+####  路人庚  
+##### 15045#       发表于 2021-5-10 10:18
+
+
+6小时前就结束了
+
+
+话说倒是注意一下句子里的时间点，这种东西很容易被造谣的
+
+
+-----
+
+####  时间在我手中  
+##### 15046#       发表于 2021-5-10 10:21
+
+
+ 本帖最后由 时间在我手中 于 2021-5-10 10:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197600&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-5-10 10:18</a>
+
+6小时前就结束了
+
+
+话说倒是注意一下句子里的时间点，这种东西很容易被造谣的 ...</blockquote>
+什么时间点哦LOL时间啊，这个问题不大吧，反正也就那样，又不会有以前那些魔怔人了
+
+
+收租这破事说起来我才发现五一这人都没来批限，不过也没人在意了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15047#       发表于 2021-5-10 10:24
+
+
+反正你麻在某些人眼里永远只是个靠恶俗梗火起来的收租混子<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15048#       发表于 2021-5-10 10:26
+
+
+手机opgg没有具体时间我有什么办法 反正也差不多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15049#       发表于 2021-5-10 10:29
+
+
+因为nga的ttk跟你咩姐打lol并不是在同一个时间段啊，放到一起说就很容易被歪曲成是在同一时间发生的事情，到时候一个截图拿出去造谣，解释都不好解释
+
+
+-----
+
+####  Klience  
+##### 15050#       发表于 2021-5-10 10:31
+
+
+ 本帖最后由 Klience 于 2021-5-10 10:33 编辑 
+
+哦 你指的是这个啊 那没事了 我以为你说麻打lol的时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  泔水  
+##### 15051#       发表于 2021-5-10 10:38
+
+
+nga的部分天狗也沾点泥哥的 这么想就很好理解了
+
+
+-----
+
+####  yywzjsw  
+##### 15052#       发表于 2021-5-10 12:00
+
+
+nga和s1不都是同一批人嘛
+
+
+-----
+
+####  Dualist彩  
+##### 15053#       发表于 2021-5-10 12:22
+
+
+可不敢乱同<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 15054#       发表于 2021-5-10 13:10
+
+
+ 本帖最后由 路人辰 于 2021-5-10 16:16 编辑 
+
+20210510东京13点（1、2）
+
+<img src="https://img.saraba1st.com/forum/202105/10/161552cwowppklw7k22zw7.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2F881FDF-1DD0-4DAE-A6D1-A27ED1A6F382.jpeg</strong> (51.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 16:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/10/131007wxao7emx5ma55x4g.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D9B83747-E321-435C-A56C-CEBAB16BF405.jpeg</strong> (215.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 13:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/10/131008j7v9m7ecw5qq5pod.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C5D1527E-DF9D-412A-BCDA-FC45400F306B.jpeg</strong> (212.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 13:10 上传
+
+
+-----
+
+####  时间在我手中  
+##### 15055#       发表于 2021-5-10 13:57
+
+
+这人手机咋这么多吊图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次的生活节奏能维持几天呢
+
+
+-----
+
+####  三つの光  
+##### 15056#       发表于 2021-5-10 15:12
+
+
+听说这里纯良 来插眼
+
+—— 来自 HUAWEI ANA-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  airclab  
+##### 15057#       发表于 2021-5-10 16:06
+
+
+来对地方了
+
+
+-----
+
+####  路人庚  
+##### 15058#       发表于 2021-5-10 16:18
+
+
+这日报的新剪辑，我正准备来一波正义转载，结果突然就没了可还行
+
+
+-----
+
+####  时间在我手中  
+##### 15059#       发表于 2021-5-10 16:23
+
+
+ 本帖最后由 时间在我手中 于 2021-5-10 16:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51201374&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-5-10 16:18</a>
+
+这日报的新剪辑，我正准备来一波正义转载，结果突然就没了可还行</blockquote>
+理由很几把弱智，1分33秒-1分37秒有个eroi也就是工口，他直接给你爹我判定成敏感词了
+
+MDZZ
+
+得了，申诉秒过，服了，看来长明日花加上原亚衣朋友那段我晚上害得消音A o了，不然估计又要被干碎
+
+
+傻逼千里夜雨不消音qnmd
+
+
+-----
+
+####  路人庚  
+##### 15060#       发表于 2021-5-10 16:29
+
+
+ 本帖最后由 路人庚 于 2021-5-10 16:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猜到了
+
+syl，不准这么说yhm<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+【熟肉】那种事只有婚后才能做吧——神乐Mea的贞洁观（04.22剪辑）【神楽めあ】【因幡haneru】
+[https://b23.tv/Dhg1Qw](https://b23.tv/Dhg1Qw)
+
+
+选材：永恒不死鸟
+
+剪辑：❤️千里夜雨❤️
+
+打轴：菠菜 永恒不死鸟
+
+翻译：风野麦林
+
+校对：夕立MK8888888222222
+
+
+
+
+-----
+
+####  Klience  
+##### 15061#       发表于 2021-5-10 16:53
+
+
+又在我忙的时候偷偷打了几局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aisakahammer  
+##### 15062#       发表于 2021-5-10 17:11
+
+
+确实，只是朋友还是不够的，思想先进，本人童贞，说的是黄兔子啊
+
+
+                                               
