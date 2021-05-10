@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-09 01:37** 
+> ## **本文件最后更新于2021-05-10 03:53** 
 
 
 
@@ -16219,4 +16219,394 @@ q娃换汤不换药反而恶劣化重复日常剧情也不多说什么了
 怎么隔了一周爱奇艺还是720p的。。。。
 
 
-   
+-----
+
+####  twit  
+##### 1383#       发表于 2021-5-9 14:37
+
+
+这集真夏直接玩狗刨还行，staff真是没有包袱，咱这就是子供。
+
+不过最后还有情商知道关爱空巢人鱼，夏海皇，你好强大！
+
+
+-----
+
+####  最强惠酱  
+##### 1384#       发表于 2021-5-9 14:53
+
+
+这集明明是夏哥珊瑚搂搂抱抱比较多到最后还是孤寡人鱼正宫感比较强<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leleq  
+##### 1385#       发表于 2021-5-9 16:21
+
+
+这集不是屑人鱼是酸人鱼了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+这集打斗故事都不错要是能保持下去就好了 
+
+
+话说一年份的蜜瓜面包的赞助是谁找来的啊 不会是学生会长吧 
+
+
+-----
+
+####  天邪鬼  
+##### 1386#       发表于 2021-5-9 16:31
+
+
+之前不是赢了个一年份蜜瓜包，可能就是把那个当奖品了
+
+
+-----
+
+####  最强惠酱  
+##### 1387#       发表于 2021-5-9 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190712&amp;ptid=1963832" target="_blank">leleq 发表于 2021-5-9 16:21</a>
+这集不是屑人鱼是酸人鱼了 但是酸人鱼真棒
+
+
+这集打斗故事都不错要是能保持下去就好了 </blockquote>
+<img src="https://p.sda1.dev/1/1067290fd9cae86d60876bde354ac303/IMG_CMP_40656915.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  最强惠酱  
+##### 1388#       发表于 2021-5-9 16:48
+
+
+说来这集珊瑚在看到夏哥鬼画符之前就习惯性说了かわ，真是看空气大师<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G981N, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leleq  
+##### 1389#       发表于 2021-5-9 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190889&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-5-9 16:46</a>
+
+—— 来自 samsung SM-G981N, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+手真快啊 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG-闪  
+##### 1390#       发表于 2021-5-9 16:56
+
+
+这个气球里充满了瓜瓜亲口吐出来的二氧化碳
+
+<img src="https://img.saraba1st.com/forum/202105/09/165537c8h89dndyhhorc4h.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (167.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 16:55 上传
+
+
+-----
+
+####  leleq  
+##### 1391#       发表于 2021-5-9 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190942&amp;ptid=1963832" target="_blank">HGCG-闪 发表于 2021-5-9 16:56</a>
+
+这个气球里充满了瓜瓜亲口吐出来的二氧化碳</blockquote>
+ 怎么不贴奖品是木瓜那帧呢
+
+
+-----
+
+####  Sliurus  
+##### 1392#       发表于 2021-5-9 17:19
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/171910hegoehkcocwg5kgo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_4211(20210509-012938).JPG</strong> (352.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 17:19 上传
+
+
+无论是短发还是侧马尾都不错
+
+
+-----
+
+####  最低人间肥宅  
+##### 1393#       发表于 2021-5-9 17:37
+
+
+遇事不决总之先kawaii的珊瑚（
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  粉儿alice  
+##### 1394#       发表于 2021-5-9 18:38
+
+
+这个蜜瓜包的赞助商给东大妈赞助费是不是有点多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SRyeB  
+##### 1395#       发表于 2021-5-9 18:42
+
+
+屑人鱼已经被夏哥吃透了，要扭起来了吗
+
+屑人鱼也该变成人了吧，变成人还能叫屑人鱼吗？
+
+
+-----
+
+####  SRyeB  
+##### 1396#       发表于 2021-5-9 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190889&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-5-9 16:46</a>
+
+—— 来自 samsung SM-G981N, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+我说哪里来那么多部费
+
+
+-----
+
+####  最强惠酱  
+##### 1397#       发表于 2021-5-9 19:14
+
+
+<img src="https://p.sda1.dev/1/443f440c68d7a7842de5ca501973d35c/IMG_CMP_219592137.jpeg" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  haojie_ma  
+##### 1398#       发表于 2021-5-9 20:37
+
+
+这集是真·沙雕回
+
+上次搬镜子，这次刨沙子，说来热Q的战斗利用环境还是挺“务实”的
+
+
+-----
+
+####  HGCG-闪  
+##### 1399#       发表于 2021-5-9 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51191693&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-5-9 18:38</a>
+
+这个蜜瓜包的赞助商给东大妈赞助费是不是有点多</blockquote>
+不是有点多，是超级多
+
+
+<img src="https://img.saraba1st.com/forum/202105/09/203743i970oqq3w34sqwqt.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (217.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-9 20:37 上传
+
+
+-----
+
+####  宅音  
+##### 1400#       发表于 2021-5-9 21:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这次卖软糖怎么没整个贝壳包装，瓶子感觉一般般
+
+
+-----
+
+####  sAviOr  
+##### 1401#       发表于 2021-5-9 23:27
+
+
+剧情有趣，珊瑚可爱，黄色跟红色也还不错。
+
+—— 来自 Sony G8441, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1402#       发表于 2021-5-9 23:30
+
+
+珊瑚的卡哇伊也太不走心了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1403#       发表于 2021-5-9 23:41
+
+
+我现在觉得黄最可爱
+
+
+-----
+
+####  李可  
+##### 1404#       发表于 2021-5-10 00:35
+
+
+真夏萝拉锁了，完全情侣模式<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  isa2456  
+##### 1405#       发表于 2021-5-10 00:43
+
+
+萝拉老实起来还是挺可爱的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">干劲变人跟真夏一起玩吧
+还有珊瑚可爱和果子学姐摘眼镜<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PrincessBanana  
+##### 1406#       发表于 2021-5-10 02:09
+
+
+这萝拉怎么开始娇起来啦？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG-闪  
+##### 1407#       发表于 2021-5-10 06:48
+
+
+如果不是担心会被其他角色埋没，萝拉本来应该是一条能中和真夏跳跃性格的，善解人意的温柔人鱼
+
+<img src="https://img.saraba1st.com/forum/202105/10/064755ph26znmn2j8b881i.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (19.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 06:47 上传
+
+
+-----
+
+####  kerfars  
+##### 1408#       发表于 2021-5-10 07:02
+
+
+现在某种意义上来说也挺中和也挺善解人意的，就是屑
+
+
+-----
+
+####  坂上あゆみ  
+##### 1409#       发表于 2021-5-10 08:36
+
+
+这集战斗很宝可梦
+夏哥泼沙 珊瑚泡沫光线233
+最后九彩升华齐聚顶后再召唤一只秃鹰娜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+另外学姐对罗拉的态度怎么又变回初始了
+入队以后虽说没有多好，也不致于一句话就炸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  待宵  
+##### 1410#       发表于 2021-5-10 08:49
+
+
+就这配色如果不够屑而是温柔型岂不是和哈酱更难区分了
+
+
+
+
+-----
+
+####  twit  
+##### 1411#       发表于 2021-5-10 09:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51196530&amp;ptid=1963832" target="_blank">坂上あゆみ 发表于 2021-5-10 08:36</a>
+这集战斗很宝可梦
+夏哥泼沙 珊瑚泡沫光线233
+最后九彩升华齐聚顶后再召唤一只秃鹰娜</blockquote>
+主要是学姐现在看来很讨厌那种莫名其妙就居高临下的人。
+所以出场的时候才会做出很对仗义助人的行为。
+
+—— 来自 HUAWEI TAS-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leleq  
+##### 1412#       发表于 2021-5-10 10:03
+
+
+屑人鱼要是温柔体贴不就是 海的女儿复刻了么 所以还是屑点好越屑到时候为众人牺牲时越带劲 我已经等不及看屑人鱼变泡沫后真夏的哭脸了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sliurus  
+##### 1413#       发表于 2021-5-10 10:06
+
+
+q娃里温柔的女人太多了，还是屑一点比较能给人留下印象
+
+
+-----
+
+####  HGCG-闪  
+##### 1414#       发表于 2021-5-10 11:23
+
+
+哦哦哦果然飞鸟和会长有故事
+
+<img src="https://img.saraba1st.com/forum/202105/10/112113hmrck8bsydcn8z7d.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (67.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 11:21 上传
+
+
+  

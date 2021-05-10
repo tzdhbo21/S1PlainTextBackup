@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-09 10:44** 
+> ## **本文件最后更新于2021-05-10 04:00** 
 
 
 
@@ -13130,4 +13130,422 @@ vivy的剧本还是有点悬，梅原和长月12集大概率拉胯所以我都�
 —— 来自 Xiaomi M2010J19SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                
+-----
+
+####  renkan119  
+##### 998#       发表于 2021-5-9 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51191449&amp;ptid=1982987" target="_blank">moimoi 发表于 2021-5-9 18:01</a>
+
+你搞错了吧，第一集说的是AI在当前状态下只能有一个使命，因为不同使命会造成冲突，没说不能切换吧？
+
+护 ...</blockquote>
+第6话说了护士是史上第一个改使命的AI
+
+
+-----
+
+####  skgaminger1988  
+##### 999#       发表于 2021-5-9 19:55
+
+
+ 本帖最后由 skgaminger1988 于 2021-5-9 19:57 编辑 
+
+米浴你串门为什么不穿裤子啊<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AlfredXC  
+##### 1000#       发表于 2021-5-9 20:02
+
+
+能改变世界线让小妹妹活下来吗<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kaiyan  
+##### 1001#       发表于 2021-5-9 20:18
+
+
+反差vivy可爱，小黑好色<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  アルメリア  
+##### 1002#       发表于 2021-5-9 20:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以打响指这个动作有啥意义吗 这话女主少说打了十几次响指了
+
+
+-----
+
+####  nh_zzz  
+##### 1003#       发表于 2021-5-9 20:26
+
+
+有群友认为这次性格是妹妹们的意志集合，前半段感觉是作为歌姬在打节拍，后面就觉得有可能是哪个妹妹的习惯了
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 1004#       发表于 2021-5-9 20:47
+
+
+现在历史发展应该严重偏离正史了吧，下一集打赌松本懵逼，自杀根本就没有发生
+
+
+-----
+
+####  SRyeB  
+##### 1005#       发表于 2021-5-9 21:41
+
+
+太搞笑了阻止一个自杀的AI，vivy刚才的信仰之跃不算是吧
+
+
+-----
+
+####  LeonsCat  
+##### 1006#       发表于 2021-5-9 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51192447&amp;ptid=1982987" target="_blank">AlfredXC 发表于 2021-5-9 20:02</a>
+
+能改变世界线让小妹妹活下来吗</blockquote>
+感觉只会加速悲剧……别说Estella和Elizabeth这对了，连本来HE的Grace都BE了……
+
+
+-----
+
+####  LeonsCat  
+##### 1007#       发表于 2021-5-9 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51192666&amp;ptid=1982987" target="_blank">アルメリア 发表于 2021-5-9 20:23</a>
+
+所以打响指这个动作有啥意义吗 这话女主少说打了十几次响指了</blockquote>
+有猜测是Elizabeth性格影响，但是个人认为纯粹是为了塑造撩妹高手形象~
+
+
+-----
+
+####  2-gua  
+##### 1008#       发表于 2021-5-9 23:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">小黑这套衣服真是绝赞
+
+
+-----
+
+####  ramiel  
+##### 1009#       发表于 2021-5-9 23:34
+
+
+之前一直停在前两话，今天刚刚补到最新话，这片还挺有点意思
+
+说起来6话某小明又被伤害了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hqtkkb  
+##### 1010#       发表于 2021-5-9 23:38
+
+
+ 本帖最后由 hqtkkb 于 2021-5-9 23:57 编辑 
+
+诶，松本和vivy我是当哥们来看的，突然进入情侣拌嘴模式有点适应不过来。
+
+
+话说vivy说到自己理念的时候我真的以为下一秒她就要戴上臂环机装显现了。
+
+
+欧菲利亚那个衣服真的不是什么情趣内衣吗？那个衣服第一眼看到时你说她是酒店服务人员我都信啊——vivy的着装品位倒是一如既往的一言难尽。
+
+
+-----
+
+####  LeonsCat  
+##### 1011#       发表于 2021-5-9 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51194604&amp;ptid=1982987" target="_blank">hqtkkb 发表于 2021-5-9 23:38</a>
+
+诶，松本和vivy我是当哥们来看的，突然进入情侣拌嘴模式有点适应不过来。
+
+</blockquote>
+第五话的飞行员夹克多帅啊，现在这身运动服只是单纯Diva性格吧。
+
+
+-----
+
+####  ramiel  
+##### 1012#       发表于 2021-5-9 23:53
+
+
+说起衣服，格蕾丝那护士还要穿长手套，设计人员根本就是lsp吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  reficul  
+##### 1013#       发表于 2021-5-10 01:06
+
+
+别装了，等你们有伴侣机器人也是穿成这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shimmy1996  
+##### 1014#       发表于 2021-5-10 05:03
+
+
+diva这从哪里学来的这些小癖好www还把松本吃得死死的，61岁真可怕<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+感觉这背景框架可以几乎不受时间限制塞进各种类科幻题材，坐等官方出作品描述每个任务之间的故事
+不出意外下一话有两首（？）新歌听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  大丈夫萌大乃  
+##### 1015#       发表于 2021-5-10 08:44
+
+
+61岁的响指狂魔AIBBA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  哌啶  
+##### 1016#       发表于 2021-5-10 08:50
+
+
+运动也不是圆不过来
+锻炼×
+自检√
+
+
+-----
+
+####  dreamd  
+##### 1017#       发表于 2021-5-10 09:36
+
+
+出厂61年的老古董还能活跃在第一线，而且还是这个世界top的存在，vivy这ai是不是有点强啊。后继姐妹机根本没一个能比吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 1018#       发表于 2021-5-10 10:19
+
+
+讲道理，现实里要是有一个不老歌姬ai，那就不是一代人的回忆，是好几代人的共同偶像，你，你子女，你孙辈可能都是都是他的粉丝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人气肯定高的吓人。
+
+—— 来自 Xiaomi M2010J19SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  gofbayrf  
+##### 1019#       发表于 2021-5-10 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197612&amp;ptid=1982987" target="_blank">爱吃冻鳗的猫 发表于 2021-5-10 10:19</a>
+
+讲道理，现实里要是有一个不老歌姬ai，那就不是一代人的回忆，是好几代人的共同偶像，你，你子女，你孙辈可 ...</blockquote>
+初音過氣了
+
+
+-----
+
+####  绞刑架  
+##### 1020#       发表于 2021-5-10 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197105&amp;ptid=1982987" target="_blank">dreamd 发表于 2021-5-10 09:36</a>
+
+出厂61年的老古董还能活跃在第一线，而且还是这个世界top的存在，vivy这ai是不是有点强啊。后继姐妹机根本 ...</blockquote>
+VIVY能火和她第一台歌姬AI的收藏价值脱不了关系，你可以理解为收藏级的经典超跑或老爷车，开起来可能缺少一些液晶屏之类科技小设备，但辅助驾驶还能通过下载更新，在一般道路规则下开的不会比任何家用车体验差，却绝对是道路和车展上路人称奇、车友瞩目的压轴藏品。
+
+
+
+
+-----
+
+####  LeonsCat  
+##### 1021#       发表于 2021-5-10 10:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197105&amp;ptid=1982987" target="_blank">dreamd 发表于 2021-5-10 09:36</a>
+
+出厂61年的老古董还能活跃在第一线，而且还是这个世界top的存在，vivy这ai是不是有点强啊。后继姐妹机根本 ...</blockquote>
+所以我一直怀疑姐妹机系列不是Diva/Vivy在小剧场刚登台的时候就造出来的，而是类似蓝胖子和他妹妹，是未来造出来送到100年前的。
+
+你看别的AI，无论是警戒机器人，还是公园里卖冰淇淋啥的，都完全落后姐妹机N年么？超过了波士顿动力的机器狗和N年前索尼电子狗的差别。
+
+这也就是为啥Elizabeth实验失败直接废弃、Grace被塞到岛上当核心而不是复制一个，就是真姐妹机（不算No5这种仿品）都是当代科技无法debug甚至连无损复制都做不到的未来AI。
+
+
+-----
+
+####  kos_mos  
+##### 1022#       发表于 2021-5-10 10:39
+
+
+61岁但各部件维护时应该都会更新换代成新式的吧，不知道还有多少部件是最初一直用下来的。
+
+
+-----
+
+####  立喰師  
+##### 1023#       发表于 2021-5-10 10:40
+
+
+这集松本明显是在演戏，坑蒙拐骗新薇薇当它的使命工具人<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gofbayrf  
+##### 1024#       发表于 2021-5-10 10:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197835&amp;ptid=1982987" target="_blank">立喰師 发表于 2021-5-10 10:40</a>
+
+这集松本明显是在演戏，坑蒙拐骗新薇薇当它的使命工具人</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">松本為了保証自己的存在  不能讓VV過早報廢呢
+
+
+-----
+
+####  gofbayrf  
+##### 1025#       发表于 2021-5-10 10:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197702&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-10 10:29</a>
+
+所以我一直怀疑姐妹机系列不是Diva/Vivy在小剧场刚登台的时候就造出来的，而是类似蓝胖子和他妹妹，是未 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">可是松本用玩具的身體就做到差不多的效果了  那可是僅僅100年后的算法 硬件都是垃圾
+
+
+-----
+
+####  selain.meneth  
+##### 1026#       发表于 2021-5-10 10:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51193516&amp;ptid=1982987" target="_blank">SRyeB 发表于 2021-5-9 21:41</a>
+
+太搞笑了阻止一个自杀的AI，vivy刚才的信仰之跃不算是吧</blockquote>
+大概是知道松本100%会救自己的前提下跳的，所以不算吧……
+
+
+-----
+
+####  LeonsCat  
+##### 1027#       发表于 2021-5-10 10:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197968&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-10 10:50</a>
+
+可是松本用玩具的身體就做到差不多的效果了  那可是僅僅100年后的算法 硬件都是垃圾 ...</blockquote>
+松本在用熊的身体的时候其实也就是蹦蹦跳跳，给Elizabeth注入病毒还失败了。得是成cube后才能力暴增成VF-Minecraft，而用的都是他用自己的设计图造的cube，而不是黑下来的现成机体。
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 1028#       发表于 2021-5-10 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51197630&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-10 10:21</a>
+初音過氣了</blockquote>
+你说的甚至不是一个东西啊
+
+—— 来自 Xiaomi M2010J19SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  HGCG-闪  
+##### 1029#       发表于 2021-5-10 11:41
+
+
+但是这两个人不结婚我觉得很难收场
+
+<img src="https://img.saraba1st.com/forum/202105/10/114054esch896ljahuwl5c.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (153.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 11:40 上传
+
+
+-----
+
+####  KozueAkimoto  
+##### 1030#       发表于 2021-5-10 11:43
+
+
+我想问一下 有资源了吗？我看了一下dmhy好像还没有 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG-闪  
+##### 1031#       发表于 2021-5-10 11:48
+
+
+话说NAVY用“老头儿”来形容DIVA
+
+
+-----
+
+####  flypig_zhy  
+##### 1032#       发表于 2021-5-10 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51198654&amp;ptid=1982987" target="_blank">KozueAkimoto 发表于 2021-5-10 11:43</a>
+
+我想问一下 有资源了吗？我看了一下dmhy好像还没有</blockquote>
+漫猫
+
+
+-----
+
+####  flypig_zhy  
+##### 1033#       发表于 2021-5-10 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51198705&amp;ptid=1982987" target="_blank">HGCG-闪 发表于 2021-5-10 11:48</a>
+
+话说NAVY用“老头儿”来形容DIVA</blockquote>
+navy?
+
+
+-----
+
+####  shudushimo  
+##### 1034#       发表于 2021-5-10 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51198654&amp;ptid=1982987" target="_blank">KozueAkimoto 发表于 2021-5-10 11:43</a>
+
+我想问一下 有资源了吗？我看了一下dmhy好像还没有</blockquote>
+有搬运源啊
+
+还是有啥不看巴哈的理由？
+
+
+               
