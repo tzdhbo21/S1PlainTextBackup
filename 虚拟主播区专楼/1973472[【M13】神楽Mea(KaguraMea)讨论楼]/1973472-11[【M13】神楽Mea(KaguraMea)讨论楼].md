@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-10 18:00** 
+> ## **本文件最后更新于2021-05-11 14:35** 
 
 
 
@@ -970,4 +970,440 @@ syl，今天东京24点
 也许或者可能今天还播，先睡了
 
 
-                                              
+-----
+
+####  路人辰  
+##### 15092#       发表于 2021-5-11 06:45
+
+
+20210511东京2点
+
+<img src="https://img.saraba1st.com/forum/202105/11/064502ccwp3pck2adh7c2a.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2447DF9F-F606-44E8-BC10-D3E62802D834.jpeg</strong> (181.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 06:45 上传
+
+
+-----
+
+####  JY要塞  
+##### 15093#       发表于 2021-5-11 10:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">醒了，又开始卖萌了
+
+
+-----
+
+####  路人辰  
+##### 15094#       发表于 2021-5-11 11:53
+
+
+20210511东京10点（1、2）
+
+<img src="https://img.saraba1st.com/forum/202105/11/115307ma995191vml2ma9l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>196A6109-617A-49F6-8F9F-E43A59F5BF6F.jpeg</strong> (40.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 11:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/11/115308u517f265gczfczpe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>ADB3036A-3EB4-4C65-8640-BFBD2722974C.jpeg</strong> (181.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 11:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/11/115307q54r48988x4kks59.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4BF27269-EDBB-4AFF-BECF-554EF464CC95.jpeg</strong> (45.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 11:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/11/115309huk388ujqjlqwlq0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>86C9B78C-ADE3-4EC0-AE4B-983A8A61D481.jpeg</strong> (250.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 11:53 上传
+
+
+-----
+
+####  yywzjsw  
+##### 15095#       发表于 2021-5-11 11:53
+
+
+这人昨晚才睡几小时啊，改作息能改成功嘛
+
+
+-----
+
+####  十九号大侠  
+##### 15096#       发表于 2021-5-11 11:56
+
+
+自由职业者是这样的
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  千里夜雨  
+##### 15097#       发表于 2021-5-11 13:33
+
+
+<strong>不准加鹅</strong>
+
+太可怜了
+仿佛又回到过个2000线都异常困难的刀耕火种时代<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+可真令人怀念
+日报组的稿子被夹了后恢复虽然恢复了，直接从推荐位上给消失了。
+两个tag综合排序下头三页直接找不到
+说明我给狗et说的被退稿重发不要申诉的判断有效
+似乎早前就总结过，去年年头也仿佛和记者建议过被退不要申诉以及头两天尽量不要换源宁可重发的事情
+不过狗et觉得那稿子其实挺一般的
+我自己很难做判断，
+标题难起的稿子上限通常有限。
+虽然我的忠告依旧是删了重发，
+但由日报组自己做决定吧。
+
+至于为啥还会帮人剪
+其实无论同好会还是日报组还是谁都可以找我的
+只是没人试而已，而且基本上也没我Q hhhhh
+原则上没时间就拒，感兴趣或者还人情就做。
+虽然退坑了，选材的事不会再理
+不过还能像去年年头那样帮人看看剪辑。
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以觉得无聊请直接猛cue选材的人
+btw这次临时问了问zaz这个话题臭女人车轱辘过没，他说没有，我才肯扔自己号上。
+
+p.s.
+往前面翻了几页，刚好看到有谈到
+我记得我在贵楼提过一个方案
+想给这女人打钱时不如让我定投btc，等她隐退时或者啥时候打给她，让她成为第一个收粉丝数字货币的vtb
+我当时多少带点认真的
+我想如果真的有人响应了，
+这会儿我应该已经卷款跑路了罢<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+所以多亏了大家没答应，我才没上通缉令<img src="https://static.saraba1st.com/image/smiley/face2017/162.png" referrerpolicy="no-referrer">
+我咋可能是19年年底就不来m楼的hhh
+我从19年10月回来总共就做了不到三四个月吧。
+然后就跑了，
+想说的就这么多，大家也看出来了都和主播没关系，那么下次有缘再见
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 4战斗力 -6
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘|-2|千酱～|
+| 时间在我手中|-1|没事，周末就别休息了，多干点.|
+| yuandi0120|-2|欢乐多|
+| 路人庚|-1|❤️千里❤️|
+
+
+查看全部评分
+
+
+-----
+
+####  路人辰  
+##### 15098#       发表于 2021-5-11 13:44
+
+
+20210511东京14点
+
+<img src="https://img.saraba1st.com/forum/202105/11/134354ob4bxw9z4aa4qt5x.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>BF1663EA-E4B0-437E-B528-63D108F47488.jpeg</strong> (79.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 13:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/11/134354v9h2ww7w8qqw3j62.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>C5731EE0-2396-4A0D-B581-5088958FFABD.jpeg</strong> (246.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 13:43 上传
+
+
+-----
+
+####  时间在我手中  
+##### 15099#       发表于 2021-5-11 13:45
+
+
+这猫旁边是她用坏的跳蛋？
+
+
+-----
+
+####  路人庚  
+##### 15100#       发表于 2021-5-11 13:49
+
+
+是💊啊
+
+
+-----
+
+####  时雨rain  
+##### 15101#       发表于 2021-5-11 13:59
+
+
+一次用坏了三个<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15102#       发表于 2021-5-11 15:17
+
+
+为什么药丸会动，明显这就是坦克用坏的跳蛋啊
+
+
+-----
+
+####  zc1996zc  
+##### 15103#       发表于 2021-5-11 15:42
+
+
+用坏了三个，她是水泵还是台钳啊
+
+
+-----
+
+####  路人庚  
+##### 15104#       发表于 2021-5-11 16:55
+
+
+一般来说一次性用3个也算是正常向吧（指2+1
+
+
+-----
+
+####  雪风utopia  
+##### 15105#       发表于 2021-5-11 17:06
+
+
+杏瘾小麻，杏瘾小麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15106#       发表于 2021-5-11 18:23
+
+
+把你咩姐当作电台主播的坏处，就是会错过一些表情（这样的表情真不错啊
+
+
+<img src="https://img.saraba1st.com/forum/202105/11/182139t2e3i01pbt32meie.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CA99AEFD-B966-4171-8BCF-41C9938622D8.jpeg</strong> (157.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 18:21 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">咩姐快骂我！
+
+
+-----
+
+####  时间在我手中  
+##### 15107#       发表于 2021-5-11 18:24
+
+
+那只能希望她早点播，基本十点后我注意力下降的很厉害是真的，基本要挂着打游戏才能不睡着
+
+
+-----
+
+####  雪风utopia  
+##### 15108#       发表于 2021-5-11 18:31
+
+
+看见两个大派派我就顶不住了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15109#       发表于 2021-5-11 21:06
+
+
+小型回复时间
+
+
+-----
+
+####  Klience  
+##### 15110#       发表于 2021-5-11 21:21
+
+
+怎么还有人问有没有去看msi的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 15111#       发表于 2021-5-11 21:41
+
+
+20210511东京22点
+
+<img src="https://img.saraba1st.com/forum/202105/11/214112mh7xow277h6ogol2.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>5B837D5E-4BE1-478E-B5FD-6EF1F3C4EA1D.jpeg</strong> (330.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 21:41 上传
+
+
+-----
+
+####  A2014720  
+##### 15112#       发表于 2021-5-11 21:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  iuhehc  
+##### 15113#       发表于 2021-5-11 21:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15114#       发表于 2021-5-11 21:54
+
+
+让我想起那个推行二次元无码化的政客了
+
+
+-----
+
+####  甘栗No.007  
+##### 15115#       发表于 2021-5-11 21:58
+
+
+11区政客迷惑奇葩行为大赏
+
+
+-----
+
+####  古战场亡魂  
+##### 15116#       发表于 2021-5-11 21:59
+
+
+？？？？？什么玩意？？
+
+
+-----
+
+####  Klience  
+##### 15117#       发表于 2021-5-11 22:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210511220055.png
+(39.74 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-11 22:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/11/220103cqjhn2ln3r9jzljo.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15118#       发表于 2021-5-11 22:04
+
+
+ 本帖最后由 路人庚 于 2021-5-11 22:09 编辑 
+
+翻了一下这个政客的推特，前两天转发过圭利的棉花糖，回复过文野环，看来是顺着虹社那边到你咩姐这来的
+
+
+syl，半小时前好像osu在线（
+
+
+-----
+
+####  rosevalley46  
+##### 15119#       发表于 2021-5-11 22:08
+
+
+这算是超级易拉罐么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 15120#       发表于 2021-5-11 22:09
+
+
+70多岁的老爷子
+
+
+
+
+-----
+
+####  暴走的包子  
+##### 15121#       发表于 2021-5-11 22:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">迷惑
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                             
