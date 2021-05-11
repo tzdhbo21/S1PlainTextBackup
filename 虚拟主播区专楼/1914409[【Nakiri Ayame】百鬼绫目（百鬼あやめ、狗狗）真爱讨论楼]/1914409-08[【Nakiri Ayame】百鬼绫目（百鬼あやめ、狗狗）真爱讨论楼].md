@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-07 17:57** 
+> ## **本文件最后更新于2021-05-11 01:37** 
 
 
 
@@ -7875,7 +7875,7 @@ https://b23.tv/K85BnX
 
  本帖最后由 Fami水 于 2021-2-17 22:27 编辑 
 
-<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_CDmbW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://twitter.com/i/status/1362036737711640576" id="aimg_K6a2I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 mv.gif
@@ -16075,5 +16075,268 @@ VCYDZ2(F6Z)IH}4-SVFUB.png
 
 
 这不都是绫总carry ？
+
+
+-----
+
+####  寺川愛美  
+##### 11973#       发表于 2021-5-8 02:29
+
+
+綾總要回峽谷了嗎
+
+
+-----
+
+####  因为你不会  
+##### 11974#       发表于 2021-5-8 19:12
+
+
+快130W了，绫总是不是疯狂刷新中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 11975#       发表于 2021-5-8 19:15
+
+
+草新衣回狗狗居然读了三个多小时的SC吗，看谁还好意思说余是懒狗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11976#       发表于 2021-5-8 19:50
+
+
+那么拉胯的衣服不靠读SC哪能多收钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在卍组三个都成懒狗了
+
+
+syl跟润姨的连动改明天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11977#       发表于 2021-5-8 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么这种联动绫总都能不说一声的啊
+
+
+-----
+
+####  因为你不会  
+##### 11978#       发表于 2021-5-8 20:14
+
+
+因为绫总眼里只有播放量了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11979#       发表于 2021-5-8 20:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我甚至不知道有跟润的联动。
+
+
+-----
+
+####  因为你不会  
+##### 11980#       发表于 2021-5-8 21:06
+
+
+联动能挣W吗（指再加个几W播放量）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 11981#       发表于 2021-5-9 15:12
+
+
+ 本帖最后由 cctvyt1 于 2021-5-9 15:16 编辑 
+
+今晚10点和润姨双倍丢人狩猎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  水城雪风_Z  
+##### 11982#       发表于 2021-5-9 22:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">评论栏开始发病了
+
+
+-----
+
+####  FCCHua  
+##### 11983#       发表于 2021-5-9 22:58
+
+
+看了眼季中赛，狐狸居然时隔多年重回赛场了，虽然全场基本没啥作用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  水城雪风_Z  
+##### 11984#       发表于 2021-5-9 22:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今晚能过轰龙就算胜利
+
+
+-----
+
+####  天悬星河  
+##### 11985#       发表于 2021-5-9 23:03
+
+
+两个一头一尾完美站位让轰龙正好车个来回太草了
+
+“一緒に頑張ろう！”，总之先从装备上找问题<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 11986#       发表于 2021-5-9 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总这身装备不像是她这个操作能打出来的
+
+
+-----
+
+####  一仙  
+##### 11987#       发表于 2021-5-9 23:07
+
+
+突然注意到已经没用新衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 11988#       发表于 2021-5-9 23:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好菜
+
+
+-----
+
+####  水城雪风_Z  
+##### 11989#       发表于 2021-5-9 23:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不奇怪，她W的时候也是接近毕业的装备打出这类似的操作，我猜她是直接找人带的，或者搜索野队
+
+
+-----
+
+####  stedckk  
+##### 11990#       发表于 2021-5-9 23:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我有个疑问，为什么她看到怪打过来 还要打完整套动作不滚开硬吃伤害。
+
+
+-----
+
+####  因为你不会  
+##### 11991#       发表于 2021-5-9 23:30
+
+
+帅啊
+
+
+-----
+
+####  昆西昆希昆  
+##### 11992#       发表于 2021-5-9 23:34
+
+
+自从能联机下本以后，现在的猎人真是越来越逊了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  水城雪风_Z  
+##### 11993#       发表于 2021-5-9 23:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 见切 居合也不练，当然逊了
+
+
+-----
+
+####  因为你不会  
+##### 11994#       发表于 2021-5-9 23:44
+
+
+就绫总这水平还不常玩就该老老实实玩化粪武器，被人设里的太刀带沟里了
+
+
+-----
+
+####  ylssb10438  
+##### 11995#       发表于 2021-5-9 23:59
+
+
+太刀这么简单都玩不转还是玩轻弩吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 11996#       发表于 2021-5-10 00:47
+
+
+<blockquote>FCCHua 发表于 2021-5-9 22:58
+看了眼季中赛，狐狸居然时隔多年重回赛场了，虽然全场基本没啥作用</blockquote>
+绫这不得拿出狐狸耍两把？
+
+
+-----
+
+####  水城雪风_Z  
+##### 11997#       发表于 2021-5-10 01:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第四次轰龙回家了
+
+
+-----
+
+####  stedckk  
+##### 11998#       发表于 2021-5-10 01:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚猫多少次了
+
+
+-----
+
+####  水城雪风_Z  
+##### 11999#       发表于 2021-5-10 01:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她加起来可能有七八次了，粽姨也猫了不少
+
+
+-----
+
+####  昆西昆希昆  
+##### 12000#       发表于 2021-5-10 08:27
+
+
+这个猫车才是你永远的家呀
 
 
