@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-09 14:51** 
+> ## **本文件最后更新于2021-05-11 13:53** 
 
 
 
@@ -6497,19 +6497,22 @@ https://youtu.be/dx1YNjheLEc
 ##### 478#       发表于 2021-5-5 20:54
 
 
- 本帖最后由 Aminor 于 2021-5-5 21:02 编辑 
+ 本帖最后由 Aminor 于 2021-5-11 15:49 编辑 
 
-狗妈pv又抄袭了？
-[https://www.bilibili.com/video/BV1KQ4y1f7zr](https://www.bilibili.com/video/BV1KQ4y1f7zr)绷不住了
-
-<img src="https://img.saraba1st.com/forum/202105/05/205549hpxr5s6717i5x27p.png" referrerpolicy="no-referrer">
+编辑
 
 
-<strong>QQ截图20210505205313.png</strong> (50.47 KB, 下载次数: 0)
+QQ截图20210505205313.png
+(50.47 KB, 下载次数: 0)
+
 
 下载附件
 
+
 2021-5-5 20:55 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/05/205549hpxr5s6717i5x27p.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -8579,6 +8582,21 @@ ymen近一个月直播频率都比黛灰高了，而且前两天搞了个摄像�
 还真是，虽然やみえん小帅但和黑客テンション差太大了，如果2周年不干了会很可惜...
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| fastary| + 1|是吧，黑客这种冷淡低音还挺难找的= =.|
+
+
+查看全部评分
+
+
 
 
 -----
@@ -8590,4 +8608,433 @@ ymen近一个月直播频率都比黛灰高了，而且前两天搞了个摄像�
 看到露露在学ASMR，我想说：你平时说话就是ASMR，不用学......
 
 
-                            
+-----
+
+####  sgssk  
+##### 632#       发表于 2021-5-10 00:43
+
+
+ 本帖最后由 sgssk 于 2021-5-10 14:33 编辑 
+
+泰国妹也太顶了，这次apex的[せんのいのり杯S2](https://twitter.com/hashtag/%E3%81%9B%E3%82%93%E3%81%AE%E3%81%84%E3%81%AE%E3%82%8A%E6%9D%AFS2?src=hashtag_click)囊括冠军队+击杀王+伤害王<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 633#       发表于 2021-5-10 09:39
+
+
+唱歌好听打枪又猛的泰妹谁不爱呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  喜闻乐见  
+##### 634#       发表于 2021-5-10 11:43
+
+
+love3d公开前直接水了期模型调cup 这可太健全了
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gqd6nh4mdej213j0k84f9.jpg" referrerpolicy="no-referrer">
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gqd6nkf0hbj20z70hp7g0.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sonyjam  
+##### 635#       发表于 2021-5-10 18:30
+
+
+<img src="https://p.sda1.dev/1/6a69ea2fa0e0b703f2805bec9a9162ec/21e9239f1bbde725.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 636#       发表于 2021-5-10 18:33
+
+
+诶...？
+
+
+-----
+
+####  Suzutsuki  
+##### 637#       发表于 2021-5-10 18:36
+
+
+我第一次知道Qu是泰国人 我看她直播间一堆看不懂的语言 还想是哪个国家的 没想到是泰国人吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 638#       发表于 2021-5-10 18:46
+
+
+010这啥时候的事啊
+
+
+-----
+
+####  十四洲  
+##### 639#       发表于 2021-5-10 19:54
+
+
+ 本帖最后由 十四洲 于 2021-5-10 19:58 编辑 
+
+星川的惨叫听了真的好可怜
+
+
+-----
+
+####  FCCHua  
+##### 640#       发表于 2021-5-10 20:02
+
+
+他俩居然有排到一起，海子姐没注意，就知道贝叔这几天有玩apex
+
+
+-----
+
+####  caupollen  
+##### 641#       发表于 2021-5-10 20:04
+
+
+就昨天晚上的，好像根本没认出来。而且打的很烂秒出局
+
+
+-----
+
+####  NBXX  
+##### 642#       发表于 2021-5-10 21:03
+
+
+ 本帖最后由 NBXX 于 2021-5-10 21:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51202852&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-5-10 18:46</a>
+
+010这啥时候的事啊</blockquote>
+【APEX】クソザコ卒業のため、ランクを上げたい！【ベルモンド・バンデラス/にじさんじ】
+[https://youtu.be/VTGyuEspLmU?t=12071](https://youtu.be/VTGyuEspLmU?t=12071)
+
+贝叔的视角
+
+[2021年05月10日]BOBO！！！！七海Nana7mi直播回放
+[https://www.bilibili.com/video/BV1oK4y1d7Lk](https://www.bilibili.com/video/BV1oK4y1d7Lk)
+
+1:47:29
+
+七海的视角
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hulaoda007| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  OldGlory  
+##### 643#       发表于 2021-5-10 22:52
+
+
+亲自下场摇人了，大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/10/225225sfxzffeyxwhf09kx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1620657557848.jpg</strong> (32.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 22:52 上传
+
+
+-----
+
+####  free  
+##### 644#       发表于 2021-5-10 23:11
+
+
+[https://twitter.com/kotonegami/status/1391759480640065538](https://twitter.com/kotonegami/status/1391759480640065538)
+
+口吃神7.28专辑
+
+
+<img src="https://img.saraba1st.com/forum/202105/10/231132ictyg993tmmg3m2t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>k.jpg</strong> (324.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 23:11 上传
+
+
+-----
+
+####  free  
+##### 645#       发表于 2021-5-10 23:12
+
+
+[https://twitter.com/ordan/status/1391764822442733568](https://twitter.com/ordan/status/1391764822442733568)
+
+A酱新衣
+
+
+<img src="https://img.saraba1st.com/forum/202105/10/231226waf42ilbll0i0vdb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>a.jpg</strong> (219.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 23:12 上传
+
+
+-----
+
+####  渡鸦骑士  
+##### 646#       发表于 2021-5-11 00:06
+
+
+听说亚人那边出了大问题了，好像房间漏出来了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 647#       发表于 2021-5-11 00:18
+
+
+ 不过Evi本就是大家都知道的NIco唱见，只要不是具体住址被曝光，那问题还不大。
+
+
+-----
+
+####  smy20011  
+##### 648#       发表于 2021-5-11 08:02
+
+
+大的要来了！
+
+
+-----
+
+####  rzrbtk  
+##### 649#       发表于 2021-5-11 13:14
+
+
+大的：郡道舞元叶师皇女一起打麻。
+我爱麻将大会<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 650#       发表于 2021-5-11 14:55
+
+
+看了一下Levi这次使用VR设备暴露中身的评论
+
+配信者なのに防音じゃ無いんか
+
+独り身女の部屋って感じやな
+
+汚い部屋だな、なんだか安心するわ
+
+親近感湧くンゴねぇ…
+
+<img src="https://img.saraba1st.com/forum/202105/11/145407syyfkff5f7yjz5vy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>PSVRは外部カメラ.jpeg</strong> (38.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 14:54 上传
+
+
+VRゴーグルのせいで.jpeg
+(91.72 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-11 14:51 上传
+
+
+阅读权限: <strong>40</strong>
+
+
+<img src="https://img.saraba1st.com/forum/202105/11/145156h8gxellm551zzewm.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 古战场亡魂| + 1|直播环境真不行啊。|
+| 空集| + 1|草|
+
+
+查看全部评分
+
+
+-----
+
+####  noHentai  
+##### 651#       发表于 2021-5-11 18:01
+
+
+和润姨扣鼻图有异曲同工之妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/d63c0697d444bec034cca5add76f8d9b/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 652#       发表于 2021-5-11 18:12
+
+
+这几天有：郡道和啊喵喵闲聊打牌、郡道对猫的真格麻将教学、郡道鸟组集训，叶皇女舞元郡道麻将，会不会太爽了一点<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">…
+看郡道这认真教猫打麻就想起之前的喷喷大赛凌晨练习，郡这种“跟我一队那就好好整”的作风蛮有趣惹
+
+
+-----
+
+####  FCCHua  
+##### 653#       发表于 2021-5-11 18:25
+
+
+ 本帖最后由 FCCHua 于 2021-5-11 18:27 编辑 
+
+https://youtu.be/Qu_LKdRYpmk
+花妈偶像服好显眼，感觉银憨憨比例需要调一调...
+
+
+-----
+
+####  楠芽吹  
+##### 654#       发表于 2021-5-11 18:28
+
+
+难怪虾勇不和她玩 和小福玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 655#       发表于 2021-5-11 18:29
+
+
+菅原小姐啥时候也能露个脸<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 656#       发表于 2021-5-11 18:30
+
+
+Levi一把年纪了，照片本来就多的一比啊
+
+
+-----
+
+####  alcoholic1000  
+##### 657#       发表于 2021-5-11 19:09
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-11 21:07 编辑 
+
+我想看菅原圭小姐和尾北ねむ谈恋爱<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+两位这些年我给你写歌，你给我配图
+
+为你编曲，一起写歌，同你创办原创社团，很难说不般配
+
+梅丽莎这个凸待，弦月来聊的话题、以及最后让小蜜蜂别冻着的问候
+
+是在恋爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kangkangsama  
+##### 658#       发表于 2021-5-11 19:13
+
+
+<blockquote>rzrbtk 发表于 2021-5-11 18:12
+这几天有：郡道和啊喵喵闲聊打牌、郡道对猫的真格麻将教学、郡道鸟组集训，叶皇女舞元郡道麻将，会不会太爽 ...</blockquote>
+某推特：女と絡んでる時の郡道美玲メスッぽくて好き
+
+
+-----
+
+####  rzrbtk  
+##### 659#       发表于 2021-5-11 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51215299&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-5-11 19:13</a>
+某推特：女と絡んでる時の郡道美玲メスッぽくて好き</blockquote>
+比起说女人，不如说郡道私底下靠谱社会人的那一面展现出来了，跟男人和其他靠谱女人联动郡道就可以闹很疯，跟猫联动的时候她就被迫当控场，郡道不想当妈更不想被观众觉得是妈角色，但是和猫的人狼、大赛联动来了不得不上，刚才联动强制圆场结尾也把我看笑了。
+个人很喜欢看郡道被迫做些不愿意的事，当然猫猫实质门儿清玩节目效果，不会太为难郡道，要说真不愿意还得看mrra<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 660#       发表于 2021-5-11 21:08
+
+
+hinano队伍鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">第一次参加cr表现两眼啊
+
+
+
+
+-----
+
+####  asdhai  
+##### 661#       发表于 2021-5-11 21:32
+
+
+今天也是毫无波澜的一天
+
+
+-----
+
+####  kangkangsama  
+##### 662#       发表于 2021-5-11 21:35
+
+
+<img src="https://img.saraba1st.com/forum/202105/11/213410ycxxer8nq11e3xxr.png" referrerpolicy="no-referrer">
+
+
+<strong>黑潮.png</strong> (90.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-11 21:34 上传
+
+
+Chad 神田：芝麻信用bluhbluh vs Virgin 神田：中国手游真好玩！
+
+
+                           

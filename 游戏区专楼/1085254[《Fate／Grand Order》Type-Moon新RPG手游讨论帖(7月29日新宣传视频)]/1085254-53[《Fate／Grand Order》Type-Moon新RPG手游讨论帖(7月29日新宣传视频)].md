@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-09 07:39** 
+> ## **本文件最后更新于2021-05-11 13:43** 
 
 
 
@@ -8101,4 +8101,360 @@ fgo活动早就变成，氪金加成是傻逼的模式了，金银铜最后永�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">灵衣没有灵魂
 
 
-                          
+-----
+
+####  黑上シグマ  
+##### 78694#       发表于 2021-5-9 21:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">终于把点数刷完了，这次这破活动一张礼装都没掉
+
+
+-----
+
+####  森兰丸  
+##### 78695#       发表于 2021-5-10 02:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/151.png" referrerpolicy="no-referrer">好久没看氪金榜了....这辣鸡游戏竟然掉到36位了....时代真的变了
+
+
+-----
+
+####  rooarr  
+##### 78696#       发表于 2021-5-10 02:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51195635&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-5-10 02:03</a>
+好久没看氪金榜了....这辣鸡游戏竟然掉到36位了....时代真的变了</blockquote>
+等出新卡会回到第二的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 78697#       发表于 2021-5-10 03:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51195667&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-5-10 02:15</a>
+
+等出新卡会回到第二的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这辣鸡游戏之前的一大韧性不就是再怎么复刻旧卡.....就算只有4星的卡池也不会掉出前5么...运营是真躺着赚钱
+
+现在要出新卡才能躺回前排就说明时代是变了啊
+
+
+-----
+
+####  風卷豹  
+##### 78698#       发表于 2021-5-10 08:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190125&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-5-9 14:50</a>
+
+美神农神还没说话呢你们这些后来的先排队啊
+
+这么看2.5.2是真的怪，先给了个剧情上让人一点都喜欢不起来的双 ...</blockquote>
+因为那几个希腊神只做了真神体没做一般模型，后面又要出各种美少女了，没空做BBA和老头。
+
+神祖的问题还是平时刻画太少，同是冠位的俄里翁平常就跟月神各种活动浪了，神祖我也就白枪呆的剧情有点印象。要我说还不如直接做成狂舅马甲而不是神祖完全体，还能抬一手贯穿252全程的狂舅。
+
+
+-----
+
+####  areklose  
+##### 78699#       发表于 2021-5-10 09:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我材料基本搬完了。每个点数接近70W，咸鱼就咸鱼了。都不差这一次。所以今天会有新活动还是长草。
+
+
+-----
+
+####  sosgame67  
+##### 78700#       发表于 2021-5-10 09:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51196897&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-10 09:17</a>
+
+我材料基本搬完了。每个点数接近70W，咸鱼就咸鱼了。都不差这一次。所以今天会有新活动还是长草。 ...</blockquote>
+肯定是激动人心的长草啦<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UNISONIA  
+##### 78701#       发表于 2021-5-10 10:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51195791&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-5-10 03:07</a>
+
+这辣鸡游戏之前的一大韧性不就是再怎么复刻旧卡.....就算只有4星的卡池也不会掉出前5么...运营是 ...</blockquote>
+巅峰时代新四星+旧五星的卡池甚至还事实登顶过（指维持在第一24小时以上）
+
+
+时代变自从SW2活动限定新五星没事实登顶就开始了（主线卡和常驻卡之前早就有先例了），在第一呆没几个小时就被荒野行动赶下来了。之后小王子又来一次差不多的情况。
+
+
+不过去年有个光炮卡池的欺诈（很多人第一天被封面骗了以为是水尼禄单UP所以抽了，也不乏看清楚了想去赌R莫什么的），那个完成了事实登顶还是有点巅峰期躺着赚钱的影子的（虽然同期别的有竞争力的游戏也没开新卡池）
+
+
+-----
+
+####  清风朗月  
+##### 78702#       发表于 2021-5-10 17:23
+
+
+ 本帖最后由 清风朗月 于 2021-5-10 17:31 编辑 
+
+光合作用法老王
+
+<img src="https://img.saraba1st.com/forum/202105/10/172334jekg67g61hwgw5mv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210510_171837.jpg</strong> (126.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 17:23 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  areklose  
+##### 78703#       发表于 2021-5-10 17:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如妹夫
+
+
+-----
+
+####  khxooo  
+##### 78704#       发表于 2021-5-10 17:52
+
+
+只加了2%，唯一屎不愧是唯一屎<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 78705#       发表于 2021-5-10 17:59
+
+
+堂堂法老王要抱高文大腿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这算不算无名之王管索拉尔叫哥
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alucardcz  
+##### 78706#       发表于 2021-5-10 17:59
+
+
+这强化等于没强化<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78707#       发表于 2021-5-10 18:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在看看唐僧...整整多个一个领导力  这对比
+
+
+-----
+
+####  白夜羽  
+##### 78708#       发表于 2021-5-10 18:42
+
+
+那个男人真是杀了唯一神的亲妈
+
+
+-----
+
+####  khxooo  
+##### 78709#       发表于 2021-5-10 18:48
+
+
+才发现暴伤还不是无条件的<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UNISONIA  
+##### 78710#       发表于 2021-5-10 18:56
+
+
+这强化比总司的烂多了……差不多到3000血级别了
+
+
+-----
+
+####  DARKGRAY  
+##### 78711#       发表于 2021-5-10 19:26
+
+
+未来肯定会再来个加太阳的啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78712#       发表于 2021-5-10 19:27
+
+
+感觉像是施舍一样的强化，类似于对玩家说“别叫唤了，这个拉二的强化本拿好了，现在这梗没了，行了吧”
+
+
+-----
+
+####  smdzh2  
+##### 78713#       发表于 2021-5-10 20:52
+
+
+虽然事不关己，但是每次看到这种+3000血级别的强化都不免为自己心仪但还没强化的人物捏一把汗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  久井路路  
+##### 78714#       发表于 2021-5-11 02:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190125&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-5-9 14:50</a>
+
+美神农神还没说话呢你们这些后来的先排队啊
+
+这么看2.5.2是真的怪，先给了个剧情上让人一点都喜欢不起来的双 ...</blockquote>
+人气高的那几个神是指谁（
+
+
+是2.52大部分玩家的心理阴影农神，还是没高光就送了的美神，还是绝大多数时候不以人形示人的宙斯（
+
+
+2.52最怪的就是几乎没把任何有立绘的新从者写高光，实装哪个都差一口气，欧罗巴也许还可以，结果人家提前去补2.51的口子了（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  都谷捻柏  
+##### 78715#       发表于 2021-5-11 06:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51204026&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-5-10 20:52</a>
+
+虽然事不关己，但是每次看到这种+3000血级别的强化都不免为自己心仪但还没强化的人物捏一把汗 ...</blockquote>
+看开点，也许在运营看来他们连拿这种强化都不配
+
+
+-----
+
+####  areklose  
+##### 78716#       发表于 2021-5-11 09:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我已经看开了。只要我有的有强化本就好了。起码多点石头
+
+
+-----
+
+####  exiaexa  
+##### 78717#       发表于 2021-5-11 11:08
+
+
+252那几个感觉就是为了配合应该有的奥运活动准备的吧，然后全部木大
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+顺便拉二强化就差告诉你3技能会给太阳场地了，急啥
+
+
+-----
+
+####  UNISONIA  
+##### 78718#       发表于 2021-5-11 12:37
+
+
+呃你们都没看去年年底famitsu那个访谈后半吗
+
+
+官方口径看起来机神应该是一开始就不打算实装的，所谓奥运活动也只是子虚乌有的猜测，后门还有的时候都没证实过这种东西是存在的
+
+能确定的是决定下来用真体机神而不是用人形态制作模组是竹之内负责章节美术设计以后的事情了
+
+
+-----
+
+####  仰望神的括约肌  
+##### 78719#       发表于 2021-5-11 17:36
+
+
+明天有维护 看看活<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 78720#       发表于 2021-5-11 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51210490&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-5-11 12:37</a>
+呃你们都没看去年年底famitsu那个访谈后半吗
+
+
+官方口径看起来机神应该是一开始就不打算实装的，所谓奥运活 ...</blockquote>
+你搁这儿说啥呢，五周年访问没有，年底时候的周年访谈未公开内容只是说第二部决定给npc也加立绘，所以提前就做好了12机神的概念设计，咋就钦定不实装了
+更别说这次这爬塔就过后离美神落地就差临门一脚了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+奥运活动但是全靠猜没问题，单纯就是刚好那段时期在长草出来的梗
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78721#       发表于 2021-5-11 21:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等 我大碧池不强化吗  这合理吗 一起up不一起强化
+
+
+-----
+
+####  khxooo  
+##### 78722#       发表于 2021-5-11 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51216411&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-5-11 21:05</a>
+
+等等 我大碧池不强化吗  这合理吗 一起up不一起强化</blockquote>
+达芬奇不是刚强化过二技能吗？
+
+
+-----
+
+####  alucardcz  
+##### 78723#       发表于 2021-5-11 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51216528&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-5-11 21:17</a>
+
+达芬奇不是刚强化过二技能吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能强化！
+
+
+                         
