@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-11 13:53** 
+> ## **本文件最后更新于2021-05-12 13:58** 
 
 
 
@@ -8866,7 +8866,7 @@ A酱新衣
 
 
 VRゴーグルのせいで.jpeg
-(91.72 KB, 下载次数: 0)
+(91.72 KB, 下载次数: 1)
 
 
 下载附件
@@ -8886,10 +8886,11 @@ VRゴーグルのせいで.jpeg
 评分
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 渡鸦骑士| + 1|这环境能唱歌回某种程度上也可以…….|
 | 古战场亡魂| + 1|直播环境真不行啊。|
 | 空集| + 1|草|
 
@@ -8903,8 +8904,11 @@ VRゴーグルのせいで.jpeg
 ##### 651#       发表于 2021-5-11 18:01
 
 
+ 本帖最后由 noHentai 于 2021-5-12 00:19 编辑 
+
 和润姨扣鼻图有异曲同工之妙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/1/d63c0697d444bec034cca5add76f8d9b/image.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/1/7f1cff1f8616c1a9acff0e5515b2ec86/image.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -9037,4 +9041,565 @@ hinano队伍鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/0
 Chad 神田：芝麻信用bluhbluh vs Virgin 神田：中国手游真好玩！
 
 
-                           
+-----
+
+####  十四洲  
+##### 663#       发表于 2021-5-11 22:14
+
+
+哪天低血压了可以把叶师打麻将的档翻出来治治<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 664#       发表于 2021-5-11 23:35
+
+
+smc的煎饼联动原来是和虹b综连着的...<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 665#       发表于 2021-5-12 00:38
+
+
+郡道试着用了翻译机，语速太快了完全没效果，用外人哥的话就是 ​【The app translated like 1/20th of what she said lol】
+
+
+-----
+
+####  winda  
+##### 666#       发表于 2021-5-12 00:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">hada valo玩得不错啊
+
+
+-----
+
+####  poipanchao  
+##### 667#       发表于 2021-5-12 00:44
+
+
+hada之前看她玩apex就看的出来
+
+枪力很顶走位稀烂
+
+一看就是别游戏经验者，练练说不定又是一员大将
+
+
+syl，今天bora杀疯了，击杀榜第三，CR_Bora
+
+
+-----
+
+####  winda  
+##### 668#       发表于 2021-5-12 01:21
+
+
+看jp wiki消息apex今天要紧急nerf弓和喷火了
+
+
+-----
+
+####  wiig  
+##### 669#       发表于 2021-5-12 07:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51218865&amp;ptid=1972669" target="_blank">winda 发表于 2021-5-12 01:21</a>
+看jp wiki消息apex今天要紧急nerf弓和喷火了</blockquote>
+？？？削弓就削弓 我喷火做错什么了 还有王法吗
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|喷火……我的喷火……|
+
+
+查看全部评分
+
+
+-----
+
+####  rzrbtk  
+##### 670#       发表于 2021-5-12 12:41
+
+
+最近看到的郡不快视频（[https://www.nicovideo.jp/watch/sm38720141](https://www.nicovideo.jp/watch/sm38720141)），难得认为郡道说得很对，觉得【比多井菜的不要当指示厨】和【在直播的时候不要提无关人士】这两句话互相矛盾的人也太微妙了吧，
+
+好久没看到这种让指示厨滚出直播间的郡道和让郡道滚出直播界的郡an自由互殴的视频了，不错！
+
+
+-----
+
+####  Ketestrait  
+##### 671#       发表于 2021-5-12 15:03
+
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gqfnneq8cmj20kl0tywlh.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 672#       发表于 2021-5-12 15:17
+
+
+nijisanji EN真的来了…
+
+
+-----
+
+####  wiig  
+##### 673#       发表于 2021-5-12 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51225036&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-5-12 15:17</a>
+
+nijisanji EN真的来了…</blockquote>
+除了reddit动了有新消息？
+
+
+-----
+
+####  IDIDIDID  
+##### 674#       发表于 2021-5-12 15:20
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-12 15:24 编辑 
+
+EN（指官方网站英语版
+
+
+EN版导航栏少了新闻、作品和FC，看来翻译工作还没做完
+
+
+-----
+
+####  空集  
+##### 675#       发表于 2021-5-12 15:44
+
+
+这虹en官网就改了个liver名 这简介还全是日文是想要搞啥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  死体残留  
+##### 676#       发表于 2021-5-12 16:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">田角老遛en狗了 
+
+
+-----
+
+####  qq845629713  
+##### 677#       发表于 2021-5-12 16:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 英语区观众之于nijisanji，是不是相当于中文区观众之于木口？
+
+
+-----
+
+####  AKili  
+##### 678#       发表于 2021-5-12 16:32
+
+
+想打开英语区观众还不容易，直接找nabi画个皮不就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 679#       发表于 2021-5-12 17:04
+
+
+主要是去年12月宣布招人到现在半年多了还没消息有点怪
+
+
+-----
+
+####  poipanchao  
+##### 680#       发表于 2021-5-12 17:08
+
+
+这次cr看下来towa这人还行啊，有在努力
+夏小姐那队什么灵车啊，动不动2人加起来伤害不过百的，夏还动不动0伤
+
+
+-----
+
+####  某穆克拉  
+##### 681#       发表于 2021-5-12 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51226432&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-5-12 17:08</a>
+
+这次cr看下来towa这人还行啊，有在努力
+
+夏小姐那队什么灵车啊，动不动2人加起来伤害不过百的，夏还动不动0 ...</blockquote>
+阿希本来就是菜鸡啊，还是经常把自己打哭那种。
+
+
+-----
+
+####  FCCHua  
+##### 682#       发表于 2021-5-12 17:30
+
+
+ 本帖最后由 FCCHua 于 2021-5-12 17:32 编辑 
+
+uge发挥挺不稳定的...虽然我对她的印象更多是和小千一起打apex，这次cr没怎么看
+
+
+-----
+
+####  IDIDIDID  
+##### 683#       发表于 2021-5-12 17:33
+
+
+号称大师的打死不玩apex
+
+solo上钻的找不到队友且已经躺平
+
+对马自立抱有希望请自我反省
+
+也就剩下towa能看一下了，虽然肯定也是陪跑。
+
+
+-----
+
+####  poipanchao  
+##### 684#       发表于 2021-5-12 17:35
+
+
+陪跑不至于，bora队这次夺冠希望还蛮大的
+
+我想起最协那两辆灵车
+vspo为了吃holo流量付出了太多
+
+
+-----
+
+####  winda  
+##### 685#       发表于 2021-5-12 18:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阿希那队不初动落还是有实力的，毕竟是上届第四换了个uruca。夏哥打伤害比大师分段的uge还凶，还达成了单杀ras的成就
+
+
+-----
+
+####  winda  
+##### 686#       发表于 2021-5-12 18:32
+
+
+<blockquote>winda 发表于 2021-5-12 18:30
+阿希那队不初动落还是有实力的，毕竟是上届第四换了个uruca。夏哥打伤害比大师分段的uge还凶，还达 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202105/12/183155n1ytgs832y2kt7mt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210511_065642.jpg</strong> (183.74 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-12 18:31 上传
+
+
+补上阿希单杀ras现场
+
+
+-----
+
+####  alcoholic1000  
+##### 687#       发表于 2021-5-12 18:38
+
+
+哈哥台这个カラオケ还挺好看的，想念绿仙的オフコラボ、オンラインライブ
+
+不论歌力，一群人就是有氛围...
+
+
+-----
+
+####  OldGlory  
+##### 688#       发表于 2021-5-12 19:18
+
+
+又是充满了现充气息的唱k<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">宅宅看不得这个
+
+
+-----
+
+####  NBXX  
+##### 689#       发表于 2021-5-12 19:53
+
+
+Vtuber微相关
+
+[https://www.moguravr.com/voice-avatar-nanakoe-nina/](https://www.moguravr.com/voice-avatar-nanakoe-nina/)
+
+誰の声でもキャラクターの声に変換できるサービス「VOICE AVATAR 七声ニーナ」が公開
+<img src="https://www.moguravr.com/wp-content/uploads/2021/05/202105121440498000.jpg" referrerpolicy="no-referrer">
+
+この企画は「AIを用いた完全なキャラクター声の再現」を目指して行われており、音声変換の品質やパフォーマンスの向上に加えて、従来難しかった話者の感情表現を含んだ音声変換の実現に向け、研究開発が進められているそうです。
+
+
+これにより、ゲームキャラの声でボイスチャットしたり、アバターにぴったりの声でライブ配信をしたりといったことが未来に実現する可能性があるとのこと。詳細は[公式サイト](https://nanakoe-nina.dena.ai/)を確認ください。
+
+
+-----
+
+####  黑暗剑  
+##### 690#       发表于 2021-5-12 21:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你虹en找mafumafu做出道曲，很难有兴趣
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 691#       发表于 2021-5-12 21:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">hololive的末日就要到了。
+
+
+-----
+
+####  free  
+##### 692#       发表于 2021-5-12 21:15
+
+
+[https://twitter.com/Ichikara_Inc/status/1392465310737858568](https://twitter.com/Ichikara_Inc/status/1392465310737858568)
+【「NIJISANJI EN」より 『LazuLight』3名デビュー決定！】主に英語を用いて活動するVTuberプロジェクト「NIJISANJI EN」からVTuberグループ『LazuLight』のメンバーとして3名のライバーがデビュー！5/16(日)デビュー特別番組&amp;楽曲情報を一挙公開！
+[/000000265.000030865.html](https://t.co/qVRocWCGWR?amp=1)
+
+
+<img src="https://img.saraba1st.com/forum/202105/12/211438hcxov36u7fz7n3hw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2434.jpg</strong> (449.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-12 21:14 上传
+
+
+-----
+
+####  asdhai  
+##### 693#       发表于 2021-5-12 21:18
+
+
+来力
+
+
+-----
+
+####  OldGlory  
+##### 694#       发表于 2021-5-12 21:19
+
+
+为什么声音都放出来了，这首播惊喜少一大半了。
+
+
+-----
+
+####  IDIDIDID  
+##### 695#       发表于 2021-5-12 21:21
+
+
+戦争だ！！！
+
+
+-----
+
+####  真飞鸟i  
+##### 696#       发表于 2021-5-12 21:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">个人来说觉得皮质量挺不错的，中间那个比较对胃口，可惜是贫乳。
+
+
+-----
+
+####  FCCHua  
+##### 697#       发表于 2021-5-12 21:21
+
+
+ 本帖最后由 FCCHua 于 2021-5-12 21:57 编辑 
+
+星川填词，可以
+不过我还以为会有男的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 神乐七奈正式道歉了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ヒトニナル  
+##### 698#       发表于 2021-5-12 21:21
+
+
+mfmf<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">开什么玩笑 要吐了
+
+
+-----
+
+####  IDIDIDID  
+##### 699#       发表于 2021-5-12 21:25
+
+
+这DQN naming，ickr的人英语确实比cover的还差<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdhai  
+##### 700#       发表于 2021-5-12 21:26
+
+
+贫乳怎么了怎么了？巨乳党真没法处
+
+
+-----
+
+####  mmbk  
+##### 701#       发表于 2021-5-12 21:26
+
+
+ickr什么时候入土<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 702#       发表于 2021-5-12 21:27
+
+
+Holo EN乙烷，有事烧纸
+
+
+-----
+
+####  真飞鸟i  
+##### 703#       发表于 2021-5-12 21:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人鱼推特说日语ok，是日本人还是在日外国人。
+
+
+-----
+
+####  IDIDIDID  
+##### 704#       发表于 2021-5-12 21:27
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-12 21:33 编辑 
+
+我TL是第一次被田角刷屏，看来是真的当决战兵器了。不过只要还是fumoto先生管大概率还是要咸掉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 705#       发表于 2021-5-12 21:31
+
+
+那种事（指mfmf掺一脚、没男人）不要啊！
+
+不过定成三人组挺好的，可以说是虹的成功经验之一
+
+
+-----
+
+####  死体残留  
+##### 706#       发表于 2021-5-12 21:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">又在吹死婊活了 nijien这皮比holoen差太多了，和steam那群欧美黄油人设差不多真有白皮买账的么
+
+
+-----
+
+####  free  
+##### 707#       发表于 2021-5-12 21:35
+
+
+第一眼看着没有holoen吸引人......设定一个龙人，一个森林精灵，一个人鱼也大众了点
+
+
+-----
+
+####  IDIDIDID  
+##### 708#       发表于 2021-5-12 21:35
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-12 21:52 编辑 
+
+目前纯皮斗虫是龙&gt;妖精&gt;鱼人。等等，这帮人应该登场就用3.0吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> <blockquote>Celebrating the debut of NIJISANJI EN’s first wave VTuber group LazuLight, <strong>each member’s first livestreams and their debut singles will be the main focus of the debut special streaming program: NIJISANJI EN 「LazuLight」 DEBUT! ~LIVE from the Moon~ which will be livestreamed on the NIJISANJI English Official YouTube channel</strong> on the following date and time:</blockquote>运营是傻逼吧
+
+
+SYL：
+
+不知道龙16号能攒多少虚空订阅
+
+
+-----
+
+####  AKili  
+##### 709#       发表于 2021-5-12 21:42
+
+
+这感觉类型有点单一啊
+
+
+-----
+
+####  Suny08  
+##### 710#       发表于 2021-5-12 21:43
+
+
+这是你虹本社的末日吧，这样子你虹本社彻底没人看了
+
+
+-----
+
+####  poipanchao  
+##### 711#       发表于 2021-5-12 21:56
+
+
+怎么还有人看yhm（指指点点）
+
+
+-----
+
+####  smy20011  
+##### 712#       发表于 2021-5-12 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51228846&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-5-12 21:35</a>
+
+目前纯皮斗虫是龙&gt;妖精&gt;鱼人。等等，这帮人应该登场就用3.0吧联动找HEN有点难，找pikamee和uto先吸 ...</blockquote>
+debut不放到liver的channel么？让人虚空订阅？
+
+
+                          
