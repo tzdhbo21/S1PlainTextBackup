@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-13 10:53** 
+> ## **本文件最后更新于2021-05-12 15:46** 
 
 
 
@@ -104,8 +104,7 @@
 ####  asd225588  
 ##### 3#       发表于 2021-3-25 15:26
 
-
-嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -189,8 +188,7 @@
 ####  asd225588  
 ##### 9#       发表于 2021-3-25 22:47
 
-
-今天没发病,然然晚安
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -639,8 +637,7 @@ O castitatis lilium.
 ####  asd225588  
 ##### 49#       发表于 2021-3-26 10:17
 
-
-嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -717,8 +714,7 @@ O castitatis lilium.
 ####  asd225588  
 ##### 57#       发表于 2021-3-26 23:17
 
-
-嘉门🙏🏻
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -827,8 +823,7 @@ O castitatis lilium.
 ####  药石难救人心  
 ##### 68#       发表于 2021-3-28 10:01
 
-
-嘉门！
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -876,8 +871,7 @@ O castitatis lilium.
 ####  asd225588  
 ##### 73#       发表于 2021-3-29 10:02
 
-
-<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1266,8 +1260,7 @@ O castitatis lilium.
 ####  asd225588  
 ##### 113#       发表于 2021-4-10 21:12
 
-
-嘉门
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1353,4 +1346,326 @@ O castitatis lilium.
 嘉门
 
 
-                                             
+-----
+
+####  辉卡利  
+##### 123#       发表于 2021-4-15 22:17
+
+
+嘉门
+
+
+-----
+
+####  Smile_D_up  
+##### 124#       发表于 2021-4-16 08:27
+
+
+今天才看了健身环录播，这群人怎么能对一个普通的虚拟主播有这么大的恶意<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+嘉门
+
+—— 来自 OnePlus 7 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  辉卡利  
+##### 125#       发表于 2021-4-16 08:55
+
+
+早上好，嘉然小姐
+
+
+-----
+
+####  Blaze626  
+##### 126#       发表于 2021-4-17 02:33
+
+
+私自在A版也散播了圣嘉然教的名，我主嘉然会宽恕我吗（这教堂的神父也能宽恕我吗<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">）？而且迫于异教徒的**连教义与教名也无法传播，只能空留一座忏悔室，但想必她忠实的信徒即使没有教义的指引，也能循着她的名行她许可的事吧，嘉门🙏
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 127#       发表于 2021-4-17 12:36
+
+
+😇😇😇
+🙏🏻
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  nowaki  
+##### 128#         楼主| 发表于 2021-4-17 15:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">最近然然撩的让人顶不住
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 129#       发表于 2021-4-18 01:13
+
+
+ 本帖最后由 凑君胖次真好闻 于 2021-4-18 02:50 编辑 
+
+晚安捏
+SYL，希望大家能在爱你的同时不要受到伤害。
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  nowaki  
+##### 130#         楼主| 发表于 2021-4-20 21:16
+
+
+嘉然保佑我月底面试顺利，嘉门。
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 131#       发表于 2021-4-20 22:14
+
+
+愿圣嘉然保佑我毕设通过，嘉门
+
+[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+
+
+-----
+
+####  zc1996zc  
+##### 132#       发表于 2021-4-20 23:00
+
+
+圣嘉然保佑我论文能被录用，考公可以先等等，嘉门
+
+
+-----
+
+####  辉卡利  
+##### 133#       发表于 2021-4-21 15:24
+
+
+嘉门
+
+
+-----
+
+####  Smile_D_up  
+##### 134#       发表于 2021-4-22 23:45
+
+
+今天因为吃火锅错过然然直播，愿圣嘉然宽恕我的罪
+嘉门
+
+—— 来自 OnePlus 7 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  制作人  
+##### 135#       发表于 2021-4-23 00:48
+
+
+嘉门
+
+
+-----
+
+####  是谁的书画  
+##### 136#       发表于 2021-4-23 01:05
+
+
+圣嘉然大天使，请赐予朵子姐祝福，让她远离原生家庭的折磨，正常的以人的姿态踏入社会；嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  火之蔓族  
+##### 137#       发表于 2021-4-23 19:50
+
+
+ 本帖最后由 火之蔓族 于 2021-4-23 19:51 编辑 
+
+最新图片
+
+<img src="https://img.saraba1st.com/forum/202104/23/195116bjxfxe7mrxywfjez.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4E9D3CBD02A91D791D5D2ACC3A7D73CA.jpg</strong> (266.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 19:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202104/23/195116t2rgjnn9d29yyyjz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1FAE0DB729BD51E784720643DD14E68F.jpg</strong> (165 KB, 下载次数: 0)
+
+下载附件
+
+2021-4-23 19:51 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  辉卡利  
+##### 138#       发表于 2021-4-25 03:52
+
+
+然然晚安捏
+
+
+-----
+
+####  小小雪空  
+##### 139#       发表于 2021-4-25 04:11
+
+
+嘉门，圣嘉然是不会输的
+
+
+-----
+
+####  孤睾嘤雄  
+##### 140#       发表于 2021-4-25 06:59
+
+
+希望今天科目四能过，嘉门
+
+
+-----
+
+####  Kitadoom  
+##### 141#       发表于 2021-4-25 08:15
+
+
+嘉门🙏
+
+ -- 傲娇地来自 Stage1未知客户端
+
+
+-----
+
+####  Smile_D_up  
+##### 142#       发表于 2021-4-26 00:01
+
+
+然然晚安捏
+
+—— 来自 OnePlus 7 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yuzu98k  
+##### 143#       发表于 2021-4-27 07:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">周二
+
+
+-----
+
+####  掉落的肥皂  
+##### 144#       发表于 2021-4-27 08:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">嘉门
+
+
+-----
+
+####  Smile_D_up  
+##### 145#       发表于 2021-5-1 20:36
+
+
+萤火虫怎么这么多然然<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus 7 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  nowaki  
+##### 146#         楼主| 发表于 2021-5-1 23:16
+
+
+考上了来还愿，然然越来越火捏
+
+
+-----
+
+####  汶水君  
+##### 147#       发表于 2021-5-10 10:41
+
+
+又是苦逼的周一，愿然然保佑我工作上别出幺蛾子，嘉门！
+
+
+-----
+
+####  不想闭嘴  
+##### 148#       发表于 2021-5-11 15:55
+
+
+嘉门<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凑君胖次真好闻  
+##### 149#       发表于 2021-5-11 16:04
+
+
+向嘉然祈祷世界和平<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+起码是asoul相关论坛和平。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Gundamslave  
+##### 150#       发表于 2021-5-11 17:49
+
+
+今天我又幻想着嘉然做污秽之事了，我忏悔。
+
+
+
+
+-----
+
+####  yuzu98k  
+##### 151#       发表于 2021-5-12 22:58
+
+
+dd<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我尊敬的父亲  
+##### 152#       发表于 2021-5-12 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51214466&amp;ptid=1994944" target="_blank">Gundamslave 发表于 2021-5-11 17:49</a>
+今天我又幻想着嘉然做污秽之事了，我忏悔。</blockquote>
+😅
+
+
+                                            
