@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-11 14:35** 
+> ## **本文件最后更新于2021-05-12 22:43** 
 
 
 
@@ -1114,10 +1114,12 @@ p.s.
 评分
 
 
- 参与人数 4战斗力 -6
+ 参与人数 6战斗力 -9
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 鷹書たかしょ|-2|久しぶり|
+| 素人不相识|-1|夜雨酱|
 | 呓亘|-2|千酱～|
 | 时间在我手中|-1|没事，周末就别休息了，多干点.|
 | yuandi0120|-2|欢乐多|
@@ -1406,4 +1408,310 @@ syl，半小时前好像osu在线（
 —— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                             
+-----
+
+####  yywzjsw  
+##### 15122#       发表于 2021-5-12 11:45
+
+
+政界女王
+
+
+-----
+
+####  掉头学姐  
+##### 15123#       发表于 2021-5-12 15:09
+
+
+今天播不播
+
+
+-----
+
+####  时间在我手中  
+##### 15124#       发表于 2021-5-12 15:16
+
+
+别再播歌回最好···就算是我也多少听到耳朵生茧了
+
+虽然我觉得很大可能直奔明天联动啥的就是了，反正我是懒得认真听了
+
+
+-----
+
+####  黒長直姫  
+##### 15125#       发表于 2021-5-12 15:29
+
+
+已经没有别的回了，全部糅杂进歌回了
+
+
+想听别的等TC
+
+
+-----
+
+####  Klience  
+##### 15126#       发表于 2021-5-12 15:40
+
+
+很好奇咩会不会在下次直播或者tc讲日本议员（？）在她推特留言的事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15127#       发表于 2021-5-12 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51225306&amp;ptid=1973472" target="_blank">Klience 发表于 2021-5-12 15:40</a>
+
+很好奇咩会不会在下次直播或者tc讲日本议员（？）在她推特留言的事</blockquote>
+建议不谈,牵扯进来厕所相关找死是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15128#       发表于 2021-5-12 16:37
+
+
+bsyl,明天晚上神tm不洗澡联动<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+海苔男的台本,只能用悲剧来形容<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15129#       发表于 2021-5-12 16:40
+
+
+看到标题就瞬间失去兴趣了
+加油啊，thh和犬山组的大哥哥们<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15130#       发表于 2021-5-12 16:54
+
+
+今晚没比赛 求咩姐别播让我好好打游戏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15131#       发表于 2021-5-12 16:58
+
+
+麻瘾犯了，想要小麻来治愈我<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15132#       发表于 2021-5-12 18:28
+
+
+ 本帖最后由 雪风utopia 于 2021-5-12 18:59 编辑 
+
+我不想看联动，我要看单人，单人<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+syl  单人直播她来了，她心里有我<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15133#       发表于 2021-5-12 18:58
+
+
+东京21点30
+
+
+-----
+
+####  十九号大侠  
+##### 15134#       发表于 2021-5-12 19:09
+
+
+盲猜又是歌回吧
+
+
+-----
+
+####  十九号大侠  
+##### 15135#       发表于 2021-5-12 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15136#       发表于 2021-5-12 19:16
+
+
+除了唱歌水时长还有什么能播的呢 这人播的也就这几样 歌会又能放在后台打游戏了 好耶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15137#       发表于 2021-5-12 19:16
+
+
+跟黄兔子约了周日东京23点打麻将
+
+
+-----
+
+####  GRMeA104  
+##### 15138#       发表于 2021-5-12 19:33
+
+
+有什么事请回discord讨论去,我不吃这套的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15139#       发表于 2021-5-12 19:33
+
+
+<img src="https://img.saraba1st.com/forum/202105/12/193329ku00s7uu0uau825s.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210512193323.png</strong> (57.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-12 19:33 上传
+
+
+麻将没兴趣 挂后台放个响算了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15140#       发表于 2021-5-12 20:34
+
+
+小麻这炮形态波比打的可以啊 可惜对面刀妹妹太猛了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15141#       发表于 2021-5-12 20:44
+
+
+我是说今天咋没转播，还没反应过来
+
+
+-----
+
+####  thisisaspider  
+##### 15142#       发表于 2021-5-12 21:22
+
+
+可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 15143#       发表于 2021-5-12 21:24
+
+
+年轻个20岁（
+
+
+-----
+
+####  时间在我手中  
+##### 15144#       发表于 2021-5-12 21:30
+
+
+我的IGNITE，肥婆，呜呜呜
+
+
+-----
+
+####  Klience  
+##### 15145#       发表于 2021-5-12 23:02
+
+
+无情的连唱机械啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15146#       发表于 2021-5-12 23:07
+
+
+吐了，这种铁混子还能有2k同接，搞个企划能死
+
+
+-----
+
+####  Klience  
+##### 15147#       发表于 2021-5-12 23:08
+
+
+那你怕不是没有遇到过早上7点唱到中午12点 长达5个小时 中途没有停过的歌会哦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zc1996zc  
+##### 15148#       发表于 2021-5-12 23:10
+
+
+颜值区主播不都这样嘛
+
+
+-----
+
+####  Klience  
+##### 15149#       发表于 2021-5-12 23:20
+
+
+卧槽 这歌
+
+
+-----
+
+####  雪风utopia  
+##### 15150#       发表于 2021-5-13 01:37
+
+
+现在小麻的声音还在脑中回荡，你究竟要对天狗做什么了，此间安乐，不思蜀<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  掉头学姐  
+##### 15151#       发表于 2021-5-13 06:24
+
+
+臭女人，你又调整了个锤子啊
+
+
+-----
+
+####  黒長直姫  
+##### 15152#       发表于 2021-5-13 06:39
+
+
+我已经死了
+
+
+                                            
