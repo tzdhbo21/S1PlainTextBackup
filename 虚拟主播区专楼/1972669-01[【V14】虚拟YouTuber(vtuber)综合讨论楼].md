@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-12 13:58** 
+> ## **本文件最后更新于2021-05-12 14:45** 
 
 
 
@@ -9587,7 +9587,12 @@ SYL：
 ##### 711#       发表于 2021-5-12 21:56
 
 
+ 本帖最后由 poipanchao 于 2021-5-12 21:59 编辑 
+
 怎么还有人看yhm（指指点点）
+
+
+syl，感觉人鱼的耳朵？可以摘掉的话还不错，龙皮优胜，精灵有点一般
 
 
 -----
@@ -9602,4 +9607,167 @@ SYL：
 debut不放到liver的channel么？让人虚空订阅？
 
 
-                          
+-----
+
+####  IDIDIDID  
+##### 713#       发表于 2021-5-12 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51229072&amp;ptid=1972669" target="_blank">smy20011 发表于 2021-5-12 21:57</a>
+
+debut不放到liver的channel么？让人虚空订阅？</blockquote>
+虹信人人得而诛之的ickr海外事业部部长麓貴隆先生脑回路是这样的。
+
+
+-----
+
+####  smy20011  
+##### 714#       发表于 2021-5-12 22:07
+
+
+UTO会个P的英语，能说上10分钟么。。
+
+
+-----
+
+####  qq845629713  
+##### 715#       发表于 2021-5-12 22:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 怎么还没特定到啊，听到声音酒特定到不是传统么
+
+
+-----
+
+####  超能力者stven  
+##### 716#       发表于 2021-5-12 22:19
+
+
+想想虹五色特定多少了，虹不配的
+
+
+-----
+
+####  死体残留  
+##### 717#       发表于 2021-5-12 22:23
+
+
+https://www.tunecore.co.jp/artists/LazuLight
+
+居然在本土活动的，田角又去招留学生了么
+
+
+-----
+
+####  qq845629713  
+##### 718#       发表于 2021-5-12 22:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 人鱼应该是经验者，我猜的
+
+
+-----
+
+####  IDIDIDID  
+##### 719#       发表于 2021-5-12 22:25
+
+
+BSYL：
+
+田角要是大气就像18-19抽本社一样一个月抽一期新EN，下饺子下死cover
+
+
+-----
+
+####  真飞鸟i  
+##### 720#       发表于 2021-5-12 22:27
+
+
+那还蛮有可能的<img src="https://p.sda1.dev/1/d99626057a4f47dc8769b563721de5fc/IMG_CMP_57300862.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+
+
+-----
+
+####  OldGlory  
+##### 721#       发表于 2021-5-12 22:30
+
+
+一个月一期每期都请mfmf作曲吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 722#       发表于 2021-5-12 22:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51229366&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-5-12 22:25</a>
+
+BSYL：
+
+田角要是大气就像18-19抽本社一样一个月抽一期新EN，下饺子下死cover</blockquote>
+很难不支持
+
+
+-----
+
+####  IDIDIDID  
+##### 723#       发表于 2021-5-12 22:31
+
+
+<img src="https://img.saraba1st.com/forum/202105/12/223036yf589xmhojzj2lmm.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #110 - 'クソザコ英会話伝言ゲーム【JKL_にじさん.png</strong> (196.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-12 22:30 上传
+
+
+天皇带着JK组打前哨，还有离职员工客串，这才是真正的温暖大家庭捏
+
+
+-----
+
+####  smy20011  
+##### 724#       发表于 2021-5-12 22:31
+
+
+现在还没定到中之人，是不是素人的缘故？
+
+
+-----
+
+####  真飞鸟i  
+##### 725#       发表于 2021-5-12 22:34
+
+
+in转生en可能性？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  心垂万刃  
+##### 726#       发表于 2021-5-12 22:41
+
+
+木口能挖来一个senzawa，虹能挖到个啥？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 727#       发表于 2021-5-12 22:42
+
+
+这个宣传片土的要死的音效和土的要死的一人一句话的炫耀方式，以及日语腔超重的英文……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                         

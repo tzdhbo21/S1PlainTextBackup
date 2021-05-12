@@ -285,7 +285,7 @@
     "title": "[希亚娜真爱讨论楼（直播时间详见直播日历）]",
     "lastedit": 1620827285,
     "category": "虚拟主播区专楼",
-    "active": true
+    "active": false
   },
   {
     "id": "1034361",
@@ -1349,7 +1349,7 @@
     "title": "[nbht：刘翔伤病退赛与谏山创烂尾同理]",
     "lastedit": 1618236632,
     "category": "漫区",
-    "active": true
+    "active": false
   },
   {
     "id": "1998290",
@@ -2489,9 +2489,9 @@
   },
   {
     "id": "1972669",
-    "totalpage": 24,
+    "totalpage": 25,
     "title": "[【V14】虚拟YouTuber(vtuber)综合讨论楼]",
-    "lastedit": 1620827922,
+    "lastedit": 1620830701,
     "category": "虚拟主播区专楼",
     "active": true
   },
