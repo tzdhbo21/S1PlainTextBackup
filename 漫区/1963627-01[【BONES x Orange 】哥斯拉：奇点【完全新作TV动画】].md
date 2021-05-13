@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-13 07:04** 
+> ## **本文件最后更新于2021-05-13 16:00** 
 
 
 
@@ -3038,7 +3038,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_hSOLR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_CGPDq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -7206,4 +7206,444 @@ nyaa上生肉也越来越晚了</blockquote>
 就一个星空字幕组吧
 
 
-                              
+-----
+
+####  shudushimo  
+##### 575#       发表于 2021-5-13 15:30
+
+
+安心等腾讯的源或者完结之后其他组的源吧
+
+星空微博上说“部分”番延迟一周，这都三周没更了，大概率弃了<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  坂上菠萝  
+##### 576#       发表于 2021-5-13 16:03
+
+
+本日第7話放送『#ゴジラSP』の #ポルカドットスティングレイ によるEDテーマ「青い」が、今夜22:00頃に先行配信リリース！ [https://plk.lnk.to/aoi](https://plk.lnk.to/aoi)
+
+
+ED完整版马上出了
+
+
+-----
+
+####  坂上菠萝  
+##### 577#       发表于 2021-5-13 16:54
+
+
+ 本帖最后由 坂上菠萝 于 2021-5-13 16:57 编辑 
+
+第8集英肉已经出了 d452d7442ed7845f53e624f8ed43ba36223f792e
+
+
+顺便，网飞源本来带的是日语字幕和韩语字幕，第八集貌似已经提供英语字幕了，目测后续的生肉源都会有英文，昨天也有网友发现第七话挂上了英语字幕 [https://twitter.com/AstoundingBB/status/1392243847963500547](https://twitter.com/AstoundingBB/status/1392243847963500547)、
+
+下好了，实测第八集生肉即英肉
+
+
+<img src="https://img.saraba1st.com/forum/202105/13/165702hmrp8ppom4p2rr02.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (160.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-13 16:57 上传
+
+
+-----
+
+####  shudushimo  
+##### 578#       发表于 2021-5-13 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51238302&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-5-13 16:54</a>
+
+第8集英肉已经出了 d452d7442ed7845f53e624f8ed43ba36223f792e</blockquote>
+网飞源从哪拿啊，nyaa上第七集都没出
+
+
+-----
+
+####  nuoer  
+##### 579#       发表于 2021-5-13 18:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51239020&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-13 18:00</a>
+网飞源从哪拿啊，nyaa上第七集都没出</blockquote>
+nyaa上就有啊，第七话上周就出了，第八话今天刚出，关键词「godzilla」
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  nuoer  
+##### 580#       发表于 2021-5-13 18:12
+
+
+另外第八话对有蜘蛛恐惧症的人不太友好<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  shudushimo  
+##### 581#       发表于 2021-5-13 18:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51239106&amp;ptid=1963627" target="_blank">nuoer 发表于 2021-5-13 18:10</a>
+
+nyaa上就有啊，第七话上周就出了，第八话今天刚出，关键词「godzilla」
+
+
+—— 来自 meizu 16s Pro, Andro ...</blockquote>
+对不起，我是**，我搜的singular point<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lokay  
+##### 582#       发表于 2021-5-13 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51239121&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-13 18:12</a>
+对不起，我是**，我搜的singular point</blockquote>
+哈哈，自行加难度，先发的组都是打S.P的，直接搜godzilla不好吗
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  shudushimo  
+##### 583#       发表于 2021-5-13 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51184169&amp;ptid=1963627" target="_blank">mofuli 发表于 2021-5-8 19:59</a>
+
+为什么人一个都不死，怪兽死了一堆，还死得挺血腥？</blockquote>
+第八集肯定死人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夜颠覆  
+##### 584#       发表于 2021-5-13 19:00
+
+
+真正的黑科技超级计算机出来了，多个能在过去和未来间进行计算的超级计算机得出不同结论？一个一个超级计算机才是宇宙的特异点，所以宇宙要破灭的原因是超级计算机的互相竞争？理论部分没太看懂，等熟肉再看看
+
+
+-----
+
+####  夜颠覆  
+##### 585#       发表于 2021-5-13 19:01
+
+
+第八集哥总的那个爆炸，应该发便当了吧，除非坦克是AI自动驾驶，那些楼里也一个人都没有
+
+
+-----
+
+####  shudushimo  
+##### 586#       发表于 2021-5-13 19:26
+
+
+越来越觉得那个Architype在高维空间，通过正交对角化投影到三维空间很有道理了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  坂上菠萝  
+##### 587#       发表于 2021-5-13 19:36
+
+
+钉宫实在是太萌了
+
+
+-----
+
+####  梦诗歌雪  
+##### 588#       发表于 2021-5-13 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51239513&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-5-13 19:00</a>
+
+真正的黑科技超级计算机出来了，多个能在过去和未来间进行计算的超级计算机得出不同结论？一个一个超级计算 ...</blockquote>
+不是宇宙破灭，是计算出错无法得出正确结论的原因是超级计算机相互竞争导致每次计算都得出不同结果。具体我也没太看明白，制作组能不能照顾一下我们这些大学物理考完就没碰再过科学理论的文盲<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Freakyyu  
+##### 589#       发表于 2021-5-13 20:24
+
+
+这堆蜘蛛给我恶心到了。不知道有生之年能不能用上这么好的AI。
+另外有没有看得懂的好心人帮我解释解释葦原研究的这个计算机是啥原理<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">学文的看不懂了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  HGCG-闪  
+##### 590#       发表于 2021-5-13 20:27
+
+
+下周怎么还不来我要看飞天豹大战黑多拉
+
+<img src="https://img.saraba1st.com/forum/202105/13/202601gh0p2iottnux40te.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (232.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-13 20:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/13/202658cfttaaz5q7rj4a78.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 08 (NF 1920x1080 x264 AAC).mkv_snapshot_19.12_[2021.05.13_2.jpg</strong> (295.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-13 20:26 上传
+
+
+-----
+
+####  夜颠覆  
+##### 591#       发表于 2021-5-13 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51240267&amp;ptid=1963627" target="_blank">梦诗歌雪 发表于 2021-5-13 20:22</a>
+
+不是宇宙破灭，是计算出错无法得出正确结论的原因是超级计算机相互竞争导致每次计算都得出不同结果。具体 ...</blockquote>
+所以超级计算机的竞争为什么就成特异点了？我也没太看明白，女主好像也没多解释<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Movenchy  
+##### 592#       发表于 2021-5-13 20:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51240517&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-5-13 20:45</a>
+
+所以超级计算机的竞争为什么就成特异点了？我也没太看明白，女主好像也没多解释 ...</blockquote>
+有没有可能是在说超级计算机之间的相互竞争始终得不到正确结果，而一旦得到正确结果，就说明超级计算机的得到了一个突破性的发展。这就是计算机技术中的“奇点”（也就是说发展过程中的临界点）
+
+
+-----
+
+####  坂上菠萝  
+##### 593#       发表于 2021-5-13 21:08
+
+
+其实，第八话了，怪兽登场倒是稳步推进，人类的对应也演得不错，黑科技（大公司）、AI机器人（普通人）、自卫队（传统军事力量）各自出马；
+
+
+全部十三话，按照一部电影的节奏，这时应该来一场能给大决战暖场的精彩战斗，或者发生了其他一些剧情冲突加深角色之间的情感联系。
+
+
+可是本片截止目前大量篇幅还在讨论让普通观众迷惑的科幻背景设定，这集总算把奇点是什么稍微吐出来了一些，而作为人类主角的这一对却还在淡定网聊中。
+
+
+对抗怪兽才是作品核心，是肯定不能舍弃的，而科幻设定的逼格不能掉，不能刚把作品标题讲出来就戛然而止，那么留给人类角色构筑关系的篇幅还有多少呢？
+
+
+男女主见面的可能性逐渐微弱，谈感情的时间更是少之又少，有可能直到最后都要纯粹当作念设定的工具人<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+而管理局、外务省、身份不明的记者、BB的女儿这些角色还能起什么作用，就更难猜了
+
+
+-----
+
+####  夜颠覆  
+##### 594#       发表于 2021-5-13 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51240629&amp;ptid=1963627" target="_blank">Movenchy 发表于 2021-5-13 20:55</a>
+
+有没有可能是在说超级计算机之间的相互竞争始终得不到正确结果，而一旦得到正确结果，就说明超级计算机的 ...</blockquote>
+技术奇点吗？好像有可能，说到这又联想到正在进化中的AI，结合某两集开头AI的对话，难道MV里的黑杰格是一种暗示，真正的奇点不是说哥总，说的是超级计算机和AI
+
+
+-----
+
+####  坂上菠萝  
+##### 595#       发表于 2021-5-13 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51237775&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-5-13 16:03</a>
+本日第7話放送『#ゴジラSP』の #ポルカドットスティングレイ によるEDテーマ「青い」が、今夜22:00頃に先行 ...</blockquote>
+Apple music国区也有了
+
+
+-----
+
+####  夜颠覆  
+##### 596#       发表于 2021-5-13 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51240774&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-5-13 21:08</a>
+
+其实，第八话了，怪兽登场倒是稳步推进，人类的对应也演得不错，黑科技（大公司）、AI机器人（普通人）、自 ...</blockquote>
+男女主感觉迫真网友，网聊解决问题，面基可能性微存，谈感情应该是无了
+
+
+-----
+
+####  teecoo00  
+##### 597#       发表于 2021-5-13 23:22
+
+
+出现了一个新的时间点80年前，之前出现过的时间点有60年前和100年前
+
+
+IMG_1261.jpg
+(256 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-13 23:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/13/232234vir6kkk5ggkyjvg0.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shudushimo  
+##### 598#       发表于 2021-5-13 23:27
+
+
+ 本帖最后由 shudushimo 于 2021-5-13 23:30 编辑 
+
+我的一点理解：
+<strong>Archetype</strong>：一种高维物质，可以通过时间轴的扭曲，将未来的信息通过光子传送到现在。Archetype在三维空间中的13种投影就是Archetype的13种相，目前人类掌握3种相。
+<strong>正交对角化器</strong>：Archetype的第13种相，可以在将Archetype从一种相转化为另一种相时起催化作用，利用它可以将红尘无害化。
+<strong>奇点</strong>：第七集女主和李博士谈话中解释过了，是制造Archetype的地方。物理学和工程学中的奇点一般指物理性质发生极大变化，因而极其不稳定的点。
+<strong>超级计算机原理</strong>：利用奇点，将未来的计算机信息传送回来。比如计算机做一个运算需要一分钟，如果我可以在一秒之内将计算机一分钟之后的状态传送回来，那么就相当于计算机的运算速度提高60倍。不断传送更远时间的计算机状态，就可以不断提高计算机运算速度。
+<strong>苇原灾难</strong>：在利用超级计算机对未来进行运算的时候，当预测时间长到一定地步，每次预测结果都不相同。苇原因此没有完成对正交对角化器的演算。
+<strong>多重宇宙理论</strong>：第八集提到每一个奇点都是一个超级计算机。不同计算机连接在一起，形成一个超算网络。苇原灾难出现的原因，是不同奇点运算结果的相互竞争。我觉得这里的不同奇点类似于量子力学的多重宇宙假设（也就是命运石之门中的不同世界线）。因为预测未来的结果传回了现在，同时改变了现在，又对未来产生影响，所以未来并不是确定的。而处于当下的人们每一个选择的不同都会造成世界线变动，而本作并没有假定世界线会收束，所以很小的改变都会造成未来发生极大变化（所谓蝴蝶效应），进而导致了苇原灾难的产生。
+
+
+-----
+
+####  teecoo00  
+##### 599#       发表于 2021-5-13 23:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51239760&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-13 19:26</a>
+
+越来越觉得那个Architype在高维空间，通过正交对角化投影到三维空间很有道理了 ...</blockquote>
+我记得大空丹迪里有集是圆城脚本，丹迪有一位四次元的前女友，在三次元看就是一个盒状物
+
+
+-----
+
+####  teecoo00  
+##### 600#       发表于 2021-5-13 23:33
+
+
+这么一看和Architype的模式图的外框相似<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+IMG_1262.jpg
+(255.58 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-13 23:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/13/233338yfqidt1bctdh00jh.jpg" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  bartholo4  
+##### 601#       发表于 2021-5-13 23:34
+
+
+超级计算机是利用时间回朔进行看似瞬时的推演，如果存在多台这样的超级计算机，在不断从未来向现在传递信息的时候必然会互相干扰从而得不到正确答案
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Lokay  
+##### 602#       发表于 2021-5-13 23:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51242247&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-5-13 23:30</a>
+我记得大空丹迪里有集是圆城脚本，丹迪有一位四次元的前女友，在三次元看就是一个盒状物 ...</blockquote>
+这么一说我想起来，前女友的样子就有点像第7集bb发给李的那个Architype模型图拉长了的样子
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  shudushimo  
+##### 603#       发表于 2021-5-13 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51242270&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-5-13 23:33</a>
+
+这么一看和Architype的模式图的外框相似</blockquote>
+这个说是archetype可以，说是女朋友就差点意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+因为这个东西很明显在四维空间里是一个类似上顶面小，下顶面大的台体，比三维好不到哪里去
+
+
+-----
+
+####  bartholo4  
+##### 604#       发表于 2021-5-13 23:47
+
+
+要理解第八集里的这种超级计算机可以看看下面这个哈利波特同人 理性之道 里关于用时间转换器解决p=你问题的设想，以下引用别人的读后总结：
+
+当得知关于时间转换器的上述设定之后，哈利立刻意识到，这种超图灵机结构完全可以被用来构建解决NP问题的高效算法。于是他进行了如下实验：请一个朋友随机选择100-999之间的两个质数，将两者的乘积告诉自己。然后自己回到房间，捡起未来的自己写给自己的纸条（称为纸1）。然后从笔记本上撕下一张纸（称为纸2）。根据纸1的内容在纸2上书写。如果纸1为空，则在纸一上写下“100 100”。否则将纸1上的两个数字相乘，如果乘积与之前的乘积相同，则将两个数字写在纸2上。否则将第一个数字加1，如果第一个数字超过999，则重置为1000，并将第二个数字加1。然后用时间转换器将纸2送回过去的房间，成为纸1。可以看出，唯一能够自洽的时间线就是纸1和纸2上都是当初选择的两个质数。这实际上就成了分解因数的一个多项式时间的算法。而分解因数一直被认为是NP问题。
+
+
+而当存在多个时间转换器时，特别是在执行互相影响的算法时，时间线将不能自洽，得不出或者每次得出不同的答案
+
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  夜颠覆  
+##### 605#       发表于 2021-5-13 23:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51242215&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-13 23:27</a>
+
+我的一点理解：
+
+Archetype：一种高维物质，可以通过时间轴的扭曲，将未来的信息通过光子传送到现在。Archet ...</blockquote>
+赞一个
+
+
+                             
