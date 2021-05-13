@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-06 06:45** 
+> ## **本文件最后更新于2021-05-13 17:13** 
 
 
 
@@ -7065,11 +7065,11 @@ jinzhang</blockquote>
 还比如，九尾，木叶的人有多讨厌九尾这不用我多说吧。按照火影的叙述，宇智波是因为被怀疑控制九尾而被村子排挤。那么问题来了，为什么作为宇智波一族的佐助没有被像鸣人那样对待呢？按照木叶村民的一贯作风，他们一定会各种议论，佐助的状况应该不比鸣人好哪去，但是有吗？
 
 而且作为木叶消息最灵通的人，在鼬洗白前二十来话，自来也都表示一直以来所有人的观点都是九尾是天灾，妙木山的**蟆也这么认为。也就是说，宇智波和九尾之乱没关系，高层也没把宇智波和九尾联系起来，更不要说因为这个排挤宇智波，我们看漫画（370话）
-<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_exx0a" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_X6swB" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_peIjq" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_VWn0t" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_WD3Z3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
+<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_v726Y" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_VZzGv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_y0vi5" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_SIV52" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_p90k0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
 
 也就是说，这个时候，宇智波被灭，还是因为鼬是个变态神经病杀了全家，不是什么排挤猜忌，就是因为他个人而已。
 
@@ -7082,12 +7082,12 @@ jinzhang</blockquote>
 虽然宇智波开头就被岸本写死了，但是我们得说，宇智波是一个超级大的家族，非常大。
 
 首先，人家有自己的武器药品供应商，极有可能是只服务于宇智波的，因为木叶显然不知道，不然他们在搜索的时候怎么也得来这看看吧，可是他们只是带着忍犬到处找，也就是说木叶对此是不知道的。
-<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_Y2Dt7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_feCKZ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_zxdF4" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
-<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_sYpWh" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_Jd4Lv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_oGdrU" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
+<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_IddlX" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_xz4Z6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_h9Rv2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
+<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_TeIV6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_HU8d8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_p5c40" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
 
 首先他们得有钱吧，其次他们得有时间吧，最后他们得有人吧，你看他们还有闲心在椅子后面画画呢。
 
@@ -11311,16 +11311,7 @@ VS
 ####  扭头就走  
 ##### 54937#       发表于 2021-4-23 21:15
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51034482&amp;ptid=98922" target="_blank">真红眼教授 发表于 2021-4-23 13:56</a>
-
-毕竟只是看图透猜的，还得等剧情解释
-
-不管是模仿修女还是真修女，至少表面上表现的喜欢小孩子都是很正常 ...</blockquote>
-要是真修女，小玉这比遇到大妈自己还惨
-
-
-转头就要给卖了数钱
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -11395,13 +11386,7 @@ wt老师的总体大框架没崩，不过老师近几年刻画的人物成长和
 ####  扭头就走  
 ##### 54943#       发表于 2021-4-25 13:00
 
-
-好家伙…大妈倒戈
-
-这四皇结盟这么儿戏的吗
-
-
-pgone也太惨了…<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -11662,4 +11647,295 @@ pgone也太惨了…<img src="https://static.saraba1st.com/image/smiley/face2017
 能投票给苍蝇的读者也是厉害<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
 
 
-                 
+-----
+
+####  mashav  
+##### 54964#       发表于 2021-5-6 18:54
+
+
+娜美好强啊，几个地区都是第一
+
+
+-----
+
+####  svmkty  
+##### 54965#       发表于 2021-5-6 19:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51152976&amp;ptid=98922" target="_blank">蔡卓妍 发表于 2021-5-5 21:49</a>
+
+女的，上榜的！</blockquote>
+
+福利卖的好，人气少不了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"><img src="https://img.ams1.imgbed.xyz/2021/05/06/H6zX7.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 54966#       发表于 2021-5-6 20:35
+
+
+我不服，乌尔缇比大和好舔多了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+你说大和脸好看**大，不是有娜美吗，除了角根本是一个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 性转御田怎么下得去口
+
+
+当然大家爱舔加洛特就很合理，不想艹兽娘还算二刺螈吗
+
+
+-----
+
+####  zxzx7753  
+##### 54967#       发表于 2021-5-6 22:46
+
+
+感觉大妈可能因为小玉要和草帽团和解了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Archi  
+##### 54968#       发表于 2021-5-8 07:35
+
+
+居然打小玉，而且还打脸，我也出离愤怒了！以后是宙斯去找到大妈，碰到娜美大战乌尔缇，因为小玉的缘故大妈把宙斯给娜美了这种发展吗
+
+
+-----
+
+####  宅之猴晒阴  
+##### 54969#       发表于 2021-5-8 08:41
+
+
+黑胡子这么有魅力的角色排这么后，果然就算是漫画也是看脸的世界啊，是我就投薇薇的那只鸭子。
+
+
+-----
+
+####  kuuga  
+##### 54970#       发表于 2021-5-9 00:36
+
+
+现在看op有点像当年看死神的感觉了，瞬间翻完<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  C男人  
+##### 54971#       发表于 2021-5-9 08:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51153295&amp;ptid=98922" target="_blank">裤袜大落 发表于 2021-5-5 22:29</a>
+
+老沙掉线这么久了还有如此人气啊
+
+他真的是人妖吗</blockquote>
+白胡子的女儿，莎萼·可萝可妲儿 <img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stair楼梯  
+##### 54972#       发表于 2021-5-10 00:42
+
+
+感觉这几话，都很随便……大妈一话转变，这话也是前期搞笑然后一瞬间就又变的很严肃起来……
+
+
+-----
+
+####  jxzeroga0  
+##### 54973#       发表于 2021-5-10 08:09
+
+
+索隆这十字架笑死
+
+
+-----
+
+####  GreenBird  
+##### 54974#       发表于 2021-5-10 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51195189&amp;ptid=98922" target="_blank">stair楼梯 发表于 2021-5-10 00:42</a>
+
+感觉这几话，都很随便……大妈一话转变，这话也是前期搞笑然后一瞬间就又变的很严肃起来…… ...</blockquote>
+海贼的角色不少有严肃脸和搞笑脸啊。
+
+
+-----
+
+####  汤圆です  
+##### 54975#       发表于 2021-5-10 18:41
+
+
+大妈性格转变还算有铺垫，娜美战斗力突然暴涨到一棍打飞润媞就很无语了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 54976#       发表于 2021-5-10 20:15
+
+
+<blockquote>jxzeroga0 发表于 2021-5-10 08:09
+索隆这十字架笑死</blockquote>
+网上已经一堆整活的了，近期最好笑的梗23333
+
+
+-----
+
+####  saturnus  
+##### 54977#       发表于 2021-5-11 20:02
+
+
+五皇又跪了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hkguty  
+##### 54978#       发表于 2021-5-11 20:19
+
+
+看大和英雄救美了
+
+
+-----
+
+####  天使的日曜日  
+##### 54979#       发表于 2021-5-11 21:10
+
+
+罗：就这？
+
+
+-----
+
+####  Yeaha123  
+##### 54980#       发表于 2021-5-11 23:04
+
+
+观众正想着看路飞激情1 vs 1的时候，就这样泼冷水？
+
+
+-----
+
+####  hagaren  
+##### 54981#       发表于 2021-5-11 23:58
+
+
+下周休刊 老手艺了 制造话题
+
+
+-----
+
+####  hagane  
+##### 54982#       发表于 2021-5-12 17:24
+
+
+悲报：五皇又败了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yario  
+##### 54983#       发表于 2021-5-12 17:47
+
+
+凯多战力依然没有破格，基本可以确定霸气系统有蓝条。
+
+
+-----
+
+####  千里夜雨  
+##### 54984#       发表于 2021-5-12 17:54
+
+
+观感尚不如死神
+
+
+-----
+
+####  少年包工头  
+##### 54985#       发表于 2021-5-12 18:58
+
+
+看到路飞输了，心都凉了，真的贼讨厌凯多
+
+
+-----
+
+####  陶矢  
+##### 54986#       发表于 2021-5-12 19:26
+
+
+五皇又输啦!咦为什么我要说又
+
+
+-----
+
+####  tyauto  
+##### 54987#       发表于 2021-5-12 22:03
+
+
+最主要索隆接双皇霸海那下太伤了，无伤的话霸王色缠绕路飞+九刀流索隆+罗辅助3vs1凯多还真有不小概率打赢
+
+
+-----
+
+####  jxzeroga0  
+##### 54988#       发表于 2021-5-13 14:40
+
+
+该开盘五皇从楼顶掉下去楼底要不要花一年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  银翼的维罗西  
+##### 54989#       发表于 2021-5-13 15:13
+
+
+路宝又又又又倒啦
+
+
+-----
+
+####  廖化  
+##### 54990#       发表于 2021-5-13 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51152554&amp;ptid=98922" target="_blank">star401 发表于 2021-5-5 20:55</a>
+
+全球投票最终结果前20，果然长得好看比什么都强
+
+
+1 路飞</blockquote>
+沙姐掉线这么多年排名还这么高？？？
+
+那么什么时候可以再见到沙姐<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  刹那の劍  
+##### 54991#       发表于 2021-5-13 23:06
+
+
+我以为可以正式打了，为什么又翻白眼了，尾田大在想啥。。
+
+
+-----
+
+####  stair楼梯  
+##### 54992#       发表于 2021-5-14 00:45
+
+
+我不就说最近几话很随便，上一话索隆还奶路飞能赢，然后下一话就又跪了，能不能回归海贼前期一场架连续打个五六回的节奏啊……
+
+
+                
