@@ -3,8 +3,11 @@
 
 本仓库用来存放S1部分高楼的纯文本备份，以50楼为一份文件，请善用搜索功能。
 
-本仓库仅存放一个月内翻过页的、超过4页的帖子。若一个月内没有翻页，该帖子的纯文本备份会被挪到此仓库：
-https://github.com/TomoeMami/S1PlainTextArchive
+本仓库仅存放一个月内翻过页的、超过4页的帖子。
+若一个月内没有翻页，该帖子的纯文本备份会被挪到此仓库：
+2020-2021年历史存档 https://github.com/TomoeMami/S1PlainTextArchive2021
+如果内容与时间无强相关，则会被挪至此仓库：
+S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextGeneral
 
 ## 2020-01-08 增加GithubAction支持
 
