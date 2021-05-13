@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-07 07:02** 
+> ## **本文件最后更新于2021-05-13 07:04** 
 
 
 
@@ -3038,7 +3038,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_UMYoq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_hSOLR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -6834,4 +6834,376 @@ BB这集扔下去的炸弹缩写是OD，但全名叫Orthogonal Diagonalizer，�
 毕竟是安叔的角
 
 
-                               
+-----
+
+####  坂上菠萝  
+##### 542#       发表于 2021-5-7 15:26
+
+
+ 本帖最后由 坂上菠萝 于 2021-5-7 15:31 编辑 
+
+昨晚把哥斯拉大战金刚也看了，发现里面有些构造和奇异点很像，比如电缆连着骸骨、通向地心（？）的巨大通道，甚至还有用怪兽的角/鳞做的兵器
+
+
+所以这些在以前的作品里都有参照的设定吗？
+
+
+|哥斯拉fandom的英文版做得挺完善的 [Godzilla Singular Point | Gojipedia | Fandom](https://godzilla.fandom.com/wiki/Godzilla_Singular_Point)|
+
+
+-----
+
+####  概率边界  
+##### 543#       发表于 2021-5-7 23:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51165019&amp;ptid=1963627" target="_blank">Lokay 发表于 2021-5-7 01:28</a>
+BB这集扔下去的炸弹缩写是OD，但全名叫Orthogonal Diagonalizer，不是氧气毁灭者啦(虽然不知道中文要怎么翻 ...</blockquote>
+正交对角化？像是线性代数里的内容。
+
+
+-----
+
+####  砂糖天妇罗  
+##### 544#       发表于 2021-5-7 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51174830&amp;ptid=1963627" target="_blank">概率边界 发表于 2021-5-7 23:04</a>
+
+正交对角化？像是线性代数里的内容。</blockquote>
+应该是和故事里的对称性有关。
+
+6=9好像也是在说对称。
+
+矩阵正交和对角也是对称。
+
+
+-----
+
+####  云野十五  
+##### 545#       发表于 2021-5-8 06:31
+
+
+楼里是不是生肉熟肉差了一集
+
+
+-----
+
+####  fyjh  
+##### 546#       发表于 2021-5-8 08:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">第六集熟肉到现在都没出
+
+
+-----
+
+####  云野十五  
+##### 547#       发表于 2021-5-8 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177037&amp;ptid=1963627" target="_blank">fyjh 发表于 2021-5-8 08:59</a>
+
+第六集熟肉到现在都没出</blockquote>
+推荐这里[https://www.agefans.net/update?page=1](https://www.agefans.net/update?page=1)
+
+
+-----
+
+####  teecoo00  
+##### 548#       发表于 2021-5-8 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51176357&amp;ptid=1963627" target="_blank">云野十五 发表于 2021-5-8 06:31</a>
+
+楼里是不是生肉熟肉差了一集</blockquote>
+生肉出了7话，熟肉到第6话了
+
+
+-----
+
+####  云野十五  
+##### 549#       发表于 2021-5-8 09:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177113&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-5-8 09:05</a>
+
+生肉出了7话，熟肉到第6话了</blockquote>
+确实上周没更，看楼里说怪兽武器我就悟了，不得不说本作没有台本的情况下很多典故还得字幕组自己查
+
+
+-----
+
+####  fyjh  
+##### 550#       发表于 2021-5-8 09:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">感恩！之前在大马哈鱼上找的星空字幕组一直没更新，以为没熟肉了
+
+
+-----
+
+####  teecoo00  
+##### 551#       发表于 2021-5-8 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177139&amp;ptid=1963627" target="_blank">云野十五 发表于 2021-5-8 09:07</a>
+
+确实上周没更，看楼里说怪兽武器我就悟了，不得不说本作没有台本的情况下很多典故还得字幕组自己查 ...</blockquote>
+其实是网飞先行播放一集当天生肉就有源了，腾讯和日本电视台同步晚一周，字幕组之前熟肉出的比腾讯早几天但五一后就比腾讯晚了，age第6话我看用的是tx的源
+
+
+-----
+
+####  HGCG-闪  
+##### 552#       发表于 2021-5-8 09:58
+
+
+确认一下
+
+现在全网最新是第7集，对吧
+
+
+-----
+
+####  teecoo00  
+##### 553#       发表于 2021-5-8 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177778&amp;ptid=1963627" target="_blank">HGCG-闪 发表于 2021-5-8 09:58</a>
+
+确认一下
+
+现在全网最新是第7集，对吧</blockquote>
+对，网飞日区每周四0点先行更新一集
+
+
+-----
+
+####  Lawliet.L  
+##### 554#       发表于 2021-5-8 11:53
+
+
+SF圈有条不成文规则：物理知识应当写得让高中生看得懂。奇点这搞了一大堆遍历理论等统计力学演绎，我怎么感觉超纲了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  封面杀手  
+##### 555#       发表于 2021-5-8 12:18
+
+
+ 本帖最后由 封面杀手 于 2021-5-8 12:21 编辑 
+
+神棍玩意有13个阶段，怕不是要搞第二季，这东西没用到外道上说不过去
+
+
+-----
+
+####  夜颠覆  
+##### 556#       发表于 2021-5-8 12:50
+
+
+不知道字幕组下一次更新会不会两集一次更（宝可梦<img src="https://static.saraba1st.com/image/smiley/face2017/161.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  云野十五  
+##### 557#       发表于 2021-5-8 19:40
+
+
+不得不说正解的卡多前期看的比奇点乐呵，至少是在探案，奇点纯粹谜语人互帮互助，留下观众风中凌乱
+
+
+-----
+
+####  mofuli  
+##### 558#       发表于 2021-5-8 19:59
+
+
+为什么人一个都不死，怪兽死了一堆，还死得挺血腥？
+
+
+-----
+
+####  Lokay  
+##### 559#       发表于 2021-5-8 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51174830&amp;ptid=1963627" target="_blank">概率边界 发表于 2021-5-7 23:04</a>
+正交对角化？像是线性代数里的内容。</blockquote>
+看了第6集熟肉，译的是正交对角化器。反正我是不懂_(:з」∠)_
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  shudushimo  
+##### 560#       发表于 2021-5-8 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51179254&amp;ptid=1963627" target="_blank">Lawliet.L 发表于 2021-5-8 11:53</a>
+
+SF圈有条不成文规则：物理知识应当写得让高中生看得懂。奇点这搞了一大堆遍历理论等统计力学演绎，我怎么感 ...</blockquote>
+物理系学生表示看得很带感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  亚瑟邓特  
+##### 561#       发表于 2021-5-8 22:01
+
+
+这两集有点晕<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  夜颠覆  
+##### 562#       发表于 2021-5-8 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51184169&amp;ptid=1963627" target="_blank">mofuli 发表于 2021-5-8 19:59</a>
+
+为什么人一个都不死，怪兽死了一堆，还死得挺血腥？</blockquote>
+第七集一尾巴砸到了大楼上，我怀疑是不是依然没人便当<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cloudliu  
+##### 563#       发表于 2021-5-12 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51184934&amp;ptid=1963627" target="_blank">Lokay 发表于 2021-5-8 21:29</a>
+
+看了第6集熟肉，译的是正交对角化器。反正我是不懂_(:з」∠)_
+
+
+—— 来自 SHARP SHV42, Android 8.0.0上 ...</blockquote>
+请问哪有熟肉？
+
+
+-----
+
+####  嘉峪君  
+##### 564#       发表于 2021-5-13 00:09
+
+
+星空的片源问题还没有解决么
+
+
+-----
+
+####  teecoo00  
+##### 565#       发表于 2021-5-13 09:07
+
+
+连最新话生肉也都没出
+
+
+-----
+
+####  夜颠覆  
+##### 566#       发表于 2021-5-13 10:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51229553&amp;ptid=1963627" target="_blank">cloudliu 发表于 2021-5-12 22:45</a>
+
+请问哪有熟肉？</blockquote>
+tx或者agefans
+
+
+-----
+
+####  夜颠覆  
+##### 567#       发表于 2021-5-13 10:45
+
+
+最新一集生肉nyaa上好像没看到有源的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zypyong  
+##### 568#       发表于 2021-5-13 11:19
+
+
+字幕组弃坑了吗
+
+
+-----
+
+####  teecoo00  
+##### 569#       发表于 2021-5-13 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51233753&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-5-13 10:45</a>
+
+最新一集生肉nyaa上好像没看到有源的样子</blockquote>
+nyaa上生肉也越来越晚了
+
+
+-----
+
+####  tewaku  
+##### 570#       发表于 2021-5-13 13:09
+
+
+这片现在有什么组在做？？感觉太冷门了。。
+
+
+
+
+-----
+
+####  cloudliu  
+##### 571#       发表于 2021-5-13 13:41
+
+
+ 本帖最后由 cloudliu 于 2021-5-13 13:50 编辑 
+
+不是死人给人感觉太奇怪了
+
+
+-----
+
+####  夜颠覆  
+##### 572#       发表于 2021-5-13 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51234812&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-5-13 11:50</a>
+
+nyaa上生肉也越来越晚了</blockquote>
+难顶啊
+
+
+-----
+
+####  夜颠覆  
+##### 573#       发表于 2021-5-13 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51234337&amp;ptid=1963627" target="_blank">zypyong 发表于 2021-5-13 11:19</a>
+
+字幕组弃坑了吗</blockquote>
+好像之前说延期的时候，有沙口在字幕组wb下催更了吧，不知道是不是气到了
+
+
+-----
+
+####  夜颠覆  
+##### 574#       发表于 2021-5-13 14:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51235881&amp;ptid=1963627" target="_blank">tewaku 发表于 2021-5-13 13:09</a>
+
+这片现在有什么组在做？？感觉太冷门了。。</blockquote>
+就一个星空字幕组吧
+
+
+                              

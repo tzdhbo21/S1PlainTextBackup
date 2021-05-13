@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-12 14:45** 
+> ## **本文件最后更新于2021-05-13 07:03** 
 
 
 
@@ -9139,6 +9139,21 @@ syl，今天bora杀疯了，击杀榜第三，CR_Bora
 好久没看到这种让指示厨滚出直播间的郡道和让郡道滚出直播界的郡an自由互殴的视频了，不错！
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| kangkangsama| + 1|言論統制？统的就是他们这群沙雕.|
+
+
+查看全部评分
+
+
 -----
 
 ####  Ketestrait  
@@ -9770,4 +9785,275 @@ in转生en可能性？
 这个宣传片土的要死的音效和土的要死的一人一句话的炫耀方式，以及日语腔超重的英文……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
 
 
-                         
+-----
+
+####  OldGlory  
+##### 728#       发表于 2021-5-12 22:49
+
+
+这次还是求稳了，三个人全女性，保证下限，很难不猜测这三个人全会说日语。
+
+
+-----
+
+####  qq845629713  
+##### 729#       发表于 2021-5-12 22:49
+
+
+ 本帖最后由 qq845629713 于 2021-5-12 22:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 学习他的前辈KR，出道一个星期开始日语直播，“英语好难，日语好简单！”
+
+彩虹还是不懂，出个EN，还心心念念不忘吸他的本土JP观众，还是期待多久变成全日语直播算了
+
+
+-----
+
+####  超能力者stven  
+##### 730#       发表于 2021-5-12 22:52
+
+
+很难不暴死～猜测多久slee化
+
+
+-----
+
+####  死体残留  
+##### 731#       发表于 2021-5-12 22:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">slee化那种二位数同接还是有点难度的。和星差不多同接就算大胜利了
+
+
+-----
+
+####  渡鸦骑士  
+##### 732#       发表于 2021-5-12 23:08
+
+
+对虹本社的流动性表示emmmm
+
+希望en虹人够多吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 733#       发表于 2021-5-12 23:15
+
+
+1.猜一下首播完能银盾吗
+
+2.猜一下什么时候企划毙掉
+
+
+英文官网没有翻译liver简介的运营，很难绷得住
+
+
+-----
+
+####  zerouuz  
+##### 734#       发表于 2021-5-12 23:19
+
+
+hololive的末日就要到了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  超能力者stven  
+##### 735#       发表于 2021-5-12 23:26
+
+
+星现在同接又不低，还是别碰瓷了。还是和kr对齐吧
+
+
+-----
+
+####  asdhai  
+##### 736#       发表于 2021-5-12 23:29
+
+
+小僵尸已经蹭上了
+
+
+-----
+
+####  katern  
+##### 737#       发表于 2021-5-12 23:34
+
+
+惊了，要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+不过皮不怎么样，说实话没什么特色
+
+
+-----
+
+####  smy20011  
+##### 738#       发表于 2021-5-12 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51229970&amp;ptid=1972669" target="_blank">asdhai 发表于 2021-5-12 23:29</a>
+
+小僵尸已经蹭上了</blockquote>
+Id组有不少社交达人，上次moona过生日也有一大堆人过来
+
+
+-----
+
+####  FCCHua  
+##### 739#       发表于 2021-5-12 23:42
+
+
+等联动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fghc_h  
+##### 740#       发表于 2021-5-12 23:44
+
+
+三角为啥凉的，白皮应该没那么快忘吧
+
+
+-----
+
+####  wiig  
+##### 741#       发表于 2021-5-12 23:44
+
+
+大楼剪影看得像男人 很不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 742#       发表于 2021-5-12 23:45
+
+
+三角没凉啊，前一阵子（一个月前？）油管直播1万同接呢<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 743#       发表于 2021-5-12 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51230144&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-5-12 23:45</a>
+
+三角没凉啊，前一阵子（一个月前？）油管直播1万同接呢</blockquote>
+白皮人均10年魔乃粉
+
+
+-----
+
+####  katern  
+##### 744#       发表于 2021-5-12 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51230144&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-5-12 23:45</a>
+
+三角没凉啊，前一阵子（一个月前？）油管直播1万同接呢</blockquote>
+这段时间没看v，三角活了吗<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 745#       发表于 2021-5-12 23:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51230164&amp;ptid=1972669" target="_blank">katern 发表于 2021-5-12 23:47</a>
+这段时间没看v，三角活了吗</blockquote>
+三角每个月公开直播一次
+
+
+-----
+
+####  IDIDIDID  
+##### 746#       发表于 2021-5-12 23:56
+
+
+这会白皮时间带虚空订阅速度一般，看看明天日本人起来了再加新一波的官宣能推多少吧。
+
+
+-----
+
+####  freakystar  
+##### 747#       发表于 2021-5-13 02:42
+
+
+niji这新皮感觉不合白皮口味，干掉holo是不可能的，估计最后还是出口转内销
+
+
+-----
+
+####  Ketestrait  
+##### 748#       发表于 2021-5-13 13:03
+
+
+【30万人記念RFA】！30ステージクリアするまで終われない耐久！（もしくは命の危機を感じるまでとする）【 #おにゅい死なないで / にじさんじ 】
+
+[https://youtu.be/5z1DssBgGIU](https://youtu.be/5z1DssBgGIU)
+
+
+-----
+
+####  NBXX  
+##### 749#       发表于 2021-5-13 14:04
+
+
+虹的抖音账号开始投稿了，发了一些综艺剪辑
+[https://vt.tiktok.com/ZSJytunVy/](https://vt.tiktok.com/ZSJytunVy/)
+<img src="https://p.sda1.dev/1/bf7b12d074902493150fb3f954d41600/XP89H_YX5X9_`7A91VV4YUY.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 750#       发表于 2021-5-13 14:06
+
+
+木口之前不是说进出抖音，成果怎么样，虹现在也要抄木口作业了
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 751#       发表于 2021-5-13 14:08
+
+
+ 本帖最后由 SuntoryNomu 于 2021-5-13 14:09 编辑 
+
+这都能撞车，删了。
+
+
+E1Pwqe7VEAAY83b.jpg
+(116.54 KB, 下载次数: 1)
+
+
+下载附件
+
+
+2021-5-13 14:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/13/140809hmdnvdqxn82mq2nu.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 752#       发表于 2021-5-13 14:14
+
+
+感觉最近给了博士不少资源
+按照AKB套，星川博士这一代差不多就是次世代了
+
+
+                        
