@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-13 07:03** 
+> ## **本文件最后更新于2021-05-14 13:02** 
 
 
 
@@ -10056,4 +10056,526 @@ E1Pwqe7VEAAY83b.jpg
 按照AKB套，星川博士这一代差不多就是次世代了
 
 
-                        
+-----
+
+####  Suny08  
+##### 753#       发表于 2021-5-13 18:24
+
+
+<blockquote>poipanchao 发表于 2021-5-13 14:14
+感觉最近给了博士不少资源
+
+按照AKB套，星川博士这一代差不多就是次世代了</blockquote>
+博士的资源就是主流出道金银铜顺带的吧，不和芙莲差不多么，和星川这种顶流比不了的，星川是电音部+你虹本社en进出第一人+实质19组第一人，还是比不了的
+
+
+-----
+
+####  IDIDIDID  
+##### 754#       发表于 2021-5-13 18:32
+
+
+クソザコ英会話伝言ゲーム【JKL/にじさんじ】
+[https://www.youtube.com/watch?v=cd9OgZqZOTA](https://www.youtube.com/watch?v=cd9OgZqZOTA)
+
+
+-----
+
+####  alcoholic1000  
+##### 755#       发表于 2021-5-13 19:22
+
+
+月下の桜的First Class Trouble人狼联动开了，自从存在黑客可能会毕业的顾虑以后我对月下樱都持且看且珍惜的态度...
+
+
+五个人唱夜に駆ける的整活企划却非常好听，三枝和chima声线匹配度过高了，什么时候再合作（不要冷笑话）
+[https://www.youtube.com/watch?v=aFL4HB4Oqi8&amp;t](https://www.youtube.com/watch?v=aFL4HB4Oqi8&amp;t)
+
+
+-----
+
+####  渡鸦骑士  
+##### 756#       发表于 2021-5-13 20:35
+
+
+ 本帖最后由 渡鸦骑士 于 2021-5-13 20:36 编辑 
+
+来点你综远古kpi，yua 藤崎由愛五个月没有新视频了（图片无关，怎么就附带上了？）
+
+
+image.png
+(122.62 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-13 20:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/13/203459gtsylzy6yt36sajy.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 757#       发表于 2021-5-13 22:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">bora那队三连冠了吧 其他队能玩么，又要学上次临时限角色么
+
+
+-----
+
+####  katern  
+##### 758#       发表于 2021-5-13 23:17
+
+
+大葵歌回迟到，等着喝了半瓶清酒，现在听着想睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 759#       发表于 2021-5-13 23:22
+
+
+ 本帖最后由 FCCHua 于 2021-5-14 01:23 编辑 
+
+sky怎么这么嗨<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+这个点在公司3d打碟跳舞也是没谁了，甚至还有新歌披露
+
+
+-----
+
+####  Ketestrait  
+##### 760#       发表于 2021-5-13 23:33
+
+
+ 本帖最后由 Ketestrait 于 2021-5-13 23:44 编辑 
+
+半夜high起来<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+syl
+
+40分钟就完了一点都不够啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  ShuTk4O  
+##### 761#       发表于 2021-5-14 00:08
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/000807uptiguz1596uzy5k.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (66.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 00:08 上传
+
+
+反向hololive。4v爆炸中
+
+
+-----
+
+####  katern  
+##### 762#       发表于 2021-5-14 00:30
+
+
+ 本帖最后由 katern 于 2021-5-14 00:44 编辑 
+
+最搞笑的是4v在评论说fo了蝗所以乳化了，结果没过多久就把杏全取消关注了，就剩个狗子<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+看了眼箱简介说「メンヘラは魅力的である。」，真的有点怕了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl    
+
+整形、しちゃった
+[https://www.youtube.com/watch?v=_tF510zKnCw&amp;t=272s](https://www.youtube.com/watch?v=_tF510zKnCw&amp;t=272s)
+
+
+草
+
+
+-----
+
+####  rzrbtk  
+##### 763#       发表于 2021-5-14 00:54
+
+
+月之新3D，モモ变大了，小短腿变细了…
+谁有这种需要啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  生麦之发杀  
+##### 764#       发表于 2021-5-14 01:16
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/011510jocye1y3ohvrco8c.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210514011358.png</strong> (23.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 01:15 上传
+
+
+fc2上搜了下vtuber出来的，点进去细看了下是帕特拉，这封面我猛一看以为是序列之争里的尤娜...
+
+
+-----
+
+####  空集  
+##### 765#       发表于 2021-5-14 01:32
+
+
+草 这也太瞎狗眼了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  mmbk  
+##### 766#       发表于 2021-5-14 11:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 767#       发表于 2021-5-14 11:14
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/111349msp2mayg9i9o22gs.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210514111243.png</strong> (43.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 11:13 上传
+
+
+有钱继续搞这个，不如砸钱给en啊
+
+
+-----
+
+####  IDIDIDID  
+##### 768#       发表于 2021-5-14 13:07
+
+
+虹EN被油管一炮打掉半条命也太哈人了
+
+
+-----
+
+####  OldGlory  
+##### 769#       发表于 2021-5-14 13:47
+
+
+爱丽丝的b站装扮更哈人
+
+
+-----
+
+####  noHentai  
+##### 770#       发表于 2021-5-14 14:15
+
+
+感觉现在开朗了很多，滤镜不那么阴间了，自拍多了也不挡那么多了，也敢在推上发自拍了。
+<img src="https://p.sda1.dev/1/7fa01098cf8f262b625e03501883b6c1/IMG_20210514_141127.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 771#       发表于 2021-5-14 14:27
+
+
+真好捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 772#       发表于 2021-5-14 14:28
+
+
+虚拟棒msm子我杀了你
+
+
+-----
+
+####  kangkangsama  
+##### 773#       发表于 2021-5-14 14:32
+
+
+其实以前阴间滤镜的白毛メンヘラ挺好的，当然现在也挺可爱的至少看着很健康。总之干死msm就对了。
+
+
+-----
+
+####  katern  
+##### 774#       发表于 2021-5-14 14:38
+
+
+比以前看着有生气多了
+
+
+syl  马娘真是财富密码。
+
+<img src="https://img.saraba1st.com/forum/202105/14/143754s5axwxjs2bjj26ep.png" referrerpolicy="no-referrer">
+
+
+<strong>1Y4Q$KHB81VMXWL1`QEAU07.png</strong> (43.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 14:37 上传
+
+
+-----
+
+####  podball  
+##### 775#       发表于 2021-5-14 14:49
+
+
+健康就好
+
+
+-----
+
+####  Ketestrait  
+##### 776#       发表于 2021-5-14 15:21
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gqhzezpvw8j20b10480sy.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 777#       发表于 2021-5-14 15:23
+
+
+原来slee之前有人跑路之后留的坑是留给_____了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 778#       发表于 2021-5-14 17:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这手说不定还真能救成slee这企划
+
+
+-----
+
+####  OldGlory  
+##### 779#       发表于 2021-5-14 19:36
+
+
+看起来还行不是很土
+<img src="https://p.sda1.dev/1/08e986f96caef29c59292aa35f3f3892/IMG_CMP_143868671.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 780#       发表于 2021-5-14 19:48
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-14 20:07 编辑 
+
+看到铁T感到很不安困惑，请不要再发了。来点肥肥喜欢的：
+
+<img src="https://img.saraba1st.com/forum/202105/14/200737pu1gw6xfi6trug79.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E1WMJayVgAIVGBz.jpg</strong> (460.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/200739lkqdxzqq4xddt4vd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E1WMJyxVkAokM3r.jpg</strong> (427.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/200742nynns3f3e5ffd2fe.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E1WMKWSVkAQvWyy.jpg</strong> (487.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/200744dfx2r44brfrfg4bn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E1WMKz3VEAMLmPz.jpg</strong> (170.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:07 上传
+
+
+
+
+-----
+
+####  FCCHua  
+##### 781#       发表于 2021-5-14 20:06
+
+
+ 本帖最后由 FCCHua 于 2021-5-14 20:59 编辑 
+
+新场景好少女
+爱园这个3d自带圣光，地板反光<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+伊东life打了5万sc
+小黑你谁，破案了，是美夜子，真好
+粉丝喊的call
+人均厄介<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+感觉很少看到爱园唱歌，能不能开开歌回<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 782#       发表于 2021-5-14 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这胸部可真够有弹性啊，脸还是不行……
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  影山银  
+##### 783#       发表于 2021-5-14 20:16
+
+
+黑子竟然是美夜子
+
+—— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  winda  
+##### 784#       发表于 2021-5-14 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">为什么牛姨有碰撞爱园有碰撞就是不给噗酱做一个，这是差别待遇
+
+
+-----
+
+####  laphire  
+##### 785#       发表于 2021-5-14 20:27
+
+
+爱园3d我无声看的都觉得很有x张力，2d没这感觉，太神秘了
+
+
+-----
+
+####  hlazd  
+##### 786#       发表于 2021-5-14 20:40
+
+
+太大了
+
+
+-----
+
+####  Ketestrait  
+##### 787#       发表于 2021-5-14 20:43
+
+
+是蝈蝈！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 788#       发表于 2021-5-14 20:44
+
+
+唱蝈蝈op还行<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 789#       发表于 2021-5-14 20:52
+
+
+是s1第一喜欢的作品<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">国家队！
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202105/14/204821npy6bjwyzyz2x2hf.png" referrerpolicy="no-referrer">
+
+
+<strong>【３D初お披露目】夢は叶えるもの！動く姿はセンシティブ【#愛園３D:にじさんじ】.png.png</strong> (310.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:48 上传
+
+
+-----
+
+####  CAserlumos  
+##### 790#       发表于 2021-5-14 20:53
+
+
+二刺螈浓度太高了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ketestrait  
+##### 791#       发表于 2021-5-14 20:53
+
+
+蝈蝈完了是京紫，放在泥潭的话已经……<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 792#       发表于 2021-5-14 20:58
+
+
+爱园选曲还挺新潮二次元的 有意思啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                       
