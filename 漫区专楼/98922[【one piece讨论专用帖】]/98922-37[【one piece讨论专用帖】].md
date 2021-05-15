@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-13 17:13** 
+> ## **本文件最后更新于2021-05-15 10:38** 
 
 
 
@@ -480,7 +480,8 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ####  赚钱娶老婆  
 ##### 54039#       发表于 2020-12-27 21:44
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+人造果实有个屁用啊，好歹要能变化一下啊，战斗力还不如直接养几只动物
 
 
 -----
@@ -798,7 +799,8 @@ OP很有可能还包含了古代王国D一族的黑科技，那么达成宇宙�
 ####  赚钱娶老婆  
 ##### 54066#       发表于 2020-12-29 02:08
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+“我要让这大海重新连成一片”
 
 
 -----
@@ -1579,7 +1581,10 @@ talkop论坛和微博洗的真累<img src="https://static.saraba1st.com/image/sm
 ####  赚钱娶老婆  
 ##### 54129#       发表于 2020-12-30 18:02
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+看洗地比和之国有意思多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+比起现实，给和之国篇洗的难度更大
 
 
 -----
@@ -2429,7 +2434,8 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  赚钱娶老婆  
 ##### 54187#       发表于 2021-1-6 10:06
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+会不会是大家老了啊
 
 
 -----
@@ -2871,7 +2877,11 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  赚钱娶老婆  
 ##### 54222#       发表于 2021-1-15 14:18
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50043472&amp;ptid=98922" target="_blank">穆 发表于 2021-1-15 14:15</a>
+
+诶 锦卫门那不是果实能力吗 绿藻头这都能领悟出来的？</blockquote>
+是换衣服果实吧
 
 
 -----
@@ -2957,7 +2967,11 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  赚钱娶老婆  
 ##### 54230#       发表于 2021-1-15 17:08
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50044392&amp;ptid=98922" target="_blank">少年包工头 发表于 2021-1-15 15:56</a>
+
+为什么我没看到尾田之父，御田的名字？</blockquote>
+幻觉里和老领导相对，实力自然也是如此
 
 
 -----
@@ -3228,7 +3242,8 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  赚钱娶老婆  
 ##### 54254#       发表于 2021-1-16 22:25
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+所以说凯多为什么死不了？这表现，海军没一个能破防？
 
 
 -----
@@ -3577,7 +3592,8 @@ Op的人物没有成长，只有过去，所有的人都是用一个过去回忆
 ####  赚钱娶老婆  
 ##### 54278#       发表于 2021-1-27 18:52
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+全程战斗，到时候是不是要一页看上几分钟才能看清楚画面啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -3945,7 +3961,8 @@ talkop看了一个采访里说“原本在连载前预计在五年内完结海�
 ####  赚钱娶老婆  
 ##### 54313#       发表于 2021-1-31 10:13
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+莫里亚的奥兹会不会是凯多他祖宗，鬼岛头骨也是的，所以莫里亚想用这个来打败凯多？
 
 
 -----
@@ -4587,7 +4604,8 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  赚钱娶老婆  
 ##### 54365#       发表于 2021-2-5 19:59
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+大孝女：你想成为海贼王？太没志向了吧，我可是要成为御田的哟。
 
 
 -----
@@ -4663,7 +4681,8 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  赚钱娶老婆  
 ##### 54373#       发表于 2021-2-6 16:21
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+莫利亚不会带着黑胡子来吧？
 
 
 -----
@@ -4789,7 +4808,8 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  赚钱娶老婆  
 ##### 54383#       发表于 2021-2-10 13:49
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+我记得之前觉得御田无聊的时候在b乎上好多是感动得热泪盈眶的，现在那里的风评不知道怎么样了。
 
 
 -----
@@ -4806,7 +4826,8 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  赚钱娶老婆  
 ##### 54385#       发表于 2021-2-12 23:01
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+丸子妹果然来了
 
 
 -----
@@ -4990,7 +5011,8 @@ cp0专职大局解说员啊<img src="https://static.saraba1st.com/image/smiley/f
 ####  赚钱娶老婆  
 ##### 54402#       发表于 2021-2-13 17:09
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+虽然一开始就知道要有这一出，但为那个人复国感觉真的挺差的。
 
 
 -----
@@ -6308,7 +6330,8 @@ WT这么安排就离谱，山治都多少次不打女人了，按道理就不应
 ####  赚钱娶老婆  
 ##### 54506#       发表于 2021-2-27 14:50
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+实不相瞒，我没看懂杰克是怎么突然冲出来对话的。
 
 
 -----
@@ -7065,11 +7088,11 @@ jinzhang</blockquote>
 还比如，九尾，木叶的人有多讨厌九尾这不用我多说吧。按照火影的叙述，宇智波是因为被怀疑控制九尾而被村子排挤。那么问题来了，为什么作为宇智波一族的佐助没有被像鸣人那样对待呢？按照木叶村民的一贯作风，他们一定会各种议论，佐助的状况应该不比鸣人好哪去，但是有吗？
 
 而且作为木叶消息最灵通的人，在鼬洗白前二十来话，自来也都表示一直以来所有人的观点都是九尾是天灾，妙木山的**蟆也这么认为。也就是说，宇智波和九尾之乱没关系，高层也没把宇智波和九尾联系起来，更不要说因为这个排挤宇智波，我们看漫画（370话）
-<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_v726Y" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_VZzGv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_y0vi5" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_SIV52" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_p90k0" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
+<img src="https://pic2.zhimg.com/80/v2-03c934b209f918f3ecbe57d579c0cf86_720w.jpg?source=1940ef5c" height="1106" id="aimg_w1MJ3" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-5ab9b44b6461cde1759d977898f65640_720w.jpg?source=1940ef5c" height="1125" id="aimg_cyVZb" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-cf613964dbe1252df1a656b876131a65_720w.jpg?source=1940ef5c" height="1094" id="aimg_hTKhv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-be264332c827c1740878571b6d3e37ff_720w.jpg?source=1940ef5c" height="1106" id="aimg_T45Rw" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic4.zhimg.com/80/v2-a53fc2ae426cc87b5bb5c3212e4fd9fc_720w.jpg?source=1940ef5c" height="1146" id="aimg_pMjx7" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)在外收集情报多年，自来也最近才感觉不对，觉得九尾是人活，**蟆还笑他。
 
 也就是说，这个时候，宇智波被灭，还是因为鼬是个变态神经病杀了全家，不是什么排挤猜忌，就是因为他个人而已。
 
@@ -7082,12 +7105,12 @@ jinzhang</blockquote>
 虽然宇智波开头就被岸本写死了，但是我们得说，宇智波是一个超级大的家族，非常大。
 
 首先，人家有自己的武器药品供应商，极有可能是只服务于宇智波的，因为木叶显然不知道，不然他们在搜索的时候怎么也得来这看看吧，可是他们只是带着忍犬到处找，也就是说木叶对此是不知道的。
-<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_IddlX" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_xz4Z6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_h9Rv2" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
-<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_TeIV6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_HU8d8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
-<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_p5c40" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
+<img src="https://pic2.zhimg.com/80/v2-a8724dfc190557015560376a174a2722_720w.jpg?source=1940ef5c" height="1138" id="aimg_jaM61" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic2.zhimg.com/80/v2-2d22b370d963967da7b3ffcd8f4de5d7_720w.jpg?source=1940ef5c" height="1069" id="aimg_eNEd8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-3b43df4f769a3cbc3aee79d4d50a5979_720w.jpg?source=1940ef5c" height="1074" id="aimg_cEJe6" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)而且在木叶之外，宇智波有自己的据点。
+<img src="https://pic4.zhimg.com/80/v2-c3491f32723094f0926470d5648b774b_720w.jpg?source=1940ef5c" height="341" id="aimg_Z9Qm8" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-dff71890d24e02c300a77624678f4147_720w.jpg?source=1940ef5c" height="1186" id="aimg_jGWFR" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pic1.zhimg.com/80/v2-cc610f39d19357ab4e2e7ee248378ae6_720w.jpg?source=1940ef5c" height="1026" id="aimg_E3qFf" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)能修出这样的据点，你觉得这家族会小吗？
 
 首先他们得有钱吧，其次他们得有时间吧，最后他们得有人吧，你看他们还有闲心在椅子后面画画呢。
 
@@ -7331,7 +7354,8 @@ jinzhang</blockquote>
 ####  赚钱娶老婆  
 ##### 54575#       发表于 2021-3-5 14:02
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+为什么马尔科是手变翅膀啊？黑胡子那个是背后长翅膀，沙漠那个是手变爪子，这不是很实用吗？
 
 
 -----
@@ -8543,7 +8567,8 @@ queen那么菜的吗</blockquote>
 ####  赚钱娶老婆  
 ##### 54682#       发表于 2021-3-13 22:09
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+是要有正经果实才能提取这个果实的因子吗？无论吃了没？
 
 
 -----
@@ -9936,7 +9961,8 @@ mhrise应该和op联动的，一刀不止999
 ####  赚钱娶老婆  
 ##### 54815#       发表于 2021-4-6 22:02
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+也不看看刀是谁的
 
 
 -----
@@ -10255,7 +10281,11 @@ mhrise应该和op联动的，一刀不止999
 ####  赚钱娶老婆  
 ##### 54844#       发表于 2021-4-8 14:51
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50871400&amp;ptid=98922" target="_blank">晴岚 发表于 2021-4-8 13:34</a>
+
+他自己也不会见闻色的看到未来啊,但他至少跟路飞讲了有强者可以啊。总不会罗杰白胡子也不会霸王色缠绕,雷 ...</blockquote>
+加个折寿设定就可以不说了
 
 
 -----
@@ -11938,4 +11968,331 @@ wt老师的总体大框架没崩，不过老师近几年刻画的人物成长和
 我不就说最近几话很随便，上一话索隆还奶路飞能赢，然后下一话就又跪了，能不能回归海贼前期一场架连续打个五六回的节奏啊……
 
 
-                
+-----
+
+####  luoyianwu  
+##### 54993#       发表于 2021-5-14 01:49
+
+
+答案是接力连载。助手画偶数回，味甜画奇数回
+
+
+-----
+
+####  zxzx7753  
+##### 54994#       发表于 2021-5-14 04:13
+
+
+大妈是真神经病 痛击完队友后看到小玉跑奈美那觉得小玉要背叛自己 立马下杀手 太自由了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Freemasons  
+##### 54995#       发表于 2021-5-14 07:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51241998&amp;ptid=98922" target="_blank">刹那の劍 发表于 2021-5-13 23:06</a>
+我以为可以正式打了，为什么又翻白眼了，尾田大在想啥。。</blockquote>
+见没见过在宿舍里大声放歌还每次在高潮前一点切哥的巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weige  
+##### 54996#       发表于 2021-5-14 08:13
+
+
+剧情和节奏真是烂得无法想象是一个连载20年的漫画家的作品
+
+
+-----
+
+####  游戏  
+##### 54997#       发表于 2021-5-14 08:30
+
+
+还能再添加一些剧情，故事没讲完先把boss打死了就没法儿收尾
+
+
+-----
+
+####  灰狼  
+##### 54998#       发表于 2021-5-14 11:29
+
+
+<blockquote>zxzx7753 发表于 2021-5-14 04:13
+大妈是真神经病 痛击完队友后看到小玉跑奈美那觉得小玉要背叛自己 立马下杀手 太自由了 ...</blockquote>
+本质熊孩子，很正常
+
+
+-----
+
+####  satanas  
+##### 54999#       发表于 2021-5-14 14:11
+
+
+对凯多第几次翻白眼了？不同boss用同一个伎俩都够烦了 一个boss用了几次一样的起落是不是有点过分？
+
+
+-----
+
+####  memo2  
+##### 55000#       发表于 2021-5-14 14:16
+
+
+大妈真不愧是这大海上最自由的人，现在明明是读者每周翻白眼<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  朗姆酒hentai  
+##### 55001#       发表于 2021-5-14 14:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">路飞还要翻几次白眼，最近看op像是在玩跳楼机
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Acatv  
+##### 55002#       发表于 2021-5-14 15:48
+
+
+路飞这仰卧起坐有血战篇一护的味了
+
+
+-----
+
+####  angelooo  
+##### 55003#       发表于 2021-5-14 15:50
+
+
+所以早就放弃四皇战的我现在一点也没收到伤害，没有期待就可以直接跳过这些了不看了哈哈哈哈哈
+
+
+-----
+
+####  宅之猴晒阴  
+##### 55004#       发表于 2021-5-14 17:12
+
+
+估计要搞德岛那一套，王路飞要在一群背景板人物的欢呼声中把凯多打败
+
+
+-----
+
+####  klzxs  
+##### 55005#       发表于 2021-5-14 19:02
+
+
+ 本帖最后由 klzxs 于 2021-5-14 19:07 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">真的无聊 不就是不想让四皇破格吗
+
+可御田后凯多早就是没有逼格的二流货色了 
+
+刚有点意思起来就燃尽了 
+
+如果是想说四皇很强吧？
+
+可危机感也是从开始就不存在 
+
+
+路飞这么来来回回搞几次了 我敢说收尾一定比现在还烂
+
+
+-----
+
+####  如梦令  
+##### 55006#       发表于 2021-5-14 19:22
+
+
+单场战斗缺乏目的性，碰上了就打两下  然后几个画面后又无脑切换对手，主角也没啥看上去能赢的可能，可明明打不过又没有绝望感
+
+
+-----
+
+####  hkguty  
+##### 55007#       发表于 2021-5-14 20:22
+
+
+感觉五皇一个人再挣扎应该还是打不过，看看大和来救场了凯多会不会放水吧
+
+
+-----
+
+####  风浦可符香(P.N)  
+##### 55008#       发表于 2021-5-14 20:28
+
+
+尾田有种就画成大和打赢凯多完了开宴会和五皇拜把子<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lbzlxx  
+##### 55009#       发表于 2021-5-14 22:02
+
+
+和之国篇能不能早点完结，烂成这样还当宝一样
+
+
+-----
+
+####  天使的日曜日  
+##### 55010#       发表于 2021-5-15 10:43
+
+
+鬼岛能超过血战篇一护跑路的程度了吧
+
+剧情一直在原地打转，反正每次镜头转到楼下都只能看一群我方角色毫无目的的在跑路
+
+路飞上楼顶跑了十几话，大和桃子跑这跑那不知道目的在哪里，乌索普娜美对位六子姐弟被完虐于是骑着柏犬继续跑，九侠复活个个都开始赶路，还有山治到目前为止到底都做了什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  银翼的维罗西  
+##### 55011#       发表于 2021-5-15 10:50
+
+
+ 本帖最后由 银翼的维罗西 于 2021-5-15 10:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51256897&amp;ptid=98922" target="_blank">天使的日曜日 发表于 2021-5-15 10:43</a>
+
+鬼岛能超过血战篇一护跑路的程度了吧
+
+剧情一直在原地打转，反正每次镜头转到楼下都只能看一群我方角色毫无 ...</blockquote>
+山治优化了对位结构，使团队运作效率最优化，向罗宾布鲁克呼救使其对位蜘蛛女，多手打多手，冰冻克蛛丝，接下索隆奔赴压力最大兵力最紧缺的的KQ战场，缓解马尔科和乔巴的压力，保障医疗生命线，使伤员得到妥善安置，顺手再收拾个QUEEN，厨子此役使得能者善任，资源配置最优化，反观索隆不知天高地厚去顶楼刮痧还白送了大管血拖后腿，从团队运作的角度来看厨子才是和之国大战的MVP。
+
+
+-----
+
+####  天使的日曜日  
+##### 55012#       发表于 2021-5-15 10:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51256960&amp;ptid=98922" target="_blank">银翼的维罗西 发表于 2021-5-15 10:50</a>
+
+山治优化了对位结构，使团队运作效率最优化，向罗宾布鲁克呼救使其对位蜘蛛女，多手打多手，冰冻克蛛丝， ...</blockquote>
+这么一看山治确实一直是团里的隐藏 MVP，跟路飞相辅相成，一个在表主C一个作为影子在看不见的地方主管全局，符合山治一贯运筹帷幄的智将设定
+
+
+-----
+
+####  neverlands  
+##### 55013#       发表于 2021-5-15 11:35
+
+
+现在有空飞过去接住路飞的是不是只剩桃之助大人了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千里夜雨  
+##### 55014#       发表于 2021-5-15 12:19
+
+
+你们说的越认真，我越觉得是迫害<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 55015#       发表于 2021-5-15 12:21
+
+
+转场到五皇这边无过程扑街，还不如多省略点直接给结果，这凯多估计还是要再来一次单挑打赢。
+
+
+-----
+
+####  acejoe  
+##### 55016#       发表于 2021-5-15 12:26
+
+
+桃之助肯定要高光一次的，双龙对决怎么可能没有。
+
+
+-----
+
+####  chais613  
+##### 55017#       发表于 2021-5-15 14:13
+
+
+赛亚人的“濒死升级”？
+
+
+-----
+
+####  584520184  
+##### 55018#       发表于 2021-5-15 14:50
+
+
+我简直喷了，尾田是不是收了jsc的刺激，要比谁更自由
+
+
+-----
+
+####  JC_AR  
+##### 55019#       发表于 2021-5-15 18:18
+
+
+反过来看看你在雷利手下学了三年到底学了啥啊，雷利最后哭是因为实在教不会吧
+
+
+-----
+
+####  晴岚  
+##### 55020#       发表于 2021-5-15 18:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51261100&amp;ptid=98922" target="_blank">JC_AR 发表于 2021-5-15 18:18</a>
+
+反过来看看你在雷利手下学了三年到底学了啥啊，雷利最后哭是因为实在教不会吧 ...</blockquote>
+问就是雷利菜什么都不会,海贼王副手也只是懂点基础霸气,其他都没见过跟不会。
+
+
+
+
+-----
+
+####  qzfjnv  
+##### 55021#       发表于 2021-5-15 18:28
+
+
+先不提路飞了，娜美这集对比上集的嘴炮也挺搞笑的
+上话：我要在这里打倒这个女人！
+这话：什么？大妈已经帮我打倒了？那没事了
+
+
+-----
+
+####  C男人  
+##### 55022#       发表于 2021-5-15 18:31
+
+
+至少把 “娜美得到宙斯” 的可能性掐死了，
+
+
+算是果断拆CP吧。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sullen  
+##### 55023#       发表于 2021-5-15 18:37
+
+
+知乎上看到个猜测，很有意思。
+
+
+如何评价《海贼王》漫画1013话《Anarchy In The BM》? - WhoIsBelly的回答 - 知乎
+[https://www.zhihu.com/question/459215291/answer/1885235864](https://www.zhihu.com/question/459215291/answer/1885235864)
+
+
+               
