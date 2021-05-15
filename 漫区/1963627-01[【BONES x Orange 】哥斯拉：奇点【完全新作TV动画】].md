@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-13 16:00** 
+> ## **本文件最后更新于2021-05-15 05:00** 
 
 
 
@@ -3038,7 +3038,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_CGPDq" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_lLLQz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -7621,7 +7621,9 @@ IMG_1262.jpg
 ##### 604#       发表于 2021-5-13 23:47
 
 
-要理解第八集里的这种超级计算机可以看看下面这个哈利波特同人 理性之道 里关于用时间转换器解决p=你问题的设想，以下引用别人的读后总结：
+ 本帖最后由 bartholo4 于 2021-5-14 11:56 编辑 
+
+要理解第八集里的这种超级计算机可以看看下面这个哈利波特同人 理性之道 里关于用时间转换器解决p=np问题的设想，以下引用别人的读后总结：
 
 当得知关于时间转换器的上述设定之后，哈利立刻意识到，这种超图灵机结构完全可以被用来构建解决NP问题的高效算法。于是他进行了如下实验：请一个朋友随机选择100-999之间的两个质数，将两者的乘积告诉自己。然后自己回到房间，捡起未来的自己写给自己的纸条（称为纸1）。然后从笔记本上撕下一张纸（称为纸2）。根据纸1的内容在纸2上书写。如果纸1为空，则在纸一上写下“100 100”。否则将纸1上的两个数字相乘，如果乘积与之前的乘积相同，则将两个数字写在纸2上。否则将第一个数字加1，如果第一个数字超过999，则重置为1000，并将第二个数字加1。然后用时间转换器将纸2送回过去的房间，成为纸1。可以看出，唯一能够自洽的时间线就是纸1和纸2上都是当初选择的两个质数。这实际上就成了分解因数的一个多项式时间的算法。而分解因数一直被认为是NP问题。
 
@@ -7646,4 +7648,355 @@ Archetype：一种高维物质，可以通过时间轴的扭曲，将未来的�
 赞一个
 
 
-                             
+-----
+
+####  蛇头  
+##### 606#       发表于 2021-5-14 00:13
+
+
+ 本帖最后由 蛇头 于 2021-5-14 00:22 编辑 
+
+看了这话自卫队被爆破剧情(大概率死人了）大概知道为什么前期没死过人，甚至这种无伤亡描写都显得特别刻意了。
+
+这剧本透露出来的信息其实就是非常日本的，掉头流血的事就应该你们专业的军人（自卫队）去干。而且这不死人的巧合，也非常符合当今日本的鸵鸟心理——只要事不关己就是流量话题，就可以被长篇累牍曝光然后营销（主角小镇的拉顿丼以及各种拉顿纪念品，以及不止一次出现的"专家“节目访谈），至于那个万一？有专门人士顶着的嘛，不是有政府和自卫队在，普通人只要遵照指示在家看电视，跟着舆论和媒体的指导走就好了。把怪兽袭来换成新冠登陆日本，你会发现除了制作纪念品外（毕竟游轮的关系，日本也是比较早遭殃的）几乎一模一样。
+
+感觉这次的自卫队爆破是个预兆——其实那条潜艇确认正式失踪已经算是开始了，估计之后的伤亡会慢慢蔓延到普通民众了。这个sp里的人类实在太傲慢了，无论是面对未知的巨兽来袭，还是想去折腾アーキタイプ，从这个角度来说还挺回归原点的……
+
+以上个人理解，不是键政，希望坛友留情<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  蛇头  
+##### 607#       发表于 2021-5-14 00:21
+
+
+话说新一话里哥总吐息（应该算吧？）感觉还挺科学的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">吸收完热量再释放，之后直接进化，开始期待本尊了。
+
+
+-----
+
+####  riyaliums  
+##### 608#       发表于 2021-5-14 02:13
+
+
+ 本帖最后由 riyaliums 于 2021-5-14 02:24 编辑 
+
+这动画越看越不对味
+
+每个角色面对未知的怪兽大量出没都是一副冷冷淡淡甚至高高在上的态度
+
+整个东京都快被拆了女主还只关心自己晾在阳台的内裤
+
+居中主要角色坚毅勇敢得甚至不像是人类
+
+怎么看怎么别扭
+
+而且哥总（这是哥总？）看上去要靠一台搞笑机器人去解决
+
+这就很
+
+这就很MMP好吗
+
+什么脑残玩意儿？
+
+
+-----
+
+####  forerunner01  
+##### 609#       发表于 2021-5-14 03:22
+
+
+剧情越来越有趣，现在究竟是怪兽们相互竞争求生存？还是超计算机们相互竞争求进化？还是两者兼有。
+
+
+-----
+
+####  云野十五  
+##### 610#       发表于 2021-5-14 07:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51243355&amp;ptid=1963627" target="_blank">forerunner01 发表于 2021-5-14 03:22</a>
+剧情越来越有趣，现在究竟是怪兽们相互竞争求生存？还是超计算机们相互竞争求进化？还是两者兼有。 ...</blockquote>
+是印度拯救世界吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  云野十五  
+##### 611#       发表于 2021-5-14 07:07
+
+
+笑了，超级计算机竟是女主
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  云野十五  
+##### 612#       发表于 2021-5-14 07:20
+
+
+第八话节奏太神秘了，断在一个不恐怖又不燃的地方，整体2d作画水瓶也不太行，怕不是分镜都没看懂脚本想干嘛
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  gigbt  
+##### 613#       发表于 2021-5-14 08:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51243182&amp;ptid=1963627" target="_blank">riyaliums 发表于 2021-5-14 02:13</a>
+
+这动画越看越不对味
+
+每个角色面对未知的怪兽大量出没都是一副冷冷淡淡甚至高高在上的态度
+
+整个东京都快被拆 ...</blockquote>
+正常人类可以有，但没必要，第八话有普通人，看着就很碍眼
+
+剧情紧凑角色高效率是这部剧非常吸引我的一点
+
+至于女主，她是正常人么？怪人干怪事并不奇怪
+
+
+-----
+
+####  teecoo00  
+##### 614#       发表于 2021-5-14 08:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51242299&amp;ptid=1963627" target="_blank">Lokay 发表于 2021-5-13 23:37</a>
+
+这么一说我想起来，前女友的样子就有点像第7集bb发给李的那个Architype模型图拉长了的样子
+
+
+—— 来自 SH ...</blockquote>
+对的，图我搬过来了
+
+
+-----
+
+####  teecoo00  
+##### 615#       发表于 2021-5-14 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51242338&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-13 23:40</a>
+
+这个说是archetype可以，说是女朋友就差点意思
+
+因为这个东西很明显在四维空间里是一个类似上顶面 ...</blockquote>
+然而前女友CV是美雪（我可以），我记得那话说的就是四次元女友在三次元人眼里就是这样的盒状物，而在四次元人眼里就不是，感觉就是低次元人无法理解高次元人真正的形态而只能用现有的概念去理解？那话我记得男主还有个情敌是二次元世界的，还挺有趣的
+
+
+-----
+
+####  冰箱研会长  
+##### 616#       发表于 2021-5-14 10:26
+
+
+不行啊　不行　完全不够看啊....
+
+断在令人难受的地方了...
+
+
+-----
+
+####  战星辰  
+##### 617#       发表于 2021-5-14 10:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道那个立方体的可以去百度超立方体，这俩都是拿这个构想做原型搞出来的。
+
+在各种SF还蛮常见的设定来着
+
+
+-----
+
+####  战星辰  
+##### 618#       发表于 2021-5-14 11:00
+
+
+bsyl
+
+这看样子女主和男主要不只能在完结的时候遇到，要不完结也遇不到。
+
+对称的时候也有意包含了男女主行为的对称，估计后面有双人成行分开打怪的环节？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  什伐赤  
+##### 619#       发表于 2021-5-14 13:30
+
+
+这样其实把哥斯拉的核废水设定完全漠视了吧
+
+希望不是我心眼太小
+
+
+-----
+
+####  hgcg-ix  
+##### 620#       发表于 2021-5-14 18:33
+
+
+ダイナゼノンとジャガーでパンチパンチパンチ！ ​​​​
+
+<img src="https://img.saraba1st.com/forum/202105/14/183337qu4gmtjlt7ot09ld.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (215.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 18:33 上传
+
+
+-----
+
+####  BuffaloBills  
+##### 621#       发表于 2021-5-14 19:21
+
+
+这片怎么哪都找不到？生肉网站没有，熟肉到第五之后就没了
+
+
+-----
+
+####  风雪天  
+##### 622#       发表于 2021-5-14 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51251386&amp;ptid=1963627" target="_blank">BuffaloBills 发表于 2021-5-14 19:21</a>
+
+这片怎么哪都找不到？生肉网站没有，熟肉到第五之后就没了</blockquote>
+腾讯昨天更新7，生肉到第八集。微博上说字幕组有事暂停更新。
+
+
+-----
+
+####  夜颠覆  
+##### 623#       发表于 2021-5-14 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51250946&amp;ptid=1963627" target="_blank">hgcg-ix 发表于 2021-5-14 18:33</a>
+
+ダイナゼノンとジャガーでパンチパンチパンチ！ ​​​​</blockquote>
+有点生草<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  坂上菠萝  
+##### 624#       发表于 2021-5-14 21:36
+
+
+因为网飞这周开始给本片加了英文字幕，现在1-8的英肉合集资源也发布了，内有英日韩字幕  b4be6588b17226cc15d8cee6c656767eeaad0ffd 
+
+
+-----
+
+####  蕾洁之风  
+##### 625#       发表于 2021-5-14 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51247442&amp;ptid=1963627" target="_blank">什伐赤 发表于 2021-5-14 13:30</a>
+
+这样其实把哥斯拉的核废水设定完全漠视了吧
+
+希望不是我心眼太小</blockquote>
+近年来的几部哥斯拉就庵野的有核设定<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  别叫我宅男  
+##### 626#       发表于 2021-5-14 23:55
+
+
+内玩意儿就是四维立方体在三维的一种投影，二维立方体（正方形）一点两边，三维立方体一点三边，四维就是一点四边。还有啥点从（0.0.0.0）到（1.1.1.1）一类总之就是由较为严谨的关系递推出来的，好久没看忘了就记得这点
+
+
+-----
+
+####  曦光  
+##### 627#       发表于 2021-5-15 01:25
+
+
+虽然我觉得逻辑悖论了，但是看着钉宫打怪兽的时候想到了因为钉宫/或者女主的进化从而发现了原型并以某种手段被以前人所知道的可能性方导致故事开始的可能。<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  曦光  
+##### 628#       发表于 2021-5-15 01:28
+
+
+打错了，或者女主的AI，总觉得这俩强人工智能太离谱了，还有男主的履历…
+
+
+-----
+
+####  卖报大爷  
+##### 629#       发表于 2021-5-15 01:48
+
+
+<blockquote>什伐赤 发表于 2021-5-14 13:30
+这样其实把哥斯拉的核废水设定完全漠视了吧
+
+希望不是我心眼太小</blockquote>
+哥斯拉系列的核心是对技术的思考，怪兽是作为人类文明的对立面出现的，之所以用核是因为田中本多等人亲历二战，核是他们心中最强大也是最恐惧的人类文明的力量。在那之后，核成为了哥斯拉作为文化符号的一部分，也因为其本身设定的优秀一直被片方沿用。但是在已经有了传奇版这种“传统”哥斯拉的同时搞搞异色产品未尝不可。再说。时代发展，哥斯拉从50米到120米，恰恰也反映了要让人感到震撼越来越难，现如今的世界观众对核已经没有了最开始的那种恐惧，要让人觉得绝望换个思路整我觉得很正常。真g我觉得很大程度上是痞子要内涵福岛，要是福岛不是核问题，而是其他比如奇怪的生物实验搞出来的问题，真g估计就会被设定为一直以来官方搞生化实验的恶果。
+
+
+-----
+
+####  shudushimo  
+##### 630#       发表于 2021-5-15 11:48
+
+
+字幕组终于更了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Lawliet.L  
+##### 631#       发表于 2021-5-15 12:08
+
+
+就目前看来，哥斯拉搞不好有两只。另外，我以为杨振宁挺有名，但和他相关的规范对称理论看来普及度还不够啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夜颠覆  
+##### 632#       发表于 2021-5-15 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51257550&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-15 11:48</a>
+
+字幕组终于更了</blockquote>
+没弃坑就好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  病態極端  
+##### 633#       发表于 2021-5-15 12:55
+
+
+求求你
+
+不要再堆砌名詞了
+
+不要再堆砌名詞了
+
+
+                            
