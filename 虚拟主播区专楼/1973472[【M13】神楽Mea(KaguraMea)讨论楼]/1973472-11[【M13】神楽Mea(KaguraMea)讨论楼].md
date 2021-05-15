@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-15 02:59** 
+> ## **本文件最后更新于2021-05-15 09:42** 
 
 
 
@@ -2861,4 +2861,376 @@ TALK炸裂！
  ——比企谷八幡《我的青春恋爱物语果然有问题》
 
 
-                                         
+-----
+
+####  雪风utopia  
+##### 15244#       发表于 2021-5-15 11:11
+
+
+就是感觉这段为啥刻在DNA了，原来是春物啊<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 15245#       发表于 2021-5-15 11:20
+
+
+最近都没怎么连播然后全是阴间TC  感觉跟过了小半年一样空虚
+
+
+-----
+
+####  Klience  
+##### 15246#       发表于 2021-5-15 11:31
+
+
+毕竟播了也只有歌会和tc 还有什么活能整了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15247#       发表于 2021-5-15 11:37
+
+
+反正我个人忙的跟狗一样一点都不空虚<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+小麻和野男人也很忙吧<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Mr.shelter| + 1|确实|
+
+
+查看全部评分
+
+
+-----
+
+####  Mikumiku831  
+##### 15248#       发表于 2021-5-15 11:55
+
+
+主要最近也很忙 不是每次都能看到
+
+忙完想找点东西解解压 想看你麻但是你麻又不播就特别空虚<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15249#       发表于 2021-5-15 12:06
+
+
+解压打游戏看电影呗 看这吊人阴间tc只会血压拉满 三更半夜给你来个tc 神经病 以为个个都像你一样neet不用上班是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15250#       发表于 2021-5-15 12:12
+
+
+阴间TC是拿来补的，就算是我工作日现在基本也撑不过1点后了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 15251#       发表于 2021-5-15 12:13
+
+
+只有小麻的声音能才够治愈人心啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15252#       发表于 2021-5-15 12:17
+
+
+治愈个jb 当时戴耳机听吊人直播 声音也调的挺大 结果这吊人突然给我来个脑髓吸取 吓得我赶紧把耳机扔了 那感觉就像拿铁丝去扣你耳朵一样 头皮发麻
+
+
+-----
+
+####  暴走的包子  
+##### 15253#       发表于 2021-5-15 12:22
+
+
+主要最近联动企划都挺车轱辘，歌回听多了也有点腻的，只能怪霓虹防疫不行了
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  路人庚  
+##### 15254#       发表于 2021-5-15 12:27
+
+
+其实把tc录播开着当直播也挺舒适的，而且有时候聊的东西也挺有趣
+
+
+-----
+
+####  thisisaspider  
+##### 15255#       发表于 2021-5-15 13:17
+
+
+TC这么好看 我甚至还能补两边 和楼友渐行渐远了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15256#       发表于 2021-5-15 13:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">最近就 是痛
+
+
+-----
+
+####  时间在我手中  
+##### 15257#       发表于 2021-5-15 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51257926&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-5-15 12:27</a>
+其实把tc录播开着当直播也挺舒适的，而且有时候聊的东西也挺有趣</blockquote>
+今天这个有段听着就痛，臭女人可别真带耳钉
+
+
+-----
+
+####  路人庚  
+##### 15258#       发表于 2021-5-15 14:13
+
+
+耳钉应该也就是说说而已（
+
+
+-----
+
+####  Klience  
+##### 15259#       发表于 2021-5-15 14:26
+
+
+这人会打耳钉也不意外<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15260#       发表于 2021-5-15 14:27
+
+
+晚点补完我再把repo复制一份丢这边吧，今天说实话我早上起来连门都没锁直接出门考试去了
+房东甚至还全家旅游，差点中午门都没得进。
+别说她，我感觉我也想换换运气了。这几天脸的确有点黑。
+
+
+-----
+
+####  月色狰狞  
+##### 15261#       发表于 2021-5-15 14:29
+
+
+<blockquote>时间在我手中 发表于 2021-5-15 14:27
+晚点补完我再把repo复制一份丢这边吧，今天说实话我早上起来连门都没锁直接出门考试去了
+
+房东甚至还全家旅 ...</blockquote>
+交给你了
+
+
+-----
+
+####  路人庚  
+##### 15262#       发表于 2021-5-15 14:36
+
+
+当然比起耳钉，后面聊的这个すクランパ更离谱（你咩姐的bug朋友系列.png
+
+
+<img src="https://img.saraba1st.com/forum/202105/15/143624drrk0maiwazfxrwz.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (124.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-15 14:36 上传
+
+
+-----
+
+####  时间在我手中  
+##### 15263#       发表于 2021-5-15 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51259249&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-5-15 14:36</a>
+当然比起耳钉，后面聊的这个すクランパ更离谱（你咩姐的bug朋友系列.png</blockquote>
+草，我走之前瞟了一眼评论区都在说哈人，还没查这个，看来耳钉的确算轻的了)
+
+
+-----
+
+####  路人庚  
+##### 15264#       发表于 2021-5-15 14:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面还聊了有朋友把舌头从中间切成两半的スプタン（图就不放了
+
+
+不得不承认你咩姐的朋友玩的真嗨（
+
+
+-----
+
+####  燃烧的石头  
+##### 15265#       发表于 2021-5-15 15:04
+
+
+真的不是咩咩自己吗
+
+
+-----
+
+####  路人庚  
+##### 15266#       发表于 2021-5-15 15:32
+
+
+ 本帖最后由 路人庚 于 2021-5-15 15:35 编辑 
+
+tc下播的时候说了不是去睡觉，而是去看绿里奇迹（时长188分钟）了，说很好看推荐了大伙都去看
+
+
+东京6点半下播，看3小时电影如果真是一口气看完的话也是东京9点半才睡了
+
+
+你咩姐到底是从哪发现这种老派片子的，网飞会员推荐的吗（
+
+
+syl，
+
+<img src="https://img.saraba1st.com/forum/202105/15/153514yv3k1z69vvh77gqa.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (122.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-15 15:35 上传
+
+
+-----
+
+####  JY要塞  
+##### 15267#       发表于 2021-5-15 15:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">一定是一起玩的老男人看的
+
+
+-----
+
+####  clvan_  
+##### 15268#       发表于 2021-5-15 16:11
+
+
+你麻这涉猎范围有点看不太懂，包括她嘴里的朋友情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  上坂蓮華  
+##### 15269#       发表于 2021-5-15 16:21
+
+
+嘴里的朋友，其实还满色的
+
+
+-----
+
+####  笋狐  
+##### 15270#       发表于 2021-5-15 16:25
+
+
+不知道你麻的XP系统会不会被她口中的朋友带歪
+
+
+
+
+-----
+
+####  A2014720  
+##### 15271#       发表于 2021-5-15 17:05
+
+
+不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15272#       发表于 2021-5-15 17:10
+
+
+这部电影在抖音里面都被讲烂了
+
+
+-----
+
+####  十九号大侠  
+##### 15273#       发表于 2021-5-15 17:10
+
+
+卡死
+
+
+-----
+
+####  路人庚  
+##### 15274#       发表于 2021-5-15 17:17
+
+
+時間未定配信する
+
+
+-----
+
+####  时间在我手中  
+##### 15275#       发表于 2021-5-15 17:22
+
+
+希望别太早，虽然我明天可能加班，要死了，好想吐
+
+
+-----
+
+####  雪风utopia  
+##### 15276#       发表于 2021-5-15 17:31
+
+
+醒了不播，那在干什么就不用我说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 15277#       发表于 2021-5-15 17:41
+
+
+你麻是真滴牛逼，我服了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                        
