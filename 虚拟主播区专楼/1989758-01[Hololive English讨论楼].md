@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-11 12:57** 
+> ## **本文件最后更新于2021-05-15 01:43** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_zgR2O" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_W3ZRi" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9259,7 +9259,7 @@ Rigger HATE!</blockquote>
 
 
 bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_QNLxL" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_rh8b8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -10418,4 +10418,419 @@ Ollie复活
 Gura去休息了
 
 
-                           
+-----
+
+####  wiig  
+##### 663#       发表于 2021-5-11 21:37
+
+
+<img src="https://p.sda1.dev/1/41d2e6856ed9bb5ab604de85f320f8c6/IMG_CMP_135419274.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 664#         楼主| 发表于 2021-5-11 21:38
+
+
+<blockquote>wiig 发表于 2021-5-11 20:02
+Gura去休息了</blockquote>
+周末见！
+
+
+-----
+
+####  wiig  
+##### 665#       发表于 2021-5-12 09:34
+
+
+<img src="https://p.sda1.dev/1/6d84a72fcfc2e38b2f5c24cd495af1f5/IMG_CMP_192027592.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 666#       发表于 2021-5-12 09:43
+
+
+<img src="https://p.sda1.dev/1/fa2f8e44c5ea8ca09d5a6ce789f0aca4/20210512_093328.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|草|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 667#       发表于 2021-5-12 15:18
+
+
+welcome to my office<img src="https://p.sda1.dev/1/def35461375ec6633c8a569a3b657990/IMG_CMP_240197185.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 668#       发表于 2021-5-12 15:28
+
+
+ 本帖最后由 wiig 于 2021-5-12 15:38 编辑 
+
+DOOT DOOT DOOT<img src="https://p.sda1.dev/1/efa429b4042edbdb1e769669f11562ac/1392314345393033219.gif" referrerpolicy="no-referrer">
+魔音灌脑
+意外吹得很好
+
+
+-----
+
+####  wiig  
+##### 669#       发表于 2021-5-12 15:35
+
+
+昨晚it takes two
+一个喜欢书一个讨厌书
+Calli被叫了husband
+想起来北海道滑雪的经历
+每次说完DON’T DIE的flag必躺
+书真的好烦w打断约会
+下周最终回 Kiara频道
+
+
+-----
+
+####  wiig  
+##### 670#       发表于 2021-5-12 23:45
+
+
+<img src="https://img.saraba1st.com/forum/202105/12/234507udwrx2ybatz2wy21.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (32.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-12 23:45 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|额头之大可以跑马|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 671#       发表于 2021-5-13 00:51
+
+
+<img src="https://img.saraba1st.com/forum/202105/13/005116sj254vq8vvjj5251.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (251.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-13 00:51 上传
+
+
+-----
+
+####  smy20011  
+##### 672#         楼主| 发表于 2021-5-13 01:16
+
+
+<img src="https://img.saraba1st.com/forum/202105/13/011601qfoozrf6183h1kqy.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E1MvTtWVkAYO3Qo.jpeg</strong> (535.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-13 01:16 上传
+
+
+丝袜露肉，ame很会啊
+
+
+-----
+
+####  wiig  
+##### 673#       发表于 2021-5-13 07:18
+
+
+<img src="https://p.sda1.dev/1/68ef98ea2c1d2dbf6824bfb6dc72fe29/IMG_CMP_146665439.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 674#       发表于 2021-5-13 09:43
+
+
+JAZZ for your soul
+<img src="https://p.sda1.dev/1/0d53e98e5b489f12c8356a7fd56ee63a/IMG_CMP_211698967.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  spe.CIA.l  
+##### 675#       发表于 2021-5-13 12:41
+
+
+最近刚入坑，请问老哥们现在画EN的同人图会被冲吗。。。
+
+
+-----
+
+####  wiig  
+##### 676#       发表于 2021-5-13 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51235534&amp;ptid=1989758" target="_blank">spe.CIA.l 发表于 2021-5-13 12:41</a>
+最近刚入坑，请问老哥们现在画EN的同人图会被冲吗。。。</blockquote>
+不发国内社交平台就可以了<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 677#       发表于 2021-5-13 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51235534&amp;ptid=1989758" target="_blank">spe.CIA.l 发表于 2021-5-13 12:41</a>
+
+最近刚入坑，请问老哥们现在画EN的同人图会被冲吗。。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">发国内也没事 不沾tskk和白上吹雪甚至有人护你
+
+
+-----
+
+####  bluebaby  
+##### 678#       发表于 2021-5-13 12:48
+
+
+冲不冲s1说了不算，不过建议在画面上加上大天使彩蛋可以有效降低被冲到概率
+
+
+-----
+
+####  spe.CIA.l  
+##### 679#       发表于 2021-5-13 13:21
+
+
+感谢大家这么快的解答<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 680#         楼主| 发表于 2021-5-13 13:24
+
+
+基本上没问题，只要你不画蝗
+
+
+-----
+
+####  wiig  
+##### 681#       发表于 2021-5-14 09:40
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/094025sxczvlkcl1eqq2c6.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (281.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 09:40 上传
+
+
+-----
+
+####  wiig  
+##### 682#       发表于 2021-5-14 15:14
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/151422jhryveuy2hkqhqkz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (136.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 15:14 上传
+
+
+-----
+
+####  smy20011  
+##### 683#         楼主| 发表于 2021-5-14 15:38
+
+
+Ina和wacom合作直播居然送三个月的pixiv Premium。
+
+
+-----
+
+####  wiig  
+##### 684#       发表于 2021-5-14 15:49
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/154949ioccc9r9fr0uovbf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (278.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 15:49 上传
+
+
+-----
+
+####  wiig  
+##### 685#       发表于 2021-5-14 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51248859&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-14 15:38</a>
+
+Ina和wacom合作直播居然送三个月的pixiv Premium。</blockquote>
+领到了，白嫖很爽
+
+
+-----
+
+####  wiig  
+##### 686#       发表于 2021-5-14 18:28
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/182839opgysgnnsxhqkdin.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (236.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 18:28 上传
+
+
+-----
+
+####  wiig  
+##### 687#       发表于 2021-5-14 20:23
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/202232u2uppu9xggpzqgpr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (439.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/202241i59zscfoz9toz54c.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (423 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/202253hujvvjurvxv9vmzk.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (496.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/14/202258jya48iauzuyna5u8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (336.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-14 20:22 上传
+
+
+-----
+
+####  wiig  
+##### 688#       发表于 2021-5-14 21:22
+
+
+<img src="https://p.sda1.dev/1/6c9df15ab8ed2c031d7f3d4d810608ea/IMG_CMP_77352359.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 689#       发表于 2021-5-14 21:22
+
+
+<img src="https://p.sda1.dev/1/da03124917187e852dacd9aee9c57a08/IMG_CMP_145239934.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lanslort  
+##### 690#       发表于 2021-5-15 09:11
+
+
+Country road take me home草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  smy20011  
+##### 691#         楼主| 发表于 2021-5-15 09:25
+
+
+歌不错，就是Ame调音调的不像Ame了2333
+
+
+-----
+
+####  smy20011  
+##### 692#         楼主| 发表于 2021-5-15 09:36
+
+
+目前鲨鱼合作曲的喜欢程度
+
+
+愛言葉 &gt; Country Roads = 空色
+
+
+                          
