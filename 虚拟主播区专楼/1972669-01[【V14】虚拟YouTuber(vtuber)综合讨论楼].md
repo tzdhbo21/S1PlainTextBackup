@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-15 06:53** 
+> ## **本文件最后更新于2021-05-16 03:11** 
 
 
 
@@ -10821,4 +10821,425 @@ yagoo的水军差不多得了
 谱皇和情绪给国产舰娘手游唱主题曲
 
 
-                      
+-----
+
+####  free  
+##### 812#       发表于 2021-5-15 17:30
+
+
+[https://www.youtube.com/watch?v=9HWQ9I18oAM](https://www.youtube.com/watch?v=9HWQ9I18oAM)
+
+ 理芽 1st ONE-MAN LIVE「ニューロマンス」
+
+
+前半免费看
+
+
+-----
+
+####  Suzutsuki  
+##### 813#       发表于 2021-5-15 17:33
+
+
+第一句towa选错角色 没肥宅的防护罩直接灭两人了 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  katern  
+##### 814#       发表于 2021-5-15 17:34
+
+
+这不是叔叔的手游吗，怎么还找裸春来的
+
+
+-----
+
+####  FCCHua  
+##### 815#       发表于 2021-5-15 17:43
+
+
+ 本帖最后由 FCCHua 于 2021-5-15 20:59 编辑 
+
+第一局本质是阿露丝的胜利，可惜没第二<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+小千第二局好惨，第三局也是，哈弟的指挥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+第三局bora她们吃鸡了，小熊猫她们第二
+第四局小熊猫队吃鸡
+第五局小千第三，还行吧
+花芽姐，阿露丝，幼儿园队得奖
+小熊猫队这届cr第三<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 816#       发表于 2021-5-15 18:43
+
+
+<blockquote>[关于NIJISANJI旗下VTuber物述有栖主题装扮]
+
+
+首先非常感谢各位一直以来对物述有栖在bilibili活动的喜爱与支持。
+
+
+[关于今后计划]
+
+
+目前已与bilibili取得联系，对预售的主题装扮将做出如下改动:
+
+1.修正部分表情。
+
+
+2.追加新表情。
+
+
+3.整改装扮个性主题部分以及头像挂件。
+
+
+4.追加两张新空间背景。
+
+
+关于本次在bilibili预售的主题装扮内容，虽然NIJISANJI中国运营对制作内容进行了监修，但由于我们欠缺了从粉丝视点出发的考虑导致最终未能提供更令大家满意的内容。NIJISANJI在此表示最深刻的道歉。
+
+
+[关于本次主题制作]
+
+
+1.3张主视觉图中的内容，以及要素经过与物述有栖本人进行探讨并由bilbili与NIJISANJI中国运营共同商讨选出担当画师。NIJISANJI负责监修工作。
+
+
+2.关于画师画风，本次装扮意向从多样的画风来展现物述有栖的魅力。请勿对担当画师进行任何的询问以及人身攻击和诽谤。
+
+
+本次给各位热爱NIJISANJI，热爱物述有栖的观众造成不便，我们再次表示抱歉。
+
+
+今后，我们会加强监修体制，提供更加高质量的内容。
+
+
+望各位今后能够继续支持NIJISANJI以及所属VTuber。
+
+
+NIJISANJI海外事业运营部</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  TiHaru  
+##### 817#       发表于 2021-5-15 19:04
+
+
+该ban双韩援了
+
+
+-----
+
+####  asdhai  
+##### 818#       发表于 2021-5-15 19:07
+
+
+今天是正赛来着？
+
+
+-----
+
+####  FCCHua  
+##### 819#       发表于 2021-5-15 19:12
+
+
+今天正赛，5点多开始的
+
+
+-----
+
+####  tiro_finale  
+##### 820#       发表于 2021-5-15 19:17
+
+
+空妈现在绿字率这么高的吗，以前把会员设在nico岂不是大失策
+
+
+-----
+
+####  alcoholic1000  
+##### 821#       发表于 2021-5-15 19:22
+
+
+怎么还有歌MV，太夸张了
+
+
+-----
+
+####  free  
+##### 822#       发表于 2021-5-15 19:25
+
+
+喷了，烂货圆脸这live说有嘉宾，结果就是嘉宾播片虚空对唱，太弱智了
+
+
+-----
+
+####  空集  
+##### 823#       发表于 2021-5-15 19:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> yagoo买点给空妈吧 一让路现在全杏合计人数2w5空妈加1w人看打枪  
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  winda  
+##### 824#       发表于 2021-5-15 20:37
+
+
+原鬼神这队奈罗花垫底，daruma和arisaka冠军，戏剧性拉满<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 825#       发表于 2021-5-15 20:43
+
+
+ 本帖最后由 FCCHua 于 2021-5-15 20:45 编辑 
+
+没办法，狱卒加分了，不能再组相声队<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 826#       发表于 2021-5-15 20:55
+
+
+没完没了了是吧
+
+<img src="https://img.saraba1st.com/forum/202105/15/205551jak77az7e330ezr7.png" referrerpolicy="no-referrer">
+
+
+<strong>Crazy Raccoon Cup #VALORANT.png</strong> (244.57 KB, 下载次数: 1)
+
+下载附件
+
+2021-5-15 20:55 上传
+
+
+-----
+
+####  qq845629713  
+##### 827#       发表于 2021-5-15 21:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 比赛多不是好事么？我觉得瓦罗兰五人组队还挺好的，
+
+
+-----
+
+####  OldGlory  
+##### 828#       发表于 2021-5-15 21:08
+
+
+千草hachi合唱
+
+<img src="https://img.saraba1st.com/forum/202105/15/210755hnrr99d5g7a6gw6q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E1bTsoSUcAomgsq.jpg</strong> (258.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-15 21:07 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 829#       发表于 2021-5-15 21:56
+
+
+千草和hachi之间也差太远了吧。。
+
+
+-----
+
+####  katern  
+##### 830#       发表于 2021-5-15 22:26
+
+
+【歌枠】リクエスト待ち⤴︎定期配信【初見さん歓迎】
+[https://www.youtube.com/watch?v=1uAik-IqeM8](https://www.youtube.com/watch?v=1uAik-IqeM8)
+
+
+第一次赶上蜜柑歌枠，真有活力啊<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  laphire  
+##### 831#       发表于 2021-5-15 22:40
+
+
+红楚蟹民梦散了，不过真的要说manami那边养gachi成分太多，避火可以理解ε-(´∀｀; )…卑微cp民希望不要闹到反目成仇…
+
+
+-----
+
+####  FCCHua  
+##### 832#       发表于 2021-5-15 22:47
+
+
+爱园什么时候养噶起了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  laphire  
+##### 833#       发表于 2021-5-15 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51263914&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-5-15 22:47</a>
+爱园什么时候养噶起了</blockquote>
+有时看她直播的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">可能是错觉
+
+
+-----
+
+####  rzrbtk  
+##### 834#       发表于 2021-5-15 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51264019&amp;ptid=1972669" target="_blank">laphire 发表于 2021-5-15 22:59</a>
+
+有时看她直播的感觉可能是错觉</blockquote>
+组合不一起玩儿的原因不只是噶吃啦....
+
+但只看红蟹的话噶吃比较有战力的其实是三枝那边吧，我个人觉得挑染组都还蛮猛的
+
+
+-----
+
+####  FCCHua  
+##### 835#       发表于 2021-5-15 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51264019&amp;ptid=1972669" target="_blank">laphire 发表于 2021-5-15 22:59</a>
+有时看她直播的感觉可能是错觉</blockquote>
+我是觉得她要真养噶起的话就没必要在三枝3d时惊喜出场了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 836#       发表于 2021-5-15 23:26
+
+
+鱼人到底怎么做到完全不被炮的，我都不敢想了😨
+
+
+-----
+
+####  free  
+##### 837#       发表于 2021-5-16 00:58
+
+
+烂货圆脸说今天这生日live本来预定嘉宾都能到现场，结果突发情况取消了，不知道日本又出了啥状况
+
+
+-----
+
+####  Yurumi  
+##### 838#       发表于 2021-5-16 02:02
+
+
+这几天很严重，昨天那边好像是日增了7000例
+
+
+-----
+
+####  SuntoryNomu  
+##### 839#       发表于 2021-5-16 09:52
+
+
+<blockquote>【NIJISANJI EN】组合LazuLight
+
+首播特别节目bilibili同步转播
+
+
+【时间】中国时间5月16日10:00～</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">品鉴一下
+[https://live.bilibili.com/21346449](https://live.bilibili.com/21346449)
+
+
+-----
+
+####  katern  
+##### 840#       发表于 2021-5-16 09:54
+
+
+ 本帖最后由 katern 于 2021-5-16 10:20 编辑 
+
+忘了是日本时间，麻了
+[https://live.bilibili.com/1485080](https://live.bilibili.com/1485080)
+
+打了D.I.Y  舒服了
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 841#       发表于 2021-5-16 09:58
+
+
+[https://live.bilibili.com/1485080](https://live.bilibili.com/1485080)
+
+性感老爱在线打碟？
+
+看起来比金憨憨熟练……
+
+
+-----
+
+####  hulaoda007  
+##### 842#       发表于 2021-5-16 10:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51263839&amp;ptid=1972669" target="_blank">laphire 发表于 2021-5-15 22:40</a>
+红楚蟹民梦散了，不过真的要说manami那边养gachi成分太多，避火可以理解ε-(´∀｀; )…卑微cp民希望不要闹 ...</blockquote>
+  我偏向是爱园和三枝不来电...
+  仅仅是印象里的话...都是二人过于礼尚往来，有不好的距离感的感觉...（但我最后一次红楚蟹都忘了是去年还是前年的圣诞节联动还是啥时候了...）
+
+
+-----
+
+####  dybang  
+##### 843#       发表于 2021-5-16 10:17
+
+
+即使真有也不会轻易说的，女粉武德充沛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 844#       发表于 2021-5-16 10:40
+
+
+人均双语流利直播，行吧，卷本社卷定了
+
+
+-----
+
+####  rzrbtk  
+##### 845#       发表于 2021-5-16 11:01
+
+
+我就喜欢看郡道一反常态刚出道就去关注新人结果没有人回关的样子（现在回关了）
+
+
+                     
