@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-10 03:53** 
+> ## **本文件最后更新于2021-05-16 10:42** 
 
 
 
@@ -16609,4 +16609,381 @@ q娃里温柔的女人太多了，还是屑一点比较能给人留下印象
 2021-5-10 11:21 上传
 
 
-  
+-----
+
+####  达达葱2  
+##### 1415#       发表于 2021-5-10 13:38
+
+
+<blockquote>HGCG-闪 发表于 2021-5-10 11:23
+哦哦哦果然飞鸟和会长有故事</blockquote>
+必须期待
+
+
+-----
+
+####  千恋万花  
+##### 1416#       发表于 2021-5-10 13:54
+
+
+<img src="https://img.saraba1st.com/forum/202105/10/135327zy2rjy92lhzfy6rm.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (79.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 13:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/10/135334rxl9bcbej7dpl7ct.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (186.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 13:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/10/135351q9900pjho7ft70fo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>070-071.jpg</strong> (1.12 MB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 13:53 上传
+
+
+[大图](https://files.catbox.moe/bkms5x.jpg)
+
+
+-----
+
+####  三合一出现  
+##### 1417#       发表于 2021-5-10 14:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">必须期待了。
+
+
+-----
+
+####  阿渣兄  
+##### 1418#       发表于 2021-5-10 15:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说奖品的时候一直看向学姐，我还以为奖品是……
+
+
+-----
+
+####  HGCG-闪  
+##### 1419#       发表于 2021-5-10 20:56
+
+
+<img src="https://img.saraba1st.com/forum/202105/10/205620fs74f6s67m69ede7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (512.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-10 20:56 上传
+
+
+-----
+
+####  最强惠酱  
+##### 1420#       发表于 2021-5-10 22:05
+
+
+罗拉太屑了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  达达葱2  
+##### 1421#       发表于 2021-5-11 13:07
+
+
+为啥银魂的人都是灰色的
+
+
+-----
+
+####  qb0079  
+##### 1422#       发表于 2021-5-11 18:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">这初代总集篇cm，怎么尤加奈手骨折了？
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1423#       发表于 2021-5-11 19:12
+
+
+人鱼虽然屑但是可爱啊
+
+
+其实也没多屑（
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 1424#       发表于 2021-5-11 19:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51190712&amp;ptid=1963832" target="_blank">leleq 发表于 2021-5-9 16:21</a>
+
+这集不是屑人鱼是酸人鱼了 但是酸人鱼真棒
+
+
+这集打斗故事都不错要是能保持下去就好了 </blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第一集的时候真夏回家说跟一个叫珊瑚的去逛街所以回来晚了的时候
+
+
+泡在浴缸里的萝拉不就好打一股醋味
+
+
+-----
+
+####  saya1892  
+##### 1425#       发表于 2021-5-13 00:39
+
+
+要持续到后半季那是不是至少得有3集，1集过去，1集陷入危机，再救1集大团圆<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗黑能乐  
+##### 1426#       发表于 2021-5-13 08:01
+
+
+有点像想不出萝拉变人的样子
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  dragrass  
+##### 1427#       发表于 2021-5-13 12:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">珊瑚也太老好人了
+
+
+-----
+
+####  dragrass  
+##### 1428#       发表于 2021-5-13 13:04
+
+
+这集摸鱼怪根本就是来玩的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1429#       发表于 2021-5-14 12:28
+
+
+<blockquote>暗黑能乐 发表于 2021-5-13 08:01
+有点像想不出萝拉变人的样子
+
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+前面不是有发吗
+
+
+-----
+
+####  暗黑能乐  
+##### 1430#       发表于 2021-5-14 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51246737&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-5-14 12:28</a>
+
+前面不是有发吗</blockquote>
+前面发了一万种，不知道哪种是真的
+
+
+-----
+
+####  粉儿alice  
+##### 1431#       发表于 2021-5-15 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51215151&amp;ptid=1963832" target="_blank">qb0079 发表于 2021-5-11 18:59</a>
+这初代总集篇cm，怎么尤加奈手骨折了？</blockquote>
+好像还做手术了 伤的不轻
+
+
+-----
+
+####  qb0079  
+##### 1432#       发表于 2021-5-16 00:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51263756&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-5-15 22:31</a>
+
+好像还做手术了 伤的不轻</blockquote>
+看见这CM前好像都没听说过有这事
+
+
+-----
+
+####  kerfars  
+##### 1433#       发表于 2021-5-16 08:16
+
+
+上集真夏说让萝拉参加部活
+
+这集就先让萝拉体验一把穿校服+双脚（鳍）走，而且当事鱼体验完后还想穿校服上学
+
+而且下集应该是让萝拉继续双脚+参加部活
+
+觉得今年剧情推进和人物成长真的做得很到位
+
+
+-----
+
+####  hgcg-ix  
+##### 1434#       发表于 2021-5-16 08:58
+
+
+这代敌方干部关系太其乐融融所以剧组只能迫害学校里的风纪委员长了吗！ ​​​​
+
+
+-----
+
+####  粉儿alice  
+##### 1435#       发表于 2021-5-16 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51264868&amp;ptid=1963832" target="_blank">qb0079 发表于 2021-5-16 00:44</a>
+看见这CM前好像都没听说过有这事</blockquote>
+BV1ZA41157Rt 4月份就这样了
+
+
+-----
+
+####  最强惠酱  
+##### 1436#       发表于 2021-5-16 16:05
+
+
+学姐的冷笑话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+人鱼滑板这段怎么看都好奇怪<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+下集唱k小鱼仙
+
+
+-----
+
+####  Sliurus  
+##### 1437#       发表于 2021-5-16 16:28
+
+
+同人图里的罗拉颜值高得不可思议，谁能想到正片里负责颜艺<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/162704bmla6nn4qqxcdll4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_4328(20210516-160516).JPG</strong> (307.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 16:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/162706m8o82o7syoss85mr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_4329(20210516-160532).JPG</strong> (568.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 16:27 上传
+
+
+-----
+
+####  leleq  
+##### 1438#       发表于 2021-5-16 16:33
+
+
+真夏拿出滑板立即跳戏到上季 4人的滑板装也挺潮的 
+
+屑人鱼的鳍劲真大啊 说起来第一集还把真夏直接举起来了呢
+
+
+屑人鱼越来越棒了 我已经开始想掐那得意的脸了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  待宵  
+##### 1439#       发表于 2021-5-16 16:35
+
+
+颜艺与颜值未尝不可共存，但看起来过于清楚可怜或气质高洁的屑人鱼就有点出戏
+
+
+话说回来这集真是强，欢乐度点满，屑人鱼的行动力真高
+
+
+-----
+
+####  leleq  
+##### 1440#       发表于 2021-5-16 16:49
+
+
+颜值的话 目前的情报来说 4人里飞鸟学姐是最好看的但比较偏向帅气 珊瑚属于有点可爱颜值主要靠化妆  瓜瓜眼镜妹 真夏菠萝头基本是普通人 
+
+屑人鱼颜值有种族天赋从自己也天天吹来看人鱼里也是顶尖的 大概率属于国色天香级 不是说漂亮的女人爱搞怪么因为有自信怎么搞都好看 屑人鱼爱作颜艺很合理<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  千恋万花  
+##### 1441#       发表于 2021-5-16 18:23
+
+
+[https://www.pixiv.net/artworks/89882850](https://www.pixiv.net/artworks/89882850)
+
+<img src="https://img.saraba1st.com/forum/202105/16/182232hs4ghp633fe2gehr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (181.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 18:22 上传
+
+
+-----
+
+####  最强惠酱  
+##### 1442#       发表于 2021-5-16 18:40
+
+
+我是觉得正片里人鱼脸也很好看不输同人图<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+ 

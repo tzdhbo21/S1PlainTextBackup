@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-15 13:43** 
+> ## **本文件最后更新于2021-05-16 10:40** 
 
 
 
@@ -3685,4 +3685,335 @@ z说起来之前也说过，有个我的女粉整了个神乐mea假指甲，很�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可惜就立本现在的状态她估计还得多忍忍
 
 
-                                       
+-----
+
+####  时间在我手中  
+##### 15303#       发表于 2021-5-15 21:43
+
+
+炼铜怪阿姨是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15304#       发表于 2021-5-15 21:46
+
+
+一个小时没听几首歌，好难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15305#       发表于 2021-5-15 21:47
+
+
+我宁愿杂谈多点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">做歌现在那点播放量只能说不是很喜欢的歌我估计是彻底懒得看了
+
+
+-----
+
+####  路人庚  
+##### 15306#       发表于 2021-5-15 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">我倒是挺喜欢这种节奏
+
+
+-----
+
+####  A2014720  
+##### 15307#       发表于 2021-5-15 21:49
+
+
+ 本帖最后由 A2014720 于 2021-5-15 21:50 编辑 
+
+数据厨是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过歌回切片本身只能说是非常粉丝向的东西吧<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15308#       发表于 2021-5-15 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51263335&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-5-15 21:49</a>
+
+数据厨是吧
+
+
+不过歌回切片本身只能说是非常粉丝向的东西吧</blockquote>
+主要是播放量低说明没人看啊，我也过了大量试作品时期了，就算如此我也还是时不时整一下
+
+数据这东西我向来跟自己说过1000就算赢反正<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+认真来说就是。该做点相对认真一点的了，可惜现在真的没啥很想做的歌
+
+
+-----
+
+####  鷹書たかしょ  
+##### 15309#       发表于 2021-5-15 22:11
+
+
+这个音源的ハルジオン头一回听
+
+
+-----
+
+####  时间在我手中  
+##### 15310#       发表于 2021-5-15 22:14
+
+
+只能说的确听着犯困）
+
+
+-----
+
+####  路人庚  
+##### 15311#       发表于 2021-5-15 22:15
+
+
+nmd，本来听到春紫苑想写点东西结果被一阵吓吓吓咻咻咻给我憋回去了
+
+
+（草你咩姐嫌歌太难封印春紫苑了还行，nya个毛啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 15312#       发表于 2021-5-15 22:18
+
+
+封印是可以卖点啊，咩姐又玩明白了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15313#       发表于 2021-5-15 22:22
+
+
+我命令吊人马上变成猫猫被我养<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15314#       发表于 2021-5-15 22:33
+
+
+默剧大师（
+
+
+-----
+
+####  雪风utopia  
+##### 15315#       发表于 2021-5-15 22:35
+
+
+现在一定再被野男人中x着呢，因为受不了就把麦闭了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15316#       发表于 2021-5-15 22:38
+
+
+是我顶着呢<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">没想到吧
+
+
+-----
+
+####  路人庚  
+##### 15317#       发表于 2021-5-15 22:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">多顶顶，多了几个gif也挺好的（开始连唱了，估计要溜了
+
+
+-----
+
+####  Klience  
+##### 15318#       发表于 2021-5-15 22:45
+
+
+困个屁 你都打了一个下午了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15319#       发表于 2021-5-15 22:46
+
+
+才这么点时间，你也太不行了吧<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+syl  小麻刚一定是去厕所擦芒果了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15320#       发表于 2021-5-15 22:47
+
+
+她都说自己没睡了）现在去补觉了要）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15321#       发表于 2021-5-15 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51263911&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-5-15 22:47</a>
+她都说自己没睡了）现在去补觉了要）</blockquote>
+那今晚可不能放过她<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15322#       发表于 2021-5-16 12:06
+
+
+ 本帖最后由 路人庚 于 2021-5-16 12:10 编辑 
+
+tc
+
+
+syl，开幕对线，好起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 15323#       发表于 2021-5-16 12:22
+
+
+吃着饭呢 这就播了？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pei23333  
+##### 15324#       发表于 2021-5-16 15:41
+
+
+男女通吃是吧，这么还和女的去过蓝洞的
+
+
+-----
+
+####  路人庚  
+##### 15325#       发表于 2021-5-16 15:44
+
+
+ 本帖最后由 路人庚 于 2021-5-16 16:00 编辑 
+
+所以19年说的“18年圣诞节跟男人去青洞玩了”，其实就是为了跳脸编的了，实际以这次说的跟女人去青洞玩了为准（你咩姐都不记得自己19年说过那种话“大家都把记忆更新成我刚说的内容”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+不过再之前确实跟男人去过青洞（“这辈子一共去过2次”
+
+
+-----
+
+####  pei23333  
+##### 15326#       发表于 2021-5-16 15:49
+
+
+那还编的绘声绘色的，又是摸头又是差点交往的，听她将这些经历还挺有意思的，tc杂谈真好啊
+
+
+-----
+
+####  路人庚  
+##### 15327#       发表于 2021-5-16 15:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实挺大概率应该是把更早之前的那次说成是18年的了（不过目前也分析不出来，你咩姐编的段子也蛮多的
+
+
+-----
+
+####  路人庚  
+##### 15328#       发表于 2021-5-16 16:02
+
+
+ 本帖最后由 路人庚 于 2021-5-16 16:17 编辑 
+
+跟死宅聊天聊到忘记时间，甚至忘记去解冻肉+买鸡蛋，刚刚才想起来（）
+
+syl，下了，出门买鸡蛋
+
+
+-----
+
+####  甘栗No.007  
+##### 15329#       发表于 2021-5-16 16:23
+
+
+ 本帖最后由 甘栗No.007 于 2021-5-16 16:51 编辑 
+
+期间限定吐槽<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 要擦亮眼睛看人啊
+
+
+-----
+
+####  路人庚  
+##### 15330#       发表于 2021-5-16 16:41
+
+
+苦情歌唱的那么有味道是有原因的啊（
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 15331#       发表于 2021-5-16 16:52
+
+
+这次太长了，摸了，我今天加班加到想死
+我觉得我当初真的是**才会选这行
+
+
+-----
+
+####  Sabishi_Jiku  
+##### 15332#       发表于 2021-5-16 18:16
+
+
+啊，今天是516，大家不发病吗
+
+
+-----
+
+####  Klience  
+##### 15333#       发表于 2021-5-16 18:22
+
+
+发什么病 看这人玩混子英雄挺快乐的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15334#       发表于 2021-5-16 18:23
+
+
+4小时手机tc听完的爽的一笔，过会还有跟黄兔子打麻将，发什么病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+人不能活在过去。 by 神乐mea
+
+
+                                      
