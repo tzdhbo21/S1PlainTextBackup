@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-16 03:11** 
+> ## **本文件最后更新于2021-05-16 17:34** 
 
 
 
@@ -11242,4 +11242,394 @@ NIJISANJI海外事业运营部</blockquote>
 我就喜欢看郡道一反常态刚出道就去关注新人结果没有人回关的样子（现在回关了）
 
 
-                     
+-----
+
+####  SuntoryNomu  
+##### 846#       发表于 2021-5-16 11:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">首播点踩的除了某金鱼之外这是第二个。
+
+
+-----
+
+####  Suny08  
+##### 847#       发表于 2021-5-16 12:46
+
+
+继续听了一下你虹龙的首播，这日语完全就是日本人吧……日本的海外留学生跑去en出道了？
+
+
+-----
+
+####  OldGlory  
+##### 848#       发表于 2021-5-16 13:14
+
+
+这人鱼女声音有点像miki<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kangkangsama  
+##### 849#       发表于 2021-5-16 14:06
+
+
+ 本帖最后由 kangkangsama 于 2021-5-16 14:08 编辑 
+
+发错了
+
+
+-----
+
+####  noHentai  
+##### 850#       发表于 2021-5-16 14:36
+
+
+歌还行
+
+LazuLight - Diamond City Lights (Official Music Video) | NIJISANJI EN
+[https://www.youtube.com/watch?v=ZnP0cKNPE04](https://www.youtube.com/watch?v=ZnP0cKNPE04)
+
+
+-----
+
+####  OldGlory  
+##### 851#       发表于 2021-5-16 15:59
+
+
+有说精灵是[https://twitter.com/mintfantome](https://twitter.com/mintfantome)
+
+龙女是[https://twitter.com/ryuuseinova](https://twitter.com/ryuuseinova)
+
+耳朵好的可以来听听看
+
+
+-----
+
+####  spe.CIA.l  
+##### 852#       发表于 2021-5-16 16:08
+
+
+ 本帖最后由 spe.CIA.l 于 2021-5-16 16:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51267692&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-5-16 12:46</a>
+
+继续听了一下你虹龙的首播，这日语完全就是日本人吧……日本的海外留学生跑去en出道了？ ...</blockquote>
+她英语也听着像母语，口音和用语完全不像亚裔留学生<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 853#       发表于 2021-5-16 16:31
+
+
+看了下录播，龙还行，其他俩一般般。
+
+
+-----
+
+####  渡鸦骑士  
+##### 854#       发表于 2021-5-16 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51269646&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-5-16 15:59</a>
+
+有说精灵是https://twitter.com/mintfantome
+
+龙女是https://twitter.com/ryuuseinova
+
+耳朵好的可以来听听看 ...</blockquote>
+推全锁了……光速……
+
+不是这个活动vtb号锁了也太明显了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 855#       发表于 2021-5-16 17:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51269972&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-5-16 16:42</a>
+
+推全锁了……光速……
+
+不是这个活动vtb号锁了也太明显了吧</blockquote>
+两个都宣布毕业了，不是活动的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|粉丝那么多……，就算毕业锁了…….|
+
+
+查看全部评分
+
+
+-----
+
+####  cqkxywj  
+##### 856#       发表于 2021-5-16 17:37
+
+
+我V垢TL从你EN公布到首播都没几个人聊EN这件事，就英语disc有讨论。本社经验19后不是前虹人只会是一批养gachi不做事的纯种太妹罢了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdhai  
+##### 857#       发表于 2021-5-16 17:51
+
+
+有懂的说说这仨前景如何？
+
+
+-----
+
+####  CAserlumos  
+##### 858#       发表于 2021-5-16 18:20
+
+
+阿喵喵新衣服真不戳<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 859#       发表于 2021-5-16 18:23
+
+
+<img src="https://p.sda1.dev/2/0604cdb7b33f3d115cd090e36fbba45a/image.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  FCCHua  
+##### 860#       发表于 2021-5-16 18:29
+
+
+阿喵喵新衣服一直可以的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  s32244153  
+##### 861#       发表于 2021-5-16 18:30
+
+
+现在新衣服是不是都能直接配原发型阿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 862#       发表于 2021-5-16 18:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 863#       发表于 2021-5-16 18:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51270535&amp;ptid=1972669" target="_blank">asdhai 发表于 2021-5-16 17:51</a>
+
+有懂的说说这仨前景如何？</blockquote>
+隔壁彩虹en楼他们有聊
+
+
+-----
+
+####  free  
+##### 864#       发表于 2021-5-16 19:00
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/190025dvblw00ls0xvj3wi.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (59.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 19:00 上传
+
+
+-----
+
+####  qq845629713  
+##### 865#       发表于 2021-5-16 19:08
+
+
+突然のお知らせとなってしまい大変申し訳ないのですが、リゼるるListenは6/27をもちまして終了いたします……！！いつも応援してくださっている皆様、本当にありがとうございます。最後までメッセージお待ちしております
+
+
+别，我的lizelulu，
+
+
+-----
+
+####  死体残留  
+##### 866#       发表于 2021-5-16 20:06
+
+
+【蜗牛和黄鹂鸟？-哔哩哔哩】https://b23.tv/NF4I2U
+
+
+-----
+
+####  peh  
+##### 867#       发表于 2021-5-16 20:21
+
+
+hachi千草这首挺好听的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 868#       发表于 2021-5-16 20:38
+
+
+shiromanta桑和bob胡桃再聊cr杯把自己自信打没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cckuku  
+##### 869#       发表于 2021-5-16 20:42
+
+
+小蓝唱歌原来是这个声音吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Porsche  
+##### 870#       发表于 2021-5-16 22:08
+
+
+ 本帖最后由 Porsche 于 2021-5-16 22:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51271522&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-5-16 20:06</a>
+【蜗牛和黄鹂鸟？-哔哩哔哩】https://b23.tv/NF4I2U</blockquote>
+阿葵5小时前才在动态里问的国内流行什么歌，然后有人答了这个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+然后还是本人来亲自投稿还不熟悉b站的操作来着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  hlazd  
+##### 871#       发表于 2021-5-16 22:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51268825&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-5-16 14:36</a>
+
+歌还行
+
+LazuLight - Diamond City Lights (Official Music Video) | NIJISANJI EN
+
+https://www.youtube.com ...</blockquote>
+这么典型的动画歌，用英语唱出来感觉很奇妙。。。
+
+
+-----
+
+####  石破天  
+##### 872#       发表于 2021-5-16 22:46
+
+
+好久不关注日v，今天在微博上别圈看到tmsk的推对话，所以她们这样直播文爱多久了，还是我一直火星了……
+
+
+-----
+
+####  FCCHua  
+##### 873#       发表于 2021-5-16 22:57
+
+
+虽然之前偶尔也有，不过最近的也就这几天吧，众所周知她们没有line的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ShuTk4O  
+##### 874#       发表于 2021-5-16 23:13
+
+
+ 本帖最后由 ShuTk4O 于 2021-5-16 23:42 编辑 
+
+原来mint转生到2434了啊。当时看他毕业我就知道肯定是跳槽去大公司了……
+声线和前世稍微有点不一样，但是说话方式、笑声以及那一口塑料日语和前世高度一致，可以确定是同一个人
+---
+syl 月灵终于想起了他在b站有个号
+
+
+-----
+
+####  winda  
+##### 875#       发表于 2021-5-16 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51273504&amp;ptid=1972669" target="_blank">ShuTk4O 发表于 2021-5-16 23:13</a>
+原来mint转生到2434了啊。当时看他毕业我就知道肯定是跳槽去大公司了……
+声线和前世稍微有点不一样，但是 ...</blockquote>
+你说的mint是指Mint Fantôme么?<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ShuTk4O  
+##### 876#       发表于 2021-5-16 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51273840&amp;ptid=1972669" target="_blank">winda 发表于 2021-5-16 23:47</a>
+你说的mint是指Mint Fantôme么?</blockquote>
+是的
+
+
+-----
+
+####  死体残留  
+##### 877#       发表于 2021-5-16 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">下巴现在是新时代的king么
+
+
+-----
+
+####  winda  
+##### 878#       发表于 2021-5-17 00:48
+
+
+顺便看了下疑似的流星ノヴァ和elira<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">声线上有点微妙的不一样
+
+
+                    
