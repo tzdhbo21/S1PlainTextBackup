@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-16 01:52** 
+> ## **本文件最后更新于2021-05-16 08:46** 
 
 
 
@@ -14625,4 +14625,354 @@ VV这个名字来源于飞机失事的小女孩。按理来说应该没有几个
 这集大晚上看着怪恐怖的
 
 
-            
+-----
+
+####  爱吃冻鳗的猫  
+##### 1117#       发表于 2021-5-16 09:59
+
+
+未麻的房间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flypig_zhy  
+##### 1118#       发表于 2021-5-16 10:07
+
+
+哎呦喂，居然是大叔卖萌，那为什么会坠楼？
+
+
+还有加速也太快了吧，61年而已吧就超过一百年了
+
+
+-----
+
+####  flypig_zhy  
+##### 1119#       发表于 2021-5-16 10:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51264843&amp;ptid=1982987" target="_blank">yangun22 发表于 2021-5-16 00:39</a>
+
+原本安东尼身体仔细看下还带调音台之类设备的，所以这个整天摔跤是因为身体不适应的关系么 ...</blockquote>
+盲点get
+
+
+-----
+
+####  HGCG2  
+##### 1120#       发表于 2021-5-16 10:12
+
+
+我猜当初停止工作的不是安东尼奥而是奥菲莉亚，奥菲利亚早就绝望自杀了，删除了自己的程序
+
+但是安东尼奥为了替她实现梦想而把自己安装进了奥菲莉亚的躯体里，长年来都在假扮奥菲莉亚
+
+现在可能是对他认为不懂音乐的人类绝望了所以选择用自毁的方式来报复社会
+
+
+-----
+
+####  LeonsCat  
+##### 1121#       发表于 2021-5-16 10:36
+
+
+还有个假药，就是松本是第二批穿越回来的，第一批穿越回来的建立了反AI组织。
+
+
+-----
+
+####  flypig_zhy  
+##### 1122#       发表于 2021-5-16 10:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266655&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-16 10:36</a>
+
+还有个假药，就是松本是第二批穿越回来的，第一批穿越回来的建立了反AI组织。 ...</blockquote>
+有个美剧也是这样演的，不过反过来，改变历史后出现了分裂派系穿越历史，结果最后救世计划失败全部更迭
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 1123#       发表于 2021-5-16 10:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266450&amp;ptid=1982987" target="_blank">HGCG2 发表于 2021-5-16 10:12</a>
+我猜当初停止工作的不是安东尼奥而是奥菲莉亚，奥菲利亚早就绝望自杀了，删除了自己的程序
+
+但是安东尼奥为 ...</blockquote>
+从语气上看感觉更像被夺舍了，老子自己上，你滚。
+
+—— 来自 Xiaomi M2010J19SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  aptx8285144  
+##### 1124#       发表于 2021-5-16 10:59
+
+
+这话怎么变得这么复杂了，还分双线<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，好像下一话很多人熟悉的母猩猩要回来了？
+
+
+-----
+
+####  aptx8285144  
+##### 1125#       发表于 2021-5-16 11:10
+
+
+ed后那段是某人走上kb道路的动机吗，话说松本这几话和薇薇这么有cp相，我反而放心了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，kb大叔没机会了（
+
+
+-----
+
+####  flypig_zhy  
+##### 1126#       发表于 2021-5-16 11:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266826&amp;ptid=1982987" target="_blank">aptx8285144 发表于 2021-5-16 10:59</a>
+
+这话怎么变得这么复杂了，还分双线，好像下一话很多人熟悉的母猩猩要回来了？ ...</blockquote>
+母猩猩回来好啊
+
+
+-----
+
+####  雪风utopia  
+##### 1127#       发表于 2021-5-16 11:21
+
+
+没想到竟然是安东尼奥<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 1128#       发表于 2021-5-16 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266826&amp;ptid=1982987" target="_blank">aptx8285144 发表于 2021-5-16 10:59</a>
+
+这话怎么变得这么复杂了，还分双线，好像下一话很多人熟悉的母猩猩要回来了？ ...</blockquote>
+其实就是上一话和这一话，虽然相对来说进阶版Diva人格主导，但是母猩猩味道也不缺，刻在骨子里了。也就第一话开始还有点娇柔的感觉。
+
+
+-----
+
+####  梦诗歌雪  
+##### 1129#       发表于 2021-5-16 11:32
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/113115nqolo5zomyi9o08v.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 08 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (82.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 11:31 上传
+
+
+艾斯黛拉那种纯人形的服务机器人要用手指按键盘也就算了，你个专门负责音响灯光的功能性机器人为什么还要用手指按自己身上的开关啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">太脱裤子放屁了吧
+
+
+-----
+
+####  梦诗歌雪  
+##### 1130#       发表于 2021-5-16 11:59
+
+
+这集vivy被敲松本急的在房间里疯狂打转那段笑死我了，这应该也是受到vivy的影响开始有感情了吧，虽然后面还是想起来计划比较重要
+
+
+-----
+
+####  枪聆弹语  
+##### 1131#       发表于 2021-5-16 12:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片假药是最没意思的，说不定下一集又直接空降一个人物出来一脸懵逼
+
+
+-----
+
+####  青菜子  
+##### 1132#       发表于 2021-5-16 12:47
+
+
+NICONICO 掏出 一个大雕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rynchee  
+##### 1133#       发表于 2021-5-16 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266002&amp;ptid=1982987" target="_blank">zakki 发表于 2021-5-16 09:02</a>
+这也算叙诡？只是单纯的没铺垫罢了，只是为了隐藏一集双胞胎有什么用叙诡误导的必要么 ...</blockquote>
+只能说这个诡叙比较低级，但毫无疑问就是在误导观众。而这就是本番的一个风格。
+
+
+-----
+
+####  dark_templar  
+##### 1134#       发表于 2021-5-16 13:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51267091&amp;ptid=1982987" target="_blank">梦诗歌雪 发表于 2021-5-16 11:32</a>
+
+艾斯黛拉那种纯人形的服务机器人要用手指按键盘也就算了，你个专门负责音响灯光的功能性机器人为什么还要用 ...</blockquote>
+俩机器人交流还要说话不也是脱裤子放屁么
+
+
+-----
+
+####  wilkyway  
+##### 1135#       发表于 2021-5-16 13:19
+
+
+直觉告诉我就这片讲故事的尿性十有八九米浴死因得和之前那工厂完蛋扯上关系再发一次刀。。
+
+
+-----
+
+####  pzk  
+##### 1136#       发表于 2021-5-16 13:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">第一反应是被惊到了，第二反应是：这片的设定不是说AI不能直接复制粘贴吗？为什么前面格蕾丝不能转移，安东尼奥却可以？？？
+
+
+-----
+
+####  pzk  
+##### 1137#       发表于 2021-5-16 13:37
+
+
+松本越来越像一个不知变通脑子缺根筋的人了，如果这确实是为了埋伏笔倒好，例如说姐妹系列机其实是更远的未来送过来的AI，所以性能比松本强之类的，
+
+就怕是松本没有“心”的设定……
+
+
+-----
+
+####  stuka1942  
+##### 1138#       发表于 2021-5-16 13:56
+
+
+夺舍是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 1139#       发表于 2021-5-16 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51267792&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-5-16 12:57</a>
+只能说这个诡叙比较低级，但毫无疑问就是在误导观众。而这就是本番的一个风格。 ...</blockquote>
+不过整个大框架下有叙诡的可能性倒是不低，不过目前不太看好长月和梅原能把反转和叙诡交代的很好
+
+
+-----
+
+####  HGCG2  
+##### 1140#       发表于 2021-5-16 14:07
+
+
+这还不懂吗
+
+松本爱上VIVY了啊
+
+
+
+
+-----
+
+####  flypig_zhy  
+##### 1141#       发表于 2021-5-16 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51268515&amp;ptid=1982987" target="_blank">HGCG2 发表于 2021-5-16 14:07</a>
+
+这还不懂吗
+
+松本爱上VIVY了啊</blockquote>
+然后插根数据线神交？
+
+
+-----
+
+####  最强惠酱  
+##### 1142#       发表于 2021-5-16 14:54
+
+
+所以观众对着大叔米裕发情了2个星期吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 1143#       发表于 2021-5-16 14:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51268723&amp;ptid=1982987" target="_blank">flypig_zhy 发表于 2021-5-16 14:26</a>
+
+然后插根数据线神交？</blockquote>
+松本：看样子要去桃佳的妹妹那里把熊偷回来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shadow001  
+##### 1144#       发表于 2021-5-16 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51268119&amp;ptid=1982987" target="_blank">pzk 发表于 2021-5-16 13:29</a>
+
+第一反应是被惊到了，第二反应是：这片的设定不是说AI不能直接复制粘贴吗？为什么前面格蕾丝不能转 ...</blockquote>
+格蕾絲是和整個島融在一起了,要轉移就要把整個島的數據都回收再把格蕾絲分離出來,但松本說不可能做到
+
+安東尼奧這種直接機轉機就和松本一樣
+
+
+-----
+
+####  HGCG2  
+##### 1145#       发表于 2021-5-16 15:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51268723&amp;ptid=1982987" target="_blank">flypig_zhy 发表于 2021-5-16 14:26</a>
+
+然后插根数据线神交？</blockquote>
+快进到
+
+最终话松本停止运行，被VIVY一个吻唤醒
+
+然后松本打开自己的方块盒，里面冒出来了一个小VIVY
+
+
+-----
+
+####  406  
+##### 1146#       发表于 2021-5-16 16:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266002&amp;ptid=1982987" target="_blank">zakki 发表于 2021-5-16 09:02</a>
+
+这也算叙诡？只是单纯的没铺垫罢了，只是为了隐藏一集双胞胎有什么用叙诡误导的必要么 ...</blockquote>
+不过手环的不同，声优的不同第三集就有了
+
+
+-----
+
+####  owada  
+##### 1147#       发表于 2021-5-16 16:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是啥展开????
+
+
+           
