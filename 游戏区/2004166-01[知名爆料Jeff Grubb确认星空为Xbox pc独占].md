@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 09:05** 
+> ## **本文件最后更新于2021-05-17 19:19** 
 
 
 
@@ -1439,10 +1439,11 @@ xss德亚包邮也才2300块
 评分
 
 
- 参与人数 2战斗力 -2
+ 参与人数 3战斗力 -3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Hanzong|-1||
 | Dr.bright|-1|S1皮草帝|
 | 樱井初雪|-1|梦回ps3吧？|
 
@@ -1736,10 +1737,11 @@ XSX/XSS便宜有毛用，我PC性能强</blockquote>
 评分
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 0
 
 |昵称|战斗力|理由|
 |----|---|---|
+| allenz2|-1|zz|
 | zris| + 1|瞎说啥实话|
 
 
@@ -1953,6 +1955,8 @@ xgpu主机版能玩的游戏还是比xgp for pc多很多的
 ##### 152#       发表于 2021-5-17 16:49
 
 
+ 本帖最后由 SICP 于 2021-5-17 20:37 编辑 
+
 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">泥潭都是这么集火的么？
 
 
@@ -1961,9 +1965,7 @@ xgpu主机版能玩的游戏还是比xgp for pc多很多的
 2. 一直说别人买不起的，我认为贴流水贴收入能够表明买得起
 
 
-那我贴我的一个微众银行的存款证明吧：
-<img src="https://wx4.sinaimg.cn/large/71c0e961ly1gqliszfzdnj20u018d78q.jpg" referrerpolicy="no-referrer">
-<img src="https://wx4.sinaimg.cn/large/71c0e961ly1gqliszfzdnj20u018d78q.jpg" referrerpolicy="no-referrer">
+&lt;del&gt;那我贴我的一个微众银行的存款证明吧：&lt;/del&gt;  删了
 
 
 -----
@@ -2010,4 +2012,354 @@ xgpu主机版能玩的游戏还是比xgp for pc多很多的
 部分索粉脑子有病果不其然
 
 
-                                            
+-----
+
+####  litely  
+##### 157#       发表于 2021-5-17 17:47
+
+
+楼上某位老哥真的是很好玩，自己愣是要对号入座乐死我了
+
+
+-----
+
+####  Lygljj  
+##### 158#       发表于 2021-5-17 18:33
+
+
+微软xgp那点订阅收入支撑的了也就多个3A大作的开发吗？
+
+这服务大概率要GG
+
+
+-----
+
+####  clover293  
+##### 159#       发表于 2021-5-17 18:35
+
+
+看era说是明年春，感觉是为了亲儿子光环无限。话说微软要不让光环无限再做做得了，星空放到今年吧
+
+
+-----
+
+####  精钢魔像  
+##### 160#       发表于 2021-5-17 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51282773&amp;ptid=2004166" target="_blank">Lygljj 发表于 2021-5-17 18:33</a>
+
+微软xgp那点订阅收入支撑的了也就多个3A大作的开发吗？
+
+这服务大概率要GG</blockquote>
+微软的算盘大概是用xgp 推azure 云服务
+
+xgp 单机肯定是亏钱的
+
+
+-----
+
+####  BK10  
+##### 161#         楼主| 发表于 2021-5-17 19:06
+
+
+<blockquote>Lygljj 发表于 2021-5-17 18:33
+微软xgp那点订阅收入支撑的了也就多个3A大作的开发吗？
+
+这服务大概率要GG</blockquote>
+xgp做大了就能赚钱，微软本身来说这种都是小钱，Xbox主机一直亏钱，不也到现在做了20年了，人微软一个季度赚的钱是一个半杯赛，玩家没必要关心这个
+
+
+-----
+
+####  aurraro  
+##### 162#       发表于 2021-5-17 19:21
+
+
+现在买主机还有不是为了独占的？我玩PC不好吗？b社不上PS平台我在电脑上玩啊。要不是血源一直不上PC，只好忍着掉帧买了PS4玩。
+
+
+-----
+
+####  苍白の正义  
+##### 163#       发表于 2021-5-17 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51283388&amp;ptid=2004166" target="_blank">aurraro 发表于 2021-5-17 19:21</a>
+
+现在买主机还有不是为了独占的？我玩PC不好吗？b社不上PS平台我在电脑上玩啊。要不是血源一直不上PC，只好 ...</blockquote>
+2021年了怎么还玩这种话术,能先去看看PS平台销售前10的作品有几个独占?
+
+主机的定位从来不是为玩独占,而是廉价的游戏设备.
+
+
+我发现部分索粉真的是什么有优势就吹什么.
+
+
+独占阵容有优势就无限吹玩主机就是为了玩独占,完全无视销量在前列的大都是跨平台作品.
+
+
+到PS5就剩个SSD参数占优就开始围绕SSD无限拔高SSD的地位,部分游戏XSX多了几秒加载就仿佛等到了世界的尽头一样不可忍受.
+
+
+只有PS5的SSD才可以完整运行虚幻5demo此类的谣言就更不用说了.
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| zris| + 1|喜欢说实话的老哥|
+
+
+查看全部评分
+
+
+-----
+
+####  qratosone  
+##### 164#       发表于 2021-5-17 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51283388&amp;ptid=2004166" target="_blank">aurraro 发表于 2021-5-17 19:21</a>
+现在买主机还有不是为了独占的？我玩PC不好吗？b社不上PS平台我在电脑上玩啊。要不是血源一直不上PC，只好 ...</blockquote>
+先不管1660能跑多高画质的问题，1202年了，麻烦先数数PS平台现在还剩下几个真独占再说吧
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  qratosone  
+##### 165#       发表于 2021-5-17 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51282773&amp;ptid=2004166" target="_blank">Lygljj 发表于 2021-5-17 18:33</a>
+微软xgp那点订阅收入支撑的了也就多个3A大作的开发吗？
+
+这服务大概率要GG</blockquote>
+从收购B社开始就不是钱的问题了
+
+—— 来自 HUAWEI EBG-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  aurraro  
+##### 166#       发表于 2021-5-17 20:58
+
+
+ 本帖最后由 aurraro 于 2021-5-17 21:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51284071&amp;ptid=2004166" target="_blank">苍白の正义 发表于 2021-5-17 20:12</a>
+
+2021年了怎么还玩这种话术,能先去看看PS平台销售前10的作品有几个独占?
+
+主机的定位从来不是为玩独占,而是 ...</blockquote>
+你是穷逼还是怎的？我就奇怪了。索饭？你批的？除了为那几个在电脑上玩不到的，我会去买PS，这只是我的个人想法，你不能在PC上爽玩只能在PS上玩大作关我什么事。对了，你需要我把配置发出来吗？也就一张3090。还是准备说我又是用高配置在**？现在谁不是全机种制霸啊，我买的PS4也就只买了独占游戏，战神，p5还有血源，还有一开始的仁王，结果在PS4上运行不尽如人意，仁王2我都是等PC出来才在steam上买的。
+
+
+IMG_20210517_213802.jpg
+(509.48 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-17 21:40 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/214042lr1wj0wzj2n20kkr.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  4869Bi  
+##### 167#       发表于 2021-5-17 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51283388&amp;ptid=2004166" target="_blank">aurraro 发表于 2021-5-17 19:21</a>
+现在买主机还有不是为了独占的？我玩PC不好吗？b社不上PS平台我在电脑上玩啊。要不是血源一直不上PC，只好 ...</blockquote>
+第一句，你代表所有主机玩家？
+
+
+-----
+
+####  Moritaka  
+##### 168#       发表于 2021-5-17 21:28
+
+
+只能说有些人的发言让我梦回2014年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aurraro  
+##### 169#       发表于 2021-5-17 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51284809&amp;ptid=2004166" target="_blank">4869Bi 发表于 2021-5-17 21:23</a>
+
+第一句，你代表所有主机玩家？</blockquote>
+你没长眼睛看后面我说的“我”？你定义的我代表了所有玩家？
+
+
+-----
+
+####  ckming  
+##### 170#       发表于 2021-5-17 21:42
+
+
+xsx大战ps5扯pc没意思啊，很多人pc平台就是个办公本，然后买个主机玩游戏的。限定到已经有高配pc的人，那确实没必要买xsx
+
+
+-----
+
+####  4869Bi  
+##### 171#       发表于 2021-5-17 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51284918&amp;ptid=2004166" target="_blank">aurraro 发表于 2021-5-17 21:31</a>
+你没长眼睛看后面我说的“我”？你定义的我代表了所有玩家？</blockquote>
+“现在买主机还有不是为了独占的？”读一下你自己写的句子，去问一下你语文老师这句话的作用范围<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  -SLSL-  
+##### 172#       发表于 2021-5-17 21:49
+
+
+这贴是怎么能变成这个走向的<img src="https://static.saraba1st.com/image/smiley/face2017/110.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ckming  
+##### 173#       发表于 2021-5-17 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51284511&amp;ptid=2004166" target="_blank">aurraro 发表于 2021-5-17 13:58</a>
+
+你是穷逼还是怎的？我就奇怪了。索饭？你批的？除了为那几个在电脑上玩不到的，我会去买PS，这只是我的个 ...</blockquote>
+"现在买主机还有不是为了独占的？"."现在谁不是全机种制霸啊"
+
+
+不好意思，多的是人就买一个主机玩游戏的，玩什么就取决于平台有什么
+
+
+-----
+
+####  D-JoeII  
+##### 174#       发表于 2021-5-17 22:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51282805&amp;ptid=2004166" target="_blank">clover293 发表于 2021-5-17 18:35</a>
+
+看era说是明年春，感觉是为了亲儿子光环无限。话说微软要不让光环无限再做做得了，星空放到今年吧 ...</blockquote>
+是為了湊2022年2月22號星期二吧
+
+老滾5是2011年11月11日
+
+
+-----
+
+####  Stellar_Frost  
+##### 175#       发表于 2021-5-17 22:35
+
+
+ 本帖最后由 Stellar_Frost 于 2021-5-17 22:36 编辑 
+
+我一直更偏好软系，但是现在高端PC游玩体验上就是完全高位版XSX啊...
+
+主要得再结合另一个（其实久为人知的）hint去考虑，前几天Epic v. Apple的法庭上又一次公开了X盒硬件从来就没赚过钱的事实，那充分利用自己Windows的事实垄断地位来展开产品战略，对微软来讲也是很自然的了。
+
+这件事最让人眼前一亮的是，长期山头林立的微软似乎真的为了同一个游戏战略目标在内部串联
+
+
+-----
+
+####  苍白の正义  
+##### 176#       发表于 2021-5-17 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51284511&amp;ptid=2004166" target="_blank">aurraro 发表于 2021-5-17 20:58</a>
+
+你是穷逼还是怎的？我就奇怪了。索饭？你批的？除了为那几个在电脑上玩不到的，我会去买PS，这只是我的个 ...</blockquote>
+笑了,被我用事实打脸就开始转进人身攻击了,你就这素质?
+
+
+你自己前面说的啥就忘记了?来,给你加深下记忆:"现在买主机还有不是为了独占的？"
+
+
+你潜台词不就是买主机的都是为了玩独占,你举你自己的例子有屁用,你能代表所有主机玩家?
+
+
+为了索尼的独占买PS的当然自有人在,只不过更多更多的人买主机只是为了玩多平台的游戏.
+
+
+都喊你去看PS4整个生涯的游戏销售排行榜前10都是啥游戏,事实面前你打滚也没用啊.
+
+
+-----
+
+####  哈罗  
+##### 177#       发表于 2021-5-17 22:55
+
+
+在泥潭说不得索尼好话，一说就是索索，就是吹，不管你是不是全平台玩家
+
+
+-----
+
+####  peh  
+##### 178#       发表于 2021-5-18 00:03
+
+
+来晚了，所以这位sicp大佬银行存款到底有几位数？
+
+
+-----
+
+####  2659646573  
+##### 179#       发表于 2021-5-18 00:56
+
+
+说真的，现在显卡虽然贵，但是我觉得泥潭的用户还是能随便买的，家里有矿的先不说，光一线城市码农，泥潭都一大堆，月入一狗太正常了，花一个月工资买个显卡有什么不能接受的。。。
+
+
+-----
+
+####  BensonDarr  
+##### 180#       发表于 2021-5-18 01:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51284511&amp;ptid=2004166" target="_blank">aurraro 发表于 2021-5-17 20:58</a>
+你是穷逼还是怎的？我就奇怪了。索饭？你批的？除了为那几个在电脑上玩不到的，我会去买PS，这只是我的个 ...</blockquote>
+显示器艺卓什么型号的？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  aurraro  
+##### 181#       发表于 2021-5-18 02:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51287416&amp;ptid=2004166" target="_blank">BensonDarr 发表于 2021-5-18 01:40</a>
+
+显示器艺卓什么型号的？
+
+
+—— 来自 S1Fun</blockquote>
+CG2730
+
+
+                                           
