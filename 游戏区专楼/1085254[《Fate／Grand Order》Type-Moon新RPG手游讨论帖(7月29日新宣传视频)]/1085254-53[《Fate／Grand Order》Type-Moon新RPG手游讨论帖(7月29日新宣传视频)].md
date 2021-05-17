@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-11 13:43** 
+> ## **本文件最后更新于2021-05-17 09:44** 
 
 
 
@@ -8457,4 +8457,390 @@ fgo活动早就变成，氪金加成是傻逼的模式了，金银铜最后永�
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还能强化！
 
 
-                         
+-----
+
+####  UNISONIA  
+##### 78724#       发表于 2021-5-12 00:27
+
+
+ 本帖最后由 UNISONIA 于 2021-5-12 00:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51214998&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-5-11 18:42</a>
+
+你搁这儿说啥呢，五周年访问没有，年底时候的周年访谈未公开内容只是说第二部决定给npc也加立绘，所以提 ...</blockquote>
+……提前做好十二机神设计是7月的公开内容就提了，因为早先是I-IV做的阿尔忒弥斯设计，所以第二部正式打算做的时候拜托他画了十二神的草案，此时才决定设定成机械形态的BOSS外观。
+
+12月补的内容提的是对草案细化的是DW，但是这个是奈须口误，从当时BB Studio放的内容看这部分应该是他们在负责，竹之内相关的内容里也提到了有一部分机械设定工作。做了细化的应该是只有登场的那五个，虽然某些地方的线索看起来可能【曾经】是六个。
+
+钦定是因为Azusa的回复和wada的memo附记的说法看着都不像会实装的样子，德墨忒耳的画师甚至没出来认领（虽然大概就是okojo）
+
+
+爬塔手办的羁绊6不就是让人对阿芙洛迪忒实装断念吗（同一视，狗一般设定同一视就不太会实装别的形态了），何况这个活动里的可能还不是真正的【阿芙洛迪忒】。顺带这次阿芙洛迪忒虽然加了表情，但是依然不到那些确实会实装的一些“前卫星角色”的数量
+
+何况画师是wada很大程度上可能是在暗示Mother Harlot……
+
+
+-----
+
+####  khxooo  
+##### 78725#       发表于 2021-5-12 16:08
+
+
+又来圣杯战线？
+
+
+-----
+
+####  khxooo  
+##### 78726#       发表于 2021-5-12 17:02
+
+
+尼玛白枪技能本不是宝具本
+
+
+-----
+
+####  rooarr  
+##### 78727#       发表于 2021-5-12 17:05
+
+
+这种活动好无聊啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  areklose  
+##### 78728#       发表于 2021-5-12 17:09
+
+
+<blockquote>rooarr 发表于 2021-5-12 17:05
+这种活动好无聊啊
+
+
+—— 来自 S1Fun</blockquote>
+这是yls新出的拖时间副本，讲真不出这个也不会出啥像样的活动
+
+
+-----
+
+####  quanlix  
+##### 78729#       发表于 2021-5-12 17:47
+
+
+起码能拿个杯子，不是挺好
+
+
+-----
+
+####  muderx  
+##### 78730#       发表于 2021-5-12 17:58
+
+
+白枪呆的模型改了，问题最大的卡面没改，好难受
+
+
+-----
+
+####  v22325  
+##### 78731#       发表于 2021-5-12 18:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还战线啊 我这次不打了
+
+
+-----
+
+####  xiongxingyu  
+##### 78732#       发表于 2021-5-12 18:13
+
+
+看了下仓库，大猩猩还是4宝，机会难得就打算随手抽几个呼符，结果第一发下去就彩光枪呆<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Jamaisvu  
+##### 78733#       发表于 2021-5-12 18:30
+
+
+ 本帖最后由 Jamaisvu 于 2021-5-12 18:33 编辑 
+
+老兰的新模型看着不错，脱离原画了，挺帅气，留长发的话应该会有种FZ时期的惊艳感。
+
+不过这个新宝具动画们...也许是不想浪费之前的创意？不是正脸特写就是拉近特写，动作都没大变化，有点乏味了...这次也就高文接住太阳抽出火剑比较有意思...
+
+
+-----
+
+####  黑上シグマ  
+##### 78734#       发表于 2021-5-12 18:32
+
+
+<blockquote>引用第78728楼quanlix于2021-05-12 17:47发表的  :
+
+起码能拿个杯子，不是挺好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">然而我仓库里还有27个杯子懒得用
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  UNISONIA  
+##### 78735#       发表于 2021-5-12 18:56
+
+
+白枪这个强化有点伤（虽然打那个小安技能本是更快了
+
+
+-----
+
+####  areklose  
+##### 78736#       发表于 2021-5-12 19:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51226946&amp;ptid=1085254" target="_blank">muderx 发表于 2021-5-12 17:58</a>
+
+白枪呆的模型改了，问题最大的卡面没改，好难受</blockquote>
+卡面不可能改，只能期待灵衣
+
+
+-----
+
+####  areklose  
+##### 78737#       发表于 2021-5-12 19:22
+
+
+白枪这宝具正面真不行。。。
+
+
+-----
+
+####  exiaexa  
+##### 78738#       发表于 2021-5-12 20:14
+
+
+ 本帖最后由 exiaexa 于 2021-5-12 21:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51218465&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-5-12 00:27</a>
+
+……提前做好十二机神设计是7月的公开内容就提了，因为早先是I-IV做的阿尔忒弥斯设计，所以第二部正式打算 ...</blockquote>
+你到底看没看动fami通的那个访谈……
+
+本身就是5周年的访谈，只是年底又放了段没公开内容，本身就是同期访谈，复读一遍你是想干啥
+
+然后最重要的，说了就是说了，没说就是没说
+
+在根本没有说有没有实装的情况下，你哪儿来的自信说肯定不实装的，大家不都是瞎jb奶吗
+
+更别说你这堆推测还不如贴吧玩梗奥运活动呢……
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 78739#       发表于 2021-5-12 20:14
+
+
+猩猩这波改模输麻了，就你一个整体没啥变化流石暴力劈砍大猩猩
+
+长江新红卡帅得雅痞，还加了根树枝太草
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+崔悲伤整体上修没啥缺点
+
+枪呆别关心正脸宝具了，放技能全程在ry，DW你只有在做小人的时候会用力是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UNISONIA  
+##### 78740#       发表于 2021-5-13 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51228113&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-5-12 20:14</a>
+
+你到底看没看动fami通的那个访谈……
+
+本身就是5周年的访谈，只是年底又放了段没公开内容，本身就是同期访 ...</blockquote>
+Azusa回复里一开始回任君想象，后面开始绕着弯子批量回复实装的角色只有凯妮斯了。玩家侧也只是推测，只是现在各路关系者的表态和游戏程序信息（整个2.5的list在19年10月就出了）看起来更倾向于不实装的可能性
+
+
+去年12月的严格来说不是没公开内容，而是五周年收录于杂志的是部分删节版，有些不太重要的细节和制作谈是删去了，Web公开是完全版。正好有删节的包括了机神制作这段，五周年只说了是I-IV做的以及部分设定细节，剩下的更详细的内容是年底才吐出来的
+
+
+顺带去年2.5的制作内幕和马场的消息是同个人爆料的，后者现在完全实锤了，前者也通过音乐（kate）和美术方面的证言锤了相当多的部分。反正当时马场那个也没人信，随便了
+
+
+-----
+
+####  exiaexa  
+##### 78741#       发表于 2021-5-13 01:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51230536&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-5-13 00:29</a>
+
+Azusa回复里一开始回任君想象，后面开始绕着弯子批量回复实装的角色只有凯妮斯了。玩家侧也只是推测，只 ...</blockquote>
+再重复一次
+
+整个访谈只说过机神的设计时间
+
+并没有说过希腊这批神“要不要实装”、“什么时候实装”、“这玩意儿设计出来是不是就只是拿来看的”
+
+更没有明确的说过“我们不会实装奥林匹斯神”
+
+
+任何人都有权利对着这堆信息进行形式的脑补
+
+但是你信誓旦旦的说不会实装的依据在哪儿？因为你觉得？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千叶铁矢  
+##### 78742#       发表于 2021-5-15 23:45
+
+
+终章剧场版正好是周年，这回该来了吧
+
+
+-----
+
+####  khxooo  
+##### 78743#       发表于 2021-5-16 00:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51264397&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-5-15 23:45</a>
+终章剧场版正好是周年，这回该来了吧</blockquote>
+对，盖总落地<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78744#       发表于 2021-5-16 00:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51264397&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-5-15 23:45</a>
+
+终章剧场版正好是周年，这回该来了吧</blockquote>
+gay提亚落地，of course
+
+
+-----
+
+####  清风朗月  
+##### 78745#       发表于 2021-5-16 09:20
+
+
+说到终章，几千万人是怎么忍受FGO前四章的垃圾剧情还坚持玩下来的这是个手游界未解之谜
+
+
+-----
+
+####  黑上シグマ  
+##### 78746#       发表于 2021-5-16 09:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266114&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-5-16 09:20</a>
+
+说到终章，几千万人是怎么忍受FGO前四章的垃圾剧情还坚持玩下来的这是个手游界未解之谜 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">多正常，当时的群众都是抱着“啊，手游嘛，都这种破剧情，咱打打活动舔舔卡呗”的心态在玩
+
+
+-----
+
+####  roxassix  
+##### 78747#       发表于 2021-5-16 09:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266114&amp;ptid=1085254" target="_blank">清风朗月 发表于 2021-5-16 09:20</a>
+说到终章，几千万人是怎么忍受FGO前四章的垃圾剧情还坚持玩下来的这是个手游界未解之谜 ...</blockquote>
+问就是月球人被蘑菇调教成人均抖m<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jackyhuang  
+##### 78748#       发表于 2021-5-16 09:53
+
+
+第一章第三章还算可以啊，还有刚开服的新鲜感加成
+
+赏月活动当时不是也一群人觉得很有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78749#       发表于 2021-5-16 10:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">主要是同期的都不怎么行。所以凑合着玩
+
+
+-----
+
+####  白金口袋  
+##### 78750#       发表于 2021-5-16 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51266548&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-15 20:23</a>
+
+主要是同期的都不怎么行。所以凑合着玩</blockquote>
+主要是同期都不怎么样+1
+
+就胜在一个出的早，后来手游界进入战国时代，不管啥作品都出个手游进来分蛋糕，剧情精彩立绘涩的一抓一大把，FGO不思进取，缺点自然暴露的越来越明显<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  exiaexa  
+##### 78751#       发表于 2021-5-17 17:01
+
+
+ 本帖最后由 exiaexa 于 2021-5-17 17:04 编辑 
+
+还真就是同行衬托，用现在还活着的几个二刺螈分类的游戏来说
+
+
+2015年
+
+扩散性MA刚刚关服，乖离还在如日中天
+
+碧蓝幻想好评最高的天蓝蓝系列连中规中矩的第一部都没整出来，天蓝蓝3连发分别是17、18、19年
+
+基本没剧情的舰R舰C怪物弹珠就更别说了，少女前线还在当舰Link，什么碧蓝航线啊明日方舟啊全都是新建文件夹
+
+
+就跟这堆比起来你就会发现1-4章那算什么问题，那时候的手游定位基本就是页游的便携版
+
+要知道当年河马打字机给MA当剧本都能是一个”值得拿出来吹“的卖点，哪怕MA最终把剧情弱化得一塌糊涂大家只记得肝了
+
+甚至都可以设想，假如樱花大战手游这种除了田中公平就是三无产品的东西，在当年指不定能活多久呢
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  都谷捻柏  
+##### 78752#       发表于 2021-5-17 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281606&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-5-17 17:01</a>
+
+还真就是同行衬托，用现在还活着的几个二刺螈分类的游戏来说
+
+
+2015年</blockquote>
+现在是废狗基本盘大，怎么作都死不了嘛
+
+
+                        
