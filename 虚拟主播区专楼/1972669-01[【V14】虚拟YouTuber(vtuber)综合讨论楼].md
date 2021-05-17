@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 08:48** 
+> ## **本文件最后更新于2021-05-17 13:53** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_kLp5T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_TLEoE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_aZK33" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_bHIl8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -12431,4 +12431,362 @@ syl https://b23.tv/BIqiFK
 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> manager部门似乎在管控着liver之间的联动许可，我个人也是从这段时间体感有趣的大联动、有趣的人员组合在迅速变少，变得乏味无聊，
 
 
-                  
+-----
+
+####  死体残留  
+##### 936#       发表于 2021-5-17 16:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">鱼人还没首播呢 
+
+
+-----
+
+####  hulaoda007  
+##### 937#       发表于 2021-5-17 16:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281360&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-5-17 16:41</a>
+
+manager部门似乎在管控着liver之间的联动许可，我个人也是从这段时间体感有趣的大联动、有趣的人员 ...</blockquote>
+  2020年初左右？体感是那时候。
+
+
+-----
+
+####  noHentai  
+##### 938#       发表于 2021-5-17 17:10
+
+
+扫了一眼两份新文档，没啥太值得说的，稍微总结一下变动点：
+
+
+1.2021.5时点正社员+契约社员155人，2021财年Q3对比上一季度员工数下降，Q4翻回最高点。还吹了一下田角开始大半年一个人在早稻田的公用办公室里一个人构思、敲代码做到现在上百人大house的鸡汤故事。
+
+2.对比去年8月公开的数据，女性员工比例从19%大幅提高到25.8%。员工平均年龄从27.5岁提高到29.4岁，但30岁以下员工比例同样从41.5%提高到45.8%。
+
+3.组织架构有一些变化，具体自行看PDF。空降了一个女执行董事兼IP市场营销部部长，以及技术部部长。
+
+4.算上东京复仇公演，整个zepp 5场有观众巡演达到了线下1万人动员。周年fes卖出了“数万枚线上票”。（值得一提的是去除东京复仇的话，2020年的4场公演线下约8000人动员，线上线下合计约7万动员，意味着场均也就卖出1万2千张线上票）
+
+5.自家厂牌“にじさんじレコード”是成立了一个子公司“Atelier colors株式会社”来运营的。查了一下是去年8月26日登记成立，从名字来看这次更名也是更早之前就有的想法。
+
+6.ID和VR接客目前看来稍稍站稳脚跟了。
+
+7.看起来合计播放量增长放缓的很厉害。
+
+8.进一步压榨员工，核心工作时间从去年8月公开的12:00-16:00延长到11:00-17:00，多了个加班点心补助。
+
+9.薪资水平和结构没有什么变化。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 4战斗力 +4
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|好评加鹅|
+| Map-2| + 1|好评加鹅|
+| hulaoda007| + 1|好评加鹅|
+| 空集| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  结晶の雨  
+##### 939#       发表于 2021-5-17 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51275207&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-5-17 10:12</a>
+
+从siren1开始看gatch桑，从茜様还嗷嗷待哺的时候一直看到现在都能和爹一起直播了。
+
+
+不过看gatch桑更多是 ...</blockquote>
+我个人比较喜欢对谈类的企划，所以通过gatch桑入V坑后经常看犬山天开ぽこピー这种企划屋，然后一路看过来就发现国内国外真是两个画风。比如去年天开的siren座谈会和犬山的大叔座谈会之类的，在国内各相关讨论版甚至连名字都不配拥有<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+理论上gatch桑这波V出道是带了不少实况圈观众进V圈的，而且实况圈观众男女比接近5:5，和V圈8:2一比是有很多潜在观众的。但这一年看下来做出反应的基本都是兎鞠和犬山这样的个人势，企业势反而束手束脚的，放在国内这个以企业势为主的讨论环境下更是很难有讨论度了。
+
+记得年初gatch桑和犬山的对谈里「看了半年我发现了，Vtuber有八成都在游戏实况，你们其实是游戏实况者吧！？不是和我一样吗？！」的发言，现在想想还真是如此<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 940#       发表于 2021-5-17 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51282403&amp;ptid=1972669" target="_blank">结晶の雨 发表于 2021-5-17 18:02</a>
+
+我个人比较喜欢对谈类的企划，所以通过gatch桑入V坑后经常看犬山天开ぽこピー这种企划屋，然后一路看过来 ...</blockquote>
+现在国内讨论环境很难说是企业势为主，比起这个重点应该是国内听不懂对谈会。
+
+
+-----
+
+####  HinataY  
+##### 941#       发表于 2021-5-17 18:09
+
+
+苔总的人脉是有点东西，这把明日香都请来了
+
+<img src="https://img.saraba1st.com/forum/202105/17/180550wguvqaw44dr2r3x3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E1iFz8BVEAAIBU7.jpg</strong> (221.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 18:05 上传
+
+
+-----
+
+####  poipanchao  
+##### 942#       发表于 2021-5-17 18:09
+
+
+人多的杂谈类联动
+人多口杂是一个方面，碰上discord状态不行更是地狱
+对很多楼友来说听起来都很累，别提对国内的主流管人观众了
+
+
+-----
+
+####  hulaoda007  
+##### 943#       发表于 2021-5-17 18:12
+
+
+  一直以来都觉得国内在对话，杂谈，控场等方面很一般...
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|确实，就算走台本也很差|
+
+
+查看全部评分
+
+
+-----
+
+####  结晶の雨  
+##### 944#       发表于 2021-5-17 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51282451&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-5-17 22:06</a>
+
+现在国内讨论环境很难说是企业势为主，比起这个重点应该是国内听不懂对谈会。 ...</blockquote>
+是这样的吗。我最近才入坑不是太熟，看外面基本都是企业势专楼就以为是这样了。
+
+语言壁垒这个只能说能理解又不太能理解，毕竟哪怕是同样的对谈企划，相关讨论度也差距挺大的
+
+
+-----
+
+####  IDIDIDID  
+##### 945#       发表于 2021-5-17 18:13
+
+
+30号是什么鬼东西，犬山你不要靠近我的推们啊啊啊啊啊啊啊啊啊啊啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 946#       发表于 2021-5-17 18:15
+
+
+日本人杂谈联动我也不爱听，一个是大部分都是走剧本，更重要的是不管走不走剧本小鬼子互相忖度的样子真的很恶心<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 947#       发表于 2021-5-17 18:34
+
+
+https://note.com/riku_tazumi/n/n61fd9773e11c
+
+小作文
+
+
+-----
+
+####  IDIDIDID  
+##### 948#       发表于 2021-5-17 18:38
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-17 18:40 编辑 
+<blockquote>その他にも「にじさんじやユメノグラフィアらしさ、及びエンタメ企業らしさが無い」、<strong>「日本語を習得していない方からの馴染みやすさが無い」</strong>等、事業を進めるにあたっても問題を感じるようになりました。
+
+そうして、社名を変更することを決めました。</blockquote>
+很好，你也和谷乡一样是个立派的日奸了
+
+
+SYL：岩永，谁啊？ <blockquote>私がまだひとりだった頃、この会社を「いちから」と名付けました。
+
+起業当初に検討していたサービス名が「i （個の）chikara （力）」であり、私はそのサービス名をそのまま会社名にしました。</blockquote>
+
+
+-----
+
+####  asdhai  
+##### 949#       发表于 2021-5-17 18:54
+
+
+苔总nb（震声）
+
+
+-----
+
+####  noHentai  
+##### 950#       发表于 2021-5-17 19:58
+
+
+唱歌一流的日V耐久8小时百曲还没拼上5万人气，背靠大箱的国V zqsg求着观众不要打钱。
+
+希望大家都有美好的未来。
+
+
+-----
+
+####  喜闻乐见  
+##### 951#       发表于 2021-5-17 20:04
+
+
+ 本帖最后由 喜闻乐见 于 2021-5-17 20:07 编辑 
+
+还剩十首了，不仅v区，动画那边多少也有些看24分钟内的整活多过讲故事了吧
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gqlog0mqfij20ea0flaap.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 952#       发表于 2021-5-17 20:12
+
+
+毕竟平均娱乐时间碎片化是趋势
+
+渐入佳境……也不用唱炉心溶解吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 953#       发表于 2021-5-17 21:10
+
+
+[https://live.bilibili.com/23105590](https://live.bilibili.com/23105590)
+
+恋乃夜舞，B站首播
+
+
+-----
+
+####  gogomw  
+##### 954#       发表于 2021-5-17 21:16
+
+
+Make Yhm Great Again<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+学中文?拉夫?Rsq?天道酬勤?打得过ZZ炒作吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tiro_finale  
+##### 955#       发表于 2021-5-17 21:20
+
+
+投共系V，能把4V破防就是极好的，至于本身播了什么反而不重要了
+
+
+-----
+
+####  gogomw  
+##### 956#       发表于 2021-5-17 21:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人也没投啊,又不是不播404或者主批站了
+
+
+-----
+
+####  katern  
+##### 957#       发表于 2021-5-17 21:27
+
+
+谁投了啊，我看是之前破防的4v投了吧，愿意打钱的还有一大票呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 958#       发表于 2021-5-17 21:32
+
+
+点进去看了一下感觉回到了2019年，how time fly
+
+
+-----
+
+####  ylssb10438  
+##### 959#       发表于 2021-5-17 21:34
+
+
+这就是v圈👍
+
+
+-----
+
+####  rzrbtk  
+##### 960#       发表于 2021-5-17 21:37
+
+
+鸟组商量麻将战术，说通话的时候可以打心理战让对手慌一下，郡：“那到时候我们就突然说‘不觉得anycolor这个名字很土吗’怎么样？”，什么人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  noHentai  
+##### 961#       发表于 2021-5-17 21:37
+
+
+<img src="https://p.sda1.dev/2/3e4180b3b19afea6bfb42132a8d29474/image.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|好评加鹅|
+| ylssb10438| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+                 
