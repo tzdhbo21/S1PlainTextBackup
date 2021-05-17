@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 05:01** 
+> ## **本文件最后更新于2021-05-17 08:48** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_VAydd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_wD7q6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_kLp5T" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_TLEoE" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -12029,7 +12029,7 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 ##### 905#       发表于 2021-5-17 12:30
 
 
- 本帖最后由 hulaoda007 于 2021-5-17 12:58 编辑 
+ 本帖最后由 hulaoda007 于 2021-5-17 13:03 编辑 
 
   以后只能称呼EnikaraStaff（社員）了吗...？不习惯。
 
@@ -12038,7 +12038,7 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   假面enicolor，参上！
 
-  顺便恭喜尤德里克和语部在跨越了两个公司，依然没有出道，没有直播。
+  顺便恭喜尤德里克和语部和真堂雷斗，在跨越了两个公司，依然没有出道，没有直播。没能复播。（重看雷斗桑的自我介绍视频，在想如果他平安出道了，现在粉丝和他的关系会是如何呢...？）
 
 
 -----
@@ -12116,4 +12116,319 @@ lgbtq不是都有么 就g好像没有特定的
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-                   
+-----
+
+####  Ketestrait  
+##### 911#       发表于 2021-5-17 13:08
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gqlce1x0zuj20yv0o60v4.jpg" referrerpolicy="no-referrer">
+
+
+ichikara毁灭的犯人找到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 912#       发表于 2021-5-17 13:42
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/134150b2n22b66jj965ath.png" referrerpolicy="no-referrer">
+
+
+<strong>EYTJ5D5BMPCI76M4E.png</strong> (183.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-17 13:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/134156s3rkerk6rne2341q.png" referrerpolicy="no-referrer">
+
+
+<strong>GNDE33KGV6IMQPMZV.png</strong> (151.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-17 13:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/134203f0hxxb3rjszjb7h3.png" referrerpolicy="no-referrer">
+
+
+<strong>JTTM8980XTJKSE9QCJ.png</strong> (57.8 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-17 13:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/134214ur8osm09rs5ok57n.png" referrerpolicy="no-referrer">
+
+
+<strong>4f7b5fdbe0197461.png</strong> (131.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-17 13:42 上传
+
+
+常例的人事大变动
+
+
+-----
+
+####  IDIDIDID  
+##### 913#       发表于 2021-5-17 13:46
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-17 13:49 编辑 
+
+anycolor是吧，あくあ色可不可以啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+SYL：
+
+没看懂。天天在招人结果1年过去了就加了3个员工？那就只有两种可能了：
+
+1. 确实招不到人
+
+2. 曾经发生过大批人离职。
+
+
+-----
+
+####  真飞鸟i  
+##### 914#       发表于 2021-5-17 13:51
+
+
+之前在哪看的消息不是说虹200+员工吗
+
+
+-----
+
+####  渡鸦骑士  
+##### 915#       发表于 2021-5-17 13:53
+
+，，
+
+
+ 本帖最后由 渡鸦骑士 于 2021-5-17 13:57 编辑 
+
+男女社员比例的巨大变化只能认为是2了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 916#       发表于 2021-5-17 14:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结果虹杏现在员工人数差不多啊，木口不能再拿人力资源不足当借口了！
+
+
+-----
+
+####  bluebaby  
+##### 917#       发表于 2021-5-17 14:02
+
+
+可能没算上的员工是外包和劳务派遣吧
+
+
+-----
+
+####  渡鸦骑士  
+##### 918#       发表于 2021-5-17 14:02
+
+
+该换掉一批废物了<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  烤冷面加蛋  
+##### 919#       发表于 2021-5-17 14:07
+
+
+虹发的招人公告基本都是アルバイト，视频剪辑工具人罢了
+
+
+-----
+
+####  OldGlory  
+##### 920#       发表于 2021-5-17 14:34
+
+
+仔细看了一下怎么海外事业部人数还降了啊？
+
+
+-----
+
+####  死体残留  
+##### 921#       发表于 2021-5-17 14:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">没有slee和in吧，岩永估计也带了一批手下走
+
+
+-----
+
+####  IDIDIDID  
+##### 922#       发表于 2021-5-17 14:51
+
+
+田角那个虚拟陪酒也不知道怎么样了，看了下价格半小时3K感觉还蛮赚的。
+
+
+-----
+
+####  poipanchao  
+##### 923#       发表于 2021-5-17 15:06
+
+
+听说运行的还可以
+说是体验暴杀管人
+有兴趣可以去试试呗
+
+
+-----
+
+####  free  
+##### 924#       发表于 2021-5-17 15:19
+
+
+烂货圆脸的生日限量签名周边半天都卖不完，还得赶快发推解释，是因为这次的存货比以往要多，真是笑嘻了。
+
+下次就别搞这种限量版了，要不然看着别人都是秒卖完，就圆脸的卖一个小时，太尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+生日还发表了自己作词的原创曲，这词写的跟小学生作文一样，要是我就不好意思拿出来<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  papapapadopoulo  
+##### 925#       发表于 2021-5-17 15:21
+
+
+改这个名真的对海外业务有啥帮助吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+老外不是挺习惯罗马音名字的吗
+
+
+-----
+
+####  死体残留  
+##### 926#       发表于 2021-5-17 15:23
+
+
+ 本帖最后由 死体残留 于 2021-5-17 15:28 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">陪酒那货一开始是vr环境后来开发了手机和浏览器模式，人员也招到快50个陪酒妹了
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">打折是3000 之前搞活动拉人能1500一次 平时是4400 之前b站有人写过专栏
+syl https://b23.tv/BIqiFK
+魔怔人上人认知厨应该会很喜欢这个服务
+
+
+-----
+
+####  真飞鸟i  
+##### 927#       发表于 2021-5-17 15:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看新官网的宣传占比，虚拟陪酒大概已经是半壁江山了。
+
+
+-----
+
+####  rzrbtk  
+##### 928#       发表于 2021-5-17 15:49
+
+
+看了郡道和力一的陪酒体验视频感觉还不错的，很有握偶像的感觉，郡道那边聊的时候妹子脸突然靠近，搞得我跟郡同时叫了起来，要是能自己去聊估计会挺开心的<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">，郡有个观众就几乎每天都去呃。
+
+不过还是得会挑，郡道在聊的时候妹子突然坦言道自己是menhera，郡道听罢发出了在玩恐怖游戏一样的声音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 929#       发表于 2021-5-17 15:56
+
+
+老师这已经是ptsd了
+
+
+-----
+
+####  hulaoda007  
+##### 930#       发表于 2021-5-17 16:14
+
+
+  一次陪酒和森中一张CD一个价钱...嗯...不懂日本市场价格。
+
+
+
+
+-----
+
+####  Suny08  
+##### 931#       发表于 2021-5-17 16:26
+
+
+你虹现在的这个利润估计和去年比都没怎么变，员工薪资怕是也是，跳槽的人应该不会少，是我我也往cover跳，毕竟cover利润这么好给的肯定高
+
+
+-----
+
+####  qq845629713  
+##### 932#       发表于 2021-5-17 16:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 反正看你虹3.0这个质量，和当初2.0巅峰对比，做live2D的核心人员应该跑路了不少，
+
+
+-----
+
+####  winda  
+##### 933#       发表于 2021-5-17 16:37
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/163628zga4wwc6l6e6rlcy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0517_163032.jpg</strong> (59.52 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-17 16:36 上传
+
+
+2020.4前后管理部门洗牌过吧，manager部门换了个高管，大换血差不多就这时候
+
+
+-----
+
+####  IDIDIDID  
+##### 934#       发表于 2021-5-17 16:39
+
+
+龙又爬回订阅第一了，首播之后一天就5W订阅其实很快了。
+
+
+-----
+
+####  qq845629713  
+##### 935#       发表于 2021-5-17 16:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> manager部门似乎在管控着liver之间的联动许可，我个人也是从这段时间体感有趣的大联动、有趣的人员组合在迅速变少，变得乏味无聊，
+
+
+                  

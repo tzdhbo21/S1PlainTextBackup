@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 08:22** 
+> ## **本文件最后更新于2021-05-17 09:05** 
 
 
 
@@ -1822,4 +1822,192 @@ xgpu主机版能玩的游戏还是比xgp for pc多很多的
   楼里几个天天不玩游戏玩论坛的憋太久终于找到机会强行带节奏了
 
 
-                                             
+-----
+
+####  qratosone  
+##### 144#       发表于 2021-5-17 16:35
+
+
+ 本帖最后由 qratosone 于 2021-5-17 16:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51271987&amp;ptid=2004166" target="_blank">SICP 发表于 2021-5-16 20:56</a>
+
+追着别人说别人买不起3090，这件事我是觉得很恶心，而且不止一贴，这贴里：“醒醒，建议你先掂量掂量你买 ...</blockquote>
+你直接贴配置单就完了，扯那么多只能说明你自己心虚。本来你们索索不打肿脸充胖子，拉上PC一起划胖吹真独占的话屁事没有，谢谢
+
+
+-----
+
+####  qratosone  
+##### 145#       发表于 2021-5-17 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51272074&amp;ptid=2004166" target="_blank">SICP 发表于 2021-5-16 21:05</a>
+
+打游戏不需要3090，也不需要新买有3090显卡的PC才能玩XSX跨过来的游戏
+
+
+我觉得恶心是泥潭我逛了这么多年 ...</blockquote>
+问题是打游戏需要显卡啊233333，而且你们索索不是口口声声说“PC体验更好”么？
+
+再一次强调一遍现在这年头4000块只买显卡只能买到1660
+
+
+-----
+
+####  otaku21126  
+##### 146#       发表于 2021-5-17 16:38
+
+
+事实证明，索索确实急了
+
+不光s1，鬼佬那里也一样
+索索确实认为索尼不应该有大制作独不占，主楼这爆料转载的还真不是废话
+
+
+-----
+
+####  qratosone  
+##### 147#       发表于 2021-5-17 16:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51273083&amp;ptid=2004166" target="_blank">SICP 发表于 2021-5-16 22:34</a>
+
+按照这样来说，我是因为77楼的发言被判断成索索咯？
+
+
+我的确是因为GoW4跨到了Windows商店，当时没买XOX， ...</blockquote>
+那你倒是贴配置单啊？而且你真对索索这么有信仰，那完全可以以后当B社游戏全都不存在，何苦这么打肿脸充胖子非要拉上PC站台呢？
+
+
+-----
+
+####  SICP  
+##### 148#       发表于 2021-5-17 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281315&amp;ptid=2004166" target="_blank">qratosone 发表于 2021-5-17 16:38</a>
+
+那你倒是贴配置单啊？而且你真对索索这么有信仰，那完全可以以后当B社游戏全都不存在，何苦这么打肿脸充 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">得了吧，我不需要自证吃了多少碗粉，黑名单你了
+
+
+-----
+
+####  qratosone  
+##### 149#       发表于 2021-5-17 16:42
+
+
+ 本帖最后由 qratosone 于 2021-5-17 16:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51275938&amp;ptid=2004166" target="_blank">空集 发表于 2021-5-17 09:06</a>
+
+要喷索索也不要讲的好像没3090就不能玩pc游戏了一样，不愿意纯为了比pc更高的体验买主机也是很正常 ...</blockquote>
+首先，人均高配PC的是索索，这个搞清楚。第二， 上时代主机基础配置确实太低，配个6000块的PC确实能得到吊打主机的体验，你吹一吹真独占也确实不是没有道理。而本世代主机本身的基础配置起码有3700+2080的水平，并且上市的时间跟矿潮时间几乎完全重合——现在4000块钱哪怕是只买显卡也只能买到1660，算上平台总价起码得七八千块，等于多花一倍的钱买到被XSX吊打的体验。
+
+
+如果真的对索索有这么深厚的信仰的话，真没必要这么打肿脸充胖子……
+
+
+-----
+
+####  qratosone  
+##### 150#       发表于 2021-5-17 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281338&amp;ptid=2004166" target="_blank">SICP 发表于 2021-5-17 16:39</a>
+
+得了吧，我不需要自证吃了多少碗粉，黑名单你了</blockquote>
+哈哈哈哈哈哈哈你刚刚不是还说贴收入单么2333333
+
+
+这么快就怂了233333
+
+
+
+
+-----
+
+####  dumplingpro  
+##### 151#       发表于 2021-5-17 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281338&amp;ptid=2004166" target="_blank">SICP 发表于 2021-5-17 16:39</a>
+
+得了吧，我不需要自证吃了多少碗粉，黑名单你了</blockquote>
+你不是才要别人爆隐私，并且不怕自证么？
+
+这变脸速度太快了吧。
+
+<img src="https://img.saraba1st.com/forum/202105/17/164452aztts0s7s1zbhb73.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210517164347.jpg</strong> (66.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 16:44 上传
+
+
+-----
+
+####  SICP  
+##### 152#       发表于 2021-5-17 16:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">泥潭都是这么集火的么？
+
+
+1. 说别人买不起3090，我能自证我能买得起
+
+2. 一直说别人买不起的，我认为贴流水贴收入能够表明买得起
+
+
+那我贴我的一个微众银行的存款证明吧：
+<img src="https://wx4.sinaimg.cn/large/71c0e961ly1gqliszfzdnj20u018d78q.jpg" referrerpolicy="no-referrer">
+<img src="https://wx4.sinaimg.cn/large/71c0e961ly1gqliszfzdnj20u018d78q.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SICP  
+##### 153#       发表于 2021-5-17 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281421&amp;ptid=2004166" target="_blank">dumplingpro 发表于 2021-5-17 16:45</a>
+
+你不是才要别人爆隐私，并且不怕自证么？
+
+这变脸速度太快了吧。</blockquote>
+我贴了我微众银行的存款了，这贴打住，只是现实生活中没见过这么跳的人而已
+
+
+-----
+
+####  qratosone  
+##### 154#       发表于 2021-5-17 16:52
+
+
+最后总结一遍——上时代你吹真独占姑且也算有道理，毕竟那时候6000块就能配个不错的游戏PC，跨平台游戏确实体验吊打上时代主机。然而1202年，本世代主机基础配置起码有3700+2080的水平，而矿潮时期4000块钱只能买到一块1660裸卡，不含平台。考虑到其他部件供货也不怎么样，总的平台价格下来起码七八千块，然后你多花了一倍的钱买到的是被XSX吊打的体验。要吊打本世代主机，你基本上得硬着头皮支付好几倍的溢价去买3070……
+
+
+那么索索真的信仰那么充足的话，又何苦非要打肿脸充胖子呢？直接当B社游戏不存在不就完事了么？
+
+
+-----
+
+####  升职加薪  
+##### 155#       发表于 2021-5-17 16:53
+
+
+我觉得索确实有不小损失，国内索粉任粉大多玩日系为主，但是索现在欧美市场极其重要，b社在欧美的影响力是很大的，如果只玩日系可能体会不到这点
+
+
+-----
+
+####  裼黌諡綤罽龘  
+##### 156#       发表于 2021-5-17 16:55
+
+
+部分索粉脑子有病果不其然
+
+
+                                            
