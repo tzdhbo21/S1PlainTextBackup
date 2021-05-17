@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-16 08:46** 
+> ## **本文件最后更新于2021-05-17 01:47** 
 
 
 
@@ -14975,4 +14975,354 @@ NICONICO 掏出 一个大雕<img src="https://static.saraba1st.com/image/smiley/
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是啥展开????
 
 
-           
+-----
+
+####  LinkerWeg  
+##### 1148#       发表于 2021-5-16 17:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这俩AI接口都不一样吧，兼容性怎么办
+
+
+-----
+
+####  skgaminger1988  
+##### 1149#       发表于 2021-5-16 17:35
+
+
+编剧nmd还卖不卖周边了 我像一个基佬<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  アルメリア  
+##### 1150#       发表于 2021-5-16 17:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以反AI组织的老哥也转生AI了？
+
+
+-----
+
+####  qw7608290  
+##### 1151#       发表于 2021-5-16 17:48
+
+
+怎么感觉大概率后面剧情会暴走啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，不看好后面剧情发展。
+
+
+-----
+
+####  zakki  
+##### 1152#       发表于 2021-5-16 18:24
+
+
+ 本帖最后由 zakki 于 2021-5-16 18:47 编辑 
+
+这动画这么复杂吗，青龙只呼内行<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/4c88f095268c68828cce6c490f80757e/IMG_CMP_171599267.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/6e32dea0af86c9adcaa74184e86fead3/1866EE25EE6E66DFF99DD4732B6D576B.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flypig_zhy  
+##### 1153#       发表于 2021-5-16 18:56
+
+
+<blockquote>zakki 发表于 2021-5-16 18:24
+这动画这么复杂吗，青龙只呼内行</blockquote>
+看不懂
+
+
+-----
+
+####  pzk  
+##### 1154#       发表于 2021-5-16 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51269074&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-5-16 15:03</a>
+
+格蕾絲是和整個島融在一起了,要轉移就要把整個島的數據都回收再把格蕾絲分離出來,但松本說不可能做到
+
+安 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不，重点是安东尼奥把自己换进米浴的体内的时候肯定把自己的信息（人格和记忆之类的东西）传递了出去，既然这种东西存在而且可以传递或者转移，甚至放进别的机器人体内也可以直接用，那为什么不能复制呢……？格蕾丝完全可以在进岛前做个备份。
+
+
+-----
+
+####  shadow001  
+##### 1155#       发表于 2021-5-16 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51271144&amp;ptid=1982987" target="_blank">pzk 发表于 2021-5-16 19:15</a>
+
+不，重点是安东尼奥把自己换进米浴的体内的时候肯定把自己的信息（人格和记忆之类的东西）传递了出 ...</blockquote>
+設定就是這樣,不要問只要看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gofbayrf  
+##### 1156#       发表于 2021-5-16 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51271144&amp;ptid=1982987" target="_blank">pzk 发表于 2021-5-16 19:15</a>
+不，重点是安东尼奥把自己换进米浴的体内的时候肯定把自己的信息（人格和记忆之类的东西）传递了出 ...</blockquote>
+可以理解為60年的ai已經超過了 100年的松本
+
+
+-----
+
+####  susan28  
+##### 1157#       发表于 2021-5-16 20:34
+
+
+卧槽 这就是夺舍？
+
+
+松本 急的打转 笑到我了   不会是喜欢上VV了吧？
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/203450nnxasnoxomo4w4jm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 08 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (143.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 20:34 上传
+
+
+-----
+
+####  绞刑架  
+##### 1158#       发表于 2021-5-16 21:16
+
+
+我猜到那个垃圾桶没死，猜到肯定不是烂俗殉情，还是被夺舍给惊了几秒
+
+
+-----
+
+####  人生败犬河大吉  
+##### 1159#       发表于 2021-5-16 21:38
+
+
+越看越觉得写剧本的知识储备跟不上他要写的故事。。。
+
+本子这群写剧本能不能少搞点噱头 多花点功夫打磨剧本啊 又他妈玩高开低走
+
+第一个故事观感最佳 之后依次下降 到第三个故事我已经看不下去了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| pzk| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  cat1230  
+##### 1160#       发表于 2021-5-16 21:45
+
+
+很满意了，最近几年原创番善终一路高歌猛进的没几部（最强当属佐贺第一季<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  a12885084  
+##### 1161#       发表于 2021-5-16 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51268119&amp;ptid=1982987" target="_blank">pzk 发表于 2021-5-16 13:29</a>
+
+第一反应是被惊到了，第二反应是：这片的设定不是说AI不能直接复制粘贴吗？为什么前面格蕾丝不能转 ...</blockquote>
+其实松本的穿越也是整体的转移
+
+还有松本从cube转移到小熊身上
+
+
+-----
+
+####  flypig_zhy  
+##### 1162#       发表于 2021-5-16 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51272492&amp;ptid=1982987" target="_blank">cat1230 发表于 2021-5-16 21:45</a>
+
+很满意了，最近几年原创番善终一路高歌猛进的没几部（最强当属佐贺第一季） ...</blockquote>
+佐贺第一季91011也是相当拉跨，9最后有个现场还好，1011就是鸡肋
+
+
+-----
+
+####  a12885084  
+##### 1163#       发表于 2021-5-16 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51270778&amp;ptid=1982987" target="_blank">zakki 发表于 2021-5-16 18:24</a>
+
+这动画这么复杂吗，青龙只呼内行</blockquote>
+这不就两条，一条正史一条现在的历史么，基本每话开头不都放这个么
+
+他标的那个2节3节4节还有黄箭头是啥意思
+
+
+-----
+
+####  nh_zzz  
+##### 1164#       发表于 2021-5-16 22:20
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/221710jziy4t69afdowtzy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (13.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 22:17 上传
+
+
+大家有没有觉得这个琴键很眼熟呢，所以老哥为什么知道她叫vivy,6话结束也只是问为什么diva在这里
+
+
+-----
+
+####  米德  
+##### 1165#       发表于 2021-5-16 22:21
+
+
+应该是小哥也是穿越回来的 所以能力比松本还强<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 1166#       发表于 2021-5-17 02:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51268119&amp;ptid=1982987" target="_blank">pzk 发表于 2021-5-16 13:29</a>
+
+第一反应是被惊到了，第二反应是：这片的设定不是说AI不能直接复制粘贴吗？为什么前面格蕾丝不能转 ...</blockquote>
+两个解释，看下一话怎么选了。
+
+一个是自称Antonio的，其实是Ophelia在Antonio失能后分裂出来的人格，这个也是我倾向的。
+
+一个是，可以复制基本的东西，但是情感模式的细节无法完美复制，特别是对姐妹机这种怎么看怎么不是故事开始时候就有的技术反而像是蓝胖子的超级AI，也因此Antonio in Ophelia可以唱出彩排的水准，但是正式Live上无法更进一步。
+
+
+-----
+
+####  selain.meneth  
+##### 1167#       发表于 2021-5-17 06:35
+
+
+ 本帖最后由 selain.meneth 于 2021-5-17 09:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51265098&amp;ptid=1982987" target="_blank">yangun22 发表于 2021-5-16 01:21</a>
+
+前面一集不是就有提过之前和搭档AI一起去了很多地方么，这种重要活动却不出现的搭档肯定是出了什么事情 ...</blockquote>
+我本来以为是和薇薇的搭档一样没有实体呢……
+
+话说软萌美少女里面其实是个暴躁老哥，过于微妙。
+
+
+-----
+
+####  selain.meneth  
+##### 1168#       发表于 2021-5-17 06:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51265396&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-5-16 03:04</a>
+
+【1】松本和VIVY这么疯狂加速导致AI水平比松本强勉强可以接受，就假装这几十年里松本没有自我迭代升级吧。
+
+ ...</blockquote>
+录音师都喜欢追求“模拟味”，所以必须是手动的模拟调音台吧，一百年后玄学还有市场（笑）
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| ipcjs| + 1|思路广|
+
+
+查看全部评分
+
+
+-----
+
+####  zakki  
+##### 1169#       发表于 2021-5-17 07:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51272656&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-5-16 21:57</a>
+这不就两条，一条正史一条现在的历史么，基本每话开头不都放这个么
+
+他标的那个2节3节4节还有黄箭头是啥意 ...</blockquote>
+我也看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  a12885084  
+##### 1170#       发表于 2021-5-17 07:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51275241&amp;ptid=1982987" target="_blank">selain.meneth 发表于 2021-5-17 06:39</a>
+
+录音师都喜欢追求“模拟味”，所以必须是手动的模拟调音台吧，一百年后玄学还有市场（笑） ...</blockquote>
+冲你这个解释我能给这个机设加分了哈哈哈哈哈
+
+
+
+
+-----
+
+####  jbjack1215  
+##### 1171#       发表于 2021-5-17 08:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51272656&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-5-16 21:57</a>
+这不就两条，一条正史一条现在的历史么，基本每话开头不都放这个么
+
+他标的那个2节3节4节还有黄箭头是啥意 ...</blockquote>
+听闻是，这些背景意味着时间穿越不只一次
+
+当然第一话松本穿越的时间点跟博士没对上已经是个伏笔
+如果不是编辑笔误，那这就是一百年的土拨鼠日，diva和松本为了拯救人类不断轮回
+
+
+-----
+
+####  flypig_zhy  
+##### 1172#       发表于 2021-5-17 09:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51274903&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-17 02:00</a>
+
+两个解释，看下一话怎么选了。
+
+一个是自称Antonio的，其实是Ophelia在Antonio失能后分裂出来的人格，这个 ...</blockquote>
+第一个好思路
+
+
+          
