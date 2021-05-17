@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 04:53** 
+> ## **本文件最后更新于2021-05-17 14:37** 
 
 
 
@@ -4335,4 +4335,323 @@ syl，下了，出门买鸡蛋
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要真520来那不成叔叔的任务了
 
 
-                                     
+-----
+
+####  A2014720  
+##### 15362#       发表于 2021-5-17 14:35
+
+
+去年来就是叔叔的任务啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15363#       发表于 2021-5-17 14:59
+
+
+说起来发现个很搞笑的事，我这一天首页看到两次他们组那个新投稿了。
+第一次看几千播放
+今早第二次刷到，还是四位数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+很神奇的是他们竟然终于k轴了乃至我不知道是自己写了个模板还是啥的，反正整了个星星特效
+只能说所谓彻底过气不需要批限那天应该很快就来了罢(小饼干)
+
+
+-----
+
+####  时间在我手中  
+##### 15364#       发表于 2021-5-17 14:59
+
+
+ 本帖最后由 时间在我手中 于 2021-5-17 15:01 编辑 
+
+风怒编辑，反正就挺感慨的，等这个月忙完我多半也快不摸aeg了，基本上我老师自己也说了这软件整特效上限就在那里了
+比较为难的大概是选曲，我昨天还以为happy end前几天那版不错，结果开头没几句漏词了
+最搞笑的是我去批站看mv，出演的女演员长的还挺甜，笑的挺好看。
+然后是个小三。
+
+
+-----
+
+####  雪风utopia  
+##### 15365#       发表于 2021-5-17 15:01
+
+
+小麻已经真的成为了除了天狗其他人都不看的人了，是不是该下海卖身讨生活了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 15366#       发表于 2021-5-17 15:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻乐意，说不定哪天就私发你银臀了
+
+
+-----
+
+####  时间在我手中  
+##### 15367#       发表于 2021-5-17 15:07
+
+
+啥时候彻底过气就好了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">摸鱼理由更多了
+
+
+-----
+
+####  Dualist彩  
+##### 15368#       发表于 2021-5-17 15:20
+
+
+可以透到小麻的进度+10%<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15369#       发表于 2021-5-17 15:24
+
+
+现在还不叫彻底过气了啊，看数据已经是凉穿了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+去年这会我天天盯几个曲线像个炒币的沙口<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">干活去了
+
+
+-----
+
+####  gongge666  
+##### 15370#       发表于 2021-5-17 15:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51280399&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-5-17 15:24</a>
+
+现在还不叫彻底过气了啊，看数据已经是凉穿了
+
+去年这会我天天盯几个曲线像个炒币的沙口，那 ...</blockquote>
+不也挺好的么，总不可能真看一辈子吧，按照她最初的说法她只打算直播3年的。按照她性格真要退圈了肯定不会搞隐退直播的，她从去年就开始慢慢降低同接降低直播时长。她静静地走了，就像她静静地来一样。
+
+
+-----
+
+####  时间在我手中  
+##### 15371#       发表于 2021-5-17 15:35
+
+
+ 本帖最后由 时间在我手中 于 2021-5-17 15:59 编辑 
+
+静静的来算得上吗
+不过当初倒是差点静静地消失了
+只能说有的东西就是命
+自己选的东西，不管如何都要咽下去的
+ syl 事业民我觉得某种意义上就不该出现就是了。
+
+
+-----
+
+####  Klience  
+##### 15372#       发表于 2021-5-17 17:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51280399&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-5-17 15:24</a>
+
+现在还不叫彻底过气了啊，看数据已经是凉穿了
+
+去年这会我天天盯几个曲线像个炒币的沙口，那 ...</blockquote>
+这人没打lol啊 就昨天打了 今天没动过
+
+
+-----
+
+####  A2014720  
+##### 15373#       发表于 2021-5-17 18:07
+
+
+我是说我很羡慕她生活啦，如果她活的真有表面那么舒服就好了
+
+事业民确实是逆天玩意儿，贝贝人也是<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 15374#       发表于 2021-5-17 18:12
+
+
+想做个“打完lol以后再死”的桌面给她<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  暴走的包子  
+##### 15375#       发表于 2021-5-17 18:27
+
+
+这么晚估计又是歌回了，另外苔苔26那场直播挺有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  时间在我手中  
+##### 15376#       发表于 2021-5-17 18:28
+
+
+说实话，认真来说五月其实这人播的还挺多的
+
+这个月是不是目前就那么两天没播，哈人
+
+
+-----
+
+####  Klience  
+##### 15377#       发表于 2021-5-17 18:57
+
+
+播的多不都是歌会 有啥意思 挂后台算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15378#       发表于 2021-5-17 18:58
+
+
+刚说完就开始打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15379#       发表于 2021-5-17 19:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">早点毕业，告别管人圈
+
+
+-----
+
+####  Day_One  
+##### 15380#       发表于 2021-5-17 19:04
+
+
+呀咩咯😭至少等我看完这个暑假再毕业
+
+
+-----
+
+####  往世雷书  
+##### 15381#       发表于 2021-5-17 19:37
+
+
+你们这说的好像水到渠成，她不毕业就对不起这气氛了一样
+
+
+-----
+
+####  雪风utopia  
+##### 15382#       发表于 2021-5-17 19:40
+
+
+不要把隔壁的气氛带过来了<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 15383#       发表于 2021-5-17 20:43
+
+
+20210517东京18点
+
+<img src="https://img.saraba1st.com/forum/202105/17/204331pke9llccv9uee4v4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>B6DE624D-601A-4AAE-9729-71C6A3CABCC2.jpeg</strong> (250.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 20:43 上传
+
+
+-----
+
+####  thisisaspider  
+##### 15384#       发表于 2021-5-17 20:58
+
+
+事业民该死 毕业民就不该死了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15385#       发表于 2021-5-17 21:19
+
+
+明明有事要做然后就跑去打lol？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15386#       发表于 2021-5-17 21:21
+
+
+事做完了打打游戏也很正常啊，一会还要上班呢
+
+
+-----
+
+####  时间在我手中  
+##### 15387#       发表于 2021-5-17 21:58
+
+
+tc民坦克民永不言败<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15388#       发表于 2021-5-17 22:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/014.png" referrerpolicy="no-referrer">别胜败了 听点真正的管人唱歌洗洗耳朵
+
+
+-----
+
+####  kenjjj  
+##### 15389#       发表于 2021-5-17 22:28
+
+
+咩宝你快把我带走吧😭😭😭
+
+
+-----
+
+####  Klience  
+##### 15390#       发表于 2021-5-17 22:31
+
+
+看了下隔壁 有那味了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  A2014720  
+##### 15391#       发表于 2021-5-17 22:32
+
+
+“哼”
+
+我是在玩什么gal吗
+
+
+                                    
