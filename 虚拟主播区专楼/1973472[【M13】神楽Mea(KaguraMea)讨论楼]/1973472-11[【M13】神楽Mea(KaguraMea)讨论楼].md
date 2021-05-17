@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-16 10:40** 
+> ## **本文件最后更新于2021-05-17 04:53** 
 
 
 
@@ -3986,6 +3986,21 @@ syl，下了，出门买鸡蛋
 我觉得我当初真的是**才会选这行
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 2|恭喜|
+
+
+查看全部评分
+
+
 -----
 
 ####  Sabishi_Jiku  
@@ -4016,4 +4031,308 @@ syl，下了，出门买鸡蛋
 人不能活在过去。 by 神乐mea
 
 
-                                      
+-----
+
+####  时间在我手中  
+##### 15335#       发表于 2021-5-16 20:00
+
+
+516对我来说远不如117创伤大是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 15336#       发表于 2021-5-16 21:29
+
+
+矮油，创伤还行。
+
+这么一讲我反而像天狗中狗了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15337#       发表于 2021-5-16 21:38
+
+
+也没那么夸张就是了，只是你要对比的话的确516对我来说杀伤力相对低很多是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15338#       发表于 2021-5-16 22:03
+
+
+[https://www.youtube.com/watch?v=x2cJRdXL_qs](https://www.youtube.com/watch?v=x2cJRdXL_qs)
+
+麻将打起来了（观众参与型
+
+
+-----
+
+####  Klience  
+##### 15339#       发表于 2021-5-16 22:04
+
+
+麻将没兴趣 看msi去了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 15340#       发表于 2021-5-16 22:30
+
+
+我怎么听着说什么gachi桑的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不会是那个gachi桑吧
+
+
+-----
+
+####  路人庚  
+##### 15341#       发表于 2021-5-16 22:37
+
+
+ 本帖最后由 路人庚 于 2021-5-16 22:41 编辑 
+
+说的是ガッチマン桑，跟240没啥关系
+
+
+那边也是直播过程中打电话过来的
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/224053gl1hyyry2o990roc.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (159.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 22:40 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1|好吧|
+
+
+查看全部评分
+
+
+-----
+
+####  ashero  
+##### 15342#       发表于 2021-5-16 22:40
+
+
+ 本帖最后由 ashero 于 2021-5-16 22:41 编辑 
+
+人是gatchman 只是日本人念起来就像gachiman而已<img src="https://p.sda1.dev/2/bf1029bbc11868eb273738ef7c0731fb/IMG_CMP_178170009.jpeg" referrerpolicy="no-referrer">
+你麻去年就回fo的但是没互动过 属于伊东那圈互动多的
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| weiweiEX| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  pei23333  
+##### 15343#       发表于 2021-5-16 22:47
+
+
+听黄兔子说才想起来，今年六月是她出道几周年来着？会有什么新活吗
+
+
+-----
+
+####  路人庚  
+##### 15344#       发表于 2021-5-16 23:04
+
+
+她这几天聊天时候说过“去收录”的话题，算算时间差不多就是周年庆的新曲子吧
+
+
+顺便一提今天tc说过这个夏天如果不是出去工作就绝对不会出门了，3D直播估计够呛（
+
+
+-----
+
+####  汇聚群光  
+##### 15345#       发表于 2021-5-16 23:07
+
+
+黄兔子也是2018年6月出道的（比Mea早出道20天），所以今年六月是两个人的三周年
+
+
+-----
+
+####  makourisu-2  
+##### 15346#       发表于 2021-5-16 23:09
+
+
+哪还有什么新活<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">这女人现在直播已经是打卡日常式的活动了。
+随性tc聊天，油管开开歌会，月末来b站LOL、唱歌以及麻将完成任务。已经完全姨化了，不过也确实没想到成为这种养老式的姨化<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15347#       发表于 2021-5-16 23:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那能咋办嘛，想象一下去年年初你在一个日增几千感染者的城市里能做些什么吧
+
+
+-----
+
+####  JY要塞  
+##### 15348#       发表于 2021-5-16 23:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">姨化那就早点肉体营业啊
+
+
+-----
+
+####  路人庚  
+##### 15349#       发表于 2021-5-16 23:43
+
+
+两个戏精<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15350#       发表于 2021-5-17 09:08
+
+
+新的一周，希望没太多联动，咩门<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+昨晚联动我连画面都没看）
+
+
+-----
+
+####  yywzjsw  
+##### 15351#       发表于 2021-5-17 09:56
+
+
+最近联动都没看，感觉到无聊，歌回也当bgm挂后台，这是倦怠期了嘛
+
+
+-----
+
+####  时间在我手中  
+##### 15352#       发表于 2021-5-17 10:32
+
+
+休息休息也不错，等我忙完这阵应该就有时间看ae了，五一开始一堆事彻底打乱计划只能说也算是某种意料之中了）
+
+
+-----
+
+####  yywzjsw  
+##### 15353#       发表于 2021-5-17 10:55
+
+
+确实，从五一忙到现在。<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 15354#       发表于 2021-5-17 11:11
+
+
+话说520会来b限吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15355#       发表于 2021-5-17 11:15
+
+
+我忙，别来
+
+
+-----
+
+####  kenjjj  
+##### 15356#       发表于 2021-5-17 11:26
+
+
+媚宅，别来
+
+
+-----
+
+####  雪风utopia  
+##### 15357#       发表于 2021-5-17 11:30
+
+
+就爱媚宅，就好这口<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15358#       发表于 2021-5-17 11:39
+
+
+不变成猫猫不许来，干脆批站凉了（）
+
+
+-----
+
+####  肥到终点  
+##### 15359#       发表于 2021-5-17 11:51
+
+
+健身环配信请<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Day_One  
+##### 15360#       发表于 2021-5-17 12:13
+
+
+媚宅好捏🤗
+
+
+
+
+-----
+
+####  笋狐  
+##### 15361#       发表于 2021-5-17 12:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要真520来那不成叔叔的任务了
+
+
+                                     

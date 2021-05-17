@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-16 17:34** 
+> ## **本文件最后更新于2021-05-17 05:01** 
 
 
 
@@ -11632,4 +11632,488 @@ syl 月灵终于想起了他在b站有个号
 顺便看了下疑似的流星ノヴァ和elira<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">声线上有点微妙的不一样
 
 
-                    
+-----
+
+####  OldGlory  
+##### 879#       发表于 2021-5-17 02:20
+
+
+美波七海-official
+
+05-15
+
+【通知】
+
+
+｢#VTuBandFest 🎸｣
+
+设想预告PV公開🎬
+
+
+生演奏×小说✨
+
+新感覚表演解禁⚠️
+
+
+视频⬇️
+[https://twitter.com/funtermate_l ... 21544324947968?s=21](https://twitter.com/funtermate_lavo/status/1393521544324947968?s=21)
+
+
+朝ノ瑠璃 / アメノセイ / かしこまり / 紡音れい / 天神子兎音 / MaiR / 美波七海 / 柚子花 / 樋口楓（Guest）
+
+
+2021.6.5 at SPWN
+
+🔻音乐会门票🔻
+[https://spwn.jp/_events/210605-vtubandfest](https://spwn.jp/_events/210605-vtubandfest)
+
+<img src="https://img.saraba1st.com/forum/202105/17/022004nll5qj7qhiraqfia.jpg" referrerpolicy="no-referrer">
+
+
+<strong>banner.png_1280.jpg</strong> (217.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 02:20 上传
+
+
+人选还可以的
+
+
+-----
+
+####  free  
+##### 880#       发表于 2021-5-17 02:22
+
+
+gatchman今天一周年凸来的人，已经完全变成V圈的形状了
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/022207prw82ndaqm76ppnt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E1heOiuVEA0EA9d.jpg</strong> (202 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 02:22 上传
+
+
+-----
+
+####  结晶の雨  
+##### 881#       发表于 2021-5-17 04:38
+
+
+Top4本来也不太可能会来gatchmanV的一周年纪念，不如说要真出现了评论就炸了，今天有最俺的Hira和老损友Herunia已经算有实况圈的味道了。
+
+我是追着gatch桑最近才入的V坑，发现中文圈真是没什么讨论度，或者说个人势男性Vtuber本身就没几个人讨论，大家全都在看美少女，只有我每晚在油管看大叔和自称大叔的幼女<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI CC 9e, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.1
+
+
+-----
+
+####  kangkangsama  
+##### 882#       发表于 2021-5-17 06:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51275134&amp;ptid=1972669" target="_blank">结晶の雨 发表于 2021-5-17 04:38</a>
+
+Top4本来也不太可能会来gatchmanV的一周年纪念，不如说要真出现了评论就炸了，今天有最俺的Hira和老损友Her ...</blockquote>
+从siren1开始看gatch桑，从茜様还嗷嗷待哺的时候一直看到现在都能和爹一起直播了。
+
+
+不过看gatch桑更多是自己爽就挺好的，最多安利安利别人。
+
+不过レトルト以前国内也蛮有讨论量的，或者说好几个国内有名播free horror的都是走他的风格（不点名<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  ヒトニナル  
+##### 883#       发表于 2021-5-17 07:44
+
+
+ガッチャマン再套皮本质依然还是实况者，至于现在日本游戏实况这整个圈在国内的热度嘛…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大概是随着nico的衰退而一起下葬了罢
+
+
+-----
+
+####  Porsche  
+##### 884#       发表于 2021-5-17 08:07
+
+
+小夜半夜3点ゲリラ<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 885#       发表于 2021-5-17 11:05
+
+
+ 本帖最后由 SuntoryNomu 于 2021-5-17 11:07 编辑 
+
+ichikara，没了。
+[https://prtimes.jp/main/html/rd/p/000000264.000030865.html](https://prtimes.jp/main/html/rd/p/000000264.000030865.html)
+
+[https://b23.tv/dmzwmI](https://b23.tv/dmzwmI)
+
+
+-----
+
+####  空集  
+##### 886#       发表于 2021-5-17 11:07
+
+
+改个白皮容易记的名字么
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  FCCHua  
+##### 887#       发表于 2021-5-17 11:08
+
+
+真 半年了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ketestrait  
+##### 888#       发表于 2021-5-17 11:10
+
+
+艺奇卡拉，嗷的一声就亡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 889#       发表于 2021-5-17 11:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">又不是改nijisanji 改会社名能吸引白皮么
+
+
+-----
+
+####  qq845629713  
+##### 890#       发表于 2021-5-17 11:22
+
+
+Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
+
+
+精灵这个R18 tag有点意思
+
+
+-----
+
+####  hulaoda007  
+##### 891#       发表于 2021-5-17 11:30
+
+
+ 本帖最后由 hulaoda007 于 2021-5-17 11:37 编辑 
+
+  算一起卡拉正是转型宣言吗？换名字毕竟不会随便换。  不过域名ichikara还是可以进去，不过跳转到了anicolor的页面。
+
+
+-----
+
+####  noHentai  
+##### 892#       发表于 2021-5-17 11:38
+
+
+一流企业改logo.jpg
+
+
+-----
+
+####  rzrbtk  
+##### 893#       发表于 2021-5-17 11:42
+
+
+郡道真的沉迷原神了<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">，还记得以前她卡关玩不下去怒退游戏，现在莫非是游戏力大上涨了吗…
+
+
+-----
+
+####  hulaoda007  
+##### 894#       发表于 2021-5-17 11:48
+
+
+ 本帖最后由 hulaoda007 于 2021-5-17 11:56 编辑 
+
+  我看any color的标语是“让娱乐经济圈加速下去”，以前还是ichikara的时候，田角的个人理念也是这个吗？
+
+  以及我还蛮在意不是“娱乐圈加速”而是“经济加速”的。
+
+  一开始我看还以为田角想要搞全新的过去没有的娱乐模式，但看到经济圈后感觉更像全新的没见过的挣钱方式。
+
+  新たな魔法な体験ってそっちの意味！？
+
+
+-----
+
+####  空集  
+##### 895#       发表于 2021-5-17 11:49
+
+
+加速下去不就是互联网企业接着烧钱 田角一向是这么做的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  ヒトニナル  
+##### 896#       发表于 2021-5-17 11:53
+
+
+草，ickr真没了可还行
+
+
+-----
+
+####  alcoholic1000  
+##### 897#       发表于 2021-5-17 11:55
+
+
+以后怎么叫啊，enkr还是ankr（这名字也太zzzq了…）
+
+
+半年都没了吗，ickr
+
+
+-----
+
+####  hulaoda007  
+##### 898#       发表于 2021-5-17 11:58
+
+
+ 本帖最后由 hulaoda007 于 2021-5-17 12:02 编辑 
+
+  日语发音是enikara
+
+  
+
+  SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
+
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_VAydd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_wD7q6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+-----
+
+####  シナモンロール  
+##### 899#       发表于 2021-5-17 12:00
+
+
+ 本帖最后由 シナモンロール 于 2021-5-17 12:13 编辑 
+
+热知识，小象官微前几天刚改名
+
+
+0FB80D25-0173-4AAB-9201-01F96EDF81CF.jpeg
+(77.99 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-17 11:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/115943gfzo4fpntyhqzg37.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+20B7DB29-AC99-4AA7-A5CC-91B6E4E943C8.jpeg
+(78.39 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-17 12:12 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/121259gh5f5cq6svh6cccd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+4B6D8D2E-4FC2-46D1-87DD-922A676159B6.jpeg
+(78.39 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-17 12:13 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/121316zutnu553uq2qt2zj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tiro_finale  
+##### 900#       发表于 2021-5-17 12:01
+
+
+我怎么觉得还是いちから琅琅上口，ANYCOLOR不别扭吗
+
+而且明明叫这名，logo还是个黑白的，黑和白实在很难不有端联想
+
+
+
+
+-----
+
+####  シナモンロール  
+##### 901#       发表于 2021-5-17 12:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51278048&amp;ptid=1972669" target="_blank">tiro_finale 发表于 2021-5-17 12:01</a>
+我怎么觉得还是いちから琅琅上口，ANYCOLOR不别扭吗
+
+而且明明叫这名，logo还是个黑白的，黑和白实在很难不 ...</blockquote>
+很难不联想到是欧美进出的辅助策略
+
+可是...看彩虹的都是4厕白右啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+我预感到下周的没品段子可能要有梗了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  icecry  
+##### 902#       发表于 2021-5-17 12:05
+
+
+<blockquote>rzrbtk 发表于 2021-5-17 11:42
+郡道真的沉迷原神了，还记得以前她卡关玩不下去怒退游戏，现在莫非是游戏力大上涨了吗… ...</blockquote>
+原神主线又没啥难度，随便打的，何况她还抽到了废人养成器钟离
+
+
+-----
+
+####  alcoholic1000  
+##### 903#       发表于 2021-5-17 12:17
+
+
+今天还是不再恐同日……ickr，不enkr，真有你的，这选日故意的吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+彩虹社真的很🌈
+
+
+-----
+
+####  死体残留  
+##### 904#       发表于 2021-5-17 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51278048&amp;ptid=1972669" target="_blank">tiro_finale 发表于 2021-5-17 12:01</a>
+我怎么觉得还是いちから琅琅上口，ANYCOLOR不别扭吗
+
+而且明明叫这名，logo还是个黑白的，黑和白实在很难不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">旗下nijisanji彩虹啊 加上会社名黑白社就全颜色了
+
+
+-----
+
+####  hulaoda007  
+##### 905#       发表于 2021-5-17 12:30
+
+
+ 本帖最后由 hulaoda007 于 2021-5-17 12:58 编辑 
+
+  以后只能称呼EnikaraStaff（社員）了吗...？不习惯。
+
+  话说以后小妖精自称自己的时候会不会很麻烦？“エニからのエリーコニファーです”
+
+
+  假面enicolor，参上！
+
+  顺便恭喜尤德里克和语部在跨越了两个公司，依然没有出道，没有直播。
+
+
+-----
+
+####  死体残留  
+##### 906#       发表于 2021-5-17 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51278241&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-5-17 12:17</a>
+今天还是不再恐同日……ickr，不enkr，真有你的，这选日故意的吧
+
+
+彩虹社真的很🌈 ...</blockquote>
+lgbtq不是都有么 就g好像没有特定的
+
+
+-----
+
+####  Kojimaru  
+##### 907#       发表于 2021-5-17 12:43
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/124026xgwmt3z66lkoryg4.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (44.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 12:40 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/124141uy6qzcn8xy8xny7b.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (21.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 12:41 上传
+
+
+可以和后辈一起玩捏
+
+
+-----
+
+####  rzrbtk  
+##### 908#       发表于 2021-5-17 12:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51278102&amp;ptid=1972669" target="_blank">icecry 发表于 2021-5-17 12:05</a>
+原神主线又没啥难度，随便打的，何况她还抽到了废人养成器钟离</blockquote>
+你不懂…郡道那时候卡教程啊<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">…
+现在开点新游也好吧<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 909#       发表于 2021-5-17 12:58
+
+
+改名部是吧，有大公司风范了。
+
+
+-----
+
+####  真飞鸟i  
+##### 910#       发表于 2021-5-17 12:59
+
+
+小米改logo.jpg
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                   
