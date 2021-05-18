@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 14:37** 
+> ## **本文件最后更新于2021-05-18 01:47** 
 
 
 
@@ -4654,4 +4654,369 @@ tc民坦克民永不言败<img src="https://static.saraba1st.com/image/smiley/fa
 我是在玩什么gal吗
 
 
-                                    
+-----
+
+####  雪风utopia  
+##### 15392#       发表于 2021-5-17 23:18
+
+
+隔壁泥巴种还是抱着他们的ww女神爱国吧，离我的咩宝远点<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15393#       发表于 2021-5-17 23:33
+
+
+这首不错
+
+
+看见某人在批站发牢骚<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，哈哈，活该
+
+
+-----
+
+####  Klience  
+##### 15394#       发表于 2021-5-17 23:39
+
+
+感觉也没说错啊 这些V在叔叔眼里不都是赚钱的工具吗 专心打扮一下就能恰到钱，恰到流量 一代版本一代神<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15395#       发表于 2021-5-17 23:42
+
+
+ 本帖最后由 A2014720 于 2021-5-17 23:44 编辑 
+
+他给叔叔当推手时可不是这样啊<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+叔叔既然觉得这个⭕️就该这样还有人能不服吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 15396#       发表于 2021-5-17 23:57
+
+
+早点认清也是好事
+
+就怕叔叔给点好处又会屁颠颠跑回去捧叔叔臭脚
+
+
+-----
+
+####  古战场亡魂  
+##### 15397#       发表于 2021-5-18 00:02
+
+
+今天都是经典曲目啊
+
+
+-----
+
+####  ashero  
+##### 15398#       发表于 2021-5-18 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51286765&amp;ptid=1973472" target="_blank">Ky·Kiske 发表于 2021-5-17 23:57</a>
+
+早点认清也是好事
+
+就怕叔叔给点好处又会屁颠颠跑回去捧叔叔臭脚</blockquote>
+叔叔还欠着一套bls的bd和扫楼视频呢 先把这个兑了再说
+
+
+-----
+
+####  Klience  
+##### 15399#       发表于 2021-5-18 00:04
+
+
+扫楼视频？怕是变成了死海文书咯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15400#       发表于 2021-5-18 00:07
+
+
+该怎样就怎样吧
+
+
+最近被现实艹的快绷不住了，我还是收收黑泥得了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 15401#       发表于 2021-5-18 00:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">如果按照去年的套路的话520之后还有61吧，正好有点想念meu的电音唐老鸭
+
+
+-----
+
+####  Mikumiku831  
+##### 15402#       发表于 2021-5-18 00:12
+
+
+这最后一首状态真的好<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15403#       发表于 2021-5-18 00:20
+
+
+又是最后亿首啊
+
+
+-----
+
+####  Klience  
+##### 15404#       发表于 2021-5-18 00:23
+
+
+这首歌 当时看骨头社做的那个宝可梦mv的时候 我一直想听咩唱这首歌 <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 15405#       发表于 2021-5-18 00:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">那你要说叔叔和其他任意人谁更死妈 那肯定还是叔叔啊
+
+
+-----
+
+####  ashero  
+##### 15406#       发表于 2021-5-18 00:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">真的好
+
+
+-----
+
+####  A2014720  
+##### 15407#       发表于 2021-5-18 00:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">论炒作还得靠姨<img src="https://p.sda1.dev/2/df85d0de056b688da9340117352834f0/321d255b6bf571a0.jpg" referrerpolicy="no-referrer">
+
+
+syl随便吧，反正我不用b站也能看她
+
+
+-----
+
+####  格林卡罗尔  
+##### 15408#       发表于 2021-5-18 01:32
+
+
+ 本帖最后由 格林卡罗尔 于 2021-5-18 01:55 编辑 
+
+听说和兰太郎打lol我就爬起来了
+
+
+两人还是这么弱智，真好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+装起来了，是因为有野男人在？还是这人现在是这种状态
+
+
+-----
+
+####  Cushaw  
+##### 15409#       发表于 2021-5-18 02:05
+
+
+你好，只有野男人出现才会这么兴奋呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  格林卡罗尔  
+##### 15410#       发表于 2021-5-18 02:06
+
+
+ 本帖最后由 格林卡罗尔 于 2021-5-18 02:10 编辑 
+
+倒不是，只是没那么吵了，听着兰太郎抓狂总觉得少了什么
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/020952yg3ic6awfa34jzfm.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210518020850.png</strong> (12.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 02:09 上传
+
+
+好起来了，想看的看到了该睡了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15411#       发表于 2021-5-18 05:16
+
+
+绝了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 15412#       发表于 2021-5-18 06:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">油管 日本斗鱼联动 tc 推限 约等于一天四动
+
+
+-----
+
+####  路人辰  
+##### 15413#       发表于 2021-5-18 06:22
+
+
+ 本帖最后由 路人辰 于 2021-5-18 07:24 编辑 
+
+20210518东京5点；东京7点
+
+<img src="https://img.saraba1st.com/forum/202105/18/062218z6iielvew000v6at.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A94C6FE2-A9FC-48AD-823B-56362B3F2024.jpeg</strong> (220.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 06:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/072425czd3hd8rw3ivdv7k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>024D520A-A88B-4E88-95D5-6C30E4306D9F.jpeg</strong> (38.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 07:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/062219mf7fgwysz56jwwd9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1ECB3F1C-E53D-4C28-AE38-7D8E5F4972CC.jpeg</strong> (434.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 06:22 上传
+
+
+-----
+
+####  路人庚  
+##### 15414#       发表于 2021-5-18 06:38
+
+
+[https://m.mildom.com/playback/10 ... 621271938?origin=pc](https://m.mildom.com/playback/10004651/10004651-1621271938?origin=pc)
+
+
+lol突击的录播（刚打开几秒钟我就聋了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15415#       发表于 2021-5-18 06:40
+
+
+ 本帖最后由 时间在我手中 于 2021-5-18 06:51 编辑 
+
+今天找时间慢慢补得了，妈了
+完了，老子不会mildom扒录播，obs录屏算了
+
+
+-----
+
+####  Klience  
+##### 15416#       发表于 2021-5-18 07:38
+
+
+这人lol删了一堆好友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15417#       发表于 2021-5-18 08:18
+
+
+怕不是要批限了
+
+
+-----
+
+####  iuhehc  
+##### 15418#       发表于 2021-5-18 09:01
+
+
+520任务是吧
+
+
+-----
+
+####  A2014720  
+##### 15419#       发表于 2021-5-18 09:16
+
+
+说起来天天这么嗯唱熬夜lol嗓子没问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 15420#       发表于 2021-5-18 09:25
+
+
+对年轻的肉体要有信心<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 15421#       发表于 2021-5-18 09:30
+
+
+ 本帖最后由 时间在我手中 于 2021-5-18 09:41 编辑 
+
+比起嗓子其实更该担心她生理，毕竟这人是那种很痛的体质<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+泥哥谭M楼那边有人repo了TC我就不repo了这次，LOL没啥说的，就是打游戏鬼叫估计
+
+
+syl 昨天早上本来有事，结果睡过了（fleet有说），别人和她说推迟了，之后这人就一直打游戏了）
+
+敢情洗澡是因为全身黏糊糊的啊，昨晚TC也是因为这个睡不着才开播而且
+
+
+                                   
