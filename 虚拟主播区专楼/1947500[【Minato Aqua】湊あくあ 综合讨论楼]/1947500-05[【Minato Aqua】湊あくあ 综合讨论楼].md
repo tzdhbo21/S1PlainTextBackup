@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-10 19:33** 
+> ## **本文件最后更新于2021-05-18 11:34** 
 
 
 
@@ -345,4 +345,361 @@ PUA五步陷阱法（from因特网）；<img src="https://static.saraba1st.com/i
 这样了啊
 
 
-                                                
+-----
+
+####  面具13  
+##### 6032#       发表于 2021-5-11 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51205454&amp;ptid=1947500" target="_blank">梅斯之围 发表于 2021-5-10 23:39</a>
+
+印象里夸女士没怎么出面训过粉捏</blockquote>
+直播民/apex民背了逼她直播搞坏身体的锅呀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+会限之后，推特再无"あくたん今日も配信ないか"的推文了，只许发daisuki和撒鼻息了。
+
+
+-----
+
+####  面具13  
+##### 6033#       发表于 2021-5-11 19:32
+
+
+哦，今天去医院，不播。
+
+
+-----
+
+####  昆西昆希昆  
+##### 6034#       发表于 2021-5-11 19:57
+
+
+正常人谁训粉啊。再说只要liver自己不摆烂粉丝不发病，压根没有训粉的必要
+
+
+-----
+
+####  梅斯之围  
+##### 6035#       发表于 2021-5-12 18:02
+
+
+前两天把一周的发推量都发完了，可以心安理得的一动不动了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 6036#       发表于 2021-5-12 20:01
+
+
+昨天我还挺满足的，毕竟动了这么多，只是没想到今天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6037#       发表于 2021-5-12 22:26
+
+
+点赞了两张不怎么好看的fanart，作为生存报告。
+
+
+不播就不指望有那么多高水平画师免费画图了，热情消磨，热度也不够 
+
+
+-----
+
+####  面具13  
+##### 6038#       发表于 2021-5-13 18:21
+
+
+日常<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer"> <blockquote>湊あくあ⚓グッバイ宣言歌った！
+
+@minatoaqua
+
+英語のレッスン頑張ってきた〜！闪片
+
+今日は朝から夜まで打ち合わせとレッスン漬け汗滴符号汗滴符号
+
+
+みんなの応援ほしいな〜〜？脸红两颗心</blockquote>
+
+
+-----
+
+####  梅斯之围  
+##### 6039#       发表于 2021-5-13 18:39
+
+
+还是没玩明白，你这学半天英语，发推不写几句英语，怎么吸引白皮啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6040#       发表于 2021-5-15 00:07
+
+
+ 本帖最后由 面具13 于 2021-5-15 22:37 编辑 
+
+加班回来一看，果然还是<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> <blockquote>湊あくあ⚓グッバイ宣言歌った！
+
+@minatoaqua
+
+·
+
+4小时
+
+もうすぐ200万再生…？！😳✨
+
+みんなあああいっぱい聴いてくれてありがとう！！！！！！！
+
+
+【引き籠りが】グッバイ宣言／湊あくあ【歌ってみた】</blockquote>
+update：已经200w了，今天应该会发个推然后不播。有点赞，但200w播放的推特没发，估计出去现充了吧。发推推销表情包
+
+
+-----
+
+####  梅斯之围  
+##### 6041#       发表于 2021-5-16 17:38
+
+
+ 本帖最后由 梅斯之围 于 2021-5-16 17:40 编辑 
+
+这周日的歌回也寄了
+
+最近推上怎么天天都有这种三无账号的疑似黑化事业民直球点艹啊，现在还在生放送tag里挂着，夸女士你肯定看得见的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6042#       发表于 2021-5-16 18:02
+
+
+晚上没歌回是哪里的消息？我只看到推特有点赞。
+
+“crew都是JK，不会说不好听的话的，那些都是anti，都是antii，都是anti”，建议统一改名クルー失格，更贴切一点。
+
+
+-----
+
+####  ylssb10438  
+##### 6043#       发表于 2021-5-16 18:05
+
+
+凛：“都寄吧谁啊？真不熟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">”
+
+
+-----
+
+####  面具13  
+##### 6044#       发表于 2021-5-16 18:10
+
+
+她要是再来一波高兴致高强度直播，然后再突然颓下去，基本上就能粗诊一个双相障碍了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 6045#       发表于 2021-5-16 18:12
+
+
+学泥哥给tskk空口鉴病是吧
+
+
+-----
+
+####  星の守  
+##### 6046#       发表于 2021-5-16 18:15
+
+
+既然名字改成都不当crew，那就好聚好散呗，赖着不走也没意思是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nian1538  
+##### 6047#       发表于 2021-5-16 20:19
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/201839f59195412jns5wno.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E1gQDSbVgAM7Ghe-orig.jpg</strong> (1.49 MB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 20:18 上传
+
+
+[https://twitter.com/xdarjeelingxtea/status/1393883983042072576](https://twitter.com/xdarjeelingxtea/status/1393883983042072576)
+
+正能量
+
+
+-----
+
+####  null0304  
+##### 6048#       发表于 2021-5-16 21:14
+
+
+[ζ*(・ワ・  )*ζ](https://twitter.com/aqsosikakatan/status/1393898008429793281?s=21) #あくあーと
+[https://twitter.com/aqsosikakatan/status/1393898008429793281?s=21](https://twitter.com/aqsosikakatan/status/1393898008429793281?s=21)
+
+<img src="https://img.saraba1st.com/forum/202105/16/211006zjd349bmmlnhl2bn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>(・ω ・).jpg</strong> (40.93 KB, 下载次数: 0)
+
+下载附件
+
+(・ω ・)
+2021-5-16 21:10 上传
+
+
+-----
+
+####  面具13  
+##### 6049#       发表于 2021-5-16 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51270625&amp;ptid=1947500" target="_blank">面具13 发表于 2021-5-16 18:02</a>
+
+晚上没歌回是哪里的消息？我只看到推特有点赞。
+
+“crew都是JK，不会说不好听的话的，那些都是anti，都是ant ...</blockquote>
+虽然话说得跟我之前说的差不多，但并不是我小号。我也不会专门去做搞她心态这种anti-productive的事情。
+
+<img src="https://img.saraba1st.com/forum/202105/16/215229jayzmkbpb0ppbyyb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>SharedScreenshot.jpg</strong> (70.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 21:52 上传
+
+
+-----
+
+####  面具13  
+##### 6050#       发表于 2021-5-16 21:55
+
+
+歌回不播都不吱一声了，真棒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 6051#       发表于 2021-5-17 10:20
+
+
+ 本帖最后由 FCCHua 于 2021-5-17 10:23 编辑 
+
+26号在犬山那边有联动，一起的有星川，rrm，走姐
+
+
+-----
+
+####  梅斯之围  
+##### 6052#       发表于 2021-5-17 12:25
+
+
+这俩有过互动么，前两天才在推上关注
+
+
+-----
+
+####  nevp  
+##### 6053#       发表于 2021-5-17 12:43
+
+
+ 本帖最后由 nevp 于 2021-5-17 20:36 编辑 
+
+找了半天没找到，还是先编辑了
+
+26号真的不会身体不适吗<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 6054#       发表于 2021-5-17 20:06
+
+
+又要病遁了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6055#       发表于 2021-5-17 20:16
+
+
+26号见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 6056#       发表于 2021-5-17 20:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 6057#       发表于 2021-5-17 21:28
+
+
+已经到了menhera的年纪了
+
+
+-----
+
+####  ylssb10438  
+##### 6058#       发表于 2021-5-17 21:41
+
+
+星川<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 6059#       发表于 2021-5-17 22:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">今天动了吗
+
+
+-----
+
+####  面具13  
+##### 6060#       发表于 2021-5-17 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51285775&amp;ptid=1947500" target="_blank">fangjun96 发表于 2021-5-17 22:29</a>
+
+今天动了吗</blockquote>
+动了。嗓子不好还得录音，考虑要不要去趟医院。潜台词再摸一个星期。
+
+
+
+
+-----
+
+####  nevp  
+##### 6061#       发表于 2021-5-18 19:02
+
+
+明天可能联动，等于说今天又没了，然后明天喉咙不舒服再摸，这一套流程好像在哪见过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                               

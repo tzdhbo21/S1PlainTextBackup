@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-15 05:00** 
+> ## **本文件最后更新于2021-05-18 11:41** 
 
 
 
@@ -1847,7 +1847,8 @@ oped做得也非常厉害
 ####  酥蕤  
 ##### 145#       发表于 2021-4-8 23:20
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+所以是怪兽还是萝卜争出来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -2523,7 +2524,8 @@ MAT队出击！（幻听）
 ####  酥蕤  
 ##### 200#       发表于 2021-4-12 23:23
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+女主这各种小表情可以说是相当可爱了
 
 
 -----
@@ -3038,7 +3040,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_lLLQz" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_Y8QQN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -7999,4 +8001,424 @@ bsyl
 不要再堆砌名詞了
 
 
-                            
+-----
+
+####  shudushimo  
+##### 634#       发表于 2021-5-15 13:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51257742&amp;ptid=1963627" target="_blank">Lawliet.L 发表于 2021-5-15 12:08</a>
+
+就目前看来，哥斯拉搞不好有两只。另外，我以为杨振宁挺有名，但和他相关的规范对称理论看来普及度还不够啊 ...</blockquote>
+片子里哪个理论和规范场论有关系啊，老哥讲讲<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">温伯格的量子场论买了一年了一直啃不下来（x
+
+
+-----
+
+####  千恋万花  
+##### 635#       发表于 2021-5-15 14:22
+
+
+网飞的中字也上了
+
+
+image.png
+(35.88 KB, 下载次数: 1)
+
+
+下载附件
+
+
+2021-5-15 14:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/15/142222yuaclx9tnn29ffs9.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lawliet.L  
+##### 636#       发表于 2021-5-15 15:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51258776&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-15 13:45</a>
+
+片子里哪个理论和规范场论有关系啊，老哥讲讲温伯格的量子场论买了一年了一直啃不下来（x
+
+
+ ...</blockquote>
+主要是对称方面吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cloudslin  
+##### 637#       发表于 2021-5-15 16:28
+
+
+ 本帖最后由 Cloudslin 于 2021-5-15 18:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51242578&amp;ptid=1963627" target="_blank">蛇头 发表于 2021-5-14 00:13</a>
+看了这话自卫队被爆破剧情(大概率死人了）大概知道为什么前期没死过人，甚至这种无伤亡描写都显得特别刻意 ...</blockquote>
+关键是自卫队就一群土鸡瓦狗，说破大天当当大明的鹰犬，你没看这红尘来了也就带个四型防护，这一帮公务员压根成不了事。我的观察是除了右翼，日本人也很少信任自卫队。
+
+
+-----
+
+####  坂上菠萝  
+##### 638#       发表于 2021-5-15 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51259135&amp;ptid=1963627" target="_blank">千恋万花 发表于 2021-5-15 14:22</a>
+
+网飞的中字也上了</blockquote>
+太巧了，昨天刚把网飞会员重新充值
+
+
+-----
+
+####  蛇头  
+##### 639#       发表于 2021-5-15 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51260218&amp;ptid=1963627" target="_blank">Cloudslin 发表于 2021-5-15 16:28</a>
+
+关键是自卫队就一群土鸡瓦狗，说破大天当当大明的鹰犬，你没看这红尘来了也就带个四型防护，这一帮公务员 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">确实，同样是公务员我觉得比一般的区役所警察那种地位要低多了
+
+
+-----
+
+####  夜颠覆  
+##### 640#       发表于 2021-5-15 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51259135&amp;ptid=1963627" target="_blank">千恋万花 发表于 2021-5-15 14:22</a>
+
+网飞的中字也上了</blockquote>
+好事，能同步中文了
+
+
+-----
+
+####  yhw1871  
+##### 641#       发表于 2021-5-15 21:13
+
+
+什么时候nyaa能有最新一集的中字啊
+
+
+-----
+
+####  依然荏苒  
+##### 642#       发表于 2021-5-16 20:37
+
+
+还以为网飞鸽了，原来是字幕组鸽。先看第八话了。
+
+
+-----
+
+####  依然荏苒  
+##### 643#       发表于 2021-5-16 20:47
+
+
+其实看下来，这才是真实的日本吧，我们所处的环境不同，所以看市长组织乡民去打怪兽这种荒诞感，路人对怪兽这种漠视感。
+
+
+-----
+
+####  菲特妹  
+##### 644#       发表于 2021-5-16 21:55
+
+
+你把怪兽看成新冠，再看看日本人现在的应对，不觉得很写实吗
+
+
+-----
+
+####  Oshino57  
+##### 645#       发表于 2021-5-17 00:27
+
+
+ 本帖最后由 Oshino57 于 2021-5-17 00:31 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51258776&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-15 13:45</a>
+
+片子里哪个理论和规范场论有关系啊，老哥讲讲温伯格的量子场论买了一年了一直啃不下来（x
+
+
+ ...</blockquote>
+这片子和规范场论没有关系
+
+
+第五集之前还期待东大物理本科的 phd 能给我们整出什么不一样的日本科幻
+
+结果是个连本科微分几何的一个字都没学过，对不起自己学位的铁**
+
+
+-----
+
+####  utakata  
+##### 646#       发表于 2021-5-17 13:18
+
+
+原来这帖子的标题是中文……我说搜英文搜日语怎么都搜不到……
+
+
+-----
+
+####  shudushimo  
+##### 647#       发表于 2021-5-17 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51274235&amp;ptid=1963627" target="_blank">Oshino57 发表于 2021-5-17 00:27</a>
+
+这片子和规范场论没有关系
+
+
+第五集之前还期待东大物理本科的 phd 能给我们整出什么不一样的日本科幻</blockquote>
+这片子哪里能用到微分几何吗？老哥讲讲<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+不过如果不学广相，没学微分几何很正常吧
+
+
+-----
+
+####  Oshino57  
+##### 648#       发表于 2021-5-17 15:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51279965&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-17 14:48</a>
+
+这片子哪里能用到微分几何吗？老哥讲讲
+
+不过如果不学广相，没学微分几何很正常吧 ...</blockquote>
+片子没有用过微分几何，让我失望的地方在于一直铺垫到第六集的解谜设定显示出脚本现代几何学常识的不足
+
+<img src="https://p.sda1.dev/1/a75456e84c4dc0d91bad8eedc6656778/21-05-16_qP4JpGD3.png" referrerpolicy="no-referrer">
+
+这里的故事设定是「传统学术界没有能解开神秘材料内部时空结构秘密的人，需要“幻想科学”专精的女主角灵机一动才能悟出来这里是”高维度次元的折叠“云云」
+
+这里体现出脚本对两件对现代几何的误解：认为普通研究者由于思维限制不容易想象弯曲的空间，脚本以为学术界的日常工作是和平直的空间打交道解释设定时用到“高维空间”，脚本以为空间的弯曲是必须嵌入更高维的空间才能体现的属性
+
+这些也不是必须在微分几何才能学到的常识，一个 phd 搞出这种民科设定，我对后面的展开已经不作期待了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shudushimo  
+##### 649#       发表于 2021-5-17 15:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51280413&amp;ptid=1963627" target="_blank">Oshino57 发表于 2021-5-17 15:25</a>
+
+片子没有用过微分几何，让我失望的地方在于一直铺垫到第六集的解谜设定显示出脚本现代几何学常识的不足
+
+
+ ...</blockquote>
+嘛，不过研究新材料刚开始专业肯定都是化学、材料、高分子之类的，没听过很正常吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+要说理论不行，女主讲光线的时间折射，然后画了个负折射率的光路图已经把我看麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+空间弯曲虽然是科幻中很常见的设定，但实际上物理学界真正用到非欧度规的也就一小撮人，要我想“6=9”的物理含义，我首先想到的应该也是点群之类的，总而言之不算大毛病。退一步说，在动画里看到物理学中二台词已经很让我兴奋了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Oshino57  
+##### 650#       发表于 2021-5-17 16:20
+
+
+ 本帖最后由 Oshino57 于 2021-5-17 16:26 编辑 
+<blockquote>物理学界真正用到非欧度规的也就一小撮人</blockquote>
+隔行如隔山了这，还以为物理学界日常都是和流形打交道的<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">
+
+数学上平直的空间是不常接触的特例，所以看到这种「高维折叠blabla」的经典霓虹胡诌设定瞬间血压上升
+
+
+-----
+
+####  shudushimo  
+##### 651#       发表于 2021-5-17 16:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281099&amp;ptid=1963627" target="_blank">Oshino57 发表于 2021-5-17 16:20</a>
+
+隔行如隔山了这，还以为物理学界日常都是和流形打交道的
+
+数学上平直的空间是不常接触的特例，所以 ...</blockquote>
+科幻里的科学不就是图一乐吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  刘仲敬  
+##### 652#       发表于 2021-5-17 16:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51274235&amp;ptid=1963627" target="_blank">Oshino57 发表于 2021-5-17 00:27</a>
+
+这片子和规范场论没有关系
+
+
+第五集之前还期待东大物理本科的 phd 能给我们整出什么不一样的日本科幻</blockquote>
+铁**是什么
+
+
+-----
+
+####  RainbowSealife  
+##### 653#       发表于 2021-5-17 17:32
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/171137cw83unbboc03c09v.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (136.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 17:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/171933o6dypc565cx6nc6y.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (156.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 17:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/171811lgrqbgy4tg4zqffn.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (43.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 17:18 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/171822d3xlwah93mwsp7e9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (20.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-17 17:18 上传
+
+
+泥潭就我一个人觉得外务省的鹿子行江很涩吗？正装和泪痣加成，隐形的诱惑，直戳xp，湘赣<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+都看到第七集了，哥斯拉出场镜头恐怕一只手就能数的过来吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第8集还有新怪兽，绝了
+
+不要再堆砌一些专业名词了，我水平太低，看不太懂，只觉得云里雾里，故弄玄虚，能不能整点普罗大众都觉得通俗易懂的科幻？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">现在奇点的科幻内容就莫名其妙的，是想暗示哥斯拉和这些怪兽是从四次元来的？还是说受到四次元物质红尘的影响而变异的自然生物？
+
+搞不明白为什么非得在怪兽片里搞理论物理，实在是给人一种“看似硬科幻，实则伪科学”之感<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  云野十五  
+##### 654#       发表于 2021-5-17 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51282042&amp;ptid=1963627" target="_blank">RainbowSealife 发表于 2021-5-17 17:32</a>
+
+泥潭就我一个人觉得外务省的鹿子行江很涩吗？正装和泪痣加成，隐形的诱惑，直戳xp，湘赣</blockquote>
+就是民科!就是民科!
+
+这女的也是谜语人，很适合当日本外务省人士<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  概率边界  
+##### 655#       发表于 2021-5-17 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281099&amp;ptid=1963627" target="_blank">Oshino57 发表于 2021-5-17 16:20</a>
+隔行如隔山了这，还以为物理学界日常都是和流形打交道的
+
+数学上平直的空间是不常接触的特例，所以 ...</blockquote>
+我还以为碰到这些对称性物理学家背后都会自然联系lie群什么的，然后就是纤维丛，规范理论这些模型。
+
+
+-----
+
+####  坂上菠萝  
+##### 656#       发表于 2021-5-17 21:21
+
+
+我觉得这科幻挺通俗了，作者当年应该也申过科研基金，有写本子的手感<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  云野十五  
+##### 657#       发表于 2021-5-17 23:18
+
+
+正解的卡多前期也是各种不说人话的模型通道，都是女的在那演算，希望不要来个复刻
+
+
+-----
+
+####  最强惠酱  
+##### 658#       发表于 2021-5-18 00:01
+
+
+ 本帖最后由 最强惠酱 于 2021-5-18 00:03 编辑 
+
+看起来会是通过男主发过去拜托女主用超级计算机（特异点）计算的杰刚变强计划然后通过物竞天择进化的方式大决战？虽说ai也在进化途中
+8集女主发个破局结果男主刚好进入破局<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Lynn冰翎  
+##### 659#       发表于 2021-5-18 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51286802&amp;ptid=1963627" target="_blank">最强惠酱 发表于 2021-5-18 00:01</a>
+
+看起来会是通过男主发过去拜托女主用超级计算机（特异点）计算的杰刚变强计划然后通过物竞天择进化的方式大 ...</blockquote>
+你有没有过从信号死区走到旷阔的地方，然后手机一下子蹦出来很多条消息的经历？
+
+我的理解是这一段演出不需要再用大段台词把女主发的消息给念出来，毕竟刚才观众已经看过了，干脆快进跳过这一段，而且不会干扰男主这边紧张气氛的塑造。
+
+
+-----
+
+####  最强惠酱  
+##### 660#       发表于 2021-5-18 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51294559&amp;ptid=1963627" target="_blank">Lynn冰翎 发表于 2021-5-18 18:44</a>
+你有没有过从信号死区走到旷阔的地方，然后手机一下子蹦出来很多条消息的经历？
+
+我的理解是这一段演出不 ...</blockquote>
+我是这么想过，只不过男主在那地方挺久了，信号不行可能女方那边问题，破局这消息这刚好掐中男主身边的状况，我觉得实在是妙<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  shudushimo  
+##### 661#       发表于 2021-5-18 19:32
+
+
+第八集汉化出了，看女主打字那一段，用朗道二级相变理论解释超级计算机误差<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+所以对本作的科学设定不抱什么希望了，脚本就是想堆砌物理学名词而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                           
