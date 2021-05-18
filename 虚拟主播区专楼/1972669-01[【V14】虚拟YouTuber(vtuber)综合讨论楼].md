@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 13:53** 
+> ## **本文件最后更新于2021-05-18 18:11** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_aZK33" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_bHIl8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_fFW47" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_QJy3B" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -12485,10 +12485,11 @@ manager部门似乎在管控着liver之间的联动许可，我个人也是从�
 评分
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 绯想天の天子| + 1|好评加鹅|
 | 渡鸦骑士| + 1|好评加鹅|
 | Map-2| + 1|好评加鹅|
 | hulaoda007| + 1|好评加鹅|
@@ -12789,4 +12790,542 @@ Make Yhm Great Again<img src="https://static.saraba1st.com/image/smiley/face2017
 查看全部评分
 
 
-                 
+-----
+
+####  kangkangsama  
+##### 962#       发表于 2021-5-17 22:50
+
+
+<blockquote>rzrbtk 发表于 2021-5-17 21:37
+鸟组商量麻将战术，说通话的时候可以打心理战让对手慌一下，郡：“那到时候我们就突然说‘不觉得anycolor这 ...</blockquote>
+郡道台的猫居然会动，不怎么看猫的我第一次看到会动的猫
+
+
+-----
+
+####  hulaoda007  
+##### 963#       发表于 2021-5-17 23:53
+
+
+ 本帖最后由 hulaoda007 于 2021-5-18 00:07 编辑 
+
+[森中花咲 1st Album『下剋上』全曲クロスフェード【5/26発売】_哔哩哔哩 (゜-゜)つロ 干杯~-bilibili](https://www.bilibili.com/video/BV1Wq4y1E7PE)
+
+＜収録曲＞
+
+01. 下剋上
+
+作詞・作曲・編曲:てにをは
+
+02. 正六面惑星パンドラ
+
+作詞:児玉雨子 作曲・編曲:中塚武
+
+03. 刹那花火
+
+作詞・作曲:烏屋茶房 編曲:YASUHIRO(康寛)
+
+04. deleteless
+
+作詞:渡邊亜希子 作曲・編曲:倉内達矢
+
+05. リトルペタル
+
+作詞:RINA 作曲・編曲:NAMI
+
+06. 君の所為で駄目になってしまいました
+
+作詞:りゅうせー 作曲・編曲:佐々木裕
+
+07. 相反スペル
+
+作詞・作曲・編曲:やなぎなぎ
+
+08. 徒花ネクロマンシー
+
+作詞:古屋真 作曲:加藤裕介 編曲:渡辺剛
+
+09. お召し上がりは今日中に
+
+作詞・作曲・編曲:40mP
+
+10. 此処に咲いて
+
+作詞・作曲・編曲:Chinozo
+
+
+＜初回限定盤特典＞
+
+・特典CD:カバー曲集(ジャズピアノアレンジ)
+
+01. 諦めモード
+
+作詞・作曲:40mP 編曲:渡辺剛
+
+02. 美しき残酷な世界
+
+作詞:マイクスギヤマ 作曲:石塚玲依 編曲:渡辺剛
+
+03. God knows...
+
+作詞:畑亜貴 作曲:神前暁 編曲:渡辺剛
+
+04. Zoetrope
+
+作詞:やなぎなぎ 作曲:斎藤真也 編曲:渡辺剛
+
+05. 不可思議のカルテ
+
+作詞:児玉雨子 作曲:カワイヒデヒロ 編曲:渡辺剛
+
+
+  花咲的歌单...居然唱了那么多吗...？
+
+
+-----
+
+####  alcoholic1000  
+##### 964#       发表于 2021-5-18 00:12
+
+
+5/18 21時〜
+
+VCC VALORANT #3
+
+開催致します
+
+
+前回同様4チームBO1総当たり戦となります
+
+いつも豪華なメンバーにご参加頂き感謝します
+
+
+ただの仲良しカスタムですので、温かい目で見守ってください
+
+神視点は各コーチの配信で行います
+
+<img src="https://img.saraba1st.com/forum/202105/18/000918ju2czatbatikjjjz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>スタンミ.jpg</strong> (264.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 00:09 上传
+
+
+スタンミ?!!!葛皇舍得下手吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  絵生voice  
+##### 965#       发表于 2021-5-18 02:40
+
+
+ 本帖最后由 絵生voice 于 2021-5-18 02:45 编辑 
+
+官网更新后多了个上市相关的职位招募（必须条件是与海外投资交流
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/024204gfjzjey0j6c0qaqc.png" referrerpolicy="no-referrer">
+
+
+<strong>S)E%D}6POK98Z4K}91Y4KR2.png</strong> (4.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 02:42 上传
+
+
+<img src="https://p.sda1.dev/2/e21d0fb2039e78a970ddc3322931ce57/IMG_CMP_161747827.png" referrerpolicy="no-referrer">
+
+查了下wayback确定是刚加的
+<img src="https://p.sda1.dev/2/4f1035a8ac19ee172606e3fce46ddd08/IMG_CMP_102341480.jpeg" referrerpolicy="no-referrer">
+
+发现anycolor这个logo在14号之前已经改过了
+
+
+-----
+
+####  死体残留  
+##### 966#       发表于 2021-5-18 09:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">草 人鱼会苗语诶 应该是亚裔
+
+
+-----
+
+####  qq845629713  
+##### 967#       发表于 2021-5-18 09:15
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/091058fmv55voqmyvkclff.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210518091031.png</strong> (61.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 09:10 上传
+
+
+这鱼人骗弹幕能力一流，而且疑似hmong
+
+
+-----
+
+####  poipanchao  
+##### 968#       发表于 2021-5-18 09:53
+
+
+ 本帖最后由 poipanchao 于 2021-5-18 09:59 编辑 
+
+我记得以前好像看到过科普文
+美国有一个很大的苗人族群
+好像是越南的一个将军带过去的？
+
+
+-----
+
+####  シナモンロール  
+##### 969#       发表于 2021-5-18 10:10
+
+
+ 本帖最后由 シナモンロール 于 2021-5-18 10:11 编辑 
+
+昨天想说忘了说了
+
+
+根据我多年的经历，几乎可以确定pendora不是白皮nativespeaker
+
+
+她的口音其实更接近于我之前听过的东南雅英语（优秀级别的）无论是我之前关注的菲律宾裔ytb还是高中的菲律宾裔同学说话都这味儿......
+
+
+日语方面甚至可以推定其不是英语母语，或者至少可以推定其不是英语单母语，英语单母语的人是永远也学不会一些发音方法的
+
+
+-----
+
+####  qq845629713  
+##### 970#       发表于 2021-5-18 10:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 等于你虹找了至少两个美籍猴子么？
+
+
+-----
+
+####  Suny08  
+##### 971#       发表于 2021-5-18 10:57
+
+
+虽然不知道她gg 和 doa的水平怎么样，但是能有ftg民确实蛮难得的，以后应该会多关注一点这个人鱼，为什么不来玩玩世界第一的街霸和铁拳呢？
+
+
+-----
+
+####  空集  
+##### 972#       发表于 2021-5-18 13:56
+
+
+说起来君道那个天和耐久是要搞啥。。这玩意真能耐久？
+
+
+-----
+
+####  死体残留  
+##### 973#       发表于 2021-5-18 14:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">天胡刷完了 现在刷地胡 四开修罗战洗牌还是挺快的
+
+
+-----
+
+####  rzrbtk  
+##### 974#       发表于 2021-5-18 15:15
+
+
+ 本帖最后由 rzrbtk 于 2021-5-18 15:45 编辑 
+
+郡道四开打麻，想了
+
+郡道的耐久麻将：
+
+九莲宝灯—&gt;一小时、天和—&gt;三十分钟、二次天和—&gt;十分钟、地和—&gt;NOW！
+
+
+作为耐久企划，不知道是好运还是...
+
+
+-----
+
+####  free  
+##### 975#       发表于 2021-5-18 15:19
+
+
+四爱开通推特，发了个自我介绍，这是要干啥？
+
+
+[https://twitter.com/KizunaAIChina/status/1394246326536314880](https://twitter.com/KizunaAIChina/status/1394246326536314880)
+
+
+-----
+
+####  ShuTk4O  
+##### 976#       发表于 2021-5-18 17:11
+
+
+也许是面向港台呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 977#       发表于 2021-5-18 17:16
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/171600h5755f55wbxwvpa5.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (7.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 17:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/171605z084z1gzc01484kz.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (8.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 17:16 上传
+
+
+-----
+
+####  poipanchao  
+##### 978#       发表于 2021-5-18 17:22
+
+
+四开打麻将是蛋蛋遗技啊
+
+
+-----
+
+####  qq845629713  
+##### 979#       发表于 2021-5-18 18:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> MSI给葛西莉工商特地做了宣传页面，看来这个是商业大单了，
+
+
+ROG找木口，MSI找你虹，
+
+
+-----
+
+####  free  
+##### 980#       发表于 2021-5-18 18:46
+
+
+丁真也弄了个V皮，这什么情况，是个人就要V吗，你中文学好了吗就V
+
+[https://weibo.com/tv/show/1034:4638184815132682](https://weibo.com/tv/show/1034:4638184815132682)
+
+
+-----
+
+####  划水的B612  
+##### 981#       发表于 2021-5-18 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51294289&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-5-18 18:20</a>
+
+MSI给葛西莉工商特地做了宣传页面，看来这个是商业大单了，
+
+
+ROG找木口，MSI找你虹， ...</blockquote>
+细分市场<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">所以技嘉什么时候跟上
+
+
+-----
+
+####  qq845629713  
+##### 982#       发表于 2021-5-18 18:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51294591&amp;ptid=1972669" target="_blank">划水的B612 发表于 2021-5-18 18:47</a>
+
+细分市场所以技嘉什么时候跟上</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">我提名小舞当技嘉的专属代言人，赚一波好感
+
+
+-----
+
+####  rzrbtk  
+##### 983#       发表于 2021-5-18 18:53
+
+
+郡道耐久成功力<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">，总共六小时，还行还行
+
+
+-----
+
+####  IDIDIDID  
+##### 984#       发表于 2021-5-18 18:55
+
+
+好好好，支持大干快上亩产万斤，人人有V做，橄榄二刺螈
+
+
+-----
+
+####  FCCHua  
+##### 985#       发表于 2021-5-18 19:34
+
+
+居然有roa<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/f72173876b55b128fdf134e2d6526a2c/-7ab3d8d1bd7ae304.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tiro_finale  
+##### 986#       发表于 2021-5-18 20:24
+
+
+[https://www.youtube.com/watch?v=Hbt-FqWt50A](https://www.youtube.com/watch?v=Hbt-FqWt50A)
+
+ういニングライブ #しぐれうい2周年
+
+
+-----
+
+####  IDIDIDID  
+##### 987#       发表于 2021-5-18 23:16
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-18 23:19 编辑 
+
+露露在玩究极恐怖游戏subnautica
+
+
+SYL：
+
+这位虹人好勇哦
+
+<img src="https://img.saraba1st.com/forum/202105/18/231931cep2cugiizai1gbc.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #113 - 'NIJISANJI EN I VTuber ランキング - ユー.png</strong> (45.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 23:19 上传
+
+
+-----
+
+####  winda  
+##### 988#       发表于 2021-5-18 23:30
+
+
+ 本帖最后由 winda 于 2021-5-18 23:32 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ichikara改名anycolor这liver过半数看repo有点难啊，不过200+stf&gt;100+liver嘛
+syl<blockquote>˗ˋˏ 告知💫 ˎˊ˗
+
+明日20時から開催される
+【VALORANT LIGHT TOURNAMENT 】に参加します🥳
+
+🔫メンバー
+・Wokkaさん（@.sprWokka ）
+・ありさかさん（@.ArisakaaaT ）
+・うるかさん（@.ow_uruca ）
+・奈羅花さん（@.Naraka_2434 ）
+
+当日集まって参加するゆる〜い感じなので暖かく見守って下さい🙏</blockquote>为了挽回immoral的名誉<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 989#       发表于 2021-5-18 23:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">kemt都被田角说服过去了还有其他反抗的么
+
+
+-----
+
+####  rzrbtk  
+##### 990#       发表于 2021-5-19 00:16
+
+
+那就不得不说鸟组关于社名方面的（大部分是负面的）看法了！
+
+いちから社名変更について話す舞元啓介＆郡道美玲＆渋谷ハジメ＆文野環【にじさんじ切り抜き】（[https://www.youtube.com/watch?v=PZF3qiUrxao](https://www.youtube.com/watch?v=PZF3qiUrxao)），
+
+视频要点：
+
+1、enkr和ickr到底哪里不同；
+
+2、为什么要改成enkr；
+
+3、enkr的海外进出成果真的存在吗？；
+
+4、加油！enkr！
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 991#       发表于 2021-5-19 01:31
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-19 01:48 编辑 
+
+发现楼里没人提，虹フミ搞了个早7:30「にZIP！」企划，5月19号是第三天了，内容类似あさ⭕️⭕️
+
+介于holo也在搞「まるヤマ駅前」...谁也别说谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+Syl，希望播报水平能有所长进吧
+
+
+-----
+
+####  Ketestrait  
+##### 992#       发表于 2021-5-19 01:43
+
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gqn3v21c8yj20xz0m3tin.jpg" referrerpolicy="no-referrer">
+
+[https://youtu.be/99SlRCbdgsk](https://youtu.be/99SlRCbdgsk)
+
+
+syl
+
+天下综艺一大抄，大家都是拷贝怪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 993#       发表于 2021-5-19 01:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">和ascoco差太多了，龙当时出道就搞很有行动力，资料都是自己收集玩梗p图英语扩圈，虹这边大福debi官方都搞过类似新闻节目都持续不下去，现在给fumi感觉也不会干很长的
+
+syl 感觉五色战队是不是连一个月的团练都没有了，散的是不成样子
+
+
+                
