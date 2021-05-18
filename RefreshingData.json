@@ -441,9 +441,9 @@
   },
   {
     "id": "1989758",
-    "totalpage": 24,
+    "totalpage": 25,
     "title": "[Hololive English讨论楼]",
-    "lastedit": 1621043022,
+    "lastedit": 1621307078,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -641,9 +641,9 @@
   },
   {
     "id": "1997762",
-    "totalpage": 650,
-    "title": "[【B27】VUP综合讨论楼(DAY4）过两天开]",
-    "lastedit": 1621295120,
+    "totalpage": 651,
+    "title": "[【B27】VUP综合讨论楼(DAY3）A part]",
+    "lastedit": 1621307231,
     "category": "虚拟主播区专楼",
     "active": true
   },
@@ -709,7 +709,7 @@
     "title": "[华为徐直军：5G的能力被夸大了]",
     "lastedit": 1618711618,
     "category": "外野",
-    "active": true
+    "active": false
   },
   {
     "id": "1998963",
@@ -4401,9 +4401,9 @@
   },
   {
     "id": "2003721",
-    "totalpage": 101,
+    "totalpage": 102,
     "title": "[【A7】A-SOUL讨论楼]",
-    "lastedit": 1621303869,
+    "lastedit": 1621308232,
     "category": "虚拟主播区专楼",
     "active": true
   },

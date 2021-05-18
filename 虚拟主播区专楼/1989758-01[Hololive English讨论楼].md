@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-15 01:43** 
+> ## **本文件最后更新于2021-05-18 03:04** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_W3ZRi" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_p2N2N" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9259,7 +9259,7 @@ Rigger HATE!</blockquote>
 
 
 bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_rh8b8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_l24Ma" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -10833,4 +10833,483 @@ Country road take me home草<img src="https://static.saraba1st.com/image/smiley/
 愛言葉 &gt; Country Roads = 空色
 
 
-                          
+-----
+
+####  PureIllusion  
+##### 693#       发表于 2021-5-15 09:57
+
+
+这次终于能清楚听出来是Gura了，戒断好几天了
+
+
+Ame...mixer尽力了
+
+去年十月录的音，当时还没搬家，用的还是旧麦
+
+
+十月Ame
+[https://www.youtube.com/watch?v=RNLo8AblWaY](https://www.youtube.com/watch?v=RNLo8AblWaY)
+
+上周Ame
+[https://www.youtube.com/watch?v=yJ1eTKnL0lU](https://www.youtube.com/watch?v=yJ1eTKnL0lU)
+
+
+-----
+
+####  wiig  
+##### 694#       发表于 2021-5-15 10:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">takamori握手还给了一个特写
+
+
+-----
+
+####  wiig  
+##### 695#       发表于 2021-5-15 11:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 696#       发表于 2021-5-15 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51256493&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-5-15 09:57</a>
+这次终于能清楚听出来是Gura了，戒断好几天了
+
+
+Ame...mixer尽力了</blockquote>
+明天amesame一起看粉丝家<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 697#       发表于 2021-5-15 12:03
+
+
+<img src="https://img.saraba1st.com/forum/202105/15/120300jblv05rxvxll0b6v.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (104.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-15 12:02 上传
+
+
+-----
+
+####  smy20011  
+##### 698#         楼主| 发表于 2021-5-15 13:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51257630&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-15 11:56</a>
+
+明天amesame一起看粉丝家</blockquote>
+得开两个窗口了，正好撞上虹EN
+
+
+-----
+
+####  帆乃花  
+##### 699#       发表于 2021-5-15 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51258907&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-15 13:59</a>
+
+得开两个窗口了，正好撞上虹EN</blockquote>
+虹en加一起就半小时
+
+
+-----
+
+####  湖边大人  
+##### 700#       发表于 2021-5-15 18:25
+
+
+我从不看holo的直播，但我一直在关注鲨鱼啥时候超过老爱。。。。
+
+也是有病哈哈
+
+
+-----
+
+####  smy20011  
+##### 701#         楼主| 发表于 2021-5-15 18:47
+
+
+<blockquote>湖边大人 发表于 2021-5-15 18:25
+我从不看holo的直播，但我一直在关注鲨鱼啥时候超过老爱。。。。
+
+也是有病哈哈 ...</blockquote>
+建议直接粉vtuber pdp（
+
+
+-----
+
+####  wiig  
+##### 702#       发表于 2021-5-15 21:53
+
+
+<img src="https://img.saraba1st.com/forum/202105/15/215329oqugqugu8eu6q6rz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (111.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-15 21:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/15/215335zwxs0hb5zrn0srzh.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (74.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-15 21:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/15/215341s9utam6b9lrwsrhj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (75.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-15 21:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/15/215347p7x2ow28ogl4eo7b.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (104.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-15 21:53 上传
+
+
+-----
+
+####  wiig  
+##### 703#       发表于 2021-5-15 23:38
+
+
+POV: you are gura's dropped ice cream
+
+<img src="https://p.sda1.dev/1/55a92c7a8115b57b13bf4247431126f4/IMG_CMP_77304366.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 704#       发表于 2021-5-16 00:00
+
+
+<img src="https://p.sda1.dev/1/ff350440d50f56331ccab81294dd5f4b/20210515_235439.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 705#         楼主| 发表于 2021-5-16 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51264542&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-16 00:00</a></blockquote>
+逐渐缺德
+
+
+-----
+
+####  s32244153  
+##### 706#       发表于 2021-5-16 10:34
+
+
+ 本帖最后由 s32244153 于 2021-5-16 11:29 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/103440t3fyzyjjlhpmnlyf.png" referrerpolicy="no-referrer">
+
+
+<strong>202105161034.png</strong> (144.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 10:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/112930ws378bu1lsfuu7uo.png" referrerpolicy="no-referrer">
+
+
+<strong>202105161129.png</strong> (277.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 11:29 上传
+
+
+-----
+
+####  wiig  
+##### 707#       发表于 2021-5-16 10:46
+
+
+喝水怎么喝了ame那杯
+
+
+-----
+
+####  wiig  
+##### 708#       发表于 2021-5-16 11:29
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/112908lojozuk2h2jumuso.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (132.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 11:29 上传
+
+
+-----
+
+####  smy20011  
+##### 709#         楼主| 发表于 2021-5-16 11:32
+
+
+<blockquote>wiig 发表于 2021-5-16 11:29
+</blockquote>
+魄真偶像
+
+
+-----
+
+####  wiig  
+##### 710#       发表于 2021-5-16 11:43
+
+
+Ame：想想如果Gura有大奶的话还会这么可爱吗<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 711#       发表于 2021-5-16 11:56
+
+
+Gura：你知道西瓜看起来怎么样的吗 Ame：平的<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">为了胜利不择手段
+
+
+-----
+
+####  smy20011  
+##### 712#         楼主| 发表于 2021-5-16 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51267305&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-16 11:56</a>
+
+Gura：你知道西瓜看起来怎么样的吗 Ame：平的为了胜利不择手段</blockquote>
+互相表白超可爱
+
+
+-----
+
+####  wiig  
+##### 713#       发表于 2021-5-16 13:23
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/132254f9aspsn47gej7p63.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (939.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 13:22 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/132259c1216f92xfn92yvt.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (215.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 13:22 上传
+
+
+-----
+
+####  wiig  
+##### 714#       发表于 2021-5-16 13:26
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/132520akk1odpf121dgq31.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (793.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 13:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/132602cy57qi1zda7zdwn1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (829.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 13:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/132610p41uaarsjrpaf362.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (329.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 13:26 上传
+
+
+-----
+
+####  wiig  
+##### 715#       发表于 2021-5-16 20:23
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/202301ub8bzanke6gyzmgt.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (88.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 20:23 上传
+
+
+-----
+
+####  wiig  
+##### 716#       发表于 2021-5-16 20:25
+
+
+ 本帖最后由 wiig 于 2021-5-16 20:29 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/202515wyqicmkwwwwviwwf.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (278.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 20:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/202951d5n54q8z5z8a34qn.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (555.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 20:29 上传
+
+
+-----
+
+####  wiig  
+##### 717#       发表于 2021-5-16 20:27
+
+
+<img src="https://img.saraba1st.com/forum/202105/16/202700jcb9shhaewv5wsb9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (118.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-16 20:27 上传
+
+
+-----
+
+####  smy20011  
+##### 718#         楼主| 发表于 2021-5-16 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51271657&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-16 20:23</a></blockquote>
+身高迫害2333
+
+
+-----
+
+####  wiig  
+##### 719#       发表于 2021-5-18 05:39
+
+
+<img src="https://p.sda1.dev/2/e5c50e392f7d5d83c0903ebe78fe84a5/IMG_CMP_31768509.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 720#       发表于 2021-5-18 10:47
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/104725uw31jf3jqf22qbqn.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (216.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 10:47 上传
+
+
+
+
+-----
+
+####  wiig  
+##### 721#       发表于 2021-5-18 10:48
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/104840mjlzixnrlqglxm0i.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (646.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 10:48 上传
+
+
+                         
