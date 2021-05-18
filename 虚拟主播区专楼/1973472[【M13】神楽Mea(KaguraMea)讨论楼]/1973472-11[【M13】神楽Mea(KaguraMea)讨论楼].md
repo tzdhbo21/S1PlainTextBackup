@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-18 01:47** 
+> ## **本文件最后更新于2021-05-18 13:45** 
 
 
 
@@ -5007,7 +5007,7 @@ lol突击的录播（刚打开几秒钟我就聋了<img src="https://static.sara
 ##### 15421#       发表于 2021-5-18 09:30
 
 
- 本帖最后由 时间在我手中 于 2021-5-18 09:41 编辑 
+ 本帖最后由 时间在我手中 于 2021-5-18 09:52 编辑 
 
 比起嗓子其实更该担心她生理，毕竟这人是那种很痛的体质<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
@@ -5018,5 +5018,331 @@ syl 昨天早上本来有事，结果睡过了（fleet有说），别人和她�
 
 敢情洗澡是因为全身黏糊糊的啊，昨晚TC也是因为这个睡不着才开播而且
 
+低血压那段有句高血压有害所以别惹她发火啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
 
-                                   
+歌回后自己做了点吃的，要变成合格的新娘了呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  Klience  
+##### 15422#       发表于 2021-5-18 09:49
+
+
+嗓子出问题就有借口不直播摸鱼了啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15423#       发表于 2021-5-18 09:54
+
+
+笑了 咩连aut的好友都删了 女粉地位要下降了吗 男粉要崛起了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 15424#       发表于 2021-5-18 09:55
+
+
+男粉×
+
+野男人√
+
+
+-----
+
+####  Klience  
+##### 15425#       发表于 2021-5-18 09:56
+
+
+为了野男人 连女粉都不要了 真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15426#       发表于 2021-5-18 09:59
+
+
+别想太多，删好友基本是通杀的）下次LOL就加回来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15427#       发表于 2021-5-18 10:02
+
+
+前几天刚说完绿熊没怎么和咩互动 好家伙 直接来了这出戏 咩sj石锤了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 15428#       发表于 2021-5-18 10:05
+
+
+感觉回到了过去，这种突袭<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">天天视奸s1
+
+
+-----
+
+####  JY要塞  
+##### 15429#       发表于 2021-5-18 10:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">绿熊的肉体
+
+
+-----
+
+####  Klience  
+##### 15430#       发表于 2021-5-18 10:10
+
+
+不过刚好 这样就顺便知道了绿熊的id 一看战绩记录 上一次玩还是去年年底玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15431#       发表于 2021-5-18 10:21
+
+
+感觉驴熊的交际圈包含咩的交际圈
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 15432#       发表于 2021-5-18 10:26
+
+
+反正和咩一样 又菜瘾又大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  往世雷书  
+##### 15433#       发表于 2021-5-18 11:13
+
+
+日本内阁办公室刚刚宣布的今年第一季度的国内生产总值，比上一季度再次降低低1.3%，其中不包括价格波动。换算为年率，则为负5.1%。2020财年的GDP增长率为负4.6%，这是二战后最糟糕的下降水平，超过了2008金融危机时的跌幅。                                                  快进到被天狗包养
+
+
+-----
+
+####  依旧ing  
+##### 15434#       发表于 2021-5-18 11:47
+
+
+天狗？野男人！
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cushaw  
+##### 15435#       发表于 2021-5-18 11:47
+
+
+快进到本子政府倒闭，交的税拿不回来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  yywzjsw  
+##### 15436#       发表于 2021-5-18 11:56
+
+
+不如日本核电站炸了，直接沉了，麻逃难来国内
+
+
+-----
+
+####  A2014720  
+##### 15437#       发表于 2021-5-18 12:36
+
+
+地鸣！地鸣！
+
+
+-----
+
+####  Klience  
+##### 15438#       发表于 2021-5-18 12:54
+
+
+该@一下无头无妈少年mk2了
+
+
+-----
+
+####  时间在我手中  
+##### 15439#       发表于 2021-5-18 13:01
+
+
+ 本帖最后由 时间在我手中 于 2021-5-18 13:04 编辑 
+
+啥东西，六字母复活？
+哦妈的唐突巨人梗，我还没反应过来艾伦mk2<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 15440#       发表于 2021-5-18 13:10
+
+
+你们这两楼我还真以为来活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  makourisu-2  
+##### 15441#       发表于 2021-5-18 14:57
+
+
+删好友这个，估计是后天又要来b限打LOL了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我就不明白了，打大乱斗不香嘛，体验感不错，观众看的乐呵，而且打的坑也不会让我过于血压升高。
+
+
+-----
+
+####  Klience  
+##### 15442#       发表于 2021-5-18 14:59
+
+
+大乱斗？运气游戏 全靠运气选英雄 然后对面都是poke英雄 己方都是笨比英雄 8分钟投了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15443#       发表于 2021-5-18 16:31
+
+
+大乱斗这人不是以前打过吗，我记得那次比普通匹配还自闭<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暴走的包子  
+##### 15444#       发表于 2021-5-18 19:35
+
+
+嗯玩几个英雄的玩大乱斗肯定是受罪，很可能随到的都没用过，就算换也是
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  十九号大侠  
+##### 15445#       发表于 2021-5-18 19:58
+
+
+不说了，我日服已经建好号了
+
+
+-----
+
+####  肥到终点  
+##### 15446#       发表于 2021-5-18 20:20
+
+
+开始出现bug了
+
+
+-----
+
+####  肥到终点  
+##### 15447#       发表于 2021-5-18 20:20
+
+
+ 本帖最后由 肥到终点 于 2021-5-18 21:45 编辑 
+
+风怒了，编辑编辑
+
+
+-----
+
+####  路人庚  
+##### 15448#       发表于 2021-5-18 21:22
+
+
+感觉要播了（
+
+
+-----
+
+####  Klience  
+##### 15449#       发表于 2021-5-18 21:29
+
+
+又是歌会 又能丢后台看比赛了 感谢咩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 15450#       发表于 2021-5-18 21:30
+
+
+被野男人嫌菜进不了车队才想起来直播是吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  Klience  
+##### 15451#       发表于 2021-5-18 21:31
+
+
+只会玩混子英雄谁要她 要不是能白嫖她的肉体 看都不看她一眼<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15452#       发表于 2021-5-18 21:33
+
+
+说着五月病结果感觉五月播的超多（
+
+
+-----
+
+####  时间在我手中  
+##### 15453#       发表于 2021-5-18 21:33
+
+
+回到家腰痛，正好刚睡醒这肥婆就要播了，舒服
+
+
+                                  
