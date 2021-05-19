@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 08:27** 
+> ## **本文件最后更新于2021-05-19 02:06** 
 
 
 
@@ -1275,4 +1275,225 @@ nijisenario，是en的官方小动画？
 —— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                                              
+-----
+
+####  wx41122  
+##### 104#       发表于 2021-5-18 09:27
+
+
+人鱼语言槽里的HMONG是苗语？美籍苗族人？
+
+
+-----
+
+####  Kojimaru  
+##### 105#       发表于 2021-5-18 09:33
+
+
+从人鱼这爱好来看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">年纪不小吧
+
+
+-----
+
+####  激光2000  
+##### 106#         楼主| 发表于 2021-5-18 09:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51288665&amp;ptid=2003757" target="_blank">wx41122 发表于 2021-5-18 09:27</a>
+
+人鱼语言槽里的HMONG是苗语？美籍苗族人？</blockquote>
+亚裔苗族没跑了，<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">你虹能找个身份这么特殊的人也是挺厉害的
+
+
+-----
+
+####  激光2000  
+##### 107#         楼主| 发表于 2021-5-18 09:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这玩的游戏，我觉得没30算好的了，阿姨控狂喜
+
+
+-----
+
+####  hulaoda007  
+##### 108#       发表于 2021-5-18 10:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51288792&amp;ptid=2003757" target="_blank">激光2000 发表于 2021-5-18 09:38</a>
+亚裔苗族没跑了，你虹能找个身份这么特殊的人也是挺厉害的</blockquote>
+  那么厉害，反而期待B站进出了。如果她肯。
+
+
+-----
+
+####  wuzhengkai  
+##### 109#       发表于 2021-5-18 10:34
+
+
+pomu那个gal履历搞不好也是30+的
+
+
+-----
+
+####  心垂万刃  
+##### 110#       发表于 2021-5-18 10:47
+
+
+虽然可能是亚裔苗族，但是应该是越南那边过去的，不一定会中文啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  激光2000  
+##### 111#         楼主| 发表于 2021-5-18 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51289178&amp;ptid=2003757" target="_blank">hulaoda007 发表于 2021-5-18 10:10</a>
+
+那么厉害，反而期待B站进出了。如果她肯。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">不太可能B站进出的，就算她本人是受过良好教育，对冲国有好感，也不会冒着被本来不多的en观众抛弃的风险批站进出，
+
+
+你虹批站进出一直在等所谓的彩虹cn，
+
+
+-----
+
+####  wuzhengkai  
+##### 112#       发表于 2021-5-18 11:05
+
+
+总结下
+
+pomu整活系大龄(?)宅女
+
+finana虚空萌音清楚担当(?)
+
+elira是最看好的 音质舒服 杂谈力可 唯一问题是重度氪金废人原批(可能也不是问题)
+
+
+-----
+
+####  poipanchao  
+##### 113#       发表于 2021-5-18 11:11
+
+
+狗罕见，中国人就要看国v！（）
+
+syl，说英语的二次元总觉得违和感严重，看不进去啊
+
+
+-----
+
+####  smy20011  
+##### 114#       发表于 2021-5-18 11:40
+
+
+<blockquote>poipanchao 发表于 2021-5-18 11:11
+狗罕见，中国人就要看国v！（）
+
+
+syl，说英语的二次元总觉得违和感严重，看不进去啊 ...</blockquote>
+以前我也是这么认为的，看了holoen那几只之后，才发现语言什么的根本没什么违和
+
+
+-----
+
+####  poipanchao  
+##### 115#       发表于 2021-5-18 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51290217&amp;ptid=2003757" target="_blank">smy20011 发表于 2021-5-18 11:40</a>
+以前我也是这么认为的，看了holoen那几只之后，才发现语言什么的根本没什么违和 ...</blockquote>
+就是看了才有感而发
+不管虹杏还是那些个白皮箱，都有些别扭
+不过英语听读没有日语好也是一个因素吧
+
+
+-----
+
+####  smy20011  
+##### 116#       发表于 2021-5-18 11:50
+
+
+<blockquote>poipanchao 发表于 2021-5-18 11:46
+就是看了才有感而发
+
+不管虹杏还是那些个白皮箱，都有些别扭
+
+不过英语听读没有日语好也是一个因素吧 ...</blockquote>
+如果不能直接听的话确实很痛苦，很多笑点还是有英语文化影响的。
+
+
+-----
+
+####  hulaoda007  
+##### 117#       发表于 2021-5-18 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51290217&amp;ptid=2003757" target="_blank">smy20011 发表于 2021-5-18 11:40</a>
+以前我也是这么认为的，看了holoen那几只之后，才发现语言什么的根本没什么违和 ...</blockquote>
+  我还是觉得有些违和...我印象里的美国萌萌女娃都是Pony那种的...
+
+
+-----
+
+####  hulaoda007  
+##### 118#       发表于 2021-5-18 12:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51289648&amp;ptid=2003757" target="_blank">激光2000 发表于 2021-5-18 10:54</a>
+不太可能B站进出的，就算她本人是受过良好教育，对冲国有好感，也不会冒着被本来不多的en观众抛弃 ...</blockquote>
+  也是，印尼都没进驻。
+
+
+-----
+
+####  alcoholic1000  
+##### 119#       发表于 2021-5-19 03:19
+
+
+<strong>  </strong><strong>Elira Pendora</strong> 5.18棉花糖回
+
+44:27 Second foreign language-Speaks a little bit of French
+
+51:29 "Do you like any specific male Niji livers?"-Fuwaminato senpai(Singing&amp;Original song with mafumafu),Mayuzumi senpai, Akina senpai 
+
+01:02:30  Likes musical Hamilton, watched Beauty and The Beast on Broadway(talk about Shrek the musical)
+
+01:30:20 Likes pineapple on pizza（建议先和同期打一架）
+
+01:07:43 Never done vocal training before
+
+01:50:20 Oshi color #95C8D8(Sky Blue)
+02:17:27 JUST NEVER NEVER EVER EVER EVER EVER GIVE YOU UP
+
+02:19:33 First anime Cardcaptor
+
+
+-----
+
+####  patema  
+##### 120#       发表于 2021-5-19 07:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51289648&amp;ptid=2003757" target="_blank">激光2000 发表于 2021-5-18 10:54</a>
+不太可能B站进出的，就算她本人是受过良好教育，对冲国有好感，也不会冒着被本来不多的en观众抛弃 ...</blockquote>
+虹cn连皮都给kr了，估计是吹的彻底吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TNY-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  lanslort  
+##### 121#       发表于 2021-5-19 09:14
+
+
+随便点进去听了一下就听到什么"lube station" "PP inspection"<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                             
