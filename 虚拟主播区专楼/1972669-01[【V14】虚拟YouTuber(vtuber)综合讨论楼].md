@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-18 18:11** 
+> ## **本文件最后更新于2021-05-19 14:45** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_fFW47" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_QJy3B" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_UzVkX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_Qp5vk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -13328,4 +13328,292 @@ syl
 syl 感觉五色战队是不是连一个月的团练都没有了，散的是不成样子
 
 
-                
+-----
+
+####  winda  
+##### 994#       发表于 2021-5-19 09:18
+
+
+ascc可是一路左肩上扬从3000到3w，fumi这第三期就已经右肩到2000以下，只能说是拙劣的模仿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 995#       发表于 2021-5-19 09:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> fumi搞的东西完全没梗，不敢玩欧米那些梗就算了，连你虹特色男女八卦关系都不敢玩，怕手怕脚能火就怪了，
+
+要我说，就照着厕所编排男女关系，把糟粕内容的给抛出去就好了
+
+
+-----
+
+####  Suny08  
+##### 996#       发表于 2021-5-19 11:04
+
+
+虹en今天三台同开龙2500人鱼1500精灵1100，看来凑热闹的杏en观众已经都跑了，这大概就是虹海外活跃观众的数量
+
+
+-----
+
+####  allenz2  
+##### 997#       发表于 2021-5-19 14:22
+
+
+几天不看，才知道彩虹真的完了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  IDIDIDID  
+##### 998#       发表于 2021-5-19 14:31
+
+
+<img src="https://img.saraba1st.com/forum/202105/19/143141y7w5vvwtg7s78vwd.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #114 - 'Tweets liked by Riku Tazumi _ ANYCOLOR .png</strong> (36.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-19 14:31 上传
+
+
+-----
+
+####  死体残留  
+##### 999#       发表于 2021-5-19 15:03
+
+
+运营的狗ssk
+
+
+-----
+
+####  qq845629713  
+##### 1000#       发表于 2021-5-19 15:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 别尬黑pst，人家拿了田角的钱的
+
+
+-----
+
+####  Suny08  
+##### 1001#       发表于 2021-5-19 18:19
+
+
+B送了葵皇一套衣服，这不得周周b限啊
+
+
+-----
+
+####  哈曼的YY  
+##### 1002#       发表于 2021-5-19 18:29
+
+
+b限dota可以吗
+
+
+-----
+
+####  OldGlory  
+##### 1003#       发表于 2021-5-19 18:36
+
+
+以前b站百万粉丝才能拿新衣服，现在要求反而降了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 1004#       发表于 2021-5-19 18:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">b站杏虹一个天一个地，要b百万金盾才能给衣服怕不是没可能 再说本社5w就送新衣服了
+
+
+-----
+
+####  hlazd  
+##### 1005#       发表于 2021-5-19 18:58
+
+
+[https://www.youtube.com/watch?v=QlbF0b31Iz0](https://www.youtube.com/watch?v=QlbF0b31Iz0)
+
+佐倉綾音がVTuberに!?『VTuberなんだが配信切り忘れたら伝説になってた』PV
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这应该算什么V
+
+
+-----
+
+####  hulaoda007  
+##### 1006#       发表于 2021-5-19 19:04
+
+
+  金发小男孩在劝源结婚后也要继续做个宅，并且告诉结衣“前川”不是出轨，只是推，这件事还蛮好笑的。
+
+
+-----
+
+####  心垂万刃  
+##### 1007#       发表于 2021-5-19 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51305805&amp;ptid=1972669" target="_blank">hlazd 发表于 2021-5-19 18:58</a>
+https://www.youtube.com/watch?v=QlbF0b31Iz0
+
+佐倉綾音がVTuberに!?『VTuberなんだが配信切り忘れたら伝説 ...</blockquote>
+等动画化再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1008#       发表于 2021-5-19 19:42
+
+
+雨宫天也直播游戏了，正经二次元饭难吃啊……
+
+
+-----
+
+####  IDIDIDID  
+##### 1009#       发表于 2021-5-19 20:03
+
+
+EMA - 反逆者の僕ら
+[https://www.youtube.com/watch?v=mzgIMIaQvmg](https://www.youtube.com/watch?v=mzgIMIaQvmg)
+
+
+口水是口水了点，但黑狮子的流水线产品都比misumi搞得好听多了。
+
+
+-----
+
+####  OldGlory  
+##### 1010#       发表于 2021-5-19 20:12
+
+
+[https://www.youtube.com/watch?v=D6J_CwcOp0o](https://www.youtube.com/watch?v=D6J_CwcOp0o)
+
+
+-----
+
+####  rzrbtk  
+##### 1011#       发表于 2021-5-19 20:14
+
+
+路易斯和天开的公式番组！天开终于…！！
+
+
+-----
+
+####  free  
+##### 1012#       发表于 2021-5-19 20:36
+
+
+原来美波直播唱歌是这个味的，怪不得都说谱皇是虚拟美波
+
+
+-----
+
+####  winda  
+##### 1013#       发表于 2021-5-19 20:53
+
+
+ 本帖最后由 winda 于 2021-5-19 20:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">wokka这jet eco局4杀太秀了
+syl恭喜预选突破
+
+
+-----
+
+####  Suzutsuki  
+##### 1014#       发表于 2021-5-19 21:08
+
+
+bora的订阅数增长数据有地方看吗 想看从出道到现在怎么增加的 平时没注意 今天一看都17w了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 1015#       发表于 2021-5-19 21:38
+
+
+ 本帖最后由 winda 于 2021-5-19 22:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">八云桑好强，决胜手枪局双杀，指挥也很强
+syl恭喜夺冠
+
+
+-----
+
+####  OldGlory  
+##### 1016#       发表于 2021-5-19 21:48
+
+
+葵皇这b限二动可不常见啊
+
+
+-----
+
+####  katern  
+##### 1017#       发表于 2021-5-19 22:23
+
+
+声优活少的时候挣个外快嘛，很正常
+
+
+-----
+
+####  pojjcc  
+##### 1018#       发表于 2021-5-19 22:29
+
+
+葵皇到底要干啥，不敢想了
+
+
+-----
+
+####  qq845629713  
+##### 1019#       发表于 2021-5-19 22:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是完全没征兆的，你虹自从改名那一刻，所有懒鬼就似乎像拨了弦一样开始动起来了，
+
+
+推测内部KPI淘汰机制开始正式运行了
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 1020#       发表于 2021-5-19 22:36
+
+
+吃人嘴软拿人手短，叔叔的任务罢了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  真飞鸟i  
+##### 1021#       发表于 2021-5-19 22:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">虹这只睡狮终于要全力搏兔了吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+               
