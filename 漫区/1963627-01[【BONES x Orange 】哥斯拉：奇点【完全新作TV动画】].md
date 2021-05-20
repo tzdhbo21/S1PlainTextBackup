@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-18 11:41** 
+> ## **本文件最后更新于2021-05-20 01:46** 
 
 
 
@@ -3040,7 +3040,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_Y8QQN" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_HfI4Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -8421,4 +8421,361 @@ image.png
 所以对本作的科学设定不抱什么希望了，脚本就是想堆砌物理学名词而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                           
+-----
+
+####  hsq0596  
+##### 662#       发表于 2021-5-18 20:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51280790&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-5-17 15:55</a>
+
+嘛，不过研究新材料刚开始专业肯定都是化学、材料、高分子之类的，没听过很正常吧
+
+要说理论不行， ...</blockquote>
+负折射率又不是啥黑科技，现实中早就有这类电磁超材料了。
+
+
+-----
+
+####  shudushimo  
+##### 663#       发表于 2021-5-18 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51295375&amp;ptid=1963627" target="_blank">hsq0596 发表于 2021-5-18 20:06</a>
+
+负折射率又不是啥黑科技，现实中早就有这类电磁超材料了。</blockquote>
+对啊，所以她讲时间折射的原理画个负折射率的光路图就是不对啊？有问题吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  teecoo00  
+##### 664#       发表于 2021-5-18 22:29
+
+
+倒也不必那么较真，本质还是娱乐性质的作品，圆城自己也说：本作是以哥斯拉做基础吹个大牛皮。对我来说逻辑上说得通的我都能接受
+
+
+-----
+
+####  海狍子  
+##### 665#       发表于 2021-5-18 22:35
+
+
+这楼里人均东大物理博士吗...（
+
+
+-----
+
+####  霜刀  
+##### 666#       发表于 2021-5-18 22:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你以为是蜘蛛，其实是章鱼。有被恶心到
+
+
+-----
+
+####  坂上菠萝  
+##### 667#       发表于 2021-5-18 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51296806&amp;ptid=1963627" target="_blank">霜刀 发表于 2021-5-18 22:45</a>
+
+你以为是蜘蛛，其实是章鱼。有被恶心到</blockquote>
+原型好像更掉san
+
+
+-----
+
+####  teecoo00  
+##### 668#       发表于 2021-5-18 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51296806&amp;ptid=1963627" target="_blank">霜刀 发表于 2021-5-18 22:45</a>
+
+你以为是蜘蛛，其实是章鱼。有被恶心到</blockquote>
+蓝多拉比黑多拉还是好看了点
+
+
+-----
+
+####  nuoer  
+##### 669#       发表于 2021-5-19 00:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51296968&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-5-18 23:06</a>
+蓝多拉比黑多拉还是好看了点</blockquote>
+对哥斯拉系列不是很了解，这玩意儿在其他作品里也是和蜘蛛一组的吗？
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  angelooo  
+##### 670#       发表于 2021-5-19 00:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51297834&amp;ptid=1963627" target="_blank">nuoer 发表于 2021-5-19 00:54</a>
+
+对哥斯拉系列不是很了解，这玩意儿在其他作品里也是和蜘蛛一组的吗？
+
+
+—— 来自 meizu 16s Pro, Android ...</blockquote>
+倒是和龙虾一组过，但不是动画里这种玩法<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  teecoo00  
+##### 671#       发表于 2021-5-19 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51297834&amp;ptid=1963627" target="_blank">nuoer 发表于 2021-5-19 00:54</a>
+
+对哥斯拉系列不是很了解，这玩意儿在其他作品里也是和蜘蛛一组的吗？
+
+
+—— 来自 meizu 16s Pro, Android ...</blockquote>
+最后出现的那只蓝色章鱼怪兽的原型叫黑多拉，有一部《哥斯拉大战黑多拉》的电影，哥斯拉起飞的名场面就出自这部<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  teecoo00  
+##### 672#       发表于 2021-5-19 17:30
+
+
+圆城今天在推上发的：2017年10月的SP计划试行方案（文字已隐藏）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+还做了个负折射率cube：[https://twitter.com/enjoetoh/status/1394798606943617026?s=21](https://twitter.com/enjoetoh/status/1394798606943617026?s=21)
+
+
+20210519172521.jpg
+(128.48 KB, 下载次数: 1)
+
+
+下载附件
+
+
+2021-5-19 17:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/19/173002gnfhzor0zvaov9n5.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  曦光  
+##### 673#       发表于 2021-5-19 18:30
+
+
+其实我觉得逻辑已经比绝大部分科幻圆很多了，但是涉及到穿越时间的科幻，即使牛逼如Kip Thorne到最后恐怕也经不起细想（当然可能有诺兰的锅），只能说有些时候也只能不要太认真了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  什伐赤  
+##### 674#       发表于 2021-5-19 19:43
+
+
+这玩意让人想起合金弹头里面水下面的螃蟹。
+
+
+-----
+
+####  夜颠覆  
+##### 675#       发表于 2021-5-19 20:40
+
+
+弄成蓝色的给我感觉像史莱姆，蜘蛛钢化了不是毛绒绒的写实那种也还好
+
+
+-----
+
+####  peh  
+##### 676#       发表于 2021-5-19 21:16
+
+
+哪怕科学设定解释得通，又不是这样啪啪堆术语就会好看了...
+
+
+-----
+
+####  AlfredXC  
+##### 677#       发表于 2021-5-19 21:49
+
+
+这靠一台jj打不过了吧
+
+
+-----
+
+####  封面杀手  
+##### 678#       发表于 2021-5-19 21:50
+
+
+ 本帖最后由 封面杀手 于 2021-5-19 22:34 编辑 
+
+只盯着让人头痛的术语，不把角色得出的理论和剧情发展结合大胆脑洞一下当然觉得不中看，就算理论不全看得懂，造药的上限也是吊打隔壁4S<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宁次子  
+##### 679#       发表于 2021-5-19 22:40
+
+
+打架拉胯，理论复杂，我管这部片子定义为……解密推理+怪兽生存的硬核逃脱片，我预言结局是靠解码怪兽之谜后的黑科技一波平推
+
+
+-----
+
+####  delta-h  
+##### 680#       发表于 2021-5-19 23:26
+
+
+哥总正式出场
+
+
+-----
+
+####  有妹是老婆  
+##### 681#       发表于 2021-5-20 00:15
+
+
+直到第8集还是云里雾里的，故弄玄虚，我从一个普通人角度看，觉得不好看。。。希望后面能打脸吧
+
+
+-----
+
+####  teecoo00  
+##### 682#       发表于 2021-5-20 00:27
+
+
+第九话，灾难正式开始来自: iPhone客户端
+
+
+-----
+
+####  Freakyyu  
+##### 683#       发表于 2021-5-20 00:51
+
+
+加上简体中文字幕我还是看不懂<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+喷射杰格跳上这么小一个船直接就压沉了吧
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  shudushimo  
+##### 684#       发表于 2021-5-20 02:44
+
+
+终于开始推主线了
+
+
+-----
+
+####  faight486  
+##### 685#       发表于 2021-5-20 06:13
+
+
+这个对称也太简单了吧。。。。
+
+
+图片1.jpg
+(59.14 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-20 06:12 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/20/061228knvx3dmnnahnvms7.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HGCG2  
+##### 686#       发表于 2021-5-20 07:12
+
+
+ 本帖最后由 HGCG2 于 2021-5-20 07:20 编辑 
+
+不懂了
+
+这是科学家造了什么超级电脑，让他算出答案后穿越时间回来报答案，但是计算机算出了若干个答案，这些答案为了分出谁才是唯一解打起来导致计算机疯了，于是派哥总回来毁灭人类釜底抽薪？
+
+
+-----
+
+####  云野十五  
+##### 687#       发表于 2021-5-20 08:36
+
+
+楼里真就人均物理高材生吗，感觉剧里的每个理论都能单独做个动画，不是很懂缝合在一起图个啥
+
+
+-----
+
+####  冰箱研会长  
+##### 688#       发表于 2021-5-20 08:39
+
+
+竟然有简中字幕了...
+
+
+-----
+
+####  云野十五  
+##### 689#       发表于 2021-5-20 08:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51309811&amp;ptid=1963627" target="_blank">冰箱研会长 发表于 2021-5-20 08:39</a>
+
+竟然有简中字幕了...</blockquote>
+上周楼里不就有人发了网飞出官中了，还说刚好续了会员<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  冰箱研会长  
+##### 690#       发表于 2021-5-20 08:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51309934&amp;ptid=1963627" target="_blank">云野十五 发表于 2021-5-20 08:54</a>
+
+上周楼里不就有人发了网飞出官中了，还说刚好续了会员</blockquote>
+最近赶论文没咋看楼 我上周看的时候还只有日英韩...
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  airshit  
+##### 691#       发表于 2021-5-20 09:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">pero2这量子波动速读的样子有点搞笑，同样都是AI机器人咋待遇差这么多，好期待两个机器人见面啊
+
+
+-----
+
+####  Lokay  
+##### 692#       发表于 2021-5-20 09:38
+
+
+拋开一堆术语名词，所谓“破局”简单说就是：怪兽打架，世界毁灭。
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                          
