@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-01 01:51** 
+> ## **本文件最后更新于2021-05-20 06:52** 
 
 
 
@@ -300,10 +300,7 @@ Xperia 1 仅主摄是索尼传感器、1 II 则是主摄+超广角。不知 1 II
 ####  被雨困住的城市  
 ##### 6#       发表于 2021-1-29 11:08
 
-
-888是真的不好……
-
-[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -909,10 +906,7 @@ m3 看起来只是小改款可能和 m ...</blockquote>
 ####  被雨困住的城市  
 ##### 57#       发表于 2021-3-29 18:17
 
-
-,<img src="https://p.sda1.dev/1/1932060b0f52ffa3940ce898b7af4e6e/IMG_CDA35F43CCDFED4AA6E52C1125465456.jpeg" referrerpolicy="no-referrer">
-
-—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1012,12 +1006,7 @@ sony的nfc功能不一直都是齐全的吗？</blockquote>
 ####  被雨困住的城市  
 ##### 66#       发表于 2021-4-1 17:03
 
-
- 本帖最后由 被雨困住的城市 于 2021-4-1 17:05 编辑 
-
-索尼今日宣布，新一代 Xperia 手机将于 4 月 14 日公布，此次发布会定于日本时间 4 月 14 日（星期三）16:30，也就是北京时间的 15:30
-
-[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1199,10 +1188,7 @@ sony的nfc功能不一直都是齐全的吗？</blockquote>
 ####  被雨困住的城市  
 ##### 80#       发表于 2021-4-3 10:05
 
-
-888显示只支持4k60啊……所以4k高刷就别指望啦
-
-[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1308,7 +1294,8 @@ sony的nfc功能不一直都是齐全的吗？</blockquote>
 ####  Gateone  
 ##### 89#       发表于 2021-4-10 15:50
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+这玩意拍照水平真的能到安卓第一梯队？
 
 
 -----
@@ -1653,25 +1640,7 @@ CPU骁龙888
 ####  被雨困住的城市  
 ##### 113#       发表于 2021-4-13 11:12
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50919442&amp;ptid=1985265" target="_blank">Cray 发表于 2021-04-13 02:05:58</a>
-Xperia 1 III
-
-显示屏6.5英寸
-
-4K
-
-120Hz刷新率
-
-240Hz残像减少技术
-
-240Hz触摸检测
-
-已安装OS Android 11
-
-CPU骁 ...</blockquote>888不是只支持4k60Hz显示吗？
-
-[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1679,7 +1648,10 @@ CPU骁 ...</blockquote>888不是只支持4k60Hz显示吗？
 ####  Gateone  
 ##### 114#       发表于 2021-4-13 11:16
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote>jzsgtx 发表于 2021-4-13 11:01
+后置还是三个12MP啊</blockquote>
+不是说imx557吊打所有cmos🐴
 
 
 -----
@@ -1699,7 +1671,11 @@ CPU骁 ...</blockquote>888不是只支持4k60Hz显示吗？
 ####  Gateone  
 ##### 116#       发表于 2021-4-13 11:21
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50921676&amp;ptid=1985265" target="_blank">jzsgtx 发表于 2021-4-13 11:19</a>
+
+是这样的话当然好，但总像素三代一直不变感觉怪怪的</blockquote>
+索尼摄像头规格真的低，感觉和苹果互有胜负<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -1724,19 +1700,7 @@ CPU骁 ...</blockquote>888不是只支持4k60Hz显示吗？
 ####  被雨困住的城市  
 ##### 118#       发表于 2021-4-13 13:12
 
-
- 本帖最后由 被雨困住的城市 于 2021-4-13 13:15 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50922710&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-04-13 12:46:17</a>
-索移的带鱼屏4K总像素量是低于2160P的
-
-当然说不定也是情报误传呢
-
-—— 来自 Sony XQ-AS72, Android 11 ...</blockquote>[https://www.qualcomm.com/product ... -5g-mobile-platform](https://www.qualcomm.com/products/snapdragon-888-5g-mobile-platform)
-
-我对iii支持4k高刷还是怀疑
-<img src="https://p.sda1.dev/1/36d7e707c11d3b4bb230910e5f99c1ae/IMG_49F2C19181EAA7272EAAFECC38608CD0.jpeg" referrerpolicy="no-referrer">
-
-[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1925,11 +1889,7 @@ https://www.qualcomm.com/products/snapdragon-888-5g-mobile-platform
 ####  被雨困住的城市  
 ##### 133#       发表于 2021-4-14 11:47
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50933118&amp;ptid=1985265" target="_blank">leystage 发表于 2021-04-14 11:46:13</a>
-其实马克兔我用港版+谷歌全家桶+微软全家桶+微信电报之类的通信工具，觉得即使升级到安卓11也挺稳定的… ...</blockquote>讲真，我是用了半天夏普r3，才感觉索尼还是做出不少努力的233
-
-[  -- 来自 能搜索的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1972,10 +1932,7 @@ https://www.qualcomm.com/products/snapdragon-888-5g-mobile-platform
 ####  被雨困住的城市  
 ##### 136#       发表于 2021-4-14 14:33
 
-
-B站有个转播的[https://live.bilibili.com/741569](https://live.bilibili.com/741569)
-
-[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3305,7 +3262,8 @@ J9110看哭了
 ####  Gateone  
 ##### 225#       发表于 2021-4-14 17:10
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+从cmos总面积看，索索依然拉垮
 
 
 -----
@@ -3417,7 +3375,12 @@ X1Ⅲ各方面看起来都挺香的，不过这个比例的6.5 ...</blockquote>
 ####  Gateone  
 ##### 234#       发表于 2021-4-14 17:31
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote>Mikumiku831 发表于 2021-4-14 17:29
+要的就是索尼系统这个味
+
+其他家的真用不惯</blockquote>
+这玩意多少钱？顶配8000块？
 
 
 -----
@@ -3644,7 +3607,10 @@ X1Ⅲ各方面看起来都挺香的，不过这个比例的6.5 ...</blockquote>
 ####  Gateone  
 ##### 251#       发表于 2021-4-14 18:31
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote>allenz2 发表于 2021-4-14 18:13
+仔细看了下，这次高速连拍和各种追焦功能3颗镜头都可用了，而且索尼宣称弱光下增强噪点减少，到时候看看样 ...</blockquote>
+想看dxo测1m3
 
 
 -----
@@ -3829,11 +3795,7 @@ Xperia 1 III 与 5 III 三颗后置摄像头 + 一个 3D iToF 感光元件都来
 ####  mlsweichen  
 ##### 266#       发表于 2021-4-14 20:14
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50938259&amp;ptid=1985265" target="_blank">帕林马哲理 发表于 2021-4-14 19:57</a>
-
-索尼这块OLED会是哪家出的呢？我还是受不了OLED在夜晚的观感。</blockquote>
-三星吧
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4198,14 +4160,7 @@ Mark3就拜拜了
 ####  被雨困住的城市  
 ##### 293#       发表于 2021-4-15 13:44
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50945510&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-04-15 13:14:56</a>
-要不是今年这破烂888。。。明年，明年一定（不过我怎么感觉明年高通要继续翻车
-
-
-从你索换到find x3之后，这 ...</blockquote>不是，ui上的设置，还是国产能改的多吧，索尼想把返回键放在右边都得adb，当然，比夏普强，夏普adb都没得改233
-
-[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4317,14 +4272,7 @@ Mark3就拜拜了
 ####  被雨困住的城市  
 ##### 301#       发表于 2021-4-15 15:29
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50946517&amp;ptid=1985265" target="_blank">yygundam 发表于 2021-04-15 14:53:22</a>
-我知道你索改这玩意需要adb，只是。。。我是左撇子，从来就没有改返回键的需求所以没感知。。。
-
-
-倒是fin ...</blockquote>噢噢，是这样啊，可能你是习惯啦类原生吧……
-
-[  -- 来自 能手机投票的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4404,8 +4352,7 @@ Mark3就拜拜了
 ####  被雨困住的城市  
 ##### 307#       发表于 2021-4-15 18:13
 
-
-提前数月发布，曝索尼 Xperia 5 III 将在第三季度上市
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4797,11 +4744,7 @@ NC750，IER NW-510N那种自己不带降噪处理芯片的降噪耳机好像也�
 ####  被雨困住的城市  
 ##### 337#       发表于 2021-4-19 10:38
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50982749&amp;ptid=1985265" target="_blank">2002126 发表于 2021-04-19 09:27:09</a>
-有线的降噪还真是便宜大碗，我之前1XX买了好多NC750</blockquote>有线降噪可以买tpoppers的e2啊，五十几块
-
-[  -- 来自 能看大图的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4922,11 +4865,7 @@ NC750，IER NW-510N那种自己不带降噪处理芯片的降噪耳机好像也�
 ####  被雨困住的城市  
 ##### 344#       发表于 2021-4-28 00:13
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51082907&amp;ptid=1985265" target="_blank">lysh_233 发表于 2021-4-28 00:07</a>
-
-话说一代1现在二手价格已经1700左右了，值得入手不？</blockquote>
-个人觉得不值吧，因为国产品牌855 6+128的机器，二手大概在1k多些吧
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4946,12 +4885,7 @@ NC750，IER NW-510N那种自己不带降噪处理芯片的降噪耳机好像也�
 ####  被雨困住的城市  
 ##### 346#       发表于 2021-4-28 00:35
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51083045&amp;ptid=1985265" target="_blank">lysh_233 发表于 2021-4-28 00:31</a>
-国产没有4K完整屏···完全接受不了屏幕带孔</blockquote>
-4k那国产确实是没有，但是不打孔的机器还是有的
-
-—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2.1
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5161,8 +5095,7 @@ https://b23.tv/JZb7Pf
 ####  wuzhou6058  
 ##### 361#       发表于 2021-5-1 08:26
 
-
-赶紧出，我好买mk2<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5218,4 +5151,410 @@ https://b23.tv/JZb7Pf
 这onesony该不会真的能成吧 这就是重组sony电子的全部实力吗
 
 
-                                     
+-----
+
+####  allenz2  
+##### 367#       发表于 2021-5-1 10:21
+
+
+ 本帖最后由 allenz2 于 2021-5-1 10:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51116138&amp;ptid=1985265" target="_blank">wsktcy 发表于 2021-5-1 08:47</a>
+现在阻止我换1 iii最大障碍就是拍照了，不知道有没有提升，是不是还是旗舰机里的垫底。xzp拍照拉胯让我彻底 ...</blockquote>
+去年开始就是主流旗舰水准了(限主摄)，今年应该4颗后置都调好了，前置估计一如既往的千元机水准
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  leystage  
+##### 368#         楼主| 发表于 2021-5-1 10:42
+
+
+<blockquote>jajajzz 发表于 2021-5-1 09:02
+这onesony该不会真的能成吧 这就是重组sony电子的全部实力吗</blockquote>
+One Sony（指原 Alpha 部门老板把老一套搬到手机部门）
+
+
+显示和音乐方面的话，虽然之前也有争议，但索尼总算也一直是有追求的。唯独相机过去虽然表面包装了一些但没拿到真本事
+
+
+-----
+
+####  哎哟卧槽了  
+##### 369#       发表于 2021-5-1 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51116713&amp;ptid=1985265" target="_blank">allenz2 发表于 2021-5-1 10:21</a>
+去年开始就是主流旗舰水准了(限主摄)，今年应该4颗后置都调好了，前置估计一如既往的千元机水准
+
+—— 来 ...</blockquote>
+Xperia1的攝像也不差了，主要是祖傳軟件太拉跨…
+
+— from Sony XQ-AT72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  jzsgtx  
+##### 370#       发表于 2021-5-1 12:01
+
+
+这价格有点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kaiki_aiolos  
+##### 371#       发表于 2021-5-1 15:15
+
+
+1M2国行带了GMS
+
+
+不知道这次1M3带不带，不想折腾港版系统了
+
+
+-----
+
+####  fishmanzero  
+##### 372#       发表于 2021-5-1 23:08
+
+
+Z巨巨称传闻中的价格是假的
+
+
+实际上-500吗2333
+
+
+-----
+
+####  Cray  
+##### 373#       发表于 2021-5-2 21:36
+
+
+ 本帖最后由 Cray 于 2021-5-2 23:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51116138&amp;ptid=1985265" target="_blank">wsktcy 发表于 2021-5-1 08:47</a>
+
+现在阻止我换1 iii最大障碍就是拍照了，不知道有没有提升，是不是还是旗舰机里的垫底。xzp拍照拉胯让我彻底 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202105/02/225920p29g6vvjjrbvqflr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>194822.jpg</strong> (1.01 MB, 下载次数: 0)
+
+下载附件
+
+2021-5-2 22:59 上传
+
+
+刚好去夫子庙拍了点。大师自动模式。
+
+
+索移现在的成像风格就是偏真实的，人眼看到的啥样拍出来的就是啥。 更多的最好自己拉lr。
+
+
+emmm s1的附件居然会自动压图？？
+
+
+1948221.jpg
+(1.23 MB, 下载次数: 2)
+
+
+下载附件
+
+
+2021-5-2 21:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/02/213534xyywdl3yxlas7e0v.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leystage  
+##### 374#         楼主| 发表于 2021-5-3 01:05
+
+
+<blockquote>Cray 发表于 2021-5-2 21:36
+刚好去夫子庙拍了点。大师自动模式。
+
+
+</blockquote>
+人民群众不喜欢真实啊…
+
+
+我曾一度巨魔过一个点子，希望有厂商在相机初次启动时明确让用户选择，是要尽量真实模式，还是所谓AI模式蓝天白云黑夜如白昼，美颜到萝卜表皮光滑如丝
+
+
+-----
+
+####  wsktcy  
+##### 375#       发表于 2021-5-3 01:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51129572&amp;ptid=1985265" target="_blank">Cray 发表于 2021-5-2 21:36</a>
+刚好去夫子庙拍了点。大师自动模式。</blockquote>
+这是1 iii拍出来的照片吗，感谢感谢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+还是准备入手前去直营店实地看看
+
+
+-----
+
+####  Cray  
+##### 376#       发表于 2021-5-3 04:42
+
+
+ 本帖最后由 Cray 于 2021-5-3 04:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131134&amp;ptid=1985265" target="_blank">wsktcy 发表于 2021-5-3 01:48</a>
+
+这是1 iii拍出来的照片吗，感谢感谢
+
+还是准备入手前去直营店实地看看 ...</blockquote>
+我用5ii拍的，对焦会差一点
+
+
+这张就对到前面的船了。应该手动点一下。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+s1附件会二压，实际颜色会更靓丽。
+
+
+<img src="https://img.saraba1st.com/forum/202105/03/044208e0t7otxymzmyrzdb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2004001.jpg</strong> (619.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-3 04:42 上传
+
+
+-----
+
+####  Cray  
+##### 377#       发表于 2021-5-3 05:00
+
+
+ 本帖最后由 Cray 于 2021-5-3 05:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51130932&amp;ptid=1985265" target="_blank">leystage 发表于 2021-5-3 01:05</a>
+
+人民群众不喜欢真实啊…
+
+
+我曾一度巨魔过一个点子，希望有厂商在相机初次启动时明确让用户选择，是要尽量 ...</blockquote>
+别说 家里人那个荣耀 拍照那个假虚化不知道怎么关   想拍人加背景就没辙了。。 最后开专业模式发现拍的一坨 寡淡的发白 夜景也是这样<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leystage  
+##### 378#         楼主| 发表于 2021-5-18 23:33
+
+
+据说灰色只有256G存储，黑色紫色都是256/512G两种规格
+
+
+-----
+
+####  Benthic  
+##### 379#       发表于 2021-5-19 14:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的是啥都好就是不好用，软件小细节能把人气死
+
+
+-----
+
+####  wsktcy  
+##### 380#       发表于 2021-5-20 05:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51297218&amp;ptid=1985265" target="_blank">leystage 发表于 2021-5-18 23:33</a>
+据说灰色只有256G存储，黑色紫色都是256/512G两种规格</blockquote>
+支持tf卡的话256也可以接受<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jzsgtx  
+##### 381#       发表于 2021-5-20 09:13
+
+
+看看今天发布国行会是什么价格<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+虽然已经决定7月买港行
+
+
+-----
+
+####  kaiki_aiolos  
+##### 382#       发表于 2021-5-20 09:34
+
+
+看看今天发布会会怎样吧
+
+
+-----
+
+####  leystage  
+##### 383#         楼主| 发表于 2021-5-20 09:46
+
+
+<blockquote>jzsgtx 发表于 2021-5-20 09:13
+看看今天发布国行会是什么价格
+
+
+虽然已经决定7月买港行</blockquote>
+盲猜一个8299/8699
+
+
+虽然决定买港行+1
+
+
+-----
+
+####  我很费纸  
+##### 384#       发表于 2021-5-20 10:37
+
+
+这一代没有870就跳过，镜头升级远不能说服我年年升级，更何况X5M3的升级内容有点挤牙膏了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+865机型虽然调度问题没能完全修复，但反正我也不用手机打游戏了，也不焦虑游戏性能了。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  間宫卓司  
+##### 385#       发表于 2021-5-20 12:42
+
+
+这牌子 1 5 10的区别在哪？？
+
+
+-----
+
+####  間宫卓司  
+##### 386#       发表于 2021-5-20 12:43
+
+
+ 本帖最后由 間宫卓司 于 2021-5-20 12:44 编辑 
+
+风怒
+
+
+-----
+
+####  間宫卓司  
+##### 387#       发表于 2021-5-20 12:43
+
+
+ 本帖最后由 間宫卓司 于 2021-5-20 12:44 编辑 
+
+风怒
+
+
+-----
+
+####  哎哟卧槽了  
+##### 388#       发表于 2021-5-20 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51311561&amp;ptid=1985265" target="_blank">間宫卓司 发表于 2021-5-20 12:42</a>
+
+这牌子 1 5 10的区别在哪？？</blockquote>
+旗艦 小號旗艦 中階機
+
+
+-----
+
+####  leystage  
+##### 389#         楼主| 发表于 2021-5-20 14:12
+
+
+<blockquote>間宫卓司 发表于 2021-5-20 12:42
+这牌子 1 5 10的区别在哪？？</blockquote>
+1 - 旗舰，索尼当下所有最新技术集于一身
+
+5 - 机身更小更轻便，删减诸如无线充电、iToF 等配置，但在软件和细节上可能比1更新一版（软件功能会在之后更新到同年的1）
+
+10 - 和1/5同样设计语言的中端机，价格在国内无竞争力，国行不引进
+
+
+和相机跟耳机类似，每代各产品线名称不变，后缀 Mark 罗马数字+1。于是今年是 Mark 3，写作 III
+
+
+-----
+
+####  matthewsteel  
+##### 390#       发表于 2021-5-20 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51131429&amp;ptid=1985265" target="_blank">Cray 发表于 2021-5-3 04:42</a>
+
+我用5ii拍的，对焦会差一点
+
+
+这张就对到前面的船了。应该手动点一下。</blockquote>
+纯净度好高,直出的么？
+
+
+
+
+-----
+
+####  kaiki_aiolos  
+##### 391#       发表于 2021-5-20 14:15
+
+
+ 本帖最后由 kaiki_aiolos 于 2021-5-20 14:17 编辑 
+
+风怒了
+
+
+-----
+
+####  kaiki_aiolos  
+##### 392#       发表于 2021-5-20 14:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51311561&amp;ptid=1985265" target="_blank">間宫卓司 发表于 2021-5-20 12:42</a>
+
+这牌子 1 5 10的区别在哪？？</blockquote>
+1：索尼最好的往这台机上堆
+
+5：小台一点，尽可能往1上靠拢，能堆的也堆上（除了无线充）
+
+10：垃圾
+
+
+-----
+
+####  leystage  
+##### 393#         楼主| 发表于 2021-5-20 14:20
+
+
+<blockquote>kaiki_aiolos 发表于 2021-5-20 14:16
+1：索尼最好的往这台机上堆
+
+5：小台一点，尽可能往1上靠拢，能堆的也堆上（除了无线充）
+
+10：垃圾 ...</blockquote>
+相比之下你这个简单易懂，哈哈哈
+
+
+-----
+
+####  MuAmUa  
+##### 394#       发表于 2021-5-20 14:35
+
+
+零售价8499和9499元
+
+
+                                    

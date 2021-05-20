@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-20 01:41** 
+> ## **本文件最后更新于2021-05-20 06:48** 
 
 
 
@@ -6533,4 +6533,399 @@ nmd上班不能带耳机怎么看<img src="https://static.saraba1st.com/image/sm
 这人早起6点就打了两场排位 打的跟屎一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-                               
+
+
+-----
+
+####  yywzjsw  
+##### 15571#       发表于 2021-5-20 09:43
+
+
+怎么唱的搞自己结婚似的
+
+
+-----
+
+####  Klience  
+##### 15572#       发表于 2021-5-20 09:45
+
+
+好了 页数也是520了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15573#       发表于 2021-5-20 09:46
+
+
+暗示我和小麻要结婚了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 15574#       发表于 2021-5-20 09:48
+
+
+那我是第一个520
+
+
+-----
+
+####  A2014720  
+##### 15575#       发表于 2021-5-20 10:03
+
+
+喝点酒都比你神志清醒
+
+啊啊，她真软，想艹
+
+
+-----
+
+####  时间在我手中  
+##### 15576#       发表于 2021-5-20 10:05
+
+
+ 本帖最后由 时间在我手中 于 2021-5-20 10:12 编辑 
+
+像是TC假酒模式搬到404一样
+
+差点就直接昏睡模式了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+好蠢啊臭女人<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15577#       发表于 2021-5-20 10:14
+
+
+【想说的话会被脑子弄得奇怪】
+【好喝啊】
+【上年纪了】
+【现在上年纪了】
+【15岁不能用来冲吧】
+【17岁才行吧】
+【17岁的男生不错嘛】
+【这是我一直以来的愿望】
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+求熟肉<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15578#       发表于 2021-5-20 10:16
+
+
+老麻吃嫩草是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15579#       发表于 2021-5-20 10:22
+
+
+老麻来吃我吧<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15580#       发表于 2021-5-20 10:27
+
+
+你有种就播到今晚九点啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 15581#       发表于 2021-5-20 10:29
+
+
+小麻我爱你<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15582#       发表于 2021-5-20 10:33
+
+
+去朋友家用电脑发现朋友看上原亚衣可还行
+
+
+-----
+
+####  Klience  
+##### 15583#       发表于 2021-5-20 10:37
+
+
+你说的之前是不是两年前<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 15584#       发表于 2021-5-20 10:41
+
+
+这杂谈节奏真好
+
+希望真的能坚挺到下午三点<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15585#       发表于 2021-5-20 10:42
+
+
+这人竟然看了msi，虽然我不懂这啥比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15586#       发表于 2021-5-20 10:42
+
+
+dfm这个上单确实可以 打dk的时候真的可惜了 LJL真的不容易啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15587#       发表于 2021-5-20 10:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51310930&amp;ptid=1973472" target="_blank">Mikumiku831 发表于 2021-5-20 10:41</a>
+
+这杂谈节奏真好
+
+希望真的能坚挺到下午三点</blockquote>
+下午两点预定换档术力口歌会，她有种唱7小时，我这次拿命去做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  燃烧的石头  
+##### 15588#       发表于 2021-5-20 10:43
+
+
+羡慕你们能看直播的，我上班摸鱼的最大程度就是刷s1了
+
+
+-----
+
+####  Klience  
+##### 15589#       发表于 2021-5-20 10:45
+
+
+买个蓝牙耳机啊带着听啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15590#       发表于 2021-5-20 10:45
+
+
+ 他就那么喜欢明日花吗
+
+
+-----
+
+####  Mikumiku831  
+##### 15591#       发表于 2021-5-20 10:46
+
+
+最高指示 看明日花<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 15592#       发表于 2021-5-20 10:46
+
+
+蓝牙耳机你值得拥有，挂后台。
+
+
+-----
+
+####  时间在我手中  
+##### 15593#       发表于 2021-5-20 10:54
+
+
+草，这舌头打钉子哈人
+
+
+-----
+
+####  燃烧的石头  
+##### 15594#       发表于 2021-5-20 10:59
+
+
+只能看录播了，急急急，工作性质，没办法挂后台的，闲的时候刷一下网页就不错了
+
+
+-----
+
+####  路人庚  
+##### 15595#       发表于 2021-5-20 12:47
+
+
+今天这个档看来要慢慢补了
+
+
+（感觉你咩姐进入异常状态后的直播效果都挺不错的
+
+
+-----
+
+####  Klience  
+##### 15596#       发表于 2021-5-20 12:52
+
+
+看能不能打破5个小时的记录了 哦 5个小时是连唱不带停的 那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15597#       发表于 2021-5-20 12:56
+
+
+不要想着打破什么记录，你咩姐18年就耐久过24小时（
+
+
+-----
+
+####  草牛  
+##### 15598#       发表于 2021-5-20 13:56
+
+
+久违的杂谈回，这不是很能聊吗
+
+
+-----
+
+####  时间在我手中  
+##### 15599#       发表于 2021-5-20 14:01
+
+
+我已经在等奥术魔刃回了
+
+
+-----
+
+####  yywzjsw  
+##### 15600#       发表于 2021-5-20 14:06
+
+
+等个半夜歌回，怎么看都是起不来的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 15601#       发表于 2021-5-20 14:13
+
+
+半夜熬死人然后回老家是吧，说好了嗷
+
+
+-----
+
+####  时间在我手中  
+##### 15602#       发表于 2021-5-20 14:13
+
+
+ 本帖最后由 时间在我手中 于 2021-5-20 14:15 编辑 
+
+风怒编辑，今天台球好卡啊
+
+
+-----
+
+####  gongge666  
+##### 15603#       发表于 2021-5-20 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51310979&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-5-20 10:45</a>
+
+他就那么喜欢明日花吗</blockquote>
+她明显是不看的，她常说的几个都是推特营业比较牛的**。这群老女人你说一个20岁的会喜欢那是不可能的
+
+
+-----
+
+####  古战场亡魂  
+##### 15604#       发表于 2021-5-20 14:26
+
+
+年轻真好啊。这都能撑，换个年纪大的已经猝死了。
+
+
+-----
+
+####  时间在我手中  
+##### 15605#       发表于 2021-5-20 14:27
+
+
+ 本帖最后由 时间在我手中 于 2021-5-20 14:36 编辑 
+
+我中午没睡已经快去世边缘了说实话，但是想了想熬一天也多半死不了，
+
+
+卧槽，竟然没睡
+
+
+-----
+
+####  十九号大侠  
+##### 15606#       发表于 2021-5-20 14:38
+
+
+年纪大就别跟着熬了，
+
+
+-----
+
+####  雪风utopia  
+##### 15607#       发表于 2021-5-20 14:40
+
+
+老年人就好好休息去<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15608#       发表于 2021-5-20 14:41
+
+
+我这年纪不算老吧···<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">这人播了我有精神，但是早上录播好像炸了
+
+
+-----
+
+####  yywzjsw  
+##### 15609#       发表于 2021-5-20 14:42
+
+
+竟然起来了
+
+
+                             
