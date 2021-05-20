@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-18 11:34** 
+> ## **本文件最后更新于2021-05-20 09:39** 
 
 
 
@@ -702,4 +702,406 @@ update：已经200w了，今天应该会发个推然后不播。有点赞，但2
 明天可能联动，等于说今天又没了，然后明天喉咙不舒服再摸，这一套流程好像在哪见过<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                                               
+-----
+
+####  17119854  
+##### 6062#       发表于 2021-5-18 20:06
+
+
+ 本帖最后由 17119854 于 2021-5-19 00:14 编辑 
+
+明天可能是夸紫鸭的3人马趴？
+
+JST 22:00 紫夸鸭粥4人马里奥派对
+
+
+-----
+
+####  梅斯之围  
+##### 6063#       发表于 2021-5-18 20:23
+
+
+联动应该不会鸽的吧
+
+
+-----
+
+####  doushike  
+##### 6064#       发表于 2021-5-18 20:57
+
+
+夸宝鸽的联动可不少
+
+
+-----
+
+####  面具13  
+##### 6065#       发表于 2021-5-18 21:01
+
+
+5月份才过了不到2/3，她就已经播了两次正常直播，一次会限和一次免费live，这么高强度的使用嗓子，会疼需要休息也是在所难免的，要休息我举双手支持。横向比较其它偶像，一个月可能就活动一次，平时推特隔好多天才可能动一次，要学会知足<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+等到直播同接回到4000的时候，能不能再次见到当初的冷面无情的数字厨夸宝<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 6066#       发表于 2021-5-18 21:09
+
+
+不懂就问，联动什么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 6067#       发表于 2021-5-18 23:47
+
+
+看同接数字的话隔壁狗宝虽然摸但是也不差
+
+
+-----
+
+####  面具13  
+##### 6068#       发表于 2021-5-19 09:27
+
+
+夸宝声线虽然能吸引一部分人但终究有限，不像nakiri银铃般的笑声有破坏力，所以别人就算更摸点，也能做到更高一点的同接和更高的sc收入。
+
+
+-----
+
+####  ylssb10438  
+##### 6069#       发表于 2021-5-19 11:04
+
+
+老天爷赏饭吃是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">就算播的时长短播的内容少，爱指导，有事没事和现实男性女性朋友开黑推特甜蜜互动依然能脑控着百鬼众（不论新老观众）
+
+麻麻的要是凛子偷偷和男主播开黑被抓包那场面简直不敢想了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6070#       发表于 2021-5-19 18:06
+
+
+ 本帖最后由 面具13 于 2021-5-19 18:41 编辑 
+
+听说今天油管不具合，是不是联动要取消了？9点诗音频道熟人马趴
+
+
+-----
+
+####  乌鸦绅士  
+##### 6071#       发表于 2021-5-19 21:10
+
+
+盐水<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 6072#       发表于 2021-5-19 21:15
+
+
+看来嗓子是真没好
+害盐水呢，盐水早就不攻自破了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 6073#       发表于 2021-5-19 21:49
+
+
+难得的回来，只能看联动，吵死了，都听不到夸的声音<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  离魂仙  
+##### 6074#       发表于 2021-5-19 22:43
+
+
+ 本帖最后由 离魂仙 于 2021-5-19 22:45 编辑 
+
+友達ないけど、お金持ち
+勝てないけど、家族いる
+これは人生！！
+
+
+-----
+
+####  Medling  
+##### 6075#       发表于 2021-5-19 23:38
+
+
+<img src="https://img.saraba1st.com/forum/202105/19/233804aj7lizilzirt3ip2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210519233753.jpg</strong> (230.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-19 23:38 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“是本人吗”
+
+
+-----
+
+####  面具13  
+##### 6076#       发表于 2021-5-20 07:36
+
+
+怎么就盐水不攻自破了？不是看在紫宝的面子能有昨天的联动？盐水yyds<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 6077#       发表于 2021-5-20 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51308450&amp;ptid=1947500" target="_blank">Medling 发表于 2021-5-19 23:38</a>
+
+“是本人吗”</blockquote>
+矮矮胖胖真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nevp  
+##### 6078#       发表于 2021-5-20 14:03
+
+
+ 本帖最后由 nevp 于 2021-5-20 15:15 编辑 
+
+最近这个状态，哪怕说明白休息一段时间也是好事，好歹可以踏实干别的去了
+
+
+-----
+
+####  梅斯之围  
+##### 6079#       发表于 2021-5-20 14:10
+
+
+怎么喉咙没好就歌回，还挑工作日傍晚这种怪时间<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+播这么早，晚上不二动的话肯定是520晚上跟金主私联了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 6080#       发表于 2021-5-20 14:32
+
+
+怎么改杂谈了
+
+
+-----
+
+####  Maonpuyo  
+##### 6081#       发表于 2021-5-20 14:40
+
+
+第n+1次活动休止要来了吗
+
+
+-----
+
+####  星の守  
+##### 6082#       发表于 2021-5-20 15:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lightsuger  
+##### 6083#       发表于 2021-5-20 15:51
+
+
+这人早就对直播没兴趣了
+
+以前七夕参加线下都要赶回家播一回，现在呢<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+待機所でのコメント欄で心無いコメント、荒らしが多かったため、メンバー限定にさせていただいています。
+
+笑嘻了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 6084#       发表于 2021-5-20 16:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">润润让道的大事直播，嫌评论区不友善开了会限，不会是live取消了吧
+
+
+-----
+
+####  Kanchiki  
+##### 6085#       发表于 2021-5-20 16:10
+
+
+概要栏还写着谷子的链接啊翻唱的链接啥的，引退应该不至于吧
+
+
+-----
+
+####  星の守  
+##### 6086#       发表于 2021-5-20 16:11
+
+
+最大可能發現嗓子還沒好，要休息一段時間<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 6087#       发表于 2021-5-20 16:15
+
+
+休息一段时间算大事吗？不是日常吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 6088#       发表于 2021-5-20 16:17
+
+
+前两次大事的话，第一次是和运营因活动方向意见不合而休止，第二次是大乱斗约战炎上道歉
+
+
+-----
+
+####  nevp  
+##### 6089#       发表于 2021-5-20 16:17
+
+
+总而言之不像是有好事，那就希望没那么坏吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 6090#       发表于 2021-5-20 17:04
+
+
+直播能多用用这个声线吗
+
+
+
+
+-----
+
+####  离魂仙  
+##### 6091#       发表于 2021-5-20 17:07
+
+
+ 本帖最后由 离魂仙 于 2021-5-20 17:17 编辑 
+
+音量调最大，差点..了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">忏悔中
+
+
+念稿子是吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+没意思
+
+大概就是“在日本冲葱楼里发‘破防了’朗报”这种级别的お気持ち
+
+没意思
+
+播得不开心、环境不友好、观众更没意思、只有乐子人无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 6092#       发表于 2021-5-20 17:10
+
+
+感觉没啥事啊
+
+
+-----
+
+####  Kanchiki  
+##### 6093#       发表于 2021-5-20 17:12
+
+
+ 本帖最后由 Kanchiki 于 2021-5-20 17:16 编辑 
+
+总结 黑泥看太多了还回应了频道概要栏
+
+还谢谢粽子让路
+
+怕不是天天爬串给自己加压力
+
+
+-----
+
+####  lightsuger  
+##### 6094#       发表于 2021-5-20 17:17
+
+
+宅宅真好骗，哭一哭说什么都信了
+
+
+-----
+
+####  凑小麦  
+##### 6095#       发表于 2021-5-20 17:21
+
+
+我超 好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 6096#       发表于 2021-5-20 17:25
+
+
+ 本帖最后由 乌鸦绅士 于 2021-5-20 17:29 编辑 
+
+应该是看到推上天天在tag上发黑泥的人了吧，翻fanart时想不看到都难。
+
+
+草，刚刚去看了一下结果有两个号已经删号跑路了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 6097#       发表于 2021-5-20 17:29
+
+
+ 本帖最后由 FCCHua 于 2021-5-20 17:31 编辑 
+
+所以这个月已经知道的26号联动还弄吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 6098#       发表于 2021-5-20 17:37
+
+
+这次心态炸肯定不是被黑泥破防这么简单。从二月份起直播频率就开始降低，身体问题也在一直念叨到现在，再加上搬家之后家庭关系什么的。最近健康变差和推上打tag跳脸的只能算是最后一根稻草。
+主播心态影响观众，观众心态又反过来影响主播倒是真的。
+只能说感谢夸宝给我一个月时间去干正事，终于不用天天惦记今天播不播了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                              

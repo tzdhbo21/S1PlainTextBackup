@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-19 14:45** 
+> ## **本文件最后更新于2021-05-20 09:47** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_UzVkX" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_Qp5vk" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_za9yS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_mp37G" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -13616,4 +13616,334 @@ syl恭喜夺冠
 —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-               
+-----
+
+####  獅白ぼたん  
+##### 1022#       发表于 2021-5-19 22:48
+
+
+好事，木口特别是运营该有人踢踢他们屁股了
+
+不然能无限给你摆烂下去<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 1023#       发表于 2021-5-19 22:50
+
+
+可不敢想<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1024#       发表于 2021-5-19 22:53
+
+
+梦月萝娅给我速速复活回归！
+
+
+-----
+
+####  hulaoda007  
+##### 1025#       发表于 2021-5-19 22:55
+
+
+  尤德里克和地缚灵之类的能搞吗？
+
+
+-----
+
+####  Aminor  
+##### 1026#       发表于 2021-5-19 22:58
+
+
+葵是要出b站装扮了吧，爱丽丝出装扮的时候写的2434第一弹
+
+
+-----
+
+####  pojjcc  
+##### 1027#       发表于 2021-5-19 22:59
+
+
+出装扮倒是完全可能，多播几次带动下销量
+
+
+-----
+
+####  noHentai  
+##### 1028#       发表于 2021-5-19 23:03
+
+
+据说B站涨粉也会送新衣服
+
+
+-----
+
+####  winda  
+##### 1029#       发表于 2021-5-19 23:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">田角可是要让stf和liver能多数决同意改名的啊，不想改名的老油条好好掂量下自己吧。
+另外kr那边完全不知道，不上道啊不上道<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 1030#       发表于 2021-5-20 00:27
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-20 00:33 编辑 
+
+「涨粉送新衣服？！起球毛衣有救了」本来是想这么说的，打开B站看一眼订阅
+
+不配啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+Syl，Apex Legends 北アジア太平洋大会「Championship – APAC North」が開幕　夏色まつり、加藤純一など豪華ゲストも参加（还有バーチャルゴリラ、常闇トワ）
+
+
+-----
+
+####  caupollen  
+##### 1031#       发表于 2021-5-20 00:32
+
+
+想知道这一波搬家梁木要播多少才能抵消<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 1032#       发表于 2021-5-20 00:36
+
+
+应该是要出装扮过来回馈一下葵熊吧，爱丽丝那个是2434第一弹
+
+
+-----
+
+####  smy20011  
+##### 1033#       发表于 2021-5-20 00:47
+
+
+[https://twitter.com/PRESTIGE_BOYPR](https://twitter.com/PRESTIGE_BOYPR)
+
+
+有人发这个么？AV箱
+
+
+-----
+
+####  渡鸦骑士  
+##### 1034#       发表于 2021-5-20 01:02
+
+
+印象里有提到过和深崎暮人合作的这个。
+出道了嘛？
+
+
+-----
+
+####  OldGlory  
+##### 1035#       发表于 2021-5-20 01:55
+
+
+#PomuLive #PomuPaint #bigppmemes
+
+【JAPANESE STUDY】Nihongo Jouzu!!!【NIJISANJI EN | LazuLight】
+
+
+出道第三天2000最喜欢的学日语就来了
+
+
+-----
+
+####  雪风utopia  
+##### 1036#       发表于 2021-5-20 02:04
+
+
+阿葵的b站装扮里面会有搬家的表情吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kojimaru  
+##### 1037#       发表于 2021-5-20 08:58
+
+
+ 本帖最后由 Kojimaru 于 2021-5-20 09:02 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/058.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 1038#       发表于 2021-5-20 09:00
+
+
+  诶...？
+
+
+-----
+
+####  Yurumi  
+##### 1039#       发表于 2021-5-20 09:30
+
+
+今晚奈奈8点和大桥彩香联动
+
+看到b限会害怕，不安，请不要再提了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+D621E69C-900C-430F-ABAC-F1496965496A.jpeg
+(337.15 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-20 09:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/20/092410qbf6sggwjatd41tg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1040#       发表于 2021-5-20 11:00
+
+
+杏alt又有新活了呀，这次怎么连脸都画不圆了
+
+说到这个圆脸烂东西，又开始嚷嚷自己的破烂签名周边补货了，卖不出去看给这个烂货圆脸急的，嘻嘻
+
+
+<img src="https://img.saraba1st.com/forum/202105/20/110040neqmmhq51mhmwec5.png" referrerpolicy="no-referrer">
+
+
+<strong>alt.png</strong> (21.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-20 11:00 上传
+
+
+-----
+
+####  FCCHua  
+##### 1041#       发表于 2021-5-20 11:01
+
+
+小熊猫这直播有意思<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nian1538  
+##### 1042#       发表于 2021-5-20 14:03
+
+
+What nijisanji failed to understand is the exact same thing that all those halo killers and wow killers and cod killers back in the day didn't get, which is that you cannot compete with the industry leader by offering the same product they are offering with minor differences. 
+What they should've done is emphasised the qualities that made them different from hololive, namely their more whacky character designs and male vtubers. It would have been riskier but they would have a greater chance of attracting an audience that isn't already invested into hololive. Instead they just copied hololive wholesale right down to the fantasy themes and idol trappings. What possible reason could there be for someone who's already invested into hololive to check out someone who is best described as "discount hololive"? Maybe if they are really bored and want to give them a chance, but that's it. By going down this path, they've ensure that they'll always be in hololive's shadow.
+
+
+-----
+
+####  winda  
+##### 1043#       发表于 2021-5-20 14:10
+
+
+ 本帖最后由 winda 于 2021-5-20 15:23 编辑 
+
+风怒
+
+
+-----
+
+####  winda  
+##### 1044#       发表于 2021-5-20 14:11
+
+
+ 本帖最后由 winda 于 2021-5-20 15:24 编辑 
+
+风怒
+
+
+-----
+
+####  winda  
+##### 1045#       发表于 2021-5-20 14:11
+
+
+https://m.twitch.tv/banhada2434<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+这么快就在twich播，kr5期之光
+
+
+-----
+
+####  Ketestrait  
+##### 1046#       发表于 2021-5-20 14:16
+
+
+小熊猫怎么在直播睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1047#       发表于 2021-5-20 16:07
+
+
+佐藤希颜出直播居然有5700同接，这比夏色祭都高了吧，有这么多人喜欢看圆脸不人气声优吗？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 1048#       发表于 2021-5-20 16:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5700个免费
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  雪风utopia  
+##### 1049#       发表于 2021-5-20 16:21
+
+
+5700个只会喊嘻嘻的免费<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1050#       发表于 2021-5-20 17:05
+
+
+四爱发推让人来看自己今晚7点的B站直播，这弱智操作，能上推的还有兴趣去B看你吗？<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  死体残留  
+##### 1051#       发表于 2021-5-20 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51313967&amp;ptid=1972669" target="_blank">free 发表于 2021-5-20 17:05</a>
+四爱发推让人来看自己今晚7点的B站直播，这弱智操作，能上推的还有兴趣去B看你吗？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">之前让本尊转推了，可能会有境外anti跟过去
+
+
+              
