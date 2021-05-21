@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-20 06:48** 
+> ## **本文件最后更新于2021-05-21 03:01** 
 
 
 
@@ -6928,4 +6928,216 @@ dfm这个上单确实可以 打dk的时候真的可惜了 LJL真的不容易啊<
 竟然起来了
 
 
-                             
+-----
+
+####  Klience  
+##### 15610#       发表于 2021-5-20 14:49
+
+
+睡醒听歌真舒服<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 15611#       发表于 2021-5-20 14:54
+
+
+今天的同传是谁啊，这么nb的样子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15612#       发表于 2021-5-20 15:26
+
+
+Donut Hole 我爱听 ntm wsm<img src="https://static.saraba1st.com/image/smiley/face2017/229.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15613#       发表于 2021-5-20 15:30
+
+
+ 本帖最后由 时间在我手中 于 2021-5-20 15:36 编辑 
+
+高音曲这种状态拿头唱，少女ray都能翻的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+能撑到我下班吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">轮回唱的还行了
+
+
+-----
+
+####  A2014720  
+##### 15614#       发表于 2021-5-20 15:40
+
+
+劣等劣等
+
+
+-----
+
+####  TomDu  
+##### 15615#       发表于 2021-5-20 15:47
+
+
+艹我以为刚才下了，居然还在唱，这身体受得了吗
+
+
+-----
+
+####  时间在我手中  
+##### 15616#       发表于 2021-5-20 15:48
+
+
+明天要回老家了，为了不被父母骂所以硬核调作息了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 15617#       发表于 2021-5-20 15:52
+
+
+上车补觉继续被骂<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 15618#       发表于 2021-5-20 16:41
+
+
+呜，竟然唱这首，大多数都是爱3，偶尔爱1。爱2是真没什么人唱。
+
+
+-----
+
+####  Mikumiku831  
+##### 15619#       发表于 2021-5-20 16:46
+
+
+一时之间真听不出是1还是2<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+号哭唱这么嗨没问题吗
+
+感觉我上班听一天都比她直播累
+
+年轻就是好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15620#       发表于 2021-5-20 17:01
+
+
+今天感觉唱的还行啊，楼友们给个意见，不过前提是有档
+
+
+-----
+
+####  kenjjj  
+##### 15621#       发表于 2021-5-20 17:21
+
+
+嗯播了8个小时也太顶了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，1/3天啊
+
+
+-----
+
+####  yywzjsw  
+##### 15622#       发表于 2021-5-20 17:22
+
+
+提了520
+
+
+-----
+
+####  Mikumiku831  
+##### 15623#       发表于 2021-5-20 17:22
+
+
+我爱你<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15624#       发表于 2021-5-20 17:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">想抱着她
+
+
+-----
+
+####  时雨rain  
+##### 15625#       发表于 2021-5-20 17:26
+
+
+好，养噶迟了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15626#       发表于 2021-5-20 17:41
+
+
+这人一开始打算播到几点来着 怎么打完游戏回来就不见人了
+
+
+-----
+
+####  时间在我手中  
+##### 15627#       发表于 2021-5-20 17:45
+
+
+从日本时间10点到8点到6点，最后五点半顶不住下了呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15628#       发表于 2021-5-20 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">说好的熬到10点呢，下班了人跑了（下班晚的悲哀
+
+
+-----
+
+####  rosevalley46  
+##### 15629#       发表于 2021-5-21 10:14
+
+
+醒了,发了个fleet,应该是赶车回家了
+
+昨天27w粉了
+
+
+-----
+
+####  gongge666  
+##### 15630#       发表于 2021-5-21 10:39
+
+
+这个月看来没有叔叔的任务了
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 15631#       发表于 2021-5-21 10:53
+
+
+小麻 我的小麻
+
+
+                            
