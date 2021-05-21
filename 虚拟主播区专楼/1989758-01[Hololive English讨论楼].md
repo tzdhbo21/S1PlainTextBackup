@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-18 03:04** 
+> ## **本文件最后更新于2021-05-20 23:41** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_p2N2N" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_u0eIv" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9259,7 +9259,7 @@ Rigger HATE!</blockquote>
 
 
 bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_l24Ma" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_c6bGc" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -11268,10 +11268,11 @@ Gura：你知道西瓜看起来怎么样的吗 Ame：平的为了胜利不择手
 评分
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 空集| + 1|好评加鹅|
 | 过不了审| + 1||
 
 
@@ -11312,4 +11313,635 @@ Gura：你知道西瓜看起来怎么样的吗 Ame：平的为了胜利不择手
 2021-5-18 10:48 上传
 
 
-                         
+-----
+
+####  wiig  
+##### 722#       发表于 2021-5-18 14:40
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/144056tgboy78eyn0wny73.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (538.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 14:40 上传
+
+
+-----
+
+####  空集  
+##### 723#       发表于 2021-5-18 16:54
+
+
+补了下鲨鱼玩人偶房那段 ，没想到她玩的是日语版。鲨鱼声音还是好可爱 。然后装作不慌然后声音越来越慌，然后巨婴出来后一开始还装不怕然后灯突然灭后吓得钻到柜子里了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 然后为了让自己不怕一边玩一边哼歌然而还是被巨婴吓到惨叫。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  空集  
+##### 724#       发表于 2021-5-18 16:57
+
+
+ 本帖最后由 空集 于 2021-5-18 16:59 编辑 
+
+草  原来白皮都觉得那个人偶boss声音像bzml   狂刷ahoy 和senchou没有恐怖气氛了 鲨鱼也提了嘴，但是说bzml声音比这东西可爱多了（该听西索了） <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 725#       发表于 2021-5-18 19:21
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/192120bvgizoow5iifzlt4.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (36.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 19:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/192129xcaa0d3rj993qoq0.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (25.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 19:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/18/192135s2x5hhpxkkqmz9t5.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (12.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-18 19:21 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  smy20011  
+##### 726#         楼主| 发表于 2021-5-19 00:34
+
+
+火鸡说要和vs以及coco联动
+
+
+-----
+
+####  wiig  
+##### 727#       发表于 2021-5-19 06:35
+
+
+ina迟到好罕见www
+
+
+-----
+
+####  wiig  
+##### 728#       发表于 2021-5-19 06:44
+
+
+"WHERE IS INA?"
+
+<img src="https://p.sda1.dev/2/a46d1030a9665317f9ce57118545b811/IMG_CMP_256572900.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 729#       发表于 2021-5-19 07:43
+
+
+起了起了 起床音放送
+
+
+-----
+
+####  wiig  
+##### 730#       发表于 2021-5-19 07:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51297724&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-19 00:34</a>
+火鸡说要和vs以及coco联动</blockquote>
+终于等来联动了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 731#       发表于 2021-5-19 11:12
+
+
+木口经典起不来 等人整活回的 EN版第一次   call for ina
+
+火鸡也实装了腿部。
+
+<img src="https://img.saraba1st.com/forum/202105/19/111155lpfglfba16l1px11.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210519111110.png</strong> (99.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-19 11:11 上传
+
+
+-----
+
+####  wiig  
+##### 732#       发表于 2021-5-19 11:50
+
+
+Inaaaaaaaa
+<img src="https://p.sda1.dev/2/872340488ca82719eaa115433eb75733/IMG_CMP_198090131.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 733#         楼主| 发表于 2021-5-19 12:20
+
+
+<img src="https://img.saraba1st.com/forum/202105/19/122019oed1u3v8yw8fz3kl.png" referrerpolicy="no-referrer">
+
+
+<strong>ml71o8mpayz61.png</strong> (44.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-19 12:20 上传
+
+
+-----
+
+####  影山银  
+##### 734#       发表于 2021-5-19 14:01
+
+
+ID不知道该不该发这里，不过ollie已经60W啦！
+
+—— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 735#       发表于 2021-5-20 08:34
+
+
+<img src="https://p.sda1.dev/2/721aad56b26bbbf1a0bf55e4102af90b/20210520_004532.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 736#       发表于 2021-5-20 16:35
+
+
+偷来的图
+
+
+<img src="https://img.saraba1st.com/forum/202105/20/163530d40m7m0s0gvvcngg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (155.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-20 16:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/20/163534kvy9t91t099omvzv.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (35.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-20 16:35 上传
+
+
+-----
+
+####  smy20011  
+##### 737#         楼主| 发表于 2021-5-20 23:43
+
+
+ina生日快乐！！楼上你也太快了点。。
+
+
+-----
+
+####  smy20011  
+##### 738#         楼主| 发表于 2021-5-20 23:43
+
+
+<img src="https://img.saraba1st.com/forum/202105/20/234338xqdkxjon2kxjxabh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ra6s554ye8071.jpg</strong> (95.13 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-20 23:43 上传
+
+
+-----
+
+####  wiig  
+##### 739#       发表于 2021-5-21 06:17
+
+
+Kiara连麦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 740#       发表于 2021-5-21 06:24
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/062413d2uo2zm2toho8ah2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (137.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 06:24 上传
+
+
+-----
+
+####  wiig  
+##### 741#       发表于 2021-5-21 06:26
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/062626zzgelesseeszsyle.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (501.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 06:26 上传
+
+
+-----
+
+####  wiig  
+##### 742#       发表于 2021-5-21 06:28
+
+
+GUH
+
+
+-----
+
+####  wiig  
+##### 743#       发表于 2021-5-21 06:29
+
+
+声音好像手机
+
+
+-----
+
+####  wiig  
+##### 744#       发表于 2021-5-21 06:33
+
+
+真是支离破碎的嗓子
+
+
+-----
+
+####  wiig  
+##### 745#       发表于 2021-5-21 06:34
+
+
+ame
+
+
+-----
+
+####  wiig  
+##### 746#       发表于 2021-5-21 06:37
+
+
+Ame: I want to be wrapped in your tentacles.
+
+
+-----
+
+####  wiig  
+##### 747#       发表于 2021-5-21 06:39
+
+
+inya
+
+
+-----
+
+####  wiig  
+##### 748#       发表于 2021-5-21 06:41
+
+
+Ina：I can hear your saliva
+
+wwwww
+
+
+-----
+
+####  wiig  
+##### 749#       发表于 2021-5-21 06:59
+
+
+忘词了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">萌混过关
+
+
+-----
+
+####  wiig  
+##### 750#       发表于 2021-5-21 07:09
+
+
+自产自销
+
+
+
+
+-----
+
+####  wiig  
+##### 751#       发表于 2021-5-21 07:10
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/071055di4c5iqi4gjiti0i.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (479.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/071048z6y39rmbee3bi56y.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (410.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:10 上传
+
+
+-----
+
+####  wiig  
+##### 752#       发表于 2021-5-21 07:11
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/071108u67ubs67sswcq1sq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (408.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:11 上传
+
+
+用途 可以像这样合影wwww
+
+
+-----
+
+####  wiig  
+##### 753#       发表于 2021-5-21 07:12
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/071247p43wvu3m7b54g0ue.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (425.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:12 上传
+
+
+-----
+
+####  wiig  
+##### 754#       发表于 2021-5-21 07:15
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/071523pnu9bwzso9oq5404.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (405.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:15 上传
+
+
+-----
+
+####  wiig  
+##### 755#       发表于 2021-5-21 07:16
+
+
+ 本帖最后由 wiig 于 2021-5-21 07:17 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/071603n386hcjtc8tyytyy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (380.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/071632n5xkxn4kkkx27xj5.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (277.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:16 上传
+
+
+-----
+
+####  smy20011  
+##### 756#         楼主| 发表于 2021-5-21 07:17
+
+
+Tako的衣服只有L和XL真懂2333
+
+
+-----
+
+####  wiig  
+##### 757#       发表于 2021-5-21 07:24
+
+
+！！！原创曲吗
+
+
+-----
+
+####  smy20011  
+##### 758#         楼主| 发表于 2021-5-21 07:24
+
+
+原创曲！！！MV好赞
+
+
+-----
+
+####  wiig  
+##### 759#       发表于 2021-5-21 07:24
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/072450g9kv43sww873l3os.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (71.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:24 上传
+
+
+耶 first origin song
+
+
+-----
+
+####  smy20011  
+##### 760#         楼主| 发表于 2021-5-21 07:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51319393&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-21 07:24</a>
+
+耶 first origin song</blockquote>
+长发马尾ina，plz
+
+
+-----
+
+####  wiig  
+##### 761#       发表于 2021-5-21 07:29
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/072927cmw2opt97fbdbhok.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (26.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 07:29 上传
+
+
+-----
+
+####  wiig  
+##### 762#       发表于 2021-5-21 07:34
+
+
+Ame要买给bubba作狗窝<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 763#       发表于 2021-5-21 07:35
+
+
+٩( 'ω' )وTeaser PV[https://youtu.be/LrSTGAhNSlQ](https://youtu.be/LrSTGAhNSlQ)
+
+
+-----
+
+####  wiig  
+##### 764#       发表于 2021-5-21 07:36
+
+
+Mori: Red
+
+Ina: Violet
+
+
+-----
+
+####  smy20011  
+##### 765#         楼主| 发表于 2021-5-21 07:39
+
+
+Ina的东西很多都是那种一般人看起来不会觉得你宅，不过资深的一下子就能认出你来的那种。
+
+
+                        
