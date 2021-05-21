@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-20 06:52** 
+> ## **本文件最后更新于2021-05-21 03:55** 
 
 
 
@@ -5260,7 +5260,7 @@ emmm s1的附件居然会自动压图？？
 
 
 1948221.jpg
-(1.23 MB, 下载次数: 2)
+(1.23 MB, 下载次数: 4)
 
 
 下载附件
@@ -5557,4 +5557,334 @@ s1附件会二压，实际颜色会更靓丽。
 零售价8499和9499元
 
 
-                                    
+-----
+
+####  allenz2  
+##### 395#       发表于 2021-5-20 15:11
+
+
+发布会开始了，虽然没啥好看的我觉得
+
+
+这索尼中国的员工是广东人嘛，煲冬瓜……
+
+
+-----
+
+####  leystage  
+##### 396#         楼主| 发表于 2021-5-20 15:55
+
+
+Xperia 1 III 价格公布
+
+12+256 8499 元
+
+12+512 9499 元
+
+即日到 5.31 开启预售。
+
+
+-----
+
+####  你好音希  
+##### 397#       发表于 2021-5-20 15:57
+
+
+ 本帖最后由 你好音希 于 2021-5-20 16:03 编辑 
+
+12+256 8499 元
+
+12+512 9499 元
+
+
+打扰了
+
+话说出了三代，二代会不会便宜点
+
+
+-----
+
+####  leystage  
+##### 398#         楼主| 发表于 2021-5-20 15:59
+
+
+<blockquote>你好音希 发表于 2021-5-20 15:57
+12+256 8499 元
+
+12+512 9499 元
+
+</blockquote>
+官方不会马上降，第三方的话其实一直在慢慢降
+
+
+-----
+
+####  cleaner  
+##### 399#       发表于 2021-5-20 16:01
+
+
+下次一定，下次一定<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jzsgtx  
+##### 400#       发表于 2021-5-20 16:14
+
+
+贵<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  无印凉粉  
+##### 401#       发表于 2021-5-20 16:15
+
+
+捂着X5M2瑟瑟发抖，这价格打扰了
+
+
+-----
+
+####  Cray  
+##### 402#       发表于 2021-5-20 16:16
+
+
+<blockquote>引用第389楼matthewsteel于2021-05-20 14:12发表的  :
+
+引用:Cray 发表于 2021-5-3 04:42我用5ii拍的，对焦会差一点这张就对到前面的船了......</blockquote>
+是直出
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Lisylfn  
+##### 403#       发表于 2021-5-20 16:18
+
+
+京东草台，下不了单，招商银行商城早就可以下单了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  哎哟卧槽了  
+##### 404#       发表于 2021-5-20 16:25
+
+
+手持1ii表示鎮定，反正888，今年安心pass<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kimibsb  
+##### 405#       发表于 2021-5-20 16:25
+
+
+手握x5m2想看看m3的价格虽然不买
+结果没有……
+
+
+-----
+
+####  mickoo  
+##### 406#       发表于 2021-5-20 16:33
+
+
+天猫有24期免息，首发降200，350一个月，其实还行，如果换成iPhone的话，应该很多人买，索尼的话，对不起了
+
+
+-----
+
+####  暗铁  
+##### 407#       发表于 2021-5-20 16:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绅士说他家7599
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  qw945  
+##### 408#       发表于 2021-5-20 16:57
+
+
+钢板7599也要不起啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是我太穷了
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  KosHaruhi  
+##### 409#       发表于 2021-5-20 17:29
+
+
+自信的定价，港版半年后再说了
+
+
+-----
+
+####  鸟耶稣  
+##### 410#       发表于 2021-5-20 17:54
+
+
+现在索尼的手机有哪些是可以直插当相机监视器的？
+
+
+-----
+
+####  Lisylfn  
+##### 411#       发表于 2021-5-20 18:12
+
+
+狗东定了台紫色256的
+
+
+-----
+
+####  Yukine_Chris  
+##### 412#       发表于 2021-5-20 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51314534&amp;ptid=1985265" target="_blank">鸟耶稣 发表于 2021-5-20 17:54</a>
+
+现在索尼的手机有哪些是可以直插当相机监视器的？</blockquote>
+有且只有xperia pro
+
+
+-----
+
+####  KayoAiko  
+##### 413#       发表于 2021-5-20 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">手持x1m2不方，等換掉888再考慮
+
+
+-----
+
+####  mickoo  
+##### 414#       发表于 2021-5-21 09:34
+
+
+绅士家，已经7399了，直接降了1000
+
+
+-----
+
+####  MuAmUa  
+##### 415#       发表于 2021-5-21 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51320345&amp;ptid=1985265" target="_blank">mickoo 发表于 2021-5-21 09:34</a>
+ 绅士家，已经7399了，直接降了1000</blockquote>
+渠道商怎么能便宜这么多
+
+
+-----
+
+####  Yukine_Chris  
+##### 416#       发表于 2021-5-21 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51320487&amp;ptid=1985265" target="_blank">MuAmUa 发表于 2021-5-21 09:46</a>
+
+渠道商怎么能便宜这么多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逃税啊，这个价肯定不带票
+
+
+-----
+
+####  用户名已注册  
+##### 417#       发表于 2021-5-21 10:21
+
+
+图片上看不出来，请教，灰色也是磨砂后玻璃嘛~
+
+
+-----
+
+####  lbzlxx  
+##### 418#       发表于 2021-5-21 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51314534&amp;ptid=1985265" target="_blank">鸟耶稣 发表于 2021-5-20 17:54</a>
+
+现在索尼的手机有哪些是可以直插当相机监视器的？</blockquote>
+xperia pro，1w6，国内没上市，自带hdmi口，专业相监
+
+
+-----
+
+####  他言無用  
+##### 419#       发表于 2021-5-21 11:18
+
+
+测试了下以旧换新活动，我的是马克兔。在官网的活动页面扫码进入爱回收页面，这里顶部有个优惠券广告进去可以领三张，我们只需要领前两张150+50（可叠加），然后按下方标红的“去回收”填单，提交。提交后页面有提示跳转索尼官网，然后大蓝色的领取优惠券（1350），这里需要登录索尼账号才能领。领完就直接在预定界面可以用了，最终优惠价格是6949元。
+
+
+-----
+
+####  他言無用  
+##### 420#       发表于 2021-5-21 11:19
+
+
+哦对了，优惠券到期是618，所以理论上说可以卡5月31号0点。。。白嫖优惠券<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  cy6959  
+##### 421#       发表于 2021-5-21 11:27
+
+
+无码兔大概能降到什么价位啊，一直等不来国产机的全面屏，想投奔索尼了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leyenda  
+##### 422#       发表于 2021-5-21 11:28
+
+
+ 本帖最后由 leyenda 于 2021-5-21 11:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51316555&amp;ptid=1985265" target="_blank">Yukine_Chris 发表于 2021-5-20 21:13</a>
+
+有且只有xperia pro</blockquote>
+1ii 5ii都可以，推送过更新，就是没hdmi
+
+
+-----
+
+####  无印凉粉  
+##### 423#       发表于 2021-5-21 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51320906&amp;ptid=1985265" target="_blank">用户名已注册 发表于 2021-5-21 10:21</a>
+
+图片上看不出来，请教，灰色也是磨砂后玻璃嘛~</blockquote>
+1M3的三色均为磨砂后盖
+
+
+-----
+
+####  月神侠  
+##### 424#       发表于 2021-5-21 11:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51320487&amp;ptid=1985265" target="_blank">MuAmUa 发表于 2021-5-21 09:46</a>
+
+渠道商怎么能便宜这么多</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">很正常啊，我马克兔首发买的也才6699
+
+
+                                   
