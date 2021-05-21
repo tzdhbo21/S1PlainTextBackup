@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-20 09:47** 
+> ## **本文件最后更新于2021-05-21 09:48** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_za9yS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_mp37G" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_VdZVI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_pCZz6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -13946,4 +13946,370 @@ https://m.twitch.tv/banhada2434<img src="https://static.saraba1st.com/image/smil
 <img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">之前让本尊转推了，可能会有境外anti跟过去
 
 
-              
+-----
+
+####  ShuTk4O  
+##### 1052#       发表于 2021-5-20 18:25
+
+
+一条推就能拉到b站的那也算是死忠粉……我是说死忠anti了
+
+
+-----
+
+####  FCCHua  
+##### 1053#       发表于 2021-5-20 20:17
+
+
+ 本帖最后由 FCCHua 于 2021-5-20 20:32 编辑 
+
+花妈生日3d live<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+syl 小偶像最近风格好多变啊
+
+
+-----
+
+####  Suny08  
+##### 1054#       发表于 2021-5-20 21:16
+
+
+Elira日语杂谈上来就是apex要玩原神要玩，什么死亡卡组
+
+
+-----
+
+####  真飞鸟i  
+##### 1055#       发表于 2021-5-20 21:22
+
+
+这不是财富密码吗
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  icecry  
+##### 1056#       发表于 2021-5-20 21:33
+
+
+难得看了眼郡道，菜的我无法直视，还连着玩了7小时..
+
+
+-----
+
+####  poipanchao  
+##### 1057#       发表于 2021-5-20 21:49
+
+
+我记得en龙首播说要冲猎杀来着
+
+
+-----
+
+####  rzrbtk  
+##### 1058#       发表于 2021-5-20 21:58
+
+
+ 本帖最后由 rzrbtk 于 2021-5-20 22:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51316757&amp;ptid=1972669" target="_blank">icecry 发表于 2021-5-20 21:33</a>
+
+难得看了眼郡道，菜的我无法直视，还连着玩了7小时..</blockquote>
+这人用钟离磨脚十分钟，切烟绯打出了三倍伤害，战斗结束后“果然钟离最强！”，直播卖点是初心者的青涩感啦<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">。
+
+不过说实话，被她气得没脾气之后，她打完雪山任务（耗时一小时）我都快感动股掌了
+
+
+小野町春香好可爱，年轻女孩感真棒，喜欢，喜欢
+
+
+-----
+
+####  古原人  
+##### 1059#       发表于 2021-5-20 22:34
+
+
+myy今晚这是？感觉自己已经看不懂2434了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 1060#       发表于 2021-5-21 01:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">明天路易斯新衣服 虹主播这宣传的新衣服直接打牌就说出来明天新衣服披露，对比起来木口新衣服炒作就厉害了
+
+
+-----
+
+####  noHentai  
+##### 1061#       发表于 2021-5-21 01:13
+
+
+因为这个消息，“ASMR”上了趋势，理由是没人想在享受ASMR的时候突然来一段广告。<blockquote>【6月1日から】YouTube、規約更新により全ての動画で広告表示の可能性ありに
+
+「YouTubeパートナープログラムに参加していないチャンネルの動画にも広告が表示される場合があります」としている。 </blockquote>
+
+
+-----
+
+####  バーチャルS1er  
+##### 1062#       发表于 2021-5-21 01:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51316924&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-5-20 21:49</a>
+
+我记得en龙首播说要冲猎杀来着</blockquote>
+这么快就要找男人一起播了么、还是说有什么关系能找点欧美小有名气APEX主播一起播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  バーチャルS1er  
+##### 1063#       发表于 2021-5-21 01:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51316598&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-5-20 21:16</a>
+
+Elira日语杂谈上来就是apex要玩原神要玩，什么死亡卡组</blockquote>
+apex玩得还可以的话不算是死亡卡组
+
+
+O神在日本算是死亡卡组了，在欧美还是年轻人第一款抽卡二次元手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pojjcc  
+##### 1064#       发表于 2021-5-21 07:44
+
+
+好想舔阿喵喵的脚啊
+
+
+-----
+
+####  hulaoda007  
+##### 1065#       发表于 2021-5-21 10:43
+
+
+  可以接受光君不是处男却不能接受光君有女友...
+  可以接受社有女友但不接受社不是处男...
+
+
+-----
+
+####  Porsche  
+##### 1066#       发表于 2021-5-21 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51318714&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-5-21 01:08</a>
+明天路易斯新衣服 虹主播这宣传的新衣服直接打牌就说出来明天新衣服披露，对比起来木口新衣服炒作就 ...</blockquote>
+重大发表的重大发表<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+对我来说凡是在新衣服披露时还要讲故事的都是弱智
+哪个箱都有，程度不一
+
+
+-----
+
+####  qq845629713  
+##### 1067#       发表于 2021-5-21 11:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 新社歌第二弹来辣：
+
+
+早瀬走（にじさんじ、日本）
+
+メリッサ・キンレンカ（にじさんじ、日本）
+
+Finana Ryugu（NIJISANJI EN、英語圏）
+
+ZEA Cornelia（NIJISANJI ID、インドネシア）
+
+Nun Bora（NIJISANJI KR、韓国）
+
+Shaun（VirtuaReal、）
+
+
+・収録内容：
+
+M1 Virtual Strike
+
+M2 Virtual Strike (Japanese Ver.) feat. 早瀬走
+
+M3 Virtual Strike (Japanese Ver.) feat. メリッサ・キンレンカ
+
+M4 Virtual Strike (English Ver.) feat. Finana Ryugu
+
+M5 Virtual Strike (Indonesian Ver.) feat. ZEA Cornelia
+
+M6 Virtual Strike (Korean Ver.) feat. Nun Bora
+
+M7 Virtual Strike (Chinese Ver.) feat. Shaun
+
+M8 Virtual Strike (Instrumental)
+
+
+彩虹en这初登场既有社歌可唱，我不好说这地位这事情了
+
+
+-----
+
+####  Suny08  
+##### 1068#       发表于 2021-5-21 12:07
+
+
+勺宝这波天道酬勤好吧，维阿本社歌力天花板之一，也是本社为数不多认真做音乐了的人了，直播也是基本就是杂谈画曲绘，感觉这次kr 拉垮了呀，其他分部都出的实力选手就kr 出的流量选手，en还没开过歌回不评价
+
+
+-----
+
+####  qq845629713  
+##### 1069#       发表于 2021-5-21 12:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer"> 某些主播口口声声说自己和本社关系好走得近，最后还是让人把社歌这彩头抢走了，我不说是谁，自己明白就行
+
+
+-----
+
+####  poipanchao  
+##### 1070#       发表于 2021-5-21 12:18
+
+
+印象中kr没有实力逆天的歌力选手啊
+新5期就是天花板了吧，但是不可能让她来的
+bora反而算是kr里唱的好的了
+
+
+-----
+
+####  死体残留  
+##### 1071#       发表于 2021-5-21 13:06
+
+
+估计是看投的翻唱选的人吧，勺的随便系列播放过百万了，kr里面就bora有比较多歌回和翻唱，人鱼不讨论
+
+
+-----
+
+####  RiesbyfeAtlasia  
+##### 1072#       发表于 2021-5-21 13:26
+
+
+[https://www.youtube.com/c/VESPERBELL/featured](https://www.youtube.com/c/VESPERBELL/featured)
+
+有楼友科普下vesperbell吗，听了几首还挺喜欢的，听说是KMNZ的后辈？
+
+
+-----
+
+####  祸猫  
+##### 1073#       发表于 2021-5-21 16:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">很久不看日v，最近在看爆草，有无cp届前十讲讲社熊猫在之前有什么说法吗
+
+—— 来自 Xiaomi MIX 2S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  バーチャルS1er  
+##### 1074#       发表于 2021-5-21 16:28
+
+
+彩虹为啥要换社名了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 1075#       发表于 2021-5-21 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51323107&amp;ptid=1972669" target="_blank">RiesbyfeAtlasia 发表于 2021-5-21 13:26</a>
+https://www.youtube.com/c/VESPERBELL/featured
+
+有楼友科普下vesperbell吗，听了几首还挺喜欢的，听说是KM ...</blockquote>
+R台的团
+
+
+-----
+
+####  zwxclear  
+##### 1076#       发表于 2021-5-21 17:04
+
+
+下周天宫3D
+
+
+-----
+
+####  qq845629713  
+##### 1077#       发表于 2021-5-21 17:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mememe女士会不会开嗓，3D披露一生一次，值得开嗓
+
+
+-----
+
+####  poipanchao  
+##### 1078#       发表于 2021-5-21 17:16
+
+
+跑个大逃
+
+
+-----
+
+####  IDIDIDID  
+##### 1079#       发表于 2021-5-21 17:19
+
+
+盲狙一个噗桑客串妖精挂墙瞎搞50分钟最后萌音嗯混一首。
+
+
+-----
+
+####  Yurumi  
+##### 1080#       发表于 2021-5-21 17:30
+
+
+可以看到3d流泪猫猫头嘛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Suny08  
+##### 1081#       发表于 2021-5-21 17:37
+
+
+Meari 记得身体不是太好的吧，估计3D就是简单走走流程了，让她多动动估计有点难顶，不过可爱肯定还是拉满的
+
+
+-----
+
+####  超能力者stven  
+##### 1082#       发表于 2021-5-21 17:39
+
+
+挂墙不至于吧，还有小黑呢
+
+
+-----
+
+####  rzrbtk  
+##### 1083#       发表于 2021-5-21 17:43
+
+
+据哈哥说，因公事上京的时候anycolor会报销高等座位的费用，
+而郡道竟然两年了还不知道（舞元三年了也不知道），蠢女啊
+
+
+             
