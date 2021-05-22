@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-21 09:48** 
+> ## **本文件最后更新于2021-05-22 09:50** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_VdZVI" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_pCZz6" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_x4lr0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_AnIFZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -14312,4 +14312,542 @@ Meari 记得身体不是太好的吧，估计3D就是简单走走流程了，让
 而郡道竟然两年了还不知道（舞元三年了也不知道），蠢女啊
 
 
-             
+-----
+
+####  qq845629713  
+##### 1084#       发表于 2021-5-21 18:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51325717&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-5-21 17:43</a>
+
+据哈哥说，因公事上京的时候anycolor会报销高等座位的费用，
+
+而郡道竟然两年了还不知道（舞元三年了也不知 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 还会报销附近宾馆的钱，当初你葵和月丿因为活动要住公司附近宾馆，月丿还感叹，原来你一直住这么高档的酒店吗？
+
+
+-----
+
+####  FCCHua  
+##### 1085#       发表于 2021-5-21 18:28
+
+
+不知道会不会有唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 1086#       发表于 2021-5-21 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51324613&amp;ptid=1972669" target="_blank">祸猫 发表于 2021-5-21 16:00</a>
+很久不看日v，最近在看爆草，有无cp届前十讲讲社熊猫在之前有什么说法吗
+
+—— 来自 Xiaomi MIX 2S, ...</blockquote>
+【【熟肉】社筑和笹木咲从相遇到现在的传记-哔哩哔哩】https://b23.tv/YYjYeR
+
+交点还挺少的
+
+
+-----
+
+####  free  
+##### 1087#       发表于 2021-5-21 18:37
+
+
+ 本帖最后由 free 于 2021-5-21 18:43 编辑 
+
+[https://www.youtube.com/watch?v=3RxlzJWWzdY](https://www.youtube.com/watch?v=3RxlzJWWzdY)
+
+『ホロライブ・オルタナティブ』 ティザーPV（Fullver）
+
+好像并不是全员出场
+
+
+-----
+
+####  qq845629713  
+##### 1088#       发表于 2021-5-21 18:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 社只要还在10w家族，社X笹就只能存在于地下，没有台上营业的可能，
+
+
+-----
+
+####  hulaoda007  
+##### 1089#       发表于 2021-5-21 18:43
+
+
+  但我感觉社和熊猫人有不是爱情的互相喜欢。估计互相感觉到了在玩上面有接近的个性。所以直播双方的摩擦和火花也很精彩。
+
+  私下应该很要好，个人感觉。
+  社...遇到比自己老婆相性更好地女人的时候...你会做什么...？让我看看你身为男子汉的根性吧！
+
+
+-----
+
+####  IDIDIDID  
+##### 1090#       发表于 2021-5-21 18:46
+
+
+本想说pst那卖相很难找到优质男，但是既然连kmm都脱单了，那也不一定。
+
+
+-----
+
+####  hulaoda007  
+##### 1091#       发表于 2021-5-21 19:10
+
+
+  我其实喜欢pst多过kmm...我觉得还蛮可爱的...  我也蛮好奇皇女口罩下的脸。
+
+  最后小福真的好白...
+
+
+-----
+
+####  alcoholic1000  
+##### 1092#       发表于 2021-5-21 19:36
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-21 19:53 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/193649b286xqr8abj6xxhj.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ルイス新衣装】ルイスの麻雀衣装だよ！大会前のとっておき！【ルイス・キャミー:に.png</strong> (371.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 19:36 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/195302pkhqdzruxqx9qj9d.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ルイス新衣装】ルイスの麻雀衣装だよ！大会前のとっておき！【ルイス・キャミー:に.png</strong> (90.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 19:53 上传
+
+
+[https://www.youtube.com/watch?v=uoq9KwzDNNc](https://www.youtube.com/watch?v=uoq9KwzDNNc)
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/194235kox9pz9vkgvnilev.png" referrerpolicy="no-referrer">
+
+
+<strong>発表が三つある男.png</strong> (263.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 19:42 上传
+
+
+刀也新衣装募集——
+
+非主流出道的情况下这算第一个新3D吧，真太子<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1093#       发表于 2021-5-21 19:56
+
+
+king拖鞋穿到下辈子是吧
+
+
+-----
+
+####  winda  
+##### 1094#       发表于 2021-5-21 20:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">以pst和mkr的关系，人家进展应该比kmm快多了，毕竟pst的switch里都有mkr的账号
+
+
+-----
+
+####  dybang  
+##### 1095#       发表于 2021-5-21 20:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是说到六月底征集截止么，之后还要做一段时间，按理说king应该能先出来的，有盼头了
+
+
+-----
+
+####  qq845629713  
+##### 1096#       发表于 2021-5-21 20:35
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/202702nzm2hmk7qlhbzmuz.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210521202324.png</strong> (63.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 20:27 上传
+
+
+我看anycolor完全不慌阿，加大投入就完事了
+
+
+KING还在和社打格斗游戏，
+
+
+QQ截图20210521202324.png
+(63.75 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-21 20:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/202654wr9mem9tmiideu8y.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1097#       发表于 2021-5-21 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51325858&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-5-21 18:01</a>
+
+还会报销附近宾馆的钱，当初你葵和月丿因为活动要住公司附近宾馆，月丿还感叹，原来你一直住这么 ...</blockquote>
+可不敢乱讲，猫在事务所播的，旁边的stf听到这件事之后决定以后都让哈哥走路上班了（玩笑）。
+
+省一楼，明天就是麻将团体战大赛了，猜一个鸟组优胜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 1098#       发表于 2021-5-21 22:19
+
+
+ 本帖最后由 渡鸦骑士 于 2021-5-21 22:41 编辑 
+
+[https://twitter.com/suntory_nomu/status/1395710968932429833](https://twitter.com/suntory_nomu/status/1395710968932429833) <blockquote>＼ジャマママ　マ！／ 
+
+
+【 #エンヴィーベイビー 】
+
+#ノムmusic 歌ってみた话筒玫瑰 
+
+
+プレミア公開！ノムベイビーなみなさん婴儿 
+
+少しダークなノムを楽しみましょう(ԾωԾ´✿)♡♤♧♢ </blockquote>
+[#エンヴィーベイビー by燦鳥ノム 【歌ってみた】 - YouTube](https://www.youtube.com/watch?v=zqQUJMNQeCQ)
+
+三得利也发新翻唱了，这次是envy baby翻了翻，king也唱过了，命嫌也唱过了，嗯
+
+
+-----
+
+####  free  
+##### 1099#       发表于 2021-5-21 23:18
+
+
+ 本帖最后由 free 于 2021-5-21 23:20 编辑 
+
+[https://www.youtube.com/watch?v=zOLKpLD68JQ](https://www.youtube.com/watch?v=zOLKpLD68JQ)
+
+【ウマ娘】男性Vtuberだけで「うまぴょい伝説」歌ってみた【ウマ息子】
+
+
+喷了
+🐴ボーカル🐴
+粛正罰丸 
+ぴろぱる @ぴろぱる 
+七瀬タク @七瀬タク-Official Channel- 
+歌衣メイカ @メイカちゃんねる 
+夕刻ロベル @Roberu Ch. 夕刻ロベル 
+アンジョー @MonsterZ MATE 
+コーサカ @MonsterZ MATE 
+舞元啓介 @舞元啓介 
+成瀬鳴 @成瀬 鳴 / Naruse Naru【にじさんじ】 
+
+
+📢アナウンス 兼 トレーナー📢
+天開司 @バーチャル債務者youtuber天開司 
+
+
+-----
+
+####  hulaoda007  
+##### 1100#       发表于 2021-5-21 23:28
+
+
+ 本帖最后由 hulaoda007 于 2021-5-21 23:36 编辑 
+
+  我其实还蛮替森中高兴的...
+
+  想想两年前的花咲...想想只是被叫做凡骨的花咲...
+
+
+  出息了...出息了...森中...
+
+
+-----
+
+####  渡鸦骑士  
+##### 1101#       发表于 2021-5-21 23:30
+
+
+她这个专辑的原创曲数量和大手子名气都够强了。
+多少人梦寐以求呢<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1102#       发表于 2021-5-22 11:43
+
+
+先锋皇女、猫、圭利、空星，
+次锋阿喵喵、郡道、甲斐田、德比，
+中坚叶、哈哥、不破、刀也，
+大将路易斯、舞元、社、力一
+
+先锋有猫和圭利相声，也许会有的空星被猫迫害也很好，
+次锋阿喵喵郡道一组<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">，想看郡道点阿喵喵的炮，
+中坚大人气男子组，说不定会是同接最高的一局惹，
+大将就…说不定完全沉默打牌了，真格麻将势的对决
+希望能鸟组win吧！
+
+
+-----
+
+####  kangkangsama  
+##### 1103#       发表于 2021-5-22 11:52
+
+
+<blockquote>hulaoda007 发表于 2021-5-21 19:10
+我其实喜欢pst多过kmm...我觉得还蛮可爱的...  我也蛮好奇皇女口罩下的脸。
+
+  最后小福真的好白...
+
+ ...</blockquote>
+别的不说皇女胸大啊
+
+
+-----
+
+####  hulaoda007  
+##### 1104#       发表于 2021-5-22 12:08
+
+
+ 本帖最后由 hulaoda007 于 2021-5-22 12:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51332182&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-5-22 11:52</a>
+
+别的不说皇女胸大啊</blockquote>
+  我知道，但她当时戴口罩了...看不到脸...好奇，安洁也是，脸都不露。
+
+  最后虽然重复很多次了，但小福真的好白啊...  KMM还没PST有料呢...
+
+
+-----
+
+####  qq845629713  
+##### 1105#       发表于 2021-5-22 12:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer"> KMM胸也不小阿
+
+
+-----
+
+####  kangkangsama  
+##### 1106#       发表于 2021-5-22 12:40
+
+
+<blockquote>rzrbtk 发表于 2021-5-22 11:43
+先锋皇女、猫、圭利、空星，
+
+次锋阿喵喵、郡道、甲斐田、德比，
+
+中坚叶、哈哥、不破、刀也，</blockquote>
+猫这组基本都是除大将以外最强的那个，然后郡道那组又是其他组相对菜的。玩的好一手田忌赛马。
+
+
+-----
+
+####  rzrbtk  
+##### 1107#       发表于 2021-5-22 12:46
+
+
+ 本帖最后由 rzrbtk 于 2021-5-22 13:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51332660&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-5-22 12:40</a>
+
+猫这组基本都是除大将以外最强的那个，然后郡道那组又是其他组相对菜的。玩的好一手田忌赛马。 ...</blockquote>
+我个人对这安排倒是..上次团体战郡道飞了之后整个人都颓了，这回放猫去搞还是有点不忍惹，现在东二就一万三，之后就看猫的精神力了。
+
+是说我总觉得跟圭利对上的局都会很恐怖，猫行不行啊<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+7200了，救救猫猫！！
+
+3300，进张看得心脏痛....郡道也明白这种感觉吧，
+
+300，但是最后nice回避，
+
+猫<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 1108#       发表于 2021-5-22 14:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51329090&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-5-21 23:28</a>
+我其实还蛮替森中高兴的...
+
+  想想两年前的花咲...想想只是被叫做凡骨的花咲...</blockquote>
+现实点讲的话，我替她遗憾。马上一张专丢出来，很多时候就是打发人的操作了。
+自身人气远不如gbr真是毫无办法，当初和组合出道的时候就注定了自己的主流路是和组合的另一位是绑定的，gbr一走也就结束了。
+
+
+-----
+
+####  rzrbtk  
+##### 1109#       发表于 2021-5-22 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51332660&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-5-22 12:40</a>
+猫这组基本都是除大将以外最强的那个，然后郡道那组又是其他组相对菜的。玩的好一手田忌赛马。 ...</blockquote>
+大哥奶得好啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 1110#       发表于 2021-5-22 15:06
+
+
+老师打到最后心态真好…强
+
+
+
+
+-----
+
+####  死体残留  
+##### 1111#       发表于 2021-5-22 15:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">真要打发人就不会投广告了 秋叶原投了两个广告发费多少
+
+
+-----
+
+####  FCCHua  
+##### 1112#       发表于 2021-5-22 15:19
+
+
+老师努力了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1113#       发表于 2021-5-22 15:32
+
+
+体会到了一种既视感，麻将于郡道而言真是命运的循环再循环，
+郡道自己也说了“这样的场面”是第二次，从当时到现在也多打了不少局，按道理说技术有进步才对，但结果上却看不出些什么，想着去修炼一番，平时打得一帆风顺拿top也不是不可能，想着不愧是行了吧去参赛，到真场合却一击即飞，比这更糟糕的是这样的事再体验后发现自己已经习惯做败者了，上次团体战先锋被飞都哽咽了还撑着说感想，现在好歹是能笑着说自己不太行了，
+手上毕竟还是有麻将的两份工不能轻易放弃，但失败让这两份工也看着有点可笑，不知道该怎么办了也只能在只有粉丝剩下的直播间说句轻飘飘的累了，好歹昨晚睡足了，没有向之前那样雀杰耐久又累又不讨好，
+努力的方向只能是让自己输的时候不要太难看，这种无力感也可以延伸到别的地方，永远听不来的牌，涨不了的同接，对自己角色的积极方面的否定和消极方面的肯定，
+虽然对她也有些恨铁不成钢的想法，如果麻将打枪玩音游不行就练等等等等，但还是会觉得果然运势不行，但这么说的话就有种“快运势不行一整年了呀”的滑稽感就是了。
+还好队友和对手和讲解员们都是大好人，聊一聊也能开心点吧
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  空集  
+##### 1114#       发表于 2021-5-22 16:16
+
+
+麻将这种东西就是这样 运气成分太大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 技术的提高虽然很重要，但是单次比赛真的很多时候是运气问题。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  poipanchao  
+##### 1115#       发表于 2021-5-22 16:38
+
+
+这次是打两个半庄？老师两次都被制裁了？
+
+那真是没办法……
+
+
+-----
+
+####  rzrbtk  
+##### 1116#       发表于 2021-5-22 17:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51335030&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-5-22 16:38</a>
+
+这次是打两个半庄？老师两次都被制裁了？
+
+那真是没办法……</blockquote>
+第二个半庄追回来一点，但第一个半庄感觉就是攻击性太强了没有防老是点炮，太想把鸟组分差追上去了
+
+
+-----
+
+####  FCCHua  
+##### 1117#       发表于 2021-5-22 17:25
+
+
+太团队了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 1118#       发表于 2021-5-22 17:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">刀也用saki皮肤正负0这运气 队伍总分也第一了就看力一了
+
+
+-----
+
+####  alcoholic1000  
+##### 1119#       发表于 2021-5-22 17:47
+
+
+不破第二个半庄又惨又强，非常精彩<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+            
