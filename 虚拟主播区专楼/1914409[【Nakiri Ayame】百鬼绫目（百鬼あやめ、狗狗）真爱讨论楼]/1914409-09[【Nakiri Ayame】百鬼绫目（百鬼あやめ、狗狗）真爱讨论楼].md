@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-19 10:39** 
+> ## **本文件最后更新于2021-05-22 04:53** 
 
 
 
@@ -971,4 +971,422 @@ SYL：会限看电影用过一次
 是不是要不要包个大红包祝绫总早生贵子啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                                              
+-----
+
+####  soraku  
+##### 12092#       发表于 2021-5-20 00:15
+
+
+“フォロリクは全てブロックしています”<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 12093#       发表于 2021-5-20 10:47
+
+
+只能说你们绫人还不够扭曲，祭丝已经快进到带孩直播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"><img src="https://img.saraba1st.com/forum/202105/19/031647zeq3g1xbmr1qbi1q.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 12094#       发表于 2021-5-20 14:04
+
+
+ 本帖最后由 因为你不会 于 2021-5-20 14:06 编辑 
+
+绫总带孩直播有啊，各种小小绫早玩过了，去年的了，你得往前翻个一两百页吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 12095#       发表于 2021-5-20 18:22
+
+
+看完夸刚才的声明 再次觉得绫总真的天选之人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12096#       发表于 2021-5-20 18:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">咋了 看了一圈是被黑泥整破防了嘛
+
+
+-----
+
+####  cctvyt1  
+##### 12097#       发表于 2021-5-20 18:47
+
+
+APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
+
+
+所以说APEX真的碰不得啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 12098#       发表于 2021-5-20 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51311807&amp;ptid=1914409" target="_blank">因为你不会 发表于 2021-5-20 14:04</a>
+
+绫总带孩直播有啊，各种小小绫早玩过了，去年的了，你得往前翻个一两百页吧不想翻的话估计等下也会 ...</blockquote>
+那能不能快进到二代目holo孩子们同台<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12099#       发表于 2021-5-20 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51315136&amp;ptid=1914409" target="_blank">cctvyt1 发表于 2021-5-20 18:47</a>
+APEX企划燃尽了 身心出问题 喉咙最严重 还要再休养一阵子
+
+
+所以说APEX真的碰不得啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绫总那种又菜又爱玩和阿夸这种做企划还是不一样的
+百鬼众已经从出道开始就被绫总pua了 这种黑泥早就倒完了
+
+
+-----
+
+####  因为你不会  
+##### 12100#       发表于 2021-5-20 18:59
+
+
+不光菜，我还打比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 12101#       发表于 2021-5-20 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51315142&amp;ptid=1914409" target="_blank">昆西昆希昆 发表于 2021-5-20 18:48</a>
+
+那能不能快进到二代目holo孩子们同台</blockquote>
+最近病情都不严重，以前最经典的我记得有一段绫总让自己孩子跟同事直播，自己摸鱼的段子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 12102#       发表于 2021-5-20 20:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">夸宝休止你还搁那提醒别人过两天有翻唱呢。
+
+一句安慰都没有，建议crew把她冲了。
+
+
+-----
+
+####  因为你不会  
+##### 12103#       发表于 2021-5-20 20:33
+
+
+绫总经验丰富脸皮厚得一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 12104#       发表于 2021-5-20 20:59
+
+
+ 本帖最后由 一仙 于 2021-5-20 21:02 编辑 
+
+草，想起来还写过这种怪文书<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+感觉病情减缓不少，或许是退化成了全肯定的纯良萌萌人，只要有声响就说好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 12105#       发表于 2021-5-20 21:03
+
+
+谁不是呢，我也好久没发歌词了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 12106#       发表于 2021-5-20 21:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">推特名都改了，这次播放能超过king吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">话说你天天发推倒是播一下啊，现在彻底摆烂了是吧。
+
+
+-----
+
+####  昆西昆希昆  
+##### 12107#       发表于 2021-5-20 21:10
+
+
+有人记得嘛，这是啥时候的联动来着
+
+
+<img src="https://img.saraba1st.com/forum/202105/20/211039abz84k1wboonhu5a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210520_205348_com.twitter.android.jpg</strong> (226.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-20 21:10 上传
+
+
+-----
+
+####  nian1538  
+##### 12108#       发表于 2021-5-20 21:16
+
+
+第一次最协之前吧
+
+
+-----
+
+####  因为你不会  
+##### 12109#       发表于 2021-5-20 21:22
+
+
+那次没记错我记得卡爆了绫总就摆一个立绘的那次
+
+
+-----
+
+####  Fami水  
+##### 12110#       发表于 2021-5-20 21:34
+
+
+ 本帖最后由 Fami水 于 2021-5-20 21:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">马自立档多 你从绫总那边翻啊 2020.7.31 那天
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 昆西昆希昆| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12111#       发表于 2021-5-21 14:36
+
+
+没想到在夸宝那看到绫总是以这种方式<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+NYO}OCK)OATKYK_SU@FSOVP.png
+(64.76 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-21 14:36 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/143604vwre4wzu2b2kwbxi.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12112#       发表于 2021-5-21 14:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">训粉还是得绫总来
+
+
+-----
+
+####  cctvyt1  
+##### 12113#       发表于 2021-5-21 16:43
+
+
+ 本帖最后由 cctvyt1 于 2021-5-21 16:44 编辑 
+
+23号要去萝卜的3D回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/21/164344xbu1pj3rm3mf23rg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210521_164300.jpg</strong> (205.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 16:43 上传
+
+
+-----
+
+####  昆西昆希昆  
+##### 12114#       发表于 2021-5-21 16:57
+
+
+天赋型选手
+
+
+image.png
+(22.75 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-21 16:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/165716acco5f04ryco80v6.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 12115#       发表于 2021-5-21 18:43
+
+
+<img src="https://tva4.sinaimg.cn/large/006xG1LQgy1gqq8kwl4zpg30hs0a0hdz.gif" referrerpolicy="no-referrer">
+
+
+打戏很帅，一打二牌面很足<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer"> 
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 螺旋卷钩生| + 1|好评加鹅|
+| Fami水| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  cctvyt1  
+##### 12116#       发表于 2021-5-21 18:49
+
+
+这是暗示阿绫去年9月被狐狸抓出来锤一顿吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12117#       发表于 2021-5-21 19:16
+
+
+这歌是死神solo唱的啊 好牌面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 12118#       发表于 2021-5-21 19:37
+
+
+大家都在热火朝天地聊PV，绫总跑出来提醒大家明天的翻唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  天悬星河  
+##### 12119#       发表于 2021-5-21 20:01
+
+
+<img src="https://i.loli.net/2021/05/21/5WoN64kwebfhtgF.png" referrerpolicy="no-referrer">
+
+总之就是好想被咬一口<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12120#       发表于 2021-5-21 20:18
+
+
+liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  nian1538  
+##### 12121#       发表于 2021-5-22 12:08
+
+
+又是グッバイ宣言
+
+
+-----
+
+####  Fami水  
+##### 12122#       发表于 2021-5-22 12:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草 蚌埠住了
+
+
+-----
+
+####  Nitro901  
+##### 12123#       发表于 2021-5-22 12:09
+
+
+居然和夸宝同一首翻唱吗，皆切抬头
+
+
+-----
+
+####  17119854  
+##### 12124#       发表于 2021-5-22 12:33
+
+
+万组的力量  集于一身<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  天悬星河  
+##### 12125#       发表于 2021-5-22 12:44
+
+
+卍组贴贴草
+
+
+                                             
