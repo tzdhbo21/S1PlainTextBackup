@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-04-30 10:08** 
+> ## **本文件最后更新于2021-05-24 04:09** 
 
 
 
@@ -952,8 +952,7 @@ outerwilds在太空科幻这方面的表现，不敢说后无来者，起码是�
 ####  wuzhou6058  
 ##### 76#       发表于 2021-3-12 12:01
 
-
-这游戏优化好像有问题，我1650玩着老掉帧
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1713,4 +1712,285 @@ DLC好耶<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" r
 ----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
 
 
-                                             
+-----
+
+####  Dgnic_  
+##### 133#       发表于 2021-5-8 00:23
+
+
+自从上次挑战“飞行高手”成就两三个小时结果失败之后，已经好久没玩了。这次正经跑主线，跑了几个星球，又发现点新东西，一下子快感又拉满了，真真是草蛇灰线，探索感拉满的艺术品啊。
+
+但是感觉自己的探索又遇到了瓶颈，一些表面上可以探索的都大概去过了，该怎么去找那些“散落”的各种碎片或飞船呢，一点头绪都没有。
+以及，量子试炼之塔真是个神奇的地方，完全没理解规则，云里雾里最后居然完成了，果然很量子。<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">那跑来跑去的门究竟要怎么固定住啊，我用小侦查兵锁定了一层通过了，结果下一层发现好像并不能锁定？
+
+
+-----
+
+####  YIIIIIno  
+##### 134#       发表于 2021-5-8 00:39
+
+
+没人提音乐吗？这游戏音乐也超赞的，而且最后大家一起弹奏的时候简直泪目
+
+
+-----
+
+####  砂糖天妇罗  
+##### 135#       发表于 2021-5-8 01:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51175508&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-5-8 00:23</a>
+
+自从上次挑战“飞行高手”成就两三个小时结果失败之后，已经好久没玩了。这次正经跑主线，跑了几个星球，又 ...</blockquote>
+有一个地方教程不是很明显，很容易忽视。
+
+那就是如果在某处遇到未知信号以后，要打开信号探测器来识别这个信号。识别完毕，就可以在以后跟踪这个信号了。逃生舱附近就有未知信号。不知道这个功能就会卡关。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dgnic_| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  kepling1  
+##### 136#       发表于 2021-5-8 01:59
+
+
+太惨了，因为这个操作和视角，我彻底晕3D了…遗憾
+
+
+-----
+
+####  Quelaan  
+##### 137#       发表于 2021-5-8 02:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51175624&amp;ptid=1992654" target="_blank">YIIIIIno 发表于 2021-5-8 00:39</a>
+
+没人提音乐吗？这游戏音乐也超赞的，而且最后大家一起弹奏的时候简直泪目 ...</blockquote>
+发现挪麦人遗体的bgm也是神来之笔，全游戏只在闯入者内部和黑荆星飞船遗骸出现过两次
+
+
+-----
+
+####  lmy8737  
+##### 138#       发表于 2021-5-8 08:41
+
+
+这个游戏好像xgp是有的，有没有中文啊？xgp版本
+
+
+-----
+
+####  Dgnic_  
+##### 139#       发表于 2021-5-8 08:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51175996&amp;ptid=1992654" target="_blank">砂糖天妇罗 发表于 2021-5-8 01:57</a>
+有一个地方教程不是很明显，很容易忽视。
+
+那就是如果在某处遇到未知信号以后，要打开信号探测器来识别这 ...</blockquote>
+原来是这样，感谢指导，那我得花时间跑跑了，我倒是知道如果在量子岩石旁边，会显示“未知信号”。
+
+这游戏的确是很冷门啊，我在中文互联网找攻略好像一份都没看到。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PresentTime  
+##### 140#       发表于 2021-5-8 08:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51176913&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-5-8 08:46</a>
+原来是这样，感谢指导，那我得花时间跑跑了，我倒是知道如果在量子岩石旁边，会显示“未知信号”。
+
+这游 ...</blockquote>
+b站有人写全线索攻略的专栏，实在是卡关了再看攻略吧。
+
+
+-----
+
+####  Wiksy  
+##### 141#       发表于 2021-5-8 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51175996&amp;ptid=1992654" target="_blank">砂糖天妇罗 发表于 2021-5-8 01:57</a>
+
+有一个地方教程不是很明显，很容易忽视。
+
+那就是如果在某处遇到未知信号以后，要打开信号探测器来识别这 ...</blockquote>
+我都不记得有这个机制了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+因为我不记得量子塔之外有哪里需要用到过这个机制（我当时是第六个地点去完了才到的量子试炼塔233）
+
+
+-----
+
+####  mirari  
+##### 142#       发表于 2021-5-8 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51175508&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-5-8 00:23</a>
+
+自从上次挑战“飞行高手”成就两三个小时结果失败之后，已经好久没玩了。这次正经跑主线，跑了几个星球，又 ...</blockquote>
+飞行高手拿到了吗？还没拿到的话可以试试公转法
+[https://steamcommunity.com/sharedfiles/filedetails/?id=2201183758](https://steamcommunity.com/sharedfiles/filedetails/?id=2201183758)
+
+我还录了个视频
+[https://www.bilibili.com/video/BV1754y1e75v](https://www.bilibili.com/video/BV1754y1e75v)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Dgnic_| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  Dgnic_  
+##### 143#       发表于 2021-5-8 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51179332&amp;ptid=1992654" target="_blank">mirari 发表于 2021-5-8 12:00</a>
+
+飞行高手拿到了吗？还没拿到的话可以试试公转法
+
+https://steamcommunity.com/sharedfiles/filedetails/?i ...</blockquote>
+哈哈哈哈我好像看了你的帖子才开始挑战的，努力了好久还是失败，还是得多练练，感谢分享。
+
+
+-----
+
+####  Quelaan  
+##### 144#       发表于 2021-5-8 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177871&amp;ptid=1992654" target="_blank">Wiksy 发表于 2021-5-8 10:04</a>
+
+我都不记得有这个机制了
+
+因为我不记得量子塔之外有哪里需要用到过这个机制（我当时是第六个地点去 ...</blockquote>
+探索黑荆星就需要在老家扫描种子然后追踪坐标啊，这个的教学应该是最开始跟几个小朋友玩捉迷藏的捉迷藏信号，但是太不明显了，我玩完了也没想到这是在教我用信号追踪<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Wiksy  
+##### 145#       发表于 2021-5-8 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51180168&amp;ptid=1992654" target="_blank">Quelaan 发表于 2021-5-8 13:12</a>
+
+探索黑荆星就需要在老家扫描种子然后追踪坐标啊，这个的教学应该是最开始跟几个小朋友玩捉迷藏的捉迷藏信 ...</blockquote>
+你指的是这个啊
+
+不过也是，扫信号甚至都不需要意识到这是个要学的机制……
+
+
+-----
+
+####  Liquid_Snake  
+##### 146#       发表于 2021-5-8 15:04
+
+
+dlc都出了，还不给次时代上个优化补丁吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  老纪  
+##### 147#       发表于 2021-5-8 17:34
+
+
+云了一下，还确实牛逼，厚积薄发。。这么说来有一点塞尔达面具相似的地方
+
+— from motorola XT2125-4, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  风尘的时光  
+##### 148#       发表于 2021-5-21 23:19
+
+
+steam史低48
+
+
+-----
+
+####  JohannJ  
+##### 149#       发表于 2021-5-24 02:17
+
+
+打了好几天好在双星上耗着，太阳站从一塔飞到二塔飞了好几个小时没进去<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoyianwu  
+##### 150#       发表于 2021-5-24 10:33
+
+
+ 本帖最后由 luoyianwu 于 2021-5-24 10:35 编辑 
+
+回错了草。不知道e3能不能公布一下dlc
+
+
+
+
+-----
+
+####  evilpanda  
+##### 151#       发表于 2021-5-24 10:36
+
+
+这游戏一直躺在愿望单里，买了肯定烂尾
+
+
+-----
+
+####  Racyjackman  
+##### 152#       发表于 2021-5-24 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51351370&amp;ptid=1992654" target="_blank">luoyianwu 发表于 2021-5-24 10:33</a>
+
+回错了草。不知道e3能不能公布一下dlc</blockquote>
+发错地方了吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wbtsy  
+##### 153#       发表于 2021-5-24 11:14
+
+
+ 本帖最后由 wbtsy 于 2021-5-24 11:16 编辑 
+<blockquote>luoyianwu 发表于 2021-5-24 10:33
+回错了草。不知道e3能不能公布一下dlc</blockquote>
+这游戏dlc其实不是很必要。
+
+
+                                            
