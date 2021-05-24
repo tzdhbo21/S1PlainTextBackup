@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 01:59** 
+> ## **本文件最后更新于2021-05-24 04:58** 
 
 
 
@@ -8565,4 +8565,171 @@ q上有联系方式的和我同批次的伙伴基本一个年龄层的，似乎�
 没麻的日子感觉好悠闲，补补日剧和番，但也感觉时间过的好慢。平常即使挂后台也是一转眼就1点这样了。
 
 
-                         
+-----
+
+####  时间在我手中  
+##### 15745#       发表于 2021-5-24 10:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51351004&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-5-24 09:57</a>
+
+没麻的日子感觉好悠闲，补补日剧和番，但也感觉时间过的好慢。平常即使挂后台也是一转眼就1点这样了。 ...</blockquote>
+我昨天摸了一天，本来想弄弄翻译的，结果某个厂妹找我弄七弄八的，然后看比赛很困
+
+别人进度还不太行
+
+四舍五入睡了一天，新歌就听了一次就没听了，微妙的不在好球带
+
+可爱倒是挺可爱的
+
+
+-----
+
+####  yywzjsw  
+##### 15746#       发表于 2021-5-24 11:27
+
+
+<blockquote>时间在我手中 发表于 2021-5-24 10:06
+我昨天摸了一天，本来想弄弄翻译的，结果某个厂妹找我弄七弄八的，然后看比赛很困
+
+别人进度还不太行
+
+四舍 ...</blockquote>
+最近的歌，我倒是有些期待她唱吸血鬼。上次说还没学会，不知道回来会不会学会了。
+
+
+-----
+
+####  Dualist彩  
+##### 15747#       发表于 2021-5-24 11:33
+
+
+上次竟然唱了东京泰迪熊漏了没听我的麻，可惜后面糊烂了
+
+
+-----
+
+####  时间在我手中  
+##### 15748#       发表于 2021-5-24 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51352088&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-5-24 11:27</a>
+
+最近的歌，我倒是有些期待她唱吸血鬼。上次说还没学会，不知道回来会不会学会了。 ...</blockquote>
+520当天唱了啊，还是不太会的样子，这歌和声有点多估计给她整不会了
+
+
+-----
+
+####  yywzjsw  
+##### 15749#       发表于 2021-5-24 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51352342&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-5-24 11:44</a>
+
+520当天唱了啊，还是不太会的样子，这歌和声有点多估计给她整不会了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">艹，那天我明明也看的，怎么没有映像了？
+
+刚刚去听了一下，虽然后面口胡严重。但！那第一段那句我是吸血鬼的婉转的叹息<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">赞！
+
+
+-----
+
+####  时间在我手中  
+##### 15750#       发表于 2021-5-24 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51352449&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-5-24 11:53</a>
+艹，那天我明明也看的，怎么没有映像了？
+
+刚刚去听了一下，虽然后面口胡严重。但！那第一段那句我 ...</blockquote>
+练练还是有希望的，可惜我手头那个描改的曲绘好哥哥失踪一个月了，幸好她没唱会)
+
+
+
+
+-----
+
+####  Klience  
+##### 15751#       发表于 2021-5-24 12:03
+
+
+一大早的隔壁怎么那么热闹啊 熟悉的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 15752#       发表于 2021-5-24 12:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51352472&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-5-24 11:55</a>
+
+练练还是有希望的，可惜我手头那个描改的曲绘好哥哥失踪一个月了，幸好她没唱会) ...</blockquote>
+那天的歌最喜欢的还是爱2，毕竟真的没有什么人会去唱爱2。刨除那个是个管人就要唱一次的爱3，爱1太旧、但因为经典也有人会唱。但爱2就真是处于不上不下的尴尬位置，我是没有想到她会唱爱2的，而且唱的还不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暴走的包子  
+##### 15753#       发表于 2021-5-24 12:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">超v那个帖子？看到这么多楼还没点进去看，又车啥了
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cushaw  
+##### 15754#       发表于 2021-5-24 12:13
+
+
+可以多唱唱日音冷门曲吗？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  雪风utopia  
+##### 15755#       发表于 2021-5-24 12:18
+
+
+泥哥bw今天四几个马呀，偶没有啊，私密马赛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15756#       发表于 2021-5-24 12:23
+
+
+武德充沛 真有精神呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 15757#       发表于 2021-5-24 12:48
+
+
+ 本帖最后由 笋狐 于 2021-5-24 12:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">玛德说好的过气主播呢，版本更新这么多代经验书不削的咯
+
+
+瞄了一眼，泥哥潭这手惯例的保护性抽楼删前因只留后果的引导式带节奏作风还是那么让人作呕
+
+
+-----
+
+####  Klience  
+##### 15758#       发表于 2021-5-24 12:51
+
+
+毕竟是泥潭代代版本永远滴神 无论在泥潭还是贴吧都是经典的经验宝宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                        
