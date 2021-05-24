@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 04:58** 
+> ## **本文件最后更新于2021-05-24 06:51** 
 
 
 
@@ -8732,4 +8732,276 @@ q上有联系方式的和我同批次的伙伴基本一个年龄层的，似乎�
 毕竟是泥潭代代版本永远滴神 无论在泥潭还是贴吧都是经典的经验宝宝<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                        
+-----
+
+####  A2014720  
+##### 15759#       发表于 2021-5-24 13:09
+
+
+隔壁bw太监当惯了是这样的，想想我以前还被搞破防过真是个憨批
+
+所谓的奴才就是隔壁bw那样子吧，真可怜<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15760#       发表于 2021-5-24 13:11
+
+
+你怎么被搞破防的 分享一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15761#       发表于 2021-5-24 13:13
+
+
+开始你的故事<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  D麦林  
+##### 15762#       发表于 2021-5-24 13:22
+
+
+我去年11月被搞破防了
+
+那时候我第一次直接感受到他版伴舞的选择性mute 保护性抽楼的威力
+
+有种说不出话的无助感
+
+现在都当乐子看了 反正我几个马甲交替用 谁怕谁啊
+
+
+-----
+
+####  A2014720  
+##### 15763#       发表于 2021-5-24 13:24
+
+
+就去年那事呗，她发推说明没了大亏后当天就有一群来专楼，动态这些地方搞事的，那时官组的说明熟肉还没发出来，那些狗看没开的就直接是fh二字先盖你头上，没错就在专楼里，时间过了一天也没bw管，明明我举报都按爆了，那会就大概明白怎么回事了
+
+后来熟肉出了后被人扣上帽子摁着打时，nga那晚一刷全是开她的帖子我也不惊讶了，一想想之前jfn那事，原来已经变质成这个样子了
+
+我以前还天真的以为bw这个职位就是管理专区的，论坛贴吧就是用来讨论的，现在被焦做人了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15764#       发表于 2021-5-24 13:29
+
+
+那会我还急的在专楼大叫bw快来管管啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在想的差不多了也会去那边专楼看看了，不过心态和看猎奇大赏差不多吧<img src="https://static.saraba1st.com/image/smiley/face2017/158.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15765#       发表于 2021-5-24 13:31
+
+
+那群人不都是当动物园的猴子来看的吗 还会真的理他们吗 坐着看戏不就得了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15766#       发表于 2021-5-24 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51353470&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-5-24 13:24</a>
+就去年那事呗，她发推说明没了大亏后当天就有一群来专楼，动态这些地方搞事的，那时官组的说明熟肉还没发出 ...</blockquote>
+那是你太傻了，18年fgo区他们版务直接带节奏说酒吞奶光卡面日方原画师亲自来改，最后被批站背刺成条傻狗的样子我都还记得，今年年初那会儿版权笑话也是经典永流传，泥哥谭玩权限这套一直就这尿性
+
+
+-----
+
+####  A2014720  
+##### 15767#       发表于 2021-5-24 13:43
+
+
+你在地方那对着它喊它是个歪屁股的玩意不是很懂
+
+它比谁都清楚自己是个什么玩意，旁边的吃人血馒头的也清楚，你不管干什么它只需要随便动动就行了
+
+我是来看vtb的，不是让你们恶心的
+
+
+-----
+
+####  A2014720  
+##### 15768#       发表于 2021-5-24 13:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51353644&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-5-24 13:39</a>
+那是你太傻了，18年fgo区他们版务直接带节奏说酒吞奶光卡面日方原画师亲自来改，最后被批站背刺成条傻狗 ...</blockquote>
+我那会哪懂啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+年轻人的第一个vtb. jpg
+
+
+-----
+
+####  Klience  
+##### 15769#       发表于 2021-5-24 13:47
+
+
+本身就是带有目的性的来搞你 只要能搞的你烦，恶心到你 目的就达到了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 15770#       发表于 2021-5-24 13:50
+
+
+都怪那女人一动不动！可能腰还在痛？！
+
+
+-----
+
+####  草牛  
+##### 15771#       发表于 2021-5-24 13:51
+
+
+麻麻的，太好玩了，今天泥潭比v8好玩
+
+
+-----
+
+####  暴走的包子  
+##### 15772#       发表于 2021-5-24 13:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回来了，一切都回来了
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 15773#       发表于 2021-5-24 13:57
+
+
+可能趴在地上蠕动或者扶着墙走路呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 15774#       发表于 2021-5-24 14:04
+
+
+隐藏了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  whbstc4545  
+##### 15775#       发表于 2021-5-24 14:05
+
+
+你麻 麻的，我还没看完呢，怎么就隐藏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 15776#       发表于 2021-5-24 14:05
+
+
+然后没了，我还没笑完呢，泥潭bw你不是人<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Klience  
+##### 15777#       发表于 2021-5-24 14:07
+
+
+唉 少了乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15778#       发表于 2021-5-24 14:10
+
+
+锁来的好快，属于是kpi密码了
+
+
+-----
+
+####  雪风utopia  
+##### 15779#       发表于 2021-5-24 14:10
+
+
+下午上课还指望这楼呢<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 15780#       发表于 2021-5-24 14:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">楼友自曝摩多摩多
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 15781#       发表于 2021-5-24 14:21
+
+
+bw是什么？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  时间在我手中  
+##### 15782#       发表于 2021-5-24 14:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51354092&amp;ptid=1973472" target="_blank">十九号大侠 发表于 2021-5-24 14:21</a>
+bw是什么？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+版务的拼音缩写吧。
+
+
+-----
+
+####  RE_INORI  
+##### 15783#       发表于 2021-5-24 14:46
+
+
+老一辈的巫妖王含金量还是摆在那的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+就是小麻不知道还能当多久经验书呢<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Klience  
+##### 15784#       发表于 2021-5-24 14:47
+
+
+只要网络能记得这个人就能一直当下去呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                       
