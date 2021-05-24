@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-21 09:42** 
+> ## **本文件最后更新于2021-05-24 01:59** 
 
 
 
@@ -7455,4 +7455,1114 @@ syl，仔细想想这种play还蛮兴奋的<img src="https://static.saraba1st.co
 别嗦了😭😭😭
 
 
-                           
+-----
+
+####  Dualist彩  
+##### 15664#       发表于 2021-5-21 17:51
+
+
+尼哥司机是吧<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 15665#       发表于 2021-5-21 17:59
+
+
+ 本帖最后由 路人辰 于 2021-5-21 18:49 编辑 
+
+20210521东京18点（1、2）
+
+<img src="https://img.saraba1st.com/forum/202105/21/184908ne3ytnrtn1rc8mj8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>54FB5721-1257-4E83-8506-6769C24AF25F.jpeg</strong> (179.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 18:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/175919h7qlconocfaac2il.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D69F786D-5819-4B63-B53D-C4EBC3B0B09F.jpeg</strong> (186.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 17:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/180127nzfycysc1ei1z0ic.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>A4DE629E-2732-40DF-9528-236C58D34958.jpeg</strong> (257.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-21 18:01 上传
+
+
+-----
+
+####  A2014720  
+##### 15666#       发表于 2021-5-21 18:09
+
+
+别玩的太激烈啊<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15667#       发表于 2021-5-21 18:31
+
+
+和九条chuchu了
+
+
+-----
+
+####  泔水  
+##### 15668#       发表于 2021-5-21 18:33
+
+
+啥时候和九条联动啊，小麻现在联动全是姨，都姨化了
+
+
+-----
+
+####  makourisu-2  
+##### 15669#       发表于 2021-5-21 18:49
+
+
+有人可以发一下最后这个推带的图吗<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">没法科学上网
+
+
+-----
+
+####  路人庚  
+##### 15670#       发表于 2021-5-21 21:00
+
+
+手机不知道怎么保存这种fleet里的表情包..
+
+
+-----
+
+####  甘栗No.007  
+##### 15671#       发表于 2021-5-21 22:58
+
+
+不知道会不会动，之前存的
+
+
+5050FB74-A61F-4503-A076-AA746AC6ECD8.gif
+(320.98 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-21 22:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/21/225804zgf81fjyq98jf9s2.gif" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| makourisu-2| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  A2014720  
+##### 15672#       发表于 2021-5-21 23:09
+
+
+肥
+
+
+-----
+
+####  路人辰  
+##### 15673#       发表于 2021-5-22 11:21
+
+
+ 本帖最后由 路人辰 于 2021-5-22 11:32 编辑 
+
+20210522东京10点；11点
+
+
+<img src="https://img.saraba1st.com/forum/202105/22/112707sysmwdl2sslxmyxb.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>FE04AE45-C36F-448E-B633-995B58E56832.jpeg</strong> (173.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-22 11:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/22/112653ys7x61t5592sb5ic.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3791EFAB-92D0-414E-BFCA-D4F85C83F992.jpeg</strong> (154.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-22 11:26 上传
+
+
+-----
+
+####  路人辰  
+##### 15674#       发表于 2021-5-22 11:22
+
+
+ 本帖最后由 路人辰 于 2021-5-22 15:57 编辑 
+
+20210522东京12点（1、2）
+
+<img src="https://img.saraba1st.com/forum/202105/22/155730wvry5yovckuyuoon.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E15A03EE-A4D4-4BF6-88C8-D6897A58E5E3.jpeg</strong> (174.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-22 15:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/22/155730jarsspkjajkpnijn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>06BB3B69-EAC0-476F-876D-5F6F3A4AF6D6.jpeg</strong> (189.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-22 15:57 上传
+
+
+-----
+
+####  Klience  
+##### 15675#       发表于 2021-5-22 12:44
+
+
+推特签名变了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 15676#       发表于 2021-5-22 13:06
+
+
+你麻的，肯定是谈恋爱了，破防了，不演了，我承认我不想你麻有男朋友
+
+
+<img src="https://img.saraba1st.com/forum/202105/22/130610hihh6z2h5onhnin6.png" referrerpolicy="no-referrer">
+
+
+<strong>104433wl4004olow0zea4w.png</strong> (327.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-22 13:06 上传
+
+
+-----
+
+####  雪风utopia  
+##### 15677#       发表于 2021-5-22 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51332932&amp;ptid=1973472" target="_blank">Dualist彩 发表于 2021-5-22 13:06</a>
+你麻的，肯定是谈恋爱了，破防了，不演了，我承认我不想你麻有男朋友</blockquote>
+我不信，你一定还在演，除非你来一篇zqsg长文加取关拉黑反踩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15678#       发表于 2021-5-22 14:06
+
+
+风怒
+
+
+-----
+
+####  雪风utopia  
+##### 15679#       发表于 2021-5-22 14:06
+
+
+ 本帖最后由 雪风utopia 于 2021-5-22 14:07 编辑 
+
+风怒*2
+
+
+-----
+
+####  雪风utopia  
+##### 15680#       发表于 2021-5-22 14:06
+
+
+ 本帖最后由 雪风utopia 于 2021-5-22 14:08 编辑 
+
+风怒*3
+
+syl 什么几把网络<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15681#       发表于 2021-5-22 14:11
+
+
+你发表之后不动的话刷新一下看一下吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15682#       发表于 2021-5-22 15:13
+
+
+原来这人早上还去海苔男杂谈露脸了
+mea，永远的话题人物<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 15683#       发表于 2021-5-22 15:56
+
+
+ 本帖最后由 路人辰 于 2021-5-23 15:50 编辑 
+
+20210523东京15点
+
+<img src="https://img.saraba1st.com/forum/202105/23/155044a0hefftx3ifh0ej0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2234AF2A-C73D-4E64-9F1A-BEDB72DA59B0.jpeg</strong> (83.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 15:50 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/155044bz9ylrxh9ywol8yi.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>959A9F7F-999A-478C-BFB1-D0BFCD7BC9F7.jpeg</strong> (166.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 15:50 上传
+
+
+-----
+
+####  A2014720  
+##### 15684#       发表于 2021-5-22 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51334254&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-5-22 15:13</a>
+原来这人早上还去海苔男杂谈露脸了
+mea，永远的话题人物</blockquote>
+有吗，来点repo<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15685#       发表于 2021-5-22 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51335996&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-5-22 18:20</a>
+
+有吗，来点repo</blockquote>
+没有,就很普通的打招呼<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 15686#       发表于 2021-5-23 00:17
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/001637f935uuujhbmevbbl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210523001616.png</strong> (104.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 00:16 上传
+
+
+荣誉点人 神乐mea<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 15687#       发表于 2021-5-23 00:18
+
+
+怎么跟点人混上了
+
+
+-----
+
+####  Dualist彩  
+##### 15688#       发表于 2021-5-23 00:21
+
+
+点太监这会儿心脏还好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+            
+
+你麻这什么操作啊，有点唐突
+
+
+-----
+
+####  笋狐  
+##### 15689#       发表于 2021-5-23 00:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">旁白居然是水木和三石...这么牌面的吗，有无懂哥知道这是啥节目
+
+
+-----
+
+####  thisisaspider  
+##### 15690#       发表于 2021-5-23 00:22
+
+
+又出卖了多少身体啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  路人庚  
+##### 15691#       发表于 2021-5-23 00:22
+
+
+再续（被台风吹散的）前缘
+
+
+不过没想到居然直接跟小白联动，不得了不得了（<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+这节目就是标准的日式综艺，不知道你咩姐会如何表现。。（哦，等等，之前说过的收录难道是这个吗
+
+
+-----
+
+####  KL25001  
+##### 15692#       发表于 2021-5-23 00:24
+
+
+和点生活一起上电视啊，人生真是神奇啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 15693#       发表于 2021-5-23 00:26
+
+
+能上地上波实属有点劲爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  KL25001  
+##### 15694#       发表于 2021-5-23 00:28
+
+
+活的长久是有好处的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 15695#       发表于 2021-5-23 00:28
+
+
+有无懂个说明下是什么节目
+
+
+-----
+
+####  thisisaspider  
+##### 15696#       发表于 2021-5-23 00:31
+
+
+降低下期待
+
+如果是19年的话 估计是整活博取眼球
+
+可惜现在混吃等死了 好点拉上去车轱辘梗 最差直接闭嘴躺平<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15697#       发表于 2021-5-23 00:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51339606&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-5-23 00:22</a>
+
+再续（被台风吹散的）前缘
+
+
+不过没想到居然直接跟小白联动，不得了不得了（</blockquote>
+标准日综就当综艺那套看其实也没什么,看个乐就行
+
+单纯是苔总给你的坏印象而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl,我奶一个兔子音介绍的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 15698#       发表于 2021-5-23 00:32
+
+
+ 本帖最后由 路人庚 于 2021-5-23 00:35 编辑 
+
+b站搜“超人女子战士”可以先去感受一下大概氛围（印象中我也只是看过有阿委参与的那一期
+
+<img src="https://img.saraba1st.com/forum/202105/23/003247dkzploumowybbpbz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>762EA55E-AA93-48E8-90FD-796C766BA1FD.jpeg</strong> (599.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 00:32 上传
+
+
+syl，其实也可能是这一位介绍的（
+
+<img src="https://img.saraba1st.com/forum/202105/23/003421zms7su9sujz55991.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>38741DF2-0AC4-49BD-9960-4372B51E1485.jpeg</strong> (89.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 00:34 上传
+
+
+（当然你咩姐就靠着自己当年跟点生活（被台风天吹走）的交情也是有可能上这个节目的
+
+
+-----
+
+####  JY要塞  
+##### 15699#       发表于 2021-5-23 00:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">2021年了还有铁血豆腐？这都什么生态啊
+
+
+-----
+
+####  Klience  
+##### 15700#       发表于 2021-5-23 00:39
+
+
+我记得当时还有犬山作为追加嘉宾来着<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 15701#       发表于 2021-5-23 00:39
+
+
+一定是小麻的大手，不过能看一次你麻和siro同框属于是不亏了
+
+
+-----
+
+####  离心  
+##### 15702#       发表于 2021-5-23 00:44
+
+
+艹？
+
+
+-----
+
+####  雪风utopia  
+##### 15703#       发表于 2021-5-23 00:51
+
+
+都是活化石了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15704#       发表于 2021-5-23 01:15
+
+
+神奇
+
+
+-----
+
+####  往世雷书  
+##### 15705#       发表于 2021-5-23 01:16
+
+
+风吹散的是乐园，吹不散的是梦想。又见面了，.LIVE，以及我们尘封的记忆
+
+
+-----
+
+####  weiweiEX  
+##### 15706#       发表于 2021-5-23 01:17
+
+
+犬山嘉宾那期之后就有人猜接下来mea要上了，只是没想到隔了一年
+
+
+-----
+
+####  A2014720  
+##### 15707#       发表于 2021-5-23 01:29
+
+
+地上一日，v⭕️一年呐
+
+哦反转了，v⭕️一日地上一年
+
+
+-----
+
+####  GRMeA104  
+##### 15708#       发表于 2021-5-23 01:36
+
+
+ 本帖最后由 GRMeA104 于 2021-5-23 01:38 编辑 
+
+实际上反正上综艺也不会对情况有什么影响，当成一个可遇不可求的美好经历吧<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">，省的天天看别人怎样怎样来猜这人干啥
+
+今年确实参加了不少这样能给履历添上一笔的活动来着<img src="https://static.saraba1st.com/image/smiley/face2017/167.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 15709#       发表于 2021-5-23 01:41
+
+
+起码证明这人还是有热情在继续播的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15710#       发表于 2021-5-23 01:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51340081&amp;ptid=1973472" target="_blank">rosevalley46 发表于 2021-5-23 01:41</a>
+
+起码证明这人还是有热情在继续播的</blockquote>
+真的变成“活着”了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 15711#       发表于 2021-5-23 03:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jhouo8989  
+##### 15712#       发表于 2021-5-23 03:51
+
+
+卧槽，点！
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  病態極端  
+##### 15713#       发表于 2021-5-23 09:37
+
+
+原來這3D閉上眼時，眼睫毛都是異色的，細節真到位阿
+
+
+-----
+
+####  暴走的包子  
+##### 15714#       发表于 2021-5-23 09:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来之前说的工作是这个啊，讲真要不是点自己作死估计这个节目一般路人是上不去的
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  时雨rain  
+##### 15715#       发表于 2021-5-23 10:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么还能上这节目的，马内甲联系上的吗
+
+
+-----
+
+####  Klience  
+##### 15716#       发表于 2021-5-23 10:56
+
+
+要不就是犬山 要不就是黄兔子 不过大概率是黄兔子介绍的吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 15717#       发表于 2021-5-23 11:03
+
+
+有点草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+倒是对节目内容本身毫无期待
+
+
+-----
+
+####  GRMeA104  
+##### 15718#       发表于 2021-5-23 11:03
+
+
+不把我兔子音放眼里是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 15719#       发表于 2021-5-23 11:10
+
+
+反正明面上也就只知道那么几个人呗，她不说你也永远不知道有没有人帮忙、有的话到底是谁帮的忙<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+如果真是有人拉着的话前后这么多活动也算是铁兄弟了
+
+
+-----
+
+####  雪风utopia  
+##### 15720#       发表于 2021-5-23 11:20
+
+
+合理怀疑是小麻拿身体服侍电视台台长换来的机会<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 15721#       发表于 2021-5-23 11:52
+
+
+麻酱的大手罢了，神秘的老鸨式朋友圈，神秘的富二代野男人车队，阿苔的烂活必备嘉宾，黄兔的同性向往对象，荣誉虹人，还有深深埋在木口内的种子，自己却装成肥宅在tc收米，哈人
+
+
+-----
+
+####  Klience  
+##### 15722#       发表于 2021-5-23 12:03
+
+
+向往的生活 躺着就有钱、活动送上门<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 15723#       发表于 2021-5-23 14:07
+
+
+你们怎么说得好像没人能拒绝小麻的肉体一样！
+
+
+-----
+
+####  雪风utopia  
+##### 15724#       发表于 2021-5-23 14:27
+
+
+那你来拒绝一个试试<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 15725#       发表于 2021-5-23 14:51
+
+
+ 本帖最后由 路人辰 于 2021-5-23 18:06 编辑 
+
+20210523东京18点（1、2、3）
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/180606r64gthne0ttweczz.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D7690D64-1809-4892-A705-D31BC4195DDB.jpeg</strong> (60.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 18:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/175923gmnttt8samknnlb4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7638AE02-8B30-41EE-A972-81DB18C26E0F.jpeg</strong> (327.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 17:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/180606xv2iihd8v0t5v0v0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1E94BA7B-C1A1-4A69-96A3-0A800CAB49C0.jpeg</strong> (106.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 18:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/175923tdzwtoowvv9yt3ls.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4C7892DA-A478-41D6-9A1C-CC669D1841DE.jpeg</strong> (268.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 17:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/180606u89ll1ls55is8sbw.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>78BB52D7-66FF-4E65-97FE-4A5AFB130565.jpeg</strong> (64.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 18:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/180249oxdw3mgoz3x6e7wg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>4688C314-894E-4E3D-8E39-CD4E77D0491A.jpeg</strong> (195.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 18:02 上传
+
+
+-----
+
+####  专业划水人员  
+##### 15726#       发表于 2021-5-23 17:05
+
+
+又发歌了
+
+
+-----
+
+####  路人庚  
+##### 15727#       发表于 2021-5-23 17:08
+
+
+ 本帖最后由 路人庚 于 2021-5-23 17:10 编辑 
+
+看着像定时发布，好吧油管小号也有，没发推，看来你咩姐是忘记了（草
+
+
+这波是小疯婆子翻唱大疯婆子（
+
+
+-----
+
+####  古战场亡魂  
+##### 15728#       发表于 2021-5-23 17:13
+
+
+双厨狂喜，我八百年前里喜欢p丸了。不过mea疯还差的远呢
+
+
+-----
+
+####  ashero  
+##### 15729#       发表于 2021-5-23 17:17
+
+
+出道当年人称小OO月<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rosevalley46  
+##### 15730#       发表于 2021-5-23 17:31
+
+
+她当年被称呼的小xx多了
+
+现在能比她存活的长的都不多
+
+
+-----
+
+####  掉头学姐  
+##### 15731#       发表于 2021-5-23 17:33
+
+
+听了原曲 这mix差距<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15732#       发表于 2021-5-23 18:26
+
+
+说来转发这种方式真能吸到别人来看嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15733#       发表于 2021-5-23 18:32
+
+
+学姨样没姨魂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 15734#       发表于 2021-5-23 18:38
+
+
+上次的三姨合唱在那嗯转我就想吐槽了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+这憨批<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 15735#       发表于 2021-5-23 19:12
+
+
+ 本帖最后由 路人辰 于 2021-5-23 20:39 编辑 
+
+20210523东京20点
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/203912flzl4uu7kq0wg2re.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>5967D131-E55E-439C-AB62-5B2757A4041B.jpeg</strong> (188.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 20:39 上传
+
+
+-----
+
+####  专业划水人员  
+##### 15736#       发表于 2021-5-23 19:17
+
+
+这人念白真可爱！可能真有点傲娇系声优的潜质。
+
+
+-----
+
+####  千里夜雨  
+##### 15737#       发表于 2021-5-23 19:25
+
+
+ 本帖最后由 千里夜雨 于 2021-5-23 21:45 编辑 
+
+<strong>征 翻 译</strong>
+
+打算剪一两个稿子滥竽充数一下，发现没人粗翻译了
+
+q上有联系方式的和我同批次的伙伴基本一个年龄层的，似乎全线厂妹，
+
+有个我不知道有没有因为去年底的事脱粉
+
+咱也不敢说，咱也不敢问，
+
+之前老是拜托空瞳卫妹子去校和翻同好会的稿子
+
+自觉消费自己到一定程度了
+
+不太好意思冒险开口让她看无聊的东西
+
+总之有意向的可以私信我加Q或者通过那几个有我Q号的加我
+
+不会有啥太频繁的翻译需求，因为首先我平时都不看，
+
+除非有人指名找我剪东西——当然如果没翻译也做不了
+
+
+@路人庚 可惜，et也无可用之兵
+大家要好好读书，争取人人当965人上人啊
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人子|-1|好吧，祝早日找到有缘人|
+| 路人辰|-1|❤️千里❤️|
+| 路人庚|-1|也许你还是直接去找et更方便，他认得人多.|
+
+
+查看全部评分
+
+
+-----
+
+####  十九号大侠  
+##### 15738#       发表于 2021-5-23 19:49
+
+
+腰
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  TiHaru  
+##### 15739#       发表于 2021-5-23 19:55
+
+
+试试？
+
+
+-----
+
+####  雪风utopia  
+##### 15740#       发表于 2021-5-23 20:12
+
+
+野男人和小麻到底是什么体位，请善待小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  D麦林  
+##### 15741#       发表于 2021-5-23 20:15
+
+
+ 本帖最后由 D麦林 于 2021-5-23 20:19 编辑 
+
+答案是肌肉野男人把娇小麻麻抱着当fjb用算了 还是肥婆巨麻一屁股把野男人坐到盆骨粉碎性骨折比较符合你楼画风
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 15742#       发表于 2021-5-23 20:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15743#       发表于 2021-5-23 22:48
+
+
+别找我，我手头理论还有七百条翻译要弄
+
+今天两周唯一一天放假我摇人大伙儿毕业的毕业工作的工作，我连天元突破和巴克亚罗都没空看了要
+
+我甚至这月底最后一周我又要被压榨了。蛋疼
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雪风utopia| + 1|加鹅|
+| 路人庚| + 1|辛苦了|
+
+
+查看全部评分
+
+
+-----
+
+####  yywzjsw  
+##### 15744#       发表于 2021-5-24 09:57
+
+
+没麻的日子感觉好悠闲，补补日剧和番，但也感觉时间过的好慢。平常即使挂后台也是一转眼就1点这样了。
+
+
+                         
