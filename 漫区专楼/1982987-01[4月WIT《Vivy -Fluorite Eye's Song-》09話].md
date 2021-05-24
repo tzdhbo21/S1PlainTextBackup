@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 02:11** 
+> ## **本文件最后更新于2021-05-24 15:57** 
 
 
 
@@ -1210,8 +1210,7 @@ ai技术既然能发展是有现实需要外加技术条件的，无论是影响
 ####  云野十五  
 ##### 80#       发表于 2021-4-4 03:18
 
-
-第二集看完了，希望不要变成第二个甲铁城，不过这片子周边不好出吧，卖熊?
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4948,11 +4947,7 @@ B站还没上？
 ####  云野十五  
 ##### 383#       发表于 2021-4-15 02:15
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50928447&amp;ptid=1982987" target="_blank">skmdfong 发表于 2021-4-13 21:40</a>
-
-3话掉头回来了，是熟悉的味道，等一个重振原创荣光吾辈义不容辞</blockquote>
-甲铁城也掉头了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4960,14 +4955,7 @@ B站还没上？
 ####  云野十五  
 ##### 384#       发表于 2021-4-15 02:16
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50940865&amp;ptid=1982987" target="_blank">rosennesta 发表于 2021-4-15 00:07</a>
-
-额，捉个虫，看ED的表记，OP和ED应该是专门请了歌手来唱，而不是CV本人上的
-
-
- ...</blockquote>
-和C&amp;T一样两组人马吧
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4975,11 +4963,7 @@ B站还没上？
 ####  云野十五  
 ##### 385#       发表于 2021-4-15 02:19
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50929414&amp;ptid=1982987" target="_blank">Mika-S 发表于 2021-4-13 23:08</a>
-
-这新人类妹妹一脸死相，编剧能不能别逮着人家一家薅啊，过分了）</blockquote>
-熊说不能改变未来，未来就是旭日死光了，炸大楼本来就没死人所以无所谓，果然对于编剧还是姐可妹亦可
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5690,10 +5674,7 @@ pv2台词回收失败（？） ...</blockquote>我以为会有反转——薇薇
 ####  云野十五  
 ##### 438#       发表于 2021-4-18 03:27
 
-
- 本帖最后由 云野十五 于 2021-4-18 03:29 编辑 
-
-日本叙事动画最近怎么回事?被巨人给加速了？丝毫不在意转场的过度，空有作画片段没有片段之间的正常衔接也太诡异了吧，我寻思我也没开二倍速拉片啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5734,8 +5715,7 @@ OP终于上线了；叙事节奏依旧很稳，这次故事还算可以
 ####  云野十五  
 ##### 442#       发表于 2021-4-18 03:38
 
-
-不得不说这片子后续每一集可能都会有很强的割裂感，你搞tvpaint加机器人材质是无所谓，你全程搞啊，学巨人和噬神者那样搞啊。剧情歌曲也是，你歌曲穿插不要那么刻意啊，场景之间的衔接呢，对话之间的衔接呢。哪怕剧本可能很好，这视听感官属实微妙<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">囤着先了，等完结看情况补
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5753,9 +5733,7 @@ OP终于上线了；叙事节奏依旧很稳，这次故事还算可以
 ####  云野十五  
 ##### 444#       发表于 2021-4-18 04:18
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50972774&amp;ptid=1982987" target="_blank">oznark 发表于 2021-4-18 01:25</a></blockquote>
-这是在脱披纱还是本剧发明了穿在大腿上的纱裙
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -17369,4 +17347,118 @@ Ophelia人格到底还在不在？在的话难道这些年就是 ...</blockquote
 奥菲利亚看着还是挂了？最后的瞬间恢复AI格了？
 
 
-     
+-----
+
+####  MMMMMMMMM  
+##### 1344#       发表于 2021-5-24 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51351095&amp;ptid=1982987" target="_blank">liwangli1983 发表于 2021-5-24 10:07</a>
+
+奥菲利亚看着还是挂了？最后的瞬间恢复AI格了？</blockquote>
+VIVY已经证实了可以用第二人格压制第一人格并且在第二人格消失后重新换回第一人格
+
+挂掉应该是硬件已经不行了，物理上的死亡
+
+
+-----
+
+####  liwangli1983  
+##### 1345#       发表于 2021-5-24 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51356270&amp;ptid=1982987" target="_blank">MMMMMMMMM 发表于 2021-5-24 17:26</a>
+
+VIVY已经证实了可以用第二人格压制第一人格并且在第二人格消失后重新换回第一人格
+
+挂掉应该是硬件已经不 ...</blockquote>
+那这次任务依然是失败的吗？
+
+
+不过想想应该能看出是外力破坏，所以不是自杀是被杀，也算完成任务了？
+
+
+-----
+
+####  shimmy1996  
+##### 1346#       发表于 2021-5-24 18:37
+
+
+突然想到正史里Antonio能夺舍Ophelia说明天启在正史里也存在并给了垣谷类似的指示？<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flypig_zhy  
+##### 1347#       发表于 2021-5-24 19:00
+
+
+<blockquote>shimmy1996 发表于 2021-5-24 18:37
+突然想到正史里Antonio能夺舍Ophelia说明天启在正史里也存在并给了垣谷类似的指示？ ...</blockquote>
+我一直觉得松本的正史原始性是很值得怀疑的
+
+
+-----
+
+####  shimmy1996  
+##### 1348#       发表于 2021-5-24 20:33
+
+
+ 本帖最后由 shimmy1996 于 2021-5-24 20:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51357209&amp;ptid=1982987" target="_blank">flypig_zhy 发表于 2021-5-24 19:00</a>
+
+我一直觉得松本的正史原始性是很值得怀疑的</blockquote>
+
+有道理，松本的正史是已经被天启改变过的结果就说得通了
+
+最近几个特异点全是姐妹机上出现的，说不定vivy自己是最后的特异点<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+这样也更能解释vivy对奇点计划的必要性，以及为啥松本这个奇异点没有来主动找diva
+
+
+-----
+
+####  gofbayrf  
+##### 1349#       发表于 2021-5-24 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51356575&amp;ptid=1982987" target="_blank">liwangli1983 发表于 2021-5-24 17:52</a>
+那这次任务依然是失败的吗？
+
+
+不过想想应该能看出是外力破坏，所以不是自杀是被杀，也算完成任务了？ ...</blockquote>
+第一對殉情的ai
+
+
+-----
+
+####  青菜子  
+##### 1350#       发表于 2021-5-24 21:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">这片就是花式殉情，姐妹殉情，人机殉情，机机殉情
+
+
+
+
+-----
+
+####  咸鱼咸又咸  
+##### 1351#       发表于 2021-5-24 22:18
+
+
+我记得开头博士说要DIVA拯救世界，而没说薇薇？这集突出DIVA消失了，算是个伏笔？
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  马桶3  
+##### 1352#       发表于 2021-5-24 22:44
+
+
+AI也要做谜语人吗
+
+
+    
