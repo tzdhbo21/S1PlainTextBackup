@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-21 07:17** 
+> ## **本文件最后更新于2021-05-24 02:43** 
 
 
 
@@ -402,10 +402,11 @@ how are you? I'm fine, thank you. And you?</blockquote>
 ##### 35#       发表于 2021-5-20 22:44
 
 
+ 本帖最后由 京騒戯画 于 2021-5-21 18:27 编辑 
 <blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51317485&amp;ptid=2005127" target="_blank">escape 发表于 2021-5-20 22:40</a>
 
 说What’s up感觉有点尬。</blockquote>
-hey up mate感觉怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+hey up mate感觉怎么样<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">Yorkshire这疙瘩就这么尬
 
 
 -----
@@ -1807,6 +1808,21 @@ It is the day of judgment <img src="https://static.saraba1st.com/image/smiley/fa
 没有那么涩情的语气啦<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 躺语| + 1|啊啊啊不要用这种回味悠长的表情啊！.|
+
+
+查看全部评分
+
+
 -----
 
 ####  空当接龙  
@@ -1976,4 +1992,215 @@ Good day/morning 就完事了……
 how dare you
 
 
-                                            
+-----
+
+####  Garterbelt  
+##### 166#       发表于 2021-5-21 15:43
+
+
+我比较在意主楼图里说的“世界上优秀的教科书"是指什么。难道还能直接拿英国的教科书来用吗？
+
+
+-----
+
+####  RPG-7  
+##### 167#       发表于 2021-5-21 15:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51320282&amp;ptid=2005127" target="_blank">真田丸 发表于 2021-5-21 09:26</a>
+May Force Be With You.</blockquote>
+应该先问候hello there
+
+
+-----
+
+####  oopsoops  
+##### 168#       发表于 2021-5-21 15:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51317164&amp;ptid=2005127" target="_blank">すぴぱら 发表于 2021-5-20 22:08</a>
+
+所以how do you do到底是个什么用法，为什么从没见白皮用过</blockquote>
+看看希区柯克，上世纪还是很常用的
+
+
+-----
+
+####  山下野人  
+##### 169#       发表于 2021-5-21 15:58
+
+
+现在流行的是不是 how dear you
+
+
+-----
+
+####  古代人皮克  
+##### 170#       发表于 2021-5-21 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51323248&amp;ptid=2005127" target="_blank">3Psm 发表于 2021-5-21 13:41</a>
+抬杠了。
+
+英语教学本身作为外国语文普及已经过时了，所以教的内容普及到英语基本语法就够了
+
+就跟文言文、 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">古文是死的现代文是活的，高考语文都经常改标准呢，到你这就英语够用就行了，不是懒是啥
+
+—— 来自 OnePlus HD1900, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0.1
+
+
+-----
+
+####  cloudian  
+##### 171#       发表于 2021-5-21 16:40
+
+
+我的观察，how are you最多，how do you do也有，没有完全绝迹。
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  真田丸  
+##### 172#       发表于 2021-5-21 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51324589&amp;ptid=2005127" target="_blank">山下野人 发表于 2021-5-21 15:58</a>
+
+现在流行的是不是 how dear you</blockquote>
+看成how dare you
+
+
+-----
+
+####  liaoguom  
+##### 173#       发表于 2021-5-21 18:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51317466&amp;ptid=2005127" target="_blank">张元英 发表于 2021-5-20 22:38</a>
+
+中国的教材不是自己编的, 是英国人编的,  一帮几十年前就至少四五十岁的精英英国人,  用"how do you do"不 ...</blockquote>
+朗文出版社，百度了下还是历史挺悠久的英国公司，用这些不奇怪
+
+
+-----
+
+####  婉兮  
+##### 174#       发表于 2021-5-21 23:59
+
+
+不加with you的话，what's wrong 或者what's the matter其实还好，相当于一句咋滴啦
+
+
+-----
+
+####  婉兮  
+##### 175#       发表于 2021-5-22 00:09
+
+
+<blockquote>混沌大陆 发表于 2021-5-21 08:40
+话说有没有在英美实际生活过得，那边人打招呼真的从来不见“how do you do”吗?” ...</blockquote>
+可能没到这个阶级2333 
+
+日常会用how r u/how u doin/how's ur day/what's up等，看熟悉程度。
+
+
+-----
+
+####  Richardsw  
+##### 176#       发表于 2021-5-22 01:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51318027&amp;ptid=2005127" target="_blank">nukejoker 发表于 2021-5-20 23:37</a>
+看过赫本的窈窕淑女你就不会这么问了。
+
+现在不用了而已。</blockquote>
+音乐之声里也有
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  億万千  
+##### 177#       发表于 2021-5-22 01:14
+
+
+中文直译还挺贴合这个梗的
+
+what's wrong with you ？ 你有病啊？
+
+字面含义都是那个含义，但是说出来意思就变了
+
+
+-----
+
+####  3Psm  
+##### 178#       发表于 2021-5-23 07:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51324816&amp;ptid=2005127" target="_blank">古代人皮克 发表于 2021-5-21 16:20</a>
+
+古文是死的现代文是活的，高考语文都经常改标准呢，到你这就英语够用就行了，不是懒是啥
+
+
+—— 来 ...</blockquote>
+是没必要。英文虽然是活的，但是在普及教育上没必要投入那么大。地位也就跟文言文差不多。
+
+当然，你感觉要给英文准官方语言待遇般的教育投入，这确实差得很远。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Nokazusa  
+##### 179#       发表于 2021-5-23 07:28
+
+
+个人体感英国说how are you还是最多的…什么背景的都有
+
+—— 来自 HUAWEI JEF-AN20, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+-----
+
+####  萧观澜  
+##### 180#       发表于 2021-5-23 11:08
+
+
+左耳朵耗子啊，他还有王垠同样的醍醐味<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  鵝  
+##### 181#       发表于 2021-5-24 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51319406&amp;ptid=2005127" target="_blank">不是橘子皮 发表于 2021-5-21 07:29</a>
+现在大家都把美国式的错误英语当正确英文了。。
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+蛋定，保不齐哪年美国裂成五块的话，拆你利是就成正统了
+
+—— 来自 Xiaomi M2003J15SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  鵝  
+##### 182#       发表于 2021-5-24 09:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51319780&amp;ptid=2005127" target="_blank">真贝尔奈普斯 发表于 2021-5-21 08:37</a>
+这个我看日本人也当梗的，好像他们教科书也是这鸟样❓</blockquote>
+日本的英语梗不是ppap吗
+
+—— 来自 Xiaomi M2003J15SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                           

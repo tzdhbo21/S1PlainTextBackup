@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-21 03:55** 
+> ## **本文件最后更新于2021-05-24 02:17** 
 
 
 
@@ -5887,4 +5887,770 @@ xperia pro，1w6，国内没上市，自带hdmi口，专业相监
 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">很正常啊，我马克兔首发买的也才6699
 
 
-                                   
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| MixRadio| + 1||
+| 尔乃美家累|-1||
+
+
+查看全部评分
+
+
+-----
+
+####  用户名已注册  
+##### 425#       发表于 2021-5-21 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51321896&amp;ptid=1985265" target="_blank">无印凉粉 发表于 2021-5-21 11:42</a>
+
+1M3的三色均为磨砂后盖</blockquote>
+好的谢谢
+
+
+-----
+
+####  oskneo  
+##### 426#       发表于 2021-5-21 12:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51321702&amp;ptid=1985265" target="_blank">leyenda 发表于 2021-5-21 11:28</a>
+1ii 5ii都可以，推送过更新，就是没hdmi</blockquote>
+上面说有转接口可以，不过即使支持c口hdmi输入，其实还是要转接口吧
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  ut0  
+##### 427#       发表于 2021-5-21 14:12
+
+
+ 本帖最后由 ut0 于 2021-5-21 14:13 编辑 
+
+如果不开 发 票的话，大法方便维修吗？
+我知道一般电脑没有发票，售后不作怪的话，可以直接凭序列号可以维修的。
+不知道现在手机，或者大法的售后如果维修的话，是不是一定要发票不？
+
+—— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kaiki_aiolos  
+##### 428#       发表于 2021-5-21 18:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51321993&amp;ptid=1985265" target="_blank">月神侠 发表于 2021-5-21 11:50</a>
+
+很正常啊，我马克兔首发买的也才6699</blockquote>
+刚问了下绅士，这次首发要7599/8499
+
+比马兔贵不少
+
+
+-----
+
+####  fishmanzero  
+##### 429#       发表于 2021-5-21 20:28
+
+
+ 本帖最后由 fishmanzero 于 2021-5-21 21:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51321576&amp;ptid=1985265" target="_blank">他言無用 发表于 2021-5-21 11:18</a>
+
+测试了下以旧换新活动，我的是马克兔。在官网的活动页面扫码进入爱回收页面，这里顶部有个优惠券广告进去可 ...</blockquote>
+规则写要回收前买机，又要求6月30号前完成回收…
+
+那就是提交回收单优惠买机之后取消也管不着我了？
+
+—— 来自 粗粮 K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+并不是，散了……哪来2500的旧手机，XZP只能顶55块……
+
+（3） 如实际回收价高于回收估价，用户可以在2021年6月30日前可联系索尼客服申请退回购新补贴券面额变动所产生的差价。如实际回收价低于回收估价或用户在2021年6月30日前未完成旧机回收，索尼商城客服将会联系用户对购新补贴券面额变动产生的差价进行补付。用户未在指定期限内补付差额的，索尼保留追究法律责任的权利。
+（4） 购新补贴券支付的订单，补贴券抵扣部分不开具发票。如需退货，退货时按发票金额进行退款。退货后，已使用的购新补贴券自动作废。如未在规定时间内支付尾款的，视为购买合同未成立，订单自动取消，购新补贴券将返还至用户My Sony账号。订单完成支付后，用户取消订单的，优惠券不予返还。
+<strong>（5） 索尼如有证据证明用户采取虚构回收订单等违规方式获取购新补贴券或回收加价券的，索尼有权取消购新补贴券并要求补付补贴券面额。</strong>
+
+
+-----
+
+####  千本blur  
+##### 430#       发表于 2021-5-22 03:31
+
+
+我真是佩服索尼，3.5耳机口，整了一大堆唬人的软件音效，软件升频，看得出想收割一波音乐爱好者，但就是没有提到为高保真音频设计的电路。
+
+
+-----
+
+####  hlazd  
+##### 431#       发表于 2021-5-22 03:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51330202&amp;ptid=1985265" target="_blank">千本blur 发表于 2021-5-22 03:31</a>
+
+我真是佩服索尼，3.5耳机口，整了一大堆唬人的软件音效，软件升频，看得出想收割一波音乐爱好者，但就是没 ...</blockquote>
+电路设计要消耗额外成本吧，不如吹吹软件
+
+
+-----
+
+####  Cray  
+##### 432#       发表于 2021-5-22 07:11
+
+
+<blockquote>引用第429楼千本blur于2021-05-22 03:31发表的  :
+
+我真是佩服索尼，3.5耳机口，整了一大堆唬人的软件音效，软件升频，看得出想收割一波音乐爱好者，但就是......</blockquote>
+看看广告介绍3.5耳机孔的时候是用的什么耳机 …<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Yukine_Chris  
+##### 433#       发表于 2021-5-22 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51323537&amp;ptid=1985265" target="_blank">ut0 发表于 2021-5-21 14:12</a>
+如果不开 发 票的话，大法方便维修吗？
+我知道一般电脑没有发票，售后不作怪的话，可以直接凭序列号可以维 ...</blockquote>
+港机在内地保修一定要票，国行不太管
+
+— from Sony J9110, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  无印凉粉  
+##### 434#       发表于 2021-5-22 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51330202&amp;ptid=1985265" target="_blank">千本blur 发表于 2021-5-22 03:31</a>
+
+我真是佩服索尼，3.5耳机口，整了一大堆唬人的软件音效，软件升频，看得出想收割一波音乐爱好者，但就是没 ...</blockquote>
+虽然但是，你们的手机3.5耳机接口在哪？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lolozp  
+##### 435#       发表于 2021-5-22 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51313601&amp;ptid=1985265" target="_blank">mickoo 发表于 2021-5-20 16:33</a>
+
+天猫有24期免息，首发降200，350一个月，其实还行，如果换成iPhone的话，应该很多人买，索尼的话，对不起了 ...</blockquote>
+我手上的xperia 1就是19年底5299多24期免息天猫买的
+
+
+这破手机用了一周就把屏幕一个角摔破屏了，然后现在还没还清，
+
+
+心里想等还清再换手机，但这2年过去涨价太过分了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mickoo  
+##### 436#       发表于 2021-5-22 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51332077&amp;ptid=1985265" target="_blank">lolozp 发表于 2021-5-22 11:44</a>
+我手上的xperia 1就是19年底5299多24期免息天猫买的
+
+
+这破手机用了一周就把屏幕一个角摔破屏了，然后现在 ...</blockquote>
+还好，我朋友24期的iPhone 11，第二个星期就不见了，一直在还钱
+
+
+-----
+
+####  破罐子  
+##### 437#       发表于 2021-5-22 16:42
+
+
+ 本帖最后由 破罐子 于 2021-5-22 21:39 编辑 
+
+讲真，三爽这个配置首发也这个价格，苹果同期硬件估计比这还差价格也上万，凭啥索尼就不配了。
+
+
+-----
+
+####  leystage  
+##### 438#         楼主| 发表于 2021-5-22 18:57
+
+
+<blockquote>破罐子 发表于 2021-5-22 16:42
+讲真，三爽这个配置手法也这个价格，苹果估计比这还差价格也上万，凭啥索尼就不配了。 ...</blockquote>
+一些私见。
+
+品牌力是一种抽象但存在的东西。
+
+Xperia 的品牌力在大多数市场都不足以支持它的定位，除了在日本本土。
+
+但是在日本本土，也只能说是品牌力足够支撑定价，但因为总体走中高端路线，天生市场较小，销量份额在安卓阵营也就十分之一多。
+
+在国内的话，有上万预算的消费者绝大多数只会考虑苹果三星华为，而不是索尼。就是因为索尼品牌力不足。我身边认识的有这么高预算的人大部分不知道索尼有手机，更别提放入选购列表了。
+
+当然索尼软件在国内有严重的水土不服，但是我一直倾向于认为在今天，品牌力不足的负面效果越大于软件生态。
+
+
+-----
+
+####  distrowatch  
+##### 439#       发表于 2021-5-22 19:01
+
+
+5M3要Q3才能上么？好像没什么消息
+
+
+-----
+
+####  leystage  
+##### 440#         楼主| 发表于 2021-5-22 20:18
+
+
+<blockquote>distrowatch 发表于 2021-5-22 19:01
+5M3要Q3才能上么？好像没什么消息</blockquote>
+据说是下半年，都不一定是 Q3。不过每年如此吧，10/11月上市
+
+
+-----
+
+####  leystage  
+##### 441#         楼主| 发表于 2021-5-22 20:18
+
+
+港版据说要七月上市？这次就等买国行的朋友发首发体验了
+
+
+-----
+
+####  Yukine_Chris  
+##### 442#       发表于 2021-5-22 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51335068&amp;ptid=1985265" target="_blank">破罐子 发表于 2021-5-22 16:42</a>
+
+讲真，三爽这个配置手法也这个价格，苹果估计比这还差价格也上万，凭啥索尼就不配了。 ...</blockquote>
+星星星有丐版<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wqm2008  
+##### 443#       发表于 2021-5-22 22:27
+
+
+ 本帖最后由 wqm2008 于 2021-5-22 22:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51335068&amp;ptid=1985265" target="_blank">破罐子 发表于 2021-5-22 16:42</a>
+
+讲真，三爽这个配置首发也这个价格，苹果同期硬件估计比这还差价格也上万，凭啥索尼就不配了。 ...</blockquote>
+光马达质感我敢说就差三星两年，马克兔不如我手上note9，谷歌输入法实测。
+
+
+苹果同期硬件哪一次不是吊打安卓阵营，A14到现在也全无敌手，还有IOS完整的生态体验。
+
+
+索尼除了信仰就是不配啊，产品力真的差很多，自己实际体验一下ultra系列或者promax你会有非常直观的感触
+
+
+更别提三星和苹果的价格也十分感人，ip12现在只要5500就可以拿下
+
+
+再看看索尼，想想售后和服务（本人马克一和马克兔都返厂修过
+
+
+-----
+
+####  Cray  
+##### 444#       发表于 2021-5-22 23:00
+
+
+好消息 …新版摄影大师二代机可以直接安装使用。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  妹妹屁股好大  
+##### 445#       发表于 2021-5-22 23:22
+
+
+都调侃能打电话的相机了
+
+
+-----
+
+####  leystage  
+##### 446#         楼主| 发表于 2021-5-23 09:54
+
+
+<blockquote>Cray 发表于 2021-5-22 23:00
+好消息 …新版摄影大师二代机可以直接安装使用。
+
+
+----发送自 Sony H8296,Android 9 ...</blockquote>
+不过听说好像不能关联快门键直接启动？
+
+
+-----
+
+####  xzk0916  
+##### 447#       发表于 2021-5-23 10:41
+
+
+去实体店摸了一下，更想换的手上的初代1了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 就是担心888会不会真的太热
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+-----
+
+####  乃木坂裕人  
+##### 448#       发表于 2021-5-23 11:47
+
+
+去索尼展上摸了，拍照一如既往的拉垮，下次一定
+
+
+-----
+
+####  szzyf7  
+##### 449#       发表于 2021-5-23 12:13
+
+
+ 本帖最后由 szzyf7 于 2021-5-23 12:16 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51335068&amp;ptid=1985265" target="_blank">破罐子 发表于 2021-5-22 16:42</a>
+
+讲真，三爽这个配置首发也这个价格，苹果同期硬件估计比这还差价格也上万，凭啥索尼就不配了。 ...</blockquote>
+港真，你是真没见过索尼的系统简陋到啥程度，一个七八千的机器，日历没有，天气没有，图片编辑没有，来电录音没有，相册基本没法用，应用商店甩了个麻花腾的，继承α系统的摄影硬件配个残疾APP，我老婆的5马克兔，我都是自己上贴吧一点点找大神的安装包弄系统的，感觉就像回到20年前给家里WIN95装驱动
+
+
+如果这些软件方面你都不在意的话，索尼还有个致命硬件缺陷，就是国内信号差的一塌糊涂，我还特地买国行的，希望基带方面能好点，结果还是三天两头掉线，上次去房产局交易进门要开健康码，就瞬间没信号了，逼得站在门口重启机器..........
+
+
+-----
+
+####  我很费纸  
+##### 450#       发表于 2021-5-23 12:23
+
+
+ 本帖最后由 我很费纸 于 2021-5-23 12:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342562&amp;ptid=1985265" target="_blank">szzyf7 发表于 2021-5-23 12:13</a>
+港真，你是真没见过索尼的系统简陋到啥程度，一个七八千的机器，日历没有，天气没有，图片编辑没有，来电 ...</blockquote>
+图片编辑不是谷歌相册自带吗？
+
+不过日历、相册、来电显示我确实都用第三方。
+
+信号差我觉得营运商的锅更大吧，我港行，和朋友一起出门，要么就是我和他们的小米华为苹果一起没信号，要么就是苹果没信号，华为小米和我还有信号<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+坐标深圳，营运商联通
+
+当然最后，作为多代索尼用户，反正我一向是我买我支持，你买不推荐的态度<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，老用户折腾这些轻车熟路，为了完整屏幕和干净系统体验，折腾这些对我来说毫无痛苦。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  我很费纸  
+##### 451#       发表于 2021-5-23 12:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51341725&amp;ptid=1985265" target="_blank">xzk0916 发表于 2021-5-23 10:41</a>
+去实体店摸了一下，更想换的手上的初代1了 就是担心888会不会真的太热
+
+—— 来自 Sony J9110, Andr ...</blockquote>
+888一定会比865热，这是铁定的事实，哪怕是暴力散热的游戏手机都能感知到，索尼不用想了。
+
+索尼如果到最后体感不热，一般就两种可能，一是应用压力没到888需要全开发热的地步。二是已经撞上温度墙，降频保温度了——翔移的温度墙也一向比其他厂商保守，核心温度60多度就能触发降温保护机制了，国产机在性能模式下，80度也不降频<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  szzyf7  
+##### 452#       发表于 2021-5-23 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342644&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-5-23 12:23</a>
+
+图片编辑不是谷歌相册自带吗？
+
+
+不过日历、相册、来电显示我确实都用第三方。</blockquote>
+我家是国行，开机连谷歌也没有，只有残疾相册、残疾相机、麻花藤应用宝，其他一概木有，这纯净系统你感受下
+
+
+现在贴吧上都是把XZ那个时代的相册、键盘、天气、日历、动态壁纸这些停止维护的“原生”APP抓取出来，我们再装回去，才算勉强能用了，我估计索移的软件部门除了α系统的还在捣鼓相机一块，其他的已经没人了
+
+
+-----
+
+####  ut0  
+##### 453#       发表于 2021-5-23 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51331268&amp;ptid=1985265" target="_blank">Yukine_Chris 发表于 2021-5-22 10:04</a>
+港机在内地保修一定要票，国行不太管
+
+— from Sony J9110, Android 11 of S1 Next Goose v2.4.4.1 ...</blockquote>
+多谢解答回复。如果水宝不开票可以便宜很多又可以保修的话，要买的话，估计会在水匋宝去买
+
+不过不知道大法现在还有没有解锁不保的规定了，毕竟我肯定要root的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Yukine_Chris  
+##### 454#       发表于 2021-5-23 12:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342771&amp;ptid=1985265" target="_blank">ut0 发表于 2021-5-23 12:37</a>
+
+多谢解答回复。如果水宝不开票可以便宜很多又可以保修的话，要买的话，估计会在水匋宝去买
+
+
+不过不知道大 ...</blockquote>
+解BL丧失保修。
+
+既然有解BL的动手力那么自己修一下肯定也不是问题啦.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  szzyf7  
+##### 455#       发表于 2021-5-23 12:41
+
+
+ 本帖最后由 szzyf7 于 2021-5-23 13:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51338838&amp;ptid=1985265" target="_blank">Cray 发表于 2021-5-22 23:00</a>
+
+好消息 …新版摄影大师二代机可以直接安装使用。
+
+
+----发送自 Sony H8296,Android 9 ...</blockquote>
+有安装包可以分享吗
+
+
+-----
+
+####  我很费纸  
+##### 456#       发表于 2021-5-23 12:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342737&amp;ptid=1985265" target="_blank">szzyf7 发表于 2021-5-23 12:33</a>
+我家是国行，开机连谷歌也没有，只有残疾相册、残疾相机、麻花藤应用宝，其他一概木有，这纯净系统你感受 ...</blockquote>
+xz时代那些老官方应用其实港行也没法用，因为索尼实际上是弃更了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，港行也停用了。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  xzk0916  
+##### 457#       发表于 2021-5-23 13:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342692&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-5-23 12:28</a>
+888一定会比865热，这是铁定的事实，哪怕是暴力散热的游戏手机都能感知到，索尼不用想了。
+
+索尼如果到最 ...</blockquote>
+如果说日常使用就看看视频，不玩游戏，会出现很热的情况吗
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+-----
+
+####  我很费纸  
+##### 458#       发表于 2021-5-23 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342983&amp;ptid=1985265" target="_blank">xzk0916 发表于 2021-5-23 13:00</a>
+如果说日常使用就看看视频，不玩游戏，会出现很热的情况吗
+
+—— 来自 Sony J9110, Android 11上的 S1Nex ...</blockquote>
+一般流媒体，评测都表示还好吧，不打游戏不至于，也就是bat那些流氓会有压力。
+
+如果你是蓝光爱好者，那我就不确定了，因为手机评测很少测到这么硬核的部分<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  xzk0916  
+##### 459#       发表于 2021-5-23 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51343055&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-5-23 13:09</a>
+一般流媒体，评测都表示还好吧，不打游戏不至于，也就是bat那些流氓会有压力。
+
+如果你是蓝光爱好者，那 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">正想问问播HDR蓝光视频表现怎么样…再观望一下好了
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+-----
+
+####  leystage  
+##### 460#         楼主| 发表于 2021-5-23 13:35
+
+
+<blockquote>乃木坂裕人 发表于 2021-5-23 11:47
+去索尼展上摸了，拍照一如既往的拉垮，下次一定</blockquote>
+具体怎么拉垮了呢…
+
+
+-----
+
+####  哎哟卧槽了  
+##### 461#       发表于 2021-5-23 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342737&amp;ptid=1985265" target="_blank">szzyf7 发表于 2021-5-23 12:33</a>
+我家是国行，开机连谷歌也没有，只有残疾相册、残疾相机、麻花藤应用宝，其他一概木有，这纯净系统你感受 ...</blockquote>
+不然為何說不翻牆不索尼呢…翻的話一般也會買港版，或者已經懂得怎麼折騰…大法的手機在國內一般人來說，學習成本是挺高
+
+— from Sony XQ-AT72, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  cleaner  
+##### 462#       发表于 2021-5-23 14:12
+
+
+有一些系统级的谷歌没给接口的就算了，什么日历相册来电拦截这些用第三方能差到哪里吗？怎么在用机理念方面倒退回功能机时代，连S60v3都不如
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  月神侠  
+##### 463#       发表于 2021-5-23 14:48
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/144811sggs6i2stgojj74j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210523144520.jpg</strong> (89.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 14:48 上传
+
+
+快来入职当索尼员工吧<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  木瓜奶五元  
+##### 464#       发表于 2021-5-23 15:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342562&amp;ptid=1985265" target="_blank">szzyf7 发表于 2021-5-23 12:13</a>
+
+港真，你是真没见过索尼的系统简陋到啥程度，一个七八千的机器，日历没有，天气没有，图片编辑没有，来电 ...</blockquote>
+1、这就像买房。有人喜欢精装房，有人喜欢毛坯房。给个精装房照样有人喷“这用的都是些什么辣鸡？还有陀屎焊死在大梁上的？”
+
+
+2、要开健康码然后没信号了，我xzp有，我老婆ip6sp也有，换成ip12p了还有。真要比频率……她的ip没信号次数是我三倍。也没见人说这是“致命缺陷”
+
+
+-----
+
+####  Cray  
+##### 465#       发表于 2021-5-23 15:56
+
+
+开机怎么可能没谷歌 …是XZ2年代的机器吧 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer"> 
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Cray  
+##### 466#       发表于 2021-5-23 16:01
+
+
+<blockquote>引用第448楼szzyf7于2021-05-23 12:13发表的  :
+
+本帖最后由 szzyf7 于 2021-5-23 12:16 编辑 引用:破罐子 发表于 2021-......</blockquote>
+明明开机就要有谷歌，相册也有编辑，日历有也有还带农历。录音可以用游戏增强器。
+刷一下系统的更新程序很难吗 
+
+掉信号是5g的问题，飞一下就好，大家都这样。<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Cray  
+##### 467#       发表于 2021-5-23 16:04
+
+
+<blockquote>引用第454楼szzyf7于2021-05-23 12:41发表的  :
+
+本帖最后由 szzyf7 于 2021-5-23 13:04 编辑 引用:Cray 发表于 2021......</blockquote>
+微博有网盘地址
+
+
+----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  KDN_Observer  
+##### 468#       发表于 2021-5-23 16:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51342789&amp;ptid=1985265" target="_blank">Yukine_Chris 发表于 2021-5-23 12:40</a>
+
+解BL丧失保修。
+
+既然有解BL的动手力那么自己修一下肯定也不是问题啦.jpg ...</blockquote>
+想问一下解BL除了丢保修以外还会丢别的什么东西吗？DRM密钥或者是相机的某些功能？
+
+
+-----
+
+####  Yukine_Chris  
+##### 469#       发表于 2021-5-23 16:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51344532&amp;ptid=1985265" target="_blank">KDN_Observer 发表于 2021-5-23 16:11</a>
+
+想问一下解BL除了丢保修以外还会丢别的什么东西吗？DRM密钥或者是相机的某些功能？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就不知道了……我上一台解了BL的索尼是索爱xperia arc S，跑的是android2.4
+
+
+-----
+
+####  lbzlxx  
+##### 470#       发表于 2021-5-23 17:20
+
+
+我挺喜欢一些旧系统的app的，比如天气，z3c时还有个图片和视频的小插件，可以直接在桌面预览，很方便，旧版的计算器功能齐全，不穿可以转换成科学型，现在全阉割掉了
+
+
+-----
+
+####  无印凉粉  
+##### 471#       发表于 2021-5-23 17:40
+
+
+其实我最奇怪的是，索移明明没有几个app需要自己开发，怎么会养了那么多码农的？
+
+
+-----
+
+####  leystage  
+##### 472#         楼主| 发表于 2021-5-23 18:12
+
+
+<blockquote>月神侠 发表于 2021-5-23 14:48
+快来入职当索尼员工吧</blockquote>
+当年索尼中国和索尼日本都没要我。索尼中国可能是没想招人，笔试考卷跟**岗位没什么关系，极度草台。索尼日本跑去跟一个日本大叔聊了一面后把我拒了。可能是觉得我表现出的对索尼的脑残粉把人家吓跑了 XD
+
+
+-----
+
+####  Cray  
+##### 473#       发表于 2021-5-23 19:59
+
+
+<blockquote>引用第469楼lbzlxx于2021-05-23 17:20发表的  :
+
+我挺喜欢一些旧系统的app的，比如天气，z3c时还有个图片和视频的小插件，可以直接在桌面预览，很方便......</blockquote>
+天气可以用老版的，计算器都在啊。
+
+
+----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Cray  
+##### 474#       发表于 2021-5-23 20:02
+
+
+<blockquote>引用第470楼无印凉粉于2021-05-23 17:40发表的  :
+
+其实我最奇怪的是，索移明明没有几个app需要自己开发，怎么会养了那么多码农的？</blockquote>
+安卓系统索尼贡献的蛮多的。  很多安卓的东西都有索尼的影子  
+包括最新的安卓12  梦回xperia x<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony XQ-AS72,Android 11](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Yukine_Chris  
+##### 475#       发表于 2021-5-23 20:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51345236&amp;ptid=1985265" target="_blank">无印凉粉 发表于 2021-5-23 17:40</a>
+其实我最奇怪的是，索移明明没有几个app需要自己开发，怎么会养了那么多码农的？ ...</blockquote>
+给谷歌打工啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当年nexus，每次新品发布之前大家都会觉得这次是索爱/索尼
+
+— from Sony J9110, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  海关  
+##### 476#       发表于 2021-5-23 21:09
+
+
+思考再三，觉得今年没必要上车，还是等下一代，还是把官网订的顶配订单取消了，那么，有个问题，这个订金是不会自动退的吧？我好像没看到退钱
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  NeverFar  
+##### 477#       发表于 2021-5-24 09:44
+
+
+去旗舰店摸了下，初步结论：
+1. 屏幕很吊，一眼看出水平很高
+2. 拍照就是个ui，出片很一般，个人感觉不如m30p
+3. 拍照摄像不能连续变焦，太蠢
+4. 本来觉得灰色好看，看完之后反而灰色最难看，成功把玻璃做成了塑料质感
+5. 马克兔都跌了三千多了，有兴趣建议明年入手，这个时间点最划算的应该是 Xperia 5 II
+
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                                  

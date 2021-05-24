@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-22 09:50** 
+> ## **本文件最后更新于2021-05-24 02:18** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_x4lr0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_AnIFZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_y88gG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_fFSNM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -14850,4 +14850,522 @@ QQ截图20210521202324.png
 不破第二个半庄又惨又强，非常精彩<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
 
 
-            
+-----
+
+####  rzrbtk  
+##### 1120#       发表于 2021-5-22 19:39
+
+
+鸟组无了啊…舞元也…
+
+
+-----
+
+####  hulaoda007  
+##### 1121#       发表于 2021-5-22 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51333795&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-5-22 14:30</a>
+
+现实点讲的话，我替她遗憾。马上一张专丢出来，很多时候就是打发人的操作了。
+
+自身人气远不如gbr真是毫无 ...</blockquote>
+  还好吧。这可不是一张单曲，是一整张大量歌曲的专辑，还有秋叶原两个大海报。人力物力消耗不低了。森中又不是说顶流人气，能这样都不错了。
+
+  我就当彩虹社想多方面发展，花咲比起直播不如投入在唱歌更好之类的。
+
+
+-----
+
+####  渡鸦骑士  
+##### 1122#       发表于 2021-5-22 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51336821&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-5-22 19:45</a>
+
+还好吧。这可不是一张单曲，是一整张大量歌曲的专辑，还有秋叶原两个大海报。人力物力消耗不低了。森中 ...</blockquote>
+然后3dlive前连打几天apex吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 1123#       发表于 2021-5-22 19:55
+
+
+ 本帖最后由 hulaoda007 于 2021-5-22 19:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51336839&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-5-22 19:46</a>
+
+然后3dlive前连打几天apex吗，不是我说，你们签约歌手都这样的嘛 ...</blockquote>
+  可以美其名曰解压啊。
+
+  何况你看GBR投入很多资源，热捧，不还是说走就走。GBR以另一种方式回归，算彩虹老谋深算，GBR不回来，算彩虹慈善基金，无论如何都是winwin。
+
+  有一说一...好想还在日本...想亲眼看到秋叶原站的电子挂牌上看到森中的广告，偉くなったな。。。森中。。。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|挺好的|
+
+
+查看全部评分
+
+
+-----
+
+####  十四洲  
+##### 1124#       发表于 2021-5-22 20:06
+
+
+恭喜花组，路易斯好强，不是一个级别的，解说也好强
+
+
+-----
+
+####  FCCHua  
+##### 1125#       发表于 2021-5-22 20:09
+
+
+鸟组太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1126#       发表于 2021-5-22 20:40
+
+
+也替路易斯高兴吧，平时一直打麻将，实力也有，但之前因为各种原因都没法在大会上夺冠，现在终于实至名归了，就跟天开司之前那样，值得值得。
+但果然还是想要有推在的队伍赢啊<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hulaoda007| + 1|会高兴的，虽然麻将我不懂所以没看....|
+
+
+查看全部评分
+
+
+-----
+
+####  Ketestrait  
+##### 1127#       发表于 2021-5-22 21:05
+
+
+社长这新衣发布上来就放歌<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ketestrait  
+##### 1128#       发表于 2021-5-22 21:18
+
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gqrioemtyqj20yq0kygq4.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gqriol53dkj20xv0iz784.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gqrioqg9xcj20xn0ixdk1.jpg" referrerpolicy="no-referrer">
+
+
+这红外套太不搭了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 1129#       发表于 2021-5-22 21:21
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-22 21:23 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/22/212001q1cx93x1c3ho1jse.png" referrerpolicy="no-referrer">
+
+
+<strong>【#加賀美ハヤトの新衣装】お披露目です！ 【にじさんじ:加賀美ハヤト】.png.png</strong> (161.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-22 21:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/22/212001l1nj2te6o23poara.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ JAPAN TOUR 2020 .jpeg</strong> (227.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-22 21:20 上传
+
+
+有人已经想明白了，从过去好评的周边里挑选衣服比新设计更稳妥
+
+<img src="https://img.saraba1st.com/forum/202105/22/212247o6udd0dyskz1dh08.png" referrerpolicy="no-referrer">
+
+
+<strong>【#加賀美ハヤトの新衣装】お披露目です！ 【にじさんじ:加賀美ハヤト】-2.png.png</strong> (160.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-22 21:22 上传
+
+
+Google查询：中分头好在哪？
+
+
+-----
+
+####  Ketestrait  
+##### 1130#       发表于 2021-5-22 21:25
+
+
+评论栏持续升天中<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 1131#       发表于 2021-5-22 21:31
+
+
+king也太强了吧  我破防了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  黑之和  
+##### 1132#       发表于 2021-5-22 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51337792&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-5-22 21:21</a>
+有人已经想明白了，从过去好评的周边里挑选衣服比新设计更稳妥</blockquote>
+三七分好不啦
+
+像小白脸（褒义）
+
+
+-----
+
+####  alcoholic1000  
+##### 1133#       发表于 2021-5-22 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51337918&amp;ptid=1972669" target="_blank">空集 发表于 2021-5-22 21:31</a>
+
+king也太强了吧  我破防了
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+king三年也不玩几次恐怖游戏，算封印的武器
+
+今天解封也是被プロ打红sc强制玩的，因为怂节目效果好，同接才比较好看
+
+
+Syl，就算三七分也...
+
+
+-----
+
+####  qq845629713  
+##### 1134#       发表于 2021-5-22 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 可惜没有enKING了，
+
+
+-----
+
+####  空集  
+##### 1135#       发表于 2021-5-22 22:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51338167&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-5-22 21:52</a>
+king三年也不玩几次恐怖游戏，算封印的武器
+
+今天解封也是被プロ打红sc强制玩的，因为怂节目效果好，同接 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">  原来如此  难的玩一次的恐怖游戏加 难以见到的反应确实多高都不吃惊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rzrbtk  
+##### 1136#       发表于 2021-5-22 22:31
+
+
+ 本帖最后由 rzrbtk 于 2021-5-23 01:00 编辑 
+
+分头没啥，逗号刘海就…
+
+毕竟韩流当道惹<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+郡道深夜跟多井复盘挺久惹，虽然搞笑的地方也挺多（比如说雀魂坏话的时候被公式抓现行），但看郡道哭腔承认自己说【没有练习太久真是太好了】是气话的时候，提到猫一直哭一直哭，边哭边道歉，discord发长文给队友和多井的时候，就...这种真格大赛特别是团队战，赢了绝对绝对会很开心，但输了的时候，特别是那些责任感比较强的人，真的看着就觉得痛苦...
+
+
+说实话想被这个状态的郡道暴揍 <blockquote>郡道はね、めちゃくちゃ強くなってるんだけどチーム戦だと絶対にラスになって借金背負って帰ってきてね、それを大して麻雀知らねーバカに「郡道ヘタクソwなんでこんなんで案件貰ってんだよw」って言われるのが腹立つから心が落ち着いたら雀豪に上がってやろうと思いました。</blockquote>
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  free  
+##### 1137#       发表于 2021-5-22 23:04
+
+
+[https://www.youtube.com/watch?v=YdTOnWxTgBA](https://www.youtube.com/watch?v=YdTOnWxTgBA)
+[https://www.bilibili.com/video/bv1EK4y1G7Jz](https://www.bilibili.com/video/bv1EK4y1G7Jz)
+
+
+【2日間限定公開】Marpril 2nd Anniversary Live「Do the city hop VIP」
+
+
+-----
+
+####  poipanchao  
+##### 1138#       发表于 2021-5-23 03:47
+
+
+我把king今天的生化看了，一点都不怂啊
+
+不如说很明显的看出来是生化系列老玩家
+
+一边打一边考察，不管是7代还是4代的梗都信手拈来，甚至分析卡婊的镜头运用如何营造惊吓效果
+
+害怕的表现甚至不如很久之前本社玩mc恐怖地图那次
+
+单纯的是一次很出色的生化危机游戏直播
+
+
+但是为啥有这么高的同接啊……
+
+
+-----
+
+####  死体残留  
+##### 1139#       发表于 2021-5-23 08:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">因为金盾的ytb投5w给他玩，算不算铺垫
+
+
+-----
+
+####  kangkangsama  
+##### 1140#       发表于 2021-5-23 11:36
+
+
+<blockquote>rzrbtk 发表于 2021-5-22 22:31
+分头没啥，逗号刘海就…
+
+毕竟韩流当道惹总体来说羡慕羡慕羡慕
+
+郡道深夜跟多井复盘挺久惹，虽 ...</blockquote>
+你看，担心难受她的点她自己也知道，最后还是会努力的还是有点心气的（坚持多久就不知道了）
+
+
+
+
+-----
+
+####  影山银  
+##### 1141#       发表于 2021-5-23 17:05
+
+
+亚人这新歌mv竟然还带动画的
+
+
+-----
+
+####  FCCHua  
+##### 1142#       发表于 2021-5-23 18:03
+
+
+ 本帖最后由 FCCHua 于 2021-5-23 19:52 编辑 
+
+小蜜蜂居然在开歌回<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+草，花妈这3d live有意思<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 1143#       发表于 2021-5-23 19:19
+
+
+ 本帖最后由 hulaoda007 于 2021-5-23 19:24 编辑 
+
+。
+
+
+-----
+
+####  alcoholic1000  
+##### 1144#       发表于 2021-5-23 19:55
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-23 20:05 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/200539cps8mei0zerelfeq.png" referrerpolicy="no-referrer">
+
+
+<strong>【3D】 #森中花咲誕生日3Dライブ ～わたしの歌を聴け！～【森中花咲:にじさんじ所属】.png</strong> (169.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 20:05 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/195414dbxj9mj9qv9jyvjm.png" referrerpolicy="no-referrer">
+
+
+<strong>【3D】 #森中花咲誕生日3Dライブ ～わたしの歌を聴け！～【森中花咲:にじさんじ所属】.png</strong> (283.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 19:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/195448k2mhlvlcvlprzp0m.png" referrerpolicy="no-referrer">
+
+
+<strong>【3D】 #森中花咲誕生日3Dライブ ～わたしの歌を聴け！～【森中花咲:にじさんじ所属】.png</strong> (161.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 19:54 上传
+
+
+[https://www.youtube.com/watch?v=8ybM_dVzLa4](https://www.youtube.com/watch?v=8ybM_dVzLa4)
+
+
+-----
+
+####  hulaoda007  
+##### 1145#       发表于 2021-5-23 20:10
+
+
+ 本帖最后由 hulaoda007 于 2021-5-23 20:21 编辑 
+
+  森中。。。盛ってんだな。。。  
+
+  光君男gachi蛮多的一直觉得。
+
+  Hmm...女孩子的房间其实也蛮乱的啊...
+
+  森中周边有抗病毒口罩...挠头
+
+
+-----
+
+####  喜闻乐见  
+##### 1146#       发表于 2021-5-23 20:17
+
+
+还不错
+<img src="http://ww1.sinaimg.cn/large/732205bcgy1gqsmje2cgjj21kw1g0b2b.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 1147#       发表于 2021-5-23 21:00
+
+
+kaza难道是大赛型选手……
+
+
+-----
+
+####  IDIDIDID  
+##### 1148#       发表于 2021-5-23 21:03
+
+
+ぎばらみってる？
+
+
+-----
+
+####  noHentai  
+##### 1149#       发表于 2021-5-23 21:05
+
+
+<img src="https://p.sda1.dev/2/1db410b73f12b4737dfeeba4eebf4f2e/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 1150#       发表于 2021-5-23 21:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">弹丸v3手机版发布给了nui绿色通道能播第二章
+
+
+-----
+
+####  死体残留  
+##### 1151#       发表于 2021-5-23 21:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">相羽的うまぴょい伝説不能用原版舞步有点燃烧不尽的感觉，连飞吻都没有算不算封面诈欺
+https://b23.tv/wnsa5N
+
+
+-----
+
+####  FCCHua  
+##### 1152#       发表于 2021-5-23 22:35
+
+
+没事，自我要求严格要重新拍了，油管那边已经删了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 1153#       发表于 2021-5-23 23:38
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-23 23:46 编辑 
+
+叶师这整活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你自己的原因不要拉着其他人陪你戒UberEats啊
+
+
+听到vdk说彼女立刻进行一个挂断<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+           
