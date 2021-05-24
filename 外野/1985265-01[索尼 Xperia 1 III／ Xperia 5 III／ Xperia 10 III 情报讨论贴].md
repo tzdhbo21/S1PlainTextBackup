@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 02:17** 
+> ## **本文件最后更新于2021-05-24 05:51** 
 
 
 
@@ -6653,4 +6653,81 @@ xz时代那些老官方应用其实港行也没法用，因为索尼实际上是
 —— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
 
 
-                                  
+-----
+
+####  他言無用  
+##### 478#       发表于 2021-5-24 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51327254&amp;ptid=1985265" target="_blank">fishmanzero 发表于 2021-5-21 20:28</a>
+
+规则写要回收前买机，又要求6月30号前完成回收…
+
+那就是提交回收单优惠买机之后取消也管不着我了？
+
+——  ...</blockquote>
+爱回收验货实在离谱，我的马克兔被验出是非国行+移动版，我直接跟他们客服说你能买到符合这两项的马克兔我这台送你好了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 威尼斯炮舰| + 1|笑死😂|
+
+
+查看全部评分
+
+
+-----
+
+####  fishmanzero  
+##### 479#       发表于 2021-5-24 12:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51351267&amp;ptid=1985265" target="_blank">他言無用 发表于 2021-5-24 10:23</a>
+爱回收验货实在离谱，我的马克兔被验出是非国行+移动版，我直接跟他们客服说你能买到符合这两项的马克兔 ...</blockquote>
+太弱智了吧…不会导致你的回收订单最后不符合优惠券金额门槛吗？大法声称要扣回去…
+
+—— 来自 粗粮 K30 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 480#       发表于 2021-5-24 12:44
+
+
+ 本帖最后由 我很费纸 于 2021-5-24 12:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51350864&amp;ptid=1985265" target="_blank">NeverFar 发表于 2021-5-24 09:44</a>
+去旗舰店摸了下，初步结论：
+1. 屏幕很吊，一眼看出水平很高
+2. 拍照就是个ui，出片很一般，个人感觉不如m3 ...</blockquote>
+啥叫拍照不能连续变焦？不是按住X1然后上下一滑动或者双指放大缩小，就有数码裁切的连续变焦了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  NeverFar  
+##### 481#       发表于 2021-5-24 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51353076&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-5-24 12:44</a>
+
+啥叫拍照不能连续变焦？不是按住X1然后上下一滑动或者双指放大缩小，就有数码裁切的连续变焦了
+
+
+ ...</blockquote>
+比如1x的镜头，只能拖1-2.8倍，如果你要用2.8以上的，先要点2.8x的镜头，然后才能变到4.9倍，如果你要用4.9以上的，要再点一下4.9的镜头，才能继续变焦。总之很弱智
+
+
+                                 
