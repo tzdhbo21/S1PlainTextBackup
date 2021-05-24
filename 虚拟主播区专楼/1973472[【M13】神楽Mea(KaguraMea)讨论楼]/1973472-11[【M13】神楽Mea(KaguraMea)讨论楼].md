@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 06:51** 
+> ## **本文件最后更新于2021-05-24 10:47** 
 
 
 
@@ -9004,4 +9004,407 @@ bw是什么？
 只要网络能记得这个人就能一直当下去呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                       
+-----
+
+####  D麦林  
+##### 15785#       发表于 2021-5-24 14:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51353644&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-5-24 13:39</a>
+那是你太傻了，18年fgo区他们版务直接带节奏说酒吞奶光卡面日方原画师亲自来改，最后被批站背刺成条傻狗 ...</blockquote>
+这么想的话我就更不应该了
+我混狒狒版被bw背刺了一次
+在gbf版被bw背刺了第二次
+到了v版居然还对nga的bw有不切实际的幻想
+我心想不是同一个版bw的作风不一样的吧
+后来才发现根本没有 管他潭的就同一批人
+伴舞在一个版犯了事情的处罚是移除在这个版的权限然后调去另一个版当伴舞 我怎么居然还能对泥哥潭的管理抱有幻想的<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15786#       发表于 2021-5-24 14:57
+
+
+那这边的呢 这边的bw又是怎么管理的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 15787#       发表于 2021-5-24 14:58
+
+
+小博🐟你在看吗？出来解释一下这边bw的管理方法可以吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  RE_INORI  
+##### 15788#       发表于 2021-5-24 14:59
+
+
+害，记得10月冲蝗那会泥哥潭有人把gbf打团打赢蝗孝子的帖子往v版发（好像是发gbf版锁了来着），结果不少人车gbf版旧事还对v版伴舞表示认同，说什么gbf版正统在v版，现在你看<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 15789#       发表于 2021-5-24 15:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51354500&amp;ptid=1973472" target="_blank">D麦林 发表于 2021-5-24 14:56</a>
+
+这么想的话我就更不应该了
+
+我混狒狒版被bw背刺了一次
+
+在gbf版被bw背刺了第二次</blockquote>
+任何带权限的【私人】论坛的公正或者信用到某些时候就都是坨狗屎，早年贴吧李彦宏这套更不要脸，70万那事我还去围观过呢
+
+
+倪哥潭我是玩BGO才去的，说起来可能有人不记得，他们当时日方原事件那个帮忙洗地的bw我记得后面甚至爆出批站这边会有点小礼品啥的送的，石头还是啥来着，反正定期就有
+
+所以你笑泥哥bw不要脸，人家里面某几位指不定拿好处笑嘻嘻呢
+
+
+-----
+
+####  雪风utopia  
+##### 15790#       发表于 2021-5-24 15:44
+
+
+今天小麻会播吗，救救可怜的天狗吧<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 15791#       发表于 2021-5-24 15:53
+
+
+身上有麻在爬<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15792#       发表于 2021-5-24 15:59
+
+
+黄兔子又发了一遍预告，比原来的阵容还加量了，看来她老人家铁了心想搞个大的了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+你麻大概发几个fleet推啥的就等明天联动了
+就是这联动国内实在不知道怎么处理<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 15793#       发表于 2021-5-24 16:02
+
+
+我在麻身上爬
+
+
+-----
+
+####  Klience  
+##### 15794#       发表于 2021-5-24 16:02
+
+
+不转播不就行了呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15795#       发表于 2021-5-24 16:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51355154&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-5-24 15:59</a>
+黄兔子又发了一遍预告，比原来的阵容还加量了，看来她老人家铁了心想搞个大的了
+你麻大概发几个flee ...</blockquote>
+加啥量了，杏花星集体出动包围个人势？
+
+
+-----
+
+####  Klience  
+##### 15796#       发表于 2021-5-24 16:07
+
+
+都是老面孔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+微信图片_20210524160739.jpg
+(254.67 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-24 16:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/24/160725itjih1dihjhvjhi0.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15797#       发表于 2021-5-24 16:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51355222&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-5-24 16:05</a>
+
+加啥量了，杏花星集体出动包围个人势？</blockquote>
+加了一堆友人嘉宾,就是海苔男买摩托兔鞠那一串人
+
+
+-----
+
+####  Klience  
+##### 15798#       发表于 2021-5-24 16:08
+
+
+这么多人 咩又可以自闭摸鱼混时长了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 15799#       发表于 2021-5-24 16:17
+
+
+兔鞠！！！！
+
+
+-----
+
+####  时间在我手中  
+##### 15800#       发表于 2021-5-24 16:21
+
+
+这么多人反而是好事，说不定就不用剪了，摸了
+
+
+-----
+
+####  肥到终点  
+##### 15801#       发表于 2021-5-24 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51355256&amp;ptid=1973472" target="_blank">Klience 发表于 2021-5-24 16:07</a>
+
+都是老面孔</blockquote>
+[https://www.bilibili.com/video/BV1Nb4y1f71U?t=179](https://www.bilibili.com/video/BV1Nb4y1f71U?t=179) <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这位小哥是要直面恐惧了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15802#       发表于 2021-5-24 16:27
+
+
+人多甚至都可以不用看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15803#       发表于 2021-5-24 16:32
+
+
+挂着听听还是可以的。
+前两天还没怎么想她，今天发病之后忽然有点难顶。
+
+
+-----
+
+####  sw11133  
+##### 15804#       发表于 2021-5-24 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51354534&amp;ptid=1973472" target="_blank">RE_INORI 发表于 2021-5-24 14:59</a>
+害，记得10月冲蝗那会泥哥潭有人把gbf打团打赢蝗孝子的帖子往v版发（好像是发gbf版锁了来着），结果不少人 ...</blockquote>
+确实正统啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 15805#       发表于 2021-5-24 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51355421&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-5-24 16:21</a>
+
+这么多人反而是好事，说不定就不用剪了，摸了</blockquote>
+你居然还想着剪,发个人号海盗吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15806#       发表于 2021-5-24 16:38
+
+
+友人协力者应该是一个个连麦吧 不可能是那种所有人连麦的吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15807#       发表于 2021-5-24 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51355587&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-5-24 16:35</a>
+你居然还想着剪,发个人号海盗吗</blockquote>
+有空再说，手头还有东西要弄，我甚至已经在考虑做完今晚这一波休息到我假期每周有两天为止了。一周就一天休息还要干活我精神病都要犯了)
+
+
+-----
+
+####  sw11133  
+##### 15808#       发表于 2021-5-24 16:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说起来那楼的kpi只够再次支撑宇宙楼了
+
+有没有好心的楼友截图留念逆天图
+
+
+-----
+
+####  雪风utopia  
+##### 15809#       发表于 2021-5-24 16:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51355796&amp;ptid=1973472" target="_blank">sw11133 发表于 2021-5-24 16:50</a>
+说起来那楼的kpi只够再次支撑宇宙楼了
+
+有没有好心的楼友截图留念逆天图 ...</blockquote>
+有是肯定有几张的，但不知道足不足够逆天<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sw11133| + 1|已经在乐了|
+
+
+查看全部评分
+
+
+-----
+
+####  rosevalley46  
+##### 15810#       发表于 2021-5-24 17:00
+
+
+协力的话可能连麦都没有就发个视频片段也很正常
+
+
+
+
+-----
+
+####  A2014720  
+##### 15811#       发表于 2021-5-24 17:49
+
+
+半年了bd还没声啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 15812#       发表于 2021-5-24 18:10
+
+
+今晚无了，野男人轻一点<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 15813#       发表于 2021-5-24 18:15
+
+
+今晚本来也多半不会有吧。
+不会要做的事是被野男人玩吧<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 15814#       发表于 2021-5-24 18:24
+
+
+不能帮叔叔赚钱，还好意思要BD
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  古战场亡魂  
+##### 15815#       发表于 2021-5-24 18:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51356527&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-5-24 17:49</a>
+
+半年了bd还没声啊</blockquote>
+演唱会最后一场合唱曲也始终没出啊。
+
+我觉得原创曲那首还不错。
+
+
+-----
+
+####  Klience  
+##### 15816#       发表于 2021-5-24 18:43
+
+
+还真是被野男人玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 15817#       发表于 2021-5-24 18:44
+
+
+叔叔不仅没赚到钱 还要把酒店 飞机票的钱都要还回去 还想要BD？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 15818#       发表于 2021-5-24 18:47
+
+
+20210524东京19点
+
+<img src="https://img.saraba1st.com/forum/202105/24/184719buf78vvflfv88vu8.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>F6EAE71E-A334-4232-BF26-D6B08DC4D84F.jpeg</strong> (219.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-24 18:47 上传
+
+
+                      
