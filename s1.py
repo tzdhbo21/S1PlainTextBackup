@@ -185,7 +185,7 @@ if __name__ == '__main__':
                     ThreadContent[PageCount] = FormatStr(namelist, replylist)
                     PageCount = PageCount + 1
                     if(PageCount == 50 or thread == totalpage):
-                        lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()))
+                        lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
                         pages = '%02d' %math.ceil(thread/50)
                         filename = str(ThreadID)+'-'+str(pages)+titles+'.md'
                         with open((filedir+filename).encode('utf-8'),'w',encoding='utf-8') as f:
