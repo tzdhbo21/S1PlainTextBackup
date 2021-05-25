@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 02:18** 
+> ## **本文件最后更新于2021-05-25 01:56** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_y88gG" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_fFSNM" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_ZmTBD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_rl59H" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -15368,4 +15368,207 @@ https://b23.tv/wnsa5N
 听到vdk说彼女立刻进行一个挂断<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
 
 
-           
+-----
+
+####  hulaoda007  
+##### 1154#       发表于 2021-5-24 11:03
+
+
+ 本帖最后由 hulaoda007 于 2021-5-24 11:51 编辑 
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">人生第一次看台湾的V，还是男的...因为正好手边可以点开的正好是这个男的...好紧张。   
+
+  嗯...普通...但是台湾腔没想象中那么难接受。
+
+  有个叫须多夜花还蛮劳模的。
+
+  嗯......没感觉和国内有多大区别。有个叫朝日阳奈的也蛮可爱的。
+
+  挠头...感觉海峡两岸区别没那么大。
+
+  不是吧...我刚看完水野鱼娜录播...结果他就和台V之乱有关啊...
+
+
+-----
+
+####  CAserlumos  
+##### 1155#       发表于 2021-5-24 17:21
+
+
+花妈好啊，有专有油管live，不像有些人混吃等死
+
+
+-----
+
+####  noHentai  
+##### 1156#       发表于 2021-5-24 17:32
+
+
+虚拟陪酒的头牌雪待毕业了。
+这份工作对比直播主来说几乎完全属于短期打工，不过这群人既然当初能来做这份短时间面对数十位完全不了解的陌生人谈话半小时的工作，至少适应社会的能力比绝大多数直播主不知道高到哪里去就是了。
+
+
+-----
+
+####  peh  
+##### 1157#       发表于 2021-5-24 20:17
+
+
+阿床又歌回 好哎
+
+
+-----
+
+####  FCCHua  
+##### 1158#       发表于 2021-5-24 20:28
+
+
+ 本帖最后由 FCCHua 于 2021-5-24 21:21 编辑 
+
+经典笑场
+syl 小千这新衣服真的变成千君了
+
+
+-----
+
+####  IDIDIDID  
+##### 1159#       发表于 2021-5-24 21:55
+
+
+最近天皇（🐰）anti好跳啊
+
+
+-----
+
+####  yuandi0120  
+##### 1160#       发表于 2021-5-24 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51351777&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-5-24 11:03</a>
+
+人生第一次看台湾的V，还是男的...因为正好手边可以点开的正好是这个男的...好紧张。   
+
+  嗯... ...</blockquote>
+4v的网络和二次元文化是完全被大陆同化了的，没区别很正常。
+
+
+-----
+
+####  OldGlory  
+##### 1161#       发表于 2021-5-24 23:32
+
+
+没区别主要体现在国人不看国v，4v也不看台v<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 1162#       发表于 2021-5-25 00:00
+
+
+同化x 异曲同工的本质精日
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  hulaoda007  
+##### 1163#       发表于 2021-5-25 00:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51359578&amp;ptid=1972669" target="_blank">yuandi0120 发表于 2021-5-24 23:20</a>
+
+4v的网络和二次元文化是完全被大陆同化了的，没区别很正常。</blockquote>
+  说话方式一样，情感波动区别不大，虽然整体其实有点像日本，但...基本都差不多。
+
+
+-----
+
+####  rzrbtk  
+##### 1164#       发表于 2021-5-25 02:54
+
+
+圭利突然发个にじPEX，搁半个月前还会害怕郡道又报名去狂暴打枪，多亏现在已经痴迷原神了，完全不担心（是说最近中国手游也玩儿太多）
+
+
+-----
+
+####  Suny08  
+##### 1165#       发表于 2021-5-25 09:03
+
+
+<blockquote>rzrbtk 发表于 2021-5-25 02:54
+圭利突然发个にじPEX，搁半个月前还会害怕郡道又报名去狂暴打枪，多亏现在已经痴迷原神了，完全不担心（是 ...</blockquote>
+说实话感觉这谜语挺怪的，好像是6月12号虹内有个大会？但是要是自己办为啥还要哈哥美夜子在推上去拉外社人……那不和最协有什么区别，人最协的名气还比你大得多，去和哈弟这种经验者抢生意有点不自量力了
+
+
+-----
+
+####  poipanchao  
+##### 1166#       发表于 2021-5-25 09:06
+
+
+我在群里看到说是美夜子提到dis没人理（太温暖了）才去的推
+社内比赛感觉每个钻石都得带队了
+再一个带不带海外
+bora是不是要上解说席
+感觉问题有点多
+
+
+-----
+
+####  rzrbtk  
+##### 1167#       发表于 2021-5-25 09:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51361294&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-5-25 09:03</a>
+说实话感觉这谜语挺怪的，好像是6月12号虹内有个大会？但是要是自己办为啥还要哈哥美夜子在推上去拉外社 ...</blockquote>
+之后好多大会嘞，crvalo也来，目前也只是谜语罢了
+
+
+-----
+
+####  FCCHua  
+##### 1168#       发表于 2021-5-25 09:26
+
+
+ 本帖最后由 FCCHua 于 2021-5-25 09:27 编辑 
+
+那哈哥也是没人理吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过没准两个比赛
+
+
+-----
+
+####  ShuTk4O  
+##### 1169#       发表于 2021-5-25 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51359698&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-5-24 23:32</a>
+没区别主要体现在国人不看国v，4v也不看台v</blockquote>
+那B综里的都是些什么人呐<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 1170#       发表于 2021-5-25 09:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 为什么真有人觉得现在国V的国人观众比日V的国人观众少啊，
+
+
+
+
+-----
+
+####  Kojimaru  
+##### 1171#       发表于 2021-5-25 09:51
+
+
+加过4v的acg相关dc群，都会聊b站最近的梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，彩虹en龙播原神的同接比她歌回还高一点点
+
+
+          
