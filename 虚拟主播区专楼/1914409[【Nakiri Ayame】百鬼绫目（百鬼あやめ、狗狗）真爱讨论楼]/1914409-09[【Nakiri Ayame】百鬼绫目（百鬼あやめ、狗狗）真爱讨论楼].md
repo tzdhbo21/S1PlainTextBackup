@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-22 04:53** 
+> ## **本文件最后更新于2021-05-26 19:46** 
 
 
 
@@ -1284,10 +1284,11 @@ image.png
 评分
 
 
- 参与人数 2战斗力 +2
+ 参与人数 3战斗力 +3
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 寺川愛美| + 1|好评加鹅|
 | 螺旋卷钩生| + 1|好评加鹅|
 | Fami水| + 1|好评加鹅|
 
@@ -1389,4 +1390,327 @@ liver压根一点力都没出的项目liver本人有啥好热烈讨论的必要�
 卍组贴贴草
 
 
-                                             
+-----
+
+####  星尘的杨桃精  
+##### 12126#       发表于 2021-5-22 12:58
+
+
+看懵了 我寻思制作staff不重合阿不存在图省事的模板复用
+
+如果不是选曲品味真这么low就是嗯杠夸宝了吧
+
+
+结合夸宝讲梦的暗示很难不多想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 12127#       发表于 2021-5-22 13:16
+
+
+蚌埠住了，天天不播提醒观众有新歌就是这首。
+
+我估计之前说的备用的歌就是这首，但是知道夸宝要发这首之后就选了king
+
+然后被粉哄了两下想听就把这首也发出来了，然而这波并不看好能超过king
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12128#       发表于 2021-5-22 13:23
+
+
+有人科普一下商业翻唱稿的制作流程吗
+
+有二十多天我从头联系画师和动画 自己用vocal扒谱调教都绰绰有余<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  a2276382  
+##### 12129#       发表于 2021-5-22 19:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/b1b292f34c9c476f4e1978c986167f61/IMG_CMP_123881539.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 昆西昆希昆| + 1|余搞不懂这些啦|
+
+
+查看全部评分
+
+
+-----
+
+####  cctvyt1  
+##### 12130#       发表于 2021-5-22 19:44
+
+
+估计百鬼组一周内会灌到破百万吧
+
+要超过夸宝就不太可能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 12131#       发表于 2021-5-22 19:52
+
+
+草，这熟悉的改图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12132#       发表于 2021-5-22 20:06
+
+
+一如既往魔改级调音<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  螺旋卷钩生  
+##### 12133#       发表于 2021-5-22 20:06
+
+
+这调音麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 12134#       发表于 2021-5-22 20:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉比king调得更多了。
+
+这首歌是真的欣赏不来。
+
+
+-----
+
+####  因为你不会  
+##### 12135#       发表于 2021-5-22 20:57
+
+
+不知道为啥绫总最近的行为让我想起宋丹丹赵本山白云黑土那个《月子1》《月子2》，村头厕所没纸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12136#       发表于 2021-5-22 22:43
+
+
+跟船阿姨这张是这个画师画的啊 怎么感觉先赏脸再约稿有点微妙 对面还好意思开正常价吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 12137#       发表于 2021-5-23 08:24
+
+
+46万了 怎么沖的比king还快啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+绫总又要膨胀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 12138#       发表于 2021-5-23 11:17
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/105710h5h266h52e22uhk5.png" referrerpolicy="no-referrer">
+
+
+<strong>9~CDZ1YE66B`0WMP6YAAVSH.png</strong> (30.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 10:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/23/105708fjki1ijj2jtwfj2w.png" referrerpolicy="no-referrer">
+
+
+<strong>EUZS5J_HHVX}JRWN`SYTX73.png</strong> (25.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-23 10:57 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上次惜败给夸宝，绫总气晕了。
+
+这次势要拿第一。
+
+
+-----
+
+####  一仙  
+##### 12139#       发表于 2021-5-23 11:57
+
+
+这次怎么不报数了，不会是还没起床吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12140#       发表于 2021-5-23 12:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">歌的问题，这次换一样的歌 再来比过
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12141#       发表于 2021-5-23 13:30
+
+
+报了50w<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl任何一个有点进取心的歌手发现自己音源被高强度魔改都不会开心吧 有种被否定的感觉
+
+抬一手画师然后该干啥干啥吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 12142#       发表于 2021-5-23 13:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">报数只会迟，但不会缺席。
+
+
+-----
+
+####  stedckk  
+##### 12143#       发表于 2021-5-24 20:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">九十万都不播，还收不收钱了，嫌钱多是吧。
+
+
+-----
+
+####  cctvyt1  
+##### 12144#       发表于 2021-5-25 09:52
+
+
+ 本帖最后由 cctvyt1 于 2021-5-25 09:53 编辑 
+
+熟悉的感觉回来了，才出两首翻唱就跟夸宝一样燃尽了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+syl订阅90.6万了，绫总「直播 有用吗？<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">」
+
+
+-----
+
+####  Fami水  
+##### 12145#       发表于 2021-5-25 10:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer">大家好，这里是视频翻唱系UP主 小绫
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">躺着都能涨那么快，还有王法么，还有天理么
+
+
+-----
+
+####  一仙  
+##### 12146#       发表于 2021-5-25 11:40
+
+
+ 本帖最后由 一仙 于 2021-5-25 11:50 编辑 
+
+新翻唱百万播放了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+一动不动的，不会想躺到一百万粉吧
+
+
+-----
+
+####  因为你不会  
+##### 12147#       发表于 2021-5-25 12:14
+
+
+你们想看怪猎了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 12148#       发表于 2021-5-25 12:34
+
+
+今日报数 绫总「好像比上次还快」
+
+完了 真膨胀了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202105/25/123240riy5dvoovrzmi9cv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>100.jpg</strong> (71.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-25 12:32 上传
+
+
+-----
+
+####  stedckk  
+##### 12149#       发表于 2021-5-25 22:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">10天没玩了，绫总现在连lol都燃尽了吗。
+
+话说好久没开歌回了。
+
+
+-----
+
+####  一仙  
+##### 12150#       发表于 2021-5-25 22:56
+
+
+[https://twitter.com/markchen565/status/1396867456434536448?s=20](https://twitter.com/markchen565/status/1396867456434536448?s=20)
+
+
+绫总在翻唱发布前喊okayu来听了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  因为你不会  
+##### 12151#       发表于 2021-5-26 19:31
+
+
+看了一下king195w了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                            
