@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-25 01:56** 
+> ## **本文件最后更新于2021-05-26 16:08** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_ZmTBD" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_rl59H" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_W3XE3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_z3tTU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -15534,9 +15534,11 @@ bora是不是要上解说席
 ##### 1168#       发表于 2021-5-25 09:26
 
 
- 本帖最后由 FCCHua 于 2021-5-25 09:27 编辑 
+ 本帖最后由 FCCHua 于 2021-5-26 01:25 编辑 
 
 那哈哥也是没人理吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 不过没准两个比赛
+成濑鸣也发了个募集推
+看来募集的还不少
 
 
 -----
@@ -15571,4 +15573,346 @@ bora是不是要上解说席
 syl，彩虹en龙播原神的同接比她歌回还高一点点
 
 
-          
+-----
+
+####  划水的B612  
+##### 1172#       发表于 2021-5-25 11:06
+
+
+认为国人不看国V的看来对我国的外语教育水平相当自信啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 1173#       发表于 2021-5-25 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51361593&amp;ptid=1972669" target="_blank">ShuTk4O 发表于 2021-5-25 09:35</a>
+那B综里的都是些什么人呐</blockquote>
+想想舞圣，别把论坛太当回事
+
+
+-----
+
+####  opersuper  
+##### 1174#       发表于 2021-5-25 12:32
+
+
+yhm把控RP在皮设和本人之间走钢丝属于本能了，国产套皮女主播吃了文化的亏
+
+
+-----
+
+####  永恒时间  
+##### 1175#       发表于 2021-5-25 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51361593&amp;ptid=1972669" target="_blank">ShuTk4O 发表于 2021-5-25 09:35</a>
+那B综里的都是些什么人呐</blockquote>
+都是纯良VR信
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  hulaoda007  
+##### 1176#       发表于 2021-5-25 12:49
+
+
+  异议，我是正统太监。
+
+
+-----
+
+####  winda  
+##### 1177#       发表于 2021-5-25 18:54
+
+
+https://youtu.be/yTVhe898swQ
+不磨的血液检查报告杂谈<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">管人可以普及下体检了
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 1178#       发表于 2021-5-25 19:02
+
+
+其实b综都是湾湾<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1179#       发表于 2021-5-25 19:18
+
+
+现在葵皇连bora都比不过了，虽然虹女也没几个比得过bora的，应该是除了千以外另一个吸收了大量黑黑观众的人，串里面对葵皇不满的人好像也挺多的
+
+
+-----
+
+####  poipanchao  
+##### 1180#       发表于 2021-5-25 19:25
+
+
+别尬黑，反超了
+
+其实也不能算吸了黑黑，一共跟叶联动一次，葛叶三次
+
+主要是通过几次大赛吸了大量的枪民，也吸了点杏人
+
+
+-----
+
+####  winda  
+##### 1181#       发表于 2021-5-25 19:39
+
+
+ 本帖最后由 winda 于 2021-5-25 20:11 编辑 
+
+奈罗花遇到跟踪狂<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">现在因为害怕减少直播频率在实家播了
+
+
+-----
+
+####  FCCHua  
+##### 1182#       发表于 2021-5-25 19:44
+
+
+。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 1183#       发表于 2021-5-25 19:51
+
+
+  诶...？<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 1184#       发表于 2021-5-25 20:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> bora就算再亲日也是高丽血统，比假韩国人强不是理所当然的么?
+
+
+-----
+
+####  IDIDIDID  
+##### 1185#       发表于 2021-5-25 20:32
+
+
+怎么彩虹魔怔人比杏奴还可怕，这都第三个stk了
+
+
+-----
+
+####  OldGlory  
+##### 1186#       发表于 2021-5-25 20:35
+
+
+虹an为什么对葵皇不满？
+
+
+-----
+
+####  渡鸦骑士  
+##### 1187#       发表于 2021-5-25 21:00
+
+
+你虹的liver是不是都很没安全感啊……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+也不是啊，郡道老师不是玩的很开心吗……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过也听说郡道老师有遇到一些很下限的事情……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1188#       发表于 2021-5-25 21:25
+
+
+最近没太多时间看月之杂谈，今天补了一下，真是近期阿花浓度最强的一回了…五年前和四个朋友一起过圣诞，贫血，下巴受伤，救护车，月底没钱…劲啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1189#       发表于 2021-5-25 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51368551&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-5-25 20:35</a>
+
+虹an为什么对葵皇不满？</blockquote>
+觉得她最近比较混，嗯播小游戏，好像本来要播随乐拍的结果也鸽了，不过原罪应该是数字低了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">，串民就开始劈了
+
+
+-----
+
+####  hulaoda007  
+##### 1190#       发表于 2021-5-25 21:49
+
+
+  是不是因为最近重心都在小剧场上了。
+
+
+-----
+
+####  IDIDIDID  
+##### 1191#       发表于 2021-5-25 21:52
+
+
+叶师傅现在玩的这个完美解决你虹线下躲避球银趴导致独角兽激怒问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1192#       发表于 2021-5-26 10:17
+
+
+ぴろぱる新皮，同时公开了他自己搞的手写字体
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/101745wc6brnf8oajfk55y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (321.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 10:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/101745oyyrx359gbrpr1i2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (308 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 10:17 上传
+
+
+-----
+
+####  昆西昆希昆  
+##### 1193#       发表于 2021-5-26 11:19
+
+
+铁血虹人nanami，高强度视奸搬运号动态
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/111804at9smw9m9sswms7n.png" referrerpolicy="no-referrer">
+
+
+<strong>20210525215929.png</strong> (49.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 11:18 上传
+
+
+-----
+
+####  Suny08  
+##### 1194#       发表于 2021-5-26 12:36
+
+
+えにから公式指標　1ヶ月の1万同接配信数   2020年9月　348配信  ↓  2021年4月　153配信  ↓  2021年5月　117配信(あと5日)   ペースは前回まとめた時より少し落ちて、142配信ぐらい。                       还有几个月呢
+
+
+-----
+
+####  死体残留  
+##### 1195#       发表于 2021-5-26 12:59
+
+
+1w以上配信真的要批量产不难吧，接力新衣服或者同期让路和结尾宣传，用重大披露欺诈，联动单窗，让双黑委员长上位势去玩mc ark之类箱游
+
+
+-----
+
+####  opersuper  
+##### 1196#       发表于 2021-5-26 14:28
+
+
+ 本帖最后由 opersuper 于 2021-5-26 14:30 编辑 
+
+为什么就不能是多几个月均中位上万的
+
+
+-----
+
+####  poipanchao  
+##### 1197#       发表于 2021-5-26 14:37
+
+
+v圈也该退潮了
+虹也就这样了，杏靠偶像浓度多一年
+所以asoul二期gkd
+
+
+-----
+
+####  opersuper  
+##### 1198#       发表于 2021-5-26 14:41
+
+
+ 本帖最后由 opersuper 于 2021-5-26 14:44 编辑 
+
+主播没死，经年劣化少相对难塌房的套皮主播更不会死了。走创新路的死了一车两车倒是正常
+
+
+-----
+
+####  Suny08  
+##### 1199#       发表于 2021-5-26 15:08
+
+
+迷托邦确实是卡密game，夜见要是没有这游戏我估计她只狼就要腰斩了，昨天肉眼可见的心态打崩加自暴自弃，折磨自己也折磨观众
+
+
+-----
+
+####  tankai  
+##### 1200#       发表于 2021-5-26 15:13
+
+
+去年到今年疫情把一些人锁在家里培养了一批人看V,利好能吃个两年勿慌,
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1201#       发表于 2021-5-26 15:41
+
+
+你日今年疫情肯定依旧搞不定，经济又差，对Vjuan重大利好（指着live活的纯歌势除外）
+
+
+-----
+
+####  free  
+##### 1202#       发表于 2021-5-26 16:08
+
+
+vjuan也是口红经济的一种嘛，经济越烂，vjuan越红火
+
+
+说道asoul，bml名单疑似偷跑了，今年可能有asoul
+
+[https://bbs.nga.cn/read.php?tid=26905261](https://bbs.nga.cn/read.php?tid=26905261)
+
+
+         
