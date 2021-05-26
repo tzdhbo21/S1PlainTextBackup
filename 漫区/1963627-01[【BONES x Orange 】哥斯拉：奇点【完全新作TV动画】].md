@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-20 01:46** 
+> ## **本文件最后更新于2021-05-26 23:53** 
 
 
 
@@ -569,9 +569,7 @@ OPテーマ：BiSH「in case...」
 ####  HGCG2  
 ##### 38#       发表于 2021-3-19 20:07
 
-
-哥斯拉和飞天豹一起PUNCH!PUNCH!PUNCH!
-<img src="http://wx1.sinaimg.cn/large/9657fdc2ly1gopgzdk6fej20p50zkhd2.jpg" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1587,7 +1585,11 @@ https://www.bilibili.com/video/BV1Ly4y1b77a
 ####  longrider  
 ##### 122#       发表于 2021-4-7 23:25
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50865797&amp;ptid=1963627" target="_blank">dingruntian2 发表于 2021-4-7 23:13</a>
+
+中老年男性都喜欢念诗吗</blockquote>
+老头那段是模仿歌舞伎登场词吧，しばらく　しばらく
 
 
 -----
@@ -1791,8 +1793,7 @@ oped做得也非常厉害
 ####  殿珣  
 ##### 140#       发表于 2021-4-8 17:59
 
-
-想问一下，第一集出现的印度民歌是啥？这是真实存在的还是编的？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -2239,7 +2240,10 @@ ai声优是攻壳小机器人吗？</blockquote>
 ####  longrider  
 ##### 179#       发表于 2021-4-10 16:53
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+第三话真不错，14分钟这里的配乐是王大伯吧<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
 -----
@@ -3040,7 +3044,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_HfI4Y" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_on8X3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -3411,18 +3415,7 @@ pv1里出现的前肢和尾巴应该是是マンダ
 ####  云野十五  
 ##### 260#       发表于 2021-4-15 07:19
 
-
- 本帖最后由 云野十五 于 2021-4-15 07:34 编辑 
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50941713&amp;ptid=1963627" target="_blank">riyaliums 发表于 2021-4-15 03:03</a>
-
-很好看，不过感觉想做全年龄向，没有任何血腥画面，拉顿也只是袭击建筑
-
-
-还有男主角为什么要碰瓷银时……</blockquote>
-这片子根本卖不了胶吧，做什么全年龄     
-
-
-碰瓷银时草，反正我是看青之驱魔师的，我只会单纯觉得像奥村雪男
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3454,7 +3447,8 @@ pv1里出现的前肢和尾巴应该是是マンダ
 ####  longrider  
 ##### 263#       发表于 2021-4-15 12:59
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+安吉拉斯，这次原型是甲龙吧。所有登场怪兽都是恐龙变异而来，根据女主的推论可能存在时间/位面穿越？
 
 
 -----
@@ -3488,11 +3482,7 @@ pv1里出现的前肢和尾巴应该是是マンダ
 ####  云野十五  
 ##### 266#       发表于 2021-4-15 17:56
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50947872&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-15 16:46</a>
-
-还有别人在餐馆吃饭的时候，他点了一个巨型甜食。</blockquote>
-日系动脑子的人不是人均大量摄入甜食吗...
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3604,11 +3594,7 @@ OPED分镜都是铃木典光，特别是ED帅飞了，神野铭的怪脸也可�
 ####  云野十五  
 ##### 273#       发表于 2021-4-15 22:49
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50951537&amp;ptid=1963627" target="_blank">HGCG+ 发表于 2021-4-15 22:40</a>
-
-财团B的软胶已经开卖了</blockquote>
-流石财团b
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4202,10 +4188,7 @@ Age有先行生肉，上周蛮早就有了，这周昨天才有
 ####  云野十五  
 ##### 322#       发表于 2021-4-19 12:26
 
-
-呜呜呜，我《正解的卡多》ptsd了，别来立方体了，求求<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">。好好讲怪兽不好吗
-
-[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4213,12 +4196,7 @@ Age有先行生肉，上周蛮早就有了，这周昨天才有
 ####  云野十五  
 ##### 323#       发表于 2021-4-19 12:32
 
-
- 本帖最后由 云野十五 于 2021-4-19 20:20 编辑 
-
-回想起当年在后端用过的各种加密方式了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
-
-[  -- 来自 有消息提醒的 Stage1官方 Android客户端](https://www.coolapk.com/apk/140634)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4294,12 +4272,7 @@ AI这集又多了不少的表情包，官方不了点解禁啥的吗？做都做
 ####  云野十五  
 ##### 330#       发表于 2021-4-19 20:20
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50985445&amp;ptid=1963627" target="_blank">夜颠覆 发表于 2021-4-19 13:09</a>
-
-AI这集又多了不少的表情包，官方不了点解禁啥的吗？做都做出来了，别浪费哈 ...</blockquote>
-别问，问就是line表情包
-
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 
@@ -4438,13 +4411,7 @@ AI这集又多了不少的表情包，官方不了点解禁啥的吗？做都做
 ####  云野十五  
 ##### 343#       发表于 2021-4-20 11:32
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50993648&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-4-20 01:45</a>
-
-我是觉得女主的性格蛮奇怪的。有点太卡通了。
-
-比如拿到原型晶体之后，居然直接用牙咬。拍证件照的时候会 ...</blockquote>
-不是阿拉蕾吗
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4452,11 +4419,7 @@ AI这集又多了不少的表情包，官方不了点解禁啥的吗？做都做
 ####  云野十五  
 ##### 344#       发表于 2021-4-20 11:33
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50992432&amp;ptid=1963627" target="_blank">FanFun 发表于 2021-4-19 23:02</a>
-
-日本动画一讲起政治科学感观就直接跳崖</blockquote>
-快进到  正解的卡多
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -4509,11 +4472,7 @@ AI这集又多了不少的表情包，官方不了点解禁啥的吗？做都做
 ####  云野十五  
 ##### 349#       发表于 2021-4-21 11:11
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51009318&amp;ptid=1963627" target="_blank">暗黑能乐 发表于 2021-4-21 11:05</a>
-
-真要是拉顿，感觉用枪还是能对付的</blockquote>
-之前不是还有考察战机的吗，这话有没有人考察步枪<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5591,13 +5550,7 @@ OP依田伸隆搞得，OP摄影也是包给他们10gauge，依田伸隆是社长
 ####  云野十五  
 ##### 439#       发表于 2021-4-27 05:10
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51066823&amp;ptid=1963627" target="_blank">冰箱研会长 发表于 2021-4-26 13:50</a>
-
-确实断的很难受...
-
-这个Jet Jaguar战斗力大概是个什么水平啊...</blockquote>
-吉祥物
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5605,8 +5558,7 @@ OP依田伸隆搞得，OP摄影也是包给他们10gauge，依田伸隆是社长
 ####  云野十五  
 ##### 440#       发表于 2021-4-27 05:15
 
-
-楼里这么多好评的吗，我感觉都快进到神棍了，一会是但丁的神曲，一会是印度，一会是日本苇原。不过这集好在没在国家名那边乱搞，希望能和以前一样偏向左翼一点<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -5625,11 +5577,7 @@ OP依田伸隆搞得，OP摄影也是包给他们10gauge，依田伸隆是社长
 ####  云野十五  
 ##### 442#       发表于 2021-4-27 08:59
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51073612&amp;ptid=1963627" target="_blank">什伐赤 发表于 2021-4-27 06:42</a>
-
-日本特色啦，不管什么科幻题材都能塞进宗教内容。</blockquote>
-我倒是有看负责人设的加藤老师的《青之驱魔师》，里面也是堆砌了各国的神学，我怀疑制作组找她不是没原因的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -6885,8 +6833,7 @@ BB这集扔下去的炸弹缩写是OD，但全名叫Orthogonal Diagonalizer，�
 ####  云野十五  
 ##### 545#       发表于 2021-5-8 06:31
 
-
-楼里是不是生肉熟肉差了一集
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -6903,11 +6850,7 @@ BB这集扔下去的炸弹缩写是OD，但全名叫Orthogonal Diagonalizer，�
 ####  云野十五  
 ##### 547#       发表于 2021-5-8 09:04
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177037&amp;ptid=1963627" target="_blank">fyjh 发表于 2021-5-8 08:59</a>
-
-第六集熟肉到现在都没出</blockquote>
-推荐这里[https://www.agefans.net/update?page=1](https://www.agefans.net/update?page=1)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -6927,11 +6870,7 @@ BB这集扔下去的炸弹缩写是OD，但全名叫Orthogonal Diagonalizer，�
 ####  云野十五  
 ##### 549#       发表于 2021-5-8 09:07
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51177113&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-5-8 09:05</a>
-
-生肉出了7话，熟肉到第6话了</blockquote>
-确实上周没更，看楼里说怪兽武器我就悟了，不得不说本作没有台本的情况下很多典故还得字幕组自己查
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7014,8 +6953,7 @@ SF圈有条不成文规则：物理知识应当写得让高中生看得懂。奇
 ####  云野十五  
 ##### 557#       发表于 2021-5-8 19:40
 
-
-不得不说正解的卡多前期看的比奇点乐呵，至少是在探案，奇点纯粹谜语人互帮互助，留下观众风中凌乱
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7717,12 +7655,7 @@ Archetype：一种高维物质，可以通过时间轴的扭曲，将未来的�
 ####  云野十五  
 ##### 610#       发表于 2021-5-14 07:02
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51243355&amp;ptid=1963627" target="_blank">forerunner01 发表于 2021-5-14 03:22</a>
-剧情越来越有趣，现在究竟是怪兽们相互竞争求生存？还是超计算机们相互竞争求进化？还是两者兼有。 ...</blockquote>
-是印度拯救世界吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7730,10 +7663,7 @@ Archetype：一种高维物质，可以通过时间轴的扭曲，将未来的�
 ####  云野十五  
 ##### 611#       发表于 2021-5-14 07:07
 
-
-笑了，超级计算机竟是女主
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7741,10 +7671,7 @@ Archetype：一种高维物质，可以通过时间轴的扭曲，将未来的�
 ####  云野十五  
 ##### 612#       发表于 2021-5-14 07:20
 
-
-第八话节奏太神秘了，断在一个不恐怖又不燃的地方，整体2d作画水瓶也不太行，怕不是分镜都没看懂脚本想干嘛
-
-—— 来自 [S1Fun](https://s1fun.koalcat.com)
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8325,13 +8252,7 @@ image.png
 ####  云野十五  
 ##### 654#       发表于 2021-5-17 18:42
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51282042&amp;ptid=1963627" target="_blank">RainbowSealife 发表于 2021-5-17 17:32</a>
-
-泥潭就我一个人觉得外务省的鹿子行江很涩吗？正装和泪痣加成，隐形的诱惑，直戳xp，湘赣</blockquote>
-就是民科!就是民科!
-
-这女的也是谜语人，很适合当日本外务省人士<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8361,8 +8282,7 @@ image.png
 ####  云野十五  
 ##### 657#       发表于 2021-5-17 23:18
 
-
-正解的卡多前期也是各种不说人话的模型通道，都是女的在那演算，希望不要来个复刻
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8705,12 +8625,7 @@ image.png
 ####  HGCG2  
 ##### 686#       发表于 2021-5-20 07:12
 
-
- 本帖最后由 HGCG2 于 2021-5-20 07:20 编辑 
-
-不懂了
-
-这是科学家造了什么超级电脑，让他算出答案后穿越时间回来报答案，但是计算机算出了若干个答案，这些答案为了分出谁才是唯一解打起来导致计算机疯了，于是派哥总回来毁灭人类釜底抽薪？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8718,8 +8633,7 @@ image.png
 ####  云野十五  
 ##### 687#       发表于 2021-5-20 08:36
 
-
-楼里真就人均物理高材生吗，感觉剧里的每个理论都能单独做个动画，不是很懂缝合在一起图个啥
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8736,11 +8650,7 @@ image.png
 ####  云野十五  
 ##### 689#       发表于 2021-5-20 08:54
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51309811&amp;ptid=1963627" target="_blank">冰箱研会长 发表于 2021-5-20 08:39</a>
-
-竟然有简中字幕了...</blockquote>
-上周楼里不就有人发了网飞出官中了，还说刚好续了会员<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -8773,9 +8683,344 @@ image.png
 ##### 692#       发表于 2021-5-20 09:38
 
 
-拋开一堆术语名词，所谓“破局”简单说就是：怪兽打架，世界毁灭。
+ 本帖最后由 Lokay 于 2021-5-21 11:37 编辑 
 
-—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+拋开一堆术语名词，所谓“破局”简单说就是：怪兽打架，世界毁灭。这样的话感觉绕了一圈什么也没讲wa，不过这alapu upala的bgm响起来这末世感确实出来了。
 
 
-                          
+-----
+
+####  AlfredXC  
+##### 693#       发表于 2021-5-20 10:34
+
+
+我才反应过来perro是狗的意思，难怪一听到这个名字ai就变成了狗的形态
+
+
+-----
+
+####  kiraabu  
+##### 694#       发表于 2021-5-20 10:43
+
+
+没劲，想看怪兽打架结果一直扯民间物理学
+
+
+-----
+
+####  夜颠覆  
+##### 695#       发表于 2021-5-20 11:56
+
+
+杰格打蜘蛛的战斗做得挺好的，哥总新形态我还以为要放吐息了，谁知道戛然而止，最后一幕配上bgm还是有点feel的
+
+
+-----
+
+####  gaosf  
+##### 696#       发表于 2021-5-20 18:21
+
+
+说来附在蜘蛛身上的黑多拉好像没啥存在感啊，这集就好像跟没有一样。<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+李桂英博士去救小狗怕不是要便当了。
+
+
+-----
+
+####  坂上菠萝  
+##### 697#       发表于 2021-5-20 19:16
+
+
+加藤侍有点猛的，不愧是练过的人，敢直接肉身去扛蜘蛛的外骨骼和黑多拉果冻<img src="https://static.saraba1st.com/image/smiley/carton2017/349.png" referrerpolicy="no-referrer">
+
+
+其实前面李桑的flag竖起了一些，我就怕女主和她一起遭难
+
+
+但我没想到李桑是去救猫。就好像钢铁之躯里老肯特非要在龙卷风来的时候去单刀救狗一样。
+
+
+感觉这么安排是可以规避和神野铭一起遭难的剧情，仿佛命运（编剧）指定女主能够做好心理准备，不受他人影响地完成使命，就像男主说的世界的命运掌握在她手中。
+
+
+也可能李桑因为是救猫，所以大难不死，毕竟前面一般人的伤亡都表现得扭扭捏捏……
+
+
+一想到猫狗，就想到pero2的机体没战斗力啊，否则这种时候可以当救猫工具人<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  最强惠酱  
+##### 698#       发表于 2021-5-20 20:26
+
+
+怎么又是救动物。。。不过最后这一炸末世氛围塑造的不错，最后人类死光光我也接受了
+
+
+-----
+
+####  teecoo00  
+##### 699#       发表于 2021-5-20 20:40
+
+
+救猫是因为助手救的那个女孩吧
+
+
+-----
+
+####  gaosf  
+##### 700#       发表于 2021-5-20 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51315407&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-5-20 19:16</a>
+
+加藤侍有点猛的，不愧是练过的人，敢直接肉身去扛蜘蛛的外骨骼和黑多拉果冻
+
+
+其实前面李桑的flag竖 ...</blockquote>
+pero2前面一集在船上跟小朋友玩还被关节技锁，太草了。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AlfredXC  
+##### 701#       发表于 2021-5-20 20:58
+
+
+我想不通为什么要安排救猫这个情节，要安排李桑领便当了吗？可她便当有啥意义呢？反而会限制女主进行研究吧
+
+
+-----
+
+####  夜颠覆  
+##### 702#       发表于 2021-5-20 21:14
+
+
+<img src="https://img.saraba1st.com/forum/202105/20/211231qt9ezi97mtlmlo7z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7489b2b9ly1gqp1l5muesj20nm0q9dnq.jpg</strong> (117.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-20 21:12 上传
+
+
+这纯黑的封面背景还是可以的，当然最好看的还是一开始山森英司的原案
+
+
+-----
+
+####  蛇头  
+##### 703#       发表于 2021-5-20 23:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第九话怎么突然出现那么多死者，一下子都不习惯了。
+
+
+-----
+
+####  mumubear  
+##### 704#       发表于 2021-5-21 00:06
+
+
+说实话，哥总不是猩猩脸不习惯啊。。。
+
+
+-----
+
+####  shcmzzj  
+##### 705#       发表于 2021-5-21 12:02
+
+
+ 本帖最后由 shcmzzj 于 2021-5-21 12:13 编辑 
+
+妈的一堆谜语人加日式空想伪科学就在那儿堆名词，你他么知不知道自己在说啥，瞬间血压拉满
+而且看了九集我他么还以为哥总终于要放波了你他么竟然给憋回去了？！
+救猫，又他妈救猫，好歹救个小朋友呢
+
+— from Xiaomi Mi MIX 2S, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  yhw1871  
+##### 706#       发表于 2021-5-21 17:45
+
+
+第九集中文熟肉：C72DCD7F2D6D400DA2A86F38A425F26B0500B269
+
+
+-----
+
+####  言酱啊啊啊  
+##### 707#       发表于 2021-5-23 10:44
+
+
+李真的救猫死了吗，目前为止拉顿还没有直接伤人表现吧，我押还活着
+
+
+-----
+
+####  Lynn冰翎  
+##### 708#       发表于 2021-5-23 23:26
+
+
+渐渐没劲起来了，车轱辘话把老店子又念了一遍的同时剧情推进不急不徐，颇有种顶着大太阳等共享单车解锁的焦躁感。
+
+
+-----
+
+####  小皮诺  
+##### 709#       发表于 2021-5-24 02:19
+
+
+两个ai真可爱。男女主越来越像设定解说员了233
+
+
+-----
+
+####  riyaliums  
+##### 710#       发表于 2021-5-24 02:30
+
+
+越来越无聊了 快看不下去了。。
+
+
+-----
+
+####  Laie  
+##### 711#       发表于 2021-5-24 05:55
+
+
+草这好点子跟拉长篇幅需要的张力，跟看圆城塔短篇集和中长篇小说的观感落差还挺像的
+
+
+-----
+
+####  112zero  
+##### 712#       发表于 2021-5-24 06:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">希望可以下集能有超展开啥的，不然实在看不下去了，怕是又一个骷髅人
+
+
+-----
+
+####  Kojimaru  
+##### 713#       发表于 2021-5-24 08:50
+
+
+高强度说设定有种ReC的感觉了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">，还是快进到打架吧
+
+
+-----
+
+####  曦光  
+##### 714#       发表于 2021-5-25 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说不定结局是人类团灭，因为自由意志不存在，未来是无法改变的
+
+
+-----
+
+####  不灭的旋律  
+##### 715#       发表于 2021-5-25 20:32
+
+
+预告各种梗玩得好开心啊，BB都称铭是李博士的接班了我看博士是要……
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 716#       发表于 2021-5-25 22:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谁能给我解释一下“破局”是啥，看了后面忘了前面..
+
+
+-----
+
+####  shudushimo  
+##### 717#       发表于 2021-5-25 23:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51369862&amp;ptid=1963627" target="_blank">灼眼的夏娜酱 发表于 2021-5-25 22:56</a>
+
+谁能给我解释一下“破局”是啥，看了后面忘了前面..</blockquote>
+日语破局指悲惨的结局，这里应该是指世界毁灭之类的事
+
+
+-----
+
+####  C男人  
+##### 718#       发表于 2021-5-26 19:17
+
+
+哥斯拉 破局 = 封神榜 应劫
+
+
+天地大劫将至，元始天尊使用超时间计算机预测了应劫之人，
+
+
+想要安全渡劫，就必须完成正交对角化。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+红尘啊滚滚，痴痴啊情深
+
+
+聚散终有时
+
+
+留一半清醒留一半醉……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+《潇洒走一回》
+
+
+-----
+
+####  封面杀手  
+##### 719#       发表于 2021-5-26 21:15
+
+
+博士是到死（？）都没提起过海吗，这人除了异星人和时间旅行外还能怎么圆
+
+
+-----
+
+####  机翻猫  
+##### 720#       发表于 2021-5-26 21:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真酱用超级多开会剧情把观众弄得昏昏欲睡，再搞个刺激的提神
+
+奇酱也用了超级多民科解释把观众搞得头晕脑胀，接下来估计要走和真酱一样的路子
+
+
+不过真酱好歹两口吐息把东京给扬了大半，奇酱吐一半居然给憋回去了，后边能不能给点力
+
+
+
+
+-----
+
+####  plok201  
+##### 721#       发表于 2021-5-26 23:10
+
+
+一共13集的动画，8集神神叨叨，9集才算进入正戏，片名我觉得应该改叫喷射杰格SP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+现在也不知道这片想怎么收尾，算他10集哥斯拉开打，剩下3集要完成剩下的怪兽出场，哥斯拉和其他怪兽打一场，人类把机龙弄出来，人类想个办法阻止哥斯拉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+                         
