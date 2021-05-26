@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-26 16:08** 
+> ## **本文件最后更新于2021-05-26 22:12** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_W3XE3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_z3tTU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_o4pmm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_Trk14" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -15915,4 +15915,486 @@ vjuan也是口红经济的一种嘛，经济越烂，vjuan越红火
 [https://bbs.nga.cn/read.php?tid=26905261](https://bbs.nga.cn/read.php?tid=26905261)
 
 
-         
+-----
+
+####  poipanchao  
+##### 1203#       发表于 2021-5-26 16:12
+
+
+免费你在v综说这个，还引用的nga帖子，是不是有点看不起泥潭au了
+
+感觉这疫情下，各类人士都下场吃直播饭了
+不知道为啥感觉声优是v圈热潮下最受损的
+
+
+-----
+
+####  admentus  
+##### 1204#       发表于 2021-5-26 16:15
+
+
+有个问题，很好奇为什么以前的铁血虹人跑去看asoul的那么多？
+
+
+-----
+
+####  hulaoda007  
+##### 1205#       发表于 2021-5-26 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51377214&amp;ptid=1972669" target="_blank">admentus 发表于 2021-5-26 16:15</a>
+有个问题，很好奇为什么以前的铁血虹人跑去看asoul的那么多？</blockquote>
+  没有吧...as我看大部分都是基本不看V的...
+
+
+-----
+
+####  admentus  
+##### 1206#       发表于 2021-5-26 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51377228&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-5-26 16:16</a>
+
+没有吧...as我看大部分都是基本不看V的...</blockquote>
+可能我说的不太清楚
+
+大部分as观众肯定不是虹人，但是以前只看虹的现在跑去看as的例子也不少...
+
+感觉彩虹和as的直播内容也不是很像啊？为什么会出现这种情况？
+
+
+-----
+
+####  IDIDIDID  
+##### 1207#       发表于 2021-5-26 16:19
+
+
+说到各类人士下场油管，里面最重磅的一个，虽然目前还是视频势👇：
+
+[https://www.youtube.com/channel/UCfnSEB4atVWATf6vzepHzqw](https://www.youtube.com/channel/UCfnSEB4atVWATf6vzepHzqw)
+
+
+-----
+
+####  hulaoda007  
+##### 1208#       发表于 2021-5-26 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51377262&amp;ptid=1972669" target="_blank">admentus 发表于 2021-5-26 16:19</a>
+可能我说的不太清楚
+
+大部分as观众肯定不是虹人，但是以前只看虹的现在跑去看as的例子也不少...
+
+感觉彩虹 ...</blockquote>
+  我了解不多...因为认识的虹人都蛮铁血的，倒是没看到翻墙的。
+
+
+-----
+
+####  free  
+##### 1209#       发表于 2021-5-26 17:18
+
+
+ 本帖最后由 free 于 2021-5-26 17:22 编辑 
+
+指原莉乃的V皮比本人可爱啊，什么时候再拿出来玩玩
+
+
+都贴一下吧，杏这专咋还能卖呢，都是谁在买啊
+
+森中花咲首日专辑排第10，单曲第20，这个不太熟，有熟悉的说说这专怎么样
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/172149hoo68zdc8d7edz6q.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (5.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 17:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/172149prnwyekxt0d1nr0d.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (3.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 17:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/172149yg1ggjngpngqlxxq.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (4.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 17:21 上传
+
+
+-----
+
+####  渡鸦骑士  
+##### 1210#       发表于 2021-5-26 17:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51377262&amp;ptid=1972669" target="_blank">admentus 发表于 2021-5-26 16:19</a>
+可能我说的不太清楚
+
+大部分as观众肯定不是虹人，但是以前只看虹的现在跑去看as的例子也不少...
+
+感觉彩虹 ...</blockquote>
+从我在a版的经验来说，与其说虹人跑过去一批，不如说是一批喜欢吹水的V圈老人跑去a版了。
+本来V版的专楼制度对于喜欢小众的人就不友好，而且有些话题也不是很方便瞎聊。
+在茶楼这个环境被明令禁止以后，就有很多人顺便去新开的a版吹水了——那里条件宽松一点，而且也不用顾忌其他看V的观众，和看as的人聊多了顺手去看看也不是什么问题。
+当然现在a版重新开版就是另一回事了
+
+
+-----
+
+####  rzrbtk  
+##### 1211#       发表于 2021-5-26 17:38
+
+
+虹即将到来的六月不就要迎来巨大打击了嘛，黛灰无了那就blues和月下樱和挑染和最重要的他自己这个整好活rp势无了啊，月下樱在另外四个被送礼物前无了我可以接受不了啊<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 1212#       发表于 2021-5-26 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51378015&amp;ptid=1972669" target="_blank">free 发表于 2021-5-26 17:18</a>
+指原莉乃的V皮比本人可爱啊，什么时候再拿出来玩玩</blockquote>
+我也只看了收录的曲名和听了试听。
+看作曲作词，九首原创曲各种名人制作，给我一种就是堆料的感觉。
+至于有没有花妈粉丝才能get到的点我就不知道了。
+特典是五首翻唱。
+
+
+-----
+
+####  winda  
+##### 1213#       发表于 2021-5-26 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51374835&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-5-26 12:59</a>
+1w以上配信真的要批量产不难吧，接力新衣服或者同期让路和结尾宣传，用重大披露欺诈，联动单窗，让双黑委员 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">正好今晚世怜女接力2.0，看看能量产几个w棒
+
+
+-----
+
+####  Suny08  
+##### 1214#       发表于 2021-5-26 18:38
+
+
+<blockquote>winda 发表于 2021-5-26 18:20
+正好今晚世怜女接力2.0，看看能量产几个w棒</blockquote>
+今晚是世怜女vs gamers 女，哪边会赢闭着眼睛就能想出来啊，你hero拉出来怕是也打不过莉莉姆哦，怎么还会畅想万棒的
+
+
+-----
+
+####  qq845629713  
+##### 1215#       发表于 2021-5-26 18:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 椎名玩了个葛西莉同人游戏，封面搞得和葛西莉联动一样，骗人进来看直播，同接上下过山车了
+
+
+-----
+
+####  死体残留  
+##### 1216#       发表于 2021-5-26 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51378859&amp;ptid=1972669" target="_blank">winda 发表于 2021-5-26 18:20</a>
+正好今晚世怜女接力2.0，看看能量产几个w棒</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">忘记说了接力过w棒也是其他人让路 在彩虹是没可能的事 
+今晚还有街霸5和猫龙3d看吧 
+
+
+-----
+
+####  FCCHua  
+##### 1217#       发表于 2021-5-26 19:30
+
+
+ 本帖最后由 FCCHua 于 2021-5-26 20:41 编辑 
+
+虹b限真的很自由，突击x2<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑之和  
+##### 1218#       发表于 2021-5-26 19:32
+
+
+好tm突然的黑黑b限
+好歹提前一两天预告一下啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+但是是接着玩双人成行，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 1219#       发表于 2021-5-26 19:33
+
+
+去看asoul的不止铁血虹人，天狗crew也有不少（二创作者特别明显，一看历史投稿全是那些）
+
+反倒是杏人不太看得到
+
+
+我想了想为啥会有虹人去的多印象，可能是因为虹人少，就那几个，被楼友记住了吧
+
+其他群体呜呜泱泱的一大群，可能不太好记
+
+
+-----
+
+####  空集  
+##### 1220#       发表于 2021-5-26 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51379310&amp;ptid=1972669" target="_blank">死体残留 发表于 2021-5-26 19:00</a>
+忘记说了接力过w棒也是其他人让路 在彩虹是没可能的事 
+今晚还有街霸5和猫龙3d看吧  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了下这接力被社内外一万主力狂撞
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  IDIDIDID  
+##### 1221#       发表于 2021-5-26 20:02
+
+
+我怎么观测的结果是看啊骚的杏奴比较多，好多熟悉的ID，特别是当年搞二创的。
+
+
+-----
+
+####  poipanchao  
+##### 1222#       发表于 2021-5-26 20:04
+
+
+你说的这些杏人我可能归到crew去了
+
+众所周知……
+
+真要说的话au刷弹幕的时候刷梗，印象中也只见过大亏的梗
+
+
+-----
+
+####  IDIDIDID  
+##### 1223#       发表于 2021-5-26 20:22
+
+
+五色战队也太惨了，还好我只看躺平第一人小绿
+
+
+-----
+
+####  rzrbtk  
+##### 1224#       发表于 2021-5-26 20:26
+
+
+dustcell现在这各自发歌的，是不是要解散了啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1225#       发表于 2021-5-26 20:59
+
+
+只能说你虹现在的讨论热度全是跟着king走的，king玩什么什么就是最火的，看串里最近对ftg的讨论热度已经和apex五五开了，一大堆中年大叔在那里讨论摇杆好坏讨论角色性能
+
+
+-----
+
+####  hulaoda007  
+##### 1226#       发表于 2021-5-26 21:06
+
+
+ 本帖最后由 hulaoda007 于 2021-5-26 21:07 编辑 
+
+  啥时候再抽卡...？
+
+  SYL但是珊瑚还是好棒好棒哒。
+
+
+-----
+
+####  alcoholic1000  
+##### 1227#       发表于 2021-5-26 21:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/26/210447r2tpptztp2vqtapp.png" referrerpolicy="no-referrer">
+
+
+<strong>【#大空スバル新衣装】90万人記念新衣装大発表会:NEW OUT FIT【ホロライブ:大空スバル.png</strong> (163.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 21:04 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/210612s3h3qklsuth3989x.png" referrerpolicy="no-referrer">
+
+
+<strong>【#大空スバル新衣装】90万人記念新衣装大発表会:NEW OUT FIT【ホロライブ:大空スバル.png</strong> (205.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 21:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/210605ummxzxalc88a9xcd.png" referrerpolicy="no-referrer">
+
+
+<strong>【#大空スバル新衣装】90万人記念新衣装大発表会:NEW OUT FIT【ホロライブ:大空スバル.png</strong> (232.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 21:06 上传
+
+
+-----
+
+####  cqkxywj  
+##### 1228#       发表于 2021-5-26 21:08
+
+
+阿桃这卡琳连站轻脚都不出<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1229#       发表于 2021-5-26 21:08
+
+
+ 本帖最后由 free 于 2021-5-26 21:10 编辑 
+
+这个烂货圆脸的家用3D怎么还能挥手的？这个抽搐不停的样子，看了真想让人打断她双手，你大杏的技术力真是太高啦
+
+怎么还玩起来石头剪子布了，弱智一样
+
+[https://www.youtube.com/watch?v=nrP_j9kSdDw](https://www.youtube.com/watch?v=nrP_j9kSdDw)
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/210845l1h8udjbuuww9uu1.png" referrerpolicy="no-referrer">
+
+
+<strong>烂货圆脸.png</strong> (87.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 21:08 上传
+
+
+-----
+
+####  hulaoda007  
+##### 1230#       发表于 2021-5-26 21:09
+
+
+  嗯...鸭鸭的衣服越来越女性化了...
+
+  嗯......这样下去也不是不好就是了。
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 1231#       发表于 2021-5-26 21:24
+
+
+热度真是跟着King走的话，King多播LoL救救LJL啊<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+エビ还能再打几年...
+
+<img src="https://img.saraba1st.com/forum/202105/26/212321oygjhlgazl3alsij.png" referrerpolicy="no-referrer">
+
+
+<strong>ソニロジなら大丈夫.png</strong> (157.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 21:23 上传
+
+
+-----
+
+####  SuntoryNomu  
+##### 1232#       发表于 2021-5-26 21:25
+
+
+ 本帖最后由 SuntoryNomu 于 2021-5-26 21:27 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">还行。
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/212730j99ji98zz8jrn79j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E2UNnWhUUAMM70A.jpg</strong> (229.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 21:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/212734nl8limmhsslshh44.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E2UNoRKVgAMLTO9.jpg</strong> (276.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 21:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/212736osfujf3chju3t8cj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E2UQ6fbVoAEs0wb.jpg</strong> (123.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 21:27 上传
+
+
+-----
+
+####  FCCHua  
+##### 1233#       发表于 2021-5-26 21:26
+
+
+时雨妈也新衣服啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx318  
+##### 1234#       发表于 2021-5-26 22:12
+
+
+50万同接  猛汉还是猛啊
+
+
+        
