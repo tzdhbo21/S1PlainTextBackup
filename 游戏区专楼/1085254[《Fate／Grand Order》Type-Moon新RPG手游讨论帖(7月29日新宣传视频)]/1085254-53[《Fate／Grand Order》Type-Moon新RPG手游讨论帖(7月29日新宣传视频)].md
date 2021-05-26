@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-17 09:44** 
+> ## **本文件最后更新于2021-05-26 10:13** 
 
 
 
@@ -3838,7 +3838,8 @@ wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装
 ####  longrider  
 ##### 78322#       发表于 2021-4-14 17:12
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+5宝百级大**顶青天
 
 
 -----
@@ -3904,7 +3905,20 @@ wada除了尼禄5周年的第二套灵衣，其他的灵衣立绘包括没实装
 ####  longrider  
 ##### 78328#       发表于 2021-4-14 17:32
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+宝具倍率
+
+900%        1200%        1350%        1425%        1500%
+
+➡️
+
+1200%        1500%        1650%        1725%        1800%
+
+
+后置蓝卡耐性20%down
+
+
+最强蓝色单体了吧
 
 
 -----
@@ -8843,4 +8857,345 @@ gay提亚落地，of course
 现在是废狗基本盘大，怎么作都死不了嘛
 
 
-                        
+-----
+
+####  khxooo  
+##### 78753#       发表于 2021-5-17 18:01
+
+
+泳装复刻？<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 78754#       发表于 2021-5-18 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51282176&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-5-17 17:43</a>
+
+现在是废狗基本盘大，怎么作都死不了嘛</blockquote>
+与其说基本盘大，不如说躺平任艹吧
+
+
+“反正我就是个卖剧本的galgame赠品，爱玩玩，不玩……那我也没辙”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  都谷捻柏  
+##### 78755#       发表于 2021-5-18 06:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51287282&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-5-18 01:01</a>
+
+与其说基本盘大，不如说躺平任艹吧
+
+
+“反正我就是个卖剧本的galgame赠品，爱玩玩，不玩……那我也没辙”</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">盐川时代就爱玩玩不玩滚了，所以说基本盘大嘛
+
+
+-----
+
+####  風卷豹  
+##### 78756#       发表于 2021-5-18 08:16
+
+
+5月就复刻泳装，今年产量到底有多惨
+
+—— 来自 blackshark SKR-A0, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  UNISONIA  
+##### 78757#       发表于 2021-5-18 08:56
+
+
+团子活动和第一个万圣都因为一些活动设计问题闹过比较大的不满，倒是最开始的第一次尼禄祭的效果还可以
+
+再到之后的本能寺活动因为严重的炸服又上了热搜
+
+
+至于剧情……根本就没人在关心的，奈须2017年连发俩访谈抱怨玩家根本没有看懂终章剧情（然后玩家压根就不鸟他）
+
+终于到去年跟松永纯的对谈里冒出一句玩家就算完全不看剧情也能享受剧情的神言论了
+
+
+-----
+
+####  johnkamsar  
+##### 78758#       发表于 2021-5-18 12:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51288323&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-5-18 08:56</a>
+团子活动和第一个万圣都因为一些活动设计问题闹过比较大的不满，倒是最开始的第一次尼禄祭的效果还可以
+
+再 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">想起国服这俩货活动都半咸鱼过，复刻时才完美过......
+
+
+-----
+
+####  areklose  
+##### 78759#       发表于 2021-5-18 13:55
+
+
+ 本帖最后由 areklose 于 2021-5-18 14:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51281606&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-5-17 17:01</a>
+
+还真就是同行衬托，用现在还活着的几个二刺螈分类的游戏来说
+
+
+2015年</blockquote>
+Y1S1,当时CGSS那质量出来的确挺震撼的。但不是同类型。FGO的第一年真是灾难性。一开始只有1倍速，狗粮和再临素材获取极其困难，极其欠缺NP礼装，当时我记得孔明还没有充能。打本都是一刀一刀平A打出来。再配合感人的网速。打一把十分消耗时间。和我玩的开服基本没几天就弃坑......当时真的十分灾难。
+
+
+-----
+
+####  areklose  
+##### 78760#       发表于 2021-5-18 14:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">FGO明显多人玩是2016年了。2015年我记得还是草船的时代。
+
+
+-----
+
+####  白金口袋  
+##### 78761#       发表于 2021-5-18 14:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51291556&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-17 23:55</a>
+
+Y1S1,当时CGSS那质量出来的确挺震撼的。但不是同类型。FGO的第一年真是灾难性。一开始只有1倍速，狗粮和再 ...</blockquote>
+孔明当年被骂成最粪从者，开服首抽刷到的全都毫不犹豫接着刷，谁知后来一跃过龙门成了人权卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78762#       发表于 2021-5-18 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51291815&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-5-18 14:22</a>
+
+孔明当年被骂成最粪从者，开服首抽刷到的全都毫不犹豫接着刷，谁知后来一跃过龙门成了人权卡 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">当时我最馋贞德身子，而且在当时平A时代经常会平A到别人放宝具。。那时候真的强
+
+
+-----
+
+####  exiaexa  
+##### 78763#       发表于 2021-5-18 14:42
+
+
+ 本帖最后由 exiaexa 于 2021-5-18 14:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51291556&amp;ptid=1085254" target="_blank">areklose 发表于 2021-5-18 13:55</a>
+Y1S1,当时CGSS那质量出来的确挺震撼的。但不是同类型。FGO的第一年真是灾难性。一开始只有1倍速，狗粮和再 ...</blockquote>
+没错啊，只是上面只是聊剧情我就没发散出去
+
+我当时打完剧情越想越觉得这什么傻逼玩意儿直接扔了，号都因为手机换了给整没了
+第五章才重新跑回来，这时候再看，开服时基本傻逼的地方都改得差不多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 78764#       发表于 2021-5-18 14:44
+
+
+说起来我第一个五星就是村夫，然后肥肠不满，又重新建号过图抽卡，直到搞到了村姑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+谁成想三十年河东三十年河西莫欺少年穷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  الطائر  
+##### 78765#       发表于 2021-5-18 17:14
+
+
+草，十面埋伏吗，梅林你比韩信还狠啊
+
+
+-----
+
+####  khxooo  
+##### 78766#       发表于 2021-5-18 17:27
+
+
+不想给呼符直接就不要开活动<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  quanlix  
+##### 78767#       发表于 2021-5-18 17:38
+
+
+b叔守着一个传承结晶
+
+
+-----
+
+####  alucardcz  
+##### 78768#       发表于 2021-5-18 17:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结晶不要了 我还是继续速刷
+
+
+-----
+
+####  千叶铁矢  
+##### 78769#       发表于 2021-5-18 17:55
+
+
+比前天简单
+
+
+-----
+
+####  白金口袋  
+##### 78770#       发表于 2021-5-19 13:52
+
+
+没注意满AP维护了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 78771#       发表于 2021-5-19 15:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">常年溢出AP不管，我苹果甚至都用不完
+
+
+-----
+
+####  qixinno2  
+##### 78772#       发表于 2021-5-19 17:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹了 一发呼符水NEW了水院 我这账号果然额外职业专精的么 其他职介各种抽不到
+
+
+-----
+
+####  黑上シグマ  
+##### 78773#       发表于 2021-5-19 18:59
+
+
+水院2破进行了意义不明的表情修正
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  areklose  
+##### 78774#       发表于 2021-5-19 20:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">手滑把3星活动李庄全卖了。
+
+
+-----
+
+####  khxooo  
+##### 78775#       发表于 2021-5-19 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51305815&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-5-19 18:59</a>
+水院2破进行了意义不明的表情修正
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+就是，杀生院根本不可能在咕哒面前会露出这样的表情，人设完全ooc <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  vacuumsword  
+##### 78776#       发表于 2021-5-19 21:08
+
+
+看了个圣杯战线第七天攻略才发现，居然能让梅林和20W B叔换位，然后直接收结晶。
+
+
+-----
+
+####  yzj134100  
+##### 78777#       发表于 2021-5-20 08:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">叶狗急了？还剩几天就直接开妇科
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  areklose  
+##### 78778#       发表于 2021-5-20 08:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51309845&amp;ptid=1085254" target="_blank">yzj134100 发表于 2021-5-20 08:44</a>
+
+叶狗急了？还剩几天就直接开妇科
+
+
+—— 来自 samsung SM-G9750, Android 11上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+什么还剩几天。
+
+
+-----
+
+####  黑上シグマ  
+##### 78779#       发表于 2021-5-20 23:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">真没想到我竟然得靠着这泳装复刻的兰陵王单PU才能抽到，那么久到现在愣是从没歪出来过……
+
+
+-----
+
+####  qixinno2  
+##### 78780#       发表于 2021-5-21 17:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">卧槽 什么鬼 前天第一发呼符就NEW了水院 今天第九发单抽出了第二个
+
+
+
+
+-----
+
+####  人生啊  
+##### 78781#       发表于 2021-5-26 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51306596&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-5-19 20:24</a>
+
+就是，杀生院根本不可能在咕哒面前会露出这样的表情，人设完全ooc</blockquote>
+应该说从上次泳装活动的剧情开始官方就有点吧杀生院往纯情的方向推的意思……很怪，完全想不到原因
+
+
+-----
+
+####  龙星丸  
+##### 78782#       发表于 2021-5-26 09:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51371883&amp;ptid=1085254" target="_blank">人生啊 发表于 2021-5-26 09:14</a>
+
+应该说从上次泳装活动的剧情开始官方就有点吧杀生院往纯情的方向推的意思……很怪，完全想不到原因 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">公车变私车也是黄油的常规剧情吧。
+
+
+                       
