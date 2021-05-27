@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 05:51** 
+> ## **本文件最后更新于2021-05-27 23:57** 
 
 
 
@@ -4585,7 +4585,8 @@ app应该很容易移植的<img src="https://static.saraba1st.com/image/smiley/f
 ####  黄耀明  
 ##### 324#       发表于 2021-4-18 08:40
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+价格相当sony camera了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
 
 
 -----
@@ -6730,4 +6731,433 @@ xz时代那些老官方应用其实港行也没法用，因为索尼实际上是
 比如1x的镜头，只能拖1-2.8倍，如果你要用2.8以上的，先要点2.8x的镜头，然后才能变到4.9倍，如果你要用4.9以上的，要再点一下4.9的镜头，才能继续变焦。总之很弱智
 
 
-                                 
+-----
+
+####  我很费纸  
+##### 482#       发表于 2021-5-24 14:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51353383&amp;ptid=1985265" target="_blank">NeverFar 发表于 2021-5-24 13:16</a>
+比如1x的镜头，只能拖1-2.8倍，如果你要用2.8以上的，先要点2.8x的镜头，然后才能变到4.9倍，如果你要用4 ...</blockquote>
+这个意思啊，摄影大师确实是这样。
+
+我估摸这就是模仿相机的逻辑，相当于把手机变成四个变焦镜头，1624，2470，70106，105200。从手机使用的角度来说是有那么点蠢的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  cy6959  
+##### 483#       发表于 2021-5-24 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51350864&amp;ptid=1985265" target="_blank">NeverFar 发表于 2021-5-24 09:44</a>
+去旗舰店摸了下，初步结论：
+1. 屏幕很吊，一眼看出水平很高
+2. 拍照就是个ui，出片很一般，个人感觉不如m3 ...</blockquote>
+3000多去哪买？我淘宝看了一圈5Ⅱ都要4000多啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX S, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  NeverFar  
+##### 484#       发表于 2021-5-24 15:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51354388&amp;ptid=1985265" target="_blank">cy6959 发表于 2021-5-24 14:45</a>
+
+3000多去哪买？我淘宝看了一圈5Ⅱ都要4000多啊
+
+
+—— 来自 vivo NEX S, Android 10上的 S1Next-鹅 ...</blockquote>
+跌到三千多 X
+
+跌了三千多 V
+
+
+-----
+
+####  NeverFar  
+##### 485#       发表于 2021-5-24 15:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51354135&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-5-24 14:24</a>
+
+这个意思啊，摄影大师确实是这样。
+
+
+我估摸这就是模仿相机的逻辑，相当于把手机变成四个变焦镜头，1624， ...</blockquote>
+马克三只有摄影大师APP，没有原生相机了，所以这是这台手机唯一的变焦方式
+
+
+-----
+
+####  他言無用  
+##### 486#       发表于 2021-5-24 16:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51352777&amp;ptid=1985265" target="_blank">fishmanzero 发表于 2021-5-24 12:19</a>
+
+太弱智了吧…不会导致你的回收订单最后不符合优惠券金额门槛吗？大法声称要扣回去…
+
+
+—— 来自 粗粮 K30 ...</blockquote>
+我怼了客服，现在走重新验货了，到时候看看会不会又整出新花样。
+
+
+-----
+
+####  xzk0916  
+##### 487#       发表于 2021-5-24 16:39
+
+
+初代1网页估了个1000回收价，似乎没什么搞头<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+-----
+
+####  他言無用  
+##### 488#       发表于 2021-5-24 17:34
+
+
+ 本帖最后由 他言無用 于 2021-5-24 22:01 编辑 
+
+对了，回收的价格关系如下，想以旧换新的朋友可以参考
+
+<img src="https://img.saraba1st.com/forum/202105/24/220057xgwwlwusuuuugt9a.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (91.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-24 22:00 上传
+
+
+应各位要求重新编辑了@Lisylfn @Yukine_Chris 
+
+
+image.png
+(29.11 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-24 17:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/24/173423b76j7cz77f8mm7e0.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Yukine_Chris  
+##### 489#       发表于 2021-5-24 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51356356&amp;ptid=1985265" target="_blank">他言無用 发表于 2021-5-24 17:34</a>
+对了，回收的价格关系如下，想以旧换新的朋友可以参考</blockquote>
+能不能修一修排版再贴出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from Sony J9110, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  Cray  
+##### 490#       发表于 2021-5-24 19:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51354135&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-5-24 14:24</a>
+
+这个意思啊，摄影大师确实是这样。
+
+
+我估摸这就是模仿相机的逻辑，相当于把手机变成四个变焦镜头，1624， ...</blockquote>
+其实还好
+
+
+<img src="https://img.saraba1st.com/forum/202105/24/194718s5c4uxerx44eh9ue.gif" referrerpolicy="no-referrer">
+
+
+<strong>630263342_20210524-192956.gif</strong> (1.81 MB, 下载次数: 0)
+
+下载附件
+
+2021-5-24 19:47 上传
+
+
+-----
+
+####  Lisylfn  
+##### 491#       发表于 2021-5-24 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51356356&amp;ptid=1985265" target="_blank">他言無用 发表于 2021-5-24 17:34</a>
+
+对了，回收的价格关系如下，想以旧换新的朋友可以参考</blockquote>
+这排版...你发出来就算了, 还是发的截图, 我自己排一下都不行
+
+
+-----
+
+####  我很费纸  
+##### 492#       发表于 2021-5-24 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51357613&amp;ptid=1985265" target="_blank">Cray 发表于 2021-5-24 19:47</a>
+其实还好</blockquote>
+我是无所谓，但是对于之前其他品牌的手机用户而言，这个变焦方式有点愚蠢
+
+举个例子，对于一些大叔大妈来说，他们就觉得，变焦就应该是是我不停双指放大放大放大……
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  NeverFar  
+##### 493#       发表于 2021-5-24 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51357613&amp;ptid=1985265" target="_blank">Cray 发表于 2021-5-24 19:47</a>
+
+其实还好</blockquote>
+拍照勉强能接受，拍视频要变焦先要暂停录制，太脑瘫了
+
+
+-----
+
+####  fishmanzero  
+##### 494#       发表于 2021-5-24 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51358903&amp;ptid=1985265" target="_blank">NeverFar 发表于 2021-5-24 22:01</a>
+
+拍照勉强能接受，拍视频要变焦先要暂停录制，太脑瘫了</blockquote>
+因为没有摄影机可以一边录一边换镜头的啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cray  
+##### 495#       发表于 2021-5-25 02:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51358159&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-5-24 20:46</a>
+
+我是无所谓，但是对于之前其他品牌的手机用户而言，这个变焦方式有点愚蠢
+
+
+举个例子，对于一些大叔大妈来 ...</blockquote>
+Basic模式其实蛮好的 很直观了 教一遍就会了
+
+
+中老年大部分情况下  都不知道可以变焦放大 因为画面根本不会提示。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jzsgtx  
+##### 496#       发表于 2021-5-25 10:44
+
+
+今日9110指纹传感器突然暴毙，又给自己换mk3增加了新的理由<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  allenz2  
+##### 497#       发表于 2021-5-25 11:12
+
+
+索尼这个变焦逻辑是不好的，实际上只开着一个镜头而其它手机全镜头都开着，但mark3这个可变光学焦距也不好搞成其它手机那种，电影大师吹那么多一般人根本没法用，因为要后期处理
+
+
+-----
+
+####  哎哟卧槽了  
+##### 498#       发表于 2021-5-25 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51362610&amp;ptid=1985265" target="_blank">allenz2 发表于 2021-5-25 11:12</a>
+
+索尼这个变焦逻辑是不好的，实际上只开着一个镜头而其它手机全镜头都开着，但mark3这个可变光学焦距也不好 ...</blockquote>
+主要是太硬核了，買手機的有幾個同時用過單反+2個以上鏡頭<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  噗哩噗  
+##### 499#       发表于 2021-5-26 03:56
+
+
+b站居然有广告，以前有吗
+
+
+-----
+
+####  leystage  
+##### 500#         楼主| 发表于 2021-5-26 08:01
+
+
+<blockquote>噗哩噗 发表于 2021-5-26 03:56
+b站居然有广告，以前有吗</blockquote>
+好像腾讯浏览器和知乎也有开屏广告。
+
+这两年新加的预算吧 XD
+
+
+-----
+
+####  有口皆悲  
+##### 501#       发表于 2021-5-26 22:11
+
+
+zackbuck：
+国内 Xperia 1 III 目前预售量超过了首批到货量
+第二批六月初到，但只有 256GB 版本
+512GB 首批售罄后下一批要七月底才会再次到货 ​​​
+
+
+-----
+
+####  PENTAX-DA  
+##### 502#       发表于 2021-5-27 00:32
+
+
+喜欢这编号
+
+但是太贵了。。。
+
+
+-----
+
+####  wqm2008  
+##### 503#       发表于 2021-5-27 01:21
+
+
+等马克四出来收一台玩模拟器
+
+
+-----
+
+####  ut0  
+##### 504#       发表于 2021-5-27 04:20
+
+
+现在都还没有评测视频说了玩游戏之后的温度表现吗？
+
+
+-----
+
+####  我很费纸  
+##### 505#       发表于 2021-5-27 07:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51383755&amp;ptid=1985265" target="_blank">ut0 发表于 2021-5-27 04:20</a>
+现在都还没有评测视频说了玩游戏之后的温度表现吗？</blockquote>
+据极客湾直播说，索尼有联系他们恰饭，估计可能会有一期评测吧。
+
+非国内评测就凑合看看吧，国外测游戏也就测个codm，还不测帧率。测完跟你说没事不热的，但鬼知道是什么强度下跑的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  哎哟卧槽了  
+##### 506#       发表于 2021-5-27 08:15
+
+
+mark3的攝影大師太好用了...可以觸屏定焦點，實用性up
+
+
+-----
+
+####  Cray  
+##### 507#       发表于 2021-5-27 08:37
+
+
+<blockquote>引用第505楼哎哟卧槽了于2021-05-27 08:15发表的  :
+
+mark3的攝影大師太好用了...可以觸屏定焦點，實用性up</blockquote>
+一直都可以的 ……选到单次AF就行了 …
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  allenz2  
+##### 508#       发表于 2021-5-27 20:30
+
+
+【【索尼Xperia 1 III 评测】4K高刷兼微单，法力无边视界宽-哔哩哔哩】https://b23.tv/e87DwI
+
+终于来了个比较详细的测评，原来工程机不准装跑分软件，不过火龙888我觉得还是不容乐观
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  代号锤子  
+##### 509#       发表于 2021-5-27 22:32
+
+
+星期天带老婆去直营店体验一下
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  串行总线  
+##### 510#       发表于 2021-5-27 22:40
+
+
+想整个X5M2了，就是照索尼传统艺能不知道这M3上面的新功能（比如整合相机App）会不会下放到上代机器了。
+
+
+
+
+-----
+
+####  xzk0916  
+##### 511#       发表于 2021-5-27 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51392453&amp;ptid=1985265" target="_blank">allenz2 发表于 2021-5-27 20:30</a>
+
+【【索尼Xperia 1 III 评测】4K高刷兼微单，法力无边视界宽-哔哩哔哩】https://b23.tv/e87DwI
+
+
+终于来了个 ...</blockquote>
+看完还是不知道最关心的温度表现<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cray  
+##### 512#       发表于 2021-5-27 23:53
+
+
+<blockquote>引用第509楼串行总线于2021-05-27 22:40发表的  :
+
+想整个X5M2了，就是照索尼传统艺能不知道这M3上面的新功能（比如整合相机App）会不会下放到上代机......</blockquote>
+都用上了 …<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+                                

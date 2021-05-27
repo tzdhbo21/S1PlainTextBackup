@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-26 23:53** 
+> ## **本文件最后更新于2021-05-27 23:58** 
 
 
 
@@ -3044,7 +3044,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_on8X3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_QqjJe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -9023,4 +9023,517 @@ pero2前面一集在船上跟小朋友玩还被关节技锁，太草了。<img s
 现在也不知道这片想怎么收尾，算他10集哥斯拉开打，剩下3集要完成剩下的怪兽出场，哥斯拉和其他怪兽打一场，人类把机龙弄出来，人类想个办法阻止哥斯拉<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
 
 
-                         
+-----
+
+####  HGCG  
+##### 722#         楼主| 发表于 2021-5-27 00:12
+
+
+李博士屁事没有……
+
+<img src="https://img.saraba1st.com/forum/202105/27/000906lth9qt6cnfb776iw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_04.53_[2021.05.27_.jpg</strong> (240.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:09 上传
+
+
+男主女主时间线不一致实锤了
+
+男主在和未来的女主对话
+
+
+没有台词的狙击手小姐姐呸喽呸喽
+
+<img src="https://img.saraba1st.com/forum/202105/27/000319wgu050wz2h95j6hl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_17.23_[2021.05.27_.jpg</strong> (178.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/000133jsyg1sqy2y2z4mtt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_18.15_[2021.05.27_.jpg</strong> (158.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/000137f1x7k16rh7b6hk7b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_18.19_[2021.05.27_.jpg</strong> (208.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/000140pxkj3ke0020b0boz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_18.49_[2021.05.27_.jpg</strong> (385.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:01 上传
+
+
+那个OD太厉害了吧，单兵两发就能搞定一头怪兽
+
+
+然后哥总完全体出现了！
+
+<img src="https://img.saraba1st.com/forum/202105/27/001119ivqb4v2hjq1hffbz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_20.25_[2021.05.27_.jpg</strong> (88.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/001119iwra4a7034hyra03.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_20.29_[2021.05.27_.jpg</strong> (162.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/001119sz0n77wn05sslj75.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_20.45_[2021.05.27_.jpg</strong> (116.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/001120hz2va2j0jmw0as5j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_20.58_[2021.05.27_.jpg</strong> (166.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/001121w0990i80fa91hj0a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_21.13_[2021.05.27_.jpg</strong> (137.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/001122xj0atiej54rjaomp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_21.30_[2021.05.27_.jpg</strong> (151.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/001124tzqrrexwm8gxuugi.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_21.31_[2021.05.27_.jpg</strong> (147.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/001125f66xwyxz6yty08se.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_21.45_[2021.05.27_.jpg</strong> (173.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/001125e7flp1i7ra59p1ip.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[KRP] Godzilla S.P - 10 (NFM 1920x1080 x264 DD ).mkv_snapshot_21.58_[2021.05.27_.jpg</strong> (166.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 00:11 上传
+
+
+飞天豹拿头跟它打……
+
+
+-----
+
+####  teecoo00  
+##### 723#       发表于 2021-5-27 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51382985&amp;ptid=1963627" target="_blank"> HGCG 发表于 2021-5-27 00:12</a> 李博士屁事没有……   男主女主时间线不一致实锤了 男主在和未来的女主对话  没有台词的狙击手小姐姐呸喽呸喽     那个OD太厉害了吧，单兵两发就能搞定一头怪兽  然后哥总完全体出现了！          飞天豹拿头跟它打……附件： </blockquote>
+女主用餐那段应该是在回忆，引出信息传递，后面女主到印度严重的黑眼圈应该还是说明李博士出事了，然后男女主时间线应该还是一致的，男主解密那里是重返苇原别墅，通过解开MD5函数得到关键时间点提取出过去这几个时间点和女主对话的信息来自: iPhone客户端
+
+
+-----
+
+####  shudushimo  
+##### 724#       发表于 2021-5-27 01:14
+
+
+那首歌真的越听越阴间
+
+
+-----
+
+####  夜颠覆  
+##### 725#       发表于 2021-5-27 01:35
+
+
+最后哥总登场配上BGM，不错呀
+
+
+-----
+
+####  蛇头  
+##### 726#       发表于 2021-5-27 02:31
+
+
+最后战斗场面太爽了。李博士应该还是没了吧，到印度后自始至终就没出现过，找bb接头也是神野自己去的，传信也是那个壮汉去的。
+
+神野没发出去的那个信息可能是破局的关键？博士那个-1到底指的啥？<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+还有那个天牛的代号是怎么回事？难道男主一直没意识到聊天的对象是神野吗?心这么大的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看这话对付怪兽的武器，估计就是bb开发的红尘转换炮弹，把颗粒状的原型瞬间改变成第三形态让怪兽吃闷亏。但问题是要怎么用到打哥总上，难道要弄出个自卫队无法直接投射，必须得肉搏贴身的桥段吗？但喷射杰格的大小比这个哥总小太多了吧？
+
+
+-----
+
+####  天王寺凯伊姆  
+##### 727#       发表于 2021-5-27 03:18
+
+
+目前看不出什么大灾难，红尘终归是红尘，一个OD的事情。“破局”（给个正儿八经的翻译不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）感觉还是解释不了这里面哥总怎么来的
+
+
+-----
+
+####  冰箱研会长  
+##### 728#       发表于 2021-5-27 08:13
+
+
+这狙击手太有神枪的感觉了...
+
+
+-----
+
+####  曦光  
+##### 729#       发表于 2021-5-27 09:42
+
+
+不一定是JJ去吧，也许是钉宫开F35自杀式袭击<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  teecoo00  
+##### 730#       发表于 2021-5-27 09:58
+
+
+10话有中字：4d3cc1ca7dbdff199af158399b55003031380847
+
+
+-----
+
+####  不灭的旋律  
+##### 731#       发表于 2021-5-27 10:13
+
+
+一开始被哥总秒的那只拉顿好像之前就给过镜头。哥总开头还是第三形态结尾直接就Ultima了，每个形态表现太少还怎么卖胶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">同样刻画NPC的时间也太少了
+
+听说初代JJ能自己变大所以不用担心大小了
+
+
+-----
+
+####  Cybellybanana  
+##### 732#       发表于 2021-5-27 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51385319&amp;ptid=1963627" target="_blank"> teecoo00 发表于 2021-5-27 09:58</a> 10话有中字：4d3cc1ca7dbdff199af158399b55003031380847 </blockquote>
+这是？…<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+-----
+
+####  Benetyrant  
+##### 733#       发表于 2021-5-27 11:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51385319&amp;ptid=1963627" target="_blank">teecoo00 发表于 2021-5-27 09:58</a>
+
+10话有中字：4d3cc1ca7dbdff199af158399b55003031380847</blockquote>
+这是啥？sha1吗？不行啊，用什么加密的？
+
+
+-----
+
+####  暗黑能乐  
+##### 734#       发表于 2021-5-27 11:41
+
+
+你们不至于连个磁链都不会用吧23333
+
+
+-----
+
+####  亚瑟邓特  
+##### 735#       发表于 2021-5-27 11:48
+
+
+新时代动画爱好者<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  暗黑能乐  
+##### 736#       发表于 2021-5-27 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51386579&amp;ptid=1963627" target="_blank">Benetyrant 发表于 2021-5-27 11:36</a>
+
+这是啥？sha1吗？不行啊，用什么加密的？</blockquote>
+复制，打开你的迅雷，自己就弹出来了 
+
+
+-----
+
+####  Benetyrant  
+##### 737#       发表于 2021-5-27 12:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51386878&amp;ptid=1963627" target="_blank">暗黑能乐 发表于 2021-5-27 11:54</a>
+
+复制，打开你的迅雷，自己就弹出来了</blockquote>
+感谢！好久不用迅雷了<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  冰箱研会长e-3M  
+##### 738#       发表于 2021-5-27 12:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  亚瑟邓特  
+##### 739#       发表于 2021-5-27 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51387234&amp;ptid=1963627" target="_blank">Benetyrant 发表于 2021-5-27 12:15</a>
+感谢！好久不用迅雷了</blockquote>
+别用迅雷了，换**或者ut吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  newtypezeta  
+##### 740#       发表于 2021-5-27 12:49
+
+
+<blockquote>teecoo00 发表于 2021-5-27 09:58
+10话有中字：4d3cc1ca7dbdff199af158399b55003031380847</blockquote>
+请问在哪里可以最速看到磁链熟肉啊
+
+
+-----
+
+####  蓝色有脚⑨倍速  
+##### 741#       发表于 2021-5-27 13:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51387676&amp;ptid=1963627" target="_blank">newtypezeta 发表于 2021-5-27 12:49</a>
+请问在哪里可以最速看到磁链熟肉啊</blockquote>
+nyaa
+
+
+-----
+
+####  newtypezeta  
+##### 742#       发表于 2021-5-27 13:18
+
+
+<blockquote>蓝色有脚⑨倍速 发表于 2021-5-27 13:02
+nyaa</blockquote>
+感谢！！这话实在是太好看了
+
+
+-----
+
+####  坂上菠萝  
+##### 743#       发表于 2021-5-27 16:17
+
+
+ 本帖最后由 坂上菠萝 于 2021-5-27 16:25 编辑 
+
+解密过程做得挺有意思的，伏笔回收不错
+
+哥总的画面和特效都好精致，太棒了
+
+
+-----
+
+####  hqtkkb  
+##### 744#       发表于 2021-5-27 18:42
+
+
+刚看第九集，这破局的过程怎么一股子俺寻思的味道<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  与你肩并肩  
+##### 745#       发表于 2021-5-27 22:23
+
+
+哥斯拉喷射的就是原型演示会上，利用时间形成的光子流的放大版？
+
+
+-----
+
+####  AkaiSuisei  
+##### 746#       发表于 2021-5-27 22:52
+
+
+从头到尾一个MD5绕不开了
+
+
+-----
+
+####  teecoo00  
+##### 747#       发表于 2021-5-27 23:28
+
+
+【破局】日语里的意思类似是悲剧的结局,tx那边是把翻译成破灭，感觉更贴合愿意
+
+男女主的对话的翻译排版也明了舒服些
+
+
+3x.png
+(175.58 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-27 23:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/232832zdppskcscmksskzc.png" referrerpolicy="no-referrer">
+
+
+4x.png
+(48.04 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-27 23:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/232832zf5uin4nwsfpa5qe.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AlfredXC  
+##### 748#       发表于 2021-5-27 23:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51383573&amp;ptid=1963627" target="_blank">蛇头 发表于 2021-5-27 02:31</a>
+
+最后战斗场面太爽了。李博士应该还是没了吧，到印度后自始至终就没出现过，找bb接头也是神野自己去的，传信 ...</blockquote>
+天牛是女主的网名，男主不认识神野铭这个人，他的同伴虽然认识神野，但也没把神野和天牛对上
+
+
+-----
+
+####  蛇头  
+##### 749#       发表于 2021-5-27 23:40
+
+
+ 本帖最后由 蛇头 于 2021-5-27 23:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51394340&amp;ptid=1963627" target="_blank">AlfredXC 发表于 2021-5-27 23:37</a>
+
+天牛是女主的网名，男主不认识神野铭这个人，他的同伴虽然认识神野，但也没把神野和天牛对上 ...</blockquote>
+我有点不记得了，男主和女主是不是现实里只有业务上那次在发电厂的对话来着？那手机上的沟通应该只是出于女主是男主开发的ai的用户，这样一个类似客服聊天的感觉？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  蛇头  
+##### 750#       发表于 2021-5-27 23:42
+
+
+楼里有人说这个贯穿全局的md5破解，那这个世界线一定没有比特币，不然早就被苇原破解了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过换个思路，中本聪说不定就是这个世界线的苇原<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  AlfredXC  
+##### 751#       发表于 2021-5-27 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51394367&amp;ptid=1963627" target="_blank">蛇头 发表于 2021-5-27 23:40</a>
+
+我有点不记得了，男主和女主是不是现实里只有业务上那次在发电厂的对话来着？那手机上的沟通应该只是出于 ...</blockquote>
+是的，第一次沟通是通过电话，之后就是通过佩罗二世联系上女主的
+
+
+-----
+
+####  蛇头  
+##### 752#       发表于 2021-5-27 23:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51394392&amp;ptid=1963627" target="_blank">AlfredXC 发表于 2021-5-27 23:43</a>
+
+是的，第一次沟通是通过电话，之后就是通过佩罗二世联系上女主的</blockquote>
+这都能聊那么多，该说电波对上了，还是说科学宅太寂寞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就随便找个人聊了那么多还拯救世界了。
+
+
+                        
