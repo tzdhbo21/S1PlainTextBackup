@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-26 22:12** 
+> ## **本文件最后更新于2021-05-28 01:57** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_o4pmm" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_Trk14" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_PrTtR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_yWIdW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -16397,4 +16397,368 @@ dustcell现在这各自发歌的，是不是要解散了啊<img src="https://sta
 50万同接  猛汉还是猛啊
 
 
-        
+-----
+
+####  OldGlory  
+##### 1235#       发表于 2021-5-26 22:14
+
+
+播lol那是比valorant还没人看了，摇了king吧
+
+
+-----
+
+####  黑之和  
+##### 1236#       发表于 2021-5-26 22:44
+
+
+直接拿的字幕组截图
+新歌来了好耶<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/d1bf2069476731b546d44af9d77c0fd2/IMG_CMP_127000381.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 1237#       发表于 2021-5-26 22:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">战队这边出来的2.0基本就加了前倾和后仰了基本就是2.5级别了
+
+
+-----
+
+####  opersuper  
+##### 1238#       发表于 2021-5-27 08:37
+
+
+木口离国民化还差30万同接
+
+
+-----
+
+####  心垂万刃  
+##### 1239#       发表于 2021-5-27 09:50
+
+
+这辈子都做不到吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  小小雪空  
+##### 1240#       发表于 2021-5-27 09:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51377262&amp;ptid=1972669" target="_blank">admentus 发表于 2021-5-26 16:19</a>
+
+可能我说的不太清楚
+
+大部分as观众肯定不是虹人，但是以前只看虹的现在跑去看as的例子也不少...
+
+感觉彩虹 ...</blockquote>
+我觉得是这样的，单纯是哪边人多就去看哪边，跟他本身的属性没有什么关系，反正人自己是会说服自己的×
+
+
+-----
+
+####  死体残留  
+##### 1241#       发表于 2021-5-27 10:11
+
+
+ 本帖最后由 死体残留 于 2021-5-27 11:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">nijien apex 三个菜鸡 en分部没救了，和隔壁比连点差异化都做不到
+
+
+-----
+
+####  Suny08  
+##### 1242#       发表于 2021-5-27 12:55
+
+
+<blockquote>死体残留 发表于 2021-5-27 10:11
+nijien apex 三个菜鸡 en分部没救了，和隔壁比连点差异化都做不到</blockquote>
+但是杏en不和男人玩的，还是有差异的，不过问题是这样子就和杏id 没差异了，因为杏id 要和男人玩
+
+
+-----
+
+####  渡鸦骑士  
+##### 1243#       发表于 2021-5-27 13:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51387777&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-5-27 12:55</a>
+
+但是杏en不和男人玩的，还是有差异的，不过问题是这样子就和杏id 没差异了，因为杏id 要和男人玩 ...</blockquote>
+美声和律可联动过了（）
+
+
+-----
+
+####  永恒时间  
+##### 1244#       发表于 2021-5-27 14:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51377262&amp;ptid=1972669" target="_blank">admentus 发表于 2021-5-26 16:19</a>
+可能我说的不太清楚
+
+大部分as观众肯定不是虹人，但是以前只看虹的现在跑去看as的例子也不少...
+
+感觉彩虹 ...</blockquote>
+为什么非要假定观众成分呢
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  永恒时间  
+##### 1245#       发表于 2021-5-27 14:46
+
+
+问下各位见多识广的楼友，这皮有人认识吗？讲讲<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  colodes  
+##### 1246#       发表于 2021-5-27 15:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51388987&amp;ptid=1972669" target="_blank">永恒时间 发表于 2021-5-27 14:46</a>
+
+问下各位见多识广的楼友，这皮有人认识吗？讲讲
+
+
+—— 来自 HUAWEI LLD-AL30, Androi ...</blockquote>
+774 獅子王クリス 也就是YYS姐贵 的前世 くえすはてな 
+[https://www.youtube.com/channel/UCDGmFkyZUqJDnLhSi6xc91w](https://www.youtube.com/channel/UCDGmFkyZUqJDnLhSi6xc91w)
+
+
+-----
+
+####  永恒时间  
+##### 1247#       发表于 2021-5-27 16:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51389162&amp;ptid=1972669" target="_blank">colodes 发表于 2021-5-27 15:03</a>
+774 獅子王クリス 也就是YYS姐贵 的前世 くえすはてな 
+
+https://www.youtube.com/channel/UCDGmFkyZUqJDn ...</blockquote>
+惊了，这是前前世啊，yys你tm到底有多少个皮<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  FCCHua  
+##### 1248#       发表于 2021-5-27 17:14
+
+
+耳毛终于要有新衣服了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  影山银  
+##### 1249#       发表于 2021-5-27 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51390578&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-5-27 17:14</a>
+耳毛终于要有新衣服了</blockquote>
+哭了，还有新歌😭😭
+
+—— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  永恒时间  
+##### 1250#       发表于 2021-5-27 17:26
+
+
+<img src="https://p.sda1.dev/2/9d7d006c38121974a924575c9a2cc7ea/IMG_CMP_176424250.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LLD-AL30, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  FCCHua  
+##### 1251#       发表于 2021-5-27 19:36
+
+
+这桃铁好玩
+尊妈要一直维持旁白声线感觉好累<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1252#       发表于 2021-5-27 20:15
+
+
+[https://twitter.com/ame_no_sei/status/1397870800363933702](https://twitter.com/ame_no_sei/status/1397870800363933702)
+
+店长也歇了啊，无限期活动中止
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/201534ajlhsjwpkqmld8te.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (283.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 20:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/201534p1i1p4zb9x1pkhzy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (282.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 20:15 上传
+
+
+-----
+
+####  asdhai  
+##### 1253#       发表于 2021-5-27 21:11
+
+
+时雨妈新衣服直播开始了，来捧个场<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tiro_finale  
+##### 1254#       发表于 2021-5-27 21:32
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/213250jugtu2s3n8zoeooa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ui.jpg</strong> (35.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 21:32 上传
+
+
+-----
+
+####  雪风utopia  
+##### 1255#       发表于 2021-5-27 21:44
+
+
+长发时雨妈好看捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdhai  
+##### 1256#       发表于 2021-5-27 21:48
+
+
+亲子丼✘
+
+姐妹丼✔
+
+
+-----
+
+####  alcoholic1000  
+##### 1257#       发表于 2021-5-27 21:53
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/215016s7oszfo1vfof85sg.png" referrerpolicy="no-referrer">
+
+
+<strong>【#しぐれうい新衣装】1年2か月ぶりの衣替え.png</strong> (113.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 21:50 上传
+
+
+两个长发（双马尾）都糊了没截好，偷个图
+
+<img src="https://img.saraba1st.com/forum/202105/27/215331qd4cpmdm1mhrpv4c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>#しぐれうい新衣装.jpeg</strong> (104.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 21:53 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/215331kre3lerqkxkv300k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>#しぐれうい新衣装-2.jpeg</strong> (81.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-27 21:53 上传
+
+
+-----
+
+####  OldGlory  
+##### 1258#       发表于 2021-5-27 22:00
+
+
+母女贴贴好啊
+
+
+-----
+
+####  IDIDIDID  
+##### 1259#       发表于 2021-5-27 22:58
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-27 23:04 编辑 
+
+にじさんじ3周年記念プロジェクト"PALETTE"
+
+新曲『Virtual Strike』のリリックビデオが明日12:00に公開決定！
+
+
+待機所▽
+[https://youtu.be/qsu5VIXRC48](https://youtu.be/qsu5VIXRC48)
+
+
+-----
+
+####  rzrbtk  
+##### 1260#       发表于 2021-5-27 23:40
+
+
+看转发虹可能又要用bomberman搞个大赛啥的，反正人多，64人上限应该可以达到的吧，连郡道都去了…
+然而えらちゃん已不在<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  NBXX  
+##### 1261#       发表于 2021-5-28 00:31
+
+
+V微相关 用R台交到女友的故事（有RPG可能）
+[https://kf.miaola.info/read.php? ... =594&amp;uid=571452](https://kf.miaola.info/read.php?tid=893633&amp;sf=594&amp;uid=571452)
+
+关于我交到了一位日本人女朋友的事情（一）
+<img src="https://p.sda1.dev/2/b49cac617fd6816b2eb4689fc4285f41/QQ截图20210528003005.png" referrerpolicy="no-referrer">
+
+
+       
