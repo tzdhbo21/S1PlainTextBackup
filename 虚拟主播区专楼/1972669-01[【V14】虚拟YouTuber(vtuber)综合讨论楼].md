@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-28 18:10** 
+> ## **本文件最后更新于2021-05-28 21:32** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_u1s6E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_fGngS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_L5hH7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_HnJGJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -17277,4 +17277,515 @@ asoul不是强在技术或者歌舞，而是执行力上。
 社长1000W啊，如果不破能够不搞个大live也疯狂与超越的话那太恐怖了。
 
 
-      
+-----
+
+####  渡鸦骑士  
+##### 1302#       发表于 2021-5-28 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51402303&amp;ptid=1972669" target="_blank">空集 发表于 2021-5-28 18:01</a>
+
+尼哥这个盗播能不能专业点啊。。。。。帧率和清晰度都不行，难的专门做了网站转播的人给我敬业点啊
+
+
+——  ...</blockquote>
+实际上用的是俄罗斯的直播网站，所以完全看人家服务器<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Map-2  
+##### 1303#       发表于 2021-5-28 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51402195&amp;ptid=1972669" target="_blank">free 发表于 2021-5-28 17:50</a>
+
+话说asoul真的很出圈吗，看了看粉丝数，最多的嘉然34万，其他都十多万，也没到很出圈吧。歌力舞力技术力啥 ...</blockquote>
+出到动物园圈了
+
+
+-----
+
+####  IDIDIDID  
+##### 1304#       发表于 2021-5-28 18:24
+
+
+说白了🦄女团在真人偶像时代就是版本密码了，杏和啊骚做的都是验证过的东西，当然赢麻了。
+
+倒是同样真人时代版本密码的🦄男团到现在也没见有人搞成功，以至于还得靠虹男给男V撑场面。
+
+
+-----
+
+####  alcoholic1000  
+##### 1305#       发表于 2021-5-28 18:31
+
+
+ねんどろいど这个之前说过吗
+
+<img src="https://img.saraba1st.com/forum/202105/28/183000nb759j1bybwb6ab2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>from1st.jpg</strong> (423.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 18:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/183008pcbbcvhyfv8cg07g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>from1st-2.jpg</strong> (311.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 18:30 上传
+
+
+-----
+
+####  rzrbtk  
+##### 1306#       发表于 2021-5-28 18:47
+
+
+画那吻与白百合的缶乃老师<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">！
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/184201fep1hm1o41kawm1m.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 727 - (1) 缶乃◆三角関係入門②3_26 在 Twitter_ _郡道美玲さん ht.jpg</strong> (305.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 18:42 上传
+
+
+-----
+
+####  asdhai  
+##### 1307#       发表于 2021-5-28 18:48
+
+
+ 本帖最后由 asdhai 于 2021-5-28 19:24 编辑 
+
+没看到第一张图，编辑了
+
+
+-----
+
+####  黑之和  
+##### 1308#       发表于 2021-5-28 18:51
+
+
+黑黑新歌好听<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 1309#       发表于 2021-5-28 19:59
+
+
+高达新女主这人设，郡道既视感严重
+
+该开蹭了
+
+
+-----
+
+####  FCCHua  
+##### 1310#       发表于 2021-5-28 20:08
+
+
+阿喵喵好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  CAserlumos  
+##### 1311#       发表于 2021-5-28 20:09
+
+
+上来就连麦，嗯混是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+哪怕不是真心的能不能唱首歌<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 1312#       发表于 2021-5-28 20:10
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/201040tybb4blixbtrr6rc.png" referrerpolicy="no-referrer">
+
+
+<strong>｟#あまみゃ3D｠こころにいつも 天宮こころです！！│にじさんじ（ ✧3Dお披露目✧ ）.png</strong> (133.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 20:10 上传
+
+
+[https://www.youtube.com/watch?v=TqWpxtUJti0](https://www.youtube.com/watch?v=TqWpxtUJti0)
+
+
+-----
+
+####  winda  
+##### 1313#       发表于 2021-5-28 20:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">kemt都请来了，这就是团宠待遇么
+
+
+-----
+
+####  zwxclear  
+##### 1314#       发表于 2021-5-28 20:17
+
+
+德龙：我要的姿势是“德龙，给我买炒面来”
+
+
+-----
+
+####  lhawp  
+##### 1315#       发表于 2021-5-28 20:18
+
+
+阿喵喵杀疯了
+
+
+-----
+
+####  pansherry  
+##### 1316#       发表于 2021-5-28 20:21
+
+
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1gy1gqyerisru4j219v0p0jx9.jpg" referrerpolicy="no-referrer">
+[twitter](https://twitter.com/_Baro86/status/1393149510495387648?s=20)
+
+
+-----
+
+####  CAserlumos  
+##### 1317#       发表于 2021-5-28 20:22
+
+
+萌音嗯混，也行吧<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zwxclear  
+##### 1318#       发表于 2021-5-28 20:22
+
+
+唱歌跳舞的小女孩
+
+
+-----
+
+####  Yurumi  
+##### 1319#       发表于 2021-5-28 20:23
+
+
+藏，都可以藏<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 1320#       发表于 2021-5-28 20:25
+
+
+她好能动，真的练舞了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  CAserlumos  
+##### 1321#       发表于 2021-5-28 20:26
+
+
+只能说被她藏明白了
+
+虽然很可爱就是了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1322#       发表于 2021-5-28 20:28
+
+
+ 本帖最后由 rzrbtk 于 2021-5-28 20:30 编辑 
+
+阿喵喵这人体力这么好的吗？意外...
+
+镜头拉近时候的演技真的不错，亏得能做出复杂表情啊，从外形来看和童田是一个路数的但总觉得各方面都完善很多，羡慕羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+虽然感觉在这宝O梦有点版权问题，但真的好好笑，能不能虹动画做这个啊！
+
+
+-----
+
+####  空集  
+##### 1323#       发表于 2021-5-28 20:29
+
+
+这宝可梦过场好草
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  zwxclear  
+##### 1324#       发表于 2021-5-28 20:29
+
+
+这什么奇怪的茶番
+
+
+-----
+
+####  alcoholic1000  
+##### 1325#       发表于 2021-5-28 20:30
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-28 20:54 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/203020pj44g3awx64wtljh.png" referrerpolicy="no-referrer">
+
+
+<strong>｟#あまみゃ3D｠こころにいつも 天宮こころです！！│にじさんじ（ ✧3Dお披露目✧ ）.png</strong> (100.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 20:30 上传
+
+
+好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+茶番好可爱，塞——巴——斯——
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/203626h864azqq44q9ngcq.png" referrerpolicy="no-referrer">
+
+
+<strong>｟#あまみゃ3D｠こころにいつも 天宮こころです！！│にじさんじ（ ✧3Dお披露目✧ ）.png</strong> (210.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 20:36 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/205408hrlbm8p89zvfsskp.png" referrerpolicy="no-referrer">
+
+
+<strong>｟#あまみゃ3D｠こころにいつも 天宮こころです！！│にじさんじ（ ✧3Dお披露目✧ ）.png</strong> (63.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 20:54 上传
+
+
+-----
+
+####  pansherry  
+##### 1326#       发表于 2021-5-28 20:32
+
+
+冠军之路（
+
+
+-----
+
+####  Yurumi  
+##### 1327#       发表于 2021-5-28 20:32
+
+
+这过场动画也太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1328#       发表于 2021-5-28 20:32
+
+
+质desu 
+
+
+-----
+
+####  FCCHua  
+##### 1329#       发表于 2021-5-28 20:33
+
+
+ 本帖最后由 FCCHua 于 2021-5-28 20:37 编辑 
+
+阿喵喵你好排面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+西西你好强大<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 草，时雨妈又来了
+
+
+-----
+
+####  死体残留  
+##### 1330#       发表于 2021-5-28 20:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">时雨妈混的真是成功昨天新衣服狂蹭木口，今天蹭彩虹真是强，两边叫正统编外人员啊
+
+
+-----
+
+####  alcoholic1000  
+##### 1331#       发表于 2021-5-28 20:41
+
+
+插播一句没人看的某PUBG比赛黑黑スタヌk4sen吃鸡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雨季莫忧愁  
+##### 1332#       发表于 2021-5-28 20:42
+
+
+宝可梦那段neta了smosh的真人宝可梦诶，真怀念啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 1333#       发表于 2021-5-28 20:43
+
+
+美少女多人3d企划=好
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  心垂万刃  
+##### 1334#       发表于 2021-5-28 20:45
+
+
+太会蹭了时雨<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 1335#       发表于 2021-5-28 20:52
+
+
+最后又唱了  <img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+虽然还是捏萌音
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  OldGlory  
+##### 1336#       发表于 2021-5-28 20:55
+
+
+就嗯压
+
+
+-----
+
+####  CAserlumos  
+##### 1337#       发表于 2021-5-28 20:55
+
+
+解了，但没完全解<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1338#       发表于 2021-5-28 20:57
+
+
+破音走音也要rp真的敬业，有点当初看LL空丸那感觉了，真拼啊（虽然我比较想听她全力全开啦<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  Suny08  
+##### 1339#       发表于 2021-5-28 21:04
+
+
+最后的感想这段有点回到她以前和唢呐做的电台的声线了啊，听着很舒服，以及这个钢琴的技术是不是roha教本社的？
+
+
+-----
+
+####  FCCHua  
+##### 1340#       发表于 2021-5-28 21:09
+
+
+ 本帖最后由 FCCHua 于 2021-5-28 21:11 编辑 
+
+还有ed是我没想到的，好多人
+
+
+-----
+
+####  OldGlory  
+##### 1341#       发表于 2021-5-28 21:10
+
+
+挺豪华
+
+
+-----
+
+####  alcoholic1000  
+##### 1342#       发表于 2021-5-28 21:11
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/211058r6sjmi4s6vzi63mc.png" referrerpolicy="no-referrer">
+
+
+<strong>｟#あまみゃ3D｠こころにいつも 天宮こころです！！│にじさんじ（ ✧3Dお披露目✧ ）.png</strong> (72.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 21:10 上传
+
+
+《人望》
+
+
+-----
+
+####  IDIDIDID  
+##### 1343#       发表于 2021-5-28 21:12
+
+
+明天萝卜子3D要被牛郎3D撞碎了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1344#       发表于 2021-5-28 21:12
+
+
+最后的歌好听好听好听！演出也好，做得漂亮也不恐怖谷的脸对着“我”说话这种场景巨对我胃口，治愈…
+
+
+     

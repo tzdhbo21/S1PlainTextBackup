@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 15:57** 
+> ## **本文件最后更新于2021-05-28 21:30** 
 
 
 
@@ -275,7 +275,12 @@ o
 ####  Quantum233  
 ##### 14#       发表于 2021-1-15 21:02
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote>黄字 发表于 2021-1-15 18:54
+长月达平是转来写动画片写的最烂接的最多的一个废物。比他差的只剩小太刀了。
+
+ ...</blockquote>
+劲爆大象部落，排这玩意你问过那几个典中典的黄油写手没？
 
 
 -----
@@ -406,7 +411,10 @@ wit上一部原创是什么来着
 ####  Quantum233  
 ##### 25#       发表于 2021-1-16 15:19
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote>Azusayyy 发表于 2021-1-16 11:00
+长月安心写小说不好吗，这是他自己想转型写动画剧本了还是别人请的他啊，后者几率不高吧 ...</blockquote>
+战翼是后者，而且是两三年前了，所以我估摸着这次也差不多
 
 
 -----
@@ -974,7 +982,8 @@ Bilibili独播
 ####  Quantum233  
 ##### 58#       发表于 2021-4-3 19:11
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+所以闹成这样了还没人准备追生放么
 
 
 -----
@@ -2731,7 +2740,10 @@ NGA也是黑得多啊  
 ####  丹德里恩  
 ##### 215#       发表于 2021-4-6 22:02
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">还蛮有意思的，指润润
+
+希望后面的质量能维持
 
 
 -----
@@ -3700,7 +3712,8 @@ ed听歌的时候看到演职员表有小原好美，还在奇怪她配了谁，
 ####  丹德里恩  
 ##### 285#       发表于 2021-4-11 11:08
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">粉毛笑得那么灿烂结果没活过一集....
 
 
 -----
@@ -4110,7 +4123,8 @@ image.png
 ####  Quantum233  
 ##### 311#       发表于 2021-4-11 16:41
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+那串sdjsDoa5dH [ab/pe 有人推论出意义/找到出处了么
 
 
 -----
@@ -7562,7 +7576,8 @@ VIVY低头：一拍二，10帧（5原画）跑步：一拍一，4帧（4原画�
 ####  Quantum233  
 ##### 579#       发表于 2021-4-20 13:27
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+怀疑长月这次系构是不是挂名了，尤其对比战翼。 先跳车了。 月底剧本发售，到时看看什么情况。
 
 
 -----
@@ -7605,7 +7620,11 @@ VIVY低头：一拍二，10帧（5原画）跑步：一拍一，4帧（4原画�
 ####  Quantum233  
 ##### 583#       发表于 2021-4-20 22:32
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51002371&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-4-20 18:34</a>
+
+月底那个好像不是全部，听说只是第一卷？怀疑没有后面剧情</blockquote>
+那肯定啊，不然就剧透了233
 
 
 -----
@@ -17461,4 +17480,517 @@ VIVY已经证实了可以用第二人格压制第一人格并且在第二人格�
 AI也要做谜语人吗
 
 
-    
+-----
+
+####  jbjack1215  
+##### 1353#       发表于 2021-5-25 09:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51359067&amp;ptid=1982987" target="_blank">咸鱼咸又咸 发表于 2021-5-24 22:18</a>
+我记得开头博士说要DIVA拯救世界，而没说薇薇？这集突出DIVA消失了，算是个伏笔？
+
+—— 来自 Xiaomi Redmi ...</blockquote>
+第一话博士还说“再次拯救世界”
+加上松本穿越时间跟博士没对上，估计还有转折
+但是7～9实属编剧短板露馅，不太看好收尾
+
+
+-----
+
+####  格雷殿下  
+##### 1354#       发表于 2021-5-25 10:24
+
+
+机器人本名不就是dva吗，博士不知道vv也是合理的
+
+
+-----
+
+####  liwangli1983  
+##### 1355#       发表于 2021-5-25 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51358147&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-5-24 20:45</a>
+
+第一對殉情的ai</blockquote>
+靠，那比自杀还刺激公众了，感觉他们每次任务都起到了加速效果
+
+
+-----
+
+####  别叫我宅男  
+##### 1356#       发表于 2021-5-25 17:12
+
+
+确实，我也觉得每次松本搞事最后都一整付踩油门的感觉，尤其是第一二次。都加速到岛提前出现了，麻子摩托还没察觉不对劲吗
+
+
+-----
+
+####  gofbayrf  
+##### 1357#       发表于 2021-5-25 18:55
+
+
+ 本帖最后由 gofbayrf 于 2021-5-25 19:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51366536&amp;ptid=1982987" target="_blank">别叫我宅男 发表于 2021-5-25 17:12</a>
+
+确实，我也觉得每次松本搞事最后都一整付踩油门的感觉，尤其是第一二次。都加速到岛提前出现了，麻子摩托还 ...</blockquote>
+有天啟的情況下松本只改變事件走向不干涉后續情報操作真是有屁用呢
+
+再就是奇點是啥都干脆不去定義了 萬一ai叛亂殺上億人也是奇點  這微調百年之旅的本質就是毫無意義松本的未來算法已經失效4次了 還要再迷信一次而不是尋找叛亂的本質就更離譜了
+
+
+-----
+
+####  RainbowSealife  
+##### 1358#       发表于 2021-5-25 19:40
+
+
+刚看完第6集，制作无可挑剔，但是剧本嘛，还欠打磨<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">空战运镜晃得头晕，op插入的不太合适，感觉换首歌更好。
+
+虐也没虐起来，短短两集，葛蕾丝和冴木戏份太少，都快成单元故事背景板了，个人觉得调动不了观众情绪，最后仅仅是讲了个人机虐恋的故事。葛蕾丝在成为巨浮岛的主控AI前就不能备份一下数据吗？直接把备份数据传到k5上，一切问题不就迎刃而解了？冴木小两口日子该过过，另外一位葛蕾丝负责运营巨浮岛，两全其美，别告诉我剧中现有的科技做不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+有一种错觉，冴木是不是有俄狄浦斯情结？被生母抛弃后受到了葛蕾丝的悉心照料，长大之后娶了曾经扮演过自己母亲一样的AI，很难不让人有这种联想<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+不过护士姐姐真的太棒了！<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202105/25/192850lswj0i6ffi0g0y64.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (67.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-25 19:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/25/192930f4iujhzjomst11ms.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (86.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-25 19:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/25/193147a043oj433w7yvvwu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (117.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-25 19:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/25/193116owssp4seskssptsw.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (105.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-25 19:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/25/193225gsnx7fuxxzym77ua.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (118.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-25 19:32 上传
+
+
+剧中设定不是说AI只能有一种使命吗？那歌姬用自己的歌声给更多的人带来幸福和薇薇为了人类未来而毁灭AI的使命不相互冲突？麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OnlyW  
+##### 1359#       发表于 2021-5-25 19:55
+
+
+<blockquote>RainbowSealife 发表于 2021-5-25 19:40
+刚看完第6集，制作无可挑剔，但是剧本嘛，还欠打磨我看bgm那边不少人在这集评论下面说神回，但是我 ...</blockquote>
+神回可不至于。我第一反应也是恋母。这片不细想设定或许观感更好。
+
+
+-----
+
+####  酥蕤  
+##### 1360#       发表于 2021-5-25 20:25
+
+
+新穿越者是这一时间线的未来套娃穿越过来的吧
+
+
+-----
+
+####  lucky117  
+##### 1361#       发表于 2021-5-25 20:56
+
+
+逻辑不通，不知所谓
+
+米浴那部份还行
+KB分子的部份直接换成穿越人来阻止VV和松本观感瞬间好百倍，讲这么多有的没的又不讲明白真是拉垮<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LeonsCat  
+##### 1362#       发表于 2021-5-25 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51368012&amp;ptid=1982987" target="_blank">RainbowSealife 发表于 2021-5-25 19:40</a>
+
+刚看完第6集，制作无可挑剔，但是剧本嘛，还欠打磨我看bgm那边不少人在这集评论下面说神回，但是我 ...</blockquote>
+这片拉长1.5倍观感会好很多。
+
+
+-----
+
+####  MONSTERS  
+##### 1363#       发表于 2021-5-25 23:59
+
+
+ 本帖最后由 MONSTERS 于 2021-5-26 00:01 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/000015i59t5d9xl5xlx99x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7638535e5dd25a0b.jpg</strong> (47.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 00:00 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/000015hqgq6zfgnlqdkgzq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>77fab2fb43161caf6fc83.jpg</strong> (121.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 00:00 上传
+
+
+九话好评新高，看来并没什么人在乎合理性
+
+
+-----
+
+####  一色彩羽的家人  
+##### 1364#       发表于 2021-5-26 01:16
+
+
+不加小黑萝莉这段强行抒情会好很多
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  MMMMMMMMM  
+##### 1365#       发表于 2021-5-26 13:18
+
+
+ 本帖最后由 MMMMMMMMM 于 2021-5-26 13:23 编辑 
+
+9話までの楽曲を配信中！
+
+[Sing My Pleasure]
+[https://anxmusic.lnk.to/ZITNAW](https://anxmusic.lnk.to/ZITNAW)
+
+
+[Galaxy Anthem]
+[https://anxmusic.lnk.to/USXfXT](https://anxmusic.lnk.to/USXfXT)
+
+
+[Harmony of One's Heart]
+[https://anxmusic.lnk.to/UULySF](https://anxmusic.lnk.to/UULySF)
+
+
+[Sing My Pleasure（Grace Ver.）]
+[https://anxmusic.lnk.to/4duwHx](https://anxmusic.lnk.to/4duwHx)
+
+
+[Elegy Dedicated With Love]
+[https://anxmusic.lnk.to/eEjduF](https://anxmusic.lnk.to/eEjduF)
+
+
+Galaxy Anthem果然好听
+
+
+<img src="https://img.saraba1st.com/forum/202105/26/132333ywxb10y02h4hyhw4.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210525222306.png</strong> (104.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-26 13:23 上传
+
+
+好快！
+
+顺便OP1拿了苹果音乐动漫版第一位
+
+但是2,3,4都是马娘，马娘真是杀疯了
+
+
+-----
+
+####  Piano-Forest  
+##### 1366#       发表于 2021-5-27 17:24
+
+
+ヴィヴィ (Vo.八木海莉)
+
+Sing My Pleasure
+<img src="https://p.sda1.dev/2/8878bba846871a817acf76a480813945/jk_op.jpg" referrerpolicy="no-referrer">
+
+
+劇中歌収録アルバム
+
+Vivy -Fluorite Eye's Song-
+
+Vocal Collection
+
+～Sing for Your Smile～
+<img src="https://p.sda1.dev/2/9f42757ef0117d36617a3a0806044c8e/jk_vc.jpg" referrerpolicy="no-referrer">
+
+
+オリジナルサウンドトラック
+
+Vivy -Fluorite Eye's Song-
+
+Original Soundtrack
+<img src="https://p.sda1.dev/2/175fc570c089a41fb844c31ea4ef3c26/jk_ost.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shimmy1996  
+##### 1367#       发表于 2021-5-27 17:52
+
+
+op专的b面曲happiness好听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+算一下op加姐妹机个人曲加上diva/vivy各两首已经有8、9首歌了，简直macros正统在vivy<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  KozueAkimoto  
+##### 1368#       发表于 2021-5-27 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51390689&amp;ptid=1982987" target="_blank">Piano-Forest 发表于 2021-5-27 17:24</a>
+ヴィヴィ (Vo.八木海莉)
+
+Sing My Pleasure</blockquote>
+第二张图有点帅啊，有人非法搞壁纸吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sorastlos  
+##### 1369#       发表于 2021-5-27 18:27
+
+
+sing my pleasure这完整版
+
+加的solo和第三遍副歌都像是缝合进来的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bananasjim  
+##### 1370#       发表于 2021-5-27 21:39
+
+
+感觉烂片预定了
+
+
+-----
+
+####  rynchee  
+##### 1371#       发表于 2021-5-28 09:02
+
+
+你们对烂片的定义到底是什么？
+
+这片最低下限也不过是查出百年后AI叛乱真相（也许真相会挺无聊），然后人与AI和谐共处。
+
+这种结局应该算是平稳落地吧？还是说这种结局也算烂片了？
+
+
+-----
+
+####  mumu  
+##### 1372#       发表于 2021-5-28 09:23
+
+
+甲铁城算烂片吗？感觉最后会差不多<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rainknine  
+##### 1373#       发表于 2021-5-28 09:27
+
+
+其实我担心的烂片就是超展开的百年后<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+平稳收场的话演出做好，情感渲染到位，把漫长百年的岁月的重量（虽然我只在第二集最后感受到过这个）做出来的话上限一点都不低。
+但是现在这个样子怎么看最后一幕都是要整个大活的味道，那可就完全是未知的命运的舞台了
+
+
+-----
+
+####  jbjack1215  
+##### 1374#       发表于 2021-5-28 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51396142&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-5-28 09:02</a>
+你们对烂片的定义到底是什么？
+
+这片最低下限也不过是查出百年后AI叛乱真相（也许真相会挺无聊），然后人与 ...</blockquote>
+平庸的演出配平庸的剧情，不算烂（参大运动会
+一流的演出配平庸的剧情，特别烂（参AZ
+
+
+-----
+
+####  rainknine  
+##### 1375#       发表于 2021-5-28 09:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51396490&amp;ptid=1982987" target="_blank">jbjack1215 发表于 2021-5-28 09:33</a>
+平庸的演出配平庸的剧情，不算烂（参大运动会
+一流的演出配平庸的剧情，特别烂（参AZ ...</blockquote>
+但是公主配黄毛这个操作是az里最不平庸的那部分（
+
+
+-----
+
+####  jbjack1215  
+##### 1376#       发表于 2021-5-28 09:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51396568&amp;ptid=1982987" target="_blank">rainknine 发表于 2021-5-28 09:39</a>
+但是公主配黄毛这个操作是az里最不平庸的那部分（</blockquote>
+第一部就很平庸
+阀值够高的才有办法看第二部
+
+
+-----
+
+####  马桶3  
+##### 1377#       发表于 2021-5-28 10:02
+
+
+VIVY估计最后和异度入侵一个水平，不算烂片的，除非最后真的乱来喂米田共
+
+
+-----
+
+####  xaniag  
+##### 1378#       发表于 2021-5-28 20:22
+
+
+高水平的打戏放在这种漏洞百出的科幻剧本……
+只能感叹一句可惜了。
+
+所谓正史的奇点被两个ai的行动修正过后，怎能不考虑蝴蝶效应，而每隔几十年才重新出现的未来AI竟还纠结于所谓正史的几月几日几分几秒，被修正过后的世界千变万化，不加入参数变量修正是要怎么应对每个奇点的事件？甚至可以说修正之后下一个奇点不存在的概率都不会小。只能说这未来AI不是在以AI的方式计算，更像个死脑筋的人，稍微懂点黑客技术罢了。
+
+真想问问梅原和长月写剧本之前到底有没有查清楚AI的诞生原理…
+
+
+-----
+
+####  LeonsCat  
+##### 1379#       发表于 2021-5-28 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51403942&amp;ptid=1982987" target="_blank">xaniag 发表于 2021-5-28 20:22</a>
+
+高水平的打戏放在这种漏洞百出的科幻剧本……
+
+只能感叹一句可惜了。</blockquote>
+所谓历史修正回归呗，常见设定。
+
+其实任何一个时间跨度大于十年的科幻作品，都会是漏洞百出的。这片一开始说时间跨度百年就知道不能较真了。
+
+
+-----
+
+####  aptx8285144  
+##### 1380#       发表于 2021-5-28 20:29
+
+
+ 本帖最后由 aptx8285144 于 2021-5-28 20:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51396876&amp;ptid=1982987" target="_blank">马桶3 发表于 2021-5-28 10:02</a>
+
+VIVY估计最后和异度入侵一个水平，不算烂片的，除非最后真的乱来喂米田共</blockquote>
+主要感觉还是这个单元剧的切嗣和某人实在太谜语人而无聊了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，而且如果要用异度侵入做对比，kb先生无趣程度比局长和百贵（为什么提到他，因为他排位非常考前却也有点德不配位）外前面几个单元剧感觉还是凑合而且艾尔维斯姐妹塑造也不错最后收尾也可以
+
+
+
+
+-----
+
+####  小皮诺  
+##### 1381#       发表于 2021-5-28 20:31
+
+
+终于找到既视感的来源了。是你吗，《尸者的帝国》？
+
+科幻世界观+霸权社的精良制作+刻意的超展开。最后再来一个罪恶王冠式的结局就是全套翻版了。
+
+
+-----
+
+####  小皮诺  
+##### 1382#       发表于 2021-5-28 20:47
+
+
+编辑
+
+
+-----
+
+####  xaniag  
+##### 1383#       发表于 2021-5-28 20:56
+
+
+现在看来，第二集末尾飞机失事那个片段，我当时看得十分突兀的感觉是没错了。
+
+属于在剧本初期可以窥见的，制造矛盾诉诸情感大于一切的一个迹象
+
+对照后面几次奇点，两个AI的行动显然干涉到了奇点以外的数不清的“一丝一毫”，所以松本对vivy的说教不是强调要遵守严格的时间穿越系的规矩，也不是在意其它变量参数的千变万化。
+与其说未来AI不让vivy干涉奇点以外的“一丝一毫”，不如说是给“松本”这个人树立冷血无情贯彻执行的形象，再给“vivy”这个人加一层背负沉重代价的女主角命运，以vivy的好友小女孩的生命为代价。女孩丧生+伙伴争执显得十分廉价。
+
+而科幻作品较为忌讳的是，为了后期想描写的情感爆点，抛弃按前期基础设定推演的过程。高潮部分想临时抛弃设定的话，bug不能太多，且对笔力要求不低。
+因为这基础设定是作者一开始选择的，自己却不遵守，那还不如不要这种设定，拿魔法更好解释通顺。
+
+
+-----
+
+####  xaniag  
+##### 1384#       发表于 2021-5-28 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51403988&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-28 20:25</a>
+所谓历史修正回归呗，常见设定。
+
+其实任何一个时间跨度大于十年的科幻作品，都会是漏洞百出的。这片一开 ...</blockquote>
+抱歉，“历史修正回归”有没有什么专门术语，google搜了没有相关资料。
+这种或许可以说不少见，但是观感并不好
+
+
+   
