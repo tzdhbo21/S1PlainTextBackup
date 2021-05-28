@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-28 01:57** 
+> ## **本文件最后更新于2021-05-28 18:10** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_PrTtR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_yWIdW" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_u1s6E" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_fGngS" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -16761,4 +16761,520 @@ V微相关 用R台交到女友的故事（有RPG可能）
 <img src="https://p.sda1.dev/2/b49cac617fd6816b2eb4689fc4285f41/QQ截图20210528003005.png" referrerpolicy="no-referrer">
 
 
-       
+-----
+
+####  Suny08  
+##### 1262#       发表于 2021-5-28 09:02
+
+
+はかちぇ「メジャーデビューして忙しくなったからって配信しないってのはしたくない」 
+
+
+森中、はかちぇの配信聞いてるか？
+
+
+-----
+
+####  hulaoda007  
+##### 1263#       发表于 2021-5-28 09:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">忙しいんだから別にいいじゃん。
+
+
+-----
+
+####  FCCHua  
+##### 1264#       发表于 2021-5-28 09:47
+
+
+ 本帖最后由 FCCHua 于 2021-5-28 09:49 编辑 
+
+星川，叶 vr场
+阿葵，葛叶 link场
+虹本社这是总共上了四个啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1265#       发表于 2021-5-28 09:50
+
+
+看来发配来bml 的标准的订阅50万，没到不配哦
+
+
+-----
+
+####  死体残留  
+##### 1266#       发表于 2021-5-28 10:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">海牛和爱丽丝y有50w么，不云不说话哦
+
+
+-----
+
+####  free  
+##### 1267#       发表于 2021-5-28 10:17
+
+
+[https://bml.bilibili.com/2021/m/index.html#/vr/guest](https://bml.bilibili.com/2021/m/index.html#/vr/guest)
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/101753xoeer2vm3hq9cvcq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>bml.jpeg</strong> (630.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 10:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/101755rju1cz1uqxuu5ucn.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>bml2.jpeg</strong> (749.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 10:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/101756dz7qrennqkvinkmg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>bml3.jpeg</strong> (685.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 10:17 上传
+
+
+-----
+
+####  winda  
+##### 1268#       发表于 2021-5-28 10:21
+
+
+虽然葵皇搬家，星川只开转播号，但还是比阿胜相羽德比这些够资格啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 1269#       发表于 2021-5-28 10:23
+
+
+  我其实蛮希望阿胜来的...
+
+
+-----
+
+####  Suny08  
+##### 1270#       发表于 2021-5-28 10:33
+
+
+<blockquote>死体残留 发表于 2021-5-28 10:04
+海牛和爱丽丝y有50w么，不云不说话哦</blockquote>
+去年今年不一样，今年星川能有这个资源就是因为她订阅高，这个在你虹就是硬指标，不然没道理不拉上爱丽丝的
+
+
+-----
+
+####  空集  
+##### 1271#       发表于 2021-5-28 10:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">  这没爱丽丝已经莫名到莫名的地步了，意思是大家谈到虹中国进出的时候都比较公认的一个爱丽丝，结果这一活动，哎 没有。不说别的，爱丽丝在国内活动这部分真的就在any color海外负责的人眼里啥也不是么。
+
+还有就是金憨憨和皇女元神光是转播在国内都收获了不少人气，这为啥不拉过来趁热打铁呢。
+
+
+-----
+
+####  hulaoda007  
+##### 1272#       发表于 2021-5-28 10:53
+
+
+  这类活动主播有权力申请来就来吗？想知道是hoshikawa自己主动想来还是被叫来的。
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">虽然星川不太可能自己来，不然早就多B限了。
+
+
+-----
+
+####  OldGlory  
+##### 1273#       发表于 2021-5-28 10:58
+
+
+把黑黑拆开没看懂
+
+
+-----
+
+####  dybang  
+##### 1274#       发表于 2021-5-28 11:12
+
+
+b有内鬼吧，之前在爱丽丝上犯了不少事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">估计这次就没请才找的星川，和叶搭一起方便一点
+
+
+-----
+
+####  FCCHua  
+##### 1275#       发表于 2021-5-28 11:15
+
+
+虹新歌和之前的两首风格完全不一样，走姐和小蜜蜂相性不错啊，期待其他语言的版本<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cqkxywj  
+##### 1276#       发表于 2021-5-28 12:13
+
+
+▼にじさんじ『PALETTE 003 - Virtual Strike』EP
+
+
+01.Virtual Strike
+
+02.Virtual Strike (Japanese Ver.) feat. 早瀬走
+
+03.Virtual Strike (Japanese Ver.) feat. メリッサ・キンレンカ
+
+04.Virtual Strike (English Ver.) feat. Finana Ryugu
+
+05.Virtual Strike (Indonesian Ver.) feat. ZEA Cornelia
+
+06.Virtual Strike (Korean Ver.) feat. Nun Bora 
+
+07.Virtual Strike (Chinese Ver.) feat. Shaun
+
+08.Virtual Strike (Instrumental)
+
+
+kr没歌势吗 找个电竞妹
+
+
+-----
+
+####  poipanchao  
+##### 1277#       发表于 2021-5-28 12:18
+
+
+kr唯一的歌势是五期新人
+剩下的老人里好像bora算是唱的比较好的了
+依稀记得有一个长头发的唱的还行？还是已经毕业了的那个？
+
+
+-----
+
+####  tankai  
+##### 1278#       发表于 2021-5-28 14:18
+
+
+爱丽丝肯给上位势端洗脚水吗?2434干员就得踏踏实实小事做起.<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tankai  
+##### 1279#       发表于 2021-5-28 14:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51397048&amp;ptid=1972669" target="_blank">free 发表于 2021-5-28 10:17</a>
+
+https://bml.bilibili.com/2021/m/index.html#/vr/guest</blockquote>
+海子姐衣服真好看.夜雾个人事业幸运值MAX了.
+
+
+-----
+
+####  free  
+##### 1280#       发表于 2021-5-28 14:52
+
+
+vtb薯片第三波
+[https://twitter.com/Boota_Fuuko/status/1398153200729944066](https://twitter.com/Boota_Fuuko/status/1398153200729944066)
+
+<strong>参加Vtuber一覧について(全22組、順不同)</strong>
+角巻わため　（ホロライブ）
+常闇トワ　（ホロライブ）
+夕刻ロベル（ホロスターズ）
+電脳少女シロ　（.LIVE）
+花京院ちえり　（.LIVE）
+ヤマトイオリ　（.LIVE）
+ミライアカリ　（バンダイナムコアーツ）
+犬山たまき　（のりプロ）
+緋笠トモシカ　（VOMS Project）
+天野ピカミィ　（VOMS Project）
+キミノミヤ　（XRエンターテインメント）
+バーチャルゴリラ　（VEEMusic）
+小森めと　（ブイアパ[774inc.]）
+不磨わっと　（ブイアパ[774inc.]）
+白宮みみ　（有閑喫茶あにまーれ[774inc.]）
+花鋏キョウ　（Re;AcT）
+獅子神レオナ　（Re;AcT）
+琴みゆり＆射貫まとい　（Re;AcT）
+懲役太郎
+ガッチマンV
+ケリン
+おめがシスターズ
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/145217dv1gqd19lpqz14q1.png" referrerpolicy="no-referrer">
+
+
+<strong>薯片.png</strong> (102.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 14:52 上传
+
+
+-----
+
+####  真飞鸟i  
+##### 1281#       发表于 2021-5-28 15:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">kerin咋还能混上位置。
+
+
+-----
+
+####  死体残留  
+##### 1282#       发表于 2021-5-28 15:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">果然你虹在日本也要到了 这不连一个都没上么
+
+
+-----
+
+####  hulaoda007  
+##### 1283#       发表于 2021-5-28 15:37
+
+
+  谁说的，我都看到azuma了。
+
+
+-----
+
+####  真飞鸟i  
+##### 1284#       发表于 2021-5-28 15:44
+
+
+虹已经看不上了，木口还得安插人，高下立判
+
+
+-----
+
+####  free  
+##### 1285#       发表于 2021-5-28 17:00
+
+
+大杏一期生live被独轮车车的真爽呢，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  心垂万刃  
+##### 1286#       发表于 2021-5-28 17:16
+
+
+别尬黑，虹现在瞄准BML这个“更大的舞台”<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 1287#       发表于 2021-5-28 17:28
+
+
+怎么还有狗罕见看yhm的，ybb<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+syl，鬼子怎么搞了个吃鸡大赛还这么多人，这么怀旧的吗
+
+
+-----
+
+####  IDIDIDID  
+##### 1288#       发表于 2021-5-28 17:31
+
+
+彩虹不就是订阅前四里兔头永远也不会来所以换了个19组海外进出第一的星川么。
+
+
+反正都要被啊骚打死的，谁来都一样辣。
+
+
+-----
+
+####  空集  
+##### 1289#       发表于 2021-5-28 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51401636&amp;ptid=1972669" target="_blank">free 发表于 2021-5-28 17:00</a>
+大杏一期生live被独轮车车的真爽呢，嘻嘻</blockquote>
+哪来的尼哥花了五块钱<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  FCCHua  
+##### 1290#       发表于 2021-5-28 17:46
+
+
+不破ddd 北京时间6月4号8点
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 1291#       发表于 2021-5-28 17:47
+
+
+SC能破社长纪录吗？
+
+
+-----
+
+####  free  
+##### 1292#       发表于 2021-5-28 17:50
+
+
+话说asoul真的很出圈吗，看了看粉丝数，最多的嘉然34万，其他都十多万，也没到很出圈吧。歌力舞力技术力啥的，比以前的歌姬强很多吗？大概也就是国V走这种3D唱跳路线的比较少看着稀奇吧。
+
+
+-----
+
+####  Suny08  
+##### 1293#       发表于 2021-5-28 18:00
+
+
+<blockquote>IDIDIDID 发表于 2021-5-28 17:47
+SC能破社长纪录吗？</blockquote>
+应该是可以，他现在应该是你虹最吸金的
+
+
+-----
+
+####  空集  
+##### 1294#       发表于 2021-5-28 18:01
+
+
+尼哥这个盗播能不能专业点啊。。。。。帧率和清晰度都不行，难的专门做了网站转播的人给我敬业点啊
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  OldGlory  
+##### 1295#       发表于 2021-5-28 18:03
+
+
+asoul不是强在技术或者歌舞，而是执行力上。
+
+
+-----
+
+####  小小雪空  
+##### 1296#       发表于 2021-5-28 18:03
+
+
+不出圈，单纯活粉多，活跃的人多了，看上去人多，其实就那样×
+
+
+-----
+
+####  poipanchao  
+##### 1297#       发表于 2021-5-28 18:04
+
+
+认真讨论的话，就是核心粉太多了，亚文化圈子各种地方都能看到，而且由于历史原因又特别乐于安利。
+
+如果对偶像历史有了解的话，我觉得有些类似AKB
+我记得AKB大红以后有论文研究，说是一般偶像粉丝的群体中（核心粉，游离粉，路人粉），游离粉占多数（类似肥肥对新垣结衣这样，喜欢，但是不狂热）
+但AKB的运营模式，导致其早期积累阶段积攒了极大量的核心粉，结果红了以后游离粉反而是小头，靠着核心粉的活力不断扩张，称霸一时
+
+当然以后随着成员的毕业也死的很快，因为核心粉也是最容易随成员一起离去的群体
+
+所以asoul未来确实可期，但是需要出圈
+
+
+-----
+
+####  SuntoryNomu  
+##### 1298#       发表于 2021-5-28 18:04
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/180412wljqylprvgjv585y.gif" referrerpolicy="no-referrer">
+
+
+<strong>-176cec493ce26a0b.gif</strong> (295.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 18:04 上传
+
+
+-----
+
+####  alcoholic1000  
+##### 1299#       发表于 2021-5-28 18:04
+
+
+<img src="https://img.saraba1st.com/forum/202105/28/180421hmh6p9w9hhz9plxl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>【#不破湊3D】夢は叶います【にじさんじ】.jpg</strong> (600.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-28 18:04 上传
+
+
+补个图
+
+
+-----
+
+####  IDIDIDID  
+##### 1300#       发表于 2021-5-28 18:07
+
+
+ 本帖最后由 IDIDIDID 于 2021-5-28 18:09 编辑 
+
+有钱花不完，3D迭代快，半年两单。
+
+人少，饼够分，目前大家庭粉丝按着毒唯打。
+
+播的少+有台本没那么快耗尽主播才艺。
+
+最重要还是距离感把握得好，就是杜华说的不会塌房。
+
+
+啊骚和原生V圈比完全就是专业娱乐公司在战略和后勤上把一堆草台给碾碎的。
+
+
+-----
+
+####  IDIDIDID  
+##### 1301#       发表于 2021-5-28 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51402286&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-5-28 18:00</a>
+
+应该是可以，他现在应该是你虹最吸金的</blockquote>
+社长1000W啊，如果不破能够不搞个大live也疯狂与超越的话那太恐怖了。
+
+
+      
