@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-24 10:51** 
+> ## **本文件最后更新于2021-05-28 07:54** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_YHhhO" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_FgT07" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9259,7 +9259,7 @@ Rigger HATE!</blockquote>
 
 
 bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_eI3IO" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_GOOfK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -12539,4 +12539,345 @@ Ina已经进入百万耐久的射程了，不过按照ina的风格，应该不�
 Kiara应该会开<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
 
 
-                      
+-----
+
+####  wiig  
+##### 813#       发表于 2021-5-24 22:23
+
+
+ 本帖最后由 wiig 于 2021-5-26 05:56 编辑 
+
+<img src="https://p.sda1.dev/2/6b3016805c58172d85f79872c08f294c/IMG_CMP_229430639.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 814#       发表于 2021-5-25 06:28
+
+
+ 本帖最后由 wiig 于 2021-5-25 08:12 编辑 
+
+<img src="https://p.sda1.dev/2/61546393bff584002af950be5cbd1116/20210525_062313.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 815#       发表于 2021-5-25 06:35
+
+
+<img src="https://p.sda1.dev/2/0e4e424dc3580fc6cda5cb3b5dd3899c/IMG_CMP_78765653.jpeg" referrerpolicy="no-referrer">
+inamesame collab inamesame collab 
+inamesame collab inamesame collab 
+inamesame collab inamesame collab 
+inamesa
+
+
+-----
+
+####  wiig  
+##### 816#       发表于 2021-5-25 21:13
+
+
+<img src="https://img.saraba1st.com/forum/202105/25/211353vj7ua2yugjz6d2g9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (435.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-25 21:13 上传
+
+
+-----
+
+####  wiig  
+##### 817#       发表于 2021-5-26 05:55
+
+
+<img src="https://p.sda1.dev/2/bb2bf185143bb48f4bf3b316750fc81a/IMG_CMP_237508019.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 818#       发表于 2021-5-26 06:05
+
+
+Calli: What is 2-3
+Gura: -1
+
+
+-----
+
+####  PureIllusion  
+##### 819#       发表于 2021-5-26 06:54
+
+
+[https://twitter.com/WchanWorks/status/1397320519318347778](https://twitter.com/WchanWorks/status/1397320519318347778)
+<img src="https://p.sda1.dev/2/6d97cdfd187300bb2e6b174d41502eb6/WchanWorks-1397320519318347778-20210526_063547-img1.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/vyragami/status/1397318495495352321](https://twitter.com/vyragami/status/1397318495495352321)
+<img src="https://p.sda1.dev/2/1b54c5c80005dfaef3108e88d6a2ee22/vyragami-1397318495495352321-20210526_062744-img1.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/c652597dc66cd2f022b9709a684fbd0c/vyragami-1397318495495352321-20210526_062744-img2.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/0c95d5f3ebcf74c7e75485f5402f9b4d/vyragami-1397318495495352321-20210526_062744-img3.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/bdbafd6291ed3c163cff55a9d0f12205/vyragami-1397318495495352321-20210526_062744-img4.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/RoamingTuna/status/1397315538544521216](https://twitter.com/RoamingTuna/status/1397315538544521216)
+<img src="https://p.sda1.dev/2/ef2a060ecb948b49a8c7b4c6517b37e8/RoamingTuna-1397315538544521216-20210526_061559-img1.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/f55554ccf33cbdddc165725a1d32dae8/RoamingTuna-1397315538544521216-20210526_061559-img2.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/56923a3abd6b3125902cdf161af96881/RoamingTuna-1397315538544521216-20210526_061559-img3.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/ee7f20f3958b021da71f39a2afc19339/RoamingTuna-1397315538544521216-20210526_061559-img4.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好快的笔|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 820#       发表于 2021-5-26 07:36
+
+
+calli leaves for 2 minutes
+<img src="https://p.sda1.dev/2/620ed7d2c31c07ff2e1f8d77d7fac0b1/IMG_CMP_12294817.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 821#       发表于 2021-5-26 07:53
+
+
+<img src="https://p.sda1.dev/2/d239307607077dcfa08983bc97eac4d1/20210526_073435.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 822#       发表于 2021-5-26 18:04
+
+
+<img src="https://p.sda1.dev/2/9ea7653edd7ad305b0b6e7ee387a8bb5/IMG_CMP_244536966.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 823#       发表于 2021-5-26 18:11
+
+
+<img src="https://p.sda1.dev/2/2c83ad86b00bb23b431f63b38ee7263e/IMG_CMP_80354469.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 824#       发表于 2021-5-26 21:24
+
+
+<img src="https://p.sda1.dev/2/7fcc99c07748d5e6c2365fcbbe92a921/IMG_CMP_252259757.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/c9ed5307f086bab73d680355fdb2c634/20210526_212001.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 825#       发表于 2021-5-26 21:29
+
+
+<img src="https://p.sda1.dev/2/e813b3a56fd3899a9da32e5677953fcb/IMG_CMP_38649260.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 826#       发表于 2021-5-26 21:33
+
+
+Calli: god damn!
+Watame: god damnってどういう意味？
+
+
+-----
+
+####  wiig  
+##### 827#       发表于 2021-5-27 06:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">休了
+<img src="https://p.sda1.dev/2/edcdba23cea5dd0a61d3c9beaee503e7/IMG_CMP_240044142.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/b6fb510dc250ca5ad34b54bc470fa94d/20210527_062542.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  影山银  
+##### 828#       发表于 2021-5-27 11:04
+
+
+最近看en、jp、id三组各种联动，这就是国际化吗？
+
+
+-----
+
+####  wiig  
+##### 829#       发表于 2021-5-27 12:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51386153&amp;ptid=1989758" target="_blank">影山银 发表于 2021-5-27 11:04</a>
+最近看en、jp、id三组各种联动，这就是国际化吗？</blockquote>
+还是看语言通不通<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 830#       发表于 2021-5-27 13:09
+
+
+<img src="https://p.sda1.dev/2/b5b67b01a6d319a7d146a0b95cf5fdb5/IMG_CMP_113581093.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 831#       发表于 2021-5-27 13:15
+
+
+<img src="https://p.sda1.dev/2/0607b9b7b6fd21417ee9e35bcd78e15b/IMG_CMP_247776846.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 832#       发表于 2021-5-27 13:16
+
+
+<img src="https://p.sda1.dev/2/f69e92493be4dc74f06be6aff62a51bc/IMG_CMP_153339095.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 833#       发表于 2021-5-27 14:48
+
+
+<img src="https://p.sda1.dev/2/abfecf9bf27c9b72d46f4fe11e8c447c/IMG_CMP_133226421.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 834#       发表于 2021-5-27 21:21
+
+
+#daily takamori<img src="https://p.sda1.dev/2/76e9e661cf659795aed7cd45bd196cad/20210527_212043.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 835#       发表于 2021-5-27 21:27
+
+
+ 本帖最后由 wiig 于 2021-5-27 22:31 编辑 
+
+<img src="https://p.sda1.dev/2/4846156052b815c50db8f1a5f94153e1/IMG_CMP_52951940.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/dee4ca39eaaeb90c248ee62f779cf174/20210527_212636.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/67180dfac529437ee0c829a4ed67a9f7/IMG_CMP_265574117.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  被子十三  
+##### 836#       发表于 2021-5-27 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51392973&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-27 21:21</a>
+#daily takamori</blockquote>
+感觉Calli不会发这种推（除非号被Kiara盗了）
+
+但是上面那条100%像是Kiara会发的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 837#       发表于 2021-5-27 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51393693&amp;ptid=1989758" target="_blank">被子十三 发表于 2021-5-27 22:22</a>
+感觉Calli不会发这种推（除非号被Kiara盗了）
+
+但是上面那条100%像是Kiara会发的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">节目效果
+
+
+-----
+
+####  smy20011  
+##### 838#         楼主| 发表于 2021-5-28 03:20
+
+
+火鸡转了个nsfw的cosplay艹
+
+
+-----
+
+####  smy20011  
+##### 839#         楼主| 发表于 2021-5-28 05:51
+
+
+Ina百万！！
+
+
+-----
+
+####  wiig  
+##### 840#       发表于 2021-5-28 06:27
+
+
+ 本帖最后由 wiig 于 2021-5-28 06:28 编辑 
+
+<img src="https://p.sda1.dev/2/c15a6d189ff453455eb90f4f288e94b8/20210528_062713.jpg" referrerpolicy="no-referrer">
+WAHnmillion！
+
+
+
+
+-----
+
+####  wiig  
+##### 841#       发表于 2021-5-28 07:47
+
+
+<img src="https://p.sda1.dev/2/d0f59abe0e6c3287c1866a043d338349/IMG_CMP_126759170.jpeg" referrerpolicy="no-referrer">
+
+
+                     
