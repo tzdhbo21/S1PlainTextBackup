@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-29 19:20** 
+> ## **本文件最后更新于2021-05-29 21:37** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_pZf4l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_Y2284" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_flWaQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_PWOO2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -18112,7 +18112,7 @@ zsyl 犬山30号的企划果然又是座谈会<img src="https://static.saraba1st
 ##### 1363#       发表于 2021-5-29 18:29
 
 
- 本帖最后由 alcoholic1000 于 2021-5-29 18:56 编辑 
+ 本帖最后由 alcoholic1000 于 2021-5-29 21:12 编辑 
 
 整理一下队伍成员
 
@@ -18175,6 +18175,10 @@ Mukai　@Mukai_fps【DTN】
 
 <strong>ラトナ・プティ</strong>
 
+常闇トワ【Vチューバー】
+
+白雪レイド【Vチューバー】
+
 <strong>葉山舞鈴</strong>
 
 <strong>不破湊</strong>
@@ -18196,6 +18200,10 @@ Mukai　@Mukai_fps【DTN】
 夜見れな
 
 <strong>Alelu　@apexalelu【DTN】</strong>
+
+椎名唯華
+
+三枝明那
 
 <strong>叶</strong>
 
@@ -18248,16 +18256,19 @@ Kamito　@kamito_otaku【実況・Vチューバー】
 ##### 1365#       发表于 2021-5-29 18:34
 
 
- 本帖最后由 alcoholic1000 于 2021-5-29 18:47 编辑 
+ 本帖最后由 alcoholic1000 于 2021-5-29 20:35 编辑 
 
 Bsyl，比赛权应该是从DTN那毛来的，作为交换DTN也塞了很多自己的プロ进来
 
 
 我只好奇KING去哪儿了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
-KMM和莉莉姆没归属但也没队长权，带不了KING；KING要参加只能从千寻、elu、虾勇、噗、叶山、alelu和叶中间选
+KMM和莉莉姆没归属但也没队长权，带不了KING；KING要参加只能从千寻、叶山、alelu和叶中间选
 
 有可能是alelu
+
+
+留给KING的位置不多了<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
 
 
 ﹍﹍﹍
@@ -18314,4 +18325,223 @@ king最近不是瓦罗兰天下第一吗
 b站昨天还在发动态养gachi吧
 
 
-    
+-----
+
+####  IDIDIDID  
+##### 1370#       发表于 2021-5-29 19:20
+
+
+希望明天已婚妇女海苔男少说两句<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 1371#       发表于 2021-5-29 19:23
+
+
+ 本帖最后由 pansherry 于 2021-5-29 19:40 编辑 
+
+<img src="https://tva2.sinaimg.cn/large/771ca9d1gy1gqzip5rd6sj20uu0hjwwy.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax2.sinaimg.cn/large/771ca9d1gy1gqzise7wchj20uz0hjdys.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax3.sinaimg.cn/large/771ca9d1gy1gqziu8de6qj20v10hke0t.jpg" referrerpolicy="no-referrer">
+<img src="https://tva4.sinaimg.cn/large/771ca9d1gy1gqzixsr80xj20uw0hdaxf.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax1.sinaimg.cn/large/771ca9d1gy1gqzj0nbw3bj20uy0hkaxm.jpg" referrerpolicy="no-referrer">
+<img src="https://tva3.sinaimg.cn/large/771ca9d1gy1gqzj5rkapyj20v30hjau1.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1gy1gqzj7ipnvfj20uv0h8tvp.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1372#       发表于 2021-5-29 19:24
+
+
+然后小蜜蜂要开嗓别挑在自己两个同事后面，免得被暴捶。
+
+
+-----
+
+####  s32244153  
+##### 1373#       发表于 2021-5-29 19:36
+
+
+ 本帖最后由 s32244153 于 2021-5-29 19:41 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51413342&amp;ptid=1972669" target="_blank">pansherry 发表于 2021-5-29 19:23</a></blockquote>
+这套的眼罩真的是画龙点睛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+右边的变化度其实是年龄值吧
+
+
+-----
+
+####  FCCHua  
+##### 1374#       发表于 2021-5-29 19:39
+
+
+耳毛这差分配件拉满<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 1375#       发表于 2021-5-29 19:43
+
+
+耳毛这短发确实可爱
+
+
+-----
+
+####  超能力者stven  
+##### 1376#       发表于 2021-5-29 20:19
+
+
+花谱live还是选择办线下？为什么紧急事态宣言之下有的能办有的延期…
+
+
+-----
+
+####  FCCHua  
+##### 1377#       发表于 2021-5-29 20:23
+
+
+小熊猫和towa一组<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 1378#       发表于 2021-5-29 20:25
+
+
+2434？！
+
+
+-----
+
+####  qq845629713  
+##### 1379#       发表于 2021-5-29 20:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 釜山还是有节目效果，这比赛我必须去看了，
+
+
+-----
+
+####  ヒトニナル  
+##### 1380#       发表于 2021-5-29 20:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">GYARI家的VOMS招人
+
+
+
+
+-----
+
+####  AKili  
+##### 1381#       发表于 2021-5-29 20:43
+
+
+怎么没人邀请马自立啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1382#       发表于 2021-5-29 20:53
+
+
+郡道长尾prize哥今晚初次打枪，感觉liver二人水平没有差很远，prize哥碾压这俩但也没有很强的样子，这队争倒数吧
+
+
+-----
+
+####  Suny08  
+##### 1383#       发表于 2021-5-29 21:06
+
+
+ 本帖最后由 Suny08 于 2021-5-29 21:08 编辑 
+
+にじさんじ26人/53人 
+
+
+勇気ちひろ 
+
+樋口楓　ボドカ　にゃんたこ 
+
+成瀬鳴　弦月藤士郎　おとぎ 
+
+える　TIE_RU 　空澄セナ渋谷ハジメ　渋谷ハル　瀬戸あさひ 
+
+瀬戸美夜子　白百合リリィ　れいあ 
+
+雪城眞尋　パカエル　するがmonkey 
+
+西園チグサ　Bora 奈羅花 
+
+エクス・アルビオ　コウイチTV　すでたき 
+
+グウェル・オス・ガール　歌衣メイカ　Mukai 
+
+ラトナ・プティ　白雪レイド　常闇トワ 
+
+葉山舞鈴 
+
+叶 
+
+森中花咲　胡桃のあ　トナカイト 
+
+長尾景　群道美鈴　TIE_PRIZE 
+
+星川サラ　Kamito まいたけ 
+
+不破湊 天月　まふまふ 
+
+イブラヒム　笹木咲　うるか 
+
+Ak1to　夜見れな　アルスアルマル 
+
+Alelu 
+
+连30个人都凑不到还好意思叫虹apex杯啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">请铁血虹人支持这次比赛唯一指定虹人队hero队，真正的主角就是你们了
+
+
+-----
+
+####  十四洲  
+##### 1384#       发表于 2021-5-29 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51414344&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-5-29 21:06</a>
+
+にじさんじ26人/53人 
+
+
+勇気ちひろ </blockquote>
+群道？
+
+
+-----
+
+####  alcoholic1000  
+##### 1385#       发表于 2021-5-29 21:22
+
+
+alelu带三枝和西西啊，给大家提供一个发散思路：
+
+在gamers女子会联动中，有一个话题是2434里想交往的异性
+
+西西选择的三枝，ssk选择的油男<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 
+イブラヒム
+笹木咲
+うるか　@ow_uruca【実況・Vチューバー】
+
+
+Alelu　@apexalelu【DTN】
+椎名唯華
+三枝明那
+
+
+   
