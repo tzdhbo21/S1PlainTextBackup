@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-28 21:32** 
+> ## **本文件最后更新于2021-05-29 19:20** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_L5hH7" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_HnJGJ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_pZf4l" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_Y2284" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -17788,4 +17788,530 @@ asoul不是强在技术或者歌舞，而是执行力上。
 最后的歌好听好听好听！演出也好，做得漂亮也不恐怖谷的脸对着“我”说话这种场景巨对我胃口，治愈…
 
 
-     
+-----
+
+####  IDIDIDID  
+##### 1345#       发表于 2021-5-28 21:46
+
+
+[https://www.youtube.com/watch?v=QCJMRfrtMno](https://www.youtube.com/watch?v=QCJMRfrtMno)
+
+
+-----
+
+####  OldGlory  
+##### 1346#       发表于 2021-5-29 01:55
+
+
+「Rain Drops Radio 『OBS』#1」の配信が決定しました！
+
+
+＜6/3(木)20:00＞配信スタート♪
+
+みなさまより募集したお便りから質問に答えたり、
+
+アコースティックライブ「開花宣言」セットリスト人気投票の結果を発表！
+
+番組後半には嬉しいお知らせも！
+
+
+▽待機場所はこちら
+[https://youtu.be/CavXbdmWdrM](https://youtu.be/CavXbdmWdrM)
+
+<img src="https://img.saraba1st.com/forum/202105/29/015511l1eqyb4ee1bqeddq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E2eL5lPVIAI3_Eu.jpg</strong> (163.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-29 01:55 上传
+
+
+-----
+
+####  free  
+##### 1347#       发表于 2021-5-29 11:45
+
+
+杏出了一批人的粘土，怎么还有这个烂货圆脸？这种圆脸现在还有人看吗？有人会买吗？真是垃圾中的垃圾，怎么还不毕业？真想快点去日本打断这个圆脸的四肢<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+[https://twitter.com/MXF_official/status/1398437432404623363](https://twitter.com/MXF_official/status/1398437432404623363)
+
+
+<img src="https://img.saraba1st.com/forum/202105/29/114539ov9hrxlfi9pi9mnm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>圆脸烂东西.jpg</strong> (117.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-29 11:45 上传
+
+
+-----
+
+####  我离合呢  
+##### 1348#       发表于 2021-5-29 13:26
+
+
+<img src="https://img.saraba1st.com/forum/202105/29/132519c2xrk96bc72f0xbe.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>9149A61C-D720-4BAC-86B7-9DCF585B1EFD.jpeg</strong> (322.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-5-29 13:25 上传
+
+
+还出了一堆pop up
+
+
+-----
+
+####  Yukine_Chris  
+##### 1349#       发表于 2021-5-29 16:03
+
+
+rurudo开了
+
+
+-----
+
+####  Suzutsuki  
+##### 1350#       发表于 2021-5-29 17:23
+
+
+ 本帖最后由 Suzutsuki 于 2021-5-29 17:25 编辑 
+
+你虹这个にじapex 我看不出来跟cr或者最协相比有啥优点 这队长的人选也迷得很 bora作为kr代表或者你虹apex的代表之一连个队长都不给 我是不是能说ichikara看不起分部的<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  noHentai  
+##### 1351#       发表于 2021-5-29 17:25
+
+
+gbr
+[https://twitter.com/fJI5oZFPYi3b4Xn](https://twitter.com/fJI5oZFPYi3b4Xn)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Ubibug| + 1|好评加鹅|
+| Ronu| + 1|好评加鹅|
+| Suny08| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  qq845629713  
+##### 1352#       发表于 2021-5-29 17:35
+
+
+<img src="https://img.saraba1st.com/forum/202105/29/173325j4bbpukoakor4cpo.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210529173313.png</strong> (105.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-29 17:33 上传
+
+
+[https://youtu.be/Taffpocs98w?t=521](https://youtu.be/Taffpocs98w?t=521)
+
+
+很有想法，roha飞出地球，也代表着彩虹KR并没有给这么一群孩子一个合适的舞台，
+
+
+-----
+
+####  poipanchao  
+##### 1353#       发表于 2021-5-29 17:39
+
+
+ 本帖最后由 poipanchao 于 2021-5-29 17:42 编辑 
+
+1.king也没给队长权限，怎么想的
+
+2.应该有分数限制，每个队都很鱼
+
+3.其实可以带带vr的
+
+4.gbr这号不光有星希成奏的fo，连亚咲花都fo了，估计没多久就会出来恰饭了
+
+
+-----
+
+####  十四洲  
+##### 1354#       发表于 2021-5-29 17:47
+
+
+也就bora一个分部的啊，和本社交流多有观众基础，而且是大腿，vr去了干嘛？狼宝又不会日语
+
+
+-----
+
+####  alcoholic1000  
+##### 1355#       发表于 2021-5-29 17:48
+
+
+就算从不看VR也想问为什么不带VR的程度
+
+Syl，gbr账号注册以后就没打算藏，对王侯来说也算是好事吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 1356#       发表于 2021-5-29 18:11
+
+
+带维阿玩，你上个狼宝带个岁子哥把本社人杀穿了岂不是很尴尬。
+
+
+-----
+
+####  Suny08  
+##### 1357#       发表于 2021-5-29 18:14
+
+
+<img src="https://img.saraba1st.com/forum/202105/29/181341kkbn2ubjjjtoeebs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CC95CB2B-5622-4E0E-8387-81AE0EDCFD35.jpeg</strong> (68.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-29 18:13 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/29/181347av7hi0ybuznbiz3i.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>B1D9A469-C2DD-4A7D-BF2C-0E48A229B8C8.jpeg</strong> (59.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-29 18:13 上传
+
+
+就这个感想
+
+
+-----
+
+####  qq845629713  
+##### 1358#       发表于 2021-5-29 18:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> @ow_uruca
+
+
+@saku_sasaki
+
+
+@honmono_ibrahim
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">
+
+にゃら 
+
+@Naraka_2434
+
+
+ボラ 
+
+@BoraNun2434
+
+ 加皆守女士
+
+
+这每个队都是奔着冠军去的阿，KING去哪队还没说吧
+
+
+-----
+
+####  FCCHua  
+##### 1359#       发表于 2021-5-29 18:18
+
+
+ 本帖最后由 FCCHua 于 2021-5-29 18:25 编辑 
+
+队友里又不是没猎杀的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 小偶像好自由，vlog爱了
+zsyl 犬山30号的企划果然又是座谈会<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx318  
+##### 1360#       发表于 2021-5-29 18:18
+
+
+主舞台能20万么<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1361#       发表于 2021-5-29 18:20
+
+
+郡道也被长尾景邀去打枪了，同队还有一位TIE_PRiZE，两帅哥当队友，感觉会被狂热女粉杀死的样子诶！
+
+
+-----
+
+####  SuntoryNomu  
+##### 1362#       发表于 2021-5-29 18:23
+
+
+ 本帖最后由 SuntoryNomu 于 2021-5-29 18:31 编辑 
+
+日V这块儿当了几个月的自闭黑听人，才发现hololive都已经金盾批发了。
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+昨晚钢琴回复归倒还算挺好的一件事。
+
+
+省，
+
+套娃个新皮还是挺可爱的。
+
+<img src="https://img.saraba1st.com/forum/202105/29/182746tv6akv1prbv2qffq.png" referrerpolicy="no-referrer">
+
+
+<strong>210529182631.png</strong> (69.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-29 18:27 上传
+
+
+-----
+
+####  alcoholic1000  
+##### 1363#       发表于 2021-5-29 18:29
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-29 18:56 编辑 
+
+整理一下队伍成员
+
+<strong>勇気ちひろ</strong>
+
+<strong>樋口楓</strong>
+
+ボドカ　@VodkaChaso 【ゲーム実況】
+
+にゃんたこ　@NyantakoGG 【ユーチューバー】
+
+<strong>成瀬鳴</strong>
+
+弦月藤士郎
+
+おとぎ　@tweet_otogi 【コーチ・解説・実況】
+
+<strong>える</strong>
+
+TIE_Ru　@Poulmt【実況】
+
+空澄セナちゃん　@sena_asumi【Vチューバー】
+
+<strong>渋谷ハジメ</strong>
+
+渋谷ハル  @ShibuyaHAL【Vチューバー】
+
+瀬戸あさひ　@asahi_ych【実況】
+
+<strong>瀬戸美夜子</strong>
+
+白百合リリィ　@ SRYR_0【Vチューバー】
+
+LEIA　@Leia_yAy【DTN】
+<strong>コーチ</strong>はつばき　@ sa_mame13
+
+<strong>雪城眞尋</strong>
+
+パカエル　@paka_el【Vチューバー】
+
+するがmonkey　@s_monkey0113【DTN】
+
+<strong>西園チグサ</strong>
+
+奈羅花
+
+눈보라ヌンボラ
+
+<strong>エクス・アルビオ</strong> 
+
+コウイチTV　@ko1529【ユーチューバー】
+
+すでたき　@sudetaki【実況・プロ】
+
+<strong>グウェル・オス・ガール</strong>
+
+歌衣メイカ　@meikahaotoko【Vチューバー】
+
+Mukai　@Mukai_fps【DTN】
+
+<strong>ラトナ・プティ</strong>
+
+<strong>葉山舞鈴</strong>
+
+<strong>不破湊</strong>
+
+まふまふ　@uni_mafumafu【歌い手】
+
+天月　@_amatsuki_【歌い手】
+
+<strong>イブラヒム</strong>
+
+笹木咲
+
+うるか　@ow_uruca【実況・Vチューバー】
+
+<strong>Ak1to　@Ak1to_JP【DTN】</strong>
+
+アルス・アルマル
+
+夜見れな
+
+<strong>Alelu　@apexalelu【DTN】</strong>
+
+<strong>叶</strong>
+
+<strong>森中花咲</strong>
+
+胡桃のあ　@n0ah_kurumi【Vチューバー】
+
+トナカイト(ヘンディー)　@k_najimi【実況】
+
+<strong>長尾景</strong>
+
+TIE_PRIZE @prizemt【実況・解説】
+
+郡道美玲 
+
+<strong> 星川サラ</strong>
+
+Kamito　@kamito_otaku【実況・Vチューバー】
+
+まいたけ　@_kinotake_【Vチューバー】
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 2|A老姐借用一下，谢谢|
+
+
+查看全部评分
+
+
+-----
+
+####  qq845629713  
+##### 1364#       发表于 2021-5-29 18:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这些人，选人真的，真的没想过给别人任何机会
+
+
+-----
+
+####  alcoholic1000  
+##### 1365#       发表于 2021-5-29 18:34
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-29 18:47 编辑 
+
+Bsyl，比赛权应该是从DTN那毛来的，作为交换DTN也塞了很多自己的プロ进来
+
+
+我只好奇KING去哪儿了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+KMM和莉莉姆没归属但也没队长权，带不了KING；KING要参加只能从千寻、elu、虾勇、噗、叶山、alelu和叶中间选
+
+有可能是alelu
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 2|KMM和莉莉姆没归属|
+
+
+查看全部评分
+
+
+-----
+
+####  IDIDIDID  
+##### 1366#       发表于 2021-5-29 18:40
+
+
+king最近不是瓦罗兰天下第一吗
+
+
+-----
+
+####  winda  
+##### 1367#       发表于 2021-5-29 18:53
+
+
+预定参加cr valo的也不止king一个<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">，虹apex的队长权发的人选也太神秘了
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 1368#       发表于 2021-5-29 18:55
+
+
+免费呢 那个巨无比专业的什么月灵是不是投了几首就没下文了
+
+
+干嘛去了 
+
+
+-----
+
+####  asdhai  
+##### 1369#       发表于 2021-5-29 19:11
+
+
+b站昨天还在发动态养gachi吧
+
+
+    
