@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-30 11:28** 
+> ## **本文件最后更新于2021-05-30 14:18** 
 
 
 
@@ -18841,4 +18841,223 @@ cast表里有垣谷存在……但是这集里面垣谷没有出现吧？还是�
 一般12集算是季番收尾吧，稍微多一集两集后日谈，这应该不会是半年番吧
 
 
- 
+-----
+
+####  flypig_zhy  
+##### 1454#       发表于 2021-5-30 11:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51418654&amp;ptid=1982987" target="_blank">JustW 发表于 2021-5-30 10:26</a>
+
+还好吧，我看你楼有一半包括我都关注的是低胸</blockquote>
+VIVY的胸还好吧，也不是很大
+
+
+-----
+
+####  亚瑟邓特  
+##### 1455#       发表于 2021-5-30 11:37
+
+
+有无同人图<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 1456#       发表于 2021-5-30 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51416676&amp;ptid=1982987" target="_blank">lmclmc2 发表于 2021-5-30 01:02</a>
+
+不过这片看到现在，总感觉就是一个游乐园搞定能搞定的布景里玩。
+
+在时间上明明是横跨百年的长，空间上却真 ...</blockquote>
+因为要想表现出时间变化的话，就得对社会背景变化有一个比较详细的叙事，然后考虑到这些年番剧对严肃社会命题的表现<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，我觉得编剧直接忽略倒也算有自知之明，明确这片就是搞个AI歌姬爆米花的娱乐片挺好的。缺点就是100年的设定成了个摆设。
+
+
+-----
+
+####  fkinway  
+##### 1457#       发表于 2021-5-30 11:42
+
+
+还有几集来圆<img src="https://static.saraba1st.com/image/smiley/face2017/064.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mhfdt  
+##### 1458#       发表于 2021-5-30 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51417088&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-5-30 02:25</a>
+
+【1】这一话当成单元剧看的话虽然俗套但我还是比较喜欢的。
+
+
+【2】松本智商怎么又降低了，一开始是算无遗策 ...</blockquote>
+和思考速度无关，中间几个镜头很明显说明了中间二十年根本没有进展，直到抱到婴儿
+
+没有契机就是在虚拟空间里过个几亿年也是一个结果
+
+这就是所谓的“灵感”，通常来说我们也不认为AI会有的东西
+
+你看那个一个个思考结点变红的短镜头，明显就是仿神经元刺激
+
+
+-----
+
+####  JustW  
+##### 1459#       发表于 2021-5-30 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51419249&amp;ptid=1982987" target="_blank">flypig_zhy 发表于 2021-5-30 11:30</a>
+
+VIVY的胸还好吧，也不是很大</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">但是她和小孩说话的内容我一句也没听进去，脑子里都是“对未成年人的坏影响不可估量”
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1460#       发表于 2021-5-30 12:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">什么感情理性莫名其妙的，这世界都100年了人类除了衣服变得跟哆啦A梦里一样别的有任何变化?要科技没科技要沧桑没沧桑，
+
+你场馆好歹装修下吧这尼玛几十年过去了呢。时间感要靠背景烘托的，不是跟这片一样一个机器人随口过来说过了几年就是过了几年的，最次做成十三机兵这样可好？
+
+上一个这样天天人性其他一塌糊涂的叫啥记得不？修吗鸡鸭好伐。
+
+
+-----
+
+####  最强惠酱  
+##### 1461#       发表于 2021-5-30 12:07
+
+
+总觉得会出现结局超频唱歌最后用自己死亡换取胜利的极乐空间展开<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  烤鱼饼  
+##### 1462#       发表于 2021-5-30 12:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51417952&amp;ptid=1982987" target="_blank">rynchee 发表于 2021-5-30 08:48</a>
+
+如果垣谷叫出vivy这个名字不是bug的话，考虑到知道vivy这个名字的只有四个人：飞机失事得小女孩，小女孩妹 ...</blockquote>
+小女孩妹妹没说去世了吧
+
+
+-----
+
+####  LeonsCat  
+##### 1463#       发表于 2021-5-30 12:23
+
+
+我越发觉得松本其实是打着搞奇点计划的幌子，来培养vivy爱人也爱AI的人格了。原版历史里怕是diva/vivy机械执行唱歌让人幸福，结果搞成了智械危机。
+
+
+-----
+
+####  a12885084  
+##### 1464#       发表于 2021-5-30 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51419448&amp;ptid=1982987" target="_blank">mhfdt 发表于 2021-5-30 11:49</a>
+ 和思考速度无关，中间几个镜头很明显说明了中间二十年根本没有进展，直到抱到婴儿 没有契机就是在虚拟空 ...</blockquote>
+这个偏是我个人观感的部分
+我认为如果虚拟空间里过了几千年几亿年的【沧海桑田】感和过了二十几年普通人类半生的【时光流转】是两种差别蛮大的抒情，这话的情感表达要匹配第二种抒情才行
+
+
+-----
+
+####  枪聆弹语  
+##### 1465#       发表于 2021-5-30 12:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这片谁知道下集又给你空降个什么苦B角色，说是KEY牌，假药都没法做
+
+
+-----
+
+####  酥蕤  
+##### 1466#       发表于 2021-5-30 12:43
+
+
+笑喷了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jbjack1215  
+##### 1467#       发表于 2021-5-30 12:47
+
+
+B占第六话也上了
+
+但看起来有点怪，有几处很明显是放大画面，颜色变化和画面衔接好像都有经过修改
+
+
+-----
+
+####  绞刑架  
+##### 1468#       发表于 2021-5-30 12:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51419794&amp;ptid=1982987" target="_blank">LeonsCat 发表于 2021-5-30 12:23</a>
+
+我越发觉得松本其实是打着搞奇点计划的幌子，来培养vivy爱人也爱AI的人格了。原版历史里怕是diva/vivy机械 ...</blockquote>
+我也觉得松本选那么多AI情感问题来执行奇点不是为了改变100年后的未来，而是为了培养一个可以在100年危机到来后，能以博爱精神接管所有AI意识促成平等世界的AI女神（主脑），VIVY最后的做用或许类似浮岛篇的格蕾丝，自己的意识化作歌声，成为AI这个新物种的基本法则
+
+
+-----
+
+####  darkddragon  
+##### 1469#       发表于 2021-5-30 13:10
+
+
+最后别搞什么末世复出演唱会首发新曲拯救世界，千万别
+百年的跨度这样子走完，缺少了很多长时间跨度故事应有的庞大背景和脉络，感觉staff也没太细想吧，目前的故事本质还是单元剧了
+
+
+-----
+
+####  acejoe  
+##### 1470#       发表于 2021-5-30 13:22
+
+
+等等！天启呢？？？？这话意思是就做了个曲，出来个博士就完了？？？？？？
+
+
+
+
+-----
+
+####  丹德里恩  
+##### 1471#       发表于 2021-5-30 13:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">全部木大，笑死我了
+
+个人感觉是松本博士把新歌散播出去导致了AI们自我意识过度觉醒，上个轮回的起因应该也差不多？
+
+
+-----
+
+####  mhfdt  
+##### 1472#       发表于 2021-5-30 13:47
+
+
+艹，我突然想起来一个展开，这个展开应该挺有名气，所以三个字母（数字）应该就能概括了：
+
+F F 8
+
+
