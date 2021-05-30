@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-29 21:37** 
+> ## **本文件最后更新于2021-05-30 11:31** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_flWaQ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_PWOO2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_fxOv1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_LatPY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -17906,10 +17906,11 @@ gbr
 评分
 
 
- 参与人数 3战斗力 +3
+ 参与人数 4战斗力 +4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| DT.official| + 1|好评加鹅|
 | Ubibug| + 1|好评加鹅|
 | Ronu| + 1|好评加鹅|
 | Suny08| + 1|好评加鹅|
@@ -18544,4 +18545,374 @@ Alelu　@apexalelu【DTN】
 三枝明那
 
 
-   
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  qq845629713  
+##### 1386#       发表于 2021-5-29 21:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 这大会真的会很有趣么，我保持悲观态度，
+
+
+kmm和pst再怎么样也不会吃窝边草吧，
+
+
+-----
+
+####  poipanchao  
+##### 1387#       发表于 2021-5-29 21:46
+
+
+如果能多一点串门嘲讽环节，应该有点意思
+
+
+-----
+
+####  rzrbtk  
+##### 1388#       发表于 2021-5-29 21:49
+
+
+这组真的没想认真打枪诶！长尾去上厕所就剩下郡道和prize哥（21），郡道为了活跃气氛就开始和prize哥（21）撩骚，让他说50个喜欢郡道的地方，prize哥（21)啥都说不出来惨叫着闭麦了，郡道：“prize怎么消失了（慌）！”然后开始敲木鱼<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  FCCHua  
+##### 1389#       发表于 2021-5-29 21:51
+
+
+经典敲木鱼
+
+
+-----
+
+####  lhawp  
+##### 1390#       发表于 2021-5-29 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哥这组也太草了吧，名字撞车+眼镜属性撞车
+
+
+-----
+
+####  qq845629713  
+##### 1391#       发表于 2021-5-29 22:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 希望每个虹女liver都能找个又帅又年轻的电竞男友，
+
+
+-----
+
+####  空集  
+##### 1392#       发表于 2021-5-29 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51414750&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-5-29 21:49</a>
+这组真的没想认真打枪诶！长尾去上厕所就剩下郡道和prize哥（21），郡道为了活跃气氛就开始和prize哥（21） ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 草 只是想象就感觉太爆笑了 待会得去录播找下这段
+顺便敲木鱼指啥
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Suzutsuki  
+##### 1393#       发表于 2021-5-29 22:23
+
+
+请支持唯一正统主角虹人队——bora队<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 1394#       发表于 2021-5-29 22:29
+
+
+【 Valorant 】けえる【 ランク  瓦罗兰太好玩了，
+
+
+-----
+
+####  FCCHua  
+##### 1395#       发表于 2021-5-29 22:35
+
+
+那肯定首先奶一口狱卒队<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 1396#       发表于 2021-5-29 22:42
+
+
+唯一指定虹人队，正统主角，赢定了
+
+
+-----
+
+####  alcoholic1000  
+##### 1397#       发表于 2021-5-29 22:52
+
+
+怎么就指定唯一虹人队了，小千叶山和叶的队伍都还没出<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+Syl，KING怎么开始valo了，难道真的没他？
+
+...にじPEX大赛的最终奖品是他？
+
+
+-----
+
+####  花二货  
+##### 1398#       发表于 2021-5-29 22:53
+
+
+King已经说了有队了，是被叫去的，哪队没说
+
+
+-----
+
+####  winda  
+##### 1399#       发表于 2021-5-29 22:53
+
+
+ 本帖最后由 winda 于 2021-5-29 22:57 编辑 
+
+kmm那就是想玩三枝<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+pst后面杂谈还打补丁爱观众呢
+https://youtu.be/BR_O39DXSdc
+
+
+-----
+
+####  rzrbtk  
+##### 1400#       发表于 2021-5-29 22:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51415042&amp;ptid=1972669" target="_blank">空集 发表于 2021-5-29 22:14</a>
+草 只是想象就感觉太爆笑了 待会得去录播找下这段
+顺便敲木鱼指啥</blockquote>
+我也不记得在哪了，感觉明天会有剪辑诶。
+木鱼就是郡道观众给她送的真的木鱼礼物，没事就敲来玩玩，比较值得一说的就是ib粉丝看联动时郡道有木鱼就也送了一个给ib，然后纪念凸待的时候这两人互相对敲木鱼，效果很迷…
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  烯丝短尾猫  
+##### 1401#       发表于 2021-5-29 22:59
+
+
+ 本帖最后由 烯丝短尾猫 于 2021-5-29 23:00 编辑 
+
+美夜子果不其然和tsubaki一组，还以为能和老队友公主会和，结果拉了白百合
+
+
+-----
+
+####  free  
+##### 1402#       发表于 2021-5-29 23:04
+
+
+[https://www.youtube.com/watch?v=FRO14kCOy6o](https://www.youtube.com/watch?v=FRO14kCOy6o)
+
+【AmongUs】#親族宇宙人狼【エルセ視点】
+
+・会議中、自分が割り当てられたキャラ設定で話さなければならない
+
+＊キャラ設定は、あみだくじで決めさせていただきました！
+
+・毎回、各キャラ設定に細かな縛りがつけられています。
+
+(例)ツンデレな姉 反抗期の姉　など
+
+・各試合が終わるごとにネタバレをしていきたいと思います！
+
+
+【キャラ設定】
+
+「お母さん」ときのそらちゃん
+
+「お父さん」銀河アリスちゃん
+
+「姉」エルセ
+
+「妹」富士葵ちゃん
+
+「兄」夜空メルちゃん
+
+「弟」朝ノ瑠璃ちゃん
+
+「おばあちゃん」響木アオちゃん
+
+「おじいちゃん」AZKiちゃん
+
+「イヌ」奏みみちゃん
+
+「ネコ」奏天まひろちゃん
+
+
+喷了，这是什么玩法？为什么要让我们家奏mimi扮狗？猫扮狗应该怎么说话？<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1403#       发表于 2021-5-29 23:06
+
+
+笑死了，夜见刚刚才fo了akito，真不熟，突出一个不好意思拒绝
+
+
+-----
+
+####  真飞鸟i  
+##### 1404#       发表于 2021-5-29 23:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">圆脸不人气直接给大葵当妈了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  hulaoda007  
+##### 1405#       发表于 2021-5-29 23:32
+
+
+  别说...欢喜冤家CP还蛮甜的。  [AnimusAnimaAnime的个人空间 - 哔哩哔哩 ( ゜- ゜)つロ 乾杯~ Bilibili](https://space.bilibili.com/481194153/dynamic)
+
+  这个搞了很多社咲糖的，意外的不错。
+
+
+-----
+
+####  asdhai  
+##### 1406#       发表于 2021-5-29 23:33
+
+
+voms有想做大的想法了吗
+
+
+-----
+
+####  poipanchao  
+##### 1407#       发表于 2021-5-29 23:35
+
+
+[https://www.youtube.com/watch?v=obLwp6C0zuc](https://www.youtube.com/watch?v=obLwp6C0zuc)
+
+
+mao的这首吸血鬼相当不错，好意外
+
+第一次出solo，好像连歌回都没开过
+
+
+-----
+
+####  超能力者stven  
+##### 1408#       发表于 2021-5-29 23:39
+
+
+问题是这不就是你家奏mimi主催的吗
+
+
+-----
+
+####  Suny08  
+##### 1409#       发表于 2021-5-30 01:56
+
+
+<blockquote>poipanchao 发表于 2021-5-29 23:35
+https://www.youtube.com/watch?v=obLwp6C0zuc
+
+
+mao的这首吸血鬼相当不错，好意外
+</blockquote>
+今天一开嗓确实把串民都惊到了，基本全员好评，今天的质就是这个了
+
+
+-----
+
+####  poipanchao  
+##### 1410#       发表于 2021-5-30 03:37
+
+
+但就这首吸血鬼，我宣布meari被秒了
+
+新的歌姬来了
+
+
+
+
+-----
+
+####  winda  
+##### 1411#       发表于 2021-5-30 09:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51414206&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-5-29 20:53</a>
+郡道长尾prize哥今晚初次打枪，感觉liver二人水平没有差很远，prize哥碾压这俩但也没有很强的样子，这队争 ...</blockquote>
+https://youtu.be/5nbHqG95zjk
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">看完再评估下prize实力吧
+
+
+-----
+
+####  winda  
+##### 1412#       发表于 2021-5-30 09:41
+
+
+风怒
+
+
+  
