@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-30 15:42** 
+> ## **本文件最后更新于2021-05-31 00:02** 
 
 
 
@@ -11708,4 +11708,328 @@ sj看到圆脸烂牙破防了，全中
 看着这个封面，我已经开始想咩啊老师会怎么把我榨干了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
 
 
-               
+-----
+
+####  十九号大侠  
+##### 16029#       发表于 2021-5-30 16:00
+
+
+最近天天躺着，也不是办法
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Dualist彩  
+##### 16030#       发表于 2021-5-30 17:33
+
+
+7酱铁裤裆，我不允许你们这样说他<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 16031#       发表于 2021-5-30 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51420276&amp;ptid=1973472" target="_blank">hulaoda007 发表于 2021-5-30 13:07</a>
+您好，借贵宝地一问。
+  mea当初那个同居男友在那次直播以后就很少看到，甚至是销声匿迹了。
+  是去哪儿 ...</blockquote>
+推特炸号直接给他号炸没了，然后就没了
+
+
+-----
+
+####  sw11133  
+##### 16032#       发表于 2021-5-30 17:39
+
+
+都2021年了怎么还有人问野男人
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">这不到处都是吗
+
+
+-----
+
+####  hulaoda007  
+##### 16033#       发表于 2021-5-30 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51422727&amp;ptid=1973472" target="_blank">weiweiEX 发表于 2021-5-30 17:36</a>
+
+推特炸号直接给他号炸没了，然后就没了</blockquote>
+  好的，谢谢，原来还有这件事。
+
+
+-----
+
+####  hulaoda007  
+##### 16034#       发表于 2021-5-30 18:19
+
+
+    <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那...谢谢各位...
+
+  我顺便去回顾一下两年前那场直播好了。
+
+
+-----
+
+####  Cla0221  
+##### 16035#       发表于 2021-5-30 18:38
+
+
+野男人都赶紧去48，我除外😋
+
+
+-----
+
+####  D麦林  
+##### 16036#       发表于 2021-5-30 18:47
+
+
+说自己是野男人之前能不能先回顾一下麻麻对野男人的要求看看自己pay不pay<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 16037#       发表于 2021-5-30 19:17
+
+
+我器大活好 小麻让我上一次就离不开我了
+
+
+-----
+
+####  Klience  
+##### 16038#       发表于 2021-5-30 19:21
+
+
+你是拿502胶水粘在一起了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 16039#       发表于 2021-5-30 19:27
+
+
+建议焊接
+
+
+-----
+
+####  黒長直姫  
+##### 16040#       发表于 2021-5-30 19:37
+
+
+[かわはぎ亭] 合体！抜けない！？～交尾したまま日常性活～
+
+
+了解一下
+
+
+-----
+
+####  TomDu  
+##### 16041#       发表于 2021-5-30 19:40
+
+
+把你们都鲨了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16042#       发表于 2021-5-30 19:42
+
+
+ 本帖最后由 T_Hb 于 2021-5-30 20:15 编辑 
+
+你麻在不播 楼都要炸了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+8点多了啥也不发 又摸了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16043#       发表于 2021-5-30 20:36
+
+
+打游戏 播个屁<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16044#       发表于 2021-5-30 21:46
+
+
+<img src="https://img.saraba1st.com/forum/202105/30/214703jicslihp1hc62er1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (8.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 21:47 上传
+
+
+不播还好意思说批话<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 16045#       发表于 2021-5-30 21:58
+
+
+难受，anti了，不播就不要说话，总之很难受<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16046#       发表于 2021-5-30 22:03
+
+
+看来今天的盒限不播了
+
+
+-----
+
+####  Ky·Kiske  
+##### 16047#       发表于 2021-5-30 22:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">自从IG没落了就没怎么看LOL了
+
+这游戏真能几年不腻的吗
+
+
+-----
+
+####  Klience  
+##### 16048#       发表于 2021-5-30 22:25
+
+
+你指的是这人玩lol几年不腻吗
+
+
+-----
+
+####  A2014720  
+##### 16049#       发表于 2021-5-30 22:43
+
+
+这b最近又搞啥
+
+
+-----
+
+####  Klience  
+##### 16050#       发表于 2021-5-30 23:00
+
+
+沉迷和野男人打游戏呗<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 16051#       发表于 2021-5-30 23:05
+
+
+ 本帖最后由 hulaoda007 于 2021-5-30 23:06 编辑 
+
+  算了
+
+
+-----
+
+####  Dualist彩  
+##### 16052#       发表于 2021-5-30 23:11
+
+
+等一个推特挂游戏记录截图当面质问
+
+      
+
+反转了，我就喜欢看着咩宝和野男人玩的时候还不忘给我发消息假装媚宅的样子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16053#       发表于 2021-5-30 23:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51426058&amp;ptid=1973472" target="_blank">hulaoda007 发表于 2021-5-30 23:05</a>
+算了</blockquote>
+野男人就是出气筒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16054#       发表于 2021-5-30 23:15
+
+
+ 本帖最后由 T_Hb 于 2021-5-30 23:18 编辑 
+
+你们又吓人了吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+太坏了吧，还想同化别人
+
+
+-----
+
+####  专业划水人员  
+##### 16055#       发表于 2021-5-30 23:17
+
+
+应该是尝试同化失败？！
+
+
+-----
+
+####  雪风utopia  
+##### 16056#       发表于 2021-5-30 23:18
+
+
+楼友们表面上看上去像冒菜民，但我相信，大家一定都是独角兽吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16057#       发表于 2021-5-30 23:24
+
+
+野男人  方便代入的替身罢了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我想做mkm的舔狗  
+##### 16058#       发表于 2021-5-30 23:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16059#       发表于 2021-5-30 23:25
+
+
+估计早上录节目 晚上打游戏吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+              

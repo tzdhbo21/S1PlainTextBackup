@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-30 11:31** 
+> ## **本文件最后更新于2021-05-31 00:13** 
 
 
 
@@ -11903,8 +11903,8 @@ Art tags  #PomuPaint ( #pomuhub for r18 - changed it for reasons!!! )
 
   SYL花咲好起来了，看了一下，4400日元，Animate限定版5500日元。7月10日好像有网络上的一对一交流会？
 
-  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_fxOv1" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_LatPY" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+  <img src="https://pbs.twimg.com/media/E1aD2yCVkAQ0X3t?format=jpg&amp;name=large" id="aimg_QAkqu" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E1aD3doVUAAn8_G?format=jpg&amp;name=4096x4096" id="aimg_pWtds" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -17906,10 +17906,11 @@ gbr
 评分
 
 
- 参与人数 4战斗力 +4
+ 参与人数 5战斗力 +5
 
 |昵称|战斗力|理由|
 |----|---|---|
+| 划水的B612| + 1||
 | DT.official| + 1|好评加鹅|
 | Ubibug| + 1|好评加鹅|
 | Ronu| + 1|好评加鹅|
@@ -18113,7 +18114,7 @@ zsyl 犬山30号的企划果然又是座谈会<img src="https://static.saraba1st
 ##### 1363#       发表于 2021-5-29 18:29
 
 
- 本帖最后由 alcoholic1000 于 2021-5-29 21:12 编辑 
+ 本帖最后由 alcoholic1000 于 2021-5-30 19:20 编辑 
 
 整理一下队伍成员
 
@@ -18181,6 +18182,10 @@ Mukai　@Mukai_fps【DTN】
 白雪レイド【Vチューバー】
 
 <strong>葉山舞鈴</strong>
+
+舞元啓介 
+
+社築
 
 <strong>不破湊</strong>
 
@@ -18915,4 +18920,970 @@ https://youtu.be/5nbHqG95zjk
 风怒
 
 
-  
+-----
+
+####  rzrbtk  
+##### 1413#       发表于 2021-5-30 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51418272&amp;ptid=1972669" target="_blank">winda 发表于 2021-5-30 09:41</a>
+
+https://youtu.be/5nbHqG95zjk
+
+看完再评估下prize实力吧</blockquote>
+实际打枪和训练场不一样！昨天真的没carry起来啊，可能是在喜欢的人（长尾景）面前紧张吧...
+
+
+-----
+
+####  hulaoda007  
+##### 1414#       发表于 2021-5-30 12:06
+
+
+  不敢去mea楼问，我老山中老人了，脑瓜长草那种，情弱又云又怂，滞后两年想来问一下。
+  小麻那个同居男友现在咋样了？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 0
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider|-1|平衡|
+| A2014720| + 1|还在给她做糊的一比的mix|
+
+
+查看全部评分
+
+
+-----
+
+####  ylssb10438  
+##### 1415#       发表于 2021-5-30 12:56
+
+
+为啥不敢问，看一哈天狗楼，不知道的会以为是什么烧牌天天开yin趴<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 1416#       发表于 2021-5-30 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51419616&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-5-30 12:06</a>
+
+不敢去mea楼问，我老山中老人了，脑瓜长草那种，情弱又云又怂，滞后两年想来问一下。
+
+  小麻那个同居男友 ...</blockquote>
+不清楚 基本销声匿迹了 后来mix基本上都由混ぜ郎来做 不像是出自同一个人之手
+
+
+-----
+
+####  hulaoda007  
+##### 1417#       发表于 2021-5-30 13:06
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">谢谢，那我还是去mea楼问一下好了再来。
+
+
+-----
+
+####  空集  
+##### 1418#       发表于 2021-5-30 13:31
+
+
+ 本帖最后由 空集 于 2021-5-30 13:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51415455&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-5-29 22:55</a>
+我也不记得在哪了，感觉明天会有剪辑诶。
+木鱼就是郡道观众给她送的真的木鱼礼物，没事就敲来玩玩，比较 ...</blockquote>
+评论区有贴心时间轴哥 找到了
+是 1:44:15  开始
+感想 职业哥声音太小鲜肉了 完全是姨调戏小鲜肉感w
+https://youtu.be/J6USQqIP8YI  还看到了昨天的切片 定位感觉主要是郡道怪笑
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|感谢！|
+
+
+查看全部评分
+
+
+-----
+
+####  hulaoda007  
+##### 1419#       发表于 2021-5-30 13:46
+
+
+ 本帖最后由 hulaoda007 于 2021-5-30 15:35 编辑 
+
+  Bsyl，你看，我就知道去那楼没好事。  
+
+  没...一开始把我吓一跳所以我在V楼说一下...
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">后来是没咋样...所以想把这层楼编辑的，但我在外面IOS编辑不了...
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|也没把你咋啊…|
+
+
+查看全部评分
+
+
+-----
+
+####  FCCHua  
+##### 1420#       发表于 2021-5-30 17:05
+
+
+ 本帖最后由 FCCHua 于 2021-5-30 17:08 编辑 
+
+叶山和社筑 舞元一组
+纯本社，支持了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 1421#       发表于 2021-5-30 17:10
+
+
+ 本帖最后由 poipanchao 于 2021-5-30 17:38 编辑 
+
+纯血队，强宣称，地板队
+
+暗示彩虹不行
+
+
+我觉得千草队、叶山队的阵容才是好文明
+
+现在这样各种外部前pro、顶猎……
+
+（顺便传闻千要叫yukio来……你是真的不怕冲吗）
+
+
+-----
+
+####  kangkangsama  
+##### 1422#       发表于 2021-5-30 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51418272&amp;ptid=1972669" target="_blank">winda 发表于 2021-5-30 09:41</a>
+
+https://youtu.be/5nbHqG95zjk
+
+看完再评估下prize实力吧</blockquote>
+草 学到了 eva8要长按<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1423#       发表于 2021-5-30 17:58
+
+
+<blockquote>poipanchao 发表于 2021-5-30 17:10
+纯血队，强宣称，地板队
+
+暗示彩虹不行
+
+</blockquote>
+至少没有棒男职业哥，还不是太过分，日本的一线职业哥也都没有来，你虹的大和魂还没有亡
+
+
+-----
+
+####  FCCHua  
+##### 1424#       发表于 2021-5-30 18:47
+
+
+ 本帖最后由 FCCHua 于 2021-5-30 20:13 编辑 
+
+时雨妈今晚生日会要有重大告知？
+犬山也有生日重大发表
+
+
+-----
+
+####  烯丝短尾猫  
+##### 1425#       发表于 2021-5-30 19:03
+
+
+cr真的好nm猛，打到现在192分了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Urakawa  
+##### 1426#       发表于 2021-5-30 19:21
+
+
+金憨憨今晚新衣服，魔女那套很少用啊<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">。
+
+
+-----
+
+####  alcoholic1000  
+##### 1427#       发表于 2021-5-30 19:27
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-30 19:30 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/30/192709m0xe00z4f343refx.png" referrerpolicy="no-referrer">
+
+
+<strong>【#鷹宮リオン新衣装】帝華高校に中間服、同級生のオタクくんに見せてあげてもいいよ.png</strong> (129.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 19:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/30/192954b1itxdo6xrzrlcw8.png" referrerpolicy="no-referrer">
+
+
+<strong>【#鷹宮リオン新衣装】帝華高校に中間服、同級生のオタクくんに見せてあげてもいいよ.png</strong> (156.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 19:29 上传
+
+
+-----
+
+####  hulaoda007  
+##### 1428#       发表于 2021-5-30 19:29
+
+
+  好看，历史新高级别的好看。
+
+
+-----
+
+####  s32244153  
+##### 1429#       发表于 2021-5-30 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51423832&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-5-30 19:27</a></blockquote>
+一股憨憨清纯辣妹的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 1430#       发表于 2021-5-30 19:37
+
+
+这套新衣服真的棒<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1431#       发表于 2021-5-30 19:42
+
+
+🏄‍了。
+
+
+我的评价是：请3JK下一套JK服照此办理
+
+
+-----
+
+####  FCCHua  
+##### 1432#       发表于 2021-5-30 19:53
+
+
+ 本帖最后由 FCCHua 于 2021-5-30 20:03 编辑 
+
+小千这个队伍人员组成是我没想到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1433#       发表于 2021-5-30 19:54
+
+
+<img src="https://img.saraba1st.com/forum/202105/30/195414rwsbay3was9ajybw.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #119 - 'Latest Tweets _ Twitter' - twitter_com.png</strong> (44.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 19:54 上传
+
+
+🔥+🔥=？
+
+
+-----
+
+####  poipanchao  
+##### 1434#       发表于 2021-5-30 19:55
+
+
+yukio就算了还加个夏色祭
+
+没救了，等死吧
+
+
+-----
+
+####  ygysh0505  
+##### 1435#       发表于 2021-5-30 19:55
+
+
+楼里前面谁说没邀请来着<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十四洲  
+##### 1436#       发表于 2021-5-30 19:56
+
+
+黛灰这 不安了
+
+
+-----
+
+####  AKili  
+##### 1437#       发表于 2021-5-30 19:56
+
+
+木口现存的两个apex民都参加了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  心垂万刃  
+##### 1438#       发表于 2021-5-30 19:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终于有人请小肥妹了，不容易
+
+
+-----
+
+####  Suny08  
+##### 1439#       发表于 2021-5-30 20:01
+
+
+千这是疯了？请挂哥加阿希？就这么想赢？
+
+
+-----
+
+####  IDIDIDID  
+##### 1440#       发表于 2021-5-30 20:02
+
+
+流量第一好吧，小千这是在大气层
+
+
+
+
+-----
+
+####  死体残留  
+##### 1441#       发表于 2021-5-30 20:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">推上招的那个均伤300指的就是这货？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  SuntoryNomu  
+##### 1442#       发表于 2021-5-30 20:26
+
+
+<img src="https://img.saraba1st.com/forum/202105/30/202557ekkrsrsllg87s7qs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>356db812c8fcc3cec440c6828545d688d53f207f.jpg</strong> (10.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 20:25 上传
+
+
+-----
+
+####  alcoholic1000  
+##### 1443#       发表于 2021-5-30 20:27
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-30 20:48 编辑 
+
+重大発表します！
+
+野猫：在2434度过了愉快的时光，如今已经3年了...
+
+(然后把自己说笑了）
+
+没有毕业，没有结婚，没有主流出道但是
+
+風呂に入った！洗澡了！搬家了！
+
+
+-----
+
+####  OldGlory  
+##### 1444#       发表于 2021-5-30 20:31
+
+
+阿希前几届apex比赛基本上抱哪个大腿，哪个大腿就萎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+小千这是不想赢
+
+
+-----
+
+####  十四洲  
+##### 1445#       发表于 2021-5-30 20:33
+
+
+可是千不是本来就跟yukio关系很好吗？不说我之前都没感觉yukio被v圈fps圈排斥…之前也参与过当教练？
+
+
+-----
+
+####  CAserlumos  
+##### 1446#       发表于 2021-5-30 20:39
+
+
+这比赛猎杀带个黄金白金我能接受，猎杀带俩钻我觉得不行
+
+
+-----
+
+####  ヒトニナル  
+##### 1447#       发表于 2021-5-30 20:51
+
+
+ゆきお？哈弟怎么想啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1448#       发表于 2021-5-30 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51424624&amp;ptid=1972669" target="_blank">CAserlumos 发表于 2021-5-30 20:39</a>
+
+这比赛猎杀带个黄金白金我能接受，猎杀带俩钻我觉得不行</blockquote>
+这比赛猎杀带两钻的队伍也有，夜见那队就是（ars应该上过钻吧？），甚至一猎杀一大师的队也有，关键职业哥和你普通猎杀差距还是很大的，algs那强度和你普通顶猎局完全不一样，像ru桑这种顶猎cr杯遇到ras，cpt，wokka这种一线职业哥说实话和你遇到这些人差不多，都是一样被秒
+
+
+-----
+
+####  FCCHua  
+##### 1449#       发表于 2021-5-30 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51424720&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-5-30 20:51</a>
+ゆきお？哈弟怎么想啊</blockquote>
+他参加了哈弟举办的自定义比赛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1450#       发表于 2021-5-30 21:10
+
+
+葵皇你把小熊猫怎么了😭
+
+
+-----
+
+####  winda  
+##### 1451#       发表于 2021-5-30 21:13
+
+
+ 本帖最后由 winda 于 2021-5-30 21:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51424730&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-5-30 20:52</a>
+这比赛猎杀带两钻的队伍也有，夜见那队就是（ars应该上过钻吧？），甚至一猎杀一大师的队也有，关键职业 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ars的白金都是最近被带上去的，千皇这队就是奔着冠军去组的
+
+
+-----
+
+####  Ketestrait  
+##### 1452#       发表于 2021-5-30 21:30
+
+
+小熊猫这吃了两个月抗抑郁药了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 1453#       发表于 2021-5-30 21:33
+
+
+雨衣妈妈这凸待，从老爱委员长到露西亚，牌面上足了阿<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ヒトニナル  
+##### 1454#       发表于 2021-5-30 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51424750&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-5-30 20:54</a>
+他参加了哈弟举办的自定义比赛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">woc，抗压人啊
+
+
+-----
+
+####  FCCHua  
+##### 1455#       发表于 2021-5-30 21:59
+
+
+时雨妈3d制作中
+
+
+-----
+
+####  死体残留  
+##### 1456#       发表于 2021-5-30 22:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">看了下犬山的虹杏联动，一轮到星街说话弹幕就疯涨，虹的本土区也是打不过杏了吧
+虹pex大会也是看上杏的订阅找来联动吧
+
+
+-----
+
+####  IDIDIDID  
+##### 1457#       发表于 2021-5-30 22:27
+
+
+[https://www.youtube.com/channel/UCVedolgyNM3SM6rXORDDTgg](https://www.youtube.com/channel/UCVedolgyNM3SM6rXORDDTgg)
+
+
+V综相关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 1458#       发表于 2021-5-30 22:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">笑死了 星街说佐贺事变的花费了，曲绘和mix的人都说算了 结果自己都不知道花了多少钱 
+用来垫脚的还是三个虹用了10w到20w
+
+
+-----
+
+####  free  
+##### 1459#       发表于 2021-5-30 22:54
+
+
+[https://www.youtube.com/watch?v=Sxuzh8d__3E](https://www.youtube.com/watch?v=Sxuzh8d__3E)
+
+鹿乃的新皮，我以前一直以为鹿乃就叫鹿乃，原来有名字的啊
+
+
+<img src="https://img.saraba1st.com/forum/202105/30/225447z00ncsckhcc59xet.png" referrerpolicy="no-referrer">
+
+
+<strong>鹿乃.png</strong> (100.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 22:54 上传
+
+
+-----
+
+####  FCCHua  
+##### 1460#       发表于 2021-5-30 23:02
+
+
+为啥是老咪油管<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 1461#       发表于 2021-5-30 23:03
+
+
+ 本帖最后由 真飞鸟i 于 2021-5-30 23:05 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">nga虹楼气氛可真糟，阿希，你是怎么办到的。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集|-1|属于聊屎的一种|
+
+
+查看全部评分
+
+
+-----
+
+####  Suny08  
+##### 1462#       发表于 2021-5-30 23:32
+
+
+<blockquote>真飞鸟i 发表于 2021-5-30 23:03
+nga虹楼气氛可真糟，阿希，你是怎么办到的。
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Ne ...</blockquote>
+你杏暗部实锤了，不过这比赛舆论能变成这样，不懂apex的大会运营还有你虹那些下死手的队长问题都挺大的
+
+
+-----
+
+####  asdhai  
+##### 1463#       发表于 2021-5-30 23:33
+
+
+时雨妈3D来啦<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ヒトニナル  
+##### 1464#       发表于 2021-5-30 23:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">有一说一我还是很期待这次大会前前后后可能会发生的各种炎上撕逼事件和草台运营，最好搞得你虹再也不要动这种组织打枪大会的念头
+
+
+-----
+
+####  qq845629713  
+##### 1465#       发表于 2021-5-30 23:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 这次活动难道会有炎上撕逼以外的结局么？
+
+
+-----
+
+####  rzrbtk  
+##### 1466#       发表于 2021-5-30 23:38
+
+
+ 本帖最后由 rzrbtk 于 2021-5-30 23:41 编辑 
+
+不妙啊，不妙啊大哥，黛灰不妙啊，在我看来自那个投票后就真的无法挽回了（并不是说引退的意思）
+
+<img src="https://img.saraba1st.com/forum/202105/30/233818guq7iquaupuki0uj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 730 - 黛 灰(まゆずみ かい)@にじさんじ (@mayuzumi_X) _ Twitter -.jpg</strong> (41.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 23:38 上传
+
+
+-----
+
+####  alcoholic1000  
+##### 1467#       发表于 2021-5-30 23:44
+
+
+叶CR VALO的队友名单出了:
+
+Reitaさん、AlphaAzurさん、Kamitoさん
+
+...夏代孝明?!
+
+
+-----
+
+####  asdhai  
+##### 1468#       发表于 2021-5-30 23:45
+
+
+apex大会出什么事啦，有详细的rp吗
+
+
+-----
+
+####  渡鸦骑士  
+##### 1469#       发表于 2021-5-30 23:46
+
+
+ 本帖最后由 渡鸦骑士 于 2021-5-31 00:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51426435&amp;ptid=1972669" target="_blank">asdhai 发表于 2021-5-30 23:45</a>
+apex大会出什么事啦，有详细的rp吗</blockquote>
+看NGA虹楼过去一阵子的，刷的不快
+我错了，刷的很快
+
+
+-----
+
+####  IDIDIDID  
+##### 1470#       发表于 2021-5-30 23:50
+
+
+有一说一虹pex早该办办了，过去一年光是哈弟就吸了多少虹血了？直播员都是虚拟白求恩连运营反应也这么慢？
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 1471#       发表于 2021-5-30 23:52
+
+
+千pro带了一个高水平职业选手一个马自立打彩虹杯，被质疑蓄意割草+通敌
+
+
+-----
+
+####  asdhai  
+##### 1472#       发表于 2021-5-30 23:53
+
+
+不是很想去ngav版啊……已经小半年没点进去了
+
+
+-----
+
+####  OldGlory  
+##### 1473#       发表于 2021-5-30 23:55
+
+
+哈弟其实还好，几位职业哥吸虹血吸的有点狠的。
+
+
+-----
+
+####  qq845629713  
+##### 1474#       发表于 2021-5-30 23:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> KING不是说要参赛么？在哪个队伍？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|叶队|
+
+
+查看全部评分
+
+
+-----
+
+####  alcoholic1000  
+##### 1475#       发表于 2021-5-30 23:56
+
+
+ 本帖最后由 alcoholic1000 于 2021-5-30 23:58 编辑 
+
+Bsyl，KCK黑黑千参加ALGSグランドファイナル（Apex Legends Global Series）6月6日(日)10:50〜直前企画初MC
+
+<img src="https://img.saraba1st.com/forum/202105/30/235603pn99b7r5v7lbwal3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ALGSグランドファイナル直前企画.jpg</strong> (556.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 23:56 上传
+
+
+KCK这个组合也不算一无所获，喂起来部分PRO了也是真的
+
+
+-----
+
+####  rzrbtk  
+##### 1476#       发表于 2021-5-30 23:57
+
+
+马自立荣誉虹人了就算让她赢又怎样...打枪上头很那个诶，
+
+而且千pro马自立组队说不定可以看到pro碾压，千战绩差低气压哭泣，整队氛围奇差，马自立结束前在直播间对观众哭，pro发推被骂，最后大家大吵一架解开心结顺便拿第一的热血场面不是很好嘛
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 屑屑代沟尼亚| + 1|抓个虫 马自立哭会闭麦|
+| 格林卡罗尔| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  獅白ぼたん  
+##### 1477#       发表于 2021-5-30 23:58
+
+
+打的菜人不够也就社内图一乐，虹人这叫职业哥来确实不行
+
+要木口玩这手我就yygq去了
+
+
+-----
+
+####  CAserlumos  
+##### 1478#       发表于 2021-5-31 00:00
+
+
+我还是觉得一猎杀两钻这个强度不太行，这已经可以去打cr杯了，看看叶山社和舞元
+
+
+-----
+
+####  qq845629713  
+##### 1479#       发表于 2021-5-31 00:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer"> 我觉得挺好的，LOL不能实现KING的电竞梦，APEX和瓦罗兰给了他第二次电竞人生，LOL界的S赛去不了，去APEX的S赛当mc也挺好，为他高兴，
+
+
+-----
+
+####  渡鸦骑士  
+##### 1480#       发表于 2021-5-31 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51426540&amp;ptid=1972669" target="_blank">獅白ぼたん 发表于 2021-5-30 23:58</a>
+打的菜人不够也就社内图一乐，虹人这叫职业哥来确实不行
+
+要木口玩这手我就yygq去了 ...</blockquote>
+木口哪里这么多人打……
+40个都凑不齐<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 1481#       发表于 2021-5-31 00:06
+
+
+ 本帖最后由 winda 于 2021-5-31 00:09 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前职业找谁不好找yukio，知道和千皇私交好也不是带人到虹apex放火的理由，那干脆也带上deathseya吧
+https://youtu.be/zYxLWdgWm7I
+
+
+-----
+
+####  Suzutsuki  
+##### 1482#       发表于 2021-5-31 00:07
+
+
+ 本帖最后由 Suzutsuki 于 2021-5-31 00:10 编辑 
+
+论三个钻石实力 小熊猫那队牛逼 综合实力只看大腿 虾勇那队的sudetaki就是个bug 你虹这次比赛没cr那几个和伏特加以及少数几个人 这次比赛没哪个职业哥能打过他的 还能指挥 我是看不懂这选人是怎么选的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 1483#       发表于 2021-5-31 00:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 到时候看大腿猎杀、职业选手表演，你虹那些个liver最后不还是被吸了？喜欢看技术fps主播的不还是会被吸?
+
+
+这比赛一开始就该搞成纯社内比赛，
+
+
+谁让你虹在外面影响力不够，拿不到比赛权呢?
+
+
+-----
+
+####  Suny08  
+##### 1484#       发表于 2021-5-31 00:13
+
+
+<blockquote>rzrbtk 发表于 2021-5-30 23:57
+马自立荣誉虹人了就算让她赢又怎样...打枪上头很那个诶，
+
+而且千pro马自立组队说不定可以看到pro碾压，千战 ...</blockquote>
+什么夜神月
+
+另外，鬼神ダメです👨✈?ぷてきなダメです👨?✈? 
+
+ゆきちーは👍
+
+
