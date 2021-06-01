@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-28 07:54** 
+> ## **本文件最后更新于2021-06-02 00:34** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_FgT07" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_hiztJ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9259,7 +9259,7 @@ Rigger HATE!</blockquote>
 
 
 bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_GOOfK" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_Xj34I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -12880,4 +12880,392 @@ WAHnmillion！
 <img src="https://p.sda1.dev/2/d0f59abe0e6c3287c1866a043d338349/IMG_CMP_126759170.jpeg" referrerpolicy="no-referrer">
 
 
-                     
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 842#       发表于 2021-5-28 21:44
+
+
+<img src="https://p.sda1.dev/2/f34e6f156cdecfee5f4525a926fee145/IMG_CMP_28543174.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/2e1eef49d0dc7fce9120d018045f3c20/1398265054294773765.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 843#       发表于 2021-5-28 22:29
+
+
+<img src="https://p.sda1.dev/2/c4ff4dde525e195283cd058eb22cc798/IMG_CMP_236509269.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 844#       发表于 2021-5-29 07:52
+
+
+耐久<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">和calli差不多流程
+<img src="https://p.sda1.dev/2/3a39b3ba8283240f6070cdcf834a1592/IMG_CMP_139061994.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 845#         楼主| 发表于 2021-5-29 07:59
+
+
+<blockquote>wiig 发表于 2021-5-29 07:52
+耐久和calli差不多流程</blockquote>
+上古卷轴呢？
+
+
+-----
+
+####  wiig  
+##### 846#       发表于 2021-5-29 08:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51407653&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-29 07:59</a>
+上古卷轴呢？</blockquote>
+传承已经在ina手里断掉了<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 847#       发表于 2021-5-29 09:11
+
+
+<img src="https://p.sda1.dev/2/c16abb62574c834f302fb0c0a4baf49f/IMG_CMP_260553782.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 848#       发表于 2021-5-29 22:37
+
+
+<img src="https://p.sda1.dev/2/03c81b6d793ded96992625e6b0ada7c0/IMG_CMP_14220500.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 849#       发表于 2021-5-30 08:26
+
+
+<img src="https://p.sda1.dev/2/f90e3eec914e21ef9dae60a1972ce979/IMG_CMP_152239675.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 850#       发表于 2021-5-30 08:36
+
+
+M'lady~
+<img src="https://p.sda1.dev/2/2f92a5a2bac4f60d02a3ffe9a43d9760/IMG_CMP_103211142.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 851#         楼主| 发表于 2021-5-30 12:02
+
+
+看了下火鸡订阅，这耐久大概10分钟2333
+
+
+-----
+
+####  wiig  
+##### 852#       发表于 2021-5-30 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51419570&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-5-30 12:02</a>
+看了下火鸡订阅，这耐久大概10分钟2333</blockquote>
+可能开播前就金盾了
+
+
+-----
+
+####  wiig  
+##### 853#       发表于 2021-5-30 12:57
+
+
+<img src="https://img.saraba1st.com/forum/202105/30/125720z1ql16ssggzb88tl.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (191.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 12:57 上传
+
+
+-----
+
+####  wiig  
+##### 854#       发表于 2021-5-30 12:58
+
+
+Ninomae Ina’nisOctopusholoEN
+
+@ninomaeinanis
+
+DOMO SAME DESU I'm GaWAH GuWAH
+
+<img src="https://img.saraba1st.com/forum/202105/30/125853q90oll8wqbmt9ctk.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (94.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-30 12:58 上传
+
+
+-----
+
+####  wiig  
+##### 855#       发表于 2021-5-30 14:22
+
+
+<img src="https://p.sda1.dev/2/438251518af26f498fd88bb10a019fe0/IMG_CMP_33681069.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 856#       发表于 2021-5-30 15:11
+
+
+ 本帖最后由 wiig 于 2021-5-30 15:14 编辑 
+
+[MV] ロキ / Roki (English Rap Cover) - Calliope Mori
+[https://youtu.be/8nI1CDsNZI0](https://youtu.be/8nI1CDsNZI0)
+休息了但没有完全休息<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 857#       发表于 2021-5-30 15:12
+
+
+ 本帖最后由 wiig 于 2021-5-30 15:30 编辑 
+
+<img src="https://p.sda1.dev/2/6e53a7e0c421fa5a9f87aa307f93044c/IMG_CMP_228984435.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 858#       发表于 2021-5-30 15:21
+
+
+Watson Amelia🔎holoEN
+@watsonameliaEN
+<img src="https://p.sda1.dev/2/a9affc1eb726ce81a6634166352b6b1e/20210530_152115.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 859#       发表于 2021-5-30 19:24
+
+
+嗨呀 已经金盾了<img src="https://p.sda1.dev/2/93721e6f427bb22cf6d17c9ca61d8b52/IMG_CMP_89016691.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 860#       发表于 2021-5-31 06:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51420191&amp;ptid=1989758" target="_blank">wiig 发表于 2021-5-30 12:58</a>
+Ninomae Ina’nisOctopusholoEN
+
+@ninomaeinanis
+
+DOMO SAME DESU I'm GaWAH GuWAH</blockquote>
+<img src="https://p.sda1.dev/2/0ce31eb8bdc09cc659115fcb706b54b5/1398965786731892741.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 861#       发表于 2021-5-31 06:55
+
+
+<img src="https://p.sda1.dev/2/9f3ebf961d51b6f775898e618820d543/IMG_CMP_30478891.jpeg" referrerpolicy="no-referrer">
+bottom left
+
+
+-----
+
+####  wiig  
+##### 862#       发表于 2021-5-31 07:32
+
+
+<img src="https://p.sda1.dev/2/31661ffbe9c8994ba9b99b7d00722c06/IMG_CMP_240886732.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Austaras  
+##### 863#       发表于 2021-5-31 08:37
+
+
+鲨皇也要玩subnautica了吗，好起来了
+
+
+-----
+
+####  空集  
+##### 864#       发表于 2021-5-31 18:46
+
+
+https://youtu.be/__ef16oCxe8
+这个章鱼罐好有趣
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  空集  
+##### 865#       发表于 2021-5-31 18:47
+
+
+https://youtu.be/__ef16oCxe8
+这个章鱼罐好有趣
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wiig  
+##### 866#       发表于 2021-6-1 06:17
+
+
+<img src="https://p.sda1.dev/2/fdbdd7d8435984119e5f24e1329a33dc/out-transparent-16.gif" referrerpolicy="no-referrer">
+
+无关联想
+<img src="https://p.sda1.dev/2/a2f7d951f8a249d2225f5b1047fe4365/20210601_061659.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 867#       发表于 2021-6-1 06:19
+
+
+<img src="https://p.sda1.dev/2/f01b2ccbfc9f6219bea5f6cf1bfb1a40/IMG_CMP_250855743.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 868#       发表于 2021-6-1 06:33
+
+
+<img src="https://p.sda1.dev/2/3e2cc7a2cb9b3081543aab0c1102e46e/IMG_CMP_24163658.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 869#         楼主| 发表于 2021-6-1 08:52
+
+
+鲨鱼开3d平台，血压拉满。。
+
+
+-----
+
+####  wiig  
+##### 870#       发表于 2021-6-1 12:24
+
+
+<img src="https://p.sda1.dev/2/af383f9ae138096cfd8d906023d56569/IMG_CMP_262393356.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  smy20011  
+##### 871#         楼主| 发表于 2021-6-1 12:28
+
+
+随手点开鲨鱼直播，正在聊ZLS，鲨鱼说自己超喜欢莉莉（的人设）。聊天室里面各种yabe
+
+
+-----
+
+####  wiig  
+##### 872#       发表于 2021-6-1 18:15
+
+
+探侦&amp;刑事
+<img src="https://p.sda1.dev/2/fd829ae8c4bc169d46c6a09e7c4c761e/IMG_CMP_254086954.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 873#       发表于 2021-6-1 18:43
+
+
+<img src="https://p.sda1.dev/2/963f9a85e4a2678104bfc102f99bf71a/IMG_CMP_186599041.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 874#       发表于 2021-6-1 18:43
+
+
+<img src="https://p.sda1.dev/2/963f9a85e4a2678104bfc102f99bf71a/IMG_CMP_186599041.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 875#       发表于 2021-6-1 22:20
+
+
+[https://youtu.be/QNCDxeBwOQk](https://youtu.be/QNCDxeBwOQk)
+
+Is Kiara Takanashi gay or European? (animatic)
+
+
+-----
+
+####  smy20011  
+##### 876#         楼主| 发表于 2021-6-1 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51442278&amp;ptid=1989758" target="_blank">wiig 发表于 2021-6-1 18:43</a></blockquote>
+Ina这个真的好大，难怪运费那么贵
+
+
+                    

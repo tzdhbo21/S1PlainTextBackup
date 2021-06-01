@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-27 23:57** 
+> ## **本文件最后更新于2021-06-02 00:40** 
 
 
 
@@ -50,7 +50,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103506frrpzpxukuzozovv.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_2-768x432.jpg</strong> (11.31 KB, 下载次数: 3)
+<strong>Sony-Xperia-1-III-Mark-3_Render_2-768x432.jpg</strong> (11.31 KB, 下载次数: 4)
 
 下载附件
 
@@ -70,7 +70,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103507m5icmgk6zidu2lci.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_4-768x432.jpg</strong> (13.97 KB, 下载次数: 2)
+<strong>Sony-Xperia-1-III-Mark-3_Render_4-768x432.jpg</strong> (13.97 KB, 下载次数: 4)
 
 下载附件
 
@@ -518,10 +518,7 @@ z4要出了吗
 ####  ziyo  
 ##### 25#       发表于 2021-1-29 17:31
 
-
-这设计一股廉价感
-
-—— 来自 Sony G8441, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1294,8 +1291,7 @@ sony的nfc功能不一直都是齐全的吗？</blockquote>
 ####  Gateone  
 ##### 89#       发表于 2021-4-10 15:50
 
-
-这玩意拍照水平真的能到安卓第一梯队？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1648,10 +1644,7 @@ CPU骁龙888
 ####  Gateone  
 ##### 114#       发表于 2021-4-13 11:16
 
-
-<blockquote>jzsgtx 发表于 2021-4-13 11:01
-后置还是三个12MP啊</blockquote>
-不是说imx557吊打所有cmos🐴
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -1671,11 +1664,7 @@ CPU骁龙888
 ####  Gateone  
 ##### 116#       发表于 2021-4-13 11:21
 
-
-<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50921676&amp;ptid=1985265" target="_blank">jzsgtx 发表于 2021-4-13 11:19</a>
-
-是这样的话当然好，但总像素三代一直不变感觉怪怪的</blockquote>
-索尼摄像头规格真的低，感觉和苹果互有胜负<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3262,8 +3251,7 @@ J9110看哭了
 ####  Gateone  
 ##### 225#       发表于 2021-4-14 17:10
 
-
-从cmos总面积看，索索依然拉垮
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3375,12 +3363,7 @@ X1Ⅲ各方面看起来都挺香的，不过这个比例的6.5 ...</blockquote>
 ####  Gateone  
 ##### 234#       发表于 2021-4-14 17:31
 
-
-<blockquote>Mikumiku831 发表于 2021-4-14 17:29
-要的就是索尼系统这个味
-
-其他家的真用不惯</blockquote>
-这玩意多少钱？顶配8000块？
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -3607,10 +3590,7 @@ X1Ⅲ各方面看起来都挺香的，不过这个比例的6.5 ...</blockquote>
 ####  Gateone  
 ##### 251#       发表于 2021-4-14 18:31
 
-
-<blockquote>allenz2 发表于 2021-4-14 18:13
-仔细看了下，这次高速连拍和各种追焦功能3颗镜头都可用了，而且索尼宣称弱光下增强噪点减少，到时候看看样 ...</blockquote>
-想看dxo测1m3
+提示: 作者被禁止或删除 内容自动屏蔽
 
 
 -----
@@ -7160,4 +7140,619 @@ mark3的攝影大師太好用了...可以觸屏定焦點，實用性up</blockquo
 ----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
 
 
-                                
+-----
+
+####  噗哩噗  
+##### 513#       发表于 2021-5-28 04:01
+
+
+这代感觉都在吹啊，可惜888<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  哎哟卧槽了  
+##### 514#       发表于 2021-5-28 11:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51395280&amp;ptid=1985265" target="_blank">噗哩噗 发表于 2021-5-28 04:01</a>
+
+这代感觉都在吹啊，可惜888</blockquote>
+到底888灾情如何，不打游戏的话，日常刷论坛，看视频，在夏天的话温度比820如何
+
+
+-----
+
+####  孤蜀安安  
+##### 515#       发表于 2021-5-28 18:14
+
+
+想买5m3，但是基本找不到评测，只有1m3的。为啥索尼不一次都找人评测了？
+
+
+-----
+
+####  togochina  
+##### 516#       发表于 2021-5-28 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51397874&amp;ptid=1985265" target="_blank">哎哟卧槽了 发表于 2021-5-28 11:18</a>
+
+到底888灾情如何，不打游戏的话，日常刷论坛，看视频，在夏天的话温度比820如何 ...</blockquote>
+我的小米11，看B站2分钟烫手
+
+
+-----
+
+####  wyjbnb  
+##### 517#       发表于 2021-5-28 18:49
+
+
+<blockquote>孤蜀安安 发表于 2021-5-28 18:14
+想买5m3，但是基本找不到评测，只有1m3的。为啥索尼不一次都找人评测了？</blockquote>
+因为还没出，现在只有5m2
+
+
+-----
+
+####  allenz2  
+##### 518#       发表于 2021-5-28 19:16
+
+
+索尼连stn都送了恰饭，还有一堆中小up，我十分怀疑这次贵的地方都在b站打广告了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lbzlxx  
+##### 519#       发表于 2021-5-28 21:57
+
+
+在贴吧找到个3的摄影大师，想给5mk2装上
+
+
+请问到时可以卸载还原吗，怕有bug
+
+
+-----
+
+####  allenz2  
+##### 520#       发表于 2021-5-28 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51405025&amp;ptid=1985265" target="_blank">lbzlxx 发表于 2021-5-28 21:57</a>
+
+在贴吧找到个3的摄影大师，想给5mk2装上
+
+
+请问到时可以卸载还原吗，怕有bug ...</blockquote>
+在手机的“支持”app中可以重下所有预装app
+
+
+-----
+
+####  孤蜀安安  
+##### 521#       发表于 2021-5-29 05:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51402853&amp;ptid=1985265" target="_blank">wyjbnb 发表于 2021-5-28 18:49</a>
+
+因为还没出，现在只有5m2</blockquote>
+我是说为啥sony只送1m3给up主，1m3和5m3应该一起出吧
+
+
+-----
+
+####  YoumuChan  
+##### 522#       发表于 2021-5-29 06:37
+
+
+z5入坑，后来x1都被火龙搞得很难受，现在手持1m1，看到888据说也是火龙不敢上，等一个1m4
+
+
+-----
+
+####  代号锤子  
+##### 523#       发表于 2021-5-29 07:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51407372&amp;ptid=1985265" target="_blank">孤蜀安安 发表于 2021-5-29 05:23</a>
+我是说为啥sony只送1m3给up主，1m3和5m3应该一起出吧</blockquote>
+一起发布，但是5三季度上市
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  孤蜀安安  
+##### 524#       发表于 2021-5-29 07:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51407516&amp;ptid=1985265" target="_blank">代号锤子 发表于 2021-5-29 07:13</a>
+
+一起发布，但是5三季度上市
+
+
+—— 来自 Sony G8342, Android 9上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+有点晚啊。。。看来这代我估计还是要跳过了。我目前是iphone，但是正想往android迁移，打算sony或者pixel选一个，不希望手机太大。谁先出就选谁吧。
+
+
+-----
+
+####  人生如戏  
+##### 525#       发表于 2021-5-29 09:54
+
+
+看到咸鱼港版8g+256g的x1m2到3600了，好心动，和国行比就ram差了4G，其他好像没变，好心动，主要x1m3太贵了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  wyjbnb  
+##### 526#       发表于 2021-5-29 10:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">近期有换x5m2的打算，问一下国行跟港行系统上有啥区别？
+
+
+-----
+
+####  猫空  
+##### 527#       发表于 2021-5-29 10:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51408780&amp;ptid=1985265" target="_blank">wyjbnb 发表于 2021-5-29 10:44</a>
+
+近期有换x5m2的打算，问一下国行跟港行系统上有啥区别？</blockquote>
+国行有个节电优能，管国内毒瘤管得挺死的
+
+
+-----
+
+####  Cray  
+##### 528#       发表于 2021-5-29 10:55
+
+
+x5m2 系统可以通刷 …<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  代号锤子  
+##### 529#       发表于 2021-5-29 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51407651&amp;ptid=1985265" target="_blank">孤蜀安安 发表于 2021-5-29 07:58</a>
+有点晚啊。。。看来这代我估计还是要跳过了。我目前是iphone，但是正想往android迁移，打算sony或者pixel ...</blockquote>
+从渲染图看pixel6可能也不小，这代确实可以跳过去了，不在意性能的话（其实也不差），5 ii和三星s20都不错的，现在也白菜价了…
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  代号锤子  
+##### 530#       发表于 2021-5-29 13:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51408880&amp;ptid=1985265" target="_blank">Cray 发表于 2021-5-29 10:55</a>
+x5m2 系统可以通刷 …
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+5 ii港版刷国行能正常移动5G不？
+1 ii是不是唯一的区别就是移动5G？
+
+—— 来自 Sony G8342, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leystage  
+##### 531#         楼主| 发表于 2021-5-29 18:54
+
+
+今天去 Sony Store 摸了一下实机。
+
+
+长度没想象中缩小得明显。
+
+体感上比 1m2 更轻，不知道是不是因为重心变了。
+
+加工质感好评，这次决定磨砂黑。
+
+相机启动似乎比 1m2 更快，但也可能是因为新机。
+
+120Hz 刷新确实比 1m2 更顺滑。
+
+摄像头设计整体大了一圈，看起来画质仿佛也更好了。
+
+长焦比 1m2 明显进步。变焦逻辑跟相机一样，我还蛮喜欢，感觉像是用相机。
+
+BASIC 模式好评，早该改改了。
+
+
+屏幕显示本身没特别明显的提升，但已经很不错。
+
+和 1m2 算是一脉相承，如果说 1m2 是 1无印的大幅改良，1m3 就是 1m2 的小改款。
+
+就玩了几分钟，感觉发热还行，至少没网传那么夸张。不过这个没啥参考价值。
+
+
+港版据说要7月，再等一个月吧。
+
+
+-----
+
+####  Cray  
+##### 532#       发表于 2021-5-29 21:12
+
+
+<blockquote>引用第529楼代号锤子于2021-05-29 13:11发表的  :
+
+引用:Cray 发表于 2021-5-29 10:55x5m2 系统可以通刷 …----发送自 So......</blockquote>
+1m2硬件有点小区别 所以不能通刷 …
+港版5g频段少一些
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  哎哟卧槽了  
+##### 533#       发表于 2021-5-29 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51413076&amp;ptid=1985265" target="_blank">leystage 发表于 2021-5-29 18:54</a>
+
+今天去 Sony Store 摸了一下实机。
+
+
+长度没想象中缩小得明显。</blockquote>
+sony store测试发热的确没意义，一般应该在炎夏的午间，顶着太阳看10分钟B站，这样测试最有价值<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  martinium  
+##### 534#       发表于 2021-5-30 02:14
+
+
+屏幕不开洞的是不是只有大法了？有没有老股东说下上代大概什么时候还能降价
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  Cray  
+##### 535#       发表于 2021-5-30 05:19
+
+
+1m2 港版都4300了 …
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  leystage  
+##### 536#         楼主| 发表于 2021-5-30 07:27
+
+
+<blockquote>哎哟卧槽了 发表于 2021-5-29 21:42
+sony store测试发热的确没意义，一般应该在炎夏的午间，顶着太阳看10分钟B站，这样测试最有价值 ...</blockquote>
+啊… 这样的场景想想也会热化了…
+
+
+-----
+
+####  Yukine_Chris  
+##### 537#       发表于 2021-5-30 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51407372&amp;ptid=1985265" target="_blank">孤蜀安安 发表于 2021-5-29 05:23</a>
+我是说为啥sony只送1m3给up主，1m3和5m3应该一起出吧</blockquote>
+5m3并不一起出，最少也还要几个月
+
+— from Sony J9110, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  noahhhh  
+##### 538#       发表于 2021-5-31 11:31
+
+
+<blockquote>szzyf7 发表于 2021-5-23 12:33
+我家是国行，开机连谷歌也没有，只有残疾相册、残疾相机、麻花藤应用宝，其他一概木有，这纯净系统你感受 ...</blockquote>
+都换成谷歌全家桶，软件部门都精简完了，不然要亏损死。
+
+
+-----
+
+####  Cray  
+##### 539#       发表于 2021-5-31 12:04
+
+
+<blockquote>引用第537楼noahhhh于2021-05-31 11:31发表的  :
+
+引用:szzyf7 发表于 2021-5-23 12:33我家是国行，开机连谷歌也没有，只有残疾相册......</blockquote>
+现在赚钱了又重新开始招募了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  lolozp  
+##### 540#       发表于 2021-5-31 12:25
+
+
+1m2 港版和国行有啥区别，手上的1实在太卡了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  观测型冰糕菌  
+##### 541#       发表于 2021-5-31 14:43
+
+
+再等等 x1m2再降点我就把xzp换了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 542#       发表于 2021-5-31 15:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51413076&amp;ptid=1985265" target="_blank">leystage 发表于 2021-5-29 18:54</a>
+今天去 Sony Store 摸了一下实机。
+
+
+长度没想象中缩小得明显。</blockquote>
+一般来说直营店的展示机不给自己装软件，索尼自带的那些应用，又没几个有压力的。
+
+888火龙毕竟是在高负载下才有10W+的高功耗，展示机里那些轻度应用根本给不了啥压力。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wyjbnb  
+##### 543#       发表于 2021-5-31 15:30
+
+
+在淘宝上问了一下，4k2国行带票的x5m2。是不是有问题啊？
+
+
+-----
+
+####  Cray  
+##### 544#       发表于 2021-5-31 21:14
+
+
+ 反正苹果5nm也很热很卡 所以不要在意这些发热问题了 可怜的888一直被针对
+
+
+-----
+
+####  黑夜守望者  
+##### 545#       发表于 2021-5-31 22:23
+
+
+你再吹上天，吃过820火龙的亏再也不会上当了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 546#       发表于 2021-5-31 23:06
+
+
+ 本帖最后由 我很费纸 于 2021-6-1 07:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51434280&amp;ptid=1985265" target="_blank">Cray 发表于 2021-5-31 21:14</a>
+反正苹果5nm也很热很卡 所以不要在意这些发热问题了 可怜的888一直被针对</blockquote>
+苹果热是因为果子仗着自己能耗比好看，根本不设计散热
+
+888热是因为全开功耗就是高，能耗比不行，功耗换性能，全开10W多的功耗，在一些笔记本上都要用风扇才能控制住核心温度了
+
+今年各类游戏手机压888都不是那么容易，得亏现代手机普遍更重视散热设计，不然这888重蹈810覆辙也不是没可能的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+888没什么可怜的，想要高通下一代不挤牙膏好好设计芯片，就该选择870，用票子投票<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+以及虽然都是5nm，果子和麒麟是台漏电5nm，虽然也有一些5nm通病，但比起三棒5nm，可好太多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  cleaner  
+##### 547#       发表于 2021-6-1 02:16
+
+
+http://b23.tv/MZHEfI
+关于888发热降频的一个测试，不是很严谨，可以看看
+<img src="https://p.sda1.dev/2/1b5c34318abac73afb2102f0b6c6c0de/IMG_CMP_185095769.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  xzk0916  
+##### 548#       发表于 2021-6-1 07:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51436559&amp;ptid=1985265" target="_blank">cleaner 发表于 2021-6-1 02:16</a>
+http://b23.tv/MZHEfI
+关于888发热降频的一个测试，不是很严谨，可以看看</blockquote>
+这是系统主动降低性能限制发热吧，所以热不热呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.2
+
+
+-----
+
+####  ulysses  
+##### 549#       发表于 2021-6-1 09:13
+
+
+jd之前100订金预购页面好像显示有4000多单，出乎意料
+
+
+-----
+
+####  Lisylfn  
+##### 550#       发表于 2021-6-1 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51437606&amp;ptid=1985265" target="_blank">ulysses 发表于 2021-6-1 09:13</a>
+
+jd之前100订金预购页面好像显示有4000多单，出乎意料</blockquote>
+昨晚看是5000多单<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cleaner  
+##### 551#       发表于 2021-6-1 09:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51437065&amp;ptid=1985265" target="_blank">xzk0916 发表于 2021-6-1 07:53</a>
+这是系统主动降低性能限制发热吧，所以热不热呢
+
+—— 来自 Sony J9110, Android 11上的 S1Next- ...</blockquote>
+不知道诶，只测了帧率没测温度，所以我才说不严谨
+但是这个帧数，也不是那种能玩的程度了，所以就是要么控制温度要么选择性能，没法像某代那样两样都要
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  吓跑机器猫  
+##### 552#       发表于 2021-6-1 18:25
+
+
+在Sony Store看了下样机，感觉取景器分辨率还是有点低？颇为打击拍照片的积极性。
+
+
+-----
+
+####  lolozp  
+##### 553#       发表于 2021-6-1 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51437606&amp;ptid=1985265" target="_blank">ulysses 发表于 2021-6-1 09:13</a>
+jd之前100订金预购页面好像显示有4000多单，出乎意料</blockquote>
+话说无刘海手机还有别的可选么
+
+很久不关注手机了，真心想问<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cray  
+##### 554#       发表于 2021-6-1 19:57
+
+
+<blockquote>引用第552楼lolozp于2021-06-01 19:27发表的  :
+
+引用:ulysses 发表于 2021-6-1 09:13jd之前100订金预购页面好像显示有400......</blockquote>
+最新的就独家了吧？  夏普也打洞了 …
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  WosunOO  
+##### 555#       发表于 2021-6-1 20:57
+
+
+说起来810的z5p也买了，然后中间就买了一台xz2，然后又是火龙888，每次买大法都碰到这种事，感觉很难受
+
+
+-----
+
+####  KayoAiko  
+##### 556#       发表于 2021-6-1 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51442582&amp;ptid=1985265" target="_blank">lolozp 发表于 2021-6-1 19:27</a>
+
+话说无刘海手机还有别的可选么
+
+
+很久不关注手机了，真心想问</blockquote>
+普通的話除你索還在堅持，其他差不多滅絕了？（大概還有翔米咕咕咕的mix4……
+
+遊戲專機系列的手機的話那倒還有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  8400gs  
+##### 557#       发表于 2021-6-1 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51442582&amp;ptid=1985265" target="_blank">lolozp 发表于 2021-6-1 19:27</a>
+
+话说无刘海手机还有别的可选么
+
+
+很久不关注手机了，真心想问</blockquote>
+Pixel 4/XL？
+
+
+但是配置也老了
+
+
+-----
+
+####  allenz2  
+##### 558#       发表于 2021-6-2 00:15
+
+
+<img src="https://img.saraba1st.com/forum/202106/02/001540qju33iil30jbb37n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>f101189b-1123-4dde-8161-ddfa64895a5f.jpg</strong> (63.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-2 00:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/02/001540hv5nypiny4j4jrym.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4d23b2f6-6f47-469c-947d-3bbfcf3df508.jpg</strong> (82.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-2 00:15 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                               

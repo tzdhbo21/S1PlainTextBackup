@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-01 21:49** 
+> ## **本文件最后更新于2021-06-02 00:29** 
 
 
 
@@ -13299,4 +13299,343 @@ syl，Q版太可爱了咩咩这个声线也可爱好耶好耶,,Ծ^Ծ,,
 怎么可能，这懒狗现在不要太舒服，加了还要被别人抽成
 
 
-          
+-----
+
+####  路人庚  
+##### 16177#       发表于 2021-6-1 21:50
+
+
+也许你咩姐大手一挥桌子一拍自掏腰包，2434那边只要谈好了分成（也许再睡一觉），这谷子不就出了吗
+
+
+-----
+
+####  thisisaspider  
+##### 16178#       发表于 2021-6-1 21:51
+
+
+正常人的想法 出goods 然后只能v自己宣传<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 16179#       发表于 2021-6-1 21:55
+
+
+胆子大点，田角已经睡过你麻了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16180#       发表于 2021-6-1 21:56
+
+
+你这快进的也太快了<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 16181#       发表于 2021-6-1 21:58
+
+
+德龙那句演歌腔整挺好
+
+这首歌有纯演歌的吗？
+
+
+-----
+
+####  古战场亡魂  
+##### 16182#       发表于 2021-6-1 22:00
+
+
+你楼不下三路就不会发言是真的离谱。如果非要靠这种发言才能把楼延续下去的话。
+
+那这楼真没啥存在必要了。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 2|支持|
+
+
+查看全部评分
+
+
+-----
+
+####  往世雷书  
+##### 16183#       发表于 2021-6-1 22:02
+
+
+支持麻将妹
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  古战场亡魂  
+##### 16184#       发表于 2021-6-1 22:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444258&amp;ptid=1973472" target="_blank">肥到终点 发表于 2021-6-1 21:58</a>
+
+德龙那句演歌腔整挺好
+
+这首歌有纯演歌的吗？</blockquote>
+这歌能咋演歌。前面那转转转演不起来啊。
+
+雪月花三个版本的倒是有[https://www.bilibili.com/video/BV1Jx411D75X](https://www.bilibili.com/video/BV1Jx411D75X)
+
+不过德龙那句，无论哪个版本都是合唱的。
+
+这单放出来这么唱的感觉不错。
+
+不过德龙唱的就是硝子，不是雪。
+
+
+-----
+
+####  rosevalley46  
+##### 16185#       发表于 2021-6-1 22:08
+
+
+有一说一江良提桶跑路了有点可惜
+
+江良,星川和你麻要是合唱这歌更有意思
+
+
+-----
+
+####  Cuppco  
+##### 16186#       发表于 2021-6-1 22:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444281&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-6-1 22:00</a>
+你楼不下三路就不会发言是真的离谱。如果非要靠这种发言才能把楼延续下去的话。
+
+那这楼真没啥存在必要了。 ...</blockquote>
+这样的发言我是不是能理解成你看来绿帽节奏比下三路来的能接受啊？
+
+
+-----
+
+####  古战场亡魂  
+##### 16187#       发表于 2021-6-1 22:10
+
+
+ 本帖最后由 古战场亡魂 于 2021-6-1 22:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444379&amp;ptid=1973472" target="_blank">Cuppco 发表于 2021-6-1 22:09</a>
+
+这样的发言我是不是能理解成你看来绿帽节奏比下三路来的能接受啊？</blockquote>
+干嘛？？你还要搞垃圾分类？
+
+
+-----
+
+####  路人庚  
+##### 16188#       发表于 2021-6-1 22:10
+
+
+虽然你咩姐是个自己拿了雀魂官方肉球会说自己睡过运营的角色
+
+而且感觉楼友也都挺爱对mix桑起反应
+
+于是我自己也跟了波节奏（因为我觉得这些都可以接受
+
+不过确实要考虑到不爱这种节奏的观看者
+
+
+所以我还是觉得这事对的，我要自肃一下少跟点这种节奏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cuppco  
+##### 16189#       发表于 2021-6-1 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444398&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-6-1 22:10</a>
+干嘛？？你还要搞垃圾分类？</blockquote>
+照你的意思这不早是垃圾成堆了那为啥时至今日才出来嫌脏啊？
+感觉怪
+
+
+-----
+
+####  古战场亡魂  
+##### 16190#       发表于 2021-6-1 22:16
+
+
+ 本帖最后由 古战场亡魂 于 2021-6-1 22:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444443&amp;ptid=1973472" target="_blank">Cuppco 发表于 2021-6-1 22:14</a>
+
+照你的意思这不早是垃圾成堆了那为啥时至今日才出来嫌脏啊？
+
+感觉怪</blockquote>
+那我昨天出来说你要不要说你为什么不前天出来。
+
+我前天出来你要不要说你为啥不大前天出来。你管我呢。我又不是清洁工，每天定期清垃圾，你给我工资啊？？
+
+
+-----
+
+####  肥到终点  
+##### 16191#       发表于 2021-6-1 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444362&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-6-1 22:07</a>
+
+这歌能咋演歌。前面那转转转演不起来啊。
+
+雪月花三个版本的倒是有https://www.bilibili.com/video/BV1Jx4 ...</blockquote>
+就像和如月线下唱的パプリカ搞怪的那样
+
+我个人觉得还有味道
+
+这类带点成语吧（？的歌我总觉得能用演歌腔唱出来
+
+
+-----
+
+####  雪风utopia  
+##### 16192#       发表于 2021-6-1 22:19
+
+
+还想着多人合作能换个mix，结果<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cuppco  
+##### 16193#       发表于 2021-6-1 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444455&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-6-1 22:16</a>
+那我昨天出来说你要不要说你为什么不前天出来。
+
+我前天出来你要不要说你为啥不大前天出来。你管我呢。我又 ...</blockquote>
+确实，我的
+清理垃圾就靠你这样的人了呀，看你这么正能量感觉我问的实在多余了
+
+
+-----
+
+####  Klience  
+##### 16194#       发表于 2021-6-1 22:23
+
+
+上次多人合作的pv不也是和彩虹的人一起合唱 也还是那个mix 两年了喂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 16195#       发表于 2021-6-1 22:23
+
+
+ 本帖最后由 古战场亡魂 于 2021-6-1 22:29 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444525&amp;ptid=1973472" target="_blank">Cuppco 发表于 2021-6-1 22:22</a>
+
+确实，我的
+
+清理垃圾就靠你这样的人了呀，看你这么正能量感觉我问的实在多余了 ...</blockquote>
+那你tm来晚了，你是没看见我以前在这楼正能量和负能量的时候。
+
+
+-----
+
+####  汇聚群光  
+##### 16196#       发表于 2021-6-1 22:39
+
+
+yysy，玩绿帽梗和编排野男人总比隔壁天天ttk和谐吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 16197#       发表于 2021-6-1 22:44
+
+
+话题没意思 有人说出来 也没说错对吧 争个什么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然有人喜欢说 但不会有人只好这口吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 16198#       发表于 2021-6-1 22:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444536&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-6-1 22:23</a>
+
+那你tm来晚了，你是没看见我以前在这楼正能量和负能量的时候。</blockquote>
+我纠正一下 麻酱妹不正能量 不过一般情况下还挺正常的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人辰  
+##### 16199#       发表于 2021-6-1 22:54
+
+
+ 本帖最后由 路人辰 于 2021-6-1 23:06 编辑 
+
+20210601东京23点
+
+<img src="https://img.saraba1st.com/forum/202106/01/230641oabyzfchxb4xyb3l.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7EED509E-02EC-4F53-98A7-E608E8519E67.jpeg</strong> (178.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-1 23:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/01/225418avn5ske99ne999k6.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>FE7D4262-6955-4C70-8CF4-4D32DC52BD8D.jpeg</strong> (298.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-1 22:54 上传
+
+
+-----
+
+####  T_Hb  
+##### 16200#       发表于 2021-6-1 23:52
+
+
+希望明天能播<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Mikumiku831  
+##### 16201#       发表于 2021-6-2 00:26
+
+
+经典mix辣耳朵<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+苦学音乐希望有朝一日能给mea mix 替代这个B<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+         

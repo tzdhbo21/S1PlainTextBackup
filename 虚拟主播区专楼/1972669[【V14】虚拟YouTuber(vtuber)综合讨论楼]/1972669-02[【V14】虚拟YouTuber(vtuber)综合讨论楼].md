@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-01 21:53** 
+> ## **本文件最后更新于2021-06-02 00:41** 
 
 
 
@@ -1218,6 +1218,21 @@ wuwuwu<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" refe
 虽然已经错过了当时叔叔捧神的最佳时机，但是月灵还是用实力轻松征服了直播间<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 弥杀弥杀| + 1||
+
+
+查看全部评分
+
+
 -----
 
 ####  Hemis  
@@ -1270,6 +1285,22 @@ wuwuwu<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" refe
 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太对了
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|欢乐多|
+| Suny08| + 1|欢乐多|
+
+
+查看全部评分
+
+
 -----
 
 ####  Ronso  
@@ -1297,4 +1328,289 @@ wuwuwu<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" refe
 好久没变月综了<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
 
 
-                                              
+-----
+
+####  tankai  
+##### 1600#       发表于 2021-6-1 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444184&amp;ptid=1972669" target="_blank">Finsty 发表于 2021-6-1 21:51</a>
+
++R by [像个婴儿一样] (2021-06-01 21:49)
+
+
+怎么说呢，唱着这首歌突破一百万人气，真的有种把小陈送走的感 ...</blockquote>
+敲锣打鼓 PIC  GIF
+
+
+-----
+
+####  tankai  
+##### 1601#       发表于 2021-6-1 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444202&amp;ptid=1972669" target="_blank">a37356205 发表于 2021-6-1 21:53</a>
+
+听着真像幼儿园老师啊</blockquote>
+这幼儿园上不起<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ronso  
+##### 1602#       发表于 2021-6-1 21:55
+
+
+月综回来了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Unlight  
+##### 1603#       发表于 2021-6-1 21:56
+
+
+我还要月综<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kikiwalu  
+##### 1604#       发表于 2021-6-1 21:59
+
+
+六一节在月灵姐姐面前又一次化身为儿童<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  caupollen  
+##### 1605#       发表于 2021-6-1 22:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">下次什么时候啊 不够啊
+
+
+-----
+
+####  natmk  
+##### 1606#       发表于 2021-6-1 22:02
+
+
+我这个不看V的都觉得月灵姐姐太强了唱的太好听了 B限能不能来多点油管也行啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JoelBirch  
+##### 1607#       发表于 2021-6-1 22:06
+
+
+虽然今天还是没有老任新机，但月灵姐姐这一播属实是牛批的儿童节礼物<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ledo  
+##### 1608#       发表于 2021-6-1 22:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+6月1日22:00，著名粉头月临碧海在漪月灵-Aether-首次B限未开通大航海服务，望周知。
+
+免费你咋了呀免费
+
+
+-----
+
+####  JoelBirch  
+##### 1609#       发表于 2021-6-1 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51444420&amp;ptid=1972669" target="_blank">ledo 发表于 2021-6-1 22:12</a>
+
+6月1日22:00，著名粉头月临碧海在漪月灵-Aether-首次B限未开通大航海服务，望周知。
+
+免费你咋了呀 ...</blockquote>
+别跟着隔壁尬黑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210601222832.png
+(2.42 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-1 22:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/01/222859mzdeheh3gu4xu01i.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  魔法少女大头  
+##### 1610#       发表于 2021-6-1 22:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">月综上一次讨论月神学习院是在V几来着的。
+
+
+-----
+
+####  Junchoon  
+##### 1611#       发表于 2021-6-1 22:41
+
+
+看完了只能说降维打击、降维打击......
+
+
+话说我还是喜欢老皮啊，老皮是什么原因不能用来着？
+
+
+-----
+
+####  free  
+##### 1612#       发表于 2021-6-1 22:45
+
+
+[https://www.bilibili.com/video/BV1M64y1R7R5](https://www.bilibili.com/video/BV1M64y1R7R5)
+
+5:42 Part of your world
+
+12:32 茉莉花
+
+18:54 キミガタメ
+
+34:22 恐山ル・ヴォワール
+
+46:00 给我一双翅膀
+
+
+-----
+
+####  Unlight  
+##### 1613#       发表于 2021-6-1 22:56
+
+
+那个《キミガタメ》太厉害了…
+
+
+（我来晚了，进直播的时候没多会儿就《给我一双翅膀》了
+
+
+-----
+
+####  JoelBirch  
+##### 1614#       发表于 2021-6-1 22:59
+
+
+其实今天还是紧张而且说话太多了，嗓子有点点哑，后面差一口气没唱收住了
+
+
+-----
+
+####  seki_m  
+##### 1615#       发表于 2021-6-1 23:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">灵…我的灵
+
+
+-----
+
+####  flyskywalker92  
+##### 1616#       发表于 2021-6-1 23:35
+
+
+月综 <img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shenqi2552  
+##### 1617#       发表于 2021-6-1 23:37
+
+
+月灵姐……我的月灵姐，下次什么时候播呢
+
+
+-----
+
+####  JoelBirch  
+##### 1618#       发表于 2021-6-1 23:43
+
+
+月灵大小姐真的在过生日，没有设定，都是真物<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  langsheng  
+##### 1619#       发表于 2021-6-1 23:49
+
+
+月灵姐姐，你把我带走吧，月灵姐姐，呜呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/210.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hemis  
+##### 1620#       发表于 2021-6-1 23:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么不是免费
+
+
+image.png
+(38.85 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-1 23:57 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/01/235754lsc44h3a22cg4iqc.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Ronso  
+##### 1621#       发表于 2021-6-2 00:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51445376&amp;ptid=1972669" target="_blank">Hemis 发表于 2021-6-1 23:58</a>
+怎么不是免费</blockquote>
+关注免费每天看圆脸视频嘛<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  caupollen  
+##### 1622#       发表于 2021-6-2 00:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  长谷川红叶  
+##### 1623#       发表于 2021-6-2 00:17
+
+
+ 本帖最后由 长谷川红叶 于 2021-6-2 00:19 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">切片已经出了，适合综友循环，现场直接上细节很丰富，真的别有味道。
+
+姐姐带走我！
+[【漪月灵】20210601歌切片合集](https://www.bilibili.com/video/BV1p64y1R79i)
+
+
+                                             
