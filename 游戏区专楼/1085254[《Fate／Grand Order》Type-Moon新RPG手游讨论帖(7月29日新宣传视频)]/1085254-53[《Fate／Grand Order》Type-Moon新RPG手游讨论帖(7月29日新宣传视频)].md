@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-26 10:13** 
+> ## **本文件最后更新于2021-06-01 20:14** 
 
 
 
@@ -9198,4 +9198,337 @@ b叔守着一个传承结晶
 <img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">公车变私车也是黄油的常规剧情吧。
 
 
-                       
+-----
+
+####  阿提拉  
+##### 78783#       发表于 2021-5-26 17:23
+
+
+藤乃强化...已经完全没有补宝具的兴致了
+
+
+-----
+
+####  xiongxingyu  
+##### 78784#       发表于 2021-5-26 18:21
+
+
+上头了，0.7%强抽藤乃，出了2个巴妈，1个阿紫，一个肯娘和一个马老师<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+终于离全图鉴（几个搞不到的活动从者不算）就只差水莫和雷帝了，不知道这两人何时能复刻，在各个海景房纷纷落地的现在，雷帝也是个海景房了吧。
+
+
+-----
+
+####  khxooo  
+##### 78785#       发表于 2021-5-26 22:00
+
+
+看完剧情还是那句，徐福快落地吧<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 78786#       发表于 2021-5-26 23:09
+
+
+终于抽到巴御前了，感动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">洗蜡笔，我滴超人
+
+
+-----
+
+####  UNISONIA  
+##### 78787#       发表于 2021-5-27 08:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51381418&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-5-26 22:00</a>
+
+看完剧情还是那句，徐福快落地吧</blockquote>
+银卡拿不准他们会塞在哪里<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 78788#       发表于 2021-5-27 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51384619&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-5-27 08:58</a>
+
+银卡拿不准他们会塞在哪里</blockquote>
+我觉得吧，按照徐福的人气，十有八九不会银卡落地了，反正照现在的样子建模啥的估计都没做过，肯定回炉做成5星骗氪啊，你看冠位弓不就因为蘑菇一句话从1星直升5星了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UNISONIA  
+##### 78789#       发表于 2021-5-27 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51385513&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-5-27 10:14</a>
+
+我觉得吧，按照徐福的人气，十有八九不会银卡落地了，反正照现在的样子建模啥的估计都没做过，肯定回炉做 ...</blockquote>
+虽然有个尼莫的先例……但是我还是想说徐福的人气没有想象中那么高，甚至没有超过当年的不落地角色拉薇妮亚
+
+
+另，超熊其实在开服解包里（只不过那时候很多人觉得和月神是同一个，但是代码是不一样的）。一星最多是策划时期的事情了
+
+
+-----
+
+####  xiongxingyu  
+##### 78790#       发表于 2021-5-27 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51385623&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-5-27 10:23</a>
+
+虽然有个尼莫的先例……但是我还是想说徐福的人气没有想象中那么高，甚至没有超过当年的不落地角色拉薇妮 ...</blockquote>
+拉维妮娅只不过缺个落地的口实罢了，说真的哪天突然活动里5星空降了我也不会感到奇怪。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主要是现在三星从者明显有被运营抛弃的倾向，最近的一个居然已经是2.5.1的曼迪了，上一个三星女人已经是7章的老虎了，还是故事卡池限定。毕竟三星太容易出骗不到啥钱，又不像1,2星一样算是白送可以骗一波口碑（不得不说信胜这波确实高明）。徐福这种人气剧情都有了的角色放到普池三星太不合算，放故事限定剧情难编（除非真的在2.6登场了）做限定骗氪赚得不多又显得吃相难看，不做成金卡骗氪的话还不如找个方法（变1,2星或者活动从者）送了呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 78791#       发表于 2021-5-27 13:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这八字还没一撇的东西有什么好奶的....不如来奶一下今年夏活会落地哪些泳装
+
+
+-----
+
+####  khxooo  
+##### 78792#       发表于 2021-5-27 14:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51388082&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-5-27 13:17</a>
+这八字还没一撇的东西有什么好奶的....不如来奶一下今年夏活会落地哪些泳装 ...</blockquote>
+艾蕾<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78793#       发表于 2021-5-27 14:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">艾蕾那么可爱为什么神隐到现在
+
+
+-----
+
+####  黑上シグマ  
+##### 78794#       发表于 2021-5-27 16:01
+
+
+大概是为了能在流水实在不行了的时候放出来骗一波大课？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  都谷捻柏  
+##### 78795#       发表于 2021-5-27 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51389814&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-5-27 16:01</a>
+
+大概是为了能在流水实在不行了的时候放出来骗一波大课？
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么流水实在不行的标准是什么呢
+
+
+-----
+
+####  龙星丸  
+##### 78796#       发表于 2021-5-27 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">还艾蕾泳装呢，最透明呆黑枪呆赶紧出啊。
+
+
+-----
+
+####  qixinno2  
+##### 78797#       发表于 2021-5-27 20:15
+
+
+黑枪呆出这灵衣我抽爆
+
+
+f0Q2o-jpd3ZcT3cSsg-ld.jpg
+(125.09 KB, 下载次数: 1)
+
+
+下载附件
+
+
+2021-5-27 20:15 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/27/201522f5ddt7f1smfrrm76.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78798#       发表于 2021-5-27 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51392253&amp;ptid=1085254" target="_blank">龙星丸 发表于 2021-5-27 20:10</a>
+还艾蕾泳装呢，最透明呆黑枪呆赶紧出啊。</blockquote>
+一起出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 78799#       发表于 2021-5-27 23:13
+
+
+三年了，已经三年没有给新龙娘了<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  龙星丸  
+##### 78800#       发表于 2021-5-27 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51394147&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-5-27 23:13</a>
+
+三年了，已经三年没有给新龙娘了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泳装大龙娘不是龙娘吗
+
+
+-----
+
+####  里村紅葉  
+##### 78801#       发表于 2021-5-27 23:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51394178&amp;ptid=1085254" target="_blank">龙星丸 发表于 2021-5-27 23:17</a>
+
+泳装大龙娘不是龙娘吗</blockquote>
+当然不是<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78802#       发表于 2021-5-29 21:38
+
+
+上次用达芬骑慢慢刮痧，这次用仇凛差不多每一回合都可以放宝具，爽多了。
+
+
+-----
+
+####  清风朗月  
+##### 78803#       发表于 2021-5-29 22:03
+
+
+今年HF座谈会，庄主提问菌类他自己都说了艾蕾的泳装，所以说他自己是知道艾蕾人气也知道憋了很久的，去年武内没有画氪金泳装从者，所以今年奶一个R姐，如果还是男性灵衣的话也许是大狗，Wada的话奶一个船长，其余的都不喜欢出了也不氪，泳装从者其实也有规律往历年的泳装氪金礼装找，当然今年如果掀桌子就未可知了
+
+
+-----
+
+####  風卷豹  
+##### 78804#       发表于 2021-5-31 11:43
+
+
+泳装男性灵衣大狗最大的敌人应该是以藏，毕竟以藏是钦点的五大男爱豆<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  仰望神的括约肌  
+##### 78805#       发表于 2021-5-31 23:07
+
+
+五呼符浣浣入手 时隔半年终于出新五星了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 78806#       发表于 2021-6-1 06:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">艹 想抽藤乃结果出了阿比 这次泳装复刻好JB怪啊 二宝水院一宝水阿比
+
+
+-----
+
+####  黑上シグマ  
+##### 78807#       发表于 2021-6-1 17:43
+
+
+明天晚上要搞个回顾节目的样子……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  不垃圾屌丝  
+##### 78808#       发表于 2021-6-1 19:09
+
+
+淦，那个舅舅的情报怎么看着有点靠谱啊，这种瞎JB缝的风格确实像型月会干出来的<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  exiaexa  
+##### 78809#       发表于 2021-6-1 19:16
+
+
+这先导剪辑
+
+明天要开的是队长追悼会吗艹
+
+
+不过如果真的是队长追悼会，新主线应该跑不了了
+
+总不能开个追悼会然后接一个沙雕活动
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 78810#       发表于 2021-6-1 19:17
+
+
+走 马 灯<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你游药丸（确信）
+
+
+
+
+-----
+
+####  zakki  
+##### 78811#       发表于 2021-6-1 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51442421&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-6-1 19:09</a>
+淦，那个舅舅的情报怎么看着有点靠谱啊，这种瞎JB缝的风格确实像型月会干出来的
+
+—— 来自 Sony XQ ...</blockquote>
+说靠谱也不靠谱，竟然没有日本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                      
