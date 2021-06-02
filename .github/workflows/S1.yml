@@ -4,11 +4,9 @@
 name: Update S1
 
 on: 
-  push
-  # schedule触发不规律，改为push触发，这样遇见S1崩溃时可以自动停止。
-  #schedule:
+  schedule:
     # * is a special character in YAML so you have to quote this string
-  #  - cron:  '16 */1 * * *'  
+    - cron:  '0 */1 * * *'  
 jobs:
   deploy:
 
