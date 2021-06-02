@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-02 00:40** 
+> ## **本文件最后更新于2021-06-03 05:46** 
 
 
 
@@ -50,7 +50,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103506frrpzpxukuzozovv.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_2-768x432.jpg</strong> (11.31 KB, 下载次数: 4)
+<strong>Sony-Xperia-1-III-Mark-3_Render_2-768x432.jpg</strong> (11.31 KB, 下载次数: 5)
 
 下载附件
 
@@ -60,7 +60,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103506nfhc9uj2qn7z9epj.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_3-768x432.jpg</strong> (14 KB, 下载次数: 4)
+<strong>Sony-Xperia-1-III-Mark-3_Render_3-768x432.jpg</strong> (14 KB, 下载次数: 5)
 
 下载附件
 
@@ -90,7 +90,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/104512tn9naa4e00t8na4n.png" referrerpolicy="no-referrer">
 
 
-<strong>Xperia-1-III-periscope-camera.png</strong> (46.54 KB, 下载次数: 2)
+<strong>Xperia-1-III-periscope-camera.png</strong> (46.54 KB, 下载次数: 3)
 
 下载附件
 
@@ -7755,4 +7755,174 @@ Pixel 4/XL？
 —— 来自 [S1Fun](https://s1fun.koalcat.com)
 
 
-                               
+-----
+
+####  我很费纸  
+##### 559#       发表于 2021-6-2 01:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51443539&amp;ptid=1985265" target="_blank">WosunOO 发表于 2021-6-1 20:57</a>
+说起来810的z5p也买了，然后中间就买了一台xz2，然后又是火龙888，每次买大法都碰到这种事，感觉很难受 ...</blockquote>
+这一点消费降级选865真的不是不可以……所谓870不就是865++？
+
+虽然推荐865这一代别升Android 11就是了，我自己现在还是有调度bug，CPU跑分不如Android 10版本。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wqm2008  
+##### 560#       发表于 2021-6-2 02:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51442582&amp;ptid=1985265" target="_blank">lolozp 发表于 2021-6-1 19:27</a>
+
+话说无刘海手机还有别的可选么
+
+
+很久不关注手机了，真心想问</blockquote>
+ROG 
+
+
+-----
+
+####  zhongjie  
+##### 561#       发表于 2021-6-2 07:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51442582&amp;ptid=1985265" target="_blank">lolozp 发表于 2021-6-1 19:27</a>
+话说无刘海手机还有别的可选么
+
+很久不关注手机了，真心想问</blockquote>
+游戏手机还有，拯救者2Pro rog5
+
+—— 来自 samsung SM-G9980, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  xzk0916  
+##### 562#       发表于 2021-6-2 10:45
+
+
+558L提到的这个 [https://www.bilibili.com/video/BV1vA41137Hu](https://www.bilibili.com/video/BV1vA41137Hu)
+
+和 [https://www.bilibili.com/video/BV14w411Z7Gg](https://www.bilibili.com/video/BV14w411Z7Gg) 似乎都在说发热和续航不太理想<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  allenz2  
+##### 563#       发表于 2021-6-2 10:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51447865&amp;ptid=1985265" target="_blank">xzk0916 发表于 2021-6-2 10:45</a>
+
+558L提到的这个 [https://www.bilibili.com/video/BV1vA41137Hu](https://www.bilibili.com/video/BV1vA41137Hu)
+
+和 [https://www.bilibili.com/video/BV14w41](https://www.bilibili.com/video/BV14w41) ...</blockquote>
+有人跑了压力测温，最高43°，其实和上一代差不多，温控保守一高就降频，个人觉得问题应该不大，毕竟865跑全开原神一样有烫手
+
+
+-----
+
+####  xzk0916  
+##### 564#       发表于 2021-6-2 10:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51447909&amp;ptid=1985265" target="_blank">allenz2 发表于 2021-6-2 10:50</a>
+
+有人跑了压力测温，最高43°，其实和上一代差不多，温控保守一高就降频，个人觉得问题应该不大，毕竟865跑 ...</blockquote>
+可以给个链接吗
+
+
+其实我个人不关心游戏表现的，只要平时一直开120Hz不会温热、能坚持一天一充就够了
+
+
+-----
+
+####  allenz2  
+##### 565#       发表于 2021-6-2 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51447969&amp;ptid=1985265" target="_blank">xzk0916 发表于 2021-6-2 10:54</a>
+
+可以给个链接吗
+
+
+其实我个人不关心游戏表现的，只要平时一直开120Hz不会温热、能坚持一天一充就够了 ...</blockquote>
+[https://www.bilibili.com/video/BV1sw411Z7KP](https://www.bilibili.com/video/BV1sw411Z7KP)
+
+
+-----
+
+####  若荼泱  
+##### 566#       发表于 2021-6-2 18:04
+
+
+简介里没有“本期没有恰饭”，看来这次大法真的是下血本宣传了。
+
+
+-----
+
+####  leystage  
+##### 567#         楼主| 发表于 2021-6-2 18:13
+
+
+<blockquote>若荼泱 发表于 2021-6-2 18:04
+https://www.bilibili.com/video/av290914396
+
+简介里没有“本期没有恰饭”，看来这次大法真的是下血本宣传 ...</blockquote>
+哈哈哈哈… 这个原视频链接是什么？我要转一下
+
+
+-----
+
+####  leystage  
+##### 568#         楼主| 发表于 2021-6-2 18:14
+
+
+哦，回复就看到了。。。
+
+
+-----
+
+####  若荼泱  
+##### 569#       发表于 2021-6-2 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51451991&amp;ptid=1985265" target="_blank">leystage 发表于 2021-6-2 18:13</a>
+
+哈哈哈哈… 这个原视频链接是什么？我要转一下</blockquote>
+很奇怪……应该是 av 号自动被“优化”成播放器了，但是 bv 号却没有
+[https://greasyfork.org/zh-CN/scripts/396726](https://greasyfork.org/zh-CN/scripts/396726) 用这脚本可以删掉
+
+
+-----
+
+####  allenz2  
+##### 570#       发表于 2021-6-2 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51451876&amp;ptid=1985265" target="_blank">若荼泱 发表于 2021-6-2 18:04</a>
+https://www.bilibili.com/video/av290914396
+
+简介里没有“本期没有恰饭”，看来这次大法真的是下血本宣传 ...</blockquote>
+有没有恰饭看视频内容就知道了，明显的媒体通稿，除了一两个视频外其他关注的点都一毛一样，而且好几个up拍了打篮球，怕不是统一给素材
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  Cray  
+##### 571#       发表于 2021-6-3 04:09
+
+
+我还以为多热，43度调度还是保守了。
+
+
+                              
