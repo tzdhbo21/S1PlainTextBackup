@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-02 20:25** 
+> ## **本文件最后更新于2021-06-02 22:50** 
 
 
 
@@ -15380,4 +15380,759 @@ emmmmmmm 我就当是小两口吵架了 就不劝了
 她从出道到20年前她TC的次数不过5-8次，她说过只有当自己努力了才会来tc直播，而她从20年开始就及大幅度增加tc时常甚至好几个月超过了自己频道的直播，游戏不播了油管永远是歌回，当时还是她在准备bls。现在看来她从那个时候开始直播心态就已经变了。身边的人也是她的话该听的从来不听不该听的全部执行
 
 
-     
+-----
+
+####  A2014720  
+##### 16328#       发表于 2021-6-2 20:26
+
+
+什么叫该听的话不该听的话<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+爱看看不看滚，爱播播不播滚好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16329#       发表于 2021-6-2 20:27
+
+
+破案了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/02/202700i2d9141070l1t291.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210602202645.png</strong> (15.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-2 20:27 上传
+
+
+-----
+
+####  草牛  
+##### 16330#       发表于 2021-6-2 20:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就开十个小号狂暴轰入你麻
+
+
+-----
+
+####  路人庚  
+##### 16331#       发表于 2021-6-2 20:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然突然没东西看了闲着无聊但也不至于这么天马行空吧，“身边的人该听的不听”，“身边的人”是指谁？不会说的是直播间的观众吧
+
+
+说到底还是5月底遇到事了心态大爆炸，结果你咩姐自己在那玩谜语，回应只有“跟男朋友分手了？”“不是男朋友的事”
+
+
+然后闭嘴不谈，强颜欢笑以为自己很坚强，非要走个entertainment创造者的爱豆路线
+
+
+看上去水平很高，自我要求很高，可惜终究她自己还是遭不住，那能咋办嘛？
+
+
+syl，这s1真实便秘一样的体验
+
+
+zsyl，搞小号销号可太行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16332#       发表于 2021-6-2 20:37
+
+
+真说出来又是以前那套传播负能量给观众看着很不爽脱粉了balabala了
+
+
+不得不说傻卵种类而言天狗这边一直是五毒俱全，包括我在内
+
+
+-----
+
+####  llconforever  
+##### 16333#       发表于 2021-6-2 20:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">惊了，这年头居然还有p限相关ttk的。原来天狗中的p限民还没死绝吗
+
+
+-----
+
+####  Joffre✔  
+##### 16334#       发表于 2021-6-2 20:42
+
+
+这批限民还未必是天狗中呢，指不定是(天狗)山外势力煽动
+
+
+-----
+
+####  路人庚  
+##### 16335#       发表于 2021-6-2 20:43
+
+
+ 本帖最后由 路人庚 于 2021-6-2 20:46 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我反正个人觉得看的最舒服的就是你咩姐看人不爽直接喷的人狗血淋头的那种
+
+
+看她阴阳怪气和倒苦水发牢骚那确实属于传播负能量，都差了很多意思，只希望你咩姐哪天能想明白，不要发牢骚要直接喷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+syl，啊，如果也许是阿b的直播规定里写着主播不能骂人所以你咩姐才少骂了，那属实没法了，你咩姐就自个到无人小号喷人罢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 16336#       发表于 2021-6-2 20:44
+
+
+换个想法，追问后发现小麻破防了，然后十分后悔就删号了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl 小麻什么时候才能接受大家扭曲的爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16337#       发表于 2021-6-2 20:45
+
+
+“十分后悔”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正我是开心极了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 16338#       发表于 2021-6-2 20:45
+
+
+那真是亚撒西捏<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16339#       发表于 2021-6-2 20:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51453823&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-6-2 20:43</a>
+我反正个人觉得看的最舒服的就是你咩姐看人不爽直接喷的人狗血淋头的那种
+
+
+看她阴阳怪气和倒苦水发 ...</blockquote>
+无人小号，女主角2.0是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16340#       发表于 2021-6-2 20:51
+
+
+删号然后把夜宵的皮带上正式出道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 16341#       发表于 2021-6-2 20:51
+
+
+等呗 我现在也冷静下来了 大概率没啥节奏 说不定她凌晨开个TC说一下 明天或者后天就又正常播了 6月5号还有节目呢 虽然是提前录制好的 她那天不可能不宣传吧
+
+
+-----
+
+####  呓亘  
+##### 16342#       发表于 2021-6-2 20:51
+
+
+风怒
+
+
+-----
+
+####  路人庚  
+##### 16343#       发表于 2021-6-2 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51453914&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-6-2 20:50</a>
+
+无人小号，女主角2.0是吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这也是她自己说的，而且说了不止一次
+
+
+-----
+
+####  时间在我手中  
+##### 16344#       发表于 2021-6-2 20:52
+
+
+干脆别播，周年直接宣布毕业，学习gbr精神完事，省的傻卵天天烦
+
+
+-----
+
+####  呓亘  
+##### 16345#       发表于 2021-6-2 20:54
+
+
+ 本帖最后由 呓亘 于 2021-6-2 20:55 编辑 
+
+编辑
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|请私信我|
+| 路人庚| + 1|不要这么大声说出来|
+
+
+查看全部评分
+
+
+-----
+
+####  时间在我手中  
+##### 16346#       发表于 2021-6-2 20:54
+
+
+那更好了，没了批站就不用管傻逼官组了，完美
+
+
+-----
+
+####  JY要塞  
+##### 16347#       发表于 2021-6-2 20:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不还是转回过期隐退结婚带娃的老路上了么
+
+
+-----
+
+####  雪风utopia  
+##### 16348#       发表于 2021-6-2 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51453953&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-2 20:52</a>
+干脆别播，周年直接宣布毕业，学习gbr精神完事，省的傻卵天天烦</blockquote>
+能不能出一件新衣服再毕业啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16349#       发表于 2021-6-2 20:59
+
+
+出新衣服浪费资源 裸着不是更好吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  gongge666  
+##### 16350#       发表于 2021-6-2 21:04
+
+
+说到底连转播都不是她自愿开的，完全是帕里越权强开的，以她的性格你们觉得没有帕里记者能从她手里拿到转播权么。<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">不安desu。我们已经“逼”她太多了，我相信就算到现在依然有不少人邮件骚扰她，以前多的时候每天上百封国内邮件，也别怪她对中文梁木，接下来的路路让她自己走吧，我们偶尔去油管tc看看她直播就行了。本来最早就说好只做3年直播的，我也是以看3年直播的心态看她直播的，我希望她不要毕业，但我肯定要毕业了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 古战场亡魂|-2|给我逗乐了|
+| Cushaw|-1|笑死了，会说就多说点|
+
+
+查看全部评分
+
+
+
+
+-----
+
+####  A2014720  
+##### 16351#       发表于 2021-6-2 21:05
+
+
+呃呃，真有人信她对中文梁木/害怕中文啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 16352#       发表于 2021-6-2 21:11
+
+
+泥哥信啊，骂你数字家你还不能难受，数字家是中文，所以难受就是怕中文，怕中文就是fh。
+
+
+-----
+
+####  甘栗No.007  
+##### 16353#       发表于 2021-6-2 21:12
+
+
+dm建议都是日文的吧，要相信云p的专业性<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16354#       发表于 2021-6-2 21:15
+
+
+想想也是，你不过来那不是不打自招了吗，哦不对你过来也是怕了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千里夜雨  
+##### 16355#       发表于 2021-6-2 21:42
+
+
+ 本帖最后由 千里夜雨 于 2021-6-2 22:11 编辑 
+
+希望提哈鲁未来不要成为et那样的人.jpg
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">狂飙垃圾话，激寒
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了|-1|喜得贵子|
+| 路人庚|-1|🔒|
+| 路人辰|-1|了|
+
+
+查看全部评分
+
+
+-----
+
+####  时间在我手中  
+##### 16356#       发表于 2021-6-2 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51454782&amp;ptid=1973472" target="_blank">千里夜雨 发表于 2021-6-2 21:42</a>
+
+希望提哈鲁未来不要成为et那样的人.jpg</blockquote>
+那我还希望你这种人赶紧死绝呢
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|百年好合|
+| 路人庚| + 1|🔒|
+| 路人辰| + 1|了|
+
+
+查看全部评分
+
+
+-----
+
+####  肥到终点  
+##### 16357#       发表于 2021-6-2 22:12
+
+
+还差个龙魂和mk2，就能复刻连体楼了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 16358#       发表于 2021-6-2 22:14
+
+
+贴贴！！！！贴贴！！！！！！
+
+
+-----
+
+####  weiweiEX  
+##### 16359#       发表于 2021-6-2 22:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">mk2不行，我跟et也成
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 肚子疼了| + 1|修罗场？|
+
+
+查看全部评分
+
+
+-----
+
+####  llconforever  
+##### 16360#       发表于 2021-6-2 22:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">我吐了，楼友贴贴还不如TTK呢
+
+
+-----
+
+####  A2014720  
+##### 16361#       发表于 2021-6-2 22:19
+
+
+多来点，咩姐喜欢
+
+
+-----
+
+####  掉头学姐  
+##### 16362#       发表于 2021-6-2 22:20
+
+
+好无聊啊，这样子还不如麻放个最大烟花毕业呢
+
+
+当初bls直接删号毕业剧本挺不错的，比平淡中死亡好
+
+
+-----
+
+####  A2014720  
+##### 16363#       发表于 2021-6-2 22:22
+
+
+y1s1单就404吃饭完全不成问题，上哪再去找这么舒服的工作啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 16364#       发表于 2021-6-2 22:25
+
+
+对麻来说，肯定是这样最舒服了，但对个人来说还是希望上演点神奇剧情啊
+
+
+-----
+
+####  Klience  
+##### 16365#       发表于 2021-6-2 22:29
+
+
+妈的 洗完澡一进楼就感到一股男同的气息 他们两个一直都是这样的吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 16366#       发表于 2021-6-2 22:29
+
+
+平平淡淡才是真啊<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16367#       发表于 2021-6-2 22:29
+
+
+【非公开投稿-哔哩哔哩】https://b23.tv/i5Ebaz
+
+
+不不不去年已经很神奇了，人活久了什么都会见到的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16368#       发表于 2021-6-2 22:32
+
+
+ 本帖最后由 路人庚 于 2021-6-2 22:36 编辑 
+
+真是令人感叹，当年面对几千个纯孝子刷屏都不动声色的咩姐，如今面对一两个傻逼评论只能夹着尾巴跑路
+
+
+只能说阿b（包含网站汗观众）在你咩姐心中的重要性要比它对我的重要性大得多了（感觉说了句废话，你咩姐至少有一部分要靠它吃饭，而我却不完全只靠它消遣，差别太大了
+
+
+-----
+
+####  Dualist彩  
+##### 16369#       发表于 2021-6-2 22:32
+
+
+累了，毁灭吧
+
+                  
+
+只有小麻可以填补我的空虚，当舔狗好tm爽
+
+
+-----
+
+####  千里夜雨  
+##### 16370#       发表于 2021-6-2 22:32
+
+
+<img src="https://img.saraba1st.com/forum/202106/02/222827zenijzmeea0ai7iv.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (27.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-2 22:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/02/222827q1qtsz8qv4cs1qhf.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (26.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-2 22:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/02/222828t7o1s33q6h1g1znc.png" referrerpolicy="no-referrer">
+
+
+<strong>3.png</strong> (20.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-2 22:28 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/02/223016rk55gkzkl7uvxlsw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Cache_-3c2c9d6fcd60ee83..jpg</strong> (22.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-2 22:30 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们要的楼友贴贴，下面是zaz
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 -3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘|-2|好甜啊！！！！|
+| A2014720|-1|什么神仙cp啊|
+
+
+查看全部评分
+
+
+-----
+
+####  Klience  
+##### 16371#       发表于 2021-6-2 22:35
+
+
+突然感觉千里这个签名是写给et的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 16372#       发表于 2021-6-2 22:36
+
+
+艹啊，小说般的男桐对话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肚子疼了  
+##### 16373#       发表于 2021-6-2 22:38
+
+
+这什么神仙cp<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ShyCrazydog  
+##### 16374#       发表于 2021-6-2 22:38
+
+
+md你们吵架能不能自己回床上解决，太激寒了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 16375#       发表于 2021-6-2 22:38
+
+
+妈的，什么文爱
+
+
+-----
+
+####  Klience  
+##### 16376#       发表于 2021-6-2 22:38
+
+
+傲娇暴躁et和对他不离不弃的千里 gay死了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16377#       发表于 2021-6-2 22:40
+
+
+把这段翻译成日语发给mea也许可以让她沉迷BL从而帮助精神恢复（）
+
+
+-----
+
+####  千里夜雨  
+##### 16378#       发表于 2021-6-2 22:41
+
+
+ 本帖最后由 千里夜雨 于 2021-6-2 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51455479&amp;ptid=1973472" target="_blank">Klience 发表于 2021-6-2 22:35</a>
+
+突然感觉千里这个签名是写给et的</blockquote>
+这个签名是我离开的第三年崩坏学园吧的吧友在我不在时聊起来我说的，
+
+好几个人在讨论我离开后是不是有了份好工作，是不是在其他领域过得很好
+
+后来别人召唤我过去我看到的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我觉得不是很好意思跟他们讲我之后去看套皮女主播还剪了一堆视频。
+
+对我而言实在是谈不上兑现了人家的美好想象。
+
+能做到的只有不自甘堕落，过得相对好吧。
+
+
+顺带一提，我跳一跳1484，诸位可以打开游戏试试。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16379#       发表于 2021-6-2 22:43
+
+
+[https://www.bilibili.com/video/BV1fV411x7cA/](https://www.bilibili.com/video/BV1fV411x7cA/)
+
+睡了，今天计划又被干碎了
+
+
+是不是要谢谢这傻卵的福老子翻了一百多条轴，然后我游戏基本跟没打差不多
+
+
+-----
+
+####  zaz5554  
+##### 16380#       发表于 2021-6-2 22:46
+
+
+女人不看你们一眼你们就给成这样了，害怕
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 16381#       发表于 2021-6-2 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51455583&amp;ptid=1973472" target="_blank">zaz5554 发表于 2021-6-2 22:46</a>
+女人不看你们一眼你们就给成这样了，害怕</blockquote>
+你也给爷死一死
+
+
+-----
+
+####  A2014720  
+##### 16382#       发表于 2021-6-2 22:47
+
+
+回看视频“如果让大家感到不快就不做了”
+
+也许真就最后一次直播了？<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16383#       发表于 2021-6-2 22:48
+
+
+五号之后再无神乐女士。m楼解散！
+
+
+-----
+
+####  Klience  
+##### 16384#       发表于 2021-6-2 22:49
+
+
+不也挺好的吗.jpg
+
+
+   

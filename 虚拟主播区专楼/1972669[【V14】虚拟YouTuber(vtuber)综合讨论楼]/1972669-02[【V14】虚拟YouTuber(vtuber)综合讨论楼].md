@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-02 00:41** 
+> ## **本文件最后更新于2021-06-02 22:53** 
 
 
 
@@ -1613,4 +1613,293 @@ image.png
 [【漪月灵】20210601歌切片合集](https://www.bilibili.com/video/BV1p64y1R79i)
 
 
-                                             
+-----
+
+####  NBXX  
+##### 1624#       发表于 2021-6-2 00:45
+
+
+<img src="https://p.sda1.dev/2/2ab037411b8b95424cd4b4927b21590e/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tankai  
+##### 1625#       发表于 2021-6-2 00:47
+
+
+露西亚YYDS。<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 1626#       发表于 2021-6-2 00:56
+
+
+居然有sky<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flyskywalker92  
+##### 1627#       发表于 2021-6-2 06:13
+
+
+能播就行了 皮不皮的 看淡了
+
+
+-----
+
+####  ShuTk4O  
+##### 1628#       发表于 2021-6-2 08:39
+
+
+<blockquote>エーテル🌌Vtuberなのです✨
+@AT_Crescentia
+ゴールデンハムスター1000匹が1元……？？？？？？ゴールデンハムスター？？？？？？🐹？？？？？？
+
+12:12 AM · Jun 2, 2021·Twitter for Android</blockquote>大小姐半夜不睡觉对着手机数钱
+别数了，又没几个钱
+
+
+-----
+
+####  ShuTk4O  
+##### 1629#       发表于 2021-6-2 08:39
+
+
+.
+
+
+-----
+
+####  ShuTk4O  
+##### 1630#       发表于 2021-6-2 08:39
+
+
+.
+
+
+-----
+
+####  ShuTk4O  
+##### 1631#       发表于 2021-6-2 08:40
+
+
+ 本帖最后由 ShuTk4O 于 2021-6-2 08:41 编辑 
+
+我发誓我没点那么多次提交……
+
+
+-----
+
+####  夜玄言  
+##### 1632#       发表于 2021-6-2 09:14
+
+
+阿希的apex抽卡专武居然还能用？瞬间从倒数前十到第十了，这一场得有多少啊
+
+
+-----
+
+####  noHentai  
+##### 1633#       发表于 2021-6-2 09:44
+
+
+VTuberというIPを生み出す『にじさんじ』の歩みとこれから【前編】
+[https://cocotame.jp/series/019706/](https://cocotame.jp/series/019706/)
+
+
+VTuberというIPを生み出す『にじさんじ』の歩みとこれから【後編】
+[https://cocotame.jp/series/019733/](https://cocotame.jp/series/019733/)
+
+
+-----
+
+####  Hemis  
+##### 1634#       发表于 2021-6-2 10:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少阿B那个数字看起来吓人
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">昨天1小时去各种费用前是100多万日元？我看到是7万多接近8万
+
+那时候如果直接蹭热度来B可能直接千舰了吧
+
+
+-----
+
+####  ひびき  
+##### 1635#       发表于 2021-6-2 11:37
+
+
+直接一步到位拜年祭或者跨年算了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+叔叔白嫖一个国家队级别不香吗来自: iPhone客户端
+
+
+-----
+
+####  ひびき  
+##### 1636#       发表于 2021-6-2 11:38
+
+
+不过cr最近sm的有点厉害，还是算了，大小姐还是偶尔来高雅艺术进校园算了来自: iPhone客户端
+
+
+-----
+
+####  Porsche  
+##### 1637#       发表于 2021-6-2 11:47
+
+
+当初我去通知负责联络对接管人的佬已经换部门了，现在也不知道是谁在担当这事，但是阿B当时内部在抢是真的，结果从这个模型完成度来看，不知道这半年到底在忙活啥<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 1638#       发表于 2021-6-2 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51448551&amp;ptid=1972669" target="_blank">Porsche 发表于 2021-6-2 11:47</a>
+当初我去通知负责联络对接管人的佬已经换部门了，现在也不知道是谁在担当这事，但是阿B当时内部在抢是真的 ...</blockquote>
+阿b最近一堆傻逼操作很难不担心<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Hemis  
+##### 1639#       发表于 2021-6-2 12:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">CR很难不sm
+
+不过月灵这边也很怪，中间B站相当一段时间都没动，动态都不发一个
+
+就这样首播近300舰+差不多2w RMB礼物也不错了
+
+
+-----
+
+####  JoelBirch  
+##### 1640#       发表于 2021-6-2 14:08
+
+
+确实很奇怪，这半年里批站到底干了些啥，这个生日回的界面本来就是随便申请就有的，皮也还是月灵自己整的，从月灵那个反应看感觉很多东西都还是没有沟通到位，我甚至觉得“对接”这个词都显得太正式了，只能说CR很难不SM
+
+
+-----
+
+####  JoelBirch  
+##### 1641#       发表于 2021-6-2 14:09
+
+
+ 本帖最后由 JoelBirch 于 2021-6-2 14:15 编辑 
+
+风怒编辑，泥潭最近卡得一批<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1642#       发表于 2021-6-2 15:57
+
+
+king呢？到底是尊事件影响太大还是这几个月疯狂打枪火畜都不打钱了。
+
+
+-----
+
+####  OldGlory  
+##### 1643#       发表于 2021-6-2 16:06
+
+
+king没有纪念回本来也就没多少打钱的
+
+
+-----
+
+####  超能力者stven  
+##### 1644#       发表于 2021-6-2 17:26
+
+
+上个月这么多新衣服…
+
+
+-----
+
+####  winda  
+##### 1645#       发表于 2021-6-2 19:38
+
+
+爱园桑炸弹人大会表现神勇啊<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1646#       发表于 2021-6-2 19:46
+
+
+郡道这什么标题
+
+
+-----
+
+####  FCCHua  
+##### 1647#       发表于 2021-6-2 19:55
+
+
+耐久结束
+
+
+-----
+
+####  空集  
+##### 1648#       发表于 2021-6-2 19:59
+
+
+好像把假名写在骰子上骰到出哦金金为止 刚才进去时恰好投到了很开心的在怪笑  同接挺高的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kangkangsama  
+##### 1649#       发表于 2021-6-2 20:02
+
+
+<blockquote>空集 发表于 2021-6-2 19:59
+好像把假名写在骰子上骰到出哦金金为止 刚才进去时恰好投到了很开心的在怪笑  同接挺高的
+
+
+—— 来自 Xiaom ...</blockquote>
+把お　ち　　ん　こ　う　ま这6个假名凑6面
+
+可以三个方向的限制词
+
+
+-----
+
+####  rzrbtk  
+##### 1650#       发表于 2021-6-2 21:08
+
+
+郡道偶尔玩的这些胡逼游戏真的很怪，三十分钟凑OCHINCHIN是在干嘛<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">，还满贯...
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 1651#       发表于 2021-6-2 22:22
+
+
+  [https://www.bilibili.com/video/BV1N64y1C7ti](https://www.bilibili.com/video/BV1N64y1C7ti)
+
+  耳mao尖叫合集
+
+
+                                            
