@@ -13,7 +13,7 @@
 
 S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextGeneral
 
-## 2020-01-08 增加GithubAction支持
+## 2021-01-08 增加GithubAction支持
 
 #### 触发方式
 
