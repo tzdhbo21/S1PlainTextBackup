@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-27 23:58** 
+> ## **本文件最后更新于2021-06-03 03:59** 
 
 
 
@@ -3044,7 +3044,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_QqjJe" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_AtzHt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -3684,7 +3684,8 @@ OPED分镜都是铃木典光，特别是ED帅飞了，神野铭的怪脸也可�
 ####  Quantum233  
 ##### 279#       发表于 2021-4-16 15:32
 
-提示: 作者被禁止或删除 内容自动屏蔽
+
+女主这学历（而且人设塑造完全符合）在acgn里也算高的了吧？  想养钉宫AI
 
 
 -----
@@ -9536,4 +9537,440 @@ nyaa</blockquote>
 这都能聊那么多，该说电波对上了，还是说科学宅太寂寞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">真就随便找个人聊了那么多还拯救世界了。
 
 
-                        
+-----
+
+####  gaosf  
+##### 753#       发表于 2021-5-28 01:22
+
+
+ 本帖最后由 gaosf 于 2021-5-28 01:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51394367&amp;ptid=1963627" target="_blank">蛇头 发表于 2021-5-27 23:40</a>
+我有点不记得了，男主和女主是不是现实里只有业务上那次在发电厂的对话来着？那手机上的沟通应该只是出于 ...</blockquote>
+前面是pero2黑进了大泷工厂的机器人，无意中救了男主他们，男主顺着黑进机器人的线路找到天牛(神野铭)的，所以也不算是客服聊天，是阴差阳错网上碰上的黑客网友。
+
+
+-----
+
+####  幻想风靡_  
+##### 754#       发表于 2021-5-28 08:47
+
+
+前面有点慢热，攒了几集一起看，鸡皮疙瘩起来了
+
+不过坑还是有好多啊，3集内能好好收尾吗
+
+人物方面，除了男女主以外刻画都挺少的，就那个男科学家的形象算是立起来了
+
+还有之前的记者有点意义不明，前期也没啥作用，然后事态发展到现在也不觉得他能派上什么用场，这个角色到底干嘛来的
+
+
+-----
+
+####  雷德幻像  
+##### 755#       发表于 2021-5-28 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51395997&amp;ptid=1963627" target="_blank">幻想风靡_ 发表于 2021-5-28 08:47</a>
+
+前面有点慢热，攒了几集一起看，鸡皮疙瘩起来了
+
+不过坑还是有好多啊，3集内能好好收尾吗
+
+人物方面，除了男 ...</blockquote>
+这个记者现在看来是外务省OL大姐姐手下的特务，毕竟一个记者轻松潜入观察所还能用电击器放到人 就很有问题      
+
+
+-----
+
+####  AlfredXC  
+##### 756#       发表于 2021-5-28 13:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51399088&amp;ptid=1963627" target="_blank">雷德幻像 发表于 2021-5-28 13:03</a>
+这个记者现在看来是外务省OL大姐姐手下的特务，毕竟一个记者轻松潜入观察所还能用电击器放到人 就很有问 ...</blockquote>
+应该不是吧？一开始是代李博士来见女主，后面潜入时电晕的小哥才是ol的下线啊
+
+
+-----
+
+####  幻想风靡_  
+##### 757#       发表于 2021-5-28 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51399088&amp;ptid=1963627" target="_blank">雷德幻像 发表于 2021-5-28 13:03</a>
+
+这个记者现在看来是外务省OL大姐姐手下的特务，毕竟一个记者轻松潜入观察所还能用电击器放到人 就很有问 ...</blockquote>
+原来那个人是记者啊，我没认出来，全锅
+
+那这个发展真的是四平八稳啊，可能赢不了但大概率不会雷
+
+
+-----
+
+####  199april  
+##### 758#       发表于 2021-5-28 14:47
+
+
+奇点g是不是现在官方哥斯拉作品中逼格最高的G，明确提出是高维度生物，能和虚G的噬星者基多拉比一比
+
+
+-----
+
+####  teecoo00  
+##### 759#       发表于 2021-5-28 14:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51399088&amp;ptid=1963627" target="_blank">雷德幻像 发表于 2021-5-28 13:03</a>
+
+这个记者现在看来是外务省OL大姐姐手下的特务，毕竟一个记者轻松潜入观察所还能用电击器放到人 就很有问 ...</blockquote>
+被放到的那位佐藤才是OL的手下，记者一开始说是李的代理人，后面碰到男主又说自己是自由记者
+
+
+-----
+
+####  Lokay  
+##### 760#       发表于 2021-5-29 13:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51383573&amp;ptid=1963627" target="_blank">蛇头 发表于 2021-5-27 02:31</a>
+最后战斗场面太爽了。李博士应该还是没了吧，到印度后自始至终就没出现过，找bb接头也是神野自己去的，传信 ...</blockquote>
+天牛是女主聊天用的头像那只虫子，就那样拿来称呼，男主有川润不认识女主神野铭，基友加藤侍认识神野铭，解读曲子里MD5的时间点发现里面包含有川润接到岬奥观测所的电话，然后加藤待有提了一嘴那天牛就是神野铭了(第十集16分钟左右)。
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  cerenkov  
+##### 761#       发表于 2021-6-1 19:01
+
+
+这几天补到最新话，翻了下楼里最新的若干页，好像没人提到过这个
+
+
+<img src="https://img.saraba1st.com/forum/202106/01/182419rdeldqks8xee1k48.png" referrerpolicy="no-referrer">
+
+
+<strong>MPV-00_07_09.396-N0001.png</strong> (209.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-1 18:24 上传
+
+
+箭头解释的time reversal应该是指红色那条类光曲线从原本的↙方向变成了↗方向
+
+感觉这就类似于像这个模型
+
+<img src="https://img.saraba1st.com/forum/202106/01/182744cemutqiuusrqalni.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210601145234.png</strong> (106.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-1 18:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/01/183020jttt9bqtibt48gxn.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210601183000.png</strong> (382.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-1 18:30 上传
+
+
+这个叫TARDIS（Traversable Achronal Retrograde Domains In Spacetime），也是一个能出现闭时曲线（即时间机器）的时空模型
+
+
+搞不好剧中不停提到Orthogonal Diagonalizer就是因为时空图乃至于彭罗斯图里面的类光曲线都是45度倾斜的，所以带给编剧的灵感认为要逆转时间time reversal就要有对角线，说到对角那就联想到正交对角化，于是O.D.就被写进脚本了……可问题是正交对角化那个对角是指对角矩阵而不是45度倾斜的类光曲线啊老人看手机.jpg
+
+
+此外还发现一个小彩蛋
+
+<img src="https://img.saraba1st.com/forum/202106/01/183445rg5m28ff58th5222.png" referrerpolicy="no-referrer">
+
+
+<strong>MPV-00_19_02.683-N0002.png</strong> (150.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-1 18:34 上传
+
+
+开头我还好奇是什么公式，想了想原来是等于 m e^i 就是铭（mei）啊
+
+
+-----
+
+####  游戏无用  
+##### 762#       发表于 2021-6-1 20:49
+
+
+补到第九集，根本看不懂女主角那边在做啥！有么有大佬能解析一下。
+
+
+-----
+
+####  frosta  
+##### 763#       发表于 2021-6-2 05:09
+
+
+OD这俩词一看就是线代101出来的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">只是读起来逼格高吧
+
+— from samsung SM-G981U1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  砂糖天妇罗  
+##### 764#       发表于 2021-6-2 08:44
+
+
+我认为OD就是单纯地去凑氧气破坏者这个梗而已。
+
+
+-----
+
+####  cerenkov  
+##### 765#       发表于 2021-6-2 10:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51446709&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-6-2 08:44</a>
+
+我认为OD就是单纯地去凑氧气破坏者这个梗而已。</blockquote>
+草，原来如此。
+
+
+-----
+
+####  嘉峪君  
+##### 766#       发表于 2021-6-2 10:20
+
+
+不好意思说句题外话，761楼是很久以前曾做过翠星的加尔冈蒂亚的设定考证的那位网友么
+
+
+-----
+
+####  砂糖天妇罗  
+##### 767#       发表于 2021-6-2 10:54
+
+
+第十集那个md5密码，是不是说明男女主（或者他们的ai）在未来某个时间点将信息传递给了过去？会不会是世界毁灭的时候，他们或者他们的AI把解决方法发回到过去了？
+
+
+-----
+
+####  blendocas  
+##### 768#       发表于 2021-6-2 13:08
+
+
+真哥斯拉的味儿太浓了，感觉就像是痞子粉做出来的动画，无论是怪物设计还是哥斯拉的分镜
+
+
+-----
+
+####  cerenkov  
+##### 769#       发表于 2021-6-2 13:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51447562&amp;ptid=1963627" target="_blank">嘉峪君 发表于 2021-6-2 10:20</a>
+
+不好意思说句题外话，761楼是很久以前曾做过翠星的加尔冈蒂亚的设定考证的那位网友么 ...</blockquote>
+我做过翠星文字的破译，也参与过一些关于设定的讨论，不过也不是什么很深的考证就是，贴吧id mizukabe那位才是收集转发了大量官方设定和考证资料
+
+
+-----
+
+####  angelooo  
+##### 770#       发表于 2021-6-2 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51449156&amp;ptid=1963627" target="_blank">blendocas 发表于 2021-6-2 13:08</a>
+
+真哥斯拉的味儿太浓了，感觉就像是痞子粉做出来的动画，无论是怪物设计还是哥斯拉的分镜 ...</blockquote>
+就第10话最后吐息完一个在火海里的全景以及最后的火中特写真的太真酱了……
+
+但吐息那里很不错
+
+
+-----
+
+####  teecoo00  
+##### 771#       发表于 2021-6-3 00:30
+
+
+放射热线威力应该是在逐渐加强来自: iPhone客户端
+
+
+-----
+
+####  shudushimo  
+##### 772#       发表于 2021-6-3 00:38
+
+
+越来越谜语人了，大脑已经不想动了，不想看物理公式数学推演，只想看jet jagger大战godzilla
+
+剩下两话能收尾吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白玫瑰之夜  
+##### 773#       发表于 2021-6-3 00:38
+
+
+应该是超级计算机从所有可能的路线里计算出来的最优解然后返回给苇原吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  AlfredXC  
+##### 774#       发表于 2021-6-3 00:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456590&amp;ptid=1963627" target="_blank">白玫瑰之夜 发表于 2021-6-3 00:38</a>
+
+应该是超级计算机从所有可能的路线里计算出来的最优解然后返回给苇原吧李博士咋逃出来的真就不说了 ...</blockquote>
+没逃出来啊
+
+
+-----
+
+####  白玫瑰之夜  
+##### 775#       发表于 2021-6-3 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456612&amp;ptid=1963627" target="_blank">AlfredXC 发表于 2021-6-3 00:41</a>
+没逃出来啊</blockquote>
+后面一起吃饭那里是回忆？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  AlfredXC  
+##### 776#       发表于 2021-6-3 00:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456624&amp;ptid=1963627" target="_blank">白玫瑰之夜 发表于 2021-6-3 00:43</a>
+
+后面一起吃饭那里是回忆？
+
+
+—— 来自 OnePlus GM1910, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+是回忆，最新话直接表明李博士死了
+
+
+-----
+
+####  AlfredXC  
+##### 777#       发表于 2021-6-3 00:46
+
+
+说来我还是才知道阿拉丁是中国人
+
+
+-----
+
+####  gaosf  
+##### 778#       发表于 2021-6-3 00:50
+
+
+ 本帖最后由 gaosf 于 2021-6-3 00:52 编辑 
+
+李博士确实死了。本片包括开头部分应该并不是没有人死，而是片子在有意淡化各种灾难导致的死亡。
+海建宏应该是湿婆公司这一边的间谍吧。
+
+
+-----
+
+####  依然荏苒  
+##### 779#       发表于 2021-6-3 00:51
+
+
+攒了4集一口气看到11话，我要把它称之为10年来最棒的哥斯拉动画<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  拥挤的屋顶  
+##### 780#       发表于 2021-6-3 01:08
+
+
+哥总气势出来了,可惜镜头太少了。
+
+jet jagger PP的PP是什么意思呢
+
+
+
+
+-----
+
+####  拥挤的屋顶  
+##### 781#       发表于 2021-6-3 01:22
+
+
+ED最后的怪物里最后一个完全体的曼达也登场了,看来没有新怪兽了
+
+
+-----
+
+####  曦光  
+##### 782#       发表于 2021-6-3 01:43
+
+
+这番非理工科的是不是追起来挺难受的，到处都能看见吐槽
+
+
+-----
+
+####  依然荏苒  
+##### 783#       发表于 2021-6-3 02:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456912&amp;ptid=1963627" target="_blank">曦光 发表于 2021-6-3 01:43</a>
+这番非理工科的是不是追起来挺难受的，到处都能看见吐槽</blockquote>
+完全没必要，只要理解基本设定就行了，那些名词了不了解其实不重要。总结就是某人发现了一种来自其他次元的物质，通过研究发现了产生了这种物质的设备（片中的奇点）这种设备除了产生物质还能充当计算机预测未来。这就是这片的背景设定了
+
+
+-----
+
+####  坂上菠萝  
+##### 784#       发表于 2021-6-3 02:30
+
+
+钉宫实在太可爱了（再次
+
+
+-----
+
+####  Lokay  
+##### 785#       发表于 2021-6-3 03:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这是什么，在未来用超时空计算机把男主发给女主的那个喷射杰格升级包算出来了，然后藏到曲子里发送给过去的苇原吗。
+越来越觉得第三集开头旁白对话里那句“いや この僕じゃ”有点像是说“不是，不是(现在的)这个我，(是未来的我)。”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  bartholo4  
+##### 786#       发表于 2021-6-3 03:12
+
+
+这片真应该一次放完
+太吊胃口了
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                       
