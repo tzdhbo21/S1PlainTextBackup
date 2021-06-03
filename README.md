@@ -13,6 +13,9 @@
 
 S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextGeneral
 
+## 全文搜索方式：
+点击左上角搜索框，输入想查找的文本，然后选中第一项"in this repository"，即可在本Repo内进行全文搜索。
+
 ## 2021-01-08 增加GithubAction支持
 
 #### 触发方式
