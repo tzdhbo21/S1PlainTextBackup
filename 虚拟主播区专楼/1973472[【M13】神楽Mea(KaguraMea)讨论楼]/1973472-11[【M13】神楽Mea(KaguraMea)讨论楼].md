@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-03 14:02** 
+> ## **本文件最后更新于2021-06-03 18:19** 
 
 
 
@@ -16495,4 +16495,357 @@ s1最近卡的不行
 反斗神鹰还行 楼友都是中老年人
 
 
-  
+-----
+
+####  T_Hb  
+##### 16415#       发表于 2021-6-3 15:05
+
+
+唉 昨天咩能量没充上，没劲
+
+
+-----
+
+####  千里夜雨  
+##### 16416#       发表于 2021-6-3 15:35
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/153531ppqzqvcqhcpn5a26.png" referrerpolicy="no-referrer">
+
+
+<strong>0.png</strong> (164.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 15:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/153148akk9zllax0grlur9.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210603153030.png</strong> (80.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 15:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/153149d8sss3z1y413y38s.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210603153034.png</strong> (174.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 15:31 上传
+
+
+说实话，这才是我喜欢这歌的地方之一
+
+
+-----
+
+####  掉头学姐  
+##### 16417#       发表于 2021-6-3 15:37
+
+
+真的努力了吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16418#       发表于 2021-6-3 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51462024&amp;ptid=1973472" target="_blank">千里夜雨 发表于 2021-6-3 15:35</a>
+
+说实话，这才是我喜欢这歌的地方之一</blockquote>
+你怎么这么闲，吐了，我刚出去一身大汗回到公司，整个人跟脱了水的鱼一个吊样
+
+
+希区柯克这歌我没那么喜欢，近半年来最喜欢的估计就是钻石裂痕和Happy end了
+
+
+结果前者丢日报播放量过1000都难，后者近期唱的质量我都不好意思招人要曲绘尝试一图流了
+
+
+-----
+
+####  Klience  
+##### 16419#       发表于 2021-6-3 15:52
+
+
+下午3 4点不是下午茶时间吗 做工？做伦做 饮杯下午茶先啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16420#       发表于 2021-6-3 15:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51457040&amp;ptid=1973472" target="_blank">age45 发表于 2021-6-3 02:36</a>
+
+虽然之前的楼平均寿命也在四百到九百楼不等了，但是最近感觉不到换楼的契机 ...</blockquote>
+周年换了吧干脆，月底就是了
+
+
+-----
+
+####  上坂蓮華  
+##### 16421#       发表于 2021-6-3 16:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">kanaria的两首是我目前经常能拿出来循环的歌了
+
+
+-----
+
+####  时间在我手中  
+##### 16422#       发表于 2021-6-3 16:20
+
+
+KING和MIWA啊，前者还行，后者我感觉不如可爱的女朋友
+
+
+不过副频道投稿以来比较喜欢的还是再见宣言和最新的这个sil p什么的大总统，前者唱的很粘稠，后者有点当年野兽之舞内味了
+
+
+-----
+
+####  夜鸣莺  
+##### 16423#       发表于 2021-6-3 16:26
+
+
+最近的干花我挺喜欢的，唱的很有味道
+
+
+-----
+
+####  千里夜雨  
+##### 16424#       发表于 2021-6-3 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51462062&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-3 15:38</a>
+你怎么这么闲，吐了，我刚出去一身大汗回到公司，整个人跟脱了水的鱼一个吊样
+
+
+希区柯克这歌我没那么喜欢 ...</blockquote>
+我的人生追求就是不要那么辛苦的活着，
+往前跑直到生活的重力把我拽回来为止。
+谁断了我的念想我就躺平，她这样，我也这样
+
+
+-----
+
+####  时间在我手中  
+##### 16425#       发表于 2021-6-3 16:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51462666&amp;ptid=1973472" target="_blank">千里夜雨 发表于 2021-6-3 16:41</a>
+
+我的人生追求就是不要那么辛苦的活着，
+
+往前跑直到生活的重力把我拽回来为止。
+
+谁断了我的念想我就躺平， ...</blockquote>
+这世界上想要不辛苦在我看来就是马上自杀
+
+
+哪怕加上个不那么辛苦也是植物人路线
+
+
+你要说念想的话那我快没有了，说不定哪天自己就没了
+
+
+扭曲点的说法就是看不到那一天的到来就这么没了也是种幸福
+
+
+所以过一天是一天，哪怕我都不知道自己为了什么活着
+
+
+-----
+
+####  A2014720  
+##### 16426#       发表于 2021-6-3 17:03
+
+
+？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？
+
+m楼不是给你小两口调情的谢谢，反正在我认识里，这b只要能打的动lol就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  上坂蓮華  
+##### 16427#       发表于 2021-6-3 17:09
+
+
+请不要散播给的氛围，楼友喜欢贴去qq私聊
+
+
+-----
+
+####  Klience  
+##### 16428#       发表于 2021-6-3 17:14
+
+
+打肯定是能打得动 但是也只有被人虐的份<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16429#       发表于 2021-6-3 17:15
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/171513mqm1ztp1m1t5n5px.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (19.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 17:15 上传
+
+
+可以  等下补充一下姨能量<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 16430#       发表于 2021-6-3 17:16
+
+
+上次的翻唱，那个大总统真可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">。
+
+
+-----
+
+####  A2014720  
+##### 16431#       发表于 2021-6-3 17:25
+
+
+这模型这角度怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16432#       发表于 2021-6-3 17:25
+
+
+无聊，睡了
+
+
+-----
+
+####  yywzjsw  
+##### 16433#       发表于 2021-6-3 17:27
+
+
+卖萌限定角度
+
+
+-----
+
+####  鷹書たかしょ  
+##### 16434#       发表于 2021-6-3 17:28
+
+
+最近喜欢ドライフラワー、チャイナアドバイス和憂、燦々，属于那种“脑袋里忽然就响起她唱的这首歌”那种
+
+
+-----
+
+####  往世雷书  
+##### 16435#       发表于 2021-6-3 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51462052&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-6-3 15:37</a>
+真的努力了吗</blockquote>
+他这视频很好，但是他截出来的两句没有代表性，视频里还有另外两句
+“接下来要对什么事努力才够”
+“有什么好事非得我牺牲这么多”
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Mikumiku831  
+##### 16436#       发表于 2021-6-3 17:41
+
+
+最近一直在听ノーチラス
+
+前天半夜听 听着听着感觉就破防了
+
+跟失恋了一样 <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16437#       发表于 2021-6-3 17:44
+
+
+这就是vtb舔狗吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  上坂蓮華  
+##### 16438#       发表于 2021-6-3 17:57
+
+
+不是king啊，是envy baby
+
+
+-----
+
+####  rosevalley46  
+##### 16439#       发表于 2021-6-3 18:00
+
+
+看了下隔壁貌似她又和画师们一起搞了个谷子啥的?
+
+
+-----
+
+####  A2014720  
+##### 16440#       发表于 2021-6-3 18:08
+
+
+ 本帖最后由 A2014720 于 2021-6-3 18:15 编辑 
+
+s a g e 歌 舞 伎 町<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+有无懂哥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+利好本土民是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  千里夜雨  
+##### 16441#       发表于 2021-6-3 18:11
+
+
+ 本帖最后由 千里夜雨 于 2021-6-3 18:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51463276&amp;ptid=1973472" target="_blank">往世雷书 发表于 2021-6-3 17:33</a>
+他这视频很好，但是他截出来的两句没有代表性，视频里还有另外两句
+“接下来要对什么事努力才够”
+“有什 ...</blockquote>
+我截的主要还是歌词
+
+
+另外我楼里基本不回狗et的
+楼友最好正视一下自己的新癖好
+
+
+ 
