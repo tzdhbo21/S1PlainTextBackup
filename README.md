@@ -20,7 +20,7 @@ S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextG
 
 #### 触发方式
 
-- 每隔一小时定时执行+推送后立即执行
+- 每隔半小时定时执行+推送后立即执行
 
 - 自定义：.github/workflows/S1.yaml 编辑
 
