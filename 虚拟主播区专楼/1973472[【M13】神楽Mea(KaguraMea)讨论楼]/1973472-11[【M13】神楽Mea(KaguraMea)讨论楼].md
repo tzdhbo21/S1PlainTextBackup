@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-03 18:19** 
+> ## **本文件最后更新于2021-06-03 22:52** 
 
 
 
@@ -16848,4 +16848,455 @@ s a g e 歌 舞 伎 町<img src="https://static.saraba1st.com/image/smiley/face2
 楼友最好正视一下自己的新癖好
 
 
- 
+-----
+
+####  肥到终点  
+##### 16442#       发表于 2021-6-3 18:52
+
+
+你这么一说不就更给了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16443#       发表于 2021-6-3 20:01
+
+
+近期特供是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  Cushaw  
+##### 16444#       发表于 2021-6-3 20:22
+
+
+尊尊尊尊尊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16445#       发表于 2021-6-3 21:05
+
+
+ 本帖最后由 T_Hb 于 2021-6-3 21:07 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/210705fojbb4n3fnrqsw7w.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (33.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 21:07 上传
+
+
+38岁可爱小婴儿   什么巨婴<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 16446#       发表于 2021-6-3 21:06
+
+
+结论：上节目还是一样的能说
+
+
+-----
+
+####  路人庚  
+##### 16447#       发表于 2021-6-3 21:07
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/210740o7yoii22zcd5yywz.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (176.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 21:07 上传
+
+
+祝！初出演！
+
+
+-----
+
+####  Klience  
+##### 16448#       发表于 2021-6-3 21:10
+
+
+这人还在睡啊 连推都不发的吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16449#       发表于 2021-6-3 21:14
+
+
+被昨天伤到了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16450#       发表于 2021-6-3 21:15
+
+
+ 本帖最后由 Klience 于 2021-6-3 21:16 编辑 
+
+妈的 这声音装的 拳头硬了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16451#       发表于 2021-6-3 21:29
+
+
+脸型看着太怪了…
+
+是我不懂日综吗
+
+
+-----
+
+####  rosevalley46  
+##### 16452#       发表于 2021-6-3 21:36
+
+
+这模型调的有点怪...
+
+
+-----
+
+####  路人庚  
+##### 16453#       发表于 2021-6-3 21:37
+
+
+ 本帖最后由 路人庚 于 2021-6-3 21:58 编辑 
+
+之前闲着翻了翻前几天发的fleet才想起来她至少也是有两件烦心事扎堆了（只能等她处理完再说了
+
+
+syl，
+
+
+声音能装说明上节目的心情还挺不错的（
+
+
+zsyl，
+
+
+开始发散：
+
+节目是5月初录的+5月底接连遇上了至少两个事或者由某件事引出的一系列事件
+
+↓
+
+录节目之后发生了事件
+
+↓
+
+节目与点生活关系密切
+
+↓
+
+本土点粉中mea的安替很多（这个2分钟广告21踩，这频道前面5个视频平均1.8踩）
+
+↓
+
+本土安替容易做的事情有哪些（？）
+
+↓
+
+第一联想：本土安替容易去特定
+
+↓
+
+去5ch翻安替串
+
+↓
+
+看到有人6月2日以音质变化+网速变烂猜测搬家了
+
+↓
+
+逻辑闭环：因为被安替特定上门于是搬家，造成（或许有的）音质变化+网速变烂，并且由于事件特性无法开诚布公只能打谜语
+
+↓
+
+新的发散链成功形成，今天也很满足√
+
+
+-----
+
+####  笋狐  
+##### 16454#       发表于 2021-6-3 21:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这采访捏的声线听得我不禁握紧了拳头...
+
+
+-----
+
+####  千里夜雨  
+##### 16455#       发表于 2021-6-3 21:51
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/215103mdr6o8opzodx9zpo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>？.jpg</strong> (199.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 21:51 上传
+
+
+草哈哈哈哈哈哈
+
+
+-----
+
+####  Klience  
+##### 16456#       发表于 2021-6-3 21:53
+
+
+哪来的新时代人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夜鸣莺  
+##### 16457#       发表于 2021-6-3 21:57
+
+
+一个推都不发，看来心态真的崩了
+
+
+-----
+
+####  iuhehc  
+##### 16458#       发表于 2021-6-3 22:00
+
+
+穿模得好厉害，坦克民受到打击
+
+
+-----
+
+####  T_Hb  
+##### 16459#       发表于 2021-6-3 22:01
+
+
+有没有可能设备穿不上 其实是替身加配音呢
+
+
+-----
+
+####  黒長直姫  
+##### 16460#       发表于 2021-6-3 22:02
+
+
+我也崩了
+
+
+-----
+
+####  A2014720  
+##### 16461#       发表于 2021-6-3 22:05
+
+
+凶多吉少，九死一生呐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+等着明天的节目因为突发事故停播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 16462#       发表于 2021-6-3 22:06
+
+
+只有我喜欢原创曲吗<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 16463#       发表于 2021-6-3 22:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51466440&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-6-3 22:05</a>
+
+凶多吉少，九死一生呐
+
+
+等着明天的节目因为突发事故停播</blockquote>
+不是后天吗？
+
+
+-----
+
+####  A2014720  
+##### 16464#       发表于 2021-6-3 22:15
+
+
+她不说谁知道和什么j8有关啊，猜都没法猜，你的痛苦我不懂真是很可惜呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+怎么还倒新时代垃圾的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16465#       发表于 2021-6-3 22:17
+
+
+炎这么多次了 真的有那么脆弱吗
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/221641qbqdso0pn0sn0n00.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (5.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 22:16 上传
+
+
+节目是5号深夜
+
+
+-----
+
+####  路人庚  
+##### 16466#       发表于 2021-6-3 22:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51466552&amp;ptid=1973472" target="_blank">黒長直姫 发表于 2021-6-3 22:14</a>
+
+不是后天吗？</blockquote>
+日本5日0点，国内4日23点
+
+
+-----
+
+####  黒長直姫  
+##### 16467#       发表于 2021-6-3 22:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51466598&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-6-3 22:17</a>
+
+日本5日0点，国内4日23点</blockquote>
+了解！
+
+
+-----
+
+####  路人庚  
+##### 16468#       发表于 2021-6-3 22:22
+
+
+ 本帖最后由 路人庚 于 2021-6-3 22:29 编辑 
+
+bsyl，
+
+不用在意，喜欢根据手头材料xjb发散是我自己的个人习惯，算是把你咩姐一直当作解谜系vtb留下来的旧习了
+
+
+而且我会发出来的大概只有我所想到的两成（
+
+
+还是syl，
+
+其实还是有事做的，只不过脑内发散比打字要快多了，就算发散七八个事件也只需要在摸鱼的时候想几分钟而已，当然我个人是很享受这个过程的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 16469#       发表于 2021-6-3 22:25
+
+
+楼友真的都没事做吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl，没有navi粉的比赛真是好看
+
+
+-----
+
+####  笋狐  
+##### 16470#       发表于 2021-6-3 22:27
+
+
+是不是该到推特写两条鼓励的话啥的，不知道自搜怪最近还有没有安定运转呢...
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|zc|
+| 路人庚| + 1|想就去做.jpg|
+
+
+查看全部评分
+
+
+
+
+-----
+
+####  T_Hb  
+##### 16471#       发表于 2021-6-3 22:29
+
+
+ 本帖最后由 T_Hb 于 2021-6-3 22:44 编辑 
+
+鸡汤太没意思了，不如写点怪文书
+
+你别说怪文书还挺难的，我在🧠里一搜刮 竟然一点灵感都没有
+
+
+SYL 抄的怪文书哪里有灵魂 
+
+
+-----
+
+####  Klience  
+##### 16472#       发表于 2021-6-3 22:34
+
+
+没有咩的直播就活不下去之类的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16473#       发表于 2021-6-3 22:35
+
+
+直接去打sl就行了
+
+
+-----
+
+####  A2014720  
+##### 16474#       发表于 2021-6-3 22:42
+
+
+bsyl怪文书不会写就去抄啊
+
+
