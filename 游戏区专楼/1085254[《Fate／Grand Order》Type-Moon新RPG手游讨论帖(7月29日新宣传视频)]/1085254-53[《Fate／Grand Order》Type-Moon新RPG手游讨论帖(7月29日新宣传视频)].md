@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-01 20:14** 
+> ## **本文件最后更新于2021-06-03 14:04** 
 
 
 
@@ -9531,4 +9531,359 @@ f0Q2o-jpd3ZcT3cSsg-ld.jpg
 说靠谱也不靠谱，竟然没有日本人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                      
+-----
+
+####  黑上シグマ  
+##### 78812#       发表于 2021-6-1 21:38
+
+
+嘉年华的OP动画出了，狛爵就是个变态（
+
+
+-----
+
+####  廖化  
+##### 78813#       发表于 2021-6-1 21:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51430132&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-5-31 11:43</a>
+
+泳装男性灵衣大狗最大的敌人应该是以藏，毕竟以藏是钦点的五大男爱豆 ...</blockquote>
+求求YLS给个夏威夷衬衫狗啊啊啊啊！！！救救狗厨！！！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 78814#       发表于 2021-6-1 23:00
+
+
+ 本帖最后由 exiaexa 于 2021-6-1 23:04 编辑 
+
+艹，这动起来的伯爵加上变态属性，越来越像狛枝了
+传播这段希望的影像.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Pumpkin_ccc  
+##### 78815#       发表于 2021-6-2 00:32
+
+
+嘉年华OP分镜对比[https://www.bilibili.com/video/BV1Rv411V7PU](https://www.bilibili.com/video/BV1Rv411V7PU)
+
+
+-----
+
+####  莉莉橙  
+##### 78816#       发表于 2021-6-2 07:46
+
+
+能不能出个虞美人flashback，一定会成为搞笑活动的巅峰（
+
+
+-----
+
+####  khxooo  
+##### 78817#       发表于 2021-6-2 09:18
+
+
+如果那个舅舅是真的，那么石头没有攒的必要了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78818#       发表于 2021-6-2 09:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51446936&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-6-2 09:18</a>
+
+如果那个舅舅是真的，那么石头没有攒的必要了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你说的是那个611开 38节的?
+
+
+这游戏至今有这么长的剧情关吗...
+
+
+-----
+
+####  khxooo  
+##### 78819#       发表于 2021-6-2 10:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51447247&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-2 09:54</a>
+你说的是那个611开 38节的?</blockquote>
+不要妄图猜测废狗，什么事情干不出<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真红眼教授  
+##### 78820#       发表于 2021-6-2 11:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51442421&amp;ptid=1085254" target="_blank">不垃圾屌丝 发表于 2021-6-1 19:09</a>
+
+淦，那个舅舅的情报怎么看着有点靠谱啊，这种瞎JB缝的风格确实像型月会干出来的
+
+
+—— 来自 Sony XQ ...</blockquote>
+那个在外网都没啥讨论度。。。原始出处的4ch更是被喷抄袭（一半抄袭4ch网友，一半抄袭真女神转生）
+
+
+也就国内恰烂钱的流量号天天转发<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  不垃圾屌丝  
+##### 78821#       发表于 2021-6-2 17:33
+
+
+预热卡池真的是小芬奇<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  eyeego  
+##### 78822#       发表于 2021-6-2 17:49
+
+
+舅舅先得一分<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  eyeego  
+##### 78823#       发表于 2021-6-2 17:49
+
+
+ 本帖最后由 eyeego 于 2021-6-2 17:51 编辑 
+
+抽风
+
+
+-----
+
+####  khxooo  
+##### 78824#       发表于 2021-6-2 18:17
+
+
+舅舅有点东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78825#       发表于 2021-6-2 18:38
+
+
+总共要给60石，好耶
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  rooarr  
+##### 78826#       发表于 2021-6-2 19:24
+
+
+我也是只看到送石头，其他都是没用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  里村紅葉  
+##### 78827#       发表于 2021-6-2 19:34
+
+
+舅舅在哪，贴吧吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78828#       发表于 2021-6-2 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51452831&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-2 19:34</a>
+
+舅舅在哪，贴吧吗</blockquote>
+[https://tieba.baidu.com/p/7383203683](https://tieba.baidu.com/p/7383203683)
+
+
+大概是这个?
+
+
+还有个英文版的内容和这个一样
+
+
+-----
+
+####  AbigailWilliams  
+##### 78829#       发表于 2021-6-2 20:26
+
+
+看看这2.6能不能给点力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉霓虹手游市场都没什么声音了，全是赛马
+
+
+-----
+
+####  alucardcz  
+##### 78830#       发表于 2021-6-2 20:28
+
+
+这么喜欢搞预告中的预告...
+
+
+-----
+
+####  exiaexa  
+##### 78831#       发表于 2021-6-2 20:28
+
+
+果然是预告的预告
+
+6.11是周五，怕是生放送结束直接开了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78832#       发表于 2021-6-2 20:28
+
+
+那么可以确定是真舅舅了。
+
+
+-----
+
+####  angelooo  
+##### 78833#       发表于 2021-6-2 20:35
+
+
+目前舅舅奶中了小番茄复刻和6.11开，加油啊希望能全中
+
+
+-----
+
+####  黑上シグマ  
+##### 78834#       发表于 2021-6-2 20:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这要真舅舅的话，二池要塞4个人这么离谱的？
+
+
+-----
+
+####  超阳电子炮  
+##### 78835#       发表于 2021-6-2 21:32
+
+
+舅舅要是真的，那我完全不想抽的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 78836#       发表于 2021-6-2 22:07
+
+
+舅舅要是真的也就摩根多多少少有点兴趣具体还要看立绘
+不过直接攒着石头等着抽泳装或者周年，不也挺好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  newfaceryo  
+##### 78837#       发表于 2021-6-2 22:27
+
+
+池子想不想抽归根结底还是要看剧情写的怎么样。
+
+
+-----
+
+####  AbigailWilliams  
+##### 78838#       发表于 2021-6-2 23:23
+
+
+总感觉明年真要当叔叔服务器的蛀虫了，如果舅舅是真的话<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78839#       发表于 2021-6-3 00:54
+
+
+对剧透的完全没兴趣，将剩下的2发10连全给了达芬奇，补宝成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 78840#       发表于 2021-6-3 03:23
+
+
+妖妃原来是武斗派的吗艹，还以为会轮到红卡辅助<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  阿提拉  
+##### 78841#       发表于 2021-6-3 09:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这舅舅情报里最不靠谱的地方就是所有宝具去蓝边，以dw的能力我真的不信他们能做到
+
+
+-----
+
+####  khxooo  
+##### 78842#       发表于 2021-6-3 09:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51457091&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-6-3 03:23</a>
+妖妃原来是武斗派的吗艹，还以为会轮到红卡辅助</blockquote>
+红卡辅助肯定是梅莉啊，梅林？不知道是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 78843#       发表于 2021-6-3 13:24
+
+
+帕西瓦尔不是挺帅的吗，舅舅剧透属实的话还是第一个单体蓝枪，就冲这点就值得抽了（4星单体蓝枪实在太拉了，一个一发男，一个一发女<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后王姐十有八九是限定，要真是全体蓝枪的话，说不定又是个强度爆炸的主。
+
+反正我就看着，等到2.6真开了有几个人能攒住手里的石头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78844#       发表于 2021-6-3 13:26
+
+
+ 本帖最后由 angelooo 于 2021-6-3 13:32 编辑 
+
+所以按舅舅透露的，这个异闻带王姐拿到圣枪成了王，而呆毛成了魔术师，没毛病23333
+
+二期卡池除了王姐外的三个四星多半是之前pv里那仨，红毛吸血姬，盔甲星巴克美女蛇，高大肌肉女魔犬
+
+那个红毛的人设我可以，卡面不拉胯的话肯定要搞一个
+
+
+                     

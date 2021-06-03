@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-02 22:50** 
+> ## **本文件最后更新于2021-06-03 14:02** 
 
 
 
@@ -15970,10 +15970,11 @@ y1s1单就404吃饭完全不成问题，上哪再去找这么舒服的工作啊<
 评分
 
 
- 参与人数 2战斗力 -3
+ 参与人数 3战斗力 -4
 
 |昵称|战斗力|理由|
 |----|---|---|
+| Cushaw|-1|楼友整天让我看的什么东西|
 | 呓亘|-2|好甜啊！！！！|
 | A2014720|-1|什么神仙cp啊|
 
@@ -16135,4 +16136,363 @@ md你们吵架能不能自己回床上解决，太激寒了<img src="https://sta
 不也挺好的吗.jpg
 
 
-   
+-----
+
+####  千里夜雨  
+##### 16385#       发表于 2021-6-2 23:02
+
+
+ 本帖最后由 千里夜雨 于 2021-6-2 23:12 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我今天看到有人评论了我以前剪的
+[【01.20B限】听到男粉翻唱自己个人曲后受到惊吓的神乐mea（字幕付）【神楽めあ】](https://www.bilibili.com/video/BV147411z7rJ)
+
+发现看了还是能笑得出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+[【01.27B限】神乐mea的男粉从此站起来了？！.UC（字幕付）【神楽めあ】](https://www.bilibili.com/video/BV147411z7rJ)
+
+
+嗨，当时是真的闲。我现在都忘了视频二的那种过度怎么加了。
+
+
+倒不如说当时在上升期平均两天一稿，当时投的我喜欢的基本上没有暴死过
+
+
+现在的话很难说我最近剪的这几个我笑不笑得出来，要是观众笑得出来，那倒还好。
+
+
+-----
+
+####  掉头学姐  
+##### 16386#       发表于 2021-6-2 23:16
+
+
+笑不出来了，现在我只有看联动有乐趣了，感觉麻最近精神是不太好
+
+
+-----
+
+####  千里夜雨  
+##### 16387#       发表于 2021-6-2 23:18
+
+
+联动民曾几何时地位可能最低
+
+一般来讲，主体族群会迫害顺位第二的族群
+
+而当第二位式微时则能相安无事，
+
+能共患难不能同富贵，<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 16388#       发表于 2021-6-2 23:43
+
+
+本想说小麻心情不好多联动找点乐子。<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+但一想到和人联动还得陪笑就更加心累了<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 16389#       发表于 2021-6-2 23:45
+
+
+啊......小麻........小麻<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千里夜雨  
+##### 16390#       发表于 2021-6-2 23:49
+
+
+ 本帖最后由 千里夜雨 于 2021-6-2 23:58 编辑 
+
+顺带一提，联动民历史地位最低的应该正是我回来的11月，和绿粽子的几个联动秒熟，自己的个人杂谈拖一个月
+当时在狂骂厚此薄彼，到底是谁的粉丝，联动民吃了我个人杂谈回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我还记得绿粽子海盗的剪辑吊打了官组rp标题十条街<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+溜了，我没啥可聊的，下次有人委托我剪东西再见
+日报组剪的
+[因为催播复读机打断了tc直播](https://b23.tv/BV1fV411x7cA)
+今晚tc的头几分钟翻译
+但愿没节奏吧
+说实话，我觉得……算了，最坏的情况是又要内耗洗粉，最好的打算是根本没人在耗了。大家团结在大旗下……
+let it be
+
+btw
+现在只要你咩姐出事就会有人点赞希区柯克mv
+真不知道有人看是好事还是坏事。
+
+
+-----
+
+####  时间在我手中  
+##### 16391#       发表于 2021-6-2 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456190&amp;ptid=1973472" target="_blank">千里夜雨 发表于 2021-6-2 23:49</a>
+
+顺带一提，联动民历史地位最低的应该正是我回来的11月，和绿粽子的几个联动秒熟，自己的个人杂谈拖一个月
+
+ ...</blockquote>
+你是不是弱智，这就是全熟
+
+
+-----
+
+####  千里夜雨  
+##### 16392#       发表于 2021-6-2 23:59
+
+
+ 本帖最后由 千里夜雨 于 2021-6-3 00:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456261&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-2 23:58</a>
+你是不是弱智，这就是全熟</blockquote>
+我tm知道啊
+用得着说那么准确么
+反正出了事你自己背
+我要是真当安替了准保你第二天在q群见到人转发
+不过能当安替的，智力肯定不如我233
+
+
+-----
+
+####  时间在我手中  
+##### 16393#       发表于 2021-6-3 00:00
+
+
+bsyl
+
+说个好消息，这几天是某些日子，你睿吊人转播等于零
+
+
+所以如果是批限民就等于把这几天空窗期可能有的转播一播弄没了一次，哇，牛逼
+
+是anti的话那更棒了，属于是大胜利了
+
+但是关我屁事，嘻嘻，找色图去了
+
+
+-----
+
+####  A2014720  
+##### 16394#       发表于 2021-6-3 00:31
+
+
+没事，批限民和anti也不看转播
+
+
+-----
+
+####  thisisaspider  
+##### 16395#       发表于 2021-6-3 00:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51455358&amp;ptid=1973472" target="_blank">掉头学姐 发表于 2021-6-2 22:25</a>
+
+对麻来说，肯定是这样最舒服了，但对个人来说还是希望上演点神奇剧情啊</blockquote>
+你麻以后机会多得很<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 心急什么
+
+最近整了混入虹人 说不定还和虹人出立牌 不也挺意外的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 16396#       发表于 2021-6-3 00:36
+
+
+我最近晚上也看了点腊肉 还挺回味的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+搞得早上上班没精神 资本家该图图了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 16397#       发表于 2021-6-3 00:48
+
+
+找个机会换下楼吧。
+
+
+-----
+
+####  dccayym  
+##### 16398#       发表于 2021-6-3 00:58
+
+
+m13也太高了
+
+
+-----
+
+####  age45  
+##### 16399#       发表于 2021-6-3 02:36
+
+
+虽然之前的楼平均寿命也在四百到九百楼不等了，但是最近感觉不到换楼的契机
+
+
+-----
+
+####  黒長直姫  
+##### 16400#       发表于 2021-6-3 07:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51455589&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-6-2 22:47</a>
+
+回看视频“如果让大家感到不快就不做了”
+
+
+也许真就最后一次直播了？ ...</blockquote>
+很明显说的是正在播的TC啊 
+
+
+不要制造焦虑
+
+
+-----
+
+####  路人庚  
+##### 16401#       发表于 2021-6-3 08:13
+
+
+东京6点推特点了几个赞啊，看起来是又熬夜了
+
+
+-----
+
+####  Klience  
+##### 16402#       发表于 2021-6-3 08:59
+
+
+还是和小号打的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16403#       发表于 2021-6-3 09:11
+
+
+爱打打，周年前别播算了
+反正播了也要被傻狗烦
+
+
+-----
+
+####  Klience  
+##### 16404#       发表于 2021-6-3 09:18
+
+
+播不播随意 lol在玩就可以 反正就算狙击她 她也认不出来<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 16405#       发表于 2021-6-3 09:25
+
+
+吵来吵去干什么，已经躺平了。播了就看，不播就做自己的事情去。放松自己，也让她自己放松。
+
+
+-----
+
+####  yywzjsw  
+##### 16406#       发表于 2021-6-3 09:25
+
+
+ 本帖最后由 yywzjsw 于 2021-6-3 09:28 编辑 
+
+艹s1最近怎么老是连续发两条·
+
+
+-----
+
+####  T_Hb  
+##### 16407#       发表于 2021-6-3 09:30
+
+
+服务器被狂暴鸿儒 kpi*2
+
+
+-----
+
+####  草牛  
+##### 16408#       发表于 2021-6-3 10:32
+
+
+s1最近卡的不行
+
+
+-----
+
+####  草牛  
+##### 16409#       发表于 2021-6-3 10:32
+
+
+s1最近卡的不行
+
+
+-----
+
+####  离心  
+##### 16410#       发表于 2021-6-3 10:50
+
+
+咋又吵了？反正现在她想咸鱼就咸呗，反正我已经躺平了，现在的狗屎事情太多了，连直播都不能好好看了，就算播就是那老几样，随缘看了。
+
+
+
+
+-----
+
+####  Cushaw  
+##### 16411#       发表于 2021-6-3 11:15
+
+
+ 本帖最后由 Cushaw 于 2021-6-3 11:16 编辑 
+
+天狗躺没躺平不好说，麻姨本人肯定是躺平了，指躺下之后显得特别平<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Klience  
+##### 16412#       发表于 2021-6-3 11:18
+
+
+甚至还能在上面做铁板烧 还不会有任何浮动 拿垂直尺都能做到水平与垂直成90°的完美数值<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16413#       发表于 2021-6-3 11:29
+
+
+反斗神鹰的肚皮煎蛋（无端联想）
+
+
+不过你咩姐估计这辈子都达不到这电影里的女主身材（
+
+
+-----
+
+####  黒長直姫  
+##### 16414#       发表于 2021-6-3 11:51
+
+
+反斗神鹰还行 楼友都是中老年人
+
+
+  
