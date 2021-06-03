@@ -157,7 +157,7 @@ if __name__ == '__main__':
             # s1.encoding='utf-8'
             data = s1.content
             namelist, replylist,totalpage,titles= parse_html(data)
-            if((int(time.time()) - thdata[i]['lastedit']) > 2592000 or totalpage == 1):
+            if((int(time.time()) - thdata[i]['lastedit']) > 1296000 or totalpage == 1):
                 thdata[i]['active'] = False
                 filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+'【已归档】'+titles+'/'
                 mkdir(filedir)
