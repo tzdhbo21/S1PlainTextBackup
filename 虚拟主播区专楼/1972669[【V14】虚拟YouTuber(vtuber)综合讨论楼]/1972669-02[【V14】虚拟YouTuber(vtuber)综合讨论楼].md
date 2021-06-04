@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-04 17:16** 
+> ## **本文件最后更新于2021-06-04 21:44** 
 
 
 
@@ -2295,4 +2295,758 @@ E3Aaa8oUYAYTg79.jpg
 播出时间带深夜和下午的差别有这么大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                                           
+-----
+
+####  NBXX  
+##### 1683#       发表于 2021-6-4 17:39
+
+
+<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_SQ1dZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_QQJIf" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+
+【#にじPEX 追加情報！ 2/2】 
+
+練習カスタムの様子は
+
+・神田笑一
+
+・Go_Tsukishima
+
+・御影ヤマト
+
+の３名がそれぞれ配信！
+
+
+-----
+
+####  Ketestrait  
+##### 1684#       发表于 2021-6-4 18:10
+
+
+ 本帖最后由 Ketestrait 于 2021-6-4 18:38 编辑 
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gr6ebc7ycfj20yt0krn3w.jpg" referrerpolicy="no-referrer">
+
+
+夜见你的声音怎么了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+syl
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1gr6f4sz7h8g20ju0b4x6t.gif" referrerpolicy="no-referrer">
+
+
+一男三女.gif<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer"> 
+
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gr6emuuvk6g20ju0b44qr.gif" referrerpolicy="no-referrer">
+
+
+グサッ<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  IDIDIDID  
+##### 1685#       发表于 2021-6-4 18:30
+
+
+pst应该比社年纪大吧
+
+
+-----
+
+####  Suny08  
+##### 1686#       发表于 2021-6-4 18:36
+
+
+Lovelyliar以前做了啥事么，看起来夜见好后悔的样子
+
+
+-----
+
+####  Ketestrait  
+##### 1687#       发表于 2021-6-4 18:42
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gr6f7wrh4qg20ju0b4qv8.gif" referrerpolicy="no-referrer">
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gr6f822raeg20ju0b4hdw.gif" referrerpolicy="no-referrer">
+
+
+はかちぇかわいい<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| argaregeasr| + 1|可爱|
+
+
+查看全部评分
+
+
+-----
+
+####  qq845629713  
+##### 1688#       发表于 2021-6-4 19:01
+
+
+pst 96的，kmm 94的，
+
+
+-----
+
+####  alcoholic1000  
+##### 1689#       发表于 2021-6-4 20:01
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-4 20:21 编辑 
+
+不破3D开了，进广告掉同接前最高3W7
+
+<img src="https://img.saraba1st.com/forum/202106/04/200917wko99rh9c4hczzet.png" referrerpolicy="no-referrer">
+
+
+<strong>【#不破湊3D】夢は叶います【にじさんじ】.png</strong> (126.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 20:09 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/202135fvxv0n9jjgfozogo.png" referrerpolicy="no-referrer">
+
+
+<strong>【#不破湊3D】夢は叶います【にじさんじ】-2.png</strong> (177.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 20:21 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 1690#       发表于 2021-6-4 20:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就是虹男v的实力吗，这一看反倒觉得社长低了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  IDIDIDID  
+##### 1691#       发表于 2021-6-4 20:17
+
+
+虹男yyds
+
+
+-----
+
+####  Ketestrait  
+##### 1692#       发表于 2021-6-4 20:23
+
+
+虚拟香槟塔<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 1693#       发表于 2021-6-4 20:23
+
+
+找了半天星川原来是在这台<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lhawp  
+##### 1694#       发表于 2021-6-4 20:26
+
+
+草 这播片也播得太明目张胆了
+
+
+-----
+
+####  黑之和  
+##### 1695#       发表于 2021-6-4 20:27
+
+
+这手指的建模又精细了啊
+还记得社筑的近景手就是五根香肠<img src="https://static.saraba1st.com/image/smiley/face2017/030.png" referrerpolicy="no-referrer">
+挑染合唱好耶！
+
+
+-----
+
+####  alcoholic1000  
+##### 1696#       发表于 2021-6-4 20:28
+
+
+把三枝的模型修一下吧，精度差太多了
+
+
+-----
+
+####  dybang  
+##### 1697#       发表于 2021-6-4 20:30
+
+
+身高差得有点多吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑之和  
+##### 1698#       发表于 2021-6-4 20:31
+
+
+哈哈，黑黑家居服，哈哈，黑黑3dlive，哈哈
+<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 1699#       发表于 2021-6-4 20:33
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-4 20:39 编辑 
+
+KING来了
+
+修模型了
+
+<img src="https://img.saraba1st.com/forum/202106/04/203632yu91b3y99yvx19gu.png" referrerpolicy="no-referrer">
+
+
+<strong>【#不破湊3D】夢は叶います【にじさんじ】-3.png</strong> (101.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 20:36 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/203829izwr1drpdhjj1354.png" referrerpolicy="no-referrer">
+
+
+<strong>【#不破湊3D】夢は叶います【にじさんじ】-4.png</strong> (127.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 20:38 上传
+
+
+别尬黑，这模型的脸不比FES好看多了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  qq845629713  
+##### 1700#       发表于 2021-6-4 20:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> KING倒是比不破还高一点，，不过3D2.0就等吧，先等最美好的神七都改修完就轮到了
+
+
+-----
+
+####  黑之和  
+##### 1701#       发表于 2021-6-4 20:34
+
+
+ 本帖最后由 黑之和 于 2021-6-4 20:40 编辑 
+
+笑喷了啊，两个次元来的吧
+
+蚌埠助了，职业病犯了想把葛的脊柱给他掰直喽
+
+进剧情了！？
+
+
+-----
+
+####  SuntoryNomu  
+##### 1702#       发表于 2021-6-4 20:40
+
+
+ 本帖最后由 SuntoryNomu 于 2021-6-4 20:44 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/204009v6qqtfqvtlqnzb80.gif" referrerpolicy="no-referrer">
+
+
+<strong>-10143455e1d83157.gif</strong> (866.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 20:40 上传
+
+
+👴🏻最想看的杀戮🌈🕒终于来了吗
+
+
+-----
+
+####  超能力者stven  
+##### 1703#       发表于 2021-6-4 20:43
+
+
+这么喜欢gantz么
+
+
+-----
+
+####  昆西昆希昆  
+##### 1704#       发表于 2021-6-4 20:44
+
+
+草 这个黑色球体，是杀戮都市的梗吗
+
+
+-----
+
+####  Ketestrait  
+##### 1705#       发表于 2021-6-4 20:44
+
+
+要开始打牌了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 1706#       发表于 2021-6-4 20:45
+
+
+草 还真是 真别一转打牌吧
+
+
+-----
+
+####  alcoholic1000  
+##### 1707#       发表于 2021-6-4 20:45
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-4 20:47 编辑 
+
+是杀戮都市的梗吧
+
+Syl，来到了黛灰进剧情、KING被食杀（物理）的地方
+
+
+全虹男护航，突出一个人望
+
+<img src="https://img.saraba1st.com/forum/202106/04/204708bu1e7yphdi7d1dy1.png" referrerpolicy="no-referrer">
+
+
+<strong>【#不破湊3D】夢は叶います【にじさんじ】-5.png</strong> (127.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 20:47 上传
+
+
+-----
+
+####  黑之和  
+##### 1708#       发表于 2021-6-4 20:46
+
+
+草，真做出来了
+
+
+-----
+
+####  十四洲  
+##### 1709#       发表于 2021-6-4 20:46
+
+
+这是人脉啊
+
+不知道有没有连麦环节，可以来个马夫
+
+
+-----
+
+####  昆西昆希昆  
+##### 1710#       发表于 2021-6-4 20:46
+
+
+鸡掰，是同类型的替身呢
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 1711#       发表于 2021-6-4 20:47
+
+
+草
+
+
+-----
+
+####  pliee  
+##### 1712#       发表于 2021-6-4 20:47
+
+
+一转格斗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑之和  
+##### 1713#       发表于 2021-6-4 20:48
+
+
+绿幕没扣干净啊喂
+
+
+-----
+
+####  Ketestrait  
+##### 1714#       发表于 2021-6-4 20:48
+
+
+大乱斗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 1715#       发表于 2021-6-4 20:50
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/204941egpgoc1dz1hcpzh1.png" referrerpolicy="no-referrer">
+
+
+<strong>【#不破湊3D】夢は叶います【にじさんじ】-6.png</strong> (98.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 20:49 上传
+
+
+有社长的LIVE就是带感啊
+
+
+-----
+
+####  黑之和  
+##### 1716#       发表于 2021-6-4 20:51
+
+
+ 本帖最后由 黑之和 于 2021-6-4 20:52 编辑 
+
+整场披露下来流程安排针不戳，看的又好又乐<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+想听现场啊啊啊啊
+
+
+-----
+
+####  Ketestrait  
+##### 1717#       发表于 2021-6-4 20:51
+
+
+燃起来了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 1718#       发表于 2021-6-4 20:52
+
+
+专业的就是不一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">找能折腾的多试试新技术
+
+
+-----
+
+####  IDIDIDID  
+##### 1719#       发表于 2021-6-4 20:56
+
+
+虽然但是，我觉得一样是二代虹男牌面，油男就没这个面子了。
+
+
+-----
+
+####  OldGlory  
+##### 1720#       发表于 2021-6-4 20:56
+
+
+集结了虹男之力了
+
+
+-----
+
+####  alcoholic1000  
+##### 1721#       发表于 2021-6-4 20:59
+
+
+看来14w是你虹目前的天花板了，不知道SC能不能破千万
+
+
+Syl，油男不唱歌，不比湊皇
+
+
+-----
+
+####  十四洲  
+##### 1722#       发表于 2021-6-4 21:00
+
+
+谢林的3d还要多久
+
+
+-----
+
+####  asdhai  
+##### 1723#       发表于 2021-6-4 21:03
+
+
+让黑黑重做一套3d应该能超过14w吧
+
+
+-----
+
+####  Suny08  
+##### 1724#       发表于 2021-6-4 21:04
+
+
+不破的确是你虹现在最强的一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  purdre  
+##### 1725#       发表于 2021-6-4 21:05
+
+
+虹男还是牛逼
+
+
+-----
+
+####  ygysh0505  
+##### 1726#       发表于 2021-6-4 21:06
+
+
+反正感觉唱歌和嘉宾挺重要的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 1727#       发表于 2021-6-4 21:10
+
+
+社长一转摇滚太强了
+
+
+-----
+
+####  fghc_h  
+##### 1728#       发表于 2021-6-4 21:11
+
+
+久违的看虹，这弹幕一句英文都没有还真不戳
+
+
+-----
+
+####  FCCHua  
+##### 1729#       发表于 2021-6-4 21:12
+
+
+不破 不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1730#       发表于 2021-6-4 21:17
+
+
+三枝抜けた！
+
+下一站下巴
+
+
+-----
+
+####  alcoholic1000  
+##### 1731#       发表于 2021-6-4 21:25
+
+
+不破湊/Minato Fuwa
+
+【#不破湊3D】夢は叶います【にじさんじ】
+
+2021-06-04(金) 21:00:09 / 1h5m31s
+
+視聴者:約144356人
+
+チャット:144128件/5171件:約￥17,815,097/メンバ:173件
+[https://twitter.com/2434rankings/status/1400805431279198213](https://twitter.com/2434rankings/status/1400805431279198213)
+
+
+-----
+
+####  Ketestrait  
+##### 1732#       发表于 2021-6-4 21:25
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1gr6jikocvwg20ju0b4qv8.gif" referrerpolicy="no-referrer">
+
+
+はかちぇかわいい定期
+
+<img src="http://tvax4.sinaimg.cn/large/7c16af6bly1gr6jiswcghg20ju0b44qt.gif" referrerpolicy="no-referrer">
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1gr6jj2sf5gg20ju0b4x6t.gif" referrerpolicy="no-referrer">
+
+
+从发泄理由看来前段时间播只狼给夜见的精神压力确实挺大的<img src="https://static.saraba1st.com/image/smiley/face2017/116.png" referrerpolicy="no-referrer">
+
+
+syl
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gr6jw8n1ykj20xt0ix457.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1gr6jwre2gkj20xu0irteo.jpg" referrerpolicy="no-referrer">
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1gr6jxmc05rj20xt0iugsr.jpg" referrerpolicy="no-referrer">
+
+
+希望大家都学习一下はかちぇ不动如山的坐姿<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  NBXX  
+##### 1733#       发表于 2021-6-4 21:25
+
+
+不破湊/Minato Fuwa
+
+【#不破湊3D】夢は叶います【にじさんじ】
+
+2021-06-04(金) 21:00:09 / 1h5m31s
+
+視聴者:約144356人
+
+チャット:144128件/5171件:約￥17,815,097/メンバ:173件
+
+[https://twitter.com/2434rankings/status/1400805431279198213](https://twitter.com/2434rankings/status/1400805431279198213)
+
+
+-----
+
+####  IDIDIDID  
+##### 1734#       发表于 2021-6-4 21:27
+
+
+看来king的保质期也只有一年，葛夸贴贴捏
+
+
+-----
+
+####  IDIDIDID  
+##### 1735#       发表于 2021-6-4 21:34
+
+
+问一下虹人大手子，叶师傅和下巴是不熟还是怎么的今天没来。
+
+
+-----
+
+####  心垂万刃  
+##### 1736#       发表于 2021-6-4 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51477769&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-4 21:27</a>
+看来king的保质期也只有一年，葛夸贴贴捏</blockquote>
+紫色矮子控是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  NBXX  
+##### 1737#       发表于 2021-6-4 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51477744&amp;ptid=1972669" target="_blank">NBXX 发表于 2021-6-4 21:25</a>
+
+不破湊/Minato Fuwa
+
+【#不破湊3D】夢は叶います【にじさんじ】
+
+2021-06-04(金) 21:00:09 / 1h5m31s</blockquote>
+补一下
+[https://getdaytrends.com/ja/tren ... 7%A0%B4%E6%B9%8A3D/](https://getdaytrends.com/ja/trend/%23%E4%B8%8D%E7%A0%B4%E6%B9%8A3D/)
+
+#不破湊3D
+
+世界的に #1 
+
+日本  #1 
+
+
+-----
+
+####  alcoholic1000  
+##### 1738#       发表于 2021-6-4 21:37
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-4 21:41 编辑 
+
+你虹3D披露最高同接、新衣装最高同接、单场SC最高记录都在湊皇那儿吧
+
+论人脉湊皇社内有メッシャーズ和月下の桜，社外有（大概算是唱见top的）mafumafu
+
+牛郎的牛是牛叉的牛
+
+Syl，刀也学业忙，除了同期3D好像没捧过场？
+
+叶师傅唱也唱不行、和同事关系也不好，没人邀请吧<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+（实话说我觉得他不排斥3D但是自己模型太丑了所以对用3D比较抵触）
+
+
+-----
+
+####  十四洲  
+##### 1739#       发表于 2021-6-4 21:38
+
+
+社长应该算唱见人脉？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1740#       发表于 2021-6-4 21:42
+
+
+说到mafumafu，现在套皮了之后就是首个300W订阅的V王之王了，把他四舍五入虹男没人会有意见吧？
+
+
+                                          
