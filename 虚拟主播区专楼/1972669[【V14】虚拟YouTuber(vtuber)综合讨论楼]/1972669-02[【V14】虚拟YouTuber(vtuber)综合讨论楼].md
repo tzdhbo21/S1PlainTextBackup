@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-02 22:53** 
+> ## **本文件最后更新于2021-06-04 17:16** 
 
 
 
@@ -1902,4 +1902,397 @@ king没有纪念回本来也就没多少打钱的
   耳mao尖叫合集
 
 
-                                            
+-----
+
+####  kangkangsama  
+##### 1652#       发表于 2021-6-3 03:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51454192&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-2 21:08</a>
+
+郡道偶尔玩的这些胡逼游戏真的很怪，三十分钟凑OCHINCHIN是在干嘛，还满贯... ...</blockquote>
+看推特才知道这ochinchin概率居然0.38%，让她30分钟凑出两次
+
+
+真是不知道该说她运气好还是不好（不适合耐久）
+
+
+-----
+
+####  OldGlory  
+##### 1653#       发表于 2021-6-3 12:58
+
+
+slee居然已经一周年了，已经差不多可以了，该解散了。
+
+
+-----
+
+####  我离合呢  
+##### 1654#       发表于 2021-6-3 13:20
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/131901c2zxhq77xxdc7q8c.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>DA64A3CE-1494-4223-96A8-8B5D3B8E5259.jpeg</strong> (209.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 13:19 上传
+
+
+管人之闇你坏事做尽（
+
+
+-----
+
+####  ashero  
+##### 1655#       发表于 2021-6-3 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51460477&amp;ptid=1972669" target="_blank">我离合呢 发表于 2021-6-3 13:20</a>
+
+管人之闇你坏事做尽（</blockquote>
+这是哪个管人
+
+
+-----
+
+####  我离合呢  
+##### 1656#       发表于 2021-6-3 13:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51460518&amp;ptid=1972669" target="_blank">ashero 发表于 2021-6-3 13:23</a>
+这是哪个管人</blockquote>
+kmnzliz
+
+
+-----
+
+####  mmbk  
+##### 1657#       发表于 2021-6-3 13:41
+
+
+我超是大妈
+
+
+-----
+
+####  Suny08  
+##### 1658#       发表于 2021-6-3 17:12
+
+
+虹串唯一指定歌姬小黄，缺席niji歌接力，串里一片哀嚎
+
+
+-----
+
+####  IDIDIDID  
+##### 1659#       发表于 2021-6-3 17:30
+
+
+小黄离小绿都有差距，更不说那几个靠卖唱吃饭的了，虹串口味真特别。
+
+
+-----
+
+####  rzrbtk  
+##### 1660#       发表于 2021-6-3 17:58
+
+
+琥珀选曲好啊，虽然唱得没有那么猛，但每次歌回都很有氛围感，还几乎每次都会唱观众推荐的歌，观众也很会推，看到好几个推荐二人季节噜…不是歌姬但也是很好的唱歌小女孩…
+不过这回歌回的人选，就是感觉缺了什么，莫非犬山都比运营有面子
+
+
+-----
+
+####  FCCHua  
+##### 1661#       发表于 2021-6-3 18:10
+
+
+琥珀那首翻唱mela！很绝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 1662#       发表于 2021-6-3 18:50
+
+
+mela，博士的群青和牛郎的怪物我觉得都比原唱强
+
+
+-----
+
+####  敖轩  
+##### 1663#       发表于 2021-6-3 20:04
+
+
+[https://www.bilibili.com/video/BV1dQ4y1Z7oC](https://www.bilibili.com/video/BV1dQ4y1Z7oC)
+
+坏女人也开始搞软瑟琴了是吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+早点开窍把这烧劲儿发给肥宅看，说不定都横滨开单人了。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 1664#       发表于 2021-6-3 20:05
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-3 20:07 编辑 
+
+8/26  RainDrops ファーストワンマンライブ「雨天決行」開催決定
+
+
+9/22  RainDrops フルアルバム「バイオグラフィ」発売
+[https://www.universal-music.co.jp/raindrops/](https://www.universal-music.co.jp/raindrops/)
+
+
+-----
+
+####  空集  
+##### 1665#       发表于 2021-6-3 20:13
+
+
+挺喜欢接力歌的不过这次阵容感觉就和之前歌谣接力差距不小 塞了个神田我也只能说why
+不过接力歌确实还是好文明 
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Suny08  
+##### 1666#       发表于 2021-6-3 20:14
+
+
+千和德龙这发言这下实锤dtn是来吸血的了，这大会主导权都不在你虹手上还好意思叫虹pex啊
+
+
+-----
+
+####  winda  
+##### 1667#       发表于 2021-6-3 20:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">提案是德龙 辅助是小千，结果发展要后面全交给运营和dtn负责了，这就是能力的局限么
+
+
+-----
+
+####  OldGlory  
+##### 1668#       发表于 2021-6-3 20:59
+
+
+积累经验，以后要办虹pex就别叫虹以外的人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1669#       发表于 2021-6-3 21:02
+
+
+<blockquote>winda 发表于 2021-6-3 20:39
+提案是德龙 辅助是小千，结果发展要后面全交给运营和dtn负责了，这就是能力的局限么 ...</blockquote>
+一期生再评价
+
+
+-----
+
+####  FCCHua  
+##### 1670#       发表于 2021-6-3 21:08
+
+
+你俩果然第一次见，这气氛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1671#       发表于 2021-6-3 21:56
+
+
+月之的粉丝家具回，有和搞怪女朋友一起逛家居城的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">...目前最有亲近感的是下面这个，但是月之在问这个是中国风吗的时候冒出来那些写台湾香港料理的人真是...很有那个的意识，看管也不放松啊（不是爱讨论就是单纯感慨一下）。
+
+<img src="https://img.saraba1st.com/forum/202106/03/215622bggyj8e8yuoo5yom.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 766 - (9) リスナーからヤバそうな家具いっぱいもらいました【月ノ.jpg</strong> (304.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 21:56 上传
+
+
+-----
+
+####  hulaoda007  
+##### 1672#       发表于 2021-6-3 22:01
+
+
+ 本帖最后由 hulaoda007 于 2021-6-3 22:09 编辑 
+
+  虽然很突然，但还是想说，eli真的好可爱...  
+
+  [https://www.bilibili.com/video/BV1Dv411V7nx](https://www.bilibili.com/video/BV1Dv411V7nx)
+
+  啊，有了这个切片。“艾莉轻声说‘杂...鱼~’”
+
+
+-----
+
+####  ヒトニナル  
+##### 1673#       发表于 2021-6-3 22:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">以后？只剩半年了还说以后？
+
+
+-----
+
+####  alcoholic1000  
+##### 1674#       发表于 2021-6-3 22:27
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-4 00:14 编辑 
+
+歌接力？只想看小绿主办的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+Syl，
+
+<img src="https://img.saraba1st.com/forum/202106/04/001007hpzepzdsaz4ha71a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>初エビマル３Dコラボだよ！！！！.jpg</strong> (202.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 00:10 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 1675#       发表于 2021-6-4 01:00
+
+
+ 本帖最后由 IDIDIDID 于 2021-6-4 01:15 编辑 
+
+#EliraPendora #絵リーラ #pendorART
+
+【100K COUNTDOWN】 WILL THIS BE THE MOMENT!? 【NIJISANJI EN | Elira Pendora】
+[https://www.youtube.com/watch?v=IrNq3kJOWVY](https://www.youtube.com/watch?v=IrNq3kJOWVY)
+
+EN龙这个破了金鱼妹的最速银盾了吧。
+
+=====
+
+从第一个视频上传算起20天整。
+
+
+-----
+
+####  ShuTk4O  
+##### 1676#       发表于 2021-6-4 01:51
+
+
+这个点播给谁看啊。日本乃至东南亚都睡了，欧美还在上课上班。印度特攻？
+
+
+-----
+
+####  OldGlory  
+##### 1677#       发表于 2021-6-4 02:10
+
+
+nijien的收益化怎么过的这么慢？
+
+
+-----
+
+####  poipanchao  
+##### 1678#       发表于 2021-6-4 02:22
+
+
+ 本帖最后由 poipanchao 于 2021-6-4 08:27 编辑 
+
+一直没法适应瓦罗兰的bora今天反而打的不如之前，与此同时石油和arsk都在快速进步
+队练结束后跟观众杂谈，聊着聊着越来越不甘心开始哭，而且哭得特别好笑
+“我想赢啊，想赢了拿奖金买喜欢的衣服，555（拍桌子）”
+“明明不是代打，season1的nunbora去哪了啊，5555（第一赛季她上了钻就溜去apex了）”
+然后一边哭一边去单排，一边杀人一边哭
+打着打着发现自己因为隐藏分误入钻排，碾压取胜以后陷入怀疑
+“难道不是因为我太杂鱼了，是练习赛的对手太变态了？”
+萌死了
+
+syl，运营组织的好混乱，我晚上随便听了一下德龙千的说明，就一个感觉
+一地鸡毛
+
+
+-----
+
+####  winda  
+##### 1679#       发表于 2021-6-4 06:15
+
+
+ 本帖最后由 winda 于 2021-6-4 06:23 编辑 
+
+奈罗花本来是队长但鬼神组伤害超了点就放弃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">后面追加规则有角色选择限制就可以超伤害，但当时队伍已经基本都组好了
+
+
+-----
+
+####  CAserlumos  
+##### 1680#       发表于 2021-6-4 12:17
+
+
+小夜，嘿嘿，我的小夜<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+E3Aaa8oUYAYTg79.jpg
+(261.01 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-4 12:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/121650e4buahvor4044mhb.jpg" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Suzutsuki  
+##### 1681#       发表于 2021-6-4 15:56
+
+
+ 本帖最后由 Suzutsuki 于 2021-6-4 16:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51468158&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-4 02:22</a>
+
+一直没法适应瓦罗兰的bora今天反而打的不如之前，与此同时石油和arsk都在快速进步
+
+队练结束后跟观众杂谈， ...</blockquote>
+什么 我看她玩了一晚上还想怎么训练了那么久 原来还有这种事<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ketestrait  
+##### 1682#       发表于 2021-6-4 17:04
+
+
+昨天刚看了社长的如龙0录播，某段剧情时的评论栏，露皇和社长观众主流：中国人素质屌差；牛姨观众主流：那个时代无可奈何。
+
+播出时间带深夜和下午的差别有这么大吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                           

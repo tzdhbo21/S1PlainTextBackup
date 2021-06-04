@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-20 09:39** 
+> ## **本文件最后更新于2021-06-04 17:10** 
 
 
 
@@ -1088,9 +1088,10 @@ JST 22:00 紫夸鸭粥4人马里奥派对
 ##### 6097#       发表于 2021-5-20 17:29
 
 
- 本帖最后由 FCCHua 于 2021-5-20 17:31 编辑 
+ 本帖最后由 FCCHua 于 2021-5-20 19:55 编辑 
 
 所以这个月已经知道的26号联动还弄吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+大概率无了，不知道会是延后还是...
 
 
 -----
@@ -1099,9 +1100,364 @@ JST 22:00 紫夸鸭粥4人马里奥派对
 ##### 6098#       发表于 2021-5-20 17:37
 
 
+ 本帖最后由 梅斯之围 于 2021-5-20 18:18 编辑 
+
 这次心态炸肯定不是被黑泥破防这么简单。从二月份起直播频率就开始降低，身体问题也在一直念叨到现在，再加上搬家之后家庭关系什么的。最近健康变差和推上打tag跳脸的只能算是最后一根稻草。
+
 主播心态影响观众，观众心态又反过来影响主播倒是真的。
+
+
 只能说感谢夸宝给我一个月时间去干正事，终于不用天天惦记今天播不播了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 
-                                              
+想倒黑泥想想还是算了。也是老大不小的人了，弱智五岁盾总不能用一辈子，自己做的事自己承担
+
+
+只能说祝她早日恢复健康。
+
+
+-----
+
+####  OldGlory  
+##### 6099#       发表于 2021-5-20 17:59
+
+
+挺好挺好，争取做木口阿菜<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 6100#       发表于 2021-5-20 18:04
+
+
+说出來也好，再头铁的人也会有没法铁下去的时候啊，毕竟现实摆在那里，没法，好好休息吧
+
+
+-----
+
+####  ylssb10438  
+##### 6101#       发表于 2021-5-20 18:05
+
+
+和突然玩消失比起来搞声明直播已经算带进步了嗷<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 6102#       发表于 2021-5-20 18:49
+
+
+转一些同传，以免有些人断章取义 <blockquote>这次开是要澄清没有要毕业这件事
+
+因为没有出来讲清楚所以导致最近有很多谣言跟臆测
+
+她之前太勉强自己所以病倒了，当天本来有预定的工作也没去，给很多人造成了麻烦
+
+因为身体状况不好所以导致精神状况也不好，没有办法开台的焦躁感让她睡不好，会梦到开台没人看或是被奇怪的人追的梦然后惊醒
+
+为什么没有开游戏台是因为怕说讲这些事会让游戏变成附带品，对努力做出游戏的人不公平所以就没有开了
+
+原本想说喉咙比较好了可以开台唱几首看看然后讲讲这些事情，但看很多人提醒说喉咙不好就不要开了所以就先不开了
+
+没有打算毕业，也没有失去干劲，更没有打算偷懒。想在Hololive做的事跟达成的事还有很多，想跟大家一起达成的想法也没有变
+
+为了让身体尽快复原，虽然不擅长但也会试着可以自己去医院
+
+我还会再休息一段时间，希望六月初可以回归，这段时间会传住在疗养身体上
+
+频道简介是在很久之前想更新的时候不小心删掉，然后就放着了，没有什么深意。安定下来之后会去写
+
+让一直以来鼓励我的大家担心真的很抱歉，会努力让自己能够健康的活动下去
+
+虽然会很寂寞，但希望还能再等一下
+
+真的很感谢大家一直以来的支持
+
+这次露西亚特别错开了开台的时间，也有跟她用私讯道谢了
+
+希望一些恶意的造谣、捏造或是抹黑可以停止，事务所方面也有打算对其进行相对应的措施。希望大家可以直接无视就好</blockquote><blockquote>身体方面主要是喉咙不太行，在404的live回顾直播的时候，中途就喉咙痛发不出声，过了一段时间感觉好点了之后，去了收录之后，（喉咙）又开始疼了，之后马趴联动的预定来了，想休息参加马趴后就正常直播，马趴途中又发出声音困难。
+
+虽然去了一次医院，但是感觉没有好转，近期打算再去一次，
+
+ 几天没播，出现了不少谣言，今天特意来辟谣，
+
+原本开的是歌，在此说明一下，就算恶化，也要唱几首，以此轻松的谈，以此为契机开了台，
+
+不开游戏的原因，在说正事之前完游戏的话，如果出现（游戏）输了之类的情况，可能会给喜欢游戏的人添麻烦什么的，
+
+不开杂谈的原因，因为本来就不擅长杂谈，之前都是提前写好笔记再聊，但是，由于身体和精神，最近没有做笔记，所以不能开杂谈，消除法后决定开了歌，但是又不想产生新的谣言，最后就决定慢慢说正事（标题
+
+ 平时极力避开负面信息，但是这次这样因为什么都没说，谣言越传越大这件事，感受到了</blockquote>
+
+
+-----
+
+####  面具13  
+##### 6103#       发表于 2021-5-20 19:35
+
+
+感谢夸宝说明，至少可以少花几秒钟翻推特和holostat的时间
+
+
+-----
+
+####  面具13  
+##### 6104#       发表于 2021-5-20 19:40
+
+
+她说做梦梦到没人看直播吓醒了哈哈哈哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6105#       发表于 2021-5-20 19:48
+
+
+哦，是看到那篇Vtuberアンテナ号的文啊，之前就说过没人催播以后一搜あくたん一排全是这个，抗压差还点进去看果然就炸了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 6106#       发表于 2021-5-20 21:31
+
+
+一点开就这种 卑微谢罪的语气……我实属没兴趣听了<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+行，这块也被你夸夸整明白了，麻了
+
+
+-----
+
+####  Kanchiki  
+##### 6107#       发表于 2021-5-21 08:39
+
+
+你不说，自然会有人帮你“说”。话语权这种东西不去争取，真的是被人随意造谣抹黑。与其这样故意回避负面话题被黑屁发散，还不如姨了算了，时不时不安几下，还能多点gachi心疼打钱
+
+
+-----
+
+####  Maonpuyo  
+##### 6108#       发表于 2021-5-21 08:56
+
+
+ 本帖最后由 Maonpuyo 于 2021-5-21 09:02 编辑 
+
+不然呢，两个月半死不活还屁话不说，反正直播时长在那摆着，真以为心灵相通呢？死宅虽然好骗，都快一年了，也不可能自我感动到这种程度
+
+
+-----
+
+####  cvql  
+##### 6109#       发表于 2021-5-21 18:47
+
+
+放心播的再少也比懒狗多
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+-----
+
+####  梅斯之围  
+##### 6110#       发表于 2021-5-21 19:04
+
+
+懒狗指的是谁啊，狗宝吗，那怕不是活在上世纪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+上半个月两个人都只播了3场，再加把油鼓把劲就超越狗宝了
+
+
+-----
+
+####  星の守  
+##### 6111#       发表于 2021-5-25 21:16
+
+
+ 本帖最后由 星の守 于 2021-5-25 23:15 编辑 
+
+发了个推，看来是想通了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+楼下建议回去再刷一遍推<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 6112#       发表于 2021-5-25 22:48
+
+
+啊，不是运营上号发了个工商，自己不应该顺便发点东西表示一下吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6113#       发表于 2021-5-31 17:53
+
+
+ 本帖最后由 面具13 于 2021-5-31 21:55 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/31/175235xc7mrycolyuz31m0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>推特推荐.jpg</strong> (26.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-31 17:52 上传
+
+
+推特推荐搞我心态啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+躺着不动涨粉速度都不带变的。
+
+
+-----
+
+####  nowaki  
+##### 6114#       发表于 2021-5-31 23:38
+
+
+你杏就是这样的，很多时候躺平比酬勤得到的还多。
+
+
+-----
+
+####  面具13  
+##### 6115#       发表于 2021-6-1 23:02
+
+
+6月初开始了哦，10号前算误差<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 6116#       发表于 2021-6-1 23:04
+
+
+ 本帖最后由 星の守 于 2021-6-1 23:05 编辑 
+
+夸宝快回来吧，救救你的crew<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6117#       发表于 2021-6-3 19:42
+
+
+夸宝慢慢摸，忙过了下周就有多点时间看管人了
+
+
+-----
+
+####  梅斯之围  
+##### 6118#       发表于 2021-6-4 10:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">6月1日是六月，6月30日也是六月
+
+
+-----
+
+####  星の守  
+##### 6119#       发表于 2021-6-4 10:53
+
+
+那么六月初到底是六月几呢<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 6120#       发表于 2021-6-4 11:49
+
+
+答案是6月11夏日游戏节同步视听。
+
+老头环，我的老头环😭😭😭
+
+
+0662DDB3F94758B97A7C683F0B0087E8..jpg
+(47.95 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-4 11:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/114837pnwf9dx0xmfqfc9c.jpg" referrerpolicy="no-referrer">
+
+
+A45C45A41CD558819C66FE76CCA5C2D5..jpg
+(43.71 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-4 11:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/114837dbz1ea32bz6u447z.jpg" referrerpolicy="no-referrer">
+
+
+B741388FEC98DF52EA9C5FEA4AC7DA10..jpg
+(32.55 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-4 11:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/114838wosf4044hfsjs0gk.jpg" referrerpolicy="no-referrer">
+
+
+D00169E214FD7ADF4884DDE2AB1409EF..jpg
+(205.05 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-4 11:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/114839xa02wpat2obnczb9.jpg" referrerpolicy="no-referrer">
+
+
+Cache_7b23838ee2e3acc..jpg
+(126.8 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-4 11:48 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/114838qhh6e1q8ha78i61t.jpg" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  バーチャルS1er  
+##### 6121#       发表于 2021-6-4 15:12
+
+
+都6月了，你夸的5月病还没好吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                             
