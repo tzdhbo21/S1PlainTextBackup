@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-03 03:59** 
+> ## **本文件最后更新于2021-06-04 14:18** 
 
 
 
@@ -3044,7 +3044,7 @@ pv1
 2021-4-14 14:25 上传
 
 
-<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_AtzHt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQYluB7CAydgiy9NfvSFY7FYP6kzfh85ZXvAw&amp;usqp=CAU" id="aimg_mpwGt" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 --
 
@@ -9955,8 +9955,10 @@ ED最后的怪物里最后一个完全体的曼达也登场了,看来没有新�
 ##### 785#       发表于 2021-6-3 03:02
 
 
+ 本帖最后由 Lokay 于 2021-6-3 11:18 编辑 
+
 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这是什么，在未来用超时空计算机把男主发给女主的那个喷射杰格升级包算出来了，然后藏到曲子里发送给过去的苇原吗。
-越来越觉得第三集开头旁白对话里那句“いや この僕じゃ”有点像是说“不是，不是(现在的)这个我，(是未来的我)。”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+越来越觉得第三集开头旁白对话里那句“いや この僕じゃ”有点像是说“不是，不是(现在的)这个我，(是**时的我)。”<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
 
 —— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
@@ -9973,4 +9975,359 @@ ED最后的怪物里最后一个完全体的曼达也登场了,看来没有新�
 —— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
 
 
-                       
+-----
+
+####  frosta  
+##### 787#       发表于 2021-6-3 04:36
+
+
+ 本帖最后由 frosta 于 2021-6-2 12:37 编辑 
+
+第10集观感不错，比上一集不说人话好多了
+把md5和时空穿越串起来了这点好评，还稍微讨论了一下时空悖论，盲猜一个是未来的女主发送给过去的信号
+
+
+话说OD是啥一直没个解释吧，感觉是把红尘降维的某种东西，所以本来颗粒状的红尘瞬间变成尖刺，硬套这个名字也合理，orthogonal diagonalization不就是PCA之类会用到的技巧么<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+至于奇点和破局我已经放弃理解了，就当是世界末日的另一个别称吧
+
+— from samsung SM-G981U1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  悠然独空想  
+##### 788#       发表于 2021-6-3 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51457163&amp;ptid=1963627" target="_blank">frosta 发表于 2021-6-3 04:36</a>
+
+第10集观感不错，比上一集不说人话好多了
+
+把md5和时空穿越串起来了这点好评，还稍微讨论了一下时空悖论，盲 ...</blockquote>
+前面说OD是红尘的第十三阶段，能使前十二阶段的红尘变质，至于为什么，就当是这么个设定吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AlfredXC  
+##### 789#       发表于 2021-6-3 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456757&amp;ptid=1963627" target="_blank">拥挤的屋顶 发表于 2021-6-3 01:08</a>
+
+哥总气势出来了,可惜镜头太少了。
+
+jet jagger PP的PP是什么意思呢</blockquote>
+pro plus<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Freakyyu  
+##### 790#       发表于 2021-6-3 10:56
+
+
+怎么感觉讲了好几集物理设定之后这集又转回一种神秘主义路线上去了<img src="https://static.saraba1st.com/image/smiley/face2017/192.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  菲特妹  
+##### 791#       发表于 2021-6-3 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456912&amp;ptid=1963627" target="_blank">曦光 发表于 2021-6-3 01:43</a>
+这番非理工科的是不是追起来挺难受的，到处都能看见吐槽</blockquote>
+正好相反，这片借用的数学物理名词，真的只是个名词而已，要是理科生知道知道这些名词的真正意思，反而看得难受<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  菲特妹  
+##### 792#       发表于 2021-6-3 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456912&amp;ptid=1963627" target="_blank">曦光 发表于 2021-6-3 01:43</a>
+这番非理工科的是不是追起来挺难受的，到处都能看见吐槽</blockquote>
+正好相反，这片借用的数学物理名词，真的只是个名词而已，要是理科生知道知道这些名词的真正意思，反而看得难受<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  概率边界  
+##### 793#       发表于 2021-6-3 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51456912&amp;ptid=1963627" target="_blank">曦光 发表于 2021-6-3 01:43</a>
+这番非理工科的是不是追起来挺难受的，到处都能看见吐槽</blockquote>
+里面的数理名词差不多是随意堆叠名词的程度，理科生有强迫症的看了更难受<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  曦光  
+##### 794#       发表于 2021-6-3 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51458956&amp;ptid=1963627" target="_blank">菲特妹 发表于 2021-6-3 11:04</a>
+正好相反，这片借用的数学物理名词，真的只是个名词而已，要是理科生知道知道这些名词的真正意思，反而看 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然我知道是瞎扯但还是能看出来在努力自洽，只不过确实没有Thorne的水平，同行衬托之下我还是愿意少带点脑子看。但是看到不少人说堆砌名词，一直在构筑世界观看不懂。
+
+
+-----
+
+####  赤井稻妻  
+##### 795#       发表于 2021-6-3 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51460216&amp;ptid=1963627" target="_blank">曦光 发表于 2021-6-3 12:57</a>
+
+虽然我知道是瞎扯但还是能看出来在努力自洽，只不过确实没有Thorne的水平，同行衬托之下我还是愿 ...</blockquote>
+其实把故事翻译成人话挺容易讲清楚的，只是这样太low，不如堆砌名词高大上，还能糊弄一下非理科生
+
+
+-----
+
+####  蛇头  
+##### 796#       发表于 2021-6-3 13:44
+
+
+所以奇点到底是个啥，怎么还能在地下被拉出来的
+
+
+-----
+
+####  砂糖天妇罗  
+##### 797#       发表于 2021-6-3 15:02
+
+
+突然想到。希瓦会不会和魔斯拉有关啊？
+<img src="https://i.loli.net/2021/06/03/AwIBylTR3sOSDE2.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  伊可费斯  
+##### 798#       发表于 2021-6-3 15:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51461603&amp;ptid=1963627" target="_blank">砂糖天妇罗 发表于 2021-6-3 15:02</a>
+
+突然想到。希瓦会不会和魔斯拉有关啊？</blockquote>
+好家伙还真是
+
+
+-----
+
+####  Cloudslin  
+##### 799#       发表于 2021-6-3 16:39
+
+
+我是做工程的，看这一帮人隔这高强度空谈也很难受
+
+
+-----
+
+####  菲特妹  
+##### 800#       发表于 2021-6-3 17:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51460216&amp;ptid=1963627" target="_blank">曦光 发表于 2021-6-3 12:57</a>
+
+虽然我知道是瞎扯但还是能看出来在努力自洽，只不过确实没有Thorne的水平，同行衬托之下我还是愿 ...</blockquote>
+我觉得看不懂的原因在于，这些人堆砌的名词想表达的意思，跟这些名词实际的意思是两回事，所以才说懂的看得难受<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  不灭的旋律  
+##### 801#       发表于 2021-6-3 19:50
+
+
+恭喜曼达第一次和哥总对决，然后迅速被秒<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">JJ升级后之前的人格不会就没了吧
+
+
+-----
+
+####  Eubel  
+##### 802#       发表于 2021-6-3 22:17
+
+
+第十话最后的哥斯拉真好啊。
+
+怪兽片就该拍大怪兽嘛。
+
+
+-----
+
+####  HGCG  
+##### 803#         楼主| 发表于 2021-6-3 22:27
+
+
+飞天豹要怎么和哥总打……
+
+
+-----
+
+####  梦诗歌雪  
+##### 804#       发表于 2021-6-3 23:29
+
+
+上一集吃饭还在奇怪李博士怎么一个镜头过来就啥事没有了，这集又说她死了，才发现上集那段是回忆，剪辑得完全看不出是回忆啊，铭在机场等航班时的样子也完全不像是刚刚失去同伴。另外她只是看到李博士被拉顿群包围然后就被真北推走了吧，并没有明确她真的死了
+
+
+-----
+
+####  梦诗歌雪  
+##### 805#       发表于 2021-6-3 23:36
+
+
+ 本帖最后由 梦诗歌雪 于 2021-6-3 23:38 编辑 
+<blockquote>AlfredXC 发表于 2021-6-3 00:46
+说来我还是才知道阿拉丁是中国人</blockquote>
+一千零一夜里其实有很多故事都发生在中国或者提到过中国，在当时的阿拉伯人眼中中国是一个充满各种黑科技的神秘国度，所以当想要增加故事的神秘感时就可以说它发生在中国，当剧情需要某种强力道具时也可以说是中国传来的高科技物品，比如某种无比坚固的材料“中国铁”。当然了当时的阿拉伯人写出来的中国肯定还是完全阿拉伯味儿的，比如阿拉丁神灯里就出现过皇帝身边的白人宫女和黑人太监<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  坂上菠萝  
+##### 806#       发表于 2021-6-4 01:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51466681&amp;ptid=1963627" target="_blank">HGCG 发表于 2021-6-3 22:27</a>
+
+飞天豹要怎么和哥总打……</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">说不定能和哥总对波
+
+
+-----
+
+####  cerenkov  
+##### 807#       发表于 2021-6-4 02:42
+
+
+最新话看完来谈两句心得
+
+
+首先关于主角的主线任务，之前苇原的信息已经明确指出了“只消灭红尘的话还不够”，即超时间计算机即使算出了O.D.并量产也回避不了世界末日，这次更是挑明了必须将能够制造红尘的奇点（阿拉丁神灯）本身消灭掉，但问题是怎么消灭奇点，按照惯例这个巧妙的方法肯定要由苇原传达信息一点即通的，那这里就脑洞一下，前面李博士和神野就讨论过怎么将“-1”这个概念传达到未来，当时切掉的画面应该就是拼图缺失的那块了，再加之有川一直在纠结4天后在车站上空100米处会有什么信息，这悬半空的能有什么实体信息吗，与其说“有什么”不如猜想会“没有什么”更大概率吧，假如“负一”的信息传来，那如何消灭奇点的方法到时自然就会浮现
+
+
+这里还有一个不知道有没有关系的细节，JetJaggar在自我升级之后曾经从皮亚诺公理开始重新习得数学，但有趣的是皮亚诺公理系统里面是没有负一的，这些应该都是指向消灭奇点的方法的线索
+
+
+然后再说说奇点，按照剧中的描述（而非按照现实中的奇点定义）奇点是物理法则失效之处，奇点不止一个而是有很多个分散在世界各地，但同时这些复数个奇点也只是高维空间的那<strong>一个</strong>奇点在三维空间的投影或者说横截面，随着时间推移奇点会成长为破局（这个过程也许可以认为是高维空间的那一个奇点的本体降临于现世，即破局就是本体），就像章鱼的触手逐渐合流回到本体上那样，就像摇篮曲所唱的离别与邂逅的故事的后半段，所有河流最终都汇入大海，那么回到如何消灭奇点的问题上，本来奇点分散在世界各地有那么多个并不好处理，但是在多合而为一的那个时候，问题反而简化了，用“负一”就能将其解决，那么负一究竟是什么呢，不会是搞类似于黑洞白洞合并湮灭这种套路吧，等等破局不会就是吞噬地球的大黑洞而分散的奇点是微型黑洞吧
+
+
+最后再说说某自由记者，在这集提到了“我们的组织”，然后再结合他将骸骨奇点运走（估计是助攻），不像是真的那种有自私目标的角色，而是跟主线任务有关的角色，这样一来很容易猜想他们的组织会不会直接接受了来自于苇原的指令，明明知晓一切真相但却不能插手到历史进程里，否则历史进程会发生变动，这就很有谢顿用心理史学预测了未来然后又设立第二基地保护历史发展的意思了，毕竟苇原也是把奇点当做窥视未来的望远镜来用的，他既需要为未来布下伏线又不能干预未来使得已经观测到的未来发生意料外的变动，可以说非常第二基地了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 小皮诺| + 1|思路广|
+
+
+查看全部评分
+
+
+-----
+
+####  wfay  
+##### 808#       发表于 2021-6-4 03:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51467214&amp;ptid=1963627" target="_blank">梦诗歌雪 发表于 2021-6-3 23:29</a>
+
+上一集吃饭还在奇怪李博士怎么一个镜头过来就啥事没有了，这集又说她死了，才发现上集那段是回忆，剪辑得完 ...</blockquote>
+其实是有描写铭失去同伴的反应，就是处理得有一点隐晦
+
+一幕是给了铭黑眼圈，牧田建议她休息一下，应该是因为李博士死了连续几天睡不好
+
+还有一幕是坐上BB女儿的车和牧田道别时，突然有种很希望对方多保重的感觉
+
+
+-----
+
+####  小皮诺  
+##### 809#       发表于 2021-6-4 03:13
+
+
+观感越来越好了
+
+
+-----
+
+####  gaosf  
+##### 810#       发表于 2021-6-4 07:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51467214&amp;ptid=1963627" target="_blank">梦诗歌雪 发表于 2021-6-3 23:29</a>
+上一集吃饭还在奇怪李博士怎么一个镜头过来就啥事没有了，这集又说她死了，才发现上集那段是回忆，剪辑得完 ...</blockquote>
+回忆那段李博士和铭在一个很高档的餐厅用餐，周围还有侍者和其他客人。但是从前面游艇上遇到拉顿群和曼达之后就因为交通原因只有博士、铭，和那个灰发大汉在独自赶路了，遭袭之后的地方也明显没有这种高档餐厅用餐的条件。这里不难看出是之前的回忆的。
+
+
+
+
+-----
+
+####  teecoo00  
+##### 811#       发表于 2021-6-4 09:34
+
+
+円城最新访谈说了没怎么描写人类伤亡情景是因为他不擅长“杀人”
+
+
+-----
+
+####  暗黑能乐  
+##### 812#       发表于 2021-6-4 11:52
+
+
+有没有最新一话汉化了的下载，求一个
+
+
+-----
+
+####  坂上菠萝  
+##### 813#       发表于 2021-6-4 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51470717&amp;ptid=1963627" target="_blank">暗黑能乐 发表于 2021-6-4 11:52</a>
+
+有没有最新一话汉化了的下载，求一个</blockquote>
+bd19082b80530c1763ca095f626ffea8ecb3b792
+
+[https://nyaa.si/?f=0&amp;c=0_0&amp;q=Godzilla](https://nyaa.si/?f=0&amp;c=0_0&amp;q=Godzilla) 
+
+
+标GST的就是网飞源，网飞源自带中字
+
+
+-----
+
+####  暗黑能乐  
+##### 814#       发表于 2021-6-4 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51471126&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-6-4 12:18</a>
+bd19082b80530c1763ca095f626ffea8ecb3b792
+
+
+https://nyaa.si/?f=0&amp;c=0_0&amp;q=Godzilla </blockquote>
+感谢
+
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                      
