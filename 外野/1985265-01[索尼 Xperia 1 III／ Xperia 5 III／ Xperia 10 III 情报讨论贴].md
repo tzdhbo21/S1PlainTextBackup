@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-03 05:46** 
+> ## **本文件最后更新于2021-06-05 00:24** 
 
 
 
@@ -50,7 +50,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103506frrpzpxukuzozovv.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_2-768x432.jpg</strong> (11.31 KB, 下载次数: 5)
+<strong>Sony-Xperia-1-III-Mark-3_Render_2-768x432.jpg</strong> (11.31 KB, 下载次数: 6)
 
 下载附件
 
@@ -60,7 +60,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103506nfhc9uj2qn7z9epj.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_3-768x432.jpg</strong> (14 KB, 下载次数: 5)
+<strong>Sony-Xperia-1-III-Mark-3_Render_3-768x432.jpg</strong> (14 KB, 下载次数: 6)
 
 下载附件
 
@@ -70,7 +70,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/103507m5icmgk6zidu2lci.jpg" referrerpolicy="no-referrer">
 
 
-<strong>Sony-Xperia-1-III-Mark-3_Render_4-768x432.jpg</strong> (13.97 KB, 下载次数: 4)
+<strong>Sony-Xperia-1-III-Mark-3_Render_4-768x432.jpg</strong> (13.97 KB, 下载次数: 6)
 
 下载附件
 
@@ -90,7 +90,7 @@
 <img src="https://img.saraba1st.com/forum/202101/29/104512tn9naa4e00t8na4n.png" referrerpolicy="no-referrer">
 
 
-<strong>Xperia-1-III-periscope-camera.png</strong> (46.54 KB, 下载次数: 3)
+<strong>Xperia-1-III-periscope-camera.png</strong> (46.54 KB, 下载次数: 6)
 
 下载附件
 
@@ -7925,4 +7925,416 @@ https://www.bilibili.com/video/av290914396
 我还以为多热，43度调度还是保守了。
 
 
-                              
+-----
+
+####  Lisylfn  
+##### 572#       发表于 2021-6-3 09:20
+
+
+泥潭没有到手的吗? 我狗东1号凌晨踩着点付款, 今天才配送...不知道是不是广州疫情影响, 我这里也没有封锁啊
+
+
+-----
+
+####  leystage  
+##### 573#         楼主| 发表于 2021-6-3 09:31
+
+
+<blockquote>allenz2 发表于 2021-6-2 18:41
+有没有恰饭看视频内容就知道了，明显的媒体通稿，除了一两个视频外其他关注的点都一毛一样，而且好几个up ...</blockquote>
+感觉吹得点也不够全，甚至有点阴阳怪气的感觉…
+
+
+-----
+
+####  WosunOO  
+##### 574#       发表于 2021-6-3 10:40
+
+
+确实，本次大法给饭范围之大让俺大受震撼。。。甚至有点后悔下单了
+
+
+-----
+
+####  最弱败者  
+##### 575#       发表于 2021-6-3 11:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">本来想换512g的水桶机
+
+看了大法这情况 还是选s21u好一点？
+
+
+-----
+
+####  Lightning2  
+##### 576#       发表于 2021-6-3 12:55
+
+
+用的官方送的壳。开了一会舟游都感觉发热，前几代都没这样
+原装充电器试了一下也是速充发烫，而且不知道为什么插上自己MOMAX的65W充电器总是会显示慢速充电，根本充不进去，要重启之后才开始正常充
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 577#       发表于 2021-6-3 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51459318&amp;ptid=1985265" target="_blank">最弱败者 发表于 2021-6-3 11:30</a>
+本来想换512g的水桶机
+
+看了大法这情况 还是选s21u好一点？</blockquote>
+S21U一样降频拉垮，888通病谁也别瞧不起谁
+
+当然要是觉得软件生态三星的更好，更喜欢这种管得比较全的系统，那确实是三星更好一点
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 578#       发表于 2021-6-3 13:00
+
+
+ 本帖最后由 我很费纸 于 2021-6-3 13:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51460183&amp;ptid=1985265" target="_blank">Lightning2 发表于 2021-6-3 12:55</a>
+用的官方送的壳。开了一会舟游都感觉发热，前几代都没这样
+原装充电器试了一下也是速充发烫，而且不知道为 ...</blockquote>
+一个思路给你验证一下，游戏增强器的bug会导致这个问题。
+
+可能是因为你刚打开游戏，游戏增强器里勾选了HS热量控制，这个功能会限制充电功率，绕过电池直接给CPU供电，并且有一定概率在游戏退出或者是把游戏暂放在后台的时候，继续触发，导致充不进电。把游戏打开再关掉一般就好了。（重启就和关游戏是一样的）
+
+我就时不时遇上这个问题。还包括如果在增强器里选了锁60Hz，那么退出游戏以后也有概率继续锁60Hz……
+
+一定要彻底关闭游戏才能彻底退出游戏增强器。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  jzsgtx  
+##### 579#       发表于 2021-6-3 13:00
+
+
+开始犹豫是买mk2还是3了，mk2也有1跟5，各有优劣。。。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 580#       发表于 2021-6-3 13:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51460242&amp;ptid=1985265" target="_blank">jzsgtx 发表于 2021-6-3 13:00</a>
+开始犹豫是买mk2还是3了，mk2也有1跟5，各有优劣。。。
+
+—— 来自 Sony J9110, Android 11上的 S1N ...</blockquote>
+不介意尺寸差别的话，马克2我是推荐5多一点，1的伪高刷没意思，除非你是冲着国行12G大内存去的，那只能选1。
+
+马克3就是只推荐1，5挤牙膏，就常规更新一下镜头，连RAM都不舍得加到12G，差评。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Lisylfn  
+##### 581#       发表于 2021-6-3 15:38
+
+
+狗东这次物流拉跨（现在才到手
+<img src="https://p.sda1.dev/2/e97e7e967c7ad0bdee15596057f81a33/IMG_CMP_217348232.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cray  
+##### 582#       发表于 2021-6-3 15:47
+
+
+<blockquote>引用第575楼Lightning2于2021-06-03 12:55发表的  :
+
+用的官方送的壳。开了一会舟游都感觉发热，前几代都没这样原装充电器试了一下也是速充发烫，而且不知道为什......</blockquote>
+粥油我用XZ2挂机PL5 能烫手 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刷s1都热
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Cray  
+##### 583#       发表于 2021-6-3 15:47
+
+
+<blockquote>引用第580楼Lisylfn于2021-06-03 15:38发表的  :
+
+狗东这次物流拉跨（现在才到手</blockquote>
+真是好看<img src="https://static.saraba1st.com/image/smiley/face2017/082.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  xzk0916  
+##### 584#       发表于 2021-6-3 17:51
+
+
+【压住了！索尼Xperia 1 III 性能/发热/续航体验-哔哩哔哩】
+https://b23.tv/ntC1as
+
+把大核鲨了压住了温度<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  xzk0916  
+##### 585#       发表于 2021-6-3 17:51
+
+
+ 本帖最后由 xzk0916 于 2021-6-3 17:54 编辑 
+
+风怒
+
+
+-----
+
+####  jzsgtx  
+##### 586#       发表于 2021-6-3 18:42
+
+
+美极了，不犹豫了，就入mk3<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lisylfn  
+##### 587#       发表于 2021-6-3 20:06
+
+
+通知栏快捷方式的NFC没有啦？
+
+
+-----
+
+####  zhongjie  
+##### 588#       发表于 2021-6-3 21:12
+
+
+三个颜色里哪个最好看？看楼里说灰色最难看？
+
+
+-----
+
+####  我很费纸  
+##### 589#       发表于 2021-6-3 21:27
+
+
+ 本帖最后由 我很费纸 于 2021-6-3 21:39 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51463432&amp;ptid=1985265" target="_blank">xzk0916 发表于 2021-6-3 17:51</a>
+【压住了！索尼Xperia 1 III 性能/发热/续航体验-哔哩哔哩】
+https://b23.tv/ntC1as</blockquote>
+果然，mark2的Android 11的抽风调度就是为了888准备的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+大核调度超消极甚至锁频不动，7核有难，大核围观<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+甚至我都不知道怎么好意思说这就叫压住了，明明是性能换温度罢了。感觉就像当初MBP梦幻单热管压i9，明明都降频到基频都不跑不到了，还有人说压住了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  哎哟卧槽了  
+##### 590#       发表于 2021-6-3 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51463894&amp;ptid=1985265" target="_blank">jzsgtx 发表于 2021-6-3 18:42</a>
+美极了，不犹豫了，就入mk3</blockquote>
+888別後悔<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 來自 Sony XQ-AT72, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  暗铁  
+##### 591#       发表于 2021-6-3 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51465924&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-6-3 21:27</a>
+
+果然，mark2的Android 11的抽风调度就是为了888准备的
+
+
+大核调度超消极甚至锁频不动，7核有难，大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">888水平就那样了还能怎么压，除非加钱跟高通要特供的好体质的888降压跑
+
+
+-----
+
+####  我很费纸  
+##### 592#       发表于 2021-6-3 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51466244&amp;ptid=1985265" target="_blank">暗铁 发表于 2021-6-3 21:56</a>
+888水平就那样了还能怎么压，除非加钱跟高通要特供的好体质的888降压跑 ...</blockquote>
+学游戏手机上散热风扇或者老实用870才是正路
+
+可惜旗舰机没得选，必须是888<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+这一代主动是要被坑了，唉<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cray  
+##### 593#       发表于 2021-6-4 00:30
+
+
+ 本帖最后由 Cray 于 2021-6-4 02:59 编辑 
+<blockquote>引用第591楼我很费纸于2021-06-03 22:21发表的  :
+
+引用:暗铁 发表于 2021-6-3 21:56888水平就那样了还能怎么压，除非加钱跟高通要特供的......</blockquote>
+我感觉是和845 865没啥区别 都热<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/025854zs47svfvfhwtpld7.png" referrerpolicy="no-referrer">
+
+
+<strong>20210604025652.png</strong> (43.2 KB, 下载次数: 1)
+
+下载附件
+
+2021-6-4 02:58 上传
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  leystage  
+##### 594#         楼主| 发表于 2021-6-4 07:29
+
+
+<blockquote>zhongjie 发表于 2021-6-3 21:12
+三个颜色里哪个最好看？看楼里说灰色最难看？</blockquote>
+灰色是浅灰，偏商务。
+
+紫色比较暗紫。
+
+黑色其实反而是不那么黑的磨砂黑。
+
+
+其实各有特色吧，灰色最灰，紫色最紫，黑色最黑 XD
+
+
+-----
+
+####  jzsgtx  
+##### 595#       发表于 2021-6-4 08:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51466137&amp;ptid=1985265" target="_blank">哎哟卧槽了 发表于 2021-6-3 21:47</a>
+
+888別後悔
+
+
+—— 來自 Sony XQ-AT72, Android 11上的 S1Next-鵝版 v2.4.4.1</blockquote>
+明天去大法门店摸一摸实机看买啥颜色好，Snapdragon 888嘛，再怎么热应该不会比我以前的XZs要命<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cleaner  
+##### 596#       发表于 2021-6-4 09:21
+
+
+热肯定是热的，就算前代某些公认的优质SOC，全功率运行也热，但是问题的关键是能不能热的同时还能有高性能
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  lolozp  
+##### 597#       发表于 2021-6-4 21:40
+
+
+为啥马克3没有白色了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Frimp  
+##### 598#       发表于 2021-6-4 22:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">早上刚刚动心想换手机，下午就把现在的过度机摔坏了，这就是天意吗
+
+
+-----
+
+####  PENTAX-DA  
+##### 599#       发表于 2021-6-4 22:55
+
+
+没有骚红色
+
+
+-----
+
+####  我很费纸  
+##### 600#       发表于 2021-6-4 22:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51467605&amp;ptid=1985265" target="_blank">Cray 发表于 2021-6-4 00:30</a>
+我感觉是和845 865没啥区别 都热</blockquote>
+你不要光看机身温度啊，温度墙摆在那里，到最后大家哪个不一样？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+865全开久了一样降频，但为什么说865/870很好？因为手机（游戏手机除外）本质就是块铁板被动散热，能耗比越差，持续性能越差，就算你机身温度一样，一个还能保持80%性能，另一个大核直接给你杀了，性能下滑一半，能一样吗？
+
+降频多和少的区别还需要反复论证吗？870反杀888这已经是在其他手机上早就验证过的事情。或者非要严重索尼压住了888，找台调教不错870，比如iqoo或者红米，大家比一比30分钟后原神游戏帧数，一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  Name  
+##### 601#       发表于 2021-6-4 23:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大法每次感觉好起来了，就会被火龙坑
+
+
+-----
+
+####  tsounaiq  
+##### 602#       发表于 2021-6-4 23:51
+
+
+去淮海路摸了摸，感觉手上的xz1更香了
+
+— from Sony G8342, Android 9 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.0.4-play
+
+
+                             
