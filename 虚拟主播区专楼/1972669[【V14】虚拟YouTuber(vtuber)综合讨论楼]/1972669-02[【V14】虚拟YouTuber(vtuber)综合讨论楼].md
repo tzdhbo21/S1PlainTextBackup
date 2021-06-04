@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-04 21:44** 
+> ## **本文件最后更新于2021-06-04 22:56** 
 
 
 
@@ -2301,8 +2301,8 @@ E3Aaa8oUYAYTg79.jpg
 ##### 1683#       发表于 2021-6-4 17:39
 
 
-<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_SQ1dZ" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_QQJIf" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_WXL5R" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_p8Q1b" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 【#にじPEX 追加情報！ 2/2】 
 
@@ -2939,6 +2939,21 @@ syl
 希望大家都学习一下はかちぇ不动如山的坐姿<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|她播只狼和迷托邦就是两个人|
+
+
+查看全部评分
+
+
 -----
 
 ####  NBXX  
@@ -3049,4 +3064,175 @@ Syl，刀也学业忙，除了同期3D好像没捧过场？
 说到mafumafu，现在套皮了之后就是首个300W订阅的V王之王了，把他四舍五入虹男没人会有意见吧？
 
 
-                                          
+
+
+-----
+
+####  freakystar  
+##### 1741#       发表于 2021-6-4 21:46
+
+
+虽然前几个月就看出势头，新皇登基也来得太快了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdhai  
+##### 1742#       发表于 2021-6-4 21:48
+
+
+不只是单场，总sc牛郎也迫近社长了
+
+
+-----
+
+####  空集  
+##### 1743#       发表于 2021-6-4 21:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 恐怖的事实 这发sc元气弹 直接在6月开头可能就决定了本月sc第一是谁了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alcoholic1000  
+##### 1744#       发表于 2021-6-4 21:52
+
+
+看了一眼，总SC超三枝追社长，湊皇牛
+
+Syl，mfmf虹高攀不起，不要瞎说啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1745#       发表于 2021-6-4 21:55
+
+
+确实，minato（男）桑明天开个aftertalk本月2KW保底了，V圈单月SC首破2KW记录到手。
+
+
+-----
+
+####  真飞鸟i  
+##### 1746#       发表于 2021-6-4 22:05
+
+
+v圈单月2kw他不是第一个吧，可以加个男v限定。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Suny08  
+##### 1747#       发表于 2021-6-4 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51478172&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-4 21:55</a>
+
+确实，minato（男）桑明天开个aftertalk本月2KW保底了，V圈单月SC首破2KW记录到手。 ...</blockquote>
+蝗也有过2000吧，反正不破女粉我是觉得是虹男里面打钱最疯狂的存在，是不是前世跟过来的
+
+
+-----
+
+####  IDIDIDID  
+##### 1748#       发表于 2021-6-4 22:15
+
+
+ 本帖最后由 IDIDIDID 于 2021-6-4 22:17 编辑 
+
+那我改改，3000W？反正2KW是保底，这个月随便酬勤一下只会更高而已。就看田角下不下造奇观的任务了。
+
+
+-----
+
+####  asdhai  
+##### 1749#       发表于 2021-6-4 22:16
+
+
+月记录是龙的27m。看不破这个月还集不集
+
+
+-----
+
+####  poipanchao  
+##### 1750#       发表于 2021-6-4 22:26
+
+
+今天as那边超神回没看不破
+
+看这样子不破3d也得找时间补一下了
+
+
+-----
+
+####  free  
+##### 1751#       发表于 2021-6-4 22:29
+
+
+[https://twitter.com/8HaChi_hacchi/status/1400812394423537666](https://twitter.com/8HaChi_hacchi/status/1400812394423537666)
+
+hachi要众筹开live了
+
+
+有关于HACHI单人演唱会的信息 ！
+
+图1:（封面）
+
+1st单人演唱会 「The Beginning ∞」PROJECT
+
+
+图2：（信息1）
+
+→众筹的目的：「为了举办HACHI的1st单人演唱会」
+
+目标金额为200万日元（截止6月4号晚上，汇率为0.05822，折合人民币11万6440元）
+
+会选用光学动捕系统举办演唱会
+
+正式演唱会，会在8月8日晚，在网上举办！
+
+
+超过目标金额的部分会全部充当活动经费！
+
+
+图3：（信息2）
+
+→时间安排
+
+6月11日北京时间20点~7月4日北京时间22点59分在@Fanbeats上开始众筹
+
+（众筹会和下周五的蜂巢放送站一同开始）
+
+企划页面（就是网站）也会在6月11日北京时间20点公开
+
+
+图4：（信息3）
+
+→主要回馈特典（应该是参与众筹的人会给予的东西）（*未决定项）
+
+①：1st演唱会门票（目前还未决定如何售卖一般门票）
+
+②：CD集「The Beginning ∞」内容
+
+    →1st~6th原创曲收录预定（包括纯音乐版本）（目前已公布4th原创曲）
+
+    →附带原创贴纸（ステッカー）以及纪念卡
+
+    →封皮为泉彩（推特@AC______）绘制的纪念插画
+
+③：1st演唱会的录像
+
+④：1st演唱会片尾会放上你的名字（就电影最后的参演人员那种）
+
+⑤：预定在夏季和秋季公布的翻唱曲（1曲）先行公布
+
+⑥：带亲笔签名的照片（应该是HACHI的模型照片，然后美术加工一下） 
+
+
+                                         
