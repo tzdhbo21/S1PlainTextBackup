@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-02 00:34** 
+> ## **本文件最后更新于2021-06-05 02:42** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_hiztJ" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_fo9ec" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9259,7 +9259,7 @@ Rigger HATE!</blockquote>
 
 
 bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_Xj34I" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_ATMvU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -13268,4 +13268,327 @@ Is Kiara Takanashi gay or European? (animatic)
 Ina这个真的好大，难怪运费那么贵
 
 
-                    
+-----
+
+####  wiig  
+##### 877#       发表于 2021-6-2 06:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51445225&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-6-1 23:41</a>
+Ina这个真的好大，难怪运费那么贵</blockquote>
+我以为只有狗窝那么大
+
+
+-----
+
+####  wiig  
+##### 878#       发表于 2021-6-2 07:03
+
+
+<img src="https://p.sda1.dev/2/d5aa17b6dcfcea59354aadd8159a10cf/IMG_CMP_183046917.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 879#       发表于 2021-6-2 10:57
+
+
+<img src="https://p.sda1.dev/2/ff252423d3b98c99826e288e3ca3015e/20210602_105619.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 880#       发表于 2021-6-2 10:57
+
+
+ 本帖最后由 wiig 于 2021-6-2 12:15 编辑 
+
+<img src="https://p.sda1.dev/2/31ec538d8a4a1ea9b9f57ad0ea499658/IMG_CMP_85146547.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 881#       发表于 2021-6-2 13:30
+
+
+<img src="https://p.sda1.dev/2/99901369ced0a48c26a8b9a8b1526f83/IMG_CMP_212402775.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 882#       发表于 2021-6-2 13:32
+
+
+#inART KDTD
+I can't see takodachi as the same
+TAKO IS BEEEEG 
+<img src="https://p.sda1.dev/2/3e2063123e47902e6511cacc6ca41a6a/IMG_CMP_243781401.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 883#       发表于 2021-6-2 15:51
+
+
+复活<img src="https://p.sda1.dev/2/6c478f0803894663eaad43c077b8f00c/IMG_CMP_201288125.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 884#       发表于 2021-6-2 15:54
+
+
+ninja shark
+<img src="https://p.sda1.dev/2/d97e3d6eed83202307e72f265fa70e20/IMG_CMP_146401778.jpeg" referrerpolicy="no-referrer">
+samurai shark
+<img src="https://p.sda1.dev/2/ee0ee570a8f2fa83bb6d1e762b4820e1/IMG_CMP_158594228.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 885#       发表于 2021-6-2 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51450365&amp;ptid=1989758" target="_blank">wiig 发表于 2021-6-2 15:51</a>
+复活</blockquote>
+<img src="https://p.sda1.dev/2/6127d3d6d678e8b0af6a8d395108da21/1400006321278054401.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 886#       发表于 2021-6-2 23:05
+
+
+[https://youtu.be/aEHB95UUdv4](https://youtu.be/aEHB95UUdv4)
+
+Guess Who? but it's Takamori
+
+
+-----
+
+####  wiig  
+##### 887#       发表于 2021-6-2 23:31
+
+
+<img src="https://img.saraba1st.com/forum/202106/02/233129tttfkwx3ykma3m5z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (170.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-2 23:31 上传
+
+
+-----
+
+####  wiig  
+##### 888#       发表于 2021-6-3 00:08
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/000831g8ma80gvvdmwiu8o.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (44.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 00:08 上传
+
+
+-----
+
+####  wiig  
+##### 889#       发表于 2021-6-3 06:37
+
+
+<img src="https://p.sda1.dev/2/9e45b29256f8bf34625397c153f8ca41/IMG_CMP_151405938.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 890#         楼主| 发表于 2021-6-3 07:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51457284&amp;ptid=1989758" target="_blank">wiig 发表于 2021-6-3 06:37</a></blockquote>
+Ame这滤镜草。。
+
+
+-----
+
+####  wiig  
+##### 891#       发表于 2021-6-3 21:37
+
+
+<img src="https://p.sda1.dev/2/0add6fc75d4dc555f5a7706b86e68f17/IMG_CMP_228297491.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 892#       发表于 2021-6-3 21:44
+
+
+<img src="https://p.sda1.dev/2/053ce2ca6eab420ea7c1e24ff2616bf5/20210603_214352.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 893#       发表于 2021-6-3 22:00
+
+
+#mythkids是谁的直播提到的吗 创作欲望好强烈
+
+
+-----
+
+####  smy20011  
+##### 894#         楼主| 发表于 2021-6-3 22:39
+
+
+火鸡和粉猫联动确认
+
+
+-----
+
+####  wiig  
+##### 895#       发表于 2021-6-4 06:29
+
+
+<img src="https://p.sda1.dev/2/a36e4a5bf7159dd1ae491b740c93e47e/IMG_CMP_191768705.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PureIllusion  
+##### 896#       发表于 2021-6-4 08:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51466338&amp;ptid=1989758" target="_blank">wiig 发表于 2021-6-3 22:00</a>
+#mythkids是谁的直播提到的吗 创作欲望好强烈</blockquote>
+之前已经有takamori的Clara了，前段时间Iname派搞了个Walter（男），也小范围发展一阵子了，甚至还有这两个孩子的船。
+Gurame早先有对双胞胎不过发了又删了，但是前几天Gura赢了那次inamesame的MarioParty后在Ina和Ame推上发的融合图，Ame在SupaSunday提到，说那是gurame女儿，直接把之前的双胞胎重新激活了，然后有了mythkids的tag完全发展起来了，还有很多孩子，甚至包括inamesame合生这种的。有画图有写文。
+昨晚被Kiara看见tag鼓励了一下。
+
+我印象中是这样。
+其实有点烦，这种三创很容易有别人雷点，还经常和别的tag混在一起，不想看的还躲不开
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  wiig  
+##### 897#       发表于 2021-6-4 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51468991&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-6-4 08:52</a>
+之前已经有takamori的Clara了，前段时间Iname派搞了个Walter（男），也小范围发展一阵子了，甚至还有这两 ...</blockquote>
+儿子就很烦了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 898#       发表于 2021-6-4 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51468991&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-6-4 08:52</a>
+之前已经有takamori的Clara了，前段时间Iname派搞了个Walter（男），也小范围发展一阵子了，甚至还有这两 ...</blockquote>
+儿子就很烦了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 899#       发表于 2021-6-4 12:04
+
+
+<img src="https://p.sda1.dev/2/8cff98d1a81950b92785aaa0ac780715/IMG_CMP_247800595.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/0973ea8395e2662c6f92e2ad57d01045/20210604_062314.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 900#       发表于 2021-6-4 20:03
+
+
+<img src="https://p.sda1.dev/2/b03442b32c7e77418206d8632409439e/IMG_CMP_263545068.jpeg" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  wiig  
+##### 901#       发表于 2021-6-5 00:56
+
+
+<img src="https://p.sda1.dev/2/0e1f2bfcab2f84011907f30a37218c86/IMG_CMP_2838902.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 902#       发表于 2021-6-5 01:09
+
+
+Roboco-san had to call in the best.
+
+<img src="https://p.sda1.dev/2/a046b9b5ac0f7bd51d5f48034e1f42d8/IMG_CMP_158016700.jpeg" referrerpolicy="no-referrer">
+
+
+                   
