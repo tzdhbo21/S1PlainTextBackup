@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-04 15:09** 
+> ## **本文件最后更新于2021-06-05 10:52** 
 
 
 
@@ -833,4 +833,380 @@ SB yhm 快tm给老子播<img src="https://static.saraba1st.com/image/smiley/face
 我建议楼友做踩上油门者加快进程，加速从烦恼中解脱的进程
 
 
-                                               
+-----
+
+####  MrHPQ  
+##### 16563#       发表于 2021-6-4 15:14
+
+
+overdose的咩宝感觉也不错喔<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16564#       发表于 2021-6-4 15:15
+
+
+meu算了吧 那声音尖锐的 我想握紧拳头 往她的肚子上狠狠的来一拳<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16565#       发表于 2021-6-4 15:20
+
+
+那明天节目一边掐声线一边卖蠢，你不是拳头都要捏碎了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16566#       发表于 2021-6-4 15:21
+
+
+拳头怕是没碎 我的显示屏估计已经碎了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 16567#       发表于 2021-6-4 15:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贱萌这个属性确实比较适合loli熊孩子皮，不过电音唐老鸭属实蚌埠住
+
+
+-----
+
+####  Klience  
+##### 16568#       发表于 2021-6-4 15:40
+
+
+她拿这个去配音唐老鸭估计没什么问题 我想看到配音表上唐老鸭写的是咩的名字<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cortana  
+##### 16569#       发表于 2021-6-4 15:46
+
+
+我是说皮啦，有一说一，乐一这皮画得真的好，又色又可爱，真的好想射屏她<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16570#       发表于 2021-6-4 15:50
+
+
+可惜以后看不到长颈鹿吃树叶的场景了 实属可惜 那动作还有够生草的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GeraltzRivii  
+##### 16571#       发表于 2021-6-4 19:31
+
+
+loli皮确实还可以，就是真的太糙了。看惯新皮后就感觉脸部表情僵硬+头发跟贴上去一样。
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  路人庚  
+##### 16572#       发表于 2021-6-4 21:13
+
+
+ 本帖最后由 路人庚 于 2021-6-4 21:40 编辑 
+
+之前5月中旬在d群约了今天有盒限来着，不过总感觉应该是被搅合没了（悲
+
+
+syl
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">我这是开光嘴吗
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">阿咩果然还是在看着我的
+
+
+-----
+
+####  A2014720  
+##### 16573#       发表于 2021-6-4 21:29
+
+
+好奶
+
+
+-----
+
+####  Dualist彩  
+##### 16574#       发表于 2021-6-4 22:23
+
+
+ 本帖最后由 Dualist彩 于 2021-6-4 22:25 编辑 
+
+你楼搞的我又想去当挖掘机了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+不过现在好像也没啥可挖了（ ）
+
+
+-----
+
+####  Klience  
+##### 16575#       发表于 2021-6-4 22:54
+
+
+那你可以把ff当成一个目标<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16576#       发表于 2021-6-4 23:02
+
+
+过会电视节目要开播了，然鹅感觉你咩姐好像并没有想去发推的意思（沉迷跟死宅玩游戏.gif<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16577#       发表于 2021-6-4 23:13
+
+
+ 本帖最后由 T_Hb 于 2021-6-4 23:27 编辑 
+
+可惜，节目是明晚<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+syl  东京时间6月6日 0：05-0：30
+TVer可以直接看
+
+
+-----
+
+####  路人庚  
+##### 16578#       发表于 2021-6-4 23:23
+
+
+ 本帖最后由 路人庚 于 2021-6-4 23:33 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">6月5日0点5分是明晚吗？我有点混乱了
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/233230zuaxx9y95sqsasgq.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (30.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-4 23:32 上传
+
+
+但这里面写的是6月5日啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">难道说 赤ちゃんＳＰ不是电视节目吗？
+
+
+-----
+
+####  Klience  
+##### 16579#       发表于 2021-6-4 23:27
+
+
+不就是凌晨吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 16580#       发表于 2021-6-4 23:35
+
+
+现在是不是已经播了？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16581#       发表于 2021-6-4 23:35
+
+
+6月5日深夜<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+他这样写确实迷惑，我直接查的节目表
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好吧，确实给我整迷惑了|
+
+
+查看全部评分
+
+
+-----
+
+####  掉头学姐  
+##### 16582#       发表于 2021-6-4 23:43
+
+
+aut在画咩图，有点色
+
+
+-----
+
+####  T_Hb  
+##### 16583#       发表于 2021-6-4 23:44
+
+
+完了 我睡不着了，都是你害的拉<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16584#       发表于 2021-6-4 23:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（不得不说我刚刚也确实在看aut的盒限直播，前面看到咩姐胸前突然冒出一双手的时候我也是惊到了
+
+
+-----
+
+####  Klience  
+##### 16585#       发表于 2021-6-5 00:01
+
+
+aut现在不是在打lol吗
+
+
+-----
+
+####  A2014720  
+##### 16586#       发表于 2021-6-5 00:02
+
+
+被掐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不是今晚就睡了…快绷不住了
+
+
+-----
+
+####  ashero  
+##### 16587#       发表于 2021-6-5 02:54
+
+
+今天苔箱新人和苔苔对谈节目她有出现 发了两次黄豆表情没说别的
+
+新人尼亚有看咩宝和苔苔的联动 觉得咩宝很有趣 也有看咩宝歌回 苔苔提议新人会弹吉他所以可以和咩宝合作一下 苔苔说和咩宝缠上了晚上会被追魂夺命call 新人说自己晚上睡得早所以不会听的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| LIPP| + 1|好评加鹅|
+| 路人庚| + 1|情报加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  雪风utopia  
+##### 16588#       发表于 2021-6-5 03:19
+
+
+不要苔苔联动，不要苔苔联动<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  往世雷书  
+##### 16589#       发表于 2021-6-5 08:41
+
+
+（来自千工口X人）
+这里就不得不提到一个神奇的设定，
+这边写的是土曜日0時05分，也就是今晚半夜
+但实际上想表达的是土曜日24時05分，也就是明晚半夜。。。
+就比如你想搭一班周六凌晨0点05分的火车，然后周六晚上才去了车站（
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  T_Hb  
+##### 16590#       发表于 2021-6-5 08:51
+
+
+我看节目表也是从每天早5点到第二天凌晨4点，只能说在这个时间段里0：05只能是第二天的。
+
+
+
+
+-----
+
+####  黒長直姫  
+##### 16591#       发表于 2021-6-5 10:20
+
+
+TCTCTCTCTCTCTCTC
+
+
+-----
+
+####  Mikumiku831  
+##### 16592#       发表于 2021-6-5 10:20
+
+
+tc tc 终于动了
+
+
+-----
+
+####  T_Hb  
+##### 16593#       发表于 2021-6-5 10:22
+
+
+卧槽<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16594#       发表于 2021-6-5 10:32
+
+
+呜呜，要给野男人打电话电爱了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">这一下播今天都见不到麻了
+
+
+-----
+
+####  Klience  
+##### 16595#       发表于 2021-6-5 10:41
+
+
+昨晚打爽了 心情也好了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                              
