@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-04 22:56** 
+> ## **本文件最后更新于2021-06-05 22:51** 
 
 
 
@@ -2301,8 +2301,8 @@ E3Aaa8oUYAYTg79.jpg
 ##### 1683#       发表于 2021-6-4 17:39
 
 
-<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_WXL5R" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_p8Q1b" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_zTYdd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_JSBGH" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 【#にじPEX 追加情報！ 2/2】 
 
@@ -2944,10 +2944,11 @@ syl
 评分
 
 
- 参与人数 1战斗力 +1
+ 参与人数 2战斗力 +2
 
 |昵称|战斗力|理由|
 |----|---|---|
+| alcoholic1000| + 1|可爱捏|
 | Suny08| + 1|她播只狼和迷托邦就是两个人|
 
 
@@ -3235,4 +3236,300 @@ hachi要众筹开live了
 ⑥：带亲笔签名的照片（应该是HACHI的模型照片，然后美术加工一下） 
 
 
-                                         
+-----
+
+####  IDIDIDID  
+##### 1752#       发表于 2021-6-4 23:22
+
+
+吃个好兄弟的尾流捏
+[https://www.youtube.com/watch?v=F41M_TjgyMk](https://www.youtube.com/watch?v=F41M_TjgyMk)
+
+
+-----
+
+####  Ketestrait  
+##### 1753#       发表于 2021-6-5 01:47
+
+
+[https://www.youtube.com/watch?v=hiCVshz-s-s&amp;t=1759s](https://www.youtube.com/watch?v=hiCVshz-s-s&amp;t=1759s)
+
+
+chima这半夜掷骰子唱黄歌下播一气呵成竟然有1w2的人看太蛋疼了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ヒトニナル  
+##### 1754#       发表于 2021-6-5 10:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可是我真的觉得看人播nkodice很有意思啊，脑死看主播喊chinko unko manko太解压了
+
+
+-----
+
+####  winda  
+##### 1755#       发表于 2021-6-5 16:45
+
+
+cr valo第一轮，奈罗花队，叶队胜，king队，bora&amp;ibrahim队败
+
+
+-----
+
+####  Suzutsuki  
+##### 1756#       发表于 2021-6-5 17:30
+
+
+哈弟玩瓦罗兰特是真的菜啊 这队还是要看大腿之一的花芽妹 花芽妹没发挥基本就没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1757#       发表于 2021-6-5 18:04
+
+
+戌亥とこTropical drink
+
+@inui_toko
+
+·
+
+1h
+
+Tropical drink配信告知☄
+
+6月6日　23：00から
+
+とこまちがあんスタマロに答える配信しますGlowing star
+
+久々のあんスタ一色！
+
+
+戌亥チャンネルにてTropical drink
+
+
+ゲームのコツ、キャラや曲について等
+
+とこまちが熱量たっぷりでお答えしますFace with look of triumph
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 1758#       发表于 2021-6-5 18:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">king是要打最下位决定战了么
+
+
+-----
+
+####  Suzutsuki  
+##### 1759#       发表于 2021-6-5 19:08
+
+
+ 本帖最后由 Suzutsuki 于 2021-6-5 19:13 编辑 
+
+bora今天越打越勇 最后一把自家人就mondo打得比她好<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1760#       发表于 2021-6-5 19:18
+
+
+大家听了今天的歌接力吗?我觉得加一个东堂完全没问题诶，这妹基本上就是青涩版星街彗星啊<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">（夸张，还是差得有点多的），虽然这次不参加多半又是她想摸了
+
+
+-----
+
+####  FCCHua  
+##### 1761#       发表于 2021-6-5 19:22
+
+
+我也觉得加她完全没问题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  langsheng  
+##### 1762#       发表于 2021-6-5 19:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51478539&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-4 22:15</a>
+
+那我改改，3000W？反正2KW是保底，这个月随便酬勤一下只会更高而已。就看田角下不下造奇观的任务了。 ...</blockquote>
+如果认可B站大航海算入SC的话，月记录是3700W
+
+
+-----
+
+####  aptx318  
+##### 1763#       发表于 2021-6-5 19:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51486106&amp;ptid=1972669" target="_blank">langsheng 发表于 2021-6-5 19:30</a>
+
+如果认可B站大航海算入SC的话，月记录是3700W</blockquote>
+B站加舰长那油管要加会员才能比
+
+
+-----
+
+####  渡鸦骑士  
+##### 1764#       发表于 2021-6-5 19:53
+
+
+ 本帖最后由 渡鸦骑士 于 2021-6-5 20:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51485988&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-5 19:18</a>
+
+大家听了今天的歌接力吗?我觉得加一个东堂完全没问题诶，这妹基本上就是青涩版星街彗星啊（夸张，还 ...</blockquote>
+人是可以加，就是这个比喻方式……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+希望她能安排好自己的时间吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  langsheng  
+##### 1765#       发表于 2021-6-5 20:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51486284&amp;ptid=1972669" target="_blank">aptx318 发表于 2021-6-5 19:47</a>
+
+B站加舰长那油管要加会员才能比</blockquote>
+可惜油管那边会员没法算，而且油管有实打实的广告收入
+
+
+-----
+
+####  渡鸦骑士  
+##### 1766#       发表于 2021-6-5 20:16
+
+
+管人oped +1
+
+
+<img src="https://img.saraba1st.com/forum/202106/05/201702ptzcs4yd0ce0t0xo.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (92.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-5 20:17 上传
+
+
+-----
+
+####  OldGlory  
+##### 1767#       发表于 2021-6-5 20:37
+
+
+唱ed没有含金量的
+
+
+-----
+
+####  FCCHua  
+##### 1768#       发表于 2021-6-5 20:51
+
+
+小红银盾了
+
+
+-----
+
+####  NBXX  
+##### 1769#       发表于 2021-6-5 20:59
+
+
+[https://www.youtube.com/watch?v=IjPpLH-EAtQ](https://www.youtube.com/watch?v=IjPpLH-EAtQ)
+
+【初配信】はじめまして、子ノ神モカだよ～【#新人Vtuber】
+<img src="https://p.sda1.dev/2/4b9f62362c6d79e491ba603becb02f91/H91GA_L9070TB78CRNZ8G38.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 1770#       发表于 2021-6-5 21:39
+
+
+#人を食べますWIN
+拿下胜者组冠军<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">至少决胜有虹人了
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1771#       发表于 2021-6-5 22:03
+
+
+3d感觉开始不值钱了，东京的动捕室的春天？
+
+
+<img src="https://img.saraba1st.com/forum/202106/05/220403vaxfzuqdz55uuabj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (53.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-5 22:04 上传
+
+
+-----
+
+####  alcoholic1000  
+##### 1772#       发表于 2021-6-5 22:20
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-5 22:38 编辑 
+
+聖女3D时间终于定了啊，挺好，我记得她二月就开了campfire募集，模型的原因又从五月延期到六月中，祝披露顺利
+
+
+Syl，BGV的3D披露也在路上了
+
+
+BOOGEY VOXX -Official-@_BOOGEY_VOXX_
+
+2021.06.19(土) 19:00START
+
+~BOOGEY VOXX
+
+　　　3D Release LIVE~
+
+<img src="https://img.saraba1st.com/forum/202106/05/222626lvvo8avv80gcy1fc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>~BOOGEY VOXX 　　　3D Release LIVE~.jpg</strong> (86.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-5 22:26 上传
+
+
+Zsyl，搜了一下之前关注的个人势Vsingerユプシロン众筹计划也成功了，活动一年就能3D化的业界不错
+
+
+-----
+
+####  Suny08  
+##### 1773#       发表于 2021-6-5 22:32
+
+
+夜见说现在你虹3d室比原来好约了，应该是扩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                        
