@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-05-31 19:26** 
+> ## **本文件最后更新于2021-06-05 15:16** 
 
 
 
@@ -2061,4 +2061,351 @@ mhr都更新了该来了吧
 今年才买手机的是什么小学生啊 不学好的看管人是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
 
 
-                                           
+-----
+
+####  Fami水  
+##### 12183#       发表于 2021-5-31 19:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小学生的钱都赚 绫总你的良心不会痛吗
+
+
+-----
+
+####  因为你不会  
+##### 12184#       发表于 2021-5-31 22:48
+
+
+LOL都不玩是多少含金量懂吧<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  soraku  
+##### 12185#       发表于 2021-6-1 02:43
+
+
+“プライベートに踏み込んでくる人が嫌いです”
+这。。不会是被吓到了才搬家的吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+阿绫的私人生活<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 12186#       发表于 2021-6-1 10:14
+
+
+绫总报数她来了
+
+
+-----
+
+####  cctvyt1  
+##### 12187#       发表于 2021-6-1 11:48
+
+
+时隔五天发推只报数<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12188#       发表于 2021-6-1 12:01
+
+
+搬家今天几个月前就在准备了啊 还说搬完再购置一台电脑用来分担推流呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+翻唱新皮这些资源都捧上去完了的上升期才又开始搬 
+
+可能是木口捧完一波就开始摆烂 看到日程表上没事了
+
+也可能是故意摸来拖慢涨速 不做出头鸟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stmule  
+##### 12189#       发表于 2021-6-1 13:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51439620&amp;ptid=1914409" target="_blank">星尘的杨桃精 发表于 2021-6-1 12:01</a>
+搬家今天几个月前就在准备了啊 还说搬完再购置一台电脑用来分担推流呢
+
+翻唱新皮这些资源都捧上去完 ...</blockquote>
+想多了，就是懒。懒还需要理由么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  stmule  
+##### 12190#       发表于 2021-6-1 13:09
+
+
+ 本帖最后由 stmule 于 2021-6-1 15:07 编辑 
+
+风怒
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  stmule  
+##### 12191#       发表于 2021-6-1 13:09
+
+
+ 本帖最后由 stmule 于 2021-6-1 15:07 编辑 
+
+风怒
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  cctvyt1  
+##### 12192#       发表于 2021-6-1 17:46
+
+
+PTT看到的怪绫书<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+==========================================================
+<img src="https://static.saraba1st.com/image/hrline/line1.png" referrerpolicy="no-referrer">
+
+我与大小姐不相见已两周余了，我最不能忘记的是她的笑声。
+
+
+那年夏天，水库没水了，台湾的电也停了，正是祸不单行的日子！我从到外头回到家中，打算看着お嬢直播。到了youtube见着お嬢的频道，看见许久没更新的影片，又想起お嬢，不禁簌簌地流下眼泪。
+
+
+お嬢说：「最近搬家，电脑的东西还没弄好，没办法直播真是对不起QQ」お嬢因为事忙，本已说定不直播，只放了一个cover影片上来。她再三摸余，甚是常见，但她终于不放心，怕百鬼组心痒难耐，颇踌躇了一会。其实我那年已三十岁，又是个臭DD，是没有什么要紧的了。她踌躇了一会，终于决定还是自己发推讲一下。我两三回劝她不必发，她只说：「不要紧，发了才能继续摸余！」
+
+
+お嬢搬了家，忙着整理东西。行李太多了，得向吉鲁行些小费才不捣乱。她便又忙着和它讲价钱。我心里暗笑她的迂，它只认得饲料，托它直是白托！而且我这样大年纪的人，难道还不能忍耐不看台吗？唉！我现在想想，那时真是太聪明了！
+
+
+我说道：「お嬢，妳去忙吧！」她往四周看了看，说：「我组个猫跳台去，你就在此地继续看グッバイ宣言。 」我看那边房间的另一侧，吉鲁正等着お嬢。组猫跳台，须要许多重重的柱子，须搬上来又搬下去。お嬢是一个矮子，搬起来自然要费事些。我看见她戴着黑框眼镜，穿着oversize的大T恤，下半身没穿，蹒跚地走到柱子边，慢慢探身下去，尚不大难。可是她要把柱子搬起来，装上旁边的组件，就不容易了。她用两手抱着柱子，腰部用力的往上挺；她纤细的身子向左微倾，显出努力的样子。这时我看见她的背影，我的泪很快地流下来了。
+
+我赶紧拭干了泪，怕她看见，也怕吉鲁看见。我再转过去看时，她已抱着组装好的猫跳台向回走了。到半途时，她先将猫跳台放在地上，自己慢慢坐下，休息过后再抱起继续走。到这边时，我赶紧去搀她。她将猫跳台放定位置，然后扑扑衣上的泥土，心里很轻松似的。过一会说：「我摸余去了，开台再推特通知。」我望着她走出去。她走了几步，回过头看见我，说：「不用等了，不会突袭开台的！」等她的背影混入来来往往的人里，再找不着了，我便进来坐下，我的眼泪又来了。
+
+
+近几月来，お嬢开台都是时有时无，但百鬼组一日比一日壮大。今天早上我打开手机，お嬢又发了一条推特，里头说道：「グッバイ宣言两百万再生！谢谢大家！直播应该快要能开了，再等一下下！ 」我读到此处，在晶莹的泪光中，又看见那纤细、令人想念的背影。唉！我不知何时再能与她相见！
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 昆西昆希昆| + 1|乐死|
+
+
+查看全部评分
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12193#       发表于 2021-6-1 19:16
+
+
+看到vvvv感到很害怕 不安了
+
+
+-----
+
+####  一仙  
+##### 12194#       发表于 2021-6-1 19:17
+
+
+再见宣言播放都要反超king了
+
+
+这首歌比king要受欢迎这么多吗
+
+
+-----
+
+####  stedckk  
+##### 12195#       发表于 2021-6-1 20:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">就离谱，增速比king快多了，是不是因为绫总不播导致百鬼众一天到晚在循环这首歌。
+
+
+-----
+
+####  昆西昆希昆  
+##### 12196#       发表于 2021-6-2 02:55
+
+
+翻唱每多一次播放，阿绫就会多摸鱼一秒。拯救百鬼众，拒绝刷翻唱！
+
+
+-----
+
+####  水城雪风_Z  
+##### 12197#       发表于 2021-6-2 12:48
+
+
+往年都是十月左右开始冬眠，今年怎么冬眠来的这么早，还是说这是冬眠前的开胃菜?<img src="https://static.saraba1st.com/image/smiley/face2017/249.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 12198#       发表于 2021-6-2 19:23
+
+
+等250W再来报个数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12199#       发表于 2021-6-2 19:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">目标 躺到金盾
+
+
+-----
+
+####  stedckk  
+##### 12200#       发表于 2021-6-2 23:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">躺完记得播爆。
+
+
+-----
+
+####  因为你不会  
+##### 12201#       发表于 2021-6-2 23:59
+
+
+绫总这人，金盾了不是更没压力了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 12202#       发表于 2021-6-3 00:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  寺川愛美  
+##### 12203#       发表于 2021-6-3 01:54
+
+
+夏休，冬眠
+
+冬天要睡，夏天也要睡<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 12204#       发表于 2021-6-3 03:03
+
+
+春困秋乏冬眠夏摸鱼
+
+
+-----
+
+####  Fami水  
+##### 12205#       发表于 2021-6-3 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">半个月了 网线还没拉好么 绫总
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12206#       发表于 2021-6-4 01:15
+
+
+哪个楼友做的呀 我寻思这也不经常唱歌啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-7a4c35ac6ba56073.jpg
+(141.5 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-4 01:14 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/04/011447wb3lbkbkz8ta8tpm.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 12207#       发表于 2021-6-4 12:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">因为播得少，歌回频率显得高。
+
+
+-----
+
+####  nian1538  
+##### 12208#       发表于 2021-6-4 18:15
+
+
+能在漫画里帅几话呢
+
+
+-----
+
+####  昆西昆希昆  
+##### 12209#       发表于 2021-6-4 19:07
+
+
+我现在油管看完啥都会自动跳转到绫总的再见宣言，我可能知道250W播放是怎么来的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 12210#       发表于 2021-6-5 11:57
+
+
+<img src="https://tvax2.sinaimg.cn/large/006xG1LQgy1gr794nl5b9j329t35su0y.jpg" referrerpolicy="no-referrer">
+
+
+真的会有粉丝喜欢这种嘛<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+太尬了
+
+
+
+
+-----
+
+####  Fami水  
+##### 12211#       发表于 2021-6-5 14:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这翻译腔味道 太浓了 
+
+
+                                          
