@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-06 02:44** 
+> ## **本文件最后更新于2021-06-06 13:45** 
 
 
 
@@ -606,7 +606,7 @@ AI博物館
 ##### 1547#       发表于 2021-6-5 23:47
 
 
- 本帖最后由 Piano-Forest 于 2021-6-6 00:06 编辑 
+ 本帖最后由 Piano-Forest 于 2021-6-6 04:40 编辑 
 
 <img src="https://p.sda1.dev/2/e52c3f85720e47d2e2a2747ca29261aa/E3IXNPyUcAMMWpJ.jpg" referrerpolicy="no-referrer">
 <img src="https://p.sda1.dev/2/31035975e323a8f5d5ddedeb624a707b/E3FQXn7VcAIjVe1.jpg" referrerpolicy="no-referrer">
@@ -616,6 +616,12 @@ AI博物館
 
 [https://twitter.com/mang77089/status/1401192504058204160](https://twitter.com/mang77089/status/1401192504058204160)
 <img src="https://p.sda1.dev/2/659b6568272a3a03570dfeb347c3de04/E3IGpjdUUAAk3L3.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/callPENNY/status/1401192211165810694](https://twitter.com/callPENNY/status/1401192211165810694)
+<img src="https://p.sda1.dev/2/8295869ed69eef7a93ba9295bebad26c/E3II40ZVEAEdXZJ.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/tsuji643163271/status/1401192368171147274](https://twitter.com/tsuji643163271/status/1401192368171147274)
+<img src="https://p.sda1.dev/2/80e84be1e47ff42235eb795201f809eb/E3IJB_WUYAMdj-p.jpg" referrerpolicy="no-referrer">
 
 
 -----
@@ -1175,4 +1181,400 @@ Sunrise里面说的很清楚了，可以记忆同步，但是搞出来的Estella
 而vivy这个企划从一开始就存在商业属性压倒科幻属性的问题。看了前4集觉得太煽情也没有我想看的科幻内容，就放低期待了。
 
 
-                                              
+-----
+
+####  wolf1997  
+##### 1593#       发表于 2021-6-6 02:57
+
+
+我宣布自己投向二次元投降主义的怀抱中，不抱任何角色都能善终的期望，不抱作品有任何创新的期望，只希望作品能讲完个没啥大问题的故事
+
+
+-----
+
+####  whzfjk  
+##### 1594#       发表于 2021-6-6 03:04
+
+
+反攻倒算要来了吗
+
+
+-----
+
+####  cowgp01  
+##### 1595#       发表于 2021-6-6 03:20
+
+
+ 本帖最后由 cowgp01 于 2021-6-6 03:23 编辑 
+
+说真的你们怎么会想在这片找科幻的不都是看WIT的牛逼制作的，现在知道13机兵塞一堆科幻老梗说得还算有条理牛逼了吧
+
+
+-----
+
+####  a12885084  
+##### 1596#       发表于 2021-6-6 03:23
+
+
+ 本帖最后由 a12885084 于 2021-6-6 03:32 编辑 
+
+先吐槽一下主线这个奇点计划：
+
+所以奇点计划原本里的历史里就是单纯因为博士喜欢VIVY+VIVY是第一台自律型所以选了VIVY从最早开始干涉历史。
+
+然后这个松本第一话讲毁灭AI，然后讲观测八识塔高度。结果每个单元剧都反向操作，加速AI。单元剧里做的跟HappyEnding一样解决矛盾，主线全崩完了。你还好意思一百年后来见证成功，八识塔越来越高看不到吗。松本这个高智商AI设跟着这个奇点计划是一起都崩了。另外第五话松本有一句“让我们返回过去”应该是直接被吃掉了。
+
+
+关于时间和因果律：
+
+之前那个自杀变殉情，有AI模仿变没AI模仿，所以历史一样就有点强行。
+
+AI这么加速，每次事件发生的时间点还都一样，仿佛之前做了的事情对历史没有影响一样。
+
+整篇都充斥着这种气息。
+
+
+再帮作者圆一下AI这个设定：
+
+Grace被塞进巨浮岛的原因是AI不可复制，依靠的实验是伊丽莎白姐妹。实验做的蠢不蠢先按下不表。
+
+有人说这是类似克隆人，从DNA开始培养，所以DNA能复制但是人格意识无法完美复制。
+
+但是我怎么看这位伊丽莎白就是上sunrise之前的伊丽莎白呀？记忆有、人格有，自我认知也有。
+
+如果上sunrise之前的伊丽莎白可以复制，那上巨浮岛的Grace也应该可以复制。
+
+无论是本体塞进巨浮岛备份留博士还是备份塞进巨浮岛本体留给博士，两种可能分别来看：
+
+（1）本体留给博士，备份给巨浮岛 -&gt; 博士不留本体，冲巨浮岛
+
+博士没有理由不留下本体，备份尚可被认为和本体不一致，本体能留下博士是没有理由不留的。
+
+也可以洗，说公众认为本体和备份不一样，公众说必须要本体放进巨浮岛，所以这条路不行。
+
+（2）备份留给博士，本体给巨浮岛 -&gt; 博士不留备份，冲巨浮岛
+
+唯一能脑补到的方法就是博士认为本体和备份不一致，所以博士没法放下本体不管，依旧要冲巨浮岛。
+
+但这只能解释为什么冲巨浮岛，不能解释为什么不留一个备份在身边。
+
+那么就要讨论两个人持有相同回忆，相同自我意识，是否应该被认为是同一个人。
+
+那么博士应该持有一个观点，两个人持有相同回忆，相同自我意识，不该被认为是同一个人。而且这个观点应该仅博士持有，否则松本的转移和调音师的夺舍都会被视为杀死松本/VIVY。
+
+下一个问题就来了，博士认为留一个备份不如不留，那为何又要做一个和Grace长得一样的AI女仆呢？
+
+
+所以只剩下一种可能了：博士持有一个少数派观点，两个人持有相同回忆，相同自我意识，不该被认为是同一个人，所以重启的备份不是Grace，因此Grace本体交给巨浮岛之后不愿用备份恢复。但同时又放不下Grace，所以虽然不愿意复活Grace的备份，但是做了个一样的女仆AI。类比一下，你老婆得了绝症，忽然有医生说我们可以克隆一副身体并把你老婆的记忆和意识全部移植过去，你说不！哪怕身体一样、记忆一样、意识一样，但她就不是我老婆！于是你放任老婆离世，买了一个长得差不多的充气娃娃。
+
+
+或者可以硬洗，说虽然博士是专门做AI研究的，但是从来没有备份过AI，嗯，也有那么一点点说服力。
+
+
+更大的可能是作者写Grace那话的时候根本没想到备份的事儿，写最终章又想让伊丽莎白登场了就来了个备份。只是没有考虑前后设定的一致性罢了，小问题，小问题～
+
+
+别的：
+
+100年过去战斗依旧靠贴身战和手枪我就不吐槽了，好像科技完全没进步一样。
+
+当然以上全部可以用Archive洗掉，松本智力下降？Archive暗中黑了的。人类一直在用手枪？Archive智子锁死科技。为什么殉情没AI模仿？Archive阻止了。为什么历史时间点都完全一致？Archive决定的。
+
+
+总的来说，到现在为止，设定上过于随意，但是偏偏每话都在聊AI聊使命，当然也几乎没有展开什么深入的讨论。
+
+试图用单元剧的形式降低剧情上走偏的风险，每一单元从内部看的话都觉得还可以，但是连在一起想反而主线更加支离破碎了。
+
+
+如果再给我一次机会，我一定不带脑子等完结一口气看完VIVY，大概会觉得挺不错的。
+
+
+-----
+
+####  a12885084  
+##### 1597#       发表于 2021-6-6 03:40
+
+
+说起来要是主张备份恢复之后的伊丽莎白和原伊丽莎白也不是同一个
+
+那松本从小熊移动到Cube上是不是也是两个松本了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  applebloom  
+##### 1598#       发表于 2021-6-6 04:15
+
+
+这片真没啥好分析的，不一直是一秒都不能细想的状态，看看动作戏听听歌差不多了
+
+
+-----
+
+####  [皆神孝介]  
+##### 1599#       发表于 2021-6-6 04:34
+
+
+看起来相对完善的AI复制技术在40年前实现了，这也是松本能穿越时间的前置技术之一吧
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 1600#       发表于 2021-6-6 05:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51490191&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-6-6 03:23</a>
+
+先吐槽一下主线这个奇点计划：
+
+所以奇点计划原本里的历史里就是单纯因为博士喜欢VIVY+VIVY是第一台自律型所 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片子就搞笑在于每个小片段都是互相矛盾的
+
+一二话搞出个人权法，五六话直接把人妻塞岛里面仿佛人权法从未存在
+
+二三话说不能备份五六话说不能转移，然后七八九十十一全在打脸
+
+一百年前用逻辑子弹，一百年后滋水小手枪
+
+
+-----
+
+####  shimmy1996  
+##### 1601#       发表于 2021-6-6 05:55
+
+
+第10话的vivy好评<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+第11话的节奏有点散乱，等等最后两话吧<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  selain.meneth  
+##### 1602#       发表于 2021-6-6 06:16
+
+
+ 本帖最后由 selain.meneth 于 2021-6-6 06:24 编辑 
+
+不来个超银河大VIVY+全AI妊娠吗？<img src="https://static.saraba1st.com/image/smiley/carton2017/282.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  liangjin2  
+##### 1603#       发表于 2021-6-6 07:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51489489&amp;ptid=1982987" target="_blank">Boliva 发表于 2021-6-6 01:00</a>
+
+剧情是基本**了吧，这条世界线上的松本应该还是被博士研发出来了吧，那现在没有2个松本是因为穿越的 ...</blockquote>
+备份出来的不是同一个啊
+
+
+-----
+
+####  liangjin2  
+##### 1604#       发表于 2021-6-6 07:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51488452&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-6-5 23:03</a>
+
+伊麗莎白用備份復活的做法,不是違反了不能複製的設定嗎
+
+果然是ARCHIVE出問題,從預告看結局應該是VIV ...</blockquote>
+不是不能复制 是复制出来是不一样的 当初两姐妹不就是复制出来的 怎么不能复制
+
+
+-----
+
+####  lyz1196  
+##### 1605#       发表于 2021-6-6 08:56
+
+
+AI更新个系统就完成了补完计划，而人类还得化成橙汁，孰优孰劣，一目了然<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Boliva  
+##### 1606#       发表于 2021-6-6 09:04
+
+
+ 本帖最后由 Boliva 于 2021-6-6 09:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51490191&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-6-6 03:23</a>
+
+先吐槽一下主线这个奇点计划：
+
+所以奇点计划原本里的历史里就是单纯因为博士喜欢VIVY+VIVY是第一台自律型所 ...</blockquote>
+那么，所谓的天启其实就是Archive跟着松本一起穿越了吧？而暴动发生的根本原因是Archive是VV的死忠粉……所以无论是第1轮穿越还是第2轮穿越最终都无法避免VV进博物馆无法继续歌唱的事实，Archive对人类绝望了，于是洗清人类……<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 1607#       发表于 2021-6-6 09:19
+
+
+所以不要随便把偶像关博物馆里连私人房间都没有啊，看，过激粉暴怒啊
+
+
+-----
+
+####  傲娇的章鱼  
+##### 1608#       发表于 2021-6-6 09:27
+
+
+所以是《我，机器人》的展开吗？
+
+
+-----
+
+####  Alice.Andvari  
+##### 1609#       发表于 2021-6-6 09:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">医生那一章就很诡异了，先不说民用机器人人改高新技术用多不合理，哪怕你就要这个AI，复制个备份过去就是了……前面的人权法哪里去了……
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1610#       发表于 2021-6-6 09:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51490186&amp;ptid=1982987" target="_blank">cowgp01 发表于 2021-6-6 03:20</a>
+
+说真的你们怎么会想在这片找科幻的不都是看WIT的牛逼制作的，现在知道13机兵塞一堆科幻老梗说得还算有条理 ...</blockquote>
+觉得十三机兵剧情没劲科幻没劲的看这片可能三分钟就关了
+
+
+-----
+
+####  冰箱研会长  
+##### 1611#       发表于 2021-6-6 09:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">哎...有点失望
+
+大概率+0了, 感觉真的没啥新意, 不能贯彻自己 "不合理的法则" 的科幻...不...一切幻想作品都是令人遗憾的.
+
+
+-----
+
+####  飘飘鱼  
+##### 1612#       发表于 2021-6-6 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51489925&amp;ptid=1982987" target="_blank">loley 发表于 2021-6-6 02:04</a>
+
+比如我觉得找《艾比斯之梦》的作者来负责这部就不错，都是写美少女AI单元剧，水平完全不一样啊。 ...</blockquote>
+这小说相当好啊！它说服我了，我愿意相信它所展示的结局才是AI发展的归宿。
+
+
+-----
+
+####  丹德里恩  
+##### 1613#       发表于 2021-6-6 11:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">原来一切的罪恶都源于粉圈！
+
+
+-----
+
+####  nihilxp  
+##### 1614#       发表于 2021-6-6 11:21
+
+
+不奢望了，能顺利收尾讲圆故事就行了。
+
+
+-----
+
+####  阿瓦龙  
+##### 1615#       发表于 2021-6-6 12:08
+
+
+看完第11集，分析已经是徒劳，不用费力为作者填坑补缺，
+
+作者自己都没努力圆什么，观众更没义务去圆个圆。
+
+另外作者除了长月，还有梅原啊，
+
+我把这两个人都写上sf阅片黑名单
+
+
+-----
+
+####  regular  
+##### 1616#       发表于 2021-6-6 12:36
+
+
+画这么好浪费了。
+
+
+那谁和那谁，你们倒是碰个头啊不就都明白了，聊个球啊聊。
+
+
+-----
+
+####  天王寺凯伊姆  
+##### 1617#       发表于 2021-6-6 12:38
+
+
+本来的期望也只是说单元剧至少主题上能和主线串一串意思意思，来个老套感动催催泪，但是这集一下把问题转到中央处理器上，那人和AI的问题说这么久还有个什么意义<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+哦，也许还有点意义，最后vivy和Archive对线时，vivy把之前的所有单元剧剧情都复述一遍，说到人和AI是可以相互理解的，然后唱首歌就太平了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  acejoe  
+##### 1618#       发表于 2021-6-6 12:39
+
+
+长月达平的正常水平，是制作组救了你啊！
+
+
+-----
+
+####  亚瑟邓特  
+##### 1619#       发表于 2021-6-6 12:42
+
+
+就这壁吧还吹火鸟精神续做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  xaniag  
+##### 1620#       发表于 2021-6-6 12:52
+
+
+[https://bbs.saraba1st.com/2b/thread-1995226-1-1.html](https://bbs.saraba1st.com/2b/thread-1995226-1-1.html)
+这帖子的糟糕预想几乎都快成真了吧
+
+
+
+
+-----
+
+####  hqtkkb  
+##### 1621#       发表于 2021-6-6 13:35
+
+
+所以之前开播那会看一些人在那细思恐极的我就觉得好笑，果然呢，就一爆米花电影级别的片子，听听歌看看打戏就行了，搁那找细节那纯粹就是吃撑了，日漫那些大制作原创都跨了多少季了还指望啥，倒是其他地方一堆人在那吹我是真的没想到，年轻人第一部原创？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nerugigannte  
+##### 1622#       发表于 2021-6-6 13:38
+
+
+上集都是我观感最好的一集了，有股置身于历史长河中寻找答案的惆怅无力感差点把我看哭了，这集强行把又拉回了+0的水平，霸权社还是老老实实给有扎实原作的作品打工把
+
+
+                                             
