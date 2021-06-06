@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-02 00:29** 
+> ## **本文件最后更新于2021-06-06 23:52** 
 
 
 
@@ -875,4 +875,284 @@ Q娃形态用枪械的，屑人鱼的确应该是第一个</blockquote>
 2021-6-1 20:51 上传
 
 
-                                               
+-----
+
+####  达达葱2  
+##### 1572#       发表于 2021-6-2 23:07
+
+
+萝拉变Q娃的话，海豹戏份能多一点吗
+
+
+-----
+
+####  Sliurus  
+##### 1573#       发表于 2021-6-2 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51443479&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-6-1 20:51</a></blockquote>
+噫，眉毛末端带球看起来跟霉菌一样，好恶心<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗黑能乐  
+##### 1574#       发表于 2021-6-3 00:48
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/004835kw43zs9410q1w1rp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>e7cbae74gy1gr4bigj1ozj20jt07s0y9.jpg</strong> (57.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 00:48 上传
+
+
+预告已经出来了居然没人发吗
+
+
+-----
+
+####  HGCG  
+##### 1575#         楼主| 发表于 2021-6-3 07:05
+
+
+<img src="https://img.saraba1st.com/forum/202106/03/070552obylhrswlqssll1s.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (56.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 07:05 上传
+
+
+-----
+
+####  lydia5989  
+##### 1576#       发表于 2021-6-3 08:59
+
+
+史上最早登场的追加
+
+
+-----
+
+####  达达葱2  
+##### 1577#       发表于 2021-6-3 10:18
+
+
+奶玫瑰记得也很早啊
+
+
+-----
+
+####  红焖菠菜  
+##### 1578#       发表于 2021-6-4 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51458508&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-6-3 10:18</a>
+奶玫瑰记得也很早啊</blockquote>
+奶玫瑰你得把第一季算上啊。
+
+—— 来自 HUAWEI LIO-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kerfars  
+##### 1579#       发表于 2021-6-6 08:22
+
+
+ 本帖最后由 kerfars 于 2021-6-6 08:24 编辑 
+
+最后萝拉隐瞒自己想变人的心情，真的挺真实的
+
+如果朋友说想要继续交换，萝拉肯定不会隐瞒
+
+结果小实前辈说还是自己好，所以萝拉也很会读空气说自己也是做自己更好，也没有现场说自己想变人
+
+但心里还是羡慕，所以下集偷偷背着真夏她们，自己去研究怎么样才能变人
+
+
+还有美人鱼的故事是人鱼找到魔女变出双腿的，怕不是下集萝拉被魔女抓的原因<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hgcg-ix  
+##### 1580#       发表于 2021-6-6 11:13
+
+
+今天的Q娃，作画意外的好
+
+
+-----
+
+####  暗黑能乐  
+##### 1581#       发表于 2021-6-6 12:29
+
+
+萝拉最后这怒戳一刀。。
+
+
+-----
+
+####  twit  
+##### 1582#       发表于 2021-6-6 13:51
+
+
+其实这前面10多集按待遇来说，萝拉才是第一主角吧
+
+
+-----
+
+####  damian-wade  
+##### 1583#       发表于 2021-6-6 17:03
+
+
+交换身体居然连中之人都交换了，有些偷懒<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+海豹登场以来最好的待遇，它大概最不想换回来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  damian-wade  
+##### 1584#       发表于 2021-6-6 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493028&amp;ptid=1963832" target="_blank">twit 发表于 2021-6-6 13:51</a>
+
+其实这前面10多集按待遇来说，萝拉才是第一主角吧</blockquote>
+我也觉得，大概是因为出场入队早的缘故？算上入队之后的宣传期，差不多整部的前半段都是人鱼重点
+
+
+-----
+
+####  Blackson  
+##### 1585#       发表于 2021-6-6 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493028&amp;ptid=1963832" target="_blank">twit 发表于 2021-6-6 13:51</a>
+
+其实这前面10多集按待遇来说，萝拉才是第一主角吧</blockquote>
+前面组队期间都是靠她鼓舞拉动另外三人
+
+合体技登场回着重表现的也是她
+
+更别说从建立社团到开展活动的表现，剧情都着重于她的表现
+
+
+-----
+
+####  isa2456  
+##### 1586#       发表于 2021-6-6 18:48
+
+
+ 本帖最后由 isa2456 于 2021-6-6 18:53 编辑 
+
+可恶，我也想这样子抱紧珊瑚<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+果子摘下眼镜感觉就变得很普通，不过被揭底的时候表情可爱<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">这集还是偏沉重一点，以往互换不都是沙雕情节，如果萝拉入队放后一点估计就跟水果那样子是萝拉变黄了，而不是这样突然啪一下就换回来
+
+
+还有反派是不是没有设工作指标，十来集过来也不知道目的是什么，真就纯摸鱼
+
+
+-----
+
+####  sAviOr  
+##### 1587#       发表于 2021-6-6 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493028&amp;ptid=1963832" target="_blank">twit 发表于 2021-6-6 13:51</a>
+
+其实这前面10多集按待遇来说，萝拉才是第一主角吧</blockquote>
+这可是粉色头发的追加。
+
+
+-----
+
+####  Sliurus  
+##### 1588#       发表于 2021-6-6 19:54
+
+
+没劲啊，没有换身体变身的情节
+
+罗拉版木瓜明明很可爱，什么叫很普通。其实两个人交换后性格还挺合适的，活泼奔放短发妹跟高雅文静人鱼娘
+
+为什么只有珊瑚是啦啦队服，卖萌担当吗<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1589#       发表于 2021-6-6 21:01
+
+
+为什么全校应援团都是男生制服，只有珊瑚是拉拉队装
+
+
+-----
+
+####  leleq  
+##### 1590#       发表于 2021-6-6 22:52
+
+
+这集珊瑚被卷瞬间想到马口p<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这集互换后瓜瓜疯狂乱动啊经<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  leleq  
+##### 1591#       发表于 2021-6-6 23:06
+
+
+ 本帖最后由 leleq 于 2021-6-6 23:07 编辑 
+
+下一集提到海的女儿了……我之前的yy就是 这个改版
+
+屑人鱼先被魔女骗变人然后变Q娃 几集后因为开始不适应后魔女控制了嗓子和夏夏吵架 被抓变暗Q娃 众人不忍下手 舍不得大家的罗拉自尽 在夏夏怀里变成泡沫
+
+夏夏死鱼眼魔女再临 粉海豹和夏夏的眼泪落入平板 平板喷出水柱罗拉一跃而出（第二集那个迷住夏夏的月下一跃分镜）变身第二形态人鱼Q娃
+
+
+-----
+
+####  最强惠酱  
+##### 1592#       发表于 2021-6-6 23:36
+
+
+哈哈哈我也想到马口p，真想知道她俩交换后是怎么适应上厕所的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leleq  
+##### 1593#       发表于 2021-6-6 23:44
+
+
+ 本帖最后由 leleq 于 2021-6-6 23:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51498715&amp;ptid=1963832" target="_blank">最强惠酱 发表于 2021-6-6 23:36</a>
+
+哈哈哈我也想到马口p，真想知道她俩交换后是怎么适应上厕所的
+
+
+—— 來自 samsung SM-G981N, Androi ...</blockquote>
+说到这 就要谈一下人鱼的繁殖问题了 考虑到人鱼上半身有奶下半身是🐟 应该是类似鸭嘴兽的生态 先生下卵在孵化后哺乳吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 
+
+
+然后是很可能是体外受精<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                              

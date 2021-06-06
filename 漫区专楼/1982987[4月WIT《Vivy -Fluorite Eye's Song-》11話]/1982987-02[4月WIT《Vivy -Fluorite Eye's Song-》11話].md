@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-06 13:45** 
+> ## **本文件最后更新于2021-06-06 23:53** 
 
 
 
@@ -1289,6 +1289,21 @@ Grace被塞进巨浮岛的原因是AI不可复制，依靠的实验是伊丽莎�
 如果再给我一次机会，我一定不带脑子等完结一口气看完VIVY，大概会觉得挺不错的。
 
 
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| sanae| + 1|好评加鹅|
+
+
+查看全部评分
+
+
 -----
 
 ####  a12885084  
@@ -1577,4 +1592,359 @@ AI更新个系统就完成了补完计划，而人类还得化成橙汁，孰优
 上集都是我观感最好的一集了，有股置身于历史长河中寻找答案的惆怅无力感差点把我看哭了，这集强行把又拉回了+0的水平，霸权社还是老老实实给有扎实原作的作品打工把
 
 
-                                             
+-----
+
+####  ipcjs  
+##### 1623#       发表于 2021-6-6 13:55
+
+
+平稳落地<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  MASKA-1  
+##### 1624#       发表于 2021-6-6 14:06
+
+
+不是，又双叒叕平稳落地了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1625#       发表于 2021-6-6 14:12
+
+
+ 本帖最后由 fantuanxiaoyi 于 2021-6-6 14:13 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493132&amp;ptid=1982987" target="_blank">MASKA-1 发表于 2021-6-6 14:06</a>
+
+不是，又双叒叕平稳落地了？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一集就能看出这片不行，那当然就算平稳落地了。
+
+这片让我更加确信了泥潭的APTX定律。
+
+一部动画片要达到这人讨论不了的水平才有可能不翻车。
+
+
+-----
+
+####  timerrr  
+##### 1626#       发表于 2021-6-6 14:17
+
+
+就一爆米花，最后两话打得精彩就值回票价了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nerugigannte  
+##### 1627#       发表于 2021-6-6 14:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493167&amp;ptid=1982987" target="_blank">fantuanxiaoyi 发表于 2021-6-6 14:12</a>
+
+第一集就能看出这片不行，那当然就算平稳落地了。
+
+这片让我更加确信了泥潭的APTX定律。
+
+一部动画片 ...</blockquote>
+aptx定律是啥，有帖子嘛
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1628#       发表于 2021-6-6 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493210&amp;ptid=1982987" target="_blank">nerugigannte 发表于 2021-6-6 14:19</a>
+
+aptx定律是啥，有帖子嘛</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">没什么定律，如果一定要总结你就看aptx8285144这人的所有动画片回帖就得了。
+
+
+-----
+
+####  亚瑟邓特  
+##### 1629#       发表于 2021-6-6 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493216&amp;ptid=1982987" target="_blank">fantuanxiaoyi 发表于 2021-6-6 14:20</a>
+没什么定律，如果一定要总结你就看aptx8285144这人的所有动画片回帖就得了。 ...</blockquote>
+激扬文字<img src="https://static.saraba1st.com/image/smiley/face2017/061.gif" referrerpolicy="no-referrer">
+不及呆呆兽
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 1630#       发表于 2021-6-6 14:29
+
+
+其实剧情上从上集开始让vivy好好重新唱歌的和平发展会不会更好一点呢？3集也刚好，缺点可能就是没啥刺激场面，而且现在ai杀了这么多人，女主后续要如何用笑容给人带来微笑？
+
+
+-----
+
+####  rynchee  
+##### 1631#       发表于 2021-6-6 14:37
+
+
+垣谷真是哥神奇的男人，每个篇章都是你的戏份，哪怕死了都能造成影响。基本上把垣谷看成继VV、松本之后得第三主角应该没问题吧。
+
+
+-----
+
+####  rainknine  
+##### 1632#       发表于 2021-6-6 15:47
+
+
+真要是真爱粉搞事
+那第九集diva选唱歌也不让松本治疗可以说是间接灭世了<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  curunir  
+##### 1633#       发表于 2021-6-6 16:00
+
+
+终末的伊泽塔和公主准则那叫平稳落地；
+
+异度侵入算是迫降；
+
+vivy最好也不过迫降，弄不好就坠机。
+
+
+-----
+
+####  枪聆弹语  
+##### 1634#       发表于 2021-6-6 17:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这片也没飞起来过吧，就美少女逛该，哪来的落地
+
+
+-----
+
+####  chexk03  
+##### 1635#       发表于 2021-6-6 17:53
+
+
+12话完结？其实这集观感不佳是都在结局做铺垫，把之前的伏笔都园回来，但这套路实在太常见了，所以大家都觉得就这么地了吧。
+
+果不其然是打母机，剩下的悬念就是看该是怎样的场景唱歌了吧。
+
+我觉得全片还好，还是遗憾所谓的百年也才四个事件，大部分时间都在睡，然后博士在那“一百年辛苦了”我差点笑喷，你搞多点关键事件一笔带过都好啊。
+
+总之目前+1妥妥的，要是最后的歌能给我惊艳必须+2！
+
+
+-----
+
+####  weige  
+##### 1636#       发表于 2021-6-6 17:59
+
+
+轻小说家的剧本，你们期待个啥
+
+
+-----
+
+####  D-JoeII  
+##### 1637#         楼主| 发表于 2021-6-6 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51494904&amp;ptid=1982987" target="_blank">chexk03 发表于 2021-6-6 17:53</a>
+
+12话完结？其实这集观感不佳是都在结局做铺垫，把之前的伏笔都园回来，但这套路实在太常见了，所以大家都觉 ...</blockquote>
+13話,還有兩話
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| chexk03| + 2||
+
+
+查看全部评分
+
+
+-----
+
+####  moimoi  
+##### 1638#       发表于 2021-6-6 19:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干嘛期待这么高，这不是都圆回来了吗？只能说套路常见，哪里崩了？母机操控不是很合理的答案、吗
+
+要真崩了是现在杀人，杀完人还能人和AI和平相处
+
+我看vivy还要回去一次，不然没法he
+
+
+-----
+
+####  fkinway  
+##### 1639#       发表于 2021-6-6 19:51
+
+
+亚凯布原来是Archiver啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">感觉一下子变了
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 1640#       发表于 2021-6-6 20:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这片子不搞什么杂七杂八的老老实实每集唱歌收队友讲点温馨小故事，把作画力用在做live上感觉效果会好得多啊
+现在全是破绽和烂梗
+
+
+-----
+
+####  马桶3  
+##### 1641#       发表于 2021-6-6 20:37
+
+
+埋线回收看来是真的不行，希望平稳落地吧
+
+
+-----
+
+####  aptx8285144  
+##### 1642#       发表于 2021-6-6 20:48
+
+
+这话总算没有上一话那么无聊了，不过竟然还有稳健派的，虽然理论上也有可能，再回白妹妹
+
+
+-----
+
+####  aptx8285144  
+##### 1643#       发表于 2021-6-6 21:04
+
+
+其实这片我不太喜欢的地方还不是设定上的不严谨，<strong>而是从第三个事件开始整个人物群明显直接被框住了，松本和薇薇很多想法明显在那里反复横跳</strong>，更不用说松本暴跌的逼格了，到不是不是说改变主意或者是采取新的战术，<strong>而是他们两个仿佛已经被时代的潮流推着走了</strong>，这对于立志要在百年内改变世界的他们而言太讽刺了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+还有至今谜语化的某人，也许最后两话会给个结论，但是这个组织到这话这位小姐姐出来前实在太无聊了，又菜又蠢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白玫瑰之夜  
+##### 1644#       发表于 2021-6-6 22:27
+
+
+这破组织过了几十年越活越拉，毁灭吧赶紧的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  noHentai  
+##### 1645#       发表于 2021-6-6 22:29
+
+
+<img src="https://p.sda1.dev/2/956a006e4d724b4c0534334787332834/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ramiel  
+##### 1646#       发表于 2021-6-6 22:47
+
+
+这话几个新出场的真是有点机械降神的味道了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 1647#       发表于 2021-6-6 22:58
+
+
+ 本帖最后由 mqnwbeebwnqm 于 2021-6-6 23:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51497952&amp;ptid=1982987" target="_blank">noHentai 发表于 2021-6-6 22:29</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">喷了，一脸被喷没绷住悻悻找补的样子
+
+如果是他搞出100年后用滋水小手枪演出一段毫无张力的“枪战”那是应该好好反省
+
+
+-----
+
+####  JustW  
+##### 1648#       发表于 2021-6-6 23:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">观众评价不care制作人员，制作人员也不care观众评价，这不是win-win这是什么
+
+
+-----
+
+####  gofbayrf  
+##### 1649#       发表于 2021-6-6 23:15
+
+
+真不care的就不會自稱不care了
+
+
+-----
+
+####  selain.meneth  
+##### 1650#       发表于 2021-6-6 23:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51497952&amp;ptid=1982987" target="_blank">noHentai 发表于 2021-6-6 22:29</a></blockquote>
+特地跳出来说不在乎的，十有八九是破防了。
+
+
+
+
+-----
+
+####  nerugigannte  
+##### 1651#       发表于 2021-6-6 23:30
+
+
+那不应该看了评论很激动嘛，都在说剧情不行演出牛逼。。。
+
+
+-----
+
+####  MASKA-1  
+##### 1652#       发表于 2021-6-6 23:42
+
+
+一直没关心这番的评价，原来这么有梗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+D6EAACE81E8513236DCD4F03FB616F01.jpg
+(109.09 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-6 23:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/234202vm898jk48qqfy720.jpg" referrerpolicy="no-referrer">
+
+
+                                            
