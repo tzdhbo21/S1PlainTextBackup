@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-04 17:08** 
+> ## **本文件最后更新于2021-06-06 20:19** 
 
 
 
@@ -13334,4 +13334,358 @@ https://www.zhihu.com/qu ...</blockquote>
 看到大家骂了这么久，老实说每次翻开这帖都挺心塞的。希望接下来的最终章（应该是了吧），不要再出什么幺蛾子了。
 
 
-           
+-----
+
+####  dfas0077  
+##### 55144#       发表于 2021-6-4 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51474540&amp;ptid=98922" target="_blank">lqchina 发表于 2021-6-4 16:43</a>
+
+看来尾田对和之国和武士的跪舔已经彻底恶心到大多数读者了。
+
+
+不过除了跪舔，其实剧情走向还是海贼王惯用的 ...</blockquote>
+尾田如果在一千话的时候顺着气氛把剧情回归正轨一举推向高潮的话，这个篇章说不定就还救得回来<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  晴岚  
+##### 55145#       发表于 2021-6-4 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51474540&amp;ptid=98922" target="_blank">lqchina 发表于 2021-6-4 16:43</a>
+
+看来尾田对和之国和武士的跪舔已经彻底恶心到大多数读者了。
+
+
+不过除了跪舔，其实剧情走向还是海贼王惯用的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">有什么好绝望的？和之国现在观感就像是看圣斗士电阻新小强打红毛那集。只让人觉得搞笑甚至心疼凯多。
+
+
+-----
+
+####  zxzx7753  
+##### 55146#       发表于 2021-6-4 19:08
+
+
+乔巴扛不住还有隔壁长男放暗箭的缘故吧  乔巴当时可是在船上抗大妈的  另外每种动物系超长的耐力却是乔巴的缺点
+
+
+-----
+
+####  hagaren  
+##### 55147#       发表于 2021-6-4 19:12
+
+
+三周看一次 基本剧情没怎么向前推
+
+
+-----
+
+####  穆  
+##### 55148#       发表于 2021-6-4 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51464598&amp;ptid=98922" target="_blank">羲和 发表于 2021-6-3 19:47</a>
+
+再也没有路飞骑着贝尔从天而降那种神来之笔了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">路飞骑着贝尔从天而降的给我冲击不亚于梅丽出现的司法岛
+
+
+-----
+
+####  战场公主希维尔  
+##### 55149#       发表于 2021-6-4 20:24
+
+
+<blockquote>晴岚 发表于 2021-6-4 19:04
+有什么好绝望的？和之国现在观感就像是看圣斗士电阻新小强打红毛那集。只让人觉得搞笑甚至心疼凯 ...</blockquote>
+屁嘞，你是红毛你不绝望[ f :037]
+
+
+-----
+
+####  晴岚  
+##### 55150#       发表于 2021-6-4 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51476892&amp;ptid=98922" target="_blank">战场公主希维尔 发表于 2021-6-4 20:24</a>
+
+屁嘞，你是红毛你不绝望[ f :037]</blockquote>
+所以凯多=红毛,我现在看和之国就跟看那集一样完全体会不到绝望。只觉得搞笑
+
+
+-----
+
+####  亚尔迪8424  
+##### 55151#       发表于 2021-6-4 22:25
+
+
+这集正式版观感还是可以的，节奏不好不等于不能收尾，尾田给点力吧
+
+
+-----
+
+####  少年包工头  
+##### 55152#       发表于 2021-6-5 00:43
+
+
+虽然你们都在骂九侠，但我看到这话桃子锦卫门练习父子的时候还是被感动到了，复国不易，忍辱负重<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  神隐の馒头  
+##### 55153#       发表于 2021-6-5 08:39
+
+
+<img src="https://p.sda1.dev/2/7bf04e491722a7845654d65b48fae48d/2832ac6db56398cd.jpg" referrerpolicy="no-referrer">名刀 索岚
+
+
+-----
+
+####  大天  
+##### 55154#       发表于 2021-6-5 10:21
+
+
+宙斯的灵魂转到天候棒上了吧
+
+
+-----
+
+####  tyauto  
+##### 55155#       发表于 2021-6-5 16:03
+
+
+大和的孝女棒要来了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/05/160331ct0haekzch6cce3j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4e23r23gt23g.jpg</strong> (206.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-5 16:03 上传
+
+
+-----
+
+####  抽烟的猴  
+##### 55156#       发表于 2021-6-5 16:55
+
+
+凯多的老婆肯定是op第一美女<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这基因改造
+
+
+-----
+
+####  晃来晃去  
+##### 55157#       发表于 2021-6-5 17:39
+
+
+山治这是要开始表演了么。
+
+
+-----
+
+####  论讨爱  
+##### 55158#       发表于 2021-6-5 17:41
+
+
+周常等和之国篇结束，一群傻逼的闹剧
+
+
+-----
+
+####  cdfjg  
+##### 55159#       发表于 2021-6-5 18:27
+
+
+这周不错，但说实话还是不如从情报出来开喷到最后出来的讨论本身更好看
+
+
+-----
+
+####  FBIwarning  
+##### 55160#       发表于 2021-6-5 20:25
+
+
+希望山治能好好打一场<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  银翼的维罗西  
+##### 55161#       发表于 2021-6-5 20:42
+
+
+哈哈哈，厨子站起来啦，小小QUEEN，轻松打爆
+
+
+-----
+
+####  斯文老狗  
+##### 55162#       发表于 2021-6-6 00:51
+
+
+山治上次高光还是打奥兹吧 十多年了<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  神隐の馒头  
+##### 55163#       发表于 2021-6-6 08:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51489413&amp;ptid=98922" target="_blank">斯文老狗 发表于 2021-6-6 00:51</a>
+山治上次高光还是打奥兹吧 十多年了</blockquote>
+明明是打草帽<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gutzz  
+##### 55164#       发表于 2021-6-6 11:07
+
+
+这话看起来出乎意料地还不错，希望山治就在这挽回点颜面吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  牧濑紅莉栖  
+##### 55165#       发表于 2021-6-6 11:27
+
+
+感觉这话是最近难得还不错的一话了，难怪推上都上了下热搜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GreenBird  
+##### 55166#       发表于 2021-6-6 12:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51491863&amp;ptid=98922" target="_blank">牧濑紅莉栖 发表于 2021-6-6 11:27</a>
+
+感觉这话是最近难得还不错的一话了，难怪推上都上了下热搜</blockquote>
+战争哪有不死人，对不对？绝望感不强，希望则无从谈起。这也是广大读者期待的地方。希望WT考虑一下读者。
+
+
+-----
+
+####  武男  
+##### 55167#       发表于 2021-6-6 12:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51492119&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-6-6 12:00</a>
+
+战争哪有不死人，对不对？绝望感不强，希望则无从谈起。这也是广大读者期待的地方。希望WT考虑一下读者。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">这就得说狗哥了，狗哥在顶上之战里面算是这个的担当了，基本上都是真实伤害。艾斯，白胡子的死，七武海革命军路飞残，都和他离不开关系。现在的凯多，慈悲棍法。
+
+
+-----
+
+####  拉萨乌姆  
+##### 55168#       发表于 2021-6-6 12:41
+
+
+傻逼的闹剧+1
+
+
+-----
+
+####  华丽の蝴蝶  
+##### 55169#       发表于 2021-6-6 12:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51492388&amp;ptid=98922" target="_blank">武男 发表于 2021-6-6 12:34</a>
+这就得说狗哥了，狗哥在顶上之战里面算是这个的担当了，基本上都是真实伤害。艾斯，白胡子的死， ...</blockquote>
+百兽团其他干部也很无奈 把人头骨都撞碎了还没死
+
+
+-----
+
+####  peacemaker  
+##### 55170#       发表于 2021-6-6 17:28
+
+
+9侠全死光的话这和之篇就还行
+
+
+不过这就要把“最强”凯多打败了？而且那边也要把大妈做了？
+
+
+还是扯
+
+
+
+
+-----
+
+####  C男人  
+##### 55171#       发表于 2021-6-6 20:04
+
+
+关键是这一话的山治强的过头了，
+
+
+抡起奎因打飞佩罗斯佩罗，
+
+
+这就是抡起一个皇副打飞第二个皇副啊，
+
+
+山治的定位有 “皇副×2” 这种高度吗？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+而且还是凯多三灾+大妈长子 这种实打实的皇副。
+
+
+-----
+
+####  C男人  
+##### 55172#       发表于 2021-6-6 20:10
+
+
+ 本帖最后由 C男人 于 2021-6-6 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51464598&amp;ptid=98922" target="_blank">羲和 发表于 2021-6-3 19:47</a>
+
+再也没有路飞骑着贝尔从天而降那种神来之笔了</blockquote>
+说到贝尔，
+
+
+当年号称“世上只有五个的飞行能力”，
+
+
+现在也破格到 “世上有五大类” 了吧。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+连吃smile飞起来的都不止一个了。
+
+
+幻兽种、古代种各种飞，凯多一个“鱼鱼果实”也能飞。
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/201417drfgddsmgsr77srs.png" referrerpolicy="no-referrer">
+
+
+<strong>a8014c086e061d95dd073dd871f40ad163d9ca89.png</strong> (31.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 20:14 上传
+
+
+          
