@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-06 23:53** 
+> ## **本文件最后更新于2021-06-07 18:00** 
 
 
 
@@ -1935,7 +1935,7 @@ vivy最好也不过迫降，弄不好就坠机。
 
 
 D6EAACE81E8513236DCD4F03FB616F01.jpg
-(109.09 KB, 下载次数: 0)
+(109.09 KB, 下载次数: 1)
 
 
 下载附件
@@ -1947,4 +1947,369 @@ D6EAACE81E8513236DCD4F03FB616F01.jpg
 <img src="https://img.saraba1st.com/forum/202106/06/234202vm898jk48qqfy720.jpg" referrerpolicy="no-referrer">
 
 
-                                            
+-----
+
+####  a12885084  
+##### 1653#       发表于 2021-6-7 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51498792&amp;ptid=1982987" target="_blank">MASKA-1 发表于 2021-6-6 23:42</a>
+
+一直没关心这番的评价，原来这么有梗</blockquote>
+喷了
+
+这是贴吧还是B站啊，这么有梗的吗
+
+
+-----
+
+####  chiefshi  
+##### 1654#       发表于 2021-6-7 00:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51498792&amp;ptid=1982987" target="_blank">MASKA-1 发表于 2021-6-6 23:42</a>
+一直没关心这番的评价，原来这么有梗</blockquote>
+uncle me大草
+
+
+-----
+
+####  米德  
+##### 1655#       发表于 2021-6-7 00:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不在乎观众评价还要特地转发说一下 那之前还要发微博吹干什么呢 反正业界大佬也不看微博 感觉是真的有点急了
+
+
+-----
+
+####  ipcjs  
+##### 1656#       发表于 2021-6-7 02:05
+
+
+vivy在其他地方风评原来挺高？
+
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  尼特子很辛苦哟  
+##### 1657#       发表于 2021-6-7 02:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51497952&amp;ptid=1982987" target="_blank">noHentai 发表于 2021-6-6 22:29</a></blockquote>
+笑死了，一点不在意还要特意提一嘴
+
+—— 来自 HUAWEI ALP-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  whzfjk  
+##### 1658#       发表于 2021-6-7 04:00
+
+
+好像只是单纯的观点，没什么节奏和对峙。
+
+普通人肯定在术语和表达的准确性上有不足，但既然前面说了没素养的观众不容易看出问题，那么感觉出问题的时候也并非毫无依据吧，不过一线人员去沟通确实没意义（效率低），应该养些社区代表滚这个泥（KOL UP 主就算了）。
+
+
+-----
+
+####  十点半  
+##### 1659#       发表于 2021-6-7 08:06
+
+
+最后一集别是再到100年前，vv自杀，导致没有姐妹机出现。
+
+
+—— 来自 Xiaomi Redmi K20 Pro Premium Edition, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1660#       发表于 2021-6-7 08:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51499536&amp;ptid=1982987" target="_blank">ipcjs 发表于 2021-6-7 02:05</a>
+
+vivy在其他地方风评原来挺高？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">底特律在日美和中国太太圈评价也很高
+
+啊，用现在不正确的话来说就是全球环中国X D Z 高评价
+
+
+-----
+
+####  jimmytong  
+##### 1661#       发表于 2021-6-7 09:55
+
+
+看迷糊了，问下什么时候分成diva和vivy两个人格的？diva是奥菲利亚那集消失的吗？果然特异点是vivy，别搞成再回到过去一次就行<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shimmy1996  
+##### 1662#       发表于 2021-6-7 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51501040&amp;ptid=1982987" target="_blank">jimmytong 发表于 2021-6-7 09:55</a>
+看迷糊了，问下什么时候分成diva和vivy两个人格的？diva是奥菲利亚那集消失的吗？果然特异点是vivy，别搞成 ...</blockquote>
+diva是metal float奇异点后记忆初始化重新炼出来的人格，后来在奥菲莉亚奇异点被垣谷的特制子弹擦除了
+
+
+-----
+
+####  a12885084  
+##### 1663#       发表于 2021-6-7 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51501040&amp;ptid=1982987" target="_blank">jimmytong 发表于 2021-6-7 09:55</a>
+ 看迷糊了，问下什么时候分成diva和vivy两个人格的？diva是奥菲利亚那集消失的吗？果然特异点是vivy，别搞成 ...</blockquote>
+vivy宕机之后重启就是diva
+为什么宕机会有新人格，编剧说的
+为什么vivy人格还在，编剧说的
+
+diva在奥菲利亚那集中了人格程序删除子弹
+右上角那个进度条一直在走
+你问为什么他们打的时候不着急，编剧写的
+松本为啥不治疗，编剧写的
+唱完歌diva就没了，然后vivy回来了
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1664#       发表于 2021-6-7 10:19
+
+
+这片子整体逻辑和走向其实没什么大问题，大不了就是一个俗不可耐的底特律式黑人装AI的言情剧。
+
+可是他非要装逼搞个100年，实际上整个作品发生的事情压缩到20年内毫无问题，观感也会好不少。
+
+属于为了凑营销词汇结果砸了自己的脚。
+
+
+上一个拿年份长装逼骗高层通过企划的是AGE。
+
+
+-----
+
+####  JustW  
+##### 1665#       发表于 2021-6-7 10:28
+
+
+100年前的初代自律已经可以和人类一样拥有感情了，100年后的AI一联网就会变成自走杀人机器，emmmmm
+
+
+-----
+
+####  JustW  
+##### 1666#       发表于 2021-6-7 10:30
+
+
+<blockquote>whzfjk 发表于 2021-6-7 04:00
+好像只是单纯的观点，没什么节奏和对峙。
+
+普通人肯定在术语和表达的准确性上有不足，但既然前面说了没素养 ...</blockquote>
+如果大家都觉得好：“感谢观众的喜爱和支持”
+
+如果大家觉得不好：“我真的不关心观众的观后感，我只关心业内大佬的评价”
+
+
+-----
+
+####  whzfjk  
+##### 1667#       发表于 2021-6-7 10:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51501280&amp;ptid=1982987" target="_blank">fantuanxiaoyi 发表于 2021-6-7 10:19</a>
+
+这片子整体逻辑和走向其实没什么大问题，大不了就是一个俗不可耐的底特律式黑人装AI的言情剧。
+
+可是他非要 ...</blockquote>
+AGE 这逼不是装到了，要不是年份长有爷爷级主角谁还记得它
+
+
+-----
+
+####  枪聆弹语  
+##### 1668#       发表于 2021-6-7 10:57
+
+
+感觉还是格局大了，100年还玩数据穿越多条时间线，科技人格进化，还是全世界的屠SHA灾难。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">就这种叫卖，很难不让人去扣他的BUG
+
+完全就是搞了地鸣，最后说我家妹妹只想唱歌。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">这种一到完结，就又来一遍平稳落地的话术。
+
+
+-----
+
+####  AlfredXC  
+##### 1669#       发表于 2021-6-7 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51497952&amp;ptid=1982987" target="_blank">noHentai 发表于 2021-6-6 22:29</a></blockquote>
+先有曹，现在又来个洪，做个动画哪来这么多优越感的呢
+
+
+-----
+
+####  hanan1  
+##### 1670#       发表于 2021-6-7 14:27
+
+
+不管诚不诚恳吧，总归是道歉了。
+<img src="https://i.niupic.com/images/2021/06/07/9krl.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  枪聆弹语  
+##### 1671#       发表于 2021-6-7 14:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这是道歉吗，这谁啊，为何这么多戏
+
+
+-----
+
+####  a12885084  
+##### 1672#       发表于 2021-6-7 15:09
+
+
+这位自我意识就是比较过剩
+
+同样的图她推上发的无水印，微博发的有水印
+
+底下有评论：好喜欢这种感觉！之前都是上推看各个画师互相转发贺图之类的，这次居然在微博看到了！好开心！（另外贺图能不能和推上一样别加水印呀，可以把水印直接画到画里？）
+
+她回：
+
+
+<img src="https://img.saraba1st.com/forum/202106/07/150912h7e5juhcubghhjc0.png" referrerpolicy="no-referrer">
+
+
+<strong>截屏2021-06-07 09.08.50.png</strong> (113.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-7 15:09 上传
+
+
+-----
+
+####  gofbayrf  
+##### 1673#       发表于 2021-6-7 15:27
+
+
+自演乙 who care? 
+
+
+-----
+
+####  whitesnake00  
+##### 1674#       发表于 2021-6-7 15:43
+
+
+这也太自我意识过剩了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  間桐櫻  
+##### 1675#       发表于 2021-6-7 15:45
+
+
+懂了，因為女主唱不了歌所以archive 暴走，所以結局就是女主明白甚麼叫做心然後唱歌拯救世界
+
+
+-----
+
+####  米德  
+##### 1676#       发表于 2021-6-7 15:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">都是拆尼斯还在微博上演什么戏呢 直接点草不好吗
+别的没学到 鬼子的虚伪倒是学的一套一套的
+
+
+-----
+
+####  白白白  
+##### 1677#       发表于 2021-6-7 16:32
+
+
+所以又一部原创翻车了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  acejoe  
+##### 1678#       发表于 2021-6-7 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51504657&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-6-7 15:09</a>
+这位自我意识就是比较过剩
+
+同样的图她推上发的无水印，微博发的有水印
+
+底下有评论：好喜欢这种感觉！之前都 ...</blockquote>
+低情商的xxx
+
+
+-----
+
+####  kidbero  
+##### 1679#       发表于 2021-6-7 16:49
+
+
+平稳收尾就算成功，没有更多期望了。
+
+
+-----
+
+####  nerugigannte  
+##### 1680#       发表于 2021-6-7 16:59
+
+
+这集引出了一个哭笑不得的设定，就是不管是哪个博士还是vivy都不知道应该要去对抗什么怎么改写历史，就是让vivy回到100年前通过已有情报摸着石头过河，别最后爆出来起因是vivy本人画面定格在博士痛别vivy拯救世界就行。还不如做成紫罗兰那样的玛丽苏单元剧
+
+
+
+
+-----
+
+####  水宝宝  
+##### 1681#       发表于 2021-6-7 17:14
+
+
+目前为止的剧情让我觉得底特律的剧情好像也没那么糟
+
+
+-----
+
+####  别叫我宅男  
+##### 1682#       发表于 2021-6-7 17:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51505115&amp;ptid=1982987" target="_blank">米德 发表于 2021-6-7 15:49</a>
+ 都是拆尼斯还在微博上演什么戏呢 直接点草不好吗 别的没学到 鬼子的虚伪倒是学的一套一套的 ...</blockquote>
+本质小圈子抱团，人际关系以后互吹还要用，不能撕破脸
+
+
+-----
+
+####  chiefshi  
+##### 1683#       发表于 2021-6-7 17:43
+
+
+要是水枪互滋改成重武器观感会不会好点
+
+
+                                           

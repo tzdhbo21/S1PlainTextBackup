@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-05 22:51** 
+> ## **本文件最后更新于2021-06-07 18:01** 
 
 
 
@@ -2301,8 +2301,8 @@ E3Aaa8oUYAYTg79.jpg
 ##### 1683#       发表于 2021-6-4 17:39
 
 
-<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_zTYdd" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_JSBGH" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_QFFwi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_efLWX" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 【#にじPEX 追加情報！ 2/2】 
 
@@ -3532,4 +3532,581 @@ Zsyl，搜了一下之前关注的个人势Vsingerユプシロン众筹计划也
 夜见说现在你虹3d室比原来好约了，应该是扩了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
 
 
-                                        
+-----
+
+####  winda  
+##### 1774#       发表于 2021-6-5 23:00
+
+
+<img src="https://img.saraba1st.com/forum/202106/05/225945s7kigsa8a67icgr7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210605_225652.jpg</strong> (306.08 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-6-5 22:59 上传
+
+
+顺便，明天神城3d
+
+
+-----
+
+####  langsheng  
+##### 1775#       发表于 2021-6-5 23:16
+
+
+漪月灵推特说她可以不用报备在B站播了
+
+
+大概是签约什么的已经搞定
+
+
+-----
+
+####  Junchoon  
+##### 1776#       发表于 2021-6-5 23:17
+
+
+我怎么觉得露露最近的同接跌了好多，今天Pikmin才4千，是发生了什么吗？
+
+我总觉得老任的游戏直播是Debuff......
+
+
+-----
+
+####  Suny08  
+##### 1777#       发表于 2021-6-5 23:35
+
+
+エクスアルビオ顔合わせ枠(一部抜粋) 
+
+1:45:41〜 
+
+我々のね、エビのたたきTVチームはですね、平均ダメージが、今回の大会の条件が「1500未満」というね、あのレギュレーションになってまして、 
+
+えっと僕らは1600行ってない、1500台ですね、1500ちょいなんですけども、 
+
+なんでこれ超えてしまったんだという話を今させてもらいます 
+
+
+やっぱ結構大会、チームの平均ダメージ上下結構あると思うんで、まぁなんか「このチーム越えてるから勝って当たり前だろ！」って思われてしまうのもアレなので。 
+
+
+僕のチームに関してはすごい仕方ない理由がありまして、 
+
+レギュレーションですね、1500ダメージの段階ではすでたきさん一回お誘いした時点ではダメージ越えてて、ほんのちょっとなんですけど、ちょっとお断りさせてもらって別の方をお呼びする予定ではあったんですよ。 
+
+
+で、そのタイミングで「他にも何チームか越えてるチームがいますよ」ってことでレギュレーションを1600に変更いたしますって連絡が来て、レギュレーションが一瞬1600に変わったんですよ。 
+
+
+で、1600に変わったから「すでたきさん呼べる」と思って、一回誘った方がまだ確定ではなかったので、「レギュレーション変わったので一番最初に誘ってた方にして大丈夫ですか？」ということで、すでたきさんをお呼びして1600以内に収まってますよ、ってことになったら、 
+
+そのあとでまた1600から1500に変わってしまいまして。 
+
+もう何回も変えたり変えなかったりを繰り返していたので、僕のチームはちょっとそれ、そうですねもう、「確定しました」みたいな形でグループもちゃんと作った段階だったので、 
+
+1500を超えてしまうチームというふうになってしまいましたね。 
+
+
+でこの辺に関しては大会の運営さんとか、えっと主催者のお二人にもお話させていただいてですね、一応縛りを設ける、 
+
+僕以外のチームも超えてるチームは何チームか縛りが入ると思うんですけど、若干の縛りをいれることで調整しようという感じになっておりますので、
+
+
+-----
+
+####  poipanchao  
+##### 1778#       发表于 2021-6-5 23:47
+
+
+露露养病回来同接就一直上不去了，一般都是维持在5k铁血粉丝线上
+
+
+-----
+
+####  winda  
+##### 1779#       发表于 2021-6-6 19:38
+
+
+决胜是胡桃队对奈罗花队啊
+
+
+-----
+
+####  FCCHua  
+##### 1780#       发表于 2021-6-6 19:44
+
+
+阿露丝好可爱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 1781#       发表于 2021-6-6 20:22
+
+
+有点僵硬啊，动捕……
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/202235dhxe8f80zlxgzqhu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (59.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 20:22 上传
+
+
+[(1) 【重大告知あり】神城くれあ美麗３Dお披露目&amp;皆とデート！？ - YouTube](https://www.youtube.com/watch?v=8JGHzM0suTk)
+
+
+-----
+
+####  rzrbtk  
+##### 1782#       发表于 2021-6-6 20:22
+
+
+撤回之前的prize哥不是很猛言论，我错了，真的很猛，计划性好强，是郡道跟不上他的指挥<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1783#       发表于 2021-6-6 20:31
+
+
+くれおば就是今天的质了
+
+
+-----
+
+####  Suzutsuki  
+##### 1784#       发表于 2021-6-6 21:29
+
+
+胡桃1w7同接了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">可惜bora淘汰了 这比赛我一点都不想看
+
+
+-----
+
+####  十四洲  
+##### 1785#       发表于 2021-6-6 22:40
+
+
+奈罗花队赢了
+
+
+-----
+
+####  winda  
+##### 1786#       发表于 2021-6-6 22:45
+
+
+laz team大场全胜夺冠<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">五个教练就是不一样
+
+
+-----
+
+####  FCCHua  
+##### 1787#       发表于 2021-6-6 22:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">这样你也是cr杯冠军了
+
+
+-----
+
+####  alcoholic1000  
+##### 1788#       发表于 2021-6-6 23:26
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-7 00:42 编辑 
+
+谜语人叶明天发表にじpex最后一队的最后一位成员
+
+
+Syl，「これからの事とか話そう」这种标题可以不用，不知道还以为要vtuber毕业呢<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+聊了一下最近的大会：
+
+apex的order葛叶，叶想玩电妹，自己的DMG可能是600左右（？
+
+下次有机会想拆黑黑，被邀请了（为什么已经有下一次了？）
+
+
+最近关于「明明是にじpex却有很多外人，这样子和普通大会有什么区别」的抱怨有很多，没办法啊，凑不齐60人，水平差距也大。有机会想主办仅限虹社内的apex会，鬼ごっこ之类的，把狗子ban掉来进行（说了很多细节，包括经验者追逃设定之类的，也许这次是真的想搞）。(虹限定的Apex捉迷藏大会想看啊...)
+
+总之就是给虹apex大会灭火+大概绝对不会落地的卫星。
+
+
+开始聊NGS了，叶最喜欢的观众看到都会觉得无聊的MMORPG。
+
+
+没提BML的事情
+
+
+想要稍微讲一下自己的事情，最近有一直在苦恼的事情。
+
+最近大会练习规律生活，积极的同时背后存在着诸多负面情绪（能够感受到、理解到「不想再干了」的人心情了），非常消极，但一直在努力面对。
+
+大会中遇到的职业真的很强，自身产生了劣等感，但不会因此逃避。
+
+
+如果你也在试图不逃避、努力生活的话，加油。
+
+
+最近是练舞、健身房运动的节奏，各种事情很忙。
+
+美容院（还是医疗）脱毛有麻醉疼还在做，毕竟是美少女（脱毛的具体位置保密）。
+
+（麻醉话题引申？）酒量很好（毕竟从小训练嘛*neta）。
+
+
+聊不下去了，困了，要眠了（一转Apex）
+
+
+「不管男性女性，大家都是我的翅膀」最近观众性别比是男:女=6:4「啊，来玩工口游戏吧」（好感度調整するな）
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 黑之和| + 1|好评加鹅|
+| qq845629713| + 2|阿叶没提BML的事情？|
+
+
+查看全部评分
+
+
+-----
+
+####  poipanchao  
+##### 1789#       发表于 2021-6-6 23:36
+
+
+如果给bora队一个好教练就好了……
+
+多次败于战术和指导不足
+
+后来ras来玩票当了一会儿教练都有明显的效果
+
+
+-----
+
+####  OldGlory  
+##### 1790#       发表于 2021-6-6 23:55
+
+
+别再来了，求求你们打apex吧
+
+
+-----
+
+####  poipanchao  
+##### 1791#       发表于 2021-6-7 00:20
+
+
+你要的是不是接下来这一周
+
+炎上预定，斗虫狂欢，仇杀互踩的虹pex？
+
+
+-----
+
+####  OldGlory  
+##### 1792#       发表于 2021-6-7 01:26
+
+
+Elira收益化通过
+
+
+-----
+
+####  Suzutsuki  
+##### 1793#       发表于 2021-6-7 09:49
+
+
+apex不比瓦罗兰特好看吗 那逼游戏我再也不想看到了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cheatdeath3  
+##### 1794#       发表于 2021-6-7 11:41
+
+
+<blockquote>alcoholic1000 发表于 2021-6-6 23:26
+谜语人叶明天发表にじpex最后一队的最后一位成员
+
+
+Syl，「これからの事とか話そう」这种标题可以不用，不知 ...</blockquote>
+为什么叶的油管男粉会这么多，fps民吗？
+
+
+-----
+
+####  Suny08  
+##### 1795#       发表于 2021-6-7 12:30
+
+
+直近一ヶ月の登録者数の伸び 
+
+74.4万　天皇　（+9000） 
+
+63.1万　ひま　（+4000） 
+
+49.9万　メス　（+28000） 
+
+
+天皇との差は1.9万 → 1年1ヶ月後に逆転 
+
+ひまっさんとの差は2.4万 → あと5ヶ月後に逆転 
+
+
+まぁ今年中にひまっさん抜いて女ライバー２位になるのはほぼ確定 
+
+ひまっさんが異常な伸びしない限り
+
+
+今年以后你虹二姐就是奶油妹了，有点感慨
+
+
+-----
+
+####  OldGlory  
+##### 1796#       发表于 2021-6-7 13:56
+
+
+一张好皮真的很重要
+
+
+-----
+
+####  空集  
+##### 1797#       发表于 2021-6-7 15:07
+
+
+好像也不意外 星川曝光度是高
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  poipanchao  
+##### 1798#       发表于 2021-6-7 15:09
+
+
+星川活跃度高多了，到处都有她
+曾经高增长的露露也陷入泥潭涨不动了
+反而是lize有了点起色
+不过印象中涨的最凶的是20年新人王bora
+
+
+-----
+
+####  Ketestrait  
+##### 1799#       发表于 2021-6-7 15:44
+
+
+活跃度和曝光度会极大影响增长的（某木口懒狗除外<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 1800#       发表于 2021-6-7 16:24
+
+
+得看有没有持续一段的高质量内容<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">连续几次直播效果不错涨粉就快，不然没有动力点订阅
+
+
+
+
+-----
+
+####  哈曼的YY  
+##### 1801#       发表于 2021-6-7 16:31
+
+
+美大生一个人打游戏所以没什么话题吗
+
+
+楼里也很少提起她
+
+
+-----
+
+####  poipanchao  
+##### 1802#       发表于 2021-6-7 16:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51505575&amp;ptid=1972669" target="_blank">哈曼的YY 发表于 2021-6-7 16:31</a>
+美大生一个人打游戏所以没什么话题吗
+
+
+楼里也很少提起她</blockquote>
+以前有的，病休前楼里有不少楼友repo的，至少4.5个吧
+病休后随着脑控解除，v综的衰落，人都走光了吧
+
+syl，夏小姐钻2了…含金量哈人啊
+
+
+-----
+
+####  Ketestrait  
+##### 1803#       发表于 2021-6-7 16:50
+
+
+ 本帖最后由 Ketestrait 于 2021-6-7 16:53 编辑 
+
+你楼大风大浪见多了，没有话题性的日常直播没人提是正常的。V综衰退.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  哈曼的YY  
+##### 1804#       发表于 2021-6-7 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51505767&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-7 16:47</a>
+
+以前有的，病休前楼里有不少楼友repo的，至少4.5个吧
+
+病休后随着脑控解除，v综的衰落，人都走光了吧</blockquote>
+草 美大生也有脑控的吗<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  purdre  
+##### 1805#       发表于 2021-6-7 17:12
+
+
+露露这种不整活不搞企划的V停下来的时间一长就挺难让非死忠再去注意到了。说不定不少人都不知道她已经复活了。
+
+
+-----
+
+####  IDIDIDID  
+##### 1806#       发表于 2021-6-7 17:22
+
+
+露露一直都是露露，风格没变化也不去问运营要资源自然也就没话题了。本来七姨太选择套皮就是想躺平玩游戏顺便挣点零花，唱跳rap还是让给小青年吧。
+
+
+-----
+
+####  空集  
+##### 1807#       发表于 2021-6-7 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51505980&amp;ptid=1972669" target="_blank">哈曼的YY 发表于 2021-6-7 17:08</a>
+草 美大生也有脑控的吗</blockquote>
+看v多少沾点脑控
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  winda  
+##### 1808#       发表于 2021-6-7 17:28
+
+
+naraka无回应迟到30min,<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">睡着了吧
+
+
+-----
+
+####  poipanchao  
+##### 1809#       发表于 2021-6-7 17:29
+
+
+其实露露到底是想做啥呢
+主业明显已经休了
+v这边突出一个无欲无求
+养的活自己吗？还是说已经是主妇了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  peh  
+##### 1810#       发表于 2021-6-7 17:35
+
+
+不太关注虹了
+
+原来二姐已经不是ssk了吗
+
+
+-----
+
+####  Suzutsuki  
+##### 1811#       发表于 2021-6-7 17:42
+
+
+说起来我才想起12号就是虹pex了  怎么连个训练赛都没有的吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1812#       发表于 2021-6-7 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51506306&amp;ptid=1972669" target="_blank">Suzutsuki 发表于 2021-6-7 17:42</a>
+
+说起来我才想起12号就是虹pex了  怎么连个训练赛都没有的吗</blockquote>
+有的有的，九号开始每天八点起，每天打六场
+
+
+-----
+
+####  poipanchao  
+##### 1813#       发表于 2021-6-7 17:49
+
+
+怎么看到人说tmsk要帝华了
+有没有白河豚大手子说一下
+
+
+-----
+
+####  苏佑慧  
+##### 1814#       发表于 2021-6-7 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51506379&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-7 17:49</a>
+
+怎么看到人说tmsk要帝华了
+
+有没有白河豚大手子说一下</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/07/180017c48xkndud5k274on.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210607163636.jpg</strong> (87.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-7 18:00 上传
+
+
+是说这个？今天发了又删了的推文
+
+
+                                       
