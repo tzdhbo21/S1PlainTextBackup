@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-07 18:01** 
+> ## **本文件最后更新于2021-06-07 22:17** 
 
 
 
@@ -2301,8 +2301,8 @@ E3Aaa8oUYAYTg79.jpg
 ##### 1683#       发表于 2021-6-4 17:39
 
 
-<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_QFFwi" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
-<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_efLWX" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/E3BzwdRVgAAVhX-?format=jpg&amp;name=large" id="aimg_pJWZp" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://pbs.twimg.com/media/E3Bzw-mUYAI1pwl?format=jpg&amp;name=large" height="450" id="aimg_szvRe" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 
 【#にじPEX 追加情報！ 2/2】 
 
@@ -4027,7 +4027,11 @@ syl，夏小姐钻2了…含金量哈人啊
 ##### 1808#       发表于 2021-6-7 17:28
 
 
+ 本帖最后由 winda 于 2021-6-7 18:42 编辑 
+
 naraka无回应迟到30min,<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">睡着了吧
+syl，迟到快一个小时半了，少见
+zsyl,醒了
 
 
 -----
@@ -4109,4 +4113,218 @@ v这边突出一个无欲无求
 是说这个？今天发了又删了的推文
 
 
-                                       
+-----
+
+####  渡鸦骑士  
+##### 1815#       发表于 2021-6-7 18:08
+
+
+这要真搞下来国内得疯一批人吧<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+不对啊，不是说直播要休了嘛。
+还能在停之前搞这种事情？<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ketestrait  
+##### 1816#       发表于 2021-6-7 18:10
+
+
+单看这两段话感觉也看不出来是跟谁有关啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 1817#       发表于 2021-6-7 18:11
+
+
+主要是同时sky好像删了组合的fanmark
+
+
+-----
+
+####  哈曼的YY  
+##### 1818#       发表于 2021-6-7 18:34
+
+
+我看美大生的唱跳也没荒废啊 前段时间也有出唱跳视频
+
+当主妇的话对方一定是魔界大元帅吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 1819#       发表于 2021-6-7 19:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就两张截图然后捕风捉影推测一下
+希望有专业tmsk厨讲讲
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Suzutsuki  
+##### 1820#       发表于 2021-6-7 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51506351&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-7 17:47</a>
+
+有的有的，九号开始每天八点起，每天打六场</blockquote>
+那还行 我还怕没训练赛 bora直播变少
+
+
+-----
+
+####  purdre  
+##### 1821#       发表于 2021-6-7 19:55
+
+
+crossick前几天还在一起卡拉OK直播呢，分手真能有这么快？
+
+
+-----
+
+####  rzrbtk  
+##### 1822#       发表于 2021-6-7 20:06
+
+
+ 本帖最后由 rzrbtk 于 2021-6-7 20:08 编辑 
+
+说不定是在骂fumi和路易斯呢<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">（玩笑），说起来路易斯公式番组也快了，争气惹
+
+(感觉这话骂郡道也成立诶)
+
+
+-----
+
+####  free  
+##### 1823#       发表于 2021-6-7 20:08
+
+
+[https://www.youtube.com/watch?v=AOjx25cWOfw](https://www.youtube.com/watch?v=AOjx25cWOfw)
+
+love酱3D
+
+
+-----
+
+####  OldGlory  
+##### 1824#       发表于 2021-6-7 20:09
+
+
+2号机模型做的挺好的
+
+
+-----
+
+####  FCCHua  
+##### 1825#       发表于 2021-6-7 20:11
+
+
+ 本帖最后由 FCCHua 于 2021-6-7 20:13 编辑 
+
+想多了，sky删那个是因为简介没地方放新的cv介绍了，建议推特开放数字限制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+阿巴这个明显和她本职那边的事有关系吧，现在她正在走姐那边参加联动，开幕聊的话题就是健屋花那<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 1826#       发表于 2021-6-7 20:24
+
+
+什么嘛，又不滑了，遗憾。
+
+
+syl，冈崎体育这首歌确实蛮适合你虹的
+
+【MAD】にじさんじでMUSIC VIDEO(岡崎体育)【ほぼ3D】
+[https://www.nicovideo.jp/watch/sm38840966](https://www.nicovideo.jp/watch/sm38840966)
+
+
+-----
+
+####  winda  
+##### 1827#       发表于 2021-6-7 20:32
+
+
+ 本帖最后由 winda 于 2021-6-7 20:41 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">nrk这边也在给nijipex背书啊，一开始规则还是总计平均伤害1300的
+syl还和观众开玩笑说从彩虹引退和laz桑一起去柏林<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  katern  
+##### 1828#       发表于 2021-6-7 20:34
+
+
+ 本帖最后由 katern 于 2021-6-7 20:48 编辑 
+
+2号机和兔鞠站在一起，真好啊。
+
+微相关？感觉是个暴死jrpg
+
+<img src="https://img.saraba1st.com/forum/202106/07/204713ugjzwlepwpp0yhpy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>195323vv9lhnomoej8vpve.jpg</strong> (19.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-7 20:47 上传
+
+
+-----
+
+####  purdre  
+##### 1829#       发表于 2021-6-7 20:49
+
+
+听到委员长会向皇女撒娇说别回去，对名取也非常的温柔关怀，这女人在网上一副亚文化搞怪女的样子怎么一到了私下就这么小鸟依人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 1830#       发表于 2021-6-7 21:27
+
+
+这柴卡黄骰子联动OMANKO一片噤声<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 1831#       发表于 2021-6-7 21:46
+
+
+ 本帖最后由 hulaoda007 于 2021-6-7 22:01 编辑 
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这四个臭男人在玩什么。
+
+  柴卡嫌光君太吵骂了光君无路赛，光君迅速道歉。
+
+
+  没注意到....都4W同接了。
+
+
+-----
+
+####  alcoholic1000  
+##### 1832#       发表于 2021-6-7 22:14
+
+
+伴随着chima恶魔人的歌声，看叶嗯混队友发表
+
+srr啊...毫无意外！早猜到了是did<img src="https://static.saraba1st.com/image/smiley/face2017/055.png" referrerpolicy="no-referrer">
+
+
+                                      
