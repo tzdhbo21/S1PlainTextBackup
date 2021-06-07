@@ -1,4 +1,4 @@
-> ## **本文件最后更新于2021-06-05 02:42** 
+> ## **本文件最后更新于2021-06-07 10:18** 
 
 
 
@@ -1366,7 +1366,7 @@ Twitter：[https://twitter.com/pavoliareine](https://twitter.com/pavoliareine)
 ##### 66#       发表于 2021-3-2 16:31
 
 
-<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_fo9ec" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
+<img src="https://pbs.twimg.com/media/EvdfK_NVkAMCQSu?format=jpg&amp;name=large" height="1066" id="aimg_R0M3M" onclick="zoom(this)" onmouseover="img_onmouseoverfunc(this)" style="cursor:pointer" width="800"/)
 [过于好看了](https://twitter.com/lizhi3/status/1366666174285508608?s=20)
 
 
@@ -9259,7 +9259,7 @@ Rigger HATE!</blockquote>
 
 
 bloop吗！<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">
-<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_ATMvU" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://p.sda1.dev/1/08fe1e7d38472a92222d23a91c4b11b1/Screenshot_2021-05-07_093745.JPG" id="aimg_A29mF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
 
 
 -----
@@ -13591,4 +13591,396 @@ Roboco-san had to call in the best.
 <img src="https://p.sda1.dev/2/a046b9b5ac0f7bd51d5f48034e1f42d8/IMG_CMP_158016700.jpeg" referrerpolicy="no-referrer">
 
 
-                   
+-----
+
+####  wiig  
+##### 903#       发表于 2021-6-5 06:53
+
+
+<img src="https://p.sda1.dev/2/7dd53461210dcdc633d0f3a0a6ce6c38/image0-1.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 904#       发表于 2021-6-5 06:56
+
+
+<img src="https://p.sda1.dev/2/79078a2b6ff3acba9795d75301662b6d/IMG_CMP_122743274.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 905#       发表于 2021-6-5 08:33
+
+
+因为网络连接问题和一些评论 calli把联动档隐藏了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smy20011  
+##### 906#         楼主| 发表于 2021-6-5 12:08
+
+
+<img src="https://img.saraba1st.com/forum/202106/05/120826f8ii6768pnfm6g0p.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>E2zVSRUVUAMR0oo.jpeg</strong> (140.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-5 12:08 上传
+
+
+婚鲨
+[https://twitter.com/amaki_2083/status/1399728100783452165](https://twitter.com/amaki_2083/status/1399728100783452165)
+
+
+-----
+
+####  wiig  
+##### 907#       发表于 2021-6-5 12:17
+
+
+ 本帖最后由 wiig 于 2021-6-5 18:40 编辑 
+
+“Blink if you give this movie a 10/10!”
+-Kiara
+<img src="https://p.sda1.dev/2/628463e4d8487c9ca575fbcedb44b522/1400981948793692162.gif" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/1f1f0db96245c9abbf9768813a97b7c8/1401109642839695362.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 908#       发表于 2021-6-5 12:24
+
+
+When Kiara plays slither io
+<img src="https://p.sda1.dev/2/588ed552b21a7312368806c1967aed86/20210605_121515.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 909#       发表于 2021-6-5 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51481046&amp;ptid=1989758" target="_blank">wiig 发表于 2021-6-5 08:33</a>
+因为网络连接问题和一些评论 calli把联动档隐藏了</blockquote>
+又放出来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 910#       发表于 2021-6-5 16:06
+
+
+<img src="https://p.sda1.dev/2/9b8d9886d1311d6e69595366a154fafa/IMG_CMP_170998669.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 911#       发表于 2021-6-5 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51482771&amp;ptid=1989758" target="_blank">wiig 发表于 2021-6-5 12:17</a>
+“Blink if you give this movie a 10/10!”
+-Kiara</blockquote>
+Ina after the end of Cats
+<img src="https://p.sda1.dev/2/c7fa125b86021945ad7ed41b1a250dfa/20210605_183852.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 912#       发表于 2021-6-5 18:47
+
+
+<img src="https://p.sda1.dev/2/b745d140603408f4d8f918515045e40b/IMG_CMP_12659687.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/7869ac4ed16769eead4475b48b95f615/20210605_184539.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 913#       发表于 2021-6-5 23:54
+
+
+|[ORIGINAL SONG] 失礼しますが、RIP♡ || “Excuse My Rudeness, But Could You Please RIP?” - Calliope Mori|
+
+20,023,407次观看
+
+
+-----
+
+####  smy20011  
+##### 914#         楼主| 发表于 2021-6-6 05:01
+
+
+Ame这10分钟一万，有点吓人
+
+
+-----
+
+####  wiig  
+##### 915#       发表于 2021-6-6 07:57
+
+
+全达成了
+
+
+-----
+
+####  smy20011  
+##### 916#         楼主| 发表于 2021-6-6 10:49
+
+
+Ame这动物园是Gym吧2333
+
+
+-----
+
+####  wiig  
+##### 917#       发表于 2021-6-6 12:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">$235,501.69
+
+
+-----
+
+####  wiig  
+##### 918#       发表于 2021-6-6 13:11
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/131100e9hse6q49tjlk99s.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (106.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 13:11 上传
+
+
+-----
+
+####  wiig  
+##### 919#       发表于 2021-6-6 13:11
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/131124j5bzxj6a07hpxhz8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (213.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 13:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/131131t1h7zr4x61ppxncy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (98.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 13:11 上传
+
+
+-----
+
+####  smy20011  
+##### 920#         楼主| 发表于 2021-6-6 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51492385&amp;ptid=1989758" target="_blank">wiig 发表于 2021-6-6 12:33</a>
+
+$235,501.69</blockquote>
+石油佬太可怕了
+
+
+-----
+
+####  PureIllusion  
+##### 921#       发表于 2021-6-6 13:57
+
+
+募捐235k刀，与此同时Reddit仍然叫她salty gremlin pervert
+
+从不看直播，甚至不看切片，硬要玩烂梗
+
+
+-----
+
+####  PureIllusion  
+##### 922#       发表于 2021-6-6 14:12
+
+
+ 本帖最后由 PureIllusion 于 2021-6-6 14:54 编辑 
+
+另外一边，做pop on rocks的那个HOLOBASS嗷地一声崩溃了。
+
+HOLOBASS前段时间把他做的Holo相关二创音乐发到Spotify上，但是被Cover给copyright strike了，联系无果。
+
+今天突然听说Ame在慈善直播上唱pop on rocks，被刺激到，发推暗示要copyright strike回去。
+
+现在已经删推删所有视频。另外建了个小号发疯，可能还没完 [https://twitter.com/HoloBass_EDM2](https://twitter.com/HoloBass_EDM2) 先默认是高仿钓鱼了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| wiig| + 1|好评加鹅|
+| 过不了审| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  smy20011  
+##### 923#         楼主| 发表于 2021-6-6 14:20
+
+
+<blockquote>PureIllusion 发表于 2021-6-6 14:12
+另外一边，做pop on rocks的那个HOLOBASS嗷地一声崩溃了。
+
+HOLOBASS前段时间把他做的Holo相关二创音乐发到S ...</blockquote>
+公约里面有写，streamer可以用二创直播的吧
+
+
+-----
+
+####  smy20011  
+##### 924#         楼主| 发表于 2021-6-6 14:22
+
+
+<blockquote>PureIllusion 发表于 2021-6-6 14:12
+另外一边，做pop on rocks的那个HOLOBASS嗷地一声崩溃了。
+
+HOLOBASS前段时间把他做的Holo相关二创音乐发到S ...</blockquote>
+这是4chan的高仿号吧
+
+
+-----
+
+####  kiriko  
+##### 925#       发表于 2021-6-6 14:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">刚才还在4CH看到讨论这个事情，怀疑这个小号是不是他的，过了一会串都被橄榄了。
+
+借楼问一下4ch删串是什么规则额，是report了之后管理员判断要不要删吗？
+
+
+-----
+
+####  PureIllusion  
+##### 926#       发表于 2021-6-6 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493228&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-6-6 14:22</a>
+
+这是4chan的高仿号吧</blockquote>
+很有可能，但是过于直球钓鱼了反而看不透（
+
+
+-----
+
+####  PureIllusion  
+##### 927#       发表于 2021-6-6 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493241&amp;ptid=1989758" target="_blank">kiriko 发表于 2021-6-6 14:23</a>
+
+刚才还在4CH看到讨论这个事情，怀疑这个小号是不是他的，过了一会串都被橄榄了。
+
+借楼问一下4ch删串 ...</blockquote>
+基本是这样
+
+
+-----
+
+####  wiig  
+##### 928#       发表于 2021-6-6 22:51
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/225058b45nzy53yodomcb3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (95.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 22:50 上传
+
+
+-----
+
+####  wiig  
+##### 929#       发表于 2021-6-6 23:29
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/232913iao7ynfoff5zoq9j.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (348.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 23:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/232921puehnyzam7gin7g1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (353.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 23:29 上传
+
+
+-----
+
+####  wiig  
+##### 930#       发表于 2021-6-6 23:29
+
+
+<img src="https://img.saraba1st.com/forum/202106/06/232950wfisfbwwqpq3bwzi.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (552.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-6 23:29 上传
+
+
+
+
+-----
+
+####  smy20011  
+##### 931#         楼主| 发表于 2021-6-7 09:48
+
+
+跟毒舌老外联动，4chan怎么也能炎上的？
+
+人均独角兽？
+
+
+                  
