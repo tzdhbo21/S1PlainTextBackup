@@ -75,11 +75,13 @@ def get_FileSize(filePath):
 
     return round(fsize, 2)
 
-def FormatStr(namelist, replylist):
+def FormatStr(namelist, replylist,totalreply):
     nametime = []
     replys = []
     times = []
     output= ''
+    replynumber = []
+    lastreply = totalreply
     for i in namelist:
         i = i = re.sub(r'[\r\n]',' ',str(i))
         nametime.append(re.sub(r'<.+?>','',i))
@@ -88,8 +90,12 @@ def FormatStr(namelist, replylist):
     for i in timestamp:
         i = re.sub(r'[\r\n]',' ',str(i))
         i = re.sub(r'电梯直达','1#',i)
-        i = re.search(r'\d+[\S\s]+发表于\s\d+-\d+-\d+\s\d+:\d+',i)
-        times.append(i.group(0))
+        j = re.search(r'\d+[\S\s]+发表于\s\d+-\d+-\d+\s\d+:\d+',i)
+        k = re.search(r'\d+',i)
+        #k = re.search(r'\d+', k.group(0))
+        #正则搜索返回的是正则match object
+        times.append(j.group(0))
+        replynumber.append(int(k.group(0)))
     for i in replylist:
         i = re.sub(r'\r','\n',str(i))
         # i = re.sub(r'\n\n','\n',i)
@@ -123,10 +129,12 @@ def FormatStr(namelist, replylist):
         i = re.sub(r'\[(.+?发表于.+?\d)\]\((http.+?)\)','<a href="http\\2" target="_blank">\\1</a>',i)
         replys.append(i)
     for i in range(len(replylist)):
-        output = output + '\n\n-----\n\n' +'#### '+str(names[i]) + '\n##### '+str(times[i]) + '\n'+str(replys[i] ) +'\n'
+        if(lastreply < replynumber[i]):
+            output = output + '\n\n-----\n\n' +'#### '+str(names[i]) + '\n##### '+str(times[i]) + '\n'+str(replys[i] ) +'\n'
     output = re.sub(r'\r','\n',output)
     output = re.sub(r'\n{4,}','\n\n\n', output)
-    return output
+    lastreply = replynumber[-1]
+    return output,lastreply
 
 if __name__ == '__main__':
     sys.stdout = io.TextIOWrapper(sys.stdout.buffer,encoding='utf8') #改变标准输出的默认编码
@@ -150,51 +158,60 @@ if __name__ == '__main__':
     for i in range(len(thdata)):
         if(thdata[i]['active']):
             ThreadID = thdata[i]['id']
-            lastpage = int(thdata[i]['totalpage'])
+            totalreply = int(thdata[i]['totalreply'])
+            titles = thdata[i]['title']
+            #if(lastreply%30):
+            #    lastpage = totalreply//30+1
+            #else:
+            #    lastpage = totalreply//30
+            lastpage = totalreply//30 #无论是否是第30*n层，都应该把整除30当成上次的页数
             RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-1-1.html'
             s1 = requests.get(RURL, headers=headers,  cookies=cookies)
             # s1 = requests.get(RURL, headers=headers)
             # s1.encoding='utf-8'
             data = s1.content
-            namelist, replylist,totalpage,titles= parse_html(data)
+            namelist, replylist,totalpage,newtitles= parse_html(data)
+            if(thdata[i]['title'] =='待更新'):
+                titles = newtitles
+            #采取增量更新后仅第一次更新标题
             if((int(time.time()) - thdata[i]['lastedit']) > 1296000 or totalpage == 1):
                 thdata[i]['active'] = False
                 filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+'【已归档】'+titles+'/'
                 mkdir(filedir)
                 with open((filedir+str(ThreadID)+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
                     f.write('1')
-            elif(totalpage > lastpage):
+            elif(totalpage >= lastpage):
                 if(totalpage > 50):
                     filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+titles+'/'
                     mkdir(filedir)
                 else:
                     filedir = rootdir+thdata[i]['category']+'/'
                 #为了确保刚好有50页时能及时重新下载而不是直接跳至51页开始
-                startpage = (lastpage-1)//50*50+1
+                #startpage = (lastpage-1)//50*50+1
                 ThreadContent = [' ']*50
                 PageCount = 0
                 # lastpages = '%02d' %math.ceil(lastpage/50)
                 # remov(filedir+str(ThreadID)+titles+'-'+str(lastpages)+'.md')
-                bar2 = Bar('No.'+str(i)+' Progress', max=(totalpage+1 - startpage))
-                for thread in range(startpage,totalpage+1):
+                bar2 = Bar('No.'+str(i)+' Progress', max=(totalpage+1 - lastpage))
+                for thread in range(lastpage+1,totalpage+1):
                     RURL = 'https://bbs.saraba1st.com/2b/thread-'+ThreadID+'-'+str(thread)+'-1.html'
                     # s1 = requests.get(RURL, headers=headers)
                     s1 = requests.get(RURL, headers=headers,  cookies=cookies)
                     data = s1.content
-                    namelist, replylist,totalpage,titles= parse_html(data)
-                    ThreadContent[PageCount] = FormatStr(namelist, replylist)
+                    namelist, replylist,totalpage,newtitles= parse_html(data)
+                    ThreadContent[PageCount],lastreply= FormatStr(namelist, replylist,totalreply)
                     PageCount = PageCount + 1
                     if(PageCount == 50 or thread == totalpage):
-                        lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
+                        #lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
+                        #增量更新不再创建时间戳
                         pages = '%02d' %math.ceil(thread/50)
                         filename = str(ThreadID)+'-'+str(pages)+titles+'.md'
-                        with open((filedir+filename).encode('utf-8'),'w',encoding='utf-8') as f:
-                            f.write('> ## **本文件最后更新于'+lastsave+'** \n\n')
+                        with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8') as f:
                             f.writelines(ThreadContent)
                         ThreadContent = [' ']*50
                         PageCount = 0
                     bar2.next()
-                thdata[i]['totalpage'] = totalpage
+                thdata[i]['totalreply'] = lastreply
                 thdata[i]['lastedit'] = int(time.time())
                 thdata[i]['title'] = titles
                 bar2.finish()

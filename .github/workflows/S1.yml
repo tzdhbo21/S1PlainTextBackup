@@ -7,7 +7,7 @@ on:
   push:
   schedule:
     # * is a special character in YAML so you have to quote this string
-    - cron:  '13,43 */1 * * *'  
+    - cron:  '7,22,37,52 */1 * * *'  
 jobs:
   deploy:
 
@@ -38,8 +38,6 @@ jobs:
         datime=$(date "+%Y年%m月%d日 %H:%M")
         echo "git commit: 上传于 $datime"
         if [ -n "$(git status -s)" ];then
-            git add RefreshingData.json
-            git commit -m "数据上传于 $datime"
             git add .
             git commit -m "上传于 $datime" -a
         fi

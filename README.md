@@ -13,14 +13,11 @@
 
 S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextGeneral
 
-## 全文搜索方式：
-点击左上角搜索框，输入想查找的文本，然后选中第一项"in this repository"，即可在本Repo内进行全文搜索。
-
 ## 2021-01-08 增加GithubAction支持
 
 #### 触发方式
 
-- 每隔半小时定时执行+推送后立即执行
+- 每隔15分钟定时执行+推送后立即执行
 
 - 自定义：.github/workflows/S1.yaml 编辑
 
@@ -42,11 +39,11 @@ S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextG
     - webp
 - 评分
 
- ### 脚本使用须知
+ ## 脚本使用须知
 
 - `RefreshingData.json`的数据格式（可用`simpleadd.py`快速添加）：
     - id：代表帖子id
-    - totalpage：新帖子为1
+    - totalreply：新帖子为0
     - title：代表帖子标题
     - lastedit：代表最后更新时间
     - category：代表放进哪个文件夹
@@ -61,3 +58,4 @@ S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextG
 - 如需要本地图文备份，请采用这个备份工具：[S1Downloader](https://github.com/shuangluoxss/Stage1st-downloader)
 - 代码写得很烂，还请多多包涵！如果有需要我保存的专楼，可以给我提issue或者在S1私信我。
 - 三号四号疫情专楼的备份来自于https://gitlab.com/memory-s1/virus 
+- 2021-06-08 更新方式改为增量更新，如遇S1炸了出现大量【已归档】[]文件，则需完全回退，或利用`sactive.py`重新激活。
