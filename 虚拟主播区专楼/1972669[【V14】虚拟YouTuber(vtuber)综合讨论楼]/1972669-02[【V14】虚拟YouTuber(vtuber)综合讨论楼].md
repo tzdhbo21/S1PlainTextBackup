@@ -4493,3 +4493,16 @@ wow……明天有预定播pso2ngs的吗
 
 
                                                  
+
+-----
+
+####  TiHaru  
+##### 1847#       发表于 2021-6-8 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51511316&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-8 03:48</a>
+郡道在3000同接的时候说500同接就好，500同接的时候也说500同接就好，可能500人就是退役陪酒女的上限了吧， ...</blockquote>
+真是陪酒女吗，我还以为是老师
+
+
+                                                 

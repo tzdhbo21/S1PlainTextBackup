@@ -2664,3 +2664,50 @@ AGE 这逼不是装到了，要不是年份长有爷爷级主角谁还记得它
 
 
                                                 
+
+-----
+
+####  acejoe  
+##### 1713#       发表于 2021-6-8 11:14
+
+
+京紫起码有细腻的文戏和帅帅的打戏，这只有帅帅的打戏。
+何况京紫还有爆炸的画面，vivy只有特殊的几个静止画面是爆炸的。
+
+
+-----
+
+####  zikimi  
+##### 1714#       发表于 2021-6-8 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51513858&amp;ptid=1982987" target="_blank">acejoe 发表于 2021-6-8 11:14</a>
+京紫起码有细腻的文戏和帅帅的打戏，这只有帅帅的打戏。
+何况京紫还有爆炸的画面，vivy只有特殊的几个静止 ...</blockquote>
+细腻的文戏？爆炸的画面？<img src="https://static.saraba1st.com/image/smiley/face2017/166.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MASKA-1  
+##### 1715#       发表于 2021-6-8 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51513163&amp;ptid=1982987" target="_blank">枪聆弹语 发表于 2021-6-8 10:24</a>
+
+战吧好像一有VIVY必有吹黑大战，泥哥那边和4S一样复读平稳落地欧美那边就是完完全全在走京紫 ...</blockquote>
+之前奇蛋到最后也是啊，乐的不行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  acejoe  
+##### 1716#       发表于 2021-6-8 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51514176&amp;ptid=1982987" target="_blank">zikimi 发表于 2021-6-8 11:38</a>
+细腻的文戏？爆炸的画面？</blockquote>
+剧作上问题有必要把其他都否定？
+
+
+                                                 
