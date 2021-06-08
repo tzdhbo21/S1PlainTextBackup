@@ -4699,3 +4699,95 @@ what are you implying</blockquote>
 
 
                                                 
+
+-----
+
+####  alcoholic1000  
+##### 1862#       发表于 2021-6-9 00:09
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-9 00:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51522049&amp;ptid=1972669" target="_blank">hulaoda007 发表于 2021-6-8 23:16</a>
+
+我自己更在意她说的身边有很多人有这类担忧，以及她说的做了手术的朋友是谁...（我一开始以为真白） ...</blockquote>
+性別は弦月[https://www.youtube.com/watch?v=SwNxkvZQpTA&amp;t=10976s](https://www.youtube.com/watch?v=SwNxkvZQpTA&amp;t=10976s)
+
+弦月藤士郎聊过很多性别认知的问题，在彩虹的性别设定也是「弦月」
+
+
+尾北ねむ（弦月）和高瀬七（メリッサ）同为音乐社团蛙目書店成员，尾北ねむ为社团和菅原圭个人都做过很多谱面化工作，灰中 空（メリッサ）在多年前就是尾北ねむ原创投稿的イラスト担当，也算得上友人...
+
+Syl，蛙目書店成员共3人，虽然尾北ねむ和高瀬七发vtuber相关内容比较少，第三位成员（男）可是老彩虹箱推了，去了线下活动还给兔头和黑黑画过Fanart<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+（另两位看平时配信内容，虹大概也没少追...）
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hulaoda007| + 1|ao的|
+
+
+查看全部评分
+
+
+-----
+
+####  hulaoda007  
+##### 1863#       发表于 2021-6-9 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51522821&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-6-9 00:09</a>
+
+性別は弦月https://www.youtube.com/watch?v=SwNxkvZQpTA&amp;t=10976s
+
+弦月藤士郎聊过很多性别认知的问题，在 ...</blockquote>
+  所以是弦月，才是想剪掉小那啥的那个...？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|没说是他！！！|
+
+
+查看全部评分
+
+
+-----
+
+####  poipanchao  
+##### 1864#       发表于 2021-6-9 00:52
+
+
+玩这么大？？
+
+
+话说为啥bora和噗提就形同陌路了呢
+
+交际圈基本一样，就是老死不相往来
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 1865#       发表于 2021-6-9 01:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 可能是首尔民和釜山民互相看不上吧
+
+
+                                                 
