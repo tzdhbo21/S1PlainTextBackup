@@ -2805,3 +2805,18 @@ b站9.9，bangumi7.7，有消息灵通的懂哥说说是不是又是环s1好评�
 
 
                                                  
+
+-----
+
+####  fantuanxiaoyi  
+##### 1724#       发表于 2021-6-8 16:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">哈哈。
+
+其实这片的打斗作画和每集有几卡真的有攻壳机动队级别的感觉。
+
+如果说这都不如京紫，那这水平也就只能欣赏京紫了。
+
+
+                                                 
