@@ -10559,3 +10559,31 @@ https://nyaa.si/?f=0&amp;c=0_0&amp;q=Godzilla </blockquote>
 
 
                                                  
+
+-----
+
+####  C男人  
+##### 826#       发表于 2021-6-8 18:44
+
+
+化27年把特异点拉上来什么的……
+
+
+直接把研究设施健在地下不行吗？
+
+
+徒步都能走到，看上去也不是很深啊。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ultraseven  
+##### 827#       发表于 2021-6-8 19:29
+
+
+李博士还是死在第九集了吗？总感觉剧情之间有断点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

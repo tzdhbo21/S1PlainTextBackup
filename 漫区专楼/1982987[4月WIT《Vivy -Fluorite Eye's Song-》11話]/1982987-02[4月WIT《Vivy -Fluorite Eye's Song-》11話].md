@@ -2820,3 +2820,37 @@ b站9.9，bangumi7.7，有消息灵通的懂哥说说是不是又是环s1好评�
 
 
                                                  
+
+-----
+
+####  ayanamilin  
+##### 1725#       发表于 2021-6-8 17:15
+
+
+人家谈剧情你非要谈作画<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  shimmy1996  
+##### 1726#       发表于 2021-6-8 17:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51515654&amp;ptid=1982987" target="_blank">werkeytom 发表于 2021-6-8 13:53</a>
+咦，那#36提到的制片人先找梅原，梅原再找长月是什么情况？</blockquote>
+啊是我听岔了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">对应该是梅原找的長月
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 1727#       发表于 2021-6-8 19:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看吧我就说很多人有没来由的敌意
+vivy这人设作为美少女动画应该算简单偏素为动作戏优化过的，平时不好看但是又想卖美少女于是每集搞几个特写，但是每次特写都是各种角度大头照这点就不是很好了
+
+
+                                                 

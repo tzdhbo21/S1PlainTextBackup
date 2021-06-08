@@ -2803,3 +2803,63 @@ LIVE那天临时有事去不了 现在感觉就是白嫖了VIP套票 血赚<img 
 
 
                                                 
+
+-----
+
+####  hwlzdjbrs  
+##### 16742#       发表于 2021-6-8 17:50
+
+
+线上只有买票的才有吧 BLS打钱白嫖的票是没送吧
+
+
+-----
+
+####  黒長直姫  
+##### 16743#       发表于 2021-6-8 18:30
+
+
+对 赠送票是没有的
+
+
+-----
+
+####  Klience  
+##### 16744#       发表于 2021-6-8 19:30
+
+
+臭女人又去撩妹是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16745#       发表于 2021-6-8 19:30
+
+
+ 本帖最后由 T_Hb 于 2021-6-8 19:32 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/08/193048spz6leibko9i20bg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (25.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-8 19:30 上传
+
+
+梦幻联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">  日本妹妹怎么都是起手就道歉剑法啊
+
+
+-----
+
+####  A2014720  
+##### 16746#       发表于 2021-6-8 19:32
+
+
+大胆怀疑这人就是小麻的神必朋友<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
