@@ -9887,3 +9887,162 @@ f0Q2o-jpd3ZcT3cSsg-ld.jpg
 
 
                      
+
+-----
+
+####  qixinno2  
+##### 78845#       发表于 2021-6-3 16:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正出啥对我来说都没用 毕竟我只有3个石头了
+
+
+-----
+
+####  khxooo  
+##### 78846#       发表于 2021-6-3 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51462474&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-3 16:22</a>
+反正出啥对我来说都没用 毕竟我只有3个石头了</blockquote>
+38节，38颗石头哦<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78847#       发表于 2021-6-3 18:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还想在看边嘉年华 结果发现b站的视频全被删了。 mdzz
+
+
+-----
+
+####  qixinno2  
+##### 78848#       发表于 2021-6-3 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51463858&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-3 18:38</a>
+
+还想在看边嘉年华 结果发现b站的视频全被删了。 mdzz</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">A站能看
+
+
+-----
+
+####  qixinno2  
+##### 78849#       发表于 2021-6-3 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51463750&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-6-3 18:26</a>
+
+38节，38颗石头哦</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我只看到了全是绿方块的未来
+
+
+-----
+
+####  里村紅葉  
+##### 78850#       发表于 2021-6-3 19:49
+
+
+我一直以为38节是三八妇女节的意思，想了半天跟FGO有啥关系<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78851#       发表于 2021-6-3 20:40
+
+
+<blockquote>khxooo 发表于 2021-6-3 18:26
+38节，38颗石头哦</blockquote>
+难道不是37个石头一个圣杯？算了石头本体都是绿方块，这并不重要233
+
+
+-----
+
+####  白夜羽  
+##### 78852#       发表于 2021-6-3 21:10
+
+
+草，我也纳闷了半天38节跟肥狗有个锤子关系<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78853#       发表于 2021-6-3 22:35
+
+
+ova好像都没什么新剧情，只是动起来，还不如官漫有趣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 78854#       发表于 2021-6-4 11:13
+
+
+ 本帖最后由 zakki 于 2021-6-4 11:14 编辑 
+
+目前根据剧透来看没啥爆点啊，没兽，没冠位，没加拉哈德，没新御主礼装，没pv蝴蝶女，没爱歌旧剑，敌人只是异闻带王，像是又回到2.0前三章的感觉一样，又绕回圆桌感觉格局小了不少，不过38节还是期待下意外惊喜吧，最期待的还是2.7，最神秘的戴比特，大蜘蛛，冠位狂
+
+
+-----
+
+####  UNISONIA  
+##### 78855#       发表于 2021-6-4 13:49
+
+
+ 本帖最后由 UNISONIA 于 2021-6-4 18:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51470179&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-4 11:13</a>
+
+目前根据剧透来看没啥爆点啊，没兽，没冠位，没加拉哈德，没新御主礼装，没pv蝴蝶女，没爱歌旧剑，敌人只是 ...</blockquote>
+蝴蝶女=女王マブ
+
+
+虽然我不知道为什么要用マブ，但是阎魔亭给的提示又确实是マブ（副本的名字“マブと雪の女王”）
+
+
+-----
+
+####  khxooo  
+##### 78856#       发表于 2021-6-4 15:11
+
+
+草，11号要参加防疫工作，不能第一时间打2.6<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 78857#       发表于 2021-6-4 23:54
+
+
+ 本帖最后由 zakki 于 2021-6-4 23:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51472297&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-6-4 13:49</a>
+蝴蝶女=女王マブ
+
+
+虽然我不知道为什么要用マブ，但是阎魔亭给的提示又确实是マブ（副本的名字“マブと雪の ...</blockquote>
+也就是说尺阶那个就是蝴蝶女？没看出来和梅芙哪里像。。刚出的一开始都在往摩根和爱歌那想吧
+
+
+-----
+
+####  UNISONIA  
+##### 78858#       发表于 2021-6-5 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51479490&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-4 23:54</a>
+
+也就是说尺阶那个就是蝴蝶女？</blockquote>
+莎翁创作里的妖精女王有麦布（罗朱）和泰妲尼亚（仲夏夜之梦），麦布是来源于梅芙，泰妲尼亚是来源于罗马系（有时也和Diana同一视）
+
+
+C呆语音里给过梅芙的提示（对Rider梅芙语音），情人节的时候也提了一嘴梅芙墓所在的Knocknarea山了，这蝴蝶女PV中因为光源看不出来的发色怕是淡粉的
+
+
+                                                 

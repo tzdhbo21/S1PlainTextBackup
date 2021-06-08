@@ -1461,3 +1461,180 @@ Cache_7b23838ee2e3acc..jpg
 
 
                                              
+
+-----
+
+####  TiHaru  
+##### 6122#       发表于 2021-6-6 17:40
+
+
+动了动了动了
+
+
+-----
+
+####  星の守  
+##### 6123#       发表于 2021-6-6 17:53
+
+
+終於捨得回來啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wuliaozheX  
+##### 6124#       发表于 2021-6-6 19:07
+
+
+<img src="https://p.sda1.dev/2/edf78c4c1dacc1d1d27634418adc77f9/IMG_CMP_212038407.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI TEL-AN00a, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  面具13  
+##### 6125#       发表于 2021-6-6 22:04
+
+
+周一晚上9点啊，还行，有空。下周适当摸一摸问题也不大，再往后一周开始我才能多点时间看直播/录播。
+
+
+才暂停直播半个多月，洒洒水啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 6126#       发表于 2021-6-7 17:50
+
+
+复活千踩是第一次吗？感觉以后抗压要变成日課了啊
+
+
+-----
+
+####  星の守  
+##### 6127#       发表于 2021-6-7 18:00
+
+
+抗壓是大主播的必經之路，小洋葱是該好好學學了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 6128#       发表于 2021-6-7 18:43
+
+
+算不错了吧，上一个理anti的千寻可比这惨多了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Maonpuyo  
+##### 6129#       发表于 2021-6-7 18:48
+
+
+ 本帖最后由 Maonpuyo 于 2021-6-7 18:51 编辑 
+
+复归千踩又不是第一次，都是周播主播，哦不，周播爱抖露了还在意这种吗
+
+
+-----
+
+####  ylssb10438  
+##### 6130#       发表于 2021-6-7 18:52
+
+
+踩能干嘛，能吃吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 6131#       发表于 2021-6-7 19:27
+
+
+终于舔到红牛了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 6132#       发表于 2021-6-7 20:06
+
+
+看来心情不错
+
+
+-----
+
+####  面具13  
+##### 6133#       发表于 2021-6-7 20:11
+
+
+这嗓音，感觉是没听过的新人主播啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fangjun96  
+##### 6134#       发表于 2021-6-7 20:20
+
+
+复活千踩，应该是和大家庭撞了吧，嘛，反正逃不掉的。
+
+恭喜复活<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6135#       发表于 2021-6-7 20:22
+
+
+哭腔？还是鼻炎？
+
+
+-----
+
+####  面具13  
+##### 6136#       发表于 2021-6-7 20:36
+
+
+mio大明神的塔罗牌心理辅导
+
+
+-----
+
+####  Kanchiki  
+##### 6137#       发表于 2021-6-7 20:59
+
+
+唱得什么JB
+
+不过够蠢 还行
+
+
+-----
+
+####  梅斯之围  
+##### 6138#       发表于 2021-6-7 21:10
+
+
+定番
+
+
+-----
+
+####  面具13  
+##### 6139#       发表于 2021-6-7 21:24
+
+
+明天去医院，回来有直播，是这样吗？
+
+
+                                                 

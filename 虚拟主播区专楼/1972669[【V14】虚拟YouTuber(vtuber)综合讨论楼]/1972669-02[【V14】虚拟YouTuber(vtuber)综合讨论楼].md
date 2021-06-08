@@ -4328,3 +4328,168 @@ srr啊...毫无意外！早猜到了是did<img src="https://static.saraba1st.com
 
 
                                       
+
+-----
+
+####  IDIDIDID  
+##### 1833#       发表于 2021-6-7 22:18
+
+
+【WoW: Burning Crusade】Nostalgic BLISS AAAAAAAAH #kfp #キアライブ
+[https://www.youtube.com/watch?v=XmaS8mKav0A](https://www.youtube.com/watch?v=XmaS8mKav0A)
+
+
+希望能在管人里流行起来
+
+
+-----
+
+####  poipanchao  
+##### 1834#       发表于 2021-6-7 22:22
+
+
+什么鬼，点进去一看TBC怀旧服
+
+
+-----
+
+####  ヒトニナル  
+##### 1835#       发表于 2021-6-7 22:29
+
+
+那可是最火最in的nkodice啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">just OCHINCHIN.
+
+
+-----
+
+####  alcoholic1000  
+##### 1836#       发表于 2021-6-7 22:55
+
+
+Bsyl，星川的 [アーカイブ無！50万人いったら初めて○○します【にじさんじ】](https://www.youtube.com/watch?v=DIYgezQySNo)
+
+发了英语版的！！！[KING](https://www.youtube.com/watch?v=rBnTj-A182U)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 1837#       发表于 2021-6-7 23:02
+
+
+虹女未来之星还有一个实力又强又能整活白皮粉多还舍得酬勤的chima，就是起点低了点还要慢慢追前面躺平的前辈。田角要是没瞎就多给点资源吧。
+
+
+-----
+
+####  qq845629713  
+##### 1838#       发表于 2021-6-7 23:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 田角拍了拍chima，“未来可期”
+
+
+转头继续推金银铜三角，我看这下一波第二套3D就是金银铜三角了，电竞boy黑黑继续穿睡衣拖鞋打apex吧，
+
+
+-----
+
+####  SuntoryNomu  
+##### 1839#       发表于 2021-6-7 23:07
+
+
+ 本帖最后由 SuntoryNomu 于 2021-6-7 23:14 编辑 
+
+EN正统在本社。
+
+KING (English Cover) / 星川サラ
+
+[https://youtu.be/rBnTj-A182U](https://youtu.be/rBnTj-A182U)
+
+
+图不错，
+
+
+<img src="https://img.saraba1st.com/forum/202106/07/231433fjwmjmemmwwwjt0w.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E3QQ7ypX0AMyotl.jpg</strong> (368.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-7 23:14 上传
+
+
+还有个差分。
+[https://twitter.com/panpukinsupa/status/1401763811099545600](https://twitter.com/panpukinsupa/status/1401763811099545600)
+
+
+-----
+
+####  hulaoda007  
+##### 1840#       发表于 2021-6-7 23:22
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">这才是我作为观众想看的直播啊...
+
+  柴柴，光君，无袖，死宅君...带我走吧...
+
+
+-----
+
+####  gaiadc  
+##### 1841#       发表于 2021-6-7 23:31
+
+
+Chima是哪个Chima？唱歌好听的那个一年只播不到200个小时，直播时长全彩虹倒数
+
+
+-----
+
+####  FCCHua  
+##### 1842#       发表于 2021-6-7 23:47
+
+
+不要对大学生（之前还是高中生)的时长要求太高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 1843#       发表于 2021-6-8 00:11
+
+
+chima是真的从你虹内卷地狱里恰到en流量爬出来的，值得其他liver好好学习。
+
+
+-----
+
+####  rzrbtk  
+##### 1844#       发表于 2021-6-8 03:48
+
+
+郡道在3000同接的时候说500同接就好，500同接的时候也说500同接就好，可能500人就是退役陪酒女的上限了吧，有自知之明也是好事。
+
+
+-----
+
+####  kangkangsama  
+##### 1845#       发表于 2021-6-8 04:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51511316&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-8 03:48</a>
+
+郡道在3000同接的时候说500同接就好，500同接的时候也说500同接就好，可能500人就是退役陪酒女的上限了吧， ...</blockquote>
+这杂谈听着听着就开始心疼郡gachi了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 1846#       发表于 2021-6-8 08:59
+
+
+wow……明天有预定播pso2ngs的吗
+
+
+                                                 

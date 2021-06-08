@@ -13984,3 +13984,84 @@ HOLOBASS前段时间把他做的Holo相关二创音乐发到S ...</blockquote>
 
 
                   
+
+-----
+
+####  wiig  
+##### 932#       发表于 2021-6-7 12:45
+
+
+<img src="https://p.sda1.dev/2/01851e523d9d4c7f17534d15983d2acb/IMG_CMP_247485175.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PureIllusion  
+##### 933#       发表于 2021-6-7 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51500962&amp;ptid=1989758" target="_blank">smy20011 发表于 2021-6-7 09:48</a>
+
+跟毒舌老外联动，4chan怎么也能炎上的？
+
+人均独角兽？</blockquote>
+这有一个稍微克制一点的批评帖可以先看看
+[https://warosu.org/vt/thread/S4682857#p4683441](https://warosu.org/vt/thread/S4682857#p4683441)
+
+
+Basically, 4chan hates anitubers and e-celebs。我只见过两个anituber是4chan普遍认可的（DEMOLITION和GrumpyJiisan）。但是应该说这次跟Gigguk关系不大。
+
+
+这事儿不是针对个人的独角兽，是针对holo的，毕竟之前跟Stars那边也有联动过，多少筛过一波了。/hlgg/不少人不太欢迎holo外部的联动，尤其Gigguk这种连v都不是的网红，特别TrashTaste那伙人里的Connor之前跟holoID那边还有些事情招人恨。
+
+
+有些人认为Mori在联动尤其是1对1联动中一直表现很差，经常有人调侃“Mori ruined another collab”。之前在意的人不多，大家也知道她很忙，她逊炮也很有意思，看她逐步改善也是看点。
+
+前几天那次跟Gura的联动算是导火索吧，前期准备不足，被批评得很重，自己先私享后删了前边部分内容关评论才放出来。
+
+有一个关于这方面的copypasta黑帖
+[https://warosu.org/vt/thread/S4709234#p4712101](https://warosu.org/vt/thread/S4709234#p4712101)
+
+
+然后到了这次Gigguk联动，Mori表现很好，就让一些人心理不平衡，/hlgg/当时有人发了个红SC：“I whis you were this enthusiastic when you collab with your genmates and senpai”，代表了一些人的意见。这个SC很快被删了。
+
+
+/hlgg/人多口杂，很多讨论都是积聚很久能量的，还有很多是anti浑水摸鱼，三言两语说不全面，仅供参考。以上不代表我的看法，我都是云的。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+| wiig| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  smy20011  
+##### 934#         楼主| 发表于 2021-6-8 00:21
+
+
+昨天那个鲨鱼梗王火柴人游戏推荐补一下，笑死了
+
+
+-----
+
+####  smy20011  
+##### 935#         楼主| 发表于 2021-6-8 00:55
+
+
+ID版Holo摇
+[https://www.youtube.com/watch?v=eJjz3owWnbU](https://www.youtube.com/watch?v=eJjz3owWnbU)
+
+
+                                                 

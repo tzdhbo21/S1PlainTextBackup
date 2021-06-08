@@ -2313,3 +2313,354 @@ AGE 这逼不是装到了，要不是年份长有爷爷级主角谁还记得它
 
 
                                            
+
+-----
+
+####  shimmy1996  
+##### 1684#       发表于 2021-6-7 18:28
+
+
+ 本帖最后由 shimmy1996 于 2021-6-7 18:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51505586&amp;ptid=1982987" target="_blank">白白白 发表于 2021-6-7 16:32</a>
+
+所以又一部原创翻车了吗？之前看到第二集女主救**那里，我的相互理解ptsd发作，瞬间就不想看了，本 ...</blockquote>
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得直到第10话都还挺不错的，可以补。11话节奏有点迷，看看结尾能不能写好（目前不排除有巨大vivy/松本上宇宙的可能性<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+经费很足，楼里说的“逻辑/设定硬伤”时常会在下一话里被官方超精准吐槽修正这一点有些不可思议<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pzk  
+##### 1685#       发表于 2021-6-7 18:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51505586&amp;ptid=1982987" target="_blank">白白白 发表于 2021-6-7 16:32</a>
+
+所以又一部原创翻车了吗？之前看到第二集女主救**那里，我的相互理解ptsd发作，瞬间就不想看了，本 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/183.png" referrerpolicy="no-referrer">说明你的烂片雷达非常精准，vivy前几集就能很明显看出烂片气息，不需要补
+
+
+-----
+
+####  a12885084  
+##### 1686#       发表于 2021-6-7 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51505586&amp;ptid=1982987" target="_blank">白白白 发表于 2021-6-7 16:32</a>
+
+所以又一部原创翻车了吗？之前看到第二集女主救**那里，我的相互理解ptsd发作，瞬间就不想看了，本 ...</blockquote>
+这片子现在就两个问题：
+
+第一个是他写的都是单元剧，你在单元剧内看着基本没问题，但是他又非要给单元剧套一个什么百年之旅、奇点计划、智械危机的主线，一旦你把这些单元剧的剧情穿起来，这个主线变得支离破碎
+
+具体观感体现在男主高智商人设崩完了，以及一百年前用逻辑子弹，一百年后反而用普通子弹这些地方。
+
+
+第二个是他的AI/使命设定就是摆设，今天要说AI被抓了就说AI不能复制，明天要复活角色了就说可以备份还原，今天要讲AI的历史了就说只能一个使命，明天要塑造角色了就不管使命了，后天又弄出来夺舍和双使命，一会儿说能改一会儿说不能改，等等等等。
+
+这玩意倒不是什么“逻辑硬伤”，他是根本就是一个框，想要什么就往里装，不想要就当不存在，但偏偏每话都要提这个设定。反正我看着比较恼火。
+
+
+-----
+
+####  佳奈助  
+##### 1687#       发表于 2021-6-7 20:33
+
+
+吹剧情可以吹taxi，吹演出可以吹86，这设定稀碎是怎么被吹起来的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 1688#       发表于 2021-6-7 20:35
+
+
+<blockquote>水宝宝 发表于 2021-6-7 17:14
+目前为止的剧情让我觉得底特律的剧情好像也没那么糟</blockquote>
+说不定马上就复刻马库斯在枪炮中带领AI唱歌博取人类同情快步走向和谐共处了
+
+
+-----
+
+####  selain.meneth  
+##### 1689#       发表于 2021-6-7 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51505586&amp;ptid=1982987" target="_blank">白白白 发表于 2021-6-7 16:32</a>
+
+所以又一部原创翻车了吗？之前看到第二集女主救**那里，我的相互理解ptsd发作，瞬间就不想看了，本 ...</blockquote>
+等战斗场面剪辑就行了<img src="https://static.saraba1st.com/image/smiley/carton2017/243.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ipcjs  
+##### 1690#       发表于 2021-6-7 21:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51504657&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-6-7 15:09</a>
+这位自我意识就是比较过剩
+
+同样的图她推上发的无水印，微博发的有水印
+
+底下有评论：好喜欢这种感觉！之前都 ...</blockquote>
+水印不是微博加的吗？这还怪发图的人？<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  zero_death  
+##### 1691#       发表于 2021-6-7 21:50
+
+
+事实证明只要剧情不喂肉眼可见的shi 一般萌二感知最强的还是制作<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这片被吹原因和京紫差不多吧
+
+
+-----
+
+####  巨馍蘸酱  
+##### 1692#       发表于 2021-6-7 21:54
+
+
+我记得第三特异点的时候争论就挺多的，主要就是质疑非得把格蕾丝拉去当核心的合理性，我就是在那时感觉到不太妙的。但是这集制作质量很高，所以轻度观众反倒都是在吹这集神回
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 1693#       发表于 2021-6-7 22:02
+
+
+如果泥潭婆罗门能够摒除心里那股对京紫没来由的敌意，就会发觉它的剧情结构是很扎实的(注意是大纲，具体的单集细节有些地方还是欠妥的)，而vivy就是典型的根基不牢地动山摇
+现在业界能把一个故事有头有尾地讲完的不多了
+
+
+-----
+
+####  acejoe  
+##### 1694#       发表于 2021-6-7 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51509051&amp;ptid=1982987" target="_blank">mqnwbeebwnqm 发表于 2021-6-7 22:02</a>
+如果泥潭婆罗门能够摒除心里那股对京紫没来由的敌意，就会发觉它的剧情结构是很扎实的(注意是大纲，具体的 ...</blockquote>
+什么叫扎实的大纲？
+
+
+-----
+
+####  言酱啊啊啊  
+##### 1695#       发表于 2021-6-7 22:04
+
+
+等等这是staff表里那个作监（还是演出来着？）洪佩妮吗？不过画画的说不在意剧情评价，不就是知道剧情不太行的意思嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  regular  
+##### 1696#       发表于 2021-6-7 22:09
+
+
+前两个单元正经还可以的，第三个还是同一节奏的单元就麻了，
+
+
+我当初是希望在这里超展开的，结果就这么一路水下来了，
+
+
+结局多半就是随便打打就完了。
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 1697#       发表于 2021-6-7 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51509078&amp;ptid=1982987" target="_blank">acejoe 发表于 2021-6-7 22:04</a>
+什么叫扎实的大纲？</blockquote>
+我都不想展开说，泥潭婆罗门看的京紫和我看的京紫仿佛不是一部片
+不过看这季圣女都把玛丽苏写名字上了反而没什么人说，就很有趣
+
+
+-----
+
+####  JustW  
+##### 1698#       发表于 2021-6-7 22:22
+
+
+京紫前面无聊不无聊对我都无所谓，后面跑到战场开无双实在太草了
+
+
+-----
+
+####  liy41  
+##### 1699#       发表于 2021-6-7 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51506032&amp;ptid=1982987" target="_blank">水宝宝 发表于 2021-6-7 17:14</a>
+
+目前为止的剧情让我觉得底特律的剧情好像也没那么糟</blockquote>
+黑特绿：变尬，
+
+只是强行往黑命贵方向写，所以七扭八歪，让人觉得恶心<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+其实本体还是可以的
+
+
+-----
+
+####  余情自取  
+##### 1700#       发表于 2021-6-8 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51510043&amp;ptid=1982987" target="_blank">liy41 发表于 2021-6-7 23:54</a>
+黑特绿：变尬，
+
+只是强行往黑命贵方向写，所以七扭八歪，让人觉得恶心</blockquote>
+黑命贵不至于吧，不如说卡拉线卢瑟几乎是必死的这点倒还蛮寻味的
+
+
+-----
+
+####  亚瑟邓特  
+##### 1701#       发表于 2021-6-8 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51509297&amp;ptid=1982987" target="_blank">JustW 发表于 2021-6-7 22:22</a>
+京紫前面无聊不无聊对我都无所谓，后面跑到战场开无双实在太草了</blockquote>
+原作是个超级玛丽苏，动画一改降了不少武力值就显得不伦不类。
+太子换我狂战斧紫薇！
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  ipcjs  
+##### 1702#       发表于 2021-6-8 02:03
+
+
+这种多人合作的作品就是容易出前言不搭后语的毛病，不知道制作组找长月达平这个拖油瓶来是啥脑回路<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  acejoe  
+##### 1703#       发表于 2021-6-8 08:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51510965&amp;ptid=1982987" target="_blank">ipcjs 发表于 2021-6-8 02:03</a>
+这种多人合作的作品就是容易出前言不搭后语的毛病，不知道制作组找长月达平这个拖油瓶来是啥脑回路
+ ...</blockquote>
+我怎么记得楼前面说，这就是别人找长月达平起头制作。
+
+
+-----
+
+####  shimmy1996  
+##### 1704#       发表于 2021-6-8 08:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51511879&amp;ptid=1982987" target="_blank">acejoe 发表于 2021-6-8 08:28</a>
+我怎么记得楼前面说，这就是别人找长月达平起头制作。</blockquote>
+上周广播说是長月开头然后把梅原拉（骗）过来的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+其他还提到一开始创作动机就是想围绕ai 和歌姬两个概念写故事。废案里有过一个版本是vivy坐着由松本当导航的飞船造访不同星球（然后因为设定不同星球太麻烦全放到地球上了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+小说版全四卷似乎会有不一样的展开/结局
+
+
+-----
+
+####  shimmy1996  
+##### 1705#       发表于 2021-6-8 08:54
+
+
+动画四个奇异点提到是两人轮流负责，長月写sunrise梅原写metal float。结局部分两人有共同讨论
+感觉确实反而是梅原写的13奇异点好一些，24比起来超展开得有点多<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  别叫我宅男  
+##### 1706#       发表于 2021-6-8 09:17
+
+
+我烂片雷达第一集就响了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">她太美了
+
+
+-----
+
+####  lyz1196  
+##### 1707#       发表于 2021-6-8 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51506315&amp;ptid=1982987" target="_blank">chiefshi 发表于 2021-6-7 17:43</a>
+
+要是水枪互滋改成重武器观感会不会好点</blockquote>
+有意思的是，第六集还各种饱和式攻击呢，到了11集反而退步了，这些年都白过了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 1708#       发表于 2021-6-8 09:39
+
+
+下一集，下一集一定翻盘！
+
+
+-----
+
+####  nerugigannte  
+##### 1709#       发表于 2021-6-8 09:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b站9.9，bangumi7.7，有消息灵通的懂哥说说是不是又是环s1好评如潮啊
+
+
+-----
+
+####  asda  
+##### 1710#       发表于 2021-6-8 09:46
+
+
+<blockquote>JustW 发表于 2021-6-7 22:22
+京紫前面无聊不无聊对我都无所谓，后面跑到战场开无双实在太草了</blockquote>
+看先导PV那个大斧，我本来就是想看紫微无双的，结果那斧竟然从不出现
+
+
+
+
+-----
+
+####  酥蕤  
+##### 1711#       发表于 2021-6-8 10:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51509078&amp;ptid=1982987" target="_blank">acejoe 发表于 2021-6-7 22:04</a>
+什么叫扎实的大纲？</blockquote>
+扎实的大纲：剧情主线简单
+设定稀碎：细节略微欠妥，根基不牢地动山摇，这咋吹的我有点理解不到了
+
+
+-----
+
+####  枪聆弹语  
+##### 1712#       发表于 2021-6-8 10:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧美那边就是完完全全在走京紫那条老路
+
+
+                                                

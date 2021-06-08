@@ -8338,3 +8338,190 @@ https://b23.tv/ntC1as</blockquote>
 
 
                              
+
+-----
+
+####  木瓜奶五元  
+##### 603#       发表于 2021-6-5 00:42
+
+
+今天刚收到，手上的XZP终于可以功成身退。
+
+
+拿到第一天都是各种把玩啊装app啊充电啊啥的，所以发热也是正常情况没啥好说的，跟以前用过的手机比也没觉得特别热。
+
+晚上折腾完了玩了会Immortal，也就42度的样子，还好吧。一旦熄屏凉得倒是飞快。
+
+其余负荷不高的游戏只是略微温热，普通app应用基本没感觉。
+
+
+拍照大有进步，不过老婆对比了下表示更喜欢她的12pro拍照的色调。
+
+打开相机之后芯片位置马上能感觉到持续升温，持续开了两分钟，体感（我没测温枪）大概保持在40度的样子；然后关了相机几分钟就凉了。
+
+
+另外有一点值得一提的就是：1iii的发热中心点在机身上半截，而因为机身长，手持位置其实是在下半截。所以除非横屏，否则手持位置其实会比SOC温度更低一些。
+
+
+总而言之，就是没觉得发热有什么特别夸张。不过别说我安利，别人买不买关我屁事。
+
+
+-----
+
+####  Cray  
+##### 604#       发表于 2021-6-5 04:44
+
+
+ 本帖最后由 Cray 于 2021-6-5 05:06 编辑 
+<blockquote>引用第599楼我很费纸于2021-06-04 22:59发表的  :
+
+引用:Cray 发表于 2021-6-4 00:30我感觉是和845 865没啥区别 都热你不要光看......</blockquote>还要考虑低负载的嘛
+
+865之前的用户换完全没问题的啦
+
+再怎么关核降频性能还是要好
+
+为了新特性还是值得上888的
+
+
+其实最好还是上背夹扇吧 …
+
+我在家里挂机刷都放机箱上面用顶部风扇吹超好用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+865玩粥游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/05/050618wwz44g8wtdq0ads2.png" referrerpolicy="no-referrer">
+
+
+<strong>20210605044826.png</strong> (56.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-5 05:06 上传
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  jzsgtx  
+##### 605#       发表于 2021-6-5 12:41
+
+
+店里看了下实机，只有紫色的一台，黑色灰色模型都没<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Lightning2  
+##### 606#       发表于 2021-6-5 15:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51460240&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-6-3 13:00</a>
+
+一个思路给你验证一下，游戏增强器的bug会导致这个问题。
+
+
+可能是因为你刚打开游戏，游戏增强器里勾选了H ...</blockquote>
+找不到原因。因为玩的就普通舟游fgo这类，游戏增强器对我没用，都习惯直接关闭掉它，不启用游戏增强器的，现在还是有这个问题。手动将游戏和游戏增强器强制停止都不行，有时还是会显示慢速充电。暂时只能重启解决，那估计还是哪个程序有冲突了
+
+
+-----
+
+####  我很费纸  
+##### 607#       发表于 2021-6-5 15:21
+
+
+ 本帖最后由 我很费纸 于 2021-6-5 15:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51480606&amp;ptid=1985265" target="_blank">Cray 发表于 2021-6-5 04:44</a>
+还要考虑低负载的嘛
+
+865之前的用户换完全没问题的啦
+
+再怎么关核降频性能还是要好</blockquote>
+周游不行，建议唯一指定跑分软件原神<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+每次我手机打原神，开着半导体散热背夹，大核都能热到降频，这还是Android 11稍微修正过CPU调度bug后的结果
+
+破游戏对CPU的压力比跑分软件还好使
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  我很费纸  
+##### 608#       发表于 2021-6-5 15:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51484229&amp;ptid=1985265" target="_blank">Lightning2 发表于 2021-6-5 15:17</a>
+找不到原因。因为玩的就普通舟游fgo这类，游戏增强器对我没用，都习惯直接关闭掉它，不启用游戏增强器的 ...</blockquote>
+也有可能是充电器协议支持的问题？确实有点疑难杂症，可以试试看再借几个pd头看看效果
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cray  
+##### 609#       发表于 2021-6-5 19:55
+
+
+8成是充电头协议的问题<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  lolozp  
+##### 610#       发表于 2021-6-6 11:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">国行马克兔，有啥店铺推荐么。。。。
+
+
+-----
+
+####  代号锤子  
+##### 611#       发表于 2021-6-6 14:40
+
+
+我看闲鱼上马克三都在7000左右了？太快了吧…
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cray  
+##### 612#       发表于 2021-6-6 15:20
+
+
+二手的 很奇怪吗 ……
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Lisylfn  
+##### 613#       发表于 2021-6-6 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493339&amp;ptid=1985265" target="_blank">代号锤子 发表于 2021-6-6 14:40</a>
+
+我看闲鱼上马克三都在7000左右了？太快了吧…
+
+
+—— 来自 samsung SM-G9880, Android 11上的 S1Next-鹅版 v ...</blockquote>
+还用看闲鱼吗, 还没开卖的时候绅士就说他家7000多了...不过是无票的
+
+
+                                                 

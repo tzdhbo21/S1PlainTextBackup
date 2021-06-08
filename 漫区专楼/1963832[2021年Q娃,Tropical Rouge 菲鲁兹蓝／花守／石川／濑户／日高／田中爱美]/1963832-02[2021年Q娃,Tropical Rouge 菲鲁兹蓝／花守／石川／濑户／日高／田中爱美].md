@@ -1156,3 +1156,76 @@ Q娃形态用枪械的，屑人鱼的确应该是第一个</blockquote>
 
 
                                               
+
+-----
+
+####  宅音  
+##### 1594#       发表于 2021-6-7 00:16
+
+
+看飞鸟学姐穿学兰想到，她应该很适合穿不良水手服
+
+
+-----
+
+####  haojie_ma  
+##### 1595#       发表于 2021-6-7 08:31
+
+
+上两集萝拉还是用尾巴走路，这次算是体验真的用腿走路了，给她成为Q娃的铺垫也差不多了
+
+不过这集的交换身体本身好像少了点什么，以往交换身体基本是反派搞事，这次却没反派的事，勉强说来应该是人鱼水壶出了bug。而且萝拉的Q娃形态也快出了，交换变身也没出现（变身前换回来和交换时一样唐突）
+
+
+海豹还是可爱，当成镇纸的一幕笑喷
+
+
+-----
+
+####  haojie_ma  
+##### 1596#       发表于 2021-6-7 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51498819&amp;ptid=1963832" target="_blank">leleq 发表于 2021-6-6 23:44</a>
+
+说到这 就要谈一下人鱼的繁殖问题了 考虑到人鱼上半身有奶下半身是🐟 应该是类似鸭嘴兽的生态 先生下卵在 ...</blockquote>
+这个问题室见应该有发言权
+
+
+-----
+
+####  leleq  
+##### 1597#       发表于 2021-6-7 10:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51501220&amp;ptid=1963832" target="_blank">haojie_ma 发表于 2021-6-7 10:14</a>
+
+这个问题室见应该有发言权</blockquote>
+那也是个屑人鱼<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+我就是前两天听到人鱼又上钩op才想起来的这茬的
+
+
+-----
+
+####  暗黑能乐  
+##### 1598#       发表于 2021-6-7 20:03
+
+
+新文字预告出来了，19集校园七大不可思议，吉野弘幸，他是第一次写precure吗
+
+
+-----
+
+####  SRyeB  
+##### 1599#       发表于 2021-6-7 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493028&amp;ptid=1963832" target="_blank">twit 发表于 2021-6-6 13:51</a>
+
+其实这前面10多集按待遇来说，萝拉才是第一主角吧</blockquote>
+最近这五六集萝拉确实是第一主角
+
+
+                                                 

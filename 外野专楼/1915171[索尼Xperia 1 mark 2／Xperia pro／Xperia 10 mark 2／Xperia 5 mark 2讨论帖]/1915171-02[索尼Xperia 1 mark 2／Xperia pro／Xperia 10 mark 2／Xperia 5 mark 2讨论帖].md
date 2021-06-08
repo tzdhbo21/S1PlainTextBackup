@@ -16290,3 +16290,203 @@ mark1港版今天终于收到推送了，但是一个下午了都没下载成功
 
 
          
+
+-----
+
+####  adslnet0519  
+##### 2705#       发表于 2021-5-30 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51419758&amp;ptid=1915171" target="_blank">oskneo 发表于 2021-5-30 12:20</a>
+想问一下，1m2接电视怎样强制16比9，好像三星可以？
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 S1Next ...</blockquote>
+我自己是装了个这软件然后才能调的<img src="https://p.sda1.dev/2/a3b2cac18f8fcc91e106db9c6755ffcf/Screenshot_20210530-214536~2.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  oskneo  
+##### 2706#       发表于 2021-5-31 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51425319&amp;ptid=1915171" target="_blank">adslnet0519 发表于 2021-5-30 21:48</a>
+我自己是装了个这软件然后才能调的
+
+—— 来自 Sony XQ-AS72, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+成功了，谢谢。不过这要adb啊，也就是以后旅行要带着笔记本。
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  哎哟卧槽了  
+##### 2707#       发表于 2021-5-31 09:43
+
+
+長截圖工具有什麼推薦嗎<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wqm2008  
+##### 2708#       发表于 2021-6-3 13:15
+
+
+今天推送的是更新了什么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  我很费纸  
+##### 2709#       发表于 2021-6-3 13:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51428697&amp;ptid=1915171" target="_blank">哎哟卧槽了 发表于 2021-5-31 09:43</a>
+長截圖工具有什麼推薦嗎</blockquote>
+滚动截图
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  逆袭的黑月  
+##### 2710#       发表于 2021-6-3 13:47
+
+
+有没有白鼠讲讲今天推的更新是啥内容
+
+
+-----
+
+####  月神侠  
+##### 2711#       发表于 2021-6-3 14:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51460785&amp;ptid=1915171" target="_blank">逆袭的黑月 发表于 2021-6-3 13:47</a>
+
+有没有白鼠讲讲今天推的更新是啥内容</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/03/141009bz2csv6s7stll76u.png" referrerpolicy="no-referrer">
+
+
+<strong>微信图片_20210603140953.png</strong> (17.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-3 14:10 上传
+
+
+-----
+
+####  kwg  
+##### 2712#       发表于 2021-6-3 15:27
+
+
+长久以来有个疑问，为啥我的mk2在暗光条件下，解锁滑动行程非常大，请问这个是什么原理？
+
+
+-----
+
+####  Youszsh  
+##### 2713#       发表于 2021-6-3 18:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51461926&amp;ptid=1915171" target="_blank">kwg 发表于 2021-6-3 15:27</a>
+长久以来有个疑问，为啥我的mk2在暗光条件下，解锁滑动行程非常大，请问这个是什么原理？ ...</blockquote>
+防误触？
+
+—— 来自 Sony XQ-AS72, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wqm2008  
+##### 2714#       发表于 2021-6-3 18:51
+
+
+你索我还想吐槽的一个点是，接电话挂断的位置做的太靠下了，行程又特别断，不静下来按就挂不掉
+
+
+第二个点时，微信发语音会粘连，发不断
+
+
+twiiter和b站全屏之后，边缘触控位置不灵敏
+
+
+....
+
+
+今天更新突然想到好多想吐槽的<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  喵喵叫的猫  
+##### 2715#       发表于 2021-6-3 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51463991&amp;ptid=1915171" target="_blank">wqm2008 发表于 2021-6-3 18:51</a>
+你索我还想吐槽的一个点是，接电话挂断的位置做的太靠下了，行程又特别断，不静下来按就挂不掉
+
+
+第二个点时 ...</blockquote>
+已经习惯按电源键挂电话了 以前这么做没法一边打电话一边截图 不过安卓11之后没这个问题了
+
+
+-----
+
+####  lbzlxx  
+##### 2716#       发表于 2021-6-3 19:51
+
+
+上一版总觉得会无名发热，看浏览器都会
+
+
+今天更新了感觉没那么明显
+
+
+-----
+
+####  ut0  
+##### 2717#       发表于 2021-6-3 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51464636&amp;ptid=1915171" target="_blank">lbzlxx 发表于 2021-6-3 19:51</a>
+
+上一版总觉得会无名发热，看浏览器都会
+
+
+今天更新了感觉没那么明显</blockquote>
+会不会限制了频率？
+
+
+-----
+
+####  Cray  
+##### 2718#       发表于 2021-6-4 00:31
+
+
+<blockquote>引用第2713楼wqm2008于2021-06-03 18:51发表的  :
+
+你索我还想吐槽的一个点是，接电话挂断的位置做的太靠下了，行程又特别断，不静下来按就挂不掉第二个点时，......</blockquote>
+挂电话可以任意地方划掉 ……不是非要按着图标划的 。
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Cray  
+##### 2719#       发表于 2021-6-5 05:14
+
+
+马克Ⅱ用Ⅲ的摄影大师我发现bug了，  就是手动点击对焦无效了。。 大概是Ⅲ代app的逻辑是点击开始实时追踪 Ⅱ代机不能解锁功能反而把手动点击对焦覆盖了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">  不知道后续更新能不能解锁  （做梦
+
+
+                                                 

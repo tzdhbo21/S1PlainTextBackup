@@ -13689,3 +13689,177 @@ https://www.zhihu.com/qu ...</blockquote>
 
 
           
+
+-----
+
+####  裤袜大落  
+##### 55173#       发表于 2021-6-6 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51496308&amp;ptid=98922" target="_blank">C男人 发表于 2021-6-6 20:10</a>
+说到贝尔，
+
+
+当年号称“世上只有五个的飞行能力”，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">“区区月步” 警告
+
+
+-----
+
+####  Acatv  
+##### 55174#       发表于 2021-6-6 21:30
+
+
+想想锦卫门的战力升级幅度，山治这点连通货膨胀都算不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  klzxs  
+##### 55175#       发表于 2021-6-6 21:53
+
+
+过一招说明不了什么 
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">前两回路飞还按着凯多锤呢
+
+
+-----
+
+####  暗影翔  
+##### 55176#       发表于 2021-6-6 22:30
+
+
+希望山治雄起一把，2年后除了香波地露了个相，然后就没啥了吧？冰火岛有啥惊艳么？
+
+
+-----
+
+####  klzxs  
+##### 55177#       发表于 2021-6-6 22:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51497973&amp;ptid=98922" target="_blank">暗影翔 发表于 2021-6-6 22:30</a>
+
+希望山治雄起一把，2年后除了香波地露了个相，然后就没啥了吧？冰火岛有啥惊艳么？ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">有最大黑点的骨裂
+
+
+-----
+
+####  神隐の馒头  
+##### 55178#       发表于 2021-6-6 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51498261&amp;ptid=98922" target="_blank">klzxs 发表于 2021-6-6 22:52</a>
+有最大黑点的骨裂</blockquote>
+那时候五皇也还只有皇副水平，厨子稍逊色于皇副手下里最能打的不丢人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗影翔  
+##### 55179#       发表于 2021-6-6 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51498261&amp;ptid=98922" target="_blank">klzxs 发表于 2021-6-6 22:52</a>
+
+有最大黑点的骨裂</blockquote>
+还好，不丢人，可是完全没有高光时刻啊，蛋糕岛那里black展示也不够，见闻色预知也完全被后来的五黄表现压制。唯一只有脸和对美女跪舔管了点用，把三眼妹子拐了过来。
+
+
+-----
+
+####  ohi  
+##### 55180#       发表于 2021-6-7 09:32
+
+
+甚平的存在感也太低了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  JC_AR  
+##### 55181#       发表于 2021-6-7 12:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51500803&amp;ptid=98922" target="_blank">ohi 发表于 2021-6-7 09:32</a>
+
+甚平的存在感也太低了
+
+
+—— 来自 S1Fun</blockquote>
+鱼人摸摸鱼不是很正常吗！
+
+
+-----
+
+####  穆  
+##### 55182#       发表于 2021-6-7 13:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51497496&amp;ptid=98922" target="_blank">klzxs 发表于 2021-6-6 21:53</a>
+
+过一招说明不了什么 
+
+前两回路飞还按着凯多锤呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/animal2017/029.png" referrerpolicy="no-referrer">虽然过一招说明不了什么
+
+我还是想起了德岛厨子跟火鸡对招的情景
+
+惨。。。厨子，惨
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 55183#       发表于 2021-6-7 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51470763&amp;ptid=98922" target="_blank">athena_1982 发表于 2021-6-4 11:55</a>
+
+和之国都是僵尸实锤了</blockquote>
+怪不得莫利亚回去就研究僵尸，魔法，解开了
+
+
+-----
+
+####  好评加鹅  
+##### 55184#       发表于 2021-6-7 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51498359&amp;ptid=98922" target="_blank">神隐の馒头 发表于 2021-6-6 23:01</a>
+那时候五皇也还只有皇副水平，厨子稍逊色于皇副手下里最能打的不丢人 ...</blockquote>
+小唐这种75海水平的哪来的皇副，
+
+五皇开了4档对小唐就是碾压局，打卡二还需要开挂才能赢
+
+
+-----
+
+####  游蜓  
+##### 55185#       发表于 2021-6-7 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51506857&amp;ptid=98922" target="_blank">好评加鹅 发表于 2021-6-7 18:35</a>
+
+小唐这种75海水平的哪来的皇副，
+
+
+五皇开了4档对小唐就是碾压局，打卡二还需要开挂才能赢</blockquote>
+小唐算是车轮战消耗下来的吧，卡尔可是全盛
+
+
+-----
+
+####  好评加鹅  
+##### 55186#       发表于 2021-6-7 19:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51507028&amp;ptid=98922" target="_blank">游蜓 发表于 2021-6-7 18:50</a>
+小唐算是车轮战消耗下来的吧，卡尔可是全盛</blockquote>
+就小唐开锁血挂那不要脸程度，也好意思说车轮战消耗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -1118,3 +1118,84 @@ v社目前的主要项目应该是运营steam和搞vr单机，各位不要因为
 
 
                                               
+
+-----
+
+####  zhaijiadehuiye  
+##### 98#       发表于 2021-5-31 11:36
+
+
+ 本帖最后由 zhaijiadehuiye 于 2021-5-31 11:42 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202105/31/113605g6ly0lvl5f28avvc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (71.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-31 11:36 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/31/113622qhw89p31w8et9etp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (92.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-5-31 11:36 上传
+
+
+决赛破百万了
+
+
+image.png
+(51.43 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-5-31 11:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/31/113533jakamwomjgpo8vqg.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笑歌自若  
+##### 99#       发表于 2021-5-31 11:48
+
+
+还是手游强，free fire都五百多万了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dddty  
+##### 100#       发表于 2021-5-31 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51376026&amp;ptid=2006177" target="_blank">Litccc 发表于 2021-5-26 14:43</a>
+
+话说瓦和apex现在哪个人气高</blockquote>
+APEX昨天我看冠军赛亚洲北部赛区（日韩）的官方指定直播频道同接是4W，然后看了一下南美和东南亚的比赛，基本就是普通解说在解说连立体视角都没有。只能说赛事不上心吧，没法从比赛看出来。
+
+
+-----
+
+####  寺川愛美  
+##### 101#       发表于 2021-5-31 13:13
+
+
+<blockquote>cwlo 发表于 2021-5-27 00:50
+拳头让shourd带货带了大半年了
+
+这比赛shourd直播间人数比官方多一倍</blockquote>
+確實，我看這個vct也是在shroud 那邊看的，沒興趣追隨官方頻道
+
+
+                                                 
