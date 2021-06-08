@@ -2761,3 +2761,45 @@ syl 终究是免费送的 这盒子不太行啊，到时候还得自己diy一个
 
 
                                                 
+
+-----
+
+####  a37356205  
+##### 16738#       发表于 2021-6-8 15:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">纯路人，莫名就白嫖了演唱会+BD
+
+
+-----
+
+####  Mikumiku831  
+##### 16739#       发表于 2021-6-8 15:36
+
+
+LIVE那天临时有事去不了 现在感觉就是白嫖了VIP套票 血赚<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  十九号大侠  
+##### 16740#       发表于 2021-6-8 15:38
+
+
+惨咯，线下人
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  鷹書たかしょ  
+##### 16741#       发表于 2021-6-8 15:43
+
+
+还行吧，本来在上海也有住的地方，门票+往返机票+当晚住宿费全部给报了，约等于免费来玩了几天，赚了赚了（×
+
+
+                                                
