@@ -2736,3 +2736,19 @@ b站9.9，bangumi7.7，有消息灵通的懂哥说说是不是又是环s1好评�
 
 
                                                  
+
+-----
+
+####  werkeytom  
+##### 1718#       发表于 2021-6-8 13:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51512013&amp;ptid=1982987" target="_blank">shimmy1996 发表于 2021-6-8 08:45</a>
+
+上周广播说是長月开头然后把梅原拉（骗）过来的
+
+其他还提到一开始创作动机就是想围绕ai 和歌姬两 ...</blockquote>
+咦，那#36提到的制片人先找梅原，梅原再找长月是什么情况？
+
+
+                                                 
