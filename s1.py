@@ -200,21 +200,22 @@ if __name__ == '__main__':
                     data = s1.content
                     namelist, replylist,totalpage,newtitles= parse_html(data)
                     ThreadContent[PageCount],lastreply= FormatStr(namelist, replylist,totalreply)
-                    PageCount = PageCount + 1
-                    if(PageCount == 50 or thread == totalpage):
-                        #lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
-                        #增量更新不再创建时间戳
-                        pages = '%02d' %math.ceil(thread/50)
-                        filename = str(ThreadID)+'-'+str(pages)+titles+'.md'
-                        with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8') as f:
-                            f.writelines(ThreadContent)
-                        ThreadContent = [' ']*50
-                        PageCount = 0
-                    bar2.next()
-                thdata[i]['totalreply'] = lastreply
-                thdata[i]['lastedit'] = int(time.time())
-                thdata[i]['title'] = titles
-                bar2.finish()
+                    if(lastreply > totalreply):
+                        PageCount = PageCount + 1
+                        if(PageCount == 50 or thread == totalpage):
+                            #lastsave=time.strftime('%Y-%m-%d %H:%M',time.localtime(time.time()+28800))#把GithubAction服务器用的UTC时间转换为北京时间
+                            #增量更新不再创建时间戳
+                            pages = '%02d' %math.ceil(thread/50)
+                            filename = str(ThreadID)+'-'+str(pages)+titles+'.md'
+                            with open((filedir+filename).encode('utf-8'),'a',encoding='utf-8') as f:
+                                f.writelines(ThreadContent)
+                            ThreadContent = [' ']*50
+                            PageCount = 0
+                        bar2.next()
+                        thdata[i]['totalreply'] = lastreply
+                        thdata[i]['lastedit'] = int(time.time())
+                        thdata[i]['title'] = titles
+                        bar2.finish()
             with open(rootdir+'RefreshingData.json',"w",encoding='utf-8') as f:
                 f.write(json.dumps(thdata,indent=2,ensure_ascii=False))
         bar.next()
