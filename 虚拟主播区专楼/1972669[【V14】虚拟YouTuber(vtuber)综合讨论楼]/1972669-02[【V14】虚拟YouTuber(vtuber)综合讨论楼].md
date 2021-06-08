@@ -4647,3 +4647,55 @@ what are you implying</blockquote>
 
 
                                                  
+
+-----
+
+####  purdre  
+##### 1858#       发表于 2021-6-8 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51520686&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-8 21:42</a>
+
+what are you implying</blockquote>
+菅原 圭 是哪位，为什么楼友突然不安
+
+
+-----
+
+####  IDIDIDID  
+##### 1859#       发表于 2021-6-8 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51521921&amp;ptid=1972669" target="_blank">purdre 发表于 2021-6-8 23:08</a>
+
+菅原 圭 是哪位，为什么楼友突然不安</blockquote>
+彩虹小蜜蜂
+
+
+-----
+
+####  purdre  
+##### 1860#       发表于 2021-6-8 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51521939&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-8 23:09</a>
+
+彩虹小蜜蜂</blockquote>
+感谢，那应该没啥好担心的吧，小蜜蜂是性别不定而不是认知自认是男性，做手术还是不太可能的，就算做手术最多也就绝育手术吧（也不太可能）
+
+
+
+
+-----
+
+####  hulaoda007  
+##### 1861#       发表于 2021-6-8 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51522006&amp;ptid=1972669" target="_blank">purdre 发表于 2021-6-8 23:13</a>
+
+感谢，那应该没啥好担心的吧，小蜜蜂是性别不定而不是认知自认是男性，做手术还是不太可能的，就算做手术 ...</blockquote>
+  我自己更在意她说的身边有很多人有这类担忧，以及她说的做了手术的朋友是谁...（我一开始以为真白）
+
+
+                                                
