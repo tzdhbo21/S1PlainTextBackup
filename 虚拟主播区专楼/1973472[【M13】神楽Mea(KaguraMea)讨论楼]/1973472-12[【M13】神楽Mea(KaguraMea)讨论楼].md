@@ -2454,3 +2454,310 @@ p个挑染不就更像了，yysy我感觉像利香
 
 
                                                  
+
+-----
+
+####  Klience  
+##### 16709#       发表于 2021-6-8 14:07
+
+
+ 本帖最后由 Klience 于 2021-6-8 14:09 编辑 
+
+BD终于来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 才发现刚打完
+
+
+-----
+
+####  笋狐  
+##### 16710#       发表于 2021-6-8 14:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">BD不论线上线下买了票就有...那些个打了千八百送票的岂不是血亏（越想越觉得之前打几百金瓜子就送票有点坑）
+
+
+
+
+-----
+
+####  Klience  
+##### 16711#       发表于 2021-6-8 14:11
+
+
+ 本帖最后由 Klience 于 2021-6-8 14:13 编辑 
+
+重要的是心意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 当时打的钱越多 吃的屎越多
+
+
+-----
+
+####  十九号大侠  
+##### 16712#       发表于 2021-6-8 14:14
+
+
+哈哈哈，那这个bls叔叔是不是亏的也挺多的啊
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  格林卡罗尔  
+##### 16713#       发表于 2021-6-8 14:14
+
+
+啊？来这一出<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+数字版算了
+
+
+-----
+
+####  时间在我手中  
+##### 16714#       发表于 2021-6-8 14:15
+
+
+特典感觉才是精髓<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 16715#       发表于 2021-6-8 14:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">像我这种和死丫头一样喜欢留个有形之物做纪念的倒是想要一份，你麻麻的，能不能开个通贩啊
+
+
+-----
+
+####  kerfars  
+##### 16716#       发表于 2021-6-8 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51515864&amp;ptid=1973472" target="_blank">笋狐 发表于 2021-6-8 14:10</a>
+
+BD不论线上线下买了票就有...那些个打了千八百送票的岂不是血亏（越想越觉得之前打几百金瓜子就送票 ...</blockquote>
+付费购票用户，应该不算bls打钱的吧？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 笋狐| + 1|不算，所以打多没买票的亏了（.|
+
+
+查看全部评分
+
+
+-----
+
+####  onlv星骸  
+##### 16717#       发表于 2021-6-8 14:22
+
+
+ 本帖最后由 onlv星骸 于 2021-6-8 14:25 编辑 
+
+看差了，编辑
+
+
+-----
+
+####  A2014720  
+##### 16718#       发表于 2021-6-8 14:22
+
+
+<img src="https://p.sda1.dev/2/5a92acd93c83ca34032560e6180ea8ee/IMG_CMP_30301066.jpeg" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/0d05f6126c9f74b10ad3e5a5d437e001/IMG_CMP_100482260.png" referrerpolicy="no-referrer">
+
+好久了，也算是难得的回忆了不是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16719#       发表于 2021-6-8 14:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51515985&amp;ptid=1973472" target="_blank">onlv星骸 发表于 2021-6-8 14:22</a>
+
+是把其他人出场的部分都剪掉了？</blockquote>
+看歌单还在啊
+
+
+-----
+
+####  笋狐  
+##### 16720#       发表于 2021-6-8 14:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我猜这特典小册子大概会是bls相关的人设场景设计和废案啥的，不排除你麻留言的可能性
+
+
+-----
+
+####  格林卡罗尔  
+##### 16721#       发表于 2021-6-8 14:27
+
+
+说到特典我想起还有到场特典，除了那句话还有些啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 16722#       发表于 2021-6-8 14:31
+
+
+死忠怎么可能不在买一张票
+
+
+-----
+
+####  yywzjsw  
+##### 16723#       发表于 2021-6-8 14:31
+
+
+不要周边阿？那些顶多是打了一金瓜子的
+
+
+-----
+
+####  T_Hb  
+##### 16724#       发表于 2021-6-8 14:34
+
+
+ 本帖最后由 T_Hb 于 2021-6-8 14:42 编辑 
+
+mea推特回复没有开放单独购买<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/b6c3d5aa4d45547c895ca05a91e05dd2/IMG_CMP_92747362.jpeg" referrerpolicy="no-referrer">
+
+syl 终究是免费送的 这盒子不太行啊，到时候还得自己diy一个
+
+
+-----
+
+####  yywzjsw  
+##### 16725#       发表于 2021-6-8 14:36
+
+
+估计版权问题，可以赠送，不可以贩卖
+
+
+-----
+
+####  黒長直姫  
+##### 16726#       发表于 2021-6-8 14:36
+
+
+我反正是买了888的，说真的补偿是到位的对线上观众来说，就是这个时效和戳一下动一下的尿性实在是恶心人
+
+
+-----
+
+####  笋狐  
+##### 16727#       发表于 2021-6-8 14:40
+
+
+说到这个，当时说的线下退差旅费落实的咋样了...
+
+
+-----
+
+####  A2014720  
+##### 16728#       发表于 2021-6-8 14:41
+
+
+拿皮鞭吆喝上才干活…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 16729#       发表于 2021-6-8 14:45
+
+
+线下人下人，我看到已经有人破防骂起来了。因为线上和线下一样的补偿
+
+
+-----
+
+####  kerfars  
+##### 16730#       发表于 2021-6-8 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51516163&amp;ptid=1973472" target="_blank">笋狐 发表于 2021-6-8 14:40</a>
+
+说到这个，当时说的线下退差旅费落实的咋样了...</blockquote>
+按流程走应该都退了吧，至少我是全退的，机票+酒店费
+
+
+-----
+
+####  黒長直姫  
+##### 16731#       发表于 2021-6-8 14:55
+
+
+我也觉得线下的应该补f个签名吧至少，哪怕是印的呢
+
+
+-----
+
+####  yywzjsw  
+##### 16732#       发表于 2021-6-8 15:06
+
+
+那必炎起来
+
+
+-----
+
+####  离心  
+##### 16733#       发表于 2021-6-8 15:08
+
+
+挺好的
+
+
+-----
+
+####  A2014720  
+##### 16734#       发表于 2021-6-8 15:08
+
+
+止损就完事了
+
+
+-----
+
+####  Joffre✔  
+##### 16735#       发表于 2021-6-8 15:08
+
+
+官号和bls号都没看到有因为线上线下一样开骂的啊？难道是推上骂的？
+
+
+-----
+
+####  黒長直姫  
+##### 16736#       发表于 2021-6-8 15:10
+
+
+也许是小群里
+
+
+-----
+
+####  yywzjsw  
+##### 16737#       发表于 2021-6-8 15:12
+
+
+阴暗的q群里
+
+
+                                                

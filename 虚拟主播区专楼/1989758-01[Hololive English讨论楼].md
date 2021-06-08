@@ -14065,3 +14065,23 @@ ID版Holo摇
 
 
                                                  
+
+-----
+
+####  渡鸦骑士  
+##### 936#       发表于 2021-6-8 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51493173&amp;ptid=1989758" target="_blank">PureIllusion 发表于 2021-6-6 14:12</a>
+
+另外一边，做pop on rocks的那个HOLOBASS嗷地一声崩溃了。
+
+HOLOBASS前段时间把他做的Holo相关二创音乐发到S ...</blockquote>
+[https://www.youtube.com/watch?v=sx3JT5KMZhI](https://www.youtube.com/watch?v=sx3JT5KMZhI)
+
+来个事后分析，怀疑是因为这个人用了语音素材，cover认为要是打上了版权印记反过来会影响直播，所以才要求下架。
+
+原因大概在于是spotify会自动给上传的乐曲打上版权库ID
+
+
+                                                 
