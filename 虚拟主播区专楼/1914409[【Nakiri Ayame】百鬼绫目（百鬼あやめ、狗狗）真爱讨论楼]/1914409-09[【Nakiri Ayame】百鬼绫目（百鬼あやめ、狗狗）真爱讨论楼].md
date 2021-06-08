@@ -2617,3 +2617,45 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 12230#       发表于 2021-6-8 19:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">lol都不打了，更不用说打枪了
+
+
+-----
+
+####  FCCHua  
+##### 12231#       发表于 2021-6-8 20:06
+
+
+确实，仿佛戒网现充了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 12232#       发表于 2021-6-8 20:34
+
+
+电竞魂，凋零！
+
+
+-----
+
+####  cctvyt1  
+##### 12233#       发表于 2021-6-8 20:37
+
+
+ 本帖最后由 cctvyt1 于 2021-6-8 20:39 编辑 
+
+都拿搬家没网路当理由了还敢打游戏才是真不怕烧吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+想想她去年多少次请假被抓到通宵玩游戏了
+
+
+                                                 

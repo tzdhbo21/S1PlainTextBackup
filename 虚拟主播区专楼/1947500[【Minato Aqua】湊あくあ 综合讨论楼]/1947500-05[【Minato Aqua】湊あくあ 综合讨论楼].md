@@ -1649,3 +1649,47 @@ mio大明神的塔罗牌心理辅导
 
 
                                                  
+
+-----
+
+####  乌鸦绅士  
+##### 6141#       发表于 2021-6-8 20:10
+
+
+ 本帖最后由 乌鸦绅士 于 2021-6-8 20:26 编辑 
+
+带货直播间加日本低成本恐怖游戏<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">  这个时间竟然不是在家里直播吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6142#       发表于 2021-6-8 20:11
+
+
+ 本帖最后由 面具13 于 2021-6-8 20:28 编辑 
+
+放送事故<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+现在在スタジオ（studio），是公司的录音棚吗？怪不得声音有微妙的差别。电脑设置不太一样，估计降噪之类的开得大了，平时的一些不大的声音不收录，当说话的时候才收录游戏音和噪音的感觉。
+
+
+-----
+
+####  梅斯之围  
+##### 6143#       发表于 2021-6-8 20:26
+
+
+l2d事故拖一会，切换英语界面拖一会，切回日语再拖一会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6144#       发表于 2021-6-8 20:45
+
+
+带货直播啊这是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
