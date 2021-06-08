@@ -10640,3 +10640,17 @@ https://nyaa.si/?f=0&amp;c=0_0&amp;q=Godzilla </blockquote>
 
 
                                                  
+
+-----
+
+####  shadow001  
+##### 833#       发表于 2021-6-9 03:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51521432&amp;ptid=1963627" target="_blank">shiko 发表于 2021-6-8 22:30</a>
+
+李博士这段真的没懂，第九集好像死了，第十集又跑出来说话，第十一集又说早就死了。这也是奇异点吗？ ...</blockquote>
+第十集的李博士是回憶
+
+
+                                                 
