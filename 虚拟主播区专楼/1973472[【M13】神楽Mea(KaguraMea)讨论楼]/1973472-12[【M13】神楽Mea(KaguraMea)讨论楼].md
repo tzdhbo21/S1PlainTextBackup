@@ -3109,3 +3109,130 @@ R18のASMR限定配信！！！！！！！！！！！！！！！！！！！�
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 16771#       发表于 2021-6-8 21:15
+
+
+擦边球黄段子再放送（
+
+
+-----
+
+####  时间在我手中  
+##### 16772#       发表于 2021-6-8 21:19
+
+
+这人竟然能猜对是围裙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏机制我都不太记得了
+
+
+-----
+
+####  路人庚  
+##### 16773#       发表于 2021-6-8 21:21
+
+
+玩家不能看屏幕，猜裁判给出的词，insider需要诱导玩家猜出答案并且隐藏自己身份
+
+
+syl，咩姐小饼干的气急败坏，乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16774#       发表于 2021-6-8 21:29
+
+
+洗脸吊人怎么能歪到哺乳和0721的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16775#       发表于 2021-6-8 21:30
+
+
+mea：是上半身的吗？
+
+白雪：是
+
+mea：嗨！母乳！母乳！母乳！母乳！
+
+白雪：不是。。
+
+
+mea：是自己做的事吗？
+
+白雪：是
+
+mea：嗨！自〇！自〇！自〇！自〇！
+
+白雪：不是。。。
+
+
+-----
+
+####  路人庚  
+##### 16776#       发表于 2021-6-8 21:37
+
+
+白雪：刚刚出了点问题，声音突然接不上了，现在声音接上了，但bgm突然没了
+
+mea：那么就由我来当bgm罢！嘣~嘣嘣嘣~嘣~嘣嘣嘣~
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真会整活
+
+
+-----
+
+####  T_Hb  
+##### 16777#       发表于 2021-6-8 21:40
+
+
+艹 国家指定neet 就是本人
+
+
+-----
+
+####  时间在我手中  
+##### 16778#       发表于 2021-6-8 21:40
+
+
+ 本帖最后由 时间在我手中 于 2021-6-8 21:43 编辑 
+
+这题目很适合吊人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">属于是neet本neet了
+
+mea:那是和mea有关的吗  白雪：（迟疑）我觉得不是
+
+mea：menhera！  犬山：下流段子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">haneru：天使
+
+
+-----
+
+####  路人庚  
+##### 16779#       发表于 2021-6-8 21:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当上insider后语言力突然降低的神乐mea
+
+
+这题目可以说是量身定做了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16780#       发表于 2021-6-8 21:42
+
+
+mea：白雪喜欢这个吗？
+
+白雪：不
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+                                                 

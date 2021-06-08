@@ -4587,3 +4587,40 @@ syl 鲨皇只差15w了，预计本月登顶。再见，始皇帝
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 1854#       发表于 2021-6-8 21:42
+
+
+<blockquote>菅原 圭
+
+@miasakana
+
+·
+
+47m
+
+周りにジェンダー的悩み抱えてる人との縁が多く、友人の性別適合手術が終わった連絡が来て無事をお祝いしに行くんだけど、仲悪いわけじゃないのに手術の事や結婚について、家族には言えてないって言っててなんだかそんな相談がもっと心軽く出来たら良いのにな世界とずっと思ってる</blockquote>
+
+what are you implying<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1855#       发表于 2021-6-8 21:46
+
+
+<img src="https://img.saraba1st.com/forum/202106/08/214649nwlf5umwoo3uyxz0.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (5.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-8 21:46 上传
+
+
+                                                 
