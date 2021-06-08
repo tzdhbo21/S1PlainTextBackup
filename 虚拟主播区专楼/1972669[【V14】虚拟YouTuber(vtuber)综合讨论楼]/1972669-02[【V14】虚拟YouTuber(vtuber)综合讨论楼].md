@@ -4506,3 +4506,53 @@ wow……明天有预定播pso2ngs的吗
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 1848#       发表于 2021-6-8 11:58
+
+
+也确实是老师啊
+
+
+-----
+
+####  smy20011  
+##### 1849#       发表于 2021-6-8 12:11
+
+
+<blockquote>SuntoryNomu 发表于 2021-6-7 23:07
+EN正统在本社。
+
+KING (English Cover) / 星川サラ
+
+</blockquote>
+本人回复自己的黄图2333
+
+
+-----
+
+####  rzrbtk  
+##### 1850#       发表于 2021-6-8 12:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51514367&amp;ptid=1972669" target="_blank">TiHaru 发表于 2021-6-8 11:53</a>
+
+真是陪酒女吗，我还以为是老师</blockquote>
+是做过很多奇怪工作（含陪酒女）的现役非常勤教师。
+
+
+-----
+
+####  rzrbtk  
+##### 1851#       发表于 2021-6-8 12:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51511353&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-6-8 04:25</a>
+
+这杂谈听着听着就开始心疼郡gachi了</blockquote>
+她对（）和（）那种自己也说不出来什么想法和明确界限的样子真是看着就来气...
+
+
+                                                 

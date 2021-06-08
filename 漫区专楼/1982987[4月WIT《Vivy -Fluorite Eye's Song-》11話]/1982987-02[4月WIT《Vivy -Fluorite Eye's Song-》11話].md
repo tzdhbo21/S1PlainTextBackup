@@ -2711,3 +2711,28 @@ AGE 这逼不是装到了，要不是年份长有爷爷级主角谁还记得它
 
 
                                                  
+
+-----
+
+####  MONSTERS  
+##### 1717#       发表于 2021-6-8 13:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51512609&amp;ptid=1982987" target="_blank">nerugigannte 发表于 2021-6-8 09:42</a>
+
+b站9.9，bangumi7.7，有消息灵通的懂哥说说是不是又是环s1好评如潮啊</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/08/131741uzm53b0wojdtnngf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ef01ff41a2095f7fe992.jpg</strong> (66.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-8 13:17 上传
+
+
+反正第十话n站好评不算低，没那么多人在意这片sf要素严谨与否。至于泥潭一向冷无缺就不说了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
