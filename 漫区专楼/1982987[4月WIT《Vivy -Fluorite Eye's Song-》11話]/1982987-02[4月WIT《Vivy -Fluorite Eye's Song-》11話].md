@@ -2889,3 +2889,19 @@ B站只更到第七话，最近下载站似乎也自我规制得很厉害炸不�
 
 
                                                  
+
+-----
+
+####  D-JoeII  
+##### 1731#         楼主| 发表于 2021-6-10 07:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51516533&amp;ptid=1982987" target="_blank">天王寺凯伊姆 发表于 2021-6-8 15:12</a>
+
+单说第十集当然看不出，上周哪里都挺平淡的，这周各种反攻都是第十一集后的事了 ...</blockquote>
+11話是這樣,跟第10話差不多
+[https://twitter.com/tsukamotea/status/1402263386562433031](https://twitter.com/tsukamotea/status/1402263386562433031)
+<img src="https://i.imgur.com/PmZZfJ9.jpg" referrerpolicy="no-referrer">
+
+
+                                                 

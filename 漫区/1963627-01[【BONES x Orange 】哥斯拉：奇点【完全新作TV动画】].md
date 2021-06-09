@@ -10831,3 +10831,18 @@ pp成功实践了
 
 
                                                  
+
+-----
+
+####  gutzz  
+##### 846#       发表于 2021-6-10 07:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51539317&amp;ptid=1963627" target="_blank">a12885084 发表于 2021-6-10 05:42</a>
+奇点是高维空间里某一点在地球上的众多投影，能产生红尘和怪兽，所以骨架也是奇点
+
+破局可以当成世界末日 ...</blockquote>
+怪兽和红尘如果是奇点在低维空间的产物的话，那骨架作为怪兽遗留下来的残骸就应该和奇点没关系啊。所以怪兽本身和红尘直接就是奇点在低维空间的投影？<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+                                                 
