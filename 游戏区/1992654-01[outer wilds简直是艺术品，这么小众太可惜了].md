@@ -2101,3 +2101,49 @@ steam史低48
 
 
                                                  
+
+-----
+
+####  Dgnic_  
+##### 161#       发表于 2021-6-9 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536617&amp;ptid=1992654" target="_blank">Frimp 发表于 2021-6-9 21:44</a>
+
+我又打开游戏看了眼，还有一个关键线索在黑洞熔炉，就是悬空城 最上方的区域，去那里的具体方法请自行探索 ...</blockquote>
+这两个地方都去过了，可能是探索漏了<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">一会仔细看看。
+
+
+-----
+
+####  Dgnic_  
+##### 162#       发表于 2021-6-9 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536617&amp;ptid=1992654" target="_blank">Frimp 发表于 2021-6-9 21:44</a>
+我又打开游戏看了眼，还有一个关键线索在黑洞熔炉，就是悬空城 最上方的区域，去那里的具体方法请自行探索 ...</blockquote>
+深巨星上的车间还没去过<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不知道你指的是不是这个
+
+
+-----
+
+####  Frimp  
+##### 163#       发表于 2021-6-9 22:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51537062&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-9 22:18</a>
+
+深巨星上的车间还没去过不知道你指的是不是这个</blockquote>
+是指的深巨星北极（或者南极？）的那个地方
+
+
+-----
+
+####  liangyi345  
+##### 164#       发表于 2021-6-9 22:28
+
+
+深巨星上的车间倒是没有直接关联 
+
+
+                                                 

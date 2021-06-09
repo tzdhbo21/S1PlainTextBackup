@@ -4510,3 +4510,40 @@ b组
 
 
                                                  
+
+-----
+
+####  格林卡罗尔  
+##### 16896#       发表于 2021-6-9 21:46
+
+
+ 本帖最后由 格林卡罗尔 于 2021-6-9 21:48 编辑 
+
+咩咩战起来啊，不要一轮游
+
+syl 老爱想出线怕是不容易
+
+
+-----
+
+####  T_Hb  
+##### 16897#       发表于 2021-6-9 21:56
+
+
+ 本帖最后由 T_Hb 于 2021-6-9 22:20 编辑 
+
+老爱有魂天带<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+现在都不发推 看来今晚是没了<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16898#       发表于 2021-6-9 22:29
+
+
+在打游戏而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -10154,3 +10154,38 @@ C呆语音里给过梅芙的提示（对Rider梅芙语音），情人节的时�
 
 
                                                  
+
+-----
+
+####  阿提拉  
+##### 78868#       发表于 2021-6-9 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51532802&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-9 17:18</a>
+你为什么这么在意这个去蓝边</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">因为舅舅的情报里提到2.6后宝具全去蓝边，全群人都在吐槽以DW的产能根本不可能以致印象太深
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alucardcz  
+##### 78869#       发表于 2021-6-9 22:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51537136&amp;ptid=1085254" target="_blank">阿提拉 发表于 2021-6-9 22:24</a>
+
+因为舅舅的情报里提到2.6后宝具全去蓝边，全群人都在吐槽以DW的产能根本不可能以致印象太深
+
+
+—— ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我感觉我ipad被开除全平台的行列 上下那么大的蓝边  甚至都没提到过
+
+
+看看隔壁cy的游戏  全都完适配 
+
+想想现在几乎所有国产游戏也都完美适配ipad的。。
+
+
+                                                 

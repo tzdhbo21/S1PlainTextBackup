@@ -7292,3 +7292,46 @@ syl  nrk昨晚和朋友出去后回来就把身体搞崩了，没来练习
 
 
                                                 
+
+-----
+
+####  rzrbtk  
+##### 2079#       发表于 2021-6-9 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536576&amp;ptid=1972669" target="_blank">神影依 发表于 2021-6-9 21:41</a>
+
+雀魂玉场以上直播得延迟几分钟，所以很多主播都是雀杰号打金场，虽然雀豪也行但这样做的少，可能她只是把 ...</blockquote>
+哦哦懂了！
+
+没有的，郡道没有这种考虑，郡道拼死升上雀杰之后去金之间逛了两圈就被打退，从此就几乎没播过四麻段位战，没有任何直播上的原因，就是菜而且不想苟分。
+
+省一楼，组长...组长....我也喜欢组长...
+
+チーム戦で私ボロボロだから迷惑掛けちゃうかもしれない、とねるちゃんに相談したら「気楽にやろう」と言ってくれました。大好き。
+
+チームアイドル頑張ります红桃
+
+
+-----
+
+####  fastary  
+##### 2080#       发表于 2021-6-9 22:26
+
+
+单推歇了刚好赶上开始996，好久没看管人连蝗毕业的乐子都没啥兴趣看了= =
+
+黑客又在推上发谜语，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+目前解出来：
+
+链接→二维码文档→一个新宿地址的经纬度
+
+数字→可拆分为三段并各自指向一条他之前的进度告知推
+
+我本来就不是他的考察厨，现在只想说别搁哪儿故弄玄虚了要走要留赶紧给个准信好吗<img src="https://static.saraba1st.com/image/smiley/face2017/240.png" referrerpolicy="no-referrer">
+
+半个多月没看黛灰直播我快脱坑了<img src="https://static.saraba1st.com/image/smiley/face2017/241.png" referrerpolicy="no-referrer">
+
+
+                                                 
