@@ -10768,3 +10768,21 @@ pp成功实践了
 
 
                                                  
+
+-----
+
+####  Lokay  
+##### 843#       发表于 2021-6-10 02:58
+
+
+ 本帖最后由 Lokay 于 2021-6-10 03:02 编辑 
+
+哈哈，我喷射杰格PP下集就要起飞（字面意思，物理意义上的）。
+这黄蝶群飞乃争战之兆，摩斯拉要最终话出来露个脸？还是这样就算是致敬过了？
+
+<img src="https://p.sda1.dev/2/f70834de836cd7267a454dc32085716f/IMG_CMP_14514037.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
