@@ -2005,3 +2005,99 @@ steam史低48
 
 
                                                  
+
+-----
+
+####  Dgnic_  
+##### 155#       发表于 2021-6-9 21:33
+
+
+来专楼（？）请教一个问题：灰烬双星计划具体是在哪个位置，要怎么前往？
+
+
+目前航行笔记上已有的线索是（剧透反白）：
+1.灰烬双星的中央舱室由极的保护外壳与外界物理隔绝。
+
+2.挪麦人打算实现一种技术，从而在灰烬双星上制造出22分钟的时间倒流间隔。
+
+3.一颗高级跃迁核心已经通过批，可以在灰烬双星的中央舱室中安装了。
+
+
+我在星球上转了好几圈了，太阳站都跑了一趟，还是没能找到入口。
+
+所以请教一下我该要往哪里去找，或者把可能我会用到的线索的位置告诉我一下也可以。
+
+提前感谢了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Frimp  
+##### 156#       发表于 2021-6-9 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536480&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-9 21:33</a>
+
+来专楼（？）请教一个问题：灰烬双星计划具体是在哪个位置，要怎么前往？
+
+
+目前航行笔记上已有的线索是（剧 ...</blockquote>
+有一个笔记是提示你传送站并不需要完全对准才能传送，有大约5°的容错
+
+
+-----
+
+####  Dgnic_  
+##### 157#       发表于 2021-6-9 21:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536517&amp;ptid=1992654" target="_blank">Frimp 发表于 2021-6-9 21:36</a>
+
+有一个笔记是提示你传送站并不需要完全对准才能传送，有大约5°的容错</blockquote>
+这个线索具体要用在什么地方呢<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  footmanpon  
+##### 158#       发表于 2021-6-9 21:44
+
+
+ 本帖最后由 footmanpon 于 2021-6-9 21:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536560&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-9 21:40</a>
+
+这个线索具体要用在什么地方呢</blockquote>
+既然要去的地方已经被完全物理隔绝，那么该如何前往呢？目前该星系里有的技术是.......
+
+
+当然是传送，去寻找传送站以及如何使用吧。
+
+
+-----
+
+####  Frimp  
+##### 159#       发表于 2021-6-9 21:44
+
+
+ 本帖最后由 Frimp 于 2021-6-9 21:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536560&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-9 21:40</a>
+
+这个线索具体要用在什么地方呢</blockquote>
+我又打开游戏看了眼，还有一个关键线索在黑洞熔炉，就是悬空城 最上方的区域，去那里的具体方法请自行探索
+
+
+-----
+
+####  luoyianwu  
+##### 160#       发表于 2021-6-9 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536480&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-9 21:33</a>
+来专楼（？）请教一个问题：灰烬双星计划具体是在哪个位置，要怎么前往？
+
+
+目前航行笔记上已有的线索是（剧 ...</blockquote>
+我整个游戏唯一就卡在这<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+                                                 

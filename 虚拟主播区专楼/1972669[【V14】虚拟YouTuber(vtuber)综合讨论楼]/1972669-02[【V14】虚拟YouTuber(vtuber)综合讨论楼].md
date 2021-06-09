@@ -7182,3 +7182,113 @@ tskk这是要风光大葬的样子？没意思，本来还有一点期待能让�
 
 
                                                  
+
+-----
+
+####  winda  
+##### 2070#       发表于 2021-6-9 21:03
+
+
+千草这日语<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">棒味比以前还浓了
+syl  nrk昨晚和朋友出去后回来就把身体搞崩了，没来练习
+
+
+
+
+-----
+
+####  心垂万刃  
+##### 2071#       发表于 2021-6-9 21:10
+
+
+想什么呢，本来就是风光大葬，7.1那天看好突破20万同接<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  神影依  
+##### 2072#       发表于 2021-6-9 21:14
+
+
+我也打日麻，郡道美玲真实天凤或雀魂段位是多少啊
+
+
+-----
+
+####  rzrbtk  
+##### 2073#       发表于 2021-6-9 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536195&amp;ptid=1972669" target="_blank">神影依 发表于 2021-6-9 21:14</a>
+
+我也打日麻，郡道美玲真实天凤或雀魂段位是多少啊</blockquote>
+雀魂雀杰吧，但是很吃运，
+
+然后这人大会运巨烂无比，基本上当定战犯了
+
+
+-----
+
+####  神影依  
+##### 2074#       发表于 2021-6-9 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536359&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-9 21:24</a>
+
+雀魂雀杰吧，但是很吃运，
+
+然后这人大会运巨烂无比，基本上当定战犯了</blockquote>
+金场只是段位场无延迟直播的要求吧。
+
+
+-----
+
+####  Suny08  
+##### 2075#       发表于 2021-6-9 21:34
+
+
+<blockquote>Suzutsuki 发表于 2021-6-9 20:35
+我能说这虹pex真JB无聊吗</blockquote>
+大哥一打二一打三的，就跟割草一样
+
+
+-----
+
+####  tiro_finale  
+##### 2076#       发表于 2021-6-9 21:35
+
+
+[https://www.youtube.com/watch?v=XXrH73ujLX4](https://www.youtube.com/watch?v=XXrH73ujLX4)
+
+50万人突破するまで小中学校の時の絵を晒し続ける
+
+
+-----
+
+####  rzrbtk  
+##### 2077#       发表于 2021-6-9 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536426&amp;ptid=1972669" target="_blank">神影依 发表于 2021-6-9 21:28</a>
+
+金场只是段位场无延迟直播的要求吧。</blockquote>
+大哥，我没太看懂...
+
+省一楼，但不破胜率喜人啊，不会真的这么强吧，成新king了？
+
+
+-----
+
+####  神影依  
+##### 2078#       发表于 2021-6-9 21:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51536519&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-9 21:37</a>
+
+大哥，我没太看懂...
+
+省一楼，但不破胜率喜人啊，不会真的这么强吧，成新king了？ ...</blockquote>
+雀魂玉场以上直播得延迟几分钟，所以很多主播都是雀杰号打金场，虽然雀豪也行但这样做的少，可能她只是把直播号卡在雀杰附近方便在金场直播。
+
+
+                                                
