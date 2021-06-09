@@ -7036,3 +7036,36 @@ v圈本来乐子人多是这样的
 
 
                                                  
+
+-----
+
+####  暴走的包子  
+##### 2057#       发表于 2021-6-9 18:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">大逃杀最后是狗狗赢了吧
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rzrbtk  
+##### 2058#       发表于 2021-6-9 19:06
+
+
+们虹PEX大战开打了，已经开始怕了。
+
+省一楼，一直觉得这个fh大逃杀的玩法像是把fh当性病一样，微妙好笑
+
+
+-----
+
+####  Suny08  
+##### 2059#       发表于 2021-6-9 19:31
+
+
+好无聊，就是大哥互杀，你虹liver连职业哥的尾气都跟不上
+
+
+                                                 

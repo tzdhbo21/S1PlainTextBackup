@@ -3938,3 +3938,84 @@ syl，游戏是好游戏，人不是好人
 
 
                                                  
+
+-----
+
+####  呓亘  
+##### 16850#       发表于 2021-6-9 18:42
+
+
+你麻不至于这么没脑子
+
+
+-----
+
+####  暴走的包子  
+##### 16851#       发表于 2021-6-9 18:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">闹脾气那次就够没脑子了，只能看这段时间两个姨有没有教好了
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  菊花战士  
+##### 16852#       发表于 2021-6-9 18:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">要是有苔姨的脑子就好了。不过现在吊人是小主播，可以直接找国V带大主播啊，来个冲日联动
+
+
+-----
+
+####  Cushaw  
+##### 16853#       发表于 2021-6-9 18:55
+
+
+如果教的是车轱辘的话那确实学的还蛮不错的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gongge666  
+##### 16854#       发表于 2021-6-9 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51534078&amp;ptid=1973472" target="_blank">菊花战士 发表于 2021-6-9 18:50</a>
+
+要是有苔姨的脑子就好了。不过现在吊人是小主播，可以直接找国V带大主播啊，来个冲日联动 ...</blockquote>
+她要是有苔姨的脑子你确定你会喜欢她
+
+
+-----
+
+####  Mr.shelter  
+##### 16855#       发表于 2021-6-9 19:06
+
+
+你楼就别车不相关（重点）存在了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 16856#       发表于 2021-6-9 19:10
+
+
+都ptsd加重了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 16857#       发表于 2021-6-9 19:12
+
+
+别聊了 不如打游戏，坐等肥婆直播
+
+
+                                                 
