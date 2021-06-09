@@ -4019,3 +4019,462 @@ syl，游戏是好游戏，人不是好人
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 16858#       发表于 2021-6-9 19:39
+
+
+ 本帖最后由 T_Hb 于 2021-6-9 20:00 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/09/193922vqdijsi2a8o456hj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (171.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-9 19:39 上传
+
+
+补个官网[https://mahjongsoul.com/mahjongsoul_2th/](https://mahjongsoul.com/mahjongsoul_2th/)
+
+
+6月20日开催的雀魂官方的二周年活动 2V2
+
+
+这下舞mea了，天开司竟然说是夫妇combi<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+人人都玩2434这个梗，不是2434的也是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|情报加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  clvan_  
+##### 16859#       发表于 2021-6-9 19:40
+
+
+这又是啥活动
+
+
+-----
+
+####  Cushaw  
+##### 16860#       发表于 2021-6-9 19:46
+
+
+ 本帖最后由 Cushaw 于 2021-6-9 19:55 编辑 
+
+别祸害人家了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，憋独角兽了，带个博登很难打的好吧
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+
+
+-----
+
+####  路人庚  
+##### 16861#       发表于 2021-6-9 19:50
+
+
+6月很忙的mea
+
+
+这个是跟麻将职业选手打牌吗？那你咩姐不被爆杀（
+
+
+-----
+
+####  ashero  
+##### 16862#       发表于 2021-6-9 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51534833&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-6-9 19:50</a>
+
+6月很忙的mea
+
+
+这个是跟麻将职业选手打牌吗？那你咩姐不被爆杀（</blockquote>
+八组2v2 <img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">能进四强就算成功
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  呓亘  
+##### 16863#       发表于 2021-6-9 19:53
+
+
+？？？？？我独角兽症犯了
+
+
+-----
+
+####  T_Hb  
+##### 16864#       发表于 2021-6-9 19:53
+
+
+那看来是我看错了 删掉那一个
+
+
+-----
+
+####  A2014720  
+##### 16865#       发表于 2021-6-9 19:56
+
+
+难得<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 16866#       发表于 2021-6-9 19:57
+
+
+这不爆杀
+
+
+-----
+
+####  ashero  
+##### 16867#       发表于 2021-6-9 20:00
+
+
+<img src="https://img.saraba1st.com/forum/202106/09/200036mrxu2oxptwz6txk4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210609195950.jpg</strong> (121.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-9 20:00 上传
+
+
+命运的舞苔<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  A2014720  
+##### 16868#       发表于 2021-6-9 20:02
+
+
+原来两个姨都贴贴去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 16869#       发表于 2021-6-9 20:04
+
+
+短发勾引，五咩是真的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 16870#       发表于 2021-6-9 20:05
+
+
+还勾引，不守妇道的东西😡
+
+
+-----
+
+####  GRMeA104  
+##### 16871#       发表于 2021-6-9 20:06
+
+
+无所谓,舞咩她自己想炒就炒,你楼人倒黑泥也干预不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不如想一下会是几轮游,雀士之躯比肩魂天<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LIPP  
+##### 16872#       发表于 2021-6-9 20:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">怎么天天跟姨一起玩啊。
+syl 私心想看和时雨妈妈一组
+
+
+-----
+
+####  A2014720  
+##### 16873#       发表于 2021-6-9 20:06
+
+
+ 本帖最后由 A2014720 于 2021-6-9 20:08 编辑 
+
+对面军刀兔妈妈，绝对一波被带走了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+五元1v3难为他了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  草牛  
+##### 16874#       发表于 2021-6-9 20:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">第一场能打赢就可以和时雨妈妈对局啦，能赢吗
+
+
+-----
+
+####  T_Hb  
+##### 16875#       发表于 2021-6-9 20:07
+
+
+这4组线都拉在一起的 应该不是一定和兔妈妈打吧
+
+有没有可能偷一波鸡偷到第二轮<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 16876#       发表于 2021-6-9 20:07
+
+
+有独角兽破防了，但我不说是谁<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16877#       发表于 2021-6-9 20:10
+
+
+放眼望去除了老爱那一组基本都跟你咩姐有过一面之缘（或很多面之缘
+
+
+咩姐加把劲啊，活久点，跟老爱对局就差一步了！
+
+
+-----
+
+####  暴走的包子  
+##### 16878#       发表于 2021-6-9 20:11
+
+
+这个划线是左右各打循环赛的意思？分组还挺妙的熟人基本都在一边
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  A2014720  
+##### 16879#       发表于 2021-6-9 20:14
+
+
+比起始皇更让我在意的是哈吉咩<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16880#       发表于 2021-6-9 20:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这参赛人员确实都有丶东西，随便跟哪组对上都有的聊，可惜缺了一个金发小男孩
+
+
+舞元能带着咩姐去再见见哈哥吗？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 16881#       发表于 2021-6-9 20:16
+
+
+这个分组还能改吗？比如晋级了就重组之类的？
+
+
+-----
+
+####  A2014720  
+##### 16882#       发表于 2021-6-9 20:17
+
+
+咩姐对着哈吉咩还能再龙宫闹海一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16883#       发表于 2021-6-9 20:18
+
+
+组合是肯定不会动的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 16884#       发表于 2021-6-9 20:19
+
+
+独角兽还是接受现实吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 16885#       发表于 2021-6-9 20:19
+
+
+烦
+
+
+-----
+
+####  GRMeA104  
+##### 16886#       发表于 2021-6-9 20:19
+
+
+ 本帖最后由 GRMeA104 于 2021-6-9 20:29 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">不怕死可以试试上书
+
+syl,这明摆着就是熟人关系网了,你麻不接的话兔鞠也可以上来顶<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+zsyl,看见舞元就烦也属于一些天狗特有的ptsd了,追根溯源还是问苔咩兔去<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 16887#       发表于 2021-6-9 20:22
+
+
+刚看到,这分组应该是故意的吧,把不太会搞事的放老爱那边,熟悉的有话题的放另一边?
+
+
+-----
+
+####  路人庚  
+##### 16888#       发表于 2021-6-9 20:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">都21年6月了就别看到舞元就烦了，真的早淡了
+
+
+-----
+
+####  专业划水人员  
+##### 16889#       发表于 2021-6-9 20:27
+
+
+能和老爱说上话就不亏了
+
+
+-----
+
+####  Klience  
+##### 16890#       发表于 2021-6-9 20:34
+
+
+妈的 看到小麻队友里有个叫coco的突然心肌梗塞<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  ashero  
+##### 16891#       发表于 2021-6-9 20:35
+
+
+a组
+
+歌衣伊东 2雀杰
+
+苔苔时雨 雀士（？）初心（？）
+
+舞元咩宝 雀杰 雀士
+
+郡道兔妈 雀杰 雀豪
+
+
+b组 
+
+千羽哈哥 魂天 雀士（？）
+
+路易斯天宫 雀豪 雀杰
+
+鸭神老爱 魂天 初心（？）
+
+天开司科萨卡 雀杰 雀士（？）
+
+
+根据每个人最近的雀魂档来看的段位实力 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  往世雷书  
+##### 16892#       发表于 2021-6-9 20:40
+
+
+还搁这独角兽呐？有能耐就飞到日本把她雷普了，不行别bb<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                               

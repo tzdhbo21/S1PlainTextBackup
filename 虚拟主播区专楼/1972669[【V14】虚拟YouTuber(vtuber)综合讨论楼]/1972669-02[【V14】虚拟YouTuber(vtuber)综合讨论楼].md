@@ -7069,3 +7069,116 @@ v圈本来乐子人多是这样的
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 2060#       发表于 2021-6-9 19:42
+
+
+郡道美玲胆大包天还敢跟组长组队去打麻将比赛，真的要被组长讨厌了不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">....
+
+但是打得还行，普通地在抱大腿
+
+
+-----
+
+####  未来起航  
+##### 2061#       发表于 2021-6-9 19:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51534252&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-9 19:06</a>
+们虹PEX大战开打了，已经开始怕了。
+
+省一楼，一直觉得这个fh大逃杀的玩法像是把fh当性病一样，微妙好笑
+
+ ...</blockquote>
+本来就挺可乐的
+b站当初不就有jreg搬运man夕礼桑整的行为艺术
+
+—— 来自 Xiaomi Redmi K30 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  星の守  
+##### 2062#       发表于 2021-6-9 19:51
+
+
+就发就发，早该发发了😁
+
+
+-----
+
+####  noHentai  
+##### 2063#       发表于 2021-6-9 19:56
+
+
+吾辈义不容辞了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+[打算七月份开始加倍努力，从数据上看6月份看油管的人是最少的，7月份8月份看的人是最多的，所以打算在七八月份发力，讲了一些自己接下来的想法，想要做的事情。]
+
+[要说以前的彩虹和现在的彩虹最大的不同的话，以前女v看的人多，现在则是男v看的人更多一些。这就导致了现在玩的游戏的类型产生了一些固化，都是apex或者valorant啥的。如果说观众完全换了一批的话那还好，但是如果是以前看mc什么的入坑的观众的话，应该不太能接受现在这样。这方面隔壁holo就做的该说是很聪明还是什么呢，反正做的挺好的。]
+
+[彩虹现在这个状态真的不太妙，以前自己并没有想过要和大家一起努力什么的，有一段时间一直在自己玩自己的，也不和箱里的人有什么接触，有一部分原因是之前自己想要引退了。现在自己已经决定不引退了，那就想要好好干，虽然有点事到如今的感觉，但是作为2434的一员想要开始多想想怎么才能让2434好起来，做点事情。]
+
+[现在已经有了几个想法打算实施了，但是不知道能不能搞起来，之所以和大家说这么多是因为自己还是比较慌能不能成功，给自己打个气。如果失败了的话那就换下一个计划。]</blockquote>
+
+
+-----
+
+####  flyskywalker92  
+##### 2064#       发表于 2021-6-9 20:06
+
+
+丽姐没参加这次比赛么
+
+
+-----
+
+####  FCCHua  
+##### 2065#       发表于 2021-6-9 20:07
+
+
+我记得小熊猫有邀请吧，伤害超了，然后没然后了
+
+
+-----
+
+####  条野太狼  
+##### 2066#       发表于 2021-6-9 20:34
+
+
+V综一下子回到了去年暑假期间的热度 
+
+重铸杏综荣光杏奴义不容辞<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suzutsuki  
+##### 2067#       发表于 2021-6-9 20:35
+
+
+我能说这虹pex真JB无聊吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  バーチャルS1er  
+##### 2068#       发表于 2021-6-9 20:40
+
+
+tskk这是要风光大葬的样子？没意思，本来还有一点期待能让木口海外风评爆炸凉快点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flyskywalker92  
+##### 2069#       发表于 2021-6-9 20:52
+
+
+到虫皇毕业 我都不知道为啥她这么火
+
+
+                                                 
