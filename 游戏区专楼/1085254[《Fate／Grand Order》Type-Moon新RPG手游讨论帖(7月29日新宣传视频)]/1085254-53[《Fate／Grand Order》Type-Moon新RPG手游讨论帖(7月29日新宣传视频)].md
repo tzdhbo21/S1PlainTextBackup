@@ -10120,3 +10120,26 @@ C呆语音里给过梅芙的提示（对Rider梅芙语音），情人节的时�
 
 
                                                  
+
+-----
+
+####  阿提拉  
+##### 78865#       发表于 2021-6-9 17:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">至少可以确定宝具全部去蓝边这条完全奶错了（
+
+
+-----
+
+####  里村紅葉  
+##### 78866#       发表于 2021-6-9 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51532715&amp;ptid=1085254" target="_blank">阿提拉 发表于 2021-6-9 17:12</a>
+
+至少可以确定宝具全部去蓝边这条完全奶错了（</blockquote>
+你为什么这么在意这个去蓝边<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
