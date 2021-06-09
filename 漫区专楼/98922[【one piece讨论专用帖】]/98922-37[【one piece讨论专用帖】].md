@@ -13934,3 +13934,66 @@ https://www.zhihu.com/qu ...</blockquote>
 
 
                                                  
+
+-----
+
+####  小野寺熊介  
+##### 55194#       发表于 2021-6-9 22:35
+
+
+奎因和长子都是将星实力，和皇副有差距呢
+
+虽然山治上个篇章被欧文一掌按得用脸摩擦地面，上上个篇章被火鸡几招收拾到不能再战，上上上个篇章被打得骨裂。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么算厨子真的好惨哦
+
+
+-----
+
+####  saturnus  
+##### 55195#       发表于 2021-6-9 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51537265&amp;ptid=98922" target="_blank">小野寺熊介 发表于 2021-6-9 22:35</a>
+奎因和长子都是将星实力，和皇副有差距呢
+
+虽然山治上个篇章被欧文一掌按得用脸摩擦地面，上上个篇章被火鸡 ...</blockquote>
+记错了吧，欧文可没在山治身上赚到便宜，把山治按着摩擦的是老三大福<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">，而且是连跪两次的战绩。
+
+
+-----
+
+####  小野寺熊介  
+##### 55196#       发表于 2021-6-9 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51537306&amp;ptid=98922" target="_blank">saturnus 发表于 2021-6-9 22:39</a>
+
+记错了吧，欧文可没在山治身上赚到便宜，把山治按着摩擦的是老三大福，而且是连跪两次的战绩。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">那还真是我记错了
+
+
+-----
+
+####  faust123  
+##### 55197#       发表于 2021-6-9 22:56
+
+
+大和应该是百分百上船了
+
+路飞=罗杰 大和=关东煮
+
+经典复刻
+
+
+-----
+
+####  cdfjg  
+##### 55198#       发表于 2021-6-9 23:18
+
+
+御田是和之国石匠，光月传人，懂古代文字，这才是罗杰邀请的原因。大和不会他这些个技能吧
+
+说起来凯多怎么还没进入回忆。要路飞回来的第一拳把他打进回忆？
+
+
+                                                 
