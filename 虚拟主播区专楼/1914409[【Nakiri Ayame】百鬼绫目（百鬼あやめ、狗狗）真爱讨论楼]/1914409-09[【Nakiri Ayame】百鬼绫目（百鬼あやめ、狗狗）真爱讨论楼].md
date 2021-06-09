@@ -2801,3 +2801,68 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
 
                                                  
+
+-----
+
+####  一仙  
+##### 12246#       发表于 2021-6-9 15:42
+
+
+好几次大事件人都不在，还都有很合理的理由，到底是运气还是绫总在第五层<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 12247#       发表于 2021-6-9 15:51
+
+
+夸发推了 现在压力落到绫总这来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 12248#       发表于 2021-6-9 15:52
+
+
+绫总在搬家，上不了网呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12249#       发表于 2021-6-9 15:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哪来的压力
+
+
+-----
+
+####  因为你不会  
+##### 12250#       发表于 2021-6-9 15:58
+
+
+绫总lol都不打了，数都不报了，谁管你蝗是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 12251#       发表于 2021-6-9 16:00
+
+
+悼念一下正常，不发也合理。全看余心情
+
+
+-----
+
+####  因为你不会  
+##### 12252#       发表于 2021-6-9 16:02
+
+
+相信绫总，绫总是永远的摆烂王
+
+
+                                                 
