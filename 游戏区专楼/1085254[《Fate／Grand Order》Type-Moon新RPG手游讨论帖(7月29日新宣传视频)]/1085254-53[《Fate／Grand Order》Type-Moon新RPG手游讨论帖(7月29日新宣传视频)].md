@@ -10057,3 +10057,55 @@ C呆语音里给过梅芙的提示（对Rider梅芙语音），情人节的时�
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 78860#       发表于 2021-6-9 12:13
+
+
+<blockquote>引用第78858楼stefanie张于2021-06-09 11:36发表的  :
+
+不打2.55能直接打2.6吗？</blockquote>
+不能
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  UNISONIA  
+##### 78861#       发表于 2021-6-9 12:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51527471&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-6-9 11:36</a>
+
+不打2.55能直接打2.6吗？</blockquote>
+虽然2.55怎么看都不是正经主线，但是不打它你的2.6就还是马赛克状态……
+
+
+-----
+
+####  里村紅葉  
+##### 78862#       发表于 2021-6-9 12:18
+
+
+凎，我2.55还没动过<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  黑上シグマ  
+##### 78863#       发表于 2021-6-9 12:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">上周公告不就写了吗，怎么搞得像刚知道一样
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                 

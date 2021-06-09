@@ -1726,3 +1726,73 @@ l2d事故拖一会，切换英语界面拖一会，切回日语再拖一会<img 
 
 
                                                  
+
+-----
+
+####  fangjun96  
+##### 6148#       发表于 2021-6-9 12:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">回旋
+
+
+-----
+
+####  梅斯之围  
+##### 6149#       发表于 2021-6-9 12:17
+
+
+求求了别回旋，回旋必被cover抬出来打头阵<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+这才复播几天，病还没好。又陷进一次风暴中心，你夸经受得起？
+反正我只想着看她像目前这样好好播下去
+
+
+-----
+
+####  Kanchiki  
+##### 6150#       发表于 2021-6-9 12:26
+
+
+说实话她爱咋咋的，楼友也好，日本crew也好，
+
+支持或者反对又有什么用吗，能做到什么事情吗
+
+你J8谁啊，我J8谁啊，crew都J8谁啊
+
+看了两年我也终于想明白了
+
+反正看她折腾自己就完事了
+
+如果毕业了，就去TC找りんこ（对我来说更好
+
+
+
+
+-----
+
+####  Maonpuyo  
+##### 6151#       发表于 2021-6-9 12:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这么一搞，下次开播能不能看到独轮车和千踩啊
+
+
+-----
+
+####  星の守  
+##### 6152#       发表于 2021-6-9 12:44
+
+
+每次什么都不做，就自动成为风暴的中心，也是服了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  doushike  
+##### 6153#       发表于 2021-6-9 12:57
+
+
+这下又要被车破防休息了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+                                                

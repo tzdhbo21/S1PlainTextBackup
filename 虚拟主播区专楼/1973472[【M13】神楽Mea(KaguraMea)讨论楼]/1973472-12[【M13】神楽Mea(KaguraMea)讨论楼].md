@@ -3310,3 +3310,323 @@ mea：白雪喜欢这个吗？
 
 
                                                  
+
+-----
+
+####  GRMeA104  
+##### 16788#       发表于 2021-6-9 11:58
+
+
+各位是不是又要被吊粉红路灯了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 16789#       发表于 2021-6-9 11:59
+
+
+操，这也能被吊路灯？
+
+就算圣皇真王者归来又跟天狗有啥关系
+
+
+-----
+
+####  Dualist彩  
+##### 16790#       发表于 2021-6-9 11:59
+
+
+回旋！回旋！我一直都是贴贴人啊<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16791#       发表于 2021-6-9 12:06
+
+
+拿头归来，谷雨这周期末必定全挂
+
+
+-----
+
+####  A2014720  
+##### 16792#       发表于 2021-6-9 12:11
+
+
+看着刷屏的“盼杏归”和贷款某人的真是贼j8烦，八字还没一撇呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 16793#       发表于 2021-6-9 12:11
+
+
+要真回归了，那去年到底算什么？我们都是小丑人？
+
+
+-----
+
+####  T_Hb  
+##### 16794#       发表于 2021-6-9 12:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">我现在只想安心看咩了今天会播吗
+
+
+-----
+
+####  A2014720  
+##### 16795#       发表于 2021-6-9 12:12
+
+
+所以回来了吗，没回来说○○呢<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 16796#       发表于 2021-6-9 12:12
+
+
+天狗史上最黑暗的一天<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 16797#       发表于 2021-6-9 12:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51527955&amp;ptid=1973472" target="_blank">Ky·Kiske 发表于 2021-6-9 11:59</a>
+操，这也能被吊路灯？
+
+就算圣皇真王者归来又跟天狗有啥关系</blockquote>
+回来先找你咩b限一波，这不是完美着陆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 16798#       发表于 2021-6-9 12:14
+
+
+ 本帖最后由 clvan_ 于 2021-6-9 12:16 编辑 
+
+别的倒没什么，就是睿站直播这段时间想kpi想疯了，就怕到时候大手又拿你麻当枪使
+
+叔叔大手真指鹿为马操作起来互联网的记忆对批小将可没用
+
+
+-----
+
+####  时间在我手中  
+##### 16799#       发表于 2021-6-9 12:14
+
+
+最黑暗个屁，不会真有傻子觉得能王者般归来吧<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 16800#       发表于 2021-6-9 12:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等有了互动有了联动再说吧，现在什么都没有关你咩姐屁事啊
+
+
+
+
+-----
+
+####  rosevalley46  
+##### 16801#       发表于 2021-6-9 12:17
+
+
+回不回来我感觉新一波猎巫都差不多该开始了,现在这环境本来就和坐在火药桶上差不多<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 16802#       发表于 2021-6-9 12:19
+
+
+不用感觉，已经有人开车了。隔壁有人开始说想mea和圣皇联动了
+
+
+-----
+
+####  笋狐  
+##### 16803#       发表于 2021-6-9 12:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嚯，官网简体字版公告都有，睿站有没有谈先放一边，对面这手姿态倒是摆出来了，但现在睿站V圈这观众构成回不回得来还是个问题
+
+
+-----
+
+####  路人庚  
+##### 16804#       发表于 2021-6-9 12:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">别着急啊，等真遇到了再说呗，反正目前这个事就是跟你咩姐没一毛钱关系，口嗨两句跟谁谁联动有屁用啊
+
+
+-----
+
+####  T_Hb  
+##### 16805#       发表于 2021-6-9 12:21
+
+
+聊这些有啥意思 还不如想想今天会不会播
+
+
+-----
+
+####  千里夜雨  
+##### 16806#       发表于 2021-6-9 12:24
+
+
+虽然别高估了互联网民的记忆，不过也别低估了遗老的ptsd，以我的视角来看，现在以前那些萌萌人，很多怕是光看到日v，心里都是抵触的了。
+哪来那么多人还肯死心塌地给这帮子人干活。
+你tskk毕业了，下次再来个唐僧可口，木口要搁这表演反复横跳？
+当初拿虫皇当野爹，现在再换，晚了，二臣贼子两面三刀的标签刻在骨子里。
+狐皇当时一个大家庭roleplay铁索连环表演箱内贴贴，最后因为一个傻逼的傲慢大伙儿付之一炬，算是我看到的对箱推推的最好的注脚了。
+
+
+-----
+
+####  Klience  
+##### 16807#       发表于 2021-6-9 12:24
+
+
+这个简体打的繁体字 算什么简体字标题啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16808#       发表于 2021-6-9 12:35
+
+
+哦大家怎么都在说○○啊，让我抬头看看这楼标题<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+这是只个公告，真有下一步了再说吧
+
+现在就在那喊“什么损失的只有你咩”“贝贝必将回来”给谁看呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16809#       发表于 2021-6-9 12:44
+
+
+认真来说也别想太多，杏花那边要顶着本土和鬼佬炎上玩这套，对他们有个死的好处
+该睡睡，晚上看看肥婆播不播吧
+
+
+-----
+
+####  T_Hb  
+##### 16810#       发表于 2021-6-9 12:45
+
+
+不播她必肥
+
+
+-----
+
+####  Ky·Kiske  
+##### 16811#       发表于 2021-6-9 12:46
+
+
+反正我有点不祥的预感，跟去年11月的感觉一样
+
+一旦跟阿睿和圣皇扯上关系的事情现在都跟噩梦一样……
+
+
+哎，等真的回旋了再说吧
+
+
+-----
+
+####  掉头学姐  
+##### 16812#       发表于 2021-6-9 12:46
+
+
+命运的舞台
+
+
+-----
+
+####  Klience  
+##### 16813#       发表于 2021-6-9 12:47
+
+
+可能想拿着虫的头就能换到这边的工商<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 16814#       发表于 2021-6-9 12:48
+
+
+不要lol阿
+
+
+-----
+
+####  路人庚  
+##### 16815#       发表于 2021-6-9 12:49
+
+
+b限小动物之星的概率大一点吧
+
+
+-----
+
+####  十九号大侠  
+##### 16816#       发表于 2021-6-9 12:50
+
+
+就LOL，就LOL
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 16817#       发表于 2021-6-9 12:51
+
+
+官号也没见他提前发工商动态 总不可能快播之前才发吧
+
+
+-----
+
+####  T_Hb  
+##### 16818#       发表于 2021-6-9 12:51
+
+
+小动物之星我觉得可以 我想看她烧🧠
+
+
+-----
+
+####  Cushaw  
+##### 16819#       发表于 2021-6-9 12:53
+
+
+把她小脑袋烧坏了也想不到怎么办，直接睡过算了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                

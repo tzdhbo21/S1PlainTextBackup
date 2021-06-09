@@ -5493,3 +5493,784 @@ nga赢了?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" 
 
 
                                                
+
+-----
+
+####  蒹葭公子  
+##### 1933#       发表于 2021-6-9 12:02
+
+
+我第一反应是整活，结果大的真要来了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，说不定蝗只是个人原因想退，我就不做恶毒猜测了。只是想说你杏想重返cn所以干掉蝗还是算了，有这魄力还能走到今天？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  langsheng  
+##### 1934#       发表于 2021-6-9 12:02
+
+
+B站的真万舰一定是给____准备的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 1935#       发表于 2021-6-9 12:03
+
+
+我只想看硝烟
+
+
+-----
+
+####  Junchoon  
+##### 1936#       发表于 2021-6-9 12:06
+
+
+今天吃饭加个鸡腿！
+
+
+-----
+
+####  absaki  
+##### 1937#       发表于 2021-6-9 12:06
+
+
+嘉然14号BML联动直播是和阿夸一起逛B站
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  心垂万刃  
+##### 1938#       发表于 2021-6-9 12:06
+
+
+还是7.1毕业，懂了，这是木口给100周年的献礼（）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 1939#       发表于 2021-6-9 12:07
+
+
+重返cn除了给我提供大乐子以外没有任何好处啊
+
+
+-----
+
+####  free  
+##### 1940#       发表于 2021-6-9 12:08
+
+
+别贷款吃屎，杏谁还敢来B我第一个冲死他
+
+
+-----
+
+####  Vneet  
+##### 1941#       发表于 2021-6-9 12:08
+
+
+想来我大概的确是在这破事后，不自觉地降低了追v频率，直到现在已经算是退追v了。
+
+
+-----
+
+####  烤鱼饼  
+##### 1942#       发表于 2021-6-9 12:09
+
+
+这也行，笑死
+
+
+-----
+
+####  flyskywalker92  
+##### 1943#       发表于 2021-6-9 12:09
+
+
+冲有啥用 b站不会放着杏奴的钱不赚的
+
+
+-----
+
+####  peh  
+##### 1944#       发表于 2021-6-9 12:09
+
+
+不看杏，桐生可可现在混的很差吗
+
+
+-----
+
+####  absaki  
+##### 1945#       发表于 2021-6-9 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528106&amp;ptid=1972669" target="_blank">free 发表于 2021-6-9 12:08</a>
+别贷款吃屎，杏谁还敢来B我第一个冲死他</blockquote>
+圆脸第一个回来怎么办
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  RE_INORI  
+##### 1946#       发表于 2021-6-9 12:10
+
+
+该看烟火了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ShuTk4O  
+##### 1947#       发表于 2021-6-9 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528145&amp;ptid=1972669" target="_blank">peh 发表于 2021-6-9 12:09</a>
+不看杏，桐生可可现在混的很差吗</blockquote>
+好得很
+
+
+-----
+
+####  free  
+##### 1948#       发表于 2021-6-9 12:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528160&amp;ptid=1972669" target="_blank">absaki 发表于 2021-6-9 12:10</a>
+
+圆脸第一个回来怎么办
+
+
+—— 来自 Xiaomi MI 9, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+当然是刷独轮车“圆脸不人气声优青山彩菜快毕业”
+
+
+-----
+
+####  Porsche  
+##### 1949#       发表于 2021-6-9 12:14
+
+
+叔叔先把杏请回来干爆as
+然后杏再自爆一回
+天下太平
+史称二次元周处除三害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 1950#       发表于 2021-6-9 12:15
+
+
+  Cover真的回来吧，不回来，哪儿来那么多乐子看？
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这不比直播好看多了？
+
+
+
+
+-----
+
+####  空集  
+##### 1951#       发表于 2021-6-9 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528226&amp;ptid=1972669" target="_blank">Porsche 发表于 2021-6-9 12:14</a>
+叔叔先把杏请回来干爆as
+然后杏再自爆一回
+天下太平</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草   
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  小小雪空  
+##### 1952#       发表于 2021-6-9 12:16
+
+
+有一说一，事到如今，还能回到过去吗？
+
+
+V圈人不是所有人都像我一样没心没肺的……
+
+
+-----
+
+####  free  
+##### 1953#       发表于 2021-6-9 12:18
+
+
+有一种圆脸，叫做时乃空;
+
+有一种底边，叫做萝卜子;
+
+有一种疯子，叫做星街彗星;
+
+有一种母猪，叫做赤井心;
+
+有一种弱智，叫做樱巫女;
+
+有一种过气，叫做夜空梅露;
+
+有一种迷信，叫做大神澪;
+
+有一种坦克，叫做白上吹雪;
+
+有一种傻逼，叫做夏色祭;
+
+有一种泔水，叫做湊阿库娅;
+
+有一种自傲，叫做紫咲诗音;
+
+有一种懒狗，叫做百鬼绫目;
+
+有一种废物，叫做愈月巧可;
+
+有一种鸭叫，叫做大空昴;
+
+有一种重量，叫做猫又小粥;
+
+有一种阿姨，叫做戌神沁音;
+
+有一种踏步，叫做兔田佩克拉;
+
+有一种发病，叫做润羽露西亚;
+
+有一种平凡，叫做不知火芙蕾雅;
+
+有一种轮胎，叫做白银诺艾尔;
+
+有一种年龄，叫做宝钟玛琳;
+
+有一种绝症，叫做天音彼方;
+
+有一种烂活，叫做桐生可可;
+
+有一种裤裆，叫做角卷绵芽;
+
+有一种无名，叫做常暗永远;
+
+有一种背叛，叫做姬森璐娜;
+
+有一种绿茶，叫做雪花菈米;
+
+有一种蜗牛，叫做魔乃阿萝耶;
+
+有一种奶奶，叫做狮白牡丹;
+
+有一种切割，叫做桃铃音音;
+
+有一种沙口，叫做尾丸波尔卡。
+
+有一种坟场，叫做hololive。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 14战斗力 +17
+
+|昵称|战斗力|理由|
+|----|---|---|
+| stygian| + 2|免师好活|
+| minamichisei| + 2|欢乐多|
+| 黑漆漆的漆漆| + 1|很好|
+| langsheng| + 2|欢乐多|
+| KaboomMirai| + 1|欢乐多|
+| PrincessBanana| + 1|乐了|
+| AloissiolA| + 1|好评加鹅|
+| RE_INORI| + 1|欢乐多|
+| 渡鸦骑士| + 1|疯子听起来还算好听|
+| 真飞鸟i| + 1|阿夸才不是臭泔水|
+| absaki| + 1|好！|
+| katern| + 1|愤怒！|
+| noHentai| + 1|欢乐多|
+| fangjun96| + 1|free！|
+
+
+查看全部评分
+
+
+-----
+
+####  真飞鸟i  
+##### 1954#       发表于 2021-6-9 12:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狐皇现在直播在用b站那套新衣装。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  qq845629713  
+##### 1955#       发表于 2021-6-9 12:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">已婚夫妇在同窗会遇到前女友死灰复燃的故事还少么
+
+
+-----
+
+####  fangjun96  
+##### 1956#       发表于 2021-6-9 12:20
+
+
+好 有大乐子了，气的免费哥都开始作诗了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Yurumi  
+##### 1957#       发表于 2021-6-9 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528160&amp;ptid=1972669" target="_blank">absaki 发表于 2021-6-9 12:10</a>
+圆脸第一个回来怎么办
+
+—— 来自 Xiaomi MI 9, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+你该问的是圆脸吗？你该问圣皇第一个回来该怎么办！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 1958#       发表于 2021-6-9 12:20
+
+
+我反省了一下，我开了大半年独轮车了 这突然一下还有点失落 茫然
+
+
+有个4V说我们像小孩子撒气 我自己反省了一下 可能还真有点
+
+
+-----
+
+####  OldGlory  
+##### 1959#       发表于 2021-6-9 12:20
+
+
+彩虹刚来了50w粉跑路，木口就来个金盾跑路，看看多米诺骨牌要倒到哪一块<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tankai  
+##### 1960#       发表于 2021-6-9 12:21
+
+
+之前究竟谁鼓惑Asoul在BWL搞1v1，昨天晚上爆发后无缝衔接蝗毕业。<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 1961#       发表于 2021-6-9 12:23
+
+
+话说b站上木口那些官方账号是不是快涨粉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tankai  
+##### 1962#       发表于 2021-6-9 12:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528293&amp;ptid=1972669" target="_blank">free 发表于 2021-6-9 12:18</a>
+有一种圆脸，叫做时乃空;
+
+有一种底边，叫做萝卜子;
+
+有一种疯子，叫做星街彗星;</blockquote>
+最早出处是哪？
+
+
+-----
+
+####  Kanchiki  
+##### 1963#       发表于 2021-6-9 12:23
+
+
+cover总能整点大活，不祥事比直播员的直播有趣
+
+
+-----
+
+####  渡鸦骑士  
+##### 1964#       发表于 2021-6-9 12:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528334&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-6-9 12:20</a>
+
+彩虹刚来了50w粉跑路，木口就来个金盾跑路，看看多米诺骨牌要倒到哪一块 ...</blockquote>
+辉夜月这下跑路没阻碍了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  魔法使い2019  
+##### 1965#       发表于 2021-6-9 12:24
+
+
+接下来的剧情是字幕组投稿试探<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 1966#       发表于 2021-6-9 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528377&amp;ptid=1972669" target="_blank">tankai 发表于 2021-6-9 12:23</a>
+最早出处是哪？</blockquote>
+  某qq空间萌二做的自我陶醉。
+  比如“有一种孤独，叫东京食尸鬼男主。”
+
+
+-----
+
+####  SuperCK  
+##### 1967#       发表于 2021-6-9 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528377&amp;ptid=1972669" target="_blank">tankai 发表于 2021-6-9 12:23</a>
+最早出处是哪？</blockquote>
+有一种xx系列几年前就有了吧。free发的这篇是出自v吧
+
+
+-----
+
+####  深渊萃取  
+##### 1968#       发表于 2021-6-9 12:25
+
+
+树宝回来了，想好怎么欢迎大天使了吗？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  katern  
+##### 1969#       发表于 2021-6-9 12:25
+
+
+什么？又赢了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  papapapadopoulo  
+##### 1970#       发表于 2021-6-9 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528373&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-6-9 12:23</a>
+
+话说b站上木口那些官方账号是不是快涨粉了</blockquote>
+我一直在想为什么半年多了还在掉粉，难道有人火星到刚听说这事，还是半年了才下定决心点取关<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuandi0120  
+##### 1971#       发表于 2021-6-9 12:28
+
+
+这也太弱智了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，不会真像尼哥坛考据的那样龙的数字是买的吧2333
+
+—— 来自 HUAWEI VOG-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  poipanchao  
+##### 1972#       发表于 2021-6-9 12:28
+
+
+看yhm的都是狗罕见<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 1973#       发表于 2021-6-9 12:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528425&amp;ptid=1972669" target="_blank">papapapadopoulo 发表于 2021-6-9 12:25</a>
+我一直在想为什么半年多了还在掉粉，难道有人火星到刚听说这事，还是半年了才下定决心点取关 ...</blockquote>
+我也很好奇，陆陆续续的取关<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 1974#       发表于 2021-6-9 12:32
+
+
+小免的冲是什么冲，手x的冲吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1975#       发表于 2021-6-9 12:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528377&amp;ptid=1972669" target="_blank">tankai 发表于 2021-6-9 12:23</a>
+
+最早出处是哪？</blockquote>
+贴吧
+
+
+-----
+
+####  liyitian  
+##### 1976#       发表于 2021-6-9 12:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528145&amp;ptid=1972669" target="_blank">peh 发表于 2021-6-9 12:09</a>
+
+不看杏，桐生可可现在混的很差吗</blockquote>
+很强。世界第二SC。上万会员。
+
+
+-----
+
+####  掉头学姐  
+##### 1977#       发表于 2021-6-9 12:36
+
+
+真回来了，圣皇之名很难不坐实
+
+
+-----
+
+####  Suny08  
+##### 1978#       发表于 2021-6-9 12:36
+
+
+要不是蝗毕业，估计今天虹串和虹楼要被虹apex搞的腥风血雨，有些时候外部矛盾还真是挺重要的
+
+
+-----
+
+####  Mika-S  
+##### 1979#       发表于 2021-6-9 12:36
+
+
+不过也没啥意思，跟yhm脱钩太久了
+
+
+-----
+
+####  遗尿  
+##### 1980#       发表于 2021-6-9 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528332&amp;ptid=1972669" target="_blank">春风女神狄璐卡 发表于 2021-6-9 12:20</a>
+
+我反省了一下，我开了大半年独轮车了 这突然一下还有点失落 茫然
+
+
+有个4V说我们像小孩子撒气 我自己反省了 ...</blockquote>
+你这是贤者状态而已，建议去看4V的评论回复状态。
+[https://www.youtube.com/watch?v=w5rh_uIk8vs&amp;t=47s](https://www.youtube.com/watch?v=w5rh_uIk8vs&amp;t=47s)
+
+
+
+
+-----
+
+####  渡鸦骑士  
+##### 1981#       发表于 2021-6-9 12:39
+
+
+ 本帖最后由 渡鸦骑士 于 2021-6-9 12:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528373&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-6-9 12:23</a>
+
+话说b站上木口那些官方账号是不是快涨粉了</blockquote>
+近期涨粉的一个是这个，
+
+
+<img src="https://img.saraba1st.com/forum/202106/09/123916andmh6wt7rpprev7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (50.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-9 12:39 上传
+
+
+还有个这个
+
+
+<img src="https://img.saraba1st.com/forum/202106/09/124034vb0zu5xgwllgremu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (54.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-9 12:40 上传
+
+
+-----
+
+####  fromsaitama  
+##### 1982#       发表于 2021-6-9 12:39
+
+
+什么意思 车轮人还是赢了吗
+
+
+-----
+
+####  Kanchiki  
+##### 1983#       发表于 2021-6-9 12:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528420&amp;ptid=1972669" target="_blank">深渊萃取 发表于 2021-6-9 12:25</a>
+
+树宝回来了，想好怎么欢迎大天使了吗？
+
+
+—— 来自 S1Fun</blockquote>
+回什么B？爱回不回 现在的B站V圈跟精神病院一样
+
+不过她要回那她也得自己受着
+
+要么就是字幕组（天知道还在不在呢 还欠着我to签呢）房管大杀特杀呗
+
+反正管理直播间弹幕跟我这个退组的人也没关系了
+
+
+-----
+
+####  FCCHua  
+##### 1984#       发表于 2021-6-9 12:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51528672&amp;ptid=1972669" target="_blank">渡鸦骑士 发表于 2021-6-9 12:39</a>
+近期涨粉的一个是这个，还有个这个</blockquote>
+草，这么真实
+
+
+-----
+
+####  plok201  
+##### 1985#       发表于 2021-6-9 12:47
+
+
+<blockquote>FCCHua 发表于 2021-6-9 12:29
+我也很好奇，陆陆续续的取关</blockquote>
+其实是这样的，大部分人都懒得点取消订阅，毕竟只要不发新视频很多人都忘记自己订阅了谁，然后等到某个时间点突然发现自己订阅了个已经没兴趣的，也就顺手取关了
+
+
+-----
+
+####  tiro_finale  
+##### 1986#       发表于 2021-6-9 12:47
+
+
+确实，接下来是4V、白皮和太君的回合了，木口喜迎新炎上，这不是结束而是刚刚开始啊
+
+
+-----
+
+####  plok201  
+##### 1987#       发表于 2021-6-9 12:54
+
+
+<blockquote>tiro_finale 发表于 2021-6-9 12:47
+确实，接下来是4V、白皮和太君的回合了，木口喜迎新炎上，这不是结束而是刚刚开始啊 ...</blockquote>
+但是这群人费拉不堪啊，都看到有人催眠自己是她希望毕业是自愿的，公司和同事都百般挽留了
+
+
+然后一个个除了祝福就没了，快快乐乐看其他人，可以说是又英断无伤了，咦，我怎么说又<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 1988#       发表于 2021-6-9 12:57
+
+
+所以毕业理由有头绪吗？如果是被很多人冲就能触发强行毕业的话那不该早毕业了，而且就“被人冲”这一点，非自愿引退那也太狼性…合约到期赚够了准备退休？
+
+
+-----
+
+####  hulaoda007  
+##### 1989#       发表于 2021-6-9 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51529031&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-9 12:57</a>
+
+所以毕业理由有头绪吗？如果是被很多人冲就能触发强行毕业的话那不该早毕业了，而且就“被人冲”这一点，非 ...</blockquote>
+  我觉得被独轮车弄烦了+玩腻了，可能性很高。
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 1990#       发表于 2021-6-9 13:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51529031&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-9 12:57</a>
+
+所以毕业理由有头绪吗？如果是被很多人冲就能触发强行毕业的话那不该早毕业了，而且就“被人冲”这一点，非 ...</blockquote>
+裁狗的说法是cover内部有人看它不爽
+
+
+这一派今天赢了
+
+
+-----
+
+####  papapapadopoulo  
+##### 1991#       发表于 2021-6-9 13:02
+
+
+我只关心一件事，有没有4v画师给画一个哥布林吃tskk的r18g<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">最好是用完了再烤着吃的那种
+
+
+-----
+
+####  tankai  
+##### 1992#       发表于 2021-6-9 13:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51529031&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-9 12:57</a>
+所以毕业理由有头绪吗？如果是被很多人冲就能触发强行毕业的话那不该早毕业了，而且就“被人冲”这一点，非 ...</blockquote>
+可能性之一就是蝗对yagoo说：EN己定，吾固当烹。（玩笑）
+
+
+-----
+
+####  渡鸦骑士  
+##### 1993#       发表于 2021-6-9 13:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51529031&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-9 12:57</a>
+
+所以毕业理由有头绪吗？如果是被很多人冲就能触发强行毕业的话那不该早毕业了，而且就“被人冲”这一点，非 ...</blockquote>
+而且钱也赚了一堆了，何必直播呢对吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                               
