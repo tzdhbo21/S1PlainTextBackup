@@ -7379,3 +7379,86 @@ syl  nrk昨晚和朋友出去后回来就把身体搞崩了，没来练习
 
 
                                                  
+
+-----
+
+####  fastary  
+##### 2085#       发表于 2021-6-9 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51537850&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-9 23:23</a>
+
+新宿街头大屏活动，这不就是黑客和男子偶像二合一，恭喜！</blockquote>
+他来的话比起男子偶像更像是反派组织宣讲感吧<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+不过到时候真有大屏投影那还蛮酷炫的，原谅他了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+就是19号也太远了吧（大声
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| rzrbtk| + 1|不是师匠就好（抖|
+| alcoholic1000| + 1|有消息就是好事|
+
+
+查看全部评分
+
+
+-----
+
+####  mmbk  
+##### 2086#       发表于 2021-6-9 23:49
+
+
+mgmg<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+不过也就平均水平吧，不是r指定実演都没意思的
+
+
+-----
+
+####  IDIDIDID  
+##### 2087#       发表于 2021-6-10 00:22
+
+
+卍組集体送别龙皇，龙皇不重要，卍組比丁真还真很重要<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/10/002158suuwuvuvsudedsv6.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #133 - 'グッバイ宣言_くろあ。 - YouTube' -.png</strong> (96.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-10 00:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/10/002159dcw5j6z2sycjcej6.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #134 - '【歌ってみた】グッバイ宣言 _ 百鬼あやめ.png</strong> (127.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-10 00:21 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/10/002200b808oya663i6oo82.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #135 - '【引き籠りが】グッバイ宣言／湊あくあ【.png</strong> (128.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-10 00:22 上传
+
+
+                                                 

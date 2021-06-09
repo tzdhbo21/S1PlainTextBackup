@@ -2158,3 +2158,17 @@ steam史低48
 
 
                                                  
+
+-----
+
+####  传说中的天才  
+##### 166#       发表于 2021-6-9 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51537602&amp;ptid=1992654" target="_blank">三度音 发表于 2021-6-9 23:05</a>
+
+好蛋疼啊我拿到所有东西了就是卡在结局前黑棘星那。因为对不准种子的路口，一调姿态前进又会被鮟鱇吃掉。每 ...</blockquote>
+烤棉花糖的地方睡觉就好，周期是固定的，时间自己试试就好了。
+
+
+                                                 

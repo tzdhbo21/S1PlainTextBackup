@@ -2866,3 +2866,28 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
 
                                                  
+
+-----
+
+####  水城雪风_Z  
+##### 12253#       发表于 2021-6-10 00:21
+
+
+隔壁怎么又在玩什么大逃杀2.0了，绫总轻松进入决赛圈啊这，无败二冠稳了啊
+
+
+-----
+
+####  因为你不会  
+##### 12254#       发表于 2021-6-10 00:43
+
+
+ 本帖最后由 因为你不会 于 2021-6-10 00:45 编辑 
+
+这个无所谓的，这种场面话你绫总不发，stf都能上你号发，图个乐就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+所以还是那个问题，绫总本人摆烂到哪天啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
