@@ -6274,3 +6274,227 @@ cover总能整点大活，不祥事比直播员的直播有趣
 
 
                                                
+
+-----
+
+####  tankai  
+##### 1994#       发表于 2021-6-9 13:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51529093&amp;ptid=1972669" target="_blank">春风女神狄璐卡 发表于 2021-6-9 13:02</a>
+裁狗的说法是cover内部有人看它不爽
+
+
+这一派今天赢了</blockquote>
+有谱的话，这一派力量够大的，能动世界前三。
+
+
+-----
+
+####  春风女神狄璐卡  
+##### 1995#       发表于 2021-6-9 13:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51529113&amp;ptid=1972669" target="_blank">tankai 发表于 2021-6-9 13:04</a>
+
+有谱的话，这一派力量够大的，能动世界前三。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">反正裁狗说话当乐子听
+
+
+重点是毕业了以后大的才真的要来了
+
+
+-----
+
+####  alcoholic1000  
+##### 1996#       发表于 2021-6-9 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51478085&amp;ptid=1972669" target="_blank">空集 发表于 2021-6-4 21:49</a>
+
+恐怖的事实 这发sc元气弹 直接在6月开头可能就决定了本月sc第一是谁了
+
+
+—— 来自 Xiaomi Mi 10, A ...</blockquote>
+好奶
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|我七月第一和你六月king有什么关系jpg.|
+
+
+查看全部评分
+
+
+-----
+
+####  hulaoda007  
+##### 1997#       发表于 2021-6-9 13:07
+
+
+  看似国人赢，实则还是Kson赢了。甩掉了独轮车，获得了死忠粉，一大群走路的ATM，还是老本行，又玩了套皮，又玩了3D，又和日本妹子贴贴。这波啊，这波是国人自欺，Kson全赢。
+
+
+-----
+
+####  stedckk  
+##### 1998#       发表于 2021-6-9 13:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">独轮车不能跟着去本体吗
+
+
+-----
+
+####  Fakerの幻影  
+##### 1999#       发表于 2021-6-9 13:20
+
+
+大的要来了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  katern  
+##### 2000#       发表于 2021-6-9 13:23
+
+
+独轮车当然是沉浸在胜利的喜悦中，穷寇莫追啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ViviR  
+##### 2001#       发表于 2021-6-9 13:24
+
+
+打错编辑
+
+
+-----
+
+####  percy1234  
+##### 2002#       发表于 2021-6-9 13:26
+
+
+这就忘了mildom大伊万吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 2003#       发表于 2021-6-9 13:27
+
+
+痛打落水狗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  提挈天地  
+##### 2004#       发表于 2021-6-9 13:28
+
+
+果然只要坚持活下去就不愁没乐子看<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  tankai  
+##### 2005#       发表于 2021-6-9 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51529378&amp;ptid=1972669" target="_blank">katern 发表于 2021-6-9 13:23</a>
+独轮车当然是沉浸在胜利的喜悦中，穷寇莫追啊</blockquote>
+不可沽名学霸王<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">落单了是吧？
+
+
+-----
+
+####  kangkangsama  
+##### 2006#       发表于 2021-6-9 13:40
+
+
+看kson也上了推特趋势，进去一看原来今天还是kson生日吗
+
+
+-----
+
+####  winda  
+##### 2007#       发表于 2021-6-9 13:45
+
+
+风怒
+
+
+-----
+
+####  winda  
+##### 2008#       发表于 2021-6-9 13:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">龙皇毕业这搞个盛大的喜丧也烧不起来啊
+
+
+-----
+
+####  cckuku  
+##### 2009#       发表于 2021-6-9 13:46
+
+
+杏的字幕组还有人在吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 2010#       发表于 2021-6-9 13:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你虹的炎上外社apex在coco毕业面前算个屁
+
+
+
+
+-----
+
+####  tankai  
+##### 2011#       发表于 2021-6-9 13:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51529792&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-6-9 13:47</a>
+你虹的炎上外社apex在coco毕业面前算个屁</blockquote>
+算屁给虹三分薄面<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tiro_finale  
+##### 2012#       发表于 2021-6-9 13:52
+
+
+油管上来就给我推送4V切片这事的，评论成片的哀悼和祝福啊，不好玩，还是看每日记者会吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 2013#       发表于 2021-6-9 13:53
+
+
+原来7月才毕业，612紫色洋葱决战紫色钻头来不及了
+
+
+                                                

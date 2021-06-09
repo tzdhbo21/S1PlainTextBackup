@@ -3630,3 +3630,133 @@ b限小动物之星的概率大一点吧
 
 
                                                 
+
+-----
+
+####  离心  
+##### 16820#       发表于 2021-6-9 13:07
+
+
+nmd，wsm继续刚啊，反正真的不想看rz人了……
+
+
+-----
+
+####  Homuxus  
+##### 16821#       发表于 2021-6-9 13:29
+
+
+nmd傻逼公国一群，群公告发tskk的毕业，关咩屁事
+
+
+-----
+
+####  T_Hb  
+##### 16822#       发表于 2021-6-9 13:36
+
+
+还好我一个群都不加
+
+
+-----
+
+####  makourisu-2  
+##### 16823#       发表于 2021-6-9 13:37
+
+
+这女人什么态度不好说，不过更担心“官组”里会不会有人给她灌迷魂汤<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">毕竟话语权在他们手里，这傻逼女人又不知道国内V圈情况
+
+
+-----
+
+####  Klience  
+##### 16824#       发表于 2021-6-9 13:45
+
+
+还是担心叔叔那边吧 叔叔什么时候来个神奇操作都不觉得奇怪了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16825#       发表于 2021-6-9 13:45
+
+
+ 本帖最后由 T_Hb 于 2021-6-9 13:47 编辑 
+
+还是担心臭女人今天播不播吧 
+
+我才发现她又捞了一下昨天那个撞名的推
+
+
+-----
+
+####  时间在我手中  
+##### 16826#       发表于 2021-6-9 13:49
+
+
+刚刚饭盒还发了一万档的消息。
+看来是醒了
+
+
+-----
+
+####  Klience  
+##### 16827#       发表于 2021-6-9 13:49
+
+
+何止捞了 还想吃别人豆腐 臭女人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  夜鸣莺  
+##### 16828#       发表于 2021-6-9 13:50
+
+
+晚上果然还是打LOL吧
+
+
+-----
+
+####  Klience  
+##### 16829#       发表于 2021-6-9 13:51
+
+
+ 本帖最后由 Klience 于 2021-6-9 13:52 编辑 
+
+今天或者明天b限 还没决定呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 16830#       发表于 2021-6-9 13:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">有没有掏出三板斧以外卡组的可能性
+
+
+
+
+-----
+
+####  Klience  
+##### 16831#       发表于 2021-6-9 13:53
+
+
+那 这人有在啊B玩过死喷吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 16832#       发表于 2021-6-9 13:55
+
+
+死喷真的不想看
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                
