@@ -10667,3 +10667,24 @@ https://nyaa.si/?f=0&amp;c=0_0&amp;q=Godzilla </blockquote>
 
 
                                                  
+
+-----
+
+####  战星辰  
+##### 835#       发表于 2021-6-9 09:37
+
+
+pp成功实践了
+
+1+2=几，不知道，但是我知道1+2=2+1，因为加法是阿贝尔群的哏<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+成功从经验学弱小类人ai变成了真正的从规则演化的成人ai
+
+也应了第一集的不知道哪句话，是我们还没有成长成我们的故事。
+
+人类不只是血肉苦弱，人类的思维方式也是苦弱的。
+
+所以我不做人也不装人了！pero2！
+
+
+                                                 
