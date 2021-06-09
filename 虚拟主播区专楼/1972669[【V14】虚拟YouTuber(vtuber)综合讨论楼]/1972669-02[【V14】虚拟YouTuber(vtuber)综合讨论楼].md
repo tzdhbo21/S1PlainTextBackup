@@ -4825,3 +4825,671 @@ Syl，蛙目書店成员共3人，虽然尾北ねむ和高瀬七发vtuber相关�
 
 
                                                  
+
+-----
+
+####  free  
+##### 1869#       发表于 2021-6-9 11:11
+
+
+[https://www.youtube.com/watch?v=6Q-fX1E6B_s](https://www.youtube.com/watch?v=6Q-fX1E6B_s)
+
+桐生ココからみなさんへ大切なお知らせ
+
+
+-----
+
+####  noHentai  
+##### 1870#       发表于 2021-6-9 11:16
+
+
+惊闻辣个改变中日V juan的女人要献礼一百周年。
+
+整挺好，同接稳破20万，还能搞个新纪录<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tiro_finale  
+##### 1871#       发表于 2021-6-9 11:17
+
+
+啥情况，真被nga的冲死了？还是原地TP？
+
+
+-----
+
+####  真飞鸟i  
+##### 1872#       发表于 2021-6-9 11:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能被nga冲死那早都该毕业了，都衰退成啥了。只能是内部原因吧，谁知道呢。
+不过cover还是nb的，你能也愿意让她毕业那你倒是当时就干啊，现在毕业还能有什么好处吗。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Porsche  
+##### 1873#       发表于 2021-6-9 11:21
+
+
+tskk都滚了 为什么肖战还活着<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  深渊萃取  
+##### 1874#       发表于 2021-6-9 11:21
+
+
+尊皇讨龙真的成了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  十九号大侠  
+##### 1875#       发表于 2021-6-9 11:22
+
+
+这是整活吧
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  poipanchao  
+##### 1876#       发表于 2021-6-9 11:22
+
+
+裁狗还同步放送的
+这真不是金鱼事件再临？
+
+
+-----
+
+####  onlv星骸  
+##### 1877#       发表于 2021-6-9 11:23
+
+
+阿夸刚复活kk就毕业，很难不联想。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  Aminor  
+##### 1878#       发表于 2021-6-9 11:25
+
+
+整活应该不会带上裁狗吧
+
+
+-----
+
+####  死体残留  
+##### 1879#       发表于 2021-6-9 11:26
+
+
+草死 cover还真能整大活
+
+
+-----
+
+####  noHentai  
+##### 1880#       发表于 2021-6-9 11:27
+
+
+冷知识：这是自去年事件之后cover第一篇简体中文公告<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/d128fc9e2139d1720f368c386717a71b/_QGA0U_X_GWS_LJ_SAELCON.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 1881#       发表于 2021-6-9 11:28
+
+
+[https://cover-corp.com/news/detail/20210609c](https://cover-corp.com/news/detail/20210609c)
+
+关于「桐生可可」毕业的通知
+
+
+杏官网公告出了，不是整活，居然还是简体中文版本的，是怕我们这些“中国的民族主义者”看不懂吗，yagoo哥哥真是贴心呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  absaki  
+##### 1882#       发表于 2021-6-9 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">闻虫皇喜讯来妮楼看看，可太乐了
+
+—— 来自 Xiaomi MI 9, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Apes  
+##### 1883#       发表于 2021-6-9 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">简中？这是要回来？
+
+
+-----
+
+####  逃离学校  
+##### 1884#       发表于 2021-6-9 11:31
+
+
+不管是什么情况，反正是挺有乐子的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，希望有更多瓜吃
+
+
+-----
+
+####  枪聆弹语  
+##### 1885#       发表于 2021-6-9 11:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叔叔我啊要恭迎杏生活班师回朝了
+
+
+-----
+
+####  十九号大侠  
+##### 1886#       发表于 2021-6-9 11:33
+
+
+嗨呀，还是百年献礼？
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  魔法使い2019  
+##### 1887#       发表于 2021-6-9 11:33
+
+
+nga赢了?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ヒトニナル  
+##### 1888#       发表于 2021-6-9 11:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为什么？
+
+
+-----
+
+####  airclab  
+##### 1889#       发表于 2021-6-9 11:34
+
+
+赢麻了
+
+
+-----
+
+####  FCCHua  
+##### 1890#       发表于 2021-6-9 11:34
+
+
+该做阅读理解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  认知厨  
+##### 1891#       发表于 2021-6-9 11:34
+
+
+嘉然VS莫璐
+
+幽默钻头VS粉色钻头
+
+
+-----
+
+####  signad  
+##### 1892#       发表于 2021-6-9 11:34
+
+
+大得来了，这波A落要给holo吃了
+
+
+-----
+
+####  Troy_VoV  
+##### 1893#       发表于 2021-6-9 11:34
+
+
+回旋了叔叔能重新开一场咩夸演唱会吗呜呜呜😭
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|资辞!|
+
+
+查看全部评分
+
+
+-----
+
+####  Ashen-11  
+##### 1894#       发表于 2021-6-9 11:35
+
+
+我能看到有史以来你juan最大的笑话吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  濡鸦之羽_  
+##### 1895#       发表于 2021-6-9 11:35
+
+
+居然还有简中<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1896#       发表于 2021-6-9 11:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大的真的来了 
+
+
+-----
+
+####  dybang  
+##### 1897#       发表于 2021-6-9 11:38
+
+
+这是钱挣够了转行还是跳槽啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 1898#       发表于 2021-6-9 11:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">制衡批站v圈，必须也必然得有阿杏，今夜她是天选也是唯一
+
+
+-----
+
+####  D-JoeII  
+##### 1899#       发表于 2021-6-9 11:38
+
+
+不是才剛換裝來着,估計是本人心累自己想走了
+
+
+-----
+
+####  poipanchao  
+##### 1900#       发表于 2021-6-9 11:38
+
+
+来个6.12圣皇回归b限
+正面对决
+
+
+-----
+
+####  深渊萃取  
+##### 1901#       发表于 2021-6-9 11:38
+
+
+我已经迫不及待想看盛世派和战狼塔塔开了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  ShuTk4O  
+##### 1902#       发表于 2021-6-9 11:39
+
+
+可以来一个木口版女主角吗
+
+
+-----
+
+####  划水的B612  
+##### 1903#       发表于 2021-6-9 11:40
+
+
+我人傻了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  西瓜爆裂  
+##### 1904#       发表于 2021-6-9 11:40
+
+
+快点端上来吧，我等不及了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 1905#       发表于 2021-6-9 11:41
+
+
+还真就七一，现在倒挺想看看白皮反应的，回旋回b的反应更想看
+
+
+-----
+
+####  Nanachi  
+##### 1906#       发表于 2021-6-9 11:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大的来了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  机翻猫  
+##### 1907#       发表于 2021-6-9 11:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐！
+
+
+-----
+
+####  Badwoman  
+##### 1908#       发表于 2021-6-9 11:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">十万crew恭迎圣皇复辟
+
+
+-----
+
+####  枪聆弹语  
+##### 1909#       发表于 2021-6-9 11:43
+
+
+圣皇该奇迹の复活了
+
+
+-----
+
+####  真飞鸟i  
+##### 1910#       发表于 2021-6-9 11:44
+
+
+圣皇，我的东海帝王！
+
+
+-----
+
+####  Porsche  
+##### 1911#       发表于 2021-6-9 11:44
+
+
+只要叔叔点头，明天你就可以给大天使打sc
+然后复活B限当场万舰<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sutikku  
+##### 1912#       发表于 2021-6-9 11:45
+
+
+就在今天！就在今天！剑指万舰
+
+
+-----
+
+####  Blaze626  
+##### 1913#       发表于 2021-6-9 11:45
+
+
+卧槽，太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Nanachi  
+##### 1914#       发表于 2021-6-9 11:46
+
+
+别停止！不管是A畜继续顺劈樱花妹，还是杏奴借势反攻b站，我都想看！<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  绯想天の天子  
+##### 1915#       发表于 2021-6-9 11:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真大的要来了
+
+
+-----
+
+####  chaucerling  
+##### 1916#       发表于 2021-6-9 11:47
+
+
+太乐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  谷恒条野  
+##### 1917#       发表于 2021-6-9 11:47
+
+
+草，大的要来了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 1918#       发表于 2021-6-9 11:47
+
+
+杏奴嘴硬了半年还是输麻了，太乐了。
+
+
+-----
+
+####  五块太贵不买了  
+##### 1919#       发表于 2021-6-9 11:47
+
+
+大新闻？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mmbk  
+##### 1920#       发表于 2021-6-9 11:48
+
+
+真不熟好吧，等pol在阿b搞泳装尻文字再回旋不迟
+
+
+
+
+-----
+
+####  caupollen  
+##### 1921#       发表于 2021-6-9 11:48
+
+
+ 本帖最后由 caupollen 于 2021-6-9 11:54 编辑 
+
+现在杏回不回来B站我都是无所谓的，之前靠支持蛆皇来恶心人的4v和白皮不应该开始抵制下holo吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  喜闻乐见  
+##### 1922#       发表于 2021-6-9 11:49
+
+
+ 本帖最后由 喜闻乐见 于 2021-6-9 11:52 编辑 
+
+四个版本公告还是点区别，
+日文和繁中只有一页，介绍毕业事情。
+只有简中最末尾附带了完整holo公司介绍，其他仨就留了个网址
+
+<img src="http://ww1.sinaimg.cn/large/0026IPSsgy1grbvdwjdkfj62im0ntap602.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flyskywalker92  
+##### 1923#       发表于 2021-6-9 11:51
+
+
+果然大的来了 楼友也都回来了
+
+
+-----
+
+####  五块太贵不买了  
+##### 1924#       发表于 2021-6-9 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51527731&amp;ptid=1972669" target="_blank">caupollen 发表于 2021-6-9 11:48</a>
+现在杏回不回来B站我都是无所谓的，之前支持蛆皇的4v和白皮不应该开始抵制下holo吗 ...</blockquote>
+想看电车难题<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Eugeo0  
+##### 1925#       发表于 2021-6-9 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51527731&amp;ptid=1972669" target="_blank">caupollen 发表于 2021-6-9 11:48</a>
+
+现在杏回不回来B站我都是无所谓的，之前支持蛆皇的4v和白皮不应该开始抵制下holo吗 ...</blockquote>
+支持支持，快抵制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 1926#       发表于 2021-6-9 11:54
+
+
+  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">大的...要来了！
+  清除了罗马混子的卡伏尔波拿巴要回到他忠心的比黎比黎了。
+
+
+-----
+
+####  Porsche  
+##### 1927#       发表于 2021-6-9 11:55
+
+
+最大毒瘤切了，剩下的只要叔叔护着，那些小打小闹的黑历史都完全不叫事<img src="https://static.saraba1st.com/image/smiley/face2017/227.gif" referrerpolicy="no-referrer">
+是时候见识一下杏卫兵mmr的威力了，吊打几个as问题不大
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 1928#       发表于 2021-6-9 11:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不还有狐皇吗 泥哥都赢麻了可不得乘胜追击继续车
+
+
+-----
+
+####  qq845629713  
+##### 1929#       发表于 2021-6-9 11:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">他们最后能吹的互动人数弹幕数也快被超越了，六月十二最后的辉煌了
+
+
+-----
+
+####  滑稽Captain  
+##### 1930#       发表于 2021-6-9 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51527749&amp;ptid=1972669" target="_blank">喜闻乐见 发表于 2021-6-9 11:49</a>
+
+四个版本公告还是点区别，
+
+日文和繁中只有一页，介绍毕业事情。
+
+只有简中最末尾附带了完整holo公司介绍，其 ...</blockquote>
+我看了一下，只有毕业live的公告的英文版没附带完整公司介绍，毕业通告全都只有一页
+
+
+-----
+
+####  tankai  
+##### 1931#       发表于 2021-6-9 11:57
+
+
+乐了，夸皇归来，P家，AS，小舞你们准备好了吗？
+
+
+-----
+
+####  harry3  
+##### 1932#       发表于 2021-6-9 12:00
+
+
+圣皇简简单单冲个万舰
+
+
+                                               
