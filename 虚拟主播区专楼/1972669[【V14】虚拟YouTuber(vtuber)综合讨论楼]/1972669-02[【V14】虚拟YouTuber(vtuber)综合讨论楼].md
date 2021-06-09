@@ -6498,3 +6498,51 @@ cover总能整点大活，不祥事比直播员的直播有趣
 
 
                                                 
+
+-----
+
+####  咸鱼无双  
+##### 2014#       发表于 2021-6-9 13:59
+
+
+ 本帖最后由 咸鱼无双 于 2021-6-9 14:03 编辑 
+
+艹，看到这乐子马上回v综
+
+
+nga胜了又胜<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JoelBirch  
+##### 2015#       发表于 2021-6-9 14:17
+
+
+突然版本大更新，那么V综要回滚了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuandi0120  
+##### 2016#       发表于 2021-6-9 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51530255&amp;ptid=1972669" target="_blank">JoelBirch 发表于 2021-6-9 14:17</a>
+
+突然版本大更新，那么V综要回滚了吗？</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/09/144115uyln0d19tlzb0qwt.png" referrerpolicy="no-referrer">
+
+
+<strong>捕获11.PNG</strong> (17.56 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-9 14:41 上传
+
+
+整个v区都要回滚了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+                                                 
