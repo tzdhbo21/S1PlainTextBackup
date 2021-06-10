@@ -10989,3 +10989,16 @@ magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20
 
 
                                                  
+
+-----
+
+####  亚瑟邓特  
+##### 857#       发表于 2021-6-10 22:06
+
+
+头几集悬疑感超棒，后面有股rec的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

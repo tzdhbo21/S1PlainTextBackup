@@ -5740,3 +5740,183 @@ CTMD傻逼鳖星，气得忘了今天有B限
 
 
                                                 
+
+-----
+
+####  yywzjsw  
+##### 17009#       发表于 2021-6-10 21:48
+
+
+艹，这首爱了
+
+
+-----
+
+####  yywzjsw  
+##### 17010#       发表于 2021-6-10 21:48
+
+
+ooooo
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 17011#       发表于 2021-6-10 21:49
+
+
+好久没唱，好听<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 17012#       发表于 2021-6-10 21:50
+
+
+今天的歌都好戳我，太好了
+
+
+-----
+
+####  时间在我手中  
+##### 17013#       发表于 2021-6-10 21:54
+
+
+少年と魔法のロボット<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 17014#       发表于 2021-6-10 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51549688&amp;ptid=1973472" target="_blank">シルフィエット 发表于 2021-6-10 21:23</a>
+
+CTMD傻逼鳖星，气得忘了今天有B限</blockquote>
+聪明人看到第二盾没打过把就溜了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 17015#       发表于 2021-6-10 21:56
+
+
+这首没印象，什么时候唱过.....
+
+
+-----
+
+####  时间在我手中  
+##### 17016#       发表于 2021-6-10 21:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51550082&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-6-10 21:56</a>
+
+这首没印象，什么时候唱过.....</blockquote>
+以前唱过，不过挺久没唱了
+
+
+-----
+
+####  T_Hb  
+##### 17017#       发表于 2021-6-10 21:58
+
+
+真就无缝衔接
+
+
+-----
+
+####  Klience  
+##### 17018#       发表于 2021-6-10 21:59
+
+
+不要茄子不要茄子<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 17019#       发表于 2021-6-10 22:02
+
+
+今天好爽，舒服了
+
+
+-----
+
+####  yywzjsw  
+##### 17020#       发表于 2021-6-10 22:09
+
+
+继续
+
+
+-----
+
+####  路人庚  
+##### 17021#       发表于 2021-6-10 22:16
+
+
+突然想到你咩姐是不是b限的时候从来没玩过男友梗来着？
+
+
+-----
+
+####  时间在我手中  
+##### 17022#       发表于 2021-6-10 22:19
+
+
+很少，但应该有那么一两次
+
+
+-----
+
+####  T_Hb  
+##### 17023#       发表于 2021-6-10 22:20
+
+
+苦情连唱来了
+
+
+-----
+
+####  A2014720  
+##### 17024#       发表于 2021-6-10 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51550387&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-6-10 22:16</a>
+突然想到你咩姐是不是b限的时候从来没玩过男友梗来着？</blockquote>
+【【B站限定】找女友从入门到出轨【神楽めあ的东京湾爱情故事】-哔哩哔哩】https://b23.tv/r1NA8j
+
+今年不整了罢了，以前记得还挺多
+
+
+-----
+
+####  时间在我手中  
+##### 17025#       发表于 2021-6-10 22:24
+
+
+那句算是唱下来了，但是别的糊了）<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 17026#       发表于 2021-6-10 22:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51550387&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-6-10 22:16</a>
+突然想到你咩姐是不是b限的时候从来没玩过男友梗来着？</blockquote>
+别人女朋友就是b限先发啊<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">玩得不算多而已
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                
