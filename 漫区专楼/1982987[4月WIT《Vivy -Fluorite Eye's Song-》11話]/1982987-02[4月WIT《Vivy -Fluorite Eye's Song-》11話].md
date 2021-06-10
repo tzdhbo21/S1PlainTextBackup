@@ -2977,3 +2977,16 @@ B站只更到第七话，最近下载站似乎也自我规制得很厉害炸不�
 
 
                                                  
+
+-----
+
+####  fuochai  
+##### 1736#       发表于 2021-6-11 00:59
+
+
+原来并不是那首歌导致的啊
+
+结果还是要救吗，还想着看人类再被灭一次呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -2206,3 +2206,43 @@ steam史低48
 
 
                                                  
+
+-----
+
+####  footmanpon  
+##### 168#       发表于 2021-6-11 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544393&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-10 14:22</a>
+我成功找到灰烬双星计划的位置啦，进去的时候着实被震撼到了。
+
+
+简单记录一下我是怎么找到的吧（依旧剧透反 ...</blockquote>
+恭喜恭喜<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AEmpire  
+##### 169#       发表于 2021-6-11 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544393&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-10 14:22</a>
+
+我成功找到灰烬双星计划的位置啦，进去的时候着实被震撼到了。
+
+
+简单记录一下我是怎么找到的吧（依旧剧透反 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我卡在这里受不了最后查攻略才过的。能靠自己想出来的话成就感一定绝赞，很是羡慕了
+
+
+-----
+
+####  Wiksy  
+##### 170#       发表于 2021-6-11 00:49
+
+
+这个地方确实容易卡，我也卡了一段时间，才偶然发现居然这两个塔我好像只站上去过一个……
+
+
+                                                 
