@@ -7771,3 +7771,187 @@ bsyl，，
 
 
                                                 
+
+-----
+
+####  深渊萃取  
+##### 2110#       发表于 2021-6-10 17:37
+
+
+我懂了，是不破不立，杏不爆炸，怎么从废墟中给主播们建立起真正的理想乡啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  空集  
+##### 2111#       发表于 2021-6-10 17:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51546628&amp;ptid=1972669" target="_blank">Kanchiki 发表于 2021-6-10 17:34</a>
+这种做了这么多年主播的人不靠直播难道还去找个厂上班吗
+
+只要她还想靠当网红赚钱/实现人生价值必然也只能 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我想说的重点不是这些全职主播会不会换个身份直播，这个事情是必然，不然这些人也做不了什么别的工作，而是目前角度来看对于木口很多liver来说势必是个抗压拉满的艰难开始，大部分人怎么赖着都不考虑毕业根本原因也在于此。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  OldGlory  
+##### 2112#       发表于 2021-6-10 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51546628&amp;ptid=1972669" target="_blank">Kanchiki 发表于 2021-6-10 17:34</a>
+
+这种做了这么多年主播的人不靠直播难道还去找个厂上班吗
+
+只要她还想靠当网红赚钱/实现人生价值必然也只能 ...</blockquote>
+凛子想当网红赚钱/实现人生价值最好的平台不就是holo？
+
+真觉得她从holo毕业了，就会突然有干劲突然去做想做的事吗。
+
+
+-----
+
+####  poipanchao  
+##### 2113#       发表于 2021-6-10 17:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51546878&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-6-10 17:54</a>
+凛子想当网红赚钱/实现人生价值最好的平台不就是holo？
+
+真觉得她从holo毕业了，就会突然有干劲突然去做想 ...</blockquote>
+当然有，b站（）
+
+
+-----
+
+####  空集  
+##### 2114#       发表于 2021-6-10 17:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我都仅限于说当网红赚钱了，毕竟想实现价值的人少，对于这些人情况只会更离不开大企业，如果实现价值我理解为出歌 搞live 搞3d 出联名商品 和喜欢的ip合作的话
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Kanchiki  
+##### 2115#       发表于 2021-6-10 18:04
+
+
+那扛不住压崩了 没了 甚至物理意义上人出事了
+<strong>我们又能怎么样呢？</strong> 谢谢黑宝的名言
+
+
+这么爱帮人家去规划这规划那的 我劝你们都放下吧
+
+观众为了主播去争吵去对立，搞各种工作，现在想想都挺可笑的
+
+人主播自己就要作践自己你拦都拦不住，更何况外界的干扰和大环境的影响呢？
+
+为了主播担心这担心那 饭吃不好觉睡不着 真像个沙口 何必呢
+
+更何况还是别的国家的主播
+
+
+反正一开始就什么都改变不了，那有的看就看没得看就做别的事去呗
+
+
+我已经不会把自己的感情和希望之类的东西投射到V身上去了
+
+真正意义上从粉丝变成了单纯的观众了
+
+谢谢夸宝休息了那么久让我远离V圈总算彻底想明白了
+
+
+现在想要holo爆炸是因为holo他欠我的 纯粹个人原因
+
+可不是因为什么“为了夸好” 她J8谁啊 我J8谁啊
+
+
+-----
+
+####  雪风utopia  
+##### 2116#       发表于 2021-6-10 18:04
+
+
+感知树还没有接受凛子被大亏杀死的现实吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  1678334706  
+##### 2117#       发表于 2021-6-10 18:05
+
+
+兄弟 你好魔怔啊
+
+
+-----
+
+####  a37356205  
+##### 2118#       发表于 2021-6-10 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说71后，是转火，还是穿透打击kson？
+
+
+-----
+
+####  空集  
+##### 2119#       发表于 2021-6-10 18:16
+
+
+是赶着流量变现套皮——见山田赫敏
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  JoelBirch  
+##### 2120#       发表于 2021-6-10 18:21
+
+
+ 本帖最后由 JoelBirch 于 2021-6-10 18:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51546135&amp;ptid=1972669" target="_blank">Eryshou 发表于 2021-6-10 16:53</a>
+关于月灵姐组建字幕组相关黑屁发散（并不特定月灵组）：
+
+月灵姐在showroom的直播，其他观众我最多也 ...</blockquote>
+我的评价是：谁给钱？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+建议不用想那么多，那场直播我记得，统共不过100人，本来就不是什么有主题的杂谈，而且月灵姐人家也没说反感不是？我反而觉得瞎聊聊挺好的，不如说这种话题更合批站口味
+
+
+-----
+
+####  高清马赛克  
+##### 2121#       发表于 2021-6-10 18:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51546444&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-6-10 17:20</a>
+既然楼上那位那么看好长三角的gwy，那就忽悠几个来建组呗，
+
+
+哦对了，某en字幕组进组要求英语多少 ...</blockquote>
+不知道原始恶魔看不看v
+
+
+-----
+
+####  Abyssmarionette  
+##### 2122#       发表于 2021-6-10 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51547175&amp;ptid=1972669" target="_blank">a37356205 发表于 2021-6-10 18:14</a>
+
+话说71后，是转火，还是穿透打击kson？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准这回就消散了呢
+
+
+                                                 
