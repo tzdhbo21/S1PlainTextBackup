@@ -2943,3 +2943,29 @@ bsyl，这爬楼爬得我冷汗直流，一年前我们都在讲什么东西啊�
 
 
                                                  
+
+-----
+
+####  cctvyt1  
+##### 12259#       发表于 2021-6-10 10:58
+
+
+ 本帖最后由 cctvyt1 于 2021-6-10 11:41 编辑 
+
+刚发现绫总醒了 砍魂帐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+之前那位说出吉尔名字的也锁推了 发现上5ch了赶紧跑路
+
+这下没绫总在摸余的证据了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 12260#       发表于 2021-6-10 11:38
+
+
+绫总终究逃不脱监控的
+
+
+                                                 

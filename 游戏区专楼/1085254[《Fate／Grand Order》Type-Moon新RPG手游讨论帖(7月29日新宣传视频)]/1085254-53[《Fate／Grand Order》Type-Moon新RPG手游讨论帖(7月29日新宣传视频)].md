@@ -10219,3 +10219,34 @@ C呆语音里给过梅芙的提示（对Rider梅芙语音），情人节的时�
 
 
                                                 
+
+-----
+
+####  xiongxingyu  
+##### 78872#       发表于 2021-6-10 11:03
+
+
+数量倒是奶对了，7个从者，就是这个术阶有点多啊，王姐术阶没啥问题，pv登场的那票剩下的都不像啊，尤其是王姐那三个圆桌。最多就是瓦叔可能是，但感觉舅舅剧透的缝了奥伯龙的AE更加靠谱点。
+
+
+-----
+
+####  cckuku  
+##### 78873#       发表于 2021-6-10 11:12
+
+
+新红拐要来了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 78874#       发表于 2021-6-10 11:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51541899&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-6-10 11:12</a>
+新红拐要来了吗</blockquote>
+怕不是呆毛专属拐<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+                                                 
