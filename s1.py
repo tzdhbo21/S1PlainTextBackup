@@ -176,7 +176,7 @@ if __name__ == '__main__':
             #采取增量更新后仅第一次更新标题
             if((int(time.time()) - thdata[i]['lastedit']) > 1296000 or totalpage == 1):
                 thdata[i]['active'] = False
-                filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+'【已归档】'+titles+'/'
+                filedir = rootdir+thdata[i]['category']+'/'+str(ThreadID)+'【已归档】'+newtitles+'/'
                 mkdir(filedir)
                 with open((filedir+str(ThreadID)+'【已归档】.md').encode('utf-8'),'w',encoding='utf-8') as f:
                     f.write('1')
