@@ -10189,3 +10189,33 @@ C呆语音里给过梅芙的提示（对Rider梅芙语音），情人节的时�
 
 
                                                  
+
+-----
+
+####  阿提拉  
+##### 78870#       发表于 2021-6-10 10:54
+
+
+<img src="https://p.sda1.dev/2/60fac41a9fd2df1e925e3d76ecd9740b/27eb9a65216c8fa7.jpg" referrerpolicy="no-referrer">
+
+舅舅大失败预订（
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  khxooo  
+##### 78871#       发表于 2021-6-10 10:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51541666&amp;ptid=1085254" target="_blank">阿提拉 发表于 2021-6-10 10:54</a>
+舅舅大失败预订（
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+狂阶？那么阿格有机会落地了。不过没石头了，希望是常驻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                
