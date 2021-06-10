@@ -5117,3 +5117,47 @@ https://b23.tv/ZwEzI2?share_medium=android&amp;share_source=qq&amp;bbid=XYD0024D
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 16951#       发表于 2021-6-10 14:48
+
+
+这BGM也太难搜了，我服了
+
+
+-----
+
+####  追风小星星  
+##### 16952#       发表于 2021-6-10 14:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer"> 都是叔叔的任务罢了
+
+
+-----
+
+####  时间在我手中  
+##### 16953#       发表于 2021-6-10 15:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544684&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-10 14:48</a>
+
+这BGM也太难搜了，我服了</blockquote>
+nga那边有人找到了，谢谢帮忙了
+
+
+-----
+
+####  T_Hb  
+##### 16954#       发表于 2021-6-10 15:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544935&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-10 15:10</a>
+
+nga那边有人找到了，谢谢帮忙了</blockquote>
+顺带看了好多早期录像，又加深了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 
