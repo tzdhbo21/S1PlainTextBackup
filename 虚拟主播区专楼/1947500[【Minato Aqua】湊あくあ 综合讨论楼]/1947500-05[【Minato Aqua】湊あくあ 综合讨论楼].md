@@ -1984,3 +1984,81 @@ l2d事故拖一会，切换英语界面拖一会，切回日语再拖一会<img 
 
 
                                                  
+
+-----
+
+####  面具13  
+##### 6171#       发表于 2021-6-10 22:48
+
+
+ 本帖最后由 面具13 于 2021-6-10 22:56 编辑 
+
+发现快12点了，觉得不尽兴，其实是因为说话多。还想多唱会儿，兴致很高嘛
+
+
+Departures～あなたにおくるアイの歌～，这首好久没听过的感觉
+
+
+-----
+
+####  zpy393  
+##### 6172#       发表于 2021-6-10 22:57
+
+
+今天格外的持久
+
+
+-----
+
+####  黑耀星尘  
+##### 6173#       发表于 2021-6-10 23:03
+
+
+最近有开心的事嘛<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  梅斯之围  
+##### 6174#       发表于 2021-6-10 23:07
+
+
+看来请病假之后状态恢复得可以
+唱了一堆老歌，听起来有种姨味，夸宝离变夸姨又近了一步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+（今天白天一动不动，给了我一种这人是不是要病遁掉最近节奏的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  Kanchiki  
+##### 6175#       发表于 2021-6-10 23:08
+
+
+今晚这状态确实挺好的
+
+有2019-2020年初那段时间的感觉了
+
+不是为了搞企划或者节目效果 就是陪着你磨时间唠嗑的“女友感”
+
+
+-----
+
+####  星の守  
+##### 6176#       发表于 2021-6-10 23:20
+
+
+好事，姨点好姨点好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6177#       发表于 2021-6-10 23:37
+
+
+唱得都不熟，不过我满意了
+
+
+                                                 
