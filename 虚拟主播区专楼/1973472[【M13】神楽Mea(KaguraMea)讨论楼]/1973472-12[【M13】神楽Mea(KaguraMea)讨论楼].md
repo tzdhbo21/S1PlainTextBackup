@@ -4814,3 +4814,61 @@ CNM,叔叔的大手还是管到了。不过她突然B限的时候大概就猜出
 
 
                                                 
+
+-----
+
+####  Klience  
+##### 16925#       发表于 2021-6-10 12:57
+
+
+估计今晚b限会提一嘴吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16926#       发表于 2021-6-10 12:58
+
+
+叔叔的任务罢了
+
+
+-----
+
+####  JY要塞  
+##### 16927#       发表于 2021-6-10 12:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">叔叔的任务
+
+
+-----
+
+####  时间在我手中  
+##### 16928#       发表于 2021-6-10 13:07
+
+
+问一下，吊人出道自我介绍那个很欢快的bgm有没有人知道出处
+
+
+-----
+
+####  Klience  
+##### 16929#       发表于 2021-6-10 13:22
+
+
+看到评论置顶里有bgm1 2 不知道有没有你想要的 没带耳机听不了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16930#       发表于 2021-6-10 13:43
+
+
+后半段是Vexento-We Are One
+
+前半段不清楚
+
+
+                                                 
