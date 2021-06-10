@@ -5410,3 +5410,333 @@ syl 这证件照看着是真的傻
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 16979#       发表于 2021-6-10 20:53
+
+
+状态不错啊
+
+
+-----
+
+####  Ky·Kiske  
+##### 16980#       发表于 2021-6-10 20:53
+
+
+睿限歌回不是挺好的，挺好的！
+
+LOL该进入历史的垃圾堆了！
+
+
+
+
+-----
+
+####  RE_INORI  
+##### 16981#       发表于 2021-6-10 20:55
+
+
+ 本帖最后由 RE_INORI 于 2021-6-10 20:59 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 16982#       发表于 2021-6-10 20:56
+
+
+我真的好爱麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Day_One  
+##### 16983#       发表于 2021-6-10 20:58
+
+
+卧槽！回旋！
+
+—— 来自 HUAWEI KIW-AL10, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 16984#       发表于 2021-6-10 20:58
+
+
+真不搓<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16985#       发表于 2021-6-10 20:59
+
+
+来了 月兔！！！ 羊党都埋了吧 兔党才是站到最后的！！！
+
+
+-----
+
+####  A2014720  
+##### 16986#       发表于 2021-6-10 20:59
+
+
+ 本帖最后由 A2014720 于 2021-6-10 21:01 编辑 
+
+骗子<img src="https://static.saraba1st.com/image/smiley/face2017/153.png" referrerpolicy="no-referrer">骗子
+
+
+-----
+
+####  雪风utopia  
+##### 16987#       发表于 2021-6-10 21:00
+
+
+不anti了，meameasuki<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 16988#       发表于 2021-6-10 21:00
+
+
+虽然高音不怎么稳 但这次唱得好温柔啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 16989#       发表于 2021-6-10 21:01
+
+
+喜欢
+
+
+-----
+
+####  Day_One  
+##### 16990#       发表于 2021-6-10 21:01
+
+
+只对中国阿宅温柔的麻麻<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI KIW-AL10, Android 6.0.1上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  离心  
+##### 16991#       发表于 2021-6-10 21:03
+
+
+md，好烦又看不了了……
+
+
+-----
+
+####  T_Hb  
+##### 16992#       发表于 2021-6-10 21:03
+
+
+里表会不会拉了呢<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 16993#       发表于 2021-6-10 21:03
+
+
+这歌你能唱好吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gundamf91  
+##### 16994#       发表于 2021-6-10 21:04
+
+
+别奶
+
+
+-----
+
+####  yywzjsw  
+##### 16995#       发表于 2021-6-10 21:05
+
+
+不是唱的很好嘛
+
+
+-----
+
+####  TomDu  
+##### 16996#       发表于 2021-6-10 21:05
+
+
+今天状态超级好啊<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16997#       发表于 2021-6-10 21:06
+
+
+ 本帖最后由 T_Hb 于 2021-6-10 21:09 编辑 
+
+有点蚌埠住 但是蚌住了
+
+好耶 mira   不愧是练过的，很稳啊
+
+
+-----
+
+####  雪风utopia  
+##### 16998#       发表于 2021-6-10 21:12
+
+
+我立马化身mmr<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16999#       发表于 2021-6-10 21:19
+
+
+ 本帖最后由 T_Hb 于 2021-6-10 21:21 编辑 
+
+营业最棒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 17000#       发表于 2021-6-10 21:19
+
+
+不是很好，笑的那么高兴，大家都高兴
+
+
+-----
+
+####  A2014720  
+##### 17001#       发表于 2021-6-10 21:19
+
+
+【去世啊 对不起】
+【dd最喜欢了】
+【dd也没问题 】
+【来了来了】
+【最喜欢dd了】
+【我知道了啦】
+【最喜欢dd了】
+【ilove DD】
+【刚才被发了10词】
+【完全懂不了评论区啊】
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17002#       发表于 2021-6-10 21:19
+
+
+属于是生活所迫了
+
+
+-----
+
+####  シルフィエット  
+##### 17003#       发表于 2021-6-10 21:23
+
+
+CTMD傻逼鳖星，气得忘了今天有B限
+
+
+-----
+
+####  T_Hb  
+##### 17004#       发表于 2021-6-10 21:24
+
+
+ 本帖最后由 T_Hb 于 2021-6-10 21:28 编辑 
+
+这首状态也太好了，我已经在期待等下的歌回了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 17005#       发表于 2021-6-10 21:29
+
+
+下回？等会继续youtube
+
+
+-----
+
+####  时间在我手中  
+##### 17006#       发表于 2021-6-10 21:30
+
+
+ 本帖最后由 时间在我手中 于 2021-6-10 21:32 编辑 
+
+老子赢了，是我的choir jail
+
+糊了，这下寄了
+
+
+-----
+
+####  路人庚  
+##### 17007#       发表于 2021-6-10 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51549629&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-6-10 21:19</a>
+
+【去世啊 对不起】
+
+【dd最喜欢了】
+
+【dd也没问题 】</blockquote>
+给不看画面听播观众的解释：因为b站的手机app好像出了个新礼物，只要有人送就会把评论栏全部遮住，然后一大堆“AWSL”“我永远单推”“PRPRPR”等等弹幕飘过，于是有人连送了一大堆这个礼物把手机app的评论栏全挡住了一段时间，你咩姐因为看懂了单推两个字于是说了这一段，意思是想让大伙别送这个了（
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  T_Hb  
+##### 17008#       发表于 2021-6-10 21:39
+
+
+梦想几度重生咋唱的这么好呢
+
+
+                                                

@@ -1309,3 +1309,26 @@ Q娃形态用枪械的，屑人鱼的确应该是第一个</blockquote>
 
 
                                                  
+
+-----
+
+####  caicaistar  
+##### 1604#       发表于 2021-6-10 20:57
+
+
+这届士大夫是不是偏爱papaya？
+
+
+-----
+
+####  Blackson  
+##### 1605#       发表于 2021-6-10 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51549296&amp;ptid=1963832" target="_blank">caicaistar 发表于 2021-6-10 20:57</a>
+
+这届士大夫是不是偏爱papaya？</blockquote>
+我觉得是萝拉吧。至少播到现在，大部分单元回的亮点都聚焦于她，更别说最近的剧情都集中在她身上，给她成Q娃作铺垫了
+
+
+                                                 

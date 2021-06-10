@@ -10925,3 +10925,67 @@ pp成功实践了
 
 
                                                  
+
+-----
+
+####  白玫瑰之夜  
+##### 851#       发表于 2021-6-10 21:11
+
+
+可能类似于虫群得铺菌毯？这帮怪兽得通过红尘来提供能量，红尘没了直接去世，前几集拉顿暴毙大概也是因为没红尘供能？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  mofuli  
+##### 852#       发表于 2021-6-10 21:14
+
+
+有最新集的磁力链吗？
+
+
+-----
+
+####  白玫瑰之夜  
+##### 853#       发表于 2021-6-10 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51549560&amp;ptid=1963627" target="_blank">mofuli 发表于 2021-6-10 21:14</a>
+
+有最新集的磁力链吗？</blockquote>
+magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20Godzilla%20S.P%20-%2012%20%5B1080p%5D&amp;tr=http%3A%2F%2Fnyaa.tracker.wf%3A7777%2Fannounce&amp;tr=udp%3A%2F%2Fopen.stealth.si%3A80%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.opentrackr.org%3A1337%2Fannounce&amp;tr=udp%3A%2F%2Fexodus.desync.com%3A6969%2Fannounce&amp;tr=udp%3A%2F%2Ftracker.torrent.eu.org%3A451%2Fannounce
+
+
+-----
+
+####  菲特妹  
+##### 854#       发表于 2021-6-10 21:19
+
+
+那些蛾子是魔斯拉的化身吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  -Vanitas-  
+##### 855#       发表于 2021-6-10 21:19
+
+
+总共几集？
+
+
+-----
+
+####  千恋万花  
+##### 856#       发表于 2021-6-10 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51549612&amp;ptid=1963627" target="_blank">-Vanitas- 发表于 2021-6-10 21:19</a>
+
+总共几集？</blockquote>
+13
+
+
+                                                 
