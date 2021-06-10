@@ -4872,3 +4872,248 @@ CNM,叔叔的大手还是管到了。不过她突然B限的时候大概就猜出
 
 
                                                  
+
+-----
+
+####  whbstc4545  
+##### 16931#       发表于 2021-6-10 13:53
+
+
+希望今晚来个雀魂，可以尝试狙击一波，或者来个高质量歌回、沙雕小游戏回也行<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16932#       发表于 2021-6-10 13:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51543680&amp;ptid=1973472" target="_blank">Klience 发表于 2021-6-10 13:22</a>
+
+看到评论置顶里有bgm1 2 不知道有没有你想要的 没带耳机听不了</blockquote>
+能截图看看吗，我去404看那个最初的出道视频没找到
+
+
+-----
+
+####  T_Hb  
+##### 16933#       发表于 2021-6-10 13:56
+
+
+B限提前到8点了
+
+
+-----
+
+####  Klience  
+##### 16934#       发表于 2021-6-10 13:59
+
+
+我找的是啊B那边的 没有去听<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+微信图片_20210610135943.jpg
+(47.39 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-10 13:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/10/135839l0ze4lqcigg4ppyz.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16935#       发表于 2021-6-10 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544105&amp;ptid=1973472" target="_blank">Klience 发表于 2021-6-10 13:59</a>
+
+我找的是啊B那边的 没有去听</blockquote>
+听了，都不是
+[https://www.youtube.com/watch?v=8iAoj3maI04](https://www.youtube.com/watch?v=8iAoj3maI04)
+
+就这里面这个登登登，吊人模仿了一小段的
+
+
+-----
+
+####  T_Hb  
+##### 16936#       发表于 2021-6-10 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544161&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-10 14:03</a>
+
+听了，都不是
+
+https://www.youtube.com/watch?v=8iAoj3maI04
+
+就这里面这个登登登，吊人模仿了一小段的 ...</blockquote>
+你说的口技啊，那是加勒比海盗主题曲He's a pirate，她哼的和BGM不是一个调
+
+
+-----
+
+####  时间在我手中  
+##### 16937#       发表于 2021-6-10 14:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544208&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-10 14:06</a>
+你说的口技啊，那是加勒比海盗主题曲He's a pirate，她哼的和BGM不是一个调</blockquote>
+不是口技。。。我发的链接里面她开头噔噔噔也模仿了几句的。然后就打招呼
+
+
+-----
+
+####  Klience  
+##### 16938#       发表于 2021-6-10 14:12
+
+
+好了 已经变成了无情的唱歌机器人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 16939#       发表于 2021-6-10 14:12
+
+
+【神楽めあ 推特发布】
+内容：🍥今日の予定🍥
+
+20：00　BiliBili限定配信
+【B站限定/歌回】謝謝～～～～～～～～～
+https://t.co/t7sYFy0rW0
+
+22：00　Youtube配信
+【歌枠/アーカイブなし】バラードで即落ち3秒確定演出【神楽めあ​】
+https://t.co/WyoVHu0q7w
+
+長時間だと思うので見れる時間帯のものを見てね～～🍥🍥 https://t.co/kdzgJ3kGMZ
+时间：2021-06-10 14:09:26 UTC+08:00
+
+
+-----
+
+####  T_Hb  
+##### 16940#       发表于 2021-6-10 14:12
+
+
+开局小号 然后噔噔噔 然后扣你吉瓦 是这个噔噔蹬吧，是的就是我刚才说的
+
+
+-----
+
+####  ashero  
+##### 16941#       发表于 2021-6-10 14:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">b限开嗓是吧
+
+
+-----
+
+####  雪风utopia  
+##### 16942#       发表于 2021-6-10 14:14
+
+
+看吧，是三板斧，不用倒立导管了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 16943#       发表于 2021-6-10 14:18
+
+
+麻姨来批站要唱什么拉夫歌呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16944#       发表于 2021-6-10 14:18
+
+
+那必是china advice
+
+
+-----
+
+####  时间在我手中  
+##### 16945#       发表于 2021-6-10 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544283&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-10 14:12</a>
+
+开局小号 然后噔噔噔 然后扣你吉瓦 是这个噔噔蹬吧，是的就是我刚才说的</blockquote>
+[https://b23.tv/ZwEzI2?share_medi ... mp;ts=1623305944925](https://b23.tv/ZwEzI2?share_medium=android&amp;share_source=qq&amp;bbid=XYD0024DBA3BB5C66027198ED0408E58694A7&amp;ts=1623305944925)
+
+她这个批站打招呼也是这歌BGM  真的就是he s a pirate变奏？
+
+
+实在不行我晚上去找她过往bgm使用来源了，日
+
+
+-----
+
+####  雪风utopia  
+##### 16946#       发表于 2021-6-10 14:21
+
+
+China<img src="https://static.saraba1st.com/image/smiley/face2017/242.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 16947#       发表于 2021-6-10 14:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544379&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-10 14:20</a>
+
+https://b23.tv/ZwEzI2?share_medium=android&amp;share_source=qq&amp;bbid=XYD0024DBA3BB5C66027198ED0408E5869 ...</blockquote>
+她噔的是he's a pirate 但是BGM不是，这BGM我去人声都没搜出来是啥
+
+
+-----
+
+####  时间在我手中  
+##### 16948#       发表于 2021-6-10 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544394&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-10 14:22</a>
+
+她噔的是he's a pirate 但是BGM不是，这BGM我去人声都没搜出来是啥</blockquote>
+最怕就是这种纯bgm····行吧谢谢了，晚上我尽力了
+
+
+万万没想到早期那堆直播bgm合集竟然没找到这首，强迫症犯了
+
+
+-----
+
+####  Klience  
+##### 16949#       发表于 2021-6-10 14:41
+
+
+要不你直接去网易云搜轻松纯音乐的歌单一首首听吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 16950#       发表于 2021-6-10 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544603&amp;ptid=1973472" target="_blank">Klience 发表于 2021-6-10 14:41</a>
+
+要不你直接去网易云搜轻松纯音乐的歌单一首首听吧</blockquote>
+网易云没有的歌海了去了）
+
+
+                                                 

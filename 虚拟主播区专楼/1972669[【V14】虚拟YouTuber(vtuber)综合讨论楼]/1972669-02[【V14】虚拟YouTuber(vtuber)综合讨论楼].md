@@ -7496,3 +7496,27 @@ mgmg<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referr
 
 
                                                  
+
+-----
+
+####  free  
+##### 2091#       发表于 2021-6-10 14:30
+
+
+[https://bw.bilibili.com/2021/index.html#/Guest](https://bw.bilibili.com/2021/index.html#/Guest)
+
+
+BW名单
+
+
+-----
+
+####  JoelBirch  
+##### 2092#       发表于 2021-6-10 14:35
+
+
+没想到这么快就定下直播时间了，6月13号晚9点联动直播，联动对象是……自己的fanart作者<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+月灵，不愧是你<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+                                                 
