@@ -14011,3 +14011,53 @@ https://www.zhihu.com/qu ...</blockquote>
 
 
                                                  
+
+-----
+
+####  Keynes  
+##### 55200#       发表于 2021-6-10 08:18
+
+
+不得不说打半天结果一个没死雷声大雨点小还是没有死两个人来的得劲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  汤圆です  
+##### 55201#       发表于 2021-6-10 08:29
+
+
+看历史正文有罗宾，没大和什么事，她上船的作用就是多个打手，顺便让御田之魂缠着草帽团<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  穆  
+##### 55202#       发表于 2021-6-10 09:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51538275&amp;ptid=98922" target="_blank">风浦可符香(P.N) 发表于 2021-6-10 00:05</a>
+
+反正和之国画成这个样也没救了，大和上船仔细想想相当于有两个娜美卖福利，可以接受
+
+
+不过能不能把兔子也捎 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/goose2017/022.png" referrerpolicy="no-referrer">看不起我月亮狮子嘛
+
+
+-----
+
+####  klzxs  
+##### 55203#       发表于 2021-6-10 09:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">毛皮族算了吧 一窝一起上都被长子团灭了
+
+最强的猫狗也就三灾级别 
+
+大和马上打凯多了 别太难看了基本就是猫狗之上
+
+
+                                                
