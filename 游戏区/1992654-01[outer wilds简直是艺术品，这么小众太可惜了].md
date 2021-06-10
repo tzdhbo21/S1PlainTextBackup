@@ -2322,3 +2322,34 @@ steam史低48
 
 
                                                  
+
+-----
+
+####  妮贝雅  
+##### 175#       发表于 2021-6-11 02:35
+
+
+<blockquote>Dgnic_ 发表于 2021-6-11 01:27
+既然言以至此，那就再请教一个问题好了。
+
+
+这次是一个关于黑棘星的问题，具体的问题如下（反白）：
+</blockquote>
+其实红色种子进去后完全不用动 按着进去后的方向飘就行了233那3个安康鱼就是吓唬人的
+
+
+-----
+
+####  Dgnic_  
+##### 176#       发表于 2021-6-11 02:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51552158&amp;ptid=1992654" target="_blank">a-ha 发表于 2021-6-11 01:48</a>
+我试着解释一下。不过我通关太久都忘得差不多了，可能会有口胡。
+
+下面这三条对游戏流程的剧透是递进的， ...</blockquote>
+事实上那个宇航员我也找到了，不过我显然没懂<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">也是用我那一楼用的方式，一路冲着信号点跑解决的。
+说得很清楚，感谢感谢，明天试试。<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+                                                 
