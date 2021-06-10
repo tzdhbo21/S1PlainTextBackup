@@ -10880,3 +10880,37 @@ pp成功实践了
 
 
                                                  
+
+-----
+
+####  Freakyyu  
+##### 849#       发表于 2021-6-10 16:24
+
+
+<img src="https://img.saraba1st.com/forum/202106/10/161752ne65ow1or6imweeo.png" referrerpolicy="no-referrer">
+
+
+<strong>[GST] Godzilla S.P - 12 [1080p].mkv - MPC-BE x64 1.5.7 2021_6_10 16_11_09.png</strong> (418.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-10 16:17 上传
+
+
+可能梵高也预言过破局吧。这片子的理论我已经彻底不想理解了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/10/161936ov0oh944jx333fhk.png" referrerpolicy="no-referrer">
+
+
+<strong>MPC-BE x64 1.5.7 2021_6_10 16_19_29.png</strong> (232.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-10 16:19 上传
+
+
+另外为什么这玩意被结晶捅了之后仿佛死得很彻底，然而外部结晶崩坏之后身体里明明还插着结晶却完全没事了。要么之前插着结晶还能挣扎，要么直接死透，现在这合理吗<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+                                                 

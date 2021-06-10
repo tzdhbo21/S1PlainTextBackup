@@ -7540,3 +7540,79 @@ BW名单
 
 
                                                  
+
+-----
+
+####  OldGlory  
+##### 2095#       发表于 2021-6-10 15:57
+
+
+自己的龙落自己吃了有什么问题
+
+
+-----
+
+####  深渊萃取  
+##### 2096#       发表于 2021-6-10 16:02
+
+
+是不是还得感谢冲蝗人的引流啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Kanchiki  
+##### 2097#       发表于 2021-6-10 16:06
+
+
+所以外面没开烧吗？杏V的订阅掉了吗？
+
+逛了下K里怎么好像4V龙子都已经把自己说服了
+
+白皮战斗力应该没这么弱吧
+
+昨天还迫不及待想要看到holo炸箱呢
+
+怎么今天感觉跟无事发生一样 真是无趣
+
+
+-----
+
+####  caupollen  
+##### 2098#       发表于 2021-6-10 16:19
+
+
+ 本帖最后由 caupollen 于 2021-6-10 16:20 编辑 
+
+没啥事那下一步就是玩一次中资游戏了，看看白皮4v会不会车一车自己心爱的直播员
+
+
+-----
+
+####  alcoholic1000  
+##### 2099#       发表于 2021-6-10 16:30
+
+
+<img src="https://img.saraba1st.com/forum/202106/10/162748wl2qvldq3vbvfpg2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>KING2000万再生大感謝祭を開催します .jpg</strong> (416.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-10 16:27 上传
+
+
+KING2000万再生大感謝祭を開催します
+
+まじでありがとう
+
+illust:AKKE(@ akke299)
+
+
+2000万再生大感謝祭是什么，live吗<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer"> 
+
+
+                                                 
