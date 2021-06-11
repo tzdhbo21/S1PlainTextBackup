@@ -11123,3 +11123,16 @@ magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20
 
 
                                                  
+
+-----
+
+####  不灭的旋律  
+##### 861#       发表于 2021-6-11 12:48
+
+
+使用高次元之力的SP究极哥斯拉是不是目前唯一可能对老虚版基多拉造成伤害的哥总？老虚基多拉只要有观察者就是无敌的，其他哥总一起上都没用。但哥斯拉地球拿究极哥斯拉当武器或许可以一战？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看官网说明究极哥斯拉还能再往上进化，这集在红尘中发出吼声的已经不知道是什么东西了
+
+
+                                                 

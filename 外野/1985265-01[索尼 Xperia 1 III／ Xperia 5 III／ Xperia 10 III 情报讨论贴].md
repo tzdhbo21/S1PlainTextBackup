@@ -8634,3 +8634,23 @@ https://b23.tv/ntC1as</blockquote>
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 621#       发表于 2021-6-11 12:55
+
+
+ 本帖最后由 我很费纸 于 2021-6-11 12:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51556525&amp;ptid=1985265" target="_blank">leystage 发表于 2021-6-11 11:48</a>
+电池从4000加到4500，待机应该还是会延长的</blockquote>
+电池4500+888估计和4000+865区别不大<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀，可惜换不得。
+
+要是在这个基础上还能把电池削一削容量换个无线充电，这一波我直接特么买爆，可惜还是梦。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

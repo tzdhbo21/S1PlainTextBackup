@@ -6176,3 +6176,35 @@ measuki
 
 
                                                  
+
+-----
+
+####  暴走的包子  
+##### 17051#       发表于 2021-6-11 12:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正我不懂日麻，看分数就行
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 17052#       发表于 2021-6-11 13:21
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/132107n44psn37pnlwocif.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (76.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 13:21 上传
+
+
+这么客气 转推套娃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
