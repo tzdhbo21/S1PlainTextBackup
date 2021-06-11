@@ -8665,3 +8665,16 @@ X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀
 
 
                                                  
+
+-----
+
+####  MuAmUa  
+##### 623#       发表于 2021-6-11 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51560220&amp;ptid=1985265" target="_blank">日霜衣 发表于 2021-6-11 16:38</a>
+ 激活了推不掉，6k出谁接盘啊？</blockquote>
+不好用？
+
+
+                                                 
