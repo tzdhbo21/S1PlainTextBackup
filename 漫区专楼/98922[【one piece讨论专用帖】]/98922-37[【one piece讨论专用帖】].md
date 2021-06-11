@@ -14167,3 +14167,37 @@ https://www.zhihu.com/qu ...</blockquote>
 
 
                                                  
+
+-----
+
+####  萝卜roto  
+##### 55213#       发表于 2021-6-11 11:52
+
+
+wt是不是画着画着就忘了甚平了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+说上船就上船，有奶的待遇就是好
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  memo2  
+##### 55214#       发表于 2021-6-11 12:08
+
+
+我还以为和之国过后可以和御田这笔说再见，这大和上船不得吹到结局，吐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 55215#       发表于 2021-6-11 12:29
+
+
+ 本帖最后由 谁说法海不懂爱 于 2021-6-11 12:30 编辑 
+
+船上应该不会有两个娜美脸吧，我本想这么说，但一想那可是那个御田。。。
+
+
+                                                 
