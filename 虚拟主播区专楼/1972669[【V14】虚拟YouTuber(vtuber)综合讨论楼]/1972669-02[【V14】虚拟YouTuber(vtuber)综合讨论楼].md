@@ -8538,3 +8538,17 @@ logicmagic是真的不行，字幕组联系多少次了不来，来了就为了�
 
 
                                                  
+
+-----
+
+####  TiHaru  
+##### 2170#       发表于 2021-6-12 02:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51565800&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-12 01:53</a>
+
+是你啊大哥！郡道攻击性最强的两个状态：被指示+吃瘪，她喷火菜得跟啥一样还被叫去用估计气够呛[f: ...</blockquote>
+是我以己度人了，我以为喷火射速慢会比较容易上手来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
