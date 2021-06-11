@@ -11636,3 +11636,76 @@ wada我也好了，这个实装我就不黑了233
 
 
                                                  
+
+-----
+
+####  白夜羽  
+##### 79001#       发表于 2021-6-11 22:31
+
+
+成了，彩圈熬得羞死<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+正好石头0，该退坑了
+
+
+-----
+
+####  Jamaisvu  
+##### 79002#       发表于 2021-6-11 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564101&amp;ptid=1085254" target="_blank">J-002 发表于 2021-6-11 22:24</a>
+
+妖高文，真名巴格斯特（バーゲスト/Barguest）英格兰民间传说中告知不吉的黑犬妖精
+
+
+妖悲伤，真名巴温·西 ...</blockquote>
+摩根叫不来本尊，只好找了群山精树怪COSPLAY圆桌众的并感...
+
+
+让我想起了真假美猴王：<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+那行者道：“贤弟，你原来懞懂，但知其一，不知其二。谅你说你有唐僧，同我保护，我就没有唐僧？我这里另选个有道的真僧在此，老孙独力扶持，有何不可！已选明日起身去矣。你不信，待我请来你看。”叫：“小的们，快请老师父出来。”果跑进去，牵出一匹白马，请出一个唐三藏，跟着一个八戒，挑着行李；一个沙僧，拿着锡杖。这沙僧见了大怒道：“我老沙行不更名，坐不改姓，那里又有一个沙和尚！不要无礼！吃我一杖！”好沙僧，双手举降妖杖，把一个假沙僧劈头一下打死，原来这是一个猴精。
+
+
+-----
+
+####  eden_hazard  
+##### 79003#       发表于 2021-6-11 22:47
+
+
+我原以为7月开后篇是良心发现了，结果总共38节前篇只到9节……
+
+
+-----
+
+####  Jamaisvu  
+##### 79004#       发表于 2021-6-11 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564342&amp;ptid=1085254" target="_blank">eden_hazard 发表于 2021-6-11 22:47</a>
+
+我原以为7月开后篇是良心发现了，结果总共38节前篇只到9节……</blockquote>
+直播时说了，2.6总文本量相当于四册文库本，前篇占30%，后篇占70%...
+
+
+-----
+
+####  远野四季  
+##### 79005#       发表于 2021-6-11 23:31
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/233101vxwqkrx63lwvq1re.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210611_233017_759.jpg</strong> (29.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 23:31 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
