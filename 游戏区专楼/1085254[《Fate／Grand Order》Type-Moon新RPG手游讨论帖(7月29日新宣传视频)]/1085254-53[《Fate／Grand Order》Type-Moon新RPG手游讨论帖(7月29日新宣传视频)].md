@@ -11709,3 +11709,194 @@ wada我也好了，这个实装我就不黑了233
 
 
                                                  
+
+-----
+
+####  J-002  
+##### 79006#       发表于 2021-6-11 23:36
+
+
+奥丁居然就这么落地了……
+
+
+-----
+
+####  alucardcz  
+##### 79007#       发表于 2021-6-11 23:43
+
+
+9节还没ｆｒｅｅ
+
+看来没打算分上下部是真的。。。只是纯粹摸鱼过头来不及做<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yzj134100  
+##### 79008#       发表于 2021-6-11 23:43
+
+
+两发摩根高文到手，继续咸鱼到下个新池再见
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  里村紅葉  
+##### 79009#       发表于 2021-6-11 23:44
+
+
+100抽了还是只有一张女崔
+
+
+想了想上次看见5星应该是2月份的事了，今年是霉年<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79010#       发表于 2021-6-11 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564776&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 23:44</a>
+
+100抽了还是只有一张女崔
+
+
+想了想上次看见5星应该是2月份的事了，今年是霉年 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不才4个月吗，我当年半年0五星，你这还不行
+
+
+-----
+
+####  angelooo  
+##### 79011#       发表于 2021-6-11 23:51
+
+
+<blockquote>Jamaisvu 发表于 2021-6-11 22:47
+摩根叫不来本尊，只好找了群山精树怪COSPLAY圆桌众的并感...
+
+
+让我想起了真假美猴王：
+</blockquote>
+是小雷音寺233
+
+
+-----
+
+####  khxooo  
+##### 79012#       发表于 2021-6-11 23:52
+
+
+刚刚想了想，最新的5星是达芬骑2宝草<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79013#       发表于 2021-6-11 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564794&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-11 23:45</a>
+
+这不才4个月吗，我当年半年0五星，你这还不行</blockquote>
+去年一年总共充了不到4单出了20多个五星，今年还债了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79014#       发表于 2021-6-11 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564776&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 23:44</a>
+
+100抽了还是只有一张女崔
+
+
+想了想上次看见5星应该是2月份的事了，今年是霉年 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/11/235430o8nnllqhz560998u.png" referrerpolicy="no-referrer">
+
+
+<strong>212.png</strong> (180.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 23:54 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就这？　看看萌新最后一个新５星是几月几号
+
+
+-----
+
+####  里村紅葉  
+##### 79015#       发表于 2021-6-11 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564878&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-11 23:54</a>
+
+就这？　看看萌新最后一个新５星是几月几号</blockquote>
+你去跟我楼上PK吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79016#       发表于 2021-6-11 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564869&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 23:53</a>
+
+去年一年总共充了不到4单出了20多个五星，今年还债了</blockquote>
+欧羡慕<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79017#       发表于 2021-6-11 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564887&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 23:55</a>
+
+你去跟我楼上PK吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ｐ个猫啊　小碧池不是刚刚ｕｐ过
+
+
+-----
+
+####  黑上シグマ  
+##### 79018#       发表于 2021-6-11 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51564869&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 23:53</a>
+
+去年一年总共充了不到4单出了20多个五星，今年还债了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你信不信我打死你
+
+
+-----
+
+####  上坂莲华  
+##### 79019#       发表于 2021-6-12 00:24
+
+
+<img src="https://img.saraba1st.com/forum/202106/12/002303iwk2dtttdj2fov6k.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210612002239.png</strong> (163.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-12 00:23 上传
+
+
+萌新最后一个五星也
+
+哦最后一个五星上个月出的，不好意思打扰了
+
+
+                                                 

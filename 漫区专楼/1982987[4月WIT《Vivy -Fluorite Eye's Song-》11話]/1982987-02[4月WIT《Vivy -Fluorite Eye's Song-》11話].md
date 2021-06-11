@@ -3012,3 +3012,72 @@ B站只更到第七话，最近下载站似乎也自我规制得很厉害炸不�
 
 
                                                  
+
+-----
+
+####  Piano-Forest  
+##### 1739#       发表于 2021-6-11 23:52
+
+
+【キャラクター設定】
+
+・垣谷ユイ
+<img src="https://p.sda1.dev/2/e88db13d952d8ec8ead29a08226155ef/E3WJ0ySVkBcQZqB.jpg" referrerpolicy="no-referrer">
+
+・ユイの車椅子
+<img src="https://p.sda1.dev/2/2aee284f756ea17f24e17066bdee9a5a/E3WJ2xtVkAA7pkr.jpg" referrerpolicy="no-referrer">
+
+
+「Vivy -Fluorite Eye’s Song-」 #11 原画
+<img src="https://p.sda1.dev/2/3024bb4cd53dd00c9515573f5ce7dace/E3WSXuzVoAEnDe9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/312133fb0060ab238c2228a211af9f7e/E3WSej5VoAIoGOA.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/99d99ff517b79c714045fca57bb3ff02/E3WTZTAUYAINu8e.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/5931deec556889911dd1c1a66bb3e01e/E3WT_MEVcAMABnf.jpg" referrerpolicy="no-referrer">
+
+
+【ワールドページ更新】
+
+11話キーワードを更新しました。ぜひご活用ください。
+
+[https://vivy-portal.com/world/](https://vivy-portal.com/world/)
+
+
+[KEYWORDS]
+
+・11話キーワード解説（ジャマ―装置、複製体）
+
+
+ジャマー装置
+
+#11
+
+トァク達が使用する、ECM(電子妨害)装置。AI達の動きを阻害することを目的としている。
+
+
+複製体
+
+#11
+
+オリジナルのAIのデータを移行されたAI。オリジナルの記憶や設定を引き継いでいるが、完全な同一体とは呼べず、あくまで別個体とされている。
+
+
+[Background art]
+
+・湾岸地区
+<img src="https://p.sda1.dev/2/d8ecbafc4d80536e22d96217faffef07/24.jpg" referrerpolicy="no-referrer">
+
+
+12話 Refrain -私の使命-
+
+
+「――アナタにとって、心とはなんですか？」
+
+
+「私たちの目的は、現在の人類を滅ぼすことです」。AI集合データベース”アーカイブ”の演算により、滅びの危機に瀕した人類。仇敵であったトァクと協力し、ヴィヴィは人類を滅びから救うべく、新たな作戦を開始する。
+<img src="https://p.sda1.dev/2/8851fa4745b01c0f9926a0a71aba1a2b/story_2005_photo_1623325317738658304.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/097b96f47b1256c28e12735f0bf7fdf4/story_2005_photo_1623325318684661945.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/a7ee3b75378e248635d243990edbb7ab/story_2005_photo_1623325319131741903.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/7d8a688f692b93a266dc6c599a882673/story_2005_photo_1623325319506570135.jpg" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -11150,3 +11150,89 @@ magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20
 
 
                                                  
+
+-----
+
+####  cerenkov  
+##### 863#       发表于 2021-6-12 00:12
+
+
+这集特意提到了“奇点可以是一个点、一条线又或是一个圆环”
+
+<img src="https://img.saraba1st.com/forum/202106/11/232330gh8s1o1r8rfrkznu.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>MPV-00_12_12.690-N0002.jpeg</strong> (357.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 23:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/232406eozx68xhbgo4rdg4.png" referrerpolicy="no-referrer">
+
+
+<strong>Kerr-surfaces.png</strong> (36.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 23:24 上传
+
+
+很明显是指上图旋转黑洞Kerr度规的奇异环了
+
+（物理上singularity本身意思是“奇异性”或者“具有奇异性的区域”，确实不限定于一个点，Kerr度规的奇异环也是singularity）
+
+很自然就会联想到著名的利用旋转黑洞制作虫洞的猜想见下图
+
+<img src="https://img.saraba1st.com/forum/202106/11/233551tgcfur1pqf0pqrg0.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>Penrose_Diagrams_of_various_black_hole_solutions.jpeg</strong> (95.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 23:35 上传
+
+
+虫洞既可以连接不同的宇宙，可以连接同一个宇宙的两个不同的地点，还可以连接同一个宇宙的同一个地点的两个不同的时间，也就是时间机器了
+
+还有一个细节是单从上面旋转黑洞Penrose图来看的话，穿越虫洞后可以到达两个不同的宇宙之一，或者说理解成两个不同的未来，这也许就是剧中设定超时间计算机观测到的未来不确定、有很多分支的灵感来源吧
+
+像这里的未来分支可视化估计是照抄bifurcation diagram for the logistic map，虽然说虫洞出口的两个宇宙跟这里的bifurcation本质完全不同就是了
+
+<img src="https://img.saraba1st.com/forum/202106/11/235122id6j707eh6o6hozp.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>MPV-00_16_37.997-N0003.jpeg</strong> (175.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 23:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/235243ugeb86zacmr11611.png" referrerpolicy="no-referrer">
+
+
+<strong>1542px-Logistic_Bifurcation_map_High_Resolution.png</strong> (111.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 23:52 上传
+
+
+顺便脑洞一下JJPP奔赴的战场即哥总所处的车站上空同时也是即将接受终极信息的地点，按剧情暗示接收到信息之后可以作为代码输入O.D.引爆，将会成功把所有红尘都转换形态，并且苇原预言了这样使用O.D.的话就可以避开破局？这几条线索串到一起，我唯一能想象到的是JJPP在预言的地点大喊 Let there be light（大嘘），结果把这输入O.D.引爆之后红尘都集中到了JJPP身上构造出新的肌体，JJPP真的变成了光之巨人（后面编不下去了）
+
+
+-----
+
+####  哈迪斯兜帽  
+##### 864#       发表于 2021-6-12 00:41
+
+
+十一集李博士的回忆插入也顺了
+
+看了一半才想起来其实已经躺了
+
+
+                                                 

@@ -14337,3 +14337,30 @@ op的本质是冒险
 
 
                                                  
+
+-----
+
+####  少年包工头  
+##### 55227#       发表于 2021-6-11 23:49
+
+
+甚平加入也还好吧？两年前后跟草帽团都有交情，输血更是op世界观内的史诗级壮举。
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  klzxs  
+##### 55228#       发表于 2021-6-12 00:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51563970&amp;ptid=98922" target="_blank">Yeaha123 发表于 2021-6-11 22:10</a>
+
+兜了一圈剧情把大妈弄到这，其实就是想让娜美升一下级？</blockquote>
+主要还是得和凯多分开吧
+
+升级的办法还是多的 不是宙斯也总有办法
+
+
+                                                 

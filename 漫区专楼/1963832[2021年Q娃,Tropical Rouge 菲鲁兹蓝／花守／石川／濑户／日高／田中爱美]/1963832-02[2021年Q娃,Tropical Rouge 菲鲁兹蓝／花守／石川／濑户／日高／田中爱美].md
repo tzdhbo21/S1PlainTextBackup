@@ -1365,3 +1365,17 @@ Q娃形态用枪械的，屑人鱼的确应该是第一个</blockquote>
 
 
                                                  
+
+-----
+
+####  舞野咲  
+##### 1609#       发表于 2021-6-12 00:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51549296&amp;ptid=1963832" target="_blank">caicaistar 发表于 2021-6-10 20:57</a>
+
+这届士大夫是不是偏爱papaya？</blockquote>
+偏爱珊瑚多一点吧，虽然这次四个人都各有特点没有很模板的，但珊瑚每次小技能开盾都有特写欸
+
+
+                                                 
