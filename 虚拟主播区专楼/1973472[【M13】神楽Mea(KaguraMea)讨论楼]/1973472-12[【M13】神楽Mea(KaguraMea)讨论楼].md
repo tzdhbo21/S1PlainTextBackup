@@ -6373,3 +6373,67 @@ LOL看比赛都看的我昏昏欲睡……
 
 
                                                  
+
+-----
+
+####  甘栗No.007  
+##### 17067#       发表于 2021-6-11 18:35
+
+
+四强就算赢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17068#       发表于 2021-6-11 18:36
+
+
+兰这七对听生张白谁教的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17069#       发表于 2021-6-11 18:43
+
+
+ 本帖最后由 T_Hb 于 2021-6-11 18:59 编辑 
+
+兰太郎好勇  生张不假思索就甩出去了
+
+syl 兰太郎喜提肉球<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17070#       发表于 2021-6-11 19:27
+
+
+三麻真tm魔法。这几人打的好欢乐啊
+
+
+
+
+-----
+
+####  TiHaru  
+##### 17071#       发表于 2021-6-11 20:18
+
+
+<blockquote>そらす蛇薯条fanbox&amp;fantia
+
+@mathiamo13
+
+ちょっとした落書きをしたかったので、普段は描かないタイプを選びました
+
+（アンケート2ページ目の</blockquote>
+
+[https://twitter.com/mathiamo13/status/1403322712991277064](https://twitter.com/mathiamo13/status/1403322712991277064)
+
+
+来投票了
+
+
+                                                

@@ -14241,3 +14241,65 @@ wt是不是画着画着就忘了甚平了？<img src="https://static.saraba1st.c
 
 
                                                  
+
+-----
+
+####  cdfjg  
+##### 55219#       发表于 2021-6-11 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51561358&amp;ptid=98922" target="_blank">好评加鹅 发表于 2021-6-11 18:18</a>
+ 说起来大和还算不算大嫂啊</blockquote>
+是小玉先来的！
+
+
+-----
+
+####  论讨爱  
+##### 55220#       发表于 2021-6-11 20:27
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/202648hac28vapzar3f321.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (101.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 20:26 上传
+
+
+<img src="https://i2.hoopchina.com.cn/hupuapp/bbs/354/44598354/thread_44598354_20210611191204_s_101948_w_880_h_422_27769.jpg?x-oss-process=image/resize,w_800/format,webp" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GreenBird  
+##### 55221#       发表于 2021-6-11 20:35
+
+
+我03年开始追OP的漫画，其实至今对于布鲁克上船，还是隐隐约约有点小突兀。甚平就不用说了。我觉得不需要纠结10个人了。连载这么久，该经历的都经历得差不多了，之后就是大战，单纯为了补充战斗力，那就大船团啊。要剧情工具人，为什么非要做伙伴。
+
+
+-----
+
+####  GreenBird  
+##### 55222#       发表于 2021-6-11 20:37
+
+
+大和崇拜的是御田，对路飞一伙没有什么羁绊，也只是想借路飞一伙出海而已。互为工具人？我接受唔到咯。
+
+
+-----
+
+####  zxzx7753  
+##### 55223#       发表于 2021-6-11 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562814&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-6-11 20:35</a>
+
+我03年开始追OP的漫画，其实至今对于布鲁克上船，还是隐隐约约有点小突兀。甚平就不用说了。我觉得不需要纠 ...</blockquote>
+op的本质是冒险
+
+
+                                                 

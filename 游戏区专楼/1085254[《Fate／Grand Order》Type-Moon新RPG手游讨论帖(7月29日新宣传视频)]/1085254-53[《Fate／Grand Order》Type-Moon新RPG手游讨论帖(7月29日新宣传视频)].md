@@ -10351,3 +10351,1102 @@ C呆语音里给过梅芙的提示（对Rider梅芙语音），情人节的时�
 
 
                                                  
+
+-----
+
+####  飞霞精灵  
+##### 78883#       发表于 2021-6-11 18:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51544003&amp;ptid=1085254" target="_blank">snakeling 发表于 2021-6-10 13:50</a>
+
+大胆点，为什么不能有旧梅呢？</blockquote>
+旧梅不是已经有了吗，我印象里在街机上了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78884#       发表于 2021-6-11 19:01
+
+
+没意思 又分2章。。。。。。。。突然就不想打了
+
+
+-----
+
+####  sandro  
+##### 78885#       发表于 2021-6-11 19:03
+
+
+麻痹又是前片
+
+
+-----
+
+####  khxooo  
+##### 78886#       发表于 2021-6-11 19:03
+
+
+假舅舅<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 78887#       发表于 2021-6-11 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51561766&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-11 05:01</a>
+
+没意思 又分2章。。。。。。。。突然就不想打了</blockquote>
+最搞笑的是还欲盖弥彰的解释了一下：2.5我们是实装前就决定好的，2.6我们是纯粹因为文本量太大了
+
+只能说有病<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sosgame67  
+##### 78888#       发表于 2021-6-11 19:05
+
+
+又拖半年，这吃相<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  eden_hazard  
+##### 78889#       发表于 2021-6-11 19:07
+
+
+估计2.6和2.7加起来水个三年算少的，算上各种2.X.5和终章能拖5年
+
+
+-----
+
+####  超阳电子炮  
+##### 78890#       发表于 2021-6-11 19:07
+
+
+舅舅大失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78891#       发表于 2021-6-11 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51561827&amp;ptid=1085254" target="_blank">eden_hazard 发表于 2021-6-11 19:07</a>
+
+估计2.6和2.7加起来水个三年算少的，算上各种2.X.5和终章能拖5年</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我估计啊 这2。6下半大概今年年底能出就不错了 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 2。7 2023年估计还没结束
+
+
+-----
+
+####  白金口袋  
+##### 78892#       发表于 2021-6-11 19:13
+
+
+测试玩家底线呗
+
+2.5和2.6分两章也没人炎上那2.7就分3章，最终决战分4章，反正咋分母猪都买账，拖得天荒地老<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78893#       发表于 2021-6-11 19:14
+
+
+ 本帖最后由 alucardcz 于 2021-6-11 19:16 编辑 
+
+这妖精王奥伯龙丑爆了。。。。。。。。。。。。
+
+
+-----
+
+####  habita  
+##### 78894#       发表于 2021-6-11 19:14
+
+
+难怪今天叫河西来
+
+
+-----
+
+####  khxooo  
+##### 78895#       发表于 2021-6-11 19:15
+
+
+这妖精王哈哈哈哈哈哈哈哈哈哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smdzh2  
+##### 78896#       发表于 2021-6-11 19:15
+
+
+哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cckuku  
+##### 78897#       发表于 2021-6-11 19:15
+
+
+丑死了丑死了丑死了<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">希望是限定歪不到
+
+
+-----
+
+####  eden_hazard  
+##### 78898#       发表于 2021-6-11 19:16
+
+
+我宁愿分成3章，只求把这妖精王回炉重画
+
+
+-----
+
+####  xiongxingyu  
+##### 78899#       发表于 2021-6-11 19:16
+
+
+说实话，只要剧情不缩水，分上下我是没啥意见的，毕竟2.5分上下了单部剧情量依然完爆前期章节，一口气更新太多肝和钱包也跟不上啊。就是下礼拜大概率木得抽王姐了我好气阿<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smdzh2  
+##### 78900#       发表于 2021-6-11 19:17
+
+
+虚数居然要无了，时代の涙
+
+
+
+
+-----
+
+####  alucardcz  
+##### 78901#       发表于 2021-6-11 19:18
+
+
+c狗改模了  
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前那舅舅的爆料谁还保存着
+
+
+-----
+
+####  alucardcz  
+##### 78902#       发表于 2021-6-11 19:19
+
+
+草 真正的高文！  还是麻团配的
+
+
+-----
+
+####  白金口袋  
+##### 78903#       发表于 2021-6-11 19:20
+
+
+ 本帖最后由 白金口袋 于 2021-6-11 05:21 编辑 
+
+诶？这个缝合高仿圆桌舅舅奶对了啊？
+
+那妖妃啥的基本稳了啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cckuku  
+##### 78904#       发表于 2021-6-11 19:20
+
+
+崔悲伤这画风好眼熟啊？
+
+
+-----
+
+####  alucardcz  
+##### 78905#       发表于 2021-6-11 19:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正的崔悲伤.jpg　　这是要全员娘化？
+
+
+-----
+
+####  smdzh2  
+##### 78906#       发表于 2021-6-11 19:20
+
+
+看来是奶对了？圆桌基佬娘化
+
+
+-----
+
+####  sandro  
+##### 78907#       发表于 2021-6-11 19:21
+
+
+舅舅全中啊
+
+
+-----
+
+####  khxooo  
+##### 78908#       发表于 2021-6-11 19:21
+
+
+不是抢不是术是狂，还是光炮
+
+
+-----
+
+####  xiongxingyu  
+##### 78909#       发表于 2021-6-11 19:22
+
+
+和舅舅奶的有微妙的不同阿，尤其是这个王姐，而且舅舅奶的是二期
+
+
+-----
+
+####  卒业之勇  
+##### 78910#       发表于 2021-6-11 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51561974&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-6-11 19:20</a>
+
+崔悲伤这画风好眼熟啊？</blockquote>
+望月けい
+
+
+-----
+
+####  smdzh2  
+##### 78911#       发表于 2021-6-11 19:22
+
+
+拿拐杖的狂阶<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  飞霞精灵  
+##### 78912#       发表于 2021-6-11 19:22
+
+
+我记得之前P站有过圆桌团娘化的一张图，是个韩国人画的貌似，还挺好看的。
+
+
+-----
+
+####  清风朗月  
+##### 78913#       发表于 2021-6-11 19:23
+
+
+猜猜这次会不会有女粉炎上<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 78914#       发表于 2021-6-11 19:23
+
+
+哎呦这个老崔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yangun22  
+##### 78915#       发表于 2021-6-11 19:23
+
+
+舅舅情报不全啊，又是外包的么
+
+
+-----
+
+####  白夜羽  
+##### 78916#       发表于 2021-6-11 19:24
+
+
+这个大扑棱蛾子笑翻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  卒业之勇  
+##### 78917#       发表于 2021-6-11 19:24
+
+
+下篇这么快出啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yangun22  
+##### 78918#       发表于 2021-6-11 19:24
+
+
+7月14号后章，我相信这是真的来不及做了啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78919#       发表于 2021-6-11 19:24
+
+
+什么　后篇７月１４号？　　不敢信
+
+
+-----
+
+####  sandro  
+##### 78920#       发表于 2021-6-11 19:24
+
+
+这次总算快了
+
+
+-----
+
+####  白金口袋  
+##### 78921#       发表于 2021-6-11 19:24
+
+
+卧槽居然把后篇时期说死了，这次怎么突然这么良心？
+
+
+-----
+
+####  alucardcz  
+##### 78922#       发表于 2021-6-11 19:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那我不打了　　等１４号一起打
+
+
+-----
+
+####  khxooo  
+##### 78923#       发表于 2021-6-11 19:25
+
+
+不摸了啊，估计要和6周年搞个大的。
+
+
+-----
+
+####  exiaexa  
+##### 78924#       发表于 2021-6-11 19:26
+
+
+卧槽，这不得氪死
+前篇王姐+剧情限定
+后章怕不是再来一次，然后马上接泳装和周年限定
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78925#       发表于 2021-6-11 19:26
+
+
+看来中间还有个活动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stefanie张  
+##### 78926#       发表于 2021-6-11 19:26
+
+
+不打不怕铺天盖地的剧透吗？
+
+
+-----
+
+####  白金口袋  
+##### 78927#       发表于 2021-6-11 19:26
+
+
+高文的画师也超好认，めろん２２，P战ID2963688，标志性巨R粗腿<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78928#       发表于 2021-6-11 19:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等个摩根满破图　　那谁会不会还是那么摸
+
+
+-----
+
+####  上坂莲华  
+##### 78929#       发表于 2021-6-11 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562049&amp;ptid=1085254" target="_blank">stefanie张 发表于 2021-6-11 19:26</a>
+
+不打不怕铺天盖地的剧透吗？</blockquote>
+你猜猜楼里有多少skip的<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 78930#       发表于 2021-6-11 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562043&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-11 05:26</a>
+
+卧槽，这不得氪死
+
+前篇王姐+剧情限定
+
+后章怕不是再来一次，然后马上接泳装和周年限定</blockquote>
+但是前篇大概会混进去个妖精王恶心你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  rooarr  
+##### 78931#       发表于 2021-6-11 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562029&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-11 19:25</a>
+那我不打了　　等１４号一起打</blockquote>
+应该是有任务的，不打少石头啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  RUANHYC  
+##### 78932#       发表于 2021-6-11 19:28
+
+
+后篇一起出，是不是上半年摸得鱼都在搞2.6啊
+
+
+-----
+
+####  alucardcz  
+##### 78933#       发表于 2021-6-11 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562067&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-6-11 19:28</a>
+
+应该是有任务的，不打少石头啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啊　这还有任务？
+
+
+-----
+
+####  Jamaisvu  
+##### 78934#       发表于 2021-6-11 19:29
+
+
+进了型月体系终究难逃一转吗...又或许是女妖精取代了圆桌骑士的身份？妖崔的画风看着有点眼熟，是不是魔界战记的...
+
+
+-----
+
+####  月球列车  
+##### 78935#       发表于 2021-6-11 19:29
+
+
+这几个性转看的心里毫无波澜，等夏活了
+
+
+-----
+
+####  exiaexa  
+##### 78936#       发表于 2021-6-11 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562066&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-6-11 19:27</a>
+但是前篇大概会混进去个妖精王恶心你</blockquote>
+无所谓啊，歪一个开图鉴也好，又不是每天都up
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78937#       发表于 2021-6-11 19:30
+
+
+蝴蝶男丑死了艹，等王姐其他卡面，女高文和红毛都挺微妙
+
+
+-----
+
+####  katun  
+##### 78938#       发表于 2021-6-11 19:32
+
+
+曾经还是武内厨的我到现在也是不想再看社长谨制114514个傻吧复制人了<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Jamaisvu  
+##### 78939#       发表于 2021-6-11 19:34
+
+
+摩尔根没有呆毛，长得更像黑呆，但这个发型莫名地像美狄亚...
+
+
+-----
+
+####  alucardcz  
+##### 78940#       发表于 2021-6-11 19:34
+
+
+卡面出来了。。那谁真的是摸。。。。
+
+
+-----
+
+####  alucardcz  
+##### 78941#       发表于 2021-6-11 19:36
+
+
+高文这是从太阳骑士变地狱骑士了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78942#       发表于 2021-6-11 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562074&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-11 19:29</a>
+啊　这还有任务？</blockquote>
+现在不就是有任务的吗，我估计后面开的会跟2.6有关<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 78943#       发表于 2021-6-11 19:37
+
+
+这卡池完全没有抽的欲望啊.....又省石了
+
+
+-----
+
+####  smdzh2  
+##### 78944#       发表于 2021-6-11 19:37
+
+
+解包出来了
+
+王姐这站姿…不就是术呆二破水平翻转一下嘛，而且还加上了武内祖传的抓奶龙爪手<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑暗剑  
+##### 78945#       发表于 2021-6-11 19:38
+
+
+高文过于瑟琴了
+
+
+-----
+
+####  alucardcz  
+##### 78946#       发表于 2021-6-11 19:38
+
+
+ 本帖最后由 alucardcz 于 2021-6-11 19:40 编辑 
+
+王姐红卡光炮吗　５０自充　舅舅又凉了？
+
+
+-----
+
+####  ネロ  
+##### 78947#       发表于 2021-6-11 19:40
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/193943qx00bmie55ooz5i0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021061101.jpg</strong> (382.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 19:39 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/193943zp7c2g5vmbplgupj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021061102.jpg</strong> (178.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 19:39 上传
+
+
+50抽三个五星，我炸了
+
+暴死一年只为今朝？
+
+
+-----
+
+####  alucardcz  
+##### 78948#       发表于 2021-6-11 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562172&amp;ptid=1085254" target="_blank">ネロ 发表于 2021-6-11 19:40</a>
+
+50抽三个五星，我炸了
+
+暴死一年只为今朝？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕　萌新也好想欧一把
+
+
+-----
+
+####  angelooo  
+##### 78949#       发表于 2021-6-11 19:41
+
+
+红毛这卡面背景乱的......堪比当年伊吹，2.6新卡卡面就这？也太会为玩家考虑了吧
+
+
+-----
+
+####  白夜羽  
+##### 78950#       发表于 2021-6-11 19:42
+
+
+哎呦老崔这个满破卡面我就喜欢这调调<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">开抽！
+
+
+-----
+
+####  黑上シグマ  
+##### 78951#       发表于 2021-6-11 19:42
+
+
+第二张呼符，金卡！狂阶！B叔………………
+
+第三张呼符，金卡！狂阶！摩根！！！！
+
+
+大！胜！利！！
+
+
+-----
+
+####  sosgame67  
+##### 78952#       发表于 2021-6-11 19:43
+
+
+完全打消了抽卡欲望..以及王姐的强度被狂娜碾压吧（卡面也是武内祖传毛病）<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 78953#       发表于 2021-6-11 19:43
+
+
+ 本帖最后由 rooarr 于 2021-6-11 19:45 编辑 
+
+又是只有我沉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">垃圾游戏，迟早药丸
+
+我错了，氪的第一个10连就出来了，fgo，最好的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 78954#       发表于 2021-6-11 19:47
+
+
+怎么一上来就是母猩猩<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  月球列车  
+##### 78955#       发表于 2021-6-11 19:48
+
+
+说起来高文这种筋肉女的画风有没有什么称呼啊
+
+
+-----
+
+####  黑上シグマ  
+##### 78956#       发表于 2021-6-11 19:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">再抽了5呼符，高文也来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">ヒャヒャヒャヒャヒャヒャ
+
+
+-----
+
+####  qixinno2  
+##### 78957#       发表于 2021-6-11 19:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">俩四星出了 摩根果然没有
+
+
+-----
+
+####  Jamaisvu  
+##### 78958#       发表于 2021-6-11 19:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562244&amp;ptid=1085254" target="_blank">月球列车 发表于 2021-6-11 19:48</a>
+
+说起来高文这种筋肉女的画风有没有什么称呼啊</blockquote>
+筋肉姐贵？
+
+
+-----
+
+####  alucardcz  
+##### 78959#       发表于 2021-6-11 19:51
+
+
+兰死骆驼居然５星枪。。。。。。。
+
+
+-----
+
+####  里村紅葉  
+##### 78960#       发表于 2021-6-11 19:51
+
+
+性转老托CV是和气杏未啊，这人声线我是一个都听不出来，这一张口就寻思怎么听着像刘美江<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Jamaisvu  
+##### 78961#       发表于 2021-6-11 19:52
+
+
+ 本帖最后由 Jamaisvu 于 2021-6-11 19:57 编辑 
+
+新卡池这个布局有点怪怪的...为了亮出两个四星的名字，妖精高文立绘只露出上半身，看着像太重了沉进地面似的...而且C狗异常的小...可能是因为这次更新太多了，卡池页面要全部展示所以变挤了吧（上周泳装的双四星卡池可还好好的啊...莫不是换了程序员）
+
+
+-----
+
+####  xiongxingyu  
+##### 78962#       发表于 2021-6-11 19:53
+
+
+惊了，看解包有妖精版的糖果蔓藤，这一波操作实在是没想到阿，紫罗兰你看看你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  月球列车  
+##### 78963#       发表于 2021-6-11 19:59
+
+
+可以救救孩子吗，好友里好多都不上线了草
+
+id 954 630 920
+
+
+-----
+
+####  里村紅葉  
+##### 78964#       发表于 2021-6-11 20:04
+
+
+摩根这什么缝合怪技能组<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kyonkoism  
+##### 78965#       发表于 2021-6-11 20:07
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/200638j2h54iag774ufii5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>NR2BOOA30AA)6RPQ)XH`P~L.jpg</strong> (86.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 20:06 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/200644du88y6eyuugj5iq6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>SMHLKL%2}3A[_Z@2W5]MUVD.jpg</strong> (38.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 20:06 上传
+
+
+老机战厨了，完全照搬大曾伽，连肩膀倆圆都一样，草死
+
+
+-----
+
+####  alucardcz  
+##### 78966#       发表于 2021-6-11 20:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562388&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 20:04</a>
+
+摩根这什么缝合怪技能组</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不特攻伤害基本不能看啊
+
+
+-----
+
+####  黑上シグマ  
+##### 78967#       发表于 2021-6-11 20:08
+
+
+原画：武内崇
+
+仕上げ・彩色：こやまひろかず
+
+彩色補：縞うどん
+
+背景：下越、ゆうろ
+
+个摩根这么兴师动众的吗
+
+
+-----
+
+####  alucardcz  
+##### 78968#       发表于 2021-6-11 20:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562426&amp;ptid=1085254" target="_blank">kyonkoism 发表于 2021-6-11 20:07</a>
+
+老机战厨了，完全照搬大曾伽，连肩膀倆圆都一样，草死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不贴还没注意　这么一看也太像了
+
+
+-----
+
+####  exiaexa  
+##### 78969#       发表于 2021-6-11 20:09
+
+
+艹，生放松的时候没注意，摩根这宝具运镜是对着机战x的ゼルガード做的吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 78970#       发表于 2021-6-11 20:12
+
+
+顺便摩根这技能组，是在暗示梅林3技能强化，加个30充吗，只有被动有魔放，还缺个50np
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 78971#       发表于 2021-6-11 20:13
+
+
+<blockquote>xiongxingyu 发表于 2021-6-11 19:53
+惊了，看解包有妖精版的糖果蔓藤，这一波操作实在是没想到阿，紫罗兰你看看你顺便惯例说一句，wada  ...</blockquote>
+wada我也好了，这个实装我就不黑了233
+
+
+-----
+
+####  森兰丸  
+##### 78972#       发表于 2021-6-11 20:15
+
+
+ 本帖最后由 森兰丸 于 2021-6-11 20:17 编辑 
+
+原来是剧情设定
+
+自己编辑掉
+
+
+-----
+
+####  kyonkoism  
+##### 78973#       发表于 2021-6-11 20:17
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/201657uw709iox2fr8lzrz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>81WH%]J64]2AMVT1])$R366.jpg</strong> (466.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 20:16 上传
+
+
+大曾伽的模型也好看，可以可以
+
+
+-----
+
+####  acuman  
+##### 78974#       发表于 2021-6-11 20:19
+
+
+有没有好心人指路之前舅舅放出的消息啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">，看看还有哪些没出的
+
+
+-----
+
+####  angelooo  
+##### 78975#       发表于 2021-6-11 20:25
+
+
+<blockquote>acuman 发表于 2021-6-11 20:19
+有没有好心人指路之前舅舅放出的消息啊，看看还有哪些没出的</blockquote>
+舅舅的信息的话还有一个女剑兰，这个解包立绘里已经有了，然后是帕西瓦尔还有一个三星剑，这俩都是男的，蝴蝶男这个我不知道算不算奶中，我觉得这货还是不要扯上瓦叔了
+
+
+-----
+
+####  kyonkoism  
+##### 78976#       发表于 2021-6-11 20:28
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/202807f0x4jm12p00xjuep.jpg" referrerpolicy="no-referrer">
+
+
+<strong>HOZ6MLQI$R22EXQ_3AC60)3.jpg</strong> (138.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 20:28 上传
+
+
+剑兰是大家熟悉的萝莉画师choco画的白毛萝，纯纯引发人下体抽卡了属于是
+
+
+-----
+
+####  acuman  
+##### 78977#       发表于 2021-6-11 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562658&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-6-11 20:25</a>
+
+舅舅的信息的话还有一个女剑兰，这个解包立绘里已经有了，然后是帕西瓦尔还有一个三星剑，这俩都是男的， ...</blockquote>
+感谢
+
+
+-----
+
+####  sosgame67  
+##### 78978#       发表于 2021-6-11 20:29
+
+
+ 本帖最后由 sosgame67 于 2021-6-11 20:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562388&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 20:04</a>
+
+摩根这什么缝合怪技能组</blockquote>
+回复错误xd
+
+
+-----
+
+####  黑上シグマ  
+##### 78979#       发表于 2021-6-11 20:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">幼女毫无兴趣，我感觉就解包出来的这些人物图，我接下来一个都不用抽了
+
+
+-----
+
+####  白金口袋  
+##### 78980#       发表于 2021-6-11 20:34
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/063400xje9b3i03evsbc39.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210611073316.png</strong> (195.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 20:34 上传
+
+
+爽到.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 78981#       发表于 2021-6-11 20:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562801&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-6-11 20:34</a>
+
+爽到.jpg</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧，羡慕，拖出去
+
+
+-----
+
+####  angelooo  
+##### 78982#       发表于 2021-6-11 20:41
+
+
+那个四星骑小东西太可爱了，好小一只
+
+
+-----
+
+####  sosgame67  
+##### 78983#       发表于 2021-6-11 20:43
+
+
+ 本帖最后由 sosgame67 于 2021-6-11 20:45 编辑 
+
+200石2宝王姐2宝崔悲伤1宝高文..<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                              

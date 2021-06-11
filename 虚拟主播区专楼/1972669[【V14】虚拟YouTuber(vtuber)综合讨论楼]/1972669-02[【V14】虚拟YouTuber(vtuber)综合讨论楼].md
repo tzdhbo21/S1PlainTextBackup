@@ -8375,3 +8375,108 @@ hachi演唱会真贵啊（ 只想买1w2的档，有没有好哥哥到时候分�
 
 
                                                  
+
+-----
+
+####  winda  
+##### 2160#       发表于 2021-6-11 19:16
+
+
+ 本帖最后由 winda 于 2021-6-11 20:38 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bora队突发迟到，参与热情确实太差了
+syl都开好窗了突发迟到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bora nrk不仲说
+
+
+
+
+-----
+
+####  SuntoryNomu  
+##### 2161#       发表于 2021-6-11 19:52
+
+
+[https://live.bilibili.com/23138665](https://live.bilibili.com/23138665)
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/195210uet010f1dymmd7c6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>56cffb248d151b24.jpg</strong> (256.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 19:52 上传
+
+
+-----
+
+####  Ketestrait  
+##### 2162#       发表于 2021-6-11 19:57
+
+
+ 本帖最后由 Ketestrait 于 2021-6-11 20:04 编辑 
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1grekg4lsogj20xn0pzqb7.jpg" referrerpolicy="no-referrer">
+
+
+早上8点快乐水金拱门后睡觉，肥宅警告.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+<img src="http://tva3.sinaimg.cn/large/7c16af6bly1grekliejcvj20xy0iwq9r.jpg" referrerpolicy="no-referrer">
+
+
+夜见，绝对无音感魔术师<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+今日もかわいい
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1grekpd6e0gg20ju0b4npf.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax2.sinaimg.cn/large/7c16af6bly1grekpujjmcg20ju0b4e87.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax3.sinaimg.cn/large/7c16af6bly1grekqkqq05g20ju0b4x6t.gif" referrerpolicy="no-referrer">
+
+<img src="http://tvax1.sinaimg.cn/large/7c16af6bly1grekr5b7osg20ju0b4npk.gif" referrerpolicy="no-referrer">
+
+
+下期嘉宾（ry
+
+<img src="http://tva1.sinaimg.cn/large/7c16af6bly1grekxv47ctj20xf0ilqax.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  caupollen  
+##### 2163#       发表于 2021-6-11 19:58
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/195826cthbvt3bndvzvtjg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (17.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 19:58 上传
+
+
+-----
+
+####  free  
+##### 2164#       发表于 2021-6-11 20:16
+
+
+logicmagic是真的不行，字幕组联系多少次了不来，来了就为了卖票，还有这个介绍，这200%是机翻的吧！
+
+
+<img src="https://img.saraba1st.com/forum/202106/11/201615kg993bf605689835.png" referrerpolicy="no-referrer">
+
+
+<strong>aoi.png</strong> (156.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 20:16 上传
+
+
+                                                
