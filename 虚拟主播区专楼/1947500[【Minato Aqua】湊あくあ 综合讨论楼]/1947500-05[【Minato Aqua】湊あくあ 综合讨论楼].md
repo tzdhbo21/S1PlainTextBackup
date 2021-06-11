@@ -2228,3 +2228,22 @@ Screenshot_2021-06-11-01-23-42-845_com.baidu.tieba.jpg
 
 
                                                  
+
+-----
+
+####  面具13  
+##### 6191#       发表于 2021-6-11 08:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51552001&amp;ptid=1947500" target="_blank">乌鸦绅士 发表于 2021-6-11 01:16</a>
+
+久违的熬到昏迷  该等老头环了（
+
+游戏有了，会限被版权炮了</blockquote>
+不是版权炮，是自主规制。 <blockquote>22時前にメンバー限定に切り替わります！</blockquote>
+我刚才看的时候好像已经放出来了？应该是半夜睡不着直接做了剪辑。
+
+昨晚会限有几首歌旋律突然忘了，然后放了几句有版权问题的旋律出来听了一会儿找旋律，为了保险起见把它们剪掉，大概是这样。希望没剪前面的杂谈部分，我还得补的
+
+
+                                                 

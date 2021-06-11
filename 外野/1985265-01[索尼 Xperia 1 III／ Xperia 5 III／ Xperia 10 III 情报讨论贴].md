@@ -8525,3 +8525,54 @@ https://b23.tv/ntC1as</blockquote>
 
 
                                                  
+
+-----
+
+####  leystage  
+##### 614#         楼主| 发表于 2021-6-11 08:11
+
+
+<blockquote>Lisylfn 发表于 2021-6-6 16:37
+还用看闲鱼吗, 还没开卖的时候绅士就说他家7000多了...不过是无票的</blockquote>
+这家最近说什么索尼中国官方要求不能低于指导价卖，于是涨价了。。。？？？
+
+
+虽然图省事最近几年都找的他家，但有时候对定价的感观不是最好
+
+
+-----
+
+####  xzk0916  
+##### 615#       发表于 2021-6-11 08:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51553653&amp;ptid=1985265" target="_blank">leystage 发表于 2021-6-11 08:11</a>
+这家最近说什么索尼中国官方要求不能低于指导价卖，于是涨价了。。。？？？
+
+
+虽然图省事最近几年都找的他 ...</blockquote>
+我前两天也是去看了他家发生价格调回去了，有没有下单联系客服改价格的操作呢<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  无印凉粉  
+##### 616#       发表于 2021-6-11 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51553653&amp;ptid=1985265" target="_blank">leystage 发表于 2021-6-11 08:11</a>
+
+这家最近说什么索尼中国官方要求不能低于指导价卖，于是涨价了。。。？？？
+
+
+虽然图省事最近几年都找的他 ...</blockquote>
+直接上闲鱼就行，都是国行
+
+5M2到处挂5K+的时候，我就是在闲鱼捡漏的。
+
+不过目前的情况来看，5M3我要观望观望再说了，毕竟相比5M2整体提升相当有限。
+
+
+                                                 
