@@ -11450,3 +11450,130 @@ wada我也好了，这个实装我就不黑了233
 
 
                                               
+
+-----
+
+####  里村紅葉  
+##### 78984#       发表于 2021-6-11 20:47
+
+
+70抽只有一个女崔的我看来是全楼最非了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  超阳电子炮  
+##### 78985#       发表于 2021-6-11 20:52
+
+
+3个十连才一个王姐，哎
+
+
+-----
+
+####  月球列车  
+##### 78986#       发表于 2021-6-11 21:01
+
+
+帕西瓦尔有图了吗，还挺感兴趣月球帕桑长什么样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78987#       发表于 2021-6-11 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562982&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 20:47</a>
+
+70抽只有一个女崔的我看来是全楼最非了？</blockquote>
+醒醒萌新我一个都没有
+
+
+-----
+
+####  黑上シグマ  
+##### 78988#       发表于 2021-6-11 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51563273&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-11 21:08</a>
+
+醒醒萌新我一个都没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">你根本就没抽吧
+
+
+-----
+
+####  森兰丸  
+##### 78989#       发表于 2021-6-11 21:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这新剧情有点厉害啊....一整个村子的妖精前一秒还在欢迎你...后一秒整个村子就开始互相残杀起来了
+
+
+以为是这章领路NPC的妖精也黑了.....还跳出来个画风又是放飞的妖精王奥贝隆
+
+
+-----
+
+####  eden_hazard  
+##### 78990#       发表于 2021-6-11 21:16
+
+
+21个11连才出，3个女高文4个女崔
+
+
+
+
+-----
+
+####  eyeego  
+##### 78991#       发表于 2021-6-11 21:18
+
+
+女高文=大增加 女长江=夺魂 第2.6次月球机器人大战开幕<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78992#       发表于 2021-6-11 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51563286&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-11 21:09</a>
+
+你根本就没抽吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我想抽但没石　　等明天早上起来发的石头抽（
+
+
+-----
+
+####  xiongxingyu  
+##### 78993#       发表于 2021-6-11 21:30
+
+
+220发2王姐6老崔2老高，2个四星姑且是故事池限定，老高单up再抽两发吧，王姐就随缘了，虽然50充，但是自buff太惨，不特攻一般也轮不到阴间本上班，特攻了2宝也够用。留石头备战二池，目测二池落地的那几个都在我好球带上了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 78994#       发表于 2021-6-11 21:34
+
+
+寺胖你再不出新作某些人要疯特了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 78995#       发表于 2021-6-11 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51563588&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-11 21:34</a>
+
+寺胖你再不出新作某些人要疯特了</blockquote>
+7月快了。。等一个og完结篇
+
+
+                                                
