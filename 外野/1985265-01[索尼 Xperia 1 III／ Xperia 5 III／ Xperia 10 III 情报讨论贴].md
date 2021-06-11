@@ -8576,3 +8576,31 @@ https://b23.tv/ntC1as</blockquote>
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 617#       发表于 2021-6-11 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51554037&amp;ptid=1985265" target="_blank">无印凉粉 发表于 2021-6-11 08:51</a>
+直接上闲鱼就行，都是国行
+
+5M2到处挂5K+的时候，我就是在闲鱼捡漏的。
+
+不过目前的情况来看，5M3我要观望 ...</blockquote>
+5M3目前看来意义真的不大，核心部件RAM、ROM、电池、屏幕都没升级，888算不算升级不好说，就长焦镜头实打实升级了……
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  奈叶魔王控  
+##### 618#       发表于 2021-6-11 09:44
+
+
+安卓11目前能用吗，手持马克兔的安卓10中，好像安卓10的5G支持的不是太好？
+
+
+                                                 
