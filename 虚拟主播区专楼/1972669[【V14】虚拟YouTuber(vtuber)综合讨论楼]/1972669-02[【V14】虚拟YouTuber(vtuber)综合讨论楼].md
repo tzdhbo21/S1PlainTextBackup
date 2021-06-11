@@ -8523,3 +8523,18 @@ logicmagic是真的不行，字幕组联系多少次了不来，来了就为了�
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 2169#       发表于 2021-6-12 01:53
+
+
+ 本帖最后由 rzrbtk 于 2021-6-12 01:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51565716&amp;ptid=1972669" target="_blank">TiHaru 发表于 2021-6-12 01:36</a>
+
+想指示郡道试试用喷火结果被回怼了以前就在用滚去看录像，尴尬死了</blockquote>
+是你啊大哥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，今天和ngo对枪还大输特输。但是又真的很好骗，评论栏说几句“45很厉害”就真的信了，现在左手45右手301，明天估计要被职业哥骂了，蠢啊...只能说不要把郡道当平等交流的同事，当3岁幼女骗骗会比较有乐趣
+
+
+                                                 
