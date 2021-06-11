@@ -10308,3 +10308,35 @@ C呆语音里给过梅芙的提示（对Rider梅芙语音），情人节的时�
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 78880#       发表于 2021-6-11 15:40
+
+
+<blockquote>引用第78878楼areklose于2021-06-11 15:09发表的  :
+
+还有2个小时是直接开2.6吗</blockquote>
+6点才生放啊朋友，你在说什么怪话呢
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  areklose  
+##### 78881#       发表于 2021-6-11 16:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51559413&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-11 15:40</a>
+
+6点才生放啊朋友，你在说什么怪话呢
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">原谅我。我最近超绝摸鱼
+
+
+                                                 

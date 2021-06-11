@@ -11136,3 +11136,17 @@ magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20
 
 
                                                  
+
+-----
+
+####  黑岩泪香  
+##### 862#       发表于 2021-6-11 15:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51557277&amp;ptid=1963627" target="_blank">不灭的旋律 发表于 2021-6-11 12:48</a>
+
+使用高次元之力的SP究极哥斯拉是不是目前唯一可能对老虚版基多拉造成伤害的哥总？老虚基多拉只要有观察者就 ...</blockquote>
+要不要了解一下地狱哥斯拉这种存在？
+
+
+                                                 

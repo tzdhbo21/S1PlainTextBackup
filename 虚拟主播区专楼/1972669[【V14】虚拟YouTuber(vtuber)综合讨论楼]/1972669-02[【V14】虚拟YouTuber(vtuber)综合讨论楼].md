@@ -8294,3 +8294,73 @@ hachi演唱会真贵啊（ 只想买1w2的档，有没有好哥哥到时候分�
 
 
                                                  
+
+-----
+
+####  free  
+##### 2152#       发表于 2021-6-11 15:53
+
+
+[https://www.youtube.com/watch?v=jf8u-pJ5uIM](https://www.youtube.com/watch?v=jf8u-pJ5uIM)
+
+花譜2nd ONE-MAN LIVE「不可解弐Q1:RE-形を失った世界で僕らは-」
+
+
+-----
+
+####  zealotaalbania  
+##### 2153#       发表于 2021-6-11 16:00
+
+
+ 本帖最后由 zealotaalbania 于 2021-6-11 16:03 编辑 
+
+夏哥会成为holo第一个apex大师吗？圣皇怎么办，段位被夏哥超了，荣誉被towa超了
+
+
+-----
+
+####  OldGlory  
+##### 2154#       发表于 2021-6-11 16:06
+
+
+希望虹pex正赛来点爆冷把职业哥干趴下，不然真的太无聊了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  valigarmanda1  
+##### 2155#       发表于 2021-6-11 16:09
+
+
+这Q1剪辑的好烂，为了买票至于吗
+
+
+-----
+
+####  poipanchao  
+##### 2156#       发表于 2021-6-11 16:11
+
+
+虹pex两大topboranrk直接躺平了
+只能靠森中努力了
+
+
+-----
+
+####  valigarmanda1  
+##### 2157#       发表于 2021-6-11 16:31
+
+
+看了看时间，原来是现在才正式开始，那前面放的是什么几把
+
+
+-----
+
+####  free  
+##### 2158#       发表于 2021-6-11 16:33
+
+
+5点才正式开始，现在是广告时间
+
+
+                                                 

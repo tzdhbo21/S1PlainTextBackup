@@ -14212,3 +14212,21 @@ wt是不是画着画着就忘了甚平了？<img src="https://static.saraba1st.c
 
 
                                                  
+
+-----
+
+####  athena_1982  
+##### 55217#       发表于 2021-6-11 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51504221&amp;ptid=98922" target="_blank">恶魔娘阿洛 发表于 2021-6-7 14:35</a>
+
+怪不得莫利亚回去就研究僵尸，魔法，解开了</blockquote>
+这话看看还真有点端倪。
+
+一开场的火之祭明说了是为了祭奠亡者，最后凯多也说了“你以为我是随便找个地方就蹲下来了吗”
+
+和之国果然有古怪
+
+
+                                                 
