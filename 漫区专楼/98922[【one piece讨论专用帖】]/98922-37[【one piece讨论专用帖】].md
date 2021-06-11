@@ -14126,3 +14126,44 @@ https://www.zhihu.com/qu ...</blockquote>
 
 
                                                  
+
+-----
+
+####  jxzeroga0  
+##### 55209#       发表于 2021-6-11 11:04
+
+
+以后新的冒险时不时来一个大和内心感想“啊路飞xxx的行为跟御田殿赞赏的人一样”就很酸爽了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  陈玉礼  
+##### 55210#       发表于 2021-6-11 11:05
+
+
+那个我估计少不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  仟音一心  
+##### 55211#       发表于 2021-6-11 11:09
+
+
+大和能别上船吗？哪怕领个大船团第八分队长也好啊。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kknife  
+##### 55212#       发表于 2021-6-11 11:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51540730&amp;ptid=98922" target="_blank">白金口袋 发表于 2021-6-10 09:47</a>
+
+大和上船前能不能先把御田病治好</blockquote>
+别，没准以后每天跳裸舞呢，多好
+
+
+                                                 
