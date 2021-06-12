@@ -9411,3 +9411,369 @@ valo是真好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037
 
 
                                                  
+
+-----
+
+####  dddty  
+##### 2243#       发表于 2021-6-12 22:30
+
+
+8月下旬最协S3
+
+
+-----
+
+####  空集  
+##### 2244#       发表于 2021-6-12 22:31
+
+
+免费这司马臭傻逼也就现在出来跳了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kikiwalu  
+##### 2245#       发表于 2021-6-12 22:32
+
+
+会不会分裂成东杏和西杏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 2246#       发表于 2021-6-12 22:33
+
+
+crew赢麻了为什么不能跳，杏奴平时劈crew也不手软啊
+
+
+-----
+
+####  free  
+##### 2247#       发表于 2021-6-12 22:33
+
+
+就喜欢看杏奴如丧考妣的样子，嘻嘻
+
+
+-----
+
+####  空集  
+##### 2248#       发表于 2021-6-12 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51575779&amp;ptid=1972669" target="_blank">nowaki 发表于 2021-6-12 22:33</a>
+crew赢麻了为什么不能跳，杏奴平时劈crew也不手软啊</blockquote>
+算了吧 我现在都懒得玩称免费是crew顺劈一手这套了，以前在群里这傻逼就装疯卖傻够多了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yamato gun  
+##### 2249#       发表于 2021-6-12 22:36
+
+
+油管直播有保存聊天栏的方法吗
+
+—— 来自 Hisense HLTE202N, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  雪风utopia  
+##### 2250#       发表于 2021-6-12 22:36
+
+
+大家庭呢，大家庭能不能救一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  空集  
+##### 2251#       发表于 2021-6-12 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51575797&amp;ptid=1972669" target="_blank">free 发表于 2021-6-12 22:33</a>
+就喜欢看杏奴如丧考妣的样子，嘻嘻</blockquote>
+我先把你马的骨灰往太平洋里撒
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 14战斗力 +13
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 若风之景| + 1|欢乐多|
+| 西瓜爆裂| + 1|兹磁正义辱骂免费|
+| RE_INORI| + 1|xx不是杏奴嘛，懂得都懂|
+| 认知厨| + 1|好评加鹅|
+| crito| + 1|好评加鹅|
+| katern| + 1|塔塔开！|
+| admentus| + 1|请把免费妈的五个男友也一起扔下去.|
+| TiHaru| + 1|欢乐多|
+| V版公用账号| + 1|正义执行|
+| 狐言乱语| + 1|欢乐多|
+| nowaki| + 2||
+| 雪风utopia| + 1|欢乐多|
+| stedckk| + 2|好评加鹅|
+| free|-2||
+
+
+查看全部评分
+
+
+-----
+
+####  rzrbtk  
+##### 2252#       发表于 2021-6-12 22:37
+
+
+理由没说的话也有可能是大学生连挂三科去补考顺便吓吓运营也说不定，不过这时机确实太差了...
+
+
+-----
+
+####  昆西昆希昆  
+##### 2253#       发表于 2021-6-12 22:43
+
+
+嗯嗯好大概看明白了，这俩人大概都是傲娇是吧，就是明明心里喜欢的不行但见面时一定要互嘴的那种。楼友们感情真好捏<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  北山玖公  
+##### 2254#       发表于 2021-6-12 22:43
+
+
+笑嘻嘻，炸，都可以炸，想以v圈爆炸的绚烂焰火作为我睡眠前的白噪音助眠音<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">。
+
+
+-----
+
+####  katern  
+##### 2255#       发表于 2021-6-12 22:45
+
+
+不会真要回旋吧，连着两人时机也太怪了<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 2256#       发表于 2021-6-12 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51575978&amp;ptid=1972669" target="_blank">昆西昆希昆 发表于 2021-6-12 22:43</a>
+嗯嗯好大概看明白了，这俩人大概都是傲娇是吧，就是明明心里喜欢的不行但见面时一定要互嘴的那种。楼友们感 ...</blockquote>
+当年s1休战一周的时候弄避难群免费在里面不少时间，除了恶心人的话没说过半句人话。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  nowaki  
+##### 2257#       发表于 2021-6-12 22:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">阿希赢了虹apex fh大将红心无限期休止 asoul生日7600舰，大家都有光明的未来。
+
+
+-----
+
+####  死体残留  
+##### 2258#       发表于 2021-6-12 22:46
+
+
+哈弟真的很阴湿啊，刚打完niji大赛垫底就开最协的规则说明是直接阴湿虹大赛组队规则么
+
+
+-----
+
+####  IDIDIDID  
+##### 2259#       发表于 2021-6-12 22:50
+
+
+有没有虹人大手子讲一讲这个虹pex为什么一定要找外部合办？哪怕虹凑不齐60个打枪的，自己独立办然后出去邀请社外选手也不会有现在这些风波。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|没有开房权|
+
+
+查看全部评分
+
+
+-----
+
+####  noHentai  
+##### 2260#       发表于 2021-6-12 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51576103&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-12 22:50</a>
+
+有没有虹人大手子讲一讲这个虹pex为什么一定要找外部合办？哪怕虹凑不齐60个打枪的，自己独立办然后出去邀 ...</blockquote>
+估计自己拿不到开房权限
+
+
+-----
+
+####  Mr.shelter  
+##### 2261#       发表于 2021-6-12 22:55
+
+
+我真的相信了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+可是这跟我也没啥关系（）
+
+
+-----
+
+####  ヒトニナル  
+##### 2262#       发表于 2021-6-12 23:01
+
+
+所以虹为什么拿不到权限，我看apex各种超小型的比赛（指菜鸡互啄）也不少，还是说你虹作为一个企业反而难搞定EA？
+
+
+-----
+
+####  qq845629713  
+##### 2263#       发表于 2021-6-12 23:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 权限反而是小事，连60个打apex的人都号召不起来不是更严重的运营信用危机？
+
+
+-----
+
+####  poipanchao  
+##### 2264#       发表于 2021-6-12 23:03
+
+
+因为虹废物
+
+连国内B站的小UP都能拿到权限
+
+
+-----
+
+####  FCCHua  
+##### 2265#       发表于 2021-6-12 23:03
+
+
+社内打apex的本来就没那么多啊，不是每个人都愿意和圭利一样从0开始<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+没权限单纯就是虹运营拉胯了
+
+
+-----
+
+####  Suzutsuki  
+##### 2266#       发表于 2021-6-12 23:08
+
+
+我记得DTN有不少日本apex老害喜欢的，毕竟去年日韩比赛逆转狂杀拿了第一，CR起来之前只要有个比赛就有刷DTN的。看看图奇那几个DTN的观看人数都不少，是不是虹的傻逼运营觉得DTN粉丝挺多能吸点血，那我只能说虹的运营着实是个傻逼了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帕克桑  
+##### 2267#       发表于 2021-6-12 23:16
+
+
+放任流失v圈优质全肯民观众 去吸fps小鬼 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 2268#       发表于 2021-6-12 23:22
+
+
+现在mrr假腿切回去还来得及吗？葵皇你就原谅小姐妹一次好不好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kanchiki  
+##### 2269#       发表于 2021-6-12 23:25
+
+
+忍不住高歌一曲
+
+cover在整活方面从来不让人失望
+
+
+《翔べ！カバー》
+
+も、え、あ、が、れ~もえあがれ~
+
+燃え上がれ~カバー！
+
+
+ホロ信よ走れ！
+
+まだ怒りに燃える
+
+闘志があるなら
+
+
+巨大なカバーを討てよ~討てよ討てよ！
+
+正義の怒りをぶつけろ~カバー！
+
+
+炎上戦士カバー~カバー！
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 2270#       发表于 2021-6-12 23:36
+
+
+木口该不会真的要回旋了吧，那乐子可太大了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  魔法使い2019  
+##### 2271#       发表于 2021-6-12 23:38
+
+
+hmm...直觉告诉我现在4ch 那边大概要对中宣战了
+
+
+-----
+
+####  OldGlory  
+##### 2272#       发表于 2021-6-12 23:39
+
+
+葵皇现在自身难保
+
+
+                                                

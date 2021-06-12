@@ -3399,3 +3399,70 @@ syl V帐活了 什么时候要弄新的魂帐
 
 
                                                  
+
+-----
+
+####  星尘的杨桃精  
+##### 12300#       发表于 2021-6-12 22:27
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-6-12 22:31 编辑 
+
+是不是算准了赤井心放烟花才今天复播啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  alexmax1  
+##### 12301#       发表于 2021-6-12 22:32
+
+
+会员能看到更可爱的绫总吗？能的话就不亏
+
+
+-----
+
+####  Fami水  
+##### 12302#       发表于 2021-6-12 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51575650&amp;ptid=1914409" target="_blank">星尘的杨桃精 发表于 2021-6-12 22:27</a>
+
+是不是算准了赤井心放烟花才今天复播啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">播不播还不一定呢，现在直播间都还没开
+
+等到最后就一个音声，老Pua了
+
+
+-----
+
+####  stedckk  
+##### 12303#       发表于 2021-6-12 23:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真正的电竞女孩已经在隔壁杯赛夺冠了，而虚假的电竞女孩还在这耍粉呢。
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12304#       发表于 2021-6-12 23:33
+
+
+换了一堆新直播用具草
+
+新麦调的跟tc一样糊<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 12305#       发表于 2021-6-12 23:33
+
+
+有老哥能讲一下聊了什么吗？
+
+
+                                                

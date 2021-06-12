@@ -3136,3 +3136,56 @@ B站只更到第七话，最近下载站似乎也自我规制得很厉害炸不�
 
 
                                                  
+
+-----
+
+####  Piano-Forest  
+##### 1744#       发表于 2021-6-12 23:04
+
+
+ 本帖最后由 Piano-Forest 于 2021-6-12 23:06 编辑 
+
+<img src="https://p.sda1.dev/2/9b547b8857bbb1432e1ec976bc3483e6/E3qJ7NdVUAc4w5T.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/caedbc8545a757637d243256b7cb87ea/E3pbm9DVoAQS4zn.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/ebisuzzz/status/1403636408573517825](https://twitter.com/ebisuzzz/status/1403636408573517825)
+<img src="https://p.sda1.dev/2/3a1f3f0fb05e434fc5996fabb3d977c9/E3q3rqmVgAABTAW.jpg" referrerpolicy="no-referrer">
+
+[https://twitter.com/gazo10speed/status/1403705060551319557](https://twitter.com/gazo10speed/status/1403705060551319557)
+<img src="https://p.sda1.dev/2/9e8e830298d058934211c6f676dc8dba/E3r2SN2VgAUlhPX.jpg" referrerpolicy="no-referrer">
+
+
+次週、最終話「Fluorite Eye's Song」
+<img src="https://p.sda1.dev/2/92fd43c6220dcda13d7e25a9a6c9ba5d/E3peimLVEAM5UU1.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  D-JoeII  
+##### 1745#         楼主| 发表于 2021-6-12 23:06
+
+
+Archive都跟Vivy說清楚怎麼解決AI叛亂這事了,但如果不喜歡那可以把這集前20分鐘左右當結局<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+製作組選了安全路線,不過我覺得也行
+
+
+-----
+
+####  shadow001  
+##### 1746#       发表于 2021-6-12 23:07
+
+
+VIVY便當,下集是新主角
+
+
+-----
+
+####  renkan119  
+##### 1747#       发表于 2021-6-12 23:09
+
+
+按这集说法天启应该就是Archive了 那Archive也太神棍了 早早自我科技提升到远超人类了 还连人类会穿越回过去都能预测到 把世界线修正回来…
+
+
+                                                 

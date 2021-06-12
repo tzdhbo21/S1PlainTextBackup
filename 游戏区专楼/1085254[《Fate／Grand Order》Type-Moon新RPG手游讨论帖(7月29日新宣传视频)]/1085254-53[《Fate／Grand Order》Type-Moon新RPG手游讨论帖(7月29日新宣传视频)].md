@@ -12376,3 +12376,54 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79060#       发表于 2021-6-12 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51574985&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-12 22:02</a>
+
+比起绿不绿这种破事儿，抽到手机还不满意就去恋活里捏一个干爆啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说到恋活，这玩意儿公布新作了
+
+
+-----
+
+####  exiaexa  
+##### 79061#       发表于 2021-6-12 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51576327&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-12 23:02</a>
+说到恋活，这玩意儿公布新作了</blockquote>
+大型dlc罢了，看了下没啥新特性
+只要能忽悠到mod佬回流就是胜利
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 79062#       发表于 2021-6-12 23:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51576327&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-12 23:02</a>
+
+说到恋活，这玩意儿公布新作了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">恋活没有阿黑,不行
+
+捏人系统似乎也没变,单纯的换地图
+
+
+-----
+
+####  上坂莲华  
+##### 79063#       发表于 2021-6-12 23:31
+
+
+我玛修那边都是skip的根本懒得看，只要有c呆跟bb就够了
+就是为什么不让我跟c呆住一起，们达芬奇跟崔斯坦不睡觉给我讲王的故事也不让我跟王睡是不是有点过分<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+                                                 
