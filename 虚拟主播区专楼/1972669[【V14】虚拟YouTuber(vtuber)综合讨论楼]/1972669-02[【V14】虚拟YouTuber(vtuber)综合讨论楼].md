@@ -8563,3 +8563,14 @@ logicmagic是真的不行，字幕组联系多少次了不来，来了就为了�
 
 
                                                  
+
+-----
+
+####  Suzutsuki  
+##### 2172#       发表于 2021-6-12 11:23
+
+
+今天虹pex正赛了，因为bora队一直中途就死，我就没完整看完过一场比赛。完整看完的能说说哪几个队比较强吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+                                                 
