@@ -12502,3 +12502,19 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  newfaceryo  
+##### 79070#       发表于 2021-6-13 02:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51578313&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-6-13 02:03</a>
+
+我还是那句话，如果废狗游戏把第七章0话那段早点在游戏里表现出来，就没其他人什么事了，可惜动画玛修能 ...</blockquote>
+马修在游戏里的塑造还需要动画输入？
+
+你大概是搞错了什么吧？
+
+
+                                                 
