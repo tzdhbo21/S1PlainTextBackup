@@ -12306,3 +12306,73 @@ YLS的挽救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 
                                                 
+
+-----
+
+####  AbigailWilliams  
+##### 79055#       发表于 2021-6-12 21:43
+
+
+2021年了，现在网络主流宅宅在“绿”这方面敏感的堪比msl<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  الطائر  
+##### 79056#       发表于 2021-6-12 21:44
+
+
+<img src="https://img.saraba1st.com/forum/202106/12/214327jm18nppn1n9ra9mj.png" referrerpolicy="no-referrer">
+
+
+<strong>197.png</strong> (113.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-12 21:43 上传
+
+
+-----
+
+####  exiaexa  
+##### 79057#       发表于 2021-6-12 22:02
+
+
+ 本帖最后由 exiaexa 于 2021-6-12 22:04 编辑 
+
+比起绿不绿这种破事儿，抽到手机还不满意就去恋活里捏一个干爆啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+主要是打到现在怎么就感觉这么的，拖呢
+
+nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想着蘑菇终于有点进步不磨磨唧唧了，结果打到后面还是这逼样
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+打到中间就已经开始光速过文本，没设定相关/变BGM都懒得认真看
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 79058#       发表于 2021-6-12 22:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么绿不绿的....真无聊....第9节咕达可是终于说话有台词了哎
+
+
+-----
+
+####  zore  
+##### 79059#       发表于 2021-6-12 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51574368&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-12 21:30</a>
+
+蘑菇从来都不缺恶趣味，倒不如说是定番了，远的就不说了，想想恶堕牛若丸菌味正就完事了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这假结婚都不被骂,搞的我都觉得芬恩可怜
+
+
+                                                 
