@@ -9053,3 +9053,204 @@ alelu稳啊，奶一口这队
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 2211#       发表于 2021-6-12 20:51
+
+
+叶~师~傅
+
+
+-----
+
+####  IDIDIDID  
+##### 2212#       发表于 2021-6-12 20:58
+
+
+8位
+
+
+-----
+
+####  alcoholic1000  
+##### 2213#       发表于 2021-6-12 20:58
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-12 21:19 编辑 
+
+valo是真好玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/12/211923mau62janc8zzg0ai.png" referrerpolicy="no-referrer">
+
+
+<strong>【にじさんじ】NIJISANJI APEX Party with DETONATOR【#にじPEX】-5.png</strong> (338.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-12 21:19 上传
+
+
+-----
+
+####  NBXX  
+##### 2214#       发表于 2021-6-12 21:04
+
+
+第五局
+<img src="https://p.sda1.dev/2/bb6e2773bc8d2ab6fc589c061277769c/QQ截图20210612210408.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 2215#       发表于 2021-6-12 21:06
+
+
+三鸡也太狠了。含金量，ssk的含金量~<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 2216#       发表于 2021-6-12 21:18
+
+
+三鸡不夺冠，再舔一把火
+
+
+-----
+
+####  蓬莱广告  
+##### 2217#       发表于 2021-6-12 21:19
+
+
+千<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 2218#       发表于 2021-6-12 21:19
+
+
+ 本帖最后由 FCCHua 于 2021-6-12 21:33 编辑 
+
+47kill，击杀数太猛了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+虹纯血队伍17，18位，贴贴
+狱卒她们也是惨，没指挥，位置都太差了
+
+
+-----
+
+####  rzrbtk  
+##### 2219#       发表于 2021-6-12 21:20
+
+
+开什么玩笑，长尾景prize哥郡道队第五！开什么玩笑<img src="https://static.saraba1st.com/image/smiley/face2017/234.gif" referrerpolicy="no-referrer">！这不是超高吗！？
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 十四洲| + 1|好耶|
+
+
+查看全部评分
+
+
+-----
+
+####  IDIDIDID  
+##### 2220#       发表于 2021-6-12 21:22
+
+
+千皇真皇
+
+
+
+
+-----
+
+####  空集  
+##### 2221#       发表于 2021-6-12 21:23
+
+
+草 居然真夺冠了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  IDIDIDID  
+##### 2222#       发表于 2021-6-12 21:24
+
+
+大家赶紧转valo当作无事发生好不好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 2223#       发表于 2021-6-12 21:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">虹apex冠军阿希队，v限定组队里排名最高是towa队，杏apex最强!
+
+
+-----
+
+####  心垂万刃  
+##### 2224#       发表于 2021-6-12 21:26
+
+
+精神虹人的胜利<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 2225#       发表于 2021-6-12 21:28
+
+
+不到2k踩就没关系，下一届可以筹备起来了
+
+建议搭配：プロ　ホロ
+
+
+-----
+
+####  qq845629713  
+##### 2226#       发表于 2021-6-12 21:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 第一届彩虹apex冠军队伍，职业哥，100订阅的超大物，和彩虹资历最老的一期生
+
+
+-----
+
+####  rzrbtk  
+##### 2227#       发表于 2021-6-12 21:31
+
+
+瞬间冷却
+
+<img src="https://img.saraba1st.com/forum/202106/12/213056dqu7cxmcuqtgkcuq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 770 - 推文 _ Twitter - twitter.com.jpg</strong> (86.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-12 21:30 上传
+
+
+                                                

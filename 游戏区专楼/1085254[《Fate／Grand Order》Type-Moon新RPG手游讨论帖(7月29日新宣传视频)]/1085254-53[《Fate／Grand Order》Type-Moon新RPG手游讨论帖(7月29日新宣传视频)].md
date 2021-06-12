@@ -12211,3 +12211,98 @@ YLS的挽救<img src="https://static.saraba1st.com/image/smiley/face2017/067.png
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79047#       发表于 2021-6-12 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51573187&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-6-12 20:31</a>
+估计和兰斯萝特和那个妖精骑一起UP</blockquote>
+应该会在下个月，连模组都没有
+
+
+-----
+
+####  zakki  
+##### 79048#       发表于 2021-6-12 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51572459&amp;ptid=1085254" target="_blank">巴莱-银河漂流 发表于 2021-6-12 19:54</a>
+虽说大部分也都是婊蘑菇搞恶趣味。
+
+但我寻思这剧情蘑菇收敛不少了，加了一大堆剧情解释，乳乳蘑菇也就算了
+
+ ...</blockquote>
+完全不理解，现在的二刺螈接受度都这么低的吗。昨天看直播，连妖精崔斯坦喜欢贝屑，贝屑和摩根结婚都能有人破防，然后还反复自我催眠是妖精崔斯坦是在骗贝屑，摩根是在玩他，看了真可怜.jpg<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 79049#       发表于 2021-6-12 21:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">摩根怎么样还不好说....我寻思着这妖崔的屑度比贝屑也是不相上下啊....这对狗男女不是天生一对么
+
+
+-----
+
+####  zore  
+##### 79050#       发表于 2021-6-12 21:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">恶趣味不是活该被骂
+
+不是蘑菇写的被骂得也不少,只能说活该<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  白夜羽  
+##### 79051#       发表于 2021-6-12 21:29
+
+
+这届贰刺猿是真的8行，整天没事就喜欢给自己戴虚空绿帽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aosumi  
+##### 79052#       发表于 2021-6-12 21:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer"> 卡背金剑以为是假高文，结果开开来是小莫
+
+我抽你妈啊【字面意义的
+
+
+-----
+
+####  zakki  
+##### 79053#       发表于 2021-6-12 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51574261&amp;ptid=1085254" target="_blank">zore 发表于 2021-6-12 21:26</a>
+恶趣味不是活该被骂
+
+不是蘑菇写的被骂得也不少,只能说活该</blockquote>
+蘑菇从来都不缺恶趣味，倒不如说是定番了，远的就不说了，想想恶堕牛若丸<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 79054#       发表于 2021-6-12 21:34
+
+
+ 本帖最后由 zakki 于 2021-6-12 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51573832&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-6-12 21:05</a>
+摩根怎么样还不好说....我寻思着这妖崔的屑度比贝屑也是不相上下啊....这对狗男女不是天生一对么 ...</blockquote>
+摩根那可是男的女的人类妖精都玩了个遍啊，玩腻了才收敛了，还同意贝屑去搞什么猎奇杀人剧场，我觉得是真爱了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                
