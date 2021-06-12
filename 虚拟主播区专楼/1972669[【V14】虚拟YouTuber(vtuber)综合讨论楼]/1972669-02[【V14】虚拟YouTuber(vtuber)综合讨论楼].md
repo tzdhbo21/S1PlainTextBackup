@@ -9925,3 +9925,88 @@ JeSU设立以后战绩好像更差了，而且怎么感觉日本电竞就盼着�
 
 
                                                 
+
+-----
+
+####  昆西昆希昆  
+##### 2287#       发表于 2021-6-13 01:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51577765&amp;ptid=1972669" target="_blank">1570752915 发表于 2021-6-13 00:54</a>
+
+日本apex确实挺拉的，这日韩专属赛区基本就是给日本这么多战队的福利，然后被韩国队乱杀 ...</blockquote>
+可能只是棒子太强了吧。国内啥时候才能整个apex联赛啊
+
+
+-----
+
+####  SuntoryNomu  
+##### 2288#       发表于 2021-6-13 01:53
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/015302cka2ohxk4bqwowwp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E3r0eTkVIAUpVT-.jpg</strong> (827.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 01:53 上传
+
+
+[https://twitter.com/Toganawa4815/status/1403703060069707779](https://twitter.com/Toganawa4815/status/1403703060069707779)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  free  
+##### 2289#       发表于 2021-6-13 02:09
+
+
+ 本帖最后由 free 于 2021-6-13 02:17 编辑 
+
+阿裁一向三分料七分编，怎么他说啥就相信啊，真要有“中国大资本”有这个能量让蝗和心毕业，早干啥去了，B观众早换好几茬了。
+
+
+还回旋，能把杏cn六个人的号先回旋回来吗，他真要回旋B限了我直播开独轮车冲。
+
+
+而且截至目前，没有任何人回复心的休止推，官号都没发消息，就说明这个和蝗不见得是一回事，很可能内部没通过气。
+
+
+-----
+
+####  tankai  
+##### 2290#       发表于 2021-6-13 02:14
+
+
+阿裁真是恰饱饱.
+
+
+-----
+
+####  寒星  
+##### 2291#       发表于 2021-6-13 02:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51578341&amp;ptid=1972669" target="_blank">free 发表于 2021-6-13 02:09</a>
+阿裁一向三分料七分编，怎么他说啥就相信啊，真要有“中国大资本”有这个能量让蝗和心毕业，早干啥去了，B ...</blockquote>
+确实，一想就明白没有回旋的理由，但是这波肯定还是跟桐生可可的事情有关系，兔死狐悲心态崩了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
