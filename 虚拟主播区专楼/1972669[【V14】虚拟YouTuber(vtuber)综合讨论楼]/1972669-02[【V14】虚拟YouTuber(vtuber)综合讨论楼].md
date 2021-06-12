@@ -9777,3 +9777,151 @@ hmm...直觉告诉我现在4ch 那边大概要对中宣战了
 
 
                                                 
+
+-----
+
+####  IDIDIDID  
+##### 2273#       发表于 2021-6-12 23:40
+
+
+4ch不是一直都反杏么
+
+
+-----
+
+####  バーチャルS1er  
+##### 2274#       发表于 2021-6-12 23:40
+
+
+虹能不能硬气点让虹人尽量推掉哈弟的最协<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  a37356205  
+##### 2275#       发表于 2021-6-12 23:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">虹pex终于结束了？
+
+
+-----
+
+####  tankai  
+##### 2276#       发表于 2021-6-12 23:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51575350&amp;ptid=1972669" target="_blank">cckuku 发表于 2021-6-12 22:15</a>
+
+所以裁狗赢麻了？</blockquote>
+又有人血馒头给阿裁吃了.我好气.
+
+
+-----
+
+####  lovcavil  
+##### 2277#       发表于 2021-6-12 23:51
+
+
+杏奴翻身 杏人的话语权一定要牢牢掌握到s1holo抵抗组织的手中，只有他们才是holo在最危急的时候的杏仰最坚定的斗士，对不？
+
+
+-----
+
+####  BonkoraKKK  
+##### 2278#       发表于 2021-6-12 23:54
+
+
+藤木小姐啊，上次都玩过这个了，这次还来？
+
+我反正是不信
+
+
+-----
+
+####  Suzutsuki  
+##### 2279#       发表于 2021-6-13 00:00
+
+
+最协推啥啊 我还期待bora胡桃和花芽姐组个队的呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  魔法使い2019  
+##### 2280#       发表于 2021-6-13 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51576916&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-12 23:40</a>
+4ch不是一直都反杏么</blockquote>
+<[img src="https://i.ibb.co/MSyYcjn/Screenshot-20210613-000019-Chrome.jpg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  caupollen  
+##### 2281#       发表于 2021-6-13 00:08
+
+
+4ch杏奴真的是CNptsd了啊，彩虹因为玩原神都被打成中国旗下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 2282#       发表于 2021-6-13 00:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51577301&amp;ptid=1972669" target="_blank">caupollen 发表于 2021-6-13 00:08</a>
+
+4ch杏奴真的是CNptsd了啊，彩虹因为玩原神都被打成中国旗下了</blockquote>
+有没有考虑过是因为他们是4ch而不是因为他们是杏奴呢
+
+
+-----
+
+####  alcoholic1000  
+##### 2283#       发表于 2021-6-13 00:11
+
+
+看了一眼最近你日几个战队的活跃情况，只能说DTN矮子里面拔将军<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+其他几个老牌战队DNG也就DFM在LJL短暂出彩了一下，Scarz上次看到还是Apex战队解散Valo改制，JUPITER也在组Valo
+
+JeSU设立以后战绩好像更差了，而且怎么感觉日本电竞就盼着乘Valo东风啊
+
+
+-----
+
+####  caupollen  
+##### 2284#       发表于 2021-6-13 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51577329&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-13 00:10</a>
+
+有没有考虑过是因为他们是4ch而不是因为他们是杏奴呢</blockquote>
+也是，反正99%都是杏奴
+
+
+-----
+
+####  1570752915  
+##### 2285#       发表于 2021-6-13 00:54
+
+
+日本apex确实挺拉的，这日韩专属赛区基本就是给日本这么多战队的福利，然后被韩国队乱杀
+
+
+-----
+
+####  稀勢のささ  
+##### 2286#       发表于 2021-6-13 01:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">回旋啥啊 真老过来b限怕不是白皮的独轮车也要开起来了
+
+
+                                                
