@@ -3741,3 +3741,48 @@ BOSS不会“预知未来”，BOSS只会“计算未来”，
 
 
                                                  
+
+-----
+
+####  HollowBreaker  
+##### 1785#       发表于 2021-6-13 05:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51578652&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-6-13 03:17</a>
+
+【0】我是确实没想到能这么拉，全面超出预期
+
+有反转有牺牲有马戏有特写，情绪到位，“神回”好吧，“神回” ...</blockquote>
+更离谱的是，Archive都已经知道松本是穿越回去了的，之后100多年里却没有去阻碍数据穿越技术的研发。那么多卫星砸下来，砸人砸城市什么都砸，就是没砸掉负责数据穿越的终端<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  a12885084  
+##### 1786#       发表于 2021-6-13 05:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51578932&amp;ptid=1982987" target="_blank">HollowBreaker 发表于 2021-6-13 05:00</a>
+ 更离谱的是，Archive都已经知道松本是穿越回去了的，之后100多年里却没有去阻碍数据穿越技术的研发。那么 ...</blockquote>
+确实
+包括他们为什么执着于原来的“正史”也很奇怪，比如暴走发生要分秒都精确上，你们要想干翻人类早干不好么…
+还砸卫星，我看你们无人机扫射人类效率挺高的
+卫星咋了你们自己不用吗等等
+
+真就一点脑子也不能带
+
+这片我要考虑给-1还是-2
+歌也一般般，没有比其他番高到哪里去
+唯一优点就是每话十几秒二十几秒的打戏
+
+
+-----
+
+####  terminator1990  
+##### 1787#       发表于 2021-6-13 05:27
+
+
+嗨呀好气呀，本来这集边看边开心“你看唱歌救不了地球人”“全球放烟花真好看”，结果下集预告又和我说唱歌能救地球人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
