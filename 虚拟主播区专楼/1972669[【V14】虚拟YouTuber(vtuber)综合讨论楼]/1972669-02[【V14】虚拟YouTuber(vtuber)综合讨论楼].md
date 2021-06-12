@@ -8707,3 +8707,116 @@ ZIG这**公司是要换个名字再骗一次嘛
 
 
                                                  
+
+-----
+
+####  alcoholic1000  
+##### 2182#       发表于 2021-6-12 17:48
+
+
+最近都没时间看训练赛，DID这队怎么是葛King的Octane叶的狗啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  NBXX  
+##### 2183#       发表于 2021-6-12 18:09
+
+
+<img src="https://p.sda1.dev/2/5995f0e76a48ed9eb2d0a7d23a39937b/QQ截图20210612180858.png" referrerpolicy="no-referrer">
+
+第一局
+
+
+-----
+
+####  IDIDIDID  
+##### 2184#       发表于 2021-6-12 18:10
+
+
+千皇牛逼
+
+
+-----
+
+####  OldGlory  
+##### 2185#       发表于 2021-6-12 18:11
+
+
+三个人杀了21个
+
+
+-----
+
+####  IDIDIDID  
+##### 2186#       发表于 2021-6-12 18:11
+
+
+千皇：一天练12个小时apex是有作用的呀（大意）
+
+
+-----
+
+####  rzrbtk  
+##### 2187#       发表于 2021-6-12 18:13
+
+
+郡道伤害倒一，气得深呼吸<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 2188#       发表于 2021-6-12 18:13
+
+
+<img src="https://img.saraba1st.com/forum/202106/12/181351ig8luqu333733gr3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>金鸡.jpg</strong> (155.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-12 18:13 上传
+
+
+-----
+
+####  winda  
+##### 2189#       发表于 2021-6-12 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">阿希好杀
+
+
+-----
+
+####  Map-2  
+##### 2190#       发表于 2021-6-12 18:16
+
+
+啊希不是躺赢？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  sonyjam  
+##### 2191#       发表于 2021-6-12 18:22
+
+
+有大带也是实力的一部分<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 2192#       发表于 2021-6-12 18:34
+
+
+千草这队就纯属于来快乐一下的了，开着傻气bgm打游戏有点绷不住<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+                                                
