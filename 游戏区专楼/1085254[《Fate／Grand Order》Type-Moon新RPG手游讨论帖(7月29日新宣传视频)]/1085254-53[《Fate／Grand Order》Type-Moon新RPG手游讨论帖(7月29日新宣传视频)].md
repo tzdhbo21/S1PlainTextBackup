@@ -12518,3 +12518,34 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  johnkamsar  
+##### 79071#       发表于 2021-6-13 05:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51569290&amp;ptid=1085254" target="_blank">zechins 发表于 2021-6-12 13:27</a>
+彩圈！
+狂战！
+大公！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">单抽
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">狂阶
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">转金
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">亚马逊
+
+
+-----
+
+####  zakki  
+##### 79072#       发表于 2021-6-13 07:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51578191&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-13 01:47</a>
+目前为止这章马修的部分比咕哒呆毛的路线好看很多，对，我就是觉得马修假结婚那一段不错。
+
+什么叫型月第一 ...</blockquote>
+作为一个马修厨能看到马修能有自己的故事而不是总是绑定咕哒做一个跟班打手还是很高兴的，本来看到最后两边汇合还担心又变和咕哒绑，所幸又转移走了，看来这章铁定要把马修和咕哒写成两个故事，希望菌皇后篇别拉夸
+
+
+                                                 
