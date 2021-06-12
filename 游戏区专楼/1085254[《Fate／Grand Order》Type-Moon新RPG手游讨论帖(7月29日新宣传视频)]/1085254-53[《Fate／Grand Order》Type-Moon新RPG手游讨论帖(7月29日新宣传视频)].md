@@ -11911,3 +11911,123 @@ wada我也好了，这个实装我就不黑了233
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79021#       发表于 2021-6-12 11:22
+
+
+吐槽一下，为啥卖家秀马修平a带顺劈
+
+
+-----
+
+####  vacuumsword  
+##### 79022#       发表于 2021-6-12 11:42
+
+
+话说直播时候说上部不开放free是靠啥来发新素材来着？隐约听到活动云云。
+
+
+-----
+
+####  黑上シグマ  
+##### 79023#       发表于 2021-6-12 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51568261&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2021-6-12 11:42</a>
+
+话说直播时候说上部不开放free是靠啥来发新素材来着？隐约听到活动云云。</blockquote>
+说是接下来活动会发
+
+也就是说接下来后篇之前要夹个活动
+
+
+-----
+
+####  zakki  
+##### 79024#       发表于 2021-6-12 11:48
+
+
+八成是个复刻吧，我不信还能在前后两篇里搞个新活动出来，事件簿复刻？
+
+
+-----
+
+####  v22325  
+##### 79025#       发表于 2021-6-12 11:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">起手一个十连两个四星都到手了 然后多补了几下没五星 溜了溜了
+
+
+-----
+
+####  khxooo  
+##### 79026#       发表于 2021-6-12 11:49
+
+
+还有就是又TM锁助战，锁nm 呢<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 79027#       发表于 2021-6-12 11:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次锁的助战还好 就是C呆的888太弱智了
+
+
+-----
+
+####  v22325  
+##### 79028#       发表于 2021-6-12 12:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">羽海野画的妖精王总觉得怪怪的 和气氛合不起来
+
+
+-----
+
+####  zakki  
+##### 79029#       发表于 2021-6-12 12:15
+
+
+这次主要是锁你自己的c呆，还强制用888的助战c呆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白夜羽  
+##### 79030#       发表于 2021-6-12 13:08
+
+
+麻了，送的石头单抽出货了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79031#       发表于 2021-6-12 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51569127&amp;ptid=1085254" target="_blank">白夜羽 发表于 2021-6-12 13:08</a>
+
+麻了，送的石头单抽出货了可我昨晚睡前准备收拾东西退坑的时候把狗粮和夫妇都从盒子里领出来卖了[f: ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">继续卖
+
+
+-----
+
+####  zechins  
+##### 79032#       发表于 2021-6-12 13:27
+
+
+彩圈！<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+狂战！<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+大公！<img src="https://static.saraba1st.com/image/smiley/face2017/132.png" referrerpolicy="no-referrer">
+
+
+                                                 

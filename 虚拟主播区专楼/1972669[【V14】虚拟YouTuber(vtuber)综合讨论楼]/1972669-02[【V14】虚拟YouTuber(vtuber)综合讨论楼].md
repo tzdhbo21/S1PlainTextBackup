@@ -8574,3 +8574,66 @@ logicmagic是真的不行，字幕组联系多少次了不来，来了就为了�
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 2173#       发表于 2021-6-12 12:53
+
+
+虹b站官号发的剪影就能确定最右边是皇女吧，赛巴斯过于明显<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 2174#       发表于 2021-6-12 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51568075&amp;ptid=1972669" target="_blank">Suzutsuki 发表于 2021-6-12 11:23</a>
+
+今天虹pex正赛了，因为bora队一直中途就死，我就没完整看完过一场比赛。完整看完的能说说哪几个队比较强吗[ ...</blockquote>
+粉丝整理的（[https://twitter.com/ugar4l2m/status/1403391160572276736](https://twitter.com/ugar4l2m/status/1403391160572276736)），有些队感觉有放水
+
+
+<img src="https://img.saraba1st.com/forum/202106/12/125720p1moadplmddddm8i.png" referrerpolicy="no-referrer">
+
+
+<strong>E3nYuvdUYAIM4VW.png</strong> (265.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-12 12:57 上传
+
+
+-----
+
+####  talse  
+##### 2175#       发表于 2021-6-12 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51563206&amp;ptid=1972669" target="_blank">NBXX 发表于 2021-6-11 21:03</a>
+
+「株式会社ZIG」、「ミーチュー株式会社」へ社名変更
+
+https://panora.tokyo/archives/27122 ...</blockquote>
+ZIG这**公司是要换个名字再骗一次嘛
+
+
+-----
+
+####  talse  
+##### 2176#       发表于 2021-6-12 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51566049&amp;ptid=1972669" target="_blank">TiHaru 发表于 2021-6-12 02:57</a>
+
+是我以己度人了，我以为喷火射速慢会比较容易上手来着</blockquote>
+喷火确实是这个游戏最容易上的主力武器，没有之一，更容易上手的武器稍微远一点就没用了。
+
+喷火都打不死人的话，用别的武器跟没有可能了我觉得
+
+所以还是菜
+
+
+                                                 
