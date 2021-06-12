@@ -8637,3 +8637,51 @@ ZIG这**公司是要换个名字再骗一次嘛
 
 
                                                  
+
+-----
+
+####  winda  
+##### 2177#       发表于 2021-6-12 13:39
+
+
+<img src="https://img.saraba1st.com/forum/202106/12/133842spn667osadnedadd.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1623427291194.JPEG</strong> (178.23 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-6-12 13:38 上传
+
+
+简而言之，被外部选手当韭菜噶的虹人
+
+
+-----
+
+####  FCCHua  
+##### 2178#       发表于 2021-6-12 13:51
+
+
+ 本帖最后由 FCCHua 于 2021-6-12 13:53 编辑 
+
+小千，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+对比来看马自立真的有在进步<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  バーチャルS1er  
+##### 2179#       发表于 2021-6-12 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51569274&amp;ptid=1972669" target="_blank">talse 发表于 2021-6-12 13:26</a>
+
+喷火确实是这个游戏最容易上的主力武器，没有之一，更容易上手的武器稍微远一点就没用了。
+
+喷火都打不死 ...</blockquote>
+喷火腰射拉，机瞄阴间、DPS也不高，我用了一段时间后换回平行和301了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

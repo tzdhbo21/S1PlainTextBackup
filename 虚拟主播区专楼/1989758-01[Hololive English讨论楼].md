@@ -14219,3 +14219,33 @@ Ame同时视听功夫，感觉她还挺喜欢的
 
 
                                                  
+
+-----
+
+####  kiriko  
+##### 948#       发表于 2021-6-12 14:10
+
+
+以下内容需要积分高于 10000 才可浏览
+
+今天逛4ch的时候头一次听到了自动播放的音频，一开始还以为单纯是什么伤感的曲子
+
+没想到是她唱的
+[https://boards.4channel.org/vt/thread/4944907#p4952942](https://boards.4channel.org/vt/thread/4944907#p4952942)
+
+好像不是每次都能播出来
+
+<img src="https://img.saraba1st.com/forum/202106/12/135934errafljt4li9p9jl.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210612135919.png</strong> (41.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-12 13:59 上传
+
+
+[https://www.youtube.com/embed/YBhvZ8W_9aA?controls=0&amp;autoplay=1&amp;loop=1](https://www.youtube.com/embed/YBhvZ8W_9aA?controls=0&amp;autoplay=1&amp;loop=1)
+
+
+                                                 
