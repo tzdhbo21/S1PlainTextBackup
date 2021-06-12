@@ -3101,3 +3101,25 @@ B站只更到第七话，最近下载站似乎也自我规制得很厉害炸不�
 
 
                                                  
+
+-----
+
+####  anicorn  
+##### 1741#       发表于 2021-6-12 15:09
+
+
+11这简直明牌了不用猜<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.2
+
+
+-----
+
+####  JustW  
+##### 1742#       发表于 2021-6-12 15:35
+
+
+今晚是最终话吗
+
+
+                                                 
