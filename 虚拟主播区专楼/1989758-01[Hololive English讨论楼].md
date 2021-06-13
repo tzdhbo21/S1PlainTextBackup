@@ -14290,3 +14290,17 @@ finally some groundpounding live
 
 
                                                  
+
+-----
+
+####  ppf  
+##### 952#       发表于 2021-6-14 01:41
+
+
+ame和gura同步视听e3  
+官方台蛮丢人可能大头在twich
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

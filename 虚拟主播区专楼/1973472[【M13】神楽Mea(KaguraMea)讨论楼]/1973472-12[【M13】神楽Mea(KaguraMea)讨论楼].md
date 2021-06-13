@@ -8367,3 +8367,27 @@ mea：舞…苔苔你怎么回事？
 
 
                                                  
+
+-----
+
+####  makourisu-2  
+##### 17244#       发表于 2021-6-14 01:43
+
+
+这就是这女人的麻烦之处啊。一方面这女人喜欢整点活，自己扮丑角；另一方面她又有很多吸引人的特点养出了大量铁粉。尽管大伙都表示无所谓，也明白跟五元这就是整活，甚至楼友动不动<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">，但至少对我而言，还是不喜欢她跟男人搞这种玩意。
+总之，这是这是一个别扭主播和一些别扭观众，她脑子有点毛病，我也多少沾点不正常。
+所以现在我逐渐看开之后，你想整啥整啥，反正我也拦不住。但主播有选择直播内容的权力，那观众也应当有表达意见的自由。你爱播不播，我爱看不看，凑合着过吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 17245#       发表于 2021-6-14 01:50
+
+
+不爽就把泥头车开出来好了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
