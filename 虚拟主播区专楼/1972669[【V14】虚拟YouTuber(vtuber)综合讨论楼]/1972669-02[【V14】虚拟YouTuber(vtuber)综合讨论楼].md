@@ -10779,3 +10779,138 @@ bora这个好突然，是有很急的事要处理吧
 
 
                                                  
+
+-----
+
+####  noHentai  
+##### 2359#       发表于 2021-6-13 21:40
+
+
+前两天bora会限黑过你虹背刺海外分社了，想干啥都不让干，还骚操作故意搞黄。
+
+
+-----
+
+####  qq845629713  
+##### 2360#       发表于 2021-6-13 21:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 什么嘛，我觉得彩虹en还挺自由的啊
+
+
+-----
+
+####  死体残留  
+##### 2361#       发表于 2021-6-13 21:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">bora退的话，虹的kr就等同于完了
+
+
+-----
+
+####  winda  
+##### 2362#       发表于 2021-6-13 21:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">bora周五练习赛预定窗都开好了突然不参加，后面nrk千草练习也没来。
+虹pex打完还专门后面和观众聊了一会，今天rsfes也没开窗，应该就是这几天突发的事情了。
+
+
+-----
+
+####  Porsche  
+##### 2363#       发表于 2021-6-13 21:55
+
+
+月灵还是太温柔了
+
+
+-----
+
+####  死体残留  
+##### 2364#       发表于 2021-6-13 21:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">holo女团第一个（第二个）apex大师诞生了
+日本电竞在holo
+
+
+-----
+
+####  JoelBirch  
+##### 2365#       发表于 2021-6-13 21:59
+
+
+看得人出离愤怒了<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+批站能不能安排一下真正的联动啊NMD
+
+
+-----
+
+####  winda  
+##### 2366#       发表于 2021-6-13 22:01
+
+
+阿希上大师了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">这样holopro本土就有三个大师了。虹本社要不要反思一下。
+
+
+-----
+
+####  rzrbtk  
+##### 2367#       发表于 2021-6-13 22:02
+
+
+这么突然，我猜想应该是韩国六月中开始考试周，老师现在给的分数计算公式偏重平时作业成绩然后bora平时摸了，现在正在狂暴复习避免期末挂科
+
+
+-----
+
+####  qq845629713  
+##### 2368#       发表于 2021-6-13 22:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 阿希还拥有holo第一个也可能是最后一个彩虹ape**决赛冠军戒指，
+
+
+这个含金量，
+
+
+-----
+
+####  talse  
+##### 2369#       发表于 2021-6-13 22:05
+
+
+还是没播上大师，希小姐这个APEX瘾也太厉害了
+
+
+-----
+
+####  JoelBirch  
+##### 2370#       发表于 2021-6-13 22:05
+
+
+免指导，当场教“嘻嘻”，这也能忍吗？出面击杀吧
+
+
+
+
+-----
+
+####  alcoholic1000  
+##### 2371#       发表于 2021-6-13 22:12
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/221232ramga1gkkkcdgdgx.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【AmongUs】メモ：人がいる目の前ではダクトにはいるな。【本間ひまわり:にじさんじ】.jpeg</strong> (427 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 22:12 上传
+
+
+                                                
