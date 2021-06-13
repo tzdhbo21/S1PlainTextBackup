@@ -4962,3 +4962,175 @@ AI：就这，不然你以为有什么深层次的原因？
 
 
                                                  
+
+-----
+
+####  烤鱼饼  
+##### 1885#       发表于 2021-6-13 22:32
+
+
+感觉现在人对原创要求是不是太高了，这片虽然肯定不是那种标杆级作品但是起码合格线也是有的吧，和异度比没啥问题，怎么还有和巨人比的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  chexk03  
+##### 1886#       发表于 2021-6-13 22:43
+
+
+看之前看你们这么低评价还真有点担忧，但看完还可以啊唱歌拯救世界，再穿越都是预想到的，演出也过的去啊，人物是简单了点，但这是季番，至于其他槽点到话数过半也扫雷得差不多了，你们到底想看啥，阿斯莫夫的《我，机器人》么
+
+
+-----
+
+####  aptx8285144  
+##### 1887#       发表于 2021-6-13 22:48
+
+
+ 本帖最后由 aptx8285144 于 2021-6-13 22:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51586776&amp;ptid=1982987" target="_blank">烤鱼饼 发表于 2021-6-13 22:32</a>
+
+感觉现在人对原创要求是不是太高了，这片虽然肯定不是那种标杆级作品但是起码合格线也是有的吧，和异度比没 ...</blockquote>
+纯sf的剧本和设定要求太高了，泥潭大部分人都是身经百战，看过阿斯莫夫作品估计都不少，因此很容易暴露出很多问题，<strong>然后偏偏歌姬和松本这两个人又不能完全撑起百年计划的格局，更像是被时代推着走，然而历史宏大感又稍显得不足，真不如孙女完全取代某人的位置，日笠姐妹组也找个机会活下来，当队友也好，当对手也好，总比思考kb先生的这种谜语人模式好</strong><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  枪聆弹语  
+##### 1888#       发表于 2021-6-13 22:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">现在就是开始整容一个好外皮重于雕琢故事的趋势，泥潭必然是要反对的
+
+
+-----
+
+####  JustW  
+##### 1889#       发表于 2021-6-13 22:56
+
+
+<blockquote>chexk03 发表于 2021-6-13 22:43
+看之前看你们这么低评价还真有点担忧，但看完还可以啊唱歌拯救世界，再穿越都是预想到的，演出也过的去啊， ...</blockquote>
+对我来说演出已经过不去了，但这并不是演出的问题。至少嗯送人头和松本的开导我是真的内心毫无波动甚至有点想笑。
+
+
+-----
+
+####  亚瑟邓特  
+##### 1890#       发表于 2021-6-13 23:10
+
+
+ 本帖最后由 亚瑟邓特 于 2021-6-13 23:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51586916&amp;ptid=1982987" target="_blank">chexk03 发表于 2021-6-13 22:43</a>
+看之前看你们这么低评价还真有点担忧，但看完还可以啊唱歌拯救世界，再穿越都是预想到的，演出也过的去啊， ...</blockquote>
+我想看二次元基地<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">或者二次元以利亚贝莱
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  亚瑟邓特  
+##### 1891#       发表于 2021-6-13 23:14
+
+
+怎么巴哈弹幕也一堆喊神作的<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kos_mos  
+##### 1892#       发表于 2021-6-13 23:18
+
+
+在nico中期开始每集神回评价，同样高评价的86评论是没Vily的话就是霸权了。
+
+
+-----
+
+####  loley  
+##### 1893#       发表于 2021-6-13 23:23
+
+
+只看二次元的话可能觉得这动画是神作吧，平时稍微读过一点科幻小说，甚至说读过些逻辑严密，主题鲜明，解谜过瘾，核心创意升华这几点任占其一的小说，都不会觉得这是神作吧。只看二次元的作者没法创作经典，只看二次元的观众会把前面的作者创作的东西误认为是经典？
+
+
+-----
+
+####  nerugigannte  
+##### 1894#       发表于 2021-6-13 23:24
+
+
+可演出煽情的地方真的很尬，我是很反感歇斯底里发泄一通再来点模式化的面部变化特写这种处理，不说感性上的，逻辑上岛与自杀篇章里反派一通其实我什么都懂就是想发泄一下的于vivy之间的冲突我不知道是单纯的艾伦行为呢还是为了贡献打戏安排了这些
+
+
+我观感最好的是没什么展开的第10集，别的煽情的地方效果还不如配点舒缓的音乐安安静静下来讲集故事
+
+
+-----
+
+####  zakki  
+##### 1895#       发表于 2021-6-13 23:27
+
+
+这动画怎么也和神作不沾边吧，真就画面演出大于一切？但我寻思单看画面和演出也到达不了神作啊
+
+
+-----
+
+####  浴缸子  
+##### 1896#       发表于 2021-6-13 23:29
+
+
+这剧情这行动逻辑真难相信是2021年的作品。这种AI灭绝人类的理由都他妈用烂了居然还能拿上台面
+
+
+-----
+
+####  kos_mos  
+##### 1897#       发表于 2021-6-13 23:29
+
+
+环大陆好评的恶玉Drive好像就是相似的情况，
+
+
+-----
+
+####  大江户战士  
+##### 1898#       发表于 2021-6-13 23:30
+
+
+大环境如此，只要你给我感官冲击爽了我就给个好评，第二天就忘了又如何呢
+
+
+-----
+
+####  nerugigannte  
+##### 1899#       发表于 2021-6-13 23:33
+
+
+ 本帖最后由 nerugigannte 于 2021-6-13 23:37 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51587364&amp;ptid=1982987" target="_blank">loley 发表于 2021-6-13 23:23</a>
+
+只看二次元的话可能觉得这动画是神作吧，平时稍微读过一点科幻小说，甚至说读过些逻辑严密，主题鲜明，解谜 ...</blockquote>
+可单从二次元来看这片恋爱味也不浓呐呐呐，明明是不够二次元！美少女皮科幻皮都沾了点我也没看明白想努力在哪方面下功夫。d前几年明明可塑性记忆京紫这种的批评声音至少不会环xxx好评
+
+
+-----
+
+####  亚瑟邓特  
+##### 1900#       发表于 2021-6-13 23:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51587418&amp;ptid=1982987" target="_blank">kos_mos 发表于 2021-6-13 23:29</a>
+环大陆好评的恶玉Drive好像就是相似的情况，</blockquote>
+准确的说是环s1bgm好评<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                

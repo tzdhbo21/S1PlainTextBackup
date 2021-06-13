@@ -10914,3 +10914,119 @@ bora这个好突然，是有很急的事要处理吧
 
 
                                                 
+
+-----
+
+####  ppf  
+##### 2372#       发表于 2021-6-13 22:28
+
+
+没king避嫌么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rzrbtk  
+##### 2373#       发表于 2021-6-13 22:40
+
+
+郡：申し訳ないんだけど私自身が動画師さんを雇って切り抜きを上げるようになったので、配信の核心に触れてかつ広告の付いている切り抜きについては全部削除依頼出してます〜！切り抜きしてくれることについては大変有難いけどよろしくお願いします…！何か問い合わせあったらリプ欄にお願いします。
+
+
+虽然可以理解，我也喜欢公式剪辑，但是，但是，这样对提高知名度不好吧
+
+
+-----
+
+####  生麦之发杀  
+##### 2374#       发表于 2021-6-13 22:58
+
+
+呜呜yuya我的yuya
+
+
+-----
+
+####  free  
+##### 2375#       发表于 2021-6-13 23:00
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/230024vdyococa3wjohoo9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (264.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 23:00 上传
+
+
+-----
+
+####  poipanchao  
+##### 2376#       发表于 2021-6-13 23:18
+
+
+艹，傻逼运营，昨晚会限的时候我就想骂人了
+
+早点倒闭吧
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  真飞鸟i  
+##### 2377#       发表于 2021-6-13 23:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">业界越来越相似趋同了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Suny08  
+##### 2378#       发表于 2021-6-13 23:30
+
+
+戌亥「いいやんか！31歳が独りで遊んだって！！」
+
+
+31岁单身阿姨歌手，可爱
+
+
+-----
+
+####  SuntoryNomu  
+##### 2379#       发表于 2021-6-13 23:31
+
+
+[半3D Piano] 明日を生きる力になるピアノ 내일을 살아가는 힘이 되는 피아노 방송 [NIJISANJIKR /イロハ]
+ <blockquote>开始 23:00 ~
+
+[钢琴流]
+
+帮助你活出明天的钢琴
+
+候车室/대기방</blockquote>
+[https://youtu.be/L4Ma6OiB-qc](https://youtu.be/L4Ma6OiB-qc)
+
+
+                                                 

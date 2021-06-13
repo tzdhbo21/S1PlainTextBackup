@@ -2564,3 +2564,110 @@ Special Thanks：猫又おかゆ、天音かなた、紫咲シオン、宝鐘マ
 
 
                                                  
+
+-----
+
+####  Kanchiki  
+##### 6216#       发表于 2021-6-13 22:30
+
+
+感觉这次复归以后，心情啊状态什么的确实挺好的
+
+还是说只是因为和之前的へら相比反差比较大而已
+
+
+-----
+
+####  梅斯之围  
+##### 6217#       发表于 2021-6-13 22:31
+
+
+这个活整得有点好
+
+
+-----
+
+####  面具13  
+##### 6218#       发表于 2021-6-13 22:38
+
+
+ 本帖最后由 面具13 于 2021-6-13 22:40 编辑 
+
+唱术曲，必翻车<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zpy393  
+##### 6219#       发表于 2021-6-13 22:43
+
+
+现在是天天千踩也毫不影响心情的样子了
+
+
+-----
+
+####  面具13  
+##### 6220#       发表于 2021-6-13 22:44
+
+
+ 本帖最后由 面具13 于 2021-6-13 22:46 编辑 
+
+暗示自己踩的都不是本来会喜欢自己的人，按照她一贯的处事哲学，就是不需要在意的事情<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+紫宝的hey是iphone录的。紫宝<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  a37356205  
+##### 6221#       发表于 2021-6-13 22:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">痛诉无良公司，毫无支援，绘、曲和mix全是自费。
+
+痛诉公司效率低下，拖慢自己前进的步伐，不如自己做（翻唱投稿）。
+
+
+-----
+
+####  Kanchiki  
+##### 6222#       发表于 2021-6-13 22:52
+
+
+如果赶得及月底还有个大的
+
+是指翻唱吗？还是别的什么
+
+
+-----
+
+####  星の守  
+##### 6223#       发表于 2021-6-13 23:02
+
+
+ 本帖最后由 星の守 于 2021-6-13 23:19 编辑 
+
+早该无视视了，在意anti的V什么下场不用我多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6224#       发表于 2021-6-13 23:09
+
+
+ 本帖最后由 面具13 于 2021-6-13 23:32 编辑 
+
+最后一首了，好快啊。哦，还有啊。
+
+神tm space human
+
+
+呛到以后高音上不去了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+总的来说没刚回来时候那么糊了。
+
+
+                                                 

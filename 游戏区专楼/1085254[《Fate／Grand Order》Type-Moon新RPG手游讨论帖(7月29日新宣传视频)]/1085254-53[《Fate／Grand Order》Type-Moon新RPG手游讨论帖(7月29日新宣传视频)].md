@@ -13081,3 +13081,81 @@ fate吧和nga逛了一圈，只能说国内手游圈是真有意思，“查成�
 
 
                                                  
+
+-----
+
+####  yangun22  
+##### 79111#       发表于 2021-6-13 22:22
+
+
+日本wiki基本都在猜奥贝龙是不是贝利尔的从者，前面那个没名字的妖精其实是不是原本的翅之氏族的组长然后被抢了名字,基本还是以猜后面的剧情为主，国内么大部分看不懂日本的只能靠所谓的大佬给的饵在那里脑补了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rollingusagi  
+##### 79112#       发表于 2021-6-13 22:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">y1s1，算不上玛修厨的我那段看笑了，这台词，这bgm，真不是搞笑桥段吗。顺便妖崔确实是前半段让我印象最深的角色了，我就喜欢这种充满蘑菇味扭曲感的角色，就是三破看得太渗人了
+
+
+-----
+
+####  angelooo  
+##### 79113#       发表于 2021-6-13 22:44
+
+
+话说我突然对这段剧情产生了某种即视感，国产抗日神剧是不是经常有类似剧情，女主被某个山大王抢上山本来要当压寨夫人的，然后因为各种理由（比如女主以死相逼）只是挂个名，最后这个山大王抗日or为了保护女主死了，女主接任下一任的山大王抗日or完璧回到男主身边，这类剧情有没有人喊NTR的？
+
+
+-----
+
+####  zakki  
+##### 79114#       发表于 2021-6-13 22:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51586938&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-6-13 22:44</a>
+话说我突然对这段剧情产生了某种即视感，国产抗日神剧是不是经常有类似剧情，女主被某个山大王抢上山本来要 ...</blockquote>
+对于那些人来说套上二刺螈皮就不一样了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79115#       发表于 2021-6-13 23:08
+
+
+竹帚日记更新了
+
+
+-----
+
+####  里村紅葉  
+##### 79116#       发表于 2021-6-13 23:23
+
+
+2.55打完多出3个圣晶片这正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我算了下这章应该总共60小节打完应该多出4个啊？？
+
+
+-----
+
+####  exiaexa  
+##### 79117#       发表于 2021-6-13 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583879&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-13 18:10</a>
+事先说明下我本来也不是很喜欢第七章，大概设定控或者拳头大就是棒党很喜欢，
+
+但是借种失败的流沙河大妖怪 ...</blockquote>
+声明有屁用，我还声明我是就被蘑菇影响了中二期，十多年前就跑澄空看翻资料抄在笔记本上呢，现在还不是连账号都因为常年不登陆给澄空锁了
+
+你是不是觉得灌水就等于写不出好东西？还是说你觉得铺垫就不是灌水，那第七章打工支线就铺垫伊斯塔那个傲娇又难搞的女神性格了，那为什么第七章前半段给人印象还是不好
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+菌类这傻逼的galgame风毛病又不是一天两天了，这妨碍他写出大逆转剧情了吗，到底是谁在看不起菌类呢
+别人觉得灌水你觉得别人就是不认真看追求快餐，你自我意识这么出色你还来看啥快乐的中二作品啊，自己上台当猴更适合你啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

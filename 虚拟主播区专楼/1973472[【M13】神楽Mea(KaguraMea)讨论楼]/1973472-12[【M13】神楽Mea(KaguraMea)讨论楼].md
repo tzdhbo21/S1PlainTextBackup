@@ -7978,3 +7978,339 @@ syl，
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 17212#       发表于 2021-6-13 22:28
+
+
+ 本帖最后由 T_Hb 于 2021-6-13 22:30 编辑 
+
+哈哈哈，看羽衣老师视角的观众要高血压暴毙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不过运是真的强
+
+艹，臭女人在说啥啊
+
+
+-----
+
+####  路人庚  
+##### 17213#       发表于 2021-6-13 22:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐的脑髓吸食好像进化了
+
+
+-----
+
+####  路人庚  
+##### 17214#       发表于 2021-6-13 22:33
+
+
+原来是悠星弄出来的舞mea组<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 17215#       发表于 2021-6-13 22:34
+
+
+ 本帖最后由 Cushaw 于 2021-6-13 22:42 编辑 
+
+这人牌效高起来了<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+当我没说，染起来了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 17216#       发表于 2021-6-13 22:34
+
+
+好杂鱼的屁胡局啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吊人是不是把运气透支了啊，今晚这牌好恶调啊
+
+
+-----
+
+####  T_Hb  
+##### 17217#       发表于 2021-6-13 22:35
+
+
+别尬黑，你咩姐今天作法把坏运气透支了，比赛的时候就时来运转了
+
+
+-----
+
+####  格林卡罗尔  
+##### 17218#       发表于 2021-6-13 22:38
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/223715baoogyi7z96iz2og.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210613223653.png</strong> (3.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 22:37 上传
+
+
+翻译<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 17219#       发表于 2021-6-13 22:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17220#       发表于 2021-6-13 22:39
+
+
+别发了 别发了，你在🦄的精神废墟上又来了一发大的
+
+已经菠萝菠萝哒
+
+
+
+
+-----
+
+####  路人庚  
+##### 17221#       发表于 2021-6-13 22:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">笑死我了这联动
+
+
+-----
+
+####  时间在我手中  
+##### 17222#       发表于 2021-6-13 22:43
+
+
+不吃五万硬生生送了真有你的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17223#       发表于 2021-6-13 22:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咩姐感觉被补刀补到要死了（
+
+
+-----
+
+####  Cushaw  
+##### 17224#       发表于 2021-6-13 22:46
+
+
+ 本帖最后由 Cushaw 于 2021-6-13 22:49 编辑 
+
+规则是什么，争一位还是算组合总点数，舞宝吸队友分的操作属实？<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+syl，让你瞎jb切<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  T_Hb  
+##### 17225#       发表于 2021-6-13 22:48
+
+
+ 本帖最后由 T_Hb 于 2021-6-13 22:51 编辑 
+
+打麻将真好玩儿！<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+syl 4组在一起打2个半庄，累计前2名进下一轮
+
+<img src="https://img.saraba1st.com/forum/202106/13/225038xtl3xdvtgxhlzg34.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (242.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 22:50 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  路人庚  
+##### 17226#       发表于 2021-6-13 22:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咩姐要死了（物理，草
+
+
+-----
+
+####  古战场亡魂  
+##### 17227#       发表于 2021-6-13 22:50
+
+
+河底捞鱼，太惨了
+
+
+-----
+
+####  甘栗No.007  
+##### 17228#       发表于 2021-6-13 22:51
+
+
+ 本帖最后由 甘栗No.007 于 2021-6-13 22:52 编辑 
+
+游戏就要笑着玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+今天是练习赛
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  T_Hb  
+##### 17229#       发表于 2021-6-13 22:53
+
+
+开始说胡话了、
+
+羽衣老师虽然打的不好，但是运好啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17230#       发表于 2021-6-13 22:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">四个戏精
+
+
+-----
+
+####  时间在我手中  
+##### 17231#       发表于 2021-6-13 23:00
+
+
+这把开了是吧
+
+
+-----
+
+####  T_Hb  
+##### 17232#       发表于 2021-6-13 23:01
+
+
+小开不算开，这是技术调整
+
+
+-----
+
+####  路人庚  
+##### 17233#       发表于 2021-6-13 23:05
+
+
+金发小男孩=アレ（悲
+
+
+-----
+
+####  格林卡罗尔  
+##### 17234#       发表于 2021-6-13 23:06
+
+
+开始觉得比赛不被飞就算胜利
+
+
+-----
+
+####  路人庚  
+##### 17235#       发表于 2021-6-13 23:12
+
+
+mea：（吹台风）
+
+舞元：久违的没联动了感觉更难顶了是咋回事…
+
+苔苔：不要把真正的想法说出来啊
+
+mea：舞…苔苔你怎么回事？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17236#       发表于 2021-6-13 23:23
+
+
+ 本帖最后由 时间在我手中 于 2021-6-13 23:25 编辑 
+
+这牌太杂鱼了今晚，宛若爷铜场大战的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+犬山走远了
+
+
+-----
+
+####  T_Hb  
+##### 17237#       发表于 2021-6-13 23:35
+
+
+今天真是充实的一天<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17238#       发表于 2021-6-13 23:35
+
+
+结束了，有趣的联动，乐了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+                                                
