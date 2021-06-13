@@ -13045,3 +13045,39 @@ fate吧和nga逛了一圈，只能说国内手游圈是真有意思，“查成�
 
 
                                                  
+
+-----
+
+####  cckuku  
+##### 79108#       发表于 2021-6-13 20:56
+
+
+看完了nga的翻译，不懂这节奏怎么起的。不过既然读者有意见那蘑菇你就把锅背好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+顺便有人说下日本那边对这段剧情有起节奏吗？
+
+
+-----
+
+####  森兰丸  
+##### 79109#       发表于 2021-6-13 21:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">说一个几乎没看到有人讨论过的剧情细节.....一开始帮助咕哒一行忘了自己名字的妖精少女虽然黑了便当了但后面剧情应该还有伏笔吧
+
+
+从头到尾也没说清这妖精少女到底是为什么忘了自己的名字.....之前是做什么的....和C呆的两个人的秘密也没说清是什么.....没道理给一个路人NPC留这么多疑点就让她早早退场了
+
+
+-----
+
+####  zakki  
+##### 79110#       发表于 2021-6-13 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51585499&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-6-13 20:56</a>
+看完了nga的翻译，不懂这节奏怎么起的。不过既然读者有意见那蘑菇你就把锅背好
+顺便有人说下日本那 ...</blockquote>
+日本不知道，但4chan那有点儿节奏，但不怎么大，更多的还是在对着妖崔发情，去逛一圈能收不少图<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
