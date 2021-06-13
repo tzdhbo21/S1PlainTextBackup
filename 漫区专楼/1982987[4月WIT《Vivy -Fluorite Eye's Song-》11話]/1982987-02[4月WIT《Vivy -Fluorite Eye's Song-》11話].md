@@ -4675,3 +4675,62 @@ Archive說人類是粑粑,但人類越來越巨嬰化,事事依賴AI,哪有粑�
 
 
                                                  
+
+-----
+
+####  最强惠酱  
+##### 1866#       发表于 2021-6-13 16:36
+
+
+我先看了这周86再看这集vivy，同样的4：3回忆，对比起来vivy这片真tm拉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  HollowBreaker  
+##### 1867#       发表于 2021-6-13 17:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583037&amp;ptid=1982987" target="_blank">timerrr 发表于 2021-6-13 16:27</a>
+
+战吧和B吧喊神作的都是他，无论是主楼还是楼中楼的回复都非常自我的弱智 ...</blockquote>
+贴吧里目前就他一个，还算好的。
+
+大概2周前nbht在b站上出了个视频，稍微批评了下Vivy并说了下自己的担心点，评论区里就有一堆人说他“展现了动漫婆罗门的恶臭优越感”、“挑刺”、“不像某30多岁老外一样还有喜欢新番的激情”，还有人表示“就是要吹Vivy、就是要往死里奶”。
+
+不知道他们现在心情如何<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  acejoe  
+##### 1868#       发表于 2021-6-13 17:15
+
+
+这片看下来还不如deca dence
+
+
+-----
+
+####  MASKA-1  
+##### 1869#       发表于 2021-6-13 17:18
+
+
+ 本帖最后由 MASKA-1 于 2021-6-13 17:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583394&amp;ptid=1982987" target="_blank">HollowBreaker 发表于 2021-6-13 17:09</a>
+
+贴吧里目前就他一个，还算好的。
+
+大概2周前nbht在b站上出了个视频，稍微批评了下Vivy并说了下自己的担心 ...</blockquote>
+这些人难道不是b站那边的大多数吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+到最后就算拉跨了，要么他根本看不出来，要么就不承认（平稳落地啦，对原创要求不要太高啦，你懂不懂创作者的努力啦之类的），结果就是还能接着吹+到处安利<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你说他们心情如何，当然是成功造神+自己眼光独到高兴的很喽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+所以这两年就觉得，当初吹国家队的人在国家队翻车后还能跳反而不是抱着一起沉入深渊比这些人有趣多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

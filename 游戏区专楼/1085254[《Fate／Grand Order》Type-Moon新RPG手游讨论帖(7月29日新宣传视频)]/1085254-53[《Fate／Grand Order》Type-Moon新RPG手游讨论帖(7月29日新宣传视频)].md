@@ -12866,3 +12866,39 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79096#       发表于 2021-6-13 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582283&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-13 14:42</a>
+
+别说崔悲伤没了没啥波动，现有的章节打完了c呆都没啥波动，整一个快乐的旅游背包客
+
+
+成长最大的反而是盾 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">还是有的，例如第九节C呆十分想跑路。甚至觉得跑路的口号要自己喊，这是为了御主。这时候色茄子不顾生死冲上去抗住，肯定是对她有波动的
+
+
+-----
+
+####  newfaceryo  
+##### 79097#       发表于 2021-6-13 17:13
+
+
+ 本帖最后由 newfaceryo 于 2021-6-13 17:18 编辑 
+
+现在的读者真有意思，只要对不上自己的喜好就喊注水，女主和别人牵了一下手就是ntr。
+
+自己看什么都恨不得跳过，
+
+往往最后看到结局明明作者铺垫的清清楚楚的脉络，
+
+就因为和自己想的不一样就掀桌大喊作者玩我，又烂尾了。
+
+自己上台当猴耍很好玩吗
+
+
+                                                 
