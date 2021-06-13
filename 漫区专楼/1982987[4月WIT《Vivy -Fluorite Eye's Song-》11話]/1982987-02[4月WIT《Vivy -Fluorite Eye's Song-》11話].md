@@ -5134,3 +5134,140 @@ AI：就这，不然你以为有什么深层次的原因？
 
 
                                                 
+
+-----
+
+####  a12885084  
+##### 1901#       发表于 2021-6-13 23:44
+
+
+这季我追的SSSS 哥斯拉 奇巧计程车 VIVY 国产是罗小黑和时光代理人 SSSS很对我电波
+
+这不就VIVY最拉<img src="https://static.saraba1st.com/image/smiley/carton2017/018.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zero_death  
+##### 1902#       发表于 2021-6-13 23:50
+
+
+问题是二次元的经典也比这玩意强多了啊 不管是科幻还是穿越<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+大概是拉到极致的原创看多了 大众的审美标准也降低了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+去bgm看了眼，这不还是有7.6嘛<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2010, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  loley  
+##### 1903#       发表于 2021-6-14 00:00
+
+
+<blockquote>nerugigannte 发表于 2021-6-13 23:33
+可单从二次元来看这片恋爱味也不浓呐呐呐，明明是不够二次元！美少女皮科幻皮都沾了点我也没看明白想努力 ...</blockquote>
+那我加个补充条件，喊这作是神作的观众也没看过二次元经典😄
+
+
+-----
+
+####  枪聆弹语  
+##### 1904#       发表于 2021-6-14 00:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VIVY 7.6 异度7.5 蛋蛋 7.4 三兄弟谁都不要笑话谁吧
+
+
+-----
+
+####  aptx8285144  
+##### 1905#       发表于 2021-6-14 00:06
+
+
+看了一眼贴吧，有人提vivy剧本幕后故事，大结局确实是有俩人商量，一开始没有长月，是梅原把长月叫来帮忙的，长月是负责1-4集和7-9集，其他是梅原负责，据说是福山润主持的广播里透露的（想自己去亲自确认的可以找资源），另外如果说长月有re0和战翼，梅原的剧本到是没什么印象了[https://tieba.baidu.com/p/7401895968?red_tag=3386494232](https://tieba.baidu.com/p/7401895968?red_tag=3386494232)
+
+
+-----
+
+####  枪聆弹语  
+##### 1906#       发表于 2021-6-14 00:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最蠢的AI不说人话自杀，那段居然是长月写的嘛，难怪了
+
+
+-----
+
+####  MikawaFumika  
+##### 1907#       发表于 2021-6-14 00:12
+
+
+这动画某种意义上还不如契丹物语，契丹后面出ova有得救，vivy最后一集会把救的空间封死
+
+
+-----
+
+####  MikawaFumika  
+##### 1908#       发表于 2021-6-14 00:22
+
+
+<blockquote>aptx8285144 发表于 2021-6-14 00:06
+看了一眼贴吧，有人提vivy剧本幕后故事，大结局确实是有俩人商量，一开始没有长月，是梅原把长月叫来帮忙的 ...</blockquote>
+果然跟主线撕裂最严重的几段剧情都是长月负责的
+
+
+-----
+
+####  hqtkkb  
+##### 1909#       发表于 2021-6-14 00:23
+
+
+文艺复兴啊，2021年了还能看到这种ai毁灭人类的理由，话说这群ai连首歌都写不出来，怎么会这么自信的觉得自己比人类强？
+
+
+另外，这结局属实太好猜了，一点成就感也没有。
+
+
+网页捕获_14-6-2021_01950_www.saraba1st.com.jpeg
+(20.85 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-14 00:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/14/002321pm97hlele2uv8i5u.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asda  
+##### 1910#       发表于 2021-6-14 00:43
+
+
+去到第10集结尾, AI一边大合唱一边杀人还是很好的, 就是一开始解迷就拉胯
+
+正常人写一个很神的开头是不难的, 因为没人知道迷底是什么, 猜想背后有些什么, 自然会神
+
+但一去到解迷, 迷底和预期的高度差太远, 就会一插不起, 经典案例就是正解的卡多
+
+破局方法是干脆没迷底, 如deca dence
+
+或是vivy这样用一个平庸至极的结尾收掉
+
+不过这样就成不了神作, 只能是普作
+
+
+-----
+
+####  sanae  
+##### 1911#       发表于 2021-6-14 00:52
+
+
+最后卫星砸下来那一幕画面上还是很有感觉的，为什么剧本要这样拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+                                                 

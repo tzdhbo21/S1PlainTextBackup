@@ -13159,3 +13159,79 @@ fate吧和nga逛了一圈，只能说国内手游圈是真有意思，“查成�
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79118#       发表于 2021-6-13 23:38
+
+
+ 本帖最后由 exiaexa 于 2021-6-13 23:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51586626&amp;ptid=1085254" target="_blank">yangun22 发表于 2021-6-13 22:22</a>
+
+日本wiki基本都在猜奥贝龙是不是贝利尔的从者，前面那个没名字的妖精其实是不是原本的翅之氏族的组长然后被 ...</blockquote>
+不至于不至于，国内只是更喜欢能拿来轮的东西
+
+
+比如目前ntr节奏外最快乐的内容是，北欧瞎子附身凯尔特猛男卧底，特异点f到底藏了多少东西，以及红a又双叒叕开始叠盒子了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79119#       发表于 2021-6-13 23:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51584203&amp;ptid=1085254" target="_blank">都谷捻柏 发表于 2021-6-13 18:48</a>
+没准这个绿不绿的弱智问题正是前半段官方留给玩家的大礼呢</blockquote>
+那不更好吗.jpg
+牛头人狂喜好吧，我甚至在期待炸猪排摩根mod做的scene了了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79120#       发表于 2021-6-13 23:43
+
+
+ 本帖最后由 exiaexa 于 2021-6-14 00:03 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51585499&amp;ptid=1085254" target="_blank">cckuku 发表于 2021-6-13 20:56</a>
+
+看完了nga的翻译，不懂这节奏怎么起的。不过既然读者有意见那蘑菇你就把锅背好
+
+顺便有人说下日本那 ...</blockquote>
+有，但是怎么说呢，对着摩根/母崔悲伤发情的、牛头人狂喜的、准备干死贝利尔的、等ntr本的，乱成一团欢乐的很
+
+
+比如我印象里最艹的是有个“公式マシュNTR展開感謝します”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  newfaceryo  
+##### 79121#       发表于 2021-6-14 00:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51587457&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-13 23:33</a>
+
+声明有屁用，我还声明我是就被蘑菇影响了中二期，十多年前就跑澄空看翻资料抄在笔记本上呢，现在还不是连 ...</blockquote>
+很简单啊，galgame本来就是靠绵密的铺垫最后靠一口气回收起爆达到效果的。
+
+十几年前澄空火的游戏哪个不是这样。
+
+听你这口气，好像觉得除了最后爆的那一下才是核心，之前的东西全是灌水，
+
+这和吃了十个馒头饱了觉得前九个馒头都是废物白吃了有什么区别？能不能别那么幼稚了。
+
+
+你要说咕哒c呆线有些东西目前确实是除了铺设定慢热暂时看不出作用我完全没有异议。
+
+上来一口气咬定全都是灌水，就不考虑后章开了打脸？
+
+哦，反正到时候可以一口咬定都是蘑菇的错，我们消费者大爷是一定不会错的，对不对。
+
+
+                                                 
