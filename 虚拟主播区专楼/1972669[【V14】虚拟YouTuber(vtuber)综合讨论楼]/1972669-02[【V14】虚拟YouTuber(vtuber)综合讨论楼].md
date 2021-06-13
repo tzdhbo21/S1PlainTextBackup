@@ -10535,3 +10535,72 @@ teresa这中文还挺好的
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 2337#       发表于 2021-6-13 19:51
+
+
+真的公主抱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 前面staff整活也挺好玩
+
+
+-----
+
+####  渡鸦骑士  
+##### 2338#       发表于 2021-6-13 19:57
+
+
+[https://www.youtube.com/watch?v=0L7w1OW5O54](https://www.youtube.com/watch?v=0L7w1OW5O54)
+
+传说中的那位野良猫（机械音）在直播vr枪战，蛮稀奇的
+
+
+-----
+
+####  Abyssmarionette  
+##### 2339#       发表于 2021-6-13 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">hcn的皮加起来有tia小姐的新皮贵吗
+
+
+-----
+
+####  OldGlory  
+##### 2340#       发表于 2021-6-13 20:28
+
+
+加起来应该是有的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">维阿那种水平的给的预算是6w一个。
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 2341#       发表于 2021-6-13 20:37
+
+
+说起来虹pex有奖品吗？
+
+
+-----
+
+####  opersuper  
+##### 2342#       发表于 2021-6-13 20:40
+
+
+有把10万观众当狗一样溜的团团转的，也有被一两万观众的期待压倒独立人格的，这下德不配位了
+
+
+-----
+
+####  rzrbtk  
+##### 2343#       发表于 2021-6-13 20:49
+
+
+郡神还可以再续半年吧（大概）
+
+
+                                                

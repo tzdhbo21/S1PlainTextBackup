@@ -13034,3 +13034,14 @@ fgo4个主线写手罢了，型月哪只4个<img src="https://static.saraba1st.c
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79107#       发表于 2021-6-13 19:50
+
+
+fate吧和nga逛了一圈，只能说国内手游圈是真有意思，“查成分”？我特么笑爆<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                 
