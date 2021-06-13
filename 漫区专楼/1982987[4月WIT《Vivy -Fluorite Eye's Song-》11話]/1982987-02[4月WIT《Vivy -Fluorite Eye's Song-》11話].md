@@ -5349,3 +5349,22 @@ reddit上按karma指标86倒是总体上拉开vivy一个身位，而且越到后
 
 
                                                  
+
+-----
+
+####  shimmy1996  
+##### 1917#       发表于 2021-6-14 07:28
+
+
+ 本帖最后由 shimmy1996 于 2021-6-14 07:30 编辑 
+
+孙女线感觉太唐突了，怀疑就是炮灰不够了拉上伊丽莎白来凑<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+博士选vivy完全基于感性理由我觉得比给最接近人的ai之类的解释要好（想想拍机器人唱歌这么感性的主题为啥要期待硬科幻一样的完全理性选择呢<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+archive真的不是隔壁尼尔世界线穿越过来的吗<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+最后选的结局路线我挺喜欢的。和战翼就是为了拍美少女开飞机编的设定一样，问就是想拍ai唱歌拯救世界：这种桥段虽然老套但就是好看啊<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+                                                 
