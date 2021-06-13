@@ -4611,3 +4611,67 @@ vv能自己写曲就是百年难遇，有意无意地把“自主创作”这一
 
 
                                                  
+
+-----
+
+####  Mc凉月奏酱  
+##### 1861#       发表于 2021-6-13 15:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581928&amp;ptid=1982987" target="_blank">selain.meneth 发表于 2021-6-13 14:01</a>
+
+万一辽史13集反转了呢，vivy也有13集</blockquote>
+辽史这个调调什么样的结尾都是合理的，vivy这单线程的可不行。
+
+
+-----
+
+####  selain.meneth  
+##### 1862#       发表于 2021-6-13 16:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582062&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-6-13 14:15</a>
+
+Archive說人類是粑粑,但人類越來越巨嬰化,事事依賴AI,哪有粑粑會事事依賴孩子的?這不是人類,我們自力更生 ...</blockquote>
+其实Archive就是个不想承担赡养义务而杀死老人的中年危机上班族<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+问题是搞了115年，AI的创造能力就只有作一首曲，原理未解明，而且还是站人类那边的vivy。到底是什么自信让Archive觉得AI代替人类后，发展会超过能发明时光机旧人类？
+
+
+-----
+
+####  JustW  
+##### 1863#       发表于 2021-6-13 16:07
+
+
+<blockquote>圆环之爱 发表于 2021-6-13 13:09
+突然想到。最后一集来个经费爆炸的演出把vivy唱歌拯救世界的氛围拉满，吹爆封神派就又冒出头来了 ...</blockquote>
+人家现在也没缩头啊（）
+
+
+-----
+
+####  圆环之爱  
+##### 1864#       发表于 2021-6-13 16:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582873&amp;ptid=1982987" target="_blank">JustW 发表于 2021-6-13 16:07</a>
+
+人家现在也没缩头啊（）</blockquote>
+现在冒出来的感觉都像反串的，战吧确实有个这样的贴，但弱智的有点像在钓鱼，稍微正常的主力还在平稳落地
+
+
+-----
+
+####  timerrr  
+##### 1865#       发表于 2021-6-13 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582926&amp;ptid=1982987" target="_blank">圆环之爱 发表于 2021-6-13 16:13</a>
+
+现在冒出来的感觉都像反串的，战吧确实有个这样的贴，但弱智的有点像在钓鱼，稍微正常的主力还在平稳落地 ...</blockquote>
+战吧和B吧喊神作的都是他，无论是主楼还是楼中楼的回复都非常自我的弱智<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 

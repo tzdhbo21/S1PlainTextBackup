@@ -7514,3 +7514,66 @@ cream不是星川吗 是她说的？
 
 
                                                  
+
+-----
+
+####  甘栗No.007  
+##### 17167#       发表于 2021-6-13 15:31
+
+
+可爱的曲子肯定有honeyworks
+
+
+-----
+
+####  Klience  
+##### 17168#       发表于 2021-6-13 15:39
+
+
+希望来多点新歌吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17169#       发表于 2021-6-13 15:42
+
+
+可饶了我吧，新歌必糊
+不过想想，不唱新歌也得糊，没差<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17170#       发表于 2021-6-13 15:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">糊咩也很可爱，糊咩喜欢
+
+
+-----
+
+####  Cushaw  
+##### 17171#       发表于 2021-6-13 15:56
+
+
+ 本帖最后由 Cushaw 于 2021-6-13 16:08 编辑 
+
+别尬黑，radwimps老三样唱的真不糊，但是每次都有搞得我以为日音只有他们写抒情曲一样<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+syl，我想想还有谁，世终，棒鸡，胡子男，只要是主唱帅气都可以是吧
+zsyl，八爷对麻来说已经是过气的男人了
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  路人庚  
+##### 17172#       发表于 2021-6-13 16:03
+
+
+主唱帅气就都可以的话，那八爷也很帅气啊，为什么八爷的曲子唱的这么少<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+                                                 

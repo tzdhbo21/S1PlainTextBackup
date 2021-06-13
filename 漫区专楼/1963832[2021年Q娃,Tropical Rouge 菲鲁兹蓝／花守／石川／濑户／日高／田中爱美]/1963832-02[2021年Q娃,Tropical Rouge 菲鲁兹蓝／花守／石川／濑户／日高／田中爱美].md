@@ -1463,3 +1463,31 @@ Q娃形态用枪械的，屑人鱼的确应该是第一个</blockquote>
 
 
                                                  
+
+-----
+
+####  Sliurus  
+##### 1618#       发表于 2021-6-13 15:55
+
+
+可惜宣传太多没啥悬念，不然猜罗拉会不会黑化还挺有看头的
+
+虽然逻辑上说不通，毕竟想变人是因为队友，因此去背叛反而得不偿失
+
+
+-----
+
+####  暗黑能乐  
+##### 1619#       发表于 2021-6-13 16:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582779&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-6-13 15:55</a>
+可惜宣传太多没啥悬念，不然猜罗拉会不会黑化还挺有看头的
+
+虽然逻辑上说不通，毕竟想变人是因为队友，因此 ...</blockquote>
+那代价肯定还是有的吧
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
