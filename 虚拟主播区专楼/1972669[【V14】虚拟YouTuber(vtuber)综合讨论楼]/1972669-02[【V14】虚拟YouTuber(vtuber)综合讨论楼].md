@@ -10241,3 +10241,109 @@ hcn回旋还行，请童话社先回旋<img src="https://static.saraba1st.com/im
 
 
                                                 
+
+-----
+
+####  Ronso  
+##### 2312#       发表于 2021-6-13 13:50
+
+
+我已经出离愤怒了，免费佬能不能不要只是看着，<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  敖轩  
+##### 2313#       发表于 2021-6-13 14:04
+
+
+平时骂免费骂得开心，出事了又要人家斡旋，免费没尊严的咯。<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 2314#       发表于 2021-6-13 14:09
+
+
+夜见的直播终于没有同接二位数的xsr 男人了，可以看了
+
+
+-----
+
+####  昆西昆希昆  
+##### 2315#       发表于 2021-6-13 14:16
+
+
+这踩赞比是怎么回事
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/141616wd3zstct3hc53g9a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210613_004755_com.google.android.youtube.jpg</strong> (237.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 14:16 上传
+
+
+-----
+
+####  星期三下午五点  
+##### 2316#       发表于 2021-6-13 14:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">嘻嘻
+
+
+-----
+
+####  昆西昆希昆  
+##### 2317#       发表于 2021-6-13 14:17
+
+
+ 本帖最后由 昆西昆希昆 于 2021-6-13 14:25 编辑 
+
+今天踩赞比已经逼近2：1了。虹人要炎去炎夏色祭这个社外来的好不好，小千是无辜的
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/142503e33hi224bw4ln2zd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210613_142457_com.google.android.youtube.jpg</strong> (228.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 14:25 上传
+
+
+-----
+
+####  nowaki  
+##### 2318#       发表于 2021-6-13 14:24
+
+
+肯定是杏奴踩的 下贱
+
+
+-----
+
+####  Aminor  
+##### 2319#       发表于 2021-6-13 14:30
+
+
+昨晚在外面看虹apex是9.9w观众，刚好点进去是她和阿希这一队发表感想，同接瞬间掉到8w多，没关注这个比赛，不知道是巧合还是因为夏色祭出场了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 2320#       发表于 2021-6-13 14:39
+
+
+这个踩数估计小千她自己已经习惯了
+
+
+                                                 

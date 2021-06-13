@@ -12720,3 +12720,62 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79086#       发表于 2021-6-13 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581633&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-13 13:19</a>
+长还不好？等了一年半了再不给弄长点儿型月和dw是真该倒闭了，巴不得多写点儿，毕竟2.7怕是得等明年了[f:03 ...</blockquote>
+拉倒吧，让你菌皇上班又不是让他来注水
+第七章好评难道是因为前半截在打工摸鱼找（女）老（神）婆吗
+
+那异闻简报就能说清楚的东西磨蹭了多久，这个甚至不用干啥，写成达芬奇打工或者奥博龙事前调查的就完事儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  清风朗月  
+##### 79087#       发表于 2021-6-13 14:06
+
+
+去年不是还要一堆人要撕玛修的（讲真话我打的也快没好感了），真的是“得不到也不要让别人得到所以就毁掉”啊
+
+
+-----
+
+####  我爱喵喵  
+##### 79088#       发表于 2021-6-13 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579863&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-13 10:00</a>
+
+我已经把她当龙娘代餐了</blockquote>
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/140722wa6o0mxoxx3i7t0x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210613140717.jpg</strong> (74.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 14:07 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">弓阶龙娘，没什么问题
+
+
+-----
+
+####  areklose  
+##### 79089#       发表于 2021-6-13 14:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面注水我没杀意见，我最大意见是崔悲伤白给的太快。让我不懂自动召唤他的意义。我一开始以为会白给推动C呆担起责任。但我看这白给的太早，和C呆交杂不多。我觉得C呆毫无波动。
+
+
+                                                 

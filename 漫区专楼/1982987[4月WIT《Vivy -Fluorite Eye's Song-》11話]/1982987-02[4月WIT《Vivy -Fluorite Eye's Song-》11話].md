@@ -4433,3 +4433,159 @@ re0我是看疯批角色和cv飙戏的，典型代表是S1 ep.15<img src="https:
 
 
                                                 
+
+-----
+
+####  Ditfran  
+##### 1846#       发表于 2021-6-13 13:34
+
+
+离标准日式煽情说教只差一个修正掌了，真是可惜松本没有长手了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MASKA-1  
+##### 1847#       发表于 2021-6-13 13:37
+
+
+这世界观里的**人类还是毁灭吧。ai叛乱真就一点办法都没有呗，唯一可见的反抗力量还是人家一个叛军小分队，人类方面的正规军呢？不会把所有武装都包给ai了吧？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+（这种把命全交给别人的代码，莫名想起特斯拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  白玫瑰之夜  
+##### 1848#       发表于 2021-6-13 13:44
+
+
+托瓦克这组织活了几十年打个ai机器人还是拿枪射，这帮人毁了也算物竞天择了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  无证madam  
+##### 1849#       发表于 2021-6-13 13:46
+
+
+也太弱智了，建议以后每个季度设一个弱智原创位
+
+vivy一举击败哥斯拉，在我心目中的4月弱智原创大赛夺魁了
+
+
+-----
+
+####  shadow001  
+##### 1850#       发表于 2021-6-13 13:54
+
+
+Archive心中的人類到底是怎麼樣？事事親力親為不依賴AI？
+
+
+-----
+
+####  selain.meneth  
+##### 1851#       发表于 2021-6-13 13:57
+
+
+ 本帖最后由 selain.meneth 于 2021-6-13 13:59 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581876&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-6-13 13:54</a>
+
+Archive心中的人類到底是怎麼樣？事事親力親為不依賴AI？</blockquote>事事亲力亲为不依赖AI，那还要AI干嘛。
+
+
+这个世界的人类连有限条件的时空穿越装置都发明出来了，搞不懂AI眼里这个世界的人类的发展到底哪里不行了，难道是军事上没有发展出枪械以外的兵器？<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asdqwe_123  
+##### 1852#       发表于 2021-6-13 13:58
+
+
+这部剧情不是从头烂到尾吗，为什么到现在才开始骂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  selain.meneth  
+##### 1853#       发表于 2021-6-13 14:01
+
+
+ 本帖最后由 selain.meneth 于 2021-6-13 14:04 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581901&amp;ptid=1982987" target="_blank">asdqwe_123 发表于 2021-6-13 13:58</a>
+
+这部剧情不是从头烂到尾吗，为什么到现在才开始骂</blockquote>
+万一辽史13集反转了呢，vivy也有13集<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ipcjs  
+##### 1854#       发表于 2021-6-13 14:02
+
+
+“唱歌”和“没有心”都没啥问题，没有“心”唱不了歌就离谱了
+vivy一直“没有心”，歌不照样唱吗，敢情活了上百年老年痴呆到连歌咋唱都忘了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+更扯蛋的是，没有心 -&gt; 唱不了歌 -&gt; 最后导致人类灭亡<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+这就是长月达平的蝴蝶效应吗？果然是神作！<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  结夜野棠.  
+##### 1855#       发表于 2021-6-13 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581805&amp;ptid=1982987" target="_blank">无证madam 发表于 2021-6-13 13:46</a>
+也太弱智了，建议以后每个季度设一个弱智原创位
+
+vivy一举击败哥斯拉，在我心目中的4月弱智原创大赛夺魁了 ...</blockquote>
+哥斯拉哪里弱智了
+
+
+-----
+
+####  shadow001  
+##### 1856#       发表于 2021-6-13 14:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581892&amp;ptid=1982987" target="_blank">selain.meneth 发表于 2021-6-13 13:57</a>
+
+事事亲力亲为不依赖AI，那还要AI干嘛。
+
+
+这个世界的人类连有限条件的时空穿越装置都发明出来了，搞不懂AI眼 ...</blockquote>
+Archive說人類是粑粑,但人類越來越巨嬰化,事事依賴AI,哪有粑粑會事事依賴孩子的?這不是人類,我們自力更生的AI才是人類
+
+
+這AI觀察了人類150年還是不知道人類是甚麼<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kaiyan  
+##### 1857#       发表于 2021-6-13 14:18
+
+
+本来剧情就不能带脑子看了
+
+这集连抒情都尬得头皮发麻了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 1858#       发表于 2021-6-13 14:19
+
+
+因为人类太依赖AI所以无法发展，得出的结论难道不该是AI集体自毁？说是为了使命，还是有私心。
+
+
+                                                 
