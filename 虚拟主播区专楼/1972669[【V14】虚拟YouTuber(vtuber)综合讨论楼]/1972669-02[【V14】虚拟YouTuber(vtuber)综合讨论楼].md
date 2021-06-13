@@ -10022,3 +10022,15 @@ JeSU设立以后战绩好像更差了，而且怎么感觉日本电竞就盼着�
 
 
                                                  
+
+-----
+
+####  winda  
+##### 2293#       发表于 2021-6-13 09:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹pex这有不少人因为规格太高吓跑没参加的。
+忖度师本来想组同期队的，rrm和大小姐因为怕太菜被炎也没参加。
+
+
+                                                 

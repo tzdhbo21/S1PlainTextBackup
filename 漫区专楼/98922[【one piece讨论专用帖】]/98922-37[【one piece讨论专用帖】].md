@@ -14459,3 +14459,29 @@ op的本质是冒险
 
 
                                                  
+
+-----
+
+####  C男人  
+##### 55237#       发表于 2021-6-13 09:06
+
+
+ 本帖最后由 C男人 于 2021-6-13 09:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51576471&amp;ptid=98922" target="_blank">klzxs 发表于 2021-6-12 23:10</a>
+
+娜美因为小玉被打而愤怒我觉得真的很可笑 她比岛上任何敌军都危险百倍 最大的失误就是没尽早干掉她 ...</blockquote>
+这是啥思路？
+
+
+你要说小玉危险的话，
+
+
+那白星比小玉危险百倍，
+
+
+是不是该尽早拿去做刺身……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

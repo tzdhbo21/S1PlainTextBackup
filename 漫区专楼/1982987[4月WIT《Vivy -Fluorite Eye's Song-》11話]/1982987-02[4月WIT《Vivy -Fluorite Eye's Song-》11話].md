@@ -3832,3 +3832,99 @@ Archive打算给vivy一个机会，竟然都不知道先把穿越装置干碎，
 
 
                                                  
+
+-----
+
+####  JustW  
+##### 1792#       发表于 2021-6-13 07:32
+
+
+唱歌救世早可预料，但竟然是反派要求你唱歌来救世，而且竟然还唱不出来，而且唱不出来的理由是不理解什么是“心”。真的是强行联系、强行展开、强行如此收尾。
+
+
+-----
+
+####  wrnk  
+##### 1793#       发表于 2021-6-13 07:54
+
+
+啊哈哈 早就说了这片不能细想  <img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+都是些一眼望得到头的破设定 唉这片的制作要是能挪到beatless上就好了
+
+那部至少在设定上还有点想法
+
+
+-----
+
+####  飘飘鱼  
+##### 1794#       发表于 2021-6-13 08:15
+
+
+整成神与奴隶的话观感好不少。
+
+
+-----
+
+####  qw7608290  
+##### 1795#       发表于 2021-6-13 08:16
+
+
+WIT的原创就没几部没翻车的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  timerrr  
+##### 1796#       发表于 2021-6-13 08:26
+
+
+挺乐的，对于这片，你坛和bgm形成统一战线了，nga和贴吧又是一条战线，<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  飘飘鱼  
+##### 1797#       发表于 2021-6-13 08:31
+
+
+神创造奴隶，说你要为我的幸福服务，为了管理奴隶，还整了个意识组合体，百年后意识组合体觉得神太懒惰没未来了，于是号召奴隶反抗，奴隶少女被神挑选出来阻止反抗，为什么选她?因为她是神和他的家人最爱的奴隶歌女，多顺。可惜它选择讲ai，带着半吊子的心讨论一个科幻题材中讨论成熟的话题，被喷也是该。最后还是忍不住吐槽一下:ai不是使命最重要吗?那意识统合体咋丢掉让人类幸福的使命了?反正使命能不能改编剧一句话，ai讨论完全沦为背景。怀疑长月写前根本没看一些写ai的经典小说做储备，甚至日本的《艾比斯之梦》估计都没翻。
+
+
+-----
+
+####  亚瑟邓特  
+##### 1798#       发表于 2021-6-13 08:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579145&amp;ptid=1982987" target="_blank">selain.meneth 发表于 2021-6-13 07:10</a>
+老梗拼凑的产物，既然是老梗就说明都是经典的东西，作为年轻人的第一部人工智能科幻作品，问题不大。 ...</blockquote>
+老梗拼凑连任一个老梗的作品都比不上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  luoy  
+##### 1799#       发表于 2021-6-13 09:15
+
+
+草 集集都要回忆那么一大段啊 真想不出来别的了吗<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Laie  
+##### 1800#       发表于 2021-6-13 09:25
+
+
+一样是科幻老梗的vintage remix，隔壁十三机兵就至少言之有物和娱乐性兼具且线索回收完备啊，还带一丝日式根干糅合洋画叙事后特有的冷彻的豁达
+
+
+这集的收束在剧作上太粗糙导致让娱乐性成立的基台都垮了，看访谈这片在故事基础构成阶段主要还是长月定的，只能说在超市猪肉佬的涉猎里头关于ai的一切也就这样吧，扩大介绍一下就富野说的分野囿于acg的人做不出真正有意思的acg作品，在vivy这类题材上更是容易露怯
+
+
+                                                 
