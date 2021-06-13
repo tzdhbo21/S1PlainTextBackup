@@ -14508,3 +14508,22 @@ op的本质是冒险
 
 
                                                  
+
+-----
+
+####  klzxs  
+##### 55239#       发表于 2021-6-13 14:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579549&amp;ptid=98922" target="_blank">C男人 发表于 2021-6-13 09:06</a>
+
+这是啥思路？
+
+
+你要说小玉危险的话，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">啊 可能误会我是说娜美不该保护小玉了？
+
+我说小玉是敌军是指百兽海贼团视角 是想说她不可能因为是个孩子就被放过
+
+
+                                                 

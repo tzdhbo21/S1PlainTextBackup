@@ -4589,3 +4589,25 @@ Archive說人類是粑粑,但人類越來越巨嬰化,事事依賴AI,哪有粑�
 
 
                                                  
+
+-----
+
+####  gofbayrf  
+##### 1859#       发表于 2021-6-13 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582020&amp;ptid=1982987" target="_blank">结夜野棠. 发表于 2021-6-13 14:11</a>
+哥斯拉哪里弱智了</blockquote>
+臨近結尾了才 我只想看怪獸拆樓呀  他們卻BB了兩集
+
+
+-----
+
+####  potwater  
+##### 1860#       发表于 2021-6-13 15:07
+
+
+vv能自己写曲就是百年难遇，有意无意地把“自主创作”这一行为描写得意义超凡的倾向真是略有不适。在担忧什么，害怕AI取代人类“独一无二”的创作吗。
+
+
+                                                 

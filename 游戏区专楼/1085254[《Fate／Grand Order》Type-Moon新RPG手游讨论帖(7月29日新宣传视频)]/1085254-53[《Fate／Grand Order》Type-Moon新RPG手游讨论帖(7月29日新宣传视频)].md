@@ -12779,3 +12779,48 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79090#       发表于 2021-6-13 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582170&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-13 14:29</a>
+前面注水我没杀意见，我最大意见是崔悲伤白给的太快。让我不懂自动召唤他的意义。我一开始以为会白 ...</blockquote>
+别说崔悲伤没了没啥波动，现有的章节打完了c呆都没啥波动，整一个快乐的旅游背包客
+
+成长最大的反而是盾娘，没了立香干活更利索了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 79091#       发表于 2021-6-13 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582283&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-13 14:42</a>
+
+别说崔悲伤没了没啥波动，现有的章节打完了c呆都没啥波动，整一个快乐的旅游背包客
+
+
+成长最大的反而是盾 ...</blockquote>
+色茄子那是有本土英灵加成开了挂...否则就她那不经过大脑思考的行动早就不知道死几次了
+
+
+说穿了拳头大才是硬道理
+
+
+-----
+
+####  黑上シグマ  
+##### 79092#       发表于 2021-6-13 15:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">打完了，没劲，我对茄子无感，全程打哈欠……
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">后续还要等一个月…………
+
+
+                                                 
