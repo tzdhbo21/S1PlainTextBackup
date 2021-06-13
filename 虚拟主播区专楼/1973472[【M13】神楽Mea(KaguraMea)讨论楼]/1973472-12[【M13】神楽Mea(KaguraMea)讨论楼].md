@@ -8327,3 +8327,43 @@ mea：舞…苔苔你怎么回事？
 
 
                                                  
+
+-----
+
+####  呓亘  
+##### 17240#       发表于 2021-6-14 01:02
+
+
+本独角兽已经在崩溃边缘了……本来这几天心情就不好，烦.....
+
+
+-----
+
+####  汇聚群光  
+##### 17241#       发表于 2021-6-14 01:03
+
+
+有没有可能mea是故意为了恶心mixi才把麻将直播的标题设成那样的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+毕竟mixi在之前的歌回直播中把mea恶心得不轻，而这个人又是知名独角兽粉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17242#       发表于 2021-6-14 01:24
+
+
+这谁知道呢，不过反正联动内容挺有意思的，你咩姐疯狂吃瘪<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 17243#       发表于 2021-6-14 01:31
+
+
+你麻一直这么做作夸张的搞真的还有能被刺激到的独角兽吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
