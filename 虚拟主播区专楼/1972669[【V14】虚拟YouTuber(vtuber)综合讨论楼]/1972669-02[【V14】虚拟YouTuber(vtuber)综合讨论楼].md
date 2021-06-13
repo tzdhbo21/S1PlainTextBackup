@@ -10165,3 +10165,79 @@ JeSU设立以后战绩好像更差了，而且怎么感觉日本电竞就盼着�
 
 
                                                  
+
+-----
+
+####  格林卡罗尔  
+##### 2304#       发表于 2021-6-13 11:53
+
+
+虹这边也忖度过头了，从企划变综艺到后面虹ark新服搞不起来，都太怕被烧了
+
+
+-----
+
+####  qq845629713  
+##### 2305#       发表于 2021-6-13 12:12
+
+
+你虹现在就是男权社会的缩影，任何企划没有king等男人捧场就是光速凉凉
+
+
+-----
+
+####  OldGlory  
+##### 2306#       发表于 2021-6-13 12:36
+
+
+hcn6人现在有几个想回归的？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至少夜雾肯定不想。
+
+
+-----
+
+####  seki_m  
+##### 2307#       发表于 2021-6-13 12:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可能只有鱼皇
+
+
+-----
+
+####  tankai  
+##### 2308#       发表于 2021-6-13 12:56
+
+
+你给朵莉斯看过吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真田源次郎信繁  
+##### 2309#       发表于 2021-6-13 13:00
+
+
+hcn回旋还行，请童话社先回旋<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 2310#       发表于 2021-6-13 13:04
+
+
+原来的hcn一半都已经被乐府收编了，还怎么回旋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  lovcavil  
+##### 2311#       发表于 2021-6-13 13:05
+
+
+童话社从啊b头部回旋到本土不入流箱吗？
+
+
+                                                

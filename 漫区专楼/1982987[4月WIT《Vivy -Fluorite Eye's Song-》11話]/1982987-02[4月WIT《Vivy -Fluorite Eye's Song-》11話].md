@@ -4179,3 +4179,257 @@ S1和bgm统一战线对抗贴吧和nga统一 ...</blockquote>
 
 
                                                  
+
+-----
+
+####  pzk  
+##### 1822#       发表于 2021-6-13 11:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我在想，如果vivy和松本能把自己和数据库的链接断掉，那即使再穿越回去，数据库也不知道他们是第几次穿越回来的吧？
+
+那数据库自然也不会想到去把剩下的终端炸掉，把博士救下来岂不是可以无限穿越了？
+
+
+-----
+
+####  loley  
+##### 1823#       发表于 2021-6-13 11:47
+
+
+看了上面两条战线的话，去看了下NGA的专楼，差点没把我吓死，这看的是同一部动画吗？
+
+
+-----
+
+####  冰箱研会长  
+##### 1824#       发表于 2021-6-13 11:48
+
+
+......
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ReginaldMorgan  
+##### 1825#       发表于 2021-6-13 11:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579996&amp;ptid=1982987" target="_blank">mhfdt 发表于 2021-6-13 10:21</a>
+所以说我不知道re:0有啥好看的，长月达平是不是走不出这个套路了？
+
+撇开人物转变拉跨单说故事流程设计，这 ...</blockquote>
+re0我是看疯批角色和cv飙戏的，典型代表是S1 ep.15<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怠惰让松岗在我这获得了免黑权（暂时）
+
+
+-----
+
+####  ティグル  
+##### 1826#       发表于 2021-6-13 11:51
+
+
+ 本帖最后由 ティグル 于 2021-6-13 12:00 编辑 
+
+上周还有人质疑我现在就提分锅是不是太早了点，只能说你对长月达平的了解甚至不如我这个黑子了
+
+
+-----
+
+####  hein  
+##### 1827#       发表于 2021-6-13 11:52
+
+
+如果vivy写歌diva唱歌，全场live，我就给+2<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格雷殿下  
+##### 1828#       发表于 2021-6-13 11:56
+
+
+可恶啊，我之前看的盗版网炸了，等我找一个新的<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+看着大伙发病，我不能参与，烦死了
+
+
+-----
+
+####  枪聆弹语  
+##### 1829#       发表于 2021-6-13 11:58
+
+
+完全是低配京紫，不过京紫也是无聊啊，奈何人家前几集格局小啊，虽然后面列车站蠢是蠢了点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">长月老贼不会觉得发便当很感人把，出场总共不到一集的角色死就死了，与其说是工具人，不如说是到点就送的外卖小哥
+
+
+-----
+
+####  skgaminger1988  
+##### 1830#       发表于 2021-6-13 11:59
+
+
+主要还是后面几集氛围也兜不住了 隔壁86虽然设定也是漏洞百出 但是氛围意境拉满 根本没人去在意什么漏洞不漏洞的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  間桐櫻  
+##### 1831#       发表于 2021-6-13 11:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是, 这个穿越原理是甚麽能不能说明一下
+
+
+-----
+
+####  loley  
+##### 1832#       发表于 2021-6-13 12:07
+
+
+有点想知道完结之后是走台长锐评VIVY主线拉垮，NGA再起批斗高楼的A世界线，还是台长臣服于新受众，盛赞VIVY是这个时代的好动画的B世界线了。
+
+
+-----
+
+####  aptx8285144  
+##### 1833#       发表于 2021-6-13 12:11
+
+
+这片其实最近几话有个很大的问题就是，<strong>开始时候突然和上一话时间点完全不吻合，而且没有什么预兆告诉观众是怎么回事</strong>，过了好几分钟才明白女主他们现在是什么环境和处境<img src="https://static.saraba1st.com/image/smiley/face2017/103.png" referrerpolicy="no-referrer">，这让人经常忍不住想拉着进度去看，反正第三个单元剧开始正常剧情感觉越来越差
+
+
+-----
+
+####  yuruki  
+##### 1834#       发表于 2021-6-13 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579854&amp;ptid=1982987" target="_blank">ganeid 发表于 2021-6-13 09:58</a>
+秋后算账不可取bgm7.7，bili9.9，当时我给7算是保守评分
+
+我还特地往前翻了一下，平稳落地始祖异度 ...</blockquote>
+异度7.5啊，那没事了，原创前半得比改编多挣点安全系数，这很合理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  枪聆弹语  
+##### 1835#       发表于 2021-6-13 12:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">异度入侵格局也没这么大，台长完全看走眼了，这哪是一个公园啊，人类兴衰灭亡人机共存的偶像番大格局啊
+
+
+-----
+
+####  Piano-Forest  
+##### 1836#       发表于 2021-6-13 12:41
+
+
+[https://twitter.com/iromarimorito/status/1403734853720281093](https://twitter.com/iromarimorito/status/1403734853720281093)
+<img src="https://p.sda1.dev/2/53dc7435aa62d0baf03766b205a0e4db/E3sQtivVIAs0Q3C.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx8285144  
+##### 1837#       发表于 2021-6-13 12:43
+
+
+ 本帖最后由 aptx8285144 于 2021-6-13 12:44 编辑 
+
+异度侵入有个好的地方就是瓢哥和小春都是握着剧情主动权走的，即使又出乎他们意料外的情况也会切切实实地思考对策而做出反应，瓢哥悲伤完了还是该干吗去干吗，小春就更不用说了，瓢哥逃避那段时间是她提醒的，最终话结束时面对刀哥的死讯说得他只值一滴眼泪的名言简直了233，而松本和薇薇从第三个单元剧开始的纠结就没有真正停止过，前者的逼格也是随着时间推移而暴跌
+
+
+-----
+
+####  pzk  
+##### 1838#       发表于 2021-6-13 12:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">不是，别拿异度比了吧，异度就算最后的谜题拉了，秒个vivy不是轻轻松松，根本不是一个量级的选手啊
+
+
+-----
+
+####  404489039  
+##### 1839#       发表于 2021-6-13 12:53
+
+
+看以后还有谁敢找长月写动画剧本<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ipcjs  
+##### 1840#       发表于 2021-6-13 13:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51580881&amp;ptid=1982987" target="_blank">間桐櫻 发表于 2021-6-13 11:59</a>
+不是, 这个穿越原理是甚麽能不能说明一下</blockquote>
+长月达平：“石头门都看过吧，当然是那个记忆/data传输喽”
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  圆环之爱  
+##### 1841#       发表于 2021-6-13 13:09
+
+
+突然想到。最后一集来个经费爆炸的演出把vivy唱歌拯救世界的氛围拉满，吹爆封神派就又冒出头来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  acejoe  
+##### 1842#       发表于 2021-6-13 13:10
+
+
+这片第一集剧本问题就很严重，后面一个单元剧比一个拉，完全靠着主线的悬念撑着，结果越揭示悬念越拉。
+
+作画很厉害，演出还行，但你说这能把剧本拉起来吗？
+完全不能。
+
+
+-----
+
+####  hellodie  
+##### 1843#       发表于 2021-6-13 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51578652&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-6-13 03:17</a>
+
+【0】我是确实没想到能这么拉，全面超出预期
+
+有反转有牺牲有马戏有特写，情绪到位，“神回”好吧，“神回” ...</blockquote>
+讲真，这片子关于穿越的描写，还没大话西游这种搞笑片交待的清楚。
+
+
+-----
+
+####  lanlv  
+##### 1844#       发表于 2021-6-13 13:14
+
+
+可以看出长月达平运气\人缘是很好了
+
+
+-----
+
+####  rainknine  
+##### 1845#       发表于 2021-6-13 13:18
+
+
+最后一个故事要是安排成没有再轮回，一串事件后把危机解除，no屠杀no retry，把最后一个单元剧演好，大家唱歌谢幕。
+是否会比出岔子然后再穿越一次来得出乎人意料？
+
+感觉用脑干都能猜到一个loop系作品不会只回溯时间一次（
+
+
+                                                
