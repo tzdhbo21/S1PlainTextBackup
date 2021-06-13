@@ -12583,3 +12583,102 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  旅逆旅  
+##### 79075#       发表于 2021-6-13 09:32
+
+
+羽海野老师的人设看着这么温柔治愈，但是看pv感觉会黑，有一种既不情愿又有点期待的感觉，肯定能抽的吧我要给你送钱啊fgo
+
+
+-----
+
+####  exiaexa  
+##### 79076#       发表于 2021-6-13 09:38
+
+
+立香这边的路线太啰嗦了，那种“为了讲清楚什么是妖精”所以设计一堆科普情节，推进度全靠妖精王carry，崔悲伤光速送掉莫名其妙，然后菌类科普真是做的一坨，还有一堆烦人的妖精领域战
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+马修那边反而脱离了限制普通讲故事反而感觉好一点，起码狮子头比立香这边一堆妖精领主观感好多了
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79077#       发表于 2021-6-13 09:44
+
+
+红毛是不是你游头一个正版吸血鬼，怕太阳，吸血技能吸的真的是血<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79078#       发表于 2021-6-13 09:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579766&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-13 09:44</a>
+
+红毛是不是你游头一个正版吸血鬼，怕太阳，吸血技能吸的真的是血</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你就那么爱迫害龙娘吗
+
+
+-----
+
+####  里村紅葉  
+##### 79079#       发表于 2021-6-13 10:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579824&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-13 09:53</a>
+
+你就那么爱迫害龙娘吗</blockquote>
+我已经把她当龙娘代餐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 79080#       发表于 2021-6-13 10:13
+
+
+蘑菇这就是想说我也能写个西幻呢，所以我也要巨细无遗给你都把有的没的设定都讲一遍。
+
+
+话说现在的小玩家和太太们到底占了多少成了，菌类这点恶趣味都受不了了？打开几个直播和微博那脏话家乡话骂的可真难听，别说玛修那段了，就算是根本不是圆桌的假圆桌，一些太太们都好像被日了一样发羊癫疯。
+
+
+
+
+-----
+
+####  exiaexa  
+##### 79081#       发表于 2021-6-13 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579945&amp;ptid=1085254" target="_blank">fantuanxiaoyi 发表于 2021-6-13 10:13</a>
+蘑菇这就是想说我也能写个西幻呢，所以我也要巨细无遗给你都把有的没的设定都讲一遍。
+
+
+话说现在的小玩家和 ...</blockquote>
+当年这么多年新月厨们的造神计划后遗症嘛
+
+这两年每次蘑菇整什么幺蛾子都有人被动给他背锅，fex都是樱井拉低剧本质量，fele都是staff看不懂菌皇天下第一的剧本，武藏那是樱井亲女儿，跟菌皇有什么关系
+
+反正我们菌皇就是没有缺点的白莲花，恶趣味什么的都是关系户迫害我们菌皇啦
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79082#       发表于 2021-6-13 10:37
+
+
+风怒
+
+
+                                                

@@ -3928,3 +3928,157 @@ WIT的原创就没几部没翻车的<img src="https://static.saraba1st.com/image
 
 
                                                  
+
+-----
+
+####  岛村抱月  
+##### 1801#       发表于 2021-6-13 09:28
+
+
+前半集的煽情整的我无语了，后面的读档反而观感好一些<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  爱吃冻鳗的猫  
+##### 1802#       发表于 2021-6-13 09:33
+
+
+不至于难看，但我看真的还不如从前面几集开始好好心疗，完善vivy这角色，唱歌当偶像收尾来得好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，强行煽情真的很尬，那段鼓励台词简直像小学生憋作文，随便抄个固定桥段
+
+
+-----
+
+####  lyz1196  
+##### 1803#       发表于 2021-6-13 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51577787&amp;ptid=1982987" target="_blank">yuruki 发表于 2021-6-13 00:56</a>
+
+wit这是把巨4做出来了？
+
+Archive——艾伦，vivy——三笠
+
+我真的想骂台长了，这片何德何能可以和影宅并列7分 ...</blockquote>
+台长不是说监督会拿打戏作画堵我们嘴吗？等最后一集呗<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MASKA-1  
+##### 1804#       发表于 2021-6-13 09:51
+
+
+我觉得b吧有人说的挺好，从异度入侵到契丹到vivy，最后评价的时候就是：
+
+S1和bgm统一战线对抗贴吧和nga统一战线<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ganeid  
+##### 1805#       发表于 2021-6-13 09:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51577787&amp;ptid=1982987" target="_blank">yuruki 发表于 2021-6-13 00:56</a>
+
+wit这是把巨4做出来了？
+
+Archive——艾伦，vivy——三笠
+
+我真的想骂台长了，这片何德何能可以和影宅并列7分 ...</blockquote>
+秋后算账不可取<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">bgm7.7，bili9.9，当时我给7算是保守评分
+
+我还特地往前翻了一下，平稳落地始祖异度我给的7.5，这个降半档给7很合理<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2-gua  
+##### 1806#       发表于 2021-6-13 09:59
+
+
+ 本帖最后由 2-gua 于 2021-6-13 10:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">全世界都是vivy的死忠粉，八识塔要毁灭人类不过是为了吸引偶像的手段罢了
+
+
+-----
+
+####  JustW  
+##### 1807#       发表于 2021-6-13 10:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579806&amp;ptid=1982987" target="_blank">MASKA-1 发表于 2021-6-13 09:51</a>
+
+我觉得b吧有人说的挺好，从异度入侵到契丹到vivy，最后评价的时候就是：
+
+S1和bgm统一战线对抗贴吧和nga统一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/218.png" referrerpolicy="no-referrer">年轻人的前三部原创神作
+
+
+-----
+
+####  nerugigannte  
+##### 1808#       发表于 2021-6-13 10:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">说明年轻人的口味已经脱离恶臭宅片了，好事啊
+
+
+-----
+
+####  言酱啊啊啊  
+##### 1809#       发表于 2021-6-13 10:04
+
+
+这集比上集而言观感好一些了，虽然已经猜到了结局但是还是期待一下作画吧
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1810#       发表于 2021-6-13 10:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579145&amp;ptid=1982987" target="_blank">selain.meneth 发表于 2021-6-13 07:10</a>
+
+老梗拼凑的产物，既然是老梗就说明都是经典的东西，作为年轻人的第一部人工智能科幻作品，问题不大。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">年轻人的上一部科幻大作可能是01
+
+
+-----
+
+####  mhfdt  
+##### 1811#       发表于 2021-6-13 10:21
+
+
+所以说我不知道re:0有啥好看的，长月达平是不是走不出这个套路了？
+
+撇开人物转变拉跨单说故事流程设计，这大概就比鲁鲁修掀地板好那么一丢丢——长月达平是不是在对标石头门来写这些时穿系作品的？又不是所有人都能成为石头门的啊
+
+当然你要说一个AI怎么还卡唯心思想卡半天最后一句嘴炮就明白了，就当是出BUG死循环然后要从外部手动fix一下吧
+
+
+-----
+
+####  梦诗歌雪  
+##### 1812#       发表于 2021-6-13 10:34
+
+
+所以diva人格要是没被删是不是档案馆就不会灭世了？还是说必须要vivy作曲diva唱歌才是完整的可能性之AI，才能让档案馆放弃灭世？然后为了消除这种可能性档案馆就先穿越回去给垣谷小弟病毒让他删掉会唱歌的diva只留下会作曲的vivy，再回来问“我妈为啥会被吃掉”，高，实在是高啊<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+讲道理你们都知道是档案馆造反了怎么不直接穿回115年前把开发档案馆的码农干死阿赖耶识炸掉，只能说真的不能细想，为什么这集只能穿回暴动开始时让一堆人类送命而不能再穿回一百年前也都懒得解释了，还强行让终端被打爆博士被打死，保证我们这是最后一次穿越不能再作弊了哦，再作弊观众老爷要退票的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  borrowface  
+##### 1813#       发表于 2021-6-13 10:46
+
+
+算是看明白了，这片打一开始就不是从loop拯救世界这点为中心去规划剧情的，一切都是为了这最后的唯心议题准备的，难怪观感那么奇怪
+
+
+                                                 

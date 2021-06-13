@@ -10034,3 +10034,109 @@ JeSU设立以后战绩好像更差了，而且怎么感觉日本电竞就盼着�
 
 
                                                  
+
+-----
+
+####  opersuper  
+##### 2294#       发表于 2021-6-13 09:31
+
+
+ 本帖最后由 opersuper 于 2021-6-13 09:34 编辑 
+
+社内比赛找一群社外高手，那是不去了当垫脚石吗
+
+杏仁比赛少点忖度，虹人比赛多点团建，来点中庸之道吧
+
+
+-----
+
+####  cheatdeath3  
+##### 2295#       发表于 2021-6-13 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51578461&amp;ptid=1972669" target="_blank">寒星 发表于 2021-6-13 02:29</a>
+
+确实，一想就明白没有回旋的理由，但是这波肯定还是跟桐生可可的事情有关系，兔死狐悲心态崩了吗？[f:067 ...</blockquote>
+霓虹金的脑回路一向清奇
+
+谁知道呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  opersuper  
+##### 2296#       发表于 2021-6-13 09:36
+
+
+兔不死狐不悲，可笑可笑
+
+
+-----
+
+####  caupollen  
+##### 2297#       发表于 2021-6-13 09:42
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/094140nyy5v0p5wggv6svp.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (25.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 09:41 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 2298#       发表于 2021-6-13 09:42
+
+
+<img src="https://img.saraba1st.com/forum/202106/13/094223kfam4444o2nhlzma.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E3tXffRVUAMUned.jpg</strong> (371.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-13 09:42 上传
+
+
+[https://twitter.com/issikiiiiiii/status/1403811953424748544](https://twitter.com/issikiiiiiii/status/1403811953424748544)
+
+
+-----
+
+####  Porsche  
+##### 2299#       发表于 2021-6-13 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579747&amp;ptid=1972669" target="_blank">caupollen 发表于 2021-6-13 09:42</a>
+免费能不能不要就这么看着</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">欺负月灵什么都不懂而且温柔就在这馴れ馴れしい，看着比杏组还弱智
+之前几个来你B的yhm甚至都没让这样的小鬼得逞
+
+
+-----
+
+####  nowaki  
+##### 2300#       发表于 2021-6-13 10:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">免费忙着批判cover呢，月灵不重要
+
+
+-----
+
+####  JoelBirch  
+##### 2301#       发表于 2021-6-13 10:39
+
+
+一刷动态人都傻了，月灵组在搞毛啊
+
+
+                                                 
