@@ -4082,3 +4082,100 @@ S1和bgm统一战线对抗贴吧和nga统一 ...</blockquote>
 
 
                                                  
+
+-----
+
+####  傲娇的章鱼  
+##### 1814#       发表于 2021-6-13 10:48
+
+
+服了，这什么几把片。
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  梦诗歌雪  
+##### 1815#       发表于 2021-6-13 10:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51578057&amp;ptid=1982987" target="_blank">renkan119 发表于 2021-6-13 01:26</a>
+
+但这样最后放弃博士去救轮椅妹就说不通了啊 这时候vivy还没有做任何事情 不可能导致世界线修改成轮椅妹被 ...</blockquote>
+别想了，就是为了保证这是最后一次穿越营造不成功便成仁的气氛，至于理由回头想起来再擦屁股吧，或者大家忘了最好
+
+
+-----
+
+####  a12885084  
+##### 1816#       发表于 2021-6-13 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579888&amp;ptid=1982987" target="_blank">fantuanxiaoyi 发表于 2021-6-13 10:05</a>
+ 年轻人的上一部科幻大作可能是01</blockquote>
+虽然我01看了一半没看完
+但我怎么感觉比VIVY强哈哈哈哈哈
+
+
+-----
+
+####  Fingest  
+##### 1817#       发表于 2021-6-13 11:03
+
+
+什么jb玩意 
+
+2021了 还搞天网 能不能来个失控机仆
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1818#       发表于 2021-6-13 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51580352&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-6-13 11:02</a>
+
+虽然我01看了一半没看完
+
+但我怎么感觉比VIVY强哈哈哈哈哈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">一半刚到企业对决吧，企业对决开始的剧情比这个只有蠢10倍
+
+
+-----
+
+####  a12885084  
+##### 1819#       发表于 2021-6-13 11:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51580383&amp;ptid=1982987" target="_blank">fantuanxiaoyi 发表于 2021-6-13 11:05</a>
+ 一半刚到企业对决吧，企业对决开始的剧情比这个只有蠢10倍</blockquote>
+确实我是企业对决弃掉的…<img src="https://static.saraba1st.com/image/smiley/carton2017/077.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白玫瑰之夜  
+##### 1820#       发表于 2021-6-13 11:18
+
+
+ 本帖最后由 白玫瑰之夜 于 2021-6-13 11:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51580352&amp;ptid=1982987" target="_blank">a12885084 发表于 2021-6-13 11:02</a>
+虽然我01看了一半没看完
+但我怎么感觉比VIVY强哈哈哈哈哈</blockquote>
+只能说01后面更傻逼，不过01的ai倒也没这么离谱就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  JustW  
+##### 1821#       发表于 2021-6-13 11:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是最后一集煽情能兜住我就给+0了
+
+
+                                                 

@@ -10140,3 +10140,28 @@ JeSU设立以后战绩好像更差了，而且怎么感觉日本电竞就盼着�
 
 
                                                  
+
+-----
+
+####  集合酱  
+##### 2302#       发表于 2021-6-13 11:06
+
+
+是不是有病啊
+
+
+-----
+
+####  dddty  
+##### 2303#       发表于 2021-6-13 11:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51579615&amp;ptid=1972669" target="_blank">winda 发表于 2021-6-13 09:20</a>
+
+虹pex这有不少人因为规格太高吓跑没参加的。
+
+忖度师本来想组同期队的，rrm和大小姐因为怕太菜被炎也 ...</blockquote>
+要有选人权的，北小路想参加但是没有人带她。
+
+
+                                                 

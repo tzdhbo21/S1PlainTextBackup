@@ -12682,3 +12682,30 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                 
+
+-----
+
+####  仰望神的括约肌  
+##### 79083#       发表于 2021-6-13 11:21
+
+
+闭关两天打完了 感想就是蘑菇不亏写手团扛把子 没人监修想怎么写怎么写 一堆有的没的只要想讲的都塞进去完全不考虑取舍 过条河都能给你展开条支线就为了跟你讲妖精生孩子balabala  <img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">差点skip 
+
+马修那边体验也没怎么好 两边感觉都是狗拉羊肠子 绕一大圈干了一堆事但主要进度没怎么推进  倒是有头有脸的npc冒出来一堆  最后双线汇合时已经疲了 没感受到啥燃点 
+
+这个味过后总觉得有点熟悉 然后一想 这tm不就是后半部分的海贼王么<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79084#       发表于 2021-6-13 11:30
+
+
+打完最后一节了，nmd一开图进来觉得这阿瓦隆天气眼熟原来不是假的艹
+
+这他妈不就是ff14 5.0的无限光，最后打完灾厄那个动画一下子黑夜回来也是既视感爆炸了，甚至他们阿瓦隆人也是没见过真正的天空
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
