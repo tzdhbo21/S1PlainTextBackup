@@ -12902,3 +12902,98 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79098#       发表于 2021-6-13 17:41
+
+
+ 本帖最后由 zakki 于 2021-6-13 17:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582693&amp;ptid=1085254" target="_blank">zore 发表于 2021-6-13 15:44</a>
+在这梦游呢还蘑菇独裁
+
+我巴不得一天24小时按着蘑菇的头去写,什么樱井东出一边凉快去 ...</blockquote>
+菌皇还不独裁？核心设定，大纲全拿在他手里<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 79099#       发表于 2021-6-13 17:44
+
+
+ 本帖最后由 zakki 于 2021-6-13 17:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581816&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-13 13:47</a>
+拉倒吧，让你菌皇上班又不是让他来注水
+第七章好评难道是因为前半截在打工摸鱼找（女）老（神）婆吗</blockquote>
+灌了就灌了，坑点是不一起放出来，让前篇毫无爆点<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79100#       发表于 2021-6-13 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583429&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-13 17:13</a>
+现在的读者真有意思，只要对不上自己的喜好就喊注水，女主和别人牵了一下手就是ntr。
+
+自己看什么都恨不得跳 ...</blockquote>
+装，接着装，是不是忘了第七章前半段骂成啥样子了
+当时可是有人指着鼻子骂第七章就是靠砸设定砸出来的，动画化以后对前期摸鱼环节戏份删得不够多的意见也有
+
+到你这儿就是读者不行了，连菌皇的Galgame病也要洗是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 79101#       发表于 2021-6-13 17:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583629&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-13 17:41</a>
+
+菌皇还不独裁？核心设定，大纲全拿在他手里</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一个型月四写手共治搞罗马是吧
+
+
+-----
+
+####  exiaexa  
+##### 79102#       发表于 2021-6-13 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583308&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-13 16:59</a>
+还是有的，例如第九节C呆十分想跑路。甚至觉得跑路的口号要自己喊，这是为了御主。这时候色茄子不 ...</blockquote>
+这前半段恶心就恶心在，本来这招小高潮章应该给一个c呆大打击或者大奋起留个悬念，大家一起讨论怎么翻盘，结果这戏份给马修抢了
+整得c呆就一个想跑路的梦游打哈哈人，讨论点啥都没有，全在撕绿不绿的弱智问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  newfaceryo  
+##### 79103#       发表于 2021-6-13 18:10
+
+
+ 本帖最后由 newfaceryo 于 2021-6-13 18:14 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583678&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-13 17:46</a>
+
+装，接着装，是不是忘了第七章前半段骂成啥样子了
+
+当时可是有人指着鼻子骂第七章就是靠砸设定砸出来的， ...</blockquote>
+事先说明下我本来也不是很喜欢第七章，
+
+但是借种失败的流沙河大妖怪明显是后面核心设定相关的内容，
+
+这也叫灌水那干脆除了直接两行帮你写清楚结局其它都叫灌水就行了。
+
+
+另外动画不好拍和我游戏有屁关系，
+
+动画党既然看不来文字老老实实看辣鸡动画得了。
+
+
+                                                 

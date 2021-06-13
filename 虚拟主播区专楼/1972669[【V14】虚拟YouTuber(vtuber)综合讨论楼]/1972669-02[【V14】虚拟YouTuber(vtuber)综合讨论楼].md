@@ -10480,3 +10480,27 @@ Bsyl，来自生川的生川家
 
 
                                                  
+
+-----
+
+####  free  
+##### 2332#       发表于 2021-6-13 17:39
+
+
+[https://twitter.com/virtual_teresa/status/1404002054754865153](https://twitter.com/virtual_teresa/status/1404002054754865153)
+
+teresa这中文还挺好的
+
+
+-----
+
+####  free  
+##### 2333#       发表于 2021-6-13 17:57
+
+
+[https://www.youtube.com/watch?v=_qqd8XuHnUA](https://www.youtube.com/watch?v=_qqd8XuHnUA)
+
+【3D LIVE】AZKi対バン企画 LAST V STANDiNG vol.3 #LVS3【GUEST:MaiR】
+
+
+                                                 
