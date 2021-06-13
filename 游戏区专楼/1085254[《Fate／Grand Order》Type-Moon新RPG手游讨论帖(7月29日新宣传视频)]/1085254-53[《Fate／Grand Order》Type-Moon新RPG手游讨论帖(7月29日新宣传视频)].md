@@ -12997,3 +12997,40 @@ nmd第七章再临是吧奈須子小姐，一开始刚过无名之森还在想�
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79104#       发表于 2021-6-13 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583725&amp;ptid=1085254" target="_blank">zore 发表于 2021-6-13 17:51</a>
+一个型月四写手共治搞罗马是吧</blockquote>
+fgo4个主线写手罢了，型月哪只4个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  都谷捻柏  
+##### 79105#       发表于 2021-6-13 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51583778&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-13 17:58</a>
+
+这前半段恶心就恶心在，本来这招小高潮章应该给一个c呆大打击或者大奋起留个悬念，大家一起讨论怎么翻盘 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没准这个绿不绿的弱智问题正是前半段官方留给玩家的大礼呢
+
+
+-----
+
+####  森兰丸  
+##### 79106#       发表于 2021-6-13 19:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">喵了一眼氪金榜.......辣鸡游戏这2天又是稳稳的占着第一名的位置
+
+
+你游还是熟悉的你游
+
+
+                                                 

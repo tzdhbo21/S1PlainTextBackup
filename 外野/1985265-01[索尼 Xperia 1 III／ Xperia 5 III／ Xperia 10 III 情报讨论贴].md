@@ -8693,3 +8693,32 @@ X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀
 
 
                                                  
+
+-----
+
+####  日霜衣  
+##### 625#       发表于 2021-6-13 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51560483&amp;ptid=1985265" target="_blank">MuAmUa 发表于 2021-6-11 17:00</a>
+
+不好用？</blockquote>
+温热受不了
+
+
+-----
+
+####  日霜衣  
+##### 626#       发表于 2021-6-13 18:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51561326&amp;ptid=1985265" target="_blank">bxcds 发表于 2021-6-11 18:14</a>
+
+说说痛点吧
+
+
+—— 来自 Sony XQ-AT52, Android 11上的 S1Next-鹅版 v2.0.4-play</blockquote>
+夏天有点温热受不了
+
+
+                                                 
