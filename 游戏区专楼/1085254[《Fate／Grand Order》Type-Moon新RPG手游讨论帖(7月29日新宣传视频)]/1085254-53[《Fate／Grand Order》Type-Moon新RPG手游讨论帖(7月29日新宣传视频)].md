@@ -13295,3 +13295,25 @@ fate吧和nga逛了一圈，只能说国内手游圈是真有意思，“查成�
 
 
                                                  
+
+-----
+
+####  xiongxingyu  
+##### 79126#       发表于 2021-6-14 10:23
+
+
+推完以后我表示，就这<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">？只能说得亏金庸老师和古龙老师生的早，放在今天怕不是家里要被人扔燃烧瓶了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 79127#       发表于 2021-6-14 10:28
+
+
+ 本帖最后由 zakki 于 2021-6-14 10:29 编辑 
+
+要笑死了，竟然还有人分解爱迪生，这就是无能狂怒的极致吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">（爱迪生:我做错了什么？）
+
+
+                                                 

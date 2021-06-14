@@ -5382,3 +5382,63 @@ archive真的不是隔壁尼尔世界线穿越过来的吗<img src="https://stat
 
 
                                                  
+
+-----
+
+####  pokemon最爱  
+##### 1919#       发表于 2021-6-14 10:25
+
+
+在贴吧那边也看了看原案小说的剧透，感觉吧动画就是时长太短于是剧本以怎么爽怎么来逻辑放飞自我就完事了来处理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在把这片子当正经科幻片看的时候就输了（
+
+
+-----
+
+####  圆环之爱  
+##### 1920#       发表于 2021-6-14 10:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51591806&amp;ptid=1982987" target="_blank">pokemon最爱 发表于 2021-6-14 10:25</a>
+
+在贴吧那边也看了看原案小说的剧透，感觉吧动画就是时长太短于是剧本以怎么爽怎么来逻辑放飞自我就完事了来 ...</blockquote>
+可就这最新两集不带脑子看也觉得尬果然还是应该在中二时期看vivy观感最好
+
+
+
+
+-----
+
+####  fantuanxiaoyi  
+##### 1921#       发表于 2021-6-14 10:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51586916&amp;ptid=1982987" target="_blank">chexk03 发表于 2021-6-13 22:43</a>
+
+看之前看你们这么低评价还真有点担忧，但看完还可以啊唱歌拯救世界，再穿越都是预想到的，演出也过的去啊， ...</blockquote>
+就这水平再给39集也就是个假面骑士01，当我们没看过re0和混沌儿子不知道这两位的水平？
+
+
+-----
+
+####  iopkliopkl  
+##### 1922#       发表于 2021-6-14 10:48
+
+
+这季度追的几个新番，真的也就这片越收尾越拉，直接第10集和平收尾来场live才好
+
+
+-----
+
+####  nerugigannte  
+##### 1923#       发表于 2021-6-14 10:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51591900&amp;ptid=1982987" target="_blank">圆环之爱 发表于 2021-6-14 10:34</a>
+
+可就这最新两集不带脑子看也觉得尬果然还是应该在中二时期看vivy观感最好 ...</blockquote>
+应该越是中二期越应该对这种第一印象是拯救世界的故事苛刻啊！不讲逻辑可以不带脑子也没问题，请让我感受到vivy与松本拯救世界的决心与魄力，很显然这些个单元剧我只能看到vivy飒的一面与松本的话痨（拜cv与作画所赐）如果此刻拯救世界的是自己，我可无法接受唱唱歌就能拯救的世界
+
+
+                                                
