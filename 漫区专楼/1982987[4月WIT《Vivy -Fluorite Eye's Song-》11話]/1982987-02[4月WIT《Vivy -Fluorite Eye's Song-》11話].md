@@ -5442,3 +5442,57 @@ archive真的不是隔壁尼尔世界线穿越过来的吗<img src="https://stat
 
 
                                                 
+
+-----
+
+####  燃烬  
+##### 1924#       发表于 2021-6-14 11:08
+
+
+为什么要给我看一个自闭母猩猩？
+
+
+-----
+
+####  燃烬  
+##### 1925#       发表于 2021-6-14 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51577759&amp;ptid=1982987" target="_blank">JustW 发表于 2021-6-13 00:53</a>
+
+主角一方的AI：除了一直纠结一个使命，基本和人类别无二致。
+
+其它AI：一联网就变成无感情杀戮机器，你说这 ...</blockquote>
+前期为什么好看？因为一个随意解释自己使命的果决的母猩猩；后面为什么不好看？这个母猩猩突然自闭了
+
+
+-----
+
+####  燃烬  
+##### 1926#       发表于 2021-6-14 11:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581550&amp;ptid=1982987" target="_blank">acejoe 发表于 2021-6-13 13:10</a>
+
+这片第一集剧本问题就很严重，后面一个单元剧比一个拉，完全靠着主线的悬念撑着，结果越揭示悬念越拉。
+
+
+作 ...</blockquote>
+前面至少还有精彩的动作戏看，母猩猩自闭后连战斗力都砍半了
+
+
+-----
+
+####  燃烬  
+##### 1927#       发表于 2021-6-14 11:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581944&amp;ptid=1982987" target="_blank">ipcjs 发表于 2021-6-13 14:02</a>
+
+“唱歌”和“没有心”都没啥问题，没有“心”唱不了歌就离谱了
+
+vivy一直“没有心”，歌不照样唱吗，敢情活 ...</blockquote>
+我一直不知道DIVA和VIVI是怎么突然变成两个人格的，更不知道DIVA为什么能唱，而VIVI就自闭了
+
+
+                                                 
