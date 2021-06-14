@@ -13596,3 +13596,26 @@ PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样</blo
 
 
                                                 
+
+-----
+
+####  黑上シグマ  
+##### 79147#       发表于 2021-6-14 18:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51597164&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-14 18:03</a>
+
+18年那次有个舅舅只透露了三个池子，全都命中了，这才是舅舅，有真有假的还不如不说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">所以这全中的舅舅说不定已经被处理掉了……
+
+
+-----
+
+####  新吾  
+##### 79148#       发表于 2021-6-14 19:21
+
+
+原来觉得前半章灌水的不止我…你游蘑菇仗着自己是老大拿免死金牌写一大堆文本，写的好看就算了，写的啰嗦而且毫无爆点，一堆乱七八糟的设定完全可以略过但就是做好取舍，颇有古时皇帝劳民伤财出动军队去狩猎兔子的傲慢了
+
+
+                                                 
