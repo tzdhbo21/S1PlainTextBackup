@@ -13442,3 +13442,157 @@ PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样</blo
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79138#       发表于 2021-6-14 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51596121&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-14 16:27</a>
+
+又看了看当时舅舅发的，真的是除了名字对了，奶中了c狗改模和小芬奇复刻外别的都歪到不行，正确率只有一半 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">全对了估计分分钟就被带走了……
+
+
+-----
+
+####  森兰丸  
+##### 79139#       发表于 2021-6-14 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51596695&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-14 17:24</a>
+
+打完了 为什么要这么对狮子头啊 多好的一个狮子头啊
+
+
+有一说一  没打的我还是建议等后篇出了一起打. ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">有被当作商品拍卖的村正.....有雷德拉比特.....有明知道是陷阱还是禁不住诱惑义无反顾跳进去的拯救人理的一行人....还有佩佩伯爵....亮点还是很多的啊...怎么能说没意思
+
+
+-----
+
+####  黄字  
+##### 79140#       发表于 2021-6-14 17:49
+
+
+有欧若拉这个角色比剧情先行的，猜卡池没用
+
+
+
+
+-----
+
+####  zakki  
+##### 79141#       发表于 2021-6-14 18:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51596904&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-14 17:43</a>
+全对了估计分分钟就被带走了……</blockquote>
+18年那次有个舅舅只透露了三个池子，全都命中了，这才是舅舅，有真有假的还不如不说
+
+
+-----
+
+####  exiaexa  
+##### 79142#       发表于 2021-6-14 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51596984&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-6-14 17:49</a>
+有被当作商品拍卖的村正.....有雷德拉比特.....有明知道是陷阱还是禁不住诱惑义无反顾跳进去的拯 ...</blockquote>
+打包加一起不如奥伯龙出彩
+菌类这次厨放效果还行的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79143#       发表于 2021-6-14 18:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51596984&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-6-14 17:49</a>
+
+有被当作商品拍卖的村正.....有雷德拉比特.....有明知道是陷阱还是禁不住诱惑义无反顾跳进去的拯 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这叫亮点? 木感觉啊
+
+
+-----
+
+####  newfaceryo  
+##### 79144#       发表于 2021-6-14 18:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51596992&amp;ptid=1085254" target="_blank">黄字 发表于 2021-6-14 17:49</a>
+
+有欧若拉这个角色比剧情先行的，猜卡池没用</blockquote>
+你说的欧罗巴吧
+
+
+-----
+
+####  acuman  
+##### 79145#       发表于 2021-6-14 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51596121&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-14 16:27</a>
+
+又看了看当时舅舅发的，真的是除了名字对了，奶中了c狗改模和小芬奇复刻外别的都歪到不行，正确率只有一半 ...</blockquote>
+求问一下是在哪里看的
+
+
+-----
+
+####  exiaexa  
+##### 79146#       发表于 2021-6-14 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51588087&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-14 00:33</a>
+
+很简单啊，galgame本来就是靠绵密的铺垫最后靠一口气回收起爆达到效果的。
+
+十几年前澄空火的游戏哪个不是 ...</blockquote>
+很简单啊，galgame本来就是靠绵密的铺垫最后靠一口气回收起爆达到效果的。
+
+十几年前澄空火的游戏哪个不是这样。
+
+————————————
+
+哦你还知道galgame才这么写啊，FGO披了层galgame的皮你还真把自己当galgame了，菌类不止一次说过手游形式不同于传统galgame，您这又给定回去可还行
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+听你这口气，好像觉得除了最后爆的那一下才是核心，之前的东西全是灌水，
+
+这和吃了十个馒头饱了觉得前九个馒头都是废物白吃了有什么区别？能不能别那么幼稚了。
+
+————————————
+
+请问这整栋楼的人谁的理论是“好像觉得除了最后爆的那一下才是核心，之前的东西全是灌水”，虚空打靶也找个没记录的地儿打吧？不服往上翻？
+
+你连别人到底为什么觉得灌水都不清楚就来腆着张老脸说别人幼稚了？
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+你要说咕哒c呆线有些东西目前确实是除了铺设定慢热暂时看不出作用我完全没有异议。
+
+上来一口气咬定全都是灌水，就不考虑后章开了打脸？
+
+————————
+
+我怕你看不懂我再给你贴一遍
+
+“菌类这傻逼的galgame风毛病又不是一天两天了，这妨碍他写出大逆转剧情了吗，到底是谁在看不起菌类呢”
+
+
+哦，反正到时候可以一口咬定都是蘑菇的错，我们消费者大爷是一定不会错的，对不对。
+
+————————
+
+没错啊，我作为消费者氪了金买了东西，一没指鹿为马二没无理取闹，我说的不足我都能一点点指出来，凭什么不能理直气壮的骂厨子，买的是东西又不是我爹
+
+总不能指望所有人都跟你一样供个爹出来啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
