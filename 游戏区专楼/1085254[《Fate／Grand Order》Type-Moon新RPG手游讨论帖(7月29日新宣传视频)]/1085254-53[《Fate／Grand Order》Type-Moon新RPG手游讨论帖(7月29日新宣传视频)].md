@@ -13699,3 +13699,143 @@ galgame风是不是就是傻逼，废狗是不是靠着不走galgame风才走到
 
 
                                                  
+
+-----
+
+####  angelooo  
+##### 79154#       发表于 2021-6-14 21:41
+
+
+<blockquote>alucardcz 发表于 2021-6-14 21:17
+不如来喷喷立绘吧  这妖精王 佩佩看到他的时候还说谁啊 这个美男子 我直接笑喷差点手机摔地上 ...</blockquote>
+这不是生放送时候就喷爆了233，结果特么是蘑菇厨放，行吧你们开心就好
+
+
+-----
+
+####  里村紅葉  
+##### 79155#       发表于 2021-6-14 21:43
+
+
+你们是真的太闲了<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79156#       发表于 2021-6-14 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599863&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-14 21:23</a>
+
+指责别人扣字眼以前先检讨一下自己的文字描述是否能够正确传达信息。
+
+galgame风是不是就是傻逼，废狗是不 ...</blockquote>
+我说的很清楚，“他菌类galgame风、他灌水、他后半截逆转是三件事儿”
+
+他用galgame风跟他灌水有啥必然联系？他灌水跟他后半截逆转有啥关系？
+
+有人就是可以又用galgame风又灌水然后又大转折，人早就证明过自己了
+
+我还是那句话“到底是谁在看不起菌类呢”
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+最后友情提醒一句，想跟别人好好讨论就别玩弱智的语言陷阱
+
+不然可对不起您不当猴子的高贵身份
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jf8350143  
+##### 79157#       发表于 2021-6-14 21:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要是这次不说是蘑菇亲自出马写剧情，大概早就被喷出银河系了
+
+
+-----
+
+####  exiaexa  
+##### 79158#       发表于 2021-6-14 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51600108&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-14 21:43</a>
+
+你们是真的太闲了</blockquote>
+一群人好好的聊游戏体验，非有人高贵得不行要出来拉群嘲能咋办
+
+反正在放假
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79159#       发表于 2021-6-14 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599770&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-14 21:17</a>
+
+不如来喷喷立绘吧  这妖精王 佩佩看到他的时候还说谁啊 这个美男子 我直接笑喷差点手机摔地上 ...</blockquote>
+其他人都还好，这俩人一个女子力全开的敢说，一个立绘放飞的敢接
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+要不是这次奥伯龙这带路大哥实在太敬业没得黑，怕不是蘑菇祖坟都得被扬了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  newfaceryo  
+##### 79160#       发表于 2021-6-14 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51600117&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-14 21:44</a>
+
+我说的很清楚，“他菌类galgame风、他灌水、他后半截逆转是三件事儿”
+
+他用galgame风跟他灌水有啥必然联 ...</blockquote>
+我可并没有想要用语言陷阱坑你，不用这么紧张。
+
+我只是连你对这三样东西的基本态度都弄不明白。
+
+按照我现在的理解，你的观点简单点说就是
+
+galgame风是不好的，
+
+灌水是不好的，
+
+大逆转是好的，
+
+对不对。
+
+
+那么就回到我最初说的话了
+
+事物有没有联系不是你说的算的。
+
+这里你到底怎么定义灌水当然就成了关键
+
+有人就是可以又用galgame风又灌水然后又大转折，人早就证明过自己了。
+
+但是有人证明过菌类可以以不galgame风，不灌水，然后大逆转么？
+
+有人证明我吃十个馒头是可以饱的，
+
+有人证明过我单吃第十个馒头是可以饱的吗？
+
+
+-----
+
+####  areklose  
+##### 79161#       发表于 2021-6-14 22:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">所以2000大手子是谁，不会是CLAMP大妈吧
+
+
+                                                 
