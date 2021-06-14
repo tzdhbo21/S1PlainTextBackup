@@ -11301,3 +11301,29 @@ magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20
 
 
                                                  
+
+-----
+
+####  ZZonFire  
+##### 869#       发表于 2021-6-14 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51463338&amp;ptid=1963627" target="_blank">菲特妹 发表于 2021-6-3 17:40</a>
+我觉得看不懂的原因在于，这些人堆砌的名词想表达的意思，跟这些名词实际的意思是两回事，所以才说懂的看 ...</blockquote>
+我一工科研究生看的快吐了，都什么玩意儿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+-----
+
+####  ZZonFire  
+##### 870#       发表于 2021-6-14 23:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说实话这番后面我全都在快进看怪兽，工科研究生不太懂他们的思维
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.2
+
+
+                                                 

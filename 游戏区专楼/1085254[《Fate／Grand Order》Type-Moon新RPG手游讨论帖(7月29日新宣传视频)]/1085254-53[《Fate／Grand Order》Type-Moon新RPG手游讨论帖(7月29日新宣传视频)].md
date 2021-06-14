@@ -13854,3 +13854,60 @@ galgame风是不好的，
 
 
                                                  
+
+-----
+
+####  newfaceryo  
+##### 79163#       发表于 2021-6-14 23:37
+
+
+ 本帖最后由 newfaceryo 于 2021-6-14 23:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51600872&amp;ptid=1085254" target="_blank">zore 发表于 2021-6-14 22:38</a>
+
+看完B站几个翻译我tm吐了
+
+失忆个几天就在那又空洞又没有自我地质疑失忆前自己是个怎样的人,你都失忆 ...</blockquote>
+这尼玛不是废话，第七章不相当于白玩了还叫失忆吗
+
+失忆了连自我怀疑一下还有错了？
+
+
+-----
+
+####  exiaexa  
+##### 79164#       发表于 2021-6-15 00:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51600305&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-14 21:56</a>
+
+我可并没有想要用语言陷阱坑你，不用这么紧张。
+
+我只是连你对这三样东西的基本态度都弄不明白。
+
+按照我现 ...</blockquote>
+您的脑容量只有金鱼吗，来跟我再念一遍
+
+想·跟·别·人·好·好·讨·论·就·别·玩·弱·智·的·语·言·陷·阱
+
+
+不想讨论就闭嘴
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  newfaceryo  
+##### 79165#       发表于 2021-6-15 00:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602114&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-15 00:22</a>
+
+您的脑容量只有金鱼吗，来跟我再念一遍
+
+想·跟·别·人·好·好·讨·论·就·别·玩·弱·智·的·语· ...</blockquote>
+不讨论了，没有基本的逻辑能力人没什么好交流的。
+
+反正你永远不可能在网上让对方辩友同意你的观点。
+
+
+                                                 

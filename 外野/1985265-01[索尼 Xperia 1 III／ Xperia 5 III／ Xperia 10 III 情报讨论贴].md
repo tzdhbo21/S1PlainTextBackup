@@ -8869,3 +8869,20 @@ X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀
 
 
                                                  
+
+-----
+
+####  Tochika  
+##### 633#       发表于 2021-6-15 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599386&amp;ptid=1985265" target="_blank">木瓜奶五元 发表于 2021-6-14 20:48</a>
+
+用了一周了，随便说说：
+
+
+好评：</blockquote>
+定制的百度输入法没有乱七八糟的东西不会作妖，NFC可以买个带NFC的手环搭配使用（我家门卡加密的复制不了所以最后等于买啥都没用<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+                                                 
