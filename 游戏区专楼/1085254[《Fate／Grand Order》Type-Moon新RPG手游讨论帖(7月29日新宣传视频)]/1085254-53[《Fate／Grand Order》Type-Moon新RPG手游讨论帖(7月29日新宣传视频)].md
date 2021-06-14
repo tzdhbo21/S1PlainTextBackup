@@ -14076,3 +14076,23 @@ md仔细想想还是可以的，这章开头那个胖所长爸爸的梗就可以
 
 
                                                  
+
+-----
+
+####  zore  
+##### 79174#       发表于 2021-6-15 04:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51603280&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-15 03:53</a>
+
+我觉得菌类没想这么多
+
+他可能真的只是想表现一下失忆，毕竟只能基于文本确实没啥好的表现形式，总不能跟 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">怎么说呢,现在感觉就是不知道写这几段干嘛.独立自我这东西已经通过0-2.5的人事物轮过一次了
+
+虽然"失忆结婚再否认完全不记得的过去",这大段情节风评不怎样.失忆结婚是恶趣味就捏着鼻子认了,但把旧章节轮过一次的东西再失忆轮一次,不就把和玩家的经历当猴耍?
+
+等个后续和7月下部分看看吧.如果到头来还是没大变化的活,那我也只能说这写的什么玩意儿?<img src="https://static.saraba1st.com/image/smiley/face2017/214.gif" referrerpolicy="no-referrer">
+
+
+                                                 
