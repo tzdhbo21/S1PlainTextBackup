@@ -13348,3 +13348,35 @@ fate吧和nga逛了一圈，只能说国内手游圈是真有意思，“查成�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79130#       发表于 2021-6-14 14:28
+
+
+风怒
+
+
+-----
+
+####  areklose  
+##### 79131#       发表于 2021-6-14 14:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次不知道有没有UP2，如果有UP2，代表下半部至少还有个UP3。剪影就剩下2个看起来像男的英灵了
+
+
+-----
+
+####  黑上シグマ  
+##### 79132#       发表于 2021-6-14 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51594830&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-14 14:28</a>
+
+这次不知道有没有UP2，如果有UP2，代表下半部至少还有个UP3。剪影就剩下2个看起来像男的英灵了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样
+
+
+                                                 

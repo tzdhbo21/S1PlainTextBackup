@@ -5555,3 +5555,27 @@ vivy在我心目中的观感最高峰就是下定决心说出“我是毁灭AI�
 
 
                                                  
+
+-----
+
+####  fuochai  
+##### 1931#       发表于 2021-6-14 14:00
+
+
+又loop 又loop
+我想看毁灭结局啊
+
+
+-----
+
+####  werkeytom  
+##### 1932#       发表于 2021-6-14 14:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51587830&amp;ptid=1982987" target="_blank">枪聆弹语 发表于 2021-6-14 00:05</a>
+
+VIVY 7.6 异度7.5 蛋蛋 7.4 三兄弟谁都不要笑话谁吧</blockquote>
+vv还没完结，蛋蛋还有特别篇（但是bgm分条目了不一定影响本篇评分），谁能胜出，有待分晓！
+
+
+                                                 
