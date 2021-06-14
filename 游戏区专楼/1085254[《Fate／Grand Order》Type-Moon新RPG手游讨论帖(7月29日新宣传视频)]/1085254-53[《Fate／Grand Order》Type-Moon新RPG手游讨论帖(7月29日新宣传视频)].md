@@ -13380,3 +13380,28 @@ fate吧和nga逛了一圈，只能说国内手游圈是真有意思，“查成�
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79133#       发表于 2021-6-14 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51594910&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-14 14:35</a>
+PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样</blockquote>
+第二期直接帕西瓦尔好不好？<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79134#       发表于 2021-6-14 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51594910&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-14 14:35</a>
+
+PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">怎么听起来就不想抽
+
+
+                                                 

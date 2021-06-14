@@ -5579,3 +5579,27 @@ vv还没完结，蛋蛋还有特别篇（但是bgm分条目了不一定影响本
 
 
                                                  
+
+-----
+
+####  墨西哥冰镐  
+##### 1933#       发表于 2021-6-14 14:59
+
+
+这番停在第六集多好。感觉制作组也没想清楚ai的心是咋回事，diva不能唱歌的原因粉丝写多少字的小作文我都觉得牵强。还有日本人是多喜欢轮回啊，咋就不能体会波浪式前进和螺旋式上升的奥妙呢。
+
+
+-----
+
+####  亚瑟邓特  
+##### 1934#       发表于 2021-6-14 15:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51595157&amp;ptid=1982987" target="_blank">墨西哥冰镐 发表于 2021-6-14 14:59</a>
+这番停在第六集多好。感觉制作组也没想清楚ai的心是咋回事，diva不能唱歌的原因粉丝写多少字的小作文我都觉 ...</blockquote>
+小说还是有不少的，就是动画现在没了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
