@@ -8906,3 +8906,16 @@ X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀
 
 
                                                  
+
+-----
+
+####  martinium  
+##### 635#       发表于 2021-6-15 05:55
+
+
+谷歌拼音和gboard差不多啊，标点全一些。
+
+— from Google Pixel 2, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 
