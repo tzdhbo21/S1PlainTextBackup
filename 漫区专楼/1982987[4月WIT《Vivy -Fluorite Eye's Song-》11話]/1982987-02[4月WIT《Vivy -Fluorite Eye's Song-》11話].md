@@ -5677,3 +5677,43 @@ vv还没完结，蛋蛋还有特别篇（但是bgm分条目了不一定影响本
 
 
                                                  
+
+-----
+
+####  moimoi  
+##### 1939#       发表于 2021-6-14 22:35
+
+
+洗不动了，12话也太糟糕了<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">
+
+前11集的成长都喂狗了，经历也喂狗了，最后居然只要唱歌拯救世界就好了…………你要是一拳打爆服务器我都接受，唱歌是个毛线啊
+
+而且毁灭人类的理由呢？无语至极
+
+直到11集我觉得逻辑还能自冾，最核心的灭世动机和救世理由完全无法接受
+
+不能说烂尾，因为从头到尾也就那样，之前也没神回，现在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">只不过盖章了烂而已
+
+
+-----
+
+####  六花自我中  
+##### 1940#       发表于 2021-6-14 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51592320&amp;ptid=1982987" target="_blank">燃烬 发表于 2021-6-14 11:11</a>
+
+前期为什么好看？因为一个随意解释自己使命的果决的母猩猩；后面为什么不好看？这个母猩猩突然自闭了 ...</blockquote>
+这不就是铁甲城那个路数吗 前期女主神挡杀神  后面就自闭委掉了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  咲蛍  
+##### 1941#       发表于 2021-6-14 23:20
+
+
+类似国家队，前面还好，后面剧情就是跳跃，割裂，融梗。用屁股都能猜出剧情<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 

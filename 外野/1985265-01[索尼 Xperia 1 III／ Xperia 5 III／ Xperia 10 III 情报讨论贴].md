@@ -8837,3 +8837,35 @@ X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀
 
 
                                                  
+
+-----
+
+####  木瓜奶五元  
+##### 631#       发表于 2021-6-14 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51600743&amp;ptid=1985265" target="_blank">leystage 发表于 2021-6-14 22:27</a>
+
+差评4严重同意，Gboard根本不考虑中文用户需求。
+
+差评6倒是无所谓，Google全家桶用户重装 App 几乎不费心 ...</blockquote>
+其实会蛮烦的，毕竟还有很多app在play上下不到（比如各种银行类），只能国内下。而偏偏就是国内这些app，我能不更新就不想更新——你懂的。
+
+
+-----
+
+####  哎哟卧槽了  
+##### 632#       发表于 2021-6-14 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599386&amp;ptid=1985265" target="_blank">木瓜奶五元 发表于 2021-6-14 20:48</a>
+用了一周了，随便说说：
+
+
+好评：</blockquote>
+1II就有磨砂黑啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 來自 Sony XQ-AT72, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

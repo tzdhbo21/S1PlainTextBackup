@@ -13839,3 +13839,18 @@ galgame风是不好的，
 
 
                                                  
+
+-----
+
+####  zore  
+##### 79162#       发表于 2021-6-14 22:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看完B站几个翻译我tm吐了
+
+失忆个几天就在那又空洞又没有自我地质疑失忆前自己是个怎样的人,你都失忆了你还记得个锤子,凭啥质疑啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+去看第七章的截图,仿佛就是坨狗屎,1.0白玩了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                 
