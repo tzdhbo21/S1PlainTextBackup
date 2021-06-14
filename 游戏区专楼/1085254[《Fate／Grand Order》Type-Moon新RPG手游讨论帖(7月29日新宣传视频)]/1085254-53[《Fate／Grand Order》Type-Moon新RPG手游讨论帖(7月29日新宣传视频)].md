@@ -13619,3 +13619,52 @@ PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样</blo
 
 
                                                  
+
+-----
+
+####  newfaceryo  
+##### 79149#       发表于 2021-6-14 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51597371&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-14 18:20</a>
+
+很简单啊，galgame本来就是靠绵密的铺垫最后靠一口气回收起爆达到效果的。
+
+十几年前澄空火的游戏哪个不是 ...</blockquote>
+“菌类这傻逼的galgame风毛病又不是一天两天了，这妨碍他写出大逆转剧情了吗，到底是谁在看不起菌类呢”
+
+
+所以galgame风是不是就是灌水，大逆转的剧情到底和这些东西有没有关系，你给个准信？
+
+
+-----
+
+####  zakki  
+##### 79150#       发表于 2021-6-14 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51597346&amp;ptid=1085254" target="_blank">acuman 发表于 2021-6-14 18:18</a>
+求问一下是在哪里看的</blockquote>
+<img src="https://p.sda1.dev/2/4667799167453ca1de4d50a2f8693c07/IMG_CMP_244894705.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79151#       发表于 2021-6-14 20:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51598356&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-14 19:35</a>
+“菌类这傻逼的galgame风毛病又不是一天两天了，这妨碍他写出大逆转剧情了吗，到底是谁在看不起菌类呢”
+
+ ...</blockquote>
+哎哟没本事转进开始抠字眼了是吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+是没关系啊，他菌类galgame风、他灌水、他后半截逆转是三件事儿，有问题吗
+
+我倒要看看您这不是猴子的嘴里能吐出啥牙来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

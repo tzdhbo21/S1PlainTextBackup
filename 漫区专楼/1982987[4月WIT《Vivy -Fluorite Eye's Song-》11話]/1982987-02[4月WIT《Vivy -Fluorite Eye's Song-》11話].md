@@ -5625,3 +5625,44 @@ vv还没完结，蛋蛋还有特别篇（但是bgm分条目了不一定影响本
 
 
                                                  
+
+-----
+
+####  Laie  
+##### 1937#       发表于 2021-6-14 19:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51591138&amp;ptid=1982987" target="_blank">yuruki 发表于 2021-6-14 09:00</a>
+
+开玩笑吧，下周的86是剧情上最无可挑剔的一集，前有催泪后有惊喜，对这片如此卖力的a1怎么可能放过，我就 ...</blockquote>
+86看下集的先行cut会把第二卷开头部分提上来，再跳回去第一卷末尾，篇幅上应该是不够做完终章了，把纪念碑再会直接整合到二期最后
+
+所以才说下周收尾可能会比较弱
+
+为了勉强不歪楼
+
+找了下上期的/r/anime统计看，发现那一周两者karma差距比印象中更大一些，看karma跌幅也许是vivy 10集拉高期待后11集不如预期的落差
+
+<img src="https://img.saraba1st.com/forum/202106/14/193553gttt938eokaee81z.png" referrerpolicy="no-referrer">
+
+
+<strong>(UE[3KD5KOB5PL@I_]{Q8(E.png</strong> (340.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 19:35 上传
+
+
+这期86的第10集对比vivy的11集目前是6.7k对4.8k，差距比上面的又还要更大
+
+<img src="https://img.saraba1st.com/forum/202106/14/193921pyyff2mfwln0gfio.png" referrerpolicy="no-referrer">
+
+
+<strong>$[21R2DNQ{`VA(7X_1Y`XP7.png</strong> (38.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 19:39 上传
+
+
+                                                 
