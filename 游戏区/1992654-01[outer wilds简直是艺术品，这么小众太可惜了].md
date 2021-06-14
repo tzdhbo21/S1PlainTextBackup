@@ -2434,3 +2434,42 @@ steam史低48
 
 
                                                  
+
+-----
+
+####  abc12354aa  
+##### 180#       发表于 2021-6-14 12:47
+
+
+这游戏啥都好，就是是真的太恐怖了，最原始的恐怖那种。我玩生化7感觉也就那样，我玩这个，在月球上跳跃都怕被太阳吸入，因为那种真实的物理感，沉浸感，太无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">，我第一次上的是月球，就已经很难受了，去深巨星的时候看到水底就呼吸困难，马上开出来在宇宙里，然后直接重置了。
+这游戏满足了我童年开始对宇宙的各种幻想，比如勇敢者的游戏1里透过窗子看外太空，比如孢子没有做到的太空阶段（孢子的太空阶段如果是ow这样就太牛逼了）<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，把我玩x3和freelancer里各种遗憾全补齐了。虽然还没打完，剧情也一头雾水（因为我在各种地方都很恐惧，比如在水星上看东西的时候很怕突然出现浮空），但是我要说ow是我近5年玩过最好的游戏！ow yyds！
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  abc12354aa  
+##### 181#       发表于 2021-6-14 12:47
+
+
+这游戏啥都好，就是是真的太恐怖了，最原始的恐怖那种。我玩生化7感觉也就那样，我玩这个，在月球上跳跃都怕被太阳吸入，因为那种真实的物理感，沉浸感，太无敌了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">，我第一次上的是月球，就已经很难受了，去深巨星的时候看到水底就呼吸困难，马上开出来在宇宙里，然后直接重置了。
+这游戏满足了我童年开始对宇宙的各种幻想，比如勇敢者的游戏1里透过窗子看外太空，比如孢子没有做到的太空阶段（孢子的太空阶段如果是ow这样就太牛逼了）<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">，把我玩x3和freelancer里各种遗憾全补齐了。虽然还没打完，剧情也一头雾水（因为我在各种地方都很恐惧，比如在水星上看东西的时候很怕突然出现浮空），但是我要说ow是我近5年玩过最好的游戏！ow yyds！
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Quzs  
+##### 182#       发表于 2021-6-14 12:50
+
+
+ns上糊吗，糊就买pc了
+
+—— 来自 meizu 16T, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                

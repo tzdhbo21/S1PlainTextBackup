@@ -5539,3 +5539,19 @@ vivy在我心目中的观感最高峰就是下定决心说出“我是毁灭AI�
 
 
                                                  
+
+-----
+
+####  pokemon最爱  
+##### 1930#       发表于 2021-6-14 13:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51592024&amp;ptid=1982987" target="_blank">fantuanxiaoyi 发表于 2021-6-14 10:44</a>
+
+就这水平再给39集也就是个假面骑士01，当我们没看过re0和混沌儿子不知道这两位的水平？ ...</blockquote>
+01只有13集的空间的话也不一定是那个蠢样啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+混沌子游戏主线是梅原的动画可不是。
+
+
+                                                 
