@@ -11418,3 +11418,37 @@ Play On Challenge
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 2404#       发表于 2021-6-14 21:13
+
+
+ 本帖最后由 rzrbtk 于 2021-6-14 21:36 编辑 
+
+月之图像被用于SCP印尼分部的21世纪竞赛了，我印象中只有日本分部才会做这种宅事啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">，
+
+最近笑得很厉害的一次是看文野环整活直播，待会的人狼也是猫来替有事的德比，猫兔不错呢，
+
+
+月之讲述了自己高中的接吻经历<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">？
+
+
+-----
+
+####  Porsche  
+##### 2405#       发表于 2021-6-14 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51594958&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-6-14 14:40</a>
+
+https://twitter.com/6NnNnNn9/status/1404292754176282625</blockquote>
+这个算上总社也能争第一第二的皮，当时觉得给了KR是真的浪费
+
+结果yuya证明了她配得上这个皮，但是这么就毕业了
+
+只能说真的もったいない
+
+
+                                                 

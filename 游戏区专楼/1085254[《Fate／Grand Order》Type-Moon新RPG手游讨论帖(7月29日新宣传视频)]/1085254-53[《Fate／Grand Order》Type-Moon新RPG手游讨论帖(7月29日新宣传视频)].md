@@ -13668,3 +13668,34 @@ PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样</blo
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79152#       发表于 2021-6-14 21:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如来喷喷立绘吧  这妖精王 佩佩看到他的时候还说谁啊 这个美男子 我直接笑喷差点手机摔地上
+
+
+-----
+
+####  newfaceryo  
+##### 79153#       发表于 2021-6-14 21:23
+
+
+ 本帖最后由 newfaceryo 于 2021-6-14 21:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599345&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-14 20:45</a>
+
+哎哟没本事转进开始抠字眼了是吧</blockquote>
+指责别人扣字眼以前先检讨一下自己的文字描述是否能够正确传达信息。
+
+galgame风是不是就是傻逼，废狗是不是靠着不走galgame风才走到现在这个地步的这个问题我就先不和你争了，反正多半各说各话。
+
+
+你的意思是灌水就是和后半截逆转毫无关系的内容，
+
+是可以删除而不影响逆转本身感受性的部分，是这样的吗？
+
+
+                                                 
