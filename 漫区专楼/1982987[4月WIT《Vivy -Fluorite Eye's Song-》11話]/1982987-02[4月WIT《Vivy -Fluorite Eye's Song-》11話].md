@@ -5368,3 +5368,17 @@ archive真的不是隔壁尼尔世界线穿越过来的吗<img src="https://stat
 
 
                                                  
+
+-----
+
+####  yuruki  
+##### 1918#       发表于 2021-6-14 09:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51590555&amp;ptid=1982987" target="_blank">Laie 发表于 2021-6-14 06:22</a>
+“霸权”这标签的使用时至今日已经明确分离成了对实际商业成绩的评定（一般是当期比），和俺的覇権这种意 ...</blockquote>
+开玩笑吧，下周的86是剧情上最无可挑剔的一集，前有催泪后有惊喜，对这片如此卖力的a1怎么可能放过，我就等着安利大军出马了
+现在还在期待vivy翻盘的，和期待139翻盘的巨粉差不多，当然，vivy是做不出那种无人预测的史诗级烂尾
+
+
+                                                 
