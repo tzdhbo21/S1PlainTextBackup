@@ -5738,3 +5738,118 @@ vv还没完结，蛋蛋还有特别篇（但是bgm分条目了不一定影响本
 
 
                                                  
+
+-----
+
+####  亚瑟邓特  
+##### 1943#       发表于 2021-6-15 01:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602883&amp;ptid=1982987" target="_blank">幻想风靡_ 发表于 2021-6-15 01:43</a>
+刚刚一口气补了11集，确实前六集观感很好，虽然有时间跨度但是感受得到vivy的成长
+
+然后就是换人格，换回去 ...</blockquote>
+动漫花园每周日零点准时有搬运baha的
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 幻想风靡_| + 1|谢谢|
+
+
+查看全部评分
+
+
+-----
+
+####  幻想风靡_  
+##### 1944#       发表于 2021-6-15 01:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602892&amp;ptid=1982987" target="_blank">亚瑟邓特 发表于 2021-6-15 01:44</a>
+
+动漫花园每周日零点准时有搬运baha的
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+收到，谢谢
+
+建议打码小心内鬼
+
+
+-----
+
+####  亚瑟邓特  
+##### 1945#       发表于 2021-6-15 01:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602901&amp;ptid=1982987" target="_blank">幻想风靡_ 发表于 2021-6-15 01:45</a>
+收到，谢谢
+
+建议打码小心内鬼</blockquote>
+这种大站叔叔比你还清楚<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，哪来内不内鬼的
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  幻想风靡_  
+##### 1946#       发表于 2021-6-15 02:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602913&amp;ptid=1982987" target="_blank">亚瑟邓特 发表于 2021-6-15 01:47</a>
+
+这种大站叔叔比你还清楚，哪来内不内鬼的
+
+
+—— 来自 Xiaomi MI 6, Android 9上的 S1Next-鹅版 v2 ...</blockquote>
+我觉得还是有的吧……反正每次漫区直球问资源都会被扣鹅
+
+不过这玩意就，觉得有就有，觉得没就没吧，问题不大
+
+——————————————————————————————
+
+刚刚把12集看完，借着这楼随便说几句吧……
+
+感觉13集就那样了，再来一遍把歌唱出来结束
+
+我个人觉得巅峰是4集，6集为止还算行，7集大时间跨度+换人格就跑歪了
+
+——————————————————————————————
+
+再说奇点计划这玩意，我从一开始就觉得不靠谱
+
+本来预想的道路是虽然奇点计划本身改变的东西不足以改变世界，但是改变了Vivy的道路。
+
+她本来是唱不出名气，没过多久就扔进博物馆的，但是在执行奇点计划的过程中找到了“心”
+
+至于这个“心”到底是怎么拯救人类的，说真的怎样都好……
+
+一个想法不一定好，Vivy的歌声唤起了AI们的心灵，让AI们真的觉醒了独立自我，开始独立于Archive
+
+———————————————————————————————
+
+前几集给我的感觉是走这个路子的，也画篇幅描写了Vivy的成长以及和方块关系的变化。
+
+结果换人格后这个人物塑造就崩了
+
+先是把之前塑造的Vivy扔了，好不容易捡回来后又开始自闭，接着就往大结局走了
+
+感觉很可惜，本来能是个佳作的，现在真的是虎头蛇尾
+
+至于13集口碑反转，我觉得完全不可能……
+
+那个Archive的逻辑太怪了，我觉得是AI之耻。能造出这种AI的人类，毁灭了就会灭了吧
+
+
+                                                 

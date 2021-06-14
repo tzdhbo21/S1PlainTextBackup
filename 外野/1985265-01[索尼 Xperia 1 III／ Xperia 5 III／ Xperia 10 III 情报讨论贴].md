@@ -8886,3 +8886,23 @@ X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 634#       发表于 2021-6-15 01:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599386&amp;ptid=1985265" target="_blank">木瓜奶五元 发表于 2021-6-14 20:48</a>
+用了一周了，随便说说：
+
+
+好评：</blockquote>
+有一说一，触感，尤其是之前X1X5无印支持的真边框触感，是最佳手势操作解决方案之一，功能多又不会和屏幕内应用左右滑动动作出现重叠，好用极了。
+
+可以说是翔移软件部门这两年最优秀的设计，木有之一。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

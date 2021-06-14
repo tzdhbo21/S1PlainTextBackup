@@ -13922,3 +13922,45 @@ galgame风是不好的，
 
 
                                                  
+
+-----
+
+####  zore  
+##### 79167#       发表于 2021-6-15 01:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51601614&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-14 23:37</a>
+
+这尼玛不是废话，第七章不相当于白玩了还叫失忆吗
+
+失忆了连自我怀疑一下还有错了？
+
+ ...</blockquote>
+都失忆了还记得失忆之前自己是啥样子的?失忆了凭什么否定过去的自己<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+游戏里两三年的时间从迦勒底到异闻带碰到这么多人事物,A组医生大番茄咕哒还有英灵的所谓开导就因为蘑菇一句"没有自我"就给全喂狗了?
+
+响应哥布林狮子头所谓预言之子的身份去战斗,和响应御主咕哒从者的身份去拯救迦勒底拯救世界有啥不一样
+
+那后续回到咕哒身边,做的还是和以前一样的事.那所谓的自我是有呢还是没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+如果有,那这写的什么玩意儿?如果没有,那这又写的什么玩意儿?
+
+到头来,是东出觉得玛修独立了成长了,把加拉哈德没收了,然后玛修才没有自我是吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DARKGRAY  
+##### 79168#       发表于 2021-6-15 02:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602952&amp;ptid=1085254" target="_blank">zore 发表于 2021-6-15 01:56</a>
+
+都失忆了还记得失忆之前自己是啥样子的?失忆了凭什么否定过去的自己
+
+游戏里两三年的时间从迦勒底 ...</blockquote>
+这次的环境没有那种积极推动的倾向，影响力最强的狮子头更是反对的（甚至加了个要讨人厌的特质让这个环境变得没那么善意），算不上响应。
+
+
+                                                 
