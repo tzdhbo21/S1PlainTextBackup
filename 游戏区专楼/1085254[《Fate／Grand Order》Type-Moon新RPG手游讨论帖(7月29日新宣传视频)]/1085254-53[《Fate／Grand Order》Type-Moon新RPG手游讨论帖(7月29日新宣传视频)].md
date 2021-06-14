@@ -13405,3 +13405,26 @@ PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样</blo
 
 
                                                  
+
+-----
+
+####  白金口袋  
+##### 79135#       发表于 2021-6-14 15:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51594910&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-14 00:35</a>
+
+PU2懒死骆驼和矮子骑阶，PU3帕西瓦尔和妖精王你看怎么样</blockquote>
+舅舅不是还说有个谭林来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 79136#       发表于 2021-6-14 16:27
+
+
+又看了看当时舅舅发的，真的是除了名字对了，奶中了c狗改模和小芬奇复刻外别的都歪到不行，正确率只有一半的舅舅有什么用
+
+
+                                                 
