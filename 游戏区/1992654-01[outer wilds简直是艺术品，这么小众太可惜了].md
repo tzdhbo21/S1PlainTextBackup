@@ -2495,3 +2495,55 @@ ns上糊吗，糊就买pc了
 
 
                                                  
+
+-----
+
+####  mirari  
+##### 185#       发表于 2021-6-15 01:04
+
+
+ 本帖最后由 mirari 于 2021-6-15 01:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51561302&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-11 18:11</a>
+
+@mirari 
+
+关于你发的星际拓荒全成就帖子，有提到完成成就“强烈冲击”的第二种方法——通过挪麦航天飞机直 ...</blockquote>
+非常感谢，我一度以为是bug被修复了，每次都是撞到大气层就像撞到刚体一样船弹飞人撞死。
+
+另外方案3“小岛快递”从深巨星加布罗所在的岛趁着飞出大气层的时候跑到背面的方式有没有兴趣尝试一下？
+
+
+-----
+
+####  噗呸破屁诚  
+##### 186#       发表于 2021-6-15 01:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51593615&amp;ptid=1992654" target="_blank">Quzs 发表于 2021-6-14 12:50</a>
+
+ns上糊吗，糊就买pc了
+
+
+—— 来自 meizu 16T, Android 9上的 S1Next-鹅版 v2.4.4.1</blockquote>
+听别人说虽然和德军总部，巫师3之类的ns版比起来相对好点，但毕竟是ns版，该糊还是糊。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoyianwu  
+##### 187#       发表于 2021-6-15 01:26
+
+
+ 本帖最后由 luoyianwu 于 2021-6-15 01:27 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51593615&amp;ptid=1992654" target="_blank">Quzs 发表于 2021-6-14 12:50</a>
+
+ns上糊吗，糊就买pc了
+
+
+—— 来自 meizu 16T, Android 9上的 S1Next-鹅版 v2.4.4.1</blockquote>
+只有pc有60帧。其他主机就连series x也是锁30，可以看出多不上心
+
+建议pc
+
+
+                                                 
