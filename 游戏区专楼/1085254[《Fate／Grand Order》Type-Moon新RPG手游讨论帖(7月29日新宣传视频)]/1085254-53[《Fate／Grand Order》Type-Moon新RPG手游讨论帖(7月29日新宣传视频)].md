@@ -14018,3 +14018,61 @@ galgame风是不好的，
 
 
                                                  
+
+-----
+
+####  zore  
+##### 79171#       发表于 2021-6-15 03:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51603163&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-15 02:55</a>
+
+一个人格正常的人遇到失忆第一件事就是怀疑我是谁，
+
+虽然大家都没有失过忆，但是作为简单的应激反应直观可 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想找精神日本人可以去隔壁版逛,不想讨论就可以闭嘴了
+
+
+-----
+
+####  exiaexa  
+##### 79172#       发表于 2021-6-15 03:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602273&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-15 00:35</a>
+
+不讨论了，没有基本的逻辑能力的人没什么好交流的。
+
+反正靠主观互角，你永远不可能在网上让对方辩友同意你 ...</blockquote>
+首先，如果您不知道什么叫做“向别人”“阐述”自己的观点，也真的搞不明白表达的时候句号和问号该怎么用在和对方聊天的语境里，那我只能建议您回家咨询您的长辈“杠精”这个词是什么意思
+
+
+其次，整个楼并没有人想让你同意谁的观点，请不要自作多情，只不过是最简单的开嘲讽遭雷劈
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+最后，您知道吗，鹅球有一个特~~~~别好使的功能，叫塞抹布
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79173#       发表于 2021-6-15 03:53
+
+
+ 本帖最后由 exiaexa 于 2021-6-15 03:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602952&amp;ptid=1085254" target="_blank">zore 发表于 2021-6-15 01:56</a>
+都失忆了还记得失忆之前自己是啥样子的?失忆了凭什么否定过去的自己
+
+游戏里两三年的时间从迦勒底 ...</blockquote>
+我觉得菌类没想这么多
+他可能真的只是想表现一下失忆，毕竟只能基于文本确实没啥好的表现形式，总不能跟隔壁pcr一样直接配一个全能老妈给你发零花钱
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+md仔细想想还是可以的，这章开头那个胖所长爸爸的梗就可以拿来玩
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
