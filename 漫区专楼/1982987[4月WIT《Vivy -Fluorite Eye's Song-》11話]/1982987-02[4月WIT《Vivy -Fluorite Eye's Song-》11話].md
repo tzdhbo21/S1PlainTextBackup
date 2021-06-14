@@ -5496,3 +5496,46 @@ vivy一直“没有心”，歌不照样唱吗，敢情活 ...</blockquote>
 
 
                                                  
+
+-----
+
+####  JustW  
+##### 1928#       发表于 2021-6-14 11:42
+
+
+ 本帖最后由 JustW 于 2021-6-14 11:52 编辑 
+<blockquote>燃烬 发表于 2021-6-14 11:11
+前期为什么好看？因为一个随意解释自己使命的果决的母猩猩；后面为什么不好看？这个母猩猩突然自闭了 ...</blockquote>
+vivy在我心目中的观感最高峰就是下定决心说出“我是毁灭AI的AI”并一巴掌盖烂伪葛蕾斯那里了
+
+
+<img src="https://img.saraba1st.com/forum/202106/14/115209q1rn70z0jj9rhraj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-06-14-11-51-18-124_tv.danmaku.bili.jpg</strong> (146.52 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 11:52 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/14/115214k8urol20qkxuouhu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-06-14-11-51-31-221_tv.danmaku.bili.jpg</strong> (147.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 11:52 上传
+
+
+-----
+
+####  aptx8285144  
+##### 1929#       发表于 2021-6-14 11:58
+
+
+其实我挺想看艾薇拉姐妹活下来一起战主线的，特别是姐姐，感觉比松本靠谱多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

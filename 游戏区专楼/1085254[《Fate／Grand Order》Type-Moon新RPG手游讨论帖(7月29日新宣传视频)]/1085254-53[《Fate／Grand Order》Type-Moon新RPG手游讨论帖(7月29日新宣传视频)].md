@@ -13330,3 +13330,21 @@ fate吧和nga逛了一圈，只能说国内手游圈是真有意思，“查成�
 
 
                                                  
+
+-----
+
+####  fantuanxiaoyi  
+##### 79129#       发表于 2021-6-14 12:08
+
+
+ 本帖最后由 fantuanxiaoyi 于 2021-6-14 12:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51580612&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-13 11:30</a>
+
+打完最后一节了，nmd一开图进来觉得这阿瓦隆天气眼熟原来不是假的艹
+
+
+这他妈不就是ff14 5.0的无限光，最后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">连一开始死个美女变怪物都一毛一样，仔细想想别说死美女妖精了，还屠村，就差妖精王是初代妖精王给你造个黑风海了。
+
+
+                                                 
