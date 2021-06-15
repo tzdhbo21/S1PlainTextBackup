@@ -2809,3 +2809,23 @@ NEGI☆U【公式】
 
 
                                                  
+
+-----
+
+####  Scardy  
+##### 6236#       发表于 2021-6-15 23:16
+
+
+想看夸播MC，不是快夏日祭了嘛<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6237#       发表于 2021-6-15 23:23
+
+
+上次直播提到mc还是很敷衍的，短期概率不大。
+
+
+                                                 

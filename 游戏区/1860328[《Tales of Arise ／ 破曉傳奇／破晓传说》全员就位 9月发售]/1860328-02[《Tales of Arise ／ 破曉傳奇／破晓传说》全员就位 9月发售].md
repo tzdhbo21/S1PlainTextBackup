@@ -370,3 +370,16 @@ F篇结尾明日玲都带着索菲去跟谢丽雅表白了，还单恋
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1525#         楼主| 发表于 2021-6-15 23:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51612998&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-6-15 18:48</a>
+这个选集可以啊...............</blockquote>
+有啥可不可以的，这名单就是把已经推出的每一部主力作品都列举了一次而已<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
