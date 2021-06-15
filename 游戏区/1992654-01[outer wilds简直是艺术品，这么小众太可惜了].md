@@ -2587,3 +2587,68 @@ ns上糊吗，糊就买pc了
 
 
                                                  
+
+-----
+
+####  abc12354aa  
+##### 190#       发表于 2021-6-15 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51604588&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-15 09:20</a>
+这游戏的确不太适合看攻略，很容易摧毁未曾想象过的一切。而专楼里大家用线索引导的方式就很妙，帮我破关 ...</blockquote>
+深巨星那种浮空是不是是周期性的啊，我好怕啊，真的太几把恐怖了
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  abc12354aa  
+##### 191#       发表于 2021-6-15 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51604588&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-15 09:20</a>
+这游戏的确不太适合看攻略，很容易摧毁未曾想象过的一切。而专楼里大家用线索引导的方式就很妙，帮我破关 ...</blockquote>
+我在黑棘星旁边晃悠了好久还是不敢去。如果我黑鸡星直接看b站视频行吗，我真的很怕，但是很想看里面到底有啥<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，我玩这个游戏太累了，每次都兴奋地打开挣扎着关闭
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Dgnic_  
+##### 192#       发表于 2021-6-15 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51606604&amp;ptid=1992654" target="_blank">abc12354aa 发表于 2021-6-15 11:35</a>
+深巨星那种浮空是不是是周期性的啊，我好怕啊，真的太几把恐怖了
+
+—— 来自 samsung SM-G9750, Android  ...</blockquote>
+浮空指的是...？
+
+
+-----
+
+####  Dgnic_  
+##### 193#       发表于 2021-6-15 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51606628&amp;ptid=1992654" target="_blank">abc12354aa 发表于 2021-6-15 11:37</a>
+我在黑棘星旁边晃悠了好久还是不敢去。如果我黑鸡星直接看b站视频行吗，我真的很怕，但是很想看里面到底 ...</blockquote>
+黑棘星确实有点吓人，可以留到最后去。实在害怕可以先视频看看里面有什么，应对方式前面的楼层也有聊到，不怕剧透可以翻一翻。
+
+
+-----
+
+####  abc12354aa  
+##### 194#       发表于 2021-6-15 11:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51606683&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-15 11:40</a>
+浮空指的是...？</blockquote>
+深空星在地表探索的时候会突然漂浮到宇宙里，我没敢仔细看
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

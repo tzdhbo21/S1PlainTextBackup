@@ -14157,3 +14157,33 @@ md仔细想想还是可以的，这章开头那个胖所长爸爸的梗就可以
 
 
                                                  
+
+-----
+
+####  KOBI  
+##### 79180#       发表于 2021-6-15 11:46
+
+
+ 本帖最后由 KOBI 于 2021-6-15 11:49 编辑 
+
+马修侧有很强的冒险感而GD侧没爆点啊。。路上遇到的人也是断章那边更有趣
+
+谢菲尔德确实算前半的高潮了吧，除了静脉回廊的冒险被CUT掉了
+
+诺利吉完全调动不起来啊。。
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">当然个人评价最高的还是整一路的R18本题材，GD这边除了小奸商的女仆PLAY就没啥了
+
+
+-----
+
+####  里村紅葉  
+##### 79181#       发表于 2021-6-15 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51605345&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-15 10:17</a>
+
+话说不是之前说送60石么 怎么到现在都没看到</blockquote>
+看到好几个人提这个了，到底哪里有说过送60石啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
