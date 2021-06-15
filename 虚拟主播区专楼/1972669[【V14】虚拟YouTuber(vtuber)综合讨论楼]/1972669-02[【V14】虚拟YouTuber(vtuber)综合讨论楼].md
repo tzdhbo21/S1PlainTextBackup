@@ -12611,3 +12611,147 @@ ras这口误之后reid君要改叫hide君了
 
 
                                                  
+
+-----
+
+####  Rosefinch  
+##### 2498#       发表于 2021-6-15 23:40
+
+
+说得你杏就不是饭圈一样，杏还不如as呢，与其被杏奴跳脸我宁愿被au跳脸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 2499#       发表于 2021-6-15 23:42
+
+
+熊猫人开幕可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 2500#       发表于 2021-6-15 23:52
+
+
+说实话，小鬼子的同步视听除了“すごい”、“かわいい”、“やりだい”以外
+
+还能听到啥啊
+
+
+还不如看国内主播的，不管是quin、纯黑乃至C酱、喂狗之流都比看yhm有意思吧……
+
+
+-----
+
+####  ppf  
+##### 2501#       发表于 2021-6-15 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51616225&amp;ptid=1972669" target="_blank">Rosefinch 发表于 2021-6-15 23:40</a>
+说得你杏就不是饭圈一样，杏还不如as呢，与其被杏奴跳脸我宁愿被au跳脸 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer"> 不好意思 你又是哪位?好像没人有兴趣去跳维阿信哈
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  a37356205  
+##### 2502#       发表于 2021-6-15 23:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51616368&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-15 23:52</a>
+
+说实话，小鬼子的同步视听除了“すごい”、“かわいい”、“やりだい”以外
+
+还能听到啥啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">我这是看V顺便看任任直播，毕竟我连NS都没有
+
+
+-----
+
+####  Rosefinch  
+##### 2503#       发表于 2021-6-16 00:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51616421&amp;ptid=1972669" target="_blank">ppf 发表于 2021-6-15 23:55</a>
+
+不好意思 你又是哪位?好像没人有兴趣去跳维阿信哈
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1N ...</blockquote>
+你要说我的成分的话可以当我是国v信，我不看as也不看木口，体感现在的环境和以前木口当道的时候也没什么差别阿，都是饭圈谁比谁高贵阿，不过以前“他们”天天在那踩国v，现在不是好多了么，这就是我的立场
+
+
+-----
+
+####  IDIDIDID  
+##### 2504#       发表于 2021-6-16 00:11
+
+
+机战只能说赢麻了
+
+
+-----
+
+####  千年流放  
+##### 2505#       发表于 2021-6-16 00:11
+
+
+熊猫人狂喜
+
+
+-----
+
+####  Ketestrait  
+##### 2506#       发表于 2021-6-16 00:11
+
+
+任地狱这又是濡鸦巫女移植NS又是马趴的，简直就是你管人衣食父母<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 2507#       发表于 2021-6-16 00:14
+
+
+赢麻了
+
+
+-----
+
+####  rzrbtk  
+##### 2508#       发表于 2021-6-16 00:24
+
+
+ 本帖最后由 rzrbtk 于 2021-6-16 00:34 编辑 
+
+我感谢感激任天堂，如果都能整上，那明年一年的管人游戏观看体验直线提高
+
+郡道人生游戏出了两，高兴爆了啊
+
+
+-----
+
+####  IDIDIDID  
+##### 2509#       发表于 2021-6-16 00:27
+
+
+彩虹金油来了，田角给人体堂磕头吧。
+
+
+-----
+
+####  死体残留  
+##### 2510#       发表于 2021-6-16 00:56
+
+
+马趴和瓦里奥新作两个联动热游吧
+高尔夫估计玩几次就和网球那种不玩了
+
+
+                                                 
