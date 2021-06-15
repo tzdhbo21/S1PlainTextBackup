@@ -11992,3 +11992,116 @@ suha 危
 
 
                                                  
+
+-----
+
+####  OldGlory  
+##### 2447#       发表于 2021-6-15 15:54
+
+
+我们高贵的主机玩家只玩资深gamer446推荐的xgp<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">手游看不上的。
+
+
+-----
+
+####  qq845629713  
+##### 2448#       发表于 2021-6-15 15:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 我都想笑了，熊猫人中午还在恰猪场手游的米，晚上就化身成铁血任任，
+
+
+现实，你把多少纯血任任都给毁了！
+
+
+-----
+
+####  poipanchao  
+##### 2449#       发表于 2021-6-15 16:02
+
+
+别尬黑，原神要上ns的（还是已经上了？）
+更别提王者荣耀了
+
+
+-----
+
+####  ppf  
+##### 2450#       发表于 2021-6-15 16:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer"> 那管人这个概念诞生前我就是单机玩家，总不能做了管人厨就必须改了。我是希望多搞点游戏发布会的同步视听，上次ame和鲨鱼搞的e3。
+至于yagoo能不能收钱，这司马人不是钱赚的越少越好么，反正又不分几个liver
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  katern  
+##### 2451#       发表于 2021-6-15 16:26
+
+
+可别云原神了，ns机能不配的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+今晚0点任任E3收割，让手游信看看什么叫主宰<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  与太郎  
+##### 2452#       发表于 2021-6-15 16:28
+
+
+<img src="https://p.sda1.dev/2/676ae65ecf150f07a1c19adabe32c6e6/hatsune_miku_and_hololive_en_ninomae_inanis_collaboration_draw_a_lot_items_vol1_starts_2.jpg" referrerpolicy="no-referrer">
+
+6月17日（木）午前4時～（日本時間）
+
+配信URL：[https://youtu.be/nFQhhySjLwg](https://youtu.be/nFQhhySjLwg)
+
+使用機材：ワコム ペンタブレット「Wacom Cintiq Pro 24」
+
+使用ソフトウェア：セルシス「CLIP STUDIO PAINT EX 」
+
+Tシャツ販売ページ
+
+Booth：[https://draw-a-lot.booth.pm/](https://draw-a-lot.booth.pm/)
+
+Raffle：[https://raffle-event.jp/raffles/224](https://raffle-event.jp/raffles/224)
+
+没人发？
+
+
+-----
+
+####  flyskywalker92  
+##### 2453#       发表于 2021-6-15 16:29
+
+
+少点人上人 手游用户量很大的
+
+彩虹又干啥了 楼友让它跟杏一起死
+
+
+-----
+
+####  IDIDIDID  
+##### 2454#       发表于 2021-6-15 16:33
+
+
+<img src="https://img.saraba1st.com/forum/202106/15/163232lkcv36v7jg7z7u7a.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #143 - 'GETCHA! _ calliope × suisei(cover) - Y.png</strong> (162.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-15 16:32 上传
+
+
+GETCHA! / calliope × suisei(cover)
+[https://www.youtube.com/watch?v=EjlMPu5sEgw](https://www.youtube.com/watch?v=EjlMPu5sEgw)
+
+
+                                                 

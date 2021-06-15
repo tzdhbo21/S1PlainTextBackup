@@ -14503,3 +14503,69 @@ AB同时出现，是不是可以完全证明A是B的因呢？当然不能，对�
 
 
                                                  
+
+-----
+
+####  UNISONIA  
+##### 79201#       发表于 2021-6-15 15:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51610179&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 15:26</a>
+
+听你这么说更加坚定了我认为2.0后fgo就会结束的想法，6,7年的游戏用户新鲜度和曝光度也不断降低，真没必 ...</blockquote>
+拖估计还是会稍微拖一拖，但是主线应该也就到这里了
+
+
+最近比较搞的是某SE新开手游服务器压力一大就ban了所有海外用户，也是哄堂大笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，侧面说明这方面对中小游戏还是压力很大的
+
+
+-----
+
+####  zakki  
+##### 79202#       发表于 2021-6-15 15:35
+
+
+卡页
+
+
+-----
+
+####  zakki  
+##### 79203#       发表于 2021-6-15 15:39
+
+
+ 本帖最后由 zakki 于 2021-6-15 15:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51610287&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-6-15 15:32</a>
+
+拖估计还是会稍微拖一拖，但是主线应该也就到这里了
+
+
+最近比较搞的是某SE新开手游服务器压力一大就ban了 ...</blockquote>
+倒不如说如果后续有货的话就不会拖成这样，苟活感爆棚了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79204#       发表于 2021-6-15 16:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51610179&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 15:26</a>
+
+听你这么说更加坚定了我认为2.0后fgo就会结束的想法，6,7年的游戏用户新鲜度和曝光度也不断降低，真没必 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可这2。0结束可能还很远 撑到10周年也不是不可能的
+
+
+-----
+
+####  zakki  
+##### 79205#       发表于 2021-6-15 16:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51610973&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-15 16:21</a>
+
+可这2。0结束可能还很远 撑到10周年也不是不可能的</blockquote>
+今年年底2.65，明年2.7+2.75，后年终章，这已经是最慢速度了，不能比这个再慢了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
