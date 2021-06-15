@@ -5881,3 +5881,15 @@ AI暴动危机的原因，毁灭AI的百年计划，AI使命与解除危机的�
 
 
                                                  
+
+-----
+
+####  Piano-Forest  
+##### 1949#       发表于 2021-6-15 13:09
+
+
+小说第三卷封面，2021年6月30日发售
+<img src="https://p.sda1.dev/2/c16817de7a4f96ff4e063a081f592c46/novel_3.jpg" referrerpolicy="no-referrer">
+
+
+                                                 
