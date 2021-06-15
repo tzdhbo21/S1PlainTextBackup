@@ -14813,3 +14813,192 @@ https://tieba. ...</blockquote>
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79225#       发表于 2021-6-15 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614403&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-15 20:46</a>
+我不这么认为，我觉得就算废狗关服，蘑菇也不会让咕哒和马修成恋人关系。
+
+
+就像蘑菇不会宣布fsn最后哪条 ...</blockquote>
+这个是两码事，fsn三条可以说是平行，但fgo的主线只有一条，那些所谓的ml从者大多都是归于活动和番外。如果最后结局是不再会有英灵召唤，那只有马修一条线可走。
+
+
+-----
+
+####  zakki  
+##### 79226#       发表于 2021-6-15 20:52
+
+
+再说下我对2.0后半的猜测，根据下半部op来看，我觉得达芬奇，胖所长，老福都得被刀，达芬奇很可能交代在2.6，胖所长在2.7，老福因为身份原因可能会离队。最后是成为迦勒底最后一任所长的立香和马修两人迎接终局异闻带，这样也更有完结的终焉感<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 79227#       发表于 2021-6-15 21:05
+
+
+<blockquote>zakki 发表于 2021-6-15 20:52
+再说下我对2.0后半的猜测，根据下半部op来看，我觉得达芬奇，胖所长，老福都得被刀，达芬奇很可能交代在2.6 ...</blockquote>
+先不说定西皮这种手游形式限制无法定死的东西，蘑菇要还拘泥于让主角回归社会，或者说真在迦勒底就业，也要有个现世有身份的人罩着，有这身份的胖所长八成就死不了，除非全灭，或者世界依旧是1.0，2.0这种全灭状态。不出意外，至少泛人类史是需要白魔法的，恢复成1.0到1.5之间那种大体稳定，局部出事的状态。除了2.0之后马上接3.0这种情况。
+
+
+-----
+
+####  exiaexa  
+##### 79228#       发表于 2021-6-15 21:14
+
+
+那一起来奶一口
+胖所长傻人傻福好人好报肯定活到最后；
+小芬奇电量用尽作为传统的爆发导火索情节来用；
+老福装逼跳反然后以自爆为代价跳回来破局，教授给个助攻；
+紫苑就来个传统挡兵线/开门，事后有烟无伤；
+队长背后灵来个回忆杀和立香玛修一起救回奥尔加玛丽，奥尔加玛丽最后救回来跟着立香盾娘开始旅行；
+
+既·视·感·大·爆·炸
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  newfaceryo  
+##### 79229#       发表于 2021-6-15 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614438&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 20:49</a>
+
+这个是两码事，fsn三条可以说是平行，但fgo的主线只有一条，那些所谓的ml从者大多都是归于活动和番外。如 ...</blockquote>
+其实是一样的，为什么要维持三条线平行？因为三条线都有自己的拥护者，都是玩家自己的选择，你硬推一条线为真实结局其实就是贬低了站了其它两线的玩家的选择。
+
+马修的情况也一样，虽然喜欢玩家的确实很多，但是很多玩家都有自己更心仪的对象。官方硬推马修嫁结局就是对所有为了自己心仪的从者选择fgo的玩家的一个明确的背叛。
+
+fgo一个很重要的主题就是人类的多样性，各式各样参差不齐的选择权，各种千奇百怪的立绘选择其实某种意义上也是围绕这个来的。官方到现在也没有搞过明确的人气投票。
+
+我觉得对尊重玩家自己的选择这一点，应该是看的很重的。
+
+
+-----
+
+####  zakki  
+##### 79230#       发表于 2021-6-15 21:19
+
+
+ 本帖最后由 zakki 于 2021-6-15 21:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614615&amp;ptid=1085254" target="_blank">谁说法海不懂爱 发表于 2021-6-15 21:05</a>
+先不说定西皮这种手游形式限制无法定死的东西，蘑菇要还拘泥于让主角回归社会，或者说真在迦勒底就业，也 ...</blockquote>
+我猜测的结局就是泛人类史近乎全灭的一种结局<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">或者说马修和咕哒两人脱离了人类社会，反正不是一种很舒服的he，归于社会这种我觉得可能性很低。
+
+至于cp，看蘑菇怎么想，他如果只把fgo当做手游去结局就不会定死，他如果当成是fsn那种正作性质就肯定会给个明确的cp结局
+
+
+
+
+-----
+
+####  zakki  
+##### 79231#       发表于 2021-6-15 21:24
+
+
+ 本帖最后由 zakki 于 2021-6-15 21:26 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614741&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-15 21:17</a>
+其实是一样的，为什么要维持三条线平行？因为三条线都有自己的拥护者，都是玩家自己的选择，你硬推一条线 ...</blockquote>
+我认为所谓的ml从者，ml中的master指的都是玩家而不是立香，立香这个角色的箭头只指向马修一个人，2.6第9节最后也能看出来，硬解释成战友情我觉得就很没意思了，你月本质bmg，最后一定是会有结果的，不然和你月的主旨就偏了。当然了，这是我的看法，蘑菇会怎么处理还得等后续
+
+
+-----
+
+####  zakki  
+##### 79232#       发表于 2021-6-15 21:25
+
+
+ 本帖最后由 zakki 于 2021-6-15 21:28 编辑 
+
+胖所长不死我找不到立香会穿所长服的理由啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+紫苑肯定不会死，毕竟不是迦勒底收编的。按我的猜测终章前存活马修，立香，紫苑，尼莫四人吧，尼莫开船肯定不能死<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/4b49ff5cff31fdf4bc0fb14a31ce0523/IMG_CMP_83863043.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  johnkamsar  
+##### 79233#       发表于 2021-6-15 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614832&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 21:25</a>
+胖所长不死我找不到立香会穿所长服的理由啊
+紫苑肯定不会死，毕竟不是迦勒底收编的。按我的猜测终章 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">胖所长死基本上钉在板子上了....只是不知道他什么时候死，可惜了一个挺好的人....
+
+
+-----
+
+####  zakki  
+##### 79234#       发表于 2021-6-15 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614880&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-6-15 21:29</a>
+胖所长死基本上钉在板子上了....只是不知道他什么时候死，可惜了一个挺好的人.... ...</blockquote>
+猜测可能是对阵杀狐的时候，很可能是个断章，6.5或7.5。2.5前我也觉得谐星不会死，但这个op暗示味道太重了
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 79235#       发表于 2021-6-15 21:32
+
+
+ 本帖最后由 谁说法海不懂爱 于 2021-6-15 21:35 编辑 
+<blockquote>zakki 发表于 2021-6-15 21:19
+我猜测的结局就是泛人类史近乎全灭的一种结局或者说马修和咕哒两人脱离了人类社会，反正不是一种 ...</blockquote>
+对于你的猜测内容，我提下个人观点的缘由，个人做出假设是站在fgo是手游和他到现在的路数为前提下提出的，从小方面讲，按菌类以往的趣味，玛修这次就不止是形婚，往大了讲，2.0选了生存多活一框架就不用到了2.6都还在搞联合本地人在道德方面搞抗爆。
+
+抛开这些从其他方面的原因就是再不让主角视角里的“家”稳定点，估计作者自己都要没归属感去写，扯人类鸡汤了。
+
+
+-----
+
+####  johnkamsar  
+##### 79236#       发表于 2021-6-15 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614912&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 21:32</a>
+猜测可能是对阵杀狐的时候，很可能是个断章，6.5或7.5。2.5前我也觉得谐星不会死，但这个op暗示味道太重 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">说起来还剩了个穆尼尔来着....他咋处理啊.....难道也要去送？
+
+
+-----
+
+####  newfaceryo  
+##### 79237#       发表于 2021-6-15 21:35
+
+
+ 本帖最后由 newfaceryo 于 2021-6-15 21:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614820&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 21:24</a>
+
+我认为所谓的ml从者，ml中的master指的都是玩家而不是立香，立香这个角色的箭头只指向马修一个人，2.6第9 ...</blockquote>
+在我看来游戏中想让立香成为玩家自身投影和玩家自身代言人的这一目的还是非常明显的。
+
+虽然受限于游戏工期，媒体表现能力和写手水品还有写作体制的先天痼疾，效果并不好，
+
+但是显然能看出来做的人还是尽量往这个方向在努力的
+
+
+-----
+
+####  zakki  
+##### 79238#       发表于 2021-6-15 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614926&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-6-15 21:33</a>
+说起来还剩了个穆尼尔来着....他咋处理啊.....难道也要去送？</blockquote>
+不是主要人物死不死倒无所谓了，总不能让他当新所长吧。现在死旗插满的就是老福，小芬奇和所长三个人。不过2.6唐突全员出动总有种要全员要被刀的感觉
+
+
+                                                
