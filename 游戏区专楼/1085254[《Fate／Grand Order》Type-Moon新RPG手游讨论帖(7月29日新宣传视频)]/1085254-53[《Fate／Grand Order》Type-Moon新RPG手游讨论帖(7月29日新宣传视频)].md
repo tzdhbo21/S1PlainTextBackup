@@ -15002,3 +15002,159 @@ fgo一个很重要的主题就是人类的多样性，各式各样参差不齐�
 
 
                                                 
+
+-----
+
+####  zakki  
+##### 79239#       发表于 2021-6-15 21:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614913&amp;ptid=1085254" target="_blank">谁说法海不懂爱 发表于 2021-6-15 21:32</a>
+对于你的猜测内容，我提下个人观点的缘由，个人做出假设是站在fgo是手游和他到现在的路数为前提下提出的， ...</blockquote>
+2.6联合本地人的性质也不太一样，毕竟这次不是来砍树的，只是来和摩根沟通并且调查圣枪和异闻带崩坏。我说的只是一种猜想，我觉得蘑菇从18年底发表关服宣言后就能看出他对2.0的结局很倔，总让我觉得他会玩个非正统的结局
+
+
+-----
+
+####  zakki  
+##### 79240#       发表于 2021-6-15 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614943&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-15 21:35</a>
+在我看来游戏中想让立香成为玩家自身投影和玩家自身代言人的这一目的还是非常明显的。
+
+虽然受限于游戏工期 ...</blockquote>
+这个问题见仁见智吧，在我看来2.6第9节直球写立香的台词已经是脱离于玩家去塑造立香了，而且还是个对马修很大倾向的台词，写出这个台词就已经是在给马修和立香关系更进一步去铺路了。
+
+
+-----
+
+####  johnkamsar  
+##### 79241#       发表于 2021-6-15 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614963&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 21:37</a>
+不是主要人物死不死倒无所谓了，总不能让他当新所长吧。现在死旗插满的就是老福，小芬奇和所长三个人。不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">穆尼尔也算比较频繁出场的角色了吧，而且他这么频繁出场却没一个特殊身份也说不过去。
+我怀疑是他作为最后见证人目睹了迦勒底的出现与消亡，并作为唯一证人证明迦勒底存在过而在泛人类史中存活，泛人类史中迦勒底的存在会被抹除，包括主角在内所有人牺牲。
+最后以穆尼尔的角度来目睹着主角含笑牺牲。
+我倒是觉得这种重演医生历程的结局可能fgo会有：
+有的人选择毁灭世间，有人选择苟且偷生，有人选择牺牲自我，有人选择记录一切并见证一切.
+
+
+-----
+
+####  newfaceryo  
+##### 79242#       发表于 2021-6-15 21:51
+
+
+怎么你们都对蘑菇这人映像这么差的，我觉得这人很明白自己只是在做娱乐，很明白什么是该写什么是不该写的，底线到底应该哪里的。
+
+毕竟人家一心一意就为了维护自己的自娱自乐粉丝圈小团体几十年这么过来的。
+
+不会真信了蘑菇其实想黑马修结果被其它人按住手这种弱智猜测吧？
+
+
+蘑菇有恶意坑玩家的先例吗？
+
+
+-----
+
+####  zakki  
+##### 79243#       发表于 2021-6-15 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51615071&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-6-15 21:48</a>
+穆尼尔也算比较频繁出场的角色了吧，而且他这么频繁出场却没一个特殊身份也说不过去。
+我怀疑是他 ...</blockquote>
+这个结局和我想的很接近，唯一一个经历了迦勒底五任所长的角色，很适合作为最后生存下来的旁观者
+
+
+-----
+
+####  森兰丸  
+##### 79244#       发表于 2021-6-15 21:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51615042&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 21:44</a>
+
+这个问题见仁见智吧，在我看来2.6第9节直球写立香的台词已经是脱离于玩家去塑造立香了，而且还是个对马修 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">等等....不会真有人以为咕哒是用来让玩家代入的三无主角吧....那么多漫画和动画都白出了么
+
+
+-----
+
+####  zakki  
+##### 79245#       发表于 2021-6-15 21:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51615102&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-15 21:51</a>
+怎么你们都对蘑菇这人映像这么差的，我觉得这人很明白自己只是在做娱乐，很明白什么是该写什么是不该写的， ...</blockquote>
+也不叫坑吧，蘑菇曾说过fgo完结时很想让玩家有完结的失落和空虚感，所以我才觉得是一种介于be和he之间的结局
+
+
+-----
+
+####  zakki  
+##### 79246#       发表于 2021-6-15 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51615135&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-6-15 21:53</a>
+等等....不会真有人以为咕哒是用来让玩家代入的三无主角吧....那么多漫画和动画都白出了么 ...</blockquote>
+fate吧有请<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  谁说法海不懂爱  
+##### 79247#       发表于 2021-6-15 21:58
+
+
+<blockquote>newfaceryo 发表于 2021-6-15 21:51
+怎么你们都对蘑菇这人映像这么差的，我觉得这人很明白自己只是在做娱乐，很明白什么是该写什么是不该写的， ...</blockquote>
+我的猜测也是基于他这人虽然恶趣味，会写些毒鸡汤，但对自己在什么平台，什么不该写心里还是有数的。像有个说法就是他本人就是最大的ml。
+
+
+-----
+
+####  johnkamsar  
+##### 79248#       发表于 2021-6-15 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51615112&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 21:52</a>
+这个结局和我想的很接近，唯一一个经历了迦勒底五任所长的角色，很适合作为最后生存下来的旁观者 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">其实这个结局最大好处是，大家都死了也没什么遗憾了，都尽力了.....（严格来说op也是主角死相意味十足.....）
+这点和1.0大战gay提亚一样，大家都牺牲了自己，咕哒也亲自上场开干了。
+反正结局时咕哒肯定作为一员亲自参与战斗，而不是当摄像机
+ps：其实俺寻思，到时候咕哒被分配为特殊阶然后作为战斗员参与战斗这点确实带感....<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">要是结局牺牲后咕哒正式进入英灵殿就好玩了，最后还能骗一波氪金.....
+
+
+-----
+
+####  newfaceryo  
+##### 79249#       发表于 2021-6-15 22:03
+
+
+ 本帖最后由 newfaceryo 于 2021-6-15 22:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51615139&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 21:54</a>
+
+也不叫坑吧，蘑菇曾说过fgo完结时很想让玩家有完结的失落和空虚感，所以我才觉得是一种介于be和he之间的 ...</blockquote>
+不是，我的意思是，让fgo有个非happy end的结局，这事是有可能发生的，也没什么大不了,当然可能性也不大。
+
+但是让马修被强上，变成第二个樱和藤乃，这事是绝对不可能发生的。
+
+
+-----
+
+####  zakki  
+##### 79250#       发表于 2021-6-15 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51615247&amp;ptid=1085254" target="_blank">newfaceryo 发表于 2021-6-15 22:03</a>
+不是，我的意思是，让fgo有个非happy end的结局，这事是有可能发生的，也没什么大不了。
+
+但是让马修被强 ...</blockquote>
+这是肯定的，蘑菇这次的剧情叠了那么厚的甲，看得出来求生欲蛮高的
+
+
+                                                 
