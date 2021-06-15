@@ -14107,3 +14107,53 @@ md仔细想想还是可以的，这章开头那个胖所长爸爸的梗就可以
 
 
                                                  
+
+-----
+
+####  新吾  
+##### 79176#       发表于 2021-6-15 10:12
+
+
+好多人啊
+
+
+结婚这个排除蘑菇的恶趣味，我打赌下半章肯定会用到咕哒身上，咕哒跟马修穿着西服婚纱，在礼堂里暧昧预演结婚啥的，私定终身后为了未来而下定决心去南非最后把大卫也打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+蘑菇也说想在第二章结束fgo了，现在废狗系统跟风评流水都这么拉，估计就算有第三章，索尼也不会继续交给dw去做，第二章给咕哒马修的故事画上句号就能名正言顺的开发新一代的废狗了。
+
+
+-----
+
+####  qixinno2  
+##### 79177#       发表于 2021-6-15 10:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">话说不是之前说送60石么 怎么到现在都没看到
+
+
+-----
+
+####  khxooo  
+##### 79178#       发表于 2021-6-15 10:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51605267&amp;ptid=1085254" target="_blank">新吾 发表于 2021-6-15 10:12</a>
+好多人啊
+
+
+结婚这个排除蘑菇的恶趣味，我打赌下半章肯定会用到咕哒身上，咕哒跟马修穿着西服婚纱，在礼堂里 ...</blockquote>
+这样也可以顺便退坑了<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  v22325  
+##### 79179#       发表于 2021-6-15 10:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也不能这么讲吧 毕竟第二部和第一部不一样 第一部只要救世界就行 
+
+第二部反复说了几百遍咕哒他们是在毁灭异闻带 每次也都有罪恶感 反正如果在第一部失忆马修是不会有这种感情的
+
+
+                                                 

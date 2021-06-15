@@ -1687,3 +1687,27 @@ Q娃形态用枪械的，屑人鱼的确应该是第一个</blockquote>
 
 
                                                  
+
+-----
+
+####  Sliurus  
+##### 1636#       发表于 2021-6-15 09:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51604112&amp;ptid=1963832" target="_blank">RoPlem 发表于 2021-6-15 08:28</a>
+ 开播前觉得珊瑚最戳，现在反倒除了屑人鱼外最戳的是木瓜，进能谜语人推剧情，退能一手表情包卖萌耍宝，珊瑚 ...</blockquote>
+珊瑚有点背景板，性格不突出，木瓜起码反差萌
+
+
+-----
+
+####  最强惠酱  
+##### 1637#       发表于 2021-6-15 09:28
+
+
+珊瑚缺一个挺好回，这集和夏哥距离感真不错（差点亲上<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
