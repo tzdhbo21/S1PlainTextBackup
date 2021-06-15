@@ -12105,3 +12105,114 @@ GETCHA! / calliope × suisei(cover)
 
 
                                                  
+
+-----
+
+####  Suny08  
+##### 2455#       发表于 2021-6-15 16:53
+
+
+尊在串里的风评感觉已经变成又瑟又坏的恶女勒，还挺可爱的
+
+
+-----
+
+####  qq845629713  
+##### 2456#       发表于 2021-6-15 16:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 2457#       发表于 2021-6-15 16:55
+
+
+ 本帖最后由 FCCHua 于 2021-6-15 17:33 编辑 
+
+尊妈坏女人那我更可以了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+不过本质还是“妈”属性，亚撒西捏
+
+
+-----
+
+####  雪风utopia  
+##### 2458#       发表于 2021-6-15 16:59
+
+
+能不能加一个有杏瘾的设定<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 2459#       发表于 2021-6-15 17:07
+
+
+纯爱党坚决反对
+不接受绿帽剧情
+不过换成king出轨倒也不是不可以，就是一定要未遂
+
+
+-----
+
+####  心垂万刃  
+##### 2460#       发表于 2021-6-15 17:10
+
+
+无论是虹还是杏，紫色矮子都是坏女人担当是吧？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  雪风utopia  
+##### 2461#       发表于 2021-6-15 17:21
+
+
+虹的坏不坏我不知道，但杏的太坏了<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 2462#       发表于 2021-6-15 17:23
+
+
+[https://twitter.com/VMA2020_12_28/status/1404725708803346432](https://twitter.com/VMA2020_12_28/status/1404725708803346432)
+
+
+”この夏もVの音楽を浴びよう”
+
+
+2021年07/03(土)～07/04(日)
+
+「Virtual Music Award 2021 SUMMER」
+
+オンラインで開催決定！
+
+
+ブイアワ恒例のシルエットで出演者を段階的に公開していきますので、誰が出演するのか・・・皆様お楽しみに话筒
+
+
+▼特設ページ
+[http://vma2021.jp](http://vma2021.jp)
+
+
+能看出来都是谁吗
+
+
+<img src="https://img.saraba1st.com/forum/202106/15/172319gjqevzo8shjhojtq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>vma2021.jpg</strong> (179.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-15 17:23 上传
+
+
+                                                

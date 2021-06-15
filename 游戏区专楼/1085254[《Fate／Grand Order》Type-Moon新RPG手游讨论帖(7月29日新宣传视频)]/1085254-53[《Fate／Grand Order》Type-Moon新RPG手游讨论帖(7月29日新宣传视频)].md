@@ -14569,3 +14569,67 @@ AB同时出现，是不是可以完全证明A是B的因呢？当然不能，对�
 
 
                                                  
+
+-----
+
+####  不垃圾屌丝  
+##### 79206#       发表于 2021-6-15 16:55
+
+
+2.0能顺利收掉就谢天谢地了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alucardcz  
+##### 79207#       发表于 2021-6-15 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51611098&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 16:31</a>
+
+今年年底2.65，明年2.7+2.75，后年终章，这已经是最慢速度了，不能比这个再慢了吧 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">终章可以分1234567啊（
+
+
+-----
+
+####  zakki  
+##### 79208#       发表于 2021-6-15 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51611447&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-15 16:56</a>
+
+终章可以分1234567啊（</blockquote>
+那我甚至开始佩服他们了，把苟活玩明白了
+
+
+-----
+
+####  exiaexa  
+##### 79209#       发表于 2021-6-15 17:05
+
+
+终章再分章就过分了
+
+按现在的思路应该是，每个作家负责一个节，一节对应一个异闻带，然后一个月解锁一个，方便轮换池子
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 79210#       发表于 2021-6-15 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51611579&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-15 03:05</a>
+
+终章再分章就过分了
+
+
+按现在的思路应该是，每个作家负责一个节，一节对应一个异闻带，然后一个月解锁一个， ...</blockquote>
+奶中了就回来打死你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
