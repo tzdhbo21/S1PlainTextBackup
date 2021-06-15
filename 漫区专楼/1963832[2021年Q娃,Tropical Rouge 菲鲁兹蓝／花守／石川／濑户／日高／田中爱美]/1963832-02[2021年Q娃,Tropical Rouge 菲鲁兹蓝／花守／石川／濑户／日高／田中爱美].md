@@ -1539,3 +1539,151 @@ Q娃形态用枪械的，屑人鱼的确应该是第一个</blockquote>
 
 
                                                 
+
+-----
+
+####  达达葱2  
+##### 1623#       发表于 2021-6-14 09:03
+
+
+这是在吃土豆饼吗
+
+
+-----
+
+####  Blackson  
+##### 1624#       发表于 2021-6-14 10:47
+
+
+ 本帖最后由 Blackson 于 2021-6-14 11:02 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51582779&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-6-13 15:55</a>
+
+ 可惜宣传太多没啥悬念，不然猜罗拉会不会黑化还挺有看头的 虽然逻辑上说不通，毕竟想变人是因为队友，因此 ...</blockquote>
+其实从第二集萝拉说出那句台词后，她会变人（Q娃）已经是板上钉钉的事了。
+
+就是这变人的代价，应该会是像钉宫那样有时间限制吧
+
+
+-----
+
+####  暗黑能乐  
+##### 1625#       发表于 2021-6-14 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51592058&amp;ptid=1963832" target="_blank">Blackson 发表于 2021-6-14 10:47</a>
+
+其实从第二集萝拉说出那句台词后，她会变人（Q娃）已经是板上钉钉的事了。
+
+就是这变人的代价，应该会是像 ...</blockquote>
+这也算不上代价吧。。。
+
+
+-----
+
+####  梦诗歌雪  
+##### 1626#       发表于 2021-6-14 13:40
+
+
+变成人就当不了人鱼女王了，这代价够大了吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  达达葱2  
+##### 1627#       发表于 2021-6-14 13:48
+
+
+变成人后只剩一年寿命？
+
+
+-----
+
+####  红焖菠菜  
+##### 1628#       发表于 2021-6-14 13:50
+
+
+可惜了，我还想看萝拉变泡沫后真夏的哭脸呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI LIO-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Sliurus  
+##### 1629#       发表于 2021-6-14 13:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51594407&amp;ptid=1963832" target="_blank">红焖菠菜 发表于 2021-6-14 13:50</a>
+
+可惜了，我还想看萝拉变泡沫后真夏的哭脸呢
+
+
+—— 来自 HUAWEI LIO-AL00, Android 10上的 S1Next-鹅 ...</blockquote>
+我也想，大家都想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+这种元气少女哭起来一定很可爱吧<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗黑能乐  
+##### 1630#       发表于 2021-6-14 14:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那是必须要有的，下一话分明变身了还一脸严肃，我觉得已经在铺垫了
+
+
+-----
+
+####  lyflyflxf  
+##### 1631#       发表于 2021-6-14 19:04
+
+
+这一集卖萌颜艺比之前多多了，好像不是因为原画的变化？
+
+
+-----
+
+####  最强惠酱  
+##### 1632#       发表于 2021-6-14 20:37
+
+
+这集日常作画真可爱啊，夏哥大活宝，她还真想出不少能和罗拉一起的部活
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  saya1892  
+##### 1633#       发表于 2021-6-14 20:49
+
+
+这种幼女动画其实一般很难做好文学少女角色，不过木瓜每次开口都有一种安静或者说神秘的感觉，虽然她大部分时间都在当线索提示器就是了
+
+这集两次三番气氛转严肃，快刀啊我都等不及了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  RoPlem  
+##### 1634#       发表于 2021-6-15 08:28
+
+
+开播前觉得珊瑚最戳，现在反倒除了屑人鱼外最戳的是木瓜，进能谜语人推剧情，退能一手表情包卖萌耍宝，珊瑚算是目前个人回和塑造最少了的吧
+
+
+-----
+
+####  红焖菠菜  
+##### 1635#       发表于 2021-6-15 09:02
+
+
+<img src="https://p.sda1.dev/2/1b0800ccdea35f50c5c1986a5e6a2b67/IMG_CMP_241586222.jpeg" referrerpolicy="no-referrer">
+珊瑚：终究是错付了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HUAWEI LIO-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

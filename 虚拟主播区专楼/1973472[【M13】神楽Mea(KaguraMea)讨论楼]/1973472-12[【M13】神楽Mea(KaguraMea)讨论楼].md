@@ -8391,3 +8391,1947 @@ mea：舞…苔苔你怎么回事？
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 17246#       发表于 2021-6-14 06:23
+
+
+ 本帖最后由 T_Hb 于 2021-6-14 07:51 编辑 
+
+你这个凑合就很精髓，道出了世界的真谛
+我以前也接受不了她老给自己整个丑角当，现在整啥看啥
+自我妥协真是处事良方
+
+
+-----
+
+####  Dualist彩  
+##### 17247#       发表于 2021-6-14 08:06
+
+
+只能说明你们还不够爱小麻，可笑<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17248#       发表于 2021-6-14 08:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我确实不够爱她，只是觉得她很有趣，希望她活久点罢了
+
+
+-----
+
+####  T_Hb  
+##### 17249#       发表于 2021-6-14 08:28
+
+
+这就要看是什么爱了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17250#       发表于 2021-6-14 09:38
+
+
+麻麻：你们🦄j8谁啊
+
+一边封禁mix一边五元大好，属实极致双标狗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+呐呐呐，以后和老农民合作会不会有像军刀神田3d那种公主抱啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我最喜欢看独角兽发疯了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  路人庚  
+##### 17251#       发表于 2021-6-14 09:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么又极致双标了，把有舞元参与的节目当成演小品不就得了
+
+赵本山和宋丹丹演了白云黑土就意味着他们俩真是夫妻了吗？
+
+
+-----
+
+####  A2014720  
+##### 17252#       发表于 2021-6-14 09:51
+
+
+那是宋丹丹的🦄多还是赵本山噶吃浓度高啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+现实里谁管啊，但荧幕上看着挺配的啊
+
+
+-----
+
+####  T_Hb  
+##### 17253#       发表于 2021-6-14 09:52
+
+
+这也没啥，投射的感情不同，当然需求也不同
+
+但是要认清，她也是个成年人，是不可能被支配的
+
+
+-----
+
+####  路人庚  
+##### 17254#       发表于 2021-6-14 09:56
+
+
+没明白这跟出演小品有什么联系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+虽然我觉得所有独角兽都该死，特别是所谓偶像圈的独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 17255#       发表于 2021-6-14 10:10
+
+
+ 本帖最后由 Cushaw 于 2021-6-14 10:15 编辑 
+
+改天就不小心暴露结婚证书让🦄全部去世<img src="https://static.saraba1st.com/image/smiley/face2017/031.png" referrerpolicy="no-referrer">
+syl，🦄浓度高请去怪小麻不要怪楼友呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  A2014720  
+##### 17256#       发表于 2021-6-14 10:11
+
+
+ 本帖最后由 A2014720 于 2021-6-14 10:12 编辑 
+
+发生经历了这么多事，还在这带着的独角兽才是真的有问题吧<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 17257#       发表于 2021-6-14 10:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">贴贴人都还活着呢，有独角兽不奇怪
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1|思路广|
+
+
+查看全部评分
+
+
+-----
+
+####  A2014720  
+##### 17258#       发表于 2021-6-14 15:18
+
+
+我所见批五元最狠的除了🦄就是贝贝人了…
+
+
+-----
+
+####  A2014720  
+##### 17259#       发表于 2021-6-14 18:46
+
+
+【神楽めあ TC开始】
+标题：ニートです、
+时间：2021-06-14 18:45:14 UTC+08:00
+网址：https://twitcasting.tv/KaguraMea_VoV
+
+
+-----
+
+####  T_Hb  
+##### 17260#       发表于 2021-6-14 18:46
+
+
+兄弟们，TC开了
+
+
+-----
+
+####  路人庚  
+##### 17261#       发表于 2021-6-14 18:49
+
+
+所以她在玩的mmo其实就是pso2吗？（噗
+
+
+-----
+
+####  GRMeA104  
+##### 17262#       发表于 2021-6-14 19:02
+
+
+后天跟黄兔子那组又要过一遍舞咩麻将
+合着参加麻将比赛要把粉都宰一遍是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17263#       发表于 2021-6-14 19:03
+
+
+比赛舞和咩是分开的啊，倒不如担心赛后采访的时候搞点什么
+
+
+-----
+
+####  GRMeA104  
+##### 17264#       发表于 2021-6-14 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51597847&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-14 19:03</a>
+比赛舞和咩是分开的啊，倒不如担心赛后采访的时候搞点什么</blockquote>
+赛前预备阶段你楼就要死要活了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17265#       发表于 2021-6-14 19:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过现在看来你咩姐只想沉迷pso2（
+
+
+-----
+
+####  T_Hb  
+##### 17266#       发表于 2021-6-14 19:11
+
+
+<img src="https://img.saraba1st.com/forum/202106/14/191118frhahz3wa9shws4m.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (13.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 19:11 上传
+
+
+兔妈频道，高强度轰炸🦄，能不能养点舞咩贝贝人出来啊
+
+
+-----
+
+####  Klience  
+##### 17267#       发表于 2021-6-14 19:11
+
+
+那么 问题来了 她会玩什么武器<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雪风utopia  
+##### 17268#       发表于 2021-6-14 19:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17269#       发表于 2021-6-14 19:14
+
+
+ 本帖最后由 路人庚 于 2021-6-14 19:16 编辑 
+
+好像没说她现在在玩什么职业（没玩过这个只听懂一个gunner
+
+
+syl，睡醒了就登陆，睡觉前一直在练级，可以说很适合neet了
+
+
+我自己就是因为实在没时间就没去玩pso2（悲
+
+
+-----
+
+####  T_Hb  
+##### 17270#       发表于 2021-6-14 19:14
+
+
+她过的也太爽了
+
+
+-----
+
+####  Klience  
+##### 17271#       发表于 2021-6-14 19:15
+
+
+那就是双枪了
+
+
+-----
+
+####  甘栗No.007  
+##### 17272#       发表于 2021-6-14 19:18
+
+
+所以是下水道职业吗
+
+
+-----
+
+####  专业划水人员  
+##### 17273#       发表于 2021-6-14 19:21
+
+
+那么多天狗就没有玩过的吗
+
+
+-----
+
+####  路人庚  
+##### 17274#       发表于 2021-6-14 19:22
+
+
+反正有朋友带着玩的，遇到不懂的会打电话让朋友教着玩（
+
+
+-----
+
+####  暗心舞踏  
+##### 17275#       发表于 2021-6-14 19:23
+
+
+ngs之前就在玩了吧，最近ngs刚出，大家可以来试试<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17276#       发表于 2021-6-14 19:24
+
+
+没玩过pso2 现在被同学安利玩pso2ngs gu嘛 感觉像在玩漫游一觉 在空中就没下来过 不知道pso2是不是也这样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LIPP  
+##### 17277#       发表于 2021-6-14 19:24
+
+
+pso2好，建议都来玩。不过为什么那么喜欢玩mmo却一次不播，很难不想象是朋友的任务
+
+
+-----
+
+####  T_Hb  
+##### 17278#       发表于 2021-6-14 19:25
+
+
+网游也太耗时间了，我都不敢玩
+
+
+-----
+
+####  暗心舞踏  
+##### 17279#       发表于 2021-6-14 19:26
+
+
+pso2原版的gu不算下水道但是对新手完全不友好，太难玩了，无法想象她玩原版gu的游戏体验
+
+
+-----
+
+####  路人庚  
+##### 17280#       发表于 2021-6-14 19:26
+
+
+前面说了开播前好像在刷什么东西但刷了半天没刷到，一怒之下直接关游戏开播了，好像服务器也很卡的样子，现在登游戏再试试看
+
+
+
+
+-----
+
+####  T_Hb  
+##### 17281#       发表于 2021-6-14 19:27
+
+
+这下游戏直播也被TC吞并了
+
+
+-----
+
+####  Klience  
+##### 17282#       发表于 2021-6-14 19:28
+
+
+她直播玩mmo估计会收到一堆好友请求 然后一堆人跟着你跑 然后公屏发kimo发情信息<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17283#       发表于 2021-6-14 19:29
+
+
+ 本帖最后由 路人庚 于 2021-6-14 19:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计不会给画面的，她说了游戏名字不一样（ま〇り
+
+syl，她玩的也可能不是gunner，因为我没怎么听明白游戏内容，gunner只是后面说刷什么东西的时候提过一次可能是别的话题（还有个什么force啥的
+
+
+-----
+
+####  T_Hb  
+##### 17284#       发表于 2021-6-14 19:30
+
+
+肯定没画面啊，真开了等下就能被恶心到删游戏
+
+
+-----
+
+####  甘栗No.007  
+##### 17285#       发表于 2021-6-14 19:30
+
+
+又是只听个响的游戏直播<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17286#       发表于 2021-6-14 19:32
+
+
+gu是双枪 fo是法师
+
+
+-----
+
+####  GRMeA104  
+##### 17287#       发表于 2021-6-14 19:32
+
+
+真男人就该玩ff14和伊甸零式来一场硬碰硬的较量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LIPP  
+##### 17288#       发表于 2021-6-14 19:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是我小看了mix还是高估了她的人气
+
+
+-----
+
+####  路人庚  
+##### 17289#       发表于 2021-6-14 19:37
+
+
+因为自己是多数人意见信者所以去翻了半天wiki研究哪个武器好用结果翻来翻去还是拿不定主意就萎了
+
+
+（听你咩姐聊这种话题仿佛回到了十几年前还在玩mmo的时候
+
+syl，说着说着撞上了一个野外boss还行（
+
+
+-----
+
+####  T_Hb  
+##### 17290#       发表于 2021-6-14 19:40
+
+
+这游戏节目效果这么足吗
+
+
+-----
+
+####  Klience  
+##### 17291#       发表于 2021-6-14 19:41
+
+
+与其说这游戏节目效果足 不如说这人戏太多<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17292#       发表于 2021-6-14 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开放世界大地图有副本有野外boss，算是大型mmo标配吧（应该只是因为她是戏精
+
+
+（我反正之前想玩pso2是因为有些时装蛮色的
+
+
+-----
+
+####  时间在我手中  
+##### 17293#       发表于 2021-6-14 19:46
+
+
+rnm
+
+一小时没发现开播，寄了
+
+
+-----
+
+####  T_Hb  
+##### 17294#       发表于 2021-6-14 19:48
+
+
+ 本帖最后由 T_Hb 于 2021-6-14 19:50 编辑 
+
+蹭起来了，本质没有改变，毛到了armor
+
+
+-----
+
+####  路人庚  
+##### 17295#       发表于 2021-6-14 19:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">蹭别人队伍蹭出一个一直没刷出来的armor还行
+
+
+-----
+
+####  Klience  
+##### 17296#       发表于 2021-6-14 19:51
+
+
+正常 在野外看到别人在打野外boss 我也会去蹭几下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17297#       发表于 2021-6-14 19:52
+
+
+看来就是一直打游戏，不用开pre补了，还好
+
+和野生宅宅玩游戏都要到憋尿的地步了吗<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 17298#       发表于 2021-6-14 19:53
+
+
+憋尿mmo
+
+
+-----
+
+####  T_Hb  
+##### 17299#       发表于 2021-6-14 19:53
+
+
+ 本帖最后由 T_Hb 于 2021-6-14 19:55 编辑 
+
+哈哈哈哈哈，节目效果也太足了
+
+这comment是不是有个mix模仿犯啊
+
+
+-----
+
+####  路人庚  
+##### 17300#       发表于 2021-6-14 19:53
+
+
+ 本帖最后由 路人庚 于 2021-6-14 20:19 编辑 
+
+野外挂机上厕所回来发现死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+（上面说的是那个6月刚注册的gachi恋势？推特看起来挺像个不知情本土新参的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 17301#       发表于 2021-6-14 20:11
+
+
+我说刚刚进来大吼大叫（死了
+
+
+-----
+
+####  T_Hb  
+##### 17302#       发表于 2021-6-14 20:20
+
+
+意思是必须要有一个mix,被ban了之后，本土会随机刷新一个继承这个称号<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17303#       发表于 2021-6-14 20:24
+
+
+总得要有一个。。。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 17304#       发表于 2021-6-14 20:26
+
+
+小麻开始玩NGS了？
+
+
+-----
+
+####  路人庚  
+##### 17305#       发表于 2021-6-14 20:27
+
+
+ 本帖最后由 路人庚 于 2021-6-14 20:28 编辑 
+
+反正看评论栏，这位新gachi的风格比mix和之前那位gachi还是有点区别的（
+
+
+syl，要下了，再升一级就下（
+
+
+前面说了看到有人在fanart里发了用pso2捏的mea art，感觉挺不错的于是最后下定决心去玩了（翻出这个fanart大概差不多能倒推出开始玩的时间
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  时间在我手中  
+##### 17306#       发表于 2021-6-14 20:27
+
+
+升多一级就下播，补完录播我也正好爬去睡了
+
+
+-----
+
+####  T_Hb  
+##### 17307#       发表于 2021-6-14 20:30
+
+
+这不是才刷新出来嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+在加速一下就能提升kimo度了，各有各的不同
+
+
+-----
+
+####  Ky·Kiske  
+##### 17308#       发表于 2021-6-14 20:30
+
+
+捏妈的我怕被sega猎号从来没开过PSO2的号
+
+最近看NGS还挺有感觉的。。
+
+
+-----
+
+####  T_Hb  
+##### 17309#       发表于 2021-6-14 20:31
+
+
+我朋友以前玩PSO2好像被ban过4个号，甚至他都不知道为什么
+
+
+-----
+
+####  路人庚  
+##### 17310#       发表于 2021-6-14 20:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然你咩姐推荐了大家都来玩，不过她应该是不会直播玩的（现在玩的不是直播号，感觉她也懒得再开个新号直播玩这个
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 17311#       发表于 2021-6-14 20:33
+
+
+咋说呢，玩点别的游戏也好，但是mmo直播比LOL加雀魂还无聊个一万倍的还是别播了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17312#       发表于 2021-6-14 20:33
+
+
+网游不可能直播的吧，到时候一开游戏就是一群人蹲旁边文明观猴，甚至可以不文明
+
+你咩这节目效果，我觉得还可以
+
+
+-----
+
+####  A2014720  
+##### 17313#       发表于 2021-6-14 20:36
+
+
+这游戏不是🔒ip吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+mmo像这么偶尔来来就行了，她那技术水平估计也玩不出来个啥…
+
+
+-----
+
+####  Klience  
+##### 17314#       发表于 2021-6-14 20:37
+
+
+说不定直播把你号都ban了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17315#       发表于 2021-6-14 20:37
+
+
+其实参考原神直播我觉得就差不多了
+
+
+不过mmo这东西很要播的好玩还是要看固定队队内吹比，本质吹比背景音
+
+
+-----
+
+####  T_Hb  
+##### 17316#       发表于 2021-6-14 20:38
+
+
+我明白了，还是你咩姐杂谈给力，NGS只是提供了一个素材
+
+
+-----
+
+####  yywzjsw  
+##### 17317#       发表于 2021-6-14 20:40
+
+
+看来要结束了
+
+
+-----
+
+####  路人庚  
+##### 17318#       发表于 2021-6-14 20:41
+
+
+ 本帖最后由 路人庚 于 2021-6-14 20:43 编辑 
+
+升级了，估计要无了
+
+
+话说有pso2大手子能来解释一下评论区一直在提到的1184是啥？（咩姐刚提到战斗力突破1000了，所以这就是战斗力吗？
+
+
+↓懂了
+
+
+-----
+
+####  T_Hb  
+##### 17319#       发表于 2021-6-14 20:42
+
+
+ 本帖最后由 T_Hb 于 2021-6-14 20:47 编辑 
+
+好像是战斗力不到1184，野外15级BOSS不出东西
+
+贴了张啥图，好像是掉落物，我完全看不懂（
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  路人庚  
+##### 17320#       发表于 2021-6-14 20:46
+
+
+好吧你咩姐现在玩的是法师，主服务器（主号？）上还有个双枪
+
+
+-----
+
+####  路人庚  
+##### 17321#       发表于 2021-6-14 20:47
+
+
+ 本帖最后由 路人庚 于 2021-6-14 20:49 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/14/204712i4r8sdjopyiizjji.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>718E7BDD-C9EE-4990-AEF2-FCDE4AC80885.jpeg</strong> (118.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 20:47 上传
+
+
+然后掉落了一堆剑（她吐槽自己玩啥不来啥，出的武器都是用不到的，好在跟评论区确认了这些东西可以作为素材用
+
+
+-----
+
+####  A2014720  
+##### 17322#       发表于 2021-6-14 20:53
+
+
+来点有意思的
+https://b23.tv/K3Pjeg<img src="https://p.sda1.dev/2/7c7f239fcdce4a066fef51901a8d7166/-73f3fd931ca14c87.gif" referrerpolicy="no-referrer">
+
+这种看着还挺乐的，虽然我一般不会和外人讲她的事
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|欢乐多|
+| 路人庚| + 1|3分59秒|
+
+
+查看全部评分
+
+
+-----
+
+####  T_Hb  
+##### 17323#       发表于 2021-6-14 21:00
+
+
+这人瘾上来了，还没下呢
+
+
+-----
+
+####  Ky·Kiske  
+##### 17324#       发表于 2021-6-14 21:03
+
+
+刚上手一款MMO基本都会上头的
+
+但是过一段时间就能了解到任何MMO都躲不过的虚无本质了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17325#       发表于 2021-6-14 21:04
+
+
+在研究武器升级素材啥的，有个比较高效的升级素材还是评论栏告诉她的
+
+
+-----
+
+####  T_Hb  
+##### 17326#       发表于 2021-6-14 21:04
+
+
+没办法，MMO要的就是在线时长，后期肯定越来越虚无
+
+什么小动物，这么可爱<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aisakahammer  
+##### 17327#       发表于 2021-6-14 21:04
+
+
+ 傻逼SEGA 封号不给理由的，不要浪费自己心情和时间
+
+
+-----
+
+####  clvan_  
+##### 17328#       发表于 2021-6-14 21:07
+
+
+傻逼世嘉活该混到现在半死不活
+
+
+-----
+
+####  Klience  
+##### 17329#       发表于 2021-6-14 21:13
+
+
+1184是战斗力 有些副本战力没有1184是不能参加的 主线也是 要战力达到一定才能解锁新的任务
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  Klience  
+##### 17330#       发表于 2021-6-14 21:14
+
+
+日服我记得是会ban国区ip 或者如果你id难看或者捏的人物丑好像也会把你号ban掉 但是国际服好像不会这样 反正我玩的是国际服 什么事也没发生<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 魔法使い2019| + 1|人物丑2333|
+
+
+查看全部评分
+
+
+-----
+
+####  路人庚  
+##### 17331#       发表于 2021-6-14 21:15
+
+
+半天不说话然后咕哝两声，人还在电脑前，看来是要下了顺便去回一下手机消息了（
+
+
+-----
+
+####  LIPP  
+##### 17332#       发表于 2021-6-14 21:15
+
+
+被ban基本是因为ip，只能说店大<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17333#       发表于 2021-6-14 21:17
+
+
+我也没怎么了解过 之前在b站看到相关视频是因为国内代打工作室的原因？ 我也不太清楚 反正目前我玩国际服 啥事也没有发生<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17334#       发表于 2021-6-14 21:18
+
+
+妈的 一堆武器不卖还留着干嘛 虽然一把才卖50<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17335#       发表于 2021-6-14 21:19
+
+
+日本游戏很多为了规避海外风险，都是选择一刀切直接把所有海外IP都给剁了
+
+
+-----
+
+####  鷹書たかしょ  
+##### 17336#       发表于 2021-6-14 21:20
+
+
+事玩MMO的现充（
+我玩WF都是开单人的
+
+
+-----
+
+####  路人庚  
+##### 17337#       发表于 2021-6-14 21:22
+
+
+果然有事联络，电话打过来了（
+
+
+-----
+
+####  T_Hb  
+##### 17338#       发表于 2021-6-14 21:23
+
+
+楼友们可以开始发作了
+
+
+-----
+
+####  makourisu-2  
+##### 17339#       发表于 2021-6-14 21:42
+
+
+不好意思，是我催她下播赶快去洗澡的<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17340#       发表于 2021-6-14 21:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后她又跑去打boss了（
+
+
+mea：什么事都去查wiki攻略的话就很无趣了啊，要的就是那种突然掉落后“啊！出了！”的惊喜感啊
+
+评论：名言啊
+
+评论：是这样的
+
+【过了一会】
+
+mea：所以谁能去谷歌一下？帮我查下掉落列表，加油啊大家
+
+评论：？
+
+评论：（粘贴了wiki网页）
+
+mea：不会看的，这个网页我不看的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|可以和后面一页的内容对照起来看一下.|
+| 时雨rain| + 1|难绷|
+
+
+查看全部评分
+
+
+
+
+-----
+
+####  T_Hb  
+##### 17341#       发表于 2021-6-14 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17342#       发表于 2021-6-14 21:51
+
+
+妈的 突然想到这人3天前打了lol后面lol就没有动静了 这几天怕不是在玩pso2了 几天时间战力突破1000也差不多了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肚子疼了  
+##### 17343#       发表于 2021-6-14 21:51
+
+
+攻略流只狼玩家神乐mea再参上<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17344#       发表于 2021-6-14 21:54
+
+
+这种人不挂贴吧婊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 17345#       发表于 2021-6-14 21:54
+
+
+神乐mea：为什么玩游戏？想和男人一起玩 
+
+
+-----
+
+####  路人庚  
+##### 17346#       发表于 2021-6-14 21:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">她在跟评论区的观众一起玩，我也在评论区，四舍五入就是跟我在一起玩
+
+
+-----
+
+####  Klience  
+##### 17347#       发表于 2021-6-14 22:00
+
+
+有点好奇这人人物会捏成什么样子 总不可能是辣妹吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 17348#       发表于 2021-6-14 22:01
+
+
+我把我妈送回去了麻还在玩
+
+
+-----
+
+####  T_Hb  
+##### 17349#       发表于 2021-6-14 22:02
+
+
+上瘾的很，之前还说升1级就下
+
+明天的预定， NGS<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17350#       发表于 2021-6-14 22:02
+
+
+前面提过刚开始玩的时候捏了几个小时，正要保存的时候游戏崩溃了然后萎了一天（估计之后捏的人物会简单一些
+
+
+-----
+
+####  肚子疼了  
+##### 17351#       发表于 2021-6-14 22:02
+
+
+已经是网瘾阿姨了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17352#       发表于 2021-6-14 22:03
+
+
+mea：诶？！23点了？？诶？？
+
+评论区：时间小偷啊
+
+评论区：明天有什么预定吗？
+
+mea：啊啊啊。。。啊？明天？明天也NGS吧？
+
+
+下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17353#       发表于 2021-6-14 22:05
+
+
+明天NGS 指明天不播 玩NGS一整天<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17354#       发表于 2021-6-14 22:06
+
+
+有网瘾就得治
+
+
+-----
+
+####  T_Hb  
+##### 17355#       发表于 2021-6-14 22:07
+
+
+该电电了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17356#       发表于 2021-6-14 22:08
+
+
+玩NGS一整天可以开tc直播一整天吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17357#       发表于 2021-6-14 22:08
+
+
+那她顶得住 我真的顶不住
+
+
+-----
+
+####  肚子疼了  
+##### 17358#       发表于 2021-6-14 22:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51600483&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-14 22:07</a>
+
+该电电了</blockquote>
+召唤楼里的那啥啥杨永信，亲，该你上场了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 17359#       发表于 2021-6-14 22:09
+
+
+社畜上班时间开播一整天是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗心舞踏  
+##### 17360#       发表于 2021-6-14 22:18
+
+
+这废人游戏除了站街暖暖就是不停的刷刷刷，刚开服更新还早，我不信她不腻
+
+
+-----
+
+####  T_Hb  
+##### 17361#       发表于 2021-6-14 22:20
+
+
+几天的快乐也是快乐，等这个游戏腻了就弃了
+
+
+-----
+
+####  Klience  
+##### 17362#       发表于 2021-6-14 22:21
+
+
+腻了就换个游戏玩呗 等更新又回来玩 反正她玩游戏来来回回都是那几样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17363#       发表于 2021-6-14 22:23
+
+
+我其实也挺好奇她的娱乐活动到底是啥，也不是什么游戏宅
+
+
+-----
+
+####  甘栗No.007  
+##### 17364#       发表于 2021-6-14 22:25
+
+
+宅家里不玩游戏不看电影能干啥？总不能真的去炒股吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+区别在于总是能找到免费陪玩？
+
+
+-----
+
+####  时雨rain  
+##### 17365#       发表于 2021-6-14 22:26
+
+
+游戏里钓男人罢了，游戏哪有（）好玩<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17366#       发表于 2021-6-14 22:27
+
+
+[https://www.bilibili.com/video/BV1nU4y157Wq](https://www.bilibili.com/video/BV1nU4y157Wq)
+
+【神乐Mea】不知道会发生什么！无法预测的对谈联动【白雪深白／NoriPro所属】
+
+一年前6月份mea跟白雪的联动全熟（应该是被白雪组的人龙出来了
+
+<img src="https://img.saraba1st.com/forum/202106/14/222708h10ua07vz0n5xp30.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (28.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 22:27 上传
+
+
+时至今日依然可以成为一些问题的答案（有兴趣的可以康康
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  rosevalley46  
+##### 17367#       发表于 2021-6-14 22:42
+
+
+major看完了我回来看吊人了
+
+好像错过了好几次歌回<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17368#       发表于 2021-6-14 22:43
+
+
+也没几次，最近播的不算多
+
+
+我状态也出问题了，这两天做什么都没干劲
+
+
+-----
+
+####  汇聚群光  
+##### 17369#       发表于 2021-6-14 23:12
+
+
+上礼拜mea一共播了4次歌回，放到最近来看已经可以说很勤快了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+至于她平时的娱乐活动，无非是她在直播中说过的那些：玩游戏、看漫画、看BL本、看动漫、看电影，或许还会看成人影片？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+稍微现充一点的活动就是和朋友聊天，疫情没那么严重的时候还会和朋友去ktv和约饭，自己一个人的话就去小钢珠店打小钢珠<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17370#       发表于 2021-6-14 23:16
+
+
+呜呜呜，羡慕了
+
+
+
+
+-----
+
+####  路人庚  
+##### 17371#       发表于 2021-6-14 23:39
+
+
+去年跟白雪这个联动也是一直觉得很不错的，它好就好在讲清楚了你咩姐的核心观点跟核心诉求
+
+不过可惜咩姐之后很少聊这类话题了（这方面她是真的很少车轱辘
+
+姑且截两个图自用（
+
+
+<img src="https://img.saraba1st.com/forum/202106/14/233634nclaclcu8cellltv.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (378.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 23:36 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/14/233637ztd1i868t4tit6t1.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (650.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 23:36 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| iuhehc| + 1|太zqsg了8|
+| T_Hb| + 1|真好|
+
+
+查看全部评分
+
+
+-----
+
+####  T_Hb  
+##### 17372#       发表于 2021-6-14 23:49
+
+
+真情实感聊不了了，毕竟人类真的无法互相理解
+
+
+-----
+
+####  A2014720  
+##### 17373#       发表于 2021-6-14 23:53
+
+
+她懂个j8，混到今天不是没有理由的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Joffre✔  
+##### 17374#       发表于 2021-6-14 23:55
+
+
+我觉得她的理解很正确，同行以及粉丝了解到的都是神乐mea这个角色。虽然一直叫小麻小麻，但是真实的小麻不说粉丝，那些常联动甚至线下见过的v都远不能算了解。粉丝和同行喜欢的，一直都只能是那个虚拟角色神乐mea罢了。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 雪风utopia| + 1|支持zqsg|
+
+
+查看全部评分
+
+
+-----
+
+####  时雨rain  
+##### 17375#       发表于 2021-6-14 23:56
+
+
+做最真实的自己是吧，遵守这个信条怪不得做出那些神操作，毒打还是没受够啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17376#       发表于 2021-6-14 23:59
+
+
+也正是这个联动前面一段，她也说过她直播聊的很多话题都是身边的故事再夸大之后说出来的，所以本质其实还是创作品。
+
+
+至于混不混，因为她的核心诉求就是“什么都不干，每天只要打游戏、吃饭、发呆就好”，所以一切会对这个目标造成“阻挠”的东西都是她想避免的。当然根据长期观察下来，这个“阻挠”既包括正向的努力，也包括反向的炎上（
+
+
+-----
+
+####  thisisaspider  
+##### 17377#       发表于 2021-6-14 23:59
+
+
+整天毒打毒打的 都以为自己是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+你们活着这么难吗？做自己就要毒打？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17378#       发表于 2021-6-15 00:02
+
+
+毕竟中国传统教育就是“吃得苦中苦，方为人上人”啊，一个人生终极目标就是摸鱼的人怎么能好的起来呢（当然世界上很多其他国家的人生目标真就是这样的，不单指你咩姐
+
+
+-----
+
+####  A2014720  
+##### 17379#       发表于 2021-6-15 00:02
+
+
+神乐mea:我好想做湊阿夸的狗啊
+
+对于这种批人三寄加一就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17380#       发表于 2021-6-15 00:04
+
+
+怎么又无端转进凑阿库娅小姐？贴贴人能不能赶紧guna
+
+
+-----
+
+####  T_Hb  
+##### 17381#       发表于 2021-6-15 00:04
+
+
+说实话我有点看不懂在聊啥了
+
+
+-----
+
+####  clvan_  
+##### 17382#       发表于 2021-6-15 00:05
+
+
+你麻这样不才更对味吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 17383#       发表于 2021-6-15 00:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他可能是想黑屁你麻先前的操作明面上表现出来的这仿佛被凛子pua一般的憨憨劲罢了
+
+
+-----
+
+####  路人庚  
+##### 17384#       发表于 2021-6-15 00:07
+
+
+事业民看不惯你咩姐“摸”，（暗黑）贴贴人看不惯你咩姐不像凑阿库娅小姐一样努力登上金盾大舞台甘做“挂件”，都是脑抽发病罢了
+
+
+-----
+
+####  雪风utopia  
+##### 17385#       发表于 2021-6-15 00:07
+
+
+连体人能不能去④啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17386#       发表于 2021-6-15 00:09
+
+
+老子看到神代小姐mea说的话破防了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不过这也是一年前的了，我看她现在也是变了不少，嘻嘻
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚|-1|傻逼又开始犯病了？|
+
+
+查看全部评分
+
+
+-----
+
+####  甘栗No.007  
+##### 17387#       发表于 2021-6-15 00:10
+
+
+想呆在家里混吃等死，又不想脱离社会渴望外出打工
+睡一觉又是一个新想法新主意了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17388#       发表于 2021-6-15 00:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51601965&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-6-15 00:09</a>
+
+老子看到神代小姐mea说的话破防了
+
+
+不过这也是一年前的了，我看她现在也是变了不少，嘻嘻 ...</blockquote>
+不会说人话自己爬去黑泥楼自己发病去，傻逼东西
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|斯密马赛呐|
+
+
+查看全部评分
+
+
+-----
+
+####  clvan_  
+##### 17389#       发表于 2021-6-15 00:13
+
+
+人又不是行为只能被一个思维模式框死的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时雨rain  
+##### 17390#       发表于 2021-6-15 00:17
+
+
+Yhm不就是想一出是一出又做一出吗，刚成年的小麻形状应该还没固定，还可以变成另一个形状的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17391#       发表于 2021-6-15 00:20
+
+
+ 本帖最后由 T_Hb 于 2021-6-15 00:21 编辑 
+
+人毕竟是社交动物，渴望得到别人认可。
+“混吃等死”可能是天生惰性，也可能是难以实现自我；但是又不可能脱离社会，而且也不是被大多数人认可的生存方式，只能说就是这么矛盾。
+
+
+-----
+
+####  路人庚  
+##### 17392#       发表于 2021-6-15 00:40
+
+
+这说的就跟国内最近的“躺平”思潮挺像了，不过在低欲望社会持续了十几二十年的立本做个躺平族的阻力也许会比国内小很多（
+
+
+不过说到底还是受父母的影响最大（
+
+
+-----
+
+####  雪风utopia  
+##### 17393#       发表于 2021-6-15 00:42
+
+
+躺平的小麻一定会享受野男人的狂暴鸿儒吧<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17394#       发表于 2021-6-15 00:48
+
+
+唉，一天的疲劳又增加了
+
+
+-----
+
+####  Cushaw  
+##### 17395#       发表于 2021-6-15 01:01
+
+
+ 本帖最后由 Cushaw 于 2021-6-15 01:23 编辑 
+
+你可以觉得是zqsg，但是我建议别太当真<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，你麻不止在男v那里是个梗，在苔姨和兔姨这里差不多也是个梗罢了，之前希望她跟着苔姨兔姨学学企划能力，看来是不会不学不练了，别到时候车轱辘玩腻了当成破抹布扔掉的时候大呼上当就行<img src="https://static.saraba1st.com/image/smiley/face2017/215.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17396#       发表于 2021-6-15 01:13
+
+
+这都是一年前的话了，说到底是个节目效果，反正我眼里这一套套不到现在的她身上去，这么想躺平还做这虚拟握手女奴干啥啊，哦现在被人打到tc防空洞不敢出来了也是没办法的事呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+毕竟独角兽贝贝人b限民闹腾上天了她也只能用这一套告诉自己与她无关不是
+我就看你直播图一乐，天狗把你当成打手冲的对象又j8关你什么事啊，天天搁那五元盾，你这么搞就舒服了？我也只想躺平看个直播啊
+
+
+-----
+
+####  ashero  
+##### 17397#       发表于 2021-6-15 01:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602662&amp;ptid=1973472" target="_blank">A2014720 发表于 2021-6-15 01:13</a>
+
+这都是一年前的话了，说到底是个节目效果，反正我眼里这一套套不到现在的她身上去，这么想躺平还做这虚拟握 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">你多少沾点 她接了悠星工商要和人组队的 
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| A2014720| + 1|男女搭配干活不累是吧|
+
+
+查看全部评分
+
+
+-----
+
+####  GRMeA104  
+##### 17398#       发表于 2021-6-15 01:31
+
+
+舞元这个可能是麻兔苔想在不敢轻易搞男女cp的环境下推出喜剧人迫害效果来收割流量,毕竟敢这么搞的同类竞品太少了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+但是你麻的用力表演和旁边人的拱火就离谱,突出一个标题封面劝退效果强ptsd留存久,不过光靠别人频道的大量切片也能躺着分羹的小麻大概是不会想那么多了,或者自始至终就没考虑过为啥<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+实际上这边粉丝群体存在的问题也不光这一个不是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kenjjj  
+##### 17399#       发表于 2021-6-15 01:36
+
+
+楼上是SB
+
+
+-----
+
+####  Dualist彩  
+##### 17400#       发表于 2021-6-15 01:50
+
+
+404里当小丑，cn又化身你juan的黑暗骑士是吧，卡古拉咩啊你好强大<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  时之虫  
+##### 17401#       发表于 2021-6-15 01:57
+
+
+你麻的小脑瓜想的过来这方面吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 17402#       发表于 2021-6-15 02:01
+
+
+bsyl，社畜要睡觉了，麻姨如果在视奸的话这首歌送给你<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+分享Neck Deep的单曲《Lowlife》: https://y.music.163.com/m/song/1448162422/?uct=NesX1jYAUxi2NOyOR2esJA%3D%3D&amp;app_version=8.2.20 (来自@网易云音乐)
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  雪风utopia  
+##### 17403#       发表于 2021-6-15 02:04
+
+
+就算小麻整舞咩烂活我也会原谅你的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  掉头学姐  
+##### 17404#       发表于 2021-6-15 07:25
+
+
+小麻真离谱，我的核心理想是高效摸鱼，咩这么好的资源不会高效摸鱼真是令我又羡又恨
+
+
+-----
+
+####  往世雷书  
+##### 17405#       发表于 2021-6-15 07:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602561&amp;ptid=1973472" target="_blank">Cushaw 发表于 2021-6-15 01:01</a>
+你可以觉得是zqsg，但是我建议别太当真
+
+syl，你麻不止在男v那里是个梗，在苔姨和兔姨这里差不多也是 ...</blockquote>
+贷款黑屁环节来了，确实是有人有钱就演没钱就跑，但是你说的这两人还没退化到这种地步呢不必先急着说出自己内心期盼吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  D麦林  
+##### 17406#       发表于 2021-6-15 07:50
+
+
+ 本帖最后由 D麦林 于 2021-6-15 08:16 编辑 
+
+那不提了 有点上头<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17407#       发表于 2021-6-15 07:58
+
+
+小圈子的事能去你们的群里聊吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17408#       发表于 2021-6-15 08:16
+
+
+妈的 这投票 看到个把一星防具升满直接血压拉满<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17409#       发表于 2021-6-15 08:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602798&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-6-15 01:31</a>
+舞元这个可能是麻兔苔想在不敢轻易搞男女cp的环境下推出喜剧人迫害效果来收割流量,毕竟敢这么搞的同类竞品 ...</blockquote>
+别代表别人了，傻逼贴贴人萌萌人还是赶紧死了算了。
+
+
+                                           

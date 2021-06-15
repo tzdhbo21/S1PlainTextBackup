@@ -8919,3 +8919,16 @@ X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀
 
 
                                                  
+
+-----
+
+####  utakata  
+##### 636#       发表于 2021-6-15 08:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51591982&amp;ptid=1985265" target="_blank">YoumuChan 发表于 2021-6-14 10:41</a>
+ 据说wf1000xm4的广告里的手机额头上没有摄像头预示着1iv会用屏下前摄方案?</blockquote>
+更可能是TVC后期偷懒了
+
+
+                                                 
