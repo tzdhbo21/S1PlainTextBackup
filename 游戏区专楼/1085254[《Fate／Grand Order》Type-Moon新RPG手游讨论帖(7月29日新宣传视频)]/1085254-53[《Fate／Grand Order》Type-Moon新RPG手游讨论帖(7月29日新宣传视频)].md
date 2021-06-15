@@ -14434,3 +14434,72 @@ AB同时出现，是不是可以完全证明A是B的因呢？当然不能，对�
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79196#       发表于 2021-6-15 14:47
+
+
+ 本帖最后由 zakki 于 2021-6-15 14:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51605267&amp;ptid=1085254" target="_blank">新吾 发表于 2021-6-15 10:12</a>
+
+好多人啊
+
+
+结婚这个排除蘑菇的恶趣味，我打赌下半章肯定会用到咕哒身上，咕哒跟马修穿着西服婚纱，在礼堂里 ...</blockquote>
+流水拉可还行，虽然我也巴不得fgo2.0就结束，但有一说一，今年一月流水还是搞了八个亿，然后其他月份躺着都有每个月2亿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  UNISONIA  
+##### 79197#       发表于 2021-6-15 15:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51609561&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 14:47</a>
+
+流水拉可还行，虽然我也巴不得fgo2.0就结束，但有一说一，今年一月流水还是搞了八个亿，然后其他月份躺着 ...</blockquote>
+严格来说只能说现在的利润率垃，DW自己去年的公开和今年索索的投资者文件都在说这个，手游运营的成本和宣传费用水涨船高也是事实
+
+
+-----
+
+####  zakki  
+##### 79198#       发表于 2021-6-15 15:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51609861&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-6-15 15:06</a>
+
+严格来说只能说现在的利润率垃，DW自己去年的公开和今年索索的投资者文件都在说这个，手游运营的成本和宣 ...</blockquote>
+成本高吗，起码我觉得开发成本倒是不高，广告费不好说但最近也没啥宣传。如果fgo这种低成本的游戏利润率都拉的话，那马娘那种不是利润率更低吗，开发成本和宣传成本都比fgo更高，还有版权成本
+
+
+-----
+
+####  UNISONIA  
+##### 79199#       发表于 2021-6-15 15:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51609944&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 15:12</a>
+
+成本高吗，起码我觉得开发成本倒是不高，广告费不好说但最近也没啥宣传。如果fgo这种低成本的游戏利润率都 ...</blockquote>
+码农和运维整体行情还是在缓慢地涨，疫情和团队气氛导致工作效率低下，东京圈的服务器开销你自己架过服务就知道是个什么情况（盐那时候还想过一些办法减少开支，虽然后面因为效果不好又换回来了）
+
+
+宣传有最大而且最容易发现的两块东西，跟传统媒体的往来是要钱砸的，社交媒体的热度操纵也同样是要大量金钱的。小投资人这几年挺诟病和质疑索索在这块的资金利用效率的
+
+
+-----
+
+####  zakki  
+##### 79200#       发表于 2021-6-15 15:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51610123&amp;ptid=1085254" target="_blank">UNISONIA 发表于 2021-6-15 15:23</a>
+
+码农和运维整体行情还是在缓慢地涨，疫情和团队气氛导致工作效率低下，东京圈的服务器开销你自己架过服务 ...</blockquote>
+听你这么说更加坚定了我认为2.0后fgo就会结束的想法，6,7年的游戏用户新鲜度和曝光度也不断降低，真没必要一直耗下去不管是对型月还是dw和索尼
+
+
+                                                 
