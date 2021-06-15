@@ -305,3 +305,54 @@ F篇结尾明日玲都带着索菲去跟谢丽雅表白了，还单恋
 
 
                                                  
+
+-----
+
+####  金子一马  
+##### 1520#       发表于 2021-6-15 18:03
+
+
+谁知道限定版的前作bgm包含了哪些
+
+
+-----
+
+####  laoz  
+##### 1521#       发表于 2021-6-15 18:07
+
+
+<blockquote>金子一马 发表于 2021-6-15 18:03
+谁知道限定版的前作bgm包含了哪些</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/15/180718tobut3o55b263mmz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210615_180529.jpg</strong> (39.38 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-6-15 18:07 上传
+
+
+-----
+
+####  godless2020  
+##### 1522#       发表于 2021-6-15 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51612426&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-15 18:07</a></blockquote>
+这个选集可以啊...............
+
+
+-----
+
+####  金子一马  
+##### 1523#       发表于 2021-6-15 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51612426&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-15 18:07</a></blockquote>
+谢谢，不知道每作的战斗bgm是不是都有收录，包括boss战的
+
+
+                                                 

@@ -14633,3 +14633,28 @@ AB同时出现，是不是可以完全证明A是B的因呢？当然不能，对�
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79211#       发表于 2021-6-15 17:34
+
+
+ 本帖最后由 zakki 于 2021-6-15 18:25 编辑 
+
+说实话要不是9节最后马修恢复了记忆，我还想奶马修在2.6最后主线关卡里站对面呢，失去记忆之下不断在2.6的经历让马修选择站在异闻带一方与想剪定异闻带的迦勒底方为敌，这才带劲<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79212#       发表于 2021-6-15 17:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51611946&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 17:34</a>
+
+说实话要不是9节最后马修恢复了记忆，我还想奶马修在2.6最后主线关卡里站对面呢，这才带劲 ...</blockquote>
+“叫你打宙斯的时候当内鬼”<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+                                                 
