@@ -356,3 +356,17 @@ F篇结尾明日玲都带着索菲去跟谢丽雅表白了，还单恋
 
 
                                                  
+
+-----
+
+####  laoz  
+##### 1524#       发表于 2021-6-15 19:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51613079&amp;ptid=1860328" target="_blank">金子一马 发表于 2021-6-15 18:55</a>
+
+谢谢，不知道每作的战斗bgm是不是都有收录，包括boss战的</blockquote>
+没细说，还要等后续情报
+
+
+                                                 

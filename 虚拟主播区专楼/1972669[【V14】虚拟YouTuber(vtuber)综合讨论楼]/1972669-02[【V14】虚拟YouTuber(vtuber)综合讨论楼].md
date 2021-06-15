@@ -12293,3 +12293,136 @@ btw，holo真想回旋现在也不是好时机
 
 
                                                  
+
+-----
+
+####  kikiwalu  
+##### 2469#       发表于 2021-6-15 18:37
+
+
+一堆臊皮里免费的评论高挂热评第一<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cckuku  
+##### 2470#       发表于 2021-6-15 18:43
+
+
+为什么免指导40个赞的评论可以排在100赞评论的上面啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 2471#       发表于 2021-6-15 18:47
+
+
+说起来我十分好奇侦探死了这番的后续走向
+
+夏色吹雪+狗妈
+
+简直是指定团建地点
+
+叔叔到底敢不敢买
+
+
+-----
+
+####  IDIDIDID  
+##### 2472#       发表于 2021-6-15 18:48
+
+
+敢叫日月换新天是好事，凭什么要听V老嗨的，这样新人永远爬不出来了。
+
+
+-----
+
+####  IDIDIDID  
+##### 2473#       发表于 2021-6-15 18:49
+
+
+还有另一部番是holo+爱衣的，更劲爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  小小雪空  
+##### 2474#       发表于 2021-6-15 18:50
+
+
+胜利，然后支配！​至于过程，那都不重要！
+
+
+新时代人人均Dio，太可怕了×
+
+
+-----
+
+####  IDIDIDID  
+##### 2475#       发表于 2021-6-15 18:53
+
+
+AU给V圈做出的最大贡献就是把表面一团和气的虚伪面纱给撕掉了，就看不惯日本人忖度这套。
+
+
+-----
+
+####  admentus  
+##### 2476#       发表于 2021-6-15 19:00
+
+
+日v观众要是早点认识到自己和a➗不是一路人，明白自己是海外亚文化爱好者小圈子的事实和新时代割席，守好一亩三分地也还是能打下去的
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 2477#       发表于 2021-6-15 19:00
+
+
+别说v圈了，整个简体中文互联网最近的风气都变了
+
+
+-----
+
+####  stygian  
+##### 2478#       发表于 2021-6-15 19:00
+
+
+贡献还行，这理论和SG/抗吧锅吧等粪坑为中国电竞做出巨大贡献如出一辙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  寒星  
+##### 2479#       发表于 2021-6-15 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51612254&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-6-15 17:55</a>
+知名Vup歌姬@富士葵Official 正式入驻bilibili啦！同时，她将为bilibili的粉丝带来自己的生日纪念暨二周年 ...</blockquote>
+这票能卖几张啊，突破两位数就算胜利？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 2480#       发表于 2021-6-15 19:08
+
+
+命的偏旁是口啊，我还以为是人呢
+这皇女是2434智商担当啊<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  死体残留  
+##### 2481#       发表于 2021-6-15 19:24
+
+
+百度命的部首人和口说法都有诶，应该日本那边答题以口为准吧
+
+
+                                                 
