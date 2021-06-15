@@ -2652,3 +2652,18 @@ ns上糊吗，糊就买pc了
 
 
                                                  
+
+-----
+
+####  Dgnic_  
+##### 195#       发表于 2021-6-15 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51606733&amp;ptid=1992654" target="_blank">abc12354aa 发表于 2021-6-15 11:43</a>
+深空星在地表探索的时候会突然漂浮到宇宙里，我没敢仔细看
+
+—— 来自 samsung SM-G9750, Android 11上的 ...</blockquote>
+那是因为深巨星有很多气旋，这些气旋会把你带到太空里面。
+
+
+                                                 

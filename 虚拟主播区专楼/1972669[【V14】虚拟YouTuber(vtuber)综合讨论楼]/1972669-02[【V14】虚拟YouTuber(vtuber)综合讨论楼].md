@@ -11766,3 +11766,122 @@ yuya现在还在老鼠台播，韩语听不懂
 
 
                                                  
+
+-----
+
+####  poipanchao  
+##### 2430#       发表于 2021-6-15 12:00
+
+
+ 本帖最后由 poipanchao 于 2021-6-15 12:03 编辑 
+
+为什么不能是火畜反对尊妈出去抛头露面呢
+纯爱火畜
+
+
+
+
+-----
+
+####  qq845629713  
+##### 2431#       发表于 2021-6-15 12:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer"> king知道搞事的粉丝不止自己的火畜，还有其他男v的粉丝，也许真的护短心切，生气了
+
+
+-----
+
+####  FCCHua  
+##### 2432#       发表于 2021-6-15 12:15
+
+
+ 本帖最后由 FCCHua 于 2021-6-15 12:16 编辑 
+
+惨 尊妈 惨<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+有些粉丝也太自我意识过剩了
+
+
+-----
+
+####  雪风utopia  
+##### 2433#       发表于 2021-6-15 12:16
+
+
+可怜的尊妈<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ppf  
+##### 2434#       发表于 2021-6-15 12:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">日推女粉实在沾点
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  dybang  
+##### 2435#       发表于 2021-6-15 12:32
+
+
+日本人不就这德性<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">平时不敢当面只敢黑屁，出事了一窝蜂打落水狗，都憋出问题了吧
+
+
+-----
+
+####  asdhai  
+##### 2436#       发表于 2021-6-15 12:36
+
+
+怎么还在烧
+
+
+-----
+
+####  winda  
+##### 2437#       发表于 2021-6-15 12:38
+
+
+ 本帖最后由 winda 于 2021-6-15 12:39 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/15/123717bpqcmg04a6apeies.jpg" referrerpolicy="no-referrer">
+
+
+<strong>picture281131.jpg</strong> (43.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-6-15 12:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/15/123723tu5hwzzponhyqpnn.png" referrerpolicy="no-referrer">
+
+
+<strong>picture31271.png</strong> (52.07 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-6-15 12:37 上传
+
+
+ <blockquote>Vtuber にじさんじ公式のPDFに登場してるライバーがしれっと修正されてて笑うｗｗ←これはこれでよくわからん人選だな</blockquote>
+另外还有这事<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">露皇和尊妹换成了修女和油，《权利变更》
+
+
+-----
+
+####  十四洲  
+##### 2438#       发表于 2021-6-15 12:40
+
+
+19组—20组
+
+
+                                                
