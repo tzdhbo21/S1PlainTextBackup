@@ -15185,3 +15185,17 @@ ps：其实俺寻思，到时候咕哒被分配为特殊阶然后作为战斗员
 
 
                                                  
+
+-----
+
+####  白金口袋  
+##### 79253#       发表于 2021-6-16 02:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614963&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 07:37</a>
+
+不是主要人物死不死倒无所谓了，总不能让他当新所长吧。现在死旗插满的就是老福，小芬奇和所长三个人。不 ...</blockquote>
+也可以把思维逆转过来，出动的全员存活了，留下的紫苑被刀了/跳反了，紫苑挂掉就可以升英灵/缝合个女神进卡池骗氪，还能营造一波老家二次被偷在最关键的时刻重回流离失所状态的危机感，完美<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
