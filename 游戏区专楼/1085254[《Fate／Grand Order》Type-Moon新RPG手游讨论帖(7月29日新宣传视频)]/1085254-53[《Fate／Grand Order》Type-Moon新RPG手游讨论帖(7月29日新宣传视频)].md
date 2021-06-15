@@ -14336,3 +14336,101 @@ AB同时出现，是不是可以完全证明A是B的因呢？当然不能，对�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79188#       发表于 2021-6-15 13:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51607152&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-15 12:07</a>
+
+所以说，公告啊
+
+说那打主线的任务要开好几波，总共加起来给多少东西
+
+然后现在开了第一波后面的断了</blockquote>
+公告显示明天开第二波。
+
+
+-----
+
+####  areklose  
+##### 79189#       发表于 2021-6-15 13:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51606879&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-15 11:52</a>
+
+看到好几个人提这个了，到底哪里有说过送60石啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看我上面回复截图
+
+
+-----
+
+####  里村紅葉  
+##### 79190#       发表于 2021-6-15 13:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51608608&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-15 13:43</a>
+
+看我上面回复截图</blockquote>
+好了，我可以通知我基友把游戏删了，他听说日服送石头特地下回来的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79191#       发表于 2021-6-15 13:57
+
+
+<blockquote>qixinno2 发表于 2021-6-15 12:34
+原来是那玩意 那我凉了 妖精高文三宝妖精崔二宝还是没有摩根</blockquote>
+明天开第二波
+
+
+-----
+
+####  qixinno2  
+##### 79192#       发表于 2021-6-15 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51608784&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-15 13:57</a>
+
+明天开第二波</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉今年日服应该抽不到五星了的样子
+
+
+-----
+
+####  白夜羽  
+##### 79193#       发表于 2021-6-15 14:27
+
+
+啊？原来是这么个60石啊，我还以为啥都不干纯白送60<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79194#       发表于 2021-6-15 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51609002&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-15 14:13</a>
+
+感觉今年日服应该抽不到五星了的样子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是还有半年吗
+
+
+-----
+
+####  qixinno2  
+##### 79195#       发表于 2021-6-15 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51609362&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-15 14:33</a>
+
+不是还有半年吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">作为一个石不过三的非洲人今年已经出了六个五星了 之前一年都没出过这么多五星
+
+
+                                                 
