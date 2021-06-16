@@ -11251,3 +11251,125 @@ gbr现在不是有个推特小号么
 
 
                                                 
+
+-----
+
+####  路人庚  
+##### 17496#       发表于 2021-6-16 22:33
+
+
+郡道：我不能接受舞元的，真的不行
+
+舞元：被郡道拒绝总感觉好火大啊
+
+郡道：因舞元〇交下手啊
+
+郡道：啊，对不起mea
+
+mea：完全没关系，我还想听听
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好像听到了这么一段，不知道听错了没（
+
+
+-----
+
+####  T_Hb  
+##### 17497#       发表于 2021-6-16 22:47
+
+
+ 本帖最后由 T_Hb 于 2021-6-16 23:06 编辑 
+
+现在好多了，没那么多密集地雷 吼叫和黄段子了
+
+syl 明天22点黄兔子 郡道 咩+某个人继续练习麻将
+
+
+-----
+
+####  GRMeA104  
+##### 17498#       发表于 2021-6-16 23:13
+
+
+参加麻将工商活动折腾这么久,行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17499#       发表于 2021-6-16 23:15
+
+
+姑且也算是个比赛，比赛前多借着这个由头多播点也是正常（而且你咩姐也有个在比赛中见到爱酱的小想法
+
+
+-----
+
+####  T_Hb  
+##### 17500#       发表于 2021-6-16 23:15
+
+
+我也不知道她咋想的，开个台留个录像，恰点钱不好吗<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 17501#       发表于 2021-6-16 23:15
+
+
+这前半段给我观感真不行，明天还这样yygq就不看了，我老玻璃心了<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17502#       发表于 2021-6-16 23:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">错过了前半段，看样子郡道给你咩姐扔了不少雷啊（之后再补一下好了
+
+
+-----
+
+####  GRMeA104  
+##### 17503#       发表于 2021-6-16 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51631887&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-16 23:15</a>
+
+我也不知道她咋想的，开个台留个录像，恰点钱不好吗</blockquote>
+开台留录像是指星期天那场?<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+直播的时候被其他窗10倍杀,不过后面录像的播放涨回来得很快,看来那边人就好这口倒贴营业<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17504#       发表于 2021-6-16 23:22
+
+
+ 本帖最后由 T_Hb 于 2021-6-16 23:38 编辑 
+
+她现在频道里这几个月也就那一个录像，一个翻唱，比空空如也要好那么一点点<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 17505#       发表于 2021-6-16 23:31
+
+
+对谷歌搜索神楽めあ收入会出来什么产生了兴趣，然后看到了相关搜索栏<img src="https://p.sda1.dev/2/65ab25b8055713570b5ca6f6c121fa9c/S10616-23300354.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 17506#       发表于 2021-6-16 23:34
+
+
+不妙啊，绊爱好像身体出问题了
+
+
+                                                 

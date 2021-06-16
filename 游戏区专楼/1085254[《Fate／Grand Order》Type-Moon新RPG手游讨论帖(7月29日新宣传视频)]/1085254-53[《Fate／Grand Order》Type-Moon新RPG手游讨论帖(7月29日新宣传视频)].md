@@ -15267,3 +15267,14 @@ ps：其实俺寻思，到时候咕哒被分配为特殊阶然后作为战斗员
 
 
                                                  
+
+-----
+
+####  rooarr  
+##### 79259#       发表于 2021-6-16 23:11
+
+
+今天的新任务果然要你打2.6<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
