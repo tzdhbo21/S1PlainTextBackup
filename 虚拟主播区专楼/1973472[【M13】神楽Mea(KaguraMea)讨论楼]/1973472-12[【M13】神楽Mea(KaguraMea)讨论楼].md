@@ -10605,3 +10605,41 @@ syl 来找我吧<img src="https://static.saraba1st.com/image/smiley/face2017/073
 
 
                                                 
+
+-----
+
+####  A2014720  
+##### 17434#       发表于 2021-6-16 10:49
+
+
+pso2什么时候关服啊
+
+
+-----
+
+####  时间在我手中  
+##### 17435#       发表于 2021-6-16 10:58
+
+
+玩呗，昨晚到家直接昏睡三小时，又是什么都没做的一天，我和咩都是废人了捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17436#       发表于 2021-6-16 11:06
+
+
+pso2关服？ 你想多了 ngs冬季的时候有第一次大更新 这才刚刚开始 怕不是这人之后沉迷ngs了 直播唱歌打卡 tc估计直播玩ngs但是不放画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17437#       发表于 2021-6-16 11:09
+
+
+我现在就是lol拿个首胜 活动任务做完然后跑去肝ngs做任务 做活动 这游戏和朋友玩真的可以 又能蹭野队 估计小麻的车队都跑去玩ngs了 连lol都不见几个人玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

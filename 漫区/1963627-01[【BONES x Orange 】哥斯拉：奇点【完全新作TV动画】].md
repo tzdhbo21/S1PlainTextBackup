@@ -11327,3 +11327,23 @@ magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20
 
 
                                                  
+
+-----
+
+####  坂上菠萝  
+##### 871#       发表于 2021-6-16 11:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51601829&amp;ptid=1963627" target="_blank">ZZonFire 发表于 2021-6-14 23:57</a>
+
+说实话这番后面我全都在快进看怪兽，工科研究生不太懂他们的思维
+
+
+—— 来自 HUAWEI  ...</blockquote>
+其实可以不用纠结，马上就完结了。
+
+
+对普通观众来说本片（包括其他片）大部分奇妙术语都是麦高芬而已，注意力还是在怪兽上。
+
+
+                                                 
