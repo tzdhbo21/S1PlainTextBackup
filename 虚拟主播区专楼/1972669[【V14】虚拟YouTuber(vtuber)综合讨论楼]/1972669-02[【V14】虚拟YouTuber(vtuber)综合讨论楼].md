@@ -13188,3 +13188,51 @@ Gbr这跟儿，估计是有点矮，不过还是可爱捏
 
 
                                                 
+
+-----
+
+####  FCCHua  
+##### 2553#       发表于 2021-6-16 14:44
+
+
+开始颜值斗虫了吗？<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 2554#       发表于 2021-6-16 14:53
+
+
+想看赤おば的颜出，又会唱歌又会化妆，一定是个美女吧
+
+
+-----
+
+####  percy1234  
+##### 2555#       发表于 2021-6-16 14:57
+
+
+白激动了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 2556#       发表于 2021-6-16 15:02
+
+
+虽然都没真相，但我相信棒妹的整容实力
+斗虫投bora，yuya一票
+
+
+-----
+
+####  IDIDIDID  
+##### 2557#       发表于 2021-6-16 15:15
+
+
+说白了还是要一个神秘感2稀有属性，莉香也挺好看的看多了也就不稀奇了。
+
+
+                                                 
