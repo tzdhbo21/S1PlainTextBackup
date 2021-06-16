@@ -1867,3 +1867,17 @@ crew能吹硬实力，祭丝也能吹一番 ...</blockquote>
 
 
                                             
+
+-----
+
+####  蒹葭公子  
+##### 153#       发表于 2021-6-16 15:09
+
+
+全肯定祭丝（比如我）都被后藤小姐杀了啊，凭什么帮她说话？我巴不得有人多顺劈她<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+当然感知树还是免了，傻逼就是傻逼，什么不管他以前多傻逼现在我觉得他劈得对这种真是笑希了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
