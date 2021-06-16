@@ -13311,3 +13311,120 @@ syl 按照之前四ID哥暗示的你虹工商超贵，那这手游得花了多�
 
 
                                                  
+
+-----
+
+####  ppf  
+##### 2562#       发表于 2021-6-16 16:27
+
+
+这下被误导了 不过这人是crimson的助手还蛮有意思
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  qq845629713  
+##### 2563#       发表于 2021-6-16 16:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 猪场给点力啊，我想看，永劫无间三排
+
+
+-----
+
+####  划水的B612  
+##### 2564#       发表于 2021-6-16 16:50
+
+
+哈？所以拿别人照片发到fanbox还把人家的马赛克去了？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 2565#       发表于 2021-6-16 16:51
+
+
+在想些什么？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 2566#       发表于 2021-6-16 16:56
+
+
+a：发了这张钓鱼图说是gbr
+b：被钓鱼钓到，拿这张图去全网搜没搜到以为是真的，脑补gbr发饭盒后删除
+c以及之后的传播者信了这个逻辑
+
+实际上是三人成虎，传话游戏
+
+
+-----
+
+####  dybang  
+##### 2567#       发表于 2021-6-16 17:26
+
+
+太尬了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">v综得支楞起来啊，少有的那么多贴还是个假消息
+
+
+-----
+
+####  格林卡罗尔  
+##### 2568#       发表于 2021-6-16 18:24
+
+
+那说点有意思的，这照片是在[小紫ひな的频道](https://www.youtube.com/channel/UCE9cueNEKhC1k6TtqvFF61w/community)发布的，之后[nijian串184楼](https://rio2016.5ch.net/test/read.cgi/jasmine/1623820271/)有人提到，但是都没有EXIF信息，唯独在V综nohentai老哥发的图片是有EXIF信息的“原件”
+
+<img src="https://img.saraba1st.com/forum/202106/16/182302cgfx0gfxywk0y5n2.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210616181326.png</strong> (93.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 18:23 上传
+
+
+而且发布时间比nijian还早，很难不怀疑是nohentai老哥的自拍
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|欢乐多|
+| A2014720| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  FCCHua  
+##### 2569#       发表于 2021-6-16 18:25
+
+
+什么碟中谍
+
+
+-----
+
+####  poipanchao  
+##### 2570#       发表于 2021-6-16 18:26
+
+
+别尬黑，变态老哥也是转的群友发群里的，我在现场
+
+
+                                                 
