@@ -13510,3 +13510,31 @@ gbr中之人（假的）正在直播捏：
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 2577#       发表于 2021-6-16 21:25
+
+
+今天郡道兔组和舞元mea有组合联动，感觉郡道过于了解对面的传闻而且每一句话都在扔炸弹，郡道是被对面抢钱了吗？
+
+
+-----
+
+####  free  
+##### 2578#       发表于 2021-6-16 21:28
+
+
+[https://www.youtube.com/watch?v=sKxqqbDHY2U](https://www.youtube.com/watch?v=sKxqqbDHY2U)
+
+【Trailer】LiLYPSE（リリップス）始動 #00
+
+这组合可算动了
+
+[https://www.youtube.com/watch?v=ub4P8GwkIZI](https://www.youtube.com/watch?v=ub4P8GwkIZI)
+
+「カタオモイ」（弾き語り ver）-波羅ノ鬼（ハラノオニ）-
+
+
+                                                 
