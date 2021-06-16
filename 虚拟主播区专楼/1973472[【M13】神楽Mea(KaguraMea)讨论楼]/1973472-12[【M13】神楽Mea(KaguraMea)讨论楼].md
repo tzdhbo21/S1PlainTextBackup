@@ -10605,3 +10605,347 @@ syl 来找我吧<img src="https://static.saraba1st.com/image/smiley/face2017/073
 
 
                                                 
+
+-----
+
+####  A2014720  
+##### 17434#       发表于 2021-6-16 10:49
+
+
+pso2什么时候关服啊
+
+
+-----
+
+####  时间在我手中  
+##### 17435#       发表于 2021-6-16 10:58
+
+
+玩呗，昨晚到家直接昏睡三小时，又是什么都没做的一天，我和咩都是废人了捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17436#       发表于 2021-6-16 11:06
+
+
+pso2关服？ 你想多了 ngs冬季的时候有第一次大更新 这才刚刚开始 怕不是这人之后沉迷ngs了 直播唱歌打卡 tc估计直播玩ngs但是不放画面了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17437#       发表于 2021-6-16 11:09
+
+
+我现在就是lol拿个首胜 活动任务做完然后跑去肝ngs做任务 做活动 这游戏和朋友玩真的可以 又能蹭野队 估计小麻的车队都跑去玩ngs了 连lol都不见几个人玩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
+
+-----
+
+####  掉头学姐  
+##### 17438#       发表于 2021-6-16 12:09
+
+
+gbr都露脸了，小麻也该快进了
+
+
+-----
+
+####  physi1202  
+##### 17439#       发表于 2021-6-16 12:28
+
+
+一觉醒来gbr都发照片了，真好看，怪不得小麻被迷得神魂颠倒<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 17440#       发表于 2021-6-16 12:28
+
+
+那个也不一定是gbr啊<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+等等？自己发的？
+
+
+-----
+
+####  雪风utopia  
+##### 17441#       发表于 2021-6-16 12:35
+
+
+小麻就算不露脸，能发个批照或者腿照吗<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17442#       发表于 2021-6-16 12:39
+
+
+gbr那是ptsd了，不当v了也就痊愈了；
+你麻不是老哈子卡希了，什么时候转转性子啊<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">
+
+
+                                                 
+
+-----
+
+####  JY要塞  
+##### 17443#       发表于 2021-6-16 12:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">情弱甚至不知道gbr账号，但是你麻必然重坦，发了只会幸福坦克民
+
+
+-----
+
+####  呓亘  
+##### 17444#       发表于 2021-6-16 13:03
+
+
+？？？GBR露脸了？？？
+
+
+-----
+
+####  时雨rain  
+##### 17445#       发表于 2021-6-16 13:06
+
+
+看烂牙是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+你麻该知道套批人没前途了，赶紧下海a〇出道<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肚子疼了  
+##### 17446#       发表于 2021-6-16 13:07
+
+
+由图可得，gbr是个小矮子，你麻就好这口，你楼女粉估计身高不达标，这辈子没戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 17447#       发表于 2021-6-16 13:12
+
+
+虽然带着口罩 但还是能看出是个美女 跟某天空树肥婆天壤之别
+
+
+-----
+
+####  Klience  
+##### 17448#       发表于 2021-6-16 13:13
+
+
+你麻看到好看的女粉不都是在那里发情鬼叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我记得gbr还参加过组长的学力测试吧 gbr学力怎样来着 忘了
+
+
+                                                 
+
+-----
+
+####  笋狐  
+##### 17449#       发表于 2021-6-16 13:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">凛子梅小姐gbr个个比她矮，究竟是这几位jp人平均水平还是你麻基因突变
+
+
+-----
+
+####  clvan_  
+##### 17450#       发表于 2021-6-16 13:42
+
+
+yhm平均身高不是158吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+自己一比不就知道了，只能说你麻是高的那边
+
+
+-----
+
+####  T_Hb  
+##### 17451#       发表于 2021-6-16 13:44
+
+
+再高点在学校都要被80了
+
+
+-----
+
+####  FCCHua  
+##### 17452#       发表于 2021-6-16 13:44
+
+
+ 本帖最后由 FCCHua 于 2021-6-16 13:51 编辑 
+
+应该说男女平均身高一下来不都是那样吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 17453#       发表于 2021-6-16 13:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻天空树别真信啊
+啊我也说过，那没事了
+
+
+-----
+
+####  甘栗No.007  
+##### 17454#       发表于 2021-6-16 13:54
+
+
+有一次tc她说173cm和她差不多高，然后她又说她穿15cm的鞋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千木唯  
+##### 17455#       发表于 2021-6-16 13:56
+
+
+173差不多，不过是普通鞋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17456#       发表于 2021-6-16 13:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咋不随身带个脚手架呢
+
+
+-----
+
+####  Cushaw  
+##### 17457#       发表于 2021-6-16 13:59
+
+
+你麻麻的，比我还高<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 17458#       发表于 2021-6-16 14:00
+
+
+反正就是台坦克没跑了
+
+
+-----
+
+####  咸鱼渣  
+##### 17459#       发表于 2021-6-16 14:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">15cm的增高艹
+
+
+-----
+
+####  T_Hb  
+##### 17460#       发表于 2021-6-16 14:02
+
+
+是不是可以论证一下，睡的多长的快
+一天13个小时的睡眠不是没有效果的
+
+
+
+
+-----
+
+####  甘栗No.007  
+##### 17461#       发表于 2021-6-16 14:04
+
+
+睡的多不仅身高长得快，体重也长得快<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17462#       发表于 2021-6-16 14:05
+
+
+亚马逊战士<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+我也想成为坦克驾驶员<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  咸鱼渣  
+##### 17463#       发表于 2021-6-16 14:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">坦克建造计划是吧
+
+
+-----
+
+####  T_Hb  
+##### 17464#       发表于 2021-6-16 14:13
+
+
+今天的坦克什么时候才能发动起来呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17465#       发表于 2021-6-16 14:16
+
+
+说不定把ngs的维护时间调成了闹钟 闹钟一响就醒了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  汇聚群光  
+##### 17466#       发表于 2021-6-16 14:27
+
+
+今晚10点（中国时间）要和舞元兔妈妈郡道老师打麻将，因此在那之前必定得起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，谁知道雪风咋了，怎么在s1都能被禁言<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17467#       发表于 2021-6-16 14:28
+
+
+ 本帖最后由 T_Hb 于 2021-6-16 14:31 编辑 
+
+爱讨论了，这里也要迎来雪风二号机了吗
+
+
+-----
+
+####  汇聚群光  
+##### 17468#       发表于 2021-6-16 14:31
+
+
+不懂就问，爱讨论是啥意思？
+
+
+                                                
