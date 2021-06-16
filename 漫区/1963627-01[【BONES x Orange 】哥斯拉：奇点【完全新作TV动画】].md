@@ -11687,3 +11687,53 @@ https://www.sci.tohoku.ac.jp/news/2012/01/post-43.html
 
 
                                                  
+
+-----
+
+####  Lokay  
+##### 900#       发表于 2021-6-17 01:52
+
+
+真就AI救世，我看楼里有人奶到了。PP是pero2的缩写我看也有人奶到了。
+其实也不算降神，毕竟升级成JJPP的时候就猜到了是未来把男主那个升级程序算好后藏到曲子里传回过去（不过好像神棍成是在时间的洪流里算的…）。
+总体来说整部片子剧情其实挺套路的，就是硬加一些术语神神叨叨的来不说人话，当谜语人<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+李博士也是冤，真的就自愿（强行）成为-1（被发便当），最后好像也没说-1是个啥<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+哥总战斗画面配BGM观感挺好的，可惜就是一共加起来也没多少时长就是了。话说我本来就是想看怪兽打架的呀，结果被这神神叨叨的拐进sf去了，然后结果最后女主衣服上搞条衔尾蛇。真的搞机械哥斯拉的话麻烦直接打架谢谢。
+<img src="https://p.sda1.dev/2/252b6ef49d1d6c6762e2bf8fc9d65862/IMG_CMP_847269.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 SHARP SHV42, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  梦诗歌雪  
+##### 901#       发表于 2021-6-17 02:15
+
+
+一段代码就直接把机器人巨大化了，前面那么多废话解释民科设定咋到这就不说了，好歹讲讲机器人怎么变大的啊
+
+
+-----
+
+####  plok201  
+##### 902#       发表于 2021-6-17 02:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">哥斯拉粉丝想杀人，说完了
+
+
+之前那个怪兽行星和这个都是，不想拍哥斯拉就别拍<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  400姨妈  
+##### 903#       发表于 2021-6-17 02:39
+
+
+这整机械哥斯拉是想干啥，难道哥斯拉和剩下的怪兽被蓝色红尘插着还是假死状态？
+
+
+                                                
