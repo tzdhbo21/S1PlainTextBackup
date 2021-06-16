@@ -10949,3 +10949,71 @@ syl，谁知道雪风咋了，怎么在s1都能被禁言<img src="https://static
 
 
                                                 
+
+-----
+
+####  ashero  
+##### 17469#       发表于 2021-6-16 14:44
+
+
+那人根本不是gbr 是之前关注的那个黄漫画师v的助手 也半套皮了
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  仙岳病患  
+##### 17470#       发表于 2021-6-16 14:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">罪过罪过
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 -1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| RE_INORI|-1|为什么被塞的不是你|
+| 蒹葭公子| + 1|草，原来是你|
+| 花泽冒菜|-1|带恶人|
+
+
+查看全部评分
+
+
+-----
+
+####  fsfs_freeze  
+##### 17471#       发表于 2021-6-16 15:03
+
+
+雪风要remake了吗
+
+
+-----
+
+####  weiweiEX  
+##### 17472#       发表于 2021-6-16 15:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51625646&amp;ptid=1973472" target="_blank">汇聚群光 发表于 2021-6-16 14:31</a>
+不懂就问，爱讨论是啥意思？</blockquote>
+就是jz<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  RE_INORI  
+##### 17473#       发表于 2021-6-16 15:12
+
+
+在S1V版除了爱讨论和r18炸楼还挺难被口的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
