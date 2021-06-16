@@ -13236,3 +13236,78 @@ Gbr这跟儿，估计是有点矮，不过还是可爱捏
 
 
                                                  
+
+-----
+
+####  alcoholic1000  
+##### 2558#       发表于 2021-6-16 15:36
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-16 15:42 编辑 
+
+白百合算彩虹人吗，算就投她
+
+不算我也投星川<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+Syl，PR时间安排很懂啊
+
+<img src="https://img.saraba1st.com/forum/202106/16/154150kegd2skddiih7uf4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【#白夜極光チャレンジ 時刻表公開】.jpeg</strong> (745.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 15:41 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 2559#       发表于 2021-6-16 15:43
+
+
+这下恰饱了，流泪yagoo.jpg🤗
+
+
+-----
+
+####  qq845629713  
+##### 2560#       发表于 2021-6-16 15:51
+
+
+ 本帖最后由 qq845629713 于 2021-6-16 15:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer"> 首尾呼应，生怕别人不知道你俩关系不一般是吧，
+
+
+顺便，能和KR拼颜的恐怕只有VR
+
+syl 按照之前四ID哥暗示的你虹工商超贵，那这手游得花了多少米才能这么大阵势啊，除了JK组，lize，倾巢出动了，
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|鹅厂手游，缺心眼儿也不会缺钱.|
+
+
+查看全部评分
+
+
+-----
+
+####  rzrbtk  
+##### 2561#       发表于 2021-6-16 16:03
+
+
+郡道神田一组倒是一般操作，ars接郡道没有任何buff作用吧，直播间过去点个踩倒是挺可能的
+
+
+                                                 
