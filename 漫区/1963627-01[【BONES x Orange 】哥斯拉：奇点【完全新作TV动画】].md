@@ -11539,3 +11539,151 @@ magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20
 
 
                                                  
+
+-----
+
+####  kos_mos  
+##### 889#       发表于 2021-6-17 01:05
+
+
+怪兽是次要配角，主角是民科。
+
+
+-----
+
+####  污陨血红  
+##### 890#       发表于 2021-6-17 01:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">没有后续的话，那差不多是迫降失败了吧
+
+
+-----
+
+####  Freakyyu  
+##### 891#       发表于 2021-6-17 01:06
+
+
+ 本帖最后由 Freakyyu 于 2021-6-17 01:11 编辑 
+
+日了，什么JB玩意<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这确定不是复刻正解的卡多？什么来自未来的佩罗二号和机械杰格的后代巨大化干掉了哥斯拉，您这不是真道幸花吗？
+
+合着掰扯那么多名词就是为了最后一集胡说八道是吧，大泷工厂这二位坐着卡车从高空掉下去一点事没有，穿着拖鞋在废墟滚来滚去的有川润身上一点伤痕也没有，那为啥李博士只是救一只猫就死了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">太冤了吧。最后神神叨叨地交代一下海建宏背后是不知道一百多少岁的苇原，网飞是真有钱没地方花啊
+
+
+-----
+
+####  makar0601  
+##### 892#       发表于 2021-6-17 01:07
+
+
+还好啊，就普通闭环故事。就是这变大好突兀
+
+
+-----
+
+####  gaosf  
+##### 893#       发表于 2021-6-17 01:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632854&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-6-17 01:06</a>
+日了，什么JB玩意这确定不是复刻正解的卡多？什么来自未来的佩罗二号和机械杰格的后代巨大化干掉了 ...</blockquote>
+顺便虽然没有直接明说，这集的蒂尔达基本上也死了。
+
+
+-----
+
+####  Freakyyu  
+##### 894#       发表于 2021-6-17 01:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632863&amp;ptid=1963627" target="_blank">gaosf 发表于 2021-6-17 01:08</a>
+
+顺便虽然没有直接明说，这集的蒂尔达基本上也死了。</blockquote>
+那肯定是死了……这个算是自找的。愣不撤退，站在湿婆屋顶盯着别人拿火箭弹飞蛾扑火，属于是人在塔在了。哪有救个猫就没了的李博士冤啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  a12885084  
+##### 895#       发表于 2021-6-17 01:30
+
+
+稍微总结一下观感，前11话左右一口气看的，后面是追的
+
+
+本片的故事实质上是一个迭代到最后的自我指涉的剧本，就像主角拿到一本秘籍，参照秘籍拯救了世界，然后过了几十年再返回过去把秘籍留给给过去的自己一样。这个剧情已经是迭代完了的最终版本，如果只看剧情说“秘籍哪里来的啊”，自然会觉得机械降神和过于都合，但是如果理解了这个故事结构，会发现一定程度上的都合是这个剧本结构的必要缺陷，因此不扣分。
+
+
+本片前中期科幻味和悬疑味并重。中后期开始掉书袋，名词摆了一大摞。当然整体上关于时间、原型、超算、破局的设定，虽然充满着民科味道，但是还算有趣。悬疑感在开头的歌谣、民俗、科幻交杂在一起时非常强烈，后期则淡了不少。
+
+
+音乐、画面方面我觉得也挺带感的了，但没有特别对我的电波，仅止于“挺不错”的程度。
+
+
+唯一的遗憾是最后机械哥斯拉和苇原的登场，比起第二季，我更想故事画一个完整的句号，毕竟这种自我指涉的闭环结构也不需要续集。
+
+
+（+）以时间为核心的科幻设定；民俗X科幻的悬疑感；自我指涉的故事结构
+
+（+）极强的画面和音乐水准
+
+（-）科幻方面稍显民科和掉书袋
+
+
+-----
+
+####  mhh086  
+##### 896#       发表于 2021-6-17 01:30
+
+
+第一部，哥斯拉篇完<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shudushimo  
+##### 897#       发表于 2021-6-17 01:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632777&amp;ptid=1963627" target="_blank">普罗茶 发表于 2021-6-17 00:53</a>
+
+什么，他原来还是研究生吗</blockquote>
+东大的理论物理博士，好像是因为没科研经费了（非升即走？）转行写小说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lynn冰翎  
+##### 898#       发表于 2021-6-17 01:45
+
+
+无聊
+
+
+image.png
+(32.65 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-17 01:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/17/014512y99i7hw9waz9i4hc.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  azbhg1  
+##### 899#       发表于 2021-6-17 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632796&amp;ptid=1963627" target="_blank">gaosf 发表于 2021-6-17 00:56</a>
+百度了一下说是东北大学物理系本科，理论物理学研究生，总合文化研究科博士。 ...</blockquote>
+https://www.sci.tohoku.ac.jp/news/2012/01/post-43.html
+这就理科学士学位拿了直接转文科读博了吧<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+                                                 
