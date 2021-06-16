@@ -11362,3 +11362,180 @@ magnet:?xt=urn:btih:dcdb693771ea4428f04a1e6bac831acad6b7852a&amp;dn=%5BGST%5D%20
 
 
                                                  
+
+-----
+
+####  shudushimo  
+##### 873#       发表于 2021-6-16 23:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51623225&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-6-16 11:27</a>
+
+其实可以不用纠结，马上就完结了。
+
+
+对普通观众来说本片（包括其他片）大部分奇妙术语都是麦高芬而已，注 ...</blockquote>
+看完发现（至少这一部）怪兽根本不是重点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bartholo4  
+##### 874#       发表于 2021-6-17 00:12
+
+
+搞不懂
+关键不有趣 没有让人搞明白的动力
+
+—— 来自 Google Pixel 4 XL, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  -Vanitas-  
+##### 875#       发表于 2021-6-17 00:15
+
+
+机械哥总，二期预定啊
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  gaosf  
+##### 876#       发表于 2021-6-17 00:16
+
+
+放ed的时候还想海建宏和那个斯蒂芬去哪了咋忘了提了，没想到最后还挖坑。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  污陨血红  
+##### 877#       发表于 2021-6-17 00:18
+
+
+结局怎么了？
+
+
+-----
+
+####  a12885084  
+##### 878#       发表于 2021-6-17 00:21
+
+
+从脚本结构上看确实是机械降神
+但是这种只剩下迭代到最后的自我指涉的点子还蛮对我电波的
+另外声画表现上也很震撼了
+如果没有最后苇原和机械哥斯拉的登场我大概会更喜欢一些
+
+
+-----
+
+####  a12885084  
+##### 879#       发表于 2021-6-17 00:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632536&amp;ptid=1963627" target="_blank">污陨血红 发表于 2021-6-17 00:18</a>
+ 结局怎么了？</blockquote>
+女主那边AI找到了苇原五十年前的作业，破局将近，决定往过去航行，发现所谓的代码并不存在，但是发现了能让喷射荣格无敌的协议，外界响起摇篮曲
+男主和喷射荣格前往哥斯拉所在地，发现到预言时间没有任何代码
+忽然喷射荣格雄起，原来摇篮曲是俩AI的后代发往过去的信息，喷射荣格被压缩在摇篮曲内（类似Bible），连接上协议后解密，启动OD，和哥斯拉对波，破局消失，蓝天白云
+
+
+-----
+
+####  拥挤的屋顶  
+##### 880#       发表于 2021-6-17 00:27
+
+
+好吧 最后男主女主见上面了
+
+
+-----
+
+####  别叫我宅男  
+##### 881#       发表于 2021-6-17 00:31
+
+
+我看不懂，但我大受震撼。这种剧情都好意思写我也真是服了
+
+
+-----
+
+####  污陨血红  
+##### 882#       发表于 2021-6-17 00:32
+
+
+<blockquote>a12885084 发表于 2021-6-17 00:25
+女主那边AI找到了苇原五十年前的作业，破局将近，决定往过去航行，发现所谓的代码并不存在，但是发现了能 ...</blockquote>
+？？？？
+
+什么鬼，还有后续尾巴
+
+
+-----
+
+####  菲特妹  
+##### 883#       发表于 2021-6-17 00:35
+
+
+别后续了，这十几集的怪兽画面加起来有半集吗
+
+
+-----
+
+####  shudushimo  
+##### 884#       发表于 2021-6-17 00:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632610&amp;ptid=1963627" target="_blank">别叫我宅男 发表于 2021-6-17 00:31</a>
+
+我看不懂，但我大受震撼。这种剧情都好意思写我也真是服了</blockquote>
+圆城塔加私货硬生生把怪兽片加成了民科慕课<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kyogngn  
+##### 885#       发表于 2021-6-17 00:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">都不知道看了个啥
+
+
+-----
+
+####  gaosf  
+##### 886#       发表于 2021-6-17 00:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632667&amp;ptid=1963627" target="_blank">shudushimo 发表于 2021-6-17 00:37</a>
+圆城塔加私货硬生生把怪兽片加成了民科慕课</blockquote>
+是一股民科味，这名词乱用的我都怀疑他的理论物理学研究生学位是买的。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  普罗茶  
+##### 887#       发表于 2021-6-17 00:53
+
+
+<blockquote>gaosf 发表于 2021-6-17 00:47
+是一股民科味，这名词乱用的我都怀疑他的理论物理学研究生学位是买的。 ...</blockquote>
+什么，他原来还是研究生吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gaosf  
+##### 888#       发表于 2021-6-17 00:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632777&amp;ptid=1963627" target="_blank">普罗茶 发表于 2021-6-17 00:53</a>
+什么，他原来还是研究生吗</blockquote>
+百度了一下说是东北大学物理系本科，理论物理学研究生，总合文化研究科博士。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

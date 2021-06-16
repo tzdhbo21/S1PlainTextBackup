@@ -15278,3 +15278,17 @@ ps：其实俺寻思，到时候咕哒被分配为特殊阶然后作为战斗员
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79260#       发表于 2021-6-17 00:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51631846&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-6-16 23:11</a>
+
+今天的新任务果然要你打2.6</blockquote>
+没有要求2.6 '只是要求打主线
+
+
+                                                 

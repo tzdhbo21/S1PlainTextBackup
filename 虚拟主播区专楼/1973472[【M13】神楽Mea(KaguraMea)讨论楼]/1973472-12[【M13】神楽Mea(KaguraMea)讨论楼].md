@@ -11373,3 +11373,41 @@ syl 明天22点黄兔子 郡道 咩+某个人继续练习麻将
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 17507#       发表于 2021-6-17 00:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">沉迷mmo的啊咩
+
+
+-----
+
+####  Klience  
+##### 17508#       发表于 2021-6-17 00:26
+
+
+确实 有些掉落出来的附带特殊能力的武器或者防具挺有用的 我之前就刷到过一个打怪加快恢复PP的防具 对我这种PP消耗快的职业真的好用<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17509#       发表于 2021-6-17 00:28
+
+
+而且这种掉落附加特殊能力的是唯一的 不能通过武器店附加上去 如果你咩拿到了 那运气确实可以 很多人就打不出自己想要的武器<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17510#       发表于 2021-6-17 00:37
+
+
+我居然错过了俊道和咩的联动<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+                                                 

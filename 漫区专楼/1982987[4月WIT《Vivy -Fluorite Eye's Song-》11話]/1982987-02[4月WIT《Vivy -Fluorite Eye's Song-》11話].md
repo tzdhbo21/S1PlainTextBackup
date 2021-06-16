@@ -5911,3 +5911,27 @@ AI暴动危机的原因，毁灭AI的百年计划，AI使命与解除危机的�
 
 
                                                  
+
+-----
+
+####  -Vanitas-  
+##### 1951#       发表于 2021-6-17 00:17
+
+
+情报师：vv....大概可能也许算是个BE
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  KozueAkimoto  
+##### 1952#       发表于 2021-6-17 00:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51581397&amp;ptid=1982987" target="_blank">404489039 发表于 2021-6-13 12:53</a>
+看以后还有谁敢找长月写动画剧本</blockquote>
+锦织哥哥有新工作算不算？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
