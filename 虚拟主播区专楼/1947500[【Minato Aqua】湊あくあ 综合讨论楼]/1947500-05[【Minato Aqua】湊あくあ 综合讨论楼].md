@@ -2829,3 +2829,76 @@ NEGI☆U【公式】
 
 
                                                  
+
+-----
+
+####  面具13  
+##### 6238#       发表于 2021-6-16 19:54
+
+
+闲着没事又去看了一下#あくあ色ぱれっと的pv，联想到之前说的把椅子坐坏，本人怕不是像曲绘里那么胖了（但是没胸）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星の守  
+##### 6239#       发表于 2021-6-16 20:00
+
+
+能把椅子坐坏，那得是什么级别的坦克（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nevp  
+##### 6240#       发表于 2021-6-16 20:06
+
+
+椅子坐坏太色了吧，不敢细想<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  梅斯之围  
+##### 6241#       发表于 2021-6-16 20:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">怕不是天天坐在椅子上来回蹭
+
+
+话说当初复活杂谈不是说会因为去看病才摸么，今天不知道又干嘛去了
+
+
+-----
+
+####  面具13  
+##### 6242#       发表于 2021-6-16 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51629667&amp;ptid=1947500" target="_blank">梅斯之围 发表于 2021-6-16 20:13</a>
+
+怕不是天天坐在椅子上来回蹭
+
+
+话说当初复活杂谈不是说会因为去看病才摸么，今天不知道 ...</blockquote>
+昨天的推：这周收录课程多，所以直播时间不定，除非忍不住，否则一直摸。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 梅斯之围| + 1||
+
+
+查看全部评分
+
+
+                                                

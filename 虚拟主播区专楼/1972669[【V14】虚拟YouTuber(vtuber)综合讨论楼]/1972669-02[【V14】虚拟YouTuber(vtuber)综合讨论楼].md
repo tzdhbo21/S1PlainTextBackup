@@ -13469,3 +13469,44 @@ c以及之后的传播者信了这个逻辑
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 2575#       发表于 2021-6-16 19:39
+
+
+郡道前天生日，获得了很多生日祝福；
+
+可能触发了某种审查机制，突然获得了推特认证标记；
+
+郡不想要认证；
+
+把名字改成了うんこ试图消掉标记；
+
+
+现在在这里：
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/193911dt6052a6s0ma2k62.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 777 - (1) 推文 _ Twitter - twitter.com.jpg</strong> (42.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 19:39 上传
+
+
+-----
+
+####  IDIDIDID  
+##### 2576#       发表于 2021-6-16 20:09
+
+
+gbr中之人（假的）正在直播捏：
+
+[https://www.youtube.com/watch?v=E3hIH8-UOow](https://www.youtube.com/watch?v=E3hIH8-UOow)
+
+
+                                                 

@@ -15239,3 +15239,31 @@ ps：其实俺寻思，到时候咕哒被分配为特殊阶然后作为战斗员
 
 
                                                  
+
+-----
+
+####  巴莱-银河漂流  
+##### 79257#       发表于 2021-6-16 20:12
+
+
+ 本帖最后由 巴莱-银河漂流 于 2021-6-16 20:15 编辑 
+
+玛修节奏越来越离谱了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">，尤其是看完了完整剧情，真感觉有的节奏扯到没边了。
+
+当然主要说的是贴吧，b站，nga，微博都还好
+
+
+-----
+
+####  johnkamsar  
+##### 79258#       发表于 2021-6-16 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51629659&amp;ptid=1085254" target="_blank">巴莱-银河漂流 发表于 2021-6-16 20:12</a>
+玛修节奏越来越离谱了，尤其是看完了完整剧情，真感觉有的节奏扯到没边了。
+
+当然主要说的是贴吧，b ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">正常.......蘑菇要玩恶趣味就肯定迟早出这种节奏....
+
+
+                                                 
