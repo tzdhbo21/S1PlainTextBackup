@@ -10694,3 +10694,60 @@ gbr那是ptsd了，不当v了也就痊愈了；
 
 
                                                  
+
+-----
+
+####  JY要塞  
+##### 17443#       发表于 2021-6-16 12:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">情弱甚至不知道gbr账号，但是你麻必然重坦，发了只会幸福坦克民
+
+
+-----
+
+####  呓亘  
+##### 17444#       发表于 2021-6-16 13:03
+
+
+？？？GBR露脸了？？？
+
+
+-----
+
+####  时雨rain  
+##### 17445#       发表于 2021-6-16 13:06
+
+
+看烂牙是吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+你麻该知道套批人没前途了，赶紧下海a〇出道<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肚子疼了  
+##### 17446#       发表于 2021-6-16 13:07
+
+
+由图可得，gbr是个小矮子，你麻就好这口，你楼女粉估计身高不达标，这辈子没戏了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 17447#       发表于 2021-6-16 13:12
+
+
+虽然带着口罩 但还是能看出是个美女 跟某天空树肥婆天壤之别
+
+
+-----
+
+####  Klience  
+##### 17448#       发表于 2021-6-16 13:13
+
+
+你麻看到好看的女粉不都是在那里发情鬼叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我记得gbr还参加过组长的学力测试吧 gbr学力怎样来着 忘了
+
+
+                                                 
