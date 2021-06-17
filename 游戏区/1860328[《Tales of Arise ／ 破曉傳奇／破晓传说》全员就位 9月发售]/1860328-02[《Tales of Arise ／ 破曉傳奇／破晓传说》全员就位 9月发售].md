@@ -887,3 +887,17 @@ tov和tog换平台出的都是加强版</blockquote>
 
 
                                                  
+
+-----
+
+####  法拉  
+##### 1571#       发表于 2021-6-18 02:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51648023&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-18 01:48</a>
+
+看了下Fami通的试玩版评测，原来这个试玩版的剧情是专门做的，和正式版是不同的，专门为试玩版准备的区域。 ...</blockquote>
+传说系列的demo一直是这样的
+
+
+                                                 
