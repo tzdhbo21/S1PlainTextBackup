@@ -11781,3 +11781,27 @@ https://www.sci.tohoku.ac.jp/news/2012/01/post-43.html
 
 
                                                  
+
+-----
+
+####  白玫瑰之夜  
+##### 907#       发表于 2021-6-17 09:00
+
+
+这片有个问题就是有些剧情关键节点完全没讲明白，然后花了很大功夫来讲理论惨，哥斯拉，惨<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  frosta  
+##### 908#       发表于 2021-6-17 09:11
+
+
+这片竟然出奇的复合我对骨头的各种偏见<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">（包括烂尾
+
+— from samsung SM-G981U1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 
