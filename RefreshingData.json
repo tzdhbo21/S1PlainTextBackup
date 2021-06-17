@@ -109,7 +109,7 @@
     "title": "[【怪物猎人 RISE】讨论专楼 Ver.3.0已发布]",
     "lastedit": 1623853580,
     "category": "游戏区专楼",
-    "active": false
+    "active": true
   },
   {
     "id": "1960205",
@@ -117,7 +117,7 @@
     "title": "[西恩刀塔节奏楼2021 6.2-6.13 基辅 AniMajor]",
     "lastedit": 1623865491,
     "category": "游戏区",
-    "active": false
+    "active": true
   },
   {
     "id": "1966145",
@@ -125,7 +125,7 @@
     "title": "[【C1】巧克拉拉／哔哩哔哩vup综合讨论楼]",
     "lastedit": 1623868854,
     "category": "虚拟主播区专楼",
-    "active": false
+    "active": true
   },
   {
     "id": "1904473",
@@ -133,7 +133,7 @@
     "title": "[20.10『神龙之谜／勇者斗恶龙 达伊的大冒险』28年后再动画化]",
     "lastedit": 1623648713,
     "category": "漫区专楼",
-    "active": false
+    "active": true
   },
   {
     "id": "1973984",
@@ -3749,7 +3749,7 @@
     "title": "[你有没有因为一首歌而去补了一部番]",
     "lastedit": 1623806712,
     "category": "漫区",
-    "active": false
+    "active": true
   },
   {
     "id": "2010146",
@@ -3757,7 +3757,7 @@
     "title": "[【A12】A-SOUL讨论楼（6月18日 20：00 向晚第五人格联动）]",
     "lastedit": 1623855502,
     "category": "虚拟主播区专楼",
-    "active": false
+    "active": true
   },
   {
     "id": "2009802",
@@ -3765,7 +3765,7 @@
     "title": "[colodes哥，开门了。SJ人好几年了第一帖还是送colodes哥]",
     "lastedit": 1623827387,
     "category": "虚拟主播区专楼",
-    "active": false
+    "active": true
   },
   {
     "id": "2010090",
@@ -3965,6 +3965,46 @@
     "title": "[刚看完诡秘之主，说点感想，关联亵渎，铁鹤书]",
     "lastedit": 1623901910,
     "category": "外野",
+    "active": true
+  },
+  {
+    "id": "2010370",
+    "totalreply": 0,
+    "title": "待更新",
+    "lastedit": 1623910300,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "2010372",
+    "totalreply": 0,
+    "title": "待更新",
+    "lastedit": 1623910303,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "2010404",
+    "totalreply": 0,
+    "title": "待更新",
+    "lastedit": 1623910306,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "2010206",
+    "totalreply": 0,
+    "title": "待更新",
+    "lastedit": 1623910328,
+    "category": "外野",
+    "active": true
+  },
+  {
+    "id": "2010312",
+    "totalreply": 0,
+    "title": "待更新",
+    "lastedit": 1623910444,
+    "category": "游戏区",
     "active": true
   }
 ]
