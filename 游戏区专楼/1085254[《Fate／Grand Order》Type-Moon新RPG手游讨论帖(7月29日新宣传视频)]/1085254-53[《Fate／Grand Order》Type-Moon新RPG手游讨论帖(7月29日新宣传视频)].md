@@ -15344,3 +15344,31 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  扑克脸军曹  
+##### 79265#       发表于 2021-6-17 10:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51634492&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-17 09:15</a>
+
+上一波写的平安京为止，这波可没写
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/17/104014zyyceqnqggmccuwc.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210617103750.png</strong> (63.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-17 10:40 上传
+
+
+淦，让mooncell给误导了，游戏内确实没写
+
+
+                                                 
