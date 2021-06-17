@@ -12059,3 +12059,59 @@ BB应该是塑造得最让人惊喜的角色了，可惜最后也没露一脸。
 
 
                                                  
+
+-----
+
+####  Lawliet.L  
+##### 930#       发表于 2021-6-17 21:15
+
+
+还行，核心诡计还算有意思。Bones这部还有之前那部《AICO》总感觉是从电影原案拉伸出来的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  C男人  
+##### 931#       发表于 2021-6-17 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51644622&amp;ptid=1963627" target="_blank">酥蕤 发表于 2021-6-17 20:30</a>
+
+解谜怪兽片重要的是怪兽吗，重要的是解谜弄错重点没搞清观众需求
+
+堆砌名词一通胡扯看似能自圆其说就 ...</blockquote>
+说到观众需求……
+
+
+既然都用“哥斯拉”这块招牌了，
+
+
+吸引来的观众当然是以“看怪兽”需求为主。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  tonberry  
+##### 932#       发表于 2021-6-17 21:25
+
+
+看了开头，后面就一直攒着了，剧情无所谓啦，我就想问一句，这部看怪兽的能爽到么
+
+
+-----
+
+####  坂上菠萝  
+##### 933#       发表于 2021-6-17 21:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51645341&amp;ptid=1963627" target="_blank">tonberry 发表于 2021-6-17 21:25</a>
+
+看了开头，后面就一直攒着了，剧情无所谓啦，我就想问一句，这部看怪兽的能爽到么 ...</blockquote>
+我感觉拉顿满天飞到后面有点视觉疲劳，但是其他怪兽出场还是爽的
+
+
+                                                
