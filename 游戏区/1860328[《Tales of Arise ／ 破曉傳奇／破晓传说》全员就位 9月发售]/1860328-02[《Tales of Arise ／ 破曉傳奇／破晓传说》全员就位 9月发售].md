@@ -901,3 +901,16 @@ tov和tog换平台出的都是加强版</blockquote>
 
 
                                                  
+
+-----
+
+####  luoy  
+##### 1572#       发表于 2021-6-18 03:25
+
+
+年度jrpg<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
