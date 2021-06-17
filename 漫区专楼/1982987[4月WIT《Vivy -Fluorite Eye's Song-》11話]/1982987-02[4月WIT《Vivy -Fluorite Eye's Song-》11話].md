@@ -6028,3 +6028,26 @@ vv终极牺牲了？<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
                                                  
+
+-----
+
+####  圆环之爱  
+##### 1961#       发表于 2021-6-17 16:51
+
+
+唱着歌微笑便当要是一个不小心就有机会和希望之花一样登入生草名场景了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nerugigannte  
+##### 1962#       发表于 2021-6-17 16:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51640640&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-6-17 16:08</a>
+
+你們對BE的定義是牺牲?   不是全部木打 BOSS得利?</blockquote>
+倒数第二集能给出个下三滥桥段的编剧我不对他的bad end抱任何希望，先不论本身水平如何，至少在这片上起码也是种懒得去编好故事态度
+
+
+                                                 
