@@ -5979,3 +5979,52 @@ AI暴动危机的原因，毁灭AI的百年计划，AI使命与解除危机的�
 
 
                                                  
+
+-----
+
+####  JustW  
+##### 1957#       发表于 2021-6-17 15:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51638767&amp;ptid=1982987" target="_blank">nerugigannte 发表于 2021-6-17 13:50</a>
+
+虐哭了，求推荐更多像vivy一样通过主角的便当升华作品拉高整个故事立意的动画 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  大江户战士  
+##### 1958#       发表于 2021-6-17 15:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51632529&amp;ptid=1982987" target="_blank">-Vanitas- 发表于 2021-6-17 00:17</a>
+
+情报师：vv....大概可能也许算是个BE
+
+
+—— 来自 S1Fun</blockquote>
+vv终极牺牲了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gofbayrf  
+##### 1959#       发表于 2021-6-17 16:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你們對BE的定義是牺牲?   不是全部木打 BOSS得利?
+
+
+-----
+
+####  mumu  
+##### 1960#       发表于 2021-6-17 16:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51640640&amp;ptid=1982987" target="_blank">gofbayrf 发表于 2021-6-17 16:08</a>
+你們對BE的定義是牺牲?   不是全部木打 BOSS得利?</blockquote>
+都加“大概也许可能”了，肯定不是这么铁的bad ending了，而且按前面单元剧的风格不就是事情顺利解决但主要角色带着微笑阵亡了
+
+
+                                                 
