@@ -5946,3 +5946,23 @@ AI暴动危机的原因，毁灭AI的百年计划，AI使命与解除危机的�
 
 
                                                  
+
+-----
+
+####  枪聆弹语  
+##### 1954#       发表于 2021-6-17 13:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VV生日自爆，封神了
+
+
+-----
+
+####  nerugigannte  
+##### 1955#       发表于 2021-6-17 13:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">虐哭了，求推荐更多像vivy一样通过主角的便当升华作品拉高整个故事立意的动画
+
+
+                                                 

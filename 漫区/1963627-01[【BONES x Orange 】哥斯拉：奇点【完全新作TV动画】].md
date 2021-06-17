@@ -11897,3 +11897,35 @@ https://www.sci.tohoku.ac.jp/news/2012/01/post-43.html
 
 
                                                  
+
+-----
+
+####  天王寺凯伊姆  
+##### 916#       发表于 2021-6-17 13:39
+
+
+我的话，最后几集堆名词还好，但向BB这种动不动就爱历史啊启示录啊还有黄毛记者什么阿拉丁啊，这种自恋书呆子的台词就别来了。这片子就是明明能讲人话就硬要给你卖文采，你搁这写中学应试作文吗？<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+我是觉得让萝卜直接重生成机械G观感会更好
+
+
+-----
+
+####  蛇头  
+##### 917#       发表于 2021-6-17 14:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这集最不科学的难道不是基友大喊一声我要给你一个升力，然后在下坠的小皮卡中用手给了飞不起来的jj和男主一个向上的力让二者飞起来吗。我的妈，你要说od能让jj变大我也姑且是以为原型无敌设定如此，问题你这怪力得多可怕啊。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我初中物理没学好，但这怎么也得算上jj和男主的自重外加下坠时候的重力了吧，最离谱的是你抬完还没因为后坐力有后仰啥的，站得直挺挺的……
+
+
+-----
+
+####  -Vanitas-  
+##### 918#       发表于 2021-6-17 14:14
+
+
+所以锅是谁的，円城塔说这是高桥敦史的哥斯拉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
