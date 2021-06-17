@@ -11649,3 +11649,32 @@ syl 明天22点黄兔子 郡道 咩+某个人继续练习麻将
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 17531#       发表于 2021-6-17 22:03
+
+
+你咩姐又不开台可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 17532#       发表于 2021-6-17 22:13
+
+
+不开台装高手是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17533#       发表于 2021-6-17 22:14
+
+
+鸭神说是2年前和你咩在lol比赛见过，我完全没印象啊
+
+
+                                                 

@@ -383,3 +383,145 @@ F篇结尾明日玲都带着索菲去跟谢丽雅表白了，还单恋
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1526#         楼主| 发表于 2021-6-17 22:11
+
+
+[http://www.abyssalchronicles.com ... dors-shiina-and-lex](http://www.abyssalchronicles.com/news/tales-of-arise-hands-on-report-pc-demo-with-tales-ambassadors-shiina-and-lex)
+
+PC 版试玩报告，多图（英语）
+
+
+-----
+
+####  laoz  
+##### 1527#       发表于 2021-6-17 22:14
+
+
+被油管那个传说厨猜中了，联合技还能跟后备一起打
+
+<img src="https://img.saraba1st.com/forum/202106/17/221417nikgw2rgxuk2qg4z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>DEMO_13.jpg</strong> (239.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-17 22:14 上传
+
+
+-----
+
+####  laoz  
+##### 1528#       发表于 2021-6-17 22:21
+
+
+「テイルズ オブ アライズ」
+
+
+メディア向けPC体験版動画
+
+
+ファミ通・フィールド探索
+[https://youtube.com/watch?v=n4UlzVrddg8](https://youtube.com/watch?v=n4UlzVrddg8)
+
+ファミ通・戦闘
+[https://youtube.com/watch?v=xEgY1sQmfyk](https://youtube.com/watch?v=xEgY1sQmfyk)
+
+
+4Gamer
+[https://youtube.com/watch?v=goKLkOfQOoE](https://youtube.com/watch?v=goKLkOfQOoE)
+
+
+Gamer（戦闘のみ）
+[https://youtube.com/watch?v=XzUuvFyH1C4](https://youtube.com/watch?v=XzUuvFyH1C4)
+
+
+-----
+
+####  宛若青空  
+##### 1529#       发表于 2021-6-17 22:22
+
+
+暂时不看了，等到9.9发售日自己体验<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  LMBS  
+##### 1530#       发表于 2021-6-17 22:22
+
+
+竟然不是用圈普攻
+
+
+
+
+-----
+
+####  godless2020  
+##### 1531#       发表于 2021-6-17 22:27
+
+
+演示是5版吧，看视频满屏特效都不卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  laoz  
+##### 1532#       发表于 2021-6-17 22:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51646316&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-6-17 22:27</a>
+
+演示是5版吧，看视频满屏特效都不卡</blockquote>
+pc版，右下角都是字母
+
+
+-----
+
+####  laoz  
+##### 1533#       发表于 2021-6-17 22:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">tgs pv那段火剑前用的四连砍技能是爪龙连牙斩
+
+
+-----
+
+####  hypnossz86  
+##### 1534#       发表于 2021-6-17 22:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这种有运镜的对话居然都只有语气语音？
+
+正式版不会这样吧........
+
+
+-----
+
+####  nerugigannte  
+##### 1535#       发表于 2021-6-17 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51646461&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-6-17 22:38</a>
+
+这种有运镜的对话居然都只有语气语音？
+
+正式版不会这样吧........</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">看嘴型也对不上台词
+
+
+-----
+
+####  hav666  
+##### 1536#       发表于 2021-6-17 22:45
+
+
+只有嘴型没语音  1年后应该会出加强版<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                
