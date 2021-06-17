@@ -12259,3 +12259,73 @@ BB应该是塑造得最让人惊喜的角色了，可惜最后也没露一脸。
 
 
                                                  
+
+-----
+
+####  cerenkov  
+##### 945#       发表于 2021-6-17 23:52
+
+
+ 本帖最后由 cerenkov 于 2021-6-18 00:10 编辑 
+
+哎，我的要求也不高，主要是想问两个问题
+
+
+JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的？
+
+
+为什么JetJaggarPP肉身硬啃了一发原子吐息就可以将红尘O.D.化，JJPP体内装了什么机关吗，或者有过这样的提示或暗示吗？就是说在JJPP顿悟的时候不是就已经可以将红尘O.D.化了吗，为什么还要巨大化一下，来回过上几招，接一下原子吐息，接原子吐息意义何在？
+
+
+还有为什么东京的红尘O.D.化会影响到印度的红尘这是什么原理？红尘没了就等于避开破局了吗？所以破局是个什么东西？还有前面不是说了要向神灯许愿让神灯消失的吗，怎么ED之后哥斯拉骸骨奇点还在啊？另外话说哥斯拉骸骨的来源好像最后都没解释是吧？
+
+
+-----
+
+####  YESIARE  
+##### 946#       发表于 2021-6-17 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51638926&amp;ptid=1963627" target="_blank">蛇头 发表于 2021-6-17 14:03</a>
+这集最不科学的难道不是基友大喊一声我要给你一个升力，然后在下坠的小皮卡中用手给了飞不起来的jj ...</blockquote>
+最扯淡+1
+
+
+-----
+
+####  nuoer  
+##### 947#       发表于 2021-6-18 00:05
+
+
+这季一个这片一个小狼都是高开低走
+现在只希望出租车能平稳收尾<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Freakyyu  
+##### 948#       发表于 2021-6-18 00:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647334&amp;ptid=1963627" target="_blank">nuoer 发表于 2021-6-18 00:05</a>
+这季一个这片一个小狼都是高开低走
+现在只希望出租车能平稳收尾</blockquote>
+啥，本田小狼不是漫改卖萌片吗，这也能低走吗
+
+
+-----
+
+####  nuoer  
+##### 949#       发表于 2021-6-18 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647596&amp;ptid=1963627" target="_blank">Freakyyu 发表于 2021-6-18 00:36</a>
+啥，本田小狼不是漫改卖萌片吗，这也能低走吗</blockquote>
+去专楼看看吧，评价已经到谷底了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

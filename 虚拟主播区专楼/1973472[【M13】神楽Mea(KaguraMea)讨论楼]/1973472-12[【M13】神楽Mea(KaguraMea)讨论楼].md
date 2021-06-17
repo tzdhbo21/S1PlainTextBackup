@@ -11916,3 +11916,183 @@ syl你们在隔壁团建啥呢，终将成为泥是吧<img src="https://static.s
 
 
                                                 
+
+-----
+
+####  finefrenzy  
+##### 17556#       发表于 2021-6-17 23:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">那我收回之前歌回听够了的想法了……
+
+
+-----
+
+####  T_Hb  
+##### 17557#       发表于 2021-6-17 23:48
+
+
+歌回是最纯粹的享受
+
+
+-----
+
+####  时间在我手中  
+##### 17558#       发表于 2021-6-17 23:48
+
+
+ 本帖最后由 时间在我手中 于 2021-6-17 23:55 编辑 
+
+不知道什么原因，这雀魂联动我听着很炸耳朵，完全没办法集中精神
+
+
+还是说真的老了，10点之后基本听不懂人话了
+
+syl  换了郡道的视角耳朵舒服多了，haneru的视角不知道啥问题我脑子那块都听着痛
+
+
+-----
+
+####  Klience  
+##### 17559#       发表于 2021-6-17 23:50
+
+
+反正雀魂看不懂 挂后台去刷ngs算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17560#       发表于 2021-6-17 23:55
+
+
+你们总是想她做改变，但是你们却又不肯去学一下日麻<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17561#       发表于 2021-6-17 23:55
+
+
+日麻我会啊，但是这人没视角的确也就只能听听了
+
+好断，把haneru的6dora葬送了
+
+
+-----
+
+####  llconforever  
+##### 17562#       发表于 2021-6-17 23:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">小麻保佑我成为天选之猴
+
+
+-----
+
+####  T_Hb  
+##### 17563#       发表于 2021-6-17 23:58
+
+
+ 本帖最后由 T_Hb 于 2021-6-18 00:06 编辑 
+
+又在媚宅 又在媚宅
+
+syl [https://www.youtube.com/watch?v=I5Ulyot_NUU](https://www.youtube.com/watch?v=I5Ulyot_NUU)  
+
+今天伊东家联动36:57   你咩作为场外嘉宾的画面，我明天再补了，睡觉
+
+  
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/000044lonc8casr6svc1mr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (165.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 00:00 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| thisisaspider| + 1||
+| 路人庚| + 1|情报加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  Ky·Kiske  
+##### 17564#       发表于 2021-6-17 23:59
+
+
+老年人中麻都不会还日麻，我倒是真想日麻，嗯，日不到应该<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17565#       发表于 2021-6-18 00:00
+
+
+结束了
+
+
+今天的咩姐比昨天放得更开啊（指搞怪乱叫<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 17566#       发表于 2021-6-18 00:01
+
+
+昨天算我犯病<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 今天不错，就是吵了点
+
+
+-----
+
+####  T_Hb  
+##### 17567#       发表于 2021-6-18 00:02
+
+
+昨天问题是前半段炸的太频繁了，感觉就是一句黄段子，两个人就嗷起来了，然后接着又是黄段子循环，又叫，真的顶不住
+
+
+-----
+
+####  GRMeA104  
+##### 17568#       发表于 2021-6-18 00:07
+
+
+只会靠黄段子炒气氛的大脑是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+反正主播开心就好.jpg
+
+
+-----
+
+####  时间在我手中  
+##### 17569#       发表于 2021-6-18 00:19
+
+
+ 本帖最后由 时间在我手中 于 2021-6-18 00:37 编辑 
+
+上面那东西标题翻译是【在晚上的房事中反差最大的人】
+
+内容的话问复读机（）丢人了，没谷歌直接翻了这词）
+
+
+                                                 

@@ -724,3 +724,141 @@ tov和tog换平台出的都是加强版</blockquote>
 
 
                                                  
+
+-----
+
+####  qiyu1234  
+##### 1556#       发表于 2021-6-18 00:08
+
+
+我宁可相信是目前这个演示还没实装配音
+
+
+至少最近几部主机作品里是语音覆盖面很广，事件里都是能有则有的，哪怕是一些支线里
+
+
+-----
+
+####  JC_AR  
+##### 1557#       发表于 2021-6-18 00:17
+
+
+这画面风格怎么这么奇怪啊
+
+
+-----
+
+####  qiyu1234  
+##### 1558#       发表于 2021-6-18 00:17
+
+
+从英文版演示介绍来看，这个演示版本是专门做的一个媒体体验版
+
+未来说不准会放出来试玩
+
+
+-----
+
+####  laoz  
+##### 1559#       发表于 2021-6-18 00:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647430&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-18 00:17</a>
+
+从英文版演示介绍来看，这个演示版本是专门做的一个媒体体验版
+
+未来说不准会放出来试玩 ...</blockquote>
+会放的，TOB当时的demo就是先给塞钱通试玩，过了一段时间才放给玩家
+
+
+-----
+
+####  蓝雉  
+##### 1560#       发表于 2021-6-18 00:26
+
+
+小剧场听出来一个林薇尔对奇萨拉感叹好大哦，奇萨拉尴尬的说是指盾牌吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  LMBS  
+##### 1561#       发表于 2021-6-18 00:28
+
+
+这次战斗TOGF以下最强感觉没什么问题
+
+
+-----
+
+####  宛若青空  
+##### 1562#       发表于 2021-6-18 00:32
+
+
+离发售还有将近三个月，做了嘴形的话应该是目前还没实装语音进来
+
+
+-----
+
+####  瑕在瑾中  
+##### 1563#       发表于 2021-6-18 00:54
+
+
+传说系列算是最不吝啬配音的jrpg了吧？希望是试玩版还没加上语音的原因。要是真像新樱战那样演出都做了却缺好多语音那真的尴尬了。
+
+
+-----
+
+####  hypnossz86  
+##### 1564#       发表于 2021-6-18 00:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647730&amp;ptid=1860328" target="_blank">瑕在瑾中 发表于 2021-6-18 00:54</a>
+传说系列算是最不吝啬配音的jrpg了吧？希望是试玩版还没加上语音的原因。要是真像新樱战那样演出都做了却缺 ...</blockquote>
+我也觉的，当年在nds上玩到toh，都被那语音量给惊到了
+
+
+-----
+
+####  蓝雉  
+##### 1565#       发表于 2021-6-18 00:59
+
+
+刚看有人说主角会爪龙连牙斩怕是活不了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宛若青空  
+##### 1566#       发表于 2021-6-18 01:00
+
+
+忍不住还是去看了战斗片段，实在太爽了！
+
+然后开始担心PS4 PRO能不能稳30帧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  隔壁老黄  
+##### 1567#       发表于 2021-6-18 01:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647730&amp;ptid=1860328" target="_blank">瑕在瑾中 发表于 2021-6-18 00:54</a>
+
+传说系列算是最不吝啬配音的jrpg了吧？希望是试玩版还没加上语音的原因。要是真像新樱战那样演出都做了却缺 ...</blockquote>
+支线都全语音也就TOV强化版。。
+
+
+-----
+
+####  培根芝士蛋堡XD  
+##### 1568#       发表于 2021-6-18 01:11
+
+
+这作我是真想买限定版，但是ps4pro估计玩起来就30帧，还是想pc版玩<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">，难道得迫不得已买2份了
+
+
+                                                
