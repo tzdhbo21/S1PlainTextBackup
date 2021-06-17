@@ -11678,3 +11678,241 @@ syl 明天22点黄兔子 郡道 咩+某个人继续练习麻将
 
 
                                                  
+
+-----
+
+####  古战场亡魂  
+##### 17534#       发表于 2021-6-17 22:32
+
+
+ 本帖最后由 古战场亡魂 于 2021-6-17 22:36 编辑 
+
+魂天被话聊了也没几成功力了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">打麻将还是要专心。
+
+
+-----
+
+####  T_Hb  
+##### 17535#       发表于 2021-6-17 22:36
+
+
+比赛能不能连麦聊天流啊，如果可以感觉能进4强<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17536#       发表于 2021-6-17 22:37
+
+
+意外的还行<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+syl你们在隔壁团建啥呢，终将成为泥是吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17537#       发表于 2021-6-17 22:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">聊天为主打牌为辅（好用的朋友系列.mp4
+
+
+19年的lol比赛？（除了那个阿b组织的比赛完全想不起来别的了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17538#       发表于 2021-6-17 22:38
+
+
+也有可能是路人局吧，没听清
+
+
+-----
+
+####  古战场亡魂  
+##### 17539#       发表于 2021-6-17 22:39
+
+
+以前哈弟不是组织了lol比赛吗，mea的队叫pupg，可能那时候遇到的把。
+
+
+-----
+
+####  A2014720  
+##### 17540#       发表于 2021-6-17 22:43
+
+
+这组合我还挺喜欢的
+
+
+-----
+
+####  T_Hb  
+##### 17541#       发表于 2021-6-17 22:43
+
+
+今天观感挺好的
+
+
+-----
+
+####  古战场亡魂  
+##### 17542#       发表于 2021-6-17 22:45
+
+
+这魂天太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17543#       发表于 2021-6-17 22:50
+
+
+ 本帖最后由 路人庚 于 2021-6-17 22:54 编辑 
+
+2018年11月24日
+
+在“VTuber LoL 天下第一武道会”中与涩谷ハル、涩谷ハジメ、日ノ隈らん、天羽よつは组队参赛。
+
+虽然是参加LOL大会，队伍名却叫做“PUBG”。
+
+小队于第二战战败，但依然表现出了不俗的实力与统率力。
+[https://www.bilibili.com/video/BV1ht41197KG](https://www.bilibili.com/video/BV1ht41197KG)
+
+【VTuber】LoL天下一武道会 ～Day2～
+
+
+来自萌娘百科mea历程词条
+
+
+可还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17544#       发表于 2021-6-17 22:58
+
+
+魂天吃四……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> 乱杀（笑死了）
+
+
+-----
+
+####  T_Hb  
+##### 17545#       发表于 2021-6-17 22:58
+
+
+鸭神：魂天的大家对不起<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17546#       发表于 2021-6-17 23:00
+
+
+？ 雪风佬这是被封了吗 发生了啥
+
+
+-----
+
+####  T_Hb  
+##### 17547#       发表于 2021-6-17 23:00
+
+
+被诱导爱讨论了
+
+
+-----
+
+####  路人庚  
+##### 17548#       发表于 2021-6-17 23:06
+
+
+草，这起哄也太小学男生了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17549#       发表于 2021-6-17 23:09
+
+
+看了一下上面的lol比赛 翻到了你咩那部分 原来涉谷和咩是在同一个公会的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17550#       发表于 2021-6-17 23:24
+
+
+ 本帖最后由 T_Hb 于 2021-6-17 23:28 编辑 
+
+5宝直接把兔妈打背水了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+鸭神自摸把兔妈飞了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 17551#       发表于 2021-6-17 23:25
+
+
+虽然看不懂，但我觉得阿咩又天选了
+
+
+-----
+
+####  时间在我手中  
+##### 17552#       发表于 2021-6-17 23:28
+
+
+黄兔子飞了。这波母慈女孝了）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  finefrenzy  
+##### 17553#       发表于 2021-6-17 23:29
+
+
+看大天搞笑配音底下也有用捏做语气词然后一堆回复的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+另 这麻酱赛程要打多久 看不懂啊
+
+
+-----
+
+####  LIPP  
+##### 17554#       发表于 2021-6-17 23:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647043&amp;ptid=1973472" target="_blank">finefrenzy 发表于 2021-6-17 23:29</a>
+看大天搞笑配音底下也有用捏做语气词然后一堆回复的
+另 这麻酱赛程要打多久 看不懂啊 ...</blockquote>
+还没开赛呢，20号开始。这几天的麻酱联动都是团建
+
+
+-----
+
+####  T_Hb  
+##### 17555#       发表于 2021-6-17 23:35
+
+
+现在直播打的是练习赛，一把东4局+南4局，加起来8局就是一个半庄；
+
+20号比赛是2人组里两个人分别打一个半庄，点数累计，前2名进决赛；
+
+打2轮比赛（8进4，决赛）。
+
+
+                                                

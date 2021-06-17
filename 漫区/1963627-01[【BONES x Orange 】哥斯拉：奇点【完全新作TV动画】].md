@@ -12157,3 +12157,105 @@ BB应该是塑造得最让人惊喜的角色了，可惜最后也没露一脸。
 
 
                                                  
+
+-----
+
+####  Lyrankss  
+##### 936#       发表于 2021-6-17 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51645975&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-6-17 22:07</a>
+据统计，昭和的哥斯拉电影里，哥斯拉实际登场时间平均占片长12%，最短的占6%，而平成的时间变长了
+
+
+按照 ...</blockquote>
+那从水生形态开始算的话可能是够的吧，不够把骨头再算里
+
+
+-----
+
+####  酥蕤  
+##### 937#       发表于 2021-6-17 22:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51645975&amp;ptid=1963627" target="_blank">坂上菠萝 发表于 2021-6-17 22:07</a>
+据统计，昭和的哥斯拉电影里，哥斯拉实际登场时间平均占片长12%，最短的占6%，而平成的时间变长了
+
+
+按照 ...</blockquote>
+可以把红尘出现时间也算下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  坂上菠萝  
+##### 938#       发表于 2021-6-17 22:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51646467&amp;ptid=1963627" target="_blank">酥蕤 发表于 2021-6-17 22:38</a>
+
+可以把红尘出现时间也算下</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer"> 算红尘和算骨头都有点过分了
+
+
+-----
+
+####  acejoe  
+##### 939#       发表于 2021-6-17 22:42
+
+
+骨头社骗奈飞钱之作。
+
+
+-----
+
+####  C男人  
+##### 940#       发表于 2021-6-17 22:47
+
+
+把巨大机器人（？）喷射杰洛算进去，
+
+
+勉强及格吧……
+
+
+小体型系列。
+
+
+-----
+
+####  gg326  
+##### 941#       发表于 2021-6-17 22:53
+
+
+开头拉顿满天飞，中间打安吉拉斯那几集看得多高兴，最后这几集就有多拉<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zzhh0131  
+##### 942#       发表于 2021-6-17 23:00
+
+
+喷了，看完感觉这片屌爆了，结果你楼意见这么大
+
+
+-----
+
+####  Cloudslin  
+##### 943#       发表于 2021-6-17 23:23
+
+
+这企划咋给过的啊，真是意味不明<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  与你肩并肩  
+##### 944#       发表于 2021-6-17 23:40
+
+
+湿婆组织成立又不是为了人类，某种意义上就是利用了男女主排除了最大的阻碍，果然还是要搞点事情，某个消失的人还是露面了
+
+
+                                                 

@@ -525,3 +525,202 @@ pc版，右下角都是字母
 
 
                                                 
+
+-----
+
+####  BigLittle1999  
+##### 1537#       发表于 2021-6-17 22:59
+
+
+传说系列有出过加强版吗
+
+
+-----
+
+####  五星战世韩玉昆  
+##### 1538#       发表于 2021-6-17 23:00
+
+
+没语音可太艹了，希望是故意藏起来
+
+
+-----
+
+####  laoz  
+##### 1539#       发表于 2021-6-17 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51646731&amp;ptid=1860328" target="_blank">BigLittle1999 发表于 2021-6-17 22:59</a>
+
+传说系列有出过加强版吗</blockquote>
+tov和tog换平台出的都是加强版
+
+
+-----
+
+####  BigLittle1999  
+##### 1540#       发表于 2021-6-17 23:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51646752&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-17 23:01</a>
+
+tov和tog换平台出的都是加强版</blockquote>
+这次直接全平台了应该不出加强版了吧<img src="https://static.saraba1st.com/image/smiley/face2017/165.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kurosophie  
+##### 1541#       发表于 2021-6-17 23:12
+
+
+战斗过于眼花缭乱不高兴多看了，明天直接蹲直播了
+
+
+-----
+
+####  zero12  
+##### 1542#       发表于 2021-6-17 23:14
+
+
+英文版玩的人打的比日文版好
+
+
+-----
+
+####  laoz  
+##### 1543#       发表于 2021-6-17 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51646834&amp;ptid=1860328" target="_blank">BigLittle1999 发表于 2021-6-17 23:09</a>
+
+这次直接全平台了应该不出加强版了吧，jrpg像dq11s这种加个语音的加强版要重新买一份是在太难受了 ...</blockquote>
+不清楚，系列之后只有拆开卖这种玩法，看这段演示应该是在做支线，支线没语音对传说来说我觉得是挺正常的
+
+
+-----
+
+####  LMBS  
+##### 1544#       发表于 2021-6-17 23:15
+
+
+这次的场景画面挺好的，算是超乎期待。
+
+联合攻击一场战斗能用一两次，两个白皮都说用多了可能会烦，也提到技能按键不够用
+
+
+-----
+
+####  zero12  
+##### 1545#       发表于 2021-6-17 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51646879&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-6-17 23:15</a>
+
+这次的场景画面挺好的，算是超乎期待。
+
+联合攻击一场战斗能用一两次，两个白皮都说用多了可能会烦，也提到 ...</blockquote>
+联合攻击估计得是十五中组合换着来吧，只用一两种肯定腻到死。
+
+
+-----
+
+####  LMBS  
+##### 1546#       发表于 2021-6-17 23:19
+
+
+真有个喜欢TOZ的，其中一个白皮介绍还写着One of the rare persons to love Zestiria 8D.
+
+
+-----
+
+####  kurosophie  
+##### 1547#       发表于 2021-6-17 23:19
+
+
+最后这个直接进ovl(？)发动秘奥义再接共鸣技看着还挺爽的
+
+
+-----
+
+####  zero12  
+##### 1548#       发表于 2021-6-17 23:20
+
+
+不过这次后备人物可以直接支援还不错
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 1549#       发表于 2021-6-17 23:29
+
+
+明明有嘴型但是没声音是什么鬼演出，我以为我聋了
+要省语音就不要做嘴型
+
+
+-----
+
+####  laoz  
+##### 1550#       发表于 2021-6-17 23:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">白皮打的真好看，空中打凤凰天驱还接个爆发技取消落地然后继续空连
+
+
+-----
+
+####  LT_Harry  
+##### 1551#         楼主| 发表于 2021-6-17 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647102&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-17 23:35</a>
+
+白皮打的真好看，空中打凤凰天驱还接个爆发技取消落地然后继续空连</blockquote>
+还有一个 86hits 的片段，按照我个人之前的分析，这一部打大型敌人的连击数很难攒上去——他是怎么做到打石像怪86连击的！？
+
+
+-----
+
+####  蓝雉  
+##### 1552#       发表于 2021-6-17 23:54
+
+
+这种半路停下来的非重要剧情没语音也不奇怪吧，xb2不也有吗
+
+
+-----
+
+####  nage560  
+##### 1553#       发表于 2021-6-18 00:02
+
+
+怎么说话没有声音的......
+
+
+-----
+
+####  LT_Harry  
+##### 1554#         楼主| 发表于 2021-6-18 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647256&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-6-17 23:54</a>
+
+这种半路停下来的非重要剧情没语音也不奇怪吧，xb2不也有吗</blockquote>
+不，其实这个系列近四部作品弃用气泡对话框后都有这种现象，算是可以预料的情况之一。
+
+
+-----
+
+####  laoz  
+##### 1555#       发表于 2021-6-18 00:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647249&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-6-17 23:54</a>
+
+还有一个 86hits 的片段，按照我个人之前的分析，这一部打大型敌人的连击数很难攒上去——他是怎么做到打 ...</blockquote>
+我看的这个最高73，男主主要是tgs那个连段+队友高连段凑到hit数，之后刚好弱点部位break继续凑，但是他装了个逼打了瞬雷跳上去之后风神剑空了233
+
+
+                                                 
