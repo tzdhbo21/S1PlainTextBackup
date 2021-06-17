@@ -14541,3 +14541,17 @@ op的本质是冒险
 
 
                                                  
+
+-----
+
+####  GreenBird  
+##### 55241#       发表于 2021-6-17 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51639194&amp;ptid=98922" target="_blank">azbhg1 发表于 2021-6-17 14:25</a>
+
+就是御田复刻吧，御田当年也只是想着出海而已</blockquote>
+带不带上船都有理由，不带的理由就是路飞不是御田。
+
+
+                                                 

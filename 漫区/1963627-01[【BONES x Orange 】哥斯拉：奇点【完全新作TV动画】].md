@@ -12027,3 +12027,14 @@ BB应该是塑造得最让人惊喜的角色了，可惜最后也没露一脸。
 
 
                                                  
+
+-----
+
+####  adslnet0519  
+##### 927#       发表于 2021-6-17 19:40
+
+
+虽然我猜到机器人会巨大化和哥总对打，可是这么强行也太扯了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+                                                 
