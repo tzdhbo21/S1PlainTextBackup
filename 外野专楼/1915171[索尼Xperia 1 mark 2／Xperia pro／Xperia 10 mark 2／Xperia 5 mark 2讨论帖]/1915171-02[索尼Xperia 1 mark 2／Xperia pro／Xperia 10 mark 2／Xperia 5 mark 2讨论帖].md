@@ -16519,3 +16519,19 @@ twiiter和b站全屏之后，边缘触控位置不灵敏
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 2722#       发表于 2021-6-18 01:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51637992&amp;ptid=1915171" target="_blank">ut0 发表于 2021-6-17 12:55</a>
+在🐶东入手了5ii，各种券，优惠，红包用下来4420左右，要不是因为888，肯定直接入手1iii
+话说大家有没有合 ...</blockquote>
+我是索粉头子的撸背壳+裸奔，用了大半年了感觉还好
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
