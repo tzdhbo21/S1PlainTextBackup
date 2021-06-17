@@ -14521,3 +14521,16 @@ EN真是Vjuan风向标了，希望以后有更多姿势<img src="https://static.
 
 
                                                  
+
+-----
+
+####  影山银  
+##### 967#       发表于 2021-6-17 14:53
+
+
+和亲妈联动好耶！！！<img src="https://p.sda1.dev/2/8a8ee35c901cecf9ddd29f138b35f28d/IMG_CMP_212293512.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9738, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

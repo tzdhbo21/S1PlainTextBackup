@@ -5966,3 +5966,16 @@ AI暴动危机的原因，毁灭AI的百年计划，AI使命与解除危机的�
 
 
                                                  
+
+-----
+
+####  wolf1997  
+##### 1956#       发表于 2021-6-17 14:23
+
+
+哟哟哟这不是vv吗，几天不见，口碑这么拉了
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v1.3.3.2-play
+
+
+                                                 

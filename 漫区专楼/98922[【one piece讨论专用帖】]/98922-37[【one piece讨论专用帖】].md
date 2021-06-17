@@ -14527,3 +14527,17 @@ op的本质是冒险
 
 
                                                  
+
+-----
+
+####  azbhg1  
+##### 55240#       发表于 2021-6-17 14:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51562852&amp;ptid=98922" target="_blank">GreenBird 发表于 2021-6-11 20:37</a>
+
+大和崇拜的是御田，对路飞一伙没有什么羁绊，也只是想借路飞一伙出海而已。互为工具人？我接受唔到咯。 ...</blockquote>
+就是御田复刻吧，御田当年也只是想着出海而已
+
+
+                                                 
