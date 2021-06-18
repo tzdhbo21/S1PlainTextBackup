@@ -12453,3 +12453,89 @@ syl，推特直播能把每个观众特定，还是找到了一些蛮有意思�
 
 
                                                  
+
+-----
+
+####  A2014720  
+##### 17598#       发表于 2021-6-18 14:12
+
+
+ 本帖最后由 A2014720 于 2021-6-18 14:15 编辑 
+
+“我跟他只是玩玩”<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+星叶军刀神田大佐观感那个不比你强
+
+
+-----
+
+####  ashero  
+##### 17599#       发表于 2021-6-18 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652972&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-6-18 14:06</a>
+
+不知道当时的语气怎样，只看文字的话其实挺像回应cp厨评论的定型文回复，“ 自己喜欢〇〇是真喜欢，但是大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">和上次说自己a过去对面有层障壁一样的幽怨语气
+
+
+-----
+
+####  Cushaw  
+##### 17600#       发表于 2021-6-18 14:29
+
+
+神楽“只是个梗罢了”咩啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 17601#       发表于 2021-6-18 14:33
+
+
+这喜欢大概就和谷雨喜欢杨永信差不多一样喜欢把
+
+
+-----
+
+####  路人庚  
+##### 17602#       发表于 2021-6-18 14:34
+
+
+戏如人生神乐咩，只能说你咩姐的营业水平确实比起其他几位要差了一些（
+
+
+-----
+
+####  T_Hb  
+##### 17603#       发表于 2021-6-18 14:37
+
+
+她营业水平提高，楼友不得全疯了
+
+
+-----
+
+####  路人庚  
+##### 17604#       发表于 2021-6-18 15:21
+
+
+营业水平高其实看起来观感是很乐的，虽然因为不是gachi所以也不太能理解gachi的观感，不过之前在阿b刷出来过几个星川叶师的星骚扰剪辑是真的乐（当然前两天舞苔时雨mea麻将也是真的乐，个人觉得也是营业水平比较高的一场，你咩姐少有的被迫害役，看起来是真的爽
+
+
+（好吧也许跟我个人喜欢咩虐有关
+
+
+-----
+
+####  Dualist彩  
+##### 17605#       发表于 2021-6-18 15:26
+
+
+有趣的cp是吧，要我搬出meaqua吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

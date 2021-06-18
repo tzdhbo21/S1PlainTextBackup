@@ -1370,3 +1370,155 @@ R2+方向键，TOB就是防御加方向键</blockquote>
 
 
                                                  
+
+-----
+
+####  LMBS  
+##### 1607#       发表于 2021-6-18 15:04
+
+
+ 本帖最后由 LMBS 于 2021-6-18 15:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649669&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-18 09:43</a>
+
+话说之前看第一个演示时战斗中是能切换角色控制的，但操作介绍的界面没看到介绍切换队友的按键。目前爆出来 ...</blockquote>
+按住L1能切换前后排的头像，看这布局正式版（完全版）再加两个角色正适合，假如切换队友是长按方向的话还能直接把后排换上来。
+
+跳竟然能重要到单独设置一个按键，还把普攻挤到R1
+
+看目前的按键设置保留L1+三角方叉还是可以的，希望会有吧
+
+L3不知会不会用上，用来爆气总比自动爆好
+
+
+菜单没了头像有点不适应，换装还是单独一个入口。多年传统的料理没了，可能是放在营地里。战斗菜单还加了个编成。
+
+
+魔王炎击破好帅
+
+
+-----
+
+####  jbjack1215  
+##### 1608#       发表于 2021-6-18 15:07
+
+
+演示影片用的是什么平台，有点担心老版ps4扛不住
+
+
+-----
+
+####  laoz  
+##### 1609#       发表于 2021-6-18 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51653539&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-6-18 15:04</a>
+
+按住L1能切换前后排的头像，看这布局正式版（完全版）再加两个角色正适合，假如切换队友是长按方向的话还 ...</blockquote>
+L3大概是发秘奥义
+
+
+-----
+
+####  LT_Harry  
+##### 1610#         楼主| 发表于 2021-6-18 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51653573&amp;ptid=1860328" target="_blank">jbjack1215 发表于 2021-6-18 15:07</a>
+演示影片用的是什么平台，有点担心老版ps4扛不住</blockquote>
+PC
+
+
+-----
+
+####  zero12  
+##### 1611#       发表于 2021-6-18 15:16
+
+
+这么看来测评感觉键位不够用很真实
+
+
+-----
+
+####  宛若青空  
+##### 1612#       发表于 2021-6-18 15:18
+
+
+ 本帖最后由 宛若青空 于 2021-6-18 15:25 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51653539&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-6-18 15:04</a>
+
+按住L1能切换前后排的头像，看这布局正式版（完全版）再加两个角色正适合，假如切换队友是长按方向的话还 ...</blockquote>
+
+翻看日媒各种报道看到GAME Watch实锤了战斗中切换队友的功能，安心了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+ <blockquote>戦闘中は自由にキャラクターを切り替えることができるので、敵キャラクターの性質に合わせて使うキャラクターを切り替えてプレイするのもオススメだ。</blockquote>
+
+另外关于料理还是有的，有提到现在是未公开情报所以暂时保密。（麻婆豆腐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> ）
+ <blockquote>また、シリーズおなじみの要素として料理が可能だが、どのようなシステムなのかは言及不可というルール。</blockquote><blockquote>最後にもう1つ。『テイルズ オブ』シリーズといえば、マーボーカレーをはじめとする料理も欠かせない要素ですよね。もちろん『TOARISE』にも用意されておりました。こちらはまだ細かい仕組みやグラフィックまでは未公開ですが、非常に期待できる要素かも？（笑）。</blockquote>
+
+
+-----
+
+####  LMBS  
+##### 1613#       发表于 2021-6-18 15:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51653656&amp;ptid=1860328" target="_blank">zero12 发表于 2021-6-18 15:16</a>
+
+这么看来测评感觉键位不够用很真实</blockquote>
+以前普攻技术防御回避跳只用3个按键就搞定，现在把右边6个按键用完，可设置的技术还少1个
+
+
+-----
+
+####  宛若青空  
+##### 1614#       发表于 2021-6-18 15:28
+
+
+还有就是目前这张图里术技设定的第二栏不知道会是什么（按RT那个）
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/152728glthnrhmlpbhplrh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>0D877E38-D56C-4A20-AAE2-C476261EC4F4.jpeg</strong> (203.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 15:27 上传
+
+
+-----
+
+####  laoz  
+##### 1615#       发表于 2021-6-18 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51653795&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-18 15:28</a>
+
+还有就是目前这张图里术技设定的第二栏不知道会是什么（按RT那个）</blockquote>
+切自动
+
+
+-----
+
+####  LMBS  
+##### 1616#       发表于 2021-6-18 15:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51653795&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-18 15:28</a>
+
+还有就是目前这张图里术技设定的第二栏不知道会是什么（按RT那个）</blockquote>
+就是技术列表，跟TOB一样
+
+
+-----
+
+####  宛若青空  
+##### 1617#       发表于 2021-6-18 15:41
+
+
+ 本帖最后由 宛若青空 于 2021-6-18 15:54 编辑 
+
+等今晚生放希望能详细解说下战斗系统
+
+
+                                                 

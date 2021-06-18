@@ -1285,3 +1285,67 @@ Q.E.D.
 
 
                                                  
+
+-----
+
+####  asion617  
+##### 85#       发表于 2021-6-18 14:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652648&amp;ptid=2010295" target="_blank">byisme001 发表于 2021-6-18 05:36</a>
+
+114514呢</blockquote>
+2+12+21+5 = 40 = (1+1)*4*5*1^4 
+
+
+Q.E.D
+
+
+-----
+
+####  新八  
+##### 86#       发表于 2021-6-18 14:58
+
+
+一波看下来，这活也整的太好了，期待后续 <img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  医生狼多  
+##### 87#       发表于 2021-6-18 15:02
+
+
+太草了，准备看戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rainsheep  
+##### 88#       发表于 2021-6-18 15:19
+
+
+这要最后不是可太有意思了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Eadric  
+##### 89#       发表于 2021-6-18 15:34
+
+
+最后只是个巨魔indie game
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  泉美  
+##### 90#       发表于 2021-6-18 15:41
+
+
+模仿犯碰瓷吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
