@@ -1916,3 +1916,32 @@ silent hill long sleeve shirt<img src="https://static.saraba1st.com/image/smiley
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 125#       发表于 2021-6-19 04:28
+
+
+<img src="https://p.sda1.dev/2/4d5017ddda88ad672fd45e17ee34b5b5/geoff.png" referrerpolicy="no-referrer">
+
+可能睡了（指10pm的荷兰人）（指5am的日本人）
+
+
+-----
+
+####  luoyianwu  
+##### 126#       发表于 2021-6-19 05:39
+
+
+ 本帖最后由 luoyianwu 于 2021-6-19 05:46 编辑 
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o30hxr/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o30hxr/)
+
+
+官方帐号Konami shop在推特上关注了一个昨天才新建的叫Silent Hill Revival（@SilentHillback）的请愿帐号。这个帐号只有20个粉丝，并完全与前者无互动纪录
+
+Geoff Keighley、PlayStation、Konami，演员都到齐了
+
+
+                                                 

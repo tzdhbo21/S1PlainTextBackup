@@ -12599,3 +12599,27 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  言酱啊啊啊  
+##### 971#       发表于 2021-6-19 04:08
+
+
+为什么它变大了，为什么这么老高掉下去毫发无损
+最重要的是
+为什么ai能有后代？
+
+
+-----
+
+####  NEIN  
+##### 972#       发表于 2021-6-19 05:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">不是，这明显瞎扯的理论还真有人去认真分析的？
+
+—— 来自 Xiaomi Mi Note 3, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
