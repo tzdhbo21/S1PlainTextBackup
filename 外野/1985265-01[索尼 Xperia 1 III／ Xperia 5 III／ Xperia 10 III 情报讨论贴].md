@@ -8995,3 +8995,63 @@ au的都发售了，港版还要等<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 641#       发表于 2021-6-18 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51654263&amp;ptid=1985265" target="_blank">kaiki_aiolos 发表于 2021-6-18 16:08</a>
+当时我买XZ3很大程度上是为了这个边框功能
+
+
+虽然后面发现其实曲面屏误触率有点高，后来还下放到平面屏了</blockquote>
+曲面确实容易误触，屏幕性质的问题
+
+平面屏就没这个苦恼，边框触控很方便，还能调节触发范围。
+
+可惜X5M2从硬件上取消了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，就变成一个悬浮条了，虽然也不错，但没边框侧感爽。
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Nanachi  
+##### 642#       发表于 2021-6-18 18:49
+
+
+弃用支付宝卧槽，泥潭索粉信仰真的足
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  暗铁  
+##### 643#       发表于 2021-6-18 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51656048&amp;ptid=1985265" target="_blank">Nanachi 发表于 2021-6-18 18:49</a>
+
+弃用支付宝卧槽，泥潭索粉信仰真的足
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么着，好人就该被枪指着？
+
+
+-----
+
+####  Nanachi  
+##### 644#       发表于 2021-6-18 19:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51656368&amp;ptid=1985265" target="_blank">暗铁 发表于 2021-6-18 19:23</a>
+
+怎么着，好人就该被枪指着？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">建议顺手弃用微信QQ等其他毒瘤，不能只打一个啊
+
+
+                                                 

@@ -1651,3 +1651,86 @@ PC
 
 
                                                  
+
+-----
+
+####  D-JoeII  
+##### 1627#       发表于 2021-6-18 19:26
+
+
+ 本帖最后由 D-JoeII 于 2021-6-18 19:31 编辑 
+
+待會的直播
+[https://www.youtube.com/watch?v=3tYtSokGZXk](https://www.youtube.com/watch?v=3tYtSokGZXk)
+[https://live.bilibili.com/391771 ... 8375261209492997920](https://live.bilibili.com/3917715?from=search&amp;seid=8375261209492997920)
+
+
+-----
+
+####  宛若青空  
+##### 1628#       发表于 2021-6-18 19:30
+
+
+快开始了！第一次《Tales of ARISE》特别生放送
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/192718vq8wxub4jdgwxgxq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>maxresdefault2.jpg</strong> (150.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 19:27 上传
+
+
+-----
+
+####  剑布衣  
+##### 1629#       发表于 2021-6-18 19:30
+
+
+来了来了，看看有没什么新的骚操作
+
+
+-----
+
+####  センチ  
+##### 1630#       发表于 2021-6-18 19:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">男主CV这么没排面？
+
+
+-----
+
+####  宛若青空  
+##### 1631#       发表于 2021-6-18 19:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51656517&amp;ptid=1860328" target="_blank">センチ 发表于 2021-6-18 19:34</a>
+
+男主CV这么没排面？</blockquote>
+佐藤：下次一定<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/194009qjjx2a3mxayzn563.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CBE867F2-FE3C-40E4-B6FB-E794B55656D2.jpeg</strong> (171.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 19:40 上传
+
+
+-----
+
+####  zero12  
+##### 1632#       发表于 2021-6-18 19:44
+
+
+感觉不会有新料了
+
+
+                                                 

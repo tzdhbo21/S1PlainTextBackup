@@ -15700,3 +15700,17 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  qixinno2  
+##### 79290#       发表于 2021-6-18 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655349&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-18 17:36</a>
+
+我是会赞石头的人吗 3石就抽无论什么池子</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">那你一定是假的萌新 我记忆里的萌新每个池子都在豹跳
+
+
+                                                 

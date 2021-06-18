@@ -14792,3 +14792,42 @@ Syl，「にじさんじ」とのコラボカフェ第2弾開催決定！！
 
 
                                                  
+
+-----
+
+####  alcoholic1000  
+##### 2669#       发表于 2021-6-18 19:02
+
+
+【白雪巴3Dお披露目配信決定！！】
+
+<img src="https://img.saraba1st.com/forum/202106/18/190224sch009yh930cwu78.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>白雪巴3Dお披露目配信決定！！.jpeg</strong> (468.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 19:02 上传
+
+
+白雪巴(@Tomoe_Shirayuki)の、3Dお披露目配信日が決定いたしました！
+
+
+≪ 6/25(金) 21:00 ≫ 配信開始！！
+
+
+待機場所はこちら▽
+[https://youtu.be/iWi7rOKsOH4](https://youtu.be/iWi7rOKsOH4)
+
+
+-----
+
+####  FCCHua  
+##### 2670#       发表于 2021-6-18 19:08
+
+
+可算来了
+
+
+                                                 
