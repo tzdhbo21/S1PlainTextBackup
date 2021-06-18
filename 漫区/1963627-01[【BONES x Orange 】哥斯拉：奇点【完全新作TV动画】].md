@@ -12580,3 +12580,22 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  雾谷路人  
+##### 970#       发表于 2021-6-19 01:52
+
+
+看完了，身为哥斯拉一般路人爱好者说点啥吧：
+
+摇篮曲隐藏信息的核心诡计能接受，毕竟涉及到时间的点子也就那样<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">；
+
+喜欢爱与和平不死人也行，动画片嘛，有烟无伤习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">；
+
+整谜语人那一套，不说人话也能理解，民科最爱的调调，大家习以为常<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">；
+
+那么问题来了，nmd片名叫啥？哥斯拉-奇点？我看叫“寄点”就可以了，这nm剧情和哥斯拉有啥关系啊<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">。还有最后出来的机械哥斯拉和苇原，说真的没出来的必要。只能说作为这季度唯一追的一部番，把哥斯拉元素去了我勉强能看到13集也没问题，可是加上了哥斯拉我咋看咋不舒服。真不如把片名改成“寄点”，你这和寄了也没啥区别了。
+
+
+                                                 

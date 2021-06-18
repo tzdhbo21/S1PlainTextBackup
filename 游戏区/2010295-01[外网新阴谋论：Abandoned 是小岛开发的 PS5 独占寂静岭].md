@@ -1903,3 +1903,16 @@ silent hill long sleeve shirt<img src="https://static.saraba1st.com/image/smiley
 
 
                                                  
+
+-----
+
+####  Heero_Z  
+##### 124#       发表于 2021-6-19 02:23
+
+
+想起来那个论证死搁就是MGS0的那个帖子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
