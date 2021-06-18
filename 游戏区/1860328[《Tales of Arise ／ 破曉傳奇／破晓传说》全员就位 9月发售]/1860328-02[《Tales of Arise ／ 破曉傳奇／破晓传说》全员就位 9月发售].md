@@ -1734,3 +1734,290 @@ PC
 
 
                                                  
+
+-----
+
+####  D-JoeII  
+##### 1633#       发表于 2021-6-18 19:54
+
+
+即場遊玩中
+
+
+-----
+
+####  laoz  
+##### 1634#       发表于 2021-6-18 20:03
+
+
+咏唱的时候还能走动
+
+
+-----
+
+####  D-JoeII  
+##### 1635#       发表于 2021-6-18 20:03
+
+
+這畫面風格是挺舒服的
+
+
+-----
+
+####  laoz  
+##### 1636#       发表于 2021-6-18 20:05
+
+
+换人是L2的组合键
+
+
+-----
+
+####  宛若青空  
+##### 1637#       发表于 2021-6-18 20:06
+
+
+换ロウ突然就翻车了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宛若青空  
+##### 1638#       发表于 2021-6-18 20:11
+
+
+ 本帖最后由 宛若青空 于 2021-6-18 20:14 编辑 
+
+怎么不给下地紫野试玩<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+松冈：差点就能爆料初公开情报了<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+原来下地紫野前天去收录时就试玩过了
+
+
+-----
+
+####  laoz  
+##### 1639#       发表于 2021-6-18 20:14
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/201444jkt3i797ntktenpg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (163.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 20:14 上传
+
+
+-----
+
+####  bgmilk  
+##### 1640#       发表于 2021-6-18 20:15
+
+
+     感觉连携技的演出有点长，镜头也固定，感觉重复感比tox厉害.... 不知道是不是只有我有这个感觉。
+
+
+-----
+
+####  宛若青空  
+##### 1641#       发表于 2021-6-18 20:17
+
+
+ 本帖最后由 宛若青空 于 2021-6-18 20:18 编辑 
+
+笑死，说在场有PS5的举手
+
+
+然后意外的是下地紫野举手了，只有她举手<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  剑布衣  
+##### 1642#       发表于 2021-6-18 20:18
+
+
+4人组男性，现在比较火的胡子男吧（
+
+
+-----
+
+####  D-JoeII  
+##### 1643#       发表于 2021-6-18 20:22
+
+
+破壞王松岡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  The_Fool_  
+##### 1644#       发表于 2021-6-18 20:22
+
+
+直播效果满分<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  宛若青空  
+##### 1645#       发表于 2021-6-18 20:23
+
+
+游戏菜单界面其实是有角色立绘的，不过现在还没放进去。
+
+
+-----
+
+####  godless2020  
+##### 1646#       发表于 2021-6-18 20:26
+
+
+万代南梦宫预告，将于7月5日北京时间20点举办《传说》系列25周年纪念特别直播节目，公开《破晓传说》最新情报，包括尚未解禁的全新情报、由男女主声优佐藤拓也与下地紫野操作演示的全新实机影像、OP动画与OP曲情报等。富泽制作人先透露了一些OP演唱者的情报，是一个由四个男子组成的乐队，在正式发表前，大家可以猜一猜<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宛若青空  
+##### 1647#       发表于 2021-6-18 20:26
+
+
+下个月就能看到OP动画和主题曲了啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  安广多惠子  
+##### 1648#       发表于 2021-6-18 20:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">男子四人组，金爆（
+
+
+-----
+
+####  EigenVesper  
+##### 1649#       发表于 2021-6-18 20:29
+
+
+四个男子组成的乐队，那么有可能是king gnu或者Official髭男dism么
+
+
+-----
+
+####  qiyu1234  
+##### 1650#       发表于 2021-6-18 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51656968&amp;ptid=1860328" target="_blank">bgmilk 发表于 2021-6-18 20:15</a>
+感觉连携技的演出有点长，镜头也固定，感觉重复感比tox厉害.... 不知道是不是只有我有这个感觉。 ...</blockquote>
+演示版本只放了三种连携技，正式版种类会多一些
+
+
+
+
+-----
+
+####  sliver1997  
+##### 1651#       发表于 2021-6-18 20:30
+
+
+男子四人，答案是纯烈，澡堂情歌<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bgmilk  
+##### 1652#       发表于 2021-6-18 20:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51657155&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-18 20:29</a>
+
+演示版本只放了三种连携技，正式版种类会多一些</blockquote>
+      主要是觉得作为非奥义来说演出有点拖拉.....希望只是自己没玩只是看还有种类还没填上的原因。
+
+
+-----
+
+####  Kedger  
+##### 1653#       发表于 2021-6-18 20:32
+
+
+四人男子乐队，棒棒鸡能再来唱一次吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  laoz  
+##### 1654#       发表于 2021-6-18 20:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">果然不肯放demo，应该是7月爆完料才放了
+
+
+-----
+
+####  医生狼多  
+##### 1655#       发表于 2021-6-18 21:04
+
+
+只能先玩绯红过过瘾了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宛若青空  
+##### 1656#       发表于 2021-6-18 21:16
+
+
+几张店铺特典新图的完成版
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/211631spicluj92clvjqvp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>resize_image.jpg</strong> (184.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 21:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/211630s88rsyq86uhe4bcs.png" referrerpolicy="no-referrer">
+
+
+<strong>img_amazon_01.png</strong> (118.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 21:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/211630mubifuozlzhofbom.png" referrerpolicy="no-referrer">
+
+
+<strong>img_geo_01.png</strong> (72.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 21:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/211630btm88ttpwsguuptg.png" referrerpolicy="no-referrer">
+
+
+<strong>img_seven_01.png</strong> (82.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 21:16 上传
+
+
+                                                

@@ -1377,3 +1377,64 @@ PS.希望成品不是第一人称
 
 
                                                  
+
+-----
+
+####  Eadric  
+##### 93#       发表于 2021-6-18 20:04
+
+
+konami发的推
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/200357vi0ioieyzg54e8ew.png" referrerpolicy="no-referrer">
+
+
+<strong>IMG_1088.PNG</strong> (828.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 20:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/200404xp3iip33yqkumqzk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_1089.JPG</strong> (139.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 20:04 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  电磁炮233  
+##### 94#       发表于 2021-6-18 20:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">好起来了，konami努努力把IP都卖出去吧
+
+
+-----
+
+####  平井姨夫  
+##### 95#       发表于 2021-6-18 20:21
+
+
+如果只是模仿犯，会被岛迷彻底反噬吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kuker53  
+##### 96#       发表于 2021-6-18 20:46
+
+
+妈的我看着也不确定了，真觉得只是个整活，别搞人心态啊
+
+
+                                                 
