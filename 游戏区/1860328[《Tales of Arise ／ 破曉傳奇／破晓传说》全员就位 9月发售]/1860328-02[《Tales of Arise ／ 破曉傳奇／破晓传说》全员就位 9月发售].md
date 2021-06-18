@@ -1522,3 +1522,79 @@ PC
 
 
                                                  
+
+-----
+
+####  qiyu1234  
+##### 1618#       发表于 2021-6-18 17:14
+
+
+以前右摇杆是可以放置技能的
+
+现在要作为视角调整用了
+
+
+-----
+
+####  qiyu1234  
+##### 1619#       发表于 2021-6-18 17:20
+
+
+话说这作的普攻没有细化系统了吗？
+
+总觉得还有东西没讲出来
+
+
+-----
+
+####  laoz  
+##### 1620#       发表于 2021-6-18 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655152&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-18 17:20</a>
+
+话说这作的普攻没有细化系统了吗？
+
+总觉得还有东西没讲出来</blockquote>
+还有两个多月呢，不可能现在就把家底放到demo里面
+
+
+
+
+-----
+
+####  宛若青空  
+##### 1621#       发表于 2021-6-18 17:38
+
+
+ 本帖最后由 宛若青空 于 2021-6-18 17:44 编辑 
+
+关于“派生技”
+
+[https://youtu.be/XFvuKAth_0w](https://youtu.be/XFvuKAth_0w)
+
+
+刚刚又看了个欧美的演示，从4:00开始里面有一段是操作者先是用了“爪龙连牙斩”的第一个动作，然后马上变成释放派生技“刚华爆炎阵”，居然没有完整放完“爪龙连牙斩”？？
+
+不知道到底是一定要接在普通技后才能释放派生技，还是说只要长按就可以直接释放派生技，目前日媒两个说法都有<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+补充：看到了游戏视频里的官方教程直接说了奥尔芬的火剑派生技是接在普通技后面的，但是我上面发现的那个问题就变成疑似可以打断普通技直接释放派生技？
+
+
+-----
+
+####  laoz  
+##### 1622#       发表于 2021-6-18 17:48
+
+
+ 本帖最后由 laoz 于 2021-6-18 17:52 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655365&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-18 17:38</a>
+
+关于“派生技”
+
+[https://youtu.be/XFvuKAth_0w](https://youtu.be/XFvuKAth_0w)</blockquote>
+那玩意是魔神剑，不是爪龙
+
+
+                                                

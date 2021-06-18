@@ -14637,3 +14637,138 @@ Deadline: Aug 1 23:59 JST / 07:59 PDT
 
 
                                                  
+
+-----
+
+####  purdre  
+##### 2659#       发表于 2021-6-18 16:40
+
+
+下巴这种只和日语圈观众高强度互动直播的哪有牛郎自言自语装疯卖傻还能唱跳的好看，EN自然要挑一个英语圈也能看懂的V来撑场面啊
+
+
+（下巴，我的下巴<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  purdre  
+##### 2660#       发表于 2021-6-18 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51654060&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-18 15:50</a>
+
+说到下巴，最近很奇怪
+
+也没搞啥惊天企划的情况下，动不动平A2万甚至3万同接，突然就暴涨了 ...</blockquote>
+下巴直播频度低、互动强、内容浓度高、观众粘性很强。一个典型的有点口才的文科男。
+
+
+-----
+
+####  tankai  
+##### 2661#       发表于 2021-6-18 16:48
+
+
+真当HOLO随便进的？也不问问每期筛掉多少人。有公司录用就当给你一碗饭了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 2662#       发表于 2021-6-18 16:53
+
+
+gbr fanbox开了，虽然还没投稿
+https://www.fanbox.cc/@babutarosan
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  qq845629713  
+##### 2663#       发表于 2021-6-18 16:54
+
+
+<img src="https://i.loli.net/2021/06/18/5FDUd6sK1leBvfH.png" referrerpolicy="no-referrer">
+
+
+这企划从开始到现在，就几乎没发过另一位有关的消息，真是有够好笑的
+
+
+-----
+
+####  poipanchao  
+##### 2664#       发表于 2021-6-18 16:58
+
+
+本间应该是自从某次反抗之后就被雪藏了
+
+
+-----
+
+####  alcoholic1000  
+##### 2665#       发表于 2021-6-18 17:18
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-18 17:25 编辑 
+
+特意搜了一下，剣ちゃん同接中央値从去年开始就1w往上了，甚至可以说一直是一军水准
+
+要说为什么，就是有趣吧，「有点口才的文科男」+1<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+Syl，「にじさんじ」とのコラボカフェ第2弾開催決定！！
+
+西莉还不错，其他人都有点微妙
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/172449j2qwm7js7sxvdwii.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>「にじさんじ」とのコラボカフェ第2弾開催決定！！-1.jpeg</strong> (1.65 MB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 17:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/172448rwcs78skcieufwlj.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>「にじさんじ」とのコラボカフェ第2弾開催決定！！-2.jpeg</strong> (976.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 17:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/172525h62dmoxc4uxu6216.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>今夏期間限定でオープンするスイーツパラダイス江ノ島店(海の家)でもコラボカフェを開.jpeg</strong> (1.36 MB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 17:25 上传
+
+
+[https://twitter.com/SP_collabo/status/1405813266689925122](https://twitter.com/SP_collabo/status/1405813266689925122)
+
+
+-----
+
+####  IDIDIDID  
+##### 2666#       发表于 2021-6-18 17:33
+
+
+ 本帖最后由 IDIDIDID 于 2021-6-18 17:34 编辑 
+
+不过这年头套皮那么容易能有点本事的都自己出道了。
+
+
+所以也可能是你虹在nico生剩下的垃圾堆了淘了整整一年一个能播的货都找不出来（搞不好隔壁也一样），只好自己动手从零开始培养了。
+
+
+                                                 

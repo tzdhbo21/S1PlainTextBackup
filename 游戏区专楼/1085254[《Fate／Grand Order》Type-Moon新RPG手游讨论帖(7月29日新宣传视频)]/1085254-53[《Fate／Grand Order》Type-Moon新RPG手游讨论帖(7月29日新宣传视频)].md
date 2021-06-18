@@ -15605,3 +15605,61 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79282#       发表于 2021-6-18 17:03
+
+
+无事发生
+
+
+-----
+
+####  alucardcz  
+##### 79283#       发表于 2021-6-18 17:03
+
+
+然而无事发生
+
+玩家想到的。舍弃<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79284#       发表于 2021-6-18 17:21
+
+
+听说无事发生就往摩根池子里丢了石头
+
+
+然后我4个月没五星的记录到此为止了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79285#       发表于 2021-6-18 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655158&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-18 17:21</a>
+
+听说无事发生就往摩根池子里丢了石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧  萌新今年依然无一新5星
+
+
+-----
+
+####  selfcest  
+##### 79286#       发表于 2021-6-18 17:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51614820&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-15 21:24</a>
+
+我认为所谓的ml从者，ml中的master指的都是玩家而不是立香，立香这个角色的箭头只指向马修一个人，2.6第9 ...</blockquote>
+这还不如战友情呢，完全想不起来咕哒这个人，乐呵呵地被人贩子卖了还帮人数钱，后来见面也认不出来要靠令咒强行恢复记忆，凉薄至此，也就比路人强点了。
+
+
+                                                 
