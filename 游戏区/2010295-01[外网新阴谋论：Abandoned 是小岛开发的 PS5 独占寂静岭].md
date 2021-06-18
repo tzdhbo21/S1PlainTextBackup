@@ -860,3 +860,213 @@ BLUE BOX游戏工作室
 
 
                                                  
+
+-----
+
+####  Eadric  
+##### 55#       发表于 2021-6-18 11:43
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/114337ddmn1mj8yaxth2ab.png" referrerpolicy="no-referrer">
+
+
+<strong>3jst2befcx571.png</strong> (33.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 11:43 上传
+
+
+太草了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  沁雅畅慧  
+##### 56#       发表于 2021-6-18 11:49
+
+
+如果是嗯蹭，那这大哥应该多少有点门路，毕竟都能在ps blog发文……
+
+
+-----
+
+####  jajajzz  
+##### 57#       发表于 2021-6-18 11:52
+
+
+看了眼4ch，他们的主要分析点在小岛前阵子发了个歌手名，这人有首歌词里既有Silent Hill又有abandoned.
+
+不得不说如果这乌龙了，这游戏基本是别想卖了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoyianwu  
+##### 58#       发表于 2021-6-18 12:09
+
+
+Geoff Keighley
+The Game Awards Mastermind Verified
+9 minutes ago
+#1,747
+Hasan contacted me again, he’s going to send 
+me an email with some images I can post. I will share what I get.
+Geoff说他收到了Hasan寄来的一些图，一会发
+大的要来了
+
+
+-----
+
+####  矢量路比  
+##### 59#         楼主| 发表于 2021-6-18 12:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51651365&amp;ptid=2010295" target="_blank">沁雅畅慧 发表于 2021-6-18 11:49</a>
+
+如果是嗯蹭，那这大哥应该多少有点门路，毕竟都能在ps blog发文……</blockquote>
+这个其实正常的，PS Blog 上的文章大部分都是由开发商员工名义发布，即便是第三方
+
+
+-----
+
+####  矢量路比  
+##### 60#         楼主| 发表于 2021-6-18 12:22
+
+
+再添一把火吧
+
+
+Hasan Kahraman 在 App Store 上上架了很多应用，其中大部分都是垃圾游戏，唯独有一款不属于游戏的应用，叫做[《Go Fit XL》](https://apps.apple.com/cn/app/go-fit-xl/id1531829096)：
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/122106icrplepa7mct2fp6.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-06-18 12_20_42-‎Hasan Kahraman - iPad 与 iPhone.png</strong> (62.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 12:21 上传
+
+
+然后呢，点开这个应用，会发现描述里写着「Personal Training ( PT ) Programs」……
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/122229k0mq4b3tz07h8om7.png" referrerpolicy="no-referrer">
+
+
+<strong>20210618122213.png</strong> (67.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 12:22 上传
+
+
+
+
+-----
+
+####  haruhiismer  
+##### 61#       发表于 2021-6-18 12:34
+
+
+岛粉迷惑行为<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真实之影  
+##### 62#       发表于 2021-6-18 12:39
+
+
+感觉不像是小岛而是小岛粉干的
+
+就是说不定还真是寂静岭新作？我记得灵媒那个制作组想做来着的？
+
+
+-----
+
+####  Cranberries  
+##### 63#       发表于 2021-6-18 12:40
+
+
+ 本帖最后由 Cranberries 于 2021-6-18 12:44 编辑 
+
+<img src="https://p.sda1.dev/2/ee02cf5e2413d2d310737bc309296a85/IMG_CMP_247765185.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/2846ef9456ade79195c594bbe0bffcc4/IMG_CMP_169732616.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Senbascira  
+##### 64#       发表于 2021-6-18 12:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51651229&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-18 11:39</a>
+https://www.reddit.com/r/TheBlueBoxConspiracy/
+
+拓展阅读
+
+有篇挺有意思的，说是小岛和骚尼买了kickstarte ...</blockquote>
+很务实，有可能
+
+
+-----
+
+####  哈罗  
+##### 65#       发表于 2021-6-18 12:42
+
+
+era盖了快2000楼了，推的热度也不是一般工作室能比的，不管真的假的这波营销血赚<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  D-JoeII  
+##### 66#       发表于 2021-6-18 12:57
+
+
+比較好奇如果是真的但這又有什麼意義,死亡擱淺說明小島的遊戲銷量也就那樣,這次還浪費了一些錢搞了個拿UE4做的trailer
+
+再整活也不會整出千萬遊戲出來
+
+
+-----
+
+####  晨曦之下  
+##### 67#       发表于 2021-6-18 13:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652219&amp;ptid=2010295" target="_blank">D-JoeII 发表于 2021-6-18 12:57</a>
+比較好奇如果是真的但這又有什麼意義,死亡擱淺說明小島的遊戲銷量也就那樣,這次還浪費了一些錢搞了個拿UE4 ...</blockquote>
+新游戏最缺热度
+至少现在很多人知道了
+
+
+-----
+
+####  D-JoeII  
+##### 68#       发表于 2021-6-18 13:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652271&amp;ptid=2010295" target="_blank">晨曦之下 发表于 2021-6-18 13:02</a>
+
+新游戏最缺热度
+
+至少现在很多人知道了</blockquote>
+你這句除非小島製作人是假的,這工作室去碰瓷小島才成立啊,不然像死亡擱淺那樣正常公佈都很夠熱度了
+
+
+-----
+
+####  byisme001  
+##### 69#       发表于 2021-6-18 13:11
+
+
+<blockquote>D-JoeII 发表于 2021-6-18 13:10
+你這句除非小島製作人是假的,這工作室去碰瓷小島才成立啊,不然像死亡擱淺那樣正常公佈都很夠熱度了 ...</blockquote>
+那当年mgsv为什么要弄个假的
+
+
+                                                

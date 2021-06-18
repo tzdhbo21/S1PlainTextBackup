@@ -15463,3 +15463,40 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79272#       发表于 2021-6-18 11:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天是不是会发生点什么 总不能直接长草到7月开下半吧
+
+
+-----
+
+####  黑上シグマ  
+##### 79273#       发表于 2021-6-18 12:02
+
+
+<blockquote>引用第79271楼alucardcz于2021-06-18 11:59发表的  :
+
+今天是不是会发生点什么 总不能直接长草到7月开下半吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">PU2啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  khxooo  
+##### 79274#       发表于 2021-6-18 12:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51651516&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-18 11:59</a>
+今天是不是会发生点什么 总不能直接长草到7月开下半吧</blockquote>
+兰斯萝特，帕西瓦尔选一个<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

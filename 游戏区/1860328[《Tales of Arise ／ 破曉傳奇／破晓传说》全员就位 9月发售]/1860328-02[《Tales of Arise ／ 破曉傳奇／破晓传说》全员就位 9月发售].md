@@ -1244,3 +1244,114 @@ R2+方向键，TOB就是防御加方向键</blockquote>
 
 
                                                  
+
+-----
+
+####  猫将军  
+##### 1596#       发表于 2021-6-18 11:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602497&amp;ptid=1860328" target="_blank">法拉 发表于 2021-6-15 00:56</a>
+又不是非得恋爱上头才叫不性冷淡，那得有多少游戏是性冷淡游戏啊……你举得例子一大半不都是幼驯染俩小无 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  猫将军  
+##### 1597#       发表于 2021-6-18 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51612426&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-15 18:07</a></blockquote>
+幻想传说、永恒传说、宿命传说2、仙乐传说、重生传说、神话传说、深渊传说、圣洁传说r、薄暮传说、心灵传说、圣恩传说f、无尽传说1和2、热情传说、狂战传说
+
+
+-----
+
+####  猫将军  
+##### 1598#       发表于 2021-6-18 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51612426&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-15 18:07</a></blockquote>
+看错了，我也想知道那些bgm，估计是战斗bgm吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  新條直輝  
+##### 1599#       发表于 2021-6-18 12:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">林薇儿和罗连携的的cutin太好看了，老婆
+
+
+-----
+
+####  ranapocket  
+##### 1600#       发表于 2021-6-18 12:38
+
+
+战斗结束没演出真的好不习惯。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leonlink  
+##### 1601#       发表于 2021-6-18 12:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">为啥B站和微博都有人在说敌人浮空很僵硬，看视频的时候完全没意识到呀
+
+
+-----
+
+####  leonlink  
+##### 1602#       发表于 2021-6-18 12:46
+
+
+卧槽，被战斗BGM鸟肌了，感觉是以前从来没有过的风格，赞爆！！！
+
+
+-----
+
+####  宛若青空  
+##### 1603#       发表于 2021-6-18 12:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649053&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-18 08:46</a>
+
+按照五一的套路就是声优玩这个demo，富泽解说里面的东西，希望结束后来个大的，把demo放出来 ...</blockquote>
+说中了，看看今晚还有什么别的消息吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/125029nl11lgno0lzq3f1d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>98987996-6792-4665-8402-1965A136BC1C.jpeg</strong> (163.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 12:50 上传
+
+
+-----
+
+####  rak1  
+##### 1604#       发表于 2021-6-18 12:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">希望有demo
+
+
+-----
+
+####  饮度  
+##### 1605#       发表于 2021-6-18 12:54
+
+
+为啥这演示看着挺炫酷的，那为啥当初预告看着那么拉跨<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+                                                 

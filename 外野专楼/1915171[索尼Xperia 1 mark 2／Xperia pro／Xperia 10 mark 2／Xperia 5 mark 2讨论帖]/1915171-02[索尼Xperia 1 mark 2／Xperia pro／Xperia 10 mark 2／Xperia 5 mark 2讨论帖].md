@@ -16551,3 +16551,18 @@ twiiter和b站全屏之后，边缘触控位置不灵敏
 
 
                                                  
+
+-----
+
+####  ut0  
+##### 2724#       发表于 2021-6-18 12:32
+
+
+谢谢大家推荐，就等着机器到了先贴膜再用了。
+另外还有夶有ROOT的资源吗？
+以前都是在机锋论坛上找的线刷包和ROOT程序，现在随便搜了下，好像没以前那样好找了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX2117, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
