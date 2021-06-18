@@ -2035,3 +2035,107 @@ PC
 
 
                                                  
+
+-----
+
+####  中泽君  
+##### 1658#       发表于 2021-6-18 22:07
+
+
+ 本帖最后由 中泽君 于 2021-6-18 22:23 编辑 
+
+这共鸣技有没有说触发条件，看视频控制男主也是打出罗和林薇尔的，也看过两个后排角色的，该不会是自动触发吧
+
+琪莎拉武器换的是盾牌，怎么换个盾牌用锤子砸人也变痛了
+
+
+-----
+
+####  laoz  
+##### 1659#       发表于 2021-6-18 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658556&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-6-18 22:07</a>
+
+这共鸣技有没有说触发条件，看视频控制男主也是打出罗和林薇尔的，也看过两个后排角色的，该不会是自动触发 ...</blockquote>
+怪物菱形满了就能发动，按方向键发动，这个就是TOV的FS系统改过来的
+
+
+-----
+
+####  中泽君  
+##### 1660#       发表于 2021-6-18 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658723&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-18 22:22</a>
+
+怪物菱形满了就能发动，按方向键发动，这个就是TOV的FS系统改过来的</blockquote>
+这个比较复杂一点，因为是两个角色参与的，看视频不是由操作角色+方向对应角色组成
+
+如果是两下方向感觉会麻烦
+
+如果是点一下方向，就不知另外一个是怎么选定的。
+
+
+-----
+
+####  laoz  
+##### 1661#       发表于 2021-6-18 22:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658867&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-6-18 22:35</a>
+
+这个比较复杂一点，因为是两个角色参与的，看视频不是由操作角色+方向对应角色组成
+
+如果是两下方向感觉会 ...</blockquote>
+共鸣技应该是通过设置不同的技能绑定不同的人，所以在发动的时候按对应人物的方向键即可，不需要按组合角色
+
+
+-----
+
+####  qiyu1234  
+##### 1662#       发表于 2021-6-18 22:39
+
+
+ 本帖最后由 qiyu1234 于 2021-6-18 22:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658411&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-6-18 21:59</a>
+
+这还拖拉？看着就爽啊，TOX那是绑定2人，并且共鸣技才能打出高伤害，而TOAR这款自由度很大，就像TOD2的秘 ...</blockquote>
+TOX共鸣技切link对象也能即时更换队友
+
+而且共鸣技种类多，OVL中可以不同共鸣技连着放还是挺爽的
+
+这作Boost Strike性质和释放条件跟共鸣技不一样，具体还是得看实际游戏内的情况
+
+
+-----
+
+####  qiyu1234  
+##### 1663#       发表于 2021-6-18 22:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658867&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-6-18 22:35</a>
+
+这个比较复杂一点，因为是两个角色参与的，看视频不是由操作角色+方向对应角色组成
+
+如果是两下方向感觉会 ...</blockquote>
+TOAR的话，就是触发条件后对应人物按一下键的，然后控制角色跟你对应按键的人物释放Boost Strike，这个试玩只给了3个组合技，所以会发现主人公只触发了跟希侬的组合技，前面几页有讨论过
+
+
+-----
+
+####  隔壁老黄  
+##### 1664#       发表于 2021-6-18 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658914&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-18 22:39</a>
+
+TOX共鸣技切link对象也能即时更换队友
+
+而且共鸣技种类多，OVL中可以不同共鸣技连着放还是挺爽的
+
+这作Boost ...</blockquote>
+TOX是限定了要LINK才能打出高伤害，然后秘奥义不能LINK。。。
+
+
+                                                 

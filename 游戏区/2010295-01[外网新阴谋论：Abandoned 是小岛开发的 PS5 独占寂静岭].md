@@ -1496,3 +1496,84 @@ https://sys.4channel.org/derefer?url=https%3A%2F%2Fstreamable.com%2F4cpk ...</bl
 
 
                                                  
+
+-----
+
+####  Cranberries  
+##### 101#       发表于 2021-6-18 22:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658490&amp;ptid=2010295" target="_blank">Eadric 发表于 2021-6-18 22:04</a>
+这trailer最后还有张图</blockquote>
+reddit有人找到出处了。
+我看到的时候确实感觉很假，果然。
+Never trust 4chan
+
+
+-----
+
+####  Eadric  
+##### 102#       发表于 2021-6-18 22:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658663&amp;ptid=2010295" target="_blank">Cranberries 发表于 2021-6-18 22:16</a>
+reddit有人找到出处了。
+我看到的时候确实感觉很假，果然。
+Never trust 4chan ...</blockquote>
+好像是，不愧是4chan
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  acejoe  
+##### 103#       发表于 2021-6-18 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658663&amp;ptid=2010295" target="_blank">Cranberries 发表于 2021-6-18 22:16</a>
+reddit有人找到出处了。
+我看到的时候确实感觉很假，果然。
+Never trust 4chan ...</blockquote>
+出处是啥？
+
+
+-----
+
+####  diketuiduoLI  
+##### 104#       发表于 2021-6-18 22:54
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/225450ubhdbavkgax68axe.png" referrerpolicy="no-referrer">
+
+
+<strong>ExponentAsset-96ace39482412fe212fd08da9a3fa181.png</strong> (293.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 22:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/225450hn59k4wn50ivq0i5.png" referrerpolicy="no-referrer">
+
+
+<strong>5a4472c9567704d5.png</strong> (66.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 22:54 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  acejoe  
+##### 105#       发表于 2021-6-18 22:56
+
+
+只能说整活能养活一堆游戏区播客了。
+
+
+                                                 
