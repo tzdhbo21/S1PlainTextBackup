@@ -14293,3 +14293,190 @@ tx一来杏anti就自动投诚了。关键是鹅场看不看得上vtb。
 
 
                                                  
+
+-----
+
+####  free  
+##### 2633#       发表于 2021-6-18 10:38
+
+
+[https://twitter.com/NIJISANJI_World/status/1405706837660295173](https://twitter.com/NIJISANJI_World/status/1405706837660295173)
+
+【#NIJISANJI_EN launches TWO VTuber auditions】
+
+
+红色向下三角Female Character VTuber audition:
+[https://forms.gle/WY7GVNhsWsc4zdJE6](https://forms.gle/WY7GVNhsWsc4zdJE6)
+
+Deadline: July 11 23:59 JST / 07:59 PDT 
+
+
+红色向下三角Male Character VTuber audition:
+[https://forms.gle/CKiNd1tBAQSAFSwp8](https://forms.gle/CKiNd1tBAQSAFSwp8)
+
+Deadline: Aug 1 23:59 JST / 07:59 PDT 
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/103822j9ps8pb7975nrmh9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (403.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 10:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/103822mkq6xkwe3u6crbt1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (428.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 10:38 上传
+
+
+                                                 
+
+-----
+
+####  死体残留  
+##### 2634#       发表于 2021-6-18 11:22
+
+
+一期4个隔壁ina的感觉，不会审美疲劳么还是特么全日式鬼怪有调研欧美兴趣么？
+男的居然摆双黑不破社长做广告，打算招摁打游戏和开live的人么，海外组一到两年也没可能有3d开live吧。嗯打游戏倒是2d就够了，但是和欧美那群主播不会疯狂内卷？
+
+
+-----
+
+####  FCCHua  
+##### 2635#       发表于 2021-6-18 11:29
+
+
+又开始快速抽卡了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 2636#       发表于 2021-6-18 11:50
+
+
+[https://twitter.com/VMA2020_12_28/status/1405722042704416769](https://twitter.com/VMA2020_12_28/status/1405722042704416769)
+
+战利品#ブイアワ战利品
+
+2021/07/03~07/04 オンラインにて
+
+「Virtual Music Award 2021 SUMMER」開催！
+
+
+本日 よりチケット販売開始！
+
+オンライン（ミクチャ）にて視聴できます耳机
+
+
+全参加アーティスト集合ビジュアルはコチラ！！闪片
+
+
+▼特設ページ
+[http://vma2021.jp](http://vma2021.jp)
+
+
+7.3-7.4，两天三场，单场票价4000
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/115050tof11ig1ec3g1uqx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>vma.jpg</strong> (719.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 11:50 上传
+
+
+-----
+
+####  真飞鸟i  
+##### 2637#       发表于 2021-6-18 12:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">木口en即将迎来铁球吉姆的海洋还是els的浪潮呢，总而言之，木口已无可用之兵！
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  渡鸦骑士  
+##### 2638#       发表于 2021-6-18 12:14
+
+
+啊床也开始参加这种拼盘live了啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  CielChloe  
+##### 2639#       发表于 2021-6-18 12:18
+
+
+以前这种活动一般是德龙或阿绿，现在也该轮到19组了
+
+
+-----
+
+####  万年2位35P  
+##### 2640#       发表于 2021-6-18 12:24
+
+
+[https://twitter.com/ragori_jp/status/1405722183876419590](https://twitter.com/ragori_jp/status/1405722183876419590)<blockquote>#アルス・アルマル #本間ひまわり #笹木咲
+
+#にじさんじ のライバーによる＼実況プレイ！動画生配信が決定／
+
+①6月29日（火）18:00頃～
+
+②6月30日（水）19:00頃～
+
+#ラグオリ をプレイしながら楽しさを紹介！
+
+当日の生配信をより楽しむためにも今からストア予約をお忘れなく！
+[https://rao.onelink.me/0F7p/11a061d9](https://rao.onelink.me/0F7p/11a061d9)</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/18/122409xs4m1h3hnhyhon4r.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E4IakuoVcAA1P1x.jpg</strong> (206.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 12:24 上传
+
+
+                                                 
+
+-----
+
+####  NBXX  
+##### 2641#       发表于 2021-6-18 12:48
+
+
+[https://prtimes.jp/main/html/rd/p/000000266.000030865.html](https://prtimes.jp/main/html/rd/p/000000266.000030865.html) <blockquote>にじさんじ発タレント育成プロジェクト「バーチャル・タレント・アカデミー」開講決定！本日6月18日(金)より第1期候補生募集開始！
+
+バーチャル世界で羽ばたく「タレント」を、本気で目指す皆様へのご案内。エントリーは、2021年7月5日(月)まで。</blockquote>
+<img src="https://prtimes.jp/i/30865/266/resize/d30865-266-246482-2.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 2642#       发表于 2021-6-18 13:14
+
+
+这是招练习生？还是没吃够乱下饺子的苦是吧
+
+
+                                                 

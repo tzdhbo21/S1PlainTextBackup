@@ -12239,3 +12239,155 @@ syl [https://www.youtube.com/watch?v=I5Ulyot_NUU](https://www.youtube.com/watch?
 
 
                                                  
+
+-----
+
+####  ashero  
+##### 17583#       发表于 2021-6-18 12:35
+
+
+开头聊看了一些投资人的空间 刚打开的时候发现希瓜也在打了一声招呼
+
+
+说自己之前中午十二点起 然后就是联动 最近都是打游戏联动这样循环下来 然后刚好发现别人的空间直播很感兴趣就研究了一下 听了一些投资人的空间（和那条推说的差不多） 刚开始单口没评论区 后来想到了直播hashtag 
+
+
+开头还有人说她这空间直播私密感更强了感觉像和女朋友聊天 但是明明自己器材什么的完全和手机tc就没什么区别的  观察了一下听众里面有发现以前经常看到的观众 最近没怎么见到是不喜欢自己了吗 但是这次看到了所以还是喜欢自己的吧
+
+一直有人向她发麦克风请求 难道是宅宅想和我说话吗 宅宅想和我说话还是下辈子吧（然后马上道歉）
+
+
+然后说自己今天会练习麻将 也会播 最近稍微没有收入了所以要播 评论说这个推特直播没法打钱
+
+
+ 就说其实并没什么所谓  继续聊空间的事情 说自己进了四五个空间看了下别人怎么玩的 也有看到有些空间里面那些男的的头像都是自己喜欢类型的男的的头像的感觉 还有一些空间是开放发言的 听了下就像是（「寢落ち電話」
+
+即是使用免費通訊程式與朋友或男女朋友通話/視像通話，然後一直保持通話狀態，睡著了也不會掛線，到翌晨就說聲早安，然後掛線。）
+
+ 然后有的没的聊了一下 因为聊到快睡觉的话题于是决定去刷牙了
+
+
+刷牙直播-- 然后和观众说这次空间不就是「寢落ち電話」
+
+即是使用免費通訊程式與朋友或男女朋友通話/視像通話，然後一直保持通話狀態，睡著了也不會掛線，到翌晨就說聲早安，然後掛線。） 后面问漱口水的保质期有多久 得到答案是三年之后用了一下漱口水 然后聊到之前好像有什么漱口水找过vtb做工商什么的事情
+
+不是有花味的漱口水吗但是自己从来没吃过花那是什么味道
+
+
+光速跑回寝室（喘气了一下）聊起自己寻求的女人的三个条件 说自己声音很可爱之类的话 聊了会话题转到舞元 说自己喜欢舞元是真喜欢 但是大家应该能理解和舞元是不可能成的自己也了解 首先私下私密交往就不可能 模仿了一下下播变个样子的自己 然后说自己有被moe（）起来的祝福的准备
+
+
+然后突发奇想开始了化妆品介绍（很长 闭麦去拿过来一个个数着来介绍的）然后是化妆品上次出门才用过（但是好像很久没出门了）
+
+
+后来开始聊最近的作息 被观众吐槽根本昼夜颠倒 她反呛回去   得出结论 我活着就很了不起了
+
+
+准备跑了 说了下pso2是人生啊 然后说最近没拿到钱 该播了 自己还要研究一下空间 大家晚安886
+
+
+大概的repo
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|好评加鹅|
+| 时间在我手中| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+                                                 
+
+-----
+
+####  Cortana  
+##### 17584#       发表于 2021-6-18 12:56
+
+
+喜欢舞元是真喜欢？那种想成为恋人的喜欢吗？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 17585#       发表于 2021-6-18 12:59
+
+
+大叔控是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 17586#       发表于 2021-6-18 13:09
+
+
+去年还会说联动只是工作不要往心里去，这人扯谎的技术还是一如既往的臭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于喜欢如果是真的我建议舞元早点接盘，如果是假的建议主播不要骗自己，2个月没动的组合突然就夫妻上镜鬼才信，合着地下恋情是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，推特直播能把每个观众特定，还是找到了一些蛮有意思的人的，竹花和l2d师都来过，阿希大号直接冲进来你楼人应该都知道了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 17587#       发表于 2021-6-18 13:16
+
+
+🦄真的是<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+              
+
+小麻故事会这么强，以后一定让她天天给孩子讲故事听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17588#       发表于 2021-6-18 13:18
+
+
+这个推特空间是只能主持人发声 其他人只能听是吗 之前看到关注的画师也弄了这个空间 但是也有其他人说话 还是说自己设置的？
+
+
+-----
+
+####  T_Hb  
+##### 17589#       发表于 2021-6-18 13:19
+
+
+今天的播是麻将练习呢还是歌回呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17590#       发表于 2021-6-18 13:22
+
+
+估计大会之前都是麻将联动吧 然后阴间给你整个tc或者fleet 又多了个能直播的平台呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 17591#       发表于 2021-6-18 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652439&amp;ptid=1973472" target="_blank">Klience 发表于 2021-6-18 13:18</a>
+
+这个推特空间是只能主持人发声 其他人只能听是吗 之前看到关注的画师也弄了这个空间 但是也有其他人说话 还 ...</blockquote>
+*主播已开启全体禁言*<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
