@@ -1438,3 +1438,61 @@ konami发的推
 
 
                                                  
+
+-----
+
+####  acejoe  
+##### 97#       发表于 2021-6-18 21:58
+
+
+要是整活的是科那米……想想就有劲。
+
+
+-----
+
+####  Cranberries  
+##### 98#       发表于 2021-6-18 22:01
+
+
+new trailer leaked on 4chan
+https://sys.4channel.org/derefer?url=https%3A%2F%2Fstreamable.com%2F4cpktw
+真假自行辨别。
+
+
+-----
+
+####  Eadric  
+##### 99#       发表于 2021-6-18 22:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51658440&amp;ptid=2010295" target="_blank">Cranberries 发表于 2021-6-18 22:01</a>
+new trailer leaked on 4chan
+https://sys.4channel.org/derefer?url=https%3A%2F%2Fstreamable.com%2F4cpk ...</blockquote>
+这trailer最后还有张图<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/220401nllks4hhss56skhs.png" referrerpolicy="no-referrer">
+
+
+<strong>IMG_1091.PNG</strong> (293.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 22:04 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  walfeds  
+##### 100#       发表于 2021-6-18 22:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">生怕人认不出来是吧
+
+到时候模仿犯下不来台就好笑了
+
+
+                                                 

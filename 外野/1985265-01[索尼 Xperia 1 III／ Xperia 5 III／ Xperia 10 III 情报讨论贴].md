@@ -9055,3 +9055,59 @@ au的都发售了，港版还要等<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  allenz3  
+##### 645#       发表于 2021-6-18 20:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51656398&amp;ptid=1985265" target="_blank">Nanachi 发表于 2021-6-18 19:26</a>
+建议顺手弃用微信QQ等其他毒瘤，不能只打一个啊</blockquote>
+人家用啥关你屁事，你是淘宝股东？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Nanachi  
+##### 646#       发表于 2021-6-18 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51657446&amp;ptid=1985265" target="_blank">allenz3 发表于 2021-6-18 20:51</a>
+
+人家用啥关你屁事，你是淘宝股东？
+
+
+—— 来自 S1Fun</blockquote>
+人家说啥关你屁事，你是论坛管理？
+
+
+-----
+
+####  allenz3  
+##### 647#       发表于 2021-6-18 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51657470&amp;ptid=1985265" target="_blank">Nanachi 发表于 2021-6-18 20:53</a>
+
+人家说啥关你屁事，你是论坛管理？</blockquote>
+那你是论坛管理了？有种就别回我啊，我说啥也关你屁事！
+
+
+-----
+
+####  leystage  
+##### 648#         楼主| 发表于 2021-6-18 21:36
+
+
+大家心平气和呀…
+
+
+说起来我也是主力机上从不装支付宝的人，理由倒不是流氓啥的，而是因为过去十年里好像确实从来没有要在手机上用支付宝的需求…那时候也没有指纹不指纹的，纯粹就是不需要。后来是微信支付出现后，就不再用信用卡付款了。直接跳过了支付宝。
+
+每个人的生活习惯不一样，相互理解吧
+
+
+                                                 

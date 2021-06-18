@@ -14879,3 +14879,73 @@ king的皮的版权现在到底在そにろじ手上还是2434手上？
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 2675#       发表于 2021-6-18 20:56
+
+
+绊爱身体不适到要退出雀魂大赛了，担忧…
+
+
+-----
+
+####  Aminor  
+##### 2676#       发表于 2021-6-18 21:00
+
+
+king播的荒野行动也太阴间了吧，为什么打游戏还有弹幕
+
+
+-----
+
+####  ppf  
+##### 2677#       发表于 2021-6-18 21:23
+
+
+郡道出现在ollie直播间 才知道她们有过推上互动所以认识 蛮奇妙的联系
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rzrbtk  
+##### 2678#       发表于 2021-6-18 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51657861&amp;ptid=1972669" target="_blank">ppf 发表于 2021-6-18 21:23</a>
+郡道出现在ollie直播间 才知道她们有过推上互动所以认识 蛮奇妙的联系
+
+—— 来自 Xiaomi Mi 10, Android 1 ...</blockquote>
+具体来说是有一天郡道惊觉Ollie推上fo了自己后回fo了，然后在discord上就被ollie搭讪表白了，之前大半夜杂谈也有刷出ollie出来聊天来着。不过我是不了解了，我对缝合皮肤要素不太行，都不敢看头像图。
+省一楼，siro来替绊爱打麻了，好姐妹啊
+
+
+-----
+
+####  gaiadc  
+##### 2679#       发表于 2021-6-18 21:35
+
+
+今年虹女的SC冠军已经没有悬念了
+
+
+-----
+
+####  free  
+##### 2680#       发表于 2021-6-18 21:38
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/213757xzhjfs1vhsjvlpaa.png" referrerpolicy="no-referrer">
+
+
+<strong>l2d.png</strong> (131.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 21:37 上传
+
+
+                                                 

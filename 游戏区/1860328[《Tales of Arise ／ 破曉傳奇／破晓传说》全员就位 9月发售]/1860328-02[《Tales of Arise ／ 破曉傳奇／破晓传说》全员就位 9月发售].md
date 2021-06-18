@@ -2021,3 +2021,17 @@ PC
 
 
                                                 
+
+-----
+
+####  隔壁老黄  
+##### 1657#       发表于 2021-6-18 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51657187&amp;ptid=1860328" target="_blank">bgmilk 发表于 2021-6-18 20:32</a>
+
+主要是觉得作为非奥义来说演出有点拖拉.....希望只是自己没玩只是看还有种类还没填上的原因。 ...</blockquote>
+这还拖拉？看着就爽啊，TOX那是绑定2人，并且共鸣技才能打出高伤害，而TOAR这款自由度很大，就像TOD2的秘奥义那样，会觉得腻？这演出速度跟TOG的秘奥义差不多长度（TOG的秘奥义演出都很短）
+
+
+                                                 

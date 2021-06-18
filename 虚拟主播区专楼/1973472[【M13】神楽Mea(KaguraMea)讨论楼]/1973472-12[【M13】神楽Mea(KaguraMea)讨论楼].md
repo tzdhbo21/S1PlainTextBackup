@@ -12907,3 +12907,29 @@ syl  查了下批准的辉瑞 、莫纳德、 阿斯康利三类疫苗，莫�
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 17640#       发表于 2021-6-18 21:31
+
+
+ 本帖最后由 T_Hb 于 2021-6-18 21:32 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/213032i04d4w6veid4nfzr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (52.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 21:30 上传
+
+
+老爱体调不良缺席雀魂二周年比赛，由小白替代参赛
+
+咩咩又碰不上了<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+                                                 
