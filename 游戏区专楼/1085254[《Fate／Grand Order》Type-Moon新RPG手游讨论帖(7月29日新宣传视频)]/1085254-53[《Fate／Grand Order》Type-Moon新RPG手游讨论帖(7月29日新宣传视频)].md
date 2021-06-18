@@ -15500,3 +15500,28 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79275#       发表于 2021-6-18 12:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然我希望是新活动，但是按照现在产能估计是做2.6下半部了。。
+
+
+-----
+
+####  exiaexa  
+##### 79276#       发表于 2021-6-18 13:24
+
+
+ 本帖最后由 exiaexa 于 2021-6-18 13:27 编辑 
+
+今天妖高羁绊拉满了去听了下语音，活该你P站图被妖催倍杀
+
+谐星是没有ghs的未来的，崇拜伊吹嘲讽呆毛（指身材）太草
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -1070,3 +1070,127 @@ era盖了快2000楼了，推的热度也不是一般工作室能比的，不管�
 
 
                                                 
+
+-----
+
+####  D-JoeII  
+##### 70#       发表于 2021-6-18 13:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652349&amp;ptid=2010295" target="_blank">byisme001 发表于 2021-6-18 13:11</a>
+
+那当年mgsv为什么要弄个假的</blockquote>
+因為當時還是FYK副總裁的小島有這個資源這麼玩,而且要展示Fox引擎
+
+當然如果小島這次改用UE不用Decima了,那可能也想再這麼整活一次
+
+
+-----
+
+####  luoyianwu  
+##### 71#       发表于 2021-6-18 13:19
+
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o2h9f6/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o2h9f6/)
+
+
+BLUE = 2 - 12 - 21 - 5
+
+荷兰用欧洲时间，日月年
+
+12/2/2021 寂静岭5
+
+差点就信了
+
+
+-----
+
+####  Eadric  
+##### 72#       发表于 2021-6-18 13:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652460&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-18 13:19</a>
+
+https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o2h9f6/
+
+
+BLUE = 2 - 12 - 21 - 5</blockquote>
+字 母 表 论 证<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cranberries  
+##### 73#       发表于 2021-6-18 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652460&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-18 13:19</a>
+https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o2h9f6/
+
+
+BLUE = 2 - 12 - 21 - 5</blockquote>
+这个人说对了。如果按照序号确实是5。silenthill在ts解散之后的寂静岭都是副标题，没有序号的。
+不过这个数字论证太艹了。
+
+
+-----
+
+####  DeerRua  
+##### 74#       发表于 2021-6-18 13:35
+
+
+想起了PT发布时的7780s，我有理由相信小岛喜欢搞这套
+
+
+-----
+
+####  luoyianwu  
+##### 75#       发表于 2021-6-18 13:36
+
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o2h75b/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o2h75b/)
+
+数字论证2，Kahraman的youtube账号是TwentySeven27，他的psn第27个奖杯的名字是”You knew, didn’t you?”
+跟幻痛pv的open your eyes风格接近
+
+
+-----
+
+####  byisme001  
+##### 76#       发表于 2021-6-18 13:36
+
+
+<blockquote>luoyianwu 发表于 2021-6-18 13:19
+https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o2h9f6/
+
+
+BLUE = 2 - 12 - 21 - 5
+</blockquote>
+114514呢
+
+
+-----
+
+####  DeerRua  
+##### 77#       发表于 2021-6-18 13:48
+
+
+又有人发现Abandoned的teaser用的bgm很像寂静岭2的原声the tunnel beckons
+
+
+-----
+
+####  那由  
+##### 78#       发表于 2021-6-18 13:57
+
+
+ 本帖最后由 那由 于 2021-6-18 13:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652648&amp;ptid=2010295" target="_blank">byisme001 发表于 2021-6-18 13:36</a>
+
+114514呢</blockquote>
+2+12+21+5=40=1+14+5*(1+4)
+
+Q.E.D.
+
+
+                                                 

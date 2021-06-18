@@ -12306,3 +12306,88 @@ syl [https://www.youtube.com/watch?v=I5Ulyot_NUU](https://www.youtube.com/watch?
 
 
                                                  
+
+-----
+
+####  Cortana  
+##### 17584#       发表于 2021-6-18 12:56
+
+
+喜欢舞元是真喜欢？那种想成为恋人的喜欢吗？<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MIX 2, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 17585#       发表于 2021-6-18 12:59
+
+
+大叔控是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 17586#       发表于 2021-6-18 13:09
+
+
+去年还会说联动只是工作不要往心里去，这人扯谎的技术还是一如既往的臭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+至于喜欢如果是真的我建议舞元早点接盘，如果是假的建议主播不要骗自己，2个月没动的组合突然就夫妻上镜鬼才信，合着地下恋情是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl，推特直播能把每个观众特定，还是找到了一些蛮有意思的人的，竹花和l2d师都来过，阿希大号直接冲进来你楼人应该都知道了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 17587#       发表于 2021-6-18 13:16
+
+
+🦄真的是<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+              
+
+小麻故事会这么强，以后一定让她天天给孩子讲故事听<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17588#       发表于 2021-6-18 13:18
+
+
+这个推特空间是只能主持人发声 其他人只能听是吗 之前看到关注的画师也弄了这个空间 但是也有其他人说话 还是说自己设置的？
+
+
+-----
+
+####  T_Hb  
+##### 17589#       发表于 2021-6-18 13:19
+
+
+今天的播是麻将练习呢还是歌回呢<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17590#       发表于 2021-6-18 13:22
+
+
+估计大会之前都是麻将联动吧 然后阴间给你整个tc或者fleet 又多了个能直播的平台呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 17591#       发表于 2021-6-18 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652439&amp;ptid=1973472" target="_blank">Klience 发表于 2021-6-18 13:18</a>
+
+这个推特空间是只能主持人发声 其他人只能听是吗 之前看到关注的画师也弄了这个空间 但是也有其他人说话 还 ...</blockquote>
+*主播已开启全体禁言*<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
