@@ -1194,3 +1194,94 @@ Q.E.D.
 
 
                                                  
+
+-----
+
+####  zzy516232108  
+##### 79#       发表于 2021-6-18 14:03
+
+
+假如这波是小岛，那就是营销成功
+
+如果不是小岛，那就是给工作室吸粉
+
+
+最终成品好玩，那就是新星诞生/岛哥哥又一力作
+
+最终成品垃圾，必然会被这波流量反噬吧。
+
+
+-----
+
+####  axl133  
+##### 80#       发表于 2021-6-18 14:05
+
+
+这楼爬完我整个人已经是岛学的形状了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DeerRua  
+##### 81#       发表于 2021-6-18 14:08
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/140805zn1z2os1kl3z33pq.png" referrerpolicy="no-referrer">
+
+
+<strong>likes.png</strong> (57.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 14:08 上传
+
+
+他妈的这个工作室推特甚至点赞了这个回复，这已经不是明目张胆的程度这是不装了
+
+
+图片.png
+(59.93 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-18 14:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/140743dxrssn6kxp4kdo89.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zzy516232108  
+##### 82#       发表于 2021-6-18 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51652989&amp;ptid=2010295" target="_blank">DeerRua 发表于 2021-6-18 14:08</a>
+
+他妈的这个工作室推特甚至点赞了这个回复，这已经不是明目张胆的程度这是不装了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，笑死我了
+
+
+-----
+
+####  电磁炮233  
+##### 83#       发表于 2021-6-18 14:34
+
+
+岛哥哥差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  acejoe  
+##### 84#       发表于 2021-6-18 14:40
+
+
+不像是小岛整活，但如果不是这波就是自杀式rpg，超级长风难度。
+
+
+                                                 

@@ -12391,3 +12391,65 @@ syl，推特直播能把每个观众特定，还是找到了一些蛮有意思�
 
 
                                                  
+
+-----
+
+####  D麦林  
+##### 17592#       发表于 2021-6-18 13:36
+
+
+我懂了 其实不联动是因为一直在偷偷搞恋情 哪天突然就宣布和五元结婚了<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  A2014720  
+##### 17593#       发表于 2021-6-18 13:44
+
+
+五元真的看得上她？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+自顾自的感动自顾自的破防是吧mea<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 17594#       发表于 2021-6-18 13:45
+
+
+ 本帖最后由 专业划水人员 于 2021-6-18 13:54 编辑 
+
+挺好的，虽然我私心觉得兔鞠比较适合小麻。
+
+
+-----
+
+####  甘栗No.007  
+##### 17595#       发表于 2021-6-18 13:53
+
+
+什么舞meacp厨<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+她cp营业的对象其实都还不错，卯月、舞元感觉都是有分寸的人，圭利的孩子不算
+所以，有推特电台的录播吗？
+
+
+-----
+
+####  T_Hb  
+##### 17596#       发表于 2021-6-18 13:55
+
+
+半夜3点 twitter space突击，我觉得很难有
+
+
+-----
+
+####  路人庚  
+##### 17597#       发表于 2021-6-18 14:06
+
+
+不知道当时的语气怎样，只看文字的话其实挺像回应cp厨评论的定型文回复，“ 自己喜欢〇〇是真喜欢，但是大家应该能理解和〇〇是不可能成的，自己也了解，首先私下私密交往就不可能 ”
+
+
+                                                 

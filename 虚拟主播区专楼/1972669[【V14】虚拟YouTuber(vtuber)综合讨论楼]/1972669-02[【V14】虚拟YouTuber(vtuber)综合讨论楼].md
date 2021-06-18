@@ -14480,3 +14480,32 @@ Deadline: Aug 1 23:59 JST / 07:59 PDT
 
 
                                                  
+
+-----
+
+####  死体残留  
+##### 2643#       发表于 2021-6-18 14:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">enkr为什么还想不明白还招素人啊，gbr和roa的事还没学会么，第二个美兔可遇不可求啊，像隔壁好好招经验者就完事了。
+
+
+-----
+
+####  超能力者stven  
+##### 2644#       发表于 2021-6-18 14:02
+
+
+经验者当然都跑“隔壁”去了，想招招的到吗
+
+
+-----
+
+####  dybang  
+##### 2645#       发表于 2021-6-18 14:05
+
+
+这不就是圈钱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
