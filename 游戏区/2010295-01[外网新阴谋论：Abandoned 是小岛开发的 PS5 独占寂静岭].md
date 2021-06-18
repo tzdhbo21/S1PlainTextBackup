@@ -1888,3 +1888,18 @@ SH是Silent Hill大家都知道，可是SHLSS是什么呢
 
 
                                                 
+
+-----
+
+####  Eadric  
+##### 123#       发表于 2021-6-19 02:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51660268&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-19 00:56</a>
+SH是Silent Hill大家都知道，可是SHLSS是什么呢</blockquote>
+silent hill long sleeve shirt<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
