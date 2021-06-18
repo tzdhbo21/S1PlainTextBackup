@@ -914,3 +914,20 @@ tov和tog换平台出的都是加强版</blockquote>
 
 
                                                  
+
+-----
+
+####  godless2020  
+##### 1573#       发表于 2021-6-18 07:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51647773&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-18 01:00</a>
+
+忍不住还是去看了战斗片段，实在太爽了！
+
+
+然后开始担心PS4 PRO能不能稳住 ...</blockquote>
+不能<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
