@@ -1208,3 +1208,39 @@ R2+方向键，TOB就是防御加方向键</blockquote>
 
 
                                                 
+
+-----
+
+####  squaresfc  
+##### 1593#       发表于 2021-6-18 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649292&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-18 09:10</a>
+
+还能全员加防</blockquote>
+原来真有挡突进技的功能，还能让怪倒地，果然不是随便说说的台词。
+
+
+-----
+
+####  REDXIII  
+##### 1594#       发表于 2021-6-18 11:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">看了实机演示之后等不及了。。。还有快三个月啊
+
+
+-----
+
+####  qiyu1234  
+##### 1595#       发表于 2021-6-18 11:33
+
+
+看了下国外媒体的试玩报告
+
+提到了营地功能
+
+烹饪和小剧场可能都是在这个地方展开
+
+
+                                                 

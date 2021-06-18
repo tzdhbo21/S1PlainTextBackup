@@ -794,3 +794,69 @@ BLUE BOX游戏工作室
 
 
                                                 
+
+-----
+
+####  阿布都督  
+##### 49#       发表于 2021-6-18 10:58
+
+
+看了你们这堆分析，又去看了看这工作室发的推，我只想说岛哥哥真能整活<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  陈玉礼  
+##### 50#       发表于 2021-6-18 11:05
+
+
+谨慎不看好，不然同样的招数玩三次就没啥意思了
+
+
+-----
+
+####  Sontag  
+##### 51#       发表于 2021-6-18 11:07
+
+
+感觉还是岛粉厂商碰瓷的概率大些
+
+
+-----
+
+####  Eadric  
+##### 52#       发表于 2021-6-18 11:18
+
+
+感觉是嗯蹭
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  765PRO  
+##### 53#       发表于 2021-6-18 11:31
+
+
+<img src="https://i.redd.it/7tu71p8uax571.jpg" referrerpolicy="no-referrer">
+
+确实不是同一个人啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoyianwu  
+##### 54#       发表于 2021-6-18 11:39
+
+
+ 本帖最后由 luoyianwu 于 2021-6-18 11:41 编辑 
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/](https://www.reddit.com/r/TheBlueBoxConspiracy/)
+
+拓展阅读
+
+有篇挺有意思的，说是小岛和骚尼买了kickstarter上众筹的山寨PT游戏Rewind，改成了Abandoned
+
+
+                                                 

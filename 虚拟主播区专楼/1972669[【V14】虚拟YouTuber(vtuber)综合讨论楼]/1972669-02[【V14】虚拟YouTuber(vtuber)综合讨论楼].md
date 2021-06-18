@@ -14293,3 +14293,48 @@ tx一来杏anti就自动投诚了。关键是鹅场看不看得上vtb。
 
 
                                                  
+
+-----
+
+####  free  
+##### 2633#       发表于 2021-6-18 10:38
+
+
+[https://twitter.com/NIJISANJI_World/status/1405706837660295173](https://twitter.com/NIJISANJI_World/status/1405706837660295173)
+
+【#NIJISANJI_EN launches TWO VTuber auditions】
+
+
+红色向下三角Female Character VTuber audition:
+[https://forms.gle/WY7GVNhsWsc4zdJE6](https://forms.gle/WY7GVNhsWsc4zdJE6)
+
+Deadline: July 11 23:59 JST / 07:59 PDT 
+
+
+红色向下三角Male Character VTuber audition:
+[https://forms.gle/CKiNd1tBAQSAFSwp8](https://forms.gle/CKiNd1tBAQSAFSwp8)
+
+Deadline: Aug 1 23:59 JST / 07:59 PDT 
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/103822j9ps8pb7975nrmh9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (403.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 10:38 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/103822mkq6xkwe3u6crbt1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (428.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 10:38 上传
+
+
+                                                 
