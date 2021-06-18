@@ -12168,3 +12168,63 @@ syl [https://www.youtube.com/watch?v=I5Ulyot_NUU](https://www.youtube.com/watch?
 
 
                                                  
+
+-----
+
+####  jhouo8989  
+##### 17576#       发表于 2021-6-18 08:18
+
+
+有无录播
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  T_Hb  
+##### 17577#       发表于 2021-6-18 08:40
+
+
+这人7点钟还没睡啊，点了2个赞
+
+
+-----
+
+####  A2014720  
+##### 17578#       发表于 2021-6-18 09:10
+
+
+啥玩意突然就推特直播了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  兔耳僵尸  
+##### 17579#       发表于 2021-6-18 09:27
+
+
+阴间啊，谁录播了？
+
+
+-----
+
+####  Klience  
+##### 17580#       发表于 2021-6-18 09:29
+
+
+看了下那个推特截图 怎么里面还混进了个麻自立啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 管人都是半夜三更不睡觉的吗
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 17581#       发表于 2021-6-18 09:30
+
+
+估计是找不到录播了，回头找人问问能不能监控了
+
+
+                                                

@@ -931,3 +931,280 @@ tov和tog换平台出的都是加强版</blockquote>
 
 
                                                  
+
+-----
+
+####  宛若青空  
+##### 1574#       发表于 2021-6-18 08:41
+
+
+终于到今天了！今晚7点半第一次特别生放，预计会有实机演示等内容！
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/084122g1cwykgkgkwubvsq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>85C94691-E3AA-46F1-8CAC-A544B1B42012.jpeg</strong> (256.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 08:41 上传
+
+
+-----
+
+####  zero12  
+##### 1575#       发表于 2021-6-18 08:43
+
+
+估计实机就是这个demo
+
+
+-----
+
+####  laoz  
+##### 1576#       发表于 2021-6-18 08:46
+
+
+按照五一的套路就是声优玩这个demo，富泽解说里面的东西，希望结束后来个大的，把demo放出来
+
+
+-----
+
+####  ac130-2020  
+##### 1577#       发表于 2021-6-18 08:51
+
+
+这个没配音的过场表现也太傻了点 还不如没过场直接放气泡对话 
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  司马千晶  
+##### 1578#       发表于 2021-6-18 08:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">演示里的魔王炎击波很好啊，3D化以后这招一直没气势··而这次总之就是很大！
+
+
+-----
+
+####  宛若青空  
+##### 1579#       发表于 2021-6-18 08:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649095&amp;ptid=1860328" target="_blank">ac130-2020 发表于 2021-6-18 08:51</a>
+这个没配音的过场表现也太傻了点 还不如没过场直接放气泡对话 
+
+
+----发送自 STAGE1 App for Android. ...</blockquote>
+看#1569楼，这次过场剧情是试玩版专门制作的
+
+
+-----
+
+####  Rinne70  
+##### 1580#       发表于 2021-6-18 09:01
+
+
+演示不错，后悔看了，现在有点等不及
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  司马千晶  
+##### 1581#       发表于 2021-6-18 09:03
+
+
+ 本帖最后由 司马千晶 于 2021-6-18 09:10 编辑 
+
+看了一下美版的演示，盾女的援护应该是可以走碰瓷路线的，一次猪车，一次螳螂车，防住后怪都硬直了。
+
+
+另外美版应该是打的高难度，会刷出小怪，BOSS血也更厚
+
+
+-----
+
+####  Booorunestud  
+##### 1582#       发表于 2021-6-18 09:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">希望战斗系统能早点开放全，别跟tob似的后期才能爽玩
+
+
+-----
+
+####  laoz  
+##### 1583#       发表于 2021-6-18 09:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649219&amp;ptid=1860328" target="_blank">司马千晶 发表于 2021-6-18 09:03</a>
+
+看了一下美版的演示，盾女的援护应该是可以走碰瓷路线的，一次猪车，一次螳螂车，防住后怪都硬直了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">还能全员加防
+
+
+image.png
+(117.76 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-18 09:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/090718micd2cglqgiebqz1.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kedger  
+##### 1584#       发表于 2021-6-18 09:24
+
+
+好急好急，想看op<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宛若青空  
+##### 1585#       发表于 2021-6-18 09:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649271&amp;ptid=1860328" target="_blank">Booorunestud 发表于 2021-6-18 09:08</a>
+希望战斗系统能早点开放全，别跟tob似的后期才能爽玩</blockquote>
+看教程示意图应该在第一个国家就能开放全了；
+
+主要是感觉AG点数前期会比较少<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qiyu1234  
+##### 1586#       发表于 2021-6-18 09:27
+
+
+Boost Strike是不是不同角色还需要角色学习skill才能触发
+
+
+昨天演示里Boost Strike选择触发林薇尔结果只有跟罗的连携
+
+但是4月那个演示是有奥尔芬跟林薇尔的连携的
+
+
+现在是强制切换到林薇尔跟罗连携结果下面还是奥尔芬的血条看起来就很怪
+
+<img src="https://img.saraba1st.com/forum/202106/18/092516itsnih8nmkvdixmv.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (188.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 09:25 上传
+
+
+-----
+
+####  蓝雉  
+##### 1587#       发表于 2021-6-18 09:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649456&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-18 09:27</a>
+Boost Strike是不是不同角色还需要角色学习skill才能触发</blockquote>
+可能也是这demo特意限制的？基本上展示的都都是之前展示过的招式
+
+
+-----
+
+####  hypnossz86  
+##### 1588#       发表于 2021-6-18 09:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649156&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-18 08:58</a>
+看#1569楼，这次过场剧情是试玩版专门制作的</blockquote>
+明白了，所以生放肯定有让声优现场配音的环节吧2333
+
+
+-----
+
+####  qiyu1234  
+##### 1589#       发表于 2021-6-18 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649504&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-6-18 09:31</a>
+
+可能也是这demo特意限制的？基本上展示的都都是之前展示过的招式</blockquote>
+也有可能
+
+去年FF7R出DEMO的时候，野村还是北濑抱怨说出试玩版很麻烦，因为这东西不像人们想象的那样随便从正式游戏里抽出一段就完成了的
+
+
+-----
+
+####  宛若青空  
+##### 1590#       发表于 2021-6-18 09:43
+
+
+ 本帖最后由 宛若青空 于 2021-6-18 09:53 编辑 
+
+话说之前看第一个演示时战斗中是能切换角色控制的，但操作介绍的界面没看到介绍切换队友的按键。目前爆出来的操作按键似乎没有多余的键能切换角色用了….？
+
+
+以PS4版为例
+
+通常攻撃 R1
+
+跳 〇
+
+防御 R2 （盾娘限定）
+
+回避 左摇杆+R2
+
+术技 △□×
+
+锁定 L2
+
+增幅强击 方向键
+
+后备队友增幅强击 L1+方向键
+
+
+补充，谭友说切换队友控制是R2+方向键
+
+
+
+
+-----
+
+####  laoz  
+##### 1591#       发表于 2021-6-18 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649669&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-18 09:43</a>
+
+话说之前看第一个演示时战斗中是能切换角色控制的，但操作介绍的界面没看到介绍切换队友的按键。目前爆出来 ...</blockquote>
+R2+方向键，TOB就是防御加方向键
+
+
+-----
+
+####  宛若青空  
+##### 1592#       发表于 2021-6-18 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51649709&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-18 09:47</a>
+
+R2+方向键，TOB就是防御加方向键</blockquote>
+
+那就安心了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                
