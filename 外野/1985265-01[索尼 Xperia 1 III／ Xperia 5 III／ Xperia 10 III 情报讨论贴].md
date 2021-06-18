@@ -9111,3 +9111,29 @@ au的都发售了，港版还要等<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  Cray  
+##### 649#       发表于 2021-6-19 00:08
+
+
+非要用指纹支付本身也很莫名其妙 …还是第三方指纹<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+----发送自 [Sony H8296,Android 9](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  Nanachi  
+##### 650#       发表于 2021-6-19 00:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51657719&amp;ptid=1985265" target="_blank">allenz3 发表于 2021-6-18 21:13</a>
+
+那你是论坛管理了？有种就别回我啊，我说啥也关你屁事！</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">是啊，我说啥关你屁事，你说啥关我屁事；我回不回复也关你屁事，你回不回复也关我屁事。
+
+
+                                                 

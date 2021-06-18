@@ -1837,3 +1837,54 @@ Blue Box 曾经公布过一款叫做《Rewind》的游戏，最开始他们为�
 
 
                                                  
+
+-----
+
+####  Cranberries  
+##### 119#       发表于 2021-6-19 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51659851&amp;ptid=2010295" target="_blank">血狂毘沙门 发表于 2021-6-19 00:03</a>
+就怕做出来的游戏没整的活好玩</blockquote>
+DS不就很多人觉得整活比游戏好玩，游戏不好玩，
+但这和论坛讨论有什么关系?都来论坛了，不就是互联网参与感?
+
+
+-----
+
+####  哈罗  
+##### 120#       发表于 2021-6-19 00:20
+
+
+22号会放个app到ps5上，也不知道是个什么东西，但已经说了没有gameplay
+
+
+
+
+-----
+
+####  战狼PTSD  
+##### 121#       发表于 2021-6-19 00:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">差不多得了，能不能学老贼务实点啊，放消息就直接告诉你快来了
+
+
+-----
+
+####  luoyianwu  
+##### 122#       发表于 2021-6-19 00:56
+
+
+<blockquote>OfficialKonamiShop
+
+@KonamiShop
+
+New merch is rolling into our shop, from a cursed place. #SHLSS
+
+12:37 PM · Jun 18, 2021·Twitter Web App</blockquote>
+
+SH是Silent Hill大家都知道，可是SHLSS是什么呢
+
+
+                                                

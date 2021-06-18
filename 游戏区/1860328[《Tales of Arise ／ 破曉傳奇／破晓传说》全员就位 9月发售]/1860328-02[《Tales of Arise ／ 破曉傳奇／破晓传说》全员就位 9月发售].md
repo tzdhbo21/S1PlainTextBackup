@@ -2272,3 +2272,52 @@ BOSS菱形不会涨，只有半血和零血时固定出了STRIKE的提示
 
 
                                                  
+
+-----
+
+####  宛若青空  
+##### 1674#       发表于 2021-6-19 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51659306&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-18 23:11</a>
+还有地上空中的组合键技，大概率是r2+技能按键。爆发状态我怀疑是有跟tog类似的累计槽ui，但是在demo里被 ...</blockquote>
+组合键技真的存在吗，现在看那UI真就只有6个，虽然之前是Fami通先说的组合键技<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  laoz  
+##### 1675#       发表于 2021-6-19 00:40
+
+
+<blockquote>宛若青空 发表于 2021-6-19 00:38
+组合键技真的存在吗，现在看那UI真就只有6个，虽然之前是Fami通先说的组合键技 ...</blockquote>
+就那个技能页面能往下翻页，只是demo没有解锁而已，tob的demo也是没有l1技能栏，本体要打了某只精英怪之后才解锁的
+
+
+-----
+
+####  宛若青空  
+##### 1676#       发表于 2021-6-19 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51660152&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-19 00:40</a>
+就那个技能页面能往下翻页，只是demo没有解锁而已，tob的demo也是没有l1技能栏，本体要打了某只精英怪之后 ...</blockquote>
+希望真的有吧<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  隔壁老黄  
+##### 1677#       发表于 2021-6-19 00:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51659213&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-18 23:04</a>
+
+TOX是只能奥义接秘奥义
+
+TOX2能用共鸣技接秘奥义，当然奥义接秘奥义也保留了 ...</blockquote>
+TOX2改进了很多，例如双人秘奥义，不过局限性还是太大，双人作业我不喜欢
+
+
+                                                 
