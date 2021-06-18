@@ -16566,3 +16566,20 @@ twiiter和b站全屏之后，边缘触控位置不灵敏
 
 
                                                  
+
+-----
+
+####  cleaner  
+##### 2725#       发表于 2021-6-18 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51419211&amp;ptid=1915171" target="_blank">ut0 发表于 2021-5-30 11:26</a>
+记得以前爬楼看到大家说SONY系统不自带通话录音功能。
+
+好像是有人推荐了一个Call Recorder ACR Pro的APP说 ...</blockquote>
+这个app具体是哪个？play上面好多同名的
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

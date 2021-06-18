@@ -14772,3 +14772,23 @@ Syl，「にじさんじ」とのコラボカフェ第2弾開催決定！！
 
 
                                                  
+
+-----
+
+####  ヒトニナル  
+##### 2667#       发表于 2021-6-18 17:39
+
+
+カズアキ画画就是这样的，算是个人特色浓厚吧。当年honeybee一部starrysky应该是很多人的乙女作品启蒙了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 2668#       发表于 2021-6-18 18:24
+
+
+下巴和gbr挺像的，按收入时长比算高的了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">二期生估计和后面的人签的不是一类合同，毕竟不是全职主播，等大学毕业了也播不长
+
+
+                                                 

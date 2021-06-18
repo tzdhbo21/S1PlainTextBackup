@@ -15663,3 +15663,40 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  qixinno2  
+##### 79287#       发表于 2021-6-18 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655189&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-18 17:23</a>
+
+欧  萌新今年依然无一新5星</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你一定是为新周年角色在攒石头
+
+
+-----
+
+####  alucardcz  
+##### 79288#       发表于 2021-6-18 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655331&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-18 17:35</a>
+
+你一定是为新周年角色在攒石头</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我是会赞石头的人吗 3石就抽无论什么池子
+
+
+-----
+
+####  khxooo  
+##### 79289#       发表于 2021-6-18 17:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655158&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-18 17:21</a>
+听说无事发生就往摩根池子里丢了石头</blockquote>
+欧羡慕，我连母猩猩都没有
+
+
+                                                 

@@ -1598,3 +1598,56 @@ PC
 
 
                                                 
+
+-----
+
+####  宛若青空  
+##### 1623#       发表于 2021-6-18 18:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655478&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-18 17:48</a>
+那玩意是魔神剑，不是爪龙</blockquote>
+草还真是，眼瞎了。。。谢谢指正<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+那这样看是直接放了刚华暴炎阵？或者可能魔神剑派生也是刚华暴炎阵…
+
+
+-----
+
+####  laoz  
+##### 1624#       发表于 2021-6-18 18:06
+
+
+<blockquote>宛若青空 发表于 2021-6-18 18:02
+草还真是，眼瞎了。。。谢谢指正
+
+
+那这样看是直接放了刚华暴炎阵？或者可能魔神剑派生也是刚华暴 ...</blockquote>
+魔神剑派生你说的那个，2d组标配派生方式就是长按键，这作派生路线跟tog不同，都是火剑的技能，所以出现派生相同的很正常
+
+
+-----
+
+####  宛若青空  
+##### 1625#       发表于 2021-6-18 18:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655660&amp;ptid=1860328" target="_blank">laoz 发表于 2021-6-18 18:06</a>
+魔神剑派生你说的那个，2d组标配派生方式就是长按键，这作派生路线跟tog不同，都是火剑的技能，所以出现 ...</blockquote>
+应该是相同派生了，感觉派生技一定要接在普通技后面释放有点不自由…
+
+本来的设想要是能长按直接释放派生技就好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LMBS  
+##### 1626#       发表于 2021-6-18 18:13
+
+
+看上面的视频dragon swarm和demon fang对应的火焰剑技能都是explosive ring，凤凰天驱也是对应两个普通技能。没看到其他角色的技术设置界面，其他角色有没有长按变化还很难说
+
+增幅攻击在针对特定敌人动作时不会整条扣掉，拳打甲铳打飞行，盾打断龙车
+
+
+                                                 
