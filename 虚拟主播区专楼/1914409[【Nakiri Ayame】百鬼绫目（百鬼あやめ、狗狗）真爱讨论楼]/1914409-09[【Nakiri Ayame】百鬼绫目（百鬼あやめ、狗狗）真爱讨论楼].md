@@ -4042,3 +4042,102 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
 
                                                  
+
+-----
+
+####  a37356205  
+##### 12358#       发表于 2021-6-18 22:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坏女人直说了，观众都是全肯定民，被宠得越来越任性，真是太爽了
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12359#       发表于 2021-6-18 22:40
+
+
+算了啊 就这同接数 绫人真不能处<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12360#       发表于 2021-6-18 22:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是不是差点要脱口而出LOL了
+
+
+
+
+-----
+
+####  nian1538  
+##### 12361#       发表于 2021-6-18 22:57
+
+
+喜欢什么颜色：粉红和水色
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12362#       发表于 2021-6-18 22:58
+
+
+这堆问答可真是装糊涂的高手<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12363#       发表于 2021-6-18 23:01
+
+
+喜欢ポニテ<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12364#       发表于 2021-6-18 23:05
+
+
+喜欢有自己想法而且能坚持去做的type捏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 12365#       发表于 2021-6-18 23:27
+
+
+喜欢的食物:鲑鱼
+
+喜欢的颜色:粉色跟水色
+
+坏习惯:喝东西习惯性喝不完 留下一两口丢掉
+
+西西第一印象:可爱
+
+印象最深刻:出道时
+
+最快乐的时候:LIVE和大家一起的时候
+
+出道和现在的变化:个性变圆滑了
+
+自己的魅力:没有吧...西西呢?   西:我的话是活力吧
+
+晚餐吃过了吗?:吃了 茄子
+
+喜欢的人性质(不分男女):朝目标前进 往高处爬
+
+喜欢的萌点:马尾
+
+今年的目标:不都过半年了嘛!? 尝试新的东西 今年也有尝试投翻唱跟搬家
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

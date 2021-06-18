@@ -1577,3 +1577,263 @@ Never trust 4chan ...</blockquote>
 
 
                                                  
+
+-----
+
+####  Cranberries  
+##### 106#       发表于 2021-6-18 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51659062&amp;ptid=2010295" target="_blank">acejoe 发表于 2021-6-18 22:53</a>
+出处是啥？</blockquote>
+https://youtu.be/hqsQY-QXI2U
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cranberries  
+##### 107#       发表于 2021-6-18 23:01
+
+
+风怒
+
+
+-----
+
+####  luoyianwu  
+##### 108#       发表于 2021-6-18 23:02
+
+
+ 本帖最后由 luoyianwu 于 2021-6-18 23:14 编辑 
+<blockquote>Geoff Keighley
+
+12 minutes ago
+
+Definitely some interesting developments overnight on this. Hasan said he's going to be sending the images shortly, which I will be able to post to Twitter.</blockquote>
+Geoff在resetera上又说话了，说一会把Hasan寄来的图发推特
+<img src="https://p.sda1.dev/2/00d8f25bcded96118b5e847b4776cfca/tpp.png" referrerpolicy="no-referrer">
+
+和八年前是不是有点像
+
+
+-----
+
+####  tuiskusuomaa  
+##### 109#       发表于 2021-6-18 23:04
+
+
+大的要来了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Eadric  
+##### 110#       发表于 2021-6-18 23:08
+
+
+Geoff绝逼啥都知道吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  尘落樱飞  
+##### 111#       发表于 2021-6-18 23:09
+
+
+大的？
+
+
+-----
+
+####  新八  
+##### 112#       发表于 2021-6-18 23:09
+
+
+我真的有点怀疑是模仿犯了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  北卡厨王  
+##### 113#       发表于 2021-6-18 23:11
+
+
+越来越像拿到寂静岭ip的团队自己整活了。
+
+
+-----
+
+####  平井姨夫  
+##### 114#       发表于 2021-6-18 23:45
+
+
+模仿犯的话真的会被骂死
+
+
+-----
+
+####  JoelBirch  
+##### 115#       发表于 2021-6-18 23:46
+
+
+ 本帖最后由 JoelBirch 于 2021-6-18 23:48 编辑 
+
+寂静岭新作真是这两年最恶心的系列传闻了，搞到现在内心已经毫无波澜，不管是官方还是模仿犯我都感觉这群人真的好无聊啊，真的做得来游戏吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  血狂毘沙门  
+##### 116#       发表于 2021-6-19 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51659687&amp;ptid=2010295" target="_blank">JoelBirch 发表于 2021-6-18 23:46</a>
+
+寂静岭新作真是这两年最恶心的系列传闻了，搞到现在内心已经毫无波澜，不管是官方还是模仿犯我都感觉这群人 ...</blockquote>
+就怕做出来的游戏没整的活好玩<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  矢量路比  
+##### 117#         楼主| 发表于 2021-6-19 00:04
+
+
+更一下从 Reddit 上扒的调查进展吧
+
+
+首先必须要了解的一件事情是，Hasan Kahraman 可能确有其人，而不是小岛秀夫的马甲。
+
+
+在独立游戏业界中颇有声望的 Rami Ismail 向荷兰商会查询了 Blue Box Game Studios 的信息，结论是其确实存在，该公司成立于 2015 年，且正常运转至今。
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/222742r0obamlbss12ln02.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-06-18 22_24_01-Robert Gaal .png</strong> (50.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 22:27 上传
+
+
+此外 Hasan Kahraman 也的确和这家公司有所联系。由于荷兰商会要求企业必须注册最终实益拥有人（UBO），因此从规章制度的角度上来说，对这个人的身份进行伪造几乎是不可能的事情。
+
+
+那现在可能性有以下三种：
+这家工作室就是个巨魔模仿犯，和小岛以及寂静岭一点关系都没有小岛在 2015 年找到了一个叫 Hasan Kahraman 的人，让他帮忙注册了这家公司小岛（或者索尼/Konami）出钱，让这个工作室（以及 Hasan Kahraman）成为了整个宣发计划的一部分
+
+
+虽然听上去很扯，但最后一种情况并非不可能。
+
+Blue Box 曾经公布过一款叫做《Rewind》的游戏，最开始他们为这款游戏在 Kickstarter 上进行了一次众筹（[链接](https://www.kickstarter.com/projects/1300326342/rewind-a-cinematic-horror-game-for-pc-vr-and-conso/description)），但一个月后就终止了；理由是「找到了一个私人投资方」，并且在 10 月的进度更新中表示游戏仍在开发，只是项目有了一个全新的概念。
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/225338gsxkcsvzsnsnnfvv.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-06-18 22_48_57-REWIND_ A Cinematic Horror game for PC, VR and Console by BL.png</strong> (55.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 22:53 上传
+
+
+从众筹页面的介绍中可以看出游戏最初的情节梗概：一位名为 Jim Walker 的人八年前因为车祸失去了自己的妻女，在使用 EVP（超自然电子异象，指鬼魂通过电子设备，例如录音机等的静电干扰和杂讯传递声音的一种现象，[参考文章](https://www.163.com/tech/article/327AG51M00091537.html)）成功和死去的妻女沟通后，他成为了一名超自然现象侦探。一次任务带领他进入了高山村（High <strong>Hills </strong>Village），他将面对前所未见的超自然现象，并在其中寻求真相。
+
+
+在 4 月声称获得投资之后，游戏于 9 月上传到了 Steam 青睐之光，此时的游戏名字变成了[《Rewind: Voices Of The Past》](https://steamcommunity.com/sharedfiles/filedetails/?id=516577397)，项目的定位也变成了一个 3A 级别游戏，故事则经历了一次大幅度更改，主角变成了父母双亡的 Jessica Thompson，她可以和死去的人沟通，大致上有点像《灵媒》。
+
+
+自此这款游戏就再也没有任何实质性的进度更新。
+
+
+虽然不排除开发商拉大旗扯虎皮撒谎的可能性，但如果他们说的是真的，又会是哪个大善人愿意向一个刚刚成立不久，从未有过开发实绩，并且众筹项目也不是特别吸引人的小工作室进行投资？而且这笔资金的数量，足以将这个项目扩张至 3A 级别。
+
+
+于是现在 reddit 上有了一个比较受欢迎的理论：这个投资方就是小岛秀夫/索尼，他们对工作室进行了投资（甚至可能买下了整个工作室），而后将其作为整个《寂静岭》ARG 宣发项目的一部分。
+
+
+这个理论的依据是，最开始《Rewind》是一个面向全平台的项目，计划同时登陆主机、VR 以及 PC，根据 [2015 年 10 月的官网信息](https://web.archive.org/web/20151011183334/http://rewind-thegame.com/)显示（也就是他们最后一次了公布实质性进度更新的时间点），他们甚至还筹划过一个所谓的手机版：
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/233003x3grcbg6qfo3owqv.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-06-18 23_28_33-Rewind ™Series.png</strong> (55.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 23:30 上传
+
+
+而[这个官网在 2016 年 1 月](https://web.archive.org/web/20160110122220/http://rewind-thegame.com/)发生了一次大改动，其他所有信息被撤下，页面中只有 PS4 的 Logo，意味着这个游戏将作为 PS4 独占进行开发。项目同期进入沉寂状态，一直到官网下线为止，这个页面都没有任何变化。
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/233230ncs0uu10yjjss7ws.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-06-18 23_29_30-Steam.png</strong> (141.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 23:32 上传
+
+
+再然后就是我在主楼和 3 楼提到的那个游戏《The Haunting: Blood Water Curse》，「Abandoned」公布没几天，这个游戏的开发商就从 Blue Box 换成了名不见经传的 CREATEQ Interactive。这个所谓的开发商/发行商有多名不见经传呢？除了几家与游戏风马牛不相及的同名公司，你在网上找不到任何有关信息，连个官网都没有。
+
+<strong>所以这个理论就是，小岛/索尼一开始投资了这个工作室，然后在一段时间过后 —— 也就是今年，将这个工作室实际负责的项目转移到了 CREATEQ Interactive，而小岛得以在幕后全盘操纵 Blue Box，让「Abandoned」成为某个神秘项目 —— 也就是《寂静岭》—— 的 ARG 宣传环节的一部分</strong>
+
+
+那么岛哥哥会这么做吗？虽然听上去真的很扯，不过可能性还是存在的。一是岛哥哥有过两次前科，二是有人挖掘到了一个小岛制作员工「"FATHER" III ヘンリク」的 LinkedIn 页面，他于 2017 年入职，在简介中自称擅长于 ARG 项目。
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/234722in2n3d7ook8gs59d.png" referrerpolicy="no-referrer">
+
+
+<strong>2021-06-18 23_45_27-wpq.png</strong> (49.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 23:47 上传
+
+
+此外从 2014 年科隆展上的专访中，也可以看出小岛对于这种宣传方式的一些想法。[视频链接（需翻）](https://www.youtube.com/watch?v=pESm9zPmysM)，其中有几个时间点是值得在意的：
+
+02:56：幻痛的 Moby Dick 公布了没多久就有人猜出真相了，与其相比 P.T. 有所进步（这是否意味着小岛希望让项目的公布更难被人猜中？）07:28：虚构开发工作室，捏造游戏名称的目的是营造出一种因为缺乏信息量而带来的恐惧感08:08：虽然使用了 Fox Engine，但他故意降低了游戏的制作品质，从而给人一种 P.T. 是独立游戏的错觉，这是他做过最麻烦的事情
+
+
+这或许能够从某些方面解释「Abandoned」预告片里差劲的帧数表现、现成的素材以及糟糕的配音。
+
+
+综上，我只是 Reddit 的搬运工，等 Geoff 公布截图，真相很可能就会大白了。 
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| JoelBirch| + 1|考据，好|
+| luoyianwu| + 1|👌|
+
+
+查看全部评分
+
+
+-----
+
+####  popchong  
+##### 118#       发表于 2021-6-19 00:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要是碰瓷这工作室以后别混了
+
+
+                                                 

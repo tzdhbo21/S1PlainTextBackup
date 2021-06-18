@@ -15021,3 +15021,55 @@ Syl，不破这吉他有点底子啊，活动第一年嗯是藏牛？这什么�
 
 
                                                  
+
+-----
+
+####  katern  
+##### 2686#       发表于 2021-6-18 23:06
+
+
+不知道。13号就说身体不好鸽了活动，结果到现在推特都没动过，有点不安<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 2687#       发表于 2021-6-18 23:07
+
+
+[https://twitter.com/fuji_aoi_0618/status/1405900884962279424](https://twitter.com/fuji_aoi_0618/status/1405900884962279424)
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/230725kmrrsfpd77q1gf1z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (189.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 23:07 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/18/230725o9k0oouo7g301huu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (218.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-18 23:07 上传
+
+
+-----
+
+####  katern  
+##### 2688#       发表于 2021-6-18 23:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51659257&amp;ptid=1972669" target="_blank">free 发表于 2021-6-18 23:07</a>
+
+https://twitter.com/fuji_aoi_0618/status/1405900884962279424</blockquote>
+上万代船很稳<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+                                                 
