@@ -14592,3 +14592,48 @@ Deadline: Aug 1 23:59 JST / 07:59 PDT
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 2655#       发表于 2021-6-18 15:37
+
+
+才发现en虹男招生海报把惯例的下巴换成牛郎了，凑男士is god
+
+
+-----
+
+####  poipanchao  
+##### 2656#       发表于 2021-6-18 15:50
+
+
+说到下巴，最近很奇怪
+也没搞啥惊天企划的情况下，动不动平A2万甚至3万同接，突然就暴涨了
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 2657#       发表于 2021-6-18 16:29
+
+
+快进到车女粉行动力
+
+
+-----
+
+####  ppf  
+##### 2658#       发表于 2021-6-18 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51654060&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-18 15:50</a>
+说到下巴，最近很奇怪
+也没搞啥惊天企划的情况下，动不动平A2万甚至3万同接，突然就暴涨了 ...</blockquote>
+这情况早就观测到了 为了研究我还去看了一期贪吃蛇
+结论就是没原因 可能是懒狗式播的少式同届高
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

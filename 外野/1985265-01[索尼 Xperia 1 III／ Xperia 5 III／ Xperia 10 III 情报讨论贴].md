@@ -8951,3 +8951,47 @@ X5M3要是把888换870，节约下来的成本换成12G RAM，这波将是绝杀
 
 
                                                  
+
+-----
+
+####  wqm2008  
+##### 638#       发表于 2021-6-18 15:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51603510&amp;ptid=1985265" target="_blank">martinium 发表于 2021-6-15 05:55</a>
+
+谷歌拼音和gboard差不多啊，标点全一些。
+
+
+— from Google Pixel 2, Android 11 of S1 Next Goose v2.4.4.1 ...</blockquote>
+谷歌拼音比gboard好用多了，我可以用到鸿蒙打败安卓的那一天不更新<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  jzsgtx  
+##### 639#       发表于 2021-6-18 15:55
+
+
+au的都发售了，港版还要等<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kaiki_aiolos  
+##### 640#       发表于 2021-6-18 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51602897&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-6-15 01:45</a>
+
+有一说一，触感，尤其是之前X1X5无印支持的真边框触感，是最佳手势操作解决方案之一，功能多又不会和屏幕 ...</blockquote>
+当时我买XZ3很大程度上是为了这个边框功能
+
+
+虽然后面发现其实曲面屏误触率有点高，后来还下放到平面屏了
+
+
+但我觉得还是很值得赞一个的。
+
+
+                                                 
