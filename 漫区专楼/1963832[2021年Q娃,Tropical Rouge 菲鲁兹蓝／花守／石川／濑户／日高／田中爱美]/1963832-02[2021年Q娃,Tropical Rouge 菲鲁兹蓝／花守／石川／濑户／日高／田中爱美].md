@@ -1888,3 +1888,17 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  过气页游  
+##### 1650#       发表于 2021-6-19 17:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51663811&amp;ptid=1963832" target="_blank">rar1536770 发表于 2021-6-19 13:20</a>
+
+新Q娃评价如何，治愈都还没补完。</blockquote>
+日常回好评，但是主线没怎么推进，而且反派也是 字面意义上的摸鱼。总之目前就是一片和谐的景象
+
+
+                                                 

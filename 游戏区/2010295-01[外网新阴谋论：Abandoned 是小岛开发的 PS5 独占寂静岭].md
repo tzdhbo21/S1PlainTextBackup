@@ -2597,3 +2597,34 @@ a9有人说他们互fo很久了
 
 
                                                 
+
+-----
+
+####  陈玉礼  
+##### 184#       发表于 2021-6-19 17:29
+
+
+22号出demo 预热一周刚好索尼直面会（疑似）<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Eadric  
+##### 185#       发表于 2021-6-19 17:44
+
+
+不管是不是小岛估计他都笑疯了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Narrative  
+##### 186#       发表于 2021-6-19 18:01
+
+
+大的要来了
+
+
+                                                 

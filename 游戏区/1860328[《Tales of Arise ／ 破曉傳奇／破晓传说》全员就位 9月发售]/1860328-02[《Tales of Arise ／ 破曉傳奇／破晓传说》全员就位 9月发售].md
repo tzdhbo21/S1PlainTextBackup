@@ -2537,3 +2537,95 @@ nb
 
 
                                                  
+
+-----
+
+####  LMBS  
+##### 1692#       发表于 2021-6-19 17:17
+
+
+ 本帖最后由 LMBS 于 2021-6-19 17:55 编辑 
+
+秘奥义接在连招上过渡效果挺好的，没有cutin没有问题，我对这个改动还是看好的
+
+
+-----
+
+####  qiyu1234  
+##### 1693#       发表于 2021-6-19 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51665811&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-6-19 17:17</a>
+
+秘奥义接在连招上过渡效果挺好的，没有cutin没有问题，还觉得有进步
+
+https://www.bilibili.com/video/B ... ...</blockquote>
+这个只是油管视频主把之前几个连段和秘奥义视频剪到一起了而已，你看罗的连段还是没有语音的那段<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hypnossz86  
+##### 1694#       发表于 2021-6-19 17:24
+
+
+这技能盘怎么看着像狒狒7re那个武器晶球....
+
+感觉有的刷
+
+
+-----
+
+####  qiyu1234  
+##### 1695#       发表于 2021-6-19 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51665862&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-6-19 17:24</a>
+
+这技能盘怎么看着像狒狒7re那个武器晶球....
+
+感觉有的刷</blockquote>
+能用SP解禁感觉还好了
+
+TOGF那称号才真是刷的难受<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  haruhiismer  
+##### 1696#       发表于 2021-6-19 17:30
+
+
+看样子手感应该还是传说味儿<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">就画面的确好太多
+
+
+-----
+
+####  LMBS  
+##### 1697#       发表于 2021-6-19 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51664379&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-19 14:33</a>
+
+说不定能往下拉，别慌
+
+
+不过这个称号和技能盘挂钩….</blockquote>
+这个称号成长也是TOG拿过来简化用，角色成长除了升级就靠称号里面的技术 能力和数值
+
+主线 支线 完成各种条件都可以获得，收集起来很有乐趣
+
+
+-----
+
+####  LMBS  
+##### 1698#       发表于 2021-6-19 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51665847&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-19 17:22</a>
+
+这个只是油管视频主把之前几个连段和秘奥义视频剪到一起了而已，你看罗的连段还是没有语音的那段 ...</blockquote>
+还真是，编辑了
+
+
+                                                 
