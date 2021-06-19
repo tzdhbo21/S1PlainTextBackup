@@ -2143,3 +2143,294 @@ BLUE BOX也在推特上说本作有全新玩法，敬请期待
 
 
                                                  
+
+-----
+
+####  DeerRua  
+##### 141#       发表于 2021-6-19 14:18
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/141803fs11ezhmi5k13sfm.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (18.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 14:18 上传
+
+
+最新消息，历史性的一刻，小岛秀夫推特重新关注了konami
+
+
+-----
+
+####  sad6504  
+##### 142#       发表于 2021-6-19 14:19
+
+
+卧槽，大的要来了！
+
+
+-----
+
+####  平井姨夫  
+##### 143#       发表于 2021-6-19 14:20
+
+
+卧槽
+
+
+-----
+
+####  电磁炮233  
+##### 144#       发表于 2021-6-19 14:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">实锤了
+
+
+-----
+
+####  DeerRua  
+##### 145#       发表于 2021-6-19 14:21
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/142107k63sybhoh66s3q2o.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (47.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 14:21 上传
+
+
+随即，konami官方推特回fo了小岛秀夫
+
+
+-----
+
+####  kuker53  
+##### 146#       发表于 2021-6-19 14:22
+
+
+？
+
+
+-----
+
+####  罐头卡  
+##### 147#       发表于 2021-6-19 14:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51664285&amp;ptid=2010295" target="_blank">DeerRua 发表于 2021-6-19 14:21</a>
+
+随即，konami官方推特回fo了小岛秀夫</blockquote>
+看到这楼之前我一直觉得是个什么神秘模仿犯<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DTCPSS  
+##### 148#       发表于 2021-6-19 14:24
+
+
+大的要来了！
+
+
+-----
+
+####  泡桐  
+##### 149#       发表于 2021-6-19 14:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">大的要来了吗！
+
+
+-----
+
+####  Bzesii  
+##### 150#       发表于 2021-6-19 14:27
+
+
+不管真假差不多收手吧，现实里也搞来回反转这一套<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  天南星  
+##### 151#       发表于 2021-6-19 14:28
+
+
+都到这一步了，最后可千万别是耍人玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoyianwu  
+##### 152#       发表于 2021-6-19 14:32
+
+
+ 本帖最后由 luoyianwu 于 2021-6-19 14:38 编辑 
+
+-
+
+
+-----
+
+####  luoyianwu  
+##### 153#       发表于 2021-6-19 14:36
+
+
+konami europe也fo了小岛
+
+
+-----
+
+####  ky怪  
+##### 154#       发表于 2021-6-19 14:37
+
+
+阿这
+
+
+-----
+
+####  哈罗  
+##### 155#       发表于 2021-6-19 14:38
+
+
+艹，真相是什么已经不重要了，这过程太好玩了
+
+
+-----
+
+####  曼陀罗肥  
+##### 156#       发表于 2021-6-19 14:38
+
+
+ohhhhhhhh
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 157#       发表于 2021-6-19 14:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">…现在只希望做的对味点，别一股岛臭味了
+
+
+-----
+
+####  斯库鲁多  
+##### 158#       发表于 2021-6-19 14:40
+
+
+出大问题
+
+
+-----
+
+####  diketuiduoLI  
+##### 159#       发表于 2021-6-19 14:41
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/144114psdnlzg7qsvq7l16.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-7ddb4a0f2f8b1104.jpg</strong> (10.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 14:41 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  那由  
+##### 160#       发表于 2021-6-19 14:42
+
+
+573我希望你这回真的能做个人
+
+
+-----
+
+####  acropolis  
+##### 161#       发表于 2021-6-19 14:43
+
+
+泪目了
+
+
+-----
+
+####  acejoe  
+##### 162#       发表于 2021-6-19 14:45
+
+
+？？？？？？？？？？？？？？？？？？？？？？？？？
+
+
+-----
+
+####  萨尤克  
+##### 163#       发表于 2021-6-19 14:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">真来了啊
+
+
+-----
+
+####  真实之影  
+##### 164#       发表于 2021-6-19 14:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">真的是大的要来了啊
+
+
+-----
+
+####  luoyianwu  
+##### 165#       发表于 2021-6-19 14:46
+
+
+不过，小岛究竟什么时候开始fo konami，也无法证明了
+
+
+-----
+
+####  kuker53  
+##### 166#       发表于 2021-6-19 14:48
+
+
+我记得年初反正我看过小岛和konami的推特关注，绝对都没有，最早也就这几个月的事
+
+
+-----
+
+####  Kobayashi  
+##### 167#       发表于 2021-6-19 14:49
+
+
+妈呀，大的要来了！！<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Kojimaru  
+##### 168#       发表于 2021-6-19 14:50
+
+
+我已经看不懂了，希望来点大的
+
+
+                                                

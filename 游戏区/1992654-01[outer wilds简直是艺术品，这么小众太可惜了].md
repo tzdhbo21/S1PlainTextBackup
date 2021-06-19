@@ -2729,3 +2729,16 @@ Dlc搞快点搞快点
 
 
                                                  
+
+-----
+
+####  martinium  
+##### 202#       发表于 2021-6-19 13:44
+
+
+dlc快来！前一阵刚把全笔记成就拿了
+
+— from samsung SM-G781U1, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

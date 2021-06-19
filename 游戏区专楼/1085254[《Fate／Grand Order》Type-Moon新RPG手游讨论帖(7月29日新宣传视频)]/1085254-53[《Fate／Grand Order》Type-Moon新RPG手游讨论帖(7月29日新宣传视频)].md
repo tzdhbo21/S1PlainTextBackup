@@ -15757,3 +15757,37 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  qixinno2  
+##### 79295#       发表于 2021-6-19 13:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">剧情全跳 翻译懒得看 抽卡暴死 我觉得2.6不行
+
+
+-----
+
+####  khxooo  
+##### 79296#       发表于 2021-6-19 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51664018&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-19 13:45</a>
+剧情全跳 翻译懒得看 抽卡暴死 我觉得2.6不行</blockquote>
+最主要是抽卡爆死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 79297#       发表于 2021-6-19 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51664276&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-6-19 14:20</a>
+
+最主要是抽卡爆死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想要的卡永远抽不到
+
+
+                                                 

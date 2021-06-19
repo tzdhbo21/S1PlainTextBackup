@@ -2455,3 +2455,85 @@ nb
 
 
                                                  
+
+-----
+
+####  LMBS  
+##### 1687#       发表于 2021-6-19 14:20
+
+
+刚知道法米通有图，这界面不太妙一页才15个，每个还很诚意的给了图标。原来就不期待能像TOGF有近百个称号，可是现在看来能有30个就算好了
+
+<img src="https://img.saraba1st.com/forum/202106/19/141158i7wcey04717b064x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>y_60c345ec808e6.jpg</strong> (134.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 14:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/141208hm8c92kkaka7mcdm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>y_60c346d5b5682.jpg</strong> (80.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 14:12 上传
+
+
+-----
+
+####  back57992  
+##### 1688#       发表于 2021-6-19 14:24
+
+
+奇格B?
+
+
+-----
+
+####  zero12  
+##### 1689#       发表于 2021-6-19 14:26
+
+
+<blockquote>LMBS 发表于 2021-6-19 14:20
+刚知道法米通有图，这界面不太妙一页才15个，每个还很诚意的给了图标。原来就不期待能像TOGF有近百个称号， ...</blockquote>
+有没有法米通报道的地址？
+
+
+-----
+
+####  宛若青空  
+##### 1690#       发表于 2021-6-19 14:33
+
+
+ 本帖最后由 宛若青空 于 2021-6-19 14:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51664273&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-6-19 14:20</a>
+
+刚知道法米通有图，这界面不太妙一页才15个，每个还很诚意的给了图标。原来就不期待能像TOGF有近百个称号， ...</blockquote>
+
+说不定能往下拉，别慌<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+不过这个称号和技能盘挂钩….
+
+
+-----
+
+####  LMBS  
+##### 1691#       发表于 2021-6-19 14:33
+
+
+ 本帖最后由 LMBS 于 2021-6-19 14:34 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51664328&amp;ptid=1860328" target="_blank">zero12 发表于 2021-6-19 14:26</a>
+
+有没有法米通报道的地址？</blockquote>
+都是17号试玩的内容，新图就只有武器装备制作和称号
+[https://www.famitsu.com/news/202106/17223496.html](https://www.famitsu.com/news/202106/17223496.html)
+[https://www.famitsu.com/news/202106/17224167.html](https://www.famitsu.com/news/202106/17224167.html)
+
+
+                                                 
