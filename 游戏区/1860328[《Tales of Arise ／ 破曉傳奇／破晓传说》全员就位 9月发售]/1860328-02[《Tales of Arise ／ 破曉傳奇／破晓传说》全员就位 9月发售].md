@@ -2398,3 +2398,60 @@ nb
 
 
                                                  
+
+-----
+
+####  宛若青空  
+##### 1683#       发表于 2021-6-19 11:18
+
+
+回想了下昨晚生放用媒体试玩版演示的时候松冈最后直冲往城镇的门去，然后大家赶紧掐了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+松冈还说差一点就有初公开情报了；
+
+但是，难道他们不知道媒体试玩的视频里就去过门口和那个NPC对话然后去打大螳螂BOSS了吗，而且这个媒体试玩版的剧情都是临时做的，和本篇都不一样，哪来的初公开情报啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+我知道了，一切都是为了节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  laoz  
+##### 1684#       发表于 2021-6-19 11:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51662746&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-19 11:18</a>
+
+回想了下昨晚生放用媒体试玩版演示的时候松冈最后直冲往城镇的门去，然后大家赶紧掐了
+
+松冈还说差一 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/054.png" referrerpolicy="no-referrer">都讲了7月份就没那么多料了，而且后面跟着播绯红的直播，肯定不会让他们讲那么久
+
+
+-----
+
+####  提挈天地  
+##### 1685#       发表于 2021-6-19 11:36
+
+
+话说数字限定的costume set dlc和历代bgm合集会在各平台商店里再拿出来单卖吧？
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  godless2020  
+##### 1686#       发表于 2021-6-19 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51662892&amp;ptid=1860328" target="_blank">提挈天地 发表于 2021-6-19 11:36</a>
+
+话说数字限定的costume set dlc和历代bgm合集会在各平台商店里再拿出来单卖吧？
+
+
+—— 来自 OPPO PDEM30, A ...</blockquote>
+一定会的............
+
+
+                                                 

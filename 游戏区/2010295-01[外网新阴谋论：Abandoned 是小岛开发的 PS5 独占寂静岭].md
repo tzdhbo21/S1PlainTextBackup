@@ -2079,3 +2079,38 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 
 
                                                  
+
+-----
+
+####  diketuiduoLI  
+##### 137#       发表于 2021-6-19 11:40
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/114004glq1e2i7m79qzqxm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-5482c29281f8fa2e.jpg</strong> (146.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 11:40 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Eadric  
+##### 138#       发表于 2021-6-19 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51662918&amp;ptid=2010295" target="_blank">diketuiduoLI 发表于 2021-6-19 11:40</a>
+
+—— 来自 S1Fun</blockquote>
+全是乐子人
+
+
+                                                 
