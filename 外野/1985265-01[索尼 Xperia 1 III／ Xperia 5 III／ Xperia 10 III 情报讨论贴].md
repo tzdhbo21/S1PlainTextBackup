@@ -9266,3 +9266,21 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  cleaner  
+##### 659#       发表于 2021-6-20 01:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51668520&amp;ptid=1985265" target="_blank">Cray 发表于 2021-6-19 21:47</a>
+游戏增强器 …
+
+
+----发送自 Sony H8296,Android 9</blockquote>
+啊…具体怎么操作？
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
