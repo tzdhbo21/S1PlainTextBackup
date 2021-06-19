@@ -9184,3 +9184,20 @@ au的都发售了，港版还要等<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  月神侠  
+##### 654#       发表于 2021-6-19 14:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599386&amp;ptid=1985265" target="_blank">木瓜奶五元 发表于 2021-6-14 20:48</a>
+
+用了一周了，随便说说：
+
+
+好评：</blockquote>
+马克兔就已经有磨砂黑了啊<img src="https://static.saraba1st.com/image/smiley/face2017/219.png" referrerpolicy="no-referrer">
+
+
+                                                 
