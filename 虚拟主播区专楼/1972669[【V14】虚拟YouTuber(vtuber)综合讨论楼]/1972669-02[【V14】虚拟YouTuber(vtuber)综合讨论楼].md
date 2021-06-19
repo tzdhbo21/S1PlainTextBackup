@@ -15150,3 +15150,127 @@ https://twitter.com/fuji_aoi_0618/status/1405900884962279424</blockquote>
 
 
                                                  
+
+-----
+
+####  qq845629713  
+##### 2695#       发表于 2021-6-19 18:06
+
+
+<img src="https://i.loli.net/2021/06/19/pPKGXzoMmxiqAO7.png" referrerpolicy="no-referrer">
+
+
+“喷子们说话，谁说我们彩虹3D资源不公平的？”
+
+
+不过皇女有点可爱<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 2696#       发表于 2021-6-19 18:11
+
+
+社要上机台，皇女估计工商和演出也不会少，麦麦倒是找不到啥理由了。
+
+
+-----
+
+####  ppf  
+##### 2697#       发表于 2021-6-19 18:11
+
+
+为啥不3bk一起更新呢
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alcoholic1000  
+##### 2698#       发表于 2021-6-19 18:12
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-19 18:17 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/180812cdihpzqtqhx6mmkg.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>新宿 アルタに映る黛灰くん ｢最近はやりのバーチャルが現実に介入してくるやつって思.jpeg</strong> (588.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 18:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/181230pyyw4myl4lwtlsyo.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>2021:6:19 18-30- 新宿アルタビジョン　書き起こし.jpeg</strong> (159.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 18:12 上传
+
+
+黑客的现地动画
+
+[https://twitter.com/morooooohey/status/1406187017080164353](https://twitter.com/morooooohey/status/1406187017080164353)
+[https://twitter.com/_taroyama_/status/1406188392015044612/photo/1](https://twitter.com/_taroyama_/status/1406188392015044612/photo/1)
+[https://www.youtube.com/watch?v=aJOv26LBbt4](https://www.youtube.com/watch?v=aJOv26LBbt4)
+
+
+-----
+
+####  FCCHua  
+##### 2699#       发表于 2021-6-19 18:16
+
+
+可能是麦麦那个质量太差了吧，不过早期的都挺一言难尽
+
+
+-----
+
+####  qq845629713  
+##### 2700#       发表于 2021-6-19 18:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 是为了堵住那些说彩虹只给上位势力资源的喷子们的嘴啊，
+
+
+
+
+-----
+
+####  CielChloe  
+##### 2701#       发表于 2021-6-19 18:20
+
+
+“一二期生就算再怎么糊，那也是开国老臣，到现在也没人毕业，倒是黑黑的新3D还要多久啊”<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 2702#       发表于 2021-6-19 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51666294&amp;ptid=1972669" target="_blank">FCCHua 发表于 2021-6-19 18:16</a>
+可能是麦麦那个质量太差了吧，不过早期的都挺一言难尽</blockquote>
+【【新3D】请大家看一看 全新的麦麦～！【NIJISANJI】【家长麦】-哔哩哔哩】https://b23.tv/T3aDsr
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">新做的3d那里惨不忍睹了啊 倒是那么近没什么进第二批翻新3d的必要
+
+
+-----
+
+####  Aminor  
+##### 2703#       发表于 2021-6-19 18:30
+
+
+mugi不是更新过一次了吗
+
+
+                                                

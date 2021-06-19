@@ -2628,3 +2628,117 @@ a9有人说他们互fo很久了
 
 
                                                  
+
+-----
+
+####  zzy516232108  
+##### 187#       发表于 2021-6-19 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">乐了
+
+
+-----
+
+####  zzy516232108  
+##### 188#       发表于 2021-6-19 18:14
+
+
+风怒
+
+
+-----
+
+####  矢量路比  
+##### 189#         楼主| 发表于 2021-6-19 18:35
+
+
+geoff 一直没收到说好的截图，但他又晒出来了一段对话
+
+<img src="https://img.saraba1st.com/forum/202106/19/182504k9xhlphw9xuehpel.png" referrerpolicy="no-referrer">
+
+
+<strong>ptnsdeohp4671.png</strong> (56.05 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 18:25 上传
+
+
+然后有人发现了一个很有意思的地方：geoff 是在 4:44 分发出的信息，而他在收到 Blue Box 回复的 27 分钟后截下了这张图
+
+[《P.T.》下载版停止配信，游戏可能流产](https://www.gcores.com/articles/15189)
+
+2015-04-27 
+
+[It's Official: Silent Hills Is Canceled](https://kotaku.com/its-official-silent-hills-is-cancelled-1700379816)
+
+4/27/15
+
+
+-----
+
+####  kletka  
+##### 190#       发表于 2021-6-19 18:38
+
+
+所以什么时候重新开放pt的下载呢
+
+
+-----
+
+####  luoyianwu  
+##### 191#       发表于 2021-6-19 18:39
+
+
+27, the magical number
+
+
+-----
+
+####  zeroed  
+##### 192#       发表于 2021-6-19 18:40
+
+
+ 本帖最后由 zeroed 于 2021-6-19 18:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51666451&amp;ptid=2010295" target="_blank">矢量路比 发表于 2021-6-19 18:35</a>
+
+geoff 一直没收到说好的截图，但他又晒出来了一段对话
+
+
+然后有人发现了一个很有意思的地方：geoff 是在 4:4 ...</blockquote>这张图还有一点，右边的超小滚动条，他们到底唠了多少
+
+<img src="https://img.saraba1st.com/forum/202106/19/184208iilp2lxxptlkketl.png" referrerpolicy="no-referrer">
+
+
+<strong>1624084119099.png</strong> (145.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 18:42 上传
+
+
+<img src="https://i.4cdn.org/v/1624084119099.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  enye  
+##### 193#       发表于 2021-6-19 18:46
+
+
+数字论证艹
+
+
+-----
+
+####  cloudian  
+##### 194#       发表于 2021-6-19 18:54
+
+
+……有这劲头儿，也可以好好研究一下红楼梦吧……<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
