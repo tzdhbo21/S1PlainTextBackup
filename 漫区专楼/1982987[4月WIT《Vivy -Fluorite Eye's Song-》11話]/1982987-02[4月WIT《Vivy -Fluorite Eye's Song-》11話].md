@@ -6098,3 +6098,19 @@ vv终极牺牲了？<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
                                                  
+
+-----
+
+####  MASKA-1  
+##### 1966#       发表于 2021-6-19 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51664922&amp;ptid=1982987" target="_blank">二夜祭 发表于 2021-6-19 15:33</a>
+
+一口气补到12话，表示虽然设定不靠谱，但不考虑设定的合理性，接受它的逻辑单纯看看演出还是可以的。
+
+至少 ...</blockquote>
+vivy这片已经沦落到和蜘蛛子比制作了吗
+
+
+                                                 

@@ -2742,3 +2742,38 @@ tod2是ps2上就有官中了吧。
 
 
                                                  
+
+-----
+
+####  宛若青空  
+##### 1707#       发表于 2021-6-19 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51667975&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-6-19 21:06</a>
+
+话说这着色器是真的强,这杂货摊的质感真的跟水粉画一模一样</blockquote>
+这两年也改进了很多
+
+
+对比一下19年公布的时候还是这样的
+
+<img src="https://img.saraba1st.com/forum/202106/19/212129hjtaihissbrsuppa.jpg" referrerpolicy="no-referrer">
+
+
+<strong>178f41f9afc13b2a1.jpg</strong> (186.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 21:21 上传
+
+
+-----
+
+####  bgmilk  
+##### 1708#       发表于 2021-6-19 21:27
+
+
+   大气透视可以再强点，中景的物品摆放感觉还不够融合，远景的效果就很好。
+
+
+                                                 
