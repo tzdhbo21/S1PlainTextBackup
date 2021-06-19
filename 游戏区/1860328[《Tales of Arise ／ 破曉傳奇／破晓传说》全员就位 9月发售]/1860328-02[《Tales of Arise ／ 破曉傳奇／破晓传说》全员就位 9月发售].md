@@ -2629,3 +2629,86 @@ TOGF那称号才真是刷的难受<img src="https://static.saraba1st.com/image/s
 
 
                                                  
+
+-----
+
+####  qiyu1234  
+##### 1699#       发表于 2021-6-19 18:57
+
+
+看到外面提游戏官中的话题
+
+我倒想起来，这作应该是TALES OF系列第一次全球同步发售的完全新作
+
+过往几部带官中的作品，TOD2晚了9个月多一点，TOZ晚了近9个月，TOB晚了12天，TOV HD全球同步但不算新作
+
+
+欧美发行作品比官中多很多，但是发售日就差的很多，TOD2就没欧美版，TOZ美版跟中文版同步，TOB晚5个月，TOGF TOHR晚1年多，TOX TOX2这种甚至晚了2年才发售，黄花菜都凉了
+
+
+-----
+
+####  宛若青空  
+##### 1700#       发表于 2021-6-19 19:14
+
+
+看外面那贴成本贴突然冒出几个独醒侠真恶心
+
+这还有PS4初期画面公版材质呢，眼睛不要可以捐了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  隔壁老黄  
+##### 1701#       发表于 2021-6-19 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51666634&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-19 18:57</a>
+看到外面提游戏官中的话题
+
+我倒想起来，这作应该是TALES OF系列第一次全球同步发售的完全新作
+
+过往几部带官 ...</blockquote>
+源头就是PSP的tod2中文版大宝寺
+
+
+-----
+
+####  qiyu1234  
+##### 1702#       发表于 2021-6-19 19:32
+
+
+ 本帖最后由 qiyu1234 于 2021-6-19 19:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51666889&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-6-19 19:27</a>
+
+源头就是PSP的tod2中文版大宝寺</blockquote>
+PSP版就是冷饭移植，卖不动也正常，另外PSP TOD2台版没有中文，PSP移植版只有日文和韩文
+
+早在PS2版官中出了以后就没后续动静了，真要卖的好，估计TOR开始系列官中就能延续下来了
+
+
+-----
+
+####  隔壁老黄  
+##### 1703#       发表于 2021-6-19 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51666952&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-19 19:32</a>
+PSP版就是冷饭移植，卖不动也正常，另外PSP TOD2台版没有中文，PSP移植版只有日文和韩文
+
+早在PS2版官中出 ...</blockquote>
+就是因为大宝寺导致中文化延后了，本来就是拿销量最猛的tod2试水的
+
+
+-----
+
+####  ranapocket  
+##### 1704#       发表于 2021-6-19 19:48
+
+
+tod2是ps2上就有官中了吧。
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

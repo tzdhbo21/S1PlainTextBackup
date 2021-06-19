@@ -2953,3 +2953,28 @@ NEGI☆U【公式】
 
 
                                                  
+
+-----
+
+####  梅斯之围  
+##### 6246#       发表于 2021-6-19 18:56
+
+
+生化7可还行，剩饭中的剩饭<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+已经被遗忘了的半年多的老滚5<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  乌鸦绅士  
+##### 6247#       发表于 2021-6-19 18:57
+
+
+ 本帖最后由 乌鸦绅士 于 2021-6-19 19:12 编辑 
+
+老滚前面还有个塞尔达呢<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">  
+
+随便推测一下，可能是想玩生化8时听说生化8是生化7的续篇，所以打算把两部按顺序一起玩。
+
+
+                                                 

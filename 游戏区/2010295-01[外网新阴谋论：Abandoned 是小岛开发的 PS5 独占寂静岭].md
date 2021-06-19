@@ -2742,3 +2742,94 @@ geoff 一直没收到说好的截图，但他又晒出来了一段对话
 
 
                                                  
+
+-----
+
+####  maiyunfei  
+##### 195#       发表于 2021-6-19 19:04
+
+
+论证太草了
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  矢量路比  
+##### 196#         楼主| 发表于 2021-6-19 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51666494&amp;ptid=2010295" target="_blank">zeroed 发表于 2021-6-19 18:40</a>
+这张图还有一点，右边的超小滚动条，他们到底唠了多少</blockquote>
+有可能是 geoff 一直在向上滚，经常遇到有人这么截图，目的是盖住上面不想被人看到的内容
+
+
+-----
+
+####  406129465  
+##### 197#       发表于 2021-6-19 19:07
+
+
+数字论证草
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  hshiki  
+##### 198#       发表于 2021-6-19 19:09
+
+
+开始了！开始了！MGS0又要来了！
+
+
+-----
+
+####  芷雅居  
+##### 199#       发表于 2021-6-19 19:17
+
+
+我发病了<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clover293  
+##### 200#       发表于 2021-6-19 19:18
+
+
+魔幻现实主义大作
+
+
+-----
+
+####  Eadric  
+##### 201#       发表于 2021-6-19 19:22
+
+
+快端上来罢
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  walfeds  
+##### 202#       发表于 2021-6-19 19:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">再论证下去hasan就是野兽先辈了
+
+
+-----
+
+####  KOS_MO  
+##### 203#       发表于 2021-6-19 19:28
+
+
+tell me lies, tell me sweet sweet little lies<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+                                                 

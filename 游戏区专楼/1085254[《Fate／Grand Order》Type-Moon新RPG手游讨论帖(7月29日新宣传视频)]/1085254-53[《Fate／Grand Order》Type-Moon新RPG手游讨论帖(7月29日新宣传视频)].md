@@ -15791,3 +15791,28 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  johnkamsar  
+##### 79298#       发表于 2021-6-19 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51664380&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-19 14:33</a>
+想要的卡永远抽不到</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我虽然也抽王姐暴死了，但抽到小达芬奇那算什么情况？
+
+
+-----
+
+####  qixinno2  
+##### 79299#       发表于 2021-6-19 19:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51666627&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-6-19 18:56</a>
+
+我虽然也抽王姐暴死了，但抽到小达芬奇那算什么情况？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狗 豹 建议打死 
+
+
+                                                 
