@@ -15398,3 +15398,16 @@ https://twitter.com/morooooohey/status/1406187017080164353</blockquote>
 
 
                                                  
+
+-----
+
+####  ppf  
+##### 2713#       发表于 2021-6-19 22:01
+
+
+<img src="https://p.sda1.dev/2/41c191fee69341e9afbbb174e3676535/IMG_CMP_110816676.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

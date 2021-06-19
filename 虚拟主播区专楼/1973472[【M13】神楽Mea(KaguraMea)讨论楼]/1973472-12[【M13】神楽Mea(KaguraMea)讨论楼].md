@@ -13332,3 +13332,26 @@ ps：顺便一提20分钟前，油管直播间的标题其实是“如果赢了�
 
 
                                                 
+
+-----
+
+####  Cushaw  
+##### 17673#       发表于 2021-6-19 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51667888&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-6-19 21:00</a>
+
+独角兽们可以开始祈祷发牌员天和九莲宝灯了</blockquote>
+你是要小麻直接去世吗？真是恶毒<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17674#       发表于 2021-6-19 22:09
+
+
+舞元天和应该也可以吧（
+
+
+                                                 

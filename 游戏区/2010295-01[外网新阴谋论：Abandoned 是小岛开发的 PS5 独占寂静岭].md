@@ -2878,3 +2878,47 @@ https://www.nicovideo.jp/watch/sm18908143
 
 
                                                  
+
+-----
+
+####  acejoe  
+##### 207#       发表于 2021-6-19 22:10
+
+
+我希望都是假的，我想看大乐子！
+
+
+-----
+
+####  kuker53  
+##### 208#       发表于 2021-6-19 22:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51668714&amp;ptid=2010295" target="_blank">Eadric 发表于 2021-6-19 22:02</a>
+
+—— 来自 S1Fun</blockquote>
+什么意思，我用我浅薄的英文水平如果没看错的话这人说他们也不知道？
+
+
+-----
+
+####  新八  
+##### 209#       发表于 2021-6-19 22:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51668983&amp;ptid=2010295" target="_blank">kuker53 发表于 2021-6-19 22:26</a>
+
+什么意思，我用我浅薄的英文水平如果没看错的话这人说他们也不知道？</blockquote>
+楼里面有一个小岛跟索尼收购了他们项目的猜测，如果是这种情况的话就说得通了
+
+
+-----
+
+####  rp1993  
+##### 210#       发表于 2021-6-19 22:31
+
+
+好好好，几周后Sony发布会见分晓
+
+
+                                                 
