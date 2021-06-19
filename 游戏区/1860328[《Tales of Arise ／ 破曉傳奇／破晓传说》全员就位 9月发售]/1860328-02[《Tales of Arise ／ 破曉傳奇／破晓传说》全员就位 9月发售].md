@@ -2802,3 +2802,22 @@ tod2是ps2上就有官中了吧。
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1711#         楼主| 发表于 2021-6-20 01:22
+
+
+ 本帖最后由 LT_Harry 于 2021-6-20 01:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51659882&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-6-19 00:07</a>
+
+爆气是手动的，可以爆气时男主会有蓝色斗气。
+
+BOSS菱形不会涨，只有半血和零血时固定出了STRIKE的提示
+
+ ...</blockquote>
+fami的文章说 overlimit 是靠挨打或者时机正好的回避自动触发的，挨最毒的打爆最蓝的气，不是自己能手动控制开关的。梦回2003年的 Tales of Symphonia 了呢 <blockquote>攻撃を受けた際や、ジャスト回避に成功すると、ときどき“オーバーリミッツ”が発動する。オーバーリミッツは一定時間、AGを消費せずに術技をくり出せるようになり、連携時間が大幅に伸びるといわけ。また、オーバーリミッツ中は、敵の攻撃を受けてものけぞらない。狙って発動させるのは難しいが、発動すれば一気に敵を畳み掛けられるのだ。</blockquote>
+
+
+                                                 

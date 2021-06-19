@@ -6548,3 +6548,281 @@ OST还是搞一搞的！
 
 
                                                  
+
+-----
+
+####  hinangel  
+##### 1997#       发表于 2021-6-20 00:53
+
+
+不抱太大期待看最终话其实观感还行，短发vivy真不错<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zzy516232108  
+##### 1998#       发表于 2021-6-20 00:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我不太明白，为什么vivy最后唱着唱着就没了。
+
+说是病毒会让所有ai停机，但是伊丽莎白怎么没事
+
+
+-----
+
+####  iamthegodthego  
+##### 1999#       发表于 2021-6-20 01:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670032&amp;ptid=1982987" target="_blank">zero_death 发表于 2021-6-20 00:23</a>
+
+vivy吹要是知道被你们拿来和蜘蛛子比制作 和成神比剧情 应该会怒不可遏吧 ...</blockquote>
+上一个叫嚣着“怒不可遏”的，正等着这个礼拜特别篇翻身呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dreki  
+##### 2000#       发表于 2021-6-20 01:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670285&amp;ptid=1982987" target="_blank">zzy516232108 发表于 2021-6-20 00:59</a>
+
+我不太明白，为什么vivy最后唱着唱着就没了。
+
+说是病毒会让所有ai停机，但是伊丽莎白怎么没事 ...</blockquote>
+她没有连archive，不过我总觉得这唱歌卵用没有全靠u盘<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  loley  
+##### 2001#       发表于 2021-6-20 01:02
+
+
+<blockquote>zzy516232108 发表于 2021-6-20 00:59
+我不太明白，为什么vivy最后唱着唱着就没了。
+
+说是病毒会让所有ai停机，但是伊丽莎白怎么没事 ...</blockquote>
+这个二号伊丽莎白是黑户，没和亞卡布联机啊😊
+
+
+-----
+
+####  timerrr  
+##### 2002#       发表于 2021-6-20 01:02
+
+
+b吧标准平稳落地，准备开吹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  灼眼的夏娜酱  
+##### 2003#       发表于 2021-6-20 01:03
+
+
+歌还不错<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zzy516232108  
+##### 2004#       发表于 2021-6-20 01:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670299&amp;ptid=1982987" target="_blank">loley 发表于 2021-6-20 01:02</a>
+
+这个二号伊丽莎白是黑户，没和亞卡布联机啊😊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我都忘了，好像上一集还是上上一集确实交代过
+
+
+-----
+
+####  Dreki  
+##### 2005#       发表于 2021-6-20 01:04
+
+
+现在看下来觉得作画整体很好，剧情前面单元剧还不错，最后这个实在不太行<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zzy516232108  
+##### 2006#       发表于 2021-6-20 01:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670298&amp;ptid=1982987" target="_blank">Dreki 发表于 2021-6-20 01:02</a>
+
+她没有连archive，不过我总觉得这唱歌卵用没有全靠u盘</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是这个道理
+
+
+-----
+
+####  JustW  
+##### 2007#       发表于 2021-6-20 01:09
+
+
+[https://bbs.saraba1st.com/2b/thread-2010879-1-1.html](https://bbs.saraba1st.com/2b/thread-2010879-1-1.html)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">按昨天的模板开了评分帖，有错误和需要修改的可以告诉我
+
+
+-----
+
+####  wolf1997  
+##### 2008#       发表于 2021-6-20 01:11
+
+
+标准8分片，不多不少，比异度侵入稍好，与没落要塞同级。放bgm的话现在的7.5就挺适合的。这种简单把经典科幻缝一套衣服套美少女成长故事的作品也不是少见的，算完成任务吧。
+
+有时候不一定要做飞机，做辆地上跑的跑车也不也挺好的
+
+
+-----
+
+####  Aliapapa  
+##### 2009#       发表于 2021-6-20 01:11
+
+
+最后这两集实属格局小了，这最后就不应该再来一个奇点计划失败的剧情，因为直接就跟前11集的主线切割掉了，最后还落入了AI消灭人类人类消灭AI的俗套。
+
+但是也不是说不能这么搞，但是这样想搞出点什么新意，再升华一下主题可就太难了。
+
+
+其实最后停在vivy能够作曲又通过努力和机缘最终唱出自己的曲目重新建立与diva的联系 皆大欢喜大团圆多好，结果编剧偏要揽毁灭世界的瓷器活。<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  杂灰  
+##### 2010#       发表于 2021-6-20 01:13
+
+
+虽然但是，好土...........
+
+
+
+
+-----
+
+####  Aliapapa  
+##### 2011#       发表于 2021-6-20 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670285&amp;ptid=1982987" target="_blank">zzy516232108 发表于 2021-6-20 00:59</a>
+
+我不太明白，为什么vivy最后唱着唱着就没了。
+
+说是病毒会让所有ai停机，但是伊丽莎白怎么没事 ...</blockquote>
+从来没连过archive数据库，所以没影响<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  chiefshi  
+##### 2012#       发表于 2021-6-20 01:14
+
+
+还是EP3、4还有歌姬和vivy交换人格时候两首歌印象最深，最后一集的感觉也就这样
+
+
+-----
+
+####  wolf1997  
+##### 2013#       发表于 2021-6-20 01:17
+
+
+不得不说音乐真的有打动人心的作用，听着听着心就放了下来，脾气都消了，还真有几分感动。
+
+“音乐不过是空气的振动，但这单纯的空气振动却创造了多彩的世界，这是世上的奇迹”重新认识到MUSICUS的这句话了
+
+
+-----
+
+####  zzy516232108  
+##### 2014#       发表于 2021-6-20 01:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">仔细想了下硬伤真的多。
+
+不过看在歌不错的份上，+0差不多了
+
+
+-----
+
+####  米德  
+##### 2015#       发表于 2021-6-20 01:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">"不就是个卫星吗 看我把它推回去"
+
+
+-----
+
+####  chexk03  
+##### 2016#       发表于 2021-6-20 01:24
+
+
+歌在最后的这个氛围下唱真是太棒了，就是一个人类观众都没有…你就不能别让博士死来听一下嘛<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+然后后日谈部分也太少了，说到唱歌自己会XX，我就知道会来失忆这招，真是太俗了，最后都要刀。
+
+
+总体来说薇薇这动画前10话是真的棒（特别是一口气看完），到创作歌曲（ED）部分都一气呵成，好几个小高潮，
+
+争议还是那么大的AI自我和反叛的主题，动画前面基本没啥解决，结果压到最后几话，大家都觉得莫名奇妙，觉得不可能顺利落地。
+
+其实动画老司机也都猜到，肯定还是会再跳回过去，通过铺垫那么久的歌声(ED新歌）去解决一切，就是看最后的演出让不让人信服，和调动情绪了，可惜对我来说最后还是差了一点。
+
+
++1，看在歌的份上+1.5，总体制作还是很可以的，故事也基本圆回来，优点是整个节奏非常紧凑看得很爽，但缺点也是节奏问题导致缺少细节铺垫和气氛渲染差一口气，
+
+要是每一话都像第一话是26分钟就好了，剧情设定的硬伤也没办法（横跨一百年就那么四个事件…），但看原创番就是爽，部分高潮戏不输剧场版，谢谢自己没错过。
+
+
+-----
+
+####  大江户战士  
+##### 2017#       发表于 2021-6-20 01:33
+
+
+这不是国家队结局吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格雷殿下  
+##### 2018#       发表于 2021-6-20 01:35
+
+
+歌是让机器人关机，插u盘是不让卫星坠毁吧
+
+
+-----
+
+####  shimotsuki14  
+##### 2019#       发表于 2021-6-20 01:37
+
+
+虽然但是
+
+
+13话这就完了？收束得有点太快了吧
+
+
+-----
+
+####  Sorastlos  
+##### 2020#       发表于 2021-6-20 01:38
+
+
+最后这主题歌，钢琴铺底，贝斯和吉他滑音，最后加弦乐爬音阶，一股come, sweet death的味道
+
+
+短发的Vivy好看的一比，性癖直击，削弱了我看的都是个啥的挫败感
+
+
+                                                
