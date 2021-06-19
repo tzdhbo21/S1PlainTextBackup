@@ -2678,3 +2678,25 @@ ns上糊吗，糊就买pc了
 
 
                                                  
+
+-----
+
+####  chords  
+##### 197#       发表于 2021-6-19 12:31
+
+
+今天在steam库里偶然点进星际拓荒的界面，发现多了12个成就，点开看了下，是名字为“ACHIEVEMENT_1”到“ACHIEVEMENT_12”的占位符，dlc估计快来了<img src="https://static.saraba1st.com/image/smiley/face2017/032.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Junakr  
+##### 198#       发表于 2021-6-19 12:39
+
+
+这波是全成就 dalao 的成就进度骤降至 59%<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">。
+
+
+                                                 

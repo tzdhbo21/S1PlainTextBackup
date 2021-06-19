@@ -2114,3 +2114,14 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 
 
                                                  
+
+-----
+
+####  矩形冰块  
+##### 139#       发表于 2021-6-19 13:04
+
+
+总觉得不太现实
+
+
+                                                 
