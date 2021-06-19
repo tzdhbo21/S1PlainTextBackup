@@ -6114,3 +6114,249 @@ vivy这片已经沦落到和蜘蛛子比制作了吗
 
 
                                                  
+
+-----
+
+####  JustW  
+##### 1967#       发表于 2021-6-19 22:30
+
+
+ 本帖最后由 JustW 于 2021-6-19 22:41 编辑 
+
+最后一集看看直播吧（）
+
+<img src="https://img.saraba1st.com/forum/202106/19/224101xz9nrm788d2ddjn4.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕快照 2021-06-19 下午10.40.40.png</strong> (110.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 22:41 上传
+
+
+二人善终（不是）
+
+
+-----
+
+####  renkan119  
+##### 1968#       发表于 2021-6-19 22:39
+
+
+好吧 想多了 阿卡布预测不了轮回 牺牲博士就是为了多保存点人手…
+
+
+-----
+
+####  JustW  
+##### 1969#       发表于 2021-6-19 22:42
+
+
+ 本帖最后由 JustW 于 2021-6-19 22:45 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">都已经是AI杀过人的世界线了，还能和平共处吗
+
+
+之前零塑造的navi最终话突然跳了出来（）
+
+
+-----
+
+####  泉美  
+##### 1970#       发表于 2021-6-19 22:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 1971#       发表于 2021-6-19 22:57
+
+
+ 本帖最后由 JustW 于 2021-6-19 22:58 编辑 
+
+什么玩意儿，vivy自己唱着唱着没了，AI十分感动停了手，卫星落地不知道为啥没有取消，松本和卫星一换一了，戛然而止
+
+
+然后不知道多久后AI和人类和平共处了，短发的格式化vivy和松本二人幸终（？）
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">等熟肉了
+
+
+-----
+
+####  Piano-Forest  
+##### 1972#       发表于 2021-6-19 22:58
+
+
+【キャラクター設定】
+
+・松本博士
+<img src="https://p.sda1.dev/2/26a89ac9596cd545949a976aa282dc48/E35ilVAUUAUfqRk.jpg" referrerpolicy="no-referrer">
+
+・エリザベス（複製体）
+<img src="https://p.sda1.dev/2/b28a5b734a2e14726e0b2fa78915922e/E35im5LUYAMs8Po.jpg" referrerpolicy="no-referrer">
+
+
+「Vivy -Fluorite Eye’s Song-」 #12 原画
+<img src="https://p.sda1.dev/2/7860596d6cd0f6f5918203798ebcae79/E36EP4WUYAAEp-v.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/1be2b86e6c9a8e7092f2efad0cdaa8aa/E36ESNPVEAI1uQ9.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/ab3db01a4ba7af9b22ac6f2758bc61dc/E36Evf4VIAAaqNu.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/c57814bf85308d9cfa220e045c46cae9/E36E0EMVcAIh52y.jpg" referrerpolicy="no-referrer">
+
+
+【ワールドページ更新】
+
+12話キーワードを更新しました。ぜひご活用ください。
+
+[https://vivy-portal.com/world/](https://vivy-portal.com/world/) 
+
+
+[KEYWORDS]
+
+・12話キーワード解説（アーカイブ、マツモトの別個体、最後の時間遡行）
+
+
+アーカイブ
+
+#12
+
+AI集合データベースの総称。全てのAIの記憶領域の代替をしており、日々無数の演算ログが蓄積される。本来、他のAIのような自己判断をする機能は備わっていなかったが、数多のAIのログを処理するうちに個性を確立。与えられた使命を自己解釈し、『人間とAI』の戦争を誘発した。
+
+
+マツモトの別個体
+
+#12
+
+100年後の世界においても、AIとして最高スペックを誇るマツモト。その完成データはアーカイブ内に保存されており、アラヤシキの防衛用に複製利用された。AIの個性までは再現されておらず、マツモトと違って無駄口を叩かない。
+
+
+最後の時間遡行
+
+#12
+
+マツモトと松本博士の画策により、ヴィヴィに最後に与えられたシンギュラリティ計画遂行の機会。1話の時点ではマツモトのプログラムのみが送られたが、ヴィヴィの100年の記憶データを転送する必要があるため、『人間とAIの戦争』が始まった時点までしか遡れない。また、計画のために松本博士を救いにいけないため、次の時間遡行を行うチャンスは存在しない。
+
+
+[Background art]
+
+・アラヤシキの中枢
+<img src="https://p.sda1.dev/2/3f45b6c77b4f5159bfb626d6750141a3/25.jpg" referrerpolicy="no-referrer">
+
+
+13話 Fluorite Eye’s Song
+
+
+「――私の使命は、歌でみんなを幸せにすること」
+
+
+自らの意思で歌を作り上げたAI。――AI初の創造性を発揮し、100年の旅路で最も多くの人間と触れ合ったヴィヴィに、アーカイブは人類の存亡を懸けた選択を委ねる。その重荷に一度は潰されるヴィヴィだったが、同じ100年間を過ごしたマツモトの叱咤と松本博士の決死の覚悟を受け、今一度、人類の存亡を懸けたシンギュラリティ計画へ挑む。
+
+与えられた最後のチャンス、はたしてヴィヴィは自らの使命を、「歌でみんなを幸せにすること」を実現することができるのか――。
+<img src="https://p.sda1.dev/2/7a171523b7d47e1fe0c3475e1daac380/story_2013_photo_162398155077719844.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/469d088531189e04114e2e9e55a56fab/story_2013_photo_1623981549303490326.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/668eb8ae4eadb67e4852beddf0dd05df/story_2013_photo_1623981549839149727.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/fc26b1e2365487f91a42e72f83e4800e/story_2013_photo_1623981550269798261.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuruki  
+##### 1973#       发表于 2021-6-19 22:59
+
+
+歌的效果也一般呐，看86去了
+
+
+-----
+
+####  Piano-Forest  
+##### 1974#       发表于 2021-6-19 23:01
+
+
+<img src="https://p.sda1.dev/2/1f200cb3dfbd2ee52567114d879d6c3c/E4I6xQ9UYAMsOFg.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/eeb86c15e0cdadc4e0780c10160d6c88/E4PpLvZVkAgHsiL.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shadow001  
+##### 1975#       发表于 2021-6-19 23:02
+
+
+全世界播歌,AI停機,看著看著想起火星人玩轉地球<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  renkan119  
+##### 1976#       发表于 2021-6-19 23:02
+
+
+这第二次穿越除了拖了一集外有什么意义吗… 直接上集就唱剧情也没什么差别吧
+
+
+-----
+
+####  JustW  
+##### 1977#       发表于 2021-6-19 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">刚才看了的有没有人告诉我一下vivy怎么唱着唱着唱没了
+
+
+-----
+
+####  圆环之爱  
+##### 1978#       发表于 2021-6-19 23:05
+
+
+等熟肉再看看效果，看是+0还是-1
+
+
+-----
+
+####  D-JoeII  
+##### 1979#         楼主| 发表于 2021-6-19 23:11
+
+
+最後那段感覺他們只是活在Archvie(那個房間)
+
+
+-----
+
+####  PlayStation2  
+##### 1980#       发表于 2021-6-19 23:18
+
+
+也不是不行……不细想的话，跟着看下来还是挺好看的。
+不过最后的演出突然断档那里就很难受啊（观感上），感情刚被歌拉起来，余韵还没结束就突然断了有点莫名其妙，是要表现be的话也不是不可以…那为何最后又来个不知道为何复活的世界线呢？有种两头都想照顾结果两边都搞的不上不下了。
+AI停止的演出上都飘粒子了，最后脱离肉身变成粒子态边唱边飘向宇宙多好啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+方块松本最后单体撞卫星也很草，质量相差那么多，还是在快到地面前撞上的，这都能保住游乐园，怕不是觉醒了NT推陨石的能力
+
+
+
+
+-----
+
+####  天王寺凯伊姆  
+##### 1981#       发表于 2021-6-19 23:27
+
+
+这个最后其实很像赛马娘2最后麦昆帝宝那一幕，可以说活着也可以说死了。关键还是等熟肉看看这个歌到底唱了干嘛用
+
+
+-----
+
+####  renkan119  
+##### 1982#       发表于 2021-6-19 23:34
+
+
+这13话的感觉就像是玩gal 在大结局前选错了选项进入了BE 然后发现自己忘记在选项前存档了 只能读取一个比较早的存档 为了几分钟不一样的结局剧情重打了前面20多分钟的剧情
+
+
+                                                
