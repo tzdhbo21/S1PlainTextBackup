@@ -1945,3 +1945,81 @@ Geoff Keighley、PlayStation、Konami，演员都到齐了
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 127#       发表于 2021-6-19 08:36
+
+
+ 本帖最后由 luoyianwu 于 2021-6-19 08:40 编辑 
+<blockquote>The correct answer is:
+
+
+BEST LEVEL USER EXPERIENCE
+
+
+It stands for unique gameplay interactions with unparallel user experiences.
+
+
+Those who were amongst the first ones to guess it, will receive a DM shortly!
+
+[url]https://twitter.com/BBGameStudios/status/1406047944298700802[/url]</blockquote>
+B.L.U.E的谜底过于普通，以至于全场震惊
+
+
+-----
+
+####  luoyianwu  
+##### 128#       发表于 2021-6-19 08:44
+
+
+ 本帖最后由 luoyianwu 于 2021-6-19 08:54 编辑 
+<blockquote>Mark Ⴟ Delaney
+
+@markdelaneysays
+
+I just had an illuminating hour-long phone call with the real Hasan Kahraman. Abandoned is real, it sounds great, and I’m getting off this crazy train.</blockquote>
+GameSpot的自由撰稿人Mark Ⴟ Delaney说他刚和真正的Hasan通话。Abandoned是真实存在的。Mark是BLUE BOX关注的七个用户之一
+
+Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o34hn8/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o34hn8/)
+
+
+-----
+
+####  DTCPSS  
+##### 129#       发表于 2021-6-19 08:57
+
+
+ 本帖最后由 DTCPSS 于 2021-6-19 09:02 编辑 
+
+我悟了，岛哥哥觉得 Decima 私有引擎太难用，所以最好直接用虚幻 (Better Leverage Unreal Engine，BLUE) 。这也是呼吁广大日厂不要再像 FOX 和 Decima 那样造轮子了，要抱着开放的心态融入行业标准。
+掷地有声，温馨感人。
+
+
+-----
+
+####  Eadric  
+##### 130#       发表于 2021-6-19 09:24
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/092413krp7wzks6irps4p0.png" referrerpolicy="no-referrer">
+
+
+<strong>微信截图_20210619092358.png</strong> (56 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 09:24 上传
+
+
+-----
+
+####  rak1  
+##### 131#       发表于 2021-6-19 09:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">老活新整？如果不是的话就爆笑了
+
+
+                                                 

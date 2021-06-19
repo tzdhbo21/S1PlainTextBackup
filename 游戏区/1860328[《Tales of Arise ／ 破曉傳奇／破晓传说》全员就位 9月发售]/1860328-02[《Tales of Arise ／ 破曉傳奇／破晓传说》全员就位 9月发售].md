@@ -2334,3 +2334,56 @@ TOX2改进了很多，例如双人秘奥义，不过局限性还是太大，双�
 
 
                                                  
+
+-----
+
+####  masterzx  
+##### 1679#       发表于 2021-6-19 07:51
+
+
+ 本帖最后由 masterzx 于 2021-6-19 08:15 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/075117gekekerrkk5sxerk.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (8.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 07:51 上传
+
+
+nb
+
+
+年轻人的第一款传说要来了
+
+
+-----
+
+####  zero12  
+##### 1680#       发表于 2021-6-19 08:59
+
+
+贴吧都没看见几个帖子怎么热度这么高
+
+
+
+
+-----
+
+####  qiyu1234  
+##### 1681#       发表于 2021-6-19 09:06
+
+
+ 本帖最后由 qiyu1234 于 2021-6-19 09:07 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51661634&amp;ptid=1860328" target="_blank">zero12 发表于 2021-6-19 08:59</a>
+
+贴吧都没看见几个帖子怎么热度这么高</blockquote>
+贴吧热度现在真的不大行了，前10有一半是ACG相关内容
+
+另外可能内部人员粉丝提上来的/万南买热度（好像不太可能）
+
+
+                                                
