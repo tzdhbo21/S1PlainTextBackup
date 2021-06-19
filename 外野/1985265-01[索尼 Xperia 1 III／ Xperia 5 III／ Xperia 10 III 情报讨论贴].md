@@ -9137,3 +9137,37 @@ au的都发售了，港版还要等<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 651#       发表于 2021-6-19 10:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51656048&amp;ptid=1985265" target="_blank">Nanachi 发表于 2021-6-18 18:49</a>
+弃用支付宝卧槽，泥潭索粉信仰真的足
+
+—— 来自 OnePlus KB2000, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+不是……支付宝无非就是不能指纹支付，有什么影响啊
+
+难道在支付宝当年支持指纹前就没人用支付宝了吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Nanachi  
+##### 652#       发表于 2021-6-19 10:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51662270&amp;ptid=1985265" target="_blank">我很费纸 发表于 2021-6-19 10:24</a>
+
+不是……支付宝无非就是不能指纹支付，有什么影响啊
+
+
+难道在支付宝当年支持指纹前就没人用支付宝了吗[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也不知道啊，我现在的一加手机root之后微信指纹支付也用不了，一直都输密码的。
+
+
+                                                 

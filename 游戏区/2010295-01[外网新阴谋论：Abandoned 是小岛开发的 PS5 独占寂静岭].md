@@ -2023,3 +2023,59 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 
 
                                                  
+
+-----
+
+####  すぴぱら  
+##### 132#       发表于 2021-6-19 10:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51661619&amp;ptid=2010295" target="_blank">DTCPSS 发表于 2021-6-19 08:57</a>
+我悟了，岛哥哥觉得 Decima 私有引擎太难用，所以最好直接用虚幻 (Better Leverage Unreal Engine，BLUE)  ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也有可能是epic投了钱
+
+
+-----
+
+####  zzy516232108  
+##### 133#       发表于 2021-6-19 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51660762&amp;ptid=2010295" target="_blank">Heero_Z 发表于 2021-6-19 02:23</a>
+
+想起来那个论证死搁就是MGS0的那个帖子了
+
+
+—— 来自 Sony XQ-AT51, Android 11上的 S1Next-鹅版 v2 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">我记得还看过外网一套视频 说DS就是MGS0，看完不得不感叹岛学nb
+
+
+-----
+
+####  zzy516232108  
+##### 134#       发表于 2021-6-19 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51661809&amp;ptid=2010295" target="_blank">Eadric 发表于 2021-6-19 09:24</a></blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">越来越感觉是这个bluebox巨魔跟风了
+
+
+-----
+
+####  C男  
+##### 135#       发表于 2021-6-19 10:50
+
+
+游戏不会做，就会整活，做什么游戏公司，做策划公司不好吗？
+
+
+-----
+
+####  九十九忍  
+##### 136#       发表于 2021-6-19 11:18
+
+
+真是巨魔蹭热度小岛会澄清的吧
+
+
+                                                 
