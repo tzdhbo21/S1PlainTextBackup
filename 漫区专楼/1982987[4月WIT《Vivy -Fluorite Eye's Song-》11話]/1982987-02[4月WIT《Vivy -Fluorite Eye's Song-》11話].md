@@ -6992,3 +6992,32 @@ VIVY的核心就是以单元剧的形式呈现“科幻X歌姬”的主题。不
 
 
                                                  
+
+-----
+
+####  kxh007458  
+##### 2030#       发表于 2021-6-20 02:47
+
+
+看完后想了想，不对啊，你服务器不就是想薇薇唱歌么？还专门设置全部停机这种条件，理论上第二次穿越过去能唱歌了直接连接服务器唱歌给它听让它播放给所有AI不就完了？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这一整集到底是在忙些什么鬼？
+
+
+-----
+
+####  baozi268369重练  
+##### 2031#       发表于 2021-6-20 02:55
+
+
+我觉得主要还是最后一个单元太拉胯导致其他问题无限放大
+
+
+-----
+
+####  terminator1990  
+##### 2032#       发表于 2021-6-20 03:00
+
+
+歌还行，短发Vivy还行，最后一集也就这俩看点了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                 
