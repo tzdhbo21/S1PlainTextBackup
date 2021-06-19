@@ -2999,3 +2999,73 @@ https://www.nicovideo.jp/watch/sm18908143
 
 
                                                  
+
+-----
+
+####  死体旅行  
+##### 216#       发表于 2021-6-20 04:31
+
+
+大半夜的这个消息真是让人异常兴奋啊
+
+
+-----
+
+####  luoyianwu  
+##### 217#       发表于 2021-6-20 04:31
+
+
+<img src="https://p.sda1.dev/2/ded43375584e3a3129460aef95b5a415/xEUF3DN.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoyianwu  
+##### 218#       发表于 2021-6-20 04:35
+
+
+ 本帖最后由 luoyianwu 于 2021-6-20 04:36 编辑 
+
+<img src="https://p.sda1.dev/2/8be15845d22c3d77e5312c6ca7381754/QQ截图20210619163321.png" referrerpolicy="no-referrer">
+
+Hasan在instagram上关注了荒野大镖客2为亚瑟配音的Roger Clark。Abandoned公布三天后的4月10日，Roger立即发了推：“不知道各位怎么看Abandoned这个游戏”。
+
+
+-----
+
+####  luoyianwu  
+##### 219#       发表于 2021-6-20 05:24
+
+
+27 = 3x3x3
+Box<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoyianwu  
+##### 220#       发表于 2021-6-20 05:29
+
+
+ 本帖最后由 luoyianwu 于 2021-6-20 05:31 编辑 
+
+<img src="https://p.sda1.dev/2/bf8ddab1717d0462e5bf86a80a54a9db/FFB176A3-166A-4462-B20E-49E3ABC313CF.jpeg" referrerpolicy="no-referrer">
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o3pze2/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o3pze2/)
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o3q8nj/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o3q8nj/)
+
+
+真伪自辨
+
+
+-----
+
+####  Flechette  
+##### 221#       发表于 2021-6-20 05:53
+
+
+整个帖子看下来，不得不感叹岛哥哥真的会整活，可以说是游戏界营销第一人了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
