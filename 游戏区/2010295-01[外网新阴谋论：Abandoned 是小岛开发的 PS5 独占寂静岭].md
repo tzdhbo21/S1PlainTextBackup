@@ -2520,3 +2520,80 @@ a9有人说他们互fo很久了
 
 
                                                  
+
+-----
+
+####  hshiki  
+##### 177#       发表于 2021-6-19 16:20
+
+
+是否该增建岛哥哥病栋了
+
+
+-----
+
+####  ranapocket  
+##### 178#       发表于 2021-6-19 16:24
+
+
+这楼不已经是病栋了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  edenpenn  
+##### 179#       发表于 2021-6-19 16:27
+
+
+ 本帖最后由 edenpenn 于 2021-6-19 16:40 编辑 
+
+玩家一发病，小岛就发笑<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tepk  
+##### 180#       发表于 2021-6-19 16:32
+
+
+这个工作室背后可能确实有点东西，但狼来了喊多了已经麻木了，我不信
+
+
+
+
+-----
+
+####  日日日日日野  
+##### 181#       发表于 2021-6-19 16:40
+
+
+<blockquote>luoyianwu 发表于 2021-6-19 15:43
+我觉得可能。我刚用据说能按时间顺序排序follower的tweetbot看了一眼，双方都不在对方列表的最上方或最下 ...</blockquote>
+这种事情我只能说，如果不是最近fo 的，或者说不是最近显露出来的，那么第一天阴谋论出现的时候就会有人看了，不要低估粉丝的行动力
+
+
+-----
+
+####  Dgnic_  
+##### 182#       发表于 2021-6-19 16:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一切都到位，也是时候了
+
+
+-----
+
+####  Cranberries  
+##### 183#       发表于 2021-6-19 16:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51665356&amp;ptid=2010295" target="_blank">ranapocket 发表于 2021-6-19 16:24</a>
+这楼不已经是病栋了
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+这算啥病栋，resetera三天多4500楼才是离谱。
+
+
+                                                
