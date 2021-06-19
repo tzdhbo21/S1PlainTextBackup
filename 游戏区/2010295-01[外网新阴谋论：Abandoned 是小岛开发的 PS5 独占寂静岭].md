@@ -3069,3 +3069,36 @@ Box<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referre
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 222#       发表于 2021-6-20 06:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670986&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-20 05:29</a>
+https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o3pze2/
+
+
+https://www.reddit.com/r/TheBlueBo ...</blockquote>
+每个私信这个账号的人都收到了差不多但是略有区别的回复，“敬请期待🤫”
+
+
+-----
+
+####  luoyianwu  
+##### 223#       发表于 2021-6-20 06:44
+
+
+ 本帖最后由 luoyianwu 于 2021-6-20 06:56 编辑 
+
+[https://www.resetera.com/threads ... 42930/post-67827997](https://www.resetera.com/threads/blue-box-game-studios-recently-announced-their-game-abandoned-as-a-ps5-exclusive-now-this-weird-tweet-comes-out-today.442930/post-67827997)
+
+Geoff重申周二（6/22）将举办的活动（Abandoned Trailers App上线）与他无关。他又上推向Hasan催了一次截图。
+
+同时，昨天采访了Hasan的Mark表示，在电话中Hasan告诉他，周二的活动会通过Geoff的社交媒体展开。Mark在resetera上对Geoff提出疑问。
+
+Geoff推特直播七点开始开始
+
+
+                                                 
