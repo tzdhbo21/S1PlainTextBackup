@@ -9201,3 +9201,38 @@ au的都发售了，港版还要等<img src="https://static.saraba1st.com/image/
 
 
                                                  
+
+-----
+
+####  kila31  
+##### 655#       发表于 2021-6-19 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599386&amp;ptid=1985265" target="_blank">木瓜奶五元 发表于 2021-6-14 20:48</a>
+用了一周了，随便说说：
+
+
+好评：</blockquote>
+Gboard 可以正常输入书名号那些的，但需要长按。确实弱智就是了。
+<img src="https://p.sda1.dev/2/c4ea08ecab0450c921049d0d514b76d1/IMG_CMP_196479378.png" referrerpolicy="no-referrer">
+
+—— 来自 Google Pixel 4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  KayoAiko  
+##### 656#       发表于 2021-6-19 20:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51599386&amp;ptid=1985265" target="_blank">木瓜奶五元 发表于 2021-6-14 20:48</a>
+用了一周了，随便说说：
+
+
+好评：</blockquote>
+Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from Sony XQ-AT72, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

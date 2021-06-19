@@ -13204,3 +13204,72 @@ syl 算了，埋了吧臭坦克<img src="https://static.saraba1st.com/image/smil
 
 
                                                  
+
+-----
+
+####  A2014720  
+##### 17666#       发表于 2021-6-19 19:55
+
+
+所以今天是和兔妈妈磨豆腐去了？
+
+
+-----
+
+####  T_Hb  
+##### 17667#       发表于 2021-6-19 20:09
+
+
+ 本帖最后由 T_Hb 于 2021-6-19 20:12 编辑 
+
+没,借用上个月去迪士尼记错票日期的事anti了一下兔妈妈,
+
+然后顶了一下今天animare的活动,也不知道出场是真的还是假的
+
+
+-----
+
+####  路人庚  
+##### 17668#       发表于 2021-6-19 20:33
+
+
+ 本帖最后由 路人庚 于 2021-6-19 20:41 编辑 
+
+[https://www.youtube.com/watch?v=S-jEhr0kIwA](https://www.youtube.com/watch?v=S-jEhr0kIwA)
+
+【#雀魂2周年大感謝杯】俺、この戦いに勝ったら一一…舞元啓介と離婚するんだ。【予選A前半/神楽めあ視点】
+
+
+比赛是明天东京下午2点半开始，直播间预定是东京下午2点整开
+
+
+标题：如果俺赢了这场战斗，那就跟舞元启介离婚哒。
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐看来要一轮游了
+
+
+ps：顺便一提20分钟前，油管直播间的标题其实是“如果赢了就结婚”，而且封面上写的是“犬山tamaki视点”（）
+
+
+然后根据苔苔的推特回复可以猜到这个封面文字是嫖的苔苔的（
+
+
+在你咩姐改好直播封面之后顺便也把标题改成了“如果赢了就离婚”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17669#       发表于 2021-6-19 20:39
+
+
+ 本帖最后由 T_Hb 于 2021-6-19 20:43 编辑 
+
+看这封面 ,人员已经分配好了
+
+明天是(你咩 苔苔 郡道 歌衣)(舞元 羽衣 兔妈 伊东)
+
+这封面素材好像是嫖的苔苔的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

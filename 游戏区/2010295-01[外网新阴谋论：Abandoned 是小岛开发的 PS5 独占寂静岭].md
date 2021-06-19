@@ -2833,3 +2833,27 @@ tell me lies, tell me sweet sweet little lies<img src="https://static.saraba1st.
 
 
                                                  
+
+-----
+
+####  clover293  
+##### 204#       发表于 2021-6-19 20:23
+
+
+blue box game studio这个名字确实很有意思啊，索尼不是一直蓝色么，而且这个logo也确实太像现在索尼用的那个PS studio的logo了
+
+
+-----
+
+####  DTCPSS  
+##### 205#       发表于 2021-6-19 20:24
+
+
+我想到了这个经典的野兽先辈Snake说：<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+https://www.nicovideo.jp/watch/sm18908143
+
+
+- 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/zh-cn/p/stage1st/9nj2qf6m25f6) 非官方客户端
+
+
+                                                 

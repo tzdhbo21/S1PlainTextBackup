@@ -2712,3 +2712,33 @@ tod2是ps2上就有官中了吧。
 
 
                                                  
+
+-----
+
+####  marlowe723  
+##### 1705#       发表于 2021-6-19 19:57
+
+
+想玩TOD1导演剪辑版<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  蓝雉  
+##### 1706#       发表于 2021-6-19 21:06
+
+
+<img src="https://img.saraba1st.com/forum/202106/19/210609a3srmb5gm1zgr3q5.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210619205927.jpg</strong> (244.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 21:06 上传
+
+
+话说这着色器是真的强,这杂货摊的质感真的跟水粉画一模一样
+
+
+                                                 

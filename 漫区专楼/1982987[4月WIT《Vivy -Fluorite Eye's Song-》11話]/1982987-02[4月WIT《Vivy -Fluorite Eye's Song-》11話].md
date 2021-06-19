@@ -6064,3 +6064,37 @@ vv终极牺牲了？<img src="https://static.saraba1st.com/image/smiley/face2017
 
 
                                                  
+
+-----
+
+####  hein  
+##### 1964#       发表于 2021-6-19 19:35
+
+
+ 本帖最后由 hein 于 2021-6-19 20:26 编辑 
+<blockquote>nerugigannte 发表于 2021-6-17 16:59
+倒数第二集能给出个下三滥桥段的编剧我不对他的bad end抱任何希望，先不论本身水平如何，至少在这片上起 ...</blockquote>
+可以负负得正<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/19/202626muu9spluskm7sqll.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E4CP9XKUcAAZgQ-.jpg</strong> (47.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-19 20:26 上传
+
+
+-----
+
+####  亚瑟邓特  
+##### 1965#       发表于 2021-6-19 19:41
+
+
+全果待机看笑话了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
