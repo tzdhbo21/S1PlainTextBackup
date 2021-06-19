@@ -2777,3 +2777,28 @@ tod2是ps2上就有官中了吧。
 
 
                                                  
+
+-----
+
+####  zero12  
+##### 1709#       发表于 2021-6-20 00:38
+
+
+看了b站的一个奥尔芬角色预告想到一个问题，面具打开之前是怎么看见东西和吃饭的呢？
+
+
+-----
+
+####  LT_Harry  
+##### 1710#         楼主| 发表于 2021-6-20 00:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670134&amp;ptid=1860328" target="_blank">zero12 发表于 2021-6-20 00:38</a>
+
+看了b站的一个奥尔芬角色预告想到一个问题，面具打开之前是怎么看见东西和吃饭的呢？ ...</blockquote>
+《盲生你发现了华点》<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+奥尔芬面相这么好，一看就是天神下凡、人中龙凤，背后必有不简单的背景故事。
+
+
+                                                 

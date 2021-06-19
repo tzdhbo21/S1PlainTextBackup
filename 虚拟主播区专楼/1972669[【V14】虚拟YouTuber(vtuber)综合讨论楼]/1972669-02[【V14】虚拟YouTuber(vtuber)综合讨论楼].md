@@ -15497,3 +15497,120 @@ Zsyl，小夜...3D...配信
 
 
                                                  
+
+-----
+
+####  fastary  
+##### 2718#       发表于 2021-6-19 23:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51669423&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-6-19 23:12</a>
+
+应该是在走剧情，别太担心（毕竟续约的2年过来了）
+
+Syl，拍得很不错
+
+沼じゃん@numarisou</blockquote>
+其实拖到现在都没有担心的力气了……这剧情一走一个月过去了还没完，他能不能别像便秘一样憋不出来啊（<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+再不回来路人观众要跑光了<img src="https://static.saraba1st.com/image/smiley/face2017/126.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 2719#       发表于 2021-6-20 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51669216&amp;ptid=1972669" target="_blank">fastary 发表于 2021-6-19 22:49</a>
+三个月怕是我都退管人坑了
+
+不过两年一续约，能撑过七月至少不用担心他毕业了是吧
+
+ ...</blockquote>
+估计会间断整活偶尔动动的，运营让带货啥的，最in男性组合（之一）挑染组不能没有他啊！
+省一楼，明天打麻大赛，今天郡道才临时抱佛脚打段位战，看起来是铁完蛋了，提前给组长谢罪吧
+
+
+-----
+
+####  划水的B612  
+##### 2720#       发表于 2021-6-20 00:12
+
+
+只能说这下gbr毕业原因成迷了<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kangkangsama  
+##### 2721#       发表于 2021-6-20 00:13
+
+
+<blockquote>rzrbtk 发表于 2021-6-20 00:08
+估计会间断整活偶尔动动的，运营让带货啥的，最in男性组合（之一）挑染组不能没有他啊！
+
+省一楼，明天打 ...</blockquote>
+来笔给你，写篇组长处罚郡道的同人。
+
+
+-----
+
+####  NBXX  
+##### 2722#       发表于 2021-6-20 00:14
+
+
+GEMS COMPANY、新メンバー「小瀬戸らむ」の加入を発表　7月中に改めてお披露目
+<img src="https://asset.panora.tokyo/wp-content/uploads/2021/06/20004636/kosedoram-scaled.jpeg" referrerpolicy="no-referrer"> <blockquote>スクウェア・エニックスがプロデュースするアイドルグループ「GEMS COMPANY」は20日、バラエティ番組「じぇむかんTV」にて、3月より募集していた新メンバーオーディションの結果として、小瀬戸らむ（こせどらむ）さんの</blockquote>
+
+
+-----
+
+####  IDIDIDID  
+##### 2723#       发表于 2021-6-20 00:19
+
+
+ 本帖最后由 IDIDIDID 于 2021-6-20 00:25 编辑 
+
+魂号营收只要能超过皮号流水的1/3就是净赚，有退路润是很正常的事情。
+
+不过GBR这种爽完就润的结果是剩下那几个吃大量资源的直播员估计会被换合同吧，不然田角做慈善了。
+
+
+-----
+
+####  超能力者stven  
+##### 2724#       发表于 2021-6-20 00:26
+
+
+四月招完，三个半月就出道了，还挺快的
+
+
+-----
+
+####  adamtheo  
+##### 2725#       发表于 2021-6-20 00:36
+
+
+BOOGEY VOXX也3D了，看起来还可以→ #デッドマーチ02
+
+给其他管人送了不少票换免费宣传，那能不能把开头无料放出来啊
+
+
+-----
+
+####  rzrbtk  
+##### 2726#       发表于 2021-6-20 00:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51669944&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-6-20 00:13</a>
+来笔给你，写篇组长处罚郡道的同人。</blockquote>
+以后每次约联动就会被嘴；
+联动的时候把组长打飞会被嘴；
+联动的时候被打飞又被嘴；
+无论联动的时候是高位还是低位都会被说“啊～上次大赛的时候…”；
+这样永远地被组长当成玩物！烤肉也不能吃！真是可别输太惨啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">。
+省一楼，郡道玩儿友人战，对面名字是ロアフ诶<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+                                                 

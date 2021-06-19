@@ -6360,3 +6360,191 @@ AI停止的演出上都飘粒子了，最后脱离肉身变成粒子态边唱边
 
 
                                                 
+
+-----
+
+####  renkan119  
+##### 1983#       发表于 2021-6-19 23:39
+
+
+<blockquote>天王寺凯伊姆 发表于 2021-6-19 23:27
+这个最后其实很像赛马娘2最后麦昆帝宝那一幕，可以说活着也可以说死了。关键还是等熟肉看看这个歌到底唱了 ...</blockquote>
+上集已经说了啊 歌就是停止程序
+
+
+-----
+
+####  aji47  
+##### 1984#       发表于 2021-6-20 00:17
+
+
+作为原创动画，平稳着陆不错了。至少比成神之日好。
+
+
+-----
+
+####  zero_death  
+##### 1985#       发表于 2021-6-20 00:23
+
+
+vivy吹要是知道被你们拿来和蜘蛛子比制作 和成神比剧情 应该会怒不可遏吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  二夜祭  
+##### 1986#       发表于 2021-6-20 00:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51668233&amp;ptid=1982987" target="_blank">MASKA-1 发表于 2021-6-19 21:25</a>
+
+vivy这片已经沦落到和蜘蛛子比制作了吗</blockquote>
+主要是泥潭似乎对vivy批评较多，和我刷到当前进度时的感受不太一致，想帮着找补一下。
+
+不过确实设定上的漏洞和逻辑上奇怪的地方挺多的……
+
+
+-----
+
+####  199april  
+##### 1987#       发表于 2021-6-20 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670032&amp;ptid=1982987" target="_blank">zero_death 发表于 2021-6-20 00:23</a>
+
+vivy吹要是知道被你们拿来和蜘蛛子比制作 和成神比剧情 应该会怒不可遏吧 ...</blockquote>
+vivy吹真是莫名其妙，我觉得前面也说不上挺神啊，突然nga和b站就冒出一片吹vivy的<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  青菜子  
+##### 1988#       发表于 2021-6-20 00:32
+
+
+歌是停止程序也太扯了吧，那为什么松本还过去插U盘。。
+
+
+-----
+
+####  loley  
+##### 1989#       发表于 2021-6-20 00:39
+
+
+<blockquote>JustW 发表于 2021-6-19 23:05
+刚才看了的有没有人告诉我一下vivy怎么唱着唱着唱没了</blockquote>
+vivy也是和亞卡布连线的，和那个伊丽莎白复制人和松本不同，所以唱着唱着会慢慢停止运作，最后靠信念和心！唱完了！
+
+
+-----
+
+####  咸鱼咸又咸  
+##### 1990#       发表于 2021-6-20 00:41
+
+
+这番要是能有24集，然后前面再穿插一些线索，事件，丰富一下人物，经历，估计评价会好不少(不过时间拉长又有可能再其他地方拉跨就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过对于原创番，总体表示满意。神前晓加分。
+
+—— 来自 Xiaomi Redmi K30 Pro Zoom Edition, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  JustW  
+##### 1991#       发表于 2021-6-20 00:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670142&amp;ptid=1982987" target="_blank">loley 发表于 2021-6-20 00:39</a>
+
+vivy也是和亞卡布连线的，和那个伊丽莎白复制人和松本不同，所以唱着唱着会慢慢停止运作，最后靠信念和心 ...</blockquote>
+唱歌本身会让所有和亚卡布连线的ai停机，也包括唱歌的vivy自己？
+
+
+-----
+
+####  xy2401  
+##### 1992#       发表于 2021-6-20 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670142&amp;ptid=1982987" target="_blank">loley 发表于 2021-6-20 00:39</a>
+
+vivy也是和亞卡布连线的，和那个伊丽莎白复制人和松本不同，所以唱着唱着会慢慢停止运作，最后靠信念和心 ...</blockquote>
+好吧。没有看懂这个
+
+
+-----
+
+####  loley  
+##### 1993#       发表于 2021-6-20 00:44
+
+
+<blockquote>JustW 发表于 2021-6-20 00:42
+唱歌本身会让所有和亚卡布连线的ai停机，也包括唱歌的vivy自己？</blockquote>
+对啊，歌姬的搭档说了这回事，终极牺牲嘛，哈哈
+
+
+-----
+
+####  susan28  
+##### 1994#       发表于 2021-6-20 00:45
+
+
+咋说了呢  演出 作画 都很行 就是这剧情 真的平庸
+
+
+OST还是搞一搞的！
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/004540a9dt41dy459i9vz9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 13 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (137.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 00:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/004540u52imer2s2dfhhr2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 13 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (205.89 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 00:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/004540uzfcr77ywceyrjtj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[NC-Raws] Vivy －Fluorite Eye's Song－ - 13 [Baha][WEB-DL][1080p][AVC AAC][.jpg</strong> (103.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 00:45 上传
+
+
+-----
+
+####  JustW  
+##### 1995#       发表于 2021-6-20 00:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670190&amp;ptid=1982987" target="_blank">loley 发表于 2021-6-20 00:44</a>
+
+对啊，歌姬的搭档说了这回事，终极牺牲嘛，哈哈</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这样
+
+
+-----
+
+####  最强惠酱  
+##### 1996#       发表于 2021-6-20 00:48
+
+
+短发vivy有点好看<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+好演出配上尴尬剧情，莫名有点滑稽，看完都不知道怎么反应<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+                                                 

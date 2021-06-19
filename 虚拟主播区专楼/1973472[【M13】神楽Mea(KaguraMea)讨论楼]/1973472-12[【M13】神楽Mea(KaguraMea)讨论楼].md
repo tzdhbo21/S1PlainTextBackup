@@ -13399,3 +13399,32 @@ syl<img src="https://p.sda1.dev/2/82cc481441696dd6f9a0af3b79bfcec2/IMG_20210619_
 
 
                                                  
+
+-----
+
+####  Klience  
+##### 17679#       发表于 2021-6-19 23:42
+
+
+游戏黑白屏发推是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 17680#       发表于 2021-6-19 23:54
+
+
+发牌员给点劲儿啊！
+
+
+-----
+
+####  T_Hb  
+##### 17681#       发表于 2021-6-20 00:18
+
+
+直接对发牌姬进行一个脑控
+
+
+                                                 
