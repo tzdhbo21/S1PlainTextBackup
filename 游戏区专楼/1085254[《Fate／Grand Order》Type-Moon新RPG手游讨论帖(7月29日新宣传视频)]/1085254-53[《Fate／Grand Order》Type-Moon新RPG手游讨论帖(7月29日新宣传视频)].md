@@ -15714,3 +15714,46 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79291#       发表于 2021-6-18 18:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51655981&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-18 18:41</a>
+
+那你一定是假的萌新 我记忆里的萌新每个池子都在豹跳</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">幻觉 萌新老非洲人了
+
+
+-----
+
+####  白夜羽  
+##### 79292#       发表于 2021-6-19 12:46
+
+
+王德发？就9节？原来三八节不是我理解的2.6.1三八节吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  边境的  
+##### 79293#       发表于 2021-6-19 12:55
+
+
+新章的剧情翻译居然快有50万播放了
+
+好像很久没看见过fgo视频这么热闹了<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79294#       发表于 2021-6-19 13:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不是很懂这261有什么地方值得云的  难道都是看牛头人的?
+
+
+                                                 

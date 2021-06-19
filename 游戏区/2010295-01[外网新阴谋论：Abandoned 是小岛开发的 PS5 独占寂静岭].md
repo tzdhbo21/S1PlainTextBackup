@@ -2125,3 +2125,21 @@ Mark正在reddit进行AMA。[https://www.reddit.com/r/TheBlueBoxConspiracy/comme
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 140#       发表于 2021-6-19 13:14
+
+
+<img src="https://p.sda1.dev/2/96addfdc677825c028f7e9c1105001a4/0je873yx25671.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/97dfa4391010a0328d5d9467129dd013/axk2q3uuc5671.jpg" referrerpolicy="no-referrer">
+
+Hasan开始在PS上大规模接受好友。和Hasan互为好友的人纷纷看到他在玩Abandoned: Trailers
+
+这款游戏不仅介绍中写了开放世界，更带有Tactical（战略）标签。
+
+BLUE BOX也在推特上说本作有全新玩法，敬请期待
+
+
+                                                 
