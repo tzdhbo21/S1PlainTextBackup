@@ -14360,3 +14360,31 @@ wuwuwu舞咩永远是你的家<img src="https://static.saraba1st.com/image/smile
 
 
                                                 
+
+-----
+
+####  甘栗No.007  
+##### 17774#       发表于 2021-6-20 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675695&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-6-20 16:31</a>
+这么搞笑的吗，求个时间点指路</blockquote>
+33:03 <img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+                                                 

@@ -15871,3 +15871,71 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79305#       发表于 2021-6-20 16:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不会真长草到周三吧
+
+
+-----
+
+####  alucardcz  
+##### 79306#       发表于 2021-6-20 16:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675741&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-20 16:37</a>
+
+不会真长草到周三吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大胆点  中间开个pu2 直接长到262
+
+
+-----
+
+####  龙星丸  
+##### 79307#       发表于 2021-6-20 16:47
+
+
+话说是不是现在给的材料远远不够三个从者310吧，这是真打算等下部完了才能打FREE？
+
+
+-----
+
+####  areklose  
+##### 79308#       发表于 2021-6-20 16:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675824&amp;ptid=1085254" target="_blank">龙星丸 发表于 2021-6-20 16:47</a>
+
+话说是不是现在给的材料远远不够三个从者310吧，这是真打算等下部完了才能打FREE？ ...</blockquote>
+直播说了，开下半部之前会有活动获取
+
+
+-----
+
+####  areklose  
+##### 79309#       发表于 2021-6-20 16:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675812&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-20 16:46</a>
+
+大胆点  中间开个pu2 直接长到262</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥开个PU2还要隔3周
+
+
+-----
+
+####  里村紅葉  
+##### 79310#       发表于 2021-6-20 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675879&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-20 16:54</a>
+
+为啥开个PU2还要隔3周</blockquote>
+可能PU2的模组还没做完<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

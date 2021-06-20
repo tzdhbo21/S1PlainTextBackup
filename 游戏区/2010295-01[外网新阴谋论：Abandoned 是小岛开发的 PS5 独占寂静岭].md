@@ -3600,3 +3600,38 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
 
                                                  
+
+-----
+
+####  芷雅居  
+##### 267#       发表于 2021-6-20 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671015&amp;ptid=2010295" target="_blank">Flechette 发表于 2021-6-20 05:53</a>
+
+整个帖子看下来，不得不感叹岛哥哥真的会整活，可以说是游戏界营销第一人了吧 ...</blockquote>
+我觉得还是mobydick和pt是真的在整活<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kuker53  
+##### 268#       发表于 2021-6-20 17:29
+
+
+话说他说的22号是美国时间还是荷兰时间，突然想到这个问题
+
+
+-----
+
+####  Rapids  
+##### 269#       发表于 2021-6-20 17:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672543&amp;ptid=2010295" target="_blank">言嘉 发表于 2021-6-20 11:19</a>
+
+2021年了，可乐妹亲妈或将临时诞生？</blockquote>
+疫情期间，帕青哥生意也不好做啊<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+                                                 

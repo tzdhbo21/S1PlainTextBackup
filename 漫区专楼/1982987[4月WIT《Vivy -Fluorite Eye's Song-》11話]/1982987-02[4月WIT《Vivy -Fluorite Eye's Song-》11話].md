@@ -7834,3 +7834,66 @@ WIT这种八股文脑残剧本每次居然都可以卖这么多<img src="https:/
 
 
                                                 
+
+-----
+
+####  zzy516232108  
+##### 2103#       发表于 2021-6-20 16:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673859&amp;ptid=1982987" target="_blank">shadow001 发表于 2021-6-20 13:12</a>
+上集博士說了不能回到更早的時間</blockquote>
+开头能回到一百年前，现在只能回到一天前，什么道理<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  acejoe  
+##### 2104#       发表于 2021-6-20 16:54
+
+
+以后长月达平看到就ban，浪费制作。
+
+
+-----
+
+####  cowgp01  
+##### 2105#       发表于 2021-6-20 17:21
+
+
+甲铁城比他多了个人设所以是-1
+
+
+-----
+
+####  ramiel  
+##### 2106#       发表于 2021-6-20 17:27
+
+
+看完打个75分吧<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+这片真是少见的“问题出在设定上”的sf作，制作很下工夫了，纯制作层面的剧情和逻辑在这个年代不算太丢人，也有些细节支撑
+
+但是这个轮回的设定实在太随意了，本身AI的技术设定也是基本没有深挖，导致所有展开再怎么演绎都会让人有种沙滩上的高楼大厦之感
+
+描写最后这两段轮回的功力不够，脱离不了为了剧情去补设定的嫌疑，以及唯这几个人登场的突兀感
+
+
+如果换在30-40年前，应该评价会更好一点，倒不是因为sf（黄金时代的sf怪物也不是这个能打的），而是立意和观感上观众会宽容得多
+
+非战之罪，让人扼腕<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ramiel  
+##### 2107#       发表于 2021-6-20 17:33
+
+
+补充一句
+
+
+松本你能把制作组扔回30年前找个SF小说做动画吗<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+                                                 

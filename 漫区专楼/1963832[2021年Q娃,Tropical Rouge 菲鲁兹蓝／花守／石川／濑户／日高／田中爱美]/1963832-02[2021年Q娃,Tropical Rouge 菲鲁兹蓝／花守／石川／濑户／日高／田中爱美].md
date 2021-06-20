@@ -2234,3 +2234,42 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  leleq  
+##### 1674#       发表于 2021-6-20 16:58
+
+
+罗拉的变身没想象的华丽 胜利姿势也太浮夸了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+罗拉一脚踢飞蟹干部时明明没带夏夏 落在船上又公主抱着 这是藏在哪了？
+
+这么早换ed了这也太快了吧（看见换ed我才想起来ed1我还没下呢）
+
+
+要变身前我总有种女王（良）会来个<img src="https://static.saraba1st.com/image/smiley/carton2017/046.png" referrerpolicy="no-referrer">：赢了  的感觉
+
+
+-----
+
+####  leleq  
+##### 1675#       发表于 2021-6-20 17:11
+
+
+关于代价 现在的情况是不太像有的感觉 但总觉得还有什么 毕竟这也太快了……
+
+
+但又想了想下个月要暑假了还有奥运回……大概是把高潮回提前了把 行吧就当代价是 觉悟绝不原谅的心吧 <img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗黑能乐  
+##### 1676#       发表于 2021-6-20 17:29
+
+
+居然只有我觉得这身动起来还挺好看的吗。。
+
+
+                                                 
