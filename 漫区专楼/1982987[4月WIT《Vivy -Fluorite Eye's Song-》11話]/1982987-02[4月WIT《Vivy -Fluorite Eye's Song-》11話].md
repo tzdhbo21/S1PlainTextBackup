@@ -7897,3 +7897,59 @@ WIT这种八股文脑残剧本每次居然都可以卖这么多<img src="https:/
 
 
                                                  
+
+-----
+
+####  reficul  
+##### 2108#       发表于 2021-6-20 18:20
+
+
+我觉得AI这个设定纯粹无意义，做成生化人、合成人之类的可能还更合理？最后那个那比AI，哪里有半点什么AI的影子，就这还连上亚卡布呢。+0到+1吧，我愿称之为动漫界的底特律变人
+
+
+-----
+
+####  xxxcc  
+##### 2109#       发表于 2021-6-20 18:21
+
+
+说实话我觉得最后的歌也不太行<img src="https://static.saraba1st.com/image/smiley/goose2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Freakyyu  
+##### 2110#       发表于 2021-6-20 18:22
+
+
+这楼第二层就是我嘲笑制作方，结果最后没忍住“原创动画”的吸引力还是一口气看完了。<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+那个“As you like my pleasure”的op画面一出来我就想起来十年前P.I.G做的那个卖歌的半年番的op。
+挺迷惑的，这片子整了半天“让机器人寻找心”然而打从一开始vivy就没有不像人，起码比京都那个玛丽苏女主角像人得多。别的不多说了，科幻题材能整得这么波澜不惊以及莫名其妙也是挺能耐的，写故事之前多看看别的科幻作品好不好啊。另外我到现在也不知道第八集有什么存在的意义。
+
+咋还有提异度侵入的，那玩意解谜拉了大胯也配叫平稳落地？
+vivy这片起码有个好处是让我想起来我steam库里还有传送门2这么个好游戏<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  luoy  
+##### 2111#       发表于 2021-6-20 18:23
+
+
+流畅华丽的动作画面 动人好听的配乐演出 适时细致的表情特写 遇事不决的回忆合集 狗屁不通的剧情走向  这就是Vivy！<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi Note 8 Pro, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  skgaminger1988  
+##### 2112#       发表于 2021-6-20 18:29
+
+
+短发vv比长发也好看太多了 还不如一开始就用这版 长发猛女的人设就交给伊丽莎白<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+                                                 

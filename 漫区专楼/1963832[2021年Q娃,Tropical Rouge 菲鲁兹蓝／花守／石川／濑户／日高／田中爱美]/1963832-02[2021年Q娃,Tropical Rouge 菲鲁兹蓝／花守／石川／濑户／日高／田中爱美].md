@@ -2273,3 +2273,80 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  Blackson  
+##### 1677#       发表于 2021-6-20 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675913&amp;ptid=1963832" target="_blank">leleq 发表于 2021-6-20 16:58</a>
+
+罗拉的变身没想象的华丽 胜利姿势也太浮夸了吧 但这集的特写rprp
+
+罗拉一脚踢飞蟹干部时明明 ...</blockquote>
+往年都是追加登场的那一回或次回会换ED
+
+今年因为(萝拉)早就登场不需再给与四人的磨合回，所以就早了
+
+
+-----
+
+####  isa2456  
+##### 1678#       发表于 2021-6-20 17:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675913&amp;ptid=1963832" target="_blank">leleq 发表于 2021-6-20 16:58</a>
+罗拉的变身没想象的华丽 胜利姿势也太浮夸了吧 但这集的特写rprp
+
+罗拉一脚踢飞蟹干部时明明 ...</blockquote>
+在海里抱着踢的吧应该
+
+
+-----
+
+####  leleq  
+##### 1679#       发表于 2021-6-20 18:01
+
+
+ 本帖最后由 leleq 于 2021-6-20 18:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51676415&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-6-20 17:55</a>
+
+在海里抱着踢的吧应该</blockquote>
+冲过去的镜头很明显没有的
+
+我明白了上集有个从后脑勺拿出个镜子（奇怪的音效）的镜头 所以是藏后脑勺里了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+所以这集是 夏夏成了罗拉的内人<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  damian-wade  
+##### 1680#       发表于 2021-6-20 18:14
+
+
+萝拉变身后cast表直接上第二位了，谁是女主角不用多说了吧<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+虽然前面铺垫得不少，但就这集的进度有点快...还有夏哥你们什么都没做到就被打趴了，海豹非常有能
+
+
+
+
+-----
+
+####  isa2456  
+##### 1681#       发表于 2021-6-20 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51676468&amp;ptid=1963832" target="_blank">leleq 发表于 2021-6-20 18:01</a>
+
+冲过去的镜头很明显没有的
+
+我明白了上集有个从后脑勺拿出个镜子（奇怪的音效）的镜头 所以是藏后脑勺里了[ ...</blockquote>
+再看了遍，感觉是萝拉把真夏原地放下，踢完再游回去抱起来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                
