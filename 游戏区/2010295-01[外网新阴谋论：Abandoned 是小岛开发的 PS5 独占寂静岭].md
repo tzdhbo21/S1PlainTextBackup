@@ -3929,3 +3929,62 @@ no silent hill game in production with blue box
 
 
                                                  
+
+-----
+
+####  halogta  
+##### 296#       发表于 2021-6-21 01:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679830&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-20 23:04</a>
+
+？</blockquote>
+主楼被删了，下面有最新的回复
+<img src="https://i.postimg.cc/YSm23Cmn/60cf7accf00d9.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  luoyianwu  
+##### 297#       发表于 2021-6-21 01:45
+
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o4ajlr/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o4ajlr/)
+
+<img src="https://p.sda1.dev/2/10f5853d325dcdfc0991b370a7b8f2ba/sohu8spkgg671.png" referrerpolicy="no-referrer">
+
+PT中反复出现的数字204863，换算成HEX是蓝色
+
+
+-----
+
+####  后藤P  
+##### 298#       发表于 2021-6-21 02:02
+
+
+subreddit现状：反转之转中转之最后一转之再来一转
+
+
+-----
+
+####  曼陀罗肥  
+##### 299#       发表于 2021-6-21 02:03
+
+
+到底在干嘛？
+
+
+24BF66ED-DB3B-42E3-83EB-373035D2E12A.jpeg
+(551 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-21 02:03 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/21/020324dzs5hj3z96vuiw9h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+                                                 

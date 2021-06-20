@@ -12721,3 +12721,35 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  klmmmx  
+##### 980#       发表于 2021-6-21 01:01
+
+
+看的时候有种说不出的违和感，后面想通了，就是从头到尾绝大多数角色都太游刃有余的感觉了，刻意避免死人的画面就不说了，里面有谁怎么慌张过、怕过吗，都一副稳的不行的样子，这个违和感太大了
+
+
+-----
+
+####  伊可费斯  
+##### 981#       发表于 2021-6-21 01:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51680623&amp;ptid=1963627" target="_blank">klmmmx 发表于 2021-6-21 01:01</a>
+
+看的时候有种说不出的违和感，后面想通了，就是从头到尾绝大多数角色都太游刃有余的感觉了，刻意避免死人的 ...</blockquote>
+倒不如说是荒诞感
+
+
+-----
+
+####  センチ  
+##### 982#       发表于 2021-6-21 01:09
+
+
+回头看看第一话一开始那段话 包括13话开头 很明显了。主角是两个ai<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -2899,3 +2899,14 @@ https://gnn.gamer.com.tw/detail.php?sn=216845</blockquote>
 
 
                                                  
+
+-----
+
+####  hkguty  
+##### 1719#       发表于 2021-6-21 01:23
+
+
+4gamer这个试玩，后续会开放给玩家么
+
+
+                                                 
