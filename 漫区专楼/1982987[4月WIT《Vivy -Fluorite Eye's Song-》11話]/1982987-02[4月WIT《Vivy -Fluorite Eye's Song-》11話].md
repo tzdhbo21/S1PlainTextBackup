@@ -7251,3 +7251,174 @@ del
 
 
                                                  
+
+-----
+
+####  hein  
+##### 2053#       发表于 2021-6-20 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671555&amp;ptid=1982987" target="_blank">owada 发表于 2021-6-20 09:22</a>
+
+这就完了????</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  YaZ  
+##### 2054#       发表于 2021-6-20 11:02
+
+
+虽然整体剧情经不起推敲，但是歌还是可以的<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  間桐櫻  
+##### 2055#       发表于 2021-6-20 11:10
+
+
+巨人......巨大机械人出来的时候刚好唱到塔塔开了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+当爆米花片看, 最后一边回忆一边听歌真的感动了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  很久就在那边l  
+##### 2056#       发表于 2021-6-20 11:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671858&amp;ptid=1982987" target="_blank">有口皆悲 发表于 2021-6-20 10:08</a>
+这篇和奇蛋物语都有国内作画参与了制作？
+
+所以都有挺多人捧吧。</blockquote>
+没几个人关心的，反而是这部那个国人演出发表低情商言论还被婊了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  余情自取  
+##### 2057#       发表于 2021-6-20 11:19
+
+
+还有十天发售，完结效应还行，快压佐贺当鱼头了，现在预测pt刚好6k。<img src="https://p.sda1.dev/2/5c3faf99c92bcce8e82150ea1170dd0e/IMG_CMP_132302874.jpeg" referrerpolicy="no-referrer">
+订了套3CD支持了下，特典box太好看了<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/3bf74d6fe4911ae295b7f9e5f96b6723/IMG_CMP_203763295.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呃逆NA  
+##### 2058#       发表于 2021-6-20 11:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671858&amp;ptid=1982987" target="_blank">有口皆悲 发表于 2021-6-20 10:08</a>
+
+这篇和奇蛋物语都有国内作画参与了制作？
+
+所以都有挺多人捧吧。</blockquote>
+哪个动画没有国人参与（
+
+
+-----
+
+####  呃逆NA  
+##### 2059#       发表于 2021-6-20 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672040&amp;ptid=1982987" target="_blank">JustW 发表于 2021-6-20 10:28</a>
+
+啊，我把最终回第四五分钟的地方来回看了好几遍，大概意思是vivy通过唱歌执行停止程序，但需要一个过程， ...</blockquote>
+不是亚卡布让vivy唱的吗，怎么又要阻止。。。。编剧可以拿个矛盾文学奖了（
+
+
+-----
+
+####  有口皆悲  
+##### 2060#       发表于 2021-6-20 11:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672545&amp;ptid=1982987" target="_blank">呃逆NA 发表于 2021-6-20 11:19</a>
+
+哪个动画没有国人参与（</blockquote>
+我微博关注的动漫资讯号频繁转国人参与人员微博的，在我印象中就这两部。
+
+
+-----
+
+####  越动天下  
+##### 2061#       发表于 2021-6-20 11:23
+
+
+vivy个人成长与AI毁灭世界这个没有把握好 可能是只有12集吧 +1吧
+
+
+-----
+
+####  pzk  
+##### 2062#       发表于 2021-6-20 11:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672602&amp;ptid=1982987" target="_blank">越动天下 发表于 2021-6-20 11:23</a>
+
+vivy个人成长与AI毁灭世界这个没有把握好 可能是只有12集吧 +1吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">人家就只是想让机器人唱歌拯救世界而已，恨不得只有三集就结束，编十二集已经很辛苦了，再长一点不是要编剧的命吗
+
+
+-----
+
+####  199april  
+##### 2063#       发表于 2021-6-20 11:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最后我想说，vivy的几套演出服都挺难看的
+
+
+-----
+
+####  LeonsCat  
+##### 2064#       发表于 2021-6-20 11:28
+
+
+这片前三个单元剧很棒，第四个单元剧有点问题但还是稳得住，结果结局，就这？
+
+
+-----
+
+####  月光下的黑暗  
+##### 2065#       发表于 2021-6-20 11:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672576&amp;ptid=1982987" target="_blank">呃逆NA 发表于 2021-6-20 11:22</a>
+
+不是亚卡布让vivy唱的吗，怎么又要阻止。。。。编剧可以拿个矛盾文学奖了（ ...</blockquote>
+感觉亚卡布类似议会制吧，有反对派？
+
+
+-----
+
+####  越动天下  
+##### 2066#       发表于 2021-6-20 11:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672659&amp;ptid=1982987" target="_blank">pzk 发表于 2021-6-20 11:26</a>
+
+人家就只是想让机器人唱歌拯救世界而已，恨不得只有三集就结束，编十二集已经很辛苦了，再长一点 ...</blockquote>
+要是三集就结束 那还可以了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JustW  
+##### 2067#       发表于 2021-6-20 11:37
+
+
+<blockquote>呃逆NA 发表于 2021-6-20 11:22
+不是亚卡布让vivy唱的吗，怎么又要阻止。。。。编剧可以拿个矛盾文学奖了（ ...</blockquote>
+硬解释的话，亚卡布投票多数决定让vivy获得唱歌启动停止程序的权力，但vivy唱歌过程中仍然会有死活要消灭人类的AI来阻挠。不过这样就说不通为什么压制亚卡布就能解决阻挠了……算了不想了。
+
+
+                                                 

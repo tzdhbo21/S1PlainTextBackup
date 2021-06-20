@@ -3376,3 +3376,27 @@ instagram的konami shop官方账号将两条评论置顶<img src="https://static
 
 
                                                 
+
+-----
+
+####  言嘉  
+##### 248#       发表于 2021-6-20 11:19
+
+
+2021年了，可乐妹亲妈或将临时诞生？
+
+
+-----
+
+####  本间日阳  
+##### 249#       发表于 2021-6-20 11:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672308&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-20 10:59</a>
+instagram的konami shop官方账号将两条评论置顶</blockquote>
+这个是看起来最实锤的
+
+—— 来自 OPPO PCLM10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

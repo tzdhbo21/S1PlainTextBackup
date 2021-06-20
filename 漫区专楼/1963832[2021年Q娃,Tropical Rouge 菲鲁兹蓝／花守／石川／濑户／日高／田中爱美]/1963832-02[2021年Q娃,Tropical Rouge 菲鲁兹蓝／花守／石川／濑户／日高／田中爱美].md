@@ -1970,3 +1970,37 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  isa2456  
+##### 1654#       发表于 2021-6-20 11:08
+
+
+在水中解除变身第一件事居然不是先把真夏抬上去，而且上岸之后也没被水呛到直接就醒来了，真夏的肉体好强大<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+变身完之后腿一直还在，人形不会是永驻了吧？希望能随时切换，还有萝拉这一直说想跟大家一起部活，结果下集就去游泳部比赛了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kerfars  
+##### 1655#       发表于 2021-6-20 11:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">辣妹儿可爱，变身超可爱
+
+
+话说这集萝拉走马灯梦醒，差点流出第一颗人鱼泪
+
+
+-----
+
+####  风鸣弦十郎  
+##### 1656#       发表于 2021-6-20 11:18
+
+
+开头差点梦回甜点
+
+
+                                                 
