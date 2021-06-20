@@ -7613,3 +7613,134 @@ WIT这种八股文脑残剧本每次居然都可以卖这么多<img src="https:/
 
 
                                                  
+
+-----
+
+####  ipcjs  
+##### 2085#       发表于 2021-6-20 13:38
+
+
+ 本帖最后由 ipcjs 于 2021-6-20 14:31 编辑 
+
+对了，这集揭示了之前每个单元剧的 分支路线图 其实上是Archive画的
+
+然后这集Archive画的路线图是vivy躺倒在舞台上的画面（9分18秒）
+<img src="https://tva3.sinaimg.cn/large/63f34cf4gy1gropvsdoa3j216o0o045b.jpg" referrerpolicy="no-referrer">
+
+
+所以表面上是人机合作战胜了Archive，其实一切都在我的计划之中.jpg<img src="https://static.saraba1st.com/image/smiley/carton2017/062.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FanFun  
+##### 2086#       发表于 2021-6-20 13:45
+
+
+ 本帖最后由 FanFun 于 2021-6-20 13:54 编辑 
+
+最后感觉就像看一个没有逻辑、胡言乱语、自我感动的的舞台剧，尬的浑身发痒
+
+冲着前期还行的单元剧以及几处不错的打斗作画，勉强给个+0吧
+
+
+-----
+
+####  hqtkkb  
+##### 2087#       发表于 2021-6-20 13:54
+
+
+我这个长发控竟然觉得短发vivy更好看……简直了，人设出来挨打吧。
+
+
+结局没啥好说，估计是个人都能猜到vivy唱歌结尾，总体把脑子扔了大概能看个作画把
+
+
+-----
+
+####  kxh007458  
+##### 2088#       发表于 2021-6-20 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672986&amp;ptid=1982987" target="_blank">renkan119 发表于 2021-6-20 11:50</a>
+
+阿卡布这个理由是真的不行 太莫名其妙了 弄得最后人类和AI共存就像是你和你同桌聊天聊的好好的 他莫名其妙 ...</blockquote>
+不如说经历了这事的人类还敢点AI科技树就奇怪了，平等共存根本别想，撑死终于回到KB份子预想的那样，主人和工具的状态，AI思考模式受限，别去想什么使命，主人让做啥就做啥。
+
+
+-----
+
+####  fkinway  
+##### 2089#       发表于 2021-6-20 14:02
+
+
++1吧 作画值得一看<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  酥蕤  
+##### 2090#       发表于 2021-6-20 14:15
+
+
+懂了，AI不行萝卜行！辱科幻了
+
+
+-----
+
+####  potwater  
+##### 2091#       发表于 2021-6-20 14:19
+
+
+扩充了一话出来的情绪却像是稀释了一般，收尾保守到一定地步都有点反高潮的意思了。
+
+
+-----
+
+####  普之舜舜  
+##### 2092#       发表于 2021-6-20 14:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670296&amp;ptid=1982987" target="_blank">iamthegodthego 发表于 2021-6-20 01:02</a>
+上一个叫嚣着“怒不可遏”的，正等着这个礼拜特别篇翻身呢</blockquote>
+我的奇蛋物语<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  普之舜舜  
+##### 2093#       发表于 2021-6-20 14:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671504&amp;ptid=1982987" target="_blank">peh 发表于 2021-6-20 09:13</a>
+问下完结了值得补吗？</blockquote>
+不咋值得
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  MikawaFumika  
+##### 2094#       发表于 2021-6-20 14:32
+
+
+我觉得辽史被抢救到正常动画水平的概率还是挺大的
+
+
+-----
+
+####  普之舜舜  
+##### 2095#       发表于 2021-6-20 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51674666&amp;ptid=1982987" target="_blank">MikawaFumika 发表于 2021-6-20 14:32</a>
+我觉得辽史被抢救到正常动画水平的概率还是挺大的</blockquote>
+希望可以把，s1对奇蛋物语这个片子这几个月很少提及了，感觉记得这部番剧的人不多了
+
+—— 来自 OPPO PDKM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

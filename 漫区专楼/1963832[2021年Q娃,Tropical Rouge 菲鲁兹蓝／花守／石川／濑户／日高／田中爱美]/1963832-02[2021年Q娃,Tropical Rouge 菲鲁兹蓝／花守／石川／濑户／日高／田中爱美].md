@@ -2079,3 +2079,126 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  待宵  
+##### 1662#       发表于 2021-6-20 13:31
+
+
+我也觉得这方面已经没必要担心了，腿是变身Q娃时的附带奖励，自古Q娃变身系统就没有坑
+
+
+-----
+
+####  twit  
+##### 1663#       发表于 2021-6-20 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673433&amp;ptid=1963832" target="_blank">球獭 发表于 2021-6-20 12:31</a>
+
+所以，代价是当不了女王吗</blockquote>
+我觉得相反，这集女王的提问一股引导的味道，应该这条路才是这边正确的。
+
+不过看这集萝拉咬了摸鱼女王后给了一个特写，是暗示摸鱼这边也看上了萝拉？反正现在看来这片主线全在萝拉一个人身上。
+
+
+-----
+
+####  暗黑能乐  
+##### 1664#       发表于 2021-6-20 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673993&amp;ptid=1963832" target="_blank">kerfars 发表于 2021-6-20 13:28</a>
+我觉得，虽然可能还有人想着人鱼变人要代价，但毕竟人鱼公主原作是“靠魔女”变人才有代价的
+
+这集萝拉面对 ...</blockquote>
+靠自己就不需要代价反而也怪，如果真的完全不需要，前面的铺垫岂不是铺了个寂寞
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Cloudslin  
+##### 1665#       发表于 2021-6-20 14:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51674026&amp;ptid=1963832" target="_blank">待宵 发表于 2021-6-20 13:31</a>
+我也觉得这方面已经没必要担心了，腿是变身Q娃时的附带奖励，自古Q娃变身系统就没有坑 ...</blockquote>
+真要说有代价的变身这事，也不是没有先例，DX3和微笑结局就是，不过光速白魔法一转HE就完事了
+
+
+-----
+
+####  待宵  
+##### 1666#       发表于 2021-6-20 14:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51674409&amp;ptid=1963832" target="_blank">Cloudslin 发表于 2021-6-20 14:08</a>
+
+真要说有代价的变身这事，也不是没有先例，DX3和微笑结局就是，不过光速白魔法一转HE就完事了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">呸呸呸，这片有米村正二？
+
+
+-----
+
+####  HGCG  
+##### 1667#         楼主| 发表于 2021-6-20 14:23
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/142257xe67ujz166nz7s7e.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (107.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 14:22 上传
+
+
+-----
+
+####  Cloudslin  
+##### 1668#       发表于 2021-6-20 14:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51674447&amp;ptid=1963832" target="_blank">待宵 发表于 2021-6-20 14:11</a>
+呸呸呸，这片有米村正二？</blockquote>
+也只能说，希望你东整点<strong>阳间的</strong>新活
+
+
+-----
+
+####  kingoforange  
+##### 1669#       发表于 2021-6-20 14:28
+
+
+<blockquote>待宵 发表于 2021-6-20 13:31
+我也觉得这方面已经没必要担心了，腿是变身Q娃时的附带奖励，自古Q娃变身系统就没有坑 ...</blockquote>
+黑猫：变不回来算坑吗？组曲打了半天全是家务事，黑幕没了，可以让我变回去了吗？
+
+
+-----
+
+####  Sliurus  
+##### 1670#       发表于 2021-6-20 14:29
+
+
+果然动起来，还是很丑<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+每句都是先夏夏再大家，emmm
+
+人类形态少了些装饰感觉素了点
+
+
+-----
+
+####  kingoforange  
+##### 1671#       发表于 2021-6-20 14:32
+
+
+话说按照原型来说，人鱼公主变人的代价是嗓子，泡沫化算副作用不算代价吧？毕竟只要你不下重新水就没事……
+
+
+                                                 

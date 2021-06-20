@@ -15790,3 +15790,49 @@ BOOGEY VOXX也3D了，看起来还可以→ #デッドマーチ02
 
 
                                                  
+
+-----
+
+####  winda  
+##### 2744#       发表于 2021-6-20 13:54
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/135346pcedgekgt0z6dg37.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E4Kjm4wUcAcx0zX.jpg</strong> (417.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 13:53 上传
+
+
+久檻夜くぅ这冲大师直接上猎杀了啊
+
+
+-----
+
+####  死体残留  
+##### 2745#       发表于 2021-6-20 13:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">季初没多少人上大师就容易进猎杀
+
+
+-----
+
+####  rzrbtk  
+##### 2746#       发表于 2021-6-20 14:02
+
+
+ 本帖最后由 rzrbtk 于 2021-6-20 14:35 编辑 
+
+郡道东一局点炮，东三局开始说兔组涩涩的笑话，在搞什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，代表兔组制裁她，点踩了
+
+刚才那个四万避得比我强，看来是直觉上去了，不过那么好的配牌都和不了真是运下去了…
+
+
+郡道今天的配牌真的疯了，希望下次搬家以后公开一下神社，我也去拜一下，没有对不起兔组真是太好了（虽然说了很多坏话）
+
+
+                                                 

@@ -2762,3 +2762,15 @@ ns版上了？完全没听到消息
 
 
                                                  
+
+-----
+
+####  Piano-Forest  
+##### 205#       发表于 2021-6-20 14:15
+
+
+多了12个新成就，大概率新dlc里的内容吧
+[https://steamdb.info/app/753640/stats/](https://steamdb.info/app/753640/stats/)
+
+
+                                                 
