@@ -3241,3 +3241,138 @@ kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face201
 
 
                                                  
+
+-----
+
+####  JoelBirch  
+##### 236#       发表于 2021-6-20 10:26
+
+
+真的被可乐妹整怕了，就算这样也不敢有任何非分之想，努力把自己的期待压到没有<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Junakr  
+##### 237#       发表于 2021-6-20 10:43
+
+
+哈桑 &gt; 让我看看你的真面目！
+
+口技马 &gt; 我就知道！
+
+
+-----
+
+####  edenpenn  
+##### 238#       发表于 2021-6-20 10:48
+
+
+ 本帖最后由 edenpenn 于 2021-6-20 11:11 编辑 
+
+山中老人口鸡马<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kuker53  
+##### 239#       发表于 2021-6-20 10:51
+
+
+有点怀疑是真的，要是整活搞这么大不出来辟谣那不得让人喷啊
+
+
+-----
+
+####  平井姨夫  
+##### 240#       发表于 2021-6-20 10:54
+
+
+就怕最后来个不是小岛做的寂静岭，是该期待还是该喷？<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  矢量路比  
+##### 241#         楼主| 发表于 2021-6-20 10:58
+
+
+有人去 DM 里钓 @KonamiShop 结果还真就……
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/105834jezyrg9royydgyme.jpg" referrerpolicy="no-referrer">
+
+
+<strong>8e566p7tra671.jpg</strong> (97.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 10:58 上传
+
+
+不管是谁在管理这个账号，他最好是认真的……
+
+
+-----
+
+####  中二小旋风  
+##### 242#       发表于 2021-6-20 10:59
+
+
+到底怎样，所以岛哥哥出山的可能大吗
+
+
+-----
+
+####  luoyianwu  
+##### 243#       发表于 2021-6-20 10:59
+
+
+ 本帖最后由 luoyianwu 于 2021-6-20 11:01 编辑 
+
+<img src="https://p.sda1.dev/2/16aa110b7ccd31aedc1a51d5310d1997/81F00BB1-83EA-48F6-AE67-126619EDA9E8.jpeg" referrerpolicy="no-referrer">
+
+instagram的konami shop官方账号将两条评论置顶<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hshiki  
+##### 244#       发表于 2021-6-20 11:00
+
+
+兴奋起来，岛哥哥要回来了
+
+
+-----
+
+####  冰箱研会长  
+##### 245#       发表于 2021-6-20 11:02
+
+
+压低期望 压低期望 
+
+我不信现在还有能这么白日梦一样的事情发生!
+
+
+-----
+
+####  不得小于三字  
+##### 246#       发表于 2021-6-20 11:06
+
+
+要是耍猴该如何收场？
+
+
+-----
+
+####  隆江猪脚饭  
+##### 247#       发表于 2021-6-20 11:10
+
+
+全都是幻觉，吓不到我的！<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+                                                
