@@ -2876,3 +2876,26 @@ https://gnn.gamer.com.tw/detail.php?sn=216845</blockquote>
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1717#         楼主| 发表于 2021-6-20 22:40
+
+
+试玩版剧情：旅行到“绿色大地”累了，找了个城镇结果进不去，一行人接下委托后，希侬额外加码要求提供良好的住宿环境作为额外报酬并且还要有送餐服务。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  塔奇克马  
+##### 1718#       发表于 2021-6-20 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679562&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-6-20 22:40</a>
+
+试玩版剧情：旅行到“绿色大地”累了，找了个城镇结果进不去，一行人接下委托后，希侬额外加码要求提供良好 ...</blockquote>
+大...大公主？
+
+
+                                                 

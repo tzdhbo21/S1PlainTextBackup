@@ -2542,3 +2542,14 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  kotori666  
+##### 1698#       发表于 2021-6-20 22:01
+
+
+看到萝拉身上的元素总觉得眼熟，今天突然想起不是还有个正儿八经的“人鱼天使”，正好人设都是同一个人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

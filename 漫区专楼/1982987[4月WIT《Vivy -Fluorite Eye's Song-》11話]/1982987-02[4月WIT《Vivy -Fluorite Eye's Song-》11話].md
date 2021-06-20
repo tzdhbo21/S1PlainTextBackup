@@ -8164,3 +8164,121 @@ vv没了：停止程序停止的AI也包括vivy自己
 
 
                                                  
+
+-----
+
+####  a12885084  
+##### 2129#       发表于 2021-6-20 21:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51678594&amp;ptid=1982987" target="_blank">帕帕盖诺 发表于 2021-6-20 21:16</a>
+
+第一次在专楼发言，主要是这最终话到底演了个啥谁来告诉我？为什么VV没了？为什么突然有了病毒？最后的场景 ...</blockquote>
+别想了
+
+越想越觉得自己傻逼<img src="https://static.saraba1st.com/image/smiley/animal2017/027.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  帕帕盖诺  
+##### 2130#       发表于 2021-6-20 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51678767&amp;ptid=1982987" target="_blank">JustW 发表于 2021-6-20 21:31</a>
+
+根据前面的讨论
+
+vv没了：停止程序停止的AI也包括vivy自己
+
+病毒和天启：都是亚卡布自己对历史的修正</blockquote>
+我的意思是最终话跳回过去后突然就有了可以停止所有AI的病毒，明明前一话还没有……
+
+而且病毒U盘根本没插进主机的时候VV就开始莫明其妙地减HP了……
+
+
+
+
+-----
+
+####  青菜子  
+##### 2131#       发表于 2021-6-20 22:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我烂片雷达都响了一个月了，这都看不出来，婆罗门失格
+
+
+-----
+
+####  JustW  
+##### 2132#       发表于 2021-6-20 22:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679036&amp;ptid=1982987" target="_blank">帕帕盖诺 发表于 2021-6-20 21:59</a>
+
+我的意思是最终话跳回过去后突然就有了可以停止所有AI的病毒，明明前一话还没有……
+
+而且病毒U盘根本没插 ...</blockquote>
+那个病毒是第四个单元剧里删除diva人格的那个病毒，松本一直留着。那个病毒的来源是亚卡布用来删除diva人格以恢复历史修正的，最后病毒用到了压制自己身上。前一集也有，但还没打到插U盘那里就全灭了……
+
+
+具体原理别管了，按照剧中说法就是那个病毒只能压制亚卡布并且有可能阻止卫星坠落，最终让全体ai停机的是vivy的歌。
+
+
+-----
+
+####  [皆神孝介]  
+##### 2133#       发表于 2021-6-20 22:04
+
+
+真好啊真好啊，好想看下一话<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+本话最打动的我的地方是vivy终于得出对自己来说“心”就是回忆的结论，不过短发版vivy差评
+
+
+-----
+
+####  帕帕盖诺  
+##### 2134#       发表于 2021-6-20 22:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679085&amp;ptid=1982987" target="_blank">JustW 发表于 2021-6-20 22:02</a>
+
+那个病毒是第四个单元剧里删除diva人格的那个病毒，松本一直留着。那个病毒的来源是亚卡布用来删除diva人 ...</blockquote>
+就那货？删个DIVA人格都要几十分钟的，全AI统括计算力无敌还是病毒创造者的阿卡布三秒就缴械了？比阿船还快……
+
+而且还是不明白为什么VV唱着唱着HP就减了……
+
+算了随便了……
+
+
+-----
+
+####  susan28  
+##### 2135#       发表于 2021-6-20 22:26
+
+
+bangumi VIVY 和86的分 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/222620m3up4dm1174n1gx4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>86.jpg</strong> (77.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 22:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/222620s3tpl7tvl7dtlddq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-06-20_22-24-01.jpg</strong> (82.79 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 22:26 上传
+
+
+                                                
