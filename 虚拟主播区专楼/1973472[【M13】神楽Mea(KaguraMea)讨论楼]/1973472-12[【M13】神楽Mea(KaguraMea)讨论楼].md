@@ -14430,3 +14430,123 @@ wuwuwu舞咩永远是你的家<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+-----
+
+####  Dualist彩  
+##### 17779#       发表于 2021-6-20 22:32
+
+
+siro开始了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+又一个见过你麻一次就上钩的，就是不知道这个多久会腻啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 17780#       发表于 2021-6-20 22:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说啥了，来个repo啊
+
+
+-----
+
+####  T_Hb  
+##### 17781#       发表于 2021-6-20 22:45
+
+
+啊 哦莫昔洛依 啊 suki<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 17782#       发表于 2021-6-20 22:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不管了，总之坦克民肯定又胜利了
+
+
+-----
+
+####  2014720  
+##### 17783#       发表于 2021-6-20 22:49
+
+
+你们又在欺负人家良家yhm了？<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 17784#       发表于 2021-6-20 22:50
+
+
+看了眼就是回推吗，不都默认社交辞令的嘛<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17785#       发表于 2021-6-20 22:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51677936&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-20 20:17</a>
+
+这结果虽然在意料之中，但还是挺希望能进第二轮的
+
+
+syl  最后是天开司组夺冠，兔妈妈4位，感觉咩咩 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">又不是单人赛，稳健点还是能进的。单人赛稳一点也是能进的。
+
+国足水平差，进世界杯肯定被按着揍，但大家不还是希望它进去。
+
+
+-----
+
+####  T_Hb  
+##### 17786#       发表于 2021-6-20 22:53
+
+
+确实
+
+
+-----
+
+####  2014720  
+##### 17787#       发表于 2021-6-20 22:55
+
+
+不稳健也是菜的一部分啊<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17788#       发表于 2021-6-20 22:58
+
+
+该呼呼大睡了，希望不要凌晨播<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17789#       发表于 2021-6-20 23:08
+
+
+虽然mea用着天江衣，喜欢模仿宫永咲玩岭上，但是她牌风比较像卷饼。东风速攻运气还行，南风就不行了。
+
+
+-----
+
+####  Ky·Kiske  
+##### 17790#       发表于 2021-6-20 23:34
+
+
+今晚上无了
+
+
+                                                 

@@ -2553,3 +2553,17 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  isa2456  
+##### 1699#       发表于 2021-6-20 23:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679063&amp;ptid=1963832" target="_blank">kotori666 发表于 2021-6-20 22:01</a>
+
+看到萝拉身上的元素总觉得眼熟，今天突然想起不是还有个正儿八经的“人鱼天使”，正好人设都是同一个人[f:0 ...</blockquote>
+q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五色之光，blossom和flora也算是花<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+                                                 
