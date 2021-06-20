@@ -12710,3 +12710,14 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  AlfredXC  
+##### 979#       发表于 2021-6-21 00:42
+
+
+这季两部AI的片子，感觉都对于AI抱有着相当美好的幻想<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
