@@ -13974,3 +13974,204 @@ mea防守还是太弱了
 
 
                                                 
+
+-----
+
+####  GRMeA104  
+##### 17736#       发表于 2021-6-20 14:39
+
+
+打得稀烂是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能和买摩托做cp组提供节目效果了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17737#       发表于 2021-6-20 14:39
+
+
+反正下半场看舞元能不能把歌衣那组干碎就是了。
+
+
+-----
+
+####  fgfg435  
+##### 17738#       发表于 2021-6-20 14:42
+
+
+楼友好像不是很友善<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17739#       发表于 2021-6-20 14:45
+
+
+ 本帖最后由 Klience 于 2021-6-20 14:46 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51674700&amp;ptid=1973472" target="_blank">2014720 发表于 2021-6-20 14:35</a>
+
+想起这人早年参加lol pubg比赛这些了
+
+
+只能说菜就是原罪了</blockquote>
+lol也要看她玩什么英雄啊 玩自己绝活英雄起码不会那么难看 玩个别的英雄 分分钟血压拉满<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 17740#       发表于 2021-6-20 14:46
+
+
+感觉下一组舞元还能争一争的，四强就是胜利<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 17741#       发表于 2021-6-20 14:46
+
+
+最气的还是通宵来打这比赛 好几次第二天有活动还通宵 看着就感觉脑死 来气
+
+真想狠狠的打小麻屁股<img src="https://static.saraba1st.com/image/smiley/face2017/102.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17742#       发表于 2021-6-20 14:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">舞元看来也要没了，5饼这个一万年别人也不会打的把
+
+
+-----
+
+####  2014720  
+##### 17743#       发表于 2021-6-20 14:54
+
+
+ 本帖最后由 2014720 于 2021-6-20 15:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51674783&amp;ptid=1973472" target="_blank">Klience 发表于 2021-6-20 14:45</a>
+lol也要看她玩什么英雄啊 玩自己绝活英雄起码不会那么难看 玩个别的英雄 分分钟血压拉满syl 你麻还 ...</blockquote>
+就是想说说这人的小女生心态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+五元啥时候惯过她了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/0bca284681cb19eaba8508b15881bebb/33d6baac08b506.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17744#       发表于 2021-6-20 14:55
+
+
+还好，流了
+
+
+-----
+
+####  古战场亡魂  
+##### 17745#       发表于 2021-6-20 15:10
+
+
+舞元打牌合理多了，弃牌也果断。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下半场应该稳了吧
+
+
+-----
+
+####  路人庚  
+##### 17746#       发表于 2021-6-20 15:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咩姐似乎有机会参加下一轮了（奶
+
+
+-----
+
+####  古战场亡魂  
+##### 17747#       发表于 2021-6-20 15:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过舞元和职业的差距也大啊，解说两个都在说扔8饼，他把宝牌4饼扔了
+
+
+-----
+
+####  古战场亡魂  
+##### 17748#       发表于 2021-6-20 15:15
+
+
+本来组长再过两轮就要点给舞元了，结果时雨直接点了伊东，这下有点难了啊。
+
+
+-----
+
+####  T_Hb  
+##### 17749#       发表于 2021-6-20 15:15
+
+
+这个8万有点难啊
+
+
+-----
+
+####  路人庚  
+##### 17750#       发表于 2021-6-20 15:15
+
+
+伊东组这下感觉有点难搞了
+
+
+-----
+
+####  T_Hb  
+##### 17751#       发表于 2021-6-20 15:18
+
+
+伊东老师搞了个大的，这下危险了
+
+
+-----
+
+####  路人庚  
+##### 17752#       发表于 2021-6-20 15:19
+
+
+好自摸，提前恭喜你咩姐续婚成功<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17753#       发表于 2021-6-20 15:20
+
+
+ 本帖最后由 古战场亡魂 于 2021-6-20 15:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">伊东组难搞，就去吧组长击飞吧。<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17754#       发表于 2021-6-20 15:26
+
+
+解说血压都起来了，不愧是羽衣老师
+
+
+-----
+
+####  路人庚  
+##### 17755#       发表于 2021-6-20 15:28
+
+
+最后一把，出线希望微存
+
+
+                                                 
