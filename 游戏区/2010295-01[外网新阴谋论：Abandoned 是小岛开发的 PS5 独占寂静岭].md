@@ -4060,3 +4060,32 @@ liar liar<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" r
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 305#       发表于 2021-6-21 06:45
+
+
+ 本帖最后由 luoyianwu 于 2021-6-21 06:58 编辑 
+
+<img src="https://p.sda1.dev/2/5131367af159d7e4a6bd158cfd756821/0B98D614-ABAE-43C1-B140-3ED807EF75AE.jpeg" referrerpolicy="no-referrer"><blockquote>OfficialKonamiShop
+
+@KonamiShop
+
+Something wicked is rolling into our shop next week. We are launching a SILENT HILL MERCH collection along with this amazing Limited Series Skateboard to celebrate…</blockquote>
+
+SHLSS = Silent Hill Limited Series Skateboard<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+to celebrate什么！
+
+
+-----
+
+####  luoyianwu  
+##### 306#       发表于 2021-6-21 06:59
+
+
+<img src="https://p.sda1.dev/2/c53ce19d7f90c0f94e2e4b9235f242be/res.png" referrerpolicy="no-referrer">
+
+
+                                                 
