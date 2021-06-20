@@ -13615,3 +13615,69 @@ syl，前面说到之前朋友跑她家来玩的时候闻到房间里有垃圾�
 
 
                                                  
+
+-----
+
+####  Cushaw  
+##### 17699#       发表于 2021-6-20 12:44
+
+
+通宵还算个屁牌啊，不想打比赛可以不打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  T_Hb  
+##### 17700#       发表于 2021-6-20 12:53
+
+
+只要精神恍惚就能链接到不可知之地，剩下的靠右手就可以了
+
+
+
+
+-----
+
+####  Klience  
+##### 17701#       发表于 2021-6-20 13:03
+
+
+全靠右手第一张吗 好家伙 在打游戏王/炉石呢（）要不要在DV现场点首《热烈的决斗者》送给你 祝你获得胜利啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17702#       发表于 2021-6-20 13:08
+
+
+难怪之前美玲老是在做七对子
+
+
+-----
+
+####  T_Hb  
+##### 17703#       发表于 2021-6-20 13:09
+
+
+ 本帖最后由 T_Hb 于 2021-6-20 13:25 编辑 
+
+官方频道开了，先瞧一瞧，好像有采访环节
+
+syl   又掐着嗓子营业<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">，怎么连舞元也在凹
+
+  小林pro这衣服怎么回事，像摩尔纹一样，我要被晃晕了
+
+
+-----
+
+####  古战场亡魂  
+##### 17704#       发表于 2021-6-20 13:21
+
+
+我萌音已经听不下去了……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                

@@ -7525,3 +7525,91 @@ WIT这种八股文脑残剧本每次居然都可以卖这么多<img src="https:/
 
 
                                                 
+
+-----
+
+####  chexk03  
+##### 2077#       发表于 2021-6-20 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671504&amp;ptid=1982987" target="_blank">peh 发表于 2021-6-20 09:13</a>
+
+问下完结了值得补吗？</blockquote>
+非常值得，当一部魔戒3长度的电影一口气看完就行，基本是打打打—抒情—打打打—抒情，总之不要在意细节，好好听歌<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  小倉朝日  
+##### 2078#       发表于 2021-6-20 13:02
+
+
+不去救博士先救反抗组织这个能理解，为了反抗组织的战斗人员尽量多的存活下来方便爬塔，问题是你就不能再多往前回溯点留出救博士的时间啊
+
+
+-----
+
+####  aptx8285144  
+##### 2079#       发表于 2021-6-20 13:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671488&amp;ptid=1982987" target="_blank">nihilxp 发表于 2021-6-20 09:10</a>
+
+不至于，更类似于异度侵入。蝈蝈是巨人那种超展开玩脱了。</blockquote>
+但是这片感觉，从第三个单元剧开始薇薇和松本的逼格以及对剧情控制力就远不如异度侵入的瓢哥和小春了，这两个人感觉越来越撑不起百年挽救的局面，本来小明那个事件是可以先黑化再慢慢转变，结果粗暴当机反而不太行，松本就更不用说了
+
+
+-----
+
+####  loley  
+##### 2080#       发表于 2021-6-20 13:10
+
+
+我觉得异度侵入基本没有乳推理，但vivy是真的乳科幻
+
+
+-----
+
+####  shadow001  
+##### 2081#       发表于 2021-6-20 13:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673759&amp;ptid=1982987" target="_blank">小倉朝日 发表于 2021-6-20 13:02</a>
+
+不去救博士先救反抗组织这个能理解，为了反抗组织的战斗人员尽量多的存活下来方便爬塔，问题是你就不能再多 ...</blockquote>
+上集博士說了不能回到更早的時間
+
+
+-----
+
+####  lecia  
+##### 2082#       发表于 2021-6-20 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673840&amp;ptid=1982987" target="_blank">loley 发表于 2021-6-20 13:10</a>
+
+我觉得异度侵入基本没有乳推理，但vivy是真的乳科幻</blockquote>
+虽然我们用了科幻的设定装了科幻的b，但你们不能太执着于科幻哦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  枪聆弹语  
+##### 2083#       发表于 2021-6-20 13:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">VIVY跨起个批脸怎么能和智勇双全的小春比
+
+
+-----
+
+####  丹德里恩  
+##### 2084#       发表于 2021-6-20 13:17
+
+
+最终话整个过程中我脑子里都充斥着“啊？啥？为什么？”
+
+而且最后那个造型一点也不好看，说好的亲女儿呢
+
+
+                                                 

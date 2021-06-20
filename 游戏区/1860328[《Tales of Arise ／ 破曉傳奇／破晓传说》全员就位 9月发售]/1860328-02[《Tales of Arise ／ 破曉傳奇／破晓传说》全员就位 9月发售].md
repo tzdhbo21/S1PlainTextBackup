@@ -2852,3 +2852,16 @@ fami的文章说 overlimit 是靠挨打或者时机正好的回避自动触发�
 
 
                                                  
+
+-----
+
+####  宛若青空  
+##### 1715#       发表于 2021-6-20 13:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673725&amp;ptid=1860328" target="_blank">godless2020 发表于 2021-6-20 13:00</a>
+https://gnn.gamer.com.tw/detail.php?sn=216845</blockquote>
+翻译4Gamer的，还以为巴哈也有媒体试玩
+
+
+                                                 

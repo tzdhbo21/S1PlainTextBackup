@@ -3454,3 +3454,93 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
 
                                                  
+
+-----
+
+####  后藤P  
+##### 255#       发表于 2021-6-20 13:18
+
+
+搞这么大基本就是真的了，谁担得起这种巨魔的backlash
+
+
+-----
+
+####  Junakr  
+##### 256#       发表于 2021-6-20 13:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672165&amp;ptid=2010295" target="_blank">Junakr 发表于 2021-6-20 10:43</a>
+
+哈桑 &gt; 让我看看你的真面目！
+
+口技马 &gt; 我就知道！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/20/131547edx996p99ez6zxav.jpg" referrerpolicy="no-referrer">
+
+
+<strong>このこじまだ！.jpg</strong> (26.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 13:15 上传
+
+
+闲的没事整了个烂梗，懒得配字了，希望岛哥哥不要让我们失望<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">。
+
+
+-----
+
+####  tillnight  
+##### 257#       发表于 2021-6-20 13:22
+
+
+这个点了还怀疑啥。。都可以把事实结合业界传闻猜出来了：SONY向KONAMI买下了寂静岭的版权（类似任天堂和零的关系，并非买断，相当于商标独占许可权），撮合小岛来做这个新作（未必是Director，甚至未必由新的小岛工作室开发，但是肯定挂名了）。KONAMI的经典品牌估计后续会有很多的类似操作。
+
+
+前面还有人说这种炒作没意义，就寂静岭这种百万级别的IP，真公布了也没多大的hype哪怕是PT精神续作也就这点热度，现在外网可是一副人均玩过寂静岭的假象。虽然是老把戏，但正常宣发绝没有这种效果。<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cloudfarron  
+##### 258#       发表于 2021-6-20 13:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673949&amp;ptid=2010295" target="_blank">tillnight 发表于 2021-6-20 13:22</a>
+
+这个点了还怀疑啥。。都可以把事实结合业界传闻猜出来了：SONY向KONAMI买下了寂静岭的版权（类似任天堂和零 ...</blockquote>
+但是这个工作室15年就成立了啊，steam也有他们的前作（评价很烂），难道sony花了几年的时间来布局这个？
+
+
+-----
+
+####  shyso  
+##### 259#       发表于 2021-6-20 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673969&amp;ptid=2010295" target="_blank">Cloudfarron 发表于 2021-6-20 13:25</a>
+
+但是这个工作室15年就成立了啊，steam也有他们的前作（评价很烂），难道sony花了几年的时间来布局这个？ ...</blockquote>
+前面不是有分析了，这工作室也是做了模仿pt的项目之后才被看中买下来的
+
+
+-----
+
+####  言嘉  
+##### 260#       发表于 2021-6-20 13:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">建议国内某些人搞营销时学学小岛哥哥，别TM整天碰瓷恶心人了
+
+
+-----
+
+####  Litccc  
+##### 261#       发表于 2021-6-20 13:54
+
+
+岛哥哥整活还是很有意思的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
