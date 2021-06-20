@@ -16583,3 +16583,16 @@ twiiter和b站全屏之后，边缘触控位置不灵敏
 
 
                                                  
+
+-----
+
+####  oskneo  
+##### 2726#       发表于 2021-6-20 16:08
+
+
+话说港版马克兔要怎样支持微信指纹？
+
+—— 来自 Sony XQ-AT52, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

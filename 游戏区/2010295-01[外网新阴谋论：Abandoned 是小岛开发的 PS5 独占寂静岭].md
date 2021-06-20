@@ -3577,3 +3577,26 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
 
                                                  
+
+-----
+
+####  kuker53  
+##### 265#       发表于 2021-6-20 16:24
+
+
+这工作室官网和土鳖主页不得不让人觉得这是一个空壳，至少得传一个预告片上去吧
+
+
+-----
+
+####  言嘉  
+##### 266#       发表于 2021-6-20 16:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675628&amp;ptid=2010295" target="_blank">kuker53 发表于 2021-6-20 16:24</a>
+
+这工作室官网和土鳖主页不得不让人觉得这是一个空壳，至少得传一个预告片上去吧 ...</blockquote>
+可能现在才新建文件夹呢
+
+
+                                                 

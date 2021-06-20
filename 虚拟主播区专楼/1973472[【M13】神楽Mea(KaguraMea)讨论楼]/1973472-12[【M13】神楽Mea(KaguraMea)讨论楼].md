@@ -14175,3 +14175,188 @@ lol也要看她玩什么英雄啊 玩自己绝活英雄起码不会那么难看 
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 17756#       发表于 2021-6-20 15:32
+
+
+完了，可惜可惜
+
+
+-----
+
+####  时雨rain  
+##### 17757#       发表于 2021-6-20 15:33
+
+
+日子凑活着过吧<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17758#       发表于 2021-6-20 15:33
+
+
+gg，果然还是一轮游了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+此处需要有独角兽的哀嚎（
+
+
+-----
+
+####  GRMeA104  
+##### 17759#       发表于 2021-6-20 15:35
+
+
+笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17760#       发表于 2021-6-20 15:36
+
+
+结束了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">舞元尽力了，mea尽兴了<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  T_Hb  
+##### 17761#       发表于 2021-6-20 15:40
+
+
+今晚会播吗<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 17762#       发表于 2021-6-20 15:43
+
+
+今天估计要补觉了，大活动前紧张到睡不着也没办法
+
+
+离婚失败有点可惜，我挺想看离婚之后接着整复婚活的，这下少了个梗了（悲
+
+
+-----
+
+####  古战场亡魂  
+##### 17763#       发表于 2021-6-20 15:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">其实也是好事，这要是组长因为低分拖了老师导致她出局，组长估计要被炎上了。
+
+mea上一局少点一次就是第二名。可惜了。
+
+
+-----
+
+####  T_Hb  
+##### 17764#       发表于 2021-6-20 15:45
+
+
+ 本帖最后由 T_Hb 于 2021-6-20 15:47 编辑 
+
+我就怕她补完觉又凌晨开播，
+兔妈还要打决赛呢，还是处于危险状态
+
+
+-----
+
+####  Klience  
+##### 17765#       发表于 2021-6-20 15:48
+
+
+今晚该歌会唱点喜庆的歌了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 17766#       发表于 2021-6-20 15:49
+
+
+wuwuwu舞咩永远是你的家<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  fgfg435  
+##### 17767#       发表于 2021-6-20 16:07
+
+
+天狗发牌员不太行啊<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 17768#       发表于 2021-6-20 16:13
+
+
+竟然没离婚成功，又凑合着过了
+
+
+-----
+
+####  甘栗No.007  
+##### 17769#       发表于 2021-6-20 16:15
+
+
+怕不是以后雀魂不会给工商了，不仅菜还不守公序良俗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 17770#       发表于 2021-6-20 16:18
+
+
+<blockquote>甘栗No.007 发表于 2021-6-20 16:15
+怕不是以后雀魂不会给工商了，不仅菜还不守公序良俗</blockquote>
+我看主舞台了，她场上怎么了？？
+
+
+-----
+
+####  2014720  
+##### 17771#       发表于 2021-6-20 16:19
+
+
+被五元透晕<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"><img src="https://p.sda1.dev/2/3d461828801c3afc8b31029060598a6d/371d8f5c8099d91a.jpg" referrerpolicy="no-referrer">
+
+明天多来点苦情歌吧
+
+
+-----
+
+####  甘栗No.007  
+##### 17772#       发表于 2021-6-20 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51675573&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-6-20 16:18</a>
+我看主舞台了，她场上怎么了？？</blockquote>
+也没啥，就是说段子说的途中被雀魂的运营私聊了个“公序良俗🙂”
+
+
+-----
+
+####  路人庚  
+##### 17773#       发表于 2021-6-20 16:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">这么搞笑的吗，求个时间点指路
+
+
+                                                
