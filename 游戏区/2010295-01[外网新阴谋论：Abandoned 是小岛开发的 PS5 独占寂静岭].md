@@ -3102,3 +3102,142 @@ Geoff推特直播七点开始开始
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 224#       发表于 2021-6-20 07:03
+
+
+[https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o3rtz0/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o3rtz0/)
+推理帖
+s开头l结尾的新作标题是sigil（圣印），寂静岭教徒崇拜的纹章
+今天konami shop展出的新图是三角头；Blue重新排列成Beul，在荷兰语是“executioner”处刑人的意思
+
+
+-----
+
+####  luoyianwu  
+##### 225#       发表于 2021-6-20 07:18
+
+
+[https://twitter.com/bbgamestudios/status/1406390181985406976?s=21](https://twitter.com/bbgamestudios/status/1406390181985406976?s=21)
+blue box起床了。他表示Geoff、Roger Clark等人关注的hasan instagram账号是假号<img src="https://static.saraba1st.com/image/smiley/face2017/107.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  棺材叔叔  
+##### 226#       发表于 2021-6-20 08:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">如果真是岛哥哥，这整活手艺可真是太强了
+
+
+-----
+
+####  西兹少爷  
+##### 227#       发表于 2021-6-20 08:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671015&amp;ptid=2010295" target="_blank">Flechette 发表于 2021-6-20 05:53</a>
+
+整个帖子看下来，不得不感叹岛哥哥真的会整活，可以说是游戏界营销第一人了吧 ...</blockquote>
+日本游戏界营销共有一石，岛哥哥独得八斗。
+
+
+-----
+
+####  luoyianwu  
+##### 228#       发表于 2021-6-20 08:20
+
+
+ 本帖最后由 luoyianwu 于 2021-6-20 08:23 编辑 
+
+[https://twitter.com/BBGameStudios/status/1406396559659503619?s=20](https://twitter.com/BBGameStudios/status/1406396559659503619?s=20)
+
+6月20日开放下载、22日上线的PS5 Abandoned App会自带教程；游戏展示及宣传片会在整个夏季一点一点放出
+
+[https://twitter.com/BBGameStudios/status/1406399807468539909?s=20](https://twitter.com/BBGameStudios/status/1406399807468539909?s=20)
+
+Blue Box重申，目前展示过的东西并不包含真正的游戏
+
+
+-----
+
+####  恰是戒戒  
+##### 229#       发表于 2021-6-20 08:44
+
+
+新的柏青哥罢了
+
+
+-----
+
+####  luoyianwu  
+##### 230#       发表于 2021-6-20 09:15
+
+
+[https://www.reddit.com/r/TheBlue ... e_real_at_first_it/](https://www.reddit.com/r/TheBlueBoxConspiracy/comments/o3twtz/the_hasan_psn_messages_were_real_at_first_it/)
+
+206楼截图账号主人发屏幕录像自证清白。Hasan自称不知道Abandoned是不是Silent Hills
+
+
+-----
+
+####  zzy516232108  
+##### 231#       发表于 2021-6-20 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51670873&amp;ptid=2010295" target="_blank">Cloudfarron 发表于 2021-6-20 03:24</a>
+
+这个算是石锤了吗？</blockquote>
+kept me waiting草，这不是小岛说不过去了呀……
+
+
+-----
+
+####  当光停止  
+##### 232#       发表于 2021-6-20 09:25
+
+
+ 本帖最后由 当光停止 于 2021-6-20 09:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">时隔这么多年难道我要重燃对科乐美的期望了吗？
+
+
+-----
+
+####  冰箱研会长  
+##### 233#       发表于 2021-6-20 09:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/099.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  悟空救我  
+##### 234#       发表于 2021-6-20 09:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51671106&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-20 07:18</a>
+
+https://twitter.com/bbgamestudios/status/1406390181985406976?s=21
+
+blue box起床了。他表示Geoff、Roger ...</blockquote>
+刚起床，怕不是日本时区
+
+
+-----
+
+####  Eadric  
+##### 235#       发表于 2021-6-20 09:45
+
+
+kept you waiting, huh<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
