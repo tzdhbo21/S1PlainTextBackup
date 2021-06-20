@@ -8367,3 +8367,22 @@ bangumi VIVY 和86的分 <img src="https://static.saraba1st.com/image/smiley/fac
 
 
                                                  
+
+-----
+
+####  shimmy1996  
+##### 2144#       发表于 2021-6-21 04:24
+
+
+ 本帖最后由 shimmy1996 于 2021-6-21 04:25 编辑 
+
+结尾大概算是圆满完成任务，不过感觉差了一口气<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+前期设定说明上的留白以及一些看似加入得十分随意却藏着一些关键设定的小场景导致最后不得不花宝贵的篇幅来合理化估计剧本里以及观众脑海里早就已经确定了的解决方案（ai唱歌拯救世界）。结果最能调动观众情绪的唱歌场景被不断压缩一直拖到最后，反而是（我最没兴趣看的工具人组织）toak占了结局的大部分篇幅；对vivy如何再次能够唱歌这个关键剧情点只在最终话的码头和nialand两个场景里赶火车一样提了一笔。这一点从每个单元剧的长度也能看到一些端倪（当然恶意一点的推测就是结局实在想不出拍什么了就只能扯些设定同时把神隐了好久的navi/伊丽莎白拉回来凑数
+
+如果篇幅重新调整分配一下，再塞一个单元剧（前提是写得出来的话）保持住节奏说不定都让观感能更好一些
+
+（其实是补完这边后看了隔壁dynazenon最后两话感受到了不小的落差<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+                                                 
