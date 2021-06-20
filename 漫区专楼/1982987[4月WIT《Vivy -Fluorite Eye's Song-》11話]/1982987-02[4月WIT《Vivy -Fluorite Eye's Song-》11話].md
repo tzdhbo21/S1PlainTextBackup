@@ -8014,3 +8014,51 @@ vivy其实抒情也抒的很好，最后一集我看出来很多教科书一般�
 
 
                                                  
+
+-----
+
+####  言酱啊啊啊  
+##### 2116#       发表于 2021-6-20 19:38
+
+
+ 本帖最后由 言酱啊啊啊 于 2021-6-20 19:46 编辑 
+
+感觉B站观众一副只看作画不看剧情的样子，说了句剧情不行被追着问了好几层“你说说哪里不行”，把不行的地方说出来之后他们又一副“你说这个谁懂啊打戏画质好不就行了吗”，让我觉得我浪费了人生中的十来分钟打那么多字<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  普罗茶  
+##### 2117#       发表于 2021-6-20 19:41
+
+
+<blockquote>言酱啊啊啊 发表于 2021-6-20 19:38
+感觉B站观众都是一副只看作画不看剧情的样子，说了句剧情不行被追着问了好几层“你说说哪里不行”，把不行 ...</blockquote>
+本质也不会看作画
+
+
+-----
+
+####  MASKA-1  
+##### 2118#       发表于 2021-6-20 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51677540&amp;ptid=1982987" target="_blank">言酱啊啊啊 发表于 2021-6-20 19:38</a>
+
+感觉B站观众一副只看作画不看剧情的样子，说了句剧情不行被追着问了好几层“你说说哪里不行”，把不行的地 ...</blockquote>
+吹黑不对等啊，吹随便吹，黑你就必须说出个所以然，不然你就是乱黑<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  HollowBreaker  
+##### 2119#       发表于 2021-6-20 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51678046&amp;ptid=1982987" target="_blank">MASKA-1 发表于 2021-6-20 20:25</a>
+
+吹黑不对等啊，吹随便吹，黑你就必须说出个所以然，不然你就是乱黑 ...</blockquote>
+就算说出了所以然，还有很大可能被说成是在钻牛角尖、硬杠、吹毛求疵、婆罗门<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

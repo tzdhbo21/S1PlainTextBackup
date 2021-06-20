@@ -2400,3 +2400,96 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  PrincessBanana  
+##### 1686#       发表于 2021-6-20 19:45
+
+
+这集太棒了，内容真的又多又有意思。
+确实萝拉变身后动起来比想象中可爱好多，太喜欢最后终结技浮夸的动作了，简直就是在秀腿<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PrincessBanana  
+##### 1687#       发表于 2021-6-20 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51676609&amp;ptid=1963832" target="_blank">damian-wade 发表于 2021-6-20 18:14</a>
+萝拉变身后cast表直接上第二位了，谁是女主角不用多说了吧
+
+
+虽然前面铺垫得不少，但就这集的进度有 ...</blockquote>
+骨碌伦立大功
+
+
+-----
+
+####  memo2  
+##### 1688#       发表于 2021-6-20 19:54
+
+
+总有一天我会习惯这瑜伽裤的！总有一天<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">除了瑜伽裤以外都很棒的一集，人鱼救王子超级无敌赞
+
+
+-----
+
+####  粉儿alice  
+##### 1689#       发表于 2021-6-20 19:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51676609&amp;ptid=1963832" target="_blank">damian-wade 发表于 2021-6-20 18:14</a>
+萝拉变身后cast表直接上第二位了，谁是女主角不用多说了吧
+
+
+虽然前面铺垫得不少，但就这集的进度有 ...</blockquote>
+光是ed表罗拉直接上第二位 她就是历代追加战士第一位惹
+连刹那只能是老四
+看看下周ed表怎么排了 毕竟要上学 要给一个假姓 至少比某无业游民好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宅音  
+##### 1690#       发表于 2021-6-20 20:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">这个裤子还是不太能接受
+
+
+-----
+
+####  月江隐  
+##### 1691#       发表于 2021-6-20 20:07
+
+
+这个裤子，，是为了高抬腿不走光故意的吧
+
+
+-----
+
+####  待宵  
+##### 1692#       发表于 2021-6-20 20:11
+
+
+大招收尾就是单脚翘上天，这若不是裤子而是裙子得多不雅
+
+
+-----
+
+####  Frezard  
+##### 1693#       发表于 2021-6-20 20:40
+
+
+<blockquote>粉儿alice 发表于 2021-6-20 19:59
+光是ed表罗拉直接上第二位 她就是历代追加战士第一位惹
+
+连刹那只能是老四
+
+看看下周ed表怎么排了 毕竟要上 ...</blockquote>
+设定是外国来留学的估计直接用全名了，萝拉·阿波罗多洛斯（以下略
+
+
+                                                 

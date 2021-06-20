@@ -3659,3 +3659,121 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
 
                                                  
+
+-----
+
+####  Eadric  
+##### 272#       发表于 2021-6-20 20:28
+
+
+我要变teamfake了，这是在拖延时间吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/20/202849msul7u64d76a4nmo.png" referrerpolicy="no-referrer">
+
+
+<strong>IMG_1093.PNG</strong> (339.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 20:28 上传
+
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  すぴぱら  
+##### 273#       发表于 2021-6-20 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673969&amp;ptid=2010295" target="_blank">Cloudfarron 发表于 2021-6-20 13:25</a>
+
+但是这个工作室15年就成立了啊，steam也有他们的前作（评价很烂），难道sony花了几年的时间来布局这个？ ...</blockquote>
+有没有可能是索尼/小岛看中了他们的剧本创意，直接买下来
+
+
+-----
+
+####  kuker53  
+##### 274#       发表于 2021-6-20 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51678072&amp;ptid=2010295" target="_blank">Eadric 发表于 2021-6-20 20:28</a>
+
+我要变teamfake了，这是在拖延时间吧</blockquote>
+这nm要是没猫腻我是不信的
+
+
+-----
+
+####  Rivercat  
+##### 275#       发表于 2021-6-20 20:35
+
+
+太能整活了。
+
+
+-----
+
+####  acejoe  
+##### 276#       发表于 2021-6-20 20:47
+
+
+别他妈反手一个，
+
+小岛首次导演cg电影，寂静岭电影化！
+
+
+-----
+
+####  luoyianwu  
+##### 277#       发表于 2021-6-20 20:48
+
+
+blue balls games
+
+
+-----
+
+####  灵魂收割机  
+##### 278#       发表于 2021-6-20 20:49
+
+
+耍起来了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  战狼PTSD  
+##### 279#       发表于 2021-6-20 20:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">他娘的，耍猴呢！
+
+
+-----
+
+####  哈罗  
+##### 280#       发表于 2021-6-20 20:52
+
+
+感觉被耍了，赶紧止损
+
+
+-----
+
+####  若菜  
+##### 281#       发表于 2021-6-20 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51678256&amp;ptid=2010295" target="_blank">acejoe 发表于 2021-6-20 20:47</a>
+
+别他妈反手一个，
+
+
+小岛首次导演cg电影，寂静岭电影化！</blockquote>
+这不是自取其辱么，寂静岭电影本身也算是标杆了
+
+
+                                                 

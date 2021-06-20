@@ -14410,3 +14410,23 @@ wuwuwu舞咩永远是你的家<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+-----
+
+####  rosevalley46  
+##### 17777#       发表于 2021-6-20 20:09
+
+
+麻将实在是看不懂,结果倒还挺有意思的
+
+
+-----
+
+####  T_Hb  
+##### 17778#       发表于 2021-6-20 20:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">这结果虽然在意料之中，但还是挺希望能进第二轮的
+
+
+                                                 

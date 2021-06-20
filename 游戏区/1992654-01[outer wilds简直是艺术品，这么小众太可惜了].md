@@ -2774,3 +2774,17 @@ ns版上了？完全没听到消息
 
 
                                                  
+
+-----
+
+####  Anonymous_User  
+##### 206#       发表于 2021-6-20 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51663486&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-6-19 12:44</a>
+
+成就希望多点强烈冲击那种巧思类，不要太多飞行高手那种考验技术的。 ...</blockquote>
+飞行高手需要的不是操作而是对轨道物理的理解……玩过KSP的应该都能几次尝试内就做到……
+
+
+                                                 
