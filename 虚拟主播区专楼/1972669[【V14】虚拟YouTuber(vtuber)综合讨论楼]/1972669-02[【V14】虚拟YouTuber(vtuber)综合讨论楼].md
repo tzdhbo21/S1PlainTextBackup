@@ -15681,3 +15681,100 @@ BOOGEY VOXX也3D了，看起来还可以→ #デッドマーチ02
 
 
                                                 
+
+-----
+
+####  真飞鸟i  
+##### 2733#       发表于 2021-6-20 12:03
+
+
+和想象中差距有点大，假照比较符合……
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  突然空虚  
+##### 2734#       发表于 2021-6-20 12:09
+
+
+紫毛假照符合想象中形象+1
+
+
+-----
+
+####  ヒトニナル  
+##### 2735#       发表于 2021-6-20 12:19
+
+
+这眼睛P的，兄弟过分了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 2736#       发表于 2021-6-20 12:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这眼睛p得吓人了
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 2737#       发表于 2021-6-20 12:26
+
+
+这p得有点过了，感觉也不如假照好看
+
+
+-----
+
+####  fgfg435  
+##### 2738#       发表于 2021-6-20 12:27
+
+
+眼睛不如不p<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  katern  
+##### 2739#       发表于 2021-6-20 12:34
+
+
+艺术照是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+不得不说这小手臂的形状，有点肉肉的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 2740#       发表于 2021-6-20 12:36
+
+
+这p得和打码没啥区别了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起了阿葵和小兔子
+
+
+-----
+
+####  死体残留  
+##### 2741#       发表于 2021-6-20 12:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">就这样子，很期待所谓的声优出道
+但就这还比不过slee的地雷女呢
+
+
+-----
+
+####  FCCHua  
+##### 2742#       发表于 2021-6-20 12:41
+
+
+这是日本那边特有的大头照啊
+
+
+                                                 

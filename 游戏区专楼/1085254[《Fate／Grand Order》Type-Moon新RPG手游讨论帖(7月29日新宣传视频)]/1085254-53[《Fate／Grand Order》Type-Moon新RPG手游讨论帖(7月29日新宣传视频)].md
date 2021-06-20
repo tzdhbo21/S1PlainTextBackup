@@ -15838,3 +15838,25 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  新吾  
+##### 79302#       发表于 2021-6-20 11:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节奏多还不是前半章有趣的地方几乎为零，离下半章还有将近半个月能干啥，不就撕cp撕人物啥的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要是换成252开头这种一发雷电秒了几百个海格力斯这种描写，玩家就会愉快的去辱海了
+
+
+-----
+
+####  仰望神的括约肌  
+##### 79303#       发表于 2021-6-20 12:22
+
+
+除了这几个节奏还有零星几个不死心的还在奶后半旧剑登场的  瞧这分章给人憋得<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

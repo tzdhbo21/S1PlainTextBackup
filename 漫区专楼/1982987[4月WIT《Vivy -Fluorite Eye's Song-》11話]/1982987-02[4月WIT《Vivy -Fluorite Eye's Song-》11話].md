@@ -7422,3 +7422,106 @@ vivy个人成长与AI毁灭世界这个没有把握好 可能是只有12集吧 +
 
 
                                                  
+
+-----
+
+####  KyonSuzumiya  
+##### 2068#       发表于 2021-6-20 11:40
+
+
+不带脑子仔细考究剧本的话，最终话其实整挺好
+
+
+-----
+
+####  ds2008  
+##### 2069#       发表于 2021-6-20 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672668&amp;ptid=1982987" target="_blank">199april 发表于 2021-6-20 11:27</a>
+
+最后我想说，vivy的几套演出服都挺难看的</blockquote>
+完全同意，不只演出服，感觉每个单元剧中的服装都相当土味。尤其是欧菲莉亚那个单元剧里，一直穿套运动服和欧菲莉亚形成强烈对比。明明百年时间跨度的科幻剧情，还是AI偶像，造型完全可以玩出花样来，结果只有OL装、服务生装、运动装、演出服，让我挺失望的，不过最后短发vivy相对不错，早点换几套造型多好。
+
+
+-----
+
+####  renkan119  
+##### 2070#       发表于 2021-6-20 11:50
+
+
+阿卡布这个理由是真的不行 太莫名其妙了 弄得最后人类和AI共存就像是你和你同桌聊天聊的好好的 他莫名其妙就给你眼睛来了一拳 你刚想还手老师冲过来把你按住说不能打架…
+
+
+
+
+-----
+
+####  saberserker  
+##### 2071#       发表于 2021-6-20 12:06
+
+
+这是一首歌把联网的AI连带自己全都恢复出厂设置了
+
+
+-----
+
+####  ipcjs  
+##### 2072#       发表于 2021-6-20 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672544&amp;ptid=1982987" target="_blank">余情自取 发表于 2021-6-20 11:19</a>
+还有十天发售，完结效应还行，快压佐贺当鱼头了，现在预测pt刚好6k。
+订了套3CD支持了下，特典box太好看了[ ...</blockquote>
+WIT这种八股文脑残剧本每次居然都可以卖这么多<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+— from Google Pixel 2 XL, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  デルフィニウム  
+##### 2073#       发表于 2021-6-20 12:15
+
+
+最后一集这推进速度跟一集一卷的轻改有的一比
+
+
+-----
+
+####  Tehebe  
+##### 2074#       发表于 2021-6-20 12:16
+
+
+要是不写拯救世界就一直单元剧，最后几集打个中boss埋个伏笔，观感会不会比现在好
+
+—— 来自 OnePlus GM1910, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  MASKA-1  
+##### 2075#       发表于 2021-6-20 12:28
+
+
+结局根本get不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  a12885084  
+##### 2076#       发表于 2021-6-20 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673265&amp;ptid=1982987" target="_blank">Tehebe 发表于 2021-6-20 12:16</a>
+
+要是不写拯救世界就一直单元剧，最后几集打个中boss埋个伏笔，观感会不会比现在好
+
+
+—— 来自 OnePlus GM19 ...</blockquote>
+估计会有人喷主线谜语人，但是确实观感会比现在强
+
+毕竟谜语人你不知道他到底拉不拉，这边**出镜是拉的真实彻底
+
+
+                                                

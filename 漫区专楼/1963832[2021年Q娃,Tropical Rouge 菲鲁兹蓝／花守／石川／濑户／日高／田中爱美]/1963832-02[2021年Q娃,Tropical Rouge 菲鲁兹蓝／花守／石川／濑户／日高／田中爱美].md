@@ -2004,3 +2004,61 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  lj205  
+##### 1657#       发表于 2021-6-20 12:05
+
+
+这两天狂补终于追上进度了每个人都是好棒棒，甚至被夏哥的积极感染到
+
+
+-----
+
+####  球獭  
+##### 1658#       发表于 2021-6-20 12:31
+
+
+所以，代价是当不了女王吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗黑能乐  
+##### 1659#       发表于 2021-6-20 12:32
+
+
+这话还挺阳间的，看似完全没有副作用的变成了人类，但我总觉得这肯定是陷阱，是那种一开始看起来没啥事，后面慢慢告诉你有啥限制之类的。。。
+
+
+-----
+
+####  待宵  
+##### 1660#       发表于 2021-6-20 12:37
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/123654ww14441011r21q7f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[Taikosan] Tropical-Rouge! Precure - 2 (ABC 1280x720 x264 AAC) [8C6DBA89].mkv_20.jpg</strong> (19.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 12:36 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/123657weff6y566yoyso2f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>[SubsPlease] Tropical-Rouge! Precure - 17 (1080p) [2CBC458D].mkv_20210620_122646.8771.jpg</strong> (12.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 12:36 上传
+
+
+第二话的月下之跃和变身BANK绝对是故意对应的
+
+
+                                                 

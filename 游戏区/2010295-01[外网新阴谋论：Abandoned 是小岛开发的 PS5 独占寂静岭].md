@@ -3400,3 +3400,57 @@ instagram的konami shop官方账号将两条评论置顶</blockquote>
 
 
                                                  
+
+-----
+
+####  曼陀罗肥  
+##### 250#       发表于 2021-6-20 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51672870&amp;ptid=2010295" target="_blank">本间日阳 发表于 2021-6-20 11:41</a>
+ 这个是看起来最实锤的  —— 来自 OPPO PCLM10, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+第二条被unpinned了，但依旧是赞数最高的
+他们到底在搞什么操作<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thez  
+##### 251#       发表于 2021-6-20 12:25
+
+
+啥时候正式公开啊？
+
+—— 来自 OPPO PCLM10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  luoyianwu  
+##### 252#       发表于 2021-6-20 12:32
+
+
+究竟是有人要写检讨了，还是计划通<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  walfeds  
+##### 253#       发表于 2021-6-20 13:04
+
+
+坐等反噬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 blackshark SKW-A0, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  allenz3  
+##### 254#       发表于 2021-6-20 13:11
+
+
+年度最佳解谜游戏<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
