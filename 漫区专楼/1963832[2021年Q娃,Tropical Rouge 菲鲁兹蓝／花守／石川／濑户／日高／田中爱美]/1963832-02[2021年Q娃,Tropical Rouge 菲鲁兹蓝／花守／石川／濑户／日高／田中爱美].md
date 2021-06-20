@@ -2493,3 +2493,52 @@ ED要更新了，这算是Q娃系列最快更新的ED吗<img src="https://static
 
 
                                                  
+
+-----
+
+####  天邪鬼  
+##### 1694#       发表于 2021-6-20 20:49
+
+
+泡沫论泡汤了，我之前还想会不会跟海的女儿一样，只是脚疼变成了松糕鞋，歌喉变成了一些比较轻的副作用
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  粉儿alice  
+##### 1695#       发表于 2021-6-20 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51678194&amp;ptid=1963832" target="_blank">Frezard 发表于 2021-6-20 20:40</a>
+设定是外国来留学的估计直接用全名了，萝拉·阿波罗多洛斯（以下略</blockquote>
+某个两位玛丽苏全名公主表示<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  Sliurus  
+##### 1696#       发表于 2021-6-20 21:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51677732&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-6-20 19:59</a>
+
+光是ed表罗拉直接上第二位 她就是历代追加战士第一位惹
+
+连刹那只能是老四
+
+看看下周ed表怎么排了 毕竟要上 ...</blockquote>
+罗拉·罗兰哒<img src="https://static.saraba1st.com/image/smiley/bundam2017/027.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  华发夜眼[CN]  
+##### 1697#       发表于 2021-6-20 21:21
+
+
+罗拉怎么不给真夏人工呼吸<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                 

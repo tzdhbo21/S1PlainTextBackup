@@ -15890,3 +15890,66 @@ BOOGEY VOXX也3D了，看起来还可以→ #デッドマーチ02
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 2752#       发表于 2021-6-20 21:14
+
+
+郡道兔组队无事四位，没人被飞真是太好啦<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 2753#       发表于 2021-6-20 21:25
+
+
+那个啥，你虹3D小动画真就出两期就润了啊
+
+
+-----
+
+####  超能力者stven  
+##### 2754#       发表于 2021-6-20 21:26
+
+
+神椿又出新人了
+
+
+-----
+
+####  alcoholic1000  
+##### 2755#       发表于 2021-6-20 21:27
+
+
+<img src="https://img.saraba1st.com/forum/202106/20/212350syvbhhe9bhbp61d3.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>存流 Op.1 「はじめまして。」 .jpeg</strong> (676.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-20 21:23 上传
+
+
+お知らせ⑥
+
+そして深脊界からは新たなアーティストが誕生しました。名前は「存流」。
+
+とても面白い歌声をしています。
+
+久しぶりに出逢えた逸材。
+
+聴いて頂けるのが楽しみです。今後の活動をお楽しみに！
+
+
+存流 Op.1 「はじめまして。」
+
+
+深脊界計画（裸春所属？）新人
+[https://www.youtube.com/watch?v=6ErSCpQoS1k](https://www.youtube.com/watch?v=6ErSCpQoS1k)
+
+
+                                                 

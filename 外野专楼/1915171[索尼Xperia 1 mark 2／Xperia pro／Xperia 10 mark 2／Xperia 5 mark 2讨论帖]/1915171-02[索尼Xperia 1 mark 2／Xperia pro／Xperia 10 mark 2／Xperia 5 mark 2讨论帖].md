@@ -16641,3 +16641,21 @@ twiiter和b站全屏之后，边缘触控位置不灵敏
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 2730#       发表于 2021-6-20 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51678381&amp;ptid=1915171" target="_blank">leystage 发表于 2021-6-20 20:59</a>
+第一眼看到前六个字，心想费纸你怎么了费纸 XD
+
+
+我是没用任何壳，现在一年下来，在白色后背玻璃2.5D边棱 ...</blockquote>
+我还不配当索粉头子<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
