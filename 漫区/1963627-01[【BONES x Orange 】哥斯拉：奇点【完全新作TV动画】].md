@@ -12808,3 +12808,62 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  RainbowSealife  
+##### 987#       发表于 2021-6-21 17:28
+
+
+<img src="https://img.saraba1st.com/forum/202106/21/170916jnnqzvlbsutsu9p9.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (71.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-21 17:09 上传
+
+
+看完了，作为一个怪兽片勉强合格，哥斯拉的戏份太少了，全部登场镜头加起来能有20分钟吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://tva1.sinaimg.cn/large/beb44592ly1gi30p4xf0jj20hs0ax7bl.jpg" referrerpolicy="no-referrer">
+
+
+奇点是没完没了地东扯一句西扯一句，时不时掉个书袋，SF元素总觉得有些糟糕，提不起来劲来，看到最后也没搞明白红尘和怪兽是怎么来的，是苇原通过超时空计算机预测未来整出来的副产物？还有怎么最后解决破局的关键代码就成了两个AI本身？正交对角化到底是什么鬼？仅仅是让红尘无害化的方法？喷射杰格的最强作战协议竟然是巨大化，巨大化的能力又从何而来？这个超展开真有点机械降神，单纯是想来段巨型萝卜打怪兽吗？
+
+蛋中有蛋，蛋中还有个蛋，根据第11集由先成论引出的观点，在蛋的里面本身也包含着自己未来子孙后代的所有遗传信息，先有鸡还是先有蛋，这是个遗传学问题，但是喷射杰格和佩罗二号两个是AI，除非穿越时空，不然怎么会让自己的后代突然“夺舍"了呢？懂了，这是奇点造成的时间悖论，又回到编剧擅长的理论物理领域了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+拿新·哥斯拉做一下对比，现在真觉得开会还挺好看的，至少站在现实的角度上来考虑巨兽登陆后的解决方案，不像奇点这样莫名其妙、故弄玄虚，看的云里雾里的，对不上电波
+
+看着楼里的回复，圆城塔似乎在自己不太熟的领域班门弄斧了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://tvax3.sinaimg.cn/large/beb44592ly1gf00z874ylj209408k74i.jpg" referrerpolicy="no-referrer">
+<img src="https://tva1.sinaimg.cn/large/beb44592ly1gpa89jkja3j20c806ujrh.jpg" referrerpolicy="no-referrer">
+<img src="https://tva3.sinaimg.cn/large/beb44592ly1gncn5f9js9j20g407n74u.jpg" referrerpolicy="no-referrer">
+
+
+另外，佩罗二号很萌，外务省的鹿子行江很涩，怪兽什么的就往后稍稍吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/21/172431vk2bbmakmr2waddc.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (290.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-21 17:24 上传
+
+
+<img src="https://img.saraba1st.com/forum/202105/17/171137cw83unbboc03c09v.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/21/172003gqb0309pi2o0e3pz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (99.34 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-21 17:20 上传
+
+
+                                                 
