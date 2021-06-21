@@ -3055,3 +3055,17 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                  
+
+-----
+
+####  鳗鱼提灯  
+##### 1732#       发表于 2021-6-21 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51673175&amp;ptid=1860328" target="_blank">yingu377 发表于 2021-6-20 12:07</a>
+
+纠结了几个月，想想万一快发售了整个啥突然涨价，突然锁区之类的幺蛾子，还是先买个498安安心心等9月开冲[f ...</blockquote>
+嗯<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，购了<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -12894,3 +12894,36 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  shcmzzj  
+##### 990#       发表于 2021-6-21 21:19
+
+
+第一集最后一集，中间那么多集选有哥总登场的和说明时间设定的内容凑个一两集就差不多了，有效长度就那么多，其余都是废话
+科幻的精髓在于点子，但不是为了叙述点子的民科理论，那就是自取其辱了
+结果改了半天作者甚至连科研的门都还没入呢就跑这跳大神，只配故弄玄虚四个字
+作为哥斯拉为名的怪兽片，哥总一共登场十分钟有没有，估计还不如那首歌loop得多，只配失格二个字
+作为科幻属于跳大神的末流，作为怪兽片爽点不够，白瞎了那作画
+我看美国人不会拍哥斯拉，日本人会拍哥斯拉的估摸着也没几个了
+我怎么突然觉得只有中国人才能拍出哥斯拉对人类总体战的大场面了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 LENOVO Lenovo TB-J607F, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  gaosf  
+##### 991#       发表于 2021-6-21 21:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51689931&amp;ptid=1963627" target="_blank">RainbowSealife 发表于 2021-6-21 20:44</a>
+
+维基上写的原来不是东大物理学博士</blockquote>
+听说这个总合文化研究科是文理都有的，也许也算是物理学博士。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                

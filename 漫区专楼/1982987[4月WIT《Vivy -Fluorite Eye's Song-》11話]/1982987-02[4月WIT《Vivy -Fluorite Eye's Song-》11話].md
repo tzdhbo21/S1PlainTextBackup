@@ -8519,3 +8519,71 @@ DIVA是子弹打进去的，非常规接线+防火墙
 
 
                                                  
+
+-----
+
+####  wolf1997  
+##### 2154#       发表于 2021-6-21 20:56
+
+
+当年两份企划摆在IG六课面前，一份是给手办企划做动画，另一份是给虚拟歌姬做动画。众所周知最后IG选择做虚拟歌姬的动画，名叫罪恶王冠；而剩下了的手办企划多年后也做了动画，名叫BEATLESS。
+
+今时今日WIT遇见了VIVY，像极了一部专门给美少女手办编故事的动画，不由得让我想起BEATLESS。如果当初被选择的是BEATLESS，命运又会如何？可惜没有如果。
+
+
+-----
+
+####  -Vanitas-  
+##### 2155#       发表于 2021-6-21 21:07
+
+
+问一下为什么博物馆vivy没联网能穿越回去
+
+
+-----
+
+####  韩子  
+##### 2156#       发表于 2021-6-21 21:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51682189&amp;ptid=1982987" target="_blank">碳酸锂缓释片 发表于 2021-6-21 09:47</a>
+分数变化不明显，排名更有意思
+
+
+Vivy:</blockquote>
+请问有没有巴克亚罗的…？
+
+
+-----
+
+####  susan28  
+##### 2157#       发表于 2021-6-21 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51690255&amp;ptid=1982987" target="_blank">韩子 发表于 2021-6-21 21:21</a>
+
+请问有没有巴克亚罗的…？</blockquote>
+[https://netaba.re/subject/297396](https://netaba.re/subject/297396)
+
+
+<img src="https://img.saraba1st.com/forum/202106/21/213039n0i005nrtndnr0dt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-06-21_21-29-56.jpg</strong> (82.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-21 21:30 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/21/213039lzz40jqbdrscruu2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-06-21_21-30-05.jpg</strong> (72.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-21 21:30 上传
+
+
+                                                 
