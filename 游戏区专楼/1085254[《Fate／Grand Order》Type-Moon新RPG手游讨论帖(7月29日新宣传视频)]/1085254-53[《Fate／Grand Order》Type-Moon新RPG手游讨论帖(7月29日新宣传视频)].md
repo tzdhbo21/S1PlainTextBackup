@@ -16131,3 +16131,53 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                 
+
+-----
+
+####  khxooo  
+##### 79326#       发表于 2021-6-21 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685379&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-21 14:05</a>
+限定五星自选卷 别叫醒我</blockquote>
+继续睡，别醒<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79327#       发表于 2021-6-21 15:16
+
+
+<blockquote>引用第79323楼alucardcz于2021-06-21 14:12发表的  :
+
+引用:qixinno2 发表于 2021-6-21 14:05限定五星自选卷 别叫醒我周年能再给你一......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">滚啊，谁要五星券啊，我还等着四星券换凯尼斯呢
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  stefanie张  
+##### 79328#       发表于 2021-6-21 15:32
+
+
+隔壁吃瓜被封了，我的错，不该发言的<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 79329#       发表于 2021-6-21 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685350&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-21 14:03</a>
+为啥不是周三周五，而是今天有消息</blockquote>
+今天有消息周三开活动啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
