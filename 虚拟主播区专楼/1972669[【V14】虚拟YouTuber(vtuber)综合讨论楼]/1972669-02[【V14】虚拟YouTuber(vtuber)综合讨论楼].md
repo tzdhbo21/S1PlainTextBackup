@@ -16182,3 +16182,105 @@ IBRAHIM的dq我看的还蛮开心的 虽然不知道是因为dq还是因为ib直
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 2774#       发表于 2021-6-21 22:39
+
+
+翻译一下就是老板大气
+
+
+-----
+
+####  IDIDIDID  
+##### 2775#       发表于 2021-6-21 22:42
+
+
+🌈：男女搭配，干活（恐怖游戏）不累。
+
+
+-----
+
+####  shpdw  
+##### 2776#       发表于 2021-6-21 23:14
+
+
+卯月コウ最強！卯月コウ最強！卯月コウ最強！
+
+
+-----
+
+####  caupollen  
+##### 2777#       发表于 2021-6-21 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51690191&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-6-21 21:12</a>
+
+真有你的啊tx
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版 v2.4.3</blockquote>
+草 怎么还有给这种畜生工商的
+
+
+-----
+
+####  katern  
+##### 2778#       发表于 2021-6-21 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51690191&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-6-21 21:12</a>
+
+真有你的啊tx
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版 v2.4.3</blockquote>
+翻了一下没找到啊，删了吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  caupollen  
+##### 2779#       发表于 2021-6-21 23:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51691202&amp;ptid=1972669" target="_blank">katern 发表于 2021-6-21 23:24</a>
+
+翻了一下没找到啊，删了吗</blockquote>
+我去看nga有人直接去私信客服处理了
+
+
+-----
+
+####  katern  
+##### 2780#       发表于 2021-6-21 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51691252&amp;ptid=1972669" target="_blank">caupollen 发表于 2021-6-21 23:31</a>
+
+我去看nga有人直接去私信客服处理了</blockquote>
+那应该是被橄榄了
+
+
+-----
+
+####  free  
+##### 2781#       发表于 2021-6-21 23:36
+
+
+[https://twitter.com/kanademimimi/status/1406970503001100290](https://twitter.com/kanademimimi/status/1406970503001100290)
+
+
+<img src="https://img.saraba1st.com/forum/202106/21/233559th4zeke22e196ce2.png" referrerpolicy="no-referrer">
+
+
+<strong>咪.png</strong> (43.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-21 23:35 上传
+
+
+                                                 
