@@ -16157,3 +16157,28 @@ IBRAHIM的dq我看的还蛮开心的 虽然不知道是因为dq还是因为ib直
 
 
                                                  
+
+-----
+
+####  CielChloe  
+##### 2772#       发表于 2021-6-21 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51689716&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-21 20:23</a>
+
+贵圈已经卷到这个地步了吗？</blockquote>
+有点哈人<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 2773#       发表于 2021-6-21 22:08
+
+
+郡道加了个ナイスパ（就是感谢sc）的会员贴图，一开始不太懂什么意思去谷歌了一下，第一条【最近のYoutube界隈、キツくない？？？？ 『ナイスパ』とはなんなのか】...
+
+大家都是喜欢钱的肤浅人罢了，网友对主播社区真的很严格<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+                                                 
