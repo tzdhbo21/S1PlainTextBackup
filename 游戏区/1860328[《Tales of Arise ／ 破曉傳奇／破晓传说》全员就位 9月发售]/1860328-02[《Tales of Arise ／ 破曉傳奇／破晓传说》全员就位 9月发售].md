@@ -2921,3 +2921,36 @@ https://gnn.gamer.com.tw/detail.php?sn=216845</blockquote>
 
 
                                                  
+
+-----
+
+####  医生狼多  
+##### 1721#       发表于 2021-6-21 11:17
+
+
+阿9也出试玩报告了
+https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1
+
+
+-----
+
+####  宛若青空  
+##### 1722#       发表于 2021-6-21 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51683388&amp;ptid=1860328" target="_blank">医生狼多 发表于 2021-6-21 11:17</a>
+阿9也出试玩报告了
+https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...</blockquote>
+中文圈第一个看到去媒体试玩的，连巴哈都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  龘䶛䨻䎱㸞蚮䡶  
+##### 1723#       发表于 2021-6-21 11:39
+
+
+日版的PS5光盘有无中文啊，想去日亚整个限定
+
+
+                                                 

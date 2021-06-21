@@ -8386,3 +8386,84 @@ bangumi VIVY 和86的分 <img src="https://static.saraba1st.com/image/smiley/fac
 
 
                                                  
+
+-----
+
+####  TerryBlues  
+##### 2145#       发表于 2021-6-21 09:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679403&amp;ptid=1982987" target="_blank">susan28 发表于 2021-6-20 22:26</a>
+
+bangumi VIVY 和86的分</blockquote>
+草，可以说是非常真实了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hac0101  
+##### 2146#       发表于 2021-6-21 09:33
+
+
+长月式角色成长：莫名其妙的长时间自闭后突然大彻大悟<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gofbayrf  
+##### 2147#       发表于 2021-6-21 09:39
+
+
+RE:0 也是欽定感塞滿  正常唱歌救世界應該是偶然發現唱歌可以讓AI覺醒心脫離主機的操控 非要欽定你的歌是終止程序  這些所謂AI也不過是主機的終端而已  談不上新人類  還不如胖虎神音救世界呢
+
+
+-----
+
+####  碳酸锂缓释片  
+##### 2148#       发表于 2021-6-21 09:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679403&amp;ptid=1982987" target="_blank">susan28 发表于 2021-6-20 22:26</a>
+
+bangumi VIVY 和86的分</blockquote>
+分数变化不明显，排名更有意思
+
+
+Vivy:
+<img src="http://tva2.sinaimg.cn/large/006ajUXPly1grpn7pcrndj32dr1270uh.jpg" referrerpolicy="no-referrer">
+
+
+86:
+<img src="http://tva4.sinaimg.cn/large/006ajUXPly1grpn8znwvgj32dr127wg2.jpg" referrerpolicy="no-referrer">
+
+
+哥斯拉SP:
+<img src="http://tvax2.sinaimg.cn/large/006ajUXPly1grpnaase10j32dr127gnb.jpg" referrerpolicy="no-referrer">
+
+
+SSSS.DYNAZENON:
+<img src="http://tva4.sinaimg.cn/large/006ajUXPly1grpn95pakgj32dr127q4k.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  timerrr  
+##### 2149#       发表于 2021-6-21 09:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679403&amp;ptid=1982987" target="_blank">susan28 发表于 2021-6-20 22:26</a>
+
+bangumi VIVY 和86的分</blockquote>
+我这边开超合金，vivy是7.2987
+
+
+-----
+
+####  elshaddai  
+##### 2150#       发表于 2021-6-21 10:36
+
+
+一口气从第5话看到结局，给个+1不过分
+
+
+                                                 

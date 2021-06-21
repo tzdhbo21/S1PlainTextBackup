@@ -12753,3 +12753,23 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  cerenkov  
+##### 983#       发表于 2021-6-21 10:13
+
+
+对了，顺便说下，结尾这里写的不是机械哥斯拉（メカゴジラ），而是机器人哥斯拉（ロボゴジラ）
+
+<img src="https://img.saraba1st.com/forum/202106/21/101136w9sf8xtgdtd0nvia.jpg" referrerpolicy="no-referrer">
+
+
+<strong>fdf88b2f07082838370f05a7af99a9014d08f18f.jpg</strong> (307.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-21 10:11 上传
+
+
+                                                 

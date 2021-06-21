@@ -15998,3 +15998,26 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79316#       发表于 2021-6-21 09:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51681301&amp;ptid=1085254" target="_blank">fantuanxiaoyi 发表于 2021-6-21 07:49</a>
+
+看了下C呆的那张礼装，大概确实有38节？毕竟现在到第九节才是预言的第一句话。 ...</blockquote>
+不用大概，尾田还是yls直接说了总共38节
+
+
+-----
+
+####  quanlix  
+##### 79317#       发表于 2021-6-21 10:03
+
+
+主线+断章一共38节吧
+
+
+                                                 

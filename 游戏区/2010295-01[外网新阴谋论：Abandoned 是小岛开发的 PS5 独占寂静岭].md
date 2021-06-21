@@ -4196,3 +4196,119 @@ to celebrate什么！
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 317#       发表于 2021-6-21 10:48
+
+
+ 本帖最后由 luoyianwu 于 2021-6-21 10:50 编辑 
+
+<img src="https://p.sda1.dev/2/28eb848d79c12ba2e5f83394f4b1c865/soon.png" referrerpolicy="no-referrer">
+
+直播soon
+<img src="https://p.sda1.dev/2/e9bd0283383d847ad6a7c88e01e9ad7e/cao.png" referrerpolicy="no-referrer">
+
+自焚式troll
+<img src="https://p.sda1.dev/2/1c9034fd8bca74ab0a5efef489a23724/wut.png" referrerpolicy="no-referrer">
+
+it's who?
+
+
+-----
+
+####  FateAlter  
+##### 318#       发表于 2021-6-21 11:01
+
+
+ 本帖最后由 FateAlter 于 2021-6-21 11:09 编辑 
+
+我其实有点奇怪啊，寂静岭真有那么多粉丝吗。。。仔细一看怎么楼主是Kenny
+
+
+-----
+
+####  言嘉  
+##### 319#       发表于 2021-6-21 11:03
+
+
+可乐妹死了
+
+
+-----
+
+####  医生狼多  
+##### 320#       发表于 2021-6-21 11:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51683169&amp;ptid=2010295" target="_blank">FateAlter 发表于 2021-6-21 11:01</a>
+我其实有点奇怪啊，寂静岭真有那么多粉丝吗。。。</blockquote>
+这个问题就跟微博上零为什么有那么多每次nd都出来喊的粉丝一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FateAlter  
+##### 321#       发表于 2021-6-21 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51683183&amp;ptid=2010295" target="_blank">医生狼多 发表于 2021-6-21 11:03</a>
+
+这个问题就跟微博上零为什么有那么多每次nd都出来喊的粉丝一样</blockquote>
+零我感觉是因为现在大家都色得露骨了，看到美少女迈不开腿，而且零5还真复刻了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">“濡鸦之巫女这游戏可吓人了，吓得我裤子都掉了”。寂静岭我想了半天感觉粉丝这么狂热和小岛秀夫关系比较大吧。。。
+
+
+-----
+
+####  小泉花陽  
+##### 322#       发表于 2021-6-21 11:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51683243&amp;ptid=2010295" target="_blank">FateAlter 发表于 2021-6-21 11:08</a>
+
+零我感觉是因为现在大家都色得露骨了，看到美少女迈不开腿，而且零5还真复刻了“濡鸦之巫女这游戏 ...</blockquote>
+PS2时代零和寂静岭在国内的影响力不用怀疑吧，当初也是国内游戏杂志力推的，在国内主机游戏圈也是仅次于生化危机的恐怖游戏了，可惜当年都是玩5元碟的根本没法对销量产生影响
+
+
+-----
+
+####  棺材叔叔  
+##### 323#       发表于 2021-6-21 11:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">啊这，阴谋了个寂寞？
+
+—— 来自 Meizu 16th Plus, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  DTCPSS  
+##### 324#       发表于 2021-6-21 11:38
+
+
+Abandoned 不可能翻车，我要吹岛哥哥 <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  泡桐  
+##### 325#       发表于 2021-6-21 11:49
+
+
+to celebrate？to celebrate啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  C男  
+##### 326#       发表于 2021-6-21 12:02
+
+
+<blockquote>小泉花陽 发表于 2021-6-21 11:16
+PS2时代零和寂静岭在国内的影响力不用怀疑吧，当初也是国内游戏杂志力推的，在国内主机游戏圈也是仅次于 ...</blockquote>
+嗯，寂静岭真出新作了，我会跟风云一下，买是不会买的
+
+
+                                                 
