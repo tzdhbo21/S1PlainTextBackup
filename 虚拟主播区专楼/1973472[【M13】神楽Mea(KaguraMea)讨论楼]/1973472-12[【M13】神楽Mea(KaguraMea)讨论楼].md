@@ -14632,3 +14632,46 @@ syl  最后是天开司组夺冠，兔妈妈4位，感觉咩咩 ...</blockquot
 
 
                                                  
+
+-----
+
+####  时间在我手中  
+##### 17798#       发表于 2021-6-21 13:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51684574&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-21 12:49</a>
+有采访她吗，我还以为只采访了参加决赛的呢
+去翻了一下，感觉刚睡醒比掐萌音可爱多了 ...</blockquote>
+有时间点吗，哪里的录播啊
+
+
+-----
+
+####  T_Hb  
+##### 17799#       发表于 2021-6-21 13:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685262&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-21 13:55</a>
+
+有时间点吗，哪里的录播啊</blockquote>
+[https://www.youtube.com/watch?v=2UQL-RpH2V4&amp;t=32170s](https://www.youtube.com/watch?v=2UQL-RpH2V4&amp;t=32170s)
+
+8：51：50
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+                                                 

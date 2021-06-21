@@ -16038,3 +16038,96 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  rooarr  
+##### 79319#       发表于 2021-6-21 13:43
+
+
+今天应该有消息了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  alucardcz  
+##### 79320#       发表于 2021-6-21 13:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685141&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-6-21 13:43</a>
+
+今天应该有消息了
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狩猎本/无事发生/幕间
+
+
+
+
+-----
+
+####  areklose  
+##### 79321#       发表于 2021-6-21 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685141&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-6-21 13:43</a>
+
+今天应该有消息了
+
+
+—— 来自 S1Fun</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">为啥不是周三周五，而是今天有消息
+
+
+-----
+
+####  qixinno2  
+##### 79322#       发表于 2021-6-21 14:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685298&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-21 13:58</a>
+
+狩猎本/无事发生/幕间</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">限定五星自选卷 别叫醒我
+
+
+-----
+
+####  areklose  
+##### 79323#       发表于 2021-6-21 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685379&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-21 14:05</a>
+
+限定五星自选卷 别叫醒我</blockquote>
+这个真想多了。除非是限定前2年。否则你让周年卖啥
+
+
+-----
+
+####  alucardcz  
+##### 79324#       发表于 2021-6-21 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685379&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-21 14:05</a>
+
+限定五星自选卷 别叫醒我</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">周年能再给你一次常驻5星自选就不错了 限定想太多了
+
+
+-----
+
+####  areklose  
+##### 79325#       发表于 2021-6-21 14:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51685465&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-21 14:12</a>
+
+周年能再给你一次常驻5星自选就不错了 限定想太多了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">如果有，希望能带主线限定
+
+
+                                                
