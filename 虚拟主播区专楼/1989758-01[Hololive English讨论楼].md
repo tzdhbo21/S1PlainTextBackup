@@ -14825,3 +14825,30 @@ ina的呢<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" r
 
 
                                                  
+
+-----
+
+####  wiig  
+##### 992#       发表于 2021-6-21 18:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/202.png" referrerpolicy="no-referrer">居然是日语为主 好听
+
+
+-----
+
+####  wiig  
+##### 993#       发表于 2021-6-21 18:12
+
+
+一开始说的是
+
+​​​Εκ λόγου άλλος εκβαίνει λόγος.​ ​​
+
+最后说的是
+
+​​​Ουδέν κακόν αμιγές καλού.​ ​​
+[@NBXX](https://bbs.saraba1st.com/2b/home.php?mod=space&amp;uid=486818) 整理
+
+
+                                                 
