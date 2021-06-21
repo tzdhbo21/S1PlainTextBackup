@@ -2633,3 +2633,20 @@ q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五
 
 
                                                  
+
+-----
+
+####  白水潭的饿鬼  
+##### 1706#       发表于 2021-6-21 12:47
+
+
+蓝q娃终于站起来了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+上集我还以为要对标阳光入队回，结果也太拉了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+屑人鱼变身后超对胃口，简直继承了
+小天使和小公主的蓝色智慧之光<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+呜呜呜，蓝推落泪，俺们蓝色的大姊姊终于不影薄了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

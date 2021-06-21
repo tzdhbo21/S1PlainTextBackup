@@ -3000,3 +3000,19 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                  
+
+-----
+
+####  qiyu1234  
+##### 1728#       发表于 2021-6-21 13:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51684610&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-6-21 12:52</a>
+
+我们仍未知道为什么A9的文章总喜欢提到S旗</blockquote>
+因为TOV有S旗吧，有的新玩家上一部传说就是TOV HD
+
+不过这个道具我真不怎么在其他传说里见过，深渊好像也有，其他还有吗？
+
+
+                                                 
