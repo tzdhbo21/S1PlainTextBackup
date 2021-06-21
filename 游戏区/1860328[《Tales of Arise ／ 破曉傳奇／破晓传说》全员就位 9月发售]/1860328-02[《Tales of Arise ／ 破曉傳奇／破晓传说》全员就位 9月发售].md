@@ -2954,3 +2954,49 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                  
+
+-----
+
+####  虚无连斩  
+##### 1724#       发表于 2021-6-21 12:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我现在想知道我只有老ps4，天蝎，1063...该买哪个版本...1063跑得动吗
+
+
+-----
+
+####  faithlifer  
+##### 1725#       发表于 2021-6-21 12:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51684456&amp;ptid=1860328" target="_blank">虚无连斩 发表于 2021-6-21 12:40</a>
+
+我现在想知道我只有老ps4，天蝎，1063...该买哪个版本...1063跑得动吗</blockquote>
+这几个跑起来那肯定天蝎是最稳的，动态2K 30估计能行，绯红我的天蝎感觉就跑在这个水平
+
+
+-----
+
+####  LT_Harry  
+##### 1726#         楼主| 发表于 2021-6-21 12:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51684456&amp;ptid=1860328" target="_blank">虚无连斩 发表于 2021-6-21 12:40</a>
+我现在想知道我只有老ps4，天蝎，1063...该买哪个版本...1063跑得动吗</blockquote>
+我用的还是几年前的卡吧标配，肯定还是买 PC 版，因为没有新游戏机这是唯一一个有希望冲高帧率的平台了。
+
+
+-----
+
+####  LT_Harry  
+##### 1727#         楼主| 发表于 2021-6-21 12:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51683388&amp;ptid=1860328" target="_blank">医生狼多 发表于 2021-6-21 11:17</a>
+阿9也出试玩报告了
+https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...</blockquote>
+我们仍未知道为什么A9的文章总喜欢提到S旗<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+                                                 

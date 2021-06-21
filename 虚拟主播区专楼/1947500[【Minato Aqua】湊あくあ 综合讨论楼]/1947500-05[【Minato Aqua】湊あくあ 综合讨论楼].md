@@ -3314,3 +3314,19 @@ syl，恐怕练舞教练就是帅小伙，手把手练习，练的时候没少�
 
 
                                                  
+
+-----
+
+####  TiHaru  
+##### 6278#       发表于 2021-6-21 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51680133&amp;ptid=1947500" target="_blank">面具13 发表于 2021-6-20 23:40</a>
+草，看过文字版攻略了吧这是。突然想起19年播过生化2re了，干脆下次直播播lol吧完整的回归初心。
+
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她读sc的时候还真说了句两年前播过生化，那么后半句有没有可能也成真呢
+
+
+                                                 

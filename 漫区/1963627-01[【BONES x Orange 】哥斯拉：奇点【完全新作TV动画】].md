@@ -12773,3 +12773,16 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  机翻猫  
+##### 984#       发表于 2021-6-21 12:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">感觉片子还行，个人完全没有纠结片里的科学设定，反正大家都知道是瞎扯淡
+
+最后看到机械哥总时我和苇原的表情是一样的
+
+
+                                                 
