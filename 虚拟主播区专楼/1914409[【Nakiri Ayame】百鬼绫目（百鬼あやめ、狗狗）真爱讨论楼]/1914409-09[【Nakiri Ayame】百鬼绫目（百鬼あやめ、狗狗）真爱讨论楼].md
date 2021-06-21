@@ -4252,3 +4252,23 @@ syl 绫总原来你没忘了你那个卫星么<img src="https://static.saraba1st
 
 
                                                  
+
+-----
+
+####  aisakahammer  
+##### 12376#       发表于 2021-6-22 00:12
+
+
+今天apex遇到个 百鬼组摸余 笑死
+
+
+-----
+
+####  昆西昆希昆  
+##### 12377#       发表于 2021-6-22 00:15
+
+
+我也遇到过类似id，当时另外一个队友id还是嘉心糖，也不知他俩是不是双排<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 
