@@ -2782,3 +2782,15 @@ q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五
 
 
                                                  
+
+-----
+
+####  PrincessBanana  
+##### 1717#       发表于 2021-6-22 04:20
+
+
+你们咋把人鱼变人看这么严肃，就当萝拉来人类世界玩和李可哈酱来无魔法界一样就行了呗。
+本质上和以前各种精灵来人界一样，公派留学嘛<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+                                                 

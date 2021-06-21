@@ -4351,3 +4351,198 @@ They Played Us Like A Damn Fiddle!
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 329#       发表于 2021-6-22 04:27
+
+
+ 本帖最后由 luoyianwu 于 2021-6-22 04:41 编辑 
+<blockquote>We wanted to answer the rumours one last time. We are a small indie studio with actual real people. Working on a passionate game. We want to do a Livestream with a Q &amp; A in were you can ask all your questions to clarify every confusion &amp; rumours. We just want to set expectations.
+
+[https://twitter.com/bbgamestudios/status/1407072137505038338](https://twitter.com/bbgamestudios/status/1407072137505038338)</blockquote>
+6/22北京时间4:25am，日本时间5:25am，6/21荷兰时间10:25pm
+
+Blue Box Game Studio：我们想最后澄清一次传言。我们是由真实存在的人组成的、很热情地开发游戏的独立小工作室，为了厘清疑惑和传言，我们想举办一次线上Q&amp;A直播，回答大家的所有问题。我们只想让大家心里有底。
+
+
+show hand！
+
+
+-----
+
+####  littlezoo  
+##### 330#       发表于 2021-6-22 05:45
+
+
+我记得Jeff Grubb前几周还很确定的表示过小岛和微软签了一个独占项目。。。。
+
+
+
+
+-----
+
+####  luoyianwu  
+##### 331#       发表于 2021-6-22 05:56
+
+
+ 本帖最后由 luoyianwu 于 2021-6-22 06:04 编辑 
+<blockquote>BLUE BOX Game Studios
+
+@BBGameStudios
+
+38m
+
+I have never tried to be someone else eversince the I announced the game on the PS blog. I even started introducing myself in the very first lines. - Hasan
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+37m
+It's just HK being HK. I have mentioned this over and over and the more this is been refuted by the press or by Hasan or whatsoever, the rumours always grew... And that has to stop.
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+34m
+
+We mentioned this over and over. The game is announced being a Surival horror shooter game that emulates realism. So, we figured people might have guessed the word Survival in it. Nothing less. Nothing more. Just simple as that.
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+32m
+We have never hinted Silent Hill. We have even rejected it shortly after it. Also, Silent Hill is an IP of Konami. We have nothing to do with them and even if that was, that would have been announced.
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+23m
+
+We were honest from the beginning. "This could end up being Deer simulator quality" This gave me joy as you will like what you will see!
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+22m
+Let's just hope that 
+
+@Konami
+
+ makes a Silent Hill that this new gen deserves!
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+16m
+
+Thank you! And just to be sure, the trailer will be launched shortly. The app will be launced on friday just to give a short introduction to what it is.
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+15m
+
+No we have nothing to do with PlayStation Studios! We are just a small indie team working with Sony.
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+14m
+
+I do feel that I have to debunk rumours. I myself am truly hyped regarding my own game and I just want to focus on the game. That's all. I didn't even enjoy the rumours at all!
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+13m
+
+I can only say that BLUE BOX Game Studios is partnered with PlayStation Partners.
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+12m
+
+Because developing a game requires full concentration and now is the right time for us to spend some time on Twitter.
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+11m
+
+De reveal verschijnt ook gewoon op YouTube!
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+10m
+
+We hope not! But what we do hope is to turn everyone into believers of our game once it is properly revealed. We want to end the rumours before we reveal something.
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+9m
+
+I hope that you will change your mind after the reveal. If not well much love
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+8m
+
+Hi Socially Distanced Gamer, I am Hasan Kahraman, I am, as you can see, not Hideo Kojima. Please look forward to Abandoned!
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+7m
+
+Ohh then you will be suprised what we will announce soon! Again something that hasn't be done before and that special something shall bring the community together...
+
+
+BLUE BOX Game Studios
+
+@BBGameStudios
+
+49s
+
+The Siren Head game wasn't meant to be public.</blockquote>
+Blue Box一口气回了一大堆评论，节选了一部分。
+
+离结局不远了
+
+
+                                                
