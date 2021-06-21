@@ -8482,3 +8482,40 @@ bangumi VIVY 和86的分</blockquote>
 
 
                                                  
+
+-----
+
+####  mhfdt  
+##### 2152#       发表于 2021-6-21 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51679214&amp;ptid=1982987" target="_blank">帕帕盖诺 发表于 2021-6-20 22:11</a>
+
+就那货？删个DIVA人格都要几十分钟的，全AI统括计算力无敌还是病毒创造者的阿卡布三秒就缴械了？比阿船还 ...</blockquote>
+DIVA是子弹打进去的，非常规接线+防火墙
+
+这集是直接操作界面执行
+
+相当于你root权限下直接运行病毒本体
+
+
+-----
+
+####  枪聆弹语  
+##### 2153#       发表于 2021-6-21 20:46
+
+
+<img src="https://img.saraba1st.com/forum/202106/21/204627ilgjcelzej6clnx0.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210621204547.png</strong> (108.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-21 20:46 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">新神诞生
+
+
+                                                 

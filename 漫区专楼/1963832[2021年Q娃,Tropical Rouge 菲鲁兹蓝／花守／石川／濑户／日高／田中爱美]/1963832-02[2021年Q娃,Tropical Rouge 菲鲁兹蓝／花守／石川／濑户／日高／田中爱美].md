@@ -2679,3 +2679,64 @@ q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五
 
 
                                                  
+
+-----
+
+####  caicaistar  
+##### 1709#       发表于 2021-6-21 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51687065&amp;ptid=1963832" target="_blank">sAviOr 发表于 2021-6-21 16:24</a>
+
+人鱼这么直白地讲想变成人类，结果真的变成人类，其他人祝贺她，总觉得有政治不正确的问题。把“变成人类” ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">魔怔了把，海里没有推特，没有政治正确，海是自由的！
+
+
+-----
+
+####  shimmy1996  
+##### 1710#       发表于 2021-6-21 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">今年太好看了
+前面的バブみ飞鸟前辈和萝拉版黄战士都好赞<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+珊瑚的盾啥时候加的音效ww
+四人bank终于不是分屏而是重新剪成一个场景好评<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+这两话的萝拉<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  shimmy1996  
+##### 1711#       发表于 2021-6-21 19:48
+
+
+之前还是2d的萝拉版ed前言也变成3d了，变身bank和这一段萝拉的一些小动作太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  粉儿alice  
+##### 1712#       发表于 2021-6-21 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51684549&amp;ptid=1963832" target="_blank">白水潭的饿鬼 发表于 2021-6-21 12:47</a>
+蓝q娃终于站起来了
+上集我还以为要对标阳光入队回，结果也太拉了吧
+屑人鱼变身后超对胃口， ...</blockquote>
+对于某些人士而言 更希望出一些您们更爱菱川六花女士这种蓝q娃
+
+
+-----
+
+####  粉儿alice  
+##### 1713#       发表于 2021-6-21 20:16
+
+
+还有q娃请别谈zzzq
+毕竟已经搞出一个有色人种q娃了
+
+
+                                                

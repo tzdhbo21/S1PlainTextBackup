@@ -12880,3 +12880,17 @@ JetJaggar是怎么从原本两三层楼高突然变成十几二十层楼高的�
 
 
                                                  
+
+-----
+
+####  RainbowSealife  
+##### 989#       发表于 2021-6-21 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51689147&amp;ptid=1963627" target="_blank">gaosf 发表于 2021-6-21 19:25</a>
+
+也不是东大博士，是东北大博士。</blockquote><blockquote>圆城塔毕业于东北大学理学院物理系，后获得东京大学总合文化研究科的博士学位</blockquote>
+维基上写的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">原来不是东大物理学博士
+
+
+                                                 
