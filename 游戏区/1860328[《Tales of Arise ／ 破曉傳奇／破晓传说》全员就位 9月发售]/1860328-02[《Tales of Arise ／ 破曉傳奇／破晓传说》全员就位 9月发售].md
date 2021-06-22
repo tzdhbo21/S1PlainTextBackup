@@ -3080,3 +3080,16 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                  
+
+-----
+
+####  ky怪  
+##### 1734#       发表于 2021-6-22 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51686323&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-21 15:28</a>
+99%是不会有的，要么买日版限定+中文通常版合起来估计也比中文限定划算</blockquote>
+你是不是看错了，日亚不卖带手办的限定，tb上的可都有手办
+
+
+                                                 
