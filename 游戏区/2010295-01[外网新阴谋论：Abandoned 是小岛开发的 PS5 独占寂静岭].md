@@ -4892,3 +4892,14 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 
 
                                                 
+
+-----
+
+####  yamato gun  
+##### 362#       发表于 2021-6-22 17:42
+
+
+如果真是碰瓷为什么科乐美要配合他们表演<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+                                                 

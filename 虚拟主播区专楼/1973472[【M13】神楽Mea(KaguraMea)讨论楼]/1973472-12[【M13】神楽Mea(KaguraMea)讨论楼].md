@@ -15576,3 +15576,72 @@ syl  批限说的跟他们组全熟播放很高一样，都恶性循环了那�
 
 
                                                  
+
+-----
+
+####  Mikumiku831  
+##### 17877#       发表于 2021-6-22 16:59
+
+
+valorant都玩了 不如玩玩CSGO<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  菊花战士  
+##### 17878#       发表于 2021-6-22 17:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叫她上5E、B5玩CSGO
+
+
+-----
+
+####  时间在我手中  
+##### 17879#       发表于 2021-6-22 17:08
+
+
+玩csgo可以，别去社区服就行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MrHPQ  
+##### 17880#       发表于 2021-6-22 17:14
+
+
+快进到被摁在地上摩擦气炸起连狙乱杀被t
+
+
+
+
+-----
+
+####  Cushaw  
+##### 17881#       发表于 2021-6-22 17:27
+
+
+玩CSGO可以，别碰饰品就行，不然怕是要被骗到破产<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  T_Hb  
+##### 17882#       发表于 2021-6-22 17:34
+
+
+对于她的审美来说，CSGO饰品怕是没什么意思
+
+
+-----
+
+####  Mikumiku831  
+##### 17883#       发表于 2021-6-22 17:37
+
+
+可以去社区服放彩虹屁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

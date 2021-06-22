@@ -3203,3 +3203,24 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                 
+
+-----
+
+####  宛若青空  
+##### 1742#       发表于 2021-6-22 18:18
+
+
+ 本帖最后由 宛若青空 于 2021-6-22 18:29 编辑 
+
+篝火的试玩
+
+[https://card.weibo.com/article/m/show/id/2309404650942233444605](https://card.weibo.com/article/m/show/id/2309404650942233444605)
+
+
+说实话国内有些游戏媒体太不专业了？A9的通篇流水账式文章外加玩梗，篝火的先在开头说一大段吐槽云端试玩的话然后其他略过其他略过。
+
+
+篝火这篇前面写的特殊问题都是云端试玩产生的，又不是游戏本身问题，其实没必要花几大段话写出来吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
