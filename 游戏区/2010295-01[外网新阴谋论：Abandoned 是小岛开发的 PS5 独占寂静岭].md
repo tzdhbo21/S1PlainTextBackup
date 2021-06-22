@@ -4903,3 +4903,88 @@ konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最�
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 363#       发表于 2021-6-22 23:05
+
+
+ 本帖最后由 luoyianwu 于 2021-6-23 00:01 编辑 
+
+虽然era和reddit都关闭讨论，4chan上的讨论和发病依然频繁。转发假药数则：
+<img src="https://p.sda1.dev/2/da82e7ee07899c10c81fcbbbddf79156/nuare.png" referrerpolicy="no-referrer">
+
+1. 在[访谈](https://www.bloomberg.com/news/articles/2021-06-21/what-is-blue-box-gamers-believe-it-s-hideo-kojima-s-silent-hill)中，Hasan提到Abandoned用的七个外包之一有参与Death Stranding、对马岛、TLOU2的Nuare Studio和参与Gears 5、Control、Alyx的Dekogon Studios。Nuare先前也发了意味深长的蓝色方块推特（如上图）。
+
+可是Hasan也提到，这款游戏预算只有$250k，是个AA游戏。如果预算这么紧凑，为什么要用这样高档的外包？
+
+Nuare和Dekogon拒绝对此事评论。
+
+
+2. 岛哥哥最近发了一些影评书评，里面含有奇怪的关键字（以英文为主）
+
+6/14 评论了"Full Throttle"一书，直译即全速前进。是否暗示6/16 Blue Box开始全力造势？
+
+6/20 评论了"Nobody"电影。标题语是Never underestimate a nobody。是否暗示Hasan是nobody？
+
+6/21 A Quiet Place Part II。Quiet也就是Silent
+
+6/21 The Stranger Diaries，标题语是You'll never find out who did this。是否在给围观群众下战书？在此书的简介，小岛强调了first person（Abandoned是个第一人称游戏）、daughter（寂静岭1是个找女儿的游戏）、detective（围观群众就像侦探）几个关键字，让评论区的狂热粉再一次按耐不住。
+
+
+3. 
+<img src="https://p.sda1.dev/2/55131f7af68f2c3625c7f7f5681b1816/turk0.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/0aa9861e113699a4f3127214208415f4/turk1.png" referrerpolicy="no-referrer">
+
+Hasan是住在荷兰的土耳其人，但自称自己的土耳其语还不如谷歌翻译标准
+
+
+-----
+
+####  walfeds  
+##### 364#       发表于 2021-6-22 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51703545&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-22 23:05</a>
+
+虽然era和reddit都关闭讨论，4chan上的讨论和发病依然频繁。转发假药数则：
+
+
+1. 在访谈中，Hasan提到Abando ...</blockquote>
+不说假药，昨天看到1那个访谈提的外包也觉得挺离谱的
+
+
+-----
+
+####  kuker53  
+##### 365#       发表于 2021-6-22 23:13
+
+
+成本250K？250K？是翻译错误吗租个办公室这钱就出去了吧
+
+
+-----
+
+####  哈罗  
+##### 366#       发表于 2021-6-22 23:21
+
+
+<blockquote>luoyianwu 发表于 2021-6-22 23:05
+虽然era和reddit都关闭讨论，4chan上的讨论和发病依然频繁。转发假药数则：
+
+
+1. 在访谈中，Hasan提到Abando ...</blockquote>
+抠评语属于发病了，就跟27一样，日常中那么多事，瞎几把联系总有对上的
+
+
+-----
+
+####  Rivercat  
+##### 367#       发表于 2021-6-22 23:34
+
+
+7月到底有木有索尼的相关发布会。
+
+
+                                                 
