@@ -4546,3 +4546,74 @@ Blue Box一口气回了一大堆评论，节选了一部分。
 
 
                                                 
+
+-----
+
+####  luoyianwu  
+##### 332#       发表于 2021-6-22 07:22
+
+
+<blockquote>NEW: All evidence suggests that Hasan Kahraman, the man whose game fans suspect may be a Hideo Kojima conspiracy, is a real indie developer. But after an hourlong interview with him today, I left with more questions than answers:
+[https://www.bloomberg.com/news/a ... ojima-s-silent-hill](https://www.bloomberg.com/news/articles/2021-06-21/what-is-blue-box-gamers-believe-it-s-hideo-kojima-s-silent-hill)</blockquote>
+Bloomberg采访Hasan：尽管玩家怀疑Hasan就是小岛秀夫，一切证据似乎指向他真的是个不知名独立游戏制作人。但是，在今天一小时的采访后，我的疑问没有减少，反而增加了
+
+
+-----
+
+####  FanKiE  
+##### 333#       发表于 2021-6-22 07:24
+
+
+现在不管是不是真的Hasan，名气是赚足了，就看最后的demo了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+如果质量一般的话<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zzy516232108  
+##### 334#       发表于 2021-6-22 07:28
+
+
+不管你是谁，最好成品值得玩家期待。
+否则小心推特被冲烂。
+
+
+-----
+
+####  D-JoeII  
+##### 335#       发表于 2021-6-22 07:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51692463&amp;ptid=2010295" target="_blank">littlezoo 发表于 2021-6-22 05:45</a>
+
+我记得Jeff Grubb前几周还很确定的表示过小岛和微软签了一个独占项目。。。。 ...</blockquote>
+他今天也有說
+
+@JeffGrubb
+
+Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox game. I hope this helps you form your conspiracy theories.
+[https://www.resetera.com/threads ... s-xbox-game.445964/](https://www.resetera.com/threads/kim-swift-is-specifically-going-to-help-hideo-kojima-make-his-xbox-game.445964/)
+
+
+可能小島把Google扔了的那個項目跟微軟合作繼續制作,同時也當了新SH監製之類
+
+
+-----
+
+####  哈罗  
+##### 336#       发表于 2021-6-22 07:46
+
+
+hasan声称的合作工作室，索尼，konami都对采访要求没有回应，有完没完233
+
+
+-----
+
+####  kuhailz  
+##### 337#       发表于 2021-6-22 07:56
+
+
+一开始还以为真是个洋葱新闻，没想到这么搞笑，和追剧似的，果然被耍也是一种乐趣
+
+
+                                                 
