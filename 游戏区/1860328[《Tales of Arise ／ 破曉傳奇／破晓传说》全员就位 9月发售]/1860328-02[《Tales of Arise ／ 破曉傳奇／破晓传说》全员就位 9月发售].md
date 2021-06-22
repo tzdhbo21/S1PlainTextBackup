@@ -3175,3 +3175,31 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                  
+
+-----
+
+####  hkguty  
+##### 1740#       发表于 2021-6-22 16:56
+
+
+我订的港版1k2老板说保单，前面更便宜的好像不保单，不过其实这玩意保不保单感觉砍的几率也很低，货量应该很足
+
+
+
+
+-----
+
+####  提挈天地  
+##### 1741#       发表于 2021-6-22 17:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51697555&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-22 14:44</a>
+不一样
+日版是JP0700-PPSA02296_00-TOARISEPS5000001
+港版是HP0700-PPSA02796_00-TOARISEPS5000001</blockquote>
+谢了，先订个港中限定，日版再看看<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                

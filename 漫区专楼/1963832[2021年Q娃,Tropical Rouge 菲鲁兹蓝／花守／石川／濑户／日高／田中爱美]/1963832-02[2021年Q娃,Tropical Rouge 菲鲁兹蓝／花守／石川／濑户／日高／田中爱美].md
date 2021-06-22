@@ -2807,3 +2807,20 @@ q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五
 
 
                                                  
+
+-----
+
+####  天邪鬼  
+##### 1719#       发表于 2021-6-22 16:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51690359&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-6-21 21:35</a>
+高桥奈津子这么多的“黑料” 到现在还没倒掉 这个傲漫畜生资历还是厉害
+真的要说编剧大河内 冈田 虚渊都 ...</blockquote>
+我倒觉得这些人混杂在一起顶多搞出一部莫名其妙的作品，而不是多扭曲的东西
+得让有恶趣味的搅和在一起，至少发力点要一致
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

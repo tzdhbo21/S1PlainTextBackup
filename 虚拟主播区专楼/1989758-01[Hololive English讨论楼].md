@@ -14918,3 +14918,85 @@ ina的呢<img src="https://static.saraba1st.com/image/smiley/face2017/137.gif" r
 
 
                                                  
+
+-----
+
+####  Map-2  
+##### 999#       发表于 2021-6-22 15:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51690215&amp;ptid=1989758" target="_blank">影山银 发表于 2021-6-21 21:15</a>
+
+但丁英配都给鲨鲨庆祝生日，也太有面子了吧</blockquote>
+维吉尔也有，鲨神的含金量<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+JP不要也罢
+
+
+-----
+
+####  影山银  
+##### 1000#       发表于 2021-6-22 15:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51698342&amp;ptid=1989758" target="_blank">Map-2 发表于 2021-6-22 15:54</a>
+
+维吉尔也有，鲨神的含金量
+
+JP不要也罢</blockquote>
+看了之前樱巫女生日是gta5的麦克出了祝贺视频的，这些大概都是粉丝出钱买的吧
+
+这样相较之下感觉还是ina生日上时代广场这个含金量更高
+
+
+-----
+
+####  Map-2  
+##### 1001#       发表于 2021-6-22 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51698393&amp;ptid=1989758" target="_blank">影山银 发表于 2021-6-22 15:59</a>
+
+看了之前樱巫女生日是gta5的麦克出了祝贺视频的，这些大概都是粉丝出钱买的吧
+
+这样相较之下感觉还是ina生 ...</blockquote>
+哈？这还能买吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+万恶的猴楼莱芜不仅买粉买同接还买游戏声优庆祝是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  colodes  
+##### 1002#       发表于 2021-6-22 16:13
+
+
+ 本帖最后由 colodes 于 2021-6-22 16:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51698418&amp;ptid=1989758" target="_blank">Map-2 发表于 2021-6-22 16:02</a>
+
+哈？这还能买吗？
+
+万恶的猴楼莱芜不仅买粉买同接还买游戏声优庆祝是吧 ...</blockquote>
+可以啊，luna的那个滑板pro也是定制的台本
+
+
+鲨鱼更戏剧的是这次是4ch的人买的，而且反而通过捐款赚回了550美元
+[https://warosu.org/vt/thread/S5416038#p5417233](https://warosu.org/vt/thread/S5416038#p5417233)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Map-2| + 1|管人给我的感觉就是一切都很假，后面忘了.|
+
+
+查看全部评分
+
+
+                                                 
