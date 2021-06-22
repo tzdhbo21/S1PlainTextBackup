@@ -3252,3 +3252,17 @@ https://www.notion.so/Tales-of-Arise-Hands-On-Report-PC-Demo-with-Tales-Ambassad
 
 
                                                  
+
+-----
+
+####  BigLittle1999  
+##### 1744#       发表于 2021-6-23 04:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51704719&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-6-23 02:17</a>
+
+https://www.notion.so/Tales-of-Arise-Hands-On-Report-PC-Demo-with-Tales-Ambassadors-Shiina-and-Lex-b ...</blockquote>
+看完了，感谢翻译，感觉确实比国内媒体的流水账测评更专业一点。有个作者第二喜欢的传说系列作品居然是toz有点惊讶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
