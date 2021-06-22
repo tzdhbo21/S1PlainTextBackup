@@ -3224,3 +3224,31 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1743#         楼主| 发表于 2021-6-23 02:17
+
+
+https://www.notion.so/Tales-of-Arise-Hands-On-Report-PC-Demo-with-Tales-Ambassadors-Shiina-and-Lex-b951fa75a9134b08a93f323d40f48d05
+
+看看其他国家受邀试玩的爱好者，写出来的体验报告是怎样的。（由于原文作者不是英语母语人士，因此部分行文可能会略显怪异）
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| BigLittle1999| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+                                                 

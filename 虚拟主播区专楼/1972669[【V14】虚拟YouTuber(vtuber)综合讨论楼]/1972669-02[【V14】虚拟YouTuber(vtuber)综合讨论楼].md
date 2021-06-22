@@ -16614,3 +16614,18 @@ E:葛葉、イブラヒム
 
 
                                                  
+
+-----
+
+####  stmule  
+##### 2803#       发表于 2021-6-23 01:45
+
+
+<img src="https://p.sda1.dev/2/6b44067b42a12d247dd36dc4348e315b/IMG_CMP_237117279.jpeg" referrerpolicy="no-referrer">
+
+训 粉
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
