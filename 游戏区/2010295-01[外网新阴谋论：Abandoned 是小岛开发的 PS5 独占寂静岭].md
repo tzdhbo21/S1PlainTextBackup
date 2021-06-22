@@ -4617,3 +4617,99 @@ hasan声称的合作工作室，索尼，konami都对采访要求没有回应，
 
 
                                                  
+
+-----
+
+####  死体旅行  
+##### 338#       发表于 2021-6-22 08:22
+
+
+25号能看到一个结局吗，还是新的猜谜环节
+
+
+-----
+
+####  luoyianwu  
+##### 339#       发表于 2021-6-22 08:53
+
+
+ 本帖最后由 luoyianwu 于 2021-6-22 08:56 编辑 
+
+[https://twitter.com/BBGameStudios/status/1407136151991947269](https://twitter.com/BBGameStudios/status/1407136151991947269)
+<img src="https://p.sda1.dev/2/d8f5b0da4f60b7314feae57336f7811e/hk.png" referrerpolicy="no-referrer"> <blockquote>I'm a real person, not really associated with Hideo Kojima, not an actor, not working on Silent Hill</blockquote>
+
+出现了，#TeamReal最艰难的一天
+
+
+-----
+
+####  陈玉礼  
+##### 340#       发表于 2021-6-22 08:56
+
+
+真好意思说自己当初没提示寂静岭啊，**者必自焚，等着吧
+
+
+-----
+
+####  luoyianwu  
+##### 341#       发表于 2021-6-22 09:02
+
+
+ 本帖最后由 luoyianwu 于 2021-6-22 09:09 编辑 
+
+<img src="https://p.sda1.dev/2/f727ecc9130e78e83f9b17010f4db40a/kojipro.png" referrerpolicy="no-referrer">
+
+最诡异的事情发生了：小岛工作室在15分钟内给Hasan点了赞（可能更早）
+
+为什么！
+
+
+-----
+
+####  电磁炮233  
+##### 342#       发表于 2021-6-22 09:04
+
+
+傀儡罢了<img src="https://static.saraba1st.com/image/smiley/face2017/027.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  vacuumsword  
+##### 343#       发表于 2021-6-22 09:08
+
+
+别是超吊的CG吧……
+
+
+-----
+
+####  Gandalf  
+##### 344#       发表于 2021-6-22 09:11
+
+
+这乐子简直没完没了
+
+
+-----
+
+####  陈玉礼  
+##### 345#       发表于 2021-6-22 09:14
+
+
+点赞其实真没啥，作为推特运营专员一天到晚盯着几个关键账号是非常正常的，或许小岛组的想法是这个点赞代表着认同人家呢
+
+
+-----
+
+####  xiongsuper  
+##### 346#       发表于 2021-6-22 09:17
+
+
+小岛看到乐子大了，说不定干脆把这个工作室收了来个假戏真做
+
+
+                                                 
