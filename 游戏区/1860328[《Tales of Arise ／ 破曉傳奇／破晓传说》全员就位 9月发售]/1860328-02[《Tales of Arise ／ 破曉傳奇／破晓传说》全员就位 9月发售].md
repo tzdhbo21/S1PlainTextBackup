@@ -3131,3 +3131,36 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                  
+
+-----
+
+####  提挈天地  
+##### 1737#       发表于 2021-6-22 14:19
+
+
+ 本帖最后由 提挈天地 于 2021-6-22 14:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51694407&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-22 10:39</a>
+没看错，之前一开始淘宝上的港版限定都要1.4k左右，刚刚查发现最近又冒出来几家1k左右的了，那这个价格倒 ...</blockquote>
+1K左右的有链接吗，我找了半天咋没看到<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+点进宝贝页面才能看到，1K左右竟然都是带手办的，这次日版日文和港版中文在ps系平台上游戏编号是一样的吗
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  宛若青空  
+##### 1738#       发表于 2021-6-22 14:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51697261&amp;ptid=1860328" target="_blank">提挈天地 发表于 2021-6-22 14:19</a>
+1K左右的有链接吗，我找了半天咋没看到
+点进宝贝页面才能看到，1K左右竟然都是带手办的，这次日版 ...</blockquote>
+不一样
+日版是JP0700-PPSA02296_00-TOARISEPS5000001
+港版是HP0700-PPSA02796_00-TOARISEPS5000001
+
+港版是中韩文版，估计可能没英文和日文，反之日版应该是日英文版。
+
+
+                                                 

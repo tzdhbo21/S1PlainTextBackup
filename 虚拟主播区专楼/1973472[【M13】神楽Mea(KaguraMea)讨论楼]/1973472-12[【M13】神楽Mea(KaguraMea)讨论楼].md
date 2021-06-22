@@ -15123,3 +15123,160 @@ tw超级回复
 
 
                                                  
+
+-----
+
+####  时间在我手中  
+##### 17841#       发表于 2021-6-22 13:49
+
+
+这年头也没啥游戏吧，稍微有热度的也就那样。
+
+
+-----
+
+####  2014720  
+##### 17842#       发表于 2021-6-22 13:58
+
+
+去年bcr 碧蓝航线那种直播节目效果还行，现在嘛<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 17843#       发表于 2021-6-22 14:01
+
+
+所以还是老老实实当个音乐播放器就够了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 17844#       发表于 2021-6-22 14:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51696998&amp;ptid=1973472" target="_blank">2014720 发表于 2021-6-22 13:58</a>
+
+去年bcr 碧蓝航线那种直播节目效果还行，现在嘛臭底边就该有底边的样子 ...</blockquote>
+bcr碧蓝原神都是工商来着 现在估计再也接不到惹  属实弃子
+
+
+-----
+
+####  时间在我手中  
+##### 17845#       发表于 2021-6-22 14:16
+
+
+ 本帖最后由 时间在我手中 于 2021-6-22 14:20 编辑 
+
+你要是觉得舰碧有节目效果那我认真说一句算了，那个傻逼游戏抽卡是个很廉价的东西，这女人自己蠢充钱买钻石买魔方算个笑点就是了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+抽卡或者工商这种东西说到底也不可能天天播，前者她自己又不爱玩抽了不还是吃灰，后者陈睿那块现在也不会给她了吧，不过好像原神之后也没啥爆火游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+现在手游juan魔怔疯子多了去了，这热度多少是沾点毒的
+
+
+而且用那个当作游戏例子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">真要说手游那还是原神算了，起码那个还带点走位身法的
+
+
+纯抽卡这种的节目效果，好比DC被大公狙击一样，可能DC的如丧考妣脸和台词才是精髓。
+
+
+不过这类游戏好像也就抽卡值得播播了，但这东西拼的不是豹跳如雷或者非洲酋长吗）
+
+
+-----
+
+####  LIPP  
+##### 17846#       发表于 2021-6-22 14:20
+
+
+指望本质线虫打游戏对胃口估计是有点难，可能雀魂还是最有意思的吧
+
+
+-----
+
+####  T_Hb  
+##### 17847#       发表于 2021-6-22 14:24
+
+
+手游都是些抽卡，主机游戏她也不玩，NGS也腻了
+
+
+也就101，雀魂来回玩了<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gongge666  
+##### 17848#       发表于 2021-6-22 14:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51697187&amp;ptid=1973472" target="_blank">ashero 发表于 2021-6-22 14:13</a>
+
+bcr碧蓝原神都是工商来着 现在估计再也接不到惹  属实弃子</blockquote>
+接不到×
+
+不想接√
+
+被她拒绝的广告商几百都不止了
+
+
+-----
+
+####  甘栗No.007  
+##### 17849#       发表于 2021-6-22 14:30
+
+
+没画面的游戏广播？<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+虽然不爱播游戏，但是死喷乱涂3还是很有想法的，几乎不存在的游戏民可以对明年报以期待
+
+
+-----
+
+####  时间在我手中  
+##### 17850#       发表于 2021-6-22 14:32
+
+
+主机你是想看她播什么···闪之轨迹吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还是那个mhr不成
+
+
+
+
+-----
+
+####  T_Hb  
+##### 17851#       发表于 2021-6-22 14:32
+
+
+ 本帖最后由 T_Hb 于 2021-6-22 14:34 编辑 
+
+mhr在嘴上挂了一万年了，怕是游戏都没
+
+刚出道那会儿涂地倒是挺多的，splatoon3倒是可以期待一下
+
+
+-----
+
+####  时间在我手中  
+##### 17852#       发表于 2021-6-22 14:36
+
+
+明年才出的东西你现在期待也没用啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">死喷3她是说过会玩就是了，虽然我觉得她不长进也就那样
+
+
+现在这时期有什么游戏很适合她直播的吗额，我甚至都滚回去玩CF了，不过CFHD我要黑屁一下，那个手感多少沾丶便秘了
+
+
+-----
+
+####  T_Hb  
+##### 17853#       发表于 2021-6-22 14:37
+
+
+单排那确实一般，喜欢看她拉几个人一起聊天
+
+
+                                                
