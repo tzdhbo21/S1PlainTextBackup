@@ -16388,3 +16388,67 @@ DQ能有什么问题，都快被播烂的东西了
 
 
                                                  
+
+-----
+
+####  sgssk  
+##### 2791#       发表于 2021-6-22 20:07
+
+
+<img src="https://img.saraba1st.com/forum/202106/22/195831rfrfcvg2gcv9cccg.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210622195553.png</strong> (69.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-22 19:58 上传
+
+
+见识浅，这位奥术魔刃选手毫无预兆地发了个学中文，也没明白是想干啥<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">想b站进出的也不少了，这就单发个10秒的中文总不会是不了解冲国国境，想试探观众反应吧
+
+
+-----
+
+####  pansherry  
+##### 2792#       发表于 2021-6-22 20:29
+
+
+ 本帖最后由 pansherry 于 2021-6-22 20:33 编辑 
+
+这耳毛又一次打破了管人计算的下限<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且这8手写怎么是写两个0两笔啊
+<img src="https://tvax2.sinaimg.cn/large/771ca9d1gy1grrbldmh2dj20uy0hd4qp.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 2793#       发表于 2021-6-22 20:34
+
+
+ 本帖最后由 SuntoryNomu 于 2021-6-22 20:43 编辑 
+
+正在播放：China-2
+
+<img src="https://img.saraba1st.com/forum/202106/22/204323tzgd60w118v220uz.gif" referrerpolicy="no-referrer">
+
+
+<strong>526332b8f3f6cdae.gif</strong> (433 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-22 20:43 上传
+
+
+-----
+
+####  qq845629713  
+##### 2794#       发表于 2021-6-22 20:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 光我知道得在404披皮只说日语直播asmr的冲国人就俩了，
+
+
+                                                 

@@ -8650,3 +8650,14 @@ https://netaba.re/subject/297396</blockquote>
 
 
                                                  
+
+-----
+
+####  妄想中毒  
+##### 2163#       发表于 2021-6-22 20:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现实里政府和军队之类的部门都是独立网络根本不可能随便被一个公网的服务器给黑掉所有机器人，真出这种事了也该是军队解决问题轮不到唱歌机器人和恐怖组织出场
+
+
+                                                 
