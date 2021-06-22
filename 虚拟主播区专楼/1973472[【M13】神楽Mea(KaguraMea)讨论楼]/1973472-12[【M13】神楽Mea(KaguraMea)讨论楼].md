@@ -15002,3 +15002,65 @@ tw超级回复
 
 
                                                  
+
+-----
+
+####  Cushaw  
+##### 17830#       发表于 2021-6-22 10:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/176.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 17831#       发表于 2021-6-22 10:35
+
+
+说起来昨晚臭坦克打了多久LOL啊，十点能起应该不多？
+
+
+-----
+
+####  Klience  
+##### 17832#       发表于 2021-6-22 10:40
+
+
+ 本帖最后由 Klience 于 2021-6-22 10:41 编辑 
+
+昨晚也就打了两场而已 10点半打到11点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17833#       发表于 2021-6-22 10:41
+
+
+下播那么急我还以为有啥事呢，结果是急着去打101
+
+
+-----
+
+####  Klience  
+##### 17834#       发表于 2021-6-22 10:45
+
+
+别说了 看你麻玩的赛纳0/13的战绩我都不知道说什么好了 别玩ad辅助行不行 求求你了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  绿茶与猫  
+##### 17835#       发表于 2021-6-22 11:34
+
+
+<blockquote>2014720 发表于 2021-6-20 19:10
+</blockquote>
+这短发麻越来越有一种刀语女主的既视感，
+
+
+                                                 

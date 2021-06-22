@@ -4746,3 +4746,66 @@ r/TheBlueBoxConspiracy/和resetera不约而同关版锁帖了，原因是Hasan�
 
 
                                                  
+
+-----
+
+####  若菜  
+##### 350#       发表于 2021-6-22 11:00
+
+
+这营销太恶心了吧......
+
+
+-----
+
+####  shyso  
+##### 351#       发表于 2021-6-22 11:29
+
+
+看乐子看到现在，是不是可以讨论一下这种欺诈式营销的是非利弊和底线的讨论了
+
+
+我个人感觉玩的high到现在这种程度，就算最后真的是小岛要做寂静岭然后演了这么多，我对他的反感也上升到了一定程度，虽然肯定也有岛粉高呼这是岛式营销的新高峰神操作
+
+欺诈营销的推理阈值是越来越高的，想要达到不亚于前次的效果，就得玩的更大，但是善战者死于刀兵，总耍猴，猴里也有脾气不好的，抱歉，我感受不到respect
+
+
+如果真的和寂静岭没关系，是纯粹的作死式碰瓷……
+
+那反而念在是初犯的面子上，只要三天后的demo水平过硬，还真能当作新的营销案例，这波叫做艺高人胆大
+
+不过如果三天后拿出的东西没法令大多数人满意……，那就真的是作死了，说什么都没用，没有实力背书的营销，真就是纯作死
+
+
+-----
+
+####  サリシノハラ  
+##### 352#       发表于 2021-6-22 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51692633&amp;ptid=2010295" target="_blank">D-JoeII 发表于 2021-6-22 07:29</a>
+他今天也有說
+
+@JeffGrubb
+
+Hey, Kim Swift is specifically going to help Hideo Kojima make his Xbox ga ...</blockquote>
+原生云游戏？感觉有点难受了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cranberries  
+##### 353#       发表于 2021-6-22 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51695102&amp;ptid=2010295" target="_blank">shyso 发表于 2021-6-22 11:29</a>
+看乐子看到现在，是不是可以讨论一下这种欺诈式营销的是非利弊和底线的讨论了
+
+
+我个人感觉玩的high到现在这 ...</blockquote>
+这个事件国内讨论度几乎为0，所以也无法理解国外社区在想什么。
+寂静岭本来就是没落的ip，真卖起来并不太多。resetera很多评论都是整活过程挺有乐子。因为大多数都在网友自己的推测。
+以及，其实大部分人都没有期待是真的。<img src="https://p.sda1.dev/2/d4cda671ed6d7e52fc8f56a91c04dd05/IMG_20210622_113934.jpg" referrerpolicy="no-referrer">
+
+
+                                                 

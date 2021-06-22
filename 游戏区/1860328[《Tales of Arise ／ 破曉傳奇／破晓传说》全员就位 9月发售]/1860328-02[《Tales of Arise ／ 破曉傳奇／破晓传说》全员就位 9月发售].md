@@ -3093,3 +3093,41 @@ https://weibo.com/ttarticle/x/m/show/id/2309404650483544621237?_wb_client_=1 ...
 
 
                                                  
+
+-----
+
+####  蓝雉  
+##### 1735#       发表于 2021-6-22 10:39
+
+
+ 本帖最后由 蓝雉 于 2021-6-22 10:40 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/22/103654zmy68jvohllcoywo.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210622103601.png</strong> (175.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-22 10:36 上传
+
+
+官推展示了下全角色的特效,男主范围击倒,女主击落飞行单位,林薇儿打断吟唱,洛对盾牌和重甲打出break,盾姐停各种突进,黑哥专治各种多动症
+
+
+另外这次也有下水道场景啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宛若青空  
+##### 1736#       发表于 2021-6-22 10:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51694323&amp;ptid=1860328" target="_blank">ky怪 发表于 2021-6-22 10:33</a>
+你是不是看错了，日亚不卖带手办的限定，tb上的可都有手办</blockquote>
+没看错，之前一开始淘宝上的港版限定都要1.4k左右，刚刚查发现最近又冒出来几家1k左右的了，那这个价格倒是比较合适一些。
+
+
+                                                 
