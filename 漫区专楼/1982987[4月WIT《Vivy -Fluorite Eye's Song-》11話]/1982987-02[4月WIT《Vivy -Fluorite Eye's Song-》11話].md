@@ -8661,3 +8661,17 @@ https://netaba.re/subject/297396</blockquote>
 
 
                                                  
+
+-----
+
+####  MASKA-1  
+##### 2164#       发表于 2021-6-22 21:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51701518&amp;ptid=1982987" target="_blank">妄想中毒 发表于 2021-6-22 20:00</a>
+
+现实里政府和军队之类的部门都是独立网络根本不可能随便被一个公网的服务器给黑掉所有机器人，真出 ...</blockquote>
+ai失控后完全没有出现人类正规军，就只有平民被乱杀，以及小分队用手枪和ai互怼
+
+
+                                                 
