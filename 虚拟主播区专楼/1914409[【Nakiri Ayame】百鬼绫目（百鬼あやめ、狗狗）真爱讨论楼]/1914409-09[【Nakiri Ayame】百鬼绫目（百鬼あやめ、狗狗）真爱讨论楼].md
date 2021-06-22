@@ -4303,3 +4303,36 @@ YO~YO~夏だ余！<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 
                                                  
+
+-----
+
+####  因为你不会  
+##### 12380#       发表于 2021-6-22 18:35
+
+
+绫总播mhr的时候我还没买mhr，现在我天彗都solo掉了你还播不播了
+
+
+-----
+
+####  nian1538  
+##### 12381#       发表于 2021-6-22 18:54
+
+
+大胆预测接下来三次直播内容
+回归90万纪念杂谈
+100万冲刺歌
+apex
+
+
+-----
+
+####  Fami水  
+##### 12382#       发表于 2021-6-22 19:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 大概率是100w冲刺歌会 ，
+100w纪念杂谈
+
+
+                                                 
