@@ -15280,3 +15280,174 @@ mhr在嘴上挂了一万年了，怕是游戏都没
 
 
                                                 
+
+-----
+
+####  汇聚群光  
+##### 17854#       发表于 2021-6-22 14:45
+
+
+我想看神乐组四人日麻<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17855#       发表于 2021-6-22 14:46
+
+
+四人日麻不得5个人 <img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 17856#       发表于 2021-6-22 14:49
+
+
+ 本帖最后由 2014720 于 2021-6-22 14:50 编辑 
+
+那你还得大复活术把神乐组拉起来
+
+某人是不是快要公布一周年了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只能说你麻真没热度，不然这事可真j8蛋疼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 17857#       发表于 2021-6-22 14:55
+
+
+ 本帖最后由 2014720 于 2021-6-22 14:56 编辑 
+
+bsyl，今年虽然没那些游戏工商了但她自己也不整了电视节目雀魂大赛什么的，可怜的大概只有批限民和独角兽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+什么我以前也是批限民，那没事了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17858#       发表于 2021-6-22 14:59
+
+
+ 本帖最后由 时间在我手中 于 2021-6-22 15:01 编辑 
+
+电视节目我下载了还没看···那几天有点事，作息极度颠倒
+
+
+雀魂大赛一轮流，不过看起来其实还挺好的，就是有点费耳朵
+
+
+说实话这几天我们广东这边疫情相关是真的蛋疼，你真要我选还是希望肥婆不整杂谈没素材尽量缩家里最好
+
+
+太麻烦了，心累
+
+
+syl  批限说的跟他们组全熟播放很高一样，都恶性循环了那干脆别管这边完事了，好像批限多了就能改变什么一样
+
+
+-----
+
+####  clvan_  
+##### 17859#       发表于 2021-6-22 15:00
+
+
+游戏民想看的也不是游戏工商吧，估计只是想看她普通的日常直播打打游戏吐槽聊天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17860#       发表于 2021-6-22 15:00
+
+
+ 本帖最后由 T_Hb 于 2021-6-22 15:04 编辑 
+
+她这么怂的人，必不可能出去
+我就怕她疫苗都不敢打，不过日本打疫苗出的事也太多了
+
+
+-----
+
+####  时间在我手中  
+##### 17861#       发表于 2021-6-22 15:04
+
+
+那这样和歌回夹杂的吹逼有什么区别，还是所谓事业民发作要顾及404本土民留档不成<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+游戏回我个人来说觉得看点无非就是脑溢血操作，精彩操作，吊人独有的奇怪吐槽这些看点罢了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">脑溢血和精彩这两个还涉及到一个操作理解的门槛，奇怪吐槽有时候也是要你懂这个游戏才能会心一笑的
+
+
+-----
+
+####  2014720  
+##### 17862#       发表于 2021-6-22 15:08
+
+
+ 本帖最后由 2014720 于 2021-6-22 15:10 编辑 
+
+404留档，指只有冲了会员才能看而且播了下次就删上次档的弱智日本人操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（不行太弱智了想起了就想笑）
+
+游戏回念了三年了也没见有多少，不想说了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17863#       发表于 2021-6-22 15:12
+
+
+ 本帖最后由 时间在我手中 于 2021-6-22 15:14 编辑 
+
+这跟日本人没啥关系，不单纯就是这女人自己怂但是又不好留档歌回怕被版权橄榄的活儿<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+反正本土民不挺喜欢的，没啥坏处有啥好说的
+
+
+而且假设播了什么新游戏啊，短时间内多半也是没有档<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这操作只能说很yhm了
+
+播游戏你总得有个目标，虽然实际而言apex也好，mhr也罢，乃至雀魂LOL这些老三样，我觉得这人思路不转变就永远只会是那样了
+
+
+-----
+
+####  Klience  
+##### 17864#       发表于 2021-6-22 15:19
+
+
+ 本帖最后由 Klience 于 2021-6-22 15:23 编辑 
+
+目标？算了吧 这女人还是适合混吃等死 你说的这些游戏除了雀魂其他近期有播过吗 打游戏那么菜还想着搞个目标 想多了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 17865#       发表于 2021-6-22 15:23
+
+
+我在思考，三周年有没有可能来套新衣服呢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 17866#       发表于 2021-6-22 15:24
+
+
+ 本帖最后由 时间在我手中 于 2021-6-22 15:26 编辑 
+
+所以说了啊，没目标，所谓没变强的欲望不就是这样。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+她这人这么久了也基本都知道了，打游戏的乐趣可能主要都在能和人吹比这方面上了。
+
+只狼她通关了，懒得直播打了呗。而且这年头打过一心也早没啥热度了吧，还是说要看这人来个有始有终？意义不明。
+
+
+                                                 
