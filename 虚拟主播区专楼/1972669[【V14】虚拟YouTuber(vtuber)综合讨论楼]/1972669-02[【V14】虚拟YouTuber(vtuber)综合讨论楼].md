@@ -16463,3 +16463,131 @@ DQ能有什么问题，都快被播烂的东西了
 
 
                                                  
+
+-----
+
+####  pansherry  
+##### 2796#       发表于 2021-6-22 21:47
+
+
+汚名返上
+<img src="https://tvax3.sinaimg.cn/large/771ca9d1gy1grrdpedndwj20uw0hf4qp.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 2797#       发表于 2021-6-22 21:50
+
+
+[https://twitter.com/harusaruhi/status/1407328171654107144](https://twitter.com/harusaruhi/status/1407328171654107144)
+
+
+【大発表！！！】
+
+なんと私、春猿火の1st ONE-MAN LIVEの開催が決定いたしました！
+
+タイトルは「シャーマニズム」です！
+
+
+初のワンマン、皆さんの前で歌を届けたい、会いたいです。
+
+遊びにきてくれると嬉しいです。
+
+
+#春猿火 
+
+#シャーマニズム
+
+#KAMITSUBAKI_STUDIO
+
+
+URL: [https://l-tike.com/st1/shamanism](https://l-tike.com/st1/shamanism)
+
+
+-----
+
+####  purdre  
+##### 2798#       发表于 2021-6-22 21:51
+
+
+耳毛的皮真可爱，声音也很合皮，换新衣服之后越看越可爱
+
+
+-----
+
+####  winda  
+##### 2799#       发表于 2021-6-22 21:57
+
+
+kmnz三周年阿点代表怎么是樱桃大小姐发片祝贺去了<img src="https://static.saraba1st.com/image/smiley/face2017/095.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 2800#       发表于 2021-6-22 22:13
+
+
+【夢追翔　1st prelude EPリリース決定！】※ジャケット画像付きツイート
+
+<img src="https://img.saraba1st.com/forum/202106/22/220027s0i6zbiiqw46piar.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【夢追翔　1st prelude EPリリース決定！】※ジャケット画像付きツイート.jpeg.jpeg</strong> (266.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-22 22:00 上传
+
+
+バーチャルシンガーソングライター夢追翔(@kakeru_yumeoi)がついに1st prelude EP「絵空事への入り口」をリリース！
+
+《6/29(火)0:00》より、各ストアにて順次配信予定！
+[https://linkco.re/Cv3xTrg7](https://linkco.re/Cv3xTrg7)
+
+
+？！
+
+<img src="https://img.saraba1st.com/forum/202106/22/221021wywrjne6jubub1eh.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>【VTuber最強格闘王決定戦】 .jpeg</strong> (138.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-22 22:10 上传
+
+
+【VTuber最強格闘王決定戦】
+
+
+6/25 (金)20:00～
+
+ストV2on2お祭り大会
+
+＼ 参加者発表！／
+
+
+チーム
+
+A:乾伸一郎、叶
+
+B:魔王マグロナ、丹羽にわこ
+
+C:ばあちゃる、ルルン・ルルリカ
+
+D:せんのいのり、バフコ
+
+E:葛葉、イブラヒム
+
+
+実況:なない
+
+解説:ももち、藤村
+
+配信場所
+[https://mildom.com/10317462](https://mildom.com/10317462)
+
+
+                                                 
