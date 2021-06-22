@@ -15762,3 +15762,52 @@ syl，脑补了一下直播唱爱河的阿咩，被自己弱智到了
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 17895#       发表于 2021-6-22 23:39
+
+
+ 本帖最后由 路人庚 于 2021-6-22 23:55 编辑 
+
+大概是因为你咩姐唱过P马鹿的《S'il vous Président》，于是今天阿b的首页又给我推送了一个P马鹿的翻唱[《ラヴィット（Love It）》](https://www.bilibili.com/video/BV1jv411W7Xj/)（字幕组版本：[BV1Qg411g759](https://www.bilibili.com/video/BV1Qg411g759/)）
+
+
+点进去之前就在想着你咩姐啥时候再来一个这种翻唱，结果看着歌词听完之后直呼好家伙
+
+
+匹老板的这首歌的歌词（或画面）能跟一大堆你咩姐的著名内容（或车轱辘曲）对应上也是有点东西，个人觉得能对上的部分包括但不限于：
+
+月兔
+
+烧鸡班
+
+病名为爱
+
+いいんですか
+
+上个月的饭盒“夸夸群”活动
+
+等等等等
+
+
+不禁让我许愿希望你咩姐哪天能掏一个这曲子的翻唱出来，我大概会把这个认定为你咩姐的新角色曲的（期间2个月）<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+（虽然咩姐唱匹老板曲子的次数好像挺少的
+
+
+原曲：
+[【初音ミク】Loveit【ピノキオピー】](https://www.bilibili.com/video/BV1i541157SB/)
+
+
+-----
+
+####  T_Hb  
+##### 17896#       发表于 2021-6-22 23:47
+
+
+又开启了新的分支线  兔党<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
