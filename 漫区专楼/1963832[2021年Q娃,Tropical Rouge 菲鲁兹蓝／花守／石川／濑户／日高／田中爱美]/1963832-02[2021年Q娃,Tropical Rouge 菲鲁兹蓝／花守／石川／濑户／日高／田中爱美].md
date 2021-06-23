@@ -2897,3 +2897,25 @@ q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五
 
 
                                                  
+
+-----
+
+####  ddy2811  
+##### 1726#       发表于 2021-6-23 14:18
+
+
+萝拉是虚构的角色，人鱼变人也是编出来的故事，但我们见过的被演变或者选择润出去投奔灯塔的打心底里鄙视自己国家民族的贵物太多了……再加上现在这个时局普遍很敏感，会有联想我觉得也是正常的……<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗黑能乐  
+##### 1727#       发表于 2021-6-23 14:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">正常吗。。。那我觉得你们去看童话故事怕不是每篇都能挑出来zz不zq的点
+
+—— 来自 HUAWEI EBG-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
