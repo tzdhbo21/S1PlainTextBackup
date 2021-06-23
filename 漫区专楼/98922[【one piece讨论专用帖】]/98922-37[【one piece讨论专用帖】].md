@@ -14611,3 +14611,28 @@ op的本质是冒险
 
 
                                                  
+
+-----
+
+####  好评加鹅  
+##### 55247#       发表于 2021-6-23 21:34
+
+
+五皇的橡胶果实不是早就暴露了，真要是这么重要的话，卡普**面子到底有多大？
+
+
+-----
+
+####  天使的日曜日  
+##### 55248#       发表于 2021-6-23 22:03
+
+
+索隆靠个仙豆就满状态复活，海贼真是越来越随便了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+前面就差把路飞=joyboy写出来了，最新话又来个天选之果
+
+嘴上说着最自由的人是海贼王，实际上一切的命运都是早就安排好的，讽刺味十足<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+                                                 
