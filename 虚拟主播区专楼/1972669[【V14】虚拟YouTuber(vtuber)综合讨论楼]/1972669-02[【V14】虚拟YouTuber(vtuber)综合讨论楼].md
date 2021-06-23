@@ -17018,3 +17018,56 @@ aoe拉满了。查询V圈平均文化水平
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 2835#       发表于 2021-6-23 23:45
+
+
+很难不是葛尊对唱
+
+
+-----
+
+####  rzrbtk  
+##### 2836#       发表于 2021-6-23 23:52
+
+
+说到mrra，梦月萝娅七月四日生日，必须回归啊，再不回归真的是要出道以来前所未有的订阅被郡道超了…很不好意思啊这样…赶紧回来一拳把郡神门牙打掉吧<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 2837#       发表于 2021-6-23 23:59
+
+
+ 本帖最后由 FCCHua 于 2021-6-24 00:05 编辑 
+
+很难不来点crossick，正好白雪巴ddd也要有了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+如果能有新鲜组合就更好了
+
+
+-----
+
+####  qq845629713  
+##### 2838#       发表于 2021-6-24 00:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 虽然你们都希望有葛尊，但KING为了避火，今年肯定不会参加了
+
+
+-----
+
+####  alcoholic1000  
+##### 2839#       发表于 2021-6-24 00:40
+
+
+king不来同接至少得掉2w，那可不行
+
+
+我看要不往前挪几天，就当给king庆生
+
+
+                                                 
