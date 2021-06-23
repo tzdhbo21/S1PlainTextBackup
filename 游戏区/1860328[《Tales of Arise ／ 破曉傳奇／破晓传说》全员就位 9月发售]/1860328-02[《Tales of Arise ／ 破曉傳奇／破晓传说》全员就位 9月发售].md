@@ -3702,3 +3702,54 @@ image.png
 
 
                                                  
+
+-----
+
+####  LiberaMe  
+##### 1749#       发表于 2021-6-23 14:51
+
+
+这个我用ps4 slim和xsx哪个玩合适？
+
+关键是淘宝上连xbox版的预定都没有<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+画质什么的会拉很大吗？
+
+
+-----
+
+####  宛若青空  
+##### 1750#       发表于 2021-6-23 14:56
+
+
+ 本帖最后由 宛若青空 于 2021-6-23 15:00 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51710085&amp;ptid=1860328" target="_blank">LiberaMe 发表于 2021-6-23 14:51</a>
+
+这个我用ps4 slim和xsx哪个玩合适？
+
+关键是淘宝上连xbox版的预定都没有</blockquote>
+
+还是xsx吧，不管是分辨率还是帧数体验都会好太多，xsx能4k/60帧，ps4 slim最多估计也就1080p30帧，光是60帧的战斗就能爽太多了
+
+
+-----
+
+####  roxassix  
+##### 1751#       发表于 2021-6-23 16:06
+
+
+ 本帖最后由 roxassix 于 2021-6-23 16:09 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51710085&amp;ptid=1860328" target="_blank">LiberaMe 发表于 2021-6-23 14:51</a>
+
+这个我用ps4 slim和xsx哪个玩合适？
+
+关键是淘宝上连xbox版的预定都没有</blockquote>
+不追求奖杯啥的肯定xsx。毕竟真次世代画面<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+话说这玩意xbox亚洲地区只有数字版吧。淘宝的便宜阿区数字版预订估计还要等等（到时候肯定会有）。。
+
+xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实体估计只能走代购或者美亚海淘？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
