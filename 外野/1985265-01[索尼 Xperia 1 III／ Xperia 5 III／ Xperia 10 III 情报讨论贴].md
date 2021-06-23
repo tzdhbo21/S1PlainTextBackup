@@ -9359,3 +9359,23 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  木瓜奶五元  
+##### 664#       发表于 2021-6-24 02:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51711794&amp;ptid=1985265" target="_blank">Cityrat 发表于 2021-6-23 17:06</a>
+
+我力劝部门小妹不要买，未果，她之前是XP1和XZ。我自己是XP13工程机，就怎么说呢？诶，一言难尽。
+
+
+我当然 ...</blockquote>
+我只能说苹果真的是充满傲慢和自以为是，敢不敢睁眼看看世界哦！索尼都在change自己啦！
+
+
+——这种句式真是左手倒右手右手倒左手怎么用都顺手。
+
+
+                                                 
