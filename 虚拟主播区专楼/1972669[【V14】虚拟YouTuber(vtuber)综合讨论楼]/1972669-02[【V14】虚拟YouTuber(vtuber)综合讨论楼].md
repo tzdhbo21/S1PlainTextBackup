@@ -16908,3 +16908,41 @@ BD扳回一城，证明了自己
 
 
                                                  
+
+-----
+
+####  pansherry  
+##### 2827#       发表于 2021-6-23 21:21
+
+
+<img src="https://tvax2.sinaimg.cn/large/771ca9d1gy1grsim0386mj20v80hp177.jpg" referrerpolicy="no-referrer">
+
+
+不愧是SEED，题目够刁钻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 2828#       发表于 2021-6-23 21:24
+
+
+直播看的很欢乐<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 2829#       发表于 2021-6-23 21:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51704618&amp;ptid=1972669" target="_blank">stmule 发表于 2021-6-23 01:45</a>
+
+训 粉
+
+
+—— 来自 samsung SM-G9730, Android 11上的 S1Next-鹅版 v2.4.4.1</blockquote>
+aoe拉满了。查询V圈平均文化水平
+
+
+                                                 
