@@ -3753,3 +3753,43 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  chivalry  
+##### 1752#       发表于 2021-6-23 16:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51709339&amp;ptid=1860328" target="_blank">ky怪 发表于 2021-6-23 13:47</a>
+在黑店订了个1100的限定，sirana要贵400还是算了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">这价格我觉得可以了，我上个月订ps5版都要1200
+
+
+-----
+
+####  ChengChung  
+##### 1753#       发表于 2021-6-23 16:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51711014&amp;ptid=1860328" target="_blank">roxassix 发表于 2021-6-23 16:06</a>
+
+不追求奖杯啥的肯定xsx。毕竟真次世代画面
+
+话说这玩意xbox亚洲地区只有数字版吧。淘宝的便宜阿区数 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">现在想想我觉得搞不好xbox是全区有中文？
+
+
+-----
+
+####  roxassix  
+##### 1754#       发表于 2021-6-23 16:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51711178&amp;ptid=1860328" target="_blank">ChengChung 发表于 2021-6-23 16:18</a>
+现在想想我觉得搞不好xbox是全区有中文？</blockquote>
+不特意分的话基本都是一个sku，全区都带中文吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+巨硬这边基本都不会在语言区域上恶心人。我日区下绯红结系试玩也带中文。噬血代码好像是全区中文。
+我感觉新游戏只要不是厂商作妖，（比如2077这种中文锁除了日本的东南亚？）商店里语言版本虽然还没标但是基本可以看齐steam。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

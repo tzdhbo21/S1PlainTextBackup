@@ -16694,3 +16694,102 @@ E:葛葉、イブラヒム
 
 
                                                  
+
+-----
+
+####  Suny08  
+##### 2809#       发表于 2021-6-23 16:13
+
+
+<blockquote>Lucy_Diamonds 发表于 2021-6-23 14:42
+夜见昨天脾气这么大的原因找到了？</blockquote>
+就是被马内甲毙了dq 不让玩而已
+
+夜见:dq可以玩吧？
+
+马内甲:(默认)
+
+开播前，马内甲:不行不能玩
+
+估计差不多就是这样
+
+
+-----
+
+####  flyskywalker92  
+##### 2810#       发表于 2021-6-23 16:23
+
+
+金银铜也就是时间多吧。。。怎么看都不算很突出的
+
+
+-----
+
+####  真飞鸟i  
+##### 2811#       发表于 2021-6-23 16:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">除了下巴以外，完全换成新生代了。
+
+
+-----
+
+####  rzrbtk  
+##### 2812#       发表于 2021-6-23 16:32
+
+
+郡道说要玩儿奇异人生…我已不会再信这人的任何游戏预告…
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 2813#       发表于 2021-6-23 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51711115&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-6-23 16:13</a>
+
+就是被马内甲毙了dq 不让玩而已
+
+夜见:dq可以玩吧？
+
+马内甲:(默认)</blockquote>
+这个我知道 就是顺着smc变mc发散一下（
+
+冬雪现在是大明星了 我们只能通过p联系到她了 她把我们都关了！<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|大明星真不行|
+
+
+查看全部评分
+
+
+-----
+
+####  CielChloe  
+##### 2814#       发表于 2021-6-23 16:34
+
+
+说是新生代，出道也都快两年了
+
+
+-----
+
+####  死体残留  
+##### 2815#       发表于 2021-6-23 16:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">dq今年改条约企业势要签条约吧，大福今年玩dq也没下文了 enkr今年没多动静去签企业了 估计是去年签了sega结果没人玩sega游戏
+
+
+                                                 
