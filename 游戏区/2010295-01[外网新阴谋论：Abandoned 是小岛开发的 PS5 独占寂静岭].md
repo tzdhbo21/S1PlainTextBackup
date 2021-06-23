@@ -5063,3 +5063,36 @@ TeamReal let’s go!
 
 
                                                  
+
+-----
+
+####  mye  
+##### 375#       发表于 2021-6-23 09:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51699148&amp;ptid=2010295" target="_blank">kuker53 发表于 2021-6-22 16:57</a>
+konami商店那句庆祝什么什么目前仍然有点疑点，如果索尼最近没展会或者压根不存在寂静岭新作，那最次也得给 ...</blockquote>
+最近不是有杀鸡联动吗 八成庆祝这个
+
+
+-----
+
+####  Marsoy  
+##### 376#       发表于 2021-6-23 09:31
+
+
+25号快到吧，我有点顶不住了，不管是真是假，这个过程实在是太漫长了
+
+
+-----
+
+####  UmarIbnLaAhad  
+##### 377#       发表于 2021-6-23 09:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51705982&amp;ptid=2010295" target="_blank">mye 发表于 2021-6-23 09:19</a>
+ 最近不是有杀鸡联动吗 八成庆祝这个</blockquote>
+那个联动都一年了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

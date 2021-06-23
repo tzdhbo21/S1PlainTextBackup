@@ -15032,3 +15032,19 @@ JP不要也罢</blockquote>
 
 
                                                  
+
+-----
+
+####  影山银  
+##### 1005#       发表于 2021-6-23 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51698418&amp;ptid=1989758" target="_blank">Map-2 发表于 2021-6-22 16:02</a>
+
+哈？这还能买吗？
+
+万恶的猴楼莱芜不仅买粉买同接还买游戏声优庆祝是吧 ...</blockquote>
+其实就和tb上买黑人念中文祝福一样，只要钱到位，都能搞定吧
+
+
+                                                 
