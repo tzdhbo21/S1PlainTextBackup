@@ -3677,3 +3677,17 @@ image.png
 
 
                                                  
+
+-----
+
+####  蓝雉  
+##### 1747#       发表于 2021-6-23 11:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51707227&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-6-23 10:56</a>
+
+为方便读者浏览，这里把 http://www.abyssalchronicles.com ... dors-shiina-and-lex 的翻译全文贴出来，与 ...</blockquote>
+越来越期待了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 
