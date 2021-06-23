@@ -16276,3 +16276,106 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  阿提拉  
+##### 79339#       发表于 2021-6-23 17:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">结果是幕间，带几个强化，皇女+沸羊羊池子2333
+
+
+-----
+
+####  areklose  
+##### 79340#       发表于 2021-6-23 17:02
+
+
+幕间，这就是dw的产能吗
+
+
+-----
+
+####  rooarr  
+##### 79341#       发表于 2021-6-23 17:03
+
+
+这就是能刷的活动吗<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  黑上シグマ  
+##### 79342#       发表于 2021-6-23 17:05
+
+
+然而沸羊羊我是准备等四星券换的，你这让我是抽好还是不抽好……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  quanlix  
+##### 79343#       发表于 2021-6-23 17:08
+
+
+叶狗爬
+
+
+-----
+
+####  alucardcz  
+##### 79344#       发表于 2021-6-23 17:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">下个星期在来个狩猎　　我估计就这样混到２６２了
+
+
+-----
+
+####  areklose  
+##### 79345#       发表于 2021-6-23 17:20
+
+
+我摊牌了， 我想抽司马懿和补钻头宝具。能周五复刻事件薄吗
+
+
+-----
+
+####  里村紅葉  
+##### 79346#       发表于 2021-6-23 17:22
+
+
+可以继续攒石头了，好耶<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79347#       发表于 2021-6-23 17:23
+
+
+<blockquote>引用第79344楼areklose于2021-06-23 17:20发表的  :
+
+我摊牌了， 我想抽司马懿和补钻头宝具。能周五复刻事件薄吗</blockquote>
+不能，事件簿活动有主线进度要求，要开复刻也得提前不少告知
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  xiongxingyu  
+##### 79348#       发表于 2021-6-23 17:28
+
+
+皇女都PU了，居然只给个石头本就打发了？宝具本呢？<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+                                                 
