@@ -16969,3 +16969,52 @@ aoe拉满了。查询V圈平均文化水平
 
 
                                                  
+
+-----
+
+####  alcoholic1000  
+##### 2832#       发表于 2021-6-23 23:10
+
+
+竜胆 尊
+
+@RindouMikoto
+
+
+去年行われた #NJU歌謡祭 !
+
+皆が盛り上げてくれたおかげで
+
+素敵な企画ができた、本当に有難う。
+
+
+そして今後の参考のため
+
+皆にアンケートの協力をお願いしたい！
+
+よろしく頼む
+
+
+尊在采集针对上一届NJU歌謡祭的意见，以及观众期待下次登场的组合，楼友们有什么帝华、ルジュエ、mrra之类的都可以试填，万一呢<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer"> 
+[https://docs.google.com/forms/d/ ... oHUkCQn2pw/viewform](https://docs.google.com/forms/d/e/1FAIpQLSeeQdtxKj-bJrkM3t3PTshlI09FmPMw8dbseZDGoHUkCQn2pw/viewform)
+
+
+-----
+
+####  qq845629713  
+##### 2833#       发表于 2021-6-23 23:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 最喜欢的组合是角落组合，尤其是左下角和右上角凑cp
+
+
+-----
+
+####  超能力者stven  
+##### 2834#       发表于 2021-6-23 23:34
+
+
+很难不支持
+
+
+                                                 

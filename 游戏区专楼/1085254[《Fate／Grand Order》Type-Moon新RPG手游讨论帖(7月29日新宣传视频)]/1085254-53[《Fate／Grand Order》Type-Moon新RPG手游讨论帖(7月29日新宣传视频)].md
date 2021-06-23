@@ -16486,3 +16486,15 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  smdzh2  
+##### 79357#       发表于 2021-6-23 23:28
+
+
+皇女第二个幕间了依旧没有强化<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+还差20金芙芙喂满atk，也不知道要不要继续喂下去了，玩个厨力游戏还要被wys喂屎
+
+
+                                                 

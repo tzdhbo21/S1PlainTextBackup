@@ -3793,3 +3793,19 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1755#         楼主| 发表于 2021-6-23 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51710085&amp;ptid=1860328" target="_blank">LiberaMe 发表于 2021-6-23 14:51</a>
+
+这个我用ps4 slim和xsx哪个玩合适？
+
+关键是淘宝上连xbox版的预定都没有</blockquote>
+制作人说，建议有新游戏机的都去玩新游戏机版，旧游戏机性能可能不会很好。
+
+
+                                                 
