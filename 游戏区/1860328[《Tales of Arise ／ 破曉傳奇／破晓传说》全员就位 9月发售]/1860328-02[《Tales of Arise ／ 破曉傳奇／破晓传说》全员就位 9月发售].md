@@ -3277,3 +3277,403 @@ https://www.notion.so/Tales-of-Arise-Hands-On-Report-PC-Demo-with-Tales-Ambassad
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1746#         楼主| 发表于 2021-6-23 10:56
+
+
+为方便读者浏览，这里把 [http://www.abyssalchronicles.com ... dors-shiina-and-lex](http://www.abyssalchronicles.com/news/tales-of-arise-hands-on-report-pc-demo-with-tales-ambassadors-shiina-and-lex) 的翻译全文贴出来，与原文相比内容可能有所删减或变更。由楼主本人翻译（借助了一点 DeepL 的力量），无盈利用途，仅供学习交流，请勿转载。——————————————————————
+
+Source: http://www.abyssalchronicles.com/news/tales-of-arise-hands-on-report-pc-demo-with-tales-ambassadors-shiina-and-lex
+
+Translated by LT_Harry
+
+
+——————————————————————
+
+在万代南梦宫娱乐英国与德国分公司的大力支持下，我们有幸获得第一时间体验 Tales of Arise (PC) 的机会。本文包含了 Tales Ambassadors Shiina 和 Lex 的感想！（以下简称 Shiina 或 Lex）
+
+感谢万代南梦宫娱乐英国与德国分公司，Shiina 和 Lex 得到了游玩 Tales of Arise 的第一手经验！我们（译者注：可能指该网站的管理者）向二位 Tales Ambassadors 对其帮助我们完成这篇文章表示感谢。需要注意的是，二人游玩的游戏内容属于预览版本，而不是游戏的完整版或正式发售的版本，因此部分游戏功能可能不可见或不可用。我们还提供了一个总结全文的视频版本：[https://youtu.be/XFvuKAth_0w](https://youtu.be/XFvuKAth_0w) （看谁愿意搬运）
+
+
+本次试玩以让我们亲身体验战斗系统为主，我们的试玩报告在这里开始。请注意，在本次试玩中，Shiina 使用 PS4 游戏机默认搭配的 DualShock 4 控制器，而 Lex 使用键盘鼠标进行游玩。
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/095430idggg4668g65km55.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (297.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 09:54 上传
+
+
+在试玩版游戏开始时，游戏会让你在可以游玩的角色中选择一个进行操作，但在游戏开始后的战斗中和（野外探索时）菜单中可以随时切换你操作的角色。我们认为这个角色选择画面很可能只是演示版独有的一个界面，该角色选择画面仅影响游戏中展示的教程内容，也就是关于所选角色对应的<strong>角色特性</strong>和<strong>「增幅攻击」(Boost Attack) </strong>的说明。
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/095645ak03h3xs1m0klzyk.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (283.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 09:56 上传
+
+
+举例来说，琳薇尔可以在法术咏唱完毕后保留并延迟发动，而杜欧哈林则可以在完美回避敌方攻击后延长自己的杖——这有点像 Tales of Xillia 的 Leia。希侬的增幅攻击可以击坠飞行的敌人，令其短时间内在地上无法动弹。 <blockquote><strong>Shiina:</strong> 这可能不那么引人注意，但我喜欢在野外探索时展示的角色和战斗中控制的角色可分别设定这一情况。我也喜欢一些微小的细节，例如操作琳薇尔让她在画面中跑来跑去，她会微微喘气，可能是因为她不习惯如此大量的徒步移动。不幸的是，我还没弄清楚怎样做战斗中快速切换操作角色，但看官方视频是可以这样做的。</blockquote><blockquote><strong>Lex:</strong> 我也没有成功在战斗中快速切换操作角色，但我进行了一些尝试，觉得这个功能的趣味性将在战斗中得到印证。我是那种坚持在一轮游戏中只控制一个角色或队伍的人——但若游戏允许的话，我会经常使用在战斗中切换角色的功能。考虑到游戏机制（译者注：原文为 double-attacks and special attacks，可能指代的是增幅强击和增幅攻击），我认为快速切换角色将是一个很大的利好。我喜欢这种自己不仅是在操作一个角色，而是整个队伍的感觉。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/095843rx0hxaa80aa6xozb.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (149.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 09:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/095905wmrm2l0lffz7bff7.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (228.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 09:59 上传
+
+
+总体的战斗操作兼具“熟悉”和“新颖”的感觉。<strong>普通攻击</strong>用鼠标按键，或控制器的 R1/RB 按钮触发。<strong>自由移动 (Free-Run)</strong> 是默认的移动模式，基础连击是三次普通攻击和普通术技组合而成——包含了魔神剑、急救术在内的术技当然是连击的主要环节。在操作人物的生命值指示条上方是<strong>角色的 AG (Artes Gauge) 点数</strong>，用于术技的消费，其执行方式与 Tales of Graces 的 CC (Chain Capacity) 点数相似。除此之外，战斗中也有<strong>「极限突破」</strong>和<strong>「秘奥义」</strong>。 <blockquote>译者注：<strong>CC (Chain Capacity)</strong> 是一部分 Tales 系列作品中使用的术技能量。CC 在战斗中不会长时间枯竭，但使用术技后需要时间进行回复，回复速度受角色装备和特定属性影响。</blockquote>
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/100157ghnqr9nqdzjd21ni.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (148.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/100203pom1bbbmmt1myyoz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (135.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:02 上传
+
+
+和一些旧作品通过输入不同方向+术技键以释放多种术技不同，在本作中取而代之的是四个功能按钮（即 ABXY 或 ○□△╳）中的三个——另一个用来跳跃——被用于术技设定：其中一组三个技能是地上技，另外一组三个则是空中技。在术技菜单中，有一个小标志会提示你术技是否能让角色浮空或下坠，不需要将自身是否保持浮空状态完全交由时机决定。
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/100252rzn22q6ebmqd2uem.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (169.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:02 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/100259j89l5cggg3mb222z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (199.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:02 上传
+
+
+正如 Lex 在上文提到的，使用数字键（键鼠方案）可以激活每个角色被称为<strong>「增幅强击」(Boost Strike) </strong>的特殊攻击，当蓝色的 <strong>STRIKE</strong> 标志显现时，按下对应按键可以看到两个角色的简短组合攻击。在试用版中只有三种组合（译者注：分别是“希侬+奥尔芬”、“琳薇尔+洛”、“杜欧哈林+奇莎兰”），但正式游戏中会有更多不同的组合——有一些组合的视频已经可以在网上看到。 <blockquote><strong>Shiina:</strong> 我觉得本作战斗系统更侧重于空中战，乐于编排复杂连击动作的玩家应该会喜欢。当然只在地面进行战斗也是完全可行的，只是这样容易被敌人突破。
+
+
+个人认为，如果不通过术技菜单更改按键对应术技的话，战斗中同时可以施放的术技不太足够——尽管由于总体上缺少按键因而对此你真的没什么办法（笑）。我不知道以后游玩的时候对此会怎么想，在试玩中我没有改变预设的术技编排按键。
+
+
+另外，虽然增幅强击看起来很帅，动画的持续时间也不长，但考虑到你激活增幅强击的频率，我认为它在战斗中表现得还是有点太浮夸了。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/100351ecrba1f7im1544zr.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (270.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:03 上传
+
+
+ <blockquote><strong>Shiina:</strong> 我曾经进入过极限突破 (Overlimit) 状态但没能成功发动秘奥义，由 CPU 操作的角色则成功了一次。我已经看到很多人对秘奥义缺少 cut-in 画面感到失望，我个人对此表示中立。我尊重开发者的选择，如果他们认为这样不合适，就不加进去；同时我也认为开发者可以把这个内容的展示作为一个可选功能——默认情况不展示，但可以开启。</blockquote><blockquote><strong>Lex:</strong> 在我意识到我可以进行空中连击之前，大部分时候我都在地面上战斗（或者更像是偶然进入空中战（笑）），这两种战斗方式都很有趣，可以多加试验。一开始我并不讨厌设定的术技数量有限的情况，因为我很容易在战斗中不知所措，但这也就为战斗中切换角色的操作带来了一些实用性，通过切换不同人物使用不同术技以对抗游戏中术技按键不足的状况。
+
+
+组合攻击真的很酷，我很喜欢，但我担心由于它们出现得太频繁，反而觉得这些动画有点太多了。这些组合攻击让我想起了《女神异闻录5 皇家版》里的联合攻击——尽管更短一点——我虽然很喜欢但最后也会选择跳过。对这一部分的感受只有时间能给出答案了！</blockquote>另一个本作的新功能则是<strong>「完美回避」</strong>：如果你在战斗中掌握恰当时机进行闪避，你就不会受伤，甚至还能在完美回避成功后按下特定按钮进行反击！但若闪避时机不对，那看起来就像是一个普通的回避动作。
+
+敌人也可能有弱点，如果你击中弱点，它们会受到更多伤害或被击晕。有时候你可以直接锁定敌人身上的弱点位置，在试玩版的 BOSS 战中你必须手动调整锁定至敌弱点处。
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/101858deqd9nudbe9b6tbq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (240.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:18 上传
+
+
+本作与旧作品相比，最大的变化当然是增加了一个名为 <strong>CP (Cure Points)</strong> 的点数池，位于上图的右侧中央处。该点数池是全队伍共享的，只有在使用治疗术或辅助法术的时候才会消耗它。与角色的 AG 不同，CP 不会随着时间推移自动回复，回复 CP 需要使用道具或在旅店/露营地休息。（译者注：上个月已经猜到 C 代表 "Cure"） <blockquote><strong>Shiina:</strong> 由于 CP 不能自动回复，因此我认为游戏可能是为了鼓励玩家在战斗中多使用回避动作。瞄准敌人弱点进行攻击也可以使战斗更有战术性，至少如果你希望战斗是这样的话：不习惯战斗的人、不喜欢的人，或者只想享受故事的玩家可以降低游戏难度。</blockquote>
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/102047coicnc9qivoguud4.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (130.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:20 上传
+
+
+ <blockquote><strong>Shiina:</strong> 最低难度不叫 "Easy"，而是 "Story"，是为了只想享受故事而不想被战斗所困的玩家准备的。我检查了 Story, Normal 和 Moderate 难度的游戏体验，可以感觉到三个难度下的游戏体验有明显区别，特别是 Story 和 Normal 之间的差距，（在 Normal 难度下）无论是普通战斗还是 BOSS 战，难度都是平衡的。在 Story 难度下你可以对敌人造成比其他难度更高的伤害，相应的，自己则受到更少的伤害。在 Normal 和 Moderate 难度之间，两者的主要区别是后者的敌人造成的伤害会更多。实际上，与 Normal 难度相比，在 Moderate 难度下的 BOSS 战中我使用的道具数量更少，因为我此时已经习惯战斗，并且稳定控制一个我能熟练操作的角色。
+
+
+就我个人看来，我觉得今年早些时候玩的《伊苏8》中的完美回避效果更好，但由于我在两个游戏投入的时长差距很大，现在做出结论可能为时尚早。在《伊苏8》中也没有负责治疗的角色，道具万岁……</blockquote>
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/102653xx7p7db055yodx08.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (295.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:26 上传
+
+
+琳薇尔：wow，奇莎兰，好大！
+奇莎兰：你-你在说我的盾牌，是吧？ <blockquote><strong>Lex:</strong> 我自己非常喜欢角色间的互动，无论是在战斗中还是原野探索时，听他们互动说的话都很有趣。（这并不新鲜，在 Tales of Zestiria 和 Berseria 中也有这种互动）在我看来，这种有趣的互动模式，至少对我来说弥补了没有胜利后表演的缺失感。无论是角色对话还是胜利后表演，它们的目的是相同的——毕竟最有趣的胜利短剧也是因为角色间的交流才富有趣味。</blockquote>接下来是原野探索部分，玩过 Tales of Xillia/2, Zestiria 或 Berseria 的人应该会很熟悉：一个可以调整的摄像机画面、地图上的探索和互动地点，这些都是上述作品已有的东西。探索点不是完全随机的：如果你靠近一株植物，你可能可以获得草药或果实；如果你靠近一头牛，你可以获得牛奶！由于 Tales of Arise 中角色可以游泳，因此你也可以在水里摸鱼。
+
+<img src="https://img.saraba1st.com/forum/202106/23/102842rmxyzvd0kuag0vd0.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (260.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:28 上传
+
+
+根据你拾取物品的不同，角色可能在拾取时会有不同的动作，而不是简单的按下按钮-捡起来的样子。每个角色开启宝箱的动作都不一样，从高地跃下和离开水域的反应也各有不同。正如上文中 Lex 提及的，在原野探索和战斗中，各角色间也会有互动。
+
+<img src="https://img.saraba1st.com/forum/202106/23/102955rn2ncz2y11o28w8r.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (329.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:29 上传
+
+
+除了你的队伍之外，敌人也与所处环境有着紧密联系：无论是在水中放电的怪物，还是从地下冒出来攻击你的石像，都能印证这一点。虽然你遭遇怪物时依然会切换至一个独立的战斗空间，但现在如果在你视野之外的某个方向有敌人在附近，你的画面中就会有对应方向的标记。（译者注：不仅如此，在原野中看见的怪物，种类和数量都与进入战斗后是一致的）
+
+在篝火附近，玩家可以进行<strong>露营</strong>，这将回复 HP, CP，还可以进行烹饪！如果某个角色擅长烹饪某个特定餐点，该餐点的效果可能会有所变更，例如餐点效果持续时间缩短但效果比普通状况更强。
+
+<img src="https://img.saraba1st.com/forum/202106/23/103342qniq9yijmkwh4x3m.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (144.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:33 上传
+
+
+ <blockquote><strong>Lex:</strong> 关于标记：如果你喜欢避免战斗，只想快速推进故事情节，你可以从怪物身边跑得远远的——至少可以尝试这样做，因为你不能保证自己一定能逃出它们的手掌心。但如果你想多挣点经验值，或者你就是想干翻一切敌人，那想发现敌人也是很容易的，因此我觉得这种混合感很完美。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/103505jdgxlxixdnvwdab6.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (272.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:35 上传
+
+
+ <blockquote><strong>Lex:</strong> 本作的环境缺少以往作品中的“卡通感”，但非常丰富多彩，也非常漂亮，总体令人非常愉悦。在本试玩版中，我最喜欢的惊喜之处就是看到了一个“猪兔牧场”（译者注：猪兔是以前的作品出现过的一种生物，如上图示），我尖叫着在它们身边蹦蹦跳跳好一会儿，哈哈。感谢这些细节，让我依然觉得本作环境非常有 Tales 系列的沉浸感。我并不觉得他们打算给游戏提供超级逼真的画面（就像一些人在早期的视频或文章里担心的那样），而是只想给 Tales 系列提供更漂亮的画面效果——在这个试玩版里，上述效果已然实现。Tales of Berseria 已经让人感觉很漂亮，但 Arise 正进一步提升到更漂亮的水平。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/103556t1td0yx5xtbbbbb2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (240.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/103602da8a73j9j9d137ud.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (194.17 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:36 上传
+
+
+图片：在水中捡起了一枚苹果软糖，希侬说“这东西真的应该在这儿嘛？” <blockquote><strong>Lex:</strong> 但这并不意味着它不再是一个 Tales 系列游戏……角色们依然会因为在奇怪的地方发现苹果软糖而感到诧异。😀
+
+（译者注：想想 Tales of Vesperia 里，由利与牢房马桶的互动……）</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/103806gzavlop28f687af8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (345.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:38 上传
+
+
+ <blockquote><strong>Shiina:</strong> 我得再提一次，我很喜欢这些细节，就像上文 Lex 提到的那样，即使是在这么短的试玩版中也有太多细节可以列举。例如希侬从水中出来时打了个喷嚏，还有琳薇尔从高处跳下来后被绊倒，担心是否有人看到她的失态。
+
+
+与我们之前看过的大部分片段（译者注：也许是之前7分钟展示的卡拉葛利亚和西斯罗狄亚地区）相比，试玩中的地区看起来色彩更丰富，而且明显有划分不同的区域，就像一个牧场。画面可能看起来有点逼真，但是保有一种柔和感。我个人认为画面看起来很像一本迷人的图画册，而我在观看视频的时候却完全没有这种感觉。虽然我之前没有看过多少视频，但这仍然是一种惊喜。另外，水——特别是光照的效果！当太阳要下山的时候，我跳进河里游泳，下午太阳的倒影着实令人惊叹。
+
+
+游戏中的时间似乎在流逝，光照也会相应发生变化——我没有观察很长时间，但这应该会很有意思！</blockquote>
+
+<strong>结语</strong>
+
+<img src="https://img.saraba1st.com/forum/202106/23/104132m95jujq3fgoq3u39.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (396.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:41 上传
+
+
+ <blockquote><strong>Shiina:</strong> 我从本次试玩了解到的最重要的东西，就是尽管游戏看起来有这么多变化，它给我的感觉依然还是一个 Tales 系列游戏。我之前并不确定，但我不想妄下定论，因为早在 Tales of Xillia 还在制作中的时候我已经犯了一次这样的错误。
+
+
+我知道“哪些地方让 Tales 系列游戏看起来像 Tales”这是因人而异的，但是，至少对我而言，这部作品像是一个 Tales 系列游戏。我把这种感觉主要归功于角色，但也要归功于之前提及的许多游戏里的点滴细节。预告片带来的 Tales 感是不够的。
+
+
+最近，朋友们最强烈的意见似乎是缺少多人游戏（译者注：本作只能单人游玩，没有任何环节支持超过1人进行控制），但我自己玩了试玩版数小时后，我觉得不可能在不破坏当前游戏运行机理的前提下把多人控制加入到游戏中。我知道这种话由我说很容易，因为我在游玩本系列时85%的时间是独自游玩，但这就是我的印象。就算这说起来很不好听，但本作的战斗系统就是为单人游玩进行优化的。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/104219cvrwmxsx4vd6smwm.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (261.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:42 上传
+
+
+ <blockquote><strong>Shiina:</strong> 关于胜利后演出，它们本可以加入到游戏里……但是，正如 Lex 之前所说，角色们在战斗中说了那么多话，老实说我自己并不怀念它们。
+
+
+我最难适应的地方是把 R1 按钮作为默认的普通攻击按键。我们可以完全自定义按钮操作，所以正式版发售后我可能会更改它们的按键配置。（译者注：已经公布的截图里确实有更改按键设定的选项）</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/104325xif52hh35zw20h9k.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (242.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:43 上传
+
+
+ <blockquote><strong>Shiina:</strong> 由于我们是通过流媒体传输游玩的试玩版（译者注：国内媒体也有提及这一点，请浏览“篝火营地”的相关文章），所以我不能谈太多关于各版本的加载时间和画面质量。我设置为最高规格（译者注：不知道是游戏内画面还是流媒体传输品质？），因此一切都相当快，我没有遇到什么问题。如果要说有什么问题，我注意到在露营时，角色衣物的细节纹理的加载似乎没有及时跟上来。根据我玩《最终幻想14》和《原神》的经验，我估计 PS4 上的加载时间通常会比 PS5/PC 要长一些。
+
+
+最后同样重要的是：我不能操作希侬来救自己的命。
+
+
+还有：琳薇尔和洛两人的玩笑令我感到开心。
+
+
+我对于获得此次试玩机会的感激之情无以言表，它使我对游戏的期待值至少提升到此前的三倍。谢谢你，876（原文为 BNE，即万代南梦宫娱乐）。</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/104500xr8pqu0dz087app0.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (188.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:45 上传
+
+
+ <blockquote><strong>Lex:</strong> 我不像 Shiina 那么擅于在自己的反馈里加上那么多辞藻，因此我将根据自己的感受来做出结论：我很喜欢游玩这个试玩版。我预期这部作品会有点陌生感，但实际上没有。
+
+
+当我第一次开始玩 Tales of Xillia 时，我花了几个小时自言自语，说这根本不像 Tales 系列游戏，而 Tales of Graces f 则要好得多。现在回忆起来，我觉得很蠢，但那就是我当时的感受——不过这种感觉没有持续太久。现在，两部 Xillia 都是我喜欢的 Tales 游戏。因此，也许 Tales of Xillia 才是我试图保持开放心态深入 Tales of Arise 的原因。我和其他人一样感到恐惧，不管我怎样告诉自己：它们实际上是我试图保持开放心态的根本原因。然而事实证明，我不需要那么“开放”，在短暂地纠结于控制方式之后，我终于开始享受游戏，并立刻被熟悉的细节吸引。角色们充满趣味的发言、交谈、猪兔……很快我就有了身处家中的感觉。我没预料到自己会因为一个几乎没有故事的试玩内容而喜欢上这些角色——但我确实喜欢上了！</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/104632l7mchtgf8loggfn8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (198.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:46 上传
+
+
+ <blockquote><strong>Lex:</strong> 从视觉上看来，游戏非常漂亮——尽管我们不得不通过流媒体传输来游玩，导致游戏画面在我的设备上看起来有点颗粒感。有趣的是：我的伙伴数年来一直取笑我喜欢的 Tales 系列的画面质量，因为不管这些作品的画面有多漂亮，它们总是有点“次于”当时我们能接触到的最好的画面效果。说实话，我从不介意，也不能说他说的全是错的。但是这次，我等不及让他看一看 Tales of Arise 然后告诉我这画面很漂亮，因为我可以肯定他不会有别的答案！（让我们九月再看看 :D）</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/23/104651oou2azu1h0uzpe32.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (278.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-23 10:46 上传
+
+
+ <blockquote><strong>Lex:</strong> 如果你对这个游戏还有疑虑（这可以理解），我依然恳求你，可以的话请给它一个机会。我有一种感觉，那就是我们会对 Tales of Arise 感到惊喜，至少我在体验试玩版之后是这样的，我玩了试玩版之后的兴奋感甚至能直通云霄。现在我知道当 Tales of Arise 上市后，我会搁着其他游戏暂时不动，然而一开始我不确定自己会不会这样。</blockquote>——————————
+
+全文完
+
+
+image.png
+(147.24 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-23 10:00 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/100036tpnlf3el0pf7lsb6.png" referrerpolicy="no-referrer">
+
+
+image.png
+(198.6 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-23 10:01 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/23/100116i4t0ono7uuoe7oz3.png" referrerpolicy="no-referrer">
+
+
+                                                 
