@@ -5221,3 +5221,33 @@ Blue Box发布Nuare Studio创办人Leo Enin录制的一分钟视频。Leo称it�
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 388#       发表于 2021-6-24 06:52
+
+
+<img src="https://p.sda1.dev/2/582b57c295e7c65ef7862fd1ece6021d/DA777895-ABE9-4100-80C2-2C8D83E7F435.jpeg" referrerpolicy="no-referrer">
+
+@Junakr
+
+坛友跟4chan撞梗草
+
+
+-----
+
+####  luoyianwu  
+##### 389#       发表于 2021-6-24 06:56
+
+
+ 本帖最后由 luoyianwu 于 2021-6-24 06:59 编辑 
+
+<img src="https://p.sda1.dev/2/f4740d6f09ffbc523b02e91f12cf2ad9/876E7CAC-0708-4FF1-ADA5-A447E0FB115E.webp" referrerpolicy="no-referrer">
+
+热门阴谋论。
+
+Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二月暗示自己正在开发一款“知名恐怖游戏ip”。
+
+
+                                                 
