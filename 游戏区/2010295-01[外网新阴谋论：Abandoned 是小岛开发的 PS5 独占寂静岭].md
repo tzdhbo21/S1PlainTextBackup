@@ -5157,3 +5157,19 @@ reddit的r/TheBlueBoxConspiracy重开了。
 
 
                                                  
+
+-----
+
+####  战狼PTSD  
+##### 383#       发表于 2021-6-24 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51698556&amp;ptid=2010295" target="_blank">rak1 发表于 2021-6-22 16:15</a>
+
+没搞懂，这一连串操作到底是该厂商有意为之还是岛粉自嗨</blockquote>
+碰瓷厂商碰上自嗨粉丝，整了个大活。
+
+反正最后哪怕是真的我也要喷**营销，假的那更**了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
