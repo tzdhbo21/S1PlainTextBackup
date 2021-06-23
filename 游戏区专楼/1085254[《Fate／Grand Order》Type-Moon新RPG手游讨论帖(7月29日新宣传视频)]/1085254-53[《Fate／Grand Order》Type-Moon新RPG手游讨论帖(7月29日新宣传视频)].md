@@ -16513,3 +16513,39 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 79359#       发表于 2021-6-24 04:48
+
+
+ 本帖最后由 森兰丸 于 2021-6-24 04:52 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/045036uaakgk0bqo6s0m89.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (178.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-24 04:50 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/045110ao1nibi1bl1tfq1h.png" referrerpolicy="no-referrer">
+
+
+<strong>2.png</strong> (122.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-24 04:51 上传
+
+
+忍不住出来豹跳一下.....之前刚开卡池的时候大概仓了400多石头和30多张护肤.....想着摩根怎么也能有个2宝吧....结果就出了1摩根和3宝妖崔
+
+之后的石头也是都扔进去照旧无事发生......没想到今天送的30石直接跳双黄.....虽然还是没妖高不过无所谓了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                 

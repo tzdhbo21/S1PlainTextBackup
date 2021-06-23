@@ -5184,3 +5184,20 @@ reddit的r/TheBlueBoxConspiracy重开了。
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 385#       发表于 2021-6-24 05:21
+
+
+ 本帖最后由 luoyianwu 于 2021-6-24 05:26 编辑 
+
+[https://twitter.com/bbgamestudios/status/1407805686533197831](https://twitter.com/bbgamestudios/status/1407805686533197831)
+
+Blue Box发布Nuare Studio创办人Leo Enin录制的一分钟视频。Leo称it’s very exciting to work with our friends from Blue Box Gaming Studios
+
+为什么Nuare肯花功夫为一个AA级小客户出面澄清呢<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+                                                 
