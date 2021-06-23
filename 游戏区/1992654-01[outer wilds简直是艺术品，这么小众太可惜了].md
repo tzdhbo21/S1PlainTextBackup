@@ -2840,3 +2840,18 @@ https://www.bilibili.com/read/cv6290793
 
 
                                                  
+
+-----
+
+####  pgain2004  
+##### 211#       发表于 2021-6-23 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51709132&amp;ptid=1992654" target="_blank">时之放浪者 发表于 2021-6-23 13:25</a>
+玩了之后就一个想法，银河战士MP4团队快把这个制作人挖过去啊！不要找些有的没的的业界大佬去。
+
+想象outwil ...</blockquote>
+你想想看这作品打磨了多久……后续能不能保持或者更进一步都是问题，所以很关注这次DLC
+
+
+                                                 
