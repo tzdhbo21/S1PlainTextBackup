@@ -3933,3 +3933,17 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  godless2020  
+##### 1766#       发表于 2021-6-25 07:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51720804&amp;ptid=1860328" target="_blank">基情飞扬 发表于 2021-6-24 12:44</a>
+
+这作ps4版能升级ps5版吗，只定了ps4版，不是不想体验高分辨率和帧数，而是那sb游戏机买不到 ...</blockquote>
+不是买不到·，是你愿不愿意溢价2000多买
+
+
+                                                 
