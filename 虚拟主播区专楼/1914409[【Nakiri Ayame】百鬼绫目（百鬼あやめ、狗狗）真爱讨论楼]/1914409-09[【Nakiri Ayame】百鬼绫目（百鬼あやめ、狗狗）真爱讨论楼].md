@@ -4552,3 +4552,82 @@ bsyl，这把看id是被狙击了吧，要死了
 
 
                                                  
+
+-----
+
+####  ylssb10438  
+##### 12402#       发表于 2021-6-24 18:31
+
+
+日服大部分都是中国人吧
+
+
+-----
+
+####  Fami水  
+##### 12403#       发表于 2021-6-24 18:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来就人少 还组排 那就更容易匹到了
+
+
+-----
+
+####  昆西昆希昆  
+##### 12404#       发表于 2021-6-24 18:50
+
+
+了解，现在就去jp服开号
+
+
+-----
+
+####  昆西昆希昆  
+##### 12405#       发表于 2021-6-24 18:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210624185048.jpg
+(178.69 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-24 18:51 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/185118ez47hzab7a4yeh2x.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12406#       发表于 2021-6-24 18:53
+
+
+不摆烂装死难道跟夸宝太紫那样里外不是人吗 老实等好不好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nian1538  
+##### 12407#       发表于 2021-6-24 19:00
+
+
+紫宝的态度很明确啊
+而且装死一样会被愤怒（）干爆，还是指望夸宝盾挡到这波结束吧
+
+
+-----
+
+####  天悬星河  
+##### 12408#       发表于 2021-6-24 19:04
+
+
+有这么一群泥哥粉丝同担有时候还挺恶心人的，但是想到隔壁夸夸那么惨也就平衡了😌
+
+
+                                                 
