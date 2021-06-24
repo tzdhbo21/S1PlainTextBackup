@@ -3066,3 +3066,48 @@ q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五
 
 
                                                  
+
+-----
+
+####  lydia5989  
+##### 1738#       发表于 2021-6-24 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51724283&amp;ptid=1963832" target="_blank">丹德里恩 发表于 2021-6-24 17:17</a>
+
+你们在聊什么J8+1.....
+
+万一萝拉能随时切换你们是不是要找块砖头撞死算了？ ...</blockquote>
+估计可以。。。不然那个人鱼平板玩具卖给谁？那海豹还不得成了史上待遇最好的妖精，不用干活，光吃，还有别墅住
+
+
+-----
+
+####  isa2456  
+##### 1739#       发表于 2021-6-24 17:32
+
+
+今年能跟微笑联动就挺好的，话说治愈的剧场版碟发售没啊，爱奇艺也不表个态<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Blackson  
+##### 1740#       发表于 2021-6-24 17:48
+
+
+看这隐藏宣传，估计今年是没有独立剧场版了
+
+
+
+
+-----
+
+####  过气页游  
+##### 1741#       发表于 2021-6-24 18:20
+
+
+想起宣传PV里  summer在雪地里喊トロピカってる<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                

@@ -16808,3 +16808,21 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79378#       发表于 2021-6-24 18:20
+
+
+<blockquote>引用第79376楼alucardcz于2021-06-24 17:14发表的  :
+
+引用:黑上シグマ 发表于 2021-6-24 17:07不不不，叶哥哥可是说好了开能拿新素材的活动，......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那肯定得下周三啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">然后再后篇预热混一周，完美
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                 

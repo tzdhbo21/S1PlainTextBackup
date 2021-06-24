@@ -4512,3 +4512,43 @@ bsyl，这把看id是被狙击了吧，要死了
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 12398#       发表于 2021-6-24 17:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赢两把奖励一把狐狸是吧。
+
+
+-----
+
+####  cctvyt1  
+##### 12399#       发表于 2021-6-24 18:00
+
+
+开黑的有在sj你楼吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一两个月没转播 刚讲完在LOL就去狙
+
+
+-----
+
+####  昆西昆希昆  
+##### 12400#       发表于 2021-6-24 18:10
+
+
+这是怎么狙到的，日服没人玩的是吧
+
+
+-----
+
+####  yuandi0120  
+##### 12401#       发表于 2021-6-24 18:15
+
+
+被这么狙也能打得下去，妹夫对绫总那是真爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
