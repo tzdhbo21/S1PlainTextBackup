@@ -16562,3 +16562,17 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79361#       发表于 2021-6-24 10:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51717215&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-6-24 04:48</a>
+
+忍不住出来豹跳一下.....之前刚开卡池的时候大概仓了400多石头和30多张护肤.....想着摩根怎么也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">欧羡慕 萌新也想要这种欧气
+
+
+                                                 
