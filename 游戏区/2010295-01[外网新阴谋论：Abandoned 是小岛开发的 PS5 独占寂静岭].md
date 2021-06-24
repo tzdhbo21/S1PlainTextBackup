@@ -5251,3 +5251,47 @@ Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二�
 
 
                                                  
+
+-----
+
+####  陈玉礼  
+##### 390#       发表于 2021-6-24 08:30
+
+
+最后是灵媒那家给你做个《寂静岭：步行模拟器》就好玩了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  矢量路比  
+##### 391#         楼主| 发表于 2021-6-24 09:10
+
+
+不要啊不要啊
+
+
+-----
+
+####  日日日日日野  
+##### 392#       发表于 2021-6-24 09:24
+
+
+<blockquote>luoyianwu 发表于 2021-6-24 06:56
+热门阴谋论。
+
+Bloober Team是开发the Medium的波兰工作室。这家工作室在今年二月暗示自己正在开发一款“知 ...</blockquote>
+这大哥的手势不就是麦子叔的手势……
+
+
+-----
+
+####  小泉花陽  
+##### 393#       发表于 2021-6-24 09:30
+
+
+到底是真还是假，明天demo上线应该就能知道了，先不说是不是寂静岭，单是这demo质量一般的话这制作组就有的好受了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                
