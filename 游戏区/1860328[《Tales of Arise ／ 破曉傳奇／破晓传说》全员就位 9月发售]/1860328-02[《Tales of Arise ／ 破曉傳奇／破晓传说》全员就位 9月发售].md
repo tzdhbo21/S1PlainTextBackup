@@ -3842,3 +3842,42 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  LiberaMe  
+##### 1759#       发表于 2021-6-24 14:14
+
+
+ 本帖最后由 LiberaMe 于 2021-6-24 14:17 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721494&amp;ptid=1860328" target="_blank">feizong 发表于 2021-6-24 13:34</a>
+
+我一直觉得这作，明明配角设计都挺正常也好看的，男女主角怎么就这么难看 ...</blockquote>
+男女主角到底哪里难看了？
+
+
+倒是黑皮和格斗士·····排除个人品味问题，这两位哥哪里好看了？重合度还贼高
+
+
+-----
+
+####  LiberaMe  
+##### 1760#       发表于 2021-6-24 14:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51715904&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-6-23 23:24</a>
+
+制作人说，建议有新游戏机的都去玩新游戏机版，旧游戏机性能可能不会很好。 ...</blockquote>
+那看来只能xbox数字版了，淘宝上能直接外区便宜点买好像？
+
+
+-----
+
+####  宛若青空  
+##### 1761#       发表于 2021-6-24 14:17
+
+
+说真的，讨论人设这种客观审美问题真没意思，争也争不来个结论，隔壁黎轨也是这样，真是够了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -17116,3 +17116,75 @@ king不来同接至少得掉2w，那可不行
 
 
                                                  
+
+-----
+
+####  SuntoryNomu  
+##### 2844#       发表于 2021-6-24 13:39
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/133808trir8d3xczlxc3vd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>_20210624_133758.JPG</strong> (300.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-24 13:38 上传
+
+
+我也好这口儿，那咋办嘛。
+
+[https://weibo.com/6979797100/Ioct2sqdm](https://weibo.com/6979797100/Ioct2sqdm)
+
+
+-----
+
+####  Suny08  
+##### 2845#       发表于 2021-6-24 14:01
+
+
+看串里无比兴奋仿佛找到了又一个有希望可以打败apex的金游的样子，king:不好意思这游戏又是我的主场，不过腾讯估计没想到能靠这换皮王者打穿日本市场吧
+
+
+-----
+
+####  bluebaby  
+##### 2846#       发表于 2021-6-24 14:05
+
+
+ 本帖最后由 bluebaby 于 2021-6-24 14:08 编辑 
+
+错楼编辑了
+
+
+-----
+
+####  Junchoon  
+##### 2847#       发表于 2021-6-24 14:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721396&amp;ptid=1972669" target="_blank">Lucy_Diamonds 发表于 2021-6-24 13:25</a>
+我宣布老凛是你虹第一机师 成天能看到她的嫌弃脸表情包引起大群的想和老凛s○x的呼声 ...</blockquote>
+来点图啊大兄弟……
+
+
+-----
+
+####  FCCHua  
+##### 2848#       发表于 2021-6-24 14:28
+
+
+相比这个游戏，那还是继续apex吧<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 2849#       发表于 2021-6-24 14:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 火不起来的，JP人不喜欢对抗性强的游戏（笑）
+
+
+                                                 

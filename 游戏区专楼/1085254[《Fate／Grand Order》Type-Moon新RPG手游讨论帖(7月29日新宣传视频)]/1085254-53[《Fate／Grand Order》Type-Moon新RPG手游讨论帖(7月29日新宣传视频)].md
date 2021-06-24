@@ -16626,3 +16626,105 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79366#       发表于 2021-6-24 13:44
+
+
+<blockquote>引用第79364楼alucardcz于2021-06-24 13:21发表的  :
+
+引用:森兰丸 发表于 2021-6-24 13:08可是萌新不是已经在我之前刚豹跳过了么萌新那可是时......</blockquote>
+也就是说还有很多不是new的五星，我们懂的
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 79367#       发表于 2021-6-24 13:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721614&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-24 13:44</a>
+
+也就是说还有很多不是new的五星，我们懂的
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">常驻的也能叫出货吗 那叫歪（
+
+
+-----
+
+####  exiaexa  
+##### 79368#       发表于 2021-6-24 14:10
+
+
+笑死，皇女这个幕间真是太有东出擦屁股的风格了
+
+撇这么干净是怕今年的泳装卖不出去吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+顺便李白那个就是司马懿啊
+
+单纯就是你游没有别的中华男角色能用，总不能把李大师放上去
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79369#       发表于 2021-6-24 14:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721928&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-24 14:10</a>
+笑死，皇女这个幕间真是太有东出擦屁股的风格了
+
+撇这么干净是怕今年的泳装卖不出去吗</blockquote>
+陈宫：？
+
+
+-----
+
+####  exiaexa  
+##### 79370#       发表于 2021-6-24 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721934&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-6-24 14:10</a>
+
+陈宫：？</blockquote>
+讲道理陈宫用不了嘛，你放陈宫上去的欢乐程度不亚于放赤兔上去
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+大唐烟花诗人李太白
+
+想想都笑出声
+
+
+-----
+
+####  alucardcz  
+##### 79371#       发表于 2021-6-24 14:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说现在该多少dl了 赶紧的
+
+
+-----
+
+####  exiaexa  
+##### 79372#       发表于 2021-6-24 14:21
+
+
+我记得2200w是去年11月，2300w是今年2月
+
+幕间完了还能塞一个2400w没毛病
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
