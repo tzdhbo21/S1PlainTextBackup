@@ -17398,3 +17398,40 @@ king不来同接至少得掉2w，那可不行
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 2866#       发表于 2021-6-24 19:48
+
+
+最协8.22<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 2867#       发表于 2021-6-24 19:59
+
+
+这几天还有一个什么apex比赛，感觉你日apex比赛可以连着办一年不带停的。
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 2868#       发表于 2021-6-24 20:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51723807&amp;ptid=1972669" target="_blank">Junchoon 发表于 2021-6-24 16:36</a>
+
+哎呦妈呀，这发型、这表情，谁把持的住啊……
+
+
+话说这套皮我怎么没见过？凛前辈的皮确实多得让人垂涎…… ...</blockquote>
+这发型应该是在皮上改的 是FF14里的发型
+
+syl 大的要来了 是什么我不说
+
+
+                                                 
