@@ -17071,3 +17071,14 @@ king不来同接至少得掉2w，那可不行
 
 
                                                  
+
+-----
+
+####  qq845629713  
+##### 2840#       发表于 2021-6-24 11:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 天美出的那个宝可梦moba今天日服开测了，椎名在玩，看着还挺意外的好玩
+
+
+                                                 
