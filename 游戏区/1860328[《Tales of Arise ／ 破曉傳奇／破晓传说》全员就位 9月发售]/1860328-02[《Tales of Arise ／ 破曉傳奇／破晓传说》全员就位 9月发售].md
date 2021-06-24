@@ -3895,3 +3895,27 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1763#         楼主| 发表于 2021-6-25 02:04
+
+
+夜深了，突然想起之前有几个夜晚是玩着 Tales of Zestiria 度过的，然后想到了里面的很多对话一股油腻大叔味儿，果然这游戏气质就不对劲……目前看来 Tales of Arise 已知的部分大都是比较满意的，虽然删了一些东西但替代方案也很有特点。距离正式发售还有77日（楼主 PC 版），距离下一轮情报还有10日，也许最重要的游戏世界观全貌就看这一次公布了。
+
+顺便一提，媒体和知名播客是能提前很长一段时间知道信息的，只不过保密很严格，没有人会主动透露。
+
+
+-----
+
+####  宛若青空  
+##### 1764#       发表于 2021-6-25 02:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730107&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-6-25 02:04</a>
+夜深了，突然想起之前有几个夜晚是玩着 Tales of Zestiria 度过的，然后想到了里面的很多对话一股油腻大叔 ...</blockquote>
+希望这次能让传说真正重生续下去<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+                                                 

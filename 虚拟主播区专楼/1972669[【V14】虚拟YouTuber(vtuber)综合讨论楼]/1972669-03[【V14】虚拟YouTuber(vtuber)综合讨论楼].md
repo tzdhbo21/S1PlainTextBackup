@@ -1015,3 +1015,90 @@ syl 疫情和线下骚扰估计露露隐退之前问题吧，之前说还有个�
 
 
                                                 
+
+-----
+
+####  qq845629713  
+##### 3035#       发表于 2021-6-25 01:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer"> 刚刚闭目养神休息，一转念就回到了19年bml，月丿阿凛德龙来沪参演，
+
+
+那时候就真心觉得：“哇，这么美好，以后管人、彩虹、批站、冲国会产生多么美好的邂逅和缘分”
+
+
+然后，谁能想到，今天变成这样了，
+
+
+管人，你把多少好人都tm给毁了
+
+
+-----
+
+####  不想当咸鱼  
+##### 3036#       发表于 2021-6-25 01:43
+
+
+听完隐退告知，听完secret base，都还好
+听到変わらないもの还是有点破防<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  percy1234  
+##### 3037#       发表于 2021-6-25 01:47
+
+
+干脆梦回18年天皇被装进纸箱子抬出会场好了<img src="https://static.saraba1st.com/image/smiley/face2017/154.png" referrerpolicy="no-referrer">
+回不去了，都回不去了
+
+
+-----
+
+####  Ketestrait  
+##### 3038#       发表于 2021-6-25 01:52
+
+
+変わらないものなんて……この世にない<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 3039#       发表于 2021-6-25 02:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729684&amp;ptid=1972669" target="_blank">flyskywalker92 发表于 2021-6-25 00:46</a>
+
+好久不跟版本，bora怎么了。。</blockquote>
+休止，没说回归时间
+
+我们几个bora信的看法是事实毕业
+
+
+-----
+
+####  真田源次郎信繁  
+##### 3040#       发表于 2021-6-25 02:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729984&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-6-25 01:37</a>
+
+刚刚闭目养神休息，一转念就回到了19年bml，月丿阿凛德龙来沪参演，
+
+
+那时候就真心觉得：“哇，这 ...</blockquote>
+这不是你上海拉了一泡屎改变了世界线嘛<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 3041#       发表于 2021-6-25 02:32
+
+
+小夜播了，但没完全播
+
+
+                                                 
