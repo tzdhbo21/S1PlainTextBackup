@@ -897,3 +897,121 @@ EN三人组不温不火怎么办？花点本社给的钱上上活动露露脸吧
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 3025#       发表于 2021-6-25 00:46
+
+
+ 本帖最后由 FCCHua 于 2021-6-25 00:59 编辑 
+
+并不想立flag
+小偶像我觉得反而还好？3d后还没在自己频道用初始皮直播过，更了很多歌舞投稿，变成视频势了确信，不过在别人频道的联动并没有拉下
+顺便她什么时候新衣服了？那不是直接换了一个新形象的机体吗<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flyskywalker92  
+##### 3026#       发表于 2021-6-25 00:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51727495&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-24 21:44</a>
+唯一的安慰是大家都知道去哪找露露…
+真要说本体开播也不是不可能
+有了bora的铺垫</blockquote>
+好久不跟版本，bora怎么了。。
+
+
+-----
+
+####  死体残留  
+##### 3027#       发表于 2021-6-25 00:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">话说有没有贷款下虹最近怎么这么多工商，还是fes亏钱亏到爆了
+
+syl 疫情和线下骚扰估计露露隐退之前问题吧，之前说还有个人live的疫情原因变成投稿了，骚扰不用说了，兔头坚持下来还能当梗说真是很厉害
+
+
+-----
+
+####  asdhai  
+##### 3028#       发表于 2021-6-25 01:03
+
+
+又润了个。
+
+都可以润，白茫茫一片。
+
+
+-----
+
+####  哈曼的YY  
+##### 3029#       发表于 2021-6-25 01:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729617&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-6-25 00:39</a>
+
+那个是她以前的队友</blockquote>
+看来只是怀念一下了
+
+
+这些毕业的vtb有没有本体继续做直播的啊
+
+
+-----
+
+####  nowaki  
+##### 3030#       发表于 2021-6-25 01:08
+
+
+桐生可可毕业后会继续直播，毕竟kson一直在播。
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 3031#       发表于 2021-6-25 01:11
+
+
+毕业之后千岁偶尔播，gbr看着要准备播，估计美大生早晚也会播。
+
+
+-----
+
+####  IDIDIDID  
+##### 3032#       发表于 2021-6-25 01:12
+
+
+🌈工商没啥好黑屁的，在团队比隔壁庞大得多但明面sc收成少得多的情况下肯定要靠工商补啊。
+
+
+-----
+
+####  OldGlory  
+##### 3033#       发表于 2021-6-25 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729834&amp;ptid=1972669" target="_blank">哈曼的YY 发表于 2021-6-25 01:07</a>
+
+看来只是怀念一下了
+
+
+这些毕业的vtb有没有本体继续做直播的啊</blockquote>
+有，但套个皮转生的更多一点
+
+
+-----
+
+####  死体残留  
+##### 3034#       发表于 2021-6-25 01:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">露露没播新版的恶魔之魂真是遗憾，还有明年的艾登之环
+
+
+                                                
