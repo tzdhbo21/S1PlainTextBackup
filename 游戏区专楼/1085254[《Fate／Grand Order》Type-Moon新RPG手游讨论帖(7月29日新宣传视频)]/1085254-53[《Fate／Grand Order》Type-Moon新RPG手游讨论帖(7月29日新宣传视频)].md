@@ -16576,3 +16576,53 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 79362#       发表于 2021-6-24 13:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51718689&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-24 10:14</a>
+
+欧羡慕 萌新也想要这种欧气</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是萌新不是已经在我之前刚豹跳过了么
+
+
+-----
+
+####  里村紅葉  
+##### 79363#       发表于 2021-6-24 13:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51718689&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-24 10:14</a>
+
+欧羡慕 萌新也想要这种欧气</blockquote>
+你不是石不过三吗，怎么双黄<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79364#       发表于 2021-6-24 13:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721250&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-24 13:15</a>
+
+你不是石不过三吗，怎么双黄</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">例如福袋？
+
+
+-----
+
+####  alucardcz  
+##### 79365#       发表于 2021-6-24 13:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721162&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-6-24 13:08</a>
+
+可是萌新不是已经在我之前刚豹跳过了么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新那可是时隔7个月的new
+
+
+                                                 

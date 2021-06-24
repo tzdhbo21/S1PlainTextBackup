@@ -3820,3 +3820,25 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  蓝雉  
+##### 1757#       发表于 2021-6-24 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51720804&amp;ptid=1860328" target="_blank">基情飞扬 发表于 2021-6-24 12:44</a>
+这作ps4版能升级ps5版吗，只定了ps4版，不是不想体验高分辨率和帧数，而是那sb游戏机买不到 ...</blockquote>
+可以
+
+
+-----
+
+####  feizong  
+##### 1758#       发表于 2021-6-24 13:34
+
+
+我一直觉得这作，明明配角设计都挺正常也好看的，男女主角怎么就这么难看
+
+
+                                                 
