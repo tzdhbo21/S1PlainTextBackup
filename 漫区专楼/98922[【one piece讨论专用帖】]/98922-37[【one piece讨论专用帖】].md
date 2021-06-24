@@ -15102,3 +15102,75 @@ op的本质是冒险
 
 
                                                  
+
+-----
+
+####  Freemasons  
+##### 55281#       发表于 2021-6-24 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728247&amp;ptid=98922" target="_blank">lqchina 发表于 2021-6-24 22:42</a>
+路飞躺平应该就是个普通的橡胶路人了吧，至今还没出海呢。
+
+
+路飞一直以来的实力名气，从没靠过他爹。卡普 ...</blockquote>
+没有他爹，第100话路飞就挂了。没有他爷爷，青雉那关也不可能过得去。
+
+
+-----
+
+####  陈玉礼  
+##### 55282#       发表于 2021-6-24 23:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728581&amp;ptid=98922" target="_blank">klzxs 发表于 2021-6-24 23:05</a>
+我不太懂 虽然我也不喜欢那种一切都是安排好的设定（先不讨论这里的果实究竟是不是这样）
+
+但海贼什 ...</blockquote>
+再迟从水都后也看明白了
+
+
+-----
+
+####  cdfjg  
+##### 55283#       发表于 2021-6-24 23:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51726138&amp;ptid=98922" target="_blank">触手皇帝 发表于 2021-6-24 19:46</a>
+ 自从出现时空穿越开始，谁再跟我说尾田草蛇灰线一伏千里我就想笑。</blockquote>
+尾田草蛇灰线一伏千里
+
+
+-----
+
+####  cdfjg  
+##### 55284#       发表于 2021-6-25 00:06
+
+
+橡胶果实不管将来有什么用，都不如草帽的意义，joyboy真要有什么特征那估计也是草帽
+最震撼的还是红发的草帽是罗杰给的，而且明明从小到大都戴罗杰的草帽却没人叫他草帽香克斯。
+
+最新的生命卡要出罗杰刀的名字了，到时候看
+
+
+-----
+
+####  klzxs  
+##### 55285#       发表于 2021-6-25 00:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">他爹他爷爷也就是普通的出手相助而已 他们不救也就别人救或换种方式脱困
+
+我觉得和想讨论的宿命论还是不一样的
+
+
+-----
+
+####  南条一间  
+##### 55286#       发表于 2021-6-25 00:34
+
+
+我记得世界政府的领导人依姆身边有一顶巨大的草帽，真要说命运之子我更希望让草帽作为自由精神的象征，通过草帽的传承来决定
+
+
+                                                 

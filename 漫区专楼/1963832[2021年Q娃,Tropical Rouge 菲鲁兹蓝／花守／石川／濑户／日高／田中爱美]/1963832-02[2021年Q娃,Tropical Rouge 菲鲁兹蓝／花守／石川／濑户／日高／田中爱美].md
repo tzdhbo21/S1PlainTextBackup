@@ -3235,3 +3235,103 @@ q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五
 
 
                                                  
+
+-----
+
+####  球獭  
+##### 1749#       发表于 2021-6-24 23:46
+
+
+大珍珠还是看的出戏<img src="https://p.sda1.dev/2/28d835c87e41556dae5c9af53c18b41e/IMG_CMP_39203285.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leleq  
+##### 1750#       发表于 2021-6-25 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51727822&amp;ptid=1963832" target="_blank">待宵 发表于 2021-6-24 22:12</a>
+
+算了吧，除了当年TV有几集比较特殊情况，剩下的尤其在联动时都是被制裁了的 ...</blockquote>
+嘛~毕竟大乃乃人设本来就格格不入 且如果真上罗武反而显得二爷太惨了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 所以还是奸笑吧
+
+
+-----
+
+####  PrincessBanana  
+##### 1751#       发表于 2021-6-25 00:14
+
+
+ 本帖最后由 PrincessBanana 于 2021-6-25 00:27 编辑 
+
+萝拉的人类ver.最棒的地方就是加的那个发箍，让人鱼看起来知性不少。
+
+感觉有种大小姐+小恶魔的味道了
+
+<img src="https://img.saraba1st.com/forum/202106/25/002504alkhpl3z37hkbjkk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>XXX.jpg</strong> (153.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:25 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/001355ps5obhirttz8oomq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210625001353.jpg</strong> (77.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:13 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/001118xskxhjf4dbd5x5hd.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210625000853.jpg</strong> (423.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:11 上传
+
+
+总到这时候才想起来这位怎么说也是女王候选~
+
+
+-----
+
+####  最强惠酱  
+##### 1752#       发表于 2021-6-25 00:33
+
+
+要说代价可能是从熟水变成生水不会游泳了吧，看下集预告的话？
+
+话说这次追加居然不是板冈锦，大胆一点后面会不会再来一个，比如会长<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+夏夏在水里解除变身还得听完反派讲话才上岸这个看的真着急。。
+
+
+-----
+
+####  最强惠酱  
+##### 1753#       发表于 2021-6-25 00:35
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/003426kgynw3hkk388zwpp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>21.jpg</strong> (62.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:34 上传
+
+
+不亏是内裤老师，怪物在裤裆下爆炸的视角，就想看这个<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+                                                 

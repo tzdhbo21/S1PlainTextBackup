@@ -706,3 +706,194 @@ EN三人组不温不火怎么办？花点本社给的钱上上活动露露脸吧
 
 
                                                
+
+-----
+
+####  fghc_h  
+##### 3007#       发表于 2021-6-24 23:40
+
+
+杏老早从en热度过后就走下坡路了，当然了虹就更早了
+
+
+-----
+
+####  yuandi0120  
+##### 3008#       发表于 2021-6-24 23:47
+
+
+结论：日V💊
+
+
+-----
+
+####  fastary  
+##### 3009#       发表于 2021-6-24 23:49
+
+
+ 本帖最后由 fastary 于 2021-6-24 23:57 编辑 
+
+别提男人了，黛灰真毕业的话男人也开始走了，那真是毒奶大发了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">虽然他走了对你虹偏男v箱的势头也造成不了啥打击，好歹也算男v前排订阅（x19组下半年看起来最有可能没了的就这位，本来六月这一个月拖拖拉拉搞这么久我逐渐觉得他只是要开第二季，今天又心里没底了……
+
+妈的，这个人到底要走要留能不能赶紧给个准啊，早死早超生<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 3010#       发表于 2021-6-24 23:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">鲨皇新衣，兔皇ff大结局刷新记录都是这两个月的事情，这杏也叫走下坡路么
+
+
+-----
+
+####  真飞鸟i  
+##### 3011#       发表于 2021-6-24 23:51
+
+
+这么说起来露露好像蛮早就被从宣传上撤下来了？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  昆西昆希昆  
+##### 3012#       发表于 2021-6-25 00:11
+
+
+这么说来业界还剩几天啊
+
+
+-----
+
+####  哈曼的YY  
+##### 3013#       发表于 2021-6-25 00:14
+
+
+魔王，凯旋了
+
+
+我看魂号前几天还发了个推 看着像什么组合的照片 难道是找到新组合了？
+
+
+-----
+
+####  酒瓶止迁  
+##### 3014#       发表于 2021-6-25 00:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729168&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-6-24 23:51</a>
+
+这么说起来露露好像蛮早就被从宣传上撤下来了？
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next- ...</blockquote>
+可能之前就已经确定不续约了……
+
+
+-----
+
+####  CielChloe  
+##### 3015#       发表于 2021-6-25 00:20
+
+
+ 本帖最后由 CielChloe 于 2021-6-25 00:22 编辑 
+
+假使虹杏都完了，业界也不会完的，只会向下一个阶段演进，心累的老人离开，新鲜的韭菜加入。
+
+
+-----
+
+####  Aisuti  
+##### 3016#       发表于 2021-6-25 00:23
+
+
+露露结尾唱了一首変わらないもの <img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flyskywalker92  
+##### 3017#       发表于 2021-6-25 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729456&amp;ptid=1972669" target="_blank">Aisuti 发表于 2021-6-25 00:23</a>
+露露结尾唱了一首変わらないもの</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Junchoon  
+##### 3018#       发表于 2021-6-25 00:35
+
+
+露露26、27两天是播魔界村对吧？
+
+
+-----
+
+####  Suny08  
+##### 3019#       发表于 2021-6-25 00:36
+
+
+黑客相羽はわおば，你虹今年最坏应该就是再走这三个了吧，还有没有危的
+
+
+-----
+
+####  nowaki  
+##### 3020#       发表于 2021-6-25 00:38
+
+
+还有六个月 毕业20个都够
+
+
+-----
+
+####  OldGlory  
+##### 3021#       发表于 2021-6-25 00:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729381&amp;ptid=1972669" target="_blank">哈曼的YY 发表于 2021-6-25 00:14</a>
+
+魔王，凯旋了
+
+
+我看魂号前几天还发了个推 看着像什么组合的照片 难道是找到新组合了？ ...</blockquote>
+那个是她以前的队友
+
+
+-----
+
+####  CielChloe  
+##### 3022#       发表于 2021-6-25 00:39
+
+
+相羽危险的迹象是什么？能说说吗？
+
+
+-----
+
+####  死体残留  
+##### 3023#       发表于 2021-6-25 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729618&amp;ptid=1972669" target="_blank">CielChloe 发表于 2021-6-25 00:39</a>
+相羽危险的迹象是什么？能说说吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">休息很长一段时间没直播，新衣服，就差复播播爆了
+
+
+-----
+
+####  rzrbtk  
+##### 3024#       发表于 2021-6-25 00:44
+
+
+梦月萝娅啊，每一天都在想<img src="https://static.saraba1st.com/image/smiley/face2017/092.png" referrerpolicy="no-referrer">
+
+
+                                                 
