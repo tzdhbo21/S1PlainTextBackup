@@ -4651,3 +4651,33 @@ QQ图片20210624185048.jpg
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 12411#       发表于 2021-6-24 20:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/223.png" referrerpolicy="no-referrer">估计转去玩discord群了，现在连目标都没有了，估计以后就这样一直摆烂吧。
+
+
+-----
+
+####  yuandi0120  
+##### 12412#       发表于 2021-6-24 20:53
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/205205wlgegkybz39eyimk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-zue37Q2o-slhK1lT3cSir-7x[1].jpg</strong> (33.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-24 20:52 上传
+
+
+和主播一起私下打游戏还友好(?)交流当然是私联<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -17435,3 +17435,861 @@ syl 大的要来了 是什么我不说
 
 
                                                  
+
+-----
+
+####  CielChloe  
+##### 2869#       发表于 2021-6-24 20:46
+
+
+ 本帖最后由 CielChloe 于 2021-6-24 21:28 编辑 
+
+突然想到，有没有美大生开始玩pm lol的世界线
+
+啊，无了
+
+
+-----
+
+####  ヒトニナル  
+##### 2870#       发表于 2021-6-24 21:00
+
+
+KAGAYAKI杯吧，有一说一apex已经品鉴的够多了，端下去罢…
+
+
+-----
+
+####  十四洲  
+##### 2871#       发表于 2021-6-24 21:07
+
+
+露露唱歌还带换衣服的，好会
+
+
+-----
+
+####  千年流放  
+##### 2872#       发表于 2021-6-24 21:20
+
+
+龙妈新衣太色气了
+
+
+-----
+
+####  Devi_Lito  
+##### 2873#       发表于 2021-6-24 21:21
+
+
+卧槽，露露要毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suzutsuki  
+##### 2874#       发表于 2021-6-24 21:21
+
+
+露露也要隐退了 你虹是真要完了
+
+
+-----
+
+####  十四洲  
+##### 2875#       发表于 2021-6-24 21:22
+
+
+？？？？？？？！！！！！！！！
+
+
+-----
+
+####  CielChloe  
+##### 2876#       发表于 2021-6-24 21:23
+
+
+这就是半年之期吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 2877#       发表于 2021-6-24 21:24
+
+
+19上真是被诅咒了，好好珍惜吧
+
+
+-----
+
+####  野々原雛桜  
+##### 2878#       发表于 2021-6-24 21:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">突然宣布，接受不了
+
+
+-----
+
+####  十四洲  
+##### 2879#       发表于 2021-6-24 21:25
+
+
+靠唱这首😭😭😭😭😭😭😭😭😭😭😭😭
+
+
+-----
+
+####  IDIDIDID  
+##### 2880#       发表于 2021-6-24 21:25
+
+
+卧槽？什么啊？
+
+
+
+
+-----
+
+####  Ketestrait  
+##### 2881#       发表于 2021-6-24 21:25
+
+
+完了，都完了，夢も希望もありません<img src="https://static.saraba1st.com/image/smiley/face2017/144.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 2882#       发表于 2021-6-24 21:25
+
+
+大的真的来了<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  划水的B612  
+##### 2883#       发表于 2021-6-24 21:25
+
+
+三个月三个月<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+不过她这身体之前还这么搞，退了就退了吧
+
+
+-----
+
+####  空集  
+##### 2884#       发表于 2021-6-24 21:26
+
+
+好突然 休息好长时间那波都没毕业还以为回来了就起码今年不会毕业了。。。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rzrbtk  
+##### 2885#       发表于 2021-6-24 21:26
+
+
+19组支离破碎<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">？
+
+
+-----
+
+####  IDIDIDID  
+##### 2886#       发表于 2021-6-24 21:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">不要啊
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 2887#       发表于 2021-6-24 21:27
+
+
+童田…お前…消えるのか
+
+
+-----
+
+####  poipanchao  
+##### 2888#       发表于 2021-6-24 21:27
+
+
+bora走的时候我就放弃虹了
+
+露露<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 2889#       发表于 2021-6-24 21:28
+
+
+19组今年是合同年，让我们看看会发生什么
+
+
+-----
+
+####  IDIDIDID  
+##### 2890#       发表于 2021-6-24 21:29
+
+
+ 本帖最后由 IDIDIDID 于 2021-6-24 21:32 编辑 
+
+往好处想，以她的条件和年龄，大概找到好男人了，希望是个有钱的好男人。
+ <blockquote>田角：我出一个5（gbr）
+
+yagoo：我出一个10（tskk）
+
+田角：我再出一个5（ruru）</blockquote>
+
+
+-----
+
+####  OldGlory  
+##### 2891#       发表于 2021-6-24 21:31
+
+
+丽泽露露电台停了的时候就应该想到的。
+
+
+-----
+
+####  noHentai  
+##### 2892#       发表于 2021-6-24 21:31
+
+
+露露算是位比较特别的liver，今晚估计很多虹信要梦醒了
+
+
+-----
+
+####  IDIDIDID  
+##### 2893#       发表于 2021-6-24 21:32
+
+
+为什么一个劲的毕业上位虹女啊，田角你的哈哈是不是真的哈哈了啊<img src="https://static.saraba1st.com/image/smiley/face2017/128.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asd225588  
+##### 2894#       发表于 2021-6-24 21:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 草。
+
+
+-----
+
+####  黑暗剑  
+##### 2895#       发表于 2021-6-24 21:33
+
+
+第一次歌会就唱过这首，当时还说很适合奥华子
+
+害，梦醒时分
+
+
+-----
+
+####  FCCHua  
+##### 2896#       发表于 2021-6-24 21:34
+
+
+ 本帖最后由 FCCHua 于 2021-6-24 21:36 编辑 
+
+不算太意外，毕竟那阵歇了太久，哎<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+顺便她另一个推特应该还会继续更新吧...
+
+
+-----
+
+####  yla  
+##### 2897#       发表于 2021-6-24 21:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">露露，我的露露
+
+
+-----
+
+####  屑屑代沟尼亚  
+##### 2898#       发表于 2021-6-24 21:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">卧槽这么突然
+
+
+-----
+
+####  弥杀弥杀  
+##### 2899#       发表于 2021-6-24 21:38
+
+
+**
+
+
+-----
+
+####  突然空虚  
+##### 2900#       发表于 2021-6-24 21:38
+
+
+突然干什么呢，悠闲播游戏学凛姨也没人说她，只可能是有男人了吧。祝福她吧，唉。
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 2901#       发表于 2021-6-24 21:39
+
+
+这下铃人了...
+
+wuwuwu 我的露露 我的lizeruru电台 都没了
+
+
+-----
+
+####  qq845629713  
+##### 2902#       发表于 2021-6-24 21:39
+
+
+他们跟我说你虹要死了，我还不信，
+
+
+结果，针~~死~~了
+
+
+-----
+
+####  米德  
+##### 2903#       发表于 2021-6-24 21:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">退坑许久 看到这个有点受不了
+那就祝你虹早日倒闭吧
+
+
+-----
+
+####  IDIDIDID  
+##### 2904#       发表于 2021-6-24 21:39
+
+
+别搞到最后真是童田熬死所有人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  asd225588  
+##### 2905#       发表于 2021-6-24 21:39
+
+
+阿菜也别装死了 早点宣布算了
+
+
+-----
+
+####  Suzutsuki  
+##### 2906#       发表于 2021-6-24 21:41
+
+
+退 都可以退 以后只能看胡桃和花芽姐妹了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 2907#       发表于 2021-6-24 21:41
+
+
+我菜作为rd的c位可不敢随便跑路。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Sleipnirω  
+##### 2908#       发表于 2021-6-24 21:42
+
+
+悟了，彩虹v走之前会狂打任天堂的游戏，猴子之前玩的是塞尔达，露露玩的是宝可梦剑，任天堂你坏事做尽！
+
+
+-----
+
+####  shenqi2552  
+##### 2909#       发表于 2021-6-24 21:42
+
+
+露露要毕业了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">，果然还是眼睛问题吧，唉，好好休息养养，别恶化了。
+
+
+-----
+
+####  IDIDIDID  
+##### 2910#       发表于 2021-6-24 21:42
+
+
+这下看懂了，彩虹订阅上位但凡手上没安排主流进出企划的，粉丝们心理最好做好准备。
+
+
+
+
+-----
+
+####  耻照  
+##### 2911#       发表于 2021-6-24 21:43
+
+
+ 本帖最后由 耻照 于 2021-6-24 21:47 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">看来真是唱跳做节目烦了
+
+老娘只想臭打游戏
+
+
+-----
+
+####  asd225588  
+##### 2912#       发表于 2021-6-24 21:43
+
+
+阿菜本体也活动下啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+不过毕业后这些人大概不会有交集了，烦啊
+
+
+-----
+
+####  noHentai  
+##### 2913#       发表于 2021-6-24 21:44
+
+
+别想多了，看阿菜这个样子，8月RD Live开完应该也是准备撤了。
+
+没有前途、没有增长点、安于现状的地方是这样的，总有人待不下去。
+
+
+-----
+
+####  poipanchao  
+##### 2914#       发表于 2021-6-24 21:44
+
+
+唯一的安慰是大家都知道去哪找露露…
+真要说本体开播也不是不可能
+有了bora的铺垫
+这次我意外的心情上能接受
+
+可能是因为早就放弃了期待虹吧
+
+
+-----
+
+####  qq845629713  
+##### 2915#       发表于 2021-6-24 21:44
+
+
+还好吧，我觉得露露和德比应该能后续发展的，
+
+
+其他真的就是表面朋友了
+
+
+-----
+
+####  nowaki  
+##### 2916#       发表于 2021-6-24 21:45
+
+
+早就有心理预期了，很平静
+
+
+-----
+
+####  winda  
+##### 2917#       发表于 2021-6-24 21:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看来在虹混还不如单干
+
+
+-----
+
+####  rzrbtk  
+##### 2918#       发表于 2021-6-24 21:47
+
+
+好消息是嘎君举办了看起来很有趣的帕青哥大会！
+不过这种时候是不是更应该赌社运啊<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  x1034  
+##### 2919#       发表于 2021-6-24 21:48
+
+
+这真是有点没想到昨天还在看露露打宝可梦
+
+
+-----
+
+####  ヒトニナル  
+##### 2920#       发表于 2021-6-24 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">回来一看露露没了还行，半年半年
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 2921#       发表于 2021-6-24 21:48
+
+
+虹已经放跑了最好的女主播和最好的游戏主播
+
+你虹还剩什么 天皇下巴整活还是King pua女粉？
+
+三个月快点来吧
+
+
+-----
+
+####  patema  
+##### 2922#       发表于 2021-6-24 21:49
+
+
+管壬这个行业就是这样的，短命职业<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  耻照  
+##### 2923#       发表于 2021-6-24 21:50
+
+
+还剩虹男人就不慌
+
+
+-----
+
+####  IDIDIDID  
+##### 2924#       发表于 2021-6-24 21:51
+
+
+不过gbr和露露俩都选择一点不演生离死别而是好聚好散还是很欣赏的。
+
+
+-----
+
+####  横寺阳人  
+##### 2925#       发表于 2021-6-24 21:52
+
+
+怎么每次毕业都要cue我菜，虽然我觉得也差不多了…
+
+
+-----
+
+####  Junchoon  
+##### 2926#       发表于 2021-6-24 21:52
+
+
+我TM不能接受！
+
+
+-----
+
+####  peh  
+##### 2927#       发表于 2021-6-24 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51727472&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-24 21:42</a>
+
+这下看懂了，彩虹订阅上位但凡手上没安排主流进出企划的，粉丝们心理最好做好准备。 ...</blockquote>
+3baka<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 2928#       发表于 2021-6-24 21:54
+
+
+你虹该大规模毕业不需要的主播了，全力向主流冲刺！
+
+
+-----
+
+####  IDIDIDID  
+##### 2929#       发表于 2021-6-24 21:54
+
+
+ 本帖最后由 IDIDIDID 于 2021-6-24 21:56 编辑 
+
+所以抽卡还是得找下岗再就业的前主播，知道这辈子就靠这个吃饭的那种人才心定。gbr和露露一个野人一个前偶像做到那么火说润就润太哈人了。
+
+
+-----
+
+####  winda  
+##### 2930#       发表于 2021-6-24 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">旧的不去新的不来，你虹这19年连环抽过扩惩罚估计债还没还完
+
+
+-----
+
+####  dybang  
+##### 2931#       发表于 2021-6-24 21:56
+
+
+gbr风口挣快钱合同到期了跑路可以理解，露露不知道是不是眼睛的问题，管人这行业太不透明了，这轮合同调整完不知道还要多久
+
+
+-----
+
+####  CielChloe  
+##### 2932#       发表于 2021-6-24 21:56
+
+
+这么看来，虹的两人组合出道是真的有梗，不禁迷信起来了
+
+
+-----
+
+####  qq845629713  
+##### 2933#       发表于 2021-6-24 21:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 所以当初田角是靠什么留下kmm和pst的，她们应该是最懂的吧，主流出道跟他们没关系，收租也不如隔壁，
+
+
+很怪
+
+
+-----
+
+####  OldGlory  
+##### 2934#       发表于 2021-6-24 22:01
+
+
+2000想说的其实是：
+
+19组不可靠，gamers虽然出叛徒了但还是对你虹最忠诚的！<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Devi_Lito  
+##### 2935#       发表于 2021-6-24 22:01
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/220105rm2xulgvl2czma8g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2LYdYgu.jpg</strong> (83.8 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-24 22:01 上传
+
+
+我们正在准备散伙饭.jpg
+
+
+-----
+
+####  zore  
+##### 2936#       发表于 2021-6-24 22:03
+
+
+啥下岗再就业
+
+真选上了说不干照样撂担子不干啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 2937#       发表于 2021-6-24 22:04
+
+
+不过也别说king了，你虹对葛尊这件事处理得无能在KING心中应该降了很多分的，
+
+
+如果不是你虹还有KING在意的人，他也早润了
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 2938#       发表于 2021-6-24 22:05
+
+
+天下的19组是不是就剩3baka了
+
+
+-----
+
+####  IDIDIDID  
+##### 2939#       发表于 2021-6-24 22:05
+
+
+king是加盟店，他想润其实润起来比所有人都快。
+
+
+-----
+
+####  ChristinaDU  
+##### 2940#       发表于 2021-6-24 22:06
+
+
+我不能接受！<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  nocode  
+##### 2941#       发表于 2021-6-24 22:09
+
+
+半年已经不能适应版本了，末日时钟也要往后拨了，这将是虹最后的夏天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Devi_Lito  
+##### 2942#       发表于 2021-6-24 22:10
+
+
+话说好久没回到V综了，没想到2k依然还在坚持不懈地黑屁彩虹<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有种《回到未来》里面那个钟楼的感觉
+
+
+-----
+
+####  真飞鸟i  
+##### 2943#       发表于 2021-6-24 22:10
+
+
+3baka也没人表现出要跑吧，真要跑估计也只能是安吉。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  rzrbtk  
+##### 2944#       发表于 2021-6-24 22:12
+
+
+夢月さん可别啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">…
+最近夢月さん自己也关注的陪酒女代餐要りか也删推锁号一系列操作的搞得我好不安
+
+
+-----
+
+####  poipanchao  
+##### 2945#       发表于 2021-6-24 22:12
+
+
+我倒是觉得狗狗有点像想走了
+
+
+-----
+
+####  nowaki  
+##### 2946#       发表于 2021-6-24 22:13
+
+
+跑去做小红舞替吗
+
+
+-----
+
+####  qq845629713  
+##### 2947#       发表于 2021-6-24 22:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 没事的，gbr那时我也说过，只要金银铜接班，月丿出新专，一切都会好起来的，
+
+
+只要我们继续坚持偶像的道路，道路就会不断延伸，
+
+
+所以你虹不要停下来啊，
+
+
+-----
+
+####  蓬莱广告  
+##### 2948#       发表于 2021-6-24 22:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">阿菜应该也差不多要走了吧，你会选8月31号吗
+
+
+-----
+
+####  qq845629713  
+##### 2949#       发表于 2021-6-24 22:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 阿床今天还在和星姐绝赞联动中，
+
+
+-----
+
+####  越动天下  
+##### 2950#       发表于 2021-6-24 22:16
+
+
+怎么一上线就发现露露润了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  -みゆめ-  
+##### 2951#       发表于 2021-6-24 22:17
+
+
+很久不看虹了，不过从这段时间云来的消息（比如虾勇之前的发言和myy好像要退）感觉虹的情况好像不太好。
+
+今北产业
+
+
+-----
+
+####  IDIDIDID  
+##### 2952#       发表于 2021-6-24 22:22
+
+
+全公司能有线下solo live待遇的我记得除了通风口就是床狗了，她怕是想润也暂时润不掉。皇女手上一堆活儿肯定不会润，这样安洁也大概率不好意思自己润的。
+
+
+-----
+
+####  耻照  
+##### 2953#       发表于 2021-6-24 22:23
+
+
+看来之前停播一个月真是被福报气的
+
+
+                                              
