@@ -3919,3 +3919,17 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  共享栈  
+##### 1765#       发表于 2021-6-25 04:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721494&amp;ptid=1860328" target="_blank">feizong 发表于 2021-6-24 13:34</a>
+
+我一直觉得这作，明明配角设计都挺正常也好看的，男女主角怎么就这么难看 ...</blockquote>
+你什么审美？
+
+
+                                                 

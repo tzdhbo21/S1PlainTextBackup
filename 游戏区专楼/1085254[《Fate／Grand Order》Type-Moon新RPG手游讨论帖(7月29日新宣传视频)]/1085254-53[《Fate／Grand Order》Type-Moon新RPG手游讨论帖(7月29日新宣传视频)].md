@@ -16826,3 +16826,32 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79379#       发表于 2021-6-25 03:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51724056&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-6-24 16:56</a>
+隔壁又炸了，果然言多必失，你游要么讨好cp党要么讨好ml党，没本事还想全都要就这下场 ...</blockquote>
+就东出这弱智操作隔壁都能边舔边踩樱井一脚
+笑得我都懒得去隔壁回复了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79380#       发表于 2021-6-25 03:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51724164&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-24 17:07</a>
+不不不，叶哥哥可是说好了开能拿新素材的活动，那么答案已经很明显了
+
+是狩猎本</blockquote>
+决定了，是登录十天送素材大礼包
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">
+
+
+                                                 
