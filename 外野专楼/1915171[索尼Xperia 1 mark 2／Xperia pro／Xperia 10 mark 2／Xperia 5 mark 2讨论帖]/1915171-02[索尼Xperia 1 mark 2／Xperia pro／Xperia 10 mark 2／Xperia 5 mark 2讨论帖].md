@@ -16776,3 +16776,17 @@ Nova launch全面屏手势上拉进程菜单会卡死 闪退 未响应
 
 
                                                  
+
+-----
+
+####  无印凉粉  
+##### 2740#       发表于 2021-6-24 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51715349&amp;ptid=1915171" target="_blank">囧面超人 发表于 2021-6-23 22:21</a>
+
+上次更新后马克兔cpu跑分就正常了</blockquote>
+确定正常我也跟着更新了。
+
+
+                                                 

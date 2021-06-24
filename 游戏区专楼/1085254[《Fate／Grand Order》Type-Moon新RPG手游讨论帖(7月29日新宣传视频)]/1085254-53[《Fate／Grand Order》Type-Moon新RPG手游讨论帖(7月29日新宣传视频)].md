@@ -16746,3 +16746,65 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  angelooo  
+##### 79374#       发表于 2021-6-24 16:31
+
+
+<blockquote>風卷豹 发表于 2021-6-24 16:23
+还有韩信啊
+
+其实放个二世剪影上去就行了，司马懿太草了</blockquote>
+可二世立绘哪个都不是古代中国男性的造型啊
+
+不过话说回来，阿清幕间的定子用的是蛋糕剪影，那也不是古代日本女性的造型哇OTZ
+
+
+-----
+
+####  smdzh2  
+##### 79375#       发表于 2021-6-24 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721928&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-24 15:10</a>
+笑死，皇女这个幕间真是太有东出擦屁股的风格了
+
+撇这么干净是怕今年的泳装卖不出去吗</blockquote>
+隔壁又炸了，果然言多必失，你游要么讨好cp党要么讨好ml党，没本事还想全都要就这下场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79376#       发表于 2021-6-24 17:07
+
+
+<blockquote>引用第79371楼exiaexa于2021-06-24 14:21发表的  :
+
+我记得2200w是去年11月，2300w是今年2月幕间完了还能塞一个2400w没毛病</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不不不，叶哥哥可是说好了开能拿新素材的活动，那么答案已经很明显了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是狩猎本
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 79377#       发表于 2021-6-24 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51724164&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-24 17:07</a>
+
+不不不，叶哥哥可是说好了开能拿新素材的活动，那么答案已经很明显了
+
+
+是狩猎本</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你倒是开啊 萌新888 难受呢
+
+
+                                                 

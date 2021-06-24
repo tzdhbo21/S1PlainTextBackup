@@ -17236,3 +17236,77 @@ king不来同接至少得掉2w，那可不行
 
 
                                                 
+
+-----
+
+####  Junchoon  
+##### 2853#       发表于 2021-6-24 16:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51723225&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-24 15:48</a>
+虽然上班没看直播
+但是我看游戏区说这就是个套皮风暴英雄啊
+真的行吗…</blockquote>
+宝可梦？
+
+宝可梦牛逼就牛逼在它证明了这IP无论做成什么、做成什么样，都有人买单……
+
+
+-----
+
+####  Junchoon  
+##### 2854#       发表于 2021-6-24 16:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51723017&amp;ptid=1972669" target="_blank">Lucy_Diamonds 发表于 2021-6-24 15:32</a>
+一看见就忍不住了</blockquote>
+哎呦妈呀，这发型、这表情，谁把持的住啊……
+
+话说这套皮我怎么没见过？凛前辈的皮确实多得让人垂涎……
+
+
+-----
+
+####  poipanchao  
+##### 2855#       发表于 2021-6-24 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51723770&amp;ptid=1972669" target="_blank">Junchoon 发表于 2021-6-24 16:33</a>
+宝可梦？
+
+宝可梦牛逼就牛逼在它证明了这IP无论做成什么、做成什么样，都有人买单…… ...</blockquote>
+如果换皮风暴火了
+是不是说明
+暴雪IP，不行
+宝可梦，行
+
+
+-----
+
+####  bluebaby  
+##### 2856#       发表于 2021-6-24 16:39
+
+
+宝可梦卖的不行的非正作可多了…
+
+
+-----
+
+####  SuntoryNomu  
+##### 2857#       发表于 2021-6-24 17:25
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/172530ts9jd9ajfmmpdwz9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E4ovVFOUcAI9KsU.jpg</strong> (212.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-24 17:25 上传
+
+
+[https://twitter.com/sainexxx/status/1407989935278149634](https://twitter.com/sainexxx/status/1407989935278149634)
+
+
+                                                 
