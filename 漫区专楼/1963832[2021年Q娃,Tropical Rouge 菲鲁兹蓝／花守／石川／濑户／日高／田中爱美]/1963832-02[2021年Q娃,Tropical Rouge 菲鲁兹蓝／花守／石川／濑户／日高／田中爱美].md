@@ -3027,3 +3027,17 @@ q娃元素堆叠又不是一次两次的事了，像是5和微笑都是强调五
 
 
                                                  
+
+-----
+
+####  leleq  
+##### 1735#       发表于 2021-6-24 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51719870&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-6-24 11:38</a>
+
+今年剧场版又是和别的女人合作？</blockquote>
+去年三爷 今年是不是改罗武了？ （对了今年变身还有扑克花来着） 可以看 罗武的大乃乃了？<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+                                                 
