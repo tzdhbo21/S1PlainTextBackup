@@ -3881,3 +3881,17 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  TerryBlues  
+##### 1762#       发表于 2021-6-24 15:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51722015&amp;ptid=1860328" target="_blank">LiberaMe 发表于 2021-6-24 14:17</a>
+
+那看来只能xbox数字版了，淘宝上能直接外区便宜点买好像？</blockquote>
+淘宝一般只能等游戏临近发售再看了，一般实体的货都非常少。不过盒子的光盘是不是跟大法的光盘安装游戏不一样，是验证下载......？
+
+
+                                                 
