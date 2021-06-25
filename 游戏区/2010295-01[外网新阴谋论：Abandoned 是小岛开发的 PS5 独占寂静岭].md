@@ -5455,3 +5455,44 @@ demo什么时候上
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 407#       发表于 2021-6-25 11:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732458&amp;ptid=2010295" target="_blank">日日日日日野 发表于 2021-6-25 10:43</a>
+
+怎么也得荷兰时间周五了</blockquote>
+其实荷兰已经周五了
+
+
+-----
+
+####  luoyianwu  
+##### 408#       发表于 2021-6-25 11:11
+
+
+ 本帖最后由 luoyianwu 于 2021-6-25 11:12 编辑 
+
+<img src="https://p.sda1.dev/2/88aecbee86794b4390268eb05fc7d800/1624589488583.png" referrerpolicy="no-referrer">
+
+今天Blue Box一整天都没有讲话，很silent<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+前几天讲到konami的silent hill海报标题没有居中，在hill后面留了一个字母的空格；
+
+今天网友发现在konami shop的广告上其实早有答案
+<img src="https://p.sda1.dev/2/3a436ad52f097621c465ebb7152e91e0/download _2_.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  火鸡味锅巴  
+##### 409#       发表于 2021-6-25 11:17
+
+
+一定是岛哥哥，大的药来了
+
+
+                                                 

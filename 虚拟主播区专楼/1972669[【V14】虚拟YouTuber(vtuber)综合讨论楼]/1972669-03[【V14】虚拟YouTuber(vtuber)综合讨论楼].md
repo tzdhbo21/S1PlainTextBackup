@@ -1429,3 +1429,132 @@ bora走了？？？什么时候的事</blockquote>
 
 
                                                 
+
+-----
+
+####  qq845629713  
+##### 3069#       发表于 2021-6-25 10:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 没人吐槽彩虹EN亲女儿待遇，连续两单上了俩么？
+
+
+-----
+
+####  FCCHua  
+##### 3070#       发表于 2021-6-25 10:45
+
+
+放心，如果有005那en还会再上一个，这不很正常吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 3071#       发表于 2021-6-25 10:45
+
+
+虹en是亲女儿海外支部还需要多吐槽么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  死体残留  
+##### 3072#       发表于 2021-6-25 10:46
+
+
+虹有熊猫毕业归来前例不过还是要看当事人怎么想
+
+
+-----
+
+####  dybang  
+##### 3073#       发表于 2021-6-25 10:50
+
+
+现在市场稳定了也不好跳槽了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">估计还是不想干了，本体开窗继续活动已经算最好结果了吧
+
+
+-----
+
+####  poipanchao  
+##### 3074#       发表于 2021-6-25 10:52
+
+
+my bora ，my lulu<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+今天醒来有无比的丧失感
+
+
+-----
+
+####  空集  
+##### 3075#       发表于 2021-6-25 10:52
+
+
+熊猫归来那种事情我觉得v圈史上也就那一次了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  fastary  
+##### 3076#       发表于 2021-6-25 11:02
+
+
+<blockquote>sonyjam 发表于 2021-6-25 10:08
+黑客不是才有个广场大屏幕露脸的活动么</blockquote>
+黑客那个不是活动，是他自己搞的剧情回+新衣装披露。
+
+开玩笑，一个对主流没兴趣还半休止的人虹真搞这种活动轮也轮不到他好吧（
+
+syl
+
+我注意到一个恐怖的事情，虹谜6月号是不是还没告知…
+
+
+-----
+
+####  rzrbtk  
+##### 3077#       发表于 2021-6-25 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732682&amp;ptid=1972669" target="_blank">fastary 发表于 2021-6-25 11:02</a>
+黑客那个不是活动，是他自己搞的剧情回+新衣装披露。
+
+开玩笑，一个对主流没兴趣还半休止的人虹真搞这种活 ...</blockquote>
+六月是月之柴卡力一回啊，虽然人少了点但还是有的<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">，jk带货是真无了
+
+
+-----
+
+####  FCCHua  
+##### 3078#       发表于 2021-6-25 11:15
+
+
+虹quiz之后就一月两期了，一期是sky，不破常驻的那种，一期是6月这样的
+
+
+-----
+
+####  面具13  
+##### 3079#       发表于 2021-6-25 11:16
+
+
+夸宝怎么就把前世杀干净了？前世推特、油管niconico帐号都在，又不是删干净了。
+
+
+-----
+
+####  nowaki  
+##### 3080#       发表于 2021-6-25 11:17
+
+
+本来觉得自己有心理准备不会很难受，七姨太账号还活着可以随时看她动态，觉得自己挺冷血的不会当回事。
+
+看来我错了，一整天心里空落落的，脑子里一团乱麻，手头里的工作干的乱七八糟。这种空虚感就像美梦醒后回归现实，突然察觉到自己一直借着露露的温柔乡在逃避，感谢露露让我做了个这么美好的梦。梦醒曲终人散，却还想骗自己说不定未来某天，点开露露的频道还会有那个玩着模型轻声说空露露的女孩在等着自己。
+
+
+                                                 
