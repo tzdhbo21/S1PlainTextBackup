@@ -4026,3 +4026,17 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  蓝雉  
+##### 1773#       发表于 2021-6-25 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51737183&amp;ptid=1860328" target="_blank">宛若青空 发表于 2021-6-25 17:37</a>
+
+下周6.29传说油管介绍破晓各地区版本的实物，下下周7.5生放公开OP主题曲和OP动画以及新实机！好节奏 ...</blockquote>
+果然绯红发售后才开始发力,不知道之前有些人急个啥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
