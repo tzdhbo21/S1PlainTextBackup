@@ -3020,3 +3020,14 @@ WIN10就是绝响。</blockquote>
 
 
                                                  
+
+-----
+
+####  凡人一名  
+##### 266#       发表于 2021-6-26 02:15
+
+
+看了下win11的变化，感觉就是为了和平板那种移动端共用做的，完全不考虑电脑使用，只为了平板那种移动设备<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+                                                 

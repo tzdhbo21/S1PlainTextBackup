@@ -17329,3 +17329,18 @@ c呆唐突复课。。。。。。。。。。。。而且居然还是up2。。�
 
 
                                                  
+
+-----
+
+####  smdzh2  
+##### 79419#       发表于 2021-6-26 02:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51742974&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-26 02:26</a>
+200充没用啊，还是要被其他色卡拉去值班
+不如改成红卡宝具后再蓄力100
+完美解决打工问题</blockquote>
+宇宙凛：完  全  胜  利<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 
