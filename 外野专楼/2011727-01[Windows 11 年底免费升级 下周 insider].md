@@ -2868,3 +2868,44 @@ Windows10 Insider上个月的更新添加了HDR色彩管理支持，Windows 11�
 
 
                                          
+
+-----
+
+####  伊斯坎达尔王  
+##### 254#       发表于 2021-6-25 15:06
+
+
+我这个健康状况检查给我说“被组织管理了”不能通过有点无语<img src="https://static.saraba1st.com/image/smiley/face2017/257.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lanslort  
+##### 255#       发表于 2021-6-25 15:19
+
+
+UEFI只找到Secure Boot没找到TPM，不过进TPM.msc里看是激活的而且是2.0. 然而还是不符合要求，看来是七代不给升了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+作为被从Skype for Business转到Teams的表示Teams挺好用的，可以办公用也可以当成没有表情包的discord用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 。我记得之前一直没开放给个人用户吧，就是这个名字普通了点
+
+
+-----
+
+####  moekyo  
+##### 256#       发表于 2021-6-25 15:42
+
+
+明明我系统是2004了，但是安装那个兼容检查的时候还是这样，为啥啊
+
+<img src="https://img.saraba1st.com/forum/202106/25/154203j93h39wi33r28tt8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (18.53 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 15:42 上传
+
+
+                                                 

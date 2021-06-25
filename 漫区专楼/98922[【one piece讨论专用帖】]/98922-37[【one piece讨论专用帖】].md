@@ -15500,3 +15500,17 @@ OP的世界是不是压根就没有橡胶制品？
 
 
                                                  
+
+-----
+
+####  刹那の劍  
+##### 55311#       发表于 2021-6-25 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734976&amp;ptid=98922" target="_blank">谢皮利男爵 发表于 2021-6-25 14:33</a>
+
+OP的世界是不是压根就没有橡胶制品？</blockquote>
+有啊，乌索普的弹弓你忘了？
+
+
+                                                 

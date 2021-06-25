@@ -679,3 +679,101 @@ QQ图片20210625140710.png
 
 
                                                  
+
+-----
+
+####  gongge666  
+##### 18059#       发表于 2021-6-25 14:40
+
+
+去年那位冠军，叔叔应该不会在搞什么中日线下直播和bd的套路了吧
+
+
+-----
+
+####  2014720  
+##### 18060#       发表于 2021-6-25 14:51
+
+
+ 本帖最后由 2014720 于 2021-6-25 14:54 编辑 
+
+团长人家演唱会服装原创曲时间什么的不都订好好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不听叔叔话的人，都得死！<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Klience  
+##### 18061#       发表于 2021-6-25 14:54
+
+
+在外面吃个下午茶回来发现怎么又在打<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 18062#       发表于 2021-6-25 14:54
+
+
+嘤嘤嘤 我愿意被叔叔睡一晚 以此换来叔叔对你麻的特殊优待
+
+
+-----
+
+####  T_Hb  
+##### 18063#       发表于 2021-6-25 14:55
+
+
+佩服<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18064#       发表于 2021-6-25 15:05
+
+
+这就是事业民吗😅
+
+
+-----
+
+####  越动天下  
+##### 18065#       发表于 2021-6-25 15:06
+
+
+逆天😅
+
+
+-----
+
+####  Klience  
+##### 18066#       发表于 2021-6-25 15:07
+
+
+哪种特殊优待？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MrHPQ  
+##### 18067#       发表于 2021-6-25 15:11
+
+
+结果就是叔叔连你和你麻一起拿下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 18068#       发表于 2021-6-25 15:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">妈耶，这就是事业民的纯度吗
+
+
+                                                
