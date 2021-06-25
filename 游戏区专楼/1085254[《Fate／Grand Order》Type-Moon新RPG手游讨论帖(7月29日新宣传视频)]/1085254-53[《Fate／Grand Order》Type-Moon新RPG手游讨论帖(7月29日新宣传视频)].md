@@ -17090,3 +17090,53 @@ c呆唐突复课。。。。。。。。。。。。而且居然还是up2。。�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79401#       发表于 2021-6-25 17:39
+
+
+<blockquote>alucardcz 发表于 2021-6-25 17:06
+c呆唐突复课。。。。。。。。。。。。而且居然还是up2。。。这产能拉垮的</blockquote>
+当初有人回我说这是档期不合适，不是产能拉胯
+
+
+-----
+
+####  alucardcz  
+##### 79402#       发表于 2021-6-25 18:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51737199&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-25 17:39</a>
+
+当初有人回我说这是档期不合适，不是产能拉胯</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么档期 不就是妖兰和那个骑没做好吗
+
+
+-----
+
+####  areklose  
+##### 79403#       发表于 2021-6-25 18:26
+
+
+<blockquote>alucardcz 发表于 2021-6-25 18:19
+什么档期 不就是妖兰和那个骑没做好吗</blockquote>
+请点开79277，79279楼
+
+
+-----
+
+####  alucardcz  
+##### 79404#       发表于 2021-6-25 18:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51737600&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-25 18:26</a>
+
+请点开79277，79279楼</blockquote>
+反手一个问号
+
+这谁啊？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
