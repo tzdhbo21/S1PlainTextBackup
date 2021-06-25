@@ -1179,3 +1179,115 @@ syl 疫情和线下骚扰估计露露隐退之前问题吧，之前说还有个�
 
 
                                                  
+
+-----
+
+####  -みゆめ-  
+##### 3048#       发表于 2021-6-25 07:29
+
+
+想起前些天看老人会里某条提问箱的总结
+
+
+不要看虚拟管人，会变得不幸
+
+
+-----
+
+####  ヒトニナル  
+##### 3049#       发表于 2021-6-25 07:41
+
+
+bora的情况，根据我云的会限内容，应该是你虹海外运营（可能不包括en）极度拉跨导致不满而长期休止的
+
+
+-----
+
+####  Suny08  
+##### 3050#       发表于 2021-6-25 07:52
+
+
+Bora出来单干吧，反正fps圈的人脉也有了不愁吃喝，出来没抽成自己想干嘛干嘛多爽，她日语口语能力重新出道当个日v也不是不可以
+
+
+-----
+
+####  FCCHua  
+##### 3051#       发表于 2021-6-25 08:10
+
+
+ 本帖最后由 FCCHua 于 2021-6-25 08:12 编辑 
+
+小夜这熟悉的凌晨突击直播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+也不知道3d什么时候才能看到...
+
+
+-----
+
+####  SteveS  
+##### 3052#       发表于 2021-6-25 08:13
+
+
+ 本帖最后由 SteveS 于 2021-6-25 08:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51727282&amp;ptid=1972669" target="_blank">poipanchao 发表于 2021-6-24 21:27</a>
+
+bora走的时候我就放弃虹了
+
+露露</blockquote>
+bora走了？？？什么时候的事爬楼爬到了，属于是v综难得突然多的页数超过上班蹲坑时间
+
+
+-----
+
+####  Porsche  
+##### 3053#       发表于 2021-6-25 08:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">不想看到喜欢的管人毕业，当然是在她还在的时候自己先滚啊
+
+
+-----
+
+####  FCCHua  
+##### 3054#       发表于 2021-6-25 08:19
+
+
+ 本帖最后由 FCCHua 于 2021-6-25 08:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730780&amp;ptid=1972669" target="_blank">SteveS 发表于 2021-6-25 08:13</a>
+bora走了？？？什么时候的事</blockquote>
+说的是暂时休止，当然什么时候回来还会不会回来就不知道了，就这个月的事
+
+
+-----
+
+####  winda  
+##### 3055#       发表于 2021-6-25 08:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">代餐找的够快就没有问题，串里已经找到博士和wtm这两个代餐了
+
+
+-----
+
+####  真飞鸟i  
+##### 3056#       发表于 2021-6-25 09:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">麻了，wtm是怎么代餐的，有辱到露露。
+
+
+-----
+
+####  哈曼的YY  
+##### 3057#       发表于 2021-6-25 09:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729871&amp;ptid=1972669" target="_blank">OldGlory 发表于 2021-6-25 01:12</a>
+
+有，但套个皮转生的更多一点</blockquote>
+那还有希望继续看看
+
+就是本体直播的话没法玩魔王人设了
+
+
+                                                 

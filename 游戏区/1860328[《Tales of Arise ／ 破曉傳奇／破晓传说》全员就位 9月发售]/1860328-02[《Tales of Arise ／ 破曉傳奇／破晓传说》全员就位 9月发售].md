@@ -3947,3 +3947,25 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  忧郁  
+##### 1767#       发表于 2021-6-25 07:45
+
+
+女主刚公布那会儿衣服和莱拉比较像，所以我容易拿她和莱拉比，个人觉得不如莱拉，但是也说不上丑吧
+
+
+-----
+
+####  隔壁老黄  
+##### 1768#       发表于 2021-6-25 09:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51720804&amp;ptid=1860328" target="_blank">基情飞扬 发表于 2021-6-24 12:44</a>
+这作ps4版能升级ps5版吗，只定了ps4版，不是不想体验高分辨率和帧数，而是那sb游戏机买不到 ...</blockquote>
+我就是为了TOAR买了PS5<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+                                                 
