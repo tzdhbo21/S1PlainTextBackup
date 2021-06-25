@@ -15586,3 +15586,51 @@ OP的世界是不是压根就没有橡胶制品？</blockquote>
 
 
                                                  
+
+-----
+
+####  GreenBird  
+##### 55315#       发表于 2021-6-25 17:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730443&amp;ptid=98922" target="_blank">ネオグランゾン 发表于 2021-6-25 06:35</a>
+
+怪不得罗杰是笑着死的
+
+“想要我的宝藏吗？我把它都放在那里了，搜遍整片大海去寻找ONE PIECE吧！！”
+
+（嘿 ...</blockquote>
+哈哈哈哈哈哈哈，这个解读笑死了
+
+
+-----
+
+####  GreenBird  
+##### 55316#       发表于 2021-6-25 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734654&amp;ptid=98922" target="_blank">24k纯帅 发表于 2021-6-25 14:06</a>
+
+毕竟是男人都想要的变大变粗果实，之前使用者都成为了炮王，
+
+大人物订购一个壮阳用，被人截胡，传出去不大 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+WT在SBS回应过，橡胶JJ的确可以变大
+
+
+-----
+
+####  天下至贱  
+##### 55317#       发表于 2021-6-25 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51735830&amp;ptid=98922" target="_blank">仟音一心 发表于 2021-6-25 15:46</a>
+
+文字是艾斯，图里是萨博……
+
+尾田还特地补充了一句，果实的上下位不等于能力者实力的高低，更不能决定胜 ...</blockquote>
+这句往回找补还是挺重要的，不然上级克下级也太死板了。
+
+
+                                                 

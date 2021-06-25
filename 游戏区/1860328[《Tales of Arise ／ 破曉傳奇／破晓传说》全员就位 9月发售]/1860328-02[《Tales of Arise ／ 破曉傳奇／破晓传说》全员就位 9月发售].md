@@ -3989,3 +3989,26 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  宛若青空  
+##### 1771#       发表于 2021-6-25 17:37
+
+
+ 本帖最后由 宛若青空 于 2021-6-25 17:40 编辑 
+
+下周6.29传说油管介绍破晓各地区版本的实物，下下周7.5生放公开OP主题曲和OP动画以及新实机！好节奏<img src="https://static.saraba1st.com/image/smiley/face2017/070.png" referrerpolicy="no-referrer"> 
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/173738d7udz7uww1xul72d.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>7CE6457E-5922-470E-9A26-B8AAA5752BBE.jpeg</strong> (253.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 17:37 上传
+
+
+                                                 
