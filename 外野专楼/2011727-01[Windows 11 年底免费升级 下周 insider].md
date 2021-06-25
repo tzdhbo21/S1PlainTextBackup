@@ -2909,3 +2909,62 @@ UEFI只找到Secure Boot没找到TPM，不过进TPM.msc里看是激活的而且�
 
 
                                                  
+
+-----
+
+####  凶手  
+##### 257#         楼主| 发表于 2021-6-25 22:12
+
+
+ kb5003537这个更新之后坏了接近4个月的 windows hello 终于在 sl3 上可以用了 所以开始犹豫11的insider要不要去搞...
+
+
+-----
+
+####  ekdc11  
+##### 258#       发表于 2021-6-25 22:29
+
+
+我的笔记本还在 Haswell 
+
+
+-----
+
+####  qazesz  
+##### 259#       发表于 2021-6-25 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734407&amp;ptid=2011727" target="_blank">DTCPSS 发表于 2021-6-25 13:43</a>
+
+Win11 这个中文输入法还挺漂亮的，另外总算支持暗色了</blockquote>
+中文字体是雅黑吗？怎么感觉有点不一样
+
+
+-----
+
+####  归英章华  
+##### 260#       发表于 2021-6-25 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732960&amp;ptid=2011727" target="_blank">colodes 发表于 2021-6-25 11:24</a>
+
+这个android app运行基于的intel bridge技术不会只支持intel10代和11代吧</blockquote>
+Intel确认AMD和ARM处理器也可以用Intel Bridge
+
+
+-----
+
+####  KarsusNeko  
+##### 261#       发表于 2021-6-25 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733954&amp;ptid=2011727" target="_blank">强尼高达 发表于 2021-6-25 12:55</a>
+
+什么机器？没有PTT？</blockquote>
+[https://bbs.saraba1st.com/2b/for ... 011901&amp;pid=51741687](https://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;ptid=2011901&amp;pid=51741687)
+
+
+戴尔XPS 13 9360，8550U的。应该是被BIOS屏蔽了
+
+
+                                                 

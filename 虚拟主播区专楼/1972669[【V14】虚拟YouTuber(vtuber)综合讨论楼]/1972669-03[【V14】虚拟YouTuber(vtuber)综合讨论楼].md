@@ -2094,3 +2094,315 @@ sky来了，建议现场结婚<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 3120#       发表于 2021-6-25 20:55
+
+
+虹3d班真的很闲<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  gaiadc  
+##### 3121#       发表于 2021-6-25 21:12
+
+
+虹淘宝店最近周边上的很勤，不知道算是好征兆还是坏征兆
+
+
+-----
+
+####  白房子  
+##### 3122#       发表于 2021-6-25 21:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">不懂就问，单次SC1468万在虹里和女V里是什么水平？
+
+
+-----
+
+####  free  
+##### 3123#       发表于 2021-6-25 21:18
+
+
+[https://www.youtube.com/watch?v=Hi7uTCIaLv0](https://www.youtube.com/watch?v=Hi7uTCIaLv0)
+
+【#花雲くゆり3D】動ける美少女探偵は誰でしょう？——そう、ぼくです。【3Dお披露目】
+
+这3D可以啊
+
+
+管人无关：今年的坛T投票开始了，快去外野投
+
+
+-----
+
+####  空集  
+##### 3124#       发表于 2021-6-25 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51740076&amp;ptid=1972669" target="_blank">白房子 发表于 2021-6-25 21:16</a>
+不懂就问，单次SC1468万在虹里和女V里是什么水平？</blockquote>
+哪里的数据?
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  真飞鸟i  
+##### 3125#       发表于 2021-6-25 21:23
+
+
+ 本帖最后由 真飞鸟i 于 2021-6-25 21:44 编辑 
+
+女v第一，虹v第二吧
+以上仅为404数据，b站确实不熟。
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 白房子| + 1|谢谢！|
+
+
+查看全部评分
+
+
+-----
+
+####  空集  
+##### 3126#       发表于 2021-6-25 21:27
+
+
+ 本帖最后由 空集 于 2021-6-25 21:38 编辑 
+
+<img src="https://p.sda1.dev/2/b62dcae602852dc3965b4049f6f761c6/IMG_CMP_239600263.jpeg" referrerpolicy="no-referrer">
+漏记也不可能漏那么多吧
+
+倒是可能pb有延迟
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  十四洲  
+##### 3127#       发表于 2021-6-25 21:28
+
+
+夜王国最强！？
+
+
+-----
+
+####  gaiadc  
+##### 3128#       发表于 2021-6-25 21:31
+
+
+1468万是谁的数据啊，查了一下就鲸落回比较接近这个数
+
+
+-----
+
+####  alcoholic1000  
+##### 3129#       发表于 2021-6-25 21:35
+
+
+2434配信分析bot@2434rankings
+
+白雪巴/Tomoe Shirayuki
+
+【#白雪巴3D】夜の女王、降臨。【白雪 巴/にじさんじ】
+
+2021-06-25(金) 21:00:04 / 1h4m43s
+
+視聴者:約74092人 累計:89774人
+
+チャット:87922件/3701件:約￥14,682,563/メンバ:161件
+
+
+-----
+
+####  真飞鸟i  
+##### 3130#       发表于 2021-6-25 21:39
+
+
+ 本帖最后由 真飞鸟i 于 2021-6-25 21:52 编辑 
+
+<img src="https://p.sda1.dev/2/352f7cf4edb28d7e7e4336601490c007/74ad5066affdad4d.png" referrerpolicy="no-referrer">
+俩边计算结果本来就有差别的，不过也不会差特别大，这次大概只是pb没来得及更新吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Junchoon  
+##### 3131#       发表于 2021-6-25 21:39
+
+
+如果是这个数据的话，那么以我浅薄的认知应该按如下排列：
+
+
+1、20210621 向晚生日会：1,255,793元
+
+2、20201021 团长 奇迹之夜：918,678元
+
+3、20210625 白雪巴 3D发表会：14,682,563日元折合857,178元
+
+
+-----
+
+####  gaiadc  
+##### 3132#       发表于 2021-6-25 21:46
+
+
+ 本帖最后由 gaiadc 于 2021-6-25 21:48 编辑 
+
+大概是Playboard抽了
+
+以巴的实力，400W确实有些少，不过1400W的话也太恐怖了
+
+
+-----
+
+####  IDIDIDID  
+##### 3133#       发表于 2021-6-25 21:47
+
+
+这下再续半年了
+
+
+-----
+
+####  Suny08  
+##### 3134#       发表于 2021-6-25 21:48
+
+
+葵皇也开始新衣服+周年纪念+生日三重buff叠起来了，之前也是休止后归来
+
+
+-----
+
+####  nowaki  
+##### 3135#       发表于 2021-6-25 21:48
+
+
+我无敌的大杏捏
+
+
+-----
+
+####  free  
+##### 3136#       发表于 2021-6-25 21:49
+
+
+无敌的大杏等着看7.1蝗下葬吧，这蝗孝子还不得刷个2000万表表孝心？
+
+
+-----
+
+####  FCCHua  
+##### 3137#       发表于 2021-6-25 21:52
+
+
+阿巴好强的sc，她总数是不是超过小千了？
+
+
+-----
+
+####  noHentai  
+##### 3138#       发表于 2021-6-25 21:54
+
+
+大杏等7.1如闪电般归来献礼，必破记录<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Junchoon  
+##### 3139#       发表于 2021-6-25 21:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51740593&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-6-25 21:48</a>
+
+葵皇也开始新衣服+周年纪念+生日三重buff叠起来了，之前也是休止后归来</blockquote>
+再这么搞，虹剩不剩下半年我不知道，虹人肯定只剩下半条命了.......
+
+
+-----
+
+####  CielChloe  
+##### 3140#       发表于 2021-6-25 21:55
+
+
+2000w还是太保守了，3000w起步好吧
+
+
+-----
+
+####  真飞鸟i  
+##### 3141#       发表于 2021-6-25 21:57
+
+
+小千5400w，巴不加今天的4400w，稳超了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  free  
+##### 3142#       发表于 2021-6-25 21:59
+
+
+[https://twitter.com/nana_kaguraaa/status/1408410192161636355](https://twitter.com/nana_kaguraaa/status/1408410192161636355)
+
+狗妈的小人，我觉得根本就不像
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/215918pygyng8nyca2ky38.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (342.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 21:59 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/215918gkr8z78jrdkddwk1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (249.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 21:59 上传
+
+
+-----
+
+####  yamato gun  
+##### 3143#       发表于 2021-6-25 22:15
+
+
+昨天把露露歌回循环了好久，今天又和朋友一起开心看阿巴3d
+
+心情复杂啊
+
+
+                                                

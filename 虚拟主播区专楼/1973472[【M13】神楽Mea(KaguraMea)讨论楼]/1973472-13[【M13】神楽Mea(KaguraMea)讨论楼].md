@@ -1151,3 +1151,246 @@ pxj很可怕，看到就很不安，请不要再继续了（给陈睿送钱也�
 
 
                                                  
+
+-----
+
+####  时间在我手中  
+##### 18107#       发表于 2021-6-25 20:53
+
+
+友善面对小学生，她真的好温柔，我哭死（x）
+
+
+-----
+
+####  2111X  
+##### 18108#       发表于 2021-6-25 20:54
+
+
+woc,是小学生，两边都是<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18109#       发表于 2021-6-25 21:12
+
+
+ 本帖最后由 时间在我手中 于 2021-6-25 21:16 编辑 
+
+果然NGS已经腻了，上次那个装备刷了六小时没出来直接垃圾游戏再见了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+经典人有我无，是我也润了
+
+
+-----
+
+####  T_Hb  
+##### 18110#       发表于 2021-6-25 21:12
+
+
+NGS刷了6个小时不出东西，垃圾游戏 再也不玩了
+
+
+-----
+
+####  Klience  
+##### 18111#       发表于 2021-6-25 21:14
+
+
+好 接下来是lol的时代了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18112#       发表于 2021-6-25 21:21
+
+
+ 本帖最后由 T_Hb 于 2021-6-25 21:22 编辑 
+
+聊完天就想下播了，一首歌都没有的歌回
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 18113#       发表于 2021-6-25 21:22
+
+
+我还以为会补一首歌删档<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18114#       发表于 2021-6-25 21:23
+
+
+我觉得挺好的，这次杂谈其实不错，谢谢那个贝贝壬提醒你麻下播了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18115#       发表于 2021-6-25 21:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难得的油管杂谈回（）
+
+
+-----
+
+####  yywzjsw  
+##### 18116#       发表于 2021-6-25 21:23
+
+
+艹
+
+
+-----
+
+####  十九号大侠  
+##### 18117#       发表于 2021-6-25 21:23
+
+
+并不是歌回，欺诈
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 18118#       发表于 2021-6-25 21:23
+
+
+又有贝贝人吗，我都没看comment
+
+
+-----
+
+####  2014720  
+##### 18119#       发表于 2021-6-25 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51740176&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-25 21:23</a>
+我觉得挺好的，这次杂谈其实不错，谢谢那个贝贝壬提醒你麻下播了</blockquote>
+怎么了
+
+
+-----
+
+####  咸鱼渣  
+##### 18120#       发表于 2021-6-25 21:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">真正的“歌回”
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 18121#       发表于 2021-6-25 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51740194&amp;ptid=1973472" target="_blank">2014720 发表于 2021-6-25 21:23</a>
+
+怎么了</blockquote>
+没怎么，就是那个OvOめあくあ的比来了句【歌枠かな？【笑哭】【笑哭】】吊人看到了就觉得累了，然后就直接run了
+
+
+-----
+
+####  T_Hb  
+##### 18122#       发表于 2021-6-25 21:28
+
+
+ 本帖最后由 T_Hb 于 2021-6-25 21:40 编辑 
+
+不知道为什么，我看她PTSD这么严重甚至有一种安心感
+
+可能我PTSD也挺严重的吧<img src="https://static.saraba1st.com/image/smiley/face2017/093.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kenjjj  
+##### 18123#       发表于 2021-6-25 21:30
+
+
+ 本帖最后由 kenjjj 于 2021-6-25 21:31 编辑 
+
+你们心心念念的油管频道有杂谈了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 18124#       发表于 2021-6-25 21:30
+
+
+ 本帖最后由 fgfg435 于 2021-6-25 21:43 编辑 
+
+连体壬早该四四了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl   感觉没有听到歌有点要犯病了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18125#       发表于 2021-6-25 21:30
+
+
+好事 都是好事 这人下播该提醒我打游戏了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 18126#       发表于 2021-6-25 21:45
+
+
+又建了个待机聊天室么
+
+
+-----
+
+####  T_Hb  
+##### 18127#       发表于 2021-6-25 21:49
+
+
+ 本帖最后由 T_Hb 于 2021-6-25 22:21 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/214847muacaciii7i7ka6d.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (16.24 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 21:48 上传
+
+
+还换了个封面
+
+没啊，这chatroom我点过赞了
+
+syl 下次直播是28号晚8点 三周年直播
+
+
+-----
+
+####  2014720  
+##### 18128#       发表于 2021-6-25 22:19
+
+
+28号真的回的来？
+
+
+                                                

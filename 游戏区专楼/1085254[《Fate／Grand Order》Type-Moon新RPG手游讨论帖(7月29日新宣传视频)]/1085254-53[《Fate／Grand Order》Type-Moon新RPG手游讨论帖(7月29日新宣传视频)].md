@@ -17220,3 +17220,60 @@ c呆唐突复课。。。。。。。。。。。。而且居然还是up2。。�
 
 
                                                  
+
+-----
+
+####  angelooo  
+##### 79410#       发表于 2021-6-25 21:09
+
+
+那么周年复刻塞谁呢？干脆不复刻了好不好啊23333
+
+
+
+
+-----
+
+####  qixinno2  
+##### 79411#       发表于 2021-6-25 21:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年周年要出新的红拐么
+
+
+-----
+
+####  areklose  
+##### 79412#       发表于 2021-6-25 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51739868&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-6-25 21:09</a>
+
+那么周年复刻塞谁呢？干脆不复刻了好不好啊23333</blockquote>
+周年没说固定有复刻吧 CBA我记得是在DL复刻吧
+
+
+-----
+
+####  miro112233  
+##### 79413#       发表于 2021-6-25 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51739868&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-6-25 21:09</a>
+
+那么周年复刻塞谁呢？干脆不复刻了好不好啊23333</blockquote>
+传统艺能，2.1-2.6异闻带日替up<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smdzh2  
+##### 79414#       发表于 2021-6-25 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51739950&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-6-25 22:11</a>
+今年周年要出新的红拐么</blockquote>
+100%充能，两个拐一人充一面，满破宝石翁再就业，算个屁的np率起手满buff直接秒了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                
