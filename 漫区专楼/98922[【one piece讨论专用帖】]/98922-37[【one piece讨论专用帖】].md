@@ -15751,3 +15751,23 @@ WT在SBS回应过，橡胶JJ的确可以变大
 
 
                                                  
+
+-----
+
+####  lqchina  
+##### 55328#       发表于 2021-6-26 02:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51743209&amp;ptid=98922" target="_blank">faiths 发表于 2021-6-26 02:28</a>
+
+还有就是在读者视角的感觉是路飞吃了橡胶果实是人尽皆知的事，但实际上绝大多数故事里的人都不知道路飞到底 ...</blockquote>
+“那个草帽是啥果实能力？！！”
+
+
+远远传来路飞的怒吼：“橡胶橡胶铳乱打！！！”
+
+
+“……哦，是橡胶。”
+
+
+                                                 
