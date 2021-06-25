@@ -1,0 +1,2870 @@
+
+
+-----
+
+####  凶手  
+##### 1#       楼主       发表于 2021-6-24 16:05
+
+
+ 本帖最后由 凶手 于 2021-6-25 10:05 编辑 
+
+2021-06-28 dev channel 就有了
+
+[官方介绍1](https://blogs.windows.com/windowsexperience/2021/06/24/introducing-windows-11/)
+[官方介绍2（内含能否升级的兼容性检查）](https://www.microsoft.com/en-us/windows/windows-11)
+[官方新 store 详细介绍](https://blogs.windows.com/windowsexperience/2021/06/24/building-a-new-open-microsoft-store-on-windows-11/)
+
+
+-----------------------------------------------------------------------------------
+
+[直播地址](https://www.microsoft.com/en-us/windows/event)
+
+
+对已泄漏镜像的一些 reviews:
+[the verge tom老师](https://www.theverge.com/2021/6/15/22535123/microsoft-windows-11-leak-screenshots-start-menu)
+[paul 老师](https://www.thurrott.com/windows/windows-11/252111/windows-11-real-world-use)
+
+
+除此之外值得期待的东西：
+
+
+新 store 
+
+我这有之前实验用 web store 的片子 但是不能放 而且也仅仅是实验 
+
+[https://twitter.com/Windows/status/1407715140297007116](https://twitter.com/Windows/status/1407715140297007116)
+
+tom 老师根据这条推测可能会有 Windows 11 平板相关的消息
+
+
+"Project Latte"
+
+港真这个我是这么想 已经有运行 linux gui 软件的能力了 但是直接像 Chrome OS 那么搞希望不大？会是 your phone 的进一步？
+
+[更多请看 mary 老师的总结](https://www.zdnet.com/article/microsofts-windows-11-launch-event-what-to-expect-and-how-to-watch/)
+
+
+-----
+
+####  量子力学  
+##### 2#       发表于 2021-6-24 16:07
+
+
+等看阿三上台表演切腹
+
+
+-----
+
+####  distrowatch  
+##### 3#       发表于 2021-6-24 16:49
+
+
+ 本帖最后由 distrowatch 于 2021-6-24 16:51 编辑 
+
+22000RTM的话估计不会有什么变化了，这次21996泄露微软明显急了到处叫人下架
+
+
+-----
+
+####  BoomerCE  
+##### 4#       发表于 2021-6-24 16:55
+
+
+<blockquote>distrowatch 发表于 2021-6-24 16:49
+22000RTM的话估计不会有什么变化了，这次21996泄露微软明显急了到处叫人下架</blockquote>
+有人说很多新特性是由服务器端控制是否启用的，我也不知道该不该信
+
+
+-----
+
+####  distrowatch  
+##### 5#       发表于 2021-6-24 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51724044&amp;ptid=2011727" target="_blank">BoomerCE 发表于 2021-6-24 16:55</a>
+
+有人说很多新特性是由服务器端控制是否启用的，我也不知道该不该信</blockquote>
+其实跟19043比新特性也不少了，只是之前insider跟10x已经展示过
+
+
+-----
+
+####  冰箱研会长  
+##### 6#       发表于 2021-6-24 17:23
+
+
+我就记着哪个坛友说了句win32虚拟机
+
+我现在就特别惦记这个...
+
+
+-----
+
+####  耕者有其田  
+##### 7#       发表于 2021-6-24 18:52
+
+
+微软的东西不值得期待。
+
+
+-----
+
+####  凶手  
+##### 8#         楼主| 发表于 2021-6-24 19:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51724387&amp;ptid=2011727" target="_blank">冰箱研会长 发表于 2021-6-24 17:23</a>
+我就记着哪个坛友说了句win32虚拟机
+
+我现在就特别惦记这个...</blockquote>
+那是啥 sandbox更进一步？
+
+
+-----
+
+####  imbazdw  
+##### 9#       发表于 2021-6-24 19:02
+
+
+笑看三哥CEO表演。
+
+
+-----
+
+####  凶手  
+##### 10#         楼主| 发表于 2021-6-24 19:05
+
+
+怎么楼里这么多说耷拉的
+早就是panos主导了啊
+
+
+-----
+
+####  zatsuza  
+##### 11#       发表于 2021-6-24 19:16
+
+
+它就算没新东西，你还是得用<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DTCPSS  
+##### 12#       发表于 2021-6-24 19:30
+
+
+WinDiv 需要个有品位的独裁者<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/24/192846c6vd6h6e49s49cil.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (74.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-24 19:28 上传
+
+
+-----
+
+####  冰箱研会长  
+##### 13#       发表于 2021-6-24 20:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51725552&amp;ptid=2011727" target="_blank">凶手 发表于 2021-6-24 19:01</a>
+
+那是啥 sandbox更进一步？</blockquote>
+大概是系统抛弃历史包袱的同时做到向下兼容的手段吧
+
+
+-----
+
+####  isszs  
+##### 14#       发表于 2021-6-24 20:22
+
+
+据说新商店允许任意应用上架，像Chrome，Firefox这样的也能上。还允许上架者通过自己的网络提供下载，这是直接把商店整成winget GUI了啊
+
+
+-----
+
+####  DTCPSS  
+##### 15#       发表于 2021-6-24 20:25
+
+
+ 本帖最后由 DTCPSS 于 2021-6-24 20:27 编辑 
+
+编辑
+
+
+-----
+
+####  若荼泱  
+##### 16#       发表于 2021-6-24 20:33
+
+
+前排沙发谨慎不看好。
+
+
+-----
+
+####  kyo_pj  
+##### 17#       发表于 2021-6-24 20:35
+
+
+都无所谓  换个皮肤加点特效就行  反正我就一平民
+话说 什么时候能推送啊 哈哈哈哈
+
+
+- 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/zh-cn/p/stage1st/9nj2qf6m25f6) 非官方客户端
+
+
+-----
+
+####  撒撒  
+##### 18#       发表于 2021-6-24 20:40
+
+
+前排，据说有新平板。
+
+
+-----
+
+####  平井姨夫  
+##### 19#       发表于 2021-6-24 20:46
+
+
+希望能测试稳定后再推出市场，不想再当小白鼠了……
+
+
+-----
+
+####  DTCPSS  
+##### 20#       发表于 2021-6-24 22:59
+
+
+Win11 公开预览版要28号左右
+
+
+- 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/zh-cn/p/stage1st/9nj2qf6m25f6) 非官方客户端
+
+
+-----
+
+####  colodes  
+##### 21#       发表于 2021-6-24 23:02
+
+
+我以为我卡，发现CNET转播也卡
+
+
+-----
+
+####  yikaa  
+##### 22#       发表于 2021-6-24 23:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">和其他的发布会相比，Windows 发布会的专楼真是冷清
+
+
+-----
+
+####  findpkq  
+##### 23#       发表于 2021-6-24 23:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">微软是没想到有这么多人闲着没事来看发布会吗
+
+
+-----
+
+####  凶手  
+##### 24#         楼主| 发表于 2021-6-24 23:04
+
+
+直播卡住了 笑死我了XD
+
+
+-----
+
+####  yst234  
+##### 25#       发表于 2021-6-24 23:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 怎么直播还能出 bug 的啊
+
+
+-----
+
+####  中川夏纪  
+##### 26#       发表于 2021-6-24 23:05
+
+
+我说怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  colodes  
+##### 27#       发表于 2021-6-24 23:05
+
+
+推特有直播
+[https://twitter.com/i/events/1407353538875850752](https://twitter.com/i/events/1407353538875850752)
+
+
+-----
+
+####  shabee001  
+##### 28#       发表于 2021-6-24 23:06
+
+
+差点以为是我的问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  再买自检星剁手  
+##### 29#       发表于 2021-6-24 23:06
+
+
+你软行不行啊，直播这么卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  colodes  
+##### 30#       发表于 2021-6-24 23:06
+
+
+目前和泄露特性完全一样
+
+
+
+
+-----
+
+####  isszs  
+##### 31#       发表于 2021-6-24 23:07
+
+
+真卡啊。。
+
+
+-----
+
+####  bestwood  
+##### 32#       发表于 2021-6-24 23:07
+
+
+太卡了，看个锤子
+
+
+-----
+
+####  dayuii  
+##### 33#       发表于 2021-6-24 23:07
+
+
+vista时代的挂件又搬出来了？
+
+
+-----
+
+####  Litccc  
+##### 34#       发表于 2021-6-24 23:07
+
+
+是不是可以提前就这了？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bubuyu  
+##### 35#       发表于 2021-6-24 23:07
+
+
+这卡的………
+
+
+-----
+
+####  colodes  
+##### 36#       发表于 2021-6-24 23:07
+
+
+就这
+
+
+-----
+
+####  yikaa  
+##### 37#       发表于 2021-6-24 23:08
+
+
+就这
+
+
+-----
+
+####  yikaa  
+##### 38#       发表于 2021-6-24 23:09
+
+
+他砍掉了动态磁贴，他又加了回去
+
+
+-----
+
+####  Pettabuz  
+##### 39#       发表于 2021-6-24 23:09
+
+
+twitter不卡。。。绝了，不愧是微软
+
+
+-----
+
+####  迷的思考者  
+##### 40#       发表于 2021-6-24 23:09
+
+
+费拉不堪。。。
+
+
+-----
+
+####  结夜野棠.  
+##### 41#       发表于 2021-6-24 23:09
+
+
+微软直播这么卡还好意思不用 youtube
+
+
+-----
+
+####  DTCPSS  
+##### 42#       发表于 2021-6-24 23:10
+
+
+直播也能挂，不愧是云大厂
+
+
+-----
+
+####  朽木  
+##### 43#       发表于 2021-6-24 23:10
+
+
+[https://live.bilibili.com/4548475](https://live.bilibili.com/4548475)
+
+B站直播
+
+
+-----
+
+####  奶绷子  
+##### 44#       发表于 2021-6-24 23:11
+
+
+bug11
+
+
+-----
+
+####  wizardasd  
+##### 45#       发表于 2021-6-24 23:12
+
+
+卡就卡吧，至少不用爬梯子……
+
+
+-----
+
+####  迷的思考者  
+##### 46#       发表于 2021-6-24 23:13
+
+
+这个窗口快照还有点意思。。
+
+
+-----
+
+####  Pettabuz  
+##### 47#       发表于 2021-6-24 23:13
+
+
+说这么多还不如把sets弄回来。。。
+
+
+-----
+
+####  暗铁  
+##### 48#       发表于 2021-6-24 23:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">巨硬你的surface呢在，怎么帮薯条卖广告
+
+—— 来自 samsung SM-G9650, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  再买自检星剁手  
+##### 49#       发表于 2021-6-24 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728709&amp;ptid=2011727" target="_blank">暗铁 发表于 2021-6-24 23:14</a>
+
+巨硬你的surface呢在，怎么帮薯条卖广告
+
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅版 ...</blockquote>
+surface老大都没说啥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  再买自检星剁手  
+##### 50#       发表于 2021-6-24 23:17
+
+
+好像听到了connecting people<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus HD1905, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+-----
+
+####  DTCPSS  
+##### 51#       发表于 2021-6-24 23:18
+
+
+草，集成 teams
+
+
+-----
+
+####  colodes  
+##### 52#       发表于 2021-6-24 23:18
+
+
+no one is going to use this
+
+
+-----
+
+####  凶手  
+##### 53#         楼主| 发表于 2021-6-24 23:18
+
+
+传闻中的新的 outlook?
+
+
+-----
+
+####  Pettabuz  
+##### 54#       发表于 2021-6-24 23:18
+
+
+ 本帖最后由 Pettabuz 于 2021-6-24 23:24 编辑 
+
+中国区这个功能会怎样暂且蒙古，反正感觉是多了个要卸载的玩意儿。。。
+
+对了还是electron垃圾，必须卸载！！！<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yikaa  
+##### 55#       发表于 2021-6-24 23:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> around the world 中国区除外
+
+
+-----
+
+####  DTCPSS  
+##### 56#       发表于 2021-6-24 23:19
+
+
+👎👎👎👎👎😡😡😡😡😡
+
+
+-----
+
+####  再买自检星剁手  
+##### 57#       发表于 2021-6-24 23:19
+
+
+记得teams是个electron软件？？
+
+
+不过现在安卓安装包在文件大小上已经超过electron app了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  泉美  
+##### 58#       发表于 2021-6-24 23:20
+
+
+笑了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DTCPSS  
+##### 59#       发表于 2021-6-24 23:21
+
+
+Windows 负一屏，，，
+
+
+-----
+
+####  KarsusNeko  
+##### 60#       发表于 2021-6-24 23:21
+
+
+AI推送广告
+
+
+
+
+-----
+
+####  DTCPSS  
+##### 61#       发表于 2021-6-24 23:23
+
+
+ 本帖最后由 DTCPSS 于 2021-6-24 23:24 编辑 
+
+Win11 这个触摸键盘终于不卡了
+Win10 的语音输入最近几个版本是残废的，现在 11 也修好了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shabee001  
+##### 62#       发表于 2021-6-24 23:24
+
+
+ 本帖最后由 shabee001 于 2021-6-24 23:26 编辑 
+
+<img src="https://i3.hoopchina.com.cn/hupuapp/bbs/20829199452312/thread_20829199452312_20190414152245_s_38791_w_365_h_341_30201.jpg?x-oss-process=image/resize,w_800/format,webp" referrerpolicy="no-referrer">
+
+
+下载.jpg
+(13.48 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-24 23:26 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/232609ga4a4aah5baahsss.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  findpkq  
+##### 63#       发表于 2021-6-24 23:24
+
+
+负一屏如果能用户自己深入定制的话还挺方便的，和notion api什么的结合下……
+
+
+-----
+
+####  凶手  
+##### 64#         楼主| 发表于 2021-6-24 23:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728853&amp;ptid=2011727" target="_blank">DTCPSS 发表于 2021-6-24 23:23</a>
+Win11 这个触摸键盘终于不卡了</blockquote>
+巨硬的演示片片就当看毛片吧 都是假的
+
+
+-----
+
+####  DTCPSS  
+##### 65#       发表于 2021-6-24 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728865&amp;ptid=2011727" target="_blank">凶手 发表于 2021-6-24 23:24</a>
+巨硬的演示片片就当看毛片吧 都是假的</blockquote>
+我已经用上泄漏版了，确实不卡了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  colodes  
+##### 66#       发表于 2021-6-24 23:26
+
+
+新的商店看起来也是electron?
+
+
+-----
+
+####  凶手  
+##### 67#         楼主| 发表于 2021-6-24 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728879&amp;ptid=2011727" target="_blank">DTCPSS 发表于 2021-6-24 23:25</a>
+我已经用上泄漏版了，确实不卡了</blockquote>
+有新的outlook吗 新store如何
+
+
+-----
+
+####  DTCPSS  
+##### 68#       发表于 2021-6-24 23:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728891&amp;ptid=2011727" target="_blank">凶手 发表于 2021-6-24 23:26</a>
+有新的outlook吗 新store如何</blockquote>
+都没有，早期版本
+
+
+-----
+
+####  凶手  
+##### 69#         楼主| 发表于 2021-6-24 23:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728861&amp;ptid=2011727" target="_blank">shabee001 发表于 2021-6-24 23:24</a></blockquote>
+好像大家都这么想的 twitter峰值好像是不到70k 现在不到40了
+
+
+-----
+
+####  isszs  
+##### 70#       发表于 2021-6-24 23:28
+
+
+我还以为要请spencer呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Pettabuz  
+##### 71#       发表于 2021-6-24 23:30
+
+
+“it just works”
+
+草
+
+
+-----
+
+####  DTCPSS  
+##### 72#       发表于 2021-6-24 23:30
+
+
+Xbox 的 Direct Storage 下放好评
+
+
+-----
+
+####  distrowatch  
+##### 73#       发表于 2021-6-24 23:31
+
+
+重新介绍这半年insider里的功能
+
+
+-----
+
+####  再买自检星剁手  
+##### 74#       发表于 2021-6-24 23:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728946&amp;ptid=2011727" target="_blank">DTCPSS 发表于 2021-6-24 23:30</a>
+
+Xbox 的 Direct Storage 下放好评</blockquote>
+估计是11独占了，臭打游戏的必须跟着升级了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pgain2004  
+##### 75#       发表于 2021-6-24 23:32
+
+
+演示里这Game Store的拖动都这么卡
+
+
+-----
+
+####  Pettabuz  
+##### 76#       发表于 2021-6-24 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728978&amp;ptid=2011727" target="_blank">pgain2004 发表于 2021-6-24 23:32</a>
+演示里这Game Store的拖动都这么卡</blockquote>
+electron代谢产物是这样的<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lisylfn  
+##### 77#       发表于 2021-6-24 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728978&amp;ptid=2011727" target="_blank">pgain2004 发表于 2021-6-24 23:32</a>
+演示里这Game Store的拖动都这么卡</blockquote>
+录屏卡顿了吧，鼠标移动都卡…不知道怎么录的
+
+
+-----
+
+####  凶手  
+##### 78#         楼主| 发表于 2021-6-24 23:34
+
+
+开始详细说store了
+
+
+-----
+
+####  colodes  
+##### 79#       发表于 2021-6-24 23:34
+
+
+vscode在商店哎
+
+
+-----
+
+####  凶手  
+##### 80#         楼主| 发表于 2021-6-24 23:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51728987&amp;ptid=2011727" target="_blank">Lisylfn 发表于 2021-6-24 23:33</a>
+录屏卡顿了吧，鼠标移动都卡…不知道怎么录的</blockquote>
+xbox app ux/ux很差 
+
+
+-----
+
+####  4ckc  
+##### 81#       发表于 2021-6-24 23:35
+
+
+商店出现了android apps
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  DraQin  
+##### 82#       发表于 2021-6-24 23:36
+
+
+是这哥们说话就是一顿一顿的还是直播卡，总感觉听他讲话好难受呀
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  colodes  
+##### 83#       发表于 2021-6-24 23:36
+
+
+噢哦哦哦
+
+
+-----
+
+####  DTCPSS  
+##### 84#       发表于 2021-6-24 23:36
+
+
+新商店别是 web 做的
+
+
+-----
+
+####  Pettabuz  
+##### 85#       发表于 2021-6-24 23:36
+
+
+latte来了
+
+
+-----
+
+####  凶手  
+##### 86#         楼主| 发表于 2021-6-24 23:36
+
+
+卧槽直接来？
+
+
+-----
+
+####  Litccc  
+##### 87#       发表于 2021-6-24 23:36
+
+
+以后windows也能玩农药啦<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  leystage  
+##### 88#       发表于 2021-6-24 23:37
+
+
+狂喜乱舞
+
+
+-----
+
+####  DraQin  
+##### 89#       发表于 2021-6-24 23:37
+
+
+集成亚马逊Appstore可还行
+国内是不是来个应用宝啥的呀<img src="https://static.saraba1st.com/image/smiley/face2017/008.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  leystage  
+##### 90#       发表于 2021-6-24 23:37
+
+
+<blockquote>DraQin 发表于 2021-6-24 23:36
+是这哥们说话就是一顿一顿的还是直播卡，总感觉听他讲话好难受呀
+
+
+—— 来自 HUAWEI HMA-AL00, Android 10 ...</blockquote>
+Engadget 的源很流畅
+
+
+
+
+-----
+
+####  DTCPSS  
+##### 91#       发表于 2021-6-24 23:37
+
+
+Astoria 转了一圈又回来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  colodes  
+##### 92#       发表于 2021-6-24 23:37
+
+
+竟然用amazon store真是四处求兵了 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  KarsusNeko  
+##### 93#       发表于 2021-6-24 23:38
+
+
+chrome os完了？Linux和安卓都有了，还有Windows
+
+但是其实我日常已经很久没用win了
+
+
+-----
+
+####  DraQin  
+##### 94#       发表于 2021-6-24 23:39
+
+
+Windows 11 brings you choice
+hhh
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  759745738  
+##### 95#       发表于 2021-6-24 23:39
+
+
+我唯一关心的是surfacepro4能不能免费刷上11的系统
+
+
+-----
+
+####  再买自检星剁手  
+##### 96#       发表于 2021-6-24 23:39
+
+
+win11自带谷歌框架吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DTCPSS  
+##### 97#       发表于 2021-6-24 23:39
+
+
+我想要 Apple M1 的 Surface <img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer"> 不要垃圾 A78C
+
+
+-----
+
+####  KarsusNeko  
+##### 98#       发表于 2021-6-24 23:39
+
+
+这就没了？微软赶紧去死吧
+
+
+-----
+
+####  结夜野棠.  
+##### 99#       发表于 2021-6-24 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729041&amp;ptid=2011727" target="_blank">759745738 发表于 2021-6-24 23:39</a>
+
+我唯一关心的是surfacepro4能不能免费刷上11的系统</blockquote>
+微软已经不靠卖 windows 拷贝赚钱了，应该都能免费升
+
+
+-----
+
+####  DraQin  
+##### 100#       发表于 2021-6-24 23:40
+
+
+就没了？
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  distrowatch  
+##### 101#       发表于 2021-6-24 23:41
+
+
+woa配用安卓apps么，wslg说还在解决arm64内存共享问题，高通也没有wddm3.0驱动
+
+
+-----
+
+####  yujohn  
+##### 102#       发表于 2021-6-24 23:41
+
+
+ 本帖最后由 yujohn 于 2021-6-24 23:42 编辑 
+
+国内版会怎么支持安卓呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DraQin  
+##### 103#       发表于 2021-6-24 23:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729062&amp;ptid=2011727" target="_blank">yujohn 发表于 2021-6-24 23:41</a>
+国内会怎么支持安卓，上不了googleplay呀</blockquote>
+应用宝集成警告<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  凶手  
+##### 104#         楼主| 发表于 2021-6-24 23:41
+
+
+store终于是native了
+
+[https://github.com/JustinXinLiu](https://github.com/JustinXinLiu)
+
+这个哥们带队做的 体验应该比之前的版本强一些
+
+
+-----
+
+####  shqingda  
+##### 105#       发表于 2021-6-24 23:42
+
+
+三哥越来越白了
+
+
+-----
+
+####  Litccc  
+##### 106#       发表于 2021-6-24 23:42
+
+
+如果，我是说如果，国内有可能直接对接鸿蒙吗？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DraQin  
+##### 107#       发表于 2021-6-24 23:44
+
+
+我不要听演讲了
+我知道你不只是一个platform
+赶紧把镜像交出来
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  凶手  
+##### 108#         楼主| 发表于 2021-6-24 23:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729033&amp;ptid=2011727" target="_blank">KarsusNeko 发表于 2021-6-24 23:38</a>
+chrome os完了？Linux和安卓都有了，还有Windows
+
+但是其实我日常已经很久没用win了 ...</blockquote>
+chrome os是这十年增长最快的吧 但好像主要在教育市场
+
+
+-----
+
+####  distrowatch  
+##### 109#       发表于 2021-6-24 23:45
+
+
+ 本帖最后由 distrowatch 于 2021-6-24 23:48 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729093&amp;ptid=2011727" target="_blank">DraQin 发表于 2021-6-24 23:44</a>
+
+我不要听演讲了
+
+我知道你不只是一个platform
+
+赶紧把镜像交出来</blockquote>
+应该要一点才有，平时insider更新的时间
+
+
+ahshit怎么是28号，21390在arm64下天天死机能不能马上解决下
+
+
+-----
+
+####  DTCPSS  
+##### 110#       发表于 2021-6-24 23:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729093&amp;ptid=2011727" target="_blank">DraQin 发表于 2021-6-24 23:44</a>
+我不要听演讲了
+我知道你不只是一个platform
+赶紧把镜像交出来</blockquote>
+28号
+
+
+-----
+
+####  KarsusNeko  
+##### 111#       发表于 2021-6-24 23:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729101&amp;ptid=2011727" target="_blank">凶手 发表于 2021-6-24 23:45</a>
+chrome os是这十年增长最快的吧 但好像主要在教育市场</blockquote>
+但是微软现在做的就是在win上加上chrome os的功能吧
+鉴于微软干啥啥不行，我打了问号
+
+
+-----
+
+####  nanonya2  
+##### 112#       发表于 2021-6-24 23:48
+
+
+Teams内置之后不知道国内能不能用
+
+
+-----
+
+####  yujohn  
+##### 113#       发表于 2021-6-24 23:48
+
+
+chromebook起码便宜点，低端机也流畅，不知道win11在低端机上跑起来怎么样
+
+
+-----
+
+####  tivipax  
+##### 114#       发表于 2021-6-24 23:50
+
+
+ 本帖最后由 tivipax 于 2021-6-24 23:52 编辑 
+
+Windows 11是一个免费升级
+
+[https://www.theverge.com/2021/6/24/22546801/microsoft-windows-11-free-upgrade-details](https://www.theverge.com/2021/6/24/22546801/microsoft-windows-11-free-upgrade-details)
+
+
+-----
+
+####  ashunicorn  
+##### 115#       发表于 2021-6-24 23:51
+
+
+巨硬的野心还是打造一个巨无霸生态圈，反正都兼容那么多了不怕再多兼容点
+
+XGP应该会是下一个增长点，如果社交性还是那个鸟样估计还是被Sbeam吊打
+
+
+-----
+
+####  Heero_Z  
+##### 116#       发表于 2021-6-24 23:52
+
+
+Chromebook主打一个中低端和不作恶自家产品的生态吧，微软要是能做好生态，也不至于如今来兼容安卓<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT51, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  凶手  
+##### 117#         楼主| 发表于 2021-6-24 23:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729161&amp;ptid=2011727" target="_blank">ashunicorn 发表于 2021-6-24 23:51</a>
+巨硬的野心还是打造一个巨无霸生态圈，反正都兼容那么多了不怕再多兼容点
+
+XGP应该会是下一个增长点，如果社 ...</blockquote>
+discord都没买下来还是算了
+
+
+-----
+
+####  404489039  
+##### 118#       发表于 2021-6-24 23:52
+
+
+windows现在已经内置的linux 安卓了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+什么时候把mac也内置了
+
+
+-----
+
+####  gulant  
+##### 119#       发表于 2021-6-24 23:53
+
+
+所以什么时候能升级呢，品牌机能升么。
+
+
+-----
+
+####  暁美ほむら  
+##### 120#       发表于 2021-6-24 23:54
+
+
+讲到色彩管理系统改善了吗？
+
+
+
+
+-----
+
+####  暁美ほむら  
+##### 121#       发表于 2021-6-24 23:54
+
+
+讲到色彩管理系统改善了吗？
+
+
+-----
+
+####  奥柏伦亲王  
+##### 122#       发表于 2021-6-24 23:54
+
+
+为什么闻到了病急乱投医的味道呢……希望是我的幻觉…
+
+
+-----
+
+####  凶手  
+##### 123#         楼主| 发表于 2021-6-24 23:55
+
+
+笑死XDD 巨硬blog里还有死链
+
+
+-----
+
+####  yikaa  
+##### 124#       发表于 2021-6-24 23:56
+
+
+不管怎么说，能干净利落的结束挺好的。方便我早点睡觉<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  再买自检星剁手  
+##### 125#       发表于 2021-6-24 23:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729191&amp;ptid=2011727" target="_blank">暁美ほむら 发表于 2021-6-24 23:54</a>
+
+讲到色彩管理系统改善了吗？</blockquote>
+没，估计是觉得观众听不懂吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Realplayer  
+##### 126#       发表于 2021-6-24 23:57
+
+
+这都咧咧了些啥……
+
+
+-----
+
+####  暁美ほむら  
+##### 127#       发表于 2021-6-24 23:58
+
+
+结束了？所以色彩管理系统依然没改善?
+
+
+-----
+
+####  alexwu  
+##### 128#       发表于 2021-6-24 23:59
+
+
+chrome os的优势：1、轻量，省电，没win32那么重的历史包袱；2、本身就是深度定制的linux系统，跑linux容器方便；3、安卓支持这个不用说了，主场作战怎么输
+
+
+-----
+
+####  99mxw  
+##### 129#       发表于 2021-6-25 00:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729237&amp;ptid=2011727" target="_blank">暁美ほむら 发表于 2021-6-24 23:58</a>
+结束了？所以色彩管理系统依然没改善?</blockquote>
+游戏那里好像讲了点hdr啥的，色彩管理没听到
+
+
+-----
+
+####  暁美ほむら  
+##### 130#       发表于 2021-6-25 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729259&amp;ptid=2011727" target="_blank">99mxw 发表于 2021-6-25 00:01</a>
+
+游戏那里好像讲了点hdr啥的，色彩管理没听到</blockquote>
+HDR你也不用抱什么期待
+
+
+-----
+
+####  Pz079  
+##### 131#       发表于 2021-6-25 00:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729237&amp;ptid=2011727" target="_blank">暁美ほむら 发表于 2021-6-24 23:58</a>
+结束了？所以色彩管理系统依然没改善?</blockquote>
+没有人在乎的东西不要自high了，真有需要你换系统就行了，不用每次跳出来特意说
+
+
+-----
+
+####  cuchulain2021  
+##### 132#       发表于 2021-6-25 00:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729129&amp;ptid=2011727" target="_blank">yujohn 发表于 2021-6-24 23:48</a>
+
+chromebook起码便宜点，低端机也流畅，不知道win11在低端机上跑起来怎么样</blockquote>
+等能升了我用我那atom3745的2g平板跑跑就知道了
+
+
+-----
+
+####  DTCPSS  
+##### 133#       发表于 2021-6-25 00:05
+
+
+ 本帖最后由 DTCPSS 于 2021-6-25 00:08 编辑 
+
+Win11 需要 TPM 2.0 安全模块才能安装。
+大更新周期为一年一次，在下半年发布。
+
+
+-----
+
+####  暁美ほむら  
+##### 134#       发表于 2021-6-25 00:09
+
+
+ 本帖最后由 暁美ほむら 于 2021-6-25 00:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729298&amp;ptid=2011727" target="_blank">Pz079 发表于 2021-6-25 00:04</a>
+
+没有人在乎的东西不要自high了，真有需要你换系统就行了，不用每次跳出来特意说 ...</blockquote>
+首先你搞错人了，之前帖子的那是另外一个人。
+
+
+其次现如今的HDR难到不需要色彩管理系统？
+
+
+况且这还要看需求的人多不多？这种一直以来存在的问题不应该去改善吗？
+
+
+-----
+
+####  shunfeng  
+##### 135#       发表于 2021-6-25 00:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729190&amp;ptid=2011727" target="_blank">暁美ほむら 发表于 2021-6-24 23:54</a>
+讲到色彩管理系统改善了吗？</blockquote>
+相关的只有一个自动hdr，没别的了
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  哎哟卧槽了  
+##### 136#       发表于 2021-6-25 00:11
+
+
+求能完美地用gboard<img src="https://static.saraba1st.com/image/smiley/face2017/182.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9760, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  DraQin  
+##### 137#       发表于 2021-6-25 00:11
+
+
+不是Win11这是什么配置要求
+8代i5都不能装？
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  distrowatch  
+##### 138#       发表于 2021-6-25 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729353&amp;ptid=2011727" target="_blank">DraQin 发表于 2021-6-25 00:11</a>
+
+不是Win11这是什么配置要求
+
+8代i5都不能装？</blockquote>
+国内的主板没TPM2.0，大家都达不到要求
+
+
+-----
+
+####  DraQin  
+##### 139#       发表于 2021-6-25 00:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729367&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-25 00:13</a>
+国内的主板没TPM2.0，大家都达不到要求</blockquote>
+那Win11这个配置需求基本上送走绝大多数硬件了吧
+逼着你换新电脑咯
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  KarsusNeko  
+##### 140#       发表于 2021-6-25 00:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729378&amp;ptid=2011727" target="_blank">DraQin 发表于 2021-6-25 00:14</a>
+
+那Win11这个配置需求基本上送走绝大多数硬件了吧
+
+逼着你换新电脑咯</blockquote>
+不是换电脑就能解决的，国内不允许TPM
+
+
+-----
+
+####  暁美ほむら  
+##### 141#       发表于 2021-6-25 00:19
+
+
+ 本帖最后由 暁美ほむら 于 2021-6-25 00:20 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729367&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-25 00:13</a>
+
+国内的主板没TPM2.0，大家都达不到要求</blockquote>找到了，修改
+
+
+-----
+
+####  yujohn  
+##### 142#       发表于 2021-6-25 00:20
+
+
+国内可以装ghost win11<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  404489039  
+##### 143#       发表于 2021-6-25 00:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729311&amp;ptid=2011727" target="_blank">DTCPSS 发表于 2021-6-25 00:05</a>
+
+Win11 需要 TPM 2.0 安全模块才能安装。
+
+大更新周期为一年一次，在下半年发布。 ...</blockquote>
+windows11泄露出来的时候就有人反映这个问题了，网上搜搜就有解决办法。
+
+不过我自己用虚拟机安装没有这个问题
+
+
+-----
+
+####  Pz079  
+##### 144#       发表于 2021-6-25 00:24
+
+
+谁说国内没有tpm的？我刚看我笔记本设备管理器里就有tpm2.0啊
+
+
+-----
+
+####  fateultraone  
+##### 145#       发表于 2021-6-25 00:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729344&amp;ptid=2011727" target="_blank">shunfeng 发表于 2021-6-25 00:10</a>
+
+相关的只有一个自动hdr，没别的了
+
+
+—— 来自 Sony XQ-AT72, Android 11上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+Special k早就有了，做尼尔机械纪元mod的那位做的游戏注入工具能在很多游戏中强开hdr，效果十分不错
+
+
+-----
+
+####  DraQin  
+##### 146#       发表于 2021-6-25 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729419&amp;ptid=2011727" target="_blank">KarsusNeko 发表于 2021-6-25 00:19</a>
+不是换电脑就能解决的，国内不允许TPM</blockquote>
+自用的惠普本刚才在BIOS里翻了一下找到了TPM开关，打开以后弹出提示“用这个请遵守当地法规”，重启之后再开机就检测到TPM2.0可以升级Win11了（虽然不知为何Insider那里还是说不满足最低需求，但是Win11那个助手又说没问题）
+不知道国产品牌比如联想的那一批能不能这么搞，未来准备换小新系列的，要是不行岂不是挺伤
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  qazesz  
+##### 147#       发表于 2021-6-25 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729419&amp;ptid=2011727" target="_blank">KarsusNeko 发表于 2021-6-25 00:19</a>
+不是换电脑就能解决的，国内不允许TPM</blockquote>
+从Bristol ridge开始AMD的CPU都带有内置的TPM功能，可以在BIOS里开关，不用单独安装TPM模块 。不知道Intel上有没有对应的
+
+
+-----
+
+####  mwj  
+##### 148#       发表于 2021-6-25 00:32
+
+
+surface pro的触屏能更新好用点不，现在这触屏太难用
+
+
+-----
+
+####  DraQin  
+##### 149#       发表于 2021-6-25 00:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729514&amp;ptid=2011727" target="_blank">qazesz 发表于 2021-6-25 00:29</a>
+从Bristol ridge开始AMD的CPU都带有内置的TPM功能，可以在BIOS里开关，不用单独安装TPM模块 。不知道Inte ...</blockquote>
+英特尔同样去BIOS里开，开了以后Windows Defender里显示也是英特尔的方案
+不知道从几代开始有的，反正我8代是有
+
+—— 来自 HUAWEI HMA-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  DTCPSS  
+##### 150#       发表于 2021-6-25 00:42
+
+
+ 本帖最后由 DTCPSS 于 2021-6-25 00:45 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729546&amp;ptid=2011727" target="_blank">mwj 发表于 2021-6-25 00:32</a>
+surface pro的触屏能更新好用点不，现在这触屏太难用</blockquote>
+用了一礼拜了。
+首先平板模式没了。
+三指四指现在是系统手势，用来切换应用和虚拟桌面，跟触摸板手势一致。屏幕左侧滑入现在是 Feed 流和小组件。
+竖屏下可以上下分屏。横竖屏切换有个卡卡的旋转动画<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">。
+窗口边框拖动有效区大了非常多，触屏改窗口大小不像 10 的桌面模式那么捉急了。
+任务栏图标默认居中我是真不明白，无论键鼠和触屏都是靠左更方便，所以我还是改回靠左了。
+总之我觉得比 10 好点。
+
+
+
+
+-----
+
+####  BallanceHZ  
+##### 151#       发表于 2021-6-25 00:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729367&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-25 00:13</a>
+国内的主板没TPM2.0，大家都达不到要求</blockquote>
+yoga14s直接默认开，x570pro去调一下就开了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  KarsusNeko  
+##### 152#       发表于 2021-6-25 00:46
+
+
+你们能开是好事，我的戴尔bios都没那个选项，但是海外版可以
+
+
+-----
+
+####  distrowatch  
+##### 153#       发表于 2021-6-25 00:47
+
+
+查了下TPM2.0加了国内算法后好像是放开了，结果只有我的X99是真的被淘汰了么
+
+
+-----
+
+####  土旦克007  
+##### 154#       发表于 2021-6-25 00:51
+
+
+看到微软说2025年停止对win10的支持后稍微惊讶了下，我之前还以为win10能伴我用到地老天荒呢
+
+
+-----
+
+####  Litccc  
+##### 155#       发表于 2021-6-25 00:52
+
+
+所以之前泄漏的那个版本和rtm差别好像也不太大啊<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ml1642879  
+##### 156#       发表于 2021-6-25 00:53
+
+
+win10将是windows最后一代操作系统是谁说的，我也记得这句话，但是不知道是谁了
+
+
+-----
+
+####  nailuo1993  
+##### 157#       发表于 2021-6-25 01:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729259&amp;ptid=2011727" target="_blank">99mxw 发表于 2021-6-25 00:01</a>
+
+游戏那里好像讲了点hdr啥的，色彩管理没听到</blockquote>
+atuo hdr，给没有hdr的游戏加上hdr，xs上的功能
+
+
+-----
+
+####  第二十三个马甲  
+##### 158#       发表于 2021-6-25 01:10
+
+
+自动更新可以关么
+
+
+-----
+
+####  qzy741147  
+##### 159#       发表于 2021-6-25 01:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729686&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-25 00:47</a>
+查了下TPM2.0加了国内算法后好像是放开了，结果只有我的X99是真的被淘汰了么 ...</blockquote>
+我查了下华硕有好多高端板子都直接砍了tpm接口。但是同时支持ptt，不知道ptt能不能作为tpm的替代符合微软要求
+
+
+-----
+
+####  0WHan0  
+##### 160#       发表于 2021-6-25 01:17
+
+
+泄露版我最开始也不能装，提示没有TPM，但我微星B450主板BIOS里有这选项，打开就能装了
+
+
+-----
+
+####  御坂MKII  
+##### 161#       发表于 2021-6-25 01:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/098.png" referrerpolicy="no-referrer"> insider beta ring 现在还接收不到推送吗
+
+
+-----
+
+####  fateultraone  
+##### 162#       发表于 2021-6-25 01:57
+
+
+其实也就对DirectStorage感点兴趣，貌似还是win11专用的，出来后对标ps5 的ssssssssssd
+
+
+-----
+
+####  两个路人  
+##### 163#       发表于 2021-6-25 01:59
+
+
+<blockquote>ml1642879 发表于 2021-6-25 00:53
+win10将是windows最后一代操作系统是谁说的，我也记得这句话，但是不知道是谁了 ...</blockquote>
+是2015年有个叫尼克松（Jerry Nixon）的高管说的，从领英上的个人资料上看，好像还没被优化掉
+
+
+-----
+
+####  逆袭的黑月  
+##### 164#       发表于 2021-6-25 02:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">这加了auto hdr有没有顺手把WIN10上屎一样的HDR功能给修了，不然鬼要用啊。。。
+
+
+-----
+
+####  101  
+##### 165#       发表于 2021-6-25 02:56
+
+
+wsl有改进没？
+
+
+-----
+
+####  blz436  
+##### 166#       发表于 2021-6-25 04:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729501&amp;ptid=2011727" target="_blank">DraQin 发表于 2021-6-25 00:28</a>
+
+自用的惠普本刚才在BIOS里翻了一下找到了TPM开关，打开以后弹出提示“用这个请遵守当地法规”，重启之后 ...</blockquote>
+用的锐龙小新pro13，AMD PSP自带fTPM(固件TPM2.0实现)，bios把psp  processor开了就行，坐等推送更新了
+
+
+-----
+
+####  性欲モンスター  
+##### 167#       发表于 2021-6-25 06:43
+
+
+主板有TPM header的必须安装TPM 2.0模块才能安装Win11了？
+
+
+-----
+
+####  7776169  
+##### 168#       发表于 2021-6-25 06:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729720&amp;ptid=2011727" target="_blank">土旦克007 发表于 2021-6-25 00:51</a>
+
+看到微软说2025年停止对win10的支持后稍微惊讶了下，我之前还以为win10能伴我用到地老天荒呢 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">然后转交360/企鹅继续支持更新？
+
+
+-----
+
+####  有口皆悲  
+##### 169#       发表于 2021-6-25 07:04
+
+
+很吸引人啊
+
+
+-----
+
+####  尼特geek  
+##### 170#       发表于 2021-6-25 07:25
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/072510q8wu6k98lk86wzs6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>b1fe1110-0e98-406d-9947-f7189780baad.jpg</strong> (217.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 07:25 上传
+
+
+是不是这样就可以了？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  强尼高达  
+##### 171#       发表于 2021-6-25 07:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729686&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-25 00:47</a>
+查了下TPM2.0加了国内算法后好像是放开了，结果只有我的X99是真的被淘汰了么 ...</blockquote>
+没听说过，现在国内还是killtpm和各种固件TPM方案
+其实跟UEFI是差不多时间段的东西，都是Windows 8时期开始的，把十年以上的老电脑淘汰掉而已
+
+
+-----
+
+####  Zero-zero  
+##### 172#       发表于 2021-6-25 07:42
+
+
+https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windows-11-supported-intel-processors
+
+处理器兼容性列表，牙膏厂8代酷睿之前的一个都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  EraserKing  
+##### 173#       发表于 2021-6-25 07:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730626&amp;ptid=2011727" target="_blank">Zero-zero 发表于 2021-6-25 07:42</a>
+https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windows-11-supported-inte ...</blockquote>
+你看21H1还是从5代开始的呢…有人说Haswell装不上吗…
+
+— from Xiaomi MIX 2S, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  lbzlxx  
+##### 174#       发表于 2021-6-25 07:56
+
+
+看了下新闻汇总，7大变化，对普通用户完全没用啊，真就等于改了下UI，好不好用还不好说
+
+
+-----
+
+####  navarra  
+##### 175#       发表于 2021-6-25 08:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729886&amp;ptid=2011727" target="_blank">qzy741147 发表于 2021-6-25 01:15</a>
+
+我查了下华硕有好多高端板子都直接砍了tpm接口。但是同时支持ptt，不知道ptt能不能作为tpm的替代符合微软 ...</blockquote>
+可以，我一开始提示不符合，把PTT打开就行了
+
+
+-----
+
+####  leystage  
+##### 176#       发表于 2021-6-25 08:05
+
+
+<blockquote>御坂MKII 发表于 2021-6-25 01:50
+insider beta ring 现在还接收不到推送吗</blockquote>
+据说一周左右开始推送，但不会一下子提供所有功能
+
+
+-----
+
+####  navarra  
+##### 177#       发表于 2021-6-25 08:06
+
+
+ 本帖最后由 navarra 于 2021-6-25 08:08 编辑 
+
+intel主板在bios中把intel platform trust 打开也能通过tpm2.0检测
+
+
+-----
+
+####  qwased  
+##### 178#       发表于 2021-6-25 08:10
+
+
+意思是我把tpm禁用了微软就永远不会给我推屎了？！太好了！
+
+—— 来自 Xiaomi MI 6, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Zero-zero  
+##### 179#       发表于 2021-6-25 08:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730679&amp;ptid=2011727" target="_blank">EraserKing 发表于 2021-6-25 07:53</a>
+你看21H1还是从5代开始的呢…有人说Haswell装不上吗…
+
+— from Xiaomi MIX 2S, Android 10 of S1 Next G ...</blockquote>
+慢慢淘汰呗。比起兼容性，这表更像一个免责声明。
+
+
+-----
+
+####  撒撒  
+##### 180#       发表于 2021-6-25 08:39
+
+
+Win10的隐私设置可以选择是否给APP权限的，不给权限也能用。Win11支持安卓APP后，是不给权限也能使用安卓APP，还是像安卓平台那样，安卓APP不给权限不能用。
+
+比较悲观，大概率是后者。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer"> 
+
+
+应用商店，如果内置的是亚马逊Store，国内有亚马逊中国Store可以使用。
+
+
+TPM2.0的解决方法（未证实） <blockquote>实机安装卡TPM2.0 的解決方法：在PE下安装没有限制，或者先提取Win10安 装盛里的appraiserres.dll文件。然后解压 Win11安 装盘镜像，替换掉 sources 里的appraiserres.dll文 件，就能正常安装了</blockquote>
+
+
+
+
+-----
+
+####  强尼高达  
+##### 181#       发表于 2021-6-25 08:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730974&amp;ptid=2011727" target="_blank">撒撒 发表于 2021-6-25 08:39</a>
+Win10的隐私设置可以选择是否给APP权限的，不给权限也能用。Win11支持安卓APP后，是不给权限也能使用安卓AP ...</blockquote>
+能不能用又不是操作系统决定的，是软件自己决定的
+
+
+-----
+
+####  shabee001  
+##### 182#       发表于 2021-6-25 08:44
+
+
+话说这tpm是干啥的，为什么国家不准卖，有什么科普的资料吗
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  撒撒  
+##### 183#       发表于 2021-6-25 08:48
+
+
+ 本帖最后由 撒撒 于 2021-6-25 08:51 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730992&amp;ptid=2011727" target="_blank">强尼高达 发表于 2021-6-25 08:42</a>
+
+能不能用又不是操作系统决定的，是软件自己决定的</blockquote>
+用过Win10 mobile 和 Windows 10 store。这点微软和苹果一样，应用商店安装的软件不能强制获得权限，不给也能用。
+
+
+Win11安装安卓app通过亚马逊商店实现，大概率是和安卓一样了，软件可以肆意索要权限。
+
+
+-----
+
+####  VirMoe  
+##### 184#       发表于 2021-6-25 09:03
+
+
+能用android应用的话，那些epub终于有好用的阅读器了，不知道能不能直接安装apk。
+
+
+-----
+
+####  8400gs  
+##### 185#       发表于 2021-6-25 09:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731010&amp;ptid=2011727" target="_blank">shabee001 发表于 2021-6-25 08:44</a>
+
+话说这tpm是干啥的，为什么国家不准卖，有什么科普的资料吗
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1 ...</blockquote>
+有点类似当年的WAPI吧
+
+
+忘记是要求用国产芯片还是算法要经过国内部门审核才能卖
+
+
+-----
+
+####  8400gs  
+##### 186#       发表于 2021-6-25 09:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731200&amp;ptid=2011727" target="_blank">VirMoe 发表于 2021-6-25 09:03</a>
+
+能用android应用的话，那些epub终于有好用的阅读器了，不知道能不能直接安装apk。 ...</blockquote>
+不瞎砍edge也用不着跑Android才有好用的epub阅读器
+
+
+-----
+
+####  你好音希  
+##### 187#       发表于 2021-6-25 09:11
+
+
+要是真能自由的使用android app（指随便使用apk就能安装） 那真的可以哦
+
+
+-----
+
+####  4ckc  
+##### 188#       发表于 2021-6-25 09:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731200&amp;ptid=2011727" target="_blank">VirMoe 发表于 2021-6-25 09:03</a>
+能用android应用的话，那些epub终于有好用的阅读器了，不知道能不能直接安装apk。 ...</blockquote>
+别，win10商店的freda是我用过的体验最好的epub阅读器
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  万花谷杂役  
+##### 189#       发表于 2021-6-25 09:22
+
+
+要是能直接安装apk，那我再也不用安卓模拟器挂机了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qzy741147  
+##### 190#       发表于 2021-6-25 09:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731010&amp;ptid=2011727" target="_blank">shabee001 发表于 2021-6-25 08:44</a>
+话说这tpm是干啥的，为什么国家不准卖，有什么科普的资料吗
+
+—— 来自 OnePlus KB2000, Android 11上的 S1 ...</blockquote>
+我搜索了一下用我三脚猫的理解来尝试解释一下。是一个硬件加密模块，内置算法和密钥。中国不让用好像是因为中国要求这个芯片必须是本土厂商制造的，同时使用国内的加密算法。所以只是限制了国外厂商的产品，并没有禁止使用tpm。所以一部分主板和笔记本现在都有这个，这楼里好多人的主板和笔记本都可以开启
+
+
+-----
+
+####  VirMoe  
+##### 191#       发表于 2021-6-25 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731405&amp;ptid=2011727" target="_blank">4ckc 发表于 2021-6-25 09:20</a>
+
+别，win10商店的freda是我用过的体验最好的epub阅读器
+
+
+—— 来自 S1Fun</blockquote>
+被砍掉的edge都比这些强，跟手机上的多看阅读或静读天下更是没法比。
+
+
+-----
+
+####  t222  
+##### 192#       发表于 2021-6-25 09:43
+
+
+又要淘汰就电脑了吗？
+
+
+-----
+
+####  Geminize  
+##### 193#       发表于 2021-6-25 09:44
+
+
+现在的安装镜像有中文没
+
+
+----[STAGE1 Mobile](http://bbs.saraba1st.com/?1.0)
+
+
+-----
+
+####  dragonzeal  
+##### 194#       发表于 2021-6-25 10:00
+
+
+老主板没tpm也没ptt选项是不是就没得装11了
+
+
+-----
+
+####  凶手  
+##### 195#         楼主| 发表于 2021-6-25 10:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731686&amp;ptid=2011727" target="_blank">Geminize 发表于 2021-6-25 09:44</a>
+
+现在的安装镜像有中文没
+
+
+----STAGE1 Mobile</blockquote>
+等下周一的吧
+
+
+-----
+
+####  すぴぱら  
+##### 196#       发表于 2021-6-25 10:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731010&amp;ptid=2011727" target="_blank">shabee001 发表于 2021-6-25 08:44</a>
+
+话说这tpm是干啥的，为什么国家不准卖，有什么科普的资料吗
+
+
+—— 来自 OnePlus KB2000, Android 11上的 S1 ...</blockquote>
+intel 比较新的cpu都是内置的<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  VirMoe  
+##### 197#       发表于 2021-6-25 10:26
+
+
+突然希望teams把微信和QQ给干掉，虽然只能想想<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  iccccccccc  
+##### 198#       发表于 2021-6-25 10:41
+
+
+ 本帖最后由 iccccccccc 于 2021-6-25 13:43 编辑 
+
+可信平台模块tpm2.0，指纹模块、bitlocker硬盘加密都需要的。有办法绕过安装，但是旧处理器支持不知道什么情况
+
+好吧说错了，查了下随着intel4代推出的ptt，就是固件tpm(ftpm 2.0
+
+        更早的独立tpm，国内不允许装非国产的，就留个接口吧
+
+
+-----
+
+####  chaoliu  
+##### 199#       发表于 2021-6-25 10:49
+
+
+teams是集合了即时通讯软件的嘛？还是啥玩意<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+想问个目前beta版的win11是不是装不了安卓aop
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+-----
+
+####  Pettabuz  
+##### 200#       发表于 2021-6-25 10:54
+
+
+win10就集成了skype我看也没人用啊 为啥觉得win11换成teams就行了呢。。。
+
+
+-----
+
+####  bubuyu  
+##### 201#       发表于 2021-6-25 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732227&amp;ptid=2011727" target="_blank">VirMoe 发表于 2021-6-25 10:26</a>
+
+突然希望teams把微信和QQ给干掉，虽然只能想想</blockquote>
+
+teams都有了这么多年了，怎么还有这种幻想<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DTCPSS  
+##### 202#       发表于 2021-6-25 10:59
+
+
+TPM 1.2 和 SecureBoot 是硬性需求。TPM 2.0 和较新的 CPU 是软需求（没有也行，但不建议升级）。
+Intel ≤ 七代，AMD ≤ Ryzen 2 能升但不建议升级。 
+https://docs.microsoft.com/en-us/windows/compatibility/windows-11/ 
+https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windows-11-supported-intel-processors
+https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windows-11-supported-amd-processors
+https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windows-11-supported-qualcomm-processors
+
+
+- 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/zh-cn/p/stage1st/9nj2qf6m25f6) 非官方客户端
+
+
+-----
+
+####  peh  
+##### 203#       发表于 2021-6-25 11:02
+
+
+看了下只有原生支持android app比较香，不过windows能用android模拟器本来就是一个痛点
+
+
+-----
+
+####  john  
+##### 204#       发表于 2021-6-25 11:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732438&amp;ptid=2011727" target="_blank">iccccccccc 发表于 2021-6-25 10:41</a>
+
+可信平台模块tpm2.0，指纹模块、bitlocker硬盘加密都需要的。有办法绕过安装，但是旧处理器支持不知道什么 ...</blockquote>
+Windows Hello和BitLocker并不需要TPM，只是有TPM可以获得更高的安全性和更良好的体验
+
+
+-----
+
+####  搜索  
+##### 205#       发表于 2021-6-25 11:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732656&amp;ptid=2011727" target="_blank">DTCPSS 发表于 2021-6-25 10:59</a>
+
+TPM 1.2 和 SecureBoot 是硬性需求。TPM 2.0 和较新的 CPU 是软需求（没有也行，但不建议升级）。
+
+Intel ≤  ...</blockquote>
+这里的Ryzen 2是桌面端的么？我用微软给的检测软件检测说可以升级，但是我是移动端的R5 3550H，是桌面2代Zen+。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DTCPSS  
+##### 206#       发表于 2021-6-25 11:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732837&amp;ptid=2011727" target="_blank">搜索 发表于 2021-6-25 11:13</a>
+这里的Ryzen 2是桌面端的么？我用微软给的检测软件检测说可以升级，但是我是移动端的R5 3550H，是桌面2代 ...</blockquote>
+链接里有完整列表
+这个 CPU 软门槛就是图一乐，我 七代 i5 装泄漏版 11 用了好几天了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qratosone  
+##### 207#       发表于 2021-6-25 11:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732837&amp;ptid=2011727" target="_blank">搜索 发表于 2021-6-25 11:13</a>
+
+这里的Ryzen 2是桌面端的么？我用微软给的检测软件检测说可以升级，但是我是移动端的R5 3550H，是桌面2代 ...</blockquote>
+对，就是Zen+
+
+
+-----
+
+####  atomone  
+##### 208#       发表于 2021-6-25 11:23
+
+
+想想i5 4590还不是skylake呢，确实老了
+
+
+-----
+
+####  colodes  
+##### 209#       发表于 2021-6-25 11:24
+
+
+这个android app运行基于的intel bridge技术不会只支持intel10代和11代吧
+
+
+-----
+
+####  o97o8l  
+##### 210#       发表于 2021-6-25 11:34
+
+
+蓝牙终于支持aac了<img src="https://p.sda1.dev/2/e84fde4d961679f2caf6eee3ca1029d3/Screenshot 2021-06-25 104102_113057.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+
+
+-----
+
+####  Suzutsuki.Mk.II  
+##### 211#       发表于 2021-6-25 11:37
+
+
+看来我的6代i7本子是装不了了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  VirMoe  
+##### 212#       发表于 2021-6-25 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732607&amp;ptid=2011727" target="_blank">bubuyu 发表于 2021-6-25 10:55</a>
+
+teams都有了这么多年了，怎么还有这种幻想</blockquote>
+商用skype用户会转移过去，手机支持也不错，这不比微信办公像样多了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  胖达君  
+##### 213#       发表于 2021-6-25 11:51
+
+
+我第四代i7 4790的台式机还能装win11么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凶手  
+##### 214#         楼主| 发表于 2021-6-25 11:54
+
+
+So, Windows 11 drops 32-bit x86 support.
+
+
+That marks the demise of NTVDM and WoW, the technologies used to natively run MS-DOS and 16-bit Windows apps in 32-bit Windows (NT).
+
+
+It's truly the end of an era. Rest in piece.
+
+
+1992-2021[来源](https://twitter.com/BetaWiki/status/1408170852902916096)
+
+
+-----
+
+####  谢三哥  
+##### 215#       发表于 2021-6-25 12:01
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/120052x74n4m6k4262y35z.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-06-25 120040.png</strong> (47.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 12:00 上传
+
+
+喷了，微软自己的设备支持也太差了
+
+
+-----
+
+####  归英章华  
+##### 216#       发表于 2021-6-25 12:03
+
+
+希望输入法搞好一点，
+
+
+以后直接用原生输入法了
+
+
+-----
+
+####  chaoliu  
+##### 217#       发表于 2021-6-25 12:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733400&amp;ptid=2011727" target="_blank">谢三哥 发表于 2021-6-25 12:01</a>
+喷了，微软自己的设备支持也太差了</blockquote>
+草，surface pro 5都不支持<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+-----
+
+####  凶手  
+##### 218#         楼主| 发表于 2021-6-25 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733447&amp;ptid=2011727" target="_blank">chaoliu 发表于 2021-6-25 12:05</a>
+草，surface pro 5都不支持
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 S1Next-鹅版 v2.4.4-alp ...</blockquote>
+windows11根本目的还是拉新设备需求
+跟oem乔的
+
+
+-----
+
+####  KarsusNeko  
+##### 219#       发表于 2021-6-25 12:23
+
+
+别说了，我的8代cpu也不给上，戴尔真的不行
+
+
+-----
+
+####  nanoka111  
+##### 220#       发表于 2021-6-25 12:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733514&amp;ptid=2011727" target="_blank">凶手 发表于 2021-6-25 12:12</a>
+
+windows11根本目的还是拉新设备需求
+
+跟oem乔的</blockquote>
+其实微软的操作系统自从Windows 95以来都是每推出新的操作系统，配置需求都要提一个档次。
+
+只是这种规矩从Windows 7开始放缓了（7、8、10对配置的要求都没有质的提升）。
+
+我现在倒怀疑当初10为什么说是最后一代是否也是出于这样的考虑，配置需求不提升确实没必要搞新的操作系统，然而一旦配置需求上有质的提升这么搞就很尴尬（这会导致很多老设备无法升级到最新版本而不得不采取同时让两个甚至多个不同版本一直保持更新的策略），最后才因此不得不推出11的。
+
+
+-----
+
+####  VirMoe  
+##### 221#       发表于 2021-6-25 12:27
+
+
+那就不用他的升级工具，进PE直接灌。
+
+
+-----
+
+####  0WHan0  
+##### 222#       发表于 2021-6-25 12:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731889&amp;ptid=2011727" target="_blank">dragonzeal 发表于 2021-6-25 10:00</a>
+老主板没tpm也没ptt选项是不是就没得装11了</blockquote>
+进pe，用winntsetup或者dism++释放安装
+
+
+-----
+
+####  cuchulain2021  
+##### 223#       发表于 2021-6-25 12:29
+
+
+不要怕老设备装不上啦，到时候总有办法装上去，虽然装了好用不好用估计是另一回事
+
+
+-----
+
+####  5long  
+##### 224#       发表于 2021-6-25 12:34
+
+
+昨天用那个 health check app 检查 Win 11 兼容性
+
+发现 B450 + 5800X 的台式机竟然不通过
+
+感觉应该是卡在了 Secure Boot 上
+
+Linux + Windows 双系统用户表示很不想开 Secure Boot 这个功能
+
+这一定都是微软的阴谋
+
+
+-----
+
+####  BoomerCE  
+##### 225#       发表于 2021-6-25 12:34
+
+
+<blockquote>凶手 发表于 2021-6-25 11:54
+So, Windows 11 drops 32-bit x86 support.
+
+
+That marks the demise of NTVDM and WoW, the technologies u ...</blockquote>
+如果像 3 楼说的一样，22000 就是正式版的话，那还是有 32 位版的，估计是指新上市的 OEM 硬件必须是 64 位；如果 22000 相当于 Windows 2000 RC2，那真正的正式版取消 32 位有可能
+
+
+-----
+
+####  leystage  
+##### 226#       发表于 2021-6-25 12:38
+
+
+<blockquote>VirMoe 发表于 2021-6-25 10:26
+突然希望teams把微信和QQ给干掉，虽然只能想想</blockquote>
+Teams 国内甚至不总能稳定连接… 估计也不太会改善了。
+
+而且虽然微信各种不行，目前版本的 Teams 也距离良好体验有很大距离…
+
+
+-----
+
+####  nanoka111  
+##### 227#       发表于 2021-6-25 12:40
+
+
+这多少是意味着Windows 10这样的战略对于微软来说是行不通的，以后还是老老实实像以前那样到时间就推出新版Windows吧……
+
+
+-----
+
+####  aurraro  
+##### 228#       发表于 2021-6-25 12:46
+
+
+<blockquote>nanoka111 发表于 2021-6-25 12:40
+这多少是意味着Windows 10这样的战略对于微软来说是行不通的，以后还是老老实实像以前那样到时间就推出新版 ...</blockquote>
+阿三搞这么多次升级出了多少纰漏，还是每隔一段时间来一个大版本吧，平时就sp补丁好了
+
+
+-----
+
+####  白木あえか  
+##### 229#       发表于 2021-6-25 12:50
+
+
+ 本帖最后由 白木あえか 于 2021-6-25 12:53 编辑 
+
+谢谢微软不杀之恩，7代U的黄油专用机终于不用天天被催升级，担心老游戏不适配了。
+
+win 11留给单位外网机和单位配的笔记本折腾就够了。
+
+
+-----
+
+####  lyz1196  
+##### 230#       发表于 2021-6-25 12:53
+
+
+看了一下主板规格，只了个口，得买主板厂指定tpm芯片，那还是持续观望了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  lhw369  
+##### 231#       发表于 2021-6-25 12:55
+
+
+AMD现在不是CPU内置TPM么？
+
+—— 来自 HUAWEI LIO-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  强尼高达  
+##### 232#       发表于 2021-6-25 12:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733637&amp;ptid=2011727" target="_blank">KarsusNeko 发表于 2021-6-25 12:23</a>
+别说了，我的8代cpu也不给上，戴尔真的不行</blockquote>
+什么机器？没有PTT？
+
+
+-----
+
+####  凶手  
+##### 233#         楼主| 发表于 2021-6-25 12:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733662&amp;ptid=2011727" target="_blank">nanoka111 发表于 2021-6-25 12:25</a>
+其实微软的操作系统自从Windows 95以来都是每推出新的操作系统，配置需求都要提一个档次。
+
+只是这种规矩从 ...</blockquote>
+想的简单点就是myerson 当炮灰 背个锅吧
+
+
+-----
+
+####  Troy_VoV  
+##### 234#       发表于 2021-6-25 13:27
+
+
+主板只有个TPM口+1，搞这些乱七八糟的<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凶手  
+##### 235#         楼主| 发表于 2021-6-25 13:40
+
+
+[https://www.thurrott.com/windows ... cated-in-windows-11](https://www.thurrott.com/windows/windows-11/252338/cortana-skype-more-are-being-removed-or-deprecated-in-windows-11)
+
+paul老师总结了下 Windows11里被替换或者移除的功能
+
+
+-----
+
+####  DTCPSS  
+##### 236#       发表于 2021-6-25 13:43
+
+
+Win11 这个中文输入法还挺漂亮的，另外总算支持暗色了
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/134221oz7sosq1928clq7w.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot 2021-06-25 134040.png</strong> (57.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 13:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/134224t6zg87gshsskbh6q.png" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot 2021-06-25 134113.png</strong> (49.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 13:42 上传
+
+
+-----
+
+####  passgan  
+##### 237#       发表于 2021-6-25 13:43
+
+
+希望赶紧支持蓝牙aac协议
+
+
+-----
+
+####  Litccc  
+##### 238#       发表于 2021-6-25 13:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734407&amp;ptid=2011727" target="_blank">DTCPSS 发表于 2021-6-25 13:43</a>
+
+Win11 这个中文输入法还挺漂亮的，另外总算支持暗色了</blockquote>
+这个win10 insider就有了，不知道一段时间后候选字就显示不了的bug修了没
+
+
+-----
+
+####  HansZ  
+##### 239#       发表于 2021-6-25 14:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734408&amp;ptid=2011727" target="_blank">passgan 发表于 2021-6-25 13:43</a>
+
+希望赶紧支持蓝牙aac协议</blockquote>
+已经支持了 刚刚测试过了<img src="https://p.sda1.dev/2/e84fde4d961679f2caf6eee3ca1029d3/Screenshot%202021-06-25%20104102_113057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  colodes  
+##### 240#       发表于 2021-6-25 14:08
+
+
+开始菜单居中真的受不了，就不能把ChromeOS掏空，像这个概念图一样吗
+
+<img src="https://img.saraba1st.com/forum/202106/25/140727bfs3cc1uzeud5r0f.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (165.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 14:07 上传
+
+
+
+
+-----
+
+####  凶手  
+##### 241#         楼主| 发表于 2021-6-25 14:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734677&amp;ptid=2011727" target="_blank">colodes 发表于 2021-6-25 14:08</a>
+
+开始菜单居中真的受不了，就不能把ChromeOS掏空，像这个概念图一样吗</blockquote>
+这个概念图肯定更好的 目前全部应用/文档还是需要二级菜单有点麻烦 其实我最喜欢8那样&gt;.&lt;
+
+
+-----
+
+####  dvd6  
+##### 242#       发表于 2021-6-25 14:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734651&amp;ptid=2011727" target="_blank">HansZ 发表于 2021-6-25 14:06</a>
+
+已经支持了 刚刚测试过了</blockquote>
+这个测试工具叫啥？
+
+
+-----
+
+####  HansZ  
+##### 243#       发表于 2021-6-25 14:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734760&amp;ptid=2011727" target="_blank">dvd6 发表于 2021-6-25 14:15</a>
+
+这个测试工具叫啥？</blockquote>
+Bluetooth Tweaker
+
+
+-----
+
+####  dvd6  
+##### 244#       发表于 2021-6-25 14:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734785&amp;ptid=2011727" target="_blank">HansZ 发表于 2021-6-25 14:17</a>
+
+Bluetooth Tweaker</blockquote>
+好的，我试试，之前更新win10的预览版已经说支持了
+
+
+-----
+
+####  waterdragon3  
+##### 245#       发表于 2021-6-25 14:22
+
+
+Matebook14 2020版直接通过，什么都不用调
+
+—— 来自 HUAWEI NOH-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  passgan  
+##### 246#       发表于 2021-6-25 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734651&amp;ptid=2011727" target="_blank">HansZ 发表于 2021-6-25 14:06</a>
+
+已经支持了 刚刚测试过了</blockquote>
+win10会更新吗
+
+
+-----
+
+####  茴香蚪的马甲  
+##### 247#       发表于 2021-6-25 14:29
+
+
+家里的神舟笔记本直接通过检测，公司的渣配置哈批台式机不行。
+
+
+-----
+
+####  t222  
+##### 248#       发表于 2021-6-25 14:32
+
+
+还有没有win10时候的洗白？我新机还在装呢
+
+
+-----
+
+####  Litccc  
+##### 249#       发表于 2021-6-25 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734902&amp;ptid=2011727" target="_blank">passgan 发表于 2021-6-25 14:26</a>
+
+win10会更新吗</blockquote>
+这个也是win10 insider就支持了，前段时间有人发过贴
+
+
+-----
+
+####  HansZ  
+##### 250#       发表于 2021-6-25 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734960&amp;ptid=2011727" target="_blank">t222 发表于 2021-6-25 14:32</a>
+
+还有没有win10时候的洗白？我新机还在装呢</blockquote>
+一样的 连激活软件都不用换
+
+
+-----
+
+####  HansZ  
+##### 251#       发表于 2021-6-25 14:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51734902&amp;ptid=2011727" target="_blank">passgan 发表于 2021-6-25 14:26</a>
+
+win10会更新吗</blockquote>
+21H2会更新
+
+
+-----
+
+####  V5Style  
+##### 252#       发表于 2021-6-25 14:58
+
+
+Windows10 Insider上个月的更新添加了HDR色彩管理支持，Windows 11应该也有。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+[https://blogs.windows.com/window ... review-build-21382/](https://blogs.windows.com/windows-insider/2021/05/14/announcing-windows-10-insider-preview-build-21382/)
+
+
+-----
+
+####  V5Style  
+##### 253#       发表于 2021-6-25 15:05
+
+
+祖传文件资源管理器也改了。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/f54ef8227623bee2d5098501d1c30f6f/image.png" referrerpolicy="no-referrer">
+
+
+                                         
