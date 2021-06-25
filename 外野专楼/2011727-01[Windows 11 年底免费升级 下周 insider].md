@@ -2979,3 +2979,44 @@ Intel确认AMD和ARM处理器也可以用Intel Bridge
 
 
                                                  
+
+-----
+
+####  Diong  
+##### 263#       发表于 2021-6-26 00:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">加入了预览计划，顺便更了21H1，完全没发现变化，巨硬到底在干啥啊。
+
+
+-----
+
+####  cyberalogo  
+##### 264#       发表于 2021-6-26 00:29
+
+
+以前ＷＩＮ１０刚出的时候，好像听人说过以后不会再有新版的WIN OS了。
+
+
+WIN10就是绝响。
+
+
+现在这是又改了回去？
+
+
+-----
+
+####  healeveryone  
+##### 265#       发表于 2021-6-26 01:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51742615&amp;ptid=2011727" target="_blank">cyberalogo 发表于 2021-6-26 00:29</a>
+
+以前ＷＩＮ１０刚出的时候，好像听人说过以后不会再有新版的WIN OS了。
+
+
+WIN10就是绝响。</blockquote>
+无料升级，商业角度来看还算win 10
+
+
+                                                 

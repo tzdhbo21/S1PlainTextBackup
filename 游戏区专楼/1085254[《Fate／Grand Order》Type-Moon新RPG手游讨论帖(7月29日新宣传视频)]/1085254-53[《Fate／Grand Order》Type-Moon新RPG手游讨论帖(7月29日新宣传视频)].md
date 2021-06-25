@@ -17302,3 +17302,30 @@ c呆唐突复课。。。。。。。。。。。。而且居然还是up2。。�
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79417#       发表于 2021-6-26 01:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51737918&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-25 18:57</a>
+解包不是五星吗</blockquote>
+解包的攻击力还不到2000呢
+一切以实物为准嘛
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79418#       发表于 2021-6-26 01:26
+
+
+200充没用啊，还是要被其他色卡拉去值班
+不如改成红卡宝具后再蓄力100
+完美解决打工问题
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

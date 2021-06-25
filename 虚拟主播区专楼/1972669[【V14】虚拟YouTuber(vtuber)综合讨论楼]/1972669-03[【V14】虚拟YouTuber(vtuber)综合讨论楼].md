@@ -2426,3 +2426,192 @@ sky来了，建议现场结婚<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+-----
+
+####  獅白ぼたん  
+##### 3146#       发表于 2021-6-25 23:55
+
+
+pb才400多w，统计工具能差那么多的吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 3147#       发表于 2021-6-25 23:58
+
+
+那么虹女的出路是什么很明显了吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 3148#       发表于 2021-6-26 00:00
+
+
+彩虹还是很强啊，看来还没到半年，不知道新时代和魂时代大家说的cn市场营收无敌，究竟无敌到哪里去了，这404还是一如既往的很强啊<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 3149#       发表于 2021-6-26 00:07
+
+
+下一个虹女sc爆发的应该是eli吧  能3d分身加笛子演奏应该也会挺多sc
+
+
+-----
+
+####  alcoholic1000  
+##### 3150#       发表于 2021-6-26 00:23
+
+
+稍微查了一下PB和2434rankings过去数据对照：
+
+
+【#白雪生誕祭2021​】 <strong>PB</strong> ¥2,580,307  <strong>@2434rankings</strong> ¥2,376,682
+
+【#白雪巴新衣装】 <strong>PB</strong> ¥1,937,564  <strong>@2434rankings</strong> ¥1,835,660
+
+【新衣装お披露目】<strong>PB</strong> ¥1,857,463  <strong>@2434rankings</strong> ¥1,638,442
+
+
+【#不破湊3D】<strong>PB</strong> ¥16,381,963  <strong>@2434rankings</strong> ¥17,815,097
+
+【#不破湊生誕祭】<strong>PB</strong> ¥5,460,741  <strong>@2434rankings</strong> ¥4,805,569
+
+【#不破湊新衣装 】<strong>PB</strong> ¥4,926,280  <strong>@2434rankings</strong> ¥4,576,400
+
+
+（不破湊的生日回有开放饮酒的重大披露的buff，新衣装有初次+8.8w同接buff）
+
+考虑到白雪巴SC一直不算低（JP Total 45名，彩虹 10名，彩虹女性liver 4名）¥14,682,563也不是完全没可能...
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 3151#       发表于 2021-6-26 00:26
+
+
+有没有懂哥说说白雪巴客群里是白河豚肥肥多还是真女同多。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|也许是白河豚女同...|
+
+
+查看全部评分
+
+
+-----
+
+####  獅白ぼたん  
+##### 3152#       发表于 2021-6-26 00:30
+
+
+cn市场是挺强的，看了一下前排日v相同同接水平的付费率和人均付费都比木口要好不少
+
+
+-----
+
+####  OldGlory  
+##### 3153#       发表于 2021-6-26 00:31
+
+
+肥肥能有这么强的爆发打钱力吗
+
+
+-----
+
+####  AKili  
+##### 3154#       发表于 2021-6-26 00:33
+
+
+看来虹杏的打钱方式差异化越来越大了
+
+
+-----
+
+####  十四洲  
+##### 3155#       发表于 2021-6-26 00:46
+
+
+我觉得女粉多
+
+
+-----
+
+####  Eugeo0  
+##### 3156#       发表于 2021-6-26 00:52
+
+
+阿巴粉丝gachi很多，而且大部分是女粉吧，女粉的打钱懂得都懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Eugeo0  
+##### 3157#       发表于 2021-6-26 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51742578&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-26 00:26</a>
+有没有懂哥说说白雪巴客群里是白河豚肥肥多还是真女同多。</blockquote>
+就我来看大部分都是女性，是不是女同就不懂了
+
+—— 来自 HUAWEI SEA-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  IDIDIDID  
+##### 3158#       发表于 2021-6-26 00:55
+
+
+啊，那还是女粉stonk，彩虹基本盘没变。
+
+
+-----
+
+####  hlazd  
+##### 3159#       发表于 2021-6-26 01:00
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/005906g0my7kf7jrmfb6x0.png" referrerpolicy="no-referrer">
+
+
+<strong>3d.png</strong> (17.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 00:59 上传
+
+
+playboard数据更新了，真的有这么多<img src="https://static.saraba1st.com/image/smiley/face2017/060.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  cheatdeath3  
+##### 3160#       发表于 2021-6-26 01:06
+
+
+女人&gt;狗&gt;肥肥
+
+
+                                                
