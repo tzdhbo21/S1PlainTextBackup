@@ -5518,3 +5518,25 @@ demo什么时候上
 
 
                                                  
+
+-----
+
+####  gingawang  
+##### 412#       发表于 2021-6-25 16:33
+
+
+这种营销会再非核心圈子掀起什么波澜吗？
+
+
+-----
+
+####  acejoe  
+##### 413#       发表于 2021-6-25 16:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51736332&amp;ptid=2010295" target="_blank">gingawang 发表于 2021-6-25 16:33</a>
+这种营销会再非核心圈子掀起什么波澜吗？</blockquote>
+会被播主做成视频吸一波流量。
+
+
+                                                 
