@@ -4012,3 +4012,17 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  godless2020  
+##### 1772#       发表于 2021-6-25 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51735202&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-6-25 14:54</a>
+
+看到说有适配PS5版手柄的触觉反馈才去买的首发国行，希望效果别太拉</blockquote>
+这个功能不要抱太大期望度，算顺带的功能，5版的优势是读取超速及战斗60FPS极致丝滑感受...
+
+
+                                                 

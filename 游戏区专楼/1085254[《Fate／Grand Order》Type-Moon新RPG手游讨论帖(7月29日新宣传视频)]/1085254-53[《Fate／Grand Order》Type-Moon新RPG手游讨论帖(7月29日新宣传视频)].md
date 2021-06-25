@@ -17140,3 +17140,83 @@ c呆唐突复课。。。。。。。。。。。。而且居然还是up2。。�
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79405#       发表于 2021-6-25 18:39
+
+
+妖兰和哈贝特洛特应该是做好了才对，总不能先做一个宝具动画出来
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+但是MD这UP2是C呆，这妖兰宝具动画又简陋大概率概率四星
+
+合着下期只有一个奥伯龙，总不能临时再塞一个五星出来
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79406#       发表于 2021-6-25 18:42
+
+
+<blockquote>引用第79404楼exiaexa于2021-06-25 18:39发表的  :
+
+妖兰和哈贝特洛特应该是做好了才对，总不能先做一个宝具动画出来但是MD这UP2是C呆，这妖兰宝具动画又......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">理论上不还有个老帕吗
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 79407#       发表于 2021-6-25 18:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51737728&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-25 18:39</a>
+
+妖兰和哈贝特洛特应该是做好了才对，总不能先做一个宝具动画出来</blockquote>
+没登场的先不说
+
+
+还可以再赛一次村正啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79408#       发表于 2021-6-25 18:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51737762&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-25 18:42</a>
+
+理论上不还有个老帕吗
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+哦对，把帕西瓦尔忘了
+
+只存在于文字里的男人
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79409#       发表于 2021-6-25 18:57
+
+
+<blockquote>exiaexa 发表于 2021-6-25 18:39
+妖兰和哈贝特洛特应该是做好了才对，总不能先做一个宝具动画出来
+
+
+</blockquote>
+解包不是五星吗
+
+
+                                                 
