@@ -123,3 +123,196 @@ sl抽98%是怎么回事，反转了？
 
 
                                                 
+
+-----
+
+####  Klience  
+##### 18008#       发表于 2021-6-25 09:36
+
+
+ 本帖最后由 Klience 于 2021-6-25 09:49 编辑 
+
+前几天还通宵打游戏 没猜错的话 估计是要做源计划那30场对局拿任务奖励了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">syl 不对 数了一下 她这30场已经做完了 估计还有其他任务没做
+
+
+-----
+
+####  呓亘  
+##### 18009#       发表于 2021-6-25 09:58
+
+
+<blockquote>2014720 发表于 2021-6-25 08:49
+sl抽98%是怎么回事，反转了？</blockquote>
+这啥情况？
+
+
+-----
+
+####  Klience  
+##### 18010#       发表于 2021-6-25 10:08
+
+
+是能收到98%的意思吧 抽了2%<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  路人庚  
+##### 18011#       发表于 2021-6-25 10:18
+
+
+早上事太多断断续续只听了前十分钟，说了兰熊每天都会给她发消息说“来玩吧”“来玩吧”，但这个月要做的事太多了所以要无视兰熊（然后兰熊就在评论区冒出来了
+
+
+好像也说了，跟自己约好了，明天一定要去男朋友的家里玩！（不知道怎么转到这个话题的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+然后也说到不会有人真的想看自己跟野男人打游戏向野男人撒娇卖萌的直播吧，因为自己是专业的所以不会做这种事（然后评论区有人说想看，被咩姐打哈哈打过去了
+
+
+-----
+
+####  T_Hb  
+##### 18012#       发表于 2021-6-25 10:20
+
+
+ 本帖最后由 T_Hb 于 2021-6-25 10:31 编辑 
+
+明天要去男朋友家，有人问男朋友在干嘛，她说内绪
+
+然后后来洗碗又说好累，想找个男朋友洗碗
+
+
+-----
+
+####  JY要塞  
+##### 18013#       发表于 2021-6-25 10:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">要听啊
+
+
+-----
+
+####  2014720  
+##### 18014#       发表于 2021-6-25 10:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731857&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-6-25 09:58</a>
+这啥情况？</blockquote>
+早上有事看群友repo的<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18015#       发表于 2021-6-25 10:26
+
+
+要是那个平台真抽了98% 你楼都不可能那么平静吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18016#       发表于 2021-6-25 10:27
+
+
+nmd
+
+开幕这男朋友家我就知道是父母家，明天回老家了呜呜<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18017#       发表于 2021-6-25 10:27
+
+
+要是slab抽98%你咩姐早就关掉了吧（
+
+
+-----
+
+####  yywzjsw  
+##### 18018#       发表于 2021-6-25 10:27
+
+
+赶的上回来3周年不
+
+
+-----
+
+####  2014720  
+##### 18019#       发表于 2021-6-25 10:28
+
+
+只能找时间再看了，虽然我错过的直播几乎不会补<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+回老家见青梅竹马是吧，那只能是7
+
+
+-----
+
+####  时间在我手中  
+##### 18020#       发表于 2021-6-25 10:29
+
+
+不是，有人repo了啊，你去找fafa的空间就有
+
+
+-----
+
+####  yywzjsw  
+##### 18021#       发表于 2021-6-25 10:31
+
+
+最近被群里刷屏的105°给搞烦了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">，然后去听了原曲<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">你麻能唱一遍吗
+
+
+-----
+
+####  时间在我手中  
+##### 18022#       发表于 2021-6-25 10:32
+
+
+她能唱才怪咧，这人啥时候蹭到过热度，那个123喵啥时候唱完才是王道<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18023#       发表于 2021-6-25 10:33
+
+
+不糊就是胜利
+
+
+-----
+
+####  Klience  
+##### 18024#       发表于 2021-6-25 10:34
+
+
+笑死 有人顶着高仿田中的id去狙击你麻 你麻打完之后就不打了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18025#       发表于 2021-6-25 10:36
+
+
+她好像就没翻唱过什么中文歌来着....<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18026#       发表于 2021-6-25 10:36
+
+
+哦艹是能收到98%的样子吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
