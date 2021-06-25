@@ -16855,3 +16855,168 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79381#       发表于 2021-6-25 08:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好闲，希望今天开活动。我都刷了昨天新游3位数的初始了。
+
+
+-----
+
+####  zakki  
+##### 79382#       发表于 2021-6-25 11:39
+
+
+ 本帖最后由 zakki 于 2021-6-25 11:42 编辑 
+
+所以我说根本不吃ml是最好的游戏体验，哪有那么多屁事，非主线的东西当它不存在就是了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">至于幕间，黑狗那次之后就全当笑话看了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79383#       发表于 2021-6-25 11:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733161&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-25 11:39</a>
+
+所以我说根本不吃ml是最好的游戏体验，哪有那么多屁事，非主线的东西当它不存在就是了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新至今无法理解ml
+
+
+-----
+
+####  zakki  
+##### 79384#       发表于 2021-6-25 11:50
+
+
+ 本帖最后由 zakki 于 2021-6-25 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733188&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-25 11:42</a>
+
+萌新至今无法理解ml</blockquote>
+所以说啊，不会真的缺爱到要在氪金手游里找什么女友吧<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">写个不怎么感人的俗套故事，myroom里说几句喜欢你就是女友了， 这女友也太廉价了吧
+
+
+-----
+
+####  白金口袋  
+##### 79385#       发表于 2021-6-25 11:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51731145&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-24 18:58</a>
+
+好闲，希望今天开活动。我都刷了昨天新游3位数的初始了。</blockquote>
+都给你开了幕间还不感恩戴德<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79386#       发表于 2021-6-25 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733285&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-25 11:50</a>
+
+所以说啊，不会真的缺爱到要在氪金手游里找什么女友吧就算去玩gal都比这个强啊写个不怎么感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说王姐不是直接妻子老公了吗  隔壁爆炸了吗
+
+
+-----
+
+####  areklose  
+##### 79387#       发表于 2021-6-25 11:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733296&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-6-25 11:52</a>
+
+都给你开了幕间还不感恩戴德</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/254.png" referrerpolicy="no-referrer">不行 没材料卡着我摩根技能等级。不能50自充好烦
+
+
+-----
+
+####  白金口袋  
+##### 79388#       发表于 2021-6-25 11:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733339&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-24 21:55</a>
+
+不行 没材料卡着我摩根技能等级。不能50自充好烦</blockquote>
+你这是奢侈的烦恼，想象没有摩根的选手
+
+虽然我有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 79389#       发表于 2021-6-25 11:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733325&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-25 11:54</a>
+
+话说王姐不是直接妻子老公了吗  隔壁爆炸了吗</blockquote>
+记得有开摩根淫 乱瞎搞的男人女人多，不配ml什么的吧，还有什么觉得摩根和妖崔喜欢贝利尔自己被绿了什么的，还有说摩根顶着呆毛脸到处乱搞恶心呆毛厨什么的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79390#       发表于 2021-6-25 11:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733363&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-25 11:58</a>
+
+记得有开摩根淫 乱瞎搞的男人女人多，不配ml什么的吧，还有什么觉得摩根和妖崔喜欢贝利尔自己被绿了什么的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">什么 这还要再加个x女情节？
+
+
+-----
+
+####  stefanie张  
+##### 79391#       发表于 2021-6-25 12:02
+
+
+摩根卡池关了，2宝冲刺失败，还有几十个free本没打
+
+
+-----
+
+####  areklose  
+##### 79392#       发表于 2021-6-25 12:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733363&amp;ptid=1085254" target="_blank">zakki 发表于 2021-6-25 11:58</a>
+
+记得有开摩根淫 乱瞎搞的男人女人多，不配ml什么的吧，还有什么觉得摩根和妖崔喜欢贝利尔自己被绿了什么的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">要学会转换心态。像我就只会想这是我绿别人。
+
+
+-----
+
+####  areklose  
+##### 79393#       发表于 2021-6-25 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733350&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-6-25 11:57</a>
+
+你这是奢侈的烦恼，想象没有摩根的选手
+
+虽然我有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">问题是甚至四星都在卡材料
+
+
+-----
+
+####  qixinno2  
+##### 79394#       发表于 2021-6-25 12:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">艹 到最后都没抽到摩根
+
+
+                                                 
