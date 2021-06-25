@@ -3031,3 +3031,14 @@ WIN10就是绝响。</blockquote>
 
 
                                                  
+
+-----
+
+####  布拉德莱恩  
+##### 267#       发表于 2021-6-26 05:47
+
+
+搞个性价比高点的windows平板，升级到11，然后装个ehviewer<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爽到
+
+
+                                                 
