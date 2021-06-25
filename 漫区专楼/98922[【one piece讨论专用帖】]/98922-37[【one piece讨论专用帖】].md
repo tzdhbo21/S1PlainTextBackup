@@ -15394,3 +15394,44 @@ op的本质是冒险
 
 
                                                  
+
+-----
+
+####  klzxs  
+##### 55304#       发表于 2021-6-25 12:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">路飞都战斗20年了
+
+他果实特不特殊看不出吗
+
+就算真有什么特殊之处也不会是在战斗方面
+
+
+而且这话不还什么都没说?
+
+现在就是很单纯的一件事 一个cp任务失败被丢去监狱了
+
+这件事本身并没什么特别的
+
+路奇这种最高评价的cp失败了也一样被追杀(虽然最后又回去了
+
+当然 这里提到这件事我也不会觉得橡胶果实还是平平无奇
+
+但还是得看看具体后续
+
+
+-----
+
+####  anubis_s08  
+##### 55305#       发表于 2021-6-25 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733379&amp;ptid=98922" target="_blank">晃来晃去 发表于 2021-6-25 11:59</a>
+改成觉醒后变成橡皮擦，能把对手所有能力擦掉直接变成普通人。</blockquote>
+橡皮镇魂歌
+
+—— 来自 HUAWEI VOG-AL10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.2.0
+
+
+                                                 

@@ -17020,3 +17020,17 @@ acpi其实早年（16年，一部六章都没实装的时候）给过个线索�
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79395#       发表于 2021-6-25 12:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733517&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-25 12:12</a>
+
+问题是甚至四星都在卡材料</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有4星 没有烦恼
+
+
+                                                 
