@@ -17277,3 +17277,28 @@ c呆唐突复课。。。。。。。。。。。。而且居然还是up2。。�
 
 
                                                 
+
+-----
+
+####  千叶铁矢  
+##### 79415#       发表于 2021-6-25 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51741247&amp;ptid=1085254" target="_blank">smdzh2 发表于 2021-6-25 22:18</a>
+100%充能，两个拐一人充一面，满破宝石翁再就业，算个屁的np率起手满buff直接秒了 ...</blockquote>
+就算是100充为什么要用红卡呢<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79416#       发表于 2021-6-25 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51741885&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-6-25 23:03</a>
+
+就算是100充为什么要用红卡呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">再来个100红放
+
+
+                                                 
