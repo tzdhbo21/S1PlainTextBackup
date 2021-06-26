@@ -4131,3 +4131,32 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  蓝雉  
+##### 1782#       发表于 2021-6-27 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51752137&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-27 00:22</a>
+我倒是更在意这个时间段，玩家是否已经可以更换时装
+
+还是必须强制戴这个头盔到剧情解开
+
+如果能换那应该能看 ...</blockquote>
+多半头部会强制戴面具
+
+
+-----
+
+####  oskneo  
+##### 1783#       发表于 2021-6-27 01:25
+
+
+想问一下日版有中文吗，看到日亚能直邮11000的豪华版。
+港版中文豪华太贵且不是太想要手办。
+
+—— 来自 HUAWEI HDL-W09, Android 8.0.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
