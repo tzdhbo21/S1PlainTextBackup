@@ -3206,3 +3206,20 @@ win11的安卓app性能和模拟器比会不会更好些？像是cpu性能，io�
 
 
                                                  
+
+-----
+
+####  再买自检星剁手  
+##### 280#       发表于 2021-6-26 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51745367&amp;ptid=2011727" target="_blank">hein 发表于 2021-6-26 12:00</a>
+
+这圆角，最大化是不是四个角留出四个洞呀？以后索性显示器都弄圆角好了 ...</blockquote>
+最大化还是一样的，只不过窗口化变成了圆角
+
+
+画蛇添足<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

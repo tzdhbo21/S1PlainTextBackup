@@ -2904,3 +2904,79 @@ elira唱歌真好听</blockquote>
 
 
                                                 
+
+-----
+
+####  sgssk  
+##### 3183#       发表于 2021-6-26 18:52
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/185218vpxih7qakjiei24r.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210626185005.png</strong> (73.44 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 18:52 上传
+
+
+这还要较劲不成<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3184#       发表于 2021-6-26 19:05
+
+
+插播一则偶像部残党
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/190508xneiitrejirrnr7j.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #148 - 'Tr!c trac!💘2nd LIVE【#とりっくとらっく.png</strong> (202.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 19:05 上传
+
+
+-----
+
+####  哈曼的YY  
+##### 3185#       发表于 2021-6-26 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51748297&amp;ptid=1972669" target="_blank">admentus 发表于 2021-6-26 18:08</a>
+
+玩的是什么难度？</blockquote>
+最高难度
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| admentus| + 1|怪不得，那没进展挺正常|
+
+
+查看全部评分
+
+
+-----
+
+####  IDIDIDID  
+##### 3186#       发表于 2021-6-26 19:21
+
+
+这唱的倒是很有地下偶像的感觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
