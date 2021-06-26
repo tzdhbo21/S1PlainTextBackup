@@ -6109,3 +6109,26 @@ survive=mgsurvive？
 
 
                                                  
+
+-----
+
+####  九十九忍  
+##### 464#       发表于 2021-6-26 10:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">直接等结果不要关注进度就是了，闲的，就当小岛在做了
+
+
+-----
+
+####  zzy516232108  
+##### 465#       发表于 2021-6-26 10:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51744129&amp;ptid=2010295" target="_blank">luoyianwu 发表于 2021-6-26 09:43</a>
+
+这场事件中有很多常理无法解释的扯蛋巧合，建议不要完全死心，死一点点就好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">不陪他们耍猴了，真没意思
+
+
+                                                 
