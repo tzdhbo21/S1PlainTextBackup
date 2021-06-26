@@ -4065,3 +4065,36 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  rgauss  
+##### 1776#       发表于 2021-6-26 22:43
+
+
+看来是被真の仲間给弄惨了
+
+
+-----
+
+####  hypnossz86  
+##### 1777#       发表于 2021-6-26 22:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">怎么这剧情对话是英文，战斗语音却是日文
+
+
+-----
+
+####  宛若青空  
+##### 1778#       发表于 2021-6-26 23:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51751091&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-6-26 22:25</a>
+
+奥尔芬看到女主下楼梯那段直接发出了一见钟情的声音,再加上那天造地和的设定,这俩不结婚真的很难收场[f:0 ...</blockquote>
+
+别说奥尔芬了，19年E3第一次见到那一段我也都心动地发出了一见钟情的声音<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                 

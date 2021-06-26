@@ -3285,3 +3285,105 @@ srs仅一分之差夺得冠军
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 3206#       发表于 2021-6-26 22:24
+
+
+分组详情
+<img src="https://p.sda1.dev/2/79aa563e7d27cca13d61ff84cf81819b/IMG_CMP_193468603.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  TiHaru  
+##### 3207#       发表于 2021-6-26 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51750917&amp;ptid=1972669" target="_blank">winda 发表于 2021-6-26 22:09</a>
+srs仅一分之差夺得冠军
+reid，白雪，astel这组没职业没猎杀的纯v队在有mondo，cpt在的比赛里夺冠真 ...</blockquote>
+第二局被yukio关了，最后一把yukio送了回来，算是有始有终
+
+
+-----
+
+####  alcoholic1000  
+##### 3208#       发表于 2021-6-26 22:25
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-26 23:14 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/222327siqq38aka16i6q23.png" referrerpolicy="no-referrer">
+
+
+<strong>【#にじさんじVパチ】7:3,4の大会機種発表、抽選会！【にじさんじ:伏見ガク】.png.png</strong> (207.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 22:23 上传
+
+
+虹帕青哥大赛，意想不到的参赛者出现了
+[【#にじさんじVパチ】7/3,4の大会機種発表、抽選会！【にじさんじ/伏見ガク】](https://www.youtube.com/watch?v=GKzlX50gSkM)
+
+柴卡新衣装
+
+<img src="https://img.saraba1st.com/forum/202106/26/231436nm7hmygzhfazokkg.png" referrerpolicy="no-referrer">
+
+
+<strong>花畑チャイカと誕生日と新衣装.png</strong> (192 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 23:14 上传
+
+
+-----
+
+####  rzrbtk  
+##### 3209#       发表于 2021-6-26 22:49
+
+
+西西和akn一组还有郡道在，郡道多去旅游几天得了，瞎起哄又要被干<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">...
+小魔王奈罗花一组还蛮有看点的
+
+
+-----
+
+####  winda  
+##### 3210#       发表于 2021-6-26 22:51
+
+
+西西和akn，ib和ssk，nrk和小魔王，这分组还挺有梗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  影山银  
+##### 3211#       发表于 2021-6-26 23:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51751334&amp;ptid=1972669" target="_blank">winda 发表于 2021-6-26 22:51</a>
+
+西西和akn，ib和ssk，nrk和小魔王，这分组还挺有梗</blockquote>
+nrk和艾玛早就是能在睡前聊天到睡着的关系了啦
+
+
+-----
+
+####  FCCHua  
+##### 3212#       发表于 2021-6-26 23:18
+
+
+ 本帖最后由 FCCHua 于 2021-6-26 23:19 编辑 
+
+柴卡新衣服帅的<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+                                                
