@@ -15850,3 +15850,58 @@ WT在SBS回应过，橡胶JJ的确可以变大
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 55335#       发表于 2021-6-26 12:44
+
+
+橡胶上一章刚被年糕吊打，这章又要历史渊源<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hellodie  
+##### 55336#       发表于 2021-6-26 13:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51733631&amp;ptid=98922" target="_blank">暗影翔 发表于 2021-6-25 12:22</a>
+
+鸣人的天选之人最强烈的信号就是人柱力。而路飞从一开始就是个平平无奇的橡胶人，即使有爸爸爷爷的挂以及 ...</blockquote>
+人柱力到疾风传就没什么牛的了，鸣人天选之人主要还是后期补的阿修罗转世这个设定，最夸张的就是六道的元神隔空传功，连修炼过程都懒得画了，火影连载到那话时网上骂的人可比现在海贼这话多多了。
+
+
+-----
+
+####  千里夜雨  
+##### 55337#       发表于 2021-6-26 13:40
+
+
+我方有玉皇大帝不就是最大的都合吗……
+
+
+-----
+
+####  C男人  
+##### 55338#       发表于 2021-6-26 14:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51746237&amp;ptid=98922" target="_blank">千里夜雨 发表于 2021-6-26 13:40</a>
+
+我方有玉皇大帝不就是最大的都合吗……</blockquote>
+符合原著，
+
+
+鬼岛上来了个桃太郎，
+
+
+桃太郎用团子收服了狗、猿，目前还差只鸡，
+
+
+于是桃太郎对鬼岛上的鬼大吼一声：就当你们全是鸡吧！
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
