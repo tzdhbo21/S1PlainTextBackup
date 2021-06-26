@@ -3168,3 +3168,41 @@ WIN10就是绝响。</blockquote>
 
 
                                                  
+
+-----
+
+####  distrowatch  
+##### 278#       发表于 2021-6-26 17:55
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/175537szgrqh44777gg7kz.png" referrerpolicy="no-referrer">
+
+
+<strong>HardwareChannels6_24-final.png</strong> (316.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 17:55 上传
+
+
+[https://docs.microsoft.com/en-us ... ed-intel-processors](https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windows-11-supported-intel-processors)
+
+[https://docs.microsoft.com/en-us ... rted-amd-processors](https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windows-11-supported-amd-processors)
+
+
+8系跟ZEN2开始才支持WIN11，insider只配用到正式版发布前，大家都不更新电脑oem生气了
+
+
+推送日期是不是也改过了，我看blog里没有提28号的事
+
+
+-----
+
+####  Sza  
+##### 279#       发表于 2021-6-26 18:27
+
+
+win11的安卓app性能和模拟器比会不会更好些？像是cpu性能，io性能，图形引擎优化方面的。总感觉现在的模拟器各方面都比不上手机，io和图像处理上特别明显。
+
+
+                                                 

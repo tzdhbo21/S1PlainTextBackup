@@ -2829,3 +2829,78 @@ cr cup 7/23 日本时间18:00
 
 
                                                  
+
+-----
+
+####  Suzutsuki  
+##### 3177#       发表于 2021-6-26 17:46
+
+
+bora不在了 这cr杯都没啥想看的 也就支持下胡桃和花芽姐了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3178#       发表于 2021-6-26 17:46
+
+
+elira唱歌真好听<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suzutsuki  
+##### 3179#       发表于 2021-6-26 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51748144&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-26 17:46</a>
+
+elira唱歌真好听</blockquote>
+确实<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Junchoon  
+##### 3180#       发表于 2021-6-26 17:56
+
+
+好消息是经过2小时的奋斗，露露魔界村几乎没进展——毕不了业了！
+
+
+
+
+-----
+
+####  admentus  
+##### 3181#       发表于 2021-6-26 18:08
+
+
+玩的是什么难度？
+
+
+-----
+
+####  free  
+##### 3182#       发表于 2021-6-26 18:18
+
+
+[https://t.bilibili.com/540578353542112867?tab=2](https://t.bilibili.com/540578353542112867?tab=2)
+
+#NIJIFans CARNIVAL##虹only2021#正式宣来啦！！！
+
+★10月4日-5日10:00~17:00★
+
+★上海虹口区宝丰联大酒店牡丹厅★
+
+#转发关注#抽两人送#百元🧧
+
+【CPP链接】[https://www.allcpp.cn/allcpp/event/event.do?event=1012](https://www.allcpp.cn/allcpp/event/event.do?event=1012)
+
+【展会君羊号】550470073
+
+(更多信息详见下图)
+
+
+                                                
