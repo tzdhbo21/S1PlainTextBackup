@@ -3707,3 +3707,87 @@ akukin建设复活，夏祭正式确定出场。
 
 
                                                  
+
+-----
+
+####  大厨麦当牛  
+##### 6310#       发表于 2021-6-26 23:40
+
+
+可能给麦酱玩现在5人生存模式都通关了吧。。
+
+
+-----
+
+####  面具13  
+##### 6311#       发表于 2021-6-26 23:42
+
+
+ 本帖最后由 面具13 于 2021-6-26 23:44 编辑 
+
+哈哈哈哈，没救了 ，抬走，下一个
+
+
+neee—— moooo——，惯例的耻辱下播，都回来了
+
+
+-----
+
+####  大厨麦当牛  
+##### 6312#       发表于 2021-6-26 23:46
+
+
+从没见过玩这个模式跟电脑斗智斗勇这么久的。而且还输了的就更没见过了。这就是IQ 5000吗？I了I了。
+
+
+-----
+
+####  乌鸦绅士  
+##### 6313#       发表于 2021-6-26 23:55
+
+
+ 本帖最后由 乌鸦绅士 于 2021-6-27 00:31 编辑 
+
+竟然做时间表了，青春真回来了<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+只能说现在偶像工作比直播重要，只能靠歌回和马娘混混时间的样子<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 至少比什么都不说好了
+
+
+盐水<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+生化7应该是现在唯一进行的正常游戏直播，好奇生化7dlc耐久完之后什么时候会开启生化8.
+
+
+-----
+
+####  Maonpuyo  
+##### 6314#       发表于 2021-6-27 00:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你看这时间表的内容，青春真的回来了吗
+
+
+-----
+
+####  梅斯之围  
+##### 6315#       发表于 2021-6-27 00:20
+
+
+提了一号干嘛么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Maonpuyo  
+##### 6316#       发表于 2021-6-27 00:37
+
+
+ 本帖最后由 Maonpuyo 于 2021-6-27 00:38 编辑 
+
+没提，工作日全是お仕事
+
+都列时间表了，没写的日子肯定是不播的
+
+
+                                                 
