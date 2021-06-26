@@ -3155,3 +3155,16 @@ WIN10就是绝响。</blockquote>
 
 
                                                  
+
+-----
+
+####  量子力学  
+##### 277#       发表于 2021-6-26 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747183&amp;ptid=2011727" target="_blank">打不打死都不说 发表于 2021-6-26 15:46</a>
+你是不是对三哥的脸皮厚度有什么误解</blockquote>
+上台表演又不是真自杀<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
