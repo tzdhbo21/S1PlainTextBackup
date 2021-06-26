@@ -3111,3 +3111,23 @@ WIN10就是绝响。</blockquote>
 
 
                                                  
+
+-----
+
+####  hein  
+##### 273#       发表于 2021-6-26 12:00
+
+
+这圆角，最大化是不是四个角留出四个洞呀？以后索性显示器都弄圆角好了<img src="https://static.saraba1st.com/image/smiley/face2017/017.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  中川夏纪  
+##### 274#       发表于 2021-6-26 12:26
+
+
+把 TPM 2.0 打开了检测还没过，结果发现是 i5 7500 没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 

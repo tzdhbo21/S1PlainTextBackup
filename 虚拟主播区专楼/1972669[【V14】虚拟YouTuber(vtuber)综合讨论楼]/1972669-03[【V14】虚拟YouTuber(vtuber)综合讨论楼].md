@@ -2637,3 +2637,25 @@ playboard数据更新了，真的有这么多<img src="https://static.saraba1st.
 
 
                                                  
+
+-----
+
+####  暴走的包子  
+##### 3163#       发表于 2021-6-26 12:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">直女卖姬天打雷劈啊
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  dybang  
+##### 3164#       发表于 2021-6-26 12:09
+
+
+至少这一对怎么看都不像直女<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
