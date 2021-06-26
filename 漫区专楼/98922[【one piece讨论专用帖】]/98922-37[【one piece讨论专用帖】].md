@@ -15938,3 +15938,35 @@ WT在SBS回应过，橡胶JJ的确可以变大
 
 
                                                  
+
+-----
+
+####  恶魔娘阿洛  
+##### 55341#       发表于 2021-6-27 04:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51745555&amp;ptid=98922" target="_blank">C男人 发表于 2021-6-26 12:21</a>
+
+但是不管怎么说，这一话小玉把 “桃太郎征服鬼岛” 的剧本落实了，
+
+
+也算是对 5000人打赢 30000人的剧情有 ...</blockquote>
+好什么啊。。。当初这**能力能给动物能力者吃一出来咱就觉得后面剧情肯定要蛋疼。。。
+
+
+-----
+
+####  恶魔娘阿洛  
+##### 55342#       发表于 2021-6-27 04:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51746472&amp;ptid=98922" target="_blank">C男人 发表于 2021-6-26 14:09</a>
+
+符合原著，
+
+
+鬼岛上来了个桃太郎，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">猿不是已经断后被打死了么
+
+
+                                                 
