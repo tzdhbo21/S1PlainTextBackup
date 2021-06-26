@@ -3100,3 +3100,14 @@ WIN10就是绝响。</blockquote>
 
 
                                                 
+
+-----
+
+####  lyz1196  
+##### 272#       发表于 2021-6-26 11:15
+
+
+开fTPM后某日呆游戏卡顿，还是得观望<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
