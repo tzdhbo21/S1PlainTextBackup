@@ -2980,3 +2980,58 @@ elira唱歌真好听</blockquote>
 
 
                                                  
+
+-----
+
+####  渡鸦骑士  
+##### 3187#       发表于 2021-6-26 20:22
+
+
+草，管人无关……？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/26/202219sf4cabcac4zlz4ii.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (68.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 20:22 上传
+
+
+-----
+
+####  暴走的包子  
+##### 3188#       发表于 2021-6-26 20:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">下个到你了是吧
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  渡鸦骑士  
+##### 3189#       发表于 2021-6-26 20:34
+
+
+ 本帖最后由 渡鸦骑士 于 2021-6-26 20:35 编辑 
+
+这个总算是有关的管人了
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/203438t9in39tihthi539a.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (62.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 20:34 上传
+
+
+挺好听的，所以其实是人设和声线更解放一些吗？[(6) Re:TrymenT - 紫咲ほたる / covered by 佐透直 - YouTube](https://www.youtube.com/watch?v=4t4-tFlIyjA) 链接
+
+
+                                                 

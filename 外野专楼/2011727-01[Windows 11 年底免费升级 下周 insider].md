@@ -3223,3 +3223,59 @@ win11的安卓app性能和模拟器比会不会更好些？像是cpu性能，io�
 
 
                                                  
+
+-----
+
+####  pigbayspy  
+##### 281#       发表于 2021-6-26 20:05
+
+
+已经注册beta insider，静等更新
+
+
+-----
+
+####  破罐子  
+##### 282#       发表于 2021-6-26 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51729072&amp;ptid=2011727" target="_blank">Litccc 发表于 2021-6-24 23:42</a>
+如果，我是说如果，国内有可能直接对接鸿蒙吗？</blockquote>
+海狗都说11兼容安卓对鸿蒙是很大的威胁，要是接入鸿蒙就可以直接宣布结果了？<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2007J3SC, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  すぴぱら  
+##### 283#       发表于 2021-6-26 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51748449&amp;ptid=2011727" target="_blank">Sza 发表于 2021-6-26 18:27</a>
+win11的安卓app性能和模拟器比会不会更好些？像是cpu性能，io性能，图形引擎优化方面的。总感觉现在的模拟 ...</blockquote>
+如果底层虚拟机用wsl2那一套的话，io很烂….这个是巨硬的老问题了
+
+
+-----
+
+####  鬼迷心窍  
+##### 284#       发表于 2021-6-26 20:55
+
+
+我觉得不会让我升级
+
+
+-----
+
+####  DTCPSS  
+##### 285#       发表于 2021-6-26 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51749876&amp;ptid=2011727" target="_blank">すぴぱら 发表于 2021-6-26 20:49</a>
+
+如果底层虚拟机用wsl2那一套的话，io很烂….这个是巨硬的老问题了</blockquote>
+子系统内 IO 还好吧，主要是 Linux ←→ Windows 的 IO 走网络比较慢
+
+
+                                                 

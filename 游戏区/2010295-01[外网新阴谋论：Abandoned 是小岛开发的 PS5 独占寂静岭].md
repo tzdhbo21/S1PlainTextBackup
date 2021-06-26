@@ -6156,3 +6156,29 @@ survive=mgsurvive？
 
 
                                                  
+
+-----
+
+####  kuker53  
+##### 468#       发表于 2021-6-26 19:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51748197&amp;ptid=2010295" target="_blank">gingawang 发表于 2021-6-26 17:54</a>
+
+7月发布会的传闻从哪里来的？</blockquote>
+没说7月吧，就是曝光最终幻想16的那个舅舅，N开头的说的几周后，这人准确率倒是挺高，但是我觉得还是不要对这个游戏和寂静岭新作抱有期待
+
+
+-----
+
+####  SergeGlenn  
+##### 469#       发表于 2021-6-26 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51748197&amp;ptid=2010295" target="_blank">gingawang 发表于 2021-6-26 17:54</a>
+
+7月发布会的传闻从哪里来的？</blockquote>
+之前一个准确泄露FC6信息的法国人说的，但他也提到这个来源他不是很熟悉所以可靠度未知，但结合Navtra的发言和最近对马DLC的泄露来看应该就是这个时间段，8号正好也是周四
+
+
+                                                 
