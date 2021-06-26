@@ -2759,3 +2759,73 @@ cr cup 7/23 日本时间18:00
 
 
                                                  
+
+-----
+
+####  winda  
+##### 3171#       发表于 2021-6-26 16:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女粉真有这么能打上位排名就不该是holo霸榜了，谁叫虹把打钱阿宅都赶跑了呢
+
+
+-----
+
+####  OldGlory  
+##### 3172#       发表于 2021-6-26 16:38
+
+
+虹en全员银盾
+
+
+-----
+
+####  icecry  
+##### 3173#       发表于 2021-6-26 16:40
+
+
+露露魔界村开播了，心情复杂...有种空洞感
+
+
+-----
+
+####  free  
+##### 3174#       发表于 2021-6-26 16:44
+
+
+[https://www.youtube.com/watch?v=gGtOZ1x6ync](https://www.youtube.com/watch?v=gGtOZ1x6ync)
+
+【 #チューバウト 】「TUBEOUT! Vol.9」冒頭無料生配信！
+
+
+-----
+
+####  qq845629713  
+##### 3175#       发表于 2021-6-26 16:52
+
+
+ 本帖最后由 qq845629713 于 2021-6-26 17:10 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你虹一大堆上位势力被官方拉去集体工商，然后露露魔界村，真是有够朋克的，
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/171024qj3um3jz0m5ts7u0.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210626170903.png</strong> (105.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 17:10 上传
+
+
+-----
+
+####  Ketestrait  
+##### 3176#       发表于 2021-6-26 17:27
+
+
+难受，不想看魔界村<img src="https://static.saraba1st.com/image/smiley/face2017/154.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -17344,3 +17344,138 @@ c呆唐突复课。。。。。。。。。。。。而且居然还是up2。。�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79420#       发表于 2021-6-26 16:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">摩根挺好用，自充30他充20，能给全场提供黄金律和领导力，宝具还能给全场OC。就可惜不是蓝卡了
+
+
+-----
+
+####  alucardcz  
+##### 79421#       发表于 2021-6-26 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747516&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-26 16:34</a>
+
+摩根挺好用，自充30他充20，能给全场提供黄金律和领导力，宝具还能给全场OC。就可惜不是蓝卡了 ...</blockquote>
+可惜不是红卡
+
+可惜不是绿卡
+
+可惜不是蓝卡
+
+
+明年的今天能回到可惜不是红卡上吗（<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79422#       发表于 2021-6-26 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747538&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-26 16:37</a>
+
+可惜不是红卡
+
+可惜不是绿卡
+
+可惜不是蓝卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">说不定是今年呢。还明年，明年都不知道还有没有现在那么多人玩。还不打铁趁热
+
+
+-----
+
+####  alucardcz  
+##### 79423#       发表于 2021-6-26 16:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747558&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-26 16:40</a>
+
+说不定是今年呢。还明年，明年都不知道还有没有现在那么多人玩。还不打铁趁热 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">c呆总得活过1年吧
+
+
+-----
+
+####  areklose  
+##### 79424#       发表于 2021-6-26 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747566&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-26 16:42</a>
+
+c呆总得活过1年吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今年周年出不就刚好一年吗
+
+
+-----
+
+####  alucardcz  
+##### 79425#       发表于 2021-6-26 16:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747588&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-26 16:45</a>
+
+今年周年出不就刚好一年吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得没那么快 
+
+
+而且万一直接跳过红卡又来个新绿拐呢（
+
+
+-----
+
+####  areklose  
+##### 79426#       发表于 2021-6-26 16:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747670&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-26 16:53</a>
+
+我觉得没那么快 
+
+
+而且万一直接跳过红卡又来个新绿拐呢（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">刑部姬那种吗
+
+
+-----
+
+####  alucardcz  
+##### 79427#       发表于 2021-6-26 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747682&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-26 16:54</a>
+
+刑部姬那种吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">刑部姬好啊 如果还有自选常驻5星的话 萌新必选刑部姬（
+
+
+-----
+
+####  rooarr  
+##### 79428#       发表于 2021-6-26 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747790&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-26 17:06</a>
+刑部姬好啊 如果还有自选常驻5星的话 萌新必选刑部姬（</blockquote>
+这是因为萌新你只差刑部姬了吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79429#       发表于 2021-6-26 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51747982&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-6-26 17:26</a>
+
+这是因为萌新你只差刑部姬了吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥？ 常驻缺的多了 例如拉某人 月神我都没有
+
+
+                                                 
