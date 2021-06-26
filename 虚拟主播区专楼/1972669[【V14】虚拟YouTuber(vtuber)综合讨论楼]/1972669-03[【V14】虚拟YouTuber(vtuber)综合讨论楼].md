@@ -3035,3 +3035,253 @@ elira唱歌真好听</blockquote>
 
 
                                                  
+
+-----
+
+####  free  
+##### 3190#       发表于 2021-6-26 20:46
+
+
+这佐透直是谁啊
+
+
+-----
+
+####  rzrbtk  
+##### 3191#       发表于 2021-6-26 20:48
+
+
+KAGAYAKI杯，kawase巨强nrk普通强，带郡郡一个普通玩家，
+
+休息期间讨论平时玩APEX遇到的情况，郡道说自己私下经常玩儿，
+
+nrk：“诶！？老师私下经常玩吗？好厉害！我私下都不玩的！（真诚）”
+
+郡："嗯，啊<img src="https://static.saraba1st.com/image/smiley/face2017/083.png" referrerpolicy="no-referrer">...“
+
+
+kawase和nrk畅聊技巧郡道插不进话的样子，如同自闭大学生去参加竞赛的惨样，喜欢APEX大赛
+
+
+-----
+
+####  FCCHua  
+##### 3192#       发表于 2021-6-26 20:49
+
+
+ 本帖最后由 FCCHua 于 2021-6-26 20:50 编辑 
+
+草，op是你唱啊<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+syl 狱卒私下的确不太玩apex，估计都在玩ow，虽然没查过，只是听她自己直播说
+
+
+-----
+
+####  mmbk  
+##### 3193#       发表于 2021-6-26 20:50
+
+
+这re:tryment唱的什么🎤
+
+
+-----
+
+####  alcoholic1000  
+##### 3194#       发表于 2021-6-26 21:13
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-26 21:25 编辑 
+
+露露这魔界村五个小时，可算到存档点了
+
+<img src="https://img.saraba1st.com/forum/202106/26/211327xoiccazixhr1asak.png" referrerpolicy="no-referrer">
+
+
+<strong>【帰ってきた魔界村】100万回やられてもがんばるる…ｯ！！【鈴原るる:にじさんじ】.p.png</strong> (121.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 21:13 上传
+
+
+要延毕了...
+
+Syl，虹帕青哥大赛26人参加，真没想到
+
+
+-----
+
+####  free  
+##### 3195#       发表于 2021-6-26 21:14
+
+
+[https://www.bilibili.com/video/BV1CV411s7jd?p=2](https://www.bilibili.com/video/BV1CV411s7jd?p=2)
+
+批站12周年叔叔的演讲，这个数据是真的吗，批站有3.2万管人？
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/211418c6111w6wcwcmfzfe.png" referrerpolicy="no-referrer">
+
+
+<strong>12.png</strong> (40.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 21:14 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| katern| + 1|是个人右下角挂张皮都算虚拟主播.|
+
+
+查看全部评分
+
+
+-----
+
+####  winda  
+##### 3196#       发表于 2021-6-26 21:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">ow是dead game，nrk又不是小熊猫那么厨ow,按她说法去年玩valo最多，今年除了肝gbf，还多了马娘，还有私下玩不想暴露的moba游戏
+
+
+-----
+
+####  哈曼的YY  
+##### 3197#       发表于 2021-6-26 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51750184&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-6-26 21:13</a>
+
+露露这魔界村五个小时，可算到存档点了</blockquote>
+不容易啊 感觉今天都打不完第一关
+
+
+-----
+
+####  443421870  
+##### 3198#       发表于 2021-6-26 21:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51749828&amp;ptid=1972669" target="_blank">free 发表于 2021-6-26 20:46</a>
+
+这佐透直是谁啊</blockquote>
+出云霞，和ccll警花转世一估计要一起组合出道，说不定是现实认识
+
+
+-----
+
+####  CielChloe  
+##### 3199#       发表于 2021-6-26 21:29
+
+
+现在是个UP主都可以套张2D皮原地转生，3w也不奇怪
+
+
+-----
+
+####  哈曼的YY  
+##### 3200#       发表于 2021-6-26 21:42
+
+
+历经6小时 崇尚力量记忆8的魔王接触到了陌生的魔法
+
+
+-----
+
+####  kangkangsama  
+##### 3201#       发表于 2021-6-26 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51749851&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-6-26 20:48</a>
+
+KAGAYAKI杯，kawase巨强nrk普通强，带郡郡一个普通玩家，
+
+休息期间讨论平时玩APEX遇到的情况，郡道说自己私 ...</blockquote>
+自闭郡道挺难见的，就看的挺爽
+
+
+-----
+
+####  winda  
+##### 3202#       发表于 2021-6-26 22:09
+
+
+ 本帖最后由 winda 于 2021-6-26 22:10 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/220842e2bc12ynmpmzgg5n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210626_220755.jpg</strong> (81.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-6-26 22:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/220847d8tb90u53re5uq8q.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210626_220800.jpg</strong> (76.44 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-6-26 22:08 上传
+
+
+srs仅一分之差夺得冠军
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">reid，白雪，astel这组没职业没猎杀的纯v队在有mondo，cpt在的比赛里夺冠真的不容易。
+
+
+-----
+
+####  free  
+##### 3203#       发表于 2021-6-26 22:14
+
+
+ 本帖最后由 free 于 2021-6-26 22:16 编辑 
+
+[https://twitter.com/denonbu/status/1408769951112994826](https://twitter.com/denonbu/status/1408769951112994826)
+
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f389.svg" height="1" id="aimg_VRZ4t" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)重大発表<img src="https://abs-0.twimg.com/emoji/v2/svg/1f389.svg" height="1" id="aimg_rbSgm" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)／電音部 1st LIVE -Make Waves-日程：2021年10月30日,31日
+会場：立川ステージガーデン＼
+遂にやりますッ<img src="https://abs-0.twimg.com/emoji/v2/svg/203c.svg" height="1" id="aimg_v1pZ1" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)<img src="https://abs-0.twimg.com/emoji/v2/svg/1f31f.svg" height="1" id="aimg_n3K23" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)
+電音部キャストによるLIVEが2DAYS開催決定ッ<img src="https://abs-0.twimg.com/emoji/v2/svg/203c.svg" height="1" id="aimg_EzRyu" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)
+出演者情報、チケット販売開始は8月上旬予定です
+<img src="https://abs-0.twimg.com/emoji/v2/svg/1f929.svg" height="1" id="aimg_H2L2Y" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)<img src="https://abs-0.twimg.com/emoji/v2/svg/25b6.svg" height="1" id="aimg_EtRVu" onclick="zoom(this, this.src, 0, 0, 0)" width="1"/)[https://denonbu.jp/event/1stlive](https://t.co/Uunx8bhoga?amp=1)
+
+
+-----
+
+####  rzrbtk  
+##### 3204#       发表于 2021-6-26 22:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51750675&amp;ptid=1972669" target="_blank">kangkangsama 发表于 2021-6-26 21:48</a>
+
+自闭郡道挺难见的，就看的挺爽</blockquote>
+比完要去旅游了，何止是自闭郡道，这之后连正常郡道都难见了<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">！
+
+
+-----
+
+####  winda  
+##### 3205#       发表于 2021-6-26 22:23
+
+
+这次柏青哥大会的机子是北斗的?<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+                                                 

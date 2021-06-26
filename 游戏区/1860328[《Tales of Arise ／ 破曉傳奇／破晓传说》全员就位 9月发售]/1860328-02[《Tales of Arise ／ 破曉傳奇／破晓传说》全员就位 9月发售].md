@@ -4051,3 +4051,17 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  蓝雉  
+##### 1775#       发表于 2021-6-26 22:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51744910&amp;ptid=1860328" target="_blank">zero12 发表于 2021-6-26 11:10</a>
+
+今天出了个希侬的宣传预告，可惜是英文版的。过场还是挺流畅的。</blockquote>
+奥尔芬看到女主下楼梯那段直接发出了一见钟情的声音,再加上那天造地和的设定,这俩不结婚真的很难收场<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

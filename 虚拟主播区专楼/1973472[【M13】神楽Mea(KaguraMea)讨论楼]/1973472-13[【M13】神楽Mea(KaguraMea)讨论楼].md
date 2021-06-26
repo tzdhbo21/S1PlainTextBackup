@@ -1523,3 +1523,40 @@ syl 下次直播是28号晚8点 三周年直播
 
 
                                                  
+
+-----
+
+####  ashero  
+##### 18140#       发表于 2021-6-26 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51748272&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-6-26 18:05</a>
+真就一动不动啊……</blockquote>
+动了 指盒限和天狗玩游戏
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  往世雷书  
+##### 18141#       发表于 2021-6-26 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51745388&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-26 12:03</a>
+彩虹绿色鲨鱼牙齿那个吧</blockquote>
+又是彩虹？彩虹Mea的位置永不空缺是吧<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  rosevalley46  
+##### 18142#       发表于 2021-6-26 22:02
+
+
+只要是会说段子的阿姨都被苔苔指定为mea
+
+
+                                                 

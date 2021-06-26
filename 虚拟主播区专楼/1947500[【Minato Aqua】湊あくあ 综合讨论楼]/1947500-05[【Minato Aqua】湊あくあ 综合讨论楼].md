@@ -3651,3 +3651,44 @@ akukin建设复活，夏祭正式确定出场。
 
 
                                                  
+
+-----
+
+####  乌鸦绅士  
+##### 6306#       发表于 2021-6-26 20:56
+
+
+ 本帖最后由 乌鸦绅士 于 2021-6-26 21:57 编辑 
+
+上一次在同事推特下面留言是什么时候了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+只用单声道到现在才发现，说实话也该去看看耳科<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+盐水要等读SC才聊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+这21点玩的有我当年GTA5赌场紫色桌最大赌注绞尽脑汁的那味儿了<img src="https://static.saraba1st.com/image/smiley/face2017/147.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ylssb10438  
+##### 6307#       发表于 2021-6-26 21:19
+
+
+ 本帖最后由 ylssb10438 于 2021-6-26 21:35 编辑 
+
+这声叫的差点给我送走。不知道8的dlc会不会有这种电锯惊魂环节
+
+
+-----
+
+####  大厨麦当牛  
+##### 6308#       发表于 2021-6-26 21:53
+
+
+阴角玩个21点都这么急人的吗。。IQ5000警告。
+
+
+                                                 

@@ -3279,3 +3279,66 @@ win11的安卓app性能和模拟器比会不会更好些？像是cpu性能，io�
 
 
                                                  
+
+-----
+
+####  千千千千鸟  
+##### 286#       发表于 2021-6-26 22:19
+
+
+看来得等40系显卡出来后换电脑了才能更新win11了，不懂这样子硬件限制有什么必要。
+
+
+-----
+
+####  indtability  
+##### 287#       发表于 2021-6-26 22:36
+
+
+tpm说是策略问题我也能理解，谁能说下CPU到底为啥要划线，7代u跟8代u到底差了个啥？
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Sorastlos  
+##### 288#       发表于 2021-6-26 22:41
+
+
+看了下我的两台电脑B350和B450的主板都有TPM的功能
+
+打开了也确实是2.0
+
+
+但是要是到时候Ryzen1700不给升那是真的牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer"> 我不想花钱
+
+
+-----
+
+####  hein  
+##### 289#       发表于 2021-6-26 22:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51749101&amp;ptid=2011727" target="_blank">再买自检星剁手 发表于 2021-6-26 19:46</a>
+
+最大化还是一样的，只不过窗口化变成了圆角
+
+
+画蛇添足</blockquote>
+那么两分屏和四分屏了，是直角，还是在上下和中间留个洞<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hein  
+##### 290#       发表于 2021-6-26 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51748211&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-26 17:55</a>
+
+https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windows-11-supported-in ...</blockquote>
+没事，我觉得等win10成为第二个win7，第三个xp，阿三又会为了kpi改政策的
+
+
+                                                 
