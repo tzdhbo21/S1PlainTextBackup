@@ -15771,3 +15771,35 @@ WT在SBS回应过，橡胶JJ的确可以变大
 
 
                                                  
+
+-----
+
+####  好评加鹅  
+##### 55329#       发表于 2021-6-26 08:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51743169&amp;ptid=98922" target="_blank">faiths 发表于 2021-6-26 02:20</a>
+这个设定感觉橡胶是当年洛克斯吃过的果实，之前洛克斯所有的信息都被世界政府抹杀了所以也没几个人知道，也 ...</blockquote>
+洛克斯是黑暗果实的概率大得多
+
+
+-----
+
+####  轻尘有雨  
+##### 55330#       发表于 2021-6-26 08:44
+
+
+明明是路飞自己刀山火海一拳一拳打出来的地位，非要温水煮青蛙似的加各种钦定要素，不必，真的不必……
+
+
+-----
+
+####  cckuku  
+##### 55331#       发表于 2021-6-26 08:57
+
+
+我记得泥潭和隔壁nga每次有人问为什么不给路飞更强力果实的时候，都有人出来解释说:wt曾经说过橡胶果实比较有趣。
+所以是wt后期有了新想法还是wt压根就没说过橡胶果实有趣这话？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

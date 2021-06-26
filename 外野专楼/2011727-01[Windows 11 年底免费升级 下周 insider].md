@@ -3042,3 +3042,27 @@ WIN10就是绝响。</blockquote>
 
 
                                                  
+
+-----
+
+####  VirMoe  
+##### 268#       发表于 2021-6-26 09:15
+
+
+<strong>微软允许用户在Windows 11上侧载Android APK安装包</strong>
+[https://www.cnbeta.com/articles/tech/1145385.htm](https://www.cnbeta.com/articles/tech/1145385.htm)
+
+
+-----
+
+####  天网  
+##### 269#       发表于 2021-6-26 09:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51735346&amp;ptid=2011727" target="_blank">V5Style 发表于 2021-6-25 15:05</a>
+
+祖传文件资源管理器也改了。</blockquote>
+总算有点现代感了。以前的顶部工具栏按钮太复杂了，莫说可以简约化，折叠/展开两种模式切换也是复杂度的一种。素人根本不会用那一堆飞机仪表盘一样的按钮，稍微懂点的又99%只用快捷键。
+
+
+                                                 

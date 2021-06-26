@@ -6028,3 +6028,27 @@ jaaon总结了一下感觉有道理，就是个小瘪三想搞花样撩热度，
 
 
                                                  
+
+-----
+
+####  zzy516232108  
+##### 458#       发表于 2021-6-26 09:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看了眼有人说8月是PT发售的日子
+
+youtube上那个所谓的假账号搞了个摩尔斯电码，翻译过来是 endure survive
+
+survive=mgsurvive？
+
+
+-----
+
+####  hshiki  
+##### 459#       发表于 2021-6-26 09:28
+
+
+感觉就是一个人扯了个淡，围观的人越琢磨越真，越真越琢磨，厂商一看热度好高啊，也跟着凑趣，说不定最后成了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
