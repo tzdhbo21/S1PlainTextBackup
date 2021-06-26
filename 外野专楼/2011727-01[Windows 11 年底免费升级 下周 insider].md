@@ -3066,3 +3066,37 @@ WIN10就是绝响。</blockquote>
 
 
                                                  
+
+-----
+
+####  尼特geek  
+##### 270#       发表于 2021-6-26 09:49
+
+
+<img src="https://img.saraba1st.com/forum/202106/26/094905v4ra55bc4jw0pyrw.png" referrerpolicy="no-referrer">
+
+
+<strong>无标题.png</strong> (18.69 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-26 09:49 上传
+
+
+这又是什么东西？
+
+
+
+
+-----
+
+####  Litccc  
+##### 271#       发表于 2021-6-26 10:08
+
+
+[https://github.com/rcmaehl/WhyNotWin11/releases/tag/2.1.0](https://github.com/rcmaehl/WhyNotWin11/releases/tag/2.1.0)
+
+用这个检测工具吧，你软搞个检测工具还要安装<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                

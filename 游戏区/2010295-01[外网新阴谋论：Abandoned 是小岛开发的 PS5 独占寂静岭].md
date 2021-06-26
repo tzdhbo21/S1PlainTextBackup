@@ -6052,3 +6052,60 @@ survive=mgsurvive？
 
 
                                                  
+
+-----
+
+####  矢量路比  
+##### 460#         楼主| 发表于 2021-6-26 09:32
+
+
+嗨呀，大家也都是图个乐子，不至于
+
+
+其实当时很多人最大的疑点就是，索尼为什么要和这种没实绩又看不出什么特别之处的小团队扯上关系……
+
+
+-----
+
+####  zzy516232108  
+##### 461#       发表于 2021-6-26 09:37
+
+
+ 本帖最后由 zzy516232108 于 2021-6-26 09:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51744045&amp;ptid=2010295" target="_blank">矢量路比 发表于 2021-6-26 09:32</a>
+
+嗨呀，大家也都是图个乐子，不至于
+
+
+其实当时很多人最大的疑点就是，索尼为什么要和这种没实绩又看不出什么 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+这件事最伤心的就是寂静岭玩家了
+
+
+打了一大堆脏话，算了
+
+法克可乐妹就完事儿了嗷
+
+只能说一周以前我还以为有概率是寂静岭新作，还有点高兴
+
+
+-----
+
+####  luoyianwu  
+##### 462#       发表于 2021-6-26 09:43
+
+
+这场事件中有很多常理无法解释的扯蛋巧合，建议不要完全死心，死一点点就好<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  小泉花陽  
+##### 463#       发表于 2021-6-26 10:06
+
+
+这demo连着跳票真就把玩家当猴耍啊，还一跳跳两月
+
+
+                                                 
