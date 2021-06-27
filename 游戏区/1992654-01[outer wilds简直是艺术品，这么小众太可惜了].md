@@ -2866,3 +2866,18 @@ https://www.bilibili.com/read/cv6290793
 
 
                                                  
+
+-----
+
+####  Deikun  
+##### 213#       发表于 2021-6-27 21:18
+
+
+上次趁着PS平台打折买了，真是惊艳到我了
+
+PS5版能不能来个强化补丁啊，30帧玩得有点难受
+
+还有这游戏是真的有点恐怖<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 

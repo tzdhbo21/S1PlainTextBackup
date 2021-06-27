@@ -3791,3 +3791,19 @@ neee—— moooo——，惯例的耻辱下播，都回来了
 
 
                                                  
+
+-----
+
+####  大厨麦当牛  
+##### 6317#       发表于 2021-6-27 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51752273&amp;ptid=1947500" target="_blank">Maonpuyo 发表于 2021-6-27 00:37</a>
+
+没提，工作日全是お仕事
+
+都列时间表了，没写的日子肯定是不播的</blockquote>
+写了的也不一定播www
+
+
+                                                 

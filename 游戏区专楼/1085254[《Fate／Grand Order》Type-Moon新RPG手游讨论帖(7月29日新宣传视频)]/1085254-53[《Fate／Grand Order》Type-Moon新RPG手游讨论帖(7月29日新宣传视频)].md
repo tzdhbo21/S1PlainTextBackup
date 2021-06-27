@@ -17490,3 +17490,19 @@ c呆总得活过1年吧</blockquote>
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79431#       发表于 2021-6-27 19:36
+
+
+futa吧基本吵完就删啊
+
+所以才有一群人动不动就失忆，之后BGO实装了就在屎黄色再演一遍
+
+然后再吃一波二手屎
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
