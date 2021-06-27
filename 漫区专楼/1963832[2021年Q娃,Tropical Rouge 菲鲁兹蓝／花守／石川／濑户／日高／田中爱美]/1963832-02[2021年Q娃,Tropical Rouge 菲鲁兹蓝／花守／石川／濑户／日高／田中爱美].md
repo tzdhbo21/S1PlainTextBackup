@@ -3442,3 +3442,64 @@ ost1有资源了
 
 
                                                  
+
+-----
+
+####  达达葱2  
+##### 1760#       发表于 2021-6-27 07:48
+
+
+这周应该换op画面了吧
+
+
+-----
+
+####  hgcg-ix  
+##### 1761#       发表于 2021-6-27 07:49
+
+
+ 本帖最后由 hgcg-ix 于 2021-6-27 07:56 编辑 
+
+哈哈哈变成人类的代价是不会游泳了？
+
+
+<img src="https://img.saraba1st.com/forum/202106/27/075615nxukmaz4tbxkv414.jpg" referrerpolicy="no-referrer">
+
+
+<strong>img-c4e2328a3703acfc2a13e67035566bd0.jpg</strong> (145.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-27 07:56 上传
+
+
+-----
+
+####  kerfars  
+##### 1762#       发表于 2021-6-27 08:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">果然，看预告就知道人类形态不会游泳了
+
+可以主动切换人和人鱼形态，人鱼形态能游，q娃形态也能游，人类形态拉胯（不过应该是不懂人类的泳法而已，和上学不懂海洋以外的知识一样，肯学应该还是能会的）
+
+
+这集挺好的，本质入部回
+
+一开始萝拉就因为全校鼓掌有点飘飘然，游泳部长来找的时候还想成为明星进军全国大赛，真要会游估计就被抓去游泳部了
+
+最后是意识到自己有不足，加上真夏高情商说明天也和萝拉一起上学，所以还是加入热带部
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">还有，粉发的偶像萝拉该换人了
+
+<img src="https://img.saraba1st.com/forum/202106/27/082726x68u8t6xv871tjlm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210627082654.jpg</strong> (149.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-27 08:27 上传
+
+
+                                                 
