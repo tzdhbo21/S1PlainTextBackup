@@ -3623,3 +3623,26 @@ Balus搞得企划呗。估计就跟好声音差不多，唱得好就让你上
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 3233#       发表于 2021-6-27 16:35
+
+
+こんな時間ですが動画を投稿しました……
+
+
+【速報/無編集】超大手Vtuberさん、配信外でAPEX初〇〇を取得し取れ高を作ってしまう…【にじさんじ郡道美玲】 [https://youtu.be/49mKM_k3k70](https://youtu.be/49mKM_k3k70) 
+
+@YouTube
+
+より
+
+
+简单来说就是野队第一次打到DMG3000以上了，很替她开心但是...这人自己说自己是超大手VTB诶<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">...
+
+郡郡好搞笑啊
+
+
+                                                 
