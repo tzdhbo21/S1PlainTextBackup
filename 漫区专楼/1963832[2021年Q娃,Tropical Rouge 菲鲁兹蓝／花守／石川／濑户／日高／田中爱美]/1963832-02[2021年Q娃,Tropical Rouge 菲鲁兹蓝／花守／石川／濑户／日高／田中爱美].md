@@ -3668,3 +3668,16 @@ ost1有资源了
 
 
                                                  
+
+-----
+
+####  李可  
+##### 1776#       发表于 2021-6-28 00:53
+
+
+发箍人间体保留了太可爱了，我就说bank里一闪而过有点可惜<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.0.4-play
+
+
+                                                 
