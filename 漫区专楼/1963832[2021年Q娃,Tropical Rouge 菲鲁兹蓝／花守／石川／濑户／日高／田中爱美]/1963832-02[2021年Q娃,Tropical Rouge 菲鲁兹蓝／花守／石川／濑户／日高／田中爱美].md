@@ -3587,3 +3587,41 @@ ost1有资源了
 
 
                                                  
+
+-----
+
+####  Sliurus  
+##### 1770#       发表于 2021-6-27 19:06
+
+
+下一集私服好评，就是有点崩
+
+这种性格单纯的刁蛮大小姐风格真可爱啊，让人忍不住想宠她<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  isa2456  
+##### 1771#       发表于 2021-6-27 19:13
+
+
+期待着五人同框，看见没变的时候才想起来还在新人保护期. くるるん没有萝拉压迫每天快乐摸鱼，也算是熬出头了
+
+下集也是经典鬼屋回，我看真夏这个样子应该不是第一个提出这点子的吧，肯定是萝拉想出来的<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  isa2456  
+##### 1772#       发表于 2021-6-27 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51757237&amp;ptid=1963832" target="_blank">adsn 发表于 2021-6-27 15:28</a>
+
+看完这集开头爱莲怕不是要哭晕在厕所了</blockquote>
+艾莲明显属于是项链太bug了才削的<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+
+                                                

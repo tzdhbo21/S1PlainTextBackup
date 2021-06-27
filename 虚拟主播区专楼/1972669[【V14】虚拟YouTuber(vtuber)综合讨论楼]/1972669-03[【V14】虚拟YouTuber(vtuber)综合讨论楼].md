@@ -3719,3 +3719,100 @@ niconico，__都不看
 
 
                                                  
+
+-----
+
+####  alcoholic1000  
+##### 3240#       发表于 2021-6-27 18:32
+
+
+<img src="https://img.saraba1st.com/forum/202106/27/183240l4k4qdqgdqg7q7og.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ほんひま新衣装】＼ 世界で一番かーわいいっよー ／【本間ひまわり:にじさんじ】-1.png</strong> (230.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-27 18:32 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/27/183240mcqn16me6fe6eeo2.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ほんひま新衣装】＼ 世界で一番かーわいいっよー ／【本間ひまわり:にじさんじ】-2.png</strong> (84.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-27 18:32 上传
+
+
+
+
+-----
+
+####  千年流放  
+##### 3241#       发表于 2021-6-27 18:32
+
+
+没有腿环就好了
+
+
+-----
+
+####  十四洲  
+##### 3242#       发表于 2021-6-27 18:34
+
+
+露露过了
+
+
+-----
+
+####  IDIDIDID  
+##### 3243#       发表于 2021-6-27 18:34
+
+
+再重复一遍，这yhm特有肉腿太懂了哥，太懂了。
+
+
+-----
+
+####  哈曼的YY  
+##### 3244#       发表于 2021-6-27 18:46
+
+
+魔王终于见到第一关boss
+
+
+-----
+
+####  alcoholic1000  
+##### 3245#       发表于 2021-6-27 19:04
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-27 19:07 编辑 
+
+第一关过了！预计降低难度来通其他关卡（当前难度：传说）
+
+
+-----
+
+####  yamato gun  
+##### 3246#       发表于 2021-6-27 19:10
+
+
+见证了魔王打通第一关，过年一样
+
+—— 来自 Hisense HLTE202N, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  pansherry  
+##### 3247#       发表于 2021-6-27 19:22
+
+
+草，柴卡这凸待怎么人都留着杂谈的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                
