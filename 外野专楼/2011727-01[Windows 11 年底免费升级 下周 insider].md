@@ -3342,3 +3342,14 @@ https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windo
 
 
                                                  
+
+-----
+
+####  暗之星尘  
+##### 291#       发表于 2021-6-27 12:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">有个问题 我这种装的未激活的win10 然后在马云家买的激活码激活的算Z算D
+
+
+                                                 
