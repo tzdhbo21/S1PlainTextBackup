@@ -3873,3 +3873,55 @@ loto疑是最大boss
 
 
                                                  
+
+-----
+
+####  yla  
+##### 3253#       发表于 2021-6-28 02:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">露露过了传说难度第一面后，开新档降了2档难度终于在这最后一次游戏直播里打通了
+
+
+-----
+
+####  Ketestrait  
+##### 3254#       发表于 2021-6-28 02:09
+
+
+<img src="http://tva4.sinaimg.cn/large/7c16af6bly1grxdbsuazyg20ju0b4kjp.gif" referrerpolicy="no-referrer">
+
+
+挂着露皇的魔界村，另外一窗口油管自动播放随机到了德比，猛然间想起来当初德比3D披露时片尾的这图了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Junchoon  
+##### 3255#       发表于 2021-6-28 02:13
+
+
+露露、露露，T_T
+
+
+-----
+
+####  哈曼的YY  
+##### 3256#       发表于 2021-6-28 02:18
+
+
+ 本帖最后由 哈曼的YY 于 2021-6-28 02:22 编辑 
+
+魔王，凯旋了
+
+<img src="https://img.saraba1st.com/forum/202106/28/022216lhx882kz2aabnoqq.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210628022211.png</strong> (8.55 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 02:22 上传
+
+
+                                                 
