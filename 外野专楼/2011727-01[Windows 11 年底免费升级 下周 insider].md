@@ -3353,3 +3353,38 @@ https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windo
 
 
                                                  
+
+-----
+
+####  待宵  
+##### 292#       发表于 2021-6-27 13:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51755860&amp;ptid=2011727" target="_blank">暗之星尘 发表于 2021-6-27 12:57</a>
+
+有个问题 我这种装的未激活的win10 然后在马云家买的激活码激活的算Z算D ...</blockquote>
+用激活码激活了在实际意义上就是正版，只不过激活码来路不正罢了
+
+
+-----
+
+####  red4  
+##### 293#       发表于 2021-6-27 13:04
+
+
+国内大部分电脑都没有TPM吧，这东西好像国内不让用吧
+
+
+-----
+
+####  待宵  
+##### 294#       发表于 2021-6-27 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51755938&amp;ptid=2011727" target="_blank">red4 发表于 2021-6-27 13:04</a>
+
+国内大部分电脑都没有TPM吧，这东西好像国内不让用吧</blockquote>
+能用，看看这楼前面的讨论吧
+
+
+                                                 
