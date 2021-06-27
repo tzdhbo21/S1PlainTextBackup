@@ -1632,3 +1632,81 @@ syl 下次直播是28号晚8点 三周年直播
 
 
                                                  
+
+-----
+
+####  2014720  
+##### 18149#       发表于 2021-6-27 23:05
+
+
+ 本帖最后由 2014720 于 2021-6-27 23:09 编辑 
+
+【神楽めあ 推特发布】
+内容：本日6月28日、活動3周年を迎えました🍥✨
+
+自分の好きなことを好きなだけやれる環境、それを応援して見守ってくれる沢山のオタクや周りの方たちには感謝が今でも追いつきません。
+
+何やってもダメダメだけど4年目もずっと好きでいてね⸜♥⃜⸝
+
+↓記念なのでタグツイート巡回する❕
+#神楽めあ3周年 https://t.co/KxGyP5jMdL
+时间：2021-06-27 23:00:44 UTC+08:00
+
+呜呜
+
+ddd脸型我还是喜欢第一版啊<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  追风小星星  
+##### 18150#       发表于 2021-6-27 23:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 什么懒狗?明明就很勤奋的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer"> 期待整活
+
+
+
+
+-----
+
+####  T_Hb  
+##### 18151#       发表于 2021-6-27 23:09
+
+
+ 本帖最后由 T_Hb 于 2021-6-27 23:31 编辑 
+
+补一张3周年的图
+
+
+<img src="https://img.saraba1st.com/forum/202106/27/231438hfs8m831hhi7y0w1.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (256.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-27 23:14 上传
+
+
+-----
+
+####  路人辰  
+##### 18152#       发表于 2021-6-27 23:27
+
+
+20210628东京0点
+
+<img src="https://img.saraba1st.com/forum/202106/27/232703p0qcerkkqkzjwate.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>CA234F5D-225F-4B77-9872-134D7F5B5E0E.jpeg</strong> (165.21 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-27 23:27 上传
+
+
+                                                

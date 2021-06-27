@@ -3388,3 +3388,17 @@ https://docs.microsoft.com/en-us/windows-hardware/design/minimum/supported/windo
 
 
                                                  
+
+-----
+
+####  distrowatch  
+##### 295#       发表于 2021-6-27 22:54
+
+
+A UEFI firmware option to turn off the TPM is not required. Upon approval from Microsoft, OEM systems for special purpose commercial systems, custom order, and customer systems with a custom image are not required to ship with a TPM support enabled. 
+
+
+然后微软一直强调TPM很有必要
+
+
+                                                 
