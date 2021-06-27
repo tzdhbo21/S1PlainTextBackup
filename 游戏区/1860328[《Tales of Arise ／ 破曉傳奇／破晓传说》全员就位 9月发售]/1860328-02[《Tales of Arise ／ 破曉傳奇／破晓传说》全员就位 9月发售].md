@@ -4160,3 +4160,20 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1784#         楼主| 发表于 2021-6-27 13:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51752137&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-6-27 00:22</a>
+我倒是更在意这个时间段，玩家是否已经可以更换时装
+
+还是必须强制戴这个头盔到剧情解开
+
+如果能换那应该能看 ...</blockquote>
+从剧情画面研判，奥尔芬应该很早就会露脸，至少在去雪国之前应该就会了。试玩版手中和身上的英雄断罪套装都是很早就能获得的装备。
+
+
+                                                 
