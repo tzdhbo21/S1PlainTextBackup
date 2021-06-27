@@ -9379,3 +9379,20 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  Cityrat  
+##### 665#       发表于 2021-6-27 09:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51712746&amp;ptid=1985265" target="_blank">leystage 发表于 2021-6-23 18:21</a>
+
+发热续航不说，bug 可以等几个版本，索尼软件通畅会在生命周期中间的某个时刻达到可用的水平…
+
+
+所以你们 ...</blockquote>
+没，她买的国行正品，我这台是索尼送给我留作纪念的工程机
+
+
+                                                 
