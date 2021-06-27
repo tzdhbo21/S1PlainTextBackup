@@ -1560,3 +1560,34 @@ syl 下次直播是28号晚8点 三周年直播
 
 
                                                  
+
+-----
+
+####  Klience  
+##### 18143#       发表于 2021-6-27 10:51
+
+
+找了一下前几天你们说的宝可梦moba 第一感觉给我就是套着宝可梦的皮在打魔兽3那张澄海3C的地图 真就缝合怪呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18144#       发表于 2021-6-27 10:59
+
+
+ 本帖最后由 T_Hb 于 2021-6-27 11:02 编辑 
+
+但是裹上了宝可梦的皮，就能让人真香，这就是世界第一IP
+
+
+-----
+
+####  fgfg435  
+##### 18145#       发表于 2021-6-27 11:02
+
+
+宝可梦，永远的骂完记得买<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

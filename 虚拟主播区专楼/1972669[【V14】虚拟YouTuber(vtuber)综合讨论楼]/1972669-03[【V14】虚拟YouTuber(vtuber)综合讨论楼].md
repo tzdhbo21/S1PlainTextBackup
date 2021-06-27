@@ -3562,3 +3562,35 @@ TUBEOUT!FES出演をかけたオーディションも開催！
 
 
                                                  
+
+-----
+
+####  katern  
+##### 3228#       发表于 2021-6-27 10:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51751839&amp;ptid=1972669" target="_blank">free 发表于 2021-6-26 23:47</a>
+
+https://twitter.com/TUBEOUT/status/1408747583229480960
+
+
+／</blockquote>
+Balus搞得企划呗。估计就跟好声音差不多，唱得好就让你上
+
+
+-----
+
+####  哈曼的YY  
+##### 3229#       发表于 2021-6-27 11:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51753836&amp;ptid=1972669" target="_blank">Amibo 发表于 2021-6-27 09:11</a>
+
+露露有说毕业原因吗？阿b一些人搞得跟得了什么绝症似的……</blockquote>
+30号会说 青光眼是以前直播说过的
+
+
+提醒了下看最后的电台后休息4小时 下午接着干
+
+
+                                                 
