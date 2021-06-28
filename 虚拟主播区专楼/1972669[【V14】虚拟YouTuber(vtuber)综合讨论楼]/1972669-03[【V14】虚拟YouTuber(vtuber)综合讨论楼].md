@@ -4008,3 +4008,20 @@ REIGNITE CUP  出場チーム発表
 
 
                                                  
+
+-----
+
+####  alcoholic1000  
+##### 3264#       发表于 2021-6-28 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51769358&amp;ptid=1972669" target="_blank">-みゆめ- 发表于 2021-6-28 15:59</a>
+
+https://twitter.com/masui03/status/1409395338050359296?s=19
+
+
+哪来的帅气美少女……等一下居然是knkn ...</blockquote>
+麻醉医？话说眼镜和她还有联系吗
+
+
+                                                 

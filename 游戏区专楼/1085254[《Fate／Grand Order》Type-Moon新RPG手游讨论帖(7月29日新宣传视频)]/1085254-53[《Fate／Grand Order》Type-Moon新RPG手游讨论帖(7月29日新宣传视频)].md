@@ -17795,3 +17795,142 @@ FGO已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face
 
 
                                                  
+
+-----
+
+####  eyeego  
+##### 79458#       发表于 2021-6-28 17:28
+
+
+不是 新素材在哪？就换的那几个够塞牙缝？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79459#       发表于 2021-6-28 17:29
+
+
+这一次估计也是最后一次肝无限池了，多刷些井盖、黑灰，FGO就毕业了
+
+
+-----
+
+####  yangun22  
+##### 79460#       发表于 2021-6-28 17:31
+
+
+礼装好像合掉了都，只剩2张满破的了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 79461#       发表于 2021-6-28 17:31
+
+
+泔，想不到尼禄祭还能再复刻的，尼玛我为了节约仓库空间已经把礼装都卖了就留了一个纪念（3，4星的卡池礼装一个都没留），感觉亏了一个亿啊（当初可是刷到满加成了）<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79462#       发表于 2021-6-28 17:32
+
+
+ 本帖最后由 exiaexa 于 2021-6-28 17:38 编辑 
+
+这他妈还是个2合1复刻艹
+先刷个100池再说，不对可能要200，喂饱现在的+攒狗粮
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+看了一眼布姐还留着两张满破的，我血赚.jpg
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 79463#       发表于 2021-6-28 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51770463&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-6-28 17:28</a>
+
+不是 新素材在哪？就换的那几个够塞牙缝？</blockquote>
+复刻会追加新的阴间本，搞不好就能刷新素材。
+
+
+-----
+
+####  khxooo  
+##### 79464#       发表于 2021-6-28 17:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51770463&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-6-28 17:28</a>
+
+不是 新素材在哪？就换的那几个够塞牙缝？</blockquote>
+估计新的阴间本会掉新素材吧。
+
+
+-----
+
+####  Aunn  
+##### 79465#       发表于 2021-6-28 17:38
+
+
+尼禄的灵衣不是进商店了么，我记得我换了应该没记错吧，这波被背刺了
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79466#       发表于 2021-6-28 17:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51770575&amp;ptid=1085254" target="_blank">Aunn 发表于 2021-6-28 17:38</a>
+尼禄的灵衣不是进商店了么，我记得我换了应该没记错吧，这波被背刺了</blockquote>
+公告说了打完活动退还金方块
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  黑上シグマ  
+##### 79467#       发表于 2021-6-28 17:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">课金礼装满破的有四五张，布姐的满破两张，都还在，我便是立于不败之地
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  真红眼教授  
+##### 79468#       发表于 2021-6-28 17:41
+
+
+还好布姐礼装没卖，不然要成陈年侠客了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stefanie张  
+##### 79469#       发表于 2021-6-28 18:02
+
+
+尼禄祭是棋子还是职介石头来着
+
+
+-----
+
+####  yzj134100  
+##### 79470#       发表于 2021-6-28 18:16
+
+
+太弱智了  继续咸鱼
+
+
+                                                 
