@@ -3422,3 +3422,88 @@ A UEFI firmware option to turn off the TPM is not required. Upon approval from M
 
 
                                                  
+
+-----
+
+####  baicon  
+##### 298#       发表于 2021-6-28 11:59
+
+
+hp的本子自带tpm2.0可惜了u是7700hq
+
+
+-----
+
+####  chaoliu  
+##### 299#       发表于 2021-6-28 12:04
+
+
+surface pro 5现在是不是还用不上<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+真挺想体验下11的
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+-----
+
+####  huruii7  
+##### 300#       发表于 2021-6-28 12:17
+
+
+zen2才能用？意思是2600，2700 zen+用不了？
+
+
+
+
+-----
+
+####  patema  
+##### 301#       发表于 2021-6-28 12:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">这波是直接让我这个初代zen用户阵亡了呢，看来大家都不升级电脑上游开始生气了捏
+
+
+-----
+
+####  hlazd  
+##### 302#       发表于 2021-6-28 12:41
+
+
+哈哈家里电脑还在用4系U，可以不折腾了
+
+
+-----
+
+####  zatsuza  
+##### 303#       发表于 2021-6-28 12:50
+
+
+大胆预言下其实所谓的限制都是给OEM看的，个人安装根本就不存在这些条条框框，不会跟WIN10有什么区别
+
+
+-----
+
+####  navarra  
+##### 304#       发表于 2021-6-28 12:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51766777&amp;ptid=2011727" target="_blank">huruii7 发表于 2021-6-28 12:17</a>
+zen2才能用？意思是2600，2700 zen+用不了？</blockquote>
+官方列表里说的是zen＋
+
+—— 来自 samsung SM-G9880, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  强尼高达  
+##### 305#       发表于 2021-6-28 12:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51767175&amp;ptid=2011727" target="_blank">zatsuza 发表于 2021-6-28 12:50</a>
+大胆预言下其实所谓的限制都是给OEM看的，个人安装根本就不存在这些条条框框，不会跟WIN10有什么区别 ...</blockquote>
+OEM早就强制UEFI加TPM 2.0了，告诉你们干嘛呢
+
+
+                                                

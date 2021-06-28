@@ -1751,3 +1751,34 @@ ACT玩家肯定会觉得101是佳作
 
 
                                                  
+
+-----
+
+####  shyso  
+##### 131#       发表于 2021-6-28 12:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51765231&amp;ptid=2011921" target="_blank">Suzutsuki.Mk.II 发表于 2021-6-28 10:25</a>
+
+有什么问题？我并不认为这里说的有任何问题？有问题你挑出来，阴阳怪气但不讲清楚那不可取 ...</blockquote>
+没问题，回头看看已经忘了当时回帖的想法
+
+阴阳怪气是我不好，对不起
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suzutsuki.Mk.II| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+                                                 
