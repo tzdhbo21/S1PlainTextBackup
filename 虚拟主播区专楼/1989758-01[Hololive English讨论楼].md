@@ -15295,3 +15295,84 @@ kiara扭伤了脖子，没提原因不确定是不是职业病<img src="https://
 
 
                                                  
+
+-----
+
+####  wiig  
+##### 1022#       发表于 2021-6-28 18:47
+
+
+<img src="https://p.sda1.dev/2/de993cd5efd78b0b0a17b06fd5fc5a51/IMG_CMP_157478376.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  wiig  
+##### 1023#       发表于 2021-6-28 19:08
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/190816v2xjoo02022nloqz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (93.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 19:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/190824aepnnpdf1dm8qejq.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (128.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 19:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/190832ww9b9zypk5ukkpow.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (71.07 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 19:08 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/190839nnmoxl6nyfxf63l8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (84.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 19:08 上传
+
+
+-----
+
+####  wuzhengkai  
+##### 1024#       发表于 2021-6-28 19:09
+
+
+有专门holoEN的讨论群吗
+
+
+-----
+
+####  wuzhengkai  
+##### 1025#       发表于 2021-6-28 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51698393&amp;ptid=1989758" target="_blank">影山银 发表于 2021-6-22 15:59</a>
+
+看了之前樱巫女生日是gta5的麦克出了祝贺视频的，这些大概都是粉丝出钱买的吧
+
+这样相较之下感觉还是ina生 ...</blockquote>
+我想起来nyanners那个johnny sins的祝贺视频 真的太搞笑了 效果拉满 
+[https://www.bilibili.com/video/BV12U4y157cL](https://www.bilibili.com/video/BV12U4y157cL)
+
+
+                                                 

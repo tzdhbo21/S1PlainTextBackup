@@ -17934,3 +17934,52 @@ FGO已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face
 
 
                                                  
+
+-----
+
+####  qixinno2  
+##### 79471#       发表于 2021-6-28 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">旧超高难在无敌的C8面前就是普通高难本吧
+
+
+-----
+
+####  UNISONIA  
+##### 79472#       发表于 2021-6-28 18:51
+
+
+来了，你们点的奥运活动
+
+
+-----
+
+####  Jamaisvu  
+##### 79473#       发表于 2021-6-28 18:56
+
+
+尼禄祭竟然能复刻，惊了！以为不会复刻估计礼装都只留了一件其他都卖了...卧槽，怎么一张也没有。哦，当时考虑到关键点是无限池所以根本没抽。
+
+
+-----
+
+####  angelooo  
+##### 79474#       发表于 2021-6-28 18:57
+
+
+就留了一张满破礼装收藏......咸了算了
+
+
+-----
+
+####  khxooo  
+##### 79475#       发表于 2021-6-28 19:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771355&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-6-28 18:57</a>
+就留了一张满破礼装收藏......咸了算了</blockquote>
+太正常了，谁TM想到叶良树搞这东西啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -8750,3 +8750,63 @@ vivy是非因果非线性时变系统（逃
 
 
                                                  
+
+-----
+
+####  RainbowSealife  
+##### 2171#       发表于 2021-6-28 18:58
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/185107rrz7ltl3tdgg37z3.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (118.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 18:51 上传
+
+
+补到第9集了，欧菲莉亚的半透明黑色纱裙有点涩<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">安东尼奥为了实现歌声使人幸福的使命，做出了不太“人性”的推演运算，强行夺舍了欧菲莉亚，但这并未解释正史里欧菲莉亚选择自我毁灭的原因，毕竟使命还没实现啊。
+
+垣谷这条线我更是懵逼，怎么几十年不见就成了扭曲的薇薇厨？这个角色反AI的目的也不明确，原本觉得垣谷曾经会不会和AI有过什么深仇大恨，为了报复而将仇恨放大化，对向了所有AI，可结果没想到这货以前还有个的AI钢琴老师，救命之恩没齿难忘，葬礼上人类的行为令你感到作呕，这时不应该把矛头只想人类吗？怎么就加入反AI组织了？还把自己整的人不人鬼不鬼的，PTSD发作了一样，然后就寄了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+一个AI能保存两种人格可还行，这三集歌姬突然OOC，松本是不是还没理解奇点计划的重要性啊，AI失忆了就从新来过，可真能折腾，就不能趁歌姬体检时备份一下数据资料？隔壁佩罗2号还知道备份呢，就薇薇和松本这种憨憨AI还拯救人类未来呢，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+薇薇这单元剧剧情真的不太行，不符逻辑就算了，为了煽情还强行BE，可惜没有一个故事令人动情，无趣。烂片雷达响了，忽然不想补了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/185743swgg2bbwwujtqi3e.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (179.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 18:57 上传
+
+
+-----
+
+####  JustW  
+##### 2172#       发表于 2021-6-28 19:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771372&amp;ptid=1982987" target="_blank">RainbowSealife 发表于 2021-6-28 18:58</a>
+
+补到第9集了，欧菲莉亚的半透明黑色纱裙有点涩安东尼奥很懂嘛7、8、9这三集的故事逻辑稍显 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没几集了，加油啊，坚持就是胜利
+
+
+-----
+
+####  RainbowSealife  
+##### 2173#       发表于 2021-6-28 19:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771472&amp;ptid=1982987" target="_blank">JustW 发表于 2021-6-28 19:08</a>
+
+没几集了，加油啊，坚持就是胜利</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
