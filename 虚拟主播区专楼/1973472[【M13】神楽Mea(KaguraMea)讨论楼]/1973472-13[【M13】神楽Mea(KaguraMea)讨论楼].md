@@ -3994,3 +3994,271 @@ vtl应该不让随便唱，vr的人都不能随便唱
 
 
                                                 
+
+-----
+
+####  追风小星星  
+##### 18383#       发表于 2021-6-28 20:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer"> 今天也是很元气呢
+
+
+-----
+
+####  Dualist彩  
+##### 18384#       发表于 2021-6-28 20:43
+
+
+yhm特有别扭罢了
+
+
+-----
+
+####  往世雷书  
+##### 18385#       发表于 2021-6-28 20:47
+
+
+告知是啥啊，最好是音声什么的要开卖了，就怕她宣布将会发生变化，这种无法把握未来的感觉太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  JY要塞  
+##### 18386#       发表于 2021-6-28 20:47
+
+
+姨度还不够
+
+
+-----
+
+####  T_Hb  
+##### 18387#       发表于 2021-6-28 20:47
+
+
+ 本帖最后由 T_Hb 于 2021-6-28 20:50 编辑 
+
+这么开心的日子，难受啥，告知肯定是好事
+
+今天状态真好啊<img src="https://static.saraba1st.com/image/smiley/face2017/079.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18388#       发表于 2021-6-28 20:54
+
+
+要堕落是吧，马上派黑人到你家
+
+
+-----
+
+####  Cushaw  
+##### 18389#       发表于 2021-6-28 20:55
+
+
+这人是不是啥都没准备啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18390#       发表于 2021-6-28 20:55
+
+
+【这就是我的目标】
+【我的目标就是被阿宅们养着活下去
+【就被阿宅养下去吧】
+【想在YTB怎样发展下去呢】
+【想要被阿宅养、只有这个目标】
+
+麻麻教你们怎么躺平<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 18391#       发表于 2021-6-28 20:59
+
+
+先妄想一波！我想看新衣服
+
+
+-----
+
+####  2014720  
+##### 18392#       发表于 2021-6-28 21:00
+
+
+估计也就谷子什么的
+
+
+-----
+
+####  fgfg435  
+##### 18393#       发表于 2021-6-28 21:00
+
+
+小麻躺平能让我透吗<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 18394#       发表于 2021-6-28 21:03
+
+
+死鱼play我喜欢
+
+
+-----
+
+####  T_Hb  
+##### 18395#       发表于 2021-6-28 21:03
+
+
+经典假哭<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 18396#       发表于 2021-6-28 21:05
+
+
+油管还不卷吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 18397#       发表于 2021-6-28 21:05
+
+
+这哭声 好想往她肚子来一拳<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 18398#       发表于 2021-6-28 21:07
+
+
+来一拳前先让我放进去<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18399#       发表于 2021-6-28 21:15
+
+
+这伴奏咋回事儿啊，乱断线<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 18400#       发表于 2021-6-28 21:15
+
+
+xcw的报复<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18401#       发表于 2021-6-28 21:18
+
+
+ 本帖最后由 T_Hb 于 2021-6-28 21:20 编辑 
+
+3首歌 一个告知，看来消息还挺多
+
+若无其事的发出了摸爆宣言，这个月没我了
+
+
+-----
+
+####  黒長直姫  
+##### 18402#       发表于 2021-6-28 21:19
+
+
+毛 一个告知10分钟 也就两个告知就11点了
+
+
+-----
+
+####  TiHaru  
+##### 18403#       发表于 2021-6-28 21:23
+
+
+会让你们哭出来的告知
+
+
+估计就是屁大点事了
+
+
+-----
+
+####  Cushaw  
+##### 18404#       发表于 2021-6-28 21:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/198.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18405#       发表于 2021-6-28 21:26
+
+
+七月上旬都很忙。。。**bw给爷死
+
+
+-----
+
+####  甘栗No.007  
+##### 18406#       发表于 2021-6-28 21:28
+
+
+现在才点开，所以到底是啥告知？
+
+
+-----
+
+####  T_Hb  
+##### 18407#       发表于 2021-6-28 21:29
+
+
+还藏呢，不知道是啥
+
+
+-----
+
+####  汇聚群光  
+##### 18408#       发表于 2021-6-28 21:30
+
+
+还没开始告知，再唱一首半歌开始第一个告知，之后每唱三首歌来一个告知，如果到10点还没唱完就不告知了<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18409#       发表于 2021-6-28 21:31
+
+
+又改成2首了，哈哈
+
+
+                                                

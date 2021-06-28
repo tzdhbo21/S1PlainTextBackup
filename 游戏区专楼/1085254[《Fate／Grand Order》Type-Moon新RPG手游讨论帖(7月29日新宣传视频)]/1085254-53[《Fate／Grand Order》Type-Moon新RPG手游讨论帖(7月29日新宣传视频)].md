@@ -18017,3 +18017,16 @@ FGO已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face
 
 
                                                  
+
+-----
+
+####  eyeego  
+##### 79479#       发表于 2021-6-28 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771738&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-6-28 19:40</a>
+那今年是不是多一个无限池了</blockquote>
+玩家想得到的 舍弃<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                 
