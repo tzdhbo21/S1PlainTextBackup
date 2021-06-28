@@ -17556,3 +17556,21 @@ futa吧基本吵完就删啊
 
 
                                                  
+
+-----
+
+####  UNISONIA  
+##### 79436#       发表于 2021-6-28 10:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51742962&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-26 01:25</a>
+
+解包的攻击力还不到2000呢
+
+一切以实物为准嘛</blockquote>
+解包的1878是基础ATK（1级的），lv90的ATK是12154
+
+MC大概是因为不是正式页面所以懒得更准确值了，但是MC解包的人B站动态发了最大ATK12154的图的
+
+
+                                                 

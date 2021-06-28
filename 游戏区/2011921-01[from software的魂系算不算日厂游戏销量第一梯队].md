@@ -1671,3 +1671,72 @@ ACT玩家肯定会觉得101是佳作
 
 
                                              
+
+-----
+
+####  Suzutsuki.Mk.II  
+##### 127#       发表于 2021-6-28 10:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51738686&amp;ptid=2011921" target="_blank">shyso 发表于 2021-6-25 20:13</a>
+
+不行了这个我得引用保存一下</blockquote>
+有什么问题？我并不认为这里说的有任何问题？有问题你挑出来，阴阳怪气但不讲清楚那不可取
+
+
+-----
+
+####  Suzutsuki.Mk.II  
+##### 128#       发表于 2021-6-28 10:28
+
+
+ 本帖最后由 Suzutsuki.Mk.II 于 2021-6-28 10:30 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51745217&amp;ptid=2011921" target="_blank">shyso 发表于 2021-6-26 11:46</a>
+
+充分说明所谓的钱都被发行商赚了就是个谣言
+
+
+不然fs傻吗不自己发行</blockquote>
+不是，我寻思着日本国内FS自己发行所有的黑暗之魂啊，这不是众所周知的？
+
+
+-----
+
+####  Suzutsuki.Mk.II  
+##### 129#       发表于 2021-6-28 10:37
+
+
+ 本帖最后由 Suzutsuki.Mk.II 于 2021-6-28 10:42 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51748972&amp;ptid=2011921" target="_blank">槐聚 发表于 2021-6-26 19:28</a>
+
+疲劳？风格变了也不见得你们一定会买账
+
+神谷英树每一款作品都是佳作级别
+
+神奇101你们几个人买了</blockquote>
+虽然我认同神谷英树每款作品都是佳作级别（龙鳞化身除外，肉眼可见的无聊透顶）
+
+但你要知道秃子做游戏有个让路人玩家无法接受的怪癖，即总喜欢塞点自己喜欢但其实没必要做的东西
+
+比如贝姐里塞摩托和打飞机，还老长，又或者即死QTE
+
+更别提他还总喜欢搞一些输入要求特别严格的东西（比如贝姐处决qte普通人打不满）
+
+
+神奇101简直像秃子的XP集合体，说他是秃子的zi wei 套都没问题
+
+这种东西你觉得不一定是受众的普通人会买？所以我一直认为秃子超级适合去做独立游戏
+
+而不是拿着公司的钱、明面上做商业游戏但实际上却是在做展现自己XP的独立游戏
+
+就这种思路，叫好不叫座已经是非常好的结局了
+
+
+我客观承认101是一部非常优秀的作品，也非常有创意
+
+但我绝对不推荐给任何喜欢act但不喜欢神谷英树个人癖好的人买
+
+绝对不
+
+
+                                                 
