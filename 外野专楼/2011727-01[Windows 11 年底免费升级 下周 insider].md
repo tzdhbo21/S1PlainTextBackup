@@ -3402,3 +3402,23 @@ A UEFI firmware option to turn off the TPM is not required. Upon approval from M
 
 
                                                  
+
+-----
+
+####  平井姨夫  
+##### 296#       发表于 2021-6-28 11:04
+
+
+我的WIN10 LTSC 不知道怎么能升级WIN11了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  紫吹兰  
+##### 297#       发表于 2021-6-28 11:54
+
+
+8代不还是skylake吗，相比6、7代有什么新增的特性吗，没有的话自己升11也行吧
+
+
+                                                 
