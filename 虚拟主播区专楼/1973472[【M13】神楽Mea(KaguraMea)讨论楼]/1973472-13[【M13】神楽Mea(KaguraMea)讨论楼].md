@@ -3541,3 +3541,456 @@ apex环节要结束了？还是继续摇人呢<img src="https://static.saraba1st
 
 
                                                  
+
+-----
+
+####  呓亘  
+##### 18336#       发表于 2021-6-28 19:43
+
+
+告知八成是谷子
+
+
+-----
+
+####  rosevalley46  
+##### 18337#       发表于 2021-6-28 19:44
+
+
+那你多整点麻图发给大家<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+谷子和新歌二选一吧
+
+
+-----
+
+####  fgfg435  
+##### 18338#       发表于 2021-6-28 19:59
+
+
+要是新衣服我倒立，下略<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18339#       发表于 2021-6-28 19:59
+
+
+我急了 我急了<img src="https://static.saraba1st.com/image/smiley/face2017/085.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  肥到终点  
+##### 18340#       发表于 2021-6-28 20:01
+
+
+你麻麻的
+
+怎么还不开<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 18341#       发表于 2021-6-28 20:03
+
+
+我羊呢？
+
+
+-----
+
+####  离心  
+##### 18342#       发表于 2021-6-28 20:03
+
+
+？小老妹你咋回事
+
+
+-----
+
+####  T_Hb  
+##### 18343#       发表于 2021-6-28 20:03
+
+
+被我拐跑了<img src="https://static.saraba1st.com/image/smiley/face2017/086.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  离心  
+##### 18344#       发表于 2021-6-28 20:03
+
+
+？小老妹你咋回事
+
+
+-----
+
+####  掉头学姐  
+##### 18345#       发表于 2021-6-28 20:04
+
+
+小辣鸡睡过头就好笑了
+
+
+-----
+
+####  2014720  
+##### 18346#       发表于 2021-6-28 20:06
+
+
+你再不出来我就要刷↑↓了<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 18347#       发表于 2021-6-28 20:07
+
+
+ddd可能性微存？
+
+
+-----
+
+####  T_Hb  
+##### 18348#       发表于 2021-6-28 20:08
+
+
+大的要来了吗
+
+
+-----
+
+####  路人庚  
+##### 18349#       发表于 2021-6-28 20:09
+
+
+不可能是3D，准备时间不够
+
+
+-----
+
+####  physi1202  
+##### 18350#       发表于 2021-6-28 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不愧是她
+
+
+-----
+
+####  Mr.shelter  
+##### 18351#       发表于 2021-6-28 20:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18352#       发表于 2021-6-28 20:10
+
+
+不愧是它
+
+
+-----
+
+####  时间在我手中  
+##### 18353#       发表于 2021-6-28 20:11
+
+
+真要last sparkle展开了
+
+
+再见神楽！最后的天元突破！
+
+
+-----
+
+####  T_Hb  
+##### 18354#       发表于 2021-6-28 20:11
+
+
+开门了 开门了
+
+
+-----
+
+####  Mikumiku831  
+##### 18355#       发表于 2021-6-28 20:12
+
+
+熟悉的BGM
+
+
+-----
+
+####  T_Hb  
+##### 18356#       发表于 2021-6-28 20:13
+
+
+普普通通就开唱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18357#       发表于 2021-6-28 20:13
+
+
+捏妈，anmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 18358#       发表于 2021-6-28 20:14
+
+
+？？？
+
+
+-----
+
+####  yywzjsw  
+##### 18359#       发表于 2021-6-28 20:14
+
+
+平平淡淡最好，这种安心感
+
+
+-----
+
+####  T_Hb  
+##### 18360#       发表于 2021-6-28 20:14
+
+
+ 本帖最后由 T_Hb 于 2021-6-28 20:15 编辑 
+
+怎么就ANMR了，大的要来了吗，怎么就变成haneru了
+
+
+
+
+-----
+
+####  十九号大侠  
+##### 18361#       发表于 2021-6-28 20:15
+
+
+人呢
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  LIPP  
+##### 18362#       发表于 2021-6-28 20:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 18363#       发表于 2021-6-28 20:16
+
+
+告知就是加入动物园吗（
+
+
+-----
+
+####  路人庚  
+##### 18364#       发表于 2021-6-28 20:16
+
+
+懂了，3周年的告知就是加入anmr，今天一大堆anmr的v来祝贺的原因也可以解释了
+
+
+-----
+
+####  2014720  
+##### 18365#       发表于 2021-6-28 20:16
+
+
+不会是加入anmr吧
+
+
+-----
+
+####  T_Hb  
+##### 18366#       发表于 2021-6-28 20:17
+
+
+艹，是不是又要加入苔箱了啊
+
+
+-----
+
+####  路人庚  
+##### 18367#       发表于 2021-6-28 20:17
+
+
+猜到苔总曲了（
+
+
+-----
+
+####  2014720  
+##### 18368#       发表于 2021-6-28 20:18
+
+
+反 转 了
+
+
+-----
+
+####  Mikumiku831  
+##### 18369#       发表于 2021-6-28 20:18
+
+
+该算一下几姓家奴了
+
+
+-----
+
+####  yywzjsw  
+##### 18370#       发表于 2021-6-28 20:18
+
+
+姨了
+
+
+-----
+
+####  onlv星骸  
+##### 18371#       发表于 2021-6-28 20:18
+
+
+草 笑死
+
+
+-----
+
+####  德里达幽灵  
+##### 18372#       发表于 2021-6-28 20:18
+
+
+真有活力啊，这种安心感<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  onlv星骸  
+##### 18373#       发表于 2021-6-28 20:19
+
+
+你神乐mea没有自己的原创曲吗！
+
+
+-----
+
+####  KL25001  
+##### 18374#       发表于 2021-6-28 20:20
+
+
+这人应该不敢唱2434的歌吧，2434社歌是啥，vtl？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  暴走的包子  
+##### 18375#       发表于 2021-6-28 20:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那个必不可能唱，彩虹自家的随便唱都会被炎
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yywzjsw  
+##### 18376#       发表于 2021-6-28 20:21
+
+
+今天怎么这么甜美<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18377#       发表于 2021-6-28 20:23
+
+
+自己的原创曲1年没唱已经不会唱了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  缺陷电气杨永信  
+##### 18378#       发表于 2021-6-28 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51772115&amp;ptid=1973472" target="_blank">KL25001 发表于 2021-6-28 20:20</a>
+这人应该不敢唱2434的歌吧，2434社歌是啥，vtl？
+
+—— 来自 S1Fun</blockquote>
+vtl应该不让随便唱，vr的人都不能随便唱
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时雨rain  
+##### 18379#       发表于 2021-6-28 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">自己的曲不会唱
+
+
+-----
+
+####  十九号大侠  
+##### 18380#       发表于 2021-6-28 20:28
+
+
+确实基本不唱，这是啥心态哇
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yywzjsw  
+##### 18381#       发表于 2021-6-28 20:31
+
+
+不会（x）
+
+羞耻的不敢唱（√）
+
+
+-----
+
+####  T_Hb  
+##### 18382#       发表于 2021-6-28 20:36
+
+
+又在约人打游戏，瘾越来越大了
+
+
+                                                

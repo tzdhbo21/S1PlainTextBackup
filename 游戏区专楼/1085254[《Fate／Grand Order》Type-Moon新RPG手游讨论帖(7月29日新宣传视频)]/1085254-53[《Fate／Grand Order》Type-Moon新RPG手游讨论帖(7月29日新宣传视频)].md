@@ -17983,3 +17983,37 @@ FGO已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face
 
 
                                                  
+
+-----
+
+####  DARKGRAY  
+##### 79476#       发表于 2021-6-28 19:40
+
+
+那今年是不是多一个无限池了
+
+
+-----
+
+####  areklose  
+##### 79477#       发表于 2021-6-28 19:51
+
+
+<blockquote>stefanie张 发表于 2021-6-28 18:02
+尼禄祭是棋子还是职介石头来着</blockquote>
+技能石
+
+
+-----
+
+####  黑上シグマ  
+##### 79478#       发表于 2021-6-28 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771738&amp;ptid=1085254" target="_blank">DARKGRAY 发表于 2021-6-28 19:40</a>
+
+那今年是不是多一个无限池了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么知道下半年会不会帮你抠掉一个
+
+
+                                                 
