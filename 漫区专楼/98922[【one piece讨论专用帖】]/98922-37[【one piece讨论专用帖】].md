@@ -16107,3 +16107,25 @@ WT在SBS回应过，橡胶JJ的确可以变大
 
 
                                                  
+
+-----
+
+####  gs2-d2up  
+##### 55354#       发表于 2021-6-28 15:00
+
+
+看了最新话，只能说有些人是不是反应过度了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  仟音一心  
+##### 55355#       发表于 2021-6-28 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51768657&amp;ptid=98922" target="_blank">gs2-d2up 发表于 2021-6-28 15:00</a>
+看了最新话，只能说有些人是不是反应过度了</blockquote>
+主要是大家都比较怕现在整出来一个“OP是预言书，JOYBOY是预言之子，预言之子就是五皇”的设定来，无疑对前面是毁灭性打击。至于现在是不是有点这个苗头，那是另一回事。
+
+
+                                                 

@@ -2702,3 +2702,592 @@ syl开台了吗
 
 
                                                 
+
+-----
+
+####  Mr.shelter  
+##### 18249#       发表于 2021-6-28 13:59
+
+
+再一次后悔没带耳机<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  格林卡罗尔  
+##### 18250#       发表于 2021-6-28 14:03
+
+
+竟然真有点像海牛了
+
+
+-----
+
+####  T_Hb  
+##### 18251#       发表于 2021-6-28 14:07
+
+
+在这狂叫，便秘了一样
+
+
+-----
+
+####  暴走的包子  
+##### 18252#       发表于 2021-6-28 14:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">她打枪还行的，要是真像lol那么酬勤说不定也是个小gamer
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 18253#       发表于 2021-6-28 14:13
+
+
+她打游戏都是图一乐，根本没有目标和追求，单纯爱玩<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18254#       发表于 2021-6-28 14:14
+
+
+啊啊啊，多么感人的师徒情<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MrHPQ  
+##### 18255#       发表于 2021-6-28 14:14
+
+
+ow3800相当于apex什么段位
+
+
+-----
+
+####  Klience  
+##### 18256#       发表于 2021-6-28 14:16
+
+
+算了吧 她lol玩了那么久还是那个样子 自己没有游戏理解玩的再多也没用 她玩游戏就只是当个社交方式<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18257#       发表于 2021-6-28 14:22
+
+
+布伊布伊的<img src="https://static.saraba1st.com/image/smiley/face2017/050.png" referrerpolicy="no-referrer">可爱
+
+
+-----
+
+####  yywzjsw  
+##### 18258#       发表于 2021-6-28 14:26
+
+
+朋友游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">两巨魔
+
+
+-----
+
+####  时间在我手中  
+##### 18259#       发表于 2021-6-28 14:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51768155&amp;ptid=1973472" target="_blank">MrHPQ 发表于 2021-6-28 14:14</a>
+
+ow3800相当于apex什么段位</blockquote>
+3800带师段位···比这个强的就是4000分宗师和4000分以上前500的500强···apex最高级我记得是猎杀···但是下一档我不清楚是什么，反正也有带师段位
+
+
+-----
+
+####  MrHPQ  
+##### 18260#       发表于 2021-6-28 14:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51768291&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-6-28 14:28</a>
+
+3800带师段位···比这个强的就是4000分宗师和4000分以上前500的500强···apex最高级我记得是猎杀·· ...</blockquote>
+a猎杀=500强或宗师（4000-5000）；a带师=带师（3500-4000）；a钻石=钻石（3000-3500）；3800≈带师，QED
+
+
+-----
+
+####  T_Hb  
+##### 18261#       发表于 2021-6-28 14:40
+
+
+嘤嘤叫有点色啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18262#       发表于 2021-6-28 14:41
+
+
+这婴儿叫，为什么那么熟练<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 18263#       发表于 2021-6-28 14:42
+
+
+跟野男人玩lol也这样么？<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18264#       发表于 2021-6-28 14:47
+
+
+野男人来啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 18265#       发表于 2021-6-28 14:47
+
+
+野男人卧槽
+
+
+-----
+
+####  yywzjsw  
+##### 18266#       发表于 2021-6-28 14:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/029.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MrHPQ  
+##### 18267#       发表于 2021-6-28 14:51
+
+
+hhhhhhhhhhhh<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18268#       发表于 2021-6-28 14:51
+
+
+ 本帖最后由 T_Hb 于 2021-6-28 14:53 编辑 
+
+野男人太多了，说过的话全部都忘记了
+
+“没有女朋友，但是喜欢我，不觉得很kimo吗”
+
+
+-----
+
+####  yywzjsw  
+##### 18269#       发表于 2021-6-28 14:52
+
+
+为什么有男人就聊的那么嗨<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 18270#       发表于 2021-6-28 14:53
+
+
+不是，这人寄吧谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  2014720  
+##### 18271#       发表于 2021-6-28 14:53
+
+
+野男人怎么有猎杀尾气的，你们说话放尊敬点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18272#       发表于 2021-6-28 14:54
+
+
+这是路人？开始介绍自己了，怎么一股相亲味<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18273#       发表于 2021-6-28 14:58
+
+
+kamito自己有CP的，不过加个男人感觉话题都变无聊了
+
+
+-----
+
+####  2014720  
+##### 18274#       发表于 2021-6-28 14:58
+
+
+快进到职业哥带你麻打比赛
+
+“就当你给你补个🎁，送给你未来东家一个冠军多好”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18275#       发表于 2021-6-28 14:58
+
+
+猎杀尾气？ 那完了啊 怕不是一堆人就盯着你这队人杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18276#       发表于 2021-6-28 15:00
+
+
+wdnmd 怎么还有人看这电视剧的啊 我吐了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MrHPQ  
+##### 18277#       发表于 2021-6-28 15:01
+
+
+野王来啦，小麻抱着大腿当然高兴，有职业小代带着上分如喝水，还我也兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18278#       发表于 2021-6-28 15:03
+
+
+那还是和小麻一起下分比较兴奋<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18279#       发表于 2021-6-28 15:03
+
+
+又开了一局？
+
+
+-----
+
+####  yywzjsw  
+##### 18280#       发表于 2021-6-28 15:03
+
+
+asmr<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18281#       发表于 2021-6-28 15:06
+
+
+这就是平时小麻和野男人一起lol的样子吗 爱了爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18282#       发表于 2021-6-28 15:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18283#       发表于 2021-6-28 15:09
+
+
+男朋友没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18284#       发表于 2021-6-28 15:10
+
+
+艹还是职业哥一灭三好看<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18285#       发表于 2021-6-28 15:10
+
+
+是不是要多了一个apex的监视器了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">看这样子、
+
+
+-----
+
+####  2014720  
+##### 18286#       发表于 2021-6-28 15:11
+
+
+apex开小号怎么抓啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18287#       发表于 2021-6-28 15:11
+
+
+ 本帖最后由 Klience 于 2021-6-28 15:12 编辑 
+
+apex监视器只能监视排位的 平时匹配是看不到的<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18288#       发表于 2021-6-28 15:12
+
+
+聊天聊的路都不会走了，直接掉下悬崖
+
+
+-----
+
+####  yywzjsw  
+##### 18289#       发表于 2021-6-28 15:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  TiHaru  
+##### 18290#       发表于 2021-6-28 15:13
+
+
+看得到吧，我看祭丝发过上赛季xsj玩恶灵的，都是胜负0点
+
+
+-----
+
+####  Klience  
+##### 18291#       发表于 2021-6-28 15:14
+
+
+而且这个apex的查询网站只能查询到origin的 如果是在steam的话是查不到的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18292#       发表于 2021-6-28 15:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51768813&amp;ptid=1973472" target="_blank">TiHaru 发表于 2021-6-28 15:13</a>
+
+看得到吧，我看祭丝发过上赛季xsj玩恶灵的，都是胜负0点</blockquote>
+只能查排位记录 匹配查不到
+
+
+-----
+
+####  T_Hb  
+##### 18293#       发表于 2021-6-28 15:25
+
+
+这2腿带1坑，见面往地上一躺，体验有点差啊
+
+
+-----
+
+####  2014720  
+##### 18294#       发表于 2021-6-28 15:27
+
+
+又买摩托了是吧
+
+
+-----
+
+####  Dualist彩  
+##### 18295#       发表于 2021-6-28 15:27
+
+
+？开始了？
+
+
+-----
+
+####  Dualist彩  
+##### 18296#       发表于 2021-6-28 15:28
+
+
+不是，这来个男人同接还上来了就离谱
+
+
+-----
+
+####  T_Hb  
+##### 18297#       发表于 2021-6-28 15:28
+
+
+艹，碰到挂哥哥了，飞天锁头激光
+
+
+-----
+
+####  2014720  
+##### 18298#       发表于 2021-6-28 15:28
+
+
+艹碰见激光笔了
+
+
+-----
+
+####  Klience  
+##### 18299#       发表于 2021-6-28 15:29
+
+
+这外挂滋蹦 属实恶心<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18300#       发表于 2021-6-28 15:31
+
+
+节目效果好啊，恰到了
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 18301#       发表于 2021-6-28 15:31
+
+
+什么fw挂哥<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18302#       发表于 2021-6-28 15:31
+
+
+我日把挂哥杀了吃鸡了
+
+这职业哥牛逼
+
+
+-----
+
+####  笋狐  
+##### 18303#       发表于 2021-6-28 15:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">又是000吃鸡，职业混子
+
+
+-----
+
+####  T_Hb  
+##### 18304#       发表于 2021-6-28 15:33
+
+
+别尬黑，职业是吸收伤害
+
+
+-----
+
+####  Klience  
+##### 18305#       发表于 2021-6-28 15:36
+
+
+咩负责正面吸收火力 职业哥从侧面杀出 这叫配合<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18306#       发表于 2021-6-28 15:41
+
+
+说那么好听干什么，就是个吸引火力的<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">不过好萌
+
+
+-----
+
+####  暴走的包子  
+##### 18307#       发表于 2021-6-28 15:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">大腿也是实力的一环
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 18308#       发表于 2021-6-28 15:44
+
+
+18年pubg就是洗澡话题，2021年apex还是洗澡话题
+
+经典永不过时<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 18309#       发表于 2021-6-28 15:46
+
+
+md每次双飞都给我酸的不行<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18310#       发表于 2021-6-28 15:47
+
+
+这有什么好酸的，私底下说不定直接乱趴了呢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                               
