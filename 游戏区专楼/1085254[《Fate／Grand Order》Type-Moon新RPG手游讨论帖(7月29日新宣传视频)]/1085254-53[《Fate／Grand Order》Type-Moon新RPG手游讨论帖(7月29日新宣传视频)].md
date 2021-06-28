@@ -17574,3 +17574,47 @@ MC大概是因为不是正式页面所以懒得更准确值了，但是MC解包�
 
 
                                                  
+
+-----
+
+####  龙星丸  
+##### 79437#       发表于 2021-6-28 16:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">红卡要救出这样的红拐就行，红放梅林模板，50单冲，赋予红宝具50重蓄力，双拐上随便一个红卡光炮打手就能三连，还不怕异型本，强无敌。
+
+
+-----
+
+####  alucardcz  
+##### 79438#       发表于 2021-6-28 16:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">5点会有事发生吗
+
+
+-----
+
+####  里村紅葉  
+##### 79439#       发表于 2021-6-28 16:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51769526&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-28 16:14</a>
+
+5点会有事发生吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你在期待什么
+
+
+-----
+
+####  alucardcz  
+##### 79440#       发表于 2021-6-28 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51769566&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-28 16:18</a>
+
+你在期待什么</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">狩猎本啊 等着101010呢
+
+
+                                                 
