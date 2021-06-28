@@ -3586,3 +3586,58 @@ You will get to try many, but not all, of the new features we showed last week i
 
 
                                                  
+
+-----
+
+####  喵喵叫的猫  
+##### 312#       发表于 2021-6-29 04:11
+
+
+ 本帖最后由 喵喵叫的猫 于 2021-6-29 05:39 编辑 
+
+已升
+
+稍微试了下过去兼容型比较差的软件
+
+税局的开票软件和网上银行都还可以用 可以不用回滚了剩下的就是慢慢习惯了
+
+如果遇到选项变空白的 估计是主题bug开深色主题就好了
+
+
+-----
+
+####  SICP  
+##### 313#       发表于 2021-6-29 04:37
+
+
+[https://blogs.windows.com/window ... iew-for-windows-11/](https://blogs.windows.com/windows-insider/2021/06/28/announcing-the-first-insider-preview-for-windows-11/)
+
+
+已升
+
+
+安装Windows 11好像需要CPU支持HCVI：
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/043700wdr1crhfoo5dqzfy.png" referrerpolicy="no-referrer">
+
+
+<strong>image001.png</strong> (45.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 04:37 上传
+
+
+-----
+
+####  jbowin  
+##### 314#       发表于 2021-6-29 05:27
+
+
+推送了，下载中。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
