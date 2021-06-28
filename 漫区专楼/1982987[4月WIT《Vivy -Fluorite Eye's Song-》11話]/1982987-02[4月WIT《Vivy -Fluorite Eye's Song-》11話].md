@@ -8810,3 +8810,51 @@ vivy是非因果非线性时变系统（逃
 
 
                                                  
+
+-----
+
+####  RainbowSealife  
+##### 2174#       发表于 2021-6-29 00:24
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/235306llsz77drnonpn0gs.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (204.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 23:53 上传
+
+
+看了这么多集，才发现薇薇的演出服原来这么涩的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/181.png" referrerpolicy="no-referrer">
+
+变态专业户的配音有点出戏，奇点计划的失败完全不意外<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/29/001351shzkr99103b3ymgn.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (186.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 00:13 上传
+
+
+百岁AI连上亚卡布后怎么还穿着水手服？宁搁这儿老黄瓜刷绿漆呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+薇薇的科幻内容非常浅薄，AI意识资讯化可能不是什么难事，难就难在时空穿越上，可是动画就没提是怎么实现的（研究AI的程序员对理论物理驾轻就熟不很正常？）就连作为主轴的奇点计划也三言两语一带而过了，服<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ohi  
+##### 2175#       发表于 2021-6-29 00:44
+
+
+最后一集演出太差了，不知道为什么突然想到了阿宽参与的全金3。
+
+另外巨人第三季和冰海战记的演出都很深刻，怎么这里就拉跨了。
+
+
+                                                 

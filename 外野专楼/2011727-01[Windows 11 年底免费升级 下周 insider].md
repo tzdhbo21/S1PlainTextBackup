@@ -3546,3 +3546,43 @@ OEM早就强制UEFI加TPM 2.0了，告诉你们干嘛呢
 
 
                                                  
+
+-----
+
+####  distrowatch  
+##### 309#       发表于 2021-6-29 00:02
+
+
+ 本帖最后由 distrowatch 于 2021-6-29 01:01 编辑 
+
+Hi. We've got your tweet. You were asking when you'll have Windows 11 insider update today. As of the moment, there's no specific date yet, but according to the support team, next week, they'll begin to share an early build of Windows 11 to the Windows Insider Program.
+
+
+改口了，我们下周见。话说今天微软员工的图自己还是7820hq，却要求用户用8字头
+
+推送了朋友们
+
+
+-----
+
+####  V5Style  
+##### 310#       发表于 2021-6-29 01:04
+
+
+推送了
+<img src="https://p.sda1.dev/2/a57e7f49f38687d13ea5bc144f9201fe/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  distrowatch  
+##### 311#       发表于 2021-6-29 01:14
+
+
+You will get to try many, but not all, of the new features we showed last week in this early preview. We will bring more features such as Chat with Microsoft Teams and Android apps in the Microsoft Store over the coming months as they are ready for you
+
+
+确实跟21996差不多，新特性还是画饼，不过终于有ARM64优化的OFFICE用了
+
+
+                                                 
