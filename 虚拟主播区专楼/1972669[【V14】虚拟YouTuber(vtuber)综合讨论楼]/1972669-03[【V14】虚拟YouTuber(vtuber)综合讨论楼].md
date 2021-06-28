@@ -3936,3 +3936,61 @@ veibae几天一播？
 
 
                                                  
+
+-----
+
+####  qq845629713  
+##### 3258#       发表于 2021-6-28 09:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 昨天KING玩了瓦罗兰玩了一半就玩宇宙狼人了，阵容超强，而且还有葛笹糖吃，没看的强烈建议补一下
+
+
+                                                 
+
+-----
+
+####  NBXX  
+##### 3259#       发表于 2021-6-28 11:58
+
+
+REIGNITE CUP  出場チーム発表
+<img src="https://p.sda1.dev/2/3f1f55969a7a26f9a8aa7066ed30f534/E44egSBUcAE7Jju.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/3c8aa6b4a2faf5a28198af8a16c053f6/E44esexVoAI8OOO.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/6a3e8d87c4adc945ece843f540f21e84/E47zzpTVoAUVpRN.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/2ca0dec917c785185eb5af6761c03aff/E470L8tVEAUjCko.jpg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/84b78e71fb973615c09486f5d4db057d/E475YaoVgAUu7_g.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 3260#       发表于 2021-6-28 12:15
+
+
+昨天熬不住了起来一看柴卡凸待了6个半小时<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+真的能聊，一组人能聊半个到一个钟的
+
+
+-----
+
+####  FCCHua  
+##### 3261#       发表于 2021-6-28 12:23
+
+
+现黄泉真的又拉上大福了啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 3262#       发表于 2021-6-28 12:25
+
+
+圆脸不人气声优佐藤希收益化直播居然6500同接，今后不如就不要皮了
+
+哎呀这个红SC刷的
+
+
+                                                 
