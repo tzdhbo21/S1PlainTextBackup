@@ -4262,3 +4262,683 @@ xcw的报复<img src="https://static.saraba1st.com/image/smiley/face2017/066.png
 
 
                                                 
+
+-----
+
+####  时间在我手中  
+##### 18410#       发表于 2021-6-28 21:31
+
+
+经典谷子
+没 有 签 名
+
+
+-----
+
+####  TiHaru  
+##### 18411#       发表于 2021-6-28 21:31
+
+
+告知一：立牌
+
+
+-----
+
+####  2014720  
+##### 18412#       发表于 2021-6-28 21:32
+
+
+果然
+
+
+-----
+
+####  yywzjsw  
+##### 18413#       发表于 2021-6-28 21:32
+
+
+立牌
+
+
+-----
+
+####  fgfg435  
+##### 18414#       发表于 2021-6-28 21:33
+
+
+立本人经典重大告知<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18415#       发表于 2021-6-28 21:35
+
+
+倒也没说重大，就是告知而已
+
+
+-----
+
+####  clvan_  
+##### 18416#       发表于 2021-6-28 21:36
+
+
+草，你麻也没专门吊胃口啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+别整的和看手游直播一样
+
+
+-----
+
+####  T_Hb  
+##### 18417#       发表于 2021-6-28 21:37
+
+
+能不能来点大的<img src="https://static.saraba1st.com/image/smiley/face2017/080.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18418#       发表于 2021-6-28 21:42
+
+
+你看不是她吊胃口，是这群人总想要个大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18419#       发表于 2021-6-28 21:44
+
+
+居然不是把雪月花那个立绘拿出来做立牌
+
+
+-----
+
+####  295405468  
+##### 18420#       发表于 2021-6-28 21:44
+
+
+更大的水袋吗
+
+
+
+
+-----
+
+####  zc1996zc  
+##### 18421#       发表于 2021-6-28 21:46
+
+
+贷一个3d回
+
+
+-----
+
+####  T_Hb  
+##### 18422#       发表于 2021-6-28 21:46
+
+
+也不是不可以，更大的水袋≈新衣装
+
+
+-----
+
+####  TiHaru  
+##### 18423#       发表于 2021-6-28 21:47
+
+
+告知二 又是谷子又是谷子
+
+
+-----
+
+####  路人庚  
+##### 18424#       发表于 2021-6-28 21:47
+
+
+ 本帖最后由 路人庚 于 2021-6-28 21:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">海报，果然都是卖谷子
+
+
+听了会让人哭泣的告知（指让“来个大的”期望落空而哭泣的小小告知
+
+
+-----
+
+####  2014720  
+##### 18425#       发表于 2021-6-28 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  KL25001  
+##### 18426#       发表于 2021-6-28 21:48
+
+
+ 本帖最后由 KL25001 于 2021-6-28 21:49 编辑 
+
+这就是官方认证的七种形态了么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zc1996zc  
+##### 18427#       发表于 2021-6-28 21:48
+
+
+廉价的女人
+
+
+-----
+
+####  草牛  
+##### 18428#       发表于 2021-6-28 21:49
+
+
+已经哭了
+
+
+-----
+
+####  甘栗No.007  
+##### 18429#       发表于 2021-6-28 21:50
+
+
+全家联动抽签名海报？
+对个人势来说不错了吧<img src="https://static.saraba1st.com/image/smiley/face2017/172.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18430#       发表于 2021-6-28 21:51
+
+
+海报好像不是抽的，但是有个啥是抽的，没听清
+
+
+-----
+
+####  路人庚  
+##### 18431#       发表于 2021-6-28 21:52
+
+
+这个海报还是大小不一的，花样还挺多
+
+
+-----
+
+####  kenjjj  
+##### 18432#       发表于 2021-6-28 21:52
+
+
+日本7-11不是比全家好么
+
+
+-----
+
+####  T_Hb  
+##### 18433#       发表于 2021-6-28 21:53
+
+
+有的出就不错了，小底边还有的选吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 18434#       发表于 2021-6-28 21:55
+
+
+这么兴奋好像你们买得到似的,还不快去找工具人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18435#       发表于 2021-6-28 21:57
+
+
+工具人还不简单，就是海报这东西......
+
+
+-----
+
+####  T_Hb  
+##### 18436#       发表于 2021-6-28 21:58
+
+
+ 本帖最后由 T_Hb 于 2021-6-28 22:00 编辑 
+
+还好我没有收齐谷子的癖好
+
+危险！ 10点了
+
+
+-----
+
+####  TiHaru  
+##### 18437#       发表于 2021-6-28 22:01
+
+
+草泥马 新歌
+
+
+-----
+
+####  yywzjsw  
+##### 18438#       发表于 2021-6-28 22:02
+
+
+新歌！
+
+
+-----
+
+####  yywzjsw  
+##### 18439#       发表于 2021-6-28 22:02
+
+
+新歌！
+
+
+-----
+
+####  路人庚  
+##### 18440#       发表于 2021-6-28 22:02
+
+
+果然是有个自动投稿所以才要赶时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18441#       发表于 2021-6-28 22:03
+
+
+大的跑了，我哭死<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 18442#       发表于 2021-6-28 22:03
+
+
+肉猪太小了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">建议再养养
+
+
+-----
+
+####  2014720  
+##### 18443#       发表于 2021-6-28 22:03
+
+
+蚌埠住了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18444#       发表于 2021-6-28 22:04
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/220339d87l4whsh7oiz8om.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (19.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 22:03 上传
+
+
+[https://www.youtube.com/watch?v=uVLHYmTaefs](https://www.youtube.com/watch?v=uVLHYmTaefs)
+
+已经投出来了，冲！
+
+
+-----
+
+####  makourisu-2  
+##### 18445#       发表于 2021-6-28 22:04
+
+
+你麻麻的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">歌隔段时间出一个，然而死活不直播唱，也不整个碟子什么的，什么想法
+
+
+-----
+
+####  甘栗No.007  
+##### 18446#       发表于 2021-6-28 22:05
+
+
+7月有啥活动吗？<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18447#       发表于 2021-6-28 22:05
+
+
+隐退了在出个cd，是不是这样的想法
+
+
+-----
+
+####  T_Hb  
+##### 18448#       发表于 2021-6-28 22:06
+
+
+7月有BW，这首歌怎么调音这么严重啊
+
+
+-----
+
+####  2014720  
+##### 18449#       发表于 2021-6-28 22:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51773197&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-6-28 22:04</a>
+https://www.youtube.com/watch?v=uVLHYmTaefs
+
+已经投出来了，冲！</blockquote>
+这张图莫名的很熟悉，但我死活记不起哪里见过了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18450#       发表于 2021-6-28 22:06
+
+
+竟然是茅原实里的歌
+
+
+
+
+-----
+
+####  clvan_  
+##### 18451#       发表于 2021-6-28 22:07
+
+
+京紫ed啊
+
+
+-----
+
+####  yywzjsw  
+##### 18452#       发表于 2021-6-28 22:08
+
+
+艹这？我咋感觉听不出是麻唱的，这调的
+
+
+-----
+
+####  T_Hb  
+##### 18453#       发表于 2021-6-28 22:08
+
+
+调的都带点电音了
+
+
+-----
+
+####  路人庚  
+##### 18454#       发表于 2021-6-28 22:08
+
+
+完全就是朝着大萌神的音调去了
+
+
+-----
+
+####  时间在我手中  
+##### 18455#       发表于 2021-6-28 22:09
+
+
+调过了对我来说
+
+
+-----
+
+####  2014720  
+##### 18456#       发表于 2021-6-28 22:10
+
+
+774牛逼！
+
+
+-----
+
+####  甘栗No.007  
+##### 18457#       发表于 2021-6-28 22:10
+
+
+ 本帖最后由 甘栗No.007 于 2021-6-28 22:17 编辑 
+
+我来个pv好评中和一下<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  专业划水人员  
+##### 18458#       发表于 2021-6-28 22:11
+
+
+是唱法还是调音问题。。。
+
+
+-----
+
+####  T_Hb  
+##### 18459#       发表于 2021-6-28 22:11
+
+
+音色都变了，当然是调音的问题
+
+
+-----
+
+####  草牛  
+##### 18460#       发表于 2021-6-28 22:11
+
+
+可能是唱的烂调的也不行，门当户对了
+
+
+-----
+
+####  Ky·Kiske  
+##### 18461#       发表于 2021-6-28 22:12
+
+
+硬生生调出了茅原的沙嗓还行
+
+
+-----
+
+####  onlv星骸  
+##### 18462#       发表于 2021-6-28 22:12
+
+
+可恶，三周年纪念日又给她混过去了。 翻唱真好听，爱了。
+
+
+-----
+
+####  clvan_  
+##### 18463#       发表于 2021-6-28 22:12
+
+
+想仿原曲风格有点失败了吧
+
+
+-----
+
+####  295405468  
+##### 18464#       发表于 2021-6-28 22:12
+
+
+没听过原曲  是不是按原唱声音去调了 emmm
+
+
+-----
+
+####  Mr.shelter  
+##### 18465#       发表于 2021-6-28 22:13
+
+
+第一句都没听出是你麻<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 18466#       发表于 2021-6-28 22:13
+
+
+只能说，茅原唱歌是梗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+不是所有人都喜欢听
+
+
+-----
+
+####  T_Hb  
+##### 18467#       发表于 2021-6-28 22:14
+
+
+[https://www.bilibili.com/video/B ... 2152464747035874621](https://www.bilibili.com/video/BV19t4y197hk?from=search&amp;seid=12152464747035874621)
+
+还真是照茅原实里调的，这有啥意义呢<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mikumiku831  
+##### 18468#       发表于 2021-6-28 22:14
+
+
+再怎么调还是垃圾 小麻明明可以调成空灵悦耳的声音 
+
+次次都调都是干巴巴刺耳的一笔 774真不行
+
+
+-----
+
+####  295405468  
+##### 18469#       发表于 2021-6-28 22:15
+
+
+嘛 既然都翻唱了还是喜欢更有小麻风格的  不过也习惯了
+
+
+-----
+
+####  T_Hb  
+##### 18470#       发表于 2021-6-28 22:15
+
+
+看在今天直播状态这么好，原谅了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 18471#       发表于 2021-6-28 22:16
+
+
+小麻风格——指模仿系<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18472#       发表于 2021-6-28 22:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">也许这次咩姐想模仿一下大萌神做一个梦吧
+
+
+（不过大萌神的歌在凉宫那个时代已经品鉴的够多了
+
+
+-----
+
+####  古战场亡魂  
+##### 18473#       发表于 2021-6-28 22:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">mea这首调的还勉强接受。
+
+原唱一听就知道为什么被黑公鸭嗓了……哎，这嗓子毁的
+
+
+-----
+
+####  时间在我手中  
+##### 18474#       发表于 2021-6-28 22:17
+
+
+所以这人七月上旬究竟忙什么，这个月直播都要没了，不会真就为了批w那个**四人组合上场要演台本吧，
+
+
+-----
+
+####  T_Hb  
+##### 18475#       发表于 2021-6-28 22:17
+
+
+BW应该是4个人轮流上场吧，其实也没啥台本
+
+
+-----
+
+####  シルフィエット  
+##### 18476#       发表于 2021-6-28 22:18
+
+
+PV不错
+
+
+-----
+
+####  yywzjsw  
+##### 18477#       发表于 2021-6-28 22:18
+
+
+不如肉猪一下，又是什么电视节目
+
+
+-----
+
+####  2014720  
+##### 18478#       发表于 2021-6-28 22:20
+
+
+等生日放出得了
+
+
+-----
+
+####  Cushaw  
+##### 18479#       发表于 2021-6-28 22:22
+
+
+不奇怪，当年京紫就有人说：情绪渲染的很好马上要哭出来了，然后ed破军歌姬一出，眼泪又给憋回去了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                               

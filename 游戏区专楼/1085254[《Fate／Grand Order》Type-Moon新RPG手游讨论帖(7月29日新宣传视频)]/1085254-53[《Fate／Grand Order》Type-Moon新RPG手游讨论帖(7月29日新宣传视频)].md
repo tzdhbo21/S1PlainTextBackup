@@ -18030,3 +18030,50 @@ FGO已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79480#       发表于 2021-6-28 21:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771920&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-28 20:00</a>
+
+你怎么知道下半年会不会帮你抠掉一个</blockquote>
+那多出来的活动拿什么填？万圣？<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79481#       发表于 2021-6-28 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51772992&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-6-28 21:45</a>
+
+那多出来的活动拿什么填？万圣？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">圣杯战线
+
+
+-----
+
+####  khxooo  
+##### 79482#       发表于 2021-6-28 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51773027&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-6-28 21:48</a>
+
+圣杯战线</blockquote>
+好事啊，又有呼符拿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79483#       发表于 2021-6-28 22:09
+
+
+提前预告BUG还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

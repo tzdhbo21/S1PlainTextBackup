@@ -4066,3 +4066,105 @@ ui4s已经9天没有新投稿了<img src="https://static.saraba1st.com/image/smi
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 3268#       发表于 2021-6-28 21:37
+
+
+星宝这是发生什么了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ShuTk4O  
+##### 3269#       发表于 2021-6-28 21:41
+
+
+1位 キズナアイ A.I.Channel
+
+2,960,000 人 +434
+
+385,280,341 回 +130,671         
+
+
+2位 Gawr Gura(がうるぐら サメちゃん) Gawr Gura Ch. hololive-EN ホロライブ(海外) ホロライブ(海外)        
+
+2,950,000 人 +10,000
+
+134,036,003 回 +1,849,425
+
+
+不出意外的话明天是爱朝最后一天
+
+
+-----
+
+####  alcoholic1000  
+##### 3270#       发表于 2021-6-28 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51772672&amp;ptid=1972669" target="_blank">-みゆめ- 发表于 2021-6-28 21:18</a>
+
+不怎么关注，眼镜仔还活着吗</blockquote>
+前两天还跟哈哥哈弟一起去にじPEX比赛了，看了一下两人确实没怎么互动了...
+
+
+
+
+-----
+
+####  tiro_finale  
+##### 3271#       发表于 2021-6-28 21:55
+
+
+生日当天完成斩杀么，还挺有纪念意义的
+
+
+-----
+
+####  心垂万刃  
+##### 3272#       发表于 2021-6-28 21:57
+
+
+6.30应该最多齐平，7.1还差不多，也更有意义（<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 3273#       发表于 2021-6-28 22:02
+
+
+奶油妹马上两周年了，估计在谈合同了
+
+
+-----
+
+####  面具13  
+##### 3274#       发表于 2021-6-28 22:04
+
+
+鲨宝要是来个耐久上300w的直播，可能6月30就能到，不但粉丝自发宣传，还有冠军粉。
+
+
+-----
+
+####  IDIDIDID  
+##### 3275#       发表于 2021-6-28 22:06
+
+
+后天和大后天虹杏分别要治丧，希望白皮鲨鱼也读日本空气捏
+
+
+-----
+
+####  心垂万刃  
+##### 3276#       发表于 2021-6-28 22:22
+
+
+后天也是始皇帝寿辰，是不是也要始皇帝读空气啊？<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+                                                
