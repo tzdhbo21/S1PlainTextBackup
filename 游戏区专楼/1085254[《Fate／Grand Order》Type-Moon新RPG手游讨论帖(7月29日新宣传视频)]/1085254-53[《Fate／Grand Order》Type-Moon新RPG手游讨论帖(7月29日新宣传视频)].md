@@ -18077,3 +18077,34 @@ FGO已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face
 
 
                                                  
+
+-----
+
+####  rzxa  
+##### 79484#       发表于 2021-6-28 23:10
+
+
+dw产能是真低啊，今年比上年还拉，可能我玩游戏少，规划成这样子真没见过
+
+本来复活石期限是6月30日，后改到7月底，推测本来2.6是不分两段的
+
+尼禄衣服可以换后，现在活动又能获取，证明尼禄祭复刻不是预定里的
+
+事件簿不复刻可能是加了新东西，但产能赶不上，金钻头提前up了，要不就近期都没戏复刻
+
+
+-----
+
+####  alucardcz  
+##### 79485#       发表于 2021-6-28 23:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51773831&amp;ptid=1085254" target="_blank">rzxa 发表于 2021-6-28 23:10</a>
+
+dw产能是真低啊，今年比上年还拉，可能我玩游戏少，规划成这样子真没见过
+
+本来复活石期限是6月30日，后改到 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">尼禄祭毕竟2017年的东西 肯定是哪出问题了才掏出这活动来复课
+
+
+                                                 

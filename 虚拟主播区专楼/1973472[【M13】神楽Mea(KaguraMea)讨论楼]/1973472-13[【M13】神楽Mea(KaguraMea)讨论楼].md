@@ -4942,3 +4942,184 @@ PV不错
 
 
                                                
+
+-----
+
+####  Klience  
+##### 18480#       发表于 2021-6-28 22:23
+
+
+感觉还真有种大萌神的样子<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  肥到终点  
+##### 18481#       发表于 2021-6-28 22:24
+
+
+11.14循环播放了
+
+这首新歌我属实<img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18482#       发表于 2021-6-28 22:27
+
+
+<img src="https://img.saraba1st.com/forum/202106/28/222610mwed9ktb8bkenwbd.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (10.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-28 22:26 上传
+
+
+又是新的一年，希望咩咩和大家都能开开心心的<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18483#       发表于 2021-6-28 22:27
+
+
+那就今年100w吧，许个愿望
+
+
+-----
+
+####  路人庚  
+##### 18484#       发表于 2021-6-28 22:28
+
+
+7月除了bw还有联系谷子厂家等事情，如果8月2日也有肉猪预定的话那估计7月也要在deadline之前多费点时间赶工了（不过既然已经说了7月很忙，那看来8月2日也会有点肉猪了
+
+
+而且根据你咩姐之前一直以来轻周年庆、重生日会的做法，大概生日会的肉猪会比周年庆的大（奶
+
+
+-----
+
+####  T_Hb  
+##### 18485#       发表于 2021-6-28 22:29
+
+
+大的下次一定来<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 18486#       发表于 2021-6-28 22:30
+
+
+3周年拉了，4周年干回来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  甘栗No.007  
+##### 18487#       发表于 2021-6-28 22:36
+
+
+ 本帖最后由 甘栗No.007 于 2021-6-28 22:42 编辑 
+
+活着就好<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+syl，摸之前先把ptr八分音符给我交了
+
+
+-----
+
+####  呓亘  
+##### 18488#       发表于 2021-6-28 22:38
+
+
+生日等一个大的
+
+
+-----
+
+####  clvan_  
+##### 18489#       发表于 2021-6-28 22:40
+
+
+别等大的了，搞大的只会平常更摸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 18490#       发表于 2021-6-28 22:49
+
+
+这歌越听越上头，上瘾
+
+
+-----
+
+####  T_Hb  
+##### 18491#       发表于 2021-6-28 22:51
+
+
+确实越听越有味，反复好多遍了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  藤宮はすみ  
+##### 18492#       发表于 2021-6-28 22:56
+
+
+这歌的前面的几句听着有点失真，还有点噪音，不知道是不是错觉
+
+
+人声伴奏比这次好像还不错
+
+
+-----
+
+####  离心  
+##### 18493#       发表于 2021-6-28 23:01
+
+
+等个大的
+
+
+-----
+
+####  Dualist彩  
+##### 18494#       发表于 2021-6-28 23:05
+
+
+ 本帖最后由 Dualist彩 于 2021-6-28 23:07 编辑 
+
+混酱细节和动态一直8太行，我怀疑这货天天套模板调的，而且感觉你麻录的也有一点瑕疵，不然干声扣个混响扔上去都不至于这样<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  笋狐  
+##### 18495#       发表于 2021-6-28 23:10
+
+
+听着还行，可能是因为个人比起可爱风的捏声线更喜欢这种的
+
+
+-----
+
+####  Dualist彩  
+##### 18496#       发表于 2021-6-28 23:19
+
+
+把把人声被削到失真丢频，混子哥也算人才了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

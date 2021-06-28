@@ -4168,3 +4168,55 @@ ui4s已经9天没有新投稿了<img src="https://static.saraba1st.com/image/smi
 
 
                                                 
+
+-----
+
+####  winda  
+##### 3277#       发表于 2021-6-28 22:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">roha这边5w人杂谈提到三期生一周年近了，有新衣服
+
+
+-----
+
+####  free  
+##### 3278#       发表于 2021-6-28 23:05
+
+
+[https://www.youtube.com/watch?v=qJugJKt6m-s](https://www.youtube.com/watch?v=qJugJKt6m-s)
+
+【歌ってみた】Gimme×Gimme - 八王子P × Giga covered by 存流
+
+
+裸春的新人
+
+
+-----
+
+####  takitaki  
+##### 3279#       发表于 2021-6-28 23:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">个人还是希望老爱先破300w至少走得体面点
+
+
+-----
+
+####  IDIDIDID  
+##### 3280#       发表于 2021-6-28 23:16
+
+
+那啥，2434 3D小剧场说没还真就没了啊
+
+
+-----
+
+####  OldGlory  
+##### 3281#       发表于 2021-6-28 23:20
+
+
+300w肯定来不及了，撑过6月吧。
+
+
+                                                 
