@@ -2481,3 +2481,224 @@ AV还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" re
 
 
                                                 
+
+-----
+
+####  Klience  
+##### 18227#       发表于 2021-6-28 13:25
+
+
+我拿手机看的不是很清楚 刚才绿熊是不是对着咩打了一梭子<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18228#       发表于 2021-6-28 13:25
+
+
+怎么不给自己打血啊哈批
+
+
+-----
+
+####  T_Hb  
+##### 18229#       发表于 2021-6-28 13:28
+
+
+是咩先被扫了，然后兰太郎射敌人吧
+
+
+-----
+
+####  Klience  
+##### 18230#       发表于 2021-6-28 13:29
+
+
+我曹 绿熊都500级了 这人打了多久了啊<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18231#       发表于 2021-6-28 13:30
+
+
+不是 就之前绿熊对着猎犬打了一梭子 结果不掉甲不掉血 我没有带耳机听所以没听到对话
+
+
+-----
+
+####  T_Hb  
+##### 18232#       发表于 2021-6-28 13:31
+
+
+不重要<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">图一乐，兰太郎天天和朋友一起打
+
+
+-----
+
+####  Klience  
+##### 18233#       发表于 2021-6-28 13:34
+
+
+这运气还行 直接掉了两个紫甲<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18234#       发表于 2021-6-28 13:37
+
+
+所以这人是在哪里直播的，现在还打晚上回的来？
+
+还是根本没回去？
+
+
+-----
+
+####  时间在我手中  
+##### 18235#       发表于 2021-6-28 13:38
+
+
+你是不是傻，她早上就回到自己直播的地方了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18236#       发表于 2021-6-28 13:39
+
+
+ 本帖最后由 2014720 于 2021-6-28 13:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">有说？
+
+
+艹啥时说的
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18237#       发表于 2021-6-28 13:39
+
+
+ 本帖最后由 T_Hb 于 2021-6-28 13:41 编辑 
+
+早上吃完早饭 带着午饭就回了，大清早的fleet
+
+
+-----
+
+####  Klience  
+##### 18238#       发表于 2021-6-28 13:45
+
+
+绿熊感觉打的还行啊 不愧是等级500级的女人<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 18239#       发表于 2021-6-28 13:48
+
+
+吃鸡了草
+
+
+-----
+
+####  格林卡罗尔  
+##### 18240#       发表于 2021-6-28 13:48
+
+
+吃鸡了居然
+
+damege691
+
+
+
+
+-----
+
+####  Klience  
+##### 18241#       发表于 2021-6-28 13:49
+
+
+691 987 路人靠谱<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 18242#       发表于 2021-6-28 13:52
+
+
+不能看，求repo咩咩技术<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+syl开台了吗
+
+
+-----
+
+####  时间在我手中  
+##### 18243#       发表于 2021-6-28 13:52
+
+
+竟然吃鸡了，这路人牛逼啊
+
+
+-----
+
+####  T_Hb  
+##### 18244#       发表于 2021-6-28 13:52
+
+
+ 本帖最后由 T_Hb 于 2021-6-28 13:55 编辑 
+
+没有开台，保护观众血压，好咩
+
+
+-----
+
+####  Klience  
+##### 18245#       发表于 2021-6-28 13:52
+
+
+ 本帖最后由 Klience 于 2021-6-28 13:53 编辑 
+
+咩咩技术啊 打一局伤害691你就知道她是什么技术了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 也不对 干架干的少伤害也会低
+
+
+-----
+
+####  MrHPQ  
+##### 18246#       发表于 2021-6-28 13:54
+
+
+约等于kd7.0？咩皮特是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18247#       发表于 2021-6-28 13:54
+
+
+光速下一把 这个时候就展示了猎犬的性质 跳伞 落地 重伤倒地<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18248#       发表于 2021-6-28 13:58
+
+
+日了，梯子不知道怎么炸了，想摸鱼都不能<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+                                                
