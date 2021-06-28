@@ -17618,3 +17618,180 @@ MC大概是因为不是正式页面所以懒得更准确值了，但是MC解包�
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79441#       发表于 2021-6-28 16:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51769583&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-28 16:19</a>
+狩猎本啊 等着101010呢</blockquote>
+羡慕有qp点技能的萌新，我已经在等着无限池了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79442#       发表于 2021-6-28 16:38
+
+
+你楼是不是又开始卡楼了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79443#       发表于 2021-6-28 16:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51769694&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-28 16:27</a>
+羡慕有qp点技能的萌新，我已经在等着无限池了</blockquote>
+我是等新英灵，什么东西都用不去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79444#       发表于 2021-6-28 16:48
+
+
+再奶一下事件簿，真的不会卡最后2粥周三才开啊
+
+
+-----
+
+####  alucardcz  
+##### 79445#       发表于 2021-6-28 16:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51769694&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-28 16:27</a>
+
+羡慕有qp点技能的萌新，我已经在等着无限池了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 我平时体力都清的钱本啊
+
+
+-----
+
+####  里村紅葉  
+##### 79446#       发表于 2021-6-28 17:05
+
+
+结果更新了封神榜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79447#       发表于 2021-6-28 17:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51770156&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-6-28 17:05</a>
+
+结果更新了封神榜</blockquote>
+啥 有事发生了啊  （更新了复课公告 尼禄祭 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  仰望神的括约肌  
+##### 79448#       发表于 2021-6-28 17:08
+
+
+尼禄祭艹<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79449#       发表于 2021-6-28 17:09
+
+
+FGO已经黔驴技穷了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  areklose  
+##### 79450#       发表于 2021-6-28 17:12
+
+
+<blockquote>exiaexa 发表于 2021-6-28 16:27
+羡慕有qp点技能的萌新，我已经在等着无限池了</blockquote>
+来了，你点的无限池
+
+
+-----
+
+####  khxooo  
+##### 79451#       发表于 2021-6-28 17:14
+
+
+????????<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79452#       发表于 2021-6-28 17:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说为什么复课一个2017年的东西  真的是黔驴技穷了吗
+
+
+-----
+
+####  白夜羽  
+##### 79453#       发表于 2021-6-28 17:16
+
+
+妇科父妇科，妇科何其多<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  仰望神的括约肌  
+##### 79454#       发表于 2021-6-28 17:17
+
+
+这不就是大家期待的奥运会联动么<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79455#       发表于 2021-6-28 17:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51770202&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-6-28 17:08</a>
+
+啥 有事发生了啊  （更新了复课公告 尼禄祭</blockquote>
+怎么发公告还能延迟的（
+
+
+-----
+
+####  areklose  
+##### 79456#       发表于 2021-6-28 17:20
+
+
+而且是真无限，不限池数
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79457#       发表于 2021-6-28 17:27
+
+
+灰，锁链，井盖，勋章，书页
+偏偏没有我缺的骨头
+商店搬完就自回体力刷<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">吧
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

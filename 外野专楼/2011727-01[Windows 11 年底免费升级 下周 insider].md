@@ -3529,3 +3529,20 @@ OEM早就强制UEFI加TPM 2.0了，告诉你们干嘛呢
 
 
                                                  
+
+-----
+
+####  V5Style  
+##### 308#       发表于 2021-6-28 16:57
+
+
+ 本帖最后由 V5Style 于 2021-6-28 17:01 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51767434&amp;ptid=2011727" target="_blank">pigbayspy 发表于 2021-6-28 13:12</a>
+
+啥时候推送升级？</blockquote>
+有说今天晚上就推送的，也有说按照以往Dev发布惯例到周四才会推送的。
+
+西雅图时间现在已经是28号了，可能那边白天才会更新？
+
+
+                                                 
