@@ -3917,3 +3917,222 @@ win7到win10好歹还给了选项的
 
 
                                                 
+
+-----
+
+####  Litccc  
+##### 339#       发表于 2021-6-29 12:14
+
+
+自动更新到75%直接卡死，重启电脑也一样<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Geminize  
+##### 340#       发表于 2021-6-29 12:17
+
+
+iso
+[https://pan.baidu.com/s/1uil1FkMy0tP_er_X3nY_Ww](https://pan.baidu.com/s/1uil1FkMy0tP_er_X3nY_Ww)
+
+
+mlss
+
+
+-----
+
+####  流畅无阻  
+##### 341#       发表于 2021-6-29 12:37
+
+
+听说右键没有刷新选项了？
+
+—— 来自 meizu 16s Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  SICP  
+##### 342#       发表于 2021-6-29 12:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51778863&amp;ptid=2011727" target="_blank">流畅无阻 发表于 2021-6-29 12:37</a>
+听说右键没有刷新选项了？
+
+—— 来自 meizu 16s Pro, Android 9上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+右键 -&gt; 更多选项 -&gt; 弹出老菜单 -&gt; 刷新
+
+
+-----
+
+####  Litccc  
+##### 343#       发表于 2021-6-29 13:08
+
+
+ 本帖最后由 Litccc 于 2021-6-29 13:20 编辑 
+
+这任务栏能不能调窄一点，占用的空间太多了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+----------------------------------
+
+
+找到了
+
+
+外媒 Windows Lastest 通过深入挖掘，发现在 Windows 11 系统中任务栏还有大、中、小三种不同的尺寸。
+
+
+其中中号是任务栏的默认设置，在桌面和平板电脑之间进行了平衡。而大号则适用于平板设备，小号则带来更紧凑的外观。目前，如果你想改变任务栏的大小，你需要通过以下步骤修改“TaskbarSi”值。
+
+
+1. 打开注册表编辑器，导航到以下路径。Regedit
+
+
+2. HKEY_CURRENT_USER\Software\Microsoft\ Windows\CurrentVersion\Explorer\Advanced\
+
+
+3. 创建一个名为 "TaskbarSi"的新 DWORD 条目。改变DWORD值来修改任务栏的大小。
+
+
+     0 = 小
+
+
+     1 = 中
+
+
+     2 = 大
+
+
+4.关闭注册表编辑器，并重新启动Windows资源管理器以查看变化。
+
+----------------------
+
+
+试了一下小号太小，大号太大，还是得用默认的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dragrass  
+##### 344#       发表于 2021-6-29 13:19
+
+
+桌面右键刷新没了，有办法调出来吗？
+
+<img src="https://img.saraba1st.com/forum/202106/29/131943o0pap6kqp1801toz.png" referrerpolicy="no-referrer">
+
+
+<strong>Untitled.png</strong> (29.03 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 13:19 上传
+
+
+-----
+
+####  distrowatch  
+##### 345#       发表于 2021-6-29 13:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779349&amp;ptid=2011727" target="_blank">dragrass 发表于 2021-6-29 13:19</a>
+
+桌面右键刷新没了，有办法调出来吗？</blockquote>
+show more options就是老的菜单
+
+
+-----
+
+####  distrowatch  
+##### 346#       发表于 2021-6-29 13:24
+
+
+微软吹了半天ARM64EC的OFFICE结果没推送，升了beta channel的2107后还是x86模拟
+
+
+-----
+
+####  chaoliu  
+##### 347#       发表于 2021-6-29 13:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51778616&amp;ptid=2011727" target="_blank">Geminize 发表于 2021-6-29 12:17</a>
+iso
+
+https://pan.baidu.com/s/1uil1FkMy0tP_er_X3nY_Ww</blockquote>
+这个iso是可以直接灌吗<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+-----
+
+####  dragrass  
+##### 348#       发表于 2021-6-29 13:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779384&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-29 13:22</a>
+
+show more options就是老的菜单</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">所以要两部了
+
+
+-----
+
+####  dragrass  
+##### 349#       发表于 2021-6-29 13:36
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/133512dn613wxnvzxxx7nw.png" referrerpolicy="no-referrer">
+
+
+<strong>Untitled.png</strong> (5.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 13:35 上传
+
+
+这下面打蓝色线的文本框真的梦回Material Design
+
+
+-----
+
+####  dragrass  
+##### 350#       发表于 2021-6-29 13:40
+
+
+这设置界面显示BUG不要太多
+
+
+很多开关按钮开着时不显示，关闭才有显示
+
+
+这是BUG还是设计就是这样啊
+
+
+-----
+
+####  尼特geek  
+##### 351#       发表于 2021-6-29 13:44
+
+
+这设置图标什么的，怎么一股谷歌味。
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  塔奇克马  
+##### 352#       发表于 2021-6-29 13:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51777511&amp;ptid=2011727" target="_blank">404489039 发表于 2021-6-29 11:03</a>
+
+好像默认开始bitlocker</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">默认bitlocker?能关吗?以后不会强制吧?
+
+
+                                                 

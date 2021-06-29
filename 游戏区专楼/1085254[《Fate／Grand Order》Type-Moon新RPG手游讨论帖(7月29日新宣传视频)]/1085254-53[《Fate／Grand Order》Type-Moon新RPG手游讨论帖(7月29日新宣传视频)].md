@@ -18159,3 +18159,14 @@ dw产能是真低啊，今年比上年还拉，可能我玩游戏少，规划成
 
 
                                                  
+
+-----
+
+####  johnkamsar  
+##### 79490#       发表于 2021-6-29 12:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">日服只有一张满破，国服倒是两张满破保留了.....日哦
+
+
+                                                 

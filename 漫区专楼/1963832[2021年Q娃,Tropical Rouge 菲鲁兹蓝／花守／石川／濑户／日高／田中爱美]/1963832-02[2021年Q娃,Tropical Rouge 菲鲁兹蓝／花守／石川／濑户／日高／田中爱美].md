@@ -3873,3 +3873,17 @@ q娃如果是特写的话基本都是平板，但无意间也会有作画把胸�
 
 
                                                  
+
+-----
+
+####  lydia5989  
+##### 1791#       发表于 2021-6-29 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51772545&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-6-28 21:06</a>
+
+话说罗拉身材也是微妙地有一点，不是平板</blockquote>
+从沙雕回特写看。。还是挺有料的。。但变身后直接降维了（去年女人和佳从第一集特写看也是有的。。然后就没然后了），新生代就剩拥抱三人组有胸部阴影了
+
+
+                                                 
