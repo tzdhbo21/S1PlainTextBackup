@@ -4940,3 +4940,50 @@ Windows 11任务栏时钟不能通过注册表修改成精确到秒了。<img sr
 
 
                                                  
+
+-----
+
+####  bestwood  
+##### 412#       发表于 2021-6-30 01:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786907&amp;ptid=2011727" target="_blank">pigbayspy 发表于 2021-6-30 00:50</a>
+右边栏没了好不喜欢，以前可以很方便的点右边回桌面</blockquote>
+时间右边有一个小竖杠，点那里<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bestwood  
+##### 413#       发表于 2021-6-30 01:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786990&amp;ptid=2011727" target="_blank">再买自检星剁手 发表于 2021-6-30 01:00</a>
+显示桌面的按钮怎么变小了，不能无脑右下角返回桌面了</blockquote>
+win10的显示桌面按钮和win7比就已经算是不能随心所欲点了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  snsn  
+##### 414#       发表于 2021-6-30 01:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786588&amp;ptid=2011727" target="_blank">dragrass 发表于 2021-6-30 00:13</a>
+
+现在浅色UI由bug，改成暗色UI就可以了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/30/011918f991q4rwbbiqqgln.png" referrerpolicy="no-referrer">
+
+
+<strong>截屏2021-06-30 01.18.54.png</strong> (58.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 01:19 上传
+
+
+我看了下，浅色主题也没有问题，应该是其它原因吧。
+
+
+                                                 
