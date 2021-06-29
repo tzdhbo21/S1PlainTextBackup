@@ -4378,3 +4378,92 @@ dev51是不是装了中文包还是一大堆鸟文
 
 
                                                 
+
+-----
+
+####  Nanachi  
+##### 373#       发表于 2021-6-29 15:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">当时更新win10正式版都一堆bug，这个insider的preview版怎么还有那么多人用的
+
+
+-----
+
+####  张元英  
+##### 374#       发表于 2021-6-29 15:05
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/150501dfhw2wejuytutmy2.png" referrerpolicy="no-referrer">
+
+
+<strong>微信截图_20210629150428.png</strong> (72.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 15:05 上传
+
+
+为啥装好了又告诉我不满足要求
+
+
+-----
+
+####  bigice  
+##### 375#       发表于 2021-6-29 15:06
+
+
+在 M1 Mac 上运行 Windows 11 <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+【全网最快！在M1 Mac上运行Windows 11成功，令人意外的流畅度-哔哩哔哩】https://b23.tv/aqRoMN
+
+
+-----
+
+####  猫不萌  
+##### 376#       发表于 2021-6-29 15:23
+
+
+用镜像安装之后要先加入dev更新之后才能正常
+
+
+-----
+
+####  hypnossz86  
+##### 377#       发表于 2021-6-29 15:36
+
+
+话说还能从win7直升么
+可以的话win7升一个win10升一个
+我就拥有两套11啦<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Geminize  
+##### 378#       发表于 2021-6-29 15:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51780977&amp;ptid=2011727" target="_blank">hypnossz86 发表于 2021-6-29 15:36</a>
+
+话说还能从win7直升么
+
+可以的话win7升一个win10升一个
+
+我就拥有两套11啦</blockquote>
+机器能通过setup检测就能
+
+
+-----
+
+####  masakahaha  
+##### 379#       发表于 2021-6-29 15:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51780545&amp;ptid=2011727" target="_blank">张元英 发表于 2021-6-29 15:05</a>
+
+为啥装好了又告诉我不满足要求</blockquote>
+dev渠道大家都可以装，但是不满足要求的机器，正式版发布后会回退到windows10
+
+
+                                                 
