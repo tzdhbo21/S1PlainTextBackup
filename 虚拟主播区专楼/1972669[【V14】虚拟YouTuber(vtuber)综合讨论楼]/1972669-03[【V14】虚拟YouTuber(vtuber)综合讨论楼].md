@@ -4616,3 +4616,38 @@ oreapo在双人成行<img src="https://static.saraba1st.com/image/smiley/face201
 
 
                                                  
+
+-----
+
+####  妹控使徒  
+##### 3311#       发表于 2021-6-29 23:44
+
+
+听讨论和一些情报   似乎它的毕业也比较急
+
+会限过2天就全删    一般录播留半年.
+
+
+不知道是真发生了什么, 还是本体那边要有什么活动了.
+
+
+-----
+
+####  noHentai  
+##### 3312#       发表于 2021-6-30 00:01
+
+
+乍一看还以为又是和什么卡牌联动，仔细一看有吓到<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/a6073a985eaa37675563b7de1fdd5484/20210629_235948.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  二十一世纪末ayu  
+##### 3313#       发表于 2021-6-30 00:43
+
+
+0这单听着好流行啊，万一hit了msm岂不是很尴尬<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

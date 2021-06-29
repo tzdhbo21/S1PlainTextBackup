@@ -4881,3 +4881,62 @@ Windows 11任务栏时钟不能通过注册表修改成精确到秒了。<img sr
 
 
                                                  
+
+-----
+
+####  aurraro  
+##### 407#       发表于 2021-6-30 00:04
+
+
+任务栏里面开的程序必合并？都不能改了？
+
+我记得以前还是能自己选啊
+
+
+-----
+
+####  bestwood  
+##### 408#       发表于 2021-6-30 00:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786482&amp;ptid=2011727" target="_blank">aurraro 发表于 2021-6-30 00:04</a>
+任务栏里面开的程序必合并？都不能改了？
+
+我记得以前还是能自己选啊</blockquote>
+应该是还没做出来。这次的任务栏貌似回炉重炼了，好多老功能都暂时没了。
+
+
+-----
+
+####  dragrass  
+##### 409#       发表于 2021-6-30 00:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786042&amp;ptid=2011727" target="_blank">闻道沐心 发表于 2021-6-29 23:22</a>
+
+点了根本没反应我也想看到您这个界面
+
+
+—— 来自 realme RMX1931, Android 10上的 S1Next- ...</blockquote>
+现在浅色UI由bug，改成暗色UI就可以了
+
+
+-----
+
+####  pigbayspy  
+##### 410#       发表于 2021-6-30 00:50
+
+
+右边栏没了好不喜欢，以前可以很方便的点右边回桌面
+
+
+-----
+
+####  再买自检星剁手  
+##### 411#       发表于 2021-6-30 01:00
+
+
+显示桌面的按钮怎么变小了，不能无脑右下角返回桌面了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                 

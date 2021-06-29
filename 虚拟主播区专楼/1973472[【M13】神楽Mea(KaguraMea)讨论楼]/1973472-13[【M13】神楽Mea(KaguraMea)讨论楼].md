@@ -5354,3 +5354,291 @@ syl <img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referr
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 18517#       发表于 2021-6-29 23:47
+
+
+ 本帖最后由 路人庚 于 2021-6-30 00:12 编辑 
+
+来点返图
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234412pbmk2db7mx4p70xz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (481.96 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/king_jkschu/status/1409864628373385223](https://mobile.twitter.com/king_jkschu/status/1409864628373385223)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234412a9bmtc22tc5cnnkf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (533.68 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/Zx4tH ... 1409859096157646854](https://mobile.twitter.com/Zx4tHCWselpRCIj/status/1409859096157646854)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234413wmcaccfbiboyz1gz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (504.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/Black ... 1409846850945916928](https://mobile.twitter.com/BlacksantAnzu/status/1409846850945916928)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234413hti0f7g12tbxx9i0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>4.jpg</strong> (293.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/peerless/status/1409835857746350088](https://mobile.twitter.com/peerless/status/1409835857746350088)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234413tfzmuy9ssjttznp1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5.jpg</strong> (522.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/rawtaro825/status/1409829547814445059](https://mobile.twitter.com/rawtaro825/status/1409829547814445059)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234414ahv9l99jv8j62ybh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6.jpg</strong> (650.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/kazuto616/status/1409816907100823555](https://mobile.twitter.com/kazuto616/status/1409816907100823555)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234414s992z91mszjz8918.jpg" referrerpolicy="no-referrer">
+
+
+<strong>7.jpg</strong> (81.49 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/awawa39_/status/1409807707108872192](https://mobile.twitter.com/awawa39_/status/1409807707108872192)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234415hwx3ipipppfwl7zw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>8.jpg</strong> (298.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/yukiaki042/status/1409797555437772807](https://mobile.twitter.com/yukiaki042/status/1409797555437772807)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234415vbgullgipvwkvq2i.jpg" referrerpolicy="no-referrer">
+
+
+<strong>9.jpg</strong> (515.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/mutuki_game/status/1409768500806123523](https://mobile.twitter.com/mutuki_game/status/1409768500806123523)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234415qrhlzzzp6eaqekki.jpg" referrerpolicy="no-referrer">
+
+
+<strong>10.jpg</strong> (539.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/Pikur ... 1409747223626190850](https://mobile.twitter.com/Pikurusu_58916/status/1409747223626190850)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234416fumeesff8ezffams.jpg" referrerpolicy="no-referrer">
+
+
+<strong>11.jpg</strong> (155.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/_neko ... 1409731930120024065](https://mobile.twitter.com/_nekono_mimi_/status/1409731930120024065)
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234416u6m4z7ezzmhrg58y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>12.jpg</strong> (431.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/234416o5ou5rf6fz6dru33.jpg" referrerpolicy="no-referrer">
+
+
+<strong>13.jpg</strong> (540.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:44 上传
+
+
+[https://mobile.twitter.com/R1046863666/status/1409717344192978948](https://mobile.twitter.com/R1046863666/status/1409717344192978948)
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/001152xsjbll2jlsicq0sl.jpg" referrerpolicy="no-referrer">
+
+
+<strong>a2.jpg</strong> (520.45 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 00:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/001153nfvu0ghoh1813g1x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>a1.jpg</strong> (606.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 00:11 上传
+
+
+[https://mobile.twitter.com/kaityou_/status/1409903304323203080](https://mobile.twitter.com/kaityou_/status/1409903304323203080)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|我酸了|
+| Cushaw| + 1|好评加鹅|
+| 2014720| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  路人庚  
+##### 18518#       发表于 2021-6-29 23:54
+
+
+ 本帖最后由 路人庚 于 2021-6-29 23:55 编辑 
+
+昨天看到极光服周边的时候还没意识到，现在看到返图了才想到，叔叔这是把极光服完全送给阿咩了？还是参与到了这个周边的企划中了？还是只是允许你咩出周边然后顺便从中抽成呢？
+
+
+顺便，军服3D皮相比初版果然还是有不少修改的，这个经典款估计是已经绝版了（
+
+<img src="https://img.saraba1st.com/forum/202106/29/235402yz2f54uzsst52yyy.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (83.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:54 上传
+
+
+-----
+
+####  T_Hb  
+##### 18519#       发表于 2021-6-29 23:57
+
+
+ 本帖最后由 T_Hb 于 2021-6-30 00:24 编辑 
+
+yysy，我都不知道哪年才能再看到3D
+
+不瞎想了
+
+
+-----
+
+####  专业划水人员  
+##### 18520#       发表于 2021-6-30 00:05
+
+
+我好酸！！！！！！！
+
+
+-----
+
+####  2014720  
+##### 18521#       发表于 2021-6-30 00:07
+
+
+ 本帖最后由 2014720 于 2021-6-30 00:09 编辑 
+
+极光不是momo设计的，版权就不猜了，但真能拿出来估计也下次演唱会之类的了，我猜今年估计是看不见了
+
+cnm的我的初版ddd，cnm<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+syl来点节目效果<img src="https://p.sda1.dev/2/d95c1cedbb879f98b334c852e0e3269e/IMG_CMP_143353216.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18522#       发表于 2021-6-30 00:43
+
+
+关注了多井pro啊，深耕雀魂可能性微存？<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+                                                 
