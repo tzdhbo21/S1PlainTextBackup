@@ -8858,3 +8858,72 @@ vivy是非因果非线性时变系统（逃
 
 
                                                  
+
+-----
+
+####  RainbowSealife  
+##### 2176#       发表于 2021-6-30 01:43
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/004329ca3n7kk7s3kuzjqy.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (135.99 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 00:43 上传
+
+
+补完了，+0，看完就删。鸡肋，食之无味，弃之可惜。回顾整个故事，发现味同嚼蜡。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+本质就一卖歌片，WIT STUDIO不遗余力，制作全程在线（毕竟制作委员会唯二的成员，可不敢摸🐟）脚本拉了胯。Vivy到底讲了个什么？到最后才发现大概可能就是一个缺乏新意的AI自我觉醒与成长的故事？剧本完全撑不起来wit的制作，前边几个单元剧挺无趣的，姐妹情深、人机虐恋、AI自（xun）杀（qing）其实与主线故事关联不太大，刻意的煽情，没有必要的BE，无法令人动容，现在来看就是吸满水的海绵，实际上没什么重量。
+
+Vivy中提出的赋予AI人权完全是伪命题，AI自诞生之初就被赋予使命，对于人类而言是被开发出来的工具，AI与人类的关系其实就是被剥削者和剥削者的关系，薇薇工作了60余年，最后也没安心养老，反倒是直接送到了博物馆继续发挥余热，围在光幕里供人观赏，像动物园笼子里的动物一样。
+
+看前边楼里提到这片刻意削弱了科幻要素，然而并没有做到避重就轻，无论是穿越时空还是AI觉醒都脱离不了本作的核心要素——科幻这一点。时空穿越没那味，只是生硬地将三个单元剧强行连到一块，前因后果三两句台词糊弄一下就行了，薇薇和松本都折腾如此大的动静，结果完全没有那种因为蝴蝶效应而带来始料未及的突发变化，缺乏戏剧性，所有后续故事仿佛按部就班地发展，穿越了个寂寞，做的都是无用功。看完后才发现制作组貌似混淆了Artificial Intelligence和Robot的概念，所以为什么不一开始就整个机器人三定律呢？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/30/011535uila3ad2asdtmsi4.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (97.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 01:15 上传
+
+
+角色塑造也没什么好说的，更何况中间薇薇直接失忆了一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+总而言之，还没看的建议直接看13.5话的总集篇，当个MV看就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/30/013323feeze7z3yrqq67qu.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (209.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 01:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/014311pff0cc50c1czc6ii.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (153.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 01:43 上传
+
+
+-----
+
+####  千本blur  
+##### 2177#       发表于 2021-6-30 02:35
+
+
+vivy治好了我的长月达**tsd，但没完全治好。
+
+
+                                                 

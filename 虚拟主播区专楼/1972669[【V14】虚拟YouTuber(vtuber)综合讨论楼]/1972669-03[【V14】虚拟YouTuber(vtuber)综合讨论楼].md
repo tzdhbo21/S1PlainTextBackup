@@ -4662,3 +4662,50 @@ oreapo在双人成行<img src="https://static.saraba1st.com/image/smiley/face201
 
 
                                                  
+
+-----
+
+####  Ketestrait  
+##### 3315#       发表于 2021-6-30 01:57
+
+
+最后念了父原和姐原的来信，结束了<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 3316#       发表于 2021-6-30 02:13
+
+
+ 本帖最后由 SuntoryNomu 于 2021-6-30 02:17 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/021337yawvr37u649wlz6y.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E5DJ7SWUUAIGwMx.jpg</strong> (542.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 02:13 上传
+
+
+[https://twitter.com/kuma_daigorou/status/1409848713028067328](https://twitter.com/kuma_daigorou/status/1409848713028067328)
+
+
+补一张图
+
+虽然毕业无可避免，但也算是圆满了。
+
+<img src="https://img.saraba1st.com/forum/202106/30/021612how6atcwx0oxwr6z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E5DJ_tfVkAcSU9T.jpg</strong> (205.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 02:16 上传
+
+
+                                                 
