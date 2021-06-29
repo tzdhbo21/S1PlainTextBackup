@@ -4280,3 +4280,16 @@ ui4s已经9天没有新投稿了<img src="https://static.saraba1st.com/image/smi
 
 
                                                  
+
+-----
+
+####  空集  
+##### 3286#       发表于 2021-6-29 09:52
+
+
+本土王者x  始皇帝其实是最先把欧美也一起吃到的啊，，纯靠本土怎么做得到那么高。真要说的话老爱一开始就做这种表率为啥后来n代都没把老爱开启认知大批欧美订阅转化来是个v圈谜题。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -3858,3 +3858,18 @@ MKTN那泳装是啥样来的？
 
 
                                                  
+
+-----
+
+####  红焖菠菜  
+##### 1790#       发表于 2021-6-29 09:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51772545&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-6-28 21:06</a>
+话说罗拉身材也是微妙地有一点，不是平板</blockquote>
+q娃如果是特写的话基本都是平板，但无意间也会有作画把胸画出来<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -3704,3 +3704,49 @@ You will get to try many, but not all, of the new features we showed last week i
 
 
                                                  
+
+-----
+
+####  天气姐姐  
+##### 321#       发表于 2021-6-29 09:42
+
+
+笔记本是家庭版win10，设置-更新-windows预览者计划，显示的是空白怎么弄呢
+
+—— 来自 vivo V1981A, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  h20020901  
+##### 322#       发表于 2021-6-29 09:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51776596&amp;ptid=2011727" target="_blank">天气姐姐 发表于 2021-6-29 09:42</a>
+
+笔记本是家庭版win10，设置-更新-windows预览者计划，显示的是空白怎么弄呢
+
+
+—— 来自 vivo V1981A, Andro ...</blockquote>
+[https://www.bilibili.com/read/cv10925326?ivk_sa=1024320u](https://www.bilibili.com/read/cv10925326?ivk_sa=1024320u)
+
+
+-----
+
+####  h20020901  
+##### 323#       发表于 2021-6-29 09:56
+
+
+我也遇到了问题，在安装Win11的过程中，提示我“你需要关注的事项” 但这个页面什么也没有，等了半天，右下角的刷新点了也没用，有遇到一样状况的吗，怎么解决<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/29/095644wuqus4rj4q0zrizb.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210629095538.png</strong> (26.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 09:56 上传
+
+
+                                                 

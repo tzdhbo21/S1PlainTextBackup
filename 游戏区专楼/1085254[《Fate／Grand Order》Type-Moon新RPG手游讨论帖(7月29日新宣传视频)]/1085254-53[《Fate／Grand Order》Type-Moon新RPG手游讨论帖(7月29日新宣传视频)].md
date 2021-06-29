@@ -18136,3 +18136,26 @@ dw产能是真低啊，今年比上年还拉，可能我玩游戏少，规划成
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79488#       发表于 2021-6-29 09:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新本是新掉落吗。我看以前的本掉落真的没啥兴趣刷啊
+
+
+-----
+
+####  UNISONIA  
+##### 79489#       发表于 2021-6-29 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51776521&amp;ptid=1085254" target="_blank">areklose 发表于 2021-6-29 09:37</a>
+
+新本是新掉落吗。我看以前的本掉落真的没啥兴趣刷啊</blockquote>
+按照之前生放说法新材料掉落也没可能是别的活动了吧，大概就是这次新增的90+了
+
+
+                                                 
