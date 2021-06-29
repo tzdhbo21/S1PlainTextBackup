@@ -4293,3 +4293,27 @@ ui4s已经9天没有新投稿了<img src="https://static.saraba1st.com/image/smi
 
 
                                                  
+
+-----
+
+####  渡鸦骑士  
+##### 3287#       发表于 2021-6-29 10:04
+
+
+我记得爬楼的时候有说过，老爱的欧美订阅有40%来着<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tiro_finale  
+##### 3288#       发表于 2021-6-29 10:09
+
+
+老爱海外路线当然有学的，小白和阿满都尝试过，反正记得有阵子在吹阿满北美最强...
+
+最后车轱辘下的结论是海外进出难度高，海外还是老爱专属自留地
+
+现在海外的真神来了
+
+
+                                                 

@@ -3750,3 +3750,70 @@ You will get to try many, but not all, of the new features we showed last week i
 
 
                                                  
+
+-----
+
+####  虎纹鲨鱼鱼鱼  
+##### 324#       发表于 2021-6-29 10:18
+
+
+目前这个版本能安装apk了吗
+
+
+-----
+
+####  V5Style  
+##### 325#       发表于 2021-6-29 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51776975&amp;ptid=2011727" target="_blank">虎纹鲨鱼鱼鱼 发表于 2021-6-29 10:18</a>
+目前这个版本能安装apk了吗</blockquote>
+不能
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  脸宽  
+##### 326#       发表于 2021-6-29 10:35
+
+
+就是想体验下安装apk，结果没有<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Vancion  
+##### 327#       发表于 2021-6-29 10:39
+
+
+ 本帖最后由 Vancion 于 2021-6-29 10:40 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51776756&amp;ptid=2011727" target="_blank">h20020901 发表于 2021-6-29 09:56</a>
+
+我也遇到了问题，在安装Win11的过程中，提示我“你需要关注的事项” 但这个页面什么也没有，等了半天，右下 ...</blockquote>
+我碰到了，删了虚拟机软件就行（雷电）。可能基于Virtualbox的软件都会导致这个bug。
+
+
+-----
+
+####  无动于衷  
+##### 328#       发表于 2021-6-29 10:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51767029&amp;ptid=2011727" target="_blank">patema 发表于 2021-6-28 12:36</a>
+
+这波是直接让我这个初代zen用户阵亡了呢，看来大家都不升级电脑上游开始生气了捏 ...</blockquote>
+我就等着大家都不升级逼迫巨硬下调标准
+
+
+-----
+
+####  404489039  
+##### 329#       发表于 2021-6-29 11:03
+
+
+好像默认开始bitlocker<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                 
