@@ -4467,3 +4467,78 @@ dev渠道大家都可以装，但是不满足要求的机器，正式版发布�
 
 
                                                  
+
+-----
+
+####  isszs  
+##### 380#       发表于 2021-6-29 15:59
+
+
+说好的VScode之类的App上微软商店呢？还没实装？
+<img src="https://istatic.net/01/2021-06-29_15.54.29.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  megamix  
+##### 381#       发表于 2021-6-29 16:04
+
+
+开始菜单这么弱智的，固定了好几个都没用，还有能不能不显示浏览历史<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  喵喵叫的猫  
+##### 382#       发表于 2021-6-29 16:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51781338&amp;ptid=2011727" target="_blank">megamix 发表于 2021-6-29 16:04</a>
+
+开始菜单这么弱智的，固定了好几个都没用，还有能不能不显示浏览历史 ...</blockquote>
+我猜估计是固定的满了你忘翻页了 右边几个圆点点一下或者滚轮滚一下
+
+
+-----
+
+####  dragrass  
+##### 383#       发表于 2021-6-29 16:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51781338&amp;ptid=2011727" target="_blank">megamix 发表于 2021-6-29 16:04</a>
+
+开始菜单这么弱智的，固定了好几个都没用，还有能不能不显示浏览历史 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">刚才就因为显示浏览历史，把截图发出去了，差点社死
+
+
+-----
+
+####  t222  
+##### 384#       发表于 2021-6-29 16:29
+
+
+坐等一年后的完整版
+
+
+-----
+
+####  dragrass  
+##### 385#       发表于 2021-6-29 16:34
+
+
+感觉这个更新比Win7-Win8，Win8.1-Win10都小
+
+
+更像是Win8-Win8.1级别的更新，现在我没碰到任何软件兼容问题，真的跟换了个主题一样
+
+
+-----
+
+####  distrowatch  
+##### 386#       发表于 2021-6-29 16:42
+
+
+8cx用win11反应好慢，这可是2019q3上市的产品，争点气啊a76
+
+
+                                                 
