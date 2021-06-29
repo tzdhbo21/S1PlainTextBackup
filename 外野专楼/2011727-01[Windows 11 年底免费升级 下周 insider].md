@@ -4987,3 +4987,17 @@ win10的显示桌面按钮和win7比就已经算是不能随心所欲点了<img 
 
 
                                                  
+
+-----
+
+####  pigbayspy  
+##### 415#       发表于 2021-6-30 07:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51787064&amp;ptid=2011727" target="_blank">bestwood 发表于 2021-6-30 01:12</a>
+
+时间右边有一个小竖杠，点那里</blockquote>
+这个跟以前比起来有点难用，以前只要无脑向右下角甩鼠标就好了
+
+
+                                                 
