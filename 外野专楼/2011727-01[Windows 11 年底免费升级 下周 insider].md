@@ -3652,3 +3652,55 @@ You will get to try many, but not all, of the new features we showed last week i
 
 
                                                  
+
+-----
+
+####  pigbayspy  
+##### 316#       发表于 2021-6-29 08:02
+
+
+切到 dev 渠道才有，下载中了
+
+
+-----
+
+####  wuzhou6058  
+##### 317#       发表于 2021-6-29 08:05
+
+
+我21h1到现在还是报0087371装不上，win11估计就更不用看了
+
+
+-----
+
+####  平井姨夫  
+##### 318#       发表于 2021-6-29 08:20
+
+
+找不到iso……<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凶手  
+##### 319#         楼主| 发表于 2021-6-29 08:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51775380&amp;ptid=2011727" target="_blank">Pettabuz 发表于 2021-6-29 06:18</a>
+好像比起泄漏版就是多了新的资源管理器和商店</blockquote>
+那俩咋样 store ui/ux 应该好很多了吧
+
+
+-----
+
+####  DTCPSS  
+##### 320#       发表于 2021-6-29 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51775731&amp;ptid=2011727" target="_blank">平井姨夫 发表于 2021-6-29 08:20</a>
+
+找不到iso……</blockquote>
+[https://mega.nz/file/jjwVxCKC#-V ... p1fHzbCZCUXhber-eOE](https://mega.nz/file/jjwVxCKC#-VLvecVS_pVJ42vWkToKVfiWp1fHzbCZCUXhber-eOE)
+
+
+                                                 
