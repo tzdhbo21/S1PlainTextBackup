@@ -13,6 +13,11 @@
 
 S1跨越年限的高楼纯文本归档 https://github.com/TomoeMami/S1PlainTextGeneral
 
+## 全文搜索方式：
+网页栏里在github后面加上1s，变成github1s.com，按下回车即可在网页版vscode中打开本repo，然后在左侧边栏点击第二个图标，即可进入搜索界面。
+
+本仓库的搜索界面：https://github1s.com/TomoeMami/S1PlainTextBackup
+
 ## 2021-01-08 增加GithubAction支持
 
 #### 触发方式
