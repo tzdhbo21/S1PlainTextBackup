@@ -4740,3 +4740,27 @@ https://insider.office.com/en-u ...</blockquote>
 
 
                                                  
+
+-----
+
+####  V5Style  
+##### 399#       发表于 2021-6-29 21:47
+
+
+Windows 11任务栏时钟不能通过注册表修改成精确到秒了。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  disrupt  
+##### 400#       发表于 2021-6-29 21:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51777709&amp;ptid=2011727" target="_blank">平井姨夫 发表于 2021-6-29 11:18</a>
+体验了一会儿回滚了，任务栏图标没法改成不合并，导致我工作上很多多窗口操作非常痛苦，这个不改没法升级… ...</blockquote>
+感谢分享，这也太弱智了吧。看来我不需要体验了，正式版不改的话也只有做遗老了
+
+— from OnePlus HD1907, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

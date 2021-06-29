@@ -4547,3 +4547,43 @@ oreapo在双人成行<img src="https://static.saraba1st.com/image/smiley/face201
 
 
                                                  
+
+-----
+
+####  poipanchao  
+##### 3305#       发表于 2021-6-29 20:49
+
+
+凛发的这个预告，是要跟露露跳泼妇吗？也可能只是翻唱
+还记得很久之前就期待露露跳一次泼妇的舞了
+没想到最后是这样实现…
+
+突然想起露露还欠了一个转转歌的投稿<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  TiHaru  
+##### 3306#       发表于 2021-6-29 21:01
+
+
+千怎么哭了
+
+
+-----
+
+####  IDIDIDID  
+##### 3307#       发表于 2021-6-29 21:31
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/213133pzmmzkyffchkvfvp.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #152 - 'Gawr Gura Ch. hololive-EN - YouTube&amp;#03.png</strong> (7.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 21:31 上传
+
+
+                                                 
