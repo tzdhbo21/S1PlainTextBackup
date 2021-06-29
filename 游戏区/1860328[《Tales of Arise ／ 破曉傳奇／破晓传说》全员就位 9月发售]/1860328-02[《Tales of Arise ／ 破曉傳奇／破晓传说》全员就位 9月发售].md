@@ -4190,3 +4190,32 @@ xbox国内本来就没啥人买实体（跨区便宜），想要xbox欧美版实
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1786#         楼主| 发表于 2021-6-29 22:20
+
+
+Tales of Arise Original Soundtrack (CD) 14首曲目列表：
+
+
+Tales of ARISE              Don't look back - Proceed
+
+Flame of Hope              Ice moon - Scar
+
+Follow your heart          Just go on
+
+Night &amp; Light                Paranoia
+
+Ferocious beast             Breakdown
+
+Floral ornament             Confession
+
+Freezing wind                Alphen
+
+
+来来，看名识曲了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
