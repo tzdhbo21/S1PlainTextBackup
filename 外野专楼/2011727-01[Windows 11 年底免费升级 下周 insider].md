@@ -4724,3 +4724,19 @@ win11更了，版本号+1。没全屏开始菜单太难受了
 
 
                                                  
+
+-----
+
+####  distrowatch  
+##### 398#       发表于 2021-6-29 19:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51783136&amp;ptid=2011727" target="_blank">V5Style 发表于 2021-6-29 18:24</a>
+
+理论上最近一次的更新已经推送了，可以按照官方博客文章重装一遍试试。
+
+https://insider.office.com/en-u ...</blockquote>
+博客是出来了但是没推送，现在还没有人装上过
+
+
+                                                 
