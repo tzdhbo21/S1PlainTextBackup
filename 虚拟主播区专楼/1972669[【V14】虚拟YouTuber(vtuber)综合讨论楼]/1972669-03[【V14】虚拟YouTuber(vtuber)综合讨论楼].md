@@ -4317,3 +4317,41 @@ ui4s已经9天没有新投稿了<img src="https://static.saraba1st.com/image/smi
 
 
                                                  
+
+-----
+
+####  Vneet  
+##### 3289#       发表于 2021-6-29 10:51
+
+
+本土居多的王者✘
+
+本土榜首的王者✔
+
+
+-----
+
+####  noHentai  
+##### 3290#       发表于 2021-6-29 11:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+【歌ってみた】君が生きてなくてよかった / covered by ヰ世界情緒
+[https://www.youtube.com/watch?v=Po8ouRPBLlo](https://www.youtube.com/watch?v=Po8ouRPBLlo)
+<img src="https://p.sda1.dev/2/0546ab87fcb6e6a376eeef06abec116a/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 3291#       发表于 2021-6-29 11:32
+
+
+配上MV，CIEL这歌一下就来感觉了。
+
+平尾隆之钦定的主题曲，刚出道就拿到可能的长期饭票，不错。
+[https://www.youtube.com/watch?v=KD14CW-j2sA](https://www.youtube.com/watch?v=KD14CW-j2sA)
+
+
+                                                 

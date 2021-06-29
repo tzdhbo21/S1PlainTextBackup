@@ -3817,3 +3817,103 @@ You will get to try many, but not all, of the new features we showed last week i
 
 
                                                  
+
+-----
+
+####  平井姨夫  
+##### 330#       发表于 2021-6-29 11:18
+
+
+体验了一会儿回滚了，任务栏图标没法改成不合并，导致我工作上很多多窗口操作非常痛苦，这个不改没法升级……
+
+
+
+
+-----
+
+####  Litccc  
+##### 331#       发表于 2021-6-29 11:34
+
+
+为啥没开tpm2.0 dev通道也推送了，不会安到一半告诉我不行吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  distrowatch  
+##### 332#       发表于 2021-6-29 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51777971&amp;ptid=2011727" target="_blank">Litccc 发表于 2021-6-29 11:34</a>
+
+为啥没开tpm2.0 dev通道也推送了，不会安到一半告诉我不行吧</blockquote>
+不会，已经是DEV的话就算不符合最低要求也可以用到正式版发布前，让你体验不让升
+
+
+-----
+
+####  xmcp  
+##### 333#       发表于 2021-6-29 11:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51777709&amp;ptid=2011727" target="_blank">平井姨夫 发表于 2021-6-29 11:18</a>
+体验了一会儿回滚了，任务栏图标没法改成不合并，导致我工作上很多多窗口操作非常痛苦，这个不改没法升级… ...</blockquote>
+微软这几年真是做迷糊了，任务栏那么长的宽度就显示几个图标，空出来一大片，选窗口还得多点一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+win7到win10好歹还给了选项的
+
+
+-----
+
+####  masakahaha  
+##### 334#       发表于 2021-6-29 11:38
+
+
+说好的android app在哪？换区也找不到啊<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  doink  
+##### 335#       发表于 2021-6-29 11:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51778047&amp;ptid=2011727" target="_blank">masakahaha 发表于 2021-6-29 11:38</a>
+
+说好的android app在哪？换区也找不到啊</blockquote>
+现在还没有呢<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  凶手  
+##### 336#         楼主| 发表于 2021-6-29 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51778031&amp;ptid=2011727" target="_blank">xmcp 发表于 2021-6-29 11:37</a>
+微软这几年真是做迷糊了，任务栏那么长的宽度就显示几个图标，空出来一大片，选窗口还得多点一下
+ ...</blockquote>
+这个问题有个三方app可以解 改成macos那样点一次就切换最近的那个窗口 但不知道11兼容性如何 叫7taskbar啥的
+
+
+-----
+
+####  masakahaha  
+##### 337#       发表于 2021-6-29 11:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51778091&amp;ptid=2011727" target="_blank">doink 发表于 2021-6-29 11:40</a>
+
+现在还没有呢</blockquote>
+又被巨硬给骗了<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Austaras  
+##### 338#       发表于 2021-6-29 11:50
+
+
+终于把那个傻逼高光砍掉了，好评
+
+
+                                                
