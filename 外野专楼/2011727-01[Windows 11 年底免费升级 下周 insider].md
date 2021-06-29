@@ -4764,3 +4764,120 @@ Windows 11任务栏时钟不能通过注册表修改成精确到秒了。<img sr
 
 
                                                  
+
+-----
+
+####  snsn  
+##### 401#       发表于 2021-6-29 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51783100&amp;ptid=2011727" target="_blank">SICP 发表于 2021-6-29 18:22</a>
+
+草死，你这个壁纸我刚想吐槽Mac来凑啥热闹</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/29/231710qngljykwrifklz8h.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>01086B2F-6980-4DE6-9D51-E48169E09B06_1_105_c.jpeg</strong> (153.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:17 上传
+
+
+因为就是M1 air上更新的啊<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+01086B2F-6980-4DE6-9D51-E48169E09B06_1_105_c.jpeg
+(153.39 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-29 23:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/231659sjinq96z4bz1ngg9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  闻道沐心  
+##### 402#       发表于 2021-6-29 23:18
+
+
+<img src="https://p.sda1.dev/2/712af5bf41131fa3824b715ec70ddc1f/IMG_CMP_1629421.jpeg" referrerpolicy="no-referrer">
+右下角音量网络时间这些根本点不开，大家有什么好办法吗<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX1931, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  snsn  
+##### 403#       发表于 2021-6-29 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786004&amp;ptid=2011727" target="_blank">闻道沐心 发表于 2021-6-29 23:18</a>
+
+右下角音量网络时间这些根本点不开，大家有什么好办法吗
+
+
+—— 来自 realme RMX1931, Android 10上 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/29/232053pasxyi6yvxidbd8o.png" referrerpolicy="no-referrer">
+
+
+<strong>截屏2021-06-29 23.19.31.png</strong> (34.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:20 上传
+
+
+点开就是这样的 怎么点不开？
+
+
+-----
+
+####  闻道沐心  
+##### 404#       发表于 2021-6-29 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786036&amp;ptid=2011727" target="_blank">snsn 发表于 2021-6-29 23:21</a>
+点开就是这样的 怎么点不开？</blockquote>
+点了根本没反应<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 realme RMX1931, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  bestwood  
+##### 405#       发表于 2021-6-29 23:43
+
+
+新版文件资源管理器的标题栏、新版商店的标题栏和左栏用了微软新推出的mica(云母)材质，会根据背后的桌面背景改变颜色。我专门换了个上下部分颜色对比比较强烈的壁纸体验了一下，得出的结论是你不说谁会注意啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  再买自检星剁手  
+##### 406#       发表于 2021-6-29 23:52
+
+
+很多人选mac的理由是绕开弹窗，很难去反驳<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/235141h89559tp12z228n5.png" referrerpolicy="no-referrer">
+
+
+<strong>屏幕截图 2021-06-29 234753.png</strong> (18.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 23:51 上传
+
+
+                                                 

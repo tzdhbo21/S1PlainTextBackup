@@ -4951,3 +4951,16 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
 
                                                  
+
+-----
+
+####  Nitro901  
+##### 12438#       发表于 2021-6-29 22:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">摸太久跟不上节奏，索性接着摸了
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
