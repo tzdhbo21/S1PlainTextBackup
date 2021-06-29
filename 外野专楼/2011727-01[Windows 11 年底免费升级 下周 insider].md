@@ -4627,3 +4627,100 @@ win11更了，版本号+1。没全屏开始菜单太难受了<img src="https://s
 
 
                                                 
+
+-----
+
+####  faithlifer  
+##### 393#       发表于 2021-6-29 18:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51782693&amp;ptid=2011727" target="_blank">spiceeeeee 发表于 2021-6-29 17:45</a>
+
+win11更了，版本号+1。没全屏开始菜单太难受了
+
+
+—— 来自 Meizu 16th, Android 8.1.0上的 S1Next- ...</blockquote>
+1.启动Windows 11，单击屏幕底部第二个搜索图标，键入“注册表编辑器”，在搜索结果中打开注册表编辑器。
+
+
+　　2.然后像在 注册表编辑器中逐步浏览文件夹，找到以下目录：HKEY_CURRENT_USER\Software\Microsoft\Windows\CurrentVersion\Explorer\Advanced\
+
+
+　　3.进入“Advanced”文件夹后，右键单击以创建新的DWORD（32 位）值，将其命名为Start_ShowClassicMode。
+
+
+　　
+
+
+　　4.右键单击该值，选择“修改”，将“数值数据”的值设置为 “1”，然后重新启动计算机。执行此操作后，“开始”菜单将恢复到Windows 10下的样子。单击屏幕底部的开始图标，将会出现Windows 10中的动态磁贴样式。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| spiceeeeee| + 1|🐮逼啊|
+| 石化金鱼| + 1|nice|
+
+
+查看全部评分
+
+
+-----
+
+####  SICP  
+##### 394#       发表于 2021-6-29 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51782686&amp;ptid=2011727" target="_blank">snsn 发表于 2021-6-29 17:45</a>
+感觉完成度挺高的 还没遇到什么致命bug 
+
+至于到一些小的兼容性问题，比如原来任务栏上的网速监控内容也被 ...</blockquote>
+草死，你这个壁纸我刚想吐槽Mac来凑啥热闹<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  V5Style  
+##### 395#       发表于 2021-6-29 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779398&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-29 13:24</a>
+
+微软吹了半天ARM64EC的OFFICE结果没推送，升了beta channel的2107后还是x86模拟</blockquote>
+理论上最近一次的更新已经推送了，可以按照官方博客文章重装一遍试试。
+[https://insider.office.com/en-us ... -for-windows-on-arm](https://insider.office.com/en-us/blog/64-bit-office-for-windows-on-arm)
+
+
+-----
+
+####  megamix  
+##### 396#       发表于 2021-6-29 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51781484&amp;ptid=2011727" target="_blank">喵喵叫的猫 发表于 2021-6-29 16:21</a>
+我猜估计是固定的满了你忘翻页了 右边几个圆点点一下或者滚轮滚一下</blockquote>
+下拉的看到了，只显示了一个，其他再固定都没有显示了，不知道是什么bug
+
+—— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  spiceeeeee  
+##### 397#       发表于 2021-6-29 18:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51783089&amp;ptid=2011727" target="_blank">faithlifer 发表于 2021-6-29 18:21</a>
+1.启动Windows 11，单击屏幕底部第二个搜索图标，键入“注册表编辑器”，在搜索结果中打开注册表编辑器。 ...</blockquote>
+有效，大佬🐮逼
+
+—— 来自 Meizu 16th, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

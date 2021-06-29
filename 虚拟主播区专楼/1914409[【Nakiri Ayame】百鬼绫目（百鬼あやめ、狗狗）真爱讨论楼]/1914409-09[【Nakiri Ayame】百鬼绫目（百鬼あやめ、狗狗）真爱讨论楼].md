@@ -4920,3 +4920,23 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
 
                                                  
+
+-----
+
+####  takitaki  
+##### 12435#       发表于 2021-6-29 18:05
+
+
+绫总马上躺到金盾了
+
+
+-----
+
+####  Fami水  
+##### 12436#       发表于 2021-6-29 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">这是在金盾不播耐久
+
+
+                                                 
