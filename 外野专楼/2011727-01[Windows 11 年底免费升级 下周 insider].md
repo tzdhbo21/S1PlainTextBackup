@@ -4136,3 +4136,245 @@ show more options就是老的菜单</blockquote>
 
 
                                                  
+
+-----
+
+####  石化金鱼  
+##### 353#       发表于 2021-6-29 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779564&amp;ptid=2011727" target="_blank">dragrass 发表于 2021-6-29 13:40</a>
+这设置界面显示BUG不要太多
+
+
+很多开关按钮开着时不显示，关闭才有显示</blockquote>
+开着时全变成白色了
+我也遇到这事儿了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  石化金鱼  
+##### 354#       发表于 2021-6-29 13:54
+
+
+单独搞了一个没卵用还丑的文本指针
+
+
+-----
+
+####  Geminize  
+##### 355#       发表于 2021-6-29 14:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779431&amp;ptid=2011727" target="_blank">chaoliu 发表于 2021-6-29 13:27</a>
+
+这个iso是可以直接灌吗
+
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 S1Next-鹅版 v2.4.4-alpha ...</blockquote>
+你机器符合巨硬要求就行，不然还得pe用win安装器释放wim安装法
+
+
+-----
+
+####  石化金鱼  
+##### 356#       发表于 2021-6-29 14:01
+
+
+我需要磁贴
+桌面只放了十个图标
+平时全靠win键的菜单活
+
+
+-----
+
+####  chaoliu  
+##### 357#       发表于 2021-6-29 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779775&amp;ptid=2011727" target="_blank">Geminize 发表于 2021-6-29 14:00</a>
+你机器符合巨硬要求就行，不然还得pe用win安装器释放wim安装法</blockquote>
+机子是surface pro 5<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">，有tpm2.0应该没问题……？
+
+—— 来自 HUAWEI EVR-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4-alpha
+
+
+-----
+
+####  V5Style  
+##### 358#       发表于 2021-6-29 14:04
+
+
+Traffic Monitor 在任务栏图标增减后会卡在图标后面，作者说在正式版出来之前暂时不会解决。<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/c9824e308ce1404a9e054f94e8d2c5fd/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qazesz  
+##### 359#       发表于 2021-6-29 14:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51777709&amp;ptid=2011727" target="_blank">平井姨夫 发表于 2021-6-29 11:18</a>
+
+体验了一会儿回滚了，任务栏图标没法改成不合并，导致我工作上很多多窗口操作非常痛苦，这个不改没法升级… ...</blockquote>
+啊居然不能展开了吗。不过据我观察很多人都用的默认设置不展开的，只有我这种xp时代的遗老还要专门调成展开式
+
+
+-----
+
+####  喵喵叫的猫  
+##### 360#       发表于 2021-6-29 14:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779790&amp;ptid=2011727" target="_blank">石化金鱼 发表于 2021-6-29 14:01</a>
+
+我需要磁贴
+
+桌面只放了十个图标
+
+平时全靠win键的菜单活</blockquote>
+现在变成开始菜单的那个已固定 可以从所有应用里加进去还可以翻页
+
+不过下面占一大块的推荐项目关不掉
+
+
+
+
+-----
+
+####  喵喵叫的猫  
+##### 361#       发表于 2021-6-29 14:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779564&amp;ptid=2011727" target="_blank">dragrass 发表于 2021-6-29 13:40</a>
+
+这设置界面显示BUG不要太多
+
+
+很多开关按钮开着时不显示，关闭才有显示</blockquote>
+bug吧 主题颜色选深色就好了
+
+
+-----
+
+####  allenz3  
+##### 362#       发表于 2021-6-29 14:21
+
+
+升级之后shell不停崩溃又重启，已经滚回win10了，等正式版再说
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  V5Style  
+##### 363#       发表于 2021-6-29 14:25
+
+
+图标集和上个预览版相比好像没改<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">。
+
+
+-----
+
+####  御坂MKII  
+##### 364#       发表于 2021-6-29 14:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"> beta channel 是不是还要等等的
+
+
+-----
+
+####  石化金鱼  
+##### 365#       发表于 2021-6-29 14:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779892&amp;ptid=2011727" target="_blank">喵喵叫的猫 发表于 2021-6-29 14:10</a>
+现在变成开始菜单的那个已固定 可以从所有应用里加进去还可以翻页
+
+不过下面占一大块的推荐项目关不掉
+
+ ...</blockquote>
+现在这模样还不赶磁贴好看呢<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  张元英  
+##### 366#       发表于 2021-6-29 14:31
+
+
+更新好了，安卓要怎么装？
+
+
+-----
+
+####  Geminize  
+##### 367#       发表于 2021-6-29 14:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51780153&amp;ptid=2011727" target="_blank">张元英 发表于 2021-6-29 14:31</a>
+
+更新好了，安卓要怎么装？</blockquote>
+没有
+
+
+-----
+
+####  石化金鱼  
+##### 368#       发表于 2021-6-29 14:41
+
+
+ 本帖最后由 石化金鱼 于 2021-6-29 14:44 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51779821&amp;ptid=2011727" target="_blank">V5Style 发表于 2021-6-29 14:04</a>
+Traffic Monitor 在任务栏图标增减后会卡在图标后面，作者说在正式版出来之前暂时不会解决。
+
+ ...</blockquote>
+打开show badges on taskbar apps能显示到右边去
+任务栏只要出现新的图标它自己又会跑回左边重叠<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  翼宿一  
+##### 369#       发表于 2021-6-29 14:49
+
+
+用的是繁中系统，ISO 找得到的基本都是英文/简中，用改注册表的办法收到更新了。<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+反正 win 10 的平板体验已经一泡污了，快进到 11 试水算了。
+
+
+-----
+
+####  Geminize  
+##### 370#       发表于 2021-6-29 14:51
+
+
+dev51是不是装了中文包还是一大堆鸟文
+
+
+-----
+
+####  cuchulain2021  
+##### 371#       发表于 2021-6-29 14:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51780153&amp;ptid=2011727" target="_blank">张元英 发表于 2021-6-29 14:31</a>
+更新好了，安卓要怎么装？</blockquote>
+版本不支持，然而也不清楚啥时候才支持
+
+
+-----
+
+####  Geminize  
+##### 372#       发表于 2021-6-29 14:53
+
+
+安装中文输入法，手写，语音一直0x800f0950？
+
+
+                                                
