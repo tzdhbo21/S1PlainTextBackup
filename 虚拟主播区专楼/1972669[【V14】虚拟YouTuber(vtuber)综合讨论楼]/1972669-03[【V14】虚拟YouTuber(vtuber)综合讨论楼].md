@@ -4456,3 +4456,54 @@ ggl，崭新入土！
 
 
                                                  
+
+-----
+
+####  真飞鸟i  
+##### 3297#       发表于 2021-6-29 16:39
+
+
+有其他管人bd的记录吗，好像本来这么做的也不多吧。
+
+
+-----
+
+####  free  
+##### 3298#       发表于 2021-6-29 17:02
+
+
+彩虹两国和HH 1st都出过BD
+
+哦还有烂货圆脸的live也有BD，只卖了1000多张，看来杏人都不爱看这个烂货圆脸，笑嘻了
+
+
+-----
+
+####  rzrbtk  
+##### 3299#       发表于 2021-6-29 17:05
+
+
+【切り抜き】嘘を吐き過ぎた狼少年郡道、チームメイトにさえ信用されなくなる…【奈羅花/カワセ/APEXにじさんじ郡道美玲】 youtu.be/zFtVR-20-S0 @YouTubeより
+
+我永远都搞不懂郡道是单纯的蠢女还是坏透了的巨魔<img src="https://static.saraba1st.com/image/smiley/face2017/221.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 3300#       发表于 2021-6-29 17:13
+
+
+我愿称之为虹男人翻唱巅峰 pv身体暴露90%以上<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/29/171311oydwq1f1y001eb10.png" referrerpolicy="no-referrer">
+
+
+<strong>图片.png</strong> (150.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 17:13 上传
+
+
+                                                 

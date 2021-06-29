@@ -4542,3 +4542,88 @@ dev渠道大家都可以装，但是不满足要求的机器，正式版发布�
 
 
                                                  
+
+-----
+
+####  V5Style  
+##### 387#       发表于 2021-6-29 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51781280&amp;ptid=2011727" target="_blank">isszs 发表于 2021-6-29 15:59</a>
+
+说好的VScode之类的App上微软商店呢？还没实装？</blockquote>
+更新 Windows 11 不会自动更新 Microsoft Store，要手动更新一下。
+
+不过新版 Microsoft Store 依然没有 VSCode。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  纸冰心  
+##### 388#       发表于 2021-6-29 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51781666&amp;ptid=2011727" target="_blank">dragrass 发表于 2021-6-29 16:34</a>
+
+感觉这个更新比Win7-Win8，Win8.1-Win10都小
+
+
+更像是Win8-Win8.1级别的更新，现在我没碰到任何软件兼容问题 ...</blockquote>
+设置里关于电脑看windows规格那项。。直接写的就是update 21H2。。
+
+
+-----
+
+####  V5Style  
+##### 389#       发表于 2021-6-29 17:26
+
+
+直接打开文件资源管理器，显示的是新版界面。
+
+但如果是调用文件资源管理器打开指定的文件夹（例如QQ接收文件后点击“打开文件夹”），显示的是旧版界面。
+
+
+-----
+
+####  翼宿一  
+##### 390#       发表于 2021-6-29 17:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 之前为了平板模式方便，右下角打开了虚拟触摸板，结果这版更新没法直接对任务栏右键关掉它了，进设置里只有虚拟键盘和笔相关的……这帮阿三到处砍到处合并结果现在我想关掉它都关不了……
+
+
+
+
+-----
+
+####  snsn  
+##### 391#       发表于 2021-6-29 17:45
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/174354jmvu2dk23ejvm63k.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>18A69491-5938-4733-BBFA-679AA700F6D6_1_105_c.jpeg</strong> (113.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-29 17:43 上传
+
+
+感觉完成度挺高的 还没遇到什么致命bug 
+
+至于到一些小的兼容性问题，比如原来任务栏上的网速监控内容也被挤到任务栏中间去了和图标重叠了
+
+
+-----
+
+####  spiceeeeee  
+##### 392#       发表于 2021-6-29 17:45
+
+
+win11更了，版本号+1。没全屏开始菜单太难受了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+—— 来自 Meizu 16th, Android 8.1.0上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                
