@@ -5001,3 +5001,137 @@ win10的显示桌面按钮和win7比就已经算是不能随心所欲点了<img 
 
 
                                                  
+
+-----
+
+####  mcq_2  
+##### 416#       发表于 2021-6-30 08:14
+
+
+怎么把任务栏完全透明？演示里面看可以做到，设置里面找不到的样子
+
+
+-----
+
+####  孤狼arcueid  
+##### 417#       发表于 2021-6-30 08:24
+
+
+以前多设备播放时直接右下喇叭就能选输出设备了
+
+现在还得多点两次进入控制中心切<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  h20020901  
+##### 418#       发表于 2021-6-30 09:37
+
+
+新的任务栏在切换输入法或者最大化页面的时候会闪烁 有的时候桌面右键打开菜单可能会卡死 可能是渲染没做好？目前就发现这两个问题有点影响体验<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Nanachi  
+##### 419#       发表于 2021-6-30 09:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51786229&amp;ptid=2011727" target="_blank">bestwood 发表于 2021-6-29 23:43</a>
+新版文件资源管理器的标题栏、新版商店的标题栏和左栏用了微软新推出的mica(云母)材质，会根据背后的桌面背 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">之前的亚克力效果都没几个应用支持
+
+—— 来自 HONOR NTH-AN00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  rak1  
+##### 420#       发表于 2021-6-30 09:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">m1 mac更新win11跑起来比win10强
+
+
+
+
+-----
+
+####  huruii7  
+##### 421#       发表于 2021-6-30 10:05
+
+
+同事用ghost强装了，好像可以无视tpm和cpu
+
+
+-----
+
+####  dvd6  
+##### 422#       发表于 2021-6-30 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51789082&amp;ptid=2011727" target="_blank">huruii7 发表于 2021-6-30 10:05</a>
+
+同事用ghost强装了，好像可以无视tpm和cpu</blockquote>
+我E3 1231，无tpm，insider自动就给我更新上了……
+
+但是这开始菜单和任务栏实在没法用，用了几分钟就滚回win10
+
+
+-----
+
+####  雷之  
+##### 423#       发表于 2021-6-30 11:02
+
+
+ 本帖最后由 雷之 于 2021-6-30 11:38 编辑 
+
+为什么我amd驱动那边显示sam没有开搞定了是新版A卡驱动问题，已经回滚不知道是不是这个问题
+
+3dmark跑一下显卡性能直接减半<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+—— 来自 HUAWEI CDY-AN90, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  mcq_2  
+##### 424#       发表于 2021-6-30 11:04
+
+
+安全模式进去了之后，提升浏览器错误。
+
+
+-----
+
+####  ARIAREA  
+##### 425#       发表于 2021-6-30 11:43
+
+
+怎么右键和资源浏览器那么卡设置也卡<img src="https://static.saraba1st.com/image/smiley/face2017/142.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  daqi  
+##### 426#       发表于 2021-6-30 12:39
+
+
+搜狗输入法会导致任务栏闪烁，有人知道解决办法么
+
+
+-----
+
+####  Litccc  
+##### 427#       发表于 2021-6-30 13:30
+
+
+ 本帖最后由 Litccc 于 2021-6-30 13:33 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51790350&amp;ptid=2011727" target="_blank">daqi 发表于 2021-6-30 12:39</a>
+
+搜狗输入法会导致任务栏闪烁，有人知道解决办法么</blockquote>
+卧槽，卸载搜狗输入法以后任务栏疯狂崩溃，只能重启解决，不过卸载之后任务栏就正常了
+
+
+                                                

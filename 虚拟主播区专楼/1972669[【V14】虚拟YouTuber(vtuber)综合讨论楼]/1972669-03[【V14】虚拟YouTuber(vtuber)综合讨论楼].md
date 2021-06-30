@@ -4709,3 +4709,42 @@ oreapo在双人成行<img src="https://static.saraba1st.com/image/smiley/face201
 
 
                                                  
+
+-----
+
+####  KaboomMirai  
+##### 3317#       发表于 2021-6-30 11:11
+
+
+ 本帖最后由 KaboomMirai 于 2021-6-30 11:12 编辑 
+
+6月30日（水）20:00～　プレミア公開
+乃木坂46「帰り道は遠回りしたくなる」covered by リゼ・ヘルエスタ＆鈴原るる
+
+🔻リゼ・ヘルエスタChにて
+https://t.co/okGRCh5LGU https://t.co/qE7PJcpKa7
+
+<img src="https://p.sda1.dev/2/a76fcf3e6dd4ffd9841a160dd3f11569/IMG_CMP_242304523.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 3318#       发表于 2021-6-30 11:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">最像小丑的还是当初那些自称和露露关系好结果最后连互动都没有的人吧
+
+对了，还有青长
+
+
+-----
+
+####  Suny08  
+##### 3319#       发表于 2021-6-30 12:42
+
+
+原来2000这么吃himalulu，太真了
+
+
+                                                 

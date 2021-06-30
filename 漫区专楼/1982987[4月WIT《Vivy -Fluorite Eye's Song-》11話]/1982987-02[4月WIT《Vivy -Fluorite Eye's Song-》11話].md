@@ -8927,3 +8927,17 @@ vivy治好了我的长月达**tsd，但没完全治好。
 
 
                                                  
+
+-----
+
+####  hein  
+##### 2178#       发表于 2021-6-30 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51674666&amp;ptid=1982987" target="_blank">MikawaFumika 发表于 2021-6-20 14:32</a>
+
+我觉得辽史被抢救到正常动画水平的概率还是挺大的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
