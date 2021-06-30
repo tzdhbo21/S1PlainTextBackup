@@ -5385,3 +5385,423 @@ one and only的liver
 
 
                                                 
+
+-----
+
+####  qq845629713  
+##### 3371#       发表于 2021-6-30 21:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 椎名那是比赛没办法好吧，要不然这种老油条肯定知道今天不播啊
+
+
+-----
+
+####  noHentai  
+##### 3372#       发表于 2021-6-30 21:36
+
+
+压箱底有点多……
+
+
+-----
+
+####  SuntoryNomu  
+##### 3373#       发表于 2021-6-30 21:37
+
+
+ 本帖最后由 SuntoryNomu 于 2021-6-30 21:47 编辑 
+
+有苏味儿了。
+
+
+拼个接。
+
+<img src="https://img.saraba1st.com/forum/202106/30/214736d5zzhl58w9zh895z.jpg" referrerpolicy="no-referrer">
+
+
+<strong>szhc-1.jpg</strong> (231.26 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 21:47 上传
+
+
+-----
+
+####  hlazd  
+##### 3374#       发表于 2021-6-30 21:38
+
+
+这么多东西压箱底，这毕业得是多突然<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暗口崩子  
+##### 3375#       发表于 2021-6-30 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51795717&amp;ptid=1972669" target="_blank">hlazd 发表于 2021-6-30 21:38</a>
+
+这么多东西压箱底，这毕业得是多突然</blockquote>
+上次放假定下来的吧<img src="https://static.saraba1st.com/image/smiley/face2017/156.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 3376#       发表于 2021-6-30 21:41
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/213750r8i0d2p2b038i3c0.png" referrerpolicy="no-referrer">
+
+
+<strong>【最後の配信】にじさんじ所属ｯ！鈴原るるでしたｯ！！ありがとうｯ‥‥！！！【鈴原.png</strong> (131.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 21:37 上传
+
+
+这套真是不错
+
+<img src="https://img.saraba1st.com/forum/202106/30/213938z8x8piwaadcp3dpk.png" referrerpolicy="no-referrer">
+
+
+<strong>【最後の配信】にじさんじ所属ｯ！鈴原るるでしたｯ！！ありがとうｯ‥‥！！！【鈴原.png</strong> (134.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 21:39 上传
+
+
+德比露露
+
+
+Syl，刚刚听叶师提了一下劇団ぽちEFT，已经死于一年前了啊<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  a37356205  
+##### 3377#       发表于 2021-6-30 21:41
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/214130o0u65mk0cem6eyc6.png" referrerpolicy="no-referrer">
+
+
+<strong>$LIFCE5DK02_DO31]OD}IPI.png</strong> (152.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 21:41 上传
+
+
+衣服好多，我选最后一套
+
+
+-----
+
+####  qq845629713  
+##### 3378#       发表于 2021-6-30 21:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 第二套3D没拿到是真的可惜
+
+
+-----
+
+####  dybang  
+##### 3379#       发表于 2021-6-30 21:43
+
+
+你虹现在各种企划到底还有多少啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">别画大饼了，难受
+
+
+-----
+
+####  takitaki  
+##### 3380#       发表于 2021-6-30 21:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">为什么啊，虹这怎么舍得放的？
+
+
+-----
+
+####  pliee  
+##### 3381#       发表于 2021-6-30 21:46
+
+
+魔王装真不错<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 3382#       发表于 2021-6-30 21:46
+
+
+这不是新衣服
+
+是新3D
+
+
+-----
+
+####  winda  
+##### 3383#       发表于 2021-6-30 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51795690&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-6-30 21:34</a>
+椎名那是比赛没办法好吧，要不然这种老油条肯定知道今天不播啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天练习赛，更何况之前小千大会本番都中途关台让巴
+
+
+-----
+
+####  蓬莱广告  
+##### 3384#       发表于 2021-6-30 21:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/096.png" referrerpolicy="no-referrer">去意已决，强留也无意义
+
+
+-----
+
+####  qq845629713  
+##### 3385#       发表于 2021-6-30 21:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51795819&amp;ptid=1972669" target="_blank">winda 发表于 2021-6-30 21:46</a>
+
+今天练习赛，更何况之前小千大会本番都中途关台让巴</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer"> 我看了下，踩还没有尊平时随便播一次踩的多，
+
+
+syl 今晚阿床星姐发歌了，真好啊，
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我的lize-lulu
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|合唱全是enstar|
+
+
+查看全部评分
+
+
+-----
+
+####  IDIDIDID  
+##### 3386#       发表于 2021-6-30 21:51
+
+
+这摆明就是本来有live企划的啊。。
+
+
+-----
+
+####  死体残留  
+##### 3387#       发表于 2021-6-30 21:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">阿葵真是被露露遗忘了么
+
+
+-----
+
+####  Cortana  
+##### 3388#       发表于 2021-6-30 21:54
+
+
+不用这样,毕业又不是死了,肯定能从别人嘴里听到些消息的,中之人账号不也偶尔会动么
+
+"请君试问东流水，别意与之谁短长?"
+
+
+-----
+
+####  FCCHua  
+##### 3389#       发表于 2021-6-30 21:56
+
+
+偶像服真好看啊
+
+
+-----
+
+####  暗口崩子  
+##### 3390#       发表于 2021-6-30 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51795886&amp;ptid=1972669" target="_blank">Cortana 发表于 2021-6-30 21:54</a>
+
+不用这样,毕业又不是死了,肯定能从别人嘴里听到些消息的,中之人账号不也偶尔会动么
+
+"请君试问东流水，别意 ...</blockquote>
+只想听露露开电台打游戏，不需要画面
+
+
+
+
+-----
+
+####  lumberdaren  
+##### 3391#       发表于 2021-6-30 21:56
+
+
+再见，新人liver，铃原露露
+
+
+-----
+
+####  lhawp  
+##### 3392#       发表于 2021-6-30 21:56
+
+
+美大生和加藤纯一两边同时13W同接，也算一大奇观了
+
+
+-----
+
+####  Cortana  
+##### 3393#       发表于 2021-6-30 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51795908&amp;ptid=1972669" target="_blank">暗口崩子 发表于 2021-6-30 21:56</a>
+
+只想听露露开电台打游戏，不需要画面</blockquote>
+这个可以有,以后说不定中之人来个TC复活呢wwwwww
+
+
+-----
+
+####  qq845629713  
+##### 3394#       发表于 2021-6-30 22:00
+
+
+你虹头部那几个，谁毕业也没露露这么有路人缘了，不过随着你虹重心的偏向和淘汰制，还是要看中坚和底层liver毕业回有什么样的号召力了
+
+
+-----
+
+####  flyskywalker92  
+##### 3395#       发表于 2021-6-30 22:10
+
+
+草 为啥要比毕业的号召力 好好活着不好吗
+
+
+-----
+
+####  Cortana  
+##### 3396#       发表于 2021-6-30 22:10
+
+
+草,观看人数还越播越高了.
+
+
+-----
+
+####  Suny08  
+##### 3397#       发表于 2021-6-30 22:12
+
+
+说实话这数字明天tskk 可能奔着要把鲨皇斩了，有点不敢想
+
+
+-----
+
+####  IDIDIDID  
+##### 3398#       发表于 2021-6-30 22:19
+
+
+两天连着吃豆腐饭，感觉还蛮神奇的。
+
+
+-----
+
+####  IDIDIDID  
+##### 3399#       发表于 2021-6-30 22:19
+
+
+也不知道美大生原来的这个live企划是solo还是带上谁的，欸。
+
+
+-----
+
+####  free  
+##### 3400#       发表于 2021-6-30 22:20
+
+
+那必须的，给蝗一个风光大葬不好吗，明天必让桐生可可V史留名<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/222040ob088rssugw1d03v.png" referrerpolicy="no-referrer">
+
+
+<strong>上天.png</strong> (26.86 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 22:20 上传
+
+
+-----
+
+####  渡鸦骑士  
+##### 3401#       发表于 2021-6-30 22:22
+
+
+免费怎么就成了这个样子……这么大一个人了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Aminor  
+##### 3402#       发表于 2021-6-30 22:22
+
+
+虽然龙数字不可能低，但如果是live的话，她那嗓子很多人可能遭不住
+
+
+-----
+
+####  Erikas  
+##### 3403#       发表于 2021-6-30 22:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">露露
+
+
+-----
+
+####  空集  
+##### 3404#       发表于 2021-6-30 22:24
+
+
+免费怎么还不如隔壁楼认领自己的语录啊，昨天说的话今天就当屁放，属于屁股和嘴长倒了。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  ChristinaDU  
+##### 3405#       发表于 2021-6-30 22:25
+
+
+弹幕机坏掉了
+
+
+                                                
