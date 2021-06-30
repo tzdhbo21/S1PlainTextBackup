@@ -5135,3 +5135,41 @@ win10的显示桌面按钮和win7比就已经算是不能随心所欲点了<img 
 
 
                                                 
+
+-----
+
+####  攻城匠师黑索  
+##### 428#       发表于 2021-6-30 14:16
+
+
+换主题 颜色之类的也有迷之卡顿。
+话说窗口都变圆角了，怎么任务栏的窗口预览还是方的呢<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9860, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  daqi  
+##### 429#       发表于 2021-6-30 14:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51790766&amp;ptid=2011727" target="_blank">Litccc 发表于 2021-6-30 13:30</a>
+
+卧槽，卸载搜狗输入法以后任务栏疯狂崩溃，只能重启解决，不过卸载之后任务栏就正常了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是这样的，我卸了搜狗就好了
+
+
+-----
+
+####  daqi  
+##### 430#       发表于 2021-6-30 14:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51788728&amp;ptid=2011727" target="_blank">h20020901 发表于 2021-6-30 09:37</a>
+
+新的任务栏在切换输入法或者最大化页面的时候会闪烁 有的时候桌面右键打开菜单可能会卡死 可能是渲染没做好 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">是不是用了搜狗，卸了就好了
+
+
+                                                 
