@@ -4917,3 +4917,351 @@ hololive是不是被下禁口令不准回始皇帝生日推啊
 
 
                                                  
+
+-----
+
+####  takitaki  
+##### 3331#       发表于 2021-6-30 17:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">老爱倒了（哭腔）
+
+
+-----
+
+####  IDIDIDID  
+##### 3332#       发表于 2021-6-30 17:45
+
+
+去年这段时间holo每月一个大变申，今年变成了彩虹人月度接力毕业，真是白云苍狗啊。
+
+
+-----
+
+####  poipanchao  
+##### 3333#       发表于 2021-6-30 17:46
+
+
+彩虹精神上已经死了
+过了今晚，狗罕见才看日v
+
+
+-----
+
+####  FCCHua  
+##### 3334#       发表于 2021-6-30 18:12
+
+
+ 本帖最后由 FCCHua 于 2021-6-30 18:14 编辑 
+
+这3.0看起来还真有抽选，fumi 哈哥好难得<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+半抽半内定，确信
+
+
+-----
+
+####  Suny08  
+##### 3335#       发表于 2021-6-30 18:15
+
+
+3.0人选看来已经钦定你虹未来一哥一姐了，心疼葵皇
+
+
+-----
+
+####  dybang  
+##### 3336#       发表于 2021-6-30 18:20
+
+
+3.0效果不如2.0明显，表情还得手动切换<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还不如把家用3d整明白，把老模型的机器人手修一修
+
+
+-----
+
+####  IDIDIDID  
+##### 3337#       发表于 2021-6-30 18:23
+
+
+看了下king最近的直播已经和这帮人混在一起了啊，管人圈配不上KING了。
+
+
+-----
+
+####  qq845629713  
+##### 3338#       发表于 2021-6-30 18:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 当年虹人可是亲口说的，
+
+
+“3D有自己的顺序，完全不存在插队的情况！你们这些黑屁的根本不懂彩虹3D的顺序！”
+
+
+现在好了3.0也是“随机”任意的挑选，看起来就像是为了给KING和星川找了四个洗脚婢，不知道原教旨虹人能不能接受
+
+
+-----
+
+####  winda  
+##### 3339#       发表于 2021-6-30 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">彩虹19年一口气出了这么多人迟早要洗牌的
+
+
+-----
+
+####  墨玄i  
+##### 3340#       发表于 2021-6-30 18:33
+
+
+几个月了，你juan都变天了
+你虹的半年算是来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mmbk  
+##### 3341#       发表于 2021-6-30 18:37
+
+
+皮不好看的声音不好听的不会搞asmr的赶快毕业<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  Vneet  
+##### 3342#       发表于 2021-6-30 18:53
+
+
+爱朝终究还是换鲨朝了，恭喜鲨皇。
+
+说来假如鲨皇不是洋的，换成是个本土V在旧皇生日夜"谋朝篡位"，会不会被网暴成不懂"KY"？(笑)
+
+
+-----
+
+####  空集  
+##### 3343#       发表于 2021-6-30 19:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51794014&amp;ptid=1972669" target="_blank">Vneet 发表于 2021-6-30 18:53</a>
+爱朝终究还是换鲨朝了，恭喜鲨皇。
+
+说来假如鲨皇不是洋的，换成是个本土V在旧皇生日夜"谋朝篡位"，会不会被 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">逻辑是这样的:需要看本土脸色的也超不了老爱
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|日本文化糟粕早该扫进垃圾桶了.|
+
+
+查看全部评分
+
+
+-----
+
+####  alcoholic1000  
+##### 3344#       发表于 2021-6-30 19:09
+
+
+海夜叉神 
+
+<img src="https://img.saraba1st.com/forum/202106/30/190945koxmrlvoz3cjra7j.png" referrerpolicy="no-referrer">
+
+
+<strong>【お披露目】渋谷ハジメの正体。【渋谷ハジメ:にじさんじ】.png</strong> (188.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 19:09 上传
+
+
+【お披露目】渋谷ハジメの正体。【渋谷ハジメ/にじさんじ】
+
+
+-----
+
+####  IDIDIDID  
+##### 3345#       发表于 2021-6-30 19:10
+
+
+ 本帖最后由 IDIDIDID 于 2021-6-30 19:18 编辑 
+
+这两个月你虹最新最in得夜店那组男女两个吸金狂魔都是19年底抽出来的，所以还是得抽。20组冥府挺好的，后面就是不抽了才导致金鱼一炸后继无人。
+
+
+至于冗员，我们可以搞末位淘汰嘛<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 3346#       发表于 2021-6-30 19:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">哈哥这身和海夜叉神好像
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/191645lffzoll4f0dff4lg.jpg" referrerpolicy="no-referrer">
+
+
+<strong>DobHlrTU4AEx_o1.jpg</strong> (267.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 19:16 上传
+
+
+-----
+
+####  Vneet  
+##### 3347#       发表于 2021-6-30 19:19
+
+
+<blockquote>空集 发表于 2021-6-30 19:05
+逻辑是这样的:需要看本土脸色的也超不了老爱
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅 ...</blockquote>
+确实，保皇才是最读懂KY的(笑)
+
+
+-----
+
+####  noHentai  
+##### 3348#       发表于 2021-6-30 19:21
+
+
+不上动捕跳舞，又何必选FLASH这首歌<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 3349#       发表于 2021-6-30 19:27
+
+
+光靠末位淘汰制度可不行，得把上位那些空有尸体订阅，同接、SC、毫无订阅增长的清退才行，
+
+
+同接、SC、订阅增长、工商等等所有因素乘不同的系数，再综合算KPI淘汰掉，
+
+
+-----
+
+####  喜闻乐见  
+##### 3350#       发表于 2021-6-30 19:36
+
+
+ 本帖最后由 喜闻乐见 于 2021-6-30 19:41 编辑 
+
+生日会结束，更像是 真人band+伴舞的live舞台，没有了蛋糕之类的环节，多了不少 remix。 音乐的比重目前最大
+
+5岁AiParty 顺利结束
+
+
+-----
+
+####  真飞鸟i  
+##### 3351#       发表于 2021-6-30 19:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">爱始皇真实实力是296w+153w+131w再加抖音订阅。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  noHentai  
+##### 3352#       发表于 2021-6-30 19:44
+
+
+触乐夜话：再见了，铃原露露
+[https://www.chuapp.com/article/288086.html](https://www.chuapp.com/article/288086.html)
+
+
+-----
+
+####  poipanchao  
+##### 3353#       发表于 2021-6-30 19:51
+
+
+露露这套校服，我感觉是没出的衣服设计或者废案……再也没机会出了 ……
+
+这歌以前没听过，真的蛮不错的
+
+画和mv做的也很棒
+
+
+-----
+
+####  IDIDIDID  
+##### 3354#       发表于 2021-6-30 19:59
+
+
+黑客直播间PTSD大爆发太草了
+
+
+-----
+
+####  swordofsoul1  
+##### 3355#       发表于 2021-6-30 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51794530&amp;ptid=1972669" target="_blank"> 真飞鸟i 发表于 2021-6-30 19:36</a> 爱始皇真实实力是296w 153w 131w再加抖音订阅。  —— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版 v2.4.3 </blockquote>
+看了下老爱抖音已经290w了……感觉最后会是抖音号最先过300w线<img src="https://static.saraba1st.com/image/smiley/carton2017/004.png" referrerpolicy="no-referrer">来自: iPhone客户端
+
+
+-----
+
+####  空集  
+##### 3356#       发表于 2021-6-30 20:24
+
+
+黑客这数字爆发有点吓人。。。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  thisisaspider  
+##### 3357#       发表于 2021-6-30 20:29
+
+
+V圈都是杠杆是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  adamtheo  
+##### 3358#       发表于 2021-6-30 20:30
+
+
+好后悔应该录个屏看数据变化的，就我大概隔半分钟刷新一下看的情况（最后一分钟基本10秒刷新一次），票数增长跟投票结果应该有买bot账号，myy辛苦了
+
+
+-----
+
+####  free  
+##### 3359#       发表于 2021-6-30 20:42
+
+
+[https://www.youtube.com/watch?v=c7m6kAGEw3U](https://www.youtube.com/watch?v=c7m6kAGEw3U)
+
+Greyword / HACHI 【Official MV】
+
+
+                                                 

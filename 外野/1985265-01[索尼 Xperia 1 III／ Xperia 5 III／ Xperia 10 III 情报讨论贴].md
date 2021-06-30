@@ -9396,3 +9396,14 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  Lisylfn  
+##### 666#       发表于 2021-6-30 19:54
+
+
+今天查看Onedrive自动上传的照片才发现, 原来拍照大师的照片文件名是按照时间来命名的了, 这换App还是有用的啊, 从Z1开始的DSC_####弱智命名终于改掉了, 之前每次换手机都要自己把不同手机的照片放在不同文件夹里保存, 拍照大师才终于改掉, 应该说索尼终于change了还是早tm干啥去了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
