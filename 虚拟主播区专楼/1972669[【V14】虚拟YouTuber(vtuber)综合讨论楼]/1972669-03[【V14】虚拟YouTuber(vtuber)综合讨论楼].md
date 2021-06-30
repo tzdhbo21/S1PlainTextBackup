@@ -6971,3 +6971,32 @@ https://twitter.com/KizunaAIinc/status/1410217231393312770
 
 
                                                  
+
+-----
+
+####  SuntoryNomu  
+##### 3504#       发表于 2021-7-1 01:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/01/013748afv6su0xlzl6c6bj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>e36d39a01377f2df33a87e850b1f1.jpg</strong> (44.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 01:37 上传
+
+
+-----
+
+####  昆西昆希昆  
+##### 3505#       发表于 2021-7-1 02:23
+
+
+只看过几次露露皇女电台和考拉联动，没想到居然是因为这个原因选择的引退，太可惜了。不知道vtb圈子还能活几年，但如果这圈子还有未来的话希望能它能变得更好吧，不要再出现这种垃圾问题了
+
+
+                                                 
