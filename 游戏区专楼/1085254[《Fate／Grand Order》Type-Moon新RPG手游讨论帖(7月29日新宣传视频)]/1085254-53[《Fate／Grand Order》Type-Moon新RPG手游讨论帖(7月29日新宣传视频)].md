@@ -18194,3 +18194,42 @@ QP上限不提高
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79493#       发表于 2021-6-30 17:25
+
+
+ 本帖最后由 exiaexa 于 2021-6-30 17:27 编辑 
+
+震惊，一次开到底，45+60个兑换
+
+yls这是吃错药了吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 79494#       发表于 2021-6-30 17:28
+
+
+113的本不好刷啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79495#       发表于 2021-6-30 17:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51793190&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-6-30 17:25</a>
+
+震惊，一次开到底，45+60个兑换
+
+yls这是吃错药了吗</blockquote>
+按时没掉落本
+
+
+                                                 

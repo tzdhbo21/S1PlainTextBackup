@@ -5173,3 +5173,41 @@ win10的显示桌面按钮和win7比就已经算是不能随心所欲点了<img 
 
 
                                                  
+
+-----
+
+####  VirMoe  
+##### 431#       发表于 2021-6-30 15:47
+
+
+<strong>APK替代者Android App Bundles八月生效：改变应用打包和交付方式</strong>
+[https://www.cnbeta.com/articles/tech/1147021.htm](https://www.cnbeta.com/articles/tech/1147021.htm)
+
+
+google好像开始作妖了，可能有些应用就没有apk了。
+
+
+-----
+
+####  distrowatch  
+##### 432#       发表于 2021-6-30 15:49
+
+
+开机自启动好像不是每次都生效，昨天还好好的今天开机onedrive就要手动启动了
+
+
+-----
+
+####  DTCPSS  
+##### 433#       发表于 2021-6-30 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51792230&amp;ptid=2011727" target="_blank">distrowatch 发表于 2021-6-30 15:49</a>
+开机自启动好像不是每次都生效，昨天还好好的今天开机onedrive就要手动启动了 ...</blockquote>
+我也有这问题，开机后资源管理器会崩溃重启，然后所有开机自启的程序都不会启动
+
+
+- 发自忧郁深沉的 [Stage1st UWP](https://www.microsoft.com/zh-cn/p/stage1st/9nj2qf6m25f6) 非官方客户端
+
+
+                                                 

@@ -6182,3 +6182,39 @@ survive=mgsurvive？
 
 
                                                  
+
+-----
+
+####  halogta  
+##### 470#       发表于 2021-6-30 16:33
+
+
+科乐美跟Bloober Team达成战略合作协议，寂静岭外包出去的节奏？
+
+
+-----
+
+####  医生狼多  
+##### 471#       发表于 2021-6-30 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51749200&amp;ptid=2010295" target="_blank">SergeGlenn 发表于 2021-6-26 19:58</a>
+之前一个准确泄露FC6信息的法国人说的，但他也提到这个来源他不是很熟悉所以可靠度未知，但结合Navtra的 ...</blockquote>
+周四能说明啥……索尼之前搞sop是在周五<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SergeGlenn  
+##### 472#       发表于 2021-6-30 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51792771&amp;ptid=2010295" target="_blank">医生狼多 发表于 2021-6-30 16:45</a>
+
+周四能说明啥……索尼之前搞sop是在周五</blockquote>
+那是北京时间吧，北美公布一般都是周四，等于咱们这儿周五凌晨5点
+
+不过大的showcase一般时间安排会和sop不同
+
+
+                                                 
