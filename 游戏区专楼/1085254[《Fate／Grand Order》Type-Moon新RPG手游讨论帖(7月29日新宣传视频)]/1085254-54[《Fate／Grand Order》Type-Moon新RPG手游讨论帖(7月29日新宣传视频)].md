@@ -143,3 +143,23 @@ yls这是吃错药了吗</blockquote>
 
 
                                                 
+
+-----
+
+####  khxooo  
+##### 79508#       发表于 2021-6-30 20:48
+
+
+只有90+才是纯加成礼装掉落还行，太阴险了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stefanie张  
+##### 79509#       发表于 2021-6-30 21:20
+
+
+不要相信隔壁的节奏啊，90本也是单一掉落。
+
+
+                                                 

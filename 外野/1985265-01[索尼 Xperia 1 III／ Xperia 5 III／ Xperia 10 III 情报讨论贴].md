@@ -9407,3 +9407,20 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  wqm2008  
+##### 667#       发表于 2021-6-30 20:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51712746&amp;ptid=1985265" target="_blank">leystage 发表于 2021-6-23 18:21</a>
+
+发热续航不说，bug 可以等几个版本，索尼软件通畅会在生命周期中间的某个时刻达到可用的水平…
+
+
+所以你们 ...</blockquote>
+那我希望手上这部马克兔真的能够等到软件可用的那天
+
+
+                                                 

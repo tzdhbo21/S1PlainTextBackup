@@ -6218,3 +6218,23 @@ survive=mgsurvive？
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 473#       发表于 2021-6-30 21:09
+
+
+ 本帖最后由 luoyianwu 于 2021-6-30 21:24 编辑 
+
+KONAMI AND BLOOBER TEAM ANNOUNCE PARTNERSHIP AMID SILENT HILL LINKS
+
+[https://www.videogameschronicle. ... -silent-hill-links/](https://www.videogameschronicle.com/news/konami-and-bloober-team-announce-partnership-amid-silent-hill-links/)
+
+
+刚看到，补一个链接
+
+不过啊，文中也有写道，konami有在和另一知名日本制作人合作开发sh新作。不必慌，搞不好Blue Box和Bloober都是真的
+
+
+                                                 
