@@ -7020,3 +7020,16 @@ https://twitter.com/KizunaAIinc/status/1410217231393312770
 
 
                                                  
+
+-----
+
+####  purdre  
+##### 3508#       发表于 2021-7-1 03:31
+
+
+V事务所现在也算艺能人事务所了吧？艺能人事务所保护艺人那一套也快学学？
+
+指望其余V都像兔头那样全靠自己坚韧顶下来不太现实啊？就这么看着一堆畜生把自家赚钱来源的艺人拱了怕是作不下去吧<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+                                                 
