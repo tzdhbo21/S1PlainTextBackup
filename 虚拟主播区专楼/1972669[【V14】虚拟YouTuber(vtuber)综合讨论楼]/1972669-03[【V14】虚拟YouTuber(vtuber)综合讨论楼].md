@@ -5805,3 +5805,1139 @@ syl 今晚阿床星姐发歌了，真好啊，
 
 
                                                 
+
+-----
+
+####  IDIDIDID  
+##### 3406#       发表于 2021-6-30 22:28
+
+
+结果还是STK啊
+
+
+-----
+
+####  alcoholic1000  
+##### 3407#       发表于 2021-6-30 22:29
+
+
+大概比想象中更严重的厄介
+
+
+-----
+
+####  真飞鸟i  
+##### 3408#       发表于 2021-6-30 22:29
+
+
+露露和gbr的差距咋这么大……
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  yla  
+##### 3409#       发表于 2021-6-30 22:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">魔界警察费拉不堪
+
+
+-----
+
+####  IDIDIDID  
+##### 3410#       发表于 2021-6-30 22:29
+
+
+你虹因为STK炸了这是第二个了，佛了。
+
+
+-----
+
+####  SuntoryNomu  
+##### 3411#       发表于 2021-6-30 22:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">对日本人的仇恨加深了。
+
+
+-----
+
+####  lhawp  
+##### 3412#       发表于 2021-6-30 22:32
+
+
+日本还是早点毁灭吧
+
+
+-----
+
+####  渡鸦骑士  
+##### 3413#       发表于 2021-6-30 22:33
+
+
+日本警察真没用阿<img src="https://static.saraba1st.com/image/smiley/face2017/087.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flyskywalker92  
+##### 3414#       发表于 2021-6-30 22:34
+
+
+她这说了啥吗 感觉都套话啊。。
+
+
+-----
+
+####  Cortana  
+##### 3415#       发表于 2021-6-30 22:34
+
+
+不是，你们谁听懂了？怎么成谜语人了？
+
+
+-----
+
+####  Cortana  
+##### 3416#       发表于 2021-6-30 22:35
+
+
+难道说要转生？
+
+
+-----
+
+####  露·露卡  
+##### 3417#       发表于 2021-6-30 22:35
+
+
+我感觉就是合同没谈拢
+
+
+-----
+
+####  FCCHua  
+##### 3418#       发表于 2021-6-30 22:36
+
+
+不要谜语人不要谜语人
+
+
+-----
+
+####  Junchoon  
+##### 3419#       发表于 2021-6-30 22:37
+
+
+没说到骚捞的话题吧，只是说不想让观众担心。
+
+然后，绕啊，绕的......
+
+
+-----
+
+####  qq845629713  
+##### 3420#       发表于 2021-6-30 22:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer"> 你虹真无能啊，如果养一群黑道打手，把厄介塞进下水道不就行了？
+
+
+有钱租高档办公室，没钱给liver提供合理的保护，属实真的无能了
+
+
+
+
+-----
+
+####  空集  
+##### 3421#       发表于 2021-6-30 22:37
+
+
+说实话信息量比较稀薄
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Ketestrait  
+##### 3422#       发表于 2021-6-30 22:38
+
+
+ 本帖最后由 Ketestrait 于 2021-6-30 22:39 编辑 
+
+核心只说了一点就是健康没有大问题，主要原因是被骚扰事件多发（不止一件，多次）；
+
+
+后面因为骚扰而频繁中断直播会觉得对不起观众之类的一大段都可以算是套话。
+
+
+采信这个核心说法的话那就是阴湿日本人又胜利了<img src="https://static.saraba1st.com/image/smiley/face2017/028.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 3423#       发表于 2021-6-30 22:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">露露这不是明着还要继续，只是不在你虹干了。
+
+
+-----
+
+####  poipanchao  
+##### 3424#       发表于 2021-6-30 22:40
+
+
+主要原因就是多次被现实骚扰
+
+补充了下身体没问题
+
+
+-----
+
+####  Junchoon  
+##### 3425#       发表于 2021-6-30 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796291&amp;ptid=1972669" target="_blank">露·露卡 发表于 2021-6-30 22:35</a>
+
+我感觉就是合同没谈拢</blockquote>
+不可能的，合同没谈拢的是大家一拍两散，绝不会让露露放这么多东西的。
+
+
+-----
+
+####  winda  
+##### 3426#       发表于 2021-6-30 22:40
+
+
+ 本帖最后由 winda 于 2021-6-30 22:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">复数的stk事件，找警察后说是解决了但是完全没抓到人，因为在这种情况下直播是中途半端的感觉就不如毕业了
+syl噗酱里账leak改id+清粉，奈罗花leak后找警察还找到几个可疑份子警告，虹这块真是一笔烂账<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pliee  
+##### 3427#       发表于 2021-6-30 22:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  CielChloe  
+##### 3428#       发表于 2021-6-30 22:41
+
+
+ 本帖最后由 CielChloe 于 2021-6-30 22:56 编辑 
+
+你们还真指望能听到什么其他的理由啊？也就stk的原因是可以说的，有太多不便说的了
+
+不过身体方面没大问题就好
+
+
+-----
+
+####  露·露卡  
+##### 3429#       发表于 2021-6-30 22:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796340&amp;ptid=1972669" target="_blank">Junchoon 发表于 2021-6-30 22:40</a>
+
+不可能的，合同没谈拢的是大家一拍两散，绝不会让露露放这么多东西的。 ...</blockquote>
+没谈拢也是续约嘛 还是可以好聚好散的
+
+
+-----
+
+####  SuntoryNomu  
+##### 3430#       发表于 2021-6-30 22:41
+
+
+<img src="https://z3.ax1x.com/2021/06/30/RDKAt1.gif" referrerpolicy="no-referrer">
+
+就这样吧，不看了。
+
+谢谢你，铃原露露，再见了。
+
+
+-----
+
+####  渡鸦骑士  
+##### 3431#       发表于 2021-6-30 22:42
+
+
+也就是说有其他更复杂的原因咯……
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ヒトニナル  
+##### 3432#       发表于 2021-6-30 22:43
+
+
+日本警察不靠谱这件事肯定是真的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  takitaki  
+##### 3433#       发表于 2021-6-30 22:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">露露的直播太能熬我没跟完过几次，出道的时候顺手点了关注，皮是管人里最戳我那一档的，平时偶尔找找切片看，比较重要的回就看录播，按理说也没什么感情，但是看着就是有点难受。
+
+tmd，v圈和观众怎么就成这样子了
+
+
+-----
+
+####  nowaki  
+##### 3434#       发表于 2021-6-30 22:48
+
+
+虹女对现在的彩虹来说只是负担罢了。
+
+
+-----
+
+####  hlazd  
+##### 3435#       发表于 2021-6-30 22:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">彩虹说的所谓保护liver难道就是做做样子吗
+
+
+-----
+
+####  tankai  
+##### 3436#       发表于 2021-6-30 22:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796329&amp;ptid=1972669" target="_blank">nowaki 发表于 2021-6-30 22:39</a>
+
+露露这不是明着还要继续，只是不在你虹干了。</blockquote>
+YAGOO:来了来了,您几位?
+
+
+-----
+
+####  alcoholic1000  
+##### 3437#       发表于 2021-6-30 22:49
+
+
+「こんな素晴らしい職業無いと思う」
+
+
+-----
+
+####  暗口崩子  
+##### 3438#       发表于 2021-6-30 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796400&amp;ptid=1972669" target="_blank">takitaki 发表于 2021-6-30 22:46</a>
+
+露露的直播太能熬我没跟完过几次，出道的时候顺手点了关注，皮是管人里最戳我那一档的，平时偶尔找 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">空露露的直播我基本就没看过内容，游戏开播了点开挂着我自己也打游戏，听她平A ASMR当BGM，享受的就是一个安心感
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">因为觉得她唱歌难听我一次歌回都没听完过，现在后悔不已
+
+
+-----
+
+####  nonecat  
+##### 3439#       发表于 2021-6-30 22:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796329&amp;ptid=1972669" target="_blank">nowaki 发表于 2021-6-30 22:39</a>
+
+露露这不是明着还要继续，只是不在你虹干了。</blockquote>
+真的吗 骗骗我也好
+
+
+-----
+
+####  ichirukia1566  
+##### 3440#       发表于 2021-6-30 22:53
+
+
+ 本帖最后由 ichirukia1566 于 2021-6-30 22:54 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796431&amp;ptid=1972669" target="_blank">暗口崩子 发表于 2021-6-30 22:49</a>
+
+空露露的直播我基本就没看过内容，游戏开播了点开挂着我自己也打游戏，听她平A ASMR当BGM，享受的 ...</blockquote>
+我也是打机时挂着听，那天看到是歌回就直接没开，然后第二天打开论坛看到人没了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+不对，应该说第二天看到b站官号这么快就发了歌回熟肉觉得有蹊跷，上论坛一看人没了。
+
+
+-----
+
+####  dybang  
+##### 3441#       发表于 2021-6-30 22:53
+
+
+真是因为厄介粉可以理解，以她打游戏的性格，不能好好干就不干了说得通的
+
+
+-----
+
+####  渡鸦骑士  
+##### 3442#       发表于 2021-6-30 22:55
+
+
+那有另一个问题阿……如果粉丝全涌入那个账号了……
+
+不是也会<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 3443#       发表于 2021-6-30 22:56
+
+
+离职就能摆脱激进粉嘛，总觉得也不一定啊。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  podball  
+##### 3444#       发表于 2021-6-30 22:57
+
+
+还想再直播中听见这个温柔的声音
+
+
+-----
+
+####  fghc_h  
+##### 3445#       发表于 2021-6-30 22:57
+
+
+17.5w....会斩鲨吗
+
+
+-----
+
+####  yamato gun  
+##### 3446#       发表于 2021-6-30 22:58
+
+
+我吐了，这原因真的意难平了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ketestrait  
+##### 3447#       发表于 2021-6-30 23:00
+
+
+＂忘れるまで忘れないでほしい＂
+
+
+-----
+
+####  kqwert  
+##### 3448#       发表于 2021-6-30 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796499&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-6-30 22:56</a>
+
+离职就能摆脱激进粉嘛，总觉得也不一定啊。
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 S1Next-鹅版  ...</blockquote>
+如果自己出去住的话确实不好定位了
+
+
+-----
+
+####  Suny08  
+##### 3449#       发表于 2021-6-30 23:01
+
+
+还能怎么保护啊，你再怎么保护也没用的，相比传统偶像vtb的距离近太多了，怎么都会泄漏个人信息的，躲不了的
+
+
+-----
+
+####  hlazd  
+##### 3450#       发表于 2021-6-30 23:02
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/230203s7b577acb9e76zcn.png" referrerpolicy="no-referrer">
+
+
+<strong>lulu.png</strong> (25.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 23:02 上传
+
+
+186k的毕业回
+
+
+
+
+-----
+
+####  podball  
+##### 3451#       发表于 2021-6-30 23:02
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/230228fl6hllddg9ky196k.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (278.41 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 23:02 上传
+
+
+-----
+
+####  alcoholic1000  
+##### 3452#       发表于 2021-6-30 23:02
+
+
+ 本帖最后由 alcoholic1000 于 2021-6-30 23:08 编辑 
+
+主要原因也是第一个说的原因：受到了复数的线下骚扰，找了警察似乎也不是特别有用。受到骚扰就要暂时休止，不希望观众因此担心。
+
+原因确实比较多也比较复杂，但是当做我的任性也好，没有办法全部说清楚。
+
+
+健康问题大概不需要担心，有按时体检眼睛也并无大碍。
+
+
+twi会保留，大家给我的FAtag还会继续看，如果有写信也会送达的。谢谢大家初配信以来的支持。
+
+
+我很喜欢直播，也很喜欢直播中的自己，喜欢游戏。当初被ickr接纳为其中一员真的非常感谢，谢谢各位liver，过去的两年非常享受。
+
+V的职业真的很棒，不仅2434，整个业界我都非常喜欢，能作为vtuber活动真的太好了。
+
+
+广阔天地，大有作为。
+
+祝身体健康，一帆风顺。
+
+
+最后说了很多的感谢，但真要说还是作为观众的我们感谢你，感谢两年来的陪伴，感谢一直以来的笑容和柔声细语
+
+最後のおつるる
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| CielChloe| + 1||
+
+
+查看全部评分
+
+
+-----
+
+####  icecry  
+##### 3453#       发表于 2021-6-30 23:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  takitaki  
+##### 3454#       发表于 2021-6-30 23:03
+
+
+ 本帖最后由 takitaki 于 2021-6-30 23:04 编辑 
+
+结束了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+人生有梦，各自精彩<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kikiwalu  
+##### 3455#       发表于 2021-6-30 23:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑暗剑  
+##### 3456#       发表于 2021-6-30 23:03
+
+
+一路顺风<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  米德  
+##### 3457#       发表于 2021-6-30 23:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">难受
+
+
+-----
+
+####  AvengerRideon  
+##### 3458#       发表于 2021-6-30 23:04
+
+
+再见了美大生。
+
+
+-----
+
+####  x1034  
+##### 3459#       发表于 2021-6-30 23:05
+
+
+唉...居然是这个原因
+
+
+-----
+
+####  ChristinaDU  
+##### 3460#       发表于 2021-6-30 23:05
+
+
+希望是真的单纯的合同没谈拢
+
+
+-----
+
+####  真飞鸟i  
+##### 3461#       发表于 2021-6-30 23:06
+
+
+盛大的烟花了，也说明有这么多人关注她，毕业同接很难有人超过了吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  GarNoc  
+##### 3462#       发表于 2021-6-30 23:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 3463#       发表于 2021-6-30 23:06
+
+
+ 本帖最后由 FCCHua 于 2021-6-30 23:08 编辑 
+
+说实话碰到这种情况就是很棘手，能警告算好的了，前提还是知道或者找到对方是谁，找不到的就更...<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 3464#       发表于 2021-6-30 23:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">明天就被超过了吧，国产杏奴这么对海外杏奴没有自信吗
+
+
+-----
+
+####  aptx318  
+##### 3465#       发表于 2021-6-30 23:07
+
+
+这个理由真的绷不住
+
+
+-----
+
+####  Junchoon  
+##### 3466#       发表于 2021-6-30 23:07
+
+
+再见了，露露
+
+
+-----
+
+####  podball  
+##### 3467#       发表于 2021-6-30 23:07
+
+
+也许你我终将行踪不明，你应该知道我曾为你动情。
+
+
+-----
+
+####  IDIDIDID  
+##### 3468#       发表于 2021-6-30 23:08
+
+
+直播员自爆同接记录谁爱要谁要😅
+
+
+-----
+
+####  蓬莱广告  
+##### 3469#       发表于 2021-6-30 23:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/021.png" referrerpolicy="no-referrer">结束了，下一个是谁呢
+
+
+-----
+
+####  津岛善子  
+##### 3470#       发表于 2021-6-30 23:08
+
+
+难受<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fghc_h  
+##### 3471#       发表于 2021-6-30 23:08
+
+
+VTB啊活着就已经是胜利了😭
+
+
+-----
+
+####  SuntoryNomu  
+##### 3472#       发表于 2021-6-30 23:08
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/230826lir3xm9u4s3ux34x.png" referrerpolicy="no-referrer">
+
+
+<strong>210630230632.png</strong> (98.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 23:08 上传
+
+
+<img src="https://z3.ax1x.com/2021/06/30/RDKAt1.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Yurumi  
+##### 3473#       发表于 2021-6-30 23:09
+
+
+我不能接受啊<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  露·露卡  
+##### 3474#       发表于 2021-6-30 23:10
+
+
+不管是什么理由 现在都很难受<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 3475#       发表于 2021-6-30 23:12
+
+
+<img src="https://p.sda1.dev/2/52ff1704e0239df6dcaecfd485e46774/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tankai  
+##### 3476#       发表于 2021-6-30 23:14
+
+
+2434真正损失一员大将啊.
+
+
+-----
+
+####  nowaki  
+##### 3477#       发表于 2021-6-30 23:15
+
+
+压力来到了coco这边，coco灵堂斩鲨和泥哥爆破灵堂我都很开心。
+
+
+-----
+
+####  icecry  
+##### 3478#       发表于 2021-6-30 23:15
+
+
+我不能接受，不能接受...
+
+
+-----
+
+####  tankai  
+##### 3479#       发表于 2021-6-30 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796556&amp;ptid=1972669" target="_blank">hlazd 发表于 2021-6-30 23:02</a>
+
+186k的毕业回</blockquote>
+都快赶上甲子园大联动了.恐怖如斯.(明天那位.....
+
+
+-----
+
+####  noHentai  
+##### 3480#       发表于 2021-6-30 23:16
+
+
+<blockquote>鈴原るる/Lulu Suzuhara
+
+【最後の配信】にじさんじ所属ｯ！鈴原るるでしたｯ！！ありがとうｯ‥‥！！！【鈴原るる/にじさんじ】
+
+2021-06-30(水) 21:59:42 / 2h4m10s
+
+視聴者:約186112人 累計:216750人
+
+チャット:207123件/5132件:約￥10,377,435/メンバ:1348件</blockquote>
+
+
+
+
+-----
+
+####  hlazd  
+##### 3481#       发表于 2021-6-30 23:17
+
+
+观众输了，阴湿人stk赢了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 3482#       发表于 2021-6-30 23:20
+
+
+[https://twitter.com/sainexxx/status/1410252230897274891](https://twitter.com/sainexxx/status/1410252230897274891)
+<img src="https://p.sda1.dev/2/0b5b7172920022341ee2e65014bab17f/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 3483#       发表于 2021-6-30 23:22
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/232027sye0xa5d5jxwwsws.jpg" referrerpolicy="no-referrer">
+
+
+<strong>8c63e670cf62f8f96fb6786553307d6022ba6679.jpg@942w_528h_progressive.jpg</strong> (97.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 23:20 上传
+
+
+“你跟我的时间最短，底子最干净，路要怎么走你们自己决定，祝各位以后在隔壁一帆风顺”
+
+
+-----
+
+####  opersuper  
+##### 3484#       发表于 2021-6-30 23:25
+
+
+tskk明天葬礼要是没露露同接sc高我就骂杏奴屁用没有
+
+
+-----
+
+####  SuntoryNomu  
+##### 3485#       发表于 2021-6-30 23:26
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/232620gxukfqus4vpkqpkw.png" referrerpolicy="no-referrer">
+
+
+<strong>210630232512.png</strong> (3.87 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 23:26 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  空集  
+##### 3486#       发表于 2021-6-30 23:29
+
+
+讲道理 龙子这个月都干了吧  强行让龙总sc守住第一了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  noHentai  
+##### 3487#       发表于 2021-6-30 23:31
+
+
+[https://twitter.com/sainexxx/status/1407989935278149634](https://twitter.com/sainexxx/status/1407989935278149634)
+<img src="https://p.sda1.dev/2/53ebd0782c29de3ea8adf3ad33001fe6/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 3488#       发表于 2021-6-30 23:35
+
+
+ 本帖最后由 渡鸦骑士 于 2021-6-30 23:45 编辑 
+
+回过头想了想，在跟踪狂这条线上衍生开了，果然和梅露那次事件有很强的既视感。
+
+实际上陌生的跟踪狂不可怕，实在不行搬家也能解决一部分问题，至少我是没见到真有把自己住址放网上的。
+
+那么问题可能就在熟人身上了，因为是邻居或者同事，所以才能很快的获取信息，特意写信也是为了刻意增加身份的迷雾。
+
+当然以上都是推测……
+
+不过这么一思考，就更恶心了。
+再联想一下gbr毕业以后**方方开号，也不介意有VTB粉丝。一副解脱的样子。搬了几次家没解决的问题毕业了就能解决。
+而且gbr减少活动以后露露才开始收到挑战书。露露似乎没有尝试搬家去解决问题。而是很快很突然的决定毕业了。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+这些就权当阴谋论给大家提供一个思考方向吧
+
+
+-----
+
+####  IDIDIDID  
+##### 3489#       发表于 2021-6-30 23:40
+
+
+ 本帖最后由 IDIDIDID 于 2021-7-1 00:07 编辑 
+
+彩虹有厄介粉丝，杏生活有痴汉职员，大家都有美好的明天。
+
+
+冷知识SYL：
+
+ANKR的地址是详细到门牌楼层的，但cover就写了个千代田，连送礼物都是送去坂桥区旧址，算是比较清楚杏奴也不是什么好东西。
+
+
+-----
+
+####  Suzutsuki  
+##### 3490#       发表于 2021-6-30 23:44
+
+
+完了 一切都完了<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 3491#       发表于 2021-6-30 23:45
+
+
+[https://twitter.com/KizunaAIinc/status/1410217231393312770](https://twitter.com/KizunaAIinc/status/1410217231393312770)
+
+老爱今天生日会的三项发表，虽然黑爱这个没太看懂是干啥......
+
+批站老爱装扮今天打折卖哦，过了12点就没了，买一个支持一下
+
+看前面有人说杏人都不回老爱生日推，翻了一下，杏只有烂货圆脸祝贺，虹只有博士祝贺，爱丽丝转发了一下，可能现在确实是关起门玩的时代了<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/234529b0rcccjk0klddbtt.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (366.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 23:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/234529qprt860160ktrnul.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2.jpg</strong> (398.04 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 23:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/30/234529rzuxnhbb94ya44u9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>3.jpg</strong> (266.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 23:45 上传
+
+
+-----
+
+####  哈曼的YY  
+##### 3492#       发表于 2021-6-30 23:52
+
+
+看直播前有点伤心
+
+看完有点生气和期盼
+
+心情反而好了起来
+
+
+-----
+
+####  wuzhengkai  
+##### 3493#       发表于 2021-6-30 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796796&amp;ptid=1972669" target="_blank">opersuper 发表于 2021-6-30 23:25</a>
+
+tskk明天葬礼要是没露露同接sc高我就骂杏奴屁用没有</blockquote>
+想多了 搞不好能破30w呢
+
+
+-----
+
+####  wuzhengkai  
+##### 3494#       发表于 2021-6-30 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796957&amp;ptid=1972669" target="_blank">free 发表于 2021-6-30 23:45</a>
+
+https://twitter.com/KizunaAIinc/status/1410217231393312770
+
+老爱今天生日会的三项发表，虽然黑爱这个没 ...</blockquote>
+黑爱昨天发了踊的翻唱 但说实话唱的我不是很满意
+
+
+-----
+
+####  free  
+##### 3495#       发表于 2021-7-1 00:06
+
+
+杏的地址不是都写清楚了吗，不知道有没有顺着这个地址去找烂货圆脸狠狠打她一顿的
+
+〒173-0003
+
+東京都板橋区加賀1丁目6番1号
+
+ネットデポ新板橋
+
+カバー株式会社　
+
+
+另外关于明天的数字可以大胆点，kson这个月涨了30多万粉了，这些人有一半明天来出殡，再加上杏箱推和看热闹的路人就足够破纪录了。要放卫星就放个大的，我预测明天30万同接3000万SC！
+
+
+-----
+
+####  asdhai  
+##### 3496#       发表于 2021-7-1 00:10
+
+
+什么，原来也是stk干的好事吗。真是高危职业了
+
+
+-----
+
+####  渡鸦骑士  
+##### 3497#       发表于 2021-7-1 00:12
+
+
+免费你好好看了四ID说了什么嘛……
+板桥区的是旧址。
+新办公场所在千代田区。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3498#       发表于 2021-7-1 00:14
+
+
+冷静下来一点想，露露今天反反复复说很喜欢做套皮直播员，不会歇一阵真再就业吧。只是从2434离职又不解决stk问题……
+
+
+-----
+
+####  空集  
+##### 3499#       发表于 2021-7-1 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51797180&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-7-1 00:14</a>
+冷静下来一点想，露露今天反反复复说很喜欢做套皮直播员，不会歇一阵真再就业吧。只是从2434离职又不解决st ...</blockquote>
+这不是最后致辞或者不能当真的话么。。我是觉得人家就是要回归本体了
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  CielChloe  
+##### 3500#       发表于 2021-7-1 00:22
+
+
+关于喜欢直播，其实怎么解读都可以，除了stk以外总会有人发散别的毕业原因，所以她表示不是自己不想干这行了，而是外部原因之类的，也说得通
+
+
+-----
+
+####  nonecat  
+##### 3501#       发表于 2021-7-1 00:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796662&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-6-30 23:12</a></blockquote>
+她真好
+
+
+                                              

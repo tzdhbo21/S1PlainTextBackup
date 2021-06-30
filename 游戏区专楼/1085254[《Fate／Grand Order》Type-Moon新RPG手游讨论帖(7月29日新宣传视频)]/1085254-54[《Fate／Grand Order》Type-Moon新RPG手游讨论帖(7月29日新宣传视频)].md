@@ -163,3 +163,87 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  千叶铁矢  
+##### 79510#       发表于 2021-6-30 22:39
+
+
+掉了个礼装，113有点难，4加成打得了
+
+
+-----
+
+####  alucardcz  
+##### 79511#       发表于 2021-6-30 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51796327&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-6-30 22:39</a>
+
+掉了个礼装，113有点难，4加成打得了</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202106/30/225314nmk4jyythsx41zyk.png" referrerpolicy="no-referrer">
+
+
+<strong>11111.png</strong> (234.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-30 22:53 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6加成稳定3t  就是要换人
+
+
+-----
+
+####  黑上シグマ  
+##### 79512#       发表于 2021-6-30 23:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本月船票出凯尼斯了，大胜利
+
+
+-----
+
+####  khxooo  
+##### 79513#       发表于 2021-6-30 23:07
+
+
+金钻头，算是可以。
+
+
+-----
+
+####  alucardcz  
+##### 79514#       发表于 2021-6-30 23:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">10护符挑战尼禄无事发生 这合理吗 萌新只是想要个new而已
+
+
+-----
+
+####  exiaexa  
+##### 79515#       发表于 2021-6-30 23:24
+
+
+换人不存在的
+
+在阿特拉斯衣服满级前我宁愿上满破宝石
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79516#       发表于 2021-7-1 00:30
+
+
+教授闪闪洗牌服轻松六加成不换人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
