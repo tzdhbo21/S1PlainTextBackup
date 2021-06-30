@@ -6941,3 +6941,33 @@ https://twitter.com/KizunaAIinc/status/1410217231393312770
 
 
                                               
+
+-----
+
+####  free  
+##### 3502#       发表于 2021-7-1 00:59
+
+
+今天也是店长毕业的日子，也没个毕业直播就“回归电子之海”了，不过反正说是休止，留个念想吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/005916f5koghboudj8uhga.png" referrerpolicy="no-referrer">
+
+
+<strong>ame.png</strong> (17.22 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 00:59 上传
+
+
+-----
+
+####  OldGlory  
+##### 3503#       发表于 2021-7-1 01:13
+
+
+鲨皇297万了，可以不用再战斗了。
+
+
+                                                 
