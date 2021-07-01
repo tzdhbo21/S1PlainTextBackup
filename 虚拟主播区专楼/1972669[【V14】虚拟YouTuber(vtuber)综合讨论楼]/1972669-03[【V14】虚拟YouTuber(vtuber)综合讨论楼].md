@@ -8895,3 +8895,121 @@ tskk毕业理由说了么？
 
 
                                             
+
+-----
+
+####  qq845629713  
+##### 3666#       发表于 2021-7-1 22:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> KING在和今天曝光和enako交往的那位R6职业哥玩COD，
+
+
+-----
+
+####  opersuper  
+##### 3667#       发表于 2021-7-1 22:54
+
+
+2000的头像什么时候出道啊，这皮还蛮喜欢的
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|彩虹崩了那天吧，|
+
+
+查看全部评分
+
+
+-----
+
+####  alcoholic1000  
+##### 3668#       发表于 2021-7-1 23:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51808755&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-1 22:53</a>
+
+KING在和今天曝光和enako交往的那位R6职业哥玩COD，</blockquote>
+这位是你虹老熟人了，来教过耳毛海牛R6的（还夸了海牛有天赋）
+
+往更远追溯是叶师傅老熟人，当年在PUBG认识的父ノ背中プロ，算是在DTN和CR之前就和虹有过联系，他们集团还有个人是美夜子推。
+
+对けんき印象深刻还是因为他滔滔不绝似海的下ネタ<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|你虹和职业哥真的总有那么千丝万缕的联系.|
+
+
+查看全部评分
+
+
+-----
+
+####  sonyjam  
+##### 3669#       发表于 2021-7-1 23:23
+
+
+牙白啊牙白<img src="https://p.sda1.dev/2/10b1b05039412fe422f1d045d389a395/IMG_CMP_196087201.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  shpdw  
+##### 3670#       发表于 2021-7-1 23:29
+
+
+<img src="https://i.loli.net/2021/07/01/9arUgk4J6uNXxZW.png" referrerpolicy="no-referrer">
+
+
+相信虹的新人电波女会带领我们走向胜利。
+
+常年住在nico ranking，被说成像月之美兔、卯月辉、悠木碧的女人，一定会创造新的时代吧。<img src="https://static.saraba1st.com/image/smiley/face2017/160.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|是被nico民爱着的粉毛呢|
+
+
+查看全部评分
+
+
+-----
+
+####  ESAKA!!!!  
+##### 3671#       发表于 2021-7-1 23:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807663&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-7-1 21:22</a>
+两个销售一个砸了另一个的大单，说有恨很正常，但不至于要你死我活就是了。
+
+
+最草的现实里这两个销售最多也 ...</blockquote>
+甚至以前销售c还帮销售a调整过心态，怎么说呢，销售a今天的心情应该是恩恩怨怨随风而逝吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
