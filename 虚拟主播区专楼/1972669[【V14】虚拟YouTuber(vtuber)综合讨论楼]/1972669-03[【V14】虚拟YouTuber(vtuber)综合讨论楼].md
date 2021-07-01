@@ -9203,3 +9203,25 @@ KING在和今天曝光和enako交往的那位R6职业哥玩COD，</blockquote>
 
 
                                                  
+
+-----
+
+####  flyskywalker92  
+##### 3688#       发表于 2021-7-2 03:38
+
+
+静凛之前的RKS怎么没后续了 刚刚看静凛和叶都自闭塔科夫
+
+
+-----
+
+####  马尔马拉海  
+##### 3689#       发表于 2021-7-2 04:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51810780&amp;ptid=1972669" target="_blank">flyskywalker92 发表于 2021-7-2 03:38</a>
+静凛之前的RKS怎么没后续了 刚刚看静凛和叶都自闭塔科夫</blockquote>
+静凛这塔科夫血压真是看高了，野哥任务没完就吃了俩俄粮，饼干面包块一律不捡，一包都是几千卢布的垃圾枪配件，但是这个键位熟悉度又不是什么初见，感觉yhm玩游戏也就是这种风格了
+
+
+                                                 
