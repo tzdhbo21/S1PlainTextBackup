@@ -3855,3 +3855,37 @@ mmr不还可以看批站切片吗🤣那个什么对谈本质就是长辈搁那�
 
 
                                                  
+
+-----
+
+####  nowaki  
+##### 6322#       发表于 2021-7-2 00:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51809616&amp;ptid=1947500" target="_blank">面具13 发表于 2021-7-2 00:03</a>
+
+上次喊会长是多久前我都记不起来了。当初ark单人部落的事情，明明是事先和coco商量过的，但是出事后coco也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">coco 现在在夸宝直播间还是屏蔽词吧
+
+
+-----
+
+####  Scardy  
+##### 6323#       发表于 2021-7-2 00:53
+
+
+希望夸能多播点<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  梅斯之围  
+##### 6324#       发表于 2021-7-2 00:59
+
+
+预感到日后的节奏肯定还是不会停的。这段时间看外面社区的节奏，多少有种年轻人的第一款梁木的感觉
+但是是不是有点太看得起冲蝗人了。去和4v组建个冲夸统一战线还有点戏，一个立牌坊一个黑屁，唱红白脸，起到的效果是一样的。
+不过目前至少对事业民来说没啥可担心，出道时的梦想实现之后也依旧能靠工商live找找存在感。倒是盼杏归盼凛归的该入土的入土<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 

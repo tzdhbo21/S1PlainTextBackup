@@ -9082,3 +9082,82 @@ KING在和今天曝光和enako交往的那位R6职业哥玩COD，</blockquote>
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 3679#       发表于 2021-7-2 01:01
+
+
+ 本帖最后由 IDIDIDID 于 2021-7-2 01:04 编辑 
+
+小蜜蜂中之人刚才发了一个很厉害的推，然后删掉了。2434到底怎么回事。
+
+根据记忆翻译：
+
+虽然公司傻逼但是不上班没饭吃也没人依靠所以被搞抑郁了也没法辞职。
+
+
+-----
+
+####  昆西昆希昆  
+##### 3680#       发表于 2021-7-2 01:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51809134&amp;ptid=1972669" target="_blank">sonyjam 发表于 2021-7-1 23:23</a>
+
+牙白啊牙白</blockquote>
+好消息是虹人不喜玩大逃杀那一套
+
+
+-----
+
+####  空集  
+##### 3681#       发表于 2021-7-2 01:04
+
+
+不知道发了啥  但是中人推感觉看了没屁意义 yhm稍微不开心就发的要马上毕业似的
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  patema  
+##### 3682#       发表于 2021-7-2 01:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51810181&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-7-2 01:01</a>
+
+小蜜蜂中之人刚才发了一个很厉害的推，然后删掉了。2434到底怎么回事。
+
+根据记忆翻译：
+
+虽然公司傻逼但是不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">这么哈宁
+
+
+-----
+
+####  OldGlory  
+##### 3683#       发表于 2021-7-2 01:11
+
+
+这才哪到哪啊，花音酱和hero发的不比这厉害<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3684#       发表于 2021-7-2 01:12
+
+
+后面其实还跟了一条，我还没看就没了。
+
+
+删了之后新发的👇： <blockquote>12m
+
+私に酷いことした人達にカレー味のうんこ食わす想像で乗り切りきります。</blockquote>
+
+
+                                                 

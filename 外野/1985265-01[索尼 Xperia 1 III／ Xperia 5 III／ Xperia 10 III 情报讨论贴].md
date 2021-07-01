@@ -9502,3 +9502,23 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  我很费纸  
+##### 671#       发表于 2021-7-2 00:58
+
+
+在三代专楼里吐槽一下二代好了，最近的更新有点神奇啊……第一次见索尼把温度墙放宽到这么高，瞬时温度第一次见能冲上90度，可喜可贺
+
+<img src="https://p.sda1.dev/2/5708e59831434d9cd01747bcdea96fad/IMG_CMP_116289803.png" referrerpolicy="no-referrer">
+
+虽然实际打游戏，持续温度墙还是那样，60度控温，基本上原神高渲染低阴影中特效50多帧波动，激烈场景掉到30多帧，但基本算能玩。不嫌麻烦套个散热背夹能稳50多帧——折腾这么多不如直接打开电脑爽了，手机依然还是太勉强。
+
+<img src="https://p.sda1.dev/2/f3edb63f1e15c6e704712c35194fa5e7/IMG_CMP_173782183.png" referrerpolicy="no-referrer">
+
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
