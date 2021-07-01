@@ -16231,3 +16231,136 @@ WT在SBS回应过，橡胶JJ的确可以变大
 
 
                                                  
+
+-----
+
+####  athena_1982  
+##### 55365#       发表于 2021-7-1 15:16
+
+
+看来是要进入捉对厮杀的剧情了，等六子+三灾全部扑街之后镜头才会转回路飞吧。
+
+尾田剧情排列顺序真赞，把最容易的一仗放在第一，后面才会渐渐紧张起来。估计最后才是卓洛吧
+
+福斯福啊福斯福，真不是你弱，实在是因为甚平太强了
+
+感觉甚平就算打大看板或者将星胜率也很大嘛
+
+
+-----
+
+####  Yeaha123  
+##### 55366#       发表于 2021-7-1 15:49
+
+
+铁块吃投技，指铳吃防反
+
+
+-----
+
+####  klzxs  
+##### 55367#       发表于 2021-7-1 16:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这谁是谁完全打不过啊
+
+指铳戳甚平还给自己搞骨折了
+
+蛋糕岛之后路飞应该是更强了
+
+鱼人岛时期我觉得甚平大概比路飞还厉害点
+
+
+-----
+
+####  汤圆です  
+##### 55368#       发表于 2021-7-1 16:45
+
+
+骨折太生草了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  darkjack  
+##### 55369#       发表于 2021-7-1 17:06
+
+
+前有山治骨裂，这又来个骨折的，笑死了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  saturnus  
+##### 55370#       发表于 2021-7-1 19:36
+
+
+感觉蓝胖最后还是会对上Jack，同族之战决定谁是最强鱼人族，狗在不是月狮状态下大概率打不过Jack，被打败后甚平对位接上也还算合理<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+谁是谁这个古代种至少还能再起一次，下个对手大概率乌神，相比较惹不起的五皇和打不过的蓝胖，乌神因为他爹的关系说不定更能刺激谁是谁的G point<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  tyauto  
+##### 55371#       发表于 2021-7-1 20:32
+
+
+罗杰的刀也是无上大快刀。名称居然叫“艾斯”，那么现在12无上大快刀已知四把，鹰眼的黑刀夜，白胡子的从云切，持有者未知的初代鬼彻，罗杰的艾斯，按尾田的设定强迫症红发的格里芬基本也是无上大快刀
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/203229efics8mcu8mm806s.jpg" referrerpolicy="no-referrer">
+
+
+<strong>124e12rf12ftg12gf.jpg</strong> (71.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 20:32 上传
+
+
+-----
+
+####  神隐の馒头  
+##### 55372#       发表于 2021-7-1 21:55
+
+
+如果我没记错这应该是甚平加入草帽团的第一次1v1干部战吧。首战当然得是大获全胜，付师傅估计爬不起来了，对他面具下的脸也突然不感兴趣了。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+ps虽然如此付师傅的表现力也太拉了，一顿操作猛如虎，百般武艺全刮痧，手指头戳人家自己倒折了。不过也是，甚平梅花皮一开大妈破破刃都砍不进，这就是前七武海的含金量吗。<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  宅之猴晒阴  
+##### 55373#       发表于 2021-7-1 21:59
+
+
+之前人鱼岛搞了个和阿龙差不多的货色做BOSS，现在又搞了个和路奇差不多得货色当小BOSS，这反派真是越活越回去了。
+
+
+-----
+
+####  小野寺熊介  
+##### 55374#       发表于 2021-7-1 22:05
+
+
+甚平有点危险
+
+因为不可能一话就打完
+
+fzf还有个动物系觉醒跟六式奥义没拿出来
+
+但甚平已经拿出新招了，还是奥义……
+
+
+-----
+
+####  24k纯帅  
+##### 55375#       发表于 2021-7-1 22:17
+
+
+fzf这手指都废了完全是被碾压<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+                                                 

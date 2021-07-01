@@ -471,3 +471,102 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79536#       发表于 2021-7-1 16:01
+
+
+试了一下，摩根+教授+鹤更稳，好友Caber就行
+
+1面必爆，所有衣服随便穿想练什么练什么
+
+
+硬要说有什么问题的话，对打手宝具要求有点高……
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79537#       发表于 2021-7-1 16:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51801786&amp;ptid=1085254" target="_blank">johnkamsar 发表于 2021-7-1 13:02</a>
+
+感觉到你游戏强度差别了，宇宙凛无倍卡直接9t车翻师匠二人组</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前面小怪不算的话 有没有倍卡武师傅不都是1回合
+
+
+-----
+
+####  khxooo  
+##### 79538#       发表于 2021-7-1 16:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51803779&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-1 16:04</a>
+前面小怪不算的话 有没有倍卡武师傅不都是1回合</blockquote>
+我用你的武师傅翻过一次<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79539#       发表于 2021-7-1 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51804283&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-1 16:44</a>
+
+我用你的武师傅翻过一次</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开场直接秒了 怎么翻啊 没翻车点啊
+
+
+-----
+
+####  千叶铁矢  
+##### 79540#       发表于 2021-7-1 17:53
+
+
+果不其然,bx顶着血铠把飞哥杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79541#       发表于 2021-7-1 18:09
+
+
+用黑A直接一枪搞掂<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 79542#       发表于 2021-7-1 18:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">用小黑带拉妮礼装把飞哥打死了
+
+
+-----
+
+####  johnkamsar  
+##### 79543#       发表于 2021-7-1 20:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51803779&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-1 16:04</a>
+前面小怪不算的话 有没有倍卡武师傅不都是1回合</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">难点其实就是小怪....
+
+
+-----
+
+####  khxooo  
+##### 79544#       发表于 2021-7-1 21:22
+
+
+差不多45池，暂时自然回体了。
+
+
+                                                 

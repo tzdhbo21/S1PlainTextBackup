@@ -6238,3 +6238,19 @@ KONAMI AND BLOOBER TEAM ANNOUNCE PARTNERSHIP AMID SILENT HILL LINKS
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 474#       发表于 2021-7-1 19:46
+
+
+Abandoned: Realtime Trailers
+
+🟥 Download Size : 1.982 GB
+
+[https://twitter.com/PlaystationSize/status/1410407691059707904](https://twitter.com/PlaystationSize/status/1410407691059707904)
+大的💊来了
+
+
+                                                 

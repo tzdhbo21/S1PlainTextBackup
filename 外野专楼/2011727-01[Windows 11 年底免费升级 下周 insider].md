@@ -5296,3 +5296,76 @@ https://www.cnbeta.com/articles/tech/11 ...</blockquote>
 
 
                                                  
+
+-----
+
+####  liangbo103  
+##### 441#       发表于 2021-7-1 16:48
+
+
+我也升级为dve版本了，想问下这个版本以后可以直接升级为正常版本吗？
+
+
+-----
+
+####  喵喵叫的猫  
+##### 442#       发表于 2021-7-1 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51804326&amp;ptid=2011727" target="_blank">liangbo103 发表于 2021-7-1 16:48</a>
+我也升级为dve版本了，想问下这个版本以后可以直接升级为正常版本吗？</blockquote>
+不能 需要全新安装
+
+
+-----
+
+####  喵喵叫的猫  
+##### 443#       发表于 2021-7-1 16:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51804326&amp;ptid=2011727" target="_blank">liangbo103 发表于 2021-7-1 16:48</a>
+我也升级为dve版本了，想问下这个版本以后可以直接升级为正常版本吗？</blockquote>
+不能 需要全新安装
+
+
+-----
+
+####  V5Style  
+##### 444#       发表于 2021-7-1 17:08
+
+
+新版文件资源管理器在切换文件夹时总比旧版慢一拍。<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  megamix  
+##### 445#       发表于 2021-7-1 17:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51804512&amp;ptid=2011727" target="_blank">V5Style 发表于 2021-7-1 17:08</a>
+新版文件资源管理器在切换文件夹时总比旧版慢一拍。</blockquote>
+我也是觉得这点是最大的问题，其他忍忍都还好
+
+—— 来自 samsung SM-G9550, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  雪影  
+##### 446#       发表于 2021-7-1 17:58
+
+
+怎么激活？VM装的，HWID，KMS，都激活不了
+
+
+-----
+
+####  pigbayspy  
+##### 447#       发表于 2021-7-1 19:12
+
+
+我觉得任务栏属实有点高了
+
+
+                                                 

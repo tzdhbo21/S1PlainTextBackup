@@ -8941,3 +8941,57 @@ vivy治好了我的长月达**tsd，但没完全治好。
 
 
                                                  
+
+-----
+
+####  Piano-Forest  
+##### 2179#       发表于 2021-7-1 17:14
+
+
+[https://twitter.com/gazo10speed/status/1410140300270391298](https://twitter.com/gazo10speed/status/1410140300270391298)
+<img src="https://p.sda1.dev/2/304865ddf3c3394788a971d5dfb36087/E5HTFcDVoAEu-QR.jpg" referrerpolicy="no-referrer">
+
+
+【Blu-ray＆DVD情報】
+
+「Vivy -Fluorite Eye's Song-」Blu-ray＆DVD第2巻のジャケットイラストを公開いたしました。
+
+7月28日（水）発売です！どうぞお楽しみに！
+
+
+▼商品情報はこちら
+[https://vivy-portal.com/bddvd/](https://vivy-portal.com/bddvd/)
+<img src="https://p.sda1.dev/2/b131e494cbcb25252f484e8dbf111ad9/E5Hcns9UYAEIB9G.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Gooddays  
+##### 2180#       发表于 2021-7-1 21:34
+
+
+ 本帖最后由 Gooddays 于 2021-7-1 21:56 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51701518&amp;ptid=1982987" target="_blank">妄想中毒 发表于 2021-6-22 20:00</a>
+现实里政府和军队之类的部门都是独立网络根本不可能随便被一个公网的服务器给黑掉所有机器人，真出 ...</blockquote>
+军队可能正在跟其他 AI 战斗，即使军队内的 AI 没被黑，军队外是数以十万什至百万计的敌方 AI，再加上军方及政府完全不知道敌人首脑是谁，那时整件事可能只发生了半天，连分析的时间也没有吧。如非刚好反派选了 Vivy 当关键人物，可能到最后也没人知道主谋是 AI，因为不能排除有人类黑客搞事。
+
+另一方面网络受 AI 控制，反 AI 组织想联繫上自己人也不容易。加上发现 Boss 的团体还是非法组织，要联繫军队让他们信任非常困难，反 AI 组织也不见得有在那情况下联繫政府及军队的手段，在这情况下唯一确定敌人身份及作出行动便只有反 AI 组织吧了。
+
+
+-----
+
+####  Gooddays  
+##### 2181#       发表于 2021-7-1 21:45
+
+
+ 本帖最后由 Gooddays 于 2021-7-1 21:55 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51702279&amp;ptid=1982987" target="_blank">MASKA-1 发表于 2021-6-22 21:00</a>
+ai失控后完全没有出现人类正规军，就只有平民被乱杀，以及小分队用手枪和ai互怼 ...</blockquote>
+女主他们所在地是平民区，一般离军营颇远，而故事发生时间可能只有半天，除非女主所在位置是非常重要设施，否则军队也只能在面对数之不尽的敌人时，一边救人一边打倒 AI 慢慢推进。除非有确定目标可以有理由无视对四周平民的救助，否则在那可能不到半天的时间内军队很难跑到平民区。
+
+至少在确定敌方是谁时，军队首要保护重要设施，很难去平民地带。特别是那时全世界也乱起来，即使赶去平民区也不一定选女主那区。
+
+另一方面那反AI组织自然设立在远离政府军队的地方，在那短时间内能看到军队才是怪事。
+
+
+                                                 

@@ -7226,3 +7226,1672 @@ slee这企划留着到底还有什么意义<img src="https://static.saraba1st.co
 
 
                                                  
+
+-----
+
+####  purdre  
+##### 3525#       发表于 2021-7-1 13:45
+
+
+捐给的孤儿院，符合RP
+
+之前搞的那个猜拳大会他自己出奖金也是100万吧好像？看来真的是至少不差钱
+
+
+-----
+
+####  purdre  
+##### 3526#       发表于 2021-7-1 13:47
+
+
+说起来他观众民度还挺好的，之前投票竟然这么大的基数居然能投成50/50，据说最终结果只差2票
+
+
+-----
+
+####  winsloven  
+##### 3527#       发表于 2021-7-1 15:13
+
+
+萌新发问，有关于木口的长文多图（50图左右）发去哪里？发楼外面自己盖个新楼嘛？
+
+
+-----
+
+####  TiHaru  
+##### 3528#       发表于 2021-7-1 15:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51803178&amp;ptid=1972669" target="_blank">winsloven 发表于 2021-7-1 15:13</a>
+萌新发问，有关于木口的长文多图（50图左右）发去哪里？发楼外面自己盖个新楼嘛？ ...</blockquote>
+日文标题那个是木口楼，不过注意：禁止发布B站、微博、中文推文和NGA的截图及链接
+
+估计你只能自己建楼了
+
+
+-----
+
+####  free  
+##### 3529#       发表于 2021-7-1 15:17
+
+
+森仓圆新女儿出道
+
+[https://www.youtube.com/channel/UCpjB41cfRYglxskhHNo-BQQ](https://www.youtube.com/channel/UCpjB41cfRYglxskhHNo-BQQ)
+[https://twitter.com/morikuraen/status/1410481067891462145](https://twitter.com/morikuraen/status/1410481067891462145)
+
+
+シオノギ製薬さん初のバーチャル社員、『シオノギ カナデ』ちゃんのキャラクターデザインを担当いたしました！耳机
+
+これからの活動が楽しみ！！
+
+みなさま応援よろしくお願いします闪片
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/151728nnaohl6ljllhxsv2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.jpg</strong> (201.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 15:17 上传
+
+
+-----
+
+####  Vneet  
+##### 3530#       发表于 2021-7-1 16:06
+
+
+ 本帖最后由 Vneet 于 2021-7-1 16:08 编辑 
+
+シオノギ製薬（塩野義製薬） ？药企V之前也有一个，名字一下没想起来…哦。乐敦制药的根羽清 心。
+
+
+-----
+
+####  noHentai  
+##### 3531#       发表于 2021-7-1 16:45
+
+
+ 本帖最后由 noHentai 于 2021-7-1 16:57 编辑 
+
+也算是一次数据试验了，平均同接十多万能达成半天多200万+点击，V juan最速。
+
+甲子园决赛平均同接差不多，配信时间更长，但一天过去也就一百多万点击。
+
+露露的白皮后劲有丶猛
+<img src="https://p.sda1.dev/2/53bc3386cb75fe38761c1a8272009463/image.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 3532#       发表于 2021-7-1 16:49
+
+
+管人已经变成国际形势的一部分了
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/164931s7gcbc7pv477et22.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E5Be71iUcAI0CBe.jpg</strong> (607.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 16:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/164931hxarvrwyyycsryrw.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E5Be8a7UUAARrNz.jpg</strong> (222.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 16:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/164931jbs3g2qlslu24pum.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E5Be8y_VEAcvNng.jpg</strong> (219.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 16:49 上传
+
+
+-----
+
+####  qq845629713  
+##### 3533#       发表于 2021-7-1 16:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你楼怎么和小孩似的，前脚吹露露在404影响力大，后脚就吹coco氏在国际上影响力大，
+
+
+我是不是吹葛尊在M78星云影响力更大才合适啊
+
+
+-----
+
+####  OldGlory  
+##### 3534#       发表于 2021-7-1 17:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">说明v圈蒸蒸日上，一天比一天好
+
+
+-----
+
+####  qq845629713  
+##### 3535#       发表于 2021-7-1 17:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 其实今天enako和职业哥同居两年的事实被文春炮，
+
+
+让我心中突然想起了同样是郎才女貌，一个擅长fps，一个擅长唱歌跳舞，而且两人都在油管有频道，订阅还不低，男方年收入也非常高，
+
+
+不禁有种别样的既视感，
+
+
+-----
+
+####  free  
+##### 3536#       发表于 2021-7-1 17:10
+
+
+ 本帖最后由 free 于 2021-7-1 17:12 编辑 
+
+[https://twitter.com/ZER0Project/status/1410523964997201923](https://twitter.com/ZER0Project/status/1410523964997201923)
+
+如此直白的说，毕业是因为有了男朋友，也挺好的......
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/171013k6k0l6kk6ta3vrvy.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (47.47 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 17:10 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/171220efe9nk4kkj54zejy.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (56.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 17:12 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| hulaoda007| + 1|挺好的|
+| pliee| + 1|前几天直播还在说呢，好快|
+| sgssk| + 1|熊姐还是实现了她的承诺|
+
+
+查看全部评分
+
+
+-----
+
+####  rzrbtk  
+##### 3537#       发表于 2021-7-1 17:53
+
+
+这位偶尔搞的等日出直播还蛮浪漫人的，恭喜恭喜
+
+
+-----
+
+####  IDIDIDID  
+##### 3538#       发表于 2021-7-1 17:59
+
+
+2434公式已经把露露下了
+
+
+-----
+
+####  free  
+##### 3539#       发表于 2021-7-1 18:03
+
+
+[https://www.youtube.com/watch?v=IhiievWaZMI](https://www.youtube.com/watch?v=IhiievWaZMI)
+
+卒業。　#桐生ココ卒業LIVE #GoodbyeCoco
+
+
+还有1小时，准备好见证历史了<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  咲喵  
+##### 3540#       发表于 2021-7-1 18:05
+
+
+最近怎么事情都连着的，大的要来了
+
+
+
+
+-----
+
+####  空集  
+##### 3541#       发表于 2021-7-1 18:16
+
+
+露露这在s1路人缘有点超出我想象，隔壁专楼一些只在外野见过的人还行
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  渡鸦骑士  
+##### 3542#       发表于 2021-7-1 18:26
+
+
+露露的路人缘很恐怖的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  哈曼的YY  
+##### 3543#       发表于 2021-7-1 18:46
+
+
+专楼还是我刚喜欢上后捞上来的<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer"> 观众都是静默无声系的 nga偶尔还有人发下直播消息 不过也差不多
+
+
+-----
+
+####  alcoholic1000  
+##### 3544#       发表于 2021-7-1 18:49
+
+
+想上来说熊野ぽえみ找到对象毕业了，已经有人发了
+
+还挺好
+
+
+-----
+
+####  真飞鸟i  
+##### 3545#       发表于 2021-7-1 18:57
+
+
+tskk这开播前就10w等待了啊
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  心垂万刃  
+##### 3546#       发表于 2021-7-1 18:58
+
+
+12w+人等待<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3547#       发表于 2021-7-1 18:59
+
+
+直播员自爆这招真TM好使，可是你家直播员储备比不上隔壁啊yagoo<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 3548#       发表于 2021-7-1 18:59
+
+
+14w等待
+
+
+-----
+
+####  IDIDIDID  
+##### 3549#       发表于 2021-7-1 19:01
+
+
+20W了，鲨宝我的鲨宝
+
+
+-----
+
+####  nowaki  
+##### 3550#       发表于 2021-7-1 19:01
+
+
+21w记录l
+
+
+-----
+
+####  心垂万刃  
+##### 3551#       发表于 2021-7-1 19:01
+
+
+21万人等待，直接秒了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 3552#       发表于 2021-7-1 19:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 50w有戏
+
+
+-----
+
+####  真飞鸟i  
+##### 3553#       发表于 2021-7-1 19:03
+
+
+什么幻想崩坏，这是把剑鞘炸了吗
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Suny08  
+##### 3554#       发表于 2021-7-1 19:03
+
+
+可以让我看一眼100w吗，这可能是仅存的机会了
+
+
+-----
+
+####  katern  
+##### 3555#       发表于 2021-7-1 19:03
+
+
+没想到记录是这样破的<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 3556#       发表于 2021-7-1 19:04
+
+
+23w 23w
+
+
+-----
+
+####  katern  
+##### 3557#       发表于 2021-7-1 19:05
+
+
+27w了，妈呀
+
+
+-----
+
+####  qq845629713  
+##### 3558#       发表于 2021-7-1 19:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 轻取28w
+
+
+-----
+
+####  真飞鸟i  
+##### 3559#       发表于 2021-7-1 19:06
+
+
+这还是周四有debuff以及白皮时间相对不行的情况下。也许能看看杏的微活跃观众有多少了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  nowaki  
+##### 3560#       发表于 2021-7-1 19:06
+
+
+感觉40w打不住
+
+
+-----
+
+####  IDIDIDID  
+##### 3561#       发表于 2021-7-1 19:07
+
+
+30W
+
+
+-----
+
+####  nowaki  
+##### 3562#       发表于 2021-7-1 19:09
+
+
+32w了
+
+
+-----
+
+####  咸鱼无双  
+##### 3563#       发表于 2021-7-1 19:09
+
+
+ 本帖最后由 咸鱼无双 于 2021-7-1 19:11 编辑 
+
+这下面英语字幕是holo自带的吗？
+
+我应该没开语言识别字幕啊
+
+艹，录播，这也太不活跃气氛了吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3564#       发表于 2021-7-1 19:10
+
+
+录播
+
+
+-----
+
+####  IDIDIDID  
+##### 3565#       发表于 2021-7-1 19:11
+
+
+这不自爆确实不行👇六月单月
+
+<img src="https://img.saraba1st.com/forum/202107/01/191112g19dqkqypkyqpsi0.png" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Webpage Screenshot #158 - 'Most Super Chatted Channels in Worldwid.png</strong> (50.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 19:11 上传
+
+
+-----
+
+####  qq845629713  
+##### 3566#       发表于 2021-7-1 19:12
+
+
+34w 19点12分
+
+
+-----
+
+####  真飞鸟i  
+##### 3567#       发表于 2021-7-1 19:12
+
+
+别尬黑，2千万多给tskk发点新衣装也能达到的，不用自爆
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  渡鸦骑士  
+##### 3568#       发表于 2021-7-1 19:12
+
+
+怎么还有剪辑过度那么不自然的
+
+
+-----
+
+####  Suny08  
+##### 3569#       发表于 2021-7-1 19:15
+
+
+【急募】３０串棒を折れる大型企画
+
+
+-----
+
+####  IDIDIDID  
+##### 3570#       发表于 2021-7-1 19:20
+
+
+这下for the win win win了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  nowaki  
+##### 3571#       发表于 2021-7-1 19:21
+
+
+38w 阿夸！
+
+
+-----
+
+####  nowaki  
+##### 3572#       发表于 2021-7-1 19:22
+
+
+第一个讲话 这下百口莫辩了
+
+
+-----
+
+####  OldGlory  
+##### 3573#       发表于 2021-7-1 19:25
+
+
+龙夸最后的贴贴，太真了
+
+
+-----
+
+####  fgfg435  
+##### 3574#       发表于 2021-7-1 19:26
+
+
+夸夸，我的夸夸<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3575#       发表于 2021-7-1 19:28
+
+
+40W
+
+
+-----
+
+####  nowaki  
+##### 3576#       发表于 2021-7-1 19:28
+
+
+40w!
+
+
+-----
+
+####  qq845629713  
+##### 3577#       发表于 2021-7-1 19:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> gamers出场一瞬间40w，
+
+
+-----
+
+####  IDIDIDID  
+##### 3578#       发表于 2021-7-1 19:29
+
+
+看这增速没办法达到1/2 ND了
+
+
+-----
+
+####  シナモンロール  
+##### 3579#       发表于 2021-7-1 19:30
+
+
+最后的波纹啊…
+
+
+-----
+
+####  GarNoc  
+##### 3580#       发表于 2021-7-1 19:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">杏不愧是第一大箱
+
+
+-----
+
+####  越动天下  
+##### 3581#       发表于 2021-7-1 19:32
+
+
+杏不愧是第一大箱<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  katern  
+##### 3582#       发表于 2021-7-1 19:36
+
+
+ND有两个台的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+41w应该到峰值了
+
+
+-----
+
+####  死体残留  
+##### 3583#       发表于 2021-7-1 19:36
+
+
+en不是还没上么
+
+
+-----
+
+####  peh  
+##### 3584#       发表于 2021-7-1 19:37
+
+
+看了眼怎么连独轮车都没有。anti不站最后一班岗也配叫anti么
+
+
+-----
+
+####  FCCHua  
+##### 3585#       发表于 2021-7-1 19:39
+
+
+42万，然后降了<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  opersuper  
+##### 3586#       发表于 2021-7-1 19:40
+
+
+hololive始まったな<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nowaki  
+##### 3587#       发表于 2021-7-1 19:40
+
+
+anti忙着赢呢 134w关注才42w同接，笑嘻了
+
+
+-----
+
+####  noHentai  
+##### 3588#       发表于 2021-7-1 19:41
+
+
+管人跟动画销量似的，连着破纪录了
+
+
+-----
+
+####  opersuper  
+##### 3589#       发表于 2021-7-1 19:42
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/194208vsbs7izlyqshynz0.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (24.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 19:42 上传
+
+
+巅峰之后是。。。
+
+
+-----
+
+####  GarNoc  
+##### 3590#       发表于 2021-7-1 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">134万粉丝只有三分之一来看，又赢！
+
+
+-----
+
+####  alcoholic1000  
+##### 3591#       发表于 2021-7-1 19:45
+
+
+臣等正欲死战，陛下何故先降？！
+
+<img src="https://img.saraba1st.com/forum/202107/01/194532wwxf7asgjgrrfxjh.png" referrerpolicy="no-referrer">
+
+
+<strong>King？！.png</strong> (101.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 19:45 上传
+
+
+-----
+
+####  percy1234  
+##### 3592#       发表于 2021-7-1 19:48
+
+
+ 本帖最后由 percy1234 于 2021-7-1 19:50 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51806367&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-7-1 19:45</a>
+
+臣等正欲死战，陛下何故先降？！</blockquote>
+编辑 刷新一下又出来了
+
+
+-----
+
+####  虚无缥缈的光阴  
+##### 3593#       发表于 2021-7-1 19:49
+
+
+天下的hololive啊……虽然不喜欢tskk这个人，但是还是挺敬佩这数据的，几十万的人心聚齐来给人一种莫名的观感<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  winsloven  
+##### 3594#       发表于 2021-7-1 19:51
+
+
+EN! 43W了
+
+
+-----
+
+####  katern  
+##### 3595#       发表于 2021-7-1 19:51
+
+
+ 本帖最后由 katern 于 2021-7-1 20:01 编辑 
+
+tskk确实算是出圈了啊，这43w可不止v观众了
+
+
+syl  鲨皇没来？
+
+
+原来是一对一，牌面，不愧是新皇<img src="https://static.saraba1st.com/image/smiley/face2017/010.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winsloven  
+##### 3596#       发表于 2021-7-1 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51806447&amp;ptid=1972669" target="_blank">katern 发表于 2021-7-1 19:51</a>
+
+tskk确实算是出圈了啊，这43w可不止v观众了
+
+
+syl  鲨皇没来？</blockquote>
+懂了，是鲨皇逼走TSKK的。鲨桐不仲！
+
+
+-----
+
+####  シナモンロール  
+##### 3597#       发表于 2021-7-1 19:55
+
+
+gura现在在订阅榜首了。她现在是个明星了！现在吊的一笔，想和她说话都难，她把所有的同事都删了，而且给她发短信也不回。你只能通过律师才能联系上她，她把我们都关了。<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3598#       发表于 2021-7-1 19:59
+
+
+原来是安排了solo，第一人！含金量！
+
+
+-----
+
+####  GarNoc  
+##### 3599#       发表于 2021-7-1 19:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">鲨鱼居然1v1，排面啊，不愧是马上三金盾的大物
+
+
+-----
+
+####  pansherry  
+##### 3600#       发表于 2021-7-1 20:00
+
+
+阿葵在线耍阿喵喵，模仿骚鸟和青熊兽
+
+还有烤肉233
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 3601#       发表于 2021-7-1 20:02
+
+
+45W了，要是没上50W我就说四期P用没有
+
+
+-----
+
+####  シナモンロール  
+##### 3602#       发表于 2021-7-1 20:02
+
+
+我真的服了，临死还在惦记你那几把ark
+
+但是…好想回到那个ark满满的v综版本啊…哪怕被虹女粉骑脸输出，信者大战，黑屁小团体，编排小作文…
+
+已经回不去了<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winsloven  
+##### 3603#       发表于 2021-7-1 20:03
+
+
+阿，鲨皇下了就开始掉了。果然鲨皇才是同接密码！
+
+
+-----
+
+####  noHentai  
+##### 3604#       发表于 2021-7-1 20:10
+
+
+没想到今晚最大乐子在NGA<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sonyjam  
+##### 3605#       发表于 2021-7-1 20:11
+
+
+az<img src="https://p.sda1.dev/2/5209908a6a58b27ac96d6bac81ae1d28/-6849533ff0e53f30.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 3606#       发表于 2021-7-1 20:12
+
+
+无端感叹，elu这个新立绘真的好美女<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  马尔马拉海  
+##### 3607#       发表于 2021-7-1 20:13
+
+
+nga那帮太监版务直接开始锁禾洛全部楼了，你说要不要开个盘口，压禾洛何时进出叔叔的py<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3608#       发表于 2021-7-1 20:16
+
+
+真的假的，那免指导又要来你楼发疯了
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| yclkelvin| + 1|已经来了|
+| takitaki| + 1|欢乐多|
+| 屑屑代沟尼亚| + 1|什么预言家|
+
+
+查看全部评分
+
+
+-----
+
+####  mmbk  
+##### 3609#       发表于 2021-7-1 20:16
+
+
+get a life bro<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 3610#       发表于 2021-7-1 20:19
+
+
+贵物到什么时候都是贵物，蝗的棺材盖还没盖上呢，这就开始意淫杏回旋了？还好叔叔不会像贵物杏奴这么傻逼
+
+
+看你们不知道和你们说一声，今天100周年**讲话，特意提了“任何人都不要低估中国人民捍卫国家主权和领土完整的坚强决心、坚定意志、强大能力”
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 -2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 秋月孝三|-2|振聋发聩。啥时候冲了quizknock？.|
+| 狸狸狐| + 2|差不多得了|
+| nowaki|-2||
+
+
+查看全部评分
+
+
+-----
+
+####  渡鸦骑士  
+##### 3611#       发表于 2021-7-1 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51806858&amp;ptid=1972669" target="_blank">free 发表于 2021-7-1 20:19</a>
+
+贵物到什么时候都是贵物，蝗的棺材盖还没盖上呢，这就开始意淫杏回旋了？还好叔叔不会像贵物杏奴这么傻逼
+
+
+ ...</blockquote>
+提醒一下，叔叔是最傻逼的那个，没有之一
+
+免费是不是真的逆增长了，还信叔叔起来了<img src="https://static.saraba1st.com/image/smiley/face2017/012.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| シナモンロール| + 1|世界名画《被云宝处刑的免费》.|
+
+
+查看全部评分
+
+
+-----
+
+####  a37356205  
+##### 3612#       发表于 2021-7-1 20:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">热知识：
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/202404a0a0s6vouhhm5avt.png" referrerpolicy="no-referrer">
+
+
+<strong>2)STP_7ZTR8B9GU2PU9R[EG.png</strong> (15.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 20:24 上传
+
+
+-----
+
+####  alcoholic1000  
+##### 3613#       发表于 2021-7-1 20:25
+
+
+星川
+
+「休んでた理由は自分のせいではない」
+
+「ライバーの仕事関連ではない」
+
+「みんなを心配させるから理由は言わない」
+[ただいま。最近の話とプチお知らせ！寂しかった？](https://www.youtube.com/watch?v=bBt_DJ_DTZU)
+
+
+-----
+
+####  心垂万刃  
+##### 3614#       发表于 2021-7-1 20:27
+
+
+信晋元帝的我觉得才是真傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 3615#       发表于 2021-7-1 20:27
+
+
+今天是个好日子<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">（各种意义）
+
+
+-----
+
+####  nowaki  
+##### 3616#       发表于 2021-7-1 20:28
+
+
+居然有吹cr的 属于大开眼界了。免费是不是有b站股份啊？
+
+
+-----
+
+####  GarNoc  
+##### 3617#       发表于 2021-7-1 20:29
+
+
+虽然我也觉得不会回旋，但是信晋元帝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GarNoc  
+##### 3618#       发表于 2021-7-1 20:29
+
+
+虽然我也觉得不会回旋，但是信晋元帝<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シナモンロール  
+##### 3619#       发表于 2021-7-1 20:33
+
+
+典中典之《还好叔叔》，下午是谁拉了zdgy的闸啊？？？
+
+
+免费，你根本就没有作为中国人，不，是作为人的良心，你这条蛆
+
+
+-----
+
+####  katern  
+##### 3620#       发表于 2021-7-1 20:34
+
+
+有人急了，但我不说是谁<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  -みゆめ-  
+##### 3621#       发表于 2021-7-1 20:36
+
+
+杏的成长轨迹真的完全没想到，当初看V1的时候完全想不到杏会是最强
+
+
+-----
+
+####  free  
+##### 3622#       发表于 2021-7-1 20:40
+
+
+杏奴就继续意淫吧，反正过了今晚你们最爱的桐生可可就要永远不会再出现在网络上了，孝子们还不赶紧去kson直播间多打点红SC？
+
+
+-----
+
+####  暴走的包子  
+##### 3623#       发表于 2021-7-1 20:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">小免不评价下蝗毕业大典全员出席的盛况？
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  格林卡罗尔  
+##### 3624#       发表于 2021-7-1 20:42
+
+
+这50万同接不打广告浪费了啊，真没什么重大告知吗
+
+
+-----
+
+####  crito  
+##### 3625#       发表于 2021-7-1 20:42
+
+
+过了今晚，免佬最爱的凑阿夸就能出现在bilibili上了吧，crew们还不赶紧赶紧去aqua轮播间多打点舰长？
+
+
+-----
+
+####  OldGlory  
+##### 3626#       发表于 2021-7-1 20:44
+
+
+至少小免没忘记kson，下次开播别忘记去车啊<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  flyskywalker92  
+##### 3627#       发表于 2021-7-1 20:46
+
+
+冲蝗不就是holo版的遮羞布 蝗死了 版务直接炸 也挺好的
+
+
+-----
+
+####  rzrbtk  
+##### 3628#       发表于 2021-7-1 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51790987&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-6-30 13:50</a>
+
+我已经完全理解了</blockquote>
+终于...找到了...
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/204631nxa7l2cnx3x2m7ee.jpg" referrerpolicy="no-referrer">
+
+
+<strong>FireShot Capture 780 - (4) 「一緒にゴールしようね！」 → Twitterヘッダーで煽り合.jpg</strong> (39.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 20:46 上传
+
+
+-----
+
+####  winsloven  
+##### 3629#       发表于 2021-7-1 20:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807166&amp;ptid=1972669" target="_blank">格林卡罗尔 发表于 2021-7-1 20:42</a>
+
+这50万同接不打广告浪费了啊，真没什么重大告知吗</blockquote>
+这本身就是全社最大的广告了阿。所有人都吸了一大口龙落。发丧还接广告就太过了。这不挺好233
+
+
+-----
+
+####  昆西昆希昆  
+##### 3630#       发表于 2021-7-1 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51806936&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-7-1 20:25</a>
+
+星川
+
+「休んでた理由は自分のせいではない」
+
+「ライバーの仕事関連ではない」</blockquote>
+不会又是厄介粉吧
+
+
+
+
+-----
+
+####  opersuper  
+##### 3631#       发表于 2021-7-1 20:56
+
+
+加把劲50w吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">套皮管人的可能性を見せてくれ
+
+
+-----
+
+####  真飞鸟i  
+##### 3632#       发表于 2021-7-1 20:58
+
+
+结束了，49w收尾
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  nowaki  
+##### 3633#       发表于 2021-7-1 21:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 49w也太可惜了，50w的霸业就交给你了，凑阿夸！
+
+
+-----
+
+####  asdhai  
+##### 3634#       发表于 2021-7-1 21:02
+
+
+结束了啊……感慨
+
+
+-----
+
+####  真飞鸟i  
+##### 3635#       发表于 2021-7-1 21:02
+
+
+木口现在的箱力大概也就这样了，压榨到极致估计也就50出头。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  WDDzzZ  
+##### 3636#       发表于 2021-7-1 21:05
+
+
+任任E3也只有100W吧，半任虫皇令人感叹<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  秋月孝三  
+##### 3637#       发表于 2021-7-1 21:06
+
+
+全箱之力打不过手越。猴搂莱芜也就这样了
+
+
+-----
+
+####  opersuper  
+##### 3638#       发表于 2021-7-1 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807417&amp;ptid=1972669" target="_blank">真飞鸟i 发表于 2021-7-1 21:02</a>
+
+木口现在的箱力大概也就这样了，压榨到极致估计也就50出头。
+
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9 ...</blockquote>
+前两天还说holo才20w出头箱力呢，泥味转进速度和泥哥有一拼
+
+
+-----
+
+####  IDIDIDID  
+##### 3639#       发表于 2021-7-1 21:12
+
+
+说到回旋镖，A手出来之前大概还有千分之一的几率，A手出来之后直接寄了。叔叔手里现在有一个定位重合度超7成底子干净粉丝掏钱意愿无限大的国产3D偶像团体，你杏寄吧谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 3640#       发表于 2021-7-1 21:14
+
+
+反抗军（株） 全 员 迟 刻
+
+
+-----
+
+####  IDIDIDID  
+##### 3641#       发表于 2021-7-1 21:14
+
+
+魔乃：收！
+<img src="https://img.saraba1st.com/forum/202107/01/211332j2mllhcmcy9ey99r.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暴走的包子  
+##### 3642#       发表于 2021-7-1 21:16
+
+
+饭皇是吧
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alcoholic1000  
+##### 3643#       发表于 2021-7-1 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807217&amp;ptid=1972669" target="_blank">昆西昆希昆 发表于 2021-7-1 20:47</a>
+
+不会又是厄介粉吧</blockquote>
+应该没说（我也没认真听），不过ch里都在猜
+
+
+Syl，铲宝？
+
+
+6/30 九ちゃん実況者4人で誕生日パーティ
+
+九ちゃん「人と会うってなんかいいね…通話とかでは話してたけど久々に実際に人に会った…」
+
+MKR「人って一人だと簡単に壊れるからな」
+
+はんじょう「安心しろよ！俺ら絶対裏切らねえからよ！」
+
+カフェイン「そうだよ！裏切らねえよ！」
+
+はんじょう「いやお前が一番怪しいだろ、現状」
+
+
+↓翌日
+
+
+ましろ @mashiro2434 (2021/07/01 21:30:25)
+
+昨日今日お休みしてごめんね！
+
+明日は大事な告知と夜配信あるよー！！
+
+
+-----
+
+####  真飞鸟i  
+##### 3644#       发表于 2021-7-1 21:18
+
+
+tskk这个sc也1800w+算是vtb新高了，不过和同接一比就没啥震撼力了
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  OldGlory  
+##### 3645#       发表于 2021-7-1 21:18
+
+
+我看铲弟心态挺好的，套个皮就自己玩玩问题不大
+
+
+-----
+
+####  FCCHua  
+##### 3646#       发表于 2021-7-1 21:19
+
+
+3d披露快到他了，不知道是不是相关
+
+
+-----
+
+####  flyskywalker92  
+##### 3647#       发表于 2021-7-1 21:20
+
+
+所以龙夸到底啥关系 有crew能给个定案吗
+
+
+-----
+
+####  cheatdeath3  
+##### 3648#       发表于 2021-7-1 21:21
+
+
+ 本帖最后由 cheatdeath3 于 2021-7-1 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807535&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-7-1 21:12</a>
+
+说到回旋镖，A手出来之前大概还有千分之一的几率，A手出来之后直接寄了。叔叔手里现在有一个定位重合度超7 ...</blockquote>
+话不能说绝，西瓜羊头的切片都是几万的播放量。宣传机器一开，向路人吹吹"外网第一"和"50w同接"，然后发动杏奴控场不就完事了。百万王师盼杏归<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3649#       发表于 2021-7-1 21:22
+
+
+ 本帖最后由 IDIDIDID 于 2021-7-1 21:27 编辑 
+
+两个销售一个砸了另一个的大单，说有恨很正常，但不至于要你死我活就是了。
+
+
+最草的现实里这两个销售最多也就上班互相看到不打招呼而已，倒是这俩的客户打起来了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3650#       发表于 2021-7-1 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807650&amp;ptid=1972669" target="_blank">cheatdeath3 发表于 2021-7-1 21:21</a>
+
+话不能说绝，西瓜羊头的切片都是几万的播放量。宣传机器一开，向路人吹吹"外网第一"和"50w同接"，然后发 ...</blockquote>
+不是不可能，是没必要。进来也是和A手分蛋糕，叔叔还要担一堆风险。
+
+
+-----
+
+####  超能力者stven  
+##### 3651#       发表于 2021-7-1 21:25
+
+
+有竞争才有活力，合理
+
+
+-----
+
+####  Suny08  
+##### 3652#       发表于 2021-7-1 21:26
+
+
+<blockquote>pansherry 发表于 2021-7-1 21:14
+反抗军（株） 全 员 迟 刻</blockquote>
+刚工商完休息一会儿，等柴柴30万再播更好
+
+
+-----
+
+####  nowaki  
+##### 3653#       发表于 2021-7-1 21:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807637&amp;ptid=1972669" target="_blank">flyskywalker92 发表于 2021-7-1 21:20</a>
+
+所以龙夸到底啥关系 有crew能给个定案吗</blockquote>
+运营代发
+
+
+-----
+
+####  qq845629713  
+##### 3654#       发表于 2021-7-1 21:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 你虹最近工商是不是有点多，还有人播正常节目么？
+
+
+当初工商家族因为卖10w块钱的韩国显示器被骂的狗血淋头，现在这么多工商反而没人喷了，
+
+
+-----
+
+####  opersuper  
+##### 3655#       发表于 2021-7-1 21:30
+
+
+引进来也是和彩虹一样天天转播或者派底边来混，bxj没那么好对付了
+
+
+-----
+
+####  昆西昆希昆  
+##### 3656#       发表于 2021-7-1 21:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807637&amp;ptid=1972669" target="_blank">flyskywalker92 发表于 2021-7-1 21:20</a>
+
+所以龙夸到底啥关系 有crew能给个定案吗</blockquote>
+就不太熟的普通同事，被两边的粉丝绑架作为互踩的工具罢了
+
+
+-----
+
+####  空集  
+##### 3657#       发表于 2021-7-1 21:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807637&amp;ptid=1972669" target="_blank">flyskywalker92 发表于 2021-7-1 21:20</a>
+所以龙夸到底啥关系 有crew能给个定案吗</blockquote>
+<img src="https://p.sda1.dev/2/a18c58e09742905170f1b0611c0a8afc/-7d20bbdf80d5b328.jpg" referrerpolicy="no-referrer">
+夸夸其实也没什么  cncrew恶心
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  昆西昆希昆  
+##### 3658#       发表于 2021-7-1 21:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51807738&amp;ptid=1972669" target="_blank">opersuper 发表于 2021-7-1 21:30</a>
+
+引进来也是和彩虹一样天天转播或者派底边来混，bxj没那么好对付了</blockquote>
+我愿称1019为批小将启蒙运动<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  aptx318  
+##### 3659#       发表于 2021-7-1 21:37
+
+
+tskk毕业理由说了么？
+
+
+-----
+
+####  ヒトニナル  
+##### 3660#       发表于 2021-7-1 21:45
+
+
+话说回来やみえん也要和他的那一帮子实况者一起整一个MC服了，玩了一圈结果还是老朋友香吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  pansherry  
+##### 3661#       发表于 2021-7-1 21:47
+
+
+阿喵喵带着草莓大福犒劳反抗军(株)来了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 3662#       发表于 2021-7-1 21:50
+
+
+ 本帖最后由 free 于 2021-7-1 21:51 编辑 
+
+桔子姨怎么和mico搭上关系的
+[https://www.youtube.com/watch?v=kY-GMLTc6TI](https://www.youtube.com/watch?v=kY-GMLTc6TI)
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/215031txxzs779xms97psv.png" referrerpolicy="no-referrer">
+
+
+<strong>桔子.png</strong> (79.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 21:50 上传
+
+
+-----
+
+####  gaiadc  
+##### 3663#       发表于 2021-7-1 21:54
+
+
+虹最近工商真的好频繁，熊猫人更是感觉天天都在工商，但是某位还没毕业的高人气Liver好像全都没参与
+
+
+-----
+
+####  Suny08  
+##### 3664#       发表于 2021-7-1 22:01
+
+
+さくゆい，你虹头号工贼
+
+
+-----
+
+####  pansherry  
+##### 3665#       发表于 2021-7-1 22:16
+
+
+这大福把工商拿到的实况棒球游戏卖了还行<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                            

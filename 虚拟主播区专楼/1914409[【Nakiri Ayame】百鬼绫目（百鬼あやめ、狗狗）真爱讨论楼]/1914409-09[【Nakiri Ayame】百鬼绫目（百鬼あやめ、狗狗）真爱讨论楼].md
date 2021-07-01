@@ -5011,3 +5011,182 @@ D8F6F6BADC91ECF5113C5CE8D23256AD#BF2C2347C7742D41C277D8E31D3381E3#4087053700#tub
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 12444#       发表于 2021-7-1 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然没装死。
+
+
+-----
+
+####  cctvyt1  
+##### 12445#       发表于 2021-7-1 19:25
+
+
+竟然有去预录毕业回<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 12446#       发表于 2021-7-1 19:31
+
+
+一年多以后在毕业会道歉，各种意义上都有点了不起<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 12447#       发表于 2021-7-1 19:34
+
+
+当事人情绪稳定，并奖励了自己一把九尾妖狐<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/01/193336lcpoctmosycrf3cf.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210701193243.png</strong> (21.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 19:33 上传
+
+
+-----
+
+####  stedckk  
+##### 12448#       发表于 2021-7-1 19:40
+
+
+ 本帖最后由 stedckk 于 2021-7-1 19:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是因为录播才能逼她出现
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">别尬黑，7点前打完的，都是因为忍不住手，现在已经专心在看了。
+
+
+-----
+
+####  cctvyt1  
+##### 12449#       发表于 2021-7-1 19:44
+
+
+5分钟前露露
+
+阿绫一定是边LOL边看吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12450#       发表于 2021-7-1 19:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这不已经结束了吗 立刻开一把也没错吧
+
+
+
+
+-----
+
+####  Klience  
+##### 12451#       发表于 2021-7-1 19:46
+
+
+绫总：LOL塔诺西<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  stedckk  
+##### 12452#       发表于 2021-7-1 19:50
+
+
+ 本帖最后由 stedckk 于 2021-7-1 19:53 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反转了，余居然还在打。
+
+
+-----
+
+####  stedckk  
+##### 12453#       发表于 2021-7-1 20:11
+
+
+<img src="https://img.saraba1st.com/forum/202107/01/201122q212e2e1p1e4ppa2.png" referrerpolicy="no-referrer">
+
+
+<strong>G7$(GHK2U%`~%SBQTTDQ6SB.png</strong> (46.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-1 20:11 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死我啦
+
+
+-----
+
+####  Nitro901  
+##### 12454#       发表于 2021-7-1 20:18
+
+
+边打lol边看有被笑到<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Klience  
+##### 12455#       发表于 2021-7-1 20:20
+
+
+妈的 露露0/4输了 都怪这人发推干扰绫总发挥<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  昆西昆希昆  
+##### 12456#       发表于 2021-7-1 20:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51806757&amp;ptid=1914409" target="_blank">stedckk 发表于 2021-7-1 20:11</a>
+
+笑死我啦</blockquote>
+这位粉丝请不要干扰主播训练！<img src="https://static.saraba1st.com/image/smiley/face2017/189.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 12457#       发表于 2021-7-1 21:44
+
+
+首先是犯下懒惰之罪的百鬼绫目<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Badwoman  
+##### 12458#       发表于 2021-7-1 21:55
+
+
+出星界驱弛啊<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 12459#       发表于 2021-7-1 21:56
+
+
+更要摆烂了<img src="https://static.saraba1st.com/image/smiley/face2017/180.png" referrerpolicy="no-referrer">
+
+
+                                                
