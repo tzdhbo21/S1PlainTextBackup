@@ -9225,3 +9225,30 @@ KING在和今天曝光和enako交往的那位R6职业哥玩COD，</blockquote>
 
 
                                                  
+
+-----
+
+####  flyskywalker92  
+##### 3690#       发表于 2021-7-2 04:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51810820&amp;ptid=1972669" target="_blank">马尔马拉海 发表于 2021-7-2 04:24</a>
+
+静凛这塔科夫血压真是看高了，野哥任务没完就吃了俩俄粮，饼干面包块一律不捡，一包都是几千卢布的垃圾枪 ...</blockquote>
+之前感觉打pubg还有点水平？而且感觉她塔科夫播挺久的了
+
+
+
+
+-----
+
+####  马尔马拉海  
+##### 3691#       发表于 2021-7-2 05:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51810837&amp;ptid=1972669" target="_blank">flyskywalker92 发表于 2021-7-2 04:46</a>
+之前感觉打pubg还有点水平？而且感觉她塔科夫播挺久的了</blockquote>
+就是只懂打枪那种，按她这个败家风格玩下去怕不是最后子弹都要买不起
+
+
+                                                
