@@ -445,3 +445,29 @@ yls这是吃错药了吗</blockquote>
 
 
                                                 
+
+-----
+
+####  黑上シグマ  
+##### 79534#       发表于 2021-7-1 12:39
+
+
+<blockquote>引用第79530楼khxooo于2021-07-01 11:36发表的  :
+
+现在才30池，有点咸鱼</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这一天都还没到就30池，你还好意思说自己是咸鱼？
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  johnkamsar  
+##### 79535#       发表于 2021-7-1 13:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">感觉到你游戏强度差别了，宇宙凛无倍卡直接9t车翻师匠二人组
+
+
+                                                 
