@@ -4292,3 +4292,14 @@ Tales of Arise_ new Battle Theme Remix.mp3
 
 
                                                  
+
+-----
+
+####  火红之眼  
+##### 1792#       发表于 2021-7-1 23:50
+
+
+看到チョロ甘稍微安心点，不过就只剩对白还是有点不是滋味......<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 
