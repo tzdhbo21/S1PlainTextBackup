@@ -5245,3 +5245,54 @@ google好像开始作妖了，可能有些应用就没有apk了。
 
 
                                                  
+
+-----
+
+####  cdfjg  
+##### 437#       发表于 2021-7-1 10:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51800046&amp;ptid=2011727" target="_blank">tureleona 发表于 2021-7-1 10:35</a>
+
+开始菜单浏览记录怎么关啊，太糟糕了</blockquote>
+个性化-开始
+
+
+-----
+
+####  nanonya2  
+##### 438#       发表于 2021-7-1 11:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51792206&amp;ptid=2011727" target="_blank">VirMoe 发表于 2021-6-30 15:47</a>
+APK替代者Android App Bundles八月生效：改变应用打包和交付方式
+
+https://www.cnbeta.com/articles/tech/11 ...</blockquote>
+这个早就说过了
+
+
+-----
+
+####  mcq_2  
+##### 439#       发表于 2021-7-1 11:21
+
+
+现在问题是过度偏向移动端操作了，导致桌面端操作繁琐。不知道后面会不会改进。
+
+
+我想大概率是不会改进了。
+
+
+-----
+
+####  tureleona  
+##### 440#       发表于 2021-7-1 11:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51800306&amp;ptid=2011727" target="_blank">cdfjg 发表于 2021-7-1 10:59</a>
+
+个性化-开始</blockquote>
+多谢<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+                                                 
