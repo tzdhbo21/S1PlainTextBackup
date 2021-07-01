@@ -394,3 +394,54 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79530#       发表于 2021-7-1 11:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51800460&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-7-1 11:13</a>
+对面斯卡哈连续三把回避，爆笑出声</blockquote>
+快用无敌的村正啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  khxooo  
+##### 79531#       发表于 2021-7-1 11:36
+
+
+现在才30池，有点咸鱼<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79532#       发表于 2021-7-1 11:37
+
+
+<blockquote>引用第79528楼白金口袋于2021-07-01 11:13发表的  :
+
+对面斯卡哈连续三把回避，爆笑出声</blockquote>
+不是一发秒的吗，怎么还会有回避的机会
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 79533#       发表于 2021-7-1 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51800460&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-7-1 11:13</a>
+
+对面斯卡哈连续三把回避，爆笑出声</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">带个解状态的衣服开局一个光炮2个一起秒了啊(
+
+
+                                                

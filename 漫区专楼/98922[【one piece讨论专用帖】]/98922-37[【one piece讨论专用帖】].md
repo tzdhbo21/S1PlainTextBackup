@@ -16206,3 +16206,17 @@ WT在SBS回应过，橡胶JJ的确可以变大
 
 
                                                  
+
+-----
+
+####  真红眼教授  
+##### 55363#       发表于 2021-7-1 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51788753&amp;ptid=98922" target="_blank">topnice 发表于 2021-6-30 09:38</a>
+
+看最新话的情报，说福施福记恨的其实是偷走果实的红发，只是迁怒路飞而已，这样观感好多了。 ...</blockquote>
+这格局也就当个小BOSS了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
