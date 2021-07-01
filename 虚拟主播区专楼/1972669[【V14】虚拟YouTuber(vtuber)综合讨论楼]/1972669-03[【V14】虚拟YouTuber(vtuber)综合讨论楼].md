@@ -7044,3 +7044,93 @@ V事务所现在也算艺能人事务所了吧？艺能人事务所保护艺人�
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 3510#       发表于 2021-7-1 08:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">stk的问题靠个人真的不好解决感觉，而这个问题又日益严重，希望以后各大事务所都能出多点力了。
+
+
+
+
+-----
+
+####  poipanchao  
+##### 3511#       发表于 2021-7-1 08:41
+
+
+指望v圈来解决困扰了全世界这么多年的非暴力性骚扰问题还是想多了
+希望露露以后一切都好
+
+我很喜欢露露最后的发言
+
+
+-----
+
+####  poipanchao  
+##### 3512#       发表于 2021-7-1 08:41
+
+
+ 本帖最后由 poipanchao 于 2021-7-1 08:44 编辑 
+
+露露最后能说出“能来做v真是太好了”
+希望这两年对她来说，如同对观众一样，是美好的回忆
+
+
+-----
+
+####  SteveS  
+##### 3513#       发表于 2021-7-1 09:52
+
+
+能曾经当过露露的观众也真是太好了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Porsche  
+##### 3514#       发表于 2021-7-1 09:53
+
+
+ui4s没有新投稿的第12天<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lucy_Diamonds  
+##### 3515#       发表于 2021-7-1 09:53
+
+
+一个从不给观众带来负能量的好主播 希望生活顺利
+
+
+-----
+
+####  暴走的包子  
+##### 3516#       发表于 2021-7-1 10:05
+
+
+大豪斯是不是这种问题的最终解
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  winda  
+##### 3517#       发表于 2021-7-1 10:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51797124&amp;ptid=1972669" target="_blank">free 发表于 2021-7-1 00:06</a>
+杏的地址不是都写清楚了吗，不知道有没有顺着这个地址去找烂货圆脸狠狠打她一顿的
+
+〒173-0003
+
+東京都板橋区 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是送信收礼的地址，是库房啊
+
+
+                                                

@@ -267,3 +267,119 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79519#       发表于 2021-7-1 08:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">已经可以6加成不换人3T113了，就是好友里满破礼装孔明有点难找……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  森兰丸  
+##### 79520#       发表于 2021-7-1 08:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/051.png" referrerpolicy="no-referrer">才发现UP C尼禄了.....只剩下一共6抽....最后1抽竟然出了......了却了一大怨念
+
+
+-----
+
+####  areklose  
+##### 79521#       发表于 2021-7-1 08:59
+
+
+鹤小姐挺好用，20星也不是那么难凑，还能第一面打打暴击
+
+
+-----
+
+####  areklose  
+##### 79522#       发表于 2021-7-1 08:59
+
+
+鹤小姐挺好用，20星也不是那么难凑，还能第一面打打暴击
+
+
+-----
+
+####  exiaexa  
+##### 79523#       发表于 2021-7-1 09:30
+
+
+鹤+摩根就行，摩根6级3出10个，鹤小姐带个宇宙凛出10刚好
+
+
+-----
+
+####  areklose  
+##### 79524#       发表于 2021-7-1 09:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51799248&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-1 09:30</a>
+
+鹤+摩根就行，摩根6级3出10个，鹤小姐带个宇宙凛出10刚好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">不需要那么麻烦，有自充出星的蓝单体，一抓一大把，不需要特意配合灵衣特性
+
+
+-----
+
+####  exiaexa  
+##### 79525#       发表于 2021-7-1 09:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51799323&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-1 09:33</a>
+不需要那么麻烦，有自充出星的蓝单体，一抓一大把，不需要特意配合灵衣特性 ...</blockquote>
+宇宙凛50自充啊，抓个好友c呆
+摩根50+20+30
+宇宙凛50+20+30
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79526#       发表于 2021-7-1 09:38
+
+
+简单举一下例子。剑兰30自充20星，还有集星暴击。或者泳装北斋。
+
+
+-----
+
+####  areklose  
+##### 79527#       发表于 2021-7-1 09:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51799384&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-1 09:37</a>
+
+宇宙凛50自充啊，抓个好友c呆
+
+摩根50+20+30
+
+宇宙凛50+20+30</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不用看发牌员脸色吗
+
+
+-----
+
+####  exiaexa  
+##### 79528#       发表于 2021-7-1 10:05
+
+
+ 本帖最后由 exiaexa 于 2021-7-1 10:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51799530&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-1 09:49</a>
+不用看发牌员脸色吗</blockquote>
+第一t宇宙凛和摩根谁有卡就给谁集星，不过因为摩根3技能的关系基本都是她的
+
+如果真的是天选之人五张鹤小姐那只能认栽了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
