@@ -5390,3 +5390,20 @@ snap group是hover而不是长按左键或右键有点难受
 
 
                                                  
+
+-----
+
+####  DTCPSS  
+##### 449#       发表于 2021-7-2 07:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51810893&amp;ptid=2011727" target="_blank">凶手 发表于 2021-7-2 05:58</a>
+昨儿试了下 
+所有的动画过度都比10强了很多 
+新设置新store很不错了 期待新的inbox apps</blockquote>
+窗口 snap 助手有快捷键 Win + Z
+小组件 Win + W
+日历与通知 Win + N (没右 Win 键的键盘不能单手按了)
+
+
+                                                 
