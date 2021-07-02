@@ -4025,3 +4025,27 @@ q娃如果是特写的话基本都是平板，但无意间也会有作画把胸�
 
 
                                                  
+
+-----
+
+####  isa2456  
+##### 1801#       发表于 2021-7-2 23:35
+
+
+ 本帖最后由 isa2456 于 2021-7-2 23:43 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">我看不出组曲哪里可以跟热带联动啊，不过能看到新画风的响奏和艾莲感觉也不是不行
+
+
+-----
+
+####  Sliurus  
+##### 1802#       发表于 2021-7-3 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51822227&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-7-2 23:35</a>
+ 我看不出组曲哪里可以跟热带联动啊，不过能看到新画风的响奏和艾莲感觉也不是不行 ...</blockquote>
+罗拉和黑猫确实可以联动一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
