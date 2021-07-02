@@ -4696,3 +4696,14 @@ PS5手柄是可以模拟出震动方向的，虽然不算细腻，不过意思�
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1819#         楼主| 发表于 2021-7-2 23:20
+
+
+开发秘辛#2 开幕音乐（试玩版里是另一个版本）这个味道真的很对，很有一部分经典 Tales 系列音乐的风格<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">正式发售后还能听到这首音乐🐎
+
+
+                                                 

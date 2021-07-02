@@ -715,3 +715,35 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79557#       发表于 2021-7-2 22:40
+
+
+这英雄王丢人啊..直虎顶着宝具down2枪戳死。。
+
+
+-----
+
+####  AbigailWilliams  
+##### 79558#       发表于 2021-7-2 23:19
+
+
+别说新人了，老玩家感觉不少也就一口气吊着了，反正2.0完结后型月在fgo上干什么我都不怎么想奉陪了<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79559#       发表于 2021-7-2 23:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51821652&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-2 22:40</a>
+
+这英雄王丢人啊..直虎顶着宝具down2枪戳死。。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那么丢人的还要用宝具的？
+
+
+                                                 

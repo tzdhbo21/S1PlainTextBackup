@@ -10875,3 +10875,143 @@ syl
 
 
                                                  
+
+-----
+
+####  ポップコーン  
+##### 3810#       发表于 2021-7-2 22:24
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/215920qhzu9gezg7u1amg9.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2021_07_02.jpg</strong> (1.18 MB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 21:59 上传
+
+
+铃原隐退回01:25~01:35的部分文字翻译，详细讲了她选择隐退的原因。
+
+想了下感觉还是应该把这个发出来，方便那些没时间仔细看原视频的人。
+
+
+顺便感翻译组内的校对七咲，这里直接挪用了他润色后的版本。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 12战斗力 +15
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Suny08| + 1|波佬留下来吧|
+| SuntoryNomu| + 1|乌乌|
+| -rm7-| + 1|好评加鹅|
+| admentus| + 1|好评加鹅|
+| IDIDIDID| + 2||
+| 渡鸦骑士| + 1|好评加鹅|
+| KaboomMirai| + 1|好评加鹅|
+| a37356205| + 1|好评加鹅|
+| Hachimanhiki| + 1|好评加鹅|
+| FCCHua| + 1|好评加鹅|
+| say_gg_plz| + 2|好评加鹅|
+| rzrbtk| + 2|啵啵佬...|
+
+
+查看全部评分
+
+
+
+
+-----
+
+####  十四洲  
+##### 3811#       发表于 2021-7-2 22:25
+
+
+ 本帖最后由 十四洲 于 2021-7-2 22:33 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/222512fjs6dg5z4x4u5kzn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702_222335.jpg</strong> (113.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 22:25 上传
+
+
+请问这位是？
+
+好像突然火了，评价很高的样子
+
+
+-----
+
+####  winda  
+##### 3812#       发表于 2021-7-2 22:58
+
+
+ 本帖最后由 winda 于 2021-7-2 23:06 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51821506&amp;ptid=1972669" target="_blank">十四洲 发表于 2021-7-2 22:25</a>
+请问这位是？
+
+好像突然火了，评价很高的样子</blockquote>
+被ojiji，vodka，伊织萌等大物认知，同接1w4，一天订阅+2w，可怕的女人<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3813#       发表于 2021-7-2 23:11
+
+
+通风口那种唱片公司办的不算，2434自己主催的线下sololive床是第一个兔是第二个？
+
+
+-----
+
+####  qq845629713  
+##### 3814#       发表于 2021-7-2 23:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 没记错，床的那次live有嘉宾，没有第二套3D，
+
+
+这次月丿没有嘉宾，有新3D，规格肯定是比床那次高不少的，
+
+
+我个人推测，月丿这次sololive之前应该不会有新live了，
+
+
+-----
+
+####  IDIDIDID  
+##### 3815#       发表于 2021-7-2 23:31
+
+
+不请阿葵就算了通风口也不请很怪啊
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| qq845629713| + 1|这次那些囚人满意了，保持了月丿live的纯洁.|
+
+
+查看全部评分
+
+
+                                                
