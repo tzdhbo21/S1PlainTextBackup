@@ -614,3 +614,46 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  里村紅葉  
+##### 79549#       发表于 2021-7-2 19:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51819263&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-2 19:21</a>
+
+都什么年代了怎么还不能出个一键开箱或者自动开箱......到现在还只能10连一次次的点....
+
+
+我不信技术上做不 ...</blockquote>
+一年才一次的活动，再说也不会有什么人因为这个弃坑<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  smdzh2  
+##### 79550#       发表于 2021-7-2 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51819263&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-2 20:21</a>
+都什么年代了怎么还不能出个一键开箱或者自动开箱......到现在还只能10连一次次的点....
+
+
+我不信技术上做不 ...</blockquote>
+说明抱怨的玩家和无限池之间的羁绊还不够<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 79551#       发表于 2021-7-2 20:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51819514&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-2 19:48</a>
+
+一年才一次的活动，再说也不会有什么人因为这个弃坑</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">然而每一年都要被恶心一次.....老油条玩家材料基本上都溢出了....现在这种活动最多也就刷个50箱左右撑顶了.....但如果还有新玩家要刷个几百箱的话和现在别的手游一比不会怒弃走人么
+
+
+                                                 
