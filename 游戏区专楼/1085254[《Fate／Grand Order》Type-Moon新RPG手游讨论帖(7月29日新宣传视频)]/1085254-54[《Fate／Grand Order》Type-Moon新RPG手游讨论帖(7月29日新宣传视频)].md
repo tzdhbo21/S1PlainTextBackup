@@ -695,3 +695,23 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79555#       发表于 2021-7-2 21:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">咸鱼刚刚15箱，一张礼装都没掉
+
+
+-----
+
+####  khxooo  
+##### 79556#       发表于 2021-7-2 21:40
+
+
+一堆新从者要养的人咸鱼无限池，一个没有新从者的人却疯狂肝，这个世界怎么了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

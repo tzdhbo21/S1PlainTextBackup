@@ -4662,3 +4662,37 @@ R2回避，L2貌似是用来切换，自适应扳机应该是没了
 
 
                                                  
+
+-----
+
+####  Rinne70  
+##### 1817#       发表于 2021-7-2 21:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51812343&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-7-2 10:05</a>
+希侬也太色了</blockquote>
+为什么闻到一股棒子游戏的味道<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  LMBS  
+##### 1818#       发表于 2021-7-2 21:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51820453&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-7-2 21:07</a>
+
+富泽说触觉反馈的重点在于不同属性法术的效果，可能要换成琳薇尔或希侬才能比较真切感受出来。 ...</blockquote>
+PS5手柄是可以模拟出震动方向的，虽然不算细腻，不过意思下大致方位还是可以的。真希望这点能做到
+
+然后通过震动节奏区分出不同种类的魔法
+
+这种不管控制什么角色，都能通过震动感受到魔法在什么方位生效，同时手柄喇叭也会播放魔法音效
+
+
+对于SBGI这要求有点太高了
+
+
+                                                 

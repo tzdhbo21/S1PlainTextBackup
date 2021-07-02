@@ -10693,3 +10693,185 @@ https://youtu.be/EXozNy4j9UM
 
 
                                                 
+
+-----
+
+####  alcoholic1000  
+##### 3799#       发表于 2021-7-2 21:32
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-2 22:10 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51820732&amp;ptid=1972669" target="_blank">dybang 发表于 2021-7-2 21:24</a>
+
+只是找个借口打钱罢了虹男有几个读sc的</blockquote>
+油男刚出道sc就特别高就是因为他搞了个棒読みちゃん读sc，200円以上就可以被读，反应也有趣。
+
+King也在配信中读sc，不论金额都会谢；叶和其他普通男主播一样一般只在最后读名，特殊sc及时回复
+
+
+要说不读sc，其实只有刀也黛灰吧
+
+
+Syl，周防パトラ 1/7スケールフィギュア予約開始
+
+本日24時からSPWNで一足早く予約できます
+
+<img src="https://img.saraba1st.com/forum/202107/02/215453jea5ialnaalmlnma.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>周防パトラ 1:7スケールフィギュア予約開始.jpeg</strong> (543.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 21:54 上传
+
+
+[https://774inc.spwn.jp/events/HoneyStrap/goods](https://774inc.spwn.jp/events/HoneyStrap/goods)
+
+
+Zsyl，月撇聊了和野猫画（丑）柴卡系妆容还上街的事情，聊了露露休止相关。
+
+LLLLLLIVE！11.16！
+
+<img src="https://img.saraba1st.com/forum/202107/02/220241l1fnq1jiq5b104yi.png" referrerpolicy="no-referrer">
+
+
+<strong>【雑談】この顔になった話など【重大発表もアリ】.png</strong> (171.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 22:02 上传
+
+
+solo live，新3D，无嘉宾，暂时不确定有没有online
+
+
+-----
+
+####  gaiadc  
+##### 3800#       发表于 2021-7-2 21:35
+
+
+2434有8个擅长吸SC的
+
+男：葛叶/叶/加贺美/不破/IB/三枝
+
+女：巴/床
+
+只不过是最近正好赶上了其中3个的3D回
+
+
+-----
+
+####  dybang  
+##### 3801#       发表于 2021-7-2 21:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51820834&amp;ptid=1972669" target="_blank">alcoholic1000 发表于 2021-7-2 21:32</a>
+油男刚出道sc就特别高就是因为他搞了个棒読みちゃん读sc，200円以上就可以被读，反应也有趣。
+
+King也在配 ...</blockquote>
+我指的就是最后一起读的那种<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|那也不能算不读sc，油是养gachi大户.|
+
+
+查看全部评分
+
+
+-----
+
+####  qq845629713  
+##### 3802#       发表于 2021-7-2 21:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 椎名玩那个电车游戏，遇到了美大生，毫不犹豫选了另外一边，这就是 灵压么
+
+
+-----
+
+####  fastary  
+##### 3803#       发表于 2021-7-2 21:58
+
+
+说起来黛灰剧情ed里作曲是一直以来的shagma倒不意外，脚本看着眼熟去查了下就是ymen在的os团成员<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+这方面资源他倒是从不避讳，不过确实帮助很大倒是……说起来以前还想过os团其他人有没有可能出道(划掉)跟黛灰营业(划掉)，不过好像都对V没啥兴趣单纯给ymen帮忙而已<img src="https://static.saraba1st.com/image/smiley/face2017/106.png" referrerpolicy="no-referrer">
+
+从这方面来看也难怪他又开始和实况主圈子那群朋友一起玩了<img src="https://static.saraba1st.com/image/smiley/face2017/222.png" referrerpolicy="no-referrer">
+
+syl
+
+有的人一场直播可以赚一千万，有的人不开sc还自己拿了一千万出来……<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然我是觉得黛灰复播恐怕也不会开SC不过事到如今斗虫也不重要了，好像想看他直播啊<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">休了一个月怎么还要休的，好急
+
+
+-----
+
+####  FCCHua  
+##### 3804#       发表于 2021-7-2 22:08
+
+
+ 本帖最后由 FCCHua 于 2021-7-2 22:11 编辑 
+
+兔头这确实是大的来了，solo live加那个新3d<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+虽然没嘉宾，希望有线上吧
+
+
+-----
+
+####  十四洲  
+##### 3805#       发表于 2021-7-2 22:09
+
+
+铲宝不知道会整啥活，要是多唱点歌就好了
+
+
+-----
+
+####  死体残留  
+##### 3806#       发表于 2021-7-2 22:12
+
+
+阿葵太惨了，什么都没有，3d新衣服没有，兔头也不带她，露露也毕业了
+
+
+-----
+
+####  qq845629713  
+##### 3807#       发表于 2021-7-2 22:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> KING的新3D能在月丿第三套3出来之前披露就算赢
+
+
+-----
+
+####  mmbk  
+##### 3808#       发表于 2021-7-2 22:16
+
+
+看了楼友截图阿葵那个新衣还是很色的🥵
+
+
+-----
+
+####  rzrbtk  
+##### 3809#       发表于 2021-7-2 22:20
+
+
+难怪说前段时间天天练舞练歌，这不就来了！
+
+
+                                                 
