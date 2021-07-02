@@ -570,3 +570,47 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  仰望神的括约肌  
+##### 79545#       发表于 2021-7-2 16:24
+
+
+都好勤奋 我目前才3池不到<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79546#       发表于 2021-7-2 16:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51817210&amp;ptid=1085254" target="_blank">仰望神的括约肌 发表于 2021-7-2 16:24</a>
+
+都好勤奋 我目前才3池不到</blockquote>
+我也是，才1500个花瓣<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  消失的兰斯  
+##### 79547#       发表于 2021-7-2 16:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">自然回体3池不到，明明QP不到1e了
+
+
+-----
+
+####  森兰丸  
+##### 79548#       发表于 2021-7-2 19:21
+
+
+都什么年代了怎么还不能出个一键开箱或者自动开箱......到现在还只能10连一次次的点....
+
+
+我不信技术上做不到....就是恶心玩家把<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 

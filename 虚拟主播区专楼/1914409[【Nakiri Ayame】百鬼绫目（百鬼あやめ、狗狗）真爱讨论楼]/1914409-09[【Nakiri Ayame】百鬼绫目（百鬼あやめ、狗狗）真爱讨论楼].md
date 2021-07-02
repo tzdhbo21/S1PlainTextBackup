@@ -5550,3 +5550,45 @@ u1s1这波绫总确实是最硬的，夸宝都被压低头发了几个推。
 
 
                                                  
+
+-----
+
+####  nian1538  
+##### 12489#       发表于 2021-7-2 15:43
+
+
+[https://twitter.com/jintoriniku/status/1410821332284018693](https://twitter.com/jintoriniku/status/1410821332284018693)
+
+绫还是很给同事面子的，点了个赞
+
+
+-----
+
+####  因为你不会  
+##### 12490#       发表于 2021-7-2 15:54
+
+
+是不是绫总上的号这都不好说的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12491#       发表于 2021-7-2 16:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">应该是本人上的吧 
+
+运营上号不得来个回复
+
+
+-----
+
+####  天悬星河  
+##### 12492#       发表于 2021-7-2 16:27
+
+
+这无视空气的强者感，余さん国民性存疑
+
+
+                                                 

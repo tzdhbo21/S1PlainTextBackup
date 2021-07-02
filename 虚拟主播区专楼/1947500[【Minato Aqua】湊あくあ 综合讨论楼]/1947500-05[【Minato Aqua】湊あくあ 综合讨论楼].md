@@ -3933,3 +3933,24 @@ mmr不还可以看批站切片吗🤣那个什么对谈本质就是长辈搁那�
 
 
                                                  
+
+-----
+
+####  zpy393  
+##### 6329#       发表于 2021-7-2 17:43
+
+
+什么，还有事业民没死绝吗，现在直播都没几个人关心同接了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nian1538  
+##### 6330#       发表于 2021-7-2 18:20
+
+
+https://twitter.com/bunko_dengeki/status/1410871277120724992
+除了直播之外的事业倒是增长的挺多
+
+
+                                                 

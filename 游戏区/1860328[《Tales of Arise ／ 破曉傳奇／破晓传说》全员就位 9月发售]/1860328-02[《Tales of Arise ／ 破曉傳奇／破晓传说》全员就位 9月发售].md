@@ -4627,3 +4627,22 @@ wiki资料来看应该是了
 
 
                                                  
+
+-----
+
+####  laoz  
+##### 1815#       发表于 2021-7-2 15:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51816437&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-2 15:19</a>
+
+另外 上次25周年专访的时候 有働说了自己现在负责镜光传说的设计
+
+我是觉得他不会再参与正作了（TOG以后他 ...</blockquote>
+他在B是Battle Game Design，TOB访谈里面深谷有说有働有份参与开发（访谈是在微博看的，我不想找了）
+[http://snesmusic.org/motoisakuraba/static/Tales_of_Berseria.html](http://snesmusic.org/motoisakuraba/static/Tales_of_Berseria.html)
+
+25周年我记得主持人在说他是给rays做技能设计之前说了目前还不能发表破晓相关的内容，有没有参与都没啥，只是我个人希望能继续玩到他做的战斗系统
+
+
+                                                 
