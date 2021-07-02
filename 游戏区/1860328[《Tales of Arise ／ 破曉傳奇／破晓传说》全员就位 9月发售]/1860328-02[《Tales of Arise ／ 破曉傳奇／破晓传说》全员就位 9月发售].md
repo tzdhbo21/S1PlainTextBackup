@@ -4592,3 +4592,38 @@ wiki资料来看应该是了
 
 
                                                  
+
+-----
+
+####  qiyu1234  
+##### 1813#       发表于 2021-7-2 15:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51814381&amp;ptid=1860328" target="_blank">laoz 发表于 2021-7-2 12:22</a>
+
+香川能找到的资料只有参与dr，gf，x，z，b的战斗系统，而且他看起来也没有働老，有働是E才开始参与2D组的 ...</blockquote>
+另外 上次25周年专访的时候 有働说了自己现在负责镜光传说的设计
+
+我是觉得他不会再参与正作了（TOG以后他的名字长时间都在STAFF表里处于special thanks一栏，TOZ TOB多半也是挂名回归）
+
+
+-----
+
+####  塔奇克马  
+##### 1814#       发表于 2021-7-2 15:22
+
+
+ 本帖最后由 塔奇克马 于 2021-7-2 15:23 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51812343&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-7-2 10:05</a>
+
+希侬也太色了</blockquote>
+看不到图好急啊!!
+
+
+换了个代理好了
+
+
+一般(提了下裤子)
+
+
+                                                 

@@ -9816,3 +9816,106 @@ lgbt内部分的挺细吧，自定义无性别不代表一定要选男皮啊。
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 3736#       发表于 2021-7-2 14:30
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/142948edwz9jkzvj4f4f99.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702-142331.jpg</strong> (130.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 14:29 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/142949fp7q21jg4eglq5ee.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702-142432~2.jpg</strong> (123.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 14:29 上传
+
+
+温暖大家庭vs___________。
+
+
+-----
+
+####  rzrbtk  
+##### 3737#       发表于 2021-7-2 14:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51815216&amp;ptid=1972669" target="_blank">白金口袋 发表于 2021-7-2 13:35</a>
+你说得对LGBT这方面比较敏感，但我的意思是她既然入了企业，成了员工是要有点自觉的
+
+个人势的话没人管你 ...</blockquote>
+可能是我对liver很宽容惹…
+但要求别人（不管是公司还是同事）尊重性别不是很正常的事嘛，你之前说的那几个liver也是，如果有别的liver提到的时候说错了也会被粉丝出警骂破坏设定之类的话。
+同期说实话也只是一起出道的同事，合不来也就那样了，油男都要把人家做到游戏里了细心多提一句也正常，吧…
+说回来也没觉得梅丽莎是在骂enkr，三周年说不唱就不唱，音砖总有名额，随性直播，看不出哪里有被使绊子的样子
+
+
+-----
+
+####  IDIDIDID  
+##### 3738#       发表于 2021-7-2 14:32
+
+
+那么去年菅原女士在哪家做直播员呢？
+
+
+-----
+
+####  adamtheo  
+##### 3739#       发表于 2021-7-2 14:42
+
+
+怎么这都能被带到lgbt的，说有个性不如劈一个歌势歌曲不给转载，歌回一个月一次还不留档
+
+光lgbt还能扯到别的主播嫌麻烦，Ib说一下选男皮这算多**烦，“TA只是性别被搞错，而我可是要多忖度呢”，到底是主播觉得麻烦还是你觉得麻烦啊
+
+生日凸待照样来了十几个人，只是没想抱你虹上位势的大腿罢了
+
+
+-----
+
+####  winda  
+##### 3740#       发表于 2021-7-2 14:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51815763&amp;ptid=1972669" target="_blank">维他柠檬茶 发表于 2021-7-2 14:23</a>
+你是不是没看完啊，人家说的是在一边打点滴一边想着去年的事，说的明显不是你虹好吧梅丽莎好歹也 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">melisa去年2月1出道，这怎么算到以前社畜年代的事啊
+
+
+-----
+
+####  FCCHua  
+##### 3741#       发表于 2021-7-2 15:07
+
+
+ 本帖最后由 FCCHua 于 2021-7-2 15:10 编辑 
+
+真，差不多得了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+syl 果然是ddd
+
+
+-----
+
+####  qq845629713  
+##### 3742#       发表于 2021-7-2 15:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 铲宝下周3D
+
+
+                                                 
