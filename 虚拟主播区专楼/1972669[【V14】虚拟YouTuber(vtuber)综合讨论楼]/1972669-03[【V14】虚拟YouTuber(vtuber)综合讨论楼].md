@@ -10344,3 +10344,352 @@ ib3D进广告前3w待机
 
 
                                                  
+
+-----
+
+####  Suny08  
+##### 3774#       发表于 2021-7-2 20:45
+
+
+说实话就这种虚无直播你虹妹子还能对着油发情也是没谁了，我的煌妹夏芽啊啊啊啊啊
+
+
+-----
+
+####  alcoholic1000  
+##### 3775#       发表于 2021-7-2 20:50
+
+
+别尬黑，这是你虹真正的反抗军，以有声（而且很吵）反抗3D披露内容创作者内卷
+
+
+-----
+
+####  辻君  
+##### 3776#       发表于 2021-7-2 20:51
+
+
+后脑勺直播而且还是播片，同接还不掉是最叼的
+
+—— 来自 Sony H8296, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  winda  
+##### 3777#       发表于 2021-7-2 20:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是bgm都被砍了么
+
+
+-----
+
+####  古战场亡魂  
+##### 3778#       发表于 2021-7-2 20:53
+
+
+听mea把小圆柏青哥吹的天花乱坠，结果就这？？？
+
+这个同接也是惊了。日本人审美再评价。
+
+不是有那么rpg的柏青哥吗，玩这种。
+
+
+-----
+
+####  dybang  
+##### 3779#       发表于 2021-7-2 20:53
+
+
+这也算你虹优势领域<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">赌球赛马帕青哥
+
+
+-----
+
+####  alcoholic1000  
+##### 3780#       发表于 2021-7-2 20:55
+
+
+《不是案件》
+
+
+
+
+-----
+
+####  獅白ぼたん  
+##### 3781#       发表于 2021-7-2 20:55
+
+
+阿狐这败者食尘封面几个意思，要阅读理解力<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 3782#       发表于 2021-7-2 20:56
+
+
+ 本帖最后由 FCCHua 于 2021-7-2 20:59 编辑 
+
+同接如此稳定就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+插播了一下b综，是要唱歌了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+ib的3d披露真好补档，直接拉到最后听下唱歌就完事了
+
+
+-----
+
+####  rzrbtk  
+##### 3783#       发表于 2021-7-2 20:56
+
+
+ハムの3Dやん！寝てた！と思って慌てて見に行ったらひたすらパチスロ打ってるから一向に顔見えなくて草
+
+包含两个信息：1、郡道睡过了；2、充实得郡道都笑了（我是蛮喜欢啦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 3784#       发表于 2021-7-2 21:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 虹男就算3D在地上打滚都有几万女粉看，前提是没碍眼的女人
+
+
+所以我选择看阿梓唱歌去了
+
+
+-----
+
+####  alcoholic1000  
+##### 3785#       发表于 2021-7-2 21:03
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-2 21:04 编辑 
+
+居然真的唱歌了，在老东家都没唱过歌吧
+
+<img src="https://img.saraba1st.com/forum/202107/02/210302dd8fd7mw6vvz72zv.png" referrerpolicy="no-referrer">
+
+
+<strong>【#イブラヒム3D】伝説、覗いてく？【にじさんじ:イブラヒム】-5.png.png</strong> (187.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 21:03 上传
+
+
+最后五分钟挽回一下女粉，这典型PUA帕青哥DV男啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  暴走的包子  
+##### 3786#       发表于 2021-7-2 21:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这种柏青哥也就是特效炫酷点而已，本质还是只需要投币的**啊
+
+—— 來自 samsung SM-N9750, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Porsche  
+##### 3787#       发表于 2021-7-2 21:08
+
+
+ui4s有新投稿了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  有机QP  
+##### 3788#       发表于 2021-7-2 21:11
+
+
+就最后五分钟唱了下歌背景做了下回顾，一群女粉超emo的ありがとう刷屏，这纯度谁敢碰瓷<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 3789#       发表于 2021-7-2 21:16
+
+
+イブラヒム/Ibrahim
+
+【#イブラヒム3D】伝説、覗いてく？【にじさんじ/イブラヒム】
+
+2021-07-02(金) 20:59:10 / 1h3m53s
+
+視聴者:約117475人
+
+チャット:98153件/3287件:約￥15,956,288/メンバ:275件
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">玩明白了
+
+
+-----
+
+####  FCCHua  
+##### 3790#       发表于 2021-7-2 21:17
+
+
+最近虹3d披露的sc<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 3791#       发表于 2021-7-2 21:20
+
+
+ 本帖最后由 winda 于 2021-7-2 21:21 编辑 
+
+https://youtu.be/EXozNy4j9UM
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/211903dwawi37wa5zk79w3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702_211116.jpg</strong> (163.75 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 21:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/211957r1srq44p1irqbb19.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702_211411.jpg</strong> (153.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 21:19 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/212003k7kt2pyywvkyoeey.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702_211327.jpg</strong> (200.39 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 21:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/212009vp90qp62meh16zu1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702_211600.jpg</strong> (111.27 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 21:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/212017gk5xol498w4lxzl4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702_211730.jpg</strong> (131.71 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 21:20 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/212021d8a1afcicbmmf1zk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210702_211642.jpg</strong> (113.22 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 21:20 上传
+
+
+口吃神新曲mv和歌词都很有意思<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3792#       发表于 2021-7-2 21:20
+
+
+哈人！
+
+
+-----
+
+####  Suny08  
+##### 3793#       发表于 2021-7-2 21:22
+
+
+ 本帖最后由 Suny08 于 2021-7-2 21:25 编辑 
+
+这种3D1600，社长1700，没什么好说的了
+
+
+-----
+
+####  真飞鸟i  
+##### 3794#       发表于 2021-7-2 21:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹男也太强了，一代更比一代强。后面还有什么强力男v吗？
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  帕克桑  
+##### 3795#       发表于 2021-7-2 21:24
+
+
+毕业了一批女v 该抽下一批男V卡了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  dybang  
+##### 3796#       发表于 2021-7-2 21:24
+
+
+只是找个借口打钱罢了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虹男有几个读sc的
+
+
+-----
+
+####  真飞鸟i  
+##### 3797#       发表于 2021-7-2 21:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51820694&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-7-2 21:22</a>
+这种3D1600，社长1700，为什么好说的了</blockquote>
+本身就是给推打钱，又不是给内容打钱，多出来的那部分就当做吸引来的路人的硬币吧。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  OldGlory  
+##### 3798#       发表于 2021-7-2 21:27
+
+
+可以期待下铲弟了
+
+
+                                                

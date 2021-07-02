@@ -4646,3 +4646,19 @@ wiki资料来看应该是了
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1816#         楼主| 发表于 2021-7-2 21:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51811939&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-7-2 09:33</a>
+
+R2回避，L2貌似是用来切换，自适应扳机应该是没了
+
+只能期待触觉反馈有点效果，参考隔壁绯红SBGI应该是不会 ...</blockquote>
+富泽说触觉反馈的重点在于不同属性法术的效果，可能要换成琳薇尔或希侬才能比较真切感受出来。
+
+
+                                                 

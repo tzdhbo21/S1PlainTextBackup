@@ -657,3 +657,41 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  里村紅葉  
+##### 79552#       发表于 2021-7-2 20:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51819672&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-2 20:05</a>
+
+然而每一年都要被恶心一次.....老油条玩家材料基本上都溢出了....现在这种活动最多也就刷个50箱左 ...</blockquote>
+你游真的还有新玩家吗<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79553#       发表于 2021-7-2 20:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51820152&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-2 20:44</a>
+
+你游真的还有新玩家吗</blockquote>
+隔壁不是一堆“自称”新人的吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79554#       发表于 2021-7-2 20:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51820209&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-2 20:49</a>
+
+隔壁不是一堆“自称”新人的吗</blockquote>
+尼姑庵新人大概是不会在意没有一键抽池的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
