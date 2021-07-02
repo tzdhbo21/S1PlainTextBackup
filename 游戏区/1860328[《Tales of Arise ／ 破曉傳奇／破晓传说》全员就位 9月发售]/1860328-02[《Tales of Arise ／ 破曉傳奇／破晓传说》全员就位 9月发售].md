@@ -4396,3 +4396,199 @@ Tales of Arise_ new Battle Theme Remix.mp3
 
 
                                                  
+
+-----
+
+####  LMBS  
+##### 1801#       发表于 2021-7-2 09:33
+
+
+R2回避，L2貌似是用来切换，自适应扳机应该是没了
+
+只能期待触觉反馈有点效果，参考隔壁绯红SBGI应该是不会给PC做适配
+
+
+-----
+
+####  蓝雉  
+##### 1802#       发表于 2021-7-2 10:05
+
+
+<img src="https://wx2.sinaimg.cn/large/87c21852gy1gs2dmy5xclg20ce0ff1kz.gif" referrerpolicy="no-referrer">
+
+希侬也太色了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 红魔馆的糖| + 1|等不及了|
+
+
+查看全部评分
+
+
+-----
+
+####  zero33333  
+##### 1803#       发表于 2021-7-2 11:12
+
+
+预购了究极版，等9月<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  红魔馆的糖  
+##### 1804#       发表于 2021-7-2 11:33
+
+
+卖相真好啊真好啊，感觉只要剧情不出幺蛾子就是妥妥佳作
+
+
+-----
+
+####  qiyu1234  
+##### 1805#       发表于 2021-7-2 11:42
+
+
+岩本和香川两人访谈时桌子摆放的作品略有不同，会不会是代表两人参与开发的作品
+
+香川 TOP时期就在了？
+
+
+-----
+
+####  hkguty  
+##### 1806#       发表于 2021-7-2 11:46
+
+
+这次的开发pv提到过场人物表情经过微调，女主站桩小动作也确实很色，刚玩玩绯红的ppt，希望不会失望吧，限定版已经预购了
+
+
+-----
+
+####  laoz  
+##### 1807#       发表于 2021-7-2 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813822&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-2 11:42</a>
+
+岩本和香川两人访谈时桌子摆放的作品略有不同，会不会是代表两人参与开发的作品
+
+香川 TOP时期就在了？ ...</blockquote>
+香川第一次参与的战斗系统是todr，上面不也摆着tov的盒子，但是tov是穴吹做的
+
+
+-----
+
+####  qiyu1234  
+##### 1808#       发表于 2021-7-2 11:55
+
+
+ 本帖最后由 qiyu1234 于 2021-7-2 11:57 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813902&amp;ptid=1860328" target="_blank">laoz 发表于 2021-7-2 11:47</a>
+
+香川第一次参与的战斗系统是todr，上面不也摆着tov的盒子，但是tov是穴吹做的 ...</blockquote>
+不一样吧，香川背后放的是19年的TOV HD版(HD版打个杂 好像也不是没可能)
+
+岩本则是从TOV 360版到TOV HD都放了一遍
+
+
+话说香川旁边桌子上右下角那俩是啥，看盒子像是PS1作品？
+
+<img src="https://img.saraba1st.com/forum/202107/02/115440m931o1ywpmhcmp7t.png" referrerpolicy="no-referrer">
+
+
+<strong>1.png</strong> (121.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 11:54 上传
+
+
+-----
+
+####  qiyu1234  
+##### 1809#       发表于 2021-7-2 12:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813993&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-2 11:55</a>
+
+不一样吧，香川背后放的是19年的TOV HD版(HD版打个杂 好像也不是没可能)
+
+岩本则是从TOV 360版到TOV HD都放 ...</blockquote>
+确认了下封面
+
+
+压在下面那个应该是PS1版 TOD
+
+<img src="https://img.saraba1st.com/forum/202107/02/120704jblyzbnoffajbdjm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>002.JPG</strong> (117.16 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 12:07 上传
+
+
+叠在上面那个是PS1 版TOP
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/120743f1rz00nt91366nln.jpg" referrerpolicy="no-referrer">
+
+
+<strong>001.JPG</strong> (181.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 12:07 上传
+
+
+-----
+
+####  laoz  
+##### 1810#       发表于 2021-7-2 12:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813993&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-2 11:55</a>
+
+不一样吧，香川背后放的是19年的TOV HD版(HD版打个杂 好像也不是没可能)
+
+岩本则是从TOV 360版到TOV HD都放 ...</blockquote>
+香川能找到的资料只有参与dr，gf，x，z，b的战斗系统，而且他看起来也没有働老，有働是E才开始参与2D组的战斗系统开发
+
+
+-----
+
+####  qiyu1234  
+##### 1811#       发表于 2021-7-2 12:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51814381&amp;ptid=1860328" target="_blank">laoz 发表于 2021-7-2 12:22</a>
+
+香川能找到的资料只有参与dr，gf，x，z，b的战斗系统，而且他看起来也没有働老，有働是E才开始参与2D组的 ...</blockquote>
+[https://w.atwiki.jp/tales-shinsakudangi/pages/18.html](https://w.atwiki.jp/tales-shinsakudangi/pages/18.html)
+
+wiki资料来看应该是了
+
+
+-----
+
+####  鱼肉丸子  
+##### 1812#       发表于 2021-7-2 12:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51812343&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-7-2 10:05</a>
+希侬也太色了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/carton2017/157.gif" referrerpolicy="no-referrer">我用s1reader点开图 然后直接加速到鬼畜版的速度
+
+
+                                                 

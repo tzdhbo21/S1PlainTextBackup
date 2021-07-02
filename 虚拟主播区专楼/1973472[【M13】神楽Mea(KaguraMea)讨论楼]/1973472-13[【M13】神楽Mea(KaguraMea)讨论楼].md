@@ -6853,3 +6853,341 @@ It's just a beginning
 
 
                                                  
+
+-----
+
+####  GRMeA104  
+##### 18636#       发表于 2021-7-2 09:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51811728&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-2 09:16</a>
+苔苔的套路有点腻了，就是标签化、玩梗到变成烂梗</blockquote>
+无所谓，随便哪个像你咩不洗澡臭的标签都定死了，还上了隔壁杂志漫画
+苔姨周年庆祝都捎句去洗澡的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18637#       发表于 2021-7-2 09:25
+
+
+ 本帖最后由 T_Hb 于 2021-7-2 10:00 编辑 
+
+标签我是无所谓的，反正不带攻击性，也不是贴在麻身上，就是联动看着没啥意思，车来车去看腻了
+syl 梗小鬼在哪里都不是少数
+
+
+-----
+
+####  Cushaw  
+##### 18638#       发表于 2021-7-2 09:26
+
+
+虽然那边喜欢烂梗的人绝对不算少数<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  第二十三个马甲  
+##### 18639#       发表于 2021-7-2 09:30
+
+
+不动脑子玩梗可不就是烂梗
+
+
+-----
+
+####  makourisu-2  
+##### 18640#       发表于 2021-7-2 09:49
+
+
+也别怪别人喜欢玩烂梗，毕竟本身也是你麻自己一遍遍提先给自己整出来的固有形象，反正她好像也挺喜欢的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那就继续强化刻板印象呗
+
+
+-----
+
+####  时间在我手中  
+##### 18641#       发表于 2021-7-2 09:50
+
+
+这年头本土炒作有收益也不算坏事，其实还是苔本不够精彩的问题····
+
+
+-----
+
+####  JY要塞  
+##### 18642#       发表于 2021-7-2 09:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克民市场不小的，还是建议肉体出道
+
+
+-----
+
+####  T_Hb  
+##### 18643#       发表于 2021-7-2 09:52
+
+
+yysy，还有几天才能听到咩音放送啊，好急<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 18644#       发表于 2021-7-2 09:52
+
+
+对老观众来说车过得实在是太多了，什么棉花糖什么回答都能记得起来，也不怨大伙喜欢听歌回，毕竟这炒作内容产能属实有点低<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18645#       发表于 2021-7-2 10:05
+
+
+ 本帖最后由 T_Hb 于 2021-7-2 10:24 编辑 
+
+话说【彩虹mea】北小路和mea相似点在哪，有没有懂的老哥科普一下
+
+
+-----
+
+####  aisakahammer  
+##### 18646#       发表于 2021-7-2 10:06
+
+
+都是女一活一，
+
+
+-----
+
+####  JY要塞  
+##### 18647#       发表于 2021-7-2 10:12
+
+
+那坦度呢
+
+
+-----
+
+####  掉头学姐  
+##### 18648#       发表于 2021-7-2 10:14
+
+
+想看咩和enako夫妇联动
+
+
+-----
+
+####  FCCHua  
+##### 18649#       发表于 2021-7-2 10:23
+
+
+说实话没觉得北大路和mea有什么相似处<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18650#       发表于 2021-7-2 10:33
+
+
+<img src="https://p.sda1.dev/2/be1d01a3ff0c983c02fdf127036b4627/IMG_CMP_201314585.jpeg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18651#       发表于 2021-7-2 11:02
+
+
+舞元刚说完近段时间不会再有舞咩cp了，苔苔就来救一下了
+
+
+苔苔，cp人的神
+
+
+-----
+
+####  掉头学姐  
+##### 18652#       发表于 2021-7-2 11:05
+
+
+最近是时隔半个月捏
+
+
+-----
+
+####  ashero  
+##### 18653#       发表于 2021-7-2 11:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813191&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-2 11:02</a>
+舞元刚说完近段时间不会再有舞咩cp了，苔苔就来救一下了
+
+
+苔苔，cp人的神 ...</blockquote>
+来表演一个一脚踢开老男人和彩虹mea贴贴
+
+—— 来自 OPPO PDEM30, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  路人庚  
+##### 18654#       发表于 2021-7-2 11:28
+
+
+ 本帖最后由 路人庚 于 2021-7-2 11:30 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然话是这么说，上次有时雨在的那个麻将联动其实也蛮好玩的
+
+
+不过后面跟郡道黄兔子的时候估计是梗都用光了，逗乐水平下去了很多
+
+
+这回时间间隔也比较短，估计水平也是上不太去了，姑且进行一个车轱辘的心理预计（
+
+跟北小路估计是真不熟了，你咩不进入自闭模式就是胜利（
+
+
+-----
+
+####  T_Hb  
+##### 18655#       发表于 2021-7-2 11:31
+
+
+有台本的，自闭不可能，就是有可能会没意思
+
+
+-----
+
+####  makourisu-2  
+##### 18656#       发表于 2021-7-2 11:35
+
+
+难道大伙还都在看苔姨的联动嘛<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  weiweiEX  
+##### 18657#       发表于 2021-7-2 11:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813719&amp;ptid=1973472" target="_blank">makourisu-2 发表于 2021-7-2 11:35</a>
+难道大伙还都在看苔姨的联动嘛我都已经是联动节目别人开台根本不看，这女人自己开台不一定看的状态 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这还不如说你快退坑了啊
+
+
+-----
+
+####  路人庚  
+##### 18658#       发表于 2021-7-2 11:49
+
+
+ 本帖最后由 路人庚 于 2021-7-2 11:51 编辑 
+
+也不算是大伙吧，感觉这楼经常说话的人里不看联动（特别是苔苔相关联动）的应该是大多数
+
+
+我自己其实是什么都看的，只不过更喜欢听咩姐聊天扯淡而已，对mp3播放器的兴趣稍微低一点（
+
+
+-----
+
+####  T_Hb  
+##### 18659#       发表于 2021-7-2 11:50
+
+
+有你咩我就看 <img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 18660#       发表于 2021-7-2 12:01
+
+
+看联动容易坏心情,最多看个report<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  fgfg435  
+##### 18661#       发表于 2021-7-2 12:17
+
+
+楼友的防空洞都可以拿来玩套娃了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18662#       发表于 2021-7-2 12:24
+
+
+你楼但凡有一半看直播的也不至于是这样，看管人哪有玩论坛好玩是不<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+那个漫画有人上传吗，我看着还挺乐的
+
+
+-----
+
+####  2014720  
+##### 18663#       发表于 2021-7-2 12:30
+
+
+无断转载，傻逼麻将少女mea
+
+<img src="https://p.sda1.dev/2/5fd24eb947c2df315b4598823cf40a2b/IMG_CMP_19390750.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  2014720  
+##### 18664#       发表于 2021-7-2 12:31
+
+
+ 本帖最后由 2014720 于 2021-7-2 12:35 编辑 
+
+<img src="https://p.sda1.dev/2/42300340413e22f62478caee2fabd8fe/IMG_CMP_261558605.jpeg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+                                                

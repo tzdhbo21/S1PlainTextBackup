@@ -9295,3 +9295,319 @@ ui4s没有新投稿的第13天<img src="https://static.saraba1st.com/image/smile
 
 
                                                  
+
+-----
+
+####  winda  
+##### 3696#       发表于 2021-7-2 09:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51810181&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-7-2 01:01</a>
+小蜜蜂中之人刚才发了一个很厉害的推，然后删掉了。2434到底怎么回事。
+
+根据记忆翻译：
+
+虽然公司傻逼但是不 ...</blockquote><blockquote>菅原 圭 @miasakana (2021/07/02 01:07:30)
+やばい会社でも生活の収入源で、せっかく就職できたのにやめて再就職まで頼れる人もいなかったら辞めるの渋って長々と続いてしまうのマジで鬱の素だし、鬱の気配とは一生の付き合いなの代償でかすぎと去年、虚無の中点滴打ちながら思った
+https://ohayua.cyou/tweet/1410631155422928904/miasakana</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">矛头直接指向会社还是挺狠的
+
+
+-----
+
+####  Suny08  
+##### 3697#       发表于 2021-7-2 10:06
+
+
+梅利莎跳槽去holo吧，估计同期两个奋斗逼压力拉满有点遭不住了
+
+
+-----
+
+####  dybang  
+##### 3698#       发表于 2021-7-2 10:08
+
+
+现在还扯跳槽<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不懂什么心态
+
+
+-----
+
+####  qq845629713  
+##### 3699#       发表于 2021-7-2 10:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 她俩同期，一个金银铜主流出道了，一个SC拿到手软，
+
+
+当初这三人最平凡、最没特色的女骑士现在主流出道了，不知道高傲的小蜜蜂什么想法
+
+
+-----
+
+####  AKili  
+##### 3700#       发表于 2021-7-2 10:23
+
+
+不应该跳槽神樁吗，去什么holo啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 3701#       发表于 2021-7-2 10:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">fes时候可是高傲的不肯唱歌的诶，说不唱就不唱，你说公司推女骑士还是推她
+
+
+-----
+
+####  dddty  
+##### 3702#       发表于 2021-7-2 10:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">这推难道说得不是本职？她这个直播频率像全职liver‘？
+
+
+-----
+
+####  alcoholic1000  
+##### 3703#       发表于 2021-7-2 10:50
+
+
+菅原圭可是前虹观众的，能把人气成这样，enkr真有本事
+
+不过想也是，好朋友尾北ねむ刚进公司就做了20多个mix、活动一年还在给前辈打工，同期一个带着ニコ生关系，一个背靠UUUM…菅原圭平时怕不是没少被运营骚扰、被要求卖力
+
+
+-----
+
+####  ヒトニナル  
+##### 3704#       发表于 2021-7-2 10:59
+
+
+复刻一波久远千岁，我觉得行
+
+
+-----
+
+####  qq845629713  
+##### 3705#       发表于 2021-7-2 11:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer"> 今天最好的同期油男3D，不知道小蜜蜂去不去
+
+
+-----
+
+####  TiHaru  
+##### 3706#       发表于 2021-7-2 11:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">吃了那么多推广资源工资开低一点问题不大吧
+
+
+-----
+
+####  Suny08  
+##### 3707#       发表于 2021-7-2 11:18
+
+
+一个遗憾，上次露皇3d油男万棒ark直接撞烂，就该晚两天毕业直接和油男3d对撞得
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 空集| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  超能力者stven  
+##### 3708#       发表于 2021-7-2 11:20
+
+
+首先得证明小蜜蜂没有本职
+
+
+-----
+
+####  FCCHua  
+##### 3709#       发表于 2021-7-2 11:21
+
+
+为什么就觉得一定指的彩虹呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qq845629713  
+##### 3710#       发表于 2021-7-2 11:29
+
+
+ 本帖最后由 qq845629713 于 2021-7-2 11:31 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">油男3D如果有king捧场，和露露毕业撞一下还真不虚好吧，
+
+
+不过有人说的好“丛你虹毕业是一种解脱，对露露来说，真的是一件遗憾的事么”
+
+
+-----
+
+####  winda  
+##### 3711#       发表于 2021-7-2 11:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那100w播放量连发各种专安排上的你虹上位组也算不上收入源，你虹这日子也挺难过
+
+
+-----
+
+####  シナモンロール  
+##### 3712#       发表于 2021-7-2 11:50
+
+
+ 本帖最后由 シナモンロール 于 2021-7-2 11:53 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813610&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-2 11:29</a>
+
+油男3D如果有king捧场，和露露毕业撞一下还真不虚好吧，
+
+
+不过有人说的好“丛你虹毕业是一种解脱， ...</blockquote>
+msmyk女士从虹毕业是好事还用说？？？
+
+
+不是，我寻思最后一段时间明摆着对v的热情减退了，加上人家钱不缺，眼睛也不好多用，也有ins推特网红这条路做后路，死撑在虹干嘛？给铁血太监站最后一班岗吗？
+
+
+msmyk女士毕业这件事，本就是无论虹仁杏仁，无论粉还是路人，都要说一句喜事的，这还用多说嘛？
+
+
+人家露露兢兢业业，梗也造了，舞也跳了，游戏也打了，哪怕是兴趣使然那一挂的，人家也算得上尽职尽责了
+
+
+你要是粉丝，那难过也是正常的，但只要没入脑，事后就是应该祝福的，否则还不让人走了是怎么的？？？
+
+
+-----
+
+####  gaiadc  
+##### 3713#       发表于 2021-7-2 11:53
+
+
+几个几百万播放量的翻唱确实不太够。算一下的话，メリッサ2434的收入还是SC占比较多
+
+
+-----
+
+####  CielChloe  
+##### 3714#       发表于 2021-7-2 12:04
+
+
+ 本帖最后由 CielChloe 于 2021-7-2 12:07 编辑 
+
+tskk从杏毕业也是一种解脱吧，这种话其实是废话，遗憾的事多了去了，不管怎么说都是她自己的选择
+
+另外，为啥露粉非要把毕业当喜事？这逻辑我也是不懂，于露露本人或许是好事，可粉丝也有难过的权利
+
+
+-----
+
+####  winda  
+##### 3715#       发表于 2021-7-2 12:04
+
+
+<blockquote>gaiadc 发表于 2021-7-2 11:53
+几个几百万播放量的翻唱确实不太够。算一下的话，メリッサ2434的收入还是SC占比较多 ...</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202107/02/120335vow50kvp2doo2zz9.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>076e96bc0fa3ff6b62728c677c00c513bff1b97a066d04ea03e662729efbb990.0.JPEG</strong> (15.96 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-2 12:03 上传
+
+
+哈弟的情况是这样，油管自从疫情期砍播放单价后最近貌似回升到新高了
+
+
+-----
+
+####  高海大陆架  
+##### 3716#       发表于 2021-7-2 12:08
+
+
+看到依旧在整活就放心一大半了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  渡鸦骑士  
+##### 3717#       发表于 2021-7-2 12:11
+
+
+行为艺术<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/02/121147p8wnjkwc5877cc83.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (80.9 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 12:11 上传
+
+
+-----
+
+####  gaiadc  
+##### 3718#       发表于 2021-7-2 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51814122&amp;ptid=1972669" target="_blank">winda 发表于 2021-7-2 12:04</a>
+
+哈弟的情况是这样，油管自从疫情期砍播放单价后最近貌似回升到新高了</blockquote>
+我就是按照这个简单估算了一下，メリッサ的视频点击数差了一个数量级，没SC那边给力
+
+
+-----
+
+####  cheatdeath3  
+##### 3719#       发表于 2021-7-2 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51810729&amp;ptid=1972669" target="_blank">lovcavil 发表于 2021-7-2 03:08</a>
+
+其实 如果是yagoo脑子里蹦出了要回旋的想法 啊b接还是不接
+
+
+不接 人就是要回旋，去绑斗鱼、抖音或者其他什 ...</blockquote>
+我倒是期望其他平台能来点像模像样的项目刺激睿站<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+但基于连强无敌的a手也得来b发展的事实，可以得出敌台mmr烂泥扶不上墙的结论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fghc_h  
+##### 3720#       发表于 2021-7-2 12:40
+
+
+目前来看kson何止是解脱，简直赢麻了
+
+
+                                                 

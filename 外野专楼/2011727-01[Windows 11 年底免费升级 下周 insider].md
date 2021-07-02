@@ -5407,3 +5407,38 @@ snap group是hover而不是长按左键或右键有点难受
 
 
                                                  
+
+-----
+
+####  sakdender  
+##### 450#       发表于 2021-7-2 11:07
+
+
+桌面右键显示设置打不开，在设置里选系统-显示也无响应，有人遇到过么？
+
+
+
+
+-----
+
+####  liangbo103  
+##### 451#       发表于 2021-7-2 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813243&amp;ptid=2011727" target="_blank">sakdender 发表于 2021-7-2 11:07</a>
+
+桌面右键显示设置打不开，在设置里选系统-显示也无响应，有人遇到过么？</blockquote>
+我是桌面右键打不开，进到系统设置里面能正常打开
+
+
+-----
+
+####  V5Style  
+##### 452#       发表于 2021-7-2 12:12
+
+
+更改任务栏位置
+[https://www.ithome.com/0/560/563.htm](https://www.ithome.com/0/560/563.htm)
+
+
+                                                
