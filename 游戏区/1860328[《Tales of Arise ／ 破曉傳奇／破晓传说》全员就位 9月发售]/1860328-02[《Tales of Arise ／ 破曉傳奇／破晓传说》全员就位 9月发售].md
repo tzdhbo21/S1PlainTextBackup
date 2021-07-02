@@ -4321,3 +4321,78 @@ Tales of Arise_ new Battle Theme Remix.mp3
 
 
                                                  
+
+-----
+
+####  蓝雉  
+##### 1794#       发表于 2021-7-2 08:42
+
+
+女主提袜子的待机动作也太色了<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zero33333  
+##### 1795#       发表于 2021-7-2 08:53
+
+
+数位究极版包含的服装，是不是就是DLC服装
+
+
+-----
+
+####  Fuero  
+##### 1796#       发表于 2021-7-2 08:55
+
+
+只要有适配自适应扳机和震动就入ps5版吧，绯红结系的ps5版玩起来因为自适应扳机，和其它平台的手感基本不是一个游戏，爽度高不少
+
+
+-----
+
+####  hypnossz86  
+##### 1797#       发表于 2021-7-2 08:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51811539&amp;ptid=1860328" target="_blank">Fuero 发表于 2021-7-2 08:55</a>
+只要有适配自适应扳机和震动就入ps5版吧，绯红结系的ps5版玩起来因为自适应扳机，和其它平台的手感基本不是 ...</blockquote>
+问下ps5手柄插pc能适配自适应功能么...
+
+
+-----
+
+####  laoz  
+##### 1798#       发表于 2021-7-2 09:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51811522&amp;ptid=1860328" target="_blank">zero33333 发表于 2021-7-2 08:53</a>
+
+数位究极版包含的服装，是不是就是DLC服装</blockquote>
+是的
+
+
+-----
+
+####  Fuero  
+##### 1799#       发表于 2021-7-2 09:06
+
+
+<blockquote>hypnossz86 发表于 2021-7-2 08:58
+问下ps5手柄插pc能适配自适应功能么...</blockquote>
+之前以为不行，但是地铁貌似可以，所以还是看开发商？
+
+
+-----
+
+####  laoz  
+##### 1800#       发表于 2021-7-2 09:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51811565&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-7-2 08:58</a>
+
+问下ps5手柄插pc能适配自适应功能么...</blockquote>
+看开发商肯不肯额外做适配，但是SBGI八成是不会投入人力去做
+
+
+                                                 
