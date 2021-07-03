@@ -758,3 +758,51 @@ yls这是吃错药了吗</blockquote>
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79561#       发表于 2021-7-3 12:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">20箱0礼装，幸好留着当年的礼装，不然我就死了
+
+
+-----
+
+####  exiaexa  
+##### 79562#       发表于 2021-7-3 12:55
+
+
+bba一枪就戳没了啊，哪儿有后面的事儿
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79563#       发表于 2021-7-3 14:22
+
+
+翻页
+
+
+-----
+
+####  khxooo  
+##### 79564#       发表于 2021-7-3 14:36
+
+
+60池七张，可能是看我第一次打所以掉落这么好吧。
+
+
+-----
+
+####  areklose  
+##### 79565#       发表于 2021-7-3 14:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">70箱7张，但是我以前一张都没
+
+
+                                                 
