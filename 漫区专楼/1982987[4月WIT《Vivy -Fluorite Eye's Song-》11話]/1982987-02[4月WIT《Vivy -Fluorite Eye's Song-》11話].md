@@ -9020,3 +9020,14 @@ ai失控后完全没有出现人类正规军，就只有平民被乱杀，以及
 
 
                                                  
+
+-----
+
+####  zerorin  
+##### 2184#       发表于 2021-7-3 22:14
+
+
+把CD听完了，真好听啊，还不如好好弄唱歌<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+                                                 

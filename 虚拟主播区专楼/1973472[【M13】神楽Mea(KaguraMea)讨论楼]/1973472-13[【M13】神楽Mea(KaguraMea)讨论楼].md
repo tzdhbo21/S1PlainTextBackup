@@ -7853,3 +7853,163 @@ mix只要是P站吊人图他都在直接大象发情啊<img src="https://static.
 
 
                                                  
+
+-----
+
+####  GRMeA104  
+##### 18725#       发表于 2021-7-3 21:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51830687&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-3 21:20</a>
+所以你是不是要去啊，那你别去得了
+
+嘴上叫的比狗狠，一到线下aut尼哥赶紧问个好我们一起去看咩吧
+
+ ...</blockquote>
+军训去寄吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18726#       发表于 2021-7-3 21:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51830791&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-7-3 21:31</a>
+
+军训去寄吧</blockquote>
+哦对，你11号之后才能复活，真可怜，天天被教官掘皮炎<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+到时候我中午会开开心心在线上看肥婆唱的，小谷雨就顶着太阳被雷普吧<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18727#       发表于 2021-7-3 21:37
+
+
+7月份哪来的军训？
+
+
+-----
+
+####  时间在我手中  
+##### 18728#       发表于 2021-7-3 21:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51830848&amp;ptid=1973472" target="_blank">Klience 发表于 2021-7-3 21:37</a>
+
+7月份哪来的军训？</blockquote>
+疫情原因他们大学生推迟了，所以有些学生现在考完试还没回家，除了谷雨我认识的一个哥哥也是这样
+
+
+-----
+
+####  Klience  
+##### 18729#       发表于 2021-7-3 21:44
+
+
+那也不对啊 军训这东西不都是只有大一才军训的 怎么说也得9月份才军训的吧
+
+
+-----
+
+####  时间在我手中  
+##### 18730#       发表于 2021-7-3 21:46
+
+
+那我就不知道了，反正安排是这么安排的，就相当于补上的吧
+
+
+-----
+
+####  thisisaspider  
+##### 18731#       发表于 2021-7-3 21:47
+
+
+楼友男同小剧场 看着不安<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18732#       发表于 2021-7-3 21:49
+
+
+只能怪臭女人不播，劲上来了
+
+
+-----
+
+####  肥到终点  
+##### 18733#       发表于 2021-7-3 21:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">军训？
+
+我擦，都是没出校门的小年轻？
+
+
+-----
+
+####  2014720  
+##### 18734#       发表于 2021-7-3 21:57
+
+
+et你看了个hello word是再开发了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18735#       发表于 2021-7-3 22:01
+
+
+我记得是未来的我帮过去的我追女生的故事吧
+
+
+-----
+
+####  时间在我手中  
+##### 18736#       发表于 2021-7-3 22:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51831083&amp;ptid=1973472" target="_blank">2014720 发表于 2021-7-3 21:57</a>
+
+et你看了个hello word是再开发了？</blockquote>
+开发个屁，那玩意儿我都想发自己号动态直球说什么男同大片，女主跟个工具人一样给了男主理由
+
+
+然后最后十分钟高潮场景煽情对象只能让我局的是在构建和描绘两个男主之间的羁绊
+
+
+真的是蚌埠猪了，我甚至一瞬间有了我还不如把所谓pubg圣经再看一次都好过浪费时间看这玩意儿的想法，这东西国内能有一亿票房真的是台球这边有句话说的好【国内对这类玩意儿的需求造成了虚高的数据】，顺便宣发真的牛逼嗷
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|欢乐多|
+
+
+查看全部评分
+
+
+-----
+
+####  Klience  
+##### 18737#       发表于 2021-7-3 22:15
+
+
+本来还想着有胡子男的歌打算去看的 不过et这说法 感觉还是算了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

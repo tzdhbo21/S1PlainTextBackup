@@ -5889,3 +5889,45 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
 
                                                 
+
+-----
+
+####  stedckk  
+##### 12516#       发表于 2021-7-3 21:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次又找谁做盾啊
+
+
+-----
+
+####  Fami水  
+##### 12517#       发表于 2021-7-3 21:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">找个最近风评好点的 又有时间的 还在绫总交友圈的 选择有点少了吧
+
+
+-----
+
+####  stmule  
+##### 12518#       发表于 2021-7-3 22:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51831037&amp;ptid=1914409" target="_blank">Fami水 发表于 2021-7-3 21:52</a>
+找个最近风评好点的 又有时间的 还在绫总交友圈的 选择有点少了吧</blockquote>
+就决定是fams了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  stedckk  
+##### 12519#       发表于 2021-7-3 22:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那只能是唯一指定妈  mio妈了
+
+
+                                                 
