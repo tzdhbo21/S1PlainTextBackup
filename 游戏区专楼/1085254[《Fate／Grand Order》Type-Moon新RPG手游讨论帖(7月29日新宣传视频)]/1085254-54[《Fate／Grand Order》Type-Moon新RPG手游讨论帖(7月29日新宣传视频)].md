@@ -1044,3 +1044,57 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 79586#       发表于 2021-7-3 20:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/212.png" referrerpolicy="no-referrer">这年头找个梅林助战真难
+
+
+3宝摩根用了2发令咒3T过了
+
+
+-----
+
+####  areklose  
+##### 79587#       发表于 2021-7-3 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829684&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-3 19:38</a>
+
+现在国服正在Up老福，我是不是要抽个来打这个高难</blockquote>
+完全没必要
+
+
+-----
+
+####  areklose  
+##### 79588#       发表于 2021-7-3 21:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">高难完全没必要抽卡来打。就算打不过那零头奖励不配。更不用说现在除非真萌新。高难思考一下也不难
+
+
+-----
+
+####  exiaexa  
+##### 79589#       发表于 2021-7-3 21:18
+
+
+冲完浪以后，用卑弥呼梅林C呆去打再打了次原版，满血进满血出
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79590#       发表于 2021-7-3 21:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么没人用政哥哥了啊
+
+
+                                                 
