@@ -877,3 +877,35 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79572#       发表于 2021-7-3 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829023&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-3 18:15</a>
+
+村正宝具无视防御，打起来就是切菜</blockquote>
+多谢提供思路，过了<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  上坂莲华  
+##### 79573#       发表于 2021-7-3 19:04
+
+
+1宝宇宙凛试了几把过了，加防可以带个满破宝石卷福开宝具，打不死尼禄可以后排放个带倍卡的**挑
+
+
+-----
+
+####  qixinno2  
+##### 79574#       发表于 2021-7-3 19:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">靠堆BUFF用仇凛打过去了 
+
+
+                                                 

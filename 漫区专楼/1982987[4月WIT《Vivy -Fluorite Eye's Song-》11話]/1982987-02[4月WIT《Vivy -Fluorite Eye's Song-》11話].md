@@ -9006,3 +9006,17 @@ ai失控后完全没有出现人类正规军，就只有平民被乱杀，以及
 
 
                                                  
+
+-----
+
+####  Uгd  
+##### 2183#       发表于 2021-7-3 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51828155&amp;ptid=1982987" target="_blank">wolfwood 发表于 2021-7-3 16:21</a>
+
+看完契丹的SP后再一口气补完了，非常不错，这种四平八稳把故事正常讲完的片子，真棒啊 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我一开始觉得VIVI不如辽史，看完以后，马的VIVI好看多了。
+
+
+                                                 
