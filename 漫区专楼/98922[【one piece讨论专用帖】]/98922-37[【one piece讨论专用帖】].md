@@ -16408,3 +16408,29 @@ fzf还有个动物系觉醒跟六式奥义没拿出来
 
 
                                                  
+
+-----
+
+####  抽烟的猴  
+##### 55379#       发表于 2021-7-3 09:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51817255&amp;ptid=98922" target="_blank">yeluffy 发表于 2021-7-2 16:27</a>
+
+但是甚平是第一档的那种七武海呀，六子被七武海碾压理所当然的呀</blockquote>
+我怎么记得甚平普遍被认为是七武海中游水平，第一档鹰眼，第二档明弟，熊
+
+
+-----
+
+####  fmchar  
+##### 55380#       发表于 2021-7-3 09:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51824824&amp;ptid=98922" target="_blank">抽烟的猴 发表于 2021-7-3 09:21</a>
+
+我怎么记得甚平普遍被认为是七武海中游水平，第一档鹰眼，第二档明弟，熊 ...</blockquote>
+出场过的七武海，除去黑胡子、鹰眼最强，其次大概是小白胡子、明弟、甚平、老沙、熊这几个差不多，女帝可能稍弱些、罗是绑定主角的超新星未来上限高
+
+
+                                                 
