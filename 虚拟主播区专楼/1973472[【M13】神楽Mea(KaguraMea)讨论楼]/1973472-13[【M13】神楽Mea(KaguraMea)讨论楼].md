@@ -7517,3 +7517,80 @@ mix只要是P站吊人图他都在直接大象发情啊<img src="https://static.
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 18695#       发表于 2021-7-3 12:32
+
+
+再不发fleet，感觉要犯病了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18696#       发表于 2021-7-3 12:34
+
+
+已经要犯病了，隔壁还来个指导哥，很不安很害怕。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| Cushaw| + 1|隔壁楼隐了之后来了好几个了|
+
+
+查看全部评分
+
+
+-----
+
+####  T_Hb  
+##### 18697#       发表于 2021-7-3 12:38
+
+
+ 本帖最后由 T_Hb 于 2021-7-3 12:43 编辑 
+
+没点意思，全都是车过的话题，还不如去听几遍翻唱
+
+
+-----
+
+####  Klience  
+##### 18698#       发表于 2021-7-3 12:48
+
+
+我tm一边听她的歌一边刷pse刷了3个小时 一个带词条的装备都没有出 我寻思这人的运气能通过这种方式传染给别人的吗<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Cushaw  
+##### 18699#       发表于 2021-7-3 12:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51826510&amp;ptid=1973472" target="_blank">Klience 发表于 2021-7-3 12:48</a>
+我tm一边听她的歌一边刷pse刷了3个小时 一个带词条的装备都没有出 我寻思这人的运气能通过这种方式传染给别 ...</blockquote>
+那是你自己的问题，不要怪罪阿咩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  Klience  
+##### 18700#       发表于 2021-7-3 13:04
+
+
+不行了 先睡会 困得要死 昨晚玩到2点半才睡 早上8点就醒了 中午吃完饭就开始犯困了
+
+
+                                                 
