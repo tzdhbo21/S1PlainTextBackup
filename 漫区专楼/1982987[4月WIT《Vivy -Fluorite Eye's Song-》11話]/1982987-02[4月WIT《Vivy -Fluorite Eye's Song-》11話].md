@@ -9031,3 +9031,25 @@ ai失控后完全没有出现人类正规军，就只有平民被乱杀，以及
 
 
                                                  
+
+-----
+
+####  xaniag  
+##### 2185#       发表于 2021-7-3 22:37
+
+
+辽史烂也没办法用来给vivy洗地啊
+
+
+-----
+
+####  叶夜青  
+##### 2186#       发表于 2021-7-3 23:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">盖棺定论了，四个字，日本灵笼
+
+—— 来自 HUAWEI DUK-AL20, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

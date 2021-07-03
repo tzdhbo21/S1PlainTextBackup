@@ -8013,3 +8013,72 @@ et你看了个hello word是再开发了？</blockquote>
 
 
                                                  
+
+-----
+
+####  ShyCrazydog  
+##### 18738#       发表于 2021-7-3 22:34
+
+
+et还需要再开发？你侮辱了et两年的男同历史，我要求你立即改正<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18739#       发表于 2021-7-3 23:02
+
+
+ 本帖最后由 T_Hb 于 2021-7-3 23:05 编辑 
+
+看来是真忙完了，屁大点事也发fleet
+
+
+-----
+
+####  路人辰  
+##### 18740#       发表于 2021-7-3 23:04
+
+
+20210703东京23点
+
+<img src="https://img.saraba1st.com/forum/202107/03/230452bqoxxkesnjol1oox.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3BD12A53-2FF1-4AF8-9A8C-245439647CD7.jpeg</strong> (178.93 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-3 23:04 上传
+
+
+-----
+
+####  Klience  
+##### 18741#       发表于 2021-7-3 23:06
+
+
+今晚她忙个寄吧 打了一个晚上的lol
+
+
+-----
+
+####  T_Hb  
+##### 18742#       发表于 2021-7-3 23:08
+
+
+说的就是这两天的工作忙完了，开始躺平101了
+
+
+-----
+
+####  十九号大侠  
+##### 18743#       发表于 2021-7-3 23:08
+
+
+这不挺忙的吗
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

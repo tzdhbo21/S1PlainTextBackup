@@ -1144,3 +1144,27 @@ https://www.bilibili.com/video/BV1H64y1b7Bs/
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79595#       发表于 2021-7-3 22:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">C呆太强了。今天直接把之前攒着所有高难全打了。整理一下，明天换本之前应该能100池子
+
+
+-----
+
+####  khxooo  
+##### 79596#       发表于 2021-7-3 23:01
+
+
+ 本帖最后由 khxooo 于 2021-7-3 23:24 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51831389&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-3 22:27</a>
+
+C呆太强了。今天直接把之前攒着所有高难全打了。整理一下，明天换本之前应该能100池子 ...</blockquote>
+我是暂停了，等新的阴间本了，预订每个阴间本刷最多刷60个金苹果就停了，没苹果了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+                                                 
