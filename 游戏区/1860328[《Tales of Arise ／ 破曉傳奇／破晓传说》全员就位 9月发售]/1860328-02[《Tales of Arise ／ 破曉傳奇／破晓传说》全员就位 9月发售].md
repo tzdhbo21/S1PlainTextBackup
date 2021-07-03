@@ -4918,3 +4918,18 @@ nga的某些人看着肯定要无能狂怒就是了 ...</blockquote>
 
 
                                                  
+
+-----
+
+####  BigLittle1999  
+##### 1836#       发表于 2021-7-4 03:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51832980&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-4 02:31</a>
+哪个vtb啊？</blockquote>
+在游戏区能发vtb相关吗？holoEN的火鸡kiara，真人是keekihime，b站有号的cos
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 

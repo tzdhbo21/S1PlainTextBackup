@@ -4201,3 +4201,17 @@ https://twitter.com/bunko_dengeki/status/1410871277120724992
 
 
                                                  
+
+-----
+
+####  面具13  
+##### 6355#       发表于 2021-7-4 02:58
+
+
+ 本帖最后由 面具13 于 2021-7-4 03:18 编辑 
+
+加减法也能错的吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还用的数数的方式。
+先bet+再draw3必胜吧。太傻了
+
+
+                                                 
