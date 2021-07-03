@@ -909,3 +909,138 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
 
                                                  
+
+-----
+
+####  千叶铁矢  
+##### 79575#       发表于 2021-7-3 19:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51828928&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-3 18:00</a>
+果然到现在还是打不过原版的全力斗技，算了不浪费时间了，前面没问题，就是杀了C妈后太硬了，打不动 ...</blockquote>
+顺序错了，先杀尼禄，c妈10次战续杀气来也很简单的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79576#       发表于 2021-7-3 19:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829574&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-7-3 19:22</a>
+顺序错了，先杀尼禄，c妈10次战续杀气来也很简单的</blockquote>
+之前用仇凛轰过去了，第一面全杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千叶铁矢  
+##### 79577#       发表于 2021-7-3 19:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829600&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-3 19:26</a>
+之前用仇凛轰过去了，第一面全杀了</blockquote>
+我仇凛轰完最后剩尼禄发现轰不动了，就上单体一个一个打的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79578#       发表于 2021-7-3 19:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你们是没用倍卡吗？　为啥会打不动　萌新的武师傅还是１宝的啊
+
+
+-----
+
+####  khxooo  
+##### 79579#       发表于 2021-7-3 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829445&amp;ptid=1085254" target="_blank">上坂莲华 发表于 2021-7-3 19:04</a>
+1宝宇宙凛试了几把过了，加防可以带个满破宝石卷福开宝具，打不死尼禄可以后排放个带倍卡的**挑 ...</blockquote>
+现在国服正在Up老福，我是不是要抽个来打这个高难<img src="https://static.saraba1st.com/image/smiley/face2017/213.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千叶铁矢  
+##### 79580#       发表于 2021-7-3 19:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829655&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-3 19:34</a>
+你们是没用倍卡吗？　为啥会打不动　萌新的武师傅还是１宝的啊</blockquote>
+一宝武藏冲第一面都回不满啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79581#       发表于 2021-7-3 19:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829725&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-7-3 19:43</a>
+
+一宝武藏冲第一面都回不满啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">？　我３技能都没开啊
+
+
+<img src="https://img.saraba1st.com/forum/202107/03/195349b7ti2e22jcq2xfkk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>111.jpg</strong> (687.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-3 19:53 上传
+
+
+-----
+
+####  qixinno2  
+##### 79582#       发表于 2021-7-3 19:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829684&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-3 19:38</a>
+
+现在国服正在Up老福，我是不是要抽个来打这个高难</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不需要 我二宝仇凛六回合打完了 而且前两回合纯粹是因为没看板娘等弓南丁下场
+
+
+-----
+
+####  alucardcz  
+##### 79583#       发表于 2021-7-3 19:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829725&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-7-3 19:43</a>
+
+一宝武藏冲第一面都回不满啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我去录个像玩玩　　等ｂ站审核
+
+
+-----
+
+####  xiongxingyu  
+##### 79584#       发表于 2021-7-3 20:11
+
+
+村正脚打，宝具无视防御，老板高难后排放了个藤乃出来补刀（好不容易抽到的海景房，怎么能不拿出来用用）。
+
+
+-----
+
+####  alucardcz  
+##### 79585#       发表于 2021-7-3 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829725&amp;ptid=1085254" target="_blank">千叶铁矢 发表于 2021-7-3 19:43</a>
+
+一宝武藏冲第一面都回不满啊</blockquote>
+[https://www.bilibili.com/video/BV1H64y1b7Bs/](https://www.bilibili.com/video/BV1H64y1b7Bs/)
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">过审了  1宝水武藏3t（
+
+
+                                                 
