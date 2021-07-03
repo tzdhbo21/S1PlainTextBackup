@@ -806,3 +806,74 @@ bba一枪就戳没了啊，哪儿有后面的事儿
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79566#       发表于 2021-7-3 18:00
+
+
+果然到现在还是打不过原版的全力斗技，算了不浪费时间了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">，前面没问题，就是杀了C妈后太硬了，打不动。而且拉二还会加防。
+
+
+-----
+
+####  黑上シグマ  
+##### 79567#       发表于 2021-7-3 18:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51828928&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-3 18:00</a>
+
+果然到现在还是打不过原版的全力斗技，算了不浪费时间了，前面没问题，就是杀了C妈后太硬了，打不动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">村正宝具无视防御，打起来就是切菜
+
+
+-----
+
+####  alucardcz  
+##### 79568#       发表于 2021-7-3 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51828928&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-3 18:00</a>
+
+果然到现在还是打不过原版的全力斗技，算了不浪费时间了，前面没问题，就是杀了C妈后太硬了，打不动 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你不对劲　武师傅直接冲掉了啊
+
+
+-----
+
+####  khxooo  
+##### 79569#       发表于 2021-7-3 18:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829047&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-3 18:18</a>
+
+你不对劲　武师傅直接冲掉了啊</blockquote>
+单C呆能冲掉吗？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79570#       发表于 2021-7-3 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51829062&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-3 18:19</a>
+
+单C呆能冲掉吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这就触及我的知识盲区了。。不知道
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79571#       发表于 2021-7-3 18:24
+
+
+宇宙凛打原版全力斗技翻车了
+还是天草好使
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
