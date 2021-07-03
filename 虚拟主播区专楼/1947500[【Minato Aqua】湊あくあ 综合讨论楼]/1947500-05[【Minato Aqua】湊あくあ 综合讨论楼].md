@@ -4033,3 +4033,25 @@ https://twitter.com/bunko_dengeki/status/1410871277120724992
 
 
                                                  
+
+-----
+
+####  面具13  
+##### 6339#       发表于 2021-7-3 16:46
+
+
+改了直播封面，那是非突发紧急情况不会鸽了
+
+
+-----
+
+####  TiHaru  
+##### 6340#       发表于 2021-7-3 17:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51821614&amp;ptid=1947500" target="_blank">nian1538 发表于 2021-7-2 22:37</a>
+7月2日に新しい歌ってみた動画を上げる予定だったけど、ちょっと間に合わなそうなので延期です！もうちょっ ...</blockquote>
+这句已经删了
+
+
+                                                 

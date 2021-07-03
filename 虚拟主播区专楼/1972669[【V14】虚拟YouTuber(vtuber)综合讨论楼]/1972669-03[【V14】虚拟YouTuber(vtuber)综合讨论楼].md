@@ -11159,3 +11159,83 @@ Intro. | シオノギカナデ【オリジナルMV】
 
 
                                                  
+
+-----
+
+####  nagitoY  
+##### 3828#       发表于 2021-7-3 17:20
+
+
+z5佬的“Anonymous听虚拟网红”没继续做了吗？只看到了2019年的<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 3829#       发表于 2021-7-3 17:20
+
+
+[https://www.youtube.com/watch?v=V2m_tJ1sZ0A](https://www.youtube.com/watch?v=V2m_tJ1sZ0A)
+
+【冒頭無料配信】Virtual Music Award 2021 SUMMER　DAY1
+
+
+-----
+
+####  nagitoY  
+##### 3830#       发表于 2021-7-3 17:20
+
+
+ 本帖最后由 nagitoY 于 2021-7-3 17:21 编辑 
+
+现在接触日本流行歌全靠vtb唱见了。z5佬的2018年度总结让我发现了狮子神唱摇滚非常棒，kmnz我也挺喜欢。不知道他现在是不是太忙了没继续做了？
+
+
+-----
+
+####  free  
+##### 3831#       发表于 2021-7-3 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51828627&amp;ptid=1972669" target="_blank">nagitoY 发表于 2021-7-3 17:20</a>
+
+现在接触日本流行歌全靠vtb唱见了。z5佬的2018年度总结让我发现了狮子神唱摇滚非常棒，kmnz我也挺喜欢。不 ...</blockquote>
+每年写一篇，有兴趣来群828949808里听他聊
+[https://bbs.nga.cn/read.php?tid=16379391](https://bbs.nga.cn/read.php?tid=16379391)
+[https://bbs.nga.cn/read.php?tid=20142426](https://bbs.nga.cn/read.php?tid=20142426)
+[https://bbs.nga.cn/read.php?tid=25631925](https://bbs.nga.cn/read.php?tid=25631925)
+
+
+-----
+
+####  nagitoY  
+##### 3832#       发表于 2021-7-3 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51828668&amp;ptid=1972669" target="_blank">free 发表于 2021-7-3 17:24</a>
+
+每年写一篇，有兴趣来群828949808里听他聊
+
+https://bbs.nga.cn/read.php?tid=16379391
+
+https://bbs.nga.c ...</blockquote>
+20年的原来没发到专栏吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nagitoY  
+##### 3833#       发表于 2021-7-3 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51828668&amp;ptid=1972669" target="_blank">free 发表于 2021-7-3 17:24</a>
+
+每年写一篇，有兴趣来群828949808里听他聊
+
+https://bbs.nga.cn/read.php?tid=16379391
+
+https://bbs.nga.c ...</blockquote>
+申请了，进群听课<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+                                                 
