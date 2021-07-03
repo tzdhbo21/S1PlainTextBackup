@@ -4226,3 +4226,88 @@ https://twitter.com/bunko_dengeki/status/1410871277120724992
 
 
                                                  
+
+-----
+
+####  Scardy  
+##### 6357#       发表于 2021-7-4 04:25
+
+
+感觉要过了
+
+
+-----
+
+####  Scardy  
+##### 6358#       发表于 2021-7-4 04:47
+
+
+卧槽，我慌了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6359#       发表于 2021-7-4 04:49
+
+
+ 本帖最后由 面具13 于 2021-7-4 04:58 编辑 
+
+可能要过了。草，耍赖了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+这回耍不了赖了
+
+
+-----
+
+####  乌鸦绅士  
+##### 6360#       发表于 2021-7-4 05:00
+
+
+总算赢了
+
+
+
+
+-----
+
+####  Scardy  
+##### 6361#       发表于 2021-7-4 05:00
+
+
+过了过了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nevp  
+##### 6362#       发表于 2021-7-4 05:01
+
+
+久违的耐久，还是那个味
+
+
+-----
+
+####  星の守  
+##### 6363#       发表于 2021-7-4 05:12
+
+
+我青回<img src="https://static.saraba1st.com/image/smiley/face2017/071.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  面具13  
+##### 6364#       发表于 2021-7-4 05:55
+
+
+6月直播情况统计：8次普通直播（3次歌回，1次马娘，1次小品恐怖游戏，3次通常游戏回），1次广告直播（红牛和ps5版ff7re），1次会限歌回，1首翻唱。和5月比还是好一点点的。
+
+
+7月收录的东西可能更多（大头是两场live），怕不是要比6月更摸。
+
+
+1个月后回来看看攒了几小时录播。live时间不正好的话可能就不看了，毕竟一直也没觉得live除了不会瞎唱搞怪外比歌回强多少，对3d小人跳舞兴趣真不大。
+
+
+                                                
