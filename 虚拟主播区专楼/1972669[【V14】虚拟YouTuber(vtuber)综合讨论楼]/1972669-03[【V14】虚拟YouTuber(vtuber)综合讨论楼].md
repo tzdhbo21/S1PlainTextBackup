@@ -11121,3 +11121,41 @@ Intro. | シオノギカナデ【オリジナルMV】
 
 
                                                  
+
+-----
+
+####  渡鸦骑士  
+##### 3824#       发表于 2021-7-3 15:27
+
+
+主台3w人……是真的无聊啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 3825#       发表于 2021-7-3 15:30
+
+
+今年你🌈甲子园还办不办
+
+
+-----
+
+####  死体残留  
+##### 3826#       发表于 2021-7-3 15:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">爱园这机子bug了吧 太爽了
+
+
+-----
+
+####  Suny08  
+##### 3827#       发表于 2021-7-3 16:07
+
+
+你虹的这个大会是不是又是线下办的，又变成26人线充大会了啊
+
+
+                                                 
