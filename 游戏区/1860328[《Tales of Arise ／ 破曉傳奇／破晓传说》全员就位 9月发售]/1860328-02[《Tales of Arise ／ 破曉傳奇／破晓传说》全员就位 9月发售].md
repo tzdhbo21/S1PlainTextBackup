@@ -4877,3 +4877,44 @@ hololive en的二刺螈专攻，隔壁PSO2也找她带过货
 
 
                                                 
+
+-----
+
+####  rgauss  
+##### 1833#       发表于 2021-7-4 02:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51832385&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-7-4 00:28</a>
+绯红没感觉表情很好啊，女主总是绷着一副脸，感情起伏完全看不出来</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">绯红女主基本没啥表情波动的 性格原因应该
+得看其他人的
+
+
+-----
+
+####  椎名mahuyo  
+##### 1834#       发表于 2021-7-4 02:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51832094&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-7-3 23:52</a>
+有谁知道官方唯一指定大使那位虚拟主播，是什么背景啊我不看虚拟主播的，不太了解。 ...</blockquote>
+顺便她那皮按她真人做的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+nga的某些人看着肯定要无能狂怒就是了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zero12  
+##### 1835#       发表于 2021-7-4 02:31
+
+
+<blockquote>椎名mahuyo 发表于 2021-7-4 02:21
+顺便她那皮按她真人做的
+
+
+nga的某些人看着肯定要无能狂怒就是了 ...</blockquote>
+哪个vtb啊？
+
+
+                                                 
