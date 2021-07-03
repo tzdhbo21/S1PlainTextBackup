@@ -4821,3 +4821,59 @@ PS5手柄是可以模拟出震动方向的，虽然不算细腻，不过意思�
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1829#         楼主| 发表于 2021-7-3 23:52
+
+
+有谁知道官方唯一指定大使那位虚拟主播，是什么背景啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我不看虚拟主播的，不太了解。
+
+
+-----
+
+####  Ketestrait  
+##### 1830#       发表于 2021-7-3 23:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51832094&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-7-3 23:52</a>
+
+有谁知道官方唯一指定大使那位虚拟主播，是什么背景啊我不看虚拟主播的，不太了解。 ...</blockquote>
+hololive en的二刺螈专攻，隔壁PSO2也找她带过货
+
+
+
+
+-----
+
+####  whzfjk  
+##### 1831#       发表于 2021-7-4 00:24
+
+
+<img src="https://img.saraba1st.com/forum/202107/04/002340hsq4bqllwyhxqxbe.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-07-04_00-23-29.png</strong> (32.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-4 00:23 上传
+
+
+刷微博看到这么个视频封面，误以为是破晓传说，看到公主依偎在去掉面具露出眼睛的男主怀里，我瞬间沸腾。
+
+
+然后发现是别的游戏……
+
+
+-----
+
+####  hkguty  
+##### 1832#       发表于 2021-7-4 00:28
+
+
+绯红没感觉表情很好啊，女主总是绷着一副脸，感情起伏完全看不出来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
