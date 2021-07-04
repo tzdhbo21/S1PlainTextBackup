@@ -1506,3 +1506,14 @@ lls满了不用
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79625#       发表于 2021-7-4 22:51
+
+
+白枪+莉莉丝，勉强可以6加成，我只想多掉一张礼装，这样就可以上NP礼装，试试不换人了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

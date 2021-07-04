@@ -4217,3 +4217,42 @@ op加上cv和声了 但画面没有换<img src="https://static.saraba1st.com/ima
 
 
                                                  
+
+-----
+
+####  李霞  
+##### 1817#       发表于 2021-7-4 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51839662&amp;ptid=1963832" target="_blank">haojie_ma 发表于 2021-7-4 20:30</a>
+
+老套的怕鬼和鬼屋探险的题材因为和主线结合起来看起来比较有新意了，看起来虾蛄姑的结局也安排起来了
+
+说来 ...</blockquote>
+跟原版恰奇不像，不过跟狗屋出过的性转版可以说是一模一样了。
+
+<img src="https://i.loli.net/2021/07/04/atIbUYJCxGomsXy.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  PrincessBanana  
+##### 1818#       发表于 2021-7-4 22:57
+
+
+虾姑和海参的母子感真是太浓了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+感觉这部的干部真是最没有反派感的一部了
+
+
+-----
+
+####  PrincessBanana  
+##### 1819#       发表于 2021-7-4 23:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51822227&amp;ptid=1963832" target="_blank">isa2456 发表于 2021-7-2 23:35</a>
+我看不出组曲哪里可以跟热带联动啊，不过能看到新画风的响奏和艾莲感觉也不是不行 ...</blockquote>
+大概是……响爷和夏夏都是露脐装元气少女罢
+
+
+                                                 

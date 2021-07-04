@@ -5038,3 +5038,64 @@ TOAR是目前万南社内开发规格、品控要求和优先级最高的单机R
 
 
                                                  
+
+-----
+
+####  TheOccuria  
+##### 1844#       发表于 2021-7-4 23:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51840329&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-7-4 21:22</a>
+
+不关注VTB，客观说对SBGI这次操作还挺认同的，传说真该好好做下欧美推广
+
+之前公布的销量，TOD总172，亚区占 ...</blockquote>
+其实tox那会马场就经常往欧美跑了，这些年日本动画往欧美推广成绩斐然不知道能不能带飞二次元游戏
+
+不过绯红好像不怎么样。。至少官方还没吹百万
+
+
+-----
+
+####  zero12  
+##### 1845#       发表于 2021-7-4 23:11
+
+
+<blockquote>TheOccuria 发表于 2021-7-4 23:03
+其实tox那会马场就经常往欧美跑了，这些年日本动画往欧美推广成绩斐然不知道能不能带飞二次元游戏
+
+不过绯 ...</blockquote>
+绯红这要是两周百万怕是要上天
+
+
+-----
+
+####  LT_Harry  
+##### 1846#         楼主| 发表于 2021-7-4 23:33
+
+
+本作的表主题是“反抗侵略求解放”，那么里主题会是什么呢？各位有什么看法？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/04/233327b3cxcr18h8guky3k.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (31.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-4 23:33 上传
+
+
+-----
+
+####  TheOccuria  
+##### 1847#       发表于 2021-7-4 23:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51841757&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-4 23:11</a>
+
+绯红这要是两周百万怕是要上天</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">嗜血代码好像卖了四五个月百万的？这代感觉宣传业算卖力了，还以为欧美二次元能给点力
+
+
+                                                 
