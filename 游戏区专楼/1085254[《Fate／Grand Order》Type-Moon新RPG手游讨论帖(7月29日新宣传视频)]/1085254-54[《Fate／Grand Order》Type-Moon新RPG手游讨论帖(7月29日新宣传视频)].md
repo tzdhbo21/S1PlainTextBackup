@@ -1386,3 +1386,101 @@ lls满了不用
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79616#       发表于 2021-7-4 19:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51838540&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-4 18:56</a>
+
+你是要多肝才能把lls都已经15绊了</blockquote>
+10绊下班啊，又不是没人可用了
+
+我对lls又没啥爱好，总不能图那30*5的石头
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79617#       发表于 2021-7-4 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51839210&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-4 19:59</a>
+
+10绊下班啊，又不是没人可用了
+
+我对lls又没啥爱好，总不能图那30*5的石头
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">当然是继续用到死啊，我CBA和狛爵都是15绊才下班的
+
+
+-----
+
+####  alucardcz  
+##### 79618#       发表于 2021-7-4 20:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">关键是梦火不是有很多吗 
+
+
+-----
+
+####  qixinno2  
+##### 79619#       发表于 2021-7-4 20:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没有摩根 LLS一宝 五加成都做不到的我打出了GG
+
+
+-----
+
+####  exiaexa  
+##### 79620#       发表于 2021-7-4 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51839637&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-4 20:28</a>
+
+关键是梦火不是有很多吗</blockquote>
+仓库堆梦火总比全员吃灰强啊
+
+一开始我还换金方块的，今年我连金方块的梦火都不换了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  alucardcz  
+##### 79621#       发表于 2021-7-4 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51839683&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-4 20:31</a>
+
+没有摩根 LLS一宝 五加成都做不到的我打出了GG</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可以的  换人塞个狐狸（
+
+
+-----
+
+####  qixinno2  
+##### 79622#       发表于 2021-7-4 21:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">搞了个换人五加成 还行勉强能用
+
+
+-----
+
+####  黑上シグマ  
+##### 79623#       发表于 2021-7-4 21:09
+
+
+翻页
+
+
+                                                
