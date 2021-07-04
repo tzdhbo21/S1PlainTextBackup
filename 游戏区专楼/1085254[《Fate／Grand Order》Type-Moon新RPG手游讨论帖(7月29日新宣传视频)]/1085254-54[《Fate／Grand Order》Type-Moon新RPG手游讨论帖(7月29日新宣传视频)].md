@@ -1181,3 +1181,16 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79598#       发表于 2021-7-4 12:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51834216&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-4 10:26</a>
+我这一宝五星蓝光炮枪怎么那么水枪</blockquote>
+你对福利多的伤害是不是期待太高？<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
