@@ -11452,3 +11452,32 @@ roa...我的roa...<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 
                                                  
+
+-----
+
+####  Suny08  
+##### 3852#       发表于 2021-7-4 10:05
+
+
+你虹大肆宣传这些博彩娱乐搞不好很多入坑的粉丝变成赌狗就是那些潜在的anti stk
+
+
+-----
+
+####  dybang  
+##### 3853#       发表于 2021-7-4 10:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">日本死宅neet社会地位还不如赌狗吧
+
+
+-----
+
+####  ヒトニナル  
+##### 3854#       发表于 2021-7-4 10:29
+
+
+但其实neet和パチカス这两个群体高度重合啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
