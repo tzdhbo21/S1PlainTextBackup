@@ -5022,3 +5022,19 @@ TOAR是目前万南社内开发规格、品控要求和优先级最高的单机R
 
 
                                                  
+
+-----
+
+####  zero12  
+##### 1843#       发表于 2021-7-4 21:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51840329&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-7-4 21:22</a>
+
+不关注VTB，客观说对SBGI这次操作还挺认同的，传说真该好好做下欧美推广
+
+之前公布的销量，TOD总172，亚区占 ...</blockquote>
+最近的toz和tob都是欧美销量更好吧
+
+
+                                                 

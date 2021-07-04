@@ -4311,3 +4311,14 @@ https://twitter.com/bunko_dengeki/status/1410871277120724992
 
 
                                                 
+
+-----
+
+####  梅斯之围  
+##### 6365#       发表于 2021-7-4 22:14
+
+
+唱了龙女仆主题曲<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+                                                 
