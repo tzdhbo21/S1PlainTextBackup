@@ -1282,3 +1282,107 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79607#       发表于 2021-7-4 17:32
+
+
+ 本帖最后由 黑上シグマ 于 2021-7-4 17:34 编辑 
+
+摩根+黄金圣斗士+孔明，倒是可以不换人打6加成3T
+
+
+-----
+
+####  千叶铁矢  
+##### 79608#       发表于 2021-7-4 17:53
+
+
+倒是可以宝具3t，但是二三面伤害都差一点<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 79609#       发表于 2021-7-4 18:10
+
+
+这个本体现了摩根的能力，一个50自充还能出星集星打暴击的狂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  KOBI  
+##### 79610#       发表于 2021-7-4 18:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">宝具等级。。不足啊，摩根跟弗栗多都只有1宝伤害总是差一点。。
+
+
+-----
+
+####  alucardcz  
+##### 79611#       发表于 2021-7-4 18:31
+
+
+萌新1宝摩根带倍卡礼装假装6加成3t<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79612#       发表于 2021-7-4 18:35
+
+
+吐了，这副本组合真是撞到枪阶短板上了
+
+1t不管怎么组合都不稳，上一轮摩根+教授的情况，哪怕只有教授蓝+绿都能稳定打掉
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79613#       发表于 2021-7-4 18:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51838352&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-4 18:35</a>
+
+吐了，这副本组合真是撞到枪阶短板上了
+
+1t不管怎么组合都不稳，上一轮摩根+教授的情况，哪怕只有教授蓝+绿 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">放弃6加成 lls带宝石 用脚快乐3t5加成周回啊
+
+
+-----
+
+####  exiaexa  
+##### 79614#       发表于 2021-7-4 18:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51838412&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-4 18:41</a>
+
+放弃6加成 lls带宝石 用脚快乐3t5加成周回啊</blockquote>
+lls满了不用
+
+我换了一张金时20星礼装，双枪呆+C呆直接炸
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79615#       发表于 2021-7-4 18:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51838487&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-4 18:50</a>
+
+lls满了不用
+
+我换了一张金时20星礼装，双枪呆+C呆直接炸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">你是要多肝才能把lls都已经15绊了
+
+
+                                                 

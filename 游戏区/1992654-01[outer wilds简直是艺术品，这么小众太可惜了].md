@@ -2892,3 +2892,18 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  abc12354aa  
+##### 215#       发表于 2021-7-4 19:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51761673&amp;ptid=1992654" target="_blank">TTAA 发表于 2021-6-27 22:26</a>
+刚开始玩，太压抑了，基本一个人孤零零探索。</blockquote>
+去任何星球之前都不要去看相关讨论，不然会很可惜
+
+—— 来自 samsung SM-G9750, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

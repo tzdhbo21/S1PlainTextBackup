@@ -11559,3 +11559,20 @@ roa...我的roa...<img src="https://static.saraba1st.com/image/smiley/face2017/1
 
 
                                                  
+
+-----
+
+####  NBXX  
+##### 3862#       发表于 2021-7-4 17:31
+
+
+[https://www.youtube.com/watch?v=EXozNy4j9UM](https://www.youtube.com/watch?v=EXozNy4j9UM)
+
+今回の騒動につきまして
+<img src="https://p.sda1.dev/2/6815243cac3e18eb5b3dc410c392e6cb/maxresdefault.jpg" referrerpolicy="no-referrer">
+
+
+非常好
+
+
+                                                 
