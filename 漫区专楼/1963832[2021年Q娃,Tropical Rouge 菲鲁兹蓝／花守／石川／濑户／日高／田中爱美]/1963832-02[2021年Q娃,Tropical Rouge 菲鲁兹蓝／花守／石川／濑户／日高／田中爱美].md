@@ -4136,3 +4136,34 @@ q娃如果是特写的话基本都是平板，但无意间也会有作画把胸�
 
 
                                                  
+
+-----
+
+####  球獭  
+##### 1810#       发表于 2021-7-4 13:27
+
+
+真温馨啊
+
+
+-----
+
+####  最强惠酱  
+##### 1811#       发表于 2021-7-4 14:30
+
+
+珊瑚萌袖白丝好懂，这集青山作监感觉比以前好了不少，什么时候她们能和虾老露脸一起玩啊<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  nanjolno  
+##### 1812#       发表于 2021-7-4 14:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/177.png" referrerpolicy="no-referrer">这话是真不错
+
+没想到吉野这个阴间剧本配上阴间作监青山表现出了那么阳间的主题
+
+
+                                                 

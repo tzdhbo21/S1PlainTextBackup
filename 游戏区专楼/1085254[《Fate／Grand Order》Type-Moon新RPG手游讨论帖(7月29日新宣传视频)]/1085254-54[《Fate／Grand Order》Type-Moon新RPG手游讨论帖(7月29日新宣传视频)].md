@@ -1194,3 +1194,71 @@ C呆太强了。今天直接把之前攒着所有高难全打了。整理一下�
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79599#       发表于 2021-7-4 15:07
+
+
+突然想起 现在是不是除了我大ipad外其他全部完美适配了？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79600#       发表于 2021-7-4 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51836632&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-4 15:07</a>
+
+突然想起 现在是不是除了我大ipad外其他全部完美适配了？</blockquote>
+你说屏幕？我其实很想吐槽。为啥公告还是不能全屏
+
+
+-----
+
+####  alucardcz  
+##### 79601#       发表于 2021-7-4 15:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51836649&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-4 15:09</a>
+
+你说屏幕？我其实很想吐槽。为啥公告还是不能全屏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就是平时的界面啊  你看我的录像和截图上下2条那么大的“蓝边”
+
+
+-----
+
+####  黑上シグマ  
+##### 79602#       发表于 2021-7-4 15:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51836632&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-4 15:07</a>
+
+突然想起 现在是不是除了我大ipad外其他全部完美适配了？</blockquote>
+似乎索尼家手机由于屏幕太长，依然没法全屏（
+
+
+-----
+
+####  alucardcz  
+##### 79603#       发表于 2021-7-4 15:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51836660&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-4 15:11</a>
+
+似乎索尼家手机由于屏幕太长，依然没法全屏（</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">原来我不是唯一吃鳖的 那我就放心了（
+
+
+-----
+
+####  areklose  
+##### 79604#       发表于 2021-7-4 15:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">下午能不能来点最潮的新材料。顺便继续113，要是223我觉得很恶心
+
+
+                                                 

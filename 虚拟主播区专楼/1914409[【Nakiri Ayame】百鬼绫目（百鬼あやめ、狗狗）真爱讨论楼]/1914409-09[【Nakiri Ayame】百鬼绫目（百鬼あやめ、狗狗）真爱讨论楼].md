@@ -5971,3 +5971,67 @@ MHR过气了 也不想打枪 拖到7月看有什么管人金游
 
 
                                                  
+
+-----
+
+####  nowaki  
+##### 12524#       发表于 2021-7-4 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51835477&amp;ptid=1914409" target="_blank">nian1538 发表于 2021-7-4 12:42</a>
+
+绫总的生活：一年上一百天班，财富自由，天天玩猫打游戏</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你确定有100天？
+
+
+-----
+
+####  心垂万刃  
+##### 12525#       发表于 2021-7-4 14:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">终于动了
+
+
+-----
+
+####  stedckk  
+##### 12526#       发表于 2021-7-4 14:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6号复活，有几率摸
+
+
+-----
+
+####  因为你不会  
+##### 12527#       发表于 2021-7-4 14:35
+
+
+这个月的任务完成一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cctvyt1  
+##### 12528#       发表于 2021-7-4 14:44
+
+
+不开台金盾失败<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+在公司播不会鸽吧，估计是杂谈
+
+先猜破500踩<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 12529#       发表于 2021-7-4 15:00
+
+
+复活！
+
+
+                                                 
