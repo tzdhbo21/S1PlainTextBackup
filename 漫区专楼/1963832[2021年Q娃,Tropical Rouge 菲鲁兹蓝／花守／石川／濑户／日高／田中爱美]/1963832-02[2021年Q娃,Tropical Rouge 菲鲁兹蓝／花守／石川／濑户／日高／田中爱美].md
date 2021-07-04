@@ -4062,3 +4062,16 @@ q娃如果是特写的话基本都是平板，但无意间也会有作画把胸�
 
 
                                                  
+
+-----
+
+####  kerfars  
+##### 1804#       发表于 2021-7-4 08:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/animal2017/008.png" referrerpolicy="no-referrer">这集本质反派回，之前一直没怎么塑造的反派这集都表现得很好
+
+如果下集蜜瓜包消失和虾虾有关，我愿称今年剧情无敌，细节拉满
+
+
+                                                 
