@@ -6465,3 +6465,26 @@ OP制作水平和歌曲其实还不错啊，就是构思比较随便，基本就
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1977#         楼主| 发表于 2021-7-6 02:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51854141&amp;ptid=1860328" target="_blank">金子一马 发表于 2021-7-6 01:34</a>
+
+感觉还行吧，因为看过很多更烂的传说op，动画做的还可以。我因为好几作传说没玩了，所以把这几个op一起看了 ...</blockquote>
+滨崎步的 progress 和 BoA 的 White Wishes 真的是 Tales 系列顶级主题曲👍循环听了两年了。另外 DEEN 的两首也很不错！
+
+
+-----
+
+####  zero12  
+##### 1978#       发表于 2021-7-6 02:33
+
+
+多看了几遍我发现最大的问题就是每一张希侬几乎都崩了，ufo和女主有仇系列......
+
+
+                                                 

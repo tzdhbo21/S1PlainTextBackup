@@ -11902,3 +11902,39 @@ bora要活了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gi
 
 
                                                  
+
+-----
+
+####  winda  
+##### 3889#       发表于 2021-7-6 01:38
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">8月就是kr三期生一周年了呢
+
+
+-----
+
+####  caupollen  
+##### 3890#       发表于 2021-7-6 01:41
+
+
+彩虹的中日双语liver <img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+[https://www.youtube.com/watch?v=OaTJEb-zm50&amp;t=1s](https://www.youtube.com/watch?v=OaTJEb-zm50&amp;t=1s)
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|欢乐多|
+
+
+查看全部评分
+
+
+                                                 
