@@ -1553,3 +1553,75 @@ lls满了不用
 
 
                                                  
+
+-----
+
+####  不垃圾屌丝  
+##### 79629#       发表于 2021-7-5 11:31
+
+
+两个凛两个C呆换人服六加成稳定，枪凛换摩根说不定能成这种阴间关卡的万用解
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alucardcz  
+##### 79630#       发表于 2021-7-5 12:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天怎么有维护 完了 体力都没清 血亏1个苹果
+
+
+-----
+
+####  areklose  
+##### 79631#       发表于 2021-7-5 12:05
+
+
+竟然有维护，刚吃苹果啊
+
+
+-----
+
+####  qixinno2  
+##### 79632#       发表于 2021-7-5 12:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">胡扯一下尼禄祭二期卡池 2.6下半预热活动 新强化本
+
+
+-----
+
+####  khxooo  
+##### 79633#       发表于 2021-7-5 12:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51846327&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-5 12:10</a>
+胡扯一下尼禄祭二期卡池 2.6下半预热活动 新强化本</blockquote>
+大胆点，狂那宝具本加复刻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79634#       发表于 2021-7-5 12:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想太多 都写这临时维护
+
+
+-----
+
+####  qixinno2  
+##### 79635#       发表于 2021-7-5 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51846342&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-5 12:12</a>
+
+大胆点，狂那宝具本加复刻</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">强化后降红耐变成无视异常无效强制赋予怎么样
+
+
+                                                 
