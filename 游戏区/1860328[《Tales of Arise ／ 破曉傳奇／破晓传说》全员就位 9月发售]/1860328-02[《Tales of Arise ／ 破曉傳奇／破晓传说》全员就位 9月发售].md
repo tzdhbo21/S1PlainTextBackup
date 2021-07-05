@@ -6526,3 +6526,16 @@ OP制作水平和歌曲其实还不错啊，就是构思比较随便，基本就
 
 
                                                 
+
+-----
+
+####  faithlifer  
+##### 1982#       发表于 2021-7-6 03:30
+
+
+op有点拉<img src="https://static.saraba1st.com/image/smiley/face2017/011.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-N9600, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

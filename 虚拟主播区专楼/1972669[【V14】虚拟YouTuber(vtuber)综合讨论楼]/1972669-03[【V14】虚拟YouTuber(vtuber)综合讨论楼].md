@@ -11938,3 +11938,20 @@ bora要活了<img src="https://static.saraba1st.com/image/smiley/face2017/209.gi
 
 
                                                  
+
+-----
+
+####  心臓止まった  
+##### 3891#       发表于 2021-7-6 05:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51821506&amp;ptid=1972669" target="_blank">十四洲 发表于 2021-7-2 22:25</a>
+请问这位是？
+
+好像突然火了，评价很高的样子</blockquote>
+youtuber，原号是发翻唱，玩荒野，唱得还不错，游戏我没看过，加了个youtuber事务所
+
+看了下这是她游戏直播号套皮了，我没关注这个号所以没发现
+
+
+                                                 
