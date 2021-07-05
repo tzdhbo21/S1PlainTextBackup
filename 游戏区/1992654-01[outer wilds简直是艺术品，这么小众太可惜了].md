@@ -3051,3 +3051,27 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  yoboc  
+##### 228#       发表于 2021-7-6 07:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851403&amp;ptid=1992654" target="_blank">妮贝雅 发表于 2021-7-5 20:10</a>
+碎空星后期就全是口子了233</blockquote>
+说的是重力炮吧，从那里进去确实挺方便的，比从逃生舱那里到十字路口乱窜安全多了
+
+
+-----
+
+####  luoyianwu  
+##### 229#       发表于 2021-7-6 07:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852440&amp;ptid=1992654" target="_blank">雾wu 发表于 2021-7-5 21:55</a>
+所以说坛友们都是怎么通关的，我知道这游戏有趣不假，但是也遭不住他又黑又绕还没地图啊，即便是不 ...</blockquote>
+开个记事本记下所有疑点和线索
+
+
+                                                 
