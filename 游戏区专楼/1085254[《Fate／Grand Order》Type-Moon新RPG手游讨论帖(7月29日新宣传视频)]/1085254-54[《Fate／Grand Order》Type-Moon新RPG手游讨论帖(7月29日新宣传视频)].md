@@ -1625,3 +1625,37 @@ lls满了不用
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79636#       发表于 2021-7-5 12:52
+
+
+大胆点，氪金半价
+
+
+-----
+
+####  khxooo  
+##### 79637#       发表于 2021-7-5 12:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51846724&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-5 12:52</a>
+大胆点，氪金半价</blockquote>
+这个真的太大胆了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  selfcest  
+##### 79638#       发表于 2021-7-5 13:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51836660&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-4 15:11</a>
+
+似乎索尼家手机由于屏幕太长，依然没法全屏（</blockquote>
+FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
