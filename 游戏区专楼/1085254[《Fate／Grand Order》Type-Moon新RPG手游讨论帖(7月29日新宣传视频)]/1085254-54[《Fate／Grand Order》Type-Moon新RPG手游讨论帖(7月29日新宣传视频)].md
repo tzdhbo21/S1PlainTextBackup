@@ -1684,3 +1684,35 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79641#       发表于 2021-7-5 21:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">40箱只掉了1张礼装…………
+
+
+-----
+
+####  里村紅葉  
+##### 79642#       发表于 2021-7-5 21:21
+
+
+看来是4年前掉的太狠，我这期把商店换出来就可以+12了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79643#       发表于 2021-7-5 21:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852109&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-5 21:21</a>
+
+看来是4年前掉的太狠，我这期把商店换出来就可以+12了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">欧，羡慕。还差9张才能+12
+
+
+                                                 

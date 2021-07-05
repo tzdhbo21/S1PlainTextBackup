@@ -11844,3 +11844,50 @@ cocotsuki 2021.11.27 1st real live
 
 
                                                  
+
+-----
+
+####  qesto  
+##### 3885#       发表于 2021-7-5 20:53
+
+
+ 本帖最后由 qesto 于 2021-7-5 20:58 编辑 
+
+说到招练习生，以前虹那个招中日双语liver的计划好久了，后来是中止了吗
+
+
+-----
+
+####  patema  
+##### 3886#       发表于 2021-7-5 21:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851819&amp;ptid=1972669" target="_blank">qesto 发表于 2021-7-5 20:53</a>
+说到招练习生，以前虹那个招中日双语liver的计划好久了，后来是中止了吗</blockquote>
+终止了应该，那个白毛皮都给kr了
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  SuntoryNomu  
+##### 3887#       发表于 2021-7-5 21:24
+
+
+ 本帖最后由 SuntoryNomu 于 2021-7-5 21:26 编辑 
+
+电竞女孩活了。
+
+
+拿个翻译： <blockquote>今個月應該可以回來了！！！
+
+很對不起要大家擔心～
+
+看着CR Cup的話時間很快就會過去的所以請再等多一會呢
+
+
+我會帶着禮物回來的</blockquote>
+
+
+                                                 

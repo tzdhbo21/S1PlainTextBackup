@@ -3027,3 +3027,14 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  雾wu  
+##### 226#       发表于 2021-7-5 21:55
+
+
+所以说坛友们都是怎么通关的，我知道这游戏有趣不假，但是也遭不住他又黑又绕还没地图啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，简直要吐血了
+
+
+                                                 

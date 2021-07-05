@@ -5434,3 +5434,823 @@ op中规中矩吧，没太大惊喜，总觉得女主脸有点怪？
 
 
                                                 
+
+-----
+
+####  bgmilk  
+##### 1880#       发表于 2021-7-5 20:47
+
+
+   我觉得在ufo做的game op里算不怎么样的了，好几个cut作画都很不稳<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  隔壁老黄  
+##### 1881#       发表于 2021-7-5 20:48
+
+
+大boss就是那个黑袍漏逼？？
+
+
+-----
+
+####  桧山修之  
+##### 1882#       发表于 2021-7-5 20:50
+
+
+op女主的脸怎么有种微妙的作画不稳定的感觉?主题曲感觉中规中矩吧，op映像最大的骑士的pp
+
+
+-----
+
+####  安广多惠子  
+##### 1883#       发表于 2021-7-5 20:50
+
+
+画面还可以，歌有点拉了，盾娘的屁股有个镜头爱了
+
+
+-----
+
+####  zero12  
+##### 1884#       发表于 2021-7-5 20:50
+
+
+我就觉得ufo做鬼灭燃烧殆尽了
+
+
+-----
+
+####  ff2077  
+##### 1885#       发表于 2021-7-5 20:51
+
+
+飞碟社是不是摸了……不过还是比绯红的好太多了。女主的脸有点微妙啊，但女骑士反而就比游戏里面还要好看
+
+
+-----
+
+####  蓝雉  
+##### 1886#       发表于 2021-7-5 20:51
+
+
+说起来之前的访谈提到这次的人设是专门为了3D化的,导致UFO做动画非常困难(
+
+
+-----
+
+####  hkguty  
+##### 1887#       发表于 2021-7-5 20:53
+
+
+下地看哭了还行
+
+
+-----
+
+####  寒风夜  
+##### 1888#       发表于 2021-7-5 20:53
+
+
+很飞碟
+
+
+-----
+
+####  塔奇克马  
+##### 1889#       发表于 2021-7-5 20:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">没赶上OP?
+
+
+-----
+
+####  defer  
+##### 1890#       发表于 2021-7-5 20:56
+
+
+刚刚打开，我是不是幻视了，这个mc是不是前几天smt5那个？<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  zero12  
+##### 1891#       发表于 2021-7-5 20:56
+
+
+看微博有人说ufo不行歌行，有人说歌不行ufo行。是都行还是都不行？
+
+
+-----
+
+####  ff2077  
+##### 1892#       发表于 2021-7-5 20:59
+
+
+ufo水平在线但没之前的那么顶，歌就那样吧……
+
+
+-----
+
+####  LMBS  
+##### 1893#       发表于 2021-7-5 20:59
+
+
+都不行，不排除歌听多了会觉得还行
+
+
+-----
+
+####  haze.l  
+##### 1894#       发表于 2021-7-5 20:59
+
+
+这歌是不是妈妈船里最拉的，这vocal听得我脑壳疼
+
+—— 来自 Sony XQ-BC72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  angela5d30  
+##### 1895#       发表于 2021-7-5 20:59
+
+
+感觉人物偶尔怪怪的<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  塔奇克马  
+##### 1896#       发表于 2021-7-5 21:00
+
+
+如果没几个说都行的话...那大概是都不行或者都一般吧....
+
+
+-----
+
+####  中泽君  
+##### 1897#       发表于 2021-7-5 21:01
+
+
+人物有种廉价动画的感觉，跟隔壁绯红动画版差不多
+
+
+-----
+
+####  shinra-01  
+##### 1898#       发表于 2021-7-5 21:01
+
+
+传说的OP曲真是越来越拉跨了，，，，，
+
+
+-----
+
+####  defer  
+##### 1899#       发表于 2021-7-5 21:02
+
+
+有没有女玩家或资深jpop达人评价一下，我想知道是我不太会鉴赏男团组合还是真的拉<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bgmilk  
+##### 1900#       发表于 2021-7-5 21:03
+
+
+     这斗篷哥我还挺喜欢的，希望不会太low
+
+
+    
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/210330zy83n13c6ggl8yya.png" referrerpolicy="no-referrer">
+
+
+<strong>%$L0OX7G__Z4[]~$(QZP(P1.png</strong> (42.6 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 21:03 上传
+
+
+-----
+
+####  LMBS  
+##### 1901#       发表于 2021-7-5 21:03
+
+
+期待-20%
+
+
+-----
+
+####  Kedger  
+##### 1902#       发表于 2021-7-5 21:04
+
+
+搜了一下am，好像是个15年出道的乐队，不过比起当时也是新锐乐队给TOS写的那两首确实差远了
+
+
+-----
+
+####  隔壁老黄  
+##### 1903#       发表于 2021-7-5 21:05
+
+
+原来二人合体技是处决的演出。。。。
+
+
+-----
+
+####  oniwarud  
+##### 1904#       发表于 2021-7-5 21:05
+
+
+我个人是觉得作画一般歌也一般，明明是个需要拿来当宣传门面的游戏op，ufo做的还没鬼灭的一半用心
+
+
+-----
+
+####  zero12  
+##### 1905#       发表于 2021-7-5 21:05
+
+
+实机这回还是那个demo
+
+
+-----
+
+####  chivalry  
+##### 1906#       发表于 2021-7-5 21:05
+
+
+歌还行吧，就是感觉幽浮桌没出全力啊
+
+
+-----
+
+####  寒风夜  
+##### 1907#       发表于 2021-7-5 21:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851926&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-7-5 21:01</a>
+
+人物有种廉价动画的感觉，跟隔壁绯红动画版差不多</blockquote>
+....这op怎么看都比那个强
+
+
+-----
+
+####  寒风夜  
+##### 1908#       发表于 2021-7-5 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851974&amp;ptid=1860328" target="_blank">chivalry 发表于 2021-7-5 21:05</a>
+
+歌还行吧，就是感觉幽浮桌没出全力啊</blockquote>
+在做 鬼灭2吧
+
+
+-----
+
+####  寒风夜  
+##### 1909#       发表于 2021-7-5 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851974&amp;ptid=1860328" target="_blank">chivalry 发表于 2021-7-5 21:05</a>
+
+歌还行吧，就是感觉幽浮桌没出全力啊</blockquote>
+
+
+-----
+
+####  zero12  
+##### 1910#       发表于 2021-7-5 21:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851972&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-7-5 21:05</a>
+
+我个人是觉得作画一般歌也一般，明明是个需要拿来当宣传门面的游戏op，ufo做的还没鬼灭的一半用心 ...</blockquote>
+那肯定鬼灭现在是火爆国民级，当下没有ip比得上。
+
+
+-----
+
+####  D-JoeII  
+##### 1911#       发表于 2021-7-5 21:08
+
+
+演示怎麼跟上次一樣同一段
+
+
+-----
+
+####  ff2077  
+##### 1912#       发表于 2021-7-5 21:08
+
+
+<blockquote>中泽君 发表于 2021-7-5 21:01
+人物有种廉价动画的感觉，跟隔壁绯红动画版差不多</blockquote>
+绯红的动画和op比这都差远了……
+
+
+-----
+
+####  hkguty  
+##### 1913#       发表于 2021-7-5 21:08
+
+
+为啥那么多人纠结op，这不就是个op而已吗？我倒想知道这演示了n遍的demo啥时候能下载
+
+
+-----
+
+####  隔壁老黄  
+##### 1914#       发表于 2021-7-5 21:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851999&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-7-5 21:08</a>
+
+为啥那么多人纠结op，这不就是个op而已吗？我倒想知道这演示了n遍的demo啥时候能下载 ...</blockquote>
+确实，看一遍后第二次就直接跳了，哪怕没有这OP也不影响游戏内容
+
+
+-----
+
+####  センチ  
+##### 1915#       发表于 2021-7-5 21:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">居然这么多人在意OP
+
+
+-----
+
+####  zero12  
+##### 1916#       发表于 2021-7-5 21:12
+
+
+ufo开始重复I.G的老路，该换公司了
+
+
+-----
+
+####  桧山修之  
+##### 1917#       发表于 2021-7-5 21:13
+
+
+这合体技是要搞重生那套啊，观赏性的东西?还有之前听说爆气像仙乐不能主动发动?怎么会把之前失败的点拿回来用的啊？
+
+
+-----
+
+####  Hidewhite  
+##### 1918#       发表于 2021-7-5 21:13
+
+
+OP信息好像不多？两只怪兽战，三个反派boss
+
+
+-----
+
+####  chivalry  
+##### 1919#       发表于 2021-7-5 21:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851988&amp;ptid=1860328" target="_blank">寒风夜 发表于 2021-7-5 21:08</a>
+在做 鬼灭2吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">也有可能，毕竟看了鬼灭那剧场，我觉得还能做得更好
+
+
+-----
+
+####  oniwarud  
+##### 1920#       发表于 2021-7-5 21:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851991&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-5 21:08</a>
+
+那肯定鬼灭现在是火爆国民级，当下没有ip比得上。</blockquote>
+剧场版那种水准我肯定是没指望过，但是这op作画比鬼灭tv版的都要差不少，那时鬼灭也不上国民动画吧（当然歌就不用比了）
+
+
+
+
+-----
+
+####  zero12  
+##### 1921#       发表于 2021-7-5 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852062&amp;ptid=1860328" target="_blank">oniwarud 发表于 2021-7-5 21:15</a>
+
+剧场版那种水准我肯定是没指望过，但是这op作画比鬼灭tv版的都要差不少，那时鬼灭也不上国民动画吧（当然 ...</blockquote>
+和鬼灭2工期冲突了，献祭。
+
+
+-----
+
+####  LMBS  
+##### 1922#       发表于 2021-7-5 21:16
+
+
+梦回TOV，下一作该向TOGF看齐
+
+
+-----
+
+####  寒风夜  
+##### 1923#       发表于 2021-7-5 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852049&amp;ptid=1860328" target="_blank">chivalry 发表于 2021-7-5 21:14</a>
+
+也有可能，毕竟看了鬼灭那剧场，我觉得还能做得更好</blockquote>
+毕竟飞碟一年只做一部片
+
+
+-----
+
+####  寒风夜  
+##### 1924#       发表于 2021-7-5 21:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852049&amp;ptid=1860328" target="_blank">chivalry 发表于 2021-7-5 21:14</a>
+
+也有可能，毕竟看了鬼灭那剧场，我觉得还能做得更好</blockquote>
+
+
+-----
+
+####  zero12  
+##### 1925#       发表于 2021-7-5 21:19
+
+
+以后不能再让嘉宾演示了，打得太次了....
+
+
+-----
+
+####  忧郁  
+##### 1926#       发表于 2021-7-5 21:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前访谈还说这次动画总长度是系列最长
+
+
+-----
+
+####  zero12  
+##### 1927#       发表于 2021-7-5 21:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852097&amp;ptid=1860328" target="_blank">忧郁 发表于 2021-7-5 21:20</a>
+
+之前访谈还说这次动画总长度是系列最长</blockquote>
+结果动画不如实机过场...
+
+
+-----
+
+####  rgauss  
+##### 1928#       发表于 2021-7-5 21:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">看演示感觉闪避判定好松
+
+
+-----
+
+####  蓝雉  
+##### 1929#       发表于 2021-7-5 21:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852127&amp;ptid=1860328" target="_blank">rgauss 发表于 2021-7-5 21:22</a>
+
+看演示感觉闪避判定好松</blockquote>
+感觉是照顾现在玩啥动作游戏都只会翻滚躲避的玩家<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LMBS  
+##### 1930#       发表于 2021-7-5 21:27
+
+
+既然都改了这么多，差不多该放弃动画过场了
+
+
+-----
+
+####  新世界的派蒙  
+##### 1931#       发表于 2021-7-5 21:30
+
+
+op中规中矩吧，起码达不到以前“看了op就好想打这个游戏”的等级<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sad6504  
+##### 1932#       发表于 2021-7-5 21:35
+
+
+没有试玩版没有试玩版没有试玩版没有试玩版<img src="https://static.saraba1st.com/image/smiley/face2017/217.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  whzfjk  
+##### 1933#       发表于 2021-7-5 21:37
+
+
+UFO 摄影飞升后的动画一直给人中规中矩的感觉，这个背景下鬼灭 19 集确实就很突出了。这次 OP 依然如此，不过歌曲感觉拖后腿<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  laoz  
+##### 1934#       发表于 2021-7-5 21:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是ps4版太屎不敢放出来吗
+
+
+-----
+
+####  zero12  
+##### 1935#       发表于 2021-7-5 21:39
+
+
+我现在觉得我的老爷机绯红结系pc版都比ps4版效果好
+
+
+-----
+
+####  火红之眼  
+##### 1936#       发表于 2021-7-5 21:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这OP也太垃了....歌先不说，可能听听就惯了，但这片就.....
+
+
+-----
+
+####  zero12  
+##### 1937#       发表于 2021-7-5 21:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852299&amp;ptid=1860328" target="_blank">火红之眼 发表于 2021-7-5 21:41</a>
+
+这OP也太垃了....歌先不说，可能听听就惯了，但这片就.....</blockquote>
+好像是近几年ufo最崩的片，让破晓撞上了
+
+
+-----
+
+####  nerugigannte  
+##### 1938#       发表于 2021-7-5 21:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">怪物三渲二就算了，怎么人物有的地方也一股三渲二的味
+
+
+-----
+
+####  sslink  
+##### 1939#       发表于 2021-7-5 21:44
+
+
+依然觉得男主这身甲和头很不搭<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qiyu1234  
+##### 1940#       发表于 2021-7-5 21:45
+
+
+不跟以前的作品比，就和TO与UFO合作的几部比
+
+感觉就是出道即巅峰，滨崎步的歌好外加歌曲与OP分镜协调的很完美（个人是觉得TOZ TOB的都差点）
+
+还有就是UFO这部OP的色指定是换了吗，整体比之前OP相比颜色更浅
+
+
+-----
+
+####  peh  
+##### 1941#       发表于 2021-7-5 21:45
+
+
+这op，男女主还不如建模
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还有个队友脸感觉对着碳支郎描的吧
+
+
+-----
+
+####  nerugigannte  
+##### 1942#       发表于 2021-7-5 21:54
+
+
+游戏过场也是要ufo做的把，我变鬼黑竟然是为了这个！
+
+
+-----
+
+####  zero12  
+##### 1943#       发表于 2021-7-5 21:58
+
+
+没有新料了吗？
+
+
+-----
+
+####  laoz  
+##### 1944#       发表于 2021-7-5 22:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852470&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-5 21:58</a>
+
+没有新料了吗？</blockquote>
+应该是没了，接下来看起来是带货环节<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qiyu1234  
+##### 1945#       发表于 2021-7-5 22:07
+
+
+这个OVL被动触发感觉有点麻，希望正式游戏里能有手动触发的称号解禁
+
+
+-----
+
+####  sssacpgdr  
+##### 1946#       发表于 2021-7-5 22:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851926&amp;ptid=1860328" target="_blank">中泽君 发表于 2021-7-5 21:01</a>
+
+人物有种廉价动画的感觉，跟隔壁绯红动画版差不多</blockquote>
+说不如绯红那就是在瞎说了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  千年的旅人  
+##### 1947#       发表于 2021-7-5 22:11
+
+
+正面看着平平无奇，背面却挺涩，主控位确定<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/05/221021n36jz7qgg8zhj6j6.jpg" referrerpolicy="no-referrer">
+
+
+<strong>623512311.jpg</strong> (36.85 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 22:10 上传
+
+
+-----
+
+####  中泽君  
+##### 1948#       发表于 2021-7-5 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852574&amp;ptid=1860328" target="_blank">sssacpgdr 发表于 2021-7-5 22:09</a>
+
+说不如绯红那就是在瞎说了</blockquote>
+别乱说，没说不如。差不多好得有限
+
+反正就是ufo5个op中最拉的
+
+
+-----
+
+####  索田八公  
+##### 1949#       发表于 2021-7-5 22:13
+
+
+盾娘op画风跟立绘真的差好多啊，如果游戏里是op这个样的话就太好了，立绘太欧美了一直觉得没内味
+
+
+-----
+
+####  qiyu1234  
+##### 1950#       发表于 2021-7-5 22:14
+
+
+这个女骑士的臀部真的有点刻意了<img src="https://static.saraba1st.com/image/smiley/face2017/042.png" referrerpolicy="no-referrer">，但我不矫情，就是不知道有没有人矫情
+
+
+
+
+-----
+
+####  红魔馆的糖  
+##### 1951#       发表于 2021-7-5 22:14
+
+
+我很矫情，我希望摩多<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hypnossz86  
+##### 1952#       发表于 2021-7-5 22:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">屁股真不戳
+
+
+-----
+
+####  EigenVesper  
+##### 1953#       发表于 2021-7-5 22:16
+
+
+op是感覚ピエロ啊，女朋友喜欢这乐队，我只听一点听得不多，代表作品是《宽松世代又如何》的几首，不过这次的op听起来确实没有很喜欢
+
+
+-----
+
+####  lbb3313725  
+##### 1954#       发表于 2021-7-5 22:16
+
+
+人物有点走形，而且上色单薄。传说OP的巅峰还是宿命2。
+
+
+-----
+
+####  隔壁老黄  
+##### 1955#       发表于 2021-7-5 22:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852637&amp;ptid=1860328" target="_blank">lbb3313725 发表于 2021-7-5 22:16</a>
+
+人物有点走形，而且上色单薄。传说OP的巅峰还是宿命2。</blockquote>
+怎可能，最强是TOD1，其他都有层次的差距
+
+
+-----
+
+####  EigenVesper  
+##### 1956#       发表于 2021-7-5 22:18
+
+
+另外如果对这个乐队感兴趣的话可以听一听《O・P・P・A・I》（笑）
+
+
+-----
+
+####  REDXIII  
+##### 1957#       发表于 2021-7-5 22:21
+
+
+这是摸了还是钱不够？
+
+跟刚接手时候做的TOX的差距不小...
+
+歌更没感觉，不过只要游戏没问题就好了
+
+
+-----
+
+####  REDXIII  
+##### 1958#       发表于 2021-7-5 22:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852651&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-7-5 22:18</a>
+
+怎可能，最强是TOD1，其他都有层次的差距</blockquote>
+TOD1和TOX并列第一
+
+不管是歌还是动画本身
+
+吊打其他的<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Leomai  
+##### 1959#       发表于 2021-7-5 22:24
+
+
+其实没人觉得这个合体技很像TOX的link技吗
+
+
+                                              
