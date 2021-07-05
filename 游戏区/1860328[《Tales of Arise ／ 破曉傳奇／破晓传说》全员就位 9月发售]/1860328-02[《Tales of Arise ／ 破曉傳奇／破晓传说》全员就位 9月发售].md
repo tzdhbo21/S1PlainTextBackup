@@ -6355,3 +6355,74 @@ OP动画不错，但歌没有预期的好听。
 
 
                                                  
+
+-----
+
+####  rgauss  
+##### 1968#       发表于 2021-7-5 23:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51853014&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-5 22:51</a>
+
+最近镜光传说的op4就很不错，主要这个乐队这首也没唱好。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">镜光传说op4是wit和蛇姐吧
+
+
+-----
+
+####  superlink  
+##### 1969#       发表于 2021-7-6 00:01
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">本来以为拉跨，刚去回顾了下历代，抛开年代因素，这个op动画部分还是在线的，也是ufo一贯套路，脸怪估计是人设没整好。当然了，肯定是被tox两作吊打，那我觉得算巅峰了，tox2以前每次开游戏都会看完op。歌的话撑死历代算个中游了，没什么感觉。
+
+—— 来自 HUAWEI ELE-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  mqnwbeebwnqm  
+##### 1970#       发表于 2021-7-6 00:08
+
+
+op信息量太低，只有角色没有剧情燃不起来
+
+
+-----
+
+####  CALPISSODA  
+##### 1971#       发表于 2021-7-6 00:11
+
+
+OP制作水平和歌曲其实还不错啊，就是构思比较随便，基本就是角色出来比划两下，就介绍下角色没几个大场面和展现世界观的镜头，不够大气，不知道的看了还以为是格斗游戏·····
+
+
+-----
+
+####  allenz3  
+##### 1972#       发表于 2021-7-6 00:30
+
+
+这歌实在不行，动画还好吧，ufo一般水平
+
+
+-----
+
+####  宛若青空  
+##### 1973#       发表于 2021-7-6 00:46
+
+
+岩本给TPARISE官方大使画的贺图
+
+
+<img src="https://img.saraba1st.com/forum/202107/06/004650vxg5fjjxuj6682up.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>FD73BE6A-0F95-4EB6-9596-487BE6EFCAB4.jpeg</strong> (1.45 MB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 00:46 上传
+
+
+                                                 
