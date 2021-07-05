@@ -6426,3 +6426,42 @@ OP制作水平和歌曲其实还不错啊，就是构思比较随便，基本就
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 1974#         楼主| 发表于 2021-7-6 00:57
+
+
+<img src="https://img.saraba1st.com/forum/202107/06/005711or9930xn8tzt3m0c.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (47.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 00:57 上传
+
+
+伏露露大战吐吐神！谁才是万代南梦宫今年的 No.1 可爱吉祥物！<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  冰风血羽  
+##### 1975#       发表于 2021-7-6 01:23
+
+
+我感觉OP里盾骑小姐是唯一一个颜值加分的
+
+
+-----
+
+####  金子一马  
+##### 1976#       发表于 2021-7-6 01:34
+
+
+感觉还行吧，因为看过很多更烂的传说op，动画做的还可以。其实op好不好就看音画结合，这点毫无疑问tod永远的神。
+
+
+                                                 
