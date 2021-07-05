@@ -5110,3 +5110,52 @@ TOAR是目前万南社内开发规格、品控要求和优先级最高的单机R
 
 
                                                  
+
+-----
+
+####  EigenVesper  
+##### 1849#       发表于 2021-7-5 09:33
+
+
+今天公布op？
+
+
+-----
+
+####  iqbsh38  
+##### 1850#       发表于 2021-7-5 10:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51832953&amp;ptid=1860328" target="_blank">椎名mahuyo 发表于 2021-7-4 02:21</a>
+
+顺便她那皮按她真人做的
+
+
+nga的某些人看着肯定要无能狂怒就是了 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/039.png" referrerpolicy="no-referrer">都表示冲不动 搞一份三大妈版就当是反抗过了
+
+
+-----
+
+####  zero12  
+##### 1851#       发表于 2021-7-5 10:29
+
+
+<blockquote>iqbsh38 发表于 2021-7-5 10:21
+都表示冲不动 搞一份三大妈版就当是反抗过了</blockquote>
+说这话的原本也不会买
+
+
+-----
+
+####  iqbsh38  
+##### 1852#       发表于 2021-7-5 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51844995&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-5 10:29</a>
+
+说这话的原本也不会买</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">管人区本来就是一群天天对着皮发情的云玩家 玩游戏都少 更不会买啦
+
+
+                                                 
