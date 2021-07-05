@@ -4332,3 +4332,89 @@ op加上cv和声了 但画面没有换<img src="https://static.saraba1st.com/ima
 
 
                                                  
+
+-----
+
+####  damian-wade  
+##### 1824#       发表于 2021-7-5 19:38
+
+
+因为别的原因之前感觉今年追不下去了，但是这集真的喜欢，热Q开播以来个人感觉最好的一集了，又能坚持一下，希望虾姑能和夏哥做真的朋友
+
+
+-----
+
+####  Sliurus  
+##### 1825#       发表于 2021-7-5 20:03
+
+
+如果不是追加已经定完感觉有这个机会
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/200220tlfm3dxd992d4ldx.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_5046(20210705-144946).JPG</strong> (473.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 20:02 上传
+
+
+-----
+
+####  HGCG  
+##### 1826#         楼主| 发表于 2021-7-5 20:24
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/202337sev69szlpmpvl4j8.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (71.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 20:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/202344kpns0pffh30r0hhg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (79.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 20:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/202354iwh8hk2h05jqwjoz.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (75.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 20:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/202356xxfa7432kyzkjhpj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (24.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 20:23 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/202406ye6tv3gtoeoby6yo.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (17.23 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 20:24 上传
+
+
+                                                 

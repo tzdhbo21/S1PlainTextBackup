@@ -5226,3 +5226,211 @@ PlayStation 官方视频，这会用的真的是 PS5 了。战斗载入几乎是
 
 
                                                  
+
+-----
+
+####  godless2020  
+##### 1858#       发表于 2021-7-5 19:31
+
+
+有直播地址吗，墙内的.............
+
+
+-----
+
+####  鱼肉丸子  
+##### 1859#       发表于 2021-7-5 19:55
+
+
+[https://www.youtube.com/watch?v=nBCskb4Bh-g](https://www.youtube.com/watch?v=nBCskb4Bh-g)   墙外
+
+
+-----
+
+####  センチ  
+##### 1860#       发表于 2021-7-5 20:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">正式版有有语音的吧？演示怎么都只有感叹词
+
+
+
+
+-----
+
+####  laoz  
+##### 1861#       发表于 2021-7-5 20:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">我就说怎么rays的人会参加了，原来还带着手游情报
+
+
+-----
+
+####  zero12  
+##### 1862#       发表于 2021-7-5 20:08
+
+
+站桩聊了好久
+
+
+-----
+
+####  godless2020  
+##### 1863#       发表于 2021-7-5 20:11
+
+
+[https://live.bilibili.com/391771 ... mp;ts=1625486904865](https://live.bilibili.com/3917715?broadcast_type=0&amp;is_room_feed=1&amp;share_medium=android&amp;share_source=qq&amp;bbid=XYBE198B57C3B5277EED6DBB0511BA3EBF32E&amp;ts=1625486904865)
+
+
+-----
+
+####  剑布衣  
+##### 1864#       发表于 2021-7-5 20:14
+
+
+怎么还不开始放op，好急<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zero12  
+##### 1865#       发表于 2021-7-5 20:20
+
+
+我记得这种娃娃挺贵的？
+
+
+-----
+
+####  Luminous脑壳痛  
+##### 1866#       发表于 2021-7-5 20:21
+
+
+草，怎么有娃娃
+
+
+-----
+
+####  hkguty  
+##### 1867#       发表于 2021-7-5 20:22
+
+
+好像是smartdoll，不是一般的DD，smartdoll没买过不知会不会量产，但娃圈我感觉已经脱坑了
+
+
+-----
+
+####  蓝雉  
+##### 1868#       发表于 2021-7-5 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851531&amp;ptid=1860328" target="_blank">hkguty 发表于 2021-7-5 20:22</a>
+
+好像是smartdoll，不是一般的DD，smartdoll没买过不知会不会量产，但娃圈我感觉已经脱坑了 ...</blockquote>
+非卖品
+
+
+-----
+
+####  hkguty  
+##### 1869#       发表于 2021-7-5 20:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851563&amp;ptid=1860328" target="_blank">蓝雉 发表于 2021-7-5 20:25</a>
+
+非卖品</blockquote>
+他现在说是说非卖品，但后续就不知道了，smartdoll和老V跟Azone相比，不怎么跟ACG品牌联动的感觉，不知为啥突然来一个TOA的。不过这娃裙子有点粗糙，看得出是试作品
+
+
+-----
+
+####  zero12  
+##### 1870#       发表于 2021-7-5 20:38
+
+
+这是什么乐队？
+
+
+-----
+
+####  Kedger  
+##### 1871#       发表于 2021-7-5 20:41
+
+
+吹了一波bump和カルマ，舒服了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  中泽君  
+##### 1872#       发表于 2021-7-5 20:43
+
+
+不行
+
+
+-----
+
+####  oniwarud  
+##### 1873#       发表于 2021-7-5 20:44
+
+
+op感觉一般啊
+
+
+-----
+
+####  godless2020  
+##### 1874#       发表于 2021-7-5 20:44
+
+
+OP不错！！！！
+
+
+-----
+
+####  鱼肉丸子  
+##### 1875#       发表于 2021-7-5 20:44
+
+
+画面还行 歌不咋地  比TOB可能好一点 
+
+
+-----
+
+####  剑布衣  
+##### 1876#       发表于 2021-7-5 20:45
+
+
+op中规中矩吧，没太大惊喜，总觉得女主脸有点怪？
+
+
+-----
+
+####  laoz  
+##### 1877#       发表于 2021-7-5 20:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">op的画面感觉怪怪的
+
+
+-----
+
+####  神道设教  
+##### 1878#       发表于 2021-7-5 20:46
+
+
+真的不如tox tob的开场动画，尤其是tox的开场转转转。
+
+
+-----
+
+####  蓝雉  
+##### 1879#       发表于 2021-7-5 20:46
+
+
+拔剑那个画面太美了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                

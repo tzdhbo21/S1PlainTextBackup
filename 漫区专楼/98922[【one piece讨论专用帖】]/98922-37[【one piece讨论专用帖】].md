@@ -16496,3 +16496,67 @@ k肯定还是给小马吧，怎么看索隆都要去打凯多
 
 
                                                  
+
+-----
+
+####  C男人  
+##### 55386#       发表于 2021-7-5 19:49
+
+
+ 本帖最后由 C男人 于 2021-7-5 20:01 编辑 
+
+开了武装色还被人打出血的，
+
+
+甚平是不是第一个？
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+=============================
+
+
+要说七武海的实战能力，
+
+
+假设7个人“对世界政府的威胁程度”差不多，
+
+
+那么鹰眼、小白胡这种单人出道的，和莫利亚、老沙这种人多势众的一比，个人能力就肯定强一档。
+
+
+所以女帝这种，带着个人均霸气的海贼团，个人实力就肯定弱些。
+
+
+巴基全靠手下，最弱了。
+
+
+好的，回到甚平的话题，甚平手下带着个鱼人海贼团，所以个人能力应该只是七武海中档。
+
+==============================
+
+
+当然这里说的是陆上的甚平，
+
+
+如果是水战，甚平表示： “你们六个人一起上吧。”
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  斯塔久  
+##### 55387#       发表于 2021-7-5 20:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851198&amp;ptid=98922" target="_blank">C男人 发表于 2021-7-5 19:49</a>
+
+开了武装色还被人打出血的，
+
+
+甚平是不是第一个？</blockquote>
+麻蛋六个人里有五个是果实能力者，下海真就只能当一个人用，甚平果然机智。  <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+                                                 

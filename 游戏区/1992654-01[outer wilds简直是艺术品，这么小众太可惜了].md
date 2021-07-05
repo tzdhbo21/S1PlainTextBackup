@@ -3002,3 +3002,28 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  妮贝雅  
+##### 224#       发表于 2021-7-5 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51850387&amp;ptid=1992654" target="_blank">九十九忍 发表于 2021-7-5 18:23</a>
+
+碎空星我记得有个口子可以直接开飞船进去，省去很多跳跳乐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/043.png" referrerpolicy="no-referrer">碎空星后期就全是口子了233
+
+
+-----
+
+####  雾wu  
+##### 225#       发表于 2021-7-5 20:42
+
+
+惊闻dlc的消息，我决定克服对迷路的恐惧，捡起来打通关
+
+又在碎空星迷路了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 
