@@ -8733,3 +8733,212 @@ syl   我觉得还是生日换楼吧，比较有意义
 
 
                                                  
+
+-----
+
+####  2014720  
+##### 18799#       发表于 2021-7-5 17:24
+
+
+不做完不准打lol
+
+
+-----
+
+####  T_Hb  
+##### 18800#       发表于 2021-7-5 17:29
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/172850m8xbyxsmxrr6islm.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (31.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 17:28 上传
+
+
+今天铁摸了    <img src="https://static.saraba1st.com/image/smiley/face2017/255.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18801#       发表于 2021-7-5 17:30
+
+
+该说什么好呢，至少有提前一天的预告是个好事？
+
+
+-----
+
+####  T_Hb  
+##### 18802#       发表于 2021-7-5 17:30
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/173025xk2fuphgvt6thto4.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (23.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 17:30 上传
+
+
+我昨天特意去蹲都没蹲到臭女人
+
+
+-----
+
+####  掉头学姐  
+##### 18803#       发表于 2021-7-5 17:34
+
+
+好不容易来次企划回，哭哭惹
+
+
+-----
+
+####  格林卡罗尔  
+##### 18804#       发表于 2021-7-5 17:47
+
+
+居然真打算做，好起来了
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 18805#       发表于 2021-7-5 17:53
+
+
+啊咩能不能搞点ptr乱入80环节啊<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 18806#       发表于 2021-7-5 18:14
+
+
+记得有空去挂个同接，难得搞企划。
+
+
+-----
+
+####  2111X  
+##### 18807#       发表于 2021-7-5 18:21
+
+
+说起来，你麻玩ptr梗的时候是不是姨度超越苔苔
+
+
+我不好说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 18808#       发表于 2021-7-5 18:29
+
+
+8分音符！！！！！！！！！！！！！！！
+
+
+-----
+
+####  呓亘  
+##### 18809#       发表于 2021-7-5 18:29
+
+
+企划回！！！！！！！游戏回！！！！！！！
+
+
+-----
+
+####  Dualist彩  
+##### 18810#       发表于 2021-7-5 18:31
+
+
+为什么总觉得不正常，出道单数年摆烂，双数年发力是吧，我已经是摆烂麻召之即来的狗了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  T_Hb  
+##### 18811#       发表于 2021-7-5 18:33
+
+
+摆烂不摆烂都是那1500<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 18812#       发表于 2021-7-5 18:43
+
+
+别尬黑，游戏回同接就1000<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18813#       发表于 2021-7-5 18:45
+
+
+讲得歌会有高过一样<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 18814#       发表于 2021-7-5 18:57
+
+
+播的勤的话歌回还是能经常上2k的，2k什么概念，教导主任训话啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18815#       发表于 2021-7-5 18:58
+
+
+臭女人说7月第二周播爆的，我等着瞧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 18816#       发表于 2021-7-5 19:00
+
+
+然后第一天就不播<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18817#       发表于 2021-7-5 19:08
+
+
+7号之前都算7月的第一周（
+
+
+-----
+
+####  咸鱼渣  
+##### 18818#       发表于 2021-7-5 19:19
+
+
+播 爆，怕不是摸爆
+
+
+                                                

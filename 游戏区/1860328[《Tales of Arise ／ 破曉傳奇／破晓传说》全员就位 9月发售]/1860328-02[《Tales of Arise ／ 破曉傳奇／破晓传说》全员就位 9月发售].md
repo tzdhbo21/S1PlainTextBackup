@@ -5182,3 +5182,47 @@ nga的某些人看着肯定要无能狂怒就是了 ...</blockquote>
 
 
                                                  
+
+-----
+
+####  隔壁老黄  
+##### 1854#       发表于 2021-7-5 17:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51841967&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-7-4 23:33</a>
+
+本作的表主题是“反抗侵略求解放”，那么里主题会是什么呢？各位有什么看法？
+
+ ...</blockquote>
+我咋记得已经说了副标题了
+
+
+-----
+
+####  LT_Harry  
+##### 1855#         楼主| 发表于 2021-7-5 17:33
+
+
+https://youtu.be/UU5o29jKJsA
+PlayStation 官方视频，这会用的真的是 PS5 了。战斗载入几乎是瞬间就完成了<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hkguty  
+##### 1856#       发表于 2021-7-5 18:00
+
+
+视频没60帧，不过PS5 60帧应该问题不大吧·····
+
+
+-----
+
+####  JC_AR  
+##### 1857#       发表于 2021-7-5 18:54
+
+
+有PC版怎么还纠结帧数啊
+
+
+                                                 

@@ -1659,3 +1659,28 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79639#       发表于 2021-7-5 17:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">才五个石头
+
+
+-----
+
+####  khxooo  
+##### 79640#       发表于 2021-7-5 17:49
+
+
+ 本帖最后由 khxooo 于 2021-7-5 18:11 编辑 
+
+被恐龙完美克制的铃鹿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+113池+10，不错不错<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -2924,3 +2924,81 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  mqm  
+##### 217#       发表于 2021-7-5 17:10
+
+
+飞起来还好，但球里面的探索太容易晕了，还黑。想改fov但选项里直接提示会影响解谜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Mi 10, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  feisuoying  
+##### 218#       发表于 2021-7-5 17:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">玩了1小时 晕3D 想吐。。。有什么办法没有。。。。我大部分游戏都不晕的。。
+
+
+-----
+
+####  Artless追随者  
+##### 219#       发表于 2021-7-5 18:11
+
+
+剧透警告：
+
+
+玩到碎空星总是掉黑洞怎么办<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">，宇航服好难控制走向。感觉这一部分有点劝退
+
+
+-----
+
+####  Frimp  
+##### 220#       发表于 2021-7-5 18:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51850274&amp;ptid=1992654" target="_blank">Artless追随者 发表于 2021-7-5 18:11</a>
+
+剧透警告：</blockquote>
+这……没什么办法，可以去找黑洞附近的白洞站传送回去，不过一般来说还是直接重开快一点（
+
+
+-----
+
+####  Dgnic_  
+##### 221#       发表于 2021-7-5 18:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51850274&amp;ptid=1992654" target="_blank">Artless追随者 发表于 2021-7-5 18:11</a>
+剧透警告：</blockquote>
+这个没有办法，只能小心点了...
+
+
+-----
+
+####  Artless追随者  
+##### 222#       发表于 2021-7-5 18:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51850297&amp;ptid=1992654" target="_blank">Frimp 发表于 2021-7-5 18:13</a>
+
+这……没什么办法，可以去找黑洞附近的白洞站传送回去，不过一般来说还是直接重开快一点（ ...</blockquote>
+谢谢，我去试试找白洞站
+
+
+-----
+
+####  九十九忍  
+##### 223#       发表于 2021-7-5 18:23
+
+
+碎空星我记得有个口子可以直接开飞船进去，省去很多跳跳乐
+
+
+                                                 
