@@ -3038,3 +3038,16 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  Dgnic_  
+##### 227#       发表于 2021-7-5 22:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852440&amp;ptid=1992654" target="_blank">雾wu 发表于 2021-7-5 21:55</a>
+所以说坛友们都是怎么通关的，我知道这游戏有趣不假，但是也遭不住他又黑又绕还没地图啊，即便是不 ...</blockquote>
+迷路的时候，就换个星球如何<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -6254,3 +6254,104 @@ TOD1和TOX并列第一
 
 
                                               
+
+-----
+
+####  LMBS  
+##### 1960#       发表于 2021-7-5 22:29
+
+
+ 本帖最后由 LMBS 于 2021-7-5 22:38 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852711&amp;ptid=1860328" target="_blank">Leomai 发表于 2021-7-5 22:24</a>
+
+其实没人觉得这个合体技很像TOX的link技吗</blockquote>
+实际上更类似TOV的FS
+
+相对TOV三种攻击类型，这次只看血量和连击数。发动只能打到固定目标，不会顺便打到附近敌人和获得回复。BOSS还是固定触发，算是超简化版。也不会有伤害1的玩法。而且演出时间还挺长的，如果敌人血量高就能触发需要这个杀敌恐怕会看到吐；如果敌人快死才能触发又显得没意义，跟TOR的秘奥义差不多。
+
+现在看来战斗系统最大问题可能就是这个了。
+
+
+-----
+
+####  hypnossz86  
+##### 1961#       发表于 2021-7-5 22:36
+
+
+秘奥义怎么发的，战斗到一定时间就会变成条，然后就可以发了？
+
+画面右边有个cp点那个是干啥的
+
+
+-----
+
+####  火红之眼  
+##### 1962#       发表于 2021-7-5 22:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">演示那个秘奥丢完后角色位置远得诡异.....明明之前是贴着群殴的
+
+
+-----
+
+####  qiyu1234  
+##### 1963#       发表于 2021-7-5 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852848&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-7-5 22:36</a>
+
+秘奥义怎么发的，战斗到一定时间就会变成条，然后就可以发了？
+
+画面右边有个cp点那个是干啥的 ...</blockquote>
+CP是使用回复技能和回复道具时消耗的点数
+
+这次用道具没有CD了，估计就是通过CP点限制，另外也有回CP的道具
+
+
+-----
+
+####  lbb3313725  
+##### 1964#       发表于 2021-7-5 22:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852651&amp;ptid=1860328" target="_blank">隔壁老黄 发表于 2021-7-5 22:18</a>
+
+怎可能，最强是TOD1，其他都有层次的差距</blockquote>
+宿命1眼睛画太大了，而且画风有点老旧，动作场面也比较简单。
+
+
+-----
+
+####  zero12  
+##### 1965#       发表于 2021-7-5 22:51
+
+
+最近镜光传说的op4就很不错，主要这个乐队这首也没唱好。
+
+
+-----
+
+####  Leomai  
+##### 1966#       发表于 2021-7-5 22:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852770&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-7-5 22:29</a>
+
+实际上更类似TOV的FS
+
+相对TOV三种攻击类型，这次只看血量和连击数。发动只能打到固定目标，不会顺便打到附 ...</blockquote>
+原来如此，难怪演示里动不动怪边上就出现合体技的icon提示可以放了。
+
+
+-----
+
+####  黑修士  
+##### 1967#       发表于 2021-7-5 23:09
+
+
+OP动画不错，但歌没有预期的好听。
+
+感觉还不如Tales of Asteria的几个OP
+
+
+                                                 
