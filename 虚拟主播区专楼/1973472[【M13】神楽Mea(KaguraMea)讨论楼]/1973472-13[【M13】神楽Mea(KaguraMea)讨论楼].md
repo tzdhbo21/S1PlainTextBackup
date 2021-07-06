@@ -9421,3 +9421,315 @@ yhm真是……<img src="https://static.saraba1st.com/image/smiley/face2017/026.
 
 
                                                  
+
+-----
+
+####  2014720  
+##### 18858#       发表于 2021-7-6 20:04
+
+
+开幕雷击
+
+
+-----
+
+####  路人庚  
+##### 18859#       发表于 2021-7-6 20:04
+
+
+ 本帖最后由 路人庚 于 2021-7-6 20:06 编辑 
+
+估计只能坚持20分钟（我草率了
+
+
+-----
+
+####  T_Hb  
+##### 18860#       发表于 2021-7-6 20:06
+
+
+卧槽，我还以为要耻辱下播了呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+吹麦大法好啊，救回来了
+
+
+-----
+
+####  古战场亡魂  
+##### 18861#       发表于 2021-7-6 20:06
+
+
+我草……这什么复苏之风
+
+
+-----
+
+####  时间在我手中  
+##### 18862#       发表于 2021-7-6 20:07
+
+
+我看了电视<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 18863#       发表于 2021-7-6 20:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">希望能多点。
+
+
+-----
+
+####  路人庚  
+##### 18864#       发表于 2021-7-6 20:09
+
+
+回收进水麦克风还有机会吗
+
+
+-----
+
+####  Klience  
+##### 18865#       发表于 2021-7-6 20:09
+
+
+卧槽 这都能上来的吗
+
+
+-----
+
+####  T_Hb  
+##### 18866#       发表于 2021-7-6 20:10
+
+
+只要风够大，母猪都能上天
+
+
+-----
+
+####  路人庚  
+##### 18867#       发表于 2021-7-6 20:11
+
+
+しこしこしこしこ
+
+
+-----
+
+####  295405468  
+##### 18868#       发表于 2021-7-6 20:12
+
+
+啧
+
+
+-----
+
+####  fgfg435  
+##### 18869#       发表于 2021-7-6 20:15
+
+
+活!
+
+syl  并没有<img src="https://static.saraba1st.com/image/smiley/face2017/135.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 18870#       发表于 2021-7-6 20:16
+
+
+游戏debuff真是草了,直接腰斩的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+主播的节目效果能不能超越18年那期<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  T_Hb  
+##### 18871#       发表于 2021-7-6 20:16
+
+
+寄！！
+
+
+-----
+
+####  2014720  
+##### 18872#       发表于 2021-7-6 20:18
+
+
+ 本帖最后由 2014720 于 2021-7-6 20:20 编辑 
+
+自己常年不播游戏没有游戏民怪谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+自己把自己定位成后台音乐播放器就别怪别人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+我寻思这么有意思的直播还能盯着数字看，魔怔事业民真是____
+
+
+-----
+
+####  Klience  
+##### 18873#       发表于 2021-7-6 20:19
+
+
+这什么老妖婆叫声啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18874#       发表于 2021-7-6 20:20
+
+
+地狱尖啸<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  295405468  
+##### 18875#       发表于 2021-7-6 20:21
+
+
+爱好同接可以建议多和舞元联动
+
+
+-----
+
+####  古战场亡魂  
+##### 18876#       发表于 2021-7-6 20:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">游戏民要慢慢培养的，而且这八分音符也是老游戏了，想玩出节目效果也不容易。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我觉得mea还是比较没有企划的才能的，但是她给别人的企划打下手，炒气氛还是上手的，定位是辅助。
+
+
+-----
+
+####  Klience  
+##### 18877#       发表于 2021-7-6 20:24
+
+
+大家都成年了 那肯定想要又有趣 同接又高的游戏回啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18878#       发表于 2021-7-6 20:24
+
+
+这游戏节目效果有限
+
+
+-----
+
+####  295405468  
+##### 18879#       发表于 2021-7-6 20:25
+
+
+吃瘪的小声哀嚎还是挺可爱的 
+
+
+-----
+
+####  T_Hb  
+##### 18880#       发表于 2021-7-6 20:26
+
+
+草    草   草，再吹肺出来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 18881#       发表于 2021-7-6 20:26
+
+
+ 本帖最后由 clvan_ 于 2021-7-6 20:27 编辑 
+
+事业民现在还没死光呢啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">syl 你麻凹这么久挺不容易的
+
+
+-----
+
+####  Klience  
+##### 18882#       发表于 2021-7-6 20:26
+
+
+这麦感觉迟早要被这人搞烂了
+
+
+-----
+
+####  T_Hb  
+##### 18883#       发表于 2021-7-6 20:28
+
+
+这是在干嘛，摩擦麦克风？<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  clvan_  
+##### 18884#       发表于 2021-7-6 20:28
+
+
+草 憋不住了
+
+
+-----
+
+####  时间在我手中  
+##### 18885#       发表于 2021-7-6 20:29
+
+
+生了，生了，是个女孩！！！
+
+
+-----
+
+####  T_Hb  
+##### 18886#       发表于 2021-7-6 20:32
+
+
+这企划也太累了，比唱2个小时还伤身<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18887#       发表于 2021-7-6 20:32
+
+
+你就当在锻炼肺活量就行了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  295405468  
+##### 18888#       发表于 2021-7-6 20:33
+
+
+嗓子别哑了就好
+
+
+-----
+
+####  2014720  
+##### 18889#       发表于 2021-7-6 20:37
+
+
+个人评价今年迄今节目效果最佳的一回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+syl，魔怔事业民盯着一个不去蹭热点不去播爆特长也不算突出的人去找数字<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                

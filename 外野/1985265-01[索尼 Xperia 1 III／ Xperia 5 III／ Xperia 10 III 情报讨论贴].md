@@ -9576,3 +9576,31 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  leystage  
+##### 676#         楼主| 发表于 2021-7-6 19:47
+
+
+<blockquote>暗铁 发表于 2021-7-6 17:21
+索尼今日正式在中国香港公布了 Xperia 1 III（mark 3）的上市信息及定价，现已开启预售，相比内地版本价格 ...</blockquote>
+喷了，逼我买高配版么。。。
+
+
+-----
+
+####  哎哟卧槽了  
+##### 677#       发表于 2021-7-6 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51861920&amp;ptid=1985265" target="_blank">jzsgtx 发表于 2021-7-6 18:38</a>
+港版30号。。。。不过看tb店家的价格还能接受
+
+—— 来自 Sony J9110, Android 11上的 S1Nex ...</blockquote>
+港版合約機不貴，移動合約機7400港幣
+
+—— 來自 samsung SM-N9760, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

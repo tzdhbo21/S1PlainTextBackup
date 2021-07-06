@@ -1885,3 +1885,17 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79659#       发表于 2021-7-6 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51861758&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-6 18:22</a>
+
+啥 王师傅不是脚打的吗 以前开荒就jio了现在都知道机制了还能难到哪去 ...</blockquote>
+或者对你来说是脚打，但对我来说就是难打<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+
+                                                 
