@@ -1751,3 +1751,14 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79647#       发表于 2021-7-6 08:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">虽然凭着+10已经可以永动了，但是掉落太垃圾了。过几天能给好一点的材料吗
+
+
+                                                 
