@@ -12210,3 +12210,19 @@ syl ssk说过最近有两套，这是一套
 
 
                                                  
+
+-----
+
+####  free  
+##### 3904#       发表于 2021-7-7 03:53
+
+
+[https://www.youtube.com/watch?v=xx9G-XrxLR4](https://www.youtube.com/watch?v=xx9G-XrxLR4)
+
+#CountdownWitnesser #hololiveEnglish
+
+
+杏en开了个倒计时直播间，到今早9点，不知道是要发表啥，二期生？
+
+
+                                                 
