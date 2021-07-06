@@ -6661,3 +6661,90 @@ op微妙的感觉歌和作画都差了一口气，没法单独拿出来抓住人
 
 
                                                  
+
+-----
+
+####  索田八公  
+##### 1994#       发表于 2021-7-6 13:55
+
+
+感觉还是作为传说的op没有达到该有的水平，但如果是放到整个游戏op里，质量又算很高的了，想想比它强的，脑子里前几个浮现出来的还都是系列前辈的op以及个别op好评如潮的游戏
+
+
+-----
+
+####  塔奇克马  
+##### 1995#       发表于 2021-7-6 13:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次明明很重视吧?为啥OP拉了?
+
+
+-----
+
+####  鱼肉丸子  
+##### 1996#       发表于 2021-7-6 14:00
+
+
+[https://b23.tv/FRUJGq](https://b23.tv/FRUJGq)
+
+昨天第一次看toar的op 中庸<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+复习一遍几个经典op 感觉一个个都又好听 画面又精致<img src="https://static.saraba1st.com/image/smiley/face2017/045.png" referrerpolicy="no-referrer">
+
+再看一遍toar的op 还行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 歌还行 画面也凑合吧
+
+
+-----
+
+####  zero12  
+##### 1997#       发表于 2021-7-6 14:07
+
+
+<blockquote>塔奇克马 发表于 2021-7-6 13:57
+这次明明很重视吧?为啥OP拉了?</blockquote>
+怪ufo拿钱不办事
+
+
+-----
+
+####  4ckc  
+##### 1998#       发表于 2021-7-6 14:14
+
+
+ 本帖最后由 4ckc 于 2021-7-6 14:15 编辑 
+
+op的作画演出其实还凑合，就这个歌属实有点<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+话说万代南梦宫是不是财政比较吃紧？我感觉绯红结系就有点没钱硬上的气息
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  qiyu1234  
+##### 1999#       发表于 2021-7-6 14:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51858774&amp;ptid=1860328" target="_blank">4ckc 发表于 2021-7-6 14:14</a>
+
+op的作画演出其实还凑合，就这个歌属实有点
+
+话说万代南梦宫是不是财政比较吃紧？我感觉绯红结系就有 ...</blockquote>
+BNEI财政吃紧是不可能的，同时都有多少项目运营了
+
+只是不同企划的预算不同，绯红结系明显在重要度上是要次于TOAR的
+
+但TOAR也不是社内最高规格的项目
+
+
+-----
+
+####  Kedger  
+##### 2000#       发表于 2021-7-6 14:22
+
+
+op配信了，多听了几遍感觉顺耳了不少，好像也没那么糟（已经进入接受阶段了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
