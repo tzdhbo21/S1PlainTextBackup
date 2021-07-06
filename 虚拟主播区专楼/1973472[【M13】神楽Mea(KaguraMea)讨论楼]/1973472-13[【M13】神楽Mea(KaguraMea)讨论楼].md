@@ -9242,3 +9242,47 @@ yhm真是……<img src="https://static.saraba1st.com/image/smiley/face2017/026.
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 18843#       发表于 2021-7-6 16:49
+
+
+也许跟你咩姐也有关的公告：[https://link.bilibili.com/p/eden/news#/newsdetail?id=2051](https://link.bilibili.com/p/eden/news#/newsdetail?id=2051)
+
+<img src="https://img.saraba1st.com/forum/202107/06/164416z5iboz651zbigisq.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>3DF6C76B-A8F0-4725-B357-E482F19A3A32.jpeg</strong> (229.4 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 16:44 上传
+
+
+虽然可能唯一的区别只是从“签约”主播改为“高能”主播而已
+
+
+不过不知道会不会有更多的“直播禁止事项”呢（
+
+
+-----
+
+####  T_Hb  
+##### 18844#       发表于 2021-7-6 17:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 18845#       发表于 2021-7-6 17:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">乱糟糟可还行，快进到麻毛起球
+
+
+                                                 

@@ -6807,3 +6807,106 @@ BNEI财政吃紧是不可能的，同时都有多少项目运营了
 
 
                                                  
+
+-----
+
+####  oniwarud  
+##### 2005#       发表于 2021-7-6 16:39
+
+
+<blockquote>qiyu1234 发表于 2021-7-6 15:38
+蓝反这种大型MMO不会比TO这种单机RPG要来的便宜
+
+另外原田之前说万南现在有个史上最高成本的项目未公布 ...</blockquote>
+如果不是rpg的话，那多半是龙珠之类的吧，那销量可比它旗下那些rpg销量高了几倍了
+
+
+-----
+
+####  qiyu1234  
+##### 2006#       发表于 2021-7-6 16:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51860395&amp;ptid=1860328" target="_blank">zero12 发表于 2021-7-6 16:32</a>
+
+联动的youtuber居然放了个播片，不过只在贴吧里看到了一张图，不知道视频在哪里能看
+
+ ...</blockquote>
+[https://www.youtube.com/watch?v=vCnP_I4qQnk](https://www.youtube.com/watch?v=vCnP_I4qQnk)
+
+
+很短，只有十几秒
+
+
+<img src="https://img.saraba1st.com/forum/202107/06/164121itpvznezpfppvtrs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1.JPG</strong> (281.59 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 16:41 上传
+
+
+-----
+
+####  laoz  
+##### 2007#       发表于 2021-7-6 16:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这次甚至不用飞妈社的人设
+
+<img src="https://img.saraba1st.com/forum/202107/06/164850ylhvqazzhldlovyq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>IMG_20210706_164834_955.jpg</strong> (119.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 16:48 上传
+
+
+-----
+
+####  bwsusaga  
+##### 2008#       发表于 2021-7-6 16:49
+
+
+刚看完OP，我觉的L里还是说轻了，不好意思全正统系列最拉的一作OP<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  LMBS  
+##### 2009#       发表于 2021-7-6 17:14
+
+
+国内用steam评价的话应该算是多半差评
+
+可是上404看差评率竟然只有2%不到
+
+
+-----
+
+####  蓝雉  
+##### 2010#       发表于 2021-7-6 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51860597&amp;ptid=1860328" target="_blank">laoz 发表于 2021-7-6 16:49</a>
+
+这次甚至不用飞妈社的人设</blockquote>
+这次系统界面用的立绘居然是人设原画吗,配合这UI看着像主机主题似的(
+
+
+
+
+-----
+
+####  MrJokel  
+##### 2011#       发表于 2021-7-6 17:27
+
+
+开始怀念松岛晃的立绘了
+
+
+                                                
