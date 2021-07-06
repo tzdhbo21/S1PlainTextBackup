@@ -6540,3 +6540,87 @@ op没上一个行
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 12576#       发表于 2021-7-6 21:39
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始乱唱了
+
+
+-----
+
+####  Fami水  
+##### 12577#       发表于 2021-7-6 21:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就几首稍微进入状态了
+
+可能在公司心态不一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 12578#       发表于 2021-7-6 21:42
+
+
+[https://www.bilibili.com/video/BV1xg411T7zy](https://www.bilibili.com/video/BV1xg411T7zy)
+
+
+OP还是原来的字幕组做的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+竟然还能再联系上给PV
+
+
+-----
+
+####  a37356205  
+##### 12579#       发表于 2021-7-6 21:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">懂了，被锁在直播室了，不播到马内甲满意不开门
+
+
+-----
+
+####  FCCHua  
+##### 12580#       发表于 2021-7-6 21:48
+
+
+ 本帖最后由 FCCHua 于 2021-7-6 21:55 编辑 
+
+狗组，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+syl 这是第几次把画面填满了，差不多将近三个小时，16首歌，本质杂谈捏
+
+
+-----
+
+####  昆西昆希昆  
+##### 12581#       发表于 2021-7-6 21:50
+
+
+播了三小时，很难不是被裹挟了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Fami水  
+##### 12582#       发表于 2021-7-6 21:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">好家伙 OPED全换了
+
+
+-----
+
+####  stedckk  
+##### 12583#       发表于 2021-7-6 21:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新ed有吉尔了
+
+
+                                                 

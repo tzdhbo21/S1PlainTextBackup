@@ -10037,3 +10037,132 @@ mc也是非常久之后才碰的
 
 
                                                 
+
+-----
+
+####  古战场亡魂  
+##### 18919#       发表于 2021-7-6 21:35
+
+
+ 本帖最后由 古战场亡魂 于 2021-7-6 21:36 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">看日本介绍牛郎的节目，爆火的第一人不火了，他的回答是段子没了，高中时间段的艳遇也好、情史也好全讲完了。
+
+从18年开始吧，自己的段子，别的v的段子（现在别的v不熟的也不敢碰了），父母的段子，凑阿夸的段子，到我的一个朋友。
+
+你的年龄就20岁，作为管人段子都已经酱三年了，你的生活阅历和积累在那边，不可能超出常人太多。
+
+管人这东西，就是不断的放饵料给期待值，其中尤其以游戏好定目标。
+
+你现在2d皮也换了，3D也有了，演唱会也办了，除了没新衣服，基本上个人势的所定的一些目标都实现了。
+
+接下来又能描述什么梦想呢，个人势的力量又能做到哪一步。
+
+神乐组这个我是完全不明白，你bs时期好歹还有个专门的推特团号和排班表呢。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">姐，你这根本当不了领导啊，你又不是真正的资本家可以直接甩手不干，连自己的时间都控制不了。
+
+不谈剩下组员的时间了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+20岁了，也没法当小孩子看了，舒适区没法一直待下去的，虽然目前躺平流比较多，但是你也得先把嫁妆挣挣吧。
+
+
+上面的话全部和事业民无关，也没有任何兴趣去打扰她。
+
+只能说主播没有精神，粉丝也不会精神到哪里去。
+
+希望这个月真的能播爆吧。
+
+
+-----
+
+####  古战场亡魂  
+##### 18920#       发表于 2021-7-6 21:49
+
+
+其实今天节目效果还不错，希望之后除了歌回外在自己频道也有其他更多类型的直播。
+
+
+-----
+
+####  Ky·Kiske  
+##### 18921#       发表于 2021-7-6 21:50
+
+
+今天算是尝试性的向前走了一步
+
+
+-----
+
+####  路人庚  
+##### 18922#       发表于 2021-7-6 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">要不是日本的个税对她来说高的离谱，她早就能过上靠无脑买理财产品月入几千上万的财富自由生活了
+
+过去她说自己是在赚养老金，现在估计是在赚交个税的钱吧
+
+
+不过反正她的时间还有的是，按照三年一波观众来说她至少还能迎来送往三波不同的观众
+
+所以以她自己的视角来看她的职业生涯，现在基本可以得出的结论是保持自己的兴趣才是第一位的
+
+
+等到需要刻意尝试不感兴趣的内容的时候那估计已经是更多年之后的事情了
+
+到时候如果她积累的足够的业务水平，自然也会吸引另外的一波人来看她的
+
+
+-----
+
+####  yywzjsw  
+##### 18923#       发表于 2021-7-6 21:56
+
+
+今晚半睡半醒的看完了直播<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+我倒是觉得她蛮精神的，从11月那情况都走了出来，积极的向上。虽然摸鱼，但也是在做其它事情。你总不能让她的生活全是直播。你也说了她才20岁，20岁才成年，可以去做以前未成年不能做的事情。<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">
+
+当领导什么的，神乐组也只是一个社团，她要是有往那犬山那种发展早发展了。bs时候的也是，你麻那能任性到在活动的时候就准备跑去做vtb。
+
+顺便的你麻很任性<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">，任性的可以直接逃跑不播。
+
+说了那么多干啥，她播什么我看什么，她做什么我看什么。她不播了，我做自己的事情。强把自己的想法加在她的身上干什么？<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+没精神就等她有精神了，不感兴趣了就等自己有兴趣了，路是人走出来的、<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+ps多来点沙雕小游戏好吗？阿b的三周年能不能唱个105°<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  thisisaspider  
+##### 18924#       发表于 2021-7-6 22:05
+
+
+楼友们都很独特 有独特的离开的理由 也有独特的留下来的理由
+
+我也想说点什么 但感觉已经没必要了
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黒長直姫  
+##### 18925#       发表于 2021-7-6 22:09
+
+
+综上就是傻逼轮到你们操心吗
+
+
+-----
+
+####  jhouo8989  
+##### 18926#       发表于 2021-7-6 22:18
+
+
+你们想的真多。她播了，我闲了，那缘分就到了。
+
+—— 来自 samsung SM-G9810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                                                 

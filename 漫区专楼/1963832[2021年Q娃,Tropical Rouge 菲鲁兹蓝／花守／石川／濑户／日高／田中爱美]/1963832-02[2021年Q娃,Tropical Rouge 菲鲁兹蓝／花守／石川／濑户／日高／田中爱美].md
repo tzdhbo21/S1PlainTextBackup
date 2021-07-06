@@ -4465,3 +4465,41 @@ op加上cv和声了 但画面没有换<img src="https://static.saraba1st.com/ima
 
 
                                                  
+
+-----
+
+####  暗黑能乐  
+##### 1831#       发表于 2021-7-6 21:34
+
+
+哇，这预告看得我好期待啊。。。
+
+
+-----
+
+####  HGCG  
+##### 1832#         楼主| 发表于 2021-7-6 22:13
+
+
+主要是决战学生会
+
+<img src="https://img.saraba1st.com/forum/202107/06/221338fzwg287lrkhgjh5w.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (135.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 22:13 上传
+
+
+-----
+
+####  最强惠酱  
+##### 1833#       发表于 2021-7-6 22:15
+
+
+好想看24！！
+
+
+                                                 
