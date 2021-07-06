@@ -9551,3 +9551,28 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  jzsgtx  
+##### 674#       发表于 2021-7-6 18:38
+
+
+港版30号。。。。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  wyjbnb  
+##### 675#       发表于 2021-7-6 18:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">今天刚刚入手的x5m2的港版。
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">之前用的xz1c，对比起来，这手机长太多了。
+
+另外发热相对于xz1c有点多，还有手势有点不适应，另外摄像头突出，不得不戴套
+
+
+                                                 

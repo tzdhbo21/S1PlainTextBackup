@@ -9286,3 +9286,138 @@ yhm真是……<img src="https://static.saraba1st.com/image/smiley/face2017/026.
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 18846#       发表于 2021-7-6 17:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51860598&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-6 16:49</a>
+也许跟你咩姐也有关的公告：https://link.bilibili.com/p/eden/news#/newsdetail?id=2051</blockquote>
+<img src="https://p.sda1.dev/2/e7d258fa97cbb016833f1212a5431c19/IMG_CMP_175681990.jpeg" referrerpolicy="no-referrer">
+
+偷的图，不知真假<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 18847#       发表于 2021-7-6 18:00
+
+
+那小麻的小闪电肯定无了
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  古战场亡魂  
+##### 18848#       发表于 2021-7-6 18:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">转播也是稳定开播。不过这流量优质、流水优质的意思是要交保护费？？？三个月撤销说白了就是看季度的流水。
+
+
+-----
+
+####  Cushaw  
+##### 18849#       发表于 2021-7-6 18:02
+
+
+枕营业不管用了吗<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  时间在我手中  
+##### 18850#       发表于 2021-7-6 18:08
+
+
+什么，还有这种好事.jpg
+
+
+不过陈睿应该不至于这么弱智吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18851#       发表于 2021-7-6 18:10
+
+
+ 本帖最后由 路人庚 于 2021-7-6 18:16 编辑 
+
+舰长也算流水吧，你咩姐200舰怎么也算是有点流水，不过如果说这算不上优质的话那只能说叔叔真行（
+
+不过比起这个我更在意如果“高能”认证没了会有什么影响，应该不至于会导致在阿b打的钱都收不到吧（
+
+
+-----
+
+####  T_Hb  
+##### 18852#       发表于 2021-7-6 18:11
+
+
+ 本帖最后由 T_Hb 于 2021-7-6 18:23 编辑 
+
+200舰如果不行，那叔叔胃口确实挺大的
+
+没了认证最多也就是未签约主播呗，礼物一样抽
+
+倒是稳定开播是啥意思，要达到某个频率么<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18853#       发表于 2021-7-6 18:30
+
+
+想起来了，挺久之前看到过，说是未认证的主播抽成会更多一些，认证了就少抽点
+
+
+对海外v的频率要求应该会低很多的，不过反正转播也算开播，频率这里应该不是问题
+
+
+-----
+
+####  T_Hb  
+##### 18854#       发表于 2021-7-6 18:30
+
+
+我都不知道多久没看到直播了，今夕是何年<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+希望第二周播爆是真的
+
+
+-----
+
+####  汇聚群光  
+##### 18855#       发表于 2021-7-6 18:37
+
+
+听说未签约的V来b站进行B限时需要提前很长时间报备？
+
+
+-----
+
+####  古战场亡魂  
+##### 18856#       发表于 2021-7-6 19:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">你mea的还会整b站的预约？有在字幕组插眼的能说一下这是她自己弄的，还是官组弄的？？
+
+
+-----
+
+####  路人庚  
+##### 18857#       发表于 2021-7-6 19:09
+
+
+基本上也就是官组弄的吧
+
+
+                                                 

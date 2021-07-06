@@ -6910,3 +6910,107 @@ BNEI财政吃紧是不可能的，同时都有多少项目运营了
 
 
                                                 
+
+-----
+
+####  qiyu1234  
+##### 2012#       发表于 2021-7-6 17:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51860904&amp;ptid=1860328" target="_blank">LMBS 发表于 2021-7-6 17:14</a>
+
+国内用steam评价的话应该算是多半差评
+
+可是上404看差评率竟然只有2%不到</blockquote>
+评论区也算有些微词
+
+昨天官方频道另一个视频（25周年系列OP BD年末发售）下面的评论对比起来更直接一点
+
+显然ARISE还需要游戏内容的检验才能确定是否能取代大多数人心中系列OP前几名的地位
+
+
+-----
+
+####  qiyu1234  
+##### 2013#       发表于 2021-7-6 17:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51860597&amp;ptid=1860328" target="_blank">laoz 发表于 2021-7-6 16:49</a>
+
+这次甚至不用飞妈社的人设</blockquote>
+感觉挤满了，真的能放下6个人吗
+
+
+-----
+
+####  laoz  
+##### 2014#       发表于 2021-7-6 17:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51861292&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-6 17:43</a>
+
+感觉挤满了，真的能放下6个人吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">左右各塞一个咯，无论怎样都是要塞进去的
+
+
+-----
+
+####  宛若青空  
+##### 2015#       发表于 2021-7-6 17:58
+
+
+官推放了一部分游戏里的2D过场动画
+
+
+-----
+
+####  宛若青空  
+##### 2016#       发表于 2021-7-6 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51860597&amp;ptid=1860328" target="_blank">laoz 发表于 2021-7-6 16:49</a>
+这次甚至不用飞妈社的人设</blockquote>
+原来富泽之前说的会放立绘在这里是这样的，岩本好啊<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ranapocket  
+##### 2017#       发表于 2021-7-6 18:08
+
+
+op真的不怎么样，希望游戏内容做好一点吧
+
+—— 来自 HUAWEI OCE-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  nozomitech  
+##### 2018#       发表于 2021-7-6 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51859808&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-6 08:38</a>
+
+蓝反这种大型MMO不会比TO这种单机RPG要来的便宜
+
+另外原田之前说万南现在有个史上最高成本的项目未公布 ...</blockquote>
+老哥你说的是蓝色协议吧？蓝反一个单机一个手游，哪来的mmo，也不是万南做的。话说这玩意我看画面也不怎么样啊，为什么这么花钱？
+
+
+-----
+
+####  qiyu1234  
+##### 2019#       发表于 2021-7-6 19:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51862187&amp;ptid=1860328" target="_blank">nozomitech 发表于 2021-7-6 19:04</a>
+
+老哥你说的是蓝色协议吧？蓝反一个单机一个手游，哪来的mmo，也不是万南做的。话说这玩意我看画面也不怎 ...</blockquote>
+对，我写错了<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">，是蓝色协议
+
+
+画面已经很强了，特别是对比现在的TO
+
+
+                                                 

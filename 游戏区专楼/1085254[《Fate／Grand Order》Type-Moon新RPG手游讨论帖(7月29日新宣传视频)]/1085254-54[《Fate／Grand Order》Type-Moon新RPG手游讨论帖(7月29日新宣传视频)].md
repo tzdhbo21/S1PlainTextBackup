@@ -1800,3 +1800,88 @@ FGO不是索尼的游戏吗，真就索尼手机索尼自己都不用啊⋯⋯<i
 
 
                                                  
+
+-----
+
+####  qixinno2  
+##### 79651#       发表于 2021-7-6 17:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51860635&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-6 16:52</a>
+
+今天超低难是不是c呆上去就无敌了。。听说你会无敌贯通？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">是的 完克 打完血都不带掉的
+
+
+-----
+
+####  exiaexa  
+##### 79652#       发表于 2021-7-6 17:57
+
+
+C呆打阿拉什根本就是降维打击艹
+
+甚至卑弥呼都不用上，一条之光注意叠个OC就行
+
+上了卑弥呼就是闭着眼睛打
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79653#       发表于 2021-7-6 17:58
+
+
+翻页
+
+
+-----
+
+####  khxooo  
+##### 79654#       发表于 2021-7-6 18:19
+
+
+达芬奇感觉还是可以打一下，后天老王那个真的不想打了<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79655#       发表于 2021-7-6 18:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51861725&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-6 18:19</a>
+
+达芬奇感觉还是可以打一下，后天老王那个真的不想打了，记得国服这两个高难打到我得了肺炎，治病的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 王师傅不是脚打的吗 以前开荒就jio了现在都知道机制了还能难到哪去
+
+
+-----
+
+####  areklose  
+##### 79656#       发表于 2021-7-6 18:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得复刻的高难应该没难度，看新追加的难度本了
+
+
+-----
+
+####  qixinno2  
+##### 79657#       发表于 2021-7-6 18:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">反正日服没打过 国服那阵抽卡一个五星没出弃坑了大半年这活动给鸽了
+
+
+-----
+
+####  alucardcz  
+##### 79658#       发表于 2021-7-6 18:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我还记得当年达芬奇那本明明脚打  后来游戏区国服玩家发贴说什么难啊  萌新去表演了一下还被喷是个云玩家
+
+
+                                                 
