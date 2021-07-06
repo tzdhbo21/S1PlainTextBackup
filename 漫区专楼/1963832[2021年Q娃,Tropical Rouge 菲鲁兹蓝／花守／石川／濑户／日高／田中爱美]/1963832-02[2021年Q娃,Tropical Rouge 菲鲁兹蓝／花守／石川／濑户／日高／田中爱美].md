@@ -4432,3 +4432,25 @@ op加上cv和声了 但画面没有换<img src="https://static.saraba1st.com/ima
 
 
                                                  
+
+-----
+
+####  dragrass  
+##### 1828#       发表于 2021-7-6 14:44
+
+
+一些大友在塑造珊瑚的败犬形象了<img src="https://static.saraba1st.com/image/smiley/face2017/024.png" referrerpolicy="no-referrer">
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  暗黑能乐  
+##### 1829#       发表于 2021-7-6 15:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">就很可恶，从来没有开始过，何来之败
+
+
+                                                 
