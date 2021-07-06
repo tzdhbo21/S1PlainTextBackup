@@ -6748,3 +6748,62 @@ op配信了，多听了几遍感觉顺耳了不少，好像也没那么糟（已
 
 
                                                  
+
+-----
+
+####  hypnossz86  
+##### 2001#       发表于 2021-7-6 15:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51858847&amp;ptid=1860328" target="_blank">qiyu1234 发表于 2021-7-6 14:20</a>
+BNEI财政吃紧是不可能的，同时都有多少项目运营了
+
+只是不同企划的预算不同，绯红结系明显在重要度上是要 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">南梦宫当年拿的出手现在还留存的系列就那么几个了吧...
+还有哪个能上高规格的？
+
+
+-----
+
+####  qiyu1234  
+##### 2002#       发表于 2021-7-6 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51859765&amp;ptid=1860328" target="_blank">hypnossz86 发表于 2021-7-6 15:34</a>
+
+南梦宫当年拿的出手现在还留存的系列就那么几个了吧...
+
+还有哪个能上高规格的？ ...</blockquote>
+蓝反这种大型MMO不会比TO这种单机RPG要来的便宜
+
+另外原田之前说万南现在有个史上最高成本的项目未公布
+
+
+-----
+
+####  Booorunestud  
+##### 2003#       发表于 2021-7-6 15:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">OP真一般
+
+
+-----
+
+####  zero12  
+##### 2004#       发表于 2021-7-6 16:32
+
+
+联动的youtuber居然放了个播片，不过只在贴吧里看到了一张图，不知道视频在哪里能看
+
+<img src="https://img.saraba1st.com/forum/202107/06/163159a0zuwg7tgigi640g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>6c00b57eca80653837f982a680dda144ad348203[0].jpg</strong> (20.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 16:31 上传
+
+
+                                                 

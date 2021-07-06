@@ -6254,3 +6254,100 @@ Abandoned: Realtime Trailers
 
 
                                                  
+
+-----
+
+####  DTCPSS  
+##### 475#       发表于 2021-7-6 15:38
+
+
+<img src="https://p.sda1.dev/2/b0869ecf12021db3c3e1c56bd538d08d/4146bb5dgy1gs75o6avvcj20m809g0un.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  westgun  
+##### 476#       发表于 2021-7-6 15:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51859819&amp;ptid=2010295" target="_blank">DTCPSS 发表于 2021-7-6 15:38</a></blockquote>
+震惊！这是什么
+
+
+-----
+
+####  平贺才人  
+##### 477#       发表于 2021-7-6 15:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51859819&amp;ptid=2010295" target="_blank">DTCPSS 发表于 2021-7-6 15:38</a></blockquote>
+？？？
+
+
+-----
+
+####  新八  
+##### 478#       发表于 2021-7-6 15:55
+
+
+好家伙，风波再起吗
+
+
+-----
+
+####  怨虎龙  
+##### 479#       发表于 2021-7-6 15:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51859819&amp;ptid=2010295" target="_blank">DTCPSS 发表于 2021-7-6 15:38</a></blockquote>
+什么啊，什么啊什么啊什么啊<img src="https://static.saraba1st.com/image/smiley/face2017/108.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  陈玉礼  
+##### 480#       发表于 2021-7-6 15:56
+
+
+这点东西啥都看不出来啊 请不要草木皆兵<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  平贺才人  
+##### 481#       发表于 2021-7-6 16:04
+
+
+微博看到个人说是mgs重制，蓝点做的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Gandalf  
+##### 482#       发表于 2021-7-6 16:08
+
+
+这乐子还有啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DeerRua  
+##### 483#       发表于 2021-7-6 16:24
+
+
+找不到消息来源
+
+
+-----
+
+####  曼陀罗肥  
+##### 484#       发表于 2021-7-6 16:29
+
+
+来源在哪啊，转了一圈没找到
+
+
+                                                
