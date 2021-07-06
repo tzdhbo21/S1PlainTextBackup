@@ -3106,3 +3106,29 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  雾wu  
+##### 232#       发表于 2021-7-6 23:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51852824&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-7-5 22:35</a>
+
+迷路的时候，就换个星球如何</blockquote>
+第一次玩是这样的，结果根本没有头绪，重玩我决定专心探索一颗星球直到烦<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  雾wu  
+##### 233#       发表于 2021-7-6 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51854722&amp;ptid=1992654" target="_blank">luoyianwu 发表于 2021-7-6 07:23</a>
+
+开个记事本记下所有疑点和线索</blockquote>
+这些倒没什么，我的问题在对跳跳乐，幽灵物质，复杂且辨识度低的地下网道，这些东西的厌烦，我真的只想快点推剧情啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

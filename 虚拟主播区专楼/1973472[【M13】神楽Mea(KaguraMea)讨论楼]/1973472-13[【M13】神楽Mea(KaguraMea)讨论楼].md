@@ -10166,3 +10166,86 @@ ps多来点沙雕小游戏好吗？阿b的三周年能不能唱个105°<img src=
 
 
                                                  
+
+-----
+
+####  汇聚群光  
+##### 18927#       发表于 2021-7-6 22:29
+
+
+说到神乐组，其实现在能看出来，mea和另外三位本质上并不是一路人。
+
+众所周知，mea是全职vtuber，是neet，没什么社会经验。
+
+而另外三位都是现充，要么是学生、要么是准社畜、要么已经是社畜，直播只是副业，而且人家直播的重心都放在tc，作为vtuber直播是副业中的副业，这点mea是没法管的。
+
+mea一开始组建“神乐组”的初衷是自己创造业内的伙伴，现在看来这个目标有没有达成还真不好说。
+
+
+-----
+
+####  2014720  
+##### 18928#       发表于 2021-7-6 22:41
+
+
+不会真有几个人人和她脑回路一样吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">，相当傻子？
+
+
+-----
+
+####  Cushaw  
+##### 18929#       发表于 2021-7-6 22:50
+
+
+ 本帖最后由 Cushaw 于 2021-7-6 23:00 编辑 
+
+楼友努力想和傻口yhm建立卡拉连接的样子真的很靓仔<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+syl，vtb死路一条，赶紧肉体出道
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  clvan_  
+##### 18930#       发表于 2021-7-6 22:56
+
+
+神乐组不是组，也不算她建的，顶多人脉引了下流<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+说白了就和打游戏带萌新差不多性质的东西，人家弃坑了你麻还在玩而已<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  T_Hb  
+##### 18931#       发表于 2021-7-6 23:02
+
+
+ 本帖最后由 T_Hb 于 2021-7-6 23:17 编辑 
+
+别想太多了，有没有乐的，我又想羊叫了
+
+
+-----
+
+####  Cortana  
+##### 18932#       发表于 2021-7-6 23:24
+
+
+有一说一，确实。不是说事业民什么的，不管怎样还是想她多播几年，多整点好活，给粉丝们多多带来欢乐。这样会担心也是难免的，或者说有点患得患失的感觉？
+
+逐渐有点往老父亲粉转变的趋势了。
+
+
+-----
+
+####  JY要塞  
+##### 18933#       发表于 2021-7-6 23:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">什么时候放开野男人话题你们就知道错了
+
+
+                                                

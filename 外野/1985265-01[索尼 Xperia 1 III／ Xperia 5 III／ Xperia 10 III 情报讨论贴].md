@@ -9639,3 +9639,20 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  wyjbnb  
+##### 681#       发表于 2021-7-6 22:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51864526&amp;ptid=1985265" target="_blank">暗铁 发表于 2021-7-6 22:07</a>
+
+我推荐piktures
+
+
+—— 来自 samsung SM-G9650, Android 10上的 S1Next-鹅版 v2.4.4.1</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我找你这软件的时候找到一个图标跟以前索尼一样的图标的相册软件，还没广告，就去直接下了
+
+
+                                                 

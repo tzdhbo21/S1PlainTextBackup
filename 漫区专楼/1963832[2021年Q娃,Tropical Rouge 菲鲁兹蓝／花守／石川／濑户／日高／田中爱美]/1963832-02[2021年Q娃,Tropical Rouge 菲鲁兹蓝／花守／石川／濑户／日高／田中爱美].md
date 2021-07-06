@@ -4503,3 +4503,35 @@ op加上cv和声了 但画面没有换<img src="https://static.saraba1st.com/ima
 
 
                                                  
+
+-----
+
+####  暗黑能乐  
+##### 1834#       发表于 2021-7-6 22:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51864611&amp;ptid=1963832" target="_blank">HGCG 发表于 2021-7-6 22:13</a>
+
+主要是决战学生会</blockquote>
+21-23感觉挺连贯的，特别是23总觉得会有什么伏笔
+
+
+-----
+
+####  isa2456  
+##### 1835#       发表于 2021-7-6 22:45
+
+
+热血battle，应该是热带部跟学生会运动对决之类的吧，能不能带出什么有意思的背景
+
+
+-----
+
+####  kerfars  
+##### 1836#       发表于 2021-7-6 22:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">24应该会讲飞鸟和会长的故事了
+
+
+                                                 
