@@ -9733,3 +9733,307 @@ syl，魔怔事业民盯着一个不去蹭热点不去播爆特长也不算突�
 
 
                                                 
+
+-----
+
+####  T_Hb  
+##### 18890#       发表于 2021-7-6 20:46
+
+
+patra ai酱是个啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 18891#       发表于 2021-7-6 20:48
+
+
+游戏民要求很高，既要打的漂亮不吃瘪又要充满节目效果，阿咩目前的游戏力来说，属实想太多
+
+
+PS.
+
+还好她不喜欢apex，不然我还真不想看……
+
+
+-----
+
+####  T_Hb  
+##### 18892#       发表于 2021-7-6 20:49
+
+
+和亲友边打边聊天我很可以
+
+
+-----
+
+####  古战场亡魂  
+##### 18893#       发表于 2021-7-6 20:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">个人的游戏民要求很低，别打apex就行……
+
+
+-----
+
+####  clvan_  
+##### 18894#       发表于 2021-7-6 20:51
+
+
+游戏民想看的是和绿熊打游戏那种的吧，还得是没野男人的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18895#       发表于 2021-7-6 20:52
+
+
+已经丧失语言能力，懒得念台词了
+
+
+-----
+
+####  咸鱼渣  
+##### 18896#       发表于 2021-7-6 20:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">锻炼小肥羊的肺活量
+
+
+-----
+
+####  T_Hb  
+##### 18897#       发表于 2021-7-6 20:56
+
+
+跑路了，还帮ptr宣传了一下晚上的奥术
+
+美好的时光也太短暂了<img src="https://static.saraba1st.com/image/smiley/face2017/232.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 18898#       发表于 2021-7-6 20:57
+
+
+辛苦小麻了，确实好活
+
+
+-----
+
+####  GRMeA104  
+##### 18899#       发表于 2021-7-6 20:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的法国巨炮呢
+
+
+-----
+
+####  咸鱼渣  
+##### 18900#       发表于 2021-7-6 20:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">这就跑了？
+
+
+
+
+-----
+
+####  专业划水人员  
+##### 18901#       发表于 2021-7-6 20:57
+
+
+这女人能坚持一小时太强了，但可能要休息很久才能播。。。。
+
+
+-----
+
+####  时间在我手中  
+##### 18902#       发表于 2021-7-6 20:57
+
+
+一小时好短，明天还不好发东西，摸了
+
+
+-----
+
+####  Ky·Kiske  
+##### 18903#       发表于 2021-7-6 20:58
+
+
+我看了好久眼前娇羞嗔怪脸的周防，好像有点硬了
+
+
+要命，你咩这是反向引流吗<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18904#       发表于 2021-7-6 20:58
+
+
+宣传了一波东京24点ptr的asmr（那边真的有
+
+
+不知道阿咩一会还会不会播
+
+
+（中间有几段的声线感觉已经是meu的声线了
+
+
+-----
+
+####  T_Hb  
+##### 18905#       发表于 2021-7-6 20:59
+
+
+掐1个小时也算是超人了
+
+
+-----
+
+####  GRMeA104  
+##### 18906#       发表于 2021-7-6 20:59
+
+
+只要你足够毒唯,你就永远不会被引流出去<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+唱了三年歌了还不会保养嗓子的话主播那就真的蠢到一定程度了只能说<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rosevalley46  
+##### 18907#       发表于 2021-7-6 21:02
+
+
+其实对于一个没啥游戏水平的主播来说今晚节目效果算是非常好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18908#       发表于 2021-7-6 21:03
+
+
+别尬黑 起码你麻的上单 打野波比还是能看的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18909#       发表于 2021-7-6 21:03
+
+
+别尬黑，小游戏还是挺强的
+
+
+-----
+
+####  kolu33  
+##### 18910#       发表于 2021-7-6 21:03
+
+
+在意同接干嘛，反正今晚的直播是我最近一段时间笑的最开心的一次了
+
+
+-----
+
+####  ashero  
+##### 18911#       发表于 2021-7-6 21:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天反正笑果爆炸 完美
+
+
+-----
+
+####  时间在我手中  
+##### 18912#       发表于 2021-7-6 21:05
+
+
+还是那句话，她其实适合一些粪作或者小游戏
+
+
+-----
+
+####  古战场亡魂  
+##### 18913#       发表于 2021-7-6 21:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">有没有男人这点无所谓，也和事业民没关系，主要是你也太不蹭游戏热度了，雀魂火的时候你打世嘉麻将
+
+雪地狼人杀别人玩烂了你才开始玩
+
+太空人人狼别人都要不玩了你才开始玩
+
+只狼出来三个月了你才玩
+
+俄罗斯方块99反正也是隔了很久
+
+apex也是不知道多久才碰的
+
+mc也是非常久之后才碰的
+
+碧蓝、原神好歹是日本的大热游戏，你除了工商碰都不碰……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+她接触新鲜事物非常非常的慢，
+
+基本上感觉她开始上手试试的时候，全世界已经试过几遍了。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18914#       发表于 2021-7-6 21:07
+
+
+ 本帖最后由 T_Hb 于 2021-7-6 21:10 编辑 
+
+只能说什v什粉，我也差不多就烂在这里不想动了<img src="https://static.saraba1st.com/image/smiley/face2017/231.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 18915#       发表于 2021-7-6 21:08
+
+
+这人手速反应都是可以的，就是不想玩而已。
+
+
+-----
+
+####  时间在我手中  
+##### 18916#       发表于 2021-7-6 21:11
+
+
+有一说一，mc这游戏不看你什么时候玩，但是这人的问题是别的方面
+
+
+-----
+
+####  makourisu-2  
+##### 18917#       发表于 2021-7-6 21:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18918#       发表于 2021-7-6 21:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/253.png" referrerpolicy="no-referrer">再去听几遍翻唱算了
+
+
+                                                
