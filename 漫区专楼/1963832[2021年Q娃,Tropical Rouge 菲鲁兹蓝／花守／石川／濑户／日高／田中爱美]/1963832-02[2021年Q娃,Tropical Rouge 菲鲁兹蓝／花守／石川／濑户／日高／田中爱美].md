@@ -4535,3 +4535,16 @@ op加上cv和声了 但画面没有换<img src="https://static.saraba1st.com/ima
 
 
                                                  
+
+-----
+
+####  dragrass  
+##### 1837#       发表于 2021-7-7 17:33
+
+
+HOMO! HOMO!
+
+— from samsung SM-G9960, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

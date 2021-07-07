@@ -12563,3 +12563,39 @@ oreapo有意思在主播自己拱火，相关人士没事就喜欢调戏他俩
 
 
                                                  
+
+-----
+
+####  rzrbtk  
+##### 3929#       发表于 2021-7-7 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51873885&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-7 16:43</a>
+郡道和椎名都已经是这种待遇了么？心疼郡gachi，</blockquote>
+郡道自己都把原创曲删了的程度的不想上台，没什么可怜的<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">，
+西西可能更爱和帅哥打枪吧
+
+
+-----
+
+####  FCCHua  
+##### 3930#       发表于 2021-7-7 18:17
+
+
+ 本帖最后由 FCCHua 于 2021-7-7 18:19 编辑 
+
+oreapo贴贴，打枪好看，随着熟悉程度的加深两人也越来越默契了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  IDIDIDID  
+##### 3931#       发表于 2021-7-7 18:20
+
+
+新女主角かのん还蛮好玩的
+
+
+                                                
