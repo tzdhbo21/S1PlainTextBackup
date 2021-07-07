@@ -12448,3 +12448,118 @@ youube.png
 
 
                                                  
+
+-----
+
+####  winda  
+##### 3923#       发表于 2021-7-7 16:34
+
+
+ 本帖最后由 winda 于 2021-7-7 16:36 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/163300rz72h8wnilowbmpb.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210707_162126.jpg</strong> (237.59 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-7 16:33 上传
+
+
+用的海报是zepp东京复仇，福冈和名古屋的。
+
+难波和札幌黑历史了挺正常，但是名古屋海报强行剪出rrr就很阴湿了
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/163431vkn8z6tw78y7wuth.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210707_162922.jpg</strong> (249.24 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-7 16:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/163435iyeacnya1tlcalyy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210707_162654.jpg</strong> (302.26 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-7 16:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/163440e7baqabqbmez8eah.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210707_162640.jpg</strong> (278.89 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-7 16:34 上传
+
+
+-----
+
+####  qq845629713  
+##### 3924#       发表于 2021-7-7 16:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 郡道和椎名都已经是这种待遇了么？心疼郡gachi，
+
+
+-----
+
+####  poipanchao  
+##### 3925#       发表于 2021-7-7 16:53
+
+
+不看虹杏了
+有没有楼友看vspo的
+最近开始补oreapo以及艺人旅团了
+
+
+-----
+
+####  十四洲  
+##### 3926#       发表于 2021-7-7 17:04
+
+
+oreapo和艺人旅团那一圈挺有意思的，不过kamito算管人吗？今天又要双人成行了
+
+
+-----
+
+####  poipanchao  
+##### 3927#       发表于 2021-7-7 17:12
+
+
+ 本帖最后由 poipanchao 于 2021-7-7 17:14 编辑 
+
+kmt虽然不够原教旨，但是现在也是有皮有l2d的
+严格来说就差个皮的设定吧
+时至今日还有谁在意这些呢…
+
+oreapo有意思在主播自己拱火，相关人士没事就喜欢调戏他俩
+跟其他全靠观众起哄的高下立判
+
+
+-----
+
+####  rzrbtk  
+##### 3928#       发表于 2021-7-7 17:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51872097&amp;ptid=1972669" target="_blank">空き地卯木 发表于 2021-7-7 14:29</a></blockquote>
+嗯嗯嗯嗯懂的懂的，十一岁确实不能出席夜间活动嗯嗯嗯
+
+
+                                                 
