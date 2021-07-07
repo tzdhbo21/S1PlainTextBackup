@@ -11147,3 +11147,25 @@ syl，喜报：这人貌似有干劲了
 
 
                                                  
+
+-----
+
+####  古战场亡魂  
+##### 19019#       发表于 2021-7-8 00:54
+
+
+ 本帖最后由 古战场亡魂 于 2021-7-8 01:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">不过这tc整的有模有样了啊
+
+
+-----
+
+####  TiHaru  
+##### 19020#       发表于 2021-7-8 01:19
+
+
+最近一年半直播活动都只是为了付房租，之前的直播真的很开心<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+                                                 
