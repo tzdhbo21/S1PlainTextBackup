@@ -1944,3 +1944,20 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79663#       发表于 2021-7-7 13:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51871288&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-7 13:22</a>
+
+翻出当年萌新第一天过的阵容
+
+
+应该说萌新运气好，没有被平A即死，我用BB被平A即死至少5次后，偶然 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怎么还翻老贴的
+
+
+                                                 
