@@ -10347,3 +10347,221 @@ apex还是要有野男人才好看
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 18943#       发表于 2021-7-7 09:28
+
+
+12、13号连着两天都是联动啊
+
+
+-----
+
+####  Klience  
+##### 18944#       发表于 2021-7-7 09:36
+
+
+桃铁啊 日本人就没有其他游戏好玩的吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18945#       发表于 2021-7-7 09:42
+
+
+ 本帖最后由 T_Hb 于 2021-7-7 09:46 编辑 
+
+怎么不认真搞一次gartic phone呢，上次兰太郎带着玩了一次节目效果挺好，就是其他人真的不太熟太自闭了
+
+
+-----
+
+####  Klience  
+##### 18946#       发表于 2021-7-7 09:46
+
+
+我倒想看你咩和绿熊玩双人成行的 之前看别人玩这游戏还挺有意思 绿熊和咩联动玩这个应该挺有趣的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 18947#       发表于 2021-7-7 09:50
+
+
+梦见沙滨女人和老爱、摸鱼月一起游戏联动了...
+
+
+-----
+
+####  时间在我手中  
+##### 18948#       发表于 2021-7-7 09:50
+
+
+桃铁这玩意儿说起来谁还记得剩余年数是多少来着，18年还是多少年
+
+
+-----
+
+####  T_Hb  
+##### 18949#       发表于 2021-7-7 09:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">桃铁我是真的连规则都不懂了
+
+
+-----
+
+####  古战场亡魂  
+##### 18950#       发表于 2021-7-7 09:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51868449&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-7 09:53</a>
+
+桃铁我是真的连规则都不懂了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我之前不是在楼里发过规则了吗
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb| + 1|让我往前翻翻|
+
+
+查看全部评分
+
+
+-----
+
+####  古战场亡魂  
+##### 18951#       发表于 2021-7-7 10:03
+
+
+ 本帖最后由 古战场亡魂 于 2021-7-7 10:05 编辑 
+
+[https://bbs.saraba1st.com/2b/for ... age=228#pid49869199](https://bbs.saraba1st.com/2b/forum.php?mod=viewthread&amp;tid=1973472&amp;page=228#pid49869199) 6831#应该还差个历史人物技能。
+
+
+-----
+
+####  古战场亡魂  
+##### 18952#       发表于 2021-7-7 10:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 18953#       发表于 2021-7-7 10:45
+
+
+这逼游戏 怎么就是 打不完<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 18954#       发表于 2021-7-7 10:54
+
+
+上次是2个月前的第五次“50年桃铁”联动，游戏内从第26年开始，播了2个多小时，没看最后到哪一年了，估计游戏内也就是5年左右吧，按照这个进度估计后面还有4次联动<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">细水长流，不要太急
+
+
+（然后等50年结束之后反手再掏个100年桃铁出来<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18955#       发表于 2021-7-7 10:58
+
+
+那看来我没记错，的确还差18年左右，10年需要5小时左右，也就是说这东西还能水10小时时长
+
+
+我都不知道我那个啥时候发才好了，思考
+
+
+桃铁这东西最地狱的还是工作日中午播出这点，简直摧残我身体）<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 18956#       发表于 2021-7-7 11:06
+
+
+总结：傻逼游戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 18957#       发表于 2021-7-7 11:07
+
+
+桃铁联动我都不看的，看不懂，还不如去补tc
+
+
+-----
+
+####  MrHPQ  
+##### 18958#       发表于 2021-7-7 11:16
+
+
+和咩宝打游戏最有节目效果的是谁不用多说了吧，懂得都懂<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 18959#       发表于 2021-7-7 11:16
+
+
+那当然是我绿熊最近的51游戏世界大全了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 18960#       发表于 2021-7-7 11:18
+
+
+和兔妈妈的世界游戏大全也挺有意思的
+
+
+
+
+-----
+
+####  路人庚  
+##### 18961#       发表于 2021-7-7 11:24
+
+
+你咩姐跟熟悉的人一起打游戏都挺有节目效果的，主要是她能跳的起来，能yygq，话题也放得开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+既然上面选了绿熊黄兔子，那我就选个miu罢（
+
+
+-----
+
+####  MrHPQ  
+##### 18962#       发表于 2021-7-7 11:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">哈哈，和野男人打游戏最有意思
+
+
+                                                

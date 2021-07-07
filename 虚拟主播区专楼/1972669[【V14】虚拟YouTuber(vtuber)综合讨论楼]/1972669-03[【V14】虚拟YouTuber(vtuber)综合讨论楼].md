@@ -12246,3 +12246,143 @@ syl ssk说过最近有两套，这是一套
 
 
                                                  
+
+-----
+
+####  IDIDIDID  
+##### 3907#       发表于 2021-7-7 09:57
+
+
+成人版口了
+
+
+-----
+
+####  IDIDIDID  
+##### 3908#       发表于 2021-7-7 10:09
+
+
+holo3个唱歌的多少都有归属权问题，这下自主可控了。
+
+
+-----
+
+####  qq845629713  
+##### 3909#       发表于 2021-7-7 10:58
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/105725jn367own37xznouf.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210707105540.png</strong> (80.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-7 10:57 上传
+
+
+芜湖！我的三马鹿回来了！完美的配合！
+
+
+-----
+
+####  Suny08  
+##### 3910#       发表于 2021-7-7 11:23
+
+
+这个youtube music weekend，虹杏都被放在了深夜场洗脚婢位，主流进出程度还是不太够啊
+
+
+-----
+
+####  ヒトニナル  
+##### 3911#       发表于 2021-7-7 11:31
+
+
+redjuice画的vsinger，直接幻视一个EGOIST
+
+
+-----
+
+####  集合酱  
+##### 3912#       发表于 2021-7-7 11:38
+
+
+你虹大手妈妈除了lack还有谁啊
+
+
+-----
+
+####  free  
+##### 3913#       发表于 2021-7-7 11:42
+
+
+ 本帖最后由 free 于 2021-7-7 11:46 编辑 
+
+[https://twitter.com/YouTubeJapan/status/1412614850916745219](https://twitter.com/YouTubeJapan/status/1412614850916745219)
+
+◤#YouTubeMusicWeekend◢
+
+卫星天线 配信情報 第 2 弾 ⚡
+
+　
+
+7月16日㈮、7月17日㈯の深夜帯には、VTuber のパフォーマンスを楽しめる『YouTube Music Weekend Midnight』が #プレミア公開耳机繁星点点的夜晚
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/114629a09sxvi404dffghu.png" referrerpolicy="no-referrer">
+
+
+<strong>youube.png</strong> (107.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-7 11:46 上传
+
+
+youube.png
+(50.66 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-7 11:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/114159paqhxnx809cnxn68.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sgssk  
+##### 3914#       发表于 2021-7-7 11:50
+
+
+ 本帖最后由 sgssk 于 2021-7-7 12:30 编辑 
+
+彩虹凑合算大手子的妈妈，藤原、泉彩、白蛋、米白米白
+
+
+刚才瞄了下才知道白蛋原来比huke还多一万粉丝，就一起放上来了（虽然活动领域不一样不大好比）
+
+
+-----
+
+####  渡鸦骑士  
+##### 3915#       发表于 2021-7-7 11:54
+
+
+这个出席人选真心奇妙<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  peh  
+##### 3916#       发表于 2021-7-7 12:35
+
+
+刷推刷到3bakaサムネ，突然感觉活过来了..
+
+
+                                                 

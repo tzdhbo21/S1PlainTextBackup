@@ -1899,3 +1899,29 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  rooarr  
+##### 79660#       发表于 2021-7-7 12:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51862584&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-6 19:38</a>
+
+或者对你来说是脚打，但对我来说就是难打</blockquote>
+萌新打什么都是脚打，习惯就好<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79661#       发表于 2021-7-7 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51870391&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-7 12:15</a>
+
+萌新打什么都是脚打，习惯就好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你这么说萌新我就不服了 记得王师傅我当天就通了 第2天就有人研究出了献计流 找个黑狗好友就行了啊
+
+
+                                                 

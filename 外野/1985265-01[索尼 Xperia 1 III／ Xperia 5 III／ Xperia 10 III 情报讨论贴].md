@@ -9656,3 +9656,23 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  jzsgtx  
+##### 682#       发表于 2021-7-7 12:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51862121&amp;ptid=1985265" target="_blank">wyjbnb 发表于 2021-7-6 18:57</a>
+
+今天刚刚入手的x5m2的港版。
+
+之前用的xz1c，对比起来，这手机长太多了。
+
+另外发热相对于xz1c ...</blockquote>
+自己用1的经验是没必要刷国行，银行应用把后台活动限制跟后台流量限制打开就好，不放心的话每次用完银行就手动把进程杀掉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+微信至少play版默认使用一直没有明显耗多少电<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
