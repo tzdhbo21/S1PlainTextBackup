@@ -7014,3 +7014,14 @@ op真的不怎么样，希望游戏内容做好一点吧
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 2020#         楼主| 发表于 2021-7-8 02:33
+
+
+7月5日的直播，建议看那位 hololive 虚拟主播的，有很多以往没看到过的东西（比如称号-技能盘里有“空中回避”这样的能力）。<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+                                                 
