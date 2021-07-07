@@ -2013,3 +2013,45 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  vacuumsword  
+##### 79669#       发表于 2021-7-7 18:33
+
+
+楼里有人最近（6/15之后）拿Google礼品卡充过么？之前外野有人说现在GPS不在日本就不行了。
+
+
+-----
+
+####  areklose  
+##### 79670#       发表于 2021-7-7 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51875218&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2021-7-7 18:33</a>
+
+楼里有人最近（6/15之后）拿Google礼品卡充过么？之前外野有人说现在GPS不在日本就不行了。 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看你这样一说，买了日区的礼品卡充进去了。不过不是直接氪FGO，是直接充进去谷歌账号。毫无问题。我觉得不至于查GPS吧。。
+
+
+-----
+
+####  areklose  
+##### 79671#       发表于 2021-7-7 19:23
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/192205gt81n7u9aw98x7xy.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-07-19-17-52-00.jpg</strong> (131.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-7 19:22 上传
+
+
+刚充的1W日元，之前看到497没买，现在还是504买了。不过我这个日区账号一直挂日本区的线路来充值的。
+
+
+                                                 
