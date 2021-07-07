@@ -12397,3 +12397,25 @@ youube.png
 
 
                                                  
+
+-----
+
+####  空き地卯木  
+##### 3918#       发表于 2021-7-7 14:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51871063&amp;ptid=1972669" target="_blank">rzrbtk 发表于 2021-7-7 13:03</a>
+
+同日同台出演，红白笨蛋贴贴...</blockquote><blockquote>※放送時間の関係で、童田明治、鈴木勝は出演お休みとなります。</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 3919#       发表于 2021-7-7 14:44
+
+
+这原因就离谱<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+                                                 
