@@ -1961,3 +1961,24 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79664#       发表于 2021-7-7 15:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我发现我现在刷无限池的目的不是池数，而是希望凑个+12。。
+
+
+-----
+
+####  exiaexa  
+##### 79665#       发表于 2021-7-7 15:43
+
+
+你们怎么还记得自己怎么打的，我全忘光了，一点印象也没有
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
