@@ -1925,3 +1925,22 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  rooarr  
+##### 79662#       发表于 2021-7-7 13:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=37212152&amp;ptid=1085254" target="_blank">alucardcz 发表于 2017-9-15 22:06</a>
+
+王哈过了  贞德 孔明 黑狗 梅林 盾娘 雪b
+
+知道套路后就简单了 注意黑狗要方第3位 ...</blockquote>
+翻出当年萌新第一天过的阵容<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+应该说萌新运气好，没有被平A即死，我用BB被平A即死至少5次后，偶然运气好有一次bb全程活着才打过的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
