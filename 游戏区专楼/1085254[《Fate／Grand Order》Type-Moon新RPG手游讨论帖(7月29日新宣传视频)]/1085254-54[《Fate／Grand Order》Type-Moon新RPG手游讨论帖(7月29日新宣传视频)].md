@@ -2055,3 +2055,97 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  缘一  
+##### 79672#       发表于 2021-7-7 22:16
+
+
+感叹，今天遇到一个主玩网游，手游只玩fgo，被动画第七章骗进来的妹子，和我大吹特吹fgo氪金真便宜<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">原来动画真的能吸到新人，和现在的妹子真有钱……
+
+
+-----
+
+####  AbigailWilliams  
+##### 79673#       发表于 2021-7-7 22:18
+
+
+对于家里真有矿的，二次元手游都便宜<img src="https://static.saraba1st.com/image/smiley/face2017/062.gif" referrerpolicy="no-referrer">反过来说觉得二次元手游贵的，万万不要接触国内的某些游戏领域<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那是真的一分钱一分货
+
+
+-----
+
+####  rooarr  
+##### 79674#       发表于 2021-7-7 22:29
+
+
+跟网游这种环境比，fgo当然便宜啊，网游经常一套时装就要500块<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79675#       发表于 2021-7-7 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51877685&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-7 22:29</a>
+
+跟网游这种环境比，fgo当然便宜啊，网游经常一套时装就要500块</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你怕不是在玩dnf。玩ff14/wow/激战2啊。。花不了多少钱。。（rmt另算
+
+
+-----
+
+####  areklose  
+##### 79676#       发表于 2021-7-7 22:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">第七章拍成这个吊样子也能吸引人吗
+
+
+-----
+
+####  rooarr  
+##### 79677#       发表于 2021-7-7 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51877831&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-7 22:45</a>
+你怕不是在玩dnf。玩ff14/wow/激战2啊。。花不了多少钱。。（rmt另算</blockquote>
+并没有，我只是简单描述只玩了3个月古剑ol的经历<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79678#       发表于 2021-7-7 23:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51875218&amp;ptid=1085254" target="_blank">vacuumsword 发表于 2021-7-7 18:33</a>
+
+楼里有人最近（6/15之后）拿Google礼品卡充过么？之前外野有人说现在GPS不在日本就不行了。 ...</blockquote>
+昨天刚充过5000，一点问题都没有<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79679#       发表于 2021-7-7 23:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51877851&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-7 22:47</a>
+
+并没有，我只是简单描述只玩了3个月古剑ol的经历你列举的游戏都太老了，没新鲜感 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">这都老了吗 萌新超过1年的就这3个游戏
+
+
+-----
+
+####  alucardcz  
+##### 79680#       发表于 2021-7-7 23:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说王姐最终只能点满2个技能？  全换了最后一个技能不够啊
+
+
+                                                 
