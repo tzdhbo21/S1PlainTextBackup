@@ -2236,3 +2236,230 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79688#       发表于 2021-7-8 17:11
+
+
+艹，失忆→进本→杀生院两巴掌拍死达芬奇→最后的晚餐
+
+我想起来了.JPG
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79689#       发表于 2021-7-8 17:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886579&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-8 17:11</a>
+
+艹，失忆→进本→杀生院两巴掌拍死达芬奇→最后的晚餐
+
+我想起来了.JPG
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">听说用村正可以直接杀了大碧池然后用脚过 晚饭后我去试试
+
+
+-----
+
+####  exiaexa  
+##### 79690#       发表于 2021-7-8 17:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886588&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-8 17:11</a>
+
+听说用村正可以直接杀了大碧池然后用脚过 晚饭后我去试试</blockquote>
+我就是杀生院秒掉达芬奇然后就最后的晚餐了
+
+不过我不确定会不会给后排的小怪也上
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79691#       发表于 2021-7-8 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886588&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-8 17:11</a>
+
+听说用村正可以直接杀了大碧池然后用脚过 晚饭后我去试试</blockquote>
+好的，都他妈瞎扯淡，最后的晚餐是会带到后排小怪的
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79692#       发表于 2021-7-8 17:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886756&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-8 17:22</a>
+
+好的，都他妈瞎扯淡，最后的晚餐是会带到后排小怪的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">？ 本来就可以啊  我是说村正可以无视亡语
+
+
+-----
+
+####  alucardcz  
+##### 79693#       发表于 2021-7-8 17:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886756&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-8 17:22</a>
+
+好的，都他妈瞎扯淡，最后的晚餐是会带到后排小怪的</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202107/08/172520u8e0yrfy6z8msrpr.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1111.jpg</strong> (596.78 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-8 17:25 上传
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">结论是真的可以 不过我要翻了  可能要sl一下 不然一刀一个小朋友
+
+
+-----
+
+####  exiaexa  
+##### 79694#       发表于 2021-7-8 17:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886812&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-8 17:25</a>
+
+结论是真的可以 不过我要翻了  可能要sl一下 不然一刀一个小朋友</blockquote>
+无视亡语有啥用嘛，翻车就是因为扛不住最后的晚餐啊
+
+只能拼脸SL算什么逃课
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79695#       发表于 2021-7-8 17:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886868&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-8 17:29</a>
+
+无视亡语有啥用嘛，翻车就是因为扛不住最后的晚餐啊
+
+只能拼脸SL算什么逃课
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你在说什么  我这不是没有sl已经打成这样了 前面死人我都没管 
+
+
+-----
+
+####  alucardcz  
+##### 79696#       发表于 2021-7-8 17:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">打完了 直接拉了个令咒 村正爆杀大碧池
+
+
+-----
+
+####  exiaexa  
+##### 79697#       发表于 2021-7-8 17:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886892&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-8 17:30</a>
+
+你在说什么  我这不是没有sl已经打成这样了 前面死人我都没管</blockquote>
+拼脸逃课跟单核拼发牌员“稳定”3t有啥区别
+
+
+不能稳定复现啊
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79698#       发表于 2021-7-8 17:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886961&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-8 17:35</a>
+
+拼脸逃课跟单核拼发牌员“稳定”3t有啥区别
+
+
+不能稳定复现啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我根本看不懂你在说什么  你还准备周回这本？
+
+
+-----
+
+####  exiaexa  
+##### 79699#       发表于 2021-7-8 17:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51886972&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-8 17:36</a>
+我根本看不懂你在说什么  你还准备周回这本？</blockquote>
+我的意思就是，不能稳定复现的拼脸打法不至于被上升到逃课的程度，要逃课起码到上次红卡打全力斗技被宝石老福强拆的水平吧
+
+不然整得跟当年竞速组那次撕逼似的，翻车时间比别人正常打时间都多然后叫竞速
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79700#       发表于 2021-7-8 18:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51887183&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-8 17:56</a>
+
+我的意思就是，不能稳定复现的拼脸打法不至于被上升到逃课的程度，要逃课起码到上次红卡打全力斗技被宝石 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我的理解是能无视机制就叫逃课
+
+
+刚刚看到别人有稳定打法了  手动砍死前几个怪 然后村正3连光炮直接清光  不需要sl 不需要看脸
+
+
+意思大概就是7个小怪的时候开始3连光炮 我懒得试了你可以试试
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79701#       发表于 2021-7-8 18:11
+
+
+梅林C呆卑弥呼脚打，整这么麻烦干什么
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  alucardcz  
+##### 79702#       发表于 2021-7-8 18:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">话说政哥哥呢 怎么最近都是卑弥呼  政哥哥这是亡了吗
+
+
+-----
+
+####  khxooo  
+##### 79703#       发表于 2021-7-8 18:15
+
+
+ 本帖最后由 khxooo 于 2021-7-8 18:27 编辑 
+
+穷人只能用BB了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">，就算有C呆还是一样烦，有时间试试逃课打法。不过除了卑弥呼，始皇帝也是可以用一下的，毕竟带集中，也不乏控制，可以更好保护C呆。
+
+
+                                                 
