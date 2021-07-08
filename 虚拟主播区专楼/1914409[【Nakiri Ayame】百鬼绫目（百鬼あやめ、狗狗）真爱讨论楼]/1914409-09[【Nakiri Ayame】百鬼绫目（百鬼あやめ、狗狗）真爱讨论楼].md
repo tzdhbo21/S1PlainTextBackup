@@ -7122,3 +7122,125 @@ syl早上那梦是在暗示LOL吗?<img src="https://static.saraba1st.com/image/s
 
 
                                                  
+
+-----
+
+####  nian1538  
+##### 12625#       发表于 2021-7-8 22:50
+
+
+这百万纪念都纪念了个啥啊
+
+
+-----
+
+####  Fami水  
+##### 12626#       发表于 2021-7-8 22:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">看出来确实没准备
+
+这杂谈不是应该放在会限么
+
+
+-----
+
+####  一仙  
+##### 12627#       发表于 2021-7-8 22:54
+
+
+和一般杂谈没有本质区别，想起来上次生日会纪念也是这样。
+
+大概绫总自由的代价就是没办法从cover那里拿到全体大锅饭以外的资源了吧。
+
+
+感觉绫总上次工商也是很久很久之前了，还是和粉丝一起摆烂吧。
+
+
+-----
+
+####  Fami水  
+##### 12628#       发表于 2021-7-8 23:04
+
+
+没有就没有吧
+
+三年下来，不管是绫总还是粉丝 留下来的都差不多都佛系了
+
+大锅饭的时候有绫总一口吃的就行
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12629#       发表于 2021-7-8 23:06
+
+
+太嗯聊了 上面定了时长是吧
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12630#       发表于 2021-7-8 23:20
+
+
+新皮那回才说的不会把sc拖到其他播 怎么会是捏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  nian1538  
+##### 12631#       发表于 2021-7-8 23:20
+
+
+ 本帖最后由 nian1538 于 2021-7-8 23:23 编辑 
+
+资源这东西你问绫总本人要什么资源估计绫都说不出来，cover咋给嘛
+
+有资源的夸夸天天跟那高强度996，绫总愿不愿意都不好说吧
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12632#       发表于 2021-7-8 23:24
+
+
+ 本帖最后由 星尘的杨桃精 于 2021-7-8 23:26 编辑 
+
+抄作业肯定总会吧 近点的不就有486
+
+原创曲就无所谓了 poyoyo玩偶我是真的很想要<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  一仙  
+##### 12633#       发表于 2021-7-8 23:26
+
+
+ 本帖最后由 一仙 于 2021-7-8 23:29 编辑 
+
+至少来首原创曲吧<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+syl，还记得以前绫总说的目标是原创曲和sololive，最近说的愿望改口成和大家一起开live。也不知道是啥原因绫总给换了。
+
+
+poyoyo确实，也期待好久了，个人最想要的是余T。
+
+
+-----
+
+####  星尘的杨桃精  
+##### 12634#       发表于 2021-7-8 23:35
+
+
+人家播完纪念回直接放购买链接了 你绫总连个音声的饼都不画<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+画一个嘛 收录个纪念语音又用不了多少时间 很难不怀疑是被放置play了<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">
+
+
+                                                

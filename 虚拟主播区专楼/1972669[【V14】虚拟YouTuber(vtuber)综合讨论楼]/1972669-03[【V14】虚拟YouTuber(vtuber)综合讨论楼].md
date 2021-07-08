@@ -12798,3 +12798,43 @@ oreapo贴贴，打枪好看，随着熟悉程度的加深两人也越来越默�
 
 
                                                  
+
+-----
+
+####  winda  
+##### 3948#       发表于 2021-7-8 22:33
+
+
+<blockquote>ひなせ実楓(みう)
+@hinase_miu
+·
+9分
+■第6回のCRカップのメンバー表を最新版に更新しました。
+
+・ゆふなさん、kamitoさん、アルス・アルマルさんのチームが確定しました。
+
+・カワセさん、橘ひなのさん、奈羅花さんのチームが確定しました。
+
+※おそらく前回最下位だったため、奈羅花さん8pt⇒6ptに調整されたと思われます。
+
+#CRカップ
+https://twitter.com/hinase_miu/status/1413095367621505030?s=21</blockquote><img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然实际调整分数的是hnn，但这个考察也太进准踩雷了
+
+
+-----
+
+####  OldGlory  
+##### 3949#       发表于 2021-7-8 23:20
+
+
+<img src="https://img.saraba1st.com/forum/202107/08/232010stvplpp3fvppija9.png" referrerpolicy="no-referrer">
+
+
+<strong>E5wW87VVcAMjS7j.png</strong> (38.75 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-8 23:20 上传
+
+
+                                                 
