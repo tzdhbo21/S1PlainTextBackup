@@ -2208,3 +2208,17 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79686#       发表于 2021-7-8 11:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51881974&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-8 11:13</a>
+
+立本股沟什么时候支持软妹币付款了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">我第一反应是你充了10张1W
+
+
+                                                 
