@@ -2621,3 +2621,38 @@ MMO带团的时候被沙雕团友逼疯了好几次
 
 
                                                 
+
+-----
+
+####  黑上シグマ  
+##### 79716#       发表于 2021-7-8 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51889081&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-8 20:41</a>
+
+建议赶紧抽卡</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">天启没有来，不抽
+
+
+-----
+
+####  areklose  
+##### 79717#       发表于 2021-7-8 20:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这本慢慢打又没啥难度，C呆真是把高难的难度完全下降几个级别。肃正无敌让所有无敌贯穿的敌人都变成笑话
+
+
+-----
+
+####  khxooo  
+##### 79718#       发表于 2021-7-8 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51889168&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-8 20:52</a>
+
+这本慢慢打又没啥难度，C呆真是把高难的难度完全下降几个级别。肃正无敌让所有无敌贯穿的敌人都变成 ...</blockquote>
+是啊，我除了最后外，都没怎么碰过达芬奇，全程用肃正防御扛过去的。
+
+
+                                                 

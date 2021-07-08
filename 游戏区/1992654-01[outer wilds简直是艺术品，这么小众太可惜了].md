@@ -3241,3 +3241,16 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  Dgnic_  
+##### 241#       发表于 2021-7-8 20:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51888648&amp;ptid=1992654" target="_blank">雾wu 发表于 2021-7-8 19:57</a>
+通关了，感受实在是难以描述，这个故事过于疯狂，过于浪漫，以至于我在看了一遍解析后才敢确认自己对剧情 ...</blockquote>
+玩完之后可以看一下我210楼转发的那个剧情梳理，看完之后会更能体会到这个游戏的严谨与浪漫。
+
+
+                                                 
