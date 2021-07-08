@@ -16577,3 +16577,29 @@ k肯定还是给小马吧，怎么看索隆都要去打凯多
 
 
                                                  
+
+-----
+
+####  moeful  
+##### 55389#       发表于 2021-7-8 15:06
+
+
+吧唧大神完克鹰眼，正可谓是海贼王，怎么弱。要不是顶上战争给鹰眼放水扔了个弹，怕不是鹰眼就在顶上累死了！<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  天使的日曜日  
+##### 55390#       发表于 2021-7-8 16:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851198&amp;ptid=98922" target="_blank">C男人 发表于 2021-7-5 19:49</a>
+
+开了武装色还被人打出血的，
+
+
+甚平是不是第一个？</blockquote>
+还是有的<img src="https://z3.ax1x.com/2021/07/08/ROQ9jH.png" referrerpolicy="no-referrer">
+
+
+                                                 

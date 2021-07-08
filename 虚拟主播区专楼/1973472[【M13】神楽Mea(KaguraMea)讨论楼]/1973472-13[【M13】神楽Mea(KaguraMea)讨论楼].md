@@ -11443,3 +11443,41 @@ lol也就昨天下午打了两局 看她这赛纳不那么难看的战绩有点�
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 19044#       发表于 2021-7-8 15:16
+
+
+你就是101民？<img src="https://static.saraba1st.com/image/smiley/face2017/111.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19045#       发表于 2021-7-8 15:21
+
+
+我一直都是啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19046#       发表于 2021-7-8 15:30
+
+
+昨天TC还提到了splatoon3，看来是真挺喜欢喷喷的
+
+
+-----
+
+####  Klience  
+##### 19047#       发表于 2021-7-8 15:31
+
+
+明年才出售呢 这人慢慢等吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 
