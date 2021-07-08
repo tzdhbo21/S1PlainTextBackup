@@ -1,5 +1,4 @@
 # 简介 
-![Update S1](https://github.com/TomoeMami/S1PlainTextBackup/workflows/Update%20S1/badge.svg)
 
 本仓库用来存放S1部分高楼的纯文本备份，以50楼为一份文件，请善用搜索功能。
 
