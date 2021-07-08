@@ -2656,3 +2656,43 @@ MMO带团的时候被沙雕团友逼疯了好几次
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79719#       发表于 2021-7-8 22:01
+
+
+ 本帖最后由 exiaexa 于 2021-7-8 22:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51888554&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-8 19:47</a>
+村正的宝具是无视防御的，只要你能宝具连发，达芬奇的最后的晚餐和没有一样，小怪的亡语是一次性的，那拐 ...</blockquote>
+我总觉得你搞错了什么东西……
+
+我从来不怀疑村正能过啊，实际上我第二次用村正去试后排最后的晚餐的时候，瞎打了11还是12t也打完了，就是sl的脑壳痛，被连续送走三轮我吐了
+
+你告诉我过了几个小时后抄作业能过，就，我都不知道该回你啥
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  新吾  
+##### 79720#       发表于 2021-7-8 22:06
+
+
+啥时候更新新章来着，上次打开这游戏还是半个月前打剧情了
+
+
+-----
+
+####  areklose  
+##### 79721#       发表于 2021-7-8 22:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51889926&amp;ptid=1085254" target="_blank">新吾 发表于 2021-7-8 22:06</a>
+
+啥时候更新新章来着，上次打开这游戏还是半个月前打剧情了</blockquote>
+14号
+
+
+                                                 

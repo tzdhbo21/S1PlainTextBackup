@@ -11693,3 +11693,17 @@ lol也就昨天下午打了两局 看她这赛纳不那么难看的战绩有点�
 
 
                                                  
+
+-----
+
+####  Cushaw  
+##### 19066#       发表于 2021-7-8 22:12
+
+
+犯病了？<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+真病了！<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+                                                 
