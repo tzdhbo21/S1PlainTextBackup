@@ -2222,3 +2222,17 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  里村紅葉  
+##### 79687#       发表于 2021-7-8 13:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51882546&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-8 11:53</a>
+
+我第一反应是你充了10张1W</blockquote>
+不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">请不要试图给坛友扣土豪的帽子
+
+
+                                                 
