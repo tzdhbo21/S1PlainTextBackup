@@ -2149,3 +2149,62 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  白金口袋  
+##### 79681#       发表于 2021-7-8 04:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51878078&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-7 09:12</a>
+
+话说王姐最终只能点满2个技能？  全换了最后一个技能不够啊</blockquote>
+对的，全服玩家就差那7个鳞粉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  缘一  
+##### 79682#       发表于 2021-7-8 10:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51877846&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-7 22:47</a>
+
+第七章拍成这个吊样子也能吸引人吗</blockquote>
+妹子喜欢闪闪恩奇都和艾蕾（全部抽了满宝），我只喜欢ubw的凛，结果妹子根本没补ubw，尴尬了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79683#       发表于 2021-7-8 11:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51877967&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-7 23:01</a>
+
+昨天刚充过5000，一点问题都没有</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你5000是指5000RMB吗
+
+
+-----
+
+####  里村紅葉  
+##### 79684#       发表于 2021-7-8 11:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51881851&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-8 11:04</a>
+
+你5000是指5000RMB吗</blockquote>
+立本股沟什么时候支持软妹币付款了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79685#       发表于 2021-7-8 11:14
+
+
+1个鳞粉换100尘，换吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

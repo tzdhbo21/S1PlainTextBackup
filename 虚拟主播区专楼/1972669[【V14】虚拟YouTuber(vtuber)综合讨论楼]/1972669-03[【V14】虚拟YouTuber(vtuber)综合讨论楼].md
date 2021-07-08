@@ -12699,3 +12699,34 @@ oreapo贴贴，打枪好看，随着熟悉程度的加深两人也越来越默�
 
 
                                                  
+
+-----
+
+####  死体残留  
+##### 3939#       发表于 2021-7-8 11:14
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">看了隔壁虹楼repo bora这是要引退前兆吧，之前直播频率看怎么都不像学生吧，加上现在打工只保证一周一次直播这是直接抄yuya的样子吧
+
+
+-----
+
+####  Suny08  
+##### 3940#       发表于 2021-7-8 11:19
+
+
+<blockquote>死体残留 发表于 2021-7-8 11:14
+看了隔壁虹楼repo bora这是要引退前兆吧，之前直播频率看怎么都不像学生吧，加上现在打工只保证一周 ...</blockquote>
+后路已经找好了，接下来估计就是把积分花光毕业的流程了
+
+
+-----
+
+####  qq845629713  
+##### 3941#       发表于 2021-7-8 11:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 这下可以当打枪厉害、会说韩语的正统yhm V了，到时候再批站进出简简单单学个中文，收大米了
+
+
+                                                 
