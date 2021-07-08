@@ -7266,3 +7266,15 @@ poyoyo这么适合出玩偶抱枕的形象居然都不商品化
 
 
                                                  
+
+-----
+
+####  stedckk  
+##### 12637#       发表于 2021-7-9 04:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">饼不会画，饭不会恰，播都懒得播，可能直播确实只是绫总的一份兼职罢了，估计她自己都没啥要求。
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">现在还试图架起阴角人设 嗯解释自己摆烂，以前的manager就随便放任她自由，换人可能也是因为管不住她，不知道这次换人之后会不会有什么改变。
+
+
+                                                 
