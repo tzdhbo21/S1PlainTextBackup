@@ -16560,3 +16560,20 @@ k肯定还是给小马吧，怎么看索隆都要去打凯多
 
 
                                                  
+
+-----
+
+####  灰狼  
+##### 55388#       发表于 2021-7-8 14:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851198&amp;ptid=98922" target="_blank">C男人 发表于 2021-7-5 19:49</a>
+
+开了武装色还被人打出血的，
+
+
+甚平是不是第一个？</blockquote>
+挺多的吧。。梅花被秒的时候开了武装色，克力架也把路飞四档的手臂砍伤过
+
+
+                                                 
