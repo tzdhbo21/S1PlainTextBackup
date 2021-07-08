@@ -3202,3 +3202,42 @@ PS5版能不能来个强化补丁啊，30帧玩得有点难受
 
 
                                                  
+
+-----
+
+####  雾wu  
+##### 238#       发表于 2021-7-8 19:54
+
+
+编辑
+
+
+-----
+
+####  雾wu  
+##### 239#       发表于 2021-7-8 19:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51866127&amp;ptid=1992654" target="_blank">Dgnic_ 发表于 2021-7-7 00:45</a>
+
+跳跳乐的诀窍在于按空格使用喷气背包，要是不会用喷气背包很容易死。
+
+幽灵物质出现的地方都有小结晶，发 ...</blockquote>
+通关了，感受实在是难以描述，这个故事过于疯狂，过于浪漫，以至于我在看了一遍解析后才敢确认自己对剧情的大致理解，厉害的是他同时也做到了协调，严谨。确实是可以使人震撼的游戏，我头一次想要用吹爆这个词，可以确信这将是我很长一段时间内的最佳冒险游戏
+
+但是还是有一个不太理解的地方，为什么太阳会毫无前兆地迅速爆发？按正常的恒星衰老，哪怕是游戏里的尺寸，也不至于这么快就从健康状态变为超新星吧，我还以为是老到了一定程度才被双星计划引爆成功的，如果是宇宙之眼里所看到的，全银河恒星在短时间内统一爆炸，那这又是如何造成的呢？某个爆炸引起的连锁反应？难道我遗漏了什么信息吗？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yoboc  
+##### 240#       发表于 2021-7-8 20:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51888648&amp;ptid=1992654" target="_blank">雾wu 发表于 2021-7-8 19:57</a>
+通关了，感受实在是难以描述，这个故事过于疯狂，过于浪漫，以至于我在看了一遍解析后才敢确认自己对剧情 ...</blockquote>
+这里本来就是恒星乃至整个宇宙都已经走到了寿命的尽头，即将热寂了。
+至于为什么在一两分钟左右就迅速发生变化，应该说是为了演出性吧。<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">假如从一开始主角就知道即将超新星化就没有这么大的震撼了
+
+
+                                                 

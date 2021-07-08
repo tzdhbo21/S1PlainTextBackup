@@ -2463,3 +2463,161 @@ C呆打阿拉什根本就是降维打击艹
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79704#       发表于 2021-7-8 19:06
+
+
+ 本帖最后由 exiaexa 于 2021-7-8 19:12 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51887291&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-8 18:04</a>
+
+我的理解是能无视机制就叫逃课
+
+
+刚刚看到别人有稳定打法了  手动砍死前几个怪 然后村正3连光炮直 ...</blockquote>
+其实主要是
+
+MMO带团的时候被沙雕团友逼疯了好几次
+
+整得我对随机性灭团有PTSD，现在打游戏看见随机我就脑壳疼
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79705#       发表于 2021-7-8 19:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51887403&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-8 18:14</a>
+
+话说政哥哥呢 怎么最近都是卑弥呼  政哥哥这是亡了吗</blockquote>
+用政哥哥天生比卑弥呼少两层对肃正防御亏爆啊
+
+输出甚至有可能是负提升，他不亡谁亡
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 79706#       发表于 2021-7-8 19:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没想到去年抽着玩出的卑弥呼这么好使
+
+
+-----
+
+####  xiongxingyu  
+##### 79707#       发表于 2021-7-8 19:45
+
+
+想不到啊想不到，当年全游戏最难的几个本之一的达芬奇本如今最速5T都几乎不用sl的，村正5t一把过，轻松写意，出了1t要凑一下发牌（要求极低，村正任意2张卡只要不是都是红的就行，或者1张蓝卡），破条卖拐，然后换人服加剩下3拐强冲，5发宝具收工。顺便一提，我的村正是90级3宝的，这剧本要求相当亲民来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 79708#       发表于 2021-7-8 19:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51888121&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-8 19:07</a>
+
+用政哥哥天生比卑弥呼少两层对肃正防御亏爆啊
+
+输出甚至有可能是负提升，他不亡谁亡
+
+ ...</blockquote>
+村正的宝具是无视防御的，只要你能宝具连发，达芬奇的最后的晚餐和没有一样，小怪的亡语是一次性的，那拐耗掉就行（你脸黑发了5张村正的牌当我没说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）
+
+
+-----
+
+####  khxooo  
+##### 79709#       发表于 2021-7-8 19:56
+
+
+找到了个莉莉丝的5T，国服可以学<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 79710#       发表于 2021-7-8 20:01
+
+
+[https://www.youtube.com/watch?v=RkDwJGpyxR0](https://www.youtube.com/watch?v=RkDwJGpyxR0)
+
+丢个某不存在网上的村正5T作业，不存在真正意义上的sl，脚打，翻车概率极低（大概是单抽5星从者级别的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">）。全是常用从者，也就主手村正有宝具要求（3宝就够了，2宝不确定，1宝铁定翻车）。
+
+下面是我看了遍视频以后自己抄的作业，一把就完工了，毫无难度可言。
+
+<img src="https://img.saraba1st.com/forum/202107/08/200142q9t2ddtddcz0028t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>523eff68b80cdc9464e7bddb90ff08e.jpg</strong> (269.1 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-8 20:01 上传
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 79711#       发表于 2021-7-8 20:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51888554&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-8 19:47</a>
+
+村正的宝具是无视防御的，只要你能宝具连发，达芬奇的最后的晚餐和没有一样，小怪的亡语是一次性的，那拐 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我还真脸黑发了5张村正的牌
+
+
+-----
+
+####  khxooo  
+##### 79712#       发表于 2021-7-8 20:28
+
+
+[https://www.youtube.com/watch?v=hn10z-2BDl8](https://www.youtube.com/watch?v=hn10z-2BDl8)
+
+
+红A3人过了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79713#       发表于 2021-7-8 20:38
+
+
+翻页
+
+
+-----
+
+####  khxooo  
+##### 79714#       发表于 2021-7-8 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51888951&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-8 20:27</a>
+我还真脸黑发了5张村正的牌</blockquote>
+建议赶紧抽卡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79715#       发表于 2021-7-8 20:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我感觉我这一划令咒浪费了  损失了一个亿 
+
+
+                                                
