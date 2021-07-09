@@ -3221,3 +3221,14 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 
 
                                                  
+
+-----
+
+####  sin.yugi  
+##### 79765#       发表于 2021-7-10 04:55
+
+
+MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？志度内打掉第一条血后连续7回合发动蓝卡回避，硬生生拖了7回合用平A锤死的王哈第二条血，太恶心了<img src="https://static.saraba1st.com/image/smiley/face2017/130.png" referrerpolicy="no-referrer">
+
+
+                                                 
