@@ -3168,3 +3168,44 @@ bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.c
 
 
                                                 
+
+-----
+
+####  千叶铁矢  
+##### 79761#       发表于 2021-7-9 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902726&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-9 20:33</a>
+虽然但是　　陈宫真的无法替代用用也就算了　可这本齐哥吊打陈宫啊　 ...</blockquote>
+没有三藏的话就得用陈宫了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 79762#       发表于 2021-7-9 23:25
+
+
+我的c呆就第一阶段用了，后面都是下班状态<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  الطائر  
+##### 79763#       发表于 2021-7-9 23:33
+
+
+突然发现，按140AP算，霸者级每40AP大概有15组40个“真紅の花”，那么：
+
+
+六加成 +11 和五加成 +10、倍卡的平均掉落是 205 和 190，相差 7.9%，每个苹果多刷 52.5个花，每 11.4 个苹果多刷1池
+
+六加成 +10 和五加成 +9、倍卡的平均掉落是 190 和 175，相差 8.5%
+
+六加成 +9 和五加成 +8、倍卡的平均掉落是 175 和 160，相差 9.4%
+
+
+为了这点加成，如果不能不换人3T，属实有点自虐了。
+
+
+                                                 
