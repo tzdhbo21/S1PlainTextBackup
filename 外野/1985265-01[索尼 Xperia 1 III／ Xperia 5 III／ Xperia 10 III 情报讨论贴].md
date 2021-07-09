@@ -9724,3 +9724,45 @@ Xperia輸入法我找好幾個版本，才成功裝回來<img src="https://stati
 
 
                                                  
+
+-----
+
+####  Lisylfn  
+##### 686#       发表于 2021-7-9 14:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51863400&amp;ptid=1985265" target="_blank">wyjbnb 发表于 2021-7-6 20:51</a>
+
+新系统的相册太难用了，原来的相册app谁有发一个给我啊</blockquote>
+去apkpure找了原来相册的apk, 装上打开提示我与设备无法使用<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Lisylfn  
+##### 687#       发表于 2021-7-9 14:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51875509&amp;ptid=1985265" target="_blank">wyjbnb 发表于 2021-7-7 18:57</a>
+
+有没有推荐一下手机壳的？最好是有挂绳孔的那种！还有屏幕膜也是</blockquote>
+tb搜小小鱼雷, 不要买水凝膜
+
+
+-----
+
+####  无印凉粉  
+##### 688#       发表于 2021-7-9 14:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51897989&amp;ptid=1985265" target="_blank">Lisylfn 发表于 2021-7-9 14:41</a>
+
+去apkpure找了原来相册的apk, 装上打开提示我与设备无法使用</blockquote>
+下载9.8.A.0.8
+
+链接: [https://pan.baidu.com/s/1XEVehvUc7ofntF6wWxnm2w](https://pan.baidu.com/s/1XEVehvUc7ofntF6wWxnm2w) 提取码: 2md9 复制这段内容后打开百度网盘手机App，操作更方便哦
+
+30天有效期。
+
+
+                                                 

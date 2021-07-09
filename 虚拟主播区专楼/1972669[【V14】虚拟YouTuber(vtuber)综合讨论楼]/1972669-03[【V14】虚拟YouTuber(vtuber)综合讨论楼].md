@@ -13021,3 +13021,140 @@ bora当初要不是被ojj上调到大师分估计永远都不会有动力冲大�
 
 
                                                  
+
+-----
+
+####  patema  
+##### 3966#       发表于 2021-7-9 14:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/094.png" referrerpolicy="no-referrer">狱卒要怎么了吗
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  死体残留  
+##### 3967#       发表于 2021-7-9 14:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">今年看上去彩虹是头部淘汰制，过50w的才有淘汰资格 海外的可以放低点
+
+
+-----
+
+####  NBXX  
+##### 3968#       发表于 2021-7-9 15:05
+
+
+ 本帖最后由 NBXX 于 2021-7-9 15:06 编辑 
+
+【にじさんじ完全AR生バンドライブ 開催決定！！】
+
+
+『にじさんじ AR STAGE “LIGHT UP TONES”』開催！
+
+全47都道府県にてライブビューイング&amp;生配信決定！
+
+
+7月31日(土)／8月1日(日)の週末2Days開催！
+
+計15名のライバーが歌で盛り上げる真夏の2日間！
+
+
+詳細はこちら▽
+[https://prtimes.jp/main/html/rd/p/000000287.000030865.html](https://prtimes.jp/main/html/rd/p/000000287.000030865.html)
+<img src="https://p.sda1.dev/2/3c0198e51c1d375e303f1f190da4c935/main.jpg" referrerpolicy="no-referrer"> <blockquote>■ 概要
+
+DAY1
+
+・出演：樋口楓／緑仙／花畑チャイカ／町田ちま／ジョー・力一／夢追翔／レヴィ・エリファ／加賀美ハヤト
+
+・開演：7月31日(土) 17:00 
+
+
+DAY2
+
+・出演：月ノ美兎／剣持刀也／叶／ドーラ／魔界ノりりむ／葛葉／椎名唯華
+
+・開演：8月1日(日) 17:00 </blockquote>
+
+
+-----
+
+####  空集  
+##### 3969#       发表于 2021-7-9 15:15
+
+
+咋没3bk
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  渡鸦骑士  
+##### 3970#       发表于 2021-7-9 15:15
+
+
+好像没有ar主会场……，作为替代的线下是和全日本的75家电影院合作……
+
+虹是怎么安排上这些影院的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  peh  
+##### 3971#       发表于 2021-7-9 15:17
+
+
+右数第2个黑长直是谁？india?
+
+
+-----
+
+####  asdhai  
+##### 3972#       发表于 2021-7-9 15:22
+
+
+实名羡慕彩虹
+
+
+-----
+
+####  ヒトニナル  
+##### 3973#       发表于 2021-7-9 15:24
+
+
+现在美兔女士不仅痛失c位，连站位都只能往后站了吗
+
+
+-----
+
+####  十四洲  
+##### 3974#       发表于 2021-7-9 15:25
+
+
+千麻和亚人要有3d的意思？
+
+
+-----
+
+####  free  
+##### 3975#       发表于 2021-7-9 15:25
+
+
+chima啥时候3D
+
+
+-----
+
+####  FCCHua  
+##### 3976#       发表于 2021-7-9 15:26
+
+
+b站也同步直播哎
+
+
+                                                 
