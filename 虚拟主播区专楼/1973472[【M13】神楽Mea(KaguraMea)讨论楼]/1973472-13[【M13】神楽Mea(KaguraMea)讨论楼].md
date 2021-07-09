@@ -11745,3 +11745,239 @@ lol也就昨天下午打了两局 看她这赛纳不那么难看的战绩有点�
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 19070#       发表于 2021-7-9 11:31
+
+
+🐑党的时代来临力
+
+
+顺便，你咩姐的节目应该是北京时间13点15分开始
+
+
+-----
+
+####  十九号大侠  
+##### 19071#       发表于 2021-7-9 11:32
+
+
+咩姐这是第一次没上bmlvr吧
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 19072#       发表于 2021-7-9 11:34
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/113344wlqjp5ggmmmzemdj.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (49.08 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 11:33 上传
+
+
+随手贴一下，说是卡拉OK合战，不知道一起上还是一个一个上
+
+你咩姐已经过气了，摆在这里就是为了骗门票钱
+
+
+-----
+
+####  路人庚  
+##### 19073#       发表于 2021-7-9 11:36
+
+
+bmlvr是啥？她参加的节目不也就这么几个吗
+
+
+-----
+
+####  时间在我手中  
+##### 19074#       发表于 2021-7-9 11:38
+
+
+她年中的bmlvr啥时候参加过了
+
+
+-----
+
+####  呓亘  
+##### 19075#       发表于 2021-7-9 11:45
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/114513eakkbt73quuz7zqf.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>FF16DF10-7618-4BD7-8169-D09F7B54F63C.jpeg</strong> (467.06 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-9 11:45 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/114513j9phcj7wwpr2ph4w.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>03F9AE20-C9B4-4C6B-9785-E014AD6816A3.jpeg</strong> (568.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-9 11:45 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 十九号大侠| + 1|欢乐多|
+| T_Hb| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  呓亘  
+##### 19076#       发表于 2021-7-9 11:45
+
+
+图转群
+
+
+-----
+
+####  古战场亡魂  
+##### 19077#       发表于 2021-7-9 11:46
+
+
+是时候推广短发版本了，长发版本的cos，太草了。
+
+
+-----
+
+####  fgfg435  
+##### 19078#       发表于 2021-7-9 12:07
+
+
+bw这弹幕看着恶心，不看了，润<img src="https://static.saraba1st.com/image/smiley/face2017/007.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19079#       发表于 2021-7-9 12:15
+
+
+节目好像是四个人一起上的
+
+
+-----
+
+####  专业划水人员  
+##### 19080#       发表于 2021-7-9 12:19
+
+
+有可能4人线下吧。但弹幕真的有点恶心。。。。
+
+
+
+
+-----
+
+####  T_Hb  
+##### 19081#       发表于 2021-7-9 12:20
+
+
+早不看弹幕了，我又不是奔着弹幕去的
+
+
+-----
+
+####  GRMeA104  
+##### 19082#       发表于 2021-7-9 12:21
+
+
+反正塞一个mea进去就有不少人专门过来98甚至450，叔叔还能再割一茬<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  makourisu-2  
+##### 19083#       发表于 2021-7-9 12:25
+
+
+害，弹幕就这<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">多看看LPL比赛直播时的弹幕就好了，这年头钓鱼反串是时尚，咋还能被这点评论吓到
+
+
+-----
+
+####  Klience  
+##### 19084#       发表于 2021-7-9 12:26
+
+
+啊这 我看LPL比赛都是关弹幕的 开着弹幕太密集有时候看不清选手操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19085#       发表于 2021-7-9 12:31
+
+
+还是3D啊，不过这3D怪怪的
+
+
+-----
+
+####  Klience  
+##### 19086#       发表于 2021-7-9 12:32
+
+
+草 我以为你咩是上台唱歌的 原来是审查员啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19087#       发表于 2021-7-9 12:32
+
+
+原来你不唱歌啊，来炒气氛的是吧。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 19088#       发表于 2021-7-9 12:33
+
+
+有3d
+
+
+-----
+
+####  路人庚  
+##### 19089#       发表于 2021-7-9 12:34
+
+
+看起来不是全身3D，应该是半身3D设备（所以应该还是到b站日本分部那边去了啊
+
+
+                                                
