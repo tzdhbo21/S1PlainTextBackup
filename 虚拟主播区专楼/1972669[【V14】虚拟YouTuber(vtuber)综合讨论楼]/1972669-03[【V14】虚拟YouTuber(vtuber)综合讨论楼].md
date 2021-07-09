@@ -12983,3 +12983,41 @@ bora当初要不是被ojj上调到大师分估计永远都不会有动力冲大�
 
 
                                                  
+
+-----
+
+####  OldGlory  
+##### 3963#       发表于 2021-7-9 13:55
+
+
+[https://insights.streamhatchet.com/q2-2021-live-streaming-report](https://insights.streamhatchet.com/q2-2021-live-streaming-report)
+
+<img src="https://img.saraba1st.com/forum/202107/09/135540r7zzj7wnpppeqotf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E5yV4eYUcAMO9-L.jpg</strong> (331.54 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 13:55 上传
+
+
+-----
+
+####  flyskywalker92  
+##### 3964#       发表于 2021-7-9 14:11
+
+
+彩虹不是一票播都不播的 啥末尾淘汰的？
+
+
+-----
+
+####  十四洲  
+##### 3965#       发表于 2021-7-9 14:15
+
+
+很喜欢岚少的一句话：没有两台pc的人做什么主播
+
+
+                                                 

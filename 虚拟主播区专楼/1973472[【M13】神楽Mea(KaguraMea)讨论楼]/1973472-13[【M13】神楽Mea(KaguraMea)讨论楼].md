@@ -12476,3 +12476,372 @@ lulu我只知道她打lol 然后喜欢阿水 也是人菜瘾大 学习中文打�
 
 
                                                
+
+-----
+
+####  T_Hb  
+##### 19142#       发表于 2021-7-9 13:23
+
+
+挺好的
+
+
+-----
+
+####  路人庚  
+##### 19143#       发表于 2021-7-9 13:23
+
+
+噗，就没了、草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 19144#       发表于 2021-7-9 13:24
+
+
+还行 看NGA那边BW楼 对你咩MC评价不错
+
+
+-----
+
+####  295405468  
+##### 19145#       发表于 2021-7-9 13:25
+
+
+这叫演员拓宽戏路  咩宝mc感觉挺好的 
+
+
+-----
+
+####  Mikumiku831  
+##### 19146#       发表于 2021-7-9 13:25
+
+
+比什么提问环节啥的不好多了 
+
+
+-----
+
+####  T_Hb  
+##### 19147#       发表于 2021-7-9 13:25
+
+
+ 本帖最后由 T_Hb 于 2021-7-9 13:26 编辑 
+
+梗多好来事，38岁，不洗澡，传统手艺，拱火炒气氛样样精通
+
+
+-----
+
+####  MrHPQ  
+##### 19148#       发表于 2021-7-9 13:25
+
+
+cr。
+
+
+-----
+
+####  GRMeA104  
+##### 19149#       发表于 2021-7-9 13:26
+
+
+线下赶过去排队前排看了个直播<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 19150#       发表于 2021-7-9 13:26
+
+
+特么我刚回实验室就结束了 佛了
+
+
+-----
+
+####  专业划水人员  
+##### 19151#       发表于 2021-7-9 13:26
+
+
+看完别人唱这人晚上会不会歌瘾唱个几小时。
+
+
+-----
+
+####  时间在我手中  
+##### 19152#       发表于 2021-7-9 13:26
+
+
+军训小畜生别看了，赶紧回去被倔皮炎吧
+
+
+-----
+
+####  295405468  
+##### 19153#       发表于 2021-7-9 13:26
+
+
+咩自己掌握主动权的时候发挥空间比较大
+
+
+-----
+
+####  Klience  
+##### 19154#       发表于 2021-7-9 13:27
+
+
+这东西给你咩多试试挺好的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19155#       发表于 2021-7-9 13:27
+
+
+话说mea给投票的那个，除了她也是帕里画的皮，还与mea有什么别的关系吗？
+
+
+-----
+
+####  Klience  
+##### 19156#       发表于 2021-7-9 13:28
+
+
+太军啊 那个保健室视频里面也有她吧 我记得老熟人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 路人庚| + 1|原来是她，想起来了|
+
+
+查看全部评分
+
+
+-----
+
+####  Klience  
+##### 19157#       发表于 2021-7-9 13:30
+
+
+管人规矩还得准守的 该《初次见面》就要《初次见面》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19158#       发表于 2021-7-9 13:32
+
+
+除了日语太多太快对路人不友好再也觉得没啥问题了，原来批站也有设备不出问题的时候啊<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  MrHPQ  
+##### 19159#       发表于 2021-7-9 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51897043&amp;ptid=1973472" target="_blank">Klience 发表于 2021-7-9 13:28</a>
+
+太军啊 那个保健室视频里面也有她吧 我记得老熟人了</blockquote>
+难道rinco做编剧，推倒爱小姐的那个？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19160#       发表于 2021-7-9 13:32
+
+
+可以开始期待今晚会不会播了<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19161#       发表于 2021-7-9 13:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51897119&amp;ptid=1973472" target="_blank">MrHPQ 发表于 2021-7-9 13:32</a>
+
+难道rinco做编剧，推倒爱小姐的那个？</blockquote>
+还有变身高达的<img src="https://static.saraba1st.com/image/smiley/bundam2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19162#       发表于 2021-7-9 13:38
+
+
+今天应该是有的，应该不会太晚（奶
+
+
+-----
+
+####  2014720  
+##### 19163#       发表于 2021-7-9 13:41
+
+
+所以分组是拉个有ddd的当评委吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">…
+
+
+-----
+
+####  时间在我手中  
+##### 19164#       发表于 2021-7-9 13:43
+
+
+这日语不难吧，我说台本味道重就是因为这东西用句挺简单的
+
+啊，希望我下午从银行回来之后晚上唱歌
+
+
+-----
+
+####  Klience  
+##### 19165#       发表于 2021-7-9 13:48
+
+
+锤子动态
+
+
+微信图片_20210709134728.jpg
+(150.48 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-9 13:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/134755z9955zxs5595lhxq.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 19166#       发表于 2021-7-9 13:48
+
+
+怪不得爱丽丝，老爱，小白的安排是这样，我完全理解了<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19167#       发表于 2021-7-9 13:55
+
+
+你咩姐画的是鱼板吗，怎么变成荷包蛋了
+
+
+-----
+
+####  Klience  
+##### 19168#       发表于 2021-7-9 13:58
+
+
+感觉像一只小鸡在看地面<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 19169#       发表于 2021-7-9 14:28
+
+
+该暗杀锤子了。这是不是还看到了线下的肥婆，寄
+
+
+-----
+
+####  路人庚  
+##### 19170#       发表于 2021-7-9 14:28
+
+
+锤子不在国内吗？
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 19171#       发表于 2021-7-9 14:30
+
+
+哦对。那就暗杀staff<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19172#       发表于 2021-7-9 14:31
+
+
+说到底不还是情报量不足。你要是有情报会是这个样子。
+<img src="https://p.sda1.dev/2/70f96d8bb0f4a3c1e36b08c5841887c1/-1744f88620b8ac50.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19173#       发表于 2021-7-9 14:32
+
+
+小咩又要被staff投食养得胖胖了 该改名叫小口羊了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19174#       发表于 2021-7-9 14:32
+
+
+小口？ 大口
+
+
+-----
+
+####  时间在我手中  
+##### 19175#       发表于 2021-7-9 14:33
+
+
+讲道理，小白是不等于她一定是吧
+
+看到所谓家用ddd好像也不算亏，思考
+
+
+-----
+
+####  路人庚  
+##### 19176#       发表于 2021-7-9 14:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小白这才是比较正常的操作啊，谁让你咩姐是个肉猪怪（
+
+
+-----
+
+####  T_Hb  
+##### 19177#       发表于 2021-7-9 14:33
+
+
+这个3d还不如live2d能动呢
+
+
+                                                

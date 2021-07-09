@@ -2760,3 +2760,31 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 
 
                                                  
+
+-----
+
+####  exiaexa  
+##### 79727#       发表于 2021-7-9 13:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51893388&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-9 09:14</a>
+这个都不用抄啊，我6点逛油管看视频，瞄一眼发现首页有个5t的，瞄了下阵容就顺便把自己的也给打了，根本 ...</blockquote>
+不是，兄弟
+你前脚抄了个作业发个链接，回复我能过的不用sl
+后脚再来告诉我不抄作业也可以不用sl……
+
+
+我想了想，我只能说你确实聪明，我们这些用村正进去瞎打不安排阵容还被打掉令咒是真的弱智
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79728#       发表于 2021-7-9 13:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想起2017年那时候还觉得用令咒是件羞耻的事情 现在能用就用不用白不用
+
+
+                                                 
