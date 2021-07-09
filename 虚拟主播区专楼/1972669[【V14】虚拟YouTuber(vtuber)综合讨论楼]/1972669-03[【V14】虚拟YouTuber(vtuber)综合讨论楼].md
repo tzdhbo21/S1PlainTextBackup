@@ -13686,3 +13686,75 @@ syl 花谱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" 
 
 
                                                  
+
+-----
+
+####  越动天下  
+##### 4021#       发表于 2021-7-9 23:43
+
+
+终于千舰了 看来千舰计划还是有用的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> syl这个图好快呀
+
+
+-----
+
+####  alcoholic1000  
+##### 4022#       发表于 2021-7-10 00:21
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/001720cubj9wbjakga4ra4.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>『Let Me Know』 フレーバーテキスト炎波高電圧記号 #電音部.jpeg</strong> (1.13 MB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 00:17 上传
+
+
+#電音部
+
+シブヤエリア新曲がサブスク&amp;DL解禁!!
+
+『Let Me Know (feat. Masayoshi Iimori)』
+
+歌：鳳凰火凛 (CV: 健屋花那) 
+
+　　瀬戸海月 (CV: シスター・クレア) 
+
+　　大賀ルキア (CV: 星川サラ) 
+
+▼Stream 
+[https://nex-tone.link/A00088882](https://nex-tone.link/A00088882)
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/002100xtjjn9qnlh45ftuz.jpg" referrerpolicy="no-referrer">
+
+
+<strong>俺100.jpg</strong> (315.74 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 00:21 上传
+
+
+-----
+
+####  FCCHua  
+##### 4023#       发表于 2021-7-10 00:29
+
+
+什么时候能再看到电音部的3d打碟联动，上次修女发推收集完歌曲后就没下文了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+虽然大概率是因为后来发生了各种客观因素吧...
+
+
+-----
+
+####  古战场亡魂  
+##### 4024#       发表于 2021-7-10 00:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+                                                 

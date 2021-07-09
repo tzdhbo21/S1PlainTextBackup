@@ -4797,3 +4797,18 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  dragrass  
+##### 1852#       发表于 2021-7-9 23:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=50769116&amp;ptid=1963832" target="_blank">达达葱2 发表于 2021-3-29 16:41</a>
+大地丙太郎是不是有问题   说他要枕女声优</blockquote>
+是最近吗？那个好像是很早之前的消息了，也不知是真是假
+
+— from vivo V2055A, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

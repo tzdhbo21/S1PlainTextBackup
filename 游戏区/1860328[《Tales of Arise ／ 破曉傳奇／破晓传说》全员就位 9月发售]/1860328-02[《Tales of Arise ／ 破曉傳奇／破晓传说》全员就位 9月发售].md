@@ -7125,3 +7125,27 @@ PS5也在逐步降价<img src="https://static.saraba1st.com/image/smiley/face201
 
 
                                                  
+
+-----
+
+####  凶手  
+##### 2028#       发表于 2021-7-10 00:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51854332&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-7-6 02:51</a>
+按照年份推算，2010年前后应该是滨崎步事业转型期（身患疾病），可这首 progress 比我听过她演唱的任何一 ...</blockquote>
+toh的实在太好听 喜欢这游戏这歌加分好多
+
+
+-----
+
+####  凶手  
+##### 2029#       发表于 2021-7-10 00:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902762&amp;ptid=1860328" target="_blank">金子一马 发表于 2021-7-9 20:35</a>
+幻想传说的op是重置版的时候出的，sfc版的游戏都已经出了很久了</blockquote>
+但是歌是有的吧 竟然有歌 当时玩到惊了
+
+
+                                                 
