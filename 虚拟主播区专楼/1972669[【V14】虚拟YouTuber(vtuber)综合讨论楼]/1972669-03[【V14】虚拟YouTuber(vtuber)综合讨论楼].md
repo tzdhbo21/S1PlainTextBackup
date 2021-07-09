@@ -12972,3 +12972,14 @@ bora当初要不是被ojj上调到大师分估计永远都不会有动力冲大�
 
 
                                                 
+
+-----
+
+####  FCCHua  
+##### 3962#       发表于 2021-7-9 13:22
+
+
+那次冲大师太可惜了，就差个位数的分<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+
+
+                                                 

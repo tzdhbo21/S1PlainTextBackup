@@ -11981,3 +11981,498 @@ bw这弹幕看着恶心，不看了，润<img src="https://static.saraba1st.com/
 
 
                                                 
+
+-----
+
+####  T_Hb  
+##### 19090#       发表于 2021-7-9 12:35
+
+
+炒气氛还挺上手，就是对听不懂日语的有点不友好
+
+
+-----
+
+####  笋狐  
+##### 19091#       发表于 2021-7-9 12:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">有一说一，MC说相声炒气氛简直是专业对口啊
+
+
+-----
+
+####  Klience  
+##### 19092#       发表于 2021-7-9 12:38
+
+
+开始乱动了
+
+
+-----
+
+####  fgfg435  
+##### 19093#       发表于 2021-7-9 12:38
+
+
+挂城墙的操作，哈哈哈哈哈<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  elect  
+##### 19094#       发表于 2021-7-9 12:40
+
+
+评委是咩宝确实没想到
+
+
+-----
+
+####  Klience  
+##### 19095#       发表于 2021-7-9 12:40
+
+
+你咩没3D前不也是被挂城墙<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19096#       发表于 2021-7-9 12:40
+
+
+咩宝是不是只有三个动捕点，扭来扭去
+
+
+-----
+
+####  古战场亡魂  
+##### 19097#       发表于 2021-7-9 12:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">主要是没想到3D。不知道日常能不能用。
+
+
+-----
+
+####  Klience  
+##### 19098#       发表于 2021-7-9 12:42
+
+
+日常的话也就家用3D吧 能用是能用 但是要看这人想不想整这活呗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19099#       发表于 2021-7-9 12:42
+
+
+我觉得这懒狗肯定不会整
+
+
+-----
+
+####  路人庚  
+##### 19100#       发表于 2021-7-9 12:43
+
+
+家用3D如果就这个精度的话感觉还是8太行
+
+
+-----
+
+####  时间在我手中  
+##### 19101#       发表于 2021-7-9 12:43
+
+
+你们怎么看出来这是家用的<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19102#       发表于 2021-7-9 12:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这3D也该修修了，起码和现在的2D更靠近点。
+
+
+-----
+
+####  295405468  
+##### 19103#       发表于 2021-7-9 12:44
+
+
+即使家用3d可动性也就那样  个人感觉还不如2d
+
+
+-----
+
+####  T_Hb  
+##### 19104#       发表于 2021-7-9 12:45
+
+
+家用3D主要是可以看手的小动作
+
+
+-----
+
+####  Cushaw  
+##### 19105#       发表于 2021-7-9 12:46
+
+
+用了家用3D就不能把腿架桌上了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  路人庚  
+##### 19106#       发表于 2021-7-9 12:48
+
+
+这3D我看明白了，应该也就只捕捉了一个脑袋<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">估计也就是用手机摄像头的设备捕捉的
+
+
+-----
+
+####  Klience  
+##### 19107#       发表于 2021-7-9 12:48
+
+
+这3D展示 怎么感觉手被胶水粘在桌子上只有上半身动啊 这么想还有点色
+
+
+-----
+
+####  T_Hb  
+##### 19108#       发表于 2021-7-9 12:50
+
+
+动补点少了，感觉只有躯干和头有捕捉
+
+
+-----
+
+####  路人庚  
+##### 19109#       发表于 2021-7-9 12:53
+
+
+躯干是跟着头一起动的，所以应该躯干的移动应该是根据脚本设定自动运动的
+
+
+-----
+
+####  Klience  
+##### 19110#       发表于 2021-7-9 12:53
+
+
+主持人不需要全身3D吧 意思意思差不多得了
+
+
+
+
+-----
+
+####  295405468  
+##### 19111#       发表于 2021-7-9 12:55
+
+
+咩宝说太快了  zjh要翻不过来了
+
+
+-----
+
+####  T_Hb  
+##### 19112#       发表于 2021-7-9 12:56
+
+
+本来就是两个人对话炒气氛的，肯定来不及翻的
+
+
+-----
+
+####  路人庚  
+##### 19113#       发表于 2021-7-9 12:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">在办公室没办法听只能看动作，咩姐的这个躯干运动脚本疑似加入了最时尚最in（？）的反向轴技术（指头往左转身子往右转
+
+
+-----
+
+####  时间在我手中  
+##### 19114#       发表于 2021-7-9 12:59
+
+
+我在想我开了obs录这个是为了什么，思考
+
+
+-----
+
+####  呓亘  
+##### 19115#       发表于 2021-7-9 12:59
+
+
+<blockquote>路人庚 发表于 2021-7-9 12:58
+在办公室没办法听只能看动作，咩姐的这个躯干运动脚本疑似加入了最时尚最in（？）的反向轴技术（指 ...</blockquote>
+在吃饭 没法看 听起来像舞皇同款？
+
+
+-----
+
+####  Klience  
+##### 19116#       发表于 2021-7-9 13:02
+
+
+你就只会说可爱是吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 19117#       发表于 2021-7-9 13:02
+
+
+感觉跟2D没区别呀
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  295405468  
+##### 19118#       发表于 2021-7-9 13:03
+
+
+3d只是一个形式  至少不用挂墙hh
+
+
+-----
+
+####  T_Hb  
+##### 19119#       发表于 2021-7-9 13:03
+
+
+也就捕捉个头，怀疑是摄像头，然后身体其他部分差不多按脚本动动得了
+
+反正够用了
+
+
+-----
+
+####  时间在我手中  
+##### 19120#       发表于 2021-7-9 13:06
+
+
+ 本帖最后由 时间在我手中 于 2021-7-9 13:08 编辑 
+
+拜山头<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">不洗澡，手冲，唱歌。
+
+
+-----
+
+####  呓亘  
+##### 19121#       发表于 2021-7-9 13:08
+
+
+有谁能给在没有Wi-Fi的小吃店里吃饭的可怜孩子repo一下沙滨女人都说了啥
+
+
+-----
+
+####  T_Hb  
+##### 19122#       发表于 2021-7-9 13:10
+
+
+果然是平衡教派
+
+
+-----
+
+####  Klience  
+##### 19123#       发表于 2021-7-9 13:10
+
+
+举报 我举报有黑幕<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19124#       发表于 2021-7-9 13:12
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">剧本本来就写好了。一人一票，lulu反杀
+
+
+-----
+
+####  呓亘  
+##### 19125#       发表于 2021-7-9 13:12
+
+
+日 看不到直播好急好急 这个黄焖鸡米饭量少还没Wi-Fi
+
+
+-----
+
+####  呓亘  
+##### 19126#       发表于 2021-7-9 13:13
+
+
+下次再也不来这家了
+
+
+-----
+
+####  时间在我手中  
+##### 19127#       发表于 2021-7-9 13:13
+
+
+这台本味道比犬山还重，对不起犬山我错了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 19128#       发表于 2021-7-9 13:13
+
+
+结局已定<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 19129#       发表于 2021-7-9 13:14
+
+
+lulu人气确实比另外2个高呀
+
+
+-----
+
+####  2014720  
+##### 19130#       发表于 2021-7-9 13:15
+
+
+今年bw还行
+
+
+-----
+
+####  时间在我手中  
+##### 19131#       发表于 2021-7-9 13:15
+
+
+吐槽这个走向而已<img src="https://static.saraba1st.com/image/smiley/face2017/025.png" referrerpolicy="no-referrer">这三位参赛的我是真的不了解反正
+
+
+-----
+
+####  专业划水人员  
+##### 19132#       发表于 2021-7-9 13:16
+
+
+拿点活动主持经验还是好的。
+
+
+-----
+
+####  古战场亡魂  
+##### 19133#       发表于 2021-7-9 13:16
+
+
+ 本帖最后由 古战场亡魂 于 2021-7-9 13:18 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51896806&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-9 13:13</a>
+
+这台本味道比犬山还重，对不起犬山我错了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">本来也没办法啊，lulu人气最高，373唱的最好。
+
+3票归属早就定的。
+
+mea那票给其他人，那气氛得多尬啊。<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 19134#       发表于 2021-7-9 13:17
+
+
+露露你就当学习区一姐就行了
+
+
+-----
+
+####  T_Hb  
+##### 19135#       发表于 2021-7-9 13:17
+
+
+苔本主要是腻了
+
+
+-----
+
+####  295405468  
+##### 19136#       发表于 2021-7-9 13:17
+
+
+群众路线嘛 还挺好听的
+
+
+-----
+
+####  Mikumiku831  
+##### 19137#       发表于 2021-7-9 13:17
+
+
+这次活挺好
+
+
+-----
+
+####  路人庚  
+##### 19138#       发表于 2021-7-9 13:18
+
+
+这三个我也就看过lulu的几个剪辑，另2个是完全不了了
+
+
+唱完这个安可曲时间还有十几分钟啊，不知道咩姐会不会来一首
+
+
+-----
+
+####  古战场亡魂  
+##### 19139#       发表于 2021-7-9 13:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 19140#       发表于 2021-7-9 13:21
+
+
+多半没有
+
+
+
+
+-----
+
+####  Klience  
+##### 19141#       发表于 2021-7-9 13:22
+
+
+lulu我只知道她打lol 然后喜欢阿水 也是人菜瘾大 学习中文打算来这边留学<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                               
