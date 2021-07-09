@@ -2921,3 +2921,250 @@ BBC呆CBA过了，BB的卡打点回血加防的纹章能更稳一点
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79740#       发表于 2021-7-9 19:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51900583&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-9 18:03</a>
+
+只能放弃一个加成，上倍卡了。</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今天６加成倒不难　但是又要上陈ｓｉｒ又要换人衣服　算了还是算了（
+
+
+
+
+-----
+
+####  シャル  
+##### 79741#       发表于 2021-7-9 19:05
+
+
+ 本帖最后由 シャル 于 2021-7-9 19:06 编辑 
+
+红绿蓝三拐简直是铁壁防御啊
+
+
+王哈根本打不动这边<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+硬生生耗死王哈
+
+
+-----
+
+####  シャル  
+##### 79742#       发表于 2021-7-9 19:10
+
+
+bb即死无效，梅林回血，术呆无敌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+简直是为三拐定制
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79743#       发表于 2021-7-9 19:27
+
+
+抄了个摩根尼托全加成的队伍，还算稳定
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  khxooo  
+##### 79744#       发表于 2021-7-9 19:42
+
+
+36回合，用卑弥呼CBA梅林过的，其实到后面有点撑不住的，还来了个红卡回避，不过刚好发到有无敌贯通的红卡，直接宝具加英雄做成带走了
+
+
+-----
+
+####  alucardcz  
+##### 79745#       发表于 2021-7-9 19:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">试了下　奇格也可以６加成（换人）　　陈ｓｉｒ再见了
+
+
+-----
+
+####  areklose  
+##### 79746#       发表于 2021-7-9 19:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看一下作业，竟然用道满
+
+
+-----
+
+####  exiaexa  
+##### 79747#       发表于 2021-7-9 19:50
+
+
+算了半天，依旧不能依旧不能实现穿衣自由
+
+老老实实满破宝石翁
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79748#       发表于 2021-7-9 19:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这次阴间本3次3T都有我大摩根的位置。50自充的狂真是为所欲为。看来这次要加班够14天，；连C呆我都放了5天假期
+
+
+-----
+
+####  exiaexa  
+##### 79749#       发表于 2021-7-9 19:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51899229&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-9 16:11</a>
+
+你前面不是说人家说村正可以逃课可你翻车了吗，所以我发个视频给你参考一下操作，我自己平时随便打又不会 ...</blockquote>
+我翻车是失忆的时候用村正进去没控BUFF然后SL失败，第二次控（疯）了（狂）一（S）下（L）就过去了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+顺便最快乐的是上卑梅呆啊，就压根不用动脑子，什么BUFF算牌NP跟你已经没有屌关系了，连顺序都不用控，发什么牌打什么就行，你让我给别人推荐我肯定推荐这种脑死亡打法的
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 79750#       发表于 2021-7-9 19:59
+
+
+我有点后悔没把王姐抽满了，实测下来50冲狂光炮阴间能力就是强啊，先给5个圣杯顶一顶吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">道满倒是一落地就肉眼可见的强，要不是太屑我就抽满了，不过道满主要打副手，宝具等级倒也没那么要紧。
+
+
+-----
+
+####  exiaexa  
+##### 79751#       发表于 2021-7-9 20:03
+
+
+我自己为了防止福袋给盘子四宝就停了
+
+不过这波王姐真的是完全凭实力证明自己，落地的时候一群人喊伤害低不如狂那的，我就想知道现在池子关了这群人现在心情怎么样
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シャル  
+##### 79752#       发表于 2021-7-9 20:12
+
+
+尼托王姐术呆呆稳定3T<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79753#       发表于 2021-7-9 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902182&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-9 20:03</a>
+
+我自己为了防止福袋给盘子四宝就停了
+
+不过这波王姐真的是完全凭实力证明自己，落地的时候一群人喊伤害低不 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">目测不会怎么样　只是一个选择　不是唯一选择
+
+
+-----
+
+####  alucardcz  
+##### 79754#       发表于 2021-7-9 20:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">隔壁真是陈宫大本营啊　　这本用齐哥＋３藏稳定６加成３ｔ的　隔壁还死命想着用陈宫　笑死了
+
+
+-----
+
+####  exiaexa  
+##### 79755#       发表于 2021-7-9 20:32
+
+
+这就回到我们是上次的议题了
+
+隔壁天天用陈宫他们不想吐吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79756#       发表于 2021-7-9 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902706&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-9 20:32</a>
+
+这就回到我们是上次的议题了
+
+隔壁天天用陈宫他们不想吐吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虽然但是　　陈宫真的无法替代用用也就算了　可这本齐哥吊打陈宫啊　
+
+
+-----
+
+####  areklose  
+##### 79757#       发表于 2021-7-9 20:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">+12了礼装毕业
+
+
+-----
+
+####  exiaexa  
+##### 79758#       发表于 2021-7-9 20:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902726&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-9 20:33</a>
+
+虽然但是　　陈宫真的无法替代用用也就算了　可这本齐哥吊打陈宫啊　 ...</blockquote>
+这题我会
+
+"齐格近期没有复刻，陈宫人人都有啊"
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79759#       发表于 2021-7-9 20:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902785&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-9 20:36</a>
+
+这题我会
+
+"齐格近期没有复刻，陈宫人人都有啊"</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这角度　无懈可击　是我错了
+
+
+-----
+
+####  千叶铁矢  
+##### 79760#       发表于 2021-7-9 21:00
+
+
+没有三藏只好用小贝了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+                                                

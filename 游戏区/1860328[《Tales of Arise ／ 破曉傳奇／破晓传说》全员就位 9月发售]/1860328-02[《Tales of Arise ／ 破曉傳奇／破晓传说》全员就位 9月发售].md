@@ -7102,3 +7102,26 @@ CM出了............</blockquote>
 
 
                                                  
+
+-----
+
+####  金子一马  
+##### 2026#       发表于 2021-7-9 20:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51897472&amp;ptid=1860328" target="_blank">鳗鱼提灯 发表于 2021-7-9 13:58</a>
+
+破晓的op拉了。去看了幻想的op。倘若有游戏整个流程能重现幻想op那样的情感、运镜、演出，具体的说是像一部 ...</blockquote>
+幻想传说的op是重置版的时候出的，sfc版的游戏都已经出了很久了
+
+
+-----
+
+####  godless2020  
+##### 2027#       发表于 2021-7-9 20:37
+
+
+PS5也在逐步降价<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

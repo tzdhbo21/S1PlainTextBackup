@@ -4700,3 +4700,85 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  HGCG  
+##### 1848#         楼主| 发表于 2021-7-9 19:17
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/191651yujsz318j8snbj80.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (420.71 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 19:16 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/191723onyh1szn6nzizgqg.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (84.37 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 19:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/191729s0ubz1mf0f00f447.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (101.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 19:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/191736plz40wp959xt9zxx.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (74.61 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 19:17 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/191743rvw0ii2r6y4qu0ek.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (58.27 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 19:17 上传
+
+
+-----
+
+####  shimmy1996  
+##### 1849#       发表于 2021-7-9 20:08
+
+
+ 本帖最后由 shimmy1996 于 2021-7-9 20:22 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">联动服装好可爱
+
+鬼屋回居然是这么温暖人心的故事<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+夏夏和谁都能成为朋友的性格真好啊
+
+
+-----
+
+####  shimmy1996  
+##### 1850#       发表于 2021-7-9 20:14
+
+
+另外鬼屋回的战斗bgm好评<img src="https://static.saraba1st.com/image/smiley/face2017/026.png" referrerpolicy="no-referrer">
+
+
+                                                 

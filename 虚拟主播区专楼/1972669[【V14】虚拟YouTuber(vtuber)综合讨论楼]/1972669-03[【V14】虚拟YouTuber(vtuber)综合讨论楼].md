@@ -13388,3 +13388,259 @@ BML-VR2021全息演唱会18点开启
 
 
                                                 
+
+-----
+
+####  FCCHua  
+##### 3997#       发表于 2021-7-9 19:51
+
+
+ 本帖最后由 FCCHua 于 2021-7-9 20:05 编辑 
+
+hh来了，我的超人<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+叶星除了图灵爱居然选了这首歌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ヒトニナル  
+##### 3998#       发表于 2021-7-9 20:05
+
+
+当你以为是图灵之恋的时候<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 3999#       发表于 2021-7-9 20:06
+
+
+星川唱的好难听
+
+
+-----
+
+####  古战场亡魂  
+##### 4000#       发表于 2021-7-9 20:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">……这个歌力不会吧……<img src="https://static.saraba1st.com/image/smiley/face2017/019.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4001#       发表于 2021-7-9 20:08
+
+
+都挺一般的，这首本来就难唱，没想到会选...
+
+
+-----
+
+####  qq845629713  
+##### 4002#       发表于 2021-7-9 20:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 今天把turning love唱了，后天king唱什么
+
+
+-----
+
+####  a37356205  
+##### 4003#       发表于 2021-7-9 20:09
+
+
+ 本帖最后由 a37356205 于 2021-7-9 20:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">叶星也太拉了
+
+syl：第二首还行
+
+
+-----
+
+####  FCCHua  
+##### 4004#       发表于 2021-7-9 20:10
+
+
+ 本帖最后由 FCCHua 于 2021-7-9 20:15 编辑 
+
+图灵爱舒服多了，不过敢于在hh后面生唱<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+和阿葵唱劣等上等啊，节目不都出了吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gaiadc  
+##### 4005#       发表于 2021-7-9 20:12
+
+
+星川可以靠萌音蒙混过关，叶就<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  酒瓶止迁  
+##### 4006#       发表于 2021-7-9 20:14
+
+
+HH还是那么稳定啊，虹接在HH后面一比不是铁拉
+
+
+-----
+
+####  ヒトニナル  
+##### 4007#       发表于 2021-7-9 20:15
+
+
+gimmegimme反而是星川不太行吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这歌本来就难唱好，和她声线还不搭，谁选的啊
+
+
+-----
+
+####  alcoholic1000  
+##### 4008#       发表于 2021-7-9 20:23
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-9 20:33 编辑 
+
+叶师傅选的吧，印象中会限唱过几次<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+贴贴就完了，他俩放哪儿都有点拉，还不如田忌赛马
+「VR組ってなんでこんなにいい3Dもらえてるの？」
+
+
+-----
+
+####  poipanchao  
+##### 4009#       发表于 2021-7-9 20:26
+
+
+无聊看了下nico的弹幕
+一到roza弹幕解释这是中国的黑黑
+弹幕飘过“胡说，黑黑唱的才没这么好”（）
+
+
+-----
+
+####  烟熏奶酪  
+##### 4010#       发表于 2021-7-9 20:33
+
+
+发现楼友
+<img src="https://sm.ms/image/GSBoatqDHsmbl58" id="aimg_hnhGf" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+<img src="https://imgtu.com/i/RxoShD" id="aimg_F9wQF" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)
+
+
+QQ图片20210709213203.jpg
+(25.21 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-9 20:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/203147pucz7scb0vyxssui.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4011#       发表于 2021-7-9 20:45
+
+
+ 本帖最后由 FCCHua 于 2021-7-9 20:58 编辑 
+
+怎么还能听到夜蝶<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+开闭...我的开闭...
+syl 花谱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 4012#       发表于 2021-7-9 20:58
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/205809gdh951hnr115ntww.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210709_205546.jpg</strong> (100.56 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-9 20:58 上传
+
+
+后面牵着绳捏
+
+
+-----
+
+####  FCCHua  
+##### 4013#       发表于 2021-7-9 21:09
+
+
+ 本帖最后由 FCCHua 于 2021-7-9 21:15 编辑 
+
+老爱这真就一起啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+和花谱？什么梦幻联动
+
+
+-----
+
+####  喜闻乐见  
+##### 4014#       发表于 2021-7-9 21:10
+
+
+ 本帖最后由 喜闻乐见 于 2021-7-9 21:14 编辑 
+
+结果还是合体上了
+
+好这个可以 
+
+
+-----
+
+####  zore  
+##### 4015#       发表于 2021-7-9 21:19
+
+
+有个女观众喊花谱的声音太NB了
+
+
+-----
+
+####  winda  
+##### 4016#       发表于 2021-7-9 21:23
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/212240frp56uzxuzf7zz7y.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>1625240294602.JPEG</strong> (112.67 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-9 21:22 上传
+
+
+按银盾顺，还没3d的就是levi和chima了
+
+
+-----
+
+####  FCCHua  
+##### 4017#       发表于 2021-7-9 21:25
+
+
+鹿乃和天依，母女同台啊
+
+
+                                                 

@@ -7343,3 +7343,18 @@ yysy运营角度上讲音声这种暴利商品怎么会有拖着不卖的理由
 
 
                                                  
+
+-----
+
+####  stmule  
+##### 12643#       发表于 2021-7-9 20:59
+
+
+楼里的病友也不看看这绫楼有多高<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+绫总以不播来吸粉不是一天两天了，古早名言“就要吃独食，就不播和”你们难道不会去看录播么，忘了？
+越不播，病友越多，病情越严重，那当然是继续摸啊。
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -9766,3 +9766,59 @@ tb搜小小鱼雷, 不要买水凝膜
 
 
                                                  
+
+-----
+
+####  wyjbnb  
+##### 689#       发表于 2021-7-9 19:38
+
+
+ 本帖最后由 wyjbnb 于 2021-7-9 20:26 编辑 
+
+原来港版系统5g跟gps冲突问了一下店家，如果港版机器刷机了，就丢保修而且还不能更新
+
+
+-----
+
+####  wyjbnb  
+##### 690#       发表于 2021-7-9 20:25
+
+
+ 本帖最后由 wyjbnb 于 2021-7-9 20:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51898002&amp;ptid=1985265" target="_blank">Lisylfn 发表于 2021-7-9 14:42</a>
+
+tb搜小小鱼雷, 不要买水凝膜</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">钢化膜做不到全贴合啊，手感忒怪，宁愿搞一个水凝膜，反正就防刮花就好，防裂屏都是浮云
+
+
+
+
+-----
+
+####  Lisylfn  
+##### 691#       发表于 2021-7-9 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902589&amp;ptid=1985265" target="_blank">wyjbnb 发表于 2021-7-9 20:25</a>
+
+钢化膜做不到全贴合啊，手感忒怪，宁愿搞一个水凝膜，反正就防刮花就好，防裂屏都是浮云 ...</blockquote>
+我买的那块差不多是全贴合的, 边缘手感没差别, 就是贵了点
+
+水凝膜怎么说, 一来太软了, 二来容易脱落, 三就是味道大, 你要买软的话就买常规的膜吧, 真的别买水凝膜, 唯一优点就只有好贴了
+
+
+-----
+
+####  wyjbnb  
+##### 692#       发表于 2021-7-9 20:41
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902724&amp;ptid=1985265" target="_blank">Lisylfn 发表于 2021-7-9 20:33</a>
+
+我买的那块差不多是全贴合的, 边缘手感没差别, 就是贵了点
+
+水凝膜怎么说, 一来太软了, 二来容易脱落, 三 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">普通的胶膜跟水凝膜我觉得没啥区别啊
+
+
+                                                
