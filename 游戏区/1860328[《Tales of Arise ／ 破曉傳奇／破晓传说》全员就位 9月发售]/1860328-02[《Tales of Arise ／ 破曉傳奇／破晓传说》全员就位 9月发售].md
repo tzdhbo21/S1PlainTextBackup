@@ -7149,3 +7149,16 @@ toh的实在太好听 喜欢这游戏这歌加分好多
 
 
                                                  
+
+-----
+
+####  隔壁老黄  
+##### 2030#       发表于 2021-7-10 01:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51905527&amp;ptid=1860328" target="_blank">凶手 发表于 2021-7-10 00:20</a>
+但是歌是有的吧 竟然有歌 当时玩到惊了</blockquote>
+这歌明显是爱情歌，然而幻想里就没啥爱情元素<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+                                                 
