@@ -2809,3 +2809,115 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 79730#       发表于 2021-7-9 17:04
+
+
+ 本帖最后由 森兰丸 于 2021-7-9 17:12 编辑 
+
+肃正防御能防王哈的即死不....我去试试<img src="https://static.saraba1st.com/image/smiley/face2017/016.png" referrerpolicy="no-referrer">
+
+我擦防不了....C呆开了大后被王哈一刀带走了<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79731#       发表于 2021-7-9 17:06
+
+
+最新最in的鬼灯，囧
+
+
+-----
+
+####  khxooo  
+##### 79732#       发表于 2021-7-9 17:13
+
+
+又是一个对我说是垃圾的材料<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79733#       发表于 2021-7-9 17:15
+
+
+是的这玩意要吃的只有3个五星，而且有2个是我不抽到男人。所以完全没用
+
+
+-----
+
+####  alucardcz  
+##### 79734#       发表于 2021-7-9 17:21
+
+
+王哈太简单了 政哥哥+cba+一个充电宝根本死不掉 <img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79735#       发表于 2021-7-9 17:35
+
+
+<blockquote>引用第79729楼森兰丸于2021-07-09 17:04发表的  :
+
+本帖最后由 森兰丸 于 2021-7-9 17:12 编辑 肃正防御能防王哈的即死不....我去试试......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">当然防不了啊你是来搞笑的吗……
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 79736#       发表于 2021-7-9 17:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51899955&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-9 17:04</a>
+
+肃正防御能防王哈的即死不....我去试试
+
+我擦防不了....C呆开了大后被王哈一刀带走了
+
+ ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你用cba啊 完克王哈 宝具直接无效+miss　突出一个白给
+
+
+-----
+
+####  qixinno2  
+##### 79737#       发表于 2021-7-9 17:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">没有皇帝 谁来个无脑阵容
+
+
+-----
+
+####  khxooo  
+##### 79738#       发表于 2021-7-9 18:03
+
+
+只能放弃一个加成，上倍卡了。
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79739#       发表于 2021-7-9 18:25
+
+
+BBC呆CBA过了，BB的卡打点回血加防的纹章能更稳一点
+本来想反正有CBA了不用BB也不要紧，结果看了一圈还是BB最合适
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
