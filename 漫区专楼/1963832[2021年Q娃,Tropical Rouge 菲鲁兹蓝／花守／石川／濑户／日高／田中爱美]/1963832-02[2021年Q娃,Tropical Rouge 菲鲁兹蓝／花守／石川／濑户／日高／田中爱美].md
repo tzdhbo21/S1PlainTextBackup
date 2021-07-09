@@ -4782,3 +4782,18 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  粉儿alice  
+##### 1851#       发表于 2021-7-9 21:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51859151&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-7-6 14:44</a>
+一些大友在塑造珊瑚的败犬形象了
+
+— from samsung SM-G9960, Android 11 of S1 Next Goose v2.4.4. ...</blockquote>
+早说过了 某些狗大友给您们的菱川女士找同伴呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
