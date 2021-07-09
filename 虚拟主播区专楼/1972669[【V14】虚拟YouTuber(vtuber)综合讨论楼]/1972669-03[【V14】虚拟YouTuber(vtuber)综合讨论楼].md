@@ -13158,3 +13158,144 @@ b站也同步直播哎
 
 
                                                  
+
+-----
+
+####  alcoholic1000  
+##### 3977#       发表于 2021-7-9 15:31
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-9 16:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/209.gif" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/155052jn9ovndv90m0udc2.png" referrerpolicy="no-referrer">
+
+
+<strong>にじさんじ AR STAGE LIGHT UP TONES-D1.png</strong> (187.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 15:50 上传
+
+
+夢追&amp;ちま、力一&amp;ちま、ルジュエ啊，官方好懂
+
+
+-----
+
+####  dybang  
+##### 3978#       发表于 2021-7-9 15:31
+
+
+怎么个AR法<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还是那个480p屏么
+
+
+-----
+
+####  ヒトニナル  
+##### 3979#       发表于 2021-7-9 15:32
+
+
+银盾顺序铲弟后面好像就是levi
+
+
+-----
+
+####  Suny08  
+##### 3980#       发表于 2021-7-9 15:38
+
+
+没有3bk和金银铜当然是因为两组有其他的大活了呀，其实没来的还是挺多的，sasa葵皇，不破梅利莎这些都不在
+
+
+-----
+
+####  gaiadc  
+##### 3981#       发表于 2021-7-9 15:38
+
+
+为啥要把人气派和歌力派分开呢，混在一起不好吗
+
+
+-----
+
+####  渡鸦骑士  
+##### 3982#       发表于 2021-7-9 15:40
+
+
+羡慕虹
+
+
+-----
+
+####  FCCHua  
+##### 3983#       发表于 2021-7-9 15:41
+
+
+ 本帖最后由 FCCHua 于 2021-7-9 15:42 编辑 
+
+没星川有点意外的，fes那个开幕阵容里就她不在吧
+哦，还有三枝也不在<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  OldGlory  
+##### 3984#       发表于 2021-7-9 15:49
+
+
+美兔女士变成男人就可以站到前排了
+
+
+-----
+
+####  alcoholic1000  
+##### 3985#       发表于 2021-7-9 16:03
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-9 16:09 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/09/160329e0y33svmys6achzs.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>レヴィ・エリファ 3Dお披露目配信決定！！.jpeg</strong> (223.19 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-9 16:03 上传
+
+
+来了，没有遵循一般先live再披露的传统
+
+
+-----
+
+####  qq845629713  
+##### 3986#       发表于 2021-7-9 16:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 凛姨终于看开了，知道给新人让位置了，这是天大的好事，
+
+
+-----
+
+####  flyskywalker92  
+##### 3987#       发表于 2021-7-9 16:28
+
+
+老阿姨是早就想摸了吧 别打扰她玩游戏
+
+
+-----
+
+####  FCCHua  
+##### 3988#       发表于 2021-7-9 16:31
+
+
+凛先辈巴不得去打游戏捏
+
+
+                                                 

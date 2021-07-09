@@ -2788,3 +2788,24 @@ https://www.youtube.com/watch?v=RkDwJGpyxR0
 
 
                                                  
+
+-----
+
+####  xiongxingyu  
+##### 79729#       发表于 2021-7-9 16:11
+
+
+ 本帖最后由 xiongxingyu 于 2021-7-9 16:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51897011&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-9 13:26</a>
+
+不是，兄弟
+
+你前脚抄了个作业发个链接，回复我能过的不用sl
+
+后脚再来告诉我不抄作业也可以不用sl……</blockquote>
+你前面不是说人家说村正可以逃课可你翻车了吗，所以我发个视频给你参考一下操作，我自己平时随便打又不会去录视频<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+而且这个本拿村正爆破真的是最省事的逃课打法啊，翻车的大概是没注意到对面debuff是有次数的，拿个拐摸一下就能消耗掉了，debuff处理掉以后不就是个想办法蓝卡冲浪5连发的高级周回吗，说真的绝对比拿单体宝具打持久战省事多了。毕竟是盐川刚上任时的活动，还没有后面那么丧病，整到现在这些debuff肯定是无限次数还带框<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
