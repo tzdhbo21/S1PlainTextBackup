@@ -2696,3 +2696,36 @@ MMO带团的时候被沙雕团友逼疯了好几次
 
 
                                                  
+
+-----
+
+####  xiongxingyu  
+##### 79722#       发表于 2021-7-9 09:14
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51889873&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-8 22:01</a>
+
+我总觉得你搞错了什么东西……
+
+
+我从来不怀疑村正能过啊，实际上我第二次用村正去试后排最后的晚餐的时候 ...</blockquote>
+这个都不用抄啊，我6点逛油管看视频，瞄一眼发现首页有个5t的，瞄了下阵容就顺便把自己的也给打了，根本不用sl，就是宝具 充能 宝具 充能就完事了，老本机制都知道了，实际上就和个要换人的周回本差不多，就是第一回合要手打一些np而已，后面np都是溢出的，和那种打起来要按剧本走的最速本完全不一样啊。你把孔明换司马懿，花嫁换豆爸，兰陵王换安徒生也差不多。
+
+
+-----
+
+####  sin.yugi  
+##### 79723#       发表于 2021-7-9 09:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51888690&amp;ptid=1085254" target="_blank">xiongxingyu 发表于 2021-7-8 07:01</a>
+https://www.youtube.com/watch?v=RkDwJGpyxR0
+
+丢个某不存在网上的村正5T作业，不存在真正意义上的sl，脚打 ...</blockquote>
+2宝亲测没问题
+<img src="https://p.sda1.dev/2/a6035b01e9a6f967c24afe1a3221efc4/IMG_CMP_202865763.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus GM1917, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
