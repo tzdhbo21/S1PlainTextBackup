@@ -7214,3 +7214,49 @@ deen唱的吗？</blockquote>
 
 
                                                  
+
+-----
+
+####  LT_Harry  
+##### 2035#         楼主| 发表于 2021-7-11 00:19
+
+
+[https://www.cbr.com/tales-of-arise-blazing-sword-brilliant/](https://www.cbr.com/tales-of-arise-blazing-sword-brilliant/)
+
+关于“火焰剑”的意象解读，以及火焰剑可能暗示的剧情走向之分析。
+
+
+-----
+
+####  qiyu1234  
+##### 2036#       发表于 2021-7-11 00:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51915068&amp;ptid=1860328" target="_blank">LT_Harry 发表于 2021-7-11 00:19</a>
+[https://www.cbr.com/tales-of-arise-blazing-sword-brilliant/](https://www.cbr.com/tales-of-arise-blazing-sword-brilliant/)
+
+关于“火焰剑”的意象解读，以及火焰剑可能 ...</blockquote>
+这个欧美编辑根据火焰剑的特性构想的故事可能性，确实有点意思
+
+
+其实结局好坏还真不好说（虽然我个人是偏向BE）
+
+从TOX2开始担任核心主笔的山本尚基在TOB之后就去了SE，现在在浅野组新作 三角战略里担任主要编剧
+
+目前还不清楚他离开后母舰作品的风格走向会有怎样的变化，但是如果参考目前那几个手游的话，似乎仍然会继续阴郁向的发展
+
+
+-----
+
+####  Dai-Dai-Dai-Dai  
+##### 2037#       发表于 2021-7-11 00:43
+
+
+绯红结系op的歌不错，但画面太拉了。
+
+人物的剪影逐个放出是真的low，还有点尬。
+
+“红线的洪流”和“女主被线缠绕”这两个cut还行。
+
+
+                                                 
