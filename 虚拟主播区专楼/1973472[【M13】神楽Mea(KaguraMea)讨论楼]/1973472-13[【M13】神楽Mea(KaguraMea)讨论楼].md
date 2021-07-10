@@ -13524,3 +13524,100 @@ tc突击
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 19240#       发表于 2021-7-10 14:39
+
+
+房间里喷完清新剂之后拿了个马卡龙来吃了，然后边吃马卡龙边说，因为一直在电脑面前吃零食拉面导致声卡那边生虫卵了（咩姐：诶？怎么这么惊讶？并不是很大的虫卵，只是小小的虫卵
+
+
+所谓女子力零就是这种感觉吧<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 19241#       发表于 2021-7-10 14:44
+
+
+你麻到底邋遢成啥样了
+
+
+-----
+
+####  T_Hb  
+##### 19242#       发表于 2021-7-10 14:47
+
+
+怪我没教好<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19243#       发表于 2021-7-10 14:50
+
+
+电脑上都能长虫是个什么b样啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19244#       发表于 2021-7-10 15:02
+
+
+妈的 一想到这人拿吃过蛋糕 马卡龙的手摸键盘摸鼠标 血压瞬间拉满<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 19245#       发表于 2021-7-10 15:03
+
+
+不是肥婆，我都不信
+
+—— 来自 HUAWEI ELS-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  T_Hb  
+##### 19246#       发表于 2021-7-10 15:04
+
+
+坦又赢 坦总赢
+
+
+-----
+
+####  路人庚  
+##### 19247#       发表于 2021-7-10 15:06
+
+
+如果一天只吃零食不正常吃饭（或者只吃一顿正常饭）的话甚至可能会因为营养不良细胳膊细腿（不过皮肤肯定好不起来<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19248#       发表于 2021-7-10 15:06
+
+
+已经能想象你麻那满脸油光的样子了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19249#       发表于 2021-7-10 15:07
+
+
+残饭处理机器kagura mea
+
+
+                                                 
