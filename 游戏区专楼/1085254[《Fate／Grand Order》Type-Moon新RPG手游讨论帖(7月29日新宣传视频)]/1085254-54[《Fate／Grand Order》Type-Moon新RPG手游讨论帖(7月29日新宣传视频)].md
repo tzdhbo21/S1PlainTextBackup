@@ -3263,3 +3263,14 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79769#       发表于 2021-7-10 11:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">无聊开始玩起花样了，试一下换人牛牛暴击。在单道满BUFF下，牛牛的首红暴击有5W，好活
+
+
+                                                 
