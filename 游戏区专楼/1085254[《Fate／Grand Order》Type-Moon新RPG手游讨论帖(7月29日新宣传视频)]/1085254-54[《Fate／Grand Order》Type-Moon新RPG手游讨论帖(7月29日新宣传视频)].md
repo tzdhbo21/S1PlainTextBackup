@@ -3478,3 +3478,107 @@ EX的Encore这也叫超高难？
 
 
                                                  
+
+-----
+
+####  黑上シグマ  
+##### 79786#       发表于 2021-7-10 20:50
+
+
+<blockquote>引用第79783楼areklose于2021-07-10 20:22发表的  :
+
+引用:黑上シグマ 发表于 2021-7-10 18:34辣鸡OG不会再有了，不用念了----发送自 ......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我又不玩OG，何来惊喜
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 79787#       发表于 2021-7-10 20:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912827&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-10 20:50</a>
+
+我又不玩OG，何来惊喜
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问题不大 我喜就行了
+
+
+-----
+
+####  里村紅葉  
+##### 79788#       发表于 2021-7-10 20:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912555&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-10 20:26</a>
+
+4p:X-Ω2开始预约，开不开心</blockquote>
+不是电阻原地复活很难解释这波烟雾弹啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79789#       发表于 2021-7-10 20:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912555&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-10 20:26</a>
+
+4p:X-Ω2开始预约，开不开心</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/252.png" referrerpolicy="no-referrer">看到这相泽舞还不是Z系列嘛。她还配过啥。奶一下OG不过分吧
+
+
+-----
+
+####  qixinno2  
+##### 79790#       发表于 2021-7-10 21:10
+
+
+ 本帖最后由 qixinno2 于 2021-7-10 21:11 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">突然变成机战可还成 可以奶个高清重置D J或者W么
+
+
+-----
+
+####  eyeego  
+##### 79791#       发表于 2021-7-10 21:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912908&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-10 20:58</a>
+看到这相泽舞还不是Z系列嘛。她还配过啥。奶一下OG不过分吧</blockquote>
+别想那么多 相泽舞跟组长一直在主持那个几乎没什么人听的og广播 类似于机战多年的老朋友而已<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79792#       发表于 2021-7-10 21:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912858&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-10 20:54</a>
+不是电阻原地复活很难解释这波烟雾弹啊</blockquote>
+只要给我夏缇新立绘我都可以
+不管是dd还是x-Ω
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79793#       发表于 2021-7-10 21:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912908&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-10 20:58</a>
+看到这相泽舞还不是Z系列嘛。她还配过啥。奶一下OG不过分吧</blockquote>
+其实大概就跟，赤羽根为啥还在一样
+大概就不忘老朋友吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
