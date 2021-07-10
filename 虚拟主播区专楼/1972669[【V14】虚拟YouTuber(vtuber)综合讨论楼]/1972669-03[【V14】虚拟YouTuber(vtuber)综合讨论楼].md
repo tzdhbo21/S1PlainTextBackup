@@ -13817,3 +13817,116 @@ syl 花谱<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" 
 
 
                                                  
+
+-----
+
+####  noHentai  
+##### 4029#       发表于 2021-7-10 16:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51906047&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-7-10 01:39</a>
+
+说起来，管人tie动画title，按照title知名度来说第一是谱皇tie黑色五叶草，第二就是通风口tie百万了吧。 ...</blockquote>
+如何定义知名度……简单粗暴官推粉丝，已经播了一季度的百万是3万，holo要上的侦探已死已经10万多了。
+
+
+-----
+
+####  空集  
+##### 4030#       发表于 2021-7-10 17:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51910619&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-7-10 16:56</a>
+如何定义知名度……简单粗暴官推粉丝，已经播了一季度的百万是3万，holo要上的侦探已死已经10万多了。 ...</blockquote>
+说实话动画圈评价角度两者都是挺辣鸡的，完全没有比较的意义了。。
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  IDIDIDID  
+##### 4031#       发表于 2021-7-10 17:30
+
+
+侦探已死不是阿喵喵+狗妈么
+
+
+-----
+
+####  ヒトニナル  
+##### 4032#       发表于 2021-7-10 17:35
+
+
+阿喵喵又不是以阿喵喵名义上的，不能算作虹啊
+
+
+-----
+
+####  winda  
+##### 4033#       发表于 2021-7-10 19:19
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/191811e5jencpvatjcpw4n.png" referrerpolicy="no-referrer">
+
+
+<strong>影山.png</strong> (90.84 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 19:18 上传
+
+
+影山3D和店长3D,场景都<img src="https://static.saraba1st.com/image/smiley/face2017/178.png" referrerpolicy="no-referrer">做的挺用心
+
+
+-----
+
+####  winda  
+##### 4034#       发表于 2021-7-10 19:23
+
+
+[https://youtu.be/XG0_qgIUSFU](https://youtu.be/XG0_qgIUSFU)
+
+【 歌ってみた 】KING【奈羅花/にじさんじ】
+
+又一首虹人king
+
+syl
+[https://youtu.be/f4AOUb-AlIA](https://youtu.be/f4AOUb-AlIA)
+
+【初配信】佐透直❣️正体不明のはんなり店長さんです❣️【#新人Vtuber】
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/192252x1xn3to1q7t9933x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E520MtqVEAYiN2n.jpg</strong> (214.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 19:22 上传
+
+
+今天还是阿霞再出道
+
+
+-----
+
+####  渡鸦骑士  
+##### 4035#       发表于 2021-7-10 19:23
+
+
+细节完成度好高<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/10/192356snncskkscv9cqwx0.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (61.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 19:23 上传
+
+
+                                                 

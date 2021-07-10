@@ -13728,3 +13728,182 @@ syl  想养猫了  【优雅<img src="https://static.saraba1st.com/image/smi
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 19258#       发表于 2021-7-10 16:39
+
+
+ 本帖最后由 T_Hb 于 2021-7-10 17:14 编辑 
+
+一个封面嗯是折磨了观众半个小时
+
+<img src="https://img.saraba1st.com/forum/202107/10/171406kccgzvz1xw7sikci.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (16.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 17:14 上传
+
+
+-----
+
+####  2014720  
+##### 19259#       发表于 2021-7-10 16:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19260#       发表于 2021-7-10 16:48
+
+
+我看这人穿泳装都会露出个米其林轮胎出来<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  T_Hb  
+##### 19261#       发表于 2021-7-10 16:51
+
+
+用脑过度，又饿了，又可以干饭了
+
+
+-----
+
+####  路人庚  
+##### 19262#       发表于 2021-7-10 17:08
+
+
+看你咩姐做封面图的感受↓
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/170702n8l9kykt7s99ku9u.gif" referrerpolicy="no-referrer">
+
+
+<strong>1.gif</strong> (1.26 MB, 下载次数: 1)
+
+下载附件
+
+2021-7-10 17:07 上传
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 3战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 2014720| + 1|血压|
+| Klience|-1|职业病犯了 爬|
+| T_Hb| + 1|折磨|
+
+
+查看全部评分
+
+
+-----
+
+####  呓亘  
+##### 19263#       发表于 2021-7-10 17:10
+
+
+电脑TC约等于404杂谈了 就是不能转
+
+
+-----
+
+####  2014720  
+##### 19264#       发表于 2021-7-10 17:26
+
+
+别tm纠结于能不能转了，转了没同传大部分人也听不懂日语啊<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19265#       发表于 2021-7-10 17:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">臭女人怎么不把2年前的封面拿出来鉴赏一下
+
+
+-----
+
+####  路人庚  
+##### 19266#       发表于 2021-7-10 17:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">问就是哈子嘎西（虽然我觉得手写封面相当不错
+
+
+-----
+
+####  路人庚  
+##### 19267#       发表于 2021-7-10 17:59
+
+
+mea：肚子饿了～要变成debu了哟～
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/091.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  咸鱼渣  
+##### 19268#       发表于 2021-7-10 18:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吃吃吃就知道吃，这坦克现在多少吨
+
+
+-----
+
+####  咸鱼渣  
+##### 19269#       发表于 2021-7-10 18:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">吃吃吃就知道吃，这坦克现在多少吨
+
+
+-----
+
+####  路人庚  
+##### 19270#       发表于 2021-7-10 18:03
+
+
+下了，这tc不知不觉播了4个多小时
+
+
+-----
+
+####  T_Hb  
+##### 19271#       发表于 2021-7-10 18:08
+
+
+这一周真是敬业冠军，待机所已经建好了
+
+
+-----
+
+####  Klience  
+##### 19272#       发表于 2021-7-10 18:35
+
+
+还想着今晚看春晚呢 算了 还是挂后台看吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                

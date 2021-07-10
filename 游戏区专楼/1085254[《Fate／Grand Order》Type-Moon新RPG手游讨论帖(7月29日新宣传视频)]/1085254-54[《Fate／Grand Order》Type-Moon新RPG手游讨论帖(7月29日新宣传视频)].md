@@ -3274,3 +3274,151 @@ MDZZ，是不是只有我打王哈高难本对面是叶良树实时操作的？�
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79770#       发表于 2021-7-10 17:12
+
+
+这新高难就这？？？ 血多了点然后没然后了
+
+
+
+
+-----
+
+####  alucardcz  
+##### 79771#       发表于 2021-7-10 17:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">一口气把所有护符全砸了  无 事 发 生
+
+
+-----
+
+####  不垃圾屌丝  
+##### 79772#       发表于 2021-7-10 17:43
+
+
+超绝难易度<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AT72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  khxooo  
+##### 79773#       发表于 2021-7-10 18:14
+
+
+用萌新的武藏车过去了，这个根本对不起LVEX吧，比全力斗技简单多了。
+
+
+-----
+
+####  areklose  
+##### 79774#       发表于 2021-7-10 18:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">开始展望下半部了。菌哥哥距离批斗大会还剩下4天了。不对，先明天批判4P
+
+
+-----
+
+####  シャル  
+##### 79775#       发表于 2021-7-10 18:25
+
+
+ 本帖最后由 シャル 于 2021-7-10 18:26 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/182455wy6worw7ib787aj6.png" referrerpolicy="no-referrer">
+
+
+<strong>89FB1EAA-F0F1-4F30-BA96-A0B4F6408DC8.png</strong> (995.25 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 18:24 上传
+
+
+EX的Encore这也叫超高难？
+
+
+-----
+
+####  alucardcz  
+##### 79776#       发表于 2021-7-10 18:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51911335&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-10 18:16</a>
+
+开始展望下半部了。菌哥哥距离批斗大会还剩下4天了。不对，先明天批判4P ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我刚知道明天只有30和手游 没意思
+
+
+-----
+
+####  KOBI  
+##### 79777#       发表于 2021-7-10 18:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">要靠加血来装超高难至少也要在血量前面加多一位数吧
+
+就多加那么点血还标超绝难度这不是注定要被各种羞辱吗
+
+
+-----
+
+####  黑上シグマ  
+##### 79778#       发表于 2021-7-10 18:34
+
+
+<blockquote>引用第79775楼alucardcz于2021-07-10 18:26发表的  :
+
+引用:areklose 发表于 2021-7-10 18:16开始展望下半部了。菌哥哥距离批斗大会还......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">辣鸡OG不会再有了，不用念了
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  alucardcz  
+##### 79779#       发表于 2021-7-10 18:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51911462&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-10 18:34</a>
+
+辣鸡OG不会再有了，不用念了
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">必须念 把3a完结了在死啊
+
+
+-----
+
+####  森兰丸  
+##### 79780#       发表于 2021-7-10 18:47
+
+
+摩根梅林C呆阵容硬是顶着一开始的红卡耐性和宝具耐性轰过去了.......这边还一个人也没死<img src="https://static.saraba1st.com/image/smiley/face2017/143.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  シャル  
+##### 79781#       发表于 2021-7-10 19:17
+
+
+<blockquote>KOBI 发表于 2021-7-10 18:31
+要靠加血来装超高难至少也要在血量前面加多一位数吧
+
+就多加那么点血还标超绝难度这不是注定要被各种 ...</blockquote>
+两部血量这是看不起玩家
+
+
+                                                
