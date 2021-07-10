@@ -13930,3 +13930,179 @@ syl
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 4036#       发表于 2021-7-10 19:38
+
+
+ 本帖最后由 FCCHua 于 2021-7-10 20:01 编辑 
+
+听完sky的吸血鬼再听狱卒的king，什么金曲二连
+还都有快晴p的参与
+
+
+-----
+
+####  alcoholic1000  
+##### 4037#       发表于 2021-7-10 19:45
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-10 19:50 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/194454zley17zecxpnkkn1.png" referrerpolicy="no-referrer">
+
+
+<strong>【#影山シエン3D】お前達、3Dお披露目開始だ！！！！！！【影山シエン:ホロスターズ】.png</strong> (176.77 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 19:44 上传
+
+
+这个渲染下店长模型看起来质量也没那么差了（臂长还是有点夸张）
+
+<img src="https://img.saraba1st.com/forum/202107/10/195015g2573m6k3ee818x1.png" referrerpolicy="no-referrer">
+
+
+<strong>【#影山シエン3D】お前達、3Dお披露目開始だ！！！！！！【影山シエン:ホロスターズ】.png</strong> (144.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 19:50 上传
+
+
+-----
+
+####  alcoholic1000  
+##### 4038#       发表于 2021-7-10 20:04
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-10 20:36 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/200432j0zvf0ienldegavz.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ましろ3D】ぼくはここにいるよ【にじさんじ:ましろ】-1.png</strong> (160.18 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 20:04 上传
+
+
+开了，铲宝3d
+
+<img src="https://img.saraba1st.com/forum/202107/10/201111yyuqha0ih9su55ys.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ましろ3D】ぼくはここにいるよ【にじさんじ:ましろ】-3.png</strong> (84.82 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 20:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/201817r89tprm4z8i9iqvn.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ましろ3D】ぼくはここにいるよ【にじさんじ:ましろ】-4.png</strong> (245.31 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 20:18 上传
+
+
+草，如月车站
+
+过去个什么铲，吓了一跳
+
+<img src="https://img.saraba1st.com/forum/202107/10/202400wiz36iaszsfus6iz.png" referrerpolicy="no-referrer">
+
+
+<strong>【#ましろ3D】ぼくはここにいるよ【にじさんじ:ましろ】-5.png</strong> (132.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 20:24 上传
+
+
+铲宝镜头感真好，被这么可爱的铲宝埋也是一种幸福
+[https://www.youtube.com/watch?v=VNLdDx57rBg](https://www.youtube.com/watch?v=VNLdDx57rBg)
+
+这才35分钟？
+
+
+-----
+
+####  FCCHua  
+##### 4039#       发表于 2021-7-10 20:06
+
+
+ 本帖最后由 FCCHua 于 2021-7-10 20:18 编辑 
+
+提前害怕<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+还说本体不是铲子
+模型与背景的反差感
+
+
+-----
+
+####  死体残留  
+##### 4040#       发表于 2021-7-10 20:16
+
+
+剧场版
+
+
+-----
+
+####  KaboomMirai  
+##### 4041#       发表于 2021-7-10 20:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/109.png" referrerpolicy="no-referrer">
+<img src="https://i.loli.net/2021/07/10/MIiWGb35Hr6maOh.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4042#       发表于 2021-7-10 20:24
+
+
+ 本帖最后由 FCCHua 于 2021-7-10 20:37 编辑 
+
+第一人称视角，不得不说真的很白<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+歌终于来了，有被帅到<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+没了，这是不是最短的3d披露<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  SuntoryNomu  
+##### 4043#       发表于 2021-7-10 20:38
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/203847pzheyny9yxz5h50t.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20160712294392_eCkOHj.jpg</strong> (17.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 20:38 上传
+
+
+-----
+
+####  dybang  
+##### 4044#       发表于 2021-7-10 20:40
+
+
+全程播片么<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

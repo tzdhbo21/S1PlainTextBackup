@@ -3422,3 +3422,59 @@ EX的Encore这也叫超高难？
 
 
                                                 
+
+-----
+
+####  exiaexa  
+##### 79782#       发表于 2021-7-10 20:20
+
+
+这到底超绝了个啥玩意儿
+我这边在饭桌上偷摸着打完了，结果发现好像没区别啊艹，中途一度以为打了两次
+<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79783#       发表于 2021-7-10 20:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912490&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-10 20:20</a>
+
+这到底超绝了个啥玩意儿
+
+我这边在饭桌上偷摸着打完了，结果发现好像没区别啊艹，中途一度以为打了两次
+
+[f:0 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">血多了  但是火力溢出所以等于没区别
+
+
+-----
+
+####  areklose  
+##### 79784#       发表于 2021-7-10 20:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51911462&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-10 18:34</a>
+
+辣鸡OG不会再有了，不用念了
+
+
+----发送自 STAGE1 App for Android.</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">信不信明天来个惊喜，圣诞节新OG堂堂发售。
+
+
+-----
+
+####  exiaexa  
+##### 79785#       发表于 2021-7-10 20:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912514&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-10 20:22</a>
+信不信明天来个惊喜，圣诞节新OG堂堂发售。</blockquote>
+4p:X-Ω2开始预约，开不开心
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
