@@ -14161,3 +14161,125 @@ syl
 
 
                                                  
+
+-----
+
+####  winda  
+##### 4049#       发表于 2021-7-10 21:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">不藏了啊，nrk今年有原创曲，也有3D
+
+
+-----
+
+####  黑之和  
+##### 4050#       发表于 2021-7-10 21:47
+
+
+力一舞元贴贴捏<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  443421870  
+##### 4051#       发表于 2021-7-10 22:04
+
+
+月灵和雪姬唱歌真好听啊，不懂音乐技巧都觉得很好听
+
+
+-----
+
+####  FCCHua  
+##### 4052#       发表于 2021-7-10 22:13
+
+
+ 本帖最后由 FCCHua 于 2021-7-10 22:17 编辑 
+
+你虹甲子园还是来了，有老板娘真是感动<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+除了大福，德龙，舞元，天开司没动以外换了不少人啊，队伍也扩充了
+
+
+-----
+
+####  alcoholic1000  
+##### 4053#       发表于 2021-7-10 22:14
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-10 22:18 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/221404lj7www9f9wn9e1wn.png" referrerpolicy="no-referrer">
+
+
+<strong>【漢の企画】第一回にじさんじローションカーリング選手権 EX ROUND【最後に告知あり.png</strong> (163.58 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 22:14 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/221404m0chdh8hhhqqi1cm.png" referrerpolicy="no-referrer">
+
+
+<strong>【漢の企画】第一回にじさんじローションカーリング選手権 EX ROUND【最後に告知あり.png</strong> (177.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-10 22:14 上传
+
+
+女将播了好几次，原来是真的有她
+
+
+1期生出身 1
+
+2期生出身 0
+
+ゲーマーズ出身 3
+
+SEED出身 1
+
+
+統合以降
+
+2019年1～3月デビュー 2
+
+2019年7～9月デビュー1
+
+
+-----
+
+####  rzrbtk  
+##### 4054#       发表于 2021-7-10 22:16
+
+
+因为我们老板娘是这张图里面今年玩儿棒球游戏最多的人！！非常值得！
+私心是郡道这次去老板娘队惹<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 4055#       发表于 2021-7-10 22:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">上年6个人，今年8个人
+选手还是那队人 怎么够分
+
+
+-----
+
+####  poipanchao  
+##### 4056#       发表于 2021-7-10 22:19
+
+
+加海外liver呗
+
+今年没啥兴趣看啊，如果有喜欢的教练选了bora而且当主力倒是可以看看
+
+
+                                                
