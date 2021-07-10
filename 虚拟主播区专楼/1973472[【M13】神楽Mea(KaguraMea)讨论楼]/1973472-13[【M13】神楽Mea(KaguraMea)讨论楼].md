@@ -14027,3 +14027,67 @@ https://t.co/LUvdCq4mJl https://t.co/xd58fwYiFO
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 19284#       发表于 2021-7-10 22:28
+
+
+明天还有播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">干劲十足啊，这一周
+
+
+-----
+
+####  路人庚  
+##### 19285#       发表于 2021-7-10 22:32
+
+
+感觉像是明早要出门办事然后下午或晚上回来播的节奏
+
+
+（当然奶一口办完事就累了摸了
+
+
+-----
+
+####  Klience  
+##### 19286#       发表于 2021-7-10 22:33
+
+
+吃饱了就有干劲了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19287#       发表于 2021-7-10 22:36
+
+
+ 本帖最后由 路人庚 于 2021-7-10 22:42 编辑 
+
+d群，16、24号盒限啊，看来下周末要回娘家
+
+
+哦，把17号的b限忘了，那看来不是下周<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19288#       发表于 2021-7-10 22:36
+
+
+今天歌回质量高啊，不过2个多小时有点不够过瘾啊。感觉状态越来越好然后就下播了。
+
+
+-----
+
+####  汇聚群光  
+##### 19289#       发表于 2021-7-10 22:40
+
+
+别忘了下周六就是三周年b限，所以就算回老家也应该是月底吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -14283,3 +14283,112 @@ SEED出身 1
 
 
                                                 
+
+-----
+
+####  winda  
+##### 4057#       发表于 2021-7-10 22:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">女将可是力量职棒GACHI势，性癖就是力量职棒里这些小人的人惹不起啊
+
+
+-----
+
+####  qq845629713  
+##### 4058#       发表于 2021-7-10 22:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 今年阵容比去年强多了，我是认同今年这个阵容的，但同接够呛能打得过去年
+
+
+-----
+
+####  poipanchao  
+##### 4059#       发表于 2021-7-10 22:26
+
+
+lize上去的话，抢美兔要被炎，安洁不能拿，露露人没了
+
+还打个寂寞
+
+
+-----
+
+####  qq845629713  
+##### 4060#       发表于 2021-7-10 22:30
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer"> 这女将如果抢了人气角色，怕不是要被炎上了，
+
+
+“我推的人气角色居然被女将抢了，评什么？”
+
+
+-----
+
+####  FCCHua  
+##### 4061#       发表于 2021-7-10 22:33
+
+
+那就抢阿床呗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 4062#       发表于 2021-7-10 22:44
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">虹男搞的这乳液冰壶有意思是有意思，但是我想看虹女搞啊
+
+
+-----
+
+####  asdhai  
+##### 4063#       发表于 2021-7-10 22:44
+
+
+甲子园它又来力，今年能29万吗
+
+
+-----
+
+####  死体残留  
+##### 4064#       发表于 2021-7-10 22:46
+
+
+ 本帖最后由 死体残留 于 2021-7-10 22:48 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/023.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 4065#       发表于 2021-7-10 22:51
+
+
+前回不是挺多板凳选手嘛，这回匀一下再加几个吉祥物不就行了
+
+
+-----
+
+####  sgssk  
+##### 4066#       发表于 2021-7-10 23:09
+
+
+补一个记录，几小时前艾尔丝和鲨鱼拉了一圈小管人唱有夏天感的歌，但因为discord的地狱音质而观感欠佳<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  死体残留  
+##### 4067#       发表于 2021-7-10 23:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">感觉大小姐换小黄就好了
+大小姐一副完全没接触棒球的样子
+
+
+                                                 
