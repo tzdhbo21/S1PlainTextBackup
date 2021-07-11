@@ -14855,3 +14855,79 @@ syl，看了下露露（本体）回的那些生日祝福推特，不少是露�
 
 
                                                  
+
+-----
+
+####  peh  
+##### 4098#       发表于 2021-7-11 20:44
+
+
+床这新衣服我真是麻了
+
+估计安洁也是一个风格
+<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  a37356205  
+##### 4099#       发表于 2021-7-11 20:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">阿床这衣服到底谁设计的，阿床给人的印象是这鬼样子的吗？
+
+唉，后面的绳子更是扎眼，没眼看。
+
+
+-----
+
+####  FCCHua  
+##### 4100#       发表于 2021-7-11 20:45
+
+
+ 本帖最后由 FCCHua 于 2021-7-11 20:50 编辑 
+
+安洁的已经披露完了，比阿床这身好点
+syl 星川转发的推又是个什么企划<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GT2  
+##### 4101#       发表于 2021-7-11 21:03
+
+
+床这衣服，别的我忍了，露指手套我一百个不能忍<img src="https://static.saraba1st.com/image/smiley/face2017/131.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  gaiadc  
+##### 4102#       发表于 2021-7-11 21:07
+
+
+四套衣服，lizean的非常帅气，ssk的小短腿不太好看，猋的无论风格还是设计都不行
+
+
+-----
+
+####  死体残留  
+##### 4103#       发表于 2021-7-11 21:07
+
+
+星川旁边两个是小明和富士葵么
+
+
+-----
+
+####  真飞鸟i  
+##### 4104#       发表于 2021-7-11 21:10
+
+
+<img src="https://p.sda1.dev/2/ddcea4e66ff71aec965d6d63caa0405c/IMG_CMP_201859117.jpeg" referrerpolicy="no-referrer">
+这衣装立绘不是挺早就有了吗，去年年底我就见过同人了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+                                                 
