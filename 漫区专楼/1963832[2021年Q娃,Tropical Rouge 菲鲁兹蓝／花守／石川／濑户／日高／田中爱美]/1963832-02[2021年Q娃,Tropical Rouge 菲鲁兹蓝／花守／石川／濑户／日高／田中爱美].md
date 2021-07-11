@@ -4915,3 +4915,34 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  PrincessBanana  
+##### 1861#       发表于 2021-7-11 18:54
+
+
+这话的夏哥真是A啊，原谅萝拉那段看得人dokidoki
+
+
+-----
+
+####  最低人间肥宅  
+##### 1862#       发表于 2021-7-11 19:00
+
+
+夏哥: 原来是老婆吃了，那没事了
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  待宵  
+##### 1863#       发表于 2021-7-11 19:19
+
+
+干部背锅这事5GOGO玩过了，自然不会照原样复刻<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+                                                 
