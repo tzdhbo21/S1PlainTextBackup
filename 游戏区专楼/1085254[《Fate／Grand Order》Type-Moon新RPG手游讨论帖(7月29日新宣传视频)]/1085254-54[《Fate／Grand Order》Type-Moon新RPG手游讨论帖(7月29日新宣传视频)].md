@@ -3668,3 +3668,21 @@ EX的Encore这也叫超高难？
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79800#       发表于 2021-7-11 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51913125&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-10 21:20</a>
+
+其实大概就跟，赤羽根为啥还在一样
+
+大概就不忘老朋友吧</blockquote>
+老朋友X
+
+新男主女主O
+
+
+                                                 

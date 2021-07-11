@@ -14770,3 +14770,88 @@ syl，看了下露露（本体）回的那些生日祝福推特，不少是露�
 
 
                                                  
+
+-----
+
+####  FCCHua  
+##### 4090#       发表于 2021-7-11 19:30
+
+
+ 本帖最后由 FCCHua 于 2021-7-11 19:33 编辑 
+
+挺好奇夜见会被社长先选走还是会被大福拿下<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+顺便大福的尤德里克和柴卡应该蛮稳吧
+
+
+-----
+
+####  gaiadc  
+##### 4091#       发表于 2021-7-11 19:40
+
+
+3.0增加的东西对星川来说没什么用啊
+
+然后由于嘴变大了，左眼比右眼小，还不如2.0好看
+
+
+-----
+
+####  OldGlory  
+##### 4092#       发表于 2021-7-11 20:19
+
+
+看葛葵合唱，弹幕全都是给葛叶打call的，一个给葵皇打call的都没有<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  cgte030629  
+##### 4093#       发表于 2021-7-11 20:21
+
+
+葛叶这个令人安心的老大爷感<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4094#       发表于 2021-7-11 20:27
+
+
+其实是有的，但是大部分都混一起，比如葛葵这种<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 4095#       发表于 2021-7-11 20:31
+
+
+<blockquote>FCCHua 发表于 2021-7-11 19:30
+挺好奇夜见会被社长先选走还是会被大福拿下
+
+顺便大福的尤德里克和柴卡应该蛮稳吧 ...</blockquote>
+不会有人抢的，kmm和社长高优先应该都是抢男人，kmm顺位三枝柴卡不破前三，社长要抢社和油，虹棒这届就是谁男人多谁牛逼，因为虹女全没了
+
+
+-----
+
+####  FCCHua  
+##### 4096#       发表于 2021-7-11 20:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51923644&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-7-11 20:31</a>
+不会有人抢的，kmm和社长高优先应该都是抢男人，kmm顺位三枝柴卡不破前三，社长要抢社和油，虹棒这届就是 ...</blockquote>
+麻了<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 4097#       发表于 2021-7-11 20:40
+
+
+床这衣服真的一言难尽
+
+
+                                                 

@@ -14545,3 +14545,197 @@ emmmmm 成吧……
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 19333#       发表于 2021-7-11 19:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你要看开点，舞元女人PTSD很严重的
+
+
+-----
+
+####  路人庚  
+##### 19334#       发表于 2021-7-11 19:34
+
+
+ 本帖最后由 路人庚 于 2021-7-11 19:42 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">等等，不会真有人信舞元自称的女性ptsd罢
+
+
+真ptsd他去年还去个毛线大保健啊（详见那个“痔疮”剪辑
+
+
+syl，也不是其他v，就是舞元自己说的啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+【【剪辑/舞元启介】刘姥姥初试舞元-哔哩哔哩】[https://b23.tv/KUfy1G](https://b23.tv/KUfy1G)
+
+
+<img src="https://img.saraba1st.com/forum/202107/11/194002rni1aij6216j66as.jpeg" referrerpolicy="no-referrer">" src="https://static.saraba1st.com/image/common/none.gif" referrerpolicy="no-referrer">
+
+
+<strong>D9F60D50-5B75-4B58-B3DE-5C682A67704E.jpeg</strong> (348.94 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-11 19:40 上传
+
+
+一句话总结：舞元约泡约到坦克，战斗中竟痔疮爆裂
+
+
+-----
+
+####  T_Hb  
+##### 19335#       发表于 2021-7-11 19:37
+
+
+ 本帖最后由 T_Hb 于 2021-7-11 19:43 编辑 
+
+其他V看的少<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer"> 除了咩以为基本对我来说都算其他V了
+怎么还没发开播推啊，我急了
+
+
+-----
+
+####  呓亘  
+##### 19336#       发表于 2021-7-11 19:43
+
+
+今天怕不是真没了
+
+
+-----
+
+####  古战场亡魂  
+##### 19337#       发表于 2021-7-11 19:46
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">才8点，急什么，等到11点再说今天没了吧。
+
+
+-----
+
+####  FCCHua  
+##### 19338#       发表于 2021-7-11 19:47
+
+
+改一下就行了，可以说他是恋爱ptsd<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 19339#       发表于 2021-7-11 20:00
+
+
+不会一次就对坦克类型上瘾吧！小麻危险了
+
+
+-----
+
+####  2014720  
+##### 19340#       发表于 2021-7-11 20:05
+
+
+[1]【神楽めあ Bilibili Dynamic】
+动态类型 : 视频
+动态内容 : 【原创MV】「Viator (ウィアートル/旅人)／rionos」翻唱【神楽めあ】
+发布时间 : 2021-07-11 12:05:03 UTC
+
+
+-----
+
+####  路人庚  
+##### 19341#       发表于 2021-7-11 20:09
+
+
+突然的定时投稿？
+
+
+-----
+
+####  T_Hb  
+##### 19342#       发表于 2021-7-11 20:09
+
+
+好听
+
+
+-----
+
+####  2014720  
+##### 19343#       发表于 2021-7-11 20:11
+
+
+哦404没发，这女人怕是被人干昏过去了
+
+
+-----
+
+####  MomiNg  
+##### 19344#       发表于 2021-7-11 20:17
+
+
+774nmsl
+
+
+-----
+
+####  MomiNg  
+##### 19345#       发表于 2021-7-11 20:17
+
+
+ 本帖最后由 MomiNg 于 2021-7-11 20:18 编辑 
+
+这么好的一首歌人声调成像是全损音质
+
+
+-----
+
+####  呓亘  
+##### 19346#       发表于 2021-7-11 20:25
+
+
+这下B站首发了 叔叔赢麻了
+
+
+-----
+
+####  路人庚  
+##### 19347#       发表于 2021-7-11 20:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">最近的路标好像也是这种沙沙的风格，但之前的大总统都还挺好的
+
+
+不知道是最近想尝试新风格还是别的什么原因（
+
+
+顺手发一下刚刚搜到的去年直播唱的旅人
+
+【【治愈/神楽めあ】朝花夕誓~于离别之朝束起约定之花片尾曲 旅人/ ウィアートル【4.5翻唱】-哔哩哔哩】[https://b23.tv/iOO3dj](https://b23.tv/iOO3dj)
+
+
+-----
+
+####  T_Hb  
+##### 19348#       发表于 2021-7-11 20:35
+
+
+头要爆炸了，希望我醒过来没有错过今天的播
+
+
+-----
+
+####  yywzjsw  
+##### 19349#       发表于 2021-7-11 20:35
+
+
+这沙哑的声音，感觉像麦克风破风
+
+
+                                                 
