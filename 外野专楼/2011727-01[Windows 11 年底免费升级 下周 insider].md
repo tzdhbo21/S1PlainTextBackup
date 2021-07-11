@@ -5493,3 +5493,23 @@ snap group是hover而不是长按左键或右键有点难受
 
 
                                                  
+
+-----
+
+####  铅笔  
+##### 458#       发表于 2021-7-11 09:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51913708&amp;ptid=2011727" target="_blank">peh 发表于 2021-7-10 22:17</a>
+
+现在还只是Insider是吗？是不是还没有开放安卓模拟器？</blockquote>
+win8开始，每代win更新都吹逼过要上安卓模拟器。
+
+
+结果最终版都砍掉了。
+
+
+win11最终版可能也会被砍掉。
+
+
+                                                 
