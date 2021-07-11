@@ -3595,3 +3595,31 @@ EX的Encore这也叫超高难？
 
 
                                                  
+
+-----
+
+####  白金口袋  
+##### 79795#       发表于 2021-7-11 15:04
+
+
+虽然知道是强推村正但是这也太明显了
+
+后几个本有没有村正根本俩游戏，当然没有村正也能打过，然而借个好友的5宝村正一砍到底简直轻松+愉快<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79796#       发表于 2021-7-11 15:10
+
+
+ 本帖最后由 alucardcz 于 2021-7-11 15:11 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51919991&amp;ptid=1085254" target="_blank">白金口袋 发表于 2021-7-11 15:04</a>
+
+虽然知道是强推村正但是这也太明显了
+
+后几个本有没有村正根本俩游戏，当然没有村正也能打过，然而借个好友 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可是1宝武藏就随便冲了啊？也就大碧池用村正逃课舒服
+
+
+                                                 
