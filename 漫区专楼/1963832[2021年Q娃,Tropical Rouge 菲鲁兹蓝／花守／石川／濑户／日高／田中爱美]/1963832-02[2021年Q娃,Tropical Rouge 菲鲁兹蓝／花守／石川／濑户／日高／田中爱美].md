@@ -4959,3 +4959,14 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  kerfars  
+##### 1865#       发表于 2021-7-11 22:08
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这集早上看开头有水瓶就觉得萝拉嫌疑很大了（虽然珊瑚最后才被怀疑导致我中途还以为珊瑚是真正犯人）
+
+
+                                                 
