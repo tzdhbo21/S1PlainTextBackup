@@ -15107,3 +15107,74 @@ syl，这个月扔2个翻唱的话，8月2日就没翻唱了啊，不知道会�
 
 
                                                  
+
+-----
+
+####  2014720  
+##### 19381#       发表于 2021-7-11 22:41
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 19382#       发表于 2021-7-11 22:44
+
+
+你咋又是锁叔叔牛子，又是锁萨尔牛子的<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19383#       发表于 2021-7-11 22:48
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+俺寻思如果是你咩姐要求这么整的，你磕响头磕破天也没用罢
+
+
+顺便，看你咩姐推特转发了2次这个翻唱我点进油管又听了一遍，然后看到了旁边推荐的女忍者也顺便听了一遍，只能说这锅大概真得甲方背（
+
+
+-----
+
+####  T_Hb  
+##### 19384#       发表于 2021-7-11 22:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我直接打开昨天的录播
+
+
+-----
+
+####  上坂蓮華  
+##### 19385#       发表于 2021-7-11 23:07
+
+
+找萨尔和治病和毒药有什么区别？是不是傻逼
+
+
+-----
+
+####  thisisaspider  
+##### 19386#       发表于 2021-7-11 23:07
+
+
+然而副频道的几首也没什么问题<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19387#       发表于 2021-7-11 23:09
+
+
+《甲方的要求》<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

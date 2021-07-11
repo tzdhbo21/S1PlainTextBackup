@@ -14942,3 +14942,39 @@ syl 星川转发的推又是个什么企划<img src="https://static.saraba1st.co
 
 
                                                  
+
+-----
+
+####  格林卡罗尔  
+##### 4106#       发表于 2021-7-11 22:49
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51924462&amp;ptid=1972669" target="_blank">purdre 发表于 2021-7-11 21:44</a>
+我还挺喜欢的，说起来这些游戏联动衣服能在直播其他内容时穿吗，我都挺喜欢的 ...</blockquote>
+记得莉泽在玩原神时穿过，应该是随便穿
+
+—— 来自 Xiaomi M2012K11AC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  fastary  
+##### 4107#       发表于 2021-7-11 23:25
+
+
+在dl听bl音声幻听虹人于是突然想到好像稍微听说过魂的男v都是实况主唱见相关转生，虽然印象中有女v马甲出R音声但是男v这边就完全没有的样子<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">
+
+不知道听d的女V马甲的r音声是什么感觉，我虽说不会因为听的bl广播剧cv出道就去看他直播，不过如果发现认识的主播搞过bl倒是会觉得有点涩<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+syl
+
+去年黑客后排被选(虽然勉强不算是被挑剩随便选的)当了三年板凳选手还给他逮着机会玩了把幽灵部员的自虐梗给我伤到了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+虽然很符合他这个体育废柴人设……<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+说到大会，他回归杂谈里说想参加大会来学**催大会的经验，也不知道要等几个月才能看到他真参加<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+而且明明回来了但直播频率还是没有ymen高，莫非他想认真当v所以播着玩的都改到魂那边去了吗，不要啊<img src="https://static.saraba1st.com/image/smiley/face2017/022.png" referrerpolicy="no-referrer">
+
+
+                                                 
