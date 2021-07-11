@@ -4992,3 +4992,16 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  shimmy1996  
+##### 1868#       发表于 2021-7-12 07:17
+
+
+推理画面里的爬墙飞鸟前辈<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+珊瑚越来越影薄了（明明是最先来的<img src="https://static.saraba1st.com/image/smiley/face2017/211.gif" referrerpolicy="no-referrer">
+四人bank好像少了之前的一起冲刺的部分，还在想这话夏夏的吐槽会是啥<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+                                                 
