@@ -15178,3 +15178,25 @@ syl，这个月扔2个翻唱的话，8月2日就没翻唱了啊，不知道会�
 
 
                                                  
+
+-----
+
+####  ashero  
+##### 19388#       发表于 2021-7-12 00:28
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">怎么会有人怕82没东西发的 82搞不好给你来首新原创曲呢 
+
+我现在倒是好奇合唱是到底和谁合唱  
+
+
+-----
+
+####  T_Hb  
+##### 19389#       发表于 2021-7-12 00:32
+
+
+重点不是担心没东西发，是希望来点大的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

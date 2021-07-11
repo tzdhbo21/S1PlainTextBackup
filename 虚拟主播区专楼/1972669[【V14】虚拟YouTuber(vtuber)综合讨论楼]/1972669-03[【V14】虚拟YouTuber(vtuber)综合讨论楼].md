@@ -14978,3 +14978,46 @@ syl
 
 
                                                  
+
+-----
+
+####  ヒトニナル  
+##### 4108#       发表于 2021-7-11 23:56
+
+
+劇団ぽち回来了，那么叶え葉星露谷…<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alcoholic1000  
+##### 4109#       发表于 2021-7-12 00:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51925817&amp;ptid=1972669" target="_blank">ヒトニナル 发表于 2021-7-11 23:56</a>
+
+劇団ぽち回来了，那么叶え葉星露谷…</blockquote>
+已经改名吟遊四人了，叶え葉星露谷从hero说前辈初次见面的时候就没了吧<img src="https://static.saraba1st.com/image/smiley/face2017/194.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  free  
+##### 4110#       发表于 2021-7-12 00:08
+
+
+这个vyond是啥？目前公布的三个人看起来是星川小明大葵
+[https://twitter.com/projectv_4/status/1414192755048341509](https://twitter.com/projectv_4/status/1414192755048341509)
+
+
+<img src="https://img.saraba1st.com/forum/202107/12/000826p0viiwc3ininc4iq.jpg" referrerpolicy="no-referrer">
+
+
+<strong>717.jpg</strong> (56.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-12 00:08 上传
+
+
+                                                 
