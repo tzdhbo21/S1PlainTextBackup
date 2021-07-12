@@ -15214,3 +15214,63 @@ syl，这个月扔2个翻唱的话，8月2日就没翻唱了啊，不知道会�
 
 
                                                  
+
+-----
+
+####  Dualist彩  
+##### 19391#       发表于 2021-7-12 09:19
+
+
+合唱<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+                  
+
+很难不多想，628和808二合一是吧<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19392#       发表于 2021-7-12 09:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">合唱当然是和黄兔子的合唱啦（
+
+
+-----
+
+####  T_Hb  
+##### 19393#       发表于 2021-7-12 09:22
+
+
+今天桃铁，明天苔本，我感觉有点麻啊
+
+
+-----
+
+####  Dualist彩  
+##### 19394#       发表于 2021-7-12 09:54
+
+
+说到黄兔子，现在可以合理怀疑组长真百合，尤其是对你麻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Mr.shelter  
+##### 19395#       发表于 2021-7-12 09:57
+
+
+那是不是可证麻麻美少女啊<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 19396#       发表于 2021-7-12 09:58
+
+
+黄兔子也是坦克民<img src="https://static.saraba1st.com/image/smiley/face2017/134.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -1,0 +1,3982 @@
+
+
+-----
+
+####  伊布桑  
+##### 1#       楼主       发表于 2021-6-11 23:19
+
+
+ 本帖最后由 伊布桑 于 2021-6-24 13:03 编辑 
+
+汉化版游戏pv：[https://www.bilibili.com/video/B ... 7930469696473233133](https://www.bilibili.com/video/BV1VM4y1u7fY?from=search&amp;seid=7930469696473233133)
+
+
+游戏玩法介绍：[https://www.4gamer.net/games/547/G054739/20210602002/](https://www.4gamer.net/games/547/G054739/20210602002/)
+
+
+其实这周二官方已经发了推公告，不过S1好像都没人聊所以我就来发帖了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202106/11/223233hmr03hcyelqyblh3.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210611222016.png</strong> (78.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-11 22:32 上传
+
+
+游戏官网：[https://idolypride.jp/game/](https://idolypride.jp/game/)
+
+
+官方在动画完结后一直有规律地在更新live，游戏CG预览，游戏剧情节选，有兴趣可以搜官推，剧情翻译在b站也有可以直接搜。
+
+
+比较有意思的是官方公布了开服日期之后发了两个全景视频，大概是为了展示下建模水平，也有人搬b站了（才知道阿b也支持全景视频），场景分别是在[练舞室](https://www.bilibili.com/video/BV1Dw411Z7wr?from=search&amp;seid=4317400914202619996)和[室外](https://www.bilibili.com/video/BV1eb4y1d78n?from=search&amp;seid=4317400914202619996)。
+
+
+从目前的官方给出的信息来看，这游戏可以肯定不是音游，是真育成游戏（官方特别标注了live不需要操作，看来特地告诉玩家这不是音游<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）。
+
+说句题外话，老实说我之所以还在锲而不舍地关注这个项目，是因为官方还没发麻奈版的song for you啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  daqi  
+##### 2#       发表于 2021-6-12 02:18
+
+
+在B站看了下3d live画面，感觉不错，期待一下
+
+
+-----
+
+####  最强惠酱  
+##### 3#       发表于 2021-6-14 00:11
+
+
+经纪人居然还有工资<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  战术核辣条  
+##### 4#       发表于 2021-6-14 00:47
+
+
+ 本帖最后由 战术核辣条 于 2021-6-14 00:49 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">不愧是索尼，看起来很有钱
+玩法好像是很复古的放置类？开服了姑且蝗一下<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">新pv没有麻奈，而游戏时间线明说是tv之后正统续作，事务所甚至来了个新女人，剧情别处理不好爆雷吧
+
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  伊布桑  
+##### 5#         楼主| 发表于 2021-6-14 01:31
+
+
+PV看完还是挺期待的，唯一值得吐槽的地方大概是这张登记玩家打卡时间的工资单（迫真吐槽玩手游=上班打卡<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">）
+
+<img src="https://img.saraba1st.com/forum/202106/14/011900qtc7cygepc7cw4c4.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210614011124.png</strong> (52.67 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 01:19 上传
+
+
+关于麻奈的问题，首先制作人固定是牧野这点几乎是确定的，基本没有自定义，其他人还好说，麻奈相关的剧情不是牧野本人根本说不过去。
+
+<img src="https://img.saraba1st.com/forum/202106/14/012444pnjn9cz7i1i9nini.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ截图20210614012428.png</strong> (72.01 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-14 01:24 上传
+
+
+根据之前公布的几期剧情节选来看，麻奈出场是肯定有，而且之前的剧情节选，在整个世界线各种时间段都有剧情，包括动画之前的时间线，还有动画结束后的时间线。
+
+不过老实说，我感觉游戏剧情很有可能是把观众聚起来再刀一次<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">，就看这刀的演出力能不能达到动画的水平了（求求你不要啊）
+
+
+-----
+
+####  伊布桑  
+##### 6#         楼主| 发表于 2021-6-16 14:46
+
+
+4gamer已发布具体游戏玩法：[https://www.4gamer.net/games/547/G054739/20210602002/](https://www.4gamer.net/games/547/G054739/20210602002/)
+
+听朋友说玩法类似同一个公司的前一个游戏，妃十三学园。
+
+贴几张图
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/144252v2aaj29jsg18x22a.jpg" referrerpolicy="no-referrer">
+
+
+<strong>2ced07d23b08b8e6.jpg</strong> (275.62 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 14:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/144303ilo5orq6iaqdrtcc.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-58b705ddb5eda275.jpg</strong> (456.98 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 14:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/144316iodqzfp8t8hazpdf.jpg" referrerpolicy="no-referrer">
+
+
+<strong>384d9c54005fda6c.jpg</strong> (356.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 14:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/144329xxxjwul8dayuquix.jpg" referrerpolicy="no-referrer">
+
+
+<strong>-11bed9195ee65a61.jpg</strong> (340.66 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 14:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/144413zboji4g14f7ojpoh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>063.jpg</strong> (362.81 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 14:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/144413h63tooblltkb3lst.png" referrerpolicy="no-referrer">
+
+
+<strong>056.png</strong> (354.33 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 14:44 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/144414mpp5ye3d3epv54om.jpg" referrerpolicy="no-referrer">
+
+
+<strong>064.jpg</strong> (428.64 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-16 14:44 上传
+
+
+-10813689c091421b.jpg
+(309.3 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-16 14:43 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/16/144341rxa6x22eluugc7zk.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kazesuki  
+##### 7#       发表于 2021-6-22 17:29
+
+
+等个群，开服蹭一下，看到育成类游戏脑袋疼
+
+
+-----
+
+####  镜hinata  
+##### 8#       发表于 2021-6-22 18:24
+
+
+我也在等麻奈的song for you<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kos_mos  
+##### 9#       发表于 2021-6-23 11:10
+
+
+已可下载
+
+
+-----
+
+####  sakilin2013  
+##### 10#       发表于 2021-6-23 16:39
+
+
+基本就是看一个有没有麻奈if，也没啥念想
+
+
+-----
+
+####  kos_mos  
+##### 11#       发表于 2021-6-23 20:26
+
+
+全移籍到星见草
+
+
+-----
+
+####  YetToCome  
+##### 12#       发表于 2021-6-23 20:47
+
+
+牧野直接成偶像界的一把手了草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  伊布桑  
+##### 13#         楼主| 发表于 2021-6-23 22:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51714429&amp;ptid=2009419" target="_blank">YetToCome 发表于 2021-6-23 20:47</a>
+
+牧野直接成偶像界的一把手了草</blockquote>
+本来还在想怎么圆另外两队为什么也是我养，万万没想到。
+
+现在比赛前四名全在我手里了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bluna  
+##### 14#       发表于 2021-6-24 11:26
+
+
+开服了吧？一直卡在封面
+
+
+-----
+
+####  YetToCome  
+##### 15#       发表于 2021-6-24 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51719703&amp;ptid=2009419" target="_blank">bluna 发表于 2021-6-24 11:26</a>
+开服了吧？一直卡在封面</blockquote>
+需要下载数据
+
+
+-----
+
+####  根性  
+##### 16#       发表于 2021-6-24 11:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51719802&amp;ptid=2009419" target="_blank">YetToCome 发表于 2021-6-24 11:34</a>
+
+需要下载数据</blockquote>
+下载数据是卡在主页右下角一直loading也没有进度条么？<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Destiny4073  
+##### 17#       发表于 2021-6-24 11:53
+
+
+这五星概率还挺高，刷初始也很方便
+
+
+-----
+
+####  根性  
+##### 18#       发表于 2021-6-24 11:57
+
+
+进去了 看来得用正经梯子，uu不好使
+
+
+-----
+
+####  美人希  
+##### 19#       发表于 2021-6-24 12:34
+
+
+艹，进去跟着教程点live就没反应了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  635750448  
+##### 20#       发表于 2021-6-24 12:39
+
+
+试了几个模拟器全是设备不兼容的，有啥推荐的吗<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  YetToCome  
+##### 21#       发表于 2021-6-24 12:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51720758&amp;ptid=2009419" target="_blank">635750448 发表于 2021-6-24 12:39</a>
+
+试了几个模拟器全是设备不兼容的，有啥推荐的吗</blockquote>
+如果只是刷初始的话，那完全不需要模拟器
+
+
+-----
+
+####  DEMOxN  
+##### 22#       发表于 2021-6-24 12:47
+
+
+有无群号
+
+
+-----
+
+####  areklose  
+##### 23#       发表于 2021-6-24 12:47
+
+
+删除数据，重新进去就能跳过教程直接抽了
+
+
+-----
+
+####  镜hinata  
+##### 24#       发表于 2021-6-24 12:49
+
+
+上班刷了会，感觉ssr好难出...回家再努力刷个nagisa+mei好了<img src="https://static.saraba1st.com/image/smiley/face2017/097.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  若菜  
+##### 25#       发表于 2021-6-24 12:53
+
+
+剧情在动画后啊，玩家扮演的是寡夫啊233
+
+
+-----
+
+####  伊布桑  
+##### 26#         楼主| 发表于 2021-6-24 13:01
+
+
+草，这游戏是不是每场live都要分开下载啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  战术核辣条  
+##### 27#       发表于 2021-6-24 13:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虽然不太现实但我还是问一下，有没有什么刷初始指向的节奏榜（
+
+
+-----
+
+####  yuugi  
+##### 28#       发表于 2021-6-24 13:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721072&amp;ptid=2009419" target="_blank">伊布桑 发表于 2021-6-24 13:01</a>
+
+草，这游戏是不是每场live都要分开下载啊</blockquote>
+设定有全体下载。
+
+
+另有人来交换名片吗
+
+
+ID：MK467YD8
+
+
+-----
+
+####  YetToCome  
+##### 29#       发表于 2021-6-24 13:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721570&amp;ptid=2009419" target="_blank">战术核辣条 发表于 2021-6-24 13:40</a>
+
+虽然不太现实但我还是问一下，有没有什么刷初始指向的节奏榜（</blockquote>
+[https://gamerch.com/idolypride-game/entry/265741](https://gamerch.com/idolypride-game/entry/265741)
+
+
+-----
+
+####  areklose  
+##### 30#       发表于 2021-6-24 13:59
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">这游戏重复有必要吗。我看能升星。所以重复重要还是多点人物比较好
+
+
+
+
+-----
+
+####  心之光  
+##### 31#       发表于 2021-6-24 14:10
+
+
+<img src="https://img.saraba1st.com/forum/202106/24/140955ep6e6z8oo8jp6rvv.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (36.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-24 14:09 上传
+
+
+这简直<img src="https://static.saraba1st.com/image/smiley/animal2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  elven119  
+##### 32#       发表于 2021-6-24 14:44
+
+
+这游戏怎么玩起来像一个卡牌rpg推图那种的。。。甚至还有塔<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  根性  
+##### 33#       发表于 2021-6-24 15:00
+
+
+话说看板娘怎么换啊？ 没找到地方
+
+
+-----
+
+####  areklose  
+##### 34#       发表于 2021-6-24 15:05
+
+
+刷了6，7个除必得3黄了。就是很难出除必得4黄。。
+
+
+-----
+
+####  bluna  
+##### 35#       发表于 2021-6-24 15:37
+
+
+ID：PSBM85A6
+随便就开了
+
+
+-----
+
+####  bluna  
+##### 36#       发表于 2021-6-24 15:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51721588&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-6-24 13:42</a>
+设定有全体下载。
+
+
+另有人来交换名片吗</blockquote>
+申请了
+
+
+-----
+
+####  Laie  
+##### 37#       发表于 2021-6-24 15:42
+
+
+ 本帖最后由 Laie 于 2021-6-24 15:44 编辑 
+
+这直接续上动画的剧情，玩家上来就是个鳏夫，想想还挺带感的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+优化做得比想象中好，说不定还真能抢占部分市场……
+
+
+-----
+
+####  战术核辣条  
+##### 38#       发表于 2021-6-24 16:10
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">对轴爆发游戏
+
+看起来有好几种不同的配队路线，有主暴击的，有主控耐的，还有按buff数叠层的
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">换装绑定出卡不就是全都要抽吗，一人还好几张，福利制度要是不给力不是沉船到死（
+
+
+-----
+
+####  最强惠酱  
+##### 39#       发表于 2021-6-24 16:14
+
+
+这游戏舞蹈流汗头发还会粘在脸上，做的真细
+
+
+-----
+
+####  Laie  
+##### 40#       发表于 2021-6-24 16:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51723564&amp;ptid=2009419" target="_blank">最强惠酱 发表于 2021-6-24 16:14</a>
+
+这游戏舞蹈流汗头发还会粘在脸上，做的真细</blockquote>
+但是实际剧情、过场演出、mv全都是下载播片还能拉时间轴，只有界面站桩是实时3d
+
+其实还挺有想法的，实质手游和页游结合在了一起，优化好各方面都很顺滑
+
+当年就脑补gbf出后续app版本做成这样，然而
+
+
+-----
+
+####  jesuswjx  
+##### 41#       发表于 2021-6-24 16:32
+
+
+咋说呢，上来这初始抽卡体验算是近来体验最好的了，但实际玩起来总有种梦回百万氪金王的感觉。。
+
+
+-----
+
+####  美人希  
+##### 42#       发表于 2021-6-24 16:36
+
+
+主界面可以全景滑动吗？想看看那个扫地机器人跑哪儿去了<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  DEMOxN  
+##### 43#       发表于 2021-6-24 16:53
+
+
+V48KF8N5，大噶来交换名片，楼上留了的我都申请了
+
+
+-----
+
+####  gxliv  
+##### 44#       发表于 2021-6-24 16:57
+
+
+主页换人点界面下边的白色星星，交换名片可以去这里[https://gamerch.com/idolypride-game/entry/265898](https://gamerch.com/idolypride-game/entry/265898)
+
+满50人送5星必得卷
+
+比较有趣的是拍照系统，拍完评分，高分照片还能装备上去加强人物属性
+
+
+-----
+
+####  pansherry  
+##### 45#       发表于 2021-6-24 17:09
+
+
+ID:L83LX4KN
+
+上面的慢慢加
+
+卡第七章最后了，被对面暴打<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  syuu  
+##### 46#       发表于 2021-6-24 17:13
+
+
+9EFWZYFG，球交换名片
+
+
+50名片换1.5个五星必得券，好像还行？玩了几个小时，感觉挺适合白嫖咸鱼党的
+
+
+-----
+
+####  elven119  
+##### 47#       发表于 2021-6-24 18:21
+
+
+5DDPY92Q，求名片
+
+
+-----
+
+####  terry666  
+##### 48#       发表于 2021-6-24 18:28
+
+
+初始ssr太多了，导致想刷特定组合太难了（虽然这游戏刷初始确实方便
+
+
+-----
+
+####  xiongxingyu  
+##### 49#       发表于 2021-6-24 18:36
+
+
+虽然出率是3.5%，不过看开服5星这数量，加上换衣服就是张卡的设计，骗氪程度估计不下爱马仕。嘛，姑且第一个号是除了必得3黄，看了下节奏榜，4个5星有两个是s级，1个是a级，先玩着试试吧。<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+先求一波好友 Z9BZFQER
+
+
+-----
+
+####  pansherry  
+##### 50#       发表于 2021-6-24 18:41
+
+
+8章过了开等级辅助和等级资源回收，实际上这就是个放置游戏换皮啊（
+
+不过做的确实蛮精美的
+
+
+-----
+
+####  pe_nimnul.a  
+##### 51#       发表于 2021-6-24 18:52
+
+
+四个五随手开了，名片FTF2MKVP
+
+
+-----
+
+####  伊布桑  
+##### 52#         楼主| 发表于 2021-6-24 19:39
+
+
+一会一个一个加好友吧。
+
+我的是：7X5KYJHU
+
+
+-----
+
+####  liyropen  
+##### 53#       发表于 2021-6-24 19:45
+
+
+BRMBAXRC
+
+感觉还不错<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  DEMOxN  
+##### 54#       发表于 2021-6-24 20:10
+
+
+拍照洗出来的照片属性是随机的还是有什么套路
+
+
+-----
+
+####  ls2021  
+##### 55#       发表于 2021-6-24 20:14
+
+
+这游戏的live是真的放着不动就可以了吗？
+
+我还以为要点那个气泡呢
+
+
+-----
+
+####  terry666  
+##### 56#       发表于 2021-6-24 20:15
+
+
+<blockquote>ls2021 发表于 2021-6-24 20:14
+这游戏的live是真的放着不动就可以了吗？
+
+我还以为要点那个气泡呢</blockquote>
+你只需要养卡 配卡 然后看随机演出就完事了。纯放置类游戏
+
+
+-----
+
+####  ls2021  
+##### 57#       发表于 2021-6-24 20:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51726439&amp;ptid=2009419" target="_blank">terry666 发表于 2021-6-24 20:15</a>
+
+你只需要养卡 配卡 然后看随机演出就完事了。纯放置类游戏</blockquote>
+好吧。
+
+看不懂日语，我以为是要点那个气泡才会加分，条满了才能跳过
+
+
+-----
+
+####  yuugi  
+##### 58#       发表于 2021-6-24 20:31
+
+
+感觉拿送的券抽比拿钻抽，SSR出率更高，免费钻是蓝天白云，
+
+
+难道三星都能升最高星级吗
+
+
+-----
+
+####  bluna  
+##### 59#       发表于 2021-6-24 20:40
+
+
+拍照，到了最后总是出错，卡在loading
+
+
+-----
+
+####  小倉朝日  
+##### 60#       发表于 2021-6-24 20:42
+
+
+ID:Y4L2XFA6
+
+—— 来自 OPPO PDHM00, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+
+
+-----
+
+####  马桶3  
+##### 61#       发表于 2021-6-24 20:46
+
+
+ 本帖最后由 马桶3 于 2021-6-24 21:36 编辑 
+
+初始不太行，我再刷一刷
+
+差不多了，1S，3A，知足常乐，UP43R98A
+
+
+-----
+
+####  syuu  
+##### 62#       发表于 2021-6-24 21:30
+
+
+开服30连2五星后，之后连续两个十连20个三星，黑起来没谱啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 63#       发表于 2021-6-24 22:15
+
+
+我来也求好友，VC37N42S
+
+
+-----
+
+####  terry666  
+##### 64#       发表于 2021-6-24 22:32
+
+
+打不过要么挂机，挂到经验喂卡升级堆数值碾压过去，要么氪金靠卡组推过去，很标准的放置手游。好处是不怎么肝，坏处是玩惯了音游的可能会不习惯。
+
+
+-----
+
+####  Aureth  
+##### 65#       发表于 2021-6-24 23:55
+
+
+我也来求交换名片，8NGLUAQJ
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  liyropen  
+##### 66#       发表于 2021-6-25 00:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51722585&amp;ptid=2009419" target="_blank">根性 发表于 2021-6-24 15:00</a>
+话说看板娘怎么换啊？ 没找到地方</blockquote>
+主界面点下边右边那个マネジメント，然后点人物头像就能点位置换人了
+
+— from Xiaomi Redmi K20 Pro, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  areklose  
+##### 67#       发表于 2021-6-25 00:36
+
+
+刷了2个五黄，剩下的4黄就不要了。由于我不喜欢刷同属性队长。所以部分组合删了。例如UP的两个都是VO队长。。
+
+
+-----
+
+####  areklose  
+##### 68#       发表于 2021-6-25 00:36
+
+
+刷了2个五黄，剩下的4黄就不要了。由于我不喜欢刷同属性队长。所以部分组合删了。例如UP的两个都是VO队长。。
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/003404biskimgghsagoi6u.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-06-24-12-54-26-05_79b8c2dd2792fd0.jpg</strong> (310.46 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/003429shh7fwvbognnagqh.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-06-24-20-41-13-81_79b8c2dd2792fd0.jpg</strong> (327.15 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/003439bd8d5sqv4c2c4r4n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-06-24-20-54-05-15_79b8c2dd2792fd0.jpg</strong> (338.65 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/003446dn12dkrl2igk0drm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-06-24-21-08-33-01_79b8c2dd2792fd0.jpg</strong> (368.12 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/003456cr2ntisml5vzr2ng.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-06-24-21-40-24-44_79b8c2dd2792fd0.jpg</strong> (309.88 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:34 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/003503r6l5izmzv2igegfm.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-06-25-00-08-10-33_79b8c2dd2792fd0.jpg</strong> (337.29 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-25 00:35 上传
+
+
+-----
+
+####  areklose  
+##### 69#       发表于 2021-6-25 00:37
+
+
+想要的可以私聊我或者回复我。先到先得。睡觉去了。上面必得都用了
+
+
+-----
+
+####  战术核辣条  
+##### 70#       发表于 2021-6-25 01:22
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">越20级真的干不动了，30多级的scorer带着20多级的拐，爬塔爬到40愣是离目标线差十万分
+名片：VF7HMSFB 楼上的应该都加过了，求好友<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  AyCoodt  
+##### 71#       发表于 2021-6-25 02:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51723614&amp;ptid=2009419" target="_blank">Laie 发表于 2021-6-24 16:19</a>
+
+但是实际剧情、过场演出、mv全都是下载播片还能拉时间轴，只有界面站桩是实时3d
+
+其实还挺有想法的，实质手 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">如果你用模拟器或者其他兼容性有问题的设备就知道，这些做得很像视频的3d部分是实打实的实时渲染只是他特意做成了视频的样子。因为真的会出现花屏、建模加载不完全等各种实时渲染才会出现的问题，虽然不影响玩就是了
+
+
+-----
+
+####  两个路人  
+##### 72#       发表于 2021-6-25 03:33
+
+
+<blockquote>AyCoodt 发表于 2021-6-25 02:03
+如果你用模拟器或者其他兼容性有问题的设备就知道，这些做得很像视频的3d部分是实打实的实时渲染 ...</blockquote>
+那么这玩意儿锁帧吗？硬件要求比马娘高？几个月前看官方有土鳖上的4K MV，发现只有30fps还掉帧（白眼
+
+
+-----
+
+####  AyCoodt  
+##### 73#       发表于 2021-6-25 06:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730285&amp;ptid=2009419" target="_blank">两个路人 发表于 2021-6-25 03:33</a>
+
+那么这玩意儿锁帧吗？硬件要求比马娘高？几个月前看官方有土鳖上的4K MV，发现只有30fps还掉帧（白眼 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">你看我都知道会花屏就知道我模拟器给的配置很低，但是这游戏是可以选择60帧的。另外马娘pc版有解锁60帧的方法
+
+
+-----
+
+####  areklose  
+##### 74#       发表于 2021-6-25 08:48
+
+
+ 本帖最后由 areklose 于 2021-6-25 08:54 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">现在总算开始玩了。这名称交换有点牛逼。要50人。。6S832KSZ 
+
+MUWSXLJ7
+
+
+-----
+
+####  镜hinata  
+##### 75#       发表于 2021-6-25 09:15
+
+
+YLBAMBPZ
+刷不到想要的3人初始，勉强拿个想要的2人6ssr开始了，求点交换名刺
+
+
+-----
+
+####  elven119  
+##### 76#       发表于 2021-6-25 09:32
+
+
+白嫖8ssr了。还有名片的ssr卷没拿到。可以存石头了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  镜hinata  
+##### 77#       发表于 2021-6-25 09:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">泥潭有没有群啊
+
+
+-----
+
+####  Laie  
+##### 78#       发表于 2021-6-25 10:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51730094&amp;ptid=2009419" target="_blank">AyCoodt 发表于 2021-6-25 02:03</a>
+
+如果你用模拟器或者其他兼容性有问题的设备就知道，这些做得很像视频的3d部分是实打实的实时渲染 ...</blockquote>
+哦哦哦，那么哪个模拟器能跑，我用64位雷电也是黑屏闪退
+
+
+-----
+
+####  syuu  
+##### 79#       发表于 2021-6-25 10:54
+
+
+这派遣工作（お仕事）也太囧了，现在只有17个角色，派遣工作每次3人，轮几次后总会剩下2人无法组队<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  AyCoodt  
+##### 80#       发表于 2021-6-25 12:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51732362&amp;ptid=2009419" target="_blank">Laie 发表于 2021-6-25 10:36</a>
+
+哦哦哦，那么哪个模拟器能跑，我用64位雷电也是黑屏闪退</blockquote>
+夜神模拟器安卓9测试版
+
+
+-----
+
+####  最强惠酱  
+##### 81#       发表于 2021-6-25 13:46
+
+
+我也想加群<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  伊布桑  
+##### 82#         楼主| 发表于 2021-6-25 13:53
+
+
+这企划在国内倒是有个爱好者团体有群，主要在微博活动，几部漫画的汉化也是他们做的，有兴趣可以去找他们微博加群，如果不是管理群太麻烦我就建群了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bluna  
+##### 83#       发表于 2021-6-25 14:13
+
+
+刷到个6个5星
+
+
+42342EBF-9ACE-4ECE-8D54-01FC024F5548.png
+(752.45 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-25 14:11 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/141136tcth6eaywd3qdvn3.png" referrerpolicy="no-referrer">
+
+
+B655DC89-8E85-4F5C-B448-C5BA93D567A4.png
+(752.45 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-25 14:12 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/25/141241xt13fr7bgoab8teb.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  镜hinata  
+##### 84#       发表于 2021-6-25 14:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">那个群一看都几百人瞬间没兴趣了
+
+
+-----
+
+####  伊布桑  
+##### 85#         楼主| 发表于 2021-6-25 14:51
+
+
+说起来今天中午刷的时候芽衣突然打了个电话过来（玩这游戏接到的第一个电话，可能和抽卡有关，我芽衣六星了）。
+
+具体内容不是很清楚，好像是说她梦到麻奈了，问我会不会梦到<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  YetToCome  
+##### 86#       发表于 2021-6-25 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51735166&amp;ptid=2009419" target="_blank">伊布桑 发表于 2021-6-25 14:51</a>
+说起来今天中午刷的时候芽衣突然打了个电话过来（玩这游戏接到的第一个电话，可能和抽卡有关，我芽衣六星了 ...</blockquote>
+亲密刷到10就有电话了，多回复&amp;交流
+
+
+-----
+
+####  arisato  
+##### 87#       发表于 2021-6-25 15:37
+
+
+没刷初始就开了，没太多好卡   求帮助交换名片 H9ZPUN9B
+
+前几楼留的全部申请了，还是觉得宅宅游戏要求交换50个人太过分了<img src="https://static.saraba1st.com/image/smiley/face2017/013.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Aureth  
+##### 88#       发表于 2021-6-25 16:31
+
+
+爬塔中，太弱了我，自己读谱排队伍分还比不上自动组队<img src="https://static.saraba1st.com/image/smiley/face2017/148.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  syuu  
+##### 89#       发表于 2021-6-25 16:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51736319&amp;ptid=2009419" target="_blank">Aureth 发表于 2021-6-25 16:31</a>
+
+爬塔中，太弱了我，自己读谱排队伍分还比不上自动组队</blockquote>
+我自己组队打了几场后，尝试用了一下自动组队，从此放弃了自己组队的妄想<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  elven119  
+##### 90#       发表于 2021-6-25 17:02
+
+
+谁来说说这战斗系统。就没搞懂，只能自动组队<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 91#       发表于 2021-6-25 17:17
+
+
+官方就推荐自动组队，打不过可以根据颜色搭配，sp技能为主（最重要，分最高），多跟少栏位看颜色和特长配就可以了，不过一般自动打不过手动基本也打不过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bluna  
+##### 92#       发表于 2021-6-25 17:39
+
+
+自动差2分，手动改下人和位置，过了…<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  liyropen  
+##### 93#       发表于 2021-6-25 17:44
+
+
+技能释放的时间点都是固定的，每关的轴打过一次就能看（レーン），前面的关比较常见的就是A技能时间排的紧，导致冷却（CT）转不过来，能摆个双A技能的角色解决。然后就是看颜色选位了
+
+
+-----
+
+####  404489039  
+##### 94#       发表于 2021-6-25 17:45
+
+
+建模的衣服都挺油腻的喜欢<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bluna  
+##### 95#       发表于 2021-6-25 19:00
+
+
+转生了，新号ID:STDQEDXW
+
+
+-----
+
+####  脏水一盆  
+##### 96#       发表于 2021-6-25 19:03
+
+
+开了个六个五星的号可以开始了，YNF6HSXW
+
+—— 来自 OnePlus GM1910, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  apres  
+##### 97#       发表于 2021-6-25 19:08
+
+
+AKZ85UMC
+
+
+-----
+
+####  sakilin2013  
+##### 98#       发表于 2021-6-25 19:26
+
+
+4KW987QR求加
+
+刚刚入坑慢慢玩着先
+
+
+-----
+
+####  Aureth  
+##### 99#       发表于 2021-6-25 20:34
+
+
+对战是不是谁血多谁容易放技能？（利好浑身）那不是纯纯的等级碾压吗
+
+
+-----
+
+####  上坂莲华  
+##### 100#       发表于 2021-6-25 20:58
+
+
+<img src="https://p.sda1.dev/2/3301342e1c722065a56ee7cdab9df26f/IMG_CMP_201145396.jpeg" referrerpolicy="no-referrer">
+
+啊這，沒保底是不是有點兇猛了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  镜hinata  
+##### 101#       发表于 2021-6-26 00:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/163.png" referrerpolicy="no-referrer">3张5星确定全是重复,感觉没法玩下去了
+
+
+-----
+
+####  elven119  
+##### 102#       发表于 2021-6-26 08:15
+
+
+这游戏奶妈真的太厉害了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 103#       发表于 2021-6-26 08:25
+
+
+主线13章粉丝不够技能全miss，塔50层等级不够技能都放不出来<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  xiongxingyu  
+##### 104#       发表于 2021-6-26 09:01
+
+
+这游戏虽然有碎片，但不是母猪石那种，是同卡突破自动吃碎片那种，星数直接决定等级上限，这个就有点微妙了，毕竟这游戏养成大头在等级（技能等级也要等级解锁），5星和8星差了足足有60级，而且不升到6星甚至开不了最后一个相片槽，这个战力差距就有点大了。游戏里虽然有通用突破碎片，但是目前来看入手渠道和数量都相当有限，爬塔到50层才给50，抽卡给的硬币200个换10片，然后5星到6星要100，之后一次是200、400。我感觉有点慌了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+不知道目前有没有氪金穿卡池的大佬可以分享一下，那些3星、4星抽到满突以后碎片会不会变成通用碎片，比率如何
+
+
+-----
+
+####  yuugi  
+##### 105#       发表于 2021-6-26 09:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51743859&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-6-26 09:01</a>
+
+这游戏虽然有碎片，但不是母猪石那种，是同卡突破自动吃碎片那种，星数直接决定等级上限，这个就有点微妙了 ...</blockquote>
+请参考剑与远征，实际只需要拉5个，其他自动同步等级到150，
+
+
+-----
+
+####  xiongxingyu  
+##### 106#       发表于 2021-6-26 09:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51743912&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-6-26 09:13</a>
+
+请参考剑与远征，实际只需要拉5个，其他自动同步等级到150，</blockquote>
+放置类的玩得不多，那系统可以强制拉等级我倒是知道，还可以强制拉星级突破上限吗？不知道技能等级怎么算。都可以同步上去那倒还好，集中资源抽几个本命拉到满星就好了。
+
+
+-----
+
+####  yuugi  
+##### 107#       发表于 2021-6-26 09:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51744017&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-6-26 09:28</a>
+
+放置类的玩得不多，那系统可以强制拉等级我倒是知道，还可以强制拉星级突破上限吗？不知道技能等级怎么算 ...</blockquote>
+你都看到那界面了，放进去就能拉到同步上限，无视星级（现在上限是150，可能150之后，按星级给上限），等级到了自动学技能，技能等级要自己学
+
+
+-----
+
+####  xiongxingyu  
+##### 108#       发表于 2021-6-26 09:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51744089&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-6-26 09:38</a>
+
+你都看到那界面了，放进去就能拉到同步上限，无视星级（现在上限是150，可能150之后，按星级给上限），等 ...</blockquote>
+主要是目前等级低，还没有到上限的，查了下攻略，8星等级上限160，150级刚好是等级差10级，除了2技能4级其他全满。估计是为了不让玩家白嫖得太爽，刚好恰到卡到一个比自己练满的弱一点的程度。
+
+
+-----
+
+####  yuugi  
+##### 109#       发表于 2021-6-26 10:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51744116&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-6-26 09:42</a>
+
+主要是目前等级低，还没有到上限的，查了下攻略，8星等级上限160，150级刚好是等级差10级，除了2技能4级 ...</blockquote>
+作为放置游戏，上限肯定会无限增加的，至于怎么加看后续了，可能性之一是开图鉴
+
+
+反正无氪金、微氪怎么都无法摸到上限的
+
+
+-----
+
+####  terry666  
+##### 110#       发表于 2021-6-26 11:21
+
+
+<blockquote>xiongxingyu 发表于 2021-6-26 09:01
+这游戏虽然有碎片，但不是母猪石那种，是同卡突破自动吃碎片那种，星数直接决定等级上限，这个就有点微妙了 ...</blockquote>
+这要卡池更新频率 同类型放置游戏 大部分都有平民升星途径的。目前来看，是有共同碎片的，要看活动给不给
+
+
+-----
+
+####  terry666  
+##### 111#       发表于 2021-6-26 11:22
+
+
+<blockquote>xiongxingyu 发表于 2021-6-26 09:01
+这游戏虽然有碎片，但不是母猪石那种，是同卡突破自动吃碎片那种，星数直接决定等级上限，这个就有点微妙了 ...</blockquote>
+有大佬说 满破后再抽到重复的 能换成通用碎片
+
+
+-----
+
+####  qw945  
+##### 112#       发表于 2021-6-26 17:55
+
+
+艹，前天开服怎么谷歌今天才跟我说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  liyropen  
+##### 113#       发表于 2021-6-26 23:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">这人数不是三的整数，派工作体验真的好憋
+
+— from Xiaomi Redmi K20 Pro, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  yuugi  
+##### 114#       发表于 2021-6-27 00:34
+
+
+别纠结人数了，实际看体力条的，等级上去体力条会涨的
+
+
+-----
+
+####  peh  
+##### 115#       发表于 2021-6-27 01:36
+
+
+这游戏要什么配置才能玩？我看别人说ipad pro都能烧到过热关机的，不是吧..
+
+
+-----
+
+####  伊布桑  
+##### 116#         楼主| 发表于 2021-6-27 01:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51752677&amp;ptid=2009419" target="_blank">peh 发表于 2021-6-27 01:36</a>
+
+这游戏要什么配置才能玩？我看别人说ipad pro都能烧到过热关机的，不是吧..</blockquote>
+是不是画面调太高配了，我普通的1+7p都能玩，不过估计画质调高也会有问题，只开60帧问题不大
+
+
+-----
+
+####  liyropen  
+##### 117#       发表于 2021-6-27 02:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51752677&amp;ptid=2009419" target="_blank">peh 发表于 2021-6-27 01:36</a>
+
+这游戏要什么配置才能玩？我看别人说ipad pro都能烧到过热关机的，不是吧..</blockquote>
+骁龙855全高60帧玩久了能稳42度
+
+
+-----
+
+####  风水引擎  
+##### 118#       发表于 2021-6-27 07:17
+
+
+换名片啦！
+CGM7BKDS
+
+
+-----
+
+####  elven119  
+##### 119#       发表于 2021-6-27 07:39
+
+
+卡在塔50，和13关了。估计要卡很久。每天就收菜了
+
+
+-----
+
+####  Aureth  
+##### 120#       发表于 2021-6-27 10:34
+
+
+ 本帖最后由 Aureth 于 2021-6-27 13:34 编辑 
+
+想总结一下自己目前用过的角色的体验，欢迎讨论。因为是分在两个号上的所以有些角色之间没有直接比较，因为没有开所以三技能全靠云。
+
+
+首先是Scorer。
+
+要能适应所有关卡的谱面A技能CT最好是30秒，堇和芽衣这两个40CT的有些图会miss，芽衣三技能是A技能可以救救，堇的三技能是个低倍率一次性加分，看不懂……但她的SP倍率S是最高的。
+
+剩下几个五星得分角色CT都是30了，其中sakura和suzu自带buff，不太依赖队友。比如一张双SP图，一个VoSP位置剩下四个Vi位置，这种情况Sakura也能有很好发挥，而且Sakura的倍率也是很高的，现在up中哦<img src="https://static.saraba1st.com/image/smiley/face2017/040.png" referrerpolicy="no-referrer">。
+
+爱 和 莉央 都要求队友带buff。特别是莉央对buff类型也有要求，必须是Vocal Up，配队选位置需要用心；她的特色是自带回体，对战是个优势。三技能解放后自己就有buff了，可以预见会有明显提升。
+
+
+然后是Buffer。
+
+遥子，怜和千沙分别持有 Vocal, Dance 和 Visual 的全体buff，CT都是30，倍率也相同，可以说都是非常好用的安心角色，2技能开始展现不同特色。遥子的2、3技能都是泛用buff，抬分很明显，泛用，和莉央搭配也很好。怜的2、3技能是给自己的buff，附带得分，实际上是个得分向的技能组。千沙2技能单抬center，主要活跃在Visual为主的图，对sakura和爱这两个吃buff的scorer也不错，缺人可以用，没有的在Visual图可以用4星雫（没有实测过差距，但雫有两个A技能，部分图的点位比较讨厌30CT都转不过来还是会上她）。
+
+葵应该是五星里面唯一一个1，2技能都是A技能的角色，如前所述在特定图中双A技能是必须品，但是也有技能触发次数比A+P组合少的问题。对暴击率的提升我自己感觉是能把10%~20%提升到20%~30%的样子，1、2技能都是对两个角色起效的，对于上两个SP的队伍来说很有用，双SP图过不了的话试试上她经常有奇效。我目前的情况来说，Da倾向的图自然会上，但是在只有一格Da的图最终得分往往不如用怜高，所以用得越来越少了……
+
+瑠依没有跳过。
+
+
+最后是Supporter。
+
+心有非常珍贵的减CT技能，基本上不会miss的图都会上。
+
+沙季拥有两个泛用buff，三技能是回体，虽然CT50比较挑图但某攻略站给了她SS，实际上就算不是Visual图很多时候我感觉我用千沙也比用她得分高，可能因为我主C一般是Sakura吧。优我倒是感觉看描述一般，攻略站给的S比沙季和心低一级，却莫名其妙地用的多，非Visual图也在用。拥有回体，去debuff和一个全体buff，40CT比沙季好点，我经常跳过所以不太清楚回体能发挥多大作用。作为参考，我这个号上有心、遥、怜、葵和优，可惜沙季千沙在另一个号上，没法比一比。感觉这三可能有位置竞争却没法比较，因此这里说的自己都觉得不太有说服力。
+
+雫和渚我没有就不说了。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +2
+
+|昵称|战斗力|理由|
+|----|---|---|
+| syuu| + 2|好评加鹅|
+
+
+查看全部评分
+
+
+
+
+-----
+
+####  syuu  
+##### 121#       发表于 2021-6-27 12:20
+
+
+到了#13后突然打啥都技能释放失败，到底要多少粉丝或者多少精神力才能确保成功的，这次卡关卡得特别恶心人……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 122#       发表于 2021-6-27 12:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51755447&amp;ptid=2009419" target="_blank">syuu 发表于 2021-6-27 12:20</a>
+
+到了#13后突然打啥都技能释放失败，到底要多少粉丝或者多少精神力才能确保成功的，这次卡关卡得特别恶心人 ...</blockquote>
+#13要求其实不高，属于教学部分，去弄下装备提幸运值，装备界面没感叹号基本就可以了
+
+
+#15是10000的场地，最后还要打boss，卡在这了
+
+
+-----
+
+####  syuu  
+##### 123#       发表于 2021-6-27 12:32
+
+
+ 本帖最后由 syuu 于 2021-6-27 13:08 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51755555&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-6-27 12:31</a>
+
+#13要求其实不高，属于教学部分，去弄下装备提幸运值，装备界面没感叹号基本就可以了
+
+
+#15是10000的场地 ...</blockquote>
+谢谢，刚去新解锁的VENUSユニオン里强化了一下精神就能过了
+
+刚说完就打脸了，看来后面每场要求的精神力下限都逐步提升，13#第三关开始又被卡住了
+
+
+-----
+
+####  华安9527  
+##### 124#       发表于 2021-6-27 14:28
+
+
+<img src="https://img.saraba1st.com/forum/202106/27/142806gw99n0iwiew6yal9.png" referrerpolicy="no-referrer">
+
+
+<strong>QQ图片20210627142759.png</strong> (26.7 KB, 下载次数: 0)
+
+下载附件
+
+2021-6-27 14:28 上传
+
+
+PEZ2LAEJ
+
+
+名片求交换！！！楼上的正在慢慢加已经加不少了！
+
+
+-----
+
+####  xiongxingyu  
+##### 125#       发表于 2021-6-27 22:07
+
+
+40发加几个5星券把Sphere抽齐了，一本满足。话说下礼拜就要开PVP了，按照这游戏这系统来看，全自动战斗加没啥可以肝的地方，无氪十有八九要被石油佬屠杀了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  slmdwl  
+##### 126#       发表于 2021-6-27 23:32
+
+
+[quote][si
+
+
+-----
+
+####  slmdwl  
+##### 127#       发表于 2021-6-27 23:33
+
+
+ 本帖最后由 slmdwl 于 2021-6-27 23:37 编辑 
+
+刷了半天终于5黄开了，
+JGR5XLVZ，求交换名片
+
+—— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  镜hinata  
+##### 128#       发表于 2021-6-28 02:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51754428&amp;ptid=2009419" target="_blank">Aureth 发表于 2021-6-27 10:34</a>
+
+想总结一下自己目前用过的角色的体验，欢迎讨论。因为是分在两个号上的所以有些角色之间没有直接比较，因为 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">nagisa不会用,太菜了,技能基本发动不了
+
+
+-----
+
+####  战术核辣条  
+##### 129#       发表于 2021-6-28 02:06
+
+
+ 本帖最后由 战术核辣条 于 2021-6-28 02:10 编辑 
+
+耐力除了对战的时候抢技能究竟还影响什么<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">，总会出现把正常倍率buff角色换了回耐结果分数莫名上涨的事情
+以及cmb这个combo继续的buff到底是什么意义
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">烧耐到50%以下触发额外buff的角色我一个都用不来，不知道怎么烧
+—— 来自 Xiaomi M2011K2C, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  Aureth  
+##### 130#       发表于 2021-6-28 05:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51754428&amp;ptid=2009419" target="_blank">Aureth 发表于 2021-6-27 10:34</a>
+想总结一下自己目前用过的角色的体验，欢迎讨论。因为是分在两个号上的所以有些角色之间没有直接比较，因为 ...</blockquote>
+更新，昨天写完小号就出优了可以好好比较一下。耐力到底怎么影响得分还是没懂，但是感觉在不会吃CT的图沙季真的很强，因为2技能会在A技前开完全不用考虑对轴就能高爆发。啥时给我大号也整一个（
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  xiongxingyu  
+##### 131#       发表于 2021-6-28 08:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51763252&amp;ptid=2009419" target="_blank">战术核辣条 发表于 2021-6-28 02:06</a>
+
+耐力除了对战的时候抢技能究竟还影响什么，总会出现把正常倍率buff角色换了回耐结果分数莫名上涨的 ...</blockquote>
+开技能要耗耐力的啊，前期图难度不高可能影响不大，后期要是有高强度图的话，后盘耐力不够哪怕CD转回来了也可能开不出技能的，还有就是莉央这种放sp技能时会根据耐力提供加成的，满耐和空耐放出来的sp完全不是一个概念。
+
+
+-----
+
+####  pansherry  
+##### 132#       发表于 2021-6-28 11:32
+
+
+这pvp从前排开始往下打还行，一路被暴打，等级都比我高一段的
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  terry666  
+##### 133#       发表于 2021-6-28 11:35
+
+
+这反向排位把我看笑了 还好排位奖励差距还算不大 奖励除了那俩照片也都是些资源
+
+
+-----
+
+####  syuu  
+##### 134#       发表于 2021-6-28 11:54
+
+
+这排位可选的敌人随便都60+等级，我这才55、54的，怎么打……<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  bluna  
+##### 135#       发表于 2021-6-28 13:39
+
+
+我现在46级，刷出的全是54+的。根本打不赢
+
+
+-----
+
+####  bluna  
+##### 136#       发表于 2021-6-28 13:46
+
+
+第一名80个硬币..3000名65个硬币。这….
+
+
+-----
+
+####  yuugi  
+##### 137#       发表于 2021-6-28 13:58
+
+
+65*5*8，不每天买入场券，换不了照片
+
+
+-----
+
+####  bluna  
+##### 138#       发表于 2021-6-28 14:03
+
+
+那就不换呗
+
+
+-----
+
+####  arisato  
+##### 139#       发表于 2021-6-28 15:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">玩了几天感觉最好玩的地方就是和偶像发讯息了，心和优的话题好有意思
+
+
+-----
+
+####  qw945  
+##### 140#       发表于 2021-6-28 15:28
+
+
+玩了两天，第一次拍照拍出5星的<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+PVp全是55+的，我才48根本不是对手
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  terry666  
+##### 141#       发表于 2021-6-28 15:32
+
+
+<blockquote>qw945 发表于 2021-6-28 15:28
+玩了两天，第一次拍照拍出5星的
+
+PVp全是55+的，我才48根本不是对手
+</blockquote>
+能进pvp的 要么是开服第一天一直玩的，要么是氪佬，起码等咸鱼们达到入场门槛才会好点
+
+
+-----
+
+####  635750448  
+##### 142#       发表于 2021-6-28 15:43
+
+
+这pvp匹配就突出一个魔幻<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+给分好像是全看对面排名的，反正也赢不了给排名高的的送头就行了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  YetToCome  
+##### 143#       发表于 2021-6-28 16:38
+
+
+醉了，推塔推到50层，没粉丝连个技能都放不出来就被NPC爆杀
+
+相比之下pvp最起码还能放个技能意思一下<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 144#       发表于 2021-6-28 17:25
+
+
+有没大佬知道，商店能更新几次，看到PVP没开多久，某地就有上千积分的
+
+
+-----
+
+####  syuu  
+##### 145#       发表于 2021-6-28 18:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51770432&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-6-28 17:25</a>
+
+有没大佬知道，商店能更新几次，看到PVP没开多久，某地就有上千积分的</blockquote>
+每天早晚11点刷新一次，每次都能手动刷新一次
+
+
+-----
+
+####  yuugi  
+##### 146#       发表于 2021-6-28 18:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51770866&amp;ptid=2009419" target="_blank">syuu 发表于 2021-6-28 18:09</a>
+
+每天早晚11点刷新一次，每次都能手动刷新一次</blockquote>
+我是说一天共能用钻更新几次，一两次是不能上千的
+
+
+一般游戏都有限制的吧
+
+
+-----
+
+####  syuu  
+##### 147#       发表于 2021-6-28 18:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771027&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-6-28 18:24</a>
+
+我是说一天共能用钻更新几次，一两次是不能上千的
+
+
+一般游戏都有限制的吧 ...</blockquote>
+从没试过用石头更新，对吴克来说石头只能用来抽卡的……
+
+
+-----
+
+####  魔法使い2019  
+##### 148#       发表于 2021-6-28 18:32
+
+
+SNJKHXLW<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 149#       发表于 2021-6-28 18:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771117&amp;ptid=2009419" target="_blank">syuu 发表于 2021-6-28 18:31</a>
+
+从没试过用石头更新，对吴克来说石头只能用来抽卡的……</blockquote>
+看到商店有直接卖pass，这样算一下正常了
+
+
+-----
+
+####  战术核辣条  
+##### 150#       发表于 2021-6-28 19:11
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">笑死，根本打不赢
+
+只能成为各路大佬的游戏体验
+
+
+
+
+-----
+
+####  syuu  
+##### 151#       发表于 2021-6-28 19:15
+
+
+同上，主线卡15#最后一关，爬楼卡81层，排位950+准备跌出1k。除了爬楼今晚可以突破外，感觉根本没事做，想做都做不了。<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  syuu  
+##### 152#       发表于 2021-6-28 19:18
+
+
+顺便15#最后一关，一个技能都抢不到，完全无解<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Aureth  
+##### 153#       发表于 2021-6-28 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51771027&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-6-28 18:24</a>
+
+我是说一天共能用钻更新几次，一两次是不能上千的
+
+
+一般游戏都有限制的吧 ...</blockquote>
+看攻略说是20次
+
+
+-----
+
+####  Aureth  
+##### 154#       发表于 2021-6-28 19:38
+
+
+爬塔86层加#15最后，我也是卡这儿了，好想赶快推到90层就能再开一次必得了，只能慢慢收菜等升级了。不过我场次比较靠后pvp排名没那么惨……
+
+
+-----
+
+####  yuugi  
+##### 155#       发表于 2021-6-28 20:25
+
+
+PVP匹配改了
+
+
+-----
+
+####  pansherry  
+##### 156#       发表于 2021-6-28 21:36
+
+
+15章卡最后2关，不过反正最后一关66级压根打不过就是了
+
+塔卡90，配来配去差20万左右，差这层就是5星必得了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  syuu  
+##### 157#       发表于 2021-6-28 23:56
+
+
+有人试过在VENUSユニオン那里堆精神能堆到过15#最后一关吗？
+
+
+-----
+
+####  yuugi  
+##### 158#       发表于 2021-6-29 00:10
+
+
+换日拿资源#15过了，几乎平局的险胜
+
+
+Screenshot_2021-06-28-23-53-27-591_game.qualiarts.idolypride.jpg
+(322.38 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-6-29 00:09 上传
+
+
+<img src="https://img.saraba1st.com/forum/202106/29/000958bmfkgfr56l5ep46f.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  伊布桑  
+##### 159#         楼主| 发表于 2021-6-29 10:13
+
+
+想问问有没有中文wiki啥的。
+
+看到谭友已经在15#和塔80-90，充分了解到自己卡13#和塔50是有多废物了，我也是开服玩家啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 160#       发表于 2021-6-29 11:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51776934&amp;ptid=2009419" target="_blank">伊布桑 发表于 2021-6-29 10:13</a>
+
+想问问有没有中文wiki啥的。
+
+看到谭友已经在15#和塔80-90，充分了解到自己卡13#和塔50是有多废物了，我也是 ...</blockquote>
+去看下官方教学视频吧，说得这么详细很少见
+
+
+相对快只是卡比较合适吧了，总归不是卡这就卡那被大部队追上
+
+
+-----
+
+####  qw945  
+##### 161#       发表于 2021-6-29 11:43
+
+
+草，明天算KPi发工资，逼真社畜手游<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony J9110, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  terry666  
+##### 162#       发表于 2021-6-29 12:09
+
+
+果然不能加Q群，各种100-150层的大佬<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer"> 平均15图往后的进度。
+
+
+-----
+
+####  terry666  
+##### 163#       发表于 2021-6-29 12:12
+
+
+而且这游戏抽卡还好，照片才是个坑（虽然是个非氪金项目）
+
+欧洲人各种五星照片，你一手的三星四星，差距大的吓人。一张五星照片20%多的属性加成，而且照片栏能解锁几个<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 164#       发表于 2021-6-29 13:18
+
+
+ 本帖最后由 pansherry 于 2021-6-29 17:16 编辑 
+
+其实我都没看过官方视频教程，也不理解怎么按照歌配卡（你给我一个谱子然后告诉我按回合选卡我是懵逼的），就先自动组队然后看下别人队伍，有的卡就按位置选上，然后还不行的话就开始排列组合换<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">总之分好输出辅助确保技能不CT然后试错
+<img src="https://p.sda1.dev/2/a81cbfc3c98c29a2cce7734cff536fa2/IMG_CMP_261660607.jpeg" referrerpolicy="no-referrer">
+我终于也过15了，大概因为装了仨3200数值的饰品吧。。。
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yuugi  
+##### 165#       发表于 2021-6-29 21:23
+
+
+ 本帖最后由 yuugi 于 2021-6-29 21:28 编辑 
+
+总算爬塔到95，将等级拉到60，加工资了
+
+
+几张5星券都是重复几经有的，就是神奇
+
+
+-----
+
+####  伊布桑  
+##### 166#         楼主| 发表于 2021-6-29 21:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">笑死了，本来今晚生放送，讲明天的活动和新曲，结果官方器材出问题，延迟一个小时依旧不行，生放送取消，明早视频发布
+
+开服第一次生放送就事故了<img src="https://static.saraba1st.com/image/smiley/face2017/069.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 167#       发表于 2021-6-29 22:05
+
+
+<img src="https://p.sda1.dev/2/1247bd54927f355a3af26293dc4c4512/IMG_CMP_246692447.jpeg" referrerpolicy="no-referrer">
+<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  syuu  
+##### 168#       发表于 2021-6-29 23:38
+
+
+对吴克玩家来说，不打折的120钻活动参加票（紫票）应该换吗？感觉对吴克来说一两张票好像也起不到什么作用……
+
+
+-----
+
+####  pansherry  
+##### 169#       发表于 2021-6-30 00:18
+
+
+反正我就算算买几张凑够换2张照片的硬币了
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  ViviR  
+##### 170#       发表于 2021-6-30 02:31
+
+
+有没有用苹果设备全高60帧不卡的，我xr调高画质（非最高）一场live进行到一半就开始降频了，也不知道是我手机用久了还是xr就是配置不够…
+
+
+-----
+
+####  404489039  
+##### 171#       发表于 2021-6-30 08:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51787504&amp;ptid=2009419" target="_blank">ViviR 发表于 2021-6-30 02:31</a>
+有没有用苹果设备全高60帧不卡的，我xr调高画质（非最高）一场live进行到一半就开始降频了，也不知道是我手 ...</blockquote>
+m1的iPad拉全高一点都不卡<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ViviR  
+##### 172#       发表于 2021-6-30 08:24
+
+
+<blockquote>404489039 发表于 2021-6-30 08:20
+m1的iPad拉全高一点都不卡</blockquote>
+好吧，估计iphone12也可以全高60不卡…只能期待官方出优化了
+
+
+-----
+
+####  镜hinata  
+##### 173#       发表于 2021-6-30 11:44
+
+
+毛球泳装<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Destiny4073  
+##### 174#       发表于 2021-6-30 11:47
+
+
+抽了半井，沉了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  syuu  
+##### 175#       发表于 2021-6-30 12:16
+
+
+送的角色是2星卡，这是告诉玩家“衣服可以白送，但想提升强度请氪金”吗<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 176#       发表于 2021-6-30 12:21
+
+
+送的角色给碎片吗？不给的话岂不是坑得一匹，卡池3星、4星基本上随便抽抽到后面都可以满星，珍贵的通用碎片谁会喂给2星啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 177#       发表于 2021-6-30 12:22
+
+
+送的角色打图加商店交换可以升到5星
+
+不过总归就是少一个被动技能就是
+
+
+-----
+
+####  slmdwl  
+##### 178#       发表于 2021-6-30 13:11
+
+
+一加8p开全高会死机，离谱<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus IN2020, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4
+
+
+-----
+
+####  areklose  
+##### 179#       发表于 2021-6-30 13:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/152.png" referrerpolicy="no-referrer">这是啥回事，今天维护后，打开有些界面会卡住进不去，点屏幕也没反映
+
+
+-----
+
+####  terry666  
+##### 180#       发表于 2021-6-30 13:39
+
+
+<blockquote>xiongxingyu 发表于 2021-6-30 12:21
+送的角色给碎片吗？不给的话岂不是坑得一匹，卡池3星、4星基本上随便抽抽到后面都可以满星，珍贵的通用碎片 ...</blockquote>
+可以换3张 然后通关也会给 
+
+
+
+
+-----
+
+####  伊布桑  
+##### 181#         楼主| 发表于 2021-6-30 14:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51790801&amp;ptid=2009419" target="_blank">areklose 发表于 2021-6-30 13:34</a>
+
+这是啥回事，今天维护后，打开有些界面会卡住进不去，点屏幕也没反映 ...</blockquote>
+这游戏卡住的情况一般是在载数据，你看下右下角是不是有个进度条。
+
+这游戏每次更新不会自动帮你下好数据，你可以自己去设置里下完整的，也可以当需要用的时候即时下载
+
+
+-----
+
+####  areklose  
+##### 182#       发表于 2021-6-30 14:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51791072&amp;ptid=2009419" target="_blank">伊布桑 发表于 2021-6-30 14:01</a>
+
+这游戏卡住的情况一般是在载数据，你看下右下角是不是有个进度条。
+
+这游戏每次更新不会自动帮你下好数据 ...</blockquote>
+下完整了。。。
+
+
+-----
+
+####  areklose  
+##### 183#       发表于 2021-6-30 14:13
+
+
+看了一下公告，要我把数据删了再下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">坑啊
+
+
+-----
+
+####  魔法使い2019  
+##### 184#       发表于 2021-6-30 14:14
+
+
+偶尔会画面卡住只有声音在继续的情况， 有人有这种情况吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 185#       发表于 2021-6-30 14:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51791211&amp;ptid=2009419" target="_blank">魔法使い2019 发表于 2021-6-30 14:14</a>
+
+偶尔会画面卡住只有声音在继续的情况， 有人有这种情况吗</blockquote>
+建议删缓存数据。我刚才打开某些页面就是直接打不开，然后公告说这种情况到主页menu清缓存
+
+
+-----
+
+####  魔法使い2019  
+##### 186#       发表于 2021-6-30 14:31
+
+
+ 本帖最后由 魔法使い2019 于 2021-6-30 14:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51791301&amp;ptid=2009419" target="_blank">areklose 发表于 2021-6-30 14:23</a>
+建议删缓存数据。我刚才打开某些页面就是直接打不开，然后公告说这种情况到主页menu清缓存 ...</blockquote>
+谢谢回复，
+
+不过并没有效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+基本只有live的时候(不管是正常进行还是highlight)会发生这种情况<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 187#       发表于 2021-6-30 15:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">惊了64抽，一个五星都没
+
+
+-----
+
+####  bluna  
+##### 188#       发表于 2021-6-30 15:41
+
+
+40抽，4个五星，就是没泳装，这真是UP池？
+
+
+-----
+
+####  美人希  
+##### 189#       发表于 2021-6-30 16:03
+
+
+这游戏的预算大头都给视觉交互了，事实证明这样是不行的，打铁还需后端硬<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+— from OPPO PEGM00, Android 11 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+-----
+
+####  ViviR  
+##### 190#       发表于 2021-6-30 16:17
+
+
+希望官方赶紧出优化吧，一场live办一半就开始卡顿也太过分了（
+
+
+-----
+
+####  yuugi  
+##### 191#       发表于 2021-6-30 16:29
+
+
+ 本帖最后由 yuugi 于 2021-6-30 16:40 编辑 
+
+k40,全高一点问题也没有
+
+
+22抽没水着
+
+
+辅助券出货了，三人组齐了
+
+
+-----
+
+####  xiongxingyu  
+##### 192#       发表于 2021-6-30 17:00
+
+
+抽了100来发，歪了一大堆，就中了个泳装遥子。话说这泳装遥子有点拉啊，大招要站c位才1200，怕不是数值打错了吧，芽衣无条件就1800，别的樱啊，爱啊、莉央这种ss级的1500往上加子buff，或者1300往上加有条件附加倍率。遥子这c位1200，不站c位800连4星都不如啊，2技能强化效果提升两段看起来很美，但是遥子自己没有buff，都吃队友配合了其他几个打分手都可以直接起飞了，节奏榜给个A真是客气了，同样是A级的五星芽衣虽然也难用了点，但人家大招直接就1800啊。
+
+
+-----
+
+####  xiongxingyu  
+##### 193#       发表于 2021-6-30 17:00
+
+
+抽了100来发，歪了一大堆，就中了个泳装遥子。话说这泳装遥子有点拉啊，大招要站c位才1200，怕不是数值打错了吧，芽衣无条件就1800，别的樱啊，爱啊、莉央这种ss级的1500往上加子buff，或者1300往上加有条件附加倍率。遥子这c位1200，不站c位800连4星都不如啊，2技能强化效果提升两段看起来很美，但是遥子自己没有buff，都吃队友配合了其他几个打分手都可以直接起飞了，节奏榜给个A真是客气了，同样是A级的五星芽衣虽然也难用了点，但人家大招直接就1800啊。
+
+
+-----
+
+####  魔法使い2019  
+##### 194#       发表于 2021-6-30 18:10
+
+
+那些0粉丝的在握手会上来的都是托吗<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 195#       发表于 2021-6-30 20:01
+
+
+ 本帖最后由 yuugi 于 2021-7-1 07:00 编辑 
+
+活动卡换齐过8图是5星
+
+
+活动过7图有点勉强了，不知能否过8图
+
+
+7图BOSS，100级
+
+
+-----
+
+####  pansherry  
+##### 196#       发表于 2021-6-30 20:55
+
+
+七图さくらsp技能已经能打出1M了<img src="https://static.saraba1st.com/image/smiley/face2017/174.png" referrerpolicy="no-referrer">
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  syuu  
+##### 197#       发表于 2021-6-30 21:30
+
+
+我在7图败下阵了……
+
+
+等明天全员60级后再挑战一次
+
+
+-----
+
+####  pansherry  
+##### 198#       发表于 2021-6-30 22:37
+
+
+ 本帖最后由 pansherry 于 2021-6-30 22:46 编辑 
+
+<img src="https://p.sda1.dev/2/c9728a226223c8c028523edefc738863/IMG_CMP_75891690.jpeg" referrerpolicy="no-referrer">
+
+自动配队打过去了，全靠buff技能把对面堆死了233
+
+自个64级，68级的是道中加的对手
+
+打过8图加上换的活动卡就5星了
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yuugi  
+##### 199#       发表于 2021-6-30 23:00
+
+
+ 本帖最后由 yuugi 于 2021-7-1 07:06 编辑 
+
+第一次打8图，本来能过的，没注意头上的心，在boss前的sp点浪死了
+
+第二次才过8图
+
+
+-----
+
+####  terry666  
+##### 200#       发表于 2021-7-1 09:27
+
+
+打完8图或者卡图的，可以退一关反复去踩那个送硬币的格子，也算是刷币的一种方法，免得打不过又浪费溢出次数。
+
+
+-----
+
+####  leafS  
+##### 201#       发表于 2021-7-1 09:32
+
+
+<img src="http://ww1.sinaimg.cn/large/8b1ee306ly1gs1724vgv6j20u01t012g.jpg" referrerpolicy="no-referrer">
+
+
+WMG4UNA8
+
+才发现活动要40级才能参加，人都傻了<img src="https://static.saraba1st.com/image/smiley/face2017/101.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  上坂莲华  
+##### 202#       发表于 2021-7-1 11:53
+
+
+这活动40级进门连3图都看不到，真是挂机游戏能出的活动？
+
+
+-----
+
+####  yuugi  
+##### 203#       发表于 2021-7-1 12:27
+
+
+ 本帖最后由 yuugi 于 2021-7-1 12:28 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51801024&amp;ptid=2009419" target="_blank">上坂莲华 发表于 2021-7-1 11:53</a>
+
+这活动40级进门连3图都看不到，真是挂机游戏能出的活动？</blockquote>
+活动还有10天，养一队60+很难吗
+
+
+重复一二图刷币，最后冲刺8图
+
+
+-----
+
+####  DEMOxN  
+##### 204#       发表于 2021-7-1 16:20
+
+
+8图要平均多少级，技能瞎选能不能过<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 205#       发表于 2021-7-1 16:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51803981&amp;ptid=2009419" target="_blank">DEMOxN 发表于 2021-7-1 16:20</a>
+
+8图要平均多少级，技能瞎选能不能过</blockquote>
+有看到62过的，咱是65过的
+
+
+技能肯定不能瞎选
+
+
+我选通用系，带名字的限定技能需强但不刷分不推荐
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DEMOxN| + 1|了解|
+
+
+查看全部评分
+
+
+-----
+
+####  pansherry  
+##### 206#       发表于 2021-7-1 16:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51803981&amp;ptid=2009419" target="_blank">DEMOxN 发表于 2021-7-1 16:20</a>
+8图要平均多少级，技能瞎选能不能过</blockquote>
+60往上吧，温泉自己有回耐力技能的话可以不走，然后选技能优先高星，同星里面我倾向于被动和暴击相关
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| DEMOxN| + 1|我试试|
+
+
+查看全部评分
+
+
+-----
+
+####  terry666  
+##### 207#       发表于 2021-7-1 16:50
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51801024&amp;ptid=2009419" target="_blank">上坂莲华 发表于 2021-7-1 11:53</a>
+
+这活动40级进门连3图都看不到，真是挂机游戏能出的活动？</blockquote>
+按群里第一天开始玩的人平均练度，一个星期出头可以平均60级（不氪金拉进度的前提下），60级出头是足够一个box不太烂的玩家通关的。
+
+
+-----
+
+####  DEMOxN  
+##### 208#       发表于 2021-7-1 17:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51804358&amp;ptid=2009419" target="_blank">terry666 发表于 2021-7-1 16:50</a>
+
+按群里第一天开始玩的人平均练度，一个星期出头可以平均60级（不氪金拉进度的前提下），60级出头是足够一 ...</blockquote>
+求个群号哈
+
+
+-----
+
+####  烈之斩  
+##### 209#       发表于 2021-7-1 18:28
+
+
+等一下，难道rival的等级是和你自己卡有关吗？
+
+
+我平均卡61级打活动，图里面所有rival战送的卡都是65级，最后全队都是白嫖的卡（+1个自己的）随便过8图，我以为有送的卡所有人都不会卡的
+
+
+-----
+
+####  烈之斩  
+##### 210#       发表于 2021-7-1 18:32
+
+
+ 本帖最后由 烈之斩 于 2021-7-1 09:09 编辑 
+
+发重复，删除
+
+
+
+
+-----
+
+####  烈之斩  
+##### 211#       发表于 2021-7-1 18:32
+
+
+再问个游戏机制的问题，比赛的时候lane颜色对不对应有什么定量的区别？
+
+是直接加属性还是别的，面板上是折算后还是折算前？
+
+
+-----
+
+####  pansherry  
+##### 212#       发表于 2021-7-1 18:57
+
+
+ 本帖最后由 pansherry 于 2021-7-1 19:02 编辑 
+
+活动格子里直接加入的队友角色等级和你一样，对战后加入的队友角色等级比你高5级
+等级以你刚进1图时的状态为准
+因为我是平均升级，不确定等级是不是依据你角色的最高等级
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  syuu  
+##### 213#       发表于 2021-7-1 19:09
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51805632&amp;ptid=2009419" target="_blank">pansherry 发表于 2021-7-1 18:57</a>
+
+活动格子里直接加入的队友角色等级和你一样，对战后加入的队友角色等级比你高5级
+
+等级以你刚进1图时的状态 ...</blockquote>
+我第一高级的62，后面前5名60，重新进去后加入的都是60/65（ライバル），所以应该是和レベルアシスト一样按照第五名的等级
+
+
+-----
+
+####  上坂莲华  
+##### 214#       发表于 2021-7-1 21:46
+
+
+我进去第一名50最后一名45，来的队友基本都是45的，最高也就50，最多走到4图就打不动了
+
+按其他走格子游戏的玩法大概是要前期拼命毛技能毛人，但现在看不懂技能就很头疼<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 215#       发表于 2021-7-2 08:40
+
+
+算了下，这活动要交换品随便换都行
+
+
+一票基本100币，剩下时间能拿4500+币
+
+
+-----
+
+####  Aureth  
+##### 216#       发表于 2021-7-2 09:43
+
+
+终于过了100层，后面110层给的五星券碎片也是十张<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">香了
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  镜hinata  
+##### 217#       发表于 2021-7-2 10:03
+
+
+活动打不过5图<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  皮卡丘跑快快  
+##### 218#       发表于 2021-7-2 11:35
+
+
+活动币完全不够啊 就打得到6关卡死了 重复刷也不给币<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  terry666  
+##### 219#       发表于 2021-7-2 11:46
+
+
+<blockquote>皮卡丘跑快快 发表于 2021-7-2 11:35
+活动币完全不够啊 就打得到6关卡死了 重复刷也不给币</blockquote>
+你要去踩那个给币的格子啊 前面一图能踩一次 后面几关能踩两次 一天大概能拿300币的
+
+
+-----
+
+####  皮卡丘跑快快  
+##### 220#       发表于 2021-7-2 11:54
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51813883&amp;ptid=2009419" target="_blank">terry666 发表于 2021-7-2 11:46</a>
+
+你要去踩那个给币的格子啊 前面一图能踩一次 后面几关能踩两次 一天大概能拿300币的 ...</blockquote>
+收益太低了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  liyropen  
+##### 221#       发表于 2021-7-2 13:05
+
+
+这都能过<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/8cacffb74b8e04309e5be8cc43bc245f/IMG_CMP_189362292.jpeg" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/99e831f49d133454dce059845d82754c/IMG_CMP_167882581.jpeg" referrerpolicy="no-referrer">
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Aureth  
+##### 222#       发表于 2021-7-2 13:28
+
+
+大家有抽到过工作券给的那四个2星吗？感觉好难抽到啊……不知道抽奖概率多少
+
+
+-----
+
+####  DEMOxN  
+##### 223#       发表于 2021-7-2 14:52
+
+
+我都迷糊了，到底是粉丝观众不够还是我配卡有问题<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 224#       发表于 2021-7-2 15:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51816111&amp;ptid=2009419" target="_blank">DEMOxN 发表于 2021-7-2 14:52</a>
+
+我都迷糊了，到底是粉丝观众不够还是我配卡有问题</blockquote>
+失败原因看提示呀，没局都有说的
+
+
+-----
+
+####  liyropen  
+##### 225#       发表于 2021-7-2 18:45
+
+
+这调查问卷最喜欢的角色还能选麻奈呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qw945  
+##### 226#       发表于 2021-7-2 19:11
+
+
+这用户问卷一百多道问题是真的逆天<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">能全耐心填完的人有多少
+
+
+-----
+
+####  Aureth  
+##### 227#       发表于 2021-7-2 19:26
+
+
+看了下好像没奖励<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不填了
+
+
+-----
+
+####  yuugi  
+##### 228#       发表于 2021-7-2 19:28
+
+
+ 本帖最后由 yuugi 于 2021-7-2 20:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51819153&amp;ptid=2009419" target="_blank">qw945 发表于 2021-7-2 19:11</a>
+
+这用户问卷一百多道问题是真的逆天能全耐心填完的人有多少</blockquote>
+哪有一百，只有红星比填，哦，是我第一页最后一题填否，直接跳结束吗
+
+
+一直缺蓝sp，活动卡算是补完，#19过了
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/194515vanha2a1ijwzcj65.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-02-19-33-41-322_game.qualiarts.idolypride.jpg</strong> (290.38 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 19:45 上传
+
+
+塔100层也过了
+
+
+<img src="https://img.saraba1st.com/forum/202107/02/204212s6k56sersmcjcj66.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-02-20-33-46-579_game.qualiarts.idolypride.jpg</strong> (264.43 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-2 20:42 上传
+
+
+-----
+
+####  xiongxingyu  
+##### 229#       发表于 2021-7-2 21:19
+
+
+一个算不上心得的心得，活动过关碰上回体力的技能（队伍中有人体力低于70%时回复xx体力，一次演出只能发动一次），请无视其他技能务必选择，只要你有2-3个回体技能，过关体力就基本不会掉，也就是说你可以直接无视温泉格子，你拿的早就可以比没有的人打更多的比赛拿更多的分数和硬币。
+
+
+-----
+
+####  Aureth  
+##### 230#       发表于 2021-7-3 00:00
+
+
+难得欧气一把记录一下<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  kos_mos  
+##### 231#       发表于 2021-7-3 01:06
+
+
+ 本帖最后由 kos_mos 于 2021-7-3 01:37 编辑 
+
+通知、live切换横板（不是100%）、横板live结束黑屏画面没（声音会还在一会）强制退出怎么整？现在卡在摄影教程的交给系统拍而黑屏这里了。
+
+华为
+
+
+-----
+
+####  魔法使い2019  
+##### 232#       发表于 2021-7-3 01:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51823065&amp;ptid=2009419" target="_blank">kos_mos 发表于 2021-7-3 01:06</a>
+通知、live切换横板（不是100%）、横板live结束黑屏画面没（声音会还在一会）强制退出怎么整？现在卡在摄影 ...</blockquote>
+我是偶尔在live中会画面卡住， 只有声音在继续， 然后过一会会重开<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kos_mos  
+##### 233#       发表于 2021-7-3 01:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51823266&amp;ptid=2009419" target="_blank">魔法使い2019 发表于 2021-7-3 01:37</a>
+
+我是偶尔在live中会画面卡住， 只有声音在继续， 然后过一会会重开</blockquote>
+对就是这样
+
+
+-----
+
+####  yuugi  
+##### 234#       发表于 2021-7-3 10:01
+
+
+辅助劵系统，除了限定，无氪基本够用
+
+
+Screenshot_2021-07-03-10-41-22-592_game.qualiarts.idolypride.jpg
+(180 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-3 09:58 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/03/095844ylwt81w0btsydgw1.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ViviR  
+##### 235#       发表于 2021-7-3 16:08
+
+
+看到了个有点意思的文章
+
+
+-----
+
+####  ViviR  
+##### 236#       发表于 2021-7-3 16:08
+
+
+看到了个有点意思的文章
+[https://mp.weixin.qq.com/s/D3pjRrVogeqdtxj6VRgKaw?v_p=89&amp;WBAPIAnalysisOriUICodes=10000001_10000002&amp;launchid=10000365--x&amp;wm=3333_2001&amp;aid=01AwH0RwfaTOFt2u1nflcFkrj_L_1CC9UVVkfxHfh7ZRNTh8E.&amp;from=10B6393010](https://mp.weixin.qq.com/s/D3pjRrVogeqdtxj6VRgKaw?v_p=89&amp;WBAPIAnalysisOriUICodes=10000001_10000002&amp;launchid=10000365--x&amp;wm=3333_2001&amp;aid=01AwH0RwfaTOFt2u1nflcFkrj_L_1CC9UVVkfxHfh7ZRNTh8E.&amp;from=10B6393010)
+
+
+-----
+
+####  Aureth  
+##### 237#       发表于 2021-7-3 16:43
+
+
+爬塔差点等级卡在150层了，估计明后天能过。140层到150层好几张图我的box都没法不吃CD，基本都是靠暴击抬过去的…
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yuugi  
+##### 238#       发表于 2021-7-3 17:18
+
+
+主线过了#22，终于被等级限制
+
+
+心这卡不太行呀，想要她减CT，自已都CT不过来
+
+
+-----
+
+####  pansherry  
+##### 239#       发表于 2021-7-3 17:58
+
+
+ 本帖最后由 pansherry 于 2021-7-3 17:59 编辑 
+
+<img src="https://p.sda1.dev/2/e77a80619294309724240f74a6c62c04/IMG_CMP_201648277.jpeg" referrerpolicy="no-referrer">
+150层比对面高了不到1万分压线过，前面压根抢不到技能，就等后半爆发追上去
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  两个路人  
+##### 240#       发表于 2021-7-3 20:10
+
+
+ 本帖最后由 两个路人 于 2021-7-3 20:25 编辑 
+<blockquote>ViviR 发表于 2021-7-3 16:08
+看到了个有点意思的文章
+[https://mp.weixin.qq.com/s/D3pjRrVogeqdtxj6VRgKaw?v_p=89&amp;WBAPIAnalysisOriUICo](https://mp.weixin.qq.com/s/D3pjRrVogeqdtxj6VRgKaw?v_p=89&amp;WBAPIAnalysisOriUICo) ...</blockquote>
+这哥们是不是只玩手游哇，麻辣土豆那玩意儿明显就是摸着CY过河，把主机上那套拉过来搞嘛。还不如提供一个新角度：脚盆少子化，新血液少 + 社畜生活内卷，整天加班，玩个锤子（手动香菜
+
+今天试了试刷初始，80-90个号（没细算）才见过一次开局6黄（其中一个还是重复的），1个5黄，13个准4黄（没抽必得），算下来中奖率也就1-2%（躺
+
+
+
+
+-----
+
+####  最强惠酱  
+##### 241#       发表于 2021-7-4 20:45
+
+
+揭示板怎么出现一堆什么jk什么女制作人交换名片，笑死，真希望这个揭示板能分下类，做一个真正的揭示板<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+—— 來自 samsung SM-G981N, Android 11上的 [S1Next-鵝版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  魔法使い2019  
+##### 242#       发表于 2021-7-5 09:57
+
+
+草 关于那个live中会卡住的问题我写了問い合わせ然后收到敬语连击然后告诉我请试试以下手段: 
+1. 重开
+2. 关掉其他app
+等等....<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+能不能不要说得好像你们不打算调查
+
+
+-----
+
+####  kos_mos  
+##### 243#       发表于 2021-7-5 18:55
+
+
+着替え时脸红拉帘布太可爱了<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 244#       发表于 2021-7-5 20:22
+
+
+75级才过145层，反属性就是麻烦
+
+明天升76级应该能过150了
+
+
+-----
+
+####  马桶3  
+##### 245#       发表于 2021-7-5 20:47
+
+
+可怕，我还在99层咸鱼，大佬们都冲击150了……
+
+
+-----
+
+####  yuugi  
+##### 246#       发表于 2021-7-5 21:04
+
+
+ 本帖最后由 yuugi 于 2021-7-5 23:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851760&amp;ptid=2009419" target="_blank">马桶3 发表于 2021-7-5 20:47</a>
+
+可怕，我还在99层咸鱼，大佬们都冲击150了……</blockquote>
+真·大佬是冲250-300了
+
+
+我这种不上不下的中层
+
+
+过了100，就能飞到130上下
+
+
+--------------
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/234221srhihgzs7m646a9j.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-06-00-33-50-640_game.qualiarts.idolypride.jpg</strong> (142.2 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 23:42 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/05/234221kfp8ry0gprp7qq9g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-06-00-32-01-595_game.qualiarts.idolypride.jpg</strong> (131.02 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-5 23:42 上传
+
+
+150又是压线过 
+
+
+-----
+
+####  黄昏的轮回  
+##### 247#       发表于 2021-7-6 00:04
+
+
+L9EPK52G
+
+萌新刚开始玩，这系统感觉没怎么搞懂……
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  luy3244213  
+##### 248#       发表于 2021-7-6 00:16
+
+
+2YAUHVXL
+
+
+-----
+
+####  百变小樱  
+##### 249#       发表于 2021-7-6 08:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51851961&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-5 21:04</a>
+
+真·大佬是冲250-300了
+
+
+我这种不上不下的中层</blockquote>
+150其实没必要纠结第二个sp的，我71过的时候就是2号位直接上辅助，4保1
+
+
+-----
+
+####  yuugi  
+##### 250#       发表于 2021-7-6 08:55
+
+
+ 本帖最后由 yuugi 于 2021-7-6 09:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51855249&amp;ptid=2009419" target="_blank">百变小樱 发表于 2021-7-6 08:46</a>
+
+150其实没必要纠结第二个sp的，我71过的时候就是2号位直接上辅助，4保1</blockquote>
+不是纠结，是没卡用，装备跟不上，这游戏数值变化太大的，稍微改改就大幅度变化，试出一个可行的结果，就等升级过了
+
+
+-----
+
+####  百变小樱  
+##### 251#       发表于 2021-7-6 09:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51855320&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-6 08:55</a>
+
+不是纠结，是没卡用，装备跟不上，这游戏数值变化太大的，稍微改改就大幅度变化，试出一个可行的结果，就 ...</blockquote>
+有樱就好办了，不用纠结sp，4保1，153我没保存，这是154过的时候
+
+
+<img src="https://img.saraba1st.com/forum/202107/06/093833gjk7rn71zssya7es.png" referrerpolicy="no-referrer">
+
+
+<strong>IMG_1790 (复制).PNG</strong> (972.13 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 09:38 上传
+
+
+-----
+
+####  yuugi  
+##### 252#       发表于 2021-7-6 10:04
+
+
+ 本帖最后由 yuugi 于 2021-7-6 10:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51855720&amp;ptid=2009419" target="_blank">百变小樱 发表于 2021-7-6 09:38</a>
+
+有樱就好办了，不用纠结sp，4保1，153我没保存，这是154过的时候</blockquote>
+
+<img src="https://img.saraba1st.com/forum/202107/06/100150yh78t28z7r6kh1zk.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-06-10-54-48-106_game.qualiarts.idolypride.jpg</strong> (292.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 10:01 上传
+
+
+153是过了，胜幅不大
+
+果然琴乃作为buff不太行
+
+然后154继续卡，开自动配卡过了
+
+卡156了，蓝卡太弱了
+
+
+-----
+
+####  404489039  
+##### 253#       发表于 2021-7-6 10:29
+
+
+卡12图和50层<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 254#       发表于 2021-7-6 10:34
+
+
+没有红buff卡，卡170一点思路都没<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+搞不好得卡到队伍升80了
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  镜hinata  
+##### 255#       发表于 2021-7-6 11:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">90抽0 5星，想弃了
+
+
+-----
+
+####  ViviR  
+##### 256#       发表于 2021-7-6 11:18
+
+
+两次五星辅助卷都抽到了已经有的…我也想要一个樱当炸弹…
+
+
+-----
+
+####  gxliv  
+##### 257#       发表于 2021-7-6 16:59
+
+
+活动送的角色白值竟然比原生5星还要高<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  pansherry  
+##### 258#       发表于 2021-7-6 17:57
+
+
+看了下说明原生四星以上偶像的エール被动是全局有效的，怪不得有些是工作的被动，建议不用的也升到30级点出エール来
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yuugi  
+##### 259#       发表于 2021-7-6 19:26
+
+
+ 本帖最后由 yuugi 于 2021-7-6 19:28 编辑 
+
+终于不是圈外了，更新后显示开放到10000
+
+
+<img src="https://img.saraba1st.com/forum/202107/06/192554y6b0m0w6z000600b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-06-20-22-47-328_game.qualiarts.idolypride.jpg</strong> (465.83 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-6 19:25 上传
+
+
+-----
+
+####  魔法使い2019  
+##### 260#       发表于 2021-7-6 20:11
+
+
+ 本帖最后由 魔法使い2019 于 2021-7-6 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51861469&amp;ptid=2009419" target="_blank">pansherry 发表于 2021-7-6 17:57</a>
+看了下说明原生四星以上偶像的エール被动是全局有效的，怪不得有些是工作的被动，建议不用的也升到30级点出 ...</blockquote>
+全局有效是自己不去工作/上live也能给别人加成的意思?<img src="https://static.saraba1st.com/image/smiley/face2017/105.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 261#       发表于 2021-7-6 20:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51862961&amp;ptid=2009419" target="_blank">魔法使い2019 发表于 2021-7-6 20:11</a>
+
+全局有效是自己不去工作也能给别人加成的意思?</blockquote>
+是，就是相当于图鉴加成
+
+
+-----
+
+####  pansherry  
+##### 262#       发表于 2021-7-6 22:04
+
+
+ 本帖最后由 pansherry 于 2021-7-6 22:09 编辑 
+
+工作里粉丝活动的开始条件不是看你体力剩余量而是剩余比例，偶像工作等级高了以后，去休息2小时1000体力出来进不了握手会了<img src="https://static.saraba1st.com/image/smiley/face2017/100.png" referrerpolicy="no-referrer">
+
+2小时1800体力那个么用不起，就算修正消耗之后还是入不敷出<img src="https://static.saraba1st.com/image/smiley/face2017/149.png" referrerpolicy="no-referrer">
+
+
+哦还有那个联盟点数，还是尽量堆メンタル吧，有利于身心健康<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 263#       发表于 2021-7-6 22:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51864486&amp;ptid=2009419" target="_blank">pansherry 发表于 2021-7-6 22:04</a>
+
+工作里粉丝活动的开始条件不是看你体力剩余量而是剩余比例，偶像工作等级高了以后，去休息2小时1000体力出 ...</blockquote>
+去排签名会吧，满体力接近4小时
+
+
+不要不舍得2级回体，循环会舒服很多
+
+
+-----
+
+####  xiongxingyu  
+##### 264#       发表于 2021-7-7 08:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51862449&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-6 19:26</a>
+
+终于不是圈外了，更新后显示开放到10000</blockquote>
+这修正还不如不要呢，原本1000名是圈外，9000名也是圈外，现在连当鸵鸟的机会都没有了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 265#       发表于 2021-7-7 09:12
+
+
+惊了，mei会主动打电话过来，刷新一下界面弹出电话
+
+
+-----
+
+####  404489039  
+##### 266#       发表于 2021-7-7 09:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51867934&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-7 09:12</a>
+惊了，mei会主动打电话过来，刷新一下界面弹出电话</blockquote>
+5星都有一个电话事件，读完短信可以解锁。但是触到不知道要什么要求<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  kos_mos  
+##### 267#       发表于 2021-7-7 09:25
+
+
+昨晚点领取奖品、发传单后画面不会切换，还停留在首页不能接受任何操作，首页的人物还会正常动、说话，是不是该换手机了。
+
+
+-----
+
+####  yuugi  
+##### 268#       发表于 2021-7-7 09:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51867949&amp;ptid=2009419" target="_blank">404489039 发表于 2021-7-7 09:13</a>
+
+5星都有一个电话事件，读完短信可以解锁。但是触到不知道要什么要求 ...</blockquote>
+不是指正常电话事件，这是被动电话，要自己进入界面开启的
+
+
+我说的是第一次接生日电话，不进入界面主动任意界面随机弹出
+
+
+-----
+
+####  xiongxingyu  
+##### 269#       发表于 2021-7-7 09:48
+
+
+ 本帖最后由 xiongxingyu 于 2021-7-7 09:49 编辑 
+
+卧槽，照片这个真的是天坑啊，今天拿送的4星交卷拍了2张，出了一张90级的4星照片<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 270#       发表于 2021-7-7 10:01
+
+
+ 本帖最后由 yuugi 于 2021-7-7 10:05 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51868379&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-7-7 09:48</a>
+
+卧槽，照片这个真的是天坑啊，今天拿送的4星交卷拍了2张，出了一张90级的4星照片然后我回去折腾了一 ...</blockquote>
+漏了一条，还要刷专属，专属卡有专属技能
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/100458lae3gmg33pbzmaej.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-07-11-02-42-255_game.qualiarts.idolypride.jpg</strong> (224.39 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-7 10:04 上传
+
+
+
+
+-----
+
+####  百变小樱  
+##### 271#       发表于 2021-7-7 10:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51868379&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-7-7 09:48</a>
+ 卧槽，照片这个真的是天坑啊，今天拿送的4星交卷拍了2张，出了一张90级的4星照片然后我回去折腾了一 ...</blockquote>
+照片品质升级和p等级挂钩
+
+
+-----
+
+####  Aureth  
+##### 272#       发表于 2021-7-7 11:17
+
+
+ 本帖最后由 Aureth 于 2021-7-7 11:22 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51868558&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-7 10:01</a>
+
+漏了一条，还要刷专属，专属卡有专属技能</blockquote>
+是的。所以尽量带手上的强力SP角去拍照片比较好（膜拜大佬，我还没刷出来过专属技能
+
+刚注意到拍出来的照片编成可能的角色好像洗不了，看来只能继续拍照直到拍出来为止了……
+
+
+-----
+
+####  xiongxingyu  
+##### 273#       发表于 2021-7-7 12:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51868671&amp;ptid=2009419" target="_blank">百变小樱 发表于 2021-7-7 10:13</a>
+
+照片品质升级和p等级挂钩</blockquote>
+那还好，看来高级底片只是能越级出照片，底子好的低品质照片还能救。
+
+
+-----
+
+####  yuugi  
+##### 274#       发表于 2021-7-7 14:51
+
+
+ 本帖最后由 yuugi 于 2021-7-7 17:07 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/144946bn2zguddxdk8nvzn.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-07-15-39-54-409_game.qualiarts.idolypride.jpg</strong> (285.92 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-7 14:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/07/144946njvwg6xuwthkjpzp.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-07-15-47-12-703_game.qualiarts.idolypride.jpg</strong> (300.5 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-7 14:49 上传
+
+
+170和#23过了，重点是照片洗精神和升级装备
+
+
+171又是蓝队，要卡到80了
+
+
+-----
+
+####  sakilin2013  
+##### 275#       发表于 2021-7-7 18:29
+
+
+今天芽衣生日，除了开头牧野祝贺外，其他人home待机时也会有对芽衣的特殊语音，还挺细的
+
+
+-----
+
+####  terry666  
+##### 276#       发表于 2021-7-7 18:53
+
+
+<blockquote>xiongxingyu 发表于 2021-7-7 09:48
+卧槽，照片这个真的是天坑啊，今天拿送的4星交卷拍了2张，出了一张90级的4星照片然后我回去折腾了一 ...</blockquote>
+升品质的上限取决于你自己的玩家等级啊，等级高了就能继续升了。这游戏很多内容都是要等级和进度解锁的。
+
+
+-----
+
+####  xiongxingyu  
+##### 277#       发表于 2021-7-8 08:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51875464&amp;ptid=2009419" target="_blank">terry666 发表于 2021-7-7 18:53</a>
+
+升品质的上限取决于你自己的玩家等级啊，等级高了就能继续升了。这游戏很多内容都是要等级和进度解锁的。 ...</blockquote>
+主要是之前低级胶卷出的照片都低于等级上限没注意，高级胶卷可以出8、90级的照片
+
+
+-----
+
+####  伊布桑  
+##### 278#         楼主| 发表于 2021-7-8 12:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/216.png" referrerpolicy="no-referrer">没有樱被20#双sp图卡死了。。。感觉没招了只能等
+
+
+<img src="https://img.saraba1st.com/forum/202107/08/120259fp244yk3iao72s4d.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_20210708-112335.jpg</strong> (495.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-8 12:02 上传
+
+
+-----
+
+####  yuugi  
+##### 279#       发表于 2021-7-8 14:12
+
+
+ 本帖最后由 yuugi 于 2021-7-8 19:34 编辑 
+
+#24过了
+
+塔依旧停在171、#25-7
+
+没80+完全无理了
+
+<img src="https://img.saraba1st.com/forum/202107/08/193026r7oovz6vvqnxzz6b.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-08-20-27-03-482_game.qualiarts.idolypride.jpg</strong> (407.48 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-8 19:30 上传
+
+
+-----
+
+####  小倉朝日  
+##### 280#       发表于 2021-7-8 19:38
+
+
+这3d人物还会ry，特别是这期两个水着
+
+
+-----
+
+####  yuugi  
+##### 281#       发表于 2021-7-9 08:48
+
+
+第一章看完了，真就25话，讲了两队加入剧情，挖了个要对抗邪恶组织的大坑
+
+
+难道mana是被干掉的
+
+
+-----
+
+####  404489039  
+##### 282#       发表于 2021-7-9 09:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51888454&amp;ptid=2009419" target="_blank">小倉朝日 发表于 2021-7-8 19:38</a>
+这3d人物还会ry，特别是这期两个水着</blockquote>
+主机界面切到3个人训练的画面就很明显
+
+
+-----
+
+####  皮卡丘跑快快  
+##### 283#       发表于 2021-7-9 11:07
+
+
+问一下 照片洗哪些属性比较好
+
+
+-----
+
+####  yuugi  
+##### 284#       发表于 2021-7-9 12:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51895035&amp;ptid=2009419" target="_blank">皮卡丘跑快快 发表于 2021-7-9 11:07</a>
+
+问一下 照片洗哪些属性比较好</blockquote>
+精神必须有
+
+
+-----
+
+####  sodah  
+##### 285#       发表于 2021-7-9 13:27
+
+
+照片质量跟手动拍或者自动拍有关吗？
+
+
+-----
+
+####  yuugi  
+##### 286#       发表于 2021-7-9 13:35
+
+
+ 本帖最后由 yuugi 于 2021-7-9 13:58 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51897032&amp;ptid=2009419" target="_blank">sodah 发表于 2021-7-9 13:27</a>
+
+照片质量跟手动拍或者自动拍有关吗？</blockquote>
+无关，就是个自定义画面的抽卡
+
+
+------------
+
+
+#25-7，反属性队伍的突破口找到了，80级后，单点升级樱王，82级樱王已经不是惨败
+
+
+-----
+
+####  Aureth  
+##### 287#       发表于 2021-7-10 08:56
+
+
+ 本帖最后由 Aureth 于 2021-7-10 08:59 编辑 
+
+没有伊吹差点卡死在180了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">最近过关队的记录都有伊吹，体力消耗不起…
+
+发完靠SP暴击过了
+
+
+—— 来自 OnePlus KB2000, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yuugi  
+##### 288#       发表于 2021-7-10 09:46
+
+
+<img src="https://img.saraba1st.com/forum/202107/10/094517x6u81c1ez1boo0a1.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-10-07-58-13-360_game.qualiarts.idolypride.jpg</strong> (92.98 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-10 09:45 上传
+
+
+抽到二星了
+
+
+-----
+
+####  heliosphere  
+##### 289#       发表于 2021-7-10 09:49
+
+
+爬了爬楼没看到有人说，就建了个偶像荣耀新群，这游戏刚开也没多久，都还是新人，求大佬们来热闹热闹<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer"> 群号：711290213
+
+
+-----
+
+####  pansherry  
+##### 290#       发表于 2021-7-10 19:17
+
+
+<img src="https://tva2.sinaimg.cn/large/771ca9d1gy1gsc2i7vgraj20u80jvjv8.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax4.sinaimg.cn/large/771ca9d1gy1gsc2igp2h3j206f039dgj.jpg" referrerpolicy="no-referrer">
+<img src="https://tvax2.sinaimg.cn/large/771ca9d1gy1gsc2iqur83j2081038q4g.jpg" referrerpolicy="no-referrer">
+
+
+大家就。。。乐呵一下<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  ViviR  
+##### 291#       发表于 2021-7-10 19:25
+
+
+老株式会社了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  兰开夏  
+##### 292#       发表于 2021-7-10 19:29
+
+
+这玩意真的和afk一样的么
+
+
+-----
+
+####  yuugi  
+##### 293#       发表于 2021-7-10 22:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51912005&amp;ptid=2009419" target="_blank">兰开夏 发表于 2021-7-10 19:29</a>
+
+这玩意真的和afk一样的么</blockquote>
+是的，这游戏游戏进行方式基本一致的，不少系统有参考
+
+
+-----------
+
+
+仔细看了公告，12号的维护，使卡池和活动提前2小时结束
+
+
+-----
+
+####  404489039  
+##### 294#       发表于 2021-7-10 22:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51911883&amp;ptid=2009419" target="_blank">pansherry 发表于 2021-7-10 19:17</a>
+大家就。。。乐呵一下</blockquote>
+全世界的有限公司也是同一个祖宗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 295#       发表于 2021-7-11 04:58
+
+
+ 本帖最后由 yuugi 于 2021-7-11 05:03 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/11/045515vceag0gf99951m9x.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-11-05-33-01-374_game.qualiarts.idolypride.jpg</strong> (191.81 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-11 04:55 上传
+
+
+#25过了，最后一块拼图是4星，抽到换上试下居然过了
+
+
+-----
+
+####  xiongxingyu  
+##### 296#       发表于 2021-7-11 11:13
+
+
+油管上看到视频才发现，前几天芽衣生日不光有特殊的登录事件和电话事件，全员放看板都有特殊语音，这游戏在这种奇奇怪怪的细节上倒是很用心啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  伊布桑  
+##### 297#         楼主| 发表于 2021-7-11 13:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51917694&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-7-11 11:13</a>
+
+油管上看到视频才发现，前几天芽衣生日不光有特殊的登录事件和电话事件，全员放看板都有特殊语音，这游戏在 ...</blockquote>
+全员语音我有逐个听过，电话事件倒是没遇到，不知道有什么触发条件。
+
+不过只有17个人还是比较好做的，偶像大师人多很难逐个做。
+
+
+-----
+
+####  pansherry  
+##### 298#       发表于 2021-7-11 13:24
+
+
+7号当天有bug，很多人没收到生日电话，后来运营修了，我反正是9号在芽衣电话履历里看到生日来电了
+
+—— 来自 samsung SM-G9700, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  yuugi  
+##### 299#       发表于 2021-7-11 13:29
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51918818&amp;ptid=2009419" target="_blank">伊布桑 发表于 2021-7-11 13:07</a>
+
+全员语音我有逐个听过，电话事件倒是没遇到，不知道有什么触发条件。
+
+不过只有17个人还是比较好做的，偶 ...</blockquote>
+特殊电话，好像是时间到了就会自动弹出，我是遇到了，当时挺惊奇的，发了上来但好像大家都没反应
+
+
+没遇的到好像可以在历史记录里听到
+
+
+-----
+
+####  kos_mos  
+##### 300#       发表于 2021-7-11 14:43
+
+
+event明天就结束了现在马内甲lv才25，还领不了奖励，发传单，一点死机。
+
+
+
+
+-----
+
+####  两个路人  
+##### 301#       发表于 2021-7-11 15:03
+
+
+<blockquote>kos_mos 发表于 2021-7-11 14:43
+event明天就结束了现在马内甲lv才25，还领不了奖励，发传单，一点死机。</blockquote>
+已经被活动4关boss按在地上摩擦两天了，抢不过技能，短时间又凹不出等级，真就是放置随缘吧
+
+
+-----
+
+####  terry666  
+##### 302#       发表于 2021-7-11 16:02
+
+
+官方真佛系啊，明天就维护了，连卡池情报都没。不会一个月一次卡池，帮玩家省钱吧
+
+
+-----
+
+####  635750448  
+##### 303#       发表于 2021-7-11 19:24
+
+
+<img src="https://img.saraba1st.com/forum/202107/11/192311csnsmnss3exgmle2.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (100.35 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-11 19:23 上传
+
+
+这新卡池不就来了吗
+
+想屯到限定再抽<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 304#       发表于 2021-7-11 19:56
+
+
+这游戏卡池这么自由的吗？先来一波夏活和两个限定的泳装，然后活动结束了之后突然又来了个泳装，还告诉我这个是常驻的。我突然有点跟不上运营的思路了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  魔法使い2019  
+##### 305#       发表于 2021-7-11 19:58
+
+
+为什么这么多泳装， 因为夏季吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  sodah  
+##### 306#       发表于 2021-7-11 22:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51897173&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-9 13:35</a>
+
+无关，就是个自定义画面的抽卡
+
+
+------------</blockquote>
+原来如此，顺便问下，现在卡在100层了，技能根本放不出是因为精神不够的缘故吗？
+
+
+-----
+
+####  kos_mos  
+##### 307#       发表于 2021-7-11 23:36
+
+
+不要，我还没拿到遥子的水着<img src="https://static.saraba1st.com/image/smiley/face2017/117.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yuugi  
+##### 308#       发表于 2021-7-11 23:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51925197&amp;ptid=2009419" target="_blank">sodah 发表于 2021-7-11 22:46</a>
+
+原来如此，顺便问下，现在卡在100层了，技能根本放不出是因为精神不够的缘故吗？ ...</blockquote>
+根本原因是属性等级不够，对战精神要求不高的
+
+
+-----
+
+####  xiongxingyu  
+##### 309#       发表于 2021-7-12 08:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51925787&amp;ptid=2009419" target="_blank">yuugi 发表于 2021-7-11 23:53</a>
+
+根本原因是属性等级不够，对战精神要求不高的</blockquote>
+我记得精神是固定的，只能靠装备和公会staff那里加，当然100层是不难，属性上去了miss几个也可以暴力突破，但像23关最后小关那样精神要求大的如果不主动去叠，技能可能连一半都开不出吧
+
+
+-----
+
+####  yuugi  
+##### 310#       发表于 2021-7-12 08:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51927568&amp;ptid=2009419" target="_blank">xiongxingyu 发表于 2021-7-12 08:21</a>
+
+我记得精神是固定的，只能靠装备和公会staff那里加，当然100层是不难，属性上去了miss几个也可以暴力突破 ...</blockquote>
+我说不高是相对于普通关
+
+与npc对战比较容易被忽略的属性是体力
+
+当精神达标时可尝试换体力装备
+
+
+                                       

@@ -7271,3 +7271,19 @@ deen唱的吗？</blockquote>
 
 
                                                  
+
+-----
+
+####  鳗鱼提灯  
+##### 2039#       发表于 2021-7-11 17:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51902762&amp;ptid=1860328" target="_blank">金子一马 发表于 2021-7-9 20:35</a>
+
+幻想传说的op是重置版的时候出的，sfc版的游戏都已经出了很久了</blockquote>
+难怪op画面这么好。不讲画面，歌很好，算是我听得最多的游戏歌曲。
+
+另外，我想起来，我说的游戏体验好像就是赛博朋克2077。玩家、媒体的多认为平庸，我很却痴迷于扮演v在夜之城闯荡。
+
+
+                                                 
