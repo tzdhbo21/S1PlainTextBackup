@@ -15591,3 +15591,86 @@ syl，这个月扔2个翻唱的话，8月2日就没翻唱了啊，不知道会�
 
 
                                                  
+
+-----
+
+####  GRMeA104  
+##### 19423#       发表于 2021-7-12 17:07
+
+
+就算有分手企划也只是节目效果的一环,你麻毕业之前是甩不开这个担子了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 19424#       发表于 2021-7-12 17:08
+
+
+所以五元在本土是什么情况..
+
+
+-----
+
+####  ashero  
+##### 19425#       发表于 2021-7-12 17:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51933460&amp;ptid=1973472" target="_blank">呓亘 发表于 2021-7-12 17:08</a>
+
+所以五元在本土是什么情况..</blockquote>
+虹男扛把子之一 女v自己贴过来很正常
+
+
+-----
+
+####  T_Hb  
+##### 19426#       发表于 2021-7-12 17:13
+
+
+就知道她要打那段字，一堆人就直接打好了给她复制<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 19427#       发表于 2021-7-12 17:15
+
+
+这两首歌花粉那会儿录的，所以难顶
+
+
+-----
+
+####  GRMeA104  
+##### 19428#       发表于 2021-7-12 17:19
+
+
+女V倒贴不就是虹男乃至虹人所吹的男女互动的一大看点,看自己习不习惯了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19429#       发表于 2021-7-12 17:28
+
+
+两首都是花粉期间录的？是指路标和旅人吧（
+
+
+那下首合唱这么说应该会好一点（？
+
+
+（突然想起来好像你咩姐还欠着一个舞元合唱来着，从去年欠到现在了，我都差点忘了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19430#       发表于 2021-7-12 17:30
+
+
+要么偶像拉屎都是草莓味的一碰男人就化，要么跪下来给男人舔吊，嘻嘻<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+                                                 
