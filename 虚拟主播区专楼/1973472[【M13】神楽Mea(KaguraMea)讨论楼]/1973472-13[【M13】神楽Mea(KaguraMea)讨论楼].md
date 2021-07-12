@@ -15759,3 +15759,198 @@ syl，这个月扔2个翻唱的话，8月2日就没翻唱了啊，不知道会�
 
 
                                                  
+
+-----
+
+####  时间在我手中  
+##### 19440#       发表于 2021-7-12 18:37
+
+
+我快到家了这人忽然连唱，看来要下了，寄
+
+
+
+
+-----
+
+####  T_Hb  
+##### 19441#       发表于 2021-7-12 18:41
+
+
+ 本帖最后由 T_Hb 于 2021-7-12 18:49 编辑 
+
+拿曲四连
+
+
+-----
+
+####  yywzjsw  
+##### 19442#       发表于 2021-7-12 18:47
+
+
+日刚刚看，就要下了？
+
+
+-----
+
+####  古战场亡魂  
+##### 19443#       发表于 2021-7-12 18:50
+
+
+ 本帖最后由 古战场亡魂 于 2021-7-12 18:52 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">下个锤子，无情连唱，high起来了。感觉三个小时没问题吧。
+
+
+-----
+
+####  T_Hb  
+##### 19444#       发表于 2021-7-12 18:53
+
+
+high完就要下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19445#       发表于 2021-7-12 18:53
+
+
+真要下了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19446#       发表于 2021-7-12 18:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer"><img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19447#       发表于 2021-7-12 18:54
+
+
+感觉她又要去吃饭了
+
+
+-----
+
+####  yywzjsw  
+##### 19448#       发表于 2021-7-12 18:55
+
+
+今晚还播不
+
+
+-----
+
+####  GRMeA104  
+##### 19449#       发表于 2021-7-12 18:56
+
+
+明天也会早播,什么勤奋主播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19450#       发表于 2021-7-12 18:56
+
+
+ 本帖最后由 路人庚 于 2021-7-12 19:03 编辑 
+
+明天联动完了之后可能也播，如果播的话也会早点开
+
+（诶？可能是听错了，那应该说的是联动前早点开播吧
+
+
+-----
+
+####  T_Hb  
+##### 19451#       发表于 2021-7-12 18:56
+
+
+ 本帖最后由 T_Hb 于 2021-7-12 18:59 编辑 
+
+明天联动不是23点么，还能再播<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Dualist彩  
+##### 19452#       发表于 2021-7-12 18:57
+
+
+那晚上干啥啊<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  专业划水人员  
+##### 19453#       发表于 2021-7-12 18:59
+
+
+没听够啊！野男人能不能多留点时间给小麻陪陪阿宅
+
+
+-----
+
+####  2014720  
+##### 19454#       发表于 2021-7-12 19:03
+
+
+【神楽めあ 推特回复】
+内容：@Gwelu_os_gar おめでとう！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+次は将来のお嫁さんの「めあ」って覚えてもらいたいね！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！！
+时间：2021-07-12 19:01:54 UTC+08:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19455#       发表于 2021-7-12 19:04
+
+
+ 本帖最后由 路人庚 于 2021-7-12 19:12 编辑 
+
+那不行，今天喉咙已经开始疼了，陪阿宅是不可能了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+syl，久违的圭利儿子，不知道圭利会不会真教他儿子读一下“咩阿”发出来<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19456#       发表于 2021-7-12 19:14
+
+
+那孩子他妈会怎么想呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19457#       发表于 2021-7-12 19:18
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孩子他妈估计不会有啥意见（毕竟圭利也是个直播问孩子他妈乳首颜色的狠人
+
+
+-----
+
+####  2014720  
+##### 19458#       发表于 2021-7-12 19:19
+
+
+她不能就是这孩子妈嘛<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+                                                
