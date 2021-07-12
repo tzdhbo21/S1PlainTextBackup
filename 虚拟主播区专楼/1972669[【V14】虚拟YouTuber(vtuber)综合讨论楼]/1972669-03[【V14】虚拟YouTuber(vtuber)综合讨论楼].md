@@ -15184,3 +15184,93 @@ shiba的近况报告，手术后症状复旧，现在靠吃药控制
 
 
                                                  
+
+-----
+
+####  OldGlory  
+##### 4121#       发表于 2021-7-12 19:24
+
+
+虹人别嚣张，彩虹组也有这种事的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 4122#       发表于 2021-7-12 19:35
+
+
+私联真开心啊
+
+
+-----
+
+####  noHentai  
+##### 4123#       发表于 2021-7-12 19:59
+
+
+正统NTR作品苦主发言，这么纯的还挺少见的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/b1afeb25d7b78c2539cd2f8407d2c5e3/QQ图片20210712195850.png" referrerpolicy="no-referrer">
+<img src="https://p.sda1.dev/2/f33b276ad2a5812a4e2277593c9cee85/QQ图片20210712195856.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 4124#       发表于 2021-7-12 20:09
+
+
+kmm：老娘还不是混得好好的
+
+
+-----
+
+####  兔耳僵尸  
+##### 4125#       发表于 2021-7-12 20:10
+
+
+这私联是线下的吗？
+
+
+-----
+
+####  FCCHua  
+##### 4126#       发表于 2021-7-12 20:11
+
+
+ 本帖最后由 FCCHua 于 2021-7-12 20:17 编辑 
+
+是线上一起打游戏吧，除了字幕组的事开始的起因还有什么她参加未来明节目自爆未成年时交的几个前男友，这也是我最不能理解的破防点<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  εRemastered  
+##### 4127#       发表于 2021-7-12 20:21
+
+
+前男友事件有点不快，字幕组+氪佬破防这些毫无波澜  
+
+
+甚至觉得373要是能转型坏女人还更带感点<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  魔法使い2019  
+##### 4128#       发表于 2021-7-12 20:37
+
+
+礼仪性<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">一下
+
+
+-----
+
+####  qq845629713  
+##### 4129#       发表于 2021-7-12 20:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer"> 椎名男朋友事件之后我就再也不当男友粉了
+
+
+                                                 
