@@ -6417,3 +6417,18 @@ SOP就在转角，Hasan亮出了自己的推特号
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 491#       发表于 2021-7-12 08:50
+
+
+ 本帖最后由 luoyianwu 于 2021-7-12 08:57 编辑 
+<blockquote>We’re excited to announce that the Abandoned Trailers App will be available to preload free of charge for all PS5 users on July 29 with the introduction available on August 10 followed by the first trailer later in August.
+[https://twitter.com/BBGameStudios/status/1414364452321992706](https://twitter.com/BBGameStudios/status/1414364452321992706)</blockquote>
+7/29预载，8/10解锁，8月内公布第一个trailer
+[容量：1.28GB](https://twitter.com/PlaystationSize/status/1414272670485602313)
+
+
+                                                 
