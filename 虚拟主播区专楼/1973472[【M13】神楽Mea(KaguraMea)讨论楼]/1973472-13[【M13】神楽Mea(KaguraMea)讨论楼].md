@@ -16147,3 +16147,54 @@ syl，久违的圭利儿子，不知道圭利会不会真教他儿子读一下�
 
 
                                                 
+
+-----
+
+####  T_Hb  
+##### 19476#       发表于 2021-7-12 21:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你麻麻的，挂着干其他的去了
+
+
+-----
+
+####  JY要塞  
+##### 19477#       发表于 2021-7-12 21:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">你麻麻的，我去隔壁miu找肉体厨代餐了
+
+
+-----
+
+####  古战场亡魂  
+##### 19478#       发表于 2021-7-12 22:05
+
+
+ 本帖最后由 古战场亡魂 于 2021-7-12 22:15 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/115.gif" referrerpolicy="no-referrer">tm的，14人人狼看着死了7个了，我打了个盹，第二局了，没搞明白。算是理解大家为什么喜欢狼人视角了。
+
+
+-----
+
+####  T_Hb  
+##### 19479#       发表于 2021-7-12 22:10
+
+
+这破回音麦终于修好了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+回的我脑壳疼
+
+
+-----
+
+####  路人庚  
+##### 19480#       发表于 2021-7-12 22:22
+
+
+这游戏居然有新地图了，而且似乎也有游戏内置语音了，更新的蛮多的嘛
+
+
+                                                 

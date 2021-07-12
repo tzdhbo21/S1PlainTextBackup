@@ -5016,3 +5016,18 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  最低人间肥宅  
+##### 1870#       发表于 2021-7-12 22:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51936448&amp;ptid=1963832" target="_blank">红焖菠菜 发表于 2021-7-12 21:27</a>
+珊瑚明明啥都没干还跟着道歉</blockquote>
+卡哇伊 斯国一  工面那塞   珊瑚经典不走心台词
+
+—— 来自 Xiaomi M2007J3SC, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
