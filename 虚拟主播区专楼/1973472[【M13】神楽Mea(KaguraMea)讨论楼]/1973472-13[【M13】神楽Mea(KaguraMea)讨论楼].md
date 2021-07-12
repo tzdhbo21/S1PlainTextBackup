@@ -15415,3 +15415,48 @@ syl，这个月扔2个翻唱的话，8月2日就没翻唱了啊，不知道会�
 
 
                                                  
+
+-----
+
+####  古战场亡魂  
+##### 19408#       发表于 2021-7-12 14:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">节目效果不错啊。
+
+今天这场直播，除了mea，其他三个全部破产一次。
+
+他们玩这游戏就是谁惨就不欺负谁，谁第一就联起手来坑它的平衡性玩法。
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">接下来应该坑mea了。
+
+
+-----
+
+####  古战场亡魂  
+##### 19409#       发表于 2021-7-12 14:32
+
+
+还有十五年，大概还要联动3次。
+
+绿线mea，蓝的舞元，黄的组长，红的兔鞠。
+
+<img src="https://img.saraba1st.com/forum/202107/12/143131wm5rtb9rt2uu8b4k.jpg" referrerpolicy="no-referrer">
+
+
+<strong>360截图20210712143103057.jpg</strong> (50.32 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-12 14:31 上传
+
+
+-----
+
+####  T_Hb  
+##### 19410#       发表于 2021-7-12 14:33
+
+
+打广告了  要跑路了
+
+
+                                                 
