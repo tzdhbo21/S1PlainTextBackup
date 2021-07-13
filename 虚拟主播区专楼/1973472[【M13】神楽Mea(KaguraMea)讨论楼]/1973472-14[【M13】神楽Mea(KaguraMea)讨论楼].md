@@ -1889,3 +1889,538 @@ cheese亲子丼<img src="https://static.saraba1st.com/image/smiley/face2017/169.
 
 
                                                  
+
+-----
+
+####  路人庚  
+##### 19664#       发表于 2021-7-13 21:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">播只狼后能播一下底特律吗，我想看她玩底特律很久了（
+
+
+nmd话题转去喷射战士和dbd了
+
+
+-----
+
+####  T_Hb  
+##### 19665#       发表于 2021-7-13 21:32
+
+
+说到101语气都变了，别次元的游戏<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+她就不能找liver朋友推荐点游戏玩么
+
+
+-----
+
+####  2014720  
+##### 19666#       发表于 2021-7-13 21:33
+
+
+能别吃了吗真是太哈人了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19667#       发表于 2021-7-13 21:34
+
+
+好吧想玩联机游戏，我run了<img src="https://static.saraba1st.com/image/smiley/face2017/140.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  十九号大侠  
+##### 19668#       发表于 2021-7-13 21:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">12点在点个夜宵算了
+
+
+-----
+
+####  T_Hb  
+##### 19669#       发表于 2021-7-13 21:34
+
+
+拉几个朋友联机很好看啊，就是她不去拉人联动
+
+
+-----
+
+####  makourisu-2  
+##### 19670#       发表于 2021-7-13 21:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51948080&amp;ptid=1973472" target="_blank">往世雷书 发表于 2021-7-13 21:29</a>
+感觉这人以这种精神状态摸爬滚打很多年成为成熟的vtuber时候会是个很可怕的角色
+
+—— 来自 S1Fun ...</blockquote>
+这不就是有些人（我就是）最期待的姨化吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19671#       发表于 2021-7-13 21:40
+
+
+ 本帖最后由 T_Hb 于 2021-7-13 21:45 编辑 
+
+这声带胶布有点可爱啊<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer"> 溜了
+
+
+-----
+
+####  rosevalley46  
+##### 19672#       发表于 2021-7-13 21:46
+
+
+她这么生活方式胖不胖另说
+
+牙基本上肯定完蛋了
+
+
+-----
+
+####  T_Hb  
+##### 19673#       发表于 2021-7-13 21:47
+
+
+就爱烂牙 就爱烂牙
+
+
+-----
+
+####  路人庚  
+##### 19674#       发表于 2021-7-13 21:48
+
+
+ 本帖最后由 路人庚 于 2021-7-13 21:49 编辑 
+
+补完牙又是一口美牙，而且30岁之前带牙套矫正也都不是问题，你咩姐完全可以放心作（真全烂了还能种植牙可以救一救
+
+
+-----
+
+####  Klience  
+##### 19675#       发表于 2021-7-13 21:59
+
+
+算了吧 懒狗自己都不去steam找游戏玩的<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19676#       发表于 2021-7-13 22:00
+
+
+ 本帖最后由 2014720 于 2021-7-13 22:03 编辑 
+
+才看见封面…不是这nm都要放个五元？
+
+艹我之前还以为就北小路呢，润了润了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19677#       发表于 2021-7-13 22:04
+
+
+别掐你那萌音了，想打人了
+
+
+-----
+
+####  路人庚  
+##### 19678#       发表于 2021-7-13 22:14
+
+
+这种棉花糖，苔苔也许可以用到下个世纪
+
+
+（苔苔：I can do this all day
+
+
+-----
+
+####  咸鱼渣  
+##### 19679#       发表于 2021-7-13 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51948245&amp;ptid=1973472" target="_blank">rosevalley46 发表于 2021-7-13 21:46</a>
+
+她这么生活方式胖不胖另说
+
+牙基本上肯定完蛋了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不正好没牙么（
+
+
+-----
+
+####  Dualist彩  
+##### 19680#       发表于 2021-7-13 22:30
+
+
+彩虹神乐咩来了<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  路人庚  
+##### 19681#       发表于 2021-7-13 22:36
+
+
+ 本帖最后由 路人庚 于 2021-7-13 22:37 编辑 
+
+草，关键时刻我又卡了
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不得不说，阿姨洗铁路game北小路还是更会一点，咩姐这边メスガキ味道太重了
+
+
+-----
+
+####  T_Hb  
+##### 19682#       发表于 2021-7-13 22:36
+
+
+我已经把自己叉出去了
+
+
+-----
+
+####  Dualist彩  
+##### 19683#       发表于 2021-7-13 22:36
+
+
+我真是草了
+
+
+-----
+
+####  2014720  
+##### 19684#       发表于 2021-7-13 22:38
+
+
+噶吃啊噶吃，何必折磨自己呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 19685#       发表于 2021-7-13 22:38
+
+
+...战况如何)<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19686#       发表于 2021-7-13 22:39
+
+
+大家咬牙切齿的这个何必呢。
+
+
+-----
+
+####  T_Hb  
+##### 19687#       发表于 2021-7-13 22:41
+
+
+欲求不满
+
+
+-----
+
+####  路人庚  
+##### 19688#       发表于 2021-7-13 22:42
+
+
+ 本帖最后由 路人庚 于 2021-7-13 22:44 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舞元前几天给苔苔连发消息说想和苔苔联动那个扔骰子的游戏（用骰子扔出欧金金几个字的游戏），所以苔苔跑来问咩姐怎么看，可还行
+
+
+棉花糖：舞元你不觉得你很受女性欢迎吗？舞元：那你跟我换一下啊
+
+凡尔赛发言时间<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19689#       发表于 2021-7-13 22:54
+
+
+ 本帖最后由 路人庚 于 2021-7-13 23:01 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">草，我居然有一瞬间以为你咩姐会认真回答这个厕所的问题，是我大意了，肯定是你咩姐最近很少聊荤段子的错（
+
+
+厕所棉花糖这一段属实kimo了，苔苔还差点跑偏（<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19690#       发表于 2021-7-13 23:10
+
+
+结束了，最后咩姐提了一句啥时候再来一场舞元裁判啊，埋伏笔了属于是
+
+
+前半的定式棉花糖不太行，后面的稍微好了点
+
+
+-----
+
+####  2014720  
+##### 19691#       发表于 2021-7-13 23:14
+
+
+看样子今晚雷点挺多的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19692#       发表于 2021-7-13 23:20
+
+
+插播个题外话，上海部分区域大停电，现在b站网页直接404了，应该是机房挂了，s1这边似乎也有牵连（不知道啥时候能稳定
+
+
+-----
+
+####  时间在我手中  
+##### 19693#       发表于 2021-7-13 23:23
+
+
+你楼要有独角兽那个亲亲就能鲨完了
+
+
+-----
+
+####  路人庚  
+##### 19694#       发表于 2021-7-13 23:26
+
+
+亲亲不是早就相互玩过了吗，威力减少50%啊（
+
+
+倒是厕所的荤段子让我有点意外，不过也可以算是之前玩过的火车便当梗，总的来说今天玩了一大堆却似乎没什么新内容<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19695#       发表于 2021-7-13 23:28
+
+
+我好像看了直播，又好像什么都没看，总结：寄！
+
+
+-----
+
+####  路人庚  
+##### 19696#       发表于 2021-7-13 23:46
+
+
+【犬山たまき 推特发布】
+
+次回の生放送は15日23時～ #めあたま逆凸地獄
+
+お楽しみに
+
+
+15号跟苔苔有逆凸企划（没看舞元的时间表，但估计他又要来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19697#       发表于 2021-7-13 23:48
+
+
+s1好了
+
+
+-----
+
+####  呓亘  
+##### 19698#       发表于 2021-7-13 23:48
+
+
+emmmmm 看你楼的评论 我感觉幸好我没看直播
+
+
+-----
+
+####  T_Hb  
+##### 19699#       发表于 2021-7-13 23:49
+
+
+是期待苔苔好活的我的错
+
+
+-----
+
+####  呓亘  
+##### 19700#       发表于 2021-7-13 23:57
+
+
+五元去死五元去死五元去死五元去死
+
+
+-----
+
+####  呓亘  
+##### 19701#       发表于 2021-7-13 23:57
+
+
+五元去死五元去死五元去死五元去死
+
+
+-----
+
+####  呓亘  
+##### 19702#       发表于 2021-7-13 23:59
+
+
+苔苔去死苔苔去死苔苔去死苔苔去死苔苔去死
+
+
+-----
+
+####  路人庚  
+##### 19703#       发表于 2021-7-14 00:00
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">发完病如果可以的话还是编辑了罢，看着有点哈人（
+
+
+-----
+
+####  呓亘  
+##### 19704#       发表于 2021-7-14 00:01
+
+
+等舞咩不再联动的时候我再编辑
+
+
+-----
+
+####  makourisu-2  
+##### 19705#       发表于 2021-7-14 00:01
+
+
+何必呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hu01020304  
+##### 19706#       发表于 2021-7-14 00:01
+
+
+就我很喜欢这个联动吗……我觉得非常好玩
+
+
+-----
+
+####  Ky·Kiske  
+##### 19707#       发表于 2021-7-14 00:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">还好我没看
+
+
+-----
+
+####  路人庚  
+##### 19708#       发表于 2021-7-14 00:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51949401&amp;ptid=1973472" target="_blank">hu01020304 发表于 2021-7-14 00:01</a>
+
+就我很喜欢这个联动吗……我觉得非常好玩</blockquote>
+不止你一个，还是有很多人觉得非常好玩的
+
+
+-----
+
+####  T_Hb  
+##### 19709#       发表于 2021-7-14 00:03
+
+
+喜欢很正常，不喜欢也很正常
+
+不过发病的就还是早点睡吧
+
+
+-----
+
+####  时间在我手中  
+##### 19710#       发表于 2021-7-14 00:08
+
+
+我单纯觉得无聊，也可能和我奔波一天大脑拒绝理解有关
+
+还要跑三天，周末还有事，烦
+
+
+
+
+-----
+
+####  2014720  
+##### 19711#       发表于 2021-7-14 00:11
+
+
+ 本帖最后由 2014720 于 2021-7-14 00:13 编辑 
+
+不想看已经一看阵容就知道的节目
+
+今天我还小期待了一下和北小路的
+
+结果把五元拉过来给搞成烂梗地狱了<img src="https://static.saraba1st.com/image/smiley/face2017/090.png" referrerpolicy="no-referrer">
+
+你麻现在带五元翻来覆去就是那点东西，可能是我沾点独角兽吧，但看多了真的无聊
+
+
+-----
+
+####  T_Hb  
+##### 19712#       发表于 2021-7-14 00:12
+
+
+我急需一个高质量歌回或者tc软咩
+
+
+-----
+
+####  呓亘  
+##### 19713#       发表于 2021-7-14 00:18
+
+
+404是不指望了 希望沙滨女人在TC多整点花活 反正现在可以烤和剪
+
+
+-----
+
+####  T_Hb  
+##### 19714#       发表于 2021-7-14 00:21
+
+
+tc哪有花活，有软咩我就满足了
+
+
+                                               

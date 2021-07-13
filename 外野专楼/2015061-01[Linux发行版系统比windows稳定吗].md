@@ -1358,3 +1358,130 @@ N卡就别折腾 Linux 了，N 对社区没兴趣，自己维护的驱动又有�
 
 
                                                  
+
+-----
+
+####  citrus  
+##### 104#       发表于 2021-7-13 21:59
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51948264&amp;ptid=2015061" target="_blank">dovahkiin 发表于 2021-7-13 21:48</a>
+
+N卡就别折腾 Linux 了，N 对社区没兴趣，自己维护的驱动又有各种问题，Xorg 都各种毛病，更不要说 waylan ...</blockquote>
+调参炼丹不是N卡+Linux能玩？
+
+
+-----
+
+####  dovahkiin  
+##### 105#       发表于 2021-7-13 22:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51948355&amp;ptid=2015061" target="_blank">citrus 发表于 2021-7-13 21:59</a>
+
+调参炼丹不是N卡+Linux能玩？</blockquote>
+炼丹又不用图形化，对着 Shell 修仙就行了，我说的是 GUI 啊
+
+
+-----
+
+####  eva02eva02  
+##### 106#       发表于 2021-7-13 22:51
+
+
+但是实际上用下来我所有的linux发行版无论安装什么包都没有遇到过版本兼容性问题，无论支不支持<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alann  
+##### 107#       发表于 2021-7-13 23:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51948355&amp;ptid=2015061" target="_blank">citrus 发表于 2021-7-13 21:59</a>
+
+调参炼丹不是N卡+Linux能玩？</blockquote>
+我就是用来炼丹的，而且只习惯图形界面，wayland用不了xorg+kde也凑合用。
+
+
+-----
+
+####  miyamotoruri  
+##### 108#       发表于 2021-7-14 00:28
+
+
+&gt; C/C++ Runtime
+
+这两个要分开看
+
+libstdc++ 那个问题不大，可以静态链接的 (还有 gcc_s)；新一点的语言都看到了这个部署问题，基本都是一个静态可执行程序就发布了（rust/golang）但默认还是会依赖 glibc
+
+而 glibc 就不是给你静态用的 (NSS)，实属兼容性巨坑
+
+musl 就算了，我记得 locale 都是残的。而且它的内存分配器有性能问题，ripgrep 就踩过坑换了 jemalloc
+
+但是我觉得也不用着急这个了，以后新的应用都给你包个 electron …… 这年头谁还写 GTK/Win32/QT 啊…… 基本也就老应用维护还在用了
+
+
+&gt; 发行版, DE, WM
+
+新手程序员可以从 KDE 开始，我觉得 Gnome 真的垃圾
+
+老手程序员可以 arch + i3（其实我不太喜欢 manjaro
+
+非开发用 Linux 桌面干啥，打页游还是足球经理……
+
+
+&gt; 稳定性 (Linux 桌面版，不算安卓)
+
+折腾时容易玩崩的可能性：Linux &gt;&gt; Windows
+
+正常使用时系统崩溃的可能性：Windows （蓝屏、重启） &gt; Linux ~= 0
+
+幸福倒计时：Linux &gt;&gt; Windows
+
+
+正常使用时 GUI 应用崩溃的可能性：WIndows （应用无响应） &gt; Linux （X11 比较那啥，但总体还是比 Windows 无响应少）
+
+GUI 应用的数量和功能性：Windows &gt;&gt; Linux
+
+
+正常使用时遇到简单问题，凭自己解决的方便程度：Linux &lt; Windows （主要是用户量大、网上教程多、求助方便，如果英文阅读能力有限就更是这样了）
+
+正常使用时遇到复杂问题，凭自己解决的可能性：Linux （大不了自己重新编译一下/改改代码） &gt; Windows
+
+
+-----
+
+####  QShen  
+##### 109#       发表于 2021-7-14 01:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51943619&amp;ptid=2015061" target="_blank">tangboyun 发表于 2021-7-13 14:42</a>
+
+先让微软把每年更新的Vc++ runtime redistributable统一下，这两个一个性质的，如果不是有Steam这类平台， ...</blockquote>
+要在两种里面选一个的话，我宁愿选择微软的方案。至少哪怕是最新的UCRT，在XP，7上也是能跑的。我只需要把redistributable打包进安装包就行。
+
+
+毕竟时代已经不一样了，安装包体积小，安装后占用硬盘空间小已经没有太多人在意了
+
+
+-----
+
+####  QShen  
+##### 110#       发表于 2021-7-14 01:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51943704&amp;ptid=2015061" target="_blank">linux40 发表于 2021-7-13 14:51</a>
+
+默认用musl的活跃发行版本有一些了，void、alpine啥的。</blockquote>
+我已经身体力行，把个人用的发行版改成Alpine了。虽说也有不少坑，包的丰富程度也比不上几个大发行版，但是我用的很开心。
+
+
+现在就看有没有一个发行版，可以用libc++代替libstdc++了。目前有人在搞，但是还不是很成熟和活跃。
+
+
+LLVM也在做自己的libc，但是目前离用上还遥遥无期
+
+
+                                                 

@@ -15595,3 +15595,29 @@ NIJISANJI Official
 
 
                                                  
+
+-----
+
+####  Junchoon  
+##### 4152#       发表于 2021-7-13 22:58
+
+
+B站炸了.......
+
+
+我想起之前油管炸了的时候几乎所有的V都有反应，唯独凛前辈一脸淡定地继续播FF14，仿佛无事发生.......
+
+
+-----
+
+####  rzrbtk  
+##### 4153#       发表于 2021-7-14 00:23
+
+
+[【歌ってみた】いらないツインテール /＝LOVE (cover)【東堂コハク＆周央サンゴ / にじさんじ】](https://www.youtube.com/watch?v=gug73ci3b5w)
+
+
+吵死啦<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">！
+
+
+                                                 
