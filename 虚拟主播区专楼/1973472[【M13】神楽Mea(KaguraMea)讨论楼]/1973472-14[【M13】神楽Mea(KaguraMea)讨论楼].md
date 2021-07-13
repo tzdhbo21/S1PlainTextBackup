@@ -809,3 +809,78 @@ QQ图片20210713094012.png
 
 
                                                  
+
+-----
+
+####  甘栗No.007  
+##### 19566#       发表于 2021-7-13 11:54
+
+
+突然觉得自己特别阳光<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+宅的理由只是单纯的觉得出去玩还没在家舒服
+
+
+-----
+
+####  掉头学姐  
+##### 19567#       发表于 2021-7-13 11:56
+
+
+太胖了很难不宅
+
+
+-----
+
+####  GRMeA104  
+##### 19568#       发表于 2021-7-13 12:11
+
+
+你麻比mix魔怔的粉丝多了去了，但是跳脸次数寥寥可数，民那都很温柔啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19569#       发表于 2021-7-13 12:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/073.png" referrerpolicy="no-referrer">我确实很温柔，如果mixi是对咩阿咩阿是北风，那我对咩阿咩阿就是太阳
+
+
+-----
+
+####  古战场亡魂  
+##### 19570#       发表于 2021-7-13 12:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51942091&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-7-13 12:11</a>
+
+你麻比mix魔怔的粉丝多了去了，但是跳脸次数寥寥可数，民那都很温柔啊 ...</blockquote>
+首先魔怔粉不一定懂日文，其次不是人人都会翻墙，第三日本隔着海。
+
+
+-----
+
+####  T_Hb  
+##### 19571#       发表于 2021-7-13 12:25
+
+
+ 本帖最后由 T_Hb 于 2021-7-13 12:29 编辑 
+
+楼友都开始拟物了<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+不对 财布的本质就是拟物<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 19572#       发表于 2021-7-13 12:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51942134&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-13 12:16</a>
+首先魔怔粉不一定懂日文，其次不是人人都会翻墙，第三日本隔着海。</blockquote>
+不过我倒是想起来一个跟mix想的差不多的粉丝，前两天把所有群退了闭关去了，结果昨天因为被男同感情纠纷卷入又加回来某个群寻求办法，可以说非常爆笑了<img src="https://static.saraba1st.com/image/smiley/face2017/034.png" referrerpolicy="no-referrer">
+
+
+                                                 
