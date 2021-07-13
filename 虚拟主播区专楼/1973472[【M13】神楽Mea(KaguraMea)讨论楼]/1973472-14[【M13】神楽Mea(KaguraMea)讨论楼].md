@@ -503,3 +503,257 @@ mixi这也算是届到了，不过这种宛如小学生时代欺负喜欢女生�
 
 
                                                 
+
+-----
+
+####  makourisu-2  
+##### 19541#       发表于 2021-7-13 09:26
+
+
+害，那就每周都找个时间连麦就完事了<img src="https://static.saraba1st.com/image/smiley/face2017/046.png" referrerpolicy="no-referrer">结果就是她发病观众也发病，大伙互相折磨。
+
+
+-----
+
+####  T_Hb  
+##### 19542#       发表于 2021-7-13 09:29
+
+
+那发大病的还可以嫉妒其他被选到的，变成更病的，本质是脑子的问题，该魔怔怎么都得魔怔，因为他纯粹是在自我感动，和主播干嘛是没啥关系的
+
+
+-----
+
+####  时间在我手中  
+##### 19543#       发表于 2021-7-13 09:31
+
+
+可别了，以前240审判死了几个B还是比较烦的
+
+想这些还不如思考今晚她播什么，按照逻辑该是术曲歌回了？
+
+可惜我要周五才能复活，寄
+
+
+-----
+
+####  T_Hb  
+##### 19544#       发表于 2021-7-13 09:32
+
+
+今天估计心情原因不会单播了，老老实实看苔本吧
+
+
+-----
+
+####  路人庚  
+##### 19545#       发表于 2021-7-13 09:32
+
+
+刚刚习惯性的点开看看她有没有打一打lol散散心，结果发现并没有，sad
+
+
+然后突然想到，mixi肯定不知道她的lol号，不然他铁定不会对“推特回复了几次某个观众”这种事都这么在意<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+lol监控器，永远的驱魔药（被这个想法逗笑了，差点笑出声草
+
+
+-----
+
+####  yywzjsw  
+##### 19546#       发表于 2021-7-13 09:34
+
+
+你麻和谁之间都有堵墙<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">
+
+今晚又是犬山那破台本，之前不要又是5点的歌回<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19547#       发表于 2021-7-13 09:35
+
+
+不如说这人还好不玩lol 某种程度也要感谢lol在本土不温不火<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 19548#       发表于 2021-7-13 09:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51940194&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-13 09:32</a>
+
+刚刚习惯性的点开看看她有没有打一打lol散散心，结果发现并没有，sad
+
+
+然后突然想到，mixi肯定不知道她的lo ...</blockquote>
+话说，她推特回复的不大多数是女粉吗<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19549#       发表于 2021-7-13 09:37
+
+
+昨天大半夜的发推，郡道还第一时间来找她逃离现实躲到ngs里呢，她还在玩啊
+
+
+-----
+
+####  时间在我手中  
+##### 19550#       发表于 2021-7-13 09:39
+
+
+什么以毒攻毒，唉，今天不播那我回家就补录播
+
+
+-----
+
+####  路人庚  
+##### 19551#       发表于 2021-7-13 09:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51940236&amp;ptid=1973472" target="_blank">yywzjsw 发表于 2021-7-13 09:36</a>
+
+话说，她推特回复的不大多数是女粉吗</blockquote>
+也许mixi指的是超级回复时间里回复的对象吧，谁知道呢（无责任奶一口，要是mixi说的是太古那就搞笑了
+
+
+-----
+
+####  时间在我手中  
+##### 19552#       发表于 2021-7-13 09:42
+
+
+yysy，不是没人嫉妒女粉的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至于是谁我就不说了
+
+
+-----
+
+####  Klience  
+##### 19553#       发表于 2021-7-13 09:42
+
+
+又要开始6个小时的pse噩梦了吗<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 
+
+
+QQ图片20210713094012.png
+(24.97 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-13 09:41 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/094144inw5zioikw74k586.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  yywzjsw  
+##### 19554#       发表于 2021-7-13 09:43
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51940300&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-13 09:40</a>
+
+也许mixi指的是超级回复时间里回复的对象吧，谁知道呢（无责任奶一口，要是mixi说的是太古那就搞笑了 ...</blockquote>
+超，那么多人，那按mixi这想法，那小麻是不是在群p<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19555#       发表于 2021-7-13 09:43
+
+
+ 本帖最后由 路人庚 于 2021-7-13 09:47 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51940255&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-13 09:37</a>
+
+昨天大半夜的发推，郡道还第一时间来找她逃离现实躲到ngs里呢，她还在玩啊 ...</blockquote>
+那是郡道安慰她的话吧，你咩姐的回复是“要重回刷法杖的道路上去了吗…”，只是感叹了一下罢了
+
+顺便郡道说的是“回到pso2的现实里吧”，完全网游废人饼干<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19556#       发表于 2021-7-13 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51940338&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-13 09:43</a>
+
+那是郡道安慰她的话吧，你咩姐的回复是“要重回刷掉落的道路上去了吗…”，只是感叹了一下罢了 ...</blockquote>
+那个是法杖
+
+
+-----
+
+####  T_Hb  
+##### 19557#       发表于 2021-7-13 09:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51940338&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-13 09:43</a>
+那是郡道安慰她的话吧，你咩姐的回复是“要重回刷法杖的道路上去了吗…”，只是感叹了一下罢了
+
+顺便郡道说 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">网游废人可不就是逃避现实
+
+
+-----
+
+####  Klience  
+##### 19558#       发表于 2021-7-13 09:52
+
+
+直播是生活 游戏是乐趣<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19559#       发表于 2021-7-13 09:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">想起当年我大学时候是被ex甩了觉得现实真是无趣又麻烦才开始接触ACG当死宅的，阿咩一定要坚强啊，可不要汗我一样堕落便乘宅宅
+
+
+-----
+
+####  T_Hb  
+##### 19560#       发表于 2021-7-13 10:03
+
+
+ 本帖最后由 T_Hb 于 2021-7-13 10:12 编辑 
+
+现实确实无聊又麻烦<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  Dualist彩  
+##### 19561#       发表于 2021-7-13 10:13
+
+
+桀桀，魔怔天狗可太多了，但我不说都是谁<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19562#       发表于 2021-7-13 10:20
+
+
+好歹几年过去了，之前不也是群魔乱舞。幸好隔个海。
+
+
+                                                

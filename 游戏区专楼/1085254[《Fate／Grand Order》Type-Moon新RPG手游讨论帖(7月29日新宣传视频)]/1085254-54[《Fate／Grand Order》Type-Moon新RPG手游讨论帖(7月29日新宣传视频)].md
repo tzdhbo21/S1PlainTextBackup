@@ -3727,3 +3727,23 @@ EX的Encore这也叫超高难？
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79805#       发表于 2021-7-13 09:34
+
+
+196，然后刷的灰全吃完了<img src="https://static.saraba1st.com/image/smiley/face2017/002.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79806#       发表于 2021-7-13 09:40
+
+
+还有9E QP，完全不想用<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
