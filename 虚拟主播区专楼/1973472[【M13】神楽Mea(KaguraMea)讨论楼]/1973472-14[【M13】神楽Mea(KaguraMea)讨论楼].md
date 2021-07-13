@@ -1236,3 +1236,263 @@ syl<img src="https://p.sda1.dev/2/35e48a2b8863c3301edd0950636b3467/IMG_20210713_
 
 
                                                  
+
+-----
+
+####  Cushaw  
+##### 19605#       发表于 2021-7-13 17:29
+
+
+今日直接对观众发病是吧<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  2014720  
+##### 19606#       发表于 2021-7-13 17:29
+
+
+大概率处刑mix吧，一股要出事的感觉
+
+
+-----
+
+####  时间在我手中  
+##### 19607#       发表于 2021-7-13 17:35
+
+
+要播了？还是说你们说今晚那个联动
+
+
+-----
+
+####  路人庚  
+##### 19608#       发表于 2021-7-13 17:36
+
+
+舞元联动不是苔本吗，而且都这个点了，感觉联动之前也不会播了，咋杀啊（
+
+
+-----
+
+####  T_Hb  
+##### 19609#       发表于 2021-7-13 17:37
+
+
+没啊，根本没说要播，目前知道的就是晚上的苔本
+
+
+-----
+
+####  2014720  
+##### 19610#       发表于 2021-7-13 17:38
+
+
+ 本帖最后由 2014720 于 2021-7-13 17:40 编辑 
+
+北小路吗…
+
+没看过，有人介绍一下不
+
+
+-----
+
+####  T_Hb  
+##### 19611#       发表于 2021-7-13 17:42
+
+
+ 本帖最后由 T_Hb 于 2021-7-13 18:02 编辑 
+
+“彩虹mea”<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+我的错，苔苔看的少
+
+
+-----
+
+####  makourisu-2  
+##### 19612#       发表于 2021-7-13 17:49
+
+
+以苔姨抓热点的能力，很难想象到时候不拱火<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+不过又关我屁事呢，苔姨联动<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">看了我就是狗
+
+
+-----
+
+####  ashero  
+##### 19613#       发表于 2021-7-13 18:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51945654&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-13 17:42</a>
+
+苔苔：“彩虹mea”</blockquote>
+纠正一下 这是五元说的<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19614#       发表于 2021-7-13 18:03
+
+
+苔苔那期没看，二手消息听错了<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19615#       发表于 2021-7-13 18:09
+
+
+“彩虹mea”这种说法既不尊重mea，也不尊重彩虹的主播，不知道喜欢起这种称号的人是个什么脑子🤷‍♂️
+
+
+如果我公司的人把我类比为隔壁公司的“张三”，然后对外宣传我的时候说“这是咱公司的张三！”，我只想一巴掌糊过去
+
+
+-----
+
+####  T_Hb  
+##### 19616#       发表于 2021-7-13 18:10
+
+
+确实
+
+
+-----
+
+####  古战场亡魂  
+##### 19617#       发表于 2021-7-13 18:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51945930&amp;ptid=1973472" target="_blank">路人庚 发表于 2021-7-13 18:09</a>
+
+“彩虹mea”这种说法既不尊重mea，也不尊重彩虹的主播，不知道喜欢起这种称号的人是个什么脑子🤷‍♂️
+
+
+如 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">乐了，说起当初被当成小辉月夜的时候，大家可不是这个态度。
+
+
+-----
+
+####  T_Hb  
+##### 19618#       发表于 2021-7-13 18:24
+
+
+ 本帖最后由 T_Hb 于 2021-7-13 18:26 编辑 
+
+当年和现在心态差距还挺大的，不得不说还是以前看管更快乐，啥都不懂
+
+
+-----
+
+####  2014720  
+##### 19619#       发表于 2021-7-13 18:26
+
+
+ 本帖最后由 2014720 于 2021-7-13 18:27 编辑 
+
+彩虹三字母，不行！
+
+小辉夜月，行！
+
+你们<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+我一直都会快乐嗷，不快乐老子早润了<img src="https://static.saraba1st.com/image/smiley/face2017/035.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 5战斗力 -5
+
+|昵称|战斗力|理由|
+|----|---|---|
+| T_Hb|-1|？|
+| Ky·Kiske|-1|我觉得都行，只有黑称不行|
+| 路人庚|-1|傻逼又开始发病了？|
+| 古战场亡魂|-1||
+| Cushaw|-1|三你麻呢|
+
+
+查看全部评分
+
+
+-----
+
+####  路人庚  
+##### 19620#       发表于 2021-7-13 18:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946056&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-13 18:20</a>
+
+乐了，说起当初被当成小辉月夜的时候，大家可不是这个态度。</blockquote>
+也许喜欢这种类比的人确实很多吧
+
+
+
+
+-----
+
+####  Ky·Kiske  
+##### 19621#       发表于 2021-7-13 18:32
+
+
+当年圈子不大，互相蹭名声也不奇怪
+
+现在阵营有点泾渭分明，这种说法至少不好通用了
+
+
+-----
+
+####  时间在我手中  
+##### 19622#       发表于 2021-7-13 18:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946056&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-13 18:20</a>
+乐了，说起当初被当成小辉月夜的时候，大家可不是这个态度。</blockquote>
+别代表我，疯婆子同画师在fgo画的清少纳言对我来说都更有印象，古早四天王严格来说除了绊爱其他人对我来说都是寄吧谁系列。
+
+
+-----
+
+####  古战场亡魂  
+##### 19623#       发表于 2021-7-13 18:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946187&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-13 18:32</a>
+
+别代表我，疯婆子同画师在fgo画的清少纳言对我来说都更有印象，古早四天王严格来说除了绊爱其他人对我来 ...</blockquote>
+个人没办法完全独立于团体，我还不喜欢天狗这个粉丝称呼呢。又换不了。
+
+
+-----
+
+####  时间在我手中  
+##### 19624#       发表于 2021-7-13 18:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946201&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-13 18:34</a>
+个人没办法完全独立于团体，我还不喜欢天狗这个粉丝称呼呢。又换不了。 ...</blockquote>
+财布和天狗我都没啥兴趣，天狗这东西主要是出戏程度有点高，而且贬义味道太重。
+
+我又不是什么粉头，没义务接着记者和虹人那些狗屁称呼破事。说到底就这种一团散沙的团体也谈不上所谓归属感吧，难不成楼里的人我烤一次肉打一条轴能给我工资吗。
+
+很显然不能
+
+
+-----
+
+####  2014720  
+##### 19625#       发表于 2021-7-13 18:46
+
+
+那我还挺喜欢的，因为舔狗是真的牛逼<img src="https://static.saraba1st.com/image/smiley/face2017/074.png" referrerpolicy="no-referrer">
+
+
+                                                

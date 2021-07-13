@@ -1222,3 +1222,26 @@ arch现在滚挂到不会，但是经常隔一两个月更新点小毛病出来�
 
 
                                                  
+
+-----
+
+####  citrus  
+##### 95#       发表于 2021-7-13 18:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51940876&amp;ptid=2015061" target="_blank">Unlight 发表于 2021-7-13 10:25</a>
+
+GNOME和KDE哪个好一点？或者说还有什么其他桌面环境推荐？
+
+
+—— 来自 S1Fun</blockquote>
+笔记本尤其是触摸屏或高分屏笔记本Gnome毫无疑问
+
+
+如果是键鼠操作，低分屏、台式机之类，KDE更好
+
+
+我现在笔记本免费版RHEL 8.4，台式机KDE Neon
+
+
+                                                 

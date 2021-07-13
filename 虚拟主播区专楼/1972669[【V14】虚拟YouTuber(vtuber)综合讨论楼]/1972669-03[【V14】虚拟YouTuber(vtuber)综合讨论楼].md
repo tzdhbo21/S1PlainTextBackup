@@ -15500,3 +15500,78 @@ NIJISANJI Official
 
 
                                                  
+
+-----
+
+####  alcoholic1000  
+##### 4147#       发表于 2021-7-13 17:38
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/173524q0051nwzzyz8jrr1.png" referrerpolicy="no-referrer">
+
+
+<strong>緑仙、服を買う-1.png</strong> (40.63 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 17:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/173524ynpmll1npg3wol1l.png" referrerpolicy="no-referrer">
+
+
+<strong>緑仙、服を買う-2.png</strong> (79.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 17:35 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/173758gtg1ytln331ngmyd.png" referrerpolicy="no-referrer">
+
+
+<strong>緑仙、服を買う-5.png</strong> (130.57 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 17:37 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/173748dtt5jh5iz454ou4f.png" referrerpolicy="no-referrer">
+
+
+<strong>緑仙、服を買う-3.png</strong> (138.51 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 17:37 上传
+
+
+中之人...
+
+
+-----
+
+####  FCCHua  
+##### 4148#       发表于 2021-7-13 18:26
+
+
+那个未知企划第四人是组长...
+
+
+-----
+
+####  qq845629713  
+##### 4149#       发表于 2021-7-13 18:37
+
+
+被ban了两次，这次还能放出来吗，
+
+隔壁人上人群体刚准备参加404音乐祭，
+
+这边釜山频道被ban两次，
+
+呵呵
+
+
+                                                 
