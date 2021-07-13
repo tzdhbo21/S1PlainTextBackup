@@ -1198,3 +1198,27 @@ arch现在滚挂到不会，但是经常隔一两个月更新点小毛病出来�
 
 
                                               
+
+-----
+
+####  ambivalence  
+##### 93#       发表于 2021-7-13 15:59
+
+
+错觉而已
+
+
+-----
+
+####  linux40  
+##### 94#       发表于 2021-7-13 16:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51943732&amp;ptid=2015061" target="_blank">tangboyun 发表于 2021-7-13 14:53</a>
+不用glibc问题更多，因为musl缺很多glibc的POSIX函数，有很多包是无法编译的，而glibc对静态编译非常不友 ...</blockquote>
+我自己的程序可以做到只动态链接内核，但是绝大多数其它软件写的configure或者cmake没办法做到这点。
+
+不过现在有docker和appimage。
+
+
+                                                 
