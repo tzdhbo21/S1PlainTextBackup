@@ -314,3 +314,192 @@ Fanbox的私信之类的
 
 
                                                  
+
+-----
+
+####  aisakahammer  
+##### 19523#       发表于 2021-7-13 07:28
+
+
+吸引病人的体质
+
+
+-----
+
+####  路人庚  
+##### 19524#       发表于 2021-7-13 07:35
+
+
+ 本帖最后由 路人庚 于 2021-7-13 07:36 编辑 
+
+因为mixi一直活在自己的世界中啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+看完了，你咩姐这段时间长期以来为啥偶而会发病算是有了一个答案选项（这个选项虽然之前就知道，只是没想到权重会这么高，真有你的啊mixi）
+
+
+顺便贴一个mixi在7月10日在自己推特上发的道歉文：（有闲工夫的可以看看，虽然也是没什么营养，除了特定确实是他发的私信+推测私信发送时间点没什么别的作用）
+[https://mobile.twitter.com/mixim ... 1413882815855284228](https://mobile.twitter.com/miximuro_spare/status/1413882815855284228)
+
+
+怪不得这两天都没见到他，原来真就是虚拟自鲨了还行
+
+
+不过咩姐歇了一会之后大概有所恢复了，所以该倒的黑泥还是该倒的，一个人憋着还是不行啊
+
+
+-----
+
+####  甘栗No.007  
+##### 19525#       发表于 2021-7-13 07:41
+
+
+ 本帖最后由 甘栗No.007 于 2021-7-13 07:42 编辑 
+
+如果是mix的话那真实早发现早治疗了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+公开说了那么多次都不改，八成是真的有点问题
+
+
+-----
+
+####  makourisu-2  
+##### 19526#       发表于 2021-7-13 08:19
+
+
+有一说一，楼里也不是没见过楼友突然就疯了的事情，但基本后面走的走，佛系的佛系，而像mixi这种反复发病还能保持看你麻直播热情的人确实少见<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">那个叫mixi的，来来来我给你房管你给我说话来
+
+
+-----
+
+####  elect  
+##### 19527#       发表于 2021-7-13 08:36
+
+
+滋磁正义审判mixi
+
+
+-----
+
+####  时间在我手中  
+##### 19528#       发表于 2021-7-13 08:43
+
+
+mixi这傻卵是真的闲<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">我以前翻过他的sl弱智批话都被震撼到久久不能忘怀，你麻吸引魔怔粉丝的能力也是一绝只能说。
+
+
+-----
+
+####  Klience  
+##### 19529#       发表于 2021-7-13 08:46
+
+
+mixi这种也是某种意义的被特殊对待了 能被咩这样挂推特说<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19530#       发表于 2021-7-13 08:49
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">庆幸你咩姐在日本本土依然不算太火吧，不然早被跟踪狂上门了
+
+
+fan service真是个不好干的活，干少了没饭吃，干多了引魔怔，这到底是日本那边的特性还是人类的共性目前还需要更多观察数据（啊，仔细一想似乎是后者呢
+
+
+
+
+-----
+
+####  aisakahammer  
+##### 19531#       发表于 2021-7-13 08:56
+
+
+在补恋狱月狂病的录像，看到评论区有个人带了mea挂件，世界好小。
+
+
+-----
+
+####  kenjjj  
+##### 19532#       发表于 2021-7-13 08:56
+
+
+人类都是魔怔怪<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19533#       发表于 2021-7-13 08:57
+
+
+主要是本土魔怔人有终极大招   太恶心人了<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  JY要塞  
+##### 19534#       发表于 2021-7-13 08:58
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">这么会吸引病友，麻麻不会被野男人DV吧
+
+
+-----
+
+####  yywzjsw  
+##### 19535#       发表于 2021-7-13 09:01
+
+
+mixi这也算是届到了，不过这种宛如小学生时代欺负喜欢女生的男生，好挫
+
+
+-----
+
+####  aisakahammer  
+##### 19536#       发表于 2021-7-13 09:01
+
+
+病名为爱是吧，真是便利的词。
+
+
+-----
+
+####  makourisu-2  
+##### 19537#       发表于 2021-7-13 09:12
+
+
+说到底还是你麻自己沙滨<img src="https://static.saraba1st.com/image/smiley/face2017/048.png" referrerpolicy="no-referrer">顺带也是整个出个活有节目效果，事业民狂喜
+
+
+-----
+
+####  Klience  
+##### 19538#       发表于 2021-7-13 09:14
+
+
+要是这样就能被咩连麦 那每个人都能开始发病了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19539#       发表于 2021-7-13 09:16
+
+
+那来一次爽到了，模仿犯不是多到飞起来
+
+
+-----
+
+####  路人庚  
+##### 19540#       发表于 2021-7-13 09:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想简单了属于是，这儿终究不是海鲜台啊
+
+
+                                                
