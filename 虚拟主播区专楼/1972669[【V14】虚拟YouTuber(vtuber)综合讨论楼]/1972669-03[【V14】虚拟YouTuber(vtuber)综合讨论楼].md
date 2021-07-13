@@ -15436,3 +15436,45 @@ MC民还是太多了
 
 
                                                  
+
+-----
+
+####  OldGlory  
+##### 4143#       发表于 2021-7-13 14:45
+
+
+NIJISANJI Official
+
+@NIJISANJI_World
+
+:)
+
+
+-----
+
+####  真飞鸟i  
+##### 4144#       发表于 2021-7-13 15:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51936478&amp;ptid=1972669" target="_blank">SuntoryNomu 发表于 2021-7-12 21:29</a>
+
+创死美大生是吧，，</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">复读海子姐原话，不是针对你说的。
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| SuntoryNomu| + 1|梗我知道倒是，歧义了（|
+
+
+查看全部评分
+
+
+                                                 
