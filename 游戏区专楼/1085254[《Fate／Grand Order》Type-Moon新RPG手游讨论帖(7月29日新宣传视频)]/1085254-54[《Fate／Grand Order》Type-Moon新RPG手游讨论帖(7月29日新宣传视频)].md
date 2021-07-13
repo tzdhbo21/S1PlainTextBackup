@@ -3758,3 +3758,135 @@ EX的Encore这也叫超高难？
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79808#       发表于 2021-7-13 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51941329&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-13 11:05</a>
+
+咸鱼只打了50就歇了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">你咸鱼个猫儿 
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/192337dmvybk7rzruyybv3.jpg" referrerpolicy="no-referrer">
+
+
+<strong>123.jpg</strong> (462.91 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 19:23 上传
+
+
+-----
+
+####  qixinno2  
+##### 79809#       发表于 2021-7-13 19:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946789&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-13 19:23</a>
+
+你咸鱼个猫儿</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">惊了 萌新你肿么回事 竟然比我还咸
+
+
+-----
+
+####  alucardcz  
+##### 79810#       发表于 2021-7-13 19:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946817&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-13 19:26</a>
+
+惊了 萌新你肿么回事 竟然比我还咸</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没刷头啊 狗量爆了钱满了 素材又不缺 
+
+
+-----
+
+####  qixinno2  
+##### 79811#       发表于 2021-7-13 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946828&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-13 19:27</a>
+
+没刷头啊 狗量爆了钱满了 素材又不缺</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">羡慕 我还一大堆没满级的低星角色 甚至杀阶银棋子都没了
+
+
+-----
+
+####  alucardcz  
+##### 79812#       发表于 2021-7-13 19:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946838&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-13 19:28</a>
+
+羡慕 我还一大堆没满级的低星角色 甚至杀阶银棋子都没了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这游戏无限池还要手动处理狗粮 每次还只能10发一抽 我是一点点刷的动力都没
+
+
+-----
+
+####  qixinno2  
+##### 79813#       发表于 2021-7-13 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946890&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-13 19:33</a>
+
+这游戏无限池还要手动处理狗粮 每次还只能10发一抽 我是一点点刷的动力都没 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">至今不出一键抽光池子是真的弱智 还有抽完了要手动重置其实也挺傻逼的
+
+
+-----
+
+####  alucardcz  
+##### 79814#       发表于 2021-7-13 19:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946979&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-13 19:42</a>
+
+至今不出一键抽光池子是真的弱智 还有抽完了要手动重置其实也挺傻逼的 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">萌新玩的其他几个游戏无限池都是一键一池 狗粮这种东西也是自动叠加的 体验不知道要好几百倍
+
+
+-----
+
+####  qixinno2  
+##### 79815#       发表于 2021-7-13 19:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51947034&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-13 19:46</a>
+
+萌新玩的其他几个游戏无限池都是一键一池 狗粮这种东西也是自动叠加的 体验不知道要好几百倍 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">钱太好赚了
+
+
+-----
+
+####  alucardcz  
+##### 79816#       发表于 2021-7-13 20:01
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51947096&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-13 19:52</a>
+
+钱太好赚了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">其实主要是因为我在挂机刷爱吉儿(
+
+
+-----
+
+####  qixinno2  
+##### 79817#       发表于 2021-7-13 20:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51947210&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-13 20:01</a>
+
+其实主要是因为我在挂机刷爱吉儿(</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舰B对我这种咸鱼太友好了 根本不想刷
+
+
+                                                 

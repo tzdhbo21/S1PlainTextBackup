@@ -7699,3 +7699,23 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
 
                                                  
+
+-----
+
+####  Fami水  
+##### 12670#       发表于 2021-7-13 19:24
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/145.png" referrerpolicy="no-referrer">学生生涯的最后一个暑假就应该在挥霍青春中度过
+
+
+-----
+
+####  stedckk  
+##### 12671#       发表于 2021-7-13 19:27
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">还学生，按道理应该已经毕业了，日本是春季毕业的，除非延毕。
+
+
+                                                 

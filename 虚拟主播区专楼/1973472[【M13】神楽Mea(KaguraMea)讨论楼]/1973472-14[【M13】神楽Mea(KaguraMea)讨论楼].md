@@ -1496,3 +1496,296 @@ syl<img src="https://p.sda1.dev/2/35e48a2b8863c3301edd0950636b3467/IMG_20210713_
 
 
                                                 
+
+-----
+
+####  路人庚  
+##### 19626#       发表于 2021-7-13 19:25
+
+
+tc突击
+
+
+-----
+
+####  T_Hb  
+##### 19627#       发表于 2021-7-13 19:33
+
+
+ 本帖最后由 T_Hb 于 2021-7-13 19:38 编辑 
+
+掉线了
+
+回来了，win10自动更新
+
+
+-----
+
+####  路人庚  
+##### 19628#       发表于 2021-7-13 19:34
+
+
+ 本帖最后由 路人庚 于 2021-7-13 19:37 编辑 
+
+草，我还以为是我网炸了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+好吧是因为电脑强制更新
+
+
+-----
+
+####  T_Hb  
+##### 19629#       发表于 2021-7-13 19:47
+
+
+一想到那个人的名字，就会后背发痒
+
+
+-----
+
+####  时间在我手中  
+##### 19630#       发表于 2021-7-13 19:49
+
+
+最近又看了饭盒可还行
+
+
+-----
+
+####  路人庚  
+##### 19631#       发表于 2021-7-13 19:51
+
+
+最近一个月都搁那写论文呢，不看咋整啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">（不过应该是看了但没有完全看
+
+
+-----
+
+####  T_Hb  
+##### 19632#       发表于 2021-7-13 19:51
+
+
+ 本帖最后由 T_Hb 于 2021-7-13 19:55 编辑 
+
+又开吃了，说自己最近暴饮暴食
+
+
+-----
+
+####  makourisu-2  
+##### 19633#       发表于 2021-7-13 19:55
+
+
+怎么又吃起来了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">只要不去称体重就不会胖是吧
+
+
+-----
+
+####  T_Hb  
+##### 19634#       发表于 2021-7-13 19:59
+
+
+说的是mixi么，被block了10个账号了
+
+恶心到大叫
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/200036d57911xtj9x78r75.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (4.42 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 20:00 上传
+
+
+-----
+
+####  路人庚  
+##### 19635#       发表于 2021-7-13 20:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">mea：“从现在起我要把gachi都甩了”
+
+
+-----
+
+####  2014720  
+##### 19636#       发表于 2021-7-13 20:10
+
+
+噶吃的末日到喽
+
+
+-----
+
+####  黒長直姫  
+##### 19637#       发表于 2021-7-13 20:11
+
+
+麻了，我不当gachi了！
+
+
+-----
+
+####  路人庚  
+##### 19638#       发表于 2021-7-13 20:14
+
+
+即使mixi再讨厌，但他最后发的万档饭盒语音需求你咩姐还是录好了发给他了（工作是工作.png
+
+
+-----
+
+####  路人庚  
+##### 19639#       发表于 2021-7-13 20:16
+
+
+草，你咩姐在这翻着mixi的私信记录下饭（下零食）呢<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19640#       发表于 2021-7-13 20:19
+
+
+嘴上说着不要，身体很诚实嘛<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19641#       发表于 2021-7-13 20:21
+
+
+就喜欢女粉
+
+
+-----
+
+####  Dualist彩  
+##### 19642#       发表于 2021-7-13 20:22
+
+
+女粉小团体救救咩宝<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19643#       发表于 2021-7-13 20:22
+
+
+nmd网又炸了断断续续的
+
+
+mea：虽然我知道我的gachi不只有mixi一个，也知道mixi算是奇行种了，所以我推荐gachi能成为普通的gachi（大概这个意思，中间应该有漏的
+
+
+-----
+
+####  路人庚  
+##### 19644#       发表于 2021-7-13 20:24
+
+
+女粉占比绝赞增加中，咩姐大欢喜<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  路人庚  
+##### 19645#       发表于 2021-7-13 20:27
+
+
+胃要炸了，实在吃不下了所以歇一会不吃了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19646#       发表于 2021-7-13 20:28
+
+
+我好卡，1秒1卡 受不了了
+
+
+-----
+
+####  路人庚  
+##### 19647#       发表于 2021-7-13 20:31
+
+
+普遍经验是，如果wifi很卡的话，用手机4G开tc会流畅一些（谜之经验
+
+
+-----
+
+####  JY要塞  
+##### 19648#       发表于 2021-7-13 20:31
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">肉体厨不算gachi，safe
+
+
+-----
+
+####  古战场亡魂  
+##### 19649#       发表于 2021-7-13 20:32
+
+
+虽然说能直连，还是上日本梯比较好。
+
+
+-----
+
+####  T_Hb  
+##### 19650#       发表于 2021-7-13 20:34
+
+
+ 本帖最后由 T_Hb 于 2021-7-13 20:37 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/118.png" referrerpolicy="no-referrer">关键是刚才不卡，现在超卡，就很突然
+
+
+又唐突好了，难受
+
+
+
+
+-----
+
+####  路人庚  
+##### 19651#       发表于 2021-7-13 20:40
+
+
+咩姐终结技：🙏
+
+
+-----
+
+####  专业划水人员  
+##### 19652#       发表于 2021-7-13 20:41
+
+
+tc是这样的。有时太卡刷新一下直接404了。太神奇了
+
+
+-----
+
+####  T_Hb  
+##### 19653#       发表于 2021-7-13 20:42
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/204245iy80z00yrxt0t7hw.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (34.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 20:42 上传
+
+
+                                                

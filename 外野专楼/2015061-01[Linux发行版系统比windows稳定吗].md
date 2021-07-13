@@ -1245,3 +1245,64 @@ GNOME和KDE哪个好一点？或者说还有什么其他桌面环境推荐？
 
 
                                                  
+
+-----
+
+####  Austaras  
+##### 96#       发表于 2021-7-13 20:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51941071&amp;ptid=2015061" target="_blank">alann 发表于 2021-7-13 10:42</a>
+我n卡不知为什么到现在都用不了wayland，kde和gnome都不行</blockquote>
+主流桌面环境支持了一套wayland api，Nvidia自己实现的是另一套…
+
+
+-----
+
+####  BRS5672023  
+##### 97#       发表于 2021-7-13 20:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51945940&amp;ptid=2015061" target="_blank">citrus 发表于 2021-7-13 18:10</a>
+笔记本尤其是触摸屏或高分屏笔记本Gnome毫无疑问
+
+
+如果是键鼠操作，低分屏、台式机之类，KDE更好</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/006.png" referrerpolicy="no-referrer">我倒是觉得高分屏的本子也是用 kde 体验更好一些，不过可能相比 gnome 需要做的步骤更多些（以及我没有外接显示屏的需求，kde 的 wayland session 我觉得目前还基本不太能用的），大概主要是我在 kde applications 上的体验更好一些，包括 dolphin（以及相应的 archiving tool: ark）, konsole, kate；另外的还有 mpv（一般我会配套 aur 里面的 mpv-mpris 使用） 和 fcitx5（也还包括我常用的 kid3）；除了这些以外，差不多算是我的生产力工具的 kile 用起来也很舒服，相比较而言我觉得 gnome-latex 就差很多（这大概其实算是 kate 的优势）。。
+
+然而有一些 qt 的软件在 kde 上的体验（特别是 hidpi 下的表现）反而还不如 gnome，比如 qbitorrent 和 mathematica （后者主要是光标大小的问题，前者我目前是用 ktorrent 替代，但体验实在差了很多）
+
+—— 来自 HUAWEI OXF-AN10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  citrus  
+##### 98#       发表于 2021-7-13 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51947681&amp;ptid=2015061" target="_blank">BRS5672023 发表于 2021-7-13 20:47</a>
+
+我倒是觉得高分屏的本子也是用 kde 体验更好一些，不过可能相比 gnome 需要做的步骤更多些（以及 ...</blockquote>
+外接显示屏，尤其如果像素密度差异很大的，kde就没法用。当然我对xorg有刚需没试过wayland
+
+
+而且外接屏后触摸屏、电磁笔之类也完全没法用了
+
+
+-----
+
+####  BRS5672023  
+##### 99#       发表于 2021-7-13 21:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51947831&amp;ptid=2015061" target="_blank">citrus 发表于 2021-7-13 21:03</a>
+
+外接显示屏，尤其如果像素密度差异很大的，kde就没法用。当然我对xorg有刚需没试过wayland
+
+
+而且外接屏后 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/005.png" referrerpolicy="no-referrer">你这么说我才意识到我本子的触控屏基本从来都没用过。。。
+
+
+                                                 
