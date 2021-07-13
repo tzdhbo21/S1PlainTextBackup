@@ -5042,3 +5042,56 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  红焖菠菜  
+##### 1872#       发表于 2021-7-13 21:28
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/212714wdvdiofva3evi653.jpg" referrerpolicy="no-referrer">
+
+
+<strong>5f0db1fb43166d22c1c9a721512309f79152d23b.jpg</strong> (273.72 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 21:27 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/212812qkmqxmzhug2dmsrj.jpg" referrerpolicy="no-referrer">
+
+
+<strong>ad4994fd5266d01683832c9d802bd40734fa357b.jpg</strong> (170.11 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-13 21:28 上传
+
+
+大概率真，抓心组回归。
+
+
+-----
+
+####  红焖菠菜  
+##### 1873#       发表于 2021-7-13 21:29
+
+
+转微博
+
+
+客演声优：松本まりか
+
+
+监督：志水淳儿
+
+剧本：成田良美
+
+人设：总作监：上野贤
+
+
+主题曲「シャンティア～しあわせのくに～」
+
+
+                                                 

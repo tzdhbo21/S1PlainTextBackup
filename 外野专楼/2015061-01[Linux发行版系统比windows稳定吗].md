@@ -1306,3 +1306,55 @@ GNOME和KDE哪个好一点？或者说还有什么其他桌面环境推荐？
 
 
                                                  
+
+-----
+
+####  thegodra  
+##### 100#       发表于 2021-7-13 21:28
+
+
+Gnome业界脑残
+
+
+-----
+
+####  dovahkiin  
+##### 101#       发表于 2021-7-13 21:43
+
+
+Windows 是一个系统，Linux 是一系列系统，你不能用 Linux 所有发行版跟 Windows 比稳定
+
+
+可能有一些新入坑的人会以为 Ubuntu 宣发强就是稳定，实际上 Ubuntu 在版本更新上的激进程度堪比 Arch，而软件包管理策略跟 Linux 本质上半毛钱关系都没有，倒是反过来说 Windows 10 的滚动更新是跟某些 Linux 发行版学坏了，滚动更新不是常态
+
+
+如果追求稳定，推荐安装 Debian 或者 OpenSUSE
+
+
+-----
+
+####  モナド  
+##### 102#       发表于 2021-7-13 21:44
+
+
+以后服务器操作系统都是k8s这类容器编排系统了，根本不关心机器装的是哪个发行版，也不怕单点故障
+
+桌面环境稳定性，linux拿头和windows比
+
+
+-----
+
+####  dovahkiin  
+##### 103#       发表于 2021-7-13 21:48
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51941071&amp;ptid=2015061" target="_blank">alann 发表于 2021-7-13 10:42</a>
+
+我n卡不知为什么到现在都用不了wayland，kde和gnome都不行</blockquote>
+N卡就别折腾 Linux 了，N 对社区没兴趣，自己维护的驱动又有各种问题，Xorg 都各种毛病，更不要说 wayland 了，还是建议不要自虐
+
+
+我现在 N 卡加 4k 显示器在 Linux 下痛苦不堪，但是显卡太贵了，没法换 A 卡，只好忍着
+
+
+                                                 

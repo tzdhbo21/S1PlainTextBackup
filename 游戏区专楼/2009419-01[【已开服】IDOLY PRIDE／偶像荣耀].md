@@ -4131,3 +4131,20 @@ PvP低端试了试，体力用来和对面抢技能，精神力确保技能发�
 
 
                                                  
+
+-----
+
+####  635750448  
+##### 321#       发表于 2021-7-13 21:30
+
+
+ 本帖最后由 635750448 于 2021-7-13 21:32 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51947716&amp;ptid=2009419" target="_blank">两个路人 发表于 2021-7-13 20:50</a>
+
+到现在没看懂过谱面，也没看懂技能说明的3-6段怎么在谱面上划分的。印象最诡异的大概就是SP位，明明两个A ...</blockquote>
+那个段数是buff的强度，我忘记之前在哪看到说技能上升的段数一段等于5%了，后面的hit数应该是覆盖范围
+
+ct时间是按你不跳过的时候能看到那个小点的hit数来算的，然而跳过就看不到谱面上也没标，就很傻屌<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 
