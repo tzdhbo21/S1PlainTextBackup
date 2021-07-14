@@ -4703,3 +4703,665 @@ loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
 
 
                                                 
+
+-----
+
+####  黑上シグマ  
+##### 79891#       发表于 2021-7-14 19:22
+
+
+这CM的蓝呆上身是什么鬼（
+
+
+-----
+
+####  alucardcz  
+##### 79892#       发表于 2021-7-14 19:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958635&amp;ptid=1085254" target="_blank">zore 发表于 2021-7-14 19:21</a>
+
+小裁缝呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不要怕 还有2期池
+
+
+-----
+
+####  千叶铁矢  
+##### 79893#       发表于 2021-7-14 19:24
+
+
+那么宝具是什么颜色的？
+
+
+-----
+
+####  alucardcz  
+##### 79894#       发表于 2021-7-14 19:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958619&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-14 19:20</a>
+
+那奥伯龙就是PICK UP4了
+
+
+顺便这TVCM的欧罗拉简直就是欺诈啊艹</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">万一是周年纪念从者呢（ 新红拐
+
+
+-----
+
+####  exiaexa  
+##### 79895#       发表于 2021-7-14 19:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958676&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 19:24</a>
+
+万一是周年纪念从者呢（ 新红拐</blockquote>
+亚咩萝
+
+新红拐不说给我个大欧派姐姐好歹给我个通常意义上的帅哥啊
+
+
+菌类指定的帅哥我消受不起
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 79896#       发表于 2021-7-14 19:26
+
+
+ 本帖最后由 angelooo 于 2021-7-14 19:38 编辑 
+
+蹲一个卡面
+
+这双宝具的萝莉我兴趣不大啊怎么办
+
+
+对不起诸位我输了，我看到星巴克的三破满破我就投降了
+
+帕西瓦尔这卡面你说三星我也信了，不愧是小作坊的人际关系
+
+
+-----
+
+####  zore  
+##### 79897#       发表于 2021-7-14 19:26
+
+
+不是还有杀玉<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">杀阶当拐行不行
+
+
+-----
+
+####  黑上シグマ  
+##### 79898#       发表于 2021-7-14 19:27
+
+
+艹，又要搞时限解放吗？
+
+
+-----
+
+####  alucardcz  
+##### 79899#       发表于 2021-7-14 19:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958715&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-14 19:27</a>
+
+艹，又要搞时限解放吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">艹 我直播都关了 最后的最后还来这恶心人的玩意?
+
+
+-----
+
+####  areklose  
+##### 79900#       发表于 2021-7-14 19:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">本来这简陋无比的宝具动画，基本没吊用的单体我是拒绝抽的。但是这双宝具
+
+
+-----
+
+####  超阳电子炮  
+##### 79901#       发表于 2021-7-14 19:33
+
+
+双宝具啊草生
+
+
+-----
+
+####  里村紅葉  
+##### 79902#       发表于 2021-7-14 19:33
+
+
+30连妖兰出了，帕西瓦尔没看见<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 79903#       发表于 2021-7-14 19:33
+
+
+光速沉了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79904#       发表于 2021-7-14 19:35
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958803&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-14 19:33</a>
+
+光速沉了</blockquote>
+萌新彩圈 然后心 肺 停 止!
+
+麻了全麻了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+<img src="https://img.saraba1st.com/forum/202107/14/193516h24iohdl0do7uq0f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>1234.jpg</strong> (564.3 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-14 19:35 上传
+
+
+-----
+
+####  cckuku  
+##### 79905#       发表于 2021-7-14 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958819&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 19:35</a>
+ 萌新彩圈 然后心 肺 停 止! 麻了全麻了</blockquote>
+好多大流士<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79906#       发表于 2021-7-14 19:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958819&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 19:35</a>
+
+萌新彩圈 然后心 肺 停 止!
+
+麻了全麻了</blockquote>
+NEW 不亏
+
+
+-----
+
+####  千叶铁矢  
+##### 79907#       发表于 2021-7-14 19:36
+
+
+蓝转红还行
+
+
+-----
+
+####  exiaexa  
+##### 79908#       发表于 2021-7-14 19:38
+
+
+三个黑叔叔也太草了
+
+节目效果满分
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79909#       发表于 2021-7-14 19:38
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958715&amp;ptid=1085254" target="_blank">黑上シグマ 发表于 2021-7-14 19:27</a>
+
+艹，又要搞时限解放吗？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没看到有人说时限解放啊 咋回事
+
+
+-----
+
+####  rooarr  
+##### 79910#       发表于 2021-7-14 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958819&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 19:35</a>
+
+萌新彩圈 然后心 肺 停 止!
+
+麻了全麻了</blockquote>
+你不是之前才说没有月神吗<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79911#       发表于 2021-7-14 19:39
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958862&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-14 19:39</a>
+
+你不是之前才说没有月神吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">但是我并不想要啊 误会了啊
+
+
+-----
+
+####  黑上シグマ  
+##### 79912#       发表于 2021-7-14 19:41
+
+
+十几张票子+22连，俩都抽到了，撤！
+
+
+-----
+
+####  areklose  
+##### 79913#       发表于 2021-7-14 19:42
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">抽完了，50抽。两个各一宝，该抽无限池子喂上去
+
+
+-----
+
+####  黑上シグマ  
+##### 79914#       发表于 2021-7-14 19:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958861&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 19:38</a>
+
+没看到有人说时限解放啊 咋回事</blockquote>
+叶哥哥说这次的最后，大家会在同一时间看到
+
+然后说不是砍柱子
+
+那不只能是时限了吗……
+
+
+-----
+
+####  cckuku  
+##### 79915#       发表于 2021-7-14 19:44
+
+
+隔壁看到说是100自充，起飞？<img src="https://static.saraba1st.com/image/smiley/face2017/044.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 79916#       发表于 2021-7-14 19:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">果然还是毛都没出
+
+
+-----
+
+####  eyeego  
+##### 79917#       发表于 2021-7-14 19:45
+
+
+100自充 宝具还带前置黄金率 这本体np率要残疾成啥样？<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 79918#       发表于 2021-7-14 19:45
+
+
+福袋见<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 79919#       发表于 2021-7-14 19:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">草 芬恩
+
+
+-----
+
+####  Jamaisvu  
+##### 79920#       发表于 2021-7-14 19:49
+
+
+ 本帖最后由 Jamaisvu 于 2021-7-14 19:51 编辑 
+
+珀西瓦尔三破图竟让我产生了一种海盗高达的幻视...
+
+
+
+
+-----
+
+####  areklose  
+##### 79921#       发表于 2021-7-14 19:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">是100+30自充
+
+
+-----
+
+####  khxooo  
+##### 79922#       发表于 2021-7-14 19:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958927&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-7-14 19:45</a>
+
+100自充 宝具还带前置黄金率 这本体np率要残疾成啥样？</blockquote>
+NP率可不残啊，剧情给你用，NP率个人感觉和杨贵妃差不多。
+
+
+-----
+
+####  AbigailWilliams  
+##### 79923#       发表于 2021-7-14 19:51
+
+
+其实是100+30啦<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79924#       发表于 2021-7-14 19:52
+
+
+2宝走人
+
+NMD这2.6卡池就有毒
+
+
+摩根4宝我妖高妖催各1张
+
+长江2宝我帕西瓦尔只有一张
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79925#       发表于 2021-7-14 19:53
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958927&amp;ptid=1085254" target="_blank">eyeego 发表于 2021-7-14 19:45</a>
+
+100自充 宝具还带前置黄金率 这本体np率要残疾成啥样？</blockquote>
+明明130自充<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79926#       发表于 2021-7-14 20:01
+
+
+喷了，剧情送1亿QP
+
+
+-----
+
+####  zakki  
+##### 79927#       发表于 2021-7-14 20:01
+
+
+竟然是kosmos的画师吗
+
+
+-----
+
+####  areklose  
+##### 79928#       发表于 2021-7-14 20:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/186.png" referrerpolicy="no-referrer">看到这自充我又抽了150发。算是200抽2个人2宝。。。就这样把
+
+
+-----
+
+####  zakki  
+##### 79929#       发表于 2021-7-14 20:03
+
+
+时限解放啥意思？今天还看不到完整剧情？
+
+
+-----
+
+####  alucardcz  
+##### 79930#       发表于 2021-7-14 20:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959159&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-14 20:03</a>
+
+时限解放啥意思？今天还看不到完整剧情？</blockquote>
+公告里没说 我直播关的早没听到相关内容。。也没看到有人讨论。。
+
+
+应该。。。没把？
+
+
+-----
+
+####  exiaexa  
+##### 79931#       发表于 2021-7-14 20:08
+
+
+我日哦
+
+唯一神你丫有毒吧
+
+
+妖兰3破状态进本开3技能不能发动100充
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79932#       发表于 2021-7-14 20:10
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959200&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-14 20:08</a>
+
+我日哦
+
+唯一神你丫有毒吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">上面不是写着吗 3破这技能变成宝威up
+
+
+-----
+
+####  exiaexa  
+##### 79933#       发表于 2021-7-14 20:13
+
+
+ 本帖最后由 exiaexa 于 2021-7-14 20:15 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959219&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 20:10</a>
+
+上面不是写着吗 3破这技能变成宝威up</blockquote>
+那这100充对我来说就没卵用
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+3破模组比12破帅太多了
+
+宝具也变成投枪而不是龙肚喷波
+
+——————————————————
+
+艹我错了，投枪是随机彩蛋
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79934#       发表于 2021-7-14 20:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959248&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-14 20:13</a>
+
+那这100充对我来说就没卵用</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">你有没有看生放阿。点3技能不就变3形态吗。
+
+
+-----
+
+####  zakki  
+##### 79935#       发表于 2021-7-14 20:16
+
+
+ 本帖最后由 zakki 于 2021-7-14 20:18 编辑 
+
+奥伯龙70它冲？20群冲+50单冲<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79936#       发表于 2021-7-14 20:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959256&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-14 20:15</a>
+
+你有没有看生放阿。点3技能不就变3形态吗。</blockquote>
+看了啊，可是龙装香疯了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79937#       发表于 2021-7-14 20:18
+
+
+奥伯伦1技能全体宝威全体20充能，二技能50他充，三技能不会是红魔放吧
+
+
+-----
+
+####  zakki  
+##### 79938#       发表于 2021-7-14 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959293&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-14 20:18</a>
+奥伯伦1技能全体宝威全体20充能，二技能50他充，三技能不会是红魔放吧</blockquote>
+红拐成了，不过和c呆比好像也没什么优势
+
+
+-----
+
+####  areklose  
+##### 79939#       发表于 2021-7-14 20:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不过秩序特攻
+
+
+-----
+
+####  alucardcz  
+##### 79940#       发表于 2021-7-14 20:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959293&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-14 20:18</a>
+
+奥伯伦1技能全体宝威全体20充能，二技能50他充，三技能不会是红魔放吧</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那解包不是绿宝具吗 而且是攻击向的。。 这还来红魔放？
+
+
+-----
+
+####  areklose  
+##### 79941#       发表于 2021-7-14 20:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959310&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 20:20</a>
+
+那解包不是绿宝具吗 而且是攻击向的。。 这还来红魔放？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">自己绿魔放，其他2人红魔放行不行
+
+
+-----
+
+####  alucardcz  
+##### 79942#       发表于 2021-7-14 20:24
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959339&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-14 20:23</a>
+
+自己绿魔放，其他2人红魔放行不行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不如全体红蓝绿一起放了
+
+
+-----
+
+####  areklose  
+##### 79943#       发表于 2021-7-14 20:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959346&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 20:24</a>
+
+不如全体红蓝绿一起放了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这样不就变成蓝卡插件吗
+
+
+-----
+
+####  sosgame67  
+##### 79944#       发表于 2021-7-14 20:25
+
+
+十连一宝，跑路等泳装和周年<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 79945#       发表于 2021-7-14 20:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959346&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 20:24</a>
+不如全体红蓝绿一起放了</blockquote>
+是红宝具，只不过用绿色字体写的
+
+
+-----
+
+####  exiaexa  
+##### 79946#       发表于 2021-7-14 20:42
+
+
+啧，龙牙被吃完了，脑壳痛
+
+
+这长江，突破+技能要132个龙牙
+
+技能8级要72*3的新铜材料（那个小钟，现在就她个妖高用
+
+下个无限池见
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
