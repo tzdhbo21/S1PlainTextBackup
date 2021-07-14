@@ -2859,3 +2859,160 @@ cnm南通滚出咩楼，该暴力引入百合元素电疗你楼了
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 19757#       发表于 2021-7-14 18:30
+
+
+哈哈哈哈，排班表是不会有的，怕自己迟到
+
+没表更自由<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19758#       发表于 2021-7-14 18:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958034&amp;ptid=1973472" target="_blank">时间在我手中 发表于 2021-7-14 18:25</a>
+舞你mlgbd弱智玩意儿，上次参与过的这次直接NG</blockquote>
+日哦没看图，那就换成兔鞠<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Klience  
+##### 19759#       发表于 2021-7-14 18:33
+
+
+PV画师放出来了 虽然没打tag<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+E6P9kqWVEAEXBsc.jpg
+(346.98 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-14 18:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/14/183302xiq5x5egixef35ip.jpg" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 2战斗力 +3
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 呓亘| + 2|好平啊|
+| 2014720| + 1|骚|
+
+
+查看全部评分
+
+
+-----
+
+####  呓亘  
+##### 19760#       发表于 2021-7-14 18:52
+
+
+现在404基本每次直播都会提前几个小时开直播间 和排班表也差不多了
+
+
+-----
+
+####  Cushaw  
+##### 19761#       发表于 2021-7-14 18:53
+
+
+大胆猜测是名为歌回的犯病回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  T_Hb  
+##### 19762#       发表于 2021-7-14 18:55
+
+
+昨天tc吐的差不多了，今天肯定是纯正歌回<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19763#       发表于 2021-7-14 19:04
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958345&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-14 18:55</a>
+
+昨天tc吐的差不多了，今天肯定是纯正歌回</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">再纯正，你也得先掺半个小时杂谈。
+
+
+-----
+
+####  呓亘  
+##### 19764#       发表于 2021-7-14 19:08
+
+
+官组问卷差点忘填了 今晚截止 死线战士们注意
+
+
+-----
+
+####  T_Hb  
+##### 19765#       发表于 2021-7-14 19:13
+
+
+歌回先杂谈半个小时暖场开嗓，很合理<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 19766#       发表于 2021-7-14 19:13
+
+
+在誇り高きアイドル和ROKI中纠结 选哪个呢？啊 圣诞歌我也想选
+
+
+-----
+
+####  呓亘  
+##### 19767#       发表于 2021-7-14 19:14
+
+
+其实看了AUT221的那个...我想选loser girl....不过你咩好像没唱过
+
+
+-----
+
+####  呓亘  
+##### 19768#       发表于 2021-7-14 19:16
+
+
+就选誇り高きアイドル吧 歌词我很喜欢
+
+
+-----
+
+####  Klience  
+##### 19769#       发表于 2021-7-14 19:21
+
+
+唱歌前打把游戏热热身很合理<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

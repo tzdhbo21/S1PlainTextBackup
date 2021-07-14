@@ -4275,3 +4275,431 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
 
                                                  
+
+-----
+
+####  rooarr  
+##### 79849#       发表于 2021-7-14 18:39
+
+
+今年周年庆全是线上的活动，笑死<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79850#       发表于 2021-7-14 18:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958182&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-14 18:39</a>
+
+今年周年庆全是线上的活动，笑死</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">这不是标准操作吗    也就最后一天值得看看（
+
+
+-----
+
+####  alucardcz  
+##### 79851#       发表于 2021-7-14 18:43
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">阶位认定试验可还行  
+
+
+-----
+
+####  rooarr  
+##### 79852#       发表于 2021-7-14 18:45
+
+
+这考试的题目有点难啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79853#       发表于 2021-7-14 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958242&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-14 18:45</a>
+
+这考试的题目有点难啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">啥 你难道真扫 了？
+
+
+-----
+
+####  rooarr  
+##### 79854#       发表于 2021-7-14 18:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958249&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 18:47</a>
+
+啥 你难道真扫 了？</blockquote>
+那是必然啊， 各种细节问题，我这种skip党铁定没戏<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79855#       发表于 2021-7-14 18:49
+
+
+艹，我万万没想到，我能看到石田画得如此正常的枪呆（但是胸缩水了
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+QQ图片20210714184927.png
+(452.39 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-14 18:49 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/14/184945d14of7s1plw2unp7.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79856#       发表于 2021-7-14 18:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了 终于要来了
+
+
+-----
+
+####  areklose  
+##### 79857#       发表于 2021-7-14 18:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">来了来了
+
+
+-----
+
+####  khxooo  
+##### 79858#       发表于 2021-7-14 18:52
+
+
+周年有华哥，难道萝兰是华哥配的？如果不是华哥那么估计就是新从者了。
+
+
+-----
+
+####  alucardcz  
+##### 79859#       发表于 2021-7-14 18:55
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958302&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-14 18:52</a>
+
+周年有华哥，难道萝兰是华哥配的？如果不是华哥那么估计就是新从者了。</blockquote>
+奥菲莉娅死的冤啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79860#       发表于 2021-7-14 18:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958342&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 18:55</a>
+
+奥菲莉娅死的冤啊</blockquote>
+？？？？奥菲利亚是华哥配的？这个真不知道<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  areklose  
+##### 79861#       发表于 2021-7-14 19:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">cao，真会拖时间
+
+
+-----
+
+####  Jamaisvu  
+##### 79862#       发表于 2021-7-14 19:07
+
+
+新月姬格斗的副标题是type-lumina。lumina意为流明，是光通量单位。（猎天使魔女里那个流明贤者不会也是这个单词吧...）其实感觉就是玩luna=moon的梗...
+
+
+-----
+
+####  areklose  
+##### 79863#       发表于 2021-7-14 19:08
+
+
+翻页
+
+
+-----
+
+####  alucardcz  
+##### 79864#       发表于 2021-7-14 19:09
+
+
+来了 他来了  然后并没有来（
+
+
+-----
+
+####  alucardcz  
+##### 79865#       发表于 2021-7-14 19:13
+
+
+来了。这次真的来了（
+
+
+-----
+
+####  areklose  
+##### 79866#       发表于 2021-7-14 19:15
+
+
+四星，舅舅死
+
+
+-----
+
+####  areklose  
+##### 79867#       发表于 2021-7-14 19:15
+
+
+四星，舅舅死
+
+
+-----
+
+####  exiaexa  
+##### 79868#       发表于 2021-7-14 19:15
+
+
+艹，帕西瓦尔你怎么是个丢人四星
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79869#       发表于 2021-7-14 19:15
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">舅舅上半也没全对啊 基本属于乱奶的吧
+
+
+-----
+
+####  xiongxingyu  
+##### 79870#       发表于 2021-7-14 19:15
+
+
+帕西瓦尔的声优是松风雅也？抽爆抽爆<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 79871#       发表于 2021-7-14 19:15
+
+
+这帕西瓦尔好帅啊<img src="https://static.saraba1st.com/image/smiley/face2017/112.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rooarr  
+##### 79872#       发表于 2021-7-14 19:16
+
+
+兰斯洛特还是对了的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79873#       发表于 2021-7-14 19:16
+
+
+萝兰五星，拆包是对的
+
+
+-----
+
+####  alucardcz  
+##### 79874#       发表于 2021-7-14 19:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958563&amp;ptid=1085254" target="_blank">rooarr 发表于 2021-7-14 19:16</a>
+
+兰斯洛特还是对了的</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">不全中怎么能叫舅舅呢
+
+
+-----
+
+####  alucardcz  
+##### 79875#       发表于 2021-7-14 19:17
+
+
+loli兰斯洛特这宝具好简陋啊  梦回开服
+
+
+-----
+
+####  alucardcz  
+##### 79876#       发表于 2021-7-14 19:17
+
+
+草  真的是双宝具
+
+
+-----
+
+####  rooarr  
+##### 79877#       发表于 2021-7-14 19:17
+
+
+居然是可光炮的宝具，新特性啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  exiaexa  
+##### 79878#       发表于 2021-7-14 19:17
+
+
+卧槽，第一个自由变换宝具居然不是盾娘
+
+顺便长江下面这一堆说明是生怕别人不抽吗
+<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 79879#       发表于 2021-7-14 19:17
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">单体全体宝具切换终于来了
+
+
+-----
+
+####  areklose  
+##### 79880#       发表于 2021-7-14 19:18
+
+
+单体宝具变全体宝具
+
+
+-----
+
+####  xiongxingyu  
+##### 79881#       发表于 2021-7-14 19:18
+
+
+卧槽，战场变身，单体变全体，怪不得是限定5星<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79882#       发表于 2021-7-14 19:18
+
+
+单体和光炮切换，那么以后都能奶了。
+
+
+-----
+
+####  exiaexa  
+##### 79883#       发表于 2021-7-14 19:19
+
+
+卧槽这三破动画无敌啊
+
+抽爆
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79884#       发表于 2021-7-14 19:19
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我错了  你一点都不简陋 
+
+
+-----
+
+####  rooarr  
+##### 79885#       发表于 2021-7-14 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51958583&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 19:17</a>
+
+loli兰斯洛特这宝具好简陋啊  梦回开服</blockquote>
+光炮这个动画很精致，萌新应该没意见了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 79886#       发表于 2021-7-14 19:19
+
+
+完了，loli变大龙，哪个男人可以拒绝真红眼黑龙呢，抽爆抽爆<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79887#       发表于 2021-7-14 19:20
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">抽爆阿，本来不想抽的
+
+
+-----
+
+####  exiaexa  
+##### 79888#       发表于 2021-7-14 19:20
+
+
+那奥伯龙就是PICK UP4了
+
+
+顺便这TVCM的欧罗拉简直就是欺诈啊艹
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 79889#       发表于 2021-7-14 19:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">小裁缝呢
+
+
+-----
+
+####  仰望神的括约肌  
+##### 79890#       发表于 2021-7-14 19:22
+
+
+怎么这CM感觉是硬拆成两段的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                
