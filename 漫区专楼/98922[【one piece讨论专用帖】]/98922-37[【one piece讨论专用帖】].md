@@ -16659,3 +16659,29 @@ cp9有道力值的，后面不玩这套了
 
 
                                                  
+
+-----
+
+####  陈玉礼  
+##### 55395#       发表于 2021-7-14 15:33
+
+
+阿龙不会都好说，真正说不过去的是沙鳄鱼，中期打补丁就是这样了
+
+
+-----
+
+####  魏柔  
+##### 55396#       发表于 2021-7-14 16:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51955618&amp;ptid=98922" target="_blank">恶魔娘阿洛 发表于 2021-7-14 15:12</a>
+说起甚平，咱就想说阿龙一伙战力特别奇怪
+
+太阳海贼团和天龙人作对，在伟大航路上讨生活的
+
+打的必然是海军NB ...</blockquote>
+艾斯都不会<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+                                                 

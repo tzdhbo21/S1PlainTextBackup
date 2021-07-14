@@ -1575,3 +1575,20 @@ https://www.zhihu.com/answer/1305760654
 
 
                                                  
+
+-----
+
+####  refo2613  
+##### 117#       发表于 2021-7-14 16:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51955951&amp;ptid=2015061" target="_blank">Nanachi 发表于 2021-7-14 15:43</a>
+https://www.zhihu.com/answer/1305760654
+
+—— 来自 HUAWEI NOH-AL00, Android 10上的 S1Next-鹅版 v2. ...</blockquote>
+所以总结还是mac或者wsl2最好<img src="https://static.saraba1st.com/image/smiley/face2017/015.png" referrerpolicy="no-referrer">
+
+—— 来自 vivo NEX A, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
