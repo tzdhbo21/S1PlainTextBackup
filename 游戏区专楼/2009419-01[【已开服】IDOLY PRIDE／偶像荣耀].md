@@ -4313,3 +4313,98 @@ P2技解放給了C位8階分數上升跟回耐
 
 
                                                  
+
+-----
+
+####  635750448  
+##### 325#       发表于 2021-7-15 04:12
+
+
+那我再提一个那个用辅助券抽出来的1星莉央吧，我感觉这个比四星遥子的适用性更广一点
+
+<img src="https://img.saraba1st.com/forum/202107/15/040809g33ffn5hly2tyh2z.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (49.14 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-15 04:08 上传
+
+
+顺便问问有人抽出来辅助券的那个2星的樱了吗，想看看技能，wiki上都没有
+
+
+-----
+
+####  yuugi  
+##### 326#       发表于 2021-7-15 05:34
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/053336mwybzzc4mcen4yg0.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-15-06-31-16-308_game.qualiarts.idolypride.jpg</strong> (147.54 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-15 05:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/053341t0m4u6zu5unubl6g.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-15-06-31-22-080_game.qualiarts.idolypride.jpg</strong> (145.91 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-15 05:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/053346uxxqy2w6xvxznqx2.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-15-06-31-27-342_game.qualiarts.idolypride.jpg</strong> (143.37 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-15 05:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/053352mtx778a3g8e7s7gu.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-15-06-32-14-418_game.qualiarts.idolypride.jpg</strong> (125.63 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-15 05:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/053356smdusimlqqzshwbs.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-15-06-32-17-813_game.qualiarts.idolypride.jpg</strong> (123.72 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-15 05:33 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/053401j3d6y3qzm1d1ub01.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-15-06-32-23-179_game.qualiarts.idolypride.jpg</strong> (121.58 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-15 05:34 上传
+
+
+                                                 
