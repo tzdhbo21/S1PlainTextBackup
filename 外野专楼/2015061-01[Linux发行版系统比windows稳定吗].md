@@ -1557,3 +1557,21 @@ linux可以去掉图形界面以提升系统稳定性。
 
 
                                                  
+
+-----
+
+####  Nanachi  
+##### 116#       发表于 2021-7-14 15:43
+
+
+<blockquote>ABI和API稳定，十年前的exe运行起来问题不大，这一点Linux完全赶不上，上一周编译的软件下一周可能就因为依赖库升级而必须重新编译。
+
+GUI可能没那么大优势，Linux的GUI有一些功能Windows做不到。比如有的vnc软件可以拉起一个虚拟的桌面环境，比如Linux的GUI环境不用的时候可以直接杀掉，切换到控制台环境。
+
+需要大力投入的领域Windows一般都比Linux做的好，毕竟商业公司，要钱有钱要人有人，比如图形API(DX12)，办公套件(Office)，企业域管理等功能。Linux的图形API(OpenGL/vulkan)比较糟糕，尤其是OpenGL，感觉和DX12不是一个时代的东西，这个不是开源世界能推动的，需要商业的力量来让显卡厂商配合才行</blockquote>
+https://www.zhihu.com/answer/1305760654
+
+—— 来自 HUAWEI NOH-AL00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

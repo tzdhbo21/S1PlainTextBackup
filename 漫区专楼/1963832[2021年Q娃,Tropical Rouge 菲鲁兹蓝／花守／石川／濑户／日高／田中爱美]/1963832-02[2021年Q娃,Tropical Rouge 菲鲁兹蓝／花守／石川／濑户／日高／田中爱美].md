@@ -5272,3 +5272,44 @@ ps 某些狗大友更喜欢联动您们最爱心跳的说<img src="https://stati
 
 
                                                  
+
+-----
+
+####  天邪鬼  
+##### 1888#       发表于 2021-7-14 14:46
+
+
+难道是一人对应一个？但抓心就四人
+我记得飞鸟是单亲家庭吧，妈怎么了没说。有可能和月光姐组成重组家庭吗？<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+五木倒是可以对珊瑚和美奈实传授“勇敢做自己”
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  Sliurus  
+##### 1889#       发表于 2021-7-14 15:02
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51955357&amp;ptid=1963832" target="_blank">天邪鬼 发表于 2021-7-14 14:46</a>
+ 难道是一人对应一个？但抓心就四人 我记得飞鸟是单亲家庭吧，妈怎么了没说。有可能和月光姐组成重组家庭吗 ...</blockquote>
+重组家庭什么的脑洞是不是太大了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+汁波密更适合对珊瑚，夏夏对新角色
+
+
+-----
+
+####  天邪鬼  
+##### 1890#       发表于 2021-7-14 15:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51955509&amp;ptid=1963832" target="_blank">Sliurus 发表于 2021-7-14 15:02</a>
+重组家庭什么的脑洞是不是太大了
+汁波密更适合对珊瑚，夏夏对新角色 ...</blockquote>
+但pv里已经有真夏打雪仗和一起用屁拳的镜头了
+
+—— 来自 HUAWEI TAH-AN00m, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
