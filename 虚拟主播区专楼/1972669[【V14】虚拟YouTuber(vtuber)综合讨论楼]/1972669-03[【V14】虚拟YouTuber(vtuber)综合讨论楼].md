@@ -15768,3 +15768,114 @@ DokiBird　あぺ大好きVtuber　5月14日引退</blockquote>
 
 
                                                  
+
+-----
+
+####  noHentai  
+##### 4166#       发表于 2021-7-14 11:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51952604&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-7-14 10:52</a>
+
+不是很懂金盾转生虹的意义，转生杏理解，转生虹估计没以前赚的多</blockquote>
+别尬黑，去虹是追梦，去杏是恰钱
+
+
+钱，不行
+
+梦，行
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 4167#       发表于 2021-7-14 11:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51953290&amp;ptid=1972669" target="_blank">noHentai 发表于 2021-7-14 11:34</a>
+
+别尬黑，去虹是追梦，去杏是恰钱
+
+
+钱，不行</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/084.png" referrerpolicy="no-referrer">0,gbr,露露,阿霞，azuma：这种廉价梦不要也罢
+
+
+-----
+
+####  purdre  
+##### 4168#       发表于 2021-7-14 12:33
+
+
+去看了下1M转生的那个， twitch上直播不多也就14.8**，视频基本是1-5分的短视频，最近的视频点击量平均也就100k，巅峰在两年前。说不定还真不如虹的钱来得多。
+
+
+说起来这个大物是转生的哪个皮啊
+
+
+-----
+
+####  OldGlory  
+##### 4169#       发表于 2021-7-14 12:40
+
+
+这回还请马夫写歌吗？
+
+
+-----
+
+####  OldGlory  
+##### 4170#       发表于 2021-7-14 12:40
+
+
+这回还请马夫写歌吗？
+
+
+
+
+-----
+
+####  FCCHua  
+##### 4171#       发表于 2021-7-14 12:51
+
+
+复制粘贴一下
+出道曲Black Out
+Produce：TeddyLoid，绿仙
+
+
+-----
+
+####  FCCHua  
+##### 4172#       发表于 2021-7-14 12:51
+
+
+ 本帖最后由 FCCHua 于 2021-7-14 12:52 编辑 
+
+草，好卡
+
+
+-----
+
+####  FCCHua  
+##### 4173#       发表于 2021-7-14 12:51
+
+
+ 本帖最后由 FCCHua 于 2021-7-14 12:52 编辑 
+
+风怒x2
+
+
+-----
+
+####  FCCHua  
+##### 4174#       发表于 2021-7-14 12:52
+
+
+ 本帖最后由 FCCHua 于 2021-7-14 12:53 编辑 
+
+风怒x3
+
+
+                                                

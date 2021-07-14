@@ -4140,3 +4140,69 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79838#       发表于 2021-7-14 11:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51952767&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-14 11:04</a>
+50充50红魔放超强红拐 宝具打出1W伤害回10%NP 最高回100%</blockquote>
+那么我抽，就是这么真实<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  KOBI  
+##### 79839#       发表于 2021-7-14 11:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/059.png" referrerpolicy="no-referrer">奥博龙这如果不是超特殊性能的话里面得真是瓦叔两套立绘才行吧。。。
+
+
+-----
+
+####  仰望神的括约肌  
+##### 79840#       发表于 2021-7-14 12:10
+
+
+后篇的走向猜不到 但开头八九不离十 那就是 <img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 找马修
+
+去跟摩根当面要人 然后多半不会爽快给你 就指个地儿 自个找去 搞不好还会节外生枝一路杀出卡美洛（该部分占用一节——卡美洛（I））
+
+然后为了找人 开新图 一路披荆斩棘 顺便听听奥博隆的妖精豆知识 走到最后因为被贝利尔截胡还不一定救的到
+
+
+-----
+
+####  sin.yugi  
+##### 79841#       发表于 2021-7-14 12:26
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我觉得只要这次剧情不要又变成这样就可以接受了
+
+
+<img src="https://img.saraba1st.com/forum/202107/13/232529dt6o5jpoajp2h2th.jpg" referrerpolicy="no-referrer">
+
+
+<strong>20210714002047.jpg</strong> (190.73 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-14 12:25 上传
+
+
+-----
+
+####  qixinno2  
+##### 79842#       发表于 2021-7-14 12:58
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51953464&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-14 11:47</a>
+
+那么我抽，就是这么真实</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我也是
+
+
+                                                 

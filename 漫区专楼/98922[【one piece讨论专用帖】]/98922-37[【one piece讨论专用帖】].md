@@ -16603,3 +16603,17 @@ k肯定还是给小马吧，怎么看索隆都要去打凯多
 
 
                                                  
+
+-----
+
+####  athena_1982  
+##### 55391#       发表于 2021-7-14 12:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51884607&amp;ptid=98922" target="_blank">灰狼 发表于 2021-7-8 14:40</a>
+
+挺多的吧。。梅花被秒的时候开了武装色，克力架也把路飞四档的手臂砍伤过 ...</blockquote>
+黑桃吧？梅花是托雷波尔，直接被罗一发指挥棒带走的
+
+
+                                                 
