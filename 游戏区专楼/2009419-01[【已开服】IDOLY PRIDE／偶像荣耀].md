@@ -4187,3 +4187,118 @@ aoi的蓝卡，真心mvp，多位第一选择
 
 
                                                  
+
+-----
+
+####  yuugi  
+##### 323#       发表于 2021-7-14 21:36
+
+
+<blockquote>1.支援者
+首先從中期變化最大的支援者開始
+支援者因為有P技多、高強化倍率以及除<[img src="https://truth.bahamut.com.tw/s01/202107/5da970b9cd3331f87c86592ce850967c.JPG" id="aimg_ynCq8" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/5da970b9cd3331f87c86592ce850967c.JPG)外不用考慮回耐的優勢
+中期開始組隊便會常使用(尤其PVP及VS關)
+Lv.80追加的P技讓不少角色徹底翻身
+下面依常見及個人主觀性分別作介紹
+<strong>最泛用(跨屬也沒問題):</strong>
+(1) <[img src="https://truth.bahamut.com.tw/s01/202107/38c597af69fcf4aa2b3fc4a7036cc868.JPG" id="aimg_urvcl" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/38c597af69fcf4aa2b3fc4a7036cc868.JPG)沙季(最強姊姊)
+姊姊應該是80後變化最小角色，因為本來就太強...
+A技是無敵的全體得分上升，推塔越等打分的最好幫手
+P1技又有高倍率(8階)的1人アピールスコア幫助搶技
+P2追加單體回覆讓她基本上每種關卡都顧到了
+缺點大概只有A技CT50太長所以多位不能放
+<strong>但所有的VS關目前帶她幾乎沒錯</strong>
+除非後續出更可怕的技能組，目前應該沒辦法撼動她的地位
+(2)<[img src="https://truth.bahamut.com.tw/s01/202107/9db6161a9f1978bb2fab4557b93e37ab.JPG" id="aimg_r34Ac" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/9db6161a9f1978bb2fab4557b93e37ab.JPG)雫(穩定越級打怪)
+80後最大受益者
+本身A技是COMBO持續，能讓一般BEAT即便精神或粉絲不足也不會miss
+因為CT30所以多位也能連續發動
+P1技讓得分手耗耐下降及自身アピールスコア上升
+
+單就前2技因為缺少團隊得分能力使得前期不大實用
+但P2技多了1人アピールスコア上升跟特殊的隱身效果
+隱身能夠讓自己的粉絲分加成轉給其他隊友(和集目效果相反)
+讓自身變成和沙季類似的全能型支援者
+把粉絲養好使用她會更加有感
+(3)<[img src="https://truth.bahamut.com.tw/s01/202107/ebb9542e50b65cd25d952395a60e409b.JPG" id="aimg_fbK2z" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/ebb9542e50b65cd25d952395a60e409b.JPG)泳裝優(C位核心)
+穿上泳裝就發現不需要換回原版了(X
+A技是目前回耐技中最實用的(挑最少2人回復)
+P1技是目前獨一無二的C位暴擊係數(6階)+アピールスコア(7階)上升
+在現在隊伍幾乎都綁一個葵的情況下打暴擊十分好用
+P2技則彌補了跨屬傷害的不足給了Beat加成
+整體仍以P1技為核心
+追求最大效益用在<strong>C位4A技點的</strong>關卡最佳(ex:塔269)
+VS關因為アピールスコア只用在C位上不見得太好用
+但仍是非常優秀的全能型
+(4)<[img src="https://truth.bahamut.com.tw/s01/202107/a61675549d27ed373e5a04dae9156d93.JPG" id="aimg_vybB0" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/a61675549d27ed373e5a04dae9156d93.JPG)4星遙子(WTF?)
+新一代8星戰神(?)
+A技是目前遊戲對得分手最高的9階加分
+而且CT還只要30 一場能發動多次
+問題在於使用後有個<strong>耐力會消耗20階的debuff</strong>
+所以之前等級低的時候根本開不到第2次
+現在搭配回耐角或是<[img src="https://truth.bahamut.com.tw/s01/202107/b3a32e0faa1190ce76c329528f1e463a.JPG" id="aimg_HJ33N" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/b3a32e0faa1190ce76c329528f1e463a.JPG)清debuff後十分強大
+強到你真的只會講WTF
+P1技也是自身CT35的分數獲得
+讓自己輸出也不低
+P2技又多了1人視覺力6階強化補足VS關及黃卡優勢
+<strong>是目前進高分榜接近必練的角色</strong>
+<strong>對應場合使用:</strong>
+(1)<[img src="https://truth.bahamut.com.tw/s01/202107/c8c7822b0647bb0ba3b2e274b1a015a5.JPG" id="aimg_EbvYn" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/c8c7822b0647bb0ba3b2e274b1a015a5.JPG)心(降CT尊爵不凡)
+本來心應該在上面那區
+因為80等後不少得分手跟buffer具有雙A技使得CT需求降低
+P1技是1人アピールスコア(9階)上升
+
+使得在VS關仍有優勢
+
+P2技則給了一般BEAT分上升補足自身輸出不足
+仍舊是CT需求關(比如SP位4A技點)的好選擇
+(2)<[img src="https://truth.bahamut.com.tw/s01/202107/ef603bc1b4d91649bd86062cbc8341dd.JPG" id="aimg_ZLPj2" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/ef603bc1b4d91649bd86062cbc8341dd.JPG)渚(VS關回耐擔當)
+CT都超長的(50,60)
+A技是強大的全體回復
+P1則是當1人低於50%耐時回耐+アピールスコア(6階)上升
+在VS關主打後手，用來搶對方回體技能的發動
+尤其PVP能用來使對方因耐力不足使技能miss
+P2技追加1人6階暴擊系數上升跟1人14階耗耐下降(兩個不同人)
+主要在暴擊係數上升就能在黃屬關有泳裝優一樣的作用
+使用上目前偏PVP跟黃SP關
+300層後耐力需求變高會更常用到她
+(3)<[img src="https://truth.bahamut.com.tw/s01/202107/f793c87992dd1b42cc8f069779aa97ac.JPG" id="aimg_S9I7v" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/f793c87992dd1b42cc8f069779aa97ac.JPG)優(後期回耐擔當)
+穿了泳裝回不來了(X)
+A技是對耐力低的1人大回耐
+精華在於P1技
+目前唯一的<strong>全員BEAT分數上升(5階)</strong>
+同時附帶移除負面效果(比如前面優子的耗耐上升)
+在BEAT分數加成的關卡(比如RANK關第6首)分數能打出最高分(很後期)
+但需要靠葵來幫忙加暴率提高
+P2技則是再進一步的對1人回耐跟耗耐降低
+是一個主打BEAT加成關和後期耐力關的角色
+現階段還是使用泳裝的她比較多(O
+(4)<[img src="https://truth.bahamut.com.tw/s01/202107/c21e90620c37f4f72e85b69cf4598afc.JPG" id="aimg_f3mvb" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/c21e90620c37f4f72e85b69cf4598afc.JPG)泳裝堇(依回耐而生)
+三項技能都是耐力相關(CT也都很大50,60)
+A技是全體耗耐下降
+主打給耗耐需求2.0以上的關卡(EX:280以後)
+P1技是得分手回耐
+P2技則又是1人回耐
+整個是主打後期的角色
+因為沒有幾乎沒加分技且高CT
+與Buffer的加成跟得分能力會比較好搭配
+<strong>其他:</strong>
+<[img src="https://truth.bahamut.com.tw/s01/202107/26fe23b72a729edf822b0c54f389d02b.JPG" id="aimg_lfpO3" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/26fe23b72a729edf822b0c54f389d02b.JPG)4星芽衣(短紅譜莉央好幫手)
+80等後起飛
+A技對2得分手回耐
+P1技有著<strong>觀眾越少 得越多分</strong>的特殊得分技
+以及自身-18CT
+讓前期還沒粉絲時能幫忙補足一點紅譜分
+但中期就開始疲弱而不適用
+P2技解放給了C位8階分數上升跟回耐
+**增強了輔助能力
+之所以仍不泛用在於CT實在是太長(CT70)
+就算-18也還是高達52而不能常發動
+但在短紅譜能讓<[img src="https://truth.bahamut.com.tw/s01/202107/210afaadad804f2e8c57d1967cdd7826.JPG" id="aimg_Un8rR" lazyloadthumb="1" onclick="zoom(this, this.src, 0, 0, 0)" onmouseover="img_onmouseoverfunc(this)"/)](https://truth.bahamut.com.tw/s01/202107/210afaadad804f2e8c57d1967cdd7826.JPG)分數十分可觀</blockquote>
+隔壁有大佬总结了
+
+
+欸，支援前三一个都没
+
+
+                                                 

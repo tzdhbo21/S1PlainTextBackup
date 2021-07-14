@@ -5365,3 +5365,76 @@ NMD这2.6卡池就有毒
 
 
                                                 
+
+-----
+
+####  sandro  
+##### 79947#       发表于 2021-7-14 20:50
+
+
+长江太可爱了吧
+
+
+-----
+
+####  areklose  
+##### 79948#       发表于 2021-7-14 20:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">难道奥伯伦3技能是变职介？
+
+
+-----
+
+####  alucardcz  
+##### 79949#       发表于 2021-7-14 21:03
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959423&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-14 20:33</a>
+
+是红宝具，只不过用绿色字体写的</blockquote>
+什么 还有这种操作？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  里村紅葉  
+##### 79950#       发表于 2021-7-14 21:11
+
+
+听说帕西比妖兰厉害，这波又是厉害的我抽不到系列<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  areklose  
+##### 79951#       发表于 2021-7-14 21:13
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959750&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-14 21:11</a>
+
+听说帕西比妖兰厉害，这波又是厉害的我抽不到系列</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">想多聊。作为连发枪他比不上莉莉丝的。至于妖兰高额自充有另外的上班场合
+
+
+-----
+
+####  areklose  
+##### 79952#       发表于 2021-7-14 21:14
+
+
+翻页
+
+
+-----
+
+####  areklose  
+##### 79953#       发表于 2021-7-14 21:14
+
+
+再翻页
+
+
+                                                
