@@ -4239,3 +4239,39 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
 
                                                  
+
+-----
+
+####  zore  
+##### 79846#       发表于 2021-7-14 17:32
+
+
+一万年过去了
+
+还是宝具动画
+
+
+-----
+
+####  alucardcz  
+##### 79847#       发表于 2021-7-14 17:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51957397&amp;ptid=1085254" target="_blank">zore 发表于 2021-7-14 17:32</a>
+
+一万年过去了
+
+还是宝具动画</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">6点才开始呢
+
+
+-----
+
+####  rooarr  
+##### 79848#       发表于 2021-7-14 18:19
+
+
+今天应该会有周年庆的活动预告了吧
+
+
+                                                 
