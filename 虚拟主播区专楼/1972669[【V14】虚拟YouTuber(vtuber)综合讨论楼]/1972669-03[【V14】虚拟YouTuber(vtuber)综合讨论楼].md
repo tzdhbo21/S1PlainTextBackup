@@ -16040,3 +16040,171 @@ Produce：TeddyLoid，绿仙
 
 
                                                  
+
+-----
+
+####  Suny08  
+##### 4190#       发表于 2021-7-14 21:59
+
+
+你虹能不能学学自家维阿地下情侣别藏着了
+
+
+-----
+
+####  alcoholic1000  
+##### 4191#       发表于 2021-7-14 22:16
+
+
+叶星会有这一天吗<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  hulaoda007  
+##### 4192#       发表于 2021-7-14 22:17
+
+
+  葛千可以官宣一下吗...？还蛮梦幻和甜的...
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|大概葛尊赢面比较大|
+
+
+查看全部评分
+
+
+-----
+
+####  FCCHua  
+##### 4193#       发表于 2021-7-14 22:18
+
+
+ 本帖最后由 FCCHua 于 2021-7-14 22:35 编辑 
+
+虹里不管是异性情侣还是同性情侣都多来点<img src="https://static.saraba1st.com/image/smiley/face2017/072.png" referrerpolicy="no-referrer">
+syl 今晚在看和要补的有些多<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  rzrbtk  
+##### 4194#       发表于 2021-7-14 22:25
+
+
+已经出道这么久了，们琥珀珊瑚的真实身份依然没人在意<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  winda  
+##### 4195#       发表于 2021-7-14 22:31
+
+
+ 本帖最后由 winda 于 2021-7-14 22:43 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/14/223140x93nu29urtfr966f.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021_0714_222928.jpg</strong> (104.76 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-14 22:31 上传
+
+
+juvvel这组合第一次联动踩赞比到1:6了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+之前看待机间怎么还有对立煽的
+
+
+-----
+
+####  IDIDIDID  
+##### 4196#       发表于 2021-7-14 22:45
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960684&amp;ptid=1972669" target="_blank">winda 发表于 2021-7-14 22:31</a>
+
+juvvel这组合第一次联动踩赞比到1:6了啊
+
+之前看待机间怎么还有对立煽的 ...</blockquote>
+细说谁对立谁
+
+
+-----
+
+####  qq845629713  
+##### 4197#       发表于 2021-7-14 22:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 尊可是你虹本社、vr、kr、en、in，所有人第一个暴露和同社男明星同居的，尊单人直播都有150踩，
+
+
+联动直播几百也挺正常的，加上今天节目实在不行，点赞的也很少，太失败了
+
+
+-----
+
+####  OldGlory  
+##### 4198#       发表于 2021-7-14 22:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">反正第一个官宣的还是我大维阿。
+
+
+-----
+
+####  FCCHua  
+##### 4199#       发表于 2021-7-14 22:57
+
+
+in，草<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> id:？
+
+
+-----
+
+####  winda  
+##### 4200#       发表于 2021-7-14 23:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960853&amp;ptid=1972669" target="_blank">IDIDIDID 发表于 2021-7-14 22:45</a>
+细说谁对立谁</blockquote>
+木口那边的，也不知道怎么跑来这了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  qq845629713  
+##### 4201#       发表于 2021-7-14 23:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer"> 我感觉尊差不多快破防了，几乎没法正常直播，企划也被点踩，
+
+
+就差一点点火星引爆这炸药桶了，
+
+
+-----
+
+####  winda  
+##### 4202#       发表于 2021-7-14 23:22
+
+
+juvvel还按profile里选爱还是选金分成了“爱组”（天皇，葵皇，尊妹）和“金组”（莉莉，奈罗花）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+按数字分的可真是清楚，
+
+
+                                                

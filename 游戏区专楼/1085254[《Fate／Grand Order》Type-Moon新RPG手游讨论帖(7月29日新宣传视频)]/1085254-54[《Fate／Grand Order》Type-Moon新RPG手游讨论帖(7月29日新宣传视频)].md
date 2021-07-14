@@ -5438,3 +5438,198 @@ NMD这2.6卡池就有毒
 
 
                                                 
+
+-----
+
+####  Jamaisvu  
+##### 79954#       发表于 2021-7-14 21:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959248&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-14 20:13</a>
+
+那这100充对我来说就没卵用</blockquote>
+据说三破开三技能会变成龙吐波，不开就是人投枪。
+
+
+（我没抽到，云的...）
+
+
+-----
+
+####  qixinno2  
+##### 79955#       发表于 2021-7-14 21:35
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">我宣布2.6对我来说就是渣渣 根本抽不到五星
+
+
+-----
+
+####  zakki  
+##### 79956#       发表于 2021-7-14 21:41
+
+
+还要分上下？25节以后的剧情8月4号开？<img src="https://static.saraba1st.com/image/smiley/face2017/020.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zore  
+##### 79957#       发表于 2021-7-14 21:43
+
+
+坐下 一般操作<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 79958#       发表于 2021-7-14 21:46
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960086&amp;ptid=1085254" target="_blank">zore 发表于 2021-7-14 21:43</a>
+坐下 一般操作</blockquote>
+这不是纯恶心人啊<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 79959#       发表于 2021-7-14 21:47
+
+
+淦，为了抽松风配的帕西瓦尔抽了460连（我整个人都冈妈化了），前面250发就出了一个帕叔，0五星，460发下来妖兰3宝帕叔6宝，真是非得不行啊。不过往好的想，这节奏和我复刻去年泳装700发解决3个卡池出了13个五星之前那波非洲2月游好像差不多<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79960#       发表于 2021-7-14 21:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960061&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-14 21:41</a>
+
+还要分上下？25节以后的剧情8月4号开？</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">8。4就离谱了  dw我的废物
+
+
+-----
+
+####  zakki  
+##### 79961#       发表于 2021-7-14 21:58
+
+
+ 本帖最后由 zakki 于 2021-7-14 22:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960254&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 21:56</a>
+8。4就离谱了  dw我的废物</blockquote>
+又看到有人说26号开，就算卡剧情最多卡一周吧怎么还卡半个多月的<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+好吧，就是8月4号<img src="https://static.saraba1st.com/image/smiley/face2017/003.png" referrerpolicy="no-referrer">
+
+<img src="https://p.sda1.dev/2/77b47b1f23c2b8ed9da4acecc75025e7/564d020075410a23.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79962#       发表于 2021-7-14 22:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">奥伯龙能不能不要那么强，我想抽泳装阿
+
+
+-----
+
+####  zakki  
+##### 79963#       发表于 2021-7-14 22:13
+
+
+奥伯龙这宝具本质还是拐，给睡眠加无敌防止被打醒，相当于群晕
+
+
+-----
+
+####  alucardcz  
+##### 79964#       发表于 2021-7-14 22:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960282&amp;ptid=1085254" target="_blank">zakki 发表于 2021-7-14 21:58</a>
+
+又看到有人说26号开，就算卡剧情最多卡一周吧怎么还卡半个多月的
+
+
+好吧，就是8月4号</blockquote>
+所以有没有free
+
+如果没有。dw可真是废物中的废物
+
+
+-----
+
+####  alucardcz  
+##### 79965#       发表于 2021-7-14 22:39
+
+
+话说这epilogue。。8月4号是周年后还是周年中？  
+
+那谁真要成周年从者了？<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  zakki  
+##### 79966#       发表于 2021-7-14 22:42
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960774&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 22:39</a>
+话说这epilogue。。8月4号是周年后还是周年中？  
+
+那谁真要成周年从者了？ ...</blockquote>
+70它冲的红拐，百分百周年从者了
+
+
+-----
+
+####  qixinno2  
+##### 79967#       发表于 2021-7-14 22:50
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">卧槽 这也太废物了吧 真就分上中下
+
+
+-----
+
+####  rzxa  
+##### 79968#       发表于 2021-7-14 22:55
+
+
+ 本帖最后由 rzxa 于 2021-7-14 22:59 编辑 
+
+没有free本，周年生放8月1日
+
+舅舅说的人物真名都是正确的，还少了个谭林，奥贝龙未确认
+
+
+-----
+
+####  khxooo  
+##### 79969#       发表于 2021-7-14 23:14
+
+
+10连，没有读入，连续按了跳过，然后突然跳出个萝兰出来<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">，老子将所有狗粮卖了草<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79970#       发表于 2021-7-14 23:22
+
+
+没free已经确认了。。
+
+剧情进展明天应该就有报告了
+
+虽然我觉得dw是废物+欺诈已经毋庸置疑 
+
+
+                                                 

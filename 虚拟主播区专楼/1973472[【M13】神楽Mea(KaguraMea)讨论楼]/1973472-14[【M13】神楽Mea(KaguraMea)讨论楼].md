@@ -3196,3 +3196,225 @@ MD 听着歌又想zqsg了。人们常说被喜欢是一种幸福，但喜欢一�
 
 
                                                  
+
+-----
+
+####  T_Hb  
+##### 19785#       发表于 2021-7-14 21:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19786#       发表于 2021-7-14 21:45
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">经典曲目忘的有点多啊
+
+
+-----
+
+####  whbstc4545  
+##### 19787#       发表于 2021-7-14 21:55
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/184.png" referrerpolicy="no-referrer">今天听得很爽
+
+
+-----
+
+####  fgfg435  
+##### 19788#       发表于 2021-7-14 21:55
+
+
+很安逸<img src="https://static.saraba1st.com/image/smiley/face2017/185.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  呓亘  
+##### 19789#       发表于 2021-7-14 22:19
+
+
+30那边在看你咩的一个切片 BW相关的 就是你咩把吃的打包带走的那个 弹幕环境还可以
+
+
+-----
+
+####  T_Hb  
+##### 19790#       发表于 2021-7-14 22:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">我今天听了一下午九月先生
+
+
+-----
+
+####  古战场亡魂  
+##### 19791#       发表于 2021-7-14 22:29
+
+
+今天全是抒情歌啊。
+
+
+-----
+
+####  T_Hb  
+##### 19792#       发表于 2021-7-14 22:59
+
+
+ 本帖最后由 T_Hb 于 2021-7-14 23:03 编辑 
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/139.png" referrerpolicy="no-referrer">呜呜呜，这现场版路标，我有一句话不好说
+
+又来现场版旅人，两句话合为一句了<img src="https://static.saraba1st.com/image/smiley/face2017/138.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19793#       发表于 2021-7-14 23:01
+
+
+盯着这皮我能看一天，不是很懂说旧皮好看的人
+
+
+-----
+
+####  Mikumiku831  
+##### 19794#       发表于 2021-7-14 23:02
+
+
+这不比傻逼774调的好听多了
+
+
+-----
+
+####  古战场亡魂  
+##### 19795#       发表于 2021-7-14 23:03
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">我还是觉得歌的情感很重要，还不还原原唱不重要。
+
+现在她能笑着唱悲歌，比较喜欢这种情感。
+
+
+-----
+
+####  路人庚  
+##### 19796#       发表于 2021-7-14 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">之前不是说了旅人和路标都是花粉期间录的，鼻音太重直接用特效盖过去了，于是音质就下去了
+
+
+-----
+
+####  makourisu-2  
+##### 19797#       发表于 2021-7-14 23:05
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/075.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Ky·Kiske  
+##### 19798#       发表于 2021-7-14 23:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">现场比PV唱的好听，独此小麻一家<img src="https://static.saraba1st.com/image/smiley/face2017/124.png" referrerpolicy="no-referrer">
+
+我人都麻了
+
+
+-----
+
+####  T_Hb  
+##### 19799#       发表于 2021-7-14 23:09
+
+
+臭女人今天被我懂到了，纯正歌回<img src="https://static.saraba1st.com/image/smiley/face2017/187.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2111X  
+##### 19800#       发表于 2021-7-14 23:11
+
+
+お前がストレス
+yeah!<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  古战场亡魂  
+##### 19801#       发表于 2021-7-14 23:12
+
+
+这作息也太健康了，还以为能唱到1点呢……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19802#       发表于 2021-7-14 23:13
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">别说健康了，等下101启动就知错了
+
+
+-----
+
+####  专业划水人员  
+##### 19803#       发表于 2021-7-14 23:13
+
+
+今晚满足了。放肥婆去睡吧
+
+
+-----
+
+####  古战场亡魂  
+##### 19804#       发表于 2021-7-14 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51961226&amp;ptid=1973472" target="_blank">T_Hb 发表于 2021-7-14 23:13</a>
+
+别说健康了，等下101启动就知错了</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">早就过了查她游戏记录的时候了。
+
+当年她打一盘刀塔自走棋大家都清清楚楚。
+
+给她点私人空间吧。
+
+
+-----
+
+####  T_Hb  
+##### 19805#       发表于 2021-7-14 23:22
+
+
+ 本帖最后由 T_Hb 于 2021-7-14 23:27 编辑 
+
+说说而已，我又不会去监控，打游戏我还挺支持的
+
+打游戏放松挺正常的，东京现在应该还是不好出门玩
+
+
+-----
+
+####  时间在我手中  
+##### 19806#       发表于 2021-7-14 23:24
+
+
+建了个会员留档播放列表，睡前也在努力的肥坦
+
+
+                                                

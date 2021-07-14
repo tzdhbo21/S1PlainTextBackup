@@ -16685,3 +16685,16 @@ cp9有道力值的，后面不玩这套了
 
 
                                                  
+
+-----
+
+####  20002000  
+##### 55397#       发表于 2021-7-14 23:29
+
+
+从一开始红发一个四皇能被区区海王类咬掉一条手臂就知道战力设定全是后期才想的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+— from HMD Global Nokia 7 plus, Android 10 of [S1 Next Goose](https://pan.baidu.com/s/1mi43uRm) v2.4.4.1
+
+
+                                                 

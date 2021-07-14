@@ -5441,3 +5441,46 @@ pv里真夏和汁波密一组，萝拉和马琳一组。
 
 
                                                  
+
+-----
+
+####  Cloudslin  
+##### 1901#       发表于 2021-7-14 22:20
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51952795&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-7-14 11:05</a>
+应该是按照nhk当初投票按照作品顺序吧 好像前三是无印抓心gogo 后面是拥抱 傻笑 5 公主 mh 水果 魔法来着 ...</blockquote>
+组曲才是真阿卡林，你这盘点都上不了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  laphire  
+##### 1902#       发表于 2021-7-14 22:32
+
+
+但是芒果本地化做的不错，不一定没人看（某美国动画扭曲的人体也一堆看的不是…
+
+
+-----
+
+####  粉儿alice  
+##### 1903#       发表于 2021-7-14 22:47
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960571&amp;ptid=1963832" target="_blank">Cloudslin 发表于 2021-7-14 22:20</a>
+组曲才是真阿卡林，你这盘点都上不了</blockquote>
+组曲的确是挺阿卡林得 毕竟被抓心压在后面 被傻笑挤在前面
+那榜单我去查一下组曲就黑白猫上榜 艾莲还是在末班车倒数第一个 哈米没有进前十 至少没有比连影子都没有看到的ss和快充好吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  reficul  
+##### 1904#       发表于 2021-7-14 23:16
+
+
+抓心新剧场版，我哭了！
+
+
+                                                 

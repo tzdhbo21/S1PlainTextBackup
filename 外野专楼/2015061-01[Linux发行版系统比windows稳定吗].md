@@ -1622,3 +1622,67 @@ mac的ogl更烂, 还不支持vulkan
 
 
                                                  
+
+-----
+
+####  r_ex  
+##### 120#       发表于 2021-7-14 23:16
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51943619&amp;ptid=2015061" target="_blank">tangboyun 发表于 2021-7-13 14:42</a>
+
+先让微软把每年更新的Vc++ runtime redistributable统一下，这两个一个性质的，如果不是有Steam这类平台， ...</blockquote>
+但是微软的C库和C++库都可以静态链接啊(指Win32的，WinRT的好像不行)
+
+
+
+
+-----
+
+####  r_ex  
+##### 121#       发表于 2021-7-14 23:17
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51943619&amp;ptid=2015061" target="_blank">tangboyun 发表于 2021-7-13 14:42</a>
+
+先让微软把每年更新的Vc++ runtime redistributable统一下，这两个一个性质的，如果不是有Steam这类平台， ...</blockquote>
+注册表现在除了微软自己，应该没啥人用了吧
+
+
+-----
+
+####  r_ex  
+##### 122#       发表于 2021-7-14 23:21
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51940726&amp;ptid=2015061" target="_blank">萱时令 发表于 2021-7-13 10:14</a>
+
+驱动是驱动 Windows是Windows
+
+更新造成驱动问题或者驱动本身问题 不好用不怪Windows
+
+微软也可以这么说[f:03 ...</blockquote>
+驱动都是微软签名的，赖不掉
+
+不过Linux的驱动没有稳定的ABI，大部分都是跟着kernel代码一起的，更是赖不掉
+
+
+-----
+
+####  migros  
+##### 123#       发表于 2021-7-14 23:40
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51949146&amp;ptid=2015061" target="_blank">alann 发表于 2021-7-13 23:20</a>
+我就是用来炼丹的，而且只习惯图形界面，wayland用不了xorg+kde也凑合用。</blockquote>
+给个方案
+
+gpu docker内拉起sshd
+
+然后vscode用remote ssh插件在隔壁电脑连接
+
+
+—— 来自 samsung SM-G7810, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.1.0-play
+
+
+                                                
