@@ -3925,3 +3925,90 @@ EX的Encore这也叫超高难？
 
 
                                                  
+
+-----
+
+####  areklose  
+##### 79821#       发表于 2021-7-14 07:50
+
+
+满加成是真的爽，只是材料掉落好微妙。不过反正以后应该不会缺尘了
+
+
+<img src="https://img.saraba1st.com/forum/202107/14/074958wx01gnmwg7oo0b6h.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-14-07-45-02-27_13e7a6b10873871.jpg</strong> (452.09 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-14 07:49 上传
+
+
+-----
+
+####  areklose  
+##### 79822#       发表于 2021-7-14 07:52
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">要开始腾位置放狗粮了，痛苦面具
+
+
+-----
+
+####  里村紅葉  
+##### 79823#       发表于 2021-7-14 08:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51946789&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-13 19:23</a>
+你咸鱼个猫儿</blockquote>
+我才12池，你还是太肝了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  areklose  
+##### 79824#       发表于 2021-7-14 08:37
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">今晚该公审菌哥哥了。今晚会UP啥帮助我消耗一下我的狗粮
+
+
+-----
+
+####  黑上シグマ  
+##### 79825#       发表于 2021-7-14 08:45
+
+
+<blockquote>引用第79823楼areklose于2021-07-14 08:37发表的  :
+
+今晚该公审菌哥哥了。今晚会UP啥帮助我消耗一下我的狗粮</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">前提是你抽得到
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  xiongxingyu  
+##### 79826#       发表于 2021-7-14 08:54
+
+
+本来就打算刷100池，刷着刷着120了，y1s1，阴间本虽然组队麻烦了，但刷起来提神多了，不像以前经常刷着刷着睡着了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 79827#       发表于 2021-7-14 08:56
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51951011&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-14 08:37</a>
+今晚该公审菌哥哥了。今晚会UP啥帮助我消耗一下我的狗粮</blockquote>
+我已经将包括仓库内所有的狗粮全卖了，非洲人的自信<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

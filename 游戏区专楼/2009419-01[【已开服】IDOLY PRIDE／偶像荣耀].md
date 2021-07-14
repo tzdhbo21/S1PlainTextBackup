@@ -4148,3 +4148,42 @@ ct时间是按你不跳过的时候能看到那个小点的hit数来算的，然
 
 
                                                  
+
+-----
+
+####  yuugi  
+##### 322#       发表于 2021-7-14 08:54
+
+
+ 本帖最后由 yuugi 于 2021-7-14 09:28 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/14/085441j75ih1izdtd8j4s8.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-14-01-31-33-026_game.qualiarts.idolypride.jpg</strong> (169.31 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-14 08:54 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/14/085430jhznnzdndoelineo.jpg" referrerpolicy="no-referrer">
+
+
+<strong>Screenshot_2021-07-14-09-32-40-354_game.qualiarts.idolypride.jpg</strong> (186.45 KB, 下载次数: 0)
+
+下载附件
+
+由手机上传
+2021-7-14 08:54 上传
+
+
+200层和#26-7，总算过了，要逐张调照片来配分
+
+
+aoi的蓝卡，真心mvp，多位第一选择
+
+
+                                                 

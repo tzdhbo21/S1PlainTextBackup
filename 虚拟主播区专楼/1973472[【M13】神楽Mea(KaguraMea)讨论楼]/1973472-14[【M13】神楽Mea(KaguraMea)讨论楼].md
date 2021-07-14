@@ -2441,3 +2441,25 @@ tc哪有花活，有软咩我就满足了
 
 
                                                  
+
+-----
+
+####  Klience  
+##### 19716#       发表于 2021-7-14 08:43
+
+
+ 本帖最后由 Klience 于 2021-7-14 08:53 编辑 
+
+这人凌晨还打了两把排位啊 难得啊 两场都是波比 刚好打完定级赛 白银2可还行<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 哦 还是和辅助露露双排的
+
+
+-----
+
+####  T_Hb  
+##### 19717#       发表于 2021-7-14 08:51
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">今天会播吗
+
+
+                                                 
