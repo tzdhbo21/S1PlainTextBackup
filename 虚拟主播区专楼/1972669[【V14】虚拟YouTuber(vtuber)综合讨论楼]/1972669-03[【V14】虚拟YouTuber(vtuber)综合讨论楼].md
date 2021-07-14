@@ -15621,3 +15621,108 @@ B站炸了.......
 
 
                                                  
+
+-----
+
+####  真飞鸟i  
+##### 4154#       发表于 2021-7-14 09:23
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">虹棒还在油管打广告了啊，这下子有的看了。
+
+—— 来自 Xiaomi Redmi K20 Pro, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.3
+
+
+-----
+
+####  渡鸦骑士  
+##### 4155#       发表于 2021-7-14 10:06
+
+
+ 本帖最后由 渡鸦骑士 于 2021-7-14 10:11 编辑 
+
+才发现，德比好自由啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+<img src="https://img.saraba1st.com/forum/202107/14/101057vgctfwfqkgfcwx4f.png" referrerpolicy="no-referrer">
+
+
+<strong>image.png</strong> (19.97 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-14 10:10 上传
+
+
+-----
+
+####  渡鸦骑士  
+##### 4156#       发表于 2021-7-14 10:07
+
+
+才发现，德比好自由啊<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  真飞鸟i  
+##### 4157#       发表于 2021-7-14 10:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">虹en又出新人了，在下饺子这方面虹还是nb，虹，我的美利坚。
+
+
+-----
+
+####  poipanchao  
+##### 4158#       发表于 2021-7-14 10:13
+
+
+vspo好像要加人
+実は国内でさらに2名の追加メンバーが決まっていて、それを機に徐々に参加発表を増やしていく予定です。加入するのは、とあるタイトルで強い子でして……。あっ、『Apex Legends』では無いですよ（笑）。
+
+这个国内是不是意思还有国外
+能不能加一个或者两个韩国人呢
+
+
+-----
+
+####  poipanchao  
+##### 4159#       发表于 2021-7-14 10:13
+
+
+ 本帖最后由 poipanchao 于 2021-7-14 10:18 编辑 
+
+风怒编辑
+
+
+-----
+
+####  FCCHua  
+##### 4160#       发表于 2021-7-14 10:21
+
+
+ 本帖最后由 FCCHua 于 2021-7-14 10:25 编辑 
+
+官推谜语的结果果然是新人<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+二期那条龙看起来画画很好...
+
+
+-----
+
+####  空き地卯木  
+##### 4161#       发表于 2021-7-14 10:28
+
+
+<blockquote>EN2期生候補
+
+
+shachi　登録者数100万人の超大物Vtuber　6月11日に引退
+
+
+文月みき　日本語OKの歌系Vtuber　5月21日引退
+
+
+DokiBird　あぺ大好きVtuber　5月14日引退</blockquote>
+
+
+                                                 

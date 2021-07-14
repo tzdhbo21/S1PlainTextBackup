@@ -7719,3 +7719,34 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
 
                                                  
+
+-----
+
+####  nian1538  
+##### 12672#       发表于 2021-7-14 09:25
+
+
+[https://youtu.be/nI4VBvClFNQ?t=900](https://youtu.be/nI4VBvClFNQ?t=900)
+
+不开播的时候居然还去教学了润润APEX
+
+
+-----
+
+####  FCCHua  
+##### 12673#       发表于 2021-7-14 09:28
+
+
+她还记得apex就好<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  因为你不会  
+##### 12674#       发表于 2021-7-14 09:35
+
+
+没办法，等到要打比赛了大家都会想到让绫总去整蛊搞节目效果的
+
+
+                                                 

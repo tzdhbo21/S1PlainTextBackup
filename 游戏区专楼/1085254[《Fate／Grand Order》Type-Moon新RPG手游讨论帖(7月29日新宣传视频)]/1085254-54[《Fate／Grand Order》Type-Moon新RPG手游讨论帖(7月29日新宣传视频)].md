@@ -4012,3 +4012,107 @@ EX的Encore这也叫超高难？
 
 
                                                  
+
+-----
+
+####  里村紅葉  
+##### 79828#       发表于 2021-7-14 09:18
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51951171&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-14 08:56</a>
+我已经将包括仓库内所有的狗粮全卖了，非洲人的自信</blockquote>
+狗粮全消耗了比较容易出货<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  areklose  
+##### 79829#       发表于 2021-7-14 09:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51951411&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-14 09:18</a>
+
+狗粮全消耗了比较容易出货
+
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">我仓库现在都没狗粮。今晚稳了
+
+
+-----
+
+####  khxooo  
+##### 79830#       发表于 2021-7-14 09:30
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51951411&amp;ptid=1085254" target="_blank">里村紅葉 发表于 2021-7-14 09:18</a>
+狗粮全消耗了比较容易出货
+
+—— 来自 OnePlus ONEPLUS A6010, Android 9上的 S1Next-鹅版 v2.4.4 ...</blockquote>
+出货不存在的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  yzj134100  
+##### 79831#       发表于 2021-7-14 09:47
+
+
+这期只打了高难拿护肤，不得不说都是时代眼泪<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+用了下还没点满的摩根去打高难，手感意外地好<img src="https://static.saraba1st.com/image/smiley/face2017/041.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79832#       发表于 2021-7-14 10:07
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51951011&amp;ptid=1085254" target="_blank">areklose 发表于 2021-7-14 08:37</a>
+
+今晚该公审菌哥哥了。今晚会UP啥帮助我消耗一下我的狗粮</blockquote>
+up什么不是很明显了吗 妖精王啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  areklose  
+##### 79833#       发表于 2021-7-14 10:10
+
+
+翻页
+
+
+-----
+
+####  areklose  
+##### 79834#       发表于 2021-7-14 10:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51952004&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 10:07</a>
+
+up什么不是很明显了吗 妖精王啊</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">不是萝兰吗
+
+
+-----
+
+####  exiaexa  
+##### 79835#       发表于 2021-7-14 10:29
+
+
+有句港剧奥伯龙这章虽然表现挺靠谱
+
+但是菌类这厨力放出的立绘……
+
+
+性能没不可替代性真的不想抽，总不能为了仲夏夜之梦去抽吧
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                

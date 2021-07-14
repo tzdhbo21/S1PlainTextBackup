@@ -1168,3 +1168,20 @@ xp姐展示的性癖还不如消极哥，但分镜演出故事基本功很强，
 
 
                                                  
+
+-----
+
+####  伊莉伊莉雅  
+##### 80#       发表于 2021-7-14 10:18
+
+
+看视频之前看坛友说画的都不有趣还以为会很惨烈。
+实际上看了视频，感觉杀人狂和死神都挺有意思，看完之后去看了下漫画。
+<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">个人觉得杀人狂就是很乐很对味
+<img src="https://static.saraba1st.com/image/smiley/face2017/077.png" referrerpolicy="no-referrer">藤田的jk画的是炒鸡棒，感觉恋爱了
+<img src="https://static.saraba1st.com/image/smiley/face2017/033.png" referrerpolicy="no-referrer">死神的妹纸画的也不错，最后的转折拉高了评价，很有短篇味。
+
+排名外的三组就感觉都和4页短篇不搭，机器人属于老套发展，但是情感转折过于突兀，篇幅长一些的话应该会好很多。偶像故事也是短篇吃亏。恐怖故事就。。。emmm确实不太行。
+
+
+                                                 
