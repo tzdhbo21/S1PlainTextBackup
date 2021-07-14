@@ -6443,3 +6443,32 @@ SOP就在转角，Hasan亮出了自己的推特号
 
 
                                                  
+
+-----
+
+####  luoyianwu  
+##### 493#       发表于 2021-7-15 03:13
+
+
+<blockquote>Hasan Kahraman
+
+To experience the 4k60, graphics, 3D audio and DualSense features in realtime.
+
+APP是4k60帧，画面优美，具有3D音效及DualSense特性</blockquote><blockquote>BLUE BOX Game Studios
+
+We have changed the app name from Realtime Trailers to Realtime Experience so the app will be released as Realtime Experience. What can you expect?
+
+
+-Multiple trailers* with duration between 5 to max 12 minutes.
+
+-Gameplay Demonstrations.
+
+-Future live events.
+
+
+*When available.App名为Abandoned Realtime Experience
+
+将有数个5-12分钟的短片及gameplay演示</blockquote>
+
+
+                                                 

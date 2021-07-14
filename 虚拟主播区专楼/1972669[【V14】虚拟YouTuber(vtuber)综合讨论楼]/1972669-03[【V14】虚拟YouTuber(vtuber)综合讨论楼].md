@@ -16393,3 +16393,16 @@ juvvel还按profile里选爱还是选金分成了“爱组”（天皇，葵皇�
 
 
                                                  
+
+-----
+
+####  空集  
+##### 4219#       发表于 2021-7-15 02:39
+
+
+486和尊不熟啊 ，而且大空家都两e年没有了就不要说486了
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
