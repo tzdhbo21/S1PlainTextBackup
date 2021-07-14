@@ -1592,3 +1592,22 @@ https://www.zhihu.com/answer/1305760654
 
 
                                                  
+
+-----
+
+####  tsubasa9  
+##### 118#       发表于 2021-7-14 17:00
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51956272&amp;ptid=2015061" target="_blank">refo2613 发表于 2021-7-14 16:06</a>
+
+所以总结还是mac或者wsl2最好
+
+
+—— 来自 vivo NEX A, Android 10上的 S1Next-鹅版 v2.4.4.1 ...</blockquote>
+mac的ogl更烂, 还不支持vulkan
+
+至少linux上dx转vulkan都有人做而且效果相当好
+
+
+                                                 

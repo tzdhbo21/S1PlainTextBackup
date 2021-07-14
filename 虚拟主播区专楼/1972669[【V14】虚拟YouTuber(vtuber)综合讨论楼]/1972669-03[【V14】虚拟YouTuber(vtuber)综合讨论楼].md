@@ -15954,3 +15954,26 @@ Produce：TeddyLoid，绿仙
 
 
                                                  
+
+-----
+
+####  Suny08  
+##### 4182#       发表于 2021-7-14 17:23
+
+
+那个金盾爱好HxH，画画挺不错，要是首播声音爱好全对上估计就能锤了，现在先观望一下
+
+
+-----
+
+####  winsloven  
+##### 4183#       发表于 2021-7-14 17:26
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51956020&amp;ptid=1972669" target="_blank">qq845629713 发表于 2021-7-14 15:49</a>
+
+虹en炒作中之人营业，不知道本社那些提都不敢提的人会有什么想法</blockquote>
+彩虹早改抄作业了。大物转生，中之人引流，还搞上世纪那套素人培养简直是太弱智了。
+
+
+                                                 
