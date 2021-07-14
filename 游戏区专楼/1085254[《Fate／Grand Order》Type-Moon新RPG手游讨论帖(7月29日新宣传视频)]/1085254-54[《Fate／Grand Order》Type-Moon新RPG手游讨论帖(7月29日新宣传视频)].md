@@ -4206,3 +4206,16 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
 
                                                  
+
+-----
+
+####  khxooo  
+##### 79843#       发表于 2021-7-14 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51953941&amp;ptid=1085254" target="_blank">sin.yugi 发表于 2021-7-14 12:26</a>
+我觉得只要这次剧情不要又变成这样就可以接受了</blockquote>
+他黑化不是很大几率吗，在剧情里他自己都说，不要看这个英灵是不是坏人，而是要看他的Master 是不是坏人，基本上已经明示他是贝先生的从者了
+
+
+                                                 

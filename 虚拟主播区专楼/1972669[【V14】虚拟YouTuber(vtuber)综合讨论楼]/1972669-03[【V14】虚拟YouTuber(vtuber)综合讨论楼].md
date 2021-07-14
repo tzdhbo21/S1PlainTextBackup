@@ -15879,3 +15879,15 @@ Produce：TeddyLoid，绿仙
 
 
                                                 
+
+-----
+
+####  古战场亡魂  
+##### 4175#       发表于 2021-7-14 14:30
+
+
+当年怎么字幕组怎么转官方又是怎么转回字幕组的我还有点印象，不过毕竟时代变了，曾经的四天王也不过一个底边而已，应该没有能力和字幕组叫板了。
+<img src="https://img.nga.178.com/attachments/mon_202107/14/-zue37Q2o-g515ZoT3cSh3-sg.jpg.medium.jpg" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -16685,3 +16685,17 @@ IRyS stepping into holoEN:
 
 
                                                  
+
+-----
+
+####  smy20011  
+##### 1088#         楼主| 发表于 2021-7-14 13:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51954215&amp;ptid=1989758" target="_blank">admentus 发表于 2021-7-14 12:56</a>
+
+打完就能合服了吗</blockquote>
+应该是开一个传送门，两边可以来回跑
+
+
+                                                 
