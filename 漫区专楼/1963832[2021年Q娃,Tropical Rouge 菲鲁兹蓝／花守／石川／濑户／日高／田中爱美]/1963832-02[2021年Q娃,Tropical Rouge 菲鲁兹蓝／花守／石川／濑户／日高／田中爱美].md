@@ -5225,3 +5225,39 @@ HOMO! HOMO!
 
 
                                                  
+
+-----
+
+####  坂上あゆみ  
+##### 1884#       发表于 2021-7-14 10:39
+
+
+珊瑚可以和阳光互相卡哇伊  顺便学学前辈怎么用盾（虽然前辈的盾也不是很硬就是了<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  粉儿alice  
+##### 1885#       发表于 2021-7-14 11:05
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51950558&amp;ptid=1963832" target="_blank">过气页游 发表于 2021-7-14 06:32</a>
+月光姐还是一如既往的犀利。按玩具销量看，下次在联动不就轮到水果组了华点：这部剧场版名字里没有 ...</blockquote>
+应该是按照nhk当初投票按照作品顺序吧 好像前三是无印抓心gogo 后面是拥抱 傻笑 5 公主 mh 水果 魔法来着
+拥抱本来就和无印联动过了 真的以后变成传统 要联动也要有人气的老女人 像ss和快充这种继续阿卡林吧
+
+ps 某些狗大友更喜欢联动您们最爱心跳的说<img src="https://static.saraba1st.com/image/smiley/face2017/057.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  粉儿alice  
+##### 1886#       发表于 2021-7-14 11:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51952399&amp;ptid=1963832" target="_blank">坂上あゆみ 发表于 2021-7-14 10:39</a>
+珊瑚可以和阳光互相卡哇伊  顺便学学前辈怎么用盾（虽然前辈的盾也不是很硬就是了 ...</blockquote>
+当然一起吃瘪呗
+
+
+                                                 

@@ -4116,3 +4116,27 @@ up什么不是很明显了吗 妖精王啊</blockquote>
 
 
                                                 
+
+-----
+
+####  khxooo  
+##### 79836#       发表于 2021-7-14 10:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51952263&amp;ptid=1085254" target="_blank">exiaexa 发表于 2021-7-14 10:29</a>
+有句港剧奥伯龙这章虽然表现挺靠谱
+
+但是菌类这厨力放出的立绘……</blockquote>
+我只希望是限定，这样永远都没机会抽到了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  qixinno2  
+##### 79837#       发表于 2021-7-14 11:04
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">50充50红魔放超强红拐 宝具打出1W伤害回10%NP 最高回100%
+
+
+                                                 

@@ -1499,3 +1499,61 @@ Linux没有的几个问题：幸福倒计时、开机卡顿、非人类使用的
 
 
                                                  
+
+-----
+
+####  LoliType  
+##### 112#       发表于 2021-7-14 11:17
+
+
+linux可以去掉图形界面以提升系统稳定性。
+
+
+-----
+
+####  RaidenII  
+##### 113#       发表于 2021-7-14 11:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51944311&amp;ptid=2015061" target="_blank">lotsbiss 发表于 2021-7-13 02:47</a>
+说到底，都看使用习惯。刚刚上内网服务器截个图</blockquote>
+呃...贵司服务器从不打补丁？
+
+—— 来自 [S1Fun](https://s1fun.koalcat.com)
+
+
+-----
+
+####  lionheart  
+##### 114#       发表于 2021-7-14 11:32
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51944311&amp;ptid=2015061" target="_blank">lotsbiss 发表于 2021-7-13 15:47</a>
+
+说到底，都看使用习惯。刚刚上内网服务器截个图</blockquote>
+去年碰上过旧windows系统开机超过四百多少天不会释放tcp链接的问题。
+
+
+当时就两个想法，1居然会有这么奇怪的故障，2windows居然能跑400天不挂
+
+
+-----
+
+####  chachi  
+##### 115#       发表于 2021-7-14 11:53
+
+
+<img src="https://img.saraba1st.com/forum/202107/14/115345qe51xxbzx6x6treu.png" referrerpolicy="no-referrer">
+
+
+<strong>Snipaste_2021-07-14_11-53-33.png</strong> (23.28 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-14 11:53 上传
+
+
+少见多怪吗？
+
+
+                                                 
