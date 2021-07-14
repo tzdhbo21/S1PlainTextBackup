@@ -16208,3 +16208,116 @@ juvvel还按profile里选爱还是选金分成了“爱组”（天皇，葵皇�
 
 
                                                 
+
+-----
+
+####  flyskywalker92  
+##### 4203#       发表于 2021-7-14 23:37
+
+
+木口害人不浅啊 让人以为v都是偶像 明明人家只是liver<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 渡鸦骑士| + 1|我觉得19年的视频势也是这么认为虹的（）.|
+
+
+查看全部评分
+
+
+-----
+
+####  IDIDIDID  
+##### 4204#       发表于 2021-7-14 23:45
+
+
+始作俑者是美元部捏
+
+
+-----
+
+####  Suny08  
+##### 4205#       发表于 2021-7-14 23:53
+
+
+两大极恶虹女郡道和尊妹的形象立起来了，怎么逆转呢
+
+
+-----
+
+####  purdre  
+##### 4206#       发表于 2021-7-14 23:56
+
+
+所以整天给尊妈点踩的倒底是前火畜比较多还是前尊独角兽比较多，以前以为黏着阴湿女粉多，现在一看露露的境遇男粉阴湿的也不少攻击性还强。
+
+
+我还想听尊妈ASMR呢就给这群人给搞没了
+
+
+-----
+
+####  SuntoryNomu  
+##### 4207#       发表于 2021-7-15 00:04
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/000436anaphh3uylnebex4.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E6RIvbMVUAE9fcm.jpg</strong> (95.36 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-15 00:04 上传
+
+
+-----
+
+####  winda  
+##### 4208#       发表于 2021-7-15 00:20
+
+
+ 本帖最后由 winda 于 2021-7-15 00:21 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51961741&amp;ptid=1972669" target="_blank">Suny08 发表于 2021-7-14 23:53</a>
+两大极恶虹女郡道和尊妹的形象立起来了，怎么逆转呢</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/053.png" referrerpolicy="no-referrer">juvvel下面吃火最多的就是被认为是企划主导的尊妹，稍微吃点火的呢，是因为和有前男友同居传闻和尊妹一起被顺劈的nrk
+
+
+-----
+
+####  qq845629713  
+##### 4209#       发表于 2021-7-15 00:36
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> JP死宅破防的点还真的是精准，和男朋友同居、旅游就是绝对不能跨过的那条线
+
+
+-----
+
+####  alcoholic1000  
+##### 4210#       发表于 2021-7-15 00:37
+
+
+尊这波点踩会以什么方式结束呢，她现在一个普通配信300+踩，联动能上1000
+
+要一直抗压吗...
+
+
+-----
+
+####  winda  
+##### 4211#       发表于 2021-7-15 00:40
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">juvvel评论区某匿名版利用者，对立煽厨，过激天皇粉，尊妹an各种身份搅和在一起乱的不行，精彩。
+
+
+                                                 

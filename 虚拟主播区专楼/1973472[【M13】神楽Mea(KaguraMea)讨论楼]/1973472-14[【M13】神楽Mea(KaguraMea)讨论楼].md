@@ -3418,3 +3418,53 @@ yeah!<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" refer
 
 
                                                 
+
+-----
+
+####  路人庚  
+##### 19807#       发表于 2021-7-14 23:36
+
+
+昨天tc没记错的话说了今天是中午12点起来的，大概是去逛了下超商（？
+
+
+刚刚下播前感觉已经很困了，连那个ed都没放，删掉上个录播、把这个录播转为会员可见的操作也很缓慢，估计一会应该是真睡了（
+
+
+-----
+
+####  T_Hb  
+##### 19808#       发表于 2021-7-14 23:37
+
+
+睡得好!   我现在就是健康民
+
+
+-----
+
+####  Klience  
+##### 19809#       发表于 2021-7-14 23:44
+
+
+反正我也是看这人玩什么英雄偶尔观战一下 其他英雄还是算了 浪费时间<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 19810#       发表于 2021-7-15 00:29
+
+
+后面听睡着了<img src="https://static.saraba1st.com/image/smiley/face2017/120.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19811#       发表于 2021-7-15 00:37
+
+
+已经不敢估摸这人体重了
+
+
+                                                 
