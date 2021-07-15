@@ -6035,3 +6035,131 @@ NMD这2.6卡池就有毒
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 79999#       发表于 2021-7-15 13:34
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">我现在就等着看8.4再来一个9月见了
+
+
+-----
+
+####  xiongxingyu  
+##### 80000#       发表于 2021-7-15 13:47
+
+
+现在最慌的其实不是妖兰素材不够，反正目前用得到100充的地方还不多，8级也还能用。就怕二池奥伯龙出来也要吃铜素材，就现在这个充能量，妥妥已经是孔明级的大拐了，要是不能第一时间310怕不是要被删好友了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 80001#       发表于 2021-7-15 13:54
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">孔明级的大拐有什么用?   平时阴间本都那么抵制换人服 这还不是得躺仓库
+
+
+-----
+
+####  シャル  
+##### 80002#       发表于 2021-7-15 14:31
+
+
+就缺钟和鳞粉
+
+
+太可恶了
+
+
+-----
+
+####  qixinno2  
+##### 80003#       发表于 2021-7-15 14:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">没石头又抽不到的我估计到时候就该被大佬们拔毛了
+
+
+-----
+
+####  シャル  
+##### 80004#       发表于 2021-7-15 14:42
+
+
+ 本帖最后由 シャル 于 2021-7-15 14:49 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51968049&amp;ptid=1085254" target="_blank">qixinno2 发表于 2021-7-15 14:33</a>
+
+没石头又抽不到的我估计到时候就该被大佬们拔毛了</blockquote>
+多好啊，省的缺材料了
+
+
+-----
+
+####  AbigailWilliams  
+##### 80005#       发表于 2021-7-15 14:47
+
+
+dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  khxooo  
+##### 80006#       发表于 2021-7-15 15:03
+
+
+是啊，肯定是蘑菇这傻逼要求的，free要做估计就是怪物的配置和模型上，现在怪物的模型都出来了，能用多少工作量<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，卡着玩家很高兴吗啊？
+
+
+-----
+
+####  シャル  
+##### 80007#       发表于 2021-7-15 15:28
+
+
+不开free那就开掉素材的本啊
+
+
+卡素材是傻逼
+
+
+-----
+
+####  alucardcz  
+##### 80008#       发表于 2021-7-15 15:39
+
+
+艹 怎么每战都要重新编队。。。梦回爬塔<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  xiongxingyu  
+##### 80009#       发表于 2021-7-15 15:41
+
+
+ 本帖最后由 xiongxingyu 于 2021-7-15 15:43 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51967636&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-15 13:54</a>
+
+孔明级的大拐有什么用?   平时阴间本都那么抵制换人服 这还不是得躺仓库 ...</blockquote>
+这回无限池孔明不又回来加班了吗，只要解决了伤害的问题，能拆散的充能总是比绑在一个上的要好的。
+
+而且现在奥伯龙只秀了两个技能就是20群冲+50单冲+30宝威+20星+有伤害还能控的全体宝具，按现在这配置哪怕3技能给个千里眼E都是孔明级别的大拐，3技能要是能给个红魔放或者蓝魔放那就是阴间本加班到死的节奏啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">顺便一提，奥伯龙第一个被动技能是
+自身在場上的話，我方全體(含候補)對〔Foreigner〕職階以外弱體賦予成功率提升：10%
+我方全體(含候補)的〔梅林〕強化賦予成功率下降【副作用】：20%如果真的是红拐，简直是对梅林的双重迫害（你也配当红拐）<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  森兰丸  
+##### 80010#       发表于 2021-7-15 16:10
+
+
+奥伯隆果然是黑的啊....没想到第一个剧透的竟然是A狐
+
+
+                                                 

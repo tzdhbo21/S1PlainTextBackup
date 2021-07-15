@@ -1717,3 +1717,49 @@ libstdc++ 那个问题不大，可以静态链接的 (还有 gcc_s)；新一点�
 
 
                                                  
+
+-----
+
+####  liangjin2  
+##### 126#       发表于 2021-7-15 14:12
+
+
+xfce天下第一
+
+
+-----
+
+####  linux40  
+##### 127#       发表于 2021-7-15 14:33
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51967372&amp;ptid=2015061" target="_blank">萼绿华 发表于 2021-7-15 13:22</a>
+关于“非开发用 Linux 桌面干啥”，一个例子，老电脑废物利用，我有一块8年前买的2G内存的Atom Win板，现 ...</blockquote>
+前面被喷的kde和gnome。
+
+
+-----
+
+####  Midnight.Coup  
+##### 128#       发表于 2021-7-15 15:48
+
+
+ 本帖最后由 Midnight.Coup 于 2021-7-15 15:51 编辑 
+
+有台免费拿来的i5 4xxM+310M(308M?)的老本子，也想废物利用下，然后只有Ubuntu20.04和20.10能正常装，ub21.04/Fedora34/openSUSE TW/manjaro gnome版都得先屏蔽了独显才能装，manjaro kde版装上了是wayland的默认不走n卡。
+linus那句话配合国际友好手势今天依然能用<img src="https://static.saraba1st.com/image/smiley/face2017/127.png" referrerpolicy="no-referrer">
+PS：最后装了Win10识别不出老旧WiFi网卡，装了万能驱动后。自动装的N卡和核显驱动在装了能用和重启失效间反复横跳。
+
+
+-----
+
+####  calmer  
+##### 129#       发表于 2021-7-15 16:33
+
+
+arch还好吧，唯一一次把自己搞挂了是更新的时候觉得空间够用，更新中途满了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 HUAWEI NOP-AN00, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 

@@ -5520,3 +5520,49 @@ pv里真夏和汁波密一组，萝拉和马琳一组。
 
 
                                                  
+
+-----
+
+####  lawsherman  
+##### 1908#       发表于 2021-7-15 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51967307&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-7-15 13:15</a>
+
+抓心这cv阵放现在真是不得了
+
+
+— from vivo V2055A, Android 11 of S1 Next Goose v2.4.4.1 ...</blockquote>
+10年前也不得了
+
+
+-----
+
+####  lawsherman  
+##### 1909#       发表于 2021-7-15 13:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51967307&amp;ptid=1963832" target="_blank">dragrass 发表于 2021-7-15 13:15</a>
+
+抓心这cv阵放现在真是不得了
+
+
+— from vivo V2055A, Android 11 of S1 Next Goose v2.4.4.1 ...</blockquote>
+10年前也不得了
+
+
+-----
+
+####  武男  
+##### 1910#       发表于 2021-7-15 14:36
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960878&amp;ptid=1963832" target="_blank">粉儿alice 发表于 2021-7-14 22:47</a>
+
+组曲的确是挺阿卡林得 毕竟被抓心压在后面 被傻笑挤在前面
+
+那榜单我去查一下组曲就黑白猫上榜 艾莲还是在 ...</blockquote>
+SS主要是连模板都差不多
+
+
+                                                 
