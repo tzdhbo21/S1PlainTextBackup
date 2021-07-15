@@ -6263,3 +6263,20 @@ material9下月发售
 
 
                                                  
+
+-----
+
+####  久井路路  
+##### 80019#       发表于 2021-7-16 01:00
+
+
+草，又是个丛卡池出来直接白给的<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">迫真财富密码，即使正片里完全不加描写，只要说两句I love you就能抓住人心，和摩根被召唤出来就直接叫Master老公一样廉价。
+
+
+而且只要有了ML属性，其他方面的情感就会自动变得不值一提。虽然我对百合没什么太大的兴趣，看到正片里妖兰被风族妖精族长欧罗拉拯救、因而得到人形，说“我的生命是属于她的”的时候还觉得挺感动的，结果转头就被挤兑“别因为女角色和女角色之间有点感情描写就说她是百合啊，憧憬是距离理解最远的感情，我们抽出她来被她直球Love才是她的真感情”，老实说，真要我分个高下的话，那抽出来之后我根本不知道感情发展过程的恰饭ML，在我心中的地位可不够格和本篇妖兰对欧罗拉的憧憬与感恩相提并论<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+夏绿蒂那个级别的ML感情描写真的是五年一遇<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 

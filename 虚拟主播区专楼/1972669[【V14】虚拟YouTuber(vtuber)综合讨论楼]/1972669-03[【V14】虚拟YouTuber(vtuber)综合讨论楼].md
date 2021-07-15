@@ -16997,3 +16997,17 @@ V-Clan公式チャンネルにて記者会見の様子を独占配信！
 
 
                                                  
+
+-----
+
+####  stmule  
+##### 4267#       发表于 2021-7-16 01:04
+
+
+<img src="https://p.sda1.dev/2/8bca10fc1d7019dc136324fc7f0116c8/4e46401d2b78ecec.gif" referrerpolicy="no-referrer">
+这烂活整挺好，有被笑到。
+
+—— 来自 samsung SM-G9730, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
