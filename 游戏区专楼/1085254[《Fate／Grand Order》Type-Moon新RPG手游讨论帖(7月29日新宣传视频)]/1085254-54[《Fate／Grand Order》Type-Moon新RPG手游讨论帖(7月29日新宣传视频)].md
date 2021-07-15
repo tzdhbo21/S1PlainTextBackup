@@ -5777,3 +5777,75 @@ NMD这2.6卡池就有毒
 
 
                                                  
+
+-----
+
+####  風卷豹  
+##### 79980#       发表于 2021-7-15 09:44
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51964095&amp;ptid=1085254" target="_blank">khxooo 发表于 2021-7-15 09:12</a>
+
+216颗钉子，216颗火药看着你，本质就是要你刷，要你登录游戏</blockquote>
+这些仓库堆得多还不要紧
+
+况且小钟这玩意现在想刷也没得啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+
+
+-----
+
+####  黑上シグマ  
+##### 79981#       发表于 2021-7-15 09:49
+
+
+<blockquote>引用第79978楼khxooo于2021-07-15 09:12发表的  :
+
+引用:風卷豹 发表于 2021-7-15 09:10现在的小钟只够喂妖兰1个10技能..72*3的消......</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">那你倒是把free本开出来让我刷啊
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  khxooo  
+##### 79982#       发表于 2021-7-15 09:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51964467&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-7-15 09:44</a>
+这些仓库堆得多还不要紧
+
+况且小钟这玩意现在想刷也没得啊</blockquote>
+是的，这个是最傻逼<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  白金口袋  
+##### 79983#       发表于 2021-7-15 10:08
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51964467&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-7-14 19:44</a>
+
+这些仓库堆得多还不要紧
+
+况且小钟这玩意现在想刷也没得啊</blockquote>
+对，所以重点还是没开free本，只要开了管他要多少，毕竟大家苹果多到发霉<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  黑上シグマ  
+##### 79984#       发表于 2021-7-15 10:09
+
+
+翻页
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                
