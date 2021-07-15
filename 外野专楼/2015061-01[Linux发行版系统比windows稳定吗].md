@@ -1763,3 +1763,18 @@ arch还好吧，唯一一次把自己搞挂了是更新的时候觉得空间够�
 
 
                                                  
+
+-----
+
+####  乔槁  
+##### 130#       发表于 2021-7-15 17:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51967372&amp;ptid=2015061" target="_blank">萼绿华 发表于 2021-7-15 13:22</a>
+
+关于“非开发用 Linux 桌面干啥”，一个例子，老电脑废物利用，我有一块8年前买的2G内存的Atom Win板，现 ...</blockquote>
+最近有个JingOS，看演示还行，但是还没到正式版：
+[https://cn.jingos.com/](https://cn.jingos.com/)
+
+
+                                                 

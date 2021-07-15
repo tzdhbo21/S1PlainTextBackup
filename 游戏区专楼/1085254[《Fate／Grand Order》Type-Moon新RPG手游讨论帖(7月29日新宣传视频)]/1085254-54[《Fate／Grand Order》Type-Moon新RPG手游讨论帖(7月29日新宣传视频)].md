@@ -6163,3 +6163,42 @@ dw真缺产能也不至于free放不出来，要喷下达这卡free决策的傻�
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 80011#       发表于 2021-7-15 16:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51969177&amp;ptid=1085254" target="_blank">森兰丸 发表于 2021-7-15 16:10</a>
+
+奥伯隆果然是黑的啊....没想到第一个剧透的竟然是A狐</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">熟悉的id 居然不是豹跳 这合理吗
+
+
+-----
+
+####  黑上シグマ  
+##### 80012#       发表于 2021-7-15 17:17
+
+
+material9下月发售
+同时发售的二世大冒险2的封面也出了，有黑桐干也
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+-----
+
+####  黑上シグマ  
+##### 80013#       发表于 2021-7-15 17:18
+
+
+翻页
+
+
+----发送自 [STAGE1 App for Android.](http://stage1.5j4m.com/?1.37)
+
+
+                                                 
