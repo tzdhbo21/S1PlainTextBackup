@@ -16922,3 +16922,78 @@ syl 大福和下巴的恐怖游戏联动真的很有节目效果<img src="https:
 
 
                                                 
+
+-----
+
+####  free  
+##### 4262#       发表于 2021-7-15 21:13
+
+
+[https://twitter.com/projectv_4/status/1415649851203858433](https://twitter.com/projectv_4/status/1415649851203858433)
+
+
+电影录像机＼最新情報／电影录像机
+
+
+V-Clan公式チャンネルにて記者会見の様子を独占配信！
+
+五大プロジェクト発表！！
+
+
+一体何が始まるんです…？
+
+
+7/17 12:00 START
+[https://youtu.be/p0s4R96q3is](https://youtu.be/p0s4R96q3is)
+
+
+原来这个是电视台那个vclan搞的，除了开始的五个，又追加了不少人
+
+
+-----
+
+####  Suzutsuki  
+##### 4263#       发表于 2021-7-15 22:31
+
+
+几天不来才发现你虹EN要出二期了，猎杀妹可以看看，我就好奇直播能不能带点日文，英文我是真听不懂<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  Suny08  
+##### 4264#       发表于 2021-7-15 22:37
+
+
+虽然能拉一把底边夏芽是很好啦，但是不知道为什么就是很想<img src="https://static.saraba1st.com/image/smiley/face2017/076.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  patema  
+##### 4265#       发表于 2021-7-15 23:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/220.png" referrerpolicy="no-referrer">我怎么感觉挖错了，蔷薇现在好像才刚刚起床，本子这里都12点了还起床。时区看蔷薇应该在美洲那边吧
+
+
+-----
+
+####  qq845629713  
+##### 4266#       发表于 2021-7-15 23:07
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/230700vjfj3ksknjj3ej3n.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E6WIdJOVcAAwHQp.jpg</strong> (58.76 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-15 23:07 上传
+
+
+我好想当阿叶的狗阿，可惜阿叶说他喜欢猫
+
+
+                                                 

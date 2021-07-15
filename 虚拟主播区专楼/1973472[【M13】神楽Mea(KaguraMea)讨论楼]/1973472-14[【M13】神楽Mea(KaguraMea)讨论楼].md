@@ -4499,3 +4499,721 @@ syl，10分钟前还有个b博
 
 
                                                  
+
+-----
+
+####  Klience  
+##### 19907#       发表于 2021-7-15 20:48
+
+
+喂喂喂？ 羊党有没有死光 没有的话我來补下刀<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+E6Tkp4YVkAM38-i.jpg
+(88.29 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-15 20:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/204751kke2s6ummjk14eze.jpg" referrerpolicy="no-referrer">
+
+
+QQ图片20210715204747.png
+(7.34 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-15 20:47 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/204756gmrkdn00x1zwswk0.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19908#       发表于 2021-7-15 20:52
+
+
+上次发病我就回旋了，刀不到我
+
+
+-----
+
+####  2014720  
+##### 19909#       发表于 2021-7-15 22:00
+
+
+开了
+
+
+-----
+
+####  时间在我手中  
+##### 19910#       发表于 2021-7-15 22:02
+
+
+这问题是不是和上次的一毛一样，你麻麻的
+
+
+-----
+
+####  T_Hb  
+##### 19911#       发表于 2021-7-15 22:03
+
+
+能不能别掐你那萌音了，难受住
+
+
+-----
+
+####  时间在我手中  
+##### 19912#       发表于 2021-7-15 22:14
+
+
+是那个杏花星的可还行<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19913#       发表于 2021-7-15 22:14
+
+
+😅😅😅😅😅😅😅😅😅
+😅苔苔你玩的很开心吗😅
+😅😅😅😅😅😅😅😅😅
+
+
+-----
+
+####  JY要塞  
+##### 19914#       发表于 2021-7-15 22:16
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/169.gif" referrerpolicy="no-referrer">感觉姨味又重了
+
+
+-----
+
+####  时间在我手中  
+##### 19915#       发表于 2021-7-15 22:16
+
+
+是经典之不洗澡<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 19916#       发表于 2021-7-15 22:17
+
+
+苔本<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19917#       发表于 2021-7-15 22:20
+
+
+苔本好就好在稳定，坏也坏在稳定。
+
+
+-----
+
+####  T_Hb  
+##### 19918#       发表于 2021-7-15 22:21
+
+
+在无尽的烂活里等一个好活
+
+
+-----
+
+####  2014720  
+##### 19919#       发表于 2021-7-15 22:22
+
+
+俊道
+
+
+-----
+
+####  T_Hb  
+##### 19920#       发表于 2021-7-15 22:24
+
+
+郡道也是肉体厨，你咩姐毫无吸引力
+
+
+
+
+-----
+
+####  时间在我手中  
+##### 19921#       发表于 2021-7-15 22:26
+
+
+军刀喜欢犬山的巨根，谔谔<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19922#       发表于 2021-7-15 22:27
+
+
+这不是很正常<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19923#       发表于 2021-7-15 22:28
+
+
+怎么还有赤坂老师，我还以为来的都是V呢，不过也确实没写一定要是V
+
+
+-----
+
+####  ashero  
+##### 19924#       发表于 2021-7-15 22:29
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">苔苔 你做得好啊
+
+
+-----
+
+####  2014720  
+##### 19925#       发表于 2021-7-15 22:29
+
+
+还以为再也没啥联系了呢，不过这赤坂来了同接掉了些是怎么回事<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  fgfg435  
+##### 19926#       发表于 2021-7-15 22:30
+
+
+已经不是小管人了<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 19927#       发表于 2021-7-15 22:31
+
+
+交往选了犬山，因为收入一亿<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  ashero  
+##### 19928#       发表于 2021-7-15 22:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51973714&amp;ptid=1973472" target="_blank">2014720 发表于 2021-7-15 22:29</a>
+
+还以为再也没啥联系了呢，不过这赤坂来了同接掉了些是怎么回事</blockquote>
+我这边看的是同接突然涨了一千的
+
+
+-----
+
+####  2014720  
+##### 19929#       发表于 2021-7-15 22:31
+
+
+看了今天要败了啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19930#       发表于 2021-7-15 22:32
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">赤坂老师，你知道不知道你在s1漫区天天被骂。
+
+
+-----
+
+####  T_Hb  
+##### 19931#       发表于 2021-7-15 22:33
+
+
+uber信者kagura mea
+
+
+-----
+
+####  JY要塞  
+##### 19932#       发表于 2021-7-15 22:33
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">坦克民又赢了
+
+
+-----
+
+####  2014720  
+##### 19933#       发表于 2021-7-15 22:34
+
+
+ 本帖最后由 2014720 于 2021-7-15 22:36 编辑 
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51973739&amp;ptid=1973472" target="_blank">ashero 发表于 2021-7-15 22:31</a>
+我这边看的是同接突然涨了一千的</blockquote>
+我这掉了小1k然后又慢慢涨上去了<img src="https://static.saraba1st.com/image/smiley/face2017/018.png" referrerpolicy="no-referrer">
+
+今天看着可能出厂的人有点少啊
+
+syl，星川
+
+
+-----
+
+####  T_Hb  
+##### 19934#       发表于 2021-7-15 22:35
+
+
+ 本帖最后由 T_Hb 于 2021-7-15 22:39 编辑 
+
+星川来了，总该选你咩姐了吧
+
+连星川都不选你咩姐，没救了，怎么都是选chingo的，没有就不能交往吗
+
+
+-----
+
+####  2014720  
+##### 19935#       发表于 2021-7-15 22:39
+
+
+要被零封了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 19936#       发表于 2021-7-15 22:40
+
+
+几把更重要，什么**啊<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19937#       发表于 2021-7-15 22:41
+
+
+对这个全是BG的世界绝望了
+
+
+-----
+
+####  呓亘  
+##### 19938#       发表于 2021-7-15 22:42
+
+
+老爱会不会来呢
+
+
+-----
+
+####  呓亘  
+##### 19939#       发表于 2021-7-15 22:45
+
+
+你麻啥时候能年收入1亿啊
+
+
+-----
+
+####  T_Hb  
+##### 19940#       发表于 2021-7-15 22:47
+
+
+随着邦的一声，星川在留下信号不好的消息后就消失了
+
+
+-----
+
+####  rosevalley46  
+##### 19941#       发表于 2021-7-15 22:47
+
+
+先同接到3000再做梦赚钱的事吧<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 19942#       发表于 2021-7-15 22:48
+
+
+3000？2000都不稳<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19943#       发表于 2021-7-15 22:49
+
+
+2000？ 好久都没看过了
+
+
+-----
+
+####  路人庚  
+##### 19944#       发表于 2021-7-15 22:49
+
+
+加上b站同接就有2000（x
+
+
+-----
+
+####  2014720  
+##### 19945#       发表于 2021-7-15 22:50
+
+
+2000k?
+
+最新报价1k5!
+
+今天这次没上次那个来劲啊，人也太少了也没惊喜
+
+
+-----
+
+####  T_Hb  
+##### 19946#       发表于 2021-7-15 22:50
+
+
+又在扣麦，能不能对麦克风好一点
+
+
+-----
+
+####  古战场亡魂  
+##### 19947#       发表于 2021-7-15 22:52
+
+
+先把排班表做好再说吧<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19948#       发表于 2021-7-15 22:54
+
+
+那不可能，你俩再磨结束了
+
+
+-----
+
+####  时间在我手中  
+##### 19949#       发表于 2021-7-15 22:56
+
+
+草，PTR<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19950#       发表于 2021-7-15 22:56
+
+
+终于来了
+
+
+
+
+-----
+
+####  T_Hb  
+##### 19951#       发表于 2021-7-15 22:57
+
+
+ 本帖最后由 T_Hb 于 2021-7-15 23:03 编辑 
+
+真正的空帮汪汪来了
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">槽，PTR妈妈，欧派给你咩用，问起问题来直接就跑路了
+
+
+-----
+
+####  时间在我手中  
+##### 19952#       发表于 2021-7-15 23:00
+
+
+臭女人别逢场作戏啊<img src="https://static.saraba1st.com/image/smiley/face2017/049.png" referrerpolicy="no-referrer">说好的asmr一定要做的啊
+
+
+-----
+
+####  T_Hb  
+##### 19953#       发表于 2021-7-15 23:02
+
+
+ 本帖最后由 T_Hb 于 2021-7-15 23:07 编辑 
+
+我是说同接掉的这么厉害，原来是油管抽了
+
+
+-----
+
+####  时间在我手中  
+##### 19954#       发表于 2021-7-15 23:03
+
+
+竟然是男人模式的歌衣，惊了
+
+
+-----
+
+####  古战场亡魂  
+##### 19955#       发表于 2021-7-15 23:06
+
+
+楼友的记忆真不灵光啊，不是之前雀魂大赛刚好在一桌吗？不是mea最后点了他，舞mea就能小组出线了。
+
+
+-----
+
+####  T_Hb  
+##### 19956#       发表于 2021-7-15 23:07
+
+
+确实，刚想起来
+
+
+-----
+
+####  2014720  
+##### 19957#       发表于 2021-7-15 23:08
+
+
+兔鞠，我的兔鞠<img src="https://static.saraba1st.com/image/smiley/face2017/136.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  时间在我手中  
+##### 19958#       发表于 2021-7-15 23:08
+
+
+最后的最后，是男桐楼友最爱的mari<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19959#       发表于 2021-7-15 23:08
+
+
+稳定收尾的兔鞠。你楼是真喜欢兔鞠啊，感觉你楼就没把他当过男的……<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 19960#       发表于 2021-7-15 23:10
+
+
+还行,相当稳定的人选,但是估计真没下一次了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  古战场亡魂  
+##### 19961#       发表于 2021-7-15 23:11
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51974272&amp;ptid=1973472" target="_blank">GRMeA104 发表于 2021-7-15 23:10</a>
+
+还行,相当稳定的人选,但是估计真没下一次了</blockquote>
+这个企划苔苔可以有下次，不过嘉宾就不是mea了而已。
+
+
+-----
+
+####  T_Hb  
+##### 19962#       发表于 2021-7-15 23:13
+
+
+ 本帖最后由 T_Hb 于 2021-7-15 23:15 编辑 
+
+怎么在搞精神攻击
+
+提起tomari，好像他的live2D最近又更新了
+
+
+-----
+
+####  GRMeA104  
+##### 19963#       发表于 2021-7-15 23:15
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51974292&amp;ptid=1973472" target="_blank">古战场亡魂 发表于 2021-7-15 23:11</a>
+
+这个企划苔苔可以有下次，不过嘉宾就不是mea了而已。</blockquote>
+mea倒是可以变成被打电话的那方就是了<img src="https://static.saraba1st.com/image/smiley/face2017/245.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19964#       发表于 2021-7-15 23:16
+
+
+ 本帖最后由 2014720 于 2021-7-15 23:17 编辑 
+
+卧槽北小路
+
+这是拉人救场吗这么短<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  GRMeA104  
+##### 19965#       发表于 2021-7-15 23:17
+
+
+完全能预料到的人选.太寄吧稳定了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  T_Hb  
+##### 19966#       发表于 2021-7-15 23:17
+
+
+直接把别人从睡梦里干醒，然后问她想和谁交往
+
+
+-----
+
+####  呓亘  
+##### 19967#       发表于 2021-7-15 23:19
+
+
+嘤嘤嘤 小底边 一个大物都没来
+
+
+-----
+
+####  时间在我手中  
+##### 19968#       发表于 2021-7-15 23:20
+
+
+大物？你是要杏花的金盾来是吗<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  2014720  
+##### 19969#       发表于 2021-7-15 23:21
+
+
+是你麻没腿没手还是没脑子了只能靠大物才能救了<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+天天就指望着什么批站什么大物干嘛吗
+
+
+-----
+
+####  专业划水人员  
+##### 19970#       发表于 2021-7-15 23:21
+
+
+赤坂不是来了吗
+
+
+-----
+
+####  咸鱼渣  
+##### 19971#       发表于 2021-7-15 23:21
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">草北小路这被喊醒也太惨了（
+
+
+-----
+
+####  GRMeA104  
+##### 19972#       发表于 2021-7-15 23:23
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51974443&amp;ptid=1973472" target="_blank">2014720 发表于 2021-7-15 23:21</a>
+
+是你麻没腿没手还是没脑子了只能靠大物才能救了
+
+
+天天就指望着什么批站什么大物干嘛吗 ...</blockquote>
+你什么时候产生她有过的错觉<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  咸鱼渣  
+##### 19973#       发表于 2021-7-15 23:25
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51974443&amp;ptid=1973472" target="_blank">2014720 发表于 2021-7-15 23:21</a>
+
+是你麻没腿没手还是没脑子了只能靠大物才能救了
+
+
+天天就指望着什么批站什么大物干嘛吗 ...</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">懒狗还是算了
+
+
+-----
+
+####  JY要塞  
+##### 19974#       发表于 2021-7-15 23:25
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">你麻曾经有过火腿肠，现在不知道是不是酒桶了
+
+
+-----
+
+####  时间在我手中  
+##### 19975#       发表于 2021-7-15 23:26
+
+
+别尬黑，以前就当过酒桶了
+
+
+这叫做回归初心
+
+
+-----
+
+####  2014720  
+##### 19976#       发表于 2021-7-15 23:28
+
+
+来点酒桶图
+
+
+                                               

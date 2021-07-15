@@ -6231,3 +6231,35 @@ material9下月发售
 
 
                                                  
+
+-----
+
+####  angelooo  
+##### 80016#       发表于 2021-7-15 20:56
+
+
+云了下目前透露的剧情有段对我来说是天雷，蘑菇你行不行23333
+
+
+-----
+
+####  森兰丸  
+##### 80017#       发表于 2021-7-15 21:52
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51969724&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-15 16:57</a>
+
+熟悉的id 居然不是豹跳 这合理吗</blockquote>
+<img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">萌新又记忆错乱了.....每次开新主线剧情非洲人在专楼里不都是讨论剧情的么
+
+
+-----
+
+####  森兰丸  
+##### 80018#       发表于 2021-7-15 23:10
+
+
+如果是几千年前就跟在C呆旁边的那个裁缝骑妖精也就算了....怎么村正给C呆做的一破衣服和几千年前C呆穿的衣服一模一样....太扯了吧
+
+
+                                                 
