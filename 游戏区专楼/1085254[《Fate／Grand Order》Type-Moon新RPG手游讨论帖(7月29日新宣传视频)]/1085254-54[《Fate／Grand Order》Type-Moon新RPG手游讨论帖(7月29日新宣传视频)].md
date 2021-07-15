@@ -5702,3 +5702,78 @@ NMD这2.6卡池就有毒
 
 
                                                  
+
+-----
+
+####  シャル  
+##### 79976#       发表于 2021-7-15 07:28
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51959955&amp;ptid=1085254" target="_blank">Jamaisvu 发表于 2021-7-14 21:34</a>
+
+据说三破开三技能会变成龙吐波，不开就是人投枪。
+
+
+（我没抽到，云的...） ...</blockquote>
+随机的
+
+
+-----
+
+####  シャル  
+##### 79977#       发表于 2021-7-15 07:32
+
+
+卡池有毒的
+
+
+80连才抽到
+
+
+04482768-6E0F-4F3C-9BA5-D6D3B95E39B1.png
+(737.49 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-15 07:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/073148i2z2lqltt41gnnbh.png" referrerpolicy="no-referrer">
+
+
+85708A5A-9BC2-40F3-9DB1-0EF92E15144A.png
+(1.08 MB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-15 07:31 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/073151wevgg2sninsi8pod.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  風卷豹  
+##### 79978#       发表于 2021-7-15 09:10
+
+
+现在的小钟只够喂妖兰1个10技能..72*3的消耗到底是哪个勾八设计师想的
+
+
+-----
+
+####  khxooo  
+##### 79979#       发表于 2021-7-15 09:12
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51964064&amp;ptid=1085254" target="_blank">風卷豹 发表于 2021-7-15 09:10</a>
+现在的小钟只够喂妖兰1个10技能..72*3的消耗到底是哪个勾八设计师想的</blockquote>
+216颗钉子，216颗火药看着你<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">，本质就是要你刷，要你登录游戏
+
+
+                                                 
