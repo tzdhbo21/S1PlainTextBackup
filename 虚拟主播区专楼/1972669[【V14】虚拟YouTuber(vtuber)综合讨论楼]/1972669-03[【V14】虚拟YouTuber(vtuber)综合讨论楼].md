@@ -16521,3 +16521,238 @@ KINGの👍
 
 
                                                  
+
+-----
+
+####  gaiadc  
+##### 4229#       发表于 2021-7-15 17:38
+
+
+三国志14与彩虹社联动？
+
+
+-----
+
+####  绿色子龙  
+##### 4230#       发表于 2021-7-15 17:44
+
+
+为什么找这3个……还是这只是第一弹
+
+
+
+
+-----
+
+####  绿色子龙  
+##### 4231#       发表于 2021-7-15 17:46
+
+
+king 武力加成后100 金特技徒食 金战法吸血 
+
+
+-----
+
+####  qq845629713  
+##### 4232#       发表于 2021-7-15 17:47
+
+
+难道不是前辈过来跪舔这位可能是大物转生的企鹅么，
+
+上一个pst直接提到的后辈还是lize
+
+
+-----
+
+####  pansherry  
+##### 4233#       发表于 2021-7-15 17:55
+
+
+<img src="https://tva4.sinaimg.cn/large/771ca9d1gy1gshs9x8qrcj20xc0ir0y1.jpg" referrerpolicy="no-referrer">
+
+
+-----
+
+####  mmbk  
+##### 4234#       发表于 2021-7-15 17:56
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/081.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  noHentai  
+##### 4235#       发表于 2021-7-15 17:57
+
+
+可pay <blockquote>Inui Toko 1st Solo Live "who i am" Blu-ray Discが2021年8月23日(月)に発売決定！
+
+
+2020年12月10日に行われた、にじさんじに所属する戌亥とこ初のソロイベントの模様を収録したBlu-rayの発売が決定しました！
+
+イベント本編映像のノーカット収録に加え、イベント出演者によるオーディオコメンタリーを副音声として収録した、ファン待望の商品となっています！
+
+
+さらに、にじさんじオフィシャルストア特典には、イベント内で披露した曲の中から３曲を、ステージ全体が見渡せる場所から撮影した映像を収録しています。
+
+ここでしか手に入らない商品となっているので、お見逃しなく！</blockquote>
+
+
+-----
+
+####  死体残留  
+##### 4236#       发表于 2021-7-15 17:57
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">这画风 要出动画了么 出个pv也好啊
+
+
+-----
+
+####  IDIDIDID  
+##### 4237#       发表于 2021-7-15 17:57
+
+
+🏄
+
+
+-----
+
+####  mmbk  
+##### 4238#       发表于 2021-7-15 18:03
+
+
+嘿嘿...ptr...嘿嘿🤤ptr...嘿嘿...ptr🤤🤤嘿嘿...ptr...嘿嘿🤤ptr...嘿嘿...然然🤤🤤嘿嘿...ptr...嘿嘿🤤ptr...嘿嘿...ptr🤤🤤嘿嘿...ptr...嘿嘿🤤ptr...嘿嘿...ptr🤤🤤嘿嘿...ptr...嘿嘿🤤ptr...嘿嘿...ptr🤤🤤
+
+
+-----
+
+####  winda  
+##### 4239#       发表于 2021-7-15 18:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">a1画的柄，774去年就找斋藤健吾画谷了吧
+
+
+-----
+
+####  winda  
+##### 4240#       发表于 2021-7-15 18:09
+
+
+https://s.inside-games.jp/article/2021/07/13/133435.html
+今年vspo的访谈，0.2秒物语的动画画饼12话地上波放送。
+结合阅读:20年的访谈
+https://b23.tv/uqtvHB
+
+
+-----
+
+####  alcoholic1000  
+##### 4241#       发表于 2021-7-15 18:10
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-15 18:13 编辑 
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/174205xd1itn6i86c9cwz6.png" referrerpolicy="no-referrer">
+
+
+<strong>French...png</strong> (38.95 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-15 17:42 上传
+
+
+感觉可以确定是文月みき了<img src="https://static.saraba1st.com/image/smiley/face2017/190.png" referrerpolicy="no-referrer"> 
+
+
+en2期生应该是：
+
+Rosemi（蔷薇）日法混血，使用日法英语及一点西班牙语&amp;中文，大概率现居日本
+
+Petra（企鹅）使用日英语，金盾歌手&amp;绘师，油管地址显示加拿大，唱音乐剧的时候水平还不错
+
+Selen（龙）加拿大华裔，使用英法中粤，绘师，Apex猎杀
+
+
+Syl，看了一眼kiwi都开始展望holo ES了，田角跑步都追不上
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| 过不了审| + 1|好评加鹅|
+
+
+查看全部评分
+
+
+-----
+
+####  OldGlory  
+##### 4242#       发表于 2021-7-15 18:18
+
+
+这下holo正统在774了
+
+
+-----
+
+####  空集  
+##### 4243#       发表于 2021-7-15 18:20
+
+
+企鹅那个 sachi推特活动和企鹅还是有点矛盾的 再看吧
+
+—— 来自 Xiaomi Mi 10, Android 10上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+﹍﹍﹍
+
+评分
+
+
+ 参与人数 1战斗力 +1
+
+|昵称|战斗力|理由|
+|----|---|---|
+| alcoholic1000| + 1|只能再等了，我还挺喜欢Shachimu的.|
+
+
+查看全部评分
+
+
+-----
+
+####  黑漆漆的漆漆  
+##### 4244#       发表于 2021-7-15 18:22
+
+
+华裔在当下的环境里可是两头不讨好
+
+
+-----
+
+####  alcoholic1000  
+##### 4245#       发表于 2021-7-15 18:27
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51970683&amp;ptid=1972669" target="_blank">空集 发表于 2021-7-15 18:20</a>
+
+企鹅那个 sachi推特活动和企鹅还是有点矛盾的 再看吧
+
+
+—— 来自 Xiaomi Mi 10, Android 10上的 S1Next-鹅 ...</blockquote>
+英文社区比较确信（他们消息也比较落后），比对了筆跡和声音认为是同一人，日文社区确实有人觉得时区和活动之类的对不上
+
+
+                                                

@@ -7828,3 +7828,24 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
 
                                                  
+
+-----
+
+####  Fami水  
+##### 12681#       发表于 2021-7-15 18:09
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/009.gif" referrerpolicy="no-referrer">真的假的 还没搞定搬家么绫总
+日本效率再评价
+
+
+-----
+
+####  因为你不会  
+##### 12682#       发表于 2021-7-15 18:15
+
+
+翻译：被牢头抓过来强制劳动了<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

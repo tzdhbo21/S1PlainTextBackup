@@ -6202,3 +6202,21 @@ material9下月发售
 
 
                                                  
+
+-----
+
+####  白金口袋  
+##### 80014#       发表于 2021-7-15 17:34
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51967220&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 23:05</a>
+
+摩根倒是终于能10 10 10了
+
+这次还真的是打完摩根就没了  8.4怕不是还有10节的内容
+
+谁是废物就不谈了..都是 ...</blockquote>
+我猜可能不止10节，0AP那节看似后日谈实际像希腊异闻带一样，一开直接换张地图，继续20节走起<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+                                                 
