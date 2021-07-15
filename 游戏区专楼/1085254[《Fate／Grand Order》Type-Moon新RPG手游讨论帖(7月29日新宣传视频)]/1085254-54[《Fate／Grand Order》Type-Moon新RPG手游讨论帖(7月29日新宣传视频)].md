@@ -6280,3 +6280,17 @@ material9下月发售
 
 
                                                  
+
+-----
+
+####  森兰丸  
+##### 80020#       发表于 2021-7-16 02:07
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">这剧情助战C呆都110级了.....不知道这章打完最后能到几级
+
+
+除了喂圣杯外以后还会开新的等级上限突破系统么
+
+
+                                                 
