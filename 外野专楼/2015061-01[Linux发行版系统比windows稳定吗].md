@@ -1699,3 +1699,21 @@ gpu docker内拉起sshd
 
 
                                                  
+
+-----
+
+####  萼绿华  
+##### 125#       发表于 2021-7-15 13:22
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51949709&amp;ptid=2015061" target="_blank">miyamotoruri 发表于 2021-7-14 00:28</a>
+
+&gt; C/C++ Runtime
+
+这两个要分开看
+
+libstdc++ 那个问题不大，可以静态链接的 (还有 gcc_s)；新一点的语言都看 ...</blockquote>
+关于“非开发用 Linux 桌面干啥”，一个例子，老电脑废物利用，我有一块8年前买的2G内存的Atom Win板，现在装32位Windows都卡得爆炸，装了Lubuntu就仍然能流畅使用。但问题是折腾了半天之后发现Lubuntu对触摸屏的支持烂到无可救药，于是只好又换回Windows。说起来不知有没有对触摸屏支持比较好的Linux发行版。
+
+
+                                                 

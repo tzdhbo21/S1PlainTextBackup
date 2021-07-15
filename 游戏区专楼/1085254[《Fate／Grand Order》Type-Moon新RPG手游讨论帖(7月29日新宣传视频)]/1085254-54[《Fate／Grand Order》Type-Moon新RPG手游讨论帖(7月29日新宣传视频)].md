@@ -5884,3 +5884,154 @@ NMD这2.6卡池就有毒
 
 
                                                  
+
+-----
+
+####  zakki  
+##### 79988#       发表于 2021-7-15 11:57
+
+
+石尽，不抱希望出妖兰了，希望周年送的石头能让我出红拐
+
+
+-----
+
+####  シャル  
+##### 79989#       发表于 2021-7-15 12:06
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51966019&amp;ptid=1085254" target="_blank">巴裘拉 发表于 2021-7-15 11:21</a>
+
+4单下去一个up角色都没出，我天崩</blockquote>
+这次卡池有毒，80连才一个尼托和兰斯，连4星都歪不出来
+
+
+-----
+
+####  シャル  
+##### 79990#       发表于 2021-7-15 12:10
+
+
+我就屮了
+
+
+这144个钟去哪里刷啊
+
+
+第二宝具根本用不到<img src="https://static.saraba1st.com/image/smiley/face2017/047.png" referrerpolicy="no-referrer">
+
+
+第一宝具连发加暴击就能过周回了
+
+
+03521E5B-4A10-4CCC-A905-F9D32F9393A7.png
+(748.08 KB, 下载次数: 0)
+
+
+下载附件
+
+
+2021-7-15 12:09 上传
+
+
+<img src="https://img.saraba1st.com/forum/202107/15/120909v7vtm11gbzfh6h87.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  angelooo  
+##### 79991#       发表于 2021-7-15 12:48
+
+
+不开free简直弱智操作，都分三次开了为什么不像1.0开始那时候边打边开free？
+
+
+-----
+
+####  UNISONIA  
+##### 79992#       发表于 2021-7-15 12:51
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51960717&amp;ptid=1085254" target="_blank">alucardcz 发表于 2021-7-14 22:34</a>
+
+所以有没有free
+
+如果没有。dw可真是废物中的废物</blockquote>
+废物不是作者吗
+
+
+老外黑客那边都在说free早就做好了就是拖着不实装而已
+
+
+-----
+
+####  UNISONIA  
+##### 79993#       发表于 2021-7-15 12:57
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51967142&amp;ptid=1085254" target="_blank">angelooo 发表于 2021-7-15 12:48</a>
+
+不开free简直弱智操作，都分三次开了为什么不像1.0开始那时候边打边开free？ ...</blockquote>
+问就是奈须的要求
+
+
+第一部后期六七两章不根据进度开free就是奈须要求盐川改的
+
+
+-----
+
+####  zore  
+##### 79994#       发表于 2021-7-15 13:02
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/004.gif" referrerpolicy="no-referrer">这妖兰8升9就要我200多个材料
+
+神经病啊<img src="https://static.saraba1st.com/image/smiley/face2017/125.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  alucardcz  
+##### 79995#       发表于 2021-7-15 13:05
+
+
+摩根倒是终于能10 10 10了
+
+这次还真的是打完摩根就没了  8.4怕不是还有10节的内容
+
+谁是废物就不谈了..都是废物就完了
+
+
+-----
+
+####  巴莱-银河漂流  
+##### 79996#       发表于 2021-7-15 13:10
+
+
+麻里佳登月了哎
+
+
+-----
+
+####  巴莱-银河漂流  
+##### 79997#       发表于 2021-7-15 13:11
+
+
+话说茄子这个冰冻挂机刷时长到底算不算活了2000多岁（
+
+
+-----
+
+####  angelooo  
+##### 79998#       发表于 2021-7-15 13:13
+
+
+<blockquote>UNISONIA 发表于 2021-7-15 12:57
+问就是奈须的要求
+
+
+第一部后期六七两章不根据进度开free就是奈须要求盐川改的 ...</blockquote>
+之前打完才开，反正主线一次性结束就能刷free了，这都分三次开了拖了将近2个月，复刻一个无限池给换的材料也是杯水车薪，蘑菇自己爽就完事了，真就是个不需要玩家体验的游戏呗
+
+
+                                                 

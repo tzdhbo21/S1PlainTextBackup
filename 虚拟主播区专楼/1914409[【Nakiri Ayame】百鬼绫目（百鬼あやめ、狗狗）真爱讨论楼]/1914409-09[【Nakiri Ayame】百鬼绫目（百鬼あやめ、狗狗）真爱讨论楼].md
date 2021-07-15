@@ -7804,3 +7804,27 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
 
                                                  
+
+-----
+
+####  allenz3  
+##### 12679#       发表于 2021-7-15 12:49
+
+
+光荣把懒狗拉出来了？
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  allenz3  
+##### 12680#       发表于 2021-7-15 12:49
+
+
+光荣把懒狗拉出来了？
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+                                                 
