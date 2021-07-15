@@ -7849,3 +7849,25 @@ https://twitter.com/vinhnyu/status/1414799244351967232
 
 
                                                  
+
+-----
+
+####  allenz3  
+##### 12683#       发表于 2021-7-15 19:03
+
+
+原来是录像<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer">
+
+—— 来自 Sony XQ-AS72, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  因为你不会  
+##### 12684#       发表于 2021-7-15 19:22
+
+
+出来劳动，小播一会<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                 

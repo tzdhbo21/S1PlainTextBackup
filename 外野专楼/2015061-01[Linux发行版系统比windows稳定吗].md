@@ -1778,3 +1778,41 @@ arch还好吧，唯一一次把自己搞挂了是更新的时候觉得空间够�
 
 
                                                  
+
+-----
+
+####  citrus  
+##### 131#       发表于 2021-7-15 19:19
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51961272&amp;ptid=2015061" target="_blank">r_ex 发表于 2021-7-14 23:17</a>
+
+注册表现在除了微软自己，应该没啥人用了吧</blockquote>
+最近玩的某黄油，安装程序居然让选择配置文件是放在安装目录，用户目录，还是注册表
+
+
+-----
+
+####  ekdc11  
+##### 132#       发表于 2021-7-15 19:31
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51968917&amp;ptid=2015061" target="_blank">Midnight.Coup 发表于 2021-7-15 15:48</a>
+
+有台免费拿来的i5 4xxM+310M(308M?)的老本子，也想废物利用下，然后只有Ubuntu20.04和20.10能正常装，ub21. ...</blockquote>
+你这种情况直接用popos的n卡镜像得了，wayland不要想了
+
+
+-----
+
+####  Midnight.Coup  
+##### 133#       发表于 2021-7-15 19:37
+
+
+<blockquote><a href="httphttps://bbs.saraba1st.com/2b/forum.php?mod=redirect&amp;goto=findpost&amp;pid=51971407&amp;ptid=2015061" target="_blank">ekdc11 发表于 2021-7-15 19:31</a>
+
+你这种情况直接用popos的n卡镜像得了，wayland不要想了</blockquote>
+最后还是装回了 ub 的 20.04 LTS <img src="https://static.saraba1st.com/image/smiley/face2017/065.png" referrerpolicy="no-referrer">
+
+
+                                                 

@@ -6220,3 +6220,14 @@ material9下月发售
 
 
                                                  
+
+-----
+
+####  alucardcz  
+##### 80015#       发表于 2021-7-15 18:47
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">节奏榜下面居然也都是在喷这次还没完结就硬拖的   我以为日本人容忍度很高呢
+
+
+                                                 

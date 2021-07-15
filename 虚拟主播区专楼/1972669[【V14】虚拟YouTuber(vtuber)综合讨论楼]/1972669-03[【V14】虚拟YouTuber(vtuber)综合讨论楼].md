@@ -16756,3 +16756,169 @@ Syl，看了一眼kiwi都开始展望holo ES了，田角跑步都追不上
 
 
                                                 
+
+-----
+
+####  patema  
+##### 4246#       发表于 2021-7-15 18:35
+
+
+那么龙和蔷薇是谁啊<img src="https://static.saraba1st.com/image/smiley/face2017/001.png" referrerpolicy="no-referrer">
+
+—— 来自 motorola XT2125-4, Android 11上的 [S1Next-鹅版](https://github.com/ykrank/S1-Next/releases) v2.4.4.1
+
+
+-----
+
+####  IDIDIDID  
+##### 4247#       发表于 2021-7-15 18:36
+
+
+如果二期魂那么强，为什么当初不拿去当一期？这两期出道本来也没隔多久啊。
+
+
+-----
+
+####  Kawana  
+##### 4248#       发表于 2021-7-15 18:42
+
+
+另外两个谁啊
+
+
+-----
+
+####  qq845629713  
+##### 4249#       发表于 2021-7-15 18:42
+
+
+一期还是迷信了素人至上理论，
+
+田角不懂一个道理，只有经验者才能救彩虹
+
+
+-----
+
+####  Kawana  
+##### 4250#       发表于 2021-7-15 18:47
+
+
+草 看到了
+
+
+-----
+
+####  OldGlory  
+##### 4251#       发表于 2021-7-15 18:49
+
+
+隔的不久可以当成1.5期 多点尝试是好事
+
+
+-----
+
+####  Suny08  
+##### 4252#       发表于 2021-7-15 18:50
+
+
+那个企鹅今天早上发了一个起床推，今天凌晨2点发了个睡觉推，感觉是在日的，要是这也是rp的话那也太pro了，只能说不愧是金盾了，不过现在我感觉还是可能挖歪了
+
+
+-----
+
+####  winda  
+##### 4253#       发表于 2021-7-15 18:53
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">可一期也是三个v转生啊，mint毕业前订阅还破w了
+
+
+-----
+
+####  noHentai  
+##### 4254#       发表于 2021-7-15 18:57
+
+
+你楼都在关注金盾，真正的管人观众在关注那个Apex猎杀<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer"> 
+
+
+-----
+
+####  Suny08  
+##### 4255#       发表于 2021-7-15 19:05
+
+
+所以要真是这样为什么一二期的格差这么大，一期三底边二期俩绝活哥
+
+
+-----
+
+####  qq845629713  
+##### 4256#       发表于 2021-7-15 19:06
+
+
+<img src="https://static.saraba1st.com/image/smiley/face2017/037.png" referrerpolicy="no-referrer"> 加拿带华裔，说不定还和YQ认识呢
+
+
+-----
+
+####  渡鸦骑士  
+##### 4257#       发表于 2021-7-15 19:07
+
+
+对啊，女v猎杀进来了，那apex大赛上的关注重点是谁呢<img src="https://static.saraba1st.com/image/smiley/face2017/066.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  FCCHua  
+##### 4258#       发表于 2021-7-15 19:10
+
+
+ 本帖最后由 FCCHua 于 2021-7-15 19:37 编辑 
+
+希望真的是猎杀，这样虹女的段位钻一，大师，猎杀齐了...
+syl 大福和下巴的恐怖游戏联动真的很有节目效果<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  poipanchao  
+##### 4259#       发表于 2021-7-15 19:14
+
+
+支持猎杀暴杀
+
+
+-----
+
+####  alcoholic1000  
+##### 4260#       发表于 2021-7-15 19:47
+
+
+ 本帖最后由 alcoholic1000 于 2021-7-15 19:50 编辑 
+
+叶@にじさんじ
+
+@Kanae_2434
+
+カスタムまでわいわいさんとKing Gnuの井口さんとAPEXやるよ～～ん
+
+
+本来想劈一下虹男Apex费拉不堪的但这<img src="https://static.saraba1st.com/image/smiley/face2017/244.gif" referrerpolicy="no-referrer">
+
+井口？Apex是一款社交软件<img src="https://static.saraba1st.com/image/smiley/face2017/119.png" referrerpolicy="no-referrer"> 
+
+
+
+
+-----
+
+####  FCCHua  
+##### 4261#       发表于 2021-7-15 19:55
+
+
+牛的<img src="https://static.saraba1st.com/image/smiley/face2017/067.png" referrerpolicy="no-referrer">
+
+
+                                                
