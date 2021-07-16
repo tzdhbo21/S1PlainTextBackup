@@ -17047,3 +17047,39 @@ V-Clan公式チャンネルにて記者会見の様子を独占配信！
 
 
                                                  
+
+-----
+
+####  SuntoryNomu  
+##### 4271#       发表于 2021-7-16 16:37
+
+
+<img src="https://img.saraba1st.com/forum/202107/16/163704i4a2p27o11go51g7.jpg" referrerpolicy="no-referrer">
+
+
+<strong>E6Z42LZUcAM-0_7.jpg</strong> (238.06 KB, 下载次数: 0)
+
+下载附件
+
+2021-7-16 16:37 上传
+
+
+-----
+
+####  FCCHua  
+##### 4272#       发表于 2021-7-16 16:38
+
+
+草，你虹好急，直接下周周中披露了<img src="https://static.saraba1st.com/image/smiley/face2017/068.png" referrerpolicy="no-referrer">
+
+
+-----
+
+####  IDIDIDID  
+##### 4273#       发表于 2021-7-16 17:04
+
+
+这位更是即战力，要我说早该插队了
+
+
+                                                 
